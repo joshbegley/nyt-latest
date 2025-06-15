@@ -1,3 +1,11 @@
+**Many Lawmakers Share Their Home Addresses. Political Violence Is Changing That.**\
+`The Minnesota assassination is causing some state legislators to rethink home security and how much personal information they make public.`\
+https://nytimes.com/2025/06/15/us/lawmakers-home-addresses.html
+
+**Israel and Iran Trade Attacks as Toll From Conflict Mounts**\
+`The path to diplomacy appeared to narrow after officials called off talks that had been set for Sunday between Tehran and Washington on Iran’s nuclear program.`\
+https://nytimes.com/2025/06/15/world/middleeast/iran-israel-missile-strikes.html
+
 **Gasoline Prices Likely to Rise as Israel Targets Iran’s Energy Infrastructure**\
 `U.S. oil prices already jumped last week, which could cause prices at the pump to rise about 20 cents a gallon in the coming weeks, according to one estimate.`\
 https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likely-to-rise-as-israel-targets-irans-energy-infrastructure.html

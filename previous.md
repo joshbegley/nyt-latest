@@ -1,3 +1,11 @@
+**Many Lawmakers Share Their Home Addresses. Political Violence Is Changing That.**\
+`The Minnesota assassination is causing some state legislators to rethink home security and how much personal information they make public.`\
+https://nytimes.com/2025/06/15/us/lawmakers-home-addresses.html
+
+**Israel and Iran Trade Attacks as Toll From Conflict Mounts**\
+`The path to diplomacy appeared to narrow after officials called off talks that had been set for Sunday between Tehran and Washington on Iran’s nuclear program.`\
+https://nytimes.com/2025/06/15/world/middleeast/iran-israel-missile-strikes.html
+
 **Gasoline Prices Likely to Rise as Israel Targets Iran’s Energy Infrastructure**\
 `U.S. oil prices already jumped last week, which could cause prices at the pump to rise about 20 cents a gallon in the coming weeks, according to one estimate.`\
 https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likely-to-rise-as-israel-targets-irans-energy-infrastructure.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6427646/2025/06/15/rick-carlisle-scott-foster-nba-f
 **How a manhunt works, according to security experts.**\
 `The search is ongoing for suspect Vance Boelter, 57, who escaped on foot after a gunfire exchange with local officers.`\
 https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/how-a-manhunt-works-according-to-security-experts
-
-**Israel Diminished Iran’s Air Defenses in Rounds of Strikes**\
-`Since last year, Israel forces have repeatedly hit Iran’s defenses. Prime Minister Benjamin Netanyahu said on Sunday that Israel had worked to “peel off the layers of protection” of Iranian defenses.`\
-https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom.html
-
-**Deployed to Meet an ‘Invasion,’ Marines Were Once Invaders of Mexico**\
-`Many Mexican Americans remember that California became part of the United States after a 19th century war that cost Mexico more than half its territory.`\
-https://nytimes.com/2025/06/15/us/marines-la-mexico-invasion.html
 
