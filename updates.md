@@ -1,3 +1,7 @@
+**In Bat Yam, south of Tel Aviv, Iran’s missile barrages killed at least six people.**\
+`Most of those confirmed dead were women and children, according to the authorities, although they have yet to publicly name the victims.`\
+https://nytimes.com/2025/06/15/world/middleeast/bat-yam-tel-aviv-israel-iran.html
+
 **Lowetide: Why the Oilers' defensive deployment reflects performance, injury**\
 `Mattias Ekholm's return, married to various injuries, maladies and struggles, has reset the Oilers' defensive depth chart.`\
 https://nytimes.com/athletic/6425799/2025/06/15/edmonton-oilers-stats-stanley-cup-defence/
