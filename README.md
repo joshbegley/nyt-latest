@@ -1,3 +1,7 @@
+**Acuña and Strider give Braves hope despite worst start in franchise history**\
+`The Braves have reasons to believe they are just getting started. And the two biggest ones are Acuña and Strider.`\
+https://nytimes.com/athletic/6426590/2025/06/14/braves-ronald-acuna-spence-strider/
+
 **Dodgers' Kiké Hernández expresses support for immigrants amid ICE protests**\
 `Hernández is the first Dodger to publicly speak out about the events in Los Angeles over the past week.`\
 https://nytimes.com/athletic/6426593/2025/06/14/kike-hernandez-dodgers-immigration-ice-protests/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426525/2025/06/14/mlb-brewers-willson-contreras-co
 **Here’s what to know about Yvette Hoffman, who was wounded in the Minnesota shootings.**\
 `She is a former D.J. and an advocate for vulnerable children.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/yvette-hoffman-minnesota-shootings
-
-**U.S. Open 2025: What to know about Burns, Scott and Hovland before the final round**\
-`Should Scott win, he would be the second-oldest champion, behind only Hale Irwin in 1990.`\
-https://nytimes.com/athletic/6426527/2025/06/14/u-s-open-2025-round-3-what-to-know-burns-scott-hovland/
 
