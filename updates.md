@@ -1,3 +1,7 @@
+**Leeds close to signing striker Nmecha on free transfer**\
+`The 26-year-old's deal at German side Wolfsburg expires at the end of the month.`\
+https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
+
 **Gattuso appointed new Italy head coach following Spalletti dismissal**\
 `Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
 https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/

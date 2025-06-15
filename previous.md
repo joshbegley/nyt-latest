@@ -1,3 +1,7 @@
+**Leeds close to signing striker Nmecha on free transfer**\
+`The 26-year-old's deal at German side Wolfsburg expires at the end of the month.`\
+https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
+
 **Gattuso appointed new Italy head coach following Spalletti dismissal**\
 `Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
 https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-bombs-yemen-ta
 **Woo: An ode to my baseball dad on Father's Day**\
 `Our Cardinals beat writer was a baseball-obsessed kid, but her career path required encouragement: "You just have to stick with it, Koko." `\
 https://nytimes.com/athletic/6426188/2025/06/15/mlb-fathers-day-cardinals/
-
-**Sharing the Secrets of Travel**\
-`Plus, the latest on the manhunt for the Minnesota gunman.`\
-https://nytimes.com/2025/06/15/briefing/sharing-the-secrets-of-travel.html
 
