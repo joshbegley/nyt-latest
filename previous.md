@@ -1,3 +1,15 @@
+**The Pulse: Can the Knicks find a coach? We'll see.**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6426739/2025/06/15/will-anybody-coach-the-new-york-knicks-its-a-fair-question/
+
+**A Daunting Task for Democrats**\
+`Readers respond to a column by David Brooks about the Democratic Party. Also: A litmus test for federal workers; principled Republicans.`\
+https://nytimes.com/2025/06/15/opinion/democratic-party.html
+
+**An American Fight With Mexico Won’t Go Well**\
+`Deteriorating into a combative relationship with Mexico would almost certainly worsen problems over trade and cartels, and inflame further protests.`\
+https://nytimes.com/2025/06/15/opinion/us-mexico-trade-cartel.html
+
 **Israel bombs Yemen, targeting a top Houthi military leader.**\
 `By Vivian Nereim and Isabel Kershner`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-bombs-yemen-targeting-a-top-houthi-military-leader
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6404681/2025/06/15/nba-players-shoe-deal-haliburton
 **The quiet work behind the scenes of making Pete Crow-Armstrong one of baseball's loudest talents**\
 `For a player with a magnetic personality and a soaring public profile, Crow-Armstrong very much appreciates his craft and enjoys the grind.`\
 https://nytimes.com/athletic/6426337/2025/06/15/pete-crow-armstrong-behind-the-scenes/
-
-**Oilers are unfazed in the face of defeat: ‘This was always going to be a long series’**\
-`The Oilers have leapt over just about every playoff hurdle they've faced. What's one more?`\
-https://nytimes.com/athletic/6426962/2025/06/15/edmonton-oilers-game-5-loss-panthers/
-
-**A Takeoff, a Mayday Call, and Two Pilots Who Never Made it Home**\
-`One pilot on the ill-fated Air India flight was planning to retire. His co-pilot’s career was just getting started. Their final flight lasted seconds.`\
-https://nytimes.com/2025/06/15/world/asia/india-air-crash-pilots.html
-
-**Brad Marchand’s legend keeps growing with exceptional playoff run for Panthers**\
-`With two goals in Game 5, the 37-year-old Panthers trade deadline acquisition joined elite Stanley Cup Final history.`\
-https://nytimes.com/athletic/6426856/2025/06/15/panthers-brad-marchand-nhl-playoffs-stanley-cup-final/
 
