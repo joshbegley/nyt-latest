@@ -1,3 +1,7 @@
+**Leeds confirm signing of Nmecha on free transfer**\
+`The 26-year-old's deal at German side Wolfsburg expires at the end of the month.`\
+https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
+
 **BBQ Chicken Is Always the Move**\
 `Crisp and succulent, great with slaw, one of the best summertime feeds.`\
 https://nytimes.com/2025/06/15/dining/sam-siftons-bbq-chicken-recipe.html
