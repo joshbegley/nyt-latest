@@ -1,3 +1,7 @@
+**U.S. Open 2025: What to know about Burns, Scott and Hovland before the final round**\
+`Should Scott win, he would be the second-oldest champion, behind only Hale Irwin in 1990.`\
+https://nytimes.com/athletic/6426527/2025/06/14/u-s-open-2025-round-3-what-to-know-burns-scott-hovland/
+
 **What we're hearing about a possible Kevin Durant trade, and the obstacles that exist**\
 `Durant is widely expected to be traded from the Suns soon. But for as great as he is, it’s easy to see why a deal is tough to get done here.`\
 https://nytimes.com/athletic/6426397/2025/06/14/kevin-durant-suns-trade-nba-rumors-wolves-rockets-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426389/2025/06/14/blue-jays-bowden-francis-wild-in
 **No Kings protesters nationwide share why they took to the streets.**\
 `By Jenna Russell, Robert Chiarito, Dan Simmons, Kurt Streeter, Christopher Maag, Mary Beth Gahan, Sean Keenan and Santul Nerkar`\
 https://nytimes.com/live/2025/06/14/us/protests-news/no-kings-protesters-nationwide-share-why-they-took-to-the-streets
-
-**Inside Trump’s Extraordinary Turnaround on Immigration Raids**\
-`President Trump’s decision to pause most raids targeting farms and hospitality workers took many inside the White House by surprise. It came after intensive lobbying by his agriculture secretary.`\
-https://nytimes.com/2025/06/14/us/politics/trump-immigration-raids-workers.html
 
