@@ -1,3 +1,7 @@
+**Lowetide: Why the Oilers' defensive deployment reflects performance, injury**\
+`Mattias Ekholm's return, married to various injuries, maladies and struggles, has reset the Oilers' defensive depth chart.`\
+https://nytimes.com/athletic/6425799/2025/06/15/edmonton-oilers-stats-stanley-cup-defence/
+
 **Joel Shapiro, Celebrated Post-Minimalist Sculptor, Dies at 83**\
 `His stick-figure sculptures conveyed a surprising depth of emotion, hinting at the threat of imbalance. He also produced more than 30 large-scale commissions.`\
 https://nytimes.com/2025/06/15/arts/joel-shapiro-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/opinion/democratic-party.html
 **An American Fight With Mexico Won’t Go Well**\
 `Deteriorating into a combative relationship with Mexico would almost certainly worsen problems over trade and cartels, and inflame further protests.`\
 https://nytimes.com/2025/06/15/opinion/us-mexico-trade-cartel.html
-
-**Israel bombs Yemen, targeting a top Houthi military leader.**\
-`By Vivian Nereim and Isabel Kershner`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-bombs-yemen-targeting-a-top-houthi-military-leader
 
