@@ -1,3 +1,5 @@
+
+
 **Trade grades: Desmond Bane helps Magic's stars, but did Orlando give up too much?**\
 `The Magic are sending a lot of draft capital to Memphis in this deal. They hope it will be worth it.`\
 https://nytimes.com/athletic/6427494/2025/06/15/desmond-bane-trade-grizzlies-magic-grades/
