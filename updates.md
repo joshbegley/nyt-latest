@@ -1,3 +1,15 @@
+**BBQ Chicken Is Always the Move**\
+`Crisp and succulent, great with slaw, one of the best summertime feeds.`\
+https://nytimes.com/2025/06/15/dining/sam-siftons-bbq-chicken-recipe.html
+
+**In Bat Yam, south of Tel Aviv, Iran’s missile barrages killed at least six people.**\
+`Most of those confirmed dead were women and children, according to the authorities, although they have yet to name the victims publicly.`\
+https://nytimes.com/2025/06/15/world/middleeast/bat-yam-tel-aviv-israel-iran.html
+
+**What to Know About the New Head of Iran’s Islamic Revolutionary Guards Corps**\
+`Brig. Gen. Ahmad Vahidi was appointed to lead the group after his predecessor, Gen. Hossein Salami, was killed in an Israeli airstrike.`\
+https://nytimes.com/2025/06/15/world/middleeast/iran-irgc-vahidi.html
+
 **Alex Polikoff, Who Won a Marathon Housing Segregation Case, Dies at 98**\
 `He notched a victory in a Supreme Court decision against the City of Chicago in 1976. He then spent over 40 years making sure the ruling was enforced.`\
 https://nytimes.com/2025/06/15/us/alex-polikoff-dead.html
