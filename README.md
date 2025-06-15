@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6427611/2025/06/15/diamond-league-world-record-dupl
 `Stefan Herheim, the artistic leader of Theater an der Wien in Vienna, is wrapping up his first season inside the newly renovated theater.`\
 https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.html
 
-**Angel Reese sparks Chicago to win with first career triple-double**\
+**Angel Reese notches first triple-double, wants game to be 'super versatile'**\
 `Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
 https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
 
