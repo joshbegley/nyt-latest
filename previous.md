@@ -1,3 +1,19 @@
+**Cuomo and Mamdani Vie for Support as Early Voters Flock to the Polls**\
+`Former Gov. Andrew M. Cuomo and Zohran Mamdani, the two front-runners in the Democratic mayoral primary in New York City, delivered closing-stage speeches.`\
+https://nytimes.com/2025/06/15/nyregion/cuomo-mamdani-early-voting.html
+
+**What New York City Apartment Hunters Can’t Live Without**\
+`A punishing housing market has conditioned some people to have low expectations, but others aren’t afraid to be demanding.`\
+https://nytimes.com/2025/06/15/nyregion/nyc-apartment-hunt.html
+
+**‘I Had Only Gone a Few Blocks When It Started to Drizzle’**\
+`Betting against rain in Forest Hills, unusual pets in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/06/15/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/15/crosswords/spelling-bee-forum.html
+
 **Clayton Kershaw, 12 strikeouts from 3,000, dusts off vintage performance against Giants**\
 `It looks like Kershaw has turned a corner. His pursuit of 3,000 strikeouts appears to be inching closer.`\
 https://nytimes.com/athletic/6426991/2025/06/15/clayton-kershaw-vintage-performance-against-giants/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/15/opinion/fathers-day-daughters.html
 **The New York Times in Print for Sunday, June 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/15/todays-new-york-times
-
-**China Revoked My Visa, and Came to Regret It**\
-`Canceling the visas of Chinese students in the United States is a horrible idea.`\
-https://nytimes.com/2025/06/15/opinion/china-education-students-visas.html
-
-**Hunter Dobbins helps Red Sox pick up second series win over Yankees**\
-`Dobbins finished with six scoreless innings, allowing two hits and a walk while striking out five. "The stuff was good," Alex Cora said.`\
-https://nytimes.com/athletic/6426820/2025/06/15/red-sox-second-series-win-yankees-hunter-dobbins/
-
-**Yankees' sloppiness on full display in another series loss vs. Red Sox**\
-`The Yankees have now dropped four of five games this season against the Red Sox and are 8-10 overall in the American League East.`\
-https://nytimes.com/athletic/6426703/2025/06/15/yankees-sloppy-loss-to-red-sox/
-
-**Infantino's Club World Cup is alive - and on opening night it sort of worked**\
-`The opening night of FIFA's “new era for soccer” was not without its cringe moments, but it also delivered a fun game of football`\
-https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter-miami-al-ahly-infantino/
 

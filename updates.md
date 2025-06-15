@@ -1,3 +1,19 @@
+**Cuomo and Mamdani Vie for Support as Early Voters Flock to the Polls**\
+`Former Gov. Andrew M. Cuomo and Zohran Mamdani, the two front-runners in the Democratic mayoral primary in New York City, delivered closing-stage speeches.`\
+https://nytimes.com/2025/06/15/nyregion/cuomo-mamdani-early-voting.html
+
+**What New York City Apartment Hunters Can’t Live Without**\
+`A punishing housing market has conditioned some people to have low expectations, but others aren’t afraid to be demanding.`\
+https://nytimes.com/2025/06/15/nyregion/nyc-apartment-hunt.html
+
+**‘I Had Only Gone a Few Blocks When It Started to Drizzle’**\
+`Betting against rain in Forest Hills, unusual pets in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/06/15/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/15/crosswords/spelling-bee-forum.html
+
 **Clayton Kershaw, 12 strikeouts from 3,000, dusts off vintage performance against Giants**\
 `It looks like Kershaw has turned a corner. His pursuit of 3,000 strikeouts appears to be inching closer.`\
 https://nytimes.com/athletic/6426991/2025/06/15/clayton-kershaw-vintage-performance-against-giants/
