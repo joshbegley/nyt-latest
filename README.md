@@ -3,7 +3,7 @@
 https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
 
 **George Russell's Canadian GP victory under threat as Red Bull lodges protests**\
-`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday.`\
+`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday, but this is at risk after a Red Bull protest`\
 https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
 
 **Iranians turn to one another amid a dearth of official guidance.**\
