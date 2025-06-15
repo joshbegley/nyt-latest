@@ -1,3 +1,7 @@
+**Spurs confirm permanent Tel transfer**\
+`The 20-year-old has signed a six-year contract at the club after spending the second of the 2024-25 season on loan in north London.`\
+https://nytimes.com/athletic/6426232/2025/06/15/tottenham-confirm-mathys-tel-transfer/
+
 **Here’s the latest.**\
 `By Mitch Smith and Yan Zhuang`\
 https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/heres-the-latest
