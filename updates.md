@@ -1,3 +1,7 @@
+**Pochettino's stern response to Pulisic speaks volumes**\
+`The USMNT manager in no uncertain terms emphasized the team over the individual in a loud rebuke to his star player.`\
+https://nytimes.com/athletic/6424565/2025/06/14/mauricio-pochettino-christian-pulisic-usmnt-comments-gold-cup/
+
 **Who can still win the 2025 U.S. Open? Analyzing the field at Oakmont**\
 `The 2013 Masters champion and four men with zero majors between them are in the top five heading into Sunday's final round.`\
 https://nytimes.com/athletic/6426452/2025/06/14/us-open-2025-who-can-win/

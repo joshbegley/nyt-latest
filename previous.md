@@ -1,3 +1,7 @@
+**Pochettino's stern response to Pulisic speaks volumes**\
+`The USMNT manager in no uncertain terms emphasized the team over the individual in a loud rebuke to his star player.`\
+https://nytimes.com/athletic/6424565/2025/06/14/mauricio-pochettino-christian-pulisic-usmnt-comments-gold-cup/
+
 **Who can still win the 2025 U.S. Open? Analyzing the field at Oakmont**\
 `The 2013 Masters champion and four men with zero majors between them are in the top five heading into Sunday's final round.`\
 https://nytimes.com/athletic/6426452/2025/06/14/us-open-2025-who-can-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/world/middleeast/israel-iran-missile-attack.html
 **Even when Rory McIlroy is not talking, he's still saying something**\
 `“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
 https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
-
-**Daniel Suarez wins NASCAR Xfinity Series race in front of home fans**\
-`Suarez electrified the crowd by becoming the first driver in any series in NASCAR history to go from last to first in a road course race`\
-https://nytimes.com/athletic/6426395/2025/06/14/nascar-xfinity-series-mexico-daniel-suarez/
 
