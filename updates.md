@@ -1,3 +1,7 @@
+**Iranians turn to one another amid a dearth of official guidance.**\
+`By Parin Behrooz`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/iran-israel-shelters
+
 **Israel appears to have destroyed a refueling plane in Iran’s far east, satellite imagery and video shows.**\
 `By Christoph Koettl`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/israel-appears-to-have-destroyed-a-refueling-plane-in-irans-far-east-satellite-imagery-and-video-shows
