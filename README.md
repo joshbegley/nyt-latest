@@ -1,3 +1,11 @@
+**Heat of Air India Crash Hinders DNA Identification, Agonizing Relatives**\
+`Three days after the crash, only 35 bodies had been handed over to relatives from an overall official death toll of 270.`\
+https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
+
+**Trump’s Parade Drafted the Army Into a War of Images**\
+`After a week of stunning and sobering TV-news scenes, the brassy Trumpy production was a surreal viewing experience.`\
+https://nytimes.com/2025/06/15/arts/television/trump-parade.html
+
 **In Bat Yam, south of Tel Aviv, Iran’s missile barrages killed at least six people.**\
 `Most of those confirmed dead were women and children, according to the authorities, although they have yet to publicly name the victims.`\
 https://nytimes.com/2025/06/15/world/middleeast/bat-yam-tel-aviv-israel-iran.html
@@ -20,7 +28,7 @@ https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
 
 **Who is the new head of the Islamic Revolutionary Guards Corps?**\
 `By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/who-is-the-new-head-of-the-islamic-revolutionary-guards-corps
+https://nytimes.com/2025/06/15/world/middleeast/iran-irgc-vahidi.html
 
 **Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
 `Maria beat two Grand Slam champions on the way to the biggest title of her tennis career.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-gras
 **Big Cheers for No. 14, Pope Leo, at the Ballpark**\
 `Chicago held a celebration on Saturday at the home of the White Sox to fully embrace the city’s connection to the new leader of the Catholic Church.`\
 https://nytimes.com/card/2025/06/15/us/chicago-pope-leo
-
-**The Pulse: Can the Knicks find a coach? We'll see.**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6426739/2025/06/15/will-anybody-coach-the-new-york-knicks-its-a-fair-question/
-
-**A Daunting Task for Democrats**\
-`Readers respond to a column by David Brooks about the Democratic Party. Also: A litmus test for federal workers; principled Republicans.`\
-https://nytimes.com/2025/06/15/opinion/democratic-party.html
 
