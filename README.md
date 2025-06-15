@@ -1,3 +1,11 @@
+**As Trump Returns to G7, Rift With Allies Is Even Deeper**\
+`In 2018, the president called for the group to embrace Russia and stormed out of the summit. Now he is seeking to shrink America’s military role abroad and embarking on a more expansive trade war.`\
+https://nytimes.com/2025/06/15/us/politics/trump-g7-tariffs-trade-israel-ukraine.html
+
+**Monday Briefing: Israel and Iran Traded Missile Strikes**\
+`Plus, the Dalai Lama’s succession.`\
+https://nytimes.com/2025/06/15/briefing/israel-iran-attack-minnesota-shoot-india.html
+
 **Leonard A. Lauder, Philanthropist and Cosmetics Heir, Dies at 92**\
 `He was best known for his success in business, notably the international beauty company he built with his mother, Estée Lauder. But he was also an influential art patron.`\
 https://nytimes.com/2025/06/15/business/leonard-a-lauder-dead.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
 `A spokesman for Israel’s military said Israel was not ceasing its attacks on Iran “for a moment,” after the Islamic Revolutionary Guards Corps of Iran said that it would escalate attacks if Israel continued to carrying out strikes.`\
 https://nytimes.com/video/world/middleeast/100000010230392/israel-iran-strikes.html
 
+**Canadian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Montreal?`\
+https://nytimes.com/athletic/6427548/2025/06/15/canadian-grand-prix-f1-mailbag/
+
 **Protests in Europe Target Mass Tourism With Squirt Guns and Roller Bags**\
 `In Italy, Portugal and Spain, activists used water pistols and a “noisy stroll” of suitcases to draw attention to rising housing costs and the environmental toll of tourism.`\
 https://nytimes.com/2025/06/15/travel/europe-tourism-protests.html
-
-**‘Golden Share’ in U.S. Steel Gives Trump Extraordinary Control**\
-`Administration officials secured a deal that will give the president unusual influence over a private company, and could serve as a model for other deals.`\
-https://nytimes.com/2025/06/15/business/economy/golden-share-us-steel-nippon-trump.html
-
-**‘Tacos de Lengua’ Review: Finding the Rhythm of the Night**\
-`At the Chocolate Factory Theater in Queens on Friday, Martita Abril’s performance expressed life on the border from multiple angles.`\
-https://nytimes.com/2025/06/15/arts/dance/tacos-de-lengua-review.html
-
-**Pacers coach Rick Carlisle defends ref Scott Foster: 'He’s a great official'**\
-`Lightning rod referee drew criticism from Indiana fans and media after Thunder rallied late to win Game 4 of NBA Finals.`\
-https://nytimes.com/athletic/6427646/2025/06/15/rick-carlisle-scott-foster-nba-finals-pacers-thunder/
 
