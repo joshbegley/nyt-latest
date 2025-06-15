@@ -1,3 +1,11 @@
+**How to watch the USMNT vs. Trinidad and Tobago in Concacaf Gold Cup group stage opener**\
+`USMNT has won the Gold Cup seven times, second only to Mexico. Trinidad and Tobago have just one semifinal finish in 17 tourneys.`\
+https://nytimes.com/athletic/6418955/2025/06/15/usmnt-trinidad-tobago-concacaf-gold-cup-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, June 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/15/todays-new-york-times-international-edition
+
 **In Mexico, Thousands Ran for Office, Few Voted and One Party Dominated It All**\
 `Low turnout and fears over democratic backsliding marked Mexico’s shift to electing judges, which opens the way for the Morena party to dominate courts.`\
 https://nytimes.com/2025/06/15/world/americas/mexico-courts-election-results.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/15/movies/how-to-train-your-dragon-mason-thames-inte
 **How a Tiny Community Got Caught Up in Trump’s Attacks on Canada**\
 `The enclave of Point Roberts, Wash., once thrived with a mix of Americans and Canadians. Now the border checks are a hassle, the community is isolated and businesses are withering.`\
 https://nytimes.com/2025/06/15/business/us-canada-border-point-roberts.html
-
-**Cam Kozeal's homecoming symbolizes a link to Omaha’s College World Series history**\
-`Kozeal, Arkansas' second baseman and an Omaha native, is fulfilling a childhood dream of playing in the CWS. `\
-https://nytimes.com/athletic/6426416/2025/06/15/cam-kozeal-arkansas-college-world-series/
-
-**Javier Bardem Doesn’t Drive. But He Knows How to Swerve.**\
-`The Oscar-winning actor may be starring alongside Brad Pitt in the summer blockbuster “F1: The Movie,” but his career has been harder to categorize.`\
-https://nytimes.com/2025/06/15/style/javier-bardem-brad-pitt-f1.html
 

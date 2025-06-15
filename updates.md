@@ -1,3 +1,11 @@
+**How to watch the USMNT vs. Trinidad and Tobago in Concacaf Gold Cup group stage opener**\
+`USMNT has won the Gold Cup seven times, second only to Mexico. Trinidad and Tobago have just one semifinal finish in 17 tourneys.`\
+https://nytimes.com/athletic/6418955/2025/06/15/usmnt-trinidad-tobago-concacaf-gold-cup-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, June 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/15/todays-new-york-times-international-edition
+
 **In Mexico, Thousands Ran for Office, Few Voted and One Party Dominated It All**\
 `Low turnout and fears over democratic backsliding marked Mexico’s shift to electing judges, which opens the way for the Morena party to dominate courts.`\
 https://nytimes.com/2025/06/15/world/americas/mexico-courts-election-results.html
