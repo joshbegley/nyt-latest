@@ -1,3 +1,15 @@
+**What My Dad Gave Me**\
+`I think my dad thought that had he had boys, fatherhood would have been different.`\
+https://nytimes.com/2025/06/15/opinion/fathers-day-daughters.html
+
+**The New York Times in Print for Sunday, June 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/15/todays-new-york-times
+
+**China Revoked My Visa, and Came to Regret It**\
+`Canceling the visas of Chinese students in the United States is a horrible idea.`\
+https://nytimes.com/2025/06/15/opinion/china-education-students-visas.html
+
 **Hunter Dobbins helps Red Sox pick up second series win over Yankees**\
 `Dobbins finished with six scoreless innings, allowing two hits and a walk while striking out five. "The stuff was good," Alex Cora said.`\
 https://nytimes.com/athletic/6426820/2025/06/15/red-sox-second-series-win-yankees-hunter-dobbins/
