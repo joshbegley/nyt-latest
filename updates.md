@@ -1,3 +1,7 @@
+**Al Ahly 0 Inter Miami 0 - Messi goes closest as 60,000 take in lively Club World Cup opener**\
+`Analysis of the opening game of the Club World Cup in Miami`\
+https://nytimes.com/athletic/6419214/2025/06/14/al-ahly-inter-miami-messi-highlights/
+
 **Takeaways From Trump’s Military Parade in Washington**\
 `The events in the capital were overshadowed by an assassination in Minnesota and turmoil in the Middle East.`\
 https://nytimes.com/2025/06/14/us/politics/trump-military-parade-takeaways.html

@@ -1,3 +1,7 @@
+**Al Ahly 0 Inter Miami 0 - Messi goes closest as 60,000 take in lively Club World Cup opener**\
+`Analysis of the opening game of the Club World Cup in Miami`\
+https://nytimes.com/athletic/6419214/2025/06/14/al-ahly-inter-miami-messi-highlights/
+
 **Takeaways From Trump’s Military Parade in Washington**\
 `The events in the capital were overshadowed by an assassination in Minnesota and turmoil in the Middle East.`\
 https://nytimes.com/2025/06/14/us/politics/trump-military-parade-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426452/2025/06/14/us-open-2025-who-can-win/
 **Watch out, WNBA: A classic Caitlin Clark performance showed the Fever's ceiling**\
 `Clark drained deep 3-pointers with flair and scored 32 points in her return from injury. `\
 https://nytimes.com/athletic/6426480/2025/06/14/caitlin-clark-return-indiana-fever-liberty/
-
-**Like School Shootings, Political Violence Is Becoming Almost Routine**\
-`Threats and violent acts have become part of the political landscape, still shocking but somehow not so surprising.`\
-https://nytimes.com/2025/06/14/us/politics/minnesota-political-violence.html
 
