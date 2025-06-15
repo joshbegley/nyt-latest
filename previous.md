@@ -1,5 +1,9 @@
+**Sticky Stuff**\
+`Jill Rafaloff and Michelle Sontarp start from the beginning.`\
+https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
+
 **Red Bull lodges protests against George Russell after his Canadian GP victory**\
-`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday`\
+`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday.`\
 https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
 
 **Iranians turn to one another amid a dearth of official guidance.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/lawmakers-home-addresses.html
 **Israel and Iran Trade Attacks as Toll From Conflict Mounts**\
 `The path to diplomacy appeared to narrow after officials called off talks that had been set for Sunday between Tehran and Washington on Iran’s nuclear program.`\
 https://nytimes.com/2025/06/15/world/middleeast/iran-israel-missile-strikes.html
-
-**Gasoline Prices Likely to Rise as Israel Targets Iran’s Energy Infrastructure**\
-`U.S. oil prices already jumped last week, which could cause prices at the pump to rise about 20 cents a gallon in the coming weeks, according to one estimate.`\
-https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likely-to-rise-as-israel-targets-irans-energy-infrastructure.html
 
