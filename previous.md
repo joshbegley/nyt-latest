@@ -1,3 +1,7 @@
+**At Least 3 Dead in West Virginia Flash Flooding**\
+`Up to four inches of rain fell in a 30-minute period in Ohio County on Saturday night, destroying homes and submerging vehicles, an official said.`\
+https://nytimes.com/2025/06/15/us/west-virginia-flooding-deaths.html
+
 **Trade grades: Desmond Bane helps Magic's stars, but did Orlando give up too much?**\
 `The Magic are sending a lot of draft capital to Memphis in this deal. They hope it will be worth it.`\
 https://nytimes.com/athletic/6427494/2025/06/15/desmond-bane-trade-grizzlies-magic-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426267/2025/06/15/rayan-cherki-man-city-trophies/
 **‘Life Feels Like It Is on Hold’: Some Iranians Brace for a Long Fight**\
 `Some Iranian citizens’ early hopes that the conflict would be short-lived were giving way to fear that the violence will not end soon.`\
 https://nytimes.com/2025/06/15/world/middleeast/tehran-residents.html
-
-**‘Trump Inc.’: Filings Show Staff Profited From Being in the President’s Orbit**\
-`A constellation of companies and groups paid President Trump’s supporters before they took jobs in his White House, according to new disclosure statements.`\
-https://nytimes.com/2025/06/15/us/politics/trump-inc-filings-show-staff-profited-from-being-in-the-presidents-orbit.html
 

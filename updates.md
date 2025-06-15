@@ -1,3 +1,7 @@
+**At Least 3 Dead in West Virginia Flash Flooding**\
+`Up to four inches of rain fell in a 30-minute period in Ohio County on Saturday night, destroying homes and submerging vehicles, an official said.`\
+https://nytimes.com/2025/06/15/us/west-virginia-flooding-deaths.html
+
 **Trade grades: Desmond Bane helps Magic's stars, but did Orlando give up too much?**\
 `The Magic are sending a lot of draft capital to Memphis in this deal. They hope it will be worth it.`\
 https://nytimes.com/athletic/6427494/2025/06/15/desmond-bane-trade-grizzlies-magic-grades/
