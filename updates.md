@@ -1,3 +1,19 @@
+**Infantino's Club World Cup is alive - and on opening night it sort of worked**\
+`The opening night of Infantino's “new era for soccer” was not without its cringe moments but it also delivered a fun game of football`\
+https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter-miami-al-ahly-infantino/
+
+**Trump's Military Parade Met With Nationwide Protests**\
+`The parade celebrated the 250th anniversary of the U.S. Army with a procession of troops, weaponry and military vehicles as protesters marched across all 50 states.`\
+https://nytimes.com/video/us/100000010229945/trump-parade-protests.html
+
+**Mexico survives thriller against Dominican Republic, wins Gold Cup opener**\
+`The defending champions made a wining start, but didn't have it all their own way`\
+https://nytimes.com/athletic/6426858/2025/06/15/edson-alvarez-mexico-gold-cup-dominican-republic/
+
+**Tony Bloom's other clubs: How Brighton owner has been embraced at Hearts, Melbourne Victory and USG**\
+`This year, Brighton's owner-chairman has invested in two other clubs, with both hoping to benefit from his analytics capabilities`\
+https://nytimes.com/athletic/6411576/2025/06/15/tony-bloom-brighton-ownership-hearts-usg-melbourne-victory/
+
 **Auckland City FC: 'We are the working-class team at the Club World Cup'**\
 `The amateurs from New Zealand will take on the might of Bayern Munich, Benfica and Boca Juniors at the tournament in the United States`\
 https://nytimes.com/athletic/6421039/2025/06/15/auckland-city-bayern-club-world-cup/
