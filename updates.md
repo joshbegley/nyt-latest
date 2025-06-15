@@ -1,3 +1,15 @@
+**Gattuso appointed new Italy head coach following Spalletti dismissal**\
+`Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
+https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
+
+**Who is the new head of the Islamic Revolutionary Guards Corps?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/who-is-the-new-head-of-the-islamic-revolutionary-guards-corps
+
+**Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
+`Maria beat two Grand Slam champions on the way to the biggest title of her tennis career.`\
+https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
+
 **Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
 `Maria stunned two Grand Slam champions on the way to the biggest title of her career.`\
 https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
