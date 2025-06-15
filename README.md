@@ -1,3 +1,11 @@
+**Protests in Europe Target Mass Tourism With Squirt Guns and Roller Bags**\
+`In Italy, Portugal and Spain, activists used water pistols and a “noisy stroll” of suitcases to draw attention to rising housing costs and the environmental toll of tourism.`\
+https://nytimes.com/2025/06/15/travel/europe-tourism-protests.html
+
+**‘Golden Share’ in U.S. Steel Gives Trump Extraordinary Control**\
+`Administration officials secured a deal that will give the president unusual influence over a private company, and could serve as a model for other deals.`\
+https://nytimes.com/2025/06/15/business/economy/golden-share-us-steel-nippon-trump.html
+
 **‘Tacos de Lengua’ Review: Finding the Rhythm of the Night**\
 `At the Chocolate Factory Theater in Queens on Friday, Martita Abril’s performance expressed life on the border from multiple angles.`\
 https://nytimes.com/2025/06/15/arts/dance/tacos-de-lengua-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.htm
 **Angel Reese notches first triple-double, wants game to be 'super versatile'**\
 `Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
 https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
-
-**Map: 5.6-Magnitude Earthquake Strikes Near Lima, Peru**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/06/15/world/lima-peru-quake-tracker.html
-
-**Bayern Munich 10 Auckland City 0 - Bundesliga winners run up record-breaking scoreline against part-timers**\
-`Seb Stafford-Bloor and Jordan Campbell break down the main talking points from Bayern Munich's 10-0 win over Auckland City`\
-https://nytimes.com/athletic/6419215/2025/06/15/bayern-munich-10-auckland-city-club-world-cup/
 
