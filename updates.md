@@ -1,3 +1,7 @@
+**Shohei Ohtani hints he could return to mound before All-Star break**\
+`Ohtani threw three simulated innings and 44 pitches against minor leaguers from the Dodgers' Arizona spring complex on Tuesday in San Diego.`\
+https://nytimes.com/athletic/6426961/2025/06/15/shohei-ohtani-dodgers-pitching-return-all-star/
+
 **Here’s the latest.**\
 `By Natan Odenheimer, Farnaz Fassihi and Aaron Boxerman`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/heres-the-latest
