@@ -1,3 +1,7 @@
+**Angel Reese sparks Chicago to win with first career triple-double**\
+`Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
+https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
+
 **Map: 5.6-Magnitude Earthquake Strikes Near Lima, Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/15/world/lima-peru-quake-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
 **As Bombs Land in Israel and Iran, New Yorkers Fear for Their Loved Ones**\
 `The conflict, the most intense fighting between the two countries in decades, has been met in the United States with feelings of “frustration and helplessness,” as well as heartbreak.`\
 https://nytimes.com/2025/06/15/world/middleeast/israel-iran-strikes-loved-ones.html
-
-**Blue Jackets Sunday Gathering: Building out a roster with Panthers-like competitiveness**\
-`Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
-https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
 
