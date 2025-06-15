@@ -1,3 +1,7 @@
+**Canadian Grand Prix briefing: Lando Norris self-destructs late, George Russell claims win**\
+`A late crash with his teammate ruined Norris' day, while Mercedes earned a double-podium finish`\
+https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
+
 **Israel Launches New Round of Strikes at Iran**\
 `A spokesman for Israel’s military said Israel was not ceasing its attacks on Iran “for a moment,” after the Islamic Revolutionary Guards Corps of Iran said that it would escalate attacks if Israel continued to carrying out strikes.`\
 https://nytimes.com/video/world/middleeast/100000010230392/israel-iran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/marines-la-mexico-invasion.html
 **Duplantis breaks pole vault world record for 12th time at Diamond League**\
 `On his first attempt, Duplantis cleared the bar which was set 6.28m to a raucous celebration in Stockholm’s Olympic Stadium.`\
 https://nytimes.com/athletic/6427611/2025/06/15/diamond-league-world-record-duplantis-pole-vault/
-
-**One of Opera’s Most In-Demand Provocateurs Puts Down Roots**\
-`Stefan Herheim, the artistic leader of Theater an der Wien in Vienna, is wrapping up his first season inside the newly renovated theater.`\
-https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.html
 
