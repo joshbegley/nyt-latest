@@ -1,3 +1,11 @@
+**Lowetide: Why the Oilers' defensive deployment reflects performance, injury**\
+`Mattias Ekholm's return, married to various injuries, maladies and struggles, has reset the Oilers' defensive depth chart.`\
+https://nytimes.com/athletic/6425799/2025/06/15/edmonton-oilers-stats-stanley-cup-defence/
+
+**Joel Shapiro, Celebrated Post-Minimalist Sculptor, Dies at 83**\
+`His stick-figure sculptures conveyed a surprising depth of emotion, hinting at the threat of imbalance. He also produced more than 30 large-scale commissions.`\
+https://nytimes.com/2025/06/15/arts/joel-shapiro-dead.html
+
 **Leeds close to signing striker Nmecha on free transfer**\
 `The 26-year-old's deal at German side Wolfsburg expires at the end of the month.`\
 https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
