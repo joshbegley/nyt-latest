@@ -1,3 +1,11 @@
+**Bowden Francis' wild inning in Philly raises questions for Toronto's starting rotation**\
+`Francis allowed just one hit in the first 12 batters he faced. Then he spiralled in the fourth inning, exiting to a raucous Philly crowd.`\
+https://nytimes.com/athletic/6426389/2025/06/14/blue-jays-bowden-francis-wild-inning/
+
+**No Kings protesters nationwide share why they took to the streets.**\
+`By Jenna Russell, Robert Chiarito, Dan Simmons, Kurt Streeter, Christopher Maag, Mary Beth Gahan, Sean Keenan and Santul Nerkar`\
+https://nytimes.com/live/2025/06/14/us/protests-news/no-kings-protesters-nationwide-share-why-they-took-to-the-streets
+
 **Inside Trump’s Extraordinary Turnaround on Immigration Raids**\
 `President Trump’s decision to pause most raids targeting farms and hospitality workers took many inside the White House by surprise. It came after intensive lobbying by his agriculture secretary.`\
 https://nytimes.com/2025/06/14/us/politics/trump-immigration-raids-workers.html
