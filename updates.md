@@ -1,3 +1,15 @@
+**As Trump Returns to G7, Rift With Allies Is Even Deeper**\
+`In 2018, the president called for the group to embrace Russia and stormed out of the summit. Now he is seeking to shrink America’s military role abroad and embarking on a more expansive trade war.`\
+https://nytimes.com/2025/06/15/us/politics/trump-g7-tariffs-trade-israel-ukraine.html
+
+**Monday Briefing: Israel and Iran Traded Missile Strikes**\
+`Plus, the Dalai Lama’s succession.`\
+https://nytimes.com/2025/06/15/briefing/israel-iran-attack-minnesota-shoot-india.html
+
+**Canadian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Montreal?`\
+https://nytimes.com/athletic/6427548/2025/06/15/canadian-grand-prix-f1-mailbag/
+
 **Leonard A. Lauder, Philanthropist and Cosmetics Heir, Dies at 92**\
 `He was best known for his success in business, notably the international beauty company he built with his mother, Estée Lauder. But he was also an influential art patron.`\
 https://nytimes.com/2025/06/15/business/leonard-a-lauder-dead.html
