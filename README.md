@@ -1,3 +1,7 @@
+**Israel’s Attack in Iran Echoes Its Strategy Against Hezbollah**\
+`Israel decimated the group’s leadership last fall and degraded its military capabilities. Can the same strategy work against a far more powerful foe?`\
+https://nytimes.com/2025/06/15/world/middleeast/iran-military-leaders-killed.html
+
 **How to watch the USMNT vs. Trinidad and Tobago in Concacaf Gold Cup group stage opener**\
 `USMNT has won the Gold Cup seven times, second only to Mexico. Trinidad and Tobago have just one semifinal finish in 17 tourneys.`\
 https://nytimes.com/athletic/6418955/2025/06/15/usmnt-trinidad-tobago-concacaf-gold-cup-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/canada/g7-summit-2025.html
 **The ‘How to Train Your Dragon’ Star Mason Thames Is Still Freaking Out**\
 `As Hiccup, the 17-year-old actor is shouldering the weight of Universal’s new live-action franchise — and living out his childhood fantasy.`\
 https://nytimes.com/2025/06/15/movies/how-to-train-your-dragon-mason-thames-interview.html
-
-**How a Tiny Community Got Caught Up in Trump’s Attacks on Canada**\
-`The enclave of Point Roberts, Wash., once thrived with a mix of Americans and Canadians. Now the border checks are a hassle, the community is isolated and businesses are withering.`\
-https://nytimes.com/2025/06/15/business/us-canada-border-point-roberts.html
 
