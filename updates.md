@@ -1,3 +1,19 @@
+**How Premier League transfers really work in 2025 - and are rules being broken?**\
+`Confused by the way players' moves to new clubs happen these days? Steve Madeley explains what actually goes on...`\
+https://nytimes.com/athletic/6413690/2025/06/15/premier-league-transfers-2025-how-they-work/
+
+**The Portuguese gym helping Ruben Dias, Rafael Leao and more with brutal demands of modern game**\
+`Dias is one of several players using what little downtime they have to carry out extra work they cannot do with their clubs`\
+https://nytimes.com/athletic/5992097/2025/06/15/the-portuguese-gym-helping-ruben-dias-rafael-leao-and-more-with-brutal-demands-of-modern-game/
+
+**The 12 Premier League players who need a transfer this summer**\
+`Whether they have fallen out of favour or form, there are a number of players in the top flight who need a move`\
+https://nytimes.com/athletic/6421548/2025/06/15/premier-league-transfer-moves-summer-window/
+
+**Small 'sweet spot' but 'perfect' for long passes: Testing the Club World Cup ball**\
+`The ball that will be used this summer is marketed as one that will support 'fast, precise play' - but how does it feel to kick?`\
+https://nytimes.com/athletic/6415516/2025/06/15/scientifically-testing-fifa-club-world-cup-ball/
+
 **Yes, PSG are still spending a lot of money - but they're doing it very differently**\
 `Paris Saint-Germain's longed-for Champions League success came with a younger team - but still one that cost significant money to assemble`\
 https://nytimes.com/athletic/6413101/2025/06/15/psg-transfer-fees-wages-analysis/
