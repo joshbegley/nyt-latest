@@ -1,3 +1,11 @@
+**A Takeoff, a Mayday Call, and Two Pilots Who Never Made it Home**\
+`One pilot on the ill-fated Air India flight was planning to retire. His co-pilot’s career was just getting started. Their final flight lasted seconds.`\
+https://nytimes.com/2025/06/15/world/asia/india-air-crash-pilots.html
+
+**Brad Marchand’s legend keeps growing with exceptional playoff run for Panthers**\
+`With two goals in Game 5, the 37-year-old Panthers trade deadline acquisition joined elite Stanley Cup Final history.`\
+https://nytimes.com/athletic/6426856/2025/06/15/panthers-brad-marchand-nhl-playoffs-stanley-cup-final/
+
 **A lone Venuezelan golfer must navigate both this U.S. Open, America’s immigration turmoil**\
 `"Most of us came here because of our families and the promise of a better future. And it’s just hard when that gets taken away.”`\
 https://nytimes.com/athletic/6426546/2025/06/15/venezuela-golf-us-open-jhonattan-vegas-immigration/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/15/opinion/birth-rate-parenting-natalism.html
 **The 'Hollywood' story of Gardiner and Taylor MacDougall, hockey's father-son, coach-GM duo**\
 `Father and son are both thankful for what this last year has given them working together with the QMJHL champion Moncton Wildcats.`\
 https://nytimes.com/athletic/6384901/2025/06/15/gardiner-macdougall-taylor-ted-lasso-moncton/
-
-**Connections Companion No. 736**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 16, 2025.`\
-https://nytimes.com/2025/06/15/crosswords/connections-companion-736.html
-
-**NASCAR's Mexico City weekend — and Daniel Suárez's win — a dream come true for many fans**\
-`"I cried as hard as a situation like this permits," one fan said of Suárez's Xfinity Series win Saturday as NASCAR returns to Mexico City.`\
-https://nytimes.com/athletic/6426245/2025/06/15/nascar-mexico-city-race-fans-daniel-suarez/
 
