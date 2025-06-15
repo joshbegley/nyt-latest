@@ -1,3 +1,15 @@
+**Every NHL team’s best value contract in 2024-25**\
+`With the offseason looming, let’s analyze every NHL team’s best value contracts from this past season.`\
+https://nytimes.com/athletic/6404570/2025/06/15/nhl-best-value-contract-2024-25/
+
+**NBA players and shoe deals: Motivation has shifted to ownership and control vs. the brand**\
+`A signature shoe deal for some players now involves a company offering to allow them to have input, company equity and royalties for sales.`\
+https://nytimes.com/athletic/6404681/2025/06/15/nba-players-shoe-deal-haliburton-kyrie/
+
+**The quiet work behind the scenes of making Pete Crow-Armstrong one of baseball's loudest talents**\
+`For a player with a magnetic personality and a soaring public profile, Crow-Armstrong very much appreciates his craft and enjoys the grind.`\
+https://nytimes.com/athletic/6426337/2025/06/15/pete-crow-armstrong-behind-the-scenes/
+
 **Oilers are unfazed in the face of defeat: ‘This was always going to be a long series’**\
 `The Oilers have leapt over just about every playoff hurdle they've faced. What's one more?`\
 https://nytimes.com/athletic/6426962/2025/06/15/edmonton-oilers-game-5-loss-panthers/
