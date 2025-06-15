@@ -1,3 +1,7 @@
+**Shohei Ohtani hints he could return to mound before All-Star break**\
+`Ohtani threw three simulated innings and 44 pitches against minor leaguers from the Dodgers' Arizona spring complex on Tuesday in San Diego.`\
+https://nytimes.com/athletic/6426961/2025/06/15/shohei-ohtani-dodgers-pitching-return-all-star/
+
 **Here’s the latest.**\
 `By Natan Odenheimer, Farnaz Fassihi and Aaron Boxerman`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter
 **Trump's Military Parade Met With Nationwide Protests**\
 `The parade celebrated the 250th anniversary of the U.S. Army with a procession of troops, weaponry and military vehicles as protesters marched across all 50 states.`\
 https://nytimes.com/video/us/100000010229945/trump-parade-protests.html
-
-**Mexico survives thriller against Dominican Republic, wins Gold Cup opener**\
-`The defending champions made a wining start, but didn't have it all their own way`\
-https://nytimes.com/athletic/6426858/2025/06/15/edson-alvarez-mexico-gold-cup-dominican-republic/
 
