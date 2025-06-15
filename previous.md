@@ -1,40 +1,40 @@
-**Spurs confirm permanent Tel transfer**\
-`The 20-year-old has signed a six-year contract at the club after spending the second of the 2024-25 season on loan in north London.`\
-https://nytimes.com/athletic/6426232/2025/06/15/tottenham-confirm-mathys-tel-transfer/
+**In Mexico, Thousands Ran for Office, Few Voted and One Party Dominated It All**\
+`Low turnout and fears over democratic backsliding marked Mexico’s shift to electing judges, which opens the way for the Morena party to dominate courts.`\
+https://nytimes.com/2025/06/15/world/americas/mexico-courts-election-results.html
 
-**Here’s the latest.**\
-`By Mitch Smith and Yan Zhuang`\
-https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/heres-the-latest
+**What We Learned About Amy Coney Barrett’s Supreme Court Decisions**\
+`President Trump appointed Justice Amy Coney Barrett to clinch a conservative legal revolution. But soon after arriving at the Supreme Court, she began surprising her colleagues.`\
+https://nytimes.com/video/us/100000010229276/what-we-learned-about-amy-coney-barretts-supreme-court-decisions.html
 
-**Live Updates: Manhunt for Minnesota Assassin Enters 2nd Day as State Mourns Victims**\
-`Police are searching for a 57-year-old man after the killings of a state lawmaker and her husband, and the shooting of a state senator in a separate attack.`\
-https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt
+**‘How to Train Your Dragon’ Tops Box Office With $83 Million**\
+`The movie had stronger-than-expected ticket sales over the weekend, becoming the third PG-rated, live-action hit in three months.`\
+https://nytimes.com/2025/06/15/business/media/how-to-train-your-dragon-box-office.html
 
-**Cuomo and Mamdani Vie for Support as Early Voters Flock to the Polls**\
-`Former Gov. Andrew M. Cuomo and Zohran Mamdani, the two front-runners in the Democratic mayoral primary in New York City, delivered closing-stage speeches.`\
-https://nytimes.com/2025/06/15/nyregion/cuomo-mamdani-early-voting.html
+**After Decades of Atrophy, Canada Vows to Beef Up Its Military. Can It Deliver?**\
+`To help shift the country away from its dependence on the United States, Canada’s prime minister plans to spend billions to revitalize its military and meet a NATO spending goal.`\
+https://nytimes.com/2025/06/15/world/canada/canada-military-nato.html
 
-**What New York City Apartment Hunters Can’t Live Without**\
-`A punishing housing market has conditioned some people to have low expectations, but others aren’t afraid to be demanding.`\
-https://nytimes.com/2025/06/15/nyregion/nyc-apartment-hunt.html
+**The Question for the Sean Combs Jurors: What Qualifies as Coercion?**\
+`The jury will be asked to determine if two women who engaged in marathon sex sessions with escorts did so willingly or because they were under threat.`\
+https://nytimes.com/2025/06/15/arts/music/the-question-for-the-sean-combs-jurors-what-qualifies-as-coercion.html
 
-**‘I Had Only Gone a Few Blocks When It Started to Drizzle’**\
-`Betting against rain in Forest Hills, unusual pets in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/06/15/nyregion/metropolitan-diary.html
+**What to Know About Trump’s Meeting With Global Leaders in Canada**\
+`The Group of 7 nations and allies from around the world are heading to a summit in Alberta in Western Canada on Sunday.`\
+https://nytimes.com/2025/06/15/world/canada/g7-summit-2025.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/15/crosswords/spelling-bee-forum.html
+**The ‘How to Train Your Dragon’ Star Mason Thames Is Still Freaking Out**\
+`As Hiccup, the 17-year-old actor is shouldering the weight of Universal’s new live-action franchise — and living out his childhood fantasy.`\
+https://nytimes.com/2025/06/15/movies/how-to-train-your-dragon-mason-thames-interview.html
 
-**Clayton Kershaw, 12 strikeouts from 3,000, dusts off vintage performance against Giants**\
-`It looks like Kershaw has turned a corner. His pursuit of 3,000 strikeouts appears to be inching closer.`\
-https://nytimes.com/athletic/6426991/2025/06/15/clayton-kershaw-vintage-performance-against-giants/
+**How a Tiny Community Got Caught Up in Trump’s Attacks on Canada**\
+`The enclave of Point Roberts, Wash., once thrived with a mix of Americans and Canadians. Now the border checks are a hassle, the community is isolated and businesses are withering.`\
+https://nytimes.com/2025/06/15/business/us-canada-border-point-roberts.html
 
-**Shohei Ohtani hints he could return to mound before All-Star break**\
-`Ohtani threw three simulated innings and 44 pitches against minor leaguers from the Dodgers' Arizona spring complex on Tuesday in San Diego.`\
-https://nytimes.com/athletic/6426961/2025/06/15/shohei-ohtani-dodgers-pitching-return-all-star/
+**Cam Kozeal's homecoming symbolizes a link to Omaha’s College World Series history**\
+`Kozeal, Arkansas' second baseman and an Omaha native, is fulfilling a childhood dream of playing in the CWS. `\
+https://nytimes.com/athletic/6426416/2025/06/15/cam-kozeal-arkansas-college-world-series/
 
-**Here’s the latest.**\
-`By Natan Odenheimer, Farnaz Fassihi and Aaron Boxerman`\
-https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/heres-the-latest
+**Javier Bardem Doesn’t Drive. But He Knows How to Swerve.**\
+`The Oscar-winning actor may be starring alongside Brad Pitt in the summer blockbuster “F1: The Movie,” but his career has been harder to categorize.`\
+https://nytimes.com/2025/06/15/style/javier-bardem-brad-pitt-f1.html
 
