@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Natan Odenheimer, Farnaz Fassihi and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/heres-the-latest
+
+**Live Updates: Israel and Iran Trade Strikes in Increasingly Deadly Attacks**\
+`Fire engulfed Tehran’s main fuel depot and hundreds of missiles rained down on Israel, some eluding the country’s sophisticated aerial defenses.`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear
+
+**Infantino's Club World Cup is alive - and on opening night it sort of worked**\
+`The opening night of FIFA's “new era for soccer” was not without its cringe moments, but it also delivered a fun game of football`\
+https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter-miami-al-ahly-infantino/
+
 **What My Dad Gave Me**\
 `I think my dad thought that had he had boys, fatherhood would have been different.`\
 https://nytimes.com/2025/06/15/opinion/fathers-day-daughters.html

@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Natan Odenheimer, Farnaz Fassihi and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/heres-the-latest
+
+**Live Updates: Israel and Iran Trade Strikes in Increasingly Deadly Attacks**\
+`Fire engulfed Tehran’s main fuel depot and hundreds of missiles rained down on Israel, some eluding the country’s sophisticated aerial defenses.`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear
+
 **What My Dad Gave Me**\
 `I think my dad thought that had he had boys, fatherhood would have been different.`\
 https://nytimes.com/2025/06/15/opinion/fathers-day-daughters.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6426820/2025/06/15/red-sox-second-series-win-yankee
 https://nytimes.com/athletic/6426703/2025/06/15/yankees-sloppy-loss-to-red-sox/
 
 **Infantino's Club World Cup is alive - and on opening night it sort of worked**\
-`The opening night of Infantino's “new era for soccer” was not without its cringe moments but it also delivered a fun game of football`\
+`The opening night of FIFA's “new era for soccer” was not without its cringe moments, but it also delivered a fun game of football`\
 https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter-miami-al-ahly-infantino/
 
 **Trump's Military Parade Met With Nationwide Protests**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010229945/trump-parade-protests.html
 **Mexico survives thriller against Dominican Republic, wins Gold Cup opener**\
 `The defending champions made a wining start, but didn't have it all their own way`\
 https://nytimes.com/athletic/6426858/2025/06/15/edson-alvarez-mexico-gold-cup-dominican-republic/
-
-**Tony Bloom's other clubs: How Brighton owner has been embraced at Hearts, Melbourne Victory and USG**\
-`This year, Brighton's owner-chairman has invested in two other clubs, with both hoping to benefit from his analytics capabilities`\
-https://nytimes.com/athletic/6411576/2025/06/15/tony-bloom-brighton-ownership-hearts-usg-melbourne-victory/
-
-**Auckland City FC: 'We are the working-class team at the Club World Cup'**\
-`The amateurs from New Zealand will take on the might of Bayern Munich, Benfica and Boca Juniors at the tournament in the United States`\
-https://nytimes.com/athletic/6421039/2025/06/15/auckland-city-bayern-club-world-cup/
 
