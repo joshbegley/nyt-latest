@@ -1,3 +1,15 @@
+**Angel City FC players wear 'Immigrant City Football Club' shirts amid ongoing immigration raids**\
+`The club also had cards with a new statement from the club, following their initial statement released on June 7.`\
+https://nytimes.com/athletic/6426555/2025/06/14/angel-city-immigration-raid-protests/
+
+**Police Clash With Protesters After Anti-Trump Rally in Downtown Los Angeles**\
+`With the downtown facing an 8 p.m. curfew, the Los Angeles police began using tear gas and crowd-control munitions to break up protests after issuing a dispersal order.`\
+https://nytimes.com/2025/06/14/us/los-angeles-protests-trump.html
+
+**Panthers push Oilers to brink of elimination in Stanley Cup Final: Takeaways**\
+`Florida put itself within one win of becoming back-to-back Stanley Cup champions with a 5-2 victory over Edmonton in Game 5 Saturday.`\
+https://nytimes.com/athletic/6426538/2025/06/14/panthers-oilers-stanley-cup-final-2025-game-5-takeaways/
+
 **Jeff McNeil silences doubters with scorching bat, solidifies Mets role**\
 `"Jeff McNeil is Jeff McNeil — it is not some random player," Francisco Lindor said. "He is very valuable to us."`\
 https://nytimes.com/athletic/6426490/2025/06/14/mets-jeff-mcneil-trade-deadline/
