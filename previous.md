@@ -1,3 +1,11 @@
+**Red Sox takeaways: Brayan Bello dominates in key weekend sweep of Yankees**\
+`Boston's offense found a way to beat one of the best starters in baseball in its 2-0 win over New York on Sunday.`\
+https://nytimes.com/athletic/6427957/2025/06/15/red-sox-win-yankees-brayan-bello-sweep/
+
+**Giants acquire Rafael Devers from Red Sox for pitcher Jordan Hicks: Sources**\
+`In 73 games this season (all at designated hitter), Devers was hitting .272 with a .905 OPS and 15 homers.`\
+https://nytimes.com/athletic/6428043/2025/06/15/san-francisco-giants-rafael-devers-trade/
+
 **Randi Weingarten Quits D.N.C. Post in Dispute With Chairman**\
 `In a letter to the party’s chairman, Ken Martin, Ms. Weingarten wrote, “I appear to be out of step with the leadership you are forging.”`\
 https://nytimes.com/2025/06/15/us/politics/randi-weingarten-dnc-ken-martin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/15/us/politics/trump-g7-tariffs-trade-israel-ukraine
 **Monday Briefing: Israel and Iran Traded Missile Strikes**\
 `Plus, the Dalai Lama’s succession.`\
 https://nytimes.com/2025/06/15/briefing/israel-iran-attack-minnesota-shoot-india.html
-
-**Leonard A. Lauder, Philanthropist and Cosmetics Heir, Dies at 92**\
-`He was best known for his success in business, notably the international beauty company he built with his mother, Estée Lauder. But he was also an influential art patron.`\
-https://nytimes.com/2025/06/15/business/leonard-a-lauder-dead.html
-
-**Many Lawmakers Share Their Home Addresses. Political Violence Is Changing That.**\
-`The Minnesota assassination is causing some state legislators to rethink home security and how much personal information they make public.`\
-https://nytimes.com/2025/06/15/us/lawmakers-home-addresses.html
 
