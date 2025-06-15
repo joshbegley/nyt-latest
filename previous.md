@@ -1,3 +1,7 @@
+**Nezza says her Spanish rendition of U.S. anthem was against Dodgers' wishes**\
+`Dodgers did not comment on singer's anthem, which was Saturday in response to immigration crackdown in L.A. and amid  “No Kings” protests.`\
+https://nytimes.com/athletic/6427526/2025/06/15/nezza-dodgers-national-anthem-spanish/
+
 **At Least 3 Dead in West Virginia Flash Flooding**\
 `Up to four inches of rain fell in a 30-minute period in Ohio County on Saturday night, destroying homes and submerging vehicles, an official said.`\
 https://nytimes.com/2025/06/15/us/west-virginia-flooding-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427338/2025/06/15/tadej-pogacar-criterium-du-dauph
 **Cherki: I can win the Ballon d'Or at Man City**\
 `The 21-year-old joined City from Lyon on Tuesday for a fee of €36.5million (£30.9m, $41.7m).`\
 https://nytimes.com/athletic/6426267/2025/06/15/rayan-cherki-man-city-trophies/
-
-**‘Life Feels Like It Is on Hold’: Some Iranians Brace for a Long Fight**\
-`Some Iranian citizens’ early hopes that the conflict would be short-lived were giving way to fear that the violence will not end soon.`\
-https://nytimes.com/2025/06/15/world/middleeast/tehran-residents.html
 

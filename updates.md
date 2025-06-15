@@ -1,3 +1,7 @@
+**Nezza says her Spanish rendition of U.S. anthem was against Dodgers' wishes**\
+`Dodgers did not comment on singer's anthem, which was Saturday in response to immigration crackdown in L.A. and amid  “No Kings” protests.`\
+https://nytimes.com/athletic/6427526/2025/06/15/nezza-dodgers-national-anthem-spanish/
+
 **At Least 3 Dead in West Virginia Flash Flooding**\
 `Up to four inches of rain fell in a 30-minute period in Ohio County on Saturday night, destroying homes and submerging vehicles, an official said.`\
 https://nytimes.com/2025/06/15/us/west-virginia-flooding-deaths.html
