@@ -1,3 +1,11 @@
+**Political Violence Came to Minnesota. It Didn’t Start There.**\
+`Unfortunately, Americans of all stripes are coming to see violence as a legitimate means of expressing dissent.`\
+https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
+
+**As Bombs Land in Israel and Iran, New Yorkers Fear for Their Loved Ones**\
+`The conflict, the most intense fighting between the two countries in decades, has been met in the United States with feelings of “frustration and helplessness,” as well as heartbreak.`\
+https://nytimes.com/2025/06/15/world/middleeast/israel-iran-strikes-loved-ones.html
+
 **Blue Jackets Sunday Gathering: Building out a roster with Panther-like competitiveness**\
 `Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
 https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/

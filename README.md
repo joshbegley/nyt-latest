@@ -1,3 +1,7 @@
+**Close Trump Allies Sponsored the Military Parade, Raising Ethical Concerns**\
+`Federal regulations prohibit government employees from using their public office for private gain.`\
+https://nytimes.com/2025/06/15/us/politics/trump-military-parade-sponsors.html
+
 **Political Violence Came to Minnesota. It Didn’t Start There.**\
 `Unfortunately, Americans of all stripes are coming to see violence as a legitimate means of expressing dissent.`\
 https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
 `The conflict, the most intense fighting between the two countries in decades, has been met in the United States with feelings of “frustration and helplessness,” as well as heartbreak.`\
 https://nytimes.com/2025/06/15/world/middleeast/israel-iran-strikes-loved-ones.html
 
-**Blue Jackets Sunday Gathering: Building out a roster with Panther-like competitiveness**\
+**Blue Jackets Sunday Gathering: Building out a roster with Panthers-like competitiveness**\
 `Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
 https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427318/2025/06/15/nba-trade-desmond-bane-grizzlies
 **Syrian General Questioned in Case of Missing American**\
 `The general, Bassam Hassan, is said to have shared grim news about the fate of Austin Tice, an American journalist and former Marine who went missing in 2012.`\
 https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
-
-**BBQ Chicken Is Always the Move**\
-`Crisp and succulent, great with slaw, one of the best summertime feeds.`\
-https://nytimes.com/2025/06/15/dining/sam-siftons-bbq-chicken-recipe.html
 
