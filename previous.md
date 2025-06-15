@@ -1,3 +1,15 @@
+**Angel Reese sparks Chicago to win with first career triple-double**\
+`Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
+https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
+
+**Map: 5.6-Magnitude Earthquake Strikes Near Lima, Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/15/world/lima-peru-quake-tracker.html
+
+**Bayern Munich 10 Auckland City 0 - Bundesliga giants run up record-breaking scoreline against part-timers**\
+`Seb Stafford-Bloor and Jordan Campbell break down the main talking points from Bayern Munich's 10-0 win over Auckland City`\
+https://nytimes.com/athletic/6419215/2025/06/15/bayern-munich-10-auckland-city-club-world-cup/
+
 **Nezza says her Spanish rendition of U.S. anthem was against Dodgers' wishes**\
 `Dodgers did not comment on singer's anthem, which was Saturday in response to immigration crackdown in L.A. and amid  “No Kings” protests.`\
 https://nytimes.com/athletic/6427526/2025/06/15/nezza-dodgers-national-anthem-spanish/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
 **As Bombs Land in Israel and Iran, New Yorkers Fear for Their Loved Ones**\
 `The conflict, the most intense fighting between the two countries in decades, has been met in the United States with feelings of “frustration and helplessness,” as well as heartbreak.`\
 https://nytimes.com/2025/06/15/world/middleeast/israel-iran-strikes-loved-ones.html
-
-**Blue Jackets Sunday Gathering: Building out a roster with Panthers-like competitiveness**\
-`Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
-https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
-
-**Pogacar completes Criterium du Dauphine win after three stage victories**\
-`The 26-year-old took the win by 59 seconds ahead of next month's Tour de France.`\
-https://nytimes.com/athletic/6427338/2025/06/15/tadej-pogacar-criterium-du-dauphine-win/
-
-**Cherki: I can win the Ballon d'Or at Man City**\
-`The 21-year-old joined City from Lyon on Tuesday for a fee of €36.5million (£30.9m, $41.7m).`\
-https://nytimes.com/athletic/6426267/2025/06/15/rayan-cherki-man-city-trophies/
 

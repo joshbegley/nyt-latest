@@ -1,3 +1,15 @@
+**Angel Reese sparks Chicago to win with first career triple-double**\
+`Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
+https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
+
+**Map: 5.6-Magnitude Earthquake Strikes Near Lima, Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/15/world/lima-peru-quake-tracker.html
+
+**Bayern Munich 10 Auckland City 0 - Bundesliga giants run up record-breaking scoreline against part-timers**\
+`Seb Stafford-Bloor and Jordan Campbell break down the main talking points from Bayern Munich's 10-0 win over Auckland City`\
+https://nytimes.com/athletic/6419215/2025/06/15/bayern-munich-10-auckland-city-club-world-cup/
+
 **Nezza says her Spanish rendition of U.S. anthem was against Dodgers' wishes**\
 `Dodgers did not comment on singer's anthem, which was Saturday in response to immigration crackdown in L.A. and amid  “No Kings” protests.`\
 https://nytimes.com/athletic/6427526/2025/06/15/nezza-dodgers-national-anthem-spanish/
