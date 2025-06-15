@@ -1,3 +1,11 @@
+**Gasoline Prices Likely to Rise as Israel Targets Iran’s Energy Infrastructure**\
+`U.S. oil prices already jumped last week, which could cause prices at the pump to rise about 20 cents a gallon in the coming weeks, according to one estimate.`\
+https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likely-to-rise-as-israel-targets-irans-energy-infrastructure.html
+
+**Canadian GP briefing: Lando Norris self-destructs, George Russell claims win**\
+`A late crash with his teammate ruined Norris' day, while Mercedes earned a double-podium finish`\
+https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
+
 **Israel Diminished Iran’s Air Defenses in Rounds of Strikes**\
 `Since last year, Israel forces have repeatedly hit Iran’s defenses. Prime Minister Benjamin Netanyahu said on Sunday that Israel had worked to “peel off the layers of protection” of Iranian defenses.`\
 https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom.html
