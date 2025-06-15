@@ -1,3 +1,7 @@
+**Acuña and Strider give Braves hope despite worst start in franchise history**\
+`The Braves have reasons to believe they are just getting started. And the two biggest ones are Acuña and Strider.`\
+https://nytimes.com/athletic/6426590/2025/06/14/braves-ronald-acuna-spence-strider/
+
 **Dodgers' Kiké Hernández expresses support for immigrants amid ICE protests**\
 `Hernández is the first Dodger to publicly speak out about the events in Los Angeles over the past week.`\
 https://nytimes.com/athletic/6426593/2025/06/14/kike-hernandez-dodgers-immigration-ice-protests/
