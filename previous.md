@@ -1,3 +1,7 @@
+**Woo: An ode to my baseball dad on Father's Day**\
+`Our Cardinals beat writer was a baseball-obsessed kid, but her career path required encouragement: "You just have to stick with it, Koko." `\
+https://nytimes.com/athletic/6426188/2025/06/15/mlb-fathers-day-cardinals/
+
 **Sharing the Secrets of Travel**\
 `Plus, the latest on the manhunt for the Minnesota gunman.`\
 https://nytimes.com/2025/06/15/briefing/sharing-the-secrets-of-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426856/2025/06/15/panthers-brad-marchand-nhl-playo
 **A lone Venuezelan golfer must navigate both this U.S. Open, America’s immigration turmoil**\
 `"Most of us came here because of our families and the promise of a better future. And it’s just hard when that gets taken away.”`\
 https://nytimes.com/athletic/6426546/2025/06/15/venezuela-golf-us-open-jhonattan-vegas-immigration/
-
-**LeBrun: Panthers' defensive masterclass a reminder of Paul Maurice's transformative influence**\
-`As Florida threw a blanket on the high-octane Oilers to take a 3-2 series lead in the Cup Final, Maurice's fingerprints were all over it.`\
-https://nytimes.com/athletic/6426952/2025/06/15/panthers-nhl-stanley-cup-final-playoffs-paul-maurice/
 
