@@ -1,3 +1,11 @@
+**Like School Shootings, Political Violence Is Becoming Almost Routine**\
+`Threats and violent acts have become part of the political landscape, still shocking but somehow not so surprising.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-political-violence.html
+
+**Minnesota, Known for Political Civility, Reels After Shooting**\
+`Even as the national political discourse has grown hyperpartisan in recent years, Minnesota had kept a foothold on its own traditions.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-politics-lawmakers-shooting.html
+
 **Bowden Francis' wild inning in Philly raises questions for Toronto's starting rotation**\
 `Francis allowed just one hit in the first 12 batters he faced. Then he spiralled in the fourth inning, exiting to a raucous Philly crowd.`\
 https://nytimes.com/athletic/6426389/2025/06/14/blue-jays-bowden-francis-wild-inning/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/14/world/middleeast/iran-israel-energy-facility-stri
 **Melania Trump Suits Up for the Military Parade**\
 `The first lady’s outfit was fully in line with the controlled and contained public image she had been crafting since the end of her husband’s first term.`\
 https://nytimes.com/2025/06/14/us/politics/melania-trump-military-parade.html
-
-**Caitlin Clark, Indiana Fever hand New York Liberty first loss of season**\
-`Clark totaled 32 points and nine assists as the Fever scored 100 points for the first time this season.`\
-https://nytimes.com/athletic/6426260/2025/06/14/caitlin-clark-fever-liberty-score/
-
-**Putin condemns Israel’s attack in call with Trump and offers to mediate.**\
-`By Paul Sonne`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news/putin-trump-call-israel-iran
 

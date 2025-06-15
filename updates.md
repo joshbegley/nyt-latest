@@ -1,3 +1,11 @@
+**Like School Shootings, Political Violence Is Becoming Almost Routine**\
+`Threats and violent acts have become part of the political landscape, still shocking but somehow not so surprising.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-political-violence.html
+
+**Minnesota, Known for Political Civility, Reels After Shooting**\
+`Even as the national political discourse has grown hyperpartisan in recent years, Minnesota had kept a foothold on its own traditions.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-politics-lawmakers-shooting.html
+
 **Bowden Francis' wild inning in Philly raises questions for Toronto's starting rotation**\
 `Francis allowed just one hit in the first 12 batters he faced. Then he spiralled in the fourth inning, exiting to a raucous Philly crowd.`\
 https://nytimes.com/athletic/6426389/2025/06/14/blue-jays-bowden-francis-wild-inning/
