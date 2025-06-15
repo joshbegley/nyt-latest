@@ -1,3 +1,15 @@
+**Heat of Air India Crash Hinders DNA Identification, Agonizing Relatives**\
+`Three days after the crash, only 35 bodies had been handed over to relatives from an overall official death toll of 270.`\
+https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
+
+**Trump’s Parade Drafted the Army Into a War of Images**\
+`After a week of stunning and sobering TV-news scenes, the brassy Trumpy production was a surreal viewing experience.`\
+https://nytimes.com/2025/06/15/arts/television/trump-parade.html
+
+**Who is the new head of the Islamic Revolutionary Guards Corps?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2025/06/15/world/middleeast/iran-irgc-vahidi.html
+
 **In Bat Yam, south of Tel Aviv, Iran’s missile barrages killed at least six people.**\
 `Most of those confirmed dead were women and children, according to the authorities, although they have yet to publicly name the victims.`\
 https://nytimes.com/2025/06/15/world/middleeast/bat-yam-tel-aviv-israel-iran.html
