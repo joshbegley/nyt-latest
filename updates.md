@@ -1,3 +1,7 @@
+**Israel Diminished Iran’s Air Defenses in Rounds of Strikes**\
+`Since last year, Israel forces have repeatedly hit Iran’s defenses. Prime Minister Benjamin Netanyahu said on Sunday that Israel had worked to “peel off the layers of protection” of Iranian defenses.`\
+https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom.html
+
 **Iran’s air defenses were diminished in rounds of conflict, giving Israel greater aerial freedom.**\
 `By Adam Rasgon and Natan Odenheimer`\
 https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom.html

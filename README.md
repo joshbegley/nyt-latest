@@ -1,4 +1,8 @@
-**Canadian Grand Prix briefing: Lando Norris self-destructs late, George Russell claims win**\
+**Gasoline Prices Likely to Rise as Israel Targets Iran’s Energy Infrastructure**\
+`U.S. oil prices already jumped last week, which could cause prices at the pump to rise about 20 cents a gallon in the coming weeks, according to one estimate.`\
+https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likely-to-rise-as-israel-targets-irans-energy-infrastructure.html
+
+**Canadian GP briefing: Lando Norris self-destructs, George Russell claims win**\
 `A late crash with his teammate ruined Norris' day, while Mercedes earned a double-podium finish`\
 https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminish
 **Deployed to Meet an ‘Invasion,’ Marines Were Once Invaders of Mexico**\
 `Many Mexican Americans remember that California became part of the United States after a 19th century war that cost Mexico more than half its territory.`\
 https://nytimes.com/2025/06/15/us/marines-la-mexico-invasion.html
-
-**Duplantis breaks pole vault world record for 12th time at Diamond League**\
-`On his first attempt, Duplantis cleared the bar which was set 6.28m to a raucous celebration in Stockholm’s Olympic Stadium.`\
-https://nytimes.com/athletic/6427611/2025/06/15/diamond-league-world-record-duplantis-pole-vault/
 
