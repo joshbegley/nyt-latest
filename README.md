@@ -1,3 +1,11 @@
+**What we're hearing about a possible Kevin Durant trade, and the obstacles that exist**\
+`Durant is widely expected to be traded from the Suns soon. But for as great as he is, it’s easy to see why a deal is tough to get done here.`\
+https://nytimes.com/athletic/6426397/2025/06/14/kevin-durant-suns-trade-nba-rumors-wolves-rockets-spurs/
+
+**Fox News Hosts Gushed Over the Parade, With No Protests in Sight**\
+`Cable networks covered President Trump’s Army parade on a busy day of protests, a political assassination and Middle East strikes. ABC, CBS and NBC aired other programming on their affiliates.`\
+https://nytimes.com/2025/06/14/business/media/trump-parade-tv-coverage.html
+
 **Pochettino's stern response to Pulisic speaks volumes**\
 `The USMNT manager in no uncertain terms emphasized the team over the individual in a loud rebuke to his star player.`\
 https://nytimes.com/athletic/6424565/2025/06/14/mauricio-pochettino-christian-pulisic-usmnt-comments-gold-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/14/us/protests-news/no-kings-protesters-nationw
 **Inside Trump’s Extraordinary Turnaround on Immigration Raids**\
 `President Trump’s decision to pause most raids targeting farms and hospitality workers took many inside the White House by surprise. It came after intensive lobbying by his agriculture secretary.`\
 https://nytimes.com/2025/06/14/us/politics/trump-immigration-raids-workers.html
-
-**Even as Israel Blitzes Tehran, It Fears Iran’s Destructive Missiles**\
-`Prime Minister Benjamin Netanyahu of Israel presented Iran’s sophisticated ballistic missiles as a critical threat to Israel’s survival.`\
-https://nytimes.com/2025/06/14/world/middleeast/israel-iran-missile-attack.html
-
-**Even when Rory McIlroy is not talking, he's still saying something**\
-`“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
-https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
 
