@@ -1,5 +1,13 @@
+**Gattuso appointed new Italy head coach following Spalletti dismissal**\
+`Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
+https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
+
+**Who is the new head of the Islamic Revolutionary Guards Corps?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/who-is-the-new-head-of-the-islamic-revolutionary-guards-corps
+
 **Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
-`Maria stunned two Grand Slam champions on the way to the biggest title of her career.`\
+`Maria beat two Grand Slam champions on the way to the biggest title of her tennis career.`\
 https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
 
 **Big Cheers for No. 14, Pope Leo, at the Ballpark**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6426188/2025/06/15/mlb-fathers-day-cardinals/
 **Sharing the Secrets of Travel**\
 `Plus, the latest on the manhunt for the Minnesota gunman.`\
 https://nytimes.com/2025/06/15/briefing/sharing-the-secrets-of-travel.html
-
-**Diplomacy With Iran Is Damaged, Not Dead**\
-`The push to do a deal on the country’s nuclear program could be revived, even after the Israeli strikes scuppered the latest round of talks.`\
-https://nytimes.com/2025/06/15/world/middleeast/diplomacy-with-iran-is-damaged-not-dead.html
-
-**Every NHL team’s best value contract in 2024-25**\
-`With the offseason looming, let’s analyze every NHL team’s best value contracts from this past season.`\
-https://nytimes.com/athletic/6404570/2025/06/15/nhl-best-value-contract-2024-25/
 

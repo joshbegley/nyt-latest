@@ -1,3 +1,7 @@
+**Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
+`Maria stunned two Grand Slam champions on the way to the biggest title of her career.`\
+https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
+
 **Big Cheers for No. 14, Pope Leo, at the Ballpark**\
 `Chicago held a celebration on Saturday at the home of the White Sox to fully embrace the city’s connection to the new leader of the Catholic Church.`\
 https://nytimes.com/card/2025/06/15/us/chicago-pope-leo

@@ -1,3 +1,7 @@
+**Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
+`Maria stunned two Grand Slam champions on the way to the biggest title of her career.`\
+https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
+
 **Big Cheers for No. 14, Pope Leo, at the Ballpark**\
 `Chicago held a celebration on Saturday at the home of the White Sox to fully embrace the city’s connection to the new leader of the Catholic Church.`\
 https://nytimes.com/card/2025/06/15/us/chicago-pope-leo
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/middleeast/diplomacy-with-iran-is-damaged-n
 **Every NHL team’s best value contract in 2024-25**\
 `With the offseason looming, let’s analyze every NHL team’s best value contracts from this past season.`\
 https://nytimes.com/athletic/6404570/2025/06/15/nhl-best-value-contract-2024-25/
-
-**NBA players and shoe deals: Motivation has shifted to ownership and control vs. the brand**\
-`A signature shoe deal for some players now involves a company offering to allow them to have input, company equity and royalties for sales.`\
-https://nytimes.com/athletic/6404681/2025/06/15/nba-players-shoe-deal-haliburton-kyrie/
 
