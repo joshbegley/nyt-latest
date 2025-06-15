@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Building out a roster with Panther-like competitiveness**\
+`Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
+https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
+
 **Pogacar completes Criterium du Dauphine win after three stage victories**\
 `The 26-year-old took the win by 59 seconds ahead of next month's Tour de France.`\
 https://nytimes.com/athletic/6427338/2025/06/15/tadej-pogacar-criterium-du-dauphine-win/
