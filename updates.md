@@ -1,3 +1,11 @@
+**Even when Rory McIlroy's not talking, he's still saying something**\
+`“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
+https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
+
+**Daniel Suarez wins NASCAR Xfinity Series race in front of home fans**\
+`Suarez electrified the crowd by becoming the first driver in any series in NASCAR history to go from last to first in a road course race`\
+https://nytimes.com/athletic/6426395/2025/06/14/nascar-xfinity-series-mexico-daniel-suarez/
+
 **Two Major Energy Facilities in Tehran Hit in Israeli Strikes**\
 `Across Iran’s capital, flames and smoke covered the sky.`\
 https://nytimes.com/2025/06/14/world/middleeast/iran-israel-energy-facility-strikes-tehran.html

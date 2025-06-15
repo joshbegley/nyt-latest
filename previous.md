@@ -1,3 +1,11 @@
+**Even when Rory McIlroy's not talking, he's still saying something**\
+`“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
+https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
+
+**Daniel Suarez wins NASCAR Xfinity Series race in front of home fans**\
+`Suarez electrified the crowd by becoming the first driver in any series in NASCAR history to go from last to first in a road course race`\
+https://nytimes.com/athletic/6426395/2025/06/14/nascar-xfinity-series-mexico-daniel-suarez/
+
 **Two Major Energy Facilities in Tehran Hit in Israeli Strikes**\
 `Across Iran’s capital, flames and smoke covered the sky.`\
 https://nytimes.com/2025/06/14/world/middleeast/iran-israel-energy-facility-strikes-tehran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6426299/2025/06/14/max-verstappen-race-ban-canadian
 **Britain Agrees to Open New Inquiry Into Child Sex Abuse**\
 `Britain’s prime minister reverses his position on the need for a national investigation into the abuse scandal, after criticism by Elon Musk.`\
 https://nytimes.com/2025/06/14/world/europe/britain-child-sex-abuse-inquiry.html
-
-**A few hundred gathered to protest Trump in D.C., in the shadow of the parade.**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/a-few-hundred-gathered-to-protest-trump-in-dc-in-the-shadow-of-the-parade
-
-**Dodgers expected to activate Emmet Sheehan this week: Sources**\
-`The 25-year-old righty had Tommy John surgery in May 2024. He has a 3.97 ERA and 21 strikeouts in 11 1/3 minor-league innings this season.`\
-https://nytimes.com/athletic/6426269/2025/06/14/dodgers-emmet-sheehan-return-rotation/
 
