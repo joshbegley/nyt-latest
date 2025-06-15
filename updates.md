@@ -1,3 +1,7 @@
+**George Russell's Canadian GP victory under threat as Red Bull lodges protests**\
+`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday.`\
+https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
+
 **Sticky Stuff**\
 `Jill Rafaloff and Michelle Sontarp start from the beginning.`\
 https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
