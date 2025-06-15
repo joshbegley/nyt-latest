@@ -1,3 +1,7 @@
+**One of Opera’s Most In-Demand Provocateurs Puts Down Roots**\
+`Stefan Herheim, the artistic leader of Theater an der Wien in Vienna, is wrapping up his first season inside the newly renovated theater.`\
+https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.html
+
 **Angel Reese sparks Chicago to win with first career triple-double**\
 `Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
 https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicag
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/15/world/lima-peru-quake-tracker.html
 
-**Bayern Munich 10 Auckland City 0 - Bundesliga giants run up record-breaking scoreline against part-timers**\
+**Bayern Munich 10 Auckland City 0 - Bundesliga winners run up record-breaking scoreline against part-timers**\
 `Seb Stafford-Bloor and Jordan Campbell break down the main talking points from Bayern Munich's 10-0 win over Auckland City`\
 https://nytimes.com/athletic/6419215/2025/06/15/bayern-munich-10-auckland-city-club-world-cup/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/politics/trump-military-parade-sponsors.html
 **Political Violence Came to Minnesota. It Didn’t Start There.**\
 `Unfortunately, Americans of all stripes are coming to see violence as a legitimate means of expressing dissent.`\
 https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
-
-**As Bombs Land in Israel and Iran, New Yorkers Fear for Their Loved Ones**\
-`The conflict, the most intense fighting between the two countries in decades, has been met in the United States with feelings of “frustration and helplessness,” as well as heartbreak.`\
-https://nytimes.com/2025/06/15/world/middleeast/israel-iran-strikes-loved-ones.html
 

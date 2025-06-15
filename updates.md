@@ -1,3 +1,11 @@
+**One of Opera’s Most In-Demand Provocateurs Puts Down Roots**\
+`Stefan Herheim, the artistic leader of Theater an der Wien in Vienna, is wrapping up his first season inside the newly renovated theater.`\
+https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.html
+
+**Bayern Munich 10 Auckland City 0 - Bundesliga winners run up record-breaking scoreline against part-timers**\
+`Seb Stafford-Bloor and Jordan Campbell break down the main talking points from Bayern Munich's 10-0 win over Auckland City`\
+https://nytimes.com/athletic/6419215/2025/06/15/bayern-munich-10-auckland-city-club-world-cup/
+
 **Angel Reese sparks Chicago to win with first career triple-double**\
 `Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
 https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
