@@ -1,3 +1,7 @@
+**The Clintons and Kamala Harris Descend on a Hamptons Wedding of Liberal Royalty**\
+`The wedding of Huma Abedin, a longtime aide to Hillary Clinton, and Alex Soros, the scion of a liberal philanthropic dynasty, drew a rare concentration of wealth and power.`\
+https://nytimes.com/2025/06/14/us/politics/huma-abedin-alex-soros-wedding-hillary-clinton-kamala-harris.html
+
 **Acuña and Strider give Braves hope despite a tough start to season**\
 `The Braves have reasons to believe they are just getting started. And the two biggest ones are Acuña and Strider.`\
 https://nytimes.com/athletic/6426590/2025/06/14/braves-ronald-acuna-spence-strider/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/us/politics/trump-military-parade-takeaways.html
 **Willson Contreras sounds off on unnamed Brewer after first-base collision**\
 `The incident stemmed from a play in the bottom of the third, when Caleb Durbin collided with Contreras as he tried to beat out a groundball.`\
 https://nytimes.com/athletic/6426525/2025/06/14/mlb-brewers-willson-contreras-collision/
-
-**Here’s what to know about Yvette Hoffman, who was wounded in the Minnesota shootings.**\
-`She is a former D.J. and an advocate for vulnerable children.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings/yvette-hoffman-minnesota-shootings
 
