@@ -1,3 +1,11 @@
+**Political Violence Came to Minnesota. It Didn’t Start There.**\
+`Unfortunately, Americans of all stripes are coming to see violence as a legitimate means of expressing dissent.`\
+https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html
+
+**As Bombs Land in Israel and Iran, New Yorkers Fear for Their Loved Ones**\
+`The conflict, the most intense fighting between the two countries in decades, has been met in the United States with feelings of “frustration and helplessness,” as well as heartbreak.`\
+https://nytimes.com/2025/06/15/world/middleeast/israel-iran-strikes-loved-ones.html
+
 **Blue Jackets Sunday Gathering: Building out a roster with Panther-like competitiveness**\
 `Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
 https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
 **BBQ Chicken Is Always the Move**\
 `Crisp and succulent, great with slaw, one of the best summertime feeds.`\
 https://nytimes.com/2025/06/15/dining/sam-siftons-bbq-chicken-recipe.html
-
-**Alex Polikoff, Who Won a Marathon Housing Segregation Case, Dies at 98**\
-`He notched a victory in a Supreme Court decision against the City of Chicago in 1976. He then spent over 40 years making sure the ruling was enforced.`\
-https://nytimes.com/2025/06/15/us/alex-polikoff-dead.html
-
-**Heat of Air India Crash Hinders DNA Identification, Agonizing Relatives**\
-`Three days after the crash, only 35 bodies had been handed over to relatives from an overall official death toll of 270.`\
-https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
 
