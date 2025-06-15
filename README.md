@@ -1,3 +1,11 @@
+**‘Tacos de Lengua’ Review: Finding the Rhythm of the Night**\
+`At the Chocolate Factory Theater in Queens on Friday, Martita Abril’s performance expressed life on the border from multiple angles.`\
+https://nytimes.com/2025/06/15/arts/dance/tacos-de-lengua-review.html
+
+**Pacers coach Rick Carlisle defends ref Scott Foster: 'He’s a great official'**\
+`Lightning rod referee drew criticism from Indiana fans and media after Thunder rallied late to win Game 4 of NBA Finals.`\
+https://nytimes.com/athletic/6427646/2025/06/15/rick-carlisle-scott-foster-nba-finals-pacers-thunder/
+
 **How a manhunt works, according to security experts.**\
 `The search is ongoing for suspect Vance Boelter, 57, who escaped on foot after a gunfire exchange with local officers.`\
 https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/how-a-manhunt-works-according-to-security-experts
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/15/world/lima-peru-quake-tracker.html
 **Bayern Munich 10 Auckland City 0 - Bundesliga winners run up record-breaking scoreline against part-timers**\
 `Seb Stafford-Bloor and Jordan Campbell break down the main talking points from Bayern Munich's 10-0 win over Auckland City`\
 https://nytimes.com/athletic/6419215/2025/06/15/bayern-munich-10-auckland-city-club-world-cup/
-
-**Nezza says her Spanish rendition of U.S. anthem was against Dodgers' wishes**\
-`Dodgers did not comment on singer's anthem, which was Saturday in response to immigration crackdown in L.A. and amid  “No Kings” protests.`\
-https://nytimes.com/athletic/6427526/2025/06/15/nezza-dodgers-national-anthem-spanish/
-
-**At Least 3 Dead in West Virginia Flash Flooding**\
-`Up to four inches of rain fell in a 30-minute period in Ohio County on Saturday night, destroying homes and submerging vehicles, an official said.`\
-https://nytimes.com/2025/06/15/us/west-virginia-flooding-deaths.html
 
