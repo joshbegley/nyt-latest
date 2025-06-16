@@ -1,3 +1,7 @@
+**As U.S. Aid Dries Up, West Africa Fights Expanding Jihadist Threat**\
+`Insurgents are expanding from West Africa’s Sahel region toward Atlantic coastal nations such as Ivory Coast, creating new terrorism hot spots and displacing millions.`\
+https://nytimes.com/2025/06/16/world/africa/africa-terrorism-trump-ivory-coast.html
+
 **How to save 11 match points in tennis – and a slice masterclass on the Queen's grass**\
 `Elise Mertens' remarkable escape came on her way to the title in 's-Hertogenbosch, the Netherlands.`\
 https://nytimes.com/athletic/6427123/2025/06/16/tennis-most-match-points-saved-mertens-hertogenbosch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427757/2025/06/16/tigers-pitching-adversity-will-v
 **Few had heard of this college QB a year ago. Now he's a projected top-5 NFL Draft pick**\
 `South Carolina didn't offer LaNorris Sellers until late his senior. Now, the Gamecocks are cruising behind a potential top-5 NFL Draft pick.`\
 https://nytimes.com/athletic/6425716/2025/06/16/lanorris-sellers-south-carolina-nfl-draft-2026/
-
-**Osi Umenyiora sees a future for football in Africa: 'I knew many better athletes than I was in Nigeria'**\
-`Umenyiora, a two-time Super Bowl winner, is intent on inspiring African athletes to take up American football.`\
-https://nytimes.com/athletic/6415456/2025/06/16/osi-umenyiora-nfl-africa-scouting/
 
