@@ -1,3 +1,7 @@
+**Nina Kuscsik, Marathoner Who Broke Gender Barriers, Dies at 86**\
+`Overcoming male resistance, she became the first woman to enter the New York City Marathon and the first official female winner of the Boston event.`\
+https://nytimes.com/2025/06/16/sports/nina-kuscsik-dead.html
+
 **Federal Official Explains Minnesota Shootings Details**\
 `State and federal officials announced charges, including murder, stalking and firearms offenses against Vance Boelter on Monday, who has been accused of assassinating a Minnesota state lawmaker and injuring another during multiple shootings.`\
 https://nytimes.com/video/us/100000010232578/federal-official-explains-minnesota-shootings-details.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/briefing/iran-israel-attacks-minnesota-killing-su
 **Former Shohei Ohtani interpreter Ippei Mizuhara reports to prison**\
 `Mizuhara stole nearly $17 million from MLB star to cover gambling debts.`\
 https://nytimes.com/athletic/6430511/2025/06/16/shohei-ohtani-interpreter-ippei-mizuhara-prison/
-
-**The Briefing: Chelsea 2 LAFC 0 - Neto's chop, Jackson v Delap part one and a topless Giroud halts the show**\
-`Liam Twomey and Felipe Cardenas break down the main talking points from Chelsea's 2-0 win over LAFC at the Club World Cup`\
-https://nytimes.com/athletic/6423748/2025/06/16/chelsea-2-lafc-0-giroud-neto-fernandez-club-world-cup/
 
