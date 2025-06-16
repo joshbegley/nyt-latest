@@ -1,3 +1,7 @@
+**Suspect in Minnesota Killings Carried a List of Some 70 Targets**\
+`The tally, which included politicians, community and business leaders, and locations for Planned Parenthood, was recovered in a car linked to the attacks.`\
+https://nytimes.com/2025/06/15/us/minnesota-shootings-suspect-targets.html
+
 **USMNT needed a Gold Cup opener like this to begin deflating the drama**\
 `On the heels of a four-match losing streak and contentious dialogue involving its star player, the USMNT really needed a dominant result`\
 https://nytimes.com/athletic/6426444/2025/06/15/usmnt-trinidad-tobago-pochettino-gold-cup-pulisic-drama/
@@ -35,8 +39,4 @@ https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.
 **Trade analysis: In Rafael Devers, Giants get the big bat they need from Red Sox**\
 `The Giants addressed a clear need (offense), but while the Red Sox got back some value, the return doesn't make them immediately better.`\
 https://nytimes.com/athletic/6428232/2025/06/15/rafael-devers-sf-giants-red-sox-trade-analysis/
-
-**Braves takeaways: Grant Holmes' big day wasted, bullpen struggles, Mets up next**\
-`The Braves' momentum vanished with a dispiriting loss to the Rockies, and the NL East-leading Mets are coming to town.`\
-https://nytimes.com/athletic/6428009/2025/06/15/braves-takeaways-grant-holmes-bullpen-offense-struggle/
 

@@ -1,3 +1,7 @@
+**Suspect in Minnesota Killings Carried a List of Some 70 Targets**\
+`The tally, which included politicians, community and business leaders, and locations for Planned Parenthood, was recovered in a car linked to the attacks.`\
+https://nytimes.com/2025/06/15/us/minnesota-shootings-suspect-targets.html
+
 **USMNT needed a Gold Cup opener like this to begin deflating the drama**\
 `On the heels of a four-match losing streak and contentious dialogue involving its star player, the USMNT really needed a dominant result`\
 https://nytimes.com/athletic/6426444/2025/06/15/usmnt-trinidad-tobago-pochettino-gold-cup-pulisic-drama/
