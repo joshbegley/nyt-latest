@@ -1,3 +1,11 @@
+**An Experimental Music Collective Arrives at Lincoln Center**\
+`The American Modern Opera Company is taking over Lincoln Center for a five-week residency. It is both a milestone and a homecoming for these artists.`\
+https://nytimes.com/2025/06/16/arts/music/amoc-lincoln-center-summer-festival.html
+
+**Ukraine Takes First Step Toward Carrying Out Minerals Deal With U.S.**\
+`The government is trying to show the Trump administration that it can deliver on the agreement.`\
+https://nytimes.com/2025/06/16/world/europe/us-ukraine-minerals-deal.html
+
 **‘The Age of Trump’ Enters Its Second Decade**\
 `Ten years after he descended the Trump Tower escalator to announce his campaign for the White House, President Trump has come to dominate his era like few presidents ever have.`\
 https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/business/kering-leo-de-meo-renault.html
 **THE BAT X fantasy baseball cheat sheet: Stream Clayton Kershaw; fade and trade TJ Friedl**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6429014/2025/06/16/the-bat-x-fantasy-baseball-cheat-sheet-stream-clayton-kershaw-fade-and-trade-tj-friedl/
-
-**Canada reveals Olympic men's hockey First 6: Behind the Sam Reinhart pick, other roster decisions**\
-`GM Doug Armstrong on why Reinhart replaced 37-year-old Marchand — the only change from the first six announced 12 months ago for 4 Nations.`\
-https://nytimes.com/athletic/6428276/2025/06/16/canada-olympic-hockey-roster-reinhart-marchand/
-
-**Reijnders: I am not at Man City to replace De Bruyne**\
-`The Dutch midfielder joined from Milan this month in a deal worth €55million.`\
-https://nytimes.com/athletic/6427062/2025/06/16/tijjani-reijnders-man-city-de-bruyne/
 
