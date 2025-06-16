@@ -1,3 +1,7 @@
+**MLB execs, managers and coaches sound off on Rafael Devers trade: 'I'm shocked'**\
+`The reactions from around the league were mixed as far as which team got the better deal, but almost all were surprised by the timing.`\
+https://nytimes.com/athletic/6430469/2025/06/16/rafael-devers-trade-mlb-league-reactions/
+
 **Israel Attacked Iran’s State TV**\
 `Also, the suspect in the Minnesota killings could face the death penalty. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-shootings-irish-cottage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/trump-mobile-phone.html
 **Minnesota State Senator Says Accused Gunman Visited Her Street**\
 `State Senator Ann Rest, a Democrat, credited police officers who were proactively checking on her safety with sparing her from an attack.`\
 https://nytimes.com/2025/06/16/us/ann-rest-minnesota-state-senator-shooting.html
-
-**Arkansas' Gage Wood makes CWS history with no-hitter, strikes out record 19**\
-`Arkansas will face the winer of UCLA and LSU on Tuesday.`\
-https://nytimes.com/athletic/6430474/2025/06/16/arkansas-gage-wood-cws-history-no-hitter/
 
