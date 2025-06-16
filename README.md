@@ -1,3 +1,7 @@
+**Bat Cave Footage Offers Clues to How Viruses Leap Between Species**\
+`Video from a national park in Uganda depicted a parade of predatory species feeding on and dispersing fruit bats that are known natural reservoirs of infectious diseases.`\
+https://nytimes.com/2025/06/16/science/bats-cave-spillover-uganda.html
+
 **FIFA drops anti-racism, anti-discrimination messages for Club World Cup**\
 `The messaging has not been visible during the opening round of fixtures at the tournament in stadiums or on social media platforms.`\
 https://nytimes.com/athletic/6430673/2025/06/16/fifa-club-world-cup-racism-discrimination-message/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010232578/federal-official-explains-minnesota
 **Submit your Canucks questions for Thomas Drance's mailbag**\
 `Got a question about the Canucks as the NHL Draft and free agency approach?`\
 https://nytimes.com/athletic/6430660/2025/06/16/vancouver-canucks-mailbag-june-2025/
-
-**After Lawmaker’s Death, Democrats Dismiss Concerns Over Balance of Power**\
-`Before Representative Melissa Hortman’s death, the state’s House was evenly divided. The governor has until next February to fill her seat before the next legislative session.`\
-https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html
 
