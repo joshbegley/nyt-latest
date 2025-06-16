@@ -1,40 +1,40 @@
-**Submit your Canadiens questions for Arpon Basu's mailbag**\
-`Send in your questions, and Arpon Basu may answer them in an upcoming mailbag.`\
-https://nytimes.com/athletic/6429290/2025/06/16/canadiens-mailbag-submissions-arpon-basu/
+**The Trumps Promote a New Crypto Venture: Bitcoin Mining**\
+`The debut of American Bitcoin, a mining firm backed by Eric Trump and Donald Trump Jr., has heightened the ethical concerns swirling around the Trump presidency.`\
+https://nytimes.com/2025/06/16/technology/trump-american-bitcoin-mining.html
 
-**Fire in Maui Grows to 500 Acres, Prompting Evacuations**\
-`The island was the site of devastating, deadly fires in 2023.`\
-https://nytimes.com/2025/06/16/us/maui-fire-kahikinui.html
+**As Shohei Ohtani returns to the mound, he has to prove he can still be a two-way superstar**\
+`Ohtani is returning to the mound. Can he be the dependable rotation mainstay, and the unicorn two-way star he has been in the past? `\
+https://nytimes.com/athletic/6428578/2025/06/16/shohei-ohtani-dodgers-pitching-two-way-superstar/
 
-**Walls Are Put Up Around Israeli Displays at French Weapons Show**\
-`Israel called the move “outrageous.” A French official said Israeli companies were defying an agreement not to display so-called offensive weapons.`\
-https://nytimes.com/2025/06/16/world/middleeast/israel-weapons-paris-air-show.html
+**Red Light: Playoff momentum is overrated. Plus: What’s up with that guy changing jerseys?**\
+`Good morning to everyone except whoever designed the Oilers’ terrifying mascot.`\
+https://nytimes.com/athletic/6429032/2025/06/16/red-light-oilers-panthers/
+
+**WSL clubs vote to expand league to 14 teams and introduce relegation play-off**\
+`English women's football chief Nikki Doucet said the play-off will create "a high-profile, high-stakes match".`\
+https://nytimes.com/athletic/6429125/2025/06/16/wsl-promotion-relegation-playoff/
 
 **Business Lobbyists Scramble to Kill $100 Billion ‘Revenge Tax’**\
 `Critics contend that the measure will scare off the foreign investment that President Trump wants to attract.`\
 https://nytimes.com/2025/06/16/us/politics/republican-policy-bill-revenge-tax.html
 
-**Lowetide: Where have all the Oilers' outlet passes gone?**\
-`The goal for the Oilers in Game 6 is to find a way to spend less time in their own zone.`\
-https://nytimes.com/athletic/6427417/2025/06/16/edmonton-oilers-stanley-cup-final-2025-passing/
+**A Weeknight Spaghetti With Extra Oomph**\
+`Preserved lemon adds its salty, fermented punch to a seven-ingredient pasta.`\
+https://nytimes.com/2025/06/16/dining/quick-tomato-pasta-with-preserved-lemon-recipe.html
 
-**Turning a Page, Germans Try Celebrating Their Recent Veterans**\
-`In a changed world, Germany’s government is trying to recruit more soldiers. A first step? Getting citizens to appreciate their military again.`\
-https://nytimes.com/2025/06/16/world/europe/germany-veterans-day-celebration-military.html
+**It’s Not Just You: The Tick Situation Is Getting Worse**\
+`As temperatures rise, ticks of all kinds are flourishing in ways that threaten people’s health.`\
+https://nytimes.com/2025/06/16/well/ticks-climate-change.html
 
-**The Memory of a Teenage Golden Child Ripples Across Generations**\
-`Michelle Huneven’s novel “Bug Hollow” begins with a tragedy in 1970s California. The ramifications are felt across three countries and five decades.`\
-https://nytimes.com/2025/06/16/books/review/michelle-huneven-bug-hollow.html
+**NASCAR Mexico City takeaways: A highlight weekend for the sport; van Gisbergen, Suárez shine**\
+`The enthusiasm from Mexican fans made the weekend a success before cars even raced, Shane Van Gisbergen scored a banner win and more.`\
+https://nytimes.com/athletic/6429046/2025/06/16/nascar-mexico-city-takeaways-fans-shane-van-gisbergen/
 
-**Iran’s nuclear sites have not been damaged further, the U.N.’s atomic agency says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/06/16/world/iran-israel-news/irans-nuclear-sites-have-not-been-further-damaged-the-uns-atomic-agency-says
+**Trump’s Trade and Tax Policies Start to Stall U.S. Battery Boom**\
+`Battery companies are slowing construction or reconsidering big investments in the United States because of tariffs on China and the proposed rollback of tax credits.`\
+https://nytimes.com/2025/06/16/business/energy-environment/trump-battery-factories-electric-vehicles.html
 
-**The Bounce: Keys for Thunder, Pacers to win NBA Finals. Plus, how Desmond Bane deal changes East**\
-`The Pacers might be kicking themselves for the NBA Finals being tied 2-2, but there's still a path to securing a ring`\
-https://nytimes.com/athletic/6428906/2025/06/16/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-desmond-bane-trade-magic-the-bounce/
-
-**The Pulse: Shohei returns**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6428284/2025/06/16/shohei-ohtanis-surprise-return-to-the-mound-plus-two-sunday-blockbusters/
+**Submit your Canadiens questions for Arpon Basu's mailbag**\
+`Send in your questions, and Arpon Basu may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6429290/2025/06/16/canadiens-mailbag-submissions-arpon-basu/
 
