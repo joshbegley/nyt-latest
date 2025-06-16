@@ -1,3 +1,7 @@
+**USMNT needed a Gold Cup opener like this to begin deflating the drama**\
+`On the heels of a four-match losing streak and contentious dialogue involving its star player, the USMNT really needed a dominant result`\
+https://nytimes.com/athletic/6426444/2025/06/15/usmnt-trinidad-tobago-pochettino-gold-cup-pulisic-drama/
+
 **‘I’m an American, Bro!’: Latinos Report Raids in Which U.S. Citizenship Is Questioned**\
 `A raid in Montebello, Calif., has stirred fears that federal agents are detaining and racially profiling U.S. citizens of Hispanic descent.`\
 https://nytimes.com/2025/06/15/us/hispanic-americans-raids-citizenship.html
