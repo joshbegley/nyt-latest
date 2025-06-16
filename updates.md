@@ -1,3 +1,7 @@
+**Owners of Doomed Nightclub in Dominican Republic Knew Roof Was Shoddy**\
+`The owners of a nightclub in the Dominican Republic where the roof collapsed killing 235 people face a maximum of just two years in prison.`\
+https://nytimes.com/2025/06/16/us/dominican-republic-nightclub-owner-roof-collapse-charges.html
+
 **Potential Sheffield Wednesday owner calls for 55,000-seater stadium**\
 `Wednesday have not been in the Premier League since 2000 and have spent the past 25 years yo-yoing between the second and third tiers.`\
 https://nytimes.com/athletic/6429823/2025/06/16/sheffield-wednesday-stadium-takeover/

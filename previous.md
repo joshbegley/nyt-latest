@@ -1,3 +1,7 @@
+**Owners of Doomed Nightclub in Dominican Republic Knew Roof Was Shoddy**\
+`The owners of a nightclub in the Dominican Republic where the roof collapsed killing 235 people face a maximum of just two years in prison.`\
+https://nytimes.com/2025/06/16/us/dominican-republic-nightclub-owner-roof-collapse-charges.html
+
 **Potential Sheffield Wednesday owner calls for 55,000-seater stadium**\
 `Wednesday have not been in the Premier League since 2000 and have spent the past 25 years yo-yoing between the second and third tiers.`\
 https://nytimes.com/athletic/6429823/2025/06/16/sheffield-wednesday-stadium-takeover/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429605/2025/06/16/fanatics-fest-2025/
 **How to watch Padres at Dodgers: Shohei Ohtani makes anticipated pitching debut for LA**\
 `Baseball's two-way star, Shohei Ohtani, makes his long-awaited return to the mound as he gears up for his first start with the Dodgers.`\
 https://nytimes.com/athletic/6429382/2025/06/16/ohtani-shohei-dodgers-padres-pitching-watch/
-
-**Negotiation or Capitulation? How Columbia Got Off Trump’s Hot Seat.**\
-`The university has largely complied with the administration’s demands, but has adjusted them in meaningful ways. One department offers a window into that effort.`\
-https://nytimes.com/2025/06/16/nyregion/columbia-middle-east-studies-trump.html
 
