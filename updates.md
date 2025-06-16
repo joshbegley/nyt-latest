@@ -1,3 +1,15 @@
+**E.P.A. Plans to Reconsider a Ban on Cancer-Causing Asbestos**\
+`The Trump administration’s move sets back a decades-long effort to end the use of the material, which is widely banned in other countries.`\
+https://nytimes.com/2025/06/16/us/epa-trump-asbestos-ban-delay.html
+
+**Naval Academy Seeks Dismissal of Lawsuit After Dropping Race-Conscious Admissions**\
+`The academy had argued for years that a diverse officer corps was essential to strong troop morale and national security.`\
+https://nytimes.com/2025/06/16/us/naval-academy-race-admissions-lawsuit.html
+
+**Banned From YouTube, but Welcomed by Eric Adams at Gracie Mansion**\
+`Mayor Adams did an hourlong interview with Sneako, a streamer who has made remarks many consider antisemitic. The conservative influencer Amber Rose was also present.`\
+https://nytimes.com/2025/06/16/nyregion/adams-sneako-interview.html
+
 **Bat Cave Footage Offers Clues to How Viruses Leap Between Species**\
 `Video from a national park in Uganda depicted a parade of predatory species feeding on and dispersing fruit bats that are known natural reservoirs of infectious diseases.`\
 https://nytimes.com/2025/06/16/science/bats-cave-spillover-uganda.html
