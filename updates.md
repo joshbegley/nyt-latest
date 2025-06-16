@@ -1,3 +1,11 @@
+**Heavy Rain Brings Flash Floods to West Virginia**\
+`Water levels rose at Wheeling Creek in Wheeling, W.Va., where the fire department said search and dive operations took place.`\
+https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.html
+
+**Trade analysis: In Rafael Devers, Giants get the big bat they need from Red Sox**\
+`The Giants addressed a clear need (offense), but while the Red Sox got back some value, the return doesn't make them immediately better.`\
+https://nytimes.com/athletic/6428232/2025/06/15/rafael-devers-sf-giants-red-sox-trade-analysis/
+
 **Braves takeaways: Grant Holmes' big day wasted, bullpen struggles, Mets up next**\
 `The Braves' momentum vanished with a dispiriting loss to the Rockies, and the NL East-leading Mets are coming to town.`\
 https://nytimes.com/athletic/6428009/2025/06/15/braves-takeaways-grant-holmes-bullpen-offense-struggle/
