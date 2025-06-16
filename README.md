@@ -1,3 +1,7 @@
+**In stunning trade for Rafael Devers, the Giants finally land a big bat**\
+`Clearly, Buster Posey has paid attention to all the failed dalliances to land sluggers like Aaron Judge and Shohei Ohtani, among others.`\
+https://nytimes.com/athletic/6428605/2025/06/16/rafael-devers-giants-trade-baggarly/
+
 **Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
 `With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the MLS and Brazilian sides was surely a must-win`\
 https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
 **Read the document**\
 `Read the charging documents filed against Vance Boelter.`\
 https://nytimes.com/interactive/2025/06/16/us/Vance-boelter-charging-docs.html
-
-**Club World Cup Briefing - What's drawing the fans? Can Auckland mismatches be avoided? Is the heat a problem?**\
-`Catch up on what's happened at the Club World Cup - and what it all means`\
-https://nytimes.com/athletic/6427684/2025/06/16/club-world-cup-fans-heat/
 
