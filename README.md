@@ -1,3 +1,7 @@
+**Quote of the Day: Love and Value via the Rom-Com**\
+`Quotation of the Day for Monday, June 16, 2025.`\
+https://nytimes.com/2025/06/15/pageoneplus/quote-of-the-day-love-and-value-via-the-rom-com.html
+
 **Mookie Betts talks 'crazy' trade of former teammate Rafael Devers**\
 `Betts and Devers played in Boston together from 2017-19.`\
 https://nytimes.com/athletic/6428451/2025/06/15/mookie-bets-rafael-devers-trade-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/minnesota-shooting-timeline.html
 **1 Killed in Shooting at a ‘No Kings’ Protest in Salt Lake City**\
 `A bystander was fatally shot after security members at the demonstration confronted a man who was running toward the crowd with an AR-15-style rifle, the police said.`\
 https://nytimes.com/2025/06/15/us/politics/no-kings-protest-shooting-salt-lake-city.html
-
-**Liam Delap 'future England No 9' says Maresca but not guaranteed to be first-choice at Chelsea**\
-`“The message is always the same: you arrive, you work hard, you work more than the other number nine and you can be first choice No 9"`\
-https://nytimes.com/athletic/6428328/2025/06/15/liam-delap-chelsea-maresca/
 

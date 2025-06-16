@@ -1,3 +1,11 @@
+**Mookie Betts talks 'crazy' trade of former teammate Rafael Devers**\
+`Betts and Devers played in Boston together from 2017-19.`\
+https://nytimes.com/athletic/6428451/2025/06/15/mookie-bets-rafael-devers-trade-comments/
+
+**Shohei Ohtani will make return to mound in series opener against Padres**\
+`Ohtani will make his pitching debut for the Dodgers 20 months removed from his September 2023 procedure.`\
+https://nytimes.com/athletic/6428395/2025/06/15/shohei-ohtani-dodgers-pitching-return-padres/
+
 **Rosenthal: In wake of Rafael Devers trade, there's only one question that matters for the Red Sox**\
 `For the 2025 season and beyond, the deal will ultimately be evaluated on whether it makes Boston a better team. `\
 https://nytimes.com/athletic/6428396/2025/06/15/rafael-devers-red-sox-giants-trade-rosenthal/
