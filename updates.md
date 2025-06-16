@@ -1,3 +1,11 @@
+**Lowetide: Where have all the Oilers' outlet passes gone?**\
+`The goal for the Oilers in Game 6 is to find a way to spend less time in their own zone.`\
+https://nytimes.com/athletic/6427417/2025/06/16/edmonton-oilers-stanley-cup-final-2025-passing/
+
+**The Bounce: Keys for Thunder, Pacers to win NBA Finals. Plus, how Desmond Bane deal changes East**\
+`The Pacers might be kicking themselves for the NBA Finals being tied 2-2, but there's still a path to securing a ring`\
+https://nytimes.com/athletic/6428906/2025/06/16/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-desmond-bane-trade-magic-the-bounce/
+
 **Turning a Page, Germans Try Celebrating Their Recent Veterans**\
 `In a changed world, Germany’s government is trying to recruit more soldiers. A first step? Getting citizens to appreciate their military again.`\
 https://nytimes.com/2025/06/16/world/europe/germany-veterans-day-celebration-military.html
