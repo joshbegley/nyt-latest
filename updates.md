@@ -1,3 +1,7 @@
+**The Smart Way for Trump to End the Israel-Iran War**\
+`President Trump has a chance to create the best opportunity for stabilizing the Middle East in decades, if he is up to it.`\
+https://nytimes.com/2025/06/16/opinion/trump-israel-iran-war.html
+
 **The Ingebrigtsen trial: 'I became too much of a coach - the coach was not necessarily a kind man'**\
 `Gjert Ingebrigtsen was acquitted of abusing his son, Olympic champion Jakob, but found guilty of assaulting daughter Ingrid`\
 https://nytimes.com/athletic/6429124/2025/06/16/ingebrigtsen-trial-jakob-olympic/
