@@ -1,3 +1,7 @@
+**Suspect Arrested for Murder of Minnesota Lawmaker**\
+`The arrest of Vance Boelter ended a two-day manhunt after the assassination of State Representative Melissa Hortman and her husband, and the attempted assassination of others.`\
+https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
+
 **Read the document**\
 `Read the charging documents filed against Vance Boelter.`\
 https://nytimes.com/interactive/2025/06/16/us/Vance-boelter-charging-docs.html
