@@ -1,3 +1,15 @@
+**What Villa centre-backs Swinkels and Feeney learned in League One's school of hard knocks**\
+`For a defender's first forays outside the Premier League academy bubble and into a senior side elsewhere, the stakes are raised immeasurably`\
+https://nytimes.com/athletic/6355616/2025/06/16/villa-josh-feeney-sil-swinkels-league-one/
+
+**Meet Leeds’ new sporting director, Adam Underwood: The in-house appointment that may be a masterstroke**\
+`The newly promoted club have turned to a figure who has been a constant at Thorp Arch for over a decade to oversee their summer recruitment`\
+https://nytimes.com/athletic/6427096/2025/06/16/leeds-underwood-marathe-sporting-director/
+
+**Creating Florian Wirtz: The living room footballer who still can't stand losing**\
+`No video games and rarely TV – the story behind potentially the Premier League's most expensive player`\
+https://nytimes.com/athletic/6401889/2025/06/16/creating-florian-wirtz/
+
 **Should record losers Auckland City be part of the expanded Club World Cup?**\
 `Auckland City's 10-0 defeat highlighted a tension at the heart of the new Club World Cup but the fault is not theirs`\
 https://nytimes.com/athletic/6427850/2025/06/16/auckland-city-club-world-cup-record/
