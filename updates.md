@@ -1,3 +1,7 @@
+**Potential Sheffield Wednesday owner calls for 55,000-seater stadium**\
+`Wednesday have not been in the Premier League since 2000 and have spent the past 25 years yo-yoing between the second and third tiers.`\
+https://nytimes.com/athletic/6429823/2025/06/16/sheffield-wednesday-stadium-takeover/
+
 **PWHL Vancouver signs top free agents Hannah Miller and Tereza Vanisová**\
 `Miller was ranked as the league's No. 1 free agent by The Athletic.`\
 https://nytimes.com/athletic/6429961/2025/06/16/pwhl-vancouver-miller-vanisova/
