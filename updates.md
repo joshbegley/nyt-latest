@@ -1,3 +1,15 @@
+**Stocks Tread Cautiously as Investors Watch Oil Prices**\
+`As Israel and Iran exchanged more attacks, stock markets mostly rose even as worries remained about possible oil supply interruptions.`\
+https://nytimes.com/2025/06/16/business/stocks-oil-prices-israel-iran.html
+
+**Go Ask Your Father**\
+`Putting big, burning questions to Dad.`\
+https://nytimes.com/2025/06/16/podcasts/go-ask-your-father-this-american-life-nyt-audio.html
+
+**Lloris says Club World Cup participants 'have to adapt to schedule'**\
+`Lloris insists that the top European clubs participating do not face greater challenges than their opponents from the rest of the world.`\
+https://nytimes.com/athletic/6428658/2025/06/16/club-world-cup-chelsea-lafc-lloris/
+
 **Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
 `With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the Brazilian and MLS sides was surely a must-win`\
 https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
