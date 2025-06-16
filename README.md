@@ -35,7 +35,7 @@ https://nytimes.com/athletic/6429463/2025/06/16/notre-dame-football-mailbag-ques
 https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
 
 **Watching the three Nottingham Forest-bound Brazilians play at the Club World Cup**\
-`Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano - and two of them scored for Botafogo on Sunday
+`Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano – and two of them scored for Botafogo on Sunday
 
 `\
 https://nytimes.com/athletic/6429059/2025/06/16/igor-jesus-jair-cunha-cuiabano-botafogo-nottingham-forest/
