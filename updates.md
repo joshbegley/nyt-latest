@@ -1,3 +1,7 @@
+**Club World Cup Briefing - What's drawing the fans? Can Auckland mismatches be avoided? Is the heat a problem?**\
+`Catch up on what's happened at the Club World Cup - and what it all means`\
+https://nytimes.com/athletic/6427684/2025/06/16/club-world-cup-fans-heat/
+
 **Monday Briefing: Iran-Israel Conflict Continues**\
 `Plus, the Dalai Lama’s succession.`\
 https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-lawmaker-assassin-air-india.html
