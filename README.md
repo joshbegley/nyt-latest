@@ -1,3 +1,7 @@
+**Turning a Page, Germans Try Celebrating Their Recent Veterans**\
+`In a changed world, Germany’s government is trying to recruit more soldiers. A first step? Getting citizens to appreciate their military again.`\
+https://nytimes.com/2025/06/16/world/europe/germany-veterans-day-celebration-military.html
+
 **The Memory of a Teenage Golden Child Ripples Across Generations**\
 `Michelle Huneven’s novel “Bug Hollow” begins with a tragedy in 1970s California. The ramifications are felt across three countries and five decades.`\
 https://nytimes.com/2025/06/16/books/review/michelle-huneven-bug-hollow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/special-series/isabel-wilkerson-great-migration-h
 **Gonzalo Garcia Appointed Artistic Director of Miami City Ballet**\
 `Garcia, a former principal at New York City Ballet and San Francisco Ballet, takes over as Miami City celebrates its 40th anniversary.`\
 https://nytimes.com/2025/06/16/arts/dance/gonzalo-garcia-artistic-director-miami-city-ballet.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/06/16/opinion/thepoint
 
