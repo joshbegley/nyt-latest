@@ -1,3 +1,7 @@
+**Shohei Ohtani will make return to mound in series opener against Padres**\
+`Ohtani will make his pitching debut for the Dodgers 20 months removed from his September 2023 procedure.`\
+https://nytimes.com/athletic/6428395/2025/06/15/shohei-ohtani-dodgers-pitching-return-padres/
+
 **Rosenthal: In wake of Rafael Devers trade, there's only one question that matters for the Red Sox**\
 `For the 2025 season and beyond, the deal will ultimately be evaluated on whether it makes Boston a better team. `\
 https://nytimes.com/athletic/6428396/2025/06/15/rafael-devers-red-sox-giants-trade-rosenthal/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6428328/2025/06/15/liam-delap-chelsea-maresca/
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6428313/2025/06/15/submit-a-question-for-stewart-mandels-college-football-mailbag-302/
-
-**Heavy Rain Brings Flash Floods to West Virginia**\
-`Water levels rose at Wheeling Creek in Wheeling, W.Va., where the fire department said search and dive operations took place.`\
-https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.html
 
