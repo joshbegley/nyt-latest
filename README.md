@@ -2,6 +2,10 @@
 `The debut of American Bitcoin, a mining firm backed by Eric Trump and Donald Trump Jr., has heightened the ethical concerns swirling around the Trump presidency.`\
 https://nytimes.com/2025/06/16/technology/trump-american-bitcoin-mining.html
 
+**As Shohei Ohtani returns to the mound, he has to prove he can still be a two-way superstar**\
+`Ohtani is returning to the mound. Can he be the dependable rotation mainstay, and the unicorn two-way star he has been in the past? `\
+https://nytimes.com/athletic/6428578/2025/06/16/shohei-ohtani-dodgers-pitching-two-way-superstar/
+
 **Red Light: Playoff momentum is overrated. Plus: What’s up with that guy changing jerseys?**\
 `Good morning to everyone except whoever designed the Oilers’ terrifying mascot.`\
 https://nytimes.com/athletic/6429032/2025/06/16/red-light-oilers-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/business/energy-environment/trump-battery-factori
 **Submit your Canadiens questions for Arpon Basu's mailbag**\
 `Send in your questions, and Arpon Basu may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/6429290/2025/06/16/canadiens-mailbag-submissions-arpon-basu/
-
-**Fire in Maui Grows to 500 Acres, Prompting Evacuations**\
-`The island was the site of devastating, deadly fires in 2023.`\
-https://nytimes.com/2025/06/16/us/maui-fire-kahikinui.html
 
