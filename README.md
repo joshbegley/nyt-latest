@@ -18,6 +18,10 @@ https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
 `Read the charging documents filed against Vance Boelter.`\
 https://nytimes.com/interactive/2025/06/16/us/Vance-boelter-charging-docs.html
 
+**Club World Cup Briefing - What's drawing the fans? Can Auckland mismatches be avoided? Is the heat a problem?**\
+`Catch up on what's happened at the Club World Cup - and what it all means`\
+https://nytimes.com/athletic/6427684/2025/06/16/club-world-cup-fans-heat/
+
 **Newcastle, Eddie Howe and a supposed preference for Premier League transfers**\
 `Newcastle's manager wants quality with little risk. Signings will be a mix of foreign and domestic players… as they have been in his reign`\
 https://nytimes.com/athletic/6420978/2025/06/16/newcastle-eddie-howe-transfers-home-abroad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421402/2025/06/16/thomas-frank-brentford-tottenham
 **Inside the final hours of Rafael Devers’ Red Sox era: A charter, a blockbuster and a solo Uber**\
 `In trading Rafael Devers, the Red Sox ended a saga and shed one of the final remnants of the 2018 World Series championship team`\
 https://nytimes.com/athletic/6428306/2025/06/16/rafal-devers-final-hours-red-sox-trade/
-
-**Seattle 1 Botafogo 2 - Sounders fall short in Club World Cup opener**\
-`Seattle fought hard but could not complete an opening game comeback against the reigning Copa Libertadores and Brazilian champions`\
-https://nytimes.com/athletic/6428266/2025/06/16/seattle-sounders-botafogo-club-world-cup-highlights-mls/
 
