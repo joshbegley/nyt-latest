@@ -1,3 +1,11 @@
+**How the Trump Era Changed Trump**\
+`The president is still the attention-loving, payback-obsessed main character that he was in 2015. But his four years out of office drove him to turn grievance into vengeance.`\
+https://nytimes.com/2025/06/16/us/politics/trump-decade-washington.html
+
+**Iran’s Best-Protected Nuclear Site Is Deep Underground**\
+`Only the U.S. military has the 30,000-pound bomb capable of reaching the facility and the bomber that can carry it.`\
+https://nytimes.com/2025/06/16/us/politics/iran-nuclear-site-israel.html
+
 **E.P.A. Plans to Reconsider a Ban on Cancer-Causing Asbestos**\
 `The Trump administration’s move sets back a decades-long effort to end the use of the material, which is widely banned in other countries.`\
 https://nytimes.com/2025/06/16/us/epa-trump-asbestos-ban-delay.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6430687/2025/06/16/jake-garcia-michigan-quarterback
 **MLB execs, managers and coaches sound off on Rafael Devers trade: 'I'm shocked'**\
 `The reactions from around the league were mixed as far as which team got the better deal, but almost all were surprised by the timing.`\
 https://nytimes.com/athletic/6430469/2025/06/16/rafael-devers-trade-mlb-league-reactions/
-
-**Israel Attacked Iran’s State TV**\
-`Also, the suspect in the Minnesota killings could face the death penalty. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-shootings-irish-cottage.html
-
-**Watch: How Karl Smesko's coaching philosophy has enabled Atlanta Dream's fast start**\
-`No Offseason discuss Karl Smesko’s coaching style, philosophy and why he’s been able to hit the ground running in Atlanta.`\
-https://nytimes.com/athletic/6428807/2025/06/16/no-offseason-wnba-atlanta-dream-karl-smesko/
 
