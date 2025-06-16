@@ -1,5 +1,9 @@
+**Giancarlo Stanton has returned. What it means for the Yankees' roster, lineup**\
+`Stanton re-joins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
+https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return/
+
 **Chelsea make verbal enquiry for Lyon winger Fofana**\
-`The 20-year-old Belgium international is is among a number of options being considered and conversations are ongoing.`\
+`The 20-year-old Belgium international is among a number of options being considered and conversations are ongoing.`\
 https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
 
 **Supreme Court to Hear Case on Subpoena to Anti-Abortion Pregnancy Centers**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/world/europe/us-ukraine-minerals-deal.html
 **‘The Age of Trump’ Enters Its Second Decade**\
 `Ten years after he descended the Trump Tower escalator to announce his campaign for the White House, President Trump has come to dominate his era like few presidents ever have.`\
 https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
-
-**Joey Chestnut returning to Nathan’s Hot Dog Eating Contest after 2024 ban**\
-`The 16-time Nathan's Famous Hot Dog Eating Contest champion is back, and he's hungry to reclaim his throne.`\
-https://nytimes.com/athletic/6429380/2025/06/16/joey-chestnut-returning-nathans-hot-dog-eating-contest/
 

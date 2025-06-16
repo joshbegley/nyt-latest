@@ -1,3 +1,11 @@
+**Giancarlo Stanton has returned. What it means for the Yankees' roster, lineup**\
+`Stanton re-joins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
+https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return/
+
+**Chelsea make verbal enquiry for Lyon winger Fofana**\
+`The 20-year-old Belgium international is among a number of options being considered and conversations are ongoing.`\
+https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
+
 **Chelsea make verbal enquiry for Lyon winger Fofana**\
 `The 20-year-old Belgium international is is among a number of options being considered and conversations are ongoing.`\
 https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
