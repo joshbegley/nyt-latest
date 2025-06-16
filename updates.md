@@ -1,3 +1,7 @@
+**To Protest Budget Cuts, Young Scientists Try Letters to the Editor**\
+`Hundreds of graduate students are writing to their hometown newspapers to defend their research, as the Trump administration drastically reduces science funding.`\
+https://nytimes.com/2025/06/16/science/science-budget-cuts-protest-letters.html
+
 **Iran Has Sustained Blow After Blow Since October 2023**\
 `Iran is often portrayed as one of the world’s most dangerous actors. But with attacks on its defenses, nuclear sites and proxy militias, Israel has exposed a compromised and weakened adversary.`\
 https://nytimes.com/2025/06/16/world/middleeast/iran-military-defense.html
