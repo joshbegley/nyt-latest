@@ -1,6 +1,14 @@
+**Rafael Devers is no longer a Red Sox. The Yankees must be thrilled with the trade**\
+`The Yankees got swept, but it's hard not to feel like they’re coming out of this weekend as winners with Devers gone.`\
+https://nytimes.com/athletic/6428134/2025/06/15/yankees-analysis-rafael-devers-trade-red-sox/
+
+**2 of 4 Men Who Escaped From Immigration Detention Center Are Caught**\
+`The men had been on the lam for three days after breaking out of the Delaney Hall Detention Center in Newark.`\
+https://nytimes.com/2025/06/15/nyregion/newark-escapees-caught.html
+
 **MLB Trade Grades: Red Sox send Rafael Devers to Giants in stunning swap**\
 `The Red Sox got a package of players and salary relief in exchange for their franchise player. Was it enough?`\
-https://nytimes.com/athletic/6428103/2025/06/15/mlb-trade-grades-red-sox-send-rafael-devers-to-giants-in-stunning-swap/
+https://nytimes.com/athletic/6428103/2025/06/15/rafael-devers-red-sox-giants-mlb-trade-grades/
 
 **Grizzlies, Magic share similarities. In Desmond Bane trade, they make opposite bets**\
 `With this deal, Orlando's core is clearly defined, and Memphis has the assets to keep reshaping its roster.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6427957/2025/06/15/red-sox-win-yankees-brayan-bello
 **Red Sox trade Rafael Devers to Giants for Kyle Harrison, more: Sources**\
 `In 73 games this season (all at designated hitter), Devers was hitting .272 with a .905 OPS and 15 homers.`\
 https://nytimes.com/athletic/6428043/2025/06/15/san-francisco-giants-rafael-devers-trade/
-
-**Randi Weingarten Quits D.N.C. Post in Dispute With Chairman**\
-`In a letter to the party’s chairman, Ken Martin, Ms. Weingarten wrote, “I appear to be out of step with the leadership you are forging.”`\
-https://nytimes.com/2025/06/15/us/politics/randi-weingarten-dnc-ken-martin.html
-
-**Sticky Stuff**\
-`Jill Rafaloff and Michelle Sontarp start from the beginning.`\
-https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
 
