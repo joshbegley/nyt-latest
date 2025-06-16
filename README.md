@@ -1,3 +1,7 @@
+**To Protest Budget Cuts, Young Scientists Try Letters to the Editor**\
+`Hundreds of graduate students are writing to their hometown newspapers to defend their research, as the Trump administration drastically reduces science funding.`\
+https://nytimes.com/2025/06/16/science/science-budget-cuts-protest-letters.html
+
 **Iran Has Sustained Blow After Blow Since October 2023**\
 `Iran is often portrayed as one of the world’s most dangerous actors. But with attacks on its defenses, nuclear sites and proxy militias, Israel has exposed a compromised and weakened adversary.`\
 https://nytimes.com/2025/06/16/world/middleeast/iran-military-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/well/ticks-climate-change.html
 **NASCAR Mexico City takeaways: A highlight weekend for the sport; van Gisbergen, Suárez shine**\
 `The enthusiasm from Mexican fans made the weekend a success before cars even raced, Shane Van Gisbergen scored a banner win and more.`\
 https://nytimes.com/athletic/6429046/2025/06/16/nascar-mexico-city-takeaways-fans-shane-van-gisbergen/
-
-**Trump’s Trade and Tax Policies Start to Stall U.S. Battery Boom**\
-`Battery companies are slowing construction or reconsidering big investments in the United States because of tariffs on China and the proposed rollback of tax credits.`\
-https://nytimes.com/2025/06/16/business/energy-environment/trump-battery-factories-electric-vehicles.html
 
