@@ -1,3 +1,11 @@
+**How the Trump Era Changed Trump**\
+`The president is still the attention-loving, payback-obsessed main character that he was in 2015. But his four years out of office drove him to turn grievance into vengeance.`\
+https://nytimes.com/2025/06/16/us/politics/trump-decade-washington.html
+
+**Iran’s Best-Protected Nuclear Site Is Deep Underground**\
+`Only the U.S. military has the 30,000-pound bomb capable of reaching the facility and the bomber that can carry it.`\
+https://nytimes.com/2025/06/16/us/politics/iran-nuclear-site-israel.html
+
 **E.P.A. Plans to Reconsider a Ban on Cancer-Causing Asbestos**\
 `The Trump administration’s move sets back a decades-long effort to end the use of the material, which is widely banned in other countries.`\
 https://nytimes.com/2025/06/16/us/epa-trump-asbestos-ban-delay.html
