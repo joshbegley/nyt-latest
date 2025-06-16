@@ -1,3 +1,7 @@
+**MLB Trade Grades: Red Sox send Rafael Devers to Giants in stunning swap**\
+`The Red Sox got a package of players and salary relief in exchange for their franchise player. Was it enough?`\
+https://nytimes.com/athletic/6428103/2025/06/15/mlb-trade-grades-red-sox-send-rafael-devers-to-giants-in-stunning-swap/
+
 **Grizzlies, Magic share similarities. In Desmond Bane trade, they make opposite bets**\
 `With this deal, Orlando's core is clearly defined, and Memphis has the assets to keep reshaping its roster.`\
 https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-magic-nba/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-mag
 `Spaun needed to two-putt from 64 feet to win the U.S. Open. He only needed one.`\
 https://nytimes.com/athletic/6427924/2025/06/15/us-open-jj-spaun-win-putt/
 
-**Palmeiras 0 Porto 0 - No goals in group A but 'Ronaldo' arrives at the Club World Cup**\
-`Analysis of the second Club World Cup group A game`\
+**Palmeiras 0 Porto 0 - No goals in Group A but 'Ronaldo' arrives at the Club World Cup**\
+`Both matches to open play in Group A at the Club World Cup have ended 0-0, keeping things wide open.`\
 https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-highlights/
 
 **USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/politics/randi-weingarten-dnc-ken-martin.html
 **Sticky Stuff**\
 `Jill Rafaloff and Michelle Sontarp start from the beginning.`\
 https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
-
-**George Russell's Canadian GP victory under threat as Red Bull lodges protests**\
-`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday, but this is at risk after a Red Bull protest`\
-https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
 

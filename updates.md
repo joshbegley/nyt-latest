@@ -1,3 +1,11 @@
+**MLB Trade Grades: Red Sox send Rafael Devers to Giants in stunning swap**\
+`The Red Sox got a package of players and salary relief in exchange for their franchise player. Was it enough?`\
+https://nytimes.com/athletic/6428103/2025/06/15/mlb-trade-grades-red-sox-send-rafael-devers-to-giants-in-stunning-swap/
+
+**Palmeiras 0 Porto 0 - No goals in Group A but 'Ronaldo' arrives at the Club World Cup**\
+`Both matches to open play in Group A at the Club World Cup have ended 0-0, keeping things wide open.`\
+https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-highlights/
+
 **Grizzlies, Magic share similarities. In Desmond Bane trade, they make opposite bets**\
 `With this deal, Orlando's core is clearly defined, and Memphis has the assets to keep reshaping its roster.`\
 https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-magic-nba/
