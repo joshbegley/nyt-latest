@@ -1,3 +1,7 @@
+**Lowetide: Where have all the Oilers' outlet passes gone?**\
+`The goal for the Oilers in Game 6 is to find a way to spend less time in their own zone.`\
+https://nytimes.com/athletic/6427417/2025/06/16/edmonton-oilers-stanley-cup-final-2025-passing/
+
 **Turning a Page, Germans Try Celebrating Their Recent Veterans**\
 `In a changed world, Germany’s government is trying to recruit more soldiers. A first step? Getting citizens to appreciate their military again.`\
 https://nytimes.com/2025/06/16/world/europe/germany-veterans-day-celebration-military.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/06/16/books/review/michelle-huneven-bug-hollow.html
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/16/world/iran-israel-news/irans-nuclear-sites-have-not-been-further-damaged-the-uns-atomic-agency-says
 
-**The Bounce: 3 keys for Thunder, Pacers to win NBA Finals. Plus, how Desmond Bane deal changes East**\
+**The Bounce: Keys for Thunder, Pacers to win NBA Finals. Plus, how Desmond Bane deal changes East**\
 `The Pacers might be kicking themselves for the NBA Finals being tied 2-2, but there's still a path to securing a ring`\
 https://nytimes.com/athletic/6428906/2025/06/16/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-desmond-bane-trade-magic-the-bounce/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/16/books/review/adventure-movie-novels.h
 **History Is Alive in All of Us**\
 `Whether we realize it or not, every decision we make contributes to our collective history.`\
 https://nytimes.com/2025/06/16/special-series/isabel-wilkerson-great-migration-history.html
-
-**Gonzalo Garcia Appointed Artistic Director of Miami City Ballet**\
-`Garcia, a former principal at New York City Ballet and San Francisco Ballet, takes over as Miami City celebrates its 40th anniversary.`\
-https://nytimes.com/2025/06/16/arts/dance/gonzalo-garcia-artistic-director-miami-city-ballet.html
 
