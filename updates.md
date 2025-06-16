@@ -1,3 +1,7 @@
+**As U.S. Aid Dries Up, West Africa Fights Expanding Jihadist Threat**\
+`Insurgents are expanding from West Africa’s Sahel region toward Atlantic coastal nations such as Ivory Coast, creating new terrorism hot spots and displacing millions.`\
+https://nytimes.com/2025/06/16/world/africa/africa-terrorism-trump-ivory-coast.html
+
 **How to save 11 match points in tennis – and a slice masterclass on the Queen's grass**\
 `Elise Mertens' remarkable escape came on her way to the title in 's-Hertogenbosch, the Netherlands.`\
 https://nytimes.com/athletic/6427123/2025/06/16/tennis-most-match-points-saved-mertens-hertogenbosch/
