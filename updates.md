@@ -1,3 +1,15 @@
+**Read the Federal Complaint Against Man Charged in Minnesota Assassination**\
+`Federal officials described new details about the actions of a man accused in assassination of a Minnesota lawmaker, along with federal charges against him.`\
+https://nytimes.com/interactive/2025/06/16/us/minnesota-suspect-federal-murder-charges.html
+
+**The ‘Hot Fellas’ Bakery Was Real, at Least for One Weekend**\
+`Generations of “Sex and the City” fans turned up for an event in which a Manhattan cafe transformed itself into the bakery from HBO Max’s “And Just Like That …”`\
+https://nytimes.com/2025/06/16/style/hot-fellas-bakery-and-just-like-that-pop-up.html
+
+**Scenes From the ‘No Kings’ Rallies and the Military Parade**\
+`Readers reflect on the anti-Trump demonstrations and the military parade on Saturday. Also: Transgender troops.`\
+https://nytimes.com/2025/06/16/opinion/trump-no-kings-rallies-parade.html
+
 **On Immigration, Trump Runs Into Reality**\
 `The president changed his deportation policy last week. The result reflects an ad hoc compromise that governs U.S. immigration policy.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/trump-immigration-policy-change-brooke-rollins
