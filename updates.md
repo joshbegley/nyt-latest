@@ -1,3 +1,15 @@
+**Scenes From the ‘No Kings’ Rallies and the Military Parade**\
+`Readers reflect on the anti-Trump rallies and the military parade on Saturday. Also: Transgender troops.`\
+https://nytimes.com/2025/06/16/opinion/trump-no-kings-rallies-parade.html
+
+**Beuford Smith, Photographer Who Chronicled Black Life, Dies at 89**\
+`He was a prominent member of the Kamoinge Workshop, a collective that nurtured Black photographers at a time when they were marginalized by the mainstream.`\
+https://nytimes.com/2025/06/16/arts/beuford-smith-dead.html
+
+**Why USA Hockey didn't name an Olympic goalie, and why the competition could be fierce**\
+`Expect the evaluation of Hellebuyck, Oettinger and others to continue into next season.`\
+https://nytimes.com/athletic/6426449/2025/06/16/usa-olympics-hellebuyck-oettinger/
+
 **Giancarlo Stanton has returned. What it means for the Yankees' roster, lineup**\
 `Stanton re-joins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
 https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return/
