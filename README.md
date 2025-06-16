@@ -1,3 +1,11 @@
+**Man Utd CEO Omar Berrada says 'worst bit is behind us'**\
+`"There’s a clear idea of what we want to do, what players we want to get," Berrada added.`\
+https://nytimes.com/athletic/6429539/2025/06/16/manchester-united-berrada-amorim/
+
+**Why Jonathan David is captaining Canada for first time at Gold Cup**\
+`The Canadian star forward will take on some added responsibility as he seeks to guide his team to its first trophy in 25 years.`\
+https://nytimes.com/athletic/6430634/2025/06/16/jonathan-david-canada-captain-gold-cup-marsch/
+
 **Minnesota Assassin Posed as Police Officer to Carry Out Shootings**\
 `Impersonating a police officer is a tactic sometimes used by criminals to win victims’ trust, police say.`\
 https://nytimes.com/live/2025/06/16/us/minnesota-shootings/police-impersonation
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/us/naval-academy-race-admissions-lawsuit.html
 **Banned From YouTube, but Welcomed by Eric Adams at Gracie Mansion**\
 `Mayor Adams did an hourlong interview with Sneako, a streamer who has made remarks many consider antisemitic. The conservative influencer Amber Rose was also present.`\
 https://nytimes.com/2025/06/16/nyregion/adams-sneako-interview.html
-
-**Bat Cave Footage Offers Clues to How Viruses Leap Between Species**\
-`Video from a national park in Uganda depicted a parade of predatory species feeding on and dispersing fruit bats that are known natural reservoirs of infectious diseases.`\
-https://nytimes.com/2025/06/16/science/bats-cave-spillover-uganda.html
-
-**FIFA drops anti-racism, anti-discrimination messages for Club World Cup**\
-`The messaging has not been visible during the opening round of fixtures at the tournament in stadiums or on social media platforms.`\
-https://nytimes.com/athletic/6430673/2025/06/16/fifa-club-world-cup-racism-discrimination-message/
 
