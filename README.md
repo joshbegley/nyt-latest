@@ -1,3 +1,7 @@
+**A Timeline of the Minnesota Shootings**\
+`A manhunt is underway for a man suspected in the killing on Saturday of a state lawmaker and her husband and in the shooting of another lawmaker and his wife. Here is how the events unfolded.`\
+https://nytimes.com/2025/06/15/us/minnesota-shooting-timeline.html
+
 **1 Killed in Shooting at a ‘No Kings’ Protest in Salt Lake City**\
 `A bystander was fatally shot after security members at the demonstration confronted a man who was running toward the crowd with an AR-15-style rifle, the police said.`\
 https://nytimes.com/2025/06/15/us/politics/no-kings-protest-shooting-salt-lake-city.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/15/nyregion/newark-escapees-caught.html
 **MLB Trade Grades: Red Sox send Rafael Devers to Giants in stunning swap**\
 `The Red Sox got a package of players and salary relief in exchange for their franchise player. Was it enough?`\
 https://nytimes.com/athletic/6428103/2025/06/15/rafael-devers-red-sox-giants-mlb-trade-grades/
-
-**Grizzlies, Magic share similarities. In Desmond Bane trade, they make opposite bets**\
-`With this deal, Orlando's core is clearly defined, and Memphis has the assets to keep reshaping its roster.`\
-https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-magic-nba/
 
