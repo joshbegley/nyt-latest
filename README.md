@@ -1,3 +1,7 @@
+**Sevilla appoint Matias Almeyda as head coach**\
+`Almeyda has signed a three-year deal at Sevilla, who finished 2024-25 in 17th, just one point and one place above the relegation zone`\
+https://nytimes.com/athletic/6429545/2025/06/16/sevilla-manager-matias-almeyda/
+
 **Leonard Lauder Was Beauty’s Original Influencer**\
 `It’s possible Kylie Jenner and Hailey Bieber would not have become cosmetic moguls without him.`\
 https://nytimes.com/2025/06/16/style/leonard-lauder-beauty-influencer.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/6429463/2025/06/16/notre-dame-football-mailbag-ques
 **‘Where Can I Go?’ Iranians Weigh Escaping Tehran**\
 `In a city under attack, residents encounter gas stations that are closing because there is no fuel, and disruptions to internet and phone service.`\
 https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
-
-**Watching the three Nottingham Forest-bound Brazilians play at the Club World Cup**\
-`Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano – and two of them scored for Botafogo on Sunday
-
-`\
-https://nytimes.com/athletic/6429059/2025/06/16/igor-jesus-jair-cunha-cuiabano-botafogo-nottingham-forest/
 
