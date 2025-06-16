@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The Mailbag returns this week after an extended offseason hiatus. What&#8217;s on your mind?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6428313/2025/06/15/submit-a-question-for-stewart-mandels-college-football-mailbag-302/
+
 **Heavy Rain Brings Flash Floods to West Virginia**\
 `Water levels rose at Wheeling Creek in Wheeling, W.Va., where the fire department said search and dive operations took place.`\
 https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6427924/2025/06/15/us-open-jj-spaun-win-putt/
 **Palmeiras 0 Porto 0 - No goals in Group A but 'Ronaldo' arrives at the Club World Cup**\
 `Both matches to open play in Group A at the Club World Cup have ended 0-0, keeping things wide open.`\
 https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-highlights/
-
-**USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
-`Malik Tillman's double set the tone early for a U.S. squad in desperate need of a slump-busting victory`\
-https://nytimes.com/athletic/6427962/2025/06/15/usmnt-trinidad-tobago-tillman-luna-pochettino/
 

@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The Mailbag returns this week after an extended offseason hiatus. What&#8217;s on your mind?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6428313/2025/06/15/submit-a-question-for-stewart-mandels-college-football-mailbag-302/
+
 **Heavy Rain Brings Flash Floods to West Virginia**\
 `Water levels rose at Wheeling Creek in Wheeling, W.Va., where the fire department said search and dive operations took place.`\
 https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.html
