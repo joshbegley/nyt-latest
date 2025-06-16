@@ -1,3 +1,7 @@
+**Why USA Hockey didn't name an Olympic goalie, and why the competition could be fierce**\
+`Expect the evaluation of Hellebuyck, Oettinger and others to continue into next season.`\
+https://nytimes.com/athletic/6426449/2025/06/16/usa-olympics-hellebuyck-oettinger/
+
 **Giancarlo Stanton has returned. What it means for the Yankees' roster, lineup**\
 `Stanton re-joins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
 https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/arts/music/amoc-lincoln-center-summer-festival.ht
 **Ukraine Takes First Step Toward Carrying Out Minerals Deal With U.S.**\
 `The government is trying to show the Trump administration that it can deliver on the agreement.`\
 https://nytimes.com/2025/06/16/world/europe/us-ukraine-minerals-deal.html
-
-**‘The Age of Trump’ Enters Its Second Decade**\
-`Ten years after he descended the Trump Tower escalator to announce his campaign for the White House, President Trump has come to dominate his era like few presidents ever have.`\
-https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
 
