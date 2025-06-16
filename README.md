@@ -1,3 +1,7 @@
+**Efton Chism was the darling of the Patriots' spring. Now, can he make the team?**\
+`The undrafted rookie out of Eastern Washington has turned heads as a slot receiver this spring. What are his chances of sticking around?`\
+https://nytimes.com/athletic/6422235/2025/06/16/efton-chism-patriots-53-man-roster/
+
 **Mamdani and Blake Will Cross-Endorse in N.Y.C. Mayor’s Race**\
 `Zohran Mamdani, a front-runner in the New York City mayor’s race, will announce a second cross-endorsement with Michael Blake, a former state lawmaker.`\
 https://nytimes.com/2025/06/16/nyregion/mamdani-blake-nyc-mayors-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/climate/federal-workplace-heat-rules.html
 **Is It OK for Me to Wear Camo in This Political Climate?**\
 `With wars in Ukraine and the Middle East and political unrest in the United States, borrowing military aesthetics for fashion is a loaded choice. Our critic explains why she’s shifted her stance on the topic.`\
 https://nytimes.com/2025/06/16/fashion/camo-clothing-military-politics.html
-
-**Our Advice to Voters in a Vexing Race for New York Mayor**\
-`New Yorkers deserve better than the status quo.`\
-https://nytimes.com/2025/06/16/opinion/new-york-mayor-election-advice.html
 

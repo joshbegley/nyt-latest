@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Natan Odenheimer and Andrés R. Martínez`\
-https://nytimes.com/live/2025/06/16/world/iran-israel-news/heres-the-latest
+**Mamdani and Blake Will Cross-Endorse in N.Y.C. Mayor’s Race**\
+`Zohran Mamdani, a front-runner in the New York City mayor’s race, will announce a second cross-endorsement with Michael Blake, a former state lawmaker.`\
+https://nytimes.com/2025/06/16/nyregion/mamdani-blake-nyc-mayors-race.html
 
-**Live Updates: Israel Says It Attacked Headquarters of Powerful Iranian Military Unit**\
-`Israel’s military said it had struck the headquarters of the Quds Force, which reports directly to Iran’s supreme leader. The claim could not be immediately confirmed.`\
-https://nytimes.com/live/2025/06/16/world/iran-israel-news
+**Minnesota Manhunt and Arrest: What We Know**\
+`After a gunman killed a lawmaker and wounded another, officials scrambled in what they called the largest manhunt in Minnesota’s history. The suspect was arrested in a rural field on Sunday.`\
+https://nytimes.com/2025/06/16/us/minnesota-lawmakers-manhunt-what-to-know.html
 
-**Iran-Israel Strikes Continue Into Fourth Day**\
-`Iran’s deadly strike on Monday hit Israeli residential buildings and energy infrastructure, while Israel said it targeted the Quds Force military command centers.`\
-https://nytimes.com/video/world/middleeast/100000010231205/petah-tikva-israel-iran-missile-strike.html
+**Seven Panthers minicamp takeaways: Bryce Young's growth, tough WR decisions**\
+`Signs pointing toward an even better Bryce Young: second season in same offense, another playmaker at WR and he's being more vocal.`\
+https://nytimes.com/athletic/6425946/2025/06/16/panthers-minicamp-takeaways-bryce-young-rookies/
 
-**Stocks Tread Cautiously as Investors Watch Oil Prices**\
-`As Israel and Iran exchanged more attacks, stock markets mostly rose even as worries remained about possible oil supply interruptions.`\
-https://nytimes.com/2025/06/16/business/stocks-oil-prices-israel-iran.html
+**Slain Minnesota Lawmaker Remembered as Pragmatic Problem Solver**\
+`Colleagues described Representative Melissa Hortman as a skilled, conciliatory lawmaker who was at once steely and warm.`\
+https://nytimes.com/2025/06/16/us/minnesota-slaying-melissa-hortman.html
 
-**Go Ask Your Father**\
-`Putting big, burning questions to Dad.`\
-https://nytimes.com/2025/06/16/podcasts/go-ask-your-father-this-american-life-nyt-audio.html
+**Trump’s Strategy in Law Firm Cases: Lose, Don’t Appeal, Yet Prevail**\
+`The handful of notable firms that were targeted by the president for punishment but chose to fight have uniformly won. Nine others have nonetheless pledged almost $1 billion in free legal work.`\
+https://nytimes.com/2025/06/16/us/politics/trump-strategy-law-firms-appeals.html
 
-**Lloris says Club World Cup participants 'have to adapt to schedule'**\
-`The LAFC goalkeeper insists the top European clubs participating do not face greater challenges than opponents from the rest of the world.`\
-https://nytimes.com/athletic/6428658/2025/06/16/club-world-cup-chelsea-lafc-lloris/
+**Crowning New York’s Top ‘Pigeon’**\
+`Thousands of people gathered on the High Line on Saturday for Pigeon Fest, inspired by an artist’s sculpture and an appreciation for the city’s most resilient birds.`\
+https://nytimes.com/2025/06/16/arts/design/pigeon-fest-high-line.html
 
-**Iranian Strikes Kill at Least 8 in Israel as Conflict Enters Fourth Day**\
-`Dozens of others were injured overnight across Israel, the authorities said. Israel was striking military sites in Iran and the four-day-old conflict showed no sign of slowing.`\
-https://nytimes.com/2025/06/16/world/middleeast/petah-tikva-israel-iran-missile-strike.html
+**Steelers OTAs/ minicamp takeaways: Defense evolving, position battle updates**\
+`Could playing more quarters coverage? For a man-heavy defense, that could allow the Steelers to disguise more of their coverages.`\
+https://nytimes.com/athletic/6425985/2025/06/16/steelers-minicamp-takeaways-defense/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/16/crosswords/spelling-bee-forum.html
+**Will Trump End the First Federal Heat Protections for Workers?**\
+`As workplace deaths from heat increase, OSHA will debate the future of the first federal rules to protect workers from extreme heat.`\
+https://nytimes.com/2025/06/16/climate/federal-workplace-heat-rules.html
 
-**In stunning trade for Rafael Devers, the Giants finally land a big bat**\
-`Clearly, Buster Posey has paid attention to all the failed dalliances to land sluggers like Aaron Judge and Shohei Ohtani, among others.`\
-https://nytimes.com/athletic/6428605/2025/06/16/rafael-devers-giants-trade-baggarly/
+**Is It OK for Me to Wear Camo in This Political Climate?**\
+`With wars in Ukraine and the Middle East and political unrest in the United States, borrowing military aesthetics for fashion is a loaded choice. Our critic explains why she’s shifted her stance on the topic.`\
+https://nytimes.com/2025/06/16/fashion/camo-clothing-military-politics.html
 
-**Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
-`With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the Brazilian and MLS sides was surely a must-win`\
-https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
+**Our Advice to Voters in a Vexing Race for New York Mayor**\
+`New Yorkers deserve better than the status quo.`\
+https://nytimes.com/2025/06/16/opinion/new-york-mayor-election-advice.html
 
