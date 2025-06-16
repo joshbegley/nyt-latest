@@ -1,3 +1,7 @@
+**Arkansas' Gage Wood makes CWS history with no-hitter, strikes out record 19**\
+`Arkansas will face the winer of UCLA and LSU on Tuesday.`\
+https://nytimes.com/athletic/6430474/2025/06/16/arkansas-gage-wood-cws-history-no-hitter/
+
 **Tuesday Briefing: Israel Attacked Iranian State TV**\
 `Plus, China’s soft-power toy.`\
 https://nytimes.com/2025/06/16/briefing/iran-israel-attacks-minnesota-killing-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/world/middleeast/iran-israel-west-bank-missiles.h
 **Trump Fires Nuclear Safety Board Member Who Led Agency Under Biden**\
 `The dismissal came as President Trump considers signing several executive orders aimed at cutting regulations for nuclear power plants.`\
 https://nytimes.com/2025/06/16/us/nuclear-safety-board-firing-trump.html
-
-**Ralph J. Lamberti Jr., Former Staten Island Borough President, Dies at 90**\
-`He served from 1984 to 1989, and sought to maintain checks and balances in city government to prevent against what he called “an imperial mayor.”`\
-https://nytimes.com/2025/06/16/nyregion/ralph-j-lamberti-jr-dead.html
 
