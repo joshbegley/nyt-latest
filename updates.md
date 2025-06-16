@@ -1,3 +1,15 @@
+**Monday Briefing: Iran-Israel Conflict Continues**\
+`Plus, the Dalai Lama’s succession.`\
+https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-lawmaker-assassin-air-india.html
+
+**The New York Times in Print for Monday, June 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/16/todays-new-york-times
+
+**‘We Were Liars,’ Plus 7 Things to Watch on TV This Week**\
+`The adaptation of E. Lockhart’s Y.A. horror novel comes to Prime Video, and “The Gilded Age” returns for a third season.`\
+https://nytimes.com/2025/06/16/arts/television/what-to-watch-this-week.html
+
 **Suspect Arrested for Murder of Minnesota Lawmaker**\
 `The arrest of Vance Boelter ended a two-day manhunt after the assassination of State Representative Melissa Hortman and her husband, and the attempted assassination of others.`\
 https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
