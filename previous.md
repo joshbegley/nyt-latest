@@ -1,4 +1,8 @@
-**Rafael Devers is no longer with the Red Sox. The Yankees must be thrilled with the trade**\
+**Braves takeaways: Grant Holmes' big day wasted, bullpen struggles, Mets up next**\
+`The Braves' momentum vanished with a dispiriting loss to the Rockies, and the NL East-leading Mets are coming to town.`\
+https://nytimes.com/athletic/6428009/2025/06/15/braves-takeaways-grant-holmes-bullpen-offense-struggle/
+
+**'Yankees-killer' Rafael Devers is no longer with the Red Sox. New York must be thrilled**\
 `The Yankees got swept, but it's hard not to feel like they're coming out of this weekend as winners with Devers gone.`\
 https://nytimes.com/athletic/6428134/2025/06/15/yankees-analysis-rafael-devers-trade-red-sox/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427999/2025/06/15/yankees-takeaways-swept-by-red-s
 **Red Sox takeaways: Brayan Bello dominates in key weekend sweep of Yankees**\
 `Boston's offense found a way to beat one of the best starters in baseball in its 2-0 win over New York on Sunday.`\
 https://nytimes.com/athletic/6427957/2025/06/15/red-sox-win-yankees-brayan-bello-sweep/
-
-**Red Sox trade Rafael Devers to Giants for Kyle Harrison, more**\
-`In 73 games this season (all at designated hitter), Devers was hitting .272 with a .905 OPS and 15 homers.`\
-https://nytimes.com/athletic/6428043/2025/06/15/san-francisco-giants-rafael-devers-trade/
 
