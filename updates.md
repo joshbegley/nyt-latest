@@ -1,3 +1,15 @@
+**Nina Kuscsik, Marathoner Who Broke Gender Barriers, Dies at 86**\
+`Overcoming male resistance, she became the first woman to enter the New York City Marathon and the first official female winner of the Boston event.`\
+https://nytimes.com/2025/06/16/sports/nina-kuscsik-dead.html
+
+**Federal Official Explains Minnesota Shootings Details**\
+`State and federal officials announced charges, including murder, stalking and firearms offenses against Vance Boelter on Monday, who has been accused of assassinating a Minnesota state lawmaker and injuring another during multiple shootings.`\
+https://nytimes.com/video/us/100000010232578/federal-official-explains-minnesota-shootings-details.html
+
+**Submit your Canucks questions for Thomas Drance's mailbag**\
+`Got a question about the Canucks as the NHL Draft and free agency approach?`\
+https://nytimes.com/athletic/6430660/2025/06/16/vancouver-canucks-mailbag-june-2025/
+
 **After Lawmaker’s Death, Democrats Dismiss Concerns Over Balance of Power**\
 `Before Representative Melissa Hortman’s death, the state’s House was evenly divided. The governor has until next February to fill her seat before the next legislative session.`\
 https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html

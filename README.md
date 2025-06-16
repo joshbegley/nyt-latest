@@ -1,3 +1,11 @@
+**Israel Attacked Iran’s State TV**\
+`Also, the suspect in the Minnesota killings could face the death penalty. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-shootings-irish-cottage.html
+
+**Watch: How Karl Smesko's coaching philosophy has enabled Atlanta Dream's fast start**\
+`No Offseason discuss Karl Smesko’s coaching style, philosophy and why he’s been able to hit the ground running in Atlanta.`\
+https://nytimes.com/athletic/6428807/2025/06/16/no-offseason-wnba-atlanta-dream-karl-smesko/
+
 **Nina Kuscsik, Marathoner Who Broke Gender Barriers, Dies at 86**\
 `Overcoming male resistance, she became the first woman to enter the New York City Marathon and the first official female winner of the Boston event.`\
 https://nytimes.com/2025/06/16/sports/nina-kuscsik-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/us/ann-rest-minnesota-state-senator-shooting.html
 **Arkansas' Gage Wood makes CWS history with no-hitter, strikes out record 19**\
 `Arkansas will face the winer of UCLA and LSU on Tuesday.`\
 https://nytimes.com/athletic/6430474/2025/06/16/arkansas-gage-wood-cws-history-no-hitter/
-
-**Tuesday Briefing: Israel Attacked Iranian State TV**\
-`Plus, China’s soft-power toy.`\
-https://nytimes.com/2025/06/16/briefing/iran-israel-attacks-minnesota-killing-suspect.html
-
-**Former Shohei Ohtani interpreter Ippei Mizuhara reports to prison**\
-`Mizuhara stole nearly $17 million from MLB star to cover gambling debts.`\
-https://nytimes.com/athletic/6430511/2025/06/16/shohei-ohtani-interpreter-ippei-mizuhara-prison/
 
