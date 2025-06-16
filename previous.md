@@ -1,3 +1,7 @@
+**On Immigration, Trump Runs Into Reality**\
+`The president changed his deportation policy last week. The result reflects an ad hoc compromise that governs U.S. immigration policy.`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/trump-immigration-policy-change-brooke-rollins
+
 **Spurs in touch with Manor Solomon after winger stranded in Israel amid Iran conflict**\
 `Solomon, who spent last season on loan in the Championship with Leeds, had returned to Israel to get married.`\
 https://nytimes.com/athletic/6429185/2025/06/16/tottenham-manor-solomon-israel-iran/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return
 **Chelsea make verbal enquiry for Lyon winger Fofana**\
 `The 20-year-old Belgium international is among a number of options being considered and conversations are ongoing.`\
 https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
-
-**Supreme Court to Hear Case on Subpoena to Anti-Abortion Pregnancy Centers**\
-`The question for the justices is whether the centers may pursue a First Amendment challenge to a state subpoena seeking donor information in federal court.`\
-https://nytimes.com/2025/06/16/us/politics/supreme-court-pregnancy-centers.html
 

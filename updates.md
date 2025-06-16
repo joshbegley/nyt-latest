@@ -1,3 +1,7 @@
+**On Immigration, Trump Runs Into Reality**\
+`The president changed his deportation policy last week. The result reflects an ad hoc compromise that governs U.S. immigration policy.`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/trump-immigration-policy-change-brooke-rollins
+
 **Spurs in touch with Manor Solomon after winger stranded in Israel amid Iran conflict**\
 `Solomon, who spent last season on loan in the Championship with Leeds, had returned to Israel to get married.`\
 https://nytimes.com/athletic/6429185/2025/06/16/tottenham-manor-solomon-israel-iran/

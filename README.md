@@ -1,3 +1,11 @@
+**Read the Federal Complaint Against Man Charged in Minnesota Assassination**\
+`Federal officials described new details about the actions of a man accused in assassination of a Minnesota lawmaker, along with federal charges against him.`\
+https://nytimes.com/interactive/2025/06/16/us/minnesota-suspect-federal-murder-charges.html
+
+**The ‘Hot Fellas’ Bakery Was Real, at Least for One Weekend**\
+`Generations of “Sex and the City” fans turned up for an event in which a Manhattan cafe transformed itself into the bakery from HBO Max’s “And Just Like That …”`\
+https://nytimes.com/2025/06/16/style/hot-fellas-bakery-and-just-like-that-pop-up.html
+
 **On Immigration, Trump Runs Into Reality**\
 `The president changed his deportation policy last week. The result reflects an ad hoc compromise that governs U.S. immigration policy.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/trump-immigration-policy-change-brooke-rollins
@@ -19,7 +27,7 @@ https://nytimes.com/video/world/asia/100000010231141/there-was-no-time-to-run-ca
 https://nytimes.com/2025/06/16/world/middleeast/kaine-trump-war-powers.html
 
 **Scenes From the ‘No Kings’ Rallies and the Military Parade**\
-`Readers reflect on the anti-Trump rallies and the military parade on Saturday. Also: Transgender troops.`\
+`Readers reflect on the anti-Trump demonstrations and the military parade on Saturday. Also: Transgender troops.`\
 https://nytimes.com/2025/06/16/opinion/trump-no-kings-rallies-parade.html
 
 **Beuford Smith, Photographer Who Chronicled Black Life, Dies at 89**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/arts/beuford-smith-dead.html
 **Why USA Hockey didn't name an Olympic goalie, and why the competition could be fierce**\
 `Expect the evaluation of Hellebuyck, Oettinger and others to continue into next season.`\
 https://nytimes.com/athletic/6426449/2025/06/16/usa-olympics-hellebuyck-oettinger/
-
-**Giancarlo Stanton has returned. What it means for the Yankees' roster, lineup**\
-`Stanton rejoins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
-https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return/
-
-**Chelsea make verbal enquiry for Lyon winger Fofana**\
-`The 20-year-old Belgium international is among a number of options being considered and conversations are ongoing.`\
-https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
 
