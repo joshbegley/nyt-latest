@@ -1,3 +1,11 @@
+**FIFA spent more than $50m on Club World Cup marketing to boost ticket sales**\
+`The Club World Cup has been beset by organisational challenges ahead of the first edition of the revamped 32-team tournament in the U.S.`\
+https://nytimes.com/athletic/6426250/2025/06/16/fifa-club-world-cup-marketing/
+
+**Mike Lee Draws Outrage for Posts Blaming Assassination on the Far Left**\
+`The Republican senator from Utah suggested in social media posts that the killings were the work of “Marxists,” and mocked Minnesota’s Democratic governor. He later issued a more sober condemnation of the violence.`\
+https://nytimes.com/2025/06/16/us/politics/mike-lee-minnesota-assassination-democrats.html
+
 **Israeli Strike Hits Iranian State TV Broadcaster**\
 `Black smoke billowed from the Iranian state TV headquarters after an Israeli strike hit the building on Monday. The attack comes as the fighting between Israel and Iran show no signs of slowing down.`\
 https://nytimes.com/video/world/middleeast/100000010232594/israel-strike-iran-broadcast-tv-conflict.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/us/dominican-republic-nightclub-owner-roof-collap
 **Potential Sheffield Wednesday owner calls for 55,000-seater stadium**\
 `Wednesday have not been in the Premier League since 2000 and have spent the past 25 years yo-yoing between the second and third tiers.`\
 https://nytimes.com/athletic/6429823/2025/06/16/sheffield-wednesday-stadium-takeover/
-
-**PWHL Vancouver signs top free agents Hannah Miller and Tereza Vanisová**\
-`Miller was ranked as the league's No. 1 free agent by The Athletic.`\
-https://nytimes.com/athletic/6429961/2025/06/16/pwhl-vancouver-miller-vanisova/
-
-**Louvre Staff’s Work Stoppage Shutters Museum for Hours**\
-`Visitors were left stranded outside in Paris on Monday after a monthly union meeting led to a wildcat strike over workplace conditions and crowding.`\
-https://nytimes.com/2025/06/16/arts/design/louvre-staff-strikes-tourism.html
 

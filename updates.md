@@ -1,3 +1,11 @@
+**Israeli Strike Hits Iranian State TV Broadcaster**\
+`Black smoke billowed from the Iranian state TV headquarters after an Israeli strike hit the building on Monday. The attack comes as the fighting between Israel and Iran show no signs of slowing down.`\
+https://nytimes.com/video/world/middleeast/100000010232594/israel-strike-iran-broadcast-tv-conflict.html
+
+**Kepner: For rudderless Red Sox, Mookie Betts is the ghost in the machine**\
+`The Dodgers star has been a specter hovering over the Red Sox' moves – including the Rafael Devers trade – since his departure from Boston.`\
+https://nytimes.com/athletic/6430228/2025/06/16/mookie-betts-red-sox-trade-rafael-devers/
+
 **The Minnesota suspect traveled to four lawmakers’ homes on the night of the attacks.**\
 `Officials said a man charged with shooting two lawmakers and their spouses was apparently thwarted at two other politicians’ homes.`\
 https://nytimes.com/live/2025/06/16/us/minnesota-shootings/minnesota-suspect-traveled-to-4-lawmakers-homes-on-night-of-attacks
