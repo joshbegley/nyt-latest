@@ -1,3 +1,7 @@
+**After Lawmaker’s Death, Democrats Dismiss Concerns Over Balance of Power**\
+`Before Representative Melissa Hortman’s death, the state’s House was evenly divided. The governor has until next February to fill her seat before the next legislative session.`\
+https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html
+
 **Israel Widens Attacks Against Iran, Striking Broadcaster**\
 `Israel’s escalated offensive indicates that its aims go beyond dismantling Iran’s nuclear program.`\
 https://nytimes.com/2025/06/16/world/middleeast/israel-iran-state-broadcaster-attack.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/06/16/world/middleeast/israel-iran-state-broadcaster-at
 `The new company says it will manufacture its Android phone in the United States but it has not said how it could do that.`\
 https://nytimes.com/2025/06/16/us/trump-mobile-phone.html
 
-**Minnesota State Senator Says Gunman Visited Her Street**\
+**Minnesota State Senator Says Accused Gunman Visited Her Street**\
 `State Senator Ann Rest, a Democrat, credited police officers who were proactively checking on her safety with sparing her from an attack.`\
 https://nytimes.com/2025/06/16/us/ann-rest-minnesota-state-senator-shooting.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/style/bodega-cats-new-york.html
 **Trump Has Reawakened the Resistance**\
 `Huge protests dwarf the administration’s sad military parade.`\
 https://nytimes.com/2025/06/16/opinion/trump-has-reawakened-the-resistance.html
-
-**'Go with the guy you trust the most': Why the Oilers must turn back to Stuart Skinner**\
-`"Skinner's got a higher upside," former NHL goalie Cory Schneider said. "His best is better than Cal Pickard's."`\
-https://nytimes.com/athletic/6430411/2025/06/16/oilers-game-6-skinner-pickard/
 

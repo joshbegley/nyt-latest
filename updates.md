@@ -1,3 +1,15 @@
+**Israel Widens Attacks Against Iran, Striking Broadcaster**\
+`Israel’s escalated offensive indicates that its aims go beyond dismantling Iran’s nuclear program.`\
+https://nytimes.com/2025/06/16/world/middleeast/israel-iran-state-broadcaster-attack.html
+
+**Trump Mobile Phone Company Announced by President’s Family, but Details Are Murky**\
+`The new company says it will manufacture its Android phone in the United States but it has not said how it could do that.`\
+https://nytimes.com/2025/06/16/us/trump-mobile-phone.html
+
+**Minnesota State Senator Says Gunman Visited Her Street**\
+`State Senator Ann Rest, a Democrat, credited police officers who were proactively checking on her safety with sparing her from an attack.`\
+https://nytimes.com/2025/06/16/us/ann-rest-minnesota-state-senator-shooting.html
+
 **Arkansas' Gage Wood makes CWS history with no-hitter, strikes out record 19**\
 `Arkansas will face the winer of UCLA and LSU on Tuesday.`\
 https://nytimes.com/athletic/6430474/2025/06/16/arkansas-gage-wood-cws-history-no-hitter/
