@@ -1,3 +1,7 @@
+**Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
+`With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the MLS and Brazilian sides was surely a must-win`\
+https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
+
 **What is Ethan Nwaneri's best position?**\
 `The Arsenal youngster had an unfamiliar role with England U21s and his versatility could be a great asset`\
 https://nytimes.com/athletic/6427674/2025/06/16/ethan-nwaneri-arsenal-best-position/
