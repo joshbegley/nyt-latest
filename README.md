@@ -1,3 +1,7 @@
+**Iranian Strikes Kill at Least 8 in Israel as Conflict Enters Fourth Day**\
+`Dozens of others were injured overnight across Israel, the authorities said. Israel was striking military sites in Iran and the four-day-old conflict showed no sign of slowing.`\
+https://nytimes.com/2025/06/16/world/middleeast/petah-tikva-israel-iran-missile-strike.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/16/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/16/todays-new-york-times
 **‘We Were Liars,’ Plus 7 Things to Watch on TV This Week**\
 `The adaptation of E. Lockhart’s Y.A. horror novel comes to Prime Video, and “The Gilded Age” returns for a third season.`\
 https://nytimes.com/2025/06/16/arts/television/what-to-watch-this-week.html
-
-**Suspect Arrested for Murder of Minnesota Lawmaker**\
-`The arrest of Vance Boelter ended a two-day manhunt after the assassination of State Representative Melissa Hortman and her husband, and the attempted assassination of others.`\
-https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
 
