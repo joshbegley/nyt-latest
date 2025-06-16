@@ -1,3 +1,7 @@
+**‘The Age of Trump’ Enters Its Second Decade**\
+`Ten years after he descended the Trump Tower escalator to announce his campaign for the White House, President Trump has come to dominate his era like few presidents ever have.`\
+https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
+
 **Joey Chestnut returning to Nathan’s Hot Dog Eating Contest after 2024 ban**\
 `The 16-time Nathan's Famous Hot Dog Eating Contest champion is back, and he's hungry to reclaim his throne.`\
 https://nytimes.com/athletic/6429380/2025/06/16/joey-chestnut-returning-nathans-hot-dog-eating-contest/
