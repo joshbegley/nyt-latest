@@ -1,3 +1,7 @@
+**The Memory of a Teenage Golden Child Ripples Across Generations**\
+`Michelle Huneven’s novel “Bug Hollow” begins with a tragedy in 1970s California. The ramifications are felt across three countries and five decades.`\
+https://nytimes.com/2025/06/16/books/review/michelle-huneven-bug-hollow.html
+
 **Iran’s nuclear sites have not been damaged further, the U.N.’s atomic agency says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/16/world/iran-israel-news/irans-nuclear-sites-have-not-been-further-damaged-the-uns-atomic-agency-says
