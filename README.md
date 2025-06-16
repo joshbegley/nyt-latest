@@ -1,3 +1,35 @@
+**Investors Brace for Oil Market Fallout**\
+`Energy prices have jumped since the onset of clashes between Israel and Iran. Investors worry the conflict could have a big economic consequences.`\
+https://nytimes.com/2025/06/16/business/dealbook/oil-fallout-iran-israel.html
+
+**Judd Brackett discusses the 2025 NHL Draft, Marco Rossi, Wild prospects, more**\
+`The Wild don't have a first-round pick in this year's draft. “It’s certainly harder to predict,” Brackett said of planning for pick No. 52.`\
+https://nytimes.com/athletic/6424413/2025/06/16/wild-2025-nhl-draft-rossi-brackett/
+
+**Guardians trade deadline primer: Buyers? Sellers? Neither? It feels like 2023 again**\
+`As things stand, this feels like a team that will have a quiet deadline, or participate in some light shuffling.`\
+https://nytimes.com/athletic/6411812/2025/06/16/guardians-mlb-trade-deadline-primer/
+
+**What I'm hearing about Evgeni Malkin's Penguins future**\
+`The Penguins are not expected to offer Malkin a contract following the 2025-26 season. But how will they deploy him next season?`\
+https://nytimes.com/athletic/6411170/2025/06/16/penguins-evgeni-malkin-retirement-nhl/
+
+**Will Leafs target Brad Marchand, Nikolaj Ehlers? Move Morgan Rielly? Mirtle mailbag**\
+`Plus Nick Robertson's trade value, and should Toronto's lack of draft picks and prospects be concerning? `\
+https://nytimes.com/athletic/6426174/2025/06/16/maple-leafs-nhl-free-agency-marchand-ehlers-rielly/
+
+**Los Angeles Angels MLB trade deadline primer: 3 early storylines to watch**\
+`Could the Angels be buyers? How valuable is Kenley Jansen? Here's what to keep in mind as the deadline approaches.`\
+https://nytimes.com/athletic/6427465/2025/06/16/los-angeles-angels-mlb-trade-deadline-primer/
+
+**Sotheby’s to Auction a Ceratosaurus, With Millions and More on the Line**\
+`The 150-million-year-old specimen is valued at up to $6 million. Some paleontologists worry this auction and earlier ones are driving fossil market speculators.`\
+https://nytimes.com/2025/06/16/science/dinosaur-fossil-auction-sothebys.html
+
+**Blake Fiddler? Malcolm Spence? Evaluating 13 draft possibilities for the Senators**\
+`Based on recent mock drafts, draft rankings, projections, and consultations with our resident draft experts Corey Pronman and Scott Wheeler.`\
+https://nytimes.com/athletic/6424702/2025/06/16/ottawa-senators-nhl-draft-blake-fiddler-malcolm-spence/
+
 **Trump Administration Live Updates: As G7 Meets in Canada, U.S. Rift With Allies Deepens**\
 ``\
 https://nytimes.com/live/2025/06/16/us/trump-news
@@ -5,36 +37,4 @@ https://nytimes.com/live/2025/06/16/us/trump-news
 **Three People Killed, Including 8-Month-Old, in Shooting at Utah Festival**\
 `The other victims were an 18-year-old man and a 41-year-old woman, the police said. The gunfire stemmed from a verbal altercation.`\
 https://nytimes.com/2025/06/16/us/west-fest-shooting-utah-west-valley-city.html
-
-**A Minnesota Manhunt Ends**\
-`Plus, we look at the independence of Amy Coney Barrett.`\
-https://nytimes.com/2025/06/16/briefing/a-minnesota-manhunt-ends.html
-
-**What we’re hearing about the Cubs: Kyle Tucker, Shota Imanaga and another walk-off win**\
-`Although the offense has cooled, the first-place Cubs gained ground in the NL Central during a challenging part of the schedule. `\
-https://nytimes.com/athletic/6428003/2025/06/16/cubs-what-we-are-hearing-tucker-imanaga/
-
-**U.S. Investigators Arrive at Scene of India’s Plane Disaster**\
-`Officials said they had found the cockpit voice recorder that may provide crucial clues about what caused the Air India flight to crash, killing at least 270 people.`\
-https://nytimes.com/2025/06/16/world/asia/air-india-plane-crash-investigation-us.html
-
-**Phillies minors notes on Alex McFarlane, Aroon Escobar and promoted players who've shined**\
-`Prospect Aroon Escobar has stood out at Low-A Clearwater, hitting .315/.410/.500 through 55 games. It’s unsurprising to the Phillies.`\
-https://nytimes.com/athletic/6427690/2025/06/16/phillies-prospects-aroon-escobar-minors-alex-mcfarlane/
-
-**NHL vibe check: Oilers' two-way support, the taxes debate and trading top-5 draft picks**\
-`Plus Brad Marchand's unbelievable playoffs run and questions about coaching hires and vacancies around the NHL.`\
-https://nytimes.com/athletic/6428211/2025/06/16/nhl-vibe-check-stanley-cup-final-coaches-draft/
-
-**Minnesota honors Seimone Augustus, whose legacy is obvious as Lynx chase another title**\
-`Napheesa Collier's leadership is reminiscent of Lynx title teams of old, a promising sign for Minnesota this season.`\
-https://nytimes.com/athletic/6428481/2025/06/16/minnesota-lynx-seimone-augustus-wnba-legacy/
-
-**Best college baseball players ever, sport's best rivalry, biggest issue: Analysts roundtable**\
-`What's the best part of college baseball in 2025? Which former college player had the most surprising MLB career?`\
-https://nytimes.com/athletic/6427501/2025/06/16/best-college-baseball-players-sports-rivalry-issues-roundtable/
-
-**A peek inside the Panthers' locker room proves why they have such a winning culture**\
-`The Panthers are one win away from repeating as Stanley Cup champions, and it takes every player on the roster to get there.`\
-https://nytimes.com/athletic/6427878/2025/06/16/florida-panthers-culture-stanley-cup-final/
 
