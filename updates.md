@@ -1,3 +1,7 @@
+**Red Sox trade Rafael Devers to Giants for Kyle Harrison, more**\
+`In 73 games this season (all at designated hitter), Devers was hitting .272 with a .905 OPS and 15 homers.`\
+https://nytimes.com/athletic/6428043/2025/06/15/san-francisco-giants-rafael-devers-trade/
+
 **Rafael Devers is no longer with the Red Sox. The Yankees must be thrilled with the trade**\
 `The Yankees got swept, but it's hard not to feel like they're coming out of this weekend as winners with Devers gone.`\
 https://nytimes.com/athletic/6428134/2025/06/15/yankees-analysis-rafael-devers-trade-red-sox/
