@@ -1,3 +1,7 @@
+**Iran Has Sustained Blow After Blow Since October 2023**\
+`Iran is often portrayed as one of the world’s most dangerous actors. But with attacks on its defenses, nuclear sites and proxy militias, Israel has exposed a compromised and weakened adversary.`\
+https://nytimes.com/2025/06/16/world/middleeast/iran-military-defense.html
+
 **The Trumps Promote a New Crypto Venture: Bitcoin Mining**\
 `The debut of American Bitcoin, a mining firm backed by Eric Trump and Donald Trump Jr., has heightened the ethical concerns swirling around the Trump presidency.`\
 https://nytimes.com/2025/06/16/technology/trump-american-bitcoin-mining.html
