@@ -1,3 +1,7 @@
+**Business Lobbyists Scramble to Kill $100 Billion ‘Revenge Tax’**\
+`Critics contend that the measure will scare off the foreign investment that President Trump wants to attract.`\
+https://nytimes.com/2025/06/16/us/politics/republican-policy-bill-revenge-tax.html
+
 **Lowetide: Where have all the Oilers' outlet passes gone?**\
 `The goal for the Oilers in Game 6 is to find a way to spend less time in their own zone.`\
 https://nytimes.com/athletic/6427417/2025/06/16/edmonton-oilers-stanley-cup-final-2025-passing/
