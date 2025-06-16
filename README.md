@@ -1,3 +1,23 @@
+**What Was Terry Moran Thinking?**\
+`In his first interview since losing his job at ABC News, the longtime TV correspondent, newly popular on Substack, says he does not regret his social media post criticizing the Trump administration.`\
+https://nytimes.com/2025/06/16/business/media/terry-moran-abc-substack.html
+
+**Wolves appoint Teti to new-look leadership team**\
+`The Italian is not seen as a direct replacement for Matt Hobbs, who left the club earlier this month.`\
+https://nytimes.com/athletic/6429149/2025/06/16/wolves-domenico-teti-confirmed/
+
+**Do You Know the Novels That Inspired These Big Movies?**\
+`Many influential action movies have been based on books. Find out how many you know in this short quiz.`\
+https://nytimes.com/interactive/2025/06/16/books/review/adventure-movie-novels.html
+
+**History Is Alive in All of Us**\
+`Whether we realize it or not, every decision we make contributes to our collective history.`\
+https://nytimes.com/2025/06/16/special-series/isabel-wilkerson-great-migration-history.html
+
+**Gonzalo Garcia Appointed Artistic Director of Miami City Ballet**\
+`Garcia, a former principal at New York City Ballet and San Francisco Ballet, takes over as Miami City celebrates its 40th anniversary.`\
+https://nytimes.com/2025/06/16/arts/dance/gonzalo-garcia-artistic-director-miami-city-ballet.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/06/16/opinion/thepoint
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6428631/2025/06/16/rafael-devers-trade-red-sox-the-
 **Judge in Sean Combs Trial Dismisses Juror Over ‘Lack of Candor’**\
 `The juror, who said he lives in the Bronx, later said he moved to New Jersey. The mogul’s lawyers said his removal would reduce the diversity of the jury.`\
 https://nytimes.com/2025/06/16/arts/music/sean-combs-diddy-trial-juror-dismissed.html
-
-**‘We couldn’t breathe’: An Israeli city wakes up to carnage.**\
-`Petah Tikva, in central Israel, suffered some of the worst damage after Iran fired a huge wave of ballistic missiles overnight.`\
-https://nytimes.com/live/2025/06/16/world/iran-israel-news/we-couldnt-breathe-an-israeli-city-wakes-up-to-carnage
-
-**Her Job Was Real. So Why Did Her Work Feel So Fake?**\
-`Leigh Claire La Berge’s memoir looks back at her stint as a consultant for a Fortune 500 company at the turn of the millennium: “Is this how companies are put together?”`\
-https://nytimes.com/2025/06/16/books/review/fake-work-leigh-claire-la-berge.html
-
-**Easy Salmon Recipes **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/food-easy-salmon-recipes
-
-**Cleaning Suede Is Easier Than You Think. Here’s How to Do It Yourself.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-suede
-
-**gws-state-parks-visit-colorado-nc-florida**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/state-parks-visit-colorado-nc-florida
 
