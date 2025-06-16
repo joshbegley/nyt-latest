@@ -1,3 +1,15 @@
+**Monday Briefing: Iran-Israel Conflict Continues**\
+`Plus, the Dalai Lama’s succession.`\
+https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-lawmaker-assassin-air-india.html
+
+**The New York Times in Print for Monday, June 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/16/todays-new-york-times
+
+**‘We Were Liars,’ Plus 7 Things to Watch on TV This Week**\
+`The adaptation of E. Lockhart’s Y.A. horror novel comes to Prime Video, and “The Gilded Age” returns for a third season.`\
+https://nytimes.com/2025/06/16/arts/television/what-to-watch-this-week.html
+
 **Suspect Arrested for Murder of Minnesota Lawmaker**\
 `The arrest of Vance Boelter ended a two-day manhunt after the assassination of State Representative Melissa Hortman and her husband, and the attempted assassination of others.`\
 https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6428306/2025/06/16/rafal-devers-final-hours-red-sox
 **Seattle 1 Botafogo 2 - Sounders fall short in Club World Cup opener**\
 `Seattle fought hard but could not complete an opening game comeback against the reigning Copa Libertadores and Brazilian champions`\
 https://nytimes.com/athletic/6428266/2025/06/16/seattle-sounders-botafogo-club-world-cup-highlights-mls/
-
-**What Villa centre-backs Swinkels and Feeney learned in League One's school of hard knocks**\
-`For a defender's first forays outside the Premier League academy bubble and into a senior side elsewhere, the stakes are raised immeasurably`\
-https://nytimes.com/athletic/6355616/2025/06/16/villa-josh-feeney-sil-swinkels-league-one/
-
-**Meet Leeds’ new sporting director, Adam Underwood: The in-house appointment that may be a masterstroke**\
-`The newly promoted club have turned to a figure who has been a constant at Thorp Arch for over a decade to oversee their summer recruitment`\
-https://nytimes.com/athletic/6427096/2025/06/16/leeds-underwood-marathe-sporting-director/
-
-**Creating Florian Wirtz: The living room footballer who still can't stand losing**\
-`No video games and rarely TV – the story behind potentially the Premier League's most expensive player`\
-https://nytimes.com/athletic/6401889/2025/06/16/creating-florian-wirtz/
 
