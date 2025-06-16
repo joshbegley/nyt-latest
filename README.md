@@ -1,3 +1,11 @@
+**What Is Iran’s Quds Force?**\
+`The group is one of the most powerful and shadowy arms of Iran’s military, and it has long been on the front line of a shadow conflict with Israel.`\
+https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
+
+**How and why Paris Saint-Germain play walking football**\
+`This, coupled with their fast starts and early goals, means PSG do not fatigue late in games — even in the sweltering U.S. heat`\
+https://nytimes.com/athletic/6428864/2025/06/16/psg-atletico-club-world-cup-walking-football/
+
 **Wirtz set for Liverpool medical later this week**\
 `On Friday, The Athletic reported that Liverpool had agreed a fee of €136.3m for the Germany international.`\
 https://nytimes.com/athletic/6428949/2025/06/16/florian-wirtz-medical-liverpool-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6427465/2025/06/16/los-angeles-angels-mlb-trade-dea
 **Sotheby’s to Auction a Ceratosaurus, With Millions and More on the Line**\
 `The 150-million-year-old specimen is valued at up to $6 million. Some paleontologists worry this auction and earlier ones are driving fossil market speculators.`\
 https://nytimes.com/2025/06/16/science/dinosaur-fossil-auction-sothebys.html
-
-**Blake Fiddler? Malcolm Spence? Evaluating 13 draft possibilities for the Senators**\
-`Based on recent mock drafts, draft rankings, projections, and consultations with our resident draft experts Corey Pronman and Scott Wheeler.`\
-https://nytimes.com/athletic/6424702/2025/06/16/ottawa-senators-nhl-draft-blake-fiddler-malcolm-spence/
-
-**Trump Administration Live Updates: As G7 Meets in Canada, U.S. Rift With Allies Deepens**\
-``\
-https://nytimes.com/live/2025/06/16/us/trump-news
 
