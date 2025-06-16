@@ -1,3 +1,11 @@
+**Joey Chestnut returning to Nathan’s Hot Dog Eating Contest after 2024 ban**\
+`The 16-time Nathan's Famous Hot Dog Eating Contest champion is back, and he's hungry to reclaim his throne.`\
+https://nytimes.com/athletic/6429380/2025/06/16/joey-chestnut-returning-nathans-hot-dog-eating-contest/
+
+**William Langewiesche, the ‘Steve McQueen of Journalism,’ Dies at 70**\
+`He was a master of long form narratives, often involving high-stakes topics. He reported for Vanity Fair, The Atlantic and The New York Times Magazine.`\
+https://nytimes.com/2025/06/16/business/media/william-langewiesche-dead.html
+
 **Sevilla appoint Matias Almeyda as head coach**\
 `Almeyda has signed a three-year deal at Sevilla, who finished 2024-25 in 17th, just one point and one place above the relegation zone`\
 https://nytimes.com/athletic/6429545/2025/06/16/sevilla-manager-matias-almeyda/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6427062/2025/06/16/tijjani-reijnders-man-city-de-br
 **Oil Prices Drop, but Iran-Israel Conflict Raises Many Risks**\
 `Industry experts are examining possible scenarios, including one in which the price of oil doubles this year.`\
 https://nytimes.com/2025/06/16/business/oil-prices-iran-israel.html
-
-**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
-`What's on your mind about Notre Dame?`\
-https://nytimes.com/athletic/6429463/2025/06/16/notre-dame-football-mailbag-questions-21/
-
-**‘Where Can I Go?’ Iranians Weigh Escaping Tehran**\
-`In a city under attack, residents encounter gas stations that are closing because there is no fuel, and disruptions to internet and phone service.`\
-https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
 
