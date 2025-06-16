@@ -1,3 +1,7 @@
+**Ralph J. Lamberti Jr., Former Staten Island Borough President, Dies at 90**\
+`He served from 1984 to 1989, and sought to maintain checks and balances in city government to prevent against what he called “an imperial mayor.”`\
+https://nytimes.com/2025/06/16/nyregion/ralph-j-lamberti-jr-dead.html
+
 **Live Q&A with Phillies writer Matt Gelb on Tuesday at noon ET: Submit questions**\
 `Phillies beat writer Matt Gelb will answer subscribers' questions during a live Q&A from noon to 12:45 p.m. ET on Tuesday.`\
 https://nytimes.com/athletic/6430395/2025/06/16/phillies-live-qa-submit-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010232594/israel-strike-iran-br
 **Kepner: For rudderless Red Sox, Mookie Betts is the ghost in the machine**\
 `The Dodgers star has been a specter hovering over the Red Sox' moves – including the Rafael Devers trade – since his departure from Boston.`\
 https://nytimes.com/athletic/6430228/2025/06/16/mookie-betts-red-sox-trade-rafael-devers/
-
-**The Minnesota suspect traveled to four lawmakers’ homes on the night of the attacks.**\
-`Officials said a man charged with shooting two lawmakers and their spouses was apparently thwarted at two other politicians’ homes.`\
-https://nytimes.com/live/2025/06/16/us/minnesota-shootings/minnesota-suspect-traveled-to-4-lawmakers-homes-on-night-of-attacks
 
