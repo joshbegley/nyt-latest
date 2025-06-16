@@ -1,3 +1,11 @@
+**Scoop City: 2025 NFC North preview, plus an update on Colts QB battle**\
+`Key questions, breakout players and positions to watch in the NFC North, plus a look at the Colts quarterback competition.`\
+https://nytimes.com/athletic/6430697/2025/06/16/nfc-north-preview-nfl-2025-bears-vikings-packers-lions-scoop-city/
+
+**Michigan adds another transfer QB: How will Jake Garcia impact Wolverines?**\
+`Jake Garcia, a former top-50 recruit with stops at Miami, Missouri and ECU, gives Michigan QB insurance around top recruit Bryce Underwood.`\
+https://nytimes.com/athletic/6430687/2025/06/16/jake-garcia-michigan-quarterback-transfer-portal/
+
 **MLB execs, managers and coaches sound off on Rafael Devers trade: 'I'm shocked'**\
 `The reactions from around the league were mixed as far as which team got the better deal, but almost all were surprised by the timing.`\
 https://nytimes.com/athletic/6430469/2025/06/16/rafael-devers-trade-mlb-league-reactions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html
 **Israel Widens Attacks Against Iran, Striking Broadcaster**\
 `Israel’s escalated offensive indicates that its aims go beyond dismantling Iran’s nuclear program.`\
 https://nytimes.com/2025/06/16/world/middleeast/israel-iran-state-broadcaster-attack.html
-
-**Trump Mobile Phone Company Announced by President’s Family, but Details Are Murky**\
-`The new company says it will manufacture its Android phone in the United States but it has not said how it could do that.`\
-https://nytimes.com/2025/06/16/us/trump-mobile-phone.html
-
-**Minnesota State Senator Says Accused Gunman Visited Her Street**\
-`State Senator Ann Rest, a Democrat, credited police officers who were proactively checking on her safety with sparing her from an attack.`\
-https://nytimes.com/2025/06/16/us/ann-rest-minnesota-state-senator-shooting.html
 

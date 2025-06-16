@@ -1,3 +1,11 @@
+**Scoop City: 2025 NFC North preview, plus an update on Colts QB battle**\
+`Key questions, breakout players and positions to watch in the NFC North, plus a look at the Colts quarterback competition.`\
+https://nytimes.com/athletic/6430697/2025/06/16/nfc-north-preview-nfl-2025-bears-vikings-packers-lions-scoop-city/
+
+**Michigan adds another transfer QB: How will Jake Garcia impact Wolverines?**\
+`Jake Garcia, a former top-50 recruit with stops at Miami, Missouri and ECU, gives Michigan QB insurance around top recruit Bryce Underwood.`\
+https://nytimes.com/athletic/6430687/2025/06/16/jake-garcia-michigan-quarterback-transfer-portal/
+
 **MLB execs, managers and coaches sound off on Rafael Devers trade: 'I'm shocked'**\
 `The reactions from around the league were mixed as far as which team got the better deal, but almost all were surprised by the timing.`\
 https://nytimes.com/athletic/6430469/2025/06/16/rafael-devers-trade-mlb-league-reactions/
