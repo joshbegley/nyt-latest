@@ -1,3 +1,7 @@
+**Mookie Betts talks 'crazy' trade of former teammate Rafael Devers**\
+`Betts and Devers played in Boston together from 2017-19.`\
+https://nytimes.com/athletic/6428451/2025/06/15/mookie-bets-rafael-devers-trade-comments/
+
 **Shohei Ohtani will make return to mound in series opener against Padres**\
 `Ohtani will make his pitching debut for the Dodgers 20 months removed from his September 2023 procedure.`\
 https://nytimes.com/athletic/6428395/2025/06/15/shohei-ohtani-dodgers-pitching-return-padres/
@@ -33,10 +37,4 @@ https://nytimes.com/2025/06/15/us/politics/no-kings-protest-shooting-salt-lake-c
 **Liam Delap 'future England No 9' says Maresca but not guaranteed to be first-choice at Chelsea**\
 `“The message is always the same: you arrive, you work hard, you work more than the other number nine and you can be first choice No 9"`\
 https://nytimes.com/athletic/6428328/2025/06/15/liam-delap-chelsea-maresca/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>The Mailbag returns this week after an extended offseason hiatus. What&#8217;s on your mind?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6428313/2025/06/15/submit-a-question-for-stewart-mandels-college-football-mailbag-302/
 
