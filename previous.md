@@ -1,40 +1,40 @@
-**Jakob Ingebrigtsen's father convicted of assaulting daughter, acquitted of other abuse charges**\
-`Gjert Ingebrigtsen had pleaded not guilty and repeatedly denied all allegations and the portrayal of events.`\
-https://nytimes.com/athletic/6427511/2025/06/16/jakob-ingebrigtsen-father-trial-verdict-assault-daughter/
+**Detroit Pistons player evaluations: Cade Cunningham's strengths and weaknesses**\
+`Cunningham was named All-NBA in his best season as a pro. He ran the Pistons' offense well, but there are things he can still work on.`\
+https://nytimes.com/athletic/6427419/2025/06/16/cade-cunningham-detroit-pistons-player-evals/
 
-**Here’s the latest.**\
-`By Ernesto Londoño, Jeff Ernst and Yan Zhuang`\
-https://nytimes.com/live/2025/06/16/us/minnesota-shootings/heres-the-latest
+**Bears 53-man roster projection: What OTAs told us about Ben Johnson's team**\
+`After getting to see the 2025 Bears spring practices, here's our first projection of a 53-man roster for Year 1 of the Ben Johnson era.`\
+https://nytimes.com/athletic/6422653/2025/06/16/chicago-bears-roster-projection-ben-johnson-caleb-williams/
 
-**Live Updates: Minnesota Man Charged With Murdering Lawmaker**\
-`Vance Boelter was captured late Sunday after a two-day manhunt that put the state on edge. He was charged with second-degree murder in the attacks, which killed a state lawmaker and wounded another.`\
-https://nytimes.com/live/2025/06/16/us/minnesota-shootings
+**Adam Scott and the longest wait**\
+`"I feel like I can keep this up for another 18 months, for sure." But is that enough time for Scott to finally win a second major?`\
+https://nytimes.com/athletic/6428383/2025/06/16/adam-scott-us-open-major/
 
-**Assessing Ravens' pending roster competitions ahead of minicamp**\
-`Arguably, Baltimore's two biggest starting position battles this summer will be at left guard and inside linebacker. `\
-https://nytimes.com/athletic/6425362/2025/06/16/ravens-roster-competitions-mandatory-minicamp/
+**Cardinals' June skid continues after series loss to Brewers: 'We're keeping our heads up'**\
+`"The guys are playing hard," Oli Marmol said. "Tomorrow's off day is a timely one; we'll get to regroup and then get back at it."`\
+https://nytimes.com/athletic/6428333/2025/06/16/cardinals-brewers-loss-june-skid/
 
-**With No Clear Off-Ramp, Israel’s War With Iran May Last Weeks, Not Days**\
-`Israel and Iran both have little incentive to stop and no obvious route to outright victory. Much depends on President Trump.`\
-https://nytimes.com/2025/06/16/world/middleeast/iran-israel-war-off-ramp.html
+**With their pitching on thin ice, Tigers face taste of adversity**\
+`Injuries and underperformance have mounted. Can the Tigers find a way to fortify their pitching staff? `\
+https://nytimes.com/athletic/6427757/2025/06/16/tigers-pitching-adversity-will-vest/
 
-**Buffalo Bills who could never beat Bill Belichick marvel as mysticism fades: 'His image has changed'**\
-`The Bills from the drought era can't help but chuckle at the state of their longtime nemesis.`\
-https://nytimes.com/athletic/6420917/2025/06/16/bill-belichick-jordon-hutson-buffalo-bills-drought-dynasty/
+**Few had heard of this college QB a year ago. Now he's a projected top-5 NFL Draft pick**\
+`South Carolina didn't offer LaNorris Sellers until late his senior. Now, the Gamecocks are cruising behind a potential top-5 NFL Draft pick.`\
+https://nytimes.com/athletic/6425716/2025/06/16/lanorris-sellers-south-carolina-nfl-draft-2026/
 
-**The New York Times International Edition in Print for Tuesday, June 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/16/todays-new-york-times-international-edition
+**Osi Umenyiora sees a future for football in Africa: 'I knew many better athletes than I was in Nigeria'**\
+`Umenyiora, a two-time Super Bowl winner, is intent on inspiring African athletes to take up American football.`\
+https://nytimes.com/athletic/6415456/2025/06/16/osi-umenyiora-nfl-africa-scouting/
 
-**Efton Chism was the darling of the Patriots' spring. Now, can he make the team?**\
-`The undrafted rookie out of Eastern Washington has turned heads as a slot receiver this spring. What are his chances of sticking around?`\
-https://nytimes.com/athletic/6422235/2025/06/16/efton-chism-patriots-53-man-roster/
+**This Week in Mets: The pitching staff hits a speed bump**\
+`The Mets are walking a fine line, trying to keep an eye on long-term health while still piling up wins in the here and now.`\
+https://nytimes.com/athletic/6428339/2025/06/16/mets-pitching-staff-speed-bump-this-week/
 
-**Mamdani and Blake Will Cross-Endorse in N.Y.C. Mayor’s Race**\
-`Zohran Mamdani, a front-runner in the New York City mayor’s race, will announce a second cross-endorsement with Michael Blake, a former state lawmaker.`\
-https://nytimes.com/2025/06/16/nyregion/mamdani-blake-nyc-mayors-race.html
+**An Assassination in Minnesota and a Growing War Between Israel and Iran**\
+`A look at two of the most pressing events from the weekend.`\
+https://nytimes.com/2025/06/16/podcasts/the-daily/assassination-minnesota-israel-iran.html
 
-**Minnesota Manhunt and Arrest: What We Know**\
-`After a gunman killed a lawmaker and wounded another, officials scrambled in what they called the largest manhunt in Minnesota’s history. The suspect was arrested in a rural field on Sunday.`\
-https://nytimes.com/2025/06/16/us/minnesota-lawmakers-manhunt-what-to-know.html
+**C. Notes: Wade Miley's impact goes beyond the mound**\
+`"Obviously, he's a tremendous pitcher," Emilio Pagán said, "but he's going to impact us way beyond just what he gives us on the mound."`\
+https://nytimes.com/athletic/6428120/2025/06/16/reds-c-notes-wade-miley-jake-fraley/
 

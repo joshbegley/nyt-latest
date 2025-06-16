@@ -1,3 +1,15 @@
+**How to save 11 match points in tennis – and a slice masterclass on the Queen's grass**\
+`Elise Mertens' remarkable escape came on her way to the title in 's-Hertogenbosch, the Netherlands.`\
+https://nytimes.com/athletic/6427123/2025/06/16/tennis-most-match-points-saved-mertens-hertogenbosch/
+
+**Manhunt Ends for Minnesota Suspect, and Israel-Iran Conflict Ramps Up**\
+`Plus, Pope Leo’s hometown shout-out.`\
+https://nytimes.com/2025/06/16/podcasts/the-headlines/manhunt-minnesota-suspect-israel-iran.html
+
+**Buckley: Red Sox must make playoffs. It's the only way to justify trading Rafael Devers**\
+`Shipping off their best hitter — after a festive sweep of the Yankees, no less — will take the feel-good right out of Fenway if Sox falter.`\
+https://nytimes.com/athletic/6428488/2025/06/16/rafael-devers-trade-red-sox-giants/
+
 **Detroit Pistons player evaluations: Cade Cunningham's strengths and weaknesses**\
 `Cunningham was named All-NBA in his best season as a pro. He ran the Pistons' offense well, but there are things he can still work on.`\
 https://nytimes.com/athletic/6427419/2025/06/16/cade-cunningham-detroit-pistons-player-evals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6425716/2025/06/16/lanorris-sellers-south-carolina-
 **Osi Umenyiora sees a future for football in Africa: 'I knew many better athletes than I was in Nigeria'**\
 `Umenyiora, a two-time Super Bowl winner, is intent on inspiring African athletes to take up American football.`\
 https://nytimes.com/athletic/6415456/2025/06/16/osi-umenyiora-nfl-africa-scouting/
-
-**This Week in Mets: The pitching staff hits a speed bump**\
-`The Mets are walking a fine line, trying to keep an eye on long-term health while still piling up wins in the here and now.`\
-https://nytimes.com/athletic/6428339/2025/06/16/mets-pitching-staff-speed-bump-this-week/
-
-**An Assassination in Minnesota and a Growing War Between Israel and Iran**\
-`A look at two of the most pressing events from the weekend.`\
-https://nytimes.com/2025/06/16/podcasts/the-daily/assassination-minnesota-israel-iran.html
-
-**C. Notes: Wade Miley's impact goes beyond the mound**\
-`"Obviously, he's a tremendous pitcher," Emilio Pagán said, "but he's going to impact us way beyond just what he gives us on the mound."`\
-https://nytimes.com/athletic/6428120/2025/06/16/reds-c-notes-wade-miley-jake-fraley/
 
