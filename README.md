@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Natan Odenheimer and Andrés R. Martínez`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news/heres-the-latest
+
 **Live Updates: Israel Says It Attacked Headquarters of Powerful Iranian Military Unit**\
 `Israel’s military said it had struck the headquarters of the Quds Force, which reports directly to Iran’s supreme leader. The claim could not be immediately confirmed.`\
 https://nytimes.com/live/2025/06/16/world/iran-israel-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6428605/2025/06/16/rafael-devers-giants-trade-bagga
 **Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
 `With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the Brazilian and MLS sides was surely a must-win`\
 https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
-
-**What is Ethan Nwaneri's best position?**\
-`The Arsenal youngster had an unfamiliar role with England U21s and his versatility could be a great asset`\
-https://nytimes.com/athletic/6427674/2025/06/16/ethan-nwaneri-arsenal-best-position/
 

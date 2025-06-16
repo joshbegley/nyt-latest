@@ -1,3 +1,11 @@
+**Live Updates: Israel Says It Attacked Headquarters of Powerful Iranian Military Unit**\
+`Israel’s military said it had struck the headquarters of the Quds Force, which reports directly to Iran’s supreme leader. The claim could not be immediately confirmed.`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news
+
+**Iran-Israel Strikes Continue Into Fourth Day**\
+`Iran’s deadly strike on Monday hit Israeli residential buildings and energy infrastructure, while Israel said it targeted the Quds Force military command centers.`\
+https://nytimes.com/video/world/middleeast/100000010231205/petah-tikva-israel-iran-missile-strike.html
+
 **Lloris says Club World Cup participants 'have to adapt to schedule'**\
 `The LAFC goalkeeper insists the top European clubs participating do not face greater challenges than opponents from the rest of the world.`\
 https://nytimes.com/athletic/6428658/2025/06/16/club-world-cup-chelsea-lafc-lloris/

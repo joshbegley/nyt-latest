@@ -1,3 +1,11 @@
+**Live Updates: Israel Says It Attacked Headquarters of Powerful Iranian Military Unit**\
+`Israel’s military said it had struck the headquarters of the Quds Force, which reports directly to Iran’s supreme leader. The claim could not be immediately confirmed.`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news
+
+**Iran-Israel Strikes Continue Into Fourth Day**\
+`Iran’s deadly strike on Monday hit Israeli residential buildings and energy infrastructure, while Israel said it targeted the Quds Force military command centers.`\
+https://nytimes.com/video/world/middleeast/100000010231205/petah-tikva-israel-iran-missile-strike.html
+
 **Stocks Tread Cautiously as Investors Watch Oil Prices**\
 `As Israel and Iran exchanged more attacks, stock markets mostly rose even as worries remained about possible oil supply interruptions.`\
 https://nytimes.com/2025/06/16/business/stocks-oil-prices-israel-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-w
 **What is Ethan Nwaneri's best position?**\
 `The Arsenal youngster had an unfamiliar role with England U21s and his versatility could be a great asset`\
 https://nytimes.com/athletic/6427674/2025/06/16/ethan-nwaneri-arsenal-best-position/
-
-**Word of the Day: ebullient**\
-`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/16/learning/word-of-the-day-ebullient.html
-
-**Simeone and Luis Enrique are transformative managers heading in very different directions**\
-`Atletico Madrid are struggling to keep pace with the standards being set by the Spaniard's brilliant PSG side`\
-https://nytimes.com/athletic/6428376/2025/06/16/diego-simeone-luis-enrique-atleti-psg/
 
