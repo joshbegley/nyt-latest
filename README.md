@@ -1,3 +1,7 @@
+**‘The Age of Trump’ Enters Its Second Decade**\
+`Ten years after he descended the Trump Tower escalator to announce his campaign for the White House, President Trump has come to dominate his era like few presidents ever have.`\
+https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
+
 **Joey Chestnut returning to Nathan’s Hot Dog Eating Contest after 2024 ban**\
 `The 16-time Nathan's Famous Hot Dog Eating Contest champion is back, and he's hungry to reclaim his throne.`\
 https://nytimes.com/athletic/6429380/2025/06/16/joey-chestnut-returning-nathans-hot-dog-eating-contest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6428276/2025/06/16/canada-olympic-hockey-roster-rei
 **Reijnders: I am not at Man City to replace De Bruyne**\
 `The Dutch midfielder joined from Milan this month in a deal worth €55million.`\
 https://nytimes.com/athletic/6427062/2025/06/16/tijjani-reijnders-man-city-de-bruyne/
-
-**Oil Prices Drop, but Iran-Israel Conflict Raises Many Risks**\
-`Industry experts are examining possible scenarios, including one in which the price of oil doubles this year.`\
-https://nytimes.com/2025/06/16/business/oil-prices-iran-israel.html
 
