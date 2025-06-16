@@ -1,3 +1,7 @@
+**Word of the Day: ebullient**\
+`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/16/learning/word-of-the-day-ebullient.html
+
 **Simeone and Luis Enrique are transformative managers heading in very different directions**\
 `Atletico Madrid are struggling to keep pace with the standards being set by Spaniard's brilliant PSG side`\
 https://nytimes.com/athletic/6428376/2025/06/16/diego-simeone-and-luis-enrique-are-transformative-managers-heading-in-very-different-directions/
