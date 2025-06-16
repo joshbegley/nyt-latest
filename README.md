@@ -1,3 +1,7 @@
+**FIFA drops anti-racism, anti-discrimination messages for Club World Cup**\
+`The messaging has not been visible during the opening round of fixtures at the tournament in stadiums or on social media platforms.`\
+https://nytimes.com/athletic/6430673/2025/06/16/fifa-club-world-cup-racism-discrimination-message/
+
 **Scoop City: 2025 NFC North preview, plus an update on Colts QB battle**\
 `Key questions, breakout players and positions to watch in the NFC North, plus a look at the Colts quarterback competition.`\
 https://nytimes.com/athletic/6430697/2025/06/16/nfc-north-preview-nfl-2025-bears-vikings-packers-lions-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6430660/2025/06/16/vancouver-canucks-mailbag-june-2
 **After Lawmaker’s Death, Democrats Dismiss Concerns Over Balance of Power**\
 `Before Representative Melissa Hortman’s death, the state’s House was evenly divided. The governor has until next February to fill her seat before the next legislative session.`\
 https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html
-
-**Israel Widens Attacks Against Iran, Striking Broadcaster**\
-`Israel’s escalated offensive indicates that its aims go beyond dismantling Iran’s nuclear program.`\
-https://nytimes.com/2025/06/16/world/middleeast/israel-iran-state-broadcaster-attack.html
 
