@@ -1,3 +1,11 @@
+**Israeli Strike Hits Iranian State TV Broadcaster**\
+`Black smoke billowed from the Iranian state TV headquarters after an Israeli strike hit the building on Monday. The attack comes as the fighting between Israel and Iran show no signs of slowing down.`\
+https://nytimes.com/video/world/middleeast/100000010232594/israel-strike-iran-broadcast-tv-conflict.html
+
+**Kepner: For rudderless Red Sox, Mookie Betts is the ghost in the machine**\
+`The Dodgers star has been a specter hovering over the Red Sox' moves – including the Rafael Devers trade – since his departure from Boston.`\
+https://nytimes.com/athletic/6430228/2025/06/16/mookie-betts-red-sox-trade-rafael-devers/
+
 **The Minnesota suspect traveled to four lawmakers’ homes on the night of the attacks.**\
 `Officials said a man charged with shooting two lawmakers and their spouses was apparently thwarted at two other politicians’ homes.`\
 https://nytimes.com/live/2025/06/16/us/minnesota-shootings/minnesota-suspect-traveled-to-4-lawmakers-homes-on-night-of-attacks
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6429961/2025/06/16/pwhl-vancouver-miller-vanisova/
 **Louvre Staff’s Work Stoppage Shutters Museum for Hours**\
 `Visitors were left stranded outside in Paris on Monday after a monthly union meeting led to a wildcat strike over workplace conditions and crowding.`\
 https://nytimes.com/2025/06/16/arts/design/louvre-staff-strikes-tourism.html
-
-**Watch: The Athletic NBA Daily's 2025 NBA Draft preview**\
-`The Athletic NBA Daily previews the 2025 NBA Draft with Sam Vecenie.`\
-https://nytimes.com/athletic/6429097/2025/06/16/nba-daily-2025-draft-preview-sam-vecenie/
-
-**American Bar Association Sues Trump Administration**\
-`A lawsuit by the lawyers group seeks to stop the president’s efforts to punish law firms.`\
-https://nytimes.com/2025/06/16/us/american-bar-association-sues-trump-administration.html
 
