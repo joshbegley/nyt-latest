@@ -1,3 +1,15 @@
+**MLB execs, managers and coaches sound off on Rafael Devers trade: 'I'm shocked'**\
+`The reactions from around the league were mixed as far as which team got the better deal, but almost all were surprised by the timing.`\
+https://nytimes.com/athletic/6430469/2025/06/16/rafael-devers-trade-mlb-league-reactions/
+
+**Israel Attacked Iran’s State TV**\
+`Also, the suspect in the Minnesota killings could face the death penalty. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-shootings-irish-cottage.html
+
+**Watch: How Karl Smesko's coaching philosophy has enabled Atlanta Dream's fast start**\
+`No Offseason discuss Karl Smesko’s coaching style, philosophy and why he’s been able to hit the ground running in Atlanta.`\
+https://nytimes.com/athletic/6428807/2025/06/16/no-offseason-wnba-atlanta-dream-karl-smesko/
+
 **Nina Kuscsik, Marathoner Who Broke Gender Barriers, Dies at 86**\
 `Overcoming male resistance, she became the first woman to enter the New York City Marathon and the first official female winner of the Boston event.`\
 https://nytimes.com/2025/06/16/sports/nina-kuscsik-dead.html
