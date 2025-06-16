@@ -1,3 +1,11 @@
+**Live Q&A with Phillies writer Matt Gelb on Tuesday at noon ET: Submit questions**\
+`Phillies beat writer Matt Gelb will answer subscribers' questions during a live Q&A from noon to 12:45 p.m. ET on Tuesday.`\
+https://nytimes.com/athletic/6430395/2025/06/16/phillies-live-qa-submit-questions/
+
+**36 More Countries May Be Added to Trump’s Travel Ban**\
+`The administration gave the nations 60 days to fix concerns, according to a State Department cable. The president already imposed a full or partial ban on citizens of 19 countries.`\
+https://nytimes.com/2025/06/16/us/politics/trump-travel-ban.html
+
 **The Smart Way for Trump to End the Israel-Iran War**\
 `President Trump has a chance to create the best opportunity for stabilizing the Middle East in decades, if he is up to it.`\
 https://nytimes.com/2025/06/16/opinion/trump-israel-iran-war.html

@@ -1,3 +1,11 @@
+**Live Q&A with Phillies writer Matt Gelb on Tuesday at noon ET: Submit questions**\
+`Phillies beat writer Matt Gelb will answer subscribers' questions during a live Q&A from noon to 12:45 p.m. ET on Tuesday.`\
+https://nytimes.com/athletic/6430395/2025/06/16/phillies-live-qa-submit-questions/
+
+**36 More Countries May Be Added to Trump’s Travel Ban**\
+`The administration gave the nations 60 days to fix concerns, according to a State Department cable. The president already imposed a full or partial ban on citizens of 19 countries.`\
+https://nytimes.com/2025/06/16/us/politics/trump-travel-ban.html
+
 **The Ingebrigtsen trial: 'I became too much of a coach - the coach was not necessarily a kind man'**\
 `Gjert Ingebrigtsen was acquitted of abusing his son, Olympic champion Jakob, but found guilty of assaulting daughter Ingrid`\
 https://nytimes.com/athletic/6429124/2025/06/16/ingebrigtsen-trial-jakob-olympic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6430228/2025/06/16/mookie-betts-red-sox-trade-rafae
 **The Minnesota suspect traveled to four lawmakers’ homes on the night of the attacks.**\
 `Officials said a man charged with shooting two lawmakers and their spouses was apparently thwarted at two other politicians’ homes.`\
 https://nytimes.com/live/2025/06/16/us/minnesota-shootings/minnesota-suspect-traveled-to-4-lawmakers-homes-on-night-of-attacks
-
-**Political Violence Is Rising. This Is What We Can Do to Stop It.**\
-`Bipartisan denunciations are surprisingly effective.`\
-https://nytimes.com/2025/06/16/opinion/political-violence-minnesota.html
-
-**Astros place starter Lance McCullers Jr. on injured list**\
-`Houston placed a starting pitcher on the IL for the fourth time this reason, announcing that the 31-year-old lefty has a right foot sprain.`\
-https://nytimes.com/athletic/6430222/2025/06/16/astros-lance-mccullers-injury/
 
