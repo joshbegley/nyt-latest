@@ -1,3 +1,15 @@
+**Submit your Canadiens questions for Arpon Basu's mailbag**\
+`Send in your questions, and Arpon Basu may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6429290/2025/06/16/canadiens-mailbag-submissions-arpon-basu/
+
+**Fire in Maui Grows to 500 Acres, Prompting Evacuations**\
+`The island was the site of devastating, deadly fires in 2023.`\
+https://nytimes.com/2025/06/16/us/maui-fire-kahikinui.html
+
+**Walls Are Put Up Around Israeli Displays at French Weapons Show**\
+`Israel called the move “outrageous.” A French official said Israeli companies were defying an agreement not to display so-called offensive weapons.`\
+https://nytimes.com/2025/06/16/world/middleeast/israel-weapons-paris-air-show.html
+
 **Business Lobbyists Scramble to Kill $100 Billion ‘Revenge Tax’**\
 `Critics contend that the measure will scare off the foreign investment that President Trump wants to attract.`\
 https://nytimes.com/2025/06/16/us/politics/republican-policy-bill-revenge-tax.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6428906/2025/06/16/shai-gilgeous-alexander-thunder-
 **The Pulse: Shohei returns**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6428284/2025/06/16/shohei-ohtanis-surprise-return-to-the-mound-plus-two-sunday-blockbusters/
-
-**What Was Terry Moran Thinking?**\
-`In his first interview since losing his job at ABC News, the longtime TV correspondent, newly popular on Substack, says he does not regret his social media post criticizing the Trump administration.`\
-https://nytimes.com/2025/06/16/business/media/terry-moran-abc-substack.html
-
-**Wolves appoint Teti to new-look leadership team**\
-`The Italian is not seen as a direct replacement for Matt Hobbs, who left the club earlier this month.`\
-https://nytimes.com/athletic/6429149/2025/06/16/wolves-domenico-teti-confirmed/
-
-**Do You Know the Novels That Inspired These Big Movies?**\
-`Many influential action movies have been based on books. Find out how many you know in this short quiz.`\
-https://nytimes.com/interactive/2025/06/16/books/review/adventure-movie-novels.html
 

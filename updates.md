@@ -1,3 +1,15 @@
+**Submit your Canadiens questions for Arpon Basu's mailbag**\
+`Send in your questions, and Arpon Basu may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6429290/2025/06/16/canadiens-mailbag-submissions-arpon-basu/
+
+**Fire in Maui Grows to 500 Acres, Prompting Evacuations**\
+`The island was the site of devastating, deadly fires in 2023.`\
+https://nytimes.com/2025/06/16/us/maui-fire-kahikinui.html
+
+**Walls Are Put Up Around Israeli Displays at French Weapons Show**\
+`Israel called the move “outrageous.” A French official said Israeli companies were defying an agreement not to display so-called offensive weapons.`\
+https://nytimes.com/2025/06/16/world/middleeast/israel-weapons-paris-air-show.html
+
 **Business Lobbyists Scramble to Kill $100 Billion ‘Revenge Tax’**\
 `Critics contend that the measure will scare off the foreign investment that President Trump wants to attract.`\
 https://nytimes.com/2025/06/16/us/politics/republican-policy-bill-revenge-tax.html
