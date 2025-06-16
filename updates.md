@@ -1,3 +1,15 @@
+**The Ingebrigtsen trial: 'I became too much of a coach - the coach was not necessarily a kind man'**\
+`Gjert Ingebrigtsen was acquitted of abusing his son, Olympic champion Jakob, but found guilty of assaulting daughter Ingrid`\
+https://nytimes.com/athletic/6429124/2025/06/16/ingebrigtsen-trial-jakob-olympic/
+
+**Trump’s Cuts to N.I.H. Grants Are Illegal, Federal Judge Rules**\
+`The judge accused the Trump administration of discriminating against minorities and L.G.B.T.Q. people and ordered the government to restore much of the funding.`\
+https://nytimes.com/2025/06/16/us/politics/trump-nih-grants-cut.html
+
+**The Smart Way for Trump to End the Israel-Iran War**\
+`President Trump has a chance to create the best opportunity for stabilizing the Middle East in decades — if he is up to it.`\
+https://nytimes.com/2025/06/16/opinion/trump-israel-iran-war.html
+
 **FIFA spent more than $50m on Club World Cup marketing to boost ticket sales**\
 `The Club World Cup has been beset by organisational challenges ahead of the first edition of the revamped 32-team tournament in the U.S.`\
 https://nytimes.com/athletic/6426250/2025/06/16/fifa-club-world-cup-marketing/
