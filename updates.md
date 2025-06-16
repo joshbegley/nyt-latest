@@ -1,3 +1,11 @@
+**Red Sox legend David Ortiz weighs in on the Rafael Devers trade: 'It wasn't going to end well'**\
+`Ortiz, who played 14 years in Boston, sees the breakdown between Devers and the Red Sox from both sides.`\
+https://nytimes.com/athletic/6429779/2025/06/16/david-ortiz-red-sox-rafael-devers-trade/
+
+**Read the Federal Complaint Against Man Charged in Minnesota Assassination**\
+`Federal officials described new details about the actions of a man accused in the assassination of a Minnesota lawmaker, along with federal charges against him.`\
+https://nytimes.com/interactive/2025/06/16/us/minnesota-suspect-federal-murder-charges.html
+
 **Read the Federal Complaint Against Man Charged in Minnesota Assassination**\
 `Federal officials described new details about the actions of a man accused in assassination of a Minnesota lawmaker, along with federal charges against him.`\
 https://nytimes.com/interactive/2025/06/16/us/minnesota-suspect-federal-murder-charges.html
