@@ -1,3 +1,15 @@
+**How to save 11 match points in tennis – and a slice masterclass on the Queen's grass**\
+`Elise Mertens' remarkable escape came on her way to the title in 's-Hertogenbosch, the Netherlands.`\
+https://nytimes.com/athletic/6427123/2025/06/16/tennis-most-match-points-saved-mertens-hertogenbosch/
+
+**Manhunt Ends for Minnesota Suspect, and Israel-Iran Conflict Ramps Up**\
+`Plus, Pope Leo’s hometown shout-out.`\
+https://nytimes.com/2025/06/16/podcasts/the-headlines/manhunt-minnesota-suspect-israel-iran.html
+
+**Buckley: Red Sox must make playoffs. It's the only way to justify trading Rafael Devers**\
+`Shipping off their best hitter — after a festive sweep of the Yankees, no less — will take the feel-good right out of Fenway if Sox falter.`\
+https://nytimes.com/athletic/6428488/2025/06/16/rafael-devers-trade-red-sox-giants/
+
 **Detroit Pistons player evaluations: Cade Cunningham's strengths and weaknesses**\
 `Cunningham was named All-NBA in his best season as a pro. He ran the Pistons' offense well, but there are things he can still work on.`\
 https://nytimes.com/athletic/6427419/2025/06/16/cade-cunningham-detroit-pistons-player-evals/
