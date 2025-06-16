@@ -1,3 +1,7 @@
+**Suspect Arrested for Murder of Minnesota Lawmaker**\
+`The arrest of Vance Boelter ended a two-day manhunt after the assassination of State Representative Melissa Hortman and her husband, and the attempted assassination of others.`\
+https://nytimes.com/video/us/minnesota-shootings-manhunt-arrest.html
+
 **Read the document**\
 `Read the charging documents filed against Vance Boelter.`\
 https://nytimes.com/interactive/2025/06/16/us/Vance-boelter-charging-docs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427096/2025/06/16/leeds-underwood-marathe-sporting
 **Creating Florian Wirtz: The living room footballer who still can't stand losing**\
 `No video games and rarely TV – the story behind potentially the Premier League's most expensive player`\
 https://nytimes.com/athletic/6401889/2025/06/16/creating-florian-wirtz/
-
-**Should record losers Auckland City be part of the expanded Club World Cup?**\
-`Auckland City's 10-0 defeat highlighted a tension at the heart of the new Club World Cup but the fault is not theirs`\
-https://nytimes.com/athletic/6427850/2025/06/16/auckland-city-club-world-cup-record/
 
