@@ -1,3 +1,7 @@
+**Israel attacks Iran’s state television, live on the air.**\
+`By Aaron Boxerman, Farnaz Fassihi, Aric Toler and Sanjana Varghese`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news/israel-iran-state-tv
+
 **An Experimental Music Collective Arrives at Lincoln Center**\
 `The American Modern Opera Company is taking over Lincoln Center for a five-week residency. It is both a milestone and a homecoming for these artists.`\
 https://nytimes.com/2025/06/16/arts/music/amoc-lincoln-center-summer-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/politics/trump-watchdog-library-funds.html
 **French Luxury Giant Kering Taps Auto Executive as Its New Leader**\
 `The former chief executive of the carmaker Renault will replace Francois-Henri Pinault as the struggling company seeks a turnaround.`\
 https://nytimes.com/2025/06/16/business/kering-leo-de-meo-renault.html
-
-**THE BAT X fantasy baseball cheat sheet: Stream Clayton Kershaw; fade and trade TJ Friedl**\
-`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6429014/2025/06/16/the-bat-x-fantasy-baseball-cheat-sheet-stream-clayton-kershaw-fade-and-trade-tj-friedl/
 
