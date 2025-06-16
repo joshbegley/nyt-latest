@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-mag
 `Spaun needed to two-putt from 64 feet to win the U.S. Open. He only needed one.`\
 https://nytimes.com/athletic/6427924/2025/06/15/us-open-jj-spaun-win-putt/
 
-**Palmeiras 0 Porto 0 - No goals in group A but 'Ronaldo' arrives at the Club World Cup**\
-`Analysis of the second Club World Cup group A game`\
+**Palmeiras 0 Porto 0 - No goals in Group A but 'Ronaldo' arrives at the Club World Cup**\
+`Both matches to open play in Group A at the Club World Cup have ended 0-0, keeping things wide open.`\
 https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-highlights/
 
 **USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
