@@ -1,3 +1,7 @@
+**Rosenthal: In wake of Rafael Devers trade, there's only one question that matters for the Red Sox**\
+`For the 2025 season and beyond, the deal will ultimately be evaluated on whether it makes Boston a better team. `\
+https://nytimes.com/athletic/6428396/2025/06/15/rafael-devers-red-sox-giants-trade-rosenthal/
+
 **Suspect in Minnesota Killings Carried a List of Some 70 Targets**\
 `The tally, which included politicians, community and business leaders, and locations for Planned Parenthood, was recovered in a car linked to the attacks.`\
 https://nytimes.com/2025/06/15/us/minnesota-shootings-suspect-targets.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6428313/2025/06/15/submit-a-question-for-stewart-ma
 **Heavy Rain Brings Flash Floods to West Virginia**\
 `Water levels rose at Wheeling Creek in Wheeling, W.Va., where the fire department said search and dive operations took place.`\
 https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.html
-
-**Trade analysis: In Rafael Devers, Giants get the big bat they need from Red Sox**\
-`The Giants addressed a clear need (offense), but while the Red Sox got back some value, the return doesn't make them immediately better.`\
-https://nytimes.com/athletic/6428232/2025/06/15/rafael-devers-sf-giants-red-sox-trade-analysis/
 
