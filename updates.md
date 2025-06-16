@@ -1,3 +1,9 @@
+**Watching the three Nottingham Forest-bound Brazilians play at the Club World Cup**\
+`Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano - and two of them scored for Botafogo on Sunday
+
+`\
+https://nytimes.com/athletic/6429059/2025/06/16/igor-jesus-jair-cunha-cuiabano-botafogo-nottingham-forest/
+
 **Leonard Lauder Was Beauty’s Original Influencer**\
 `It’s possible Kylie Jenner and Hailey Bieber would not have become cosmetic moguls without him.`\
 https://nytimes.com/2025/06/16/style/leonard-lauder-beauty-influencer.html
