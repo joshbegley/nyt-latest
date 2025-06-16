@@ -1,3 +1,11 @@
+**Bat Cave Footage Offers Clues to How Viruses Leap Between Species**\
+`Video from a national park in Uganda depicted a parade of predatory species feeding on and dispersing fruit bats that are known natural reservoirs of infectious diseases.`\
+https://nytimes.com/2025/06/16/science/bats-cave-spillover-uganda.html
+
+**FIFA drops anti-racism, anti-discrimination messages for Club World Cup**\
+`The messaging has not been visible during the opening round of fixtures at the tournament in stadiums or on social media platforms.`\
+https://nytimes.com/athletic/6430673/2025/06/16/fifa-club-world-cup-racism-discrimination-message/
+
 **Scoop City: 2025 NFC North preview, plus an update on Colts QB battle**\
 `Key questions, breakout players and positions to watch in the NFC North, plus a look at the Colts quarterback competition.`\
 https://nytimes.com/athletic/6430697/2025/06/16/nfc-north-preview-nfl-2025-bears-vikings-packers-lions-scoop-city/
