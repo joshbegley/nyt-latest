@@ -10,6 +10,12 @@ https://nytimes.com/athletic/6429463/2025/06/16/notre-dame-football-mailbag-ques
 `In a city under attack, residents encounter gas stations that are closing because there is no fuel, and disruptions to internet and phone service.`\
 https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
 
+**Watching the three Nottingham Forest-bound Brazilians play at the Club World Cup**\
+`Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano - and two of them scored for Botafogo on Sunday
+
+`\
+https://nytimes.com/athletic/6429059/2025/06/16/igor-jesus-jair-cunha-cuiabano-botafogo-nottingham-forest/
+
 **To Protest Budget Cuts, Young Scientists Try Letters to the Editor**\
 `Hundreds of graduate students are writing to their hometown newspapers to defend their research, as the Trump administration drastically reduces science funding.`\
 https://nytimes.com/2025/06/16/science/science-budget-cuts-protest-letters.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6429032/2025/06/16/red-light-oilers-panthers/
 **WSL clubs vote to expand league to 14 teams and introduce relegation play-off**\
 `English women's football chief Nikki Doucet said the play-off will create "a high-profile, high-stakes match".`\
 https://nytimes.com/athletic/6429125/2025/06/16/wsl-promotion-relegation-playoff/
-
-**Business Lobbyists Scramble to Kill $100 Billion ‘Revenge Tax’**\
-`Critics contend that the measure will scare off the foreign investment that President Trump wants to attract.`\
-https://nytimes.com/2025/06/16/us/politics/republican-policy-bill-revenge-tax.html
 

@@ -1,3 +1,9 @@
+**Watching the three Nottingham Forest-bound Brazilians play at the Club World Cup**\
+`Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano - and two of them scored for Botafogo on Sunday
+
+`\
+https://nytimes.com/athletic/6429059/2025/06/16/igor-jesus-jair-cunha-cuiabano-botafogo-nottingham-forest/
+
 **Oil Prices Drop, but Iran-Israel Conflict Raises Many Risks**\
 `Industry experts are examining possible scenarios, including one in which the price of oil doubles this year.`\
 https://nytimes.com/2025/06/16/business/oil-prices-iran-israel.html
