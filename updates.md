@@ -1,3 +1,7 @@
+**Wirtz set for Liverpool medical later this week**\
+`On Friday, The Athletic reported that Liverpool had agreed a fee of €136.3m for the Germany international.`\
+https://nytimes.com/athletic/6428949/2025/06/16/florian-wirtz-medical-liverpool-transfer/
+
 **Investors Brace for Oil Market Fallout**\
 `Energy prices have jumped since the onset of clashes between Israel and Iran. Investors worry the conflict could have a big economic consequences.`\
 https://nytimes.com/2025/06/16/business/dealbook/oil-fallout-iran-israel.html

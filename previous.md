@@ -1,3 +1,7 @@
+**Wirtz set for Liverpool medical later this week**\
+`On Friday, The Athletic reported that Liverpool had agreed a fee of €136.3m for the Germany international.`\
+https://nytimes.com/athletic/6428949/2025/06/16/florian-wirtz-medical-liverpool-transfer/
+
 **Investors Brace for Oil Market Fallout**\
 `Energy prices have jumped since the onset of clashes between Israel and Iran. Investors worry the conflict could have a big economic consequences.`\
 https://nytimes.com/2025/06/16/business/dealbook/oil-fallout-iran-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424702/2025/06/16/ottawa-senators-nhl-draft-blake-
 **Trump Administration Live Updates: As G7 Meets in Canada, U.S. Rift With Allies Deepens**\
 ``\
 https://nytimes.com/live/2025/06/16/us/trump-news
-
-**Three People Killed, Including 8-Month-Old, in Shooting at Utah Festival**\
-`The other victims were an 18-year-old man and a 41-year-old woman, the police said. The gunfire stemmed from a verbal altercation.`\
-https://nytimes.com/2025/06/16/us/west-fest-shooting-utah-west-valley-city.html
 
