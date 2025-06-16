@@ -1,3 +1,11 @@
+**Astros place starter Lance McCullers Jr. on injured list**\
+`Houston placed a starting pitcher on the IL for the fourth time this reason, announcing that the 31-year-old lefty has a right foot sprain.`\
+https://nytimes.com/athletic/6430222/2025/06/16/astros-lance-mccullers-injury/
+
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`What is on your mind as Sean Payton's team heads into its summer break?`\
+https://nytimes.com/athletic/6430224/2025/06/16/broncos-mailbag-request-offseason/
+
 **Owners of Doomed Nightclub in Dominican Republic Knew Roof Was Shoddy**\
 `The owners of a nightclub in the Dominican Republic where the roof collapsed killing 235 people face a maximum of just two years in prison.`\
 https://nytimes.com/2025/06/16/us/dominican-republic-nightclub-owner-roof-collapse-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6429967/2025/06/16/wrexham-transfers-ryan-hardie-pl
 **What to watch in sports this week: NBA Finals, Stanley Cup, Concacaf and college baseball**\
 `This is your guide to the forthcoming national TV schedule and what to watch in sports this week. `\
 https://nytimes.com/athletic/6424887/2025/06/16/nba-finals-stanley-cup-caitlin-clark-concacaf-how-to-watch/
-
-**Fanatics Fest 2025 guide: Where the sports world is converging this week**\
-`Fanatics Fest had a plethora of viral moments in its first year and with some new additions, it's likely to be the case again this week`\
-https://nytimes.com/athletic/6429605/2025/06/16/fanatics-fest-2025/
-
-**How to watch Padres at Dodgers: Shohei Ohtani makes anticipated pitching debut for LA**\
-`Baseball's two-way star, Shohei Ohtani, makes his long-awaited return to the mound as he gears up for his first start with the Dodgers.`\
-https://nytimes.com/athletic/6429382/2025/06/16/ohtani-shohei-dodgers-padres-pitching-watch/
 

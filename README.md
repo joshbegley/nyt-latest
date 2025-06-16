@@ -1,3 +1,11 @@
+**The Minnesota suspect traveled to four lawmakers’ homes on the night of the attacks.**\
+`Officials said a man charged with shooting two lawmakers and their spouses was apparently thwarted at two other politicians’ homes.`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/minnesota-suspect-traveled-to-4-lawmakers-homes-on-night-of-attacks
+
+**Political Violence Is Rising. This Is What We Can Do to Stop It.**\
+`Bipartisan denunciations are surprisingly effective.`\
+https://nytimes.com/2025/06/16/opinion/political-violence-minnesota.html
+
 **Astros place starter Lance McCullers Jr. on injured list**\
 `Houston placed a starting pitcher on the IL for the fourth time this reason, announcing that the 31-year-old lefty has a right foot sprain.`\
 https://nytimes.com/athletic/6430222/2025/06/16/astros-lance-mccullers-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6429097/2025/06/16/nba-daily-2025-draft-preview-sam
 **American Bar Association Sues Trump Administration**\
 `A lawsuit by the lawyers group seeks to stop the president’s efforts to punish law firms.`\
 https://nytimes.com/2025/06/16/us/american-bar-association-sues-trump-administration.html
-
-**Wrexham sign forward Ryan Hardie from Plymouth**\
-`Phil Parkinson's side are preparing for their first season in the Championship for 43 years with Hardie the first arrival of the window.`\
-https://nytimes.com/athletic/6429967/2025/06/16/wrexham-transfers-ryan-hardie-plymouth/
-
-**What to watch in sports this week: NBA Finals, Stanley Cup, Concacaf and college baseball**\
-`This is your guide to the forthcoming national TV schedule and what to watch in sports this week. `\
-https://nytimes.com/athletic/6424887/2025/06/16/nba-finals-stanley-cup-caitlin-clark-concacaf-how-to-watch/
 
