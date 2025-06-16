@@ -1,3 +1,11 @@
+**1 Killed in Shooting at a ‘No Kings’ Protest in Salt Lake City**\
+`A bystander was fatally shot after security members at the demonstration confronted a man who was running toward the crowd with an AR-15-style rifle, the police said.`\
+https://nytimes.com/2025/06/15/us/politics/no-kings-protest-shooting-salt-lake-city.html
+
+**Liam Delap 'future England No 9' says Maresca but not guaranteed to be first-choice at Chelsea**\
+`“The message is always the same: you arrive, you work hard, you work more than the other number nine and you can be first choice No 9"`\
+https://nytimes.com/athletic/6428328/2025/06/15/liam-delap-chelsea-maresca/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>The Mailbag returns this week after an extended offseason hiatus. What&#8217;s on your mind?</p>
 <p>Leave your questions here. Please include your city.</p>
