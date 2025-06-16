@@ -1,3 +1,11 @@
+**No Corrections: June 16, 2025**\
+`No corrections appeared in print on Monday, June 16, 2025.`\
+https://nytimes.com/2025/06/16/pageoneplus/no-corrections-june-16-2025.html
+
+**How and why Paris Saint-Germain play walking football**\
+`This, coupled with their fast starts and early goals, means PSG do not fatigue late in games - even in the sweltering U.S. heat`\
+https://nytimes.com/athletic/6428864/2025/06/16/psg-atletico-club-world-cup-walking-football/
+
 **Pangolins Should Receive Endangered Protections, U.S. Officials Say**\
 `The armored mammals are trafficked for their scales and meat.`\
 https://nytimes.com/2025/06/16/climate/pangolins-endangered-species.html

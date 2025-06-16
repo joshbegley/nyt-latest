@@ -1,3 +1,19 @@
+**Which San Diego Padres players' stock is up/down as summer approaches?**\
+`Which Padres have been keeping the club afloat, and which players have been dragging it down?`\
+https://nytimes.com/athletic/6428430/2025/06/16/san-diego-padres-players-stock-up-down/
+
+**WhatsApp Introduces Ads in Its App**\
+`They will appear in only one part of the Meta-owned messaging service, it said. The move is potentially lucrative, while raising questions about user privacy.`\
+https://nytimes.com/2025/06/16/technology/whatsapp-ads.html
+
+**California’s Big Question: How Brutal Will the Summer Wildfire Season Be?**\
+`Experts say there could be more large wildfires than usual this year. Here’s a look at why.`\
+https://nytimes.com/2025/06/16/weather/california-fire-season-forecast.html
+
+**MI6 Names Its First Female Chief, Career Spy Blaise Metreweli**\
+`A former ‘Q,’ she will be the first woman to lead Britain’s foreign intelligence service in the agency’s 116-year history.`\
+https://nytimes.com/2025/06/16/world/europe/uk-spy-agency-mi6-female-chief-blaise-metreweli.html
+
 **No Corrections: June 16, 2025**\
 `No corrections appeared in print on Monday, June 16, 2025.`\
 https://nytimes.com/2025/06/16/pageoneplus/no-corrections-june-16-2025.html
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/6428885/2025/06/16/vinicius-jr-atletico-madrid-fans
 **What Is Iran’s Quds Force?**\
 `The group is one of the most powerful and shadowy arms of Iran’s military, and it has long been on the front line of a shadow conflict with Israel.`\
 https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
-
-**How and why Paris Saint-Germain play walking football**\
-`This, coupled with their fast starts and early goals, means PSG do not fatigue late in games - even in the sweltering U.S. heat`\
-https://nytimes.com/athletic/6428864/2025/06/16/psg-atletico-club-world-cup-walking-football/
-
-**Wirtz set for Liverpool medical later this week**\
-`On Friday, The Athletic reported that Liverpool had agreed a fee of €136.3m for the Germany international.`\
-https://nytimes.com/athletic/6428949/2025/06/16/florian-wirtz-medical-liverpool-transfer/
-
-**Investors Brace for Oil Market Fallout**\
-`Energy prices have jumped since the onset of clashes between Israel and Iran. Investors worry the conflict could have a big economic consequences.`\
-https://nytimes.com/2025/06/16/business/dealbook/oil-fallout-iran-israel.html
-
-**Judd Brackett discusses the 2025 NHL Draft, Marco Rossi, Wild prospects, more**\
-`The Wild don't have a first-round pick in this year's draft. “It’s certainly harder to predict,” Brackett said of planning for pick No. 52.`\
-https://nytimes.com/athletic/6424413/2025/06/16/wild-2025-nhl-draft-rossi-brackett/
-
-**Guardians trade deadline primer: Buyers? Sellers? Neither? It feels like 2023 again**\
-`As things stand, this feels like a team that will have a quiet deadline, or participate in some light shuffling.`\
-https://nytimes.com/athletic/6411812/2025/06/16/guardians-mlb-trade-deadline-primer/
 
