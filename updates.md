@@ -1,3 +1,7 @@
+**Why committing fouls is a necessary evil for Thunder's league-best defense**\
+`Historically, the best defenses are able to get stops without fouling. But OKC engulfs attacks not despite its hacking but because of it.`\
+https://nytimes.com/athletic/6427241/2025/06/16/thunder-defense-fouling-2025-nba-finals/
+
 **As U.S. Aid Dries Up, West Africa Fights Expanding Jihadist Threat**\
 `Insurgents are expanding from West Africa’s Sahel region toward Atlantic coastal nations such as Ivory Coast, creating new terrorism hot spots and displacing millions.`\
 https://nytimes.com/2025/06/16/world/africa/africa-terrorism-trump-ivory-coast.html
