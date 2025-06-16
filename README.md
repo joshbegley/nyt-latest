@@ -1,3 +1,7 @@
+**Potential Sheffield Wednesday owner calls for 55,000-seater stadium**\
+`Wednesday have not been in the Premier League since 2000 and have spent the past 25 years yo-yoing between the second and third tiers.`\
+https://nytimes.com/athletic/6429823/2025/06/16/sheffield-wednesday-stadium-takeover/
+
 **PWHL Vancouver signs top free agents Hannah Miller and Tereza Vanisová**\
 `Miller was ranked as the league's No. 1 free agent by The Athletic.`\
 https://nytimes.com/athletic/6429961/2025/06/16/pwhl-vancouver-miller-vanisova/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429382/2025/06/16/ohtani-shohei-dodgers-padres-pit
 **Negotiation or Capitulation? How Columbia Got Off Trump’s Hot Seat.**\
 `The university has largely complied with the administration’s demands, but has adjusted them in meaningful ways. One department offers a window into that effort.`\
 https://nytimes.com/2025/06/16/nyregion/columbia-middle-east-studies-trump.html
-
-**Red Sox legend David Ortiz weighs in on the Rafael Devers trade: 'It wasn't going to end well'**\
-`Ortiz, who played 14 years in Boston, sees the breakdown between Devers and the Red Sox from both sides.`\
-https://nytimes.com/athletic/6429779/2025/06/16/david-ortiz-red-sox-rafael-devers-trade/
 
