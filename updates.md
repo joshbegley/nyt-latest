@@ -1,3 +1,7 @@
+**Sevilla appoint Matias Almeyda as head coach**\
+`Almeyda has signed a three-year deal at Sevilla, who finished 2024-25 in 17th, just one point and one place above the relegation zone`\
+https://nytimes.com/athletic/6429545/2025/06/16/sevilla-manager-matias-almeyda/
+
 **Watching the three Nottingham Forest-bound Brazilians play at the Club World Cup**\
 `Forest have reached a verbal agreement to sign Igor Jesus, Jair Cunha and Cuiabano – and two of them scored for Botafogo on Sunday
 
