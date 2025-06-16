@@ -1,3 +1,7 @@
+**‘I’m an American, Bro!’: Latinos Report Raids in Which U.S. Citizenship Is Questioned**\
+`A raid in Montebello, Calif., has stirred fears that federal agents are detaining and racially profiling U.S. citizens of Hispanic descent.`\
+https://nytimes.com/2025/06/15/us/hispanic-americans-raids-citizenship.html
+
 **U.S. Open 2025: What to know about J.J. Spaun's win at Oakmont**\
 `Spaun is the first player to card a 40 on the front nine in the final round of a U.S. Open and still win since Francis Ouimet in 1913.`\
 https://nytimes.com/athletic/6428283/2025/06/15/us-open-2025-what-to-know-spaun-win-oakmont/
