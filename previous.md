@@ -1,3 +1,23 @@
+**Chelsea make verbal enquiry for Lyon winger Fofana**\
+`The 20-year-old Belgium international is is among a number of options being considered and conversations are ongoing.`\
+https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
+
+**Supreme Court to Hear Case on Subpoena to Anti-Abortion Pregnancy Centers**\
+`The question for the justices is whether the centers may pursue a First Amendment challenge to a state subpoena seeking donor information in federal court.`\
+https://nytimes.com/2025/06/16/us/politics/supreme-court-pregnancy-centers.html
+
+**Shohei Ohtani is racking up MVPs, and it could lead to a piece of baseball immortality**\
+`Ohtani's greatness is indisputable. But is clinching an all-time record within the realm of possibility?`\
+https://nytimes.com/athletic/6429186/2025/06/16/shohei-ohtani-mvp-record-odds/
+
+**Barry-Murphy appointed Cardiff City head coach**\
+`Barry-Murphy, 46, had worked as assistant to Ruud van Nistelrooy at Leicester City since December.`\
+https://nytimes.com/athletic/6422297/2025/06/16/brian-barry-murphy-appointed-cardiff-city-head-coach/
+
+**Here’s why state prosecutors started by charging second-degree murder.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/heres-why-prosecutors-started-by-charging-second-degree-murder
+
 **Israel attacks Iran’s state television, live on the air.**\
 `By Aaron Boxerman, Farnaz Fassihi, Aric Toler and Sanjana Varghese`\
 https://nytimes.com/live/2025/06/16/world/iran-israel-news/israel-iran-state-tv
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
 **Joey Chestnut returning to Nathan’s Hot Dog Eating Contest after 2024 ban**\
 `The 16-time Nathan's Famous Hot Dog Eating Contest champion is back, and he's hungry to reclaim his throne.`\
 https://nytimes.com/athletic/6429380/2025/06/16/joey-chestnut-returning-nathans-hot-dog-eating-contest/
-
-**William Langewiesche, the ‘Steve McQueen of Journalism,’ Dies at 70**\
-`He was a master of long form narratives, often involving high-stakes topics. He reported for Vanity Fair, The Atlantic and The New York Times Magazine.`\
-https://nytimes.com/2025/06/16/business/media/william-langewiesche-dead.html
-
-**Sevilla appoint Matias Almeyda as head coach**\
-`Almeyda has signed a three-year deal at Sevilla, who finished 2024-25 in 17th, just one point and one place above the relegation zone`\
-https://nytimes.com/athletic/6429545/2025/06/16/sevilla-manager-matias-almeyda/
-
-**Leonard Lauder Was Beauty’s Original Influencer**\
-`It’s possible Kylie Jenner and Hailey Bieber would not have become cosmetic moguls without him.`\
-https://nytimes.com/2025/06/16/style/leonard-lauder-beauty-influencer.html
-
-**Watchdog Finds Trump Administration Broke Law by Withholding Library Funds**\
-`It is the second time the nonpartisan Government Accountability Office has found the administration illegally impounded funds.`\
-https://nytimes.com/2025/06/16/us/politics/trump-watchdog-library-funds.html
-
-**French Luxury Giant Kering Taps Auto Executive as Its New Leader**\
-`The former chief executive of the carmaker Renault will replace Francois-Henri Pinault as the struggling company seeks a turnaround.`\
-https://nytimes.com/2025/06/16/business/kering-leo-de-meo-renault.html
 

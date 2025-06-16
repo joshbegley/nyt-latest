@@ -1,3 +1,23 @@
+**Chelsea make verbal enquiry for Lyon winger Fofana**\
+`The 20-year-old Belgium international is is among a number of options being considered and conversations are ongoing.`\
+https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
+
+**Supreme Court to Hear Case on Subpoena to Anti-Abortion Pregnancy Centers**\
+`The question for the justices is whether the centers may pursue a First Amendment challenge to a state subpoena seeking donor information in federal court.`\
+https://nytimes.com/2025/06/16/us/politics/supreme-court-pregnancy-centers.html
+
+**Shohei Ohtani is racking up MVPs, and it could lead to a piece of baseball immortality**\
+`Ohtani's greatness is indisputable. But is clinching an all-time record within the realm of possibility?`\
+https://nytimes.com/athletic/6429186/2025/06/16/shohei-ohtani-mvp-record-odds/
+
+**Barry-Murphy appointed Cardiff City head coach**\
+`Barry-Murphy, 46, had worked as assistant to Ruud van Nistelrooy at Leicester City since December.`\
+https://nytimes.com/athletic/6422297/2025/06/16/brian-barry-murphy-appointed-cardiff-city-head-coach/
+
+**Here’s why state prosecutors started by charging second-degree murder.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/heres-why-prosecutors-started-by-charging-second-degree-murder
+
 **Israel attacks Iran’s state television, live on the air.**\
 `By Aaron Boxerman, Farnaz Fassihi, Aric Toler and Sanjana Varghese`\
 https://nytimes.com/live/2025/06/16/world/iran-israel-news/israel-iran-state-tv
