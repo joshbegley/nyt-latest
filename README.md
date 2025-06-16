@@ -1,3 +1,15 @@
+**Stocks Tread Cautiously as Investors Watch Oil Prices**\
+`As Israel and Iran exchanged more attacks, stock markets mostly rose even as worries remained about possible oil supply interruptions.`\
+https://nytimes.com/2025/06/16/business/stocks-oil-prices-israel-iran.html
+
+**Go Ask Your Father**\
+`Putting big, burning questions to Dad.`\
+https://nytimes.com/2025/06/16/podcasts/go-ask-your-father-this-american-life-nyt-audio.html
+
+**Lloris says Club World Cup participants 'have to adapt to schedule'**\
+`Lloris insists that the top European clubs participating do not face greater challenges than their opponents from the rest of the world.`\
+https://nytimes.com/athletic/6428658/2025/06/16/club-world-cup-chelsea-lafc-lloris/
+
 **Iranian Strikes Kill at Least 8 in Israel as Conflict Enters Fourth Day**\
 `Dozens of others were injured overnight across Israel, the authorities said. Israel was striking military sites in Iran and the four-day-old conflict showed no sign of slowing.`\
 https://nytimes.com/2025/06/16/world/middleeast/petah-tikva-israel-iran-missile-strike.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/16/learning/word-of-the-day-ebullient.html
 **Simeone and Luis Enrique are transformative managers heading in very different directions**\
 `Atletico Madrid are struggling to keep pace with the standards being set by the Spaniard's brilliant PSG side`\
 https://nytimes.com/athletic/6428376/2025/06/16/diego-simeone-luis-enrique-atleti-psg/
-
-**Monday Briefing: Iran-Israel Conflict Continues**\
-`Plus, the Dalai Lama’s succession.`\
-https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-lawmaker-assassin-air-india.html
-
-**The New York Times in Print for Monday, June 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/16/todays-new-york-times
-
-**‘We Were Liars,’ Plus 7 Things to Watch on TV This Week**\
-`The adaptation of E. Lockhart’s Y.A. horror novel comes to Prime Video, and “The Gilded Age” returns for a third season.`\
-https://nytimes.com/2025/06/16/arts/television/what-to-watch-this-week.html
 
