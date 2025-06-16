@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Natan Odenheimer and Andrés R. Martínez`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news/heres-the-latest
+
 **Live Updates: Israel Says It Attacked Headquarters of Powerful Iranian Military Unit**\
 `Israel’s military said it had struck the headquarters of the Quds Force, which reports directly to Iran’s supreme leader. The claim could not be immediately confirmed.`\
 https://nytimes.com/live/2025/06/16/world/iran-israel-news
