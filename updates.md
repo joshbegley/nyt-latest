@@ -1,3 +1,15 @@
+**Fanatics Fest 2025 guide: Where the sports world is converging this week**\
+`Fanatics Fest had a plethora of viral moments in its first year and with some new additions, it's likely to be the case again this week`\
+https://nytimes.com/athletic/6429605/2025/06/16/fanatics-fest-2025/
+
+**How to watch Padres at Dodgers: Shohei Ohtani makes anticipated pitching debut for LA**\
+`Baseball's two-way star, Shohei Ohtani, makes his long-awaited return to the mound as he gears up for his first start with the Dodgers.`\
+https://nytimes.com/athletic/6429382/2025/06/16/ohtani-shohei-dodgers-padres-pitching-watch/
+
+**Negotiation or Capitulation? How Columbia Got Off Trump’s Hot Seat.**\
+`The university has largely complied with the administration’s demands, but has adjusted them in meaningful ways. One department offers a window into that effort.`\
+https://nytimes.com/2025/06/16/nyregion/columbia-middle-east-studies-trump.html
+
 **Red Sox legend David Ortiz weighs in on the Rafael Devers trade: 'It wasn't going to end well'**\
 `Ortiz, who played 14 years in Boston, sees the breakdown between Devers and the Red Sox from both sides.`\
 https://nytimes.com/athletic/6429779/2025/06/16/david-ortiz-red-sox-rafael-devers-trade/

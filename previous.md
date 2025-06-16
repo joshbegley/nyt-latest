@@ -1,3 +1,15 @@
+**Fanatics Fest 2025 guide: Where the sports world is converging this week**\
+`Fanatics Fest had a plethora of viral moments in its first year and with some new additions, it's likely to be the case again this week`\
+https://nytimes.com/athletic/6429605/2025/06/16/fanatics-fest-2025/
+
+**How to watch Padres at Dodgers: Shohei Ohtani makes anticipated pitching debut for LA**\
+`Baseball's two-way star, Shohei Ohtani, makes his long-awaited return to the mound as he gears up for his first start with the Dodgers.`\
+https://nytimes.com/athletic/6429382/2025/06/16/ohtani-shohei-dodgers-padres-pitching-watch/
+
+**Negotiation or Capitulation? How Columbia Got Off Trump’s Hot Seat.**\
+`The university has largely complied with the administration’s demands, but has adjusted them in meaningful ways. One department offers a window into that effort.`\
+https://nytimes.com/2025/06/16/nyregion/columbia-middle-east-studies-trump.html
+
 **Red Sox legend David Ortiz weighs in on the Rafael Devers trade: 'It wasn't going to end well'**\
 `Ortiz, who played 14 years in Boston, sees the breakdown between Devers and the Red Sox from both sides.`\
 https://nytimes.com/athletic/6429779/2025/06/16/david-ortiz-red-sox-rafael-devers-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6429645/2025/06/16/flyers-roster-offseason-veterans
 **‘There Was No Time to Run’: Caught in the Inferno of The Air India Crash**\
 `Akash Patni, 14, was dropping off lunch for his mother, who ran a tea stall, when an Air India plane crashed into a nearby building, taking his life and the family’s main source of income.`\
 https://nytimes.com/video/world/asia/100000010231141/there-was-no-time-to-run-caught-in-the-inferno-of-the-air-india-crash.html
-
-**Democrat Seeks to Limit Trump’s War Powers Amid Middle East Escalation**\
-`A resolution by Senator Tim Kaine of Virginia would require congressional approval before U.S. troops could engage in hostilities against Iran. He said Americans don’t want another “forever war.”`\
-https://nytimes.com/2025/06/16/world/middleeast/kaine-trump-war-powers.html
-
-**Scenes From the ‘No Kings’ Rallies and the Military Parade**\
-`Readers reflect on the anti-Trump demonstrations and the military parade on Saturday. Also: Transgender troops.`\
-https://nytimes.com/2025/06/16/opinion/trump-no-kings-rallies-parade.html
-
-**Beuford Smith, Photographer Who Chronicled Black Life, Dies at 89**\
-`He was a prominent member of the Kamoinge Workshop, a collective that nurtured Black photographers at a time when they were marginalized by the mainstream.`\
-https://nytimes.com/2025/06/16/arts/beuford-smith-dead.html
 
