@@ -1,3 +1,7 @@
+**Trump Fires Nuclear Safety Board Member Who Led Agency Under Biden**\
+`The dismissal came as President Trump considers signing several executive orders aimed at cutting regulations for nuclear power plants.`\
+https://nytimes.com/2025/06/16/us/nuclear-safety-board-firing-trump.html
+
 **Ralph J. Lamberti Jr., Former Staten Island Borough President, Dies at 90**\
 `He served from 1984 to 1989, and sought to maintain checks and balances in city government to prevent against what he called “an imperial mayor.”`\
 https://nytimes.com/2025/06/16/nyregion/ralph-j-lamberti-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/politics/mike-lee-minnesota-assassination-demo
 **Israeli Strike Hits Iranian State TV Broadcaster**\
 `Black smoke billowed from the Iranian state TV headquarters after an Israeli strike hit the building on Monday. The attack comes as the fighting between Israel and Iran show no signs of slowing down.`\
 https://nytimes.com/video/world/middleeast/100000010232594/israel-strike-iran-broadcast-tv-conflict.html
-
-**Kepner: For rudderless Red Sox, Mookie Betts is the ghost in the machine**\
-`The Dodgers star has been a specter hovering over the Red Sox' moves – including the Rafael Devers trade – since his departure from Boston.`\
-https://nytimes.com/athletic/6430228/2025/06/16/mookie-betts-red-sox-trade-rafael-devers/
 

@@ -1,3 +1,7 @@
+**Trump Fires Nuclear Safety Board Member Who Led Agency Under Biden**\
+`The dismissal came as President Trump considers signing several executive orders aimed at cutting regulations for nuclear power plants.`\
+https://nytimes.com/2025/06/16/us/nuclear-safety-board-firing-trump.html
+
 **Ralph J. Lamberti Jr., Former Staten Island Borough President, Dies at 90**\
 `He served from 1984 to 1989, and sought to maintain checks and balances in city government to prevent against what he called “an imperial mayor.”`\
 https://nytimes.com/2025/06/16/nyregion/ralph-j-lamberti-jr-dead.html
