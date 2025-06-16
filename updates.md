@@ -1,3 +1,11 @@
+**What Is Iran’s Quds Force?**\
+`The group is one of the most powerful and shadowy arms of Iran’s military, and it has long been on the front line of a shadow conflict with Israel.`\
+https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
+
+**How and why Paris Saint-Germain play walking football**\
+`This, coupled with their fast starts and early goals, means PSG do not fatigue late in games — even in the sweltering U.S. heat`\
+https://nytimes.com/athletic/6428864/2025/06/16/psg-atletico-club-world-cup-walking-football/
+
 **Wirtz set for Liverpool medical later this week**\
 `On Friday, The Athletic reported that Liverpool had agreed a fee of €136.3m for the Germany international.`\
 https://nytimes.com/athletic/6428949/2025/06/16/florian-wirtz-medical-liverpool-transfer/
