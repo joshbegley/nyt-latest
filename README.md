@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6429124/2025/06/16/ingebrigtsen-trial-jakob-olympic
 https://nytimes.com/2025/06/16/us/politics/trump-nih-grants-cut.html
 
 **The Smart Way for Trump to End the Israel-Iran War**\
-`President Trump has a chance to create the best opportunity for stabilizing the Middle East in decades — if he is up to it.`\
+`President Trump has a chance to create the best opportunity for stabilizing the Middle East in decades, if he is up to it.`\
 https://nytimes.com/2025/06/16/opinion/trump-israel-iran-war.html
 
 **FIFA spent more than $50m on Club World Cup marketing to boost ticket sales**\
