@@ -1,3 +1,7 @@
+**Iranian Strikes Kill at Least 8 in Israel as Conflict Enters Fourth Day**\
+`Dozens of others were injured overnight across Israel, the authorities said. Israel was striking military sites in Iran and the four-day-old conflict showed no sign of slowing.`\
+https://nytimes.com/2025/06/16/world/middleeast/petah-tikva-israel-iran-missile-strike.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/16/crosswords/spelling-bee-forum.html
