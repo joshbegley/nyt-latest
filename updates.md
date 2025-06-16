@@ -1,3 +1,7 @@
+**Assessing Ravens' pending roster competitions ahead of minicamp**\
+`Arguably, Baltimore's two biggest starting position battles this summer will be at left guard and inside linebacker. `\
+https://nytimes.com/athletic/6425362/2025/06/16/ravens-roster-competitions-mandatory-minicamp/
+
 **With No Clear Off-Ramp, Israel’s War With Iran May Last Weeks, Not Days**\
 `Israel and Iran both have little incentive to stop and no obvious route to outright victory. Much depends on President Trump.`\
 https://nytimes.com/2025/06/16/world/middleeast/iran-israel-war-off-ramp.html

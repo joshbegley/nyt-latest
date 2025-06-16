@@ -1,3 +1,7 @@
+**Assessing Ravens' pending roster competitions ahead of minicamp**\
+`Arguably, Baltimore's two biggest starting position battles this summer will be at left guard and inside linebacker. `\
+https://nytimes.com/athletic/6425362/2025/06/16/ravens-roster-competitions-mandatory-minicamp/
+
 **With No Clear Off-Ramp, Israel’s War With Iran May Last Weeks, Not Days**\
 `Israel and Iran both have little incentive to stop and no obvious route to outright victory. Much depends on President Trump.`\
 https://nytimes.com/2025/06/16/world/middleeast/iran-israel-war-off-ramp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/minnesota-slaying-melissa-hortman.html
 **Trump’s Strategy in Law Firm Cases: Lose, Don’t Appeal, Yet Prevail**\
 `The handful of notable firms that were targeted by the president for punishment but chose to fight have uniformly won. Nine others have nonetheless pledged almost $1 billion in free legal work.`\
 https://nytimes.com/2025/06/16/us/politics/trump-strategy-law-firms-appeals.html
-
-**Crowning New York’s Top ‘Pigeon’**\
-`Thousands of people gathered on the High Line on Saturday for Pigeon Fest, inspired by an artist’s sculpture and an appreciation for the city’s most resilient birds.`\
-https://nytimes.com/2025/06/16/arts/design/pigeon-fest-high-line.html
 
