@@ -1,3 +1,11 @@
+**Trump Will Not Sign G7 Statement on Iran and Israel, Official Says**\
+`A White House official said President Trump had decided not to sign onto a statement drafted for Group of 7 allies that urges restraint from both Israel and Iran, which have been trading attacks for days.`\
+https://nytimes.com/2025/06/16/world/middleeast/trump-israel-iran-g7-summit.html
+
+**As Iran Fires at Israel, Palestinians Get Caught in the Crossfire**\
+`Roughly 80 pieces of missiles have fallen on Palestinian communities since the start of the Israel-Iran confrontation on Friday, according to the Palestinian authorities.`\
+https://nytimes.com/2025/06/16/world/middleeast/as-iran-fires-at-israel-palestinians-get-caught-in-the-crossfire.html
+
 **Trump Fires Nuclear Safety Board Member Who Led Agency Under Biden**\
 `The dismissal came as President Trump considers signing several executive orders aimed at cutting regulations for nuclear power plants.`\
 https://nytimes.com/2025/06/16/us/nuclear-safety-board-firing-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/16/opinion/trump-israel-iran-war.html
 **FIFA spent more than $50m on Club World Cup marketing to boost ticket sales**\
 `The Club World Cup has been beset by organisational challenges ahead of the first edition of the revamped 32-team tournament in the U.S.`\
 https://nytimes.com/athletic/6426250/2025/06/16/fifa-club-world-cup-marketing/
-
-**Mike Lee Draws Outrage for Posts Blaming Assassination on the Far Left**\
-`The Republican senator from Utah suggested in social media posts that the killings were the work of “Marxists,” and mocked Minnesota’s Democratic governor. He later issued a more sober condemnation of the violence.`\
-https://nytimes.com/2025/06/16/us/politics/mike-lee-minnesota-assassination-democrats.html
-
-**Israeli Strike Hits Iranian State TV Broadcaster**\
-`Black smoke billowed from the Iranian state TV headquarters after an Israeli strike hit the building on Monday. The attack comes as the fighting between Israel and Iran show no signs of slowing down.`\
-https://nytimes.com/video/world/middleeast/100000010232594/israel-strike-iran-broadcast-tv-conflict.html
 
