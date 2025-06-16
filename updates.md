@@ -1,3 +1,39 @@
+**Minnesota Assassin Posed as Police Officer to Carry Out Shootings**\
+`Impersonating a police officer is a tactic sometimes used by criminals to win victims’ trust, police say.`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/police-impersonation
+
+**Trump’s Iran Choice: Last-Chance Diplomacy or a Bunker-Busting Bomb**\
+`Iranian officials have warned that U.S. participation in an attack on its facilities will imperil any chance of the nuclear disarmament deal the president insists he is still interested in pursuing.`\
+https://nytimes.com/2025/06/16/us/politics/trump-iran-diplomacy-conflict.html
+
+**Trump and Starmer Agree to Implement Parts of Trade Deal on Cars, Steel and Plane Parts**\
+`The leaders of Britain and the United States had announced a deal last month, but it had not been clear when their agreement would go into effect. Britain hailed the announcement as “a huge win.”`\
+https://nytimes.com/2025/06/16/us/uk-trade-trump-starmer-tariffs.html
+
+**How the Trump Era Changed Trump**\
+`The president is still the attention-loving, payback-obsessed main character that he was in 2015. But his four years out of office drove him to turn grievance into vengeance.`\
+https://nytimes.com/2025/06/16/us/politics/trump-decade-washington.html
+
+**Iran’s Best-Protected Nuclear Site Is Deep Underground**\
+`Only the U.S. military has the 30,000-pound bomb capable of reaching the facility and the bomber that can carry it.`\
+https://nytimes.com/2025/06/16/us/politics/iran-nuclear-site-israel.html
+
+**E.P.A. Plans to Reconsider a Ban on Cancer-Causing Asbestos**\
+`The Trump administration’s move sets back a decades-long effort to end the use of the material, which is widely banned in other countries.`\
+https://nytimes.com/2025/06/16/us/epa-trump-asbestos-ban-delay.html
+
+**Naval Academy Seeks Dismissal of Lawsuit After Dropping Race-Conscious Admissions**\
+`The academy had argued for years that a diverse officer corps was essential to strong troop morale and national security.`\
+https://nytimes.com/2025/06/16/us/naval-academy-race-admissions-lawsuit.html
+
+**Banned From YouTube, but Welcomed by Eric Adams at Gracie Mansion**\
+`Mayor Adams did an hourlong interview with Sneako, a streamer who has made remarks many consider antisemitic. The conservative influencer Amber Rose was also present.`\
+https://nytimes.com/2025/06/16/nyregion/adams-sneako-interview.html
+
+**Bat Cave Footage Offers Clues to How Viruses Leap Between Species**\
+`Video from a national park in Uganda depicted a parade of predatory species feeding on and dispersing fruit bats that are known natural reservoirs of infectious diseases.`\
+https://nytimes.com/2025/06/16/science/bats-cave-spillover-uganda.html
+
 **Israel Attacked Iran’s State TV**\
 `Also, the suspect in the Minnesota killings could face the death penalty. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-shootings-irish-cottage.html
