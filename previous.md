@@ -1,3 +1,15 @@
+**Pangolins Should Receive Endangered Protections, U.S. Officials Say**\
+`The armored mammals are trafficked for their scales and meat.`\
+https://nytimes.com/2025/06/16/climate/pangolins-endangered-species.html
+
+**How the Minnesota Shootings Suspect Was Caught**\
+`A two-day manhunt ended Sunday night as police captured the suspect, Vance Boelter, in a field. No force was used.`\
+https://nytimes.com/2025/06/16/us/minnesota-shooting-suspect-caught-how.html
+
+**Four Atletico fans handed prison sentences over effigy of Vinicius Jr**\
+`The mannequin was hung next to a 16-metre banner which read “Madrid hates Real” in January 2023.`\
+https://nytimes.com/athletic/6428885/2025/06/16/vinicius-jr-atletico-madrid-fans-effigy/
+
 **What Is Iran’s Quds Force?**\
 `The group is one of the most powerful and shadowy arms of Iran’s military, and it has long been on the front line of a shadow conflict with Israel.`\
 https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6411812/2025/06/16/guardians-mlb-trade-deadline-pri
 **What I'm hearing about Evgeni Malkin's Penguins future**\
 `The Penguins are not expected to offer Malkin a contract following the 2025-26 season. But how will they deploy him next season?`\
 https://nytimes.com/athletic/6411170/2025/06/16/penguins-evgeni-malkin-retirement-nhl/
-
-**Will Leafs target Brad Marchand, Nikolaj Ehlers? Move Morgan Rielly? Mirtle mailbag**\
-`Plus Nick Robertson's trade value, and should Toronto's lack of draft picks and prospects be concerning? `\
-https://nytimes.com/athletic/6426174/2025/06/16/maple-leafs-nhl-free-agency-marchand-ehlers-rielly/
-
-**Los Angeles Angels MLB trade deadline primer: 3 early storylines to watch**\
-`Could the Angels be buyers? How valuable is Kenley Jansen? Here's what to keep in mind as the deadline approaches.`\
-https://nytimes.com/athletic/6427465/2025/06/16/los-angeles-angels-mlb-trade-deadline-primer/
-
-**Sotheby’s to Auction a Ceratosaurus, With Millions and More on the Line**\
-`The 150-million-year-old specimen is valued at up to $6 million. Some paleontologists worry this auction and earlier ones are driving fossil market speculators.`\
-https://nytimes.com/2025/06/16/science/dinosaur-fossil-auction-sothebys.html
 

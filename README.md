@@ -1,3 +1,7 @@
+**No Corrections: June 16, 2025**\
+`No corrections appeared in print on Monday, June 16, 2025.`\
+https://nytimes.com/2025/06/16/pageoneplus/no-corrections-june-16-2025.html
+
 **Pangolins Should Receive Endangered Protections, U.S. Officials Say**\
 `The armored mammals are trafficked for their scales and meat.`\
 https://nytimes.com/2025/06/16/climate/pangolins-endangered-species.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6428885/2025/06/16/vinicius-jr-atletico-madrid-fans
 https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
 
 **How and why Paris Saint-Germain play walking football**\
-`This, coupled with their fast starts and early goals, means PSG do not fatigue late in games — even in the sweltering U.S. heat`\
+`This, coupled with their fast starts and early goals, means PSG do not fatigue late in games - even in the sweltering U.S. heat`\
 https://nytimes.com/athletic/6428864/2025/06/16/psg-atletico-club-world-cup-walking-football/
 
 **Wirtz set for Liverpool medical later this week**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424413/2025/06/16/wild-2025-nhl-draft-rossi-bracke
 **Guardians trade deadline primer: Buyers? Sellers? Neither? It feels like 2023 again**\
 `As things stand, this feels like a team that will have a quiet deadline, or participate in some light shuffling.`\
 https://nytimes.com/athletic/6411812/2025/06/16/guardians-mlb-trade-deadline-primer/
-
-**What I'm hearing about Evgeni Malkin's Penguins future**\
-`The Penguins are not expected to offer Malkin a contract following the 2025-26 season. But how will they deploy him next season?`\
-https://nytimes.com/athletic/6411170/2025/06/16/penguins-evgeni-malkin-retirement-nhl/
 

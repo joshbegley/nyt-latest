@@ -1,3 +1,15 @@
+**Pangolins Should Receive Endangered Protections, U.S. Officials Say**\
+`The armored mammals are trafficked for their scales and meat.`\
+https://nytimes.com/2025/06/16/climate/pangolins-endangered-species.html
+
+**How the Minnesota Shootings Suspect Was Caught**\
+`A two-day manhunt ended Sunday night as police captured the suspect, Vance Boelter, in a field. No force was used.`\
+https://nytimes.com/2025/06/16/us/minnesota-shooting-suspect-caught-how.html
+
+**Four Atletico fans handed prison sentences over effigy of Vinicius Jr**\
+`The mannequin was hung next to a 16-metre banner which read “Madrid hates Real” in January 2023.`\
+https://nytimes.com/athletic/6428885/2025/06/16/vinicius-jr-atletico-madrid-fans-effigy/
+
 **What Is Iran’s Quds Force?**\
 `The group is one of the most powerful and shadowy arms of Iran’s military, and it has long been on the front line of a shadow conflict with Israel.`\
 https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
