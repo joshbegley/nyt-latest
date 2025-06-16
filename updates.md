@@ -1,3 +1,11 @@
+**Man Utd CEO Omar Berrada says 'worst bit is behind us'**\
+`"There’s a clear idea of what we want to do, what players we want to get," Berrada added.`\
+https://nytimes.com/athletic/6429539/2025/06/16/manchester-united-berrada-amorim/
+
+**Why Jonathan David is captaining Canada for first time at Gold Cup**\
+`The Canadian star forward will take on some added responsibility as he seeks to guide his team to its first trophy in 25 years.`\
+https://nytimes.com/athletic/6430634/2025/06/16/jonathan-david-canada-captain-gold-cup-marsch/
+
 **Minnesota Assassin Posed as Police Officer to Carry Out Shootings**\
 `Impersonating a police officer is a tactic sometimes used by criminals to win victims’ trust, police say.`\
 https://nytimes.com/live/2025/06/16/us/minnesota-shootings/police-impersonation
