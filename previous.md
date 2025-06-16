@@ -1,3 +1,19 @@
+**Spurs in touch with Manor Solomon after winger stranded in Israel amid Iran conflict**\
+`Solomon, who spent last season on loan in the Championship with Leeds, had returned to Israel to get married.`\
+https://nytimes.com/athletic/6429185/2025/06/16/tottenham-manor-solomon-israel-iran/
+
+**Here's what the Flyers should keep in mind as they build their core group**\
+`No team makes the playoffs these days without a healthy sprinkling of veterans. What does that mean for the Flyers?`\
+https://nytimes.com/athletic/6429645/2025/06/16/flyers-roster-offseason-veterans/
+
+**‘There Was No Time to Run’: Caught in the Inferno of The Air India Crash**\
+`Akash Patni, 14, was dropping off lunch for his mother, who ran a tea stall, when an Air India plane crashed into a nearby building, taking his life and the family’s main source of income.`\
+https://nytimes.com/video/world/asia/100000010231141/there-was-no-time-to-run-caught-in-the-inferno-of-the-air-india-crash.html
+
+**Democrat Seeks to Limit Trump’s War Powers Amid Middle East Escalation**\
+`A resolution by Senator Tim Kaine of Virginia would require congressional approval before U.S. troops could engage in hostilities against Iran. He said Americans don’t want another “forever war.”`\
+https://nytimes.com/2025/06/16/world/middleeast/kaine-trump-war-powers.html
+
 **Scenes From the ‘No Kings’ Rallies and the Military Parade**\
 `Readers reflect on the anti-Trump rallies and the military parade on Saturday. Also: Transgender troops.`\
 https://nytimes.com/2025/06/16/opinion/trump-no-kings-rallies-parade.html
@@ -11,7 +27,7 @@ https://nytimes.com/2025/06/16/arts/beuford-smith-dead.html
 https://nytimes.com/athletic/6426449/2025/06/16/usa-olympics-hellebuyck-oettinger/
 
 **Giancarlo Stanton has returned. What it means for the Yankees' roster, lineup**\
-`Stanton re-joins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
+`Stanton rejoins a club that already had one of MLB's top lineups. How will Ben Rice, Paul Goldschmidt and others be impacted by his return?`\
 https://nytimes.com/athletic/6424538/2025/06/16/giancarlo-stanton-yankees-return/
 
 **Chelsea make verbal enquiry for Lyon winger Fofana**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6399213/2025/06/16/chelsea-transfers-malick-fofana/
 **Supreme Court to Hear Case on Subpoena to Anti-Abortion Pregnancy Centers**\
 `The question for the justices is whether the centers may pursue a First Amendment challenge to a state subpoena seeking donor information in federal court.`\
 https://nytimes.com/2025/06/16/us/politics/supreme-court-pregnancy-centers.html
-
-**Shohei Ohtani is racking up MVPs, and it could lead to a piece of baseball immortality**\
-`Ohtani's greatness is indisputable. But is clinching an all-time record within the realm of possibility?`\
-https://nytimes.com/athletic/6429186/2025/06/16/shohei-ohtani-mvp-record-odds/
-
-**Barry-Murphy appointed Cardiff City head coach**\
-`Barry-Murphy, 46, had worked as assistant to Ruud van Nistelrooy at Leicester City since December.`\
-https://nytimes.com/athletic/6422297/2025/06/16/brian-barry-murphy-appointed-cardiff-city-head-coach/
-
-**Here’s why state prosecutors started by charging second-degree murder.**\
-`By Mitch Smith`\
-https://nytimes.com/live/2025/06/16/us/minnesota-shootings/heres-why-prosecutors-started-by-charging-second-degree-murder
-
-**Israel attacks Iran’s state television, live on the air.**\
-`By Aaron Boxerman, Farnaz Fassihi, Aric Toler and Sanjana Varghese`\
-https://nytimes.com/live/2025/06/16/world/iran-israel-news/israel-iran-state-tv
 
