@@ -1,3 +1,15 @@
+**What Villa centre-backs Swinkels and Feeney learned in League One's school of hard knocks**\
+`For a defender's first forays outside the Premier League academy bubble and into a senior side elsewhere, the stakes are raised immeasurably`\
+https://nytimes.com/athletic/6355616/2025/06/16/villa-josh-feeney-sil-swinkels-league-one/
+
+**Meet Leeds’ new sporting director, Adam Underwood: The in-house appointment that may be a masterstroke**\
+`The newly promoted club have turned to a figure who has been a constant at Thorp Arch for over a decade to oversee their summer recruitment`\
+https://nytimes.com/athletic/6427096/2025/06/16/leeds-underwood-marathe-sporting-director/
+
+**Creating Florian Wirtz: The living room footballer who still can't stand losing**\
+`No video games and rarely TV – the story behind potentially the Premier League's most expensive player`\
+https://nytimes.com/athletic/6401889/2025/06/16/creating-florian-wirtz/
+
 **Should record losers Auckland City be part of the expanded Club World Cup?**\
 `Auckland City's 10-0 defeat highlighted a tension at the heart of the new Club World Cup but the fault is not theirs`\
 https://nytimes.com/athletic/6427850/2025/06/16/auckland-city-club-world-cup-record/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/16/business/uk-eu-trade-deal-oysters.html
 **Can This Not-Particularly-Cute Elf Make China Cool?**\
 `China has long struggled to improve its image, especially in the West. It may be scoring some victories now.`\
 https://nytimes.com/2025/06/16/world/asia/can-this-not-particularly-cute-elf-make-china-cool.html
-
-**Connections: Sports Edition Coach: Hints for June 16, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6428446/2025/06/16/connections-sports-edition-hints-for-june-16-2025/
-
-**Quote of the Day: Love and Value via the Rom-Com**\
-`Quotation of the Day for Monday, June 16, 2025.`\
-https://nytimes.com/2025/06/15/pageoneplus/quote-of-the-day-love-and-value-via-the-rom-com.html
-
-**Mookie Betts talks 'crazy' trade of former teammate Rafael Devers**\
-`Betts and Devers played in Boston together from 2017-19.`\
-https://nytimes.com/athletic/6428451/2025/06/15/mookie-bets-rafael-devers-trade-comments/
 
