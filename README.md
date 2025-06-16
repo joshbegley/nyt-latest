@@ -1,3 +1,11 @@
+**Heavy Rain Brings Flash Floods to West Virginia**\
+`Water levels rose at Wheeling Creek in Wheeling, W.Va., where the fire department said search and dive operations took place.`\
+https://nytimes.com/video/weather/100000010230948/west-virginia-flooding-deaths.html
+
+**Trade analysis: In Rafael Devers, Giants get the big bat they need from Red Sox**\
+`The Giants addressed a clear need (offense), but while the Red Sox got back some value, the return doesn't make them immediately better.`\
+https://nytimes.com/athletic/6428232/2025/06/15/rafael-devers-sf-giants-red-sox-trade-analysis/
+
 **Braves takeaways: Grant Holmes' big day wasted, bullpen struggles, Mets up next**\
 `The Braves' momentum vanished with a dispiriting loss to the Rockies, and the NL East-leading Mets are coming to town.`\
 https://nytimes.com/athletic/6428009/2025/06/15/braves-takeaways-grant-holmes-bullpen-offense-struggle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-h
 **USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
 `Malik Tillman's double set the tone early for a U.S. squad in desperate need of a slump-busting victory`\
 https://nytimes.com/athletic/6427962/2025/06/15/usmnt-trinidad-tobago-tillman-luna-pochettino/
-
-**Yankees takeaways: 'Sucks' getting swept by Red Sox, another mental mistake**\
-`Sunday was the first time the Yankees were swept this season. They fell to 42-28 and sit in first place in the AL East by 3 1/2 games.`\
-https://nytimes.com/athletic/6427999/2025/06/15/yankees-takeaways-swept-by-red-sox/
-
-**Red Sox takeaways: Brayan Bello dominates in key weekend sweep of Yankees**\
-`Boston's offense found a way to beat one of the best starters in baseball in its 2-0 win over New York on Sunday.`\
-https://nytimes.com/athletic/6427957/2025/06/15/red-sox-win-yankees-brayan-bello-sweep/
 
