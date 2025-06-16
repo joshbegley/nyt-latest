@@ -1,3 +1,15 @@
+**Grizzlies, Magic share similarities. In Desmond Bane trade, they make opposite bets**\
+`With this deal, Orlando's core is clearly defined, and Memphis has the assets to keep reshaping its roster.`\
+https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-magic-nba/
+
+**J.J. Spaun wins wild, wet U.S. Open with dramatic birdie putt finish**\
+`Spaun needed to two-putt from 64 feet to win the U.S. Open. He only needed one.`\
+https://nytimes.com/athletic/6427924/2025/06/15/us-open-jj-spaun-win-putt/
+
+**Palmeiras 0 Porto 0 - No goals in group A but 'Ronaldo' arrives at the Club World Cup**\
+`Analysis of the second Club World Cup group A game`\
+https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-highlights/
+
 **USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
 `Malik Tillman's double set the tone early for a U.S. squad in desperate need of a slump-busting victory`\
 https://nytimes.com/athletic/6427962/2025/06/15/usmnt-trinidad-tobago-tillman-luna-pochettino/

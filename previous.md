@@ -1,3 +1,15 @@
+**Grizzlies, Magic share similarities. In Desmond Bane trade, they make opposite bets**\
+`With this deal, Orlando's core is clearly defined, and Memphis has the assets to keep reshaping its roster.`\
+https://nytimes.com/athletic/6427866/2025/06/15/desmond-bane-trade-grizzlies-magic-nba/
+
+**J.J. Spaun wins wild, wet U.S. Open with dramatic birdie putt finish**\
+`Spaun needed to two-putt from 64 feet to win the U.S. Open. He only needed one.`\
+https://nytimes.com/athletic/6427924/2025/06/15/us-open-jj-spaun-win-putt/
+
+**Palmeiras 0 Porto 0 - No goals in group A but 'Ronaldo' arrives at the Club World Cup**\
+`Analysis of the second Club World Cup group A game`\
+https://nytimes.com/athletic/6419219/2025/06/15/palmeiras-porto-club-world-cup-highlights/
+
 **USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
 `Malik Tillman's double set the tone early for a U.S. squad in desperate need of a slump-busting victory`\
 https://nytimes.com/athletic/6427962/2025/06/15/usmnt-trinidad-tobago-tillman-luna-pochettino/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
 **George Russell's Canadian GP victory under threat as Red Bull lodges protests**\
 `Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday, but this is at risk after a Red Bull protest`\
 https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
-
-**Iranians turn to one another amid a dearth of official guidance.**\
-`By Parin Behrooz`\
-https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/iran-israel-shelters
-
-**Israel appears to have destroyed a refueling plane in Iran’s far east, satellite imagery and video shows.**\
-`By Christoph Koettl`\
-https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/israel-appears-to-have-destroyed-a-refueling-plane-in-irans-far-east-satellite-imagery-and-video-shows
-
-**Paris Saint-Germain 4 Atletico Madrid 0 - European champions put down a marker with clinical win**\
-`Paris Saint-Germain secured a comfortable win over Atletico Madrid in Group B. Our writers break down the key talking points...`\
-https://nytimes.com/athletic/6419217/2025/06/15/paris-saint-germain-4-atletico-madrid-0-club-world-cup/
 
