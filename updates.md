@@ -1,3 +1,7 @@
+**Turning a Page, Germans Try Celebrating Their Recent Veterans**\
+`In a changed world, Germany’s government is trying to recruit more soldiers. A first step? Getting citizens to appreciate their military again.`\
+https://nytimes.com/2025/06/16/world/europe/germany-veterans-day-celebration-military.html
+
 **The Memory of a Teenage Golden Child Ripples Across Generations**\
 `Michelle Huneven’s novel “Bug Hollow” begins with a tragedy in 1970s California. The ramifications are felt across three countries and five decades.`\
 https://nytimes.com/2025/06/16/books/review/michelle-huneven-bug-hollow.html
