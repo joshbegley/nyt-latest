@@ -1,3 +1,15 @@
+**Jakob Ingebrigtsen's father convicted of assaulting daughter, acquitted of other abuse charges**\
+`Gjert Ingebrigtsen had pleaded not guilty and repeatedly denied all allegations and the portrayal of events.`\
+https://nytimes.com/athletic/6427511/2025/06/16/jakob-ingebrigtsen-father-trial-verdict-assault-daughter/
+
+**Here’s the latest.**\
+`By Ernesto Londoño, Jeff Ernst and Yan Zhuang`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/heres-the-latest
+
+**Live Updates: Minnesota Man Charged With Murdering Lawmaker**\
+`Vance Boelter was captured late Sunday after a two-day manhunt that put the state on edge. He was charged with second-degree murder in the attacks, which killed a state lawmaker and wounded another.`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings
+
 **Assessing Ravens' pending roster competitions ahead of minicamp**\
 `Arguably, Baltimore's two biggest starting position battles this summer will be at left guard and inside linebacker. `\
 https://nytimes.com/athletic/6425362/2025/06/16/ravens-roster-competitions-mandatory-minicamp/

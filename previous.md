@@ -1,3 +1,15 @@
+**Jakob Ingebrigtsen's father convicted of assaulting daughter, acquitted of other abuse charges**\
+`Gjert Ingebrigtsen had pleaded not guilty and repeatedly denied all allegations and the portrayal of events.`\
+https://nytimes.com/athletic/6427511/2025/06/16/jakob-ingebrigtsen-father-trial-verdict-assault-daughter/
+
+**Here’s the latest.**\
+`By Ernesto Londoño, Jeff Ernst and Yan Zhuang`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/heres-the-latest
+
+**Live Updates: Minnesota Man Charged With Murdering Lawmaker**\
+`Vance Boelter was captured late Sunday after a two-day manhunt that put the state on edge. He was charged with second-degree murder in the attacks, which killed a state lawmaker and wounded another.`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings
+
 **Assessing Ravens' pending roster competitions ahead of minicamp**\
 `Arguably, Baltimore's two biggest starting position battles this summer will be at left guard and inside linebacker. `\
 https://nytimes.com/athletic/6425362/2025/06/16/ravens-roster-competitions-mandatory-minicamp/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/16/nyregion/mamdani-blake-nyc-mayors-race.html
 **Minnesota Manhunt and Arrest: What We Know**\
 `After a gunman killed a lawmaker and wounded another, officials scrambled in what they called the largest manhunt in Minnesota’s history. The suspect was arrested in a rural field on Sunday.`\
 https://nytimes.com/2025/06/16/us/minnesota-lawmakers-manhunt-what-to-know.html
-
-**Seven Panthers minicamp takeaways: Bryce Young's growth, tough WR decisions**\
-`Signs pointing toward an even better Bryce Young: second season in same offense, another playmaker at WR and he's being more vocal.`\
-https://nytimes.com/athletic/6425946/2025/06/16/panthers-minicamp-takeaways-bryce-young-rookies/
-
-**Slain Minnesota Lawmaker Remembered as Pragmatic Problem Solver**\
-`Colleagues described Representative Melissa Hortman as a skilled, conciliatory lawmaker who was at once steely and warm.`\
-https://nytimes.com/2025/06/16/us/minnesota-slaying-melissa-hortman.html
-
-**Trump’s Strategy in Law Firm Cases: Lose, Don’t Appeal, Yet Prevail**\
-`The handful of notable firms that were targeted by the president for punishment but chose to fight have uniformly won. Nine others have nonetheless pledged almost $1 billion in free legal work.`\
-https://nytimes.com/2025/06/16/us/politics/trump-strategy-law-firms-appeals.html
 
