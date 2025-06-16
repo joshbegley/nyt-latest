@@ -1,3 +1,7 @@
+**USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
+`Malik Tillman's double set the tone early for a U.S. squad in desperate need of a slump-busting victory`\
+https://nytimes.com/athletic/6427962/2025/06/15/usmnt-trinidad-tobago-tillman-luna-pochettino/
+
 **Yankees takeaways: 'Sucks' getting swept by Red Sox, another mental mistake**\
 `Sunday was the first time the Yankees were swept this season. They fell to 42-28 and sit in first place in the AL East by 3 1/2 games.`\
 https://nytimes.com/athletic/6427999/2025/06/15/yankees-takeaways-swept-by-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/israel-appears-to-
 **Paris Saint-Germain 4 Atletico Madrid 0 - European champions put down a marker with clinical win**\
 `Paris Saint-Germain secured a comfortable win over Atletico Madrid in Group B. Our writers break down the key talking points...`\
 https://nytimes.com/athletic/6419217/2025/06/15/paris-saint-germain-4-atletico-madrid-0-club-world-cup/
-
-**As Trump Returns to G7, Rift With Allies Is Even Deeper**\
-`In 2018, the president called for the group to embrace Russia and stormed out of the summit. Now he is seeking to shrink America’s military role abroad and embarking on a more expansive trade war.`\
-https://nytimes.com/2025/06/15/us/politics/trump-g7-tariffs-trade-israel-ukraine.html
 
