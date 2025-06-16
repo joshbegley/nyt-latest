@@ -1,3 +1,15 @@
+**With No Clear Off-Ramp, Israel’s War With Iran May Last Weeks, Not Days**\
+`Israel and Iran both have little incentive to stop and no obvious route to outright victory. Much depends on President Trump.`\
+https://nytimes.com/2025/06/16/world/middleeast/iran-israel-war-off-ramp.html
+
+**Buffalo Bills who could never beat Bill Belichick marvel as mysticism fades: 'His image has changed'**\
+`The Bills from the drought era can't help but chuckle at the state of their longtime nemesis.`\
+https://nytimes.com/athletic/6420917/2025/06/16/bill-belichick-jordon-hutson-buffalo-bills-drought-dynasty/
+
+**The New York Times International Edition in Print for Tuesday, June 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/16/todays-new-york-times-international-edition
+
 **Efton Chism was the darling of the Patriots' spring. Now, can he make the team?**\
 `The undrafted rookie out of Eastern Washington has turned heads as a slot receiver this spring. What are his chances of sticking around?`\
 https://nytimes.com/athletic/6422235/2025/06/16/efton-chism-patriots-53-man-roster/

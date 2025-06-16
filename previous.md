@@ -1,3 +1,15 @@
+**With No Clear Off-Ramp, Israel’s War With Iran May Last Weeks, Not Days**\
+`Israel and Iran both have little incentive to stop and no obvious route to outright victory. Much depends on President Trump.`\
+https://nytimes.com/2025/06/16/world/middleeast/iran-israel-war-off-ramp.html
+
+**Buffalo Bills who could never beat Bill Belichick marvel as mysticism fades: 'His image has changed'**\
+`The Bills from the drought era can't help but chuckle at the state of their longtime nemesis.`\
+https://nytimes.com/athletic/6420917/2025/06/16/bill-belichick-jordon-hutson-buffalo-bills-drought-dynasty/
+
+**The New York Times International Edition in Print for Tuesday, June 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/16/todays-new-york-times-international-edition
+
 **Efton Chism was the darling of the Patriots' spring. Now, can he make the team?**\
 `The undrafted rookie out of Eastern Washington has turned heads as a slot receiver this spring. What are his chances of sticking around?`\
 https://nytimes.com/athletic/6422235/2025/06/16/efton-chism-patriots-53-man-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/16/us/politics/trump-strategy-law-firms-appeals.html
 **Crowning New York’s Top ‘Pigeon’**\
 `Thousands of people gathered on the High Line on Saturday for Pigeon Fest, inspired by an artist’s sculpture and an appreciation for the city’s most resilient birds.`\
 https://nytimes.com/2025/06/16/arts/design/pigeon-fest-high-line.html
-
-**Steelers OTAs/ minicamp takeaways: Defense evolving, position battle updates**\
-`Could playing more quarters coverage? For a man-heavy defense, that could allow the Steelers to disguise more of their coverages.`\
-https://nytimes.com/athletic/6425985/2025/06/16/steelers-minicamp-takeaways-defense/
-
-**Will Trump End the First Federal Heat Protections for Workers?**\
-`As workplace deaths from heat increase, OSHA will debate the future of the first federal rules to protect workers from extreme heat.`\
-https://nytimes.com/2025/06/16/climate/federal-workplace-heat-rules.html
-
-**Is It OK for Me to Wear Camo in This Political Climate?**\
-`With wars in Ukraine and the Middle East and political unrest in the United States, borrowing military aesthetics for fashion is a loaded choice. Our critic explains why she’s shifted her stance on the topic.`\
-https://nytimes.com/2025/06/16/fashion/camo-clothing-military-politics.html
 
