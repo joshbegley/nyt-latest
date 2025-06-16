@@ -1,3 +1,15 @@
+**Iran’s nuclear sites have not been damaged further, the U.N.’s atomic agency says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news/irans-nuclear-sites-have-not-been-further-damaged-the-uns-atomic-agency-says
+
+**The Bounce: 3 keys for Thunder, Pacers to win NBA Finals. Plus, how Desmond Bane deal changes East**\
+`The Pacers might be kicking themselves for the NBA Finals being tied 2-2, but there's still a path to securing a ring`\
+https://nytimes.com/athletic/6428906/2025/06/16/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-desmond-bane-trade-magic-the-bounce/
+
+**The Pulse: Shohei returns**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6428284/2025/06/16/shohei-ohtanis-surprise-return-to-the-mound-plus-two-sunday-blockbusters/
+
 **What Was Terry Moran Thinking?**\
 `In his first interview since losing his job at ABC News, the longtime TV correspondent, newly popular on Substack, says he does not regret his social media post criticizing the Trump administration.`\
 https://nytimes.com/2025/06/16/business/media/terry-moran-abc-substack.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/16/opinion/thepoint
 **Minnesota Governor Praises Hoffman Family for ‘Heroic Actions’**\
 `Governor Tim Walz of Minnesota commended the family of John A. Hoffman, saying their actions during a gunman’s attack on Saturday saved “countless lives.”`\
 https://nytimes.com/2025/06/16/us/john-hoffman-wife-daughter-minnesota-shootings.html
-
-**From ball boy to World Cup hopeful, Niko Sigur's Canada journey comes full circle**\
-`Six years ago, Sigur was on the sidelines in Vancouver in a different capacity, envisioning the future he's now living out.`\
-https://nytimes.com/athletic/6427668/2025/06/16/niko-sigur-canada-gold-cup-marsch-croatia/
-
-**The Windup: Your guide to the Rafael Devers trade**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6428631/2025/06/16/rafael-devers-trade-red-sox-the-windup/
-
-**Judge in Sean Combs Trial Dismisses Juror Over ‘Lack of Candor’**\
-`The juror, who said he lives in the Bronx, later said he moved to New Jersey. The mogul’s lawyers said his removal would reduce the diversity of the jury.`\
-https://nytimes.com/2025/06/16/arts/music/sean-combs-diddy-trial-juror-dismissed.html
 

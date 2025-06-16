@@ -1,3 +1,15 @@
+**Iran’s nuclear sites have not been damaged further, the U.N.’s atomic agency says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news/irans-nuclear-sites-have-not-been-further-damaged-the-uns-atomic-agency-says
+
+**The Bounce: 3 keys for Thunder, Pacers to win NBA Finals. Plus, how Desmond Bane deal changes East**\
+`The Pacers might be kicking themselves for the NBA Finals being tied 2-2, but there's still a path to securing a ring`\
+https://nytimes.com/athletic/6428906/2025/06/16/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-desmond-bane-trade-magic-the-bounce/
+
+**The Pulse: Shohei returns**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6428284/2025/06/16/shohei-ohtanis-surprise-return-to-the-mound-plus-two-sunday-blockbusters/
+
 **What Was Terry Moran Thinking?**\
 `In his first interview since losing his job at ABC News, the longtime TV correspondent, newly popular on Substack, says he does not regret his social media post criticizing the Trump administration.`\
 https://nytimes.com/2025/06/16/business/media/terry-moran-abc-substack.html
