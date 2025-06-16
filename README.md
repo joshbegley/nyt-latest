@@ -1,3 +1,7 @@
+**Why committing fouls is a necessary evil for Thunder's league-best defense**\
+`Historically, the best defenses are able to get stops without fouling. But OKC engulfs attacks not despite its hacking but because of it.`\
+https://nytimes.com/athletic/6427241/2025/06/16/thunder-defense-fouling-2025-nba-finals/
+
 **As U.S. Aid Dries Up, West Africa Fights Expanding Jihadist Threat**\
 `Insurgents are expanding from West Africa’s Sahel region toward Atlantic coastal nations such as Ivory Coast, creating new terrorism hot spots and displacing millions.`\
 https://nytimes.com/2025/06/16/world/africa/africa-terrorism-trump-ivory-coast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6428333/2025/06/16/cardinals-brewers-loss-june-skid
 **With their pitching on thin ice, Tigers face taste of adversity**\
 `Injuries and underperformance have mounted. Can the Tigers find a way to fortify their pitching staff? `\
 https://nytimes.com/athletic/6427757/2025/06/16/tigers-pitching-adversity-will-vest/
-
-**Few had heard of this college QB a year ago. Now he's a projected top-5 NFL Draft pick**\
-`South Carolina didn't offer LaNorris Sellers until late his senior. Now, the Gamecocks are cruising behind a potential top-5 NFL Draft pick.`\
-https://nytimes.com/athletic/6425716/2025/06/16/lanorris-sellers-south-carolina-nfl-draft-2026/
 
