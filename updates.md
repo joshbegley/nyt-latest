@@ -1,3 +1,11 @@
+**After Lawmaker’s Death, Democrats Dismiss Concerns Over Balance of Power**\
+`Before Representative Melissa Hortman’s death, the state’s House was evenly divided. The governor has until next February to fill her seat before the next legislative session.`\
+https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html
+
+**Minnesota State Senator Says Accused Gunman Visited Her Street**\
+`State Senator Ann Rest, a Democrat, credited police officers who were proactively checking on her safety with sparing her from an attack.`\
+https://nytimes.com/2025/06/16/us/ann-rest-minnesota-state-senator-shooting.html
+
 **Israel Widens Attacks Against Iran, Striking Broadcaster**\
 `Israel’s escalated offensive indicates that its aims go beyond dismantling Iran’s nuclear program.`\
 https://nytimes.com/2025/06/16/world/middleeast/israel-iran-state-broadcaster-attack.html

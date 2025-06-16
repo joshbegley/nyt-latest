@@ -1,3 +1,11 @@
+**Federal Official Explains Minnesota Shootings Details**\
+`State and federal officials announced charges, including murder, stalking and firearms offenses against Vance Boelter on Monday, who has been accused of assassinating a Minnesota state lawmaker and injuring another during multiple shootings.`\
+https://nytimes.com/video/us/100000010232578/federal-official-explains-minnesota-shootings-details.html
+
+**Submit your Canucks questions for Thomas Drance's mailbag**\
+`Got a question about the Canucks as the NHL Draft and free agency approach?`\
+https://nytimes.com/athletic/6430660/2025/06/16/vancouver-canucks-mailbag-june-2025/
+
 **After Lawmaker’s Death, Democrats Dismiss Concerns Over Balance of Power**\
 `Before Representative Melissa Hortman’s death, the state’s House was evenly divided. The governor has until next February to fill her seat before the next legislative session.`\
 https://nytimes.com/2025/06/16/us/melissa-hortman-minnesota-legislature.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6430511/2025/06/16/shohei-ohtani-interpreter-ippei-
 **The Briefing: Chelsea 2 LAFC 0 - Neto's chop, Jackson v Delap part one and a topless Giroud halts the show**\
 `Liam Twomey and Felipe Cardenas break down the main talking points from Chelsea's 2-0 win over LAFC at the Club World Cup`\
 https://nytimes.com/athletic/6423748/2025/06/16/chelsea-2-lafc-0-giroud-neto-fernandez-club-world-cup/
-
-**Shop Cats Run the City**\
-`A wholesome and delightful video series conducts “interviews” with the feline occupants of New York’s delis and bodegas.`\
-https://nytimes.com/2025/06/16/style/bodega-cats-new-york.html
-
-**Trump Has Reawakened the Resistance**\
-`Huge protests dwarf the administration’s sad military parade.`\
-https://nytimes.com/2025/06/16/opinion/trump-has-reawakened-the-resistance.html
 
