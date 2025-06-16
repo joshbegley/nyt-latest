@@ -1,3 +1,27 @@
+**Read the document**\
+`Read the charging documents filed against Vance Boelter.`\
+https://nytimes.com/interactive/2025/06/16/us/Vance-boelter-charging-docs.html
+
+**Newcastle, Eddie Howe and a supposed preference for Premier League transfers**\
+`Newcastle's manager wants quality with little risk. Signings will be a mix of foreign and domestic players… as they have been in his reign`\
+https://nytimes.com/athletic/6420978/2025/06/16/newcastle-eddie-howe-transfers-home-abroad/
+
+**Shopping for Amorim: From Osimhen to David, who could be Man Utd's ideal No 9?**\
+`We breakdown what United’s manager wants from his main centre-forward and then consider who might fit the bill at Old Trafford`\
+https://nytimes.com/athletic/6392632/2025/06/16/shopping-for-amorim-and-man-utd-from-osimhen-to-david-who-could-be-the-ideal-no-9/
+
+**Nine things I learned about new Spurs boss Thomas Frank while covering Brentford**\
+`The Athletic's Jay Harris covered Brentford for three years before switching to Spurs, so is well-placed to introduce the new manager`\
+https://nytimes.com/athletic/6421402/2025/06/16/thomas-frank-brentford-tottenham-jay-harris/
+
+**Inside the final hours of Rafael Devers’ Red Sox era: A charter, a blockbuster and a solo Uber**\
+`In trading Rafael Devers, the Red Sox ended a saga and shed one of the final remnants of the 2018 World Series championship team`\
+https://nytimes.com/athletic/6428306/2025/06/16/rafal-devers-final-hours-red-sox-trade/
+
+**Seattle 1 Botafogo 2 - Sounders fall short in Club World Cup opener**\
+`Seattle fought hard but could not complete an opening game comeback against the reigning Copa Libertadores and Brazilian champions`\
+https://nytimes.com/athletic/6428266/2025/06/16/seattle-sounders-botafogo-club-world-cup-highlights-mls/
+
 **What Villa centre-backs Swinkels and Feeney learned in League One's school of hard knocks**\
 `For a defender's first forays outside the Premier League academy bubble and into a senior side elsewhere, the stakes are raised immeasurably`\
 https://nytimes.com/athletic/6355616/2025/06/16/villa-josh-feeney-sil-swinkels-league-one/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6401889/2025/06/16/creating-florian-wirtz/
 **Should record losers Auckland City be part of the expanded Club World Cup?**\
 `Auckland City's 10-0 defeat highlighted a tension at the heart of the new Club World Cup but the fault is not theirs`\
 https://nytimes.com/athletic/6427850/2025/06/16/auckland-city-club-world-cup-record/
-
-**Lionel Messi at the Club World Cup: The tactical risk of relying on an ageing genius**\
-`Jordan Campbell dissects Messi's opening-game performance and why he might hold Inter Miami back`\
-https://nytimes.com/athletic/6427279/2025/06/16/lionel-messi-joys-and-problems-inter-miami-club-world-cup/
-
-**The 44-year-old goalkeeper chasing records at the Club World Cup**\
-`'Veterans' Lionel Messi and Luka Modric have nothing on Fluminense's Fabio. He's into his mid-forties and showing no signs of slowing down`\
-https://nytimes.com/athletic/6425326/2025/06/16/fabio-44-goalkeeper-club-world-cup/
-
-**What are the key dates for transfer windows this summer?**\
-`All the key dates for transfers, including the leagues for when the big European deadline is missed`\
-https://nytimes.com/athletic/6423840/2025/06/16/what-are-the-key-transfer-window-dates-this-summer/
-
-**The Esports champion who is now operating as a real-life footballer for Lazio**\
-`Oliver Provstgaard's career has seen him win the Champions League in the virtual world — now the aim is to play in it in the real world`\
-https://nytimes.com/athletic/6397514/2025/06/16/oliver-provstgaard-lazio-esports-journey/
-
-**An Eighth-Generation Oyster Farmer Sees Hope in Britain’s Trade Deal**\
-`Brexit had complicated many of Britain’s food exports to Europe. A new trade deal between the U.K. and the E.U. could make them easier, including for shellfish farmers.`\
-https://nytimes.com/2025/06/16/business/uk-eu-trade-deal-oysters.html
-
-**Can This Not-Particularly-Cute Elf Make China Cool?**\
-`China has long struggled to improve its image, especially in the West. It may be scoring some victories now.`\
-https://nytimes.com/2025/06/16/world/asia/can-this-not-particularly-cute-elf-make-china-cool.html
 
