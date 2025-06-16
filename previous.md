@@ -1,3 +1,7 @@
+**What is Ethan Nwaneri's best position?**\
+`The Arsenal youngster had an unfamiliar role with England U21s and his versatility could be a great asset`\
+https://nytimes.com/athletic/6427674/2025/06/16/ethan-nwaneri-arsenal-best-position/
+
 **Word of the Day: ebullient**\
 `This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/16/learning/word-of-the-day-ebullient.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427684/2025/06/16/club-world-cup-fans-heat/
 **Newcastle, Eddie Howe and a supposed preference for Premier League transfers**\
 `Newcastle's manager wants quality with little risk. Signings will be a mix of foreign and domestic players… as they have been in his reign`\
 https://nytimes.com/athletic/6420978/2025/06/16/newcastle-eddie-howe-transfers-home-abroad/
-
-**Shopping for Amorim: From Osimhen to David, who could be Man Utd's ideal No 9?**\
-`We breakdown what United’s manager wants from his main centre-forward and then consider who might fit the bill at Old Trafford`\
-https://nytimes.com/athletic/6392632/2025/06/16/shopping-for-amorim-and-man-utd-from-osimhen-to-david-who-could-be-the-ideal-no-9/
 

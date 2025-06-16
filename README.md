@@ -1,3 +1,7 @@
+**Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
+`With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the MLS and Brazilian sides was surely a must-win`\
+https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
+
 **What is Ethan Nwaneri's best position?**\
 `The Arsenal youngster had an unfamiliar role with England U21s and his versatility could be a great asset`\
 https://nytimes.com/athletic/6427674/2025/06/16/ethan-nwaneri-arsenal-best-position/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/16/us/Vance-boelter-charging-docs.html
 **Club World Cup Briefing - What's drawing the fans? Can Auckland mismatches be avoided? Is the heat a problem?**\
 `Catch up on what's happened at the Club World Cup - and what it all means`\
 https://nytimes.com/athletic/6427684/2025/06/16/club-world-cup-fans-heat/
-
-**Newcastle, Eddie Howe and a supposed preference for Premier League transfers**\
-`Newcastle's manager wants quality with little risk. Signings will be a mix of foreign and domestic players… as they have been in his reign`\
-https://nytimes.com/athletic/6420978/2025/06/16/newcastle-eddie-howe-transfers-home-abroad/
 

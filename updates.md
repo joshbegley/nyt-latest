@@ -1,3 +1,7 @@
+**What is Ethan Nwaneri's best position?**\
+`The Arsenal youngster had an unfamiliar role with England U21s and his versatility could be a great asset`\
+https://nytimes.com/athletic/6427674/2025/06/16/ethan-nwaneri-arsenal-best-position/
+
 **Word of the Day: ebullient**\
 `This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/16/learning/word-of-the-day-ebullient.html
