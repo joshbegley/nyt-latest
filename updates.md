@@ -1,3 +1,7 @@
+**Arkansas' Gage Wood makes CWS history with no-hitter, strikes out record 19**\
+`Arkansas will face the winer of UCLA and LSU on Tuesday.`\
+https://nytimes.com/athletic/6430474/2025/06/16/arkansas-gage-wood-cws-history-no-hitter/
+
 **Tuesday Briefing: Israel Attacked Iranian State TV**\
 `Plus, China’s soft-power toy.`\
 https://nytimes.com/2025/06/16/briefing/iran-israel-attacks-minnesota-killing-suspect.html
