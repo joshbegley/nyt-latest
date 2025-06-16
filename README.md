@@ -1,3 +1,27 @@
+**Leonard Lauder Was Beauty’s Original Influencer**\
+`It’s possible Kylie Jenner and Hailey Bieber would not have become cosmetic moguls without him.`\
+https://nytimes.com/2025/06/16/style/leonard-lauder-beauty-influencer.html
+
+**Watchdog Finds Trump Administration Broke Law by Withholding Library Funds**\
+`It is the second time the nonpartisan Government Accountability Office has found the administration illegally impounded funds.`\
+https://nytimes.com/2025/06/16/us/politics/trump-watchdog-library-funds.html
+
+**French Luxury Giant Kering Taps Auto Executive as Its New Leader**\
+`The former chief executive of the carmaker Renault will replace Francois-Henri Pinault as the struggling company seeks a turnaround.`\
+https://nytimes.com/2025/06/16/business/kering-leo-de-meo-renault.html
+
+**THE BAT X fantasy baseball cheat sheet: Stream Clayton Kershaw; fade and trade TJ Friedl**\
+`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6429014/2025/06/16/the-bat-x-fantasy-baseball-cheat-sheet-stream-clayton-kershaw-fade-and-trade-tj-friedl/
+
+**Canada reveals Olympic men's hockey First 6: Behind the Sam Reinhart pick, other roster decisions**\
+`GM Doug Armstrong on why Reinhart replaced 37-year-old Marchand — the only change from the first six announced 12 months ago for 4 Nations.`\
+https://nytimes.com/athletic/6428276/2025/06/16/canada-olympic-hockey-roster-reinhart-marchand/
+
+**Reijnders: I am not at Man City to replace De Bruyne**\
+`The Dutch midfielder joined from Milan this month in a deal worth €55million.`\
+https://nytimes.com/athletic/6427062/2025/06/16/tijjani-reijnders-man-city-de-bruyne/
+
 **Oil Prices Drop, but Iran-Israel Conflict Raises Many Risks**\
 `Industry experts are examining possible scenarios, including one in which the price of oil doubles this year.`\
 https://nytimes.com/2025/06/16/business/oil-prices-iran-israel.html
@@ -15,28 +39,4 @@ https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
 
 `\
 https://nytimes.com/athletic/6429059/2025/06/16/igor-jesus-jair-cunha-cuiabano-botafogo-nottingham-forest/
-
-**To Protest Budget Cuts, Young Scientists Try Letters to the Editor**\
-`Hundreds of graduate students are writing to their hometown newspapers to defend their research, as the Trump administration drastically reduces science funding.`\
-https://nytimes.com/2025/06/16/science/science-budget-cuts-protest-letters.html
-
-**Iran Has Sustained Blow After Blow Since October 2023**\
-`Iran is often portrayed as one of the world’s most dangerous actors. But with attacks on its defenses, nuclear sites and proxy militias, Israel has exposed a compromised and weakened adversary.`\
-https://nytimes.com/2025/06/16/world/middleeast/iran-military-defense.html
-
-**The Trumps Promote a New Crypto Venture: Bitcoin Mining**\
-`The debut of American Bitcoin, a mining firm backed by Eric Trump and Donald Trump Jr., has heightened the ethical concerns swirling around the Trump presidency.`\
-https://nytimes.com/2025/06/16/technology/trump-american-bitcoin-mining.html
-
-**As Shohei Ohtani returns to the mound, he has to prove he can still be a 2-way superstar**\
-`Ohtani is returning to the mound. Can he be the dependable rotation mainstay, and the unicorn two-way star he has been in the past? `\
-https://nytimes.com/athletic/6428578/2025/06/16/shohei-ohtani-dodgers-pitching-two-way-superstar/
-
-**Red Light: Playoff momentum is overrated. Plus: What’s up with that guy changing jerseys?**\
-`Good morning to everyone except whoever designed the Oilers’ terrifying mascot.`\
-https://nytimes.com/athletic/6429032/2025/06/16/red-light-oilers-panthers/
-
-**WSL clubs vote to expand league to 14 teams and introduce relegation play-off**\
-`English women's football chief Nikki Doucet said the play-off will create "a high-profile, high-stakes match".`\
-https://nytimes.com/athletic/6429125/2025/06/16/wsl-promotion-relegation-playoff/
 
