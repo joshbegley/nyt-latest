@@ -1,3 +1,7 @@
+**‘I’m an American, Bro!’: Latinos Report Raids in Which U.S. Citizenship Is Questioned**\
+`A raid in Montebello, Calif., has stirred fears that federal agents are detaining and racially profiling U.S. citizens of Hispanic descent.`\
+https://nytimes.com/2025/06/15/us/hispanic-americans-raids-citizenship.html
+
 **U.S. Open 2025: What to know about J.J. Spaun's win at Oakmont**\
 `Spaun is the first player to card a 40 on the front nine in the final round of a U.S. Open and still win since Francis Ouimet in 1913.`\
 https://nytimes.com/athletic/6428283/2025/06/15/us-open-2025-what-to-know-spaun-win-oakmont/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6428009/2025/06/15/braves-takeaways-grant-holmes-bu
 **'Yankees-killer' Rafael Devers is no longer with the Red Sox. New York must be thrilled**\
 `The Yankees got swept, but it's hard not to feel like they're coming out of this weekend as winners with Devers gone.`\
 https://nytimes.com/athletic/6428134/2025/06/15/yankees-analysis-rafael-devers-trade-red-sox/
-
-**2 of 4 Men Who Escaped From Immigration Detention Center Are Caught**\
-`The men had been on the lam for three days after breaking out of the Delaney Hall Detention Center in Newark.`\
-https://nytimes.com/2025/06/15/nyregion/newark-escapees-caught.html
 
