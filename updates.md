@@ -1,3 +1,7 @@
+**USMNT relieves tension with Gold Cup-opening rout of Trinidad & Tobago**\
+`Malik Tillman's double set the tone early for a U.S. squad in desperate need of a slump-busting victory`\
+https://nytimes.com/athletic/6427962/2025/06/15/usmnt-trinidad-tobago-tillman-luna-pochettino/
+
 **Yankees takeaways: 'Sucks' getting swept by Red Sox, another mental mistake**\
 `Sunday was the first time the Yankees were swept this season. They fell to 42-28 and sit in first place in the AL East by 3 1/2 games.`\
 https://nytimes.com/athletic/6427999/2025/06/15/yankees-takeaways-swept-by-red-sox/
