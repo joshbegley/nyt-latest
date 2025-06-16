@@ -1,3 +1,7 @@
+**Simeone and Luis Enrique are transformative managers heading in very different directions**\
+`Atletico Madrid are struggling to keep pace with the standards being set by Spaniard's brilliant PSG side`\
+https://nytimes.com/athletic/6428376/2025/06/16/diego-simeone-and-luis-enrique-are-transformative-managers-heading-in-very-different-directions/
+
 **Club World Cup Briefing - What's drawing the fans? Can Auckland mismatches be avoided? Is the heat a problem?**\
 `Catch up on what's happened at the Club World Cup - and what it all means`\
 https://nytimes.com/athletic/6427684/2025/06/16/club-world-cup-fans-heat/

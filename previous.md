@@ -1,3 +1,7 @@
+**Simeone and Luis Enrique are transformative managers heading in very different directions**\
+`Atletico Madrid are struggling to keep pace with the standards being set by Spaniard's brilliant PSG side`\
+https://nytimes.com/athletic/6428376/2025/06/16/diego-simeone-and-luis-enrique-are-transformative-managers-heading-in-very-different-directions/
+
 **Monday Briefing: Iran-Israel Conflict Continues**\
 `Plus, the Dalai Lama’s succession.`\
 https://nytimes.com/2025/06/16/briefing/israel-iran-minnesota-lawmaker-assassin-air-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392632/2025/06/16/shopping-for-amorim-and-man-utd-
 **Nine things I learned about new Spurs boss Thomas Frank while covering Brentford**\
 `The Athletic's Jay Harris covered Brentford for three years before switching to Spurs, so is well-placed to introduce the new manager`\
 https://nytimes.com/athletic/6421402/2025/06/16/thomas-frank-brentford-tottenham-jay-harris/
-
-**Inside the final hours of Rafael Devers’ Red Sox era: A charter, a blockbuster and a solo Uber**\
-`In trading Rafael Devers, the Red Sox ended a saga and shed one of the final remnants of the 2018 World Series championship team`\
-https://nytimes.com/athletic/6428306/2025/06/16/rafal-devers-final-hours-red-sox-trade/
 
