@@ -1,3 +1,15 @@
+**Israel attacks Iran’s state television, live on the air.**\
+`By Aaron Boxerman, Farnaz Fassihi, Aric Toler and Sanjana Varghese`\
+https://nytimes.com/live/2025/06/16/world/iran-israel-news/israel-iran-state-tv
+
+**An Experimental Music Collective Arrives at Lincoln Center**\
+`The American Modern Opera Company is taking over Lincoln Center for a five-week residency. It is both a milestone and a homecoming for these artists.`\
+https://nytimes.com/2025/06/16/arts/music/amoc-lincoln-center-summer-festival.html
+
+**Ukraine Takes First Step Toward Carrying Out Minerals Deal With U.S.**\
+`The government is trying to show the Trump administration that it can deliver on the agreement.`\
+https://nytimes.com/2025/06/16/world/europe/us-ukraine-minerals-deal.html
+
 **‘The Age of Trump’ Enters Its Second Decade**\
 `Ten years after he descended the Trump Tower escalator to announce his campaign for the White House, President Trump has come to dominate his era like few presidents ever have.`\
 https://nytimes.com/2025/06/16/us/politics/trump-escalator-10-years.html
