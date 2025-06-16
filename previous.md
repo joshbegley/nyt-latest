@@ -1,3 +1,7 @@
+**What to watch in sports this week: NBA Finals, Stanley Cup, Concacaf and college baseball**\
+`This is your guide to the forthcoming national TV schedule and what to watch in sports this week. `\
+https://nytimes.com/athletic/6424887/2025/06/16/nba-finals-stanley-cup-caitlin-clark-concacaf-how-to-watch/
+
 **Fanatics Fest 2025 guide: Where the sports world is converging this week**\
 `Fanatics Fest had a plethora of viral moments in its first year and with some new additions, it's likely to be the case again this week`\
 https://nytimes.com/athletic/6429605/2025/06/16/fanatics-fest-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429185/2025/06/16/tottenham-manor-solomon-israel-i
 **Here's what the Flyers should keep in mind as they build their core group**\
 `No team makes the playoffs these days without a healthy sprinkling of veterans. What does that mean for the Flyers?`\
 https://nytimes.com/athletic/6429645/2025/06/16/flyers-roster-offseason-veterans/
-
-**‘There Was No Time to Run’: Caught in the Inferno of The Air India Crash**\
-`Akash Patni, 14, was dropping off lunch for his mother, who ran a tea stall, when an Air India plane crashed into a nearby building, taking his life and the family’s main source of income.`\
-https://nytimes.com/video/world/asia/100000010231141/there-was-no-time-to-run-caught-in-the-inferno-of-the-air-india-crash.html
 

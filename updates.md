@@ -1,3 +1,7 @@
+**What to watch in sports this week: NBA Finals, Stanley Cup, Concacaf and college baseball**\
+`This is your guide to the forthcoming national TV schedule and what to watch in sports this week. `\
+https://nytimes.com/athletic/6424887/2025/06/16/nba-finals-stanley-cup-caitlin-clark-concacaf-how-to-watch/
+
 **Fanatics Fest 2025 guide: Where the sports world is converging this week**\
 `Fanatics Fest had a plethora of viral moments in its first year and with some new additions, it's likely to be the case again this week`\
 https://nytimes.com/athletic/6429605/2025/06/16/fanatics-fest-2025/
