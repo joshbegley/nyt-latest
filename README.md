@@ -1,3 +1,11 @@
+**Should record losers Auckland City be part of the expanded Club World Cup?**\
+`Auckland City's 10-0 defeat highlighted a tension at the heart of the new Club World Cup but the fault is not theirs`\
+https://nytimes.com/athletic/6427850/2025/06/16/auckland-city-club-world-cup-record/
+
+**Lionel Messi at the Club World Cup: The tactical risk of relying on an ageing genius**\
+`Jordan Campbell dissects Messi's opening-game performance and why he might hold Inter Miami back`\
+https://nytimes.com/athletic/6427279/2025/06/16/lionel-messi-joys-and-problems-inter-miami-club-world-cup/
+
 **The 44-year-old goalkeeper chasing records at the Club World Cup**\
 `'Veterans' Lionel Messi and Luka Modric have nothing on Fluminense's Fabio. He's into his mid-forties and showing no signs of slowing down`\
 https://nytimes.com/athletic/6425326/2025/06/16/fabio-44-goalkeeper-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/15/pageoneplus/quote-of-the-day-love-and-value-via-t
 **Mookie Betts talks 'crazy' trade of former teammate Rafael Devers**\
 `Betts and Devers played in Boston together from 2017-19.`\
 https://nytimes.com/athletic/6428451/2025/06/15/mookie-bets-rafael-devers-trade-comments/
-
-**Shohei Ohtani will make return to mound in series opener against Padres**\
-`Ohtani will make his pitching debut for the Dodgers 20 months removed from his September 2023 procedure.`\
-https://nytimes.com/athletic/6428395/2025/06/15/shohei-ohtani-dodgers-pitching-return-padres/
-
-**Rosenthal: In wake of Rafael Devers trade, there's only one question that matters for the Red Sox**\
-`For the 2025 season and beyond, the deal will ultimately be evaluated on whether it makes Boston a better team. `\
-https://nytimes.com/athletic/6428396/2025/06/15/rafael-devers-red-sox-giants-trade-rosenthal/
 
