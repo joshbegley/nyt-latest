@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6427999/2025/06/15/yankees-takeaways-swept-by-red-s
 `Boston's offense found a way to beat one of the best starters in baseball in its 2-0 win over New York on Sunday.`\
 https://nytimes.com/athletic/6427957/2025/06/15/red-sox-win-yankees-brayan-bello-sweep/
 
-**Red Sox trade Rafael Devers to Giants for Kyle Harrison, more: Sources**\
+**Red Sox trade Rafael Devers to Giants for Kyle Harrison, more**\
 `In 73 games this season (all at designated hitter), Devers was hitting .272 with a .905 OPS and 15 homers.`\
 https://nytimes.com/athletic/6428043/2025/06/15/san-francisco-giants-rafael-devers-trade/
 

@@ -1,5 +1,5 @@
-**Rafael Devers is no longer a Red Sox. The Yankees must be thrilled with the trade**\
-`The Yankees got swept, but it's hard not to feel like they’re coming out of this weekend as winners with Devers gone.`\
+**Rafael Devers is no longer with the Red Sox. The Yankees must be thrilled with the trade**\
+`The Yankees got swept, but it's hard not to feel like they're coming out of this weekend as winners with Devers gone.`\
 https://nytimes.com/athletic/6428134/2025/06/15/yankees-analysis-rafael-devers-trade-red-sox/
 
 **2 of 4 Men Who Escaped From Immigration Detention Center Are Caught**\
