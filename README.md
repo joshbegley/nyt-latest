@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/16/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6428605/2025/06/16/rafael-devers-giants-trade-baggarly/
 
 **Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
-`With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the MLS and Brazilian sides was surely a must-win`\
+`With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the Brazilian and MLS sides was surely a must-win`\
 https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
 
 **What is Ethan Nwaneri's best position?**\
