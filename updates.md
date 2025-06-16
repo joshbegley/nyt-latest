@@ -1,3 +1,19 @@
+**Oil Prices Drop, but Iran-Israel Conflict Raises Many Risks**\
+`Industry experts are examining possible scenarios, including one in which the price of oil doubles this year.`\
+https://nytimes.com/2025/06/16/business/oil-prices-iran-israel.html
+
+**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
+`What's on your mind about Notre Dame?`\
+https://nytimes.com/athletic/6429463/2025/06/16/notre-dame-football-mailbag-questions-21/
+
+**‘Where Can I Go?’ Iranians Weigh Escaping Tehran**\
+`In a city under attack, residents encounter gas stations that are closing because there is no fuel, and disruptions to internet and phone service.`\
+https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
+
+**As Shohei Ohtani returns to the mound, he has to prove he can still be a 2-way superstar**\
+`Ohtani is returning to the mound. Can he be the dependable rotation mainstay, and the unicorn two-way star he has been in the past? `\
+https://nytimes.com/athletic/6428578/2025/06/16/shohei-ohtani-dodgers-pitching-two-way-superstar/
+
 **To Protest Budget Cuts, Young Scientists Try Letters to the Editor**\
 `Hundreds of graduate students are writing to their hometown newspapers to defend their research, as the Trump administration drastically reduces science funding.`\
 https://nytimes.com/2025/06/16/science/science-budget-cuts-protest-letters.html

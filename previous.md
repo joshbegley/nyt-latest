@@ -1,3 +1,15 @@
+**Oil Prices Drop, but Iran-Israel Conflict Raises Many Risks**\
+`Industry experts are examining possible scenarios, including one in which the price of oil doubles this year.`\
+https://nytimes.com/2025/06/16/business/oil-prices-iran-israel.html
+
+**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
+`What's on your mind about Notre Dame?`\
+https://nytimes.com/athletic/6429463/2025/06/16/notre-dame-football-mailbag-questions-21/
+
+**‘Where Can I Go?’ Iranians Weigh Escaping Tehran**\
+`In a city under attack, residents encounter gas stations that are closing because there is no fuel, and disruptions to internet and phone service.`\
+https://nytimes.com/2025/06/16/world/middleeast/tehran-iran-israel-strikes.html
+
 **To Protest Budget Cuts, Young Scientists Try Letters to the Editor**\
 `Hundreds of graduate students are writing to their hometown newspapers to defend their research, as the Trump administration drastically reduces science funding.`\
 https://nytimes.com/2025/06/16/science/science-budget-cuts-protest-letters.html
@@ -10,7 +22,7 @@ https://nytimes.com/2025/06/16/world/middleeast/iran-military-defense.html
 `The debut of American Bitcoin, a mining firm backed by Eric Trump and Donald Trump Jr., has heightened the ethical concerns swirling around the Trump presidency.`\
 https://nytimes.com/2025/06/16/technology/trump-american-bitcoin-mining.html
 
-**As Shohei Ohtani returns to the mound, he has to prove he can still be a two-way superstar**\
+**As Shohei Ohtani returns to the mound, he has to prove he can still be a 2-way superstar**\
 `Ohtani is returning to the mound. Can he be the dependable rotation mainstay, and the unicorn two-way star he has been in the past? `\
 https://nytimes.com/athletic/6428578/2025/06/16/shohei-ohtani-dodgers-pitching-two-way-superstar/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6429125/2025/06/16/wsl-promotion-relegation-playoff
 **Business Lobbyists Scramble to Kill $100 Billion ‘Revenge Tax’**\
 `Critics contend that the measure will scare off the foreign investment that President Trump wants to attract.`\
 https://nytimes.com/2025/06/16/us/politics/republican-policy-bill-revenge-tax.html
-
-**A Weeknight Spaghetti With Extra Oomph**\
-`Preserved lemon adds its salty, fermented punch to a seven-ingredient pasta.`\
-https://nytimes.com/2025/06/16/dining/quick-tomato-pasta-with-preserved-lemon-recipe.html
-
-**It’s Not Just You: The Tick Situation Is Getting Worse**\
-`As temperatures rise, ticks of all kinds are flourishing in ways that threaten people’s health.`\
-https://nytimes.com/2025/06/16/well/ticks-climate-change.html
-
-**NASCAR Mexico City takeaways: A highlight weekend for the sport; van Gisbergen, Suárez shine**\
-`The enthusiasm from Mexican fans made the weekend a success before cars even raced, Shane Van Gisbergen scored a banner win and more.`\
-https://nytimes.com/athletic/6429046/2025/06/16/nascar-mexico-city-takeaways-fans-shane-van-gisbergen/
 
