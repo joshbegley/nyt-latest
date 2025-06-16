@@ -1,3 +1,7 @@
+**Where do the Oilers and Panthers rank among the greatest repeat Cup final matchups?**\
+`NHL records set, coaches fired, even buckets of fried chicken: past repeat finals clashes offer some memorable moments.`\
+https://nytimes.com/athletic/6427469/2025/06/16/nhl-greatest-stanley-cup-final-repeats-panthers-oilers/
+
 **Why committing fouls is a necessary evil for Thunder's league-best defense**\
 `Historically, the best defenses are able to get stops without fouling. But OKC engulfs attacks not despite its hacking but because of it.`\
 https://nytimes.com/athletic/6427241/2025/06/16/thunder-defense-fouling-2025-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6428383/2025/06/16/adam-scott-us-open-major/
 **Cardinals' June skid continues after series loss to Brewers: 'We're keeping our heads up'**\
 `"The guys are playing hard," Oli Marmol said. "Tomorrow's off day is a timely one; we'll get to regroup and then get back at it."`\
 https://nytimes.com/athletic/6428333/2025/06/16/cardinals-brewers-loss-june-skid/
-
-**With their pitching on thin ice, Tigers face taste of adversity**\
-`Injuries and underperformance have mounted. Can the Tigers find a way to fortify their pitching staff? `\
-https://nytimes.com/athletic/6427757/2025/06/16/tigers-pitching-adversity-will-vest/
 
