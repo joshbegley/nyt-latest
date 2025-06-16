@@ -1,3 +1,7 @@
+**Three People Killed, Including 8-Month-Old, in Shooting at Utah Festival**\
+`The other victims were an 18-year-old man and a 41-year-old woman, the police said. The gunfire stemmed from a verbal altercation.`\
+https://nytimes.com/2025/06/16/us/west-fest-shooting-utah-west-valley-city.html
+
 **A Minnesota Manhunt Ends**\
 `Plus, we look at the independence of Amy Coney Barrett.`\
 https://nytimes.com/2025/06/16/briefing/a-minnesota-manhunt-ends.html

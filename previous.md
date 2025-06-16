@@ -1,3 +1,7 @@
+**Three People Killed, Including 8-Month-Old, in Shooting at Utah Festival**\
+`The other victims were an 18-year-old man and a 41-year-old woman, the police said. The gunfire stemmed from a verbal altercation.`\
+https://nytimes.com/2025/06/16/us/west-fest-shooting-utah-west-valley-city.html
+
 **A Minnesota Manhunt Ends**\
 `Plus, we look at the independence of Amy Coney Barrett.`\
 https://nytimes.com/2025/06/16/briefing/a-minnesota-manhunt-ends.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427878/2025/06/16/florida-panthers-culture-stanley
 **The NBA Finals are supposed to be big. Have they lost what makes them special?**\
 `Amid criticism for the look and feel of the NBA Finals, commissioner Adam Silver has simply said "we'll look at it." `\
 https://nytimes.com/athletic/6424412/2025/06/16/nba-finals-presentation-court-broadcast/
-
-**Desmond Bane trade shows Magic's days of playing it safe are over**\
-`Rival teams cannot call the Magic apprehensive anymore. Orlando just came close to an "all-in" trade on Sunday. `\
-https://nytimes.com/athletic/6428116/2025/06/16/orlando-magic-desmond-bane-trade-analysis/
 
