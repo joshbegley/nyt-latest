@@ -1,3 +1,7 @@
+**The Athletic FC: Jury out on Club World Cup after Bayern's 10-0 win, Poch shows he's not a 'mannequin'**\
+`Today in TAFC: The Club World Cup gets off to a mixed start, USMNT finally win a match, the best Wirtz goal you may never have seen.`\
+https://nytimes.com/athletic/6428721/2025/06/16/club-world-cup-bayern-10-0-pochettino-gold-cup-usmnt/
+
 **Where do the Oilers and Panthers rank among the greatest repeat Cup final matchups?**\
 `NHL records set, coaches fired, even buckets of fried chicken: past repeat finals clashes offer some memorable moments.`\
 https://nytimes.com/athletic/6427469/2025/06/16/nhl-greatest-stanley-cup-final-repeats-panthers-oilers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6422653/2025/06/16/chicago-bears-roster-projection-
 **Adam Scott and the longest wait**\
 `"I feel like I can keep this up for another 18 months, for sure." But is that enough time for Scott to finally win a second major?`\
 https://nytimes.com/athletic/6428383/2025/06/16/adam-scott-us-open-major/
-
-**Cardinals' June skid continues after series loss to Brewers: 'We're keeping our heads up'**\
-`"The guys are playing hard," Oli Marmol said. "Tomorrow's off day is a timely one; we'll get to regroup and then get back at it."`\
-https://nytimes.com/athletic/6428333/2025/06/16/cardinals-brewers-loss-june-skid/
 
