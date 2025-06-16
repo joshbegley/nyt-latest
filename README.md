@@ -1,3 +1,7 @@
+**Word of the Day: ebullient**\
+`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/16/learning/word-of-the-day-ebullient.html
+
 **Simeone and Luis Enrique are transformative managers heading in very different directions**\
 `Atletico Madrid are struggling to keep pace with the standards being set by Spaniard's brilliant PSG side`\
 https://nytimes.com/athletic/6428376/2025/06/16/diego-simeone-and-luis-enrique-are-transformative-managers-heading-in-very-different-directions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420978/2025/06/16/newcastle-eddie-howe-transfers-h
 **Shopping for Amorim: From Osimhen to David, who could be Man Utd's ideal No 9?**\
 `We breakdown what United’s manager wants from his main centre-forward and then consider who might fit the bill at Old Trafford`\
 https://nytimes.com/athletic/6392632/2025/06/16/shopping-for-amorim-and-man-utd-from-osimhen-to-david-who-could-be-the-ideal-no-9/
-
-**Nine things I learned about new Spurs boss Thomas Frank while covering Brentford**\
-`The Athletic's Jay Harris covered Brentford for three years before switching to Spurs, so is well-placed to introduce the new manager`\
-https://nytimes.com/athletic/6421402/2025/06/16/thomas-frank-brentford-tottenham-jay-harris/
 
