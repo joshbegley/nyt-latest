@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6429779/2025/06/16/david-ortiz-red-sox-rafael-devers-trade/
 
 **Read the Federal Complaint Against Man Charged in Minnesota Assassination**\
-`Federal officials described new details about the actions of a man accused in assassination of a Minnesota lawmaker, along with federal charges against him.`\
+`Federal officials described new details about the actions of a man accused in the assassination of a Minnesota lawmaker, along with federal charges against him.`\
 https://nytimes.com/interactive/2025/06/16/us/minnesota-suspect-federal-murder-charges.html
 
 **The ‘Hot Fellas’ Bakery Was Real, at Least for One Weekend**\
