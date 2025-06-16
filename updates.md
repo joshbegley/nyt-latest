@@ -1,3 +1,7 @@
+**Sounders miss best Club World Cup chance, Botafogo find a clear path toward knockouts**\
+`With PSG and Atletico Madrid also in Club World Cup Group B, Sunday's match between the Brazilian and MLS sides was surely a must-win`\
+https://nytimes.com/athletic/6428595/2025/06/16/seattle-sounders-botafogo-club-world-cup/
+
 **Iranian Strikes Kill at Least 8 in Israel as Conflict Enters Fourth Day**\
 `Dozens of others were injured overnight across Israel, the authorities said. Israel was striking military sites in Iran and the four-day-old conflict showed no sign of slowing.`\
 https://nytimes.com/2025/06/16/world/middleeast/petah-tikva-israel-iran-missile-strike.html
