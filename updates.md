@@ -1,3 +1,11 @@
+**The Minnesota suspect traveled to four lawmakers’ homes on the night of the attacks.**\
+`Officials said a man charged with shooting two lawmakers and their spouses was apparently thwarted at two other politicians’ homes.`\
+https://nytimes.com/live/2025/06/16/us/minnesota-shootings/minnesota-suspect-traveled-to-4-lawmakers-homes-on-night-of-attacks
+
+**Political Violence Is Rising. This Is What We Can Do to Stop It.**\
+`Bipartisan denunciations are surprisingly effective.`\
+https://nytimes.com/2025/06/16/opinion/political-violence-minnesota.html
+
 **Astros place starter Lance McCullers Jr. on injured list**\
 `Houston placed a starting pitcher on the IL for the fourth time this reason, announcing that the 31-year-old lefty has a right foot sprain.`\
 https://nytimes.com/athletic/6430222/2025/06/16/astros-lance-mccullers-injury/
