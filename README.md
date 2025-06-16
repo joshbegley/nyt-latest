@@ -1,3 +1,27 @@
+**The 44-year-old goalkeeper chasing records at the Club World Cup**\
+`'Veterans' Lionel Messi and Luka Modric have nothing on Fluminense's Fabio. He's into his mid-forties and showing no signs of slowing down`\
+https://nytimes.com/athletic/6425326/2025/06/16/fabio-44-goalkeeper-club-world-cup/
+
+**What are the key dates for transfer windows this summer?**\
+`All the key dates for transfers, including the leagues for when the big European deadline is missed`\
+https://nytimes.com/athletic/6423840/2025/06/16/what-are-the-key-transfer-window-dates-this-summer/
+
+**The Esports champion who is now operating as a real-life footballer for Lazio**\
+`Oliver Provstgaard's career has seen him win the Champions League in the virtual world — now the aim is to play in it in the real world`\
+https://nytimes.com/athletic/6397514/2025/06/16/oliver-provstgaard-lazio-esports-journey/
+
+**An Eighth-Generation Oyster Farmer Sees Hope in Britain’s Trade Deal**\
+`Brexit had complicated many of Britain’s food exports to Europe. A new trade deal between the U.K. and the E.U. could make them easier, including for shellfish farmers.`\
+https://nytimes.com/2025/06/16/business/uk-eu-trade-deal-oysters.html
+
+**Can This Not-Particularly-Cute Elf Make China Cool?**\
+`China has long struggled to improve its image, especially in the West. It may be scoring some victories now.`\
+https://nytimes.com/2025/06/16/world/asia/can-this-not-particularly-cute-elf-make-china-cool.html
+
+**Connections: Sports Edition Coach: Hints for June 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6428446/2025/06/16/connections-sports-edition-hints-for-june-16-2025/
+
 **Quote of the Day: Love and Value via the Rom-Com**\
 `Quotation of the Day for Monday, June 16, 2025.`\
 https://nytimes.com/2025/06/15/pageoneplus/quote-of-the-day-love-and-value-via-the-rom-com.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6428395/2025/06/15/shohei-ohtani-dodgers-pitching-r
 **Rosenthal: In wake of Rafael Devers trade, there's only one question that matters for the Red Sox**\
 `For the 2025 season and beyond, the deal will ultimately be evaluated on whether it makes Boston a better team. `\
 https://nytimes.com/athletic/6428396/2025/06/15/rafael-devers-red-sox-giants-trade-rosenthal/
-
-**Suspect in Minnesota Killings Carried a List of Some 70 Targets**\
-`The tally, which included politicians, community and business leaders, and locations for Planned Parenthood, was recovered in a car linked to the attacks.`\
-https://nytimes.com/2025/06/15/us/minnesota-shootings-suspect-targets.html
-
-**USMNT needed a Gold Cup opener like this to begin deflating the drama**\
-`On the heels of a four-match losing streak and contentious dialogue involving its star player, the USMNT really needed a dominant result`\
-https://nytimes.com/athletic/6426444/2025/06/15/usmnt-trinidad-tobago-pochettino-gold-cup-pulisic-drama/
-
-**‘I’m an American, Bro!’: Latinos Report Raids in Which U.S. Citizenship Is Questioned**\
-`A raid in Montebello, Calif., has stirred fears that federal agents are detaining and racially profiling U.S. citizens of Hispanic descent.`\
-https://nytimes.com/2025/06/15/us/hispanic-americans-raids-citizenship.html
-
-**U.S. Open 2025: What to know about J.J. Spaun's win at Oakmont**\
-`Spaun is the first player to card a 40 on the front nine in the final round of a U.S. Open and still win since Francis Ouimet in 1913.`\
-https://nytimes.com/athletic/6428283/2025/06/15/us-open-2025-what-to-know-spaun-win-oakmont/
-
-**A Timeline of the Minnesota Shootings**\
-`A manhunt is underway for a man suspected in the killing on Saturday of a state lawmaker and her husband and in the shooting of another lawmaker and his wife. Here is how the events unfolded.`\
-https://nytimes.com/2025/06/15/us/minnesota-shooting-timeline.html
-
-**1 Killed in Shooting at a ‘No Kings’ Protest in Salt Lake City**\
-`A bystander was fatally shot after security members at the demonstration confronted a man who was running toward the crowd with an AR-15-style rifle, the police said.`\
-https://nytimes.com/2025/06/15/us/politics/no-kings-protest-shooting-salt-lake-city.html
 

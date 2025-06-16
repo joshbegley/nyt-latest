@@ -1,3 +1,7 @@
+**Quote of the Day: Love and Value via the Rom-Com**\
+`Quotation of the Day for Monday, June 16, 2025.`\
+https://nytimes.com/2025/06/15/pageoneplus/quote-of-the-day-love-and-value-via-the-rom-com.html
+
 **Mookie Betts talks 'crazy' trade of former teammate Rafael Devers**\
 `Betts and Devers played in Boston together from 2017-19.`\
 https://nytimes.com/athletic/6428451/2025/06/15/mookie-bets-rafael-devers-trade-comments/
