@@ -1,3 +1,7 @@
+**Where do the Oilers and Panthers rank among the greatest repeat Cup final matchups?**\
+`NHL records set, coaches fired, even buckets of fried chicken: past repeat finals clashes offer some memorable moments.`\
+https://nytimes.com/athletic/6427469/2025/06/16/nhl-greatest-stanley-cup-final-repeats-panthers-oilers/
+
 **Why committing fouls is a necessary evil for Thunder's league-best defense**\
 `Historically, the best defenses are able to get stops without fouling. But OKC engulfs attacks not despite its hacking but because of it.`\
 https://nytimes.com/athletic/6427241/2025/06/16/thunder-defense-fouling-2025-nba-finals/
