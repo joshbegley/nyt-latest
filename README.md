@@ -1,36 +1,40 @@
-**Which San Diego Padres players' stock is up/down as summer approaches?**\
-`Which Padres have been keeping the club afloat, and which players have been dragging it down?`\
-https://nytimes.com/athletic/6428430/2025/06/16/san-diego-padres-players-stock-up-down/
+**Her Job Was Real. So Why Did Her Work Feel So Fake?**\
+`Leigh Claire La Berge’s memoir looks back at her stint as a consultant for a Fortune 500 company at the turn of the millennium: “Is this how companies are put together?”`\
+https://nytimes.com/2025/06/16/books/review/fake-work-leigh-claire-la-berge.html
 
-**WhatsApp Introduces Ads in Its App**\
-`They will appear in only one part of the Meta-owned messaging service, it said. The move is potentially lucrative, while raising questions about user privacy.`\
-https://nytimes.com/2025/06/16/technology/whatsapp-ads.html
+**Easy Salmon Recipes **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/food-easy-salmon-recipes
 
-**California’s Big Question: How Brutal Will the Summer Wildfire Season Be?**\
-`Experts say there could be more large wildfires than usual this year. Here’s a look at why.`\
-https://nytimes.com/2025/06/16/weather/california-fire-season-forecast.html
+**Cleaning Suede Is Easier Than You Think. Here’s How to Do It Yourself.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-suede
 
-**MI6 Names Its First Female Chief, Career Spy Blaise Metreweli**\
-`A former ‘Q,’ she will be the first woman to lead Britain’s foreign intelligence service in the agency’s 116-year history.`\
-https://nytimes.com/2025/06/16/world/europe/uk-spy-agency-mi6-female-chief-blaise-metreweli.html
+**gws-state-parks-visit-colorado-nc-florida**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/state-parks-visit-colorado-nc-florida
 
-**No Corrections: June 16, 2025**\
-`No corrections appeared in print on Monday, June 16, 2025.`\
-https://nytimes.com/2025/06/16/pageoneplus/no-corrections-june-16-2025.html
+**gws-jeff-goldblum-popcast-interview**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jeff-goldblum-popcast-interview
 
-**Pangolins Should Receive Endangered Protections, U.S. Officials Say**\
-`The armored mammals are trafficked for their scales and meat.`\
-https://nytimes.com/2025/06/16/climate/pangolins-endangered-species.html
+**gws-mother-child-restaurants**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/mother-child-restaurants
 
-**How the Minnesota Shootings Suspect Was Caught**\
-`A two-day manhunt ended Sunday night as police captured the suspect, Vance Boelter, in a field. No force was used.`\
-https://nytimes.com/2025/06/16/us/minnesota-shooting-suspect-caught-how.html
+**gws-teamlab-museums-art**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/teamlab-museums-art
 
-**Four Atletico fans handed prison sentences over effigy of Vinicius Jr**\
-`The mannequin was hung next to a 16-metre banner which read “Madrid hates Real” in January 2023.`\
-https://nytimes.com/athletic/6428885/2025/06/16/vinicius-jr-atletico-madrid-fans-effigy/
+**gws-goodyear-blimp-centennial-drones**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-goodyear-blimp-centennial-drones
 
-**What Is Iran’s Quds Force?**\
-`The group is one of the most powerful and shadowy arms of Iran’s military, and it has long been on the front line of a shadow conflict with Israel.`\
-https://nytimes.com/2025/06/16/world/middleeast/what-is-irans-quds-force.html
+**gws-sushi-all-you-can-eat-reno-nevad**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/sushi-all-you-can-eat-reno-nevad
+
+**gws-brian-wilson-dead**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/brian-wilson-dead
 
