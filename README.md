@@ -1,3 +1,11 @@
+**Visitors Break Crystal Chair in Sit-and-Run at Italian Museum**\
+`They came. They sat. They left.`\
+https://nytimes.com/2025/06/17/world/europe/tourists-damage-van-gogh-chair-italy-museum.html
+
+**Israeli Airline Will Bring Back Stranded Israeli Travelers**\
+`Between 100,000 and 150,000 Israelis have been stuck abroad as the country’s airspace remains closed and the fighting with Iran drags on.`\
+https://nytimes.com/2025/06/17/world/middleeast/el-al-israeli-tourists.html
+
 **Until Saturday: CFB's biggest stories since 2000**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/6432289/2025/06/17/cam-newton-auburn-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6432066/2025/06/17/club-world-cup-fifa-racism-discr
 **Paul Simon at the Beacon Theater: Quiet, Intricate, Masterly**\
 `Subtlety reigned as the musician played his post-farewell tour in New York, which included a full performance of his 33-minute LP, “Seven Psalms.”`\
 https://nytimes.com/2025/06/17/arts/music/paul-simon-a-quiet-celebration-tour-review.html
-
-**Canada international Jade Rose joins Manchester City**\
-`The Canada international graduated from Havard this summer.`\
-https://nytimes.com/athletic/6431982/2025/06/17/canada-international-manchester-city-jade-rose/
-
-**American Mythmakers, Revisited: Hunter S. Thompson and John Wilkes Booth**\
-`Two shows attempt to make sense of the gonzo journalist and Lincoln’s assassin, cultural figures forever intertwined with American history.`\
-https://nytimes.com/2025/06/17/theater/hunter-s-thompson-booth-theater-baltimore.html
 
