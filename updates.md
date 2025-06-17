@@ -1,3 +1,7 @@
+**Humanitarian Aid Trickles Into Northern Gaza**\
+`A convoy of trucks brought food parcels into the territory, where civilians are at risk of starvation and have been suffering worsening conditions, with such aid shipments rare in recent weeks.`\
+https://nytimes.com/2025/06/17/world/middleeast/gaza-food-distribution-scene.html
+
 **This Pop Hit Has Plenty of Dolly Parton**\
 `Sabrina Carpenter’s latest single, “Manchild,” just debuted at No. 1 on Billboard. Our critic explains why the singer is both a throwback and a signature star of right now.`\
 https://nytimes.com/video/podcasts/100000010233883/this-pop-hit-has-plenty-of-dolly-parton.html

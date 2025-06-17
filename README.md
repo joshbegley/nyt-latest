@@ -1,3 +1,11 @@
+**Louisville walks off Oregon State to stay alive in College World Series**\
+`The Cardinals blew a three-run lead in the top of the ninth inning but staved off elimination by scoring one run in the bottom of the ninth.`\
+https://nytimes.com/athletic/6433423/2025/06/17/louisville-walk-off-oregon-state-college-world-series/
+
+**Elected Officials Who Have Been Detained in Protests Against ICE**\
+`The arrest of Brad Lander was the latest case in which an official has been held while protesting President Trump’s immigration agenda.`\
+https://nytimes.com/2025/06/17/us/ice-arrests-elected-offcials.html
+
 **Humanitarian Aid Trickles Into Northern Gaza**\
 `A convoy of trucks brought food parcels into the territory, where civilians are at risk of starvation and have been suffering worsening conditions, with such aid shipments rare in recent weeks.`\
 https://nytimes.com/2025/06/17/world/middleeast/gaza-food-distribution-scene.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6433409/2025/06/17/tylor-megill-mets-injured-list-e
 **Senate Passes Cryptocurrency Bill, Handing Industry a Victory**\
 `The bill was a significant step toward giving the cryptocurrency industry the credibility and legitimacy it has sought, without limitations it has worked to head off.`\
 https://nytimes.com/2025/06/17/us/politics/senate-cryptocurrency-bill.html
-
-**Elon Musk’s AI Company Faces Lawsuit Over Gas-Burning Turbines**\
-`The company, xAI, has installed several dozen turbines in Memphis without proper permits, the group said, polluting a nearby community.`\
-https://nytimes.com/2025/06/17/climate/naacp-musk-xai-supercomputer-lawsuit.html
-
-**England recover from 5-1 down in record draw with Germany at under-19 Euros**\
-`England found themselves 5-1 down in the 48th minute, but four goals in 11 second-half minutes helped the young side earn an unlikely draw.`\
-https://nytimes.com/athletic/6433212/2025/06/17/england-germany-under-19-euros/
 
