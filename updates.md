@@ -1,3 +1,7 @@
+**Word of the Day: topple**\
+`This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/17/learning/word-of-the-day-topple.html
+
 **Russian Drone and Missile Strikes on Kyiv Kill at Least 14**\
 `It was one of the deadliest attacks on the Ukrainian capital in months that came as Moscow has intensified air assaults on the city.`\
 https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
