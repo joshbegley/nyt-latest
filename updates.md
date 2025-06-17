@@ -1,3 +1,27 @@
+**The Briefing - River Plate 3 Urawa Red Diamonds 1: Mastantuono, mind games and one really massive tactics board**\
+`River Plate eased to victory in their first game in Group E, thanks to three headed goals against Urawa Red Diamonds`\
+https://nytimes.com/athletic/6424371/2025/06/17/river-plate-urawa-mastantuono-captain-handshake-tactics-board/
+
+**Giants OTA takeaways: No battle between Russell Wilson, Jaxson Dart; Abdul Carter a 'beast'**\
+`Any thought of a QB competition entering the spring has been put to rest. Wilson is taking all of the first-team snaps.`\
+https://nytimes.com/athletic/6433106/2025/06/17/ny-giants-russell-wilson-jaxson-dart-qb-competition/
+
+**Wednesday Briefing: Trump Calls for Iran’s ‘Unconditional Surrender’**\
+`Plus, Octopuses’ marvelous arms.`\
+https://nytimes.com/2025/06/17/briefing/trump-iran-israel-surrender-gaza-aid.html
+
+**Could this season be make-or-break for Packers' Matt LaFleur and Brian Gutekunst?**\
+`Both the head coach and general manager have two years remaining on their contracts with the Packers.`\
+https://nytimes.com/athletic/6428439/2025/06/17/packers-ed-policy-matt-lafleur-brian-gutekunst-contracts/
+
+**Four Thoughts on Trump’s Hawkish Turn on Iran**\
+`Why the president is disappointing noninterventionists.`\
+https://nytimes.com/2025/06/17/opinion/trump-iran-war.html
+
+**The New York Liberty are favored to set a WNBA record this season**\
+`The teams' odds shifted to suggest a new league benchmark is possible this year.`\
+https://nytimes.com/athletic/6432542/2025/06/17/ny-liberty-wnba-wins-record-single-season/
+
 **Florida Attorney General Defied Order Blocking Part of Immigration Law, Judge Rules**\
 `A federal judge held the attorney general, James Uthmeier, in civil contempt of court for violating an order blocking part of an immigration enforcement law.`\
 https://nytimes.com/2025/06/17/us/florida-attorney-general-immigration-law.html

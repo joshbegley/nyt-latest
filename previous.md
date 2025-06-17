@@ -1,3 +1,27 @@
+**The Briefing - River Plate 3 Urawa Red Diamonds 1: Mastantuono, mind games and one really massive tactics board**\
+`River Plate eased to victory in their first game in Group E, thanks to three headed goals against Urawa Red Diamonds`\
+https://nytimes.com/athletic/6424371/2025/06/17/river-plate-urawa-mastantuono-captain-handshake-tactics-board/
+
+**Giants OTA takeaways: No battle between Russell Wilson, Jaxson Dart; Abdul Carter a 'beast'**\
+`Any thought of a QB competition entering the spring has been put to rest. Wilson is taking all of the first-team snaps.`\
+https://nytimes.com/athletic/6433106/2025/06/17/ny-giants-russell-wilson-jaxson-dart-qb-competition/
+
+**Wednesday Briefing: Trump Calls for Iran’s ‘Unconditional Surrender’**\
+`Plus, Octopuses’ marvelous arms.`\
+https://nytimes.com/2025/06/17/briefing/trump-iran-israel-surrender-gaza-aid.html
+
+**Could this season be make-or-break for Packers' Matt LaFleur and Brian Gutekunst?**\
+`Both the head coach and general manager have two years remaining on their contracts with the Packers.`\
+https://nytimes.com/athletic/6428439/2025/06/17/packers-ed-policy-matt-lafleur-brian-gutekunst-contracts/
+
+**Four Thoughts on Trump’s Hawkish Turn on Iran**\
+`Why the president is disappointing noninterventionists.`\
+https://nytimes.com/2025/06/17/opinion/trump-iran-war.html
+
+**The New York Liberty are favored to set a WNBA record this season**\
+`The teams' odds shifted to suggest a new league benchmark is possible this year.`\
+https://nytimes.com/athletic/6432542/2025/06/17/ny-liberty-wnba-wins-record-single-season/
+
 **Florida Attorney General Defied Order Blocking Part of Immigration Law, Judge Rules**\
 `A federal judge held the attorney general, James Uthmeier, in civil contempt of court for violating an order blocking part of an immigration enforcement law.`\
 https://nytimes.com/2025/06/17/us/florida-attorney-general-immigration-law.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/17/us/politics/house-bill-federal-debt.html
 **Flyers' abundance of early-round draft picks offers 'some opportunities for movement'**\
 `Going into the draft, the Flyers don't necessarily plan to take a center with their initial pick.`\
 https://nytimes.com/athletic/6433075/2025/06/17/philadelphia-flyers-draft-trade/
-
-**Senate Republicans Decline to Save Clean Energy Tax Credits**\
-`If enacted, Republicans’ draft legislation would mean that President Biden’s signature climate legislation would effectively be neutered.`\
-https://nytimes.com/2025/06/17/climate/republicans-clean-energy-tax-credits.html
-
-**Why Was Justin Bieber Fighting With Paparazzi?**\
-`A video of the singer’s heated discussion about privacy with a group of photographers has been widely shared, sometimes without the full context of the situation.`\
-https://nytimes.com/2025/06/17/style/justin-bieber-paparazzi.html
-
-**A.I. Can Already See You in Ways You Can’t See Yourself**\
-`Some of the technology's most startling new abilities lie in its perception of humans.`\
-https://nytimes.com/interactive/2025/06/17/magazine/ai-human-analysis-face-diseases.html
-
-**Iran Is Preparing Missiles for Possible Retaliatory Strikes on U.S. Bases, Officials Say**\
-`American commanders have put troops on high alert throughout the region as fears of a wider war grow.`\
-https://nytimes.com/2025/06/17/us/politics/iran-israel-us-bases.html
-
-**ICE Agents Arrest Brad Lander at New York Immigration Court**\
-`Immigration and Customs Enforcement officers arrested Brad Lander, the New York City comptroller and a candidate for mayor, after he tried to steer a migrant out of the building to avoid his arrest.`\
-https://nytimes.com/video/us/politics/100000010235238/brad-lander-comptroller-nyc-arrest.html
-
-**Lawmakers Revive War Powers Debate as Trump Threatens Iran**\
-`A bipartisan pair in the House and a Democrat in the Senate have moved to force votes in the coming days on requiring congressional approval before U.S. troops could take offensive action against Iran.`\
-https://nytimes.com/2025/06/17/world/middleeast/trump-war-powers-iran-congress.html
 
