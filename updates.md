@@ -1,3 +1,7 @@
+**Full Time: USWNT gets a break**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6431038/2025/06/16/uswnt-emma-hayes-break-full-time/
+
 **Trump Renews Embrace of Putin Amid Ongoing Rift With Allies**\
 `President Trump opened his remarks at the Group of 7 gathering of industrialized nations by criticizing the decision to expel Russia from the bloc after Moscow’s 2014 “annexation” of Crimea.`\
 https://nytimes.com/2025/06/16/world/canada/trump-g7-russia-ukraine.html
