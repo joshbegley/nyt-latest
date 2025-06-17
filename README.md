@@ -1,3 +1,11 @@
+**A.I. Can Already See You in Ways You Can’t See Yourself**\
+`Some of the technology's most startling new abilities lie in its perception of humans.`\
+https://nytimes.com/interactive/2025/06/17/magazine/ai-human-analysis-face-diseases.html
+
+**Iran Is Preparing Missiles for Possible Retaliatory Strikes on U.S. Bases**\
+`American commanders have put troops on high alert throughout the region as fears of a wider war grow.`\
+https://nytimes.com/2025/06/17/us/politics/iran-israel-us-bases.html
+
 **ICE Agents Arrest Brad Lander at New York Immigration Court**\
 `Immigration and Customs Enforcement officers arrested Brad Lander, the New York City comptroller and a candidate for mayor, after he tried to steer a migrant out of the building to avoid his arrest.`\
 https://nytimes.com/video/us/politics/100000010235238/brad-lander-comptroller-nyc-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6432865/2025/06/17/noah-lyles-tyreek-hill-race-canc
 **Bass Lifts Curfew in Downtown L.A.**\
 `Mayor Karen Bass of Los Angeles ended a curfew that began last Tuesday when federal agents, local police officers and protesters clashed on the streets.`\
 https://nytimes.com/2025/06/17/us/karen-bass-curfew-la.html
-
-**Who Is Ayatollah Ali Khamenei, Iran’s Supreme Leader?**\
-`The cleric has ruled for more than three decades, spearheading a policy of backing proxy groups to wield influence across the Middle East.`\
-https://nytimes.com/2025/06/17/world/middleeast/ayatollah-ali-khamenei-iran-supreme-leader.html
-
-**Cuerno New York Brings Carne Asada to Midtown**\
-`City Island gets more waterfront dining and other news.`\
-https://nytimes.com/2025/06/17/dining/nyc-restaurant-openings.html
 

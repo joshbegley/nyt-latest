@@ -1,3 +1,15 @@
+**ICE Agents Arrest Brad Lander at New York Immigration Court**\
+`Immigration and Customs Enforcement officers arrested Brad Lander, the New York City comptroller and a candidate for mayor, after he tried to steer a migrant out of the building to avoid his arrest.`\
+https://nytimes.com/video/us/politics/100000010235238/brad-lander-comptroller-nyc-arrest.html
+
+**Lawmakers Revive War Powers Debate as Trump Threatens Iran**\
+`A bipartisan pair in the House and a Democrat in the Senate have moved to force votes in the coming days on requiring congressional approval before U.S. troops could take offensive action against Iran.`\
+https://nytimes.com/2025/06/17/world/middleeast/trump-war-powers-iran-congress.html
+
+**Prison Kitchen Job Apparently Helped Ex-Police Chief Escape, Officials Say**\
+`A job in a prison kitchen apparently helped Grant Hardin, a former police chief serving time for murder and rape, plot his escape by fashioning a makeshift police uniform, Arkansas prison officials said.`\
+https://nytimes.com/2025/06/17/us/politics/grant-hardin-prison-job-kitchen-escape.html
+
 **Man who displayed 'fixated behavior' toward Emma Raducanu applied for Wimbledon tickets**\
 `Raducanu was reduced to tears mid-match in Dubai in February, having been stopped by the man at a coffee shop the previous day.`\
 https://nytimes.com/athletic/6432967/2025/06/17/emma-raducanu-stalker-wimbledon/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/17/world/middleeast/ayatollah-ali-khamenei-iran-supr
 **Cuerno New York Brings Carne Asada to Midtown**\
 `City Island gets more waterfront dining and other news.`\
 https://nytimes.com/2025/06/17/dining/nyc-restaurant-openings.html
-
-**Prime Tire: Lewis Hamilton ran over a groundhog. Plus, 200 thoughts about F1**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6432684/2025/06/17/lewis-hamilton-groundhog-f1-canada-prime-tire/
-
-**Russo 'staying away' from social media during tournaments amid abuse concerns**\
-`Russo's comments come after British tennis player Katie Boulter told the BBC receiving death threats and abusive messages was “the norm”`\
-https://nytimes.com/athletic/6432859/2025/06/17/england-russo-sport-social-media-abuse/
-
-**Supreme Court Justices Disclose International Travel and Book Deals**\
-`Annual financial disclosures revealed some of the perks of being on the Supreme Court, including international teaching and book sales.`\
-https://nytimes.com/2025/06/17/us/politics/supreme-court-financial-disclosures.html
 
