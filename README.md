@@ -1,3 +1,7 @@
+**Cantore joins Washington Spirit as first Italian in NWSL history**\
+`The 25-year-old will become the NWSL's first ever Italian player. `\
+https://nytimes.com/athletic/6431572/2025/06/17/sofia-cantore-becomes-first-italian-in-nwsl-after-joining-washington-spirit-from-juventus/
+
 **The Windup: Shohei Ohtani brings the heat in return**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6431360/2025/06/17/ohtani-pitching-return-devers-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/special-series/an-my-le-vietnam-war-photography.h
 **Why Is Everybody ‘Crashing Out’?**\
 `Adrenaline rising? Patience waning? Gen Z embraces a slang term for familiar feelings.`\
 https://nytimes.com/2025/06/17/style/crashing-out-slang.html
-
-**What is the Superior Player Award at the Club World Cup, and who picks its winners?**\
-`Why the name change? Has this been done before? When is the player voted for? What other awards are on offer?`\
-https://nytimes.com/athletic/6428877/2025/06/17/superior-player-award-club-world-cup/
 
