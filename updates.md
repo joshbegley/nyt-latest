@@ -1,3 +1,15 @@
+**Man who displayed 'fixated behavior' toward Emma Raducanu applied for Wimbledon tickets**\
+`Raducanu was reduced to tears mid-match in Dubai in February, having been stopped by the man at a coffee shop the previous day.`\
+https://nytimes.com/athletic/6432967/2025/06/17/emma-raducanu-stalker-wimbledon/
+
+**A Tucker-Trump Tiff, With Fox News Caught in the Crossfire**\
+`As President Trump edges toward involvement in the Israel-Iran war, some of his longtime supporters in right-wing media are questioning his judgment.`\
+https://nytimes.com/2025/06/17/business/media/trump-tucker-carlson-fox-news.html
+
+**The Senate Wants Billions More in Medicaid Cuts, Pinching States and Infuriating Hospitals**\
+`Republicans are seeking to limit a tax loophole that gives states more federal matching funds. Many state budgets could be hurt.`\
+https://nytimes.com/2025/06/17/upshot/medicaid-cuts-republicans-senate.html
+
 **Noah Lyles says his race against Dolphins' Tyreek Hill is off**\
 `Lyles said the two planned to race in New York's Times Square but canceled due to personal reasons.`\
 https://nytimes.com/athletic/6432865/2025/06/17/noah-lyles-tyreek-hill-race-canceled/
