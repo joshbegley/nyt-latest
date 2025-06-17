@@ -1,40 +1,40 @@
-**Russia Launches Deadly Strikes on Kyiv**\
-`One of the deadliest Russian assaults on the Ukrainian capital in months left more than a dozen people dead and damaged several residential buildings.`\
-https://nytimes.com/video/world/europe/100000010233534/russia-launches-deadly-strikes-on-kyiv.html
+**How to Beat Back Trump on Trans Rights — and Much Else**\
+`Representative Sarah McBride reckons with the trans rights movement’s shortcomings, and how to win hearts and minds through a politics of grace.`\
+https://nytimes.com/2025/06/17/opinion/ezra-klein-podcast-sarah-mcbride.html
 
-**Late Night Thinks Trump’s Military Parade Was Kind of Dull**\
-`It was “basically a $50 million version of when a 5-year-old shows you every car in his Hot Wheels collection,” Jimmy Kimmel said on Monday.`\
-https://nytimes.com/2025/06/17/arts/television/late-night-trump-parade-washington.html
+**Bernie Sanders Will Endorse Zohran Mamdani for N.Y.C. Mayor**\
+`Senator Bernie Sanders of Vermont will back Mr. Mamdani, joining Representative Alexandria Ocasio-Cortez in endorsing the front-runner of progressives.`\
+https://nytimes.com/2025/06/17/nyregion/bernie-sanders-endorse-mamdani-mayor.html
 
-**A Senator’s Fall From Grace Ends in a Grim Federal Lockup**\
-`For decades, Robert Menendez, 71, was one of New Jersey’s most influential Democrats. He is expected to start serving an 11-year sentence on Tuesday.`\
-https://nytimes.com/2025/06/17/nyregion/prison-robert-menendez.html
+**Trump Is Daring Us to Impeach Him Again**\
+`There are many legitimate reasons to try Trump a third time. Don’t hold your breath.`\
+https://nytimes.com/2025/06/17/opinion/trump-third-impeachment.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/17/crosswords/spelling-bee-forum.html
+**As Other Arab States Condemn Israeli Attacks on Iran, Syria Is Notably Silent**\
+`Syria was once among the closest allies of the Islamic republic, but the new government resents Tehran’s support for the Assad regime and has pledged not to allow attacks on Israel from its territory.`\
+https://nytimes.com/2025/06/17/world/middleeast/syria-israel-iran.html
 
-**They Said She Was Home-Schooled. She Said She Was Locked in a Dog Crate.**\
-`A teenage girl fled her home last month after what she said was years of abuse. Prosecutors called what had happened to her “beyond heinous.”`\
-https://nytimes.com/2025/06/17/nyregion/new-jersey-homeschool-teenage-girl-abused.html
+**Inside Mara Brock Akil’s Writing Retreat on the Lower East Side**\
+`The television writer and producer wrote her adaptation of Judy Blume’s “Forever” inside the Manhattan condo.`\
+https://nytimes.com/interactive/2025/06/17/realestate/mara-brock-akil-condo-nyc.html
 
-**Looking for New York News in Unexpected Places**\
-`Katherine Rosman, a reporter for the Metro desk, covers the characters shaping the city in obvious and not-so-obvious ways.`\
-https://nytimes.com/2025/06/17/insider/katherine-rosman-new-york-times.html
+**Fed’s ‘Wait and See’ Approach Is Intact as New Risks Cloud Economic Outlook**\
+`The central bank is set to hold interest rates steady for its fourth straight meeting, a pause that could be extended through the summer.`\
+https://nytimes.com/2025/06/17/business/federal-reserve-interest-rates.html
 
-**A Traveler Waits in the Stars for Those Willing to Learn How to Look**\
-`A new book shows that the Northern Dene people of Alaska and Canada have known far more about the stars than an earlier generation of scientists were willing to acknowledge.`\
-https://nytimes.com/2025/06/17/science/astronomy-yahdii-dene-alaska-native.html
+**Republicans Fight Uphill in Virginia Race That Will Test Anger at Trump**\
+`The Democratic candidate for governor, Abigail Spanberger, is raising far more cash than her Republican rival, Winsome Earle-Sears, in a state where federal work force cuts are being acutely felt.`\
+https://nytimes.com/2025/06/17/us/politics/virginia-governor-election-spanberger-earle-sears.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to the third edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
-https://nytimes.com/athletic/6428686/2025/06/17/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-barcelona-news/
+**Why a Teacher of the Year Is Giving His Prize Money Away**\
+`Alhassan Susso, who teaches in the Bronx, is funding a teaching prize in Gambia, his home country, after the State Department canceled a grant program.`\
+https://nytimes.com/2025/06/17/nyregion/teaching-award-gambia-state-department.html
 
-**Word of the Day: topple**\
-`This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/17/learning/word-of-the-day-topple.html
+**Lawmakers Demand Palantir Provide Information About U.S. Contracts**\
+`Ten Democratic lawmakers sent a letter to the tech company this week asking about its expanding contracts under the Trump administration.`\
+https://nytimes.com/2025/06/17/technology/palantir-government-contracts-democrats-letter.html
 
-**Russian Drone and Missile Strikes on Kyiv Kill at Least 14**\
-`It was one of the deadliest attacks on the Ukrainian capital in months that came as Moscow has intensified air assaults on the city.`\
-https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
+**Only Nonviolence Will Beat Trump**\
+`What makes successful (or unsuccessful) protests.`\
+https://nytimes.com/2025/06/17/opinion/trump-protests-nonviolence.html
 
