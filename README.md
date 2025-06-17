@@ -1,3 +1,7 @@
+**California Bill Would Bar Officers From Wearing Masks**\
+`The proposal comes as immigration raids by masked officers have touched off protests in California and elsewhere across the country.`\
+https://nytimes.com/2025/06/17/us/police-face-coverings-california-law.html
+
 **As Israel Targets Iran’s Nuclear Program, It Has a Secret One of Its Own**\
 `Since shortly after it was founded in 1948, Israel has been intent on building a nuclear program to ensure its survival.`\
 https://nytimes.com/2025/06/17/world/middleeast/israel-nuclear-weapons.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6432697/2025/06/17/cfp-committee-stats-until-saturd
 https://nytimes.com/2025/06/17/world/middleeast/lebanon-israel-iran-war-hezbollah.html
 
 **Indonesian Volcano Spews Ash Several Thousand Feet High**\
-`Mount Lewotobi Laki Laki, a volcano in Indonesia, erupted Tuesday night, blasting thick gray ash up to 5,000 meters above its peak and was reported to be visible as far as 100 miles away.`\
+`Mount Lewotobi Laki-laki, a volcano in Indonesia, erupted on Tuesday night, blasting thick gray ash up to 5,000 meters above its peak. It was reported to be visible as far as 100 miles away.`\
 https://nytimes.com/video/world/asia/100000010234483/mount-lewotobi-laki-laki-erupts.html
 
 **Trump calls for Iran’s ‘unconditional surrender’ and threatens its supreme leader.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/17/world/israel-iran-trump/trump-iran
 **Six trades I’d like to see before MLB trade deadline, starting with a Sandy Alcantara swap**\
 `Here are six intriguing trade ideas to ponder, starting with a blockbuster trade of the 2022 NL Cy Young winner. Would you do these deals?`\
 https://nytimes.com/athletic/6432172/2025/06/17/mlb-trade-scenarios-sandy-alcantara/
-
-**Sacking Postecoglou 'emotionally difficult', Tottenham chairman Levy admits**\
-`Postecoglou was sacked by Spurs 16 days after delivering the club's first trophy in 17 years.`\
-https://nytimes.com/athletic/6432628/2025/06/17/tottenham-postecoglou-daniel-levy-interview/
 
