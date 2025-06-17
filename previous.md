@@ -1,3 +1,11 @@
+**Doctor Who Gave Matthew Perry Ketamine Will Plead Guilty, U.S. Says**\
+`Dr. Salvador Plasencia, an urgent care clinic operator in the Los Angeles area, could face up to 40 years in prison in connection with the actor’s 2023 death.`\
+https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
+
+**Flattery or Discipline? The Difficult Task of Managing Trump.**\
+`Canada’s prime minister Mark Carney deployed both methods on the first day of the Group of 7 summit in Alberta to keep Mr. Trump focused and avoid drama.`\
+https://nytimes.com/2025/06/16/world/canada/flattery-or-discipline-the-difficult-task-of-managing-trump.html
+
 **Many Hoped Senate Republicans Would Save Clean Energy. They Mostly Didn’t.**\
 `A Senate tax package softens some blows imposed on renewables by a House version of the bill. But it still terminates many credits for clean power.`\
 https://nytimes.com/2025/06/16/climate/senate-republicans-tax-package-clean-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/16/us/minnesota-shootings/police-impersonation
 **Trump’s Iran Choice: Last-Chance Diplomacy or a Bunker-Busting Bomb**\
 `Iranian officials have warned that U.S. participation in an attack on its facilities will imperil any chance of the nuclear disarmament deal the president insists he is still interested in pursuing.`\
 https://nytimes.com/2025/06/16/us/politics/trump-iran-diplomacy-conflict.html
-
-**Trump and Starmer Agree to Implement Parts of Trade Deal on Cars, Steel and Planes**\
-`The leaders of Britain and the United States announced a deal last month, but it had not been clear when their agreement would go into effect. Britain hailed the announcement as “a huge win.”`\
-https://nytimes.com/2025/06/16/us/uk-trade-trump-starmer-tariffs.html
-
-**How the Trump Era Changed Trump**\
-`The president is still the attention-loving, payback-obsessed main character that he was in 2015. But his four years out of office drove him to turn grievance into vengeance.`\
-https://nytimes.com/2025/06/16/us/politics/trump-decade-washington.html
 
