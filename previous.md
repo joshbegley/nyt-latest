@@ -1,3 +1,11 @@
+**‘Regime Change’? Questions About Israel’s Iran Goal Pressure Trump.**\
+`Israel’s military campaign reminds some of America’s ill-fated Middle East interventions, which President Trump has long denounced.`\
+https://nytimes.com/2025/06/17/us/politics/regime-change-israel-iran-trump.html
+
+**What to Know as U.K. Lawmakers Consider Decriminalizing Abortion**\
+`British lawmakers will debate possible legislation to prevent women from being criminally prosecuted for ending their pregnancies.`\
+https://nytimes.com/2025/06/17/world/europe/uk-abortion-law.html
+
 **Alfred Brendel, Bravura Pianist Who Forged a Singular Path, Dies at 94**\
 `With little formal training but full of ideas, he focused on the core classical composers, winning over audiences (though not every critic) worldwide.`\
 https://nytimes.com/2025/06/17/arts/music/alfred-brendel-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/us/politics/trump-iran-israel-nuclear-talks.html
 **Watch: Does Lijnders' arrival signal a stylistic shift at Manchester City?**\
 `The Athletic FC Podcast discuss whether the appointment of Pep Lijnders signals a stylistic shift for Manchester City.`\
 https://nytimes.com/athletic/6431446/2025/06/17/athletic-fc-podcast-pep-lijnders-manchester-city/
-
-**Obama Steps Back Into Public Eye at a Stormy Political Moment**\
-`He will appear on Tuesday evening in Hartford, Conn., alongside the writer Heather Cox Richardson, at a time of deep volatility for his party, the country and the world.`\
-https://nytimes.com/2025/06/17/us/politics/obama-speech-heather-cox-richardson-democrats.html
-
-**Tell Us: How Are You Using A.I. at Work?**\
-`Has A.I. become a part of your daily work routines? We want to know.`\
-https://nytimes.com/2025/06/17/upshot/tell-us-how-are-you-using-ai-at-work.html
 
