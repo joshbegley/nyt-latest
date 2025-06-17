@@ -1,3 +1,19 @@
+**Couple Flees Museum After Breaking Crystal-Covered Chair**\
+`A couple visiting the Palazzo Maffei museum were posing for photos pretending to sit on Nicola Bolla’s “Van Gogh” chair, when the man accidentally sat down on the artwork, smashing it.`\
+https://nytimes.com/video/world/europe/100000010234009/couple-breaks-crystal-coated-chair-artwork.html
+
+**Families Grieve as Funerals for Air India Crash Victims Begin**\
+`Text by Atul Loke`\
+https://nytimes.com/card/2025/06/17/world/asia/funerals-begin-air-india-crash-ahmedabad
+
+**Walter Brueggemann, Theologian Who Argued for the Poor, Dies at 92**\
+`He used biblical exegesis to argue that faith demands justice, calling on churches to challenge oppression and uplift society’s marginalized.`\
+https://nytimes.com/2025/06/17/us/walter-brueggemann-dead.html
+
+**How to Pack a Travel First-Aid Kit**\
+`Experts weigh in on what to bring for a healthy, stress-free trip.`\
+https://nytimes.com/article/travel-health-first-aid-kit.html
+
 **MLB's three best new concession souvenirs**\
 `A new race to innovate in the realm of plastic concession keepsakes has taken hold`\
 https://nytimes.com/athletic/6430035/2025/06/17/mlb-concession-souvenirs-yankees-padres-mariners/

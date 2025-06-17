@@ -1,3 +1,7 @@
+**Underground Halls at Iranian Nuclear Site Suffered ‘Direct Impacts’ From Israel Strikes, U.N. Agency Says**\
+`The International Atomic Energy Agency had initially said that the Friday attack had destroyed the aboveground part of the Natanz fuel enrichment plant, but its latest statement indicates more significant damage.`\
+https://nytimes.com/2025/06/17/world/middleeast/iran-nuclear-plant-natanz-damage.html
+
 **Couple Flees Museum After Breaking Crystal-Covered Chair**\
 `A couple visiting the Palazzo Maffei museum were posing for photos pretending to sit on Nicola Bolla’s “Van Gogh” chair, when the man accidentally sat down on the artwork, smashing it.`\
 https://nytimes.com/video/world/europe/100000010234009/couple-breaks-crystal-coated-chair-artwork.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/world/europe/tourists-damage-van-gogh-chair-italy
 **Israeli Airline Will Bring Back Stranded Israeli Travelers**\
 `Between 100,000 and 150,000 Israelis have been stuck abroad as the country’s airspace remains closed and the fighting with Iran drags on.`\
 https://nytimes.com/2025/06/17/world/middleeast/el-al-israeli-tourists.html
-
-**Until Saturday: CFB's biggest stories since 2000**\
-`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
-https://nytimes.com/athletic/6432289/2025/06/17/cam-newton-auburn-until-saturday/
 
