@@ -1,3 +1,7 @@
+**North Korea Will Send 5,000 Workers to Russia, Kremlin Says**\
+`Thousands of North Korean laborers are already toiling in Russia. A new contingent is headed to the region where North Korean troops fought Ukraine.`\
+https://nytimes.com/2025/06/17/world/europe/north-korea-workers-russia.html
+
 **Brad Lander Is Arrested by ICE Agents at Immigration Courthouse**\
 `Mr. Lander, the New York City comptroller who is running for mayor, was handcuffed as he tried to steer a man past Immigration and Customs Enforcement officers.`\
 https://nytimes.com/2025/06/17/nyregion/brad-lander-immigration-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6432549/2025/06/17/premier-league-tv-deal-overseas/
 **‘Regime Change’? Questions About Israel’s Iran Goal Pressure Trump**\
 `Israel’s military campaign reminds some of America’s ill-fated Middle East interventions, which President Trump has long denounced.`\
 https://nytimes.com/2025/06/17/us/politics/regime-change-israel-iran-trump.html
-
-**What to Know as U.K. Lawmakers Consider Decriminalizing Abortion**\
-`British lawmakers will debate possible legislation to prevent women from being criminally prosecuted for ending their pregnancies.`\
-https://nytimes.com/2025/06/17/world/europe/uk-abortion-law.html
 
