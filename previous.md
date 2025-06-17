@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the third edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6428686/2025/06/17/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-barcelona-news/
+
 **Word of the Day: topple**\
 `This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/17/learning/word-of-the-day-topple.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429022/2025/06/17/omar-berrada-manchester-united-a
 **Why has Louis Vuitton partnered with Real Madrid?**\
 `Arguably the world's most recognisable luxury clothing brand and European football's most celebrated club have joined forces`\
 https://nytimes.com/athletic/6429064/2025/06/17/real-madrid-louis-vuitton-fashion/
-
-**Florian Wirtz will be Liverpool's record signing - but who is it at your Premier League club? And did it work out?**\
-`Were they a hit or a miss? Or is it too early to say? Our reporters run through each team's most expensive buy - and how they performed...`\
-https://nytimes.com/athletic/6428901/2025/06/17/premier-league-club-record-signings-liverpool-wirtz/
 

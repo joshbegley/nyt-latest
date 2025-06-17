@@ -1,3 +1,23 @@
+**A Senator’s Fall From Grace Ends in a Grim Federal Lockup**\
+`For decades, Robert Menendez, 71, was one of New Jersey’s most influential Democrats. He is expected to start serving an 11-year sentence on Tuesday.`\
+https://nytimes.com/2025/06/17/nyregion/prison-robert-menendez.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/17/crosswords/spelling-bee-forum.html
+
+**They Said She Was Home-Schooled. She Said She Was Locked in a Dog Crate.**\
+`A teenage girl fled her home last month after what she said was years of abuse. Prosecutors called what had happened to her “beyond heinous.”`\
+https://nytimes.com/2025/06/17/nyregion/new-jersey-homeschool-teenage-girl-abused.html
+
+**Looking for New York News in Unexpected Places**\
+`Katherine Rosman, a reporter for the Metro desk, covers the characters shaping the city in obvious and not-so-obvious ways.`\
+https://nytimes.com/2025/06/17/insider/katherine-rosman-new-york-times.html
+
+**A Traveler Waits in the Stars for Those Willing to Learn How to Look**\
+`A new book shows that the Northern Dene people of Alaska and Canada have known far more about the stars than an earlier generation of scientists were willing to acknowledge.`\
+https://nytimes.com/2025/06/17/science/astronomy-yahdii-dene-alaska-native.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the third edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6428686/2025/06/17/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-barcelona-news/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6431197/2025/06/17/phillies-bullpen-orion-kerkering
 **The New York Times in Print for Tuesday, June 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/17/todays-new-york-times
-
-**Tuesday Briefing**\
-`A fifth day of attacks.`\
-https://nytimes.com/2025/06/17/briefing/iran-israel-g7.html
-
-**Chelsea are uniquely qualified to cope with the Club World Conference League vibe**\
-`Chelsea could establish themselves as credible contenders just as the Club World Cup coalesces into a credible competition`\
-https://nytimes.com/athletic/6431075/2025/06/17/chelsea-club-world-conference-league/
-
-**The irresistible madness of Boca Juniors**\
-`Boca fever has taken over Miami and on Monday night the best supported team at the Club World Cup gave the competition exactly what it needs`\
-https://nytimes.com/athletic/6430896/2025/06/17/irresistible-madness-boca-juniors/
-
-**Omar Berrada: Manchester United's CEO on Amorim, transfers, apologies and more**\
-`Manchester United's CEO opens up on his turbulent first year in the job and why things will get better next term`\
-https://nytimes.com/athletic/6429022/2025/06/17/omar-berrada-manchester-united-amorim-transfers/
-
-**Why has Louis Vuitton partnered with Real Madrid?**\
-`Arguably the world's most recognisable luxury clothing brand and European football's most celebrated club have joined forces`\
-https://nytimes.com/athletic/6429064/2025/06/17/real-madrid-louis-vuitton-fashion/
 

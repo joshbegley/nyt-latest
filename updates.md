@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the third edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6428686/2025/06/17/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-barcelona-news/
+
 **The irresistible madness of Boca Juniors**\
 `Boca fever has taken over Miami and on Monday night the best supported team at the Club World Cup gave the competition exactly what it needs`\
 https://nytimes.com/athletic/6430896/2025/06/17/irresistible-madness-boca-juniors/
