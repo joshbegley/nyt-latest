@@ -1,3 +1,7 @@
+**Red Sox exec Craig Breslow: Devers trade isn't a 'waving of the white flag'**\
+`The Red Sox sent Rafael Devers to San Francisco in exchange for Jordan Hicks, Kyle Harrison and two minor leaguers.`\
+https://nytimes.com/athletic/6431060/2025/06/16/boston-red-sox-craig-breslow-comments/
+
 **Timberwolves should be considered the dark horse in a Kevin Durant trade**\
 `Minnesota does not want to make a seismic change if Durant isn't on board. The question is whether there’s any chance he comes around to it.`\
 https://nytimes.com/athletic/6431028/2025/06/16/kevin-durant-trade-timberwolves-possibility-nba-rumors/
