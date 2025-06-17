@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6424370/2025/06/17/fluminense-0-borussia-dortmund-0-germans-underwhelm-but-jobe-moves-like-jude/
 
+**The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
+`Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
+`\
+https://nytimes.com/athletic/6424370/2025/06/17/fluminense-0-borussia-dortmund-0-germans-underwhelm-but-jobe-moves-like-jude/
+
 **Indonesian Volcano Erupts, Spewing Ash Miles High**\
 `There were no immediate reports of injury after Mount Lewotobi Laki-laki ejected a plume of smoke and ashes on Tuesday night. An eruption there killed 10 people last year.`\
 https://nytimes.com/2025/06/17/world/asia/indonesia-volcano-eruption-lewotobi-laki-laki.html

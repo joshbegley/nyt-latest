@@ -1,3 +1,7 @@
+**James 'never doubted' she would make England's Euro 2025 squad despite injury**\
+`James, 23, was included in Sarina Wiegman’s squad for Euro 2025 and the England head coach insisted her selection was “not a risk”.`\
+https://nytimes.com/athletic/6432817/2025/06/17/england-euro-2025-women-squad-james/
+
 **Dozens of Palestinians Are Killed While Trying To Get Aid**\
 `The Gaza Health Ministry said at least 50 people were killed, blaming Israeli forces. The Israeli military said it was aware of reports of people injured in I.D.F. fire near an aid truck close to where its forces were operating.`\
 https://nytimes.com/video/world/middleeast/100000010233691/dozens-of-palestinians-are-killed-while-trying-to-get-aid.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/17/world/middleeast/israel-nuclear-weapons.html
 **Fashion Editorials**\
 ``\
 https://nytimes.com/series/fashion-editorials
-
-**$5.4 Million Attack Ad and ICE Arrest Add Drama to N.Y.C. Mayor’s Race**\
-`Plus: We looked at key endorsements and dug into the polls with our in-house expert. Primary Day is just a week away.`\
-https://nytimes.com/2025/06/17/nyregion/mamdani-attack-ad-nyc-mayor.html
 
