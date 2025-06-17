@@ -1,3 +1,7 @@
+**Missouri governor signs finance package for Chiefs, Royals stadium projects**\
+`The package is intended to persuade the Chiefs and the Royals to remain in Missouri amid discussions of their futures along the state line.`\
+https://nytimes.com/athletic/6432303/2025/06/17/kansas-city-chiefs-royals-stadium-projects/
+
 **Chelsea's Lavia: Club World Cup player entrances could work in the PL**\
 `Players are walking on to the pitch individually, often seen in athlete introductions for major American sports, boxing and at the Olympics.`\
 https://nytimes.com/athletic/6432110/2025/06/17/chelsea-romeo-lavia-player-entrances/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010234009/couple-breaks-crystal-coa
 **Families Grieve as Funerals for Air India Crash Victims Begin**\
 `Text by Atul Loke`\
 https://nytimes.com/card/2025/06/17/world/asia/funerals-begin-air-india-crash-ahmedabad
-
-**Walter Brueggemann, Theologian Who Argued for the Poor, Dies at 92**\
-`He used biblical exegesis to argue that faith demands justice, calling on churches to challenge oppression and uplift society’s marginalized.`\
-https://nytimes.com/2025/06/17/us/walter-brueggemann-dead.html
 
