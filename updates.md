@@ -1,3 +1,7 @@
+**Many Hoped Senate Republicans Would Save Clean Energy. They Mostly Didn’t.**\
+`A Senate tax package softens some blows imposed on renewables by a House version of the bill. But it still terminates many credits for clean power.`\
+https://nytimes.com/2025/06/16/climate/sente-republicans-tax-package-clean-energy.html
+
 **Boca Juniors 2 Benfica 2 - Three red cards, sound and fury in Club World Cup's best game so far**\
 `Analysis of the Club World Cup game between Boca Juniors and Benfica`\
 https://nytimes.com/athletic/6423749/2025/06/16/boca-juniors-benfica-highlights/
