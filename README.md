@@ -1,3 +1,7 @@
+**Boca Juniors 2 Benfica 2 - Three red cards, sound and fury in Club World Cup's best game so far**\
+`Analysis of the Club World Cup game between Boca Juniors and Benfica`\
+https://nytimes.com/athletic/6423749/2025/06/16/boca-juniors-benfica-highlights/
+
 **Senate G.O.P. Releases Domestic Policy Bill With Deeper Cuts to Medicaid**\
 `The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
 https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/politics/trump-decade-washington.html
 **Iran’s Best-Protected Nuclear Site Is Deep Underground**\
 `Only the U.S. military has the 30,000-pound bomb capable of reaching the facility and the bomber that can carry it.`\
 https://nytimes.com/2025/06/16/us/politics/iran-nuclear-site-israel.html
-
-**E.P.A. Plans to Reconsider a Ban on Cancer-Causing Asbestos**\
-`The Trump administration’s move sets back a decades-long effort to end the use of the material, which is widely banned in other countries.`\
-https://nytimes.com/2025/06/16/us/epa-trump-asbestos-ban-delay.html
 
