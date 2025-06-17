@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Michael D. Shear, Zolan Kanno-Youngs and Francesca Regalado`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/heres-the-latest
+
+**Live Updates: Trump Returns to D.C. as Israel and Iran Trade Attacks**\
+`President Trump left early from the G7 summit and said he was working on something “much bigger” than a cease-fire. Israel said it had killed another senior Iranian general on the fifth day of the war.`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump
+
+**Brighton complete Coppola signing**\
+`The 21-year-old has signed a five-year contract with the club.`\
+https://nytimes.com/athletic/6423819/2025/06/17/diego-coppola-brighton-transfer/
+
+**Bengals offseason debriefing: How OTAs, minicamp changed the season outlook**\
+`Joe Burrow's locked in, Demetrius Knight Jr. looks like a veteran and the defense sees some potential pieces stepping up.`\
+https://nytimes.com/athletic/6429460/2025/06/17/bengals-offseason-program-debrief/
+
 **Officials Investigate More Threats of Violence Against U.S. Politicians**\
 `President Trump and U.S. senators were identified as the most recent targets, as threats of violence have become part of America’s political landscape.`\
 https://nytimes.com/2025/06/17/us/lawmaker-shootings-threats-political-violence.html
