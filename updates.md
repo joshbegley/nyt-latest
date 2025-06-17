@@ -1,3 +1,7 @@
+**U.S. Open mixed doubles event secures top singles players it craved – but some need wild cards**\
+`The new format is deliberately designed to attract the best singles players instead of specialist doubles players.`\
+https://nytimes.com/athletic/6431865/2025/06/17/tennis-us-open-mixed-doubles-new-format-players-pairs/
+
 **Visitors Break Crystal Chair in Sit-and-Run at Italian Museum**\
 `They came. They sat. They left.`\
 https://nytimes.com/2025/06/17/world/europe/tourists-damage-van-gogh-chair-italy-museum.html
