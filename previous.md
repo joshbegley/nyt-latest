@@ -1,3 +1,11 @@
+**'Aggressive' Thunder keep ball moving early and often to move one step closer to title**\
+`The woes that plagued OKC in its previous game seemed to all go away when the Thunder returned home Monday.`\
+https://nytimes.com/athletic/6431375/2025/06/17/thunder-offense-nba-finals-game-5/
+
+**Pacers might be doomed in NBA Finals, and it's hard not to ask, 'What if?'**\
+`Tyrese Haliburton's health is now a major question, but Indiana's issues don't end there.`\
+https://nytimes.com/athletic/6431384/2025/06/17/tyrese-haliburton-pacers-tj-mcconnell-nba-finals/
+
 **West Ham's Antonio makes first appearance in six months following car crash**\
 `Antonio's last competitive appearance was in West Ham's defeat to Leicester City on December 3.`\
 https://nytimes.com/athletic/6431489/2025/06/17/west-ham-michail-antonio-first-appearance-car-crash-jamaica/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6423819/2025/06/17/diego-coppola-brighton-transfer/
 **Bengals offseason debriefing: How OTAs, minicamp changed the season outlook**\
 `Joe Burrow's locked in, Demetrius Knight Jr. looks like a veteran and the defense sees some potential pieces stepping up.`\
 https://nytimes.com/athletic/6429460/2025/06/17/bengals-offseason-program-debrief/
-
-**Officials Investigate More Threats of Violence Against U.S. Politicians**\
-`President Trump and U.S. senators were identified as the most recent targets, as threats of violence have become part of America’s political landscape.`\
-https://nytimes.com/2025/06/17/us/lawmaker-shootings-threats-political-violence.html
-
-**How to Beat Back Trump on Trans Rights — and Much Else**\
-`Representative Sarah McBride reckons with the trans rights movement’s shortcomings, and how to win hearts and minds through a politics of grace.`\
-https://nytimes.com/2025/06/17/opinion/ezra-klein-podcast-sarah-mcbride.html
 
