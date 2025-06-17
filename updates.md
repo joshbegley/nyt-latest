@@ -1,3 +1,15 @@
+**Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
+`Boone said Torre has given him lots of advice over the past eight years, and pops into his office at Yankee Stadium occasionally.`\
+https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
+
+**Inside Trump’s Shifting Stance on Iran**\
+`President Trump spent the first months of his term holding back Israel’s push for an assault on Iran’s nuclear program. With the war underway, he has now expressed support for Israel. Jonathan Swan, a White House reporter for The New York Times, breaks down how the president got to this point.`\
+https://nytimes.com/video/us/politics/100000010231766/inside-trumps-shifting-stance-on-iran.html
+
+**Mets place starter Tylor Megill on 15-day IL with right elbow sprain**\
+`Megill joins Kodai Senga as the second member of the Mets rotation to hit the injured list in the last week. `\
+https://nytimes.com/athletic/6433409/2025/06/17/tylor-megill-mets-injured-list-elbow/
+
 **Senate Passes Cryptocurrency Bill, Handing Industry a Victory**\
 `The bill was a significant step toward giving the cryptocurrency industry the credibility and legitimacy it has sought, without limitations it has worked to head off.`\
 https://nytimes.com/2025/06/17/us/politics/senate-cryptocurrency-bill.html
