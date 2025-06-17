@@ -1,3 +1,7 @@
+**Boca Juniors 2 Benfica 2 - Three red cards, sound and fury in Club World Cup's best game so far**\
+`Analysis of the Club World Cup game between Boca Juniors and Benfica`\
+https://nytimes.com/athletic/6423749/2025/06/16/boca-juniors-benfica-highlights/
+
 **Senate G.O.P. Releases Domestic Policy Bill With Deeper Cuts to Medicaid**\
 `The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
 https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
