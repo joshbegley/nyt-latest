@@ -1,3 +1,15 @@
+**The unlikely power of Corbin Carroll, the diminutive Diamondbacks star raking homers**\
+`We are conditioned to think of power hitters in a certain way. In his third full season, the 5-10, 165-pound Carroll proves otherwise.`\
+https://nytimes.com/athletic/6431174/2025/06/17/corbin-carroll-arizona-diamondbacks-power-home-runs/
+
+**With Ohtani’s two-way return and Devers’ arrival, Padres need their stars more than ever**\
+`Monday saw encouraging results from San Diego’s high-profile players. In baseball’s most competitive division, they will need even more.`\
+https://nytimes.com/athletic/6431398/2025/06/17/padres-nl-west-ohtani-devers/
+
+**A Stylish Mash-Up of Baggy and Groovy**\
+`Siblings’ distinct fashion senses blended nicely together.`\
+https://nytimes.com/2025/06/17/style/street-style-look-sibling-style.html
+
 **Canadian Grand Prix strikes deal to remain on F1 calendar through 2035 season**\
 `The deal to keep Montreal follows long-term extensions for Melbourne (2037), Bahrain (2036) and Silverstone (2034).`\
 https://nytimes.com/athletic/6431912/2025/06/17/f1-canadian-gp-new-deal-2035/

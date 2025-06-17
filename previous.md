@@ -1,3 +1,15 @@
+**The unlikely power of Corbin Carroll, the diminutive Diamondbacks star raking homers**\
+`We are conditioned to think of power hitters in a certain way. In his third full season, the 5-10, 165-pound Carroll proves otherwise.`\
+https://nytimes.com/athletic/6431174/2025/06/17/corbin-carroll-arizona-diamondbacks-power-home-runs/
+
+**With Ohtani’s two-way return and Devers’ arrival, Padres need their stars more than ever**\
+`Monday saw encouraging results from San Diego’s high-profile players. In baseball’s most competitive division, they will need even more.`\
+https://nytimes.com/athletic/6431398/2025/06/17/padres-nl-west-ohtani-devers/
+
+**A Stylish Mash-Up of Baggy and Groovy**\
+`Siblings’ distinct fashion senses blended nicely together.`\
+https://nytimes.com/2025/06/17/style/street-style-look-sibling-style.html
+
 **Canadian Grand Prix strikes deal to remain on F1 calendar through 2035 season**\
 `The deal to keep Montreal follows long-term extensions for Melbourne (2037), Bahrain (2036) and Silverstone (2034).`\
 https://nytimes.com/athletic/6431912/2025/06/17/f1-canadian-gp-new-deal-2035/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6431634/2025/06/17/jalen-williams-nba-finals-game-5
 **Starmer Picks Up Trump’s Papers, and 2 Small Political Wins**\
 `The British prime minister scrambled at President Trump’s feet in a viral moment, but he may be happier than the other Group of 7 leaders with his moment in the sun.`\
 https://nytimes.com/2025/06/17/world/europe/trump-starmer-trade-uk-g7-summit.html
-
-**Profits of Doom: Why Investors Seem to Shrug Off War**\
-`The Israel-Iran clash seemingly has no end in sight — a prospect that does not seem to be panicking the markets.`\
-https://nytimes.com/2025/06/17/business/dealbook/markets-war-israel-iran.html
-
-**Tracking Tropical Storm Erick**\
-`See the likely path and wind arrival times for Erick.`\
-https://nytimes.com/interactive/2025/06/17/weather/erick-map-path-tracker.html
-
-**Trump Administration Live Updates: Senate Republicans Propose Deeper Medicaid Cuts**\
-``\
-https://nytimes.com/live/2025/06/17/us/trump-news
 
