@@ -1,3 +1,7 @@
+**‘Chaos’ Is a Morning Show Dramedy With Verve**\
+`This Danish series, about a morning show in crisis, is light but not dumb, credible but still arch. It is also very different from “The Morning Show.”`\
+https://nytimes.com/2025/06/17/arts/television/chaos-viaplay.html
+
 **Israel Says It Assassinated Iran’s Most Senior Military Commander**\
 `Maj. Gen. Ali Shadmani had been in the job for mere days. News of his death came as President Trump called for Iran’s “unconditional surrender” and threatened its supreme leader.`\
 https://nytimes.com/2025/06/17/world/middleeast/israel-iran-assassination-general.html
