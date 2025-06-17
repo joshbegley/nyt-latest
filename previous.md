@@ -1,3 +1,7 @@
+**Starmer Picks Up Trump’s Papers, and 2 Small Political Wins**\
+`The British prime minister scrambled at President Trump’s feet in a viral moment, but he may be happier than the other Group of 7 leaders with his moment in the sun.`\
+https://nytimes.com/2025/06/17/world/europe/trump-starmer-trade-uk-g7-summit.html
+
 **Profits of Doom: Why Investors Seem to Shrug Off War**\
 `The Israel-Iran clash seemingly has no end in sight — a prospect that does not seem to be panicking the markets.`\
 https://nytimes.com/2025/06/17/business/dealbook/markets-war-israel-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427207/2025/06/17/maple-leafs-free-agency-targets-
 **Penguins trade tiers: Who is most and least likely to be traded this summer?**\
 `Everyone knows who the untouchable player is, but what about further down the lineup?`\
 https://nytimes.com/athletic/6419526/2025/06/17/penguins-trade-tiers-dubas-offseason/
-
-**Which Rangers could make the Olympics? Good bets, maybes and outside shots**\
-`The 12 competing men’s hockey countries announced the first six players on their rosters on Monday. No Rangers made the cut.`\
-https://nytimes.com/athletic/6430301/2025/06/17/olympics-rangers-hockey-nhl-roster/
 
