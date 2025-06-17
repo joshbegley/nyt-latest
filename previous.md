@@ -1,3 +1,19 @@
+**Watch: Does Lijnders' arrival signal a stylistic shift at Manchester City?**\
+`The Athletic FC Podcast discuss whether the appointment of Pep Lijnders signals a stylistic shift for Manchester City.`\
+https://nytimes.com/athletic/6431446/2025/06/17/athletic-fc-podcast-pep-lijnders-manchester-city/
+
+**Obama Steps Back Into Public Eye at a Stormy Political Moment**\
+`He will appear on Tuesday evening in Hartford, Conn., alongside Heather Cox Richardson, a writer, at a time of deep volatility for his party, the country and the world.`\
+https://nytimes.com/2025/06/17/us/politics/obama-speech-heather-cox-richardson-democrats.html
+
+**Tell Us: How Are You Using A.I. at Work?**\
+`Has A.I. become a part of your daily work routines? We want to know.`\
+https://nytimes.com/2025/06/17/upshot/tell-us-how-are-you-using-ai-at-work.html
+
+**Missouri governor signs finance package for Chiefs, Royals stadium projects**\
+`The package is intended to persuade the Chiefs and the Royals to remain in Missouri amid discussions of their futures along the state line.`\
+https://nytimes.com/athletic/6432303/2025/06/17/kansas-city-chiefs-royals-stadium-projects/
+
 **Chelsea's Lavia: Club World Cup player entrances could work in the PL**\
 `Players are walking on to the pitch individually, often seen in athlete introductions for major American sports, boxing and at the Olympics.`\
 https://nytimes.com/athletic/6432110/2025/06/17/chelsea-romeo-lavia-player-entrances/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/17/business/stock-market-sp-500-record.html
 **Florida’s House Speaker Stood Up to DeSantis, and Shifted the Power Dynamics**\
 `For years, legislators bent to the will of Gov. Ron DeSantis. Daniel Perez, the Republican speaker, said his goal this session was “to be a coequal branch of government.”`\
 https://nytimes.com/2025/06/17/us/florida-house-speaker-perez-desantis.html
-
-**Underground Halls at Iranian Nuclear Site Suffered ‘Direct Impacts’ From Israel Strikes, U.N. Agency Says**\
-`The International Atomic Energy Agency had initially said that the Friday attack had destroyed the aboveground part of the Natanz fuel enrichment plant, but its latest statement indicates more significant damage.`\
-https://nytimes.com/2025/06/17/world/middleeast/iran-nuclear-plant-natanz-damage.html
-
-**Couple Flees Museum After Breaking Crystal-Covered Chair**\
-`A couple visiting the Palazzo Maffei museum were posing for photos pretending to sit on Nicola Bolla’s “Van Gogh” chair, when the man accidentally sat down on the artwork, smashing it.`\
-https://nytimes.com/video/world/europe/100000010234009/couple-breaks-crystal-coated-chair-artwork.html
-
-**Families Grieve as Funerals for Air India Crash Victims Begin**\
-`Text by Atul Loke`\
-https://nytimes.com/card/2025/06/17/world/asia/funerals-begin-air-india-crash-ahmedabad
-
-**Walter Brueggemann, Theologian Who Argued for the Poor, Dies at 92**\
-`He used biblical exegesis to argue that faith demands justice, calling on churches to challenge oppression and uplift society’s marginalized.`\
-https://nytimes.com/2025/06/17/us/walter-brueggemann-dead.html
 
