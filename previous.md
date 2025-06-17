@@ -1,3 +1,7 @@
+**Ottawa Senators offseason callout: Submit your trade and free agency proposals**\
+`What moves should Ottawa Senators president and general manager Steve Staios pursue this summer?`\
+https://nytimes.com/athletic/6432166/2025/06/17/ottawa-senators-free-agency-trade-proposals-nhl/
+
 **The Bounce: Jalen Williams' ambitious NBA Finals arrival has Thunder close to championship glory**\
 `Jalen Williams had been building toward his breakout performance, and it’s what has the Thunder on the brink of a champagne celebration`\
 https://nytimes.com/athletic/6431859/2025/06/17/jalen-williams-thunder-nba-finals-kevin-durant-trade-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/nyregion/basketball-herkimer-ny.html
 **Real Madrid appoint Pau Quesada as women's head coach**\
 `The appointment will mark the 32-year-old's first coaching role in the women's game.`\
 https://nytimes.com/athletic/6418646/2025/06/17/real-madrid-women-pau-quesada-coach/
-
-**China’s Spy Agencies Are Investing Heavily in A.I., Researchers Say**\
-`A new report comes amid rising concern about how China will use new tools to power covert actions, as Western intelligence services also embrace the technology.`\
-https://nytimes.com/2025/06/17/us/politics/chinas-ai-spy-agencies.html
 

@@ -1,3 +1,7 @@
+**Ottawa Senators offseason callout: Submit your trade and free agency proposals**\
+`What moves should Ottawa Senators president and general manager Steve Staios pursue this summer?`\
+https://nytimes.com/athletic/6432166/2025/06/17/ottawa-senators-free-agency-trade-proposals-nhl/
+
 **The Bounce: Jalen Williams' ambitious NBA Finals arrival has Thunder close to championship glory**\
 `Jalen Williams had been building toward his breakout performance, and it’s what has the Thunder on the brink of a champagne celebration`\
 https://nytimes.com/athletic/6431859/2025/06/17/jalen-williams-thunder-nba-finals-kevin-durant-trade-the-bounce/
