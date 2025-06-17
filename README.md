@@ -1,3 +1,7 @@
+**U.S. Open mixed doubles event secures top singles players it craved – but some need wild cards**\
+`The new format is deliberately designed to attract the best singles players instead of specialist doubles players.`\
+https://nytimes.com/athletic/6431865/2025/06/17/tennis-us-open-mixed-doubles-new-format-players-pairs/
+
 **Visitors Break Crystal Chair in Sit-and-Run at Italian Museum**\
 `They came. They sat. They left.`\
 https://nytimes.com/2025/06/17/world/europe/tourists-damage-van-gogh-chair-italy-museum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/dining/five-quick-kid-friendly-vegetarian-dinners
 **FIFA criticized after dropping anti-racism messages at Club World Cup**\
 `FIFA's “no racism” and “no discrimination” campaign will not be promoted in stadiums at the tournament in the United States.`\
 https://nytimes.com/athletic/6432066/2025/06/17/club-world-cup-fifa-racism-discrimination-message/
-
-**Paul Simon at the Beacon Theater: Quiet, Intricate, Masterly**\
-`Subtlety reigned as the musician played his post-farewell tour in New York, which included a full performance of his 33-minute LP, “Seven Psalms.”`\
-https://nytimes.com/2025/06/17/arts/music/paul-simon-a-quiet-celebration-tour-review.html
 
