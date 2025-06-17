@@ -1,3 +1,7 @@
+**The irresistible madness of Boca Juniors**\
+`Boca fever has taken over Miami and on Monday night the best supported team at the Club World Cup gave the competition exactly what it needs`\
+https://nytimes.com/athletic/6430896/2025/06/17/irresistible-madness-boca-juniors/
+
 **Word of the Day: topple**\
 `This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/17/learning/word-of-the-day-topple.html
