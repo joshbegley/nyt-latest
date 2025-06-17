@@ -1,3 +1,15 @@
+**Senate Passes Cryptocurrency Bill, Handing Industry a Victory**\
+`The bill was a significant step toward giving the cryptocurrency industry the credibility and legitimacy it has sought, without limitations it has worked to head off.`\
+https://nytimes.com/2025/06/17/us/politics/senate-cryptocurrency-bill.html
+
+**Elon Musk’s AI Company Faces Lawsuit Over Gas-Burning Turbines**\
+`The company, xAI, has installed several dozen turbines in Memphis without proper permits, the group said, polluting a nearby community.`\
+https://nytimes.com/2025/06/17/climate/naacp-musk-xai-supercomputer-lawsuit.html
+
+**England recover from 5-1 down in record draw with Germany at under-19 Euros**\
+`England found themselves 5-1 down in the 48th minute, but four goals in 11 second-half minutes helped the young side earn an unlikely draw.`\
+https://nytimes.com/athletic/6433212/2025/06/17/england-germany-under-19-euros/
+
 **Arsenal coach Cuesta set to leave club to become Parma head coach**\
 `Cuesta had been in talks with the Italian side for several weeks and is now set to travel to Italy on Wednesday to finalise the move. `\
 https://nytimes.com/athletic/6433336/2025/06/17/arsenal-carlos-cuesta-parma-move-news-update/
