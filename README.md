@@ -1,3 +1,7 @@
+**Russia Launches Deadly Strikes on Kyiv**\
+`One of the deadliest Russian assaults on the Ukrainian capital in months left more than a dozen people dead and damaged several residential buildings.`\
+https://nytimes.com/video/world/europe/100000010233534/russia-launches-deadly-strikes-on-kyiv.html
+
 **Late Night Thinks Trump’s Military Parade Was Kind of Dull**\
 `It was “basically a $50 million version of when a 5-year-old shows you every car in his Hot Wheels collection,” Jimmy Kimmel said on Monday.`\
 https://nytimes.com/2025/06/17/arts/television/late-night-trump-parade-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/learning/word-of-the-day-topple.html
 **Russian Drone and Missile Strikes on Kyiv Kill at Least 14**\
 `It was one of the deadliest attacks on the Ukrainian capital in months that came as Moscow has intensified air assaults on the city.`\
 https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
-
-**Orion Kerkering earns first career save, and more trust, as Phillies shuffle bullpen**\
-`Kerkering has thrived in more and more high-leverage situations. Could a changing of the guard be on its way in the Phillies' bullpen? `\
-https://nytimes.com/athletic/6431197/2025/06/17/phillies-bullpen-orion-kerkering-jordan-romano/
 
