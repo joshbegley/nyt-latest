@@ -1,3 +1,7 @@
+**‘A Time of Bitter Celebrations’: Joy and Fear as L.A. Students Graduate Amid ICE Raids**\
+`Nearly three-fourths of the students in L.A. public schools are Latino. Some families, and a few graduates, stayed away from graduation ceremonies out of fear of federal raids.`\
+https://nytimes.com/2025/06/17/us/los-angeles-graduations-raids-fear.html
+
 **James 'never doubted' she would make England's Euro 2025 squad despite injury**\
 `James, 23, was included in Sarina Wiegman’s squad for Euro 2025 and the England head coach insisted her selection was “not a risk”.`\
 https://nytimes.com/athletic/6432817/2025/06/17/england-euro-2025-women-squad-james/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/17/us/police-face-coverings-california-law.html
 **As Israel Targets Iran’s Nuclear Program, It Has a Secret One of Its Own**\
 `Since shortly after it was founded in 1948, Israel has been intent on building a nuclear program to ensure its survival.`\
 https://nytimes.com/2025/06/17/world/middleeast/israel-nuclear-weapons.html
-
-**Fashion Editorials**\
-``\
-https://nytimes.com/series/fashion-editorials
 

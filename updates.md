@@ -1,3 +1,24 @@
+**James 'never doubted' she would make England's Euro 2025 squad despite injury**\
+`James, 23, was included in Sarina Wiegman’s squad for Euro 2025 and the England head coach insisted her selection was “not a risk”.`\
+https://nytimes.com/athletic/6432817/2025/06/17/england-euro-2025-women-squad-james/
+
+**Dozens of Palestinians Are Killed While Trying To Get Aid**\
+`The Gaza Health Ministry said at least 50 people were killed, blaming Israeli forces. The Israeli military said it was aware of reports of people injured in I.D.F. fire near an aid truck close to where its forces were operating.`\
+https://nytimes.com/video/world/middleeast/100000010233691/dozens-of-palestinians-are-killed-while-trying-to-get-aid.html
+
+**U.S. Revokes Visa of Panama’s Former President Who Criticized Trump Deal**\
+`Two politicians who spoke out against recent accords between the United States and Panama lost their permission to travel to the United States.`\
+https://nytimes.com/2025/06/17/world/americas/martin-torrijos-panama-us-visa-trump.html
+
+**As Israel attacks, Iranians flee capital in search of safety.**\
+`By Leily Nikounazar and Talya Minsberg`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/as-israel-attacks-iranians-flee-capital-in-search-of-safety
+
+**The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
+`Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
+`\
+https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
+
 **The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
 `Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
 `\
