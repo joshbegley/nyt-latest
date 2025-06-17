@@ -1,3 +1,11 @@
+**In ‘Not My Type,’ E. Jean Carroll Gets the Last Gab About the Trump Trials**\
+`Her lawyers urged that she keep her testimony short. With legal victories in hand, she’s sharing her life story, and what it was like on the stand.`\
+https://nytimes.com/2025/06/17/books/review/not-my-type-e-jean-carroll.html
+
+**FIFA has taken us for fools over its promise to fight racism**\
+`We should not expect anything from a body whose 'commitment' to fighting prejudice has been exposed as meaningless, writes Nick Miller`\
+https://nytimes.com/athletic/6431853/2025/06/17/fifa-racism-club-world-cup/
+
 **Trump Offers Mixed Messages on Israel-Iran War**\
 `President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
 https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
