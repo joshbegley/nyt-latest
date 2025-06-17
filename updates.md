@@ -1,3 +1,11 @@
+**FIFA criticized after dropping anti-racism messages at Club World Cup**\
+`FIFA's “no racism” and “no discrimination” campaign will not be promoted in stadiums at the tournament in the United States.`\
+https://nytimes.com/athletic/6432066/2025/06/17/club-world-cup-fifa-racism-discrimination-message/
+
+**Paul Simon at the Beacon Theater: Quiet, Intricate, Masterly**\
+`Subtlety reigned as the musician played his post-farewell tour in New York, which included a full performance of his 33-minute LP, “Seven Psalms.”`\
+https://nytimes.com/2025/06/17/arts/music/paul-simon-a-quiet-celebration-tour-review.html
+
 **Canada international Jade Rose joins Manchester City**\
 `The Canada international graduated from Havard this summer.`\
 https://nytimes.com/athletic/6431982/2025/06/17/canada-international-manchester-city-jade-rose/
