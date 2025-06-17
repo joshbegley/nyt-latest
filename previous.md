@@ -1,3 +1,11 @@
+**American Mythmakers, Revisited: Hunter S. Thompson and John Wilkes Booth**\
+`Two shows attempt to make sense of the gonzo journalist and Lincoln’s assassin, cultural figures forever intertwined with American history.`\
+https://nytimes.com/2025/06/17/theater/hunter-s-thompson-booth-theater-baltimore.html
+
+**How to watch Aces at Lynx: A'ja Wilson out vs. Napheesa Collier in Commissioner's Cup play**\
+`The two most recent Western Conference finalists face off when the Lynx host the Aces on Tuesday night.`\
+https://nytimes.com/athletic/6430534/2025/06/17/aces-lynx-wnba-aja-wilson-napheesa-collier-how-to-watch/
+
 **Ottawa Senators offseason callout: Submit your trade and free agency proposals**\
 `What moves should Ottawa Senators president and general manager Steve Staios pursue this summer?`\
 https://nytimes.com/athletic/6432166/2025/06/17/ottawa-senators-free-agency-trade-proposals-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6428982/2025/06/17/middlesbrough-manager-next-rob-e
 **In an Era of Upheavals, Los Angeles Restaurants Are Banding Together**\
 `Through Covid, protests, strikes and fires, the Independent Hospitality Coalition is helping local business navigate a volatile civic landscape.`\
 https://nytimes.com/2025/06/17/dining/los-angeles-restaurants-independent-hospitality-coalition.html
-
-**Who Really Invented Basketball?**\
-`The official story is that Dr. James Naismith invented basketball in Springfield, Mass., in 1891. But what about the teenager tossing cabbages in upstate New York a year earlier?`\
-https://nytimes.com/2025/06/17/nyregion/basketball-herkimer-ny.html
-
-**Real Madrid appoint Pau Quesada as women's head coach**\
-`The appointment will mark the 32-year-old's first coaching role in the women's game.`\
-https://nytimes.com/athletic/6418646/2025/06/17/real-madrid-women-pau-quesada-coach/
 

@@ -1,3 +1,11 @@
+**American Mythmakers, Revisited: Hunter S. Thompson and John Wilkes Booth**\
+`Two shows attempt to make sense of the gonzo journalist and Lincoln’s assassin, cultural figures forever intertwined with American history.`\
+https://nytimes.com/2025/06/17/theater/hunter-s-thompson-booth-theater-baltimore.html
+
+**How to watch Aces at Lynx: A'ja Wilson out vs. Napheesa Collier in Commissioner's Cup play**\
+`The two most recent Western Conference finalists face off when the Lynx host the Aces on Tuesday night.`\
+https://nytimes.com/athletic/6430534/2025/06/17/aces-lynx-wnba-aja-wilson-napheesa-collier-how-to-watch/
+
 **Ottawa Senators offseason callout: Submit your trade and free agency proposals**\
 `What moves should Ottawa Senators president and general manager Steve Staios pursue this summer?`\
 https://nytimes.com/athletic/6432166/2025/06/17/ottawa-senators-free-agency-trade-proposals-nhl/
