@@ -1,3 +1,11 @@
+**Trump Offers Mixed Messages on Israel-Iran War**\
+`President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
+https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
+
+**As World Turns Focus to Iran, Lethal Violence Flares at Gaza Aid Sites**\
+`The ongoing bloodshed in Gaza is drawing less attention with the international community distracted by the new regional conflict between Israel and Iran.`\
+https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.html
+
 **Trump is offering mixed messages on the Israel-Iran war.**\
 `President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
 https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
