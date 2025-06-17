@@ -1,3 +1,11 @@
+**Trump is offering mixed messages on the Israel-Iran war.**\
+`President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
+https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
+
+**How to watch Storm at Sparks: Nneka Ogwumike faces former team in WNBA Commissioner's Cup**\
+`Nneka Ogwumike makes her return to LA, with the Seattle Storm fighting for the Western Conference's spot in the Commissioner's Cup final.`\
+https://nytimes.com/athletic/6430674/2025/06/17/kelsey-plum-diggins-ogwumike-storm-sparks-how-to-watch/
+
 **The unlikely power of Corbin Carroll, the diminutive Diamondbacks star raking homers**\
 `We are conditioned to think of power hitters in a certain way. In his third full season, the 5-10, 165-pound Carroll proves otherwise.`\
 https://nytimes.com/athletic/6431174/2025/06/17/corbin-carroll-arizona-diamondbacks-power-home-runs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.h
 **'If I can walk, then I want to play': Pacers' Tyrese Haliburton vows to go in Game 6**\
 `Limited by a calf injury, Haliburton had just four points and no field goals in Monday's Game 5 loss.`\
 https://nytimes.com/athletic/6431377/2025/06/17/tyrese-haliburton-nba-finals-game-5-injury/
-
-**The moment is not too big for Jalen Williams, who has taken over these NBA Finals**\
-`The Thunder guard's "fearless" performance in Game 5, when he dropped 40 points on the Pacers, showed his unwavering confidence.`\
-https://nytimes.com/athletic/6431634/2025/06/17/jalen-williams-nba-finals-game-5/
-
-**Starmer Picks Up Trump’s Papers, and 2 Small Political Wins**\
-`The British prime minister scrambled at President Trump’s feet in a viral moment, but he may be happier than the other Group of 7 leaders with his moment in the sun.`\
-https://nytimes.com/2025/06/17/world/europe/trump-starmer-trade-uk-g7-summit.html
 

@@ -1,3 +1,11 @@
+**Trump is offering mixed messages on the Israel-Iran war.**\
+`President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
+https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
+
+**How to watch Storm at Sparks: Nneka Ogwumike faces former team in WNBA Commissioner's Cup**\
+`Nneka Ogwumike makes her return to LA, with the Seattle Storm fighting for the Western Conference's spot in the Commissioner's Cup final.`\
+https://nytimes.com/athletic/6430674/2025/06/17/kelsey-plum-diggins-ogwumike-storm-sparks-how-to-watch/
+
 **The unlikely power of Corbin Carroll, the diminutive Diamondbacks star raking homers**\
 `We are conditioned to think of power hitters in a certain way. In his third full season, the 5-10, 165-pound Carroll proves otherwise.`\
 https://nytimes.com/athletic/6431174/2025/06/17/corbin-carroll-arizona-diamondbacks-power-home-runs/

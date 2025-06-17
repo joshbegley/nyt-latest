@@ -1,4 +1,4 @@
-**Trump is offering mixed messages on the Israel-Iran war.**\
+**Trump Offers Mixed Messages on Israel-Iran War**\
 `President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
 https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
 
