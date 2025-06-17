@@ -1,3 +1,7 @@
+**Word of the Day: topple**\
+`This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/17/learning/word-of-the-day-topple.html
+
 **Russian Drone and Missile Strikes on Kyiv Kill at Least 14**\
 `It was one of the deadliest attacks on the Ukrainian capital in months that came as Moscow has intensified air assaults on the city.`\
 https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6428901/2025/06/17/premier-league-club-record-signi
 **Stable club: Brighton, Royal Ascot and a Premier League passion for horse racing**\
 `The Royal Ascot meeting this week will see races featuring horses owned by Brighton chairman Tony Bloom - and several of his players`\
 https://nytimes.com/athletic/6058165/2025/06/17/brighton-royal-ascot-horseracing-bloom-premier-league/
-
-**'Find me players who can dribble': Cherki, Ait-Nouri, Reijnders and Guardiola's desire for ball-carriers**\
-`Players who can dribble are of increasing importance to Guardiola - this is why and how he might use them as he reworks his team again`\
-https://nytimes.com/athletic/6429466/2025/06/17/guardiola-dribble-transfers/
 
