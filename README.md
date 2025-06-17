@@ -1,3 +1,11 @@
+**The Bounce: Jalen Williams' ambitious NBA Finals arrival has Thunder close to championship glory**\
+`Jalen Williams had been building toward his breakout performance, and it’s what has the Thunder on the brink of a champagne celebration`\
+https://nytimes.com/athletic/6431859/2025/06/17/jalen-williams-thunder-nba-finals-kevin-durant-trade-the-bounce/
+
+**Despite Close Ties With Iran, Russia Stands Aside as Israel Attacks**\
+`Analysts say the Kremlin is prioritizing its own war against Ukraine, as well as its relations with Gulf nations that don’t want to see a stronger Iran.`\
+https://nytimes.com/2025/06/17/world/middleeast/iran-russia-relationship-analysis.html
+
 **Cantore joins Washington Spirit as first Italian in NWSL history**\
 `The 25-year-old will become the NWSL's first ever Italian player. `\
 https://nytimes.com/athletic/6431572/2025/06/17/sofia-cantore-becomes-first-italian-in-nwsl-after-joining-washington-spirit-from-juventus/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6418646/2025/06/17/real-madrid-women-pau-quesada-co
 **China’s Spy Agencies Are Investing Heavily in A.I., Researchers Say**\
 `A new report comes amid rising concern about how China will use new tools to power covert actions, as Western intelligence services also embrace the technology.`\
 https://nytimes.com/2025/06/17/us/politics/chinas-ai-spy-agencies.html
-
-**Torn Between Artifice and Authenticity**\
-`Re-enacting battles from Vietnam demonstrates how war can be mythologized.`\
-https://nytimes.com/2025/06/17/special-series/an-my-le-vietnam-war-photography.html
-
-**Why Is Everybody ‘Crashing Out’?**\
-`Adrenaline rising? Patience waning? Gen Z embraces a slang term for familiar feelings.`\
-https://nytimes.com/2025/06/17/style/crashing-out-slang.html
 
