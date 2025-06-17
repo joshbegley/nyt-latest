@@ -1,3 +1,7 @@
+**Elected Officials Who Have Been Detained in Protests**\
+`The arrest of Brad Lander was the latest case in which an official has been held while protesting President Trump’s immigration agenda.`\
+https://nytimes.com/2025/06/17/us/ice-arrests-elected-offcials.html
+
 **Senators Assail Antidoping Regulator for ‘Stonewalling and Intimidation’**\
 `Members of both parties criticized the World Anti-Doping Agency for its decision not to sanction Chinese swimmers who tested positive for a banned substance, including some who went on to win Olympic medals.`\
 https://nytimes.com/2025/06/17/us/politics/senate-swimmers-antidoping-regulator.html
