@@ -1,3 +1,11 @@
+**Russian Drone and Missile Strikes on Kyiv Kill at Least 14**\
+`It was one of the deadliest attacks on the Ukrainian capital in months that came as Moscow has intensified air assaults on the city.`\
+https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
+
+**Orion Kerkering earns first career save, and more trust, as Phillies shuffle bullpen**\
+`Kerkering has thrived in more and more high-leverage situations. Could a changing of the guard be on its way in the Phillies' bullpen? `\
+https://nytimes.com/athletic/6431197/2025/06/17/phillies-bullpen-orion-kerkering-jordan-romano/
+
 **The New York Times in Print for Tuesday, June 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/17/todays-new-york-times
