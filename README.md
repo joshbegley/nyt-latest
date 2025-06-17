@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, June 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/17/todays-new-york-times
+
 **Tuesday Briefing**\
 `A fifth day of attacks.`\
 https://nytimes.com/2025/06/17/briefing/iran-israel-g7.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429034/2025/06/17/nigeria-shirt-2018-world-cup-kit
 **Why Cristiano Ronaldo paints his toenails black**\
 `The Portugal star has taken on a foot-hygiene regime popularised in MMA - but what advantages does it bring and will it catch on?`\
 https://nytimes.com/athletic/6429611/2025/06/17/cristiano-ronaldo-black-toenails/
-
-**South Africa Built a Medical Research Powerhouse. Trump Cuts Have Demolished It.**\
-`The budget cuts threaten global progress on everything from heart disease to H.I.V. — and could affect American drug companies, too.`\
-https://nytimes.com/2025/06/17/health/south-africa-medical-research-trump.html
 
