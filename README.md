@@ -1,3 +1,11 @@
+**Profits of Doom: Why Investors Seem to Shrug Off War**\
+`The Israel-Iran clash seemingly has no end in sight — a prospect that does not seem to be panicking the markets.`\
+https://nytimes.com/2025/06/17/business/dealbook/markets-war-israel-iran.html
+
+**Tracking Tropical Storm Erick**\
+`See the likely path and wind arrival times for Erick.`\
+https://nytimes.com/interactive/2025/06/17/weather/erick-map-path-tracker.html
+
 **Trump Administration Live Updates: Senate Republicans Propose Deeper Medicaid Cuts**\
 ``\
 https://nytimes.com/live/2025/06/17/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419526/2025/06/17/penguins-trade-tiers-dubas-offse
 **Which Rangers could make the Olympics? Good bets, maybes and outside shots**\
 `The 12 competing men’s hockey countries announced the first six players on their rosters on Monday. No Rangers made the cut.`\
 https://nytimes.com/athletic/6430301/2025/06/17/olympics-rangers-hockey-nhl-roster/
-
-**Knicks head coaching search, free-agent targets, trades and more: Mailbag**\
-`Is Mike Brown or Taylor Jenkins a better coaching fit for New York? Who might the Knicks target in free agency? More in this mailbag.`\
-https://nytimes.com/athletic/6429504/2025/06/17/knicks-coach-free-agent-trade-search-mailbag/
-
-**Chase Sapphire Leapfrogs Amex Platinum With a New $795 Annual Fee**\
-`The price jump is part of an ongoing shift for credit card companies and airlines toward premium rewards and high-end travelers.`\
-https://nytimes.com/2025/06/17/travel/chase-sapphire-annual-fee.html
 
