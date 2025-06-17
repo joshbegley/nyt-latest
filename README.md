@@ -1,3 +1,11 @@
+**How Nigeria's 2018 shirt became the holy grail of modern football kit releases**\
+`Coveted by shirt enthusiasts and proudly cherished by fans, few modern kits have been as adored as Nigeria's 2018 World Cup strip`\
+https://nytimes.com/athletic/6429034/2025/06/17/nigeria-shirt-2018-world-cup-kit/
+
+**Why Cristiano Ronaldo paints his toenails black**\
+`The Portugal star has taken on a foot-hygiene regime popularised in MMA - but what advantages does it bring and will it catch on?`\
+https://nytimes.com/athletic/6429611/2025/06/17/cristiano-ronaldo-black-toenails/
+
 **South Africa Built a Medical Research Powerhouse. Trump Cuts Have Demolished It.**\
 `The budget cuts threaten global progress on everything from heart disease to H.I.V. — and could affect American drug companies, too.`\
 https://nytimes.com/2025/06/17/health/south-africa-medical-research-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6431132/2025/06/16/leon-fans-club-world-cup-atlanta
 **Jalen Williams' 40-point Game 5 has Thunder one win from NBA title**\
 `After Jalen Williams' huge Game 5, the potential clincher for the Thunder is Thursday in Indianapolis with a Pacers star looking hindered.`\
 https://nytimes.com/athletic/6431184/2025/06/16/thunder-pacers-game-5-jalen-williams-2025-nba-finals/
-
-**Flamengo 2 Esperance de Tunis 0 - Jorginho helps new side to victory in Club World Cup**\
-`Analysis of Flamengo's Club World Cup win over Esperance de Tunis`\
-https://nytimes.com/athletic/6431131/2025/06/16/flamengo-2-esperance-de-tunis-0-jorginho-helps-new-side-to-victory-in-club-world-cup/
-
-**Here Are the 2025 James Beard Restaurant Award Winners**\
-`Toni Tipton-Martin, Jungsik Yim and the restaurateurs behind Le Veau d’Or were among the top honorees.`\
-https://nytimes.com/2025/06/16/dining/here-are-the-2025-james-beard-restaurant-award-winners.html
 
