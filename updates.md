@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
 
+**The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
+`Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
+`\
+https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
+
 **Pacers swing mid-Finals trade, swap picks with Pelicans: Source**\
 `The Pelicans will now own the No. 7 and No. 23 picks in this year’s draft as they look to reshape their roster.`\
 https://nytimes.com/athletic/6432819/2025/06/17/pacers-pelicans-trade-draft-picks/
