@@ -1,3 +1,7 @@
+**Kelly grants Arsenal period of exclusivity for permanent transfer talks**\
+`The England international moved to the north London club on loan from Manchester City in January.`\
+https://nytimes.com/athletic/6431557/2025/06/17/chloe-kelly-arsenal-transfer-permanent-talks/
+
 **'Aggressive' Thunder keep ball moving early and often to move one step closer to title**\
 `The woes that plagued OKC in its previous game seemed to all go away when the Thunder returned home Monday.`\
 https://nytimes.com/athletic/6431375/2025/06/17/thunder-offense-nba-finals-game-5/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/17/world/israel-iran-trump
 **Brighton complete Coppola signing**\
 `The 21-year-old has signed a five-year contract with the club.`\
 https://nytimes.com/athletic/6423819/2025/06/17/diego-coppola-brighton-transfer/
-
-**Bengals offseason debriefing: How OTAs, minicamp changed the season outlook**\
-`Joe Burrow's locked in, Demetrius Knight Jr. looks like a veteran and the defense sees some potential pieces stepping up.`\
-https://nytimes.com/athletic/6429460/2025/06/17/bengals-offseason-program-debrief/
 
