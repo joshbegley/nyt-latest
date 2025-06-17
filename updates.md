@@ -1,3 +1,7 @@
+**Rafael Devers says he is open to anything with Giants, including first base**\
+`"They are the men in charge," Devers said at his introductory conference. "I am here to play wherever they want me to play."`\
+https://nytimes.com/athletic/6433008/2025/06/17/san-francisco-giants-rafael-devers-first-base/
+
 **Elected Officials Who Have Been Detained in Protests**\
 `The arrest of Brad Lander was the latest case in which an official has been held while protesting President Trump’s immigration agenda.`\
 https://nytimes.com/2025/06/17/us/ice-arrests-elected-offcials.html
