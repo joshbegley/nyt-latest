@@ -1,4 +1,8 @@
-**As World Turns Focus to Iran, Lethal Violence Flares Again at Gaza Aid Sites.**\
+**Aryna Sabalenka 'absolutely regrets' French Open final comments about Coco Gauff**\
+`Sabalenka had bemoaned her 'terrible' play after the Roland Garros final, saying that Gauff kept hitting shots off the frame of her racket.`\
+https://nytimes.com/athletic/6431752/2025/06/17/tennis-sabalenka-gauff-french-open-final/
+
+**As World Turns Focus to Iran, Lethal Violence Flares at Gaza Aid Sites**\
 `With the international community distracted by the new Middle East conflict between Israel and Iran, ongoing bloodshed in Gaza is drawing less attention.`\
 https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431370/2025/06/17/canucks-free-agency-brock-boeser
 **Red Wings mock trade proposals: What it could cost to land Robertson, Miller, more**\
 `We crafted four summer trade proposals for the Red Wings and then sought feedback from local writers.`\
 https://nytimes.com/athletic/6428213/2025/06/17/red-wings-mock-trade-proposals-robertson-miller/
-
-**Q&A with Blues chairman Tom Stillman: State of the team, 'McDavid deal,' rising cap and more**\
-`The Blues chairman checks in for his offseason chat with The Athletic, with an unexpected guest, and shares his thoughts about the future.`\
-https://nytimes.com/athletic/6429662/2025/06/17/blues-chairman-tom-stillman-questions-answers-2025/
 

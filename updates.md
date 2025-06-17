@@ -1,3 +1,11 @@
+**Aryna Sabalenka 'absolutely regrets' French Open final comments about Coco Gauff**\
+`Sabalenka had bemoaned her 'terrible' play after the Roland Garros final, saying that Gauff kept hitting shots off the frame of her racket.`\
+https://nytimes.com/athletic/6431752/2025/06/17/tennis-sabalenka-gauff-french-open-final/
+
+**As World Turns Focus to Iran, Lethal Violence Flares at Gaza Aid Sites**\
+`With the international community distracted by the new Middle East conflict between Israel and Iran, ongoing bloodshed in Gaza is drawing less attention.`\
+https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.html
+
 **As World Turns Focus to Iran, Lethal Violence Flares Again at Gaza Aid Sites.**\
 `With the international community distracted by the new Middle East conflict between Israel and Iran, ongoing bloodshed in Gaza is drawing less attention.`\
 https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.html
