@@ -1,3 +1,7 @@
+**The Pulse: Was the NBA title decided last night?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6429664/2025/06/17/pacers-thunder-game-5-jalen-williams-the-pulse/
+
 **Report into online abuse of tennis players outlines impact of sports betting on targeted harassment**\
 `A system for identifying online abuse of tennis players by sports bettors only touches the sides of the harassment they receive online.`\
 https://nytimes.com/athletic/6431473/2025/06/17/tennis-players-online-abuse-sports-bettors/
