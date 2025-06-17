@@ -1,3 +1,11 @@
+**$5.4 Million Attack Ad and ICE Arrest Add Drama to N.Y.C. Mayor’s Race**\
+`Plus: We looked at key endorsements and dug into the polls with our in-house expert. Primary Day is just a week away.`\
+https://nytimes.com/2025/06/17/nyregion/mamdani-attack-ad-nyc-mayor.html
+
+**Members of Congress Press for More Security After Minnesota Attacks**\
+`A Capitol security official briefed senators on enhanced security precautions, and lawmakers in both parties said more funding was needed to protect themselves.`\
+https://nytimes.com/2025/06/17/us/politics/congress-security-after-minnesota.html
+
 **Until Saturday: Bring back the computers**\
 `Until Saturday is The Athletic's CFB newsletter.`\
 https://nytimes.com/athletic/6432697/2025/06/17/cfp-committee-stats-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/world/europe/north-korea-workers-russia.html
 **Brad Lander Is Arrested by ICE Agents at Immigration Courthouse**\
 `Mr. Lander, the New York City comptroller and a candidate for mayor, was handcuffed as he tried to steer a man past Immigration and Customs Enforcement officers.`\
 https://nytimes.com/2025/06/17/nyregion/brad-lander-immigration-ice.html
-
-**A Nuclear Deal Is Still Possible**\
-`Imagining how Iran could possibly come back to the table after being so brutally attacked is admittedly difficult, until you think about how bad its other options are.`\
-https://nytimes.com/2025/06/17/opinion/international-world/a-nuclear-deal-is-still-possible.html
-
-**The Sean Combs Trial: A Timeline of the Testimony**\
-`The music mogul has pleaded not guilty to charges of sex trafficking, racketeering conspiracy and transportation to engage in prostitution. Here’s what has happened in court.`\
-https://nytimes.com/article/sean-diddy-combs-trial-timeline-testimony.html
 
