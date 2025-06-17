@@ -1,3 +1,7 @@
+**Israel Says It Assassinated Iran’s Most Senior Military Commander**\
+`Maj. Gen. Ali Shadmani had been in the job for mere days. News of his death came as President Trump called for Iran’s “unconditional surrender” and threatened its supreme leader.`\
+https://nytimes.com/2025/06/17/world/middleeast/israel-iran-assassination-general.html
+
 **The Briefing - River Plate 3 Urawa Red Diamonds 1: Mastantuono, mind games and one really massive tactics board**\
 `River Plate eased to victory in their first game in Group E, thanks to three headed goals against Urawa Red Diamonds`\
 https://nytimes.com/athletic/6424371/2025/06/17/river-plate-urawa-mastantuono-captain-handshake-tactics-board/
