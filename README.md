@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Michael D. Shear, Zolan Kanno-Youngs and Francesca Regalado`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/heres-the-latest
+
+**Live Updates: Trump Returns to D.C. as Israel and Iran Trade Attacks**\
+`President Trump left early from the G7 summit and said he was working on something “much bigger” than a cease-fire. Israel said it had killed another senior Iranian general on the fifth day of the war.`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump
+
 **Brighton complete Coppola signing**\
 `The 21-year-old has signed a five-year contract with the club.`\
 https://nytimes.com/athletic/6423819/2025/06/17/diego-coppola-brighton-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/world/middleeast/syria-israel-iran.html
 **Inside Mara Brock Akil’s Writing Retreat on the Lower East Side**\
 `The television writer and producer wrote her adaptation of Judy Blume’s “Forever” inside the Manhattan condo.`\
 https://nytimes.com/interactive/2025/06/17/realestate/mara-brock-akil-condo-nyc.html
-
-**Fed’s ‘Wait and See’ Approach Is Intact as New Risks Cloud Economic Outlook**\
-`The central bank is set to hold interest rates steady for its fourth straight meeting, a pause that could be extended through the summer.`\
-https://nytimes.com/2025/06/17/business/federal-reserve-interest-rates.html
-
-**Republicans Fight Uphill in Virginia Race That Will Test Anger at Trump**\
-`The Democratic candidate for governor, Abigail Spanberger, is raising far more cash than her Republican rival, Winsome Earle-Sears, in a state where federal work force cuts are being acutely felt.`\
-https://nytimes.com/2025/06/17/us/politics/virginia-governor-election-spanberger-earle-sears.html
 
