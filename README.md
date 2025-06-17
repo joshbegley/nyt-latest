@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6432289/2025/06/17/cam-newton-auburn-until-saturday/
 
 **PGA Tour leadership: Rolapp in as CEO, Monahan to be phased out**\
-`“No one hired me for my golf game here. That's not my job. My job is to do other things."`\
+`“No one hired me for my golf game here," Rolapp said. "That's not my job. My job is to do other things."`\
 https://nytimes.com/athletic/6432227/2025/06/17/pga-tour-leadership-ceo-commissioner-monahan-rolapp/
 
 **The Ever-Evolving Juneteenth Table**\
