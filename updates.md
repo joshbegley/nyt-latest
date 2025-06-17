@@ -1,3 +1,11 @@
+**Senate G.O.P. Releases Domestic Policy Bill With Deeper Cuts to Medicaid**\
+`The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
+https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
+
+**Maresca speaks out on 'almost empty stadium' for CWC win over LAFC**\
+`Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,137.`\
+https://nytimes.com/athletic/6430851/2025/06/16/chelsea-lafc-club-world-cup-attendance/
+
 **Maresca speaks out on 'almost empty stadium' for CWC win over LAFC**\
 `Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,197.`\
 https://nytimes.com/athletic/6430851/2025/06/16/chelsea-lafc-club-world-cup-attendance/

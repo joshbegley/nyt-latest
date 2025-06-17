@@ -1,5 +1,9 @@
+**Senate G.O.P. Releases Domestic Policy Bill With Deeper Cuts to Medicaid**\
+`The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
+https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
+
 **Maresca speaks out on 'almost empty stadium' for CWC win over LAFC**\
-`Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,197.`\
+`Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,137.`\
 https://nytimes.com/athletic/6430851/2025/06/16/chelsea-lafc-club-world-cup-attendance/
 
 **Man Utd CEO Omar Berrada says 'worst bit is behind us'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/politics/iran-nuclear-site-israel.html
 **E.P.A. Plans to Reconsider a Ban on Cancer-Causing Asbestos**\
 `The Trump administration’s move sets back a decades-long effort to end the use of the material, which is widely banned in other countries.`\
 https://nytimes.com/2025/06/16/us/epa-trump-asbestos-ban-delay.html
-
-**Naval Academy Seeks Dismissal of Lawsuit After Dropping Race-Conscious Admissions**\
-`The academy had argued for years that a diverse officer corps was essential to strong troop morale and national security.`\
-https://nytimes.com/2025/06/16/us/naval-academy-race-admissions-lawsuit.html
 
