@@ -1,3 +1,11 @@
+**Where to Eat: When you’re in Philly**\
+`The first of our summertime national dining guides.`\
+https://nytimes.com/2025/06/17/dining/where-to-eat-in-philly.html
+
+**Companies Ask Supreme Court to Fast-Track Challenge to Tariffs**\
+`Two toy manufacturers asked the court to greatly expedite their case, in an unusual request.`\
+https://nytimes.com/2025/06/17/us/politics/supreme-court-tariffs-toys.html
+
 **The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
 `Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
 `\
