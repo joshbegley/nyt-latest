@@ -1,3 +1,7 @@
+**Patrick Mahomes' future blindside protector? Chiefs high on Josh Simmons**\
+`Kansas City believes it drafted a top-10 talent at the back of the first round in Simmons. Will he help the Chiefs solve their O-line woes?`\
+https://nytimes.com/athletic/6433160/2025/06/17/chiefs-patrick-mahomes-josh-simmons/
+
 **Louisville walks off Oregon State to stay alive in College World Series**\
 `The Cardinals blew a three-run lead in the top of the ninth inning but staved off elimination by scoring one run in the bottom of the ninth.`\
 https://nytimes.com/athletic/6433423/2025/06/17/louisville-walk-off-oregon-state-college-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010231766/inside-trumps-shifting-sta
 **Mets place starter Tylor Megill on 15-day IL with right elbow sprain**\
 `Megill joins Kodai Senga as the second member of the Mets rotation to hit the injured list in the last week. `\
 https://nytimes.com/athletic/6433409/2025/06/17/tylor-megill-mets-injured-list-elbow/
-
-**Senate Passes Cryptocurrency Bill, Handing Industry a Victory**\
-`The bill was a significant step toward giving the cryptocurrency industry the credibility and legitimacy it has sought, without limitations it has worked to head off.`\
-https://nytimes.com/2025/06/17/us/politics/senate-cryptocurrency-bill.html
 
