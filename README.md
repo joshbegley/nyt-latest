@@ -1,6 +1,14 @@
+**Pacers swing mid-Finals trade, swap picks with Pelicans: Source**\
+`The Pelicans will now own the No. 7 and No. 23 picks in this year’s draft as they look to reshape their roster.`\
+https://nytimes.com/athletic/6432819/2025/06/17/pacers-pelicans-trade-draft-picks/
+
+**The internet across Iran is being disrupted, experts and Iranians say.**\
+`Many people believed the government was responsible for restricting services, and the authorities were urging Iranians to use the national internet network.`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/the-internet-across-iran-is-being-disrupted-experts-and-iranians-say
+
 **‘A Time of Bitter Celebrations’: Joy and Fear as L.A. Students Graduate Amid ICE Raids**\
 `Nearly three-fourths of the students in L.A. public schools are Latino. Some families, and a few graduates, stayed away from graduation ceremonies out of fear of federal raids.`\
-https://nytimes.com/2025/06/17/us/los-angeles-graduations-raids-fear.html
+https://nytimes.com/2025/06/17/us/la-graduations-ice-raids.html
 
 **James 'never doubted' she would make England's Euro 2025 squad despite injury**\
 `James, 23, was included in Sarina Wiegman’s squad for Euro 2025 and the England head coach insisted her selection was “not a risk”.`\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/17/world/asia/indonesia-volcano-eruption-lewotobi-la
 **A Trip Through Trip-Hop’s Past and Future**\
 `Listen to songs from Portishead and Cibo Matto, plus inheritors like Fcukers and a.s.o.`\
 https://nytimes.com/2025/06/17/arts/music/amplifier-newsletter-trip-hop.html
-
-**California Bill Would Bar Officers From Wearing Masks**\
-`The proposal comes as immigration raids by masked officers have touched off protests in California and elsewhere across the country.`\
-https://nytimes.com/2025/06/17/us/police-face-coverings-california-law.html
-
-**As Israel Targets Iran’s Nuclear Program, It Has a Secret One of Its Own**\
-`Since shortly after it was founded in 1948, Israel has been intent on building a nuclear program to ensure its survival.`\
-https://nytimes.com/2025/06/17/world/middleeast/israel-nuclear-weapons.html
 
