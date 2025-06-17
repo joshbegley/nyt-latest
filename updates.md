@@ -1,3 +1,15 @@
+**Brad Lander Is Arrested by ICE Agents at Immigration Courthouse**\
+`Mr. Lander, the New York City comptroller who is running for mayor, was handcuffed as he tried to steer a man past Immigration and Customs Enforcement officers.`\
+https://nytimes.com/2025/06/17/nyregion/brad-lander-immigration-ice.html
+
+**A Nuclear Deal Is Still Possible**\
+`Imagining how Iran could possibly come back to the table after being so brutally attacked is admittedly difficult, until you think about how bad its other options are.`\
+https://nytimes.com/2025/06/17/opinion/international-world/a-nuclear-deal-is-still-possible.html
+
+**‘Regime Change’? Questions About Israel’s Iran Goal Pressure Trump**\
+`Israel’s military campaign reminds some of America’s ill-fated Middle East interventions, which President Trump has long denounced.`\
+https://nytimes.com/2025/06/17/us/politics/regime-change-israel-iran-trump.html
+
 **The Sean Combs Trial: A Timeline of the Testimony**\
 `The music mogul has pleaded not guilty to charges of sex trafficking, racketeering conspiracy and transportation to engage in prostitution. Here’s what has happened in court.`\
 https://nytimes.com/article/sean-diddy-combs-trial-timeline-testimony.html
