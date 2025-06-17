@@ -1,3 +1,7 @@
+**Until Saturday: Bring back the computers**\
+`Until Saturday is The Athletic's CFB newsletter.`\
+https://nytimes.com/athletic/6432697/2025/06/17/cfp-committee-stats-until-saturday/
+
 **Lebanon, Eager to Stay Out of Israel-Iran War, Warns Hezbollah Not to Join the Fight**\
 `Hezbollah, Iran’s most powerful regional ally, has signaled privately that it does not intend to attack Israel, but Lebanon’s military has bolstered its presence in the country’s south to prevent rocket fire.`\
 https://nytimes.com/2025/06/17/world/middleeast/lebanon-israel-iran-war-hezbollah.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6432628/2025/06/17/tottenham-postecoglou-daniel-lev
 https://nytimes.com/2025/06/17/world/europe/north-korea-workers-russia.html
 
 **Brad Lander Is Arrested by ICE Agents at Immigration Courthouse**\
-`Mr. Lander, the New York City comptroller who is running for mayor, was handcuffed as he tried to steer a man past Immigration and Customs Enforcement officers.`\
+`Mr. Lander, the New York City comptroller and a candidate for mayor, was handcuffed as he tried to steer a man past Immigration and Customs Enforcement officers.`\
 https://nytimes.com/2025/06/17/nyregion/brad-lander-immigration-ice.html
 
 **A Nuclear Deal Is Still Possible**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/opinion/international-world/a-nuclear-deal-is-sti
 **The Sean Combs Trial: A Timeline of the Testimony**\
 `The music mogul has pleaded not guilty to charges of sex trafficking, racketeering conspiracy and transportation to engage in prostitution. Here’s what has happened in court.`\
 https://nytimes.com/article/sean-diddy-combs-trial-timeline-testimony.html
-
-**Here’s a look at the first four days of attacks between Israel and Iran.**\
-`By Elena Shao`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/heres-a-look-at-the-first-four-days-of-attacks-between-israel-and-iran
 

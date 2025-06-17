@@ -1,3 +1,15 @@
+**Lebanon, Eager to Stay Out of Israel-Iran War, Warns Hezbollah Not to Join the Fight**\
+`Hezbollah, Iran’s most powerful regional ally, has signaled privately that it does not intend to attack Israel, but Lebanon’s military has bolstered its presence in the country’s south to prevent rocket fire.`\
+https://nytimes.com/2025/06/17/world/middleeast/lebanon-israel-iran-war-hezbollah.html
+
+**Indonesian Volcano Spews Ash Several Thousand Feet High**\
+`Mount Lewotobi Laki Laki, a volcano in Indonesia, erupted Tuesday night, blasting thick gray ash up to 5,000 meters above its peak and was reported to be visible as far as 100 miles away.`\
+https://nytimes.com/video/world/asia/100000010234483/mount-lewotobi-laki-laki-erupts.html
+
+**Trump calls for Iran’s ‘unconditional surrender’ and threatens its supreme leader.**\
+`The president wrote in a social media post that the United States knew his location.`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/trump-iran
+
 **Seven trades I’d like to see before MLB trade deadline, starting with a Sandy Alcantara swap**\
 `Here are seven intriguing trade ideas to ponder, starting with a blockbuster trade of the 2022 NL Cy Young winner. Would you do these deals?`\
 https://nytimes.com/athletic/6432172/2025/06/17/mlb-trade-scenarios-sandy-alcantara/
@@ -25,16 +37,4 @@ https://nytimes.com/article/sean-diddy-combs-trial-timeline-testimony.html
 **Here’s a look at the first four days of attacks between Israel and Iran.**\
 `By Elena Shao`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/heres-a-look-at-the-first-four-days-of-attacks-between-israel-and-iran
-
-**There are more than 40 nuclear and missile facilities throughout Iran.**\
-`TK summary test.`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iran-nuclear-missile-facilities
-
-**Mapping the Israel-Iran Conflict**\
-``\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking
-
-**A Swedish Novelist Hits New York, With ‘Permission to Be More Wild’**\
-`Call it autofiction, supernatural or a comedy of dislocation: In “The Sisters,” Jonas Hassen Khemiri takes his biggest swing yet.`\
-https://nytimes.com/2025/06/17/books/jonas-hassen-khemiri-the-sisters.html
 
