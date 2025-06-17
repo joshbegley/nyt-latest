@@ -1,3 +1,15 @@
+**The Bounce: Jalen Williams' ambitious NBA Finals arrival has Thunder close to championship glory**\
+`Jalen Williams had been building toward his breakout performance, and it’s what has the Thunder on the brink of a champagne celebration`\
+https://nytimes.com/athletic/6431859/2025/06/17/jalen-williams-thunder-nba-finals-kevin-durant-trade-the-bounce/
+
+**Despite Close Ties With Iran, Russia Stands Aside as Israel Attacks**\
+`Analysts say the Kremlin is prioritizing its own war against Ukraine, as well as its relations with Gulf nations that don’t want to see a stronger Iran.`\
+https://nytimes.com/2025/06/17/world/middleeast/iran-russia-relationship-analysis.html
+
+**Cantore joins Washington Spirit as first Italian in NWSL history**\
+`The 25-year-old will become the NWSL's first ever Italian player. `\
+https://nytimes.com/athletic/6431572/2025/06/17/sofia-cantore-becomes-first-italian-in-nwsl-after-joining-washington-spirit-from-juventus/
+
 **The Windup: Shohei Ohtani brings the heat in return**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6431360/2025/06/17/ohtani-pitching-return-devers-the-windup/
