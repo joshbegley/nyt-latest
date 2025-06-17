@@ -1,3 +1,11 @@
+**A Swedish Novelist Hits New York, With ‘Permission to Be More Wild’**\
+`Call it autofiction, supernatural or a comedy of dislocation: In “The Sisters,” Jonas Hassen Khemiri takes his biggest swing yet.`\
+https://nytimes.com/2025/06/17/books/jonas-hassen-khemiri-the-sisters.html
+
+**Premier League extends Middle East TV deal, overseas media rights value up 27%**\
+`The new three-year deal runs from next season through until the end of 2027-28 and is worth approximately £550m.`\
+https://nytimes.com/athletic/6432549/2025/06/17/premier-league-tv-deal-overseas/
+
 **‘Regime Change’? Questions About Israel’s Iran Goal Pressure Trump.**\
 `Israel’s military campaign reminds some of America’s ill-fated Middle East interventions, which President Trump has long denounced.`\
 https://nytimes.com/2025/06/17/us/politics/regime-change-israel-iran-trump.html

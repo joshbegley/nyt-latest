@@ -1,3 +1,11 @@
+**A Swedish Novelist Hits New York, With ‘Permission to Be More Wild’**\
+`Call it autofiction, supernatural or a comedy of dislocation: In “The Sisters,” Jonas Hassen Khemiri takes his biggest swing yet.`\
+https://nytimes.com/2025/06/17/books/jonas-hassen-khemiri-the-sisters.html
+
+**Premier League extends Middle East TV deal, overseas media rights value up 27%**\
+`The new three-year deal runs from next season through until the end of 2027-28 and is worth approximately £550m.`\
+https://nytimes.com/athletic/6432549/2025/06/17/premier-league-tv-deal-overseas/
+
 **‘Regime Change’? Questions About Israel’s Iran Goal Pressure Trump.**\
 `Israel’s military campaign reminds some of America’s ill-fated Middle East interventions, which President Trump has long denounced.`\
 https://nytimes.com/2025/06/17/us/politics/regime-change-israel-iran-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/theater/real-women-have-curves-broadway-closing.h
 **Monterrey's telenovela-like run-up to the Club World Cup**\
 `The Mexican power has left a trail of madness in its wake, entering the Club World Cup with a new manager and a dose of humility`\
 https://nytimes.com/athletic/6432326/2025/06/17/monterrey-club-world-cup-sergio-ramos-torrent-demichelis-ca/
-
-**How Trump Shifted on Iran Under Pressure From Israel**\
-`President Trump spent the first months of his term holding back Israel’s push for an assault on Iran’s nuclear program. With the war underway, his posture has gyrated as he weighs sending in the U.S. military.`\
-https://nytimes.com/2025/06/17/us/politics/trump-iran-israel-nuclear-talks.html
-
-**Watch: Does Lijnders' arrival signal a stylistic shift at Manchester City?**\
-`The Athletic FC Podcast discuss whether the appointment of Pep Lijnders signals a stylistic shift for Manchester City.`\
-https://nytimes.com/athletic/6431446/2025/06/17/athletic-fc-podcast-pep-lijnders-manchester-city/
 
