@@ -1,3 +1,19 @@
+**Oil Prices Climb as Trump Calls for Iran’s ‘Surrender’**\
+`They rose more than 4 percent as traders wondered if the United States would take a more active role in the conflict between Israel and Iran.`\
+https://nytimes.com/2025/06/17/business/energy-environment/oil-prices-trump-iran.html
+
+**Trump’s Conflicting Messages on Workplace Raids Leave Businesses Reeling**\
+`Trump officials insist the president is fully committed to mass deportation. But they have been careful not to directly contradict the president’s attempt to offer a reprieve to certain businesses.`\
+https://nytimes.com/2025/06/17/us/politics/trump-conflicting-messages-workplace-raids.html
+
+**Anne Burrell, Chef and Food Network Star, Dies at 55**\
+`Her distinctive hairstyle and swagger in the kitchen made her one of America’s most recognizable Italian chefs.`\
+https://nytimes.com/2025/06/17/dining/anne-burrell-chef-and-food-network-star-dies-at-55.html
+
+**Virginia Primary Election Results**\
+`Get live results and maps from the 2025 Virginia primary elections.`\
+https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-primary.html
+
 **Heavily Armed Man at ‘No Kings’ Protest Had 13 Bombs at Home, Police Say**\
 `Kevin Krebs, 31, of Malvern, Pa., is facing more than two dozen additional charges after investigators searched his house on Monday.`\
 https://nytimes.com/2025/06/17/us/no-kings-arrest-bombs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6433160/2025/06/17/chiefs-patrick-mahomes-josh-simm
 **Louisville walks off Oregon State to stay alive in College World Series**\
 `The Cardinals blew a three-run lead in the top of the ninth inning but staved off elimination by scoring one run in the bottom of the ninth.`\
 https://nytimes.com/athletic/6433423/2025/06/17/louisville-walk-off-oregon-state-college-world-series/
-
-**Elected Officials Who Have Been Detained in Protests**\
-`The arrest of Brad Lander was the latest case in which an official has been held while protesting President Trump’s immigration agenda.`\
-https://nytimes.com/2025/06/17/us/ice-arrests-elected-offcials.html
-
-**Humanitarian Aid Trickles Into Northern Gaza**\
-`A convoy of trucks brought food parcels into the territory, where civilians are at risk of starvation and have been suffering worsening conditions, with such aid shipments rare in recent weeks.`\
-https://nytimes.com/2025/06/17/world/middleeast/gaza-food-distribution-scene.html
-
-**This Pop Hit Has Plenty of Dolly Parton**\
-`Sabrina Carpenter’s latest single, “Manchild,” just debuted at No. 1 on Billboard. Our critic explains why the singer is both a throwback and a signature star of right now.`\
-https://nytimes.com/video/podcasts/100000010233883/this-pop-hit-has-plenty-of-dolly-parton.html
-
-**Submit your Cardinals questions for Katie Woo's mailbag**\
-`<p>After a surprising May, the Cardinals are scuffling through their worst stretch of the year.`\
-https://nytimes.com/athletic/6433448/2025/06/17/cardinals-mailbag-mlb-katie-woo/
 
