@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`A fifth day of attacks.`\
+https://nytimes.com/2025/06/17/briefing/iran-israel-g7.html
+
+**Chelsea are uniquely qualified to cope with the Club World Conference League vibe**\
+`Chelsea could establish themselves as credible contenders just as the Club World Cup coalesces into a credible competition`\
+https://nytimes.com/athletic/6431075/2025/06/17/chelsea-club-world-conference-league/
+
 **Omar Berrada: Manchester United's CEO on Amorim, transfers, apologies and more**\
 `Manchester United's CEO opens up on his turbulent first year in the job and why things will get better next term`\
 https://nytimes.com/athletic/6429022/2025/06/17/omar-berrada-manchester-united-amorim-transfers/
