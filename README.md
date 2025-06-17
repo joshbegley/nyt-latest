@@ -1,3 +1,7 @@
+**MyPillow Founder Mike Lindell Defamed Election Security Expert, Jury Finds**\
+`He was ordered to pay $2.3 million in damages to Eric Coomer, a former employee of Dominion Voting Systems.`\
+https://nytimes.com/2025/06/16/business/mypillow-mike-lindell-defamation.html
+
 **Doctor Who Gave Matthew Perry Ketamine Will Plead Guilty, U.S. Says**\
 `Dr. Salvador Plasencia, an urgent care clinic operator in the Los Angeles area, could face up to 40 years in prison in connection with the actor’s 2023 death.`\
 https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429539/2025/06/16/manchester-united-berrada-amorim
 **Why Jonathan David is captaining Canada for first time at Gold Cup**\
 `The Canadian star forward will take on some added responsibility as he seeks to guide his team to its first trophy in 25 years.`\
 https://nytimes.com/athletic/6430634/2025/06/16/jonathan-david-canada-captain-gold-cup-marsch/
-
-**Minnesota Assassin Posed as Police Officer to Carry Out Shootings**\
-`Impersonating a police officer is a tactic sometimes used by criminals to win victims’ trust, police say.`\
-https://nytimes.com/live/2025/06/16/us/minnesota-shootings/police-impersonation
 
