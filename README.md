@@ -1,3 +1,7 @@
+**Here Are the 2025 James Beard Restaurant Award Winners**\
+`Toni Tipton-Martin, Jungsik Yim and the restaurateurs behind Le Veau d’Or were among the top honorees.`\
+https://nytimes.com/2025/06/16/dining/here-are-the-2025-james-beard-restaurant-award-winners.html
+
 **Shohei Ohtani tops 100 mph in one-inning return to mound for Dodgers**\
 `The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
 https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/business/mypillow-mike-lindell-defamation.html
 **Doctor Who Gave Matthew Perry Ketamine Will Plead Guilty, U.S. Says**\
 `Dr. Salvador Plasencia, an urgent care clinic operator in the Los Angeles area, could face up to 40 years in prison in connection with the actor’s 2023 death.`\
 https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
-
-**Flattery or Discipline? The Difficult Task of Managing Trump.**\
-`Canada’s prime minister Mark Carney deployed both methods on the first day of the Group of 7 summit in Alberta to keep Mr. Trump focused and avoid drama.`\
-https://nytimes.com/2025/06/16/world/canada/canada-g7-trump-carney.html
 
