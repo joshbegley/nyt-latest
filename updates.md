@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, June 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/17/todays-new-york-times
+
 **Tuesday Briefing**\
 `A fifth day of attacks.`\
 https://nytimes.com/2025/06/17/briefing/iran-israel-g7.html
