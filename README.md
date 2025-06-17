@@ -1,3 +1,7 @@
+**Arsenal coach Cuesta set to leave club to become Parma head coach**\
+`Cuesta had been in talks with the Italian side for several weeks and is now set to travel to Italy on Wednesday to finalise the move. `\
+https://nytimes.com/athletic/6433336/2025/06/17/arsenal-carlos-cuesta-parma-move-news-update/
+
 **Nick Castellanos held from Phillies lineup for 'inappropriate' remark, ending streak**\
 `Castellanos was held from the Phillies' lineup after what Rob Thomson called an "inappropriate" remark upon his removal from Monday's game.`\
 https://nytimes.com/athletic/6433140/2025/06/17/nick-castellanos-out-phillies-lineup-ending-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/briefing/trump-iran-israel-surrender-gaza-aid.htm
 **Could this season be make-or-break for Packers' Matt LaFleur and Brian Gutekunst?**\
 `Both the head coach and general manager have two years remaining on their contracts with the Packers.`\
 https://nytimes.com/athletic/6428439/2025/06/17/packers-ed-policy-matt-lafleur-brian-gutekunst-contracts/
-
-**Four Thoughts on Trump’s Hawkish Turn on Iran**\
-`Why the president is disappointing noninterventionists.`\
-https://nytimes.com/2025/06/17/opinion/trump-iran-war.html
 
