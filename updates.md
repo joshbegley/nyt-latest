@@ -1,3 +1,7 @@
+**Late Night Thinks Trump’s Military Parade Was Kind of Dull**\
+`It was “basically a $50 million version of when a 5-year-old shows you every car in his Hot Wheels collection,” Jimmy Kimmel said on Monday.`\
+https://nytimes.com/2025/06/17/arts/television/late-night-trump-parade-washington.html
+
 **A Senator’s Fall From Grace Ends in a Grim Federal Lockup**\
 `For decades, Robert Menendez, 71, was one of New Jersey’s most influential Democrats. He is expected to start serving an 11-year sentence on Tuesday.`\
 https://nytimes.com/2025/06/17/nyregion/prison-robert-menendez.html

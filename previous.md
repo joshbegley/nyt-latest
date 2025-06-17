@@ -1,3 +1,7 @@
+**Late Night Thinks Trump’s Military Parade Was Kind of Dull**\
+`It was “basically a $50 million version of when a 5-year-old shows you every car in his Hot Wheels collection,” Jimmy Kimmel said on Monday.`\
+https://nytimes.com/2025/06/17/arts/television/late-night-trump-parade-washington.html
+
 **A Senator’s Fall From Grace Ends in a Grim Federal Lockup**\
 `For decades, Robert Menendez, 71, was one of New Jersey’s most influential Democrats. He is expected to start serving an 11-year sentence on Tuesday.`\
 https://nytimes.com/2025/06/17/nyregion/prison-robert-menendez.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
 **Orion Kerkering earns first career save, and more trust, as Phillies shuffle bullpen**\
 `Kerkering has thrived in more and more high-leverage situations. Could a changing of the guard be on its way in the Phillies' bullpen? `\
 https://nytimes.com/athletic/6431197/2025/06/17/phillies-bullpen-orion-kerkering-jordan-romano/
-
-**The New York Times in Print for Tuesday, June 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/17/todays-new-york-times
 
