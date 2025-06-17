@@ -1,3 +1,11 @@
+**Timberwolves should be considered the dark horse in a Kevin Durant trade**\
+`Minnesota does not want to make a seismic change if Durant isn't on board. The question is whether there’s any chance he comes around to it.`\
+https://nytimes.com/athletic/6431028/2025/06/16/kevin-durant-trade-timberwolves-possibility-nba-rumors/
+
+**Reason for Overtime**\
+`Tarun Krishnamurthy finds a few sweet spots.`\
+https://nytimes.com/2025/06/16/crosswords/daily-puzzle-2025-06-17.html
+
 **Ron Taylor, pitcher who won World Series with Mets and Cardinals, dies at 87**\
 `Taylor became a doctor following his 11-year baseball career and was the Blue Jays' team physician for more than 30 years.`\
 https://nytimes.com/athletic/6431045/2025/06/16/ron-taylor-mets-cardinals-world-series-dead-at-87/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6430776/2025/06/16/angel-reese-trademark-mebounds-o
 **Many Hoped Senate Republicans Would Save Clean Energy. They Mostly Didn’t.**\
 `A Senate tax package softens some blows imposed on renewables by a House version of the bill. But it still terminates many credits for clean power.`\
 https://nytimes.com/2025/06/16/climate/senate-republicans-tax-package-clean-energy.html
-
-**Boca Juniors 2 Benfica 2 - Three red cards, sound and fury in Club World Cup's best game so far**\
-`Analysis of the Club World Cup game between Boca Juniors and Benfica`\
-https://nytimes.com/athletic/6423749/2025/06/16/boca-juniors-benfica-highlights/
-
-**Senate Bill Would Make Deep Cuts to Medicaid, Setting Up Fight With House**\
-`The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
-https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
 

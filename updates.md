@@ -1,3 +1,11 @@
+**Timberwolves should be considered the dark horse in a Kevin Durant trade**\
+`Minnesota does not want to make a seismic change if Durant isn't on board. The question is whether there’s any chance he comes around to it.`\
+https://nytimes.com/athletic/6431028/2025/06/16/kevin-durant-trade-timberwolves-possibility-nba-rumors/
+
+**Reason for Overtime**\
+`Tarun Krishnamurthy finds a few sweet spots.`\
+https://nytimes.com/2025/06/16/crosswords/daily-puzzle-2025-06-17.html
+
 **Ron Taylor, pitcher who won World Series with Mets and Cardinals, dies at 87**\
 `Taylor became a doctor following his 11-year baseball career and was the Blue Jays' team physician for more than 30 years.`\
 https://nytimes.com/athletic/6431045/2025/06/16/ron-taylor-mets-cardinals-world-series-dead-at-87/
