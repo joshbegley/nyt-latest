@@ -1,3 +1,7 @@
+**‘A Little Windy’: Trump Drops U.S.-Britain Trade Papers**\
+`President Trump and Prime Minister Keir Starmer of Britain said on Monday that they had signed a deal that would cut tariffs on commerce between their countries. But there was a tiny mishap.`\
+https://nytimes.com/video/us/politics/100000010233668/a-little-windy-trump-drops-us-britain-trade-papers.html
+
 **Justin Reid picks off Kyler Murray to win NFL chess tournament**\
 `The New Orleans Saints safety is now a two-time champion of the competition.`\
 https://nytimes.com/athletic/6431560/2025/06/17/nfl-chess-tournament-blitzchamps-winner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420056/2025/06/17/nhl-free-agency-wingers/
 **‘Darn near ready-made’: Trey Yesavage pitching his way into Blue Jays’ 2025 plans**\
 `Less than a year after being drafted, Yesavage is on a path to a big-league debut — one that could come as early as this season.`\
 https://nytimes.com/athletic/6430926/2025/06/17/blue-jays-trey-yesavage-pitcher-prospect/
-
-**Breaking down K'Andre Miller: What he does, what he's worth and what the Rangers should do**\
-`Miller's contract situation might be among the most complicated in the NHL this offseason, but why? Here's all the angles.`\
-https://nytimes.com/athletic/6430310/2025/06/17/kandre-miller-rangers-analysis/
 

@@ -1,3 +1,7 @@
+**‘A Little Windy’: Trump Drops U.S.-Britain Trade Papers**\
+`President Trump and Prime Minister Keir Starmer of Britain said on Monday that they had signed a deal that would cut tariffs on commerce between their countries. But there was a tiny mishap.`\
+https://nytimes.com/video/us/politics/100000010233668/a-little-windy-trump-drops-us-britain-trade-papers.html
+
 **Justin Reid picks off Kyler Murray to win NFL chess tournament**\
 `The New Orleans Saints safety is now a two-time champion of the competition.`\
 https://nytimes.com/athletic/6431560/2025/06/17/nfl-chess-tournament-blitzchamps-winner/
