@@ -1,3 +1,7 @@
+**The New York Liberty are favored to set a WNBA record this season**\
+`The teams' odds shifted to suggest a new league benchmark is possible this year.`\
+https://nytimes.com/athletic/6432542/2025/06/17/ny-liberty-wnba-wins-record-single-season/
+
 **Florida Attorney General Defied Order Blocking Part of Immigration Law, Judge Rules**\
 `A federal judge held the attorney general, James Uthmeier, in civil contempt of court for violating an order blocking part of an immigration enforcement law.`\
 https://nytimes.com/2025/06/17/us/florida-attorney-general-immigration-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/us/politics/iran-israel-us-bases.html
 **ICE Agents Arrest Brad Lander at New York Immigration Court**\
 `Immigration and Customs Enforcement officers arrested Brad Lander, the New York City comptroller and a candidate for mayor, after he tried to steer a migrant out of the building to avoid his arrest.`\
 https://nytimes.com/video/us/politics/100000010235238/brad-lander-comptroller-nyc-arrest.html
-
-**Lawmakers Revive War Powers Debate as Trump Threatens Iran**\
-`A bipartisan pair in the House and a Democrat in the Senate have moved to force votes in the coming days on requiring congressional approval before U.S. troops could take offensive action against Iran.`\
-https://nytimes.com/2025/06/17/world/middleeast/trump-war-powers-iran-congress.html
 
