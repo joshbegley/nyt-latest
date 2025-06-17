@@ -1,3 +1,11 @@
+**In ‘Not My Type,’ E. Jean Carroll Gets the Last Gab About the Trump Trials**\
+`Her lawyers urged that she keep her testimony short. With legal victories in hand, she’s sharing her life story, and what it was like on the stand.`\
+https://nytimes.com/2025/06/17/books/review/not-my-type-e-jean-carroll.html
+
+**FIFA has taken us for fools over its promise to fight racism**\
+`We should not expect anything from a body whose 'commitment' to fighting prejudice has been exposed as meaningless, writes Nick Miller`\
+https://nytimes.com/athletic/6431853/2025/06/17/fifa-racism-club-world-cup/
+
 **Trump Offers Mixed Messages on Israel-Iran War**\
 `President Trump’s contradictory comments left Israelis and Iranians trying to understand whether and how the U.S. would intervene.`\
 https://nytimes.com/2025/06/17/world/middleeast/trump-mixed-messages-israel-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6431719/2025/06/17/fifa-club-world-cup-criticism/
 **Aryna Sabalenka 'absolutely regrets' French Open final comments about Coco Gauff**\
 `Sabalenka had bemoaned her 'terrible' play after the Roland Garros final, saying that Gauff kept hitting shots off the frame of her racket.`\
 https://nytimes.com/athletic/6431752/2025/06/17/tennis-sabalenka-gauff-french-open-final/
-
-**As World Turns Focus to Iran, Lethal Violence Flares at Gaza Aid Sites**\
-`The ongoing bloodshed in Gaza is drawing less attention with the international community distracted by the new regional conflict between Israel and Iran.`\
-https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.html
-
-**'If I can walk, then I want to play': Pacers' Tyrese Haliburton vows to go in Game 6**\
-`Limited by a calf injury, Haliburton had just four points and no field goals in Monday's Game 5 loss.`\
-https://nytimes.com/athletic/6431377/2025/06/17/tyrese-haliburton-nba-finals-game-5-injury/
 
