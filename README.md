@@ -1,3 +1,7 @@
+**Red Sox exec Craig Breslow: Devers trade isn't a 'waving of the white flag'**\
+`The Red Sox sent Rafael Devers to San Francisco in exchange for Jordan Hicks, Kyle Harrison and two minor leaguers.`\
+https://nytimes.com/athletic/6431060/2025/06/16/boston-red-sox-craig-breslow-comments/
+
 **Timberwolves should be considered the dark horse in a Kevin Durant trade**\
 `Minnesota does not want to make a seismic change if Durant isn't on board. The question is whether there’s any chance he comes around to it.`\
 https://nytimes.com/athletic/6431028/2025/06/16/kevin-durant-trade-timberwolves-possibility-nba-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/world/canada/canada-g7-trump-carney.html
 **Angel Reese's latest response to critics: Applying to trademark 'mebounds'**\
 `Filing a trademark for a term used by trolls is not a bad way to flip the narratives.`\
 https://nytimes.com/athletic/6430776/2025/06/16/angel-reese-trademark-mebounds-online-criticism/
-
-**Many Hoped Senate Republicans Would Save Clean Energy. They Mostly Didn’t.**\
-`A Senate tax package softens some blows imposed on renewables by a House version of the bill. But it still terminates many credits for clean power.`\
-https://nytimes.com/2025/06/16/climate/senate-republicans-tax-package-clean-energy.html
 
