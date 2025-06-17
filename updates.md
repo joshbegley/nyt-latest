@@ -1,3 +1,11 @@
+**Here Are the 2025 James Beard Restaurant Award Winners**\
+`Toni Tipton-Martin, Jungsik Yim and the restaurateurs behind Le Veau d’Or were among the top honorees.`\
+https://nytimes.com/2025/06/16/dining/here-are-the-2025-james-beard-restaurant-award-winners.html
+
+**Shohei Ohtani tops 100 mph in one-inning return to mound for Dodgers**\
+`The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
+https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
+
 **Shohei Ohtani throws one inning in first pitching appearance for Dodgers**\
 `The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
 https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
