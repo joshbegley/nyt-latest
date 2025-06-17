@@ -1,3 +1,7 @@
+**Flamengo 2 Esperance de Tunis 0 - Jorginho helps new side to victory in Club World Cup**\
+`Analysis of Flamengo's Club World Cup win over Esperance de Tunis`\
+https://nytimes.com/athletic/6431131/2025/06/16/flamengo-2-esperance-de-tunis-0-jorginho-helps-new-side-to-victory-in-club-world-cup/
+
 **Here Are the 2025 James Beard Restaurant Award Winners**\
 `Toni Tipton-Martin, Jungsik Yim and the restaurateurs behind Le Veau d’Or were among the top honorees.`\
 https://nytimes.com/2025/06/16/dining/here-are-the-2025-james-beard-restaurant-award-winners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/world/canada/trump-g7-russia-ukraine.html
 **MyPillow Founder Mike Lindell Defamed Election Security Expert, Jury Finds**\
 `He was ordered to pay $2.3 million in damages to Eric Coomer, a former employee of Dominion Voting Systems.`\
 https://nytimes.com/2025/06/16/business/mypillow-mike-lindell-defamation.html
-
-**Doctor Who Gave Matthew Perry Ketamine Will Plead Guilty, U.S. Says**\
-`Dr. Salvador Plasencia, an urgent care clinic operator in the Los Angeles area, could face up to 40 years in prison in connection with the actor’s 2023 death.`\
-https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
 
