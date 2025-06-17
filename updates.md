@@ -1,3 +1,11 @@
+**Louisville walks off Oregon State to stay alive in College World Series**\
+`The Cardinals blew a three-run lead in the top of the ninth inning but staved off elimination by scoring one run in the bottom of the ninth.`\
+https://nytimes.com/athletic/6433423/2025/06/17/louisville-walk-off-oregon-state-college-world-series/
+
+**Elected Officials Who Have Been Detained in Protests Against ICE**\
+`The arrest of Brad Lander was the latest case in which an official has been held while protesting President Trump’s immigration agenda.`\
+https://nytimes.com/2025/06/17/us/ice-arrests-elected-offcials.html
+
 **Humanitarian Aid Trickles Into Northern Gaza**\
 `A convoy of trucks brought food parcels into the territory, where civilians are at risk of starvation and have been suffering worsening conditions, with such aid shipments rare in recent weeks.`\
 https://nytimes.com/2025/06/17/world/middleeast/gaza-food-distribution-scene.html
