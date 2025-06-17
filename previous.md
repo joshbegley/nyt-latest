@@ -1,5 +1,5 @@
 **Maresca speaks out on 'almost empty stadium' for CWC win over LAFC**\
-`Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,137.`\
+`Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,197.`\
 https://nytimes.com/athletic/6430851/2025/06/16/chelsea-lafc-club-world-cup-attendance/
 
 **Man Utd CEO Omar Berrada says 'worst bit is behind us'**\
