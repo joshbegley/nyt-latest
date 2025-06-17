@@ -1,3 +1,11 @@
+**Report into online abuse of tennis players outlines impact of sports betting on targeted harassment**\
+`A system for identifying online abuse of tennis players by sports bettors only touches the sides of the harassment they receive online.`\
+https://nytimes.com/athletic/6431473/2025/06/17/tennis-players-online-abuse-sports-bettors/
+
+**Why are so few people watching the Stanley Cup Final in the U.S.?**\
+`The Athletic's Richard Deitsch offers several reasons why the TV audience in the U.S. for the Stanley Cup Final has been depressed.`\
+https://nytimes.com/athletic/6429107/2025/06/17/nhl-stanley-cup-tv-ratings-tnt-sports-edmonton-oilers/
+
 **How an up-and-coming NFL agent (in Minneapolis!) finds his footing in a cut-throat league**\
 `Minnesota native Blake Baratz has found success in football by staying on the cutting edge of a constantly changing industry.`\
 https://nytimes.com/athletic/6415008/2025/06/17/nfl-agent-minnesota-vikings-minneapolis-jonathan-allen/

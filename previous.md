@@ -1,3 +1,11 @@
+**Report into online abuse of tennis players outlines impact of sports betting on targeted harassment**\
+`A system for identifying online abuse of tennis players by sports bettors only touches the sides of the harassment they receive online.`\
+https://nytimes.com/athletic/6431473/2025/06/17/tennis-players-online-abuse-sports-bettors/
+
+**Why are so few people watching the Stanley Cup Final in the U.S.?**\
+`The Athletic's Richard Deitsch offers several reasons why the TV audience in the U.S. for the Stanley Cup Final has been depressed.`\
+https://nytimes.com/athletic/6429107/2025/06/17/nhl-stanley-cup-tv-ratings-tnt-sports-edmonton-oilers/
+
 **How an up-and-coming NFL agent (in Minneapolis!) finds his footing in a cut-throat league**\
 `Minnesota native Blake Baratz has found success in football by staying on the cutting edge of a constantly changing industry.`\
 https://nytimes.com/athletic/6415008/2025/06/17/nfl-agent-minnesota-vikings-minneapolis-jonathan-allen/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/crosswords/connections-companion-738.html
 **NHL Mock Draft 2025: Starting with Schaefer, Pronman makes all 224 picks**\
 `Corey Pronman projects every pick in the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6429388/2025/06/17/nhl-mock-draft-2025-seven-rounds-pronman/
-
-**Kelly grants Arsenal period of exclusivity for permanent transfer talks**\
-`The England international moved to the north London club on loan from Manchester City in January.`\
-https://nytimes.com/athletic/6431557/2025/06/17/chloe-kelly-arsenal-transfer-permanent-talks/
-
-**'Aggressive' Thunder keep ball moving early and often to move one step closer to title**\
-`The woes that plagued OKC in its previous game seemed to all go away when the Thunder returned home Monday.`\
-https://nytimes.com/athletic/6431375/2025/06/17/thunder-offense-nba-finals-game-5/
 
