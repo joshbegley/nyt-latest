@@ -1,40 +1,40 @@
-**Ronaldo transfer for CWC 'counter intuitive' - Al Hilal**\
-`In May, FIFA president Gianni Infantino said there were “discussions” that Ronaldo “might play” in the tournament.`\
-https://nytimes.com/athletic/6431521/2025/06/17/cristiano-ronaldo-transfer-club-world-cup/
+**Trump Says He Has No Plans to Call Walz After Shootings in Minnesota**\
+`“I think the governor of Minnesota is so whacked out, I’m not calling him,” the president told reporters.`\
+https://nytimes.com/2025/06/17/us/trump-walz-minnesota-shootings.html
 
-**TAFC: Bayern, Barca eye Williams; FIFA drops anti-racism messaging for Club World Cup**\
-`Today in TAFC: Why Barca and Bayern want Nico Williams, and all the transfer latest. Plus: FIFA drop inclusivity drive at Club World Cup`\
-https://nytimes.com/athletic/6431530/2025/06/17/bayern-barca-eye-williams-fifa-drops-anti-racism-messaging-for-club-world-cup/
+**Inzaghi appointed Palermo head coach, four days after Pisa exit**\
+`Inzaghi has been tasked with returning Palermo to Italian football's top flight for the first time since 2017.`\
+https://nytimes.com/athletic/6431654/2025/06/17/filippo-inzaghi-manager-palermo/
 
-**Isaiah Hartenstein provides the key to unlock the Thunder offense in Game 5 win**\
-`Hartenstein's impact went beyond the box score, as his screening and decision-making played a huge role in giving OKC a 3-2 series lead.`\
-https://nytimes.com/athletic/6431313/2025/06/17/isaiah-hartenstein-thunder-nba-finals-game-5/
+**Mercedes’ F1 drivers delivered in Canada, proving what’s possible with the right car**\
+`Mercedes dominated Formula One's Canadian Grand Prix with George Russell winning – but why was its car suddenly so good?`\
+https://nytimes.com/athletic/6430466/2025/06/17/mercedes-f1-canada-george-russell-kimi-antonelli/
 
-**The Pulse: Was the NBA title decided last night?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6429664/2025/06/17/pacers-thunder-game-5-jalen-williams-the-pulse/
+**NHL free agency deep dive: Analyzing the top wingers available**\
+`With free-agency season approaching, the big question is: How much is each player worth? Here's a look at the top wingers.`\
+https://nytimes.com/athletic/6420056/2025/06/17/nhl-free-agency-wingers/
 
-**Report into online abuse of tennis players outlines impact of sports betting on targeted harassment**\
-`A system for identifying online abuse of tennis players by sports bettors only touches the sides of the harassment they receive online.`\
-https://nytimes.com/athletic/6431473/2025/06/17/tennis-players-online-abuse-sports-bettors/
+**‘Darn near ready-made’: Trey Yesavage pitching his way into Blue Jays’ 2025 plans**\
+`Less than a year after being drafted, Yesavage is on a path to a big-league debut — one that could come as early as this season.`\
+https://nytimes.com/athletic/6430926/2025/06/17/blue-jays-trey-yesavage-pitcher-prospect/
 
-**Why are so few people watching the Stanley Cup Final in the U.S.?**\
-`The Athletic's Richard Deitsch offers several reasons why the TV audience in the U.S. for the Stanley Cup Final has been depressed.`\
-https://nytimes.com/athletic/6429107/2025/06/17/nhl-stanley-cup-tv-ratings-tnt-sports-edmonton-oilers/
+**Breaking down K'Andre Miller: What he does, what he's worth and what the Rangers should do**\
+`Miller's contract situation might be among the most complicated in the NHL this offseason, but why? Here's all the angles.`\
+https://nytimes.com/athletic/6430310/2025/06/17/kandre-miller-rangers-analysis/
 
-**How an up-and-coming NFL agent (in Minneapolis!) finds his footing in a cut-throat league**\
-`Minnesota native Blake Baratz has found success in football by staying on the cutting edge of a constantly changing industry.`\
-https://nytimes.com/athletic/6415008/2025/06/17/nfl-agent-minnesota-vikings-minneapolis-jonathan-allen/
+**Florida, UCLA and Pitt among schools off to a surprisingly nice start to recruiting cycle**\
+`The Gators picked up 10 commitments in the past month and jumped more than 50 spots in the national rankings. `\
+https://nytimes.com/athletic/6430699/2025/06/17/college-football-recruiting-surprises-florida-ucla-pitt/
 
-**It's Sabrina Ionescu's world, and she's leaving her mark**\
-`The Liberty's star guard is enjoying one of her best years ... professionally and personally.`\
-https://nytimes.com/athletic/6430493/2025/06/17/sabrina-ionescu-new-york-liberty-legacy/
+**CFP leaders have a new (old) debate: Should humans or numbers run the selection process?**\
+`Everything about the CFP debate is subject to change right now, but how to select the teams is the sticking point du jour.`\
+https://nytimes.com/athletic/6430519/2025/06/17/cfp-selection-committee-bcs-playoff-format/
 
-**Collector who hit $274,500 Caitlin Clark card: ‘I can help so many people and animals with this'**\
-`Meet the WNBA fan who is aiming to use her good fortune to help others`\
-https://nytimes.com/athletic/6431058/2025/06/17/caitlin-clark-black-finite-rookie-card/
+**Is Bryce Underwood worth the hype? We asked 5 high school opponents**\
+`Everyone who coached against the blue-chip freshman QB in high school agrees: Michigan signed a difference-maker who can play right away.`\
+https://nytimes.com/athletic/6429713/2025/06/17/bryce-underwood-michigan-qb-high-school/
 
-**Trump Cuts G7 Trip Short Over Iran, and Senate Republicans Propose Steep Medicaid Cuts**\
-`Plus, streaming’s TV takeover.`\
-https://nytimes.com/2025/06/17/podcasts/the-headlines/trump-g7-iran-medicaid-cuts.html
+**How the NHL grew its Stanley Cup playoff beard tradition: 'We were too tired to shave'**\
+`"To win the Stanley Cup is a miserable two months." Denis Potvin said. "The beard is a reminder of how much you have to put into it."`\
+https://nytimes.com/athletic/6429522/2025/06/17/nhl-hockey-playoff-beard-stanley-cup/
 
