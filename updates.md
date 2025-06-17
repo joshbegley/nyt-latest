@@ -1,3 +1,7 @@
+**House Policy Bill Would Add $3.4 Trillion to Debt, Swamping Economic Gains**\
+`The updated findings from the Congressional Budget Office amounted to the latest dour report card for the president’s signature legislation.`\
+https://nytimes.com/2025/06/17/us/politics/house-bill-federal-debt.html
+
 **Flyers' abundance of early-round draft picks offers 'some opportunities for movement'**\
 `Going into the draft, the Flyers don't necessarily plan to take a center with their initial pick.`\
 https://nytimes.com/athletic/6433075/2025/06/17/philadelphia-flyers-draft-trade/
