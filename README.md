@@ -1,4 +1,4 @@
-**Shohei Ohtani throws one inning in first pitching appearance for Dodgers**\
+**Shohei Ohtani tops 100 mph in one-inning return to mound for Dodgers**\
 `The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
 https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
 

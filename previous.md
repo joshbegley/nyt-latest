@@ -1,3 +1,7 @@
+**Shohei Ohtani throws one inning in first pitching appearance for Dodgers**\
+`The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
+https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
+
 **Red Sox exec Craig Breslow: Devers trade isn't a 'waving of the white flag'**\
 `The Red Sox sent Rafael Devers to San Francisco in exchange for Jordan Hicks, Kyle Harrison and two minor leaguers.`\
 https://nytimes.com/athletic/6431060/2025/06/16/boston-red-sox-craig-breslow-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
 **Flattery or Discipline? The Difficult Task of Managing Trump.**\
 `Canada’s prime minister Mark Carney deployed both methods on the first day of the Group of 7 summit in Alberta to keep Mr. Trump focused and avoid drama.`\
 https://nytimes.com/2025/06/16/world/canada/canada-g7-trump-carney.html
-
-**Angel Reese's latest response to critics: Applying to trademark 'mebounds'**\
-`Filing a trademark for a term used by trolls is not a bad way to flip the narratives.`\
-https://nytimes.com/athletic/6430776/2025/06/16/angel-reese-trademark-mebounds-online-criticism/
 

@@ -1,3 +1,7 @@
+**Shohei Ohtani throws one inning in first pitching appearance for Dodgers**\
+`The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
+https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
+
 **Red Sox exec Craig Breslow: Devers trade isn't a 'waving of the white flag'**\
 `The Red Sox sent Rafael Devers to San Francisco in exchange for Jordan Hicks, Kyle Harrison and two minor leaguers.`\
 https://nytimes.com/athletic/6431060/2025/06/16/boston-red-sox-craig-breslow-comments/
