@@ -1,3 +1,7 @@
+**Ron Taylor, pitcher who won World Series with Mets and Cardinals, dies at 87**\
+`Taylor became a doctor following his 11-year baseball career and was the Blue Jays' team physician for more than 30 years.`\
+https://nytimes.com/athletic/6431045/2025/06/16/ron-taylor-mets-cardinals-world-series-dead-at-87/
+
 **Full Time: USWNT gets a break**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6431038/2025/06/16/uswnt-emma-hayes-break-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423749/2025/06/16/boca-juniors-benfica-highlights/
 **Senate Bill Would Make Deep Cuts to Medicaid, Setting Up Fight With House**\
 `The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
 https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
-
-**Maresca speaks out on 'almost empty stadium' for CWC win over LAFC**\
-`Chelsea's win over LAFC took place in a 70,000-capacity NFL stadium that attracted an attendance of just 22,137.`\
-https://nytimes.com/athletic/6430851/2025/06/16/chelsea-lafc-club-world-cup-attendance/
 
