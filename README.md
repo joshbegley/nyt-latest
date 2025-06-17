@@ -1,3 +1,11 @@
+**MLB's three best new concession souvenirs**\
+`A new race to innovate in the realm of plastic concession keepsakes has taken hold`\
+https://nytimes.com/athletic/6430035/2025/06/17/mlb-concession-souvenirs-yankees-padres-mariners/
+
+**Senate Republicans Propose Key Tax Tweaks to House Bill**\
+`Party lawmakers proposed changes to the tax code that could offer the greatest benefit to businesses.`\
+https://nytimes.com/2025/06/17/us/politics/senate-republican-tax-bill.html
+
 **U.S. Open mixed doubles event secures top singles players it craved – but some need wild cards**\
 `The new format is deliberately designed to attract the best singles players instead of specialist doubles players.`\
 https://nytimes.com/athletic/6431865/2025/06/17/tennis-us-open-mixed-doubles-new-format-players-pairs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6421079/2025/06/17/sheffield-united-manager-next-wi
 **Octopuses’ 8 Arms Snoop on the Microbial World**\
 `Scientists discovered that octopuses use their limbs to sample the microbiomes on the surfaces they touch.`\
 https://nytimes.com/2025/06/17/science/octopus-arms-microbiome.html
-
-**Five Quick, Kid-Friendly Vegetarian Dinners**\
-`Crispy halloumi with tomatoes and white beans, sheet-pan bibimbap and gnocchi with hot and sweet peppers keep things interesting (and delicious).`\
-https://nytimes.com/2025/06/17/dining/five-quick-kid-friendly-vegetarian-dinners.html
-
-**FIFA criticized after dropping anti-racism messages at Club World Cup**\
-`FIFA's “no racism” and “no discrimination” campaign will not be promoted in stadiums at the tournament in the United States.`\
-https://nytimes.com/athletic/6432066/2025/06/17/club-world-cup-fifa-racism-discrimination-message/
 
