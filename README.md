@@ -1,3 +1,15 @@
+**Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
+`Boone said Torre has given him lots of advice over the past eight years, and pops into his office at Yankee Stadium occasionally.`\
+https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
+
+**Inside Trump’s Shifting Stance on Iran**\
+`President Trump spent the first months of his term holding back Israel’s push for an assault on Iran’s nuclear program. With the war underway, he has now expressed support for Israel. Jonathan Swan, a White House reporter for The New York Times, breaks down how the president got to this point.`\
+https://nytimes.com/video/us/politics/100000010231766/inside-trumps-shifting-stance-on-iran.html
+
+**Mets place starter Tylor Megill on 15-day IL with right elbow sprain**\
+`Megill joins Kodai Senga as the second member of the Mets rotation to hit the injured list in the last week. `\
+https://nytimes.com/athletic/6433409/2025/06/17/tylor-megill-mets-injured-list-elbow/
+
 **Senate Passes Cryptocurrency Bill, Handing Industry a Victory**\
 `The bill was a significant step toward giving the cryptocurrency industry the credibility and legitimacy it has sought, without limitations it has worked to head off.`\
 https://nytimes.com/2025/06/17/us/politics/senate-cryptocurrency-bill.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6433110/2025/06/17/thunder-pacers-haliburton-injury
 **Trump Called for Iran to Surrender**\
 `Also, a New York City mayoral candidate was arrested by ICE agents. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/06/17/briefing/trump-iran-new-york-city-ice-arrest.html
-
-**‘Chaos’ Is a Morning Show Dramedy With Verve**\
-`This Danish series, about a morning show in crisis, is light but not dumb, credible but still arch. It is also very different from “The Morning Show.”`\
-https://nytimes.com/2025/06/17/arts/television/chaos-viaplay.html
-
-**Israel Says It Assassinated Iran’s Most Senior Military Commander**\
-`Maj. Gen. Ali Shadmani had been in the job for mere days. News of his death came as President Trump called for Iran’s “unconditional surrender” and threatened its supreme leader.`\
-https://nytimes.com/2025/06/17/world/middleeast/israel-iran-assassination-general.html
-
-**The Briefing - River Plate 3 Urawa Red Diamonds 1: Mastantuono, mind games and one really massive tactics board**\
-`River Plate eased to victory in their first game in Group E, thanks to three headed goals against Urawa Red Diamonds`\
-https://nytimes.com/athletic/6424371/2025/06/17/river-plate-urawa-mastantuono-captain-handshake-tactics-board/
 
