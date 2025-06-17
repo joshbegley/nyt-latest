@@ -1,3 +1,7 @@
+**Trump Renews Embrace of Putin Amid Ongoing Rift With Allies**\
+`President Trump opened his remarks at the Group of 7 gathering of industrialized nations by criticizing the decision to expel Russia from the bloc after Moscow’s 2014 “annexation” of Crimea.`\
+https://nytimes.com/2025/06/16/world/canada/trump-g7-russia-ukraine.html
+
 **MyPillow Founder Mike Lindell Defamed Election Security Expert, Jury Finds**\
 `He was ordered to pay $2.3 million in damages to Eric Coomer, a former employee of Dominion Voting Systems.`\
 https://nytimes.com/2025/06/16/business/mypillow-mike-lindell-defamation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6430851/2025/06/16/chelsea-lafc-club-world-cup-atte
 **Man Utd CEO Omar Berrada says 'worst bit is behind us'**\
 `"There’s a clear idea of what we want to do, what players we want to get," Berrada added.`\
 https://nytimes.com/athletic/6429539/2025/06/16/manchester-united-berrada-amorim/
-
-**Why Jonathan David is captaining Canada for first time at Gold Cup**\
-`The Canadian star forward will take on some added responsibility as he seeks to guide his team to its first trophy in 25 years.`\
-https://nytimes.com/athletic/6430634/2025/06/16/jonathan-david-canada-captain-gold-cup-marsch/
 

@@ -1,3 +1,7 @@
+**MyPillow Founder Mike Lindell Defamed Election Security Expert, Jury Finds**\
+`He was ordered to pay $2.3 million in damages to Eric Coomer, a former employee of Dominion Voting Systems.`\
+https://nytimes.com/2025/06/16/business/mypillow-mike-lindell-defamation.html
+
 **Flattery or Discipline? The Difficult Task of Managing Trump.**\
 `Canada’s prime minister Mark Carney deployed both methods on the first day of the Group of 7 summit in Alberta to keep Mr. Trump focused and avoid drama.`\
 https://nytimes.com/2025/06/16/world/canada/canada-g7-trump-carney.html
