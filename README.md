@@ -1,3 +1,19 @@
+**Virginia House of Delegates Primary Election Results**\
+`TK`\
+https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-house-of-delegates-primary.html
+
+**Virginia Primary Election Results**\
+`Get live results and maps from the 2025 Virginia primary elections.`\
+https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-primary.html
+
+**Virginia Attorney General Primary Election Results**\
+`Get live results and maps from the 2025 Virginia primary election.`\
+https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-attorney-general-primary.html
+
+**Virginia Lieutenant Governor Primary Election Results**\
+`Get live results and maps from the 2025 Virginia primary election.`\
+https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-lieutenant-governor-primary.html
+
 **Where to Eat: When you’re in Philly**\
 `The first of our summertime national dining guides.`\
 https://nytimes.com/2025/06/17/dining/where-to-eat-in-philly.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6432819/2025/06/17/pacers-pelicans-trade-draft-pick
 **The internet across Iran is being disrupted, experts and Iranians say.**\
 `Many people believed the government was responsible for restricting services, and the authorities were urging Iranians to use the national internet network.`\
 https://nytimes.com/live/2025/06/17/world/israel-iran-trump/the-internet-across-iran-is-being-disrupted-experts-and-iranians-say
-
-**‘A Time of Bitter Celebrations’: Joy and Fear as L.A. Students Graduate Amid ICE Raids**\
-`Nearly three-fourths of the students in L.A. public schools are Latino. Some families, and a few graduates, stayed away from graduation ceremonies out of fear of federal raids.`\
-https://nytimes.com/2025/06/17/us/la-graduations-ice-raids.html
-
-**James 'never doubted' she would make England's Euro 2025 squad despite injury**\
-`James, 23, was included in Sarina Wiegman’s squad for Euro 2025 and the England head coach insisted her selection was “not a risk”.`\
-https://nytimes.com/athletic/6432817/2025/06/17/england-euro-2025-women-squad-james/
-
-**Dozens of Palestinians Are Killed While Trying To Get Aid**\
-`The Gaza Health Ministry said at least 50 people were killed, blaming Israeli forces. The Israeli military said it was aware of reports of people injured in I.D.F. fire near an aid truck close to where its forces were operating.`\
-https://nytimes.com/video/world/middleeast/100000010233691/dozens-of-palestinians-are-killed-while-trying-to-get-aid.html
-
-**U.S. Revokes Visa of Panama’s Former President Who Criticized Trump Deal**\
-`Two politicians who spoke out against recent accords between the United States and Panama lost their permission to travel to the United States.`\
-https://nytimes.com/2025/06/17/world/americas/martin-torrijos-panama-us-visa-trump.html
 
