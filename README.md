@@ -1,3 +1,19 @@
+**West Ham's Antonio makes first appearance in six months following car crash**\
+`Antonio's last competitive appearance was in West Ham's defeat to Leicester City on December 3.`\
+https://nytimes.com/athletic/6431489/2025/06/17/west-ham-michail-antonio-first-appearance-car-crash-jamaica/
+
+**Browns' non-QB position groups we'll watch closely when training camp arrives**\
+`The QB competition will be the headline story when training camp begins in late July, but here are three other positions to keep an eye on. `\
+https://nytimes.com/athletic/6429963/2025/06/17/browns-position-battles-wide-receiver-linebacker/
+
+**The New York Times International Edition in Print for Wednesday, June 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/17/todays-new-york-times-international-edition
+
+**How to watch Dream at Liberty: Atlanta seeks Cup final vs. reigning champs**\
+`The Atlanta Dream can advance to the Commissioner's Cup finale, but they need to beat the juggernaut New York Liberty on the road Tuesday.`\
+https://nytimes.com/athletic/6430374/2025/06/17/atlanta-dream-new-york-liberty-wnba-how-to-watch/
+
 **Here’s the latest.**\
 `By Michael D. Shear, Zolan Kanno-Youngs and Francesca Regalado`\
 https://nytimes.com/live/2025/06/17/world/israel-iran-trump/heres-the-latest
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/17/us/lawmaker-shootings-threats-political-violence.
 **How to Beat Back Trump on Trans Rights — and Much Else**\
 `Representative Sarah McBride reckons with the trans rights movement’s shortcomings, and how to win hearts and minds through a politics of grace.`\
 https://nytimes.com/2025/06/17/opinion/ezra-klein-podcast-sarah-mcbride.html
-
-**Bernie Sanders Will Endorse Zohran Mamdani for N.Y.C. Mayor**\
-`Senator Bernie Sanders of Vermont will back Mr. Mamdani, joining Representative Alexandria Ocasio-Cortez in endorsing the front-runner of progressives.`\
-https://nytimes.com/2025/06/17/nyregion/bernie-sanders-endorse-mamdani-mayor.html
-
-**Trump Is Daring Us to Impeach Him Again**\
-`There are many legitimate reasons to try Trump a third time. Don’t hold your breath.`\
-https://nytimes.com/2025/06/17/opinion/trump-third-impeachment.html
-
-**As Other Arab States Condemn Israeli Attacks on Iran, Syria Is Notably Silent**\
-`Syria was once among the closest allies of the Islamic republic, but the new government resents Tehran’s support for the Assad regime and has pledged not to allow attacks on Israel from its territory.`\
-https://nytimes.com/2025/06/17/world/middleeast/syria-israel-iran.html
-
-**Inside Mara Brock Akil’s Writing Retreat on the Lower East Side**\
-`The television writer and producer wrote her adaptation of Judy Blume’s “Forever” inside the Manhattan condo.`\
-https://nytimes.com/interactive/2025/06/17/realestate/mara-brock-akil-condo-nyc.html
 
