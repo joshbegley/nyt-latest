@@ -1,5 +1,9 @@
+**Russian Drone and Missile Strikes on Kyiv Kill at Least 14**\
+`It was one of the deadliest attacks on the Ukrainian capital in months that came as Moscow has intensified air assaults on the city.`\
+https://nytimes.com/2025/06/17/world/europe/russia-air-strikes-deaths-kyiv.html
+
 **Orion Kerkering earns first career save, and more trust, as Phillies shuffle bullpen**\
-`Kerkering has thrived in more and more high leverage situations. Could a changing of the guard be on its way in the Phillies' bullpen? `\
+`Kerkering has thrived in more and more high-leverage situations. Could a changing of the guard be on its way in the Phillies' bullpen? `\
 https://nytimes.com/athletic/6431197/2025/06/17/phillies-bullpen-orion-kerkering-jordan-romano/
 
 **The New York Times in Print for Tuesday, June 17, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6058165/2025/06/17/brighton-royal-ascot-horseracing
 **'Find me players who can dribble': Cherki, Ait-Nouri, Reijnders and Guardiola's desire for ball-carriers**\
 `Players who can dribble are of increasing importance to Guardiola - this is why and how he might use them as he reworks his team again`\
 https://nytimes.com/athletic/6429466/2025/06/17/guardiola-dribble-transfers/
-
-**How Nigeria's 2018 shirt became the holy grail of modern football kit releases**\
-`Coveted by shirt enthusiasts and proudly cherished by fans, few modern kits have been as adored as Nigeria's 2018 World Cup strip`\
-https://nytimes.com/athletic/6429034/2025/06/17/nigeria-shirt-2018-world-cup-kit/
 
