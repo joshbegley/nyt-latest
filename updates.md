@@ -1,3 +1,7 @@
+**Justin Reid picks off Kyler Murray to win NFL chess tournament**\
+`The New Orleans Saints safety is now a two-time champion of the competition.`\
+https://nytimes.com/athletic/6431560/2025/06/17/nfl-chess-tournament-blitzchamps-winner/
+
 **Which Countries Have Issued Travel Advisories for Israel and Iran?**\
 `Both countries have closed their airspaces, leaving few options for citizens of other countries seeking to leave.`\
 https://nytimes.com/2025/06/17/world/middleeast/israel-iran-travel-advisories-countries.html
