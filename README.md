@@ -1,3 +1,7 @@
+**Indonesian Volcano Erupts, Spewing Ash Miles High**\
+`There were no immediate reports of injury after Mount Lewotobi Laki-laki ejected a plume of smoke and ashes on Tuesday night. An eruption there killed 10 people last year.`\
+https://nytimes.com/2025/06/17/world/asia/indonesia-volcano-eruption-lewotobi-laki-laki.html
+
 **A Trip Through Trip-Hop’s Past and Future**\
 `Listen to songs from Portishead and Cibo Matto, plus inheritors like Fcukers and a.s.o.`\
 https://nytimes.com/2025/06/17/arts/music/amplifier-newsletter-trip-hop.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/world/middleeast/lebanon-israel-iran-war-hezbolla
 **Indonesian Volcano Spews Ash Several Thousand Feet High**\
 `Mount Lewotobi Laki-laki, a volcano in Indonesia, erupted on Tuesday night, blasting thick gray ash up to 5,000 meters above its peak. It was reported to be visible as far as 100 miles away.`\
 https://nytimes.com/video/world/asia/100000010234483/mount-lewotobi-laki-laki-erupts.html
-
-**Trump calls for Iran’s ‘unconditional surrender’ and threatens its supreme leader.**\
-`The president wrote in a social media post that the United States knew his location.`\
-https://nytimes.com/live/2025/06/17/world/israel-iran-trump/trump-iran
 

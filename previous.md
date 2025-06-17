@@ -1,3 +1,7 @@
+**A Trip Through Trip-Hop’s Past and Future**\
+`Listen to songs from Portishead and Cibo Matto, plus inheritors like Fcukers and a.s.o.`\
+https://nytimes.com/2025/06/17/arts/music/amplifier-newsletter-trip-hop.html
+
 **California Bill Would Bar Officers From Wearing Masks**\
 `The proposal comes as immigration raids by masked officers have touched off protests in California and elsewhere across the country.`\
 https://nytimes.com/2025/06/17/us/police-face-coverings-california-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010234483/mount-lewotobi-laki-laki-er
 **Trump calls for Iran’s ‘unconditional surrender’ and threatens its supreme leader.**\
 `The president wrote in a social media post that the United States knew his location.`\
 https://nytimes.com/live/2025/06/17/world/israel-iran-trump/trump-iran
-
-**Six trades I’d like to see before MLB trade deadline, starting with a Sandy Alcantara swap**\
-`Here are six intriguing trade ideas to ponder, starting with a blockbuster trade of the 2022 NL Cy Young winner. Would you do these deals?`\
-https://nytimes.com/athletic/6432172/2025/06/17/mlb-trade-scenarios-sandy-alcantara/
 

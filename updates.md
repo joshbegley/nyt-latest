@@ -1,3 +1,7 @@
+**A Trip Through Trip-Hop’s Past and Future**\
+`Listen to songs from Portishead and Cibo Matto, plus inheritors like Fcukers and a.s.o.`\
+https://nytimes.com/2025/06/17/arts/music/amplifier-newsletter-trip-hop.html
+
 **California Bill Would Bar Officers From Wearing Masks**\
 `The proposal comes as immigration raids by masked officers have touched off protests in California and elsewhere across the country.`\
 https://nytimes.com/2025/06/17/us/police-face-coverings-california-law.html
