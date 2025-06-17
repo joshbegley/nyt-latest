@@ -1,3 +1,11 @@
+**Angel Reese's latest response to critics: Applying to trademark 'mebounds'**\
+`Filing a trademark for a term used by trolls is not a bad way to flip the narratives.`\
+https://nytimes.com/athletic/6430776/2025/06/16/angel-reese-trademark-mebounds-online-criticism/
+
+**Senate Bill Would Make Deep Cuts to Medicaid, Setting Up Fight With House**\
+`The proposal would salvage some clean-energy tax credits and phase out others more slowly, making up some of the cost by imposing deeper cuts to Medicaid than the House-passed bill would.`\
+https://nytimes.com/2025/06/16/us/politics/senate-bill-medicaid-cuts.html
+
 **Doctor Who Gave Matthew Perry Ketamine Will Plead Guilty, U.S. Says**\
 `Dr. Salvador Plasencia, an urgent care clinic operator in the Los Angeles area, could face up to 40 years in prison in connection with the actor’s 2023 death.`\
 https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
