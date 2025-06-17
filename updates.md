@@ -1,3 +1,7 @@
+**Flamengo 2 Esperance de Tunis 0 - Jorginho helps new side to victory in Club World Cup**\
+`Analysis of Flamengo's Club World Cup win over Esperance de Tunis`\
+https://nytimes.com/athletic/6431131/2025/06/16/flamengo-2-esperance-de-tunis-0-jorginho-helps-new-side-to-victory-in-club-world-cup/
+
 **Here Are the 2025 James Beard Restaurant Award Winners**\
 `Toni Tipton-Martin, Jungsik Yim and the restaurateurs behind Le Veau d’Or were among the top honorees.`\
 https://nytimes.com/2025/06/16/dining/here-are-the-2025-james-beard-restaurant-award-winners.html
