@@ -1,3 +1,16 @@
+**Submit your questions for Mike DeFabo's Steelers mailbag**\
+`Aaron Rodgers is officially on board, and the Steelers' offseason program is complete. What's on your mind?`\
+https://nytimes.com/athletic/6432757/2025/06/17/steelers-mailbag-otas-minicamp-2025/
+
+**Senate Democrats Want Noem to Testify After Senator Is Pushed and Handcuffed**\
+`Democrats asked the homeland security secretary to testify about Senator Alex Padilla’s removal from a news conference and Trump’s immigration enforcement.`\
+https://nytimes.com/2025/06/17/us/padilla-arrest-noem.html
+
+**The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
+`Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
+`\
+https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
+
 **The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
 `Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
 `\

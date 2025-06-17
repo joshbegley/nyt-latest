@@ -1,3 +1,11 @@
+**Where to Eat: When you’re in Philly**\
+`The first of our summertime national dining guides.`\
+https://nytimes.com/2025/06/17/dining/where-to-eat-in-philly.html
+
+**Companies Ask Supreme Court to Fast-Track Challenge to Tariffs**\
+`Two toy manufacturers asked the court to greatly expedite their case, in an unusual request.`\
+https://nytimes.com/2025/06/17/us/politics/supreme-court-tariffs-toys.html
+
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `Aaron Rodgers is officially on board, and the Steelers' offseason program is complete. What's on your mind?`\
 https://nytimes.com/athletic/6432757/2025/06/17/steelers-mailbag-otas-minicamp-2025/
@@ -29,13 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010233691/dozens-of-palestinian
 **U.S. Revokes Visa of Panama’s Former President Who Criticized Trump Deal**\
 `Two politicians who spoke out against recent accords between the United States and Panama lost their permission to travel to the United States.`\
 https://nytimes.com/2025/06/17/world/americas/martin-torrijos-panama-us-visa-trump.html
-
-**As Israel attacks, Iranians flee capital in search of safety.**\
-`By Leily Nikounazar and Talya Minsberg`\
-https://nytimes.com/live/2025/06/17/world/israel-iran-trump/as-israel-attacks-iranians-flee-capital-in-search-of-safety
-
-**The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
-`Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
-`\
-https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
 

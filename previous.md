@@ -1,3 +1,11 @@
+**Submit your questions for Mike DeFabo's Steelers mailbag**\
+`Aaron Rodgers is officially on board, and the Steelers' offseason program is complete. What's on your mind?`\
+https://nytimes.com/athletic/6432757/2025/06/17/steelers-mailbag-otas-minicamp-2025/
+
+**Senate Democrats Want Noem to Testify After Senator Is Pushed and Handcuffed**\
+`Democrats asked the homeland security secretary to testify about Senator Alex Padilla’s removal from a news conference and Trump’s immigration enforcement.`\
+https://nytimes.com/2025/06/17/us/padilla-arrest-noem.html
+
 **Pacers swing mid-Finals trade, swap picks with Pelicans: Source**\
 `The Pelicans will now own the No. 7 and No. 23 picks in this year’s draft as they look to reshape their roster.`\
 https://nytimes.com/athletic/6432819/2025/06/17/pacers-pelicans-trade-draft-picks/
@@ -30,12 +38,4 @@ https://nytimes.com/live/2025/06/17/world/israel-iran-trump/as-israel-attacks-ir
 `Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
 `\
 https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
-
-**Indonesian Volcano Erupts, Spewing Ash Miles High**\
-`There were no immediate reports of injury after Mount Lewotobi Laki-laki ejected a plume of smoke and ashes on Tuesday night. An eruption there killed 10 people last year.`\
-https://nytimes.com/2025/06/17/world/asia/indonesia-volcano-eruption-lewotobi-laki-laki.html
-
-**A Trip Through Trip-Hop’s Past and Future**\
-`Listen to songs from Portishead and Cibo Matto, plus inheritors like Fcukers and a.s.o.`\
-https://nytimes.com/2025/06/17/arts/music/amplifier-newsletter-trip-hop.html
 
