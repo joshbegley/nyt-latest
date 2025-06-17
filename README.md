@@ -22,6 +22,10 @@ https://nytimes.com/2025/06/17/briefing/iran-israel-g7.html
 `Chelsea could establish themselves as credible contenders just as the Club World Cup coalesces into a credible competition`\
 https://nytimes.com/athletic/6431075/2025/06/17/chelsea-club-world-conference-league/
 
+**The irresistible madness of Boca Juniors**\
+`Boca fever has taken over Miami and on Monday night the best supported team at the Club World Cup gave the competition exactly what it needs`\
+https://nytimes.com/athletic/6430896/2025/06/17/irresistible-madness-boca-juniors/
+
 **Omar Berrada: Manchester United's CEO on Amorim, transfers, apologies and more**\
 `Manchester United's CEO opens up on his turbulent first year in the job and why things will get better next term`\
 https://nytimes.com/athletic/6429022/2025/06/17/omar-berrada-manchester-united-amorim-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429064/2025/06/17/real-madrid-louis-vuitton-fashio
 **Florian Wirtz will be Liverpool's record signing - but who is it at your Premier League club? And did it work out?**\
 `Were they a hit or a miss? Or is it too early to say? Our reporters run through each team's most expensive buy - and how they performed...`\
 https://nytimes.com/athletic/6428901/2025/06/17/premier-league-club-record-signings-liverpool-wirtz/
-
-**Stable club: Brighton, Royal Ascot and a Premier League passion for horse racing**\
-`The Royal Ascot meeting this week will see races featuring horses owned by Brighton chairman Tony Bloom - and several of his players`\
-https://nytimes.com/athletic/6058165/2025/06/17/brighton-royal-ascot-horseracing-bloom-premier-league/
 
