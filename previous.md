@@ -1,9 +1,17 @@
+**This Pop Hit Has Plenty of Dolly Parton**\
+`Sabrina Carpenter’s latest single, “Manchild,” just debuted at No. 1 on Billboard. Our critic explains why the singer is both a throwback and a signature star of right now.`\
+https://nytimes.com/video/podcasts/100000010233883/this-pop-hit-has-plenty-of-dolly-parton.html
+
+**Submit your Cardinals questions for Katie Woo's mailbag**\
+`<p>After a surprising May, the Cardinals are scuffling through their worst stretch of the year.`\
+https://nytimes.com/athletic/6433448/2025/06/17/cardinals-mailbag-mlb-katie-woo/
+
 **What We Know About How the Minnesota Assassination Case May Unfold**\
 `Both state and federal officials are pursuing murder charges against a man they say killed a state lawmaker and her husband. A federal case could lead to the death penalty.`\
 https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
 
 **Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
-`Boone said Torre has given him lots of advice over the past eight years, and pops into his office at Yankee Stadium occasionally.`\
+`After getting MLB's approval, Boone was thrilled when the legendary manager agreed to join him on the AL All-Star coaching staff this year.`\
 https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
 
 **Inside Trump’s Shifting Stance on Iran**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6433212/2025/06/17/england-germany-under-19-euros/
 **Arsenal coach Cuesta set to leave club to become Parma head coach**\
 `Cuesta had been in talks with the Italian side for several weeks and is now set to travel to Italy on Wednesday to finalise the move. `\
 https://nytimes.com/athletic/6433336/2025/06/17/arsenal-carlos-cuesta-parma-move-news-update/
-
-**Nick Castellanos held from Phillies lineup for 'inappropriate' remark, ending streak**\
-`Castellanos was held from the Phillies' lineup after what Rob Thomson called an "inappropriate" remark upon his removal from Monday's game.`\
-https://nytimes.com/athletic/6433140/2025/06/17/nick-castellanos-out-phillies-lineup-ending-streak/
-
-**Thunder at Pacers Game 6 picks, odds, how to watch: Haliburton injury news shifts spread**\
-`The Oklahoma City Thunder are one win away from the title. Tyrese Haliburton tries to fight through injury and rally his Indiana Pacers.`\
-https://nytimes.com/athletic/6433110/2025/06/17/thunder-pacers-haliburton-injury-game-6-how-to-watch/
 

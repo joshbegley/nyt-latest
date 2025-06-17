@@ -1,3 +1,15 @@
+**This Pop Hit Has Plenty of Dolly Parton**\
+`Sabrina Carpenter’s latest single, “Manchild,” just debuted at No. 1 on Billboard. Our critic explains why the singer is both a throwback and a signature star of right now.`\
+https://nytimes.com/video/podcasts/100000010233883/this-pop-hit-has-plenty-of-dolly-parton.html
+
+**Submit your Cardinals questions for Katie Woo's mailbag**\
+`<p>After a surprising May, the Cardinals are scuffling through their worst stretch of the year.`\
+https://nytimes.com/athletic/6433448/2025/06/17/cardinals-mailbag-mlb-katie-woo/
+
+**Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
+`After getting MLB's approval, Boone was thrilled when the legendary manager agreed to join him on the AL All-Star coaching staff this year.`\
+https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
+
 **What We Know About How the Minnesota Assassination Case May Unfold**\
 `Both state and federal officials are pursuing murder charges against a man they say killed a state lawmaker and her husband. A federal case could lead to the death penalty.`\
 https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
