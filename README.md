@@ -1,3 +1,11 @@
+**Senators Assail Antidoping Regulator for ‘Stonewalling and Intimidation’**\
+`Members of both parties criticized the World Anti-Doping Agency for its decision not to sanction Chinese swimmers who tested positive for a banned substance, including some who went on to win Olympic medals.`\
+https://nytimes.com/2025/06/17/us/politics/senate-swimmers-antidoping-regulator.html
+
+**Lamar Jackson says Ravens will enter this season with 'vengeance on our mind'**\
+`The two-time MVP spent time this offseason reviewing all of Baltimore’s losses from last year while trying to "make the game a lot easier."`\
+https://nytimes.com/athletic/6433455/2025/06/17/lamar-jackson-ravens-minicamp/
+
 **Patrick Mahomes' future blindside protector? Chiefs high on Josh Simmons**\
 `Kansas City believes it drafted a top-10 talent at the back of the first round in Simmons. Will he help the Chiefs solve their O-line woes?`\
 https://nytimes.com/athletic/6433160/2025/06/17/chiefs-patrick-mahomes-josh-simmons/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
 **Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
 `After getting MLB's approval, Boone was thrilled when the legendary manager agreed to join him on the AL All-Star coaching staff this year.`\
 https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
-
-**Inside Trump’s Shifting Stance on Iran**\
-`President Trump spent the first months of his term holding back Israel’s push for an assault on Iran’s nuclear program. With the war underway, he has now expressed support for Israel. Jonathan Swan, a White House reporter for The New York Times, breaks down how the president got to this point.`\
-https://nytimes.com/video/us/politics/100000010231766/inside-trumps-shifting-stance-on-iran.html
-
-**Mets place starter Tylor Megill on 15-day IL with right elbow sprain**\
-`Megill joins Kodai Senga as the second member of the Mets rotation to hit the injured list in the last week. `\
-https://nytimes.com/athletic/6433409/2025/06/17/tylor-megill-mets-injured-list-elbow/
 
