@@ -1,3 +1,7 @@
+**Which Countries Have Issued Travel Advisories for Israel and Iran?**\
+`Both countries have closed their airspaces, leaving few options for citizens of other countries seeking to leave.`\
+https://nytimes.com/2025/06/17/world/middleeast/israel-iran-travel-advisories-countries.html
+
 **The Israel-Iran Conflict**\
 `Israel doesn’t believe in diplomacy when it comes to Iran. But military intervention has its problems, too.`\
 https://nytimes.com/2025/06/17/briefing/israel-iran-conflict.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6430310/2025/06/17/kandre-miller-rangers-analysis/
 **Florida, UCLA and Pitt among schools off to a surprisingly nice start to recruiting cycle**\
 `The Gators picked up 10 commitments in the past month and jumped more than 50 spots in the national rankings. `\
 https://nytimes.com/athletic/6430699/2025/06/17/college-football-recruiting-surprises-florida-ucla-pitt/
-
-**CFP leaders have a new (old) debate: Should humans or numbers run the selection process?**\
-`Everything about the CFP debate is subject to change right now, but how to select the teams is the sticking point du jour.`\
-https://nytimes.com/athletic/6430519/2025/06/17/cfp-selection-committee-bcs-playoff-format/
 

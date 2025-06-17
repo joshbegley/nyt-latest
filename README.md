@@ -1,3 +1,7 @@
+**Justin Reid picks off Kyler Murray to win NFL chess tournament**\
+`The New Orleans Saints safety is now a two-time champion of the competition.`\
+https://nytimes.com/athletic/6431560/2025/06/17/nfl-chess-tournament-blitzchamps-winner/
+
 **Which Countries Have Issued Travel Advisories for Israel and Iran?**\
 `Both countries have closed their airspaces, leaving few options for citizens of other countries seeking to leave.`\
 https://nytimes.com/2025/06/17/world/middleeast/israel-iran-travel-advisories-countries.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6430926/2025/06/17/blue-jays-trey-yesavage-pitcher-
 **Breaking down K'Andre Miller: What he does, what he's worth and what the Rangers should do**\
 `Miller's contract situation might be among the most complicated in the NHL this offseason, but why? Here's all the angles.`\
 https://nytimes.com/athletic/6430310/2025/06/17/kandre-miller-rangers-analysis/
-
-**Florida, UCLA and Pitt among schools off to a surprisingly nice start to recruiting cycle**\
-`The Gators picked up 10 commitments in the past month and jumped more than 50 spots in the national rankings. `\
-https://nytimes.com/athletic/6430699/2025/06/17/college-football-recruiting-surprises-florida-ucla-pitt/
 

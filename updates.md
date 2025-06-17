@@ -1,3 +1,7 @@
+**Which Countries Have Issued Travel Advisories for Israel and Iran?**\
+`Both countries have closed their airspaces, leaving few options for citizens of other countries seeking to leave.`\
+https://nytimes.com/2025/06/17/world/middleeast/israel-iran-travel-advisories-countries.html
+
 **The Israel-Iran Conflict**\
 `Israel doesn’t believe in diplomacy when it comes to Iran. But military intervention has its problems, too.`\
 https://nytimes.com/2025/06/17/briefing/israel-iran-conflict.html
