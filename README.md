@@ -1,3 +1,23 @@
+**South Africa Built a Medical Research Powerhouse. Trump Cuts Have Demolished It.**\
+`The budget cuts threaten global progress on everything from heart disease to H.I.V. — and could affect American drug companies, too.`\
+https://nytimes.com/2025/06/17/health/south-africa-medical-research-trump.html
+
+**U.K. to Collect Ethnicity Data on All Suspects in Child Sexual Abuse Cases**\
+`A review of Britain’s so-called grooming gangs scandal had recommended the move, saying that an information “vacuum” had allowed people to “sow and spread hatred.”`\
+https://nytimes.com/2025/06/17/world/europe/uk-grooming-gangs-casey-review.html
+
+**Connections: Sports Edition Coach: Hints for June 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6431003/2025/06/17/connections-sports-edition-hints-for-june-17-2025/
+
+**China Is Unleashing a New Export Shock on the World**\
+`As President Trump’s tariffs close off the U.S. market, Chinese goods are flooding countries from Southeast Asia to Europe to Latin America.`\
+https://nytimes.com/2025/06/17/business/tariffs-china-exports.html
+
+**Corrections: June 17, 2025**\
+`Corrections that appeared in print on Tuesday, June 17, 2025.`\
+https://nytimes.com/2025/06/17/pageoneplus/corrections-june-17-2025.html
+
 **Quote of the Day: Gas, Barbecue and Cowhide Rugs: A Texas-Size Pit Stop Spreads**\
 `Quotation of the Day for Tuesday, June 17, 2025.`\
 https://nytimes.com/2025/06/16/pageoneplus/quote-of-the-day-gas-barbecue-and-cowhide-rugs-a-texas-size-pit-stop-spreads.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6431131/2025/06/16/flamengo-2-esperance-de-tunis-0-
 **Here Are the 2025 James Beard Restaurant Award Winners**\
 `Toni Tipton-Martin, Jungsik Yim and the restaurateurs behind Le Veau d’Or were among the top honorees.`\
 https://nytimes.com/2025/06/16/dining/here-are-the-2025-james-beard-restaurant-award-winners.html
-
-**Shohei Ohtani tops 100 mph in one-inning return to mound for Dodgers**\
-`The three-time MVP last pitched in August 2023 before a second major elbow surgery sidelined his two-way capabilities. `\
-https://nytimes.com/athletic/6430966/2025/06/16/los-angeles-dodgers-shohei-ohtani-pitching-debut/
-
-**Red Sox exec Craig Breslow: Devers trade isn't a 'waving of the white flag'**\
-`The Red Sox sent Rafael Devers to San Francisco in exchange for Jordan Hicks, Kyle Harrison and two minor leaguers.`\
-https://nytimes.com/athletic/6431060/2025/06/16/boston-red-sox-craig-breslow-comments/
-
-**Timberwolves should be considered the dark horse in a Kevin Durant trade**\
-`Minnesota does not want to make a seismic change if Durant isn't on board. The question is whether there’s any chance he comes around to it.`\
-https://nytimes.com/athletic/6431028/2025/06/16/kevin-durant-trade-timberwolves-possibility-nba-rumors/
-
-**Reason for Overtime**\
-`Tarun Krishnamurthy finds a few sweet spots.`\
-https://nytimes.com/2025/06/16/crosswords/daily-puzzle-2025-06-17.html
-
-**Ron Taylor, pitcher who won World Series with Mets and Cardinals, dies at 87**\
-`Taylor became a doctor following his 11-year baseball career and was the Blue Jays' team physician for more than 30 years.`\
-https://nytimes.com/athletic/6431045/2025/06/16/ron-taylor-mets-cardinals-world-series-dead-at-87/
 

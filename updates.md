@@ -1,3 +1,11 @@
+**Quote of the Day: Gas, Barbecue and Cowhide Rugs: A Texas-Size Pit Stop Spreads**\
+`Quotation of the Day for Tuesday, June 17, 2025.`\
+https://nytimes.com/2025/06/16/pageoneplus/quote-of-the-day-gas-barbecue-and-cowhide-rugs-a-texas-size-pit-stop-spreads.html
+
+**León was booted from the Club World Cup, but its fans still showed up**\
+`On a day when their team, and not LAFC, was supposed to be facing Chelsea, supporters of Club León still turned out at the Club World Cup.`\
+https://nytimes.com/athletic/6431132/2025/06/16/leon-fans-club-world-cup-atlanta-chelsea-lafc/
+
 **León was booted from the Club World Cup, but its fans still showed up**\
 `On a day when their team was supposed to be facing Chelsea, and not LAFC, supporters of Club León still turned out at the Club World Cup.`\
 https://nytimes.com/athletic/6431132/2025/06/16/leon-fans-club-world-cup-atlanta-chelsea-lafc/

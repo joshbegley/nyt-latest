@@ -1,5 +1,9 @@
+**Quote of the Day: Gas, Barbecue and Cowhide Rugs: A Texas-Size Pit Stop Spreads**\
+`Quotation of the Day for Tuesday, June 17, 2025.`\
+https://nytimes.com/2025/06/16/pageoneplus/quote-of-the-day-gas-barbecue-and-cowhide-rugs-a-texas-size-pit-stop-spreads.html
+
 **León was booted from the Club World Cup, but its fans still showed up**\
-`On a day when their team was supposed to be facing Chelsea, and not LAFC, supporters of Club León still turned out at the Club World Cup.`\
+`On a day when their team, and not LAFC, was supposed to be facing Chelsea, supporters of Club León still turned out at the Club World Cup.`\
 https://nytimes.com/athletic/6431132/2025/06/16/leon-fans-club-world-cup-atlanta-chelsea-lafc/
 
 **Jalen Williams' 40-point Game 5 has Thunder one win from NBA title**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/16/crosswords/daily-puzzle-2025-06-17.html
 **Ron Taylor, pitcher who won World Series with Mets and Cardinals, dies at 87**\
 `Taylor became a doctor following his 11-year baseball career and was the Blue Jays' team physician for more than 30 years.`\
 https://nytimes.com/athletic/6431045/2025/06/16/ron-taylor-mets-cardinals-world-series-dead-at-87/
-
-**Full Time: USWNT gets a break**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6431038/2025/06/16/uswnt-emma-hayes-break-full-time/
 
