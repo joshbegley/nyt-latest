@@ -1,3 +1,15 @@
+**Senate Passes Cryptocurrency Bill, Handing Industry a Victory**\
+`The bill was a significant step toward giving the cryptocurrency industry the credibility and legitimacy it has sought, without limitations it has worked to head off.`\
+https://nytimes.com/2025/06/17/us/politics/senate-cryptocurrency-bill.html
+
+**Elon Musk’s AI Company Faces Lawsuit Over Gas-Burning Turbines**\
+`The company, xAI, has installed several dozen turbines in Memphis without proper permits, the group said, polluting a nearby community.`\
+https://nytimes.com/2025/06/17/climate/naacp-musk-xai-supercomputer-lawsuit.html
+
+**England recover from 5-1 down in record draw with Germany at under-19 Euros**\
+`England found themselves 5-1 down in the 48th minute, but four goals in 11 second-half minutes helped the young side earn an unlikely draw.`\
+https://nytimes.com/athletic/6433212/2025/06/17/england-germany-under-19-euros/
+
 **Arsenal coach Cuesta set to leave club to become Parma head coach**\
 `Cuesta had been in talks with the Italian side for several weeks and is now set to travel to Italy on Wednesday to finalise the move. `\
 https://nytimes.com/athletic/6433336/2025/06/17/arsenal-carlos-cuesta-parma-move-news-update/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/17/world/middleeast/israel-iran-assassination-genera
 **The Briefing - River Plate 3 Urawa Red Diamonds 1: Mastantuono, mind games and one really massive tactics board**\
 `River Plate eased to victory in their first game in Group E, thanks to three headed goals against Urawa Red Diamonds`\
 https://nytimes.com/athletic/6424371/2025/06/17/river-plate-urawa-mastantuono-captain-handshake-tactics-board/
-
-**Giants OTA takeaways: No battle between Russell Wilson, Jaxson Dart; Abdul Carter a 'beast'**\
-`Any thought of a QB competition entering the spring has been put to rest. Wilson is taking all of the first-team snaps.`\
-https://nytimes.com/athletic/6433106/2025/06/17/ny-giants-russell-wilson-jaxson-dart-qb-competition/
-
-**Wednesday Briefing: Trump Calls for Iran’s ‘Unconditional Surrender’**\
-`Plus, Octopuses’ marvelous arms.`\
-https://nytimes.com/2025/06/17/briefing/trump-iran-israel-surrender-gaza-aid.html
-
-**Could this season be make-or-break for Packers' Matt LaFleur and Brian Gutekunst?**\
-`Both the head coach and general manager have two years remaining on their contracts with the Packers.`\
-https://nytimes.com/athletic/6428439/2025/06/17/packers-ed-policy-matt-lafleur-brian-gutekunst-contracts/
 
