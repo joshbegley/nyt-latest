@@ -1,3 +1,7 @@
+**Rafael Devers says he is open to anything with Giants, including first base**\
+`"They are the men in charge," Devers said at his introductory conference. "I am here to play wherever they want me to play."`\
+https://nytimes.com/athletic/6433008/2025/06/17/san-francisco-giants-rafael-devers-first-base/
+
 **Senators Assail Antidoping Regulator for ‘Stonewalling and Intimidation’**\
 `Members of both parties criticized the World Anti-Doping Agency for its decision not to sanction Chinese swimmers who tested positive for a banned substance, including some who went on to win Olympic medals.`\
 https://nytimes.com/2025/06/17/us/politics/senate-swimmers-antidoping-regulator.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433448/2025/06/17/cardinals-mailbag-mlb-katie-woo/
 **What We Know About How the Minnesota Assassination Case May Unfold**\
 `Both state and federal officials are pursuing murder charges against a man they say killed a state lawmaker and her husband. A federal case could lead to the death penalty.`\
 https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
-
-**Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
-`After getting MLB's approval, Boone was thrilled when the legendary manager agreed to join him on the AL All-Star coaching staff this year.`\
-https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
 
