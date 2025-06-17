@@ -1,3 +1,7 @@
+**Indonesian Volcano Erupts, Spewing Ash Miles High**\
+`There were no immediate reports of injury after Mount Lewotobi Laki-laki ejected a plume of smoke and ashes on Tuesday night. An eruption there killed 10 people last year.`\
+https://nytimes.com/2025/06/17/world/asia/indonesia-volcano-eruption-lewotobi-laki-laki.html
+
 **A Trip Through Trip-Hop’s Past and Future**\
 `Listen to songs from Portishead and Cibo Matto, plus inheritors like Fcukers and a.s.o.`\
 https://nytimes.com/2025/06/17/arts/music/amplifier-newsletter-trip-hop.html
