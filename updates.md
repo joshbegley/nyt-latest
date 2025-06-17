@@ -1,3 +1,15 @@
+**Ronaldo transfer for CWC 'counter intuitive' - Al Hilal**\
+`In May, FIFA president Gianni Infantino said there were “discussions” that Ronaldo “might play” in the tournament.`\
+https://nytimes.com/athletic/6431521/2025/06/17/cristiano-ronaldo-transfer-club-world-cup/
+
+**TAFC: Bayern, Barca eye Williams; FIFA drops anti-racism messaging for Club World Cup**\
+`Today in TAFC: Why Barca and Bayern want Nico Williams, and all the transfer latest. Plus: FIFA drop inclusivity drive at Club World Cup`\
+https://nytimes.com/athletic/6431530/2025/06/17/bayern-barca-eye-williams-fifa-drops-anti-racism-messaging-for-club-world-cup/
+
+**Isaiah Hartenstein provides the key to unlock the Thunder offense in Game 5 win**\
+`Hartenstein's impact went beyond the box score, as his screening and decision-making played a huge role in giving OKC a 3-2 series lead.`\
+https://nytimes.com/athletic/6431313/2025/06/17/isaiah-hartenstein-thunder-nba-finals-game-5/
+
 **The Pulse: Was the NBA title decided last night?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6429664/2025/06/17/pacers-thunder-game-5-jalen-williams-the-pulse/
