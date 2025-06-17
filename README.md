@@ -2,7 +2,7 @@
 `Kevin Krebs, 31, of Malvern, Pa., is facing more than two dozen additional charges after investigators searched his house on Monday.`\
 https://nytimes.com/2025/06/17/us/no-kings-arrest-bombs.html
 
-**Rafael Devers says he is open to anything with Giants, including first base**\
+**Rafael Devers says he is open to anything with Giants— yes, including first base**\
 `"They are the men in charge," Devers said at his introductory conference. "I am here to play wherever they want me to play."`\
 https://nytimes.com/athletic/6433008/2025/06/17/san-francisco-giants-rafael-devers-first-base/
 

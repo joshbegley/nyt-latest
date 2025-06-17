@@ -1,3 +1,7 @@
+**Heavily Armed Man at ‘No Kings’ Protest Had 13 Bombs at Home, Police Say**\
+`Kevin Krebs, 31, of Malvern, Pa., is facing more than two dozen additional charges after investigators searched his house on Monday.`\
+https://nytimes.com/2025/06/17/us/no-kings-arrest-bombs.html
+
 **Rafael Devers says he is open to anything with Giants, including first base**\
 `"They are the men in charge," Devers said at his introductory conference. "I am here to play wherever they want me to play."`\
 https://nytimes.com/athletic/6433008/2025/06/17/san-francisco-giants-rafael-devers-first-base/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010233883/this-pop-hit-has-plenty-of-do
 **Submit your Cardinals questions for Katie Woo's mailbag**\
 `<p>After a surprising May, the Cardinals are scuffling through their worst stretch of the year.`\
 https://nytimes.com/athletic/6433448/2025/06/17/cardinals-mailbag-mlb-katie-woo/
-
-**What We Know About How the Minnesota Assassination Case May Unfold**\
-`Both state and federal officials are pursuing murder charges against a man they say killed a state lawmaker and her husband. A federal case could lead to the death penalty.`\
-https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
 
