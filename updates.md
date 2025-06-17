@@ -1,3 +1,20 @@
+**Pacers swing mid-Finals trade, swap picks with Pelicans: Source**\
+`The Pelicans will now own the No. 7 and No. 23 picks in this year’s draft as they look to reshape their roster.`\
+https://nytimes.com/athletic/6432819/2025/06/17/pacers-pelicans-trade-draft-picks/
+
+**The internet across Iran is being disrupted, experts and Iranians say.**\
+`Many people believed the government was responsible for restricting services, and the authorities were urging Iranians to use the national internet network.`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/the-internet-across-iran-is-being-disrupted-experts-and-iranians-say
+
+**‘A Time of Bitter Celebrations’: Joy and Fear as L.A. Students Graduate Amid ICE Raids**\
+`Nearly three-fourths of the students in L.A. public schools are Latino. Some families, and a few graduates, stayed away from graduation ceremonies out of fear of federal raids.`\
+https://nytimes.com/2025/06/17/us/la-graduations-ice-raids.html
+
+**The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
+`Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
+`\
+https://nytimes.com/athletic/6424370/2025/06/17/fluminense-borussia-dortmund-club-world-cup-bellingham/
+
 **The Briefing - Fluminense 0 Dortmund 0: Germans underwhelm but Jobe moves like Jude**\
 `Our writers analyse and evaluate the key talking points from the draw between Fluminense and Borussia Dortmund at the Club World Cup
 `\
