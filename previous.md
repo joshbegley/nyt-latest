@@ -1,3 +1,7 @@
+**Jalen Williams' 40-point Game 5 has Thunder one win from NBA title**\
+`After Jalen Williams' huge Game 5, the potential clincher for the Thunder is Thursday in Indianapolis with a Pacers star looking hindered.`\
+https://nytimes.com/athletic/6431184/2025/06/16/thunder-pacers-game-5-jalen-williams-2025-nba-finals/
+
 **Flamengo 2 Esperance de Tunis 0 - Jorginho helps new side to victory in Club World Cup**\
 `Analysis of Flamengo's Club World Cup win over Esperance de Tunis`\
 https://nytimes.com/athletic/6431131/2025/06/16/flamengo-2-esperance-de-tunis-0-jorginho-helps-new-side-to-victory-in-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431038/2025/06/16/uswnt-emma-hayes-break-full-time
 **Trump Renews Embrace of Putin Amid Ongoing Rift With Allies**\
 `President Trump opened his remarks at the Group of 7 gathering of industrialized nations by criticizing the decision to expel Russia from the bloc after Moscow’s 2014 “annexation” of Crimea.`\
 https://nytimes.com/2025/06/16/world/canada/trump-g7-russia-ukraine.html
-
-**MyPillow Founder Mike Lindell Defamed Election Security Expert, Jury Finds**\
-`He was ordered to pay $2.3 million in damages to Eric Coomer, a former employee of Dominion Voting Systems.`\
-https://nytimes.com/2025/06/16/business/mypillow-mike-lindell-defamation.html
 
