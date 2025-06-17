@@ -1,3 +1,11 @@
+**FIFA criticized after dropping anti-racism messages at Club World Cup**\
+`FIFA's “no racism” and “no discrimination” campaign will not be promoted in stadiums at the tournament in the United States.`\
+https://nytimes.com/athletic/6432066/2025/06/17/club-world-cup-fifa-racism-discrimination-message/
+
+**Paul Simon at the Beacon Theater: Quiet, Intricate, Masterly**\
+`Subtlety reigned as the musician played his post-farewell tour in New York, which included a full performance of his 33-minute LP, “Seven Psalms.”`\
+https://nytimes.com/2025/06/17/arts/music/paul-simon-a-quiet-celebration-tour-review.html
+
 **Canada international Jade Rose joins Manchester City**\
 `The Canada international graduated from Havard this summer.`\
 https://nytimes.com/athletic/6431982/2025/06/17/canada-international-manchester-city-jade-rose/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6431572/2025/06/17/sofia-cantore-becomes-first-ital
 **The Windup: Shohei Ohtani brings the heat in return**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6431360/2025/06/17/ohtani-pitching-return-devers-the-windup/
-
-**Is Fake Grass Safe? A Manufacturer Sues to Stop a Discussion.**\
-`Four experts were sued for defamation ahead of a seminar where they planned to talk about research into the potential health risks on playgrounds and sports fields nationwide.`\
-https://nytimes.com/2025/06/17/climate/artificial-turf-grass-lawsuit-defamation-health-risk.html
-
-**Edwards in advanced talks over Middlesbrough manager's job**\
-`Edwards, 42, is poised to succeed Michael Carrick, who was dismissed at the end of his second full season at the Riverside Stadium.`\
-https://nytimes.com/athletic/6428982/2025/06/17/middlesbrough-manager-next-rob-edwards/
 

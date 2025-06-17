@@ -1,3 +1,7 @@
+**Canada international Jade Rose joins Manchester City**\
+`The Canada international graduated from Havard this summer.`\
+https://nytimes.com/athletic/6431982/2025/06/17/canada-international-manchester-city-jade-rose/
+
 **American Mythmakers, Revisited: Hunter S. Thompson and John Wilkes Booth**\
 `Two shows attempt to make sense of the gonzo journalist and Lincoln’s assassin, cultural figures forever intertwined with American history.`\
 https://nytimes.com/2025/06/17/theater/hunter-s-thompson-booth-theater-baltimore.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/climate/artificial-turf-grass-lawsuit-defamation-
 **Edwards in advanced talks over Middlesbrough manager's job**\
 `Edwards, 42, is poised to succeed Michael Carrick, who was dismissed at the end of his second full season at the Riverside Stadium.`\
 https://nytimes.com/athletic/6428982/2025/06/17/middlesbrough-manager-next-rob-edwards/
-
-**In an Era of Upheavals, Los Angeles Restaurants Are Banding Together**\
-`Through Covid, protests, strikes and fires, the Independent Hospitality Coalition is helping local business navigate a volatile civic landscape.`\
-https://nytimes.com/2025/06/17/dining/los-angeles-restaurants-independent-hospitality-coalition.html
 

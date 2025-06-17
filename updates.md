@@ -1,3 +1,7 @@
+**Canada international Jade Rose joins Manchester City**\
+`The Canada international graduated from Havard this summer.`\
+https://nytimes.com/athletic/6431982/2025/06/17/canada-international-manchester-city-jade-rose/
+
 **American Mythmakers, Revisited: Hunter S. Thompson and John Wilkes Booth**\
 `Two shows attempt to make sense of the gonzo journalist and Lincoln’s assassin, cultural figures forever intertwined with American history.`\
 https://nytimes.com/2025/06/17/theater/hunter-s-thompson-booth-theater-baltimore.html
