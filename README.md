@@ -1,3 +1,15 @@
+**Man who displayed 'fixated behavior' toward Emma Raducanu applied for Wimbledon tickets**\
+`Raducanu was reduced to tears mid-match in Dubai in February, having been stopped by the man at a coffee shop the previous day.`\
+https://nytimes.com/athletic/6432967/2025/06/17/emma-raducanu-stalker-wimbledon/
+
+**A Tucker-Trump Tiff, With Fox News Caught in the Crossfire**\
+`As President Trump edges toward involvement in the Israel-Iran war, some of his longtime supporters in right-wing media are questioning his judgment.`\
+https://nytimes.com/2025/06/17/business/media/trump-tucker-carlson-fox-news.html
+
+**The Senate Wants Billions More in Medicaid Cuts, Pinching States and Infuriating Hospitals**\
+`Republicans are seeking to limit a tax loophole that gives states more federal matching funds. Many state budgets could be hurt.`\
+https://nytimes.com/2025/06/17/upshot/medicaid-cuts-republicans-senate.html
+
 **Noah Lyles says his race against Dolphins' Tyreek Hill is off**\
 `Lyles said the two planned to race in New York's Times Square but canceled due to personal reasons.`\
 https://nytimes.com/athletic/6432865/2025/06/17/noah-lyles-tyreek-hill-race-canceled/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6432859/2025/06/17/england-russo-sport-social-media
 **Supreme Court Justices Disclose International Travel and Book Deals**\
 `Annual financial disclosures revealed some of the perks of being on the Supreme Court, including international teaching and book sales.`\
 https://nytimes.com/2025/06/17/us/politics/supreme-court-financial-disclosures.html
-
-**Iran has reduced missile fire at Israel, which may be part strategy, part necessity.**\
-`Iran has sharply reduced its missile fire on Israel, possibly signaling a shift to a drawn-out, lower-intensity conflict`\
-https://nytimes.com/live/2025/06/17/world/israel-iran-trump/iran-has-reduced-missile-fire-at-israel-which-may-be-part-strategy-part-necessity
-
-**Virginia Primary Election Results**\
-`Get live results and maps from the 2025 Virginia primary elections.`\
-https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-primary.html
-
-**Tyrese Haliburton pushing to play in NBA Finals Game 6 with calf strain**\
-`Haiburton sustained the latest injury in a 120-109 loss to the Thunder in Game 5 on Monday.`\
-https://nytimes.com/athletic/6432954/2025/06/17/tyrese-haliburton-indiana-pacers-calf-injury/
 
