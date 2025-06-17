@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6431719/2025/06/17/fifa-club-world-cup-criticism/
 https://nytimes.com/athletic/6431752/2025/06/17/tennis-sabalenka-gauff-french-open-final/
 
 **As World Turns Focus to Iran, Lethal Violence Flares at Gaza Aid Sites**\
-`With the international community distracted by the new Middle East conflict between Israel and Iran, ongoing bloodshed in Gaza is drawing less attention.`\
+`The ongoing bloodshed in Gaza is drawing less attention with the international community distracted by the new regional conflict between Israel and Iran.`\
 https://nytimes.com/2025/06/17/world/middleeast/gaza-israel-aid-sites-violence.html
 
 **'If I can walk, then I want to play': Pacers' Tyrese Haliburton vows to go in Game 6**\
