@@ -1,3 +1,7 @@
+**What We Know About How the Minnesota Assassination Case May Unfold**\
+`Both state and federal officials are pursuing murder charges against a man they say killed a state lawmaker and her husband. A federal case could lead to the death penalty.`\
+https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
+
 **Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
 `Boone said Torre has given him lots of advice over the past eight years, and pops into his office at Yankee Stadium occasionally.`\
 https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433140/2025/06/17/nick-castellanos-out-phillies-li
 **Thunder at Pacers Game 6 picks, odds, how to watch: Haliburton injury news shifts spread**\
 `The Oklahoma City Thunder are one win away from the title. Tyrese Haliburton tries to fight through injury and rally his Indiana Pacers.`\
 https://nytimes.com/athletic/6433110/2025/06/17/thunder-pacers-haliburton-injury-game-6-how-to-watch/
-
-**Trump Called for Iran to Surrender**\
-`Also, a New York City mayoral candidate was arrested by ICE agents. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/06/17/briefing/trump-iran-new-york-city-ice-arrest.html
 

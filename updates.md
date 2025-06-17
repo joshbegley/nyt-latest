@@ -1,3 +1,7 @@
+**What We Know About How the Minnesota Assassination Case May Unfold**\
+`Both state and federal officials are pursuing murder charges against a man they say killed a state lawmaker and her husband. A federal case could lead to the death penalty.`\
+https://nytimes.com/2025/06/17/us/minnesota-assassination-legal-charges.html
+
 **Why Aaron Boone wanted Joe Torre coaching alongside him again with Yankees**\
 `Boone said Torre has given him lots of advice over the past eight years, and pops into his office at Yankee Stadium occasionally.`\
 https://nytimes.com/athletic/6433182/2025/06/17/yankees-aaron-boone-joe-torre/
