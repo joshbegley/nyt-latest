@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`A fifth day of attacks.`\
+https://nytimes.com/2025/06/17/briefing/iran-israel-g7.html
+
+**Chelsea are uniquely qualified to cope with the Club World Conference League vibe**\
+`Chelsea could establish themselves as credible contenders just as the Club World Cup coalesces into a credible competition`\
+https://nytimes.com/athletic/6431075/2025/06/17/chelsea-club-world-conference-league/
+
 **Omar Berrada: Manchester United's CEO on Amorim, transfers, apologies and more**\
 `Manchester United's CEO opens up on his turbulent first year in the job and why things will get better next term`\
 https://nytimes.com/athletic/6429022/2025/06/17/omar-berrada-manchester-united-amorim-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6429611/2025/06/17/cristiano-ronaldo-black-toenails
 **South Africa Built a Medical Research Powerhouse. Trump Cuts Have Demolished It.**\
 `The budget cuts threaten global progress on everything from heart disease to H.I.V. — and could affect American drug companies, too.`\
 https://nytimes.com/2025/06/17/health/south-africa-medical-research-trump.html
-
-**U.K. to Collect Ethnicity Data on All Suspects in Child Sexual Abuse Cases**\
-`A review of Britain’s so-called grooming gangs scandal had recommended the move, saying that an information “vacuum” had allowed people to “sow and spread hatred.”`\
-https://nytimes.com/2025/06/17/world/europe/uk-grooming-gangs-casey-review.html
-
-**Connections: Sports Edition Coach: Hints for June 17, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6431003/2025/06/17/connections-sports-edition-hints-for-june-17-2025/
 
