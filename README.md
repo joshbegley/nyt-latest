@@ -1,40 +1,40 @@
-**NASCAR's Mexico City weekend was largely a success. Now, will it return in 2026?**\
-`NASCAR's first Cup Series international points race since 1958 left a strong impression on the garage, making a return in 2026 feel likely.`\
-https://nytimes.com/athletic/6430846/2025/06/17/nascar-mexico-city-cup-series-2026-return/
+**Trump Administration Live Updates: Senate Republicans Propose Deeper Medicaid Cuts**\
+``\
+https://nytimes.com/live/2025/06/17/us/trump-news
 
-**Trump Says Macron ‘Always Gets It Wrong’ as They Clash Over Mideast**\
-`In an angry post on social media, President Trump suggested that President Emmanuel Macron of France was a publicity seeker with no clue about American plans in the Israel-Iran conflict.`\
-https://nytimes.com/2025/06/17/world/europe/trump-says-macron-always-gets-it-wrong-as-they-clash-over-mideast.html
+**Brock Boeser, Pius Suter and the risk profile of the Canucks' free agents**\
+`The balance of probabilities suggest Vancouver will move forward without either player in their lineup next season.`\
+https://nytimes.com/athletic/6431370/2025/06/17/canucks-free-agency-brock-boeser-pius-suter/
 
-**Israel claims it killed Iran’s top military commander, again.**\
-`Israeli c`\
-https://nytimes.com/live/2025/06/17/world/israel-iran-trump/iran-who-ali-shadmani-killed
+**Red Wings mock trade proposals: What it could cost to land Robertson, Miller, more**\
+`We crafted four summer trade proposals for the Red Wings and then sought feedback from local writers.`\
+https://nytimes.com/athletic/6428213/2025/06/17/red-wings-mock-trade-proposals-robertson-miller/
 
-**‘A Little Windy’: Trump Drops U.S.-Britain Trade Papers**\
-`President Trump and Prime Minister Keir Starmer of Britain said on Monday that they had signed a deal that would cut tariffs on commerce between their countries. But there was a tiny mishap.`\
-https://nytimes.com/video/us/politics/100000010233668/a-little-windy-trump-drops-us-britain-trade-papers.html
+**Q&A with Blues chairman Tom Stillman: State of the team, 'McDavid deal,' rising cap and more**\
+`The Blues chairman checks in for his offseason chat with The Athletic, with an unexpected guest, and shares his thoughts about the future.`\
+https://nytimes.com/athletic/6429662/2025/06/17/blues-chairman-tom-stillman-questions-answers-2025/
 
-**Justin Reid picks off Kyler Murray to win NFL chess tournament**\
-`The New Orleans Saints safety is now a two-time champion of the competition.`\
-https://nytimes.com/athletic/6431560/2025/06/17/nfl-chess-tournament-blitzchamps-winner/
+**What I'm hearing about the Wizards' strategy for the NBA Draft and their rebuild**\
+`After Washington fell to sixth in the NBA Draft Lottery, all signs point to the team continuing to remain patient.`\
+https://nytimes.com/athletic/6430577/2025/06/17/washington-wizards-rebuild-strategy/
 
-**Which Countries Have Issued Travel Advisories for Israel and Iran?**\
-`Both countries have closed their airspaces, leaving few options for citizens of other countries seeking to leave.`\
-https://nytimes.com/2025/06/17/world/middleeast/israel-iran-travel-advisories-countries.html
+**Who should the Maple Leafs target in free agency? 8 sneaky-good fits**\
+`While NHL free agency this summer lacks star power, there is plenty of quality depth.`\
+https://nytimes.com/athletic/6427207/2025/06/17/maple-leafs-free-agency-targets-wingers-defence/
 
-**The Israel-Iran Conflict**\
-`Israel doesn’t believe in diplomacy when it comes to Iran. But military intervention has its problems, too.`\
-https://nytimes.com/2025/06/17/briefing/israel-iran-conflict.html
+**Penguins trade tiers: Who is most and least likely to be traded this summer?**\
+`Everyone knows who the untouchable player is, but what about further down the lineup?`\
+https://nytimes.com/athletic/6419526/2025/06/17/penguins-trade-tiers-dubas-offseason/
 
-**North Korea’s Pandemic ‘Miracle’ Was a Deadly Lie, Report Says**\
-`Officials drastically understated outbreaks and deaths, depriving citizens of help, two U.S. research groups report, citing interviews with people inside North Korea.`\
-https://nytimes.com/2025/06/17/world/asia/hfo-north-korea-pandemic-lie.html
+**Which Rangers could make the Olympics? Good bets, maybes and outside shots**\
+`The 12 competing men’s hockey countries announced the first six players on their rosters on Monday. No Rangers made the cut.`\
+https://nytimes.com/athletic/6430301/2025/06/17/olympics-rangers-hockey-nhl-roster/
 
-**Trump Says He Has No Plans to Call Walz After Shootings in Minnesota**\
-`“I think the governor of Minnesota is so whacked out, I’m not calling him,” the president told reporters.`\
-https://nytimes.com/2025/06/17/us/trump-walz-minnesota-shootings.html
+**Knicks head coaching search, free-agent targets, trades and more: Mailbag**\
+`Is Mike Brown or Taylor Jenkins a better coaching fit for New York? Who might the Knicks target in free agency? More in this mailbag.`\
+https://nytimes.com/athletic/6429504/2025/06/17/knicks-coach-free-agent-trade-search-mailbag/
 
-**Inzaghi appointed Palermo head coach, four days after Pisa exit**\
-`Inzaghi has been tasked with returning Palermo to Italian football's top flight for the first time since 2017.`\
-https://nytimes.com/athletic/6431654/2025/06/17/filippo-inzaghi-manager-palermo/
+**Chase Sapphire Leapfrogs Amex Platinum With a New $795 Annual Fee**\
+`The price jump is part of an ongoing shift for credit card companies and airlines toward premium rewards and high-end travelers.`\
+https://nytimes.com/2025/06/17/travel/chase-sapphire-annual-fee.html
 

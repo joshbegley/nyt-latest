@@ -1,3 +1,15 @@
+**NASCAR's Mexico City weekend was largely a success. Now, will it return in 2026?**\
+`NASCAR's first Cup Series international points race since 1958 left a strong impression on the garage, making a return in 2026 feel likely.`\
+https://nytimes.com/athletic/6430846/2025/06/17/nascar-mexico-city-cup-series-2026-return/
+
+**Trump Says Macron ‘Always Gets It Wrong’ as They Clash Over Mideast**\
+`In an angry post on social media, President Trump suggested that President Emmanuel Macron of France was a publicity seeker with no clue about American plans in the Israel-Iran conflict.`\
+https://nytimes.com/2025/06/17/world/europe/trump-says-macron-always-gets-it-wrong-as-they-clash-over-mideast.html
+
+**Israel claims it killed Iran’s top military commander, again.**\
+`Israeli c`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/iran-who-ali-shadmani-killed
+
 **‘A Little Windy’: Trump Drops U.S.-Britain Trade Papers**\
 `President Trump and Prime Minister Keir Starmer of Britain said on Monday that they had signed a deal that would cut tariffs on commerce between their countries. But there was a tiny mishap.`\
 https://nytimes.com/video/us/politics/100000010233668/a-little-windy-trump-drops-us-britain-trade-papers.html

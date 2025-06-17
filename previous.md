@@ -1,3 +1,15 @@
+**NASCAR's Mexico City weekend was largely a success. Now, will it return in 2026?**\
+`NASCAR's first Cup Series international points race since 1958 left a strong impression on the garage, making a return in 2026 feel likely.`\
+https://nytimes.com/athletic/6430846/2025/06/17/nascar-mexico-city-cup-series-2026-return/
+
+**Trump Says Macron ‘Always Gets It Wrong’ as They Clash Over Mideast**\
+`In an angry post on social media, President Trump suggested that President Emmanuel Macron of France was a publicity seeker with no clue about American plans in the Israel-Iran conflict.`\
+https://nytimes.com/2025/06/17/world/europe/trump-says-macron-always-gets-it-wrong-as-they-clash-over-mideast.html
+
+**Israel claims it killed Iran’s top military commander, again.**\
+`Israeli c`\
+https://nytimes.com/live/2025/06/17/world/israel-iran-trump/iran-who-ali-shadmani-killed
+
 **‘A Little Windy’: Trump Drops U.S.-Britain Trade Papers**\
 `President Trump and Prime Minister Keir Starmer of Britain said on Monday that they had signed a deal that would cut tariffs on commerce between their countries. But there was a tiny mishap.`\
 https://nytimes.com/video/us/politics/100000010233668/a-little-windy-trump-drops-us-britain-trade-papers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/17/us/trump-walz-minnesota-shootings.html
 **Inzaghi appointed Palermo head coach, four days after Pisa exit**\
 `Inzaghi has been tasked with returning Palermo to Italian football's top flight for the first time since 2017.`\
 https://nytimes.com/athletic/6431654/2025/06/17/filippo-inzaghi-manager-palermo/
-
-**Mercedes’ F1 drivers delivered in Canada, proving what’s possible with the right car**\
-`Mercedes dominated Formula One's Canadian Grand Prix with George Russell winning – but why was its car suddenly so good?`\
-https://nytimes.com/athletic/6430466/2025/06/17/mercedes-f1-canada-george-russell-kimi-antonelli/
-
-**NHL free agency deep dive: Analyzing the top wingers available**\
-`With free-agency season approaching, the big question is: How much is each player worth? Here's a look at the top wingers.`\
-https://nytimes.com/athletic/6420056/2025/06/17/nhl-free-agency-wingers/
-
-**‘Darn near ready-made’: Trey Yesavage pitching his way into Blue Jays’ 2025 plans**\
-`Less than a year after being drafted, Yesavage is on a path to a big-league debut — one that could come as early as this season.`\
-https://nytimes.com/athletic/6430926/2025/06/17/blue-jays-trey-yesavage-pitcher-prospect/
 
