@@ -1,3 +1,7 @@
+**Orion Kerkering earns first career save, and more trust, as Phillies shuffle bullpen**\
+`Kerkering has thrived in more and more high leverage situations. Could a changing of the guard be on its way in the Phillies' bullpen? `\
+https://nytimes.com/athletic/6431197/2025/06/17/phillies-bullpen-orion-kerkering-jordan-romano/
+
 **The New York Times in Print for Tuesday, June 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429466/2025/06/17/guardiola-dribble-transfers/
 **How Nigeria's 2018 shirt became the holy grail of modern football kit releases**\
 `Coveted by shirt enthusiasts and proudly cherished by fans, few modern kits have been as adored as Nigeria's 2018 World Cup strip`\
 https://nytimes.com/athletic/6429034/2025/06/17/nigeria-shirt-2018-world-cup-kit/
-
-**Why Cristiano Ronaldo paints his toenails black**\
-`The Portugal star has taken on a foot-hygiene regime popularised in MMA - but what advantages does it bring and will it catch on?`\
-https://nytimes.com/athletic/6429611/2025/06/17/cristiano-ronaldo-black-toenails/
 
