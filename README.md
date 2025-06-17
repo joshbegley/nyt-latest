@@ -1,3 +1,7 @@
+**Humanitarian Aid Trickles Into Northern Gaza**\
+`A convoy of trucks brought food parcels into the territory, where civilians are at risk of starvation and have been suffering worsening conditions, with such aid shipments rare in recent weeks.`\
+https://nytimes.com/2025/06/17/world/middleeast/gaza-food-distribution-scene.html
+
 **This Pop Hit Has Plenty of Dolly Parton**\
 `Sabrina Carpenter’s latest single, “Manchild,” just debuted at No. 1 on Billboard. Our critic explains why the singer is both a throwback and a signature star of right now.`\
 https://nytimes.com/video/podcasts/100000010233883/this-pop-hit-has-plenty-of-dolly-parton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/climate/naacp-musk-xai-supercomputer-lawsuit.html
 **England recover from 5-1 down in record draw with Germany at under-19 Euros**\
 `England found themselves 5-1 down in the 48th minute, but four goals in 11 second-half minutes helped the young side earn an unlikely draw.`\
 https://nytimes.com/athletic/6433212/2025/06/17/england-germany-under-19-euros/
-
-**Arsenal coach Cuesta set to leave club to become Parma head coach**\
-`Cuesta had been in talks with the Italian side for several weeks and is now set to travel to Italy on Wednesday to finalise the move. `\
-https://nytimes.com/athletic/6433336/2025/06/17/arsenal-carlos-cuesta-parma-move-news-update/
 
