@@ -1,3 +1,15 @@
+**Senators Assail Antidoping Regulator for ‘Stonewalling and Intimidation’**\
+`Members of both parties criticized the World Anti-Doping Agency for its decision not to sanction Chinese swimmers who tested positive for a banned substance, including some who went on to win Olympic medals.`\
+https://nytimes.com/2025/06/17/us/politics/senate-swimmers-antidoping-regulator.html
+
+**Lamar Jackson says Ravens will enter this season with 'vengeance on our mind'**\
+`The two-time MVP spent time this offseason reviewing all of Baltimore’s losses from last year while trying to "make the game a lot easier."`\
+https://nytimes.com/athletic/6433455/2025/06/17/lamar-jackson-ravens-minicamp/
+
+**Patrick Mahomes' future blindside protector? Chiefs high on Josh Simmons**\
+`Kansas City believes it drafted a top-10 talent at the back of the first round in Simmons. Will he help the Chiefs solve their O-line woes?`\
+https://nytimes.com/athletic/6433160/2025/06/17/chiefs-patrick-mahomes-josh-simmons/
+
 **Louisville walks off Oregon State to stay alive in College World Series**\
 `The Cardinals blew a three-run lead in the top of the ninth inning but staved off elimination by scoring one run in the bottom of the ninth.`\
 https://nytimes.com/athletic/6433423/2025/06/17/louisville-walk-off-oregon-state-college-world-series/
