@@ -4,7 +4,7 @@ https://nytimes.com/2025/06/16/us/matthew-perry-doctor-ketamine.html
 
 **Flattery or Discipline? The Difficult Task of Managing Trump.**\
 `Canada’s prime minister Mark Carney deployed both methods on the first day of the Group of 7 summit in Alberta to keep Mr. Trump focused and avoid drama.`\
-https://nytimes.com/2025/06/16/world/canada/flattery-or-discipline-the-difficult-task-of-managing-trump.html
+https://nytimes.com/2025/06/16/world/canada/canada-g7-trump-carney.html
 
 **Angel Reese's latest response to critics: Applying to trademark 'mebounds'**\
 `Filing a trademark for a term used by trolls is not a bad way to flip the narratives.`\
