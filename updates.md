@@ -1,3 +1,11 @@
+**Florida Attorney General Defied Order Blocking Part of Immigration Law, Judge Rules**\
+`A federal judge held the attorney general, James Uthmeier, in civil contempt of court for violating an order blocking part of an immigration enforcement law.`\
+https://nytimes.com/2025/06/17/us/florida-attorney-general-immigration-law.html
+
+**Padilla Speaks Out on Forced Removal From News Conference**\
+`Senate Democrats on Tuesday called on Kristi Noem, the homeland security secretary, to testify at a hearing on Capitol Hill about the forcible removal of Senator Alex Padilla of California from a news conference she was holding last week.`\
+https://nytimes.com/video/us/politics/100000010235105/padilla-forced-removal.html
+
 **House Policy Bill Would Add $3.4 Trillion to Debt, Swamping Economic Gains**\
 `The updated findings from the Congressional Budget Office amounted to the latest dour report card for the president’s signature legislation.`\
 https://nytimes.com/2025/06/17/us/politics/house-bill-federal-debt.html

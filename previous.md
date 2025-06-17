@@ -1,3 +1,11 @@
+**Florida Attorney General Defied Order Blocking Part of Immigration Law, Judge Rules**\
+`A federal judge held the attorney general, James Uthmeier, in civil contempt of court for violating an order blocking part of an immigration enforcement law.`\
+https://nytimes.com/2025/06/17/us/florida-attorney-general-immigration-law.html
+
+**Padilla Speaks Out on Forced Removal From News Conference**\
+`Senate Democrats on Tuesday called on Kristi Noem, the homeland security secretary, to testify at a hearing on Capitol Hill about the forcible removal of Senator Alex Padilla of California from a news conference she was holding last week.`\
+https://nytimes.com/video/us/politics/100000010235105/padilla-forced-removal.html
+
 **House Policy Bill Would Add $3.4 Trillion to Debt, Swamping Economic Gains**\
 `The updated findings from the Congressional Budget Office amounted to the latest dour report card for the president’s signature legislation.`\
 https://nytimes.com/2025/06/17/us/politics/house-bill-federal-debt.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010235238/brad-lander-comptroller-ny
 **Lawmakers Revive War Powers Debate as Trump Threatens Iran**\
 `A bipartisan pair in the House and a Democrat in the Senate have moved to force votes in the coming days on requiring congressional approval before U.S. troops could take offensive action against Iran.`\
 https://nytimes.com/2025/06/17/world/middleeast/trump-war-powers-iran-congress.html
-
-**Prison Kitchen Job Apparently Helped Ex-Police Chief Escape, Officials Say**\
-`A job in a prison kitchen apparently helped Grant Hardin, a former police chief serving time for murder and rape, plot his escape by fashioning a makeshift police uniform, Arkansas prison officials said.`\
-https://nytimes.com/2025/06/17/us/politics/grant-hardin-prison-job-kitchen-escape.html
-
-**Man who displayed 'fixated behavior' toward Emma Raducanu applied for Wimbledon tickets**\
-`Raducanu was reduced to tears mid-match in Dubai in February, having been stopped by the man at a coffee shop the previous day.`\
-https://nytimes.com/athletic/6432967/2025/06/17/emma-raducanu-stalker-wimbledon/
 
