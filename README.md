@@ -1,3 +1,15 @@
+**Ronaldo transfer for CWC 'counter intuitive' - Al Hilal**\
+`In May, FIFA president Gianni Infantino said there were “discussions” that Ronaldo “might play” in the tournament.`\
+https://nytimes.com/athletic/6431521/2025/06/17/cristiano-ronaldo-transfer-club-world-cup/
+
+**TAFC: Bayern, Barca eye Williams; FIFA drops anti-racism messaging for Club World Cup**\
+`Today in TAFC: Why Barca and Bayern want Nico Williams, and all the transfer latest. Plus: FIFA drop inclusivity drive at Club World Cup`\
+https://nytimes.com/athletic/6431530/2025/06/17/bayern-barca-eye-williams-fifa-drops-anti-racism-messaging-for-club-world-cup/
+
+**Isaiah Hartenstein provides the key to unlock the Thunder offense in Game 5 win**\
+`Hartenstein's impact went beyond the box score, as his screening and decision-making played a huge role in giving OKC a 3-2 series lead.`\
+https://nytimes.com/athletic/6431313/2025/06/17/isaiah-hartenstein-thunder-nba-finals-game-5/
+
 **The Pulse: Was the NBA title decided last night?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6429664/2025/06/17/pacers-thunder-game-5-jalen-williams-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6431058/2025/06/17/caitlin-clark-black-finite-rooki
 **Trump Cuts G7 Trip Short Over Iran, and Senate Republicans Propose Steep Medicaid Cuts**\
 `Plus, streaming’s TV takeover.`\
 https://nytimes.com/2025/06/17/podcasts/the-headlines/trump-g7-iran-medicaid-cuts.html
-
-**Have We Been Thinking About A.D.H.D. All Wrong?**\
-`As diagnoses of the condition in the U.S. have climbed steadily, some longtime researchers are raising fundamental questions.`\
-https://nytimes.com/2025/06/17/podcasts/the-daily/adhd-diagnosis-prescriptions.html
-
-**Wordle Review No. 1,460**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 18, 2025.`\
-https://nytimes.com/2025/06/17/crosswords/wordle-review-1460.html
-
-**Connections Companion No. 738**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 18, 2025.`\
-https://nytimes.com/2025/06/17/crosswords/connections-companion-738.html
 
