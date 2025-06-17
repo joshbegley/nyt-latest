@@ -1,3 +1,11 @@
+**Canadian Grand Prix strikes deal to remain on F1 calendar through 2035 season**\
+`The deal to keep Montreal follows long-term extensions for Melbourne (2037), Bahrain (2036) and Silverstone (2034).`\
+https://nytimes.com/athletic/6431912/2025/06/17/f1-canadian-gp-new-deal-2035/
+
+**FIFA told to 'eliminate' Club World Cup by La Liga president**\
+`Tebas said it was his "goal" to ensure that there were no more editions of the expanded month-long, 32-team version of the tournament.`\
+https://nytimes.com/athletic/6431719/2025/06/17/fifa-club-world-cup-criticism/
+
 **Aryna Sabalenka 'absolutely regrets' French Open final comments about Coco Gauff**\
 `Sabalenka had bemoaned her 'terrible' play after the Roland Garros final, saying that Gauff kept hitting shots off the frame of her racket.`\
 https://nytimes.com/athletic/6431752/2025/06/17/tennis-sabalenka-gauff-french-open-final/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/17/weather/erick-map-path-tracker.html
 **Trump Administration Live Updates: Senate Republicans Propose Deeper Medicaid Cuts**\
 ``\
 https://nytimes.com/live/2025/06/17/us/trump-news
-
-**Brock Boeser, Pius Suter and the risk profile of the Canucks' free agents**\
-`The balance of probabilities suggest Vancouver will move forward without either player in their lineup next season.`\
-https://nytimes.com/athletic/6431370/2025/06/17/canucks-free-agency-brock-boeser-pius-suter/
-
-**Red Wings mock trade proposals: What it could cost to land Robertson, Miller, more**\
-`We crafted four summer trade proposals for the Red Wings and then sought feedback from local writers.`\
-https://nytimes.com/athletic/6428213/2025/06/17/red-wings-mock-trade-proposals-robertson-miller/
 
