@@ -1,3 +1,11 @@
+**MLB's three best new concession souvenirs**\
+`A new race to innovate in the realm of plastic concession keepsakes has taken hold`\
+https://nytimes.com/athletic/6430035/2025/06/17/mlb-concession-souvenirs-yankees-padres-mariners/
+
+**Senate Republicans Propose Key Tax Tweaks to House Bill**\
+`Party lawmakers proposed changes to the tax code that could offer the greatest benefit to businesses.`\
+https://nytimes.com/2025/06/17/us/politics/senate-republican-tax-bill.html
+
 **U.S. Open mixed doubles event secures top singles players it craved – but some need wild cards**\
 `The new format is deliberately designed to attract the best singles players instead of specialist doubles players.`\
 https://nytimes.com/athletic/6431865/2025/06/17/tennis-us-open-mixed-doubles-new-format-players-pairs/
