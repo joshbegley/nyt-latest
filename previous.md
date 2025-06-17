@@ -1,3 +1,23 @@
+**Omar Berrada: Manchester United's CEO on Amorim, transfers, apologies and more**\
+`Manchester United's CEO opens up on his turbulent first year in the job and why things will get better next term`\
+https://nytimes.com/athletic/6429022/2025/06/17/omar-berrada-manchester-united-amorim-transfers/
+
+**Why has Louis Vuitton partnered with Real Madrid?**\
+`Arguably the world's most recognisable luxury clothing brand and European football's most celebrated club have joined forces`\
+https://nytimes.com/athletic/6429064/2025/06/17/real-madrid-louis-vuitton-fashion/
+
+**Florian Wirtz will be Liverpool's record signing - but who is it at your Premier League club? And did it work out?**\
+`Were they a hit or a miss? Or is it too early to say? Our reporters run through each team's most expensive buy - and how they performed...`\
+https://nytimes.com/athletic/6428901/2025/06/17/premier-league-club-record-signings-liverpool-wirtz/
+
+**Stable club: Brighton, Royal Ascot and a Premier League passion for horse racing**\
+`The Royal Ascot meeting this week will see races featuring horses owned by Brighton chairman Tony Bloom - and several of his players`\
+https://nytimes.com/athletic/6058165/2025/06/17/brighton-royal-ascot-horseracing-bloom-premier-league/
+
+**'Find me players who can dribble': Cherki, Ait-Nouri, Reijnders and Guardiola's desire for ball-carriers**\
+`Players who can dribble are of increasing importance to Guardiola - this is why and how he might use them as he reworks his team again`\
+https://nytimes.com/athletic/6429466/2025/06/17/guardiola-dribble-transfers/
+
 **How Nigeria's 2018 shirt became the holy grail of modern football kit releases**\
 `Coveted by shirt enthusiasts and proudly cherished by fans, few modern kits have been as adored as Nigeria's 2018 World Cup strip`\
 https://nytimes.com/athletic/6429034/2025/06/17/nigeria-shirt-2018-world-cup-kit/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/17/world/europe/uk-grooming-gangs-casey-review.html
 **Connections: Sports Edition Coach: Hints for June 17, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6431003/2025/06/17/connections-sports-edition-hints-for-june-17-2025/
-
-**China Is Unleashing a New Export Shock on the World**\
-`As President Trump’s tariffs close off the U.S. market, Chinese goods are flooding countries from Southeast Asia to Europe to Latin America.`\
-https://nytimes.com/2025/06/17/business/tariffs-china-exports.html
-
-**Corrections: June 17, 2025**\
-`Corrections that appeared in print on Tuesday, June 17, 2025.`\
-https://nytimes.com/2025/06/17/pageoneplus/corrections-june-17-2025.html
-
-**Quote of the Day: Gas, Barbecue and Cowhide Rugs: A Texas-Size Pit Stop Spreads**\
-`Quotation of the Day for Tuesday, June 17, 2025.`\
-https://nytimes.com/2025/06/16/pageoneplus/quote-of-the-day-gas-barbecue-and-cowhide-rugs-a-texas-size-pit-stop-spreads.html
-
-**León was booted from the Club World Cup, but its fans still showed up**\
-`On a day when their team, and not LAFC, was supposed to be facing Chelsea, supporters of Club León still turned out at the Club World Cup.`\
-https://nytimes.com/athletic/6431132/2025/06/16/leon-fans-club-world-cup-atlanta-chelsea-lafc/
-
-**Jalen Williams' 40-point Game 5 has Thunder one win from NBA title**\
-`After Jalen Williams' huge Game 5, the potential clincher for the Thunder is Thursday in Indianapolis with a Pacers star looking hindered.`\
-https://nytimes.com/athletic/6431184/2025/06/16/thunder-pacers-game-5-jalen-williams-2025-nba-finals/
 
