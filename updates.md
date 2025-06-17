@@ -1,3 +1,7 @@
+**León was booted from the Club World Cup, but its fans still showed up**\
+`On a day when their team was supposed to be facing Chelsea, and not LAFC, supporters of Club León still turned out at the Club World Cup.`\
+https://nytimes.com/athletic/6431132/2025/06/16/leon-fans-club-world-cup-atlanta-chelsea-lafc/
+
 **Jalen Williams' 40-point Game 5 has Thunder one win from NBA title**\
 `After Jalen Williams' huge Game 5, the potential clincher for the Thunder is Thursday in Indianapolis with a Pacers star looking hindered.`\
 https://nytimes.com/athletic/6431184/2025/06/16/thunder-pacers-game-5-jalen-williams-2025-nba-finals/
