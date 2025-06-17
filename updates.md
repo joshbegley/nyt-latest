@@ -1,3 +1,7 @@
+**Trump and Starmer Agree to Implement Parts of Trade Deal on Cars, Steel and Planes**\
+`The leaders of Britain and the United States announced a deal last month, but it had not been clear when their agreement would go into effect. Britain hailed the announcement as “a huge win.”`\
+https://nytimes.com/2025/06/16/us/uk-trade-trump-starmer-tariffs.html
+
 **Many Hoped Senate Republicans Would Save Clean Energy. They Mostly Didn’t.**\
 `A Senate tax package softens some blows imposed on renewables by a House version of the bill. But it still terminates many credits for clean power.`\
 https://nytimes.com/2025/06/16/climate/senate-republicans-tax-package-clean-energy.html

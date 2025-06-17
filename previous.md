@@ -30,8 +30,8 @@ https://nytimes.com/live/2025/06/16/us/minnesota-shootings/police-impersonation
 `Iranian officials have warned that U.S. participation in an attack on its facilities will imperil any chance of the nuclear disarmament deal the president insists he is still interested in pursuing.`\
 https://nytimes.com/2025/06/16/us/politics/trump-iran-diplomacy-conflict.html
 
-**Trump and Starmer Agree to Implement Parts of Trade Deal on Cars, Steel and Plane Parts**\
-`The leaders of Britain and the United States had announced a deal last month, but it had not been clear when their agreement would go into effect. Britain hailed the announcement as “a huge win.”`\
+**Trump and Starmer Agree to Implement Parts of Trade Deal on Cars, Steel and Planes**\
+`The leaders of Britain and the United States announced a deal last month, but it had not been clear when their agreement would go into effect. Britain hailed the announcement as “a huge win.”`\
 https://nytimes.com/2025/06/16/us/uk-trade-trump-starmer-tariffs.html
 
 **How the Trump Era Changed Trump**\
