@@ -1,3 +1,7 @@
+**North Korea Will Send 5,000 Workers to Russia, Kremlin Says**\
+`Thousands of North Korean laborers are already toiling in Russia. A new contingent is headed to the region where North Korean troops fought Ukraine.`\
+https://nytimes.com/2025/06/17/world/europe/north-korea-workers-russia.html
+
 **Brad Lander Is Arrested by ICE Agents at Immigration Courthouse**\
 `Mr. Lander, the New York City comptroller who is running for mayor, was handcuffed as he tried to steer a man past Immigration and Customs Enforcement officers.`\
 https://nytimes.com/2025/06/17/nyregion/brad-lander-immigration-ice.html
