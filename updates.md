@@ -1,3 +1,7 @@
+**Officials Investigate More Threats of Violence Against U.S. Politicians**\
+`President Trump and U.S. senators were identified as the most recent targets, as threats of violence have become part of America’s political landscape.`\
+https://nytimes.com/2025/06/17/us/lawmaker-shootings-threats-political-violence.html
+
 **How to Beat Back Trump on Trans Rights — and Much Else**\
 `Representative Sarah McBride reckons with the trans rights movement’s shortcomings, and how to win hearts and minds through a politics of grace.`\
 https://nytimes.com/2025/06/17/opinion/ezra-klein-podcast-sarah-mcbride.html

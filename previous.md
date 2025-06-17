@@ -1,3 +1,7 @@
+**Officials Investigate More Threats of Violence Against U.S. Politicians**\
+`President Trump and U.S. senators were identified as the most recent targets, as threats of violence have become part of America’s political landscape.`\
+https://nytimes.com/2025/06/17/us/lawmaker-shootings-threats-political-violence.html
+
 **How to Beat Back Trump on Trans Rights — and Much Else**\
 `Representative Sarah McBride reckons with the trans rights movement’s shortcomings, and how to win hearts and minds through a politics of grace.`\
 https://nytimes.com/2025/06/17/opinion/ezra-klein-podcast-sarah-mcbride.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/nyregion/teaching-award-gambia-state-department.h
 **Lawmakers Demand Palantir Provide Information About U.S. Contracts**\
 `Ten Democratic lawmakers sent a letter to the tech company this week asking about its expanding contracts under the Trump administration.`\
 https://nytimes.com/2025/06/17/technology/palantir-government-contracts-democrats-letter.html
-
-**Only Nonviolence Will Beat Trump**\
-`What makes successful (or unsuccessful) protests.`\
-https://nytimes.com/2025/06/17/opinion/trump-protests-nonviolence.html
 
