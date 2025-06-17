@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6433160/2025/06/17/chiefs-patrick-mahomes-josh-simm
 `The Cardinals blew a three-run lead in the top of the ninth inning but staved off elimination by scoring one run in the bottom of the ninth.`\
 https://nytimes.com/athletic/6433423/2025/06/17/louisville-walk-off-oregon-state-college-world-series/
 
-**Elected Officials Who Have Been Detained in Protests Against ICE**\
+**Elected Officials Who Have Been Detained in Protests**\
 `The arrest of Brad Lander was the latest case in which an official has been held while protesting President Trump’s immigration agenda.`\
 https://nytimes.com/2025/06/17/us/ice-arrests-elected-offcials.html
 
