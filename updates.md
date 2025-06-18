@@ -1,3 +1,19 @@
+**Everton in advanced talks to appoint Man Utd academy chief Nick Cox**\
+`Cox has led United’s academy since 2019, overseeing the graduation to the senior side of Alejandro Garnacho, Kobbie Mainoo and others.`\
+https://nytimes.com/athletic/6429708/2025/06/18/everton-manchester-united-nick-cox-academy/
+
+**The Dallas Cowboys Cheerleaders Get a 400 Percent Pay Raise**\
+`The second season of the docuseries “America’s Sweethearts” reveals the squad’s successful effort to push for greater financial stability.`\
+https://nytimes.com/2025/06/18/style/dallas-cowboys-cheerleaders-salary-americas-sweethearts.html
+
+**Landlords Say They’re Struggling. Rents Keep Going Up. What Gives?**\
+`New York City could soon raise rents on some of its most affordable apartments to help landlords who say they aren’t earning enough. But renters say they’re hurting, too.`\
+https://nytimes.com/2025/06/18/nyregion/nyc-landlords-rent-stabilization.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/18/crosswords/spelling-bee-forum.html
+
 **Jordan Klepper Calls Trump Out for His ‘Irish Exit’ at G7**\
 `The president left the Group of 7 summit in Canada a day ahead of schedule, and Tuesday’s “Daily Show” host thinks he knows why.`\
 https://nytimes.com/2025/06/18/arts/television/late-night-jordan-klepper-trump-g7.html

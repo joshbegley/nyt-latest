@@ -1,3 +1,19 @@
+**Everton in advanced talks to appoint Man Utd academy chief Nick Cox**\
+`Cox has led United’s academy since 2019, overseeing the graduation to the senior side of Alejandro Garnacho, Kobbie Mainoo and others.`\
+https://nytimes.com/athletic/6429708/2025/06/18/everton-manchester-united-nick-cox-academy/
+
+**The Dallas Cowboys Cheerleaders Get a 400 Percent Pay Raise**\
+`The second season of the docuseries “America’s Sweethearts” reveals the squad’s successful effort to push for greater financial stability.`\
+https://nytimes.com/2025/06/18/style/dallas-cowboys-cheerleaders-salary-americas-sweethearts.html
+
+**Landlords Say They’re Struggling. Rents Keep Going Up. What Gives?**\
+`New York City could soon raise rents on some of its most affordable apartments to help landlords who say they aren’t earning enough. But renters say they’re hurting, too.`\
+https://nytimes.com/2025/06/18/nyregion/nyc-landlords-rent-stabilization.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/18/crosswords/spelling-bee-forum.html
+
 **Jordan Klepper Calls Trump Out for His ‘Irish Exit’ at G7**\
 `The president left the Group of 7 summit in Canada a day ahead of schedule, and Tuesday’s “Daily Show” host thinks he knows why.`\
 https://nytimes.com/2025/06/18/arts/television/late-night-jordan-klepper-trump-g7.html
@@ -21,20 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/18/todays-new-york-times
 **Yankees 'feel the pressure' as scoreless streak hits 29 innings, nears franchise worst**\
 `The Yankees lost 4-0 to the Los Angeles Angels and were shut out for the third consecutive game.`\
 https://nytimes.com/athletic/6433856/2025/06/18/yankees-lose-angels-scoreless-streak/
-
-**Wednesday Briefing**\
-`Fears of a wider war in Iran.`\
-https://nytimes.com/2025/06/18/world/europe/iran-war-israel-gaza.html
-
-**Pete Crow-Armstrong hints he's out on HR Derby: 'Not for me'**\
-`In MLB's first All-Star ballot update released Monday, Crow-Armstrong led all NL outfielders with 1,126,119 votes.`\
-https://nytimes.com/athletic/6433976/2025/06/18/pete-crow-armstrong-home-run-derby-participation-comments/
-
-**Canada smashes 6 past Honduras in spectacular Gold Cup start**\
-`A comprehensive win gave Canada a perfect Gold Cup start.`\
-https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
-
-**Mathis Albert: The American 16-year-old bringing 'swagger' to the Club World Cup**\
-`Albert joined Borussia Dortmund last year from LA Galaxy, having stood out for his dribbling, speed and ability in one-versus-one situations`\
-https://nytimes.com/athletic/6432311/2025/06/18/mathis-albert-american-club-world-cup/
 
