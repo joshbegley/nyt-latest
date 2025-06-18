@@ -1,3 +1,15 @@
+**Food Network Chefs and Many Others Pay Tribute to Anne Burrell**\
+`Following news of the chef and TV personality’s death at age 55, remembrances poured in on social media.`\
+https://nytimes.com/2025/06/18/dining/anne-burrell-death-reactions-tributes.html
+
+**Trump Seizes on Rate Cuts Elsewhere in Bid to Pressure the Fed**\
+`President Trump has increasingly pointed to rate cuts by other central banks as he pressures Jerome H. Powell, the Fed chair, to reduce borrowing costs.`\
+https://nytimes.com/2025/06/18/business/trump-fed-interest-rates-powell.html
+
+**Tyrese Haliburton will likely be questionable for Game 6 of NBA Finals**\
+`Game 6 is Thursday at 8:30 pm ET in Indianapolis.`\
+https://nytimes.com/athletic/6435148/2025/06/18/pacers-tyrese-haliburton-questionable-game-6-nba/
+
 **Trump says ‘nobody knows what I’m going to do’ on Iran.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/trump-says-nobody-knows-what-im-going-to-do-on-iran

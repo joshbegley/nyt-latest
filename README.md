@@ -1,3 +1,15 @@
+**A Transgender Clinic Opened in 2018. Four Years Later, the Firestorm Began.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/a-transgender-clinic-opened-in-2018-four-years-later-the-firestorm-began
+
+**Spain Blames Planning Missteps and Technical Problems for Huge Power Outage**\
+`The Spanish government ruled out a cyberattack, saying that a series of failures led to the nationwide blackout in April.`\
+https://nytimes.com/2025/06/18/world/europe/spain-power-failure-report.html
+
+**Why players are walking out individually at the Club World Cup**\
+`Commonplace in American sports, Club World Cup organisers have brought individual walkouts to soccer`\
+https://nytimes.com/athletic/6434673/2025/06/18/club-world-cup-walkout-showbiz/
+
 **Food Network Chefs and Many Others Pay Tribute to Anne Burrell**\
 `Following news of the chef and TV personality’s death at age 55, remembrances poured in on social media.`\
 https://nytimes.com/2025/06/18/dining/anne-burrell-death-reactions-tributes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6434881/2025/06/18/diego-luna-mauricio-pochettino-u
 **Katie Miller’s Washington Rise Takes a Musk Detour**\
 `She is one half of a Trump-world power couple. But she’s on Team Elon. It’s gotten complicated.`\
 https://nytimes.com/2025/06/18/style/katie-miller-stephen-miller-trump-musk.html
-
-**Emma Hayes and Mauricio Pochettino face different challenges with their U.S. teams**\
-`The two former Chelsea coaches find themselves in opposite scenarios with the men's and women's American national sides`\
-https://nytimes.com/athletic/6433578/2025/06/18/emma-hayes-and-mauricio-pochettino-face-different-challenges-with-u-s-teams/
-
-**The House Next Door Has Black Mold. Do I Tell Potential Tenants?**\
-`The issue was serious enough to cause health issues for the previous residents.`\
-https://nytimes.com/2025/06/18/magazine/black-mold-house-neighbors-ethics.html
-
-**A Heavy Pan of Roasted Shrimp Jambalaya and a Pitcher of Strawberry-Ginger Lemonade**\
-`And more delicious ideas for a Juneteenth feast.`\
-https://nytimes.com/2025/06/18/dining/roasted-shrimp-jambalaya-and-more-juneteenth-recipes.html
 
