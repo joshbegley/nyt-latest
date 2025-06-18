@@ -1,3 +1,7 @@
+**Brad Marchand returns to hockey heaven with Panthers, sets new standard for trade-deadline pickups**\
+`Marchand unleashed 14 years of pent-up emotion when he lifted the Stanley Cup above his head again Tuesday for the first time since 2011.`\
+https://nytimes.com/athletic/6433899/2025/06/17/brad-marchand-panthers-stanley-cup-trade/
+
 **Oilers fall short again in Stanley Cup Final, so where do they go from here?**\
 `Outclassed by the Panthers, the Oilers again face a rocky path to their first championship since 1990.`\
 https://nytimes.com/athletic/6433206/2025/06/17/oilers-stanley-cup-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/crosswords/daily-puzzle-2025-06-18.html
 **Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
 `After the Giants communicated their intentions with their new star, Devers expressed a willingness to "play wherever they want me to play."`\
 https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/
-
-**India rule the cricketing world, but is their dominance good for the sport?**\
-`India generate an estimated 80 per cent of the game’s global revenue, leaving almost every other cricketing nation reliant upon them`\
-https://nytimes.com/athletic/6415655/2025/06/17/india-cricket-kohli-dominance-england-australia/
 
