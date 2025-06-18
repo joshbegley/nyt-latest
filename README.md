@@ -1,3 +1,7 @@
+**Spinning Rafael Devers' new home for fantasy baseball, June Statcast standouts and more**\
+`Michael Salfino looks at how Oracle Park will impact Rafael Devers' fantasy value before diving into the expected stats stars for June.`\
+https://nytimes.com/athletic/6435158/2025/06/18/fantasy-baseball-statcast-risers-fallers-devers/
+
 **The Fed Isn’t Calling It ‘Stagflation,’ but the Risks Are Rising**\
 `President Trump’s trade war is likely to lead to higher prices and slower growth, a challenging combination for the Fed. War in the Middle East could make the job harder still.`\
 https://nytimes.com/2025/06/18/business/fed-stagflation-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/18/business/fed-interest-rates/what-to-know-abo
 **U.S. lawmakers say Gulf Arab leaders want Iran’s nuclear program to end, but preferably not by force.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat
-
-**Karen Read Found Not Guilty of Murder in Boyfriend’s Death Outside Boston**\
-`A jury cleared Ms. Read of charges related to the 2022 death of her boyfriend, a Boston police officer, and convicted her only of drunken driving, in a trial that attracted wide attention.`\
-https://nytimes.com/2025/06/18/us/karen-read-trial-verdict.html
 
