@@ -1,3 +1,7 @@
+**Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
+`After the Giants communicated their intentions with their new star, Devers expressed a willingness to 'play wherever they want me to play.'`\
+https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/
+
 **India rule the cricketing world, but is their dominance good for the sport?**\
 `India generate an estimated 80 per cent of the game’s global revenue, leaving almost every other cricketing nation reliant upon them`\
 https://nytimes.com/athletic/6415655/2025/06/17/india-cricket-kohli-dominance-england-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/theater/prince-faggot-review.html
 **'Embarrassed' Carson Hocevar fined $50K for comments about Mexico City**\
 `Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
 https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
-
-**Judge expresses concern over suit vs. NASCAR, asks what 23XI, Front Row want**\
-`U.S. District Court Judge Kenneth D. Bell issued a warning to both sides at the conclusion of Tuesday hearing.`\
-https://nytimes.com/athletic/6433611/2025/06/17/nascar-lawsuit-front-row-23xi/
 

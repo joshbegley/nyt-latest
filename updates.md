@@ -1,3 +1,7 @@
+**Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
+`After the Giants communicated their intentions with their new star, Devers expressed a willingness to 'play wherever they want me to play.'`\
+https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/
+
 **India rule the cricketing world, but is their dominance good for the sport?**\
 `India generate an estimated 80 per cent of the game’s global revenue, leaving almost every other cricketing nation reliant upon them`\
 https://nytimes.com/athletic/6415655/2025/06/17/india-cricket-kohli-dominance-england-australia/

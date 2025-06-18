@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6433643/2025/06/17/canada-friendlies-2026-world-cup
 `The move by the N.A.A.C.P., the nation’s largest and oldest civil rights organization, marked a new low in its relationship with the Trump administration.`\
 https://nytimes.com/2025/06/17/us/trump-naacp-convention.html
 
-**Fever-Sun scuffle leads to a Caitlin Clark tech, Jacy Sheldon flagrant foul**\
-`The tension was building between Clark and Sheldon from the start of the game as Sheldon hounded Clark on defense.`\
+**Fever advance to Commissioner's Cup final; Caitlin Clark scuffles with foes**\
+`Caitlin Clark issued technical foul for role in incident, while Connecticut's Jacy Sheldon earns flagrant foul.`\
 https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
 
 **In a Year of Working Dangerously, Fear of Trump Marks Public Service Awards**\
