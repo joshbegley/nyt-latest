@@ -1,3 +1,7 @@
+**Joan Garcia's transfer to Barcelona: The inside story and key questions answered**\
+`Garcia has become the first player to join Barcelona from city rivals Espanyol in 31 years, and just the 15th to ever do so at senior level`\
+https://nytimes.com/athletic/6434439/2025/06/18/joan-garcia-transfer-barcelona-inside-story/
+
 **Move over, Mbappe: SailGP's France franchise gets new investment from Ares Management**\
 `Ares' $3.7 billion sports fund has previously invested in the Miami Dolphins, Inter Miami CF, McLaren Racing, Atletico Madrid and more.`\
 https://nytimes.com/athletic/6433649/2025/06/18/sailgp-france-ares-management-kylian-mbappe/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/18/world/israel-iran-trump/in-a-defiant-address
 **Vikings 53-man roster projection: What OTAs and minicamp told us about 2025 team**\
 `What stood out from the Vikings' OTAs and minicamp? How does what we saw shape what the team will look like come Week 1 in Chicago?`\
 https://nytimes.com/athletic/6432831/2025/06/18/vikings-53-man-roster-projection-2025/
-
-**Up, down or stand pat: In trading with Pacers, Pelicans have options in draft**\
-`The Pelicans now have a pair of first-round picks, which should keep Joe Dumars busy until the draft.`\
-https://nytimes.com/athletic/6433479/2025/06/18/pelicans-trade-nba-draft-2025/
 
