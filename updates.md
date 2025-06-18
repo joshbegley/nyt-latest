@@ -1,3 +1,11 @@
+**Monterrey 1 Inter 1 - Sergio Ramos is everything you remember**\
+`Analysis of Monterrey against Inter Milan in the Club World Cup`\
+https://nytimes.com/athletic/6424373/2025/06/17/monterrey-inter-sergio-ramos-highlights/
+
+**'It’s really hard': Back-to-back Stanley Cup wins make the Panthers the latest dynasty of the cap era**\
+`The Panthers are just the third team to win consecutive Cups in the cap era. It’s rare to do it in a league full of parity.`\
+https://nytimes.com/athletic/6433719/2025/06/17/panthers-stanley-cup-dynasty/
+
 **Low fan turnout at Club World Cup match between Sundowns, Ulsan HD delayed by storms**\
 `FIFA announced an official crowd of 3,142, by far the lowest of the tournament so far.`\
 https://nytimes.com/athletic/6433727/2025/06/17/sparse-crowd-club-world-cup-match/

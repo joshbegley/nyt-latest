@@ -1,3 +1,7 @@
+**Reinhart scores four goals as Panthers win back-to-back Stanley Cups: Takeaways**\
+`The Panthers dominated Game 6, with only a late goal by Vasily Podkolzin to spoil Sergei Bobrovsky's shutout.`\
+https://nytimes.com/athletic/6433850/2025/06/17/panthers-oilers-stanley-cup-final-game-6-takeaways/
+
 **Monterrey 1 Inter 1 - Sergio Ramos is everything you remember**\
 `Analysis of Monterrey against Inter Milan in the Club World Cup`\
 https://nytimes.com/athletic/6424373/2025/06/17/monterrey-inter-sergio-ramos-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/us/trump-naacp-convention.html
 **Caitlin Clark in scuffle as Fever reach Commissioner's Cup final: Takeaways**\
 `Caitlin Clark issued technical foul for role in incident, while Connecticut's Jacy Sheldon earns flagrant foul.`\
 https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
-
-**In a Year of Working Dangerously, Fear of Trump Marks Public Service Awards**\
-`The Trump administration’s large cuts to the federal work force turned an annual celebration of federal workers into a reminder of loss.`\
-https://nytimes.com/2025/06/17/us/politics/trump-federal-workers-awards.html
 
