@@ -1,3 +1,7 @@
+**Mathis Albert: The American 16-year-old bringing 'swagger' to the Club World Cup**\
+`Albert joined Borussia Dortmund last year from LA Galaxy, having stood out for his dribbling, speed and ability in one-versus-one situations`\
+https://nytimes.com/athletic/6432311/2025/06/18/mathis-albert-american-club-world-cup/
+
 **Xabi Alonso's awkward start at Madrid: New hope, little time, big pressure**\
 `The 43-year-old is taking on one of football's most demanding jobs off the back of the Spanish giants' disappointing European season`\
 https://nytimes.com/athletic/6431574/2025/06/18/xabi-alonsos-awkward-start-at-real-madrid-new-hope-little-time-big-pressure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431422/2025/06/18/franco-mastantuono-real-madrid-s
 **Wirtz could reshape Liverpool next season. This is how**\
 `The German's imminent signing might have significant consequences for some of Arne Slot's players`\
 https://nytimes.com/athletic/6431727/2025/06/18/florian-wirtz-liverpool-team-tactics/
-
-**Great-Grandson of Islamic Republic’s Founder Was in Streets as Israel Fired on Tehran**\
-`Seyyed Ahmad Khomeini, a descendant of Ayatollah Ruhollah Khomeini, told The Times that the legacy of his family name was at stake in the conflict.`\
-https://nytimes.com/2025/06/18/world/middleeast/iran-islamic-republic-seyyed-ahmad-khomeini.html
 
