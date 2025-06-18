@@ -1,3 +1,11 @@
+**Barcelona sign Espanyol goalkeeper Garcia**\
+`The 24-year-old joins the club on a six-year deal that runs through to 2031.`\
+https://nytimes.com/athletic/6363649/2025/06/18/joan-garcia-barcelona-transfer/
+
+**Lawsuit Accuses Tyler Perry of Sexual Assault**\
+`Derek Dixon, an actor who worked with Mr. Perry, is suing him for $260 million for sexual harassment, assault and battery. A representative for Mr. Perry called the allegations a “scam.”`\
+https://nytimes.com/2025/06/18/arts/tyler-perry-derek-dixon-sexual-assault-lawsuit.html
+
 **Two Iranian centrifuge production facilities are hit, the U.N. nuclear watchdog says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/two-iranian-centrifuge-production-facilities-are-hit-the-un-nuclear-watchdog-says
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424642/2025/06/18/milwaukee-bucks-nba-draft-previe
 **Brant Boyer wants to build a new era — and better aura — for 49ers’ special teams**\
 `Boyer was given license to build the 49ers' special teams this offseason. He wasn't shy about tearing the old units down.`\
 https://nytimes.com/athletic/6427497/2025/06/18/49ers-special-teams-brant-boyer/
-
-**Mirtle mailbag: Will the Leafs keep Mitch Marner, John Tavares? Trade William Nylander?**\
-`Plus: Easton Cowan's chances of joining the NHL roster, and is a decline inevitable for the franchise?`\
-https://nytimes.com/athletic/6426868/2025/06/18/maple-leafs-nhl-free-agency-marner-tavares-nylander/
-
-**Trump Administration Live Updates: President to Give TikTok 90-Day Reprieve**\
-``\
-https://nytimes.com/live/2025/06/18/us/trump-news
 
