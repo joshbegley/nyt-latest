@@ -1,3 +1,11 @@
+**Lionel Messi 'fine' and fit to play for Inter Miami against Porto in Club World Cup**\
+`Inter Miami coach Javier Mascherano says Lionel Messi is &#8220;fine&#8221; and available to play Porto on Thursday in the MLS side&#8217;s second Club World Cup game.`\
+https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
+
+**Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
+`As President Trump ponders swift military action in Iran, there were similar expectations that the war in Iraq would be quick and triumphant.`\
+https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
+
 **For Tennessee’s Transgender Families, the Court Ruling Was Bitter, but Expected**\
 `The state has been a leader in the rollback of L.G.B.T.Q. rights.`\
 https://nytimes.com/2025/06/18/us/politics/tennessee-transgender-care-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436229/2025/06/18/shedeur-sanders-citation-driving
 **Go Ahead, Have a ‘Fridge Cigarette’**\
 `The click of the can, the sound of the bubbles: The internet is reframing the humble soda as an indulgent escape.`\
 https://nytimes.com/2025/06/18/style/fridge-cigarette-diet-coke.html
-
-**Justice Dept. to Cut Two-Thirds of Inspectors Monitoring Gun Sales**\
-`The move is part of the Trump administration’s effort to defang and downsize the Bureau of Alcohol, Tobacco, Firearms and Explosives.`\
-https://nytimes.com/2025/06/18/us/politics/justice-dept-guns-atf-trump.html
-
-**Israeli Strikes Kill Civilians Across Iran**\
-`Israel has said it does not target Iranian civilians, but hundreds have died in the violence, among them a poet and her family, an equestrian and a graphic designer.`\
-https://nytimes.com/2025/06/18/world/middleeast/iran-civilian-deaths-israel-strikes.html
 
