@@ -1,3 +1,11 @@
+**See where Israeli strikes have damaged Iranian nuclear and military facilities so far.**\
+`By Karen Yourish`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/see-where-israeli-strikes-have-damaged-iranian-nuclear-and-military-facilities-so-far
+
+**How Florida’s Attempt to Let Teens Sleep Longer Fell Apart**\
+`After lawmakers required high schools to start no earlier than 8:30 a.m., school administrators complained that it was unworkable. Last month, Gov. Ron DeSantis signed a repeal.`\
+https://nytimes.com/2025/06/18/us/florida-high-school-teenagers-sleep.html
+
 **Lowetide: What changes could help Oilers return to Stanley Cup Final again?**\
 `After losing to the Panthers for a second straight season, the Oilers are looking ahead to an active summer.`\
 https://nytimes.com/athletic/6431079/2025/06/18/edmonton-oilers-stanley-cup-final-2025/
