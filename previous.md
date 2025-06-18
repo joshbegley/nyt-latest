@@ -1,3 +1,19 @@
+**Former Kansas City Chiefs employee sues for racial discrimination**\
+`Ramzee Robinson is seeking $5,000,000, plus declaratory and equitable relief from the Chiefs.`\
+https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/
+
+**Regulators Approve a Twice-Yearly Shot to Prevent H.I.V. Infection**\
+`The drug could change the course of the AIDS epidemic. But the Trump administration has gutted the programs that might have paid for it in low-income countries.`\
+https://nytimes.com/2025/06/18/health/hiv-fda-lenacapavir.html
+
+**Tiny Love Stories: ‘He Greeted Me With the Same Loving Hug’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/18/style/tiny-modern-love-stories-he-greeted-me-with-the-same-loving-hug.html
+
+**Seattle lost the Sonics to OKC in 2008. A Thunder title run feels like 'last twist of the knife'**\
+`NBA expansion is possible, but a title for the city that took Seattle's franchise in 2008 would still sting: "It's not their team."`\
+https://nytimes.com/athletic/6434848/2025/06/18/nba-finals-2025-okc-thunder-seattle-supersonics/
+
 **Inside the Chaos Swirling Through a D.N.C. Desperate for Cash**\
 `Under its new leader, Ken Martin, the Democratic National Committee has been plagued by infighting and a drop in big donations, raising alarms from Democrats as they try to win back power.`\
 https://nytimes.com/2025/06/18/us/politics/dnc-ken-martin.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/18/us/journalist-arrested-ice-georgia-mario-guevara.
 **Who stays, who goes from the Oilers' roster this offseason?**\
 `The Oilers, coming off their Stanley Cup Final loss, must make some quick, important decisions.`\
 https://nytimes.com/athletic/6435632/2025/06/18/edmonton-oilers-free-agent-trade/
-
-**MLB Draft Combine: Kayson Cunningham eager to compete; Bruin Agbayani flashes speed, hitting**\
-`News and notes from Day 1 of the MLB Draft Combine.`\
-https://nytimes.com/athletic/6435233/2025/06/18/mlb-draft-combine-kayson-cunningham-bruin-agbayani/
-
-**Trump’s Base in Uproar Over His Openness to Joining Iran Fight**\
-`The president’s supporters are warring over two dueling campaign promises: to steer clear of foreign wars and to prevent Iran from acquiring a nuclear weapon.`\
-https://nytimes.com/2025/06/18/us/politics/trump-maga-base-iran-israel.html
-
-**The Windup: Former Red Sox powering NL West**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6434342/2025/06/18/devers-betts-trade-nl-west-the-windup/
-
-**If You Were Given the Chance to Save a Life, Wouldn’t You?**\
-`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Vaishnavi Ravindranath, age 17.`\
-https://nytimes.com/2025/06/18/learning/if-you-were-given-the-chance-to-save-a-life-wouldnt-you.html
 
