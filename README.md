@@ -1,3 +1,11 @@
+**See where Israeli strikes have damaged Iranian nuclear and military facilities so far.**\
+`By Karen Yourish`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/see-where-israeli-strikes-have-damaged-iranian-nuclear-and-military-facilities-so-far
+
+**How Florida’s Attempt to Let Teens Sleep Longer Fell Apart**\
+`After lawmakers required high schools to start no earlier than 8:30 a.m., school administrators complained that it was unworkable. Last month, Gov. Ron DeSantis signed a repeal.`\
+https://nytimes.com/2025/06/18/us/florida-high-school-teenagers-sleep.html
+
 **Lowetide: What changes could help Oilers return to Stanley Cup Final again?**\
 `After losing to the Panthers for a second straight season, the Oilers are looking ahead to an active summer.`\
 https://nytimes.com/athletic/6431079/2025/06/18/edmonton-oilers-stanley-cup-final-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6433788/2025/06/18/rose-lavelle-uswnt-roster-summer
 **A Man Drove a Car Down Rome’s Spanish Steps. It Did Not Go Great.**\
 `Don’t try this at home.`\
 https://nytimes.com/2025/06/18/world/europe/spanish-steps-rome-driver-car.html
-
-**Police Mishandled Fatal Crash Between American Driver and U.K. Teenager, Review Says**\
-`An independent report found that officers should have arrested the driver, Anne Sacoolas, at the scene. She later claimed diplomatic immunity and fled Britain.`\
-https://nytimes.com/2025/06/18/world/europe/uk-anne-sacoolas-harry-dunn-police.html
-
-**No football on Boxing Day in the 2025-26 Premier League. Will that really be the case?**\
-`The fixtures for the new season have been announced and none are scheduled for December 26...`\
-https://nytimes.com/athletic/6434639/2025/06/18/boxing-day-football-premier-league/
 
