@@ -1,3 +1,15 @@
+**2026 Stanley Cup odds: Panthers three-peat, Canada drought-buster or a new contender?**\
+`The Oilers lost the Stanley Cup Final again to the Panthers, but top the odds board in the opening odds on BetMGM.`\
+https://nytimes.com/athletic/6433844/2025/06/17/2026-stanley-cup-odds-oilers-panthers-avalanche/
+
+**Dodgers, Padres let sparks fly as Ohtani, Tatis on receiving end of hit-by-pitches**\
+`It took five games between the Dodgers and Padres in the span of eight days for old bitterness to come through.`\
+https://nytimes.com/athletic/6434002/2025/06/17/dodgers-padres-incident-ejection-june/
+
+**Don't count out Atlanta Dream, even after Commissioner's Cup loss to Liberty**\
+`New coach Karl Smesko took vital lessons from Tuesday's loss to New York. `\
+https://nytimes.com/athletic/6433992/2025/06/17/atlanta-dream-karl-smesko-commissioners-cup-new-york-liberty/
+
 **Brad Marchand returns to hockey heaven with Panthers, sets new standard for trade-deadline pickups**\
 `Marchand unleashed 14 years of pent-up emotion when he lifted the Stanley Cup above his head again Tuesday for the first time since 2011.`\
 https://nytimes.com/athletic/6433899/2025/06/17/brad-marchand-panthers-stanley-cup-trade/

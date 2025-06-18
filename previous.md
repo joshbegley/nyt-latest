@@ -1,3 +1,15 @@
+**2026 Stanley Cup odds: Panthers three-peat, Canada drought-buster or a new contender?**\
+`The Oilers lost the Stanley Cup Final again to the Panthers, but top the odds board in the opening odds on BetMGM.`\
+https://nytimes.com/athletic/6433844/2025/06/17/2026-stanley-cup-odds-oilers-panthers-avalanche/
+
+**Dodgers, Padres let sparks fly as Ohtani, Tatis on receiving end of hit-by-pitches**\
+`It took five games between the Dodgers and Padres in the span of eight days for old bitterness to come through.`\
+https://nytimes.com/athletic/6434002/2025/06/17/dodgers-padres-incident-ejection-june/
+
+**Don't count out Atlanta Dream, even after Commissioner's Cup loss to Liberty**\
+`New coach Karl Smesko took vital lessons from Tuesday's loss to New York. `\
+https://nytimes.com/athletic/6433992/2025/06/17/atlanta-dream-karl-smesko-commissioners-cup-new-york-liberty/
+
 **Brad Marchand returns to hockey heaven with Panthers, sets new standard for trade-deadline pickups**\
 `Marchand unleashed 14 years of pent-up emotion when he lifted the Stanley Cup above his head again Tuesday for the first time since 2011.`\
 https://nytimes.com/athletic/6433899/2025/06/17/brad-marchand-panthers-stanley-cup-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6424373/2025/06/17/monterrey-inter-sergio-ramos-hig
 **'It’s really hard': Back-to-back Stanley Cup wins make the Panthers the latest dynasty of the cap era**\
 `The Panthers are just the third team to win consecutive Cups in the cap era. It’s rare to do it in a league full of parity.`\
 https://nytimes.com/athletic/6433719/2025/06/17/panthers-stanley-cup-dynasty/
-
-**Low fan turnout at Club World Cup match between Sundowns, Ulsan HD delayed by storms**\
-`FIFA announced an official crowd of 3,142, by far the lowest of the tournament so far.`\
-https://nytimes.com/athletic/6433727/2025/06/17/sparse-crowd-club-world-cup-match/
-
-**Perfect Serve**\
-`Eli Cotham floats an idea.`\
-https://nytimes.com/2025/06/17/crosswords/daily-puzzle-2025-06-18.html
-
-**Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
-`After the Giants communicated their intentions with their new star, Devers expressed a willingness to "play wherever they want me to play."`\
-https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/
 
