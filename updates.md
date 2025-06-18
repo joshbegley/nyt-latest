@@ -1,3 +1,19 @@
+**As Pakistan Moves to Ban Black Magic, Astrologers See a Bad Omen**\
+`Spiritual practitioners fear that legislation imposing prison time for vaguely defined occult services could cast a wide net.`\
+https://nytimes.com/2025/06/18/world/asia/pakistan-black-magic.html
+
+**Mamdani Narrows Cuomo’s Lead in N.Y.C. Mayor’s Race, New Poll Finds**\
+`The Marist survey suggests that Andrew M. Cuomo is still the favorite to win the Democratic primary, but his advantage over Zohran Mamdani is dwindling.`\
+https://nytimes.com/2025/06/18/nyregion/mamdani-cuomo-marist-poll.html
+
+**The Dark Side of China’s Gold Frenzy**\
+`Chinese investors have poured their savings into gold, attracted by promises of rising prices. One company’s sudden closure is a cautionary tale.`\
+https://nytimes.com/2025/06/18/business/china-gold.html
+
+**Corrections: June 18, 2025**\
+`Corrections that appeared in print on Wednesday, June 18, 2025.`\
+https://nytimes.com/2025/06/18/pageoneplus/corrections-june-18-2025.html
+
 **Quote of the Day: The Army Major Cast Out by Trump’s Trans Ban**\
 `Quotation of the Day for Wednesday, June 18, 2025`\
 https://nytimes.com/2025/06/17/pageoneplus/quote-of-the-day-the-army-major-cast-out-by-trumps-trans-ban.html
