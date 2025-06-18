@@ -1,3 +1,7 @@
+**Former Kansas City Chiefs employee sues for racial discrimination**\
+`Ramzee Robinson is seeking $5 million, plus declaratory and equitable relief from the Chiefs.`\
+https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/
+
 **In ‘Fight Back,’ the Audience Learns to Act Up**\
 `This immersive theater experiment enlists attendees to help recreate an AIDS activist meeting from 1989 as an exercise in empathy.`\
 https://nytimes.com/2025/06/18/theater/fight-back-act-up-recreation-gay-pride.html

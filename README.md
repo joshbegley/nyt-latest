@@ -1,3 +1,15 @@
+**FIFA displays anti-racism messaging at Club World Cup after backlash**\
+`The messaging was displayed to mark International Day for Countering Hate Speech.`\
+https://nytimes.com/athletic/6435535/2025/06/18/fifa-racism-discrimination-messaging-club-world-cup/
+
+**Stanley Nelson, Journalist Who Probed Klan Murders, Dies at 69**\
+`Born and raised in Louisiana, he investigated unresolved civil-rights-era killings in the Deep South. His reporting on one of those cases made him a Pulitzer Prize finalist.`\
+https://nytimes.com/2025/06/18/us/stanley-nelson-dead.html
+
+**Kennedy’s Purge Is a ‘Code Red’ for Vaccines in America**\
+`The H.H.S. secretary is destroying the public trust.`\
+https://nytimes.com/2025/06/18/opinion/kennedy-vaccine-panel.html
+
 **In ‘Fight Back,’ the Audience Learns to Act Up**\
 `This immersive theater experiment enlists attendees to help recreate an AIDS activist meeting from 1989 as an exercise in empathy.`\
 https://nytimes.com/2025/06/18/theater/fight-back-act-up-recreation-gay-pride.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/18/style/tiny-modern-love-stories-he-greeted-me-with
 **Seattle lost the Sonics to OKC in 2008. A Thunder title run feels like 'last twist of the knife'**\
 `NBA expansion is possible, but a title for the city that took Seattle's franchise in 2008 would still sting: "It's not their team."`\
 https://nytimes.com/athletic/6434848/2025/06/18/nba-finals-2025-okc-thunder-seattle-supersonics/
-
-**Inside the Chaos Swirling Through a D.N.C. Desperate for Cash**\
-`Under its new leader, Ken Martin, the Democratic National Committee has been plagued by infighting and a drop in big donations, raising alarms from Democrats as they try to win back power.`\
-https://nytimes.com/2025/06/18/us/politics/dnc-ken-martin.html
-
-**Despite danger from Iran’s deadly missile fire, Israeli morale appears high.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/despite-danger-from-irans-deadly-missile-fire-israeli-morale-is-high
-
-**Dan Storper, Evangelist of World Music, Dies at 74**\
-`His record label, Putumayo, gathered sounds from around the globe and pushed them into the mainstream, selling 35 million compilation CDs worldwide.`\
-https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
 
