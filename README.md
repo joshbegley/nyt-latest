@@ -1,3 +1,7 @@
+**As G7 Talks End in Canada, Ukraine Comes Away With Little**\
+`President Volodymyr Zelensky had hoped to secure more support from the Group of 7 nations, but the crisis in the Middle East was seen as a more urgent priority.`\
+https://nytimes.com/2025/06/18/world/canada/g7-ukraine-trump-zelensky.html
+
 **Panthers' Matthew Tkachuk played through torn adductor, hernia in playoffs**\
 `Coach Paul Maurice quipped after Tuesday’s 5-1 win over Edmonton that the medical term for Tkachuk was, “He was a mess.”`\
 https://nytimes.com/athletic/6434125/2025/06/18/panthers-matthew-tkachuk-injury-nhl-stanley-cup-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431574/2025/06/18/xabi-alonsos-awkward-start-at-re
 **What Lukas Nmecha will bring to Leeds: Strength, competition and, if he stays fit, useful goals**\
 `The striker is joining from Wolfsburg under freedom of contract and will be keen to make up for lost time after injury issues in Germany`\
 https://nytimes.com/athletic/6433151/2025/06/18/leeds-lukas-nmecha-farke-analysis/
-
-**Crystal Palace and player pathways: What will be the club's strategy next season?**\
-`The FA Cup winners are waiting to hear whether they will compete in the Europa League, with the future of their fringe players up in the air`\
-https://nytimes.com/athletic/6415508/2025/06/18/crystal-palace-europa-franca-pathway-loan/
 
