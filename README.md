@@ -1,3 +1,7 @@
+**Ravens, cornerback Jaire Alexander agree to 1-year deal**\
+`The Packers released Alexander, 28, last week after the two sides couldn’t agree to a restructured contract.`\
+https://nytimes.com/athletic/6427434/2025/06/18/jaire-alexander-signs-ravens/
+
 **David Lynch’s Director’s Chair and 400 Other Belongings Go on Auction**\
 `Lynch’s estate arranged with Julien’s Auction to sell off cameras, screenplays, furniture and more, giving his fans a chance to bid on pieces of film history.`\
 https://nytimes.com/2025/06/18/arts/design/david-lynch-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/opinion/ai-college.html
 **Troops in Mideast Would Be Vulnerable to Iran Strikes on U.S. Targets**\
 `Iran’s leader vowed that his country would respond to any U.S. involvement in the war with Israel.`\
 https://nytimes.com/2025/06/18/world/middleeast/us-troops-middle-east-iran.html
-
-**Phillies trade deadline: Answering 9 key questions, plus pondering Kyle Schwarber's future**\
-`Will Mick Abel stay with the Phillies or become a key trade piece? Answering this and many more questions about the July 31 deadline. `\
-https://nytimes.com/athletic/6435285/2025/06/18/phillies-trade-deadline-kyle-schwarber-extension/
 
