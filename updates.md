@@ -1,3 +1,11 @@
+**In ‘Fight Back,’ the Audience Learns to Act Up**\
+`This immersive theater experiment enlists attendees to help recreate an AIDS activist meeting from 1989 as an exercise in empathy.`\
+https://nytimes.com/2025/06/18/theater/fight-back-act-up-recreation-gay-pride.html
+
+**How to watch Atlanta Dream games — and why you should follow this sleeper team**\
+`Atlanta has won eight of its first dozen games, a relief after six straight losing seasons. Here's how to watch the remaining games.`\
+https://nytimes.com/athletic/6433679/2025/06/18/wnba-atlanta-dream-games-2025-how-to-watch/
+
 **There are about 40,000 U.S. troops in the Middle East.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40000-us-troops-in-the-middle-east

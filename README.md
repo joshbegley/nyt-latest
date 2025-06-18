@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6433679/2025/06/18/wnba-atlanta-dream-games-2025-ho
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40000-us-troops-in-the-middle-east
 
 **Former Kansas City Chiefs employee sues for racial discrimination**\
-`Ramzee Robinson is seeking $5,000,000, plus declaratory and equitable relief from the Chiefs.`\
+`Ramzee Robinson is seeking $5 million, plus declaratory and equitable relief from the Chiefs.`\
 https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/
 
 **Regulators Approve a Twice-Yearly Shot to Prevent H.I.V. Infection**\
