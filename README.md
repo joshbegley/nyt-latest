@@ -1,3 +1,7 @@
+**CFP leadership says there's no leading contender for Playoff format in 2026**\
+`"The format could be a lot different in '26 or it may be the same," the CFP executive director said.`\
+https://nytimes.com/athletic/6436485/2025/06/18/college-football-playoff-schedule-strength-selection-meetings/
+
 **Lionel Messi 'fine' and fit to play for Inter Miami against Porto in Club World Cup**\
 `Inter Miami coach Javier Mascherano says Lionel Messi is &#8220;fine&#8221; and available to play Porto on Thursday in the MLS side&#8217;s second Club World Cup game.`\
 https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/18/world/israel-iran-trump/if-the-us-joins-isra
 **Shedeur Sanders issued citation for driving over 100 mph**\
 `Sanders was pulled over Tuesday morning, police records show`\
 https://nytimes.com/athletic/6436229/2025/06/18/shedeur-sanders-citation-driving-speed-limit/
-
-**Go Ahead, Have a ‘Fridge Cigarette’**\
-`The click of the can, the sound of the bubbles: The internet is reframing the humble soda as an indulgent escape.`\
-https://nytimes.com/2025/06/18/style/fridge-cigarette-diet-coke.html
 

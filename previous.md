@@ -1,3 +1,19 @@
+**Lionel Messi 'fine' and fit to play for Inter Miami against Porto in Club World Cup**\
+`Inter Miami coach Javier Mascherano says Lionel Messi is &#8220;fine&#8221; and available to play Porto on Thursday in the MLS side&#8217;s second Club World Cup game.`\
+https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
+
+**Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
+`As President Trump ponders swift military action in Iran, there were similar expectations that the war in Iraq would be quick and triumphant.`\
+https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
+
+**For Tennessee’s Transgender Families, the Court Ruling Was Bitter, but Expected**\
+`The state has been a leader in the rollback of L.G.B.T.Q. rights.`\
+https://nytimes.com/2025/06/18/us/politics/tennessee-transgender-care-supreme-court.html
+
+**My Daughter Was at the Center of the Supreme Court Case on Trans Care. Our Hearts Are Broken.**\
+`As parents, we know better than state officials what our child needs.`\
+https://nytimes.com/2025/06/18/opinion/supreme-court-trans-care.html
+
 **U.S. to Review Social Media Posts of Student and Scholar Visa Applicants**\
 `The State Department is restarting the processing of visa applications from students and visiting scholars, but is screening for  “hostility” toward the United States.`\
 https://nytimes.com/2025/06/18/us/politics/student-visa-applications.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6436229/2025/06/18/shedeur-sanders-citation-driving
 **Go Ahead, Have a ‘Fridge Cigarette’**\
 `The click of the can, the sound of the bubbles: The internet is reframing the humble soda as an indulgent escape.`\
 https://nytimes.com/2025/06/18/style/fridge-cigarette-diet-coke.html
-
-**Justice Dept. to Cut Two-Thirds of Inspectors Monitoring Gun Sales**\
-`The move is part of the Trump administration’s effort to defang and downsize the Bureau of Alcohol, Tobacco, Firearms and Explosives.`\
-https://nytimes.com/2025/06/18/us/politics/justice-dept-guns-atf-trump.html
-
-**Israeli Strikes Kill Civilians Across Iran**\
-`Israel has said it does not target Iranian civilians, but hundreds have died in the violence, among them a poet and her family, an equestrian and a graphic designer.`\
-https://nytimes.com/2025/06/18/world/middleeast/iran-civilian-deaths-israel-strikes.html
-
-**Social Security’s Finances Erode Further and Could Spell Benefit Cuts**\
-`The nation’s key program for retiree benefits continues to see financing shortfalls. Unless Congress acts, those drops could lead to payment cuts in eight years.`\
-https://nytimes.com/2025/06/18/business/social-security-benefits-shortfall.html
-
-**How ‘Jaws’ Made a Template for the Modern Blockbuster**\
-`Much more than a mere creature feature, “Jaws” created a playbook that filmmakers have followed closely for 50 years.`\
-https://nytimes.com/interactive/2025/06/18/upshot/jaws-at-50.html
 

@@ -1,3 +1,19 @@
+**Lionel Messi 'fine' and fit to play for Inter Miami against Porto in Club World Cup**\
+`Inter Miami coach Javier Mascherano says Lionel Messi is &#8220;fine&#8221; and available to play Porto on Thursday in the MLS side&#8217;s second Club World Cup game.`\
+https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
+
+**Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
+`As President Trump ponders swift military action in Iran, there were similar expectations that the war in Iraq would be quick and triumphant.`\
+https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
+
+**For Tennessee’s Transgender Families, the Court Ruling Was Bitter, but Expected**\
+`The state has been a leader in the rollback of L.G.B.T.Q. rights.`\
+https://nytimes.com/2025/06/18/us/politics/tennessee-transgender-care-supreme-court.html
+
+**My Daughter Was at the Center of the Supreme Court Case on Trans Care. Our Hearts Are Broken.**\
+`As parents, we know better than state officials what our child needs.`\
+https://nytimes.com/2025/06/18/opinion/supreme-court-trans-care.html
+
 **U.S. to Review Social Media Posts of Student and Scholar Visa Applicants**\
 `The State Department is restarting the processing of visa applications from students and visiting scholars, but is screening for  “hostility” toward the United States.`\
 https://nytimes.com/2025/06/18/us/politics/student-visa-applications.html
