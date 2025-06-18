@@ -1,3 +1,7 @@
+**How to watch Atlanta Dream games — and why you should follow this sleeper team**\
+`Atlanta has won eight of its first dozen games, a relief after six straight losing seasons. Here's how to watch the remaining games.`\
+https://nytimes.com/athletic/6433679/2025/06/18/wnba-atlanta-dream-games-2025-how-to-watch/
+
 **There are about 40,000 U.S. troops in the Middle East.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40000-us-troops-in-the-middle-east
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
 **The Briefing - Man City 2 Wydad 0: Contrasting debuts for Reijnders and Cherki as Foden signals a return to form**\
 `Analysis of Manchester City's 2-0 victory against Wydad at the FIFA Club World Cup `\
 https://nytimes.com/athletic/6424772/2025/06/18/man-city-wydad-club-world-cup-analysis-foden/
-
-**Reporter Is Detained by ICE After Reporting on Immigration Protest**\
-`Mario Guevara, a Spanish-language reporter originally from El Salvador, was arrested while covering a “No Kings” protest outside Atlanta on Saturday, his lawyers said.`\
-https://nytimes.com/2025/06/18/us/journalist-arrested-ice-georgia-mario-guevara.html
 

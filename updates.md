@@ -1,3 +1,7 @@
+**There are about 40,000 U.S. troops in the Middle East.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40000-us-troops-in-the-middle-east
+
 **Former Kansas City Chiefs employee sues for racial discrimination**\
 `Ramzee Robinson is seeking $5,000,000, plus declaratory and equitable relief from the Chiefs.`\
 https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/

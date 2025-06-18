@@ -1,3 +1,7 @@
+**There are about 40,000 U.S. troops in the Middle East.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40000-us-troops-in-the-middle-east
+
 **Former Kansas City Chiefs employee sues for racial discrimination**\
 `Ramzee Robinson is seeking $5,000,000, plus declaratory and equitable relief from the Chiefs.`\
 https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424772/2025/06/18/man-city-wydad-club-world-cup-an
 **Reporter Is Detained by ICE After Reporting on Immigration Protest**\
 `Mario Guevara, a Spanish-language reporter originally from El Salvador, was arrested while covering a “No Kings” protest outside Atlanta on Saturday, his lawyers said.`\
 https://nytimes.com/2025/06/18/us/journalist-arrested-ice-georgia-mario-guevara.html
-
-**Who stays, who goes from the Oilers' roster this offseason?**\
-`The Oilers, coming off their Stanley Cup Final loss, must make some quick, important decisions.`\
-https://nytimes.com/athletic/6435632/2025/06/18/edmonton-oilers-free-agent-trade/
 
