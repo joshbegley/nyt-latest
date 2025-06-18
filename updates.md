@@ -1,3 +1,7 @@
+**A Man Drove a Car Down Rome’s Spanish Steps. It Did Not Go Great.**\
+`Don’t try this at home.`\
+https://nytimes.com/2025/06/18/world/europe/spanish-steps-rome-driver-car.html
+
 **Police Mishandled Fatal Crash Between American Driver and U.K. Teenager, Review Says**\
 `An independent report found that officers should have arrested the driver, Anne Sacoolas, at the scene. She later claimed diplomatic immunity and fled Britain.`\
 https://nytimes.com/2025/06/18/world/europe/uk-anne-sacoolas-harry-dunn-police.html

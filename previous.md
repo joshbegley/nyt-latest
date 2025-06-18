@@ -1,3 +1,7 @@
+**A Man Drove a Car Down Rome’s Spanish Steps. It Did Not Go Great.**\
+`Don’t try this at home.`\
+https://nytimes.com/2025/06/18/world/europe/spanish-steps-rome-driver-car.html
+
 **Police Mishandled Fatal Crash Between American Driver and U.K. Teenager, Review Says**\
 `An independent report found that officers should have arrested the driver, Anne Sacoolas, at the scene. She later claimed diplomatic immunity and fled Britain.`\
 https://nytimes.com/2025/06/18/world/europe/uk-anne-sacoolas-harry-dunn-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6432383/2025/06/18/christopher-bell-nascar-sponsors
 **Barcelona sign Espanyol goalkeeper Garcia**\
 `The 24-year-old joins the club on a six-year deal that runs through to 2031.`\
 https://nytimes.com/athletic/6363649/2025/06/18/joan-garcia-barcelona-transfer/
-
-**Lawsuit Accuses Tyler Perry of Sexual Assault**\
-`Derek Dixon, an actor who worked with Mr. Perry, is suing him for $260 million for sexual harassment, assault and battery. A representative for Mr. Perry called the allegations a “scam.”`\
-https://nytimes.com/2025/06/18/arts/tyler-perry-derek-dixon-sexual-assault-lawsuit.html
 
