@@ -4,13 +4,13 @@ https://nytimes.com/athletic/6435933/2025/06/18/afc-north-preview-2025-nfl-benga
 
 **America Must Not Rush Into a War Against Iran**\
 `The decision to declare war rests with Congress alone.`\
-https://nytimes.com/2025/06/18/opinion/editorials/iran-war-israel-trump.html
+https://nytimes.com/2025/06/18/opinion/iran-war-israel-trump.html
 
 **Vicki Goldberg Dies at 88; Saw Photography Through a Literary Lens**\
 `An influential photography critic, she wrote essays, newspaper columns and books, including a notable biography of the photojournalist Margaret Bourke-White.`\
 https://nytimes.com/2025/06/18/arts/vicki-goldberg-dead.html
 
-**Trump Suggests Withholding California Disaster Aid Over His Feud With Newsom**\
+**Trump Suggests He May Withhold California Disaster Aid Over His Feud With Newsom**\
 `President Trump and Gov. Gavin Newsom have traded sharp insults in recent days as California awaits billions of dollars in federal wildfire relief.`\
 https://nytimes.com/2025/06/18/us/trump-california-disaster-aid-newsom.html
 

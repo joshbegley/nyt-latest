@@ -1,3 +1,11 @@
+**America Must Not Rush Into a War Against Iran**\
+`The decision to declare war rests with Congress alone.`\
+https://nytimes.com/2025/06/18/opinion/iran-war-israel-trump.html
+
+**Trump Suggests He May Withhold California Disaster Aid Over His Feud With Newsom**\
+`President Trump and Gov. Gavin Newsom have traded sharp insults in recent days as California awaits billions of dollars in federal wildfire relief.`\
+https://nytimes.com/2025/06/18/us/trump-california-disaster-aid-newsom.html
+
 **Scoop City: 2025 AFC North preview, plus the Bengals rookie holdout**\
 `Key questions, breakout players and positions to watch in the AFC North, plus a look at the Bengals rookie holdout situation.`\
 https://nytimes.com/athletic/6435933/2025/06/18/afc-north-preview-2025-nfl-bengals-steelers-ravens-browns/
