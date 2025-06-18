@@ -1,3 +1,11 @@
+**Canada's friendly roadmap to the 2026 World Cup comes into focus**\
+`Canada's men are building momentum toward the World Cup they are cohosting, and future opponents will play a significant role in their prep`\
+https://nytimes.com/athletic/6433643/2025/06/17/canada-friendlies-2026-world-cup-preparation-opponents/
+
+**N.A.A.C.P. Won’t Invite Trump to Its National Convention, Breaking 116-Year Tradition**\
+`The move by the N.A.A.C.P., the nation’s largest and oldest civil rights organization, marked a new low in its relationship with the Trump administration.`\
+https://nytimes.com/2025/06/17/us/trump-naacp-convention.html
+
 **Fever-Sun scuffle leads to a Caitlin Clark tech, Jacy Sheldon flagrant foul**\
 `The tension was building between Clark and Sheldon from the start of the game as Sheldon hounded Clark on defense.`\
 https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
@@ -28,13 +36,5 @@ https://nytimes.com/athletic/6433611/2025/06/17/nascar-lawsuit-front-row-23xi/
 
 **Cruise Will Receive an Honorary Oscar at Governors Awards**\
 `The film industry will honor Tom Cruise this fall with an Honorary Academy Award for lifetime achievement, along with the choreographer Debbie Allen and the production designer Wynn Thomas.`\
-https://nytimes.com/2025/06/17/movies/cruise-will-receive-an-honorary-oscar-at-governors-awards.html
-
-**David Hekili Kenui Bell, an Actor in ‘Lilo & Stitch,’ Dies at 46**\
-`Mr. Bell’s first role in a feature film was providing comic relief in the Disney hit.`\
-https://nytimes.com/2025/06/17/arts/david-hekili-kenui-bell-dead.html
-
-**Federal Judge Certifies Class Action for Transgender People Seeking Passports**\
-`A preliminary injunction blocking the State Department from enforcing a new passport limit extends to all trans passport seekers.`\
-https://nytimes.com/2025/06/17/us/passports-transgender-trump-administration.html
+https://nytimes.com/2025/06/17/movies/tom-cruise-oscar-honorary.html
 
