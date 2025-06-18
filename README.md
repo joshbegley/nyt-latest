@@ -1,3 +1,11 @@
+**The Court Upheld a State Ban on Transgender Care for Minors. Here’s What We Know.**\
+`The decision to uphold the Tennessee law will most likely mean a patchwork of laws throughout the country, a map that traces current political polarization.`\
+https://nytimes.com/2025/06/18/us/politics/supreme-court-trans-what-we-know.html
+
+**What to know about the Fed’s decision.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates/what-to-know-about-the-feds-decision
+
 **U.S. lawmakers say Gulf Arab leaders privately called for eliminating the Iranian nuclear threat.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/18/theater/fight-back-act-up-recreation-gay-pride.ht
 **How to watch Atlanta Dream games — and why you should follow this sleeper team**\
 `Atlanta has won eight of its first dozen games, a relief after six straight losing seasons. Here's how to watch the remaining games.`\
 https://nytimes.com/athletic/6433679/2025/06/18/wnba-atlanta-dream-games-2025-how-to-watch/
-
-**There are about 40,000 U.S. troops in the Middle East.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40000-us-troops-in-the-middle-east
-
-**Former Kansas City Chiefs employee sues for racial discrimination**\
-`Ramzee Robinson is seeking $5 million, plus declaratory and equitable relief from the Chiefs.`\
-https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/
 
