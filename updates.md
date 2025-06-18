@@ -1,3 +1,27 @@
+**U.S. Congress members say Gulf Arab leaders privately call for eliminating Iranian nuclear threat.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat
+
+**Karen Read Found Not Guilty of Murder in Boyfriend’s Death Outside Boston**\
+`A jury cleared Ms. Read of charges related to the 2022 death of her boyfriend, a Boston police officer, and convicted her only of drunk driving, in a trial that attracted wide attention.`\
+https://nytimes.com/2025/06/18/us/karen-read-trial-verdict.html
+
+**Andrea Lucas Defends E.E.O.C. Record Under Trump at Senate Hearing**\
+`Ms. Lucas, the acting chair of the Equal Employment Opportunity Commission, is seeking Senate approval to renew her role as commissioner, which is a requirement for her leadership post.`\
+https://nytimes.com/2025/06/18/us/andrea-lucas-eeoc-senate-confirmation.html
+
+**FIFA displays anti-racism messaging at Club World Cup after backlash**\
+`The messaging was displayed to mark International Day for Countering Hate Speech.`\
+https://nytimes.com/athletic/6435535/2025/06/18/fifa-racism-discrimination-messaging-club-world-cup/
+
+**Stanley Nelson, Journalist Who Investigated Klan Murders, Dies at 69**\
+`Born and raised in Louisiana, he investigated unresolved civil-rights-era killings in the Deep South. His reporting on one of those cases made him a Pulitzer Prize finalist.`\
+https://nytimes.com/2025/06/18/us/stanley-nelson-dead.html
+
+**Kennedy’s Purge Is a ‘Code Red’ for Vaccines in America**\
+`The H.H.S. secretary is destroying the public trust.`\
+https://nytimes.com/2025/06/18/opinion/kennedy-vaccine-panel.html
+
 **Former Kansas City Chiefs employee sues for racial discrimination**\
 `Ramzee Robinson is seeking $5 million, plus declaratory and equitable relief from the Chiefs.`\
 https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/

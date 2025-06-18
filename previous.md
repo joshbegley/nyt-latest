@@ -1,3 +1,27 @@
+**U.S. Congress members say Gulf Arab leaders privately call for eliminating Iranian nuclear threat.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat
+
+**Karen Read Found Not Guilty of Murder in Boyfriend’s Death Outside Boston**\
+`A jury cleared Ms. Read of charges related to the 2022 death of her boyfriend, a Boston police officer, and convicted her only of drunk driving, in a trial that attracted wide attention.`\
+https://nytimes.com/2025/06/18/us/karen-read-trial-verdict.html
+
+**Andrea Lucas Defends E.E.O.C. Record Under Trump at Senate Hearing**\
+`Ms. Lucas, the acting chair of the Equal Employment Opportunity Commission, is seeking Senate approval to renew her role as commissioner, which is a requirement for her leadership post.`\
+https://nytimes.com/2025/06/18/us/andrea-lucas-eeoc-senate-confirmation.html
+
+**FIFA displays anti-racism messaging at Club World Cup after backlash**\
+`The messaging was displayed to mark International Day for Countering Hate Speech.`\
+https://nytimes.com/athletic/6435535/2025/06/18/fifa-racism-discrimination-messaging-club-world-cup/
+
+**Stanley Nelson, Journalist Who Investigated Klan Murders, Dies at 69**\
+`Born and raised in Louisiana, he investigated unresolved civil-rights-era killings in the Deep South. His reporting on one of those cases made him a Pulitzer Prize finalist.`\
+https://nytimes.com/2025/06/18/us/stanley-nelson-dead.html
+
+**Kennedy’s Purge Is a ‘Code Red’ for Vaccines in America**\
+`The H.H.S. secretary is destroying the public trust.`\
+https://nytimes.com/2025/06/18/opinion/kennedy-vaccine-panel.html
+
 **In ‘Fight Back,’ the Audience Learns to Act Up**\
 `This immersive theater experiment enlists attendees to help recreate an AIDS activist meeting from 1989 as an exercise in empathy.`\
 https://nytimes.com/2025/06/18/theater/fight-back-act-up-recreation-gay-pride.html
@@ -13,28 +37,4 @@ https://nytimes.com/live/2025/world/israel-iran-maps-tracking/there-are-about-40
 **Former Kansas City Chiefs employee sues for racial discrimination**\
 `Ramzee Robinson is seeking $5 million, plus declaratory and equitable relief from the Chiefs.`\
 https://nytimes.com/athletic/6435278/2025/06/18/chiefs-lawsuit-discriminatino-ramzee-robinson/
-
-**Regulators Approve a Twice-Yearly Shot to Prevent H.I.V. Infection**\
-`The drug could change the course of the AIDS epidemic. But the Trump administration has gutted the programs that might have paid for it in low-income countries.`\
-https://nytimes.com/2025/06/18/health/hiv-fda-lenacapavir.html
-
-**Tiny Love Stories: ‘He Greeted Me With the Same Loving Hug’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/06/18/style/tiny-modern-love-stories-he-greeted-me-with-the-same-loving-hug.html
-
-**Seattle lost the Sonics to OKC in 2008. A Thunder title run feels like 'last twist of the knife'**\
-`NBA expansion is possible, but a title for the city that took Seattle's franchise in 2008 would still sting: "It's not their team."`\
-https://nytimes.com/athletic/6434848/2025/06/18/nba-finals-2025-okc-thunder-seattle-supersonics/
-
-**Inside the Chaos Swirling Through a D.N.C. Desperate for Cash**\
-`Under its new leader, Ken Martin, the Democratic National Committee has been plagued by infighting and a drop in big donations, raising alarms from Democrats as they try to win back power.`\
-https://nytimes.com/2025/06/18/us/politics/dnc-ken-martin.html
-
-**Despite danger from Iran’s deadly missile fire, Israeli morale appears high.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/despite-danger-from-irans-deadly-missile-fire-israeli-morale-is-high
-
-**Dan Storper, Evangelist of World Music, Dies at 74**\
-`His record label, Putumayo, gathered sounds from around the globe and pushed them into the mainstream, selling 35 million compilation CDs worldwide.`\
-https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
 
