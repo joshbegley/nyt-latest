@@ -1,3 +1,11 @@
+**MLB Draft Combine: Kayson Cunningham eager to compete; Bruin Agbayani flashes speed, hit tool**\
+`News and notes from Day 1 of the MLB Draft Combine.`\
+https://nytimes.com/athletic/6435233/2025/06/18/mlb-draft-combine-kayson-cunningham-bruin-agbayani/
+
+**Trump’s Base in Uproar Over His Openness to Joining Iran Fight**\
+`The president’s supporters are warring over two dueling campaign promises: to steer clear of foreign wars and to prevent Iran from acquiring a nuclear weapon.`\
+https://nytimes.com/2025/06/18/us/politics/trump-maga-base-iran-israel.html
+
 **The Windup: Former Red Sox powering NL West**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6434342/2025/06/18/devers-betts-trade-nl-west-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/18/us/ice-detention-illinois-congress.html
 **The Supreme Court’s Decision on Transgender Care for Minors, Annotated**\
 `The Supreme Court upholds Tennessee’s ban on transgender care for minors.`\
 https://nytimes.com/interactive/2025/06/18/us/doc-annotation-transgender-scotus-case.html
-
-**‘Any Illegal Immigrants?’ Trump Quizzes Workers at the White House.**\
-`President Trump decided to check the immigration status of a work crew installing a new flagpole at the White House.`\
-https://nytimes.com/2025/06/18/us/politics/trump-flagpole-immigrants.html
-
-**27 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
-`Transgender minors and their parents, guardians and doctors have challenged bans in 19 states, with mixed results.`\
-https://nytimes.com/2025/06/18/us/politics/states-trans-treatments-scotus.html
 

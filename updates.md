@@ -1,3 +1,11 @@
+**MLB Draft Combine: Kayson Cunningham eager to compete; Bruin Agbayani flashes speed, hit tool**\
+`News and notes from Day 1 of the MLB Draft Combine.`\
+https://nytimes.com/athletic/6435233/2025/06/18/mlb-draft-combine-kayson-cunningham-bruin-agbayani/
+
+**Trump’s Base in Uproar Over His Openness to Joining Iran Fight**\
+`The president’s supporters are warring over two dueling campaign promises: to steer clear of foreign wars and to prevent Iran from acquiring a nuclear weapon.`\
+https://nytimes.com/2025/06/18/us/politics/trump-maga-base-iran-israel.html
+
 **The Windup: Former Red Sox powering NL West**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6434342/2025/06/18/devers-betts-trade-nl-west-the-windup/
