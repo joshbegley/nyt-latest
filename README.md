@@ -1,3 +1,7 @@
+**Silva rules out Man City summer exit: 'I'm going to stay'**\
+`Silva, who has made over 400 City appearances across eight seasons, has ruled out any suggestion of a summer move away from the Etihad.`\
+https://nytimes.com/athletic/6434521/2025/06/18/bernardo-silva-manchester-city-transfers/
+
 **The Athletic FC: A glimpse of Real Madrid's $72m teen Mastantuono, PL fixtures announced**\
 `Today in TAFC: What will Real Madrid get for $72m when Franco Mastantuono joins, Ramos reminds us of his swagger, EPL fixtures are out!`\
 https://nytimes.com/athletic/6434482/2025/06/18/mastantuono-real-madrid-ramos-header-premier-league-fixtures/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433777/2025/06/18/reds-elly-de-la-cruz-brady-singe
 **For Pirates’ Don Kelly, a Detroit homecoming doubles as a matchup with a mentor**\
 `Pirates manager Don Kelly — once a beloved Tiger — returned to Detroit for the first time as a manager Tuesday.`\
 https://nytimes.com/athletic/6433833/2025/06/18/pirates-don-kelly-detroit-homecoming/
-
-**The Cubs now look like a real Craig Counsell team: 'He deserves every penny'**\
-`"Couns has every one of our best interests in mind," Pete Crow-Armstrong said. "I trust all the decisions he makes."`\
-https://nytimes.com/athletic/6434200/2025/06/18/cubs-brewers-craig-counsell-team/
 
