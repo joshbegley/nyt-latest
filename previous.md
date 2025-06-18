@@ -1,3 +1,11 @@
+**Devils trade Erik Haula to Predators for Jeremy Hanzel, draft pick**\
+`The 34-year-old Haula had 21 points in 69 games this past season, and he returns to the team with which he spent the 2020-21 season.`\
+https://nytimes.com/athletic/6436325/2025/06/18/devils-erik-haula-predators-trade-jeremy-hanzel/
+
+**Iran Rejects Trump’s Call for ‘Surrender’ in War With Israel**\
+`President Trump did not rule out U.S. military intervention on behalf of Israel, saying, “Nobody knows what I’m going to do.”`\
+https://nytimes.com/2025/06/18/world/middleeast/israel-iran-war-us.html
+
 **Predators say captain Roman Josi will play next season despite POTS diagnosis**\
 `Josi is being treated for a condition with symptoms that often include dizziness or fainting.`\
 https://nytimes.com/athletic/6436255/2025/06/18/roman-josi-pots-predators/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424777/2025/06/18/real-madrid-al-hilal-penalty-bou
 **Travelers Championship picks, odds: Sam Burns, Brian Harman among names to watch**\
 `This weekend’s field features several of the tour’s stars, who’ll be anxious to put tough U.S. Open performances past them.`\
 https://nytimes.com/athletic/6436195/2025/06/18/travelers-championship-picks-odds-sam-burns-brian-harman/
-
-**Iran is open to talks with the U.S., a senior diplomat says, even as the supreme leader rejects the idea.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/iran-is-open-to-talks-with-the-us-a-senior-diplomat-says-even-as-the-supreme-leader-rejects-the-idea
-
-**Thursday Briefing: Trump’s Indecision on Iran**\
-`Plus, Studio Ghibliesque video games.`\
-https://nytimes.com/2025/06/18/briefing/trump-iran-israel-india-canada-diplomacy.html
 

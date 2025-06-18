@@ -1,3 +1,11 @@
+**Devils trade Erik Haula to Predators for Jeremy Hanzel, draft pick**\
+`The 34-year-old Haula had 21 points in 69 games this past season, and he returns to the team with which he spent the 2020-21 season.`\
+https://nytimes.com/athletic/6436325/2025/06/18/devils-erik-haula-predators-trade-jeremy-hanzel/
+
+**Iran Rejects Trump’s Call for ‘Surrender’ in War With Israel**\
+`President Trump did not rule out U.S. military intervention on behalf of Israel, saying, “Nobody knows what I’m going to do.”`\
+https://nytimes.com/2025/06/18/world/middleeast/israel-iran-war-us.html
+
 **Predators say captain Roman Josi will play next season despite POTS diagnosis**\
 `Josi is being treated for a condition with symptoms that often include dizziness or fainting.`\
 https://nytimes.com/athletic/6436255/2025/06/18/roman-josi-pots-predators/

@@ -1,5 +1,9 @@
+**U.S. Strike on Iran Would Bring Risks at Every Turn**\
+`The largest perils may lie in the aftermath, many experts say, just as they did in Afghanistan and Iraq.`\
+https://nytimes.com/2025/06/18/us/politics/us-bomb-iran-risks.html
+
 **Devils trade Erik Haula to Predators for Jeremy Hanzel, draft pick**\
-`The 34-year-old Haula had 21 points in 69 games this past season, and he returns to the team with which he spent the 2020-21 season.`\
+`The 34-year-old Haula had 21 points in 69 games this past year, and he returns to the team with which he spent the 2020-21 season.`\
 https://nytimes.com/athletic/6436325/2025/06/18/devils-erik-haula-predators-trade-jeremy-hanzel/
 
 **Iran Rejects Trump’s Call for ‘Surrender’ in War With Israel**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/briefing/scotus-transgender-care-trump-iran.html
 **Real Madrid 1 Al-Hilal 1: Alexander-Arnold's debut, Bounou's penalty heroics and a slow start for Alonso**\
 `The 15-time European champions were outplayed by Al-Hilal at the Hard Rock Stadium but missed a late chance to win it from the penalty spot`\
 https://nytimes.com/athletic/6424777/2025/06/18/real-madrid-al-hilal-penalty-bounou-alonso-trent-analysis/
-
-**Travelers Championship picks, odds: Sam Burns, Brian Harman among names to watch**\
-`This weekend’s field features several of the tour’s stars, who’ll be anxious to put tough U.S. Open performances past them.`\
-https://nytimes.com/athletic/6436195/2025/06/18/travelers-championship-picks-odds-sam-burns-brian-harman/
 
