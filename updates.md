@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Pick best game each week this CFB season to attend. No stadium overlapping**\
+`Plus: Who's got it better next season, CJ Carr at Notre Dame or Julian Sayin at Ohio State? `\
+https://nytimes.com/athletic/6433790/2025/06/18/mandels-mailbag-house-settlement-baylor-auburn-unc/
+
 **Coaches, executives, scouts on Dylan Harper, top guard prospects: 2025 NBA Draft Confidential**\
 `This year's draft features multiple prospects who'd likely have been at or near the top of last year's draft boards.`\
 https://nytimes.com/athletic/6429478/2025/06/18/nba-draft-confidential-guard-2025/

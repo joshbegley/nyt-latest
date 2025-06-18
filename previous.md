@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Pick best game each week this CFB season to attend. No stadium overlapping**\
+`Plus: Who's got it better next season, CJ Carr at Notre Dame or Julian Sayin at Ohio State? `\
+https://nytimes.com/athletic/6433790/2025/06/18/mandels-mailbag-house-settlement-baylor-auburn-unc/
+
 **Coaches, executives, scouts on Dylan Harper, top guard prospects: 2025 NBA Draft Confidential**\
 `This year's draft features multiple prospects who'd likely have been at or near the top of last year's draft boards.`\
 https://nytimes.com/athletic/6429478/2025/06/18/nba-draft-confidential-guard-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phill
 **Why the Yankees are finally ready for the Ben Rice experiment at catcher**\
 `The Yankees believe Rice is ready for the challenge. “I think this guy’s a major-league catcher," catching coordinator Tanner Swanson said.`\
 https://nytimes.com/athletic/6433617/2025/06/18/ben-rice-catcher-experiment-yankees/
-
-**Re-drafting the 2015 MLB Draft: Alex Bregman, Kyle Tucker headline a so-so class**\
-`The Astros had an incredible draft in 2015 and it's reflected in this re-draft, where their top two picks would go 1-2.`\
-https://nytimes.com/athletic/6430735/2025/06/18/2015-mlb-draft-redraft-alex-bregman-kyle-tucker/
 
