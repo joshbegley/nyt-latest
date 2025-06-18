@@ -1,3 +1,7 @@
+**'Embarrassed' Carson Hocevar fined $50k for comments about Mexico City**\
+`Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
+https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
+
 **Judge expresses concern over suit vs. NASCAR, asks what 23XI, Front Row want**\
 `U.S. District Court Judge Kenneth D. Bell issued a warning to both sides at the conclusion of Tuesday hearing.`\
 https://nytimes.com/athletic/6433611/2025/06/17/nascar-lawsuit-front-row-23xi/

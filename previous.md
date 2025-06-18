@@ -1,3 +1,7 @@
+**'Embarrassed' Carson Hocevar fined $50k for comments about Mexico City**\
+`Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
+https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
+
 **Judge expresses concern over suit vs. NASCAR, asks what 23XI, Front Row want**\
 `U.S. District Court Judge Kenneth D. Bell issued a warning to both sides at the conclusion of Tuesday hearing.`\
 https://nytimes.com/athletic/6433611/2025/06/17/nascar-lawsuit-front-row-23xi/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/us/politics/trump-conflicting-messages-workplace-
 **Anne Burrell, Chef and Food Network Star, Dies at 55**\
 `Her distinctive hairstyle and swagger in the kitchen made her one of America’s most recognizable Italian chefs.`\
 https://nytimes.com/2025/06/17/dining/anne-burrell-dead.html
-
-**Virginia Primary Election Results**\
-`Get live results and maps from the 2025 Virginia primary elections.`\
-https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-primary.html
 
