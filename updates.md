@@ -1,3 +1,7 @@
+**Perfect Serve**\
+`Eli Cotham floats an idea.`\
+https://nytimes.com/2025/06/17/crosswords/daily-puzzle-2025-06-18.html
+
 **Fever advance to Commissioner's Cup final; Caitlin Clark scuffles with foes**\
 `Caitlin Clark issued technical foul for role in incident, while Connecticut's Jacy Sheldon earns flagrant foul.`\
 https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
