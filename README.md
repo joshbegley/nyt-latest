@@ -1,3 +1,7 @@
+**Word of the Day: wunderkind**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/18/learning/word-of-the-day-wunderkind.html
+
 **As G7 Talks End in Canada, Ukraine Comes Away With Little**\
 `President Volodymyr Zelensky had hoped to secure more support from the Group of 7 nations, but the crisis in the Middle East was seen as a more urgent priority.`\
 https://nytimes.com/2025/06/18/world/canada/g7-ukraine-trump-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6432311/2025/06/18/mathis-albert-american-club-worl
 **Xabi Alonso's awkward start at Madrid: New hope, little time, big pressure**\
 `The 43-year-old is taking on one of football's most demanding jobs off the back of the Spanish giants' disappointing European season`\
 https://nytimes.com/athletic/6431574/2025/06/18/xabi-alonsos-awkward-start-at-real-madrid-new-hope-little-time-big-pressure/
-
-**What Lukas Nmecha will bring to Leeds: Strength, competition and, if he stays fit, useful goals**\
-`The striker is joining from Wolfsburg under freedom of contract and will be keen to make up for lost time after injury issues in Germany`\
-https://nytimes.com/athletic/6433151/2025/06/18/leeds-lukas-nmecha-farke-analysis/
 
