@@ -1,3 +1,11 @@
+**Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
+`Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
+https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
+
+**Meet Paul Seixas, French cycling's schoolboy with Grand Tour-winning potential**\
+`At just 18 years old, Seixas finished in the Dauphine’s top 10 to fuel hope he may be the one to end his nation's Tour de France drought.`\
+https://nytimes.com/athletic/6432459/2025/06/18/paul-seixas-interview-dauphine-tour-de-france/
+
 **As Pakistan Moves to Ban Black Magic, Astrologers See a Bad Omen**\
 `Spiritual practitioners fear that legislation imposing prison time for vaguely defined occult services could cast a wide net.`\
 https://nytimes.com/2025/06/18/world/asia/pakistan-black-magic.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6434002/2025/06/17/dodgers-padres-incident-ejection
 **Don't count out Atlanta Dream, even after Commissioner's Cup loss to Liberty**\
 `New coach Karl Smesko took vital lessons from Tuesday's loss to New York. `\
 https://nytimes.com/athletic/6433992/2025/06/17/atlanta-dream-karl-smesko-commissioners-cup-new-york-liberty/
-
-**Brad Marchand returns to hockey heaven with Panthers, sets new standard for trade-deadline pickups**\
-`Marchand unleashed 14 years of pent-up emotion when he lifted the Stanley Cup above his head again Tuesday for the first time since 2011.`\
-https://nytimes.com/athletic/6433899/2025/06/17/brad-marchand-panthers-stanley-cup-trade/
-
-**Oilers fall short again in Stanley Cup Final, so where do they go from here?**\
-`Outclassed by the Panthers, the Oilers again face a rocky path to their first championship since 1990.`\
-https://nytimes.com/athletic/6433206/2025/06/17/oilers-stanley-cup-offseason/
 

@@ -1,3 +1,11 @@
+**Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
+`Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
+https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
+
+**Meet Paul Seixas, French cycling's schoolboy with Grand Tour-winning potential**\
+`At just 18 years old, Seixas finished in the Dauphine’s top 10 to fuel hope he may be the one to end his nation's Tour de France drought.`\
+https://nytimes.com/athletic/6432459/2025/06/18/paul-seixas-interview-dauphine-tour-de-france/
+
 **As Pakistan Moves to Ban Black Magic, Astrologers See a Bad Omen**\
 `Spiritual practitioners fear that legislation imposing prison time for vaguely defined occult services could cast a wide net.`\
 https://nytimes.com/2025/06/18/world/asia/pakistan-black-magic.html
