@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/18/opinion/ai-college.html
 https://nytimes.com/2025/06/18/world/middleeast/us-troops-middle-east-iran.html
 
 **Phillies trade deadline: Answering 9 key questions, plus pondering Kyle Schwarber's future**\
-`Will Mick Abel stay with the Phillies or become a key trade piece? Answering this and many more key questions about the July 31 deadline. `\
+`Will Mick Abel stay with the Phillies or become a key trade piece? Answering this and many more questions about the July 31 deadline. `\
 https://nytimes.com/athletic/6435285/2025/06/18/phillies-trade-deadline-kyle-schwarber-extension/
 
 **Trump Administration Will End L.G.B.T.Q. Suicide Prevention Service**\
