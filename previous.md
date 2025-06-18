@@ -1,3 +1,7 @@
+**The Last Time Supreme Court Considered Trans Rights, It Protected Them**\
+`In 2020, the justices ruled 6-3 that gay and transgender workers were shielded from employment discrimination nationwide.`\
+https://nytimes.com/2025/06/18/us/politics/bostock-transgender-supreme-court.html
+
 **How Dr. Phil and a Top Adams Aide Helped Ease ICE’s Path Into New York**\
 `Kaz Daughtry, a freewheeling deputy mayor, has emerged as a crucial ally for the Trump administration and its border czar. So has Dr. Phil.`\
 https://nytimes.com/2025/06/18/nyregion/ice-kaz-adams-nyc-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/theater/anna-christie-michelle-williams-off-broad
 **Investors have seemingly shrugged off trade tensions and geopolitical turmoil.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2025/06/18/business/fed-interest-rates/investors-have-seemingly-shrugged-off-trade-tensions-and-geopolitical-turmoil
-
-**Driver Takes Wrong Turn Down the Spanish Steps in Rome**\
-`Nobody was injured and the Italian police did not announce any damage to the monument.`\
-https://nytimes.com/video/world/europe/100000010236696/spanish-steps-italy-car.html
 

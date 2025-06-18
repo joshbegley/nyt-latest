@@ -1,3 +1,7 @@
+**The Last Time Supreme Court Considered Trans Rights, It Protected Them**\
+`In 2020, the justices ruled 6-3 that gay and transgender workers were shielded from employment discrimination nationwide.`\
+https://nytimes.com/2025/06/18/us/politics/bostock-transgender-supreme-court.html
+
 **‘Any Illegal Immigrants?’ Trump Quizzes Workers at the White House.**\
 `President Trump decided to check the immigration status of a work crew installing a new flagpole at the White House.`\
 https://nytimes.com/2025/06/18/us/politics/trump-flagpole-immigrants.html

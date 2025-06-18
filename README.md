@@ -1,3 +1,19 @@
+**The Windup: Former Red Sox powering NL West**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6434342/2025/06/18/devers-betts-trade-nl-west-the-windup/
+
+**If You Were Given the Chance to Save a Life, Wouldn’t You?**\
+`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Vaishnavi Ravindranath, age 17.`\
+https://nytimes.com/2025/06/18/learning/if-you-were-given-the-chance-to-save-a-life-wouldnt-you.html
+
+**We Need to Chat(GPT)**\
+`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Olivia Han, age 16.`\
+https://nytimes.com/2025/06/18/learning/we-need-to-chat-gpt.html
+
+**The Winners of Our Second Annual Open Letter Contest**\
+`This year’s winning letters — chosen from nearly 10,000 entries — on ChatGPT, class participation, American history, and more.`\
+https://nytimes.com/2025/06/18/learning/the-winners-of-our-second-annual-open-letter-contest.html
+
 **The Last Time Supreme Court Considered Trans Rights, It Protected Them**\
 `In 2020, the justices ruled 6-3 that gay and transgender workers were shielded from employment discrimination nationwide.`\
 https://nytimes.com/2025/06/18/us/politics/bostock-transgender-supreme-court.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/trump-flagpole-immigrants.html
 **27 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
 `Transgender minors and their parents, guardians and doctors have challenged bans in 19 states, with mixed results.`\
 https://nytimes.com/2025/06/18/us/politics/states-trans-treatments-scotus.html
-
-**Ravens, cornerback Jaire Alexander agree to 1-year deal**\
-`The Packers released Alexander, 28, last week after the two sides couldn’t agree to a restructured contract.`\
-https://nytimes.com/athletic/6427434/2025/06/18/jaire-alexander-signs-ravens/
-
-**David Lynch’s Director’s Chair and 400 Other Belongings Go on Auction**\
-`Lynch’s estate arranged with Julien’s Auction to sell off cameras, screenplays, furniture and more, giving his fans a chance to bid on pieces of film history.`\
-https://nytimes.com/2025/06/18/arts/design/david-lynch-auction.html
-
-**Michelle Williams to Star in O’Neill Play on Brooklyn Waterfront**\
-`The actress will lead a revival of “Anna Christie” at St. Ann’s Warehouse, directed by her husband, Thomas Kail, and co-starring Mike Faist.`\
-https://nytimes.com/2025/06/18/theater/anna-christie-michelle-williams-off-broadway.html
-
-**Investors have seemingly shrugged off trade tensions and geopolitical turmoil.**\
-`By Joe Rennison`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates/investors-have-seemingly-shrugged-off-trade-tensions-and-geopolitical-turmoil
 
