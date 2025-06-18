@@ -10,7 +10,7 @@ https://nytimes.com/2025/06/18/us/karen-read-trial-verdict.html
 `Ms. Lucas, the acting chair of the Equal Employment Opportunity Commission, is seeking Senate approval to renew her role as commissioner, which is a requirement for her leadership post.`\
 https://nytimes.com/2025/06/18/us/andrea-lucas-eeoc-senate-confirmation.html
 
-**FIFA displays one-day anti-racism messaging at Club World Cup after backlash**\
+**FIFA displays anti-racism messaging at Club World Cup for one day after backlash**\
 `The messaging was displayed to mark International Day for Countering Hate Speech.`\
 https://nytimes.com/athletic/6435535/2025/06/18/fifa-racism-discrimination-messaging-club-world-cup/
 
