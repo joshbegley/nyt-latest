@@ -1,3 +1,15 @@
+**Lowetide: What changes could help Oilers return to Stanley Cup Final again?**\
+`After losing to the Panthers for a second straight season, the Oilers are looking ahead to an active summer.`\
+https://nytimes.com/athletic/6431079/2025/06/18/edmonton-oilers-stanley-cup-final-2025/
+
+**Dominican Republic's soccer journey aims to raise hope and challenge baseball**\
+`Soccer isn't the Dominican Republic's most popular sport, but it is making rapid headway.`\
+https://nytimes.com/athletic/6431392/2025/06/18/dominican-republic-soccer-finding-futbol-gold-cup/
+
+**We Cannot Escape History**\
+`After moments of great upheaval, scars can last for generations.`\
+https://nytimes.com/2025/06/18/special-series/jenny-erpenbeck-east-germany-history.html
+
 **The Bounce: Shai Gilgeous-Alexander has had a great NBA Finals, but could Jalen Williams win MVP?**\
 `Could Jalen Williams join a unique list of surprising NBA Finals MVP winners?`\
 https://nytimes.com/athletic/6434655/2025/06/18/shai-gilgeous-alexander-jalen-williams-thunder-nba-finals-mvp-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/18/world/europe/uk-anne-sacoolas-harry-dunn-police.h
 **No football on Boxing Day in the 2025-26 Premier League. Will that really be the case?**\
 `The fixtures for the new season have been announced and none are scheduled for December 26...`\
 https://nytimes.com/athletic/6434639/2025/06/18/boxing-day-football-premier-league/
-
-**Was I Wrong to Tell My Dead Friend’s Son That His Father Sold Sperm to a Sperm Bank?**\
-`A reader wonders whether she overstepped by telling her old friend’s son about his father’s tactic for making extra cash during his med school days.`\
-https://nytimes.com/2025/06/18/style/sperm-bank-disclosure-children.html
-
-**Which Astros players’ stock is up down as summer approaches?**\
-`The Astros are once again an American League force. Here is a stock report after 72 games.`\
-https://nytimes.com/athletic/6434157/2025/06/18/houston-astros-player-stock-report-summer/
-
-**Joan Garcia's transfer to Barcelona: The inside story and key questions answered**\
-`Garcia has become the first player to join Barcelona from city rivals Espanyol in 31 years, and just the 15th to ever do so at senior level`\
-https://nytimes.com/athletic/6434439/2025/06/18/joan-garcia-transfer-barcelona-inside-story/
 

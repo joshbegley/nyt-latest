@@ -1,3 +1,11 @@
+**The Bounce: Shai Gilgeous-Alexander has had a great NBA Finals, but could Jalen Williams win MVP?**\
+`Could Jalen Williams join a unique list of surprising NBA Finals MVP winners?`\
+https://nytimes.com/athletic/6434655/2025/06/18/shai-gilgeous-alexander-jalen-williams-thunder-nba-finals-mvp-the-bounce/
+
+**Henry Ruggs III apologizes to family of woman he killed in drunken car crash**\
+`"I wish I could turn back the hands of time," said the former Las Vegas Raiders receiver, who is serving a prison sentence.`\
+https://nytimes.com/athletic/6434749/2025/06/18/henry-ruggs-apology-dui-car-crash/
+
 **Debunking Red Sox conspiracy theories, Fanatics' $200 million bet, new PGA CEO: MoneyCall**\
 `In this week's sports business cheat sheet, analysis of the top storylines of the moment, including the PGA's smart new CEO hire.`\
 https://nytimes.com/athletic/6434806/2025/06/18/fenway-sports-group-brian-rolapp-fanatics-fest-moneycall/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6434157/2025/06/18/houston-astros-player-stock-repo
 **Joan Garcia's transfer to Barcelona: The inside story and key questions answered**\
 `Garcia has become the first player to join Barcelona from city rivals Espanyol in 31 years, and just the 15th to ever do so at senior level`\
 https://nytimes.com/athletic/6434439/2025/06/18/joan-garcia-transfer-barcelona-inside-story/
-
-**Move over, Mbappe: SailGP's France franchise gets new investment from Ares Management**\
-`Ares' $3.7 billion sports fund has previously invested in the Miami Dolphins, Inter Miami CF, McLaren Racing, Atletico Madrid and more.`\
-https://nytimes.com/athletic/6433649/2025/06/18/sailgp-france-ares-management-kylian-mbappe/
-
-**Wimbledon wild cards: Two-time champion Petra Kvitova joined by British veterans and rising talents**\
-`U.S. Open girls' singles champion Mika Stojsavljevic is among the British recipients.`\
-https://nytimes.com/athletic/6434740/2025/06/18/wimbledon-wild-cards-mens-womens-singles/
 
