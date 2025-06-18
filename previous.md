@@ -1,40 +1,40 @@
-**Thomas Muller: Cincinnati CEO says his club have made an offer to Bayern legend**\
-`Cincinnati's co-CEO hopes Muller can be persuaded by the "great conditions" on offer at the MLS club.`\
-https://nytimes.com/athletic/6434506/2025/06/18/thomas-muller-cincinnati-mls/
+**Ronald Acuña Jr., Marcell Ozuna deliver in Braves' much-needed walk-off win over Mets**\
+`Ozuna's 2-out, 3-run double in the eighth and Acuña's ninth-inning catch robbing Pete Alonso of a hit changed the complexion of the game.`\
+https://nytimes.com/athletic/6434083/2025/06/18/braves-walk-off-win-over-mets/
 
-**Here’s the latest.**\
-`By Isabel Kershner, David E. Sanger and Ephrat Livni`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/heres-the-latest
+**Newest Reds marvel at Elly De La Cruz on the field, in the clubhouse**\
+`“The whole five-tool thing sticks out — you can't get more than five tools,” veteran left-hander Wade Miley said of De La Cruz.`\
+https://nytimes.com/athletic/6433777/2025/06/18/reds-elly-de-la-cruz-brady-singer/
 
-**Live Updates: Trump’s Call for Iran’s ‘Unconditional Surrender’ Raises Fears of Wider War**\
-`Signs continued to emerge that the United States was considering joining Israel’s bombing campaign. Israel carried out strikes on Tehran overnight after Iran fired two new rounds of missiles.`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump
+**For Pirates’ Don Kelly, a Detroit homecoming doubles as a matchup with a mentor**\
+`Pirates manager Don Kelly — once a beloved Tiger — returned to Detroit for the first time as a manager Tuesday.`\
+https://nytimes.com/athletic/6433833/2025/06/18/pirates-don-kelly-detroit-homecoming/
 
-**Severe Weather Threatens a Large Part of the Midwest on Wednesday**\
-`Rain and hail are likely, forecasters said, but the biggest danger could be high winds.`\
-https://nytimes.com/2025/06/18/weather/midwest-storms-forecast-indiana-illinois.html
+**The Cubs now look like a real Craig Counsell team: 'He deserves every penny'**\
+`"Couns has every one of our best interests in mind," Pete Crow-Armstrong said. "I trust all the decisions he makes."`\
+https://nytimes.com/athletic/6434200/2025/06/18/cubs-brewers-craig-counsell-team/
 
-**The New York Times International Edition in Print for Thursday, June 19, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/18/todays-new-york-times-international-edition
+**NASCAR near deal for Cup Series street course race in San Diego area: Sources**\
+`The deal would bring NASCAR back to the Southern California market it left last year and be the league's latest schedule innovation.`\
+https://nytimes.com/athletic/6433722/2025/06/18/nascar-san-diego-street-race-2026/
 
-**Which Premier League team has the toughest start to 2025-26?**\
-`With the 2025-26 Premier League fixtures released, we analyse which clubs have the toughest — and easiest — opening sets of five games.`\
-https://nytimes.com/athletic/6421019/2025/06/18/premier-league-hardest-start-2025-26/
+**'Looking at ourselves': Twins fall to .500 with fifth loss in a row**\
+`Tuesday night, Minnesota pitchers walked too many hitters. A passed ball proved costly. And twice, they couldn’t escape the long inning.`\
+https://nytimes.com/athletic/6434039/2025/06/18/twins-fifth-straight-loss-reds/
 
-**Iran War Reflects a Changed Middle East and a New Israeli Military Doctrine**\
-`For years, Israel contained its conflicts with Tehran, Hamas and Hezbollah. The broad assault on Iran highlights a shift in strategy.`\
-https://nytimes.com/2025/06/18/world/iran-war-reflects-a-changed-middle-east-and-a-new-israeli-military-doctrine.html
+**F1 mailbag: Fixing Ferrari and which driver has the edge in the title 2025 fight**\
+`Unpacking the drama and aftermath from an intriguing Canadian Grand Prix weekend `\
+https://nytimes.com/athletic/6434196/2025/06/18/f1-drivers-championship-ferrari-midfield-teams-mailbag/
 
-**What to expect from Patriots RB TreVeyon Henderson as a rookie**\
-`The Patriots surprised many by drafting the Ohio State running back in the second round. Can the move reinvigorate their middling offense?`\
-https://nytimes.com/athletic/6431018/2025/06/18/treveyon-henderson-patriots-rb-rookie/
+**Gregg Popovich is a coaching legend. He’s also a master of tough conversations**\
+`Difficult conversations happen all the time in sports. However, what's the best way to have them? We asked an expert in the field.`\
+https://nytimes.com/athletic/6432607/2025/06/18/gregg-popovich-is-a-coaching-legend-but-hes-also-a-master-of-tough-conversations/
 
-**A Senator Who Was on a Hit List Fears the Fueling of Political Violence**\
-`Senator Tina Smith of Minnesota learned that her friend was assassinated, and that she had been a potential target herself. Now, she has blunt thoughts on who bears blame for violent outbursts.`\
-https://nytimes.com/2025/06/18/us/politics/tina-smith-mike-lee-minnesota.html
+**LeBrun: From Conn Smythe to walking away? Sam Bennett, Panthers and a story we've seen before**\
+`It isn't easy leaving a Cup-winning team after being the playoff MVP. With free agency approaching, will Bennett choose to stay or go?`\
+https://nytimes.com/athletic/6434191/2025/06/18/sam-bennett-conn-smythe-panthers-stanley-cup-playoffs/
 
-**In ‘Tehrangeles,’ Iranian Americans Anxiously Watch War Unfold From Afar**\
-`The Los Angeles area is home to the biggest diaspora of Iranians. The growing war between Iran and Israel has rattled this tight-knit community.`\
-https://nytimes.com/2025/06/18/us/in-tehrangeles-iranian-americans-anxiously-watch-war-unfold-from-afar.html
+**For a long time stadiums were built for men first, but that's starting to change**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6433335/2025/06/18/stadiums-built-with-women-in-mind-nwsl/
 
