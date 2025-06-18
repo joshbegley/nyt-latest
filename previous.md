@@ -1,3 +1,15 @@
+**Driver Takes Wrong Turn Down the Spanish Steps in Rome**\
+`Nobody was injured and the Italian police did not announce any damage to the monument.`\
+https://nytimes.com/video/world/europe/100000010236696/spanish-steps-italy-car.html
+
+**Britain Braces for Its First Heat Wave of the Year**\
+`Health alerts were in place through the weekend, as temperatures are expected to keep climbing.`\
+https://nytimes.com/2025/06/18/weather/uk-heat-wave-london.html
+
+**Austria Moves to Tighten Gun Laws After Deadly School Shooting**\
+`The government announced proposals to make it harder to buy a firearm after a gunman killed nine students and a teacher.`\
+https://nytimes.com/2025/06/18/world/europe/austria-gun-laws-school-shooting.html
+
 **What Has Medical Research Found on Gender Treatments for Trans Youth?**\
 `The Supreme Court cited the uncertainty in the scientific evidence.`\
 https://nytimes.com/2025/06/18/us/politics/gender-treatments-trans-youth-medicine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6435141/2025/06/18/fenerbahce-turkish-football-fede
 **When is enough enough? WNBA officiating has to be better**\
 `Fever coach Stephanie White: WNBA officiating is lagging behind the game's progress.`\
 https://nytimes.com/athletic/6435356/2025/06/18/wnba-fever-sun-officiating-clark-mabrey/
-
-**What’s in Our Queue? I’m With Her and More **\
-`Text by Mike Ives`\
-https://nytimes.com/card/2025/06/18/arts/editors-recommendations-imwithher
-
-**Broadway ‘Cabaret’ Will Feature Billy Porter as One Final Emcee**\
-`The show’s producers said they plan to end the New York run at the end of the actor’s run, on Oct. 19.`\
-https://nytimes.com/2025/06/18/theater/cabaret-broadway-closing-billy-porter.html
-
-**Trump Answers Questions on Possible U.S. Involvement in Iran**\
-`During an event to install flag poles outside the White House, President Trump said that he couldn’t say whether the U.S. would strike Iranian nuclear facilities.`\
-https://nytimes.com/video/us/politics/100000010236464/trump-iran-nuclear-israel.html
 

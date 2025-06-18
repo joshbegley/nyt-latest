@@ -1,3 +1,15 @@
+**Driver Takes Wrong Turn Down the Spanish Steps in Rome**\
+`Nobody was injured and the Italian police did not announce any damage to the monument.`\
+https://nytimes.com/video/world/europe/100000010236696/spanish-steps-italy-car.html
+
+**Britain Braces for Its First Heat Wave of the Year**\
+`Health alerts were in place through the weekend, as temperatures are expected to keep climbing.`\
+https://nytimes.com/2025/06/18/weather/uk-heat-wave-london.html
+
+**Austria Moves to Tighten Gun Laws After Deadly School Shooting**\
+`The government announced proposals to make it harder to buy a firearm after a gunman killed nine students and a teacher.`\
+https://nytimes.com/2025/06/18/world/europe/austria-gun-laws-school-shooting.html
+
 **Phillies trade deadline: Answering 9 key questions, plus pondering Kyle Schwarber's future**\
 `Will Mick Abel stay with the Phillies or become a key trade piece? Answering this and many more questions about the July 31 deadline. `\
 https://nytimes.com/athletic/6435285/2025/06/18/phillies-trade-deadline-kyle-schwarber-extension/
