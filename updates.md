@@ -1,3 +1,7 @@
+**Joan Garcia's transfer to Barcelona: The inside story and key questions answered**\
+`Garcia has become the first player to join Barcelona from city rivals Espanyol in 31 years, and just the 15th to ever do so at senior level`\
+https://nytimes.com/athletic/6434439/2025/06/18/joan-garcia-transfer-barcelona-inside-story/
+
 **Move over, Mbappe: SailGP's France franchise gets new investment from Ares Management**\
 `Ares' $3.7 billion sports fund has previously invested in the Miami Dolphins, Inter Miami CF, McLaren Racing, Atletico Madrid and more.`\
 https://nytimes.com/athletic/6433649/2025/06/18/sailgp-france-ares-management-kylian-mbappe/
