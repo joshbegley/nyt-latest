@@ -1,3 +1,11 @@
+**The Secret to Perfect Cornbread? Cabbage.**\
+`An optional wrapping of leaves boosts the flavor and texture of Yann Nury’s favorite recipe.`\
+https://nytimes.com/2025/06/18/t-magazine/summer-cornbread-recipe-cabbage.html
+
+**Yann Nury’s Cornbread Wrapped in Cabbage Leaves**\
+`Nury presents his finished cornbread, bottom side up, on a hand-painted cake stand by the Cholula, Mexico-based studio Talavera Santa Catarina.`\
+https://nytimes.com/video/t-magazine/100000010236530/yann-nurys-cornbread-wrapped-in-cabbage-leaves.html
+
 **Is Contemporary Art’s Most Important Fair Losing Its Luster?**\
 `The Swiss edition of Art Basel was once a must-attend art world event. Now it faces formidable challenges — including from its own Paris offshoot.`\
 https://nytimes.com/2025/06/18/arts/design/is-contemporary-arts-most-important-fair-losing-its-luster.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6434673/2025/06/18/club-world-cup-walkout-showbiz/
 `Following news of the chef and TV personality’s death at age 55, remembrances poured in on social media.`\
 https://nytimes.com/2025/06/18/dining/anne-burrell-death-reactions-tributes.html
 
-**Trump Seizes on Rate Cuts Elsewhere in Bid to Pressure the Fed**\
+**Trump Seizes On Rate Cuts Elsewhere in Bid to Pressure the Fed**\
 `President Trump has increasingly pointed to rate cuts by other central banks as he pressures Jerome H. Powell, the Fed chair, to reduce borrowing costs.`\
 https://nytimes.com/2025/06/18/business/trump-fed-interest-rates-powell.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6435148/2025/06/18/pacers-tyrese-haliburton-questio
 **Trump says ‘nobody knows what I’m going to do’ on Iran.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/trump-says-nobody-knows-what-im-going-to-do-on-iran
-
-**Here’s the latest on the decision.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/heres-the-latest-on-the-decision
-
-**How Diego Luna won over Mauricio Pochettino and reset a USMNT standard**\
-`The RSL star is not nearly as heralded as some of his USMNT teammates, but he has qualities that Pochettino values greatly`\
-https://nytimes.com/athletic/6434881/2025/06/18/diego-luna-mauricio-pochettino-usmnt/
 
