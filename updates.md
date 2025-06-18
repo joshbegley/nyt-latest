@@ -1,3 +1,7 @@
+**‘Any Illegal Immigrants?’ Trump Quizzes Workers at the White House.**\
+`President Trump decided to check the immigration status of a work crew installing a new flagpole at the White House.`\
+https://nytimes.com/2025/06/18/us/politics/trump-flagpole-immigrants.html
+
 **How Dr. Phil and a Top Adams Aide Helped Ease ICE’s Path Into New York**\
 `Kaz Daughtry, a freewheeling deputy mayor, has emerged as a crucial ally for the Trump administration and its border czar. So has Dr. Phil.`\
 https://nytimes.com/2025/06/18/nyregion/ice-kaz-adams-nyc-immigration.html
