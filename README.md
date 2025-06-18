@@ -2,7 +2,7 @@
 `The Oilers lost the Stanley Cup Final again to the Panthers, but top the odds board in the opening odds on BetMGM.`\
 https://nytimes.com/athletic/6433844/2025/06/17/2026-stanley-cup-odds-oilers-panthers-avalanche/
 
-**Dodgers, Padres let sparks fly, as Ohtani, Tatis on receiving end of hit by pitches**\
+**Dodgers, Padres let sparks fly as Ohtani, Tatis on receiving end of hit-by-pitches**\
 `It took five games between the Dodgers and Padres in the span of eight days for old bitterness to come through.`\
 https://nytimes.com/athletic/6434002/2025/06/17/dodgers-padres-incident-ejection-june/
 
