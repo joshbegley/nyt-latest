@@ -1,3 +1,7 @@
+**Phillies trade deadline: Answering 9 key questions, plus pondering Kyle Schwarber's future**\
+`Will Mick Abel stay with the Phillies or become a key trade piece? Answering this and many more questions about the July 31 deadline. `\
+https://nytimes.com/athletic/6435285/2025/06/18/phillies-trade-deadline-kyle-schwarber-extension/
+
 **What Has Medical Research Found on Gender Treatments for Trans Youth?**\
 `The Supreme Court cited the uncertainty in the scientific evidence.`\
 https://nytimes.com/2025/06/18/us/politics/gender-treatments-trans-youth-medicine.html
