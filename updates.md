@@ -1,3 +1,7 @@
+**Jordan Klepper Calls Trump Out for His ‘Irish Exit’ at G7**\
+`The president left the Group of 7 summit in Canada a day ahead of schedule, and Tuesday’s “Daily Show” host thinks he knows why.`\
+https://nytimes.com/2025/06/18/arts/television/late-night-jordan-klepper-trump-g7.html
+
 **Word of the Day: wunderkind**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/18/learning/word-of-the-day-wunderkind.html
