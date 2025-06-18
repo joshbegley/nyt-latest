@@ -1,3 +1,11 @@
+**New Report Highlights Air Traffic Control Staffing Woes**\
+`While faulting some towers for inefficient practices, the report recognized significant external factors and called on Congress to help address the problem.`\
+https://nytimes.com/2025/06/18/us/politics/faa-report-staffing.html
+
+**Travis Kelce slams Super Bowl performance: 'I failed, especially in that last game'**\
+`Kelce accounted for one touchdown during the Chiefs' postseason run to an attempted three-peat in the Super Bowl.`\
+https://nytimes.com/athletic/6436015/2025/06/18/travis-kelce-super-bowl-failed/
+
 **WNBA will not issue suspensions for Fever-Sun skirmish: Source**\
 `Sophie Cunningham will also receive a fine for her role in the scuffle late in Tuesday's game.`\
 https://nytimes.com/athletic/6436009/2025/06/18/wnba-fever-sun-suspension/
