@@ -1,3 +1,7 @@
+**Netflix Dips Its Toe Into Old-Fashioned TV**\
+`The streaming giant announced a deal on Wednesday to show live and on-demand programming from one of France’s television networks, TF1.`\
+https://nytimes.com/2025/06/18/business/media/netflix-tf1-tv.html
+
 **Trump’s Trade Policies Prompt Companies to Raise Prices, Cut Staff**\
 `Consumers are starting to pull back spending as President Trump’s trade policies ripple through the economy.`\
 https://nytimes.com/2025/06/18/business/fed-tariffs-inflation-companies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/business/fed-interest-rate-loans-mortgages.html
 **How to read the Fed’s projections like a pro.**\
 `Officials at the Federal Reserve will release fresh economic forecasts on Wednesday. Here’s how to read the outlook for 2025 and beyond.`\
 https://nytimes.com/live/2025/06/18/business/fed-interest-rates/how-to-read-the-feds-projections-like-a-pro
-
-**What to know about today’s Fed meeting.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates/what-to-know-about-todays-fed-meeting
 

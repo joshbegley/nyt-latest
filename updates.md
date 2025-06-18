@@ -1,3 +1,7 @@
+**Netflix Dips Its Toe Into Old-Fashioned TV**\
+`The streaming giant announced a deal on Wednesday to show live and on-demand programming from one of France’s television networks, TF1.`\
+https://nytimes.com/2025/06/18/business/media/netflix-tf1-tv.html
+
 **Trump’s Trade Policies Prompt Companies to Raise Prices, Cut Staff**\
 `Consumers are starting to pull back spending as President Trump’s trade policies ripple through the economy.`\
 https://nytimes.com/2025/06/18/business/fed-tariffs-inflation-companies.html
