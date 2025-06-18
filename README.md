@@ -2,7 +2,7 @@
 `The justices ruled that Tennessee’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
 https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care
 
-**Supreme Court Upholds Tennessee Ban on Transgender Care for Minors**\
+**Here's the latest on the decision.**\
 `The justices ruled that the state’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
 https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/supreme-court-tennessee-transgender-care-minors
 
