@@ -1,3 +1,11 @@
+**Debunking Red Sox conspiracy theories, Fanatics' $200 million bet, new PGA CEO: MoneyCall**\
+`In this week's sports business cheat sheet, analysis of the top storylines of the moment, including the PGA's smart new CEO hire.`\
+https://nytimes.com/athletic/6434806/2025/06/18/fenway-sports-group-brian-rolapp-fanatics-fest-moneycall/
+
+**Rose Lavelle return headlines USWNT roster for summer friendlies**\
+`The 25-player roster will play in three friendlies spanning June and July against Ireland and Canada.`\
+https://nytimes.com/athletic/6433788/2025/06/18/rose-lavelle-uswnt-roster-summer-friendlies/
+
 **A Man Drove a Car Down Rome’s Spanish Steps. It Did Not Go Great.**\
 `Don’t try this at home.`\
 https://nytimes.com/2025/06/18/world/europe/spanish-steps-rome-driver-car.html
