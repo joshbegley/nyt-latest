@@ -1,3 +1,11 @@
+**What Has Medical Research Found on Gender Treatments for Trans Youth?**\
+`The Supreme Court cited the uncertainty in the scientific evidence.`\
+https://nytimes.com/2025/06/18/us/politics/gender-treatments-trans-youth-medicine.html
+
+**A.I. in the Classroom: A Brave New World?**\
+`Readers offer differing perspectives on artificial intelligence on campus. Also: Tree of Life in Pittsburgh, on uprooting antisemitism.`\
+https://nytimes.com/2025/06/18/opinion/ai-college.html
+
 **Troops in Mideast Would Be Vulnerable to Iran Strikes on U.S. Targets**\
 `Iran’s leader vowed that his country would respond to any U.S. involvement in the war with Israel.`\
 https://nytimes.com/2025/06/18/world/middleeast/us-troops-middle-east-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/18/theater/cabaret-broadway-closing-billy-porter.htm
 **Trump Answers Questions on Possible U.S. Involvement in Iran**\
 `During an event to install flag poles outside the White House, President Trump said that he couldn’t say whether the U.S. would strike Iranian nuclear facilities.`\
 https://nytimes.com/video/us/politics/100000010236464/trump-iran-nuclear-israel.html
-
-**The effect of tariffs on inflation will be more significant this summer, economists say.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates/the-effect-of-tariffs-on-inflation-will-be-more-significant-this-summer-economists-say
-
-**Mudryk charged by FA with breach of anti-doping rules, facing lengthy ban**\
-`A violation of the FA’s anti-doping regulations carries with it a maximum penalty of a four-year suspension.`\
-https://nytimes.com/athletic/6001373/2025/06/18/mykhailo-mudryk-chelsea-ban-doping/
 
