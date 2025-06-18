@@ -1,3 +1,7 @@
+**Federal Judge Certifies Class Action for Transgender People Seeking Passports**\
+`A preliminary injunction blocking the State Department from enforcing a new passport limit extends to all trans passport seekers.`\
+https://nytimes.com/2025/06/17/us/passports-transgender-trump-administration.html
+
 **Trump to Again Extend TikTok’s Reprieve From U.S. Ban**\
 `The president plans to sign another executive order this week that would give the popular video app more time to change its ownership structure.`\
 https://nytimes.com/2025/06/17/technology/tiktok-ban-extension-trump.html
