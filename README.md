@@ -1,3 +1,11 @@
+**Wimbledon wild cards: Two-time champion Petra Kvitova joined by British veterans and rising talents**\
+`U.S. Open girls' singles champion Mika Stojsavljevic is among the British recipients.`\
+https://nytimes.com/athletic/6434740/2025/06/18/wimbledon-wild-cards-mens-womens-singles/
+
+**Christopher Bell on being more outspoken and a past career crossroads: 12 Questions**\
+`Christopher Bell talks about what made him open up more off the track, the time he turned down Roush and stuck with Toyota, and more.`\
+https://nytimes.com/athletic/6432383/2025/06/18/christopher-bell-nascar-sponsors-toyota-roush-12-questions/
+
 **Barcelona sign Espanyol goalkeeper Garcia**\
 `The 24-year-old joins the club on a six-year deal that runs through to 2031.`\
 https://nytimes.com/athletic/6363649/2025/06/18/joan-garcia-barcelona-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6433479/2025/06/18/pelicans-trade-nba-draft-2025/
 **Bills post-spring 53-man roster projection: A possible bump at receiver and trim at linebacker**\
 `Plus, the battle for backup quarterback could get interesting.`\
 https://nytimes.com/athletic/6432534/2025/06/18/bills-post-spring-53-man-roster-projection-wide-receiver-linebacker/
-
-**Milwaukee Bucks NBA Draft preview: What kind of player can they find with the No. 47 pick?**\
-`Despite only having a pick deep in the second round, the Bucks have the potential to add a talented player on a cheap contract.`\
-https://nytimes.com/athletic/6424642/2025/06/18/milwaukee-bucks-nba-draft-preview-what-kind-of-player-can-they-find-with-the-no-47-pick/
-
-**Brant Boyer wants to build a new era — and better aura — for 49ers’ special teams**\
-`Boyer was given license to build the 49ers' special teams this offseason. He wasn't shy about tearing the old units down.`\
-https://nytimes.com/athletic/6427497/2025/06/18/49ers-special-teams-brant-boyer/
 
