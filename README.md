@@ -1,40 +1,40 @@
-**Everton in advanced talks to appoint Man Utd academy chief Nick Cox**\
-`Cox has led United’s academy since 2019, overseeing the graduation to the senior side of Alejandro Garnacho, Kobbie Mainoo and others.`\
-https://nytimes.com/athletic/6429708/2025/06/18/everton-manchester-united-nick-cox-academy/
+**Newcastle's 2025-26 Premier League fixtures confirmed**\
+`Newcastle ended their 70-year-long trophy drought in 2024-25 and will compete in the Champions League next season.`\
+https://nytimes.com/athletic/6418414/2025/06/18/newcastle-premier-league-fixtures-2025-26-schedule/
 
-**The Dallas Cowboys Cheerleaders Get a 400 Percent Pay Raise**\
-`The second season of the docuseries “America’s Sweethearts” reveals the squad’s successful effort to push for greater financial stability.`\
-https://nytimes.com/2025/06/18/style/dallas-cowboys-cheerleaders-salary-americas-sweethearts.html
+**Aiming at the Dollar, China Makes a Pitch for Its Currency**\
+`The leader of China’s central bank made a clear though indirect critique of the dollar’s role as the world’s main currency.`\
+https://nytimes.com/2025/06/18/business/china-dollar-renminbi.html
 
-**Landlords Say They’re Struggling. Rents Keep Going Up. What Gives?**\
-`New York City could soon raise rents on some of its most affordable apartments to help landlords who say they aren’t earning enough. But renters say they’re hurting, too.`\
-https://nytimes.com/2025/06/18/nyregion/nyc-landlords-rent-stabilization.html
+**Man City's 2025-26 Premier League fixtures confirmed**\
+`The 2025-26 season marks the first time in five years that City will not head into a campaign as defending Premier League champions.`\
+https://nytimes.com/athletic/6418359/2025/06/18/manchester-city-premier-league-fixtures-2025-26-schedule/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/18/crosswords/spelling-bee-forum.html
+**Liverpool's 2025-26 Premier League fixtures confirmed**\
+`The reigning champions open the season with a home game against Bournemouth.`\
+https://nytimes.com/athletic/6418394/2025/06/18/liverpool-premier-league-fixtures-2025-26-schedule/
 
-**Jordan Klepper Calls Trump Out for His ‘Irish Exit’ at G7**\
-`The president left the Group of 7 summit in Canada a day ahead of schedule, and Tuesday’s “Daily Show” host thinks he knows why.`\
-https://nytimes.com/2025/06/18/arts/television/late-night-jordan-klepper-trump-g7.html
+**Nottm Forest's 2025-26 Premier League fixtures confirmed**\
+`Forest will play European football for the first time in 30 years after a strong 2024-25 league season. `\
+https://nytimes.com/athletic/6418489/2025/06/18/nottingham-forest-premier-league-fixtures-2025-26-schedule/
 
-**Word of the Day: wunderkind**\
-`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/18/learning/word-of-the-day-wunderkind.html
+**Man Utd's 2025-26 Premier League fixtures confirmed**\
+`After a season to forget, United will be keen to start the 2025-26 campaign in far better fashion.`\
+https://nytimes.com/athletic/6418367/2025/06/18/manchester-united-premier-league-fixtures-2025-26-schedule/
 
-**As G7 Talks End in Canada, Ukraine Comes Away With Little**\
-`President Volodymyr Zelensky had hoped to secure more support from the Group of 7 nations, but the crisis in the Middle East was seen as a more urgent priority.`\
-https://nytimes.com/2025/06/18/world/canada/g7-ukraine-trump-zelensky.html
+**Wolves' 2025-26 Premier League fixtures confirmed**\
+`Wolves will be hoping to improve on their 16th place finish last term.`\
+https://nytimes.com/athletic/6418572/2025/06/18/wolves-premier-league-fixtures-2025-26-schedule/
 
-**Panthers' Matthew Tkachuk played through torn adductor, hernia in playoffs**\
-`Coach Paul Maurice quipped after Tuesday’s 5-1 win over Edmonton that the medical term for Tkachuk was, “He was a mess.”`\
-https://nytimes.com/athletic/6434125/2025/06/18/panthers-matthew-tkachuk-injury-nhl-stanley-cup-playoffs/
+**West Ham's 2025-26 Premier League fixtures confirmed**\
+`West Ham had a tough 2024-25 campaign and will look to improve their 14-placed league position next season.`\
+https://nytimes.com/athletic/6418560/2025/06/18/west-ham-premier-league-fixtures-2025-26-schedule/
 
-**The New York Times in Print for Wednesday, June 18, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/18/todays-new-york-times
+**Tottenham's 2025-26 Premier League fixtures confirmed**\
+`Thomas Frank's first game in charge of his new side will come against `\
+https://nytimes.com/athletic/6418545/2025/06/18/tottenham-premier-league-fixtures-2025-26-schedule/
 
-**Yankees 'feel the pressure' as scoreless streak hits 29 innings, nears franchise worst**\
-`The Yankees lost 4-0 to the Los Angeles Angels and were shut out for the third consecutive game.`\
-https://nytimes.com/athletic/6433856/2025/06/18/yankees-lose-angels-scoreless-streak/
+**Premier League fixtures 2025-26: Full schedule and dates**\
+`The 2025-26 Premier League season will begin on Friday, August 15 with champions Liverpool hosting Bournemouth at Anfield.`\
+https://nytimes.com/athletic/6418657/2025/06/18/premier-league-full-fixtures-2025-26-schedule-every-club/
 
