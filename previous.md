@@ -1,3 +1,31 @@
+**Travis Kelce is 'only interested in Super Bowl rings.' Next up? The chase for No. 4**\
+`Kelce feels like he failed his team last year. He wants the chance to walk away on top, a storybook finish for a sterling career.`\
+https://nytimes.com/athletic/6436086/2025/06/18/travis-kelce-chasing-another-ring/
+
+**For Food Network Fans, Anne Burrell Was the Fun-Loving Aunt**\
+`The chef, who died Tuesday, built her stardom on a big, down-to-earth personality in which viewers could see themselves.`\
+https://nytimes.com/2025/06/18/dining/anne-burrell-food-network.html
+
+**Gary England, Star Meteorologist in Tornado Alley, Dies at 85**\
+`Working for a TV station in Oklahoma City, he was known for using high-tech tools to give early warnings of tornadoes in the central U.S.`\
+https://nytimes.com/2025/06/18/obituaries/gary-england-dead.html
+
+**Senators Ask Hegseth About Domestic Deployment of U.S. Troops**\
+`Senator Elissa Slotkin, Democrat of Michigan, asked Secretary Pete Hegseth if he had given troops deployed domestically orders “to shoot at unarmed protesters in any way?”`\
+https://nytimes.com/video/us/politics/100000010237762/hegseth-slotkin-senate-argument-military.html
+
+**Tehran Is About as Densely Populated as New York City**\
+`Recent evacuation warnings from Israel affect hundreds of thousands of the capital’s residents.`\
+https://nytimes.com/2025/06/18/world/middleeast/tehran-iran-density-map.html
+
+**Juventus meet Trump at White House, he discusses Iran conflict and transgender women in sport**\
+`A Juventus delegation met President Trump before the Italian side's Club World Cup opener on Wednesday.`\
+https://nytimes.com/athletic/6436180/2025/06/18/juventus-trump-white-house-visit/
+
+**Trump Says He Has Not Made a Final Decision on Iran Strikes**\
+`President Trump said that he might or might not send U.S. forces to attack Iran’s nuclear sites. Iran’s supreme leader, Ayatollah Ali Khamenei, rejected Mr. Trump’s demand for an “unconditional surrender” and rebuffed his threats.`\
+https://nytimes.com/video/us/politics/100000010236978/trump-clashes-with-ayatollah-ali-khamenei.html
+
 **Fantasy bullpen report featuring rising relievers Garrett Whitlock, Edwin Uceta and more**\
 `Greg Jewett's weekly bullpen report featuring leverage pathways, relievers on the rise, save stashes and more. `\
 https://nytimes.com/athletic/6436036/2025/06/18/fantasy-baseball-bullpen-report-relievers-whitlock-uceta/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/democrats-supreme-court-transgender-r
 **U.S. Strike on Iran Would Bring Risks at Every Turn**\
 `The largest perils may lie in the aftermath, many experts say, just as they did in Afghanistan and Iraq.`\
 https://nytimes.com/2025/06/18/us/politics/us-bomb-iran-risks.html
-
-**Devils trade Erik Haula to Predators for Jeremy Hanzel, draft pick**\
-`The 34-year-old Haula had 21 points in 69 games this past year, and he returns to the team with which he spent the 2020-21 season.`\
-https://nytimes.com/athletic/6436325/2025/06/18/devils-erik-haula-predators-trade-jeremy-hanzel/
-
-**Iran Rejects Trump’s Call for ‘Surrender’ in War With Israel**\
-`President Trump did not rule out U.S. military intervention on behalf of Israel, saying, “Nobody knows what I’m going to do.”`\
-https://nytimes.com/2025/06/18/world/middleeast/israel-iran-war-us.html
-
-**Predators say captain Roman Josi will play next season despite POTS diagnosis**\
-`Josi is being treated for a condition with symptoms that often include dizziness or fainting.`\
-https://nytimes.com/athletic/6436255/2025/06/18/roman-josi-pots-predators/
-
-**Buss family to sell Lakers for $10 billion to Dodgers owner Mark Walter**\
-`The sale price marks the largest for a North American sports franchise. `\
-https://nytimes.com/athletic/6436238/2025/06/18/lakers-sold-mark-walter-twg-jeanie-buss-family/
-
-**Blackhawks re-sign Ryan Donato to 4-year, $16 million deal**\
-`Donato's signing marks a major piece of general manager Kyle Davidson's offseason.`\
-https://nytimes.com/athletic/6433458/2025/06/18/blackhawks-ryan-donato-contract-extension/
-
-**California Executives Sentenced for Continuing to Sell Dehumidifiers That Caught on Fire**\
-`The two executives received prison sentences for failing to report fire-prone dehumidifiers sold nationwide.`\
-https://nytimes.com/2025/06/18/business/california-dehumidifers-fires-sentencing.html
-
-**Trump Travel Restrictions Bar Residents Needed at U.S. Hospitals**\
-`Limits on travel and visa appointments have delayed or prevented foreign doctors from entering the country for jobs set to begin in weeks.`\
-https://nytimes.com/2025/06/18/health/medical-residents-travel-ban.html
 
