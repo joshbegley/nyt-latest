@@ -1,3 +1,11 @@
+**Karen Read Found Not Guilty of Murder in Boyfriend’s Death Outside Boston**\
+`A jury cleared Ms. Read of charges related to the 2022 death of her boyfriend, a Boston police officer, and convicted her only of drunken driving, in a trial that attracted wide attention.`\
+https://nytimes.com/2025/06/18/us/karen-read-trial-verdict.html
+
+**FIFA displays anti-racism messaging at Club World Cup for one day after backlash**\
+`The messaging was displayed to mark International Day for Countering Hate Speech.`\
+https://nytimes.com/athletic/6435535/2025/06/18/fifa-racism-discrimination-messaging-club-world-cup/
+
 **U.S. Congress members say Gulf Arab leaders privately call for eliminating Iranian nuclear threat.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat

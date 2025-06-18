@@ -1,4 +1,4 @@
-**U.S. Congress members say Gulf Arab leaders privately call for eliminating Iranian nuclear threat.**\
+**U.S. lawmakers say Gulf Arab leaders privately called for eliminating the Iranian nuclear threat.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat
 
