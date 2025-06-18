@@ -1,3 +1,7 @@
+**Despite danger from Iran’s deadly missile fire, Israeli morale appears high.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/despite-danger-from-irans-deadly-missile-fire-israeli-morale-is-high
+
 **Dan Storper, Evangelist of World Music, Dies at 74**\
 `His record label, Putumayo, gathered sounds from around the globe and pushed them into the mainstream, selling 35 million compilation CDs worldwide.`\
 https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/learning/if-you-were-given-the-chance-to-save-a-l
 **We Need to Chat(GPT)**\
 `We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Olivia Han, age 16.`\
 https://nytimes.com/2025/06/18/learning/we-need-to-chat-gpt.html
-
-**The Winners of Our Second Annual Open Letter Contest**\
-`This year’s winning letters — chosen from nearly 10,000 entries — on ChatGPT, class participation, American history, and more.`\
-https://nytimes.com/2025/06/18/learning/the-winners-of-our-second-annual-open-letter-contest.html
 

@@ -1,3 +1,11 @@
+**Dan Storper, Evangelist of World Music, Dies at 74**\
+`His record label, Putumayo, gathered sounds from around the globe and pushed them into the mainstream, selling 35 million compilation CDs worldwide.`\
+https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
+
+**MLB Draft Combine: Kayson Cunningham eager to compete; Bruin Agbayani flashes speed, hitting**\
+`News and notes from Day 1 of the MLB Draft Combine.`\
+https://nytimes.com/athletic/6435233/2025/06/18/mlb-draft-combine-kayson-cunningham-bruin-agbayani/
+
 **The Briefing - Man City 2 Wydad 0: Contrasting debuts for Reijnders and Cherki as Foden signals a return to form**\
 `Analysis of Manchester City's 2-0 victory against Wydad at the FIFA Club World Cup `\
 https://nytimes.com/athletic/6424772/2025/06/18/man-city-wydad-club-world-cup-analysis-foden/

@@ -1,3 +1,7 @@
+**Dan Storper, Evangelist of World Music, Dies at 74**\
+`His record label, Putumayo, gathered sounds from around the globe and pushed them into the mainstream, selling 35 million compilation CDs worldwide.`\
+https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
+
 **The Briefing - Man City 2 Wydad 0: Contrasting debuts for Reijnders and Cherki as Foden signals a return to form**\
 `Analysis of Manchester City's 2-0 victory against Wydad at the FIFA Club World Cup `\
 https://nytimes.com/athletic/6424772/2025/06/18/man-city-wydad-club-world-cup-analysis-foden/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/06/18/us/journalist-arrested-ice-georgia-mario-guevara.
 `The Oilers, coming off their Stanley Cup Final loss, must make some quick, important decisions.`\
 https://nytimes.com/athletic/6435632/2025/06/18/edmonton-oilers-free-agent-trade/
 
-**MLB Draft Combine: Kayson Cunningham eager to compete; Bruin Agbayani flashes speed, hit tool**\
+**MLB Draft Combine: Kayson Cunningham eager to compete; Bruin Agbayani flashes speed, hitting**\
 `News and notes from Day 1 of the MLB Draft Combine.`\
 https://nytimes.com/athletic/6435233/2025/06/18/mlb-draft-combine-kayson-cunningham-bruin-agbayani/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/learning/we-need-to-chat-gpt.html
 **The Winners of Our Second Annual Open Letter Contest**\
 `This year’s winning letters — chosen from nearly 10,000 entries — on ChatGPT, class participation, American history, and more.`\
 https://nytimes.com/2025/06/18/learning/the-winners-of-our-second-annual-open-letter-contest.html
-
-**The Last Time Supreme Court Considered Trans Rights, It Protected Them**\
-`In 2020, the justices ruled 6-3 that gay and transgender workers were shielded from employment discrimination nationwide.`\
-https://nytimes.com/2025/06/18/us/politics/bostock-transgender-supreme-court.html
 
