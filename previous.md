@@ -1,3 +1,19 @@
+**The Athletic FC: A glimpse of Real Madrid's $72m teen Mastantuono, PL fixtures announced**\
+`Today in TAFC: What will Real Madrid get for $72m when Franco Mastantuono joins, Ramos reminds us of his swagger, EPL fixtures are out!`\
+https://nytimes.com/athletic/6434482/2025/06/18/mastantuono-real-madrid-ramos-header-premier-league-fixtures/
+
+**India and Canada Move to Mend Rift Over Sikh Activist’s Killing**\
+`The rapprochement comes months after each country had expelled the other’s senior diplomats.`\
+https://nytimes.com/2025/06/18/world/asia/india-canada-relations-sikh-killing.html
+
+**This time around, Panthers' on-ice celebrations with the Stanley Cup were different**\
+`Fresh off a 5-1 defeat of the Oilers, the Panthers' approach to celebration followed the same principles that got them back here.`\
+https://nytimes.com/athletic/6434222/2025/06/18/florida-panthers-stanley-cup-final-celebration/
+
+**The Pulse: A new dynasty emerges**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6432972/2025/06/18/panthers-oilers-stanley-cup-caitlin-clark-fight-the-pulse/
+
 **Rafael Devers finds his groove in solid first impression on Giants debut**\
 `Devers hit an RBI double in just his second at-bat for his new team on a night of crackling energy at Oracle Park.`\
 https://nytimes.com/athletic/6434347/2025/06/18/rafael-devers-giants-debut-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6433833/2025/06/18/pirates-don-kelly-detroit-homeco
 **The Cubs now look like a real Craig Counsell team: 'He deserves every penny'**\
 `"Couns has every one of our best interests in mind," Pete Crow-Armstrong said. "I trust all the decisions he makes."`\
 https://nytimes.com/athletic/6434200/2025/06/18/cubs-brewers-craig-counsell-team/
-
-**NASCAR near deal for Cup Series street course race in San Diego area: Sources**\
-`The deal would bring NASCAR back to the Southern California market it left last year and be the league's latest schedule innovation.`\
-https://nytimes.com/athletic/6433722/2025/06/18/nascar-san-diego-street-race-2026/
-
-**'Looking at ourselves': Twins fall to .500 with fifth loss in a row**\
-`Tuesday night, Minnesota pitchers walked too many hitters. A passed ball proved costly. And twice, they couldn’t escape the long inning.`\
-https://nytimes.com/athletic/6434039/2025/06/18/twins-fifth-straight-loss-reds/
-
-**F1 mailbag: Fixing Ferrari and which driver has the edge in the title 2025 fight**\
-`Unpacking the drama and aftermath from an intriguing Canadian Grand Prix weekend `\
-https://nytimes.com/athletic/6434196/2025/06/18/f1-drivers-championship-ferrari-midfield-teams-mailbag/
-
-**Gregg Popovich is a coaching legend. He’s also a master of tough conversations**\
-`Difficult conversations happen all the time in sports. However, what's the best way to have them? We asked an expert in the field.`\
-https://nytimes.com/athletic/6432607/2025/06/18/gregg-popovich-is-a-coaching-legend-but-hes-also-a-master-of-tough-conversations/
 

@@ -1,3 +1,19 @@
+**The Athletic FC: A glimpse of Real Madrid's $72m teen Mastantuono, PL fixtures announced**\
+`Today in TAFC: What will Real Madrid get for $72m when Franco Mastantuono joins, Ramos reminds us of his swagger, EPL fixtures are out!`\
+https://nytimes.com/athletic/6434482/2025/06/18/mastantuono-real-madrid-ramos-header-premier-league-fixtures/
+
+**India and Canada Move to Mend Rift Over Sikh Activist’s Killing**\
+`The rapprochement comes months after each country had expelled the other’s senior diplomats.`\
+https://nytimes.com/2025/06/18/world/asia/india-canada-relations-sikh-killing.html
+
+**This time around, Panthers' on-ice celebrations with the Stanley Cup were different**\
+`Fresh off a 5-1 defeat of the Oilers, the Panthers' approach to celebration followed the same principles that got them back here.`\
+https://nytimes.com/athletic/6434222/2025/06/18/florida-panthers-stanley-cup-final-celebration/
+
+**The Pulse: A new dynasty emerges**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6432972/2025/06/18/panthers-oilers-stanley-cup-caitlin-clark-fight-the-pulse/
+
 **Rafael Devers finds his groove in solid first impression on Giants debut**\
 `Devers hit an RBI double in just his second at-bat for his new team on a night of crackling energy at Oracle Park.`\
 https://nytimes.com/athletic/6434347/2025/06/18/rafael-devers-giants-debut-trade/
