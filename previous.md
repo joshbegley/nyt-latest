@@ -1,3 +1,15 @@
+**Vicki Goldberg Dies at 88; Saw Photography Through a Literary Lens**\
+`An influential photography critic, she wrote essays, newspaper columns and books, including a notable biography of the photojournalist Margaret Bourke-White.`\
+https://nytimes.com/2025/06/18/arts/vicki-goldberg-dead.html
+
+**Trump Suggests Withholding California Disaster Aid Over His Feud With Newsom**\
+`President Trump and Gov. Gavin Newsom have traded sharp insults in recent days as California awaits billions of dollars in federal wildfire relief.`\
+https://nytimes.com/2025/06/18/us/trump-suggests-withholding-california-disaster-aid-over-his-feud-with-newsom.html
+
+**Spinning Rafael Devers' new home for fantasy baseball, June Statcast standouts and more**\
+`Michael Salfino looks at how Oracle Park will impact Rafael Devers' fantasy value before diving into the expected stats stars for June.`\
+https://nytimes.com/athletic/6435158/2025/06/18/fantasy-baseball-statcast-risers-fallers-devers/
+
 **The Fed Isn’t Calling It ‘Stagflation,’ but the Risks Are Rising**\
 `President Trump’s trade war is likely to lead to higher prices and slower growth, a challenging combination for the Fed. War in the Middle East could make the job harder still.`\
 https://nytimes.com/2025/06/18/business/fed-stagflation-trump-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/18/weather/hurricane-erick-mexico.html
 **The Court Upheld a State Ban on Transgender Care for Minors. Here’s What We Know.**\
 `The decision to uphold the Tennessee law will most likely mean a patchwork of laws throughout the country, a map that traces current political polarization.`\
 https://nytimes.com/2025/06/18/us/politics/supreme-court-trans-what-we-know.html
-
-**What to know about the Fed’s decision.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates/what-to-know-about-the-feds-decision
-
-**U.S. lawmakers say Gulf Arab leaders want Iran’s nuclear program to end, but preferably not by force.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/us-congress-members-say-gulf-arab-leaders-privately-call-for-eliminating-iranian-nuclear-threat
-
-**Karen Read Found Not Guilty of Murder in Boyfriend’s Death Outside Boston**\
-`A jury cleared Ms. Read of charges related to the 2022 death of her boyfriend, a Boston police officer, and convicted her only of drunken driving, in a trial that attracted wide attention.`\
-https://nytimes.com/2025/06/18/us/karen-read-trial-verdict.html
 

@@ -1,10 +1,18 @@
+**Scoop City: 2025 AFC North preview, plus the Bengals rookie holdout**\
+`Key questions, breakout players and positions to watch in the AFC North, plus a look at the Bengals rookie holdout situation.`\
+https://nytimes.com/athletic/6435933/2025/06/18/afc-north-preview-2025-nfl-bengals-steelers-ravens-browns/
+
+**America Must Not Rush Into a War Against Iran**\
+`The decision to declare war rests with Congress alone.`\
+https://nytimes.com/2025/06/18/opinion/editorials/iran-war-israel-trump.html
+
 **Vicki Goldberg Dies at 88; Saw Photography Through a Literary Lens**\
 `An influential photography critic, she wrote essays, newspaper columns and books, including a notable biography of the photojournalist Margaret Bourke-White.`\
 https://nytimes.com/2025/06/18/arts/vicki-goldberg-dead.html
 
 **Trump Suggests Withholding California Disaster Aid Over His Feud With Newsom**\
 `President Trump and Gov. Gavin Newsom have traded sharp insults in recent days as California awaits billions of dollars in federal wildfire relief.`\
-https://nytimes.com/2025/06/18/us/trump-suggests-withholding-california-disaster-aid-over-his-feud-with-newsom.html
+https://nytimes.com/2025/06/18/us/trump-california-disaster-aid-newsom.html
 
 **Spinning Rafael Devers' new home for fantasy baseball, June Statcast standouts and more**\
 `Michael Salfino looks at how Oracle Park will impact Rafael Devers' fantasy value before diving into the expected stats stars for June.`\
@@ -23,18 +31,10 @@ https://nytimes.com/live/2025/06/18/world/israel-iran-trump/before-irans-interne
 https://nytimes.com/live/2025/06/18/business/fed-interest-rates/fed-blog-powell-takeaways
 
 **New Owner for High Times Magazine Bets on a Counterculture Comeback**\
-`The anti-establishment magazine, which was taken over by a private equity firm in 2017, was purchased this week by an avid fan and reader.`\
+`The anti-establishment magazine, which was taken over by a private equity firm in 2017, was purchased this week by an avid fan and reader for $3.5 million.`\
 https://nytimes.com/2025/06/18/business/high-times-magazine-new-owner.html
 
 **After His ICE Arrest, Brad Lander Has the Spotlight. Is It Too Late?**\
 `Brad Lander received widespread support after his arrest on Tuesday, but it’s unclear how it will affect his third-place campaign for mayor of New York City.`\
 https://nytimes.com/2025/06/18/nyregion/brad-lander-arrest-mayor.html
-
-**Hurricane Erick Nears Mexico’s Southern Coast as Category 2 Storm**\
-`“If you are in low-lying areas, near rivers, near waterways, it is best for you to go to shelters,” President Claudia Sheinbaum said.`\
-https://nytimes.com/2025/06/18/weather/hurricane-erick-mexico.html
-
-**The Court Upheld a State Ban on Transgender Care for Minors. Here’s What We Know.**\
-`The decision to uphold the Tennessee law will most likely mean a patchwork of laws throughout the country, a map that traces current political polarization.`\
-https://nytimes.com/2025/06/18/us/politics/supreme-court-trans-what-we-know.html
 

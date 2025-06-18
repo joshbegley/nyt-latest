@@ -1,3 +1,15 @@
+**Vicki Goldberg Dies at 88; Saw Photography Through a Literary Lens**\
+`An influential photography critic, she wrote essays, newspaper columns and books, including a notable biography of the photojournalist Margaret Bourke-White.`\
+https://nytimes.com/2025/06/18/arts/vicki-goldberg-dead.html
+
+**Trump Suggests Withholding California Disaster Aid Over His Feud With Newsom**\
+`President Trump and Gov. Gavin Newsom have traded sharp insults in recent days as California awaits billions of dollars in federal wildfire relief.`\
+https://nytimes.com/2025/06/18/us/trump-suggests-withholding-california-disaster-aid-over-his-feud-with-newsom.html
+
+**Spinning Rafael Devers' new home for fantasy baseball, June Statcast standouts and more**\
+`Michael Salfino looks at how Oracle Park will impact Rafael Devers' fantasy value before diving into the expected stats stars for June.`\
+https://nytimes.com/athletic/6435158/2025/06/18/fantasy-baseball-statcast-risers-fallers-devers/
+
 **The Fed Isn’t Calling It ‘Stagflation,’ but the Risks Are Rising**\
 `President Trump’s trade war is likely to lead to higher prices and slower growth, a challenging combination for the Fed. War in the Middle East could make the job harder still.`\
 https://nytimes.com/2025/06/18/business/fed-stagflation-trump-tariffs.html
