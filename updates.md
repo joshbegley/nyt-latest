@@ -1,3 +1,7 @@
+**U.S. to Review Social Media Posts of Student and Scholar Visa Applicants**\
+`The State Department is restarting the processing of visa applications from students and visiting scholars, but is screening for  “hostility” toward the United States.`\
+https://nytimes.com/2025/06/18/us/politics/student-visa-applications.html
+
 **Ex-Yankee Is Awarded About $500,000 in Damages for Moldy Greenwich Mansion**\
 `Josh Donaldson, a former American League Most Valuable Player with Toronto, sued his former landlord over the conditions at his $55,000-a-month rental property.`\
 https://nytimes.com/2025/06/18/nyregion/josh-donaldson-yankees-greenwich-mansion-lawsuit.html
