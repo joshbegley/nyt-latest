@@ -1,3 +1,7 @@
+**FIFA Struts Off the Pitch and Onto the Catwalk**\
+`Soccer’s governing body is putting its name on a luxury fashion line. Would you buy it?`\
+https://nytimes.com/2025/06/18/style/fifa-luxury-fashion-line.html
+
 **The Israel-Iran War, Explained**\
 `We explain why Israel chose this moment to attack Iran.`\
 https://nytimes.com/2025/06/18/briefing/israel-iran-war-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6434107/2025/06/18/chaotic-blue-jays-win/
 **Answering questions about the Rafael Devers trade**\
 `Trades this massive and complicated simply don't happen. Until they do.`\
 https://nytimes.com/athletic/6433465/2025/06/18/rafael-devers-trade-questions/
-
-**Greenberg: Justin Ishbia's timeline, Kyle Tucker's future and Billy D staying**\
-`Why would Ishbia want to take over now? By the time he does, a new CBA will be in effect and we’ll know where the White Sox will be playing.`\
-https://nytimes.com/athletic/6431141/2025/06/18/cubs-white-sox-bulls-justin-ishbia-kyle-tucker-billy-donovan/
 
