@@ -1,3 +1,15 @@
+**Pep Guardiola on choosing Man City captain for first time, asking Klopp about Lijnders, Grealish's future**\
+`Pep Guardiola spoke publicly for the first time since the end of the Premier League season about changes on and off the pitch at Man City`\
+https://nytimes.com/athletic/6433665/2025/06/17/pep-guardiola-captain-lijnders-grealish/
+
+**Welcome to cricket coverage from The Athletic**\
+`We've read your comments, we've listened and, from today, you'll be able to find cricket coverage on The Athletic`\
+https://nytimes.com/athletic/6432373/2025/06/17/cricket-coverage-athletic-welcome/
+
+**Review: He’s Here, He’s Queer, He’s the Future King of England**\
+`The Off Broadway play “Prince Faggot” aims to shock. But the real surprise is how good it is anyway.`\
+https://nytimes.com/2025/06/17/theater/prince-faggot-review.html
+
 **'Embarrassed' Carson Hocevar fined $50k for comments about Mexico City**\
 `Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
 https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/17/technology/tiktok-ban-extension-trump.html
 **Adams Bars Reporter From News Conferences for Being ‘Disrespectful’**\
 `After a contentious exchange, Mayor Eric Adams said, “Make sure security knows he’s not allowed back into this room.”`\
 https://nytimes.com/2025/06/17/nyregion/eric-adams-reporter-ny-daily-news.html
-
-**Oil Prices Climb as Trump Calls for Iran’s ‘Surrender’**\
-`They rose more than 4 percent as traders wondered if the United States would take a more active role in the conflict between Israel and Iran.`\
-https://nytimes.com/2025/06/17/business/energy-environment/oil-prices-trump-iran.html
-
-**Trump’s Conflicting Messages on Workplace Raids Leave Businesses Reeling**\
-`Trump officials insist the president is fully committed to mass deportation. But they have been careful not to directly contradict the president’s attempt to offer a reprieve to certain businesses.`\
-https://nytimes.com/2025/06/17/us/politics/trump-conflicting-messages-workplace-raids.html
-
-**Anne Burrell, Chef and Food Network Star, Dies at 55**\
-`Her distinctive hairstyle and swagger in the kitchen made her one of America’s most recognizable Italian chefs.`\
-https://nytimes.com/2025/06/17/dining/anne-burrell-dead.html
 
