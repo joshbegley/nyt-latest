@@ -1,3 +1,15 @@
+**WNBA will not issue suspensions for Fever-Sun skirmish: Source**\
+`Sophie Cunningham will also receive a fine for her role in the scuffle late in Tuesday's game.`\
+https://nytimes.com/athletic/6436009/2025/06/18/wnba-fever-sun-suspension/
+
+**Fed Chair Holds Interest Rates Steady**\
+`Jerome H. Powell announced interest rates will remain steady as the Fed braces for inflation to rise sharply.`\
+https://nytimes.com/video/us/100000010237318/powell-interest-rates.html
+
+**Foden: 'I want to prove people wrong' after 'difficult' season**\
+`Foden started City's Club World Cup campaign with a goal inside two minutes in a 2-0 win over Wydad AC.`\
+https://nytimes.com/athletic/6436091/2025/06/18/phil-foden-manchester-city-difficult-season/
+
 **Iran Crisis Overshadowed as Senators Squabble at Hearing**\
 `A hearing featuring Defense Secretary Pete Hegseth exposed a major divide over the dangers of using U.S. troops domestically.`\
 https://nytimes.com/2025/06/18/us/politics/hegseth-senate-hearing-iran-military.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/18/opinion/iran-war-israel-trump.html
 **Vicki Goldberg Dies at 88; Saw Photography Through a Literary Lens**\
 `An influential photography critic, she wrote essays, newspaper columns and books, including a notable biography of the photojournalist Margaret Bourke-White.`\
 https://nytimes.com/2025/06/18/arts/vicki-goldberg-dead.html
-
-**Trump Suggests He May Withhold California Disaster Aid Over His Feud With Newsom**\
-`President Trump and Gov. Gavin Newsom have traded sharp insults in recent days as California awaits billions of dollars in federal wildfire relief.`\
-https://nytimes.com/2025/06/18/us/trump-california-disaster-aid-newsom.html
-
-**Spinning Rafael Devers' new home for fantasy baseball, June Statcast standouts and more**\
-`Michael Salfino looks at how Oracle Park will impact Rafael Devers' fantasy value before diving into the expected stats stars for June.`\
-https://nytimes.com/athletic/6435158/2025/06/18/fantasy-baseball-statcast-risers-fallers-devers/
-
-**The Fed Isn’t Calling It ‘Stagflation,’ but the Risks Are Rising**\
-`President Trump’s trade war is likely to lead to higher prices and slower growth, a challenging combination for the Fed. War in the Middle East could make the job harder still.`\
-https://nytimes.com/2025/06/18/business/fed-stagflation-trump-tariffs.html
 

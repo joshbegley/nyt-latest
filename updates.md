@@ -1,3 +1,15 @@
+**WNBA will not issue suspensions for Fever-Sun skirmish: Source**\
+`Sophie Cunningham will also receive a fine for her role in the scuffle late in Tuesday's game.`\
+https://nytimes.com/athletic/6436009/2025/06/18/wnba-fever-sun-suspension/
+
+**Fed Chair Holds Interest Rates Steady**\
+`Jerome H. Powell announced interest rates will remain steady as the Fed braces for inflation to rise sharply.`\
+https://nytimes.com/video/us/100000010237318/powell-interest-rates.html
+
+**Foden: 'I want to prove people wrong' after 'difficult' season**\
+`Foden started City's Club World Cup campaign with a goal inside two minutes in a 2-0 win over Wydad AC.`\
+https://nytimes.com/athletic/6436091/2025/06/18/phil-foden-manchester-city-difficult-season/
+
 **Iran Crisis Overshadowed as Senators Squabble at Hearing**\
 `A hearing featuring Defense Secretary Pete Hegseth exposed a major divide over the dangers of using U.S. troops domestically.`\
 https://nytimes.com/2025/06/18/us/politics/hegseth-senate-hearing-iran-military.html
