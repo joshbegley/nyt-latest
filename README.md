@@ -1,3 +1,19 @@
+**Xabi Alonso's awkward start at Madrid: New hope, little time, big pressure**\
+`The 43-year-old is taking on one of football's most demanding jobs off the back of the Spanish giants' disappointing European season`\
+https://nytimes.com/athletic/6431574/2025/06/18/xabi-alonsos-awkward-start-at-real-madrid-new-hope-little-time-big-pressure/
+
+**What Lukas Nmecha will bring to Leeds: Strength, competition and, if he stays fit, useful goals**\
+`The striker is joining from Wolfsburg under freedom of contract and will be keen to make up for lost time after injury issues in Germany`\
+https://nytimes.com/athletic/6433151/2025/06/18/leeds-lukas-nmecha-farke-analysis/
+
+**Crystal Palace and player pathways: What will be the club's strategy next season?**\
+`The FA Cup winners are waiting to hear whether they will compete in the Europa League, with the future of their fringe players up in the air`\
+https://nytimes.com/athletic/6415508/2025/06/18/crystal-palace-europa-franca-pathway-loan/
+
+**Inside West Ham Q&A: Kudus' future, latest on Aguerd, and how long will Potter get?**\
+`Roshane Thomas answers you questions on everything happening with West Ham this summer`\
+https://nytimes.com/athletic/6431495/2025/06/18/inside-west-ham-qa-kudus-aguerd-sullivan-potter/
+
 **Richard Sherman charged with DUI stemming from 2024 arrest**\
 `Sherman was arrested on suspicion of driving under the influence on Feb. 24, 2024`\
 https://nytimes.com/athletic/6434019/2025/06/18/richard-sherman-dui-charge-2024-arrest-seahawks/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6431727/2025/06/18/florian-wirtz-liverpool-team-tac
 **Great-Grandson of Islamic Republic’s Founder Was in Streets as Israel Fired on Tehran**\
 `Seyyed Ahmad Khomeini, a descendant of Ayatollah Ruhollah Khomeini, told The Times that the legacy of his family name was at stake in the conflict.`\
 https://nytimes.com/2025/06/18/world/middleeast/iran-islamic-republic-seyyed-ahmad-khomeini.html
-
-**Farewell Alexander-Arnold, hello Trent: Why players switch to a single name**\
-`The England defender's ditched the double-barrelled name and followed the lead of Dunkin’`\
-https://nytimes.com/athletic/6424427/2025/06/18/alexander-arnold-trent-name-change/
-
-**The Club World Cup's brightest young players - including Doue, Bellingham and Bayern's new Robben?**\
-`Mark Carey identifies the best players aged 21 and under at this summer's tournament in the United States. Some you'll know, some you won't…`\
-https://nytimes.com/athletic/6431806/2025/06/18/club-world-cup-best-young-players/
-
-**Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
-`Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
-https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
-
-**Meet Paul Seixas, French cycling's schoolboy with Grand Tour-winning potential**\
-`At just 18 years old, Seixas finished in the Dauphine’s top 10 to fuel hope he may be the one to end his nation's Tour de France drought.`\
-https://nytimes.com/athletic/6432459/2025/06/18/paul-seixas-interview-dauphine-tour-de-france/
 
