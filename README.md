@@ -1,3 +1,19 @@
+**Coaches, executives, scouts on Dylan Harper, top guard prospects: 2025 NBA Draft Confidential**\
+`This year's draft features multiple prospects who'd likely have been at or near the top of last year's draft boards.`\
+https://nytimes.com/athletic/6429478/2025/06/18/nba-draft-confidential-guard-2025/
+
+**Eight intriguing Ohio State players you need to watch when you can this season**\
+`They may not be starters, but these Buckeyes could play key roles in another College Football Playoff push and in future seasons.`\
+https://nytimes.com/athletic/6433176/2025/06/18/ohio-state-football-players-to-watch/
+
+**WhatsApp Denies Iran’s Claim That It Is Spying for Israel**\
+`Iran’s state television urged people to delete WhatsApp, saying without evidence that the app was sending user information to Israel.`\
+https://nytimes.com/2025/06/18/world/middleeast/iran-whatsapp-delete.html
+
+**Man United's ticket price rises a 'kick in the teeth' - fans' group**\
+`MUST say that for almost all Premier League games the cost of the cheapest seat available to members is going up by 50 per cent.`\
+https://nytimes.com/athletic/6434645/2025/06/18/manchester-united-ticket-prices-old-trafford/
+
 **Forest get City Ground expansion boost with council recommendation**\
 `The council has "recommended that planning permission be granted subject to a series of planning conditions”, it said on Wednesday.`\
 https://nytimes.com/athletic/6434653/2025/06/18/city-ground-development-expansion-nottingham-forest/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6433617/2025/06/18/ben-rice-catcher-experiment-yank
 **Re-drafting the 2015 MLB Draft: Alex Bregman, Kyle Tucker headline a so-so class**\
 `The Astros had an incredible draft in 2015 and it's reflected in this re-draft, where their top two picks would go 1-2.`\
 https://nytimes.com/athletic/6430735/2025/06/18/2015-mlb-draft-redraft-alex-bregman-kyle-tucker/
-
-**In a fire, their cherished Mike Trout autograph was lost. Then Trout got involved.**\
-`Aaron and Michael Campbell worked hard to obtain Trout's autograph. After tragedy struck, they sought out Trout, again. `\
-https://nytimes.com/athletic/6432557/2025/06/18/mike-trout-angels-autograph-fire/
-
-**Canada international Rose joins Manchester City**\
-`The 22-year-old defender has starred for Canada while at university.`\
-https://nytimes.com/athletic/6432288/2025/06/18/man-city-women-jade-rose/
-
-**As AL East cheers Rafael Devers' departure, NL West gets that much tougher**\
-`The NL West continues to position itself as the center of the baseball world, at the expense of the once-dominant AL East. `\
-https://nytimes.com/athletic/6433471/2025/06/18/rafael-devers-al-east-nl-west/
-
-**Everton's new recruitment team is coming together. Now for transfers**\
-`Everton believe they are building an impressive team off the pitch that will rebuild the club long term. Next up? Players for Moyes' squad`\
-https://nytimes.com/athletic/6432037/2025/06/18/everton-transfers-recruitment-team/
 
