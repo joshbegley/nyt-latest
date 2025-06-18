@@ -1,3 +1,7 @@
+**Word of the Day: wunderkind**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/18/learning/word-of-the-day-wunderkind.html
+
 **Canada smashes 6 past Honduras in spectacular Gold Cup start**\
 `A comprehensive win gave Canada a perfect Gold Cup start.`\
 https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
