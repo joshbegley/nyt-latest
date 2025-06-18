@@ -1,3 +1,7 @@
+**Which Premier League team has the toughest start to 2025-26?**\
+`With the 2025-26 Premier League fixtures released, we analyse which clubs have the toughest — and easiest — opening sets of five games.`\
+https://nytimes.com/athletic/6421019/2025/06/18/premier-league-hardest-start-2025-26/
+
 **Iran War Reflects a Changed Middle East and a New Israeli Military Doctrine**\
 `For years, Israel contained its conflicts with Tehran, Hamas and Hezbollah. The broad assault on Iran highlights a shift in strategy.`\
 https://nytimes.com/2025/06/18/world/iran-war-reflects-a-changed-middle-east-and-a-new-israeli-military-doctrine.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/18/realestate/18re-Guess-the-hidden-cost
 **See What Strategic Infrastructure Israel Has Damaged in Iran**\
 `Israel has attacked nuclear, military and energy facilities in Iran. Here is a look at the destruction so far.`\
 https://nytimes.com/interactive/2025/06/18/world/middleeast/israel-iran-strikes-facilities-map.html
-
-**If Trump Wants War With Iran, Let’s Hear From Congress First**\
-`It’s time for the legislative branch to step up.`\
-https://nytimes.com/2025/06/18/opinion/trump-iran-war-congress.html
 

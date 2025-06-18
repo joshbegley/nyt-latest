@@ -1,3 +1,7 @@
+**Iran War Reflects a Changed Middle East and a New Israeli Military Doctrine**\
+`For years, Israel contained its conflicts with Tehran, Hamas and Hezbollah. The broad assault on Iran highlights a shift in strategy.`\
+https://nytimes.com/2025/06/18/world/iran-war-reflects-a-changed-middle-east-and-a-new-israeli-military-doctrine.html
+
 **What to expect from Patriots RB TreVeyon Henderson as a rookie**\
 `The Patriots surprised many by drafting the Ohio State running back in the second round. Can the move reinvigorate their middling offense?`\
 https://nytimes.com/athletic/6431018/2025/06/18/treveyon-henderson-patriots-rb-rookie/
