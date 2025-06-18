@@ -1,3 +1,11 @@
+**Fantasy bullpen report featuring rising relievers Garrett Whitlock, Edwin Uceta and more**\
+`Greg Jewett's weekly bullpen report featuring leverage pathways, relievers on the rise, save stashes and more. `\
+https://nytimes.com/athletic/6436036/2025/06/18/fantasy-baseball-bullpen-report-relievers-whitlock-uceta/
+
+**Democrats’ Wary Response to Transgender Ruling Shows the Party’s Retreat**\
+`While some in the party denounced the Supreme Court’s decision, other top leaders remained quiet, underscoring the party’s discomfort on the issue.`\
+https://nytimes.com/2025/06/18/us/politics/democrats-supreme-court-transgender-ruling.html
+
 **U.S. Strike on Iran Would Bring Risks at Every Turn**\
 `The largest perils may lie in the aftermath, many experts say, just as they did in Afghanistan and Iraq.`\
 https://nytimes.com/2025/06/18/us/politics/us-bomb-iran-risks.html
