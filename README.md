@@ -10,7 +10,7 @@ https://nytimes.com/2025/06/18/us/ice-detention-illinois-congress.html
 `The Supreme Court upholds Tennessee’s ban on transgender care for minors.`\
 https://nytimes.com/interactive/2025/06/18/us/doc-annotation-transgender-scotus-case.html
 
-**‘Any Illegal Immigrants?’ Trump Quizzes Workers at the White House**\
+**‘Any Illegal Immigrants?’ Trump Quizzes Workers at the White House.**\
 `President Trump decided to check the immigration status of a work crew installing a new flagpole at the White House.`\
 https://nytimes.com/2025/06/18/us/politics/trump-flagpole-immigrants.html
 
