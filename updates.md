@@ -1,3 +1,7 @@
+**Silva rules out Man City summer exit: 'I'm going to stay'**\
+`Silva, who has made over 400 City appearances across eight seasons, has ruled out any suggestion of a summer move away from the Etihad.`\
+https://nytimes.com/athletic/6434521/2025/06/18/bernardo-silva-manchester-city-transfers/
+
 **The Athletic FC: A glimpse of Real Madrid's $72m teen Mastantuono, PL fixtures announced**\
 `Today in TAFC: What will Real Madrid get for $72m when Franco Mastantuono joins, Ramos reminds us of his swagger, EPL fixtures are out!`\
 https://nytimes.com/athletic/6434482/2025/06/18/mastantuono-real-madrid-ramos-header-premier-league-fixtures/
