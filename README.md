@@ -1,3 +1,7 @@
+**Trump and the Middle East Weigh on the Fed**\
+`Investors are anxious about whether the central bank will change course on rate cuts as geopolitical turmoil and tariffs pose inflation risks.`\
+https://nytimes.com/2025/06/18/business/dealbook/trump-iran-fed-rates.html
+
 **Mandel's Mailbag: Pick best game each week this CFB season to attend. No stadium overlapping**\
 `Plus: Who's got it better next season, CJ Carr at Notre Dame or Julian Sayin at Ohio State? `\
 https://nytimes.com/athletic/6433790/2025/06/18/mandels-mailbag-house-settlement-baylor-auburn-unc/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/briefing/israel-iran-war-explained.html
 **Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
 `Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
 https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
-
-**Why the Yankees are finally ready for the Ben Rice experiment at catcher**\
-`The Yankees believe Rice is ready for the challenge. “I think this guy’s a major-league catcher," catching coordinator Tanner Swanson said.`\
-https://nytimes.com/athletic/6433617/2025/06/18/ben-rice-catcher-experiment-yankees/
 
