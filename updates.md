@@ -1,3 +1,7 @@
+**Trump Travel Restrictions Bar Residents Needed at U.S. Hospitals**\
+`Limits on travel and visa appointments have delayed or prevented foreign doctors from entering the country for jobs set to begin in weeks.`\
+https://nytimes.com/2025/06/18/health/medical-residents-travel-ban.html
+
 **The Supreme Court Upheld a State Ban on Transgender Care for Minors**\
 `Also, Trump’s cryptic Iran comments fueled fears of a wider war. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/18/briefing/scotus-transgender-care-trump-iran.html

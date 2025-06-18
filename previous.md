@@ -1,3 +1,7 @@
+**Trump Travel Restrictions Bar Residents Needed at U.S. Hospitals**\
+`Limits on travel and visa appointments have delayed or prevented foreign doctors from entering the country for jobs set to begin in weeks.`\
+https://nytimes.com/2025/06/18/health/medical-residents-travel-ban.html
+
 **The Supreme Court Upheld a State Ban on Transgender Care for Minors**\
 `Also, Trump’s cryptic Iran comments fueled fears of a wider war. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/18/briefing/scotus-transgender-care-trump-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436015/2025/06/18/travis-kelce-super-bowl-failed/
 **WNBA will not issue suspensions for Fever-Sun skirmish: Source**\
 `Sophie Cunningham will also receive a fine for her role in the scuffle late in Tuesday's game.`\
 https://nytimes.com/athletic/6436009/2025/06/18/wnba-fever-sun-suspension/
-
-**Fed Chair Holds Interest Rates Steady**\
-`Jerome H. Powell announced interest rates will remain steady as the Fed braces for inflation to rise sharply.`\
-https://nytimes.com/video/us/100000010237318/powell-interest-rates.html
 
