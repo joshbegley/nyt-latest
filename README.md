@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6432373/2025/06/17/cricket-coverage-athletic-welcom
 `The Off Broadway play “Prince Faggot” aims to shock. But the real surprise is how good it is anyway.`\
 https://nytimes.com/2025/06/17/theater/prince-faggot-review.html
 
-**'Embarrassed' Carson Hocevar fined $50k for comments about Mexico City**\
+**'Embarrassed' Carson Hocevar fined $50K for comments about Mexico City**\
 `Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
 https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
 
