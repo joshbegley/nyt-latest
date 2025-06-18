@@ -1,3 +1,7 @@
+**Is Contemporary Art’s Most Important Fair Losing Its Luster?**\
+`The Swiss edition of Art Basel was once a must-attend art world event. Now it faces formidable challenges — including from its own Paris offshoot.`\
+https://nytimes.com/2025/06/18/arts/design/is-contemporary-arts-most-important-fair-losing-its-luster.html
+
 **A Transgender Clinic Opened in 2018. Four Years Later, the Firestorm Began.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/a-transgender-clinic-opened-in-2018-four-years-later-the-firestorm-began
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/heres-the-
 **How Diego Luna won over Mauricio Pochettino and reset a USMNT standard**\
 `The RSL star is not nearly as heralded as some of his USMNT teammates, but he has qualities that Pochettino values greatly`\
 https://nytimes.com/athletic/6434881/2025/06/18/diego-luna-mauricio-pochettino-usmnt/
-
-**Katie Miller’s Washington Rise Takes a Musk Detour**\
-`She is one half of a Trump-world power couple. But she’s on Team Elon. It’s gotten complicated.`\
-https://nytimes.com/2025/06/18/style/katie-miller-stephen-miller-trump-musk.html
 
