@@ -1,3 +1,15 @@
+**Forest get City Ground expansion boost with council recommendation**\
+`The council has "recommended that planning permission be granted subject to a series of planning conditions”, it said on Wednesday.`\
+https://nytimes.com/athletic/6434653/2025/06/18/city-ground-development-expansion-nottingham-forest/
+
+**FIFA Struts Off the Pitch and Onto the Catwalk**\
+`Soccer’s governing body is putting its name on a luxury fashion line. Would you buy it?`\
+https://nytimes.com/2025/06/18/style/fifa-luxury-fashion-line.html
+
+**Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
+`Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
+https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
+
 **The Israel-Iran War, Explained**\
 `We explain why Israel chose this moment to attack Iran.`\
 https://nytimes.com/2025/06/18/briefing/israel-iran-war-explained.html
