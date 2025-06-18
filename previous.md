@@ -1,3 +1,19 @@
+**Trump says ‘nobody knows what I’m going to do’ on Iran.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/trump-says-nobody-knows-what-im-going-to-do-on-iran
+
+**Here’s the latest on the decision.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/heres-the-latest-on-the-decision
+
+**How Diego Luna won over Mauricio Pochettino and reset a USMNT standard**\
+`The RSL star is not nearly as heralded as some of his USMNT teammates, but he has qualities that Pochettino values greatly`\
+https://nytimes.com/athletic/6434881/2025/06/18/diego-luna-mauricio-pochettino-usmnt/
+
+**Katie Miller’s Washington Rise Takes a Musk Detour**\
+`She is one half of a Trump-world power couple. But she’s on Team Elon. It’s gotten complicated.`\
+https://nytimes.com/2025/06/18/style/katie-miller-stephen-miller-trump-musk.html
+
 **Emma Hayes and Mauricio Pochettino face different challenges with their U.S. teams**\
 `The two former Chelsea coaches find themselves in opposite scenarios with the men's and women's American national sides`\
 https://nytimes.com/athletic/6433578/2025/06/18/emma-hayes-and-mauricio-pochettino-face-different-challenges-with-u-s-teams/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/18/science/ancient-human-adaptation-environments.htm
 **Starry Skies May Guide Bogong Moths Home**\
 `A new study suggests that these Australian insects may be the first invertebrates to use the night sky as a compass during migration.`\
 https://nytimes.com/2025/06/18/science/moths-celestial-navigation-australia.html
-
-**Real Risk to Youth Mental Health Is ‘Addictive Use,’ Not Screen Time Alone, Study Finds**\
-`Researchers found children with highly addictive use of phones, video games or social media were two to three times as likely to have thoughts of suicide or to harm themselves.`\
-https://nytimes.com/2025/06/18/health/youth-suicide-risk-phones.html
-
-**Rangers sign Matt Rempe to a two-year extension**\
-`The forward skates well for his size and played on the Rangers' fourth line when in the lineup.`\
-https://nytimes.com/athletic/6435055/2025/06/18/new-york-rangers-sign-matt-rempe/
-
-**5 Highlights From the Pianist Alfred Brendel’s Sprawling Career**\
-`Brendel, who died on Tuesday at 94, concentrated on a small number of canonical composers, mainly Haydn, Mozart, Beethoven and Schubert.`\
-https://nytimes.com/2025/06/18/arts/music/alfred-brendel-piano.html
-
-**Ramos, Cavani, Cancelo and seven other blasts from the past at the Club World Cup**\
-`These players may pop up on your radar again after featuring at this summer's tournament...`\
-https://nytimes.com/athletic/6432517/2025/06/18/blasts-from-past-at-club-world-cup-ramos-cavani-cancelo/
 

@@ -1,3 +1,19 @@
+**Trump says ‘nobody knows what I’m going to do’ on Iran.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/trump-says-nobody-knows-what-im-going-to-do-on-iran
+
+**Here’s the latest on the decision.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/heres-the-latest-on-the-decision
+
+**How Diego Luna won over Mauricio Pochettino and reset a USMNT standard**\
+`The RSL star is not nearly as heralded as some of his USMNT teammates, but he has qualities that Pochettino values greatly`\
+https://nytimes.com/athletic/6434881/2025/06/18/diego-luna-mauricio-pochettino-usmnt/
+
+**Katie Miller’s Washington Rise Takes a Musk Detour**\
+`She is one half of a Trump-world power couple. But she’s on Team Elon. It’s gotten complicated.`\
+https://nytimes.com/2025/06/18/style/katie-miller-stephen-miller-trump-musk.html
+
 **Emma Hayes and Mauricio Pochettino face different challenges with their U.S. teams**\
 `The two former Chelsea coaches find themselves in opposite scenarios with the men's and women's American national sides`\
 https://nytimes.com/athletic/6433578/2025/06/18/emma-hayes-and-mauricio-pochettino-face-different-challenges-with-u-s-teams/
