@@ -1,3 +1,15 @@
+**The MAGA Fight Over the Iran Fight**\
+`As President Trump ponders involving the United States in Israel’s attacks on Iran, the G.O.P. faces a thorny question: What does “America first” really mean?`\
+https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
+
+**If the U.S. joins Israeli attacks, Iran will retaliate ‘wherever we find the targets,’ an official says.**\
+`By Liam Stack`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/if-the-us-joins-israeli-attacks-iran-will-retaliate-wherever-we-find-the-targets-an-official-says
+
+**Shedeur Sanders issued citation for driving over 100 mph**\
+`Sanders was pulled over Tuesday morning, police records show`\
+https://nytimes.com/athletic/6436229/2025/06/18/shedeur-sanders-citation-driving-speed-limit/
+
 **Go Ahead, Have a ‘Fridge Cigarette’**\
 `The click of the can, the sound of the bubbles: The internet is reframing the humble soda as an indulgent escape.`\
 https://nytimes.com/2025/06/18/style/fridge-cigarette-diet-coke.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6436086/2025/06/18/travis-kelce-chasing-another-rin
 **For Food Network Fans, Anne Burrell Was the Fun-Loving Aunt**\
 `The chef, who died Tuesday, built her stardom on a big, down-to-earth personality in which viewers could see themselves.`\
 https://nytimes.com/2025/06/18/dining/anne-burrell-food-network.html
-
-**Gary England, Star Meteorologist in Tornado Alley, Dies at 85**\
-`Working for a TV station in Oklahoma City, he was known for using high-tech tools to give early warnings of tornadoes in the central U.S.`\
-https://nytimes.com/2025/06/18/obituaries/gary-england-dead.html
-
-**Senators Ask Hegseth About Domestic Deployment of U.S. Troops**\
-`Senator Elissa Slotkin, Democrat of Michigan, asked Secretary Pete Hegseth if he had given troops deployed domestically orders “to shoot at unarmed protesters in any way?”`\
-https://nytimes.com/video/us/politics/100000010237762/hegseth-slotkin-senate-argument-military.html
-
-**Tehran Is About as Densely Populated as New York City**\
-`Recent evacuation warnings from Israel affect hundreds of thousands of the capital’s residents.`\
-https://nytimes.com/2025/06/18/world/middleeast/tehran-iran-density-map.html
 

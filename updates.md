@@ -1,3 +1,15 @@
+**The MAGA Fight Over the Iran Fight**\
+`As President Trump ponders involving the United States in Israel’s attacks on Iran, the G.O.P. faces a thorny question: What does “America first” really mean?`\
+https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
+
+**If the U.S. joins Israeli attacks, Iran will retaliate ‘wherever we find the targets,’ an official says.**\
+`By Liam Stack`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/if-the-us-joins-israeli-attacks-iran-will-retaliate-wherever-we-find-the-targets-an-official-says
+
+**Shedeur Sanders issued citation for driving over 100 mph**\
+`Sanders was pulled over Tuesday morning, police records show`\
+https://nytimes.com/athletic/6436229/2025/06/18/shedeur-sanders-citation-driving-speed-limit/
+
 **Go Ahead, Have a ‘Fridge Cigarette’**\
 `The click of the can, the sound of the bubbles: The internet is reframing the humble soda as an indulgent escape.`\
 https://nytimes.com/2025/06/18/style/fridge-cigarette-diet-coke.html
