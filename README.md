@@ -22,7 +22,7 @@ https://nytimes.com/2025/06/18/world/europe/iran-war-israel-gaza.html
 `In MLB's first All-Star ballot update released Monday, Crow-Armstrong led all NL outfielders with 1,126,119 votes.`\
 https://nytimes.com/athletic/6433976/2025/06/18/pete-crow-armstrong-home-run-derby-participation-comments/
 
-**Canada smashes six past Honduras in spectacular Gold Cup start**\
+**Canada smashes 6 past Honduras in spectacular Gold Cup start**\
 `A comprehensive win gave Canada a perfect Gold Cup start.`\
 https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
 

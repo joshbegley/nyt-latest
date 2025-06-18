@@ -1,3 +1,7 @@
+**As G7 Talks End in Canada, Ukraine Comes Away With Little**\
+`President Volodymyr Zelensky had hoped to secure more support from the Group of 7 nations, but the crisis in the Middle East was seen as a more urgent priority.`\
+https://nytimes.com/2025/06/18/world/canada/g7-ukraine-trump-zelensky.html
+
 **Panthers' Matthew Tkachuk played through torn adductor, hernia in playoffs**\
 `Coach Paul Maurice quipped after Tuesday’s 5-1 win over Edmonton that the medical term for Tkachuk was, “He was a mess.”`\
 https://nytimes.com/athletic/6434125/2025/06/18/panthers-matthew-tkachuk-injury-nhl-stanley-cup-playoffs/
