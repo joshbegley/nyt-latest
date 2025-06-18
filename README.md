@@ -1,3 +1,19 @@
+**How Dr. Phil and a Top Adams Aide Helped Ease ICE’s Path Into New York**\
+`Kaz Daughtry, a freewheeling deputy mayor, has emerged as a crucial ally for the Trump administration and its border czar. So has Dr. Phil.`\
+https://nytimes.com/2025/06/18/nyregion/ice-kaz-adams-nyc-immigration.html
+
+**No One Answers When Lawmakers From Illinois Knock on ICE’s Door**\
+`Four Democratic members of Congress tried in vain to enter an immigration processing facility near Chicago.`\
+https://nytimes.com/2025/06/18/us/ice-detention-illinois-congress.html
+
+**The Supreme Court’s Decision on Transgender Care for Minors, Annotated**\
+`The Supreme Court upholds Tennessee’s ban on transgender care for minors.`\
+https://nytimes.com/interactive/2025/06/18/us/doc-annotation-transgender-scotus-case.html
+
+**‘Any Illegal Immigrants?’ Trump Quizzes Workers at the White House**\
+`President Trump decided to check the immigration status of a work crew installing a new flagpole at the White House.`\
+https://nytimes.com/2025/06/18/us/politics/trump-flagpole-immigrants.html
+
 **27 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
 `Transgender minors and their parents, guardians and doctors have challenged bans in 19 states, with mixed results.`\
 https://nytimes.com/2025/06/18/us/politics/states-trans-treatments-scotus.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/06/18/business/fed-interest-rates/investors-have-s
 **Driver Takes Wrong Turn Down the Spanish Steps in Rome**\
 `Nobody was injured and the Italian police did not announce any damage to the monument.`\
 https://nytimes.com/video/world/europe/100000010236696/spanish-steps-italy-car.html
-
-**Britain Braces for Its First Heat Wave of the Year**\
-`Health alerts were in place through the weekend, as temperatures are expected to keep climbing.`\
-https://nytimes.com/2025/06/18/weather/uk-heat-wave-london.html
-
-**Austria Moves to Tighten Gun Laws After Deadly School Shooting**\
-`The government announced proposals to make it harder to buy a firearm after a gunman killed nine students and a teacher.`\
-https://nytimes.com/2025/06/18/world/europe/austria-gun-laws-school-shooting.html
-
-**What Has Medical Research Found on Gender Treatments for Trans Youth?**\
-`The Supreme Court cited the uncertainty in the scientific evidence.`\
-https://nytimes.com/2025/06/18/us/politics/gender-treatments-trans-youth-medicine.html
-
-**A.I. in the Classroom: A Brave New World?**\
-`Readers offer differing perspectives on artificial intelligence on campus. Also: Tree of Life in Pittsburgh, on uprooting antisemitism.`\
-https://nytimes.com/2025/06/18/opinion/ai-college.html
 
