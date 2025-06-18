@@ -1,3 +1,7 @@
+**Tottenham's 2025-26 Premier League fixtures confirmed**\
+`Thomas Frank's first game in charge of Tottenham Hotspur will come against a newly promoted side.`\
+https://nytimes.com/athletic/6418545/2025/06/18/tottenham-premier-league-fixtures-2025-26-schedule/
+
 **Newcastle's 2025-26 Premier League fixtures confirmed**\
 `Newcastle ended their 70-year-long trophy drought in 2024-25 and will compete in the Champions League next season.`\
 https://nytimes.com/athletic/6418414/2025/06/18/newcastle-premier-league-fixtures-2025-26-schedule/
