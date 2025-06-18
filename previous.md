@@ -1,3 +1,11 @@
+**Fever-Sun scuffle leads to a Caitlin Clark tech, Jacy Sheldon flagrant foul**\
+`The tension was building between Clark and Sheldon from the start of the game as Sheldon hounded Clark on defense.`\
+https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
+
+**In a Year of Working Dangerously, Fear of Trump Marks Public Service Awards**\
+`The Trump administration’s large cuts to the federal work force turned an annual celebration of federal workers into a reminder of loss.`\
+https://nytimes.com/2025/06/17/us/politics/trump-federal-workers-awards.html
+
 **Pep Guardiola on choosing Man City captain for first time, asking Klopp about Lijnders, Grealish's future**\
 `Pep Guardiola spoke publicly for the first time since the end of the Premier League season about changes on and off the pitch at Man City`\
 https://nytimes.com/athletic/6433665/2025/06/17/pep-guardiola-captain-lijnders-grealish/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6432373/2025/06/17/cricket-coverage-athletic-welcom
 `The Off Broadway play “Prince Faggot” aims to shock. But the real surprise is how good it is anyway.`\
 https://nytimes.com/2025/06/17/theater/prince-faggot-review.html
 
-**'Embarrassed' Carson Hocevar fined $50k for comments about Mexico City**\
+**'Embarrassed' Carson Hocevar fined $50K for comments about Mexico City**\
 `Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
 https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/17/arts/david-hekili-kenui-bell-dead.html
 **Federal Judge Certifies Class Action for Transgender People Seeking Passports**\
 `A preliminary injunction blocking the State Department from enforcing a new passport limit extends to all trans passport seekers.`\
 https://nytimes.com/2025/06/17/us/passports-transgender-trump-administration.html
-
-**Trump to Again Extend TikTok’s Reprieve From U.S. Ban**\
-`The president plans to sign another executive order this week that would give the popular video app more time to change its ownership structure.`\
-https://nytimes.com/2025/06/17/technology/tiktok-ban-extension-trump.html
-
-**Adams Bars Reporter From News Conferences for Being ‘Disrespectful’**\
-`After a contentious exchange, Mayor Eric Adams said, “Make sure security knows he’s not allowed back into this room.”`\
-https://nytimes.com/2025/06/17/nyregion/eric-adams-reporter-ny-daily-news.html
 
