@@ -1,3 +1,7 @@
+**Move over, Mbappe: SailGP's France franchise gets new investment from Ares Management**\
+`Ares' $3.7 billion sports fund has previously invested in the Miami Dolphins, Inter Miami CF, McLaren Racing, Atletico Madrid and more.`\
+https://nytimes.com/athletic/6433649/2025/06/18/sailgp-france-ares-management-kylian-mbappe/
+
 **Wimbledon wild cards: Two-time champion Petra Kvitova joined by British veterans and rising talents**\
 `U.S. Open girls' singles champion Mika Stojsavljevic is among the British recipients.`\
 https://nytimes.com/athletic/6434740/2025/06/18/wimbledon-wild-cards-mens-womens-singles/
