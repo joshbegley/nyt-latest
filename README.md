@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6418572/2025/06/18/wolves-premier-league-fixtures-2
 https://nytimes.com/athletic/6418560/2025/06/18/west-ham-premier-league-fixtures-2025-26-schedule/
 
 **Tottenham's 2025-26 Premier League fixtures confirmed**\
-`Thomas Frank's first game in charge of his new side will come against `\
+`Thomas Frank's first game in charge of Tottenham Hotspur will come against a newly promoted side.`\
 https://nytimes.com/athletic/6418545/2025/06/18/tottenham-premier-league-fixtures-2025-26-schedule/
 
 **Premier League fixtures 2025-26: Full schedule and dates**\
