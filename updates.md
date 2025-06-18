@@ -1,3 +1,7 @@
+**‘The Life of Chuck’ | Anatomy of a Scene**\
+`Mike Flanagan narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010233832/the-life-of-chuck-scene.html
+
 **Tottenham's 2025-26 Premier League fixtures confirmed**\
 `Thomas Frank's first game in charge of Tottenham Hotspur will come against a newly promoted side.`\
 https://nytimes.com/athletic/6418545/2025/06/18/tottenham-premier-league-fixtures-2025-26-schedule/
