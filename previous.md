@@ -1,40 +1,40 @@
-**‘The Life of Chuck’ | Anatomy of a Scene**\
-`Mike Flanagan narrates a sequence from his film.`\
-https://nytimes.com/video/movies/100000010233832/the-life-of-chuck-scene.html
+**What to expect from Patriots RB TreVeyon Henderson as a rookie**\
+`The Patriots surprised many by drafting the Ohio State running back in the second round. Can the move reinvigorate their middling offense?`\
+https://nytimes.com/athletic/6431018/2025/06/18/treveyon-henderson-patriots-rb-rookie/
 
-**Newcastle's 2025-26 Premier League fixtures confirmed**\
-`Newcastle ended their 70-year-long trophy drought in 2024-25 and will compete in the Champions League next season.`\
-https://nytimes.com/athletic/6418414/2025/06/18/newcastle-premier-league-fixtures-2025-26-schedule/
+**A Senator Who Was on a Hit List Fears the Fueling of Political Violence**\
+`Senator Tina Smith of Minnesota learned that her friend was assassinated, and that she had been a potential target herself. Now, she has blunt thoughts on who bears blame for violent outbursts.`\
+https://nytimes.com/2025/06/18/us/politics/tina-smith-mike-lee-minnesota.html
 
-**Aiming at the Dollar, China Makes a Pitch for Its Currency**\
-`The leader of China’s central bank made a clear though indirect critique of the dollar’s role as the world’s main currency.`\
-https://nytimes.com/2025/06/18/business/china-dollar-renminbi.html
+**In ‘Tehrangeles,’ Iranian Americans Anxiously Watch War Unfold From Afar**\
+`The Los Angeles area is home to the biggest diaspora of Iranians. The growing war between Iran and Israel has rattled this tight-knit community.`\
+https://nytimes.com/2025/06/18/us/in-tehrangeles-iranian-americans-anxiously-watch-war-unfold-from-afar.html
 
-**Man City's 2025-26 Premier League fixtures confirmed**\
-`The 2025-26 season marks the first time in five years that City will not head into a campaign as defending Premier League champions.`\
-https://nytimes.com/athletic/6418359/2025/06/18/manchester-city-premier-league-fixtures-2025-26-schedule/
+**I Will Never Trust R.F.K. Jr. But I Want to Trust Public Health.**\
+`To move beyond the current administration, we need to listen to one another and think beyond crude divisions.`\
+https://nytimes.com/2025/06/18/opinion/trust-public-health.html
 
-**Liverpool's 2025-26 Premier League fixtures confirmed**\
-`The reigning champions open the season with a home game against Bournemouth.`\
-https://nytimes.com/athletic/6418394/2025/06/18/liverpool-premier-league-fixtures-2025-26-schedule/
+**From Resignation in Protest to Campaign for Congress**\
+`Bridget A. Brink, who stepped down as ambassador to Ukraine in April out of objections to President Trump’s pro-Russian approach to the war, is now speaking out and running for office at home.`\
+https://nytimes.com/2025/06/18/us/politics/bridget-brink-congress.html
 
-**Nottm Forest's 2025-26 Premier League fixtures confirmed**\
-`Forest will play European football for the first time in 30 years after a strong 2024-25 league season. `\
-https://nytimes.com/athletic/6418489/2025/06/18/nottingham-forest-premier-league-fixtures-2025-26-schedule/
+**Images of Handcuffed Democrats Start to Pile Up in Trump’s Crackdown**\
+`Federal agents have arrested a growing number of the party’s elected officials, fueling liberal outrage and conservative accusations that Democrats are carrying out publicity stunts.`\
+https://nytimes.com/2025/06/18/us/politics/democrats-arrested-lander-padilla-trump.html
 
-**Man Utd's 2025-26 Premier League fixtures confirmed**\
-`After a season to forget, United will be keen to start the 2025-26 campaign in far better fashion.`\
-https://nytimes.com/athletic/6418367/2025/06/18/manchester-united-premier-league-fixtures-2025-26-schedule/
+**Can You Guess the Hidden Costs of Homeownership?**\
+`Are you prepared for the routine expenses (and costly surprises) of homeownership?`\
+https://nytimes.com/interactive/2025/06/18/realestate/18re-Guess-the-hidden-costs-of-homeownership.html
 
-**Wolves' 2025-26 Premier League fixtures confirmed**\
-`Wolves will be hoping to improve on their 16th place finish last term.`\
-https://nytimes.com/athletic/6418572/2025/06/18/wolves-premier-league-fixtures-2025-26-schedule/
+**See What Strategic Infrastructure Israel Has Damaged in Iran**\
+`Israel has attacked nuclear, military and energy facilities in Iran. Here is a look at the destruction so far.`\
+https://nytimes.com/interactive/2025/06/18/world/middleeast/israel-iran-strikes-facilities-map.html
 
-**West Ham's 2025-26 Premier League fixtures confirmed**\
-`West Ham had a tough 2024-25 campaign and will look to improve their 14-placed league position next season.`\
-https://nytimes.com/athletic/6418560/2025/06/18/west-ham-premier-league-fixtures-2025-26-schedule/
+**If Trump Wants War With Iran, Let’s Hear From Congress First**\
+`It’s time for the legislative branch to step up.`\
+https://nytimes.com/2025/06/18/opinion/trump-iran-war-congress.html
 
-**Tottenham's 2025-26 Premier League fixtures confirmed**\
-`Thomas Frank's first game in charge of Tottenham Hotspur will come against a newly promoted side.`\
-https://nytimes.com/athletic/6418545/2025/06/18/tottenham-premier-league-fixtures-2025-26-schedule/
+**Leonard Lauder, a Consummate New Yorker**\
+`Lauder, who died last week, was an executive, a philanthropist and an art collector. He was also a devoted advocate for New York City.`\
+https://nytimes.com/2025/06/18/nyregion/leonard-lauder-remembrance.html
 

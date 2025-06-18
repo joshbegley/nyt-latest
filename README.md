@@ -1,3 +1,7 @@
+**Iran War Reflects a Changed Middle East and a New Israeli Military Doctrine**\
+`For years, Israel contained its conflicts with Tehran, Hamas and Hezbollah. The broad assault on Iran highlights a shift in strategy.`\
+https://nytimes.com/2025/06/18/world/iran-war-reflects-a-changed-middle-east-and-a-new-israeli-military-doctrine.html
+
 **What to expect from Patriots RB TreVeyon Henderson as a rookie**\
 `The Patriots surprised many by drafting the Ohio State running back in the second round. Can the move reinvigorate their middling offense?`\
 https://nytimes.com/athletic/6431018/2025/06/18/treveyon-henderson-patriots-rb-rookie/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/18/world/middleeast/israel-iran-strikes-
 **If Trump Wants War With Iran, Let’s Hear From Congress First**\
 `It’s time for the legislative branch to step up.`\
 https://nytimes.com/2025/06/18/opinion/trump-iran-war-congress.html
-
-**Leonard Lauder, a Consummate New Yorker**\
-`Lauder, who died last week, was an executive, a philanthropist and an art collector. He was also a devoted advocate for New York City.`\
-https://nytimes.com/2025/06/18/nyregion/leonard-lauder-remembrance.html
 
