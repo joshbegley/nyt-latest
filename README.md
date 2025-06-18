@@ -1,3 +1,7 @@
+**Iran is open to talks with the U.S., a senior diplomat says, even as the supreme leader rejects the idea.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/iran-is-open-to-talks-with-the-us-a-senior-diplomat-says-even-as-the-supreme-leader-rejects-the-idea
+
 **Thursday Briefing: Trump’s Indecision on Iran**\
 `Plus, Studio Ghibliesque video games.`\
 https://nytimes.com/2025/06/18/briefing/trump-iran-israel-india-canada-diplomacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/hegseth-senate-hearing-iran-military.
 **Rays in 'exclusive discussions' concerning possible sale**\
 `The team announced they are in talks with a group led by Florida real estate developer Patrick Zalupski and others. `\
 https://nytimes.com/athletic/6436000/2025/06/18/tampa-bay-rays-possible-sale/
-
-**State Dept. Says It Is Working to Get Americans Out of Israel**\
-`As fighting between Iran and Israel continued for a sixth day, the U.S. Embassy in Jerusalem made its first announcement for Americans trying to leave Israel.`\
-https://nytimes.com/2025/06/18/world/middleeast/us-citizens-israel-departure-iran-war.html
 

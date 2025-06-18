@@ -1,3 +1,11 @@
+**Thursday Briefing: Trump’s Indecision on Iran**\
+`Plus, Studio Ghibliesque video games.`\
+https://nytimes.com/2025/06/18/briefing/trump-iran-israel-india-canada-diplomacy.html
+
+**This Problem Is Easy to Solve**\
+`Global malnutrition risks getting worse because of Trump’s cuts in humanitarian aid, and here are the effects.`\
+https://nytimes.com/2025/06/18/opinion/hunger-trump-aid-cuts.html
+
 **New Report Highlights Air Traffic Control Staffing Woes**\
 `While faulting some towers for inefficient practices, the report recognized significant external factors and called on Congress to help address the problem.`\
 https://nytimes.com/2025/06/18/us/politics/faa-report-staffing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436000/2025/06/18/tampa-bay-rays-possible-sale/
 **State Dept. Says It Is Working to Get Americans Out of Israel**\
 `As fighting between Iran and Israel continued for a sixth day, the U.S. Embassy in Jerusalem made its first announcement for Americans trying to leave Israel.`\
 https://nytimes.com/2025/06/18/world/middleeast/us-citizens-israel-departure-iran-war.html
-
-**EuroLeague re-enters conversation for new NBA pro league in Europe**\
-`Could the EuroLeague or some of its teams be involved in the NBA's European league in the future? `\
-https://nytimes.com/athletic/6435965/2025/06/18/nba-europe-euroleague-tony-parker/
-
-**Scoop City: 2025 AFC North preview, plus the Bengals rookie holdout**\
-`Key questions, breakout players and positions to watch in the AFC North, plus a look at the Bengals rookie holdout situation.`\
-https://nytimes.com/athletic/6435933/2025/06/18/afc-north-preview-2025-nfl-bengals-steelers-ravens-browns/
 
