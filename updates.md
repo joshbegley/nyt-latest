@@ -1,3 +1,15 @@
+**The Supreme Court Upheld a State Ban on Transgender Care for Minors**\
+`Also, Trump’s cryptic Iran comments fueled fears of a wider war. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/06/18/briefing/scotus-transgender-care-trump-iran.html
+
+**Real Madrid 1 Al-Hilal 1: Alexander-Arnold's debut, Bounou's penalty heroics and a slow start for Alonso?**\
+`The 15-time European champions were outplayed by Al-Hilal at the Hard Rock Stadium but missed a late chance to win it from the penalty spot`\
+https://nytimes.com/athletic/6424777/2025/06/18/real-madrid-al-hilal-penalty-bounou-alonso-trent-analysis/
+
+**Travelers Championship picks, odds: Sam Burns, Brian Harman among names to watch**\
+`This weekend’s field features several of the tour’s stars, who’ll be anxious to put tough U.S. Open performances past them.`\
+https://nytimes.com/athletic/6436195/2025/06/18/travelers-championship-picks-odds-sam-burns-brian-harman/
+
 **Iran is open to talks with the U.S., a senior diplomat says, even as the supreme leader rejects the idea.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/iran-is-open-to-talks-with-the-us-a-senior-diplomat-says-even-as-the-supreme-leader-rejects-the-idea
