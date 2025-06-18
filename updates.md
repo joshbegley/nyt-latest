@@ -1,3 +1,7 @@
+**Which Premier League team has the toughest start to 2025-26?**\
+`With the 2025-26 Premier League fixtures released, we analyse which clubs have the toughest — and easiest — opening sets of five games.`\
+https://nytimes.com/athletic/6421019/2025/06/18/premier-league-hardest-start-2025-26/
+
 **Iran War Reflects a Changed Middle East and a New Israeli Military Doctrine**\
 `For years, Israel contained its conflicts with Tehran, Hamas and Hezbollah. The broad assault on Iran highlights a shift in strategy.`\
 https://nytimes.com/2025/06/18/world/iran-war-reflects-a-changed-middle-east-and-a-new-israeli-military-doctrine.html
