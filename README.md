@@ -1,3 +1,7 @@
+**27 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
+`Transgender minors and their parents, guardians and doctors have challenged bans in 19 states, with mixed results.`\
+https://nytimes.com/2025/06/18/us/politics/states-trans-treatments-scotus.html
+
 **Ravens, cornerback Jaire Alexander agree to 1-year deal**\
 `The Packers released Alexander, 28, last week after the two sides couldn’t agree to a restructured contract.`\
 https://nytimes.com/athletic/6427434/2025/06/18/jaire-alexander-signs-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/gender-treatments-trans-youth-medicin
 **A.I. in the Classroom: A Brave New World?**\
 `Readers offer differing perspectives on artificial intelligence on campus. Also: Tree of Life in Pittsburgh, on uprooting antisemitism.`\
 https://nytimes.com/2025/06/18/opinion/ai-college.html
-
-**Troops in Mideast Would Be Vulnerable to Iran Strikes on U.S. Targets**\
-`Iran’s leader vowed that his country would respond to any U.S. involvement in the war with Israel.`\
-https://nytimes.com/2025/06/18/world/middleeast/us-troops-middle-east-iran.html
 
