@@ -1,8 +1,12 @@
+**Myles Turner, the longest-tenured Pacer, is 'the backbone' for the franchise and community**\
+`Turner, who is an unrestricted free agent at season's end, has spent his entire career with the Pacers and is an inspiration to teammates.`\
+https://nytimes.com/athletic/6434675/2025/06/18/myles-turner-pacers-nba-finals-2025-thunder/
+
 **Ayatollah Ali Khamenei of Iran Rejects Trump’s Call to Surrender**\
 `Iran’s state broadcaster aired Ayatollah Ali Khamenei delivering a speech, warning the U.S. against making threats against his country.`\
 https://nytimes.com/video/world/middleeast/100000010236362/iran-ayatollah-ali-khamenei-trump-conflict.html
 
-**Orioles minor league IF dies in jet ski accident involving other players**\
+**Orioles minor-league IF dies in jet ski accident involving other players**\
 `Luis Guevara, 19, was involved in a head-on collision between two jet skis on Sunday near Lido Key in Sarasota, Fla.`\
 https://nytimes.com/athletic/6434987/2025/06/18/mlb-orioles-player-death-accident/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/business/us-steel-nippon-acquisition.html
 **Are the Florida Panthers the best team of the cap era? Ranking the 6 contenders**\
 `Ranking the NHL's best three-season playoff runs since 2005-06.`\
 https://nytimes.com/athletic/6433996/2025/06/18/are-the-florida-panthers-the-best-team-of-the-cap-era-ranking-the-6-contenders/
-
-**Alex Soros and Huma Abedin Share Their Love Story and Wedding**\
-`Each knew of the other for years, but it took an intense conversation at a party in 2023 — plus a missed DM, a text chain, many more texts, phone calls and the Doha Forum — to set a dinner date.`\
-https://nytimes.com/2025/06/18/style/huma-abedin-alex-soros-wedding.html
 

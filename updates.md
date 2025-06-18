@@ -1,3 +1,11 @@
+**Ayatollah Ali Khamenei of Iran Rejects Trump’s Call to Surrender**\
+`Iran’s state broadcaster aired Ayatollah Ali Khamenei delivering a speech, warning the U.S. against making threats against his country.`\
+https://nytimes.com/video/world/middleeast/100000010236362/iran-ayatollah-ali-khamenei-trump-conflict.html
+
+**Orioles minor league IF dies in jet ski accident involving other players**\
+`Luis Guevara, 19, was involved in a head-on collision between two jet skis on Sunday near Lido Key in Sarasota, Fla.`\
+https://nytimes.com/athletic/6434987/2025/06/18/mlb-orioles-player-death-accident/
+
 **What the Fed’s Rate Decision Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/06/18/business/fed-interest-rate-loans-mortgages.html

@@ -1,3 +1,11 @@
+**Ayatollah Ali Khamenei of Iran Rejects Trump’s Call to Surrender**\
+`Iran’s state broadcaster aired Ayatollah Ali Khamenei delivering a speech, warning the U.S. against making threats against his country.`\
+https://nytimes.com/video/world/middleeast/100000010236362/iran-ayatollah-ali-khamenei-trump-conflict.html
+
+**Orioles minor league IF dies in jet ski accident involving other players**\
+`Luis Guevara, 19, was involved in a head-on collision between two jet skis on Sunday near Lido Key in Sarasota, Fla.`\
+https://nytimes.com/athletic/6434987/2025/06/18/mlb-orioles-player-death-accident/
+
 **What the Fed’s Rate Decision Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/06/18/business/fed-interest-rate-loans-mortgages.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6433996/2025/06/18/are-the-florida-panthers-the-bes
 **Alex Soros and Huma Abedin Share Their Love Story and Wedding**\
 `Each knew of the other for years, but it took an intense conversation at a party in 2023 — plus a missed DM, a text chain, many more texts, phone calls and the Doha Forum — to set a dinner date.`\
 https://nytimes.com/2025/06/18/style/huma-abedin-alex-soros-wedding.html
-
-**Tesla’s Robotaxi, Long Promised by Elon Musk, Joins a Crowded Field**\
-`Mr. Musk says the driverless taxis could begin ferrying passengers on Sunday in Austin, Texas, where other companies already have similar cars on the road.`\
-https://nytimes.com/2025/06/18/business/tesla-robotaxi-austin-elon-musk.html
-
-**Chinese Carmakers Expand Sales in Europe Despite Trade Barriers**\
-`BYD and other companies doubled their share of the car market after the European Union imposed higher tariffs on electric vehicles from China.`\
-https://nytimes.com/2025/06/18/business/china-byd-cars-europe.html
 
