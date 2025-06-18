@@ -1,3 +1,19 @@
+**Trump’s Trade Policies Prompt Companies to Raise Prices, Cut Staff**\
+`Consumers are starting to pull back spending as President Trump’s trade policies ripple through the economy.`\
+https://nytimes.com/2025/06/18/business/fed-tariffs-inflation-companies.html
+
+**Sotomayor Writes the Court ‘Abandons’ Transgender Children to ‘Political Whims’**\
+`Justice Sotomayor also read her dissent from the bench, a move typically reserved to emphasize a justice’s extreme displeasure with a decision.`\
+https://nytimes.com/2025/06/18/us/politics/sotomayor-transgender-care-dissent-scotus.html
+
+**Lewis-Skelly close to signing new long-term Arsenal contract**\
+`The 18-year-old's new deal will make him one of the best-paid young players in the world.`\
+https://nytimes.com/athletic/6344158/2025/06/18/myles-lewis-skelly-arsenal-contract/
+
+**Tucker Carlson Berates Ted Cruz Over Bellicose Stance on Iran**\
+`In an interview that highlighted a rift on the far right over the role of the United States in confronting Iran, the host confronted the senator over his hawkish stance, suggesting he was ill-informed.`\
+https://nytimes.com/2025/06/18/us/ted-cruz-tucker-carlson-iran-interview.html
+
 **Myles Turner, the longest-tenured Pacer, is 'the backbone' for the franchise and community**\
 `Turner, who is an unrestricted free agent at season's end, has spent his entire career with the Pacers and is an inspiration to teammates.`\
 https://nytimes.com/athletic/6434675/2025/06/18/myles-turner-pacers-nba-finals-2025-thunder/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/06/18/business/fed-interest-rates/how-to-read-the-
 **What to know about today’s Fed meeting.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/06/18/business/fed-interest-rates/what-to-know-about-todays-fed-meeting
-
-**Live Updates: Fed Expected to Keep Rates Steady**\
-`The Federal Reserve is likely to continue waiting for more clarity on the effects of tariffs, taxes and other policies before it resumes cutting interest rates.`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates
-
-**Boeing Keeps Low Profile at Paris Air Show as Airbus Announces Deals**\
-`Boeing had a more muted tone than its European rival. The show comes soon after a Boeing jet operated by Air India crashed.`\
-https://nytimes.com/2025/06/18/business/boeing-airbus-paris-air-show.html
-
-**Nippon Steel Completes Its Acquisition of U.S. Steel**\
-`The deal gives the White House extraordinary control over U.S. Steel as part of a pact to alleviate national security concerns.`\
-https://nytimes.com/2025/06/18/business/us-steel-nippon-acquisition.html
-
-**Are the Florida Panthers the best team of the cap era? Ranking the 6 contenders**\
-`Ranking the NHL's best three-season playoff runs since 2005-06.`\
-https://nytimes.com/athletic/6433996/2025/06/18/are-the-florida-panthers-the-best-team-of-the-cap-era-ranking-the-6-contenders/
 
