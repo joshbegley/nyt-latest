@@ -1,3 +1,15 @@
+**Israeli Strikes Kill Civilians Across Iran**\
+`Israel has said it does not target Iranian civilians, but hundreds have died in the violence, among them a poet and her family, an equestrian and a graphic designer.`\
+https://nytimes.com/2025/06/18/world/middleeast/iran-civilian-deaths-israel-strikes.html
+
+**Social Security’s Finances Erode Further and Could Spell Benefit Cuts**\
+`The nation’s key program for retiree benefits continues to see financing shortfalls. Unless Congress acts, those drops could lead to payment cuts in eight years.`\
+https://nytimes.com/2025/06/18/business/social-security-benefits-shortfall.html
+
+**How ‘Jaws’ Made a Template for the Modern Blockbuster**\
+`Much more than a mere creature feature, “Jaws” created a playbook that filmmakers have followed closely for 50 years.`\
+https://nytimes.com/interactive/2025/06/18/upshot/jaws-at-50.html
+
 **Travis Kelce is 'only interested in Super Bowl rings.' Next up? The chase for No. 4**\
 `Kelce feels like he failed his team last year. He wants the chance to walk away on top, a storybook finish for a sterling career.`\
 https://nytimes.com/athletic/6436086/2025/06/18/travis-kelce-chasing-another-ring/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6436180/2025/06/18/juventus-trump-white-house-visit
 **Trump Says He Has Not Made a Final Decision on Iran Strikes**\
 `President Trump said that he might or might not send U.S. forces to attack Iran’s nuclear sites. Iran’s supreme leader, Ayatollah Ali Khamenei, rejected Mr. Trump’s demand for an “unconditional surrender” and rebuffed his threats.`\
 https://nytimes.com/video/us/politics/100000010236978/trump-clashes-with-ayatollah-ali-khamenei.html
-
-**Fantasy bullpen report featuring rising relievers Garrett Whitlock, Edwin Uceta and more**\
-`Greg Jewett's weekly bullpen report featuring leverage pathways, relievers on the rise, save stashes and more. `\
-https://nytimes.com/athletic/6436036/2025/06/18/fantasy-baseball-bullpen-report-relievers-whitlock-uceta/
-
-**Democrats’ Wary Response to Transgender Ruling Shows the Party’s Retreat**\
-`While some in the party denounced the Supreme Court’s decision, other top leaders remained quiet, underscoring the party’s discomfort on the issue.`\
-https://nytimes.com/2025/06/18/us/politics/democrats-supreme-court-transgender-ruling.html
-
-**U.S. Strike on Iran Would Bring Risks at Every Turn**\
-`The largest perils may lie in the aftermath, many experts say, just as they did in Afghanistan and Iraq.`\
-https://nytimes.com/2025/06/18/us/politics/us-bomb-iran-risks.html
 
