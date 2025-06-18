@@ -1,3 +1,7 @@
+**Canada smashes six past Honduras in spectacular Gold Cup start**\
+`A comprehensive win gave Canada a perfect Gold Cup start.`\
+https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
+
 **Mathis Albert: The American 16-year-old bringing 'swagger' to the Club World Cup**\
 `Albert joined Borussia Dortmund last year from LA Galaxy, having stood out for his dribbling, speed and ability in one-versus-one situations`\
 https://nytimes.com/athletic/6432311/2025/06/18/mathis-albert-american-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431768/2025/06/18/transfer-targets-summer-window-l
 **Franco Mastantuono is 17 years old and cost Real Madrid €63m. Here's what makes him special**\
 `The most interesting part of his profile is that he can be developed into a goalscoring forward or a playmaker — or even both at once...`\
 https://nytimes.com/athletic/6431422/2025/06/18/franco-mastantuono-real-madrid-signing-analysis-river-plate/
-
-**Wirtz could reshape Liverpool next season. This is how**\
-`The German's imminent signing might have significant consequences for some of Arne Slot's players`\
-https://nytimes.com/athletic/6431727/2025/06/18/florian-wirtz-liverpool-team-tactics/
 
