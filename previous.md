@@ -1,40 +1,40 @@
-**The Secret to Perfect Cornbread? Cabbage.**\
-`An optional wrapping of leaves boosts the flavor and texture of Yann Nury’s favorite recipe.`\
-https://nytimes.com/2025/06/18/t-magazine/summer-cornbread-recipe-cabbage.html
+**What the Fed’s Rate Decision Means for Your Finances**\
+`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
+https://nytimes.com/2025/06/18/business/fed-interest-rate-loans-mortgages.html
 
-**Yann Nury’s Cornbread Wrapped in Cabbage Leaves**\
-`Nury presents his finished cornbread, bottom side up, on a hand-painted cake stand by the Cholula, Mexico-based studio Talavera Santa Catarina.`\
-https://nytimes.com/video/t-magazine/100000010236530/yann-nurys-cornbread-wrapped-in-cabbage-leaves.html
+**How to read the Fed’s projections like a pro.**\
+`Officials at the Federal Reserve will release fresh economic forecasts on Wednesday. Here’s how to read the outlook for 2025 and beyond.`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates/how-to-read-the-feds-projections-like-a-pro
 
-**Is Contemporary Art’s Most Important Fair Losing Its Luster?**\
-`The Swiss edition of Art Basel was once a must-attend art world event. Now it faces formidable challenges — including from its own Paris offshoot.`\
-https://nytimes.com/2025/06/18/arts/design/is-contemporary-arts-most-important-fair-losing-its-luster.html
+**What to know about today’s Fed meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates/what-to-know-about-todays-fed-meeting
 
-**A Transgender Clinic Opened in 2018. Four Years Later, the Firestorm Began.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/a-transgender-clinic-opened-in-2018-four-years-later-the-firestorm-began
+**Live Updates: Fed Expected to Keep Rates Steady**\
+`The Federal Reserve is likely to continue waiting for more clarity on the effects of tariffs, taxes and other policies before it resumes cutting interest rates.`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates
 
-**Spain Blames Planning Missteps and Technical Problems for Huge Power Outage**\
-`The Spanish government ruled out a cyberattack, saying that a series of failures led to the nationwide blackout in April.`\
-https://nytimes.com/2025/06/18/world/europe/spain-power-failure-report.html
+**Boeing Keeps Low Profile at Paris Air Show as Airbus Announces Deals**\
+`Boeing had a more muted tone than its European rival. The show comes soon after a Boeing jet operated by Air India crashed.`\
+https://nytimes.com/2025/06/18/business/boeing-airbus-paris-air-show.html
 
-**Why players are walking out individually at the Club World Cup**\
-`Commonplace in American sports, Club World Cup organisers have brought individual walkouts to soccer`\
-https://nytimes.com/athletic/6434673/2025/06/18/club-world-cup-walkout-showbiz/
+**Nippon Steel Completes Its Acquisition of U.S. Steel**\
+`The deal gives the White House extraordinary control over U.S. Steel as part of a pact to alleviate national security concerns.`\
+https://nytimes.com/2025/06/18/business/us-steel-nippon-acquisition.html
 
-**Food Network Chefs and Many Others Pay Tribute to Anne Burrell**\
-`Following news of the chef and TV personality’s death at age 55, remembrances poured in on social media.`\
-https://nytimes.com/2025/06/18/dining/anne-burrell-death-reactions-tributes.html
+**Are the Florida Panthers the best team of the cap era? Ranking the 6 contenders**\
+`Ranking the NHL's best three-season playoff runs since 2005-06.`\
+https://nytimes.com/athletic/6433996/2025/06/18/are-the-florida-panthers-the-best-team-of-the-cap-era-ranking-the-6-contenders/
 
-**Trump Seizes On Rate Cuts Elsewhere in Bid to Pressure the Fed**\
-`President Trump has increasingly pointed to rate cuts by other central banks as he pressures Jerome H. Powell, the Fed chair, to reduce borrowing costs.`\
-https://nytimes.com/2025/06/18/business/trump-fed-interest-rates-powell.html
+**Alex Soros and Huma Abedin Share Their Love Story and Wedding**\
+`Each knew of the other for years, but it took an intense conversation at a party in 2023 — plus a missed DM, a text chain, many more texts, phone calls and the Doha Forum — to set a dinner date.`\
+https://nytimes.com/2025/06/18/style/huma-abedin-alex-soros-wedding.html
 
-**Tyrese Haliburton will likely be questionable for Game 6 of NBA Finals**\
-`Game 6 is Thursday at 8:30 pm ET in Indianapolis.`\
-https://nytimes.com/athletic/6435148/2025/06/18/pacers-tyrese-haliburton-questionable-game-6-nba/
+**Tesla’s Robotaxi, Long Promised by Elon Musk, Joins a Crowded Field**\
+`Mr. Musk says the driverless taxis could begin ferrying passengers on Sunday in Austin, Texas, where other companies already have similar cars on the road.`\
+https://nytimes.com/2025/06/18/business/tesla-robotaxi-austin-elon-musk.html
 
-**Trump says ‘nobody knows what I’m going to do’ on Iran.**\
-`By Tyler Pager`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/trump-says-nobody-knows-what-im-going-to-do-on-iran
+**Chinese Carmakers Expand Sales in Europe Despite Trade Barriers**\
+`BYD and other companies doubled their share of the car market after the European Union imposed higher tariffs on electric vehicles from China.`\
+https://nytimes.com/2025/06/18/business/china-byd-cars-europe.html
 
