@@ -1,3 +1,11 @@
+**U.S. Strike on Iran Would Bring Risks at Every Turn**\
+`The largest perils may lie in the aftermath, many experts say, just as they did in Afghanistan and Iraq.`\
+https://nytimes.com/2025/06/18/us/politics/us-bomb-iran-risks.html
+
+**Devils trade Erik Haula to Predators for Jeremy Hanzel, draft pick**\
+`The 34-year-old Haula had 21 points in 69 games this past year, and he returns to the team with which he spent the 2020-21 season.`\
+https://nytimes.com/athletic/6436325/2025/06/18/devils-erik-haula-predators-trade-jeremy-hanzel/
+
 **Devils trade Erik Haula to Predators for Jeremy Hanzel, draft pick**\
 `The 34-year-old Haula had 21 points in 69 games this past season, and he returns to the team with which he spent the 2020-21 season.`\
 https://nytimes.com/athletic/6436325/2025/06/18/devils-erik-haula-predators-trade-jeremy-hanzel/

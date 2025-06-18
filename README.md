@@ -1,3 +1,7 @@
+**Democrats’ Wary Response to Transgender Ruling Shows the Party’s Retreat**\
+`While some in the party denounced the Supreme Court’s decision, other top leaders remained quiet, underscoring the party’s discomfort on the issue.`\
+https://nytimes.com/2025/06/18/us/politics/democrats-supreme-court-transgender-ruling.html
+
 **U.S. Strike on Iran Would Bring Risks at Every Turn**\
 `The largest perils may lie in the aftermath, many experts say, just as they did in Afghanistan and Iraq.`\
 https://nytimes.com/2025/06/18/us/politics/us-bomb-iran-risks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/health/medical-residents-travel-ban.html
 **The Supreme Court Upheld a State Ban on Transgender Care for Minors**\
 `Also, Trump’s cryptic Iran comments fueled fears of a wider war. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/18/briefing/scotus-transgender-care-trump-iran.html
-
-**Real Madrid 1 Al-Hilal 1: Alexander-Arnold's debut, Bounou's penalty heroics and a slow start for Alonso**\
-`The 15-time European champions were outplayed by Al-Hilal at the Hard Rock Stadium but missed a late chance to win it from the penalty spot`\
-https://nytimes.com/athletic/6424777/2025/06/18/real-madrid-al-hilal-penalty-bounou-alonso-trent-analysis/
 
