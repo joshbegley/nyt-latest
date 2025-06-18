@@ -1,3 +1,19 @@
+**Broadway ‘Cabaret’ Will Feature Billy Porter as One Final Emcee**\
+`The show’s producers said they plan to end the New York run at the end of the actor’s run, on Oct. 19.`\
+https://nytimes.com/2025/06/18/theater/cabaret-broadway-closing-billy-porter.html
+
+**Trump Answers Questions on Possible U.S. Involvement in Iran**\
+`During an event to install flag poles outside the White House, President Trump said that he couldn’t say whether the U.S. would strike Iranian nuclear facilities.`\
+https://nytimes.com/video/us/politics/100000010236464/trump-iran-nuclear-israel.html
+
+**The effect of tariffs on inflation will be more significant this summer, economists say.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates/the-effect-of-tariffs-on-inflation-will-be-more-significant-this-summer-economists-say
+
+**Mudryk charged by FA with breach of anti-doping rules, facing lengthy ban**\
+`A violation of the FA’s anti-doping regulations carries with it a maximum penalty of a four-year suspension.`\
+https://nytimes.com/athletic/6001373/2025/06/18/mykhailo-mudryk-chelsea-ban-doping/
+
 **Netflix Dips Its Toe Into Old-Fashioned TV**\
 `The streaming giant announced a deal on Wednesday to show live and on-demand programming from one of France’s television networks, TF1.`\
 https://nytimes.com/2025/06/18/business/media/netflix-tf1-tv.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/18/us/ted-cruz-tucker-carlson-iran-interview.html
 **Myles Turner, the longest-tenured Pacer, is 'the backbone' for the franchise and community**\
 `Turner, who is an unrestricted free agent at season's end, has spent his entire career with the Pacers and is an inspiration to teammates.`\
 https://nytimes.com/athletic/6434675/2025/06/18/myles-turner-pacers-nba-finals-2025-thunder/
-
-**Ayatollah Ali Khamenei of Iran Rejects Trump’s Call to Surrender**\
-`Iran’s state broadcaster aired Ayatollah Ali Khamenei delivering a speech, warning the U.S. against making threats against his country.`\
-https://nytimes.com/video/world/middleeast/100000010236362/iran-ayatollah-ali-khamenei-trump-conflict.html
-
-**Orioles minor-league IF dies in jet ski accident involving other players**\
-`Luis Guevara, 19, was involved in a head-on collision between two jet skis on Sunday near Lido Key in Sarasota, Fla.`\
-https://nytimes.com/athletic/6434987/2025/06/18/mlb-orioles-player-death-accident/
-
-**What the Fed’s Rate Decision Means for Your Finances**\
-`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/06/18/business/fed-interest-rate-loans-mortgages.html
-
-**How to read the Fed’s projections like a pro.**\
-`Officials at the Federal Reserve will release fresh economic forecasts on Wednesday. Here’s how to read the outlook for 2025 and beyond.`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates/how-to-read-the-feds-projections-like-a-pro
 
