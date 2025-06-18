@@ -1,3 +1,15 @@
+**David Lynch’s Director’s Chair and 400 Other Belongings Go on Auction**\
+`Lynch’s estate arranged with Julien’s Auction to sell off cameras, screenplays, furniture and more, giving his fans a chance to bid on pieces of film history.`\
+https://nytimes.com/2025/06/18/arts/design/david-lynch-auction.html
+
+**Michelle Williams to Star in O’Neill Play on Brooklyn Waterfront**\
+`The actress will lead a revival of “Anna Christie” at St. Ann’s Warehouse, directed by her husband, Thomas Kail, and co-starring Mike Faist.`\
+https://nytimes.com/2025/06/18/theater/anna-christie-michelle-williams-off-broadway.html
+
+**Investors have seemingly shrugged off trade tensions and geopolitical turmoil.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates/investors-have-seemingly-shrugged-off-trade-tensions-and-geopolitical-turmoil
+
 **Driver Takes Wrong Turn Down the Spanish Steps in Rome**\
 `Nobody was injured and the Italian police did not announce any damage to the monument.`\
 https://nytimes.com/video/world/europe/100000010236696/spanish-steps-italy-car.html
