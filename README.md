@@ -1,3 +1,7 @@
+**The Athletic FC: A glimpse of Real Madrid's $72m teen Mastantuono, PL fixtures announced**\
+`Today in TAFC: What will Real Madrid get for $72m when Franco Mastantuono joins, Ramos reminds us of his swagger, EPL fixtures are out!`\
+https://nytimes.com/athletic/6434482/2025/06/18/mastantuono-real-madrid-ramos-header-premier-league-fixtures/
+
 **India and Canada Move to Mend Rift Over Sikh Activist’s Killing**\
 `The rapprochement comes months after each country had expelled the other’s senior diplomats.`\
 https://nytimes.com/2025/06/18/world/asia/india-canada-relations-sikh-killing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433833/2025/06/18/pirates-don-kelly-detroit-homeco
 **The Cubs now look like a real Craig Counsell team: 'He deserves every penny'**\
 `"Couns has every one of our best interests in mind," Pete Crow-Armstrong said. "I trust all the decisions he makes."`\
 https://nytimes.com/athletic/6434200/2025/06/18/cubs-brewers-craig-counsell-team/
-
-**NASCAR near deal for Cup Series street course race in San Diego area: Sources**\
-`The deal would bring NASCAR back to the Southern California market it left last year and be the league's latest schedule innovation.`\
-https://nytimes.com/athletic/6433722/2025/06/18/nascar-san-diego-street-race-2026/
 
