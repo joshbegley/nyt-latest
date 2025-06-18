@@ -1,3 +1,7 @@
+**Quote of the Day: The Army Major Cast Out by Trump’s Trans Ban**\
+`Quotation of the Day for Wednesday, June 18, 2025`\
+https://nytimes.com/2025/06/17/pageoneplus/quote-of-the-day-the-army-major-cast-out-by-trumps-trans-ban.html
+
 **2026 Stanley Cup odds: Panthers three-peat, Canada drought-buster or a new contender?**\
 `The Oilers lost the Stanley Cup Final again to the Panthers, but top the odds board in the opening odds on BetMGM.`\
 https://nytimes.com/athletic/6433844/2025/06/17/2026-stanley-cup-odds-oilers-panthers-avalanche/

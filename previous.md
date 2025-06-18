@@ -1,3 +1,7 @@
+**Quote of the Day: The Army Major Cast Out by Trump’s Trans Ban**\
+`Quotation of the Day for Wednesday, June 18, 2025`\
+https://nytimes.com/2025/06/17/pageoneplus/quote-of-the-day-the-army-major-cast-out-by-trumps-trans-ban.html
+
 **2026 Stanley Cup odds: Panthers three-peat, Canada drought-buster or a new contender?**\
 `The Oilers lost the Stanley Cup Final again to the Panthers, but top the odds board in the opening odds on BetMGM.`\
 https://nytimes.com/athletic/6433844/2025/06/17/2026-stanley-cup-odds-oilers-panthers-avalanche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433850/2025/06/17/panthers-oilers-stanley-cup-fina
 **Monterrey 1 Inter 1 - Sergio Ramos is everything you remember**\
 `Analysis of Monterrey against Inter Milan in the Club World Cup`\
 https://nytimes.com/athletic/6424373/2025/06/17/monterrey-inter-sergio-ramos-highlights/
-
-**'It’s really hard': Back-to-back Stanley Cup wins make the Panthers the latest dynasty of the cap era**\
-`The Panthers are just the third team to win consecutive Cups in the cap era. It’s rare to do it in a league full of parity.`\
-https://nytimes.com/athletic/6433719/2025/06/17/panthers-stanley-cup-dynasty/
 

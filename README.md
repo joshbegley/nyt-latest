@@ -1,3 +1,19 @@
+**As Pakistan Moves to Ban Black Magic, Astrologers See a Bad Omen**\
+`Spiritual practitioners fear that legislation imposing prison time for vaguely defined occult services could cast a wide net.`\
+https://nytimes.com/2025/06/18/world/asia/pakistan-black-magic.html
+
+**Mamdani Narrows Cuomo’s Lead in N.Y.C. Mayor’s Race, New Poll Finds**\
+`The Marist survey suggests that Andrew M. Cuomo is still the favorite to win the Democratic primary, but his advantage over Zohran Mamdani is dwindling.`\
+https://nytimes.com/2025/06/18/nyregion/mamdani-cuomo-marist-poll.html
+
+**The Dark Side of China’s Gold Frenzy**\
+`Chinese investors have poured their savings into gold, attracted by promises of rising prices. One company’s sudden closure is a cautionary tale.`\
+https://nytimes.com/2025/06/18/business/china-gold.html
+
+**Corrections: June 18, 2025**\
+`Corrections that appeared in print on Wednesday, June 18, 2025.`\
+https://nytimes.com/2025/06/18/pageoneplus/corrections-june-18-2025.html
+
 **Quote of the Day: The Army Major Cast Out by Trump’s Trans Ban**\
 `Quotation of the Day for Wednesday, June 18, 2025`\
 https://nytimes.com/2025/06/17/pageoneplus/quote-of-the-day-the-army-major-cast-out-by-trumps-trans-ban.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6433899/2025/06/17/brad-marchand-panthers-stanley-c
 **Oilers fall short again in Stanley Cup Final, so where do they go from here?**\
 `Outclassed by the Panthers, the Oilers again face a rocky path to their first championship since 1990.`\
 https://nytimes.com/athletic/6433206/2025/06/17/oilers-stanley-cup-offseason/
-
-**Ohio Officer Won’t Be Charged in Fatal Shooting of Teenager**\
-`The teenager, Ryan Hinton, was shot by a police officer responding to a stolen vehicle report on May 1. The youth’s father is accused of killing a sheriff’s deputy with his car.`\
-https://nytimes.com/2025/06/17/us/cincinnati-police-shooting-ryan-hinton.html
-
-**Sam Bennett wins Conn Smythe Trophy as playoff MVP**\
-`Sam Bennett led the NHL with 15 playoff goals, a franchise record, including an NHL record 13 on the road.`\
-https://nytimes.com/athletic/6433776/2025/06/17/sam-bennett-conn-smythe-panthers-2/
-
-**Reinhart scores four goals as Panthers win back-to-back Stanley Cups: Takeaways**\
-`The Panthers dominated Game 6, with only a late goal by Vasily Podkolzin to spoil Sergei Bobrovsky's shutout.`\
-https://nytimes.com/athletic/6433850/2025/06/17/panthers-oilers-stanley-cup-final-game-6-takeaways/
-
-**Monterrey 1 Inter 1 - Sergio Ramos is everything you remember**\
-`Analysis of Monterrey against Inter Milan in the Club World Cup`\
-https://nytimes.com/athletic/6424373/2025/06/17/monterrey-inter-sergio-ramos-highlights/
 
