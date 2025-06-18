@@ -1,3 +1,27 @@
+**Troops in Mideast Would Be Vulnerable to Iran Strikes on U.S. Targets**\
+`Iran’s leader vowed that his country would respond to any U.S. involvement in the war with Israel.`\
+https://nytimes.com/2025/06/18/world/middleeast/us-troops-middle-east-iran.html
+
+**Phillies trade deadline: Answering 9 key questions, plus pondering Kyle Schwarber's future**\
+`Will Mick Abel stay with the Phillies or become a key trade piece? Answering this and many more key questions about the July 31 deadline. `\
+https://nytimes.com/athletic/6435285/2025/06/18/phillies-trade-deadline-kyle-schwarber-extension/
+
+**Trump Administration Will End L.G.B.T.Q. Suicide Prevention Service**\
+`The federal government says it will maintain funding for a national suicide prevention hotline, but no longer pay for specialized support for L.G.B.T.Q. people.`\
+https://nytimes.com/2025/06/18/well/lgbtq-988-suicide-prevention.html
+
+**Fenerbahce demand investigation into alleged leaked Turkish FA WhatsApps**\
+`Fenerbahce allege the messages have sentiments of "revenge" and "clearly violate the principle of impartiality".`\
+https://nytimes.com/athletic/6435141/2025/06/18/fenerbahce-turkish-football-federation-whatsapp-leaks/
+
+**When is enough enough? WNBA officiating has to be better**\
+`Fever coach Stephanie White: WNBA officiating is lagging behind the game's progress.`\
+https://nytimes.com/athletic/6435356/2025/06/18/wnba-fever-sun-officiating-clark-mabrey/
+
+**What’s in Our Queue? I’m With Her and More **\
+`Text by Mike Ives`\
+https://nytimes.com/card/2025/06/18/arts/editors-recommendations-imwithher
+
 **Broadway ‘Cabaret’ Will Feature Billy Porter as One Final Emcee**\
 `The show’s producers said they plan to end the New York run at the end of the actor’s run, on Oct. 19.`\
 https://nytimes.com/2025/06/18/theater/cabaret-broadway-closing-billy-porter.html
@@ -13,28 +37,4 @@ https://nytimes.com/live/2025/06/18/business/fed-interest-rates/the-effect-of-ta
 **Mudryk charged by FA with breach of anti-doping rules, facing lengthy ban**\
 `A violation of the FA’s anti-doping regulations carries with it a maximum penalty of a four-year suspension.`\
 https://nytimes.com/athletic/6001373/2025/06/18/mykhailo-mudryk-chelsea-ban-doping/
-
-**Netflix Dips Its Toe Into Old-Fashioned TV**\
-`The streaming giant announced a deal on Wednesday to show live and on-demand programming from one of France’s television networks, TF1.`\
-https://nytimes.com/2025/06/18/business/media/netflix-tf1-tv.html
-
-**Trump’s Trade Policies Prompt Companies to Raise Prices, Cut Staff**\
-`Consumers are starting to pull back spending as President Trump’s trade policies ripple through the economy.`\
-https://nytimes.com/2025/06/18/business/fed-tariffs-inflation-companies.html
-
-**Sotomayor Writes the Court ‘Abandons’ Transgender Children to ‘Political Whims’**\
-`Justice Sotomayor also read her dissent from the bench, a move typically reserved to emphasize a justice’s extreme displeasure with a decision.`\
-https://nytimes.com/2025/06/18/us/politics/sotomayor-transgender-care-dissent-scotus.html
-
-**Lewis-Skelly close to signing new long-term Arsenal contract**\
-`The 18-year-old's new deal will make him one of the best-paid young players in the world.`\
-https://nytimes.com/athletic/6344158/2025/06/18/myles-lewis-skelly-arsenal-contract/
-
-**Tucker Carlson Berates Ted Cruz Over Bellicose Stance on Iran**\
-`In an interview that highlighted a rift on the far right over the role of the United States in confronting Iran, the host confronted the senator over his hawkish stance, suggesting he was ill-informed.`\
-https://nytimes.com/2025/06/18/us/ted-cruz-tucker-carlson-iran-interview.html
-
-**Myles Turner, the longest-tenured Pacer, is 'the backbone' for the franchise and community**\
-`Turner, who is an unrestricted free agent at season's end, has spent his entire career with the Pacers and is an inspiration to teammates.`\
-https://nytimes.com/athletic/6434675/2025/06/18/myles-turner-pacers-nba-finals-2025-thunder/
 

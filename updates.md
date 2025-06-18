@@ -1,3 +1,19 @@
+**Broadway ‘Cabaret’ Will Feature Billy Porter as One Final Emcee**\
+`The show’s producers said they plan to end the New York run at the end of the actor’s run, on Oct. 19.`\
+https://nytimes.com/2025/06/18/theater/cabaret-broadway-closing-billy-porter.html
+
+**Trump Answers Questions on Possible U.S. Involvement in Iran**\
+`During an event to install flag poles outside the White House, President Trump said that he couldn’t say whether the U.S. would strike Iranian nuclear facilities.`\
+https://nytimes.com/video/us/politics/100000010236464/trump-iran-nuclear-israel.html
+
+**The effect of tariffs on inflation will be more significant this summer, economists say.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/06/18/business/fed-interest-rates/the-effect-of-tariffs-on-inflation-will-be-more-significant-this-summer-economists-say
+
+**Mudryk charged by FA with breach of anti-doping rules, facing lengthy ban**\
+`A violation of the FA’s anti-doping regulations carries with it a maximum penalty of a four-year suspension.`\
+https://nytimes.com/athletic/6001373/2025/06/18/mykhailo-mudryk-chelsea-ban-doping/
+
 **Netflix Dips Its Toe Into Old-Fashioned TV**\
 `The streaming giant announced a deal on Wednesday to show live and on-demand programming from one of France’s television networks, TF1.`\
 https://nytimes.com/2025/06/18/business/media/netflix-tf1-tv.html
