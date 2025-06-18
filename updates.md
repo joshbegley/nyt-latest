@@ -1,3 +1,15 @@
+**Thomas Muller: Cincinnati CEO says his club have made an offer to Bayern legend**\
+`Cincinnati's co-CEO hopes Muller can be persuaded by the "great conditions" on offer at the MLS club.`\
+https://nytimes.com/athletic/6434506/2025/06/18/thomas-muller-cincinnati-mls/
+
+**Here’s the latest.**\
+`By Isabel Kershner, David E. Sanger and Ephrat Livni`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/heres-the-latest
+
+**Live Updates: Trump’s Call for Iran’s ‘Unconditional Surrender’ Raises Fears of Wider War**\
+`Signs continued to emerge that the United States was considering joining Israel’s bombing campaign. Israel carried out strikes on Tehran overnight after Iran fired two new rounds of missiles.`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump
+
 **Severe Weather Threatens a Large Part of the Midwest on Wednesday**\
 `Rain and hail are likely, forecasters said, but the biggest danger could be high winds.`\
 https://nytimes.com/2025/06/18/weather/midwest-storms-forecast-indiana-illinois.html

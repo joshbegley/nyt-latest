@@ -1,3 +1,15 @@
+**Thomas Muller: Cincinnati CEO says his club have made an offer to Bayern legend**\
+`Cincinnati's co-CEO hopes Muller can be persuaded by the "great conditions" on offer at the MLS club.`\
+https://nytimes.com/athletic/6434506/2025/06/18/thomas-muller-cincinnati-mls/
+
+**Here’s the latest.**\
+`By Isabel Kershner, David E. Sanger and Ephrat Livni`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/heres-the-latest
+
+**Live Updates: Trump’s Call for Iran’s ‘Unconditional Surrender’ Raises Fears of Wider War**\
+`Signs continued to emerge that the United States was considering joining Israel’s bombing campaign. Israel carried out strikes on Tehran overnight after Iran fired two new rounds of missiles.`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump
+
 **Severe Weather Threatens a Large Part of the Midwest on Wednesday**\
 `Rain and hail are likely, forecasters said, but the biggest danger could be high winds.`\
 https://nytimes.com/2025/06/18/weather/midwest-storms-forecast-indiana-illinois.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/tina-smith-mike-lee-minnesota.html
 **In ‘Tehrangeles,’ Iranian Americans Anxiously Watch War Unfold From Afar**\
 `The Los Angeles area is home to the biggest diaspora of Iranians. The growing war between Iran and Israel has rattled this tight-knit community.`\
 https://nytimes.com/2025/06/18/us/in-tehrangeles-iranian-americans-anxiously-watch-war-unfold-from-afar.html
-
-**I Will Never Trust R.F.K. Jr. But I Want to Trust Public Health.**\
-`To move beyond the current administration, we need to listen to one another and think beyond crude divisions.`\
-https://nytimes.com/2025/06/18/opinion/trust-public-health.html
-
-**From Resignation in Protest to Campaign for Congress**\
-`Bridget A. Brink, who stepped down as ambassador to Ukraine in April out of objections to President Trump’s pro-Russian approach to the war, is now speaking out and running for office at home.`\
-https://nytimes.com/2025/06/18/us/politics/bridget-brink-congress.html
-
-**Images of Handcuffed Democrats Start to Pile Up in Trump’s Crackdown**\
-`Federal agents have arrested a growing number of the party’s elected officials, fueling liberal outrage and conservative accusations that Democrats are carrying out publicity stunts.`\
-https://nytimes.com/2025/06/18/us/politics/democrats-arrested-lander-padilla-trump.html
 
