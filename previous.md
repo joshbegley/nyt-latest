@@ -1,3 +1,7 @@
+**Ex-Yankee Is Awarded About $500,000 in Damages for Moldy Greenwich Mansion**\
+`Josh Donaldson, a former American League Most Valuable Player with Toronto, sued his former landlord over the conditions at his $55,000-a-month rental property.`\
+https://nytimes.com/2025/06/18/nyregion/josh-donaldson-yankees-greenwich-mansion-lawsuit.html
+
 **The MAGA Fight Over the Iran Fight**\
 `As President Trump ponders involving the United States in Israel’s attacks on Iran, the G.O.P. faces a thorny question: What does “America first” really mean?`\
 https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/18/upshot/jaws-at-50.html
 **Travis Kelce is 'only interested in Super Bowl rings.' Next up? The chase for No. 4**\
 `Kelce feels like he failed his team last year. He wants the chance to walk away on top, a storybook finish for a sterling career.`\
 https://nytimes.com/athletic/6436086/2025/06/18/travis-kelce-chasing-another-ring/
-
-**For Food Network Fans, Anne Burrell Was the Fun-Loving Aunt**\
-`The chef, who died Tuesday, built her stardom on a big, down-to-earth personality in which viewers could see themselves.`\
-https://nytimes.com/2025/06/18/dining/anne-burrell-food-network.html
 

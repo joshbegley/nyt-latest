@@ -1,3 +1,7 @@
+**Ex-Yankee Is Awarded About $500,000 in Damages for Moldy Greenwich Mansion**\
+`Josh Donaldson, a former American League Most Valuable Player with Toronto, sued his former landlord over the conditions at his $55,000-a-month rental property.`\
+https://nytimes.com/2025/06/18/nyregion/josh-donaldson-yankees-greenwich-mansion-lawsuit.html
+
 **The MAGA Fight Over the Iran Fight**\
 `As President Trump ponders involving the United States in Israel’s attacks on Iran, the G.O.P. faces a thorny question: What does “America first” really mean?`\
 https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
