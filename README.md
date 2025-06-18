@@ -1,3 +1,11 @@
+**Cruise Will Receive an Honorary Oscar at Governors Awards**\
+`The film industry will honor Tom Cruise this fall with an Honorary Academy Award for lifetime achievement, along with the choreographer Debbie Allen and the production designer Wynn Thomas.`\
+https://nytimes.com/2025/06/17/movies/cruise-will-receive-an-honorary-oscar-at-governors-awards.html
+
+**David Hekili Kenui Bell, an Actor in ‘Lilo & Stitch,’ Dies at 46**\
+`Mr. Bell’s first role in a feature film was providing comic relief in the Disney hit.`\
+https://nytimes.com/2025/06/17/arts/david-hekili-kenui-bell-dead.html
+
 **Federal Judge Certifies Class Action for Transgender People Seeking Passports**\
 `A preliminary injunction blocking the State Department from enforcing a new passport limit extends to all trans passport seekers.`\
 https://nytimes.com/2025/06/17/us/passports-transgender-trump-administration.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-primary
 **Heavily Armed Man at ‘No Kings’ Protest Had 13 Bombs at Home, Police Say**\
 `Kevin Krebs, 31, of Malvern, Pa., is facing more than two dozen additional charges after investigators searched his house on Monday.`\
 https://nytimes.com/2025/06/17/us/no-kings-arrest-bombs.html
-
-**Rafael Devers says he is open to anything with Giants— yes, including first base**\
-`"They are the men in charge," Devers said at his introductory conference. "I am here to play wherever they want me to play."`\
-https://nytimes.com/athletic/6433008/2025/06/17/san-francisco-giants-rafael-devers-first-base/
-
-**Senators Assail Antidoping Regulator for ‘Stonewalling and Intimidation’**\
-`Members of both parties criticized the World Anti-Doping Agency for its decision not to sanction Chinese swimmers who tested positive for a banned substance, including some who went on to win Olympic medals.`\
-https://nytimes.com/2025/06/17/us/politics/senate-swimmers-antidoping-regulator.html
 
