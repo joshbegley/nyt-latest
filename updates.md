@@ -1,3 +1,7 @@
+**Iran is open to talks with the U.S., a senior diplomat says, even as the supreme leader rejects the idea.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/iran-is-open-to-talks-with-the-us-a-senior-diplomat-says-even-as-the-supreme-leader-rejects-the-idea
+
 **Thursday Briefing: Trump’s Indecision on Iran**\
 `Plus, Studio Ghibliesque video games.`\
 https://nytimes.com/2025/06/18/briefing/trump-iran-israel-india-canada-diplomacy.html
