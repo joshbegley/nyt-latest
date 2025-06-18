@@ -1,3 +1,23 @@
+**Panthers' Matthew Tkachuk played through torn adductor, hernia in playoffs**\
+`Coach Paul Maurice quipped after Tuesday’s 5-1 win over Edmonton that the medical term for Tkachuk was, “He was a mess.”`\
+https://nytimes.com/athletic/6434125/2025/06/18/panthers-matthew-tkachuk-injury-nhl-stanley-cup-playoffs/
+
+**The New York Times in Print for Wednesday, June 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/18/todays-new-york-times
+
+**Yankees 'feel the pressure' as scoreless streak hits 29 innings, nears franchise worst**\
+`The Yankees lost 4-0 to the Los Angeles Angels and were shut out for the third consecutive game.`\
+https://nytimes.com/athletic/6433856/2025/06/18/yankees-lose-angels-scoreless-streak/
+
+**Wednesday Briefing**\
+`Fears of a wider war in Iran.`\
+https://nytimes.com/2025/06/18/world/europe/iran-war-israel-gaza.html
+
+**Pete Crow-Armstrong hints he's out on HR Derby: 'Not for me'**\
+`In MLB's first All-Star ballot update released Monday, Crow-Armstrong led all NL outfielders with 1,126,119 votes.`\
+https://nytimes.com/athletic/6433976/2025/06/18/pete-crow-armstrong-home-run-derby-participation-comments/
+
 **Canada smashes six past Honduras in spectacular Gold Cup start**\
 `A comprehensive win gave Canada a perfect Gold Cup start.`\
 https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/

@@ -1,3 +1,23 @@
+**Panthers' Matthew Tkachuk played through torn adductor, hernia in playoffs**\
+`Coach Paul Maurice quipped after Tuesday’s 5-1 win over Edmonton that the medical term for Tkachuk was, “He was a mess.”`\
+https://nytimes.com/athletic/6434125/2025/06/18/panthers-matthew-tkachuk-injury-nhl-stanley-cup-playoffs/
+
+**The New York Times in Print for Wednesday, June 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/18/todays-new-york-times
+
+**Yankees 'feel the pressure' as scoreless streak hits 29 innings, nears franchise worst**\
+`The Yankees lost 4-0 to the Los Angeles Angels and were shut out for the third consecutive game.`\
+https://nytimes.com/athletic/6433856/2025/06/18/yankees-lose-angels-scoreless-streak/
+
+**Wednesday Briefing**\
+`Fears of a wider war in Iran.`\
+https://nytimes.com/2025/06/18/world/europe/iran-war-israel-gaza.html
+
+**Pete Crow-Armstrong hints he's out on HR Derby: 'Not for me'**\
+`In MLB's first All-Star ballot update released Monday, Crow-Armstrong led all NL outfielders with 1,126,119 votes.`\
+https://nytimes.com/athletic/6433976/2025/06/18/pete-crow-armstrong-home-run-derby-participation-comments/
+
 **Canada smashes six past Honduras in spectacular Gold Cup start**\
 `A comprehensive win gave Canada a perfect Gold Cup start.`\
 https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6433151/2025/06/18/leeds-lukas-nmecha-farke-analysi
 **Crystal Palace and player pathways: What will be the club's strategy next season?**\
 `The FA Cup winners are waiting to hear whether they will compete in the Europa League, with the future of their fringe players up in the air`\
 https://nytimes.com/athletic/6415508/2025/06/18/crystal-palace-europa-franca-pathway-loan/
-
-**Inside West Ham Q&A: Kudus' future, latest on Aguerd, and how long will Potter get?**\
-`Roshane Thomas answers you questions on everything happening with West Ham this summer`\
-https://nytimes.com/athletic/6431495/2025/06/18/inside-west-ham-qa-kudus-aguerd-sullivan-potter/
-
-**Richard Sherman charged with DUI stemming from 2024 arrest**\
-`Sherman was arrested on suspicion of driving under the influence on Feb. 24, 2024`\
-https://nytimes.com/athletic/6434019/2025/06/18/richard-sherman-dui-charge-2024-arrest-seahawks/
-
-**After fourth straight loss, Mets facing toughest challenge of season**\
-`The Mets are in a tough spot — 12 games until a day off with a depleted rotation — but they're still in first place in the NL East.`\
-https://nytimes.com/athletic/6434010/2025/06/18/mets-face-challenge-lose-fourth-straight/
-
-**The 81 top transfer targets in the summer window for every position**\
-`Imagine you were in a recruitment meeting ahead of the summer transfer window opening - these names will heavily feature`\
-https://nytimes.com/athletic/6431768/2025/06/18/transfer-targets-summer-window-latest-news-analysis/
-
-**Franco Mastantuono is 17 years old and cost Real Madrid €63m. Here's what makes him special**\
-`The most interesting part of his profile is that he can be developed into a goalscoring forward or a playmaker — or even both at once...`\
-https://nytimes.com/athletic/6431422/2025/06/18/franco-mastantuono-real-madrid-signing-analysis-river-plate/
 
