@@ -1,3 +1,7 @@
+**Jordan Klepper Calls Trump Out for His ‘Irish Exit’ at G7**\
+`The president left the Group of 7 summit in Canada a day ahead of schedule, and Tuesday’s “Daily Show” host thinks he knows why.`\
+https://nytimes.com/2025/06/18/arts/television/late-night-jordan-klepper-trump-g7.html
+
 **Word of the Day: wunderkind**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/18/learning/word-of-the-day-wunderkind.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
 **Mathis Albert: The American 16-year-old bringing 'swagger' to the Club World Cup**\
 `Albert joined Borussia Dortmund last year from LA Galaxy, having stood out for his dribbling, speed and ability in one-versus-one situations`\
 https://nytimes.com/athletic/6432311/2025/06/18/mathis-albert-american-club-world-cup/
-
-**Xabi Alonso's awkward start at Madrid: New hope, little time, big pressure**\
-`The 43-year-old is taking on one of football's most demanding jobs off the back of the Spanish giants' disappointing European season`\
-https://nytimes.com/athletic/6431574/2025/06/18/xabi-alonsos-awkward-start-at-real-madrid-new-hope-little-time-big-pressure/
 
