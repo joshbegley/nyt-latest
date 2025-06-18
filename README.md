@@ -1,5 +1,9 @@
-**The Secret to Perfect Cornbread? Cabbage.**\
-`An optional wrapping of leaves boosts the flavor and texture of Yann Nury’s favorite recipe.`\
+**Israel redeploys troops from Gaza to its borders as its focus turns to Iran.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/israel-redeploys-troops-from-gaza-to-its-borders-as-its-focus-turns-to-iran
+
+**The Secret to Perfect Cornbread? Wrap It in Cabbage.**\
+`An optional addition of leaves boosts the flavor and texture of Yann Nury’s favorite recipe.`\
 https://nytimes.com/2025/06/18/t-magazine/summer-cornbread-recipe-cabbage.html
 
 **Yann Nury’s Cornbread Wrapped in Cabbage Leaves**\
@@ -10,7 +14,7 @@ https://nytimes.com/video/t-magazine/100000010236530/yann-nurys-cornbread-wrappe
 `The Swiss edition of Art Basel was once a must-attend art world event. Now it faces formidable challenges — including from its own Paris offshoot.`\
 https://nytimes.com/2025/06/18/arts/design/is-contemporary-arts-most-important-fair-losing-its-luster.html
 
-**A Transgender Clinic Opened in 2018. Four Years Later, the Firestorm Began.**\
+**A transgender clinic opened in 2018. Four years later, the firestorm began.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/a-transgender-clinic-opened-in-2018-four-years-later-the-firestorm-began
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/business/trump-fed-interest-rates-powell.html
 **Tyrese Haliburton will likely be questionable for Game 6 of NBA Finals**\
 `Game 6 is Thursday at 8:30 pm ET in Indianapolis.`\
 https://nytimes.com/athletic/6435148/2025/06/18/pacers-tyrese-haliburton-questionable-game-6-nba/
-
-**Trump says ‘nobody knows what I’m going to do’ on Iran.**\
-`By Tyler Pager`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/trump-says-nobody-knows-what-im-going-to-do-on-iran
 
