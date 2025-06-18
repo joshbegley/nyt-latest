@@ -1,3 +1,11 @@
+**Rafael Devers finds his groove in solid first impression on Giants debut**\
+`Devers hit an RBI double in just his second at-bat for his new team on a night of crackling energy at Oracle Park.`\
+https://nytimes.com/athletic/6434347/2025/06/18/rafael-devers-giants-debut-trade/
+
+**In Attacking Iran, Israel Further Alienates Would-Be Arab Allies**\
+`Wealthy Gulf countries are alarmed and anxious about Israel and Iran’s new war.`\
+https://nytimes.com/2025/06/18/world/middleeast/israel-iran-arab-allies.html
+
 **Ronald Acuña Jr., Marcell Ozuna deliver in Braves' much-needed walk-off win over Mets**\
 `Ozuna's 2-out, 3-run double in the eighth and Acuña's ninth-inning catch robbing Pete Alonso of a hit changed the complexion of the game.`\
 https://nytimes.com/athletic/6434083/2025/06/18/braves-walk-off-win-over-mets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6434196/2025/06/18/f1-drivers-championship-ferrari-
 **Gregg Popovich is a coaching legend. He’s also a master of tough conversations**\
 `Difficult conversations happen all the time in sports. However, what's the best way to have them? We asked an expert in the field.`\
 https://nytimes.com/athletic/6432607/2025/06/18/gregg-popovich-is-a-coaching-legend-but-hes-also-a-master-of-tough-conversations/
-
-**LeBrun: From Conn Smythe to walking away? Sam Bennett, Panthers and a story we've seen before**\
-`It isn't easy leaving a Cup-winning team after being the playoff MVP. With free agency approaching, will Bennett choose to stay or go?`\
-https://nytimes.com/athletic/6434191/2025/06/18/sam-bennett-conn-smythe-panthers-stanley-cup-playoffs/
-
-**For a long time stadiums were built for men first, but that's starting to change**\
-`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/6433335/2025/06/18/stadiums-built-with-women-in-mind-nwsl/
 
