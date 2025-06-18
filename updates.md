@@ -1,3 +1,19 @@
+**5 Highlights From the Pianist Alfred Brendel’s Sprawling Career**\
+`Brendel, who died on Tuesday at 94, concentrated on a small number of canonical composers, mainly Haydn, Mozart, Beethoven and Schubert.`\
+https://nytimes.com/2025/06/18/arts/music/alfred-brendel-piano.html
+
+**Ramos, Cavani, Cancelo and seven other blasts from the past at the Club World Cup**\
+`These players may pop up on your radar again after featuring at this summer's tournament...`\
+https://nytimes.com/athletic/6432517/2025/06/18/blasts-from-past-at-club-world-cup-ramos-cavani-cancelo/
+
+**He Locked Away His Wartime Memories Until His Granddaughter Opened the Pages**\
+`Heather Clark’s debut novel, “The Scrapbook,” considers young love as buffeted by historical ruptures.`\
+https://nytimes.com/2025/06/18/books/review/the-scrapbook-heather-clark.html
+
+**Live Updates: Supreme Court Upholds State Ban on Transgender Care for Minors**\
+`The justices ruled that Tennessee’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
+https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care
+
 **Live Updates: Supreme Court Upholds Ban on Transgender Care for Minors**\
 `The justices ruled that Tennessee’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
 https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care

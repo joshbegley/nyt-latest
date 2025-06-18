@@ -1,3 +1,7 @@
+**Rangers sign Matt Rempe to a two-year extension**\
+`The forward skates well for his size and played on the Rangers' fourth line when in the lineup.`\
+https://nytimes.com/athletic/6435055/2025/06/18/new-york-rangers-sign-matt-rempe/
+
 **5 Highlights From the Pianist Alfred Brendel’s Sprawling Career**\
 `Brendel, who died on Tuesday at 94, concentrated on a small number of canonical composers, mainly Haydn, Mozart, Beethoven and Schubert.`\
 https://nytimes.com/2025/06/18/arts/music/alfred-brendel-piano.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/us/florida-high-school-teenagers-sleep.html
 **Lowetide: What changes could help Oilers return to Stanley Cup Final again?**\
 `After losing to the Panthers for a second straight season, the Oilers are looking ahead to an active summer.`\
 https://nytimes.com/athletic/6431079/2025/06/18/edmonton-oilers-stanley-cup-final-2025/
-
-**Dominican Republic's soccer journey aims to raise hope and challenge baseball**\
-`Soccer isn't the Dominican Republic's most popular sport, but it is making rapid headway.`\
-https://nytimes.com/athletic/6431392/2025/06/18/dominican-republic-soccer-finding-futbol-gold-cup/
 
