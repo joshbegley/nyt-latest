@@ -1,3 +1,11 @@
+**Inside the Chaos Swirling Through a D.N.C. Desperate for Cash**\
+`Under its new leader, Ken Martin, the Democratic National Committee has been plagued by infighting and a drop in big donations, raising alarms from Democrats as they try to win back power.`\
+https://nytimes.com/2025/06/18/us/politics/dnc-ken-martin.html
+
+**Despite danger from Iran’s deadly missile fire, Israeli morale appears high.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/despite-danger-from-irans-deadly-missile-fire-israeli-morale-is-high
+
 **Dan Storper, Evangelist of World Music, Dies at 74**\
 `His record label, Putumayo, gathered sounds from around the globe and pushed them into the mainstream, selling 35 million compilation CDs worldwide.`\
 https://nytimes.com/2025/06/18/arts/music/dan-storper-dead.html
