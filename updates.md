@@ -1,3 +1,11 @@
+**Iran Crisis Overshadowed as Senators Squabble at Hearing**\
+`A hearing featuring Defense Secretary Pete Hegseth exposed a major divide over the dangers of using U.S. troops domestically.`\
+https://nytimes.com/2025/06/18/us/politics/hegseth-senate-hearing-iran-military.html
+
+**Rays in 'exclusive discussions' concerning possible sale**\
+`The team announced they are in talks with a group led by Florida real estate developer Patrick Zalupski and others. `\
+https://nytimes.com/athletic/6436000/2025/06/18/tampa-bay-rays-possible-sale/
+
 **State Dept. Says It Is Working to Get Americans Out of Israel**\
 `As fighting between Iran and Israel continued for a sixth day, the U.S. Embassy in Jerusalem made its first announcement for Americans trying to leave Israel.`\
 https://nytimes.com/2025/06/18/world/middleeast/us-citizens-israel-departure-iran-war.html
