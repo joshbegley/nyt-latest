@@ -1,3 +1,11 @@
+**State Dept. Says It Is Working to Get Americans Out of Israel**\
+`As fighting between Iran and Israel continued for a sixth day, the U.S. Embassy in Jerusalem made its first announcement for Americans trying to leave Israel.`\
+https://nytimes.com/2025/06/18/world/middleeast/us-citizens-israel-departure-iran-war.html
+
+**EuroLeague re-enters conversation for new NBA pro league in Europe**\
+`Could the EuroLeague or some of its teams be involved in the NBA's European league in the future? `\
+https://nytimes.com/athletic/6435965/2025/06/18/nba-europe-euroleague-tony-parker/
+
 **America Must Not Rush Into a War Against Iran**\
 `The decision to declare war rests with Congress alone.`\
 https://nytimes.com/2025/06/18/opinion/iran-war-israel-trump.html

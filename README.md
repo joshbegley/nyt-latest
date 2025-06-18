@@ -1,3 +1,11 @@
+**Iran Crisis Overshadowed as Senators Squabble at Hearing**\
+`A hearing featuring Defense Secretary Pete Hegseth exposed a major divide over the dangers of using U.S. troops domestically.`\
+https://nytimes.com/2025/06/18/us/politics/hegseth-senate-hearing-iran-military.html
+
+**Rays in 'exclusive discussions' concerning possible sale**\
+`The team announced they are in talks with a group led by Florida real estate developer Patrick Zalupski and others. `\
+https://nytimes.com/athletic/6436000/2025/06/18/tampa-bay-rays-possible-sale/
+
 **State Dept. Says It Is Working to Get Americans Out of Israel**\
 `As fighting between Iran and Israel continued for a sixth day, the U.S. Embassy in Jerusalem made its first announcement for Americans trying to leave Israel.`\
 https://nytimes.com/2025/06/18/world/middleeast/us-citizens-israel-departure-iran-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6435158/2025/06/18/fantasy-baseball-statcast-risers
 **The Fed Isn’t Calling It ‘Stagflation,’ but the Risks Are Rising**\
 `President Trump’s trade war is likely to lead to higher prices and slower growth, a challenging combination for the Fed. War in the Middle East could make the job harder still.`\
 https://nytimes.com/2025/06/18/business/fed-stagflation-trump-tariffs.html
-
-**Before Iran’s internet was throttled, one resident described a ‘deserted’ Tehran.**\
-`By Parin Behrooz`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/before-irans-internet-was-throttled-one-resident-described-a-deserted-tehran
-
-**Key takeaways from today’s Fed meeting and Powell’s news conference**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/06/18/business/fed-interest-rates/fed-blog-powell-takeaways
 
