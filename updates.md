@@ -1,3 +1,15 @@
+**Trump to Again Extend TikTok’s Reprieve From U.S. Ban**\
+`The president plans to sign another executive order this week that would give the popular video app more time to change its ownership structure.`\
+https://nytimes.com/2025/06/17/technology/tiktok-ban-extension-trump.html
+
+**Adams Bars Reporter From News Conferences for Being ‘Disrespectful’**\
+`After a contentious exchange, Mayor Eric Adams said, “Make sure security knows he’s not allowed back into this room.”`\
+https://nytimes.com/2025/06/17/nyregion/eric-adams-reporter-ny-daily-news.html
+
+**Anne Burrell, Chef and Food Network Star, Dies at 55**\
+`Her distinctive hairstyle and swagger in the kitchen made her one of America’s most recognizable Italian chefs.`\
+https://nytimes.com/2025/06/17/dining/anne-burrell-dead.html
+
 **Oil Prices Climb as Trump Calls for Iran’s ‘Surrender’**\
 `They rose more than 4 percent as traders wondered if the United States would take a more active role in the conflict between Israel and Iran.`\
 https://nytimes.com/2025/06/17/business/energy-environment/oil-prices-trump-iran.html
