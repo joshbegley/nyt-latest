@@ -1,3 +1,7 @@
+**Canada smashes 6 past Honduras in spectacular Gold Cup start**\
+`A comprehensive win gave Canada a perfect Gold Cup start.`\
+https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
+
 **As G7 Talks End in Canada, Ukraine Comes Away With Little**\
 `President Volodymyr Zelensky had hoped to secure more support from the Group of 7 nations, but the crisis in the Middle East was seen as a more urgent priority.`\
 https://nytimes.com/2025/06/18/world/canada/g7-ukraine-trump-zelensky.html
