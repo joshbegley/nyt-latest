@@ -1,3 +1,15 @@
+**Low fan turnout at Club World Cup match between Sundowns, Ulsan HD delayed by storms**\
+`FIFA announced an official crowd of 3,142, by far the lowest of the tournament so far.`\
+https://nytimes.com/athletic/6433727/2025/06/17/sparse-crowd-club-world-cup-match/
+
+**Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
+`After the Giants communicated their intentions with their new star, Devers expressed a willingness to "play wherever they want me to play."`\
+https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/
+
+**Caitlin Clark in scuffle as Fever reach Commissioner's Cup final: Takeaways**\
+`Caitlin Clark issued technical foul for role in incident, while Connecticut's Jacy Sheldon earns flagrant foul.`\
+https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
+
 **Perfect Serve**\
 `Eli Cotham floats an idea.`\
 https://nytimes.com/2025/06/17/crosswords/daily-puzzle-2025-06-18.html
