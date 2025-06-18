@@ -1,40 +1,40 @@
-**Trump and the Middle East Weigh on the Fed**\
-`Investors are anxious about whether the central bank will change course on rate cuts as geopolitical turmoil and tariffs pose inflation risks.`\
-https://nytimes.com/2025/06/18/business/dealbook/trump-iran-fed-rates.html
+**Barcelona sign Espanyol goalkeeper Garcia**\
+`The 24-year-old joins the club on a six-year deal that runs through to 2031.`\
+https://nytimes.com/athletic/6363649/2025/06/18/joan-garcia-barcelona-transfer/
 
-**Mandel's Mailbag: Pick best game each week this CFB season to attend. No stadium overlapping**\
-`Plus: Who's got it better next season, CJ Carr at Notre Dame or Julian Sayin at Ohio State? `\
-https://nytimes.com/athletic/6433790/2025/06/18/mandels-mailbag-house-settlement-baylor-auburn-unc/
+**Lawsuit Accuses Tyler Perry of Sexual Assault**\
+`Derek Dixon, an actor who worked with Mr. Perry, is suing him for $260 million for sexual harassment, assault and battery. A representative for Mr. Perry called the allegations a “scam.”`\
+https://nytimes.com/2025/06/18/arts/tyler-perry-derek-dixon-sexual-assault-lawsuit.html
 
-**Coaches, executives, scouts on Dylan Harper, top guard prospects: 2025 NBA Draft Confidential**\
-`This year's draft features multiple prospects who'd likely have been at or near the top of last year's draft boards.`\
-https://nytimes.com/athletic/6429478/2025/06/18/nba-draft-confidential-guard-2025/
+**Two Iranian centrifuge production facilities are hit, the U.N. nuclear watchdog says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/two-iranian-centrifuge-production-facilities-are-hit-the-un-nuclear-watchdog-says
 
-**Eight intriguing Ohio State players you need to watch when you can this season**\
-`They may not be starters, but these Buckeyes could play key roles in another College Football Playoff push and in future seasons.`\
-https://nytimes.com/athletic/6433176/2025/06/18/ohio-state-football-players-to-watch/
+**Catherine, Princess of Wales, Unexpectedly Pulls Out of Royal Ascot**\
+`The princess canceled plans to attend the British horse racing event Wednesday as she tries to find the “right balance” in her recovery from cancer, Kensington Palace said.`\
+https://nytimes.com/2025/06/18/world/europe/princess-kate-middleton-ascot-race-uk.html
 
-**WhatsApp Denies Iran’s Claim That It Is Spying for Israel**\
-`Iran’s state television urged people to delete WhatsApp, saying without evidence that the app was sending user information to Israel.`\
-https://nytimes.com/2025/06/18/world/middleeast/iran-whatsapp-delete.html
+**In a defiant address, Iran’s supreme leader rejects Trump’s call to surrender.**\
+`By Matthew Mpoke Bigg and Leily Nikounazar`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/in-a-defiant-address-irans-supreme-leader-rejects-trumps-call-to-surrender
 
-**Man United's ticket price rises a 'kick in the teeth' - fans' group**\
-`MUST say that for almost all Premier League games the cost of the cheapest seat available to members is going up by 50 per cent.`\
-https://nytimes.com/athletic/6434645/2025/06/18/manchester-united-ticket-prices-old-trafford/
+**Vikings 53-man roster projection: What OTAs and minicamp told us about 2025 team**\
+`What stood out from the Vikings' OTAs and minicamp? How does what we saw shape what the team will look like come Week 1 in Chicago?`\
+https://nytimes.com/athletic/6432831/2025/06/18/vikings-53-man-roster-projection-2025/
 
-**Forest get City Ground expansion boost with council recommendation**\
-`The council has "recommended that planning permission be granted subject to a series of planning conditions”, it said on Wednesday.`\
-https://nytimes.com/athletic/6434653/2025/06/18/city-ground-development-expansion-nottingham-forest/
+**Up, down or stand pat: In trading with Pacers, Pelicans have options in draft**\
+`The Pelicans now have a pair of first-round picks, which should keep Joe Dumars busy until the draft.`\
+https://nytimes.com/athletic/6433479/2025/06/18/pelicans-trade-nba-draft-2025/
 
-**FIFA Struts Off the Pitch and Onto the Catwalk**\
-`Soccer’s governing body is putting its name on a luxury fashion line. Would you buy it?`\
-https://nytimes.com/2025/06/18/style/fifa-luxury-fashion-line.html
+**Bills post-spring 53-man roster projection: A possible bump at receiver and trim at linebacker**\
+`Plus, the battle for backup quarterback could get interesting.`\
+https://nytimes.com/athletic/6432534/2025/06/18/bills-post-spring-53-man-roster-projection-wide-receiver-linebacker/
 
-**The Israel-Iran War, Explained**\
-`We explain why Israel chose this moment to attack Iran.`\
-https://nytimes.com/2025/06/18/briefing/israel-iran-war-explained.html
+**Milwaukee Bucks NBA Draft preview: What kind of player can they find with the No. 47 pick?**\
+`Despite only having a pick deep in the second round, the Bucks have the potential to add a talented player on a cheap contract.`\
+https://nytimes.com/athletic/6424642/2025/06/18/milwaukee-bucks-nba-draft-preview-what-kind-of-player-can-they-find-with-the-no-47-pick/
 
-**Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
-`Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
-https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
+**Brant Boyer wants to build a new era — and better aura — for 49ers’ special teams**\
+`Boyer was given license to build the 49ers' special teams this offseason. He wasn't shy about tearing the old units down.`\
+https://nytimes.com/athletic/6427497/2025/06/18/49ers-special-teams-brant-boyer/
 
