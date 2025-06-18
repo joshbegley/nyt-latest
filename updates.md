@@ -1,3 +1,7 @@
+**Fever advance to Commissioner's Cup final; Caitlin Clark scuffles with foes**\
+`Caitlin Clark issued technical foul for role in incident, while Connecticut's Jacy Sheldon earns flagrant foul.`\
+https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
+
 **Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
 `After the Giants communicated their intentions with their new star, Devers expressed a willingness to 'play wherever they want me to play.'`\
 https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/

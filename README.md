@@ -1,3 +1,7 @@
+**Perfect Serve**\
+`Eli Cotham floats an idea.`\
+https://nytimes.com/2025/06/17/crosswords/daily-puzzle-2025-06-18.html
+
 **Rosenthal: On his first day with the Giants, Rafael Devers finds a whole new reality**\
 `After the Giants communicated their intentions with their new star, Devers expressed a willingness to 'play wherever they want me to play.'`\
 https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first-base/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6432373/2025/06/17/cricket-coverage-athletic-welcom
 **Review: He’s Here, He’s Queer, He’s the Future King of England**\
 `The Off Broadway play “Prince Faggot” aims to shock. But the real surprise is how good it is anyway.`\
 https://nytimes.com/2025/06/17/theater/prince-faggot-review.html
-
-**'Embarrassed' Carson Hocevar fined $50K for comments about Mexico City**\
-`Hocevar, who apologized for comments he made on a livestream, will also undergo sensitivity training.`\
-https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-city-comments/
 
