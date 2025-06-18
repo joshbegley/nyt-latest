@@ -1,3 +1,7 @@
+**Forest get City Ground expansion boost with council recommendation**\
+`The council has "recommended that planning permission be granted subject to a series of planning conditions”, it said on Wednesday.`\
+https://nytimes.com/athletic/6434653/2025/06/18/city-ground-development-expansion-nottingham-forest/
+
 **FIFA Struts Off the Pitch and Onto the Catwalk**\
 `Soccer’s governing body is putting its name on a luxury fashion line. Would you buy it?`\
 https://nytimes.com/2025/06/18/style/fifa-luxury-fashion-line.html
@@ -5,6 +9,10 @@ https://nytimes.com/2025/06/18/style/fifa-luxury-fashion-line.html
 **The Israel-Iran War, Explained**\
 `We explain why Israel chose this moment to attack Iran.`\
 https://nytimes.com/2025/06/18/briefing/israel-iran-war-explained.html
+
+**Jesús Luzardo struggles in return to Miami, but home — and health — provide some comfort**\
+`Luzardo's start didn't go as planned, but he enjoyed reconnecting with friends and family during the Miami series. And he's stayed healthy. `\
+https://nytimes.com/athletic/6433933/2025/06/18/jesus-luzardo-miami-return-phillies/
 
 **Why the Yankees are finally ready for the Ben Rice experiment at catcher**\
 `The Yankees believe Rice is ready for the challenge. “I think this guy’s a major-league catcher," catching coordinator Tanner Swanson said.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6433471/2025/06/18/rafael-devers-al-east-nl-west/
 **Everton's new recruitment team is coming together. Now for transfers**\
 `Everton believe they are building an impressive team off the pitch that will rebuild the club long term. Next up? Players for Moyes' squad`\
 https://nytimes.com/athletic/6432037/2025/06/18/everton-transfers-recruitment-team/
-
-**One chaotic Blue Jays win: 4 centre fielders, 2 clutch homers and 1 display of lasting friendship**\
-`After Myles Straw badly twisted his ankle, his friend Josh Naylor was concerned: “I hated to see him go down. He's like a brother to me."`\
-https://nytimes.com/athletic/6434107/2025/06/18/chaotic-blue-jays-win/
-
-**Answering questions about the Rafael Devers trade**\
-`Trades this massive and complicated simply don't happen. Until they do.`\
-https://nytimes.com/athletic/6433465/2025/06/18/rafael-devers-trade-questions/
 
