@@ -1,3 +1,15 @@
+**Live Updates: Supreme Court Upholds Ban on Transgender Care for Minors**\
+`The justices ruled that Tennessee’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
+https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care
+
+**Here's the latest on the decision.**\
+`The justices ruled that the state’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
+https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care/supreme-court-tennessee-transgender-care-minors
+
+**Read the Supreme Court’s Decision on Transgender Care for Minors**\
+`The Supreme Court upholds Tennessee’s ban on transgender care for minors`\
+https://nytimes.com/interactive/2025/06/18/us/politics/transgender-care-minors-document-supreme-court.html
+
 **See where Israeli strikes have damaged Iranian nuclear and military facilities so far.**\
 `By Karen Yourish`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/see-where-israeli-strikes-have-damaged-iranian-nuclear-and-military-facilities-so-far
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6434655/2025/06/18/shai-gilgeous-alexander-jalen-wi
 **Henry Ruggs III apologizes to family of woman he killed in drunken car crash**\
 `"I wish I could turn back the hands of time," said the former Las Vegas Raiders receiver, who is serving a prison sentence.`\
 https://nytimes.com/athletic/6434749/2025/06/18/henry-ruggs-apology-dui-car-crash/
-
-**Debunking Red Sox conspiracy theories, Fanatics' $200 million bet, new PGA CEO: MoneyCall**\
-`In this week's sports business cheat sheet, analysis of the top storylines of the moment, including the PGA's smart new CEO hire.`\
-https://nytimes.com/athletic/6434806/2025/06/18/fenway-sports-group-brian-rolapp-fanatics-fest-moneycall/
-
-**Rose Lavelle return headlines USWNT roster for summer friendlies**\
-`The 25-player roster will play in three friendlies spanning June and July against Ireland and Canada.`\
-https://nytimes.com/athletic/6433788/2025/06/18/rose-lavelle-uswnt-roster-summer-friendlies/
-
-**A Man Drove a Car Down Rome’s Spanish Steps. It Did Not Go Great.**\
-`Don’t try this at home.`\
-https://nytimes.com/2025/06/18/world/europe/spanish-steps-rome-driver-car.html
 

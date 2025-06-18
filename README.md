@@ -1,3 +1,7 @@
+**He Locked Away His Wartime Memories Until His Granddaughter Opened the Pages**\
+`Heather Clark’s debut novel, “The Scrapbook,” considers young love as buffeted by historical ruptures.`\
+https://nytimes.com/2025/06/18/books/review/the-scrapbook-heather-clark.html
+
 **Live Updates: Supreme Court Upholds Ban on Transgender Care for Minors**\
 `The justices ruled that Tennessee’s law, which prohibited some medical treatments for transgender youths, did not violate equal protection principles.`\
 https://nytimes.com/live/2025/06/18/us/supreme-court-transgender-care
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/special-series/jenny-erpenbeck-east-germany-histo
 **The Bounce: Shai Gilgeous-Alexander has had a great NBA Finals, but could Jalen Williams win MVP?**\
 `Could Jalen Williams join a unique list of surprising NBA Finals MVP winners?`\
 https://nytimes.com/athletic/6434655/2025/06/18/shai-gilgeous-alexander-jalen-williams-thunder-nba-finals-mvp-the-bounce/
-
-**Henry Ruggs III apologizes to family of woman he killed in drunken car crash**\
-`"I wish I could turn back the hands of time," said the former Las Vegas Raiders receiver, who is serving a prison sentence.`\
-https://nytimes.com/athletic/6434749/2025/06/18/henry-ruggs-apology-dui-car-crash/
 
