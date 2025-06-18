@@ -1,3 +1,7 @@
+**Fantasy bullpen report featuring rising relievers Garrett Whitlock, Edwin Uceta and more**\
+`Greg Jewett's weekly bullpen report featuring leverage pathways, relievers on the rise, save stashes and more. `\
+https://nytimes.com/athletic/6436036/2025/06/18/fantasy-baseball-bullpen-report-relievers-whitlock-uceta/
+
 **Democrats’ Wary Response to Transgender Ruling Shows the Party’s Retreat**\
 `While some in the party denounced the Supreme Court’s decision, other top leaders remained quiet, underscoring the party’s discomfort on the issue.`\
 https://nytimes.com/2025/06/18/us/politics/democrats-supreme-court-transgender-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/business/california-dehumidifers-fires-sentencing
 **Trump Travel Restrictions Bar Residents Needed at U.S. Hospitals**\
 `Limits on travel and visa appointments have delayed or prevented foreign doctors from entering the country for jobs set to begin in weeks.`\
 https://nytimes.com/2025/06/18/health/medical-residents-travel-ban.html
-
-**The Supreme Court Upheld a State Ban on Transgender Care for Minors**\
-`Also, Trump’s cryptic Iran comments fueled fears of a wider war. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/06/18/briefing/scotus-transgender-care-trump-iran.html
 
