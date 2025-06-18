@@ -1,3 +1,7 @@
+**India rule the cricketing world, but is their dominance good for the sport?**\
+`India generate an estimated 80 per cent of the game’s global revenue, leaving almost every other cricketing nation reliant upon them`\
+https://nytimes.com/athletic/6415655/2025/06/17/india-cricket-kohli-dominance-england-australia/
+
 **Canada's friendly roadmap to the 2026 World Cup comes into focus**\
 `Canada's men are building momentum toward the World Cup they are cohosting, and future opponents will play a significant role in their prep`\
 https://nytimes.com/athletic/6433643/2025/06/17/canada-friendlies-2026-world-cup-preparation-opponents/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433673/2025/06/17/nascar-carson-hocevar-mexico-cit
 **Judge expresses concern over suit vs. NASCAR, asks what 23XI, Front Row want**\
 `U.S. District Court Judge Kenneth D. Bell issued a warning to both sides at the conclusion of Tuesday hearing.`\
 https://nytimes.com/athletic/6433611/2025/06/17/nascar-lawsuit-front-row-23xi/
-
-**Cruise Will Receive an Honorary Oscar at Governors Awards**\
-`The film industry will honor Tom Cruise this fall with an Honorary Academy Award for lifetime achievement, along with the choreographer Debbie Allen and the production designer Wynn Thomas.`\
-https://nytimes.com/2025/06/17/movies/tom-cruise-oscar-honorary.html
 
