@@ -1,3 +1,7 @@
+**Move over, Mbappe: SailGP's France franchise gets new investment from Ares Management**\
+`Ares' $3.7 billion sports fund has previously invested in the Miami Dolphins, Inter Miami CF, McLaren Racing, Atletico Madrid and more.`\
+https://nytimes.com/athletic/6433649/2025/06/18/sailgp-france-ares-management-kylian-mbappe/
+
 **Wimbledon wild cards: Two-time champion Petra Kvitova joined by British veterans and rising talents**\
 `U.S. Open girls' singles champion Mika Stojsavljevic is among the British recipients.`\
 https://nytimes.com/athletic/6434740/2025/06/18/wimbledon-wild-cards-mens-womens-singles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6432831/2025/06/18/vikings-53-man-roster-projection
 **Up, down or stand pat: In trading with Pacers, Pelicans have options in draft**\
 `The Pelicans now have a pair of first-round picks, which should keep Joe Dumars busy until the draft.`\
 https://nytimes.com/athletic/6433479/2025/06/18/pelicans-trade-nba-draft-2025/
-
-**Bills post-spring 53-man roster projection: A possible bump at receiver and trim at linebacker**\
-`Plus, the battle for backup quarterback could get interesting.`\
-https://nytimes.com/athletic/6432534/2025/06/18/bills-post-spring-53-man-roster-projection-wide-receiver-linebacker/
 

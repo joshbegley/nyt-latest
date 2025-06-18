@@ -1,3 +1,11 @@
+**Wimbledon wild cards: Two-time champion Petra Kvitova joined by British veterans and rising talents**\
+`U.S. Open girls' singles champion Mika Stojsavljevic is among the British recipients.`\
+https://nytimes.com/athletic/6434740/2025/06/18/wimbledon-wild-cards-mens-womens-singles/
+
+**Christopher Bell on being more outspoken and a past career crossroads: 12 Questions**\
+`Christopher Bell talks about what made him open up more off the track, the time he turned down Roush and stuck with Toyota, and more.`\
+https://nytimes.com/athletic/6432383/2025/06/18/christopher-bell-nascar-sponsors-toyota-roush-12-questions/
+
 **Barcelona sign Espanyol goalkeeper Garcia**\
 `The 24-year-old joins the club on a six-year deal that runs through to 2031.`\
 https://nytimes.com/athletic/6363649/2025/06/18/joan-garcia-barcelona-transfer/
