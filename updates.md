@@ -1,3 +1,11 @@
+**27 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
+`Transgender minors and their parents, guardians and doctors have challenged bans in 19 states, with mixed results.`\
+https://nytimes.com/2025/06/18/us/politics/states-trans-treatments-scotus.html
+
+**Ravens, cornerback Jaire Alexander agree to 1-year deal**\
+`The Packers released Alexander, 28, last week after the two sides couldn’t agree to a restructured contract.`\
+https://nytimes.com/athletic/6427434/2025/06/18/jaire-alexander-signs-ravens/
+
 **David Lynch’s Director’s Chair and 400 Other Belongings Go on Auction**\
 `Lynch’s estate arranged with Julien’s Auction to sell off cameras, screenplays, furniture and more, giving his fans a chance to bid on pieces of film history.`\
 https://nytimes.com/2025/06/18/arts/design/david-lynch-auction.html
