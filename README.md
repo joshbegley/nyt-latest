@@ -1,3 +1,11 @@
+**Severe Weather Threatens a Large Part of the Midwest on Wednesday**\
+`Rain and hail are likely, forecasters said, but the biggest danger could be high winds.`\
+https://nytimes.com/2025/06/18/weather/midwest-storms-forecast-indiana-illinois.html
+
+**The New York Times International Edition in Print for Thursday, June 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/18/todays-new-york-times-international-edition
+
 **Which Premier League team has the toughest start to 2025-26?**\
 `With the 2025-26 Premier League fixtures released, we analyse which clubs have the toughest — and easiest — opening sets of five games.`\
 https://nytimes.com/athletic/6421019/2025/06/18/premier-league-hardest-start-2025-26/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/bridget-brink-congress.html
 **Images of Handcuffed Democrats Start to Pile Up in Trump’s Crackdown**\
 `Federal agents have arrested a growing number of the party’s elected officials, fueling liberal outrage and conservative accusations that Democrats are carrying out publicity stunts.`\
 https://nytimes.com/2025/06/18/us/politics/democrats-arrested-lander-padilla-trump.html
-
-**Can You Guess the Hidden Costs of Homeownership?**\
-`Are you prepared for the routine expenses (and costly surprises) of homeownership?`\
-https://nytimes.com/interactive/2025/06/18/realestate/18re-Guess-the-hidden-costs-of-homeownership.html
-
-**See What Strategic Infrastructure Israel Has Damaged in Iran**\
-`Israel has attacked nuclear, military and energy facilities in Iran. Here is a look at the destruction so far.`\
-https://nytimes.com/interactive/2025/06/18/world/middleeast/israel-iran-strikes-facilities-map.html
 
