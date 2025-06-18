@@ -1,3 +1,7 @@
+**Judge expresses concern over suit vs. NASCAR, asks what 23XI, Front Row want**\
+`U.S. District Court Judge Kenneth D. Bell issued a warning to both sides at the conclusion of Tuesday hearing.`\
+https://nytimes.com/athletic/6433611/2025/06/17/nascar-lawsuit-front-row-23xi/
+
 **Cruise Will Receive an Honorary Oscar at Governors Awards**\
 `The film industry will honor Tom Cruise this fall with an Honorary Academy Award for lifetime achievement, along with the choreographer Debbie Allen and the production designer Wynn Thomas.`\
 https://nytimes.com/2025/06/17/movies/cruise-will-receive-an-honorary-oscar-at-governors-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/17/dining/anne-burrell-dead.html
 **Virginia Primary Election Results**\
 `Get live results and maps from the 2025 Virginia primary elections.`\
 https://nytimes.com/interactive/2025/06/17/us/elections/results-virginia-primary.html
-
-**Heavily Armed Man at ‘No Kings’ Protest Had 13 Bombs at Home, Police Say**\
-`Kevin Krebs, 31, of Malvern, Pa., is facing more than two dozen additional charges after investigators searched his house on Monday.`\
-https://nytimes.com/2025/06/17/us/no-kings-arrest-bombs.html
 
