@@ -1,3 +1,19 @@
+**Police Mishandled Fatal Crash Between American Driver and U.K. Teenager, Review Says**\
+`An independent report found that officers should have arrested the driver, Anne Sacoolas, at the scene. She later claimed diplomatic immunity and fled Britain.`\
+https://nytimes.com/2025/06/18/world/europe/uk-anne-sacoolas-harry-dunn-police.html
+
+**No football on Boxing Day in the 2025-26 Premier League. Will that really be the case?**\
+`The fixtures for the new season have been announced and none are scheduled for December 26...`\
+https://nytimes.com/athletic/6434639/2025/06/18/boxing-day-football-premier-league/
+
+**Was I Wrong to Tell My Dead Friend’s Son That His Father Sold Sperm to a Sperm Bank?**\
+`A reader wonders whether she overstepped by telling her old friend’s son about his father’s tactic for making extra cash during his med school days.`\
+https://nytimes.com/2025/06/18/style/sperm-bank-disclosure-children.html
+
+**Which Astros players’ stock is up down as summer approaches?**\
+`The Astros are once again an American League force. Here is a stock report after 72 games.`\
+https://nytimes.com/athletic/6434157/2025/06/18/houston-astros-player-stock-report-summer/
+
 **Joan Garcia's transfer to Barcelona: The inside story and key questions answered**\
 `Garcia has become the first player to join Barcelona from city rivals Espanyol in 31 years, and just the 15th to ever do so at senior level`\
 https://nytimes.com/athletic/6434439/2025/06/18/joan-garcia-transfer-barcelona-inside-story/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6363649/2025/06/18/joan-garcia-barcelona-transfer/
 **Lawsuit Accuses Tyler Perry of Sexual Assault**\
 `Derek Dixon, an actor who worked with Mr. Perry, is suing him for $260 million for sexual harassment, assault and battery. A representative for Mr. Perry called the allegations a “scam.”`\
 https://nytimes.com/2025/06/18/arts/tyler-perry-derek-dixon-sexual-assault-lawsuit.html
-
-**Two Iranian centrifuge production facilities are hit, the U.N. nuclear watchdog says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/two-iranian-centrifuge-production-facilities-are-hit-the-un-nuclear-watchdog-says
-
-**Catherine, Princess of Wales, Unexpectedly Pulls Out of Royal Ascot**\
-`The princess canceled plans to attend the British horse racing event Wednesday as she tries to find the “right balance” in her recovery from cancer, Kensington Palace said.`\
-https://nytimes.com/2025/06/18/world/europe/princess-kate-middleton-ascot-race-uk.html
-
-**In a defiant address, Iran’s supreme leader rejects Trump’s call to surrender.**\
-`By Matthew Mpoke Bigg and Leily Nikounazar`\
-https://nytimes.com/live/2025/06/18/world/israel-iran-trump/in-a-defiant-address-irans-supreme-leader-rejects-trumps-call-to-surrender
-
-**Vikings 53-man roster projection: What OTAs and minicamp told us about 2025 team**\
-`What stood out from the Vikings' OTAs and minicamp? How does what we saw shape what the team will look like come Week 1 in Chicago?`\
-https://nytimes.com/athletic/6432831/2025/06/18/vikings-53-man-roster-projection-2025/
 
