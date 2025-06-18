@@ -1,3 +1,15 @@
+**Oilers fall short again in Stanley Cup Final, so where do they go from here?**\
+`Outclassed by the Panthers, the Oilers again face a rocky path to their first championship since 1990.`\
+https://nytimes.com/athletic/6433206/2025/06/17/oilers-stanley-cup-offseason/
+
+**Ohio Officer Won’t Be Charged in Fatal Shooting of Teenager**\
+`The teenager, Ryan Hinton, was shot by a police officer responding to a stolen vehicle report on May 1. The youth’s father is accused of killing a sheriff’s deputy with his car.`\
+https://nytimes.com/2025/06/17/us/cincinnati-police-shooting-ryan-hinton.html
+
+**Sam Bennett wins Conn Smythe Trophy as playoff MVP**\
+`Sam Bennett led the NHL with 15 playoff goals, a franchise record, including an NHL record 13 on the road.`\
+https://nytimes.com/athletic/6433776/2025/06/17/sam-bennett-conn-smythe-panthers-2/
+
 **Reinhart scores four goals as Panthers win back-to-back Stanley Cups: Takeaways**\
 `The Panthers dominated Game 6, with only a late goal by Vasily Podkolzin to spoil Sergei Bobrovsky's shutout.`\
 https://nytimes.com/athletic/6433850/2025/06/17/panthers-oilers-stanley-cup-final-game-6-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6433701/2025/06/17/rafael-devers-giants-debut-first
 **India rule the cricketing world, but is their dominance good for the sport?**\
 `India generate an estimated 80 per cent of the game’s global revenue, leaving almost every other cricketing nation reliant upon them`\
 https://nytimes.com/athletic/6415655/2025/06/17/india-cricket-kohli-dominance-england-australia/
-
-**Canada's friendly roadmap to the 2026 World Cup comes into focus**\
-`Canada's men are building momentum toward the World Cup they are cohosting, and future opponents will play a significant role in their prep`\
-https://nytimes.com/athletic/6433643/2025/06/17/canada-friendlies-2026-world-cup-preparation-opponents/
-
-**N.A.A.C.P. Won’t Invite Trump to Its National Convention, Breaking 116-Year Tradition**\
-`The move by the N.A.A.C.P., the nation’s largest and oldest civil rights organization, marked a new low in its relationship with the Trump administration.`\
-https://nytimes.com/2025/06/17/us/trump-naacp-convention.html
-
-**Caitlin Clark in scuffle as Fever reach Commissioner's Cup final: Takeaways**\
-`Caitlin Clark issued technical foul for role in incident, while Connecticut's Jacy Sheldon earns flagrant foul.`\
-https://nytimes.com/athletic/6433685/2025/06/17/caitlin-clark-jacy-sheldon-pacers-suns/
 

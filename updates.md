@@ -1,3 +1,7 @@
+**Reinhart scores four goals as Panthers win back-to-back Stanley Cups: Takeaways**\
+`The Panthers dominated Game 6, with only a late goal by Vasily Podkolzin to spoil Sergei Bobrovsky's shutout.`\
+https://nytimes.com/athletic/6433850/2025/06/17/panthers-oilers-stanley-cup-final-game-6-takeaways/
+
 **Monterrey 1 Inter 1 - Sergio Ramos is everything you remember**\
 `Analysis of Monterrey against Inter Milan in the Club World Cup`\
 https://nytimes.com/athletic/6424373/2025/06/17/monterrey-inter-sergio-ramos-highlights/
