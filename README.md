@@ -1,3 +1,7 @@
+**The MAGA Fight Over the Iran Fight**\
+`As President Trump ponders involving the United States in Israel’s attacks on Iran, the G.O.P. faces a thorny question: What does “America first” really mean?`\
+https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
+
 **If the U.S. joins Israeli attacks, Iran will retaliate ‘wherever we find the targets,’ an official says.**\
 `By Liam Stack`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/if-the-us-joins-israeli-attacks-iran-will-retaliate-wherever-we-find-the-targets-an-official-says
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436086/2025/06/18/travis-kelce-chasing-another-rin
 **For Food Network Fans, Anne Burrell Was the Fun-Loving Aunt**\
 `The chef, who died Tuesday, built her stardom on a big, down-to-earth personality in which viewers could see themselves.`\
 https://nytimes.com/2025/06/18/dining/anne-burrell-food-network.html
-
-**Gary England, Star Meteorologist in Tornado Alley, Dies at 85**\
-`Working for a TV station in Oklahoma City, he was known for using high-tech tools to give early warnings of tornadoes in the central U.S.`\
-https://nytimes.com/2025/06/18/obituaries/gary-england-dead.html
 
