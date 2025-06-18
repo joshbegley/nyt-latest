@@ -1,3 +1,7 @@
+**Trump and the Middle East Weigh on the Fed**\
+`Investors are anxious about whether the central bank will change course on rate cuts as geopolitical turmoil and tariffs pose inflation risks.`\
+https://nytimes.com/2025/06/18/business/dealbook/trump-iran-fed-rates.html
+
 **Mandel's Mailbag: Pick best game each week this CFB season to attend. No stadium overlapping**\
 `Plus: Who's got it better next season, CJ Carr at Notre Dame or Julian Sayin at Ohio State? `\
 https://nytimes.com/athletic/6433790/2025/06/18/mandels-mailbag-house-settlement-baylor-auburn-unc/
