@@ -1,3 +1,7 @@
+**Canada smashes six past Honduras in spectacular Gold Cup start**\
+`A comprehensive win gave Canada a perfect Gold Cup start.`\
+https://nytimes.com/athletic/6434092/2025/06/18/canada-honduras-gold-cup-marsch/
+
 **Mathis Albert: The American 16-year-old bringing 'swagger' to the Club World Cup**\
 `Albert joined Borussia Dortmund last year from LA Galaxy, having stood out for his dribbling, speed and ability in one-versus-one situations`\
 https://nytimes.com/athletic/6432311/2025/06/18/mathis-albert-american-club-world-cup/
