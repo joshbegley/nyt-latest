@@ -1,3 +1,7 @@
+**Man City fined more than £1m by Premier League for late kick-offs**\
+`City have accepted and apologised for nine breaches of Premier League rule L.33, relating to late kick-offs throughout the 2024-25 campaign.`\
+https://nytimes.com/athletic/6438344/2025/06/19/manchester-city-rule-break-premier-league/
+
 **TikTok Hits Cannes, Where a U.S. Ban Seems a Distant Dream**\
 `TikTok executives hosted happy hours and played pickleball with influencers on the French Riviera this week, even as a U.S. ban loomed over the company.`\
 https://nytimes.com/2025/06/19/business/media/tiktok-cannes-shou-chew.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/world/middleeast/interpol-corruption-former-offic
 **Oil Tanker Collision Near Strait of Hormuz Raises Security Fears**\
 `The accident, which the United Arab Emirates said was unrelated to the conflict between Israel and Iran, comes amid increased reports of GPS jamming.`\
 https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
-
-**As talk grows of regime change in Iran, here’s a look at the 1953 coup that helped reshape the Middle East.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/as-talk-grows-of-regime-change-in-iran-heres-a-look-at-the-1953-coup-that-helped-reshape-the-middle-east
 
