@@ -1,3 +1,7 @@
+**Two-time Wimbledon champion Petra Kvitova will retire from tennis after U.S. Open**\
+`Kvitová has 31 singles titles to her name, and reached a career high of world No. 2.`\
+https://nytimes.com/athletic/6437841/2025/06/19/tennis-petra-kvitova-retirement/
+
 **Fed’s ‘Wait-and-See’ Approach Keeps It on Collision Course With Trump**\
 `The central bank signals little urgency to cut interest rates despite demands from President Trump for lower borrowing costs.`\
 https://nytimes.com/2025/06/19/business/fed-interest-rates-trump-powell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6437470/2025/06/19/wales-wilkinson-snowdon-euro2025
 **Lessons From a Dark Past**\
 `In South Korea, the collective memory of a pro-democracy uprising inspires a new generation to resist authoritarianism.`\
 https://nytimes.com/2025/06/19/special-series/hwang-sok-yong-korea-martial-law.html
-
-**The Universe’s Darkest Mysteries Are Coming Into Focus**\
-`As the Vera C. Rubin Observatory surveys the night sky, astrophysicists expect to unlock the secrets of dark matter, dark energy and cosmic phenomena that go “bang!”`\
-https://nytimes.com/2025/06/19/science/telescope-vera-rubin-dark-matter.html
 
