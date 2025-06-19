@@ -1,3 +1,7 @@
+**'We have to see the results': Mets waiting on Francisco Alvarez and his swing change**\
+`The Mets have lost four straight entering Wednesday, and Alvarez’s lack of production is under the microscope.`\
+https://nytimes.com/athletic/6436631/2025/06/18/mets-rancisco-alvarez-swing-change/
+
 **Al-Hilal have riches on and off the field - and an outside shot at the Club World Cup**\
 `People seem to have slept on a PIF team in a PIF-backed tournament having a shot, an outside shot but a shot nonetheless`\
 https://nytimes.com/athletic/6436538/2025/06/18/al-hilal-club-world-cup/
