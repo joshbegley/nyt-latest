@@ -1,3 +1,7 @@
+**Phillies' Nick Castellanos says benching, remark to manager Rob Thomson is behind him**\
+`Defensive concerns prompted Phillies manager Rob Thomson to lift Nick Castellanos against the Marlins on Monday.`\
+https://nytimes.com/athletic/6438982/2025/06/19/philadelphia-phillies-nick-castellanos-benching-comments/
+
 **Trump Buys Himself Time, and Opens Up Some New Options**\
 `While President Trump appears to be offering one more off ramp to the Iranians, he also is bolstering his own military options.`\
 https://nytimes.com/2025/06/19/us/politics/trump-buys-time-iran-decision.html
