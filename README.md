@@ -1,3 +1,19 @@
+**‘There Was a Massive Boom’: Doctor Recounts Iranian Strike on Hospital**\
+`An Iranian missile hit a building at the Soroka Medical Center, a major hospital complex in southern Israel. The hospital said it was treating several patients with minor injuries.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-soroka-hospital-hit-iranian-strike.html
+
+**European and Iranian officials will hold talks on Friday in Geneva.**\
+`By Jim Tankersley, Jeanna Smialek and Leily Nikounazar`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/european-and-iranian-officials-will-hold-talks-on-friday-in-geneva
+
+**City set to sign Villa prospect Lawrie**\
+`The England youth international's terms at Villa expire this summer, with City set to pay compensation to sign him.`\
+https://nytimes.com/athletic/6437409/2025/06/19/freddie-lawrie-manchester-city-villa/
+
+**With Jaire Alexander in the secondary, Ravens can imagine the 'endless' possibilities**\
+`Alexander, a two-time Pro Bowler, joins a group that includes Marlon Humphrey, Nate Wiggins, Kyle Hamilton and first-rounder Malaki Starks. `\
+https://nytimes.com/athletic/6436996/2025/06/19/jaire-alexander-ravens-secondary/
+
 **This Chinese Park Inspired ‘Avatar.’ Videos Show It Also Drew Piles of Trash.**\
 `Officials ordered a huge cleanup effort after videos of the mountains of garbage spread widely online.`\
 https://nytimes.com/2025/06/19/world/asia/china-caves-trash-avatar.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6436094/2025/06/19/stars-jason-robertson-trade-nhl/
 **Coaches, executives, scouts on Cooper Flagg, top wing prospects: 2025 NBA Draft Confidential**\
 `From Maine to Montverde Academy to Duke, Flagg has been building step by step to do exactly this: be the first pick in next week's draft.`\
 https://nytimes.com/athletic/6430848/2025/06/19/nba-draft-confidential-wings-2025/
-
-**Biggest misses from the 2015 MLB Draft — Dillon Tate, Tyler Jay among those who didn't click**\
-`Several players selected among the top 30 picks in 2015 have failed to live up to their pre-draft hype.`\
-https://nytimes.com/athletic/6432316/2025/06/19/2015-mlb-draft-misses-dillon-tate-tyler-jay/
-
-**Ranking Colts' position groups by concern level: Which spots should have fans worried?**\
-`The Colts' questionable QB room is the easy No. 1 choice here, but what other groups have the potential to derail Indy's season?`\
-https://nytimes.com/athletic/6434601/2025/06/19/colts-roster-depth-chart-richardson-jones/
-
-**Red Sox version of Devers trade demonstrates clumsy communication, importance of culture**\
-`Let’s not kid ourselves: The Red Sox saw a golden opportunity to save approximately $250 million and took it (in the name of culture).`\
-https://nytimes.com/athletic/6436557/2025/06/19/red-sox-rafael-devers-trade-craig-breslow/
-
-**Malik Tillman: My game in my words**\
-`Malik Tillman usually lets his game do the talking, and the performances are getting louder – helped by some outrageous long-range goals`\
-https://nytimes.com/athletic/6435289/2025/06/19/malik-tillman-usmnt-psv-my-game-my-words/
 
