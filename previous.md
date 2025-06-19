@@ -1,3 +1,7 @@
+**Word of the Day: taciturn**\
+`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
+
 **Chris Sale tosses near complete-game shutout as Braves clinch series vs. Mets**\
 `Sale’s bid for a repeat Cy Young Award was further strengthened with an overwhelming 8 2/3 innings.`\
 https://nytimes.com/athletic/6436936/2025/06/19/chris-sale-braves-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/06/19/us/minnesota-shooting-hortman-vigil
 **César Montes powers Mexico past Suriname to make Gold Cup knockout stage**\
 `Though El Tri is already in the quarterfinals, it'll look to top the group with a win over Costa Rica in the final group-stage match Sunday.`\
 https://nytimes.com/athletic/6436869/2025/06/19/mexico-suriname-gold-cup-results-analysis/
-
-**Ben Stokes, leadership and the poisoned chalice that is the England captaincy**\
-`Those who have experienced life leading the national team are united in praise of Stokes and the way he has embraced 'the impossible job'`\
-https://nytimes.com/athletic/6424053/2025/06/19/england-captain-stokes-hussain-gower-gooch/
 

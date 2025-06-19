@@ -1,3 +1,7 @@
+**Word of the Day: taciturn**\
+`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
+
 **Chris Sale tosses near complete-game shutout as Braves clinch series vs. Mets**\
 `Sale’s bid for a repeat Cy Young Award was further strengthened with an overwhelming 8 2/3 innings.`\
 https://nytimes.com/athletic/6436936/2025/06/19/chris-sale-braves-mets/
