@@ -1,3 +1,11 @@
+**Williams F1 team principal Vowles signs long-term contract extension**\
+`Under Vowles, Williams has experienced an upturn in fortunes with investment in its facilities and enjoyed greater success on the track.`\
+https://nytimes.com/athletic/6437683/2025/06/19/james-vowles-williams-contract/
+
+**Largely Sidelined on Iran, Europe Makes a Late Push for Diplomacy**\
+`The continent’s most important leaders are divided over Israel’s conduct and filled with fears about a spiraling regional conflict.`\
+https://nytimes.com/2025/06/19/world/europe/europe-iran-israel-war-talks-nuclear.html
+
 **Barcelona and La Liga's salary limit: Can they afford Nico Williams?**\
 `As Barcelona line up another big spend in the transfer market, here's the latest on their financial struggles`\
 https://nytimes.com/athletic/6437270/2025/06/19/barcelona-nico-williams-la-liga-salary-limit/
