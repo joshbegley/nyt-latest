@@ -1,3 +1,11 @@
+**Boy, 15, Survives Lightning Strike in Central Park, Police Say**\
+`The boy was standing under a tree when lightning hit and an electrical current transferred to a chain necklace he was wearing, a law enforcement official said.`\
+https://nytimes.com/2025/06/19/nyregion/boy-survives-lightning-central-park.html
+
+**Inter Miami 2 Porto 1: Messi's magical free kick lights up Club World Cup in comeback win**\
+`The Argentinian superstar stepped up when he was needed to seal a crucial victory in Group A`\
+https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-world-cup/
+
 **Sunderland close to appointing Ghisolfi as director of football**\
 `Sporting director Kristjaan Speakman will remain at newly-promoted Sunderland and will work alongside Ghisolfi, who spent 2024-25 at Roma.`\
 https://nytimes.com/athletic/6438913/2025/06/19/sunderland-director-football-florent-ghisolfi/
