@@ -1,3 +1,7 @@
+**A Messy Business Divorce Plays Out on the Beaches of Cannes**\
+`Michael Kassan, a ringmaster in the media industry, is going head to head at its top event with United Talent Agency, a company that has sued him.`\
+https://nytimes.com/2025/06/19/business/media/cannes-lions-uta-michael-kassan-medialink.html
+
 **In Crisis With Iran, U.S. Military Officials Focus on Strait of Hormuz**\
 `Pentagon officials are trying to prepare for all of the ways Iran could retaliate, as President Trump hints at what he might do.`\
 https://nytimes.com/2025/06/19/us/politics/iran-us-military-strait-of-hormuz.html
