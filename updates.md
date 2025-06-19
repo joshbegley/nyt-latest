@@ -1,3 +1,7 @@
+**Edward Anders, Who Duped Nazis and Illuminated the Cosmos, Dies at 98**\
+`His research unraveled mysteries about the solar system and the demise of the dinosaurs. In retirement, he turned his attention to the Holocaust.`\
+https://nytimes.com/2025/06/19/science/space/edward-anders-dead.html
+
 **Club World Cup odds: PSG favoured to win after Real Madrid draw in opener**\
 `Every team in the Club World Cup has played once. The odds haven't moved much since the start of the tournament, with European teams up top.`\
 https://nytimes.com/athletic/6438011/2025/06/19/club-world-cup-odds-psg-real-madrid/

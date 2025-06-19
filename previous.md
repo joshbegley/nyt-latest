@@ -1,3 +1,7 @@
+**Edward Anders, Who Duped Nazis and Illuminated the Cosmos, Dies at 98**\
+`His research unraveled mysteries about the solar system and the demise of the dinosaurs. In retirement, he turned his attention to the Holocaust.`\
+https://nytimes.com/2025/06/19/science/space/edward-anders-dead.html
+
 **Club World Cup odds: PSG favoured to win after Real Madrid draw in opener**\
 `Every team in the Club World Cup has played once. The odds haven't moved much since the start of the tournament, with European teams up top.`\
 https://nytimes.com/athletic/6438011/2025/06/19/club-world-cup-odds-psg-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/dining/healthy-kbbq-chicken-recipe-and-more-summe
 **Earth’s Largest Camera Takes 3 Billion-Pixel Images of the Night Sky**\
 `At the heart of the new Vera C. Rubin Observatory is a digital camera that will create an unparalleled map of the cosmos.`\
 https://nytimes.com/interactive/2025/06/19/science/rubin-observatory-camera.html
-
-**French Lawmaker Says He Was Denied Entry Into the United States**\
-`Pouria Amirshahi, a leftist member of Parliament, hopes that the decision will be reversed so that he can travel to meet lawmakers to understand life under President Trump.`\
-https://nytimes.com/2025/06/19/world/europe/france-lawmaker-denied-visa-us-trump-amirshahi.html
 
