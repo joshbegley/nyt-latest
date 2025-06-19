@@ -1,3 +1,15 @@
+**Oil Tanker Collision Near Strait of Hormuz Raises Security Fears**\
+`The accident, which the United Arab Emirates said was unrelated to the conflict between Israel and Iran, comes amid increased reports of GPS jamming.`\
+https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
+
+**As talk grows of regime change in Iran, here’s a look at the 1953 coup that helped reshape the Middle East.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/as-talk-grows-of-regime-change-in-iran-heres-a-look-at-the-1953-coup-that-helped-reshape-the-middle-east
+
+**A Tree Trimmer’s Front-Row Seat to Trump’s Impromptu Iran Remarks**\
+`Any other president might have discussed a potential Iran strike in an Oval Office address or in a formal news conference. Mr. Trump did it while hanging with a crew of guys at a job site.`\
+https://nytimes.com/2025/06/19/us/trump-iran-questions-white-house-tree-trimmers.html
+
 **ICE Imposes New Rules on Congressional Visits**\
 `The policy specifies that ICE field offices are not subject to an existing law that allows members of Congress to make unannounced oversight visits to immigration facilities that “detain or otherwise house aliens.”`\
 https://nytimes.com/2025/06/19/us/politics/ice-congress.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6402245/2025/06/19/arsenal-coach-carlos-cuesta-parm
 **Celebrating Giants broadcaster Duane Kuiper, the ultimate teammate, on his 75th birthday**\
 `"If you're on his team, he's looking out for you," Kuiper's eldest child said, echoing tributes from others in his life.`\
 https://nytimes.com/athletic/6437102/2025/06/19/sf-giants-duane-kuiper-75th-birthday-tribute/
-
-**The Supreme Court Fails to See Transgender Teens**\
-`The retrenchment on transgender rights is fueled by fear: fear of the future, fear of unfamiliar concepts, fear of not knowing one’s child.`\
-https://nytimes.com/2025/06/19/opinion/the-supreme-court-fails-to-see-transgender-teens.html
-
-**Edward Anders, Who Duped Nazis and Illuminated the Cosmos, Dies at 98**\
-`His research unraveled mysteries about the solar system and the demise of the dinosaurs. In retirement, he turned his attention to the Holocaust.`\
-https://nytimes.com/2025/06/19/science/space/edward-anders-dead.html
-
-**Club World Cup odds: PSG favoured to win after Real Madrid draw in opener**\
-`Every team in the Club World Cup has played once. The odds haven't moved much since the start of the tournament, with European teams up top.`\
-https://nytimes.com/athletic/6438011/2025/06/19/club-world-cup-odds-psg-real-madrid/
 
