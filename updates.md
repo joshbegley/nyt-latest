@@ -1,3 +1,11 @@
+**An Iran Strategy for Trump**\
+`First, destroy Fordo. Then make the mullahs an offer they can’t refuse.`\
+https://nytimes.com/2025/06/18/opinion/iran-trump-fordo.html
+
+**Padres' Michael King (nerve issue) to remain out through All-Star break**\
+`The headliner of San Diego's return in its trade of star outfielder Juan Soto, King logged 173 2/3 innings and a 2.95 ERA last season.`\
+https://nytimes.com/athletic/6436742/2025/06/18/padres-michael-king-health-update/
+
 **Club World Cup clash has long mid-game delay due to extreme Cincy weather**\
 `Pachuca and Salzburg had their match-up interrupted by the extreme elements.`\
 https://nytimes.com/athletic/6436662/2025/06/18/club-world-cup-weather-delay-salzburg-pachuca/
