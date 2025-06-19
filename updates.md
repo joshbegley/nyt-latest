@@ -1,3 +1,7 @@
+**Iranian Missile Hits Hospital in Southern Israel**\
+`The strike highlighted the risks to civilians in Israel and Iran after days of fighting between the two nations.`\
+https://nytimes.com/2025/06/19/world/middleeast/iran-missile-israel-hospital.html
+
 **Hurricane Erick Expected to Make Landfall in Mexico as a Category 4 Storm**\
 `Erick set off flash floods in the states of Oaxaca and Guerrero. A stretch of the Pacific coastline, including Acapulco, was under a hurricane warning.`\
 https://nytimes.com/2025/06/19/world/americas/hurricane-erick-mexico-landfall.html
