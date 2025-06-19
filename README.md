@@ -4,7 +4,7 @@ https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
 
 **Israel struck an inactive Iranian nuclear site.**\
 `By Bora Erden`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/israel-struck-an-inactive-iranian-nuclear-site
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israel-struck-an-inactive-iranian-nuclear-site
 
 **Netanyahu says Israel doesn’t need help to reach its goals in Iran.**\
 `By Isabel Kershner`\
