@@ -1,3 +1,7 @@
+**Chilling Photos Capture Police Shooting Man, Fueling Anger in Kenya**\
+`The protests and police shooting on Tuesday came nearly a year after demonstrations against President William Ruto of Kenya convulsed the country.`\
+https://nytimes.com/2025/06/19/world/asia/kenya-protests-police-shooting-albert-ojwang.html
+
 **England look to Brydon Carse but hope Jofra Archer will feature in India series**\
 `The Durham fast bowler will open the bowling at Headingley but Archer could be fit to return at Edgbaston.`\
 https://nytimes.com/athletic/6437484/2025/06/19/england-carse-archer-stokes-pope/

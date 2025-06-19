@@ -1,3 +1,7 @@
+**Chilling Photos Capture Police Shooting Man, Fueling Anger in Kenya**\
+`The protests and police shooting on Tuesday came nearly a year after demonstrations against President William Ruto of Kenya convulsed the country.`\
+https://nytimes.com/2025/06/19/world/asia/kenya-protests-police-shooting-albert-ojwang.html
+
 **England look to Brydon Carse but hope Jofra Archer will feature in India series**\
 `The Durham fast bowler will open the bowling at Headingley but Archer could be fit to return at Edgbaston.`\
 https://nytimes.com/athletic/6437484/2025/06/19/england-carse-archer-stokes-pope/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/us/little-lobbyists-urge-senators-to-oppose-trump
 **The Windup: The knuckleball's return?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6437103/2025/06/19/knuckleball-aaron-judge-slump-the-windup/
-
-**Stars re-sign Matt Duchene, locking up top scorer at bargain $4.5 million cap hit**\
-`Duchene, 34, scored 82 points in 82 games in 2024-25. It's a low cost for that type of production but still leaves Dallas in a cap crunch.`\
-https://nytimes.com/athletic/6438288/2025/06/19/stars-matt-duchene-contract-bargain/
 
