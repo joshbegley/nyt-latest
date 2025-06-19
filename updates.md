@@ -1,3 +1,7 @@
+**Israel and Iran Continue to Exchange Attacks Into Thursday**\
+`The strikes highlight the risks to civilians in Israel and Iran after days of fighting between the two countries.`\
+https://nytimes.com/video/world/middleeast/100000010239638/iran-israel-conflict-middle-east.html
+
 **Bank Transfer Signals Syria Is Making Strides in Ending Economic Isolation**\
 `The bank-to-bank transfer using the SWIFT system was symbolically important, indicating the war-torn country was reintegrating into the global financial community.`\
 https://nytimes.com/2025/06/19/world/middleeast/syria-bank-european-transfer-swift.html

@@ -1,3 +1,7 @@
+**6 Months After the Pelicot Trial, a Staging Brings Insight and Despair**\
+`The stripped-back performance, based on the rape trial that shocked France and the world, ran all night at a church in Vienna.`\
+https://nytimes.com/2025/06/19/theater/the-pelicot-trial-milo-rau-wiener-festwochen.html
+
 **Israel and Iran Continue to Exchange Attacks Into Thursday**\
 `The strikes highlight the risks to civilians in Israel and Iran after days of fighting between the two countries.`\
 https://nytimes.com/video/world/middleeast/100000010239638/iran-israel-conflict-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/briefing/trump-israel-iran-china-hacking-russia.h
 **Inter Miami 2 Porto 1: Messi's magical free kick lights up Club World Cup in comeback win**\
 `The Argentinian superstar stepped up when he was needed to seal a crucial victory in Group A`\
 https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-world-cup/
-
-**Vikings mailbag: Submit your post-OTAs and minicamp questions for Alec Lewis**\
-`The quietest time of the NFL calendar is upon us. It's the perfect time to answer some Vikings questions from the mailbag.`\
-https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minicamp/
 
