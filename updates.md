@@ -1,3 +1,19 @@
+**Two-time Wimbledon champion Petra Kvitova will retire from tennis after U.S. Open**\
+`Kvitová has 31 singles titles to her name, and reached a career high of world No. 2.`\
+https://nytimes.com/athletic/6437841/2025/06/19/tennis-petra-kvitova-retirement/
+
+**Fed’s ‘Wait-and-See’ Approach Keeps It on Collision Course With Trump**\
+`The central bank signals little urgency to cut interest rates despite demands from President Trump for lower borrowing costs.`\
+https://nytimes.com/2025/06/19/business/fed-interest-rates-trump-powell.html
+
+**USMNT and Chelsea defender Caleb Wiley set to rejoin Watford on loan**\
+`Wiley spent the first half of last season on loan at Strasbourg before moving to Watford for the second half of the campaign.`\
+https://nytimes.com/athletic/6437816/2025/06/19/usmnt-and-chelsea-defender-caleb-wiley-set-to-rejoin-watford-on-loan/
+
+**Rhian Wilkinson, Wales' highest mountain and a Euro 2025 squad announcement with a difference**\
+`The head coach has used Yr Wyddfa, or Snowdon, as a metaphor to inspire her players so it's an appropriate venue to confirm Euros selection`\
+https://nytimes.com/athletic/6437470/2025/06/19/wales-wilkinson-snowdon-euro2025/
+
 **In Appalachia, a Father Got Black Lung. Then His Son Did, Too.**\
 `Once nearly eradicated, the “old man’s disease” is back and suffocating younger miners than before. Federal cuts risk putting a solution further out of reach.`\
 https://nytimes.com/2025/06/19/well/black-lung-appalachia-coal-miners.html
