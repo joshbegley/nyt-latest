@@ -1,3 +1,15 @@
+**The Windup: The knuckleball's return?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6437103/2025/06/19/knuckleball-aaron-judge-slump-the-windup/
+
+**Stars re-sign Matt Duchene, locking up top scorer at bargain $4.5 million cap hit**\
+`Duchene, 34, scored 82 points in 82 games in 2024-25. It's a low cost for that type of production but still leaves Dallas in a cap crunch.`\
+https://nytimes.com/athletic/6438288/2025/06/19/stars-matt-duchene-contract-bargain/
+
+**‘Churchyard’ and ‘Tablet’ Review: Irreverence and Resurrection**\
+`At the Joyce Theater through Sunday, the Paul Taylor Dance Company revives two half-lost works from the 1960s, traversing matters both sacred and profane.`\
+https://nytimes.com/2025/06/19/arts/dance/paul-taylor-joyce-review.html
+
 **Cuesta appointed Parma head coach after Arsenal exit**\
 `The Arsenal coach will take on his first senior head coach role at the Serie A club.`\
 https://nytimes.com/athletic/6402245/2025/06/19/arsenal-coach-carlos-cuesta-parma-manager/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6437976/2025/06/19/cj-mosley-retirement-jets-ravens
 **Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
 `Has watching sports on TV gotten too expensive? Why did the Stanley Cup Final struggle with viewership? Ask our expert your media questions.`\
 https://nytimes.com/athletic/6438142/2025/06/19/richard-deitsch-sports-media-mailbag-june-2025/
-
-**William Cran, Documentarian of Global Issues, Dies at 79**\
-`He had a hand in more than 50 films, many for PBS’s “Frontline,” including a series on the English language and an exploration of J. Edgar Hoover’s secret life.`\
-https://nytimes.com/2025/06/19/movies/william-cran-dead.html
-
-**A Messy Business Divorce Plays Out on the Beaches of Cannes**\
-`Michael Kassan, a ringmaster in the media industry, is going head to head at its top event with United Talent Agency, a company that has sued him.`\
-https://nytimes.com/2025/06/19/business/media/cannes-lions-uta-michael-kassan-medialink.html
-
-**In Crisis With Iran, U.S. Military Officials Focus on Strait of Hormuz**\
-`Pentagon officials are trying to prepare for all of the ways Iran could retaliate, as President Trump hints at what he might do.`\
-https://nytimes.com/2025/06/19/us/politics/iran-us-military-strait-of-hormuz.html
 
