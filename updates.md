@@ -1,3 +1,11 @@
+**Air India Cuts International Flights After Crash Causes Chaos**\
+`The move came a day after Indian officials told the airline to improve its operations, and as delays and canceled flights are drawing complaints from passengers.`\
+https://nytimes.com/2025/06/19/world/asia/air-india-plane-crash-flights-cuts.html
+
+**'A bit weird' – Weah, McKennie and Juventus' surreal audience with Trump as he weighs Iran war**\
+`What happened during a 16-minute press briefing as Juventus players and staff listened behind Trump in the Oval Office`\
+https://nytimes.com/athletic/6436693/2025/06/19/weah-juventus-trump-iran-war/
+
 **The Progressive Regulator With Trumpist Fans**\
 `Lina Khan wants to overthrow “the autocrats of trade.”`\
 https://nytimes.com/2025/06/19/opinion/lina-khan-monopolies-trump.html
