@@ -1,3 +1,11 @@
+**Inter Miami's Busquets disappointed with MLS roster rules, financial limitations**\
+`Miami coach Javier Mascherano and midfielder Federico Redondo also called for modifications of the competition calendar and roster rules.`\
+https://nytimes.com/athletic/6436575/2025/06/18/sergio-busquets-mls-rules-comments/
+
+**Club World Cup clash has long mid-game delay due to extreme Cincy weather**\
+`Pachuca and Salzburg had their match-up interrupted by the elements.`\
+https://nytimes.com/athletic/6436662/2025/06/18/club-world-cup-weather-delay-salzburg-pachuca/
+
 **'We have to see the results': Mets waiting on Francisco Alvarez and his swing change**\
 `The Mets have lost four straight entering Wednesday, and Alvarez’s lack of production is under the microscope.`\
 https://nytimes.com/athletic/6436631/2025/06/18/mets-rancisco-alvarez-swing-change/

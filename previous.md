@@ -1,3 +1,11 @@
+**Inter Miami's Busquets disappointed with MLS roster rules, financial limitations**\
+`Miami coach Javier Mascherano and midfielder Federico Redondo also called for modifications of the competition calendar and roster rules.`\
+https://nytimes.com/athletic/6436575/2025/06/18/sergio-busquets-mls-rules-comments/
+
+**Club World Cup clash has long mid-game delay due to extreme Cincy weather**\
+`Pachuca and Salzburg had their match-up interrupted by the elements.`\
+https://nytimes.com/athletic/6436662/2025/06/18/club-world-cup-weather-delay-salzburg-pachuca/
+
 **'We have to see the results': Mets waiting on Francisco Alvarez and his swing change**\
 `The Mets have lost four straight entering Wednesday, and Alvarez’s lack of production is under the microscope.`\
 https://nytimes.com/athletic/6436631/2025/06/18/mets-rancisco-alvarez-swing-change/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/18/opinion/supreme-court-trans-care.html
 **U.S. to Review Social Media Posts of Student and Scholar Visa Applicants**\
 `The State Department is restarting the processing of visa applications from students and visiting scholars, but is screening for  “hostility” toward the United States.`\
 https://nytimes.com/2025/06/18/us/politics/student-visa-applications.html
-
-**Ex-Yankee Is Awarded About $500,000 in Damages for Moldy Greenwich Mansion**\
-`Josh Donaldson, a former American League Most Valuable Player with Toronto, sued his former landlord over the conditions at his $55,000-a-month rental property.`\
-https://nytimes.com/2025/06/18/nyregion/josh-donaldson-yankees-greenwich-mansion-lawsuit.html
-
-**The MAGA Fight Over the Iran Fight**\
-`As President Trump ponders involving the United States in Israel’s attacks on Iran, the G.O.P. faces a thorny question: What does “America first” really mean?`\
-https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
 

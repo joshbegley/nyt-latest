@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6436575/2025/06/18/sergio-busquets-mls-rules-comments/
 
 **Club World Cup clash has long mid-game delay due to extreme Cincy weather**\
-`Pachuca and Salzburg had their match-up interrupted by the elements.`\
+`Pachuca and Salzburg had their match-up interrupted by the extreme elements.`\
 https://nytimes.com/athletic/6436662/2025/06/18/club-world-cup-weather-delay-salzburg-pachuca/
 
 **'We have to see the results': Mets waiting on Francisco Alvarez and his swing change**\
