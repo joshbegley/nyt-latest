@@ -1,3 +1,7 @@
+**Israel and Iran Continue to Exchange Attacks Into Thursday**\
+`The strikes highlight the risks to civilians in Israel and Iran after days of fighting between the two countries.`\
+https://nytimes.com/video/world/middleeast/100000010239638/iran-israel-conflict-middle-east.html
+
 **Bank Transfer Signals Syria Is Making Strides in Ending Economic Isolation**\
 `The bank-to-bank transfer using the SWIFT system was symbolically important, indicating the war-torn country was reintegrating into the global financial community.`\
 https://nytimes.com/2025/06/19/world/middleeast/syria-bank-european-transfer-swift.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-wor
 **Vikings mailbag: Submit your post-OTAs and minicamp questions for Alec Lewis**\
 `The quietest time of the NFL calendar is upon us. It's the perfect time to answer some Vikings questions from the mailbag.`\
 https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minicamp/
-
-**Dodgers say they denied federal immigration officials access to stadium lots**\
-`The Dodgers, who are set to host the San Diego Padres on Thursday night, said the game will be played as scheduled.`\
-https://nytimes.com/athletic/6438709/2025/06/19/dodgers-stadium-los-angeles-ice-immigration-raids/
 
