@@ -1,3 +1,7 @@
+**Trump Buys Himself Time, and Opens Up Some New Options**\
+`While President Trump appears to be offering one more off ramp to the Iranians, he also is bolstering his own military options.`\
+https://nytimes.com/2025/06/19/us/politics/trump-buys-time-iran-decision.html
+
 **6 Months After the Pelicot Trial, a Staging Brings Insight and Despair**\
 `The stripped-back performance, based on the rape trial that shocked France and the world, ran all night at a church in Vienna.`\
 https://nytimes.com/2025/06/19/theater/the-pelicot-trial-milo-rau-wiener-festwochen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/world/asia/suchinda-kraprayoon-dead.html
 **Friday Briefing: Trump Appeared to Put Off U.S. Action on Iran**\
 `Plus, why “Jaws” is a model movie.`\
 https://nytimes.com/2025/06/19/briefing/trump-israel-iran-china-hacking-russia.html
-
-**Inter Miami 2 Porto 1: Messi's magical free kick lights up Club World Cup in comeback win**\
-`The Argentinian superstar stepped up when he was needed to seal a crucial victory in Group A`\
-https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-world-cup/
 

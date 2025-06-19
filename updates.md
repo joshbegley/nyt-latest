@@ -1,3 +1,7 @@
+**Trump Buys Himself Time, and Opens Up Some New Options**\
+`While President Trump appears to be offering one more off ramp to the Iranians, he also is bolstering his own military options.`\
+https://nytimes.com/2025/06/19/us/politics/trump-buys-time-iran-decision.html
+
 **6 Months After the Pelicot Trial, a Staging Brings Insight and Despair**\
 `The stripped-back performance, based on the rape trial that shocked France and the world, ran all night at a church in Vienna.`\
 https://nytimes.com/2025/06/19/theater/the-pelicot-trial-milo-rau-wiener-festwochen.html
