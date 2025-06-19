@@ -1,3 +1,7 @@
+**The Pulse: Is there too much soccer?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6435701/2025/06/19/state-of-soccer-club-world-cup-the-pulse/
+
 **Barcelona agree personal terms with Williams**\
 `The Catalans do not view paying Williams' €60m release clause as an issue but face a challenge to register his salary.`\
 https://nytimes.com/athletic/6392668/2025/06/19/nico-williams-transfer-barcelona/

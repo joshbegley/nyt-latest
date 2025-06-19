@@ -1,3 +1,7 @@
+**The Pulse: Is there too much soccer?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6435701/2025/06/19/state-of-soccer-club-world-cup-the-pulse/
+
 **Barcelona agree personal terms with Williams**\
 `The Catalans do not view paying Williams' €60m release clause as an issue but face a challenge to register his salary.`\
 https://nytimes.com/athletic/6392668/2025/06/19/nico-williams-transfer-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436764/2025/06/19/jalen-williams-highlights-thunde
 **MLB All-Quarter Century Team: Breaking down the 40-man roster — plus special selections**\
 `We’ve made our picks for the starters on this team. You’ve made your picks. Now it’s time to announce the whole darned roster. `\
 https://nytimes.com/athletic/6436068/2025/06/19/mlb-all-quarter-century-team-40-man-roster/
-
-**The knuckleball is dying. Can a Tigers prospect firing 88 mph knucklers bring it back?**\
-`There are no true knuckleballers pitching in MLB today as organizations prioritize velocity. Kenny Serwa is aiming to change that.`\
-https://nytimes.com/athletic/6436509/2025/06/19/knuckleball-detroit-tigers-kenny-serwa/
 
