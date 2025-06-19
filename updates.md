@@ -1,3 +1,19 @@
+**Palmer says Maresca does give him creative freedom at Chelsea**\
+`The Englishman's comments after the Conference League final had been interpreted by some as a dig at Maresca's style of play.`\
+https://nytimes.com/athletic/6438372/2025/06/19/cole-palmer-maresca-chelsea/
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/06/19/books/review/new-books-recommendations.html
+
+**Banning Plastic Bags Works to Limit Shoreline Litter, Study Finds**\
+`Using crowdsourced data from shore cleanups, researchers found that areas that enacted plastic bag bans or fees had fewer bags littering their lakes, rivers and beaches than those without them.`\
+https://nytimes.com/2025/06/19/climate/plastic-bag-bans-litter.html
+
+**Wild trade tiers: Besides Marco Rossi, who is most and least likely to be traded this offseason?**\
+`Breaking down the roster from "Don't Even Ask" to "Most Likely to be Traded" entering a summer in which GM Bill Guerin is out to improve.`\
+https://nytimes.com/athletic/6438347/2025/06/19/wild-trade-tiers-offseason/
+
 **City CEO praises Club World Cup: 'It was very much needed'**\
 `"Soccer is a global sport and we have to make it global," Soriano added.`\
 https://nytimes.com/athletic/6438507/2025/06/19/manchester-city-club-world-cup-soriano/

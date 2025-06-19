@@ -1,3 +1,7 @@
+**Whitecaps make offer for Canada, Fulham rising talent Luc De Fougerolles**\
+`Luc De Fougerolles is eyeing first-team minutes to improve his World Cup stock. Might they come in MLS?`\
+https://nytimes.com/athletic/6438228/2025/06/19/luc-de-fougerolles-vancouver-whitecaps-canada-fulham-mls/
+
 **Palmer says Maresca does give him creative freedom at Chelsea**\
 `The Englishman's comments after the Conference League final had been interpreted by some as a dig at Maresca's style of play.`\
 https://nytimes.com/athletic/6438372/2025/06/19/cole-palmer-maresca-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/business/media/tiktok-cannes-shou-chew.html
 **Rockets reach multi-year extension with Ime Udoka: Sources**\
 `Since arriving from Boston prior to the 2023-24 season, Udoka has rapidly reshaped the Rockets' culture.`\
 https://nytimes.com/athletic/6438392/2025/06/19/rockets-ime-udoka-extension/
-
-**Trump gives TikTok’s owner more time to find a buyer for U.S. operations.**\
-`By David McCabe and Sapna Maheshwari`\
-https://nytimes.com/live/2025/06/19/us/trump-news/tiktok-extension-buyer
 
