@@ -1,3 +1,19 @@
+**U.S. Spy Agencies Assess Iran Remains Undecided on Building a Bomb**\
+`U.S. intelligence officials said Iran was likely to pivot toward producing a nuclear weapon if the U.S. attacked a main uranium enrichment site, or if Israel killed its supreme leader.`\
+https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html
+
+**Juneteenth Holiday Goes Uncelebrated at White House**\
+`President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States. Lesser occasions routinely garner official proclamations.`\
+https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
+
+**There's a 'good chance' Frankie Montas joins Mets' rotation next week**\
+`Montas allowed five earned runs in five innings for Triple-A Syracuse on June 18.`\
+https://nytimes.com/athletic/6438974/2025/06/19/ny-mets-frankie-montas-rotation-return/
+
+**Police Investigate Threats to Mamdani in Mayoral Race’s Final Days**\
+`Voice mail messages promising violence against Zohran Mamdani, a progressive Democrat, came as attacks on politicians, judges and other government officials have skyrocketed.`\
+https://nytimes.com/2025/06/19/nyregion/zohran-mamdani-threats-nypd-investigation.html
+
 **Phillies' Nick Castellanos says benching, remark to manager Rob Thomson is behind him**\
 `Defensive concerns prompted Phillies manager Rob Thomson to lift Nick Castellanos against the Marlins on Monday.`\
 https://nytimes.com/athletic/6438982/2025/06/19/philadelphia-phillies-nick-castellanos-benching-comments/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/19/world/middleeast/syria-bank-european-transfer-swi
 **Kim Woodburn, British TV’s No-Nonsense ‘Queen of Clean,’ Dies at 83**\
 `She was a blunt and bossy domestic dominatrix on the series “How Clean Is Your House?” honing a persona as the rudest woman on reality television.`\
 https://nytimes.com/2025/06/19/arts/television/kim-woodburn-dead.html
-
-**The World’s 50 Best Restaurants Announces Its 2025 List**\
-`A Peruvian spot took No. 1, while five U.S. chefs kept places on the list.`\
-https://nytimes.com/2025/06/19/dining/the-worlds-50-best-restaurants-announces-its-2025-list.html
-
-**Boy, 15, Survives Lightning Strike in Central Park, Police Say**\
-`The boy was standing under a tree when lightning hit and an electrical current transferred to a chain necklace he was wearing, a law enforcement official said.`\
-https://nytimes.com/2025/06/19/nyregion/boy-survives-lightning-central-park.html
-
-**Sunderland close to appointing Ghisolfi as director of football**\
-`Sporting director Kristjaan Speakman will remain at newly-promoted Sunderland and will work alongside Ghisolfi, who spent 2024-25 at Roma.`\
-https://nytimes.com/athletic/6438913/2025/06/19/sunderland-director-football-florent-ghisolfi/
-
-**Suchinda Kraprayoon, Thai Leader Who Set Off Bloody Protests, Dies at 91**\
-`A top general, he was appointed prime minister in 1992, a short-lived tenure that immediately incited the Black May uprising — and a violent backlash by his military.`\
-https://nytimes.com/2025/06/19/world/asia/suchinda-kraprayoon-dead.html
 
