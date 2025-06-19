@@ -1,3 +1,7 @@
+**6 Months After the Pelicot Trial, a Staging Brings Insight and Despair**\
+`The stripped-back performance, based on the rape trial that shocked France and the world, ran all night at a church in Vienna.`\
+https://nytimes.com/2025/06/19/theater/the-pelicot-trial-milo-rau-wiener-festwochen.html
+
 **Israel and Iran Continue to Exchange Attacks Into Thursday**\
 `The strikes highlight the risks to civilians in Israel and Iran after days of fighting between the two countries.`\
 https://nytimes.com/video/world/middleeast/100000010239638/iran-israel-conflict-middle-east.html
