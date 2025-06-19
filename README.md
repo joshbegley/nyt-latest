@@ -1,3 +1,11 @@
+**Air India Cuts International Flights After Crash Causes Chaos**\
+`The move came a day after Indian officials told the airline to improve its operations, and as delays and canceled flights are drawing complaints from passengers.`\
+https://nytimes.com/2025/06/19/world/asia/air-india-plane-crash-flights-cuts.html
+
+**'A bit weird' – Weah, McKennie and Juventus' surreal audience with Trump as he weighs Iran war**\
+`What happened during a 16-minute press briefing as Juventus players and staff listened behind Trump in the Oval Office`\
+https://nytimes.com/athletic/6436693/2025/06/19/weah-juventus-trump-iran-war/
+
 **The Progressive Regulator With Trumpist Fans**\
 `Lina Khan wants to overthrow “the autocrats of trade.”`\
 https://nytimes.com/2025/06/19/opinion/lina-khan-monopolies-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/world/europe/florence-crane-uffizi-gallery.html
 **America Can’t Bomb Iran Out of Making a Nuclear Weapon**\
 `Trump should judge the efficacy of any military action in Iran by the same standards against which he previously assessed diplomacy.`\
 https://nytimes.com/2025/06/19/opinion/america-iran-war-nuclear.html
-
-**Famous for Basketball and Now the Setting for an Opera**\
-`“Bounce: A Basketball Opera” will be staged at Holcombe Rucker Park, where Kareem Abdul-Jabbar and Julius Erving have played.`\
-https://nytimes.com/2025/06/19/nyregion/basketball-opera-holcombe-rucker-park.html
-
-**A Couple Figured They Couldn’t Afford Upper Manhattan. They Just Had to Look in the Right Places.**\
-`Two longtime renters searched in Harlem, Hamilton Heights and Washington Heights for a sunny two-bedroom with space to host friends. Here’s what they found.`\
-https://nytimes.com/interactive/2025/06/19/realestate/upper-manhattan-condo-homes-sale.html
 
