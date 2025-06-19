@@ -1,3 +1,15 @@
+**The Windup: The knuckleball's return?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6437103/2025/06/19/knuckleball-aaron-judge-slump-the-windup/
+
+**Stars re-sign Matt Duchene, locking up top scorer at bargain $4.5 million cap hit**\
+`Duchene, 34, scored 82 points in 82 games in 2024-25. It's a low cost for that type of production but still leaves Dallas in a cap crunch.`\
+https://nytimes.com/athletic/6438288/2025/06/19/stars-matt-duchene-contract-bargain/
+
+**‘Churchyard’ and ‘Tablet’ Review: Irreverence and Resurrection**\
+`At the Joyce Theater through Sunday, the Paul Taylor Dance Company revives two half-lost works from the 1960s, traversing matters both sacred and profane.`\
+https://nytimes.com/2025/06/19/arts/dance/paul-taylor-joyce-review.html
+
 **Cuesta appointed Parma head coach after Arsenal exit**\
 `The Arsenal coach will take on his first senior head coach role at the Serie A club.`\
 https://nytimes.com/athletic/6402245/2025/06/19/arsenal-coach-carlos-cuesta-parma-manager/

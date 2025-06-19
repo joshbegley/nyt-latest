@@ -1,3 +1,11 @@
+**ICE Imposes New Rules on Congressional Visits**\
+`The policy specifies that ICE field offices are not subject to an existing law that allows members of Congress to make unannounced oversight visits to immigration facilities that “detain or otherwise house aliens.”`\
+https://nytimes.com/2025/06/19/us/politics/ice-congress.html
+
+**‘Little Lobbyists’ Urge Senators to Oppose Trump’s Bill Cutting Medicaid**\
+`Children with disabilities and their parents who rely on the health insurance program took to Capitol Hill this week to warn that the proposed reductions could be ‘devastating.’`\
+https://nytimes.com/2025/06/19/us/little-lobbyists-urge-senators-to-oppose-trumps-bill-cutting-medicaid.html
+
 **The Windup: The knuckleball's return?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6437103/2025/06/19/knuckleball-aaron-judge-slump-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/science/space/edward-anders-dead.html
 **Club World Cup odds: PSG favoured to win after Real Madrid draw in opener**\
 `Every team in the Club World Cup has played once. The odds haven't moved much since the start of the tournament, with European teams up top.`\
 https://nytimes.com/athletic/6438011/2025/06/19/club-world-cup-odds-psg-real-madrid/
-
-**All-Pro linebacker C.J. Mosley retires from NFL**\
-`The Jets cut Mosley this offseason after injuries last season limited him to just four games.`\
-https://nytimes.com/athletic/6437976/2025/06/19/cj-mosley-retirement-jets-ravens/
-
-**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
-`Has watching sports on TV gotten too expensive? Why did the Stanley Cup Final struggle with viewership? Ask our expert your media questions.`\
-https://nytimes.com/athletic/6438142/2025/06/19/richard-deitsch-sports-media-mailbag-june-2025/
 
