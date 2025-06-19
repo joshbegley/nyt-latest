@@ -1,40 +1,40 @@
-**'Crazy' to question USMNT forward Pulisic's love for football says Weah**\
-`His decision provoked criticism, but Pulisic told a CBS podcast earlier this month that he was doing “what I felt was best for my body.”`\
-https://nytimes.com/athletic/6437148/2025/06/19/usmnt-pulisic-gold-cup-weah/
+**The Progressive Regulator With Trumpist Fans**\
+`Lina Khan wants to overthrow “the autocrats of trade.”`\
+https://nytimes.com/2025/06/19/opinion/lina-khan-monopolies-trump.html
 
-**Here’s the latest.**\
-`By Adam Rasgon, Ephrat Livni and David E. Sanger`\
-https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/heres-the-latest
+**The Problem of the Christian Assassin**\
+`What would make you put down your Bible and pick up your gun?`\
+https://nytimes.com/2025/06/19/opinion/minnesota-killings-boelter.html
 
-**Live Updates: Israel Says Iranian Missile Strikes Hospital and Vows to Intensify Attacks**\
-`Iran struck the largest hospital in southern Israel, Israel’s military said. The hospital said it was treating several patients with mild injuries. Israel’s prime minister ordered a fierce response, the defense minister said.`\
-https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news
+**Court Leaves States to Decide on Trans Treatments for Minors**\
+`The Supreme Court decision upholding a Tennessee ban on gender transition care for trans youths means a state-by-state patchwork of policies will remain.`\
+https://nytimes.com/2025/06/19/us/court-leaves-states-to-decide-on-trans-treatments-for-minors.html
 
-**Funeral Held for Loved One Lost in Air India Crash**\
-`A cremation ceremony was held for Kinal Mistry, a victim of the Air India crash who hailed from a community that took pride in those who went abroad. Her family said she was someone who would “fulfill everyone’s dreams.”`\
-https://nytimes.com/video/world/asia/100000010233562/air-india-crash-funeral.html
+**‘The Waterfront’ Brings More Murder to Netflix**\
+`Created by Kevin Williamson, this new drama set in North Carolina is a pulpy family saga of violence and secrets, land and legacy.`\
+https://nytimes.com/2025/06/19/arts/television/the-waterfront-review.html
 
-**SpaceX Starship Rocket Explodes Before Test**\
-`The Starship experienced a “major anomaly” before starting its 10th flight test. Elon Musk’s giant moon and Mars rocket has a mixed record of success.`\
-https://nytimes.com/2025/06/19/us/spacex-rocket-explosion-texas.html
+**On the French Riviera, a Secret Resort Worth Looking For**\
+`Plus: embroidered bedding, a woodworking exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2025/06/19/t-magazine/french-riviera-resort-hotel.html
 
-**SpaceX Starship Explodes Before Test Flight**\
-`SpaceX said the Starship rocket experienced a “major anomaly” during preparations for its 10th flight test at Starbase, Texas.`\
-https://nytimes.com/video/science/space/100000010238523/spacex-starship-explosion.html
+**Senator Padilla: The Trump Administration Handcuffed Me, but I Refuse to Stay Silent**\
+`If this is how the administration treats a senator on camera, imagine what it could do to you.`\
+https://nytimes.com/2025/06/19/opinion/alex-padilla-removal-trump.html
 
-**Iranian Missile Hits Hospital in Southern Israel**\
-`The strike highlighted the risks to civilians in Israel and Iran after days of fighting between the two nations.`\
-https://nytimes.com/2025/06/19/world/middleeast/iran-missile-israel-hospital.html
+**Get Your Camera Out: The Crane That Ruined Florence’s Skyline Is Gone**\
+`A reviled crane used during the expansion of the Uffizi Galleries was taken down this week after years of protests.`\
+https://nytimes.com/2025/06/19/world/europe/florence-crane-uffizi-gallery.html
 
-**Hurricane Erick Expected to Make Landfall in Mexico as a Category 4 Storm**\
-`Erick set off flash floods in the states of Oaxaca and Guerrero. A stretch of the Pacific coastline, including Acapulco, was under a hurricane warning.`\
-https://nytimes.com/2025/06/19/world/americas/hurricane-erick-mexico-landfall.html
+**America Can’t Bomb Iran Out of Making a Nuclear Weapon**\
+`Trump should judge the efficacy of any military action in Iran by the same standards against which he previously assessed diplomacy.`\
+https://nytimes.com/2025/06/19/opinion/america-iran-war-nuclear.html
 
-**Seth Meyers Wishes Tucker Carlson and Ted Cruz Could Both Lose**\
-`The clash of conservative titans had Meyers feeling like a Roman emperor: “I just want someone to feed me grapes while I say, ‘Let them fight.’”`\
-https://nytimes.com/2025/06/19/arts/television/seth-meyers-tucker-carlson-ted-cruz.html
+**Famous for Basketball and Now the Setting for an Opera**\
+`“Bounce: A Basketball Opera” will be staged at Holcombe Rucker Park, where Kareem Abdul-Jabbar and Julius Erving have played.`\
+https://nytimes.com/2025/06/19/nyregion/basketball-opera-holcombe-rucker-park.html
 
-**Mamdani’s Comment on ‘Intifada’ Motto Fuels Tension in Mayor’s Race**\
-`Andrew Cuomo, a leading candidate for mayor, criticized Zohran Mamdani’s discussion of the phrase “globalize the intifada,” and Mr. Mamdani accused him of neglecting Muslim New Yorkers.`\
-https://nytimes.com/2025/06/19/nyregion/mamdani-globalize-intifada.html
+**A Couple Figured They Couldn’t Afford Upper Manhattan. They Just Had to Look in the Right Places.**\
+`Two longtime renters searched in Harlem, Hamilton Heights and Washington Heights for a sunny two-bedroom with space to host friends. Here’s what they found.`\
+https://nytimes.com/interactive/2025/06/19/realestate/upper-manhattan-condo-homes-sale.html
 
