@@ -1,3 +1,15 @@
+**Three Restaurants Where Grandma Is (Almost) Always Cooking**\
+`Your grandmother’s cooking doesn’t stand a chance against La Morada, Fried Dumpling and Nonna Dora’s.`\
+https://nytimes.com/2025/06/19/dining/three-restaurants-where-grandma-is-almost-always-cooking.html
+
+**‘America’s Sweethearts’ Is a Compelling Sports Series**\
+`Season 2 of this docuseries about the Dallas Cowboys cheerleaders is an intense look at found families and all the healing and trouble that come with them.`\
+https://nytimes.com/2025/06/19/arts/television/americas-sweethearts-dallas-cowboys-cheerleaders-netflix.html
+
+**What I'm hearing about the Canucks' positioning ahead of draft, free agency**\
+`Vancouver's path to improvement this summer won't be straightforward, and contingency plans may be needed.`\
+https://nytimes.com/athletic/6438493/2025/06/19/canucks-nhl-draft-free-agency-trade-2025/
+
 **Israel struck an inactive Iranian nuclear site.**\
 `By Bora Erden`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israel-struck-an-inactive-iranian-nuclear-site
