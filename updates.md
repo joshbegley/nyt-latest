@@ -1,3 +1,7 @@
+**Israel struck an inactive Iranian nuclear site.**\
+`By Bora Erden`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-struck-an-inactive-iranian-nuclear-site.html
+
 **Three Restaurants Where Grandma Is (Almost) Always Cooking**\
 `Your grandmother’s cooking doesn’t stand a chance against La Morada, Fried Dumpling and Nonna Dora’s.`\
 https://nytimes.com/2025/06/19/dining/three-restaurants-where-grandma-is-almost-always-cooking.html
