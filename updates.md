@@ -1,3 +1,19 @@
+**‘There Was a Massive Boom’: Doctor Recounts Iranian Strike on Hospital**\
+`An Iranian missile hit a building at the Soroka Medical Center, a major hospital complex in southern Israel. The hospital said it was treating several patients with minor injuries.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-soroka-hospital-hit-iranian-strike.html
+
+**European and Iranian officials will hold talks on Friday in Geneva.**\
+`By Jim Tankersley, Jeanna Smialek and Leily Nikounazar`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/european-and-iranian-officials-will-hold-talks-on-friday-in-geneva
+
+**City set to sign Villa prospect Lawrie**\
+`The England youth international's terms at Villa expire this summer, with City set to pay compensation to sign him.`\
+https://nytimes.com/athletic/6437409/2025/06/19/freddie-lawrie-manchester-city-villa/
+
+**With Jaire Alexander in the secondary, Ravens can imagine the 'endless' possibilities**\
+`Alexander, a two-time Pro Bowler, joins a group that includes Marlon Humphrey, Nate Wiggins, Kyle Hamilton and first-rounder Malaki Starks. `\
+https://nytimes.com/athletic/6436996/2025/06/19/jaire-alexander-ravens-secondary/
+
 **This Chinese Park Inspired ‘Avatar.’ Videos Show It Also Drew Piles of Trash.**\
 `Officials ordered a huge cleanup effort after videos of the mountains of garbage spread widely online.`\
 https://nytimes.com/2025/06/19/world/asia/china-caves-trash-avatar.html
