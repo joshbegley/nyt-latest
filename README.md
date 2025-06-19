@@ -1,3 +1,7 @@
+**Alonso's first Real Madrid game analysed: Alexander-Arnold's debut but no Mbappe**\
+`A new era is under way for the Madrid club and there was plenty we could learn as they began their Club World Cup campaign`\
+https://nytimes.com/athletic/6436847/2025/06/19/xabi-alonso-real-madrid-al-hilal/
+
 **Word of the Day: taciturn**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436944/2025/06/19/los-angeles-dodgers-immigrant-as
 **Scenes From a Vigil for Victims of the Minnesota Shooting**\
 `Text by Ernesto Londoño and Jenn Ackerman`\
 https://nytimes.com/card/2025/06/19/us/minnesota-shooting-hortman-vigil
-
-**César Montes powers Mexico past Suriname to make Gold Cup knockout stage**\
-`Though El Tri is already in the quarterfinals, it'll look to top the group with a win over Costa Rica in the final group-stage match Sunday.`\
-https://nytimes.com/athletic/6436869/2025/06/19/mexico-suriname-gold-cup-results-analysis/
 
