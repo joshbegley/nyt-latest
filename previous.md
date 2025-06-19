@@ -1,3 +1,7 @@
+**Bear Whose Head Was Stuck for Two Years Is Freed**\
+`An unwelcome plastic collar was removed from around the neck of a 2-year-old bear.`\
+https://nytimes.com/2025/06/19/us/bear-lid-neck-freed-michigan.html
+
 **Why Israelis Fear the Prospect of a Nuclear-Armed Iran**\
 `Much of the world views Iran’s nuclear program with alarm, and experts say its stockpile of highly enriched uranium has grown fast.`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-nuclear-iran-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/climate/plastic-bag-bans-litter.html
 **Wild trade tiers: Besides Marco Rossi, who is most and least likely to be traded this offseason?**\
 `Breaking down the roster from "Don't Even Ask" to "Most Likely to be Traded" entering a summer in which GM Bill Guerin is out to improve.`\
 https://nytimes.com/athletic/6438347/2025/06/19/wild-trade-tiers-offseason/
-
-**City CEO praises Club World Cup: 'It was very much needed'**\
-`"Soccer is a global sport and we have to make it global," Soriano added.`\
-https://nytimes.com/athletic/6438507/2025/06/19/manchester-city-club-world-cup-soriano/
 

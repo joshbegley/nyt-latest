@@ -1,3 +1,7 @@
+**Bear Whose Head Was Stuck for Two Years Is Freed**\
+`An unwelcome plastic collar was removed from around the neck of a 2-year-old bear.`\
+https://nytimes.com/2025/06/19/us/bear-lid-neck-freed-michigan.html
+
 **Why Israelis Fear the Prospect of a Nuclear-Armed Iran**\
 `Much of the world views Iran’s nuclear program with alarm, and experts say its stockpile of highly enriched uranium has grown fast.`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-nuclear-iran-threat.html
