@@ -1,3 +1,15 @@
+**Bank Transfer Signals Syria Is Making Strides in Ending Economic Isolation**\
+`The bank-to-bank transfer using the SWIFT system was symbolically important, indicating the war-torn country was reintegrating into the global financial community.`\
+https://nytimes.com/2025/06/19/world/middleeast/syria-bank-european-transfer-swift.html
+
+**Kim Woodburn, British TV’s No-Nonsense ‘Queen of Clean,’ Dies at 83**\
+`She was a blunt and bossy domestic dominatrix on the series “How Clean Is Your House?” honing a persona as the rudest woman on reality television.`\
+https://nytimes.com/2025/06/19/arts/television/kim-woodburn-dead.html
+
+**The World’s 50 Best Restaurants Announces Its 2025 List**\
+`A Peruvian spot took No. 1, while five U.S. chefs kept places on the list.`\
+https://nytimes.com/2025/06/19/dining/the-worlds-50-best-restaurants-announces-its-2025-list.html
+
 **Boy, 15, Survives Lightning Strike in Central Park, Police Say**\
 `The boy was standing under a tree when lightning hit and an electrical current transferred to a chain necklace he was wearing, a law enforcement official said.`\
 https://nytimes.com/2025/06/19/nyregion/boy-survives-lightning-central-park.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minic
 **Dodgers say they denied federal immigration officials access to stadium lots**\
 `The Dodgers, who are set to host the San Diego Padres on Thursday night, said the game will be played as scheduled.`\
 https://nytimes.com/athletic/6438709/2025/06/19/dodgers-stadium-los-angeles-ice-immigration-raids/
-
-**For Trump, ‘Two Weeks’ Is the Magic Number**\
-`“Two weeks” is one of President Trump’s favorite units of time. It can mean something, or nothing at all.`\
-https://nytimes.com/2025/06/19/world/middleeast/trump-iran-two-weeks.html
-
-**Iranian Missile Hits Israeli Hospital as Trump Appears to Put Off U.S. Action**\
-`President Trump said he would decide within two weeks whether the United States would intervene militarily in the war against Iran, according to the White House press secretary.`\
-https://nytimes.com/2025/06/19/world/middleeast/israel-hospital-iran-trump.html
-
-**Hurricane Erick Makes Landfall In Mexico**\
-`On Thursday morning, Hurricane Erick hit Mexico’s southern coastline as a Category 3 storm, damaging businesses and homes.`\
-https://nytimes.com/video/world/americas/100000010239239/hurricane-erick-mexico.html
 
