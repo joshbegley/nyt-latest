@@ -1,3 +1,23 @@
+**A Legal Gamble**\
+`We explain the Supreme Court’s ruling on medical treatments for transgender kids.`\
+https://nytimes.com/2025/06/19/briefing/a-legal-gamble.html
+
+**Student Who Filmed Himself Raping at Least 10 Women to Be Sentenced in London**\
+`Zou Zhenhao, 28, is considered by the police in the British capital to be “one of the most prolific predators” they have encountered. Investigators say there are probably many more victims.`\
+https://nytimes.com/2025/06/19/world/europe/chinese-student-rapist-uk.html
+
+**Smoke Billows From Israeli Hospital After Iranian Missile Strike**\
+`Smoke billowed from the Soroka Medical Center after its old surgical building was directly hit, according to the hospital’s director general.`\
+https://nytimes.com/video/world/middleeast/100000010238579/smoke-billows-from-israeli-hospital-after-iranian-missile-strike.html
+
+**Tehran residents describe the turmoil of living in a city under attack.**\
+`By Leily Nikounazar`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/tehran-residents-describe-the-turmoil-of-living-in-a-city-under-attack
+
+**This Oregon Native Went to Kyiv as a Volunteer. He Died in a Russian Attack.**\
+`Fred Grandy was upset by the United States’ reversal in its support for Ukraine, his family said. This week, he was among the 28 people killed in a drone and missile assault.`\
+https://nytimes.com/2025/06/19/world/europe/ukraine-russia-war-american-fred-grandy.html
+
 **The Pulse: Is there too much soccer?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6435701/2025/06/19/state-of-soccer-club-world-cup-the-pulse/
