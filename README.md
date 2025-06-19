@@ -1,40 +1,40 @@
-**‘There Was a Massive Boom’: Doctor Recounts Iranian Strike on Hospital**\
-`An Iranian missile hit a building at the Soroka Medical Center, a major hospital complex in southern Israel. The hospital said it was treating several patients with minor injuries.`\
-https://nytimes.com/2025/06/19/world/middleeast/israel-soroka-hospital-hit-iranian-strike.html
+**Cowboys mailbag: Optimism about Dak Prescott? Trevon Diggs' future? Summer standouts?**\
+`With CeeDee Lamb and George Pickens, does Dak Prescott have the best receiving duo of his career?`\
+https://nytimes.com/athletic/6435637/2025/06/19/cowboys-dak-prescott-trevon-diggs-mailbag/
 
-**European and Iranian officials will hold talks on Friday in Geneva.**\
-`By Jim Tankersley, Jeanna Smialek and Leily Nikounazar`\
-https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/european-and-iranian-officials-will-hold-talks-on-friday-in-geneva
+**Flyers GM Daniel Briere keeps mentioning the 'plan.' What exactly is it?**\
+`It's fair to wonder what exactly the plan is now, after the Flyers have reached what Briere hopes is rock bottom.`\
+https://nytimes.com/athletic/6435912/2025/06/19/flyers-daniel-briere-nhl-draft-picks/
 
-**City set to sign Villa prospect Lawrie**\
-`The England youth international's terms at Villa expire this summer, with City set to pay compensation to sign him.`\
-https://nytimes.com/athletic/6437409/2025/06/19/freddie-lawrie-manchester-city-villa/
+**Trump Administration Live Updates: U.S. to Examine Social Media Posts of Student Visa Applicants**\
+``\
+https://nytimes.com/live/2025/06/19/us/trump-news
 
-**With Jaire Alexander in the secondary, Ravens can imagine the 'endless' possibilities**\
-`Alexander, a two-time Pro Bowler, joins a group that includes Marlon Humphrey, Nate Wiggins, Kyle Hamilton and first-rounder Malaki Starks. `\
-https://nytimes.com/athletic/6436996/2025/06/19/jaire-alexander-ravens-secondary/
+**Pete Crow-Armstrong's offensive breakout overshadowing special defensive season**\
+`“He’s playing at as high a level as I’ve seen a center fielder play,” Cubs manager Craig Counsell said of Crow-Armstrong.`\
+https://nytimes.com/athletic/6436591/2025/06/19/cubs-pete-crow-armstrong-offense-defense/
 
-**This Chinese Park Inspired ‘Avatar.’ Videos Show It Also Drew Piles of Trash.**\
-`Officials ordered a huge cleanup effort after videos of the mountains of garbage spread widely online.`\
-https://nytimes.com/2025/06/19/world/asia/china-caves-trash-avatar.html
+**Why MarShawn Lloyd can be Packers' X-factor RB after injury-plagued rookie season**\
+`Injuries limited Lloyd to playing only one game as a rookie, but the Packers have high hopes for the 2024 third-round pick.`\
+https://nytimes.com/athletic/6435152/2025/06/19/marshawn-lloyd-packers-running-back/
 
-**The Athletic FC: The great showboating debate, Juventus meet Donald Trump and Mudryk's doping charge**\
-`Today in TAFC: Exploring the rights and wrongs of showboating, Juventus visit the White House and Chelsea winger faces FA doping charge`\
-https://nytimes.com/athletic/6437346/2025/06/19/showboating-juventus-donald-trump-mudryk-doping-charge/
+**Canucks offseason primer: Cap space, trade chips, UFA targets and more**\
+`This is a critical offseason for a Canucks team coming off a disappointing 2024-25 season.`\
+https://nytimes.com/athletic/6422949/2025/06/19/canucks-trade-cap-ufa-targets-primer-2025/
 
-**A history of the award for biggest NHL playoff loser (which does not exist but should)**\
-`Crack open the vault and dust off the O’Brien Trophy, because it’s our new award for each postseason’s biggest loser.`\
-https://nytimes.com/athletic/6432408/2025/06/19/nhl-playoffs-biggest-loser/
+**Why the Giants had to trade Kyle Harrison for Rafael Devers**\
+`If there's safety in hoarding prospects, there's safety in the right trade, too.`\
+https://nytimes.com/athletic/6435564/2025/06/19/why-giants-traded-kyle-harrison-rafael-devers/
 
-**Why the Thunder haven't let market size stunt their potential**\
-`The Thunder have one of the largest front offices in the NBA and are among the league's biggest spenders on a basketball operations staff.`\
-https://nytimes.com/athletic/6425350/2025/06/19/thunder-nba-finals-small-market/
+**Could Nik Bonitto have a new contract on the horizon? Broncos mailbag**\
+`Plus, breakout candidates to watch on both sides of the ball, progress report on rookie WR Pat Bryant, what to expect from RBs and more.`\
+https://nytimes.com/athletic/6435022/2025/06/19/broncos-nik-bonitto-jk-dobbins-rj-harvey/
 
-**Breaking down Jason Robertson: What he does, what he's worth, and should Stars trade him?**\
-`Dallas might feel pressure to make a change after another early playoff exit, but should it be moving one of the team's leading forwards?`\
-https://nytimes.com/athletic/6436094/2025/06/19/stars-jason-robertson-trade-nhl/
+**Jets at 2025 NHL Draft: Evaluating 12 options for Winnipeg with pick No. 28**\
+`Who is likely to be available when the Jets pick at No. 28? Who should Winnipeg choose? We analyze 12 options.`\
+https://nytimes.com/athletic/6429742/2025/06/19/winnipeg-jets-2025-nhl-draft-options/
 
-**Coaches, executives, scouts on Cooper Flagg, top wing prospects: 2025 NBA Draft Confidential**\
-`From Maine to Montverde Academy to Duke, Flagg has been building step by step to do exactly this: be the first pick in next week's draft.`\
-https://nytimes.com/athletic/6430848/2025/06/19/nba-draft-confidential-wings-2025/
+**Blackhawks offseason primer: What to expect from draft, free agency, buyouts**\
+`With the NHL offseason officially underway, here's what Blackhawks fans can expect to see over the next few weeks.`\
+https://nytimes.com/athletic/6436360/2025/06/19/blackhawks-offseason-primer-draft-free-agency-buyouts/
 
