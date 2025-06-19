@@ -1,3 +1,7 @@
+**Israel struck an inactive Iranian nuclear site.**\
+`By Bora Erden`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israel-struck-an-inactive-iranian-nuclear-site
+
 **In Singapore, Grandmothers Dive Into Aging With a Splash**\
 `To tell the story of a demographic shift in Southeast Asia, one reporter visited a swimming complex where women in their 60s, 70s and 80s get competitive in the pool.`\
 https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
