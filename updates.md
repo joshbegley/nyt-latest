@@ -1,3 +1,7 @@
+**Netanyahu says Israel doesn’t need help to reach its goals in Iran.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/netanyahu-says-israel-doesnt-need-help-to-reach-its-goals-in-iran
+
 **They Followed a Truck for 300 Miles. Then They Stole $100 Million in Jewelry.**\
 `Seven men have been indicted in the July 2022 theft at a rest stop north of Los Angeles, which federal prosecutors believe was the largest jewelry heist in United States history.`\
 https://nytimes.com/2025/06/19/us/jewelry-heist-brinks-truck-california-indictment.html
