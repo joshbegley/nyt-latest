@@ -1,3 +1,7 @@
+**Hurricane Erick Expected to Make Landfall in Mexico as a Category 4 Storm**\
+`Erick set off flash floods in the states of Oaxaca and Guerrero. A stretch of the Pacific coastline, including Acapulco, was under a hurricane warning.`\
+https://nytimes.com/2025/06/19/world/americas/hurricane-erick-mexico-landfall.html
+
 **Seth Meyers Wishes Tucker Carlson and Ted Cruz Could Both Lose**\
 `The clash of conservative titans had Meyers feeling like a Roman emperor: “I just want someone to feed me grapes while I say, ‘Let them fight.’”`\
 https://nytimes.com/2025/06/19/arts/television/seth-meyers-tucker-carlson-ted-cruz.html
