@@ -1,3 +1,7 @@
+**Al-Hilal have riches on and off the field - and an outside shot at the Club World Cup**\
+`People seem to have slept on a PIF team in a PIF-backed tournament having a shot, an outside shot but a shot nonetheless`\
+https://nytimes.com/athletic/6436538/2025/06/18/al-hilal-club-world-cup/
+
 **Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
 `President Trump is pondering swift military action in Iran. There were similar expectations that the war in Iraq would be quick and triumphant.`\
 https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html

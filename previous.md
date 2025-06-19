@@ -1,3 +1,7 @@
+**Al-Hilal have riches on and off the field - and an outside shot at the Club World Cup**\
+`People seem to have slept on a PIF team in a PIF-backed tournament having a shot, an outside shot but a shot nonetheless`\
+https://nytimes.com/athletic/6436538/2025/06/18/al-hilal-club-world-cup/
+
 **CFP leadership says there's no leading contender for Playoff format in 2026**\
 `"The format could be a lot different in '26 or it may be the same," the CFP executive director said.`\
 https://nytimes.com/athletic/6436485/2025/06/18/college-football-playoff-schedule-strength-selection-meetings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/trump-israel-iran-transgender.html
 **If the U.S. joins Israeli attacks, Iran will retaliate ‘wherever we find the targets,’ an official says.**\
 `By Liam Stack`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/if-the-us-joins-israeli-attacks-iran-will-retaliate-wherever-we-find-the-targets-an-official-says
-
-**Shedeur Sanders issued citation for driving over 100 mph**\
-`Sanders was pulled over Tuesday morning, police records show`\
-https://nytimes.com/athletic/6436229/2025/06/18/shedeur-sanders-citation-driving-speed-limit/
 
