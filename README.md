@@ -1,3 +1,11 @@
+**An Iran Strategy for Trump**\
+`First, destroy Fordo. Then make the mullahs an offer they can’t refuse.`\
+https://nytimes.com/2025/06/18/opinion/iran-trump-fordo.html
+
+**Padres' Michael King (nerve issue) to remain out through All-Star break**\
+`The headliner of San Diego’s return in its trade of star outfielder Juan Soto, King logged 173 2/3 innings and a 2.95 ERA last season.`\
+https://nytimes.com/athletic/6436742/2025/06/18/padres-michael-king-health-update/
+
 **Inter Miami's Busquets disappointed with MLS roster rules, financial limitations**\
 `Miami coach Javier Mascherano and midfielder Federico Redondo also called for modifications of the competition calendar and roster rules.`\
 https://nytimes.com/athletic/6436575/2025/06/18/sergio-busquets-mls-rules-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
 **For Tennessee’s Transgender Families, the Court Ruling Was Bitter, but Expected**\
 `The state has been a leader in the rollback of L.G.B.T.Q. rights.`\
 https://nytimes.com/2025/06/18/us/politics/tennessee-transgender-care-supreme-court.html
-
-**My Daughter Was at the Center of the Supreme Court Case on Trans Care. Our Hearts Are Broken.**\
-`As parents, we know better than state officials what our child needs.`\
-https://nytimes.com/2025/06/18/opinion/supreme-court-trans-care.html
-
-**U.S. to Review Social Media Posts of Student and Scholar Visa Applicants**\
-`The State Department is restarting the processing of visa applications from students and visiting scholars, but is screening for  “hostility” toward the United States.`\
-https://nytimes.com/2025/06/18/us/politics/student-visa-applications.html
 
