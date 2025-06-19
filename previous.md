@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-vote
 `U.S. intelligence officials said Iran was likely to pivot toward producing a nuclear weapon if the U.S. attacked a main uranium enrichment site, or if Israel killed its supreme leader.`\
 https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html
 
-**Juneteenth Holiday Goes Uncelebrated at White House**\
-`President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States. Lesser occasions routinely garner official proclamations.`\
+**Juneteenth Goes Uncelebrated at White House as Trump Complains About ‘Too Many’ Holidays**\
+`President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States, other than saying there were too many like it. Lesser occasions routinely garner official proclamations.`\
 https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
 
 **There's a 'good chance' Frankie Montas joins Mets' rotation next week**\

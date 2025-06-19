@@ -1,3 +1,7 @@
+**Juneteenth Goes Uncelebrated at White House as Trump Complains About ‘Too Many’ Holidays**\
+`President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States, other than saying there were too many like it. Lesser occasions routinely garner official proclamations.`\
+https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
+
 **Israel’s Military Says Iran Struck Israel With Missile Armed With Cluster Munitions**\
 `Israel’s military accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts said evidence offered support for the claim.`\
 https://nytimes.com/2025/06/19/world/middleeast/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions.html
