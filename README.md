@@ -1,3 +1,11 @@
+**'Failure is part of the sport': Carlos Correa works to adjust swing amid June struggles**\
+`The Minnesota Twins shortstop continues to appreciate the process of figuring it out.`\
+https://nytimes.com/athletic/6436640/2025/06/18/twins-carlos-correa-swing-struggles/
+
+**An Instruction for Answering**\
+`Hannah Slovut-Einertson wants us to change.`\
+https://nytimes.com/2025/06/18/crosswords/daily-puzzle-2025-06-19.html
+
 **A hacking group steals at least $90 million from Iranian crypto exchange in cyberattack.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/a-hacking-group-steals-at-least-90-million-from-iranian-crypto-exchange-in-cyberattack
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436538/2025/06/18/al-hilal-club-world-cup/
 **CFP leadership says there's no leading contender for Playoff format in 2026**\
 `"The format could be a lot different in '26 or it may be the same," the CFP executive director said.`\
 https://nytimes.com/athletic/6436485/2025/06/18/college-football-playoff-schedule-strength-selection-meetings/
-
-**Lionel Messi 'fine' and fit to play for Inter Miami against Porto in Club World Cup**\
-`Inter Miami coach Javier Mascherano says Lionel Messi is &#8220;fine&#8221; and available to play Porto on Thursday in the MLS side&#8217;s second Club World Cup game.`\
-https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
-
-**Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
-`President Trump is pondering swift military action in Iran. There were similar expectations that the war in Iraq would be quick and triumphant.`\
-https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
 

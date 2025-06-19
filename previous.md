@@ -1,3 +1,7 @@
+**A hacking group steals at least $90 million from Iranian crypto exchange in cyberattack.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/a-hacking-group-steals-at-least-90-million-from-iranian-crypto-exchange-in-cyberattack
+
 **An Iran Strategy for Trump**\
 `First, destroy Fordo. Then make the mullahs an offer they can’t refuse.`\
 https://nytimes.com/2025/06/18/opinion/iran-trump-fordo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
 **Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
 `President Trump is pondering swift military action in Iran. There were similar expectations that the war in Iraq would be quick and triumphant.`\
 https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
-
-**For Tennessee’s Transgender Families, the Court Ruling Was Bitter, but Expected**\
-`The state has been a leader in the rollback of L.G.B.T.Q. rights.`\
-https://nytimes.com/2025/06/18/us/politics/tennessee-transgender-care-supreme-court.html
 

@@ -1,3 +1,7 @@
+**A hacking group steals at least $90 million from Iranian crypto exchange in cyberattack.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/06/18/world/israel-iran-trump/a-hacking-group-steals-at-least-90-million-from-iranian-crypto-exchange-in-cyberattack
+
 **An Iran Strategy for Trump**\
 `First, destroy Fordo. Then make the mullahs an offer they can’t refuse.`\
 https://nytimes.com/2025/06/18/opinion/iran-trump-fordo.html
