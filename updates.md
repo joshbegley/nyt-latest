@@ -1,3 +1,19 @@
+**Club World Cup daily rankings: Don't sleep on teams beyond Europe**\
+`Rankings each of the 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/19/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
+**The New York Times in Print for Thursday, June 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/19/todays-new-york-times
+
+**A Progressive Future Depends on National Identity**\
+`Tough border policies aren’t just good politics. They’re progressive, as Britain’s Labour Party shows.`\
+https://nytimes.com/2025/06/19/opinion/border-policy-immigration-labour-party.html
+
+**NATO Is Doing Just Fine, Thank You**\
+`Those who are declaring the NATO alliance dead should put aside their fatalism. They involve military spending, Ukraine and U.S. troops.`\
+https://nytimes.com/2025/06/19/opinion/nato-summit-trump-russia-ukraine.html
+
 **Concacaf investigates Canada manager Marsch for alleged Gold Cup actions**\
 `Marsch is alleged to have "used offensive language toward Concacaf match officials" despite being suspended for Canada's rout of Honduras`\
 https://nytimes.com/athletic/6436980/2025/06/19/concacaf-investigates-canada-manager-marsch-for-alleged-gold-cup-actions/
