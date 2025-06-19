@@ -1,3 +1,7 @@
+**Quote of the Day: Her Best Sellers Are Only Icing On the Cupcake**\
+`Quotation of the Day for Thursday, June 19, 2025`\
+https://nytimes.com/2025/06/18/pageoneplus/quote-of-the-day-her-best-sellers-are-only-icing-on-the-cupcake.html
+
 **LSU to meet Coastal Carolina in CWS final after Tigers' walk-off win**\
 `No. 6 LSU won 6-5 in walk-off fashion with three runs in the bottom of the ninth — all with two outs — against No. 3 Arkansas.`\
 https://nytimes.com/athletic/6436855/2025/06/18/lsu-coastal-carolina-college-world-series-finals-set/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436575/2025/06/18/sergio-busquets-mls-rules-commen
 **Club World Cup clash has long mid-game delay due to extreme Cincy weather**\
 `Pachuca and Salzburg had their match-up interrupted by the extreme elements.`\
 https://nytimes.com/athletic/6436662/2025/06/18/club-world-cup-weather-delay-salzburg-pachuca/
-
-**'We have to see the results': Mets waiting on Francisco Alvarez and his swing change**\
-`The Mets have lost four straight entering Wednesday, and Alvarez’s lack of production is under the microscope.`\
-https://nytimes.com/athletic/6436631/2025/06/18/mets-rancisco-alvarez-swing-change/
 
