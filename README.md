@@ -1,3 +1,11 @@
+**Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
+`With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
+https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
+
+**Israel’s military says Iran struck with a missile armed with cluster munitions.**\
+`Israel accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts who reviewed videos and photographs of an attack said evidence offered support for that claim.`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions
+
 **Why 'there's no panic' about the Yankees' offense, especially Aaron Judge**\
 `Yankees hitting coach James Rowson is not worried about his hitters, including Judge, whom he called "the most dangerous man in baseball."`\
 https://nytimes.com/athletic/6438700/2025/06/19/yankees-offense-aaron-judge-hitting-woes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6438982/2025/06/19/philadelphia-phillies-nick-caste
 **Trump Buys Himself Time, and Opens Up Some New Options**\
 `While President Trump appears to be offering one more off ramp to the Iranians, he also is bolstering his own military options.`\
 https://nytimes.com/2025/06/19/us/politics/trump-buys-time-iran-decision.html
-
-**6 Months After the Pelicot Trial, a Staging Brings Insight and Despair**\
-`The stripped-back performance, based on the rape trial that shocked France and the world, ran all night at a church in Vienna.`\
-https://nytimes.com/2025/06/19/theater/the-pelicot-trial-milo-rau-wiener-festwochen.html
-
-**Israel and Iran Continue to Exchange Attacks Into Thursday**\
-`The strikes highlight the risks to civilians in Israel and Iran after days of fighting between the two countries.`\
-https://nytimes.com/video/world/middleeast/100000010239638/iran-israel-conflict-middle-east.html
 
