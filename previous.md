@@ -1,3 +1,19 @@
+**TikTok Hits Cannes, Where a U.S. Ban Seems a Distant Dream**\
+`TikTok executives hosted happy hours and played pickleball with influencers on the French Riviera this week, even as a U.S. ban loomed over the company.`\
+https://nytimes.com/2025/06/19/business/media/tiktok-cannes-shou-chew.html
+
+**Rockets reach multi-year extension with Ime Udoka: Sources**\
+`Since arriving from Boston prior to the 2023-24 season, Udoka has rapidly reshaped the Rockets' culture.`\
+https://nytimes.com/athletic/6438392/2025/06/19/rockets-ime-udoka-extension/
+
+**Trump gives TikTok owner more time to find a buyer for U.S. operations.**\
+`By David McCabe and Sapna Maheshwari`\
+https://nytimes.com/live/2025/06/19/us/trump-news/tiktok-extension-buyer
+
+**Leverkusen close to Quansah agreement with Liverpool**\
+`The 22-year-old is expected to cost Leverkusen just north of €40million, with personal terms not anticipated to be an issue.`\
+https://nytimes.com/athletic/6420877/2025/06/19/jarell-quansah-leverkusen-transfer-liverpool/
+
 **Chilling Photos Capture Police Shooting Man, Fueling Anger in Kenya**\
 `The protests and police shooting on Tuesday came nearly a year after demonstrations against President William Ruto of Kenya convulsed the country.`\
 https://nytimes.com/2025/06/19/world/asia/kenya-protests-police-shooting-albert-ojwang.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
 **As talk grows of regime change in Iran, here’s a look at the 1953 coup that helped reshape the Middle East.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/as-talk-grows-of-regime-change-in-iran-heres-a-look-at-the-1953-coup-that-helped-reshape-the-middle-east
-
-**A Tree Trimmer’s Front-Row Seat to Trump’s Impromptu Iran Remarks**\
-`Any other president might have discussed a potential Iran strike in an Oval Office address or in a formal news conference. Mr. Trump did it while hanging with a crew of guys at a job site.`\
-https://nytimes.com/2025/06/19/us/trump-iran-questions-white-house-tree-trimmers.html
-
-**ICE Imposes New Rules on Congressional Visits**\
-`The policy specifies that ICE field offices are not subject to an existing law that allows members of Congress to make unannounced oversight visits to immigration facilities that “detain or otherwise house aliens.”`\
-https://nytimes.com/2025/06/19/us/politics/ice-congress.html
-
-**‘Little Lobbyists’ Urge Senators to Oppose Trump’s Bill Cutting Medicaid**\
-`Children with disabilities and their parents who rely on the health insurance program took to Capitol Hill this week to warn that the proposed reductions could be ‘devastating.’`\
-https://nytimes.com/2025/06/19/us/little-lobbyists-urge-senators-to-oppose-trumps-bill-cutting-medicaid.html
-
-**The Windup: The knuckleball's return?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6437103/2025/06/19/knuckleball-aaron-judge-slump-the-windup/
 
