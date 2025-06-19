@@ -1,3 +1,15 @@
+**Barcelona and La Liga's salary limit: Can they afford Nico Williams?**\
+`As Barcelona line up another big spend in the transfer market, here's the latest on their financial struggles`\
+https://nytimes.com/athletic/6437270/2025/06/19/barcelona-nico-williams-la-liga-salary-limit/
+
+**Explained: Mudryk doping charge, appeal rules and could Chelsea sack him if found guilty?**\
+`Mykhailo Mudryk's 'B' sample has come back positive — this is what it means for the Chelsea winger`\
+https://nytimes.com/athletic/6104741/2025/06/19/mykhailo-mudryk-chelsea-doping-charge-explained/
+
+**The Alexander-Arnold and Rodrygo dynamic showed Madrid's problems will take time to fix**\
+`Xabi Alonso has inherited structural issues within this Real Madrid team and some of those were exposed by Al Hilal`\
+https://nytimes.com/athletic/6437118/2025/06/19/real-madrid-tactics-al-hila-alonso/
+
 **Record Debt Limit Increase Would Break Republican Precedent**\
 `A proposed $5 trillion debt limit increase could make it hard for Republicans to maintain their fiscal hawk credibility.`\
 https://nytimes.com/2025/06/19/business/national-debt-limit-republicans.html
