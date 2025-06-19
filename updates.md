@@ -1,3 +1,11 @@
+**3 Dead in Listeria Outbreak Tied to Chicken Pasta Sold at Walmart and Kroger**\
+`The company that made the meals issued a nationwide recall as the Centers for Disease Control and Prevention said they were linked to 17 listeria cases across 13 states.`\
+https://nytimes.com/2025/06/19/business/chicken-fettuccine-alfredo-recall-walmart-kroger.html
+
+**As others go silent, NWSL group doubles down on supporting Black players on Juneteenth and beyond**\
+`While some major sports leagues and governing roll back their anti-racism initiatives, the BWPC does the exact opposite`\
+https://nytimes.com/athletic/6437129/2025/06/19/nwsl-bwpc-juneteenth/
+
 **A Plea for a Petite Plate**\
 `We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Max Yoon, age 17.`\
 https://nytimes.com/2025/06/19/learning/a-plea-for-a-petite-plate.html

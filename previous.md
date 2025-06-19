@@ -1,3 +1,11 @@
+**3 Dead in Listeria Outbreak Tied to Chicken Pasta Sold at Walmart and Kroger**\
+`The company that made the meals issued a nationwide recall as the Centers for Disease Control and Prevention said they were linked to 17 listeria cases across 13 states.`\
+https://nytimes.com/2025/06/19/business/chicken-fettuccine-alfredo-recall-walmart-kroger.html
+
+**As others go silent, NWSL group doubles down on supporting Black players on Juneteenth and beyond**\
+`While some major sports leagues and governing roll back their anti-racism initiatives, the BWPC does the exact opposite`\
+https://nytimes.com/athletic/6437129/2025/06/19/nwsl-bwpc-juneteenth/
+
 **A Plea for a Petite Plate**\
 `We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Max Yoon, age 17.`\
 https://nytimes.com/2025/06/19/learning/a-plea-for-a-petite-plate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436802/2025/06/19/lakers-jeanie-buss-mark-walter-n
 **Cowboys mailbag: Optimism about Dak Prescott? Trevon Diggs' future? Summer standouts?**\
 `With CeeDee Lamb and George Pickens, does Dak Prescott have the best receiving duo of his career?`\
 https://nytimes.com/athletic/6435637/2025/06/19/cowboys-dak-prescott-trevon-diggs-mailbag/
-
-**Flyers GM Daniel Briere keeps mentioning the 'plan.' What exactly is it?**\
-`It's fair to wonder what exactly the plan is now, after the Flyers have reached what Briere hopes is rock bottom.`\
-https://nytimes.com/athletic/6435912/2025/06/19/flyers-daniel-briere-nhl-draft-picks/
-
-**Trump Administration Live Updates: U.S. to Examine Social Media Posts of Student Visa Applicants**\
-``\
-https://nytimes.com/live/2025/06/19/us/trump-news
 
