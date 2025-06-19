@@ -1,3 +1,7 @@
+**City CEO praises Club World Cup: 'It was very much needed'**\
+`"Soccer is a global sport and we have to make it global," Soriano added.`\
+https://nytimes.com/athletic/6438507/2025/06/19/manchester-city-club-world-cup-soriano/
+
 **Marijuana’s Links to Heart Attack and Stroke Are Becoming Clearer**\
 `The evidence is stacking up that the drug is associated with a greater likelihood of heart problems.`\
 https://nytimes.com/2025/06/19/well/marijuana-heart-health-risks.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/06/19/business/media/tiktok-cannes-shou-chew.html
 `Since arriving from Boston prior to the 2023-24 season, Udoka has rapidly reshaped the Rockets' culture.`\
 https://nytimes.com/athletic/6438392/2025/06/19/rockets-ime-udoka-extension/
 
-**Trump gives TikTok owner more time to find a buyer for U.S. operations.**\
+**Trump gives TikTok’s owner more time to find a buyer for U.S. operations.**\
 `By David McCabe and Sapna Maheshwari`\
 https://nytimes.com/live/2025/06/19/us/trump-news/tiktok-extension-buyer
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6437484/2025/06/19/england-carse-archer-stokes-pope
 **Summer Beans, Make Me Feel Fine**\
 `Hetty Lui McKinnon’s no-cook chili bean salad is just the thing for spiking temperatures.`\
 https://nytimes.com/2025/06/19/dining/healthy-no-cook-vegetarian-recipes.html
-
-**Former Interpol Official Detained for Role in ‘Big Carousel’ of Corruption**\
-`The official led a powerful and highly sensitive commission at Interpol’s headquarters in Lyon, France.`\
-https://nytimes.com/2025/06/19/world/middleeast/interpol-corruption-former-official-detained.html
 

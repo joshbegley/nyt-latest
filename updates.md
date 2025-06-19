@@ -1,3 +1,11 @@
+**City CEO praises Club World Cup: 'It was very much needed'**\
+`"Soccer is a global sport and we have to make it global," Soriano added.`\
+https://nytimes.com/athletic/6438507/2025/06/19/manchester-city-club-world-cup-soriano/
+
+**Trump gives TikTok’s owner more time to find a buyer for U.S. operations.**\
+`By David McCabe and Sapna Maheshwari`\
+https://nytimes.com/live/2025/06/19/us/trump-news/tiktok-extension-buyer
+
 **Marijuana’s Links to Heart Attack and Stroke Are Becoming Clearer**\
 `The evidence is stacking up that the drug is associated with a greater likelihood of heart problems.`\
 https://nytimes.com/2025/06/19/well/marijuana-heart-health-risks.html
