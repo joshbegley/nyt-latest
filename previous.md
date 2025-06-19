@@ -1,3 +1,7 @@
+**Scenes From a Vigil for Victims of the Minnesota Shooting**\
+`Text by Ernesto Londoño and Jenn Ackerman`\
+https://nytimes.com/card/2025/06/19/us/minnesota-shooting-hortman-vigil
+
 **César Montes powers Mexico past Suriname to make Gold Cup knockout stage**\
 `Though El Tri is already in the quarterfinals, it'll look to top the group with a win over Costa Rica in the final group-stage match Sunday.`\
 https://nytimes.com/athletic/6436869/2025/06/19/mexico-suriname-gold-cup-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6435760/2025/06/19/botafogo-psg-textor-al-khelaifi-
 **Estevao - the Palmeiras prodigy bound for Chelsea who sees the football pitch as his 'amusement park'**\
 `The Brazilian may be heading to Chelsea later this summer - but first he wants to make history at the Club World Cup with Palmeiras`\
 https://nytimes.com/athletic/6436069/2025/06/19/estevao-chelsea-amusement-park/
-
-**That name you keep hearing: Hugo Ekitike. Exactly how good is the Chelsea and Man Utd target?**\
-`His dribbling is up there with Mbappe, but what about the 22-year-old French striker's finishing and the other facets of his game? `\
-https://nytimes.com/athletic/6434472/2025/06/19/hugo-ekitike-how-good-is-he/
 

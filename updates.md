@@ -1,3 +1,7 @@
+**Scenes From a Vigil for Victims of the Minnesota Shooting**\
+`Text by Ernesto Londoño and Jenn Ackerman`\
+https://nytimes.com/card/2025/06/19/us/minnesota-shooting-hortman-vigil
+
 **César Montes powers Mexico past Suriname to make Gold Cup knockout stage**\
 `Though El Tri is already in the quarterfinals, it'll look to top the group with a win over Costa Rica in the final group-stage match Sunday.`\
 https://nytimes.com/athletic/6436869/2025/06/19/mexico-suriname-gold-cup-results-analysis/
