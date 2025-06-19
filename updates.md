@@ -1,3 +1,7 @@
+**In Appalachia, a Father Got Black Lung. Then His Son Did, Too.**\
+`Once nearly eradicated, the “old man’s disease” is back and suffocating younger miners than before. Federal cuts risk putting a solution further out of reach.`\
+https://nytimes.com/2025/06/19/well/black-lung-appalachia-coal-miners.html
+
 **Red Light: How the Panthers became the NHL's unicorn. Plus: The offseason frenzy begins**\
 `What can other teams learn from the repeat Stanley Cup winners? And what in the world do the Oilers do now?`\
 https://nytimes.com/athletic/6437822/2025/06/19/nhl-red-light-newsletter-florida-panthers/

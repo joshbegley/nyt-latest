@@ -1,3 +1,11 @@
+**Fed’s ‘Wait-and-See’ Approach Keeps It on Collision Course With Trump**\
+`The central bank signals little urgency to cut interest rates despite demands from President Trump for lower borrowing costs.`\
+https://nytimes.com/2025/06/19/business/fed-interest-rates-trump-powell.html
+
+**USMNT and Chelsea defender Caleb Wiley set to rejoin Watford on loan**\
+`Wiley spent the first half of last season on loan at Strasbourg before moving to Watford for the second half of the campaign.`\
+https://nytimes.com/athletic/6437816/2025/06/19/usmnt-and-chelsea-defender-caleb-wiley-set-to-rejoin-watford-on-loan/
+
 **In Appalachia, a Father Got Black Lung. Then His Son Did, Too.**\
 `Once nearly eradicated, the “old man’s disease” is back and suffocating younger miners than before. Federal cuts risk putting a solution further out of reach.`\
 https://nytimes.com/2025/06/19/well/black-lung-appalachia-coal-miners.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6437546/2025/06/19/oklahoma-city-thunder-pacers-nba
 https://nytimes.com/2025/06/19/business/media/neon-ichiban-digital-comic-books.html
 
 **Rhian Wilkinson, Wales' highest mountain and a Euro 2025 squad announcement with a difference**\
-`The Wales head coach has used Yr Wyddfa, or Snowdon, as a metaphor to inspire her squad with this an appropriate venue to confirm selection`\
+`The head coach has used Yr Wyddfa, or Snowdon, as a metaphor to inspire her players so it's an appropriate venue to confirm Euros selection`\
 https://nytimes.com/athletic/6437470/2025/06/19/wales-wilkinson-snowdon-euro2025/
 
 **Lessons From a Dark Past**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/special-series/hwang-sok-yong-korea-martial-law.h
 **The Universe’s Darkest Mysteries Are Coming Into Focus**\
 `As the Vera C. Rubin Observatory surveys the night sky, astrophysicists expect to unlock the secrets of dark matter, dark energy and cosmic phenomena that go “bang!”`\
 https://nytimes.com/2025/06/19/science/telescope-vera-rubin-dark-matter.html
-
-**Zero Interest Rates Are Back in Europe**\
-`The Swiss National Bank lowered rates to zero after consumer prices fell last month. Other European central banks are grappling with uncertainty caused by President Trump’s tariffs.`\
-https://nytimes.com/2025/06/19/business/zero-interest-rates-europe-trump.html
-
-**The Bounce: Does the Lakers' big-money sale to Dodgers owner mean big changes are imminent?**\
-`No sports franchise has ever sold for more money than the Lakers' $10 billion tag. What changes should we expect?`\
-https://nytimes.com/athletic/6437437/2025/06/19/lakers-dodgers-buss-family-sale-nba-the-bounce/
 
