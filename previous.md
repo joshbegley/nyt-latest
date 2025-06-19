@@ -1,3 +1,31 @@
+**Cuesta's move echoes ambition of Arteta, but what next for Arsenal?**\
+`In a perfect world, coaching changes happen when planned, with smooth transitions, but football doesn’t often work like that`\
+https://nytimes.com/athletic/6435648/2025/06/19/carlos-cuesta-arsenal-arteta/
+
+**Tijjani Reijnders is ready to transform Manchester City's midfield - Pep Guardiola can smell it**\
+`City's new signing looks to have a healthy blend of solidity and adventure - as he demonstrated on his debut in the Club World Cup`\
+https://nytimes.com/athletic/6436161/2025/06/19/tijjai-reijnders-manchester-city-debut-club-world-cup/
+
+**Justin Cochrane's return to Spurs: He'll plan training, but do more than just put the cones out**\
+`Thomas Frank was determined to take Cochrane with him to Tottenham - so what can we expect from the new Spurs No 2?`\
+https://nytimes.com/athletic/6434670/2025/06/19/justin-cochrane-tottenham-frank-staff/
+
+**The art of showboating: 'People sometimes see it as a slur - it's expressing yourself'**\
+`Showboating brings joy to fans but players often think differently about it`\
+https://nytimes.com/athletic/6434938/2025/06/19/showboating-football-soccer-dribbling-flicks/
+
+**John Textor vs Nasser Al-Khelaifi — a French football feud that is about to go global**\
+`The two men have traded fierce insults, in person and in the press, in France. And now Textor's Botafogo face Paris Saint-Germain in L.A.`\
+https://nytimes.com/athletic/6435760/2025/06/19/botafogo-psg-textor-al-khelaifi-club-world-cup/
+
+**Estevao - the Palmeiras prodigy bound for Chelsea who sees the football pitch as his 'amusement park'**\
+`The Brazilian may be heading to Chelsea later this summer - but first he wants to make history at the Club World Cup with Palmeiras`\
+https://nytimes.com/athletic/6436069/2025/06/19/estevao-chelsea-amusement-park/
+
+**That name you keep hearing: Hugo Ekitike. Exactly how good is the Chelsea and Man Utd target?**\
+`His dribbling is up there with Mbappe, but what about the 22-year-old French striker's finishing and the other facets of his game? `\
+https://nytimes.com/athletic/6434472/2025/06/19/hugo-ekitike-how-good-is-he/
+
 **PSG's strategic 'Paris' branding is a masterstroke - but do they have star power to break the U.S.?**\
 `The French club has links with the NFL and Air Jordan and a store on Fifth Avenue - but experts say they have a way to go to break America`\
 https://nytimes.com/athletic/6432582/2025/06/19/psgs-paris-branding-united-states/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6434418/2025/06/19/newcastle-sporting-director-late
 **Thursday Briefing**\
 `The prospect of U.S. strikes in Iran.`\
 https://nytimes.com/2025/06/19/briefing/strikes-iran-india-canada.html
-
-**Quietly, Pakistan Wages a Deadly Drone Campaign Inside Its Own Borders**\
-`As it strikes militants, the country’s security services are adopting a tactic that Pakistan once criticized the United States for using.`\
-https://nytimes.com/2025/06/19/world/asia/pakistan-drones-militants.html
-
-**In a Passionate Composer’s First Opera, Sex Flirts With Death**\
-`Rebecca Saunders has collaborated with the artist Ed Atkins to create “Lash,” a work that hovers around themes of illness and intimacy.`\
-https://nytimes.com/2025/06/19/arts/music/rebecca-saunders-ed-atkins-lash.html
-
-**Under China’s Threat, Taiwan Needs Its Own Power Sources More Than Ever**\
-`Taiwan, which makes most of the world’s advanced computer chips, relies almost entirely on imported energy.`\
-https://nytimes.com/2025/06/19/business/taiwan-chips-energy-china.html
-
-**Corrections: June 19, 2025**\
-`Corrections that appeared in print on Thursday, June 19, 2025.`\
-https://nytimes.com/2025/06/19/pageoneplus/corrections-june-19-2025.html
-
-**Connections: Sports Edition Coach: Hints for June 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6436740/2025/06/19/connections-sports-edition-hints-for-june-19-2025/
-
-**Can You Choose an A.I. Model That Harms the Planet Less?**\
-`When it comes to artificial intelligence, more intensive computing uses more energy, producing more greenhouse gases.`\
-https://nytimes.com/2025/06/19/climate/ai-emissions-chatbot-accuracy.html
-
-**Quote of the Day: Her Best Sellers Are Only Icing On the Cupcake**\
-`Quotation of the Day for Thursday, June 19, 2025`\
-https://nytimes.com/2025/06/18/pageoneplus/quote-of-the-day-her-best-sellers-are-only-icing-on-the-cupcake.html
 
