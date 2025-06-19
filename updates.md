@@ -1,3 +1,7 @@
+**Byron Buxton proves worthy of All-Star votes with another big day and more Twins takeaways**\
+`Buxton's .898 OPS is the best among qualified major-league center fielders, but he's well behind All-Star fan voting.`\
+https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-votes/
+
 **Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
 `With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
 https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
