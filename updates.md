@@ -1,3 +1,11 @@
+**Earth’s Largest Camera Takes 3 Billion-Pixel Images of the Night Sky**\
+`At the heart of the new Vera C. Rubin Observatory is a digital camera that will create an unparalleled map of the cosmos.`\
+https://nytimes.com/interactive/2025/06/19/science/rubin-observatory-camera.html
+
+**French Lawmaker Says He Was Denied Entry Into the United States**\
+`Pouria Amirshahi, a leftist member of Parliament, hopes that the decision will be reversed so that he can travel to meet lawmakers to understand life under President Trump.`\
+https://nytimes.com/2025/06/19/world/europe/france-lawmaker-denied-visa-us-trump-amirshahi.html
+
 **Review: ‘The Comet/Poppea’ Merges Opera’s Past and Present**\
 `A Monteverdi masterpiece and a new work by George Lewis are played simultaneously in an American Modern Opera Company production at Lincoln Center.`\
 https://nytimes.com/2025/06/19/arts/music/the-comet-poppea-review.html
