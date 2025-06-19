@@ -1,9 +1,13 @@
+**'Crazy' to question USMNT forward Pulisic's love for football says Weah**\
+`His decision provoked criticism, but Pulisic told a CBS podcast earlier this month that he was doing “what I felt was best for my body.”`\
+https://nytimes.com/athletic/6437148/2025/06/19/usmnt-pulisic-gold-cup-weah/
+
 **Here’s the latest.**\
 `By Adam Rasgon, Ephrat Livni and David E. Sanger`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/heres-the-latest
 
 **Live Updates: Israel Vows to Intensify Attacks After Iranian Missile Strikes Hospital**\
-`Iran struck the largest hospital in southern Israel, Israel’s military said. The hospital, which had been largely evacuated, said it was treating several patients with mild injuries. Israel’s prime minister ordered a fierce response, the defense minister said.`\
+`Iran struck the largest hospital in southern Israel, Israel’s military said. The hospital said it was treating several patients with mild injuries. Israel’s prime minister ordered a fierce response, the defense minister said.`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news
 
 **Funeral Held for Loved One Lost in Air India Crash**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/arts/television/seth-meyers-tucker-carlson-ted-cr
 **Mamdani’s Comment on ‘Intifada’ Motto Fuels Tension in Mayor’s Race**\
 `Andrew Cuomo, a leading candidate for mayor, criticized Zohran Mamdani’s discussion of the phrase “globalize the intifada,” and Mr. Mamdani accused him of neglecting Muslim New Yorkers.`\
 https://nytimes.com/2025/06/19/nyregion/mamdani-globalize-intifada.html
-
-**Brad Lander Tried to Escort Immigrants Facing Arrest. He’s Not Alone.**\
-`A growing army of volunteers has mustered at immigration courts during a month-old campaign to detain people showing up for routine hearings.`\
-https://nytimes.com/2025/06/19/nyregion/ice-immigrants-volunteer-escorts-courthouse.html
 
