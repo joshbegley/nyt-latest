@@ -1,3 +1,11 @@
+**This Chinese Park Inspired ‘Avatar.’ Videos Show It Also Drew Piles of Trash.**\
+`Officials ordered a huge cleanup effort after videos of the mountains of garbage spread widely online.`\
+https://nytimes.com/2025/06/19/world/asia/china-caves-trash-avatar.html
+
+**The Athletic FC: The great showboating debate, Juventus meet Donald Trump and Mudryk's doping charge**\
+`Today in TAFC: Exploring the rights and wrongs of showboating, Juventus visit the White House and Chelsea winger faces FA doping charge`\
+https://nytimes.com/athletic/6437346/2025/06/19/showboating-juventus-donald-trump-mudryk-doping-charge/
+
 **A history of the award for biggest NHL playoff loser (which does not exist but should)**\
 `Crack open the vault and dust off the O’Brien Trophy, because it’s our new award for each postseason’s biggest loser.`\
 https://nytimes.com/athletic/6432408/2025/06/19/nhl-playoffs-biggest-loser/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436557/2025/06/19/red-sox-rafael-devers-trade-crai
 **Malik Tillman: My game in my words**\
 `Malik Tillman usually lets his game do the talking, and the performances are getting louder – helped by some outrageous long-range goals`\
 https://nytimes.com/athletic/6435289/2025/06/19/malik-tillman-usmnt-psv-my-game-my-words/
-
-**Steelers mailbag: What's the ceiling with Aaron Rodgers? How much freedom will he have?**\
-`Readers had all kinds of questions about Rodgers. Meanwhile, we also dig into concerns at wide receiver and along the offensive line.`\
-https://nytimes.com/athletic/6436400/2025/06/19/aaron-rodgers-steelers-ceiling-arthur-smith/
-
-**Could Bowen Byram get traded again? 8 teams that should be interested**\
-`The pending RFA is a potential trade candidate who would have legitimate value around the league. Now it’s decision time for the Sabres.`\
-https://nytimes.com/athletic/6436751/2025/06/19/sabres-bowen-byram-trade-nhl-teams/
 

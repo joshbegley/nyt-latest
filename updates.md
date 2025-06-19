@@ -1,3 +1,11 @@
+**This Chinese Park Inspired ‘Avatar.’ Videos Show It Also Drew Piles of Trash.**\
+`Officials ordered a huge cleanup effort after videos of the mountains of garbage spread widely online.`\
+https://nytimes.com/2025/06/19/world/asia/china-caves-trash-avatar.html
+
+**The Athletic FC: The great showboating debate, Juventus meet Donald Trump and Mudryk's doping charge**\
+`Today in TAFC: Exploring the rights and wrongs of showboating, Juventus visit the White House and Chelsea winger faces FA doping charge`\
+https://nytimes.com/athletic/6437346/2025/06/19/showboating-juventus-donald-trump-mudryk-doping-charge/
+
 **A history of the award for biggest NHL playoff loser (which does not exist but should)**\
 `Crack open the vault and dust off the O’Brien Trophy, because it’s our new award for each postseason’s biggest loser.`\
 https://nytimes.com/athletic/6432408/2025/06/19/nhl-playoffs-biggest-loser/
