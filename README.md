@@ -1,3 +1,31 @@
+**Seth Meyers Wishes Tucker Carlson and Ted Cruz Could Both Lose**\
+`The clash of conservative titans had Meyers feeling like a Roman emperor: “I just want someone to feed me grapes while I say, ‘Let them fight.’”`\
+https://nytimes.com/2025/06/19/arts/television/seth-meyers-tucker-carlson-ted-cruz.html
+
+**Mamdani’s Comment on ‘Intifada’ Motto Fuels Tension in Mayor’s Race**\
+`Andrew Cuomo, a leading candidate for mayor, criticized Zohran Mamdani’s discussion of the phrase “globalize the intifada,” and Mr. Mamdani accused him of neglecting Muslim New Yorkers.`\
+https://nytimes.com/2025/06/19/nyregion/mamdani-globalize-intifada.html
+
+**Brad Lander Tried to Escort Immigrants Facing Arrest. He’s Not Alone.**\
+`A growing army of volunteers has mustered at immigration courts during a month-old campaign to detain people showing up for routine hearings.`\
+https://nytimes.com/2025/06/19/nyregion/ice-immigrants-volunteer-escorts-courthouse.html
+
+**N.Y. Lawmakers Target Prison Reform and A.I. in Frantic End of Session**\
+`We take a closer look at five of the more than 600 bills passed in June by the State Legislature.`\
+https://nytimes.com/2025/06/19/nyregion/new-york-legislature-ai-prison-reform.html
+
+**Misplaced Millions? Lost Life Savings? Tell Us.**\
+`A new personal finance column was inspired by head-scratching messages from Times readers.`\
+https://nytimes.com/2025/06/19/insider/personal-finance-stories.html
+
+**New York Gears Up for Fight to Count 1.8 Million Noncitizens in Census**\
+`City leaders see threats from the Trump administration and Republican officials that could lead to undercounting immigrants and minority groups.`\
+https://nytimes.com/2025/06/19/nyregion/nyc-2030-census-immigrants.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/19/crosswords/spelling-bee-forum.html
+
 **Alonso's first Real Madrid game analysed: Alexander-Arnold's debut but no Mbappe**\
 `A new era is under way for the Madrid club and there was plenty we could learn as they began their Club World Cup campaign`\
 https://nytimes.com/athletic/6436847/2025/06/19/xabi-alonso-real-madrid-al-hilal/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
 **Chris Sale tosses near complete-game shutout as Braves clinch series vs. Mets**\
 `Sale’s bid for a repeat Cy Young Award was further strengthened with an overwhelming 8 2/3 innings.`\
 https://nytimes.com/athletic/6436936/2025/06/19/chris-sale-braves-mets/
-
-**Club World Cup daily rankings: Don't sleep on teams beyond Europe**\
-`Rankings each of the 32 Club World Cup teams, updated daily`\
-https://nytimes.com/athletic/6433032/2025/06/19/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
-
-**The New York Times in Print for Thursday, June 19, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/19/todays-new-york-times
-
-**A Progressive Future Depends on National Identity**\
-`Tough border policies aren’t just good politics. They’re progressive, as Britain’s Labour Party shows.`\
-https://nytimes.com/2025/06/19/opinion/border-policy-immigration-labour-party.html
-
-**NATO Is Doing Just Fine, Thank You**\
-`Those who are declaring the NATO alliance dead should put aside their fatalism. They involve military spending, Ukraine and U.S. troops.`\
-https://nytimes.com/2025/06/19/opinion/nato-summit-trump-russia-ukraine.html
-
-**Concacaf investigates Canada manager Marsch for alleged Gold Cup actions**\
-`Marsch is alleged to have "used offensive language toward Concacaf match officials" despite being suspended for Canada's rout of Honduras`\
-https://nytimes.com/athletic/6436980/2025/06/19/concacaf-investigates-canada-manager-marsch-for-alleged-gold-cup-actions/
-
-**Dodgers to announce plans to assist immigrants impacted by ICE: Sources**\
-`It is expected to be the organization's first official response to the raids, which have spawned massive protests throughout the U.S.`\
-https://nytimes.com/athletic/6436944/2025/06/19/los-angeles-dodgers-immigrant-assistance/
-
-**Scenes From a Vigil for Victims of the Minnesota Shooting**\
-`Text by Ernesto Londoño and Jenn Ackerman`\
-https://nytimes.com/card/2025/06/19/us/minnesota-shooting-hortman-vigil
 
