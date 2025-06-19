@@ -1,3 +1,11 @@
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Has watching sports on TV gotten too expensive? Why did the Stanley Cup Final struggle with viewership? Ask our expert your media questions.`\
+https://nytimes.com/athletic/6438142/2025/06/19/richard-deitsch-sports-media-mailbag-june-2025/
+
+**William Cran, Documentarian of Global Issues, Dies at 79**\
+`He had a hand in more than 50 films, many for PBS’s “Frontline,” including a series on the English language and an exploration of J. Edgar Hoover’s secret life.`\
+https://nytimes.com/2025/06/19/movies/william-cran-dead.html
+
 **A Messy Business Divorce Plays Out on the Beaches of Cannes**\
 `Michael Kassan, a ringmaster in the media industry, is going head to head at its top event with United Talent Agency, a company that has sued him.`\
 https://nytimes.com/2025/06/19/business/media/cannes-lions-uta-michael-kassan-medialink.html
