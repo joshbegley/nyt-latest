@@ -1,3 +1,11 @@
+**Thai Premier Under Pressure to Resign in Fallout From Call With Cambodian Leader**\
+`Paetongtarn Shinawatra has been widely criticized for appearing weak in a conversation with Hun Sen, who posted a recording of their exchange on Facebook.`\
+https://nytimes.com/2025/06/19/world/asia/paetongtarn-coalition-resign-cambodia.html
+
+**Will Israel’s Interceptors Outlast Iran’s Missiles? The Answer May Shape the War.**\
+`Israel has a world-leading missile interception system but its bank of interceptors is finite.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-interceptors-iran-missiles-war-length.html
+
 **Air India Cuts International Flights After Crash Causes Chaos**\
 `The move came a day after Indian officials told the airline to improve its operations, and as delays and canceled flights are drawing complaints from passengers.`\
 https://nytimes.com/2025/06/19/world/asia/air-india-plane-crash-flights-cuts.html
