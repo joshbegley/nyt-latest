@@ -1,3 +1,11 @@
+**Earth’s Largest Camera Takes 3 Billion-Pixel Images of the Night Sky**\
+`At the heart of the new Vera C. Rubin Observatory is a digital camera that will create an unparalleled map of the cosmos.`\
+https://nytimes.com/interactive/2025/06/19/science/rubin-observatory-camera.html
+
+**French Lawmaker Says He Was Denied Entry Into the United States**\
+`Pouria Amirshahi, a leftist member of Parliament, hopes that the decision will be reversed so that he can travel to meet lawmakers to understand life under President Trump.`\
+https://nytimes.com/2025/06/19/world/europe/france-lawmaker-denied-visa-us-trump-amirshahi.html
+
 **Review: ‘The Comet/Poppea’ Merges Opera’s Past and Present**\
 `A Monteverdi masterpiece and a new work by George Lewis are played simultaneously in an American Modern Opera Company production at Lincoln Center.`\
 https://nytimes.com/2025/06/19/arts/music/the-comet-poppea-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6437733/2025/06/19/jalen-williams-video-thunder-nba
 **The Thunder's long and short path to brink of NBA title was built on remarkable stability**\
 `The Thunder are a win away from an NBA title, but those around since the beginning might be extra apprehensive until the final buzzer.`\
 https://nytimes.com/athletic/6437546/2025/06/19/oklahoma-city-thunder-pacers-nba-title-game-6/
-
-**New Digital Comics Store Takes Aim at Amazon**\
-`Two veterans of Comixology, a site that the e-commerce colossus bought in 2014, are now starting a rival to compete with it.`\
-https://nytimes.com/2025/06/19/business/media/neon-ichiban-digital-comic-books.html
-
-**Rhian Wilkinson, Wales' highest mountain and a Euro 2025 squad announcement with a difference**\
-`The head coach has used Yr Wyddfa, or Snowdon, as a metaphor to inspire her players so it's an appropriate venue to confirm Euros selection`\
-https://nytimes.com/athletic/6437470/2025/06/19/wales-wilkinson-snowdon-euro2025/
 

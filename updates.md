@@ -1,3 +1,7 @@
+**Review: ‘The Comet/Poppea’ Merges Opera’s Past and Present**\
+`A Monteverdi masterpiece and a new work by George Lewis are played simultaneously in an American Modern Opera Company production at Lincoln Center.`\
+https://nytimes.com/2025/06/19/arts/music/the-comet-poppea-review.html
+
 **Two-time Wimbledon champion Petra Kvitova will retire from tennis after U.S. Open**\
 `Kvitová has 31 singles titles to her name, and reached a career high of world No. 2.`\
 https://nytimes.com/athletic/6437841/2025/06/19/tennis-petra-kvitova-retirement/

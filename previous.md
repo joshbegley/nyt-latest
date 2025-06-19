@@ -1,3 +1,7 @@
+**Review: ‘The Comet/Poppea’ Merges Opera’s Past and Present**\
+`A Monteverdi masterpiece and a new work by George Lewis are played simultaneously in an American Modern Opera Company production at Lincoln Center.`\
+https://nytimes.com/2025/06/19/arts/music/the-comet-poppea-review.html
+
 **Two-time Wimbledon champion Petra Kvitova will retire from tennis after U.S. Open**\
 `Kvitová has 31 singles titles to her name, and reached a career high of world No. 2.`\
 https://nytimes.com/athletic/6437841/2025/06/19/tennis-petra-kvitova-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/business/media/neon-ichiban-digital-comic-books.h
 **Rhian Wilkinson, Wales' highest mountain and a Euro 2025 squad announcement with a difference**\
 `The head coach has used Yr Wyddfa, or Snowdon, as a metaphor to inspire her players so it's an appropriate venue to confirm Euros selection`\
 https://nytimes.com/athletic/6437470/2025/06/19/wales-wilkinson-snowdon-euro2025/
-
-**Lessons From a Dark Past**\
-`In South Korea, the collective memory of a pro-democracy uprising inspires a new generation to resist authoritarianism.`\
-https://nytimes.com/2025/06/19/special-series/hwang-sok-yong-korea-martial-law.html
 
