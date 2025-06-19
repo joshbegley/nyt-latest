@@ -1,3 +1,11 @@
+**Cubs notes: Pete Crow-Armstrong fastest in team history to reach 20-20 mark**\
+`It took Crow-Armstrong 73 games to get to 20 home runs and 20 stolen bases, topping Sammy Sosa, who needed 96 games to get there in 1994.`\
+https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
+
+**Oilers' 3 biggest contract decisions and what they mean for the future roster**\
+`These three contracts have the potential to drastically alter the salary cap landscape for the Oilers for years to come.`\
+https://nytimes.com/athletic/6438978/2025/06/19/oilers-contracts-mcdavid-frederic-bouchard/
+
 **Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
 `With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
 https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6438974/2025/06/19/ny-mets-frankie-montas-rotation-
 **Police Investigate Threats to Mamdani in Mayoral Race’s Final Days**\
 `Voice mail messages promising violence against Zohran Mamdani, a progressive Democrat, came as attacks on politicians, judges and other government officials have skyrocketed.`\
 https://nytimes.com/2025/06/19/nyregion/zohran-mamdani-threats-nypd-investigation.html
-
-**Phillies' Nick Castellanos says benching, remark to manager Rob Thomson is behind him**\
-`Defensive concerns prompted Phillies manager Rob Thomson to lift Nick Castellanos against the Marlins on Monday.`\
-https://nytimes.com/athletic/6438982/2025/06/19/philadelphia-phillies-nick-castellanos-benching-comments/
-
-**Trump Buys Himself Time, and Opens Up Some New Options**\
-`While President Trump appears to be offering one more off ramp to the Iranians, he also is bolstering his own military options.`\
-https://nytimes.com/2025/06/19/us/politics/trump-buys-time-iran-decision.html
 

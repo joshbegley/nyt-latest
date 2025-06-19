@@ -3,16 +3,16 @@
 https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
 
 **Oilers' 3 biggest contract decisions and what they mean for the future roster**\
-`These three contracts have the potential to drastically alter the salary cap landscape for the Oilers for years to come.`\
+`These three contracts have the potential to drastically alter the salary-cap landscape for the Oilers for years to come.`\
 https://nytimes.com/athletic/6438978/2025/06/19/oilers-contracts-mcdavid-frederic-bouchard/
 
 **Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
 `With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
 https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
 
-**Israel’s military says Iran struck with a missile armed with cluster munitions.**\
-`Israel accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts who reviewed videos and photographs of an attack said evidence offered support for that claim.`\
-https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions
+**Israel Says Iran Struck With Missile Armed With Cluster Munitions**\
+`Israel’s military accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts said evidence offered support for the claim.`\
+https://nytimes.com/2025/06/19/world/middleeast/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions.html
 
 **Why 'there's no panic' about the Yankees' offense, especially Aaron Judge**\
 `Yankees hitting coach James Rowson is not worried about his hitters, including Judge, whom he called "the most dangerous man in baseball."`\

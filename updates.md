@@ -1,3 +1,11 @@
+**Cubs notes: Pete Crow-Armstrong fastest in team history to reach 20-20 mark**\
+`It took Crow-Armstrong 73 games to get to 20 home runs and 20 stolen bases, topping Sammy Sosa, who needed 96 games to get there in 1994.`\
+https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
+
+**Oilers' 3 biggest contract decisions and what they mean for the future roster**\
+`These three contracts have the potential to drastically alter the salary cap landscape for the Oilers for years to come.`\
+https://nytimes.com/athletic/6438978/2025/06/19/oilers-contracts-mcdavid-frederic-bouchard/
+
 **Byron Buxton proves worthy of All-Star votes with another big day and more Twins takeaways**\
 `Buxton's .898 OPS is the best among qualified major-league center fielders, but he's well behind All-Star fan voting.`\
 https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-votes/
