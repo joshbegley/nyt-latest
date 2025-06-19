@@ -1,3 +1,7 @@
+**In Singapore, Grandmothers Dive Into Aging With a Splash**\
+`To tell the story of a demographic shift in Southeast Asia, one reporter visited a swimming complex where women in their 60s, 70s and 80s get competitive in the pool.`\
+https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
+
 **Israel struck an inactive Iranian nuclear site.**\
 `By Bora Erden`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/israel-struck-an-inactive-iranian-nuclear-site
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/nyregion/abraham-chabon-rape-sexual-assault-charg
 **Why Higher Oil Prices May Not Change U.S. Energy Policy**\
 `The energy crisis of the 1970s suggests that higher oil prices are unlikely to significantly shift U.S. energy policy away from fossil fuels.`\
 https://nytimes.com/2025/06/19/climate/oil-prices-climate-change-fossil-fuels.html
-
-**Whitecaps make offer for Canada, Fulham rising talent Luc De Fougerolles**\
-`Luc De Fougerolles is eyeing first-team minutes to improve his World Cup stock. Might they come in MLS?`\
-https://nytimes.com/athletic/6438228/2025/06/19/luc-de-fougerolles-vancouver-whitecaps-canada-fulham-mls/
 
