@@ -1,3 +1,11 @@
+**Son of Author Michael Chabon Is Charged With Rape in Manhattan**\
+`Abraham Chabon, a New York University student, is accused in a criminal complaint of sexual assault. He has pleaded not guilty.`\
+https://nytimes.com/2025/06/19/nyregion/abraham-chabon-rape-sexual-assault-charge-nyu-student.html
+
+**Why Higher Oil Prices May Not Change U.S. Energy Policy**\
+`The energy crisis of the 1970s suggests that higher oil prices are unlikely to significantly shift U.S. energy policy away from fossil fuels.`\
+https://nytimes.com/2025/06/19/climate/oil-prices-climate-change-fossil-fuels.html
+
 **Whitecaps make offer for Canada, Fulham rising talent Luc De Fougerolles**\
 `Luc De Fougerolles is eyeing first-team minutes to improve his World Cup stock. Might they come in MLS?`\
 https://nytimes.com/athletic/6438228/2025/06/19/luc-de-fougerolles-vancouver-whitecaps-canada-fulham-mls/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/well/marijuana-heart-health-risks.html
 **Man City fined more than £1m by Premier League for late kick-offs**\
 `City have accepted and apologised for nine breaches of Premier League rule L.33, relating to late kick-offs throughout the 2024-25 campaign.`\
 https://nytimes.com/athletic/6438344/2025/06/19/manchester-city-rule-break-premier-league/
-
-**TikTok Hits Cannes, Where a U.S. Ban Seems a Distant Dream**\
-`TikTok executives hosted happy hours and played pickleball with influencers on the French Riviera this week, even as a U.S. ban loomed over the company.`\
-https://nytimes.com/2025/06/19/business/media/tiktok-cannes-shou-chew.html
-
-**Rockets reach multi-year extension with Ime Udoka: Sources**\
-`Since arriving from Boston prior to the 2023-24 season, Udoka has rapidly reshaped the Rockets' culture.`\
-https://nytimes.com/athletic/6438392/2025/06/19/rockets-ime-udoka-extension/
 
