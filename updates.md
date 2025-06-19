@@ -1,3 +1,15 @@
+**England look to Brydon Carse but hope Jofra Archer will feature in India series**\
+`The Durham fast bowler will open the bowling at Headingley but Archer could be fit to return at Edgbaston.`\
+https://nytimes.com/athletic/6437484/2025/06/19/england-carse-archer-stokes-pope/
+
+**Summer Beans, Make Me Feel Fine**\
+`Hetty Lui McKinnon’s no-cook chili bean salad is just the thing for spiking temperatures.`\
+https://nytimes.com/2025/06/19/dining/healthy-no-cook-vegetarian-recipes.html
+
+**Former Interpol Official Detained for Role in ‘Big Carousel’ of Corruption**\
+`The official led a powerful and highly sensitive commission at Interpol’s headquarters in Lyon, France.`\
+https://nytimes.com/2025/06/19/world/middleeast/interpol-corruption-former-official-detained.html
+
 **Oil Tanker Collision Near Strait of Hormuz Raises Security Fears**\
 `The accident, which the United Arab Emirates said was unrelated to the conflict between Israel and Iran, comes amid increased reports of GPS jamming.`\
 https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
