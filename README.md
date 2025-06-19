@@ -1,3 +1,7 @@
+**Israel struck an inactive Iranian nuclear site.**\
+`By Bora Erden`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/israel-struck-an-inactive-iranian-nuclear-site
+
 **Netanyahu says Israel doesn’t need help to reach its goals in Iran.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/netanyahu-says-israel-doesnt-need-help-to-reach-its-goals-in-iran
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/climate/oil-prices-climate-change-fossil-fuels.ht
 **Whitecaps make offer for Canada, Fulham rising talent Luc De Fougerolles**\
 `Luc De Fougerolles is eyeing first-team minutes to improve his World Cup stock. Might they come in MLS?`\
 https://nytimes.com/athletic/6438228/2025/06/19/luc-de-fougerolles-vancouver-whitecaps-canada-fulham-mls/
-
-**Palmer says Maresca does give him creative freedom at Chelsea**\
-`The Englishman's comments after the Conference League final had been interpreted by some as a dig at Maresca's style of play.`\
-https://nytimes.com/athletic/6438372/2025/06/19/cole-palmer-maresca-chelsea/
 
