@@ -1,3 +1,7 @@
+**Quote of the Day: Her Best Sellers Are Only Icing On the Cupcake**\
+`Quotation of the Day for Thursday, June 19, 2025`\
+https://nytimes.com/2025/06/18/pageoneplus/quote-of-the-day-her-best-sellers-are-only-icing-on-the-cupcake.html
+
 **LSU to meet Coastal Carolina in CWS final after Tigers' walk-off win**\
 `No. 6 LSU won 6-5 in walk-off fashion with three runs in the bottom of the ninth — all with two outs — against No. 3 Arkansas.`\
 https://nytimes.com/athletic/6436855/2025/06/18/lsu-coastal-carolina-college-world-series-finals-set/
