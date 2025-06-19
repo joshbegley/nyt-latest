@@ -1,3 +1,19 @@
+**Club World Cup daily rankings: Don't sleep on teams beyond Europe**\
+`Rankings each of the 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/19/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
+**The New York Times in Print for Thursday, June 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/19/todays-new-york-times
+
+**A Progressive Future Depends on National Identity**\
+`Tough border policies aren’t just good politics. They’re progressive, as Britain’s Labour Party shows.`\
+https://nytimes.com/2025/06/19/opinion/border-policy-immigration-labour-party.html
+
+**NATO Is Doing Just Fine, Thank You**\
+`Those who are declaring the NATO alliance dead should put aside their fatalism. They involve military spending, Ukraine and U.S. troops.`\
+https://nytimes.com/2025/06/19/opinion/nato-summit-trump-russia-ukraine.html
+
 **Concacaf investigates Canada manager Marsch for alleged Gold Cup actions**\
 `Marsch is alleged to have "used offensive language toward Concacaf match officials" despite being suspended for Canada's rout of Honduras`\
 https://nytimes.com/athletic/6436980/2025/06/19/concacaf-investigates-canada-manager-marsch-for-alleged-gold-cup-actions/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6424053/2025/06/19/england-captain-stokes-hussain-g
 **How do you solve a problem like Harvey Elliott?**\
 `The Liverpool No 10 is well-regarded but has remained a peripheral figure, leaving his future uncertain`\
 https://nytimes.com/athletic/6434820/2025/06/19/harvey-elliott-liverpool-transfer-options/
-
-**Cuesta's move echoes ambition of Arteta, but what next for Arsenal?**\
-`In a perfect world, coaching changes happen when planned, with smooth transitions, but football doesn’t often work like that`\
-https://nytimes.com/athletic/6435648/2025/06/19/carlos-cuesta-arsenal-arteta/
-
-**Tijjani Reijnders is ready to transform Manchester City's midfield - Pep Guardiola can smell it**\
-`City's new signing looks to have a healthy blend of solidity and adventure - as he demonstrated on his debut in the Club World Cup`\
-https://nytimes.com/athletic/6436161/2025/06/19/tijjai-reijnders-manchester-city-debut-club-world-cup/
-
-**Justin Cochrane's return to Spurs: He'll plan training, but do more than just put the cones out**\
-`Thomas Frank was determined to take Cochrane with him to Tottenham - so what can we expect from the new Spurs No 2?`\
-https://nytimes.com/athletic/6434670/2025/06/19/justin-cochrane-tottenham-frank-staff/
-
-**The art of showboating: 'People sometimes see it as a slur - it's expressing yourself'**\
-`Showboating brings joy to fans but players often think differently about it`\
-https://nytimes.com/athletic/6434938/2025/06/19/showboating-football-soccer-dribbling-flicks/
 
