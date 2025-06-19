@@ -1,3 +1,7 @@
+**Marijuana’s Links to Heart Attack and Stroke Are Becoming Clearer**\
+`The evidence is stacking up that the drug is associated with a greater likelihood of heart problems.`\
+https://nytimes.com/2025/06/19/well/marijuana-heart-health-risks.html
+
 **Man City fined more than £1m by Premier League for late kick-offs**\
 `City have accepted and apologised for nine breaches of Premier League rule L.33, relating to late kick-offs throughout the 2024-25 campaign.`\
 https://nytimes.com/athletic/6438344/2025/06/19/manchester-city-rule-break-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/dining/healthy-no-cook-vegetarian-recipes.html
 **Former Interpol Official Detained for Role in ‘Big Carousel’ of Corruption**\
 `The official led a powerful and highly sensitive commission at Interpol’s headquarters in Lyon, France.`\
 https://nytimes.com/2025/06/19/world/middleeast/interpol-corruption-former-official-detained.html
-
-**Oil Tanker Collision Near Strait of Hormuz Raises Security Fears**\
-`The accident, which the United Arab Emirates said was unrelated to the conflict between Israel and Iran, comes amid increased reports of GPS jamming.`\
-https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
 
