@@ -1,3 +1,11 @@
+**LSU to meet Coastal Carolina in CWS final after Tigers' walk-off win**\
+`No. 6 LSU won 6-5 in walk-off fashion with three runs in the bottom of the ninth — all with two outs — against No. 3 Arkansas.`\
+https://nytimes.com/athletic/6436855/2025/06/18/lsu-coastal-carolina-college-world-series-finals-set/
+
+**Iranians mostly lost internet access on the sixth day of Israeli strikes.**\
+`The shutdown appears to be the result of an internal decision rather than a consequence of an Israeli strike.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iranians-mostly-lost-internet-access-on-the-sixth-day-of-israeli-strikes
+
 **'Failure is part of the sport': Carlos Correa works to adjust swing amid June struggles**\
 `The Minnesota Twins shortstop continues to appreciate the process of figuring it out.`\
 https://nytimes.com/athletic/6436640/2025/06/18/twins-carlos-correa-swing-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436662/2025/06/18/club-world-cup-weather-delay-sal
 **'We have to see the results': Mets waiting on Francisco Alvarez and his swing change**\
 `The Mets have lost four straight entering Wednesday, and Alvarez’s lack of production is under the microscope.`\
 https://nytimes.com/athletic/6436631/2025/06/18/mets-rancisco-alvarez-swing-change/
-
-**Al-Hilal have riches on and off the field - and an outside shot at the Club World Cup**\
-`People seem to have slept on a PIF team in a PIF-backed tournament having a shot, an outside shot but a shot nonetheless`\
-https://nytimes.com/athletic/6436538/2025/06/18/al-hilal-club-world-cup/
-
-**CFP leadership says there's no leading contender for Playoff format in 2026**\
-`"The format could be a lot different in '26 or it may be the same," the CFP executive director said.`\
-https://nytimes.com/athletic/6436485/2025/06/18/college-football-playoff-schedule-strength-selection-meetings/
 

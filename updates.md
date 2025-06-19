@@ -1,3 +1,11 @@
+**LSU to meet Coastal Carolina in CWS final after Tigers' walk-off win**\
+`No. 6 LSU won 6-5 in walk-off fashion with three runs in the bottom of the ninth — all with two outs — against No. 3 Arkansas.`\
+https://nytimes.com/athletic/6436855/2025/06/18/lsu-coastal-carolina-college-world-series-finals-set/
+
+**Iranians mostly lost internet access on the sixth day of Israeli strikes.**\
+`The shutdown appears to be the result of an internal decision rather than a consequence of an Israeli strike.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iranians-mostly-lost-internet-access-on-the-sixth-day-of-israeli-strikes
+
 **'Failure is part of the sport': Carlos Correa works to adjust swing amid June struggles**\
 `The Minnesota Twins shortstop continues to appreciate the process of figuring it out.`\
 https://nytimes.com/athletic/6436640/2025/06/18/twins-carlos-correa-swing-struggles/
