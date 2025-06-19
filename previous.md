@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6436485/2025/06/18/college-football-playoff-schedul
 https://nytimes.com/athletic/6435980/2025/06/18/lionel-messi-injury/
 
 **Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
-`As President Trump ponders swift military action in Iran, there were similar expectations that the war in Iraq would be quick and triumphant.`\
+`President Trump is pondering swift military action in Iran. There were similar expectations that the war in Iraq would be quick and triumphant.`\
 https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
 
 **For Tennessee’s Transgender Families, the Court Ruling Was Bitter, but Expected**\

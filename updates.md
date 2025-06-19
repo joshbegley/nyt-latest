@@ -1,3 +1,7 @@
+**Trump, Iran and the Specter of Iraq: ‘We Bought All the Happy Talk’**\
+`President Trump is pondering swift military action in Iran. There were similar expectations that the war in Iraq would be quick and triumphant.`\
+https://nytimes.com/2025/06/18/us/politics/trump-iran-iraq.html
+
 **CFP leadership says there's no leading contender for Playoff format in 2026**\
 `"The format could be a lot different in '26 or it may be the same," the CFP executive director said.`\
 https://nytimes.com/athletic/6436485/2025/06/18/college-football-playoff-schedule-strength-selection-meetings/
