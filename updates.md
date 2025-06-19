@@ -1,3 +1,7 @@
+**Chris Sale tosses near complete-game shutout as Braves clinch series vs. Mets**\
+`Sale’s bid for a repeat Cy Young Award was further strengthened with an overwhelming 8 2/3 innings.`\
+https://nytimes.com/athletic/6436936/2025/06/19/chris-sale-braves-mets/
+
 **Dodgers to announce plans to assist immigrants impacted by ICE: Sources**\
 `It is expected to be the organization's first official response to the raids, which have spawned massive protests throughout the U.S.`\
 https://nytimes.com/athletic/6436944/2025/06/19/los-angeles-dodgers-immigrant-assistance/
