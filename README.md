@@ -1,3 +1,15 @@
+**César Montes powers Mexico past Suriname to make Gold Cup knockout stage**\
+`Though El Tri is already in the quarterfinals, it'll look to top the group with a win over Costa Rica in the final group-stage match Sunday.`\
+https://nytimes.com/athletic/6436869/2025/06/19/mexico-suriname-gold-cup-results-analysis/
+
+**Ben Stokes, leadership and the poisoned chalice that is the England captaincy**\
+`Those who have experienced life leading the national team are united in praise of Stokes and the way he has embraced 'the impossible job'`\
+https://nytimes.com/athletic/6424053/2025/06/19/england-captain-stokes-hussain-gower-gooch/
+
+**How do you solve a problem like Harvey Elliott?**\
+`The Liverpool No 10 is well-regarded but has remained a peripheral figure, leaving his future uncertain`\
+https://nytimes.com/athletic/6434820/2025/06/19/harvey-elliott-liverpool-transfer-options/
+
 **Cuesta's move echoes ambition of Arteta, but what next for Arsenal?**\
 `In a perfect world, coaching changes happen when planned, with smooth transitions, but football doesn’t often work like that`\
 https://nytimes.com/athletic/6435648/2025/06/19/carlos-cuesta-arsenal-arteta/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6436069/2025/06/19/estevao-chelsea-amusement-park/
 **That name you keep hearing: Hugo Ekitike. Exactly how good is the Chelsea and Man Utd target?**\
 `His dribbling is up there with Mbappe, but what about the 22-year-old French striker's finishing and the other facets of his game? `\
 https://nytimes.com/athletic/6434472/2025/06/19/hugo-ekitike-how-good-is-he/
-
-**PSG's strategic 'Paris' branding is a masterstroke - but do they have star power to break the U.S.?**\
-`The French club has links with the NFL and Air Jordan and a store on Fifth Avenue - but experts say they have a way to go to break America`\
-https://nytimes.com/athletic/6432582/2025/06/19/psgs-paris-branding-united-states/
-
-**What we're hearing about Newcastle's search for a sporting director**\
-`With Ross Wilson regarded as the early front-runner, this is what we know about Newcastle's pursuit of Paul Mitchell's replacement`\
-https://nytimes.com/athletic/6434418/2025/06/19/newcastle-sporting-director-latest/
-
-**Thursday Briefing**\
-`The prospect of U.S. strikes in Iran.`\
-https://nytimes.com/2025/06/19/briefing/strikes-iran-india-canada.html
 
