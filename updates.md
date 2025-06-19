@@ -1,3 +1,11 @@
+**Son of Author Michael Chabon Is Charged With Rape in Manhattan**\
+`Abraham Chabon, a New York University student, is accused in a criminal complaint of sexual assault. He has pleaded not guilty.`\
+https://nytimes.com/2025/06/19/nyregion/abraham-chabon-rape-sexual-assault-charge-nyu-student.html
+
+**Why Higher Oil Prices May Not Change U.S. Energy Policy**\
+`The energy crisis of the 1970s suggests that higher oil prices are unlikely to significantly shift U.S. energy policy away from fossil fuels.`\
+https://nytimes.com/2025/06/19/climate/oil-prices-climate-change-fossil-fuels.html
+
 **Whitecaps make offer for Canada, Fulham rising talent Luc De Fougerolles**\
 `Luc De Fougerolles is eyeing first-team minutes to improve his World Cup stock. Might they come in MLS?`\
 https://nytimes.com/athletic/6438228/2025/06/19/luc-de-fougerolles-vancouver-whitecaps-canada-fulham-mls/
