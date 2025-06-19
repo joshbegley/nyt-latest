@@ -1,3 +1,11 @@
+**Why Israelis Fear the Prospect of a Nuclear-Armed Iran**\
+`Much of the world views Iran’s nuclear program with alarm, and experts say its stockpile of highly enriched uranium has grown fast.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-nuclear-iran-threat.html
+
+**Maresca to reach out to Mudryk after FA charge of breaching anti-doping rules**\
+`Mudryk has not featured for Chelsea since being provisionally suspended in December following an "adverse finding in a routine urine test".`\
+https://nytimes.com/athletic/6438589/2025/06/19/mudryk-chelsea-ban-doping/
+
 **Son of Author Michael Chabon Is Charged With Rape in Manhattan**\
 `Abraham Chabon, a New York University student, is accused in a criminal complaint of sexual assault. He has pleaded not guilty.`\
 https://nytimes.com/2025/06/19/nyregion/abraham-chabon-rape-sexual-assault-charge-nyu-student.html

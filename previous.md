@@ -1,3 +1,11 @@
+**Why Israelis Fear the Prospect of a Nuclear-Armed Iran**\
+`Much of the world views Iran’s nuclear program with alarm, and experts say its stockpile of highly enriched uranium has grown fast.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-nuclear-iran-threat.html
+
+**Maresca to reach out to Mudryk after FA charge of breaching anti-doping rules**\
+`Mudryk has not featured for Chelsea since being provisionally suspended in December following an "adverse finding in a routine urine test".`\
+https://nytimes.com/athletic/6438589/2025/06/19/mudryk-chelsea-ban-doping/
+
 **Son of Author Michael Chabon Is Charged With Rape in Manhattan**\
 `Abraham Chabon, a New York University student, is accused in a criminal complaint of sexual assault. He has pleaded not guilty.`\
 https://nytimes.com/2025/06/19/nyregion/abraham-chabon-rape-sexual-assault-charge-nyu-student.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6438347/2025/06/19/wild-trade-tiers-offseason/
 **City CEO praises Club World Cup: 'It was very much needed'**\
 `"Soccer is a global sport and we have to make it global," Soriano added.`\
 https://nytimes.com/athletic/6438507/2025/06/19/manchester-city-club-world-cup-soriano/
-
-**Marijuana’s Links to Heart Attack and Stroke Are Becoming Clearer**\
-`The evidence is stacking up that the drug is associated with a greater likelihood of heart problems.`\
-https://nytimes.com/2025/06/19/well/marijuana-heart-health-risks.html
-
-**Man City fined more than £1m by Premier League for late kick-offs**\
-`City have accepted and apologised for nine breaches of Premier League rule L.33, relating to late kick-offs throughout the 2024-25 campaign.`\
-https://nytimes.com/athletic/6438344/2025/06/19/manchester-city-rule-break-premier-league/
 
