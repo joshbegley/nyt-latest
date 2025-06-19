@@ -1,3 +1,15 @@
+**In Crisis With Iran, U.S. Military Officials Focus on Strait of Hormuz**\
+`Pentagon officials are trying to prepare for all of the ways Iran could retaliate, as President Trump hints at what he might do.`\
+https://nytimes.com/2025/06/19/us/politics/iran-us-military-strait-of-hormuz.html
+
+**‘KPop Demon Hunters’ Review: Singing, Slinging and Slashing**\
+`Beyond the somewhat silly premise of this Netflix animated film is a charming, funny and artfully punchy original universe.`\
+https://nytimes.com/2025/06/19/movies/kpop-demon-hunters-review.html
+
+**Our Summer 100 Is Here!**\
+`As is Eric Kim’s dak bulgogi, or Korean BBQ chicken, a super-easy take on a super-delicious dish.`\
+https://nytimes.com/2025/06/19/dining/healthy-kbbq-chicken-recipe-and-more-summer-cooking-ideas.html
+
 **Earth’s Largest Camera Takes 3 Billion-Pixel Images of the Night Sky**\
 `At the heart of the new Vera C. Rubin Observatory is a digital camera that will create an unparalleled map of the cosmos.`\
 https://nytimes.com/interactive/2025/06/19/science/rubin-observatory-camera.html
