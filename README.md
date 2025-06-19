@@ -1,3 +1,15 @@
+**Iranian Missile Hits Israeli Hospital as Trump Appears to Put Off U.S. Action**\
+`President Trump said he would decide within two weeks whether the United States would intervene militarily in the war against Iran, according to the White House press secretary.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-hospital-iran-trump.html
+
+**Hurricane Erick Makes Landfall In Mexico**\
+`On Thursday morning, Hurricane Erick hit Mexico’s southern coastline as a Category 3 storm, damaging businesses and homes.`\
+https://nytimes.com/video/world/americas/100000010239239/hurricane-erick-mexico.html
+
+**Bublik beats Sinner in Germany to end 49-match streak**\
+`Sinner had not lost to a player not named Carlos Alcaraz since summer 2024.`\
+https://nytimes.com/athletic/6438745/2025/06/19/tennis-bublik-sinner-alcaraz/
+
 **How the Supreme Court’s Transgender Ruling Reveals a Shift**\
 `In its biggest ruling of the term, the Supreme Court on Wednesday upheld a Tennessee law that prohibits some medical treatments for transgender youths, shielding similar laws in more than 20 other states.`\
 https://nytimes.com/video/us/politics/100000010237276/supreme-courts-transgender-ruling-reveals-a-shift.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
 **Israel struck an inactive Iranian nuclear site.**\
 `By Bora Erden`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-struck-an-inactive-iranian-nuclear-site.html
-
-**Netanyahu says Israel doesn’t need help to reach its goals in Iran.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/netanyahu-says-israel-doesnt-need-help-to-reach-its-goals-in-iran
-
-**They Followed a Truck for 300 Miles. Then They Stole $100 Million in Jewelry.**\
-`Seven men have been indicted in the July 2022 theft at a rest stop north of Los Angeles, which federal prosecutors believe was the largest jewelry heist in United States history.`\
-https://nytimes.com/2025/06/19/us/jewelry-heist-brinks-truck-california-indictment.html
-
-**Karen Read Acquittal Exposes Flaws in Police Practices, Supporters and Critics Say**\
-`Both sides agreed that the investigation into the death of Ms. Read’s boyfriend, a Boston police officer, was flawed and plagued by unethical and unprofessional conduct.`\
-https://nytimes.com/2025/06/19/us/karen-read-trial-police-investigation.html
 
