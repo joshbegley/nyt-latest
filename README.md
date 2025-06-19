@@ -1,3 +1,11 @@
+**Cuesta appointed Parma head coach after Arsenal exit**\
+`The Arsenal coach will take on his first senior head coach role at the Serie A club.`\
+https://nytimes.com/athletic/6402245/2025/06/19/arsenal-coach-carlos-cuesta-parma-manager/
+
+**Celebrating Giants broadcaster Duane Kuiper, the ultimate teammate, on his 75th birthday**\
+`"If you're on his team, he's looking out for you," Kuiper's eldest child said, echoing tributes from others in his life.`\
+https://nytimes.com/athletic/6437102/2025/06/19/sf-giants-duane-kuiper-75th-birthday-tribute/
+
 **The Supreme Court Fails to See Transgender Teens**\
 `The retrenchment on transgender rights is fueled by fear: fear of the future, fear of unfamiliar concepts, fear of not knowing one’s child.`\
 https://nytimes.com/2025/06/19/opinion/the-supreme-court-fails-to-see-transgender-teens.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/business/media/cannes-lions-uta-michael-kassan-me
 **In Crisis With Iran, U.S. Military Officials Focus on Strait of Hormuz**\
 `Pentagon officials are trying to prepare for all of the ways Iran could retaliate, as President Trump hints at what he might do.`\
 https://nytimes.com/2025/06/19/us/politics/iran-us-military-strait-of-hormuz.html
-
-**‘KPop Demon Hunters’ Review: Singing, Slinging and Slashing**\
-`Beyond the somewhat silly premise of this Netflix animated film is a charming, funny and artfully punchy original universe.`\
-https://nytimes.com/2025/06/19/movies/kpop-demon-hunters-review.html
-
-**Our Summer 100 Is Here!**\
-`As is Eric Kim’s dak bulgogi, or Korean BBQ chicken, a super-easy take on a super-delicious dish.`\
-https://nytimes.com/2025/06/19/dining/healthy-kbbq-chicken-recipe-and-more-summer-cooking-ideas.html
 

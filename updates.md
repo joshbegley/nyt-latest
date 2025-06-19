@@ -1,3 +1,7 @@
+**The Supreme Court Fails to See Transgender Teens**\
+`The retrenchment on transgender rights is fueled by fear: fear of the future, fear of unfamiliar concepts, fear of not knowing one’s child.`\
+https://nytimes.com/2025/06/19/opinion/the-supreme-court-fails-to-see-transgender-teens.html
+
 **Edward Anders, Who Duped Nazis and Illuminated the Cosmos, Dies at 98**\
 `His research unraveled mysteries about the solar system and the demise of the dinosaurs. In retirement, he turned his attention to the Holocaust.`\
 https://nytimes.com/2025/06/19/science/space/edward-anders-dead.html
