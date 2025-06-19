@@ -1,3 +1,7 @@
+**Iranian Missile Hits Hospital in Southern Israel**\
+`The strike highlighted the risks to civilians in Israel and Iran after days of fighting between the two nations.`\
+https://nytimes.com/2025/06/19/world/middleeast/iran-missile-israel-hospital.html
+
 **Hurricane Erick Expected to Make Landfall in Mexico as a Category 4 Storm**\
 `Erick set off flash floods in the states of Oaxaca and Guerrero. A stretch of the Pacific coastline, including Acapulco, was under a hurricane warning.`\
 https://nytimes.com/2025/06/19/world/americas/hurricane-erick-mexico-landfall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/crosswords/spelling-bee-forum.html
 **Alonso's first Real Madrid game analysed: Alexander-Arnold's debut but no Mbappe**\
 `A new era is under way for the Madrid club and there was plenty we could learn as they began their Club World Cup campaign`\
 https://nytimes.com/athletic/6436847/2025/06/19/xabi-alonso-real-madrid-al-hilal/
-
-**Word of the Day: taciturn**\
-`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
 
