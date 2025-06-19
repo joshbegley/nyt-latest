@@ -3,7 +3,7 @@
 https://nytimes.com/2025/06/18/opinion/iran-trump-fordo.html
 
 **Padres' Michael King (nerve issue) to remain out through All-Star break**\
-`The headliner of San Diego’s return in its trade of star outfielder Juan Soto, King logged 173 2/3 innings and a 2.95 ERA last season.`\
+`The headliner of San Diego's return in its trade of star outfielder Juan Soto, King logged 173 2/3 innings and a 2.95 ERA last season.`\
 https://nytimes.com/athletic/6436742/2025/06/18/padres-michael-king-health-update/
 
 **Inter Miami's Busquets disappointed with MLS roster rules, financial limitations**\
