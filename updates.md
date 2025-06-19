@@ -1,3 +1,19 @@
+**U.S. Spy Agencies Assess Iran Remains Undecided on Building a Bomb**\
+`U.S. intelligence officials said Iran was likely to pivot toward producing a nuclear weapon if the U.S. attacked a main uranium enrichment site, or if Israel killed its supreme leader.`\
+https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html
+
+**Juneteenth Holiday Goes Uncelebrated at White House**\
+`President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States. Lesser occasions routinely garner official proclamations.`\
+https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
+
+**There's a 'good chance' Frankie Montas joins Mets' rotation next week**\
+`Montas allowed five earned runs in five innings for Triple-A Syracuse on June 18.`\
+https://nytimes.com/athletic/6438974/2025/06/19/ny-mets-frankie-montas-rotation-return/
+
+**Police Investigate Threats to Mamdani in Mayoral Race’s Final Days**\
+`Voice mail messages promising violence against Zohran Mamdani, a progressive Democrat, came as attacks on politicians, judges and other government officials have skyrocketed.`\
+https://nytimes.com/2025/06/19/nyregion/zohran-mamdani-threats-nypd-investigation.html
+
 **Phillies' Nick Castellanos says benching, remark to manager Rob Thomson is behind him**\
 `Defensive concerns prompted Phillies manager Rob Thomson to lift Nick Castellanos against the Marlins on Monday.`\
 https://nytimes.com/athletic/6438982/2025/06/19/philadelphia-phillies-nick-castellanos-benching-comments/
