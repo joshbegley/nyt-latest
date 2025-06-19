@@ -1,3 +1,27 @@
+**A Plea for a Petite Plate**\
+`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Max Yoon, age 17.`\
+https://nytimes.com/2025/06/19/learning/a-plea-for-a-petite-plate.html
+
+**Timed Tests Don’t Measure Aptitude, They Measure Speed and Memorization**\
+`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Claire Mauney, age 16.`\
+https://nytimes.com/2025/06/19/learning/timed-tests-dont-measure-aptitude-they-measure-speed-and-memorization.html
+
+**Senators sign Fabian Zetterlund to 3-year extension**\
+`Zetterlund scored 19 goals and 41 points in 84 games played last season, suiting up for the San Jose Sharks and the Senators.`\
+https://nytimes.com/athletic/6422408/2025/06/19/senators-zetterlund-contract-extension/
+
+**Southampton owner Solak open to investors, 'selling the club never on my mind'**\
+`Southampton were relegated from the Premier League in April but Solak says a sale “is not part of any plan”.`\
+https://nytimes.com/athletic/6437491/2025/06/19/dragan-solak-southampton-investment-sale/
+
+**‘28 Years Later’ Review: Danny Boyle Revives His Monsters**\
+`The director returns to the postapocalyptic Britain he conjured in his 2002 movie “28 Days Later,” this time with a father and son running from flesh-eaters. Mom joins in, too.`\
+https://nytimes.com/2025/06/19/movies/28-years-later-review-danny-boyle.html
+
+**‘Elio’ Review: Pixar’s Fantastical, Familiar World**\
+`An orphaned boy is whisked away on a visually wondrous cosmic adventure, but he returns home with mostly reassuring lessons.`\
+https://nytimes.com/2025/06/19/movies/elio-review-pixar.html
+
 **Why Buss family sale of Lakers is a new dawn for NBA ownership**\
 `The Lakers have always had swagger. But Mark Walter's Dodgers have shown that the best part about being rich is acting like it.`\
 https://nytimes.com/athletic/6436802/2025/06/19/lakers-jeanie-buss-mark-walter-nba-ownership/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6435912/2025/06/19/flyers-daniel-briere-nhl-draft-p
 **Trump Administration Live Updates: U.S. to Examine Social Media Posts of Student Visa Applicants**\
 ``\
 https://nytimes.com/live/2025/06/19/us/trump-news
-
-**Pete Crow-Armstrong's offensive breakout overshadowing special defensive season**\
-`“He’s playing at as high a level as I’ve seen a center fielder play,” Cubs manager Craig Counsell said of Crow-Armstrong.`\
-https://nytimes.com/athletic/6436591/2025/06/19/cubs-pete-crow-armstrong-offense-defense/
-
-**Why MarShawn Lloyd can be Packers' X-factor RB after injury-plagued rookie season**\
-`Injuries limited Lloyd to playing only one game as a rookie, but the Packers have high hopes for the 2024 third-round pick.`\
-https://nytimes.com/athletic/6435152/2025/06/19/marshawn-lloyd-packers-running-back/
-
-**Canucks offseason primer: Cap space, trade chips, UFA targets and more**\
-`This is a critical offseason for a Canucks team coming off a disappointing 2024-25 season.`\
-https://nytimes.com/athletic/6422949/2025/06/19/canucks-trade-cap-ufa-targets-primer-2025/
-
-**Why the Giants had to trade Kyle Harrison for Rafael Devers**\
-`If there's safety in hoarding prospects, there's safety in the right trade, too.`\
-https://nytimes.com/athletic/6435564/2025/06/19/why-giants-traded-kyle-harrison-rafael-devers/
-
-**Could Nik Bonitto have a new contract on the horizon? Broncos mailbag**\
-`Plus, breakout candidates to watch on both sides of the ball, progress report on rookie WR Pat Bryant, what to expect from RBs and more.`\
-https://nytimes.com/athletic/6435022/2025/06/19/broncos-nik-bonitto-jk-dobbins-rj-harvey/
-
-**Jets at 2025 NHL Draft: Evaluating 12 options for Winnipeg with pick No. 28**\
-`Who is likely to be available when the Jets pick at No. 28? Who should Winnipeg choose? We analyze 12 options.`\
-https://nytimes.com/athletic/6429742/2025/06/19/winnipeg-jets-2025-nhl-draft-options/
 

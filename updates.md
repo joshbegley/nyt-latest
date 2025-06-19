@@ -1,3 +1,7 @@
+**Why Buss family sale of Lakers is a new dawn for NBA ownership**\
+`The Lakers have always had swagger. But Mark Walter's Dodgers have shown that the best part about being rich is acting like it.`\
+https://nytimes.com/athletic/6436802/2025/06/19/lakers-jeanie-buss-mark-walter-nba-ownership/
+
 **Cowboys mailbag: Optimism about Dak Prescott? Trevon Diggs' future? Summer standouts?**\
 `With CeeDee Lamb and George Pickens, does Dak Prescott have the best receiving duo of his career?`\
 https://nytimes.com/athletic/6435637/2025/06/19/cowboys-dak-prescott-trevon-diggs-mailbag/

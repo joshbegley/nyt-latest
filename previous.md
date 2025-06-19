@@ -1,3 +1,7 @@
+**Why Buss family sale of Lakers is a new dawn for NBA ownership**\
+`The Lakers have always had swagger. But Mark Walter's Dodgers have shown that the best part about being rich is acting like it.`\
+https://nytimes.com/athletic/6436802/2025/06/19/lakers-jeanie-buss-mark-walter-nba-ownership/
+
 **Cowboys mailbag: Optimism about Dak Prescott? Trevon Diggs' future? Summer standouts?**\
 `With CeeDee Lamb and George Pickens, does Dak Prescott have the best receiving duo of his career?`\
 https://nytimes.com/athletic/6435637/2025/06/19/cowboys-dak-prescott-trevon-diggs-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6435022/2025/06/19/broncos-nik-bonitto-jk-dobbins-r
 **Jets at 2025 NHL Draft: Evaluating 12 options for Winnipeg with pick No. 28**\
 `Who is likely to be available when the Jets pick at No. 28? Who should Winnipeg choose? We analyze 12 options.`\
 https://nytimes.com/athletic/6429742/2025/06/19/winnipeg-jets-2025-nhl-draft-options/
-
-**Blackhawks offseason primer: What to expect from draft, free agency, buyouts**\
-`With the NHL offseason officially underway, here's what Blackhawks fans can expect to see over the next few weeks.`\
-https://nytimes.com/athletic/6436360/2025/06/19/blackhawks-offseason-primer-draft-free-agency-buyouts/
 
