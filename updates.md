@@ -1,3 +1,7 @@
+**Marijuana’s Links to Heart Attack and Stroke Are Becoming Clearer**\
+`The evidence is stacking up that the drug is associated with a greater likelihood of heart problems.`\
+https://nytimes.com/2025/06/19/well/marijuana-heart-health-risks.html
+
 **Man City fined more than £1m by Premier League for late kick-offs**\
 `City have accepted and apologised for nine breaches of Premier League rule L.33, relating to late kick-offs throughout the 2024-25 campaign.`\
 https://nytimes.com/athletic/6438344/2025/06/19/manchester-city-rule-break-premier-league/
