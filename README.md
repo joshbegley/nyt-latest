@@ -1,3 +1,7 @@
+**TikTok Hits Cannes, Where a U.S. Ban Seems a Distant Dream**\
+`TikTok executives hosted happy hours and played pickleball with influencers on the French Riviera this week, even as a U.S. ban loomed over the company.`\
+https://nytimes.com/2025/06/19/business/media/tiktok-cannes-shou-chew.html
+
 **Rockets reach multi-year extension with Ime Udoka: Sources**\
 `Since arriving from Boston prior to the 2023-24 season, Udoka has rapidly reshaped the Rockets' culture.`\
 https://nytimes.com/athletic/6438392/2025/06/19/rockets-ime-udoka-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
 **As talk grows of regime change in Iran, here’s a look at the 1953 coup that helped reshape the Middle East.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/as-talk-grows-of-regime-change-in-iran-heres-a-look-at-the-1953-coup-that-helped-reshape-the-middle-east
-
-**A Tree Trimmer’s Front-Row Seat to Trump’s Impromptu Iran Remarks**\
-`Any other president might have discussed a potential Iran strike in an Oval Office address or in a formal news conference. Mr. Trump did it while hanging with a crew of guys at a job site.`\
-https://nytimes.com/2025/06/19/us/trump-iran-questions-white-house-tree-trimmers.html
 
