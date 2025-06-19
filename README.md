@@ -1,3 +1,7 @@
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Has watching sports on TV gotten too expensive? Why did the Stanley Cup Final struggle with viewership? Ask our expert your media questions.`\
+https://nytimes.com/athletic/6438142/2025/06/19/richard-deitsch-sports-media-mailbag-june-2025/
+
 **William Cran, Documentarian of Global Issues, Dies at 79**\
 `He had a hand in more than 50 films, many for PBS’s “Frontline,” including a series on the English language and an exploration of J. Edgar Hoover’s secret life.`\
 https://nytimes.com/2025/06/19/movies/william-cran-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/arts/music/the-comet-poppea-review.html
 **Two-time Wimbledon champion Petra Kvitova will retire from tennis after U.S. Open**\
 `Kvitová has 31 singles titles to her name, and reached a career high of world No. 2.`\
 https://nytimes.com/athletic/6437841/2025/06/19/tennis-petra-kvitova-retirement/
-
-**Fed’s ‘Wait-and-See’ Approach Keeps It on Collision Course With Trump**\
-`The central bank signals little urgency to cut interest rates despite demands from President Trump for lower borrowing costs.`\
-https://nytimes.com/2025/06/19/business/fed-interest-rates-trump-powell.html
 
