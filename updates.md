@@ -1,3 +1,11 @@
+**The Bounce: Does the Lakers' big-money sale to Dodgers owner mean big changes are imminent?**\
+`No sports franchise has ever sold for more money than the Lakers' $10 billion tag. What changes should we expect?`\
+https://nytimes.com/athletic/6437437/2025/06/19/lakers-dodgers-buss-family-sale-nba-the-bounce/
+
+**Madrid's Mbappe hospitalised with acute gastroenteritis**\
+`Mbappe missed Madrid's first Club World Cup group game due to the illness and will remain in hospital for treatment.`\
+https://nytimes.com/athletic/6437759/2025/06/19/kylian-mbappe-hospital-illness-madrid/
+
 **Juventus announce new €408m deal with Adidas**\
 `Though the value of the deal is the same as the previous one, it is actually worth less per season for the Serie A club.`\
 https://nytimes.com/athletic/6437603/2025/06/19/juventus-adidas-deal-sponsor/
