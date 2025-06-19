@@ -1,3 +1,15 @@
+**Iranian Missile Hits Israeli Hospital as Trump Appears to Put Off U.S. Action**\
+`President Trump said he would decide within two weeks whether the United States would intervene militarily in the war against Iran, according to the White House press secretary.`\
+https://nytimes.com/2025/06/19/world/middleeast/israel-hospital-iran-trump.html
+
+**Hurricane Erick Makes Landfall In Mexico**\
+`On Thursday morning, Hurricane Erick hit Mexico’s southern coastline as a Category 3 storm, damaging businesses and homes.`\
+https://nytimes.com/video/world/americas/100000010239239/hurricane-erick-mexico.html
+
+**Bublik beats Sinner in Germany to end 49-match streak**\
+`Sinner had not lost to a player not named Carlos Alcaraz since summer 2024.`\
+https://nytimes.com/athletic/6438745/2025/06/19/tennis-bublik-sinner-alcaraz/
+
 **How the Supreme Court’s Transgender Ruling Reveals a Shift**\
 `In its biggest ruling of the term, the Supreme Court on Wednesday upheld a Tennessee law that prohibits some medical treatments for transgender youths, shielding similar laws in more than 20 other states.`\
 https://nytimes.com/video/us/politics/100000010237276/supreme-courts-transgender-ruling-reveals-a-shift.html

@@ -1,3 +1,7 @@
+**For Trump, ‘Two Weeks’ Is the Magic Number**\
+`“Two weeks” is one of President Trump’s favorite units of time. It can mean something, or nothing at all.`\
+https://nytimes.com/2025/06/19/world/middleeast/trump-iran-two-weeks.html
+
 **Iranian Missile Hits Israeli Hospital as Trump Appears to Put Off U.S. Action**\
 `President Trump said he would decide within two weeks whether the United States would intervene militarily in the war against Iran, according to the White House press secretary.`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-hospital-iran-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438493/2025/06/19/canucks-nhl-draft-free-agency-tr
 **In Singapore, Grandmothers Dive Into Aging With a Splash**\
 `To tell the story of a demographic shift in Southeast Asia, one reporter visited a swimming complex where women in their 60s, 70s and 80s get competitive in the pool.`\
 https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
-
-**Israel struck an inactive Iranian nuclear site.**\
-`By Bora Erden`\
-https://nytimes.com/2025/06/19/world/middleeast/israel-struck-an-inactive-iranian-nuclear-site.html
 
