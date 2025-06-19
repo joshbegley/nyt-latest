@@ -1,3 +1,11 @@
+**How the Supreme Court’s Transgender Ruling Reveals a Shift**\
+`In its biggest ruling of the term, the Supreme Court on Wednesday upheld a Tennessee law that prohibits some medical treatments for transgender youths, shielding similar laws in more than 20 other states.`\
+https://nytimes.com/video/us/politics/100000010237276/supreme-courts-transgender-ruling-reveals-a-shift.html
+
+**Red Sox optioning rookie Kristian Campbell to Triple A**\
+`Campbell won the AL Rookie of the Month for March/April but has struggled since a late April rib injury.`\
+https://nytimes.com/athletic/6438731/2025/06/19/kristian-campbell-red-sox-triple-a-option/
+
 **Three Restaurants Where Grandma Is (Almost) Always Cooking**\
 `Your grandmother’s cooking doesn’t stand a chance against La Morada, Fried Dumpling and Nonna Dora’s.`\
 https://nytimes.com/2025/06/19/dining/three-restaurants-where-grandma-is-almost-always-cooking.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/us/jewelry-heist-brinks-truck-california-indictme
 **Karen Read Acquittal Exposes Flaws in Police Practices, Supporters and Critics Say**\
 `Both sides agreed that the investigation into the death of Ms. Read’s boyfriend, a Boston police officer, was flawed and plagued by unethical and unprofessional conduct.`\
 https://nytimes.com/2025/06/19/us/karen-read-trial-police-investigation.html
-
-**Bear Whose Head Was Stuck for Two Years Is Freed**\
-`An unwelcome plastic collar was removed from around the neck of a 2-year-old bear.`\
-https://nytimes.com/2025/06/19/us/bear-lid-neck-freed-michigan.html
-
-**Why Israelis Fear the Prospect of a Nuclear-Armed Iran**\
-`Much of the world views Iran’s nuclear program with alarm, and experts say its stockpile of highly enriched uranium has grown fast.`\
-https://nytimes.com/2025/06/19/world/middleeast/israel-nuclear-iran-threat.html
 
