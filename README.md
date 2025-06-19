@@ -1,3 +1,7 @@
+**The Supreme Court Fails to See Transgender Teens**\
+`The retrenchment on transgender rights is fueled by fear: fear of the future, fear of unfamiliar concepts, fear of not knowing one’s child.`\
+https://nytimes.com/2025/06/19/opinion/the-supreme-court-fails-to-see-transgender-teens.html
+
 **Edward Anders, Who Duped Nazis and Illuminated the Cosmos, Dies at 98**\
 `His research unraveled mysteries about the solar system and the demise of the dinosaurs. In retirement, he turned his attention to the Holocaust.`\
 https://nytimes.com/2025/06/19/science/space/edward-anders-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/movies/kpop-demon-hunters-review.html
 **Our Summer 100 Is Here!**\
 `As is Eric Kim’s dak bulgogi, or Korean BBQ chicken, a super-easy take on a super-delicious dish.`\
 https://nytimes.com/2025/06/19/dining/healthy-kbbq-chicken-recipe-and-more-summer-cooking-ideas.html
-
-**Earth’s Largest Camera Takes 3 Billion-Pixel Images of the Night Sky**\
-`At the heart of the new Vera C. Rubin Observatory is a digital camera that will create an unparalleled map of the cosmos.`\
-https://nytimes.com/interactive/2025/06/19/science/rubin-observatory-camera.html
 
