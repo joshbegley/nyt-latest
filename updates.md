@@ -1,3 +1,7 @@
+**Live Updates: Israel Says Iranian Missile Strikes Hospital and Vows to Intensify Attacks**\
+`Iran struck the largest hospital in southern Israel, Israel’s military said. The hospital said it was treating several patients with mild injuries. Israel’s prime minister ordered a fierce response, the defense minister said.`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news
+
 **'Crazy' to question USMNT forward Pulisic's love for football says Weah**\
 `His decision provoked criticism, but Pulisic told a CBS podcast earlier this month that he was doing “what I felt was best for my body.”`\
 https://nytimes.com/athletic/6437148/2025/06/19/usmnt-pulisic-gold-cup-weah/

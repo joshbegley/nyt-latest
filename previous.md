@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6437148/2025/06/19/usmnt-pulisic-gold-cup-weah/
 `By Adam Rasgon, Ephrat Livni and David E. Sanger`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/heres-the-latest
 
-**Live Updates: Israel Vows to Intensify Attacks After Iranian Missile Strikes Hospital**\
+**Live Updates: Israel Says Iranian Missile Strikes Hospital and Vows to Intensify Attacks**\
 `Iran struck the largest hospital in southern Israel, Israel’s military said. The hospital said it was treating several patients with mild injuries. Israel’s prime minister ordered a fierce response, the defense minister said.`\
 https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news
 
