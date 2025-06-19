@@ -1,3 +1,11 @@
+**Juventus announce new €408m deal with Adidas**\
+`Though the value of the deal is the same as the previous one, it is actually worth less per season for the Serie A club.`\
+https://nytimes.com/athletic/6437603/2025/06/19/juventus-adidas-deal-sponsor/
+
+**Giants minicamp takeaways: Abdul Carter has potential to be game-wrecking star**\
+`With a month to go before Giants training camp, we examine Evan Neal's future, the QB depth chart, the biggest position battle and more. `\
+https://nytimes.com/athletic/6436849/2025/06/19/ny-giants-takeaways-abdul-carter-jaxson-dart/
+
 **Williams F1 team principal Vowles signs long-term contract extension**\
 `Under Vowles, Williams has experienced an upturn in fortunes with investment in its facilities and enjoyed greater success on the track.`\
 https://nytimes.com/athletic/6437683/2025/06/19/james-vowles-williams-contract/
