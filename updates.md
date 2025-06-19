@@ -1,3 +1,19 @@
+**Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
+`With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
+https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
+
+**Israel’s military says Iran struck with a missile armed with cluster munitions.**\
+`Israel accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts who reviewed videos and photographs of an attack said evidence offered support for that claim.`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions
+
+**Why 'there's no panic' about the Yankees' offense, especially Aaron Judge**\
+`Yankees hitting coach James Rowson is not worried about his hitters, including Judge, whom he called "the most dangerous man in baseball."`\
+https://nytimes.com/athletic/6438700/2025/06/19/yankees-offense-aaron-judge-hitting-woes/
+
+**Byron Buxton proves worthy of All-Star votes with another big day and more Twins takeaways**\
+`Buxton's .898 OPS is the best among qualified major-league center fielders but he's well behind All-Star fan voting.`\
+https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-votes/
+
 **U.S. Spy Agencies Assess Iran Remains Undecided on Building a Bomb**\
 `U.S. intelligence officials said Iran was likely to pivot toward producing a nuclear weapon if the U.S. attacked a main uranium enrichment site, or if Israel killed its supreme leader.`\
 https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html

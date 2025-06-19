@@ -1,3 +1,19 @@
+**Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
+`With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
+https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
+
+**Israel’s military says Iran struck with a missile armed with cluster munitions.**\
+`Israel accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts who reviewed videos and photographs of an attack said evidence offered support for that claim.`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions
+
+**Why 'there's no panic' about the Yankees' offense, especially Aaron Judge**\
+`Yankees hitting coach James Rowson is not worried about his hitters, including Judge, whom he called "the most dangerous man in baseball."`\
+https://nytimes.com/athletic/6438700/2025/06/19/yankees-offense-aaron-judge-hitting-woes/
+
+**Byron Buxton proves worthy of All-Star votes with another big day and more Twins takeaways**\
+`Buxton's .898 OPS is the best among qualified major-league center fielders but he's well behind All-Star fan voting.`\
+https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-votes/
+
 **U.S. Spy Agencies Assess Iran Remains Undecided on Building a Bomb**\
 `U.S. intelligence officials said Iran was likely to pivot toward producing a nuclear weapon if the U.S. attacked a main uranium enrichment site, or if Israel killed its supreme leader.`\
 https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6438982/2025/06/19/philadelphia-phillies-nick-caste
 **Trump Buys Himself Time, and Opens Up Some New Options**\
 `While President Trump appears to be offering one more off ramp to the Iranians, he also is bolstering his own military options.`\
 https://nytimes.com/2025/06/19/us/politics/trump-buys-time-iran-decision.html
-
-**6 Months After the Pelicot Trial, a Staging Brings Insight and Despair**\
-`The stripped-back performance, based on the rape trial that shocked France and the world, ran all night at a church in Vienna.`\
-https://nytimes.com/2025/06/19/theater/the-pelicot-trial-milo-rau-wiener-festwochen.html
-
-**Israel and Iran Continue to Exchange Attacks Into Thursday**\
-`The strikes highlight the risks to civilians in Israel and Iran after days of fighting between the two countries.`\
-https://nytimes.com/video/world/middleeast/100000010239638/iran-israel-conflict-middle-east.html
-
-**Bank Transfer Signals Syria Is Making Strides in Ending Economic Isolation**\
-`The bank-to-bank transfer using the SWIFT system was symbolically important, indicating the war-torn country was reintegrating into the global financial community.`\
-https://nytimes.com/2025/06/19/world/middleeast/syria-bank-european-transfer-swift.html
-
-**Kim Woodburn, British TV’s No-Nonsense ‘Queen of Clean,’ Dies at 83**\
-`She was a blunt and bossy domestic dominatrix on the series “How Clean Is Your House?” honing a persona as the rudest woman on reality television.`\
-https://nytimes.com/2025/06/19/arts/television/kim-woodburn-dead.html
 
