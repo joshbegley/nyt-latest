@@ -1,3 +1,15 @@
+**John Textor vs Nasser Al-Khelaifi — a French football feud that is about to go global**\
+`The two men have traded fierce insults, in person and in the press, in France. And now Textor's Botafogo face Paris Saint-Germain in L.A.`\
+https://nytimes.com/athletic/6435760/2025/06/19/botafogo-psg-textor-al-khelaifi-club-world-cup/
+
+**Estevao - the Palmeiras prodigy bound for Chelsea who sees the football pitch as his 'amusement park'**\
+`The Brazilian may be heading to Chelsea later this summer - but first he wants to make history at the Club World Cup with Palmeiras`\
+https://nytimes.com/athletic/6436069/2025/06/19/estevao-chelsea-amusement-park/
+
+**That name you keep hearing: Hugo Ekitike. Exactly how good is the Chelsea and Man Utd target?**\
+`His dribbling is up there with Mbappe, but what about the 22-year-old French striker's finishing and the other facets of his game? `\
+https://nytimes.com/athletic/6434472/2025/06/19/hugo-ekitike-how-good-is-he/
+
 **PSG's strategic 'Paris' branding is a masterstroke - but do they have star power to break the U.S.?**\
 `The French club has links with the NFL and Air Jordan and a store on Fifth Avenue - but experts say they have a way to go to break America`\
 https://nytimes.com/athletic/6432582/2025/06/19/psgs-paris-branding-united-states/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/19/business/taiwan-chips-energy-china.html
 **Corrections: June 19, 2025**\
 `Corrections that appeared in print on Thursday, June 19, 2025.`\
 https://nytimes.com/2025/06/19/pageoneplus/corrections-june-19-2025.html
-
-**Connections: Sports Edition Coach: Hints for June 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6436740/2025/06/19/connections-sports-edition-hints-for-june-19-2025/
-
-**Can You Choose an A.I. Model That Harms the Planet Less?**\
-`When it comes to artificial intelligence, more intensive computing uses more energy, producing more greenhouse gases.`\
-https://nytimes.com/2025/06/19/climate/ai-emissions-chatbot-accuracy.html
-
-**Quote of the Day: Her Best Sellers Are Only Icing On the Cupcake**\
-`Quotation of the Day for Thursday, June 19, 2025`\
-https://nytimes.com/2025/06/18/pageoneplus/quote-of-the-day-her-best-sellers-are-only-icing-on-the-cupcake.html
 
