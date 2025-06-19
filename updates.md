@@ -1,3 +1,11 @@
+**Club World Cup odds: PSG favoured to win after Real Madrid draw in opener**\
+`Every team in the Club World Cup has played once. The odds haven't moved much since the start of the tournament, with European teams up top.`\
+https://nytimes.com/athletic/6438011/2025/06/19/club-world-cup-odds-psg-real-madrid/
+
+**All-Pro linebacker C.J. Mosley retires from NFL**\
+`The Jets cut Mosley this offseason after injuries last season limited him to just four games.`\
+https://nytimes.com/athletic/6437976/2025/06/19/cj-mosley-retirement-jets-ravens/
+
 **Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
 `Has watching sports on TV gotten too expensive? Why did the Stanley Cup Final struggle with viewership? Ask our expert your media questions.`\
 https://nytimes.com/athletic/6438142/2025/06/19/richard-deitsch-sports-media-mailbag-june-2025/
