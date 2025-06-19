@@ -1,3 +1,7 @@
+**Alonso's first Real Madrid game analysed: Alexander-Arnold's debut but no Mbappe**\
+`A new era is under way for the Madrid club and there was plenty we could learn as they began their Club World Cup campaign`\
+https://nytimes.com/athletic/6436847/2025/06/19/xabi-alonso-real-madrid-al-hilal/
+
 **Word of the Day: taciturn**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
