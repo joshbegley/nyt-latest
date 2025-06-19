@@ -1,3 +1,15 @@
+**Vikings mailbag: Submit your post-OTAs and minicamp questions for Alec Lewis**\
+`The quietest time of the NFL calendar is upon us. It's the perfect time to answer some Vikings questions from the mailbag.`\
+https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minicamp/
+
+**Dodgers say they denied federal immigration officials access to stadium lots**\
+`The Dodgers, who are set to host the San Diego Padres on Thursday night, said the game will be played as scheduled.`\
+https://nytimes.com/athletic/6438709/2025/06/19/dodgers-stadium-los-angeles-ice-immigration-raids/
+
+**For Trump, ‘Two Weeks’ Is the Magic Number**\
+`“Two weeks” is one of President Trump’s favorite units of time. It can mean something, or nothing at all.`\
+https://nytimes.com/2025/06/19/world/middleeast/trump-iran-two-weeks.html
+
 **Iranian Missile Hits Israeli Hospital as Trump Appears to Put Off U.S. Action**\
 `President Trump said he would decide within two weeks whether the United States would intervene militarily in the war against Iran, according to the White House press secretary.`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-hospital-iran-trump.html

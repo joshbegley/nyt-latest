@@ -1,3 +1,15 @@
+**Vikings mailbag: Submit your post-OTAs and minicamp questions for Alec Lewis**\
+`The quietest time of the NFL calendar is upon us. It's the perfect time to answer some Vikings questions from the mailbag.`\
+https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minicamp/
+
+**Dodgers say they denied federal immigration officials access to stadium lots**\
+`The Dodgers, who are set to host the San Diego Padres on Thursday night, said the game will be played as scheduled.`\
+https://nytimes.com/athletic/6438709/2025/06/19/dodgers-stadium-los-angeles-ice-immigration-raids/
+
+**For Trump, ‘Two Weeks’ Is the Magic Number**\
+`“Two weeks” is one of President Trump’s favorite units of time. It can mean something, or nothing at all.`\
+https://nytimes.com/2025/06/19/world/middleeast/trump-iran-two-weeks.html
+
 **Iranian Missile Hits Israeli Hospital as Trump Appears to Put Off U.S. Action**\
 `President Trump said he would decide within two weeks whether the United States would intervene militarily in the war against Iran, according to the White House press secretary.`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-hospital-iran-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/19/dining/three-restaurants-where-grandma-is-almost-
 **‘America’s Sweethearts’ Is a Compelling Sports Series**\
 `Season 2 of this docuseries about the Dallas Cowboys cheerleaders is an intense look at found families and all the healing and trouble that come with them.`\
 https://nytimes.com/2025/06/19/arts/television/americas-sweethearts-dallas-cowboys-cheerleaders-netflix.html
-
-**What I'm hearing about the Canucks' positioning ahead of draft, free agency**\
-`Vancouver's path to improvement this summer won't be straightforward, and contingency plans may be needed.`\
-https://nytimes.com/athletic/6438493/2025/06/19/canucks-nhl-draft-free-agency-trade-2025/
-
-**In Singapore, Grandmothers Dive Into Aging With a Splash**\
-`To tell the story of a demographic shift in Southeast Asia, one reporter visited a swimming complex where women in their 60s, 70s and 80s get competitive in the pool.`\
-https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
-
-**Israel struck an inactive Iranian nuclear site.**\
-`By Bora Erden`\
-https://nytimes.com/2025/06/19/world/middleeast/israel-struck-an-inactive-iranian-nuclear-site.html
 
