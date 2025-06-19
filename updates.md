@@ -1,3 +1,11 @@
+**'Failure is part of the sport': Carlos Correa works to adjust swing amid June struggles**\
+`The Minnesota Twins shortstop continues to appreciate the process of figuring it out.`\
+https://nytimes.com/athletic/6436640/2025/06/18/twins-carlos-correa-swing-struggles/
+
+**An Instruction for Answering**\
+`Hannah Slovut-Einertson wants us to change.`\
+https://nytimes.com/2025/06/18/crosswords/daily-puzzle-2025-06-19.html
+
 **A hacking group steals at least $90 million from Iranian crypto exchange in cyberattack.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/06/18/world/israel-iran-trump/a-hacking-group-steals-at-least-90-million-from-iranian-crypto-exchange-in-cyberattack
