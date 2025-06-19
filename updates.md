@@ -1,3 +1,7 @@
+**Friday Briefing: Trump Appeared to Put Off U.S. Action on Iran**\
+`Plus, why “Jaws” is a model movie.`\
+https://nytimes.com/2025/06/19/briefing/trump-israel-iran-china-hacking-russia.html
+
 **Inter Miami 2 Porto 1: Messi's magical free kick lights up Club World Cup in comeback win**\
 `Messi stepped up when he was needed to seal a crucial comeback victory for Miami over Porto.`\
 https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-world-cup/

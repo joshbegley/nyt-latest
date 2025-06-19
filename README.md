@@ -1,3 +1,7 @@
+**Suchinda Kraprayoon, Thai Leader Who Set Off Bloody Protests, Dies at 91**\
+`A top general, he was appointed prime minister in 1992, a short-lived tenure that immediately incited the Black May uprising — and a violent backlash by his military.`\
+https://nytimes.com/2025/06/19/world/asia/suchinda-kraprayoon-dead.html
+
 **Friday Briefing: Trump Appeared to Put Off U.S. Action on Iran**\
 `Plus, why “Jaws” is a model movie.`\
 https://nytimes.com/2025/06/19/briefing/trump-israel-iran-china-hacking-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438745/2025/06/19/tennis-bublik-sinner-alcaraz/
 **How the Supreme Court’s Transgender Ruling Reveals a Shift**\
 `In its biggest ruling of the term, the Supreme Court on Wednesday upheld a Tennessee law that prohibits some medical treatments for transgender youths, shielding similar laws in more than 20 other states.`\
 https://nytimes.com/video/us/politics/100000010237276/supreme-courts-transgender-ruling-reveals-a-shift.html
-
-**Red Sox optioning rookie Kristian Campbell to Triple A**\
-`Campbell won the AL Rookie of the Month for March/April but has struggled since a late April rib injury.`\
-https://nytimes.com/athletic/6438731/2025/06/19/kristian-campbell-red-sox-triple-a-option/
 
