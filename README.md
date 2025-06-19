@@ -1,3 +1,11 @@
+**Red Light: How the Panthers became the NHL's unicorn. Plus: The offseason frenzy begins**\
+`What can other teams learn from the repeat Stanley Cup winners? And what in the world do the Oilers do now?`\
+https://nytimes.com/athletic/6437822/2025/06/19/nhl-red-light-newsletter-florida-panthers/
+
+**WATCH: How Jalen Williams has made the NBA Finals his coming-out party**\
+`We explain how the 24-year-old third-year wing has driven the Oklahoma City Thunder to the brink of their first championship.`\
+https://nytimes.com/athletic/6437733/2025/06/19/jalen-williams-video-thunder-nba-finals/
+
 **The Thunder's long and short path to brink of NBA title was built on remarkable stability**\
 `The Thunder are a win away from an NBA title, but those around since the beginning might be extra apprehensive until the final buzzer.`\
 https://nytimes.com/athletic/6437546/2025/06/19/oklahoma-city-thunder-pacers-nba-title-game-6/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6437437/2025/06/19/lakers-dodgers-buss-family-sale-
 **Madrid's Mbappe hospitalised with acute gastroenteritis**\
 `Mbappe missed Madrid's first Club World Cup group game due to the illness and will remain in hospital for treatment.`\
 https://nytimes.com/athletic/6437759/2025/06/19/kylian-mbappe-hospital-illness-madrid/
-
-**Juventus announce new €408m deal with Adidas**\
-`Though the value of the deal is the same as the previous one, it is actually worth less per season for the Serie A club.`\
-https://nytimes.com/athletic/6437603/2025/06/19/juventus-adidas-deal-sponsor/
-
-**Giants minicamp takeaways: Abdul Carter has potential to be game-wrecking star**\
-`With a month to go before Giants training camp, we examine Evan Neal's future, the QB depth chart, the biggest position battle and more. `\
-https://nytimes.com/athletic/6436849/2025/06/19/ny-giants-takeaways-abdul-carter-jaxson-dart/
 
