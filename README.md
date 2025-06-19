@@ -1,3 +1,11 @@
+**An Interview With Trump’s Border Czar**\
+`Tom Homan, President Trump’s border czar, speaks about his deportation strategy and why the Trump administration is only just getting started.`\
+https://nytimes.com/video/podcasts/the-daily/100000010236378/an-interview-with-trumps-border-czar.html
+
+**An Interview With Trump’s Border Czar, Tom Homan**\
+`A conversation about the administration’s deportation strategy and what is to come.`\
+https://nytimes.com/2025/06/19/podcasts/the-daily/tom-homan-ice-immigration-trump.html
+
 **Trash-Filled Caves in ‘Avatar’ Park Set Off Outrage**\
 `Piles of trash filled caves in Zhangjiajie, China, where towering limestone pillars inspired the scenery.`\
 https://nytimes.com/video/world/asia/100000010238539/int-china-caves.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/world/asia/air-india-plane-crash-flights-cuts.htm
 **'A bit weird' – Weah, McKennie and Juventus' surreal audience with Trump as he weighs Iran war**\
 `What happened during a 16-minute press briefing as Juventus players and staff listened behind Trump in the Oval Office`\
 https://nytimes.com/athletic/6436693/2025/06/19/weah-juventus-trump-iran-war/
-
-**The Progressive Regulator With Trumpist Fans**\
-`Lina Khan wants to overthrow “the autocrats of trade.”`\
-https://nytimes.com/2025/06/19/opinion/lina-khan-monopolies-trump.html
-
-**The Problem of the Christian Assassin**\
-`What would make you put down your Bible and pick up your gun?`\
-https://nytimes.com/2025/06/19/opinion/minnesota-killings-boelter.html
 
