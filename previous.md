@@ -1,3 +1,19 @@
+**Trash-Filled Caves in ‘Avatar’ Park Set Off Outrage**\
+`Piles of trash filled caves in Zhangjiajie, China, where towering limestone pillars inspired the scenery.`\
+https://nytimes.com/video/world/asia/100000010238539/int-china-caves.html
+
+**An Islamic Republic With Its Back Against the Wall**\
+`The Iranian regime finds itself in its most difficult position 46 years after the revolution that brought it to power. But does it mean the end?`\
+https://nytimes.com/2025/06/19/world/middleeast/iran-islamic-republic-regime.html
+
+**A Significant Heat Wave Will Send Temperatures Soaring Across the U.S.**\
+`Friday is the first day of summer. And boy, will it feel like it.`\
+https://nytimes.com/2025/06/19/weather/us-heat-wave-midwest-northeast-forecast.html
+
+**The New York Times International Edition in Print for Friday, June 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/19/todays-new-york-times-international-edition
+
 **Thai Premier Under Pressure to Resign in Fallout From Call With Cambodian Leader**\
 `Paetongtarn Shinawatra has been widely criticized for appearing weak in a conversation with Hun Sen, who posted a recording of their exchange on Facebook.`\
 https://nytimes.com/2025/06/19/world/asia/paetongtarn-coalition-resign-cambodia.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/19/opinion/lina-khan-monopolies-trump.html
 **The Problem of the Christian Assassin**\
 `What would make you put down your Bible and pick up your gun?`\
 https://nytimes.com/2025/06/19/opinion/minnesota-killings-boelter.html
-
-**Court Leaves States to Decide on Trans Treatments for Minors**\
-`The Supreme Court decision upholding a Tennessee ban on gender transition care for trans youths means a state-by-state patchwork of policies will remain.`\
-https://nytimes.com/2025/06/19/us/court-leaves-states-to-decide-on-trans-treatments-for-minors.html
-
-**‘The Waterfront’ Brings More Murder to Netflix**\
-`Created by Kevin Williamson, this new drama set in North Carolina is a pulpy family saga of violence and secrets, land and legacy.`\
-https://nytimes.com/2025/06/19/arts/television/the-waterfront-review.html
-
-**On the French Riviera, a Secret Resort Worth Looking For**\
-`Plus: embroidered bedding, a woodworking exhibition and more recommendations from T Magazine.`\
-https://nytimes.com/2025/06/19/t-magazine/french-riviera-resort-hotel.html
-
-**Senator Padilla: The Trump Administration Handcuffed Me, but I Refuse to Stay Silent**\
-`If this is how the administration treats a senator on camera, imagine what it could do to you.`\
-https://nytimes.com/2025/06/19/opinion/alex-padilla-removal-trump.html
 

@@ -1,3 +1,19 @@
+**Trash-Filled Caves in ‘Avatar’ Park Set Off Outrage**\
+`Piles of trash filled caves in Zhangjiajie, China, where towering limestone pillars inspired the scenery.`\
+https://nytimes.com/video/world/asia/100000010238539/int-china-caves.html
+
+**An Islamic Republic With Its Back Against the Wall**\
+`The Iranian regime finds itself in its most difficult position 46 years after the revolution that brought it to power. But does it mean the end?`\
+https://nytimes.com/2025/06/19/world/middleeast/iran-islamic-republic-regime.html
+
+**A Significant Heat Wave Will Send Temperatures Soaring Across the U.S.**\
+`Friday is the first day of summer. And boy, will it feel like it.`\
+https://nytimes.com/2025/06/19/weather/us-heat-wave-midwest-northeast-forecast.html
+
+**The New York Times International Edition in Print for Friday, June 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/19/todays-new-york-times-international-edition
+
 **Thai Premier Under Pressure to Resign in Fallout From Call With Cambodian Leader**\
 `Paetongtarn Shinawatra has been widely criticized for appearing weak in a conversation with Hun Sen, who posted a recording of their exchange on Facebook.`\
 https://nytimes.com/2025/06/19/world/asia/paetongtarn-coalition-resign-cambodia.html
