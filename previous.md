@@ -1,3 +1,7 @@
+**Inter Miami 2 Porto 1: Messi's magical free kick lights up Club World Cup in comeback win**\
+`Messi stepped up when he was needed to seal a crucial comeback victory for Miami over Porto.`\
+https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-world-cup/
+
 **Vikings mailbag: Submit your post-OTAs and minicamp questions for Alec Lewis**\
 `The quietest time of the NFL calendar is upon us. It's the perfect time to answer some Vikings questions from the mailbag.`\
 https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minicamp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438731/2025/06/19/kristian-campbell-red-sox-triple
 **Three Restaurants Where Grandma Is (Almost) Always Cooking**\
 `Your grandmother’s cooking doesn’t stand a chance against La Morada, Fried Dumpling and Nonna Dora’s.`\
 https://nytimes.com/2025/06/19/dining/three-restaurants-where-grandma-is-almost-always-cooking.html
-
-**‘America’s Sweethearts’ Is a Compelling Sports Series**\
-`Season 2 of this docuseries about the Dallas Cowboys cheerleaders is an intense look at found families and all the healing and trouble that come with them.`\
-https://nytimes.com/2025/06/19/arts/television/americas-sweethearts-dallas-cowboys-cheerleaders-netflix.html
 

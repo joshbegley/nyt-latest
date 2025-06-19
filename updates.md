@@ -1,3 +1,7 @@
+**Inter Miami 2 Porto 1: Messi's magical free kick lights up Club World Cup in comeback win**\
+`Messi stepped up when he was needed to seal a crucial comeback victory for Miami over Porto.`\
+https://nytimes.com/athletic/6427409/2025/06/19/inter-miami-porto-messi-club-world-cup/
+
 **Vikings mailbag: Submit your post-OTAs and minicamp questions for Alec Lewis**\
 `The quietest time of the NFL calendar is upon us. It's the perfect time to answer some Vikings questions from the mailbag.`\
 https://nytimes.com/athletic/6438875/2025/06/19/vikings-mailbag-alec-lewis-minicamp/
