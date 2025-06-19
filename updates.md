@@ -1,3 +1,11 @@
+**Oilers' 3 biggest contract decisions and what they mean for the future roster**\
+`These three contracts have the potential to drastically alter the salary-cap landscape for the Oilers for years to come.`\
+https://nytimes.com/athletic/6438978/2025/06/19/oilers-contracts-mcdavid-frederic-bouchard/
+
+**Israel Says Iran Struck With Missile Armed With Cluster Munitions**\
+`Israel’s military accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts said evidence offered support for the claim.`\
+https://nytimes.com/2025/06/19/world/middleeast/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions.html
+
 **Cubs notes: Pete Crow-Armstrong fastest in team history to reach 20-20 mark**\
 `It took Crow-Armstrong 73 games to get to 20 home runs and 20 stolen bases, topping Sammy Sosa, who needed 96 games to get there in 1994.`\
 https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
