@@ -1,3 +1,7 @@
+**Hurricane Erick Expected to Make Landfall in Mexico as a Category 4 Storm**\
+`Erick set off flash floods in the states of Oaxaca and Guerrero. A stretch of the Pacific coastline, including Acapulco, was under a hurricane warning.`\
+https://nytimes.com/2025/06/19/world/americas/hurricane-erick-mexico-landfall.html
+
 **Seth Meyers Wishes Tucker Carlson and Ted Cruz Could Both Lose**\
 `The clash of conservative titans had Meyers feeling like a Roman emperor: “I just want someone to feed me grapes while I say, ‘Let them fight.’”`\
 https://nytimes.com/2025/06/19/arts/television/seth-meyers-tucker-carlson-ted-cruz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436847/2025/06/19/xabi-alonso-real-madrid-al-hilal
 **Word of the Day: taciturn**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/19/learning/word-of-the-day-taciturn.html
-
-**Chris Sale tosses near complete-game shutout as Braves clinch series vs. Mets**\
-`Sale’s bid for a repeat Cy Young Award was further strengthened with an overwhelming 8 2/3 innings.`\
-https://nytimes.com/athletic/6436936/2025/06/19/chris-sale-braves-mets/
 
