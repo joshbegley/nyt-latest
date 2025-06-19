@@ -1,3 +1,7 @@
+**Chris Sale tosses near complete-game shutout as Braves clinch series vs. Mets**\
+`Sale’s bid for a repeat Cy Young Award was further strengthened with an overwhelming 8 2/3 innings.`\
+https://nytimes.com/athletic/6436936/2025/06/19/chris-sale-braves-mets/
+
 **Club World Cup daily rankings: Don't sleep on teams beyond Europe**\
 `Rankings each of the 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/19/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436869/2025/06/19/mexico-suriname-gold-cup-results
 **Ben Stokes, leadership and the poisoned chalice that is the England captaincy**\
 `Those who have experienced life leading the national team are united in praise of Stokes and the way he has embraced 'the impossible job'`\
 https://nytimes.com/athletic/6424053/2025/06/19/england-captain-stokes-hussain-gower-gooch/
-
-**How do you solve a problem like Harvey Elliott?**\
-`The Liverpool No 10 is well-regarded but has remained a peripheral figure, leaving his future uncertain`\
-https://nytimes.com/athletic/6434820/2025/06/19/harvey-elliott-liverpool-transfer-options/
 
