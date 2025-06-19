@@ -1,3 +1,7 @@
+**A Messy Business Divorce Plays Out on the Beaches of Cannes**\
+`Michael Kassan, a ringmaster in the media industry, is going head to head at its top event with United Talent Agency, a company that has sued him.`\
+https://nytimes.com/2025/06/19/business/media/cannes-lions-uta-michael-kassan-medialink.html
+
 **In Crisis With Iran, U.S. Military Officials Focus on Strait of Hormuz**\
 `Pentagon officials are trying to prepare for all of the ways Iran could retaliate, as President Trump hints at what he might do.`\
 https://nytimes.com/2025/06/19/us/politics/iran-us-military-strait-of-hormuz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/business/fed-interest-rates-trump-powell.html
 **USMNT and Chelsea defender Caleb Wiley set to rejoin Watford on loan**\
 `Wiley spent the first half of last season on loan at Strasbourg before moving to Watford for the second half of the campaign.`\
 https://nytimes.com/athletic/6437816/2025/06/19/usmnt-and-chelsea-defender-caleb-wiley-set-to-rejoin-watford-on-loan/
-
-**In Appalachia, a Father Got Black Lung. Then His Son Did, Too.**\
-`Once nearly eradicated, the “old man’s disease” is back and suffocating younger miners than before. Federal cuts risk putting a solution further out of reach.`\
-https://nytimes.com/2025/06/19/well/black-lung-appalachia-coal-miners.html
 
