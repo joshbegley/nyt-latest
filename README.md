@@ -1,3 +1,11 @@
+**The Bounce: Does the Lakers' big-money sale to Dodgers owner mean big changes are imminent?**\
+`No sports franchise has ever sold for more money than the Lakers' $10 billion tag. What changes should we expect?`\
+https://nytimes.com/athletic/6437437/2025/06/19/lakers-dodgers-buss-family-sale-nba-the-bounce/
+
+**Madrid's Mbappe hospitalised with acute gastroenteritis**\
+`Mbappe missed Madrid's first Club World Cup group game due to the illness and will remain in hospital for treatment.`\
+https://nytimes.com/athletic/6437759/2025/06/19/kylian-mbappe-hospital-illness-madrid/
+
 **Juventus announce new €408m deal with Adidas**\
 `Though the value of the deal is the same as the previous one, it is actually worth less per season for the Serie A club.`\
 https://nytimes.com/athletic/6437603/2025/06/19/juventus-adidas-deal-sponsor/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/business/national-debt-limit-republicans.html
 **The Alexander-Arnold and Rodrygo dynamic showed Madrid's problems will take time to fix**\
 `Xabi Alonso has inherited structural issues within this Real Madrid team and some of those were exposed by Al Hilal`\
 https://nytimes.com/athletic/6437118/2025/06/19/real-madrid-tactics-al-hila-alonso/
-
-**The Things College Students Leave Behind**\
-`Readers reflect on salvaging what college students don’t take home. Also: Poetry that questions; the risks of self-driving trucks.`\
-https://nytimes.com/2025/06/19/opinion/college-students-salvage.html
-
-**3 Dead in Listeria Outbreak Tied to Chicken Pasta Sold at Walmart and Kroger**\
-`The company that made the meals issued a nationwide recall as the Centers for Disease Control and Prevention said they were linked to 17 listeria cases across 13 states.`\
-https://nytimes.com/2025/06/19/business/chicken-fettuccine-alfredo-recall-walmart-kroger.html
 
