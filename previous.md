@@ -1,3 +1,11 @@
+**They Followed a Truck for 300 Miles. Then They Stole $100 Million in Jewelry.**\
+`Seven men have been indicted in the July 2022 theft at a rest stop north of Los Angeles, which federal prosecutors believe was the largest jewelry heist in United States history.`\
+https://nytimes.com/2025/06/19/us/jewelry-heist-brinks-truck-california-indictment.html
+
+**Karen Read Acquittal Exposes Flaws in Police Practices, Supporters and Critics Say**\
+`Both sides agreed that the investigation into the death of Ms. Read’s boyfriend, a Boston police officer, was flawed and plagued by unethical and unprofessional conduct.`\
+https://nytimes.com/2025/06/19/us/karen-read-trial-police-investigation.html
+
 **Bear Whose Head Was Stuck for Two Years Is Freed**\
 `An unwelcome plastic collar was removed from around the neck of a 2-year-old bear.`\
 https://nytimes.com/2025/06/19/us/bear-lid-neck-freed-michigan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6438372/2025/06/19/cole-palmer-maresca-chelsea/
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/06/19/books/review/new-books-recommendations.html
-
-**Banning Plastic Bags Works to Limit Shoreline Litter, Study Finds**\
-`Using crowdsourced data from shore cleanups, researchers found that areas that enacted plastic bag bans or fees had fewer bags littering their lakes, rivers and beaches than those without them.`\
-https://nytimes.com/2025/06/19/climate/plastic-bag-bans-litter.html
-
-**Wild trade tiers: Besides Marco Rossi, who is most and least likely to be traded this offseason?**\
-`Breaking down the roster from "Don't Even Ask" to "Most Likely to be Traded" entering a summer in which GM Bill Guerin is out to improve.`\
-https://nytimes.com/athletic/6438347/2025/06/19/wild-trade-tiers-offseason/
 

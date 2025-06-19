@@ -1,3 +1,11 @@
+**They Followed a Truck for 300 Miles. Then They Stole $100 Million in Jewelry.**\
+`Seven men have been indicted in the July 2022 theft at a rest stop north of Los Angeles, which federal prosecutors believe was the largest jewelry heist in United States history.`\
+https://nytimes.com/2025/06/19/us/jewelry-heist-brinks-truck-california-indictment.html
+
+**Karen Read Acquittal Exposes Flaws in Police Practices, Supporters and Critics Say**\
+`Both sides agreed that the investigation into the death of Ms. Read’s boyfriend, a Boston police officer, was flawed and plagued by unethical and unprofessional conduct.`\
+https://nytimes.com/2025/06/19/us/karen-read-trial-police-investigation.html
+
 **Bear Whose Head Was Stuck for Two Years Is Freed**\
 `An unwelcome plastic collar was removed from around the neck of a 2-year-old bear.`\
 https://nytimes.com/2025/06/19/us/bear-lid-neck-freed-michigan.html

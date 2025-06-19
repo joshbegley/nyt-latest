@@ -1,3 +1,7 @@
+**Netanyahu says Israel doesn’t need help to reach its goals in Iran.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/06/19/world/iran-israel-trump-news/netanyahu-says-israel-doesnt-need-help-to-reach-its-goals-in-iran
+
 **They Followed a Truck for 300 Miles. Then They Stole $100 Million in Jewelry.**\
 `Seven men have been indicted in the July 2022 theft at a rest stop north of Los Angeles, which federal prosecutors believe was the largest jewelry heist in United States history.`\
 https://nytimes.com/2025/06/19/us/jewelry-heist-brinks-truck-california-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438228/2025/06/19/luc-de-fougerolles-vancouver-whi
 **Palmer says Maresca does give him creative freedom at Chelsea**\
 `The Englishman's comments after the Conference League final had been interpreted by some as a dig at Maresca's style of play.`\
 https://nytimes.com/athletic/6438372/2025/06/19/cole-palmer-maresca-chelsea/
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/06/19/books/review/new-books-recommendations.html
 
