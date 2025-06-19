@@ -1,3 +1,11 @@
+**Concacaf investigates Canada manager Marsch for alleged Gold Cup actions**\
+`Marsch is alleged to have "used offensive language toward Concacaf match officials" despite being suspended for Canada's rout of Honduras`\
+https://nytimes.com/athletic/6436980/2025/06/19/concacaf-investigates-canada-manager-marsch-for-alleged-gold-cup-actions/
+
+**Dodgers to announce plans to assist immigrants impacted by ICE: Sources**\
+`It is expected to be the organization’s first official response to the raids, which have spawned massive protests throughout the U.S.`\
+https://nytimes.com/athletic/6436944/2025/06/19/los-angeles-dodgers-immigrant-assistance/
+
 **Scenes From a Vigil for Victims of the Minnesota Shooting**\
 `Text by Ernesto Londoño and Jenn Ackerman`\
 https://nytimes.com/card/2025/06/19/us/minnesota-shooting-hortman-vigil
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6434670/2025/06/19/justin-cochrane-tottenham-frank-
 **The art of showboating: 'People sometimes see it as a slur - it's expressing yourself'**\
 `Showboating brings joy to fans but players often think differently about it`\
 https://nytimes.com/athletic/6434938/2025/06/19/showboating-football-soccer-dribbling-flicks/
-
-**John Textor vs Nasser Al-Khelaifi — a French football feud that is about to go global**\
-`The two men have traded fierce insults, in person and in the press, in France. And now Textor's Botafogo face Paris Saint-Germain in L.A.`\
-https://nytimes.com/athletic/6435760/2025/06/19/botafogo-psg-textor-al-khelaifi-club-world-cup/
-
-**Estevao - the Palmeiras prodigy bound for Chelsea who sees the football pitch as his 'amusement park'**\
-`The Brazilian may be heading to Chelsea later this summer - but first he wants to make history at the Club World Cup with Palmeiras`\
-https://nytimes.com/athletic/6436069/2025/06/19/estevao-chelsea-amusement-park/
 
