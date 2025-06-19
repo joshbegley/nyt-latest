@@ -1,3 +1,15 @@
+**England look to Brydon Carse but hope Jofra Archer will feature in India series**\
+`The Durham fast bowler will open the bowling at Headingley but Archer could be fit to return at Edgbaston.`\
+https://nytimes.com/athletic/6437484/2025/06/19/england-carse-archer-stokes-pope/
+
+**Summer Beans, Make Me Feel Fine**\
+`Hetty Lui McKinnon’s no-cook chili bean salad is just the thing for spiking temperatures.`\
+https://nytimes.com/2025/06/19/dining/healthy-no-cook-vegetarian-recipes.html
+
+**Former Interpol Official Detained for Role in ‘Big Carousel’ of Corruption**\
+`The official led a powerful and highly sensitive commission at Interpol’s headquarters in Lyon, France.`\
+https://nytimes.com/2025/06/19/world/middleeast/interpol-corruption-former-official-detained.html
+
 **Oil Tanker Collision Near Strait of Hormuz Raises Security Fears**\
 `The accident, which the United Arab Emirates said was unrelated to the conflict between Israel and Iran, comes amid increased reports of GPS jamming.`\
 https://nytimes.com/2025/06/19/business/tanker-collision-hormuz-israel-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6437103/2025/06/19/knuckleball-aaron-judge-slump-th
 **Stars re-sign Matt Duchene, locking up top scorer at bargain $4.5 million cap hit**\
 `Duchene, 34, scored 82 points in 82 games in 2024-25. It's a low cost for that type of production but still leaves Dallas in a cap crunch.`\
 https://nytimes.com/athletic/6438288/2025/06/19/stars-matt-duchene-contract-bargain/
-
-**‘Churchyard’ and ‘Tablet’ Review: Irreverence and Resurrection**\
-`At the Joyce Theater through Sunday, the Paul Taylor Dance Company revives two half-lost works from the 1960s, traversing matters both sacred and profane.`\
-https://nytimes.com/2025/06/19/arts/dance/paul-taylor-joyce-review.html
-
-**Cuesta appointed Parma head coach after Arsenal exit**\
-`The Arsenal coach will take on his first senior head coach role at the Serie A club.`\
-https://nytimes.com/athletic/6402245/2025/06/19/arsenal-coach-carlos-cuesta-parma-manager/
-
-**Celebrating Giants broadcaster Duane Kuiper, the ultimate teammate, on his 75th birthday**\
-`"If you're on his team, he's looking out for you," Kuiper's eldest child said, echoing tributes from others in his life.`\
-https://nytimes.com/athletic/6437102/2025/06/19/sf-giants-duane-kuiper-75th-birthday-tribute/
 
