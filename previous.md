@@ -19,7 +19,7 @@ https://nytimes.com/2025/06/19/opinion/nato-summit-trump-russia-ukraine.html
 https://nytimes.com/athletic/6436980/2025/06/19/concacaf-investigates-canada-manager-marsch-for-alleged-gold-cup-actions/
 
 **Dodgers to announce plans to assist immigrants impacted by ICE: Sources**\
-`It is expected to be the organization’s first official response to the raids, which have spawned massive protests throughout the U.S.`\
+`It is expected to be the organization's first official response to the raids, which have spawned massive protests throughout the U.S.`\
 https://nytimes.com/athletic/6436944/2025/06/19/los-angeles-dodgers-immigrant-assistance/
 
 **Scenes From a Vigil for Victims of the Minnesota Shooting**\

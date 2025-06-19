@@ -1,3 +1,7 @@
+**Dodgers to announce plans to assist immigrants impacted by ICE: Sources**\
+`It is expected to be the organization's first official response to the raids, which have spawned massive protests throughout the U.S.`\
+https://nytimes.com/athletic/6436944/2025/06/19/los-angeles-dodgers-immigrant-assistance/
+
 **Club World Cup daily rankings: Don't sleep on teams beyond Europe**\
 `Rankings each of the 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/19/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
