@@ -1,3 +1,11 @@
+**Record Debt Limit Increase Would Break Republican Precedent**\
+`A proposed $5 trillion debt limit increase could make it hard for Republicans to maintain their fiscal hawk credibility.`\
+https://nytimes.com/2025/06/19/business/national-debt-limit-republicans.html
+
+**The Things College Students Leave Behind**\
+`Readers reflect on salvaging what college students don’t take home. Also: Poetry that questions; the risks of self-driving trucks.`\
+https://nytimes.com/2025/06/19/opinion/college-students-salvage.html
+
 **3 Dead in Listeria Outbreak Tied to Chicken Pasta Sold at Walmart and Kroger**\
 `The company that made the meals issued a nationwide recall as the Centers for Disease Control and Prevention said they were linked to 17 listeria cases across 13 states.`\
 https://nytimes.com/2025/06/19/business/chicken-fettuccine-alfredo-recall-walmart-kroger.html

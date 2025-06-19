@@ -1,6 +1,18 @@
+**Barcelona and La Liga's salary limit: Can they afford Nico Williams?**\
+`As Barcelona line up another big spend in the transfer market, here's the latest on their financial struggles`\
+https://nytimes.com/athletic/6437270/2025/06/19/barcelona-nico-williams-la-liga-salary-limit/
+
+**Explained: Mudryk doping charge, appeal rules and could Chelsea sack him if found guilty?**\
+`Mykhailo Mudryk's 'B' sample has come back positive — this is what it means for the Chelsea winger`\
+https://nytimes.com/athletic/6104741/2025/06/19/mykhailo-mudryk-chelsea-doping-charge-explained/
+
 **Record Debt Limit Increase Would Break Republican Precedent**\
 `A proposed $5 trillion debt limit increase could make it hard for Republicans to maintain their fiscal hawk credibility.`\
 https://nytimes.com/2025/06/19/business/national-debt-limit-republicans.html
+
+**The Alexander-Arnold and Rodrygo dynamic showed Madrid's problems will take time to fix**\
+`Xabi Alonso has inherited structural issues within this Real Madrid team and some of those were exposed by Al Hilal`\
+https://nytimes.com/athletic/6437118/2025/06/19/real-madrid-tactics-al-hila-alonso/
 
 **The Things College Students Leave Behind**\
 `Readers reflect on salvaging what college students don’t take home. Also: Poetry that questions; the risks of self-driving trucks.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/19/learning/timed-tests-dont-measure-aptitude-they-m
 **Senators sign Fabian Zetterlund to 3-year extension**\
 `Zetterlund scored 19 goals and 41 points in 84 games played last season, suiting up for the San Jose Sharks and the Senators.`\
 https://nytimes.com/athletic/6422408/2025/06/19/senators-zetterlund-contract-extension/
-
-**Southampton owner Solak open to investors, 'selling the club never on my mind'**\
-`Southampton were relegated from the Premier League in April but Solak says a sale “is not part of any plan”.`\
-https://nytimes.com/athletic/6437491/2025/06/19/dragan-solak-southampton-investment-sale/
-
-**‘28 Years Later’ Review: Danny Boyle Revives His Monsters**\
-`The director returns to the postapocalyptic Britain he conjured in his 2002 movie “28 Days Later,” this time with a father and son running from flesh-eaters. Mom joins in, too.`\
-https://nytimes.com/2025/06/19/movies/28-years-later-review-danny-boyle.html
-
-**‘Elio’ Review: Pixar’s Fantastical, Familiar World**\
-`An orphaned boy is whisked away on a visually wondrous cosmic adventure, but he returns home with mostly reassuring lessons.`\
-https://nytimes.com/2025/06/19/movies/elio-review-pixar.html
 
