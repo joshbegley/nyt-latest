@@ -1,3 +1,11 @@
+**Red Light: How the Panthers became the NHL's unicorn. Plus: The offseason frenzy begins**\
+`What can other teams learn from the repeat Stanley Cup winners? And what in the world do the Oilers do now?`\
+https://nytimes.com/athletic/6437822/2025/06/19/nhl-red-light-newsletter-florida-panthers/
+
+**WATCH: How Jalen Williams has made the NBA Finals his coming-out party**\
+`We explain how the 24-year-old third-year wing has driven the Oklahoma City Thunder to the brink of their first championship.`\
+https://nytimes.com/athletic/6437733/2025/06/19/jalen-williams-video-thunder-nba-finals/
+
 **The Thunder's long and short path to brink of NBA title was built on remarkable stability**\
 `The Thunder are a win away from an NBA title, but those around since the beginning might be extra apprehensive until the final buzzer.`\
 https://nytimes.com/athletic/6437546/2025/06/19/oklahoma-city-thunder-pacers-nba-title-game-6/
