@@ -1,3 +1,15 @@
+**Three Restaurants Where Grandma Is (Almost) Always Cooking**\
+`Your grandmother’s cooking doesn’t stand a chance against La Morada, Fried Dumpling and Nonna Dora’s.`\
+https://nytimes.com/2025/06/19/dining/three-restaurants-where-grandma-is-almost-always-cooking.html
+
+**‘America’s Sweethearts’ Is a Compelling Sports Series**\
+`Season 2 of this docuseries about the Dallas Cowboys cheerleaders is an intense look at found families and all the healing and trouble that come with them.`\
+https://nytimes.com/2025/06/19/arts/television/americas-sweethearts-dallas-cowboys-cheerleaders-netflix.html
+
+**What I'm hearing about the Canucks' positioning ahead of draft, free agency**\
+`Vancouver's path to improvement this summer won't be straightforward, and contingency plans may be needed.`\
+https://nytimes.com/athletic/6438493/2025/06/19/canucks-nhl-draft-free-agency-trade-2025/
+
 **In Singapore, Grandmothers Dive Into Aging With a Splash**\
 `To tell the story of a demographic shift in Southeast Asia, one reporter visited a swimming complex where women in their 60s, 70s and 80s get competitive in the pool.`\
 https://nytimes.com/2025/06/19/insider/singapore-aging-flippa-ball.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/19/us/bear-lid-neck-freed-michigan.html
 **Why Israelis Fear the Prospect of a Nuclear-Armed Iran**\
 `Much of the world views Iran’s nuclear program with alarm, and experts say its stockpile of highly enriched uranium has grown fast.`\
 https://nytimes.com/2025/06/19/world/middleeast/israel-nuclear-iran-threat.html
-
-**Maresca to reach out to Mudryk after FA charge of breaching anti-doping rules**\
-`Mudryk has not featured for Chelsea since being provisionally suspended in December following an "adverse finding in a routine urine test".`\
-https://nytimes.com/athletic/6438589/2025/06/19/mudryk-chelsea-ban-doping/
-
-**Son of Author Michael Chabon Is Charged With Rape in Manhattan**\
-`Abraham Chabon, a New York University student, is accused in a criminal complaint of sexual assault. He has pleaded not guilty.`\
-https://nytimes.com/2025/06/19/nyregion/abraham-chabon-rape-sexual-assault-charge-nyu-student.html
-
-**Why Higher Oil Prices May Not Change U.S. Energy Policy**\
-`The energy crisis of the 1970s suggests that higher oil prices are unlikely to significantly shift U.S. energy policy away from fossil fuels.`\
-https://nytimes.com/2025/06/19/climate/oil-prices-climate-change-fossil-fuels.html
 
