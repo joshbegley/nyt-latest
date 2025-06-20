@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, June 21, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/06/20/upshot/flashback.html
+
+**PWHL Seattle names Steve O'Rourke first-ever head coach**\
+`PWHL Seattle will debut this fall at Climate Pledge Arena, home of the NHL’s Seattle Kraken.`\
+https://nytimes.com/athletic/6440513/2025/06/20/pwhl-seattle-head-coach-steve-orourke/
+
+**What I'm hearing about the Rangers: Latest on Will Cuylle talks, potential K'Andre Miller trade, more**\
+`New York has gotten some of its early-offseason work done but still has to decide what to do with its first-round pick in next week’s draft.`\
+https://nytimes.com/athletic/6440286/2025/06/20/rangers-trades-free-agency-kandre-miller-will-cuylle/
+
 **Trump’s Crucial Decision on Iran**\
 `Readers discuss whether the U.S. should take military action in Iran. Also: A Canadian view; how children should spend summer.`\
 https://nytimes.com/2025/06/20/opinion/trump-iran-strategy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/20/world/canada/canada-banff-national-park-rock-slid
 **Erykah Badu’s Woozy Flirtation, and 9 More New Songs**\
 `Hear tracks by Kehlani, Benson Boone, Witch and others.`\
 https://nytimes.com/2025/06/20/arts/music/playlist-erykah-badu-benson-boone-lorde.html
-
-**Protesters Rally Across the Middle East in Solidarity With Iran**\
-`Large crowds rallied in Iran, Lebanon and Iraq to protest against Israel’s attacks.`\
-https://nytimes.com/video/world/middleeast/100000010240808/iran-lebanon-iraq-protests.html
-
-**Justices Let Fuel Producers Challenge California’s Limits on Car Emissions**\
-`The 7-to-2 decision stressed that it did not address the merits of the dispute, and concerned only whether the producers had standing to sue.`\
-https://nytimes.com/2025/06/20/us/politics/supreme-court-california-electric-vehicles.html
-
-**World chess No.1 Carlsen to continue with Bundesliga club St Pauli**\
-`Nicknamed ‘the Mozart of Chess’, the former world champion helped St Pauli to a 12th-placed finish in the 15-team standings.`\
-https://nytimes.com/athletic/6440207/2025/06/20/magnus-carlsen-chess-st-pauli-contract/
 
