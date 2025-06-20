@@ -1,3 +1,7 @@
+**We Asked. The Top Candidates for Mayor of New York City Answered.**\
+`We interviewed eight of the leading candidates for New York City mayor about their experience, their plans for the city and their sometimes contentious bagel orders. Here’s what they said.`\
+https://nytimes.com/2025/06/20/nyregion/nyc-mayor-interviews.html
+
 **Five Free Movies to Stream Now**\
 `Films including “Jodorowsky’s Dune” and Owen Kline’s “Funny Pages” delve into the pain and anguish — and brief ecstasy — of making art.`\
 https://nytimes.com/2025/06/20/movies/five-free-movies-to-stream-now.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440137/2025/06/20/football-south-korea-goalkeeper-
 **How Astronomers Will Deal With 60 Million Billion Bytes of Imagery**\
 `The Vera C. Rubin Observatory will make the study of stars and galaxies more like the big data-sorting exercises of contemporary genetics and particle physics.`\
 https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html
-
-**Huge Crowds Rally Across Middle East, Venting Anger at Israel**\
-`Demonstrators took to the streets of Iran, Iraq and Lebanon on Friday after midday prayers, expressing anger at Israel’s widening offensive.`\
-https://nytimes.com/2025/06/20/world/middleeast/iran-israel-protests.html
 

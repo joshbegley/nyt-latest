@@ -1,3 +1,11 @@
+**Five Free Movies to Stream Now**\
+`Films including “Jodorowsky’s Dune” and Owen Kline’s “Funny Pages” delve into the pain and anguish — and brief ecstasy — of making art.`\
+https://nytimes.com/2025/06/20/movies/five-free-movies-to-stream-now.html
+
+**best-movies**\
+``\
+https://nytimes.com/spotlight/best-movies
+
 **Ingrid Engen joins Lyon from Barcelona**\
 `Engen, 27, has signed a two-year contract with the French champions that runs until 2027.`\
 https://nytimes.com/athletic/6440287/2025/06/20/norway-international-ingrid-engen-joins-lyon-from-barcelona/
