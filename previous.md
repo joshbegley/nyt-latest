@@ -1,3 +1,11 @@
+**Hundreds of Federal Workers at Voice of America Receive Layoff Notices**\
+`The terminations are the latest attack on the federally funded news networks, including Voice of America.`\
+https://nytimes.com/2025/06/20/us/politics/voice-america-layoffs.html
+
+**2 Hikers Dead, 3 Others Injured After Rockslide in Canada’s Banff Park**\
+`The hikers were struck by a cascade of sliding rocks on Thursday while traveling along a moderately difficult trail.`\
+https://nytimes.com/2025/06/20/world/canada/canada-banff-national-park-rock-slide.html
+
 **Erykah Badu’s Woozy Flirtation, and 9 More New Songs**\
 `Hear tracks by Kehlani, Benson Boone, Witch and others.`\
 https://nytimes.com/2025/06/20/arts/music/playlist-erykah-badu-benson-boone-lorde.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/world/europe/bayesian-yacht-raised.html
 **Gareth Bale leading consortium to buy Cardiff City**\
 `The Welshman’s group sent a letter of intent to Cardiff owner Vincent Tan last month.`\
 https://nytimes.com/athletic/6440400/2025/06/20/gareth-bale-cardiff-city-takeover/
-
-**We Asked. The Top Candidates for Mayor of New York City Answered.**\
-`We interviewed eight of the leading candidates for New York City mayor about their experience, their plans for the city and their sometimes contentious bagel orders. Here’s what they said.`\
-https://nytimes.com/2025/06/20/nyregion/nyc-mayor-interviews.html
-
-**Five Free Movies to Stream Now**\
-`Films including “Jodorowsky’s Dune” and Owen Kline’s “Funny Pages” delve into the pain and anguish — and brief ecstasy — of making art.`\
-https://nytimes.com/2025/06/20/movies/five-free-movies-to-stream-now.html
 

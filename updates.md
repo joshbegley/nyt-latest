@@ -1,3 +1,11 @@
+**Hundreds of Federal Workers at Voice of America Receive Layoff Notices**\
+`The terminations are the latest attack on the federally funded news networks, including Voice of America.`\
+https://nytimes.com/2025/06/20/us/politics/voice-america-layoffs.html
+
+**2 Hikers Dead, 3 Others Injured After Rockslide in Canada’s Banff Park**\
+`The hikers were struck by a cascade of sliding rocks on Thursday while traveling along a moderately difficult trail.`\
+https://nytimes.com/2025/06/20/world/canada/canada-banff-national-park-rock-slide.html
+
 **Erykah Badu’s Woozy Flirtation, and 9 More New Songs**\
 `Hear tracks by Kehlani, Benson Boone, Witch and others.`\
 https://nytimes.com/2025/06/20/arts/music/playlist-erykah-badu-benson-boone-lorde.html
