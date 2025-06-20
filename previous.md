@@ -1,3 +1,11 @@
+**As Dense Cities Encircle India’s Busiest Airports, Dangers Multiply**\
+`The crash of an Air India flight shows how the country’s ambitions of rapid growth are often superimposed on urban infrastructures already pushed to the limit.`\
+https://nytimes.com/2025/06/19/world/asia/air-india-airport-danger.html
+
+**To snap losing streak, Mets will need offense to step up**\
+`This lineup was constructed to be the club's foundation. "I think it's right around the corner," Brandon Nimmo said. It better be.`\
+https://nytimes.com/athletic/6439377/2025/06/19/mets-losing-streak-braves/
+
 **USMNT grinds way by Saudi Arabia into Gold Cup knockout stage**\
 `Chris Richards was the difference maker on both sides of the field, allowing the U.S. to eke out a 1-0 win over the Gold Cup's guest nation`\
 https://nytimes.com/athletic/6439277/2025/06/19/usmnt-saudi-arabia-richards-pochettino/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/19/us/threat-kidnapping-memphis-mayor.html
 **It’s the Greatest Part!**\
 `Adrianne Baik makes her New York Times Crossword debut with some dynamic, grid-spanning stacks.`\
 https://nytimes.com/2025/06/19/crosswords/daily-puzzle-2025-06-20.html
-
-**Wilmer Flores comes through in a pinch, wins the day for Giants**\
-`For all the ways the Rafael Devers trade could limit his opportunities, Flores remains a vital part of the Giants' roster.`\
-https://nytimes.com/athletic/6439228/2025/06/19/wilmer-flores-pinch-hit-wins-giants/
-
-**‘And Just Like That …’ Season 3, Episode 4 Recap: Guilty**\
-`Aidan says he invited Carrie to stay with him longer in Virginia because he felt guilty. But is that really true?`\
-https://nytimes.com/2025/06/19/arts/television/and-just-like-that-recap-season-3-episode-4.html
 
