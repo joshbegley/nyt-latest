@@ -1,3 +1,11 @@
+**Two-time WSL winner Beard appointed new Burnley manager**\
+`Beard has been out of management since being dismissed Liverpool in February.`\
+https://nytimes.com/athletic/6437495/2025/06/20/matt-beard-burnley-manager/
+
+**Former Combs Assistant Says Mogul Told Staff to ‘Move Like SEAL Team 6’**\
+`Brendan Paul testified that his duties for Sean Combs involved getting drugs, setting up hotel rooms for sexual encounters and handling routine tasks.`\
+https://nytimes.com/2025/06/20/arts/music/sean-diddy-combs-trial-drugs-brendan-paul.html
+
 **Hurricanes need a second-line center: Here are some free-agent, trade options**\
 `Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
 https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agents/
