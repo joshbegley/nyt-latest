@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, June 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/20/todays-new-york-times
+
 **Crunch time for Bazball: Is it now or never for England's cricketing revolution?**\
 `England's positive-first approach to Test cricket has been transformative, but they await a defining series win over India or Australia`\
 https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-india/

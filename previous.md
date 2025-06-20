@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, June 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/20/todays-new-york-times
+
 **Crunch time for Bazball: Is it now or never for England's cricketing revolution?**\
 `England's positive-first approach to Test cricket has been transformative, but they await a defining series win over India or Australia`\
 https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-india/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420918/2025/06/20/brighton-greek-strikers-transfer
 **Mathys Tel might just have the makings of an ideal Thomas Frank winger**\
 `Frank has been able to get a tune out of a whole host of wide forwards so far in his career - could Tel be next?`\
 https://nytimes.com/athletic/6437413/2025/06/20/mathys-tel-tottenham-frank-mbeumo/
-
-**Gattuso is loved in Italy as a World Cup winner and for being who he is. Will that be enough?**\
-`Unveiled as the new Italy manager on Thursday, the former cult-hero midfielder's task is to avoid missing a third straight World Cup`\
-https://nytimes.com/athletic/6438414/2025/06/20/italy-gennaro-gattuso-new-manager-analysis/
 
