@@ -1,3 +1,15 @@
+**A timeline of the Lakers' success (and challenges) under Buss family leadership**\
+`With the Lakers ownership changing hands, we dive into the biggest moments in the team's history under the Buss family. `\
+https://nytimes.com/athletic/6438270/2025/06/20/lakers-timeline-buss-family-sale-nba/
+
+**Senator Ron Johnson Resists G.O.P. Megabill, Warning It Will Swell Debt**\
+`The Wisconsin Republican has toned down attacks on the measure in recent days, but a new report he released undermines party leaders’ claims that the legislation won’t add to federal deficits.`\
+https://nytimes.com/2025/06/20/us/senator-ron-johnson-debt.html
+
+**Supreme Court Finds Retired Firefighter Cannot Sue for Disability Discrimination**\
+`In a tangled decision, the justices ruled against a disabled firefighter who sued her former employer for refusing her health benefits after she had retired.`\
+https://nytimes.com/2025/06/20/us/supreme-court-finds-retired-firefighter-cannot-sue-for-disability-discrimination.html
+
 **Terry Louise Fisher, a Creator of ‘L.A. Law,’ Dies at 79**\
 `She channeled her experiences — and frustrations — as a Los Angeles prosecutor into an award-winning career as a television writer and producer.`\
 https://nytimes.com/2025/06/20/arts/television/terry-louise-fisher-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
 **Searching for Meaning Amid the Jumble, at the Venice Architecture Biennale**\
 `Navigating the show has always been challenging, especially for visitors who aren’t experts. This year’s curator wants to give them a helping hand.`\
 https://nytimes.com/2025/06/20/arts/design/venice-architecture-biennale-climate-population.html
-
-**Man City, England goalkeeper Keating has class C possession charges dropped**\
-`The crown prosecution service (CPS) confirmed the case against Keating and her mother Nicola has been discontinued.`\
-https://nytimes.com/athletic/6440478/2025/06/20/khiara-keating-man-city-england-charges-dropped/
-
-**Sabres offseason: JJ Peterka, Mattias Samuelsson, draft scenarios and more**\
-`Does it make sense for the Sabres to trade Peterka? Should they buy out Samuelsson? Who could fall to Buffalo's No. 9 pick?`\
-https://nytimes.com/athletic/6440102/2025/06/20/sabres-draft-offseason-peterka-samuelsson/
-
-**Can Art Basel and Treasure House Lure Collectors to Buy as They Once Did?**\
-`The fairs this week and next hope to drum up enthusiasm with blue-chip artists, antiques and more — including a drawing King Charles III made when he was 9.`\
-https://nytimes.com/2025/06/20/arts/design/art-basel-treasure-fairs.html
 

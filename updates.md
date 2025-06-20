@@ -1,3 +1,15 @@
+**A timeline of the Lakers' success (and challenges) under Buss family leadership**\
+`With the Lakers ownership changing hands, we dive into the biggest moments in the team's history under the Buss family. `\
+https://nytimes.com/athletic/6438270/2025/06/20/lakers-timeline-buss-family-sale-nba/
+
+**Senator Ron Johnson Resists G.O.P. Megabill, Warning It Will Swell Debt**\
+`The Wisconsin Republican has toned down attacks on the measure in recent days, but a new report he released undermines party leaders’ claims that the legislation won’t add to federal deficits.`\
+https://nytimes.com/2025/06/20/us/senator-ron-johnson-debt.html
+
+**Supreme Court Finds Retired Firefighter Cannot Sue for Disability Discrimination**\
+`In a tangled decision, the justices ruled against a disabled firefighter who sued her former employer for refusing her health benefits after she had retired.`\
+https://nytimes.com/2025/06/20/us/supreme-court-finds-retired-firefighter-cannot-sue-for-disability-discrimination.html
+
 **Terry Louise Fisher, a Creator of ‘L.A. Law,’ Dies at 79**\
 `She channeled her experiences — and frustrations — as a Los Angeles prosecutor into an award-winning career as a television writer and producer.`\
 https://nytimes.com/2025/06/20/arts/television/terry-louise-fisher-dead.html
