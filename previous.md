@@ -1,3 +1,7 @@
+**Why Marsch is under Concacaf investigation and Canada Soccer's response**\
+`Concacaf announced Wednesday it has initiated disciplinary proceedings against Marsch and Canada Soccer. `\
+https://nytimes.com/athletic/6439181/2025/06/19/jesse-marsch-concacaf-investigation-canada-gold-cup/
+
 **Stars trade Mason Marchment to Kraken for 2 draft picks**\
 `Seattle took on all of Marchment’s $4.5 million cap hit for next season in the deal, according to league sources.`\
 https://nytimes.com/athletic/6439160/2025/06/19/stars-mason-marchment-kraken-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-vote
 **U.S. Spy Agencies Assess Iran Remains Undecided on Building a Bomb**\
 `U.S. intelligence officials said Iran was likely to pivot toward producing a nuclear weapon if the U.S. attacked a main uranium enrichment site, or if Israel killed its supreme leader.`\
 https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html
-
-**Juneteenth Goes Uncelebrated at White House as Trump Complains About ‘Too Many’ Holidays**\
-`President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States, other than saying there were too many like it. Lesser occasions routinely garner official proclamations.`\
-https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
 
