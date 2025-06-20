@@ -1,3 +1,19 @@
+**Rafael Devers on Red Sox tenure: 'I do feel that I have earned some respect'**\
+`Devers discussed why he didn't play first base for Boston as he prepared to face his old team for the first time since a stunning trade.`\
+https://nytimes.com/athletic/6441139/2025/06/20/rafael-devers-red-sox-first-base-giants/
+
+**Reds place LHP Wade Miley on IL with flexor strain, call up Connor Phillips**\
+`The Reds placed the left-hander on the 15-day IL with a left flexor sprain and recalled righty Connor Phillips from Triple-A Louisville.`\
+https://nytimes.com/athletic/6441119/2025/06/20/reds-wade-miley-il-connor-phillips/
+
+**Oilers' Stan Bowman, Kris Knoblauch on Connor McDavid extension, goaltending and more**\
+`The five most important things Bowman and Knoblauch said in their end-of-season news conference and what they mean for the Oilers.`\
+https://nytimes.com/athletic/6441105/2025/06/20/oilers-stan-bowman-kris-knoblauch-connor-mcdavid-extension/
+
+**Bryce Harper nearing return, says wrist injury won't require surgery**\
+`Harper took 20 swings off a tee Friday: "It felt better than I thought it would," he said. "So I'm happy about that."`\
+https://nytimes.com/athletic/6441157/2025/06/20/phillies-bryce-harper-injury-return/
+
 **Oilers' Stan Bowman and Kris Knoblauch on Connor McDavid extension, goaltending and more**\
 `The five most important things Bowman and Knoblauch said in their end-of-season news conference and what they mean for the Oilers.`\
 https://nytimes.com/athletic/6441105/2025/06/20/oilers-stan-bowman-kris-knoblauch-connor-mcdavid-extension/

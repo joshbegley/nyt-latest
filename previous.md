@@ -1,9 +1,17 @@
-**Oilers' Stan Bowman and Kris Knoblauch on Connor McDavid extension, goaltending and more**\
+**Rafael Devers on Red Sox tenure: 'I do feel that I have earned some respect'**\
+`Devers discussed why he didn't play first base for Boston as he prepared to face his old team for the first time since a stunning trade.`\
+https://nytimes.com/athletic/6441139/2025/06/20/rafael-devers-red-sox-first-base-giants/
+
+**Reds place LHP Wade Miley on IL with flexor strain, call up Connor Phillips**\
+`The Reds placed the left-hander on the 15-day IL with a left flexor sprain and recalled righty Connor Phillips from Triple-A Louisville.`\
+https://nytimes.com/athletic/6441119/2025/06/20/reds-wade-miley-il-connor-phillips/
+
+**Oilers' Stan Bowman, Kris Knoblauch on Connor McDavid extension, goaltending and more**\
 `The five most important things Bowman and Knoblauch said in their end-of-season news conference and what they mean for the Oilers.`\
 https://nytimes.com/athletic/6441105/2025/06/20/oilers-stan-bowman-kris-knoblauch-connor-mcdavid-extension/
 
 **Bryce Harper nearing return, says wrist injury won't require surgery**\
-`Harper took 20 swings off a tee on Friday: "It felt better than I thought it would," Harper said. "So I'm happy about that."`\
+`Harper took 20 swings off a tee Friday: "It felt better than I thought it would," he said. "So I'm happy about that."`\
 https://nytimes.com/athletic/6441157/2025/06/20/phillies-bryce-harper-injury-return/
 
 **TikTok’s Owner Wanted to Publish Books. Not Anymore.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6441109/2025/06/20/angels-ron-washington-health-con
 **Anne Burrell’s Death Is Under Investigation as a Possible Drug Overdose**\
 `The city’s medical examiner has not determined a cause, but an internal police document says the TV chef was found surrounded by pills.`\
 https://nytimes.com/2025/06/20/dining/anne-burrell-overdose-death-investigation.html
-
-**Tehran Balks at Negotiation Talks as Israel and Iran Trade Fire**\
-`During a U.N. Security Council meeting on Friday, Iran’s top diplomat said there was “no room for talking” until Israel stopped its attacks.`\
-https://nytimes.com/video/world/middleeast/100000010241564/israel-iran-missile-strikes-un.html
-
-**Judge Blocks Trump’s Tying of Transportation Funds to Immigration Enforcement**\
-`Attorneys general in 20 states, most led by Democrats, had sued the administration. Similar suits have been filed over funding for other programs.`\
-https://nytimes.com/2025/06/20/us/politics/trump-transportation-funds-immigration-states.html
 
