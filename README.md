@@ -1,3 +1,7 @@
+**Gunilla Knutson, Star of ‘Take It Off’ Shaving Cream Ads, Dies at 84**\
+`A model who was crowned Miss Sweden in 1961, she became best known for commercials that one observer said “replaced the ‘hard sell’ with the ‘sex sell.’”`\
+https://nytimes.com/2025/06/20/arts/television/gunilla-knutson-dead.html
+
 **Maresca says Jackson red cards will not impact his Chelsea future**\
 `The striker received his second straight red card in his last four appearances for the club in a 3-1 defeat against Flamengo.`\
 https://nytimes.com/athletic/6441088/2025/06/20/enzo-maresca-nicolas-jackson-red-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/briefing/negotiations-with-iran-failed-to-yield-a
 **River Plate's Gallardo says he made Ronaldo Club World Cup offer**\
 `Ronaldo, 40, confirmed earlier in June he would not be at the tournament despite receiving multiple offers.`\
 https://nytimes.com/athletic/6440992/2025/06/20/cristiano-ronaldo-club-world-cup-offers/
-
-**Dale Earnhardt Jr., NASCAR crew chief: How his one-off Xfinity cameo came to be**\
-`Earnhardt will lead the pit box for Connor Zilisch, who drives for Earnhardt's JR Motorsports, for this weekend's Xfinity Series race.`\
-https://nytimes.com/athletic/6440889/2025/06/20/dale-earnhardt-jr-nascar-crew-chief-xfinity-series/
 

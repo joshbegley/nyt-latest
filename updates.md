@@ -1,3 +1,19 @@
+**Maresca says Jackson red cards will not impact his Chelsea future**\
+`The striker received his second straight red card in his last four appearances for the club in a 3-1 defeat against Flamengo.`\
+https://nytimes.com/athletic/6441088/2025/06/20/enzo-maresca-nicolas-jackson-red-cards/
+
+**‘Dead Outlaw’ Musical to Close After Disappointing Run on Broadway**\
+`The show was shut out at the Tonys after being nominated for seven awards, including best musical.`\
+https://nytimes.com/2025/06/20/theater/dead-outlaw-broadway-closing.html
+
+**Angels manager Ron Washington out indefinitely due to health concern**\
+`Angels bench coach Ray Montgomery will manage the team Friday night and moving forward in place of Washington.`\
+https://nytimes.com/athletic/6441109/2025/06/20/angels-ron-washington-health-concern-absence/
+
+**Judge Blocks Trump’s Tying of Transportation Funds to Immigration Enforcement**\
+`Attorneys general in 20 states, most led by Democrats, had sued the administration. Similar suits have been filed over funding for other programs.`\
+https://nytimes.com/2025/06/20/us/politics/trump-transportation-funds-immigration-states.html
+
 **Anne Burrell’s Death Is Under Investigation as a Possible Drug Overdose**\
 `The city’s medical examiner has not determined a cause, but an internal police document says the TV chef was found surrounded by pills.`\
 https://nytimes.com/2025/06/20/dining/anne-burrell-overdose-death-investigation.html

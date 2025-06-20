@@ -1,3 +1,15 @@
+**Maresca says Jackson red cards will not impact his Chelsea future**\
+`The striker received his second straight red card in his last four appearances for the club in a 3-1 defeat against Flamengo.`\
+https://nytimes.com/athletic/6441088/2025/06/20/enzo-maresca-nicolas-jackson-red-cards/
+
+**‘Dead Outlaw’ Musical to Close After Disappointing Run on Broadway**\
+`The show was shut out at the Tonys after being nominated for seven awards, including best musical.`\
+https://nytimes.com/2025/06/20/theater/dead-outlaw-broadway-closing.html
+
+**Angels manager Ron Washington out indefinitely due to health concern**\
+`Angels bench coach Ray Montgomery will manage the team Friday night and moving forward in place of Washington.`\
+https://nytimes.com/athletic/6441109/2025/06/20/angels-ron-washington-health-concern-absence/
+
 **Anne Burrell’s Death Is Under Investigation as a Possible Drug Overdose**\
 `The city’s medical examiner has not determined a cause, but an internal police document says the TV chef was found surrounded by pills.`\
 https://nytimes.com/2025/06/20/dining/anne-burrell-overdose-death-investigation.html
@@ -8,7 +20,7 @@ https://nytimes.com/video/world/middleeast/100000010241564/israel-iran-missile-s
 
 **Judge Blocks Trump’s Tying of Transportation Funds to Immigration Enforcement**\
 `Attorneys general in 20 states, most led by Democrats, had sued the administration. Similar suits have been filed over funding for other programs.`\
-https://nytimes.com/2025/06/20/us/politics/judge-blocks-trumps-tying-of-transportation-funds-to-immigration-enforcement.html
+https://nytimes.com/2025/06/20/us/politics/trump-transportation-funds-immigration-states.html
 
 **Lou Christie, ‘Lightnin’ Strikes’ Pop Crooner, Is Dead at 82**\
 `A late-1960s throwback to the days of clean-cut teen idols — he called himself “the missing link” — he rode his gymnastic vocal range to a string of hits.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6440992/2025/06/20/cristiano-ronaldo-club-world-cup
 **Dale Earnhardt Jr., NASCAR crew chief: How his one-off Xfinity cameo came to be**\
 `Earnhardt will lead the pit box for Connor Zilisch, who drives for Earnhardt's JR Motorsports, for this weekend's Xfinity Series race.`\
 https://nytimes.com/athletic/6440889/2025/06/20/dale-earnhardt-jr-nascar-crew-chief-xfinity-series/
-
-**Accusations fly at a heated U.N. Security Council session on Iran and Israel, amid pleas for peace.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2025/06/20/world/israel-iran-trump/accusations-fly-at-a-heated-un-security-council-session-on-iran-and-israel-amid-pleas-for-peace
-
-**Louisiana’s Ten Commandments Law Is Unconstitutional, Appeals Court Says**\
-`The court unanimously ruled that the state cannot require schools and universities to display the Commandments.`\
-https://nytimes.com/2025/06/20/us/politics/louisianas-ten-commandments-law-appeals-court-unconstitutional.html
-
-**Florida Approves Plan to Help Billionaires Export Their Sewage**\
-`Gov. Ron DeSantis signed a bill to help Indian Creek Village, home to the likes of Jeff Bezos and Jared Kushner, avoid paying a neighboring town millions to allow transport of its sewage under its streets.`\
-https://nytimes.com/2025/06/20/us/indian-creek-sewage-desantis.html
 
