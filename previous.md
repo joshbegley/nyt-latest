@@ -1,3 +1,27 @@
+**Fer Lopez: Who is he, how does he play and what will he bring to Wolves?**\
+`Wolves have invested heavily in a raw talent in the hope they can turn it into something special`\
+https://nytimes.com/athletic/6437699/2025/06/20/fer-lopez-wolves-transfer/
+
+**A Way for People With Low Credit Scores to Raise Them**\
+`A new study finds that tenants who pay their rent on time can see “significant increases” if the payments are reported to credit bureaus.`\
+https://nytimes.com/2025/06/20/your-money/credit-scores-rent-payments.html
+
+**The Markets Are Balancing on a Knife’s Edge**\
+`The world has been anything but peaceful, but you wouldn’t know that from looking at the markets.`\
+https://nytimes.com/2025/06/20/business/stock-bond-market-investing-israel-iran-gulf.html
+
+**You Only Get Married a Few Times. Why Not Go All Out?**\
+`As the Jeff Bezos-Lauren Sánchez nuptials approach, a look at how second weddings went from low-key to lavish.`\
+https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-second-weddings.html
+
+**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 27 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
+https://nytimes.com/2025/06/20/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
+
+**‘Prewar Eva’ Has Her Finger on the Pulse of the Hamptons**\
+`Eva Alt, a real estate agent who goes by “Prewar Eva” on Instagram, says the bland Hamptons McMansions of the past two decades are on their way out.`\
+https://nytimes.com/2025/06/20/realestate/prewar-eva-alt-hamptons-ny-houses.html
+
 **Wolves sign winger Fer Lopez from Celta Vigo**\
 `The 21-year-old Spanish is Wolves' first signing of the summer transfer window, following the sales of Matheus Cunha and Rayan Ait-Nouri.`\
 https://nytimes.com/athletic/6427754/2025/06/20/wolves-transfers-fer-lopez-celta-vigo/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6434509/2025/06/20/test-cricket-explained-in-60-sec
 **The most important developmental tasks for Lions’ offensive coaching staff**\
 `The Lions will be looking for these offensive players to take the next step in their development.`\
 https://nytimes.com/athletic/6438734/2025/06/20/lions-offense-coaching-staff-development/
-
-**Five players to watch for the Knicks in the 2025 NBA Draft**\
-`Who could the Knicks draft with pick No. 50? Let's take a look.`\
-https://nytimes.com/athletic/6436187/2025/06/20/knicks-2025-nba-draft/
-
-**After reaching NHL elite status, Blue Jackets' Zach Werenski craves winning even more**\
-`After winning the IIHF World Championship with Team USA, Werenski said, "I love winning and I want more of it."`\
-https://nytimes.com/athletic/6438490/2025/06/20/blue-jackets-zach-werenski-nhl-elite-craves-winning/
-
-**Winning fosters USMNT belief at a time when fans need a team they can trust**\
-`Apathy surrounding the U.S. men is evident, and with a home World Cup less than a year away, restoring support – and results – is paramount`\
-https://nytimes.com/athletic/6439503/2025/06/20/usmnt-saudi-arabia-gold-cup-pochettino-belief/
-
-**How the Blues' offseason could turn into a nightmare, if these 5 things happen**\
-`Earlier this week, we gave you the path to a perfect Blues offseason. Now, we present what a nightmarish summer would look like.`\
-https://nytimes.com/athletic/6438099/2025/06/20/blues-offseason-nhl-free-agency/
-
-**To the Teachers Who Think Louder Means Leader**\
-`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Anna Xu, age 15.`\
-https://nytimes.com/2025/06/20/learning/to-the-teachers-who-think-louder-means-leader.html
-
-**The Great Subscription Trap**\
-`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Michael Shin, age 16.`\
-https://nytimes.com/2025/06/20/learning/the-great-subscription-trap.html
 
