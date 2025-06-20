@@ -1,3 +1,7 @@
+**One difference-making trade for each AL team in the wild-card race**\
+`Ten AL teams, to varying degrees, are in the race for a wild-card spot. Here, we suggest a potential trade that could boost each of them.`\
+https://nytimes.com/athletic/6437995/2025/06/20/mlb-trade-deadline-american-league-wild-card-team-scenarios/
+
 **Test cricket explained in 60 seconds**\
 `Everything you need to know to understand cricket's five-day epics`\
 https://nytimes.com/athletic/6434509/2025/06/20/test-cricket-explained-in-60-seconds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/learning/the-great-subscription-trap.html
 **Raiders 53-man roster projection: What did we learn in OTAs and minicamp?**\
 `The Raiders have plenty of questions on their offensive line and in their defensive backfield. What should we expect in training camp?`\
 https://nytimes.com/athletic/6433403/2025/06/20/las-vegas-raiders-53-man-roster-projection-minicamp/
-
-**Trump’s Two-Week Iran Notice Gives Markets a Lift**\
-`The president said he could take that long to decide whether to join a military fight against Iran. But that does little to quell investor uncertainty.`\
-https://nytimes.com/2025/06/20/business/dealbook/trump-iran-two-weeks.html
 
