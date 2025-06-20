@@ -1,3 +1,7 @@
+**Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
+`Iran’s foreign minister is to meet his European counterparts Friday. President Trump said he would give diplomacy a chance, dashing Israeli hopes for immediate U.S. involvement.`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump
+
 **Man City have been busy this summer, but still aren't favoured for any major trophies**\
 `Man City had a busy start to the summer and are showing off some of the new pieces at the Club World Cup. Will that translate to trophies?`\
 https://nytimes.com/athletic/6438082/2025/06/20/manchester-city-odds-club-world-cup-premier-league/
