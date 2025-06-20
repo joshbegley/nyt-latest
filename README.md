@@ -1,3 +1,15 @@
+**World chess No.1 Carlsen to continue with Bundesliga club St Pauli**\
+`Nicknamed ‘the Mozart of Chess’, the former world champion helped St Pauli to a 12th-placed finish in the 15-team standings.`\
+https://nytimes.com/athletic/6440207/2025/06/20/magnus-carlsen-chess-st-pauli-contract/
+
+**Trump urged to protect World Cup host cities from drone threat**\
+`Representative Darin LaHood says drones pose a threat to supporters at next summer's soccer tournament.`\
+https://nytimes.com/athletic/6438064/2025/06/20/trump-us-world-cup-drones/
+
+**UK Athletics permanently bans coach over relationship with athlete, racist comments**\
+`After being charged in April, a disciplinary committee found Chris Barnes guilty of nine charges that breached the coaches code of conduct.`\
+https://nytimes.com/athletic/6440377/2025/06/20/uk-athletics-coach-ban-athlete-relationship/
+
 **Bayesian Superyacht Is Raised From Bottom of Mediterranean**\
 `Many are hoping it will provide clues as to why the $40 million boat sank off the coast of Sicily 10 months ago, killing seven people.`\
 https://nytimes.com/2025/06/20/world/europe/bayesian-yacht-raised.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6440287/2025/06/20/norway-international-ingrid-enge
 **This Hurricane Season Is One of the Slowest to Start in 20 Years**\
 `The Atlantic season began officially on June 1. Three weeks in, there still hasn’t been a named storm.`\
 https://nytimes.com/2025/06/20/weather/hurricane-season-slow-start.html
-
-**Sammy Sosa returns to Wrigley Field for first official appearance with Cubs since 2004**\
-`Until this past offseason, the 56-year-old had been largely estranged from the Cubs.`\
-https://nytimes.com/athletic/6440332/2025/06/20/sammy-sosa-wrigley-field-return-cubs-reunion/
-
-**Repeal of Clean Energy Law Will Mean a Hotter Planet, Scientists Warn**\
-`Republicans plan to terminate billions of dollars in clean energy tax credits. Experts say that will mean more greenhouse gas emissions and more dangerous heat.`\
-https://nytimes.com/2025/06/20/climate/inflation-reduction-act-climate-change-heat.html
-
-**Fed Governor Calls for Rate Cuts as Soon as July**\
-`Christopher J. Waller, who was appointed by President Trump, said the central bank should not wait for the labor market to weaken.`\
-https://nytimes.com/2025/06/20/business/fed-interest-rates-christopher-waller.html
 
