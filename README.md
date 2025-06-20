@@ -1,3 +1,7 @@
+**Repealing Clean Energy Incentives Means a Hotter Planet, Scientists Warn**\
+`Republicans plan to terminate billions of dollars in clean energy tax credits. Experts say that will mean more greenhouse gas emissions and more dangerous heat.`\
+https://nytimes.com/2025/06/20/climate/inflation-reduction-act-climate-change-heat.html
+
 **Fed Governor Calls for Rate Cuts as Soon as July**\
 `Christopher J. Waller, who was appointed by President Trump, said the central bank should not wait for the labor market to weaken.`\
 https://nytimes.com/2025/06/20/business/fed-interest-rates-christopher-waller.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6437495/2025/06/20/matt-beard-burnley-manager/
 **Former Combs Assistant Says Mogul Told Staff to ‘Move Like SEAL Team 6’**\
 `Brendan Paul testified that his duties for Sean Combs involved getting drugs, setting up hotel rooms for sexual encounters and handling routine tasks.`\
 https://nytimes.com/2025/06/20/arts/music/sean-diddy-combs-trial-drugs-brendan-paul.html
-
-**Weekends Are for New Recipes**\
-`If you haven’t yet made Hetty Lui McKinnon’s crispy gnocchi with tomato and red onion, the first weekend of Actual Summer is a great time to do so.`\
-https://nytimes.com/2025/06/20/dining/easy-crispy-gnocchi-with-tomato-and-red-onion-recipe.html
 
