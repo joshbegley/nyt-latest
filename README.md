@@ -1,3 +1,7 @@
+**Stars trade Mason Marchment to Kraken for 2 draft picks**\
+`Seattle took on all of Marchment’s $4.5 million cap hit for next season in the deal, according to league sources.`\
+https://nytimes.com/athletic/6439160/2025/06/19/stars-mason-marchment-kraken-trade/
+
 **Seattle 1 Atlético Madrid 3: MLS side on verge of Club World Cup exit**\
 `Atlético Madrid rebounded from humiliation against PSG, while Seattle suffered another home setback despite a spirited effort.`\
 https://nytimes.com/athletic/6438888/2025/06/19/seattle-sounders-atletico-madrid-club-world-cup-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/us/politics/iran-nuclear-weapons-assessment.html
 **Juneteenth Goes Uncelebrated at White House as Trump Complains About ‘Too Many’ Holidays**\
 `President Trump made no statement about the federal holiday that commemorates the end of slavery in the United States, other than saying there were too many like it. Lesser occasions routinely garner official proclamations.`\
 https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
-
-**There's a 'good chance' Frankie Montas joins Mets' rotation next week**\
-`Montas allowed five earned runs in five innings for Triple-A Syracuse on June 18.`\
-https://nytimes.com/athletic/6438974/2025/06/19/ny-mets-frankie-montas-rotation-return/
 
