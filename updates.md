@@ -1,3 +1,7 @@
+**Arsenal are finalising a deal to sign Zubimendi from Real Sociedad.**\
+`The Spain international, 26, has a €60million (£51.7m; $63.4m) release clause in his current contract.`\
+https://nytimes.com/athletic/6353153/2025/06/20/arsenal-transfer-martin-zubimendi/
+
 **Man City have been busy this summer, but still aren't favoured for any major trophies**\
 `Man City had a busy start to the summer and are showing off some of the new pieces at the Club World Cup. Will that translate to trophies?`\
 https://nytimes.com/athletic/6438082/2025/06/20/manchester-city-odds-club-world-cup-premier-league/
