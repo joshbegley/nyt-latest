@@ -1,3 +1,11 @@
+**Benfica 6 Auckland City 0: Lage's patience tested as underdogs dig deep**\
+`Benfica recorded their first win of the Club World Cup on Friday after a frustrating first half and a lengthy weather-enforced delay`\
+https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
+
+**Mapa: un terremoto de magnitud 5,1 sacude Irán**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://nytimes.com/interactive/2025/06/20/espanol/terremoto-iran.html
+
 **Flamengo 3 Chelsea 1 - Jackson sent off as Maresca's team implode at Club World Cup**\
 `Analysis of Flamengo's thrilling win over Chelsea at the Club World Cup`\
 https://nytimes.com/athletic/6427546/2025/06/20/flamengo-chelsea-club-world-cup/
