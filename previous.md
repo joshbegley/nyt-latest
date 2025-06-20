@@ -1,3 +1,11 @@
+**Bayesian Superyacht Is Raised From Bottom of Mediterranean**\
+`Many are hoping it will provide clues as to why the $40 million boat sank off the coast of Sicily 10 months ago, killing seven people.`\
+https://nytimes.com/2025/06/20/world/europe/bayesian-yacht-raised.html
+
+**Gareth Bale leading consortium to buy Cardiff City**\
+`The Welshman’s group sent a letter of intent to Cardiff owner Vincent Tan last month.`\
+https://nytimes.com/athletic/6440400/2025/06/20/gareth-bale-cardiff-city-takeover/
+
 **We Asked. The Top Candidates for Mayor of New York City Answered.**\
 `We interviewed eight of the leading candidates for New York City mayor about their experience, their plans for the city and their sometimes contentious bagel orders. Here’s what they said.`\
 https://nytimes.com/2025/06/20/nyregion/nyc-mayor-interviews.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/climate/inflation-reduction-act-climate-change-he
 **Fed Governor Calls for Rate Cuts as Soon as July**\
 `Christopher J. Waller, who was appointed by President Trump, said the central bank should not wait for the labor market to weaken.`\
 https://nytimes.com/2025/06/20/business/fed-interest-rates-christopher-waller.html
-
-**South Korean football to end 27-year ban on foreign goalkeepers**\
-`The ban was introduced as an initiative to develop local goalkeeping talent in the nation and had been enforced since 1999.`\
-https://nytimes.com/athletic/6440137/2025/06/20/football-south-korea-goalkeeper-ban/
-
-**How Astronomers Will Deal With 60 Million Billion Bytes of Imagery**\
-`The Vera C. Rubin Observatory will make the study of stars and galaxies more like the big data-sorting exercises of contemporary genetics and particle physics.`\
-https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html
 

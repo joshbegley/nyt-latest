@@ -1,3 +1,11 @@
+**Bayesian Superyacht Is Raised From Bottom of Mediterranean**\
+`Many are hoping it will provide clues as to why the $40 million boat sank off the coast of Sicily 10 months ago, killing seven people.`\
+https://nytimes.com/2025/06/20/world/europe/bayesian-yacht-raised.html
+
+**Gareth Bale leading consortium to buy Cardiff City**\
+`The Welshman’s group sent a letter of intent to Cardiff owner Vincent Tan last month.`\
+https://nytimes.com/athletic/6440400/2025/06/20/gareth-bale-cardiff-city-takeover/
+
 **We Asked. The Top Candidates for Mayor of New York City Answered.**\
 `We interviewed eight of the leading candidates for New York City mayor about their experience, their plans for the city and their sometimes contentious bagel orders. Here’s what they said.`\
 https://nytimes.com/2025/06/20/nyregion/nyc-mayor-interviews.html
