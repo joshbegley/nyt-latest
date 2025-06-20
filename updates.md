@@ -1,3 +1,7 @@
+**TikTok’s Owner Wanted to Publish Books. Not Anymore.**\
+`8th Note Press informed writers and agents that it is abruptly shutting down and returning publication rights to authors.`\
+https://nytimes.com/2025/06/20/books/review/bytedance-tiktok-publisher-shuts-down.html
+
 **Gunilla Knutson, Star of ‘Take It Off’ Shaving Cream Ads, Dies at 84**\
 `A model who was crowned Miss Sweden in 1961, she became best known for commercials that one observer said “replaced the ‘hard sell’ with the ‘sex sell.’”`\
 https://nytimes.com/2025/06/20/arts/television/gunilla-knutson-dead.html

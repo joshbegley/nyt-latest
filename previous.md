@@ -1,3 +1,7 @@
+**TikTok’s Owner Wanted to Publish Books. Not Anymore.**\
+`8th Note Press informed writers and agents that it is abruptly shutting down and returning publication rights to authors.`\
+https://nytimes.com/2025/06/20/books/review/bytedance-tiktok-publisher-shuts-down.html
+
 **Gunilla Knutson, Star of ‘Take It Off’ Shaving Cream Ads, Dies at 84**\
 `A model who was crowned Miss Sweden in 1961, she became best known for commercials that one observer said “replaced the ‘hard sell’ with the ‘sex sell.’”`\
 https://nytimes.com/2025/06/20/arts/television/gunilla-knutson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/arts/music/lou-christie-dead.html
 **Negotiations With Iran Failed to Yield a Breakthrough**\
 `Also, temperatures are soaring across the U.S. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/06/20/briefing/negotiations-with-iran-failed-to-yield-a-breakthrough.html
-
-**River Plate's Gallardo says he made Ronaldo Club World Cup offer**\
-`Ronaldo, 40, confirmed earlier in June he would not be at the tournament despite receiving multiple offers.`\
-https://nytimes.com/athletic/6440992/2025/06/20/cristiano-ronaldo-club-world-cup-offers/
 
