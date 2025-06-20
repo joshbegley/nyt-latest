@@ -20,7 +20,7 @@ https://nytimes.com/video/world/middleeast/100000010241564/israel-iran-missile-s
 
 **Judge Blocks Trump’s Tying of Transportation Funds to Immigration Enforcement**\
 `Attorneys general in 20 states, most led by Democrats, had sued the administration. Similar suits have been filed over funding for other programs.`\
-https://nytimes.com/2025/06/20/us/politics/judge-blocks-trumps-tying-of-transportation-funds-to-immigration-enforcement.html
+https://nytimes.com/2025/06/20/us/politics/trump-transportation-funds-immigration-states.html
 
 **Lou Christie, ‘Lightnin’ Strikes’ Pop Crooner, Is Dead at 82**\
 `A late-1960s throwback to the days of clean-cut teen idols — he called himself “the missing link” — he rode his gymnastic vocal range to a string of hits.`\
