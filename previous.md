@@ -1,3 +1,7 @@
+**How Astronomers Will Deal With 60 Million Billion Bytes of Imagery**\
+`The Vera C. Rubin Observatory will make the study of stars and galaxies more like the big data-sorting exercises of contemporary genetics and particle physics.`\
+https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html
+
 **Huge Crowds Rally Across Middle East, Venting Anger at Israel**\
 `Demonstrators took to the streets of Iran, Iraq and Lebanon on Friday after midday prayers, expressing anger at Israel’s widening offensive.`\
 https://nytimes.com/2025/06/20/world/middleeast/iran-israel-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/climate/minerals-exploration.html
 **The Bounce: Pacers-Thunder Game 7 means predictions and all-time NBA Finals rankings**\
 `The tricky thing about watching and loving a seven-game series is the nostalgia. Where will Pacers-Thunder rank in the end?`\
 https://nytimes.com/athletic/6440068/2025/06/20/pacers-thunder-game-7-nba-finals-the-bounce/
-
-**Lowetide: An early look at the Oilers' potential 2025-26 roster**\
-`Here's a position-by-position look at how things might turn out for the Oilers in the weeks to come.`\
-https://nytimes.com/athletic/6436540/2025/06/20/edmonton-oilers-roster-2025-26/
 

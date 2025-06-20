@@ -1,3 +1,7 @@
+**How Astronomers Will Deal With 60 Million Billion Bytes of Imagery**\
+`The Vera C. Rubin Observatory will make the study of stars and galaxies more like the big data-sorting exercises of contemporary genetics and particle physics.`\
+https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html
+
 **Huge Crowds Rally Across Middle East, Venting Anger at Israel**\
 `Demonstrators took to the streets of Iran, Iraq and Lebanon on Friday after midday prayers, expressing anger at Israel’s widening offensive.`\
 https://nytimes.com/2025/06/20/world/middleeast/iran-israel-protests.html
