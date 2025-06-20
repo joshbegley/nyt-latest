@@ -1,3 +1,7 @@
+**Stars trade Mason Marchment to Kraken for 2 draft picks**\
+`Seattle took on all of Marchment’s $4.5 million cap hit for next season in the deal, according to league sources.`\
+https://nytimes.com/athletic/6439160/2025/06/19/stars-mason-marchment-kraken-trade/
+
 **Seattle 1 Atlético Madrid 3: MLS side on verge of Club World Cup exit**\
 `Atlético Madrid rebounded from humiliation against PSG, while Seattle suffered another home setback despite a spirited effort.`\
 https://nytimes.com/athletic/6438888/2025/06/19/seattle-sounders-atletico-madrid-club-world-cup-highlights/
