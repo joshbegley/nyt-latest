@@ -1,4 +1,4 @@
-**Mahmoud Khalil Must Be Released, Federal Judge Orders**\
+**Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
 `Mr. Khalil, a Columbia University graduate and legal permanent resident, has been held in Louisiana for more than three months. The Trump administration is trying to deport him.`\
 https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
 
