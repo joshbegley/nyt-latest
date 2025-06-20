@@ -1,3 +1,7 @@
+**‘How to Train Your Dragon’ | Anatomy of a Scene**\
+`Dean DeBlois narrates a sequence from the live-action film featuring Mason Thames.`\
+https://nytimes.com/video/movies/100000010233829/how-to-train-your-dragon-scene.html
+
 **NBA free agency 2025: LeBron highlights thin power forward class, but is he going anywhere?**\
 `At 40, James is one of only 14 players whom BORD$ projects as being worth at least $52 million for the coming season.`\
 https://nytimes.com/athletic/6433197/2025/06/20/nba-free-agency-2025-power-forward-market/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/crosswords/spelling-bee-forum.html
 **Here’s the latest.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
-
-**Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
-`Iran’s foreign minister is to meet his European counterparts Friday. President Trump said he would give diplomacy a chance, dashing Israeli hopes for immediate U.S. involvement.`\
-https://nytimes.com/live/2025/06/20/world/israel-iran-trump
 

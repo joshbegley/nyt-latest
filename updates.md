@@ -1,3 +1,7 @@
+**NBA free agency 2025: LeBron highlights thin power forward class, but is he going anywhere?**\
+`At 40, James is one of only 14 players whom BORD$ projects as being worth at least $52 million for the coming season.`\
+https://nytimes.com/athletic/6433197/2025/06/20/nba-free-agency-2025-power-forward-market/
+
 **Arsenal are finalising a deal to sign Zubimendi from Real Sociedad**\
 `The Spain international, 26, has a €60million (£51.7m; $63.4m) release clause in his current contract.`\
 https://nytimes.com/athletic/6353153/2025/06/20/arsenal-transfer-martin-zubimendi/
