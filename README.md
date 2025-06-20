@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6435925/2025/06/20/nba-draft-confidential-bigs-cent
 `A six-part series remembering the most controversial transfers in football history`\
 https://nytimes.com/athletic/6437987/2025/06/20/transfers-that-shook-the-world-a-new-podcast-series-from-the-athletic-fc/
 
+**What we're hearing about the Mets, White Sox and Royals' trade deadline plans, plus more MLB notes**\
+`Plus more on the Padres, DBacks and Giants' outlooks as July approaches.`\
+https://nytimes.com/athletic/6439197/2025/06/20/mlb-trade-deadline-mets-white-sox-royals/
+
 **College hoops coaches weigh in on their 2026 NBA Draft sleepers**\
 `Coaches who saw this year's NBA Draft prospects during college  dish on the under-the-rader names whose game they liked and disliked.`\
 https://nytimes.com/athletic/6435184/2025/06/20/2026-nba-draft-sleepers-college-coach-scouting/
-
-**Five bats fantasy baseball managers can actually drop, based on projections**\
-`Using projections, here are five hitters you might consider dumping, starting with a certain shortstop in San Francisco.`\
-https://nytimes.com/athletic/6438684/2025/06/20/mlb-fantasy-baseball-hitters-drop-candidates/
 
