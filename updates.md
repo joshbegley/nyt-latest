@@ -1,3 +1,15 @@
+**Florida Approves Plan to Help Billionaires Export Their Sewage**\
+`Gov. Ron DeSantis signed a bill to help Indian Creek Village, home to the likes of Jeff Bezos and Jared Kushner, avoid paying a neighboring town millions to allow transport of its sewage under its streets.`\
+https://nytimes.com/2025/06/20/us/indian-creek-sewage-desantis.html
+
+**What to Know About the Wedding of Jeff Bezos and Lauren Sánchez**\
+`The second marriage for both is taking place in Venice, Italy, under a shroud of secrecy and amid a swarm of speculation.`\
+https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-wedding.html
+
+**Louis Diaz, Undercover Agent Who Busted a Drug Kingpin, Dies at 79**\
+`He posed as a renegade mobster dealing drugs and laundering cash to help topple Nicky Barnes, who as “Mr. Untouchable” ran a formidable Harlem heroin ring.`\
+https://nytimes.com/2025/06/20/nyregion/louis-diaz-dead.html
+
 **Pilot Killed in Plane Crash Had Lifted Wheel to Dodge a Turtle, N.T.S.B. Says**\
 `One other person on board was killed in the June 3 crash in North Carolina and another passenger was severely injured.`\
 https://nytimes.com/2025/06/20/us/turtle-plane-crash-north-carolina.html
