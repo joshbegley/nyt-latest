@@ -1,3 +1,7 @@
+**Are Israel’s Airstrikes on Iran Within Legal Bounds?**\
+`International law experts are divided.`\
+https://nytimes.com/2025/06/20/world/middleeast/iran-israel-airstrikes-legal.html
+
 **T.J. McConnell, scrappy and urgent, was built for an NBA Finals Game 7**\
 `If anyone exemplifies the Pacers' heart and all-out play, it's their undersized but undeterred backup point guard.`\
 https://nytimes.com/athletic/6439681/2025/06/20/t-j-mcconnell-pacers-game-6-nba-finals/

@@ -1,3 +1,7 @@
+**Are Israel’s Airstrikes on Iran Within Legal Bounds?**\
+`International law experts are divided.`\
+https://nytimes.com/2025/06/20/world/middleeast/iran-israel-airstrikes-legal.html
+
 **T.J. McConnell, scrappy and urgent, was built for an NBA Finals Game 7**\
 `If anyone exemplifies the Pacers' heart and all-out play, it's their undersized but undeterred backup point guard.`\
 https://nytimes.com/athletic/6439681/2025/06/20/t-j-mcconnell-pacers-game-6-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6439405/2025/06/20/braves-takeaways-mets-acuna/
 **Coaches, execs, scouts on Khaman Maluach, top center prospects: 2025 NBA Draft Confidential**\
 `Khaman Maluach is "huge" with "the biggest upside" of any player in the draft. Here's what coaches, execs have to say about the Duke star.`\
 https://nytimes.com/athletic/6435925/2025/06/20/nba-draft-confidential-bigs-centers-2025/
-
-**Transfers that shook the world: A new podcast series from The Athletic FC**\
-`A six-part series remembering the most controversial transfers in football history`\
-https://nytimes.com/athletic/6437987/2025/06/20/transfers-that-shook-the-world-a-new-podcast-series-from-the-athletic-fc/
 
