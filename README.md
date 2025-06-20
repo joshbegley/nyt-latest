@@ -1,40 +1,40 @@
-**As Dense Cities Encircle India’s Busiest Airports, Dangers Multiply**\
-`The crash of an Air India flight shows how the country’s ambitions of rapid growth are often superimposed on urban infrastructures already pushed to the limit.`\
-https://nytimes.com/2025/06/19/world/asia/air-india-airport-danger.html
+**UEFA European Under-21 Championship: Five players who impressed in the group stage**\
+`This tournament is invariably showcases the best up-and-coming talent in European football — the 2025 edition is no different `\
+https://nytimes.com/athletic/6434607/2025/06/20/u21-euros-five-players-to-watch/
 
-**To snap losing streak, Mets will need offense to step up**\
-`This lineup was constructed to be the club's foundation. "I think it's right around the corner," Brandon Nimmo said. It better be.`\
-https://nytimes.com/athletic/6439377/2025/06/19/mets-losing-streak-braves/
+**A U.S. Attack on Iran Would Show the Limits of China’s Power**\
+`China, which depends on Iran for oil and to counter American influence, has a lot to lose from a wider war. But there’s not much it can do about it.`\
+https://nytimes.com/2025/06/20/world/asia/us-iran-israel-china.html
 
-**USMNT grinds way by Saudi Arabia into Gold Cup knockout stage**\
-`Chris Richards was the difference maker on both sides of the field, allowing the U.S. to eke out a 1-0 win over the Gold Cup's guest nation`\
-https://nytimes.com/athletic/6439277/2025/06/19/usmnt-saudi-arabia-richards-pochettino/
+**No Corrections: June 20, 2025**\
+`No corrections appeared in print on Friday, June 20, 2025.`\
+https://nytimes.com/2025/06/20/pageoneplus/no-corrections-june-20-2025.html
 
-**Paris Saint-Germain 0 Botafogo 1 - Are Europe's struggles good for the Club World Cup?**\
-`Analysis of Botafogo's victory over PSG at the Club World Cup`\
-https://nytimes.com/athletic/6427516/2025/06/19/paris-saint-germain-botafogo-club-world-cup-highlights/
+**Debate Is Their Love Language**\
+`Rachel Atcheson intended to challenge Sean McElwee over political spending. Instead, they fell in love.`\
+https://nytimes.com/2025/06/20/style/sean-mcelwee-rachel-atcheson-wedding.html
 
-**Pacers blow out Thunder to force first NBA Finals Game 7 in nine years**\
-`With Tyrese Haliburton questionable heading into Thursday's game, Indiana responded forcefully to shift the series back to Oklahoma City.`\
-https://nytimes.com/athletic/6439368/2025/06/19/pacers-thunder-nba-finals-game-6-recap-takeaways/
+**She Didn’t Give Up on Her YouTube Dream — or on Love**\
+`Remi Cruz, known as Miss Remi Ashten on YouTube, was coy about being a social media star when she met Cal Parsons. Not only was he impressed, but he now works with her.`\
+https://nytimes.com/2025/06/20/style/remi-cruz-cal-parsons-wedding.html
 
-**Appeals Court Lets Trump Keep Control of California National Guard in L.A.**\
-`A panel rejected a lower-court’s finding that it was likely illegal for President Trump to use state troops to protect immigration agents from protests.`\
-https://nytimes.com/2025/06/19/us/california-national-guard-trump.html
+**Men, Where Have You Gone? Please Come Back.**\
+`So many men have retreated from intimacy, hiding behind firewalls, filters and curated personas, dabbling and scrolling. We miss you.`\
+https://nytimes.com/2025/06/20/style/modern-love-men-where-have-you-gone-please-come-back.html
 
-**Messi delivers a show-stopping moment the Club World Cup, Miami and MLS needed**\
-`In a tournament devoid of signature moments and memorable victories, Lionel Messi, at 37, delivered both with one swift kick.`\
-https://nytimes.com/athletic/6439235/2025/06/19/lionel-messi-goal-club-world-cup-inter-miami-porto-mls/
+**Chinese Companies Set Their Sights on Brazil**\
+`Confronted with tariffs and scrutiny in the United States and Europe, Chinese consumer brands are betting that they can become household names in Latin America’s biggest economy.`\
+https://nytimes.com/2025/06/20/business/china-temu-meituan-shein-brazil.html
 
-**Rays' Hunter Bigge taken off field on stretcher after being hit by foul ball**\
-`The Rays pitcher was standing in the front row of the dugout when he was hit by a foul ball off the bat of the Orioles' Adley Rutschman.`\
-https://nytimes.com/athletic/6439263/2025/06/19/rays-hunter-bigge-injury-foul-ball/
+**His Four-Legged Wingman Helped to Seal the Deal**\
+`Leland Vittert adopted Dutch, a black Labrador retriever, as an insurance policy to keep Rachel Putnam around. It worked. Dutch was the ring bearer at their wedding.`\
+https://nytimes.com/2025/06/20/style/rachel-putnam-leland-vittert-wedding.html
 
-**Man Is Charged With Trying to Kidnap Memphis Mayor, Police Say**\
-`The 25-year-old man told the police that he had gone to the home of Mayor Paul Young to confront him about crime. The police later found a stun gun, rope and duct tape in the man’s car, they said.`\
-https://nytimes.com/2025/06/19/us/threat-kidnapping-memphis-mayor.html
+**Connections: Sports Edition Coach: Hints for June 20, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6438921/2025/06/20/connections-sports-edition-hints-for-june-20-2025/
 
-**It’s the Greatest Part!**\
-`Adrianne Baik makes her New York Times Crossword debut with some dynamic, grid-spanning stacks.`\
-https://nytimes.com/2025/06/19/crosswords/daily-puzzle-2025-06-20.html
+**Quote of the Day: He Came to Put Up a Flagpole And Got a Trump Talk on Iran**\
+`Quotation of the Day for Friday, June 20, 2025`\
+https://nytimes.com/2025/06/19/pageoneplus/quote-of-the-day-he-came-to-put-up-a-flagpole-and-got-a-trump-talk-on-iran.html
 
