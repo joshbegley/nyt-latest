@@ -1,3 +1,7 @@
+**Louisiana’s Ten Commandments Law Is Unconstitutional, Appeals Court Says**\
+`The court unanimously ruled that the state cannot require schools and universities to display the Commandments.`\
+https://nytimes.com/2025/06/20/us/politics/louisianas-ten-commandments-law-appeals-court-unconstitutional.html
+
 **Florida Approves Plan to Help Billionaires Export Their Sewage**\
 `Gov. Ron DeSantis signed a bill to help Indian Creek Village, home to the likes of Jeff Bezos and Jared Kushner, avoid paying a neighboring town millions to allow transport of its sewage under its streets.`\
 https://nytimes.com/2025/06/20/us/indian-creek-sewage-desantis.html
