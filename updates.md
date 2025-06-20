@@ -1,3 +1,11 @@
+**T.J. McConnell, scrappy and urgent, was built for an NBA Finals Game 7**\
+`If anyone exemplifies the Pacers' heart and all-out play, it's their undersized but undeterred backup point guard.`\
+https://nytimes.com/athletic/6439681/2025/06/20/t-j-mcconnell-pacers-game-6-nba-finals/
+
+**Liverpool reach Bournemouth agreement on £40m Kerkez transfer**\
+`A medical is expected to take place next week ahead of the left-back signing a five-year contract at Anfield.`\
+https://nytimes.com/athletic/6258960/2025/06/20/liverpool-transfer-news-kerkez-bournemouth/
+
 **What we're hearing about the Mets, White Sox and Royals' trade deadline plans, plus more MLB notes**\
 `Plus more on the Padres, DBacks and Giants' outlooks as July approaches.`\
 https://nytimes.com/athletic/6439197/2025/06/20/mlb-trade-deadline-mets-white-sox-royals/
