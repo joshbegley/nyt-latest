@@ -1,3 +1,7 @@
+**Anne Burrell’s Death Is Under Investigation as a Possible Drug Overdose**\
+`The city’s medical examiner has not determined a cause, but an internal police document says the TV chef was found surrounded by pills.`\
+https://nytimes.com/2025/06/20/dining/anne-burrell-overdose-death-investigation.html
+
 **Tehran Balks at Negotiation Talks as Israel and Iran Trade Fire**\
 `During a U.N. Security Council meeting on Friday, Iran’s top diplomat said there was “no room for talking” until Israel stopped its attacks.`\
 https://nytimes.com/video/world/middleeast/100000010241564/israel-iran-missile-strikes-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/louisianas-ten-commandments-law-appea
 **Florida Approves Plan to Help Billionaires Export Their Sewage**\
 `Gov. Ron DeSantis signed a bill to help Indian Creek Village, home to the likes of Jeff Bezos and Jared Kushner, avoid paying a neighboring town millions to allow transport of its sewage under its streets.`\
 https://nytimes.com/2025/06/20/us/indian-creek-sewage-desantis.html
-
-**What to Know About the Wedding of Jeff Bezos and Lauren Sánchez**\
-`The second marriage for both is taking place in Venice, Italy, under a shroud of secrecy and amid a swarm of speculation.`\
-https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-wedding.html
 
