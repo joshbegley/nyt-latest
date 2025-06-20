@@ -1,3 +1,23 @@
+**Lou Christie, ‘Lightnin’ Strikes’ Pop Crooner, Is Dead at 82**\
+`A late-1960s throwback to the days of clean-cut teen idols — he called himself “the missing link” — he rode his gymnastic vocal range to a string of hits.`\
+https://nytimes.com/2025/06/20/arts/music/lou-christie-dead.html
+
+**Negotiations With Iran Failed to Yield a Breakthrough**\
+`Also, temperatures are soaring across the U.S. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/06/20/briefing/negotiations-with-iran-failed-to-yield-a-breakthrough.html
+
+**River Plate's Gallardo says he made Ronaldo Club World Cup offer**\
+`Ronaldo, 40, confirmed earlier in June he would not be at the tournament despite receiving multiple offers.`\
+https://nytimes.com/athletic/6440992/2025/06/20/cristiano-ronaldo-club-world-cup-offers/
+
+**Dale Earnhardt Jr., NASCAR crew chief: How his one-off Xfinity cameo came to be**\
+`Earnhardt will lead the pit box for Connor Zilisch, who drives for Earnhardt's JR Motorsports, for this weekend's Xfinity Series race.`\
+https://nytimes.com/athletic/6440889/2025/06/20/dale-earnhardt-jr-nascar-crew-chief-xfinity-series/
+
+**Accusations fly at a heated U.N. Security Council session on Iran and Israel, amid pleas for peace.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump/accusations-fly-at-a-heated-un-security-council-session-on-iran-and-israel-amid-pleas-for-peace
+
 **Louisiana’s Ten Commandments Law Is Unconstitutional, Appeals Court Says**\
 `The court unanimously ruled that the state cannot require schools and universities to display the Commandments.`\
 https://nytimes.com/2025/06/20/us/politics/louisianas-ten-commandments-law-appeals-court-unconstitutional.html
