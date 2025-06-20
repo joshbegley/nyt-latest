@@ -1,3 +1,19 @@
+**Huge Crowds Rally Across Middle East, Venting Anger at Israel**\
+`Demonstrators took to the streets of Iran, Iraq and Lebanon on Friday after midday prayers, expressing anger at Israel’s widening offensive.`\
+https://nytimes.com/2025/06/20/world/middleeast/iran-israel-protests.html
+
+**Jonathan Toews, Jets agree to 1-year deal**\
+`The longtime Chicago Blackhawk hasn't played since April 2023.`\
+https://nytimes.com/athletic/6440169/2025/06/20/jonathan-toews-winnipeg-jets-contract-nhl/
+
+**Rafael Devers is walking more than ever, which is a good sign for his future**\
+`Devers has one of the best walk rates in baseball. If he keeps that up for a few seasons, he'll be a bargain.`\
+https://nytimes.com/athletic/6438663/2025/06/20/rafael-devers-sf-giants-walk-trends/
+
+**Who Wants a BlackBerry? Apparently, Gen Z.**\
+`Barely old enough to hold the devices when they were popular, young social media users are longing for “nostalgia tech.”`\
+https://nytimes.com/2025/06/20/style/blackberry-nostalgia-tiktok.html
+
 **Two-time WSL winner Beard appointed new Burnley manager**\
 `Beard has been out of management since being dismissed Liverpool in February.`\
 https://nytimes.com/athletic/6437495/2025/06/20/matt-beard-burnley-manager/

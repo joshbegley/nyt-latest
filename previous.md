@@ -1,3 +1,19 @@
+**Huge Crowds Rally Across Middle East, Venting Anger at Israel**\
+`Demonstrators took to the streets of Iran, Iraq and Lebanon on Friday after midday prayers, expressing anger at Israel’s widening offensive.`\
+https://nytimes.com/2025/06/20/world/middleeast/iran-israel-protests.html
+
+**Jonathan Toews, Jets agree to 1-year deal**\
+`The longtime Chicago Blackhawk hasn't played since April 2023.`\
+https://nytimes.com/athletic/6440169/2025/06/20/jonathan-toews-winnipeg-jets-contract-nhl/
+
+**Rafael Devers is walking more than ever, which is a good sign for his future**\
+`Devers has one of the best walk rates in baseball. If he keeps that up for a few seasons, he'll be a bargain.`\
+https://nytimes.com/athletic/6438663/2025/06/20/rafael-devers-sf-giants-walk-trends/
+
+**Who Wants a BlackBerry? Apparently, Gen Z.**\
+`Barely old enough to hold the devices when they were popular, young social media users are longing for “nostalgia tech.”`\
+https://nytimes.com/2025/06/20/style/blackberry-nostalgia-tiktok.html
+
 **Two-time WSL winner Beard appointed new Burnley manager**\
 `Beard has been out of management since being dismissed Liverpool in February.`\
 https://nytimes.com/athletic/6437495/2025/06/20/matt-beard-burnley-manager/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6440068/2025/06/20/pacers-thunder-game-7-nba-finals
 **Lowetide: An early look at the Oilers' potential 2025-26 roster**\
 `Here's a position-by-position look at how things might turn out for the Oilers in the weeks to come.`\
 https://nytimes.com/athletic/6436540/2025/06/20/edmonton-oilers-roster-2025-26/
-
-**Hurricanes need a second-line center: Here are some free-agent, trade options**\
-`Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
-https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agents/
-
-**What your favorite UFA is up to right now, some Canadian pride and more: DGB Grab Bag**\
-`The three stars of comedy (playoff edition), a particularly patriotic YouTube classic and a peace offering on puck-over-glass penalties.`\
-https://nytimes.com/athletic/6439021/2025/06/20/nhl-free-agency-biggest-ufas-canada/
-
-**Why Ferrari can't win in F1, but it can win Le Mans. Plus, Robert Kubica praise**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6440055/2025/06/20/ferrari-le-mans-robert-kubica-f1-prime-tire/
-
-**Van de Donk joins London City Lionesses from Lyon**\
-`The former Arsenal player joins the newly-promoted side in their first season in the WSL after four years at Lyon.`\
-https://nytimes.com/athletic/6440097/2025/06/20/wsl-van-de-donk-london-city-lioness-transfer/
 
