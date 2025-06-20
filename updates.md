@@ -1,3 +1,11 @@
+**Dodgers, Padres benches clear in series finale, both managers ejected**\
+`It's the second such incident between the two teams during the four-game series. `\
+https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/
+
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/06/20/briefing/iran-israel-china-hacking.html
+
 **The New York Times in Print for Friday, June 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/20/todays-new-york-times
