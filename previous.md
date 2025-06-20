@@ -1,3 +1,7 @@
+**Wilmer Flores comes through in a pinch, wins the day for Giants**\
+`For all the ways the Rafael Devers trade could limit his opportunities, Flores remains a vital part of the Giants' roster.`\
+https://nytimes.com/athletic/6439228/2025/06/19/wilmer-flores-pinch-hit-wins-giants/
+
 **‘And Just Like That …’ Season 3, Episode 4 Recap: Guilty**\
 `Aidan says he invited Carrie to stay with him longer in Virginia because he felt guilty. But is that really true?`\
 https://nytimes.com/2025/06/19/arts/television/and-just-like-that-recap-season-3-episode-4.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/world/middleeast/israels-military-says-iran-struc
 **Why 'there's no panic' about the Yankees' offense, especially Aaron Judge**\
 `Yankees hitting coach James Rowson is not worried about his hitters, including Judge, whom he called "the most dangerous man in baseball."`\
 https://nytimes.com/athletic/6438700/2025/06/19/yankees-offense-aaron-judge-hitting-woes/
-
-**Byron Buxton proves worthy of All-Star votes with another big day and more Twins takeaways**\
-`Buxton's .898 OPS is the best among qualified major-league center fielders, but he's well behind All-Star fan voting.`\
-https://nytimes.com/athletic/6438992/2025/06/19/twins-byron-buxton-all-star-votes/
 

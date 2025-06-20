@@ -1,3 +1,7 @@
+**Wilmer Flores comes through in a pinch, wins the day for Giants**\
+`For all the ways the Rafael Devers trade could limit his opportunities, Flores remains a vital part of the Giants' roster.`\
+https://nytimes.com/athletic/6439228/2025/06/19/wilmer-flores-pinch-hit-wins-giants/
+
 **‘And Just Like That …’ Season 3, Episode 4 Recap: Guilty**\
 `Aidan says he invited Carrie to stay with him longer in Virginia because he felt guilty. But is that really true?`\
 https://nytimes.com/2025/06/19/arts/television/and-just-like-that-recap-season-3-episode-4.html
