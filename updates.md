@@ -1,3 +1,7 @@
+**One difference-making trade for each AL team in the wild-card race**\
+`Ten AL teams, to varying degrees, are in the race for a wild-card spot. Here, we suggest a potential trade that could boost each of them.`\
+https://nytimes.com/athletic/6437995/2025/06/20/mlb-trade-deadline-american-league-wild-card-team-scenarios/
+
 **Test cricket explained in 60 seconds**\
 `Everything you need to know to understand cricket's five-day epics`\
 https://nytimes.com/athletic/6434509/2025/06/20/test-cricket-explained-in-60-seconds/
