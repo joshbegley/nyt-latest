@@ -1,3 +1,7 @@
+**Luis Diaz, Undercover Agent Who Busted a Drug Kingpin, Dies at 79**\
+`He posed as a renegade mobster dealing drugs and laundering cash to help topple Nicky Barnes, who as “Mr. Untouchable” ran a formidable Harlem heroin ring.`\
+https://nytimes.com/2025/06/20/nyregion/luis-diaz-dead.html
+
 **Insurers Pledge to Ease Controversial Prior Approvals for Medical Care**\
 `Major companies had faced mounting pressure to stop denying or stalling authorization of coverage for treatments and prescriptions.`\
 https://nytimes.com/2025/06/20/health/health-insurance-prior-authorization.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://nytimes.com/interactive/2025/06/20/espanol/terremoto-iran.html
 
-**Benfica-Aukland City Club World Cup game endures over two-hour weather delay**\
+**Benfica-Auckland City Club World Cup game endures over two-hour weather delay**\
 `The fixture was the latest match at this summer's tournament to be delayed due to the weather conditions`\
 https://nytimes.com/athletic/6440799/2025/06/20/benfica-aukland-city-club-world-cup-weather-delay/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440697/2025/06/20/tampa-bay-rays-buyer-trip-miller
 **Boca Juniors pair Herrera, Figal handed four-match Club World Cup bans**\
 `Both were sent off in their opening game of the Club World Cup against Benfica on Monday.`\
 https://nytimes.com/athletic/6437202/2025/06/20/boca-juniors-herrera-figal-club-world-cup-bans/
-
-**Supreme Court Won’t Fast-Track Tariffs Challenge**\
-`In an unusual request, two toy manufacturers had asked the court to greatly expedite their case.`\
-https://nytimes.com/2025/06/20/us/politics/supreme-court-tariffs-challenge.html
 

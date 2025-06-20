@@ -1,3 +1,11 @@
+**Luis Diaz, Undercover Agent Who Busted a Drug Kingpin, Dies at 79**\
+`He posed as a renegade mobster dealing drugs and laundering cash to help topple Nicky Barnes, who as “Mr. Untouchable” ran a formidable Harlem heroin ring.`\
+https://nytimes.com/2025/06/20/nyregion/luis-diaz-dead.html
+
+**Benfica-Auckland City Club World Cup game endures over two-hour weather delay**\
+`The fixture was the latest match at this summer's tournament to be delayed due to the weather conditions`\
+https://nytimes.com/athletic/6440799/2025/06/20/benfica-aukland-city-club-world-cup-weather-delay/
+
 **Insurers Pledge to Ease Controversial Prior Approvals for Medical Care**\
 `Major companies had faced mounting pressure to stop denying or stalling authorization of coverage for treatments and prescriptions.`\
 https://nytimes.com/2025/06/20/health/health-insurance-prior-authorization.html
