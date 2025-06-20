@@ -1,3 +1,7 @@
+**When the Past Is Lost**\
+`Years after a devastating fire, Brazil is slowly rebuilding an institution dedicated to the country’s cultural heritage.`\
+https://nytimes.com/2025/06/20/special-series/brazil-national-museum-rebuilding-history.html
+
 **Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
 `Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver`\
 https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/business/stock-bond-market-investing-israel-iran-
 **You Only Get Married a Few Times. Why Not Go All Out?**\
 `As the Jeff Bezos-Lauren Sánchez nuptials approach, a look at how second weddings went from low-key to lavish.`\
 https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-second-weddings.html
-
-**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 27 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
-https://nytimes.com/2025/06/20/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
 

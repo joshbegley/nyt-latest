@@ -1,3 +1,7 @@
+**When the Past Is Lost**\
+`Years after a devastating fire, Brazil is slowly rebuilding an institution dedicated to the country’s cultural heritage.`\
+https://nytimes.com/2025/06/20/special-series/brazil-national-museum-rebuilding-history.html
+
 **Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
 `Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver`\
 https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/

@@ -1,3 +1,7 @@
+**Jurickson Profar, Addison Barger and more top fantasy baseball waiver wire adds**\
+`Owen Poindexter highlights the top options on the fantasy baseball waiver wire, noting a surprisingly available player who can add saves.`\
+https://nytimes.com/athletic/6438282/2025/06/20/fantasy-baseball-waiver-wire-adds-profar-barger/
+
 **When the Past Is Lost**\
 `Years after a devastating fire, Brazil is slowly rebuilding an institution dedicated to the country’s cultural heritage.`\
 https://nytimes.com/2025/06/20/special-series/brazil-national-museum-rebuilding-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/your-money/credit-scores-rent-payments.html
 **The Markets Are Balancing on a Knife’s Edge**\
 `The world has been anything but peaceful, but you wouldn’t know that from looking at the markets.`\
 https://nytimes.com/2025/06/20/business/stock-bond-market-investing-israel-iran-gulf.html
-
-**You Only Get Married a Few Times. Why Not Go All Out?**\
-`As the Jeff Bezos-Lauren Sánchez nuptials approach, a look at how second weddings went from low-key to lavish.`\
-https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-second-weddings.html
 
