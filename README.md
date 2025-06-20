@@ -1,3 +1,11 @@
+**Shilton v Fabio: Who really holds the world record for senior appearances?**\
+`Did the Fluminense goalkeeper just quietly break the former England goalkeeper's record?`\
+https://nytimes.com/athletic/6434849/2025/06/20/fabio-shilton-world-record-appearances/
+
+**The Club World Cup Scout, Part 1: Elias Montiel – a versatile midfielder who imposes himself on games**\
+`The first in our series analysing the rising stars of the Club World Cup looks at a teenage talent with Mexican side Pachuca`\
+https://nytimes.com/athletic/6437762/2025/06/20/the-club-world-cup-scout-elias-montiel/
+
 **UEFA European Under-21 Championship: Five players who impressed in the group stage**\
 `This tournament is invariably showcases the best up-and-coming talent in European football — the 2025 edition is no different `\
 https://nytimes.com/athletic/6434607/2025/06/20/u21-euros-five-players-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/business/china-temu-meituan-shein-brazil.html
 **His Four-Legged Wingman Helped to Seal the Deal**\
 `Leland Vittert adopted Dutch, a black Labrador retriever, as an insurance policy to keep Rachel Putnam around. It worked. Dutch was the ring bearer at their wedding.`\
 https://nytimes.com/2025/06/20/style/rachel-putnam-leland-vittert-wedding.html
-
-**Connections: Sports Edition Coach: Hints for June 20, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6438921/2025/06/20/connections-sports-edition-hints-for-june-20-2025/
-
-**Quote of the Day: He Came to Put Up a Flagpole And Got a Trump Talk on Iran**\
-`Quotation of the Day for Friday, June 20, 2025`\
-https://nytimes.com/2025/06/19/pageoneplus/quote-of-the-day-he-came-to-put-up-a-flagpole-and-got-a-trump-talk-on-iran.html
 
