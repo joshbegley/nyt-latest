@@ -1,3 +1,7 @@
+**Trump’s Crucial Decision on Iran**\
+`Readers discuss whether the U.S. should take military action in Iran. Also: A Canadian view; how children should spend summer.`\
+https://nytimes.com/2025/06/20/opinion/trump-iran-strategy.html
+
 **U.S. rejects visas for Senegal women's national basketball team members, staff**\
 `The training camp, which will now take place in Senegal, is in preparation for the Women’s AfroBasket.`\
 https://nytimes.com/athletic/6440194/2025/06/20/senegal-womens-national-basketball-visas-rejected-immigration/
