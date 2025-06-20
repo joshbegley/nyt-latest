@@ -1,3 +1,15 @@
+**U.S. rejects visas for Senegal women's national basketball team members, staff**\
+`The training camp, which will now take place in Senegal, is in preparation for the Women’s AfroBasket.`\
+https://nytimes.com/athletic/6440194/2025/06/20/senegal-womens-national-basketball-visas-rejected-immigration/
+
+**Tottenham make Semenyo enquiry to Bournemouth**\
+`Semenyo is thought to be attracted by the prospect of a Spurs move but Bournemouth's asking price has deterred further short-term interest.`\
+https://nytimes.com/athletic/6438639/2025/06/20/antoine-semenyo-tottenham-transfer-bournemouth/
+
+**Live Q&A: Dan Hayes answers your Twins questions**\
+`One of our Twins beat writers will be here to answer your questions next week.`\
+https://nytimes.com/athletic/6440253/2025/06/20/twins-live-qa-submit-questions/
+
 **Hundreds of Federal Workers at Voice of America Receive Layoff Notices**\
 `The terminations are the latest attack on the federally funded news networks, including Voice of America.`\
 https://nytimes.com/2025/06/20/us/politics/voice-america-layoffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6440207/2025/06/20/magnus-carlsen-chess-st-pauli-co
 **Trump urged to protect World Cup host cities from drone threat**\
 `Representative Darin LaHood says drones pose a threat to supporters at next summer's soccer tournament.`\
 https://nytimes.com/athletic/6438064/2025/06/20/trump-us-world-cup-drones/
-
-**UK Athletics permanently bans coach over relationship with athlete, racist comments**\
-`After being charged in April, a disciplinary committee found Chris Barnes guilty of nine charges that breached the coaches code of conduct.`\
-https://nytimes.com/athletic/6440377/2025/06/20/uk-athletics-coach-ban-athlete-relationship/
-
-**Bayesian Superyacht Is Raised From Bottom of Mediterranean**\
-`Many are hoping it will provide clues as to why the $40 million boat sank off the coast of Sicily 10 months ago, killing seven people.`\
-https://nytimes.com/2025/06/20/world/europe/bayesian-yacht-raised.html
-
-**Gareth Bale leading consortium to buy Cardiff City**\
-`The Welshman’s group sent a letter of intent to Cardiff owner Vincent Tan last month.`\
-https://nytimes.com/athletic/6440400/2025/06/20/gareth-bale-cardiff-city-takeover/
 
