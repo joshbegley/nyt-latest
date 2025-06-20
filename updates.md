@@ -1,3 +1,7 @@
+**Jimmy Kimmel Isn’t Shocked by Trump’s Silence on Juneteenth**\
+`Kimmel imagined the Trump base’s reaction had the president acknowledged the holiday: “We’re the ones who stopped enslaving — they should have a holiday for us!”`\
+https://nytimes.com/2025/06/20/arts/television/jimmy-kimmel-trump-juneteenth.html
+
 **Word of the Day: pliable**\
 `This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/20/learning/word-of-the-day-pliable.html
