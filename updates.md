@@ -1,3 +1,7 @@
+**We Asked. The Top Candidates for Mayor of New York City Answered.**\
+`We interviewed eight of the leading candidates for New York City mayor about their experience, their plans for the city and their sometimes contentious bagel orders. Here’s what they said.`\
+https://nytimes.com/2025/06/20/nyregion/nyc-mayor-interviews.html
+
 **Five Free Movies to Stream Now**\
 `Films including “Jodorowsky’s Dune” and Owen Kline’s “Funny Pages” delve into the pain and anguish — and brief ecstasy — of making art.`\
 https://nytimes.com/2025/06/20/movies/five-free-movies-to-stream-now.html
