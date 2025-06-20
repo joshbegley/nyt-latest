@@ -1,3 +1,7 @@
+**Louisiana’s Ten Commandments Law Is Unconstitutional, Appeals Court Says**\
+`The court unanimously ruled that the state cannot require schools and universities to display the Commandments.`\
+https://nytimes.com/2025/06/20/us/politics/louisianas-ten-commandments-law-appeals-court-unconstitutional.html
+
 **Florida Approves Plan to Help Billionaires Export Their Sewage**\
 `Gov. Ron DeSantis signed a bill to help Indian Creek Village, home to the likes of Jeff Bezos and Jared Kushner, avoid paying a neighboring town millions to allow transport of its sewage under its streets.`\
 https://nytimes.com/2025/06/20/us/indian-creek-sewage-desantis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/nyregion/louis-diaz-dead.html
 **Insurers Pledge to Ease Controversial Prior Approvals for Medical Care**\
 `Major companies had faced mounting pressure to stop denying or stalling authorization of coverage for treatments and prescriptions.`\
 https://nytimes.com/2025/06/20/health/health-insurance-prior-authorization.html
-
-**Benfica 6 Auckland City 0: Lage's patience tested as underdogs dig deep**\
-`Benfica recorded their first win of the Club World Cup on Friday after a frustrating first half and a lengthy weather-enforced delay`\
-https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
 
