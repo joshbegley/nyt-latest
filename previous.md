@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
+
+**Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
+`Iran’s foreign minister is to meet his European counterparts Friday. Trump said he would give diplomacy a chance, dashing Israeli hopes of immediate U.S. involvement.`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump
+
+**Iran’s Foreign Minister to Meet With European Counterparts Amid War Fears**\
+`The meetings with the top diplomats from Britain, France and Germany are viewed as a last-ditch effort to avoid a dangerous escalation in the conflict between Iran and Israel.`\
+https://nytimes.com/2025/06/20/world/europe/iran-foreign-minister-war-talks-europe-nuclear.html
+
 **Jimmy Kimmel Isn’t Shocked by Trump’s Silence on Juneteenth**\
 `Kimmel imagined the Trump base’s reaction had the president acknowledged the holiday: “We’re the ones who stopped enslaving — they should have a holiday for us!”`\
 https://nytimes.com/2025/06/20/arts/television/jimmy-kimmel-trump-juneteenth.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-
 **Club World Cup daily rankings: Brazilian powers, Miami make their move**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/20/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
-
-**Rating Forest's 102 permanent signings under Marinakis**\
-`There have now been more than 100 permanent signings during the Evangelos Marinakis era. We rate them all...`\
-https://nytimes.com/athletic/6424390/2025/06/20/rating-nottingham-forests-102-permanent-signings-under-evangelos-marinakis/
-
-**How Nick Gray, son of Eddie, is paying tribute to his brother: 'It's a way to keep his memory alive'**\
-`Nick is trying to complete 25 events in 2025 to raise money for the hospice where sibling Stuart died of a rare cancer last year at age 50`\
-https://nytimes.com/athletic/6438395/2025/06/20/nick-gray-interview-leeds/
-
-**Why Bernardo is the ideal captain for Pep Guardiola's new-look City**\
-`Why the Portuguese midfielder will be a key figure as a new team with a new energy take shape`\
-https://nytimes.com/athletic/6435066/2025/06/20/bernardo-silva-manchester-city-captain/
 

@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
+
+**Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
+`Iran’s foreign minister is to meet his European counterparts Friday. Trump said he would give diplomacy a chance, dashing Israeli hopes of immediate U.S. involvement.`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump
+
+**Iran’s Foreign Minister to Meet With European Counterparts Amid War Fears**\
+`The meetings with the top diplomats from Britain, France and Germany are viewed as a last-ditch effort to avoid a dangerous escalation in the conflict between Iran and Israel.`\
+https://nytimes.com/2025/06/20/world/europe/iran-foreign-minister-war-talks-europe-nuclear.html
+
 **Jimmy Kimmel Isn’t Shocked by Trump’s Silence on Juneteenth**\
 `Kimmel imagined the Trump base’s reaction had the president acknowledged the holiday: “We’re the ones who stopped enslaving — they should have a holiday for us!”`\
 https://nytimes.com/2025/06/20/arts/television/jimmy-kimmel-trump-juneteenth.html
