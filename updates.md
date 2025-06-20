@@ -1,3 +1,7 @@
+**Wolves sign winger Fer Lopez from Celta Vigo**\
+`The 21-year-old Spanish is Wolves' first signing of the summer transfer window, following the sales of Matheus Cunha and Rayan Ait-Nouri.`\
+https://nytimes.com/athletic/6427754/2025/06/20/wolves-transfers-fer-lopez-celta-vigo/
+
 **One difference-making trade for each AL team in the wild-card race**\
 `Ten AL teams, to varying degrees, are in the race for a wild-card spot. Here, we suggest a potential trade that could boost each of them.`\
 https://nytimes.com/athletic/6437995/2025/06/20/mlb-trade-deadline-american-league-wild-card-team-scenarios/

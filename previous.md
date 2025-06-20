@@ -1,3 +1,7 @@
+**Wolves sign winger Fer Lopez from Celta Vigo**\
+`The 21-year-old Spanish is Wolves' first signing of the summer transfer window, following the sales of Matheus Cunha and Rayan Ait-Nouri.`\
+https://nytimes.com/athletic/6427754/2025/06/20/wolves-transfers-fer-lopez-celta-vigo/
+
 **One difference-making trade for each AL team in the wild-card race**\
 `Ten AL teams, to varying degrees, are in the race for a wild-card spot. Here, we suggest a potential trade that could boost each of them.`\
 https://nytimes.com/athletic/6437995/2025/06/20/mlb-trade-deadline-american-league-wild-card-team-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/learning/to-the-teachers-who-think-louder-means-l
 **The Great Subscription Trap**\
 `We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Michael Shin, age 16.`\
 https://nytimes.com/2025/06/20/learning/the-great-subscription-trap.html
-
-**Raiders 53-man roster projection: What did we learn in OTAs and minicamp?**\
-`The Raiders have plenty of questions on their offensive line and in their defensive backfield. What should we expect in training camp?`\
-https://nytimes.com/athletic/6433403/2025/06/20/las-vegas-raiders-53-man-roster-projection-minicamp/
 
