@@ -1,3 +1,15 @@
+**USMNT grinds way by Saudi Arabia into Gold Cup knockout stage**\
+`Chris Richards was the difference maker on both sides of the field, allowing the U.S. to eke out a 1-0 win over the Gold Cup's guest nation`\
+https://nytimes.com/athletic/6439277/2025/06/19/usmnt-saudi-arabia-richards-pochettino/
+
+**Paris Saint-Germain 0 Botafogo 1 - Are Europe's struggles good for the Club World Cup?**\
+`Analysis of Botafogo's victory over PSG at the Club World Cup`\
+https://nytimes.com/athletic/6427516/2025/06/19/paris-saint-germain-botafogo-club-world-cup-highlights/
+
+**Pacers blow out Thunder to force first NBA Finals Game 7 in nine years**\
+`With Tyrese Haliburton questionable heading into Thursday's game, Indiana responded forcefully to shift the series back to Oklahoma City.`\
+https://nytimes.com/athletic/6439368/2025/06/19/pacers-thunder-nba-finals-game-6-recap-takeaways/
+
 **Appeals Court Lets Trump Keep Control of California National Guard in L.A.**\
 `A panel rejected a lower-court’s finding that it was likely illegal for President Trump to use state troops to protect immigration agents from protests.`\
 https://nytimes.com/2025/06/19/us/california-national-guard-trump.html

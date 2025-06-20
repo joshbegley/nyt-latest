@@ -1,3 +1,15 @@
+**USMNT grinds way by Saudi Arabia into Gold Cup knockout stage**\
+`Chris Richards was the difference maker on both sides of the field, allowing the U.S. to eke out a 1-0 win over the Gold Cup's guest nation`\
+https://nytimes.com/athletic/6439277/2025/06/19/usmnt-saudi-arabia-richards-pochettino/
+
+**Paris Saint-Germain 0 Botafogo 1 - Are Europe's struggles good for the Club World Cup?**\
+`Analysis of Botafogo's victory over PSG at the Club World Cup`\
+https://nytimes.com/athletic/6427516/2025/06/19/paris-saint-germain-botafogo-club-world-cup-highlights/
+
+**Pacers blow out Thunder to force first NBA Finals Game 7 in nine years**\
+`With Tyrese Haliburton questionable heading into Thursday's game, Indiana responded forcefully to shift the series back to Oklahoma City.`\
+https://nytimes.com/athletic/6439368/2025/06/19/pacers-thunder-nba-finals-game-6-recap-takeaways/
+
 **Appeals Court Lets Trump Keep Control of California National Guard in L.A.**\
 `A panel rejected a lower-court’s finding that it was likely illegal for President Trump to use state troops to protect immigration agents from protests.`\
 https://nytimes.com/2025/06/19/us/california-national-guard-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6439228/2025/06/19/wilmer-flores-pinch-hit-wins-gia
 **‘And Just Like That …’ Season 3, Episode 4 Recap: Guilty**\
 `Aidan says he invited Carrie to stay with him longer in Virginia because he felt guilty. But is that really true?`\
 https://nytimes.com/2025/06/19/arts/television/and-just-like-that-recap-season-3-episode-4.html
-
-**Why Marsch is under Concacaf investigation and Canada Soccer's response**\
-`Concacaf announced Wednesday it has initiated disciplinary proceedings against Marsch and Canada Soccer. `\
-https://nytimes.com/athletic/6439181/2025/06/19/jesse-marsch-concacaf-investigation-canada-gold-cup/
-
-**Stars trade Mason Marchment to Kraken for 2 draft picks**\
-`Seattle took on all of Marchment’s $4.5 million cap hit for next season in the deal, according to league sources.`\
-https://nytimes.com/athletic/6439160/2025/06/19/stars-mason-marchment-kraken-trade/
-
-**Seattle 1 Atlético Madrid 3: MLS side on verge of Club World Cup exit**\
-`Atlético Madrid rebounded from humiliation against PSG, while Seattle suffered another home setback despite a spirited effort.`\
-https://nytimes.com/athletic/6438888/2025/06/19/seattle-sounders-atletico-madrid-club-world-cup-highlights/
 
