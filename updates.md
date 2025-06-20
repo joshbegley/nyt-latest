@@ -1,3 +1,7 @@
+**Hurricanes need a second-line center: Here are some free-agent, trade options**\
+`Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
+https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agents/
+
 **Weekends Are for New Recipes**\
 `If you haven’t yet made Hetty Lui McKinnon’s crispy gnocchi with tomato and red onion, the first weekend of Actual Summer is a great time to do so.`\
 https://nytimes.com/2025/06/20/dining/easy-crispy-gnocchi-with-tomato-and-red-onion-recipe.html

@@ -14,9 +14,9 @@ https://nytimes.com/athletic/6440068/2025/06/20/pacers-thunder-game-7-nba-finals
 `Here's a position-by-position look at how things might turn out for the Oilers in the weeks to come.`\
 https://nytimes.com/athletic/6436540/2025/06/20/edmonton-oilers-roster-2025-26/
 
-**Hurricanes need a second-line center. Here are their options this offseason**\
+**Hurricanes need a second-line center: Here are some free-agent, trade options**\
 `Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
-https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agent/
+https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agents/
 
 **What your favorite UFA is up to right now, some Canadian pride and more: DGB Grab Bag**\
 `The three stars of comedy (playoff edition), a particularly patriotic YouTube classic and a peace offering on puck-over-glass penalties.`\
