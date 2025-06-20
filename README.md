@@ -1,3 +1,11 @@
+**T.J. McConnell, scrappy and urgent, was built for an NBA Finals Game 7**\
+`If anyone exemplifies the Pacers' heart and all-out play, it's their undersized but undeterred backup point guard.`\
+https://nytimes.com/athletic/6439681/2025/06/20/t-j-mcconnell-pacers-game-6-nba-finals/
+
+**Liverpool reach Bournemouth agreement on £40m Kerkez transfer**\
+`A medical is expected to take place next week ahead of the left-back signing a five-year contract at Anfield.`\
+https://nytimes.com/athletic/6258960/2025/06/20/liverpool-transfer-news-kerkez-bournemouth/
+
 **TAFC: Football's possible doping problem, Messi magic at the Club World Cup, and Mbappe's hospital scare**\
 `Today in TAFC: The complexities of how football deals with doping, Messi's free kick inspires Inter Miami and Mbappe is admitted to hospital`\
 https://nytimes.com/athletic/6439812/2025/06/20/athletic-fc-newsletter-messi-mudryk-mbappe/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6435925/2025/06/20/nba-draft-confidential-bigs-cent
 **Transfers that shook the world: A new podcast series from The Athletic FC**\
 `A six-part series remembering the most controversial transfers in football history`\
 https://nytimes.com/athletic/6437987/2025/06/20/transfers-that-shook-the-world-a-new-podcast-series-from-the-athletic-fc/
-
-**What we're hearing about the Mets, White Sox and Royals' trade deadline plans, plus more MLB notes**\
-`Plus more on the Padres, DBacks and Giants' outlooks as July approaches.`\
-https://nytimes.com/athletic/6439197/2025/06/20/mlb-trade-deadline-mets-white-sox-royals/
-
-**College hoops coaches weigh in on their 2026 NBA Draft sleepers**\
-`Coaches who saw this year's NBA Draft prospects during college  dish on the under-the-rader names whose game they liked and disliked.`\
-https://nytimes.com/athletic/6435184/2025/06/20/2026-nba-draft-sleepers-college-coach-scouting/
 
