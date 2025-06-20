@@ -1,3 +1,11 @@
+**Dodgers, Padres benches clear, both managers ejected in NL West clash**\
+`It's the second such incident between the two teams during the four-game series. `\
+https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/
+
+**Why have Brighton signed two very similar Greek strikers?**\
+`A look at how Charalampos Kostoulas and Stefanos Tzimas will fit into Fabian Hurzeler's plans for next season`\
+https://nytimes.com/athletic/6420918/2025/06/20/brighton-greek-strikers-transfer/
+
 **Dodgers, Padres benches clear in series finale, both managers ejected**\
 `It's the second such incident between the two teams during the four-game series. `\
 https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/
