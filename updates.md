@@ -1,3 +1,7 @@
+**Seattle 1 Atlético Madrid 3: MLS side on verge of Club World Cup exit**\
+`Atlético Madrid rebounded from humiliation against PSG, while Seattle suffered another home setback despite a spirited effort.`\
+https://nytimes.com/athletic/6438888/2025/06/19/seattle-sounders-atletico-madrid-club-world-cup-highlights/
+
 **Cubs notes: Pete Crow-Armstrong fastest in team history to reach 20-20 mark**\
 `It took Crow-Armstrong 73 games to get to 20 home runs and 20 stolen bases, topping Sammy Sosa, who needed 96 games to get there in 1994.`\
 https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
