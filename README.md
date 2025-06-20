@@ -1,3 +1,7 @@
+**An Iranian strike in downtown Haifa damaged at least two places of worship.**\
+`Shockwaves from the attack in Israel’s third-largest city damaged a mosque and a church.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/an-iranian-strike-in-downtown-haifa-damaged-at-least-two-places-of-worship
+
 **Notre Dame adds top-75 DBs Adams, O'Brien to rising recruiting class**\
 `Notre Dame beat several elite programs for Friday commitments from cornerback Khary Adams and safety Joey O'Brien.`\
 https://nytimes.com/athletic/6440589/2025/06/20/notre-dame-joey-obrien-khary-adams-commitments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6441139/2025/06/20/rafael-devers-red-sox-first-base
 **Reds place LHP Wade Miley on IL with flexor strain, call up Connor Phillips**\
 `The Reds placed the left-hander on the 15-day IL with a left flexor sprain and recalled righty Connor Phillips from Triple-A Louisville.`\
 https://nytimes.com/athletic/6441119/2025/06/20/reds-wade-miley-il-connor-phillips/
-
-**Oilers' Stan Bowman, Kris Knoblauch on Connor McDavid extension, goaltending and more**\
-`The five most important things Bowman and Knoblauch said in their end-of-season news conference and what they mean for the Oilers.`\
-https://nytimes.com/athletic/6441105/2025/06/20/oilers-stan-bowman-kris-knoblauch-connor-mcdavid-extension/
 
