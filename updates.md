@@ -1,3 +1,15 @@
+**Inside Wirtz's Liverpool deal: Why rivals missed out, Slot's role and falling for Kirkby**\
+`The full story of how Anfield's powerbrokers secured a record-breaking deal for the German playmaker`\
+https://nytimes.com/athletic/6434830/2025/06/20/florian-wirtz-liverpool-transfer-inside-story/
+
+**How Lionel Messi consistently makes direct free kicks feel like penalties**\
+`The Club World Cup was treated to a special Messi free kick on Thursday — this is the extraordinary technique which makes him so good`\
+https://nytimes.com/athletic/6440183/2025/06/20/lionel-messi-direct-free-kick-technique-club-world-cup/
+
+**Liverpool confirm Wirtz signing from Bayer Leverkusen**\
+`Liverpool have agreed a club-record €136.3million (£116m) fee with Leverkusen to sign Wirtz.`\
+https://nytimes.com/athletic/6423724/2025/06/20/florian-wirtz-liverpool-transfer-confirmed/
+
 **Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
 `Mr. Khalil, a Columbia University graduate and legal permanent resident, has been held in Louisiana for more than three months. The Trump administration is trying to deport him.`\
 https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html

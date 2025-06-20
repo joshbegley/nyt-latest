@@ -1,3 +1,15 @@
+**Inside Wirtz's Liverpool deal: Why rivals missed out, Slot's role and falling for Kirkby**\
+`The full story of how Anfield's powerbrokers secured a record-breaking deal for the German playmaker`\
+https://nytimes.com/athletic/6434830/2025/06/20/florian-wirtz-liverpool-transfer-inside-story/
+
+**How Lionel Messi consistently makes direct free kicks feel like penalties**\
+`The Club World Cup was treated to a special Messi free kick on Thursday — this is the extraordinary technique which makes him so good`\
+https://nytimes.com/athletic/6440183/2025/06/20/lionel-messi-direct-free-kick-technique-club-world-cup/
+
+**Liverpool confirm Wirtz signing from Bayer Leverkusen**\
+`Liverpool have agreed a club-record €136.3million (£116m) fee with Leverkusen to sign Wirtz.`\
+https://nytimes.com/athletic/6423724/2025/06/20/florian-wirtz-liverpool-transfer-confirmed/
+
 **Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
 `Mr. Khalil, a Columbia University graduate and legal permanent resident, has been held in Louisiana for more than three months. The Trump administration is trying to deport him.`\
 https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/20/arts/design/royal-hospital-chelsea-art-fair.html
 **Israel and Iran launch fresh attacks amid diplomatic push.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump/israel-and-iran-launch-fresh-attacks-amid-diplomatic-push
-
-**A Lebanese Gallerist Marks 40 Years in the Industry With Three Shows**\
-`At first, Andrée Sfeir-Semler focused on European artists. Then she pivoted to representing mostly Arab artists, leading a seismic art world shift.`\
-https://nytimes.com/2025/06/20/arts/design/sfeir-semler-gallery-art-basel.html
-
-**A Potential Strike on Iran Tests Trump’s Propensity to Play to Both Sides**\
-`President Trump has excelled at letting supporters hear what they want to hear. But Iran has upended that strategy.`\
-https://nytimes.com/2025/06/20/us/politics/iran-trump-both-sides.html
-
-**A Science-Minded Artist Shrinks the Universe to Human Scale**\
-`Katie Paterson, a Scottish artist known for deeply research-based works, continues her universal explorations with two shows in England.`\
-https://nytimes.com/2025/06/20/arts/design/katie-paterson.html
 

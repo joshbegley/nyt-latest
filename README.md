@@ -1,3 +1,11 @@
+**Terry Louise Fisher, a Creator of ‘L.A. Law,’ Dies at 79**\
+`She channeled her experiences — and frustrations — as a Los Angeles prosecutor into an award-winning career as a television writer and producer.`\
+https://nytimes.com/2025/06/20/arts/television/terry-louise-fisher-dead.html
+
+**Penguins hire Nick Bonino, Todd Nelson as assistants, retain goalie coach Andy Chiodo**\
+`New head coach Dan Muse's staff addresses many of the team's perceived weaknesses.`\
+https://nytimes.com/athletic/6440566/2025/06/20/penguins-nick-bonino-todd-nelson-assistant-coach/
+
 **Inside Wirtz's Liverpool deal: Why rivals missed out, Slot's role and falling for Kirkby**\
 `The full story of how Anfield's powerbrokers secured a record-breaking deal for the German playmaker`\
 https://nytimes.com/athletic/6434830/2025/06/20/florian-wirtz-liverpool-transfer-inside-story/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6440183/2025/06/20/lionel-messi-direct-free-kick-te
 https://nytimes.com/athletic/6423724/2025/06/20/florian-wirtz-liverpool-transfer-confirmed/
 
 **Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
-`Mr. Khalil, a Columbia University graduate and legal permanent resident, has been held in Louisiana for more than three months. The Trump administration is trying to deport him.`\
+`Mr. Khalil, a Columbia graduate and legal permanent resident, has been held in Louisiana for over three months. The judge found reason to believe it was retaliation for his pro-Palestinian speech.`\
 https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
 
 **Searching for Meaning Amid the Jumble, at the Venice Architecture Biennale**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6440102/2025/06/20/sabres-draft-offseason-peterka-s
 **Can Art Basel and Treasure House Lure Collectors to Buy as They Once Did?**\
 `The fairs this week and next hope to drum up enthusiasm with blue-chip artists, antiques and more — including a drawing King Charles III made when he was 9.`\
 https://nytimes.com/2025/06/20/arts/design/art-basel-treasure-fairs.html
-
-**Mozart Played Here, Retired Soldiers Live Here. It’s Also the Site of an Art Fair.**\
-`Built in London centuries ago to house soldiers “broken by age and war,” the Royal Hospital Chelsea has lived many lives, including as home to the Treasure House Fair.`\
-https://nytimes.com/2025/06/20/arts/design/royal-hospital-chelsea-art-fair.html
-
-**Israel and Iran launch fresh attacks amid diplomatic push.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2025/06/20/world/israel-iran-trump/israel-and-iran-launch-fresh-attacks-amid-diplomatic-push
 
