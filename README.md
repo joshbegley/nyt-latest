@@ -1,3 +1,7 @@
+**Trump’s Iran Deadline, and TikTok’s Future in the U.S.**\
+`Plus, a fast-food gimmick turns 20.`\
+https://nytimes.com/2025/06/20/podcasts/the-headlines/trumps-deadline-iran-tiktok-us.html
+
 **Pro-Palestinian Activists Break Into Britain’s Largest Air Base**\
 `The Palestine Action group said two of its members had entered R.A.F. Brize Norton on electric scooters and sprayed a couple of military planes with red paint.`\
 https://nytimes.com/2025/06/20/world/europe/pro-palestinian-activists-uk-air-base-raf-brize-norton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/podcasts/the-daily/supreme-court-upholds-ban-on-t
 **NHL free-agent big board 2.0: Can anyone lure the top targets out of Florida?**\
 `Sam Bennett, Brad Marchand and Aaron Ekblad all rank in the top four UFAs — while they continue to celebrate the Panthers' Stanley Cup win.`\
 https://nytimes.com/athletic/6439085/2025/06/20/nhl-free-agency-rankings-big-board-panthers/
-
-**Wordle Review No. 1,463**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 21, 2025.`\
-https://nytimes.com/2025/06/20/crosswords/wordle-review-1463.html
 
