@@ -1,3 +1,7 @@
+**Assisted Dying Moves Closer to Becoming Law in England and Wales After Key Vote**\
+`British lawmakers on Friday confirmed their support for assisted suicide for some terminally ill people, after months of scrutiny that followed an initial vote last year.`\
+https://nytimes.com/2025/06/20/world/europe/assisted-dying-vote-uk.html
+
 **Large Oil Producers Around the Persian Gulf Ramp Up Exports**\
 `Saudi Arabia and other oil states are rushing to load tankers in case the Israel-Iran fighting spreads to export installations.`\
 https://nytimes.com/2025/06/20/business/oil-tankers-israel-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/learning/summer-reading-contest-week-3-what-got-y
 **‘Prewar Eva’ Has Her Finger on the Pulse of the Hamptons**\
 `Eva Alt, a real estate agent who goes by “Prewar Eva” on Instagram, says the bland Hamptons McMansions of the past two decades are on their way out.`\
 https://nytimes.com/2025/06/20/realestate/prewar-eva-alt-hamptons-ny-houses.html
-
-**Wolves sign winger Fer Lopez from Celta Vigo**\
-`The 21-year-old Spanish is Wolves' first signing of the summer transfer window, following the sales of Matheus Cunha and Rayan Ait-Nouri.`\
-https://nytimes.com/athletic/6427754/2025/06/20/wolves-transfers-fer-lopez-celta-vigo/
 
