@@ -1,3 +1,11 @@
+**Oilers' Stan Bowman and Kris Knoblauch on Connor McDavid extension, goaltending and more**\
+`The five most important things Bowman and Knoblauch said in their end-of-season news conference and what they mean for the Oilers.`\
+https://nytimes.com/athletic/6441105/2025/06/20/oilers-stan-bowman-kris-knoblauch-connor-mcdavid-extension/
+
+**Bryce Harper nearing return, says wrist injury won't require surgery**\
+`Harper took 20 swings off a tee on Friday: "It felt better than I thought it would," Harper said. "So I'm happy about that."`\
+https://nytimes.com/athletic/6441157/2025/06/20/phillies-bryce-harper-injury-return/
+
 **TikTok’s Owner Wanted to Publish Books. Not Anymore.**\
 `8th Note Press informed writers and agents that it is abruptly shutting down and returning publication rights to authors.`\
 https://nytimes.com/2025/06/20/books/review/bytedance-tiktok-publisher-shuts-down.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010241564/israel-iran-missile-s
 **Judge Blocks Trump’s Tying of Transportation Funds to Immigration Enforcement**\
 `Attorneys general in 20 states, most led by Democrats, had sued the administration. Similar suits have been filed over funding for other programs.`\
 https://nytimes.com/2025/06/20/us/politics/trump-transportation-funds-immigration-states.html
-
-**Lou Christie, ‘Lightnin’ Strikes’ Pop Crooner, Is Dead at 82**\
-`A late-1960s throwback to the days of clean-cut teen idols — he called himself “the missing link” — he rode his gymnastic vocal range to a string of hits.`\
-https://nytimes.com/2025/06/20/arts/music/lou-christie-dead.html
-
-**Negotiations With Iran Failed to Yield a Breakthrough**\
-`Also, temperatures are soaring across the U.S. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/06/20/briefing/negotiations-with-iran-failed-to-yield-a-breakthrough.html
 
