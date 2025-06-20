@@ -1,3 +1,11 @@
+**Flamengo 3 Chelsea 1 - Jackson sent off as Maresca's team implode at Club World Cup**\
+`Analysis of Flamengo's thrilling win over Chelsea at the Club World Cup`\
+https://nytimes.com/athletic/6427546/2025/06/20/flamengo-chelsea-club-world-cup/
+
+**Trump’s Rebuke of Gabbard Signals an Uneasy Moment**\
+`The president’s relationship with his director of national intelligence has become more tense as he considers striking Iran.`\
+https://nytimes.com/2025/06/20/us/politics/trump-tulsi-gabbard-iran.html
+
 **Judge Blocks a Trump Effort to Prevent International Students at Harvard**\
 `The decision came after a hearing where a lawyer for Harvard accused the Trump administration of McCarthy-like tactics and irregular and improper treatment.`\
 https://nytimes.com/2025/06/20/us/international-students-harvard-preliminary-injunction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6440211/2025/06/20/india-jaiswal-gill-sharma-kohli/
 **WNBA files trademarks for the name 'Portland Fire' and stylized 'P' logo**\
 `The league’s expansion to Portland was announced in September 2024, and the team will begin play in 2026 alongside the Toronto Tempo.`\
 https://nytimes.com/athletic/6440761/2025/06/20/wnba-portland-fire-trademark-logo/
-
-**Our Favorite Things From Trader Joe’s **\
-`(No description)`\
-https://nytimes.com/card/2025/06/20/smarter-living/wirecutter/our-favorite-things-from-trader-joes
-
-**Community leaders call on Dodgers to 'take a public stand' against raids**\
-`On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium seeking to process detainees.`\
-https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
 
