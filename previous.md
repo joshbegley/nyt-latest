@@ -1,6 +1,18 @@
+**The Bounce: Pacers-Thunder Game 7 means predictions and all-time NBA Finals rankings**\
+`The tricky thing about watching and loving a seven-game series is the nostalgia. Where will Pacers-Thunder rank in the end?`\
+https://nytimes.com/athletic/6440068/2025/06/20/pacers-thunder-game-7-nba-finals-the-bounce/
+
+**Lowetide: An early look at the Oilers' potential 2025-26 roster**\
+`Here's a position-by-position look at how things might turn out for the Oilers in the weeks to come.`\
+https://nytimes.com/athletic/6436540/2025/06/20/edmonton-oilers-roster-2025-26/
+
 **Hurricanes need a second-line center. Here are their options this offseason**\
 `Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
 https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agent/
+
+**What your favorite UFA is up to right now, some Canadian pride and more: DGB Grab Bag**\
+`The three stars of comedy (playoff edition), a particularly patriotic YouTube classic and a peace offering on puck-over-glass penalties.`\
+https://nytimes.com/athletic/6439021/2025/06/20/nhl-free-agency-biggest-ufas-canada/
 
 **Why Ferrari can't win in F1, but it can win Le Mans. Plus, Robert Kubica praise**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/20/special-series/brazil-national-museum-rebuilding-
 **Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
 `Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver.`\
 https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/
-
-**Medically Assisted Dying Moves Closer to Legalization in England and Wales**\
-`British lawmakers on Friday confirmed their support for assisted suicide for some terminally ill people, after months of scrutiny that followed an initial vote last year.`\
-https://nytimes.com/2025/06/20/world/europe/assisted-dying-vote-uk.html
-
-**Large Oil Producers Around the Persian Gulf Ramp Up Exports**\
-`Saudi Arabia and other oil states are rushing to load tankers in case the Israel-Iran fighting spreads to export installations.`\
-https://nytimes.com/2025/06/20/business/oil-tankers-israel-iran.html
-
-**England's Hampton aiming to 'fill the gloves' of Earps at Euro 2025**\
-`Earps’s shock international retirement at the end of May left Chelsea’s Hampton as England’s No 1 ahead of their Euros title defence.`\
-https://nytimes.com/athletic/6437979/2025/06/20/hannah-hampton-england-goalkeeper-earps/
 

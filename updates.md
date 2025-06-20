@@ -1,3 +1,15 @@
+**The Bounce: Pacers-Thunder Game 7 means predictions and all-time NBA Finals rankings**\
+`The tricky thing about watching and loving a seven-game series is the nostalgia. Where will Pacers-Thunder rank in the end?`\
+https://nytimes.com/athletic/6440068/2025/06/20/pacers-thunder-game-7-nba-finals-the-bounce/
+
+**Lowetide: An early look at the Oilers' potential 2025-26 roster**\
+`Here's a position-by-position look at how things might turn out for the Oilers in the weeks to come.`\
+https://nytimes.com/athletic/6436540/2025/06/20/edmonton-oilers-roster-2025-26/
+
+**What your favorite UFA is up to right now, some Canadian pride and more: DGB Grab Bag**\
+`The three stars of comedy (playoff edition), a particularly patriotic YouTube classic and a peace offering on puck-over-glass penalties.`\
+https://nytimes.com/athletic/6439021/2025/06/20/nhl-free-agency-biggest-ufas-canada/
+
 **Hurricanes need a second-line center. Here are their options this offseason**\
 `Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
 https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agent/
