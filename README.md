@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-india/
 
 **Club World Cup daily rankings: Brazilian powers, Miami make their move**\
-`Rankings each of the 32 Club World Cup teams, updated daily`\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/20/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 
 **Lee Johnson on managing abroad: 'It's crunch time for English coaches, we need success stories'**\
