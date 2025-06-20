@@ -1,3 +1,43 @@
+**UEFA European Under-21 Championship: Five players who impressed in the group stage**\
+`This tournament is invariably showcases the best up-and-coming talent in European football — the 2025 edition is no different `\
+https://nytimes.com/athletic/6434607/2025/06/20/u21-euros-five-players-to-watch/
+
+**A U.S. Attack on Iran Would Show the Limits of China’s Power**\
+`China, which depends on Iran for oil and to counter American influence, has a lot to lose from a wider war. But there’s not much it can do about it.`\
+https://nytimes.com/2025/06/20/world/asia/us-iran-israel-china.html
+
+**No Corrections: June 20, 2025**\
+`No corrections appeared in print on Friday, June 20, 2025.`\
+https://nytimes.com/2025/06/20/pageoneplus/no-corrections-june-20-2025.html
+
+**Debate Is Their Love Language**\
+`Rachel Atcheson intended to challenge Sean McElwee over political spending. Instead, they fell in love.`\
+https://nytimes.com/2025/06/20/style/sean-mcelwee-rachel-atcheson-wedding.html
+
+**She Didn’t Give Up on Her YouTube Dream — or on Love**\
+`Remi Cruz, known as Miss Remi Ashten on YouTube, was coy about being a social media star when she met Cal Parsons. Not only was he impressed, but he now works with her.`\
+https://nytimes.com/2025/06/20/style/remi-cruz-cal-parsons-wedding.html
+
+**Men, Where Have You Gone? Please Come Back.**\
+`So many men have retreated from intimacy, hiding behind firewalls, filters and curated personas, dabbling and scrolling. We miss you.`\
+https://nytimes.com/2025/06/20/style/modern-love-men-where-have-you-gone-please-come-back.html
+
+**Chinese Companies Set Their Sights on Brazil**\
+`Confronted with tariffs and scrutiny in the United States and Europe, Chinese consumer brands are betting that they can become household names in Latin America’s biggest economy.`\
+https://nytimes.com/2025/06/20/business/china-temu-meituan-shein-brazil.html
+
+**His Four-Legged Wingman Helped to Seal the Deal**\
+`Leland Vittert adopted Dutch, a black Labrador retriever, as an insurance policy to keep Rachel Putnam around. It worked. Dutch was the ring bearer at their wedding.`\
+https://nytimes.com/2025/06/20/style/rachel-putnam-leland-vittert-wedding.html
+
+**Connections: Sports Edition Coach: Hints for June 20, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6438921/2025/06/20/connections-sports-edition-hints-for-june-20-2025/
+
+**Quote of the Day: He Came to Put Up a Flagpole And Got a Trump Talk on Iran**\
+`Quotation of the Day for Friday, June 20, 2025`\
+https://nytimes.com/2025/06/19/pageoneplus/quote-of-the-day-he-came-to-put-up-a-flagpole-and-got-a-trump-talk-on-iran.html
+
 **As Dense Cities Encircle India’s Busiest Airports, Dangers Multiply**\
 `The crash of an Air India flight shows how the country’s ambitions of rapid growth are often superimposed on urban infrastructures already pushed to the limit.`\
 https://nytimes.com/2025/06/19/world/asia/air-india-airport-danger.html
