@@ -1,3 +1,11 @@
+**Five Free Movies to Stream Now**\
+`Films including “Jodorowsky’s Dune” and Owen Kline’s “Funny Pages” delve into the pain and anguish — and brief ecstasy — of making art.`\
+https://nytimes.com/2025/06/20/movies/five-free-movies-to-stream-now.html
+
+**best-movies**\
+``\
+https://nytimes.com/spotlight/best-movies
+
 **Ingrid Engen joins Lyon from Barcelona**\
 `Engen, 27, has signed a two-year contract with the French champions that runs until 2027.`\
 https://nytimes.com/athletic/6440287/2025/06/20/norway-international-ingrid-engen-joins-lyon-from-barcelona/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html
 **Huge Crowds Rally Across Middle East, Venting Anger at Israel**\
 `Demonstrators took to the streets of Iran, Iraq and Lebanon on Friday after midday prayers, expressing anger at Israel’s widening offensive.`\
 https://nytimes.com/2025/06/20/world/middleeast/iran-israel-protests.html
-
-**Jonathan Toews, Jets agree to 1-year deal**\
-`The longtime Chicago Blackhawk hasn't played since April 2023.`\
-https://nytimes.com/athletic/6440169/2025/06/20/jonathan-toews-winnipeg-jets-contract-nhl/
-
-**Giants' Rafael Devers is walking more than ever, which is a good sign for his future**\
-`Devers has one of the best walk rates in baseball. If he keeps that up for a few seasons, he'll be a bargain.`\
-https://nytimes.com/athletic/6438663/2025/06/20/rafael-devers-sf-giants-walk-trends/
 
