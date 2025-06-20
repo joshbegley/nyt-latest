@@ -1,3 +1,7 @@
+**Anne Burrell’s Death Is Under Investigation as a Possible Drug Overdose**\
+`The city’s medical examiner has not determined a cause, but an internal police document says the TV chef was found surrounded by pills.`\
+https://nytimes.com/2025/06/20/dining/anne-burrell-overdose-death-investigation.html
+
 **Tehran Balks at Negotiation Talks as Israel and Iran Trade Fire**\
 `During a U.N. Security Council meeting on Friday, Iran’s top diplomat said there was “no room for talking” until Israel stopped its attacks.`\
 https://nytimes.com/video/world/middleeast/100000010241564/israel-iran-missile-strikes-un.html
