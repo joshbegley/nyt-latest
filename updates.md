@@ -1,3 +1,11 @@
+**Pacers have the momentum entering Game 7, and 'it’s all about that one game'**\
+`The Pacers will take your best punch and come right back swinging. They’re too stubborn to care. They’re too young to know better.`\
+https://nytimes.com/athletic/6439585/2025/06/20/nba-finals-pacers-game-7-momentum/
+
+**The New York Times International Edition in Print for Saturday, June 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/20/todays-new-york-times-international-edition
+
 **His Prison Term Halved, Former Malaysia Leader Wins Another Reprieve**\
 `Money-laundering charges against Najib Razak were dropped because of prosecutorial delays, intensifying criticism that he was being treated leniently.`\
 https://nytimes.com/2025/06/20/world/asia/malaysia-razak-charges-1mdb.html
