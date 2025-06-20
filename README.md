@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/20/crosswords/spelling-bee-forum.html
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
 
 **Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
-`Iran’s foreign minister is to meet his European counterparts Friday. Trump said he would give diplomacy a chance, dashing Israeli hopes of immediate U.S. involvement.`\
+`Iran’s foreign minister is to meet his European counterparts Friday. President Trump said he would give diplomacy a chance, dashing Israeli hopes for immediate U.S. involvement.`\
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump
 
 **Iran’s Foreign Minister to Meet With European Counterparts Amid War Fears**\
