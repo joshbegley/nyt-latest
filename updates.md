@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 4 Recap: Guilty**\
+`Aidan says he invited Carrie to stay with him longer in Virginia because he felt guilty. But is that really true?`\
+https://nytimes.com/2025/06/19/arts/television/and-just-like-that-recap-season-3-episode-4.html
+
 **Why Marsch is under Concacaf investigation and Canada Soccer's response**\
 `Concacaf announced Wednesday it has initiated disciplinary proceedings against Marsch and Canada Soccer. `\
 https://nytimes.com/athletic/6439181/2025/06/19/jesse-marsch-concacaf-investigation-canada-gold-cup/
