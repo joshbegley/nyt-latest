@@ -1,3 +1,11 @@
+**Notre Dame adds top-75 DBs Adams, O'Brien to rising recruiting class**\
+`Notre Dame beat several elite programs for Friday commitments from cornerback Khary Adams and safety Joey O'Brien.`\
+https://nytimes.com/athletic/6440589/2025/06/20/notre-dame-joey-obrien-khary-adams-commitments/
+
+**Giants' Justin Verlander begins paternity leave, will miss Red Sox series**\
+`The soonest Verlander could return is Tuesday, when the Giants host the Miami Marlins.`\
+https://nytimes.com/athletic/6441301/2025/06/20/giants-justin-verlander-paternity-leave/
+
 **Where the Legal Fight Over the California National Guard Stands**\
 `A volley of court rulings has made the legal path unclear in a case challenging President Trump’s use of troops in Los Angeles. For now, the president has retained control of the state militia.`\
 https://nytimes.com/2025/06/20/us/trump-california-la-national-guard.html
