@@ -1,3 +1,7 @@
+**Bruce Feldman's Elite 11 thoughts: Dia Bell, Keisean Henderson stand out at QB camp**\
+`One long-time Elite 11 coach called Henderson, who is committed to Houston, one of the most impressive high school QBs he's ever seen.`\
+https://nytimes.com/athletic/6439288/2025/06/20/elite-11-takeaways-dia-bell-keisean-henderson/
+
 **Tyrese Haliburton's heroics in Game 6? Simply showing up for his Pacers**\
 `Battling through a strained right calf, Haliburton managed to play 23 minutes and provide Indiana an emotional boost.`\
 https://nytimes.com/athletic/6439708/2025/06/20/tyrese-haliburton-pacers-game-6-nba-finals-injury/
