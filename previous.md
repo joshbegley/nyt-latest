@@ -1,3 +1,11 @@
+**His Prison Term Halved, Former Malaysia Leader Wins Another Reprieve**\
+`Money-laundering charges against Najib Razak were dropped because of prosecutorial delays, intensifying criticism that he was being treated leniently.`\
+https://nytimes.com/2025/06/20/world/asia/malaysia-razak-charges-1mdb.html
+
+**Forced to Wait for Trump, Israel Faces Strategic Dilemma in Iran**\
+`The Israeli military needs American help to destroy a key nuclear site in Iran. Waiting for that help comes with risks for Israel.`\
+https://nytimes.com/2025/06/20/world/middleeast/israel-iran-trump.html
+
 **A Long Way Down: What It Takes to Hit Iran’s Deepest Nuclear Site**\
 `President Trump says he’s considering attacking Iran’s underground nuclear site. Here’s what that might look like.`\
 https://nytimes.com/interactive/2025/06/20/world/middleeast/iran-nuclear-fordo-bunker-buster-bomb.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/opinion/new-york-mayor-election-police.html
 **We Encourage Political Violence When We Look the Other Way**\
 `When we move on too quickly from an attack, we normalize it.`\
 https://nytimes.com/2025/06/20/opinion/political-violence-hortman-minnesota.html
-
-**Politics Looms Over the World’s Biggest Contemporary Art Fair**\
-`At this year’s edition of Art Basel, European arts leaders worried about tariffs, whether to loan their art and if they needed to re-evaluate their relationships with American institutions.`\
-https://nytimes.com/2025/06/20/arts/design/politics-art-basel-switzerland-trade-fairs.html
-
-**Who Directed ‘Elio?’ It’s Complicated**\
-`Three directors are credited for Pixar’s latest film, but not all are listed onscreen at the same time. Here’s the back story.`\
-https://nytimes.com/2025/06/20/movies/elio-directing-credits.html
 
