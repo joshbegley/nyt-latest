@@ -1,3 +1,7 @@
+**Gunilla Knutson, Star of ‘Take It Off’ Shaving Cream Ads, Dies at 84**\
+`A model who was crowned Miss Sweden in 1961, she became best known for commercials that one observer said “replaced the ‘hard sell’ with the ‘sex sell.’”`\
+https://nytimes.com/2025/06/20/arts/television/gunilla-knutson-dead.html
+
 **Maresca says Jackson red cards will not impact his Chelsea future**\
 `The striker received his second straight red card in his last four appearances for the club in a 3-1 defeat against Flamengo.`\
 https://nytimes.com/athletic/6441088/2025/06/20/enzo-maresca-nicolas-jackson-red-cards/
