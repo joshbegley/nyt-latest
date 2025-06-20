@@ -1,3 +1,19 @@
+**Van de Donk joins London City Lionesses from Lyon**\
+`The former Arsenal player joins the newly-promoted side in their first season in the WSL after four years at Lyon.`\
+https://nytimes.com/athletic/6440097/2025/06/20/wsl-van-de-donk-london-city-lioness-transfer/
+
+**Europe’s Growing Fear: How Trump Might Use U.S. Tech Dominance Against It**\
+`To comply with a Trump executive order, Microsoft recently suspended the email account of an International Criminal Court prosecutor in the Netherlands who was investigating Israel for war crimes.`\
+https://nytimes.com/2025/06/20/technology/us-tech-europe-microsoft-trump-icc.html
+
+**Jurickson Profar, Addison Barger and more top fantasy baseball waiver wire adds**\
+`Owen Poindexter highlights the top options on the fantasy baseball waiver wire, noting a surprisingly available player who can add saves.`\
+https://nytimes.com/athletic/6438282/2025/06/20/fantasy-baseball-waiver-wire-adds-profar-barger/
+
+**Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
+`Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver.`\
+https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/
+
 **When the Past Is Lost**\
 `Years after a devastating fire, Brazil is slowly rebuilding an institution dedicated to the country’s cultural heritage.`\
 https://nytimes.com/2025/06/20/special-series/brazil-national-museum-rebuilding-history.html
