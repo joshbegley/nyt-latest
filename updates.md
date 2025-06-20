@@ -1,3 +1,11 @@
+**Our Favorite Things From Trader Joe’s **\
+`(No description)`\
+https://nytimes.com/card/2025/06/20/smarter-living/wirecutter/our-favorite-things-from-trader-joes
+
+**Community leaders call on Dodgers to 'take a public stand' against raids**\
+`On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium seeking to process detainees.`\
+https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
+
 **U.K. Lawmakers Approve Plans for Medically Assisted Dying**\
 `Following months of debate, U.K. lawmakers approved plans to introduce medically assisted suicide for terminally ill patients in England and Wales.`\
 https://nytimes.com/video/world/europe/100000010240521/london-uk-medically-assisted-dying.html
