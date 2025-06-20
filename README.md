@@ -1,3 +1,11 @@
+**India's Next Gen: Shubman Gill and Yashasvi Jaiswal show their time is now**\
+`The young pair batted beautifully at Headingley and are ready to take up the mantle after the retirements of Rohit Sharma and Virat Kohli`\
+https://nytimes.com/athletic/6440211/2025/06/20/india-jaiswal-gill-sharma-kohli/
+
+**WNBA files trademarks for the name 'Portland Fire' and stylized 'P' logo**\
+`The league’s expansion to Portland was announced in September 2024, and the team will begin play in 2026 alongside the Toronto Tempo.`\
+https://nytimes.com/athletic/6440761/2025/06/20/wnba-portland-fire-trademark-logo/
+
 **Our Favorite Things From Trader Joe’s **\
 `(No description)`\
 https://nytimes.com/card/2025/06/20/smarter-living/wirecutter/our-favorite-things-from-trader-joes
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/us/supreme-court-finds-retired-firefighter-cannot
 **Terry Louise Fisher, a Creator of ‘L.A. Law,’ Dies at 79**\
 `She channeled her experiences — and frustrations — as a Los Angeles prosecutor into an award-winning career as a television writer and producer.`\
 https://nytimes.com/2025/06/20/arts/television/terry-louise-fisher-dead.html
-
-**Penguins hire Nick Bonino, Todd Nelson as assistants, retain goalie coach Andy Chiodo**\
-`New head coach Dan Muse's staff addresses many of the team's perceived weaknesses.`\
-https://nytimes.com/athletic/6440566/2025/06/20/penguins-nick-bonino-todd-nelson-assistant-coach/
-
-**Inside Wirtz's Liverpool deal: Why rivals missed out, Slot's role and falling for Kirkby**\
-`The full story of how Anfield's powerbrokers secured a record-breaking deal for the German playmaker`\
-https://nytimes.com/athletic/6434830/2025/06/20/florian-wirtz-liverpool-transfer-inside-story/
 
