@@ -1,3 +1,7 @@
+**Trump’s Crucial Decision on Iran**\
+`Readers discuss whether the U.S. should take military action in Iran. Also: A Canadian view; how children should spend summer.`\
+https://nytimes.com/2025/06/20/opinion/trump-iran-strategy.html
+
 **U.S. rejects visas for Senegal women's national basketball team members, staff**\
 `The training camp, which will now take place in Senegal, is in preparation for the Women’s AfroBasket.`\
 https://nytimes.com/athletic/6440194/2025/06/20/senegal-womens-national-basketball-visas-rejected-immigration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/supreme-court-california-electric-veh
 **World chess No.1 Carlsen to continue with Bundesliga club St Pauli**\
 `Nicknamed ‘the Mozart of Chess’, the former world champion helped St Pauli to a 12th-placed finish in the 15-team standings.`\
 https://nytimes.com/athletic/6440207/2025/06/20/magnus-carlsen-chess-st-pauli-contract/
-
-**Trump urged to protect World Cup host cities from drone threat**\
-`Representative Darin LaHood says drones pose a threat to supporters at next summer's soccer tournament.`\
-https://nytimes.com/athletic/6438064/2025/06/20/trump-us-world-cup-drones/
 
