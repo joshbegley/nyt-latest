@@ -1,3 +1,27 @@
+**Man City have been busy this summer, but still aren't favoured for any major trophies**\
+`Man City had a busy start to the summer and are showing off some of the new pieces at the Club World Cup. Will that translate to trophies?`\
+https://nytimes.com/athletic/6438082/2025/06/20/manchester-city-odds-club-world-cup-premier-league/
+
+**What’s Inside a 10th Floor ICE Office? New York Democrats Want to Know.**\
+`Seven members of Congress are accusing the federal authorities of blocking their right to examine conditions at what is supposed to be a temporary stop for detained immigrants.`\
+https://nytimes.com/2025/06/20/nyregion/ny-democrats-access-26-federal-plaza-noem.html
+
+**In Harlem, a Juneteenth Celebration Revels in the Rhythms of Jazz**\
+`Music and dancing filled the streets Thursday night as residents turned out for the fourth annual Big Band Jubilee.`\
+https://nytimes.com/2025/06/20/nyregion/harlem-juneteenth-jazz.html
+
+**Will This Race Produce an Ally or Adversary for the Next New York Mayor?**\
+`The Democratic primary for public advocate pits Jumaane Williams, the progressive incumbent, against Jenifer Rajkumar, a moderate state lawmaker loyal to Mayor Eric Adams.`\
+https://nytimes.com/2025/06/20/nyregion/public-advocate-williams-rajkumar.html
+
+**Black Voters Take Center Stage as N.Y.C. Mayor’s Race Enters Final Days**\
+`Adrienne Adams, the Black City Council speaker, has resisted pressure to cross-endorse Zohran Mamdani, renewing battle lines between some Black Democrats and progressives.`\
+https://nytimes.com/2025/06/20/nyregion/adrienne-adams-mamdani-endorse.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/20/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/20/world/europe/iran-foreign-minister-war-talks-euro
 **Jimmy Kimmel Isn’t Shocked by Trump’s Silence on Juneteenth**\
 `Kimmel imagined the Trump base’s reaction had the president acknowledged the holiday: “We’re the ones who stopped enslaving — they should have a holiday for us!”`\
 https://nytimes.com/2025/06/20/arts/television/jimmy-kimmel-trump-juneteenth.html
-
-**Word of the Day: pliable**\
-`This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/20/learning/word-of-the-day-pliable.html
-
-**Dodgers, Padres benches clear, both managers ejected in NL West clash**\
-`It's the second such incident between the two teams during the four-game series. `\
-https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/06/20/briefing/iran-israel-china-hacking.html
-
-**The New York Times in Print for Friday, June 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/20/todays-new-york-times
-
-**Crunch time for Bazball: Is it now or never for England's cricketing revolution?**\
-`England's positive-first approach to Test cricket has been transformative, but they await a defining series win over India or Australia`\
-https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-india/
-
-**Club World Cup daily rankings: Brazilian powers, Miami make their move**\
-`Our ranking of all 32 Club World Cup teams, updated daily`\
-https://nytimes.com/athletic/6433032/2025/06/20/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 
