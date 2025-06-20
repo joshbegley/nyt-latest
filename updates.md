@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, June 21, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/06/20/upshot/flashback.html
+
+**PWHL Seattle names Steve O'Rourke first-ever head coach**\
+`PWHL Seattle will debut this fall at Climate Pledge Arena, home of the NHL’s Seattle Kraken.`\
+https://nytimes.com/athletic/6440513/2025/06/20/pwhl-seattle-head-coach-steve-orourke/
+
+**What I'm hearing about the Rangers: Latest on Will Cuylle talks, potential K'Andre Miller trade, more**\
+`New York has gotten some of its early-offseason work done but still has to decide what to do with its first-round pick in next week’s draft.`\
+https://nytimes.com/athletic/6440286/2025/06/20/rangers-trades-free-agency-kandre-miller-will-cuylle/
+
 **Trump’s Crucial Decision on Iran**\
 `Readers discuss whether the U.S. should take military action in Iran. Also: A Canadian view; how children should spend summer.`\
 https://nytimes.com/2025/06/20/opinion/trump-iran-strategy.html
