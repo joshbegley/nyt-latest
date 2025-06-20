@@ -1,3 +1,11 @@
+**Van de Donk joins London City Lionesses from Lyon**\
+`The former Arsenal player joins the newly-promoted side in their first season in the WSL after four years at Lyon.`\
+https://nytimes.com/athletic/6440097/2025/06/20/wsl-van-de-donk-london-city-lioness-transfer/
+
+**Europe’s Growing Fear: How Trump Might Use U.S. Tech Dominance Against It**\
+`To comply with a Trump executive order, Microsoft recently suspended the email account of an International Criminal Court prosecutor in the Netherlands who was investigating Israel for war crimes.`\
+https://nytimes.com/2025/06/20/technology/us-tech-europe-microsoft-trump-icc.html
+
 **Jurickson Profar, Addison Barger and more top fantasy baseball waiver wire adds**\
 `Owen Poindexter highlights the top options on the fantasy baseball waiver wire, noting a surprisingly available player who can add saves.`\
 https://nytimes.com/athletic/6438282/2025/06/20/fantasy-baseball-waiver-wire-adds-profar-barger/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6438282/2025/06/20/fantasy-baseball-waiver-wire-add
 https://nytimes.com/2025/06/20/special-series/brazil-national-museum-rebuilding-history.html
 
 **Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
-`Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver`\
+`Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver.`\
 https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/
 
 **Medically Assisted Dying Moves Closer to Legalization in England and Wales**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6439874/2025/06/20/asian-cup-qatar-israel-iran/
 **Fer Lopez: Who is he, how does he play and what will he bring to Wolves?**\
 `Wolves have invested heavily in a raw talent in the hope they can turn it into something special`\
 https://nytimes.com/athletic/6437699/2025/06/20/fer-lopez-wolves-transfer/
-
-**A Way for People With Low Credit Scores to Raise Them**\
-`A new study finds that tenants who pay their rent on time can see “significant increases” if the payments are reported to credit bureaus.`\
-https://nytimes.com/2025/06/20/your-money/credit-scores-rent-payments.html
-
-**The Markets Are Balancing on a Knife’s Edge**\
-`The world has been anything but peaceful, but you wouldn’t know that from looking at the markets.`\
-https://nytimes.com/2025/06/20/business/stock-bond-market-investing-israel-iran-gulf.html
 
