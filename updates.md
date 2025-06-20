@@ -1,3 +1,19 @@
+**The Iran Emergency**\
+`We explain how Iran’s nuclear program became a crisis so quickly.`\
+https://nytimes.com/2025/06/20/briefing/the-iran-emergency.html
+
+**The Pulse: The Pacers will not go away**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6439204/2025/06/20/pacers-thunder-game-6-haliburton-the-pulse/
+
+**Phillies takeaways: Kyle Schwarber's slump, Bryce Harper's progress, new LF platoon?**\
+`Schwarber entered Thursday hitting .148/.268/.295 (.563 OPS) in June, with 25 strikeouts in 61 at-bats, before powering the Phillies' win.`\
+https://nytimes.com/athletic/6439376/2025/06/20/phillies-takeaways-kyle-schwarbers-slump-bryce-harpers-progress-new-lf-platoon/
+
+**Pro-Palestinian Activists Break Into Britain’s Largest Air Base**\
+`The Palestine Action group said two of its members had entered R.A.F. Brize Norton on electric scooters and sprayed military planes with red paint.`\
+https://nytimes.com/2025/06/20/world/europe/pro-palestinian-activists-uk-air-base-raf-brize-norton.html
+
 **Chris Brown Free to Play World Tour After Not Guilty Plea**\
 `The R&B star will not stand trial on assault charges until October 2026 and can continue touring, including playing U.S. dates.`\
 https://nytimes.com/2025/06/20/arts/music/chris-brown-not-guilty-plea.html

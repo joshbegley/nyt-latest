@@ -1,3 +1,15 @@
+**The Iran Emergency**\
+`We explain how Iran’s nuclear program became a crisis so quickly.`\
+https://nytimes.com/2025/06/20/briefing/the-iran-emergency.html
+
+**The Pulse: The Pacers will not go away**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6439204/2025/06/20/pacers-thunder-game-6-haliburton-the-pulse/
+
+**Phillies takeaways: Kyle Schwarber's slump, Bryce Harper's progress, new LF platoon?**\
+`Schwarber entered Thursday hitting .148/.268/.295 (.563 OPS) in June, with 25 strikeouts in 61 at-bats, before powering the Phillies' win.`\
+https://nytimes.com/athletic/6439376/2025/06/20/phillies-takeaways-kyle-schwarbers-slump-bryce-harpers-progress-new-lf-platoon/
+
 **Chris Brown Free to Play World Tour After Not Guilty Plea**\
 `The R&B star will not stand trial on assault charges until October 2026 and can continue touring, including playing U.S. dates.`\
 https://nytimes.com/2025/06/20/arts/music/chris-brown-not-guilty-plea.html
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/6434652/2025/06/20/club-world-cup-group-how/
 https://nytimes.com/2025/06/20/podcasts/the-headlines/trumps-deadline-iran-tiktok-us.html
 
 **Pro-Palestinian Activists Break Into Britain’s Largest Air Base**\
-`The Palestine Action group said two of its members had entered R.A.F. Brize Norton on electric scooters and sprayed a couple of military planes with red paint.`\
+`The Palestine Action group said two of its members had entered R.A.F. Brize Norton on electric scooters and sprayed military planes with red paint.`\
 https://nytimes.com/2025/06/20/world/europe/pro-palestinian-activists-uk-air-base-raf-brize-norton.html
 
 **Instead of Tarik Skubal vs. Paul Skenes, a doubleheader descended into chaos**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6437855/2025/06/20/mlb-umpire-criticism-feedback-ad
 **Patrick Mahomes, Chiefs offense look for answers as Super Bowl sting lingers**\
 `The Chiefs were on the verge of history, but their loss to the Eagles in February exposed the lingering faults in their once-elite offense.`\
 https://nytimes.com/athletic/6436628/2025/06/20/patrick-mahomes-offseason-super-bowl/
-
-**Cam Smith's workload, an All-Star logjam and recovering pitchers: Astros takeaways**\
-`Smith is "playing his best baseball right now," Joe Espada said. "But for us to maintain that, we have to be careful how much we push him."`\
-https://nytimes.com/athletic/6439528/2025/06/20/astros-athletics-takeaways-cam-smith-pitchers/
-
-**2025 NHL Mock Draft: The Athletic Hockey Show debates the first 32 picks**\
-`On Friday's episode of The Athletic Hockey Show, the Prospect Series crew did a live mock draft of next week's first 32 picks.`\
-https://nytimes.com/athletic/6436425/2025/06/20/2025-nhl-mock-draft-the-athletic-hockey-show/
-
-**Why are PSA 9s starting to sell for less than ungraded cards?**\
-`As the value disparity between PSA 10s and PSA 9s widens, an opportunity could be emerging`\
-https://nytimes.com/athletic/6438036/2025/06/20/card-grading-values-psa/
 
