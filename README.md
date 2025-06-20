@@ -1,3 +1,7 @@
+**Yankees' Luke Weaver returns: What it means for Devin Williams and the closer role**\
+`Weaver returns after missing nearly three weeks with a hamstring strain. But will he resume his role as the Yankees' closer?`\
+https://nytimes.com/athletic/6440563/2025/06/20/luke-weaver-yankees-return/
+
 **A timeline of the Lakers' success (and challenges) under Buss family leadership**\
 `With the Lakers ownership changing hands, we dive into the biggest moments in the team's history under the Buss family. `\
 https://nytimes.com/athletic/6438270/2025/06/20/lakers-timeline-buss-family-sale-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423724/2025/06/20/florian-wirtz-liverpool-transfer
 **Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
 `Mr. Khalil, a Columbia graduate and legal permanent resident, has been held in Louisiana for over three months. The judge found reason to believe it was retaliation for his pro-Palestinian speech.`\
 https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
-
-**Searching for Meaning Amid the Jumble, at the Venice Architecture Biennale**\
-`Navigating the show has always been challenging, especially for visitors who aren’t experts. This year’s curator wants to give them a helping hand.`\
-https://nytimes.com/2025/06/20/arts/design/venice-architecture-biennale-climate-population.html
 
