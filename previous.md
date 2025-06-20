@@ -1,40 +1,40 @@
-**‘How to Train Your Dragon’ | Anatomy of a Scene**\
-`Dean DeBlois narrates a sequence from the live-action film featuring Mason Thames.`\
-https://nytimes.com/video/movies/100000010233829/how-to-train-your-dragon-scene.html
+**A Long Way Down: What It Takes to Hit Iran’s Deepest Nuclear Site**\
+`President Trump says he’s considering attacking Iran’s underground nuclear site. Here’s what that might look like.`\
+https://nytimes.com/interactive/2025/06/20/world/middleeast/iran-nuclear-fordo-bunker-buster-bomb.html
 
-**NBA free agency 2025: LeBron highlights thin power forward class, but is he going anywhere?**\
-`At 40, James is one of only 14 players whom BORD$ projects as being worth at least $52 million for the coming season.`\
-https://nytimes.com/athletic/6433197/2025/06/20/nba-free-agency-2025-power-forward-market/
+**Clyburn Endorses Cuomo, Helping Him Broaden His Appeal to Black Voters**\
+`Representative James E. Clyburn of South Carolina is endorsing former Gov. Andrew M. Cuomo in the New York City mayor’s race as the June 24 primary nears.`\
+https://nytimes.com/2025/06/20/nyregion/clyburn-endorses-cuomo-mayor.html
 
-**Arsenal are finalising a deal to sign Zubimendi from Real Sociedad**\
-`The Spain international, 26, has a €60million (£51.7m; $63.4m) release clause in his current contract.`\
-https://nytimes.com/athletic/6353153/2025/06/20/arsenal-transfer-martin-zubimendi/
+**Trump Might Take the U.S. to War. Where Are Schumer and Jeffries?**\
+`Failing to aggressively defend Congress’s role in authorizing war would be a serious blunder for Democrats.`\
+https://nytimes.com/2025/06/20/opinion/trump-iran-war-schumer-jeffries.html
 
-**Man City have been busy this summer, but still aren't favoured for any major trophies**\
-`Man City had a busy start to the summer and are showing off some of the new pieces at the Club World Cup. Will that translate to trophies?`\
-https://nytimes.com/athletic/6438082/2025/06/20/manchester-city-odds-club-world-cup-premier-league/
+**The New York Times News Quiz, June 20, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/06/20/briefing/trump-israel-iran-stanley-cup-news-quiz.html
 
-**What’s Inside a 10th Floor ICE Office? New York Democrats Want to Know.**\
-`Seven members of Congress are accusing the federal authorities of blocking their right to examine conditions at what is supposed to be a temporary stop for detained immigrants.`\
-https://nytimes.com/2025/06/20/nyregion/ny-democrats-access-26-federal-plaza-noem.html
+**Tuition Hikes and Layoffs Are Coming to a Broad Set of Universities**\
+`Schools say the Trump administration’s cuts to higher education are forcing them to consider extreme cost-cutting measures, even as more students than ever are heading to college this year.`\
+https://nytimes.com/2025/06/20/us/tuition-hikes-layoffs-universities.html
 
-**In Harlem, a Juneteenth Celebration Revels in the Rhythms of Jazz**\
-`Music and dancing filled the streets Thursday night as residents turned out for the fourth annual Big Band Jubilee.`\
-https://nytimes.com/2025/06/20/nyregion/harlem-juneteenth-jazz.html
+**3 Easy (and Delicious) Ways to Eat Well This Summer**\
+`There’s very little cooking involved.`\
+https://nytimes.com/2025/06/20/well/summer-healthy-eating.html
 
-**Will This Race Produce an Ally or Adversary for the Next New York Mayor?**\
-`The Democratic primary for public advocate pits Jumaane Williams, the progressive incumbent, against Jenifer Rajkumar, a moderate state lawmaker loyal to Mayor Eric Adams.`\
-https://nytimes.com/2025/06/20/nyregion/public-advocate-williams-rajkumar.html
+**Candidates’ Shift on Crime Turned the Mayor’s Race Upside Down**\
+`With “defund the police” still in New Yorkers’ ears, getting traction in the mayor’s race was complicated.`\
+https://nytimes.com/2025/06/20/opinion/new-york-mayor-election-police.html
 
-**Black Voters Take Center Stage as N.Y.C. Mayor’s Race Enters Final Days**\
-`Adrienne Adams, the Black City Council speaker, has resisted pressure to cross-endorse Zohran Mamdani, renewing battle lines between some Black Democrats and progressives.`\
-https://nytimes.com/2025/06/20/nyregion/adrienne-adams-mamdani-endorse.html
+**We Encourage Political Violence When We Look the Other Way**\
+`When we move on too quickly from an attack, we normalize it.`\
+https://nytimes.com/2025/06/20/opinion/political-violence-hortman-minnesota.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/20/crosswords/spelling-bee-forum.html
+**Politics Looms Over the World’s Biggest Contemporary Art Fair**\
+`At this year’s edition of Art Basel, European arts leaders worried about tariffs, whether to loan their art and if they needed to re-evaluate their relationships with American institutions.`\
+https://nytimes.com/2025/06/20/arts/design/politics-art-basel-switzerland-trade-fairs.html
 
-**Here’s the latest.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
+**Who Directed ‘Elio?’ It’s Complicated**\
+`Three directors are credited for Pixar’s latest film, but not all are listed onscreen at the same time. Here’s the back story.`\
+https://nytimes.com/2025/06/20/movies/elio-directing-credits.html
 
