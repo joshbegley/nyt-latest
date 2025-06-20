@@ -1,40 +1,40 @@
+**Man City, England goalkeeper Keating has class C possession charges dropped**\
+`The crown prosecution service (CPS) confirmed the case against Keating and her mother Nicola has been discontinued.`\
+https://nytimes.com/athletic/6440478/2025/06/20/manchester-city-england-goalkeeper-khiara-keating-has-class-c-possession-charges-dropped/
+
+**Sabres offseason: JJ Peterka, Mattias Samuelsson, draft scenarios and more**\
+`Does it make sense for the Sabres to trade Peterka? Should they buy out Samuelsson? Who could fall to Buffalo's No. 9 pick?`\
+https://nytimes.com/athletic/6440102/2025/06/20/sabres-draft-offseason-peterka-samuelsson/
+
+**Can Art Basel and Treasure House Lure Collectors to Buy as They Once Did?**\
+`The fairs this week and next hope to drum up enthusiasm with blue-chip artists, antiques and more — including a drawing King Charles III made when he was 9.`\
+https://nytimes.com/2025/06/20/arts/design/art-basel-treasure-fairs.html
+
+**Mozart Played Here, Retired Soldiers Live Here. It’s Also the Site of an Art Fair.**\
+`Built in London centuries ago to house soldiers “broken by age and war,” the Royal Hospital Chelsea has lived many lives, including as home to the Treasure House Fair.`\
+https://nytimes.com/2025/06/20/arts/design/royal-hospital-chelsea-art-fair.html
+
+**Israel and Iran launch fresh attacks amid diplomatic push.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/06/20/world/israel-iran-trump/israel-and-iran-launch-fresh-attacks-amid-diplomatic-push
+
+**A Lebanese Gallerist Marks 40 Years in the Industry With Three Shows**\
+`At first, Andrée Sfeir-Semler focused on European artists. Then she pivoted to representing mostly Arab artists, leading a seismic art world shift.`\
+https://nytimes.com/2025/06/20/arts/design/sfeir-semler-gallery-art-basel.html
+
+**A Potential Strike on Iran Tests Trump’s Propensity to Play to Both Sides**\
+`President Trump has excelled at letting supporters hear what they want to hear. But Iran has upended that strategy.`\
+https://nytimes.com/2025/06/20/us/politics/iran-trump-both-sides.html
+
+**A Science-Minded Artist Shrinks the Universe to Human Scale**\
+`Katie Paterson, a Scottish artist known for deeply research-based works, continues her universal explorations with two shows in England.`\
+https://nytimes.com/2025/06/20/arts/design/katie-paterson.html
+
+**Fever star Caitlin Clark leads All-Star Game fan voting**\
+`Three Fever players are in the top-10 of fan voting, with eight in the top-40, the most of any franchise.`\
+https://nytimes.com/athletic/6440518/2025/06/20/caitlin-clark-leads-wnba-all-star-vote/
+
 **Flashback: Your Weekly History Quiz, June 21, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/06/20/upshot/flashback.html
-
-**PWHL Seattle names Steve O'Rourke first-ever head coach**\
-`PWHL Seattle will debut this fall at Climate Pledge Arena, home of the NHL’s Seattle Kraken.`\
-https://nytimes.com/athletic/6440513/2025/06/20/pwhl-seattle-head-coach-steve-orourke/
-
-**What I'm hearing about the Rangers: Latest on Will Cuylle talks, potential K'Andre Miller trade, more**\
-`New York has gotten some of its early-offseason work done but still has to decide what to do with its first-round pick in next week’s draft.`\
-https://nytimes.com/athletic/6440286/2025/06/20/rangers-trades-free-agency-kandre-miller-will-cuylle/
-
-**Trump’s Crucial Decision on Iran**\
-`Readers discuss whether the U.S. should take military action in Iran. Also: A Canadian view; how children should spend summer.`\
-https://nytimes.com/2025/06/20/opinion/trump-iran-strategy.html
-
-**U.S. rejects visas for Senegal women's national basketball team members, staff**\
-`The training camp, which will now take place in Senegal, is in preparation for the Women’s AfroBasket.`\
-https://nytimes.com/athletic/6440194/2025/06/20/senegal-womens-national-basketball-visas-rejected-immigration/
-
-**Tottenham make Semenyo enquiry to Bournemouth**\
-`Semenyo is thought to be attracted by the prospect of a Spurs move but Bournemouth's asking price has deterred further short-term interest.`\
-https://nytimes.com/athletic/6438639/2025/06/20/antoine-semenyo-tottenham-transfer-bournemouth/
-
-**Live Q&A: Dan Hayes answers your Twins questions**\
-`One of our Twins beat writers will be here to answer your questions next week.`\
-https://nytimes.com/athletic/6440253/2025/06/20/twins-live-qa-submit-questions/
-
-**Hundreds of Federal Workers at Voice of America Receive Layoff Notices**\
-`The terminations are the latest attack on the federally funded news networks, including Voice of America.`\
-https://nytimes.com/2025/06/20/us/politics/voice-america-layoffs.html
-
-**2 Hikers Dead, 3 Others Injured After Rockslide in Canada’s Banff Park**\
-`The hikers were struck by a cascade of sliding rocks on Thursday while traveling along a moderately difficult trail.`\
-https://nytimes.com/2025/06/20/world/canada/canada-banff-national-park-rock-slide.html
-
-**Erykah Badu’s Woozy Flirtation, and 9 More New Songs**\
-`Hear tracks by Kehlani, Benson Boone, Witch and others.`\
-https://nytimes.com/2025/06/20/arts/music/playlist-erykah-badu-benson-boone-lorde.html
 
