@@ -1,3 +1,7 @@
+**Benfica 6 Auckland City 0: Lage's patience tested as underdogs dig deep**\
+`Benfica recorded their first win of the Club World Cup on Friday after a frustrating first half and a lengthy weather-enforced delay`\
+https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
+
 **Mapa: un terremoto de magnitud 5,1 sacude Irán**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://nytimes.com/interactive/2025/06/20/espanol/terremoto-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/virginia-man-hate-crime-sentenced.html
 **Map: 5.1-Magnitude Earthquake Strikes Iran**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/20/world/middleeast/earthquake-iran-tracker.html
-
-**India's Next Gen: Shubman Gill and Yashasvi Jaiswal show their time is now**\
-`The young pair batted beautifully at Headingley and are ready to take up the mantle after the retirements of Rohit Sharma and Virat Kohli`\
-https://nytimes.com/athletic/6440211/2025/06/20/india-jaiswal-gill-sharma-kohli/
 
