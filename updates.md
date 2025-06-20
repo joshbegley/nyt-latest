@@ -1,3 +1,7 @@
+**Why Ferrari can't win in F1, but it can win Le Mans. Plus, Robert Kubica praise**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6440055/2025/06/20/ferrari-le-mans-robert-kubica-f1-prime-tire/
+
 **Van de Donk joins London City Lionesses from Lyon**\
 `The former Arsenal player joins the newly-promoted side in their first season in the WSL after four years at Lyon.`\
 https://nytimes.com/athletic/6440097/2025/06/20/wsl-van-de-donk-london-city-lioness-transfer/

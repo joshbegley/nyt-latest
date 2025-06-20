@@ -1,3 +1,7 @@
+**Why Ferrari can't win in F1, but it can win Le Mans. Plus, Robert Kubica praise**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6440055/2025/06/20/ferrari-le-mans-robert-kubica-f1-prime-tire/
+
 **Van de Donk joins London City Lionesses from Lyon**\
 `The former Arsenal player joins the newly-promoted side in their first season in the WSL after four years at Lyon.`\
 https://nytimes.com/athletic/6440097/2025/06/20/wsl-van-de-donk-london-city-lioness-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6437979/2025/06/20/hannah-hampton-england-goalkeepe
 **Women's Asian Cup qualifiers moved to Qatar amid Israel-Iran conflict**\
 `Jordan, Iran, Lebanon, Singapore, and Bhutan comprise Group A, with matches initially due to take place in Amman — Jordan's capital city.`\
 https://nytimes.com/athletic/6439874/2025/06/20/asian-cup-qatar-israel-iran/
-
-**Fer Lopez: Who is he, how does he play and what will he bring to Wolves?**\
-`Wolves have invested heavily in a raw talent in the hope they can turn it into something special`\
-https://nytimes.com/athletic/6437699/2025/06/20/fer-lopez-wolves-transfer/
 
