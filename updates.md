@@ -1,3 +1,15 @@
+**Repealing Clean Energy Incentives Means a Hotter Planet, Scientists Warn**\
+`Republicans plan to terminate billions of dollars in clean energy tax credits. Experts say that will mean more greenhouse gas emissions and more dangerous heat.`\
+https://nytimes.com/2025/06/20/climate/inflation-reduction-act-climate-change-heat.html
+
+**Fed Governor Calls for Rate Cuts as Soon as July**\
+`Christopher J. Waller, who was appointed by President Trump, said the central bank should not wait for the labor market to weaken.`\
+https://nytimes.com/2025/06/20/business/fed-interest-rates-christopher-waller.html
+
+**South Korean football to end 27-year ban on foreign goalkeepers**\
+`The ban was introduced as an initiative to develop local goalkeeping talent in the nation and had been enforced since 1999.`\
+https://nytimes.com/athletic/6440137/2025/06/20/football-south-korea-goalkeeper-ban/
+
 **How Astronomers Will Deal With 60 Million Billion Bytes of Imagery**\
 `The Vera C. Rubin Observatory will make the study of stars and galaxies more like the big data-sorting exercises of contemporary genetics and particle physics.`\
 https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html

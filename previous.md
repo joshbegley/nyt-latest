@@ -1,3 +1,15 @@
+**Repealing Clean Energy Incentives Means a Hotter Planet, Scientists Warn**\
+`Republicans plan to terminate billions of dollars in clean energy tax credits. Experts say that will mean more greenhouse gas emissions and more dangerous heat.`\
+https://nytimes.com/2025/06/20/climate/inflation-reduction-act-climate-change-heat.html
+
+**Fed Governor Calls for Rate Cuts as Soon as July**\
+`Christopher J. Waller, who was appointed by President Trump, said the central bank should not wait for the labor market to weaken.`\
+https://nytimes.com/2025/06/20/business/fed-interest-rates-christopher-waller.html
+
+**South Korean football to end 27-year ban on foreign goalkeepers**\
+`The ban was introduced as an initiative to develop local goalkeeping talent in the nation and had been enforced since 1999.`\
+https://nytimes.com/athletic/6440137/2025/06/20/football-south-korea-goalkeeper-ban/
+
 **How Astronomers Will Deal With 60 Million Billion Bytes of Imagery**\
 `The Vera C. Rubin Observatory will make the study of stars and galaxies more like the big data-sorting exercises of contemporary genetics and particle physics.`\
 https://nytimes.com/2025/06/20/science/vera-rubin-telescope-data.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6437495/2025/06/20/matt-beard-burnley-manager/
 **Former Combs Assistant Says Mogul Told Staff to ‘Move Like SEAL Team 6’**\
 `Brendan Paul testified that his duties for Sean Combs involved getting drugs, setting up hotel rooms for sexual encounters and handling routine tasks.`\
 https://nytimes.com/2025/06/20/arts/music/sean-diddy-combs-trial-drugs-brendan-paul.html
-
-**Weekends Are for New Recipes**\
-`If you haven’t yet made Hetty Lui McKinnon’s crispy gnocchi with tomato and red onion, the first weekend of Actual Summer is a great time to do so.`\
-https://nytimes.com/2025/06/20/dining/easy-crispy-gnocchi-with-tomato-and-red-onion-recipe.html
-
-**There Might Not Be a Map for That: Budget Cuts Threaten Geological Surveys**\
-`Nearly two dozen state geological surveys depend heavily on federal funds. A proposed budget cut could slow or stop key geologic mapping work.`\
-https://nytimes.com/2025/06/20/climate/minerals-exploration.html
-
-**The Bounce: Pacers-Thunder Game 7 means predictions and all-time NBA Finals rankings**\
-`The tricky thing about watching and loving a seven-game series is the nostalgia. Where will Pacers-Thunder rank in the end?`\
-https://nytimes.com/athletic/6440068/2025/06/20/pacers-thunder-game-7-nba-finals-the-bounce/
 
