@@ -1,3 +1,7 @@
+**Insurers Pledge to Ease Controversial Prior Approvals for Medical Care**\
+`Major companies had faced mounting pressure to stop denying or stalling authorization of coverage for treatments and prescriptions.`\
+https://nytimes.com/2025/06/20/health/health-insurance-prior-authorization.html
+
 **Benfica 6 Auckland City 0: Lage's patience tested as underdogs dig deep**\
 `Benfica recorded their first win of the Club World Cup on Friday after a frustrating first half and a lengthy weather-enforced delay`\
 https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
 **Mapa: un terremoto de magnitud 5,1 sacude Irán**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://nytimes.com/interactive/2025/06/20/espanol/terremoto-iran.html
+
+**Benfica-Aukland City Club World Cup game endures over two-hour weather delay**\
+`The fixture was the latest match at this summer's tournament to be delayed due to the weather conditions`\
+https://nytimes.com/athletic/6440799/2025/06/20/benfica-aukland-city-club-world-cup-weather-delay/
 
 **Flamengo 3 Chelsea 1 - Jackson sent off as Maresca's team implode at Club World Cup**\
 `Analysis of Flamengo's thrilling win over Chelsea at the Club World Cup`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6437202/2025/06/20/boca-juniors-herrera-figal-club-
 **Supreme Court Won’t Fast-Track Tariffs Challenge**\
 `In an unusual request, two toy manufacturers had asked the court to greatly expedite their case.`\
 https://nytimes.com/2025/06/20/us/politics/supreme-court-tariffs-challenge.html
-
-**Virginia Man Convicted in Attempted Church Shooting Gets 25 Years**\
-`The man, who was convicted in March, was armed when he was arrested during a church service in Haymarket, Va., in 2023.`\
-https://nytimes.com/2025/06/20/us/virginia-man-hate-crime-sentenced.html
-
-**Map: 5.1-Magnitude Earthquake Strikes Iran**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/06/20/world/middleeast/earthquake-iran-tracker.html
 
