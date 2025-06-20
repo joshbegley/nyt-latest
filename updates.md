@@ -1,3 +1,7 @@
+**Appeals Court Lets Trump Keep Control of California National Guard in L.A.**\
+`A panel rejected a lower-court’s finding that it was likely illegal for President Trump to use state troops to protect immigration agents from protests.`\
+https://nytimes.com/2025/06/19/us/california-national-guard-trump.html
+
 **Messi delivers a show-stopping moment the Club World Cup, Miami and MLS needed**\
 `In a tournament devoid of signature moments and memorable victories, Lionel Messi, at 37, delivered both with one swift kick.`\
 https://nytimes.com/athletic/6439235/2025/06/19/lionel-messi-goal-club-world-cup-inter-miami-porto-mls/
