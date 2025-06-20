@@ -8,7 +8,7 @@ https://nytimes.com/live/2025/06/20/world/israel-iran-trump
 
 **Iran’s Foreign Minister to Meet With European Counterparts Amid War Fears**\
 `The meetings with the top diplomats from Britain, France and Germany are viewed as a last-ditch effort to avoid a dangerous escalation in the conflict between Iran and Israel.`\
-https://nytimes.com/2025/06/20/world/iran-foreign-minister-war-talks-europe-nuclear.html
+https://nytimes.com/2025/06/20/world/europe/iran-foreign-minister-war-talks-europe-nuclear.html
 
 **Jimmy Kimmel Isn’t Shocked by Trump’s Silence on Juneteenth**\
 `Kimmel imagined the Trump base’s reaction had the president acknowledged the holiday: “We’re the ones who stopped enslaving — they should have a holiday for us!”`\
