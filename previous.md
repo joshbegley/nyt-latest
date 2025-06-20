@@ -1,3 +1,11 @@
+**Tyrese Haliburton's heroics in Game 6? Simply showing up for his Pacers**\
+`Battling through a strained right calf, Haliburton managed to play 23 minutes and provide Indiana an emotional boost.`\
+https://nytimes.com/athletic/6439708/2025/06/20/tyrese-haliburton-pacers-game-6-nba-finals-injury/
+
+**Thunder wilt in first crack at NBA title, setting up Game 7 for 'everything' or 'nothing'**\
+`With a sloppy, unfocused night of play, the Thunder have again put themselves into serious danger.`\
+https://nytimes.com/athletic/6439461/2025/06/20/thunder-nba-finals-game-6-problems/
+
 **Are Israel’s Airstrikes on Iran Within Legal Bounds?**\
 `International law experts are divided.`\
 https://nytimes.com/2025/06/20/world/middleeast/iran-israel-airstrikes-legal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6394865/2025/06/20/dodger-stadium-fernando-tatis-jr
 **What can Nico Williams add to Barcelona's already-stellar attack?**\
 `Rather than replacing Raphinha, the addition of Williams should allow the Brazilian to flourish more centrally`\
 https://nytimes.com/athletic/6439071/2025/06/20/nico-williams-barcelona-analysis-tactics/
-
-**4 Braves takeaways: Vibing after sweep of Mets, 20-year-old pitches Friday, Acuña feats, more**\
-`Braves manager Brian Snitker: "Hopefully, that's the start of something really good that we continue to build on."`\
-https://nytimes.com/athletic/6439405/2025/06/20/braves-takeaways-mets-acuna/
-
-**Coaches, execs, scouts on Khaman Maluach, top center prospects: 2025 NBA Draft Confidential**\
-`Khaman Maluach is "huge" with "the biggest upside" of any player in the draft. Here's what coaches, execs have to say about the Duke star.`\
-https://nytimes.com/athletic/6435925/2025/06/20/nba-draft-confidential-bigs-centers-2025/
 

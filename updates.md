@@ -1,3 +1,11 @@
+**Tyrese Haliburton's heroics in Game 6? Simply showing up for his Pacers**\
+`Battling through a strained right calf, Haliburton managed to play 23 minutes and provide Indiana an emotional boost.`\
+https://nytimes.com/athletic/6439708/2025/06/20/tyrese-haliburton-pacers-game-6-nba-finals-injury/
+
+**Thunder wilt in first crack at NBA title, setting up Game 7 for 'everything' or 'nothing'**\
+`With a sloppy, unfocused night of play, the Thunder have again put themselves into serious danger.`\
+https://nytimes.com/athletic/6439461/2025/06/20/thunder-nba-finals-game-6-problems/
+
 **Are Israel’s Airstrikes on Iran Within Legal Bounds?**\
 `International law experts are divided.`\
 https://nytimes.com/2025/06/20/world/middleeast/iran-israel-airstrikes-legal.html
