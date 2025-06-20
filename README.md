@@ -1,3 +1,11 @@
+**Pacers have the momentum entering Game 7, and 'it’s all about that one game'**\
+`The Pacers will take your best punch and come right back swinging. They’re too stubborn to care. They’re too young to know better.`\
+https://nytimes.com/athletic/6439585/2025/06/20/nba-finals-pacers-game-7-momentum/
+
+**The New York Times International Edition in Print for Saturday, June 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/20/todays-new-york-times-international-edition
+
 **His Prison Term Halved, Former Malaysia Leader Wins Another Reprieve**\
 `Money-laundering charges against Najib Razak were dropped because of prosecutorial delays, intensifying criticism that he was being treated leniently.`\
 https://nytimes.com/2025/06/20/world/asia/malaysia-razak-charges-1mdb.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/us/tuition-hikes-layoffs-universities.html
 **3 Easy (and Delicious) Ways to Eat Well This Summer**\
 `There’s very little cooking involved.`\
 https://nytimes.com/2025/06/20/well/summer-healthy-eating.html
-
-**Candidates’ Shift on Crime Turned the Mayor’s Race Upside Down**\
-`With “defund the police” still in New Yorkers’ ears, getting traction in the mayor’s race was complicated.`\
-https://nytimes.com/2025/06/20/opinion/new-york-mayor-election-police.html
-
-**We Encourage Political Violence When We Look the Other Way**\
-`When we move on too quickly from an attack, we normalize it.`\
-https://nytimes.com/2025/06/20/opinion/political-violence-hortman-minnesota.html
 
