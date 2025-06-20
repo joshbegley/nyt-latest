@@ -1,3 +1,11 @@
+**Flamengo 3 Chelsea 1 - Jackson sent off as Maresca's team implode at Club World Cup**\
+`Analysis of Flamengo's thrilling win over Chelsea at the Club World Cup`\
+https://nytimes.com/athletic/6427546/2025/06/20/flamengo-chelsea-club-world-cup/
+
+**Trump’s Rebuke of Gabbard Signals an Uneasy Moment**\
+`The president’s relationship with his director of national intelligence has become more tense as he considers striking Iran.`\
+https://nytimes.com/2025/06/20/us/politics/trump-tulsi-gabbard-iran.html
+
 **Judge Blocks a Trump Effort to Prevent International Students at Harvard**\
 `The decision came after a hearing where a lawyer for Harvard accused the Trump administration of McCarthy-like tactics and irregular and improper treatment.`\
 https://nytimes.com/2025/06/20/us/international-students-harvard-preliminary-injunction.html
