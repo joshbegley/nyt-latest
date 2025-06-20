@@ -1,3 +1,7 @@
+**It’s the Greatest Part!**\
+`Adrianne Baik makes her New York Times Crossword debut with some dynamic, grid-spanning stacks.`\
+https://nytimes.com/2025/06/19/crosswords/daily-puzzle-2025-06-20.html
+
 **Wilmer Flores comes through in a pinch, wins the day for Giants**\
 `For all the ways the Rafael Devers trade could limit his opportunities, Flores remains a vital part of the Giants' roster.`\
 https://nytimes.com/athletic/6439228/2025/06/19/wilmer-flores-pinch-hit-wins-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-sch
 **Israel’s Military Says Iran Struck Israel With Missile Armed With Cluster Munitions**\
 `Israel’s military accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts said evidence offered support for the claim.`\
 https://nytimes.com/2025/06/19/world/middleeast/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions.html
-
-**Why 'there's no panic' about the Yankees' offense, especially Aaron Judge**\
-`Yankees hitting coach James Rowson is not worried about his hitters, including Judge, whom he called "the most dangerous man in baseball."`\
-https://nytimes.com/athletic/6438700/2025/06/19/yankees-offense-aaron-judge-hitting-woes/
 

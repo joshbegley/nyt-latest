@@ -1,3 +1,7 @@
+**It’s the Greatest Part!**\
+`Adrianne Baik makes her New York Times Crossword debut with some dynamic, grid-spanning stacks.`\
+https://nytimes.com/2025/06/19/crosswords/daily-puzzle-2025-06-20.html
+
 **Wilmer Flores comes through in a pinch, wins the day for Giants**\
 `For all the ways the Rafael Devers trade could limit his opportunities, Flores remains a vital part of the Giants' roster.`\
 https://nytimes.com/athletic/6439228/2025/06/19/wilmer-flores-pinch-hit-wins-giants/
