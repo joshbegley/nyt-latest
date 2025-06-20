@@ -1,3 +1,11 @@
+**Insurers Pledge to Ease Controversial Prior Approvals for Medical Care**\
+`Major companies had faced mounting pressure to stop denying or stalling authorization of coverage for treatments and prescriptions.`\
+https://nytimes.com/2025/06/20/health/health-insurance-prior-authorization.html
+
+**Benfica-Aukland City Club World Cup game endures over two-hour weather delay**\
+`The fixture was the latest match at this summer's tournament to be delayed due to the weather conditions`\
+https://nytimes.com/athletic/6440799/2025/06/20/benfica-aukland-city-club-world-cup-weather-delay/
+
 **Benfica 6 Auckland City 0: Lage's patience tested as underdogs dig deep**\
 `Benfica recorded their first win of the Club World Cup on Friday after a frustrating first half and a lengthy weather-enforced delay`\
 https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
