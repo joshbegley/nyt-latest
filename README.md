@@ -1,3 +1,11 @@
+**Two-time WSL winner Beard appointed new Burnley manager**\
+`Beard has been out of management since being dismissed Liverpool in February.`\
+https://nytimes.com/athletic/6437495/2025/06/20/matt-beard-burnley-manager/
+
+**Former Combs Assistant Says Mogul Told Staff to ‘Move Like SEAL Team 6’**\
+`Brendan Paul testified that his duties for Sean Combs involved getting drugs, setting up hotel rooms for sexual encounters and handling routine tasks.`\
+https://nytimes.com/2025/06/20/arts/music/sean-diddy-combs-trial-drugs-brendan-paul.html
+
 **Weekends Are for New Recipes**\
 `If you haven’t yet made Hetty Lui McKinnon’s crispy gnocchi with tomato and red onion, the first weekend of Actual Summer is a great time to do so.`\
 https://nytimes.com/2025/06/20/dining/easy-crispy-gnocchi-with-tomato-and-red-onion-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6440055/2025/06/20/ferrari-le-mans-robert-kubica-f1
 **Van de Donk joins London City Lionesses from Lyon**\
 `The former Arsenal player joins the newly-promoted side in their first season in the WSL after four years at Lyon.`\
 https://nytimes.com/athletic/6440097/2025/06/20/wsl-van-de-donk-london-city-lioness-transfer/
-
-**Europe’s Growing Fear: How Trump Might Use U.S. Tech Dominance Against It**\
-`To comply with a Trump executive order, Microsoft recently suspended the email account of an International Criminal Court prosecutor in the Netherlands who was investigating Israel for war crimes.`\
-https://nytimes.com/2025/06/20/technology/us-tech-europe-microsoft-trump-icc.html
-
-**Jurickson Profar, Addison Barger and more top fantasy baseball waiver wire adds**\
-`Owen Poindexter highlights the top options on the fantasy baseball waiver wire, noting a surprisingly available player who can add saves.`\
-https://nytimes.com/athletic/6438282/2025/06/20/fantasy-baseball-waiver-wire-adds-profar-barger/
 
