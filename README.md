@@ -1,3 +1,19 @@
+**How far could Iranian missiles go?**\
+`Thousands of U.S. troops stationed in the Middle East are within striking distance of ballistic missiles Iran has stockpiled.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/how-far-could-iranian-missiles-go
+
+**Wisconsin sues Miami, alleging tampering led to a player's transfer**\
+`The lawsuit contends Miami interfered with what it said were binding NIL revenue-sharing contracts with the cornerback.`\
+https://nytimes.com/athletic/6440987/2025/06/20/wisconsin-miami-football-lawsuit-xavier-lucas-transfer/
+
+**Four Recent Poetry Collections Worth Reading**\
+`And A.O. Scott on the joys inherent in giving poems a close read.`\
+https://nytimes.com/2025/06/20/books/review/poetry-collection-recommendations.html
+
+**Putin Suggests Russia Could Take Another Ukrainian City**\
+`During an annual economic conference in St. Petersburg, Russia, President Vladimir Putin did not rule out his forces taking the Ukrainian city of Sumy.`\
+https://nytimes.com/video/world/europe/100000010241132/putin-russia-ukraine-economic-forum.html
+
 **Luis Diaz, Undercover Agent Who Busted a Drug Kingpin, Dies at 79**\
 `He posed as a renegade mobster dealing drugs and laundering cash to help topple Nicky Barnes, who as “Mr. Untouchable” ran a formidable Harlem heroin ring.`\
 https://nytimes.com/2025/06/20/nyregion/luis-diaz-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6440799/2025/06/20/benfica-aukland-city-club-world-
 **Flamengo 3 Chelsea 1 - Jackson sent off as Maresca's team implode at Club World Cup**\
 `Analysis of Flamengo's thrilling win over Chelsea at the Club World Cup`\
 https://nytimes.com/athletic/6427546/2025/06/20/flamengo-chelsea-club-world-cup/
-
-**Trump’s Rebuke of Gabbard Signals an Uneasy Moment**\
-`The president’s relationship with his director of national intelligence has become more tense as he considers striking Iran.`\
-https://nytimes.com/2025/06/20/us/politics/trump-tulsi-gabbard-iran.html
-
-**Judge Blocks a Trump Effort to Prevent International Students at Harvard**\
-`The decision came after a hearing where a lawyer for Harvard accused the Trump administration of McCarthy-like tactics and irregular and improper treatment.`\
-https://nytimes.com/2025/06/20/us/international-students-harvard-preliminary-injunction.html
-
-**Hedge fund founder Trip Miller says he has also made a bid to buy Rays**\
-`Miller said he has put together a group that made an all-cash offer to buy the Rays, with hopes of buying and keeping them in Florida.`\
-https://nytimes.com/athletic/6440697/2025/06/20/tampa-bay-rays-buyer-trip-miller-sternberg/
-
-**Boca Juniors pair Herrera, Figal handed four-match Club World Cup bans**\
-`Both were sent off in their opening game of the Club World Cup against Benfica on Monday.`\
-https://nytimes.com/athletic/6437202/2025/06/20/boca-juniors-herrera-figal-club-world-cup-bans/
 
