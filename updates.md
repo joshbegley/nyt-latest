@@ -1,3 +1,11 @@
+**Chris Brown Free to Play World Tour After Not Guilty Plea**\
+`The R&B star will not stand trial on assault charges until October 2026 and can continue touring, including playing U.S. dates.`\
+https://nytimes.com/2025/06/20/arts/music/chris-brown-not-guilty-plea.html
+
+**Explaining the group-stage tiebreakers at the Club World Cup**\
+`FIFA's method for splitting teams at this tournament differs from the men's and women's World Cups.`\
+https://nytimes.com/athletic/6434652/2025/06/20/club-world-cup-group-how/
+
 **Trump’s Iran Deadline, and TikTok’s Future in the U.S.**\
 `Plus, a fast-food gimmick turns 20.`\
 https://nytimes.com/2025/06/20/podcasts/the-headlines/trumps-deadline-iran-tiktok-us.html

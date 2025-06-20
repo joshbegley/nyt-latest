@@ -1,3 +1,11 @@
+**Chris Brown Free to Play World Tour After Not Guilty Plea**\
+`The R&B star will not stand trial on assault charges until October 2026 and can continue touring, including playing U.S. dates.`\
+https://nytimes.com/2025/06/20/arts/music/chris-brown-not-guilty-plea.html
+
+**Explaining the group-stage tiebreakers at the Club World Cup**\
+`FIFA's method for splitting teams at this tournament differs from the men's and women's World Cups.`\
+https://nytimes.com/athletic/6434652/2025/06/20/club-world-cup-group-how/
+
 **Trump’s Iran Deadline, and TikTok’s Future in the U.S.**\
 `Plus, a fast-food gimmick turns 20.`\
 https://nytimes.com/2025/06/20/podcasts/the-headlines/trumps-deadline-iran-tiktok-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6436425/2025/06/20/2025-nhl-mock-draft-the-athletic
 **Why are PSA 9s starting to sell for less than ungraded cards?**\
 `As the value disparity between PSA 10s and PSA 9s widens, an opportunity could be emerging`\
 https://nytimes.com/athletic/6438036/2025/06/20/card-grading-values-psa/
-
-**Supreme Court Upholds Ban on Transgender Care for Minors**\
-`The justices ruled that a Tennessee law did not violate equal protection principles, a bitter setback for transgender rights proponents.`\
-https://nytimes.com/2025/06/20/podcasts/the-daily/supreme-court-upholds-ban-on-transgender-care-for-minors.html
-
-**NHL free-agent big board 2.0: Can anyone lure the top targets out of Florida?**\
-`Sam Bennett, Brad Marchand and Aaron Ekblad all rank in the top four UFAs — while they continue to celebrate the Panthers' Stanley Cup win.`\
-https://nytimes.com/athletic/6439085/2025/06/20/nhl-free-agency-rankings-big-board-panthers/
 
