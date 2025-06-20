@@ -1,3 +1,7 @@
+**Hurricanes need a second-line center. Here are their options this offseason**\
+`Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
+https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agent/
+
 **Why Ferrari can't win in F1, but it can win Le Mans. Plus, Robert Kubica praise**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6440055/2025/06/20/ferrari-le-mans-robert-kubica-f1-prime-tire/

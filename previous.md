@@ -1,3 +1,7 @@
+**Hurricanes need a second-line center. Here are their options this offseason**\
+`Carolina could promote from within or pursue a player such as Minnesota's Marco Rossi.`\
+https://nytimes.com/athletic/6439486/2025/06/20/hurricanes-center-trade-free-agent/
+
 **Why Ferrari can't win in F1, but it can win Le Mans. Plus, Robert Kubica praise**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6440055/2025/06/20/ferrari-le-mans-robert-kubica-f1-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/business/oil-tankers-israel-iran.html
 **England's Hampton aiming to 'fill the gloves' of Earps at Euro 2025**\
 `Earps’s shock international retirement at the end of May left Chelsea’s Hampton as England’s No 1 ahead of their Euros title defence.`\
 https://nytimes.com/athletic/6437979/2025/06/20/hannah-hampton-england-goalkeeper-earps/
-
-**Women's Asian Cup qualifiers moved to Qatar amid Israel-Iran conflict**\
-`Jordan, Iran, Lebanon, Singapore, and Bhutan comprise Group A, with matches initially due to take place in Amman — Jordan's capital city.`\
-https://nytimes.com/athletic/6439874/2025/06/20/asian-cup-qatar-israel-iran/
 
