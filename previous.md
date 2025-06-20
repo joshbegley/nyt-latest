@@ -1,3 +1,15 @@
+**Large Oil Producers Around the Persian Gulf Ramp Up Exports**\
+`Saudi Arabia and other oil states are rushing to load tankers in case the Israel-Iran fighting spreads to export installations.`\
+https://nytimes.com/2025/06/20/business/oil-tankers-israel-iran.html
+
+**England's Hampton aiming to 'fill the gloves' of Earps at Euro 2025**\
+`Earps’s shock international retirement at the end of May left Chelsea’s Hampton as England’s No 1 ahead of their Euros title defence.`\
+https://nytimes.com/athletic/6437979/2025/06/20/hannah-hampton-england-goalkeeper-earps/
+
+**Women's Asian Cup qualifiers moved to Qatar amid Israel-Iran conflict**\
+`Jordan, Iran, Lebanon, Singapore, and Bhutan comprise Group A, with matches initially due to take place in Amman — Jordan's capital city.`\
+https://nytimes.com/athletic/6439874/2025/06/20/asian-cup-qatar-israel-iran/
+
 **Fer Lopez: Who is he, how does he play and what will he bring to Wolves?**\
 `Wolves have invested heavily in a raw talent in the hope they can turn it into something special`\
 https://nytimes.com/athletic/6437699/2025/06/20/fer-lopez-wolves-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/20/realestate/prewar-eva-alt-hamptons-ny-houses.html
 **Wolves sign winger Fer Lopez from Celta Vigo**\
 `The 21-year-old Spanish is Wolves' first signing of the summer transfer window, following the sales of Matheus Cunha and Rayan Ait-Nouri.`\
 https://nytimes.com/athletic/6427754/2025/06/20/wolves-transfers-fer-lopez-celta-vigo/
-
-**One difference-making trade for each AL team in the wild-card race**\
-`Ten AL teams, to varying degrees, are in the race for a wild-card spot. Here, we suggest a potential trade that could boost each of them.`\
-https://nytimes.com/athletic/6437995/2025/06/20/mlb-trade-deadline-american-league-wild-card-team-scenarios/
-
-**Test cricket explained in 60 seconds**\
-`Everything you need to know to understand cricket's five-day epics`\
-https://nytimes.com/athletic/6434509/2025/06/20/test-cricket-explained-in-60-seconds/
-
-**The most important developmental tasks for Lions’ offensive coaching staff**\
-`The Lions will be looking for these offensive players to take the next step in their development.`\
-https://nytimes.com/athletic/6438734/2025/06/20/lions-offense-coaching-staff-development/
 

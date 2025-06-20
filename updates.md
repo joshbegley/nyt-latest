@@ -1,3 +1,15 @@
+**Large Oil Producers Around the Persian Gulf Ramp Up Exports**\
+`Saudi Arabia and other oil states are rushing to load tankers in case the Israel-Iran fighting spreads to export installations.`\
+https://nytimes.com/2025/06/20/business/oil-tankers-israel-iran.html
+
+**England's Hampton aiming to 'fill the gloves' of Earps at Euro 2025**\
+`Earps’s shock international retirement at the end of May left Chelsea’s Hampton as England’s No 1 ahead of their Euros title defence.`\
+https://nytimes.com/athletic/6437979/2025/06/20/hannah-hampton-england-goalkeeper-earps/
+
+**Women's Asian Cup qualifiers moved to Qatar amid Israel-Iran conflict**\
+`Jordan, Iran, Lebanon, Singapore, and Bhutan comprise Group A, with matches initially due to take place in Amman — Jordan's capital city.`\
+https://nytimes.com/athletic/6439874/2025/06/20/asian-cup-qatar-israel-iran/
+
 **Fer Lopez: Who is he, how does he play and what will he bring to Wolves?**\
 `Wolves have invested heavily in a raw talent in the hope they can turn it into something special`\
 https://nytimes.com/athletic/6437699/2025/06/20/fer-lopez-wolves-transfer/
