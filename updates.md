@@ -1,3 +1,7 @@
+**Trump’s Iran Deadline, and TikTok’s Future in the U.S.**\
+`Plus, a fast-food gimmick turns 20.`\
+https://nytimes.com/2025/06/20/podcasts/the-headlines/trumps-deadline-iran-tiktok-us.html
+
 **Pro-Palestinian Activists Break Into Britain’s Largest Air Base**\
 `The Palestine Action group said two of its members had entered R.A.F. Brize Norton on electric scooters and sprayed a couple of military planes with red paint.`\
 https://nytimes.com/2025/06/20/world/europe/pro-palestinian-activists-uk-air-base-raf-brize-norton.html
