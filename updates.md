@@ -1,3 +1,11 @@
+**India's Next Gen: Shubman Gill and Yashasvi Jaiswal show their time is now**\
+`The young pair batted beautifully at Headingley and are ready to take up the mantle after the retirements of Rohit Sharma and Virat Kohli`\
+https://nytimes.com/athletic/6440211/2025/06/20/india-jaiswal-gill-sharma-kohli/
+
+**WNBA files trademarks for the name 'Portland Fire' and stylized 'P' logo**\
+`The league’s expansion to Portland was announced in September 2024, and the team will begin play in 2026 alongside the Toronto Tempo.`\
+https://nytimes.com/athletic/6440761/2025/06/20/wnba-portland-fire-trademark-logo/
+
 **Our Favorite Things From Trader Joe’s **\
 `(No description)`\
 https://nytimes.com/card/2025/06/20/smarter-living/wirecutter/our-favorite-things-from-trader-joes
