@@ -18,10 +18,6 @@ https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/20/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 
-**Lee Johnson on managing abroad: 'It's crunch time for English coaches, we need success stories'**\
-`Now in charge of his seventh club, the Lommel head coach says fellow English managers should consider working overseas`\
-https://nytimes.com/athletic/6437477/2025/06/20/english-managers-abroad-lee-johnson/
-
 **Rating Forest's 102 permanent signings under Marinakis**\
 `There have now been more than 100 permanent signings during the Evangelos Marinakis era. We rate them all...`\
 https://nytimes.com/athletic/6424390/2025/06/20/rating-nottingham-forests-102-permanent-signings-under-evangelos-marinakis/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6435066/2025/06/20/bernardo-silva-manchester-city-c
 **Who are Leicester's returning loanees and could any be first-team solutions for them next season?**\
 `A look at whether any players borrowed by other clubs in 2024-25 are likely to step up for Ruud van Nistelrooy in the Championship`\
 https://nytimes.com/athletic/6421301/2025/06/20/who-are-leicesters-returning-loanees-and-could-any-of-them-feature-next-season/
+
+**Why have Brighton signed two very similar Greek strikers?**\
+`A look at how Charalampos Kostoulas and Stefanos Tzimas will fit into Fabian Hurzeler's plans for next season`\
+https://nytimes.com/athletic/6420918/2025/06/20/brighton-greek-strikers-transfer/
 
