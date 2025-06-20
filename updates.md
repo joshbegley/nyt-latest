@@ -1,3 +1,7 @@
+**What we're hearing about the Mets, White Sox and Royals' trade deadline plans, plus more MLB notes**\
+`Plus more on the Padres, DBacks and Giants' outlooks as July approaches.`\
+https://nytimes.com/athletic/6439197/2025/06/20/mlb-trade-deadline-mets-white-sox-royals/
+
 **TAFC: Football's possible doping problem, Messi magic at the Club World Cup, and Mbappe's hospital scare**\
 `Today in TAFC: The complexities of how football deals with doping, Messi's free kick inspires Inter Miami and Mbappe is admitted to hospital`\
 https://nytimes.com/athletic/6439812/2025/06/20/athletic-fc-newsletter-messi-mudryk-mbappe/
