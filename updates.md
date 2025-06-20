@@ -1,3 +1,7 @@
+**Man Is Charged With Trying to Kidnap Memphis Mayor, Police Say**\
+`The 25-year-old man told the police that he had gone to the home of Mayor Paul Young to confront him about crime. The police later found a stun gun, rope and duct tape in the man’s car, they said.`\
+https://nytimes.com/2025/06/19/us/threat-kidnapping-memphis-mayor.html
+
 **It’s the Greatest Part!**\
 `Adrianne Baik makes her New York Times Crossword debut with some dynamic, grid-spanning stacks.`\
 https://nytimes.com/2025/06/19/crosswords/daily-puzzle-2025-06-20.html

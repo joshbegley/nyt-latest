@@ -1,3 +1,7 @@
+**Man Is Charged With Trying to Kidnap Memphis Mayor, Police Say**\
+`The 25-year-old man told the police that he had gone to the home of Mayor Paul Young to confront him about crime. The police later found a stun gun, rope and duct tape in the man’s car, they said.`\
+https://nytimes.com/2025/06/19/us/threat-kidnapping-memphis-mayor.html
+
 **It’s the Greatest Part!**\
 `Adrianne Baik makes her New York Times Crossword debut with some dynamic, grid-spanning stacks.`\
 https://nytimes.com/2025/06/19/crosswords/daily-puzzle-2025-06-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438978/2025/06/19/oilers-contracts-mcdavid-frederi
 **Blue Jays takeaways: New batting order, Max Scherzer's rehab, Rafael Devers reaction**\
 `With Vladimir Guerrero Jr. back in his familiar third spot, Addison Barger is reaping the benefits of batting second.`\
 https://nytimes.com/athletic/6438971/2025/06/19/blue-jays-addison-barger-max-scherzer-diamondbacks/
-
-**Israel’s Military Says Iran Struck Israel With Missile Armed With Cluster Munitions**\
-`Israel’s military accused Iran of using a type of weapon banned by more than 100 countries, though not by Iran or Israel. Experts said evidence offered support for the claim.`\
-https://nytimes.com/2025/06/19/world/middleeast/israels-military-says-iran-struck-with-a-missile-armed-with-cluster-munitions.html
 
