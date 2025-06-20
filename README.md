@@ -1,3 +1,7 @@
+**U.K. Lawmakers Approve Plans for Medically Assisted Dying**\
+`Following months of debate, U.K. lawmakers approved plans to introduce medically assisted suicide for terminally ill patients in England and Wales.`\
+https://nytimes.com/video/world/europe/100000010240521/london-uk-medically-assisted-dying.html
+
 **Yankees' Luke Weaver returns: What it means for Devin Williams and the closer role**\
 `Weaver returns after missing nearly three weeks with a hamstring strain. But will he resume his role as the Yankees' closer?`\
 https://nytimes.com/athletic/6440563/2025/06/20/luke-weaver-yankees-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440183/2025/06/20/lionel-messi-direct-free-kick-te
 **Liverpool confirm Wirtz signing from Bayer Leverkusen**\
 `Liverpool have agreed a club-record €136.3million (£116m) fee with Leverkusen to sign Wirtz.`\
 https://nytimes.com/athletic/6423724/2025/06/20/florian-wirtz-liverpool-transfer-confirmed/
-
-**Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
-`Mr. Khalil, a Columbia graduate and legal permanent resident, has been held in Louisiana for over three months. The judge found reason to believe it was retaliation for his pro-Palestinian speech.`\
-https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
 

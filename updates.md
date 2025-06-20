@@ -1,3 +1,7 @@
+**Yankees' Luke Weaver returns: What it means for Devin Williams and the closer role**\
+`Weaver returns after missing nearly three weeks with a hamstring strain. But will he resume his role as the Yankees' closer?`\
+https://nytimes.com/athletic/6440563/2025/06/20/luke-weaver-yankees-return/
+
 **A timeline of the Lakers' success (and challenges) under Buss family leadership**\
 `With the Lakers ownership changing hands, we dive into the biggest moments in the team's history under the Buss family. `\
 https://nytimes.com/athletic/6438270/2025/06/20/lakers-timeline-buss-family-sale-nba/
