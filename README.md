@@ -1,3 +1,15 @@
+**Erykah Badu’s Woozy Flirtation, and 9 More New Songs**\
+`Hear tracks by Kehlani, Benson Boone, Witch and others.`\
+https://nytimes.com/2025/06/20/arts/music/playlist-erykah-badu-benson-boone-lorde.html
+
+**Protesters Rally Across the Middle East in Solidarity With Iran**\
+`Large crowds rallied in Iran, Lebanon and Iraq to protest against Israel’s attacks.`\
+https://nytimes.com/video/world/middleeast/100000010240808/iran-lebanon-iraq-protests.html
+
+**Justices Let Fuel Producers Challenge California’s Limits on Car Emissions**\
+`The 7-to-2 decision stressed that it did not address the merits of the dispute, and concerned only whether the producers had standing to sue.`\
+https://nytimes.com/2025/06/20/us/politics/supreme-court-california-electric-vehicles.html
+
 **World chess No.1 Carlsen to continue with Bundesliga club St Pauli**\
 `Nicknamed ‘the Mozart of Chess’, the former world champion helped St Pauli to a 12th-placed finish in the 15-team standings.`\
 https://nytimes.com/athletic/6440207/2025/06/20/magnus-carlsen-chess-st-pauli-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/20/nyregion/nyc-mayor-interviews.html
 **Five Free Movies to Stream Now**\
 `Films including “Jodorowsky’s Dune” and Owen Kline’s “Funny Pages” delve into the pain and anguish — and brief ecstasy — of making art.`\
 https://nytimes.com/2025/06/20/movies/five-free-movies-to-stream-now.html
-
-**best-movies**\
-``\
-https://nytimes.com/spotlight/best-movies
-
-**Ingrid Engen joins Lyon from Barcelona**\
-`Engen, 27, has signed a two-year contract with the French champions that runs until 2027.`\
-https://nytimes.com/athletic/6440287/2025/06/20/norway-international-ingrid-engen-joins-lyon-from-barcelona/
-
-**This Hurricane Season Is One of the Slowest to Start in 20 Years**\
-`The Atlantic season began officially on June 1. Three weeks in, there still hasn’t been a named storm.`\
-https://nytimes.com/2025/06/20/weather/hurricane-season-slow-start.html
 
