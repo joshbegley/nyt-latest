@@ -1,3 +1,15 @@
+**Where the Legal Fight Over the California National Guard Stands**\
+`A volley of court rulings has made the legal path unclear in a case challenging President Trump’s use of troops in Los Angeles. For now, the president has retained control of the state militia.`\
+https://nytimes.com/2025/06/20/us/trump-california-la-national-guard.html
+
+**At a Memorial for Anne Burrell, a Karaoke Tribute to Her Bold Style**\
+`The Food Network chef, who died Tuesday at 55, was remembered in a star-studded service that sent her off with a singalong.`\
+https://nytimes.com/2025/06/20/dining/anne-burrell-memorial-service.html
+
+**Trump and the Great Wait for Israelis and Iranians**\
+`The Times’s Jerusalem bureau chief explains what President Trump’s delay in deciding whether to intervene in the Israel-Iran war means for the people of both countries.`\
+https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-two-weeks.html
+
 **A Doctor Posted Video of Their Decapitated Baby. They Were Awarded $2.5 Million.**\
 `A Georgia couple hired a pathologist to do an autopsy after their first child died during childbirth. They accused him of posting images of the baby on Instagram without their consent.`\
 https://nytimes.com/2025/06/20/us/georgia-decapitated-baby-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6441157/2025/06/20/phillies-bryce-harper-injury-ret
 **TikTok’s Owner Wanted to Publish Books. Not Anymore.**\
 `8th Note Press informed writers and agents that it is abruptly shutting down and returning publication rights to authors.`\
 https://nytimes.com/2025/06/20/books/review/bytedance-tiktok-publisher-shuts-down.html
-
-**Gunilla Knutson, Star of ‘Take It Off’ Shaving Cream Ads, Dies at 84**\
-`A model who was crowned Miss Sweden in 1961, she became best known for commercials that one observer said “replaced the ‘hard sell’ with the ‘sex sell.’”`\
-https://nytimes.com/2025/06/20/arts/television/gunilla-knutson-dead.html
-
-**Maresca says Jackson red cards will not impact his Chelsea future**\
-`The striker received his second straight red card in his last four appearances for the club in a 3-1 defeat against Flamengo.`\
-https://nytimes.com/athletic/6441088/2025/06/20/enzo-maresca-nicolas-jackson-red-cards/
-
-**‘Dead Outlaw’ Musical to Close After Disappointing Run on Broadway**\
-`The show was shut out at the Tonys after being nominated for seven awards, including best musical.`\
-https://nytimes.com/2025/06/20/theater/dead-outlaw-broadway-closing.html
 

@@ -1,3 +1,15 @@
+**Where the Legal Fight Over the California National Guard Stands**\
+`A volley of court rulings has made the legal path unclear in a case challenging President Trump’s use of troops in Los Angeles. For now, the president has retained control of the state militia.`\
+https://nytimes.com/2025/06/20/us/trump-california-la-national-guard.html
+
+**At a Memorial for Anne Burrell, a Karaoke Tribute to Her Bold Style**\
+`The Food Network chef, who died Tuesday at 55, was remembered in a star-studded service that sent her off with a singalong.`\
+https://nytimes.com/2025/06/20/dining/anne-burrell-memorial-service.html
+
+**Trump and the Great Wait for Israelis and Iranians**\
+`The Times’s Jerusalem bureau chief explains what President Trump’s delay in deciding whether to intervene in the Israel-Iran war means for the people of both countries.`\
+https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-two-weeks.html
+
 **A Doctor Posted Video of Their Decapitated Baby. They Were Awarded $2.5 Million.**\
 `A Georgia couple hired a pathologist to do an autopsy after their first child died during childbirth. They accused him of posting images of the baby on Instagram without their consent.`\
 https://nytimes.com/2025/06/20/us/georgia-decapitated-baby-lawsuit.html
