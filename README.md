@@ -1,3 +1,7 @@
+**Virginia Man Convicted in Attempted Church Shooting Gets 25 Years**\
+`The man, who was convicted in March, was armed when he was arrested during a church service in Haymarket, Va., in 2023.`\
+https://nytimes.com/2025/06/20/us/virginia-man-hate-crime-sentenced.html
+
 **Map: 5.1-Magnitude Earthquake Strikes Iran**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/20/world/middleeast/earthquake-iran-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438270/2025/06/20/lakers-timeline-buss-family-sale
 **Senator Ron Johnson Resists G.O.P. Megabill, Warning It Will Swell Debt**\
 `The Wisconsin Republican has toned down attacks on the measure in recent days, but a new report he released undermines party leaders’ claims that the legislation won’t add to federal deficits.`\
 https://nytimes.com/2025/06/20/us/senator-ron-johnson-debt.html
-
-**Supreme Court Finds Retired Firefighter Cannot Sue for Disability Discrimination**\
-`In a tangled decision, the justices ruled against a disabled firefighter who sued her former employer for refusing her health benefits after she had retired.`\
-https://nytimes.com/2025/06/20/us/supreme-court-finds-retired-firefighter-cannot-sue-for-disability-discrimination.html
 

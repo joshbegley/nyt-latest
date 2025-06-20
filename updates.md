@@ -1,3 +1,7 @@
+**Map: 5.1-Magnitude Earthquake Strikes Iran**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/20/world/middleeast/earthquake-iran-tracker.html
+
 **India's Next Gen: Shubman Gill and Yashasvi Jaiswal show their time is now**\
 `The young pair batted beautifully at Headingley and are ready to take up the mantle after the retirements of Rohit Sharma and Virat Kohli`\
 https://nytimes.com/athletic/6440211/2025/06/20/india-jaiswal-gill-sharma-kohli/
