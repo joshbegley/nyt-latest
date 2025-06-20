@@ -1,3 +1,5 @@
+
+
 **Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
 `Iran’s foreign minister is to meet his European counterparts Friday. President Trump said he would give diplomacy a chance, dashing Israeli hopes for immediate U.S. involvement.`\
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump
