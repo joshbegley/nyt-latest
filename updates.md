@@ -1,3 +1,15 @@
+**Mahmoud Khalil Must Be Released, Federal Judge Orders**\
+`Mr. Khalil, a Columbia University graduate and legal permanent resident, has been held in Louisiana for more than three months. The Trump administration is trying to deport him.`\
+https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
+
+**Searching for Meaning Amid the Jumble, at the Venice Architecture Biennale**\
+`Navigating the show has always been challenging, especially for visitors who aren’t experts. This year’s curator wants to give them a helping hand.`\
+https://nytimes.com/2025/06/20/arts/design/venice-architecture-biennale-climate-population.html
+
+**Man City, England goalkeeper Keating has class C possession charges dropped**\
+`The crown prosecution service (CPS) confirmed the case against Keating and her mother Nicola has been discontinued.`\
+https://nytimes.com/athletic/6440478/2025/06/20/khiara-keating-man-city-england-charges-dropped/
+
 **Man City, England goalkeeper Keating has class C possession charges dropped**\
 `The crown prosecution service (CPS) confirmed the case against Keating and her mother Nicola has been discontinued.`\
 https://nytimes.com/athletic/6440478/2025/06/20/manchester-city-england-goalkeeper-khiara-keating-has-class-c-possession-charges-dropped/
