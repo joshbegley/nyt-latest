@@ -1,3 +1,7 @@
+**Messi delivers a show-stopping moment the Club World Cup, Miami and MLS needed**\
+`In a tournament devoid of signature moments and memorable victories, Lionel Messi, at 37, delivered both with one swift kick.`\
+https://nytimes.com/athletic/6439235/2025/06/19/lionel-messi-goal-club-world-cup-inter-miami-porto-mls/
+
 **Rays' Hunter Bigge taken off field on stretcher after being hit by foul ball**\
 `The Rays pitcher was standing in the front row of the dugout when he was hit by a foul ball off the bat of the Orioles' Adley Rutschman.`\
 https://nytimes.com/athletic/6439263/2025/06/19/rays-hunter-bigge-injury-foul-ball/

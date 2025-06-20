@@ -1,3 +1,7 @@
+**Messi delivers a show-stopping moment the Club World Cup, Miami and MLS needed**\
+`In a tournament devoid of signature moments and memorable victories, Lionel Messi, at 37, delivered both with one swift kick.`\
+https://nytimes.com/athletic/6439235/2025/06/19/lionel-messi-goal-club-world-cup-inter-miami-porto-mls/
+
 **Rays' Hunter Bigge taken off field on stretcher after being hit by foul ball**\
 `The Rays pitcher was standing in the front row of the dugout when he was hit by a foul ball off the bat of the Orioles' Adley Rutschman.`\
 https://nytimes.com/athletic/6439263/2025/06/19/rays-hunter-bigge-injury-foul-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438888/2025/06/19/seattle-sounders-atletico-madrid
 **Cubs notes: Pete Crow-Armstrong fastest in team history to reach 20-20 mark**\
 `It took Crow-Armstrong 73 games to get to 20 home runs and 20 stolen bases, topping Sammy Sosa, who needed 96 games to get there in 1994.`\
 https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
-
-**Oilers' 3 biggest contract decisions and what they mean for the future roster**\
-`These three contracts have the potential to drastically alter the salary-cap landscape for the Oilers for years to come.`\
-https://nytimes.com/athletic/6438978/2025/06/19/oilers-contracts-mcdavid-frederic-bouchard/
 
