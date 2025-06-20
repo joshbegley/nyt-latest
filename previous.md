@@ -1,3 +1,19 @@
+**Crunch time for Bazball: Is it now or never for England's cricketing revolution?**\
+`England's positive-first approach to Test cricket has been transformative, but they await a defining series win over India or Australia`\
+https://nytimes.com/athletic/6433016/2025/06/20/bazball-stokes-mccullum-england-india/
+
+**Club World Cup daily rankings: Brazilian powers, Miami make their move**\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/20/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
+**Lee Johnson on managing abroad: 'It's crunch time for English coaches, we need success stories'**\
+`Now in charge of his seventh club, the Lommel head coach says fellow English managers should consider working overseas`\
+https://nytimes.com/athletic/6437477/2025/06/20/english-managers-abroad-lee-johnson/
+
+**Rating Forest's 102 permanent signings under Marinakis**\
+`There have now been more than 100 permanent signings during the Evangelos Marinakis era. We rate them all...`\
+https://nytimes.com/athletic/6424390/2025/06/20/rating-nottingham-forests-102-permanent-signings-under-evangelos-marinakis/
+
 **How Nick Gray, son of Eddie, is paying tribute to his brother: 'It's a way to keep his memory alive'**\
 `Nick is trying to complete 25 events in 2025 to raise money for the hospice where sibling Stuart died of a rare cancer last year at age 50`\
 https://nytimes.com/athletic/6438395/2025/06/20/nick-gray-interview-leeds/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6437413/2025/06/20/mathys-tel-tottenham-frank-mbeum
 **Gattuso is loved in Italy as a World Cup winner and for being who he is. Will that be enough?**\
 `Unveiled as the new Italy manager on Thursday, the former cult-hero midfielder's task is to avoid missing a third straight World Cup`\
 https://nytimes.com/athletic/6438414/2025/06/20/italy-gennaro-gattuso-new-manager-analysis/
-
-**Arsenal transfer quiz: A January injury, Emery's legacy and Arteta's Brazilians**\
-`From loan spells, to Wenger's final move and struggling strikers - test your knowledge of Arsenal's past signings`\
-https://nytimes.com/athletic/6429512/2025/06/20/arsenal-transfers-quiz-arteta/
-
-**Does football have a doping problem?**\
-`Mykhailo Mudryk doping charge has sparked a wider debate around the prevalence of drugs in football`\
-https://nytimes.com/athletic/6248135/2025/06/20/football-doping-problem/
-
-**Oval Office stunt proved FIFA is happy to play politics when it suits**\
-`FIFA's insistence that politics and football do not mix feels hypocritical. To use Trump’s phrase, football has largely sold out`\
-https://nytimes.com/athletic/6438516/2025/06/20/donald-trump-juventus-fifa-politics/
-
-**The rise and rise of Jason Wilcox - Manchester United's most senior football executive**\
-`This is how a Premier League-winning winger with Blackburn 30 years ago became Old Trafford's most senior football executive`\
-https://nytimes.com/athletic/6435279/2025/06/20/jason-wilcox-manchester-united-sporting-director-profile/
 
