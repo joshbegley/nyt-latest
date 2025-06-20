@@ -1,3 +1,11 @@
+**Our Favorite Things From Trader Joe’s **\
+`(No description)`\
+https://nytimes.com/card/2025/06/20/smarter-living/wirecutter/our-favorite-things-from-trader-joes
+
+**Community leaders call on Dodgers to 'take a public stand' against raids**\
+`On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium seeking to process detainees.`\
+https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
+
 **U.K. Lawmakers Approve Plans for Medically Assisted Dying**\
 `Following months of debate, U.K. lawmakers approved plans to introduce medically assisted suicide for terminally ill patients in England and Wales.`\
 https://nytimes.com/video/world/europe/100000010240521/london-uk-medically-assisted-dying.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6440566/2025/06/20/penguins-nick-bonino-todd-nelson
 **Inside Wirtz's Liverpool deal: Why rivals missed out, Slot's role and falling for Kirkby**\
 `The full story of how Anfield's powerbrokers secured a record-breaking deal for the German playmaker`\
 https://nytimes.com/athletic/6434830/2025/06/20/florian-wirtz-liverpool-transfer-inside-story/
-
-**How Lionel Messi consistently makes direct free kicks feel like penalties**\
-`The Club World Cup was treated to a special Messi free kick on Thursday — this is the extraordinary technique which makes him so good`\
-https://nytimes.com/athletic/6440183/2025/06/20/lionel-messi-direct-free-kick-technique-club-world-cup/
-
-**Liverpool confirm Wirtz signing from Bayer Leverkusen**\
-`Liverpool have agreed a club-record €136.3million (£116m) fee with Leverkusen to sign Wirtz.`\
-https://nytimes.com/athletic/6423724/2025/06/20/florian-wirtz-liverpool-transfer-confirmed/
 

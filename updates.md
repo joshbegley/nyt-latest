@@ -1,3 +1,7 @@
+**U.K. Lawmakers Approve Plans for Medically Assisted Dying**\
+`Following months of debate, U.K. lawmakers approved plans to introduce medically assisted suicide for terminally ill patients in England and Wales.`\
+https://nytimes.com/video/world/europe/100000010240521/london-uk-medically-assisted-dying.html
+
 **Yankees' Luke Weaver returns: What it means for Devin Williams and the closer role**\
 `Weaver returns after missing nearly three weeks with a hamstring strain. But will he resume his role as the Yankees' closer?`\
 https://nytimes.com/athletic/6440563/2025/06/20/luke-weaver-yankees-return/
