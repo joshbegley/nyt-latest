@@ -1,3 +1,11 @@
+**Supreme Court Won’t Fast-Track Tariffs Challenge**\
+`In an unusual request, two toy manufacturers had asked the court to greatly expedite their case.`\
+https://nytimes.com/2025/06/20/us/politics/supreme-court-tariffs-challenge.html
+
+**Virginia Man Convicted in Attempted Church Shooting Gets 25 Years**\
+`The man, who was convicted in March, was armed when he was arrested during a church service in Haymarket, Va., in 2023.`\
+https://nytimes.com/2025/06/20/us/virginia-man-hate-crime-sentenced.html
+
 **Map: 5.1-Magnitude Earthquake Strikes Iran**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/20/world/middleeast/earthquake-iran-tracker.html

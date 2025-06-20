@@ -1,3 +1,15 @@
+**Judge Blocks a Trump Effort to Prevent International Students at Harvard**\
+`The decision came after a hearing where a lawyer for Harvard accused the Trump administration of McCarthy-like tactics and irregular and improper treatment.`\
+https://nytimes.com/2025/06/20/us/international-students-harvard-preliminary-injunction.html
+
+**Hedge fund founder Trip Miller says he has also made a bid to buy Rays**\
+`Miller said he has put together a group that made an all-cash offer to buy the Rays, with hopes of buying and keeping them in Florida.`\
+https://nytimes.com/athletic/6440697/2025/06/20/tampa-bay-rays-buyer-trip-miller-sternberg/
+
+**Boca Juniors pair Herrera, Figal handed four-match Club World Cup bans**\
+`Both were sent off in their opening game of the Club World Cup against Benfica on Monday.`\
+https://nytimes.com/athletic/6437202/2025/06/20/boca-juniors-herrera-figal-club-world-cup-bans/
+
 **Supreme Court Won’t Fast-Track Tariffs Challenge**\
 `In an unusual request, two toy manufacturers had asked the court to greatly expedite their case.`\
 https://nytimes.com/2025/06/20/us/politics/supreme-court-tariffs-challenge.html
@@ -25,16 +37,4 @@ https://nytimes.com/card/2025/06/20/smarter-living/wirecutter/our-favorite-thing
 **Community leaders call on Dodgers to 'take a public stand' against raids**\
 `On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium seeking to process detainees.`\
 https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
-
-**U.K. Lawmakers Approve Plans for Medically Assisted Dying**\
-`Following months of debate, U.K. lawmakers approved plans to introduce medically assisted suicide for terminally ill patients in England and Wales.`\
-https://nytimes.com/video/world/europe/100000010240521/london-uk-medically-assisted-dying.html
-
-**Yankees' Luke Weaver returns: What it means for Devin Williams and the closer role**\
-`Weaver returns after missing nearly three weeks with a hamstring strain. But will he resume his role as the Yankees' closer?`\
-https://nytimes.com/athletic/6440563/2025/06/20/luke-weaver-yankees-return/
-
-**A timeline of the Lakers' success (and challenges) under Buss family leadership**\
-`With the Lakers ownership changing hands, we dive into the biggest moments in the team's history under the Buss family. `\
-https://nytimes.com/athletic/6438270/2025/06/20/lakers-timeline-buss-family-sale-nba/
 
