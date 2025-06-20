@@ -1,3 +1,11 @@
+**Oilers' Stan Bowman and Kris Knoblauch on Connor McDavid extension, goaltending and more**\
+`The five most important things Bowman and Knoblauch said in their end-of-season news conference and what they mean for the Oilers.`\
+https://nytimes.com/athletic/6441105/2025/06/20/oilers-stan-bowman-kris-knoblauch-connor-mcdavid-extension/
+
+**Bryce Harper nearing return, says wrist injury won't require surgery**\
+`Harper took 20 swings off a tee on Friday: "It felt better than I thought it would," Harper said. "So I'm happy about that."`\
+https://nytimes.com/athletic/6441157/2025/06/20/phillies-bryce-harper-injury-return/
+
 **TikTok’s Owner Wanted to Publish Books. Not Anymore.**\
 `8th Note Press informed writers and agents that it is abruptly shutting down and returning publication rights to authors.`\
 https://nytimes.com/2025/06/20/books/review/bytedance-tiktok-publisher-shuts-down.html
