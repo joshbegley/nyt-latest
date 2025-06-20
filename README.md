@@ -1,3 +1,7 @@
+**Arsenal are finalising a deal to sign Zubimendi from Real Sociedad.**\
+`The Spain international, 26, has a €60million (£51.7m; $63.4m) release clause in his current contract.`\
+https://nytimes.com/athletic/6353153/2025/06/20/arsenal-transfer-martin-zubimendi/
+
 **Man City have been busy this summer, but still aren't favoured for any major trophies**\
 `Man City had a busy start to the summer and are showing off some of the new pieces at the Club World Cup. Will that translate to trophies?`\
 https://nytimes.com/athletic/6438082/2025/06/20/manchester-city-odds-club-world-cup-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/20/world/israel-iran-trump
 **Iran’s Foreign Minister to Meet With European Counterparts Amid War Fears**\
 `The meetings with the top diplomats from Britain, France and Germany are viewed as a last-ditch effort to avoid a dangerous escalation in the conflict between Iran and Israel.`\
 https://nytimes.com/2025/06/20/world/europe/iran-foreign-minister-war-talks-europe-nuclear.html
-
-**Jimmy Kimmel Isn’t Shocked by Trump’s Silence on Juneteenth**\
-`Kimmel imagined the Trump base’s reaction had the president acknowledged the holiday: “We’re the ones who stopped enslaving — they should have a holiday for us!”`\
-https://nytimes.com/2025/06/20/arts/television/jimmy-kimmel-trump-juneteenth.html
 
