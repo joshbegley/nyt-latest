@@ -1,3 +1,7 @@
+**Word of the Day: pliable**\
+`This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/20/learning/word-of-the-day-pliable.html
+
 **Dodgers, Padres benches clear, both managers ejected in NL West clash**\
 `It's the second such incident between the two teams during the four-game series. `\
 https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/

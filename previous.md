@@ -1,3 +1,7 @@
+**Word of the Day: pliable**\
+`This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/20/learning/word-of-the-day-pliable.html
+
 **Dodgers, Padres benches clear, both managers ejected in NL West clash**\
 `It's the second such incident between the two teams during the four-game series. `\
 https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6435066/2025/06/20/bernardo-silva-manchester-city-c
 **Who are Leicester's returning loanees and could any be first-team solutions for them next season?**\
 `A look at whether any players borrowed by other clubs in 2024-25 are likely to step up for Ruud van Nistelrooy in the Championship`\
 https://nytimes.com/athletic/6421301/2025/06/20/who-are-leicesters-returning-loanees-and-could-any-of-them-feature-next-season/
-
-**Why have Brighton signed two very similar Greek strikers?**\
-`A look at how Charalampos Kostoulas and Stefanos Tzimas will fit into Fabian Hurzeler's plans for next season`\
-https://nytimes.com/athletic/6420918/2025/06/20/brighton-greek-strikers-transfer/
 
