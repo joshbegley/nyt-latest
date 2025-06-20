@@ -1,3 +1,7 @@
+**NBA free agency 2025: LeBron highlights thin power forward class, but is he going anywhere?**\
+`At 40, James is one of only 14 players whom BORD$ projects as being worth at least $52 million for the coming season.`\
+https://nytimes.com/athletic/6433197/2025/06/20/nba-free-agency-2025-power-forward-market/
+
 **Arsenal are finalising a deal to sign Zubimendi from Real Sociedad**\
 `The Spain international, 26, has a €60million (£51.7m; $63.4m) release clause in his current contract.`\
 https://nytimes.com/athletic/6353153/2025/06/20/arsenal-transfer-martin-zubimendi/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/20/world/israel-iran-trump/heres-the-latest
 **Live Updates: Europe Pushes Diplomacy as Trump Delays Iran War Decision**\
 `Iran’s foreign minister is to meet his European counterparts Friday. President Trump said he would give diplomacy a chance, dashing Israeli hopes for immediate U.S. involvement.`\
 https://nytimes.com/live/2025/06/20/world/israel-iran-trump
-
-**Iran’s Foreign Minister to Meet With European Counterparts Amid War Fears**\
-`The meetings with the top diplomats from Britain, France and Germany are viewed as a last-ditch effort to avoid a dangerous escalation in the conflict between Iran and Israel.`\
-https://nytimes.com/2025/06/20/world/europe/iran-foreign-minister-war-talks-europe-nuclear.html
 
