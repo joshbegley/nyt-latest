@@ -1,3 +1,11 @@
+**Florida Approves Plan to Help Billionaires Export Their Sewage**\
+`Gov. Ron DeSantis signed a bill to help Indian Creek Village, home to the likes of Jeff Bezos and Jared Kushner, avoid paying a neighboring town millions to allow transport of its sewage under its streets.`\
+https://nytimes.com/2025/06/20/us/indian-creek-sewage-desantis.html
+
+**What to Know About the Wedding of Jeff Bezos and Lauren Sánchez**\
+`The second marriage for both is taking place in Venice, Italy, under a shroud of secrecy and amid a swarm of speculation.`\
+https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-wedding.html
+
 **Pilot Killed in Plane Crash Had Lifted Wheel to Dodge a Turtle, N.T.S.B. Says**\
 `One other person on board was killed in the June 3 crash in North Carolina and another passenger was severely injured.`\
 https://nytimes.com/2025/06/20/us/turtle-plane-crash-north-carolina.html
@@ -20,7 +28,7 @@ https://nytimes.com/video/world/europe/100000010241132/putin-russia-ukraine-econ
 
 **Louis Diaz, Undercover Agent Who Busted a Drug Kingpin, Dies at 79**\
 `He posed as a renegade mobster dealing drugs and laundering cash to help topple Nicky Barnes, who as “Mr. Untouchable” ran a formidable Harlem heroin ring.`\
-https://nytimes.com/2025/06/20/nyregion/luis-diaz-dead.html
+https://nytimes.com/2025/06/20/nyregion/louis-diaz-dead.html
 
 **Insurers Pledge to Ease Controversial Prior Approvals for Medical Care**\
 `Major companies had faced mounting pressure to stop denying or stalling authorization of coverage for treatments and prescriptions.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/health/health-insurance-prior-authorization.html
 **Benfica 6 Auckland City 0: Lage's patience tested as underdogs dig deep**\
 `Benfica recorded their first win of the Club World Cup on Friday after a frustrating first half and a lengthy weather-enforced delay`\
 https://nytimes.com/athletic/6439858/2025/06/20/benfica-6-auckland-city-0/
-
-**Mapa: un terremoto de magnitud 5,1 sacude Irán**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://nytimes.com/interactive/2025/06/20/espanol/terremoto-iran.html
-
-**Benfica-Auckland City Club World Cup game endures over two-hour weather delay**\
-`The fixture was the latest match at this summer's tournament to be delayed due to the weather conditions`\
-https://nytimes.com/athletic/6440799/2025/06/20/benfica-aukland-city-club-world-cup-weather-delay/
 
