@@ -1,3 +1,11 @@
+**A Doctor Posted Video of Their Decapitated Baby. They Were Awarded $2.5 Million.**\
+`A Georgia couple hired a pathologist to do an autopsy after their first child died during childbirth. They accused him of posting images of the baby on Instagram without their consent.`\
+https://nytimes.com/2025/06/20/us/georgia-decapitated-baby-lawsuit.html
+
+**People With Severe Diabetes Are Cured in Small Trial of New Drug**\
+`Most in a small group of patients receiving a stem cell-based infusion no longer needed insulin, but the drug may not suit those with more manageable type 1 diabetes.`\
+https://nytimes.com/2025/06/20/health/diabetes-cure-insulin-stem-cell.html
+
 **Rafael Devers on Red Sox tenure: 'I do feel that I have earned some respect'**\
 `Devers discussed why he didn't play first base for Boston as he prepared to face his old team for the first time since a stunning trade.`\
 https://nytimes.com/athletic/6441139/2025/06/20/rafael-devers-red-sox-first-base-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6441088/2025/06/20/enzo-maresca-nicolas-jackson-red
 **‘Dead Outlaw’ Musical to Close After Disappointing Run on Broadway**\
 `The show was shut out at the Tonys after being nominated for seven awards, including best musical.`\
 https://nytimes.com/2025/06/20/theater/dead-outlaw-broadway-closing.html
-
-**Angels manager Ron Washington out indefinitely due to health concern**\
-`Angels bench coach Ray Montgomery will manage the team Friday night and moving forward in place of Washington.`\
-https://nytimes.com/athletic/6441109/2025/06/20/angels-ron-washington-health-concern-absence/
-
-**Anne Burrell’s Death Is Under Investigation as a Possible Drug Overdose**\
-`The city’s medical examiner has not determined a cause, but an internal police document says the TV chef was found surrounded by pills.`\
-https://nytimes.com/2025/06/20/dining/anne-burrell-overdose-death-investigation.html
 
