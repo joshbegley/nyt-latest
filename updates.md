@@ -1,3 +1,11 @@
+**Shilton v Fabio: Who really holds the world record for senior appearances?**\
+`Did the Fluminense goalkeeper just quietly break the former England goalkeeper's record?`\
+https://nytimes.com/athletic/6434849/2025/06/20/fabio-shilton-world-record-appearances/
+
+**The Club World Cup Scout, Part 1: Elias Montiel – a versatile midfielder who imposes himself on games**\
+`The first in our series analysing the rising stars of the Club World Cup looks at a teenage talent with Mexican side Pachuca`\
+https://nytimes.com/athletic/6437762/2025/06/20/the-club-world-cup-scout-elias-montiel/
+
 **UEFA European Under-21 Championship: Five players who impressed in the group stage**\
 `This tournament is invariably showcases the best up-and-coming talent in European football — the 2025 edition is no different `\
 https://nytimes.com/athletic/6434607/2025/06/20/u21-euros-five-players-to-watch/
