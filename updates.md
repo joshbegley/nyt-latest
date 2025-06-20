@@ -1,3 +1,7 @@
+**‘How to Train Your Dragon’ | Anatomy of a Scene**\
+`Dean DeBlois narrates a sequence from the live-action film featuring Mason Thames.`\
+https://nytimes.com/video/movies/100000010233829/how-to-train-your-dragon-scene.html
+
 **NBA free agency 2025: LeBron highlights thin power forward class, but is he going anywhere?**\
 `At 40, James is one of only 14 players whom BORD$ projects as being worth at least $52 million for the coming season.`\
 https://nytimes.com/athletic/6433197/2025/06/20/nba-free-agency-2025-power-forward-market/
