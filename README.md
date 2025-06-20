@@ -1,3 +1,7 @@
+**Mapa: un terremoto de magnitud 5,1 sacude Irán**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://nytimes.com/interactive/2025/06/20/espanol/terremoto-iran.html
+
 **Flamengo 3 Chelsea 1 - Jackson sent off as Maresca's team implode at Club World Cup**\
 `Analysis of Flamengo's thrilling win over Chelsea at the Club World Cup`\
 https://nytimes.com/athletic/6427546/2025/06/20/flamengo-chelsea-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/20/world/middleeast/earthquake-iran-trac
 **India's Next Gen: Shubman Gill and Yashasvi Jaiswal show their time is now**\
 `The young pair batted beautifully at Headingley and are ready to take up the mantle after the retirements of Rohit Sharma and Virat Kohli`\
 https://nytimes.com/athletic/6440211/2025/06/20/india-jaiswal-gill-sharma-kohli/
-
-**WNBA files trademarks for the name 'Portland Fire' and stylized 'P' logo**\
-`The league’s expansion to Portland was announced in September 2024, and the team will begin play in 2026 alongside the Toronto Tempo.`\
-https://nytimes.com/athletic/6440761/2025/06/20/wnba-portland-fire-trademark-logo/
 
