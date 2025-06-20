@@ -1,3 +1,7 @@
+**Seattle 1 Atlético Madrid 3: MLS side on verge of Club World Cup exit**\
+`Atlético Madrid rebounded from humiliation against PSG, while Seattle suffered another home setback despite a spirited effort.`\
+https://nytimes.com/athletic/6438888/2025/06/19/seattle-sounders-atletico-madrid-club-world-cup-highlights/
+
 **Cubs notes: Pete Crow-Armstrong fastest in team history to reach 20-20 mark**\
 `It took Crow-Armstrong 73 games to get to 20 home runs and 20 stolen bases, topping Sammy Sosa, who needed 96 games to get there in 1994.`\
 https://nytimes.com/athletic/6439000/2025/06/19/cubs-notes-pete-crow-armstrong-fastest-20-20-mark/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/19/us/politics/juneteenth-white-house-slavery.html
 **There's a 'good chance' Frankie Montas joins Mets' rotation next week**\
 `Montas allowed five earned runs in five innings for Triple-A Syracuse on June 18.`\
 https://nytimes.com/athletic/6438974/2025/06/19/ny-mets-frankie-montas-rotation-return/
-
-**Police Investigate Threats to Mamdani in Mayoral Race’s Final Days**\
-`Voice mail messages promising violence against Zohran Mamdani, a progressive Democrat, came as attacks on politicians, judges and other government officials have skyrocketed.`\
-https://nytimes.com/2025/06/19/nyregion/zohran-mamdani-threats-nypd-investigation.html
 
