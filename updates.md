@@ -1,3 +1,15 @@
+**Terry Louise Fisher, a Creator of ‘L.A. Law,’ Dies at 79**\
+`She channeled her experiences — and frustrations — as a Los Angeles prosecutor into an award-winning career as a television writer and producer.`\
+https://nytimes.com/2025/06/20/arts/television/terry-louise-fisher-dead.html
+
+**Penguins hire Nick Bonino, Todd Nelson as assistants, retain goalie coach Andy Chiodo**\
+`New head coach Dan Muse's staff addresses many of the team's perceived weaknesses.`\
+https://nytimes.com/athletic/6440566/2025/06/20/penguins-nick-bonino-todd-nelson-assistant-coach/
+
+**Mahmoud Khalil Must Be Released on Bail, Federal Judge Orders**\
+`Mr. Khalil, a Columbia graduate and legal permanent resident, has been held in Louisiana for over three months. The judge found reason to believe it was retaliation for his pro-Palestinian speech.`\
+https://nytimes.com/2025/06/20/nyregion/mahmoud-khalil-release-order.html
+
 **Inside Wirtz's Liverpool deal: Why rivals missed out, Slot's role and falling for Kirkby**\
 `The full story of how Anfield's powerbrokers secured a record-breaking deal for the German playmaker`\
 https://nytimes.com/athletic/6434830/2025/06/20/florian-wirtz-liverpool-transfer-inside-story/
