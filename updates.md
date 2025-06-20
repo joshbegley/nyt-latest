@@ -1,3 +1,11 @@
+**Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
+`Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver`\
+https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/
+
+**Medically Assisted Dying Moves Closer to Legalization in England and Wales**\
+`British lawmakers on Friday confirmed their support for assisted suicide for some terminally ill people, after months of scrutiny that followed an initial vote last year.`\
+https://nytimes.com/2025/06/20/world/europe/assisted-dying-vote-uk.html
+
 **Assisted Dying Moves Closer to Becoming Law in England and Wales After Key Vote**\
 `British lawmakers on Friday confirmed their support for assisted suicide for some terminally ill people, after months of scrutiny that followed an initial vote last year.`\
 https://nytimes.com/2025/06/20/world/europe/assisted-dying-vote-uk.html

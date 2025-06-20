@@ -1,4 +1,8 @@
-**Assisted Dying Moves Closer to Becoming Law in England and Wales After Key Vote**\
+**Kevin Durant invests in PSG, to consult on potential expansion into basketball**\
+`Sources told The Athletic that PSG's plans relate to NBA Europe, which has been developed by commissioner Adam Silver`\
+https://nytimes.com/athletic/6439888/2025/06/20/kevin-durant-psg-nba-euroleague/
+
+**Medically Assisted Dying Moves Closer to Legalization in England and Wales**\
 `British lawmakers on Friday confirmed their support for assisted suicide for some terminally ill people, after months of scrutiny that followed an initial vote last year.`\
 https://nytimes.com/2025/06/20/world/europe/assisted-dying-vote-uk.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/style/jeff-bezos-lauren-sanchez-second-weddings.h
 **Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 27 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
 https://nytimes.com/2025/06/20/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
-
-**‘Prewar Eva’ Has Her Finger on the Pulse of the Hamptons**\
-`Eva Alt, a real estate agent who goes by “Prewar Eva” on Instagram, says the bland Hamptons McMansions of the past two decades are on their way out.`\
-https://nytimes.com/2025/06/20/realestate/prewar-eva-alt-hamptons-ny-houses.html
 
