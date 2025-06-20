@@ -1,4 +1,4 @@
-**Dodgers, Padres benches clear in series finale, both managers ejected**\
+**Dodgers, Padres benches clear, both managers ejected in NL West clash**\
 `It's the second such incident between the two teams during the four-game series. `\
 https://nytimes.com/athletic/6439515/2025/06/20/dodgers-padres-benches-clear/
 
