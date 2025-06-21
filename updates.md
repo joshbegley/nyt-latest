@@ -1,3 +1,11 @@
+**Season Opener**\
+`It’s the first full day of summer. Make sure you don’t miss a minute of it.`\
+https://nytimes.com/2025/06/21/briefing/season-opener.html
+
+**Yankees make surprising plan for Anthony Volpe amid brutal hitless streak**\
+`The Yankees will wait until Sunday to give Volpe off, even though he'll go into Saturday hitless in his last 24 at-bats.`\
+https://nytimes.com/athletic/6441631/2025/06/21/yankees-anthony-volpe-plan-hitless-streak/
+
 **The counterintuitive strategy the Pacers used to shut down the Thunder's stars**\
 `The Pacers' defense threw a curveball in Game 6, and the Thunder weren't ready for it. Will they be in Game 7?`\
 https://nytimes.com/athletic/6441339/2025/06/21/pacers-defense-thunder-nba-finals-game-7/

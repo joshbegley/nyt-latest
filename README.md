@@ -1,3 +1,7 @@
+**Trump Claims There’s Waste and Abuse in U.S.A.I.D. Here It Is.**\
+`These boxes of drugs could change millions of lives. Instead, they’re stuck in this warehouse.`\
+https://nytimes.com/video/opinion/100000010226775/trump-claims-theres-waste-and-abuse-in-usaid-here-it-is.html
+
 **Season Opener**\
 `It’s the first full day of summer. Make sure you don’t miss a minute of it.`\
 https://nytimes.com/2025/06/21/briefing/season-opener.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6434063/2025/06/21/nhl-overpriced-contracts-traded-
 **Brandon Marsh is 'locked in right now' for the Phillies: 'It's the best feeling'**\
 `After struggling to start the season, Marsh is "hitting the ball the other way really, really well," Trea Turner said. `\
 https://nytimes.com/athletic/6441605/2025/06/21/phillies-mets-brandon-marsh-locked-in/
-
-**Should Your Home Feel Like a Hospital? Or a Theater?**\
-`A ruling on a dispute over lighting temperature.`\
-https://nytimes.com/interactive/2025/06/21/magazine/lighting-hospital-theater-hodgman-quiz.html
 
