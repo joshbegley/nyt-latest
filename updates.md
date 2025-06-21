@@ -1,3 +1,11 @@
+**Haji Wright leaves USMNT Gold Cup squad with Achilles injury**\
+`The Coventry forward will play no further part in the tournament`\
+https://nytimes.com/athletic/6440479/2025/06/21/usmnt-haji-wright-injury-news/
+
+**Wembanyama opens up on kung fu training, loss of Popovich as coach**\
+`Wembanyama used a trip to the Shaolin Temple to work on his range of movement, which included kung fu training.`\
+https://nytimes.com/athletic/6442336/2025/06/21/victor-wembanyama-kung-fu-monks/
+
 **Yankees pull Clarke Schmidt after 7 no-hit innings, hear boos**\
 `JT Brubaker allowed a hit to Orioles catcher Gary Sánchez after replacing Schmidt in the eighth inning.`\
 https://nytimes.com/athletic/6442306/2025/06/21/yankees-clarke-schmidt-no-hitter-seven-innings/

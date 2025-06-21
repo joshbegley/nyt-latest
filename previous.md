@@ -1,3 +1,11 @@
+**Haji Wright leaves USMNT Gold Cup squad with Achilles injury**\
+`The Coventry forward will play no further part in the tournament`\
+https://nytimes.com/athletic/6440479/2025/06/21/usmnt-haji-wright-injury-news/
+
+**Wembanyama opens up on kung fu training, loss of Popovich as coach**\
+`Wembanyama used a trip to the Shaolin Temple to work on his range of movement, which included kung fu training.`\
+https://nytimes.com/athletic/6442336/2025/06/21/victor-wembanyama-kung-fu-monks/
+
 **Yankees pull Clarke Schmidt after 7 no-hit innings, hear boos**\
 `JT Brubaker allowed a hit to Orioles catcher Gary Sánchez after replacing Schmidt in the eighth inning.`\
 https://nytimes.com/athletic/6442306/2025/06/21/yankees-clarke-schmidt-no-hitter-seven-innings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6442198/2025/06/21/braves-chris-sale-injury/
 **Iranians Find Pockets of Connection Amid Internet Blackout**\
 `Iranians managed to gain some unreliable connection to the internet on Friday after a near-total blackout that lasted four days.`\
 https://nytimes.com/2025/06/21/world/middleeast/iran-internet-blackout.html
-
-**The Briefing: Sundowns 3 Dortmund 4 – Did Bellingham impress on his full debut?**\
-`Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
-https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/
-
-**LeBrun rumblings: Who was in on Toews, plus latest on Marner, McDavid, Tavares, Robertson and more**\
-`Trade and free-agency news from around the league: Marner's considering two-year deals, McDavid's in no rush and Tavares-Leafs isn't close.`\
-https://nytimes.com/athletic/6442128/2025/06/21/nhl-free-agency-rumblings-marner-mcdavid-tavares/
 
