@@ -1,3 +1,7 @@
+**Andrew Schulz, ‘Podcast Bro,’ Might Be America’s Foremost Political Journalist**\
+`The comedian and host has a huge audience and many thoughts on what podcasters like him are responsible for now.`\
+https://nytimes.com/2025/06/21/magazine/andrew-schulz-interview.html
+
 **As Iran and Israel Battle, the Rest of the Mideast Fears What’s Next**\
 `The fight between two well-armed regional powers has their neighbors worried about the conflict spreading, a concern worsened by the prospect of U.S. involvement.`\
 https://nytimes.com/2025/06/21/world/middleeast/iran-israel-regional-consequences.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/realestate/renting-versus-buying-seniors.html
 **Fifty Years After ‘Jaws,’ Shark Science Is Still Surfacing**\
 `The film’s release in 1975 haunted the reputation of sharks worldwide. But a generation of scientists helped to turn the tide.`\
 https://nytimes.com/2025/06/21/science/jaws-sharks-research.html
-
-**Trump Says He Wants to Fund More Trade Schools. Just Not These.**\
-`The Job Corps program has long been the subject of debate, but it is now also a point of contention in the administration’s efforts to pull back the social safety net.`\
-https://nytimes.com/2025/06/21/business/job-corps-trump-trade-schools.html
 
