@@ -1,4 +1,24 @@
-**Cardinals notebook: What we know about Iván Herrera's hamstring, Michael McGreevy's next start**\
+**A Heat Wave Leaves Britons Looking for Ways to Stay Cool**\
+`As high temperatures have become more common in recent years, some people are adjusting, including by investing in air-conditioners.`\
+https://nytimes.com/2025/06/21/world/europe/uk-heat-wave-britain.html
+
+**How South Korea Became a Cultural Powerhouse, and What’s Next**\
+`With BTS poised to reunite, “Squid Game” returning and a Broadway show winning awards, the Korean cultural wave keeps on rolling.`\
+https://nytimes.com/2025/06/21/world/asia/south-korea-kpop-culture.html
+
+**BTS Is Back Together. Is It Still the King of K-Pop?**\
+`Suga is the last member of the wildly popular band to complete his national service. After more than two years apart, the challenge is to rekindle the magic.`\
+https://nytimes.com/2025/06/21/world/asia/bts-is-back-together-is-it-still-the-king-of-k-pop.html
+
+**Connections: Sports Edition Coach: Hints for June 21, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6441590/2025/06/21/connections-sports-edition-hints-for-june-21-2025/
+
+**Quote of the Day: Inside the D.N.C., Chaos and a Shortage of Cash**\
+`Quotation of the Day for Saturday, June 21, 2025.`\
+https://nytimes.com/2025/06/20/pageoneplus/quote-of-the-day-inside-the-dnc-chaos-and-a-shortage-of-cash.html
+
+**Cardinals notebook: What we know about Iván Herrera's hamstring, Michael McGreevy**\
 `Herrera, St. Louis' most impactful hitter, could miss up to six weeks with a Grade 2 hamstring strain.`\
 https://nytimes.com/athletic/6441211/2025/06/20/cardinals-ivan-herrera-hamstring-michael-mcgreevy-start/
 
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/harvard-federal-funding-trump.html
 **The Efforts to Erase Black History**\
 `President Trump’s executive orders have sought to reframe the history of race and culture in America. Erica L. Green, a White House correspondent for The New York Times, describes how the orders have led to the erasing of history of the Black experience.`\
 https://nytimes.com/video/us/politics/100000010093139/the-efforts-to-erase-black-history.html
-
-**Vance Blames L.A. Violence on California Democrats and Disparages Padilla**\
-`Vice President JD Vance said during a Los Angeles stop that Gov. Gavin Newsom and Mayor Karen Bass had encouraged protesters to engage in violence. He also criticized Senator Alex Padilla and called him by the wrong name.`\
-https://nytimes.com/2025/06/20/us/politics/vance-padilla-newsom-bass.html
-
-**Was Overrun**\
-`Christina Iverson and Doug Peterson’s second Saturday collaboration races at us with blistering speed.`\
-https://nytimes.com/2025/06/20/crosswords/daily-puzzle-2025-06-21.html
-
-**Padres' Mike Shildt has 'no regrets' on benches-clearing confrontation with Dodgers**\
-`Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
-https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/
-
-**As N.Y.C. Mayoral Primary Nears, Money Talks as Mamdani Walks**\
-`Zohran Mamdani, who is second to Andrew M. Cuomo in the polls, was rebuffed in his bid to raise his spending cap. It did not stop his seven-mile trek down Manhattan.`\
-https://nytimes.com/2025/06/20/nyregion/mamdani-cuomo-money-mayor.html
-
-**Dodgers Pledge Aid to L.A. Families Affected by Trump Crackdown**\
-`Pressed by Angelenos, including a large Latino fan base, the Dodgers promised support but stopped short of denouncing ICE raids that have outraged much of the metropolis.`\
-https://nytimes.com/2025/06/20/us/politics/la-dodgers-ice-raids.html
 
