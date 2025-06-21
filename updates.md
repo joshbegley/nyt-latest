@@ -1,3 +1,7 @@
+**Yankees pull Clarke Schmidt after 7 no-hit innings, hear boos**\
+`JT Brubaker allowed a hit to Orioles catcher Gary Sánchez after replacing Schmidt in the eighth inning.`\
+https://nytimes.com/athletic/6442306/2025/06/21/yankees-clarke-schmidt-no-hitter-seven-innings/
+
 **Jasprit Bumrah: England witnesses a rare talent at the peak of his powers**\
 `What is it like to face one of the all-time great bowlers? The Athletic speaks to some cricketers who have`\
 https://nytimes.com/athletic/6442244/2025/06/21/england-india-jasprit-bumrah-technique/

@@ -1,3 +1,7 @@
+**Yankees pull Clarke Schmidt after 7 no-hit innings, hear boos**\
+`JT Brubaker allowed a hit to Orioles catcher Gary Sánchez after replacing Schmidt in the eighth inning.`\
+https://nytimes.com/athletic/6442306/2025/06/21/yankees-clarke-schmidt-no-hitter-seven-innings/
+
 **Jasprit Bumrah: England witnesses a rare talent at the peak of his powers**\
 `What is it like to face one of the all-time great bowlers? The Athletic speaks to some cricketers who have`\
 https://nytimes.com/athletic/6442244/2025/06/21/england-india-jasprit-bumrah-technique/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortm
 **LeBrun rumblings: Who was in on Toews, plus latest on Marner, McDavid, Tavares, Robertson and more**\
 `Trade and free-agency news from around the league: Marner's considering two-year deals, McDavid's in no rush and Tavares-Leafs isn't close.`\
 https://nytimes.com/athletic/6442128/2025/06/21/nhl-free-agency-rumblings-marner-mcdavid-tavares/
-
-**Windy Conditions Fan Wildfires in the West**\
-`The Forsyth fire in Utah threatened a small community in the state’s southwest corner. Farther west, the Conner fire burned rapidly near Lake Tahoe.`\
-https://nytimes.com/2025/06/21/weather/windy-conditions-fan-wildfires-in-the-west.html
 
