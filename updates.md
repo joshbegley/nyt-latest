@@ -1,3 +1,11 @@
+**As N.Y.C. Mayoral Primary Nears, Money Talks as Mamdani Walks**\
+`Zohran Mamdani, who is second to Andrew M. Cuomo in the polls, was rebuffed in his bid to raise his spending cap. It did not stop his seven-mile trek down Manhattan.`\
+https://nytimes.com/2025/06/20/nyregion/mamdani-cuomo-money-mayor.html
+
+**Suspect in Minnesota Attacks Was a Doomsday Prepper, Investigator Says**\
+`An F.B.I. agent said Vance Boelter left instructions for his wife in the event of a calamity, according to a court document.`\
+https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
+
 **Dodgers Pledge Aid to L.A. Families Affected by Trump Crackdown**\
 `Pressed by Angelenos, including a large Latino fan base, the Dodgers promised support but stopped short of denouncing ICE raids that have outraged much of the metropolis.`\
 https://nytimes.com/2025/06/20/us/politics/la-dodgers-ice-raids.html

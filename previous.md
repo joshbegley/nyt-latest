@@ -1,9 +1,13 @@
+**As N.Y.C. Mayoral Primary Nears, Money Talks as Mamdani Walks**\
+`Zohran Mamdani, who is second to Andrew M. Cuomo in the polls, was rebuffed in his bid to raise his spending cap. It did not stop his seven-mile trek down Manhattan.`\
+https://nytimes.com/2025/06/20/nyregion/mamdani-cuomo-money-mayor.html
+
 **Dodgers Pledge Aid to L.A. Families Affected by Trump Crackdown**\
 `Pressed by Angelenos, including a large Latino fan base, the Dodgers promised support but stopped short of denouncing ICE raids that have outraged much of the metropolis.`\
 https://nytimes.com/2025/06/20/us/politics/la-dodgers-ice-raids.html
 
-**Suspect in Minnesota Attacks Was a Doomsday ‘Prepper,’ Investigator Says**\
-`An F.B.I. agent said Vance Boelter  left instructions for his wife in the event of a calamity, according to a court document.`\
+**Suspect in Minnesota Attacks Was a Doomsday Prepper, Investigator Says**\
+`An F.B.I. agent said Vance Boelter left instructions for his wife in the event of a calamity, according to a court document.`\
 https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
 
 **LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6441301/2025/06/20/giants-justin-verlander-paternit
 **Where the Legal Fight Over the California National Guard Stands**\
 `A volley of court rulings has made the legal path unclear in a case challenging President Trump’s use of troops in Los Angeles. For now, the president has retained control of the state militia.`\
 https://nytimes.com/2025/06/20/us/trump-california-la-national-guard.html
-
-**At a Memorial for Anne Burrell, a Karaoke Tribute to Her Bold Style**\
-`The Food Network chef, who died Tuesday at 55, was remembered in a star-studded service that sent her off with a singalong.`\
-https://nytimes.com/2025/06/20/dining/anne-burrell-memorial-service.html
 

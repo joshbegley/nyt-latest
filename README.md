@@ -1,3 +1,7 @@
+**Padres' Mike Shildt on bench-clearing confrontation with Dodgers: 'I have no regrets'**\
+`Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
+https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/
+
 **As N.Y.C. Mayoral Primary Nears, Money Talks as Mamdani Walks**\
 `Zohran Mamdani, who is second to Andrew M. Cuomo in the polls, was rebuffed in his bid to raise his spending cap. It did not stop his seven-mile trek down Manhattan.`\
 https://nytimes.com/2025/06/20/nyregion/mamdani-cuomo-money-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440589/2025/06/20/notre-dame-joey-obrien-khary-ada
 **Giants' Justin Verlander begins paternity leave, will miss Red Sox series**\
 `The soonest Verlander could return is Tuesday, when the Giants host the Miami Marlins.`\
 https://nytimes.com/athletic/6441301/2025/06/20/giants-justin-verlander-paternity-leave/
-
-**Where the Legal Fight Over the California National Guard Stands**\
-`A volley of court rulings has made the legal path unclear in a case challenging President Trump’s use of troops in Los Angeles. For now, the president has retained control of the state militia.`\
-https://nytimes.com/2025/06/20/us/trump-california-la-national-guard.html
 
