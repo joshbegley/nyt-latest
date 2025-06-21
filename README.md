@@ -6,8 +6,8 @@ https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
 `The 44-year-old was sacked by Swansea in February and just over a year at the Championship club.`\
 https://nytimes.com/athletic/6442015/2025/06/21/luke-williams-airport-swansea/
 
-**B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
-`By Maggie Haberman`\
+**B-2 Bombers Head Across the Pacific as Trump Considers Strike on Iran**\
+`President Trump is scheduled to return to the White House late Saturday afternoon from New Jersey as he weighs whether to join Israel’s efforts to destroy Iran’s nuclear sites.`\
 https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
 
 **Trump Sends Envoy to Belarus, Courting Ties With Russia’s Close Ally**\
