@@ -1,3 +1,16 @@
+**Canadiens hope to escape NHL’s mushy middle. The problem: So does everyone else**\
+`A third of the NHL, including Montreal, is looking to emerge from some rebuilding and take a step toward consistently making the playoffs.`\
+https://nytimes.com/athletic/6440654/2025/06/21/canadiens-offseason-trades-nhl-standings/
+
+**What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
+`What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
+`\
+https://nytimes.com/athletic/6438453/2025/06/21/winnipeg-jets-jonathan-toews-nikolaj-ehlers/
+
+**A.I. Sludge Has Entered the Job Search**\
+`Candidates are frustrated. Employers are overwhelmed. The problem? An untenable pile of applications — many of them generated with the help of A.I. tools.`\
+https://nytimes.com/2025/06/21/business/dealbook/ai-job-applications.html
+
 **Israel says it killed a commander of the Iranian force that oversees proxy militias.**\
 `By Ronen Bergman and Aaron Boxerman`\
 https://nytimes.com/2025/06/21/world/middleeast/israel-iran-commander-killed.html
@@ -26,16 +39,4 @@ https://nytimes.com/video/opinion/100000010240395/trump-is-vulnerable-democrats-
 **The Waste Musk Created**\
 `Aid cuts have reached a level where they undermine our national interest as well as corrode our souls.`\
 https://nytimes.com/2025/06/21/opinion/waste-musk-trump.html
-
-**I Love Finding Birds’ Nests, but What’s in Them Troubles Me**\
-`Birds build nests out of whatever they find. Today, that includes trash.`\
-https://nytimes.com/2025/06/21/opinion/birds-nests-plastic-trash.html
-
-**Pronman and Wheeler debate 2025 NHL Draft: Hagens or Martone? Mrtka or Aitcheson?**\
-`As we draw nearer to draft day, here's this year's edition of Pronman versus Wheeler.`\
-https://nytimes.com/athletic/6428135/2025/06/21/nhl-draft-2025-hagens-martone-mrtka-aitcheson/
-
-**Trump Claims There’s Waste and Abuse in U.S.A.I.D. Here It Is.**\
-`These boxes of drugs could change millions of lives. Instead, they’re stuck in this warehouse.`\
-https://nytimes.com/video/opinion/100000010226775/trump-claims-theres-waste-and-abuse-in-usaid-here-it-is.html
 
