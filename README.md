@@ -1,3 +1,7 @@
+**The Pulse: Why so many Dodgers pitcher injuries?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6441424/2025/06/21/dodgers-pitcher-injuries-the-pulse/
+
 **Canadiens hope to escape NHL’s mushy middle. The problem: So does everyone else**\
 `A third of the NHL, including Montreal, is looking to emerge from some rebuilding and take a step toward consistently making the playoffs.`\
 https://nytimes.com/athletic/6440654/2025/06/21/canadiens-offseason-trades-nhl-standings/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/21/opinion/israel-iran-attack-nuclear-pre-emptive-st
 **Trump Is Vulnerable. Democrats Still Need a Strategy.**\
 `Three Opinion writers on why Trump’s deportations might be backfiring.`\
 https://nytimes.com/video/opinion/100000010240395/trump-is-vulnerable-democrats-still-need-a-strategy.html
-
-**The Waste Musk Created**\
-`Aid cuts have reached a level where they undermine our national interest as well as corrode our souls.`\
-https://nytimes.com/2025/06/21/opinion/waste-musk-trump.html
 
