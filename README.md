@@ -1,3 +1,7 @@
+**Manchester City manager Pep Guardiola open to coaching in South America in future - 'Why not?'**\
+`Pep Guardiola says he is open to managing in South America one day after experiencing the passion of their fans and teams in the opening week of the FIFA Club World Cup.`\
+https://nytimes.com/athletic/6442587/2025/06/21/pep-guardiola-south-america-job/
+
 **Mariners' Cal Raleigh sets multiple MLB records with 30th home run**\
 `The catcher known as "Big Dumper" has hit five more homers through 75 games than any primary catcher in major-league history.`\
 https://nytimes.com/athletic/6442500/2025/06/21/mariners-cal-raleigh-30-home-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-detention-r
 **In Final Push for Mayor, Lander Appears With 2 Cuomo Accusers**\
 `The campaign event by Brad Lander, the New York City comptroller running for mayor, came as Andrew Cuomo, the front-runner, appeared with the mother of a murder victim.`\
 https://nytimes.com/2025/06/21/nyregion/lander-cuomo-women-mayor.html
-
-**England Under-21s into semi-finals of Euros after 3-1 victory over Spain**\
-`England will face the Netherlands in the semi-final on Wednesday.`\
-https://nytimes.com/athletic/6442435/2025/06/21/england-spain-under-21-euros-2025/
 

@@ -34,7 +34,7 @@ https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-detention-r
 `The campaign event by Brad Lander, the New York City comptroller running for mayor, came as Andrew Cuomo, the front-runner, appeared with the mother of a murder victim.`\
 https://nytimes.com/2025/06/21/nyregion/lander-cuomo-women-mayor.html
 
-**England Under-21 into semi-finals of Euros after 3-1 victory over Spain**\
+**England Under-21s into semi-finals of Euros after 3-1 victory over Spain**\
 `England will face the Netherlands in the semi-final on Wednesday.`\
 https://nytimes.com/athletic/6442435/2025/06/21/england-spain-under-21-euros-2025/
 

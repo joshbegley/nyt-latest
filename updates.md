@@ -1,3 +1,7 @@
+**England Under-21s into semi-finals of Euros after 3-1 victory over Spain**\
+`England will face the Netherlands in the semi-final on Wednesday.`\
+https://nytimes.com/athletic/6442435/2025/06/21/england-spain-under-21-euros-2025/
+
 **Mariners' Cal Raleigh sets multiple MLB records with 30th home run**\
 `The catcher known as "Big Dumper" has hit five more homers through 75 games than any primary catcher in major-league history.`\
 https://nytimes.com/athletic/6442500/2025/06/21/mariners-cal-raleigh-30-home-runs/
