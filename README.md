@@ -1,3 +1,7 @@
+**Suspect in Minnesota Attacks Was a Prepper, Investigator Says**\
+`An F.B.I. agent said Vance Boelter  left instructions for his wife in the event of a calamity, according to a court document.`\
+https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
+
 **LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
 `A missed penalty kick at the death sealed LAFC's elimination from the Club World Cup after two matches. Here's more analysis of its defeat`\
 https://nytimes.com/athletic/6441247/2025/06/20/lafc-esperance-tunis-club-world-cup-highlights-bouanga/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/dining/anne-burrell-memorial-service.html
 **Trump and the Great Wait for Israelis and Iranians**\
 `The Times’s Jerusalem bureau chief explains what President Trump’s delay in deciding whether to intervene in the Israel-Iran war means for the people of both countries.`\
 https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-two-weeks.html
-
-**A Doctor Posted Video of Their Decapitated Baby. They Were Awarded $2.5 Million.**\
-`A Georgia couple hired a pathologist to do an autopsy after their first child died during childbirth. They accused him of posting images of the baby on Instagram without their consent.`\
-https://nytimes.com/2025/06/20/us/georgia-decapitated-baby-lawsuit.html
 
