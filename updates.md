@@ -1,3 +1,7 @@
+**Until Saturday: CFB 26 makes life slightly easier**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until-saturday/
+
 **Blackhawks acquire Andre Burakovsky for Joe Veleno in trade with Kraken**\
 `Andre Burakovsky will add some much-needed scoring punch to the Blackhawks lineup. `\
 https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-burakovsky-joe-veleno/
