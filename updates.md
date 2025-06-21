@@ -1,3 +1,11 @@
+**Bayern Munich 2 Boca Juniors 1 - Bayern advance despite great Merentiel goal - Boca must hammer Auckland and hope**\
+`Analysis of the Club World Cup group C match between Bayern Munich and Boca Juniors`\
+https://nytimes.com/athletic/6427749/2025/06/20/bayern-munich-boca-juniors-club-world-cup/
+
+**Harvard and Trump Restart Talks to Potentially End Bitter Dispute**\
+`Details about the discussions emerged after President Trump said the two sides, which have been locked in court battles for weeks, might reach a settlement soon.`\
+https://nytimes.com/2025/06/20/us/politics/harvard-federal-funding-trump.html
+
 **The Efforts to Erase Black History**\
 `President Trump’s executive orders have sought to reframe the history of race and culture in America. Erica L. Green, a White House correspondent for The New York Times, describes how the orders have led to the erasing of history of the Black experience.`\
 https://nytimes.com/video/us/politics/100000010093139/the-efforts-to-erase-black-history.html

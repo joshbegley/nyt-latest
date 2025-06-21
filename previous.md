@@ -1,3 +1,11 @@
+**Bayern Munich 2 Boca Juniors 1 - Bayern advance despite great Merentiel goal - Boca must hammer Auckland and hope**\
+`Analysis of the Club World Cup group C match between Bayern Munich and Boca Juniors`\
+https://nytimes.com/athletic/6427749/2025/06/20/bayern-munich-boca-juniors-club-world-cup/
+
+**Harvard and Trump Restart Talks to Potentially End Bitter Dispute**\
+`Details about the discussions emerged after President Trump said the two sides, which have been locked in court battles for weeks, might reach a settlement soon.`\
+https://nytimes.com/2025/06/20/us/politics/harvard-federal-funding-trump.html
+
 **The Efforts to Erase Black History**\
 `President Trump’s executive orders have sought to reframe the history of race and culture in America. Erica L. Green, a White House correspondent for The New York Times, describes how the orders have led to the erasing of history of the Black experience.`\
 https://nytimes.com/video/us/politics/100000010093139/the-efforts-to-erase-black-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
 **LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
 `A missed penalty kick at the death sealed LAFC's elimination from the Club World Cup after two matches. Here's more analysis of its defeat`\
 https://nytimes.com/athletic/6441247/2025/06/20/lafc-esperance-tunis-club-world-cup-highlights-bouanga/
-
-**An Iran Deal in Two Weeks? Hard to Achieve, Even if Trump Really Wants One.**\
-`Negotiating with Tehran is time-consuming and difficult under the best of circumstances. And it remains unclear whether President Trump’s 14-day clock is more than a way to buy time for military preparations.`\
-https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-deal.html
-
-**How Trump Treats Black History Differently Than Other Parts of America’s Past**\
-`Since taking office in January, President Trump has tried to reframe the country’s past involving racism and discrimination by de-emphasizing that history or at times denying that it happened.`\
-https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.html
 
