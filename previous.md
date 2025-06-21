@@ -1,3 +1,11 @@
+**The Briefing: Inter 2 Urawa Red Diamonds 1 - Lautaro Martinez-led comeback in Seattle eliminates Urawa**\
+`James Horncastle and Mark Carey analyse Saturday's Group E game at Seattle's Lumen Field  `\
+https://nytimes.com/athletic/6427682/2025/06/21/inter-urawa-red-diamonds-analysis-club-world-cup/
+
+**Giants pitcher Sean Hjelle accused of abuse by wife, MLB to investigate**\
+`Hjelle's wife, Caroline, posted a video on TikTok Friday night of herself with the former couple's two sons.`\
+https://nytimes.com/athletic/6442361/2025/06/21/giants-pitcher-abuse-allegations-sean-hjelle-wife/
+
 **Israeli Attacks in Iran Kill Three More Commanders, Israel Says**\
 `The claims by the Israeli military came as aircraft tracker data indicated American B-2 bombers might be moving into position for joining the assault on Iran.`\
 https://nytimes.com/2025/06/21/world/middleeast/israel-iran-war-attack-nuclear.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6441982/2025/06/21/real-madrid-mbappe-club-world-cu
 **Air India C.E.O.’s Comments on Crash Draw Backlash Online**\
 `A video statement by Campbell Wilson, Air India’s chief executive, after the June 12 plane crash was nearly identical to one given five months earlier by the head of American Airlines, after a crash in Washington, D.C.`\
 https://nytimes.com/video/world/asia/100000010242468/air-india-ceo-plane-crash-statements.html
-
-**Pacers have the chance to become misfit champions in Game 7: 'All we have is us'**\
-`Don't tell these Pacers they're on a "Cinderella run." They've been making their own success and can cap things off Sunday in OKC.`\
-https://nytimes.com/athletic/6442156/2025/06/21/nba-finals-game-7-pacers-thunder-siakam-haliburton/
-
-**Braves place Chris Sale on injured list with fractured rib cage**\
-`Sale got injured on a diving play in the ninth inning Wednesday when he made the stop and threw to first base to get Juan Soto.`\
-https://nytimes.com/athletic/6442198/2025/06/21/braves-chris-sale-injury/
 

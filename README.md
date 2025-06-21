@@ -1,8 +1,12 @@
+**Several U.S. B-2 bombers were deployed west across the Pacific.**\
+`The aircraft can carry the bunker-buster bombs that would be necessary to penetrate the Fordo underground nuclear site in Iran.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/several-us-b-2-bombers-were-deployed-west-across-the-pacific
+
 **The Briefing: Inter 2 Urawa Red Diamonds 1 - Lautaro Martinez-led comeback in Seattle eliminates Urawa**\
-`James Horncastle and Mark Carey analyse Saturday's Group E game at Seattle's Lumen Field  `\
+`James Horncastle and Mark Carey analyse Saturday's Group E game at Lumen Field  `\
 https://nytimes.com/athletic/6427682/2025/06/21/inter-urawa-red-diamonds-analysis-club-world-cup/
 
-**Giants pitcher Sean Hjelle accused of abuse by wife, MLB to investigate**\
+**Giants' Sean Hjelle accused of abuse by wife, MLB looking into matter**\
 `Hjelle's wife, Caroline, posted a video on TikTok Friday night of herself with the former couple's two sons.`\
 https://nytimes.com/athletic/6442361/2025/06/21/giants-pitcher-abuse-allegations-sean-hjelle-wife/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/nyregion/mahmoud-khalil-return-to-new-york.html
 **Mbappe to miss Real Madrid's Club World Cup game against Pachuca due to illness**\
 `Dani Carvajal will also not be available for Sunday’s game against the Mexican side but Antonio Rudiger is set to return for Real Madrid.`\
 https://nytimes.com/athletic/6441982/2025/06/21/real-madrid-mbappe-club-world-cup-pachuca-news/
-
-**Air India C.E.O.’s Comments on Crash Draw Backlash Online**\
-`A video statement by Campbell Wilson, Air India’s chief executive, after the June 12 plane crash was nearly identical to one given five months earlier by the head of American Airlines, after a crash in Washington, D.C.`\
-https://nytimes.com/video/world/asia/100000010242468/air-india-ceo-plane-crash-statements.html
 
