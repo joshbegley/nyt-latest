@@ -1,3 +1,11 @@
+**Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
+`A hot-air balloon carrying 21 people fell from the sky in a region in southern Brazil popular with tourists.`\
+https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
+
+**B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
+`By Maggie Haberman`\
+https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
+
 **B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/b2-stealth-bombers-guam
