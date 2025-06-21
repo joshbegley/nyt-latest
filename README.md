@@ -1,3 +1,7 @@
+**Bucks' guard Pat Connaughton exercises player option: Source**\
+`With Connaughton’s decision, the Bucks now have five players on guaranteed contracts for next season.`\
+https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
+
 **Mahmoud Khalil Lands at Newark After Months of Detention**\
 `Mahmoud Khalil, a pro-Palestinian activist detained for his role in protests at Columbia University, returned to the East Coast on bail after 104 days of imprisonment in Louisiana.`\
 https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-lands-at-newark-after-months-of-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/world/israel-iran-maps-tracking/several-us-b-2-bom
 **The Briefing: Inter 2 Urawa Red Diamonds 1 – Lautaro Martinez-led comeback in Seattle eliminates Urawa**\
 `James Horncastle and Mark Carey analyse Saturday's Group E game at Lumen Field  `\
 https://nytimes.com/athletic/6427682/2025/06/21/inter-urawa-red-diamonds-analysis-club-world-cup/
-
-**Giants' Sean Hjelle accused of abuse by wife, MLB looking into matter**\
-`Hjelle's wife, Caroline, posted a video on TikTok Friday night of herself with the former couple's two sons.`\
-https://nytimes.com/athletic/6442361/2025/06/21/giants-pitcher-abuse-allegations-sean-hjelle-wife/
 
