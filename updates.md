@@ -1,3 +1,7 @@
+**Padres' Mike Shildt on bench-clearing confrontation with Dodgers: 'I have no regrets'**\
+`Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
+https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/
+
 **As N.Y.C. Mayoral Primary Nears, Money Talks as Mamdani Walks**\
 `Zohran Mamdani, who is second to Andrew M. Cuomo in the polls, was rebuffed in his bid to raise his spending cap. It did not stop his seven-mile trek down Manhattan.`\
 https://nytimes.com/2025/06/20/nyregion/mamdani-cuomo-money-mayor.html

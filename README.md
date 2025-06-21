@@ -1,4 +1,4 @@
-**Padres' Mike Shildt on bench-clearing confrontation with Dodgers: 'I have no regrets'**\
+**Padres' Mike Shildt has 'no regrets' on bench-clearing confrontation with Dodgers**\
 `Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
 https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/
 
