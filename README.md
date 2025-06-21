@@ -1,3 +1,7 @@
+**Dr. Demento, Song Satirist and D.J. Who Promoted Weird Al, Is Retiring**\
+`Barry Hansen, mostly known by his D.J. name, said he’d leave the airwaves after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
+https://nytimes.com/2025/06/21/arts/music/dr-demento-radio-dj-retires.html
+
 **Nathan Silver, Who Chronicled a Vanished New York, Dies at 89**\
 `An architect, he wrote in his book “Lost New York” about the many buildings that were destroyed before passage of the city’s landmarks preservation law.`\
 https://nytimes.com/2025/06/21/nyregion/nathan-silver-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-bu
 **Summer Is for Strawberry Shortcake**\
 `And this classic recipe, with its easy, buttery biscuits and simply macerated berries, is the one to make over and over.`\
 https://nytimes.com/2025/06/21/dining/easy-strawberry-shortcake-recipe-and-more-summer-desserts.html
-
-**Right-Wing Violence Is Not a Fringe Issue**\
-`Let’s not confuse ourselves about where the primary responsibility lies.`\
-https://nytimes.com/2025/06/21/opinion/political-violence-right-wing.html
 
