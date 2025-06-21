@@ -1,3 +1,7 @@
+**The Efforts to Erase Black History**\
+`President Trump’s executive orders have sought to reframe the history of race and culture in America. Erica L. Green, a White House correspondent for The New York Times, describes how the orders have led to the erasing of history of the Black experience.`\
+https://nytimes.com/video/us/politics/100000010093139/the-efforts-to-erase-black-history.html
+
 **Vance Blames L.A. Violence on California Democrats and Disparages Padilla**\
 `Vice President JD Vance said during a Los Angeles stop that Gov. Gavin Newsom and Mayor Karen Bass had encouraged protesters to engage in violence. He also criticized Senator Alex Padilla and called him by the wrong name.`\
 https://nytimes.com/2025/06/20/us/politics/vance-padilla-newsom-bass.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-deal.html
 **How Trump Treats Black History Differently Than Other Parts of America’s Past**\
 `Since taking office in January, President Trump has tried to reframe the country’s past involving racism and discrimination by de-emphasizing that history or at times denying that it happened.`\
 https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.html
-
-**An Iranian strike in downtown Haifa damaged at least two places of worship.**\
-`Shockwaves from the attack in Israel’s third-largest city damaged a mosque and a church.`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/an-iranian-strike-in-downtown-haifa-damaged-at-least-two-places-of-worship
 
