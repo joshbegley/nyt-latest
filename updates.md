@@ -1,3 +1,7 @@
+**Bucks guard Pat Connaughton exercises player option: Source**\
+`With Connaughton's decision, the Bucks now have five players on guaranteed contracts for next season.`\
+https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
+
 **Bucks' guard Pat Connaughton exercises player option: Source**\
 `With Connaughton’s decision, the Bucks now have five players on guaranteed contracts for next season.`\
 https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
