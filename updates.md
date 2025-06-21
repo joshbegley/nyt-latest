@@ -1,3 +1,7 @@
+**Jasprit Bumrah: England witnesses a rare talent at the peak of his powers**\
+`What is it like to face one of the all-time great bowlers? The Athletic speaks to some cricketers who have`\
+https://nytimes.com/athletic/6442244/2025/06/21/england-india-jasprit-bumrah-technique/
+
 **Mahmoud Khalil Returns to New York After Months in Detention**\
 `The Trump administration remains committed to deporting Mr. Khalil, a Columbia graduate and leading figure in the pro-Palestinian protest movement.`\
 https://nytimes.com/2025/06/21/nyregion/mahmoud-khalil-return-to-new-york.html
