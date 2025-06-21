@@ -1,3 +1,7 @@
+**Israel says it killed a commander of Iranian force that oversees proxy militias.**\
+`By Ronen Bergman and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/israel-says-it-killed-a-commander-of-iranian-force-that-oversees-proxy-militias
+
 **Trump Is Vulnerable. Democrats Still Need a Strategy.**\
 `Three Opinion writers on why Trump’s deportations might be backfiring.`\
 https://nytimes.com/2025/06/21/opinion/trump-immigration-deportations.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6428135/2025/06/21/nhl-draft-2025-hagens-martone-mr
 **Trump Claims There’s Waste and Abuse in U.S.A.I.D. Here It Is.**\
 `These boxes of drugs could change millions of lives. Instead, they’re stuck in this warehouse.`\
 https://nytimes.com/video/opinion/100000010226775/trump-claims-theres-waste-and-abuse-in-usaid-here-it-is.html
-
-**Season Opener**\
-`It’s the first full day of summer. Make sure you don’t miss a minute of it.`\
-https://nytimes.com/2025/06/21/briefing/season-opener.html
 
