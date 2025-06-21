@@ -1,3 +1,7 @@
+**Chelsea were mesmerised by Flamengo's wide combinations. This is how Felipe Luis' side do it**\
+`Flamengo pulled off a surprise win against Chelsea on Friday — this is how they did it`\
+https://nytimes.com/athletic/6441719/2025/06/21/flamengo-chelsea-wide-play-analysis/
+
 **Transfers TLDR: Florian Wirtz to Liverpool - all you need to know**\
 `Liverpool have added Germany star and highly-valued forward Florian Wirtz from Leverkusen - here we break down the mega deal`\
 https://nytimes.com/athletic/6419624/2025/06/21/florian-wirtz-liverpool-transfer-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/21/business/dealbook/ai-job-applications.html
 **Israel Says It Killed Commander of Iranian Force Overseeing Proxy Militias**\
 `Mohammed Said Izadi was one of the few people who knew in advance about Hamas’s plan to launch a surprise attack on Israel, The New York Times has reported.`\
 https://nytimes.com/2025/06/21/world/middleeast/israel-iran-commander-killed.html
-
-**Trump Is Vulnerable. Democrats Still Need a Strategy.**\
-`Three Opinion writers on why Trump’s deportations might be backfiring.`\
-https://nytimes.com/2025/06/21/opinion/trump-immigration-deportations.html
 

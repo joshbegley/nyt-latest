@@ -1,3 +1,7 @@
+**Transfers TLDR: Florian Wirtz to Liverpool - all you need to know**\
+`Liverpool have added Germany star and highly-valued forward Florian Wirtz from Leverkusen - here we break down the mega deal`\
+https://nytimes.com/athletic/6419624/2025/06/21/florian-wirtz-liverpool-transfer-analysis/
+
 **New Data Shows Just How Powerful the Next Weight-Loss Drugs May Be**\
 `The drugs in development include a pill that a new trial suggests is about as effective as Ozempic.`\
 https://nytimes.com/2025/06/21/well/new-weight-loss-drugs.html
@@ -34,9 +38,4 @@ https://nytimes.com/2025/06/21/world/middleeast/israel-iran-commander-killed.htm
 **Trump Is Vulnerable. Democrats Still Need a Strategy.**\
 `Three Opinion writers on why Trump’s deportations might be backfiring.`\
 https://nytimes.com/2025/06/21/opinion/trump-immigration-deportations.html
-
-**Each NHL team's best and worst draft pick of the past decade**\
-`Identifying the selections that were the biggest hits, misses, steals, busts and even duds between the 2015 and 2024 NHL Drafts.
-`\
-https://nytimes.com/athletic/6437064/2025/06/21/nhl-teams-best-worst-draft-picks/
 

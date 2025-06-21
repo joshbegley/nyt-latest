@@ -1,3 +1,12 @@
+**Transfers TLDR: Florian Wirtz to Liverpool - all you need to know**\
+`Liverpool have added Germany star and highly-valued forward Florian Wirtz from Leverkusen - here we break down the mega deal`\
+https://nytimes.com/athletic/6419624/2025/06/21/florian-wirtz-liverpool-transfer-analysis/
+
+**What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
+`What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
+`\
+https://nytimes.com/athletic/6438453/2025/06/21/winnipeg-jets-jonathan-toews-nikolaj-ehlers/
+
 **What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
 `What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
 `\
