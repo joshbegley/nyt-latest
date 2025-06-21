@@ -1,3 +1,7 @@
+**Israeli Attacks in Iran Kill Three More Commanders, Israel Says**\
+`The claims by the Israeli military came as aircraft tracker data indicated American B-2 bombers might be moving into position for joining the assault on Iran.`\
+https://nytimes.com/2025/06/21/world/middleeast/israel-iran-war-attack-nuclear.html
+
 **Haji Wright leaves USMNT Gold Cup squad with Achilles injury**\
 `The Coventry forward will play no further part in the tournament`\
 https://nytimes.com/athletic/6440479/2025/06/21/usmnt-haji-wright-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442156/2025/06/21/nba-finals-game-7-pacers-thunder
 **Braves place Chris Sale on injured list with fractured rib cage**\
 `Sale got injured on a diving play in the ninth inning Wednesday when he made the stop and threw to first base to get Juan Soto.`\
 https://nytimes.com/athletic/6442198/2025/06/21/braves-chris-sale-injury/
-
-**Iranians Find Pockets of Connection Amid Internet Blackout**\
-`Iranians managed to gain some unreliable connection to the internet on Friday after a near-total blackout that lasted four days.`\
-https://nytimes.com/2025/06/21/world/middleeast/iran-internet-blackout.html
 

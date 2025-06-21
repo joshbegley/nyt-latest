@@ -1,3 +1,7 @@
+**Israeli Attacks in Iran Kill Three More Commanders, Israel Says**\
+`The claims by the Israeli military came as aircraft tracker data indicated American B-2 bombers might be moving into position for joining the assault on Iran.`\
+https://nytimes.com/2025/06/21/world/middleeast/israel-iran-war-attack-nuclear.html
+
 **Haji Wright leaves USMNT Gold Cup squad with Achilles injury**\
 `The Coventry forward will play no further part in the tournament`\
 https://nytimes.com/athletic/6440479/2025/06/21/usmnt-haji-wright-injury-news/
