@@ -1,3 +1,7 @@
+**Dodgers announce plans to assist families impacted by immigrant raids**\
+`On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium but were denied access by the team.`\
+https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
+
 **Bayern Munich 2 Boca Juniors 1 - Bayern advance despite great Merentiel goal - Boca must hammer Auckland and hope**\
 `Analysis of the Club World Cup group C match between Bayern Munich and Boca Juniors`\
 https://nytimes.com/athletic/6427749/2025/06/20/bayern-munich-boca-juniors-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/la-dodgers-ice-raids.html
 **Suspect in Minnesota Attacks Was a Doomsday Prepper, Investigator Says**\
 `An F.B.I. agent said Vance Boelter left instructions for his wife in the event of a calamity, according to a court document.`\
 https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
-
-**LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
-`A missed penalty kick at the death sealed LAFC's elimination from the Club World Cup after two matches. Here's more analysis of its defeat`\
-https://nytimes.com/athletic/6441247/2025/06/20/lafc-esperance-tunis-club-world-cup-highlights-bouanga/
 
