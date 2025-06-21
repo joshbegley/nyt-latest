@@ -1,3 +1,7 @@
+**Air India C.E.O.’s Remarks After Plane Crash Draw Scrutiny**\
+`A video message by Campbell Wilson, Air India’s chief executive, closely resembled what the head of American Airlines said after a deadly crash months earlier.`\
+https://nytimes.com/2025/06/21/business/air-india-crash-ceo-speech.html
+
 **Benches clear in Anaheim after Zach Neto hit by pitch**\
 `Neto was hit on the right wrist in the third inning of a 3-2 Astros win on Friday.`\
 https://nytimes.com/athletic/6441697/2025/06/21/angels-astros-benches-clear-zach-neto-hunter-brown/
