@@ -1,3 +1,7 @@
+**Nuno Espirito Santo signs new three-year Nottingham Forest contract**\
+`His previous deal had been set to expire in the summer of 2026 and the 51-year-old has agreed terms that will keep him at Forest until 2028`\
+https://nytimes.com/athletic/6440842/2025/06/21/nuno-espirito-santo-nottingham-forest-contract/
+
 **The New York Times in Print for Saturday, June 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/21/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6437790/2025/06/21/british-posh-sports-ascot-queens
 **Nicolas Jackson's red card: The most concerning part is he doesn't fully understand how it happened**\
 `Jackson’s career at Chelsea could depend on the success of the self-reflection that lies ahead`\
 https://nytimes.com/athletic/6441391/2025/06/21/nicolas-jackson-red-card-understand/
-
-**Off-target shots: How the rise of the 'good miss' is aiding talent ID in football**\
-`Why off-target shots deserve more consideration in conventional analysis of a player’s shooting ability`\
-https://nytimes.com/athletic/6304324/2025/06/21/analysing-missed-chances-premier-league-football/
 
