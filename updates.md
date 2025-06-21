@@ -1,3 +1,7 @@
+**How Trump Treats Black History Differently Than Other Parts of America’s Past**\
+`Since taking office in January, President Trump has tried to reframe the country’s past involving racism and discrimination by de-emphasizing that history or at times denying that it happened.`\
+https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.html
+
 **An Iranian strike in downtown Haifa damaged at least two places of worship.**\
 `Shockwaves from the attack in Israel’s third-largest city damaged a mosque and a church.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/an-iranian-strike-in-downtown-haifa-damaged-at-least-two-places-of-worship
