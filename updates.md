@@ -1,3 +1,7 @@
+**Mbappe to miss Real Madrid's Club World Cup game against Pachuca due to illness**\
+`Dani Carvajal will also not be available for Sunday’s game against the Mexican side but Antonio Rudiger is set to return for Real Madrid.`\
+https://nytimes.com/athletic/6441982/2025/06/21/real-madrid-mbappe-club-world-cup-pachuca-news/
+
 **Air India C.E.O.’s Comments on Crash Draw Backlash Online**\
 `A video statement by Campbell Wilson, Air India’s chief executive, after the June 12 plane crash was nearly identical to one given five months earlier by the head of American Airlines, after a crash in Washington, D.C.`\
 https://nytimes.com/video/world/asia/100000010242468/air-india-ceo-plane-crash-statements.html

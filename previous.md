@@ -1,3 +1,7 @@
+**Mbappe to miss Real Madrid's Club World Cup game against Pachuca due to illness**\
+`Dani Carvajal will also not be available for Sunday’s game against the Mexican side but Antonio Rudiger is set to return for Real Madrid.`\
+https://nytimes.com/athletic/6441982/2025/06/21/real-madrid-mbappe-club-world-cup-pachuca-news/
+
 **Air India C.E.O.’s Comments on Crash Draw Backlash Online**\
 `A video statement by Campbell Wilson, Air India’s chief executive, after the June 12 plane crash was nearly identical to one given five months earlier by the head of American Airlines, after a crash in Washington, D.C.`\
 https://nytimes.com/video/world/asia/100000010242468/air-india-ceo-plane-crash-statements.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442161/2025/06/21/rashford-striker-position-man-un
 **Dr. Demento, Song Satirist and D.J. Who Promoted Weird Al, Is Retiring**\
 `Barry Hansen, mostly known by his D.J. name, said he’d end his show’s run after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
 https://nytimes.com/2025/06/21/arts/music/dr-demento-radio-dj-retires.html
-
-**Nathan Silver, Who Chronicled a Vanished New York, Dies at 89**\
-`An architect, he wrote in his book “Lost New York” about the many buildings that were destroyed before passage of the city’s landmarks preservation law.`\
-https://nytimes.com/2025/06/21/nyregion/nathan-silver-dead.html
 
