@@ -1,3 +1,7 @@
+**Cazorla helps Real Oviedo earn promotion to La Liga for first time in 24 years**\
+`Cazorla came off the bench to score an emphatic free-kick with his weak foot in the semi-final victory over Almeria on June 11.`\
+https://nytimes.com/athletic/6442538/2025/06/21/santi-cazorla-oviedo-promotion-la-liga/
+
 **Elly De La Cruz vomits on field, stays in game and hits 435-foot homer**\
 `After getting thrown out at home while trying to take an extra base on a triple, De La Cruz drank a lot of water. It didn't stay down long.`\
 https://nytimes.com/athletic/6442466/2025/06/21/elly-de-la-cruz-reds-vomits-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/world/middleeast/israel-iran-us-war-trump.html
 **Game 7 between Pacers and Thunder could come down to 'contest of wills'**\
 `The Pacers have never won an NBA title. The Thunder haven't won since 1979, when they were the Seattle SuperSonics.`\
 https://nytimes.com/athletic/6442366/2025/06/21/nba-pacers-thunder-game-7-preview/
-
-**Rafael Devers hits first home run as a Giant against Red Sox, his former team**\
-`The star Boston traded six days ago hit a two-run opposite-field blast in the third inning of Saturday's game at Oracle Park.`\
-https://nytimes.com/athletic/6442413/2025/06/21/rafael-devers-home-run-giants-red-sox/
 
