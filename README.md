@@ -1,3 +1,7 @@
+**The Briefing: Sundowns 3 Dortmund 4 - Did Bellingham impress on his full debut?**\
+`Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
+https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/
+
 **LeBrun rumblings: Who was in on Toews, plus latest on Marner, McDavid, Tavares, Robertson and more**\
 `Trade and free-agency news from around the league: Marner's considering two-year deals, McDavid's in no rush and Tavares-Leafs isn't close.`\
 https://nytimes.com/athletic/6442128/2025/06/21/nhl-free-agency-rumblings-marner-mcdavid-tavares/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/06/21/weather/windy-conditions-fan-wildfires-in-the-wes
 https://nytimes.com/athletic/6442161/2025/06/21/rashford-striker-position-man-united/
 
 **Dr. Demento, Song Satirist and D.J. Who Promoted Weird Al, Is Retiring**\
-`Barry Hansen, mostly known by his D.J. name, said he’d leave the airwaves after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
+`Barry Hansen, mostly known by his D.J. name, said he’d end his show’s run after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
 https://nytimes.com/2025/06/21/arts/music/dr-demento-radio-dj-retires.html
 
 **Nathan Silver, Who Chronicled a Vanished New York, Dies at 89**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442015/2025/06/21/luke-williams-airport-swansea/
 **U.S. Deploys B-2 Bombers as Trump Plans to Meet National Security Team**\
 `The planes can carry bombs capable of striking an underground nuclear facility in Iran if President Trump decides to join the conflict.`\
 https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
-
-**Trump Sends Envoy to Belarus, Courting Ties With Russia’s Close Ally**\
-`The outreach to Belarus’s autocratic leader, Aleksandr G. Lukashenko, comes as the country has released at least 14 political prisoners.`\
-https://nytimes.com/2025/06/21/world/europe/trump-belarus-envoy-russia.html
 
