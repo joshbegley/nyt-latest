@@ -1,3 +1,15 @@
+**Blackhawks acquire Andre Burakovsky for Joe Veleno in trade with Kraken**\
+`Andre Burakovsky will add some much-needed scoring punch to the Blackhawks lineup. `\
+https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-burakovsky-joe-veleno/
+
+**Summer Is for Strawberry Shortcake**\
+`And this classic recipe, with its easy, buttery biscuits and simply macerated berries, is the one to make over and over.`\
+https://nytimes.com/2025/06/21/dining/easy-strawberry-shortcake-recipe-and-more-summer-desserts.html
+
+**Right-Wing Violence Is Not a Fringe Issue**\
+`Let’s not confuse ourselves about where the primary responsibility lies.`\
+https://nytimes.com/2025/06/21/opinion/political-violence-right-wing.html
+
 **What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
 `What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
 `\
