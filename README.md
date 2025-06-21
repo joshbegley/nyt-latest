@@ -1,5 +1,5 @@
 **Brewers' Jacob Misiorowski dominates Twins, starts career with MLB record 11 no-hit innings**\
-`Misiorowski averaged 100.4 mph with his fastball and his mid-90s slider produced some of the ugliest swings in MLB this season.`\
+`Misiorowski averaged 100.4 mph with his fastball, and his mid-90s slider produced some of the ugliest swings in MLB this season.`\
 https://nytimes.com/athletic/6441468/2025/06/21/brewers-jacob-misiorowski-mlb-record-no-hit-innings/
 
 **Everton transfers and contracts: What we're hearing on Branthwaite, Gueye and Barry**\
