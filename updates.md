@@ -1,3 +1,7 @@
+**B-2 Bombers Head Across the Pacific as Trump Considers Strike on Iran**\
+`President Trump is scheduled to return to the White House late Saturday afternoon from New Jersey as he weighs whether to join Israel’s efforts to destroy Iran’s nuclear sites.`\
+https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
+
 **Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
 `A hot-air balloon carrying 21 people fell from the sky in a region in southern Brazil popular with tourists.`\
 https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
