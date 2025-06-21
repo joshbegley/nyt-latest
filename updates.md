@@ -1,3 +1,7 @@
+**Cardinals notebook: What we know about Iván Herrera's hamstring, Michael McGreevy's next start**\
+`Herrera, St. Louis' most impactful hitter, could miss up to six weeks with a Grade 2 hamstring strain.`\
+https://nytimes.com/athletic/6441211/2025/06/20/cardinals-ivan-herrera-hamstring-michael-mcgreevy-start/
+
 **Dodgers announce plans to assist families impacted by immigrant raids**\
 `On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium but were denied access by the team.`\
 https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
