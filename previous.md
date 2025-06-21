@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Aaron Boxerman, Luke Broadwater and Mark Landler`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/heres-the-latest
+
+**Live Updates: Israel and Iran Trade New Strikes on 9th Day of War**\
+`President Trump said there was little he could do to stop the Israeli attacks. A European diplomatic effort to rein in the hostilities ended without a breakthrough on Friday.`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump
+
+**Brazil expresses interest in hosting 2029 Club World Cup**\
+`The Athletic reported in December that FIFA was considering again hosting the tournament in the United States.`\
+https://nytimes.com/athletic/6441748/2025/06/21/brazil-club-world-cup-2029/
+
 **Air India C.E.O.’s Remarks After Plane Crash Draw Scrutiny**\
 `A video message by Campbell Wilson, Air India’s chief executive, closely resembled what the head of American Airlines said after a deadly crash months earlier.`\
 https://nytimes.com/2025/06/21/business/air-india-crash-ceo-speech.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/21/crosswords/spelling-bee-forum.html
 **How a Neon Light Artist Spends Her Day in the Studio**\
 `Lena Imamura, the co-owner of GLO Studio, taps into her alter ego to get through a day of flames, shopping for materials and karaoke.`\
 https://nytimes.com/2025/06/21/nyregion/lena-imamura-glo-studio.html
-
-**Merentiel is the hero Boca thought Cavani would be. His wonder goal will make them dream**\
-`The striker has been one of the revelations of the Club World Cup and Boca need more of his goals to take them to the next stage`\
-https://nytimes.com/athletic/6441676/2025/06/21/boca-juniors-merentiel-club-world-cup-goal/
-
-**Nuno Espirito Santo signs new three-year Nottingham Forest contract**\
-`His previous deal had been set to expire in the summer of 2026 and the 51-year-old has agreed terms that will keep him at Forest until 2028`\
-https://nytimes.com/athletic/6440842/2025/06/21/nuno-espirito-santo-nottingham-forest-contract/
-
-**The New York Times in Print for Saturday, June 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/21/todays-new-york-times
 

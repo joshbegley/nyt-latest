@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Aaron Boxerman, Luke Broadwater and Mark Landler`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/heres-the-latest
+
+**Live Updates: Israel and Iran Trade New Strikes on 9th Day of War**\
+`President Trump said there was little he could do to stop the Israeli attacks. A European diplomatic effort to rein in the hostilities ended without a breakthrough on Friday.`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump
+
+**Brazil expresses interest in hosting 2029 Club World Cup**\
+`The Athletic reported in December that FIFA was considering again hosting the tournament in the United States.`\
+https://nytimes.com/athletic/6441748/2025/06/21/brazil-club-world-cup-2029/
+
 **Air India C.E.O.’s Remarks After Plane Crash Draw Scrutiny**\
 `A video message by Campbell Wilson, Air India’s chief executive, closely resembled what the head of American Airlines said after a deadly crash months earlier.`\
 https://nytimes.com/2025/06/21/business/air-india-crash-ceo-speech.html
