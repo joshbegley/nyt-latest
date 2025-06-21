@@ -1,3 +1,7 @@
+**B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/b2-stealth-bombers-guam
+
 **Ex-Swansea boss Williams takes job at airport while on gardening leave**\
 `The 44-year-old was sacked by Swansea in February and just over a year at the Championship club.`\
 https://nytimes.com/athletic/6442015/2025/06/21/luke-williams-airport-swansea/
