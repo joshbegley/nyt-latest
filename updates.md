@@ -1,3 +1,21 @@
+**The Pulse: Why so many Dodgers pitcher injuries?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6441424/2025/06/21/dodgers-pitcher-injuries-the-pulse/
+
+**What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
+`What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
+`\
+https://nytimes.com/athletic/6438453/2025/06/21/winnipeg-jets-jonathan-toews-nikolaj-ehlers/
+
+**Israel Says It Killed Commander of Iranian Force Overseeing Proxy Militias**\
+`Mohammed Said Izadi was one of the few people who knew in advance about Hamas’s plan to launch a surprise attack on Israel, The New York Times has reported.`\
+https://nytimes.com/2025/06/21/world/middleeast/israel-iran-commander-killed.html
+
+**Each NHL team's best and worst draft pick of the past decade**\
+`Identifying the selections that were the biggest hits, misses, steals, busts and even duds between the 2015 and 2024 NHL Drafts.
+`\
+https://nytimes.com/athletic/6437064/2025/06/21/nhl-teams-best-worst-draft-picks/
+
 **What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
 `What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
 `\

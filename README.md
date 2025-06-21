@@ -1,3 +1,7 @@
+**Vondrousova beats Sabalenka to reach first final since Wimbledon 2023**\
+`The 25-year-old has struggled with injury since she won the Wimbledon title as an unseeded player in 2023.`\
+https://nytimes.com/athletic/6441816/2025/06/21/tennis-vondrousova-sabalenka-german-open-result/
+
 **The Pulse: Why so many Dodgers pitcher injuries?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6441424/2025/06/21/dodgers-pitcher-injuries-the-pulse/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/21/opinion/trump-king-george.html
 **Why Israel Had to Act**\
 `The Oct. 7 Hamas attack on Israel showed the need for Israel to pre-empt threats against it rather than react defensively.`\
 https://nytimes.com/2025/06/21/opinion/israel-iran-attack-nuclear-pre-emptive-strike.html
-
-**Trump Is Vulnerable. Democrats Still Need a Strategy.**\
-`Three Opinion writers on why Trump’s deportations might be backfiring.`\
-https://nytimes.com/video/opinion/100000010240395/trump-is-vulnerable-democrats-still-need-a-strategy.html
 
