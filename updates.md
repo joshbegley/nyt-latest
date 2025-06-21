@@ -1,3 +1,15 @@
+**Bucks' guard Pat Connaughton exercises player option: Source**\
+`With Connaughton’s decision, the Bucks now have five players on guaranteed contracts for next season.`\
+https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
+
+**Mahmoud Khalil Lands at Newark After Months of Detention**\
+`Mahmoud Khalil, a pro-Palestinian activist detained for his role in protests at Columbia University, returned to the East Coast on bail after 104 days of imprisonment in Louisiana.`\
+https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-lands-at-newark-after-months-of-detention.html
+
+**In Final Push for Mayor, Lander Appears With 2 Cuomo Accusers**\
+`The campaign event by Brad Lander, the New York City comptroller running for mayor, came as Andrew Cuomo, the front-runner, appeared with the mother of a murder victim.`\
+https://nytimes.com/2025/06/21/nyregion/lander-cuomo-women-mayor.html
+
 **No U.S. Decision on Joining War Yet, Though It Could Come in Days, Israeli Officials Say**\
 `Israel on Saturday struck sites in southwestern Iran that would most likely be on any potential flight path used by U.S. warplanes on the way to attack a key Iranian nuclear facility.`\
 https://nytimes.com/2025/06/21/world/middleeast/israel-iran-us-war-trump.html
