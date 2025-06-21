@@ -1,3 +1,7 @@
+**Braves place Chris Sale on injured list with fractured rib cage**\
+`Sale got injured on a diving play in the ninth inning Wednesday when he made the stop and threw to first base to get Juan Soto.`\
+https://nytimes.com/athletic/6442198/2025/06/21/braves-chris-sale-injury/
+
 **Iranians Find Pockets of Connection Amid Internet Blackout**\
 `Iranians managed to gain some unreliable connection to the internet on Friday after a near-total blackout that lasted four days.`\
 https://nytimes.com/2025/06/21/world/middleeast/iran-internet-blackout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/us/politics/senate-snap-food-stamps.html
 **Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
 `A hot-air balloon carrying 21 people caught fire and fell from the sky in a region in southern Brazil popular with tourists.`\
 https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
-
-**Ex-Swansea boss Williams takes job at airport while on gardening leave**\
-`The 44-year-old was sacked by Swansea in February and just over a year at the Championship club.`\
-https://nytimes.com/athletic/6442015/2025/06/21/luke-williams-airport-swansea/
 
