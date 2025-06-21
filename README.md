@@ -15,8 +15,8 @@ https://nytimes.com/athletic/6438453/2025/06/21/winnipeg-jets-jonathan-toews-nik
 `Candidates are frustrated. Employers are overwhelmed. The problem? An untenable pile of applications — many of them generated with the help of A.I. tools.`\
 https://nytimes.com/2025/06/21/business/dealbook/ai-job-applications.html
 
-**Israel says it killed a commander of the Iranian force that oversees proxy militias.**\
-`By Ronen Bergman and Aaron Boxerman`\
+**Israel Says It Killed Commander of Iranian Force Overseeing Proxy Militias**\
+`Mohammed Said Izadi was one of the few people who knew in advance about Hamas’s plan to launch a surprise attack on Israel, The New York Times has reported.`\
 https://nytimes.com/2025/06/21/world/middleeast/israel-iran-commander-killed.html
 
 **Trump Is Vulnerable. Democrats Still Need a Strategy.**\
