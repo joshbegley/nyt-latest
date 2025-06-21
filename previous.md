@@ -1,3 +1,27 @@
+**Everton transfers and contracts: What we're hearing on Branthwaite, Gueye and Barry**\
+`Everton still have muck work to do in the transfer market – the window is unlikely to remain quiet for too much longer `\
+https://nytimes.com/athletic/6439897/2025/06/21/everton-transfers-branthwaite-gueye-calvert-lewin-barry/
+
+**Bergvall has been ignored by his peers - but Spurs know he is a special talent**\
+`The Sweden teenager swept the board at Spurs' awards - but was overlooked by his peers`\
+https://nytimes.com/athletic/6439682/2025/06/21/lucas-bergvall-tottenham-spurs-poty/
+
+**Euro 2025: Switzerland team guide - can Sundhage help the hosts make history?**\
+`From players to watch to pedigree and much more, we set out what to expect from Switzerland at the European Championship`\
+https://nytimes.com/athletic/6411772/2025/06/21/switzerland-team-guide-euro-2025/
+
+**Euro 2025: Finland team guide – can the underdogs produce another historic upset?**\
+`From players to watch to pedigree and much more, we set out what to expect from Finland at the European Championship`\
+https://nytimes.com/athletic/6419110/2025/06/21/finland-team-guide-euro-2025/
+
+**Will PSR always lead to the transfer merry-go-round we have seen over the past year?**\
+`The existing rules encourage player sales for clubs in fear of a breach, something we have seen repeatedly in recent transfer windows`\
+https://nytimes.com/athletic/6437292/2025/06/21/psr-transfers-analysis-summer-window/
+
+**I attended Britain's poshest sports events. This is what I learned**\
+`Top hats, tails, Cuban cigars and a lot of Pimm's — our reporter found sport was secondary at much of the summer's most elite occasions`\
+https://nytimes.com/athletic/6437790/2025/06/21/british-posh-sports-ascot-queens/
+
 **Nicolas Jackson's red card: The most concerning part is he doesn't fully understand how it happened**\
 `Jackson’s career at Chelsea could depend on the success of the self-reflection that lies ahead`\
 https://nytimes.com/athletic/6441391/2025/06/21/nicolas-jackson-red-card-understand/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6435542/2025/06/21/bill-foley-auckland-fc-stanley-c
 **A Heat Wave Leaves Britons Looking for Ways to Stay Cool**\
 `As high temperatures have become more common in recent years, some people are adjusting, including by investing in air-conditioners.`\
 https://nytimes.com/2025/06/21/world/europe/uk-heat-wave-britain.html
-
-**How South Korea Became a Cultural Powerhouse, and What’s Next**\
-`With BTS poised to reunite, “Squid Game” returning and a Broadway show winning awards, the Korean cultural wave keeps on rolling.`\
-https://nytimes.com/2025/06/21/world/asia/south-korea-kpop-culture.html
-
-**BTS Is Back Together. Is It Still the King of K-Pop?**\
-`Suga is the last member of the wildly popular band to complete his national service. After more than two years apart, the challenge is to rekindle the magic.`\
-https://nytimes.com/2025/06/21/world/asia/bts-is-back-together-is-it-still-the-king-of-k-pop.html
-
-**Connections: Sports Edition Coach: Hints for June 21, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6441590/2025/06/21/connections-sports-edition-hints-for-june-21-2025/
-
-**Quote of the Day: Inside the D.N.C., Chaos and a Shortage of Cash**\
-`Quotation of the Day for Saturday, June 21, 2025.`\
-https://nytimes.com/2025/06/20/pageoneplus/quote-of-the-day-inside-the-dnc-chaos-and-a-shortage-of-cash.html
-
-**Cardinals notebook: What we know about Iván Herrera's hamstring, Michael McGreevy**\
-`Herrera, St. Louis' most impactful hitter, could miss up to six weeks with a Grade 2 hamstring strain.`\
-https://nytimes.com/athletic/6441211/2025/06/20/cardinals-ivan-herrera-hamstring-michael-mcgreevy-start/
-
-**Dodgers announce plans to assist families impacted by immigrant raids**\
-`On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium but were denied access by the team.`\
-https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
 
