@@ -1,3 +1,15 @@
+**Nicolas Jackson's red card: The most concerning part is he doesn't fully understand how it happened**\
+`Jackson’s career at Chelsea could depend on the success of the self-reflection that lies ahead`\
+https://nytimes.com/athletic/6441391/2025/06/21/nicolas-jackson-red-card-understand/
+
+**Off-target shots: How the rise of the 'good miss' is aiding talent ID in football**\
+`Why off-target shots deserve more consideration in conventional analysis of a player’s shooting ability`\
+https://nytimes.com/athletic/6304324/2025/06/21/analysing-missed-chances-premier-league-football/
+
+**How an Auckland soccer club rose to prominence in rugby-loving New Zealand**\
+`The team, which competes in the Australian top flight, won the league stage and narrowly missed out on lifting the A-League Champions trophy`\
+https://nytimes.com/athletic/6435542/2025/06/21/bill-foley-auckland-fc-stanley-cup-steven-adams-golden-knights/
+
 **A Heat Wave Leaves Britons Looking for Ways to Stay Cool**\
 `As high temperatures have become more common in recent years, some people are adjusting, including by investing in air-conditioners.`\
 https://nytimes.com/2025/06/21/world/europe/uk-heat-wave-britain.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6441211/2025/06/20/cardinals-ivan-herrera-hamstring
 **Dodgers announce plans to assist families impacted by immigrant raids**\
 `On Thursday, federal agents arrived at the Sunset Gate in front of Dodger Stadium but were denied access by the team.`\
 https://nytimes.com/athletic/6440594/2025/06/20/dodgers-los-angeles-immigration-community-letter/
-
-**Bayern Munich 2 Boca Juniors 1 - Bayern advance despite great Merentiel goal - Boca must hammer Auckland and hope**\
-`Analysis of the Club World Cup group C match between Bayern Munich and Boca Juniors`\
-https://nytimes.com/athletic/6427749/2025/06/20/bayern-munich-boca-juniors-club-world-cup/
-
-**Harvard and Trump Restart Talks to Potentially End Bitter Dispute**\
-`Details about the discussions emerged after President Trump said the two sides, which have been locked in court battles for weeks, might reach a settlement soon.`\
-https://nytimes.com/2025/06/20/us/politics/harvard-federal-funding-trump.html
-
-**The Efforts to Erase Black History**\
-`President Trump’s executive orders have sought to reframe the history of race and culture in America. Erica L. Green, a White House correspondent for The New York Times, describes how the orders have led to the erasing of history of the Black experience.`\
-https://nytimes.com/video/us/politics/100000010093139/the-efforts-to-erase-black-history.html
 
