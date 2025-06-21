@@ -1,3 +1,11 @@
+**Everton transfers and contracts: What we're hearing on Branthwaite, Gueye and Barry**\
+`Everton still have muck work to do in the transfer market – the window is unlikely to remain quiet for too much longer `\
+https://nytimes.com/athletic/6439897/2025/06/21/everton-transfers-branthwaite-gueye-calvert-lewin-barry/
+
+**Bergvall has been ignored by his peers - but Spurs know he is a special talent**\
+`The Sweden teenager swept the board at Spurs' awards - but was overlooked by his peers`\
+https://nytimes.com/athletic/6439682/2025/06/21/lucas-bergvall-tottenham-spurs-poty/
+
 **Euro 2025: Switzerland team guide - can Sundhage help the hosts make history?**\
 `From players to watch to pedigree and much more, we set out what to expect from Switzerland at the European Championship`\
 https://nytimes.com/athletic/6411772/2025/06/21/switzerland-team-guide-euro-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6435542/2025/06/21/bill-foley-auckland-fc-stanley-c
 **A Heat Wave Leaves Britons Looking for Ways to Stay Cool**\
 `As high temperatures have become more common in recent years, some people are adjusting, including by investing in air-conditioners.`\
 https://nytimes.com/2025/06/21/world/europe/uk-heat-wave-britain.html
-
-**How South Korea Became a Cultural Powerhouse, and What’s Next**\
-`With BTS poised to reunite, “Squid Game” returning and a Broadway show winning awards, the Korean cultural wave keeps on rolling.`\
-https://nytimes.com/2025/06/21/world/asia/south-korea-kpop-culture.html
-
-**BTS Is Back Together. Is It Still the King of K-Pop?**\
-`Suga is the last member of the wildly popular band to complete his national service. After more than two years apart, the challenge is to rekindle the magic.`\
-https://nytimes.com/2025/06/21/world/asia/bts-kpop.html
 
