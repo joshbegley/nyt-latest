@@ -1,3 +1,7 @@
+**Windy Conditions Fan Wildfires in the West**\
+`The Forsyth fire in Utah threatened a small community in the state’s southwest corner. Farther west, the Conner fire burned rapidly near Lake Tahoe.`\
+https://nytimes.com/2025/06/21/weather/windy-conditions-fan-wildfires-in-the-west.html
+
 **Rashford 'more natural' playing as a No 9 amid uncertain Man United future**\
 `The debate over where the England international’s best position has followed Rashford through his career.`\
 https://nytimes.com/athletic/6442161/2025/06/21/rashford-striker-position-man-united/

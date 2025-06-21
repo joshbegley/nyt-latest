@@ -1,3 +1,7 @@
+**Windy Conditions Fan Wildfires in the West**\
+`The Forsyth fire in Utah threatened a small community in the state’s southwest corner. Farther west, the Conner fire burned rapidly near Lake Tahoe.`\
+https://nytimes.com/2025/06/21/weather/windy-conditions-fan-wildfires-in-the-west.html
+
 **Rashford 'more natural' playing as a No 9 amid uncertain Man United future**\
 `The debate over where the England international’s best position has followed Rashford through his career.`\
 https://nytimes.com/athletic/6442161/2025/06/21/rashford-striker-position-man-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/world/europe/trump-belarus-envoy-russia.html
 **Until Saturday: CFB 26 makes life slightly easier**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until-saturday/
-
-**Blackhawks acquire Andre Burakovsky for Joe Veleno in trade with Kraken**\
-`Andre Burakovsky will add some much-needed scoring punch to the Blackhawks lineup. `\
-https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-burakovsky-joe-veleno/
 
