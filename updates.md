@@ -1,3 +1,15 @@
+**Rafael Devers hits first home run as a Giant against Red Sox, his former team**\
+`The star Boston traded six days ago hit a two-run opposite-field blast in the third inning of Saturday's game at Oracle Park.`\
+https://nytimes.com/athletic/6442413/2025/06/21/rafael-devers-home-run-giants-red-sox/
+
+**Midwest Cities Bake as Heat Wave Blankets the Central U.S.**\
+`St. Louis, Omaha and Des Moines were among the cities that saw heat indexes rise toward triple digits, with similar temperatures expected on the East Coast by Monday.`\
+https://nytimes.com/2025/06/21/us/heat-wave-midwest-central-us.html
+
+**The Briefing: Inter 2 Urawa Red Diamonds 1 – Lautaro Martinez-led comeback in Seattle eliminates Urawa**\
+`James Horncastle and Mark Carey analyse Saturday's Group E game at Lumen Field  `\
+https://nytimes.com/athletic/6427682/2025/06/21/inter-urawa-red-diamonds-analysis-club-world-cup/
+
 **Several U.S. B-2 bombers were deployed west across the Pacific.**\
 `The aircraft can carry the bunker-buster bombs that would be necessary to penetrate the Fordo underground nuclear site in Iran.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/several-us-b-2-bombers-were-deployed-west-across-the-pacific
