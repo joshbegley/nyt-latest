@@ -1,3 +1,7 @@
+**How Trump Treats Black History Differently Than Other Parts of America’s Past**\
+`Since taking office in January, President Trump has tried to reframe the country’s past involving racism and discrimination by de-emphasizing that history or at times denying that it happened.`\
+https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.html
+
 **An Iranian strike in downtown Haifa damaged at least two places of worship.**\
 `Shockwaves from the attack in Israel’s third-largest city damaged a mosque and a church.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/an-iranian-strike-in-downtown-haifa-damaged-at-least-two-places-of-worship
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/health/diabetes-cure-insulin-stem-cell.html
 **Rafael Devers on Red Sox tenure: 'I do feel that I have earned some respect'**\
 `Devers discussed why he didn't play first base for Boston as he prepared to face his old team for the first time since a stunning trade.`\
 https://nytimes.com/athletic/6441139/2025/06/20/rafael-devers-red-sox-first-base-giants/
-
-**Reds place LHP Wade Miley on IL with flexor strain, call up Connor Phillips**\
-`The Reds placed the left-hander on the 15-day IL with a left flexor sprain and recalled righty Connor Phillips from Triple-A Louisville.`\
-https://nytimes.com/athletic/6441119/2025/06/20/reds-wade-miley-il-connor-phillips/
 
