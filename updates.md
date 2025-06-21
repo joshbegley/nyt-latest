@@ -1,3 +1,7 @@
+**Braves place Chris Sale on injured list with fractured rib cage**\
+`Sale got injured on a diving play in the ninth inning Wednesday when he made the stop and threw to first base to get Juan Soto.`\
+https://nytimes.com/athletic/6442198/2025/06/21/braves-chris-sale-injury/
+
 **Iranians Find Pockets of Connection Amid Internet Blackout**\
 `Iranians managed to gain some unreliable connection to the internet on Friday after a near-total blackout that lasted four days.`\
 https://nytimes.com/2025/06/21/world/middleeast/iran-internet-blackout.html
