@@ -1,3 +1,7 @@
+**Rashford 'more natural' playing as a No 9 amid uncertain Man United future**\
+`The debate over where the England international’s best position has followed Rashford through his career.`\
+https://nytimes.com/athletic/6442161/2025/06/21/rashford-striker-position-man-united/
+
 **Dr. Demento, Song Satirist and D.J. Who Promoted Weird Al, Is Retiring**\
 `Barry Hansen, mostly known by his D.J. name, said he’d leave the airwaves after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
 https://nytimes.com/2025/06/21/arts/music/dr-demento-radio-dj-retires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until
 **Blackhawks acquire Andre Burakovsky for Joe Veleno in trade with Kraken**\
 `Andre Burakovsky will add some much-needed scoring punch to the Blackhawks lineup. `\
 https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-burakovsky-joe-veleno/
-
-**Summer Is for Strawberry Shortcake**\
-`And this classic recipe, with its easy, buttery biscuits and simply macerated berries, is the one to make over and over.`\
-https://nytimes.com/2025/06/21/dining/easy-strawberry-shortcake-recipe-and-more-summer-desserts.html
 
