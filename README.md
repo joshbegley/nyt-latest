@@ -6,7 +6,7 @@ https://nytimes.com/2025/06/20/nyregion/mamdani-cuomo-money-mayor.html
 `Pressed by Angelenos, including a large Latino fan base, the Dodgers promised support but stopped short of denouncing ICE raids that have outraged much of the metropolis.`\
 https://nytimes.com/2025/06/20/us/politics/la-dodgers-ice-raids.html
 
-**Suspect in Minnesota Attacks Was a Prepper, Investigator Says**\
+**Suspect in Minnesota Attacks Was a Doomsday Prepper, Investigator Says**\
 `An F.B.I. agent said Vance Boelter left instructions for his wife in the event of a calamity, according to a court document.`\
 https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
 
