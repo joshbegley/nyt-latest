@@ -1,3 +1,7 @@
+**Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill**\
+`The ruling by the parliamentarian sent G.O.P. lawmakers back to the drawing board to cover the costs of President Trump’s domestic policy bill.`\
+https://nytimes.com/2025/06/21/us/politics/senate-snap-food-stamps.html
+
 **Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
 `A hot-air balloon carrying 21 people fell from the sky in a region in southern Brazil popular with tourists.`\
 https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/opinion/political-violence-right-wing.html
 **At Least 3 Dead as Tornadoes Strike North Dakota, Officials Say**\
 `The deaths came after a series of large and long-lasting storms moved through North Dakota and Minnesota Friday night.`\
 https://nytimes.com/2025/06/21/weather/tornadoes-deaths-north-dakota-minnesota.html
-
-**Chelsea were mesmerised by Flamengo's wide combinations. This is how Felipe Luis' side do it**\
-`Flamengo pulled off a surprise win against Chelsea on Friday — this is how they did it`\
-https://nytimes.com/athletic/6441719/2025/06/21/flamengo-chelsea-wide-play-analysis/
 
