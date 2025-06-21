@@ -1,3 +1,12 @@
+**Israel says it killed a commander of Iranian force that oversees proxy militias.**\
+`By Ronen Bergman and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/israel-says-it-killed-a-commander-of-iranian-force-that-oversees-proxy-militias
+
+**Each NHL team's best and worst draft pick of the past decade**\
+`Identifying the selections that were the biggest hits, misses, steals, busts and even duds between the 2015 and 2024 NHL Drafts.
+`\
+https://nytimes.com/athletic/6437064/2025/06/21/nhl-teams-best-worst-draft-picks/
+
 **Each NHL team's best and worst draft pick of the past decade**\
 `Identifying the selections that were the biggest hits, misses, steals, busts and even duds between the 2015 and 2024 NHL Drafts.
 `\
