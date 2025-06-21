@@ -1,3 +1,7 @@
+**Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill**\
+`The ruling by the parliamentarian sent G.O.P. lawmakers back to the drawing board to cover the costs of President Trump’s domestic policy bill.`\
+https://nytimes.com/2025/06/21/us/politics/senate-snap-food-stamps.html
+
 **U.S. Deploys B-2 Bombers as Trump Plans to Meet National Security Team**\
 `The planes can carry bombs capable of striking an underground nuclear facility in Iran if President Trump decides to join the conflict.`\
 https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
