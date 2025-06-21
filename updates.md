@@ -1,3 +1,7 @@
+**Trump Claims There’s Waste and Abuse in U.S.A.I.D. Here It Is.**\
+`These boxes of drugs could change millions of lives. Instead, they’re stuck in this warehouse.`\
+https://nytimes.com/video/opinion/100000010226775/trump-claims-theres-waste-and-abuse-in-usaid-here-it-is.html
+
 **Season Opener**\
 `It’s the first full day of summer. Make sure you don’t miss a minute of it.`\
 https://nytimes.com/2025/06/21/briefing/season-opener.html
