@@ -1,3 +1,7 @@
+**Nuno Espirito Santo signs new three-year Nottingham Forest contract**\
+`His previous deal had been set to expire in the summer of 2026 and the 51-year-old has agreed terms that will keep him at Forest until 2028`\
+https://nytimes.com/athletic/6440842/2025/06/21/nuno-espirito-santo-nottingham-forest-contract/
+
 **The New York Times in Print for Saturday, June 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/21/todays-new-york-times
