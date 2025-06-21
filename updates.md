@@ -1,3 +1,7 @@
+**Nathan Silver, Who Chronicled a Vanished New York, Dies at 89**\
+`An architect, he wrote in his book “Lost New York” about the many buildings that were destroyed before passage of the city’s landmarks preservation law.`\
+https://nytimes.com/2025/06/21/nyregion/nathan-silver-dead.html
+
 **Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill**\
 `The ruling by the parliamentarian sent G.O.P. lawmakers back to the drawing board to cover the costs of President Trump’s domestic policy bill.`\
 https://nytimes.com/2025/06/21/us/politics/senate-snap-food-stamps.html
