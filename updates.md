@@ -1,3 +1,11 @@
+**The Briefing: Sundowns 3 Dortmund 4 - Did Bellingham impress on his full debut?**\
+`Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
+https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/
+
+**Dr. Demento, Song Satirist and D.J. Who Promoted Weird Al, Is Retiring**\
+`Barry Hansen, mostly known by his D.J. name, said he’d end his show’s run after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
+https://nytimes.com/2025/06/21/arts/music/dr-demento-radio-dj-retires.html
+
 **LeBrun rumblings: Who was in on Toews, plus latest on Marner, McDavid, Tavares, Robertson and more**\
 `Trade and free-agency news from around the league: Marner's considering two-year deals, McDavid's in no rush and Tavares-Leafs isn't close.`\
 https://nytimes.com/athletic/6442128/2025/06/21/nhl-free-agency-rumblings-marner-mcdavid-tavares/

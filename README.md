@@ -1,4 +1,4 @@
-**The Briefing: Sundowns 3 Dortmund 4 - Did Bellingham impress on his full debut?**\
+**The Briefing: Sundowns 3 Dortmund 4 – Did Bellingham impress on his full debut?**\
 `Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
 https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/
 
