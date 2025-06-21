@@ -1,3 +1,11 @@
+**Iranians Find Pockets of Connection Amid Internet Blackout**\
+`Iranians managed to gain some unreliable connection to the internet on Friday after a near-total blackout that lasted four days.`\
+https://nytimes.com/2025/06/21/world/middleeast/iran-internet-blackout.html
+
+**The Briefing: Sundowns 3 Dortmund 4 – Did Bellingham impress on his full debut?**\
+`Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
+https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/
+
 **The Briefing: Sundowns 3 Dortmund 4 - Did Bellingham impress on his full debut?**\
 `Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
 https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/

@@ -1,4 +1,8 @@
-**The Briefing: Sundowns 3 Dortmund 4 - Did Bellingham impress on his full debut?**\
+**Iranians Find Pockets of Connection Amid Internet Blackout**\
+`Iranians managed to gain some unreliable connection to the internet on Friday after a near-total blackout that lasted four days.`\
+https://nytimes.com/2025/06/21/world/middleeast/iran-internet-blackout.html
+
+**The Briefing: Sundowns 3 Dortmund 4 – Did Bellingham impress on his full debut?**\
 `Borussia Dortmund managed a 4-3 win over Mamelodi Sundowns to go top of Group F at the Club World Cup`\
 https://nytimes.com/athletic/6427681/2025/06/21/mamelodi-sundowns-borussia-dortmund-result-report-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
 **Ex-Swansea boss Williams takes job at airport while on gardening leave**\
 `The 44-year-old was sacked by Swansea in February and just over a year at the Championship club.`\
 https://nytimes.com/athletic/6442015/2025/06/21/luke-williams-airport-swansea/
-
-**U.S. Deploys B-2 Bombers as Trump Plans to Meet National Security Team**\
-`The planes can carry bombs capable of striking an underground nuclear facility in Iran if President Trump decides to join the conflict.`\
-https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
 
