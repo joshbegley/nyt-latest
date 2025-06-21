@@ -1,40 +1,40 @@
-**Andrew Schulz, ‘Podcast Bro,’ Might Be America’s Foremost Political Journalist**\
-`The comedian and host has a huge audience and many thoughts on what podcasters like him are responsible for now.`\
-https://nytimes.com/2025/06/21/magazine/andrew-schulz-interview.html
+**The counterintuitive strategy the Pacers used to shut down the Thunder's stars**\
+`The Pacers' defense threw a curveball in Game 6, and the Thunder weren't ready for it. Will they be in Game 7?`\
+https://nytimes.com/athletic/6441339/2025/06/21/pacers-defense-thunder-nba-finals-game-7/
 
-**As Iran and Israel Battle, the Rest of the Mideast Fears What’s Next**\
-`The fight between two well-armed regional powers has their neighbors worried about the conflict spreading, a concern worsened by the prospect of U.S. involvement.`\
-https://nytimes.com/2025/06/21/world/middleeast/iran-israel-regional-consequences.html
+**'This is not good': Mets drop from first as losing streak reaches 7**\
+`Over the past week, other teams aren't just beating the Mets; they are thoroughly outplaying them.`\
+https://nytimes.com/athletic/6441682/2025/06/21/mets-losing-streak-reaches-7-phillies/
 
-**Trump Got the Fight He Wanted. Did It Turn Out the Way He Expected?**\
-`The president’s clashes with Los Angeles over immigration were a decade in the making — and their outcome remains unclear.`\
-https://nytimes.com/2025/06/21/magazine/trump-los-angeles-immigration.html
+**The best two words in sports: 'Game 7.' Are ESPN and the NBA ready?**\
+`Game 7 in sports is inherently exciting. Richard Deitsch and Dan Shanoff sift through the top considerations the NBA and ESPN face.`\
+https://nytimes.com/athletic/6440645/2025/06/21/nba-finals-game-7-espn-mike-breen-thunder-pacers/
 
-**Sheltering in a Bunker, Iran’s Supreme Leader Names Potential Successors**\
-`Ayatollah Ali Khamenei has not only picked replacements in his chain of military command in case they are killed in Israeli strikes, he has also named three senior clerics to replace him should he, too, be slain.`\
-https://nytimes.com/2025/06/21/world/middleeast/iran-ayatollah-israel-war.html
+**Tom Brady had to find his Super Bowl jerseys before they could be included in Fanatics Fest's 'Museum of Greatness'**\
+`"Brady lost his Super Bowl jerseys!" Fanatics CEO Michael Rubin exclaimed`\
+https://nytimes.com/athletic/6441316/2025/06/21/tom-brady-super-bowl-jerseys-fanatics-fest/
 
-**When an Eyelash Pluck Is Unexpectedly Billed as a Surgical Procedure**\
-`A patient went to his eye doctor for a routine checkup. Why was he charged for surgery after his doctor removed an eyelash?`\
-https://nytimes.com/2025/06/21/your-money/eyelash-pluck-surgery-insurance.html
+**Coastal Carolina's coach waited for his chance. Now he has the Chanticleers in the CWS finals**\
+`Pushed by their coach, the Coastal Carolina Chanticleers back down to no one.`\
+https://nytimes.com/athletic/6440725/2025/06/21/coastal-carolina-baseball-kevin-schnall-college-world-series/
 
-**Influencers Step Onto Center Stage at Cannes**\
-`Big brands are increasingly courting social media stars, who descended on a major annual festival in France to pitch themselves to advertisers.`\
-https://nytimes.com/2025/06/21/business/cannes-social-media-influencers.html
+**Why these 9 overpriced NHL contracts could get traded this offseason**\
+`We've already seen some inefficient contracts dealt this offseason. Here are nine more that could potentially be moved.`\
+https://nytimes.com/athletic/6434063/2025/06/21/nhl-overpriced-contracts-traded-offseason/
 
-**Revisiting the Hunt: First-Time Buyers Share What Went Wrong and Right**\
-`Being a new homeowner comes with a steep learning curve, especially in New York City.`\
-https://nytimes.com/2025/06/21/realestate/the-hunt-first-time-homeowners.html
+**Brandon Marsh is 'locked in right now' for the Phillies: 'It's the best feeling'**\
+`After struggling to start the season, Marsh is "hitting the ball the other way really, really well," Trea Turner said. `\
+https://nytimes.com/athletic/6441605/2025/06/21/phillies-mets-brandon-marsh-locked-in/
 
-**How Far Would You Go (and How Much Would You Pay) to Get Away From It All?**\
-`From the new to the classic, from the affordable to the exorbitant, here are six getaways where you can find some peace and quiet.`\
-https://nytimes.com/2025/06/21/travel/off-the-grid-resorts.html
+**Should Your Home Feel Like a Hospital? Or a Theater?**\
+`A ruling on a dispute over lighting temperature.`\
+https://nytimes.com/interactive/2025/06/21/magazine/lighting-hospital-theater-hodgman-quiz.html
 
-**Should I Keep Paying Rent Increases, or Dent My Savings With a Down Payment?**\
-`It’s the age-old question: Rent or buy? Here are some things to remember that go beyond your month-to-month expenses.`\
-https://nytimes.com/2025/06/21/realestate/renting-versus-buying-seniors.html
+**Can I Use Sick Leave if I’m Not Actually Sick?**\
+`Are sick days a benefit I’m free to use however I want?`\
+https://nytimes.com/2025/06/21/magazine/sick-leave-days-ethics.html
 
-**Fifty Years After ‘Jaws,’ Shark Science Is Still Surfacing**\
-`The film’s release in 1975 haunted the reputation of sharks worldwide. But a generation of scientists helped to turn the tide.`\
-https://nytimes.com/2025/06/21/science/jaws-sharks-research.html
+**With Few Discount Airlines, Canadian Travelers Face Steeper Fares**\
+`A new report by Canada’s Competition Bureau recommends opening more of the country’s domestic airline market to foreign companies to help lower fares.`\
+https://nytimes.com/2025/06/21/world/canada/canada-airline-travel-fares.html
 
