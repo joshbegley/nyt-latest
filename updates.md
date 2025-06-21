@@ -1,3 +1,11 @@
+**B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/b-2-bombers-head-across-the-pacific-and-trump-is-scheduled-to-return-to-the-white-house-as-he-considers-strike-on-iran
+
+**Trump Sends Envoy to Belarus, Courting Ties With Russia’s Close Ally**\
+`The outreach to Belarus’s autocratic leader, Aleksandr G. Lukashenko, comes as the country has released at least 14 political prisoners.`\
+https://nytimes.com/2025/06/21/world/europe/trump-belarus-envoy-russia.html
+
 **Until Saturday: CFB 26 makes life slightly easier**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until-saturday/

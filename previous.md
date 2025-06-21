@@ -1,3 +1,11 @@
+**B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/b-2-bombers-head-across-the-pacific-and-trump-is-scheduled-to-return-to-the-white-house-as-he-considers-strike-on-iran
+
+**Trump Sends Envoy to Belarus, Courting Ties With Russia’s Close Ally**\
+`The outreach to Belarus’s autocratic leader, Aleksandr G. Lukashenko, comes as the country has released at least 14 political prisoners.`\
+https://nytimes.com/2025/06/21/world/europe/trump-belarus-envoy-russia.html
+
 **Until Saturday: CFB 26 makes life slightly easier**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419624/2025/06/21/florian-wirtz-liverpool-transfer
 **New Data Shows Just How Powerful the Next Weight-Loss Drugs May Be**\
 `The drugs in development include a pill that a new trial suggests is about as effective as Ozempic.`\
 https://nytimes.com/2025/06/21/well/new-weight-loss-drugs.html
-
-**The Next Generation of Weight Loss Drugs Is Coming**\
-`Drugmakers are racing to develop the next wave of obesity and diabetes medications that they hope will be even more powerful than those currently on the market. Dani Blum, a Well reporter, explains.`\
-https://nytimes.com/video/well/100000010237575/the-next-generation-of-weight-loss-drugs-is-coming.html
-
-**Vondrousova beats Sabalenka to reach first final since Wimbledon 2023**\
-`The 25-year-old has struggled with injury since she won the Wimbledon title as an unseeded player in 2023.`\
-https://nytimes.com/athletic/6441816/2025/06/21/tennis-vondrousova-sabalenka-german-open-result/
 
