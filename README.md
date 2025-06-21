@@ -1,3 +1,7 @@
+**Until Saturday: CFB 26 makes life slightly easier**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until-saturday/
+
 **Blackhawks acquire Andre Burakovsky for Joe Veleno in trade with Kraken**\
 `Andre Burakovsky will add some much-needed scoring punch to the Blackhawks lineup. `\
 https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-burakovsky-joe-veleno/
@@ -33,8 +37,4 @@ https://nytimes.com/video/well/100000010237575/the-next-generation-of-weight-los
 **Vondrousova beats Sabalenka to reach first final since Wimbledon 2023**\
 `The 25-year-old has struggled with injury since she won the Wimbledon title as an unseeded player in 2023.`\
 https://nytimes.com/athletic/6441816/2025/06/21/tennis-vondrousova-sabalenka-german-open-result/
-
-**The Pulse: Why so many Dodgers pitcher injuries?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6441424/2025/06/21/dodgers-pitcher-injuries-the-pulse/
 
