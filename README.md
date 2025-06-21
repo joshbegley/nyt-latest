@@ -1,3 +1,7 @@
+**Vance Blames L.A. Violence on California Democrats and Disparages Padilla**\
+`Vice President JD Vance said during a Los Angeles stop that Gov. Gavin Newsom and Mayor Karen Bass had encouraged protesters to engage in violence. He also criticized Senator Alex Padilla and called him by the wrong name.`\
+https://nytimes.com/2025/06/20/us/politics/vance-padilla-newsom-bass.html
+
 **Was Overrun**\
 `Christina Iverson and Doug Peterson’s second Saturday collaboration races at us with blistering speed.`\
 https://nytimes.com/2025/06/20/crosswords/daily-puzzle-2025-06-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.
 **An Iranian strike in downtown Haifa damaged at least two places of worship.**\
 `Shockwaves from the attack in Israel’s third-largest city damaged a mosque and a church.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/an-iranian-strike-in-downtown-haifa-damaged-at-least-two-places-of-worship
-
-**Notre Dame adds top-75 DBs Adams, O'Brien to rising recruiting class**\
-`Notre Dame beat several elite programs for Friday commitments from cornerback Khary Adams and safety Joey O'Brien.`\
-https://nytimes.com/athletic/6440589/2025/06/20/notre-dame-joey-obrien-khary-adams-commitments/
 
