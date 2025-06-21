@@ -1,6 +1,6 @@
-**Israel says it killed a commander of Iranian force that oversees proxy militias.**\
+**Israel says it killed a commander of the Iranian force that oversees proxy militias.**\
 `By Ronen Bergman and Aaron Boxerman`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump/israel-says-it-killed-a-commander-of-iranian-force-that-oversees-proxy-militias
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/israel-iran-commander-killed
 
 **Trump Is Vulnerable. Democrats Still Need a Strategy.**\
 `Three Opinion writers on why Trump’s deportations might be backfiring.`\
