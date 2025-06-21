@@ -1,4 +1,8 @@
-**Suspect in Minnesota Attacks Was a Prepper, Investigator Says**\
+**Dodgers Pledge Aid to L.A. Families Affected by Trump Crackdown**\
+`Pressed by Angelenos, including a large Latino fan base, the Dodgers promised support but stopped short of denouncing ICE raids that have outraged much of the metropolis.`\
+https://nytimes.com/2025/06/20/us/politics/la-dodgers-ice-raids.html
+
+**Suspect in Minnesota Attacks Was a Doomsday ‘Prepper,’ Investigator Says**\
 `An F.B.I. agent said Vance Boelter  left instructions for his wife in the event of a calamity, according to a court document.`\
 https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/20/us/trump-california-la-national-guard.html
 **At a Memorial for Anne Burrell, a Karaoke Tribute to Her Bold Style**\
 `The Food Network chef, who died Tuesday at 55, was remembered in a star-studded service that sent her off with a singalong.`\
 https://nytimes.com/2025/06/20/dining/anne-burrell-memorial-service.html
-
-**Trump and the Great Wait for Israelis and Iranians**\
-`The Times’s Jerusalem bureau chief explains what President Trump’s delay in deciding whether to intervene in the Israel-Iran war means for the people of both countries.`\
-https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-two-weeks.html
 
