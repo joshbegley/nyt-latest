@@ -1,3 +1,11 @@
+**LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
+`A missed penalty kick at the death sealed LAFC's elimination from the Club World Cup after two matches. Here's more analysis of its defeat`\
+https://nytimes.com/athletic/6441247/2025/06/20/lafc-esperance-tunis-club-world-cup-highlights-bouanga/
+
+**An Iran Deal in Two Weeks? Hard to Achieve, Even if Trump Really Wants One.**\
+`Negotiating with Tehran is time-consuming and difficult under the best of circumstances. And it remains unclear whether President Trump’s 14-day clock is more than a way to buy time for military preparations.`\
+https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-deal.html
+
 **How Trump Treats Black History Differently Than Other Parts of America’s Past**\
 `Since taking office in January, President Trump has tried to reframe the country’s past involving racism and discrimination by de-emphasizing that history or at times denying that it happened.`\
 https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-two-weeks.html
 **A Doctor Posted Video of Their Decapitated Baby. They Were Awarded $2.5 Million.**\
 `A Georgia couple hired a pathologist to do an autopsy after their first child died during childbirth. They accused him of posting images of the baby on Instagram without their consent.`\
 https://nytimes.com/2025/06/20/us/georgia-decapitated-baby-lawsuit.html
-
-**People With Severe Diabetes Are Cured in Small Trial of New Drug**\
-`Most in a small group of patients receiving a stem cell-based infusion no longer needed insulin, but the drug may not suit those with more manageable type 1 diabetes.`\
-https://nytimes.com/2025/06/20/health/diabetes-cure-insulin-stem-cell.html
-
-**Rafael Devers on Red Sox tenure: 'I do feel that I have earned some respect'**\
-`Devers discussed why he didn't play first base for Boston as he prepared to face his old team for the first time since a stunning trade.`\
-https://nytimes.com/athletic/6441139/2025/06/20/rafael-devers-red-sox-first-base-giants/
 

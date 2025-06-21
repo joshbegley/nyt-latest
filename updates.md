@@ -1,3 +1,11 @@
+**LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
+`A missed penalty kick at the death sealed LAFC's elimination from the Club World Cup after two matches. Here's more analysis of its defeat`\
+https://nytimes.com/athletic/6441247/2025/06/20/lafc-esperance-tunis-club-world-cup-highlights-bouanga/
+
+**An Iran Deal in Two Weeks? Hard to Achieve, Even if Trump Really Wants One.**\
+`Negotiating with Tehran is time-consuming and difficult under the best of circumstances. And it remains unclear whether President Trump’s 14-day clock is more than a way to buy time for military preparations.`\
+https://nytimes.com/2025/06/20/us/politics/trump-israel-iran-deal.html
+
 **How Trump Treats Black History Differently Than Other Parts of America’s Past**\
 `Since taking office in January, President Trump has tried to reframe the country’s past involving racism and discrimination by de-emphasizing that history or at times denying that it happened.`\
 https://nytimes.com/2025/06/20/us/politics/trump-black-history-federal-holidays.html
