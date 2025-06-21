@@ -1,10 +1,14 @@
+**Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
+`A hot-air balloon carrying 21 people fell from the sky in a region in southern Brazil popular with tourists.`\
+https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
+
 **Ex-Swansea boss Williams takes job at airport while on gardening leave**\
 `The 44-year-old was sacked by Swansea in February and just over a year at the Championship club.`\
 https://nytimes.com/athletic/6442015/2025/06/21/luke-williams-airport-swansea/
 
 **B-2 bombers head across the Pacific and Trump is scheduled to return to the White House as he considers strike on Iran.**\
 `By Maggie Haberman`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump/b2-stealth-bombers-guam
+https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
 
 **Trump Sends Envoy to Belarus, Courting Ties With Russia’s Close Ally**\
 `The outreach to Belarus’s autocratic leader, Aleksandr G. Lukashenko, comes as the country has released at least 14 political prisoners.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/weather/tornadoes-deaths-north-dakota-minnesota.h
 **Chelsea were mesmerised by Flamengo's wide combinations. This is how Felipe Luis' side do it**\
 `Flamengo pulled off a surprise win against Chelsea on Friday — this is how they did it`\
 https://nytimes.com/athletic/6441719/2025/06/21/flamengo-chelsea-wide-play-analysis/
-
-**Transfers TLDR: Florian Wirtz to Liverpool - all you need to know**\
-`Liverpool have added Germany star and highly-valued forward Florian Wirtz from Leverkusen - here we break down the mega deal`\
-https://nytimes.com/athletic/6419624/2025/06/21/florian-wirtz-liverpool-transfer-analysis/
 
