@@ -1,3 +1,7 @@
+**Suspect in Minnesota Attacks Was a Prepper, Investigator Says**\
+`An F.B.I. agent said Vance Boelter  left instructions for his wife in the event of a calamity, according to a court document.`\
+https://nytimes.com/2025/06/20/us/minnesota-assassination-preppers-boelter.html
+
 **LAFC 0 Espérance de Tunis 1: MLS side out of Club World Cup after PK drama**\
 `A missed penalty kick at the death sealed LAFC's elimination from the Club World Cup after two matches. Here's more analysis of its defeat`\
 https://nytimes.com/athletic/6441247/2025/06/20/lafc-esperance-tunis-club-world-cup-highlights-bouanga/
