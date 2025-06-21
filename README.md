@@ -1,3 +1,11 @@
+**New Data Shows Just How Powerful the Next Weight-Loss Drugs May Be**\
+`The drugs in development include a pill that a new trial suggests is about as effective as Ozempic.`\
+https://nytimes.com/2025/06/21/well/new-weight-loss-drugs.html
+
+**The Next Generation of Weight Loss Drugs Is Coming**\
+`Drugmakers are racing to develop the next wave of obesity and diabetes medications that they hope will be even more powerful than those currently on the market. Dani Blum, a Well reporter, explains.`\
+https://nytimes.com/video/well/100000010237575/the-next-generation-of-weight-loss-drugs-is-coming.html
+
 **Vondrousova beats Sabalenka to reach first final since Wimbledon 2023**\
 `The 25-year-old has struggled with injury since she won the Wimbledon title as an unseeded player in 2023.`\
 https://nytimes.com/athletic/6441816/2025/06/21/tennis-vondrousova-sabalenka-german-open-result/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/06/21/opinion/trump-immigration-deportations.html
 `Identifying the selections that were the biggest hits, misses, steals, busts and even duds between the 2015 and 2024 NHL Drafts.
 `\
 https://nytimes.com/athletic/6437064/2025/06/21/nhl-teams-best-worst-draft-picks/
-
-**Who’s the Mad King Now?**\
-`George III learned the hard way not to unleash troops on his people.`\
-https://nytimes.com/2025/06/21/opinion/trump-king-george.html
-
-**Why Israel Had to Act**\
-`The Oct. 7 Hamas attack on Israel showed the need for Israel to pre-empt threats against it rather than react defensively.`\
-https://nytimes.com/2025/06/21/opinion/israel-iran-attack-nuclear-pre-emptive-strike.html
 
