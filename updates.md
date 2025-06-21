@@ -1,3 +1,8 @@
+**Each NHL team's best and worst draft pick of the past decade**\
+`Identifying the selections that were the biggest hits, misses, steals, busts and even duds between the 2015 and 2024 NHL Drafts.
+`\
+https://nytimes.com/athletic/6437064/2025/06/21/nhl-teams-best-worst-draft-picks/
+
 **Trump Is Vulnerable. Democrats Still Need a Strategy.**\
 `Three Opinion writers on why Trump’s deportations might be backfiring.`\
 https://nytimes.com/2025/06/21/opinion/trump-immigration-deportations.html
