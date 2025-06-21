@@ -1,3 +1,7 @@
+**Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
+`A hot-air balloon carrying 21 people caught fire and fell from the sky in a region in southern Brazil popular with tourists.`\
+https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
+
 **Nathan Silver, Who Chronicled a Vanished New York, Dies at 89**\
 `An architect, he wrote in his book “Lost New York” about the many buildings that were destroyed before passage of the city’s landmarks preservation law.`\
 https://nytimes.com/2025/06/21/nyregion/nathan-silver-dead.html

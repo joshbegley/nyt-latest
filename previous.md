@@ -7,7 +7,7 @@ https://nytimes.com/2025/06/21/nyregion/nathan-silver-dead.html
 https://nytimes.com/2025/06/21/us/politics/senate-snap-food-stamps.html
 
 **Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
-`A hot-air balloon carrying 21 people fell from the sky in a region in southern Brazil popular with tourists.`\
+`A hot-air balloon carrying 21 people caught fire and fell from the sky in a region in southern Brazil popular with tourists.`\
 https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
 
 **Ex-Swansea boss Williams takes job at airport while on gardening leave**\
