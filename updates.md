@@ -1,3 +1,11 @@
+**Rashford 'more natural' playing as a No 9 amid uncertain Man United future**\
+`The debate over where the England international’s best position has followed Rashford through his career.`\
+https://nytimes.com/athletic/6442161/2025/06/21/rashford-striker-position-man-united/
+
+**Dr. Demento, Song Satirist and D.J. Who Promoted Weird Al, Is Retiring**\
+`Barry Hansen, mostly known by his D.J. name, said he’d leave the airwaves after 55 years of playing parody songs. His syndicated show was once heard on more than 150 radio stations.`\
+https://nytimes.com/2025/06/21/arts/music/dr-demento-radio-dj-retires.html
+
 **Hot-Air Balloon Crashes in Brazil, Killing at Least 8 People**\
 `A hot-air balloon carrying 21 people caught fire and fell from the sky in a region in southern Brazil popular with tourists.`\
 https://nytimes.com/2025/06/21/world/americas/brazil-hot-balloon-crash.html
