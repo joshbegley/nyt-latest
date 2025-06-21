@@ -1,3 +1,11 @@
+**Was Overrun**\
+`Christina Iverson and Doug Peterson’s second Saturday collaboration races at us with blistering speed.`\
+https://nytimes.com/2025/06/20/crosswords/daily-puzzle-2025-06-21.html
+
+**Padres' Mike Shildt has 'no regrets' on benches-clearing confrontation with Dodgers**\
+`Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
+https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/
+
 **Padres' Mike Shildt on bench-clearing confrontation with Dodgers: 'I have no regrets'**\
 `Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
 https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/

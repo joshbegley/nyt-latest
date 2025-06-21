@@ -1,4 +1,8 @@
-**Padres' Mike Shildt on bench-clearing confrontation with Dodgers: 'I have no regrets'**\
+**Was Overrun**\
+`Christina Iverson and Doug Peterson’s second Saturday collaboration races at us with blistering speed.`\
+https://nytimes.com/2025/06/20/crosswords/daily-puzzle-2025-06-21.html
+
+**Padres' Mike Shildt has 'no regrets' on benches-clearing confrontation with Dodgers**\
 `Robert Suarez will appeal his three-game suspension for hitting Shohei Ohtani: "I was never trying to run into trouble or hit anybody."`\
 https://nytimes.com/athletic/6441393/2025/06/20/padres-mike-shildt-robert-suarez-suspensions-dodgers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/world/israel-iran-maps-tracking/an-iranian-strike-
 **Notre Dame adds top-75 DBs Adams, O'Brien to rising recruiting class**\
 `Notre Dame beat several elite programs for Friday commitments from cornerback Khary Adams and safety Joey O'Brien.`\
 https://nytimes.com/athletic/6440589/2025/06/20/notre-dame-joey-obrien-khary-adams-commitments/
-
-**Giants' Justin Verlander begins paternity leave, will miss Red Sox series**\
-`The soonest Verlander could return is Tuesday, when the Giants host the Miami Marlins.`\
-https://nytimes.com/athletic/6441301/2025/06/20/giants-justin-verlander-paternity-leave/
 
