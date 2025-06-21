@@ -1,3 +1,7 @@
+**Mahmoud Khalil Returns to New York After Months in Detention**\
+`The Trump administration remains committed to deporting Mr. Khalil, a Columbia graduate and leading figure in the pro-Palestinian protest movement.`\
+https://nytimes.com/2025/06/21/nyregion/mahmoud-khalil-return-to-new-york.html
+
 **Mbappe to miss Real Madrid's Club World Cup game against Pachuca due to illness**\
 `Dani Carvajal will also not be available for Sunday’s game against the Mexican side but Antonio Rudiger is set to return for Real Madrid.`\
 https://nytimes.com/athletic/6441982/2025/06/21/real-madrid-mbappe-club-world-cup-pachuca-news/
