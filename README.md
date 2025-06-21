@@ -1,3 +1,15 @@
+**Blackhawks acquire Andre Burakovsky for Joe Veleno in trade with Kraken**\
+`Andre Burakovsky will add some much-needed scoring punch to the Blackhawks lineup. `\
+https://nytimes.com/athletic/6441893/2025/06/21/blackhawks-kraken-trade-andre-burakovsky-joe-veleno/
+
+**Summer Is for Strawberry Shortcake**\
+`And this classic recipe, with its easy, buttery biscuits and simply macerated berries, is the one to make over and over.`\
+https://nytimes.com/2025/06/21/dining/easy-strawberry-shortcake-recipe-and-more-summer-desserts.html
+
+**Right-Wing Violence Is Not a Fringe Issue**\
+`Let’s not confuse ourselves about where the primary responsibility lies.`\
+https://nytimes.com/2025/06/21/opinion/political-violence-right-wing.html
+
 **At Least 3 Dead as Tornadoes Strike North Dakota, Officials Say**\
 `The deaths came after a series of large and long-lasting storms moved through North Dakota and Minnesota Friday night.`\
 https://nytimes.com/2025/06/21/weather/tornadoes-deaths-north-dakota-minnesota.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6441816/2025/06/21/tennis-vondrousova-sabalenka-ger
 **The Pulse: Why so many Dodgers pitcher injuries?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6441424/2025/06/21/dodgers-pitcher-injuries-the-pulse/
-
-**Canadiens hope to escape NHL’s mushy middle. The problem: So does everyone else**\
-`A third of the NHL, including Montreal, is looking to emerge from some rebuilding and take a step toward consistently making the playoffs.`\
-https://nytimes.com/athletic/6440654/2025/06/21/canadiens-offseason-trades-nhl-standings/
-
-**What I'm hearing about the Jets: Jonathan Toews' impact on Nikolaj Ehlers' future, more**\
-`What can Toews be at this stage of his career? Plus, the latest on the Jets' plans at the draft and other key roster decisions.
-`\
-https://nytimes.com/athletic/6438453/2025/06/21/winnipeg-jets-jonathan-toews-nikolaj-ehlers/
-
-**A.I. Sludge Has Entered the Job Search**\
-`Candidates are frustrated. Employers are overwhelmed. The problem? An untenable pile of applications — many of them generated with the help of A.I. tools.`\
-https://nytimes.com/2025/06/21/business/dealbook/ai-job-applications.html
 
