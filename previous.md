@@ -1,3 +1,7 @@
+**At Least 3 Dead as Tornadoes Strike North Dakota, Officials Say**\
+`The deaths came after a series of large and long-lasting storms moved through North Dakota and Minnesota Friday night.`\
+https://nytimes.com/2025/06/21/weather/tornadoes-deaths-north-dakota-minnesota.html
+
 **Chelsea were mesmerised by Flamengo's wide combinations. This is how Felipe Luis' side do it**\
 `Flamengo pulled off a surprise win against Chelsea on Friday — this is how they did it`\
 https://nytimes.com/athletic/6441719/2025/06/21/flamengo-chelsea-wide-play-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6438453/2025/06/21/winnipeg-jets-jonathan-toews-nik
 **A.I. Sludge Has Entered the Job Search**\
 `Candidates are frustrated. Employers are overwhelmed. The problem? An untenable pile of applications — many of them generated with the help of A.I. tools.`\
 https://nytimes.com/2025/06/21/business/dealbook/ai-job-applications.html
-
-**Israel Says It Killed Commander of Iranian Force Overseeing Proxy Militias**\
-`Mohammed Said Izadi was one of the few people who knew in advance about Hamas’s plan to launch a surprise attack on Israel, The New York Times has reported.`\
-https://nytimes.com/2025/06/21/world/middleeast/israel-iran-commander-killed.html
 
