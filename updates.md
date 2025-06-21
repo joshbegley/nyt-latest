@@ -1,3 +1,15 @@
+**Nicolas Jackson's red card: The most concerning part is he doesn't fully understand how it happened**\
+`Jackson’s career at Chelsea could depend on the success of the self-reflection that lies ahead`\
+https://nytimes.com/athletic/6441391/2025/06/21/nicolas-jackson-red-card-understand/
+
+**Off-target shots: How the rise of the 'good miss' is aiding talent ID in football**\
+`Why off-target shots deserve more consideration in conventional analysis of a player’s shooting ability`\
+https://nytimes.com/athletic/6304324/2025/06/21/analysing-missed-chances-premier-league-football/
+
+**How an Auckland soccer club rose to prominence in rugby-loving New Zealand**\
+`The team, which competes in the Australian top flight, won the league stage and narrowly missed out on lifting the A-League Champions trophy`\
+https://nytimes.com/athletic/6435542/2025/06/21/bill-foley-auckland-fc-stanley-cup-steven-adams-golden-knights/
+
 **A Heat Wave Leaves Britons Looking for Ways to Stay Cool**\
 `As high temperatures have become more common in recent years, some people are adjusting, including by investing in air-conditioners.`\
 https://nytimes.com/2025/06/21/world/europe/uk-heat-wave-britain.html
