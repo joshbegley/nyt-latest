@@ -1,3 +1,15 @@
+**Mariners' Cal Raleigh sets multiple MLB records with 30th home run**\
+`The catcher known as "Big Dumper" has hit five more homers through 75 games than any primary catcher in major-league history.`\
+https://nytimes.com/athletic/6442500/2025/06/21/mariners-cal-raleigh-30-home-runs/
+
+**4 Missing After Medical Helicopter Crashes in Quebec Lake**\
+`The helicopter was carrying four crew members and a patient when it crashed on Friday night, officials said.`\
+https://nytimes.com/2025/06/21/world/canada/medical-helicopter-crash-canada.html
+
+**Mahmoud Khalil Lands at Newark After Months of Detention**\
+`Mahmoud Khalil, a pro-Palestinian activist detained for his role in protests at Columbia University, returned to the East Coast on bail after 104 days of imprisonment in Louisiana.`\
+https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-detention-return.html
+
 **Cazorla helps Real Oviedo earn promotion to La Liga for first time in 24 years**\
 `Cazorla came off the bench to score an emphatic free-kick with his weak foot in the semi-final victory over Almeria on June 11.`\
 https://nytimes.com/athletic/6442538/2025/06/21/santi-cazorla-oviedo-promotion-la-liga/
