@@ -1,3 +1,15 @@
+**England Under-21 into semi-finals of Euros after 3-1 victory over Spain**\
+`England will face the Netherlands in the semi-final on Wednesday.`\
+https://nytimes.com/athletic/6442435/2025/06/21/england-spain-under-21-euros-2025/
+
+**No U.S. Decision on Joining War Yet, Though It Could Come in Days, Israeli Officials Say**\
+`Israel on Saturday struck sites in southwestern Iran that would most likely be on any potential flight path used by U.S. warplanes on the way to attack a key Iranian nuclear facility.`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/israel-iran-us-war-trump
+
+**Game 7 between Pacers and Thunder could come down to 'contest of wills'**\
+`The Pacers have never won an NBA title. The Thunder haven't won since 1979, when they were the Seattle SuperSonics.`\
+https://nytimes.com/athletic/6442366/2025/06/21/nba-pacers-thunder-game-7-preview/
+
 **Rafael Devers hits first home run as a Giant against Red Sox, his former team**\
 `The star Boston traded six days ago hit a two-run opposite-field blast in the third inning of Saturday's game at Oracle Park.`\
 https://nytimes.com/athletic/6442413/2025/06/21/rafael-devers-home-run-giants-red-sox/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/21/world/middleeast/israel-iran-war-attack-nuclear.h
 **Haji Wright leaves USMNT Gold Cup squad with Achilles injury**\
 `The Coventry forward will play no further part in the tournament`\
 https://nytimes.com/athletic/6440479/2025/06/21/usmnt-haji-wright-injury-news/
-
-**Wembanyama opens up on kung fu training, loss of Popovich as coach**\
-`Wembanyama used a trip to the Shaolin Temple to work on his range of movement, which included kung fu training.`\
-https://nytimes.com/athletic/6442336/2025/06/21/victor-wembanyama-kung-fu-monks/
-
-**Yankees pull Clarke Schmidt after 7 no-hit innings, hear boos**\
-`JT Brubaker allowed a hit to Orioles catcher Gary Sánchez after replacing Schmidt in the eighth inning.`\
-https://nytimes.com/athletic/6442306/2025/06/21/yankees-clarke-schmidt-no-hitter-seven-innings/
-
-**Jasprit Bumrah: England witnesses a rare talent at the peak of his powers**\
-`What is it like to face one of the all-time great bowlers? The Athletic speaks to some cricketers who have`\
-https://nytimes.com/athletic/6442244/2025/06/21/england-india-jasprit-bumrah-technique/
 
