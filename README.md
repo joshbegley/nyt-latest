@@ -1,3 +1,7 @@
+**Air India C.E.O.’s Remarks After Plane Crash Draw Scrutiny**\
+`A video message by Campbell Wilson, Air India’s chief executive, closely resembled what the head of American Airlines said after a deadly crash months earlier.`\
+https://nytimes.com/2025/06/21/business/air-india-crash-ceo-speech.html
+
 **Benches clear in Anaheim after Zach Neto hit by pitch**\
 `Neto was hit on the right wrist in the third inning of a 3-2 Astros win on Friday.`\
 https://nytimes.com/athletic/6441697/2025/06/21/angels-astros-benches-clear-zach-neto-hunter-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440842/2025/06/21/nuno-espirito-santo-nottingham-f
 **The New York Times in Print for Saturday, June 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/21/todays-new-york-times
-
-**Brewers' Jacob Misiorowski dominates Twins, starts career with MLB record 11 no-hit innings**\
-`Misiorowski averaged 100.4 mph with his fastball, and his mid-90s slider produced some of the ugliest swings in MLB this season.`\
-https://nytimes.com/athletic/6441468/2025/06/21/brewers-jacob-misiorowski-mlb-record-no-hit-innings/
 

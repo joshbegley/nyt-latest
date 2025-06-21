@@ -1,3 +1,7 @@
+**Benches clear in Anaheim after Zach Neto hit by pitch**\
+`Neto was hit on the right wrist in the third inning of a 3-2 Astros win on Friday.`\
+https://nytimes.com/athletic/6441697/2025/06/21/angels-astros-benches-clear-zach-neto-hunter-brown/
+
 **Detention Is Over for Students Trump Seeks to Deport. Not His Crackdown.**\
 `An effort to expel students the administration says are a national security threat has given way to a broad campaign that touches many corners of American life.`\
 https://nytimes.com/2025/06/21/nyregion/mahmoud-khalil-immigration-crackdown.html
