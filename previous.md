@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Aaron Boxerman, Luke Broadwater and Mark Landler`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump/heres-the-latest
+**As Iran and Israel Battle, the Rest of the Mideast Fears What’s Next**\
+`The fight between two well-armed regional powers has their neighbors worried about the conflict spreading, a concern worsened by the prospect of U.S. involvement.`\
+https://nytimes.com/2025/06/21/world/middleeast/iran-israel-regional-consequences.html
 
-**Live Updates: Israel and Iran Trade New Strikes on 9th Day of War**\
-`President Trump said there was little he could do to stop the Israeli attacks. A European diplomatic effort to rein in the hostilities ended without a breakthrough on Friday.`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump
+**Trump Got the Fight He Wanted. Did It Turn Out the Way He Expected?**\
+`The president’s clashes with Los Angeles over immigration were a decade in the making — and their outcome remains unclear.`\
+https://nytimes.com/2025/06/21/magazine/trump-los-angeles-immigration.html
 
-**Brazil expresses interest in hosting 2029 Club World Cup**\
-`The Athletic reported in December that FIFA was considering again hosting the tournament in the United States.`\
-https://nytimes.com/athletic/6441748/2025/06/21/brazil-club-world-cup-2029/
+**Sheltering in a Bunker, Iran’s Supreme Leader Names Potential Successors**\
+`Ayatollah Ali Khamenei has not only picked replacements in his chain of military command in case they are killed in Israeli strikes, he has also named three senior clerics to replace him should he, too, be slain.`\
+https://nytimes.com/2025/06/21/world/middleeast/iran-ayatollah-israel-war.html
 
-**Air India C.E.O.’s Remarks After Plane Crash Draw Scrutiny**\
-`A video message by Campbell Wilson, Air India’s chief executive, closely resembled what the head of American Airlines said after a deadly crash months earlier.`\
-https://nytimes.com/2025/06/21/business/air-india-crash-ceo-speech.html
+**When an Eyelash Pluck Is Unexpectedly Billed as a Surgical Procedure**\
+`A patient went to his eye doctor for a routine checkup. Why was he charged for surgery after his doctor removed an eyelash?`\
+https://nytimes.com/2025/06/21/your-money/eyelash-pluck-surgery-insurance.html
 
-**Benches clear in Anaheim after Zach Neto hit by pitch**\
-`Neto was hit on the right wrist in the third inning of a 3-2 Astros win on Friday.`\
-https://nytimes.com/athletic/6441697/2025/06/21/angels-astros-benches-clear-zach-neto-hunter-brown/
+**Influencers Step Onto Center Stage at Cannes**\
+`Big brands are increasingly courting social media stars, who descended on a major annual festival in France to pitch themselves to advertisers.`\
+https://nytimes.com/2025/06/21/business/cannes-social-media-influencers.html
 
-**Detention Is Over for Students Trump Seeks to Deport. Not His Crackdown.**\
-`An effort to expel students the administration says are a national security threat has given way to a broad campaign that touches many corners of American life.`\
-https://nytimes.com/2025/06/21/nyregion/mahmoud-khalil-immigration-crackdown.html
+**Revisiting the Hunt: First-Time Buyers Share What Went Wrong and Right**\
+`Being a new homeowner comes with a steep learning curve, especially in New York City.`\
+https://nytimes.com/2025/06/21/realestate/the-hunt-first-time-homeowners.html
 
-**N.Y.C. Mayoral Primary May Hinge on Early Voters as Heat Wave Looms**\
-`Primary Day turnout will also be a factor in a race that could come down to whether Andrew Cuomo’s union supporters and paid staff can fend off Zohran Mamdani’s volunteer army.`\
-https://nytimes.com/2025/06/21/nyregion/voting-primary-nyc-heat.html
+**How Far Would You Go (and How Much Would You Pay) to Get Away From It All?**\
+`From the new to the classic, from the affordable to the exorbitant, here are six getaways where you can find some peace and quiet.`\
+https://nytimes.com/2025/06/21/travel/off-the-grid-resorts.html
 
-**The Question Dividing New Yorkers: Is the City Sinking or Bouncing Back?**\
-`On the cusp of choosing the city’s next mayor, New Yorkers are taking stock of their town. But many are split on whether it’s back on track, or off the rails.`\
-https://nytimes.com/2025/06/21/nyregion/state-of-new-york-city.html
+**Should I Keep Paying Rent Increases, or Dent My Savings With a Down Payment?**\
+`It’s the age-old question: Rent or buy? Here are some things to remember that go beyond your month-to-month expenses.`\
+https://nytimes.com/2025/06/21/realestate/renting-versus-buying-seniors.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/21/crosswords/spelling-bee-forum.html
+**Fifty Years After ‘Jaws,’ Shark Science Is Still Surfacing**\
+`The film’s release in 1975 haunted the reputation of sharks worldwide. But a generation of scientists helped to turn the tide.`\
+https://nytimes.com/2025/06/21/science/jaws-sharks-research.html
 
-**How a Neon Light Artist Spends Her Day in the Studio**\
-`Lena Imamura, the co-owner of GLO Studio, taps into her alter ego to get through a day of flames, shopping for materials and karaoke.`\
-https://nytimes.com/2025/06/21/nyregion/lena-imamura-glo-studio.html
+**Trump Says He Wants to Fund More Trade Schools. Just Not These.**\
+`The Job Corps program has long been the subject of debate, but it is now also a point of contention in the administration’s efforts to pull back the social safety net.`\
+https://nytimes.com/2025/06/21/business/job-corps-trump-trade-schools.html
 
