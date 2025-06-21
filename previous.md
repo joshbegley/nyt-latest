@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6442435/2025/06/21/england-spain-under-21-euros-202
 
 **No U.S. Decision on Joining War Yet, Though It Could Come in Days, Israeli Officials Say**\
 `Israel on Saturday struck sites in southwestern Iran that would most likely be on any potential flight path used by U.S. warplanes on the way to attack a key Iranian nuclear facility.`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump/israel-iran-us-war-trump
+https://nytimes.com/2025/06/21/world/middleeast/israel-iran-us-war-trump.html
 
 **Game 7 between Pacers and Thunder could come down to 'contest of wills'**\
 `The Pacers have never won an NBA title. The Thunder haven't won since 1979, when they were the Seattle SuperSonics.`\

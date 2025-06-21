@@ -1,3 +1,7 @@
+**No U.S. Decision on Joining War Yet, Though It Could Come in Days, Israeli Officials Say**\
+`Israel on Saturday struck sites in southwestern Iran that would most likely be on any potential flight path used by U.S. warplanes on the way to attack a key Iranian nuclear facility.`\
+https://nytimes.com/2025/06/21/world/middleeast/israel-iran-us-war-trump.html
+
 **England Under-21 into semi-finals of Euros after 3-1 victory over Spain**\
 `England will face the Netherlands in the semi-final on Wednesday.`\
 https://nytimes.com/athletic/6442435/2025/06/21/england-spain-under-21-euros-2025/
