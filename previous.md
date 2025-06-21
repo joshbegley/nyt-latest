@@ -1,3 +1,7 @@
+**LeBrun rumblings: Who was in on Toews, plus latest on Marner, McDavid, Tavares, Robertson and more**\
+`Trade and free-agency news from around the league: Marner's considering two-year deals, McDavid's in no rush and Tavares-Leafs isn't close.`\
+https://nytimes.com/athletic/6442128/2025/06/21/nhl-free-agency-rumblings-marner-mcdavid-tavares/
+
 **Windy Conditions Fan Wildfires in the West**\
 `The Forsyth fire in Utah threatened a small community in the state’s southwest corner. Farther west, the Conner fire burned rapidly near Lake Tahoe.`\
 https://nytimes.com/2025/06/21/weather/windy-conditions-fan-wildfires-in-the-west.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/world/middleeast/b2-stealth-bombers-guam.html
 **Trump Sends Envoy to Belarus, Courting Ties With Russia’s Close Ally**\
 `The outreach to Belarus’s autocratic leader, Aleksandr G. Lukashenko, comes as the country has released at least 14 political prisoners.`\
 https://nytimes.com/2025/06/21/world/europe/trump-belarus-envoy-russia.html
-
-**Until Saturday: CFB 26 makes life slightly easier**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6441985/2025/06/21/ea-sports-cfb-26-deep-dive-until-saturday/
 

@@ -1,3 +1,7 @@
+**LeBrun rumblings: Who was in on Toews, plus latest on Marner, McDavid, Tavares, Robertson and more**\
+`Trade and free-agency news from around the league: Marner's considering two-year deals, McDavid's in no rush and Tavares-Leafs isn't close.`\
+https://nytimes.com/athletic/6442128/2025/06/21/nhl-free-agency-rumblings-marner-mcdavid-tavares/
+
 **Windy Conditions Fan Wildfires in the West**\
 `The Forsyth fire in Utah threatened a small community in the state’s southwest corner. Farther west, the Conner fire burned rapidly near Lake Tahoe.`\
 https://nytimes.com/2025/06/21/weather/windy-conditions-fan-wildfires-in-the-west.html
