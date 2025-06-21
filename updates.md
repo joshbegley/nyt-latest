@@ -1,3 +1,15 @@
+**Elly De La Cruz vomits on field, stays in game and hits 435-foot homer**\
+`After getting thrown out at home while trying to take an extra base on a triple, De La Cruz drank a lot of water. It didn't stay down long.`\
+https://nytimes.com/athletic/6442466/2025/06/21/elly-de-la-cruz-reds-vomits-home-run/
+
+**USMNT head coach Pochettino 'jealous' about Juventus White House visit**\
+`McKennie and Weah were part of a delegation of Juventus players, coaches and dignitaries invited to the White House earlier this week.`\
+https://nytimes.com/athletic/6442491/2025/06/21/usmnt-pochettino-juventus-white-house-trump/
+
+**Bringing a Plus One**\
+`Ruth Bloomfield Margolin and Hannah Margolin present a perfect collaboration, and invite us all to crash.`\
+https://nytimes.com/2025/06/21/crosswords/daily-puzzle-2025-06-22.html
+
 **Bucks guard Pat Connaughton exercises player option: Source**\
 `With Connaughton's decision, the Bucks now have five players on guaranteed contracts for next season.`\
 https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/

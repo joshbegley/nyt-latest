@@ -1,3 +1,15 @@
+**Elly De La Cruz vomits on field, stays in game and hits 435-foot homer**\
+`After getting thrown out at home while trying to take an extra base on a triple, De La Cruz drank a lot of water. It didn't stay down long.`\
+https://nytimes.com/athletic/6442466/2025/06/21/elly-de-la-cruz-reds-vomits-home-run/
+
+**USMNT head coach Pochettino 'jealous' about Juventus White House visit**\
+`McKennie and Weah were part of a delegation of Juventus players, coaches and dignitaries invited to the White House earlier this week.`\
+https://nytimes.com/athletic/6442491/2025/06/21/usmnt-pochettino-juventus-white-house-trump/
+
+**Bringing a Plus One**\
+`Ruth Bloomfield Margolin and Hannah Margolin present a perfect collaboration, and invite us all to crash.`\
+https://nytimes.com/2025/06/21/crosswords/daily-puzzle-2025-06-22.html
+
 **Bucks guard Pat Connaughton exercises player option: Source**\
 `With Connaughton's decision, the Bucks now have five players on guaranteed contracts for next season.`\
 https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6442366/2025/06/21/nba-pacers-thunder-game-7-previe
 **Rafael Devers hits first home run as a Giant against Red Sox, his former team**\
 `The star Boston traded six days ago hit a two-run opposite-field blast in the third inning of Saturday's game at Oracle Park.`\
 https://nytimes.com/athletic/6442413/2025/06/21/rafael-devers-home-run-giants-red-sox/
-
-**Midwest Cities Bake as Heat Wave Blankets the Central U.S.**\
-`St. Louis, Omaha and Des Moines were among the cities that saw heat indexes rise toward triple digits, with similar temperatures expected on the East Coast by Monday.`\
-https://nytimes.com/2025/06/21/us/heat-wave-midwest-central-us.html
-
-**Several U.S. B-2 bombers were deployed west across the Pacific.**\
-`The aircraft can carry the bunker-buster bombs that would be necessary to penetrate the Fordo underground nuclear site in Iran.`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/several-us-b-2-bombers-were-deployed-west-across-the-pacific
-
-**The Briefing: Inter 2 Urawa Red Diamonds 1 – Lautaro Martinez-led comeback in Seattle eliminates Urawa**\
-`James Horncastle and Mark Carey analyse Saturday's Group E game at Lumen Field  `\
-https://nytimes.com/athletic/6427682/2025/06/21/inter-urawa-red-diamonds-analysis-club-world-cup/
 
