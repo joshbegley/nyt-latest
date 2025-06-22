@@ -3,8 +3,8 @@
 https://nytimes.com/2025/06/22/world/middleeast/damascus-church-bombing.html
 
 **Iranian Officials Try to Project Sense of Normalcy, Though Nothing Is Normal**\
-`The mood in the government after the U.S. attacks is one of defeat and national humiliation. But state media are showing people going about their daily routines.`\
-https://nytimes.com/2025/06/22/world/middleeast/iran-government-defeat-humiliation.html
+`The mood in the government after the U.S. attacks is one of defeat and humiliation. But state media are showing people going about their daily routines.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-government-us-attack.html
 
 **What Iran Does Next**\
 `Among the most likely options are asymmetric or terrorist attacks, although the time frame is impossible to gauge.`\
