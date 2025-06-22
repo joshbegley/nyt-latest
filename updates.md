@@ -1,3 +1,11 @@
+**Yankees takeaways: Jazz Chisholm Jr. sparks comeback, Paul Goldschmidt's sneaky speed**\
+`Chisholm is hitting .350 with a .987 OPS in 17 games since returning from injury, and he drove in the winning run Sunday.`\
+https://nytimes.com/athletic/6444146/2025/06/22/new-york-yankees-jazz-chisholm-paul-goldschmidt/
+
+**Sampdoria stay up as Serie B relegation play-off abandoned**\
+`The game was abandoned in the 65th minute with Sampdoria leading 2-0 on the night and 4-0 on aggregate.`\
+https://nytimes.com/athletic/6444023/2025/06/22/sampdoria-serie-b-relegation-play-off/
+
 **U.S. Officials Concede They Don’t Know Whereabouts of Iran’s Uranium Stockpile**\
 `Rafael Mariano Grossi, the director of general of the International Atomic Energy Agency, said he believed Tehran’s stockpile of near-bomb-grade nuclear material had been moved before the strikes.`\
 https://nytimes.com/2025/06/22/us/politics/iran-uranium-stockpile-whereabouts.html
