@@ -1,3 +1,7 @@
+**Carlos Alcaraz beats Jiri Lehecka to win second Queen's title**\
+`Alcaraz prepared for his Wimbledon title defense with a close-run win over the dangerous Lehečka.`\
+https://nytimes.com/athletic/6443226/2025/06/22/tennis-alcaraz-lehecka-queens-final-result-analysis/
+
 **6 Dead After Boat Capsizes on Lake Tahoe**\
 `A large wave overturned a 27-foot-long boat on Saturday afternoon, the U.S. Coast Guard said. Two people remained missing.`\
 https://nytimes.com/2025/06/22/us/lake-tahoe-boat-capsize.html
@@ -9,6 +13,10 @@ https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-d
 **Josh Harris spends $500,000 on Jayden Daniels rookie card to display at stadium**\
 `Harris bought the card with Daniels standing beside him`\
 https://nytimes.com/athletic/6443334/2025/06/22/jayden-daniels-rookie-card-josh-harris/
+
+**Bublik beats Medvedev to win Halle Open, reveals near-retirement from tennis**\
+`Following his second Halle Open triumph in three years, the Kazakh said he "nearly called it quits" on his tennis career in 2024.`\
+https://nytimes.com/athletic/6443246/2025/06/22/tennis-alexander-bublik-halle-medvedev/
 
 **Ceviche, for Sure**\
 `Tangy, spicy and refreshing, easy to make and even easier to eat.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6443203/2025/06/22/yankees-ryan-yarbrough-injury-al
 **The Pulse: Worst champ ever? We can explain.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6442803/2025/06/22/the-worst-nba-champion-ever-its-not-shade-let-us-explain/
-
-**Vance says Iran’s nuclear program has been ‘substantially delayed.’**\
-`The vice president stopped short of backing President Trump’s assertion that the three bombed facilities had been “totally obliterated.”`\
-https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclear-sites-damage
-
-**The Abu Dhabi derby - Man City v Al Ain is a contest between royal brothers**\
-`In this Club World Cup fixture, one team is owned by the president of the United Arab Emirates, the other by its deputy president`\
-https://nytimes.com/athletic/6442671/2025/06/22/abu-dhabi-derby-man-city-mansour/
 
