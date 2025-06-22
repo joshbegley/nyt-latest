@@ -1,8 +1,16 @@
+**U.S. Military Is Pulled Back Into Middle East Wars**\
+`The strikes on Iran ushered in a period of high alert as the Pentagon braced for almost-certain retaliation against American forces in the region.`\
+https://nytimes.com/2025/06/21/us/politics/military-middle-east-wars.html
+
+**LSU takes Game 1 of College World Series vs. Coastal Carolina**\
+`Anderson allowed three hits and struck out 10, throwing 130 pitches.`\
+https://nytimes.com/athletic/6442777/2025/06/21/lsu-coastal-carolina-college-world-series-game-1/
+
 **FIFA's Gianni Infantino says soccer will be the 'No. 1 sport' in U.S.**\
 `“It will be top, top, top. One of the top leagues in the world, for sure," FIFA's president said. `\
 https://nytimes.com/athletic/6442615/2025/06/21/gianni-infantino-fifa-fanatics-fest-promotion-relegation/
 
-**Canada held by Curacao in frustrating Gold Cup group stage draw**\
+**Canada held by Curaçao in frustrating Gold Cup group stage draw**\
 `Jesse Marsch's side still has some work to do to book a quarterfinal spot.`\
 https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6442594/2025/06/21/rafael-devers-powers-giants-past
 **Iran built Fordo deep inside a mountain to withstand aerial attacks.**\
 `By Helene Cooper, Eric Schmitt and Samuel Granados`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/iran-built-fordo-deep-inside-a-mountain-to-withstand-aerial-attacks
-
-**Here are the latest developments.**\
-`By Eric Nagourney and Maggie Haberman`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump/here-are-the-latest-developments
-
-**Imanaga's expected return could be the boost the Cubs' starting rotation needs**\
-`Imanaga's return could carry the Cubs' momentum as they make a push into the postseason. They defeated the Mariners 10-7 on Saturday.`\
-https://nytimes.com/athletic/6442566/2025/06/21/cubs-shota-imanaga-return-expected/
 
