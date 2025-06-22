@@ -1,3 +1,7 @@
+**Everton make progress on deal to sign Tete on free transfer**\
+`The 29-year-old is set to leave Craven Cottage when his contract expires at the end of this month.`\
+https://nytimes.com/athletic/6443087/2025/06/22/everton-transfers-kenny-tete/
+
 **America Strikes Iran**\
 `We explain what we know about the attacks.`\
 https://nytimes.com/2025/06/22/briefing/america-trump-iran-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442948/2025/06/22/mets-beat-phillies-end-losing-st
 **How to watch Liberty at Storm: Breanna Stewart returns to Seattle in heavyweight clash**\
 `Stewart leads the New York Liberty, who have lost two of their last three games, into battle against her former team.`\
 https://nytimes.com/athletic/6440961/2025/06/22/liberty-storm-breanna-stewart-seattle-how-to-watch/
-
-**After wildly entertaining NBA playoffs and finals, is there a more perfect coda than a Game 7?**\
-`Sunday's finale alone is enough to deem this postseason special, but the good times rolled all the way through. Ratings be damned.`\
-https://nytimes.com/athletic/6442630/2025/06/22/2025-nba-playoffs-ratings-game-7-classic/
 
