@@ -1,3 +1,7 @@
+**Trump Claims U.S. Strikes on Iran Nuclear Sites Were a Success**\
+`President Trump warned of “far greater” attacks on Iran if the country did not make peace with Israel and the United States.`\
+https://nytimes.com/video/world/middleeast/100000010242831/trump-iran-nuclear-sites.html
+
 **Republican Lawmakers Cheer Strike on Iran as Top Democrats Condemn It**\
 `Republicans in Congress praised President Trump’s decision to hit Iran. Many Democrats and some G.O.P. lawmakers said he should have consulted Congress.`\
 https://nytimes.com/2025/06/21/world/middleeast/congress-iran-strike-republicans-democrats.html
