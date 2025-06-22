@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Eric Nagourney and Maggie Haberman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/here-are-the-latest-developments
+
 **Imanaga's expected return could be the boost the Cubs' starting rotation needs**\
 `Imanaga's return could carry the Cubs' momentum as they make a push into the postseason. They defeated the Mariners 10-7 on Saturday.`\
 https://nytimes.com/athletic/6442566/2025/06/21/cubs-shota-imanaga-return-expected/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/crosswords/daily-puzzle-2025-06-22.html
 **Bucks guard Pat Connaughton exercises player option: Source**\
 `With Connaughton's decision, the Bucks now have five players on guaranteed contracts for next season.`\
 https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
-
-**Mahmoud Khalil Lands at Newark After Months of Detention**\
-`Mahmoud Khalil, a pro-Palestinian activist detained for his role in protests at Columbia University, returned to the East Coast on bail after 104 days of imprisonment in Louisiana.`\
-https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-detention-return.html
 

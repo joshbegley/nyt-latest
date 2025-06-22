@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Eric Nagourney and Maggie Haberman`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/here-are-the-latest-developments
+
 **Imanaga's expected return could be the boost the Cubs' starting rotation needs**\
 `Imanaga's return could carry the Cubs' momentum as they make a push into the postseason. They defeated the Mariners 10-7 on Saturday.`\
 https://nytimes.com/athletic/6442566/2025/06/21/cubs-shota-imanaga-return-expected/
