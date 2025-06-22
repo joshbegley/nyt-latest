@@ -1,3 +1,7 @@
+**Satellite Images Show U.S. May Have Targeted Ventilation Shafts at Fordo**\
+`Ventilation shafts “are probably the most vulnerable points of the facility,” one expert said.`\
+https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-bomb-satellite.html
+
 **Club condemn fans as Williams mural painted over amid Barcelona interest**\
 `Athletic said they had contacted artist Carlos Lopez over restoring the mural, and said those who defaced it had disrespected the club.`\
 https://nytimes.com/athletic/6443835/2025/06/22/nico-williams-athletic-club-mural-barcelona/

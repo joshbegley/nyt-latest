@@ -1,3 +1,7 @@
+**Satellite Images Show U.S. May Have Targeted Ventilation Shafts at Fordo**\
+`Ventilation shafts “are probably the most vulnerable points of the facility,” one expert said.`\
+https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-bomb-satellite.html
+
 **Club condemn fans as Williams mural painted over amid Barcelona interest**\
 `Athletic said they had contacted artist Carlos Lopez over restoring the mural, and said those who defaced it had disrespected the club.`\
 https://nytimes.com/athletic/6443835/2025/06/22/nico-williams-athletic-club-mural-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/world/middleeast/gulf-countries-us-attack-iran.ht
 **After U.S. Strikes, Iran May Be Determined to Build a Nuclear Weapon**\
 `The future of Iran’s nuclear program will depend in part on the extent of the damage from the U.S. attacks and Tehran’s negotiating position in the coming days.`\
 https://nytimes.com/2025/06/22/us/politics/iran-nuclear-weapon.html
-
-**Mets option Francisco Alvarez: What went into the decision and what's next**\
-`The Mets feel like their 23-year-old catcher, who hit 25 home runs in 2023, can be better as a defender and as a hitter.`\
-https://nytimes.com/athletic/6443580/2025/06/22/mets-francisco-alvarez-optioned/
 
