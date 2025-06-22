@@ -1,3 +1,7 @@
+**Some Israelis Expect New Era After U.S. Strikes on Iran. Others Are Skeptical.**\
+`Both elation and fear were widespread in Israel amid uncertainty over what comes next.`\
+https://nytimes.com/2025/06/22/world/middleeast/israel-us-strikes-iran-mood.html
+
 **Carlos Alcaraz beats Jiri Lehecka to win second Queen's title**\
 `Alcaraz prepared for his Wimbledon title defense with a close-run win over the dangerous Lehečka.`\
 https://nytimes.com/athletic/6443226/2025/06/22/tennis-alcaraz-lehecka-queens-final-result-analysis/
