@@ -1,3 +1,7 @@
+**Reds to bring up top pitching prospect Chase Burns, will debut Tuesday vs. Yankees: Source**\
+`Burns is 7-3 with a 1.77 ERA in 13 minor-league starts, with 89 strikeouts over 66 innings and just 13 walks.`\
+https://nytimes.com/athletic/6442862/2025/06/21/reds-chase-burns-will-debut-vs-yankees/
+
 **With Military Strike His Predecessors Avoided, Trump Takes a Huge Gamble**\
 `President Trump is betting the United States can repel whatever retaliation Iran orders, and that it has destroyed the regime’s chances of reconstituting its nuclear program.`\
 https://nytimes.com/2025/06/21/us/politics/trump-iran-risks.html
