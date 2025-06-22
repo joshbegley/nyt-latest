@@ -1,3 +1,11 @@
+**Trump and Netanyahu Praise U.S. Strikes on Iranian Nuclear Sites**\
+`President Trump said the aim of attacking the three facilities was to destroy Iran’s nuclear capability. Iran said the sites had been hit but did not immediately describe the damage.`\
+https://nytimes.com/video/world/middleeast/100000010242914/trump-netanyahu-iran.html
+
+**Here Are the Three Iranian Nuclear Sites the U.S. Attacked**\
+`Maps and satellite images of the sites the U.S. struck on Saturday night.`\
+https://nytimes.com/interactive/2025/06/22/world/middleeast/us-iran-nuclear-sites.html
+
 **We Have No Idea Where This War Will Go**\
 `Projecting any sense of finality about this war is wildly premature.`\
 https://nytimes.com/2025/06/22/opinion/america-iran-war-nuclear.html

@@ -1,3 +1,11 @@
+**Trump and Netanyahu Praise U.S. Strikes on Iranian Nuclear Sites**\
+`President Trump said the aim of attacking the three facilities was to destroy Iran’s nuclear capability. Iran said the sites had been hit but did not immediately describe the damage.`\
+https://nytimes.com/video/world/middleeast/100000010242914/trump-netanyahu-iran.html
+
+**Here Are the Three Iranian Nuclear Sites the U.S. Attacked**\
+`Maps and satellite images of the sites the U.S. struck on Saturday night.`\
+https://nytimes.com/interactive/2025/06/22/world/middleeast/us-iran-nuclear-sites.html
+
 **We Have No Idea Where This War Will Go**\
 `Projecting any sense of finality about this war is wildly premature.`\
 https://nytimes.com/2025/06/22/opinion/america-iran-war-nuclear.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6411781/2025/06/22/norway-team-guide-euro-2025/
 **Euro 2025: Iceland team guide – tactical coaching and Champions League experience give an edge**\
 `From players to watch to pedigree and much more, we set out what to expect from Iceland at the European Championship`\
 https://nytimes.com/athletic/6419841/2025/06/22/iceland-team-guide-euro-2025/
-
-**Welcome to Innie Milan - where work is life**\
-`Inter's is a story about divided selves, conflicting emotions, love of the game and a troubled work-life balance.`\
-https://nytimes.com/athletic/6442579/2025/06/22/innie-milan-inter/
-
-**Forget the football – this is why the Club World Cup really matters**\
-`This summer's tournament in the U.S. is a precious opportunity for clubs to build their brands`\
-https://nytimes.com/athletic/6440062/2025/06/22/club-world-cup-finances-brand/
 
