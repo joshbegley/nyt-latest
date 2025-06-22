@@ -1,3 +1,15 @@
+**NBA gets the night and spotlight it's been seeking with Thunder-Pacers Game 7**\
+`The league has pushed to squeeze teams into the financial and competitive middle. Game 7 will be the culmination of that effort.`\
+https://nytimes.com/athletic/6441308/2025/06/22/nba-finals-2025-game-7-pacers-thunder/
+
+**It’s About to Get Brutally Hot in New York City**\
+`Temperatures in Central Park are forecast to soar into the high 90s on Monday and Tuesday, but it will feel like it’s 105 degrees outside.`\
+https://nytimes.com/2025/06/22/weather/nyc-heat-wave.html
+
+**The New York Times International Edition in Print for Monday, June 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/22/todays-new-york-times-international-edition
+
 **Here’s What to Know About Fordo, Iran’s Best-Protected Nuclear Site**\
 `The nuclear fuel enrichment plant was built deep inside a mountain in order to withstand an attack.`\
 https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-site.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/22/arts/music/sean-diddy-combs-kristina-khorram-kk.h
 **‘The Sisters’ Turns a Family Mystery Into a Transnational Tour de Force**\
 `Jonas Hassen Khemiri plays with time, belonging and his own insecurities in a big, impressive novel that revolves around a trio of magnetic Swedish women.`\
 https://nytimes.com/2025/06/22/books/review/the-sisters-jonas-hassen-khemiri.html
-
-**Inside the Race to Save a Family Farm From Canada’s Wildfires**\
-`As Canada endures another heavy wildfire season, a group of resourceful farmers in British Columbia became an ad hoc fire brigade to help a neighbor.`\
-https://nytimes.com/2025/06/22/world/americas/canada-wildfires-british-columbia-farm.html
-
-**‘I Feel Like I’ve Been Lied To’: When a Measles Outbreak Hits Home**\
-`From a lone clinic in Texas to an entire school district in North Dakota, the virus is upending daily life and revealing a deeper crisis of belief.`\
-https://nytimes.com/2025/06/22/us/i-feel-like-ive-been-lied-to-when-a-measles-outbreak-hits-home.html
-
-**Pacers at Thunder Game 7 picks, odds, how to watch: OKC favored in NBA Finals finale**\
-`We get an NBA Finals Game 7 for the first time since 2016 and just the fifth time in the 21st century. OKC opens as Sunday's home favorite.`\
-https://nytimes.com/athletic/6440593/2025/06/22/pacers-thunder-nba-finals-game-7-picks-odds-how-to-watch/
 
