@@ -1,3 +1,7 @@
+**Watching cricket with English India supporters - and the boisterous Bharat Army**\
+`From Wisconsin to West Yorkshire - the passion of the India fans will shine through in their series with England. The Athletic joined them`\
+https://nytimes.com/athletic/6440838/2025/06/22/india-cricket-fans-bharat-army/
+
 **NBA gets the night and spotlight it's been seeking with Thunder-Pacers Game 7**\
 `The league has pushed to squeeze teams into the financial and competitive middle. Game 7 will be the culmination of that effort.`\
 https://nytimes.com/athletic/6441308/2025/06/22/nba-finals-2025-game-7-pacers-thunder/

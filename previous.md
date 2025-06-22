@@ -1,3 +1,7 @@
+**Watching cricket with English India supporters - and the boisterous Bharat Army**\
+`From Wisconsin to West Yorkshire - the passion of the India fans will shine through in their series with England. The Athletic joined them`\
+https://nytimes.com/athletic/6440838/2025/06/22/india-cricket-fans-bharat-army/
+
 **NBA gets the night and spotlight it's been seeking with Thunder-Pacers Game 7**\
 `The league has pushed to squeeze teams into the financial and competitive middle. Game 7 will be the culmination of that effort.`\
 https://nytimes.com/athletic/6441308/2025/06/22/nba-finals-2025-game-7-pacers-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/us/politics/iran-weapons-us-bases.html
 **Aide Who Was Sean Combs’s ‘Right Hand’ Draws Scrutiny at His Trial**\
 `Kristina Khorram, the mogul’s former chief of staff, was not charged in his indictment, but the government has identified her and other staff as co-conspirators.`\
 https://nytimes.com/2025/06/22/arts/music/sean-diddy-combs-kristina-khorram-kk.html
-
-**‘The Sisters’ Turns a Family Mystery Into a Transnational Tour de Force**\
-`Jonas Hassen Khemiri plays with time, belonging and his own insecurities in a big, impressive novel that revolves around a trio of magnetic Swedish women.`\
-https://nytimes.com/2025/06/22/books/review/the-sisters-jonas-hassen-khemiri.html
 
