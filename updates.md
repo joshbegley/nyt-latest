@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 3 Pachuca 1 – Alonso's side show attacking class after Asencio red card**\
+`Real Madrid beat Pachuca 3-1 to go top of Group H at the Club World Cup. Our writers break down the key talking points...`\
+https://nytimes.com/athletic/6431482/2025/06/22/real-madrid-3-pachuca-1-club-world-cup/
+
 **LSU wins College World Series over Coastal Carolina, claims 8th title in program history**\
 `The Tigers completed a two-game sweep in the CWS finals to set off a celebration among the sun-baked legion of fans from SEC country.`\
 https://nytimes.com/athletic/6444111/2025/06/22/lsu-wins-college-world-series-coastal-carolina/
