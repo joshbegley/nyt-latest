@@ -1,3 +1,19 @@
+**3 Dead in Central New York After Powerful Storm Lashes the Area**\
+`Three people, including 6-year-old sisters, were killed after trees fell on homes during severe weather that struck early on Sunday, officials said.`\
+https://nytimes.com/2025/06/22/nyregion/ny-storm-flood-deaths.html
+
+**After Kevin Durant trade domino, what's next for Rockets and Suns?**\
+`The Phoenix-Houston trade was a fair one on both sides, but are more moves on the way on both sides?`\
+https://nytimes.com/athletic/6443983/2025/06/22/kevin-durant-trade-rockets-suns-analysis-reaction/
+
+**Is the U.S. at War With Iran?**\
+`President Trump avoided asking Congress for permission before striking Iran, despite the Constitution saying only the legislature can declare war.`\
+https://nytimes.com/2025/06/22/us/politics/trump-strikes-war-iran.html
+
+**Early Web Portal**\
+`Zhouqin Burnikel gives us the silent treatment.`\
+https://nytimes.com/2025/06/22/crosswords/daily-puzzle-2025-06-23.html
+
 **LSU wins College World Series over Coastal Carolina, claims 8th title in program history**\
 `The Tigers completed a two-game sweep in the CWS finals to set off a celebration among the sun-baked legion of fans from SEC country.`\
 https://nytimes.com/athletic/6444111/2025/06/22/lsu-wins-college-world-series-coastal-carolina/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/22/world/middleeast/iran-bombings-nypd-counterterror
 **Pentagon details how attack was carried out**\
 `By Lazaro Gamio`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/pentagon-details-how-attack-was-carried-out
-
-**Suicide Bombing at Damascus Church Kills at Least 20**\
-`The attack on a Greek Orthodox service made clear the challenges facing Syria’s new government in a country long pitted by sectarian divides.`\
-https://nytimes.com/2025/06/22/world/middleeast/damascus-church-bombing.html
-
-**Iranian Officials Try to Project Sense of Normalcy, Though Nothing Is Normal**\
-`The mood in the government after the U.S. attacks is one of defeat and humiliation. But state media are showing people going about their daily routines.`\
-https://nytimes.com/2025/06/22/world/middleeast/iran-government-us-attack.html
-
-**What Iran Does Next**\
-`Among the most likely options are asymmetric or terrorist attacks, although the time frame is impossible to gauge.`\
-https://nytimes.com/2025/06/22/opinion/iran-nuclear-strike-israel-war.html
-
-**The Big Question Facing Energy Markets: Will Iran Disrupt Oil and Gas Flows?**\
-`Crude oil futures will begin trading at 6 p.m. Eastern time on Sunday, providing an early look at the market’s reaction to the U.S. strikes.`\
-https://nytimes.com/2025/06/22/business/energy-environment/iran-oil-gas-markets.html
 
