@@ -1,3 +1,7 @@
+**U.S. Officials Concede They Don’t Know Whereabouts of Iran’s Uranium Stockpile**\
+`Rafael Mariano Grossi, the director of general of the International Atomic Energy Agency, said he believed Tehran’s stockpile of near-bomb-grade nuclear material had been moved before the strikes.`\
+https://nytimes.com/2025/06/22/us/politics/iran-uranium-stockpile-whereabouts.html
+
 **Astros Q&A: Chandler Rome on the trade deadline, prospects, 2026 and more**\
 `Astros beat writer Chandler Rome will answer subscribers' questions during a live Q&A from 2 p.m. to 2:45 p.m. CT on Monday.`\
 https://nytimes.com/athletic/6444182/2025/06/22/astros-live-qa-submit-questions/
