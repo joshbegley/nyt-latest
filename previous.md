@@ -1,3 +1,15 @@
+**World Leaders React to the U.S. Strikes on Iran**\
+`As fears that the attacks could lead to more dangerous escalations across the Middle East, some leaders condemned them while others urged de-escalation.`\
+https://nytimes.com/2025/06/22/world/middleeast/world-leaders-react-iran-strikes.html
+
+**Here are the latest developments.**\
+`By Maggie Haberman, Farnaz Fassihi, Eric Schmitt, Tyler Pager, Adam Nagourney and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/here-are-the-latest-developments
+
+**Live Updates: Trump Claims Success After Bombing Key Iran Nuclear Sites**\
+`After hitting Iran’s most heavily fortified nuclear installation, President Trump warned of more strikes “if peace does not come quickly.” Iranian ballistic missiles wounded at least 10 in Israel, officials said.`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump
+
 **Bill Clinton Endorses Andrew Cuomo for New York City Mayor**\
 `The former president’s endorsement is the latest example of how establishment Democrats seem to prefer Mr. Cuomo to his prime rival, Zohran Mamdani.`\
 https://nytimes.com/2025/06/22/nyregion/bill-clinton-endorse-cuomo-mayor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/22/nyregion/metropolitan-diary.html
 **Spectating a Tournament of Strength and Solidarity**\
 `In Brooklyn, a reporter witnessed the sport of sumo wrestling in action.`\
 https://nytimes.com/2025/06/22/insider/sumo-nyc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/22/crosswords/spelling-bee-forum.html
-
-**Trump and Netanyahu Praise U.S. Strikes on Iranian Nuclear Sites**\
-`President Trump said the aim of attacking the three facilities was to destroy Iran’s nuclear capability. Iran said the sites had been hit but did not immediately describe the damage.`\
-https://nytimes.com/video/world/middleeast/100000010242914/trump-netanyahu-iran.html
-
-**Here Are the Three Iranian Nuclear Sites the U.S. Attacked**\
-`Maps and satellite images of the sites the U.S. struck on Saturday night.`\
-https://nytimes.com/interactive/2025/06/22/world/middleeast/us-iran-nuclear-sites.html
 

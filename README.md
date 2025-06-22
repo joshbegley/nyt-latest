@@ -1,3 +1,7 @@
+**U.S. Bombing of Iran Keeps Oil Markets on Edge**\
+`Fighting has the potential to disrupt oil markets, but a move by Iran to cut off supply would chiefly hurt China, the biggest buyer of Iranian oil.`\
+https://nytimes.com/2025/06/22/business/us-iran-oil.html
+
 **World Leaders React to the U.S. Strikes on Iran**\
 `As fears that the attacks could lead to more dangerous escalations across the Middle East, some leaders condemned them while others urged de-escalation.`\
 https://nytimes.com/2025/06/22/world/middleeast/world-leaders-react-iran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/nyregion/cuomo-legacy-governor-nyc.html
 **‘Slumped Over, I Spotted Something Striped Beneath the Bench’**\
 `A lucky find near the Plaza, patience at a busy intersection and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/06/22/nyregion/metropolitan-diary.html
-
-**Spectating a Tournament of Strength and Solidarity**\
-`In Brooklyn, a reporter witnessed the sport of sumo wrestling in action.`\
-https://nytimes.com/2025/06/22/insider/sumo-nyc.html
 

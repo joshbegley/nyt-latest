@@ -1,3 +1,15 @@
+**World Leaders React to the U.S. Strikes on Iran**\
+`As fears that the attacks could lead to more dangerous escalations across the Middle East, some leaders condemned them while others urged de-escalation.`\
+https://nytimes.com/2025/06/22/world/middleeast/world-leaders-react-iran-strikes.html
+
+**Here are the latest developments.**\
+`By Maggie Haberman, Farnaz Fassihi, Eric Schmitt, Tyler Pager, Adam Nagourney and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/here-are-the-latest-developments
+
+**Live Updates: Trump Claims Success After Bombing Key Iran Nuclear Sites**\
+`After hitting Iran’s most heavily fortified nuclear installation, President Trump warned of more strikes “if peace does not come quickly.” Iranian ballistic missiles wounded at least 10 in Israel, officials said.`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump
+
 **Bill Clinton Endorses Andrew Cuomo for New York City Mayor**\
 `The former president’s endorsement is the latest example of how establishment Democrats seem to prefer Mr. Cuomo to his prime rival, Zohran Mamdani.`\
 https://nytimes.com/2025/06/22/nyregion/bill-clinton-endorse-cuomo-mayor.html
