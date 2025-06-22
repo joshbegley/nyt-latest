@@ -1,3 +1,7 @@
+**Canada held by Curacao in frustrating Gold Cup group stage draw**\
+`Jesse Marsch's side still has some work to do to book a quarterfinal spot`\
+https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
+
 **Jon Jones retires from UFC; Tom Aspinall named undisputed heavyweight champ**\
 `Aspinall's promotion Saturday makes him the undisputed UFC Heavyweight Champion, his first full title for the company.`\
 https://nytimes.com/athletic/6442683/2025/06/21/jon-jones-retirement-ufc-tom-aspinall-heavyweight-champion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442566/2025/06/21/cubs-shota-imanaga-return-expect
 **Manchester City manager Pep Guardiola open to coaching in South America in future - 'Why not?'**\
 `Pep Guardiola says he has been impressed by the passion of the South American players and fans at the Club World Cup`\
 https://nytimes.com/athletic/6442587/2025/06/21/pep-guardiola-south-america-job/
-
-**Mariners' Cal Raleigh sets multiple MLB records with 30th home run**\
-`The catcher known as "Big Dumper" has hit five more homers through 75 games than any primary catcher in major-league history.`\
-https://nytimes.com/athletic/6442500/2025/06/21/mariners-cal-raleigh-30-home-runs/
 
