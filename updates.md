@@ -1,3 +1,7 @@
+**Vondroušová wins Berlin Open for first WTA title since Wimbledon 2023**\
+`Vondroušová beat Wang in the searing Berlin heat to claim her first WTA title since beating Ons Jabeur in 2023.`\
+https://nytimes.com/athletic/6443082/2025/06/22/marketa-vondrousova-berlin-open-win/
+
 **Leverkusen set to sign Quansah from Liverpool**\
 `The 22-year-old central defender came through Liverpool’s academy and has played 55 games for the club in total.`\
 https://nytimes.com/athletic/6438552/2025/06/22/liverpool-transfers-quansah-leverkusen/
