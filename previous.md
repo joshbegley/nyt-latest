@@ -1,3 +1,35 @@
+**Iran Had Vowed to Retaliate. Now, It Faces Hard Choices.**\
+`Iran’s foreign minister had previously warned that a U.S. decision to join Israel’s war against Iran would be “extremely dangerous for everyone.”`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-had-vowed-to-retaliate-now-it-faces-hard-choices.html
+
+**U.S. strikes key nuclear sites in Iran.**\
+`By Lazaro Gamio and Elena Shao`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/us-strikes-key-nuclear-sites-in-iran
+
+**How Brazil won the 1958 World Cup: A sleeping coach, tactical tweaks and 17-year-old Pele**\
+`It took until 1958 for Brazil to break their World Cup duck - but in doing so they helped changed football forever `\
+https://nytimes.com/athletic/6425744/2025/06/22/how-brazil-won-the-world-cup-1958/
+
+**Protesters call on Dodgers to support immigrants: 'It’s devastating for me'**\
+`“I love the Dodgers, but I love my people more,” said Monica Alcaraz, who attended Saturday's protest.`\
+https://nytimes.com/athletic/6442843/2025/06/22/dodger-stadium-immigration-protest-ice-raids/
+
+**Far-Right Party Tries to Expand Its Appeal in Germany’s West**\
+`To reach voters outside its Eastern heartlands, the AfD is putting a new gloss on its anti-immigrant message — while sticking with its agenda.`\
+https://nytimes.com/2025/06/22/world/europe/germany-afd.html
+
+**Quote of the Day: ‘I Feel Like I’ve Been Lied To’: When a Measles Outbreak Hits Home**\
+`Quote of the Day for Sunday, June 22, 2025`\
+https://nytimes.com/2025/06/22/pageoneplus/quote-of-the-day-i-feel-like-ive-been-lied-to-when-a-measles-outbreak-hits-home.html
+
+**Europe Is Finally Ready to Spend More on Defense. The Hard Part Is How.**\
+`After a yearslong debate over NATO spending, European nations are poised to commit more funds to deter Russia. Now the region must decide how to unify its fragmented manufacturing.`\
+https://nytimes.com/2025/06/22/business/europe-nato-defense-spending.html
+
+**Connections: Sports Edition Coach: Hints for June 22, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6441849/2025/06/22/connections-sports-edition-hints-for-june-22-2025/
+
 **Reds to bring up top pitching prospect Chase Burns, will debut Tuesday vs. Yankees: Source**\
 `Burns is 7-3 with a 1.77 ERA in 13 minor-league starts, with 89 strikeouts over 66 innings and just 13 walks.`\
 https://nytimes.com/athletic/6442862/2025/06/21/reds-chase-burns-will-debut-vs-yankees/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6442862/2025/06/21/reds-chase-burns-will-debut-vs-y
 **With Military Strike His Predecessors Avoided, Trump Takes a Huge Gamble**\
 `President Trump is betting the United States can repel whatever retaliation Iran orders, and that it has destroyed the regime’s chances of reconstituting its nuclear program.`\
 https://nytimes.com/2025/06/21/us/politics/trump-iran-risks.html
-
-**River Plate 0 Monterrey 0 - Explaining the complicated Club World Cup permutations to decide group E**\
-`River Plate, Monterrey and Inter Milan can all still qualify for the Club World Cup knockouts going into the final round`\
-https://nytimes.com/athletic/6427683/2025/06/21/river-plate-monterrey-group-e-permutations/
-
-**Trump Claims U.S. Strikes on Iran Nuclear Sites Were a Success**\
-`President Trump warned of “far greater” attacks on Iran if the country did not make peace with Israel and the United States.`\
-https://nytimes.com/video/world/middleeast/100000010242831/trump-iran-nuclear-sites.html
-
-**Republican Lawmakers Cheer Strike on Iran as Top Democrats Condemn It**\
-`Republicans in Congress praised President Trump’s decision to hit Iran. Many Democrats and some G.O.P. lawmakers said he should have consulted Congress.`\
-https://nytimes.com/2025/06/21/world/middleeast/congress-iran-strike-republicans-democrats.html
-
-**U.S. Military Is Pulled Back Into Middle East Wars**\
-`The strikes on Iran ushered in a period of high alert as the Pentagon braced for almost-certain retaliation against American forces in the region.`\
-https://nytimes.com/2025/06/21/us/politics/military-middle-east-wars.html
-
-**LSU takes Game 1 of College World Series vs. Coastal Carolina**\
-`Anderson allowed three hits and struck out 10, throwing 130 pitches.`\
-https://nytimes.com/athletic/6442777/2025/06/21/lsu-coastal-carolina-college-world-series-game-1/
-
-**FIFA's Gianni Infantino says soccer will be the 'No. 1 sport' in U.S.**\
-`“It will be top, top, top. One of the top leagues in the world, for sure," FIFA's president said. `\
-https://nytimes.com/athletic/6442615/2025/06/21/gianni-infantino-fifa-fanatics-fest-promotion-relegation/
-
-**Canada held by Curaçao in frustrating Gold Cup group stage draw**\
-`Jesse Marsch's side still has some work to do to book a quarterfinal spot.`\
-https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
-
-**Jon Jones retires from UFC; Tom Aspinall named undisputed heavyweight champ**\
-`Aspinall's promotion Saturday makes him the undisputed UFC Heavyweight Champion, his first full title for the company.`\
-https://nytimes.com/athletic/6442683/2025/06/21/jon-jones-retirement-ufc-tom-aspinall-heavyweight-champion/
 
