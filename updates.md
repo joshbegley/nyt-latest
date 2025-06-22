@@ -1,3 +1,7 @@
+**‘We have to respond,’ Iran’s foreign minister warns.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/we-have-to-respond-irans-foreign-minister-warns
+
 **Mets' how-to guide for ending a long losing streak**\
 `New York snapped a seven-game losing streak with an 11-4 win over Philadelphia on Saturday night.`\
 https://nytimes.com/athletic/6442948/2025/06/22/mets-beat-phillies-end-losing-streak/
