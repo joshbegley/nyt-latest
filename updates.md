@@ -1,3 +1,11 @@
+**Imanaga's expected return could be the boost the Cubs' starting rotation needs**\
+`Imanaga's return could carry the Cubs' momentum as they make a push into the postseason. They defeated the Mariners 10-7 on Saturday.`\
+https://nytimes.com/athletic/6442566/2025/06/21/cubs-shota-imanaga-return-expected/
+
+**Manchester City manager Pep Guardiola open to coaching in South America in future - 'Why not?'**\
+`Pep Guardiola says he has been impressed by the passion of the South American players and fans at the Club World Cup`\
+https://nytimes.com/athletic/6442587/2025/06/21/pep-guardiola-south-america-job/
+
 **Manchester City manager Pep Guardiola open to coaching in South America in future - 'Why not?'**\
 `Pep Guardiola says he is open to managing in South America one day after experiencing the passion of their fans and teams in the opening week of the FIFA Club World Cup.`\
 https://nytimes.com/athletic/6442587/2025/06/21/pep-guardiola-south-america-job/

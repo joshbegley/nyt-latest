@@ -1,5 +1,9 @@
+**Imanaga's expected return could be the boost the Cubs' starting rotation needs**\
+`Imanaga's return could carry the Cubs' momentum as they make a push into the postseason. They defeated the Mariners 10-7 on Saturday.`\
+https://nytimes.com/athletic/6442566/2025/06/21/cubs-shota-imanaga-return-expected/
+
 **Manchester City manager Pep Guardiola open to coaching in South America in future - 'Why not?'**\
-`Pep Guardiola says he is open to managing in South America one day after experiencing the passion of their fans and teams in the opening week of the FIFA Club World Cup.`\
+`Pep Guardiola says he has been impressed by the passion of the South American players and fans at the Club World Cup`\
 https://nytimes.com/athletic/6442587/2025/06/21/pep-guardiola-south-america-job/
 
 **Mariners' Cal Raleigh sets multiple MLB records with 30th home run**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-opt
 **Mahmoud Khalil Lands at Newark After Months of Detention**\
 `Mahmoud Khalil, a pro-Palestinian activist detained for his role in protests at Columbia University, returned to the East Coast on bail after 104 days of imprisonment in Louisiana.`\
 https://nytimes.com/video/us/politics/100000010242499/mahmoud-khalil-detention-return.html
-
-**In Final Push for Mayor, Lander Appears With 2 Cuomo Accusers**\
-`The campaign event by Brad Lander, the New York City comptroller running for mayor, came as Andrew Cuomo, the front-runner, appeared with the mother of a murder victim.`\
-https://nytimes.com/2025/06/21/nyregion/lander-cuomo-women-mayor.html
 
