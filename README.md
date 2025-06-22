@@ -1,3 +1,7 @@
+**‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
+`In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of the strikes on the country’s nuclear facilities.`\
+https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
+
 **The Consequences of U.S. Strikes in Iran**\
 `Readers offer contrasting perspectives on the bombing of Iran’s nuclear facilities.`\
 https://nytimes.com/2025/06/22/opinion/us-iran-bomb-nuclear-sites.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/dining/easy-ceviche-recipe.html
 **Dangerous Heat Wave Expands Over Central and Eastern United States**\
 `A multiday heat wave is bringing high temperatures and health risks from the Midwest to the Northeast, prompting warnings and emergency measures.`\
 https://nytimes.com/2025/06/22/weather/heat-wave-temperatures.html
-
-**Pentagon Details Multipronged Attack on Iranian Nuclear Sites**\
-`B-2 stealth bombers, fighter aircraft and submarine-launched cruise missiles struck Fordo, Natanz and Isfahan during “Operation Midnight Hammer.”`\
-https://nytimes.com/2025/06/22/world/middleeast/pentagon-iran-nuclear-sites-attack-details.html
 
