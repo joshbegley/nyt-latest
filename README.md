@@ -1,3 +1,7 @@
+**Coastal Carolina coach Kevin Schnall ejected from Game 2 of College World Series**\
+`Chanticleers coach was tossed for arguing balls and strikes in the bottom of the first inning.`\
+https://nytimes.com/athletic/6443922/2025/06/22/coastal-carolina-coach-ejected-college-world-series/
+
 **Tesla Begins Limited Robotaxi Service in Austin**\
 `The vehicles will have safety monitors and may not operate in bad weather, making them more restricted than the fully autonomous vehicles promised by Elon Musk.`\
 https://nytimes.com/2025/06/22/business/tesla-robotaxi-service-austin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/opinion/us-military-strike-iran-trump.html
 **Russia may be ‘a friend’ of Iran, but it seems unlikely to offer much help.**\
 `By Anatoly Kurmanaev`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/russia-may-be-a-friend-of-iran-but-it-seems-unlikely-to-offer-much-help
-
-**The Briefing: Juventus 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
-`Two brilliant and very different finishes from the young Turkish forward were the highlights of this clash in Philadelphia`\
-https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
 
