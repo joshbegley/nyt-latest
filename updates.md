@@ -1,3 +1,7 @@
+**Ryan Yarbrough placed on IL, Allan Winans to start Monday vs. Reds**\
+`The left-handed pitcher has been placed on the 15-day injured list with a right oblique strain.`\
+https://nytimes.com/athletic/6443203/2025/06/22/yankees-ryan-yarbrough-injury-allan-winans/
+
 **The Pulse: Worst champ ever? We can explain.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6442803/2025/06/22/the-worst-nba-champion-ever-its-not-shade-let-us-explain/
