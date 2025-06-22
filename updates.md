@@ -1,3 +1,5 @@
+
+
 **Iran built Fordo deep inside a mountain to withstand aerial attacks.**\
 `By Helene Cooper, Eric Schmitt and Samuel Granados`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/iran-built-fordo-deep-inside-a-mountain-to-withstand-aerial-attacks
