@@ -1,3 +1,7 @@
+**Coastal Carolina coach Kevin Schnall ejected from Game 2 of College World Series**\
+`Chanticleers coach was tossed for arguing balls and strikes in the bottom of the first inning.`\
+https://nytimes.com/athletic/6443922/2025/06/22/coastal-carolina-coach-ejected-college-world-series/
+
 **Tesla Begins Limited Robotaxi Service in Austin**\
 `The vehicles will have safety monitors and may not operate in bad weather, making them more restricted than the fully autonomous vehicles promised by Elon Musk.`\
 https://nytimes.com/2025/06/22/business/tesla-robotaxi-service-austin.html
