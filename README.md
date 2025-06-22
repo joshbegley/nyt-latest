@@ -1,3 +1,7 @@
+**Jon Jones retires from UFC; Tom Aspinall named undisputed heavyweight champ**\
+`Aspinall's promotion Saturday makes him the undisputed UFC Heavyweight Champion, his first full title for the company.`\
+https://nytimes.com/athletic/6442683/2025/06/21/jon-jones-retirement-ufc-tom-aspinall-heavyweight-champion/
+
 **With Decision to Bomb Iran, Trump Injects U.S. Into Middle East Conflict**\
 `By bombing three nuclear sites in Iran, the United States has joined Israel’s war against the country. Now it is bracing for Iranian retaliation.`\
 https://nytimes.com/2025/06/21/world/middleeast/us-bomb-iran-trump-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442587/2025/06/21/pep-guardiola-south-america-job/
 **Mariners' Cal Raleigh sets multiple MLB records with 30th home run**\
 `The catcher known as "Big Dumper" has hit five more homers through 75 games than any primary catcher in major-league history.`\
 https://nytimes.com/athletic/6442500/2025/06/21/mariners-cal-raleigh-30-home-runs/
-
-**4 Missing After Medical Helicopter Crashes in Quebec Lake**\
-`The helicopter was carrying four crew members and a patient when it crashed on Friday night, officials said.`\
-https://nytimes.com/2025/06/21/world/canada/medical-helicopter-crash-canada.html
 

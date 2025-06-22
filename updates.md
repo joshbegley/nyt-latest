@@ -1,3 +1,7 @@
+**With Decision to Bomb Iran, Trump Injects U.S. Into Middle East Conflict**\
+`By bombing three nuclear sites in Iran, the United States has joined Israel’s war against the country. Now it is bracing for Iranian retaliation.`\
+https://nytimes.com/2025/06/21/world/middleeast/us-bomb-iran-trump-war.html
+
 **There are about 40,000 U.S. troops in the Middle East.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/there-are-about-40000-us-troops-in-the-middle-east
