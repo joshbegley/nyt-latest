@@ -1,3 +1,7 @@
+**U.S. Bombing of Iran Keeps Oil Markets on Edge**\
+`Fighting has the potential to disrupt oil markets, but a move by Iran to cut off supply would chiefly hurt China, the biggest buyer of Iranian oil.`\
+https://nytimes.com/2025/06/22/business/us-iran-oil.html
+
 **World Leaders React to the U.S. Strikes on Iran**\
 `As fears that the attacks could lead to more dangerous escalations across the Middle East, some leaders condemned them while others urged de-escalation.`\
 https://nytimes.com/2025/06/22/world/middleeast/world-leaders-react-iran-strikes.html
