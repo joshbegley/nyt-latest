@@ -1,3 +1,11 @@
+**Expect Club World Cup delays to repeat next summer, says weather chief**\
+`Several matches were delayed during the Club World Cup's first week, and the trend may continue — this summer and next.`\
+https://nytimes.com/athletic/6441522/2025/06/22/club-world-cup-weather-delays-thunder/
+
+**After U.S. Strikes on Iran, Prospects for Diplomacy Look Dim**\
+`Iran’s foreign minister said the attack would have “everlasting consequences” and that Tehran “reserves all options” for a response.`\
+https://nytimes.com/2025/06/22/world/middleeast/us-strikes-iran-diplomacy.html
+
 **Infantino hits back at Club World Cup criticism: 'It's something special'**\
 `Infantino insists tournament is a success and "players are loving it" — despite empty seats and widespread criticism.`\
 https://nytimes.com/athletic/6442920/2025/06/22/infantino-club-world-cup-criticism/
