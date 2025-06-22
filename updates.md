@@ -1,3 +1,11 @@
+**Michigan Church Shooting Leaves 1 Injured and Gunman Dead, Police Say**\
+`A church security guard fatally shot the gunman, the Wayne Police Department said.`\
+https://nytimes.com/2025/06/22/us/shooting-church-wayne-michigan.html
+
+**In Remarks on Iran, Hegseth Conveys Messages to Two Different Audiences**\
+`The U.S. defense secretary was in the difficult position of praising American military might while acknowledging people’s concerns about another conflict.`\
+https://nytimes.com/2025/06/22/us/politics/hegseth-iran-strikes.html
+
 **How the Attacks on Iran Are Part of a Much Bigger Global Struggle**\
 `Putin and the ayatollahs want the same kind of world.`\
 https://nytimes.com/2025/06/22/opinion/iran-israel-attack-global-struggle.html

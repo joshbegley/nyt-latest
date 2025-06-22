@@ -1,3 +1,11 @@
+**Michigan Church Shooting Leaves 1 Injured and Gunman Dead, Police Say**\
+`A church security guard fatally shot the gunman, the Wayne Police Department said.`\
+https://nytimes.com/2025/06/22/us/shooting-church-wayne-michigan.html
+
+**In Remarks on Iran, Hegseth Conveys Messages to Two Different Audiences**\
+`The U.S. defense secretary was in the difficult position of praising American military might while acknowledging people’s concerns about another conflict.`\
+https://nytimes.com/2025/06/22/us/politics/hegseth-iran-strikes.html
+
 **How the Attacks on Iran Are Part of a Much Bigger Global Struggle**\
 `Putin and the ayatollahs want the same kind of world.`\
 https://nytimes.com/2025/06/22/opinion/iran-israel-attack-global-struggle.html
@@ -31,12 +39,4 @@ https://nytimes.com/2025/06/22/us/lake-tahoe-boat-capsize.html
 **Iran’s Fordo Site Said to Look Severely Damaged, Not Destroyed**\
 `Initial military assessments of the buried nuclear site contrast with the statement on the strike there made by President Trump.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-destroyed.html
-
-**Josh Harris spends $500,000 on Jayden Daniels rookie card to display at stadium**\
-`Harris bought the card with Daniels standing beside him`\
-https://nytimes.com/athletic/6443334/2025/06/22/jayden-daniels-rookie-card-josh-harris/
-
-**Bublik beats Medvedev to win Halle Open, reveals near-retirement from tennis**\
-`Following his second Halle Open triumph in three years, the Kazakh said he "nearly called it quits" on his tennis career in 2024.`\
-https://nytimes.com/athletic/6443246/2025/06/22/tennis-alexander-bublik-halle-medvedev/
 
