@@ -1,3 +1,7 @@
+**After U.S. Strikes on Iran, Prospects for Diplomacy Look Dim**\
+`Iran’s foreign minister said the attack would have “everlasting consequences” and that Tehran “reserves all options” for a response.`\
+https://nytimes.com/2025/06/22/world/middleeast/us-strikes-iran-diplomacy.html
+
 **Infantino hits back at Club World Cup criticism: 'It's something special'**\
 `Infantino insists tournament is a success and "players are loving it" — despite empty seats and widespread criticism.`\
 https://nytimes.com/athletic/6442920/2025/06/22/infantino-club-world-cup-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/insider/corrado-parducci-frieze.html
 **‘An Existential Threat’: Food Banks Brace for Fallout From Trump Cuts**\
 `New York City food banks aren’t sure how they will survive the administration’s funding cuts, which could also affect the programs they turn to for help.`\
 https://nytimes.com/2025/06/22/nyregion/nyc-food-banks-cuts.html
-
-**Andrew Cuomo’s Complicated Legacy in New York City**\
-`Mr. Cuomo, the front-runner in the mayoral race and former governor, has a long — and, his critics say, mixed — record handling important issues in the city.`\
-https://nytimes.com/2025/06/22/nyregion/cuomo-legacy-governor-nyc.html
 

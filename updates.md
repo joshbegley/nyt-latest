@@ -1,3 +1,7 @@
+**Infantino hits back at Club World Cup criticism: 'It's something special'**\
+`Infantino insists tournament is a success and "players are loving it" — despite empty seats and widespread criticism.`\
+https://nytimes.com/athletic/6442920/2025/06/22/infantino-club-world-cup-criticism/
+
 **U.S. Bombing of Iran Keeps Oil Markets on Edge**\
 `Fighting has the potential to disrupt oil markets, but a move by Iran to cut off supply would chiefly hurt China, the biggest buyer of Iranian oil.`\
 https://nytimes.com/2025/06/22/business/us-iran-oil.html
