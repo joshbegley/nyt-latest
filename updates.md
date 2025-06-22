@@ -1,4 +1,8 @@
 **Three Unknowns for America and the World After Trump’s Strike on Iran**\
+`Despite Trump’s claim of success, he has created uncertainty and risk.`\
+https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
+
+**Three Unknowns for America and the World After Trump’s Strike on Iran**\
 `Despite Trump’s claim of success, there are three serious unknowns for the United States and the world after the U.S. strikes on Iran.`\
 https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
 
