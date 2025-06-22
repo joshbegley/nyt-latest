@@ -1,3 +1,27 @@
+**Euro 2025: Norway team guide – can a new head coach help them finally reach their potential?**\
+`From players to watch to pedigree and much more, we set out what to expect from Norway at the European Championship`\
+https://nytimes.com/athletic/6411781/2025/06/22/norway-team-guide-euro-2025/
+
+**Euro 2025: Iceland team guide – tactical coaching and Champions League experience give an edge**\
+`From players to watch to pedigree and much more, we set out what to expect from Iceland at the European Championship`\
+https://nytimes.com/athletic/6419841/2025/06/22/iceland-team-guide-euro-2025/
+
+**Welcome to Innie Milan - where work is life**\
+`Inter's is a story about divided selves, conflicting emotions, love of the game and a troubled work-life balance.`\
+https://nytimes.com/athletic/6442579/2025/06/22/innie-milan-inter/
+
+**Forget the football – this is why the Club World Cup really matters**\
+`This summer's tournament in the U.S. is a precious opportunity for clubs to build their brands`\
+https://nytimes.com/athletic/6440062/2025/06/22/club-world-cup-finances-brand/
+
+**The Business of Football: Why Tottenham have not been bought, and how much are Wrexham worth?**\
+`UEFA and multi-club ownership, the split in Warner Bros Discovery and the football regulator also feature in this column's latest instalment`\
+https://nytimes.com/athletic/6437535/2025/06/22/tottenham-levy-wrexham-business/
+
+**The one position your Premier League club needs to sign a player in during this transfer window**\
+`Which position does each Premier League side need to prioritise this window? Where, if necessary, should the bulk of the budget be spent?`\
+https://nytimes.com/athletic/6438276/2025/06/22/premier-league-transfer-news-latest-position-analysis/
+
 **Iran Had Vowed to Retaliate. Now, It Faces Hard Choices.**\
 `Iran’s foreign minister had previously warned that a U.S. decision to join Israel’s war against Iran would be “extremely dangerous for everyone.”`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-had-vowed-to-retaliate-now-it-faces-hard-choices.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6425744/2025/06/22/how-brazil-won-the-world-cup-195
 **Protesters call on Dodgers to support immigrants: 'It’s devastating for me'**\
 `“I love the Dodgers, but I love my people more,” said Monica Alcaraz, who attended Saturday's protest.`\
 https://nytimes.com/athletic/6442843/2025/06/22/dodger-stadium-immigration-protest-ice-raids/
-
-**Far-Right Party Tries to Expand Its Appeal in Germany’s West**\
-`To reach voters outside its Eastern heartlands, the AfD is putting a new gloss on its anti-immigrant message — while sticking with its agenda.`\
-https://nytimes.com/2025/06/22/world/europe/germany-afd.html
-
-**Quote of the Day: ‘I Feel Like I’ve Been Lied To’: When a Measles Outbreak Hits Home**\
-`Quote of the Day for Sunday, June 22, 2025`\
-https://nytimes.com/2025/06/22/pageoneplus/quote-of-the-day-i-feel-like-ive-been-lied-to-when-a-measles-outbreak-hits-home.html
-
-**Europe Is Finally Ready to Spend More on Defense. The Hard Part Is How.**\
-`After a yearslong debate over NATO spending, European nations are poised to commit more funds to deter Russia. Now the region must decide how to unify its fragmented manufacturing.`\
-https://nytimes.com/2025/06/22/business/europe-nato-defense-spending.html
-
-**Connections: Sports Edition Coach: Hints for June 22, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6441849/2025/06/22/connections-sports-edition-hints-for-june-22-2025/
-
-**Reds to bring up top pitching prospect Chase Burns, will debut Tuesday vs. Yankees: Source**\
-`Burns is 7-3 with a 1.77 ERA in 13 minor-league starts, with 89 strikeouts over 66 innings and just 13 walks.`\
-https://nytimes.com/athletic/6442862/2025/06/21/reds-chase-burns-will-debut-vs-yankees/
-
-**With Military Strike His Predecessors Avoided, Trump Takes a Huge Gamble**\
-`President Trump is betting the United States can repel whatever retaliation Iran orders, and that it has destroyed the regime’s chances of reconstituting its nuclear program.`\
-https://nytimes.com/2025/06/21/us/politics/trump-iran-risks.html
 
