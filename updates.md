@@ -1,3 +1,15 @@
+**Carlos Alcaraz beats Jiri Lehecka to win second Queen's title**\
+`Alcaraz prepared for his Wimbledon title defense with a close-run win over the dangerous Lehečka.`\
+https://nytimes.com/athletic/6443226/2025/06/22/tennis-alcaraz-lehecka-queens-final-result-analysis/
+
+**6 Dead After Boat Capsizes on Lake Tahoe**\
+`A large wave overturned a 27-foot-long boat on Saturday afternoon, the U.S. Coast Guard said. Two people remained missing.`\
+https://nytimes.com/2025/06/22/us/lake-tahoe-boat-capsize.html
+
+**Bublik beats Medvedev to win Halle Open, reveals near-retirement from tennis**\
+`Following his second Halle Open triumph in three years, the Kazakh said he "nearly called it quits" on his tennis career in 2024.`\
+https://nytimes.com/athletic/6443246/2025/06/22/tennis-alexander-bublik-halle-medvedev/
+
 **Iran’s Fordo Site Said to Look Severely Damaged, Not Destroyed**\
 `Initial military assessments of the buried nuclear site contrast with the statement on the strike there made by President Trump.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-destroyed.html
