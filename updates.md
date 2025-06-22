@@ -1,3 +1,7 @@
+**‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
+`In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of the strikes on the country’s nuclear facilities.`\
+https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
+
 **The Consequences of U.S. Strikes in Iran**\
 `Readers offer contrasting perspectives on the bombing of Iran’s nuclear facilities.`\
 https://nytimes.com/2025/06/22/opinion/us-iran-bomb-nuclear-sites.html
