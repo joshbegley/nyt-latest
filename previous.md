@@ -1,3 +1,15 @@
+**Monday Briefing: The U.S. Struck Iran**\
+`Plus, a farmer’s fire brigade in Canada.`\
+https://nytimes.com/2025/06/22/briefing/iran-us-bombing-israel-syria-ukraine.html
+
+**New York City Increases N.Y.P.D. Presence at Vulnerable Sites**\
+`After the Iran bombings, more officers were placed at religious, cultural and diplomatic locations, Mayor Eric Adams said. The M.T.A. and the Port Authority have activated counterterrorism protocols.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-bombings-nypd-counterterrorism.html
+
+**Pentagon details how attack was carried out**\
+`By Lazaro Gamio`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/pentagon-details-how-attack-was-carried-out
+
 **Suicide Bombing at Damascus Church Kills at Least 20**\
 `The attack on a Greek Orthodox service made clear the challenges facing Syria’s new government in a country long pitted by sectarian divides.`\
 https://nytimes.com/2025/06/22/world/middleeast/damascus-church-bombing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/22/business/tesla-robotaxi-service-austin.html
 **Harry Brook and his uneasy relationship with India**\
 `Brook is not exactly the most popular player on the sub-continent – India took great delight in dismissing him one shy of a century `\
 https://nytimes.com/athletic/6443847/2025/06/22/england-harry-brook-india-siraj/
-
-**Satellite Images Show U.S. May Have Targeted Ventilation Shafts at Fordo**\
-`Ventilation shafts “are probably the most vulnerable points of the facility,” one expert said.`\
-https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-bomb-satellite.html
-
-**Club condemn fans as Williams mural painted over amid Barcelona interest**\
-`Athletic said they had contacted artist Carlos Lopez over restoring the mural, and said those who defaced it had disrespected the club.`\
-https://nytimes.com/athletic/6443835/2025/06/22/nico-williams-athletic-club-mural-barcelona/
-
-**Kevin Durant trade grades: Did Suns get enough in return from Rockets?**\
-`The Suns decided they needed to get a Kevin Durant deal done before the NBA Draft. Let's examine their haul`\
-https://nytimes.com/athletic/6443605/2025/06/22/kevin-durant-trade-grades-rockets-suns/
 

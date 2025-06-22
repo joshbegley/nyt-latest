@@ -1,3 +1,15 @@
+**Monday Briefing: The U.S. Struck Iran**\
+`Plus, a farmer’s fire brigade in Canada.`\
+https://nytimes.com/2025/06/22/briefing/iran-us-bombing-israel-syria-ukraine.html
+
+**New York City Increases N.Y.P.D. Presence at Vulnerable Sites**\
+`After the Iran bombings, more officers were placed at religious, cultural and diplomatic locations, Mayor Eric Adams said. The M.T.A. and the Port Authority have activated counterterrorism protocols.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-bombings-nypd-counterterrorism.html
+
+**Pentagon details how attack was carried out**\
+`By Lazaro Gamio`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/pentagon-details-how-attack-was-carried-out
+
 **Iranian Officials Try to Project Sense of Normalcy, Though Nothing Is Normal**\
 `The mood in the government after the U.S. attacks is one of defeat and humiliation. But state media are showing people going about their daily routines.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-government-us-attack.html
