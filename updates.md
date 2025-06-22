@@ -1,3 +1,7 @@
+**Canada held by Curacao in frustrating Gold Cup group stage draw**\
+`Jesse Marsch's side still has some work to do to book a quarterfinal spot`\
+https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
+
 **Jon Jones retires from UFC; Tom Aspinall named undisputed heavyweight champ**\
 `Aspinall's promotion Saturday makes him the undisputed UFC Heavyweight Champion, his first full title for the company.`\
 https://nytimes.com/athletic/6442683/2025/06/21/jon-jones-retirement-ufc-tom-aspinall-heavyweight-champion/
