@@ -1,3 +1,7 @@
+**The Briefing: Juve 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
+`Two brilliant and very different finishes from the young Turk were the highlights of this clash in Philadelphia.`\
+https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
+
 **Gulf Countries Voice Concern After U.S. Attack on Iran Nuclear Sites**\
 `Saudi Arabia, Qatar and other Gulf Arab countries expressed dismay over the American attack, but stopped short of condemning the United States, a key ally.`\
 https://nytimes.com/2025/06/22/world/middleeast/gulf-countries-us-attack-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424856/2025/06/22/kevin-durant-trade-rockets-suns-
 **Michigan Church Shooting Leaves at Least 1 Injured and Gunman Dead, Police Say**\
 `A church security guard fatally shot the gunman, the Wayne Police Department said.`\
 https://nytimes.com/2025/06/22/us/shooting-church-wayne-michigan.html
-
-**In Remarks on Iran, Hegseth Conveys Messages to Two Different Audiences**\
-`The U.S. defense secretary was in the difficult position of praising American military might while acknowledging people’s concerns about another conflict.`\
-https://nytimes.com/2025/06/22/us/politics/hegseth-iran-strikes.html
 
