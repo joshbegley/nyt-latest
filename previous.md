@@ -1,3 +1,7 @@
+**What Iran Does Next**\
+`Among the most likely options are asymmetric or terrorist attacks, although the time frame is impossible to gauge.`\
+https://nytimes.com/2025/06/22/opinion/iran-nuclear-strike-israel-war.html
+
 **The Big Question Facing Energy Markets: Will Iran Disrupt Oil and Gas Flows?**\
 `Crude oil futures will begin trading at 6 p.m. Eastern time on Sunday, providing an early look at the market’s reaction to the U.S. strikes.`\
 https://nytimes.com/2025/06/22/business/energy-environment/iran-oil-gas-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/nyregion/mahmoud-khalil-interview-trump.html
 **A Timeline of the U.S. Attack in Iran**\
 `The Pentagon detailed how stealth bombers flew from Missouri into Iran to bomb three nuclear sites.`\
 https://nytimes.com/2025/06/22/us/us-bomb-iran-nuclear-timeline.html
-
-**Trump’s Courageous and Correct Decision**\
-`The president’s responsibility was to deny Iran’s leaders the capability to build a nuclear bomb.`\
-https://nytimes.com/2025/06/22/opinion/us-military-strike-iran-trump.html
 
