@@ -1,3 +1,7 @@
+**Suns trade Kevin Durant to Rockets for Jalen Green, Dillon Brooks: Sources**\
+`This marks the first blockbuster trade for Phoenix general manager Brian Gregory.`\
+https://nytimes.com/athletic/6424856/2025/06/22/kevin-durant-trade-rockets-suns-brooks-green-nba/
+
 **Michigan Church Shooting Leaves 1 Injured and Gunman Dead, Police Say**\
 `A church security guard fatally shot the gunman, the Wayne Police Department said.`\
 https://nytimes.com/2025/06/22/us/shooting-church-wayne-michigan.html

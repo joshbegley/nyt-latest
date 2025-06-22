@@ -1,3 +1,7 @@
+**Suns trade Kevin Durant to Rockets for Jalen Green, Dillon Brooks: Sources**\
+`This marks the first blockbuster trade for Phoenix general manager Brian Gregory.`\
+https://nytimes.com/athletic/6424856/2025/06/22/kevin-durant-trade-rockets-suns-brooks-green-nba/
+
 **Michigan Church Shooting Leaves 1 Injured and Gunman Dead, Police Say**\
 `A church security guard fatally shot the gunman, the Wayne Police Department said.`\
 https://nytimes.com/2025/06/22/us/shooting-church-wayne-michigan.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6443226/2025/06/22/tennis-alcaraz-lehecka-queens-fi
 **6 Dead After Boat Capsizes on Lake Tahoe**\
 `A large wave overturned a 27-foot-long boat on Saturday afternoon, the U.S. Coast Guard said. Two people remained missing.`\
 https://nytimes.com/2025/06/22/us/lake-tahoe-boat-capsize.html
-
-**Iran’s Fordo Site Said to Look Severely Damaged, Not Destroyed**\
-`Initial military assessments of the buried nuclear site contrast with the statement on the strike there made by President Trump.`\
-https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-destroyed.html
 
