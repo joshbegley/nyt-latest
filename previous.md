@@ -1,3 +1,11 @@
+**Israeli Soldiers Recovered the Bodies of Three Hostages in Gaza**\
+`The retrieval of the bodies of three Israelis taken hostage by Hamas jolted Israelis’ focus back to a conflict that had been overshadowed by the escalating crisis with Iran.`\
+https://nytimes.com/2025/06/22/world/middleeast/israeli-soldiers-recovered-the-bodies-of-three-hostages-in-gaza.html
+
+**Stones committed to Man City: ‘I want to stay here, I love it’**\
+`The England international defender joined City back in 2016.`\
+https://nytimes.com/athletic/6443155/2025/06/22/man-city-john-stones-future/
+
 **Fear and Quiet Resistance Amid a Los Angeles in Turmoil**\
 `Days of immigration raids and protests have shaken Los Angeles’ Latino community, but for undocumented people, life continues.`\
 https://nytimes.com/2025/06/22/opinion/los-angeles-protests-raids-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6440738/2025/06/22/edmonton-oilers-trade-targets-20
 **Trump’s Strike on Iran Cements Netanyahu’s Political Comeback**\
 `The United States’ overnight attack could cause further escalation. To Israelis, it is already seen as a victory for Israel, and for Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2025/06/22/world/middleeast/netanyahu-israel-trump-iran-strike.html
-
-**U.S. troops may be vulnerable to potential Iranian strikes.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/us-troops-may-be-vulnerable-to-potential-iranian-strikes
-
-**From Willis Reed's return to LeBron's block: Ranking the 10 best NBA Finals Game 7s**\
-`There have been 19 Game 7s in NBA Finals history. Not every one of them was a classic, but a number of them were. We've picked the best.`\
-https://nytimes.com/athletic/6442813/2025/06/22/ranking-the-10-best-nba-finals-game-7s-from-willis-reeds-return-to-lebrons-block/
 

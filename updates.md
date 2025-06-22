@@ -1,3 +1,11 @@
+**Israeli Soldiers Recovered the Bodies of Three Hostages in Gaza**\
+`The retrieval of the bodies of three Israelis taken hostage by Hamas jolted Israelis’ focus back to a conflict that had been overshadowed by the escalating crisis with Iran.`\
+https://nytimes.com/2025/06/22/world/middleeast/israeli-soldiers-recovered-the-bodies-of-three-hostages-in-gaza.html
+
+**Stones committed to Man City: ‘I want to stay here, I love it’**\
+`The England international defender joined City back in 2016.`\
+https://nytimes.com/athletic/6443155/2025/06/22/man-city-john-stones-future/
+
 **Fear and Quiet Resistance Amid a Los Angeles in Turmoil**\
 `Days of immigration raids and protests have shaken Los Angeles’ Latino community, but for undocumented people, life continues.`\
 https://nytimes.com/2025/06/22/opinion/los-angeles-protests-raids-ice.html
