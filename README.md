@@ -1,3 +1,11 @@
+**Yankees takeaways: Jazz Chisholm Jr. sparks comeback, Paul Goldschmidt's sneaky speed**\
+`Chisholm is hitting .350 with a .987 OPS in 17 games since returning from injury, and he drove in the winning run Sunday.`\
+https://nytimes.com/athletic/6444146/2025/06/22/new-york-yankees-jazz-chisholm-paul-goldschmidt/
+
+**Sampdoria stay up as Serie B relegation play-off abandoned**\
+`The game was abandoned in the 65th minute with Sampdoria leading 2-0 on the night and 4-0 on aggregate.`\
+https://nytimes.com/athletic/6444023/2025/06/22/sampdoria-serie-b-relegation-play-off/
+
 **U.S. Officials Concede They Don’t Know Whereabouts of Iran’s Uranium Stockpile**\
 `Rafael Mariano Grossi, the director of general of the International Atomic Energy Agency, said he believed Tehran’s stockpile of near-bomb-grade nuclear material had been moved before the strikes.`\
 https://nytimes.com/2025/06/22/us/politics/iran-uranium-stockpile-whereabouts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6444111/2025/06/22/lsu-wins-college-world-series-co
 **Why the Rockets changed course, fast-tracked their timeline to land Kevin Durant**\
 `The Rockets and Suns had been in trade talks about Durant for a while before things stalled. What changed to get the deal done?`\
 https://nytimes.com/athletic/6444109/2025/06/22/rockets-kevin-durant-trade-suns-nba/
-
-**The Briefing: Real Madrid 3 Pachuca 1 – Alonso's side show attacking class after Asencio red card**\
-`Real Madrid beat Pachuca 3-1 to go top of Group H at the Club World Cup. Our writers break down the key talking points...`\
-https://nytimes.com/athletic/6431482/2025/06/22/real-madrid-3-pachuca-1-club-world-cup/
-
-**Monday Briefing: The U.S. Struck Iran**\
-`Plus, a farmer’s fire brigade in Canada.`\
-https://nytimes.com/2025/06/22/briefing/iran-us-bombing-israel-syria-ukraine.html
 
