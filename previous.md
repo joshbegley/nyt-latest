@@ -1,40 +1,40 @@
-**Watching cricket with English India supporters - and the boisterous Bharat Army**\
-`From Wisconsin to West Yorkshire - the passion of the India fans will shine through in their series with England. The Athletic joined them`\
-https://nytimes.com/athletic/6440838/2025/06/22/india-cricket-fans-bharat-army/
+**Mets' how-to guide for ending a long losing streak**\
+`New York snapped a seven-game losing streak with an 11-4 win over Philadelphia on Saturday night.`\
+https://nytimes.com/athletic/6442948/2025/06/22/mets-beat-phillies-end-losing-streak/
 
-**NBA gets the night and spotlight it's been seeking with Thunder-Pacers Game 7**\
-`The league has pushed to squeeze teams into the financial and competitive middle. Game 7 will be the culmination of that effort.`\
-https://nytimes.com/athletic/6441308/2025/06/22/nba-finals-2025-game-7-pacers-thunder/
+**How to watch Liberty at Storm: Breanna Stewart returns to Seattle in heavyweight clash**\
+`Stewart leads the New York Liberty, who have lost two of their last three games, into battle against her former team.`\
+https://nytimes.com/athletic/6440961/2025/06/22/liberty-storm-breanna-stewart-seattle-how-to-watch/
 
-**It’s About to Get Brutally Hot in New York City**\
-`Temperatures in Central Park are forecast to soar into the high 90s on Monday and Tuesday, but it will feel like it’s 105 degrees outside.`\
-https://nytimes.com/2025/06/22/weather/nyc-heat-wave.html
+**After wildly entertaining NBA playoffs and finals, is there a more perfect coda than a Game 7?**\
+`Sunday's finale alone is enough to deem this postseason special, but the good times rolled all the way through. Ratings be damned.`\
+https://nytimes.com/athletic/6442630/2025/06/22/2025-nba-playoffs-ratings-game-7-classic/
 
-**The New York Times International Edition in Print for Monday, June 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/22/todays-new-york-times-international-edition
+**Mick Abel has shown flashes of greatness but is an unfinished product**\
+`Saturday, Abel became the fifth pitcher in Phillies history to allow four homers in three innings or fewer.`\
+https://nytimes.com/athletic/6442874/2025/06/22/mick-abel-phillies-mets-loss/
 
-**Here’s What to Know About Fordo, Iran’s Best-Protected Nuclear Site**\
-`The nuclear fuel enrichment plant was built deep inside a mountain in order to withstand an attack.`\
-https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-site.html
+**Nine years after 'Blocked by James,' ESPN's Mike Breen is ready to meet the NBA Finals' moment**\
+`"I've had the privilege to be a part of calling some of the biggest moments in the game that I have loved since I was little."`\
+https://nytimes.com/athletic/6441184/2025/06/22/mike-breen-abc-espn-nba-finals-game-7-2025/
 
-**How to watch the USMNT vs. Haiti in final leg of Concacaf Gold Cup group play**\
-`The United States men's national team closes out the group stage of the Concacaf Gold Cup this Sunday when it takes on Haiti.`\
-https://nytimes.com/athletic/6441095/2025/06/22/usmnt-haiti-concacaf-gold-cup-how-to-watch/
+**Roll Back Legal Same-Sex Marriage? Republicans Are Getting It Wrong.**\
+`The cultural winds have shifted on many issues, but Republican voters are not clamoring to unravel same-sex marriage rights.`\
+https://nytimes.com/2025/06/22/opinion/gay-marriage-republicans-obergefell-hodges.html
 
-**Facing a Grave Threat, Iran Is Isolated**\
-`Its proxy forces around the region have been largely silent in offering concrete support after attacks by Israel and now the United States.`\
-https://nytimes.com/2025/06/22/world/middleeast/iran-israel-hezbollah-houthis-hamas-iraq.html
+**The board decision that sent the MLB, NFL unions into controversy**\
+`OneTeam Partners is co-owned by the players unions for five major sports leagues. Now federal investigators are asking questions. `\
+https://nytimes.com/athletic/6442699/2025/06/22/nflpa-mlbpa-investigation-one-team-partners-equity-controversy/
 
-**Vera Rubin’s Legacy Lives On in a Troubled Scientific Landscape**\
-`A powerful new telescope will usher in a new era of cosmic discovery, but in a political climate vastly different from when it was named for a once overlooked female astronomer.`\
-https://nytimes.com/2025/06/22/science/vera-rubin-women-astronomy.html
+**Wordle Review No. 1,465**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 23, 2025.`\
+https://nytimes.com/2025/06/22/crosswords/wordle-review-1465.html
 
-**Iran’s Short-Range Weapons Pose a Threat to U.S. Bases**\
-`Iran has depleted its stockpile of medium-range missiles, U.S. officials say. But the country still has an ample supply of other weapons, including rockets and attack drones.`\
-https://nytimes.com/2025/06/22/us/politics/iran-weapons-us-bases.html
+**‘Are We Past Peak Harvard?’: 3 Writers Mull Higher Education’s Woes**\
+`Pondering the politics of universities, and their future.`\
+https://nytimes.com/2025/06/22/opinion/trump-higher-education-harvard.html
 
-**Aide Who Was Sean Combs’s ‘Right Hand’ Draws Scrutiny at His Trial**\
-`Kristina Khorram, the mogul’s former chief of staff, was not charged in his indictment, but the government has identified her and other staff as co-conspirators.`\
-https://nytimes.com/2025/06/22/arts/music/sean-diddy-combs-kristina-khorram-kk.html
+**Happy Birthday, Money**\
+`Americans have had 250 years of legal tender. We’re still figuring it out.`\
+https://nytimes.com/2025/06/22/opinion/happy-birthday-money.html
 
