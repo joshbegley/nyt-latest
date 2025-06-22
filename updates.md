@@ -1,3 +1,7 @@
+**The Consequences of U.S. Strikes in Iran**\
+`Readers offer contrasting perspectives on the bombing of Iran’s nuclear facilities.`\
+https://nytimes.com/2025/06/22/opinion/us-iran-bomb-nuclear-sites.html
+
 **Some Israelis Expect New Era After U.S. Strikes on Iran. Others Are Skeptical.**\
 `Both elation and fear were widespread in Israel amid uncertainty over what comes next.`\
 https://nytimes.com/2025/06/22/world/middleeast/israel-us-strikes-iran-mood.html

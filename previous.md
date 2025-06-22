@@ -1,3 +1,7 @@
+**The Consequences of U.S. Strikes in Iran**\
+`Readers offer contrasting perspectives on the bombing of Iran’s nuclear facilities.`\
+https://nytimes.com/2025/06/22/opinion/us-iran-bomb-nuclear-sites.html
+
 **Some Israelis Expect New Era After U.S. Strikes on Iran. Others Are Skeptical.**\
 `Both elation and fear were widespread in Israel amid uncertainty over what comes next.`\
 https://nytimes.com/2025/06/22/world/middleeast/israel-us-strikes-iran-mood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/weather/heat-wave-temperatures.html
 **Pentagon Details Multipronged Attack on Iranian Nuclear Sites**\
 `B-2 stealth bombers, fighter aircraft and submarine-launched cruise missiles struck Fordo, Natanz and Isfahan during “Operation Midnight Hammer.”`\
 https://nytimes.com/2025/06/22/world/middleeast/pentagon-iran-nuclear-sites-attack-details.html
-
-**Ryan Yarbrough placed on IL, Allan Winans to start Monday vs. Reds**\
-`The left-handed pitcher has been placed on the 15-day injured list with a right oblique strain, backdated to June 20.`\
-https://nytimes.com/athletic/6443203/2025/06/22/yankees-ryan-yarbrough-injury-allan-winans/
 
