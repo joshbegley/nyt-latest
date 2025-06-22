@@ -1,3 +1,7 @@
+**Russia may be ‘a friend’ of Iran, but it seems unlikely to offer much help.**\
+`By Anatoly Kurmanaev`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/russia-may-be-a-friend-of-iran-but-it-seems-unlikely-to-offer-much-help
+
 **The Briefing: Juve 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
 `Two brilliant and very different finishes from the young Turk were the highlights of this clash in Philadelphia.`\
 https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
