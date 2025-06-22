@@ -1,3 +1,7 @@
+**Rod Nordland, 75, Dies; War Reporter Who Also Wrote of His Own Struggle**\
+`Motivated by the helplessness of his boyhood, he described the lives of vulnerable people in conflicts around the world and later his own terminal illness.`\
+https://nytimes.com/2025/06/22/books/rod-nordland-dead.html
+
 **Yankees takeaways: Jazz Chisholm Jr. sparks comeback, Paul Goldschmidt's sneaky speed**\
 `Chisholm is hitting .350 with a .987 OPS in 17 games since returning from injury, and he drove in the winning run Sunday.`\
 https://nytimes.com/athletic/6444146/2025/06/22/new-york-yankees-jazz-chisholm-paul-goldschmidt/

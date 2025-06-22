@@ -1,3 +1,7 @@
+**Rod Nordland, 75, Dies; War Reporter Who Also Wrote of His Own Struggle**\
+`Motivated by the helplessness of his boyhood, he described the lives of vulnerable people in conflicts around the world and later his own terminal illness.`\
+https://nytimes.com/2025/06/22/books/rod-nordland-dead.html
+
 **Yankees takeaways: Jazz Chisholm Jr. sparks comeback, Paul Goldschmidt's sneaky speed**\
 `Chisholm is hitting .350 with a .987 OPS in 17 games since returning from injury, and he drove in the winning run Sunday.`\
 https://nytimes.com/athletic/6444146/2025/06/22/new-york-yankees-jazz-chisholm-paul-goldschmidt/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/crosswords/daily-puzzle-2025-06-23.html
 **LSU wins College World Series over Coastal Carolina, claims 8th title in program history**\
 `The Tigers completed a two-game sweep in the CWS finals to set off a celebration among the sun-baked legion of fans from SEC country.`\
 https://nytimes.com/athletic/6444111/2025/06/22/lsu-wins-college-world-series-coastal-carolina/
-
-**Why the Rockets changed course, fast-tracked their timeline to land Kevin Durant**\
-`The Rockets and Suns had been in trade talks about Durant for a while before things stalled. What changed to get the deal done?`\
-https://nytimes.com/athletic/6444109/2025/06/22/rockets-kevin-durant-trade-suns-nba/
 
