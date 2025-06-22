@@ -1,3 +1,11 @@
+**The Pulse: Worst champ ever? We can explain.**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6442803/2025/06/22/the-worst-nba-champion-ever-its-not-shade-let-us-explain/
+
+**The Abu Dhabi derby - Man City v Al Ain is a contest between royal brothers**\
+`In this Club World Cup fixture, one team is owned by the president of the United Arab Emirates, the other by its deputy president`\
+https://nytimes.com/athletic/6442671/2025/06/22/abu-dhabi-derby-man-city-mansour/
+
 **Vance says Iran’s nuclear program has been ‘substantially delayed.’**\
 `The vice president stopped short of backing President Trump’s assertion that the three bombed facilities had been “totally obliterated.”`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclear-sites-damage

@@ -1,3 +1,7 @@
+**Ryan Yarbrough placed on IL, Allan Winans to start Monday vs. Reds**\
+`The left-handed pitcher has been placed on the 15-day injured list with a right oblique strain.`\
+https://nytimes.com/athletic/6443203/2025/06/22/yankees-ryan-yarbrough-injury-allan-winans/
+
 **The Pulse: Worst champ ever? We can explain.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6442803/2025/06/22/the-worst-nba-champion-ever-its-not-shade-let-us-explain/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438552/2025/06/22/liverpool-transfers-quansah-leve
 **Will Iran Again Sip the ‘Poison’ of a Forced Peace, or Escalate?**\
 `The Supreme Leader may choose to back down after a first round of retaliation, or prefer martyrdom and building a nuclear weapon.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-retaliate-us-strikes.html
-
-**Three memories of a magnificent 7: Cavaliers-Warriors epic 2016 NBA Finals finale**\
-`Pursuing history is an exhaustive endeavor and the Warriors and Cavs were destined to make history in 2016.`\
-https://nytimes.com/athletic/6442865/2025/06/22/game-7-nba-finals-cavs-warriors-2016/
 
