@@ -1,3 +1,7 @@
+**Trump Picks a Side on Entering the War in Iran, for Now**\
+`Even as he announced the strikes on Iran, President Trump appeared to be rapidly trying to get himself back to the middle by insisting the operation was a one-off.`\
+https://nytimes.com/2025/06/22/us/politics/trump-iran-maga-rift-isolationists-hawks.html
+
 **With ‘Elio,’ Pixar Has Its Worst Box Office Opening Ever**\
 `The original space adventure sold about $21 million in tickets at domestic theaters from Thursday night through Sunday, putting new pressure on the once-unstoppable studio.`\
 https://nytimes.com/2025/06/22/business/elio-pixar-box-office.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/22/opinion/us-iran-bomb-nuclear-sites.html
 **Some Israelis Expect New Era After U.S. Strikes on Iran. Others Are Skeptical.**\
 `Both elation and fear were widespread in Israel amid uncertainty over what comes next.`\
 https://nytimes.com/2025/06/22/world/middleeast/israel-us-strikes-iran-mood.html
-
-**Carlos Alcaraz beats Jiri Lehecka to win second Queen's title**\
-`Alcaraz prepared for his Wimbledon title defense with a close-run win over the dangerous Lehečka.`\
-https://nytimes.com/athletic/6443226/2025/06/22/tennis-alcaraz-lehecka-queens-final-result-analysis/
 

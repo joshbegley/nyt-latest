@@ -1,3 +1,7 @@
+**With ‘Elio,’ Pixar Has Its Worst Box Office Opening Ever**\
+`The original space adventure sold about $21 million in tickets at domestic theaters from Thursday night through Sunday, putting new pressure on the once-unstoppable studio.`\
+https://nytimes.com/2025/06/22/business/elio-pixar-box-office.html
+
 **Suns trade Kevin Durant to Rockets for Jalen Green, Dillon Brooks: Sources**\
 `This marks the first blockbuster trade for Phoenix general manager Brian Gregory.`\
 https://nytimes.com/athletic/6424856/2025/06/22/kevin-durant-trade-rockets-suns-brooks-green-nba/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/22/world/middleeast/israel-us-strikes-iran-mood.html
 **Carlos Alcaraz beats Jiri Lehecka to win second Queen's title**\
 `Alcaraz prepared for his Wimbledon title defense with a close-run win over the dangerous Lehečka.`\
 https://nytimes.com/athletic/6443226/2025/06/22/tennis-alcaraz-lehecka-queens-final-result-analysis/
-
-**6 Dead After Boat Capsizes on Lake Tahoe**\
-`A large wave overturned a 27-foot-long boat on Saturday afternoon, the U.S. Coast Guard said. Two people remained missing.`\
-https://nytimes.com/2025/06/22/us/lake-tahoe-boat-capsize.html
 
