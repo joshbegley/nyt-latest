@@ -1,3 +1,7 @@
+**Pentagon Details Multipronged Attack on Iranian Nuclear Sites**\
+`B-2 stealth bombers, fighter aircraft and submarine-launched cruise missiles struck Fordo, Natanz and Isfahan during “Operation Midnight Hammer.”`\
+https://nytimes.com/2025/06/22/world/middleeast/pentagon-iran-nuclear-sites-attack-details.html
+
 **Ryan Yarbrough placed on IL, Allan Winans to start Monday vs. Reds**\
 `The left-handed pitcher has been placed on the 15-day injured list with a right oblique strain.`\
 https://nytimes.com/athletic/6443203/2025/06/22/yankees-ryan-yarbrough-injury-allan-winans/
