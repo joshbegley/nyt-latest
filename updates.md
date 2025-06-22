@@ -1,3 +1,11 @@
+**Trump’s Courageous and Correct Decision**\
+`The president’s responsibility was to deny Iran’s leaders the capability to build a nuclear bomb.`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/us-military-strike-iran-trump
+
+**The Briefing: Juventus 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
+`Two brilliant and very different finishes from the young Turkish forward were the highlights of this clash in Philadelphia`\
+https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
+
 **The Briefing: Juventus 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
 `Two brilliant and very different finishes from the young Turk were the highlights of this clash in Philadelphia.`\
 https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/

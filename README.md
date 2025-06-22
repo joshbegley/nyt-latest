@@ -1,6 +1,10 @@
+**A Timeline of the U.S. Attack in Iran**\
+`The Pentagon detailed how stealth bombers flew from Missouri into Iran to bomb three nuclear sites.`\
+https://nytimes.com/2025/06/22/us/us-bomb-iran-nuclear-timeline.html
+
 **Trump’s Courageous and Correct Decision**\
 `The president’s responsibility was to deny Iran’s leaders the capability to build a nuclear bomb.`\
-https://nytimes.com/live/2025/06/16/opinion/thepoint/us-military-strike-iran-trump
+https://nytimes.com/2025/06/22/opinion/us-military-strike-iran-trump.html
 
 **Russia may be ‘a friend’ of Iran, but it seems unlikely to offer much help.**\
 `By Anatoly Kurmanaev`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440019/2025/06/22/blue-jackets-trade-targets-free-
 **Trump Picks a Side on Entering the War in Iran, for Now**\
 `Even as he announced the strikes on Iran, President Trump appeared to be rapidly trying to get himself back to the middle by insisting the operation was a one-off.`\
 https://nytimes.com/2025/06/22/us/politics/trump-iran-maga-rift-isolationists-hawks.html
-
-**With ‘Elio,’ Pixar Has Its Worst Box Office Opening Ever**\
-`The original space adventure sold about $21 million in tickets at domestic theaters from Thursday night through Sunday, putting new pressure on the once-unstoppable studio.`\
-https://nytimes.com/2025/06/22/business/elio-pixar-box-office.html
 
