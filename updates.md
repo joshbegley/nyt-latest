@@ -1,3 +1,7 @@
+**‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release**\
+`The Columbia graduate and pro-Palestinian activist returned to New York after more than three months in detention. The Trump administration is seeking to deport him.`\
+https://nytimes.com/2025/06/22/nyregion/mahmoud-khalil-interview-trump.html
+
 **A Timeline of the U.S. Attack in Iran**\
 `The Pentagon detailed how stealth bombers flew from Missouri into Iran to bomb three nuclear sites.`\
 https://nytimes.com/2025/06/22/us/us-bomb-iran-nuclear-timeline.html
