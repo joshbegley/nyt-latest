@@ -1,3 +1,11 @@
+**Club condemn fans as Williams mural painted over amid Barcelona interest**\
+`Athletic said they had contacted artist Carlos Lopez over restoring the mural, and said those who defaced it had disrespected the club.`\
+https://nytimes.com/athletic/6443835/2025/06/22/nico-williams-athletic-club-mural-barcelona/
+
+**Kevin Durant trade grades: Did Suns get enough in return from Rockets?**\
+`The Suns decided they needed to get a Kevin Durant deal done before the NBA Draft. Let's examine their haul`\
+https://nytimes.com/athletic/6443605/2025/06/22/kevin-durant-trade-grades-rockets-suns/
+
 **Kevin Durant trade grades: Did Suns get enough in return from Rockets?**\
 `The Suns decided they needed to get a Kevin Durant deal done before the NBA Draft. Zach Harper's trade grades examines their haul`\
 https://nytimes.com/athletic/6443605/2025/06/22/kevin-durant-trade-grades-rockets-suns/
