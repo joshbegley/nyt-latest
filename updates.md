@@ -1,3 +1,19 @@
+**3 Dead in Central New York After Powerful Storm Lashes the Area**\
+`Three people, including 6-year-old sisters, were killed after trees fell on homes during severe weather that struck early on Sunday, officials said.`\
+https://nytimes.com/2025/06/22/nyregion/ny-storm-flood-deaths.html
+
+**After Kevin Durant trade domino, what's next for Rockets and Suns?**\
+`The Phoenix-Houston trade was a fair one on both sides, but are more moves on the way on both sides?`\
+https://nytimes.com/athletic/6443983/2025/06/22/kevin-durant-trade-rockets-suns-analysis-reaction/
+
+**Is the U.S. at War With Iran?**\
+`President Trump avoided asking Congress for permission before striking Iran, despite the Constitution saying only the legislature can declare war.`\
+https://nytimes.com/2025/06/22/us/politics/trump-strikes-war-iran.html
+
+**Early Web Portal**\
+`Zhouqin Burnikel gives us the silent treatment.`\
+https://nytimes.com/2025/06/22/crosswords/daily-puzzle-2025-06-23.html
+
 **The Briefing: Real Madrid 3 Pachuca 1 – Alonso's side show attacking class after Asencio red card**\
 `Real Madrid beat Pachuca 3-1 to go top of Group H at the Club World Cup. Our writers break down the key talking points...`\
 https://nytimes.com/athletic/6431482/2025/06/22/real-madrid-3-pachuca-1-club-world-cup/
