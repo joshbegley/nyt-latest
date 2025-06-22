@@ -1,3 +1,7 @@
+**River Plate 0 Monterrey 0 - Explaining the complicated Club World Cup permutations to decide group E**\
+`River Plate, Monterrey and Inter Milan can all still qualify for the Club World Cup knockouts going into the final round`\
+https://nytimes.com/athletic/6427683/2025/06/21/river-plate-monterrey-group-e-permutations/
+
 **Trump Claims U.S. Strikes on Iran Nuclear Sites Were a Success**\
 `President Trump warned of “far greater” attacks on Iran if the country did not make peace with Israel and the United States.`\
 https://nytimes.com/video/world/middleeast/100000010242831/trump-iran-nuclear-sites.html
