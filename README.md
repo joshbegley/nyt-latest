@@ -1,3 +1,27 @@
+**America Strikes Iran**\
+`We explain what we know about the attacks.`\
+https://nytimes.com/2025/06/22/briefing/america-trump-iran-strike.html
+
+**Thunder vs. Pacers Game 7 predictions: Which team wins?**\
+`Which team does The Athletic's NBA staff believe will triumph in Sunday's winner-take-all game?`\
+https://nytimes.com/athletic/6441883/2025/06/22/nba-finals-2025-game-7-predictions-pacers-thunder/
+
+**How to watch Mexico vs. Costa Rica in Concacaf Gold Cup group play finale**\
+`The lights go up in Las Vegas on Sunday night as defending champion Mexico faces Costa Rica with Group A supremacy on the line.`\
+https://nytimes.com/athletic/6441191/2025/06/22/mexico-costa-rica-concacaf-gold-cup-how-to-watch/
+
+**2025 NHL Draft class superlatives: Ranking the top skaters, shooters, hands and more**\
+`This year-end project evaluates the top 2025 NHL Draft prospects across several different categories.`\
+https://nytimes.com/athletic/6383682/2025/06/22/2025-nhl-draft-class-superlatives-skills/
+
+**Why Mitch Marner and Connor McDavid could start a new NHL trend of shorter-term deals**\
+`Unlike in other leagues, short deals just don't happen for stars in the NHL. Or at least they haven't. Why might that change?`\
+https://nytimes.com/athletic/6441594/2025/06/22/nhl-free-agency-mitch-marner-connor-mcdavid-deals/
+
+**Does Iran have another secret enrichment site, as it claims?**\
+`By Steven Erlanger`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/does-iran-have-another-secret-enrichment-site-as-it-claims
+
 **‘We have to respond,’ Iran’s foreign minister warns.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/we-have-to-respond-irans-foreign-minister-warns
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6440961/2025/06/22/liberty-storm-breanna-stewart-se
 **After wildly entertaining NBA playoffs and finals, is there a more perfect coda than a Game 7?**\
 `Sunday's finale alone is enough to deem this postseason special, but the good times rolled all the way through. Ratings be damned.`\
 https://nytimes.com/athletic/6442630/2025/06/22/2025-nba-playoffs-ratings-game-7-classic/
-
-**Mick Abel has shown flashes of greatness but is an unfinished product**\
-`Saturday, Abel became the fifth pitcher in Phillies history to allow four homers in three innings or fewer.`\
-https://nytimes.com/athletic/6442874/2025/06/22/mick-abel-phillies-mets-loss/
-
-**Nine years after 'Blocked by James,' ESPN's Mike Breen is ready to meet the NBA Finals' moment**\
-`"I've had the privilege to be a part of calling some of the biggest moments in the game that I have loved since I was little."`\
-https://nytimes.com/athletic/6441184/2025/06/22/mike-breen-abc-espn-nba-finals-game-7-2025/
-
-**Roll Back Legal Same-Sex Marriage? Republicans Are Getting It Wrong.**\
-`The cultural winds have shifted on many issues, but Republican voters are not clamoring to unravel same-sex marriage rights.`\
-https://nytimes.com/2025/06/22/opinion/gay-marriage-republicans-obergefell-hodges.html
-
-**The board decision that sent the MLB, NFL unions into controversy**\
-`OneTeam Partners is co-owned by the players unions for five major sports leagues. Now federal investigators are asking questions. `\
-https://nytimes.com/athletic/6442699/2025/06/22/nflpa-mlbpa-investigation-one-team-partners-equity-controversy/
-
-**Wordle Review No. 1,465**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 23, 2025.`\
-https://nytimes.com/2025/06/22/crosswords/wordle-review-1465.html
-
-**‘Are We Past Peak Harvard?’: 3 Writers Mull Higher Education’s Woes**\
-`Pondering the politics of universities, and their future.`\
-https://nytimes.com/2025/06/22/opinion/trump-higher-education-harvard.html
 
