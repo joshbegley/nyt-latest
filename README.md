@@ -2,7 +2,7 @@
 `The vice president stopped short of backing President Trump’s assertion that the three bombed facilities had been “totally obliterated.”`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclear-sites-damage
 
-**The Abu Dhabi derby – Man City v Al Ain is a contest between royal brothers**\
+**The Abu Dhabi derby - Man City v Al Ain is a contest between royal brothers**\
 `In this Club World Cup fixture, one team is owned by the president of the United Arab Emirates, the other by the deputy president`\
 https://nytimes.com/athletic/6442671/2025/06/22/abu-dhabi-derby-man-city-mansour/
 
