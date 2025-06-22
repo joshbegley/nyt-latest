@@ -1,3 +1,7 @@
+**Iran built Fordo deep inside a mountain to withstand aerial attacks.**\
+`By Helene Cooper, Eric Schmitt and Samuel Granados`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/iran-built-fordo-deep-inside-a-mountain-to-withstand-aerial-attacks
+
 **Here are the latest developments.**\
 `By Eric Nagourney and Maggie Haberman`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442491/2025/06/21/usmnt-pochettino-juventus-white-
 **Bringing a Plus One**\
 `Ruth Bloomfield Margolin and Hannah Margolin present a perfect collaboration, and invite us all to crash.`\
 https://nytimes.com/2025/06/21/crosswords/daily-puzzle-2025-06-22.html
-
-**Bucks guard Pat Connaughton exercises player option: Source**\
-`With Connaughton's decision, the Bucks now have five players on guaranteed contracts for next season.`\
-https://nytimes.com/athletic/6442494/2025/06/21/pat-connaughton-bucks-player-option/
 
