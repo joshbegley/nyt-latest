@@ -1,3 +1,11 @@
+**FIFA's Gianni Infantino says soccer will be the 'No. 1 sport' in U.S.**\
+`“It will be top, top, top. One of the top leagues in the world, for sure," FIFA's president said. `\
+https://nytimes.com/athletic/6442615/2025/06/21/gianni-infantino-fifa-fanatics-fest-promotion-relegation/
+
+**Canada held by Curacao in frustrating Gold Cup group stage draw**\
+`Jesse Marsch's side still has some work to do to book a quarterfinal spot.`\
+https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
+
 **Canada held by Curacao in frustrating Gold Cup group stage draw**\
 `Jesse Marsch's side still has some work to do to book a quarterfinal spot`\
 https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
