@@ -1,3 +1,7 @@
+**Iran fires more missiles at Israel, hours after the U.S. strikes on Iran.**\
+`By Aaron Boxerman and Gabby Sobelman`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/iran-fires-more-missiles-at-israel-hours-after-the-us-strikes-on-iran
+
 **Expect Club World Cup delays to repeat next summer, says weather chief**\
 `Several matches were delayed during the Club World Cup's first week, and the trend may continue — this summer and next.`\
 https://nytimes.com/athletic/6441522/2025/06/22/club-world-cup-weather-delays-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/nyregion/bill-clinton-endorse-cuomo-mayor.html
 **An Actor, a Bookseller and a Chef Walk Into a Voting Booth**\
 `We asked scores of well-known New Yorkers from a broad spectrum of the city to give us their ranked-choice ballots for mayor. Here’s what some told us.`\
 https://nytimes.com/2025/06/22/nyregion/celebrity-ballots-mayor-nyc.html
-
-**A Heavy Lift, Even for an Unflappable Facilities Director**\
-`A 9,400-pound granite frieze was commissioned for The New York Times in 1930 and rests in its third home.`\
-https://nytimes.com/2025/06/22/insider/corrado-parducci-frieze.html
 
