@@ -1,3 +1,7 @@
+**With Decision to Bomb Iran, Trump Injects U.S. Into Middle East Conflict**\
+`By bombing three nuclear sites in Iran, the United States has joined Israel’s war against the country. Now it is bracing for Iranian retaliation.`\
+https://nytimes.com/2025/06/21/world/middleeast/us-bomb-iran-trump-war.html
+
 **There are about 40,000 U.S. troops in the Middle East.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/there-are-about-40000-us-troops-in-the-middle-east
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442500/2025/06/21/mariners-cal-raleigh-30-home-run
 **4 Missing After Medical Helicopter Crashes in Quebec Lake**\
 `The helicopter was carrying four crew members and a patient when it crashed on Friday night, officials said.`\
 https://nytimes.com/2025/06/21/world/canada/medical-helicopter-crash-canada.html
-
-**Cazorla helps Real Oviedo earn promotion to La Liga for first time in 24 years**\
-`Cazorla came off the bench to score an emphatic free-kick with his weak foot in the semi-final victory over Almeria on June 11.`\
-https://nytimes.com/athletic/6442538/2025/06/21/santi-cazorla-oviedo-promotion-la-liga/
 
