@@ -1,3 +1,7 @@
+**Real Madrid's Rudiger allegedly racially abused by Pachuca's Cabral at Club World Cup**\
+`Rudiger alerted referee Ramon Abatti following the alleged comment during the game with the official using FIFA's protocol signal`\
+https://nytimes.com/athletic/6444134/2025/06/22/antonio-rudiger-gustavo-cabral/
+
 **Rod Nordland, 75, Dies; War Reporter Who Also Wrote of His Own Struggle**\
 `Motivated by the helplessness of his boyhood, he described the lives of vulnerable people in conflicts around the world and later his own terminal illness.`\
 https://nytimes.com/2025/06/22/books/rod-nordland-dead.html
