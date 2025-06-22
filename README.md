@@ -1,3 +1,7 @@
+**6 Dead After Boat Capsizes on Lake Tahoe**\
+`A large wave overturned a 27-foot-long boat on Saturday afternoon, the U.S. Coast Guard said. Two people remained missing.`\
+https://nytimes.com/2025/06/22/us/lake-tahoe-boat-capsize.html
+
 **Iran’s Fordo Site Said to Look Severely Damaged, Not Destroyed**\
 `Initial military assessments of the buried nuclear site contrast with the statement on the strike there made by President Trump.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-destroyed.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclea
 **The Abu Dhabi derby - Man City v Al Ain is a contest between royal brothers**\
 `In this Club World Cup fixture, one team is owned by the president of the United Arab Emirates, the other by its deputy president`\
 https://nytimes.com/athletic/6442671/2025/06/22/abu-dhabi-derby-man-city-mansour/
-
-**Israeli Soldiers Recovered the Bodies of Three Hostages in Gaza**\
-`The retrieval of the bodies of three Israelis taken hostage by Hamas jolted Israelis’ focus back to a conflict that had been overshadowed by the escalating crisis with Iran.`\
-https://nytimes.com/2025/06/22/world/middleeast/israeli-soldiers-recovered-the-bodies-of-three-hostages-in-gaza.html
 

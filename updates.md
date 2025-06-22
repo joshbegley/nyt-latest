@@ -1,3 +1,7 @@
+**Iran’s Fordo Site Said to Look Severely Damaged, Not Destroyed**\
+`Initial military assessments of the buried nuclear site contrast with the statement on the strike there made by President Trump.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-destroyed.html
+
 **Josh Harris spends $500,000 on Jayden Daniels rookie card to display at stadium**\
 `Harris bought the card with Daniels standing beside him`\
 https://nytimes.com/athletic/6443334/2025/06/22/jayden-daniels-rookie-card-josh-harris/

@@ -1,3 +1,7 @@
+**Iran’s Fordo Site Said to Look Severely Damaged, Not Destroyed**\
+`Initial military assessments of the buried nuclear site contrast with the statement on the strike there made by President Trump.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-fordo-nuclear-damaged-not-destroyed.html
+
 **Josh Harris spends $500,000 on Jayden Daniels rookie card to display at stadium**\
 `Harris bought the card with Daniels standing beside him`\
 https://nytimes.com/athletic/6443334/2025/06/22/jayden-daniels-rookie-card-josh-harris/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442671/2025/06/22/abu-dhabi-derby-man-city-mansour
 **Israeli Soldiers Recovered the Bodies of Three Hostages in Gaza**\
 `The retrieval of the bodies of three Israelis taken hostage by Hamas jolted Israelis’ focus back to a conflict that had been overshadowed by the escalating crisis with Iran.`\
 https://nytimes.com/2025/06/22/world/middleeast/israeli-soldiers-recovered-the-bodies-of-three-hostages-in-gaza.html
-
-**Stones committed to Man City: ‘I want to stay here, I love it’**\
-`The England international defender joined City back in 2016.`\
-https://nytimes.com/athletic/6443155/2025/06/22/man-city-john-stones-future/
 
