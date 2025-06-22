@@ -1,40 +1,40 @@
-**Iran fires more missiles at Israel, hours after the U.S. strikes on Iran.**\
-`By Aaron Boxerman and Gabby Sobelman`\
-https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/iran-fires-more-missiles-at-israel-hours-after-the-us-strikes-on-iran
+**Facing a Grave Threat, Iran Is Isolated**\
+`Its proxy forces around the region have been largely silent in offering concrete support after attacks by Israel and now the United States.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-israel-hezbollah-houthis-hamas-iraq.html
 
-**Expect Club World Cup delays to repeat next summer, says weather chief**\
-`Several matches were delayed during the Club World Cup's first week, and the trend may continue — this summer and next.`\
-https://nytimes.com/athletic/6441522/2025/06/22/club-world-cup-weather-delays-thunder/
+**Vera Rubin’s Legacy Lives On in a Troubled Scientific Landscape**\
+`A powerful new telescope will usher in a new era of cosmic discovery, but in a political climate vastly different from when it was named for a once overlooked female astronomer.`\
+https://nytimes.com/2025/06/22/science/vera-rubin-women-astronomy.html
 
-**After U.S. Strikes on Iran, Prospects for Diplomacy Look Dim**\
-`Iran’s foreign minister said the attack would have “everlasting consequences” and that Tehran “reserves all options” for a response.`\
-https://nytimes.com/2025/06/22/world/middleeast/us-strikes-iran-diplomacy.html
+**Iran’s Short-Range Weapons Pose a Threat to U.S. Bases**\
+`Iran has depleted its stockpile of medium-range missiles, U.S. officials say. But the country still has an ample supply of other weapons, including rockets and attack drones.`\
+https://nytimes.com/2025/06/22/us/politics/iran-weapons-us-bases.html
 
-**Infantino hits back at Club World Cup criticism: 'It's something special'**\
-`Infantino insists tournament is a success and "players are loving it" — despite empty seats and widespread criticism.`\
-https://nytimes.com/athletic/6442920/2025/06/22/infantino-club-world-cup-criticism/
+**Aide Who Was Sean Combs’s ‘Right Hand’ Draws Scrutiny at His Trial**\
+`Kristina Khorram, the mogul’s former chief of staff, was not charged in his indictment, but the government has identified her and other staff as co-conspirators.`\
+https://nytimes.com/2025/06/22/arts/music/sean-diddy-combs-kristina-khorram-kk.html
 
-**U.S. Bombing of Iran Keeps Oil Markets on Edge**\
-`Fighting has the potential to disrupt oil markets, but a move by Iran to cut off supply would chiefly hurt China, the biggest buyer of Iranian oil.`\
-https://nytimes.com/2025/06/22/business/us-iran-oil.html
+**‘The Sisters’ Turns a Family Mystery Into a Transnational Tour de Force**\
+`Jonas Hassen Khemiri plays with time, belonging and his own insecurities in a big, impressive novel that revolves around a trio of magnetic Swedish women.`\
+https://nytimes.com/2025/06/22/books/review/the-sisters-jonas-hassen-khemiri.html
 
-**World Leaders React to the U.S. Strikes on Iran**\
-`As fears that the attacks could lead to more dangerous escalations across the Middle East, some leaders condemned them while others urged de-escalation.`\
-https://nytimes.com/2025/06/22/world/middleeast/world-leaders-react-iran-strikes.html
+**Inside the Race to Save a Family Farm From Canada’s Wildfires**\
+`As Canada endures another heavy wildfire season, a group of resourceful farmers in British Columbia became an ad hoc fire brigade to help a neighbor.`\
+https://nytimes.com/2025/06/22/world/americas/canada-wildfires-british-columbia-farm.html
 
-**Here are the latest developments.**\
-`By Maggie Haberman, Farnaz Fassihi, Eric Schmitt, Tyler Pager, Adam Nagourney and Aaron Boxerman`\
-https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/here-are-the-latest-developments
+**‘I Feel Like I’ve Been Lied To’: When a Measles Outbreak Hits Home**\
+`From a lone clinic in Texas to an entire school district in North Dakota, the virus is upending daily life and revealing a deeper crisis of belief.`\
+https://nytimes.com/2025/06/22/us/i-feel-like-ive-been-lied-to-when-a-measles-outbreak-hits-home.html
 
-**Live Updates: Trump Claims Success After Bombing Key Iran Nuclear Sites**\
-`After hitting Iran’s most heavily fortified nuclear installation, President Trump warned of more strikes “if peace does not come quickly.” Iranian ballistic missiles wounded at least 10 in Israel, officials said.`\
-https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump
+**Pacers at Thunder Game 7 picks, odds, how to watch: OKC favored in NBA Finals finale**\
+`We get an NBA Finals Game 7 for the first time since 2016 and just the fifth time in the 21st century. OKC opens as Sunday's home favorite.`\
+https://nytimes.com/athletic/6440593/2025/06/22/pacers-thunder-nba-finals-game-7-picks-odds-how-to-watch/
 
-**Bill Clinton Endorses Andrew Cuomo for New York City Mayor**\
-`The former president’s endorsement is the latest example of how establishment Democrats seem to prefer Mr. Cuomo to his prime rival, Zohran Mamdani.`\
-https://nytimes.com/2025/06/22/nyregion/bill-clinton-endorse-cuomo-mayor.html
+**Palm Beach Has Never Been Richer. The Locals Aren’t Pleased.**\
+`Donald Trump’s presidency has turned this Florida island into the nightlife headquarters of MAGA, but the town’s old guard — much of it Republican — doesn’t love the new vibe.`\
+https://nytimes.com/2025/06/22/business/palm-beach-trump-maga.html
 
-**An Actor, a Bookseller and a Chef Walk Into a Voting Booth**\
-`We asked scores of well-known New Yorkers from a broad spectrum of the city to give us their ranked-choice ballots for mayor. Here’s what some told us.`\
-https://nytimes.com/2025/06/22/nyregion/celebrity-ballots-mayor-nyc.html
+**What Katie Sturino Wants You to Know About Her Body (and Yours, Too)**\
+`The influencer is still pushing brands to make bigger sizes and is publishing a new novel with a plus-size heroine. She is also losing weight, but that doesn’t mean she’s not “body neutral” anymore.`\
+https://nytimes.com/2025/06/22/style/katie-sturino-novel-body-positivity.html
 
