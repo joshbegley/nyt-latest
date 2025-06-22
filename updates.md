@@ -1,3 +1,7 @@
+**Fear and Quiet Resistance Amid a Los Angeles in Turmoil**\
+`Days of immigration raids and protests have shaken Los Angeles’ Latino community, but for undocumented people, life continues.`\
+https://nytimes.com/2025/06/22/opinion/los-angeles-protests-raids-ice.html
+
 **Vondroušová wins Berlin Open for first WTA title since Wimbledon 2023**\
 `Vondroušová beat Wang in the searing Berlin heat to claim her first WTA title since beating Ons Jabeur in 2023.`\
 https://nytimes.com/athletic/6443082/2025/06/22/marketa-vondrousova-berlin-open-win/
