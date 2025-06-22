@@ -1,3 +1,11 @@
+**Josh Harris spends $500,000 on Jayden Daniels rookie card to display at stadium**\
+`Harris bought the card with Daniels standing beside him`\
+https://nytimes.com/athletic/6443334/2025/06/22/jayden-daniels-rookie-card-josh-harris/
+
+**Ceviche, for Sure**\
+`Tangy, spicy and refreshing, easy to make and even easier to eat.`\
+https://nytimes.com/2025/06/22/dining/easy-ceviche-recipe.html
+
 **Dangerous Heat Wave Expands Over Central and Eastern United States**\
 `A multiday heat wave is bringing high temperatures and health risks from the Midwest to the Northeast, prompting warnings and emergency measures.`\
 https://nytimes.com/2025/06/22/weather/heat-wave-temperatures.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/22/world/middleeast/israeli-soldiers-recovered-the-b
 **Stones committed to Man City: ‘I want to stay here, I love it’**\
 `The England international defender joined City back in 2016.`\
 https://nytimes.com/athletic/6443155/2025/06/22/man-city-john-stones-future/
-
-**Fear and Quiet Resistance Amid a Los Angeles in Turmoil**\
-`Days of immigration raids and protests have shaken Los Angeles’ Latino community, but for undocumented people, life continues.`\
-https://nytimes.com/2025/06/22/opinion/los-angeles-protests-raids-ice.html
-
-**Vondroušová wins Berlin Open for first WTA title since Wimbledon 2023**\
-`Vondroušová beat Wang in the searing Berlin heat to claim her first WTA title since beating Ons Jabeur in 2023.`\
-https://nytimes.com/athletic/6443082/2025/06/22/marketa-vondrousova-berlin-open-win/
 
