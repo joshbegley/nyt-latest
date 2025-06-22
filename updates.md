@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 3 Pachuca 1 - Alonso's side show attacking class after Asencio red card**\
+`Real Madrid beat Pachuca 3-1 to go top of Group H at the Club World Cup. Our writers break down the key talking points...`\
+https://nytimes.com/athletic/6431482/2025/06/22/real-madrid-3-pachuca-1-club-world-cup/
+
 **Monday Briefing: The U.S. Struck Iran**\
 `Plus, a farmer’s fire brigade in Canada.`\
 https://nytimes.com/2025/06/22/briefing/iran-us-bombing-israel-syria-ukraine.html
