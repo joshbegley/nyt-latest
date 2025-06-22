@@ -1,3 +1,7 @@
+**Republican Lawmakers Cheer Strike on Iran as Top Democrats Condemn It**\
+`Republicans in Congress praised President Trump’s decision to hit Iran. Many Democrats and some G.O.P. lawmakers said he should have consulted Congress.`\
+https://nytimes.com/2025/06/21/world/middleeast/congress-iran-strike-republicans-democrats.html
+
 **U.S. Military Is Pulled Back Into Middle East Wars**\
 `The strikes on Iran ushered in a period of high alert as the Pentagon braced for almost-certain retaliation against American forces in the region.`\
 https://nytimes.com/2025/06/21/us/politics/military-middle-east-wars.html

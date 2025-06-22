@@ -1,3 +1,7 @@
+**Republican Lawmakers Cheer Strike on Iran as Top Democrats Condemn It**\
+`Republicans in Congress praised President Trump’s decision to hit Iran. Many Democrats and some G.O.P. lawmakers said he should have consulted Congress.`\
+https://nytimes.com/2025/06/21/world/middleeast/congress-iran-strike-republicans-democrats.html
+
 **U.S. Military Is Pulled Back Into Middle East Wars**\
 `The strikes on Iran ushered in a period of high alert as the Pentagon braced for almost-certain retaliation against American forces in the region.`\
 https://nytimes.com/2025/06/21/us/politics/military-middle-east-wars.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/21/world/iran-israel-trump/four-scenarios-of-ho
 **Rafael Devers makes himself at home, powers Giants past Red Sox**\
 `Before Saturday, Devers had homered against every major-league team except the Red Sox. `\
 https://nytimes.com/athletic/6442594/2025/06/21/rafael-devers-powers-giants-past-red-sox/
-
-**Iran built Fordo deep inside a mountain to withstand aerial attacks.**\
-`By Helene Cooper, Eric Schmitt and Samuel Granados`\
-https://nytimes.com/live/2025/06/21/world/iran-israel-trump/iran-built-fordo-deep-inside-a-mountain-to-withstand-aerial-attacks
 
