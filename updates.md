@@ -1,3 +1,23 @@
+**Three Unknowns for America and the World After Trump’s Strike on Iran**\
+`Despite Trump’s claim of success, there are three serious unknowns for the United States and the world after the U.S. strikes on Iran.`\
+https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
+
+**The New York Times in Print for Sunday, June 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/22/todays-new-york-times
+
+**Political Violence Is Here, and It’s Working**\
+`Trump is the Republican Party. That is settled. His violent talk is, then, the official political communication strategy of the ruling party.`\
+https://nytimes.com/2025/06/22/opinion/political-violence-trump-shooting.html
+
+**The Joy of Swimming With Strangers**\
+`There’s nothing quite like swimming with dozens of strangers — a joy that takes its purest form in New York City’s public swimming pools.`\
+https://nytimes.com/2025/06/22/opinion/new-york-city-public-pools-swimming.html
+
+**‘Tasteless, Hideous and Repulsive’: Trump Wants You to Eat Inferior Tomatoes**\
+`The last thing American consumers need is a revitalization of Florida’s withering tomato industry.`\
+https://nytimes.com/2025/06/22/opinion/tomato-tariffs-mexico-florida.html
+
 **Iran Had Vowed to Retaliate. Now, It Faces Grim Choices.**\
 `Iran’s foreign minister warned that the U.S. decision to join Israel’s war against Iran would have “everlasting consequences.”`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-had-vowed-to-retaliate-now-it-faces-hard-choices.html
