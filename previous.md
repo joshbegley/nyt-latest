@@ -1,3 +1,11 @@
+**Leverkusen set to sign Quansah from Liverpool**\
+`The 22-year-old central defender came through Liverpool’s academy and has played 55 games for the club in total.`\
+https://nytimes.com/athletic/6438552/2025/06/22/liverpool-transfers-quansah-leverkusen/
+
+**Will Iran Again Sip the ‘Poison’ of a Forced Peace, or Escalate?**\
+`The Supreme Leader may choose to back down after a first round of retaliation, or prefer martyrdom and building a nuclear weapon.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-retaliate-us-strikes.html
+
 **Three memories of a magnificent 7: Cavaliers-Warriors epic 2016 NBA Finals finale**\
 `Pursuing history is an exhaustive endeavor and the Warriors and Cavs were destined to make history in 2016.`\
 https://nytimes.com/athletic/6442865/2025/06/22/game-7-nba-finals-cavs-warriors-2016/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6443087/2025/06/22/everton-transfers-kenny-tete/
 **America Strikes Iran**\
 `We explain what we know about the attacks.`\
 https://nytimes.com/2025/06/22/briefing/america-trump-iran-strike.html
-
-**Thunder vs. Pacers Game 7 predictions: Which team wins?**\
-`Which team does The Athletic's NBA staff believe will triumph in Sunday's winner-take-all game?`\
-https://nytimes.com/athletic/6441883/2025/06/22/nba-finals-2025-game-7-predictions-pacers-thunder/
-
-**How to watch Mexico vs. Costa Rica in Concacaf Gold Cup group play finale**\
-`The lights go up in Las Vegas on Sunday night as defending champion Mexico faces Costa Rica with Group A supremacy on the line.`\
-https://nytimes.com/athletic/6441191/2025/06/22/mexico-costa-rica-concacaf-gold-cup-how-to-watch/
 
