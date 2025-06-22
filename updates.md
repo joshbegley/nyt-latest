@@ -1,3 +1,7 @@
+**The Big Question Facing Energy Markets: Will Iran Disrupt Oil and Gas Flows?**\
+`Crude oil futures will begin trading at 6 p.m. Eastern time on Sunday, providing an early look at the market’s reaction to the U.S. strikes.`\
+https://nytimes.com/2025/06/22/business/energy-environment/iran-oil-gas-markets.html
+
 **Coastal Carolina coach Kevin Schnall ejected from Game 2 of College World Series**\
 `Chanticleers coach was tossed for arguing balls and strikes in the bottom of the first inning.`\
 https://nytimes.com/athletic/6443922/2025/06/22/coastal-carolina-coach-ejected-college-world-series/
