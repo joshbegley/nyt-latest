@@ -1,3 +1,7 @@
+**‘We have to respond,’ Iran’s foreign minister warns.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/we-have-to-respond-irans-foreign-minister-warns
+
 **Mets' how-to guide for ending a long losing streak**\
 `New York snapped a seven-game losing streak with an 11-4 win over Philadelphia on Saturday night.`\
 https://nytimes.com/athletic/6442948/2025/06/22/mets-beat-phillies-end-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/crosswords/wordle-review-1465.html
 **‘Are We Past Peak Harvard?’: 3 Writers Mull Higher Education’s Woes**\
 `Pondering the politics of universities, and their future.`\
 https://nytimes.com/2025/06/22/opinion/trump-higher-education-harvard.html
-
-**Happy Birthday, Money**\
-`Americans have had 250 years of legal tender. We’re still figuring it out.`\
-https://nytimes.com/2025/06/22/opinion/happy-birthday-money.html
 
