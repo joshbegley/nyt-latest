@@ -1,3 +1,11 @@
+**The Briefing: Juve 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
+`Two brilliant and very different finishes from the young Turk were the highlights of this clash in Philadelphia.`\
+https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
+
+**After U.S. Strikes, Iran May Be Determined to Build a Nuclear Weapon**\
+`The future of Iran’s nuclear program will depend in part on the extent of the damage from the U.S. attacks and Tehran’s negotiating position in the coming days.`\
+https://nytimes.com/2025/06/22/us/politics/iran-nuclear-weapon.html
+
 **Gulf Countries Voice Concern After U.S. Attack on Iran Nuclear Sites**\
 `Saudi Arabia, Qatar and other Gulf Arab countries expressed dismay over the American attack, but stopped short of condemning the United States, a key ally.`\
 https://nytimes.com/2025/06/22/world/middleeast/gulf-countries-us-attack-iran.html
