@@ -1,9 +1,13 @@
+**Trump’s Courageous and Correct Decision**\
+`The president’s responsibility was to deny Iran’s leaders the capability to build a nuclear bomb.`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/us-military-strike-iran-trump
+
 **Russia may be ‘a friend’ of Iran, but it seems unlikely to offer much help.**\
 `By Anatoly Kurmanaev`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/russia-may-be-a-friend-of-iran-but-it-seems-unlikely-to-offer-much-help
 
 **The Briefing: Juventus 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
-`Two brilliant and very different finishes from the young Turk were the highlights of this clash in Philadelphia.`\
+`Two brilliant and very different finishes from the young Turkish forward were the highlights of this clash in Philadelphia`\
 https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
 
 **Gulf Countries Voice Concern After U.S. Attack on Iran Nuclear Sites**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/us/politics/trump-iran-maga-rift-isolationists-ha
 **With ‘Elio,’ Pixar Has Its Worst Box Office Opening Ever**\
 `The original space adventure sold about $21 million in tickets at domestic theaters from Thursday night through Sunday, putting new pressure on the once-unstoppable studio.`\
 https://nytimes.com/2025/06/22/business/elio-pixar-box-office.html
-
-**Suns trade Kevin Durant to Rockets for Jalen Green, Dillon Brooks: Sources**\
-`This marks the first blockbuster trade for Phoenix general manager Brian Gregory.`\
-https://nytimes.com/athletic/6424856/2025/06/22/kevin-durant-trade-rockets-suns-brooks-green-nba/
 
