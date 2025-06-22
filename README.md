@@ -1,3 +1,7 @@
+**Trump Claims U.S. Strikes on Iran Nuclear Sites Were a Success**\
+`President Trump warned of “far greater” attacks on Iran if the country did not make peace with Israel and the United States.`\
+https://nytimes.com/video/world/middleeast/100000010242831/trump-iran-nuclear-sites.html
+
 **Republican Lawmakers Cheer Strike on Iran as Top Democrats Condemn It**\
 `Republicans in Congress praised President Trump’s decision to hit Iran. Many Democrats and some G.O.P. lawmakers said he should have consulted Congress.`\
 https://nytimes.com/2025/06/21/world/middleeast/congress-iran-strike-republicans-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/21/world/iran-israel-trump/there-are-about-4000
 **Four scenarios of how American involvement in the war could play out.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/four-scenarios-of-how-american-involvement-in-the-war-could-play-out
-
-**Rafael Devers makes himself at home, powers Giants past Red Sox**\
-`Before Saturday, Devers had homered against every major-league team except the Red Sox. `\
-https://nytimes.com/athletic/6442594/2025/06/21/rafael-devers-powers-giants-past-red-sox/
 
