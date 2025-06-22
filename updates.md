@@ -1,3 +1,11 @@
+**Josh Harris spends $500,000 on Jayden Daniels rookie card to display at stadium**\
+`Harris bought the card with Daniels standing beside him`\
+https://nytimes.com/athletic/6443334/2025/06/22/jayden-daniels-rookie-card-josh-harris/
+
+**Ceviche, for Sure**\
+`Tangy, spicy and refreshing, easy to make and even easier to eat.`\
+https://nytimes.com/2025/06/22/dining/easy-ceviche-recipe.html
+
 **Dangerous Heat Wave Expands Over Central and Eastern United States**\
 `A multiday heat wave is bringing high temperatures and health risks from the Midwest to the Northeast, prompting warnings and emergency measures.`\
 https://nytimes.com/2025/06/22/weather/heat-wave-temperatures.html
