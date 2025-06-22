@@ -1,3 +1,13 @@
+**How the Attacks on Iran Are Part of a Much Bigger Global Struggle**\
+`Putin and the ayatollahs want the same kind of world.`\
+https://nytimes.com/2025/06/22/opinion/iran-israel-attack-global-struggle.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>I eagerly await your questions about the fast-approaching 2025 season, or the latest lawsuit (Wisconsin vs. Miami) to keep us engaged until then.</p>
+<p>Please include your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6443522/2025/06/22/submit-a-question-for-stewart-mandels-college-football-mailbag-303/
+
 **‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
 `In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of the strikes on the country’s nuclear facilities.`\
 https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
