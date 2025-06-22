@@ -1,3 +1,7 @@
+**Iran Says It Has the Right to Respond to U.S. Attacks**\
+`In a briefing at the Pentagon, officials said the U.S. strikes caused “severe damage” to Iranian nuclear sites. Iran condemned the attacks and has vowed to defend itself.`\
+https://nytimes.com/video/world/middleeast/100000010243221/iran-says-it-has-the-right-to-respond-to-us-attacks.html
+
 **‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
 `In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of strikes on the country’s nuclear facilities.`\
 https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
