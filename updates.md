@@ -1,3 +1,7 @@
+**‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
+`In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of strikes on the country’s nuclear facilities.`\
+https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
+
 **Blue Jackets Sunday Gathering: 6 potential trade chips, targets and free-agent signings**\
 `Entering the NHL's silly season, a look at the Blues Jackets' many needs and who they might sign, trade away or trade for to fulfill them.`\
 https://nytimes.com/athletic/6440019/2025/06/22/blue-jackets-trade-targets-free-agent-draft/

@@ -1,3 +1,7 @@
+**Iran Says It Has the Right to Respond to U.S. Attacks**\
+`In a briefing at the Pentagon, officials said the U.S. strikes caused “severe damage” to Iranian nuclear sites. Iran condemned the attacks and has vowed to defend itself.`\
+https://nytimes.com/video/world/middleeast/100000010243221/iran-says-it-has-the-right-to-respond-to-us-attacks.html
+
 **Blue Jackets Sunday Gathering: 6 potential trade chips, targets and free-agent signings**\
 `Entering the NHL's silly season, a look at the Blues Jackets' many needs and who they might sign, trade away or trade for to fulfill them.`\
 https://nytimes.com/athletic/6440019/2025/06/22/blue-jackets-trade-targets-free-agent-draft/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6443522/2025/06/22/submit-a-question-for-stewart-ma
 **‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
 `In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of strikes on the country’s nuclear facilities.`\
 https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
-
-**The Consequences of U.S. Strikes in Iran**\
-`Readers offer contrasting perspectives on the bombing of Iran’s nuclear facilities.`\
-https://nytimes.com/2025/06/22/opinion/us-iran-bomb-nuclear-sites.html
 
