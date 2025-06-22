@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2025/06/22/world/middleeast/us-iran-nuclear-site
 `Projecting any sense of finality about this war is wildly premature.`\
 https://nytimes.com/2025/06/22/opinion/america-iran-war-nuclear.html
 
-**Three Unknowns for America and the World After Trump’s Strike on Iran**\
+**The Three Unknowns After the U.S. Strike on Iran**\
 `Despite Trump’s claim of success, he has created uncertainty and risk.`\
 https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
 

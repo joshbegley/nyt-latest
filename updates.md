@@ -1,3 +1,7 @@
+**The Three Unknowns After the U.S. Strike on Iran**\
+`Despite Trump’s claim of success, he has created uncertainty and risk.`\
+https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
+
 **Trump and Netanyahu Praise U.S. Strikes on Iranian Nuclear Sites**\
 `President Trump said the aim of attacking the three facilities was to destroy Iran’s nuclear capability. Iran said the sites had been hit but did not immediately describe the damage.`\
 https://nytimes.com/video/world/middleeast/100000010242914/trump-netanyahu-iran.html
