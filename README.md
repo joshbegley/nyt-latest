@@ -1,3 +1,7 @@
+**Iranian Officials Try to Project Sense of Normalcy, Though Nothing Is Normal**\
+`The mood in the government after the U.S. attacks is one of defeat and national humiliation. But state media are showing people going about their daily routines.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-government-defeat-humiliation.html
+
 **What Iran Does Next**\
 `Among the most likely options are asymmetric or terrorist attacks, although the time frame is impossible to gauge.`\
 https://nytimes.com/2025/06/22/opinion/iran-nuclear-strike-israel-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6443605/2025/06/22/kevin-durant-trade-grades-rocket
 **‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release**\
 `The Columbia graduate and pro-Palestinian activist returned to New York after more than three months in detention. The Trump administration is seeking to deport him.`\
 https://nytimes.com/2025/06/22/nyregion/mahmoud-khalil-interview-trump.html
-
-**A Timeline of the U.S. Attack in Iran**\
-`The Pentagon detailed how stealth bombers flew from Missouri into Iran to bomb three nuclear sites.`\
-https://nytimes.com/2025/06/22/us/us-bomb-iran-nuclear-timeline.html
 
