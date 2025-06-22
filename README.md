@@ -1,5 +1,9 @@
+**Club condemn fans as Williams mural painted over amid Barcelona interest**\
+`Athletic said they had contacted artist Carlos Lopez over restoring the mural, and said those who defaced it had disrespected the club.`\
+https://nytimes.com/athletic/6443835/2025/06/22/nico-williams-athletic-club-mural-barcelona/
+
 **Kevin Durant trade grades: Did Suns get enough in return from Rockets?**\
-`The Suns decided they needed to get a Kevin Durant deal done before the NBA Draft. Zach Harper's trade grades examines their haul`\
+`The Suns decided they needed to get a Kevin Durant deal done before the NBA Draft. Let's examine their haul`\
 https://nytimes.com/athletic/6443605/2025/06/22/kevin-durant-trade-grades-rockets-suns/
 
 **‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/us/politics/iran-nuclear-weapon.html
 **Mets option Francisco Alvarez: What went into the decision and what's next**\
 `The Mets feel like their 23-year-old catcher, who hit 25 home runs in 2023, can be better as a defender and as a hitter.`\
 https://nytimes.com/athletic/6443580/2025/06/22/mets-francisco-alvarez-optioned/
-
-**Iran Says It Has the Right to Respond to U.S. Attacks**\
-`In a briefing at the Pentagon, officials said the U.S. strikes caused “severe damage” to Iranian nuclear sites. Iran condemned the attacks and has vowed to defend itself.`\
-https://nytimes.com/video/world/middleeast/100000010243221/iran-says-it-has-the-right-to-respond-to-us-attacks.html
 
