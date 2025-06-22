@@ -1,3 +1,11 @@
+**A Timeline of the U.S. Attack in Iran**\
+`The Pentagon detailed how stealth bombers flew from Missouri into Iran to bomb three nuclear sites.`\
+https://nytimes.com/2025/06/22/us/us-bomb-iran-nuclear-timeline.html
+
+**Trump’s Courageous and Correct Decision**\
+`The president’s responsibility was to deny Iran’s leaders the capability to build a nuclear bomb.`\
+https://nytimes.com/2025/06/22/opinion/us-military-strike-iran-trump.html
+
 **Trump’s Courageous and Correct Decision**\
 `The president’s responsibility was to deny Iran’s leaders the capability to build a nuclear bomb.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/us-military-strike-iran-trump

@@ -1,3 +1,7 @@
+**‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release**\
+`The Columbia graduate and pro-Palestinian activist returned to New York after more than three months in detention. The Trump administration is seeking to deport him.`\
+https://nytimes.com/2025/06/22/nyregion/mahmoud-khalil-interview-trump.html
+
 **A Timeline of the U.S. Attack in Iran**\
 `The Pentagon detailed how stealth bombers flew from Missouri into Iran to bomb three nuclear sites.`\
 https://nytimes.com/2025/06/22/us/us-bomb-iran-nuclear-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010243221/iran-says-it-has-the-
 **Blue Jackets Sunday Gathering: 6 potential trade chips, targets and free-agent signings**\
 `Entering the NHL's silly season, a look at the Blues Jackets' many needs and who they might sign, trade away or trade for to fulfill them.`\
 https://nytimes.com/athletic/6440019/2025/06/22/blue-jackets-trade-targets-free-agent-draft/
-
-**Trump Picks a Side on Entering the War in Iran, for Now**\
-`Even as he announced the strikes on Iran, President Trump appeared to be rapidly trying to get himself back to the middle by insisting the operation was a one-off.`\
-https://nytimes.com/2025/06/22/us/politics/trump-iran-maga-rift-isolationists-hawks.html
 
