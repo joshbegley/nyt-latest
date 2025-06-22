@@ -1,3 +1,7 @@
+**Harry Brook and his uneasy relationship with India**\
+`Brook is not exactly the most popular player on the sub-continent – India took great delight in dismissing him one shy of a century `\
+https://nytimes.com/athletic/6443847/2025/06/22/england-harry-brook-india-siraj/
+
 **Satellite Images Show U.S. May Have Targeted Ventilation Shafts at Fordo**\
 `Ventilation shafts “are probably the most vulnerable points of the facility,” one expert said.`\
 https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-bomb-satellite.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
 **Gulf Countries Voice Concern After U.S. Attack on Iran Nuclear Sites**\
 `Saudi Arabia, Qatar and other Gulf Arab countries expressed dismay over the American attack, but stopped short of condemning the United States, a key ally.`\
 https://nytimes.com/2025/06/22/world/middleeast/gulf-countries-us-attack-iran.html
-
-**After U.S. Strikes, Iran May Be Determined to Build a Nuclear Weapon**\
-`The future of Iran’s nuclear program will depend in part on the extent of the damage from the U.S. attacks and Tehran’s negotiating position in the coming days.`\
-https://nytimes.com/2025/06/22/us/politics/iran-nuclear-weapon.html
 

@@ -1,3 +1,7 @@
+**Tesla Begins Limited Robotaxi Service in Austin**\
+`The vehicles will have safety monitors and may not operate in bad weather, making them more restricted than the fully autonomous vehicles promised by Elon Musk.`\
+https://nytimes.com/2025/06/22/business/tesla-robotaxi-service-austin.html
+
 **Harry Brook and his uneasy relationship with India**\
 `Brook is not exactly the most popular player on the sub-continent – India took great delight in dismissing him one shy of a century `\
 https://nytimes.com/athletic/6443847/2025/06/22/england-harry-brook-india-siraj/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/russia-may-be-a-f
 **The Briefing: Juventus 4 Wydad 1 - Majestic Yildiz denied hat-trick, flares on pitch and a surprising match-up**\
 `Two brilliant and very different finishes from the young Turkish forward were the highlights of this clash in Philadelphia`\
 https://nytimes.com/athletic/6431481/2025/06/22/juventus-wydad-yildiz-flares/
-
-**Gulf Countries Voice Concern After U.S. Attack on Iran Nuclear Sites**\
-`Saudi Arabia, Qatar and other Gulf Arab countries expressed dismay over the American attack, but stopped short of condemning the United States, a key ally.`\
-https://nytimes.com/2025/06/22/world/middleeast/gulf-countries-us-attack-iran.html
 
