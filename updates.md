@@ -1,3 +1,15 @@
+**U.S. Military Is Pulled Back Into Middle East Wars**\
+`The strikes on Iran ushered in a period of high alert as the Pentagon braced for almost-certain retaliation against American forces in the region.`\
+https://nytimes.com/2025/06/21/us/politics/military-middle-east-wars.html
+
+**LSU takes Game 1 of College World Series vs. Coastal Carolina**\
+`Anderson allowed three hits and struck out 10, throwing 130 pitches.`\
+https://nytimes.com/athletic/6442777/2025/06/21/lsu-coastal-carolina-college-world-series-game-1/
+
+**Canada held by Curaçao in frustrating Gold Cup group stage draw**\
+`Jesse Marsch's side still has some work to do to book a quarterfinal spot.`\
+https://nytimes.com/athletic/6442641/2025/06/21/canada-curacao-concacaf-gold-cup/
+
 **FIFA's Gianni Infantino says soccer will be the 'No. 1 sport' in U.S.**\
 `“It will be top, top, top. One of the top leagues in the world, for sure," FIFA's president said. `\
 https://nytimes.com/athletic/6442615/2025/06/21/gianni-infantino-fifa-fanatics-fest-promotion-relegation/
