@@ -1,3 +1,7 @@
+**LSU wins College World Series over Coastal Carolina, claims 8th title in program history**\
+`The Tigers completed a two-game sweep in the CWS finals to set off a celebration among the sun-baked legion of fans from SEC country.`\
+https://nytimes.com/athletic/6444111/2025/06/22/lsu-wins-college-world-series-coastal-carolina/
+
 **Why the Rockets changed course, fast-tracked their timeline to land Kevin Durant**\
 `The Rockets and Suns had been in trade talks about Durant for a while before things stalled. What changed to get the deal done?`\
 https://nytimes.com/athletic/6444109/2025/06/22/rockets-kevin-durant-trade-suns-nba/
