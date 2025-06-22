@@ -33,7 +33,7 @@ https://nytimes.com/2025/06/22/opinion/iran-israel-attack-global-struggle.html
 https://nytimes.com/athletic/6443522/2025/06/22/submit-a-question-for-stewart-mandels-college-football-mailbag-303/
 
 **‘We’re All in Shock’: Iranians React to U.S. Attack on Nuclear Sites**\
-`In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of the strikes on the country’s nuclear facilities.`\
+`In phone interviews, people in Iran voiced fear, sorrow and grief after waking up to the news of strikes on the country’s nuclear facilities.`\
 https://nytimes.com/2025/06/22/world/middleeast/iranian-civilians-react-us-attack.html
 
 **The Consequences of U.S. Strikes in Iran**\
