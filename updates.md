@@ -1,3 +1,11 @@
+**Here’s What to Know About Fordo, Iran’s Best-Protected Nuclear Site**\
+`The nuclear fuel enrichment plant was built deep inside a mountain in order to withstand an attack.`\
+https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-site.html
+
+**How to watch the USMNT vs. Haiti in final leg of Concacaf Gold Cup group play**\
+`The United States men's national team closes out the group stage of the Concacaf Gold Cup this Sunday when it takes on Haiti.`\
+https://nytimes.com/athletic/6441095/2025/06/22/usmnt-haiti-concacaf-gold-cup-how-to-watch/
+
 **Facing a Grave Threat, Iran Is Isolated**\
 `Its proxy forces around the region have been largely silent in offering concrete support after attacks by Israel and now the United States.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-israel-hezbollah-houthis-hamas-iraq.html

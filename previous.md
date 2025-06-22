@@ -1,3 +1,11 @@
+**Here’s What to Know About Fordo, Iran’s Best-Protected Nuclear Site**\
+`The nuclear fuel enrichment plant was built deep inside a mountain in order to withstand an attack.`\
+https://nytimes.com/2025/06/22/world/middleeast/fordo-iran-nuclear-site.html
+
+**How to watch the USMNT vs. Haiti in final leg of Concacaf Gold Cup group play**\
+`The United States men's national team closes out the group stage of the Concacaf Gold Cup this Sunday when it takes on Haiti.`\
+https://nytimes.com/athletic/6441095/2025/06/22/usmnt-haiti-concacaf-gold-cup-how-to-watch/
+
 **Facing a Grave Threat, Iran Is Isolated**\
 `Its proxy forces around the region have been largely silent in offering concrete support after attacks by Israel and now the United States.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-israel-hezbollah-houthis-hamas-iraq.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/22/us/i-feel-like-ive-been-lied-to-when-a-measles-ou
 **Pacers at Thunder Game 7 picks, odds, how to watch: OKC favored in NBA Finals finale**\
 `We get an NBA Finals Game 7 for the first time since 2016 and just the fifth time in the 21st century. OKC opens as Sunday's home favorite.`\
 https://nytimes.com/athletic/6440593/2025/06/22/pacers-thunder-nba-finals-game-7-picks-odds-how-to-watch/
-
-**Palm Beach Has Never Been Richer. The Locals Aren’t Pleased.**\
-`Donald Trump’s presidency has turned this Florida island into the nightlife headquarters of MAGA, but the town’s old guard — much of it Republican — doesn’t love the new vibe.`\
-https://nytimes.com/2025/06/22/business/palm-beach-trump-maga.html
-
-**What Katie Sturino Wants You to Know About Her Body (and Yours, Too)**\
-`The influencer is still pushing brands to make bigger sizes and is publishing a new novel with a plus-size heroine. She is also losing weight, but that doesn’t mean she’s not “body neutral” anymore.`\
-https://nytimes.com/2025/06/22/style/katie-sturino-novel-body-positivity.html
 
