@@ -1,3 +1,23 @@
+**Three Unknowns for America and the World After Trump’s Strike on Iran**\
+`Despite Trump’s claim of success, there are three serious unknowns for the United States and the world after the U.S. strikes on Iran.`\
+https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
+
+**The New York Times in Print for Sunday, June 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/22/todays-new-york-times
+
+**Political Violence Is Here, and It’s Working**\
+`Trump is the Republican Party. That is settled. His violent talk is, then, the official political communication strategy of the ruling party.`\
+https://nytimes.com/2025/06/22/opinion/political-violence-trump-shooting.html
+
+**The Joy of Swimming With Strangers**\
+`There’s nothing quite like swimming with dozens of strangers — a joy that takes its purest form in New York City’s public swimming pools.`\
+https://nytimes.com/2025/06/22/opinion/new-york-city-public-pools-swimming.html
+
+**‘Tasteless, Hideous and Repulsive’: Trump Wants You to Eat Inferior Tomatoes**\
+`The last thing American consumers need is a revitalization of Florida’s withering tomato industry.`\
+https://nytimes.com/2025/06/22/opinion/tomato-tariffs-mexico-florida.html
+
 **Euro 2025: Norway team guide – can a new head coach help them finally reach their potential?**\
 `From players to watch to pedigree and much more, we set out what to expect from Norway at the European Championship`\
 https://nytimes.com/athletic/6411781/2025/06/22/norway-team-guide-euro-2025/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6440062/2025/06/22/club-world-cup-finances-brand/
 **The Business of Football: Why Tottenham have not been bought, and how much are Wrexham worth?**\
 `UEFA and multi-club ownership, the split in Warner Bros Discovery and the football regulator also feature in this column's latest instalment`\
 https://nytimes.com/athletic/6437535/2025/06/22/tottenham-levy-wrexham-business/
-
-**The one position your Premier League club needs to sign a player in during this transfer window**\
-`Which position does each Premier League side need to prioritise this window? Where, if necessary, should the bulk of the budget be spent?`\
-https://nytimes.com/athletic/6438276/2025/06/22/premier-league-transfer-news-latest-position-analysis/
-
-**Iran Had Vowed to Retaliate. Now, It Faces Grim Choices.**\
-`Iran’s foreign minister warned that the U.S. decision to join Israel’s war against Iran would have “everlasting consequences.”`\
-https://nytimes.com/2025/06/22/world/middleeast/iran-had-vowed-to-retaliate-now-it-faces-hard-choices.html
-
-**U.S. strikes key nuclear sites in Iran.**\
-`By Lazaro Gamio and Elena Shao`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/us-strikes-key-nuclear-sites-in-iran
-
-**How Brazil won the 1958 World Cup: A sleeping coach, tactical tweaks and 17-year-old Pele**\
-`It took until 1958 for Brazil to break their World Cup duck - but in doing so they helped changed football forever `\
-https://nytimes.com/athletic/6425744/2025/06/22/how-brazil-won-the-world-cup-1958/
-
-**Protesters call on Dodgers to support immigrants: 'It’s devastating for me'**\
-`“I love the Dodgers, but I love my people more,” said Monica Alcaraz, who attended Saturday's protest.`\
-https://nytimes.com/athletic/6442843/2025/06/22/dodger-stadium-immigration-protest-ice-raids/
 

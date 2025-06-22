@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6437535/2025/06/22/tottenham-levy-wrexham-business/
 `Which position does each Premier League side need to prioritise this window? Where, if necessary, should the bulk of the budget be spent?`\
 https://nytimes.com/athletic/6438276/2025/06/22/premier-league-transfer-news-latest-position-analysis/
 
-**Iran Had Vowed to Retaliate. Now, It Faces Hard Choices.**\
-`Iran’s foreign minister had previously warned that a U.S. decision to join Israel’s war against Iran would be “extremely dangerous for everyone.”`\
+**Iran Had Vowed to Retaliate. Now, It Faces Grim Choices.**\
+`Iran’s foreign minister warned that the U.S. decision to join Israel’s war against Iran would have “everlasting consequences.”`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-had-vowed-to-retaliate-now-it-faces-hard-choices.html
 
 **U.S. strikes key nuclear sites in Iran.**\

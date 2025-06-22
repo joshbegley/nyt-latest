@@ -1,3 +1,7 @@
+**Iran Had Vowed to Retaliate. Now, It Faces Grim Choices.**\
+`Iran’s foreign minister warned that the U.S. decision to join Israel’s war against Iran would have “everlasting consequences.”`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-had-vowed-to-retaliate-now-it-faces-hard-choices.html
+
 **Euro 2025: Norway team guide – can a new head coach help them finally reach their potential?**\
 `From players to watch to pedigree and much more, we set out what to expect from Norway at the European Championship`\
 https://nytimes.com/athletic/6411781/2025/06/22/norway-team-guide-euro-2025/
