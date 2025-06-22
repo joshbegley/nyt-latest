@@ -1,3 +1,11 @@
+**U.S. troops may be vulnerable to potential Iranian strikes.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/us-troops-may-be-vulnerable-to-potential-iranian-strikes
+
+**From Willis Reed's return to LeBron's block: Ranking the 10 best NBA Finals Game 7s**\
+`There have been 19 Game 7s in NBA Finals history. Not every one of them was a classic, but a number of them were. We've picked the best.`\
+https://nytimes.com/athletic/6442813/2025/06/22/ranking-the-10-best-nba-finals-game-7s-from-willis-reeds-return-to-lebrons-block/
+
 **Everton make progress on deal to sign Tete on free transfer**\
 `The 29-year-old is set to leave Craven Cottage when his contract expires at the end of this month.`\
 https://nytimes.com/athletic/6443087/2025/06/22/everton-transfers-kenny-tete/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/does-iran-have-an
 **‘We have to respond,’ Iran’s foreign minister warns.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/we-have-to-respond-irans-foreign-minister-warns
-
-**Mets' how-to guide for ending a long losing streak**\
-`New York snapped a seven-game losing streak with an 11-4 win over Philadelphia on Saturday night.`\
-https://nytimes.com/athletic/6442948/2025/06/22/mets-beat-phillies-end-losing-streak/
-
-**How to watch Liberty at Storm: Breanna Stewart returns to Seattle in heavyweight clash**\
-`Stewart leads the New York Liberty, who have lost two of their last three games, into battle against her former team.`\
-https://nytimes.com/athletic/6440961/2025/06/22/liberty-storm-breanna-stewart-seattle-how-to-watch/
 
