@@ -1,3 +1,7 @@
+**Trump’s Strike on Iran Cements Netanyahu’s Political Comeback**\
+`The United States’ overnight attack could cause further escalation. In Israel, it is already seen as a victory for Israel, and for Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2025/06/22/world/middleeast/netanyahu-israel-trump-iran-strike.html
+
 **U.S. troops may be vulnerable to potential Iranian strikes.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/us-troops-may-be-vulnerable-to-potential-iranian-strikes

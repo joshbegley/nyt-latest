@@ -1,3 +1,7 @@
+**Trump’s Strike on Iran Cements Netanyahu’s Political Comeback**\
+`The United States’ overnight attack could cause further escalation. In Israel, it is already seen as a victory for Israel, and for Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2025/06/22/world/middleeast/netanyahu-israel-trump-iran-strike.html
+
 **U.S. troops may be vulnerable to potential Iranian strikes.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/us-troops-may-be-vulnerable-to-potential-iranian-strikes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6441594/2025/06/22/nhl-free-agency-mitch-marner-con
 **Does Iran have another secret enrichment site, as it claims?**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/does-iran-have-another-secret-enrichment-site-as-it-claims
-
-**‘We have to respond,’ Iran’s foreign minister warns.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/we-have-to-respond-irans-foreign-minister-warns
 
