@@ -1,3 +1,11 @@
+**Vance won’t say whether Iran’s nuclear sites were destroyed.**\
+`The vice president stopped short of backing President Trump’s assertion that the three bombed facilities had been “totally obliterated.”`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclear-sites-damage
+
+**The Abu Dhabi derby – Man City v Al Ain is a contest between royal brothers**\
+`In this Club World Cup fixture, one team is owned by the president of the United Arab Emirates, the other by the deputy president`\
+https://nytimes.com/athletic/6442671/2025/06/22/abu-dhabi-derby-man-city-mansour/
+
 **Israeli Soldiers Recovered the Bodies of Three Hostages in Gaza**\
 `The retrieval of the bodies of three Israelis taken hostage by Hamas jolted Israelis’ focus back to a conflict that had been overshadowed by the escalating crisis with Iran.`\
 https://nytimes.com/2025/06/22/world/middleeast/israeli-soldiers-recovered-the-bodies-of-three-hostages-in-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6442865/2025/06/22/game-7-nba-finals-cavs-warriors-
 **Man City sign Switzerland international forward Beney**\
 `Beney scored nine goals in 22 appearances as BSC YB Frauen won the Swiss Super League title last season.`\
 https://nytimes.com/athletic/6443068/2025/06/22/man-city-women-transfers-iman-beney/
-
-**Lowetide: 5 Oilers trade targets ahead of 2025 NHL Draft**\
-`The Oilers would be wise to trade some of their few remaining draft picks in a package for immediate help.`\
-https://nytimes.com/athletic/6440738/2025/06/22/edmonton-oilers-trade-targets-2025-nhl-draft/
-
-**Trump’s Strike on Iran Cements Netanyahu’s Political Comeback**\
-`The United States’ overnight attack could cause further escalation. To Israelis, it is already seen as a victory for Israel, and for Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/2025/06/22/world/middleeast/netanyahu-israel-trump-iran-strike.html
 
