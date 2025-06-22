@@ -1,3 +1,7 @@
+**Keegan Bradley grabs Travelers Championship title with late birdie**\
+`Bradley, now an eight-time winner on the PGA Tour, has a legitimate chance of rising into the top-6 in the U.S. Ryder Cup points standings.`\
+https://nytimes.com/athletic/6444295/2025/06/22/keegan-bradley-travelers-championship-tommy-fleetwood-2/
+
 **Real Madrid's Rudiger allegedly racially abused by Pachuca's Cabral at Club World Cup**\
 `Rudiger alerted referee Ramon Abatti following the alleged comment during the game with the official using FIFA's protocol signal`\
 https://nytimes.com/athletic/6444134/2025/06/22/antonio-rudiger-gustavo-cabral/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6443983/2025/06/22/kevin-durant-trade-rockets-suns-
 **Is the U.S. at War With Iran?**\
 `President Trump avoided asking Congress for permission before striking Iran, despite the Constitution saying only the legislature can declare war.`\
 https://nytimes.com/2025/06/22/us/politics/trump-strikes-war-iran.html
-
-**Early Web Portal**\
-`Zhouqin Burnikel gives us the silent treatment.`\
-https://nytimes.com/2025/06/22/crosswords/daily-puzzle-2025-06-23.html
 
