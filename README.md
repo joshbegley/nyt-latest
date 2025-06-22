@@ -1,3 +1,7 @@
+**We Have No Idea Where This War Will Go**\
+`Projecting any sense of finality about this war is wildly premature.`\
+https://nytimes.com/2025/06/22/opinion/america-iran-war-nuclear.html
+
 **Three Unknowns for America and the World After Trump’s Strike on Iran**\
 `Despite Trump’s claim of success, he has created uncertainty and risk.`\
 https://nytimes.com/2025/06/22/opinion/us-military-iran-strike-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442579/2025/06/22/innie-milan-inter/
 **Forget the football – this is why the Club World Cup really matters**\
 `This summer's tournament in the U.S. is a precious opportunity for clubs to build their brands`\
 https://nytimes.com/athletic/6440062/2025/06/22/club-world-cup-finances-brand/
-
-**The Business of Football: Why Tottenham have not been bought, and how much are Wrexham worth?**\
-`UEFA and multi-club ownership, the split in Warner Bros Discovery and the football regulator also feature in this column's latest instalment`\
-https://nytimes.com/athletic/6437535/2025/06/22/tottenham-levy-wrexham-business/
 
