@@ -1,3 +1,11 @@
+**Gulf Countries Voice Concern After U.S. Attack on Iran Nuclear Sites**\
+`Saudi Arabia, Qatar and other Gulf Arab countries expressed dismay over the American attack, but stopped short of condemning the United States, a key ally.`\
+https://nytimes.com/2025/06/22/world/middleeast/gulf-countries-us-attack-iran.html
+
+**After U.S. Strikes, Iran’s Resolve to Build a Nuclear Weapon Could Harden**\
+`The future of Iran’s nuclear program will depend in part on the extent of the damage from the U.S. attacks and Tehran’s negotiating position in the coming days.`\
+https://nytimes.com/2025/06/22/us/politics/iran-nuclear-weapon.html
+
 **Mets option Francisco Alvarez: What went into the decision and what's next**\
 `The Mets feel like their 23-year-old catcher, who hit 25 home runs in 2023, can be better as a defender and as a hitter.`\
 https://nytimes.com/athletic/6443580/2025/06/22/mets-francisco-alvarez-optioned/
