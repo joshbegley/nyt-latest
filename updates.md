@@ -1,3 +1,11 @@
+**Dangerous Heat Wave Expands Over Central and Eastern United States**\
+`A multiday heat wave is bringing high temperatures and health risks from the Midwest to the Northeast, prompting warnings and emergency measures.`\
+https://nytimes.com/2025/06/22/weather/heat-wave-temperatures.html
+
+**Ryan Yarbrough placed on IL, Allan Winans to start Monday vs. Reds**\
+`The left-handed pitcher has been placed on the 15-day injured list with a right oblique strain, backdated to June 20.`\
+https://nytimes.com/athletic/6443203/2025/06/22/yankees-ryan-yarbrough-injury-allan-winans/
+
 **Pentagon Details Multipronged Attack on Iranian Nuclear Sites**\
 `B-2 stealth bombers, fighter aircraft and submarine-launched cruise missiles struck Fordo, Natanz and Isfahan during “Operation Midnight Hammer.”`\
 https://nytimes.com/2025/06/22/world/middleeast/pentagon-iran-nuclear-sites-attack-details.html
