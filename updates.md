@@ -1,3 +1,7 @@
+**Why the Rockets changed course, fast-tracked their timeline to land Kevin Durant**\
+`The Rockets and Suns had been in trade talks about Durant for a while before things stalled. What changed to get the deal done?`\
+https://nytimes.com/athletic/6444109/2025/06/22/rockets-kevin-durant-trade-suns-nba/
+
 **The Briefing: Real Madrid 3 Pachuca 1 - Alonso's side show attacking class after Asencio red card**\
 `Real Madrid beat Pachuca 3-1 to go top of Group H at the Club World Cup. Our writers break down the key talking points...`\
 https://nytimes.com/athletic/6431482/2025/06/22/real-madrid-3-pachuca-1-club-world-cup/
