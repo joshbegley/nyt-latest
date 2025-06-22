@@ -1,3 +1,7 @@
+**Tesla Begins Limited Robotaxi Service in Austin**\
+`The vehicles will have safety monitors and may not operate in bad weather, making them more restricted than the fully autonomous vehicles promised by Elon Musk.`\
+https://nytimes.com/2025/06/22/business/tesla-robotaxi-service-austin.html
+
 **Harry Brook and his uneasy relationship with India**\
 `Brook is not exactly the most popular player on the sub-continent – India took great delight in dismissing him one shy of a century `\
 https://nytimes.com/athletic/6443847/2025/06/22/england-harry-brook-india-siraj/
