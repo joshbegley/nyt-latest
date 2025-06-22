@@ -1,3 +1,11 @@
+**Suicide Bombing at Damascus Church Kills at Least 20**\
+`The attack on a Greek Orthodox service made clear the challenges facing Syria’s new government in a country long pitted by sectarian divides.`\
+https://nytimes.com/2025/06/22/world/middleeast/damascus-church-bombing.html
+
+**Iranian Officials Try to Project Sense of Normalcy, Though Nothing Is Normal**\
+`The mood in the government after the U.S. attacks is one of defeat and national humiliation. But state media are showing people going about their daily routines.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-government-defeat-humiliation.html
+
 **What Iran Does Next**\
 `Among the most likely options are asymmetric or terrorist attacks, although the time frame is impossible to gauge.`\
 https://nytimes.com/2025/06/22/opinion/iran-nuclear-strike-israel-war.html
