@@ -1,3 +1,7 @@
+**There are about 40,000 U.S. troops in the Middle East.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/06/21/world/iran-israel-trump/there-are-about-40000-us-troops-in-the-middle-east
+
 **Four scenarios of how American involvement in the war could play out.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2025/06/21/world/iran-israel-trump/four-scenarios-of-how-american-involvement-in-the-war-could-play-out
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/21/world/canada/medical-helicopter-crash-canada.html
 **Cazorla helps Real Oviedo earn promotion to La Liga for first time in 24 years**\
 `Cazorla came off the bench to score an emphatic free-kick with his weak foot in the semi-final victory over Almeria on June 11.`\
 https://nytimes.com/athletic/6442538/2025/06/21/santi-cazorla-oviedo-promotion-la-liga/
-
-**Elly De La Cruz vomits on field, stays in game and hits 435-foot homer**\
-`After getting thrown out at home while trying to take an extra base on a triple, De La Cruz drank a lot of water. It didn't stay down long.`\
-https://nytimes.com/athletic/6442466/2025/06/21/elly-de-la-cruz-reds-vomits-home-run/
 
