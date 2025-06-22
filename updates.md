@@ -1,3 +1,7 @@
+**Iran fires more missiles at Israel, hours after the U.S. strikes on Iran.**\
+`By Aaron Boxerman and Gabby Sobelman`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/iran-fires-more-missiles-at-israel-hours-after-the-us-strikes-on-iran
+
 **Expect Club World Cup delays to repeat next summer, says weather chief**\
 `Several matches were delayed during the Club World Cup's first week, and the trend may continue — this summer and next.`\
 https://nytimes.com/athletic/6441522/2025/06/22/club-world-cup-weather-delays-thunder/
