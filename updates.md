@@ -1,3 +1,7 @@
+**Vance says Iran’s nuclear program has been ‘substantially delayed.’**\
+`The vice president stopped short of backing President Trump’s assertion that the three bombed facilities had been “totally obliterated.”`\
+https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclear-sites-damage
+
 **Vance won’t say whether Iran’s nuclear sites were destroyed.**\
 `The vice president stopped short of backing President Trump’s assertion that the three bombed facilities had been “totally obliterated.”`\
 https://nytimes.com/live/2025/06/22/world/israel-iran-us-trump/vance-iran-nuclear-sites-damage
