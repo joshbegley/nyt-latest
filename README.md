@@ -1,9 +1,13 @@
+**Game 7 of Thunder-Pacers was most-watched NBA Finals game since 2019**\
+`The seven-game series finished with an average of 10.266 million viewers, down from the 11.3 million average for last year.`\
+https://nytimes.com/athletic/6446312/2025/06/23/thunder-pacers-game-7-ratings/
+
 **How Missile Defense Works (and Why It’s Hard)**\
-`summary`\
+`Once a ballistic missile is fired into the air, a defender has only minutes to identify its precise trajectory and try to shoot it down. Even the world’s best defenses can’t always stop them.`\
 https://nytimes.com/interactive/2025/06/23/world/middleeast/us-qatar-iran-israel-missile-defense.html
 
 **The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
-`Fanatics Fest might be the best value for money in sports today.`\
+`So much happened at Fanatics Fest that it was impossible to see everything, but these moments stood out the most`\
 https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
 
 **What to watch in sports this week: NBA and NHL drafts, Caitlin Clark and USWNT**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
 **NASCAR Pocono takeaways: Chase Briscoe's big relief, Kyle Larson's struggles and more**\
 `Now with big expectations at Joe Gibbs Racing, Chase Briscoe needed Sunday's win to ease the pressure. Plus, more on the Pocono race.`\
 https://nytimes.com/athletic/6445588/2025/06/23/nascar-pocono-takeaways-chase-briscoe-kyle-larson/
-
-**Tottenham set to sign Japan international defender Kota Takai**\
-`The centre-back has played 28 times at club level in 2025 and has also made four international appearances for Japan.`\
-https://nytimes.com/athletic/6446202/2025/06/23/tottenham-transfers-kota-takai-japan/
 

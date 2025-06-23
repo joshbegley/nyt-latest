@@ -1,3 +1,7 @@
+**How Missile Defense Works (and Why It’s Hard)**\
+`summary`\
+https://nytimes.com/interactive/2025/06/23/world/middleeast/us-qatar-iran-israel-missile-defense.html
+
 **The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
 `Fanatics Fest might be the best value for money in sports today.`\
 https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6445588/2025/06/23/nascar-pocono-takeaways-chase-br
 **Tottenham set to sign Japan international defender Kota Takai**\
 `The centre-back has played 28 times at club level in 2025 and has also made four international appearances for Japan.`\
 https://nytimes.com/athletic/6446202/2025/06/23/tottenham-transfers-kota-takai-japan/
-
-**Is Archer the answer to England's search for pace and threat?**\
-`All eyes were on Headingley on Monday but 90 minutes away one of their fastest bowlers was returning to first-class cricket after four years`\
-https://nytimes.com/athletic/6446105/2025/06/23/jofra-archer-england-india/
 

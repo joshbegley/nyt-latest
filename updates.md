@@ -1,3 +1,7 @@
+**How Missile Defense Works (and Why It’s Hard)**\
+`summary`\
+https://nytimes.com/interactive/2025/06/23/world/middleeast/us-qatar-iran-israel-missile-defense.html
+
 **The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
 `Fanatics Fest might be the best value for money in sports today.`\
 https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
