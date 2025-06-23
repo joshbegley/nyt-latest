@@ -1,3 +1,19 @@
+**Firefighters Battle 3 Wildfires on Popular Greek Island**\
+`Three blazes broke out on Sunday on Chios, a popular Greek island for tourists, prompting evacuations and an investigation into potential arson as the cause of the fires.`\
+https://nytimes.com/video/world/europe/100000010244261/greece-wildfires.html
+
+**D. Wayne Lukas hospitalized, will not return to horse training**\
+`Lukas' assistant, Sebastian "Bas" Nicholl, will take over responsibility for the horses previously in Lukas' care.`\
+https://nytimes.com/athletic/6445589/2025/06/23/d-wayne-lukas-hospitalized-horse-training/
+
+**As Black New Yorkers Move Out, N.Y.C. Politics May Be Reshaped**\
+`Housing affordability and quality-of-life concerns are pushing longtime Black New Yorkers out of the city, underscoring Democrats’ challenges with their base ahead of the mayoral election.`\
+https://nytimes.com/2025/06/23/nyregion/nyc-mayor-black-voters.html
+
+**This Powerful Telescope Quickly Found 1,200 New Asteroids**\
+`The Vera C. Rubin Observatory is expected to find millions of unknown objects in our solar system, and perhaps even a mysterious Planet Nine.`\
+https://nytimes.com/2025/06/23/science/rubin-telescope-asteroids.html
+
 **The NHL's busy season is here, and we've got oddly specific predictions**\
 `Let’s all grab the popcorn bags and see where this goes.`\
 https://nytimes.com/athletic/6445607/2025/06/23/red-light-newsletter-nhl-draft-free-agency/
