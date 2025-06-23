@@ -27,7 +27,7 @@ https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/here-are-the-la
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news
 
 **Russian Attack on Kyiv Kills at Least 6, Ukraine Says**\
-`It was the latest in a series of deadly Russian strikes, which have intensified as cease-fire talks have largely stalled.`\
+`The barrage was the latest in a series of deadly strikes, which have intensified as cease-fire talks have largely stalled.`\
 https://nytimes.com/2025/06/23/world/europe/ukraine-russia-kyiv-attack.html
 
 **The Last Survivors of the Emperor’s Army Tell Their Tales**\
