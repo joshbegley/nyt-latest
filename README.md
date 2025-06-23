@@ -1,3 +1,11 @@
+**You’ve Got ‘The Ick.’ Is Your Relationship Doomed?**\
+`Noisy eating, clapping when a plane lands — experts explain how to handle sudden feelings of disgust.`\
+https://nytimes.com/2025/06/23/well/the-ick.html
+
+**My One-Pan Zucchini-Pesto Orzo Is Supremely Summery**\
+`By Melissa Clark`\
+https://nytimes.com/2025/06/23/dining/one-pan-zucchini-pesto-orzo-is-supremely-summery.html
+
 **What I'm hearing about Penguins' NHL Draft plan, trades, Bryan Rust, Rickard Rakell**\
 `Which teams are potential trade partners? Will the Peguins trade Rust and Rakell? Here's what I know.`\
 https://nytimes.com/athletic/6443910/2025/06/23/penguins-nhl-draft-trades-free-agency/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/06/23/world/middleeast/world-central-kitchen-gaza-resta
 https://nytimes.com/interactive/2025/06/23/weather/sepat-map-path-tracker.html
 
 **Mailbag: Are Canadiens buying or selling? Plus, Kirby Dach’s future**\
-`The Canadiens' decision-makers are aggressively trying to work the trade market. But they're not about to do anything stupid.`\
+`The Canadiens' decision-makers are aggressively trying to work the trade market, but they're not about to do anything stupid.`\
 https://nytimes.com/athletic/6444760/2025/06/23/canadiens-trade-market-nhl-draft-mailbag/
-
-**For Haim, a Breakup Is an Inspiration**\
-`“I Quit,” the band’s fourth album, leans into heartache and moving on.`\
-https://nytimes.com/2025/06/23/arts/music/haim-i-quit-review.html
-
-**Your Watch List**\
-`Interested in the movies you​’ve read about? ​Find the films you’ve saved all in one place.`\
-https://nytimes.com/interactive/2025/movies/watchlist.html
 
