@@ -1,6 +1,6 @@
-**What is the Strait of Hormuz, and why is it important?**\
-`By Helene Cooper, Eric Schmitt and John Ismay`\
-https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/strait-hormuz-what-why-iran
+**What Is the Strait of Hormuz, and Why Is It Important?**\
+`Iranian officials have threatened to mine the waterway, which is a key shipping route for oil and gas.`\
+https://nytimes.com/2025/06/23/world/middleeast/strait-hormuz-what-why-iran.html
 
 **Where Does Iran Go Now?**\
 `While foreign wars may expose autocratic fragility, they rarely create the conditions necessary for democratic change.`\
