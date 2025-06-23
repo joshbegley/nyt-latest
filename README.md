@@ -1,8 +1,12 @@
+**What to Know about Al Udeid Air Base in Qatar**\
+`About 10,000 troops are stationed at the base, which serves as the regional headquarters for the U.S. Central Command.`\
+https://nytimes.com/2025/06/23/world/middleeast/udeid-qatar-base.html
+
 **F.B.I. Warns of Possible Retaliation by Iran After Bombing of Nuclear Sites**\
 `F.B.I. and D.H.S. officials cautioned state and local law enforcement of the possibility of threats to U.S. communities.`\
 https://nytimes.com/2025/06/23/us/fbi-retaliation-iran-bombing-nuclear-sites.html
 
-**Ford Will Keep Battery Factory Even if Republicans Axe Tax Break**\
+**Ford Will Keep Battery Factory Even if Republicans Ax Tax Break**\
 `Ford Motor said it would open a new plant in Michigan that could become ineligible for federal incentives under a policy bill championed by President Trump and passed by the House.`\
 https://nytimes.com/2025/06/23/business/ford-battery-factory-electric-vehicles.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iran-attacked-a-us
 **Maria Taylor named NBC's lead NBA, WNBA studio host next season: Source**\
 `Taylor also signed a multiyear contract extension with NBC Sports that will have her with the company deep into the 2020s, the source said.`\
 https://nytimes.com/athletic/6445390/2025/06/23/maria-taylor-nbc-peacock-nba-lead-studio-host/
-
-**Wrexham forward Paul Mullin joins Wigan on loan**\
-`Mullin leaves the Welsh club, now in the Championship, after three consecutive promotions and 110 goals in 172 matches.`\
-https://nytimes.com/athletic/6445972/2025/06/23/wrexham-transfers-paul-mullin-wigan/
 
