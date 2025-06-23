@@ -1,3 +1,15 @@
+**What we're hearing about Pac-12 expansion after it announced a TV deal with CBS**\
+`The revamped Pac-12 has seven football members for 2026 and needs an eighth as it finalizes its TV deals, including one with CBS.`\
+https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candidates/
+
+**Israel widens targets in another series of strikes on the Iranian capital.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
+
+**World Central Kitchen Resumes Gaza Operations After Nearly 7-Week Pause**\
+`The charity founded by the celebrity chef José Andrés has started preparing meals again. It halted activities when food supplies ran out during Israel’s aid blockade.`\
+https://nytimes.com/2025/06/23/world/middleeast/world-central-kitchen-gaza-restarts-meals.html
+
 **Tracking Tropical Storm Sepat**\
 `See the likely path and wind arrival times for Sepat.`\
 https://nytimes.com/interactive/2025/06/23/weather/sepat-map-path-tracker.html
