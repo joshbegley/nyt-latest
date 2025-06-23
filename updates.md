@@ -1,3 +1,11 @@
+**Stakes rise for USMNT's World Cup hopefuls after navigating Gold Cup group stage**\
+`A makeshift USMNT group has passed its first test. How this Gold Cup – and personal auditions – will be judged is based on what comes next`\
+https://nytimes.com/athletic/6444571/2025/06/23/usmnt-concacaf-gold-cup-group-stage-costa-rica/
+
+**The Championship players who could be ready for a Premier League transfer this summer**\
+`Which players could be ready to make the step up to the top flight?`\
+https://nytimes.com/athletic/6438088/2025/06/23/championship-premier-league-transfer-players/
+
 **Vera Rubin Scientists Reveal Telescope’s First Images**\
 `Scenes from nebulas in the Milky Way and a cluster of galaxies are a teaser of how the observatory will transform astronomy, with more imagery expected later on Monday.`\
 https://nytimes.com/2025/06/23/science/vera-rubin-scientists-reveal-telescopes-first-images.html

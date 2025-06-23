@@ -1,3 +1,11 @@
+**Stakes rise for USMNT's World Cup hopefuls after navigating Gold Cup group stage**\
+`A makeshift USMNT group has passed its first test. How this Gold Cup – and personal auditions – will be judged is based on what comes next`\
+https://nytimes.com/athletic/6444571/2025/06/23/usmnt-concacaf-gold-cup-group-stage-costa-rica/
+
+**The Championship players who could be ready for a Premier League transfer this summer**\
+`Which players could be ready to make the step up to the top flight?`\
+https://nytimes.com/athletic/6438088/2025/06/23/championship-premier-league-transfer-players/
+
 **Vera Rubin Scientists Reveal Telescope’s First Images**\
 `Scenes from nebulas in the Milky Way and a cluster of galaxies are a teaser of how the observatory will transform astronomy, with more imagery expected later on Monday.`\
 https://nytimes.com/2025/06/23/science/vera-rubin-scientists-reveal-telescopes-first-images.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/22/us/politics/republicans-trump-lawsuits-senate-par
 **Manchester City 6 Al Ain 0 - How good is Ait-Nouri? Will Guardiola avoid Real Madrid?**\
 `Analysis of Manchester City's victory of Al Ain`\
 https://nytimes.com/athletic/6431485/2025/06/22/manchester-city-al-ain-highlights/
-
-**Global Markets Dip as Traders Gauge Fallout From U.S. Strikes on Iran**\
-`Any disruption to traffic in the Strait of Hormuz would have significant economic effects, especially for Asian nations dependent on oil from the Middle East.`\
-https://nytimes.com/2025/06/22/business/stocks-us-iran-bombing.html
-
-**Small Protests Against the U.S. Attack in Iran Sprouted Up Over the Weekend**\
-`The last-minute demonstrations drew hundreds of people in some cities, fewer in others. Many expressed displeasure with the Iranian leadership but were against any more U.S. involvement in another war.`\
-https://nytimes.com/2025/06/22/world/middleeast/us-protests-iran-attack.html
 
