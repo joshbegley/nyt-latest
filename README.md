@@ -1,3 +1,7 @@
+**Zegras trade sets up intriguing offseason for Ducks, who have a win-now mandate**\
+`Will the Ducks, with ample cap space, be in the Mitch Marner sweepstakes? Or is a big trade more likely?`\
+https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
+
 **PSG survives Club World Cup's toughest group and chases double triumph**\
 `The Champions League winners are through to the knockout stage and looking dangerous.`\
 https://nytimes.com/athletic/6446657/2025/06/23/psg-club-world-cup-champions-league-seattle-sounders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6446170/2025/06/23/sf-giants-second-base-casey-schm
 **Iran Fired Missiles at a U.S. Base**\
 `Also, a heat wave grips the eastern U.S. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/06/23/briefing/iran-us-base-heat-wave.html
-
-**Nationwide Arena owner plans $400 million in upgrades to Blue Jackets' 25-year-old home**\
-`Per WBNS-TV in Columbus, construction will be spread out over a four- or five-year span.`\
-https://nytimes.com/athletic/6446457/2025/06/23/nationwide-arena-upgrades-blue-jackets/
 
