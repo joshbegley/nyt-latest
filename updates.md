@@ -1,3 +1,11 @@
+**Elizabeth Street Garden Saved as Adams Kills Plan for Housing on Site**\
+`Randy Mastro, the first deputy mayor, called the deal to preserve the Manhattan garden a “win-win.” Backers of a longtime plan to build housing for older New Yorkers were livid.`\
+https://nytimes.com/2025/06/23/nyregion/elizabeth-street-garden-affordable-housing.html
+
+**A Bustling New York Mayoral Race Reaches a Pivotal Moment**\
+`The New York Times’s City Hall bureau chief preps us for the Democratic primary.`\
+https://nytimes.com/2025/06/23/insider/new-york-mayor.html
+
 **San Diego Wave transfer María Sánchez to Tigres UANL**\
 `Across her 40 appearances with the Wave, Sánchez tallied nine goals and seven assists.`\
 https://nytimes.com/athletic/6446131/2025/06/23/maria-sanchez-wave-tigres-transfer/
