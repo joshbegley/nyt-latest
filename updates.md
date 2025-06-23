@@ -1,3 +1,7 @@
+**Astros re-sign Jon Singleton to minor-league deal: Source**\
+`Singleton will provide a left-handed bat within an otherwise depleted Astros farm system.`\
+https://nytimes.com/athletic/6444404/2025/06/22/astros-re-sign-jon-singleton-minor-league-deal/
+
 **Dodger Details: Shohei Ohtani's 2-way show, Freddie Freeman's struggles and more**\
 `Max Muncy's two-homer, seven-RBI outburst helped the Dodgers rally for a 13-7 victory over the Nationals on Sunday.`\
 https://nytimes.com/athletic/6444345/2025/06/22/los-angeles-dodgers-shohei-ohtani-max-muncy/
