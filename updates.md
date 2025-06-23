@@ -1,3 +1,7 @@
+**New York Again Embraces Nuclear Power With Plans to Build New Plant**\
+`In her announcement, Gov. Kathy Hochul gave few details about where the plant would be built, how much the project would cost or how long it would take to complete.`\
+https://nytimes.com/2025/06/23/nyregion/new-york-nuclear-power-plant.html
+
 **What to Know about Al Udeid Air Base in Qatar**\
 `About 10,000 troops are stationed at the base, which serves as the regional headquarters for the U.S. Central Command.`\
 https://nytimes.com/2025/06/23/world/middleeast/udeid-qatar-base.html
