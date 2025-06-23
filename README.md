@@ -1,3 +1,7 @@
+**What to Know About Iran’s Notorious Evin Prison**\
+`Israel’s military struck entrances to the detention facility in Tehran where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-evin-prison-what-is.html
+
 **Fantasy baseball cheat sheet: Fade David Peterson, Seth Lugo and more THE BAT X insights**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6445273/2025/06/23/fantasy-baseball-the-bat-x-peterson-lugo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6443910/2025/06/23/penguins-nhl-draft-trades-free-a
 **Telfar’s Joyful, Shoppable Declaration of Independence**\
 `The designer celebrated 20 years of rewriting fashion’s rules.`\
 https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
-
-**James Lloydovich Patterson, 91, Dies; Soviet Poet and Symbol of Racial Unity**\
-`Years after being catapulted to national fame in the U.S.S.R. as a child actor, he wrote about ideals of racial harmony and international solidarity.`\
-https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
 
