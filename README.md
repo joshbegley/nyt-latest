@@ -1,3 +1,7 @@
+**Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/23/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
 **The New York Times in Print for Monday, June 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440724/2025/06/23/tottenham-antoine-semenyo-analys
 **What will Antonio Cordero bring to Newcastle and what is their plan for him?**\
 `The 18-year-old winger was in demand and Newcastle hope he will prove a shrewd signing - whether he makes their first team or not`\
 https://nytimes.com/athletic/6405048/2025/06/23/antonio-cordero-newcastle-malaga/
-
-**Euro 2025: Spain team guide - have things finally settled for the World Cup winners?**\
-`From players to watch to pedigree and much more, we set out what to expect from Spain at the European Championship`\
-https://nytimes.com/athletic/6437679/2025/06/23/spain-team-guide-euro-2025/
 
