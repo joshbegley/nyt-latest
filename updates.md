@@ -1,3 +1,7 @@
+**Compass Sues to Stop ‘Zillow Ban’**\
+`Compass, the real estate brokerage, claims that Zillow, the website that has 227 million unique visitors a month, has conspired to maintain a monopoly over digital home listings.`\
+https://nytimes.com/2025/06/23/realestate/compass-zillow-lawsuit.html
+
 **A Broncos coach stared at life’s ‘scariest time.’ The team ensured he didn’t face it alone**\
 `Zack Grossi was diagnosed with a cancerous chest tumor last October. His "inspiring" fight ended in a return to the coaching booth.`\
 https://nytimes.com/athletic/6433027/2025/06/23/broncos-zack-grossi-cancer/
