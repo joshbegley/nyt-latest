@@ -1,3 +1,11 @@
+**L.A. Sheriff’s Dept. Apologizes for Post Sympathizing With Iran Bombing Victims**\
+`The department called its social media post “offensive and inappropriate” and said it was investigating how it was published.`\
+https://nytimes.com/2025/06/23/us/la-sheriff-apology-iran-bombing-attack.html
+
+**Inside Trump’s Decision**\
+`The Times pieced together the days and hours leading up to President Trump’s decision to strike Iran. It’s a story of diplomacy, deception and a secret that almost got out.`\
+https://nytimes.com/2025/06/23/briefing/inside-trumps-decision.html
+
 **The Pulse: A historic title and a massive what-if**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6444455/2025/06/23/pacers-thunder-game-7-the-pulse/
@@ -18,6 +26,11 @@ https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/european-offici
 `Why reluctance to penalize players for throwing rackets and hitting balls into the crowd will come back to bite the sport one day.`\
 https://nytimes.com/athletic/6439857/2025/06/23/tennis-default-rules-racket-smash-ball-abuse-consistency/
 
+**2025 NHL Draft player poll: 50 top prospects give their own NHL projections**\
+`We asked prospects to answer candidly about a projected outcome for themselves rather than the usual lofty player comparables.
+`\
+https://nytimes.com/athletic/6390625/2025/06/23/2025-nhl-draft-player-poll-prospects-projections/
+
 **Did Kevin Durant's Suns departure leave Phoenix with enough for rebuild?**\
 `The Suns' return for Kevin Durant paled in comparison to the 2023 trade deadline, when they gave up four firsts. Was a better deal possible?`\
 https://nytimes.com/athletic/6444260/2025/06/23/kevin-durant-trade-rockets-suns-draft-nba/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6444260/2025/06/23/kevin-durant-trade-rockets-suns-
 **To make ‘F1: The Movie’ real, Brad Pitt had to learn to race - from real racers**\
 `'F1: The Movie' aims to create the most authentic racing film. To achieve this, the acting stars had to learn the methods of real drivers`\
 https://nytimes.com/athletic/6444007/2025/06/23/brad-pitt-f1-movie-driving-coach/
-
-**2025 NHL Draft player poll: Top prospects dish on most underrated, most difficult, NCAA**\
-`The results of the anonymous poll questions were sometimes revealing, sometimes insightful and candid throughout.`\
-https://nytimes.com/athletic/6390727/2025/06/23/2025-nhl-draft-prospects-player-poll-ncaa/
-
-**Could Mets explore infield help at the deadline? It's not out of the question**\
-`New York always wants to allow room for its young players, but none of its less-accomplished infielders have run with the opportunity. `\
-https://nytimes.com/athletic/6444615/2025/06/23/new-york-mets-infield-conundrum/
-
-**The U.S. Bombed Iran. Now What?**\
-`The president’s decision to strike Iran is a high-stakes gamble — one that turns in part on whether Iran’s nuclear program has actually been destroyed.`\
-https://nytimes.com/2025/06/23/podcasts/the-daily/us-iran-israel-bomb.html
 

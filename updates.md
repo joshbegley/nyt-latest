@@ -1,3 +1,16 @@
+**L.A. Sheriff’s Dept. Apologizes for Post Sympathizing With Iran Bombing Victims**\
+`The department called its social media post “offensive and inappropriate” and said it was investigating how it was published.`\
+https://nytimes.com/2025/06/23/us/la-sheriff-apology-iran-bombing-attack.html
+
+**Inside Trump’s Decision**\
+`The Times pieced together the days and hours leading up to President Trump’s decision to strike Iran. It’s a story of diplomacy, deception and a secret that almost got out.`\
+https://nytimes.com/2025/06/23/briefing/inside-trumps-decision.html
+
+**2025 NHL Draft player poll: 50 top prospects give their own NHL projections**\
+`We asked prospects to answer candidly about a projected outcome for themselves rather than the usual lofty player comparables.
+`\
+https://nytimes.com/athletic/6390625/2025/06/23/2025-nhl-draft-player-poll-prospects-projections/
+
 **The Pulse: A historic title and a massive what-if**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6444455/2025/06/23/pacers-thunder-game-7-the-pulse/
