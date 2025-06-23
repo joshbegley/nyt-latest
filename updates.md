@@ -1,3 +1,7 @@
+**Deadly Russian Strikes Hit Kyiv**\
+`A fire broke out and a building partially collapsed as Russia struck Ukraine’s capital with a barrage of drones and missiles.`\
+https://nytimes.com/video/world/europe/100000010244007/ukraine-russia-kyiv-attack.html
+
 **The race against the clock that showed just how much Manchester City want to win the Club World Cup**\
 `City will now need to beat Juventus in their final group game to finish in first place - but that might be no bad thing `\
 https://nytimes.com/athletic/6444800/2025/06/23/manchester-city-al-ain-urgency-club-world-cup/

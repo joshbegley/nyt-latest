@@ -1,3 +1,7 @@
+**Deadly Russian Strikes Hit Kyiv**\
+`A fire broke out and a building partially collapsed as Russia struck Ukraine’s capital with a barrage of drones and missiles.`\
+https://nytimes.com/video/world/europe/100000010244007/ukraine-russia-kyiv-attack.html
+
 **The race against the clock that showed just how much Manchester City want to win the Club World Cup**\
 `City will now need to beat Juventus in their final group game to finish in first place - but that might be no bad thing `\
 https://nytimes.com/athletic/6444800/2025/06/23/manchester-city-al-ain-urgency-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/nyregion/mayor-primary-speech-nyc.html
 **Big Names, Bigger Money and Global Themes Color the N.Y.C. Council Races**\
 `All 51 seats are up for election this year, and the Democratic primary battles feature crowded fields, moneyed interests and some recognizable figures.`\
 https://nytimes.com/2025/06/23/nyregion/city-council-primaries-nyc.html
-
-**Local Opposition Threatens Massive Redevelopment on Brooklyn Waterfront**\
-`There is concern over how city leaders are trying to push the proposal forward using a special state process that limits public input and circumvents the typical local vetting.`\
-https://nytimes.com/2025/06/23/nyregion/red-hook-brooklyn-waterfront.html
 
