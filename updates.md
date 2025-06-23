@@ -1,3 +1,7 @@
+**PWHL Vancouver names Brian Idalski first-ever head coach**\
+`PWHL Vancouver's inaugural season will begin this fall at Pacific Coliseum.`\
+https://nytimes.com/athletic/6445806/2025/06/23/pwhl-vancouver-coach-brian-idalski/
+
 **Why Factories Are Having Trouble Filling Nearly 400,000 Open Jobs**\
 `For every 20 positions, there’s one qualified candidate, says one manufacturing chief executive. Some of President Trump’s policies are likely to exacerbate the problem.`\
 https://nytimes.com/2025/06/23/business/factory-jobs-workers-trump.html

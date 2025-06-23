@@ -1,3 +1,7 @@
+**PWHL Vancouver names Brian Idalski first-ever head coach**\
+`PWHL Vancouver's inaugural season will begin this fall at Pacific Coliseum.`\
+https://nytimes.com/athletic/6445806/2025/06/23/pwhl-vancouver-coach-brian-idalski/
+
 **Why Factories Are Having Trouble Filling Nearly 400,000 Open Jobs**\
 `For every 20 positions, there’s one qualified candidate, says one manufacturing chief executive. Some of President Trump’s policies are likely to exacerbate the problem.`\
 https://nytimes.com/2025/06/23/business/factory-jobs-workers-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/arts/arnaldo-pomodoro-dead.html
 **The Power of Protest: Then and Now**\
 `Readers reflect on differences between protest in the 1960s and the political resistance of today.`\
 https://nytimes.com/2025/06/23/opinion/protests-1960s-today.html
-
-**The Curtain Drops on Improv Theater for the New York Police**\
-`Police Commissioner Jessica Tisch said a staffing crisis kept her from letting officers participate in a Brooklyn theater group that began after the death of Eric Garner, who died after a police officer put him in a chokehold, in 2014.`\
-https://nytimes.com/2025/06/23/nyregion/nypd-acting-improv-class.html
 
