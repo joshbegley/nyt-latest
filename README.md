@@ -1,3 +1,15 @@
+**Your Watch List**\
+`Interested in the movies you​’ve read about? ​Find the films you’ve saved all in one place.`\
+https://nytimes.com/interactive/2025/movies/watchlist.html
+
+**Fill In the Blank: Which World Cities Are in These Book Titles?**\
+`Try this short literary geography quiz that takes you around the globe.`\
+https://nytimes.com/interactive/2025/06/23/books/review/world-book-titles.html
+
+**Lowetide: What should the Oilers do with Evander Kane?**\
+`There are reasons for the Oilers to trade Kane, but it isn't clear that it would be the right decision.`\
+https://nytimes.com/athletic/6442722/2025/06/23/edmonton-oilers-evander-kane-contract-trade/
+
 **Vera Rubin Observatory**\
 `A powerful new U.S.-funded telescope on a mountain in Chile is poised to transform the study of astronomy.`\
 https://nytimes.com/news-event/vera-rubin-telescope
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/the-weeknd-hurry-up-tomorrow
 **gws-kara-swisher-podcasts**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/kara-swisher-podcasts
-
-**gws-nat-king-cole-lights-out**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/nat-king-cole-lights-out
-
-**gws-drive-in-theaters-america**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/drive-in-theaters-america
-
-**Travis Hunter signs 4-year, $46 million rookie deal with Jaguars: Sources**\
-`The Jaguars announced Hunter's signing twice on X — with one post calling Hunter a DB and another calling him a WR.`\
-https://nytimes.com/athletic/6445264/2025/06/23/travis-hunter-jaguars-contract-signing-bonus/
 
