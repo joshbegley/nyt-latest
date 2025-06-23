@@ -1,3 +1,7 @@
+**The race against the clock that showed just how much Manchester City want to win the Club World Cup**\
+`City will now need to beat Juventus in their final group game to finish in first place - but that might be no bad thing `\
+https://nytimes.com/athletic/6444800/2025/06/23/manchester-city-al-ain-urgency-club-world-cup/
+
 **China Says the U.S. Damaged Its Own Credibility by Striking Iran**\
 `The rhetoric belies a more complicated reality, as Beijing has been one of Tehran’s biggest backers.`\
 https://nytimes.com/2025/06/23/world/asia/china-us-iran-credibility.html
