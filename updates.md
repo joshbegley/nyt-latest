@@ -1,3 +1,7 @@
+**Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained.**\
+`Bombing Iran without congressional authorization escalated a bipartisan trend of presidents bypassing the original intent of the Constitution.`\
+https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.html
+
 **Wisconsin Couple Charged in Scheme to Poison Women He Dated**\
 `Paul VanDuyne Jr. and Andrea Whitaker placed cyanide, homemade poisons and other substances in water bottles and cars belonging to two women he had briefly dated, the authorities said.`\
 https://nytimes.com/2025/06/23/us/wisconsin-couple-charged-poison-plot.html

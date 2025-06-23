@@ -1,3 +1,7 @@
+**Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained.**\
+`Bombing Iran without congressional authorization escalated a bipartisan trend of presidents bypassing the original intent of the Constitution.`\
+https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.html
+
 **Wisconsin Couple Charged in Scheme to Poison Women He Dated**\
 `Paul VanDuyne Jr. and Andrea Whitaker placed cyanide, homemade poisons and other substances in water bottles and cars belonging to two women he had briefly dated, the authorities said.`\
 https://nytimes.com/2025/06/23/us/wisconsin-couple-charged-poison-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
 **Cuomo and Mamdani Push to Raise Turnout in ‘Jump Ball’ Mayor’s Race**\
 `A new poll shows the New York City mayor’s race tightening in its final days. Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are scrambling for every last vote.`\
 https://nytimes.com/2025/06/23/nyregion/mayor-primary-mamdani-cuomo.html
-
-**Fernando Tatis Jr. sues Big League Advance Fund for exploitative business practices**\
-`Tatis is suing Big League Advance Fund, alleging they have "for years run an unlicensed lending business that evades legal oversight."`\
-https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-advance-fund-lawsuit/
 
