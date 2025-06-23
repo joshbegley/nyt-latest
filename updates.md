@@ -1,3 +1,7 @@
+**Fred Smith, Billionaire Founder of FedEx, Is Dead at 80**\
+`His vision for how to ship packages overnight led to not just a new company, but also a new sector of the world economy and a now-familiar English verb.`\
+https://nytimes.com/2025/06/22/obituaries/fred-smith-billionaire-founder-of-fedex-is-dead-at-80.html
+
 **Palmeiras defender Murilo is 'team Ronaldo' - eyes win over Messi, vows to do 'siu' celebration if he scores**\
 `“Yes, I'll do it,” Murilo said when asked if he would consider reproducing Ronaldo's trademark “siu” celebration if he scores against Messi`\
 https://nytimes.com/athletic/6444326/2025/06/22/team-ronaldo-messi-palmeiras-murilo/
