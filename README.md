@@ -1,3 +1,11 @@
+**Supreme Court Lets Trump Deport Migrants to Countries to Which They Have No Connection**\
+`The ruling applies immediately to a group of men the government has sought to send to South Sudan.`\
+https://nytimes.com/2025/06/23/us/politics/supreme-court-south-sudan-migrants.html
+
+**Iran’s Retaliation Could Be Just the Beginning**\
+`Nicholas Kristof on why the U.S. may be headed into a “minefield.”`\
+https://nytimes.com/2025/06/23/opinion/iran-strikes-qatar.html
+
 **Game 7 of Thunder-Pacers was most-watched NBA Finals game since 2019**\
 `The seven-game series finished with an average of 10.266 million viewers, down from the 11.3 million average for last year.`\
 https://nytimes.com/athletic/6446312/2025/06/23/thunder-pacers-game-7-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
 **Canada and E.U. Pull Together as America Pushes Them Away**\
 `The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
 https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html
-
-**Reds designate Jeimer Candelario for assignment halfway through $45 million contract**\
-`Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
-https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
-
-**NASCAR Pocono takeaways: Chase Briscoe's big relief, Kyle Larson's struggles and more**\
-`Now with big expectations at Joe Gibbs Racing, Chase Briscoe needed Sunday's win to ease the pressure. Plus, more on the Pocono race.`\
-https://nytimes.com/athletic/6445588/2025/06/23/nascar-pocono-takeaways-chase-briscoe-kyle-larson/
 
