@@ -1,3 +1,23 @@
+**The Briefing: Seattle Sounders 0 PSG 2 - Bizarre goal helps European champions qualify for last 16**\
+`Our writers analyse end evaluate the key talking points from Paris Saint-Germain's victory at the Club World Cup`\
+https://nytimes.com/athletic/6435214/2025/06/23/seattle-sounders-0-psg-2-the-briefing/
+
+**Sketched Out: An Illustrator Confronts His Fears About A.I. Art**\
+`The advent of A.I. has shocked me into questioning my relationship with art. Will humans still be able to draw for a living?`\
+https://nytimes.com/interactive/2025/06/23/magazine/ai-art-artists-illustrator.html
+
+**Blues free agency plans (and concerns), plus contract updates, more takeaways: Doug Armstrong talks**\
+`The start of NHL free agency is only a week away, but the Blues GM is already tapping the brakes on a possible spending spree.`\
+https://nytimes.com/athletic/6445843/2025/06/23/blues-free-agency-draft-doug-armstrong/
+
+**Florida to Build ‘Alligator Alcatraz’ Detention Center for Migrants in Everglades**\
+`Immigrant advocates said the move creates a whole new form of detention outside the scope of the federal government.`\
+https://nytimes.com/2025/06/23/us/politics/florida-alligator-alcatraz-migrant-detention-center.html
+
+**Tuesday Briefing: Iran Struck a U.S. Base in Qatar**\
+`Plus, the 100 best movies of the 21st century.`\
+https://nytimes.com/2025/06/23/briefing/iran-missile-us-qatar-gaza-israel.html
+
 **Supreme Court Lets Trump Deport Migrants to Countries to Which They Have No Connection**\
 `The ruling applies immediately to a group of men the government has sought to send to South Sudan.`\
 https://nytimes.com/2025/06/23/us/politics/supreme-court-south-sudan-migrants.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2025/06/23/world/middleeast/us-qatar-iran-israel
 **The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
 `So much happened at Fanatics Fest that it was impossible to see everything, but these moments stood out the most`\
 https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
-
-**What to watch in sports this week: NBA and NHL drafts, Caitlin Clark and USWNT**\
-`From 2025 draft classes to international matches, the sports week ahead offers us several suitable diversions.`\
-https://nytimes.com/athletic/6440938/2025/06/23/nba-draft-cooper-flagg-concacaf-uswnt-caitlin-clark-how-to-watch/
-
-**What We Learned About Trump’s Attack on Iran**\
-`Over the past week, President Trump claimed he would make a decision about Iran in “two weeks” and repeatedly pressed it to come to the negotiating table.`\
-https://nytimes.com/video/us/politics/100000010243701/trumps-public-statements-and-iran-planning.html
-
-**Man United submit improved £60m bid for Mbeumo**\
-`The 25-year-old is entering the final year of his contract at Brentford, who do have the option to extend his stay by a further 12 months.`\
-https://nytimes.com/athletic/6404699/2025/06/23/manchester-united-transfers-bryan-mbeumo/
-
-**Immigrant Whom a Judge Is Accused of Aiding Agrees to a Plea Deal**\
-`Federal prosecutors say Judge Hannah C. Dugan helped the man evade immigration agents who were waiting in a Milwaukee courthouse to arrest him.`\
-https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
-
-**Canada and E.U. Pull Together as America Pushes Them Away**\
-`The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
-https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html
 
