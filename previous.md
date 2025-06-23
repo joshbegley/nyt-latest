@@ -1,3 +1,7 @@
+**Gundogan 'thinks' he will stay at Man City and has 'several years' at highest level**\
+`The Germany international appeared confident that he would see out the final year of his Man City contract.`\
+https://nytimes.com/athletic/6444828/2025/06/23/man-city-transfer-news-gundogan/
+
 **Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/23/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6443032/2025/06/23/arsenal-most-underrated-player-p
 **What to expect from Diego Coppola, Brighton's new centre-back from Serie A**\
 `Brighton have brought in a 21-year-old full Italy international with physical presence and adaptability - just what Hurzeler was after`\
 https://nytimes.com/athletic/6431506/2025/06/23/diego-coppola-brighton-transfer-analysis/
-
-**Tottenham target Antoine Semenyo's two-footedness strikes fear into opponents**\
-`The Bournemouth winger is on Spurs' radar, with his versatility likely to be a key factor in their interest`\
-https://nytimes.com/athletic/6440724/2025/06/23/tottenham-antoine-semenyo-analysis/
 

@@ -1,3 +1,7 @@
+**Gundogan 'thinks' he will stay at Man City and has 'several years' at highest level**\
+`The Germany international appeared confident that he would see out the final year of his Man City contract.`\
+https://nytimes.com/athletic/6444828/2025/06/23/man-city-transfer-news-gundogan/
+
 **What to expect from Diego Coppola, Brighton's new centre-back from Serie A**\
 `Brighton have brought in a 21-year-old full Italy international with physical presence and adaptability - just what Hurzeler was after`\
 https://nytimes.com/athletic/6431506/2025/06/23/diego-coppola-brighton-transfer-analysis/
