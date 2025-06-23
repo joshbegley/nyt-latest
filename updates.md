@@ -1,3 +1,15 @@
+**Shifting Views and Misdirection: How Trump Decided to Strike Iran**\
+`When Israel began its assault on Iran, President Trump kept his distance. But within days he was on a path that led to an extensive bombing mission aided by political and military ruses.`\
+https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
+
+**Tyrese Haliburton suffers lower right leg injury during NBA Finals Game 7**\
+`Haliburton fell without contact and immediately pounded the court in agony without getting up.`\
+https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-finals-game-7/
+
+**Bradley a Ryder Cup playing captain? He's open to change after Travelers win**\
+`Bradley, now an eight-time winner on the PGA Tour, said, "This definitely opens the door to play" after comeback win over Tommy Fleetwood.`\
+https://nytimes.com/athletic/6444295/2025/06/22/keegan-bradley-travelers-championship-tommy-fleetwood-2/
+
 **The Best Movies of the 21st Century: You Decide**\
 `More than 500 directors, actors and other notable movie fans submitted their ballots for the Best Movies of the 21st Century. Now it’s your turn to vote.`\
 https://nytimes.com/interactive/2025/movies/reader-ballot-movies-21st-century.html

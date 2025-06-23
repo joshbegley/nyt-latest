@@ -1,3 +1,11 @@
+**Shifting Views and Misdirection: How Trump Decided to Strike Iran**\
+`When Israel began its assault on Iran, President Trump kept his distance. But within days he was on a path that led to an extensive bombing mission aided by political and military ruses.`\
+https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
+
+**Tyrese Haliburton suffers lower right leg injury during NBA Finals Game 7**\
+`Haliburton fell without contact and immediately pounded the court in agony without getting up.`\
+https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-finals-game-7/
+
 **The Best Movies of the 21st Century: You Decide**\
 `More than 500 directors, actors and other notable movie fans submitted their ballots for the Best Movies of the 21st Century. Now it’s your turn to vote.`\
 https://nytimes.com/interactive/2025/movies/reader-ballot-movies-21st-century.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6444009/2025/06/22/kevin-durant-trade-phoenix-suns-
 `USAID was the world’s largest humanitarian donor. So what was all that money being spent on?`\
 https://nytimes.com/2025/06/22/podcasts/a-supposedly-good-thing-well-never-do-again-this-american-life-nyt-audio.html
 
-**Keegan Bradley grabs Travelers Championship title with late birdie**\
-`Bradley, now an eight-time winner on the PGA Tour, has a legitimate chance of rising into the top-6 in the U.S. Ryder Cup points standings.`\
+**Bradley a Ryder Cup playing captain? He's open to change after Travelers win**\
+`Bradley, now an eight-time winner on the PGA Tour, said, "This definitely opens the door to play" after comeback win over Tommy Fleetwood.`\
 https://nytimes.com/athletic/6444295/2025/06/22/keegan-bradley-travelers-championship-tommy-fleetwood-2/
-
-**Real Madrid's Rudiger allegedly racially abused by Pachuca's Cabral at Club World Cup**\
-`Rudiger alerted referee Ramon Abatti following the alleged comment during the game with the official using FIFA's protocol signal`\
-https://nytimes.com/athletic/6444134/2025/06/22/antonio-rudiger-gustavo-cabral/
-
-**Rod Nordland, 75, Dies; War Reporter Who Also Wrote of His Own Struggle**\
-`Motivated by the helplessness of his boyhood, he described the lives of vulnerable people in conflicts around the world and later his own terminal illness.`\
-https://nytimes.com/2025/06/22/books/rod-nordland-dead.html
 
