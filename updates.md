@@ -1,3 +1,7 @@
+**Here Is All the Science at Risk in Trump’s Clash With Harvard**\
+`More than 900 research grants worth $2.6 billion are in jeopardy. So is the 80-year-old model of American science.`\
+https://nytimes.com/interactive/2025/06/22/upshot/harvard-funding-cuts.html
+
 **G.O.P. Can’t Include Limits on Trump Lawsuits in Megabill, Senate Official Rules**\
 `The Senate parliamentarian rejected a measure in Republicans’ domestic policy bill that could limit lawsuits seeking to block presidential orders.`\
 https://nytimes.com/2025/06/22/us/politics/republicans-trump-lawsuits-senate-parliamentarian.html
