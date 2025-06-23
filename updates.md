@@ -1,3 +1,15 @@
+**Manchester City 6 Al Ain 0 - How good is Ait-Nouri? Will Guardiola avoid Real Madrid?**\
+`Analysis of Manchester City's victory of Al Ain`\
+https://nytimes.com/athletic/6431485/2025/06/22/manchester-city-al-ain-highlights/
+
+**Global Markets Dip as Traders Gauge Fallout From U.S. Strikes on Iran**\
+`Any disruption to traffic in the Strait of Hormuz would have significant economic effects, especially for Asian nations dependent on oil from the Middle East.`\
+https://nytimes.com/2025/06/22/business/stocks-us-iran-bombing.html
+
+**Small Protests Against the U.S. Attack in Iran Sprouted Up Over the Weekend**\
+`The last-minute demonstrations drew hundreds of people in some cities, fewer in others. Many expressed displeasure with the Iranian leadership but were against any more U.S. involvement in another war.`\
+https://nytimes.com/2025/06/22/world/middleeast/us-protests-iran-attack.html
+
 **Thunder win first NBA title since relocating to OKC, hold off persistent Pacers in Game 7**\
 `Indiana lost star Tyrese Haliburton early in the game to an Achilles injury, as OKC finally pushed past a team many underestimated.`\
 https://nytimes.com/athletic/6444479/2025/06/22/2025-nba-finals-thunder-pacers-game-7/

@@ -1,3 +1,15 @@
+**Manchester City 6 Al Ain 0 - How good is Ait-Nouri? Will Guardiola avoid Real Madrid?**\
+`Analysis of Manchester City's victory of Al Ain`\
+https://nytimes.com/athletic/6431485/2025/06/22/manchester-city-al-ain-highlights/
+
+**Global Markets Dip as Traders Gauge Fallout From U.S. Strikes on Iran**\
+`Any disruption to traffic in the Strait of Hormuz would have significant economic effects, especially for Asian nations dependent on oil from the Middle East.`\
+https://nytimes.com/2025/06/22/business/stocks-us-iran-bombing.html
+
+**Small Protests Against the U.S. Attack in Iran Sprouted Up Over the Weekend**\
+`The last-minute demonstrations drew hundreds of people in some cities, fewer in others. Many expressed displeasure with the Iranian leadership but were against any more U.S. involvement in another war.`\
+https://nytimes.com/2025/06/22/world/middleeast/us-protests-iran-attack.html
+
 **Thunder win first NBA title since relocating to OKC, hold off persistent Pacers in Game 7**\
 `Indiana lost star Tyrese Haliburton early in the game to an Achilles injury, as OKC finally pushed past a team many underestimated.`\
 https://nytimes.com/athletic/6444479/2025/06/22/2025-nba-finals-thunder-pacers-game-7/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6444404/2025/06/22/astros-re-sign-jon-singleton-min
 **Dodger Details: Shohei Ohtani's 2-way show, Freddie Freeman's struggles and more**\
 `Max Muncy's two-homer, seven-RBI outburst helped the Dodgers rally for a 13-7 victory over the Nationals on Sunday.`\
 https://nytimes.com/athletic/6444345/2025/06/22/los-angeles-dodgers-shohei-ohtani-max-muncy/
-
-**USMNT given battle, holds off Haiti to top Gold Cup group**\
-`The USMNT capped a perfect group stage, albeit in unimpressive fashion. Bigger tests await in the Gold Cup knockout rounds.`\
-https://nytimes.com/athletic/6444285/2025/06/22/usmnt-haiti-gold-cup-agyemang-tillman-highlights/
-
-**Shifting Views and Misdirection: How Trump Decided to Strike Iran**\
-`When Israel began its assault on Iran, President Trump kept his distance. But within days he was on a path that led to an extensive bombing mission aided by political and military ruses.`\
-https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
-
-**Tyrese Haliburton suffers right Achilles injury during NBA Finals Game 7**\
-`Haliburton fell without contact and immediately pounded the court in agony without getting up.`\
-https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-finals-game-7/
 
