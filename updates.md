@@ -1,3 +1,7 @@
+**Thunder win first NBA title since relocating to OKC, hold off persistent Pacers in Game 7**\
+`Indiana lost star Tyrese Haliburton early in the game to an Achilles injury, as OKC finally pushed past a team many underestimated.`\
+https://nytimes.com/athletic/6444479/2025/06/22/2025-nba-finals-thunder-pacers-game-7/
+
 **Judge Orders Salvadoran Man Released on Smuggling Charges**\
 `The order to release Kilmar Armando Abrego Garcia from criminal custody as he awaits trial was a rebuke to the Trump administration. But he is likely to remain in immigration custody.`\
 https://nytimes.com/2025/06/22/us/politics/abrego-garcia-bail-smuggling-charges.html

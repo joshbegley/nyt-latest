@@ -1,3 +1,7 @@
+**Thunder win first NBA title since relocating to OKC, hold off persistent Pacers in Game 7**\
+`Indiana lost star Tyrese Haliburton early in the game to an Achilles injury, as OKC finally pushed past a team many underestimated.`\
+https://nytimes.com/athletic/6444479/2025/06/22/2025-nba-finals-thunder-pacers-game-7/
+
 **Judge Orders Salvadoran Man Released on Smuggling Charges**\
 `The order to release Kilmar Armando Abrego Garcia from criminal custody as he awaits trial was a rebuke to the Trump administration. But he is likely to remain in immigration custody.`\
 https://nytimes.com/2025/06/22/us/politics/abrego-garcia-bail-smuggling-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
 **Tyrese Haliburton suffers right Achilles injury during NBA Finals Game 7**\
 `Haliburton fell without contact and immediately pounded the court in agony without getting up.`\
 https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-finals-game-7/
-
-**The Best Movies of the 21st Century: You Decide**\
-`More than 500 directors, actors and other notable movie fans submitted their ballots for the Best Movies of the 21st Century. Now it’s your turn to vote.`\
-https://nytimes.com/interactive/2025/movies/reader-ballot-movies-21st-century.html
 
