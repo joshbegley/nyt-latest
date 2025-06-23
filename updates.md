@@ -1,3 +1,11 @@
+**Red Sox takeaways: Sloppy defense returns in wasted opportunity; Hunter Dobbins to IL**\
+`The sloppy play that has characterized much of the season for the Red Sox had dissipated of late, but reared its head again Sunday.`\
+https://nytimes.com/athletic/6444357/2025/06/22/red-sox-takeaways-hunter-dobbins-il/
+
+**Tyrese Haliburton suffers torn right Achilles during NBA Finals Game 7**\
+`Haliburton fell without contact and immediately pounded the court in agony without getting up.`\
+https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-finals-game-7/
+
 **Around Military Bases in the U.S., Unease Over What Comes Next**\
 `Service members, veterans and their families expressed differing views on the airstrikes but shared concern over the safety of American troops.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-reaction-military-bases-united-states.html
