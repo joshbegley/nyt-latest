@@ -1,3 +1,7 @@
+**Iran attacked a U.S. base in Qatar that typically houses 10,000 troops.**\
+`Qatari officials said its air defenses had intercepted the missiles that were fired at Al Udeid Air Base.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iran-attacked-a-us-base-in-qatar-that-typically-houses-10000-troops
+
 **Maria Taylor named NBC's lead NBA, WNBA studio host next season: Source**\
 `Taylor also signed a multiyear contract extension with NBC Sports that will have her with the company deep into the 2020s, the source said.`\
 https://nytimes.com/athletic/6445390/2025/06/23/maria-taylor-nbc-peacock-nba-lead-studio-host/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/business/factory-jobs-workers-trump.html
 **A Journey Across the New Syria**\
 `After decades of dictatorship and 13 years of civil war, can Syria put itself back together? Our journalists traveled the length of the country to explore its hopes and its challenges.`\
 https://nytimes.com/interactive/2025/06/23/world/middleeast/syria-photos-war-bashar-al-assad.html
-
-**The U.S. Urged American Travelers Abroad to ‘Exercise Increased Caution.’ What’s Going On?**\
-`The State Department warned of the potential for demonstrations against Americans overseas because of U.S. intervention in the Israel-Iran conflict. What you need to know.`\
-https://nytimes.com/2025/06/23/travel/travel-advisory-us-citizens-iran-israel.html
 
