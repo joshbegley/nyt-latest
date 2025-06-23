@@ -1,3 +1,27 @@
+**gws-drive-in-theaters-america**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/drive-in-theaters-america
+
+**Travis Hunter signs 4-year, $46 million rookie deal with Jaguars: Sources**\
+`The Jaguars announced Hunter's signing twice on X — with one post calling Hunter a DB and another calling him a WR.`\
+https://nytimes.com/athletic/6445264/2025/06/23/travis-hunter-jaguars-contract-signing-bonus/
+
+**gws-jake-tapper-original-sin-biden-book**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jake-tapper-original-sin-biden-book
+
+**gws-hotel-del-coronado-san-diego**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/hotel-del-coronado-san-diego
+
+**Is It OK for Your Kids to ‘Rot’ All Summer?**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/summer-camp-kids-do-nothing
+
+**The balance behind the brilliance of Shai Gilgeous-Alexander**\
+`SGA capped off one of the greatest individual seasons in NBA history with a title, and he could finally celebrate. `\
+https://nytimes.com/athletic/6445184/2025/06/23/shai-gilgeous-alexander-nba-finals-mvp-thunder-game-7/
+
 **Villages Evacuated on Greek Tourist Island as Wildfires Rage**\
 `More than 190 firefighters were battling three wildfires on Chios in the Aegean Sea, which authorities are investigating as arson.`\
 https://nytimes.com/2025/06/23/world/europe/greece-chioc-fire-evacuation.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6444422/2025/06/23/san-francisco-giants-win-red-sox
 **Subscriber Q&A with Yankees writer Chris Kirschner: Submit questions**\
 `Chris Kirschner will answer subscribers’ questions about the Yankees during a live Q&A at noon ET on Tuesday, June 24. `\
 https://nytimes.com/athletic/6445089/2025/06/23/submit-yankees-questions-chis-kirschner/
-
-**Netanyahu Says Israel Is ‘Very, Very Close’ to Achieving Its Goals in Iran War**\
-`Prime Minister Benjamin Netanyahu said the bombing campaign aimed to end the threats from Tehran’s nuclear program and ballistic missiles. He did not give a timetable for stopping the strikes.`\
-https://nytimes.com/2025/06/23/world/middleeast/israel-iran-war-netanyahu.html
-
-**No Corrections: June 23, 2025**\
-`No corrections appeared in print on Monday, June 23, 2025.`\
-https://nytimes.com/2025/06/23/pageoneplus/no-corrections-june-23-2025.html
-
-**No Corrections: June 22, 2025**\
-`No corrections appeared in print on Sunday, June 22, 2025.`\
-https://nytimes.com/2025/06/23/pageoneplus/no-corrections-june-22-2025.html
-
-**Corrections: June 21, 2025**\
-`Corrections that appeared in print on Saturday, June 21, 2025.`\
-https://nytimes.com/2025/06/23/pageoneplus/corrections-june-21-2025.html
-
-**Putin Condemns Strikes on Iran but Stops Short of Offering Concrete Support**\
-`President Vladimir V. Putin met with Iran’s foreign minister on Monday, but did not explicitly call out Israel or the United States for their strikes on Russia’s longtime ally.`\
-https://nytimes.com/2025/06/23/world/middleeast/putin-iran-araghchi.html
-
-**Abbott Vetoes Ban on Hemp Intoxicants in Texas**\
-`The governor of Texas blocked what would have been one of the nation’s strictest bans on hemp products, and directed legislators to take up regulation of hemp in a special session.`\
-https://nytimes.com/2025/06/23/us/abbott-texas-hemp-veto.html
 
