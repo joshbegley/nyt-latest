@@ -1,3 +1,7 @@
+**Do tennis defaults and disqualifications for racket smashes need a change of perspective?**\
+`Why reluctance to penalize players for throwing rackets and hitting balls into the crowd will come back to bite the sport one day.`\
+https://nytimes.com/athletic/6439857/2025/06/23/tennis-default-rules-racket-smash-ball-abuse-consistency/
+
 **Did Kevin Durant's Suns departure leave Phoenix with enough for rebuild?**\
 `The Suns' return for Kevin Durant paled in comparison to the 2023 trade deadline, when they gave up four firsts. Was a better deal possible?`\
 https://nytimes.com/athletic/6444260/2025/06/23/kevin-durant-trade-rockets-suns-draft-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/podcasts/the-headlines/us-strikes-iran-heat-wave-
 **Wordle Review No. 1,466**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 24, 2025.`\
 https://nytimes.com/2025/06/23/crosswords/wordle-review-1466.html
-
-**Connections Companion No. 744**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 24, 2025.`\
-https://nytimes.com/2025/06/23/crosswords/connections-companion-744.html
 
