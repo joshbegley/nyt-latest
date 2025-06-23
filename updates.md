@@ -1,3 +1,11 @@
+**A Journey Across the New Syria**\
+`After decades of dictatorship and 13 years of civil war, can Syria put itself back together? Our journalists traveled the length of the country to explore its hopes and its challenges.`\
+https://nytimes.com/interactive/2025/06/23/world/middleeast/syria-photos-war-bashar-al-assad.html
+
+**The U.S. Urged American Travelers Abroad to ‘Exercise Increased Caution.’ What’s Going On?**\
+`The State Department warned of the potential for demonstrations against Americans overseas because of U.S. intervention in the Israel-Iran conflict. What you need to know.`\
+https://nytimes.com/2025/06/23/travel/travel-advisory-us-citizens-iran-israel.html
+
 **White House Faces Risk of Economic Fallout From Iran Strike**\
 `President Trump, aware of how high gas prices could affect his popularity, demanded on social media that the U.S. “KEEP OIL PRICES DOWN.”`\
 https://nytimes.com/2025/06/23/us/politics/trump-oil-prices-economic-fallout-iran-strike.html
