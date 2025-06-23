@@ -1,3 +1,7 @@
+**Here Is All the Science at Risk in Trump’s Clash With Harvard**\
+`More than 900 research grants worth $2.6 billion are in jeopardy. So is the 80-year-old model of American science.`\
+https://nytimes.com/interactive/2025/06/22/upshot/harvard-funding-cuts.html
+
 **G.O.P. Can’t Include Limits on Trump Lawsuits in Megabill, Senate Official Rules**\
 `The Senate parliamentarian rejected a measure in Republicans’ domestic policy bill that could limit lawsuits seeking to block presidential orders.`\
 https://nytimes.com/2025/06/22/us/politics/republicans-trump-lawsuits-senate-parliamentarian.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6444357/2025/06/22/red-sox-takeaways-hunter-dobbins
 **Around Military Bases in the U.S., Unease Over What Comes Next**\
 `Service members, veterans and their families expressed differing views on the airstrikes but shared concern over the safety of American troops.`\
 https://nytimes.com/2025/06/22/world/middleeast/iran-reaction-military-bases-united-states.html
-
-**Astros re-sign Jon Singleton to minor-league deal: Source**\
-`Singleton will provide a left-handed bat within an otherwise depleted Astros farm system.`\
-https://nytimes.com/athletic/6444404/2025/06/22/astros-re-sign-jon-singleton-minor-league-deal/
 
