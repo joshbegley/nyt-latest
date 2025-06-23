@@ -1,3 +1,11 @@
+**Suns' trade of Kevin Durant begins what could be a difficult stretch in Phoenix**\
+`How the Suns got here is a lesson in roster construction and patience. While Durant was a model of consistency, the Suns never found rhythm.`\
+https://nytimes.com/athletic/6444009/2025/06/22/kevin-durant-trade-phoenix-suns-roster-future/
+
+**A Supposedly Good Thing We’ll Never Do Again**\
+`USAID was the world’s largest humanitarian donor. So what was all that money being spent on?`\
+https://nytimes.com/2025/06/22/podcasts/a-supposedly-good-thing-well-never-do-again-this-american-life-nyt-audio.html
+
 **Keegan Bradley grabs Travelers Championship title with late birdie**\
 `Bradley, now an eight-time winner on the PGA Tour, has a legitimate chance of rising into the top-6 in the U.S. Ryder Cup points standings.`\
 https://nytimes.com/athletic/6444295/2025/06/22/keegan-bradley-travelers-championship-tommy-fleetwood-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6444182/2025/06/22/astros-live-qa-submit-questions/
 **3 Dead in Central New York After Powerful Storm Lashes the Area**\
 `Three people, including 6-year-old sisters, were killed after trees fell on homes during severe weather that struck early on Sunday, officials said.`\
 https://nytimes.com/2025/06/22/nyregion/ny-storm-flood-deaths.html
-
-**After Kevin Durant trade domino, what's next for Rockets and Suns?**\
-`The Phoenix-Houston trade was a fair one on both sides, but are more moves on the way on both sides?`\
-https://nytimes.com/athletic/6443983/2025/06/22/kevin-durant-trade-rockets-suns-analysis-reaction/
-
-**Is the U.S. at War With Iran?**\
-`President Trump avoided asking Congress for permission before striking Iran, despite the Constitution saying only the legislature can declare war.`\
-https://nytimes.com/2025/06/22/us/politics/trump-strikes-war-iran.html
 
