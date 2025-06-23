@@ -6,7 +6,7 @@ https://nytimes.com/2025/06/23/briefing/iran-strikes-damascus-germany.html
 `Villa desperately need to sell this summer, so The Athletic argues the case for and against regarding some big names in Unai Emery's squad`\
 https://nytimes.com/athletic/6439738/2025/06/23/kamara-rogers-martinez-aston-villa-sales/
 
-**Mexico, USMNT showdown must wait until Concacaf Gold Cup final as both top group**\
+**Mexico, USMNT showdown must wait until Concacaf Gold Cup final**\
 `The USMNT will now face Costa Rica in the quarterfinals, following Sunday's action`\
 https://nytimes.com/athletic/6444621/2025/06/23/mexico-costa-rica-concacaf-gold-cup-usmnt/
 

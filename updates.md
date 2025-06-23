@@ -1,3 +1,7 @@
+**Mexico, USMNT showdown must wait until Concacaf Gold Cup final**\
+`The USMNT will now face Costa Rica in the quarterfinals, following Sunday's action`\
+https://nytimes.com/athletic/6444621/2025/06/23/mexico-costa-rica-concacaf-gold-cup-usmnt/
+
 **Monday Briefing**\
 `American strikes in Iran.`\
 https://nytimes.com/2025/06/23/briefing/iran-strikes-damascus-germany.html
