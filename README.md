@@ -1,3 +1,7 @@
+**James Lloydovich Patterson, 91, Dies; Soviet Poet and Symbol of Racial Unity**\
+`Years after being catapulted to national fame in the U.S.S.R. as a child actor, he wrote about ideals of racial harmony and international solidarity.`\
+https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
+
 **What we're hearing about Pac-12 expansion after it announced a TV deal with CBS**\
 `The revamped Pac-12 has seven football members for 2026 and needs an eighth as it finalizes its TV deals, including one with CBS.`\
 https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/23/books/review/world-book-titles.html
 **Lowetide: What should the Oilers do with Evander Kane?**\
 `There are reasons for the Oilers to trade Kane, but it isn't clear that it would be the right decision.`\
 https://nytimes.com/athletic/6442722/2025/06/23/edmonton-oilers-evander-kane-contract-trade/
-
-**Vera Rubin Observatory**\
-`A powerful new U.S.-funded telescope on a mountain in Chile is poised to transform the study of astronomy.`\
-https://nytimes.com/news-event/vera-rubin-telescope
 
