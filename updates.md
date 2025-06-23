@@ -1,3 +1,15 @@
+**Like Kylian Mbappe or Vinicius Jr, Xabi Alonso is one of Real Madrid's stars**\
+`There was more of a 'rock and roll' feel to Madrid's dramatic win over Pachuca, in which Alonso got to show off his managerial skills`\
+https://nytimes.com/athletic/6444371/2025/06/23/real-madrid-xabi-alonso-pachuca-club-world-cup/
+
+**Here are the latest developments.**\
+`By Yan Zhuang and Farnaz Fassihi`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/here-are-the-latest-developments
+
+**Live Updates: Fears Run High as Iran Weighs Response to U.S. Strikes**\
+`As Iran appears to be considering its options, its foreign minister was expected to meet with a key ally, President Vladimir V. Putin of Russia.`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news
+
 **Russian Attack on Kyiv Kills at Least 6, Ukraine Says**\
 `It was the latest in a series of deadly Russian strikes, which have intensified as cease-fire talks have largely stalled.`\
 https://nytimes.com/2025/06/23/world/europe/ukraine-russia-kyiv-attack.html

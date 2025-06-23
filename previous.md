@@ -1,3 +1,15 @@
+**Like Kylian Mbappe or Vinicius Jr, Xabi Alonso is one of Real Madrid's stars**\
+`There was more of a 'rock and roll' feel to Madrid's dramatic win over Pachuca, in which Alonso got to show off his managerial skills`\
+https://nytimes.com/athletic/6444371/2025/06/23/real-madrid-xabi-alonso-pachuca-club-world-cup/
+
+**Here are the latest developments.**\
+`By Yan Zhuang and Farnaz Fassihi`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/here-are-the-latest-developments
+
+**Live Updates: Fears Run High as Iran Weighs Response to U.S. Strikes**\
+`As Iran appears to be considering its options, its foreign minister was expected to meet with a key ally, President Vladimir V. Putin of Russia.`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news
+
 **Russian Attack on Kyiv Kills at Least 6, Ukraine Says**\
 `It was the latest in a series of deadly Russian strikes, which have intensified as cease-fire talks have largely stalled.`\
 https://nytimes.com/2025/06/23/world/europe/ukraine-russia-kyiv-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/23/nyregion/hochul-prison-policy.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/23/crosswords/spelling-bee-forum.html
-
-**Liam Delap interview: I really love the aggressive side of the sport but I can control my emotions when I need to**\
-`Liam Delap discusses consulting Cole Palmer before joining Chelsea, his aggressive style, playing in the No 9 shirt and England ambitions`\
-https://nytimes.com/athletic/6444471/2025/06/23/liam-delap-chelsea-interview/
-
-**Gundogan 'thinks' he will stay at Man City and has 'several years' at highest level**\
-`The Germany international appeared confident that he would see out the final year of his Man City contract.`\
-https://nytimes.com/athletic/6444828/2025/06/23/man-city-transfer-news-gundogan/
-
-**Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
-`Our ranking of all 32 Club World Cup teams, updated daily`\
-https://nytimes.com/athletic/6433032/2025/06/23/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 
