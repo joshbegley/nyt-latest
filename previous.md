@@ -1,3 +1,15 @@
+**Palace confirm arrival of PSV goalkeeper Benitez on free transfer**\
+`Benitez leaves PSV after three years at the club, during which time he made 134 appearances as first-choice goalkeeper.`\
+https://nytimes.com/athletic/6429518/2025/06/23/crystal-palace-transfers-walter-benitez/
+
+**2025 NBA mock draft: Why Ace Bailey is the mystery man of draft week**\
+`What wilI the Suns do after the Kevin Durant trade? Here's everything Sam Vecenie is hearing ahead of Wednesday's first round.`\
+https://nytimes.com/athletic/6434991/2025/06/23/nba-draft-2025-cooper-flagg-ace-bailey-dylan-harper/
+
+**Trevor Zegras traded from Anaheim Ducks to Philadelphia Flyers: Sources**\
+`Zegras had 12 goals and 20 assists in 57 games this season.`\
+https://nytimes.com/athletic/6445768/2025/06/23/zegras-trade-ducks-flyers/
+
 **Arnaldo Pomodoro, 98, Sculptor of Monumental Fractured Spheres, Dies**\
 `His bronze works — smooth-skinned orbs slashed to reveal complex cores — are in public places around the world, including outside the U.N. headquarters and in Vatican City.`\
 https://nytimes.com/2025/06/23/arts/arnaldo-pomodoro-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/23/world/europe/france-syringe-attacks-music-festiva
 **Leeds United sign Jaka Bijol from Udinese**\
 `The centre-back is United's second signing of the summer after their promotion to the Premier League.`\
 https://nytimes.com/athletic/6435631/2025/06/23/leeds-united-sign-jaka-bijol-from-udinese/
-
-**Supreme Court to Hear Rastafarian Prisoner’s Suit Over Shaved Dreadlocks**\
-`Damon Landor, whose faith requires him to let his hair grow long, said guards threw a court ruling in the trash before holding him down and shaving his head to the scalp.`\
-https://nytimes.com/2025/06/23/us/politics/supreme-court-rastafarian-prisoners-dreadlocks.html
-
-**Second Fed Official Indicates Support for Faster Rate Cuts**\
-`Comments from two officials, both appointed by President Trump, suggest a split among policymakers.`\
-https://nytimes.com/2025/06/23/business/fed-interest-rate-cuts.html
-
-**Firefighters Battle 3 Wildfires on Popular Greek Island**\
-`Three blazes broke out on Sunday on Chios, a popular Greek island for tourists, prompting evacuations and an investigation into potential arson as the cause of the fires.`\
-https://nytimes.com/video/world/europe/100000010244261/greece-wildfires.html
 
