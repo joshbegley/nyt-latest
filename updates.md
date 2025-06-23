@@ -1,3 +1,7 @@
+**Around Military Bases in the U.S., Unease Over What Comes Next**\
+`Service members, veterans and their families expressed differing views on the airstrikes but shared concern over the safety of American troops.`\
+https://nytimes.com/2025/06/22/world/middleeast/iran-reaction-military-bases-united-states.html
+
 **Astros re-sign Jon Singleton to minor-league deal: Source**\
 `Singleton will provide a left-handed bat within an otherwise depleted Astros farm system.`\
 https://nytimes.com/athletic/6444404/2025/06/22/astros-re-sign-jon-singleton-minor-league-deal/
