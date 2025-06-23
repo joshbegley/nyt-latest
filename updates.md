@@ -1,3 +1,7 @@
+**Reds DFA Jeimer Candelario halfway through $45-million contract**\
+`Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
+https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
+
 **NASCAR Pocono takeaways: Chase Briscoe's big relief, Kyle Larson's struggles and more**\
 `Now with big expectations at Joe Gibbs Racing, Chase Briscoe needed Sunday's win to ease the pressure. Plus, more on the Pocono race.`\
 https://nytimes.com/athletic/6445588/2025/06/23/nascar-pocono-takeaways-chase-briscoe-kyle-larson/
