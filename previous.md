@@ -1,3 +1,7 @@
+**Liverpool's Phillips having medical ahead of West Brom move**\
+`The defender spent last season on loan at Derby County, making 33 appearances.`\
+https://nytimes.com/athletic/6445151/2025/06/23/liverpool-transfers-nat-phillips-west-brom/
+
 **The U.N.’s nuclear watchdog says the war could lead to ‘unimaginable levels’ of destruction.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/the-uns-nuclear-watchdog-says-the-war-could-lead-to-unimaginable-levels-of-destruction
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6430318/2025/06/23/chicago-blackhawks-nhl-draft-cal
 **Which NHL teams need to upgrade at center? Ranking all 32 by current quality**\
 `Here’s how we’d rank each team’s center depth, from best to worst, just before free agency begins.`\
 https://nytimes.com/athletic/6438796/2025/06/23/nhl-teams-center-ranking-free-agency-offseason/
-
-**PWHL draft ranking 2025: Casey O’Brien, Haley Winn highlight the list**\
-`With no clear No. 1 pick, there's plenty of intrigue heading into the PWHL Draft.`\
-https://nytimes.com/athletic/6438525/2025/06/23/pwhl-draft-ranking-2025-obrien-winn-kaltounkova/
 

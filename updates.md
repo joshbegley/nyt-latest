@@ -1,3 +1,7 @@
+**Liverpool's Phillips having medical ahead of West Brom move**\
+`The defender spent last season on loan at Derby County, making 33 appearances.`\
+https://nytimes.com/athletic/6445151/2025/06/23/liverpool-transfers-nat-phillips-west-brom/
+
 **The U.N.’s nuclear watchdog says the war could lead to ‘unimaginable levels’ of destruction.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/the-uns-nuclear-watchdog-says-the-war-could-lead-to-unimaginable-levels-of-destruction
