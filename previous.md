@@ -1,40 +1,40 @@
-**Tyrese Haliburton was making noise in Game 7. Then injury 'sucked the soul' out of the Pacers**\
-`Basketball's brutal. Game 7s deal in extremes. Triumph or tragedy. Hallelujah or heartbreak. Haliburton’s fate came before the final horn.`\
-https://nytimes.com/athletic/6444733/2025/06/23/tyrese-haliburton-injury-game-7/
+**Did Kevin Durant's Suns departure leave Phoenix with enough for rebuild?**\
+`The Suns' return for Kevin Durant paled in comparison to the 2023 trade deadline, when they gave up four firsts. Was a better deal possible?`\
+https://nytimes.com/athletic/6444260/2025/06/23/kevin-durant-trade-rockets-suns-draft-nba/
 
-**Kerkez flying back to UK for Liverpool medical**\
-`The 21-year-old will fly in from Belgrade today, with it being likely that the deal will be announced on Tuesday.`\
-https://nytimes.com/athletic/6444920/2025/06/23/liverpool-transfers-milos-kerkez-medical/
+**To make ‘F1: The Movie’ real, Brad Pitt had to learn to race - from real racers**\
+`'F1: The Movie' aims to create the most authentic racing film. To achieve this, the acting stars had to learn the methods of real drivers`\
+https://nytimes.com/athletic/6444007/2025/06/23/brad-pitt-f1-movie-driving-coach/
 
-**The New York Times International Edition in Print for Tuesday, June 24, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/23/todays-new-york-times-international-edition
+**2025 NHL Draft player poll: Top prospects dish on most underrated, most difficult, NCAA**\
+`The results of the anonymous poll questions were sometimes revealing, sometimes insightful and candid throughout.`\
+https://nytimes.com/athletic/6390727/2025/06/23/2025-nhl-draft-prospects-player-poll-ncaa/
 
-**What Is the Strait of Hormuz, and Why Is It Important?**\
-`Iranian officials have threatened to mine the waterway, which is a key shipping route for oil and gas.`\
-https://nytimes.com/2025/06/23/world/middleeast/strait-hormuz-what-why-iran.html
+**Could Mets explore infield help at the deadline? It's not out of the question**\
+`New York always wants to allow room for its young players, but none of its less-accomplished infielders have run with the opportunity. `\
+https://nytimes.com/athletic/6444615/2025/06/23/new-york-mets-infield-conundrum/
 
-**Where Does Iran Go Now?**\
-`While foreign wars may expose autocratic fragility, they rarely create the conditions necessary for democratic change.`\
-https://nytimes.com/2025/06/23/opinion/iran-iranians-regime.html
+**The U.S. Bombed Iran. Now What?**\
+`The president’s decision to strike Iran is a high-stakes gamble — one that turns in part on whether Iran’s nuclear program has actually been destroyed.`\
+https://nytimes.com/2025/06/23/podcasts/the-daily/us-iran-israel-bomb.html
 
-**6 Trump Voters React to the U.S.’ Bombing of Nuclear Sites in Iran**\
-`In interviews, Trump supporters expressed a range of emotions — anger, wariness and avid support. But the dominant theme? Anxiety about what comes next.`\
-https://nytimes.com/2025/06/23/us/trump-voters-iran-reaction.html
+**A Minnesota basketball legend returns: What led Lindsay Whalen back to the Lynx sideline?**\
+`Whalen took a break from basketball, but her expertise could be vital in getting the Lynx back to the WNBA Finals.`\
+https://nytimes.com/athletic/6431260/2025/06/23/lindsay-whalen-minnesota-lynx-return-coach/
 
-**Iran’s Nuclear Dreams May Survive Even a Devastating American Blow**\
-`Through revolution and upheaval, the program has become intertwined with the country’s security and national identity.`\
-https://nytimes.com/2025/06/23/world/middleeast/iran-nuclear-program-us-strikes.html
+**Small-and-1: How Alex Caruso, Thunder won Game 7 — and how the NBA might copy it**\
+`En route to its first title, Oklahoma City consistently trotted out lineups that featured four guards and a lone big.`\
+https://nytimes.com/athletic/6444697/2025/06/23/thunder-nba-finals-strategy-alex-caruso-copycats/
 
-**The A.I. Race Is Splitting the World Into Haves and Have-Nots**\
-`As countries race to power artificial intelligence, a yawning gap is opening around the world.`\
-https://nytimes.com/interactive/2025/06/23/technology/ai-computing-global-divide.html
+**Inside the U.S. Strikes on Iran, and a Dangerous Heat Wave Spreads**\
+`Plus, Tesla’s new Robotaxi.`\
+https://nytimes.com/2025/06/23/podcasts/the-headlines/us-strikes-iran-heat-wave-robotaxi-tesla.html
 
-**Trump Goes to War. And These Are His Advisers?**\
-`There are slim odds the president is getting the best counsel possible about Iran.`\
-https://nytimes.com/2025/06/23/opinion/trump-iran-advisers.html
+**Wordle Review No. 1,466**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 24, 2025.`\
+https://nytimes.com/2025/06/23/crosswords/wordle-review-1466.html
 
-**How Bad Are Ticks This Year? Don’t Ask.**\
-`A bumper crop of acorns two years ago has led to the situation we face this summer: ticks galore.`\
-https://nytimes.com/2025/06/23/nyregion/ticks-summer-new-york.html
+**Connections Companion No. 744**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 24, 2025.`\
+https://nytimes.com/2025/06/23/crosswords/connections-companion-744.html
 
