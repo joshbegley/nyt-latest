@@ -1,3 +1,15 @@
+**Game 7 of Thunder-Pacers was most-watched NBA Finals game since 2019**\
+`The seven-game series finished with an average of 10.266 million viewers, down from the 11.3 million average for last year.`\
+https://nytimes.com/athletic/6446312/2025/06/23/thunder-pacers-game-7-ratings/
+
+**How Missile Defense Works (and Why It’s Hard)**\
+`Once a ballistic missile is fired into the air, a defender has only minutes to identify its precise trajectory and try to shoot it down. Even the world’s best defenses can’t always stop them.`\
+https://nytimes.com/interactive/2025/06/23/world/middleeast/us-qatar-iran-israel-missile-defense.html
+
+**The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
+`So much happened at Fanatics Fest that it was impossible to see everything, but these moments stood out the most`\
+https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
+
 **How Missile Defense Works (and Why It’s Hard)**\
 `summary`\
 https://nytimes.com/interactive/2025/06/23/world/middleeast/us-qatar-iran-israel-missile-defense.html
