@@ -1,3 +1,11 @@
+**Dodger Details: Shohei Ohtani's 2-way show, Freddie Freeman's struggles and more**\
+`Max Muncy's two-homer, seven-RBI outburst helped the Dodgers rally for a 13-7 victory over the Nationals on Sunday.`\
+https://nytimes.com/athletic/6444345/2025/06/22/los-angeles-dodgers-shohei-ohtani-max-muncy/
+
+**USMNT given battle, holds off Haiti to top Gold Cup group**\
+`The USMNT capped a perfect group stage, albeit in unimpressive fashion. Bigger tests await in the Gold Cup knockout rounds.`\
+https://nytimes.com/athletic/6444285/2025/06/22/usmnt-haiti-gold-cup-agyemang-tillman-highlights/
+
 **Shifting Views and Misdirection: How Trump Decided to Strike Iran**\
 `When Israel began its assault on Iran, President Trump kept his distance. But within days he was on a path that led to an extensive bombing mission aided by political and military ruses.`\
 https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
