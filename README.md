@@ -1,3 +1,7 @@
+**White House Faces Risk of Economic Fallout From Iran Strike**\
+`President Trump, aware of how high gas prices could affect his popularity, demanded on social media that the U.S. “KEEP OIL PRICES DOWN.”`\
+https://nytimes.com/2025/06/23/us/politics/trump-oil-prices-economic-fallout-iran-strike.html
+
 **Palace confirm arrival of PSV goalkeeper Benitez on free transfer**\
 `Benitez leaves PSV after three years at the club, during which time he made 134 appearances as first-choice goalkeeper.`\
 https://nytimes.com/athletic/6429518/2025/06/23/crystal-palace-transfers-walter-benitez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6445678/2025/06/23/lionel-messi-50-goals-inter-miam
 **Nearly 150 Report Being Jabbed With Needles at French Music Festival**\
 `France’s Interior Ministry reported that 145 people said they had been stabbed with needles at festival events across the country.`\
 https://nytimes.com/2025/06/23/world/europe/france-syringe-attacks-music-festival.html
-
-**Leeds United sign Jaka Bijol from Udinese**\
-`The centre-back is United's second signing of the summer after their promotion to the Premier League.`\
-https://nytimes.com/athletic/6435631/2025/06/23/leeds-united-sign-jaka-bijol-from-udinese/
 
