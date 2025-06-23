@@ -1,3 +1,7 @@
+**Euro 2025: Belgium team guide - a threatening set piece but exposed defensively**\
+`From players to watch to pedigree and much more, we set out what to expect from Belgium at the European Championship`\
+https://nytimes.com/athletic/6425533/2025/06/23/belgium-team-guide-euro-2025/
+
 **Monday Briefing**\
 `American strikes in Iran.`\
 https://nytimes.com/2025/06/23/briefing/iran-strikes-damascus-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438084/2025/06/23/extreme-heat-club-world-cup/
 **What Brazil's early success at the Club World Cup says of its status as a football power**\
 `The four Brazilian clubs all top their groups at the Club World Cup. Is this the end to the decades of lamentation?`\
 https://nytimes.com/athletic/6444353/2025/06/23/brazilian-club-world-cup/
-
-**Crystal Palace and Lyon in Europa League is a problem - but multi-club crackdown is too little too late**\
-`There will be sympathy if the FA Cup winners are denied Europe but, if anything, UEFA's rules on multi-club ownership do not go far enough`\
-https://nytimes.com/athletic/6440885/2025/06/23/crystal-palace-lyon-textor-uefa-europa/
 

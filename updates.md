@@ -1,3 +1,7 @@
+**Euro 2025: Belgium team guide - a threatening set piece but exposed defensively**\
+`From players to watch to pedigree and much more, we set out what to expect from Belgium at the European Championship`\
+https://nytimes.com/athletic/6425533/2025/06/23/belgium-team-guide-euro-2025/
+
 **Mexico, USMNT showdown must wait until Concacaf Gold Cup final**\
 `The USMNT will now face Costa Rica in the quarterfinals, following Sunday's action`\
 https://nytimes.com/athletic/6444621/2025/06/23/mexico-costa-rica-concacaf-gold-cup-usmnt/
