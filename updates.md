@@ -1,3 +1,7 @@
+**NHL trade grades: Ducks cut bait on Trevor Zegras, selling low to the Flyers**\
+`The Ducks got a fourth-liner and two non-first-round picks. If that was the best they could get for the ex-phenom, why bother trading him?`\
+https://nytimes.com/athletic/6445896/2025/06/23/trevor-zegras-flyers-ducks-trade-grades/
+
 **PWHL Vancouver names Brian Idalski first-ever head coach**\
 `PWHL Vancouver's inaugural season will begin this fall at Pacific Coliseum.`\
 https://nytimes.com/athletic/6445806/2025/06/23/pwhl-vancouver-coach-brian-idalski/
