@@ -1,3 +1,7 @@
+**Canada and E.U. Pull Together as America Pushes Them Away**\
+`The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
+https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html
+
 **Reds DFA Jeimer Candelario halfway through $45-million contract**\
 `Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
 https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6446131/2025/06/23/maria-sanchez-wave-tigres-transf
 **Bodies of 3 Hikers Who Jumped in Water Near Lake Tahoe Are Recovered**\
 `The three men had been hiking in Soda Springs, Calif., when they jumped into the water near Rattlesnake Falls, a remote and isolated area that made rescue difficult.`\
 https://nytimes.com/2025/06/23/us/missing-hikers-dead-rattlesnake-falls-california.html
-
-**The Danger of an Unrestrained President to the World**\
-`Trump’s unlawful strikes on Iran have laid bare the absence of any effective legal constraints on a U.S. president to use deadly force in the world.`\
-https://nytimes.com/2025/06/23/opinion/international-world/trump-iran-strikes.html
 

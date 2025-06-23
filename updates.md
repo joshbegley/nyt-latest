@@ -1,3 +1,7 @@
+**Canada and E.U. Pull Together as America Pushes Them Away**\
+`The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
+https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html
+
 **Reds DFA Jeimer Candelario halfway through $45-million contract**\
 `Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
 https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
