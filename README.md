@@ -1,3 +1,7 @@
+**Vera Rubin Observatory**\
+`A powerful new U.S.-funded telescope on a mountain in Chile is poised to transform the study of astronomy.`\
+https://nytimes.com/news-event/vera-rubin-telescope
+
 **Democrats to Protest Trump’s Takeover of Kennedy Center With Pride Event**\
 `“This is our way of reoccupying the Kennedy Center,” said Jeffrey Seller of “Hamilton,” who was asked to stage the invite-only concert hosted by five senators.`\
 https://nytimes.com/2025/06/23/arts/music/kennedy-center-pride-concert.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/drive-in-theaters-america
 **Travis Hunter signs 4-year, $46 million rookie deal with Jaguars: Sources**\
 `The Jaguars announced Hunter's signing twice on X — with one post calling Hunter a DB and another calling him a WR.`\
 https://nytimes.com/athletic/6445264/2025/06/23/travis-hunter-jaguars-contract-signing-bonus/
-
-**gws-jake-tapper-original-sin-biden-book**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/jake-tapper-original-sin-biden-book
 
