@@ -1,3 +1,11 @@
+**Supreme Court Lets Trump Deport Migrants to Countries to Which They Have No Connection**\
+`The ruling applies immediately to a group of men the government has sought to send to South Sudan.`\
+https://nytimes.com/2025/06/23/us/politics/supreme-court-south-sudan-migrants.html
+
+**Iran’s Retaliation Could Be Just the Beginning**\
+`Nicholas Kristof on why the U.S. may be headed into a “minefield.”`\
+https://nytimes.com/2025/06/23/opinion/iran-strikes-qatar.html
+
 **Game 7 of Thunder-Pacers was most-watched NBA Finals game since 2019**\
 `The seven-game series finished with an average of 10.266 million viewers, down from the 11.3 million average for last year.`\
 https://nytimes.com/athletic/6446312/2025/06/23/thunder-pacers-game-7-ratings/
