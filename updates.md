@@ -1,3 +1,11 @@
+**Russian Attack on Kyiv Kills at Least 6, Ukraine Says**\
+`It was the latest in a series of deadly Russian strikes, which have intensified as cease-fire talks have largely stalled.`\
+https://nytimes.com/2025/06/23/world/europe/ukraine-russia-kyiv-attack.html
+
+**The Last Survivors of the Emperor’s Army Tell Their Tales**\
+`As the 80th anniversary of the end of World War II approaches, few of Japan’s aging war veterans are left. When they go, they will take their stories with them.`\
+https://nytimes.com/slideshow/2025/06/23/world/asia/the-last-survivors-of-the-emperors-army-tell-their-tales.html
+
 **The Closing Arguments of the N.Y.C. Mayoral Candidates**\
 `Ahead of the June 24 primary, The New York Times analyzed the closing campaign speeches of the four leading Democrats running for mayor.`\
 https://nytimes.com/2025/06/23/nyregion/mayor-primary-speech-nyc.html
