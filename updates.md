@@ -1,3 +1,7 @@
+**6,000 Pounds of Sculpture Are Stolen, Somehow**\
+`Two massive works were heisted from a warehouse, then found a week later in a trailer, the authorities said.`\
+https://nytimes.com/2025/06/23/arts/sculptures-stolen-daniel-winn.html
+
 **Iran attacked a U.S. base in Qatar that typically houses 10,000 troops.**\
 `Qatari officials said its air defenses had intercepted the missiles that were fired at Al Udeid Air Base.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iran-attacked-a-us-base-in-qatar-that-typically-houses-10000-troops

@@ -1,3 +1,7 @@
+**6,000 Pounds of Sculpture Are Stolen, Somehow**\
+`Two massive works were heisted from a warehouse, then found a week later in a trailer, the authorities said.`\
+https://nytimes.com/2025/06/23/arts/sculptures-stolen-daniel-winn.html
+
 **Iran attacked a U.S. base in Qatar that typically houses 10,000 troops.**\
 `Qatari officials said its air defenses had intercepted the missiles that were fired at Al Udeid Air Base.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iran-attacked-a-us-base-in-qatar-that-typically-houses-10000-troops
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6445806/2025/06/23/pwhl-vancouver-coach-brian-idals
 **Why Factories Are Having Trouble Filling Nearly 400,000 Open Jobs**\
 `For every 20 positions, there’s one qualified candidate, says one manufacturing chief executive. Some of President Trump’s policies are likely to exacerbate the problem.`\
 https://nytimes.com/2025/06/23/business/factory-jobs-workers-trump.html
-
-**A Journey Across the New Syria**\
-`After decades of dictatorship and 13 years of civil war, can Syria put itself back together? Our journalists traveled the length of the country to explore its hopes and its challenges.`\
-https://nytimes.com/interactive/2025/06/23/world/middleeast/syria-photos-war-bashar-al-assad.html
 
