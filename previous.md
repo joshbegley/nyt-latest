@@ -1,3 +1,15 @@
+**As Sean Combs Took a Victory Lap, He Planned Sex Nights, Prosecutors Say**\
+`Questioning its final witness, the government laid out flight plans, escort prices, hotel reservations and a web of payments for sexual encounters in 2023.`\
+https://nytimes.com/2025/06/23/arts/music/sean-combs-diddy-trial-sex-night-expenses.html
+
+**Should we buy breakout catcher seasons from Hunter Goodman, Carson Kelly?**\
+`Andrea Arcadipane puts a cast of breakout catchers under her scouting microscope to determine validity, including Colorado's Hunter Goodman.`\
+https://nytimes.com/athletic/6445644/2025/06/23/mlb-catcher-hunter-goodman-carson-kelly/
+
+**Media Matters Sues F.T.C. Over Advertising Investigation**\
+`The liberal advocacy organization said in a lawsuit that the Federal Trade Commission’s inquiry into boycotts with other advertising groups was ‘retribution.’`\
+https://nytimes.com/2025/06/23/technology/media-matters-ftc-lawsuit.html
+
 **6,000 Pounds of Sculpture Are Stolen, Somehow**\
 `Two massive works were heisted from a warehouse, then found a week later in a trailer, the authorities said.`\
 https://nytimes.com/2025/06/23/arts/sculptures-stolen-daniel-winn.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/23/weather/what-is-the-heat-index-humidity.html
 **NHL trade grades: Ducks cut bait on Trevor Zegras, selling low to the Flyers**\
 `The Ducks got a fourth-liner and two non-first-round picks. If that was the best they could get for the ex-phenom, why bother trading him?`\
 https://nytimes.com/athletic/6445896/2025/06/23/trevor-zegras-flyers-ducks-trade-grades/
-
-**Pacers' Tyrese Haliburton tears Achilles, likely to miss next season: Sources**\
-`Haliburton sustained the injury in the first quarter of Indiana’s 103-91 loss in Game 7 of the NBA Finals.`\
-https://nytimes.com/athletic/6445557/2025/06/23/tyrese-haliburton-achilles-tear-nba-pacers/
-
-**PWHL Vancouver names Brian Idalski first-ever head coach**\
-`PWHL Vancouver's inaugural season will begin this fall at Pacific Coliseum.`\
-https://nytimes.com/athletic/6445806/2025/06/23/pwhl-vancouver-coach-brian-idalski/
-
-**Why Factories Are Having Trouble Filling Nearly 400,000 Open Jobs**\
-`For every 20 positions, there’s one qualified candidate, says one manufacturing chief executive. Some of President Trump’s policies are likely to exacerbate the problem.`\
-https://nytimes.com/2025/06/23/business/factory-jobs-workers-trump.html
 

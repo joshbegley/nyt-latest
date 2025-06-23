@@ -1,3 +1,15 @@
+**As Sean Combs Took a Victory Lap, He Planned Sex Nights, Prosecutors Say**\
+`Questioning its final witness, the government laid out flight plans, escort prices, hotel reservations and a web of payments for sexual encounters in 2023.`\
+https://nytimes.com/2025/06/23/arts/music/sean-combs-diddy-trial-sex-night-expenses.html
+
+**Should we buy breakout catcher seasons from Hunter Goodman, Carson Kelly?**\
+`Andrea Arcadipane puts a cast of breakout catchers under her scouting microscope to determine validity, including Colorado's Hunter Goodman.`\
+https://nytimes.com/athletic/6445644/2025/06/23/mlb-catcher-hunter-goodman-carson-kelly/
+
+**Media Matters Sues F.T.C. Over Advertising Investigation**\
+`The liberal advocacy organization said in a lawsuit that the Federal Trade Commission’s inquiry into boycotts with other advertising groups was ‘retribution.’`\
+https://nytimes.com/2025/06/23/technology/media-matters-ftc-lawsuit.html
+
 **6,000 Pounds of Sculpture Are Stolen, Somehow**\
 `Two massive works were heisted from a warehouse, then found a week later in a trailer, the authorities said.`\
 https://nytimes.com/2025/06/23/arts/sculptures-stolen-daniel-winn.html
