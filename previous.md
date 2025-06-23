@@ -1,3 +1,11 @@
+**Arnaldo Pomodoro, 98, Sculptor of Monumental Fractured Spheres, Dies**\
+`His bronze works — smooth-skinned orbs slashed to reveal complex cores — are in public places around the world, including outside the U.N. headquarters and in Vatican City.`\
+https://nytimes.com/2025/06/23/arts/arnaldo-pomodoro-dead.html
+
+**The Power of Protest: Then and Now**\
+`Readers reflect on differences between protest in the 1960s and the political resistance of today.`\
+https://nytimes.com/2025/06/23/opinion/protests-1960s-today.html
+
 **The Curtain Drops on Improv Theater for the New York Police**\
 `Police Commissioner Jessica Tisch said a staffing crisis kept her from letting officers participate in a Brooklyn theater group that began after the death of Eric Garner, who died after a police officer put him in a chokehold, in 2014.`\
 https://nytimes.com/2025/06/23/nyregion/nypd-acting-improv-class.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/23/business/fed-interest-rate-cuts.html
 **Firefighters Battle 3 Wildfires on Popular Greek Island**\
 `Three blazes broke out on Sunday on Chios, a popular Greek island for tourists, prompting evacuations and an investigation into potential arson as the cause of the fires.`\
 https://nytimes.com/video/world/europe/100000010244261/greece-wildfires.html
-
-**D. Wayne Lukas hospitalized, will not return to horse training**\
-`Lukas' assistant, Sebastian "Bas" Nicholl, will take over responsibility for the horses previously in Lukas' care.`\
-https://nytimes.com/athletic/6445589/2025/06/23/d-wayne-lukas-hospitalized-horse-training/
-
-**As Black New Yorkers Move Out, N.Y.C. Politics May Be Reshaped**\
-`Housing affordability and quality-of-life concerns are pushing longtime Black New Yorkers out of the city, underscoring Democrats’ challenges with their base ahead of the mayoral election.`\
-https://nytimes.com/2025/06/23/nyregion/nyc-mayor-black-voters.html
 

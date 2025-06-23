@@ -1,3 +1,7 @@
+**Trevor Zegras traded from Anaheim Ducks to Philadelphia Flyers: Source**\
+`Zegras had 12 goals and 20 assists in 57 games this season.`\
+https://nytimes.com/athletic/6445768/2025/06/23/zegras-trade-ducks-flyers/
+
 **Arnaldo Pomodoro, 98, Sculptor of Monumental Fractured Spheres, Dies**\
 `His bronze works — smooth-skinned orbs slashed to reveal complex cores — are in public places around the world, including outside the U.N. headquarters and in Vatican City.`\
 https://nytimes.com/2025/06/23/arts/arnaldo-pomodoro-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/politics/supreme-court-rastafarian-prisoners-d
 **Second Fed Official Indicates Support for Faster Rate Cuts**\
 `Comments from two officials, both appointed by President Trump, suggest a split among policymakers.`\
 https://nytimes.com/2025/06/23/business/fed-interest-rate-cuts.html
-
-**Firefighters Battle 3 Wildfires on Popular Greek Island**\
-`Three blazes broke out on Sunday on Chios, a popular Greek island for tourists, prompting evacuations and an investigation into potential arson as the cause of the fires.`\
-https://nytimes.com/video/world/europe/100000010244261/greece-wildfires.html
 

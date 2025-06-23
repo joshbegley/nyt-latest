@@ -1,3 +1,11 @@
+**Arnaldo Pomodoro, 98, Sculptor of Monumental Fractured Spheres, Dies**\
+`His bronze works — smooth-skinned orbs slashed to reveal complex cores — are in public places around the world, including outside the U.N. headquarters and in Vatican City.`\
+https://nytimes.com/2025/06/23/arts/arnaldo-pomodoro-dead.html
+
+**The Power of Protest: Then and Now**\
+`Readers reflect on differences between protest in the 1960s and the political resistance of today.`\
+https://nytimes.com/2025/06/23/opinion/protests-1960s-today.html
+
 **The Curtain Drops on Improv Theater for the New York Police**\
 `Police Commissioner Jessica Tisch said a staffing crisis kept her from letting officers participate in a Brooklyn theater group that began after the death of Eric Garner, who died after a police officer put him in a chokehold, in 2014.`\
 https://nytimes.com/2025/06/23/nyregion/nypd-acting-improv-class.html
