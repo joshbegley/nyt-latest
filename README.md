@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6445589/2025/06/23/d-wayne-lukas-hospitalized-horse
 `Housing affordability and quality-of-life concerns are pushing longtime Black New Yorkers out of the city, underscoring Democrats’ challenges with their base ahead of the mayoral election.`\
 https://nytimes.com/2025/06/23/nyregion/nyc-mayor-black-voters.html
 
-**This Powerful Telescope Quickly Found 1,200 New Asteroids**\
+**This Powerful Telescope Quickly Found 2,100 New Asteroids**\
 `The Vera C. Rubin Observatory is expected to find millions of unknown objects in our solar system, and perhaps even a mysterious Planet Nine.`\
 https://nytimes.com/2025/06/23/science/rubin-telescope-asteroids.html
 
@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6445607/2025/06/23/red-light-newsletter-nhl-draft-f
 
 **What to Know About Iran’s Notorious Evin Prison**\
 `Israel’s military struck entrances to the detention facility in Tehran, where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
-https://nytimes.com/2025/06/23/world/middleeast/iran-evin-prison-what-is.html
+https://nytimes.com/2025/06/23/world/middleeast/evin-prison-iran.html
 
 **Fantasy baseball cheat sheet: Fade David Peterson, Seth Lugo and more THE BAT X insights**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\

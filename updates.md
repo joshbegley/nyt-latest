@@ -1,3 +1,11 @@
+**Supreme Court to Hear Rastafarian Prisoner’s Suit Over Shaved Dreadlocks**\
+`Damon Landor, whose faith requires him to let his hair grow long, said guards threw a court ruling in the trash before holding him down and shaving his head to the scalp.`\
+https://nytimes.com/2025/06/23/us/politics/supreme-court-rastafarian-prisoners-dreadlocks.html
+
+**Second Fed Official Indicates Support for Faster Rate Cuts**\
+`Comments from two officials, both appointed by President Trump, suggest a split among policymakers.`\
+https://nytimes.com/2025/06/23/business/fed-interest-rate-cuts.html
+
 **Firefighters Battle 3 Wildfires on Popular Greek Island**\
 `Three blazes broke out on Sunday on Chios, a popular Greek island for tourists, prompting evacuations and an investigation into potential arson as the cause of the fires.`\
 https://nytimes.com/video/world/europe/100000010244261/greece-wildfires.html

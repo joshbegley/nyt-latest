@@ -1,3 +1,11 @@
+**Supreme Court to Hear Rastafarian Prisoner’s Suit Over Shaved Dreadlocks**\
+`Damon Landor, whose faith requires him to let his hair grow long, said guards threw a court ruling in the trash before holding him down and shaving his head to the scalp.`\
+https://nytimes.com/2025/06/23/us/politics/supreme-court-rastafarian-prisoners-dreadlocks.html
+
+**Second Fed Official Indicates Support for Faster Rate Cuts**\
+`Comments from two officials, both appointed by President Trump, suggest a split among policymakers.`\
+https://nytimes.com/2025/06/23/business/fed-interest-rate-cuts.html
+
 **Firefighters Battle 3 Wildfires on Popular Greek Island**\
 `Three blazes broke out on Sunday on Chios, a popular Greek island for tourists, prompting evacuations and an investigation into potential arson as the cause of the fires.`\
 https://nytimes.com/video/world/europe/100000010244261/greece-wildfires.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6445273/2025/06/23/fantasy-baseball-the-bat-x-peter
 **Liberty Media's $4.2bn MotoGP deal finally gets European Commission approval**\
 `Formula One's commercial rights have been owned by Liberty since 2017.`\
 https://nytimes.com/athletic/6445608/2025/06/23/motogp-liberty-media-f1/
-
-**Group That Vandalized Trump Golf Course Faces U.K. Ban as Terrorist**\
-`The British government announced plans to proscribe the group, Palestine Action, after members broke into a military air base.`\
-https://nytimes.com/2025/06/23/world/europe/palestine-action-uk-government-ban.html
-
-**The Bounce: Now that the Thunder are NBA champions, will parity across the league soon cease?**\
-`After a memorable seven-game NBA Finals, this Thunder team is young and capable of bucking Silver’s push toward parity`\
-https://nytimes.com/athletic/6445197/2025/06/23/thunder-shai-gilgeous-alexander-nba-finals-mvp-parity-the-bounce/
 
