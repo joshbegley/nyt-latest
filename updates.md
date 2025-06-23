@@ -1,3 +1,11 @@
+**Putin Condemns Strikes on Iran but Stops Short of Offering Concrete Support**\
+`President Vladimir V. Putin met with Iran’s foreign minister on Monday, but did not explicitly call out Israel or the United States for their strikes on Russia’s longtime ally.`\
+https://nytimes.com/2025/06/23/world/middleeast/putin-iran-araghchi.html
+
+**Abbott Vetoes Ban on Hemp Intoxicants in Texas**\
+`The governor of Texas blocked what would have been one of the nation’s strictest bans on hemp products, and directed legislators to take up regulation of hemp in a special session.`\
+https://nytimes.com/2025/06/23/us/texas-bans-hemp-abbott-no-veto.html
+
 **All the FIFA Club World Cup permutations as final round of group games begins**\
 `As the 32 sides at the tournament prepare for their third and final group game here's who can go through to the knockouts, and how`\
 https://nytimes.com/athletic/6443102/2025/06/23/club-world-cup-group-permutations/
