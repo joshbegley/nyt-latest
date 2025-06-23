@@ -1,3 +1,7 @@
+**Immigrant Whom a Judge Is Accused of Aiding Agrees to a Plea Deal**\
+`Federal prosecutors say Judge Hannah C. Dugan helped the man evade immigration agents who were waiting in a Milwaukee courthouse to arrest him.`\
+https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
+
 **Canada and E.U. Pull Together as America Pushes Them Away**\
 `The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
 https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html

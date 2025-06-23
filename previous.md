@@ -1,3 +1,7 @@
+**Immigrant Whom a Judge Is Accused of Aiding Agrees to a Plea Deal**\
+`Federal prosecutors say Judge Hannah C. Dugan helped the man evade immigration agents who were waiting in a Milwaukee courthouse to arrest him.`\
+https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
+
 **Canada and E.U. Pull Together as America Pushes Them Away**\
 `The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
 https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/insider/new-york-mayor.html
 **San Diego Wave transfer María Sánchez to Tigres UANL**\
 `Across her 40 appearances with the Wave, Sánchez tallied nine goals and seven assists.`\
 https://nytimes.com/athletic/6446131/2025/06/23/maria-sanchez-wave-tigres-transfer/
-
-**Bodies of 3 Hikers Who Jumped in Water Near Lake Tahoe Are Recovered**\
-`The three men had been hiking in Soda Springs, Calif., when they jumped into the water near Rattlesnake Falls, a remote and isolated area that made rescue difficult.`\
-https://nytimes.com/2025/06/23/us/missing-hikers-dead-rattlesnake-falls-california.html
 
