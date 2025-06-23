@@ -1,3 +1,23 @@
+**The U.N.’s nuclear watchdog says the war could lead to ‘unimaginable levels’ of destruction.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/the-uns-nuclear-watchdog-says-the-war-could-lead-to-unimaginable-levels-of-destruction
+
+**Michigan fans: How do you feel about the Wolverines in 2025? Take our Michigan survey**\
+`Our annual Michigan fan survey is here. How do you feel about the Wolverines entering Sherrone Moore's second season as coach?`\
+https://nytimes.com/athletic/6440495/2025/06/23/michigan-wolverines-fan-survey-2025/
+
+**Trump: Don’t Delete the History That Makes Us American**\
+`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Peter Philpott, age 16.`\
+https://nytimes.com/2025/06/23/learning/trump-dont-delete-the-history-that-makes-us-american.html
+
+**8 Seconds**\
+`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Emma Hua, age 16.`\
+https://nytimes.com/2025/06/23/learning/8-seconds.html
+
+**Word of the Day: ornithologist**\
+`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/23/learning/word-of-the-day-ornithologist.html
+
 **Compass Sues to Stop ‘Zillow Ban’**\
 `Compass, the real estate brokerage, claims that Zillow, the website that has 227 million unique visitors a month, has conspired to maintain a monopoly over digital home listings.`\
 https://nytimes.com/2025/06/23/realestate/compass-zillow-lawsuit.html
