@@ -1,3 +1,15 @@
+**All the FIFA Club World Cup permutations as final round of group games begin**\
+`As the 32 sides at the tournament prepare for their third and final group game here's who can go through to the knockouts, and how`\
+https://nytimes.com/athletic/6443102/2025/06/23/club-world-cup-group-permutations/
+
+**Claims of Potential Rights Violations Further Strain E.U.-Israeli Ties**\
+`A review by the bloc found actions in Gaza may have breached obligations under the treaty that governs their relations. Israel called the report “a complete moral and methodological failure.”`\
+https://nytimes.com/2025/06/23/world/europe/eu-israel-human-rights-gaza.html
+
+**The China Wild Card**\
+`Beijing is one of Tehran’s most important economic partners. But experts question how much China will help Iran if it retaliates against the United States.`\
+https://nytimes.com/2025/06/23/business/dealbook/china-iran-airstrikes.html
+
 **U.S. Strikes on Iran Spark Protests**\
 `After the U.S. bombed Iranian nuclear sites, protests sprung up around the world. Some supported Trump’s actions while others expressed dismay about America’s involvement in the conflict.`\
 https://nytimes.com/video/us/politics/100000010244037/protests-us-iran-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6440433/2025/06/23/maple-leafs-offseason-depth-char
 **SGA, Tyrese Haliburton saw a boost to their legacies this spring. They weren't alone**\
 `Are we viewing anyone differently now compared to two months ago? And why? Let's explore.`\
 https://nytimes.com/athletic/6416473/2025/06/23/shai-gilgeous-alexander-tyrese-haliburton-nba-playoffs-legacies/
-
-**Liverpool's Phillips having medical ahead of West Brom move**\
-`The defender spent last season on loan at Derby County, making 33 appearances.`\
-https://nytimes.com/athletic/6445151/2025/06/23/liverpool-transfers-nat-phillips-west-brom/
-
-**The U.N.’s nuclear watchdog says the war could lead to ‘unimaginable levels’ of destruction.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/the-uns-nuclear-watchdog-says-the-war-could-lead-to-unimaginable-levels-of-destruction
-
-**Michigan fans: How do you feel about the Wolverines in 2025? Take our Michigan survey**\
-`Our annual Michigan fan survey is here. How do you feel about the Wolverines entering Sherrone Moore's second season as coach?`\
-https://nytimes.com/athletic/6440495/2025/06/23/michigan-wolverines-fan-survey-2025/
 

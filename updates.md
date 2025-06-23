@@ -1,3 +1,15 @@
+**All the FIFA Club World Cup permutations as final round of group games begin**\
+`As the 32 sides at the tournament prepare for their third and final group game here's who can go through to the knockouts, and how`\
+https://nytimes.com/athletic/6443102/2025/06/23/club-world-cup-group-permutations/
+
+**Claims of Potential Rights Violations Further Strain E.U.-Israeli Ties**\
+`A review by the bloc found actions in Gaza may have breached obligations under the treaty that governs their relations. Israel called the report “a complete moral and methodological failure.”`\
+https://nytimes.com/2025/06/23/world/europe/eu-israel-human-rights-gaza.html
+
+**The China Wild Card**\
+`Beijing is one of Tehran’s most important economic partners. But experts question how much China will help Iran if it retaliates against the United States.`\
+https://nytimes.com/2025/06/23/business/dealbook/china-iran-airstrikes.html
+
 **U.S. Strikes on Iran Spark Protests**\
 `After the U.S. bombed Iranian nuclear sites, protests sprung up around the world. Some supported Trump’s actions while others expressed dismay about America’s involvement in the conflict.`\
 https://nytimes.com/video/us/politics/100000010244037/protests-us-iran-attack.html
