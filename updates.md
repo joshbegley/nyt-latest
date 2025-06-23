@@ -1,3 +1,7 @@
+**White House Faces Risk of Economic Fallout From Iran Strike**\
+`President Trump, aware of how high gas prices could affect his popularity, demanded on social media that the U.S. “KEEP OIL PRICES DOWN.”`\
+https://nytimes.com/2025/06/23/us/politics/trump-oil-prices-economic-fallout-iran-strike.html
+
 **Palace confirm arrival of PSV goalkeeper Benitez on free transfer**\
 `Benitez leaves PSV after three years at the club, during which time he made 134 appearances as first-choice goalkeeper.`\
 https://nytimes.com/athletic/6429518/2025/06/23/crystal-palace-transfers-walter-benitez/
