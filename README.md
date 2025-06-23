@@ -1,3 +1,11 @@
+**San Diego Wave transfer María Sánchez to Tigres UANL**\
+`Across her 40 appearances with the Wave, Sánchez tallied nine goals and seven assists.`\
+https://nytimes.com/athletic/6446131/2025/06/23/maria-sanchez-wave-tigres-transfer/
+
+**Bodies of 3 Hikers Who Jumped in Water Near Lake Tahoe Are Recovered**\
+`The three men had been hiking in Soda Springs, Calif., when they jumped into the water near Rattlesnake Falls, a remote and isolated area that made rescue difficult.`\
+https://nytimes.com/2025/06/23/us/missing-hikers-dead-rattlesnake-falls-california.html
+
 **The Danger of an Unrestrained President to the World**\
 `Trump’s unlawful strikes on Iran have laid bare the absence of any effective legal constraints on a U.S. president to use deadly force in the world.`\
 https://nytimes.com/2025/06/23/opinion/international-world/trump-iran-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6446037/2025/06/23/rico-lewis-manchester-city-club-
 **As Sean Combs Took a Victory Lap, He Planned Sex Nights, Prosecutors Say**\
 `Questioning its final witness, the government laid out flight plans, escort prices, hotel reservations and a web of payments for sexual encounters in 2023.`\
 https://nytimes.com/2025/06/23/arts/music/sean-combs-diddy-trial-sex-night-expenses.html
-
-**Should we buy breakout catcher seasons from Hunter Goodman, Carson Kelly?**\
-`Andrea Arcadipane puts a cast of breakout catchers under her scouting microscope to determine validity, including Colorado's Hunter Goodman.`\
-https://nytimes.com/athletic/6445644/2025/06/23/mlb-catcher-hunter-goodman-carson-kelly/
-
-**Media Matters Sues F.T.C. Over Advertising Investigation**\
-`The liberal advocacy organization said in a lawsuit that the Federal Trade Commission’s inquiry into boycotts with other advertising groups was “retribution.”`\
-https://nytimes.com/2025/06/23/technology/media-matters-ftc-lawsuit.html
 
