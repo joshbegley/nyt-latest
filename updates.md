@@ -1,3 +1,7 @@
+**Zegras trade sets up intriguing offseason for Ducks, who have a win-now mandate**\
+`Will the Ducks, with ample cap space, be in the Mitch Marner sweepstakes? Or is a big trade more likely?`\
+https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
+
 **PSG survives Club World Cup's toughest group and chases double triumph**\
 `The Champions League winners are through to the knockout stage and looking dangerous.`\
 https://nytimes.com/athletic/6446657/2025/06/23/psg-club-world-cup-champions-league-seattle-sounders/
