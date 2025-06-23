@@ -1,3 +1,7 @@
+**G.O.P. Can’t Include Limits on Trump Lawsuits in Megabill, Senate Official Rules**\
+`The Senate parliamentarian rejected a measure in Republicans’ domestic policy bill that could limit lawsuits seeking to block presidential orders.`\
+https://nytimes.com/2025/06/22/us/politics/republicans-trump-lawsuits-senate-parliamentarian.html
+
 **Manchester City 6 Al Ain 0 - How good is Ait-Nouri? Will Guardiola avoid Real Madrid?**\
 `Analysis of Manchester City's victory of Al Ain`\
 https://nytimes.com/athletic/6431485/2025/06/22/manchester-city-al-ain-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/22/world/middleeast/iran-reaction-military-bases-uni
 **Astros re-sign Jon Singleton to minor-league deal: Source**\
 `Singleton will provide a left-handed bat within an otherwise depleted Astros farm system.`\
 https://nytimes.com/athletic/6444404/2025/06/22/astros-re-sign-jon-singleton-minor-league-deal/
-
-**Dodger Details: Shohei Ohtani's 2-way show, Freddie Freeman's struggles and more**\
-`Max Muncy's two-homer, seven-RBI outburst helped the Dodgers rally for a 13-7 victory over the Nationals on Sunday.`\
-https://nytimes.com/athletic/6444345/2025/06/22/los-angeles-dodgers-shohei-ohtani-max-muncy/
 

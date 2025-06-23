@@ -1,3 +1,7 @@
+**G.O.P. Can’t Include Limits on Trump Lawsuits in Megabill, Senate Official Rules**\
+`The Senate parliamentarian rejected a measure in Republicans’ domestic policy bill that could limit lawsuits seeking to block presidential orders.`\
+https://nytimes.com/2025/06/22/us/politics/republicans-trump-lawsuits-senate-parliamentarian.html
+
 **Manchester City 6 Al Ain 0 - How good is Ait-Nouri? Will Guardiola avoid Real Madrid?**\
 `Analysis of Manchester City's victory of Al Ain`\
 https://nytimes.com/athletic/6431485/2025/06/22/manchester-city-al-ain-highlights/
