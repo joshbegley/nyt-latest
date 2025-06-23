@@ -1,3 +1,11 @@
+**Elizabeth Street Garden Saved as Adams Kills Plan for Housing on Site**\
+`Randy Mastro, the first deputy mayor, called the deal to preserve the Manhattan garden a “win-win.” Backers of a longtime plan to build housing for older New Yorkers were livid.`\
+https://nytimes.com/2025/06/23/nyregion/elizabeth-street-garden-affordable-housing.html
+
+**A Bustling New York Mayoral Race Reaches a Pivotal Moment**\
+`The New York Times’s City Hall bureau chief preps us for the Democratic primary.`\
+https://nytimes.com/2025/06/23/insider/new-york-mayor.html
+
 **San Diego Wave transfer María Sánchez to Tigres UANL**\
 `Across her 40 appearances with the Wave, Sánchez tallied nine goals and seven assists.`\
 https://nytimes.com/athletic/6446131/2025/06/23/maria-sanchez-wave-tigres-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/23/us/fbi-retaliation-iran-bombing-nuclear-sites.htm
 **Ford Will Keep Battery Factory Even if Republicans Ax Tax Break**\
 `Ford Motor said it would open a new plant in Michigan that could become ineligible for federal incentives under a policy bill championed by President Trump and passed by the House.`\
 https://nytimes.com/2025/06/23/business/ford-battery-factory-electric-vehicles.html
-
-**Man City's Lewis handed three-game Club World Cup ban**\
-`The 20-year-old was show a straight red card in City’s opening win over Wydad which saw him miss Sunday’s 6-0 victory against Al Ain.`\
-https://nytimes.com/athletic/6446037/2025/06/23/rico-lewis-manchester-city-club-world-cup/
-
-**As Sean Combs Took a Victory Lap, He Planned Sex Nights, Prosecutors Say**\
-`Questioning its final witness, the government laid out flight plans, escort prices, hotel reservations and a web of payments for sexual encounters in 2023.`\
-https://nytimes.com/2025/06/23/arts/music/sean-combs-diddy-trial-sex-night-expenses.html
 
