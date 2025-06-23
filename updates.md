@@ -1,3 +1,7 @@
+**What to expect from Diego Coppola, Brighton's new centre-back from Serie A**\
+`Brighton have brought in a 21-year-old full Italy international with physical presence and adaptability - just what Hurzeler was after`\
+https://nytimes.com/athletic/6431506/2025/06/23/diego-coppola-brighton-transfer-analysis/
+
 **Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/23/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
