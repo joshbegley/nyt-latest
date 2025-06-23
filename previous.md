@@ -1,5 +1,9 @@
+**The NHL's busy season is here, and we've got oddly specific predictions**\
+`Let’s all grab the popcorn bags and see where this goes.`\
+https://nytimes.com/athletic/6445607/2025/06/23/red-light-newsletter-nhl-draft-free-agency/
+
 **What to Know About Iran’s Notorious Evin Prison**\
-`Israel’s military struck entrances to the detention facility in Tehran where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
+`Israel’s military struck entrances to the detention facility in Tehran, where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
 https://nytimes.com/2025/06/23/world/middleeast/iran-evin-prison-what-is.html
 
 **Fantasy baseball cheat sheet: Fade David Peterson, Seth Lugo and more THE BAT X insights**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/dining/one-pan-zucchini-pesto-orzo-is-supremely-s
 **What I'm hearing about Penguins' NHL Draft plan, trades, Bryan Rust, Rickard Rakell**\
 `Which teams are potential trade partners? Will the Peguins trade Rust and Rakell? Here's what I know.`\
 https://nytimes.com/athletic/6443910/2025/06/23/penguins-nhl-draft-trades-free-agency/
-
-**Telfar’s Joyful, Shoppable Declaration of Independence**\
-`The designer celebrated 20 years of rewriting fashion’s rules.`\
-https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
 

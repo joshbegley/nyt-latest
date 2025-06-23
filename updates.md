@@ -1,3 +1,11 @@
+**The NHL's busy season is here, and we've got oddly specific predictions**\
+`Let’s all grab the popcorn bags and see where this goes.`\
+https://nytimes.com/athletic/6445607/2025/06/23/red-light-newsletter-nhl-draft-free-agency/
+
+**What to Know About Iran’s Notorious Evin Prison**\
+`Israel’s military struck entrances to the detention facility in Tehran, where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-evin-prison-what-is.html
+
 **What to Know About Iran’s Notorious Evin Prison**\
 `Israel’s military struck entrances to the detention facility in Tehran where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
 https://nytimes.com/2025/06/23/world/middleeast/iran-evin-prison-what-is.html
