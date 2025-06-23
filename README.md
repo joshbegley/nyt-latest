@@ -1,3 +1,7 @@
+**Reds DFA Jeimer Candelario halfway through $45-million contract**\
+`Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
+https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
+
 **NASCAR Pocono takeaways: Chase Briscoe's big relief, Kyle Larson's struggles and more**\
 `Now with big expectations at Joe Gibbs Racing, Chase Briscoe needed Sunday's win to ease the pressure. Plus, more on the Pocono race.`\
 https://nytimes.com/athletic/6445588/2025/06/23/nascar-pocono-takeaways-chase-briscoe-kyle-larson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/missing-hikers-dead-rattlesnake-falls-californ
 **The Danger of an Unrestrained President to the World**\
 `Trump’s unlawful strikes on Iran have laid bare the absence of any effective legal constraints on a U.S. president to use deadly force in the world.`\
 https://nytimes.com/2025/06/23/opinion/international-world/trump-iran-strikes.html
-
-**Chelsea training 'impossible' in extreme heat ahead of Esperance match - Maresca**\
-`An extreme heat warning has been issued with the public warned to avoid strenuous activities outside ahead of the final CWC group game.`\
-https://nytimes.com/athletic/6446125/2025/06/23/chelsea-esperance-club-world-cup/
 
