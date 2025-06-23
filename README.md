@@ -1,3 +1,11 @@
+**2026 NBA champion odds: Thunder open as favorites to repeat ahead of shuffled contenders**\
+`The Thunder just won their first NBA title and are the clear favorites to win it again next year. Who are the top challengers?`\
+https://nytimes.com/athletic/6444389/2025/06/22/2026-nba-champion-odds-thunder-knicks-rockets/
+
+**Quote of the Day: Grandparents? Maybe. But You Can Find Them in da Club.**\
+`Quotation of the Day for Monday, June 23, 2025.`\
+https://nytimes.com/2025/06/22/pageoneplus/quote-of-the-day-grandparents-maybe-but-you-can-find-them-in-da-club.html
+
 **Here Is All the Science at Risk in Trump’s Clash With Harvard**\
 `More than 900 research grants worth $2.6 billion are in jeopardy. So is the 80-year-old model of American science.`\
 https://nytimes.com/interactive/2025/06/22/upshot/harvard-funding-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/22/us/politics/abrego-garcia-bail-smuggling-charges.
 **Trump’s Risky Gamble on Attacking Iran**\
 `With his strikes on Iran, President Trump is betting that the United States can repel any retaliation, and that the U.`\
 https://nytimes.com/video/us/politics/100000010243288/trumps-risky-gamble-on-attacking-iran.html
-
-**Red Sox takeaways: Sloppy defense returns in wasted opportunity; Hunter Dobbins to IL**\
-`The sloppy play that has characterized much of the season for the Red Sox had dissipated recently, but reared its head again Sunday.`\
-https://nytimes.com/athletic/6444357/2025/06/22/red-sox-takeaways-hunter-dobbins-il/
-
-**Around Military Bases in the U.S., Unease Over What Comes Next**\
-`Service members, veterans and their families expressed differing views on the airstrikes but shared concern over the safety of American troops.`\
-https://nytimes.com/2025/06/22/world/middleeast/iran-reaction-military-bases-united-states.html
 
