@@ -1,3 +1,7 @@
+**Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/23/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
 **The New York Times in Print for Monday, June 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/23/todays-new-york-times
