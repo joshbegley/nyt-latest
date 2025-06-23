@@ -1,3 +1,15 @@
+**The Israeli military escalated attacks on Tehran.**\
+`The latest barrage hit a notorious prison in Iran and a building near a humanitarian aid facility.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/the-israeli-military-escalated-attacks-on-tehran
+
+**Iran Strikes Inflame War Powers Debate in Congress, Dividing Both Parties**\
+`Speaker Mike Johnson signaled he was not inclined to allow a vote on whether to authorize military strikes in Iran, while leading Democrats demanded a briefing and said the president had overstepped his power.`\
+https://nytimes.com/2025/06/23/us/politics/us-strikes-iran-warpowers-congress-debate.html
+
+**Iran Retaliates by Firing Missiles at U.S. Base in Qatar**\
+`Iran targeted the Al Udeid Air Base, the largest military installation in the Middle East. Qatar said its air defenses had intercepted the missiles, and the U.S. Defense Department reported no injuries.`\
+https://nytimes.com/video/world/middleeast/100000010245481/iran-fires-missiles-american-qatar-base.html
+
 **Iran’s Weak Attack Is an Offramp. Trump Should Take It.**\
 `The threat of war may propel both sides to work more earnestly to get back to the negotiating table.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
@@ -6,7 +18,7 @@ https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
 `A new poll shows the New York City mayor’s race tightening in its final days. Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are scrambling for every last vote.`\
 https://nytimes.com/2025/06/23/nyregion/mayor-primary-mamdani-cuomo.html
 
-**Fernando Tatis, Jr. sues Big League Advance Fund for exploitative business practices**\
+**Fernando Tatis Jr. sues Big League Advance Fund for exploitative business practices**\
 `Tatis is suing Big League Advance Fund, alleging they have "for years run an unlicensed lending business that evades legal oversight."`\
 https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-advance-fund-lawsuit/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6435214/2025/06/23/seattle-sounders-0-psg-2-the-bri
 **Sketched Out: An Illustrator Confronts His Fears About A.I. Art**\
 `The advent of A.I. has shocked me into questioning my relationship with art. Will humans still be able to draw for a living?`\
 https://nytimes.com/interactive/2025/06/23/magazine/ai-art-artists-illustrator.html
-
-**Blues free agency plans and concerns, plus contract updates, takeaways, more**\
-`The start of NHL free agency is only a week away, but the Blues GM is already tapping the brakes on a possible spending spree.`\
-https://nytimes.com/athletic/6445843/2025/06/23/blues-free-agency-draft-doug-armstrong/
-
-**Florida to Build ‘Alligator Alcatraz’ Detention Center for Migrants in Everglades**\
-`Immigrant advocates said the move creates a whole new form of detention outside the scope of the federal government.`\
-https://nytimes.com/2025/06/23/us/politics/florida-alligator-alcatraz-migrant-detention-center.html
-
-**Tuesday Briefing: Iran Struck a U.S. Base in Qatar**\
-`Plus, the 100 best movies of the 21st century.`\
-https://nytimes.com/2025/06/23/briefing/iran-missile-us-qatar-gaza-israel.html
 

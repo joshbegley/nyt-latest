@@ -1,3 +1,19 @@
+**The Israeli military escalated attacks on Tehran.**\
+`The latest barrage hit a notorious prison in Iran and a building near a humanitarian aid facility.`\
+https://nytimes.com/live/2025/world/israel-iran-maps-tracking/the-israeli-military-escalated-attacks-on-tehran
+
+**Iran Strikes Inflame War Powers Debate in Congress, Dividing Both Parties**\
+`Speaker Mike Johnson signaled he was not inclined to allow a vote on whether to authorize military strikes in Iran, while leading Democrats demanded a briefing and said the president had overstepped his power.`\
+https://nytimes.com/2025/06/23/us/politics/us-strikes-iran-warpowers-congress-debate.html
+
+**Iran Retaliates by Firing Missiles at U.S. Base in Qatar**\
+`Iran targeted the Al Udeid Air Base, the largest military installation in the Middle East. Qatar said its air defenses had intercepted the missiles, and the U.S. Defense Department reported no injuries.`\
+https://nytimes.com/video/world/middleeast/100000010245481/iran-fires-missiles-american-qatar-base.html
+
+**Fernando Tatis Jr. sues Big League Advance Fund for exploitative business practices**\
+`Tatis is suing Big League Advance Fund, alleging they have "for years run an unlicensed lending business that evades legal oversight."`\
+https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-advance-fund-lawsuit/
+
 **Iran’s Weak Attack Is an Offramp. Trump Should Take It.**\
 `The threat of war may propel both sides to work more earnestly to get back to the negotiating table.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
