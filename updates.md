@@ -1,3 +1,15 @@
+**With Tyler Fitzgerald demoted, Casey Schmitt looks like the Giants everyday second baseman**\
+`Schmitt's tools are finally being enhanced by a better approach at the plate, while Fitzgerald's offense had taken a big step back.`\
+https://nytimes.com/athletic/6446170/2025/06/23/sf-giants-second-base-casey-schmitt-tyler-fitzgerald/
+
+**Iran Fired Missiles at a U.S. Base**\
+`Also, a heat wave grips the eastern U.S. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/23/briefing/iran-us-base-heat-wave.html
+
+**Nationwide Arena owner plans $400 million in upgrades to Blue Jackets' 25-year-old home**\
+`Per WBNS-TV in Columbus, construction will be spread out over a four- or five-year span.`\
+https://nytimes.com/athletic/6446457/2025/06/23/nationwide-arena-upgrades-blue-jackets/
+
 **The Israeli military escalated attacks on Tehran.**\
 `The latest barrage hit a notorious prison in Iran and a building near a humanitarian aid facility.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/the-israeli-military-escalated-attacks-on-tehran
