@@ -1,3 +1,7 @@
+**Wrexham forward Paul Mullin joins Wigan on loan**\
+`Mullin leaves the Welsh club, now in the Championship, after three consecutive promotions and 110 goals in 172 matches.`\
+https://nytimes.com/athletic/6445972/2025/06/23/wrexham-transfers-paul-mullin-wigan/
+
 **The Windup: All of baseball’s weekend run-ins**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6444663/2025/06/23/cal-raleigh-home-runs-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/travel/travel-advisory-us-citizens-iran-israel.ht
 **White House Faces Risk of Economic Fallout From Iran Strike**\
 `President Trump, aware of how high gas prices could affect his popularity, demanded on social media that the U.S. “KEEP OIL PRICES DOWN.”`\
 https://nytimes.com/2025/06/23/us/politics/trump-oil-prices-economic-fallout-iran-strike.html
-
-**Palace confirm arrival of PSV goalkeeper Benitez on free transfer**\
-`Benitez leaves PSV after three years at the club, during which time he made 134 appearances as first-choice goalkeeper.`\
-https://nytimes.com/athletic/6429518/2025/06/23/crystal-palace-transfers-walter-benitez/
 

@@ -1,3 +1,7 @@
+**Wrexham forward Paul Mullin joins Wigan on loan**\
+`Mullin leaves the Welsh club, now in the Championship, after three consecutive promotions and 110 goals in 172 matches.`\
+https://nytimes.com/athletic/6445972/2025/06/23/wrexham-transfers-paul-mullin-wigan/
+
 **The Windup: All of baseball’s weekend run-ins**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6444663/2025/06/23/cal-raleigh-home-runs-the-windup/
