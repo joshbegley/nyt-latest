@@ -1,3 +1,7 @@
+**The Windup: All of baseball’s weekend run-ins**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6444663/2025/06/23/cal-raleigh-home-runs-the-windup/
+
 **Why the Outside Feels Like Soup Right Now (and When It Will End)**\
 `Some hot days feel even worse thanks to high humidity, trapped heat and dew points. Cities are especially vulnerable.`\
 https://nytimes.com/2025/06/23/weather/what-is-the-heat-index-humidity.html

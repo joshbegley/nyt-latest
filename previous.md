@@ -1,3 +1,7 @@
+**The Windup: All of baseball’s weekend run-ins**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6444663/2025/06/23/cal-raleigh-home-runs-the-windup/
+
 **Why the Outside Feels Like Soup Right Now (and When It Will End)**\
 `Some hot days feel even worse thanks to high humidity, trapped heat and dew points. Cities are especially vulnerable.`\
 https://nytimes.com/2025/06/23/weather/what-is-the-heat-index-humidity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/politics/trump-oil-prices-economic-fallout-ira
 **Palace confirm arrival of PSV goalkeeper Benitez on free transfer**\
 `Benitez leaves PSV after three years at the club, during which time he made 134 appearances as first-choice goalkeeper.`\
 https://nytimes.com/athletic/6429518/2025/06/23/crystal-palace-transfers-walter-benitez/
-
-**2025 NBA mock draft: Why Ace Bailey is the mystery man of draft week**\
-`What wilI the Suns do after the Kevin Durant trade? Here's everything Sam Vecenie is hearing ahead of Wednesday's first round.`\
-https://nytimes.com/athletic/6434991/2025/06/23/nba-draft-2025-cooper-flagg-ace-bailey-dylan-harper/
 
