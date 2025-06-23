@@ -1,3 +1,15 @@
+**With Tyler Fitzgerald demoted, Casey Schmitt looks like the Giants everyday second baseman**\
+`Schmitt's tools are finally being enhanced by a better approach at the plate, while Fitzgerald's offense had taken a big step back.`\
+https://nytimes.com/athletic/6446170/2025/06/23/sf-giants-second-base-casey-schmitt-tyler-fitzgerald/
+
+**Iran Fired Missiles at a U.S. Base**\
+`Also, a heat wave grips the eastern U.S. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/23/briefing/iran-us-base-heat-wave.html
+
+**Nationwide Arena owner plans $400 million in upgrades to Blue Jackets' 25-year-old home**\
+`Per WBNS-TV in Columbus, construction will be spread out over a four- or five-year span.`\
+https://nytimes.com/athletic/6446457/2025/06/23/nationwide-arena-upgrades-blue-jackets/
+
 **The Israeli military escalated attacks on Tehran.**\
 `The latest barrage hit a notorious prison in Iran and a building near a humanitarian aid facility.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/the-israeli-military-escalated-attacks-on-tehran
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-adv
 **The Briefing: Atletico 1 Botafogo 0 - Spaniards first Europeans eliminated after controversial Alvarez penalty call**\
 `Atletico were sent packing despite rallying late against an impressive Botafogo side`\
 https://nytimes.com/athletic/6435227/2025/06/23/atletico-madrid-1-botafogo-0-club-world-cup/
-
-**Former Astronaut Launches Texas Senate Run by Hitting Both Parties**\
-`Terry Virts, an early entrant in the Democratic field targeting Senator John Cornyn’s seat, appeared eager to take on his own party as well as President Trump’s.`\
-https://nytimes.com/2025/06/23/us/terry-virts-john-cornyn-senate-texas.html
-
-**The Briefing: Seattle Sounders 0 PSG 2 - Bizarre goal helps European champions qualify for last 16**\
-`Our writers analyse end evaluate the key talking points from Paris Saint-Germain's victory at the Club World Cup`\
-https://nytimes.com/athletic/6435214/2025/06/23/seattle-sounders-0-psg-2-the-briefing/
-
-**Sketched Out: An Illustrator Confronts His Fears About A.I. Art**\
-`The advent of A.I. has shocked me into questioning my relationship with art. Will humans still be able to draw for a living?`\
-https://nytimes.com/interactive/2025/06/23/magazine/ai-art-artists-illustrator.html
 
