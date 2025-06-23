@@ -1,3 +1,11 @@
+**The Danger of an Unrestrained President to the World**\
+`Trump’s unlawful strikes on Iran have laid bare the absence of any effective legal constraints on a U.S. president to use deadly force in the world.`\
+https://nytimes.com/2025/06/23/opinion/international-world/trump-iran-strikes.html
+
+**Chelsea training 'impossible' in extreme heat ahead of Esperance match - Maresca**\
+`An extreme heat warning has been issued with the public warned to avoid strenuous activities outside ahead of the final CWC group game.`\
+https://nytimes.com/athletic/6446125/2025/06/23/chelsea-esperance-club-world-cup/
+
 **New York Again Embraces Nuclear Power With Plans to Build New Plant**\
 `In her announcement, Gov. Kathy Hochul gave few details about where the plant would be built, how much the project would cost or how long it would take to complete.`\
 https://nytimes.com/2025/06/23/nyregion/new-york-nuclear-power-plant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6445644/2025/06/23/mlb-catcher-hunter-goodman-carso
 **Media Matters Sues F.T.C. Over Advertising Investigation**\
 `The liberal advocacy organization said in a lawsuit that the Federal Trade Commission’s inquiry into boycotts with other advertising groups was “retribution.”`\
 https://nytimes.com/2025/06/23/technology/media-matters-ftc-lawsuit.html
-
-**6,000 Pounds of Sculpture Are Stolen, Somehow**\
-`Two massive works were heisted from a warehouse, then found a week later in a trailer, the authorities said.`\
-https://nytimes.com/2025/06/23/arts/sculptures-stolen-daniel-winn.html
-
-**Iran attacked a U.S. base in Qatar that typically houses 10,000 troops.**\
-`Qatari officials said its air defenses had intercepted the missiles that were fired at Al Udeid Air Base.`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/iran-attacked-a-us-base-in-qatar-that-typically-houses-10000-troops
 

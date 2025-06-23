@@ -1,3 +1,11 @@
+**The Danger of an Unrestrained President to the World**\
+`Trump’s unlawful strikes on Iran have laid bare the absence of any effective legal constraints on a U.S. president to use deadly force in the world.`\
+https://nytimes.com/2025/06/23/opinion/international-world/trump-iran-strikes.html
+
+**Chelsea training 'impossible' in extreme heat ahead of Esperance match - Maresca**\
+`An extreme heat warning has been issued with the public warned to avoid strenuous activities outside ahead of the final CWC group game.`\
+https://nytimes.com/athletic/6446125/2025/06/23/chelsea-esperance-club-world-cup/
+
 **New York Again Embraces Nuclear Power With Plans to Build New Plant**\
 `In her announcement, Gov. Kathy Hochul gave few details about where the plant would be built, how much the project would cost or how long it would take to complete.`\
 https://nytimes.com/2025/06/23/nyregion/new-york-nuclear-power-plant.html
