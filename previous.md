@@ -1,3 +1,19 @@
+**Netanyahu Says Israel Is ‘Very, Very Close’ to Achieving Its Goals in Iran War**\
+`Prime Minister Benjamin Netanyahu said the bombing campaign aimed to end the threats from Tehran’s nuclear program and ballistic missiles. He did not give a timetable for stopping the strikes.`\
+https://nytimes.com/2025/06/23/world/middleeast/israel-iran-war-netanyahu.html
+
+**No Corrections: June 23, 2025**\
+`No corrections appeared in print on Monday, June 23, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/no-corrections-june-23-2025.html
+
+**No Corrections: June 22, 2025**\
+`No corrections appeared in print on Sunday, June 22, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/no-corrections-june-22-2025.html
+
+**Corrections: June 21, 2025**\
+`Corrections that appeared in print on Saturday, June 21, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/corrections-june-21-2025.html
+
 **Putin Condemns Strikes on Iran but Stops Short of Offering Concrete Support**\
 `President Vladimir V. Putin met with Iran’s foreign minister on Monday, but did not explicitly call out Israel or the United States for their strikes on Russia’s longtime ally.`\
 https://nytimes.com/2025/06/23/world/middleeast/putin-iran-araghchi.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/23/business/dealbook/china-iran-airstrikes.html
 **U.S. Strikes on Iran Spark Protests**\
 `After the U.S. bombed Iranian nuclear sites, protests sprung up around the world. Some supported Trump’s actions while others expressed dismay about America’s involvement in the conflict.`\
 https://nytimes.com/video/us/politics/100000010244037/protests-us-iran-attack.html
-
-**Trump Administration Live Updates: G.O.P. Is Set Back in Effort to Limit Lawsuits Against Presidential Orders**\
-``\
-https://nytimes.com/live/2025/06/23/us/trump-news
-
-**Series preview: What to watch as Cardinals, Cubs face off for first time this season**\
-`While the Cubs have cruised to the division lead, the Cardinals have been a remarkable surprise and sit 4 1/2 games back.`\
-https://nytimes.com/athletic/6444263/2025/06/23/chicago-cubs-st-louis-cardinals-series-preview/
-
-**Canucks offseason preview mailbag, part 1: UFA targets and Quinn Hughes' future**\
-`Over the next two days we'll answer some of the pressing offseason questions that our subscribers are pondering.`\
-https://nytimes.com/athletic/6444614/2025/06/23/canucks-offseason-mailbag-ufa-targets-quinn-hughes/
-
-**Vikings mailbag: Biggest surprise, Kwesi Adofo-Mensah's drafts, backup QB and more**\
-`Is Sam Howell the best bet to be the team's backup quarterback next season? How should fans feel about the Vikings' overall roster?`\
-https://nytimes.com/athletic/6443872/2025/06/23/vikings-mailbag-backup-qb-offseason-surprise/
 

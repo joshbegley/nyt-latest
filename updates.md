@@ -1,3 +1,19 @@
+**Netanyahu Says Israel Is ‘Very, Very Close’ to Achieving Its Goals in Iran War**\
+`Prime Minister Benjamin Netanyahu said the bombing campaign aimed to end the threats from Tehran’s nuclear program and ballistic missiles. He did not give a timetable for stopping the strikes.`\
+https://nytimes.com/2025/06/23/world/middleeast/israel-iran-war-netanyahu.html
+
+**No Corrections: June 23, 2025**\
+`No corrections appeared in print on Monday, June 23, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/no-corrections-june-23-2025.html
+
+**No Corrections: June 22, 2025**\
+`No corrections appeared in print on Sunday, June 22, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/no-corrections-june-22-2025.html
+
+**Corrections: June 21, 2025**\
+`Corrections that appeared in print on Saturday, June 21, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/corrections-june-21-2025.html
+
 **Abbott Vetoes Ban on Hemp Intoxicants in Texas**\
 `The governor of Texas blocked what would have been one of the nation’s strictest bans on hemp products, and directed legislators to take up regulation of hemp in a special session.`\
 https://nytimes.com/2025/06/23/us/abbott-texas-hemp-veto.html
