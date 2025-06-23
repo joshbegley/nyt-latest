@@ -1,3 +1,11 @@
+**Israel widens targets in another series of strikes on the Iranian capital.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
+
+**World Central Kitchen Resumes Gaza Operations After Nearly 7-Week Pause**\
+`The charity founded by the celebrity chef José Andrés has started preparing meals again. It halted activities when food supplies ran out during Israel’s aid blockade.`\
+https://nytimes.com/2025/06/23/world/middleeast/world-central-kitchen-gaza-restarts-meals.html
+
 **Tracking Tropical Storm Sepat**\
 `See the likely path and wind arrival times for Sepat.`\
 https://nytimes.com/interactive/2025/06/23/weather/sepat-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/news-event/vera-rubin-telescope
 **Democrats to Protest Trump’s Takeover of Kennedy Center With Pride Event**\
 `“This is our way of reoccupying the Kennedy Center,” said Jeffrey Seller of “Hamilton,” who was asked to stage the invite-only concert hosted by five senators.`\
 https://nytimes.com/2025/06/23/arts/music/kennedy-center-pride-concert.html
-
-**Goodbye to Berlin: New Novels Recall a City’s ‘Poor but Sexy’ Heyday**\
-`Several books published this year have examined a creative haven in Europe’s licentious, ultraliberal capital.`\
-https://nytimes.com/2025/06/23/books/review/berlin-novels.html
-
-**How to Make Homemade Pasta Like an Italian**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/homemade-pasta-recipe
 

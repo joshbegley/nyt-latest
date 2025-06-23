@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Sepat**\
+`See the likely path and wind arrival times for Sepat.`\
+https://nytimes.com/interactive/2025/06/23/weather/sepat-map-path-tracker.html
+
+**Mailbag: Are Canadiens buying or selling? Plus, Kirby Dach’s future**\
+`The Canadiens' decision-makers are aggressively trying to work the trade market. But they're not about to do anything stupid.`\
+https://nytimes.com/athletic/6444760/2025/06/23/canadiens-trade-market-nhl-draft-mailbag/
+
+**For Haim, a Breakup Is an Inspiration**\
+`“I Quit,” the band’s fourth album, leans into heartache and moving on.`\
+https://nytimes.com/2025/06/23/arts/music/haim-i-quit-review.html
+
 **Your Watch List**\
 `Interested in the movies you​’ve read about? ​Find the films you’ve saved all in one place.`\
 https://nytimes.com/interactive/2025/movies/watchlist.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/23/books/review/berlin-novels.html
 **How to Make Homemade Pasta Like an Italian**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/homemade-pasta-recipe
-
-**gws-my-five-favorite-works-of-art-in-mexico-city**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/my-five-favorite-works-of-art-in-mexico-city
-
-**gws-the-weeknd-hurry-up-tomorrow**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/the-weeknd-hurry-up-tomorrow
-
-**gws-kara-swisher-podcasts**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/kara-swisher-podcasts
 
