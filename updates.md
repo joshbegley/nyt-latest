@@ -1,3 +1,7 @@
+**Goodbye to Berlin: New Novels Recall a City’s ‘Poor but Sexy’ Heyday**\
+`Several books published this year have examined a creative haven in Europe’s licentious, ultraliberal capital.`\
+https://nytimes.com/2025/06/23/books/review/berlin-novels.html
+
 **How to Make Homemade Pasta Like an Italian**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/homemade-pasta-recipe
