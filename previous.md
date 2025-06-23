@@ -1,3 +1,7 @@
+**Wisconsin Couple Charged in Scheme to Poison Women He Dated**\
+`Paul VanDuyne Jr. and Andrea Whitaker placed cyanide, homemade poisons and other substances in water bottles and cars belonging to two women he had briefly dated, the authorities said.`\
+https://nytimes.com/2025/06/23/us/wisconsin-couple-charged-poison-plot.html
+
 **With Tyler Fitzgerald demoted, Casey Schmitt looks like the Giants everyday second baseman**\
 `Schmitt's tools are finally being enhanced by a better approach at the plate, while Fitzgerald's offense had taken a big step back.`\
 https://nytimes.com/athletic/6446170/2025/06/23/sf-giants-second-base-casey-schmitt-tyler-fitzgerald/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/nyregion/mayor-primary-mamdani-cuomo.html
 **Fernando Tatis Jr. sues Big League Advance Fund for exploitative business practices**\
 `Tatis is suing Big League Advance Fund, alleging they have "for years run an unlicensed lending business that evades legal oversight."`\
 https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-advance-fund-lawsuit/
-
-**The Briefing: Atletico 1 Botafogo 0 - Spaniards first Europeans eliminated after controversial Alvarez penalty call**\
-`Atletico were sent packing despite rallying late against an impressive Botafogo side`\
-https://nytimes.com/athletic/6435227/2025/06/23/atletico-madrid-1-botafogo-0-club-world-cup/
 
