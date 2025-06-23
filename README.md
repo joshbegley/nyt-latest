@@ -1,3 +1,7 @@
+**What is the Strait of Hormuz, and why is it important?**\
+`By Helene Cooper, Eric Schmitt and John Ismay`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/strait-hormuz-what-why-iran
+
 **Where Does Iran Go Now?**\
 `While foreign wars may expose autocratic fragility, they rarely create the conditions necessary for democratic change.`\
 https://nytimes.com/2025/06/23/opinion/iran-iranians-regime.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/realestate/1-3-million-homes-in-california.html
 **The ‘Accidental Archivist’ of the Jacob’s Pillow Dance Festival**\
 `For 50 years, Norton Owen has connected the past and present at the influential summer festival in the Berkshires.`\
 https://nytimes.com/2025/06/23/arts/dance/jacobs-pillow-norten-owen.html
-
-**What Environmentalists Like Me Got Wrong About Climate Change**\
-`Governments and U.S. states committed to climate action now need to persuade the oil industry to protect the world from climate chaos.`\
-https://nytimes.com/2025/06/23/opinion/climate-change-methane-natural-gas.html
 
