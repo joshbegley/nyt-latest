@@ -1,3 +1,7 @@
+**PSG survives Club World Cup's toughest group and chases double triumph**\
+`The Champions League winners are through to the knockout stage and looking dangerous.`\
+https://nytimes.com/athletic/6446657/2025/06/23/psg-club-world-cup-champions-league-seattle-sounders/
+
 **Trump Says ‘Time for Peace’ After Iran Gives Warning Before Firing on U.S. Base**\
 `The Pentagon said there were no reports of casualties after the strike on Al Udeid Air Base in Qatar, and President Trump said it was time for peace.`\
 https://nytimes.com/2025/06/23/world/middleeast/iran-missile-attack-us-base-qatar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/briefing/iran-us-base-heat-wave.html
 **Nationwide Arena owner plans $400 million in upgrades to Blue Jackets' 25-year-old home**\
 `Per WBNS-TV in Columbus, construction will be spread out over a four- or five-year span.`\
 https://nytimes.com/athletic/6446457/2025/06/23/nationwide-arena-upgrades-blue-jackets/
-
-**The Israeli military escalated attacks on Tehran.**\
-`The latest barrage hit a notorious prison in Iran and a building near a humanitarian aid facility.`\
-https://nytimes.com/live/2025/world/israel-iran-maps-tracking/the-israeli-military-escalated-attacks-on-tehran
 
