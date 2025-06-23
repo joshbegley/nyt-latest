@@ -1,3 +1,15 @@
+**Vera Rubin Scientists Reveal Telescope’s First Images**\
+`Scenes from nebulas in the Milky Way and a cluster of galaxies are a teaser of how the observatory will transform astronomy, with more imagery expected later on Monday.`\
+https://nytimes.com/2025/06/23/science/vera-rubin-scientists-reveal-telescopes-first-images.html
+
+**‘The Better Life Is Out of Reach’: The Chinese Dream Is Slipping Away**\
+`Promised a path to prosperity through hard work and education, China’s working class youths are hitting immovable ceilings.`\
+https://nytimes.com/2025/06/23/business/china-upward-mobility-inequality.html
+
+**Connections: Sports Edition Coach: Hints for June 23, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6441877/2025/06/23/connections-sports-edition-hints-for-june-23-2025/
+
 **2026 NBA champion odds: Thunder open as favorites to repeat ahead of shuffled contenders**\
 `The Thunder just won their first NBA title and are the clear favorites to win it again next year. Who are the top challengers?`\
 https://nytimes.com/athletic/6444389/2025/06/22/2026-nba-champion-odds-thunder-knicks-rockets/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/22/business/stocks-us-iran-bombing.html
 **Small Protests Against the U.S. Attack in Iran Sprouted Up Over the Weekend**\
 `The last-minute demonstrations drew hundreds of people in some cities, fewer in others. Many expressed displeasure with the Iranian leadership but were against any more U.S. involvement in another war.`\
 https://nytimes.com/2025/06/22/world/middleeast/us-protests-iran-attack.html
-
-**Thunder win first NBA title since relocating to OKC, hold off persistent Pacers in Game 7**\
-`Indiana lost star Tyrese Haliburton early in the game to an Achilles injury, as OKC finally pushed past a team many underestimated.`\
-https://nytimes.com/athletic/6444479/2025/06/22/2025-nba-finals-thunder-pacers-game-7/
-
-**Judge Orders Salvadoran Man Released on Smuggling Charges**\
-`The order to release Kilmar Armando Abrego Garcia from criminal custody as he awaits trial was a rebuke to the Trump administration. But he is likely to remain in immigration custody.`\
-https://nytimes.com/2025/06/22/us/politics/abrego-garcia-bail-smuggling-charges.html
-
-**Trump’s Risky Gamble on Attacking Iran**\
-`With his strikes on Iran, President Trump is betting that the United States can repel any retaliation, and that the U.`\
-https://nytimes.com/video/us/politics/100000010243288/trumps-risky-gamble-on-attacking-iran.html
 
