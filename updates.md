@@ -1,3 +1,5 @@
+
+
 **A Journey Across the New Syria**\
 `After decades of dictatorship and 13 years of civil war, can Syria put itself back together? Our journalists traveled the length of the country to explore its hopes and its challenges.`\
 https://nytimes.com/interactive/2025/06/23/world/middleeast/syria-photos-war-bashar-al-assad.html
