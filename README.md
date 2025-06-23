@@ -1,3 +1,7 @@
+**What we're hearing about Pac-12 expansion after it announced a TV deal with CBS**\
+`The revamped Pac-12 has seven football members for 2026 and needs an eighth as it finalizes its TV deals, including one with CBS.`\
+https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candidates/
+
 **Israel widens targets in another series of strikes on the Iranian capital.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6442722/2025/06/23/edmonton-oilers-evander-kane-con
 **Vera Rubin Observatory**\
 `A powerful new U.S.-funded telescope on a mountain in Chile is poised to transform the study of astronomy.`\
 https://nytimes.com/news-event/vera-rubin-telescope
-
-**Democrats to Protest Trump’s Takeover of Kennedy Center With Pride Event**\
-`“This is our way of reoccupying the Kennedy Center,” said Jeffrey Seller of “Hamilton,” who was asked to stage the invite-only concert hosted by five senators.`\
-https://nytimes.com/2025/06/23/arts/music/kennedy-center-pride-concert.html
 
