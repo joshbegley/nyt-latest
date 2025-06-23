@@ -1,3 +1,7 @@
+**Why Factories Are Having Trouble Filling Nearly 400,000 Open Jobs**\
+`For every 20 positions, there’s one qualified candidate, says one manufacturing chief executive. Some of President Trump’s policies are likely to exacerbate the problem.`\
+https://nytimes.com/2025/06/23/business/factory-jobs-workers-trump.html
+
 **A Journey Across the New Syria**\
 `After decades of dictatorship and 13 years of civil war, can Syria put itself back together? Our journalists traveled the length of the country to explore its hopes and its challenges.`\
 https://nytimes.com/interactive/2025/06/23/world/middleeast/syria-photos-war-bashar-al-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/opinion/protests-1960s-today.html
 **The Curtain Drops on Improv Theater for the New York Police**\
 `Police Commissioner Jessica Tisch said a staffing crisis kept her from letting officers participate in a Brooklyn theater group that began after the death of Eric Garner, who died after a police officer put him in a chokehold, in 2014.`\
 https://nytimes.com/2025/06/23/nyregion/nypd-acting-improv-class.html
-
-**What Jaka Bijol will bring to Leeds: Patience, aerial strength and football intelligence**\
-`The data suggests the Slovenia centre-back can read play, anticipate danger and pick the right moments to be aggressive`\
-https://nytimes.com/athletic/6435724/2025/06/23/jaka-bijol-profile-leeds-united/
 
