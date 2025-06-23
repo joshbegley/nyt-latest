@@ -1,3 +1,23 @@
+**How to Make Homemade Pasta Like an Italian**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/homemade-pasta-recipe
+
+**gws-my-five-favorite-works-of-art-in-mexico-city**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/my-five-favorite-works-of-art-in-mexico-city
+
+**gws-the-weeknd-hurry-up-tomorrow**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-weeknd-hurry-up-tomorrow
+
+**gws-kara-swisher-podcasts**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/kara-swisher-podcasts
+
+**gws-nat-king-cole-lights-out**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/nat-king-cole-lights-out
+
 **gws-drive-in-theaters-america**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/drive-in-theaters-america
