@@ -1,3 +1,15 @@
+**The Best Movies of the 21st Century: You Decide**\
+`More than 500 directors, actors and other notable movie fans submitted their ballots for the Best Movies of the 21st Century. Now it’s your turn to vote.`\
+https://nytimes.com/interactive/2025/movies/reader-ballot-movies-21st-century.html
+
+**The Best Movies of the 21st Century: How Actors, Directors and Other Film Lovers Voted**\
+`To determine the best movies of the 21st century, we polled hundreds of celebrities. See how your favorite stars and directors voted.`\
+https://nytimes.com/interactive/2025/movies/votes-movies-21st-century.html
+
+**The 100 Best Movies of the 21st Century**\
+`More than 500 influential directors, actors and other notable names in Hollywood and around the world voted on the best films released since Jan. 1, 2000. See how their ballots stacked up.`\
+https://nytimes.com/interactive/2025/movies/best-movies-21st-century.html
+
 **Fred Smith, Billionaire Founder of FedEx, Is Dead at 80**\
 `His vision for how to ship packages overnight led to not just a new company, but also a new sector of the world economy and a now-familiar English verb.`\
 https://nytimes.com/2025/06/22/obituaries/fred-smith-billionaire-founder-of-fedex-is-dead-at-80.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6444134/2025/06/22/antonio-rudiger-gustavo-cabral/
 **Rod Nordland, 75, Dies; War Reporter Who Also Wrote of His Own Struggle**\
 `Motivated by the helplessness of his boyhood, he described the lives of vulnerable people in conflicts around the world and later his own terminal illness.`\
 https://nytimes.com/2025/06/22/books/rod-nordland-dead.html
-
-**Yankees takeaways: Jazz Chisholm Jr. sparks comeback, Paul Goldschmidt's sneaky speed**\
-`Chisholm is hitting .350 with a .987 OPS in 17 games since returning from injury, and he drove in the winning run Sunday.`\
-https://nytimes.com/athletic/6444146/2025/06/22/new-york-yankees-jazz-chisholm-paul-goldschmidt/
-
-**Sampdoria stay up as Serie B relegation play-off abandoned**\
-`The game was abandoned in the 65th minute with Sampdoria leading 2-0 on the night and 4-0 on aggregate.`\
-https://nytimes.com/athletic/6444023/2025/06/22/sampdoria-serie-b-relegation-play-off/
-
-**U.S. Officials Concede They Don’t Know Whereabouts of Iran’s Uranium Stockpile**\
-`Rafael Mariano Grossi, the director of general of the International Atomic Energy Agency, said he believed Tehran’s stockpile of near-bomb-grade nuclear material had been moved before the strikes.`\
-https://nytimes.com/2025/06/22/us/politics/iran-uranium-stockpile-whereabouts.html
 
