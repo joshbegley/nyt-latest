@@ -1,3 +1,7 @@
+**Inside Trump’s Decision**\
+`The Times pieced together the days and hours leading up to President Trump’s decision to strike Iran. It’s a story of diplomacy, deception and a secret that almost got out.`\
+https://nytimes.com/2025/06/23/briefing/inside-trumps-decision.html
+
 **The Pulse: A historic title and a massive what-if**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6444455/2025/06/23/pacers-thunder-game-7-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6390727/2025/06/23/2025-nhl-draft-prospects-player-
 **Could Mets explore infield help at the deadline? It's not out of the question**\
 `New York always wants to allow room for its young players, but none of its less-accomplished infielders have run with the opportunity. `\
 https://nytimes.com/athletic/6444615/2025/06/23/new-york-mets-infield-conundrum/
-
-**The U.S. Bombed Iran. Now What?**\
-`The president’s decision to strike Iran is a high-stakes gamble — one that turns in part on whether Iran’s nuclear program has actually been destroyed.`\
-https://nytimes.com/2025/06/23/podcasts/the-daily/us-iran-israel-bomb.html
 
