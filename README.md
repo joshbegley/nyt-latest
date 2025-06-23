@@ -1,41 +1,40 @@
-**L.A. Sheriff’s Dept. Apologizes for Post Sympathizing With Iran Bombing Victims**\
-`The department called its social media post “offensive and inappropriate” and said it was investigating how it was published.`\
-https://nytimes.com/2025/06/23/us/la-sheriff-apology-iran-bombing-attack.html
+**A Broncos coach stared at life’s ‘scariest time.’ The team ensured he didn’t face it alone**\
+`Zack Grossi was diagnosed with a cancerous chest tumor last October. His "inspiring" fight ended in a return to the coaching booth.`\
+https://nytimes.com/athletic/6433027/2025/06/23/broncos-zack-grossi-cancer/
 
-**Inside Trump’s Decision**\
-`The Times pieced together the days and hours leading up to President Trump’s decision to strike Iran. It’s a story of diplomacy, deception and a secret that almost got out.`\
-https://nytimes.com/2025/06/23/briefing/inside-trumps-decision.html
+**What the Blackhawks could get in NHL Draft prospect Caleb Desnoyers**\
+`Desnoyers needs to fill out, but his frame could make him a physical force in the NHL.`\
+https://nytimes.com/athletic/6430318/2025/06/23/chicago-blackhawks-nhl-draft-caleb-desnoyers/
 
-**The Pulse: A historic title and a massive what-if**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6444455/2025/06/23/pacers-thunder-game-7-the-pulse/
+**Which NHL teams need to upgrade at center? Ranking all 32 by current quality**\
+`Here’s how we’d rank each team’s center depth, from best to worst, just before free agency begins.`\
+https://nytimes.com/athletic/6438796/2025/06/23/nhl-teams-center-ranking-free-agency-offseason/
 
-**Sam Presti, Thunder were happy to keep building slowly. The players had other ideas**\
-`"This just kind of unfolded very quickly," Thunder architect Sam Presti said of his team's arrival.`\
-https://nytimes.com/athletic/6444729/2025/06/23/thunder-2025-nba-championship-path/
+**PWHL draft ranking 2025: Casey O’Brien, Haley Winn highlight the list**\
+`With no clear No. 1 pick, there's plenty of intrigue heading into the PWHL Draft.`\
+https://nytimes.com/athletic/6438525/2025/06/23/pwhl-draft-ranking-2025-obrien-winn-kaltounkova/
 
-**Phillies' righty hitters make a lefty pay in win over Mets they can build on**\
-`The Phillies' righty bats entered the game with a .690 OPS against lefties, 97 points worse than a season ago. But Sunday, they delivered.`\
-https://nytimes.com/athletic/6444603/2025/06/23/phillies-righty-hitters-vs-lefties-beat-mets/
+**Buckley: Red Sox might want to turn page on Rafael Devers trade, but book will remain open**\
+`It was a fun weekend series for the Red Sox and Giants, who now get to enjoy a shared history. Devers' swing and his play will remind us. `\
+https://nytimes.com/athletic/6444557/2025/06/23/rafael-devers-red-sox-giants-rivalry/
 
-**European officials voice fears of further escalation in the Israel-Iran war.**\
-`European foreign affairs ministerd`\
-https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/european-officials-voice-fears-of-further-escalation-in-the-israel-iran-war
+**Longevity vs. peak: The Hockey Hall of Fame debate and 5 players who define it**\
+`Once again, it's time for hockey fans to debate how to decide who deserves a spot in the Hall of Fame. Here's five schools of thought.`\
+https://nytimes.com/athletic/6443797/2025/06/23/hockey-hall-of-fame-longevity-peak-debate/
 
-**Do tennis defaults and disqualifications for racket smashes need a change of perspective?**\
-`Why reluctance to penalize players for throwing rackets and hitting balls into the crowd will come back to bite the sport one day.`\
-https://nytimes.com/athletic/6439857/2025/06/23/tennis-default-rules-racket-smash-ball-abuse-consistency/
+**NBA Power Rankings: Thunder on top (of course); offseason outlook for all 30 teams**\
+`The NBA has crowned its new champion, and OKC is No. 1. How does the rest of the league fare in our latest rankings?`\
+https://nytimes.com/athletic/6444675/2025/06/23/nba-power-rankings-2025-thunder-pacers-knicks-celtics/
 
-**2025 NHL Draft player poll: 50 top prospects give their own NHL projections**\
-`We asked prospects to answer candidly about a projected outcome for themselves rather than the usual lofty player comparables.
-`\
-https://nytimes.com/athletic/6390625/2025/06/23/2025-nhl-draft-player-poll-prospects-projections/
+**Twins takeaways: Opener doesn't work this time, but it's not going away**\
+`Willi Castro was a late scratch Sunday with a sore right wrist that could sideline him for two or three games.`\
+https://nytimes.com/athletic/6444742/2025/06/23/minnesota-twins-starting-pitching-bulk-reliever/
 
-**Did Kevin Durant's Suns departure leave Phoenix with enough for rebuild?**\
-`The Suns' return for Kevin Durant paled in comparison to the 2023 trade deadline, when they gave up four firsts. Was a better deal possible?`\
-https://nytimes.com/athletic/6444260/2025/06/23/kevin-durant-trade-rockets-suns-draft-nba/
+**After a turbulent year, can Keion White take the next step for the Patriots?**\
+`After he struggled in the latter half of 2024, what can we expect from White this fall as a piece of Mike Vrabel's new-look defense?`\
+https://nytimes.com/athletic/6432988/2025/06/23/keion-white-patriots-bounceback-training-camp/
 
-**To make ‘F1: The Movie’ real, Brad Pitt had to learn to race - from real racers**\
-`'F1: The Movie' aims to create the most authentic racing film. To achieve this, the acting stars had to learn the methods of real drivers`\
-https://nytimes.com/athletic/6444007/2025/06/23/brad-pitt-f1-movie-driving-coach/
+**How 3 Notre Dame O-line recruits from Michigan hope to help Irish take final step**\
+`Greg Patrick, Ben Nichols and Sullivan Garvin took almost identical paths toward joining Notre Dame's 'special' O-line class.`\
+https://nytimes.com/athletic/6440579/2025/06/23/notre-dame-fighting-irish-football-michigan/
 
