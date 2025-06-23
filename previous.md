@@ -1,3 +1,11 @@
+**Judge Orders Salvadoran Man Released on Smuggling Charges**\
+`The order to release Kilmar Armando Abrego Garcia from criminal custody as he awaits trial was a rebuke to the Trump administration. But he is likely to remain in immigration custody.`\
+https://nytimes.com/2025/06/22/us/politics/abrego-garcia-bail-smuggling-charges.html
+
+**Trump’s Risky Gamble on Attacking Iran**\
+`With his strikes on Iran, President Trump is betting that the United States can repel any retaliation, and that the U.`\
+https://nytimes.com/video/us/politics/100000010243288/trumps-risky-gamble-on-attacking-iran.html
+
 **Red Sox takeaways: Sloppy defense returns in wasted opportunity; Hunter Dobbins to IL**\
 `The sloppy play that has characterized much of the season for the Red Sox had dissipated recently, but reared its head again Sunday.`\
 https://nytimes.com/athletic/6444357/2025/06/22/red-sox-takeaways-hunter-dobbins-il/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-fin
 **The Best Movies of the 21st Century: You Decide**\
 `More than 500 directors, actors and other notable movie fans submitted their ballots for the Best Movies of the 21st Century. Now it’s your turn to vote.`\
 https://nytimes.com/interactive/2025/movies/reader-ballot-movies-21st-century.html
-
-**The Best Movies of the 21st Century: How Actors, Directors and Other Film Lovers Voted**\
-`To determine the best movies of the 21st century, we polled hundreds of celebrities. See how your favorite stars and directors voted.`\
-https://nytimes.com/interactive/2025/movies/votes-movies-21st-century.html
-
-**The 100 Best Movies of the 21st Century**\
-`More than 500 influential directors, actors and other notable names in Hollywood and around the world voted on the best films released since Jan. 1, 2000. See how their ballots stacked up.`\
-https://nytimes.com/interactive/2025/movies/best-movies-21st-century.html
 

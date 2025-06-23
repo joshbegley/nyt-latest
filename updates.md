@@ -1,3 +1,11 @@
+**Judge Orders Salvadoran Man Released on Smuggling Charges**\
+`The order to release Kilmar Armando Abrego Garcia from criminal custody as he awaits trial was a rebuke to the Trump administration. But he is likely to remain in immigration custody.`\
+https://nytimes.com/2025/06/22/us/politics/abrego-garcia-bail-smuggling-charges.html
+
+**Trump’s Risky Gamble on Attacking Iran**\
+`With his strikes on Iran, President Trump is betting that the United States can repel any retaliation, and that the U.`\
+https://nytimes.com/video/us/politics/100000010243288/trumps-risky-gamble-on-attacking-iran.html
+
 **Red Sox takeaways: Sloppy defense returns in wasted opportunity; Hunter Dobbins to IL**\
 `The sloppy play that has characterized much of the season for the Red Sox had dissipated recently, but reared its head again Sunday.`\
 https://nytimes.com/athletic/6444357/2025/06/22/red-sox-takeaways-hunter-dobbins-il/
