@@ -1,3 +1,15 @@
+**Lionel Messi's 50 Inter Miami goals: How the legend has scored for his MLS side**\
+`Lionel Messi hit the 50-goal landmark with Miami after striking a trademark free kick vs. Porto in the Club World Cup`\
+https://nytimes.com/athletic/6445678/2025/06/23/lionel-messi-50-goals-inter-miami/
+
+**Nearly 150 Report Being Jabbed With Needles at French Music Festival**\
+`France’s Interior Ministry reported that 145 people said they had been stabbed with needles at festival events across the country.`\
+https://nytimes.com/2025/06/23/world/europe/france-syringe-attacks-music-festival.html
+
+**Leeds United sign Jaka Bijol from Udinese**\
+`The centre-back is United's second signing of the summer after their promotion to the Premier League.`\
+https://nytimes.com/athletic/6435631/2025/06/23/leeds-united-sign-jaka-bijol-from-udinese/
+
 **Supreme Court to Hear Rastafarian Prisoner’s Suit Over Shaved Dreadlocks**\
 `Damon Landor, whose faith requires him to let his hair grow long, said guards threw a court ruling in the trash before holding him down and shaving his head to the scalp.`\
 https://nytimes.com/2025/06/23/us/politics/supreme-court-rastafarian-prisoners-dreadlocks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/23/science/rubin-telescope-asteroids.html
 **The NHL's busy season is here, and we've got oddly specific predictions**\
 `Let’s all grab the popcorn bags and see where this goes.`\
 https://nytimes.com/athletic/6445607/2025/06/23/red-light-newsletter-nhl-draft-free-agency/
-
-**What to Know About Iran’s Notorious Evin Prison**\
-`Israel’s military struck entrances to the detention facility in Tehran, where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
-https://nytimes.com/2025/06/23/world/middleeast/evin-prison-iran.html
-
-**Fantasy baseball cheat sheet: Fade David Peterson, Seth Lugo and more THE BAT X insights**\
-`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6445273/2025/06/23/fantasy-baseball-the-bat-x-peterson-lugo/
-
-**Liberty Media's $4.2bn MotoGP deal finally gets European Commission approval**\
-`Formula One's commercial rights have been owned by Liberty since 2017.`\
-https://nytimes.com/athletic/6445608/2025/06/23/motogp-liberty-media-f1/
 
