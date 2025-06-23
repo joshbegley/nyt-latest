@@ -1,3 +1,11 @@
+**This Powerful Telescope Quickly Found 2,100 New Asteroids**\
+`The Vera C. Rubin Observatory is expected to find millions of unknown objects in our solar system, and perhaps even a mysterious Planet Nine.`\
+https://nytimes.com/2025/06/23/science/rubin-telescope-asteroids.html
+
+**What to Know About Iran’s Notorious Evin Prison**\
+`Israel’s military struck entrances to the detention facility in Tehran, where dissidents and political prisoners are held. Human rights groups say the prison is a symbol of repression.`\
+https://nytimes.com/2025/06/23/world/middleeast/evin-prison-iran.html
+
 **Supreme Court to Hear Rastafarian Prisoner’s Suit Over Shaved Dreadlocks**\
 `Damon Landor, whose faith requires him to let his hair grow long, said guards threw a court ruling in the trash before holding him down and shaving his head to the scalp.`\
 https://nytimes.com/2025/06/23/us/politics/supreme-court-rastafarian-prisoners-dreadlocks.html
