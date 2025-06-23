@@ -1,3 +1,11 @@
+**Suns' trade of Kevin Durant begins what could be a difficult stretch in Phoenix**\
+`How the Suns got here is a lesson in roster construction and patience. While Durant was a model of consistency, the Suns never found rhythm.`\
+https://nytimes.com/athletic/6444009/2025/06/22/kevin-durant-trade-phoenix-suns-roster-future/
+
+**A Supposedly Good Thing We’ll Never Do Again**\
+`USAID was the world’s largest humanitarian donor. So what was all that money being spent on?`\
+https://nytimes.com/2025/06/22/podcasts/a-supposedly-good-thing-well-never-do-again-this-american-life-nyt-audio.html
+
 **Keegan Bradley grabs Travelers Championship title with late birdie**\
 `Bradley, now an eight-time winner on the PGA Tour, has a legitimate chance of rising into the top-6 in the U.S. Ryder Cup points standings.`\
 https://nytimes.com/athletic/6444295/2025/06/22/keegan-bradley-travelers-championship-tommy-fleetwood-2/
