@@ -1,3 +1,7 @@
+**Maria Taylor named NBC's lead NBA, WNBA studio host next season: Source**\
+`Taylor also signed a multiyear contract extension with NBC Sports that will have her with the company deep into the 2020s, the source said.`\
+https://nytimes.com/athletic/6445390/2025/06/23/maria-taylor-nbc-peacock-nba-lead-studio-host/
+
 **Wrexham forward Paul Mullin joins Wigan on loan**\
 `Mullin leaves the Welsh club, now in the Championship, after three consecutive promotions and 110 goals in 172 matches.`\
 https://nytimes.com/athletic/6445972/2025/06/23/wrexham-transfers-paul-mullin-wigan/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/23/world/middleeast/syria-photos-war-bas
 **The U.S. Urged American Travelers Abroad to ‘Exercise Increased Caution.’ What’s Going On?**\
 `The State Department warned of the potential for demonstrations against Americans overseas because of U.S. intervention in the Israel-Iran conflict. What you need to know.`\
 https://nytimes.com/2025/06/23/travel/travel-advisory-us-citizens-iran-israel.html
-
-**White House Faces Risk of Economic Fallout From Iran Strike**\
-`President Trump, aware of how high gas prices could affect his popularity, demanded on social media that the U.S. “KEEP OIL PRICES DOWN.”`\
-https://nytimes.com/2025/06/23/us/politics/trump-oil-prices-economic-fallout-iran-strike.html
 
