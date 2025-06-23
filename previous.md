@@ -1,3 +1,7 @@
+**Textor agrees to sell Palace stake to Jets owner Woody Johnson**\
+`Any sale will have to be ratified by the Premier League, with Johnson being the subject of the league's owners' and directors' test.`\
+https://nytimes.com/athletic/6444914/2025/06/23/crystal-palace-woody-johnson-john-textor-sale/
+
 **Deadly Russian Strikes Hit Kyiv**\
 `A fire broke out and a building partially collapsed as Russia struck Ukraine’s capital with a barrage of drones and missiles.`\
 https://nytimes.com/video/world/europe/100000010244007/ukraine-russia-kyiv-attack.html
@@ -23,7 +27,7 @@ https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/here-are-the-la
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news
 
 **Russian Attack on Kyiv Kills at Least 6, Ukraine Says**\
-`It was the latest in a series of deadly Russian strikes, which have intensified as cease-fire talks have largely stalled.`\
+`The barrage was the latest in a series of deadly strikes, which have intensified as cease-fire talks have largely stalled.`\
 https://nytimes.com/2025/06/23/world/europe/ukraine-russia-kyiv-attack.html
 
 **The Last Survivors of the Emperor’s Army Tell Their Tales**\
@@ -33,8 +37,4 @@ https://nytimes.com/slideshow/2025/06/23/world/asia/the-last-survivors-of-the-em
 **The Closing Arguments of the N.Y.C. Mayoral Candidates**\
 `Ahead of the June 24 primary, The New York Times analyzed the closing campaign speeches of the four leading Democrats running for mayor.`\
 https://nytimes.com/2025/06/23/nyregion/mayor-primary-speech-nyc.html
-
-**Big Names, Bigger Money and Global Themes Color the N.Y.C. Council Races**\
-`All 51 seats are up for election this year, and the Democratic primary battles feature crowded fields, moneyed interests and some recognizable figures.`\
-https://nytimes.com/2025/06/23/nyregion/city-council-primaries-nyc.html
 

@@ -1,3 +1,11 @@
+**Textor agrees to sell Palace stake to Jets owner Woody Johnson**\
+`Any sale will have to be ratified by the Premier League, with Johnson being the subject of the league's owners' and directors' test.`\
+https://nytimes.com/athletic/6444914/2025/06/23/crystal-palace-woody-johnson-john-textor-sale/
+
+**Russian Attack on Kyiv Kills at Least 6, Ukraine Says**\
+`The barrage was the latest in a series of deadly strikes, which have intensified as cease-fire talks have largely stalled.`\
+https://nytimes.com/2025/06/23/world/europe/ukraine-russia-kyiv-attack.html
+
 **Deadly Russian Strikes Hit Kyiv**\
 `A fire broke out and a building partially collapsed as Russia struck Ukraine’s capital with a barrage of drones and missiles.`\
 https://nytimes.com/video/world/europe/100000010244007/ukraine-russia-kyiv-attack.html
