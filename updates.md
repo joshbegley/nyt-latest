@@ -1,3 +1,23 @@
+**The Curtain Drops on Improv Theater for the New York Police**\
+`Police Commissioner Jessica Tisch said a staffing crisis kept her from letting officers participate in a Brooklyn theater group that began after the death of Eric Garner, who died after a police officer put him in a chokehold, in 2014.`\
+https://nytimes.com/2025/06/23/nyregion/nypd-acting-improv-class.html
+
+**What Jaka Bijol will bring to Leeds: Patience, aerial strength and football intelligence**\
+`The data suggests the Slovenia centre-back can read play, anticipate danger and pick the right moments to be aggressive`\
+https://nytimes.com/athletic/6435724/2025/06/23/jaka-bijol-profile-leeds-united/
+
+**Lionel Messi's 50 Inter Miami goals: How the legend has scored for his MLS side**\
+`Messi hit the 50-goal landmark with Miami after striking a trademark free kick vs. Porto in the Club World Cup`\
+https://nytimes.com/athletic/6445678/2025/06/23/lionel-messi-50-goals-inter-miami/
+
+**Nearly 150 Report Being Jabbed With Needles at French Music Festival**\
+`France’s Interior Ministry reported that 145 people said they had been stabbed with needles at festival events across the country.`\
+https://nytimes.com/2025/06/23/world/europe/france-syringe-attacks-music-festival.html
+
+**Leeds United sign Jaka Bijol from Udinese**\
+`The centre-back is United's second signing of the summer after their promotion to the Premier League.`\
+https://nytimes.com/athletic/6435631/2025/06/23/leeds-united-sign-jaka-bijol-from-udinese/
+
 **This Powerful Telescope Quickly Found 2,100 New Asteroids**\
 `The Vera C. Rubin Observatory is expected to find millions of unknown objects in our solar system, and perhaps even a mysterious Planet Nine.`\
 https://nytimes.com/2025/06/23/science/rubin-telescope-asteroids.html
