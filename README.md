@@ -1,3 +1,7 @@
+**Telfar’s Joyful, Shoppable Declaration of Independence**\
+`The designer celebrated 20 years of rewriting fashion’s rules.`\
+https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
+
 **James Lloydovich Patterson, 91, Dies; Soviet Poet and Symbol of Racial Unity**\
 `Years after being catapulted to national fame in the U.S.S.R. as a child actor, he wrote about ideals of racial harmony and international solidarity.`\
 https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
 `The revamped Pac-12 has seven football members for 2026 and needs an eighth as it finalizes its TV deals, including one with CBS.`\
 https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candidates/
 
-**Israel widens targets in another series of strikes on the Iranian capital.**\
+**Israel widens its targets in another series of strikes on the Iranian capital.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/movies/watchlist.html
 **Fill In the Blank: Which World Cities Are in These Book Titles?**\
 `Try this short literary geography quiz that takes you around the globe.`\
 https://nytimes.com/interactive/2025/06/23/books/review/world-book-titles.html
-
-**Lowetide: What should the Oilers do with Evander Kane?**\
-`There are reasons for the Oilers to trade Kane, but it isn't clear that it would be the right decision.`\
-https://nytimes.com/athletic/6442722/2025/06/23/edmonton-oilers-evander-kane-contract-trade/
 

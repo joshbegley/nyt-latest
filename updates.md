@@ -1,3 +1,7 @@
+**James Lloydovich Patterson, 91, Dies; Soviet Poet and Symbol of Racial Unity**\
+`Years after being catapulted to national fame in the U.S.S.R. as a child actor, he wrote about ideals of racial harmony and international solidarity.`\
+https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
+
 **What we're hearing about Pac-12 expansion after it announced a TV deal with CBS**\
 `The revamped Pac-12 has seven football members for 2026 and needs an eighth as it finalizes its TV deals, including one with CBS.`\
 https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candidates/
