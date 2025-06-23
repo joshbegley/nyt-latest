@@ -1,3 +1,11 @@
+**Why the Outside Feels Like Soup Right Now (and When It Will End)**\
+`Some hot days feel even worse thanks to high humidity, trapped heat and dew points. Cities are especially vulnerable.`\
+https://nytimes.com/2025/06/23/weather/what-is-the-heat-index-humidity.html
+
+**Pacers' Tyrese Haliburton tears Achilles, likely to miss next season: Sources**\
+`Haliburton sustained the injury in the first quarter of Indiana’s 103-91 loss in Game 7 of the NBA Finals.`\
+https://nytimes.com/athletic/6445557/2025/06/23/tyrese-haliburton-achilles-tear-nba-pacers/
+
 **NHL trade grades: Ducks cut bait on Trevor Zegras, selling low to the Flyers**\
 `The Ducks got a fourth-liner and two non-first-round picks. If that was the best they could get for the ex-phenom, why bother trading him?`\
 https://nytimes.com/athletic/6445896/2025/06/23/trevor-zegras-flyers-ducks-trade-grades/

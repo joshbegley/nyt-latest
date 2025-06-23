@@ -1,6 +1,14 @@
+**Why the Outside Feels Like Soup Right Now (and When It Will End)**\
+`Some hot days feel even worse thanks to high humidity, trapped heat and dew points. Cities are especially vulnerable.`\
+https://nytimes.com/2025/06/23/weather/what-is-the-heat-index-humidity.html
+
 **NHL trade grades: Ducks cut bait on Trevor Zegras, selling low to the Flyers**\
 `The Ducks got a fourth-liner and two non-first-round picks. If that was the best they could get for the ex-phenom, why bother trading him?`\
 https://nytimes.com/athletic/6445896/2025/06/23/trevor-zegras-flyers-ducks-trade-grades/
+
+**Pacers' Tyrese Haliburton tears Achilles, likely to miss next season: Sources**\
+`Haliburton sustained the injury in the first quarter of Indiana’s 103-91 loss in Game 7 of the NBA Finals.`\
+https://nytimes.com/athletic/6445557/2025/06/23/tyrese-haliburton-achilles-tear-nba-pacers/
 
 **PWHL Vancouver names Brian Idalski first-ever head coach**\
 `PWHL Vancouver's inaugural season will begin this fall at Pacific Coliseum.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6429518/2025/06/23/crystal-palace-transfers-walter-
 **2025 NBA mock draft: Why Ace Bailey is the mystery man of draft week**\
 `What wilI the Suns do after the Kevin Durant trade? Here's everything Sam Vecenie is hearing ahead of Wednesday's first round.`\
 https://nytimes.com/athletic/6434991/2025/06/23/nba-draft-2025-cooper-flagg-ace-bailey-dylan-harper/
-
-**Trevor Zegras traded from Anaheim Ducks to Philadelphia Flyers: Sources**\
-`Zegras had 12 goals and 20 assists in 57 games this season.`\
-https://nytimes.com/athletic/6445768/2025/06/23/zegras-trade-ducks-flyers/
-
-**Arnaldo Pomodoro, 98, Sculptor of Monumental Fractured Spheres, Dies**\
-`His bronze works — smooth-skinned orbs slashed to reveal complex cores — are in public places around the world, including outside the U.N. headquarters and in Vatican City.`\
-https://nytimes.com/2025/06/23/arts/arnaldo-pomodoro-dead.html
 
