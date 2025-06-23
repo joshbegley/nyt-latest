@@ -1,3 +1,15 @@
+**Group That Vandalized Trump Golf Course Faces U.K. Ban as Terrorist**\
+`The British government announced plans to proscribe the group, Palestine Action, after members broke into a military air base.`\
+https://nytimes.com/2025/06/23/world/europe/palestine-action-uk-government-ban.html
+
+**The Bounce: Now that the Thunder are NBA champions, will parity across the league soon cease?**\
+`After a memorable seven-game NBA Finals, this Thunder team is young and capable of bucking Silver’s push toward parity`\
+https://nytimes.com/athletic/6445197/2025/06/23/thunder-shai-gilgeous-alexander-nba-finals-mvp-parity-the-bounce/
+
+**Wild hire Greg Cronin to coach AHL Iowa, adding veteran voice in ex-Ducks boss**\
+`Cronin, who has vast head coaching experience at the collegiate, minor league and NHL level, replaces Brett McLean, who had none when hired.`\
+https://nytimes.com/athletic/6438208/2025/06/23/wild-greg-cronin-ahl-coach-hire/
+
 **You’ve Got ‘The Ick.’ Is Your Relationship Doomed?**\
 `Noisy eating, clapping when a plane lands — experts explain how to handle sudden feelings of disgust.`\
 https://nytimes.com/2025/06/23/well/the-ick.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candi
 **Israel widens its targets in another series of strikes on the Iranian capital.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
-
-**World Central Kitchen Resumes Gaza Operations After Nearly 7-Week Pause**\
-`The charity founded by the celebrity chef José Andrés has started preparing meals again. It halted activities when food supplies ran out during Israel’s aid blockade.`\
-https://nytimes.com/2025/06/23/world/middleeast/world-central-kitchen-gaza-restarts-meals.html
-
-**Tracking Tropical Storm Sepat**\
-`See the likely path and wind arrival times for Sepat.`\
-https://nytimes.com/interactive/2025/06/23/weather/sepat-map-path-tracker.html
-
-**Mailbag: Are Canadiens buying or selling? Plus, Kirby Dach’s future**\
-`The Canadiens' decision-makers are aggressively trying to work the trade market, but they're not about to do anything stupid.`\
-https://nytimes.com/athletic/6444760/2025/06/23/canadiens-trade-market-nhl-draft-mailbag/
 

@@ -1,3 +1,19 @@
+**You’ve Got ‘The Ick.’ Is Your Relationship Doomed?**\
+`Noisy eating, clapping when a plane lands — experts explain how to handle sudden feelings of disgust.`\
+https://nytimes.com/2025/06/23/well/the-ick.html
+
+**My One-Pan Zucchini-Pesto Orzo Is Supremely Summery**\
+`By Melissa Clark`\
+https://nytimes.com/2025/06/23/dining/one-pan-zucchini-pesto-orzo-is-supremely-summery.html
+
+**What I'm hearing about Penguins' NHL Draft plan, trades, Bryan Rust, Rickard Rakell**\
+`Which teams are potential trade partners? Will the Peguins trade Rust and Rakell? Here's what I know.`\
+https://nytimes.com/athletic/6443910/2025/06/23/penguins-nhl-draft-trades-free-agency/
+
+**Mailbag: Are Canadiens buying or selling? Plus, Kirby Dach’s future**\
+`The Canadiens' decision-makers are aggressively trying to work the trade market, but they're not about to do anything stupid.`\
+https://nytimes.com/athletic/6444760/2025/06/23/canadiens-trade-market-nhl-draft-mailbag/
+
 **Telfar’s Joyful, Shoppable Declaration of Independence**\
 `The designer celebrated 20 years of rewriting fashion’s rules.`\
 https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
