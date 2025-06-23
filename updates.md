@@ -1,3 +1,11 @@
+**The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
+`Fanatics Fest might be the best value for money in sports today.`\
+https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
+
+**What to watch in sports this week: NBA and NHL drafts, Caitlin Clark and USWNT**\
+`From 2025 draft classes to international matches, the sports week ahead offers us several suitable diversions.`\
+https://nytimes.com/athletic/6440938/2025/06/23/nba-draft-cooper-flagg-concacaf-uswnt-caitlin-clark-how-to-watch/
+
 **What We Learned About Trump’s Attack on Iran**\
 `Over the past week, President Trump claimed he would make a decision about Iran in “two weeks” and repeatedly pressed it to come to the negotiating table.`\
 https://nytimes.com/video/us/politics/100000010243701/trumps-public-statements-and-iran-planning.html
