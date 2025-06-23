@@ -1,3 +1,11 @@
+**The New York Times in Print for Monday, June 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/23/todays-new-york-times
+
+**‘The Bear,’ Plus 3 Things to Watch on TV This Week**\
+`The Hulu original series returns for its fourth season, and a new crime drama from Dennis Lehane airs.`\
+https://nytimes.com/2025/06/23/arts/television/what-to-watch-on-tv-this-week.html
+
 **Euro 2025: Belgium team guide - a threatening set piece but exposed defensively**\
 `From players to watch to pedigree and much more, we set out what to expect from Belgium at the European Championship`\
 https://nytimes.com/athletic/6425533/2025/06/23/belgium-team-guide-euro-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6405048/2025/06/23/antonio-cordero-newcastle-malaga
 **Euro 2025: Spain team guide - have things finally settled for the World Cup winners?**\
 `From players to watch to pedigree and much more, we set out what to expect from Spain at the European Championship`\
 https://nytimes.com/athletic/6437679/2025/06/23/spain-team-guide-euro-2025/
-
-**Extreme heat at the Club World Cup: Players and fans voice concerns as temperatures soar**\
-`A heatwave will hit the U.S. this week where players and fans at the Club World Cup are already concerned about the dangerous weather`\
-https://nytimes.com/athletic/6438084/2025/06/23/extreme-heat-club-world-cup/
-
-**What Brazil's early success at the Club World Cup says of its status as a football power**\
-`The four Brazilian clubs all top their groups at the Club World Cup. Is this the end to the decades of lamentation?`\
-https://nytimes.com/athletic/6444353/2025/06/23/brazilian-club-world-cup/
 

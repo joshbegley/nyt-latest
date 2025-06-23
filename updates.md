@@ -1,3 +1,11 @@
+**The New York Times in Print for Monday, June 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/23/todays-new-york-times
+
+**‘The Bear,’ Plus 3 Things to Watch on TV This Week**\
+`The Hulu original series returns for its fourth season, and a new crime drama from Dennis Lehane airs.`\
+https://nytimes.com/2025/06/23/arts/television/what-to-watch-on-tv-this-week.html
+
 **Euro 2025: Belgium team guide - a threatening set piece but exposed defensively**\
 `From players to watch to pedigree and much more, we set out what to expect from Belgium at the European Championship`\
 https://nytimes.com/athletic/6425533/2025/06/23/belgium-team-guide-euro-2025/
