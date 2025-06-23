@@ -1,5 +1,5 @@
 **Red Sox takeaways: Sloppy defense returns in wasted opportunity; Hunter Dobbins to IL**\
-`The sloppy play that has characterized much of the season for the Red Sox had dissipated of late, but reared its head again Sunday.`\
+`The sloppy play that has characterized much of the season for the Red Sox had dissipated recently, but reared its head again Sunday.`\
 https://nytimes.com/athletic/6444357/2025/06/22/red-sox-takeaways-hunter-dobbins-il/
 
 **Around Military Bases in the U.S., Unease Over What Comes Next**\
