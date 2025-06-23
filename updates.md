@@ -1,3 +1,7 @@
+**Democrats to Protest Trump’s Takeover of Kennedy Center With Pride Event**\
+`“This is our way of reoccupying the Kennedy Center,” said Jeffrey Seller of “Hamilton,” who was asked to stage the invite-only concert hosted by five senators.`\
+https://nytimes.com/2025/06/23/arts/music/kennedy-center-pride-concert.html
+
 **Goodbye to Berlin: New Novels Recall a City’s ‘Poor but Sexy’ Heyday**\
 `Several books published this year have examined a creative haven in Europe’s licentious, ultraliberal capital.`\
 https://nytimes.com/2025/06/23/books/review/berlin-novels.html
