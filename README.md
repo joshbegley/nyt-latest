@@ -1,3 +1,7 @@
+**What I'm hearing about Penguins' NHL Draft plan, trades, Bryan Rust, Rickard Rakell**\
+`Which teams are potential trade partners? Will the Peguins trade Rust and Rakell? Here's what I know.`\
+https://nytimes.com/athletic/6443910/2025/06/23/penguins-nhl-draft-trades-free-agency/
+
 **Telfar’s Joyful, Shoppable Declaration of Independence**\
 `The designer celebrated 20 years of rewriting fashion’s rules.`\
 https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/arts/music/haim-i-quit-review.html
 **Your Watch List**\
 `Interested in the movies you​’ve read about? ​Find the films you’ve saved all in one place.`\
 https://nytimes.com/interactive/2025/movies/watchlist.html
-
-**Fill In the Blank: Which World Cities Are in These Book Titles?**\
-`Try this short literary geography quiz that takes you around the globe.`\
-https://nytimes.com/interactive/2025/06/23/books/review/world-book-titles.html
 

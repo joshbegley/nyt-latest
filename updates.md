@@ -1,3 +1,11 @@
+**Telfar’s Joyful, Shoppable Declaration of Independence**\
+`The designer celebrated 20 years of rewriting fashion’s rules.`\
+https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
+
+**Israel widens its targets in another series of strikes on the Iranian capital.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
+
 **James Lloydovich Patterson, 91, Dies; Soviet Poet and Symbol of Racial Unity**\
 `Years after being catapulted to national fame in the U.S.S.R. as a child actor, he wrote about ideals of racial harmony and international solidarity.`\
 https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
