@@ -1,3 +1,7 @@
+**USMNT given battle, holds off Haiti to top Gold Cup group**\
+`The USMNT capped a perfect group stage, albeit in unimpressive fashion. Bigger tests await in the Gold Cup knockout rounds.`\
+https://nytimes.com/athletic/6444285/2025/06/22/usmnt-haiti-gold-cup-agyemang-tillman-highlights/
+
 **Shifting Views and Misdirection: How Trump Decided to Strike Iran**\
 `When Israel began its assault on Iran, President Trump kept his distance. But within days he was on a path that led to an extensive bombing mission aided by political and military ruses.`\
 https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6444009/2025/06/22/kevin-durant-trade-phoenix-suns-
 **A Supposedly Good Thing We’ll Never Do Again**\
 `USAID was the world’s largest humanitarian donor. So what was all that money being spent on?`\
 https://nytimes.com/2025/06/22/podcasts/a-supposedly-good-thing-well-never-do-again-this-american-life-nyt-audio.html
-
-**Bradley a Ryder Cup playing captain? He's open to change after Travelers win**\
-`Bradley, now an eight-time winner on the PGA Tour, said, "This definitely opens the door to play" after comeback win over Tommy Fleetwood.`\
-https://nytimes.com/athletic/6444295/2025/06/22/keegan-bradley-travelers-championship-tommy-fleetwood-2/
 
