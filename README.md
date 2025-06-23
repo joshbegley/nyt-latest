@@ -1,3 +1,7 @@
+**Compass Sues to Stop ‘Zillow Ban’**\
+`Compass, the real estate brokerage, claims that Zillow, the website that has 227 million unique visitors a month, has conspired to maintain a monopoly over digital home listings.`\
+https://nytimes.com/2025/06/23/realestate/compass-zillow-lawsuit.html
+
 **A Broncos coach stared at life’s ‘scariest time.’ The team ensured he didn’t face it alone**\
 `Zack Grossi was diagnosed with a cancerous chest tumor last October. His "inspiring" fight ended in a return to the coaching booth.`\
 https://nytimes.com/athletic/6433027/2025/06/23/broncos-zack-grossi-cancer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6444742/2025/06/23/minnesota-twins-starting-pitchin
 **After a turbulent year, can Keion White take the next step for the Patriots?**\
 `After he struggled in the latter half of 2024, what can we expect from White this fall as a piece of Mike Vrabel's new-look defense?`\
 https://nytimes.com/athletic/6432988/2025/06/23/keion-white-patriots-bounceback-training-camp/
-
-**How 3 Notre Dame O-line recruits from Michigan hope to help Irish take final step**\
-`Greg Patrick, Ben Nichols and Sullivan Garvin took almost identical paths toward joining Notre Dame's 'special' O-line class.`\
-https://nytimes.com/athletic/6440579/2025/06/23/notre-dame-fighting-irish-football-michigan/
 
