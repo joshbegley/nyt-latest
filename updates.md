@@ -1,3 +1,19 @@
+**Iran’s Weak Attack Is an Offramp. Trump Should Take It.**\
+`The threat of war may propel both sides to work more earnestly to get back to the negotiating table.`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
+
+**Cuomo and Mamdani Push to Raise Turnout in ‘Jump Ball’ Mayor’s Race**\
+`A new poll shows the New York City mayor’s race tightening in its final days. Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are scrambling for every last vote.`\
+https://nytimes.com/2025/06/23/nyregion/mayor-primary-mamdani-cuomo.html
+
+**Fernando Tatis, Jr. sues Big League Advance Fund for exploitative business practices**\
+`Tatis is suing Big League Advance Fund, alleging they have "for years run an unlicensed lending business that evades legal oversight."`\
+https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-advance-fund-lawsuit/
+
+**Blues free agency plans and concerns, plus contract updates, takeaways, more**\
+`The start of NHL free agency is only a week away, but the Blues GM is already tapping the brakes on a possible spending spree.`\
+https://nytimes.com/athletic/6445843/2025/06/23/blues-free-agency-draft-doug-armstrong/
+
 **The Briefing: Atletico 1 Botafogo 0 - Spaniards first Europeans eliminated after controversial Alvarez penalty call**\
 `Atletico were sent packing despite rallying late against an impressive Botafogo side`\
 https://nytimes.com/athletic/6435227/2025/06/23/atletico-madrid-1-botafogo-0-club-world-cup/
