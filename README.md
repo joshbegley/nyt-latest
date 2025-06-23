@@ -1,4 +1,4 @@
-**Astros' Jeremy Peña changes agencies, hires Scott Boras**\
+**Astros' Jeremy Peña changes agencies, hires Scott Boras: Source**\
 `Houston's star shortstop is batting .326 with a 144 OPS+ and will become a free agent after the 2027 season.`\
 https://nytimes.com/athletic/6446558/2025/06/23/astros-jeremy-pena-scott-boras-agent/
 
