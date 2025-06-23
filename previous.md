@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6444285/2025/06/22/usmnt-haiti-gold-cup-agyemang-ti
 `When Israel began its assault on Iran, President Trump kept his distance. But within days he was on a path that led to an extensive bombing mission aided by political and military ruses.`\
 https://nytimes.com/2025/06/22/us/politics/trump-iran-decision-strikes.html
 
-**Tyrese Haliburton suffers torn right Achilles during NBA Finals Game 7**\
+**Tyrese Haliburton suffers right Achilles injury during NBA Finals Game 7**\
 `Haliburton fell without contact and immediately pounded the court in agony without getting up.`\
 https://nytimes.com/athletic/6444379/2025/06/22/tyrese-haliburton-injury-nba-finals-game-7/
 
