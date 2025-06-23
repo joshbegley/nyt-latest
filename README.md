@@ -1,3 +1,11 @@
+**Trump Says ‘Time for Peace’ After Iran Gives Warning Before Firing on U.S. Base**\
+`The Pentagon said there were no reports of casualties after the strike on Al Udeid Air Base in Qatar, and President Trump said it was time for peace.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-missile-attack-us-base-qatar.html
+
+**What will Trevor Zegras' arrival mean for the Flyers' need at center?**\
+`"We hope he can find that magic again," GM Daniel Briere said of Zegras, acquired Monday in a trade with Anaheim.`\
+https://nytimes.com/athletic/6446600/2025/06/23/trevor-zegras-trade-flyers-center/
+
 **Astros' Jeremy Peña changes agencies, hires Scott Boras: Source**\
 `Houston's star shortstop is batting .326 with a 144 OPS+ and will become a free agent after the 2027 season.`\
 https://nytimes.com/athletic/6446558/2025/06/23/astros-jeremy-pena-scott-boras-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6446457/2025/06/23/nationwide-arena-upgrades-blue-j
 **The Israeli military escalated attacks on Tehran.**\
 `The latest barrage hit a notorious prison in Iran and a building near a humanitarian aid facility.`\
 https://nytimes.com/live/2025/world/israel-iran-maps-tracking/the-israeli-military-escalated-attacks-on-tehran
-
-**Iran Strikes Inflame War Powers Debate in Congress, Dividing Both Parties**\
-`Speaker Mike Johnson signaled he was not inclined to allow a vote on whether to authorize military strikes in Iran, while leading Democrats demanded a briefing and said the president had overstepped his power.`\
-https://nytimes.com/2025/06/23/us/politics/us-strikes-iran-warpowers-congress-debate.html
-
-**Iran Retaliates by Firing Missiles at U.S. Base in Qatar**\
-`Iran targeted the Al Udeid Air Base, the largest military installation in the Middle East. Qatar said its air defenses had intercepted the missiles, and the U.S. Defense Department reported no injuries.`\
-https://nytimes.com/video/world/middleeast/100000010245481/iran-fires-missiles-american-qatar-base.html
 
