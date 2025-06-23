@@ -1,3 +1,15 @@
+**Group That Vandalized Trump Golf Course Faces U.K. Ban as Terrorist**\
+`The British government announced plans to proscribe the group, Palestine Action, after members broke into a military air base.`\
+https://nytimes.com/2025/06/23/world/europe/palestine-action-uk-government-ban.html
+
+**The Bounce: Now that the Thunder are NBA champions, will parity across the league soon cease?**\
+`After a memorable seven-game NBA Finals, this Thunder team is young and capable of bucking Silver’s push toward parity`\
+https://nytimes.com/athletic/6445197/2025/06/23/thunder-shai-gilgeous-alexander-nba-finals-mvp-parity-the-bounce/
+
+**Wild hire Greg Cronin to coach AHL Iowa, adding veteran voice in ex-Ducks boss**\
+`Cronin, who has vast head coaching experience at the collegiate, minor league and NHL level, replaces Brett McLean, who had none when hired.`\
+https://nytimes.com/athletic/6438208/2025/06/23/wild-greg-cronin-ahl-coach-hire/
+
 **You’ve Got ‘The Ick.’ Is Your Relationship Doomed?**\
 `Noisy eating, clapping when a plane lands — experts explain how to handle sudden feelings of disgust.`\
 https://nytimes.com/2025/06/23/well/the-ick.html
