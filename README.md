@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6444621/2025/06/23/mexico-costa-rica-concacaf-gold-
 `The Handbrake Off team pick the player who has done the most for the club with the least fanfare.`\
 https://nytimes.com/athletic/6443032/2025/06/23/arsenal-most-underrated-player-podcast/
 
+**What to expect from Diego Coppola, Brighton's new centre-back from Serie A**\
+`Brighton have brought in a 21-year-old full Italy international with physical presence and adaptability - just what Hurzeler was after`\
+https://nytimes.com/athletic/6431506/2025/06/23/diego-coppola-brighton-transfer-analysis/
+
 **Tottenham target Antoine Semenyo's two-footedness strikes fear into opponents**\
 `The Bournemouth winger is on Spurs' radar, with his versatility likely to be a key factor in their interest`\
 https://nytimes.com/athletic/6440724/2025/06/23/tottenham-antoine-semenyo-analysis/
-
-**What will Antonio Cordero bring to Newcastle and what is their plan for him?**\
-`The 18-year-old winger was in demand and Newcastle hope he will prove a shrewd signing - whether he makes their first team or not`\
-https://nytimes.com/athletic/6405048/2025/06/23/antonio-cordero-newcastle-malaga/
 
