@@ -1,3 +1,7 @@
+**Maria Taylor named NBC's lead NBA, WNBA studio host next season: Source**\
+`Taylor also signed a multiyear contract extension with NBC Sports that will have her with the company deep into the 2020s, the source said.`\
+https://nytimes.com/athletic/6445390/2025/06/23/maria-taylor-nbc-peacock-nba-lead-studio-host/
+
 **Wrexham forward Paul Mullin joins Wigan on loan**\
 `Mullin leaves the Welsh club, now in the Championship, after three consecutive promotions and 110 goals in 172 matches.`\
 https://nytimes.com/athletic/6445972/2025/06/23/wrexham-transfers-paul-mullin-wigan/
