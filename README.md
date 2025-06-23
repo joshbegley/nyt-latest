@@ -1,8 +1,12 @@
+**The Pulse: A historic title and a massive what-if**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6444455/2025/06/23/pacers-thunder-game-7-the-pulse/
+
 **Sam Presti, Thunder were happy to keep building slowly. The players had other ideas**\
 `"This just kind of unfolded very quickly," Thunder architect Sam Presti said of his team's arrival.`\
 https://nytimes.com/athletic/6444729/2025/06/23/thunder-2025-nba-championship-path/
 
-**Phillies' righty hitters make a lefty pay in meaningful win over Mets they can build on**\
+**Phillies' righty hitters make a lefty pay in win over Mets they can build on**\
 `The Phillies' righty bats entered the game with a .690 OPS against lefties, 97 points worse than a season ago. But Sunday, they delivered.`\
 https://nytimes.com/athletic/6444603/2025/06/23/phillies-righty-hitters-vs-lefties-beat-mets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6444615/2025/06/23/new-york-mets-infield-conundrum/
 **The U.S. Bombed Iran. Now What?**\
 `The president’s decision to strike Iran is a high-stakes gamble — one that turns in part on whether Iran’s nuclear program has actually been destroyed.`\
 https://nytimes.com/2025/06/23/podcasts/the-daily/us-iran-israel-bomb.html
-
-**A Minnesota basketball legend returns: What led Lindsay Whalen back to the Lynx sideline?**\
-`Whalen took a break from basketball, but her expertise could be vital in getting the Lynx back to the WNBA Finals.`\
-https://nytimes.com/athletic/6431260/2025/06/23/lindsay-whalen-minnesota-lynx-return-coach/
 
