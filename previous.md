@@ -1,3 +1,7 @@
+**China Says the U.S. Damaged Its Own Credibility by Striking Iran**\
+`The rhetoric belies a more complicated reality, as Beijing has been one of Tehran’s biggest backers.`\
+https://nytimes.com/2025/06/23/world/asia/china-us-iran-credibility.html
+
 **Like Kylian Mbappe or Vinicius Jr, Xabi Alonso is one of Real Madrid's stars**\
 `There was more of a 'rock and roll' feel to Madrid's dramatic win over Pachuca, in which Alonso got to show off his managerial skills`\
 https://nytimes.com/athletic/6444371/2025/06/23/real-madrid-xabi-alonso-pachuca-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/nyregion/red-hook-brooklyn-waterfront.html
 **New York’s Prisons Were in Crisis. Did Hochul Do Enough to Fix Them?**\
 `After homicides behind bars and strikes by guards, Gov. Kathy Hochul made changes to New York’s budget. That did not satisfy prisoners’ advocates.`\
 https://nytimes.com/2025/06/23/nyregion/hochul-prison-policy.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/23/crosswords/spelling-bee-forum.html
 
