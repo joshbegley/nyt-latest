@@ -1,3 +1,7 @@
+**Astros' Jeremy Peña changes agencies, hires Scott Boras: Source**\
+`Houston's star shortstop is batting .326 with a 144 OPS+ and will become a free agent after the 2027 season.`\
+https://nytimes.com/athletic/6446558/2025/06/23/astros-jeremy-pena-scott-boras-agent/
+
 **Ad Giants, Seeking Merger, Agree to F.T.C.’s No-Boycott Deal**\
 `Omnicom and Interpublic said they would not direct their clients’ advertising away from media platforms because of the platforms’ political content.`\
 https://nytimes.com/2025/06/23/business/omnicom-interpublic-merger-ftc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/politics/us-strikes-iran-warpowers-congress-de
 **Iran Retaliates by Firing Missiles at U.S. Base in Qatar**\
 `Iran targeted the Al Udeid Air Base, the largest military installation in the Middle East. Qatar said its air defenses had intercepted the missiles, and the U.S. Defense Department reported no injuries.`\
 https://nytimes.com/video/world/middleeast/100000010245481/iran-fires-missiles-american-qatar-base.html
-
-**Iran’s Weak Attack Is an Offramp. Trump Should Take It.**\
-`The threat of war may propel both sides to work more earnestly to get back to the negotiating table.`\
-https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
 
