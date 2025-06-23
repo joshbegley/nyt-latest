@@ -1,3 +1,11 @@
+**What We Learned About Trump’s Attack on Iran**\
+`Over the past week, President Trump claimed he would make a decision about Iran in “two weeks” and repeatedly pressed it to come to the negotiating table.`\
+https://nytimes.com/video/us/politics/100000010243701/trumps-public-statements-and-iran-planning.html
+
+**Man United submit improved £60m bid for Mbeumo**\
+`The 25-year-old is entering the final year of his contract at Brentford, who do have the option to extend his stay by a further 12 months.`\
+https://nytimes.com/athletic/6404699/2025/06/23/manchester-united-transfers-bryan-mbeumo/
+
 **Immigrant Whom a Judge Is Accused of Aiding Agrees to a Plea Deal**\
 `Federal prosecutors say Judge Hannah C. Dugan helped the man evade immigration agents who were waiting in a Milwaukee courthouse to arrest him.`\
 https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
 `The European Union and Canada struck a defense agreement on Monday, a step toward closer military cooperation as relations with the United States have soured.`\
 https://nytimes.com/2025/06/23/world/europe/canada-eu-security-defense-trump.html
 
-**Reds DFA Jeimer Candelario halfway through $45-million contract**\
+**Reds designate Jeimer Candelario for assignment halfway through $45 million contract**\
 `Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
 https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388427/2025/06/23/jonny-evans-manchester-united-st
 **Elizabeth Street Garden Saved as Adams Kills Plan for Housing on Site**\
 `Randy Mastro, the first deputy mayor, called the deal to preserve the Manhattan garden a “win-win.” Backers of a longtime plan to build housing for older New Yorkers were livid.`\
 https://nytimes.com/2025/06/23/nyregion/elizabeth-street-garden-affordable-housing.html
-
-**A Bustling New York Mayoral Race Reaches a Pivotal Moment**\
-`The New York Times’s City Hall bureau chief preps us for the Democratic primary.`\
-https://nytimes.com/2025/06/23/insider/new-york-mayor.html
-
-**San Diego Wave transfer María Sánchez to Tigres UANL**\
-`Across her 40 appearances with the Wave, Sánchez tallied nine goals and seven assists.`\
-https://nytimes.com/athletic/6446131/2025/06/23/maria-sanchez-wave-tigres-transfer/
 

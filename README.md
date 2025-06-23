@@ -1,3 +1,11 @@
+**The coolest things at Fanatics Fest 2025: Brady vs. Manning, Durant shock and more**\
+`Fanatics Fest might be the best value for money in sports today.`\
+https://nytimes.com/athletic/6445556/2025/06/23/fanatics-fest-wembanyama-brady-durant/
+
+**What to watch in sports this week: NBA and NHL drafts, Caitlin Clark and USWNT**\
+`From 2025 draft classes to international matches, the sports week ahead offers us several suitable diversions.`\
+https://nytimes.com/athletic/6440938/2025/06/23/nba-draft-cooper-flagg-concacaf-uswnt-caitlin-clark-how-to-watch/
+
 **What We Learned About Trump’s Attack on Iran**\
 `Over the past week, President Trump claimed he would make a decision about Iran in “two weeks” and repeatedly pressed it to come to the negotiating table.`\
 https://nytimes.com/video/us/politics/100000010243701/trumps-public-statements-and-iran-planning.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6446202/2025/06/23/tottenham-transfers-kota-takai-j
 **Is Archer the answer to England's search for pace and threat?**\
 `All eyes were on Headingley on Monday but 90 minutes away one of their fastest bowlers was returning to first-class cricket after four years`\
 https://nytimes.com/athletic/6446105/2025/06/23/jofra-archer-england-india/
-
-**Evans agrees Manchester United youth development role**\
-`Evans, 37, made 241 first-team appearances for United over two spells as a player and won multiple trophies.`\
-https://nytimes.com/athletic/6388427/2025/06/23/jonny-evans-manchester-united-staff/
-
-**Elizabeth Street Garden Saved as Adams Kills Plan for Housing on Site**\
-`Randy Mastro, the first deputy mayor, called the deal to preserve the Manhattan garden a “win-win.” Backers of a longtime plan to build housing for older New Yorkers were livid.`\
-https://nytimes.com/2025/06/23/nyregion/elizabeth-street-garden-affordable-housing.html
 

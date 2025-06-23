@@ -1,3 +1,15 @@
+**What We Learned About Trump’s Attack on Iran**\
+`Over the past week, President Trump claimed he would make a decision about Iran in “two weeks” and repeatedly pressed it to come to the negotiating table.`\
+https://nytimes.com/video/us/politics/100000010243701/trumps-public-statements-and-iran-planning.html
+
+**Man United submit improved £60m bid for Mbeumo**\
+`The 25-year-old is entering the final year of his contract at Brentford, who do have the option to extend his stay by a further 12 months.`\
+https://nytimes.com/athletic/6404699/2025/06/23/manchester-united-transfers-bryan-mbeumo/
+
+**Reds designate Jeimer Candelario for assignment halfway through $45 million contract**\
+`Candelario signed a three-year deal with the Reds following a standout 2023 season. He hit just .207 with 22 homers in 134 for Cincinnati.`\
+https://nytimes.com/athletic/6446211/2025/06/23/reds-jeimer-candelario-dfa/
+
 **Immigrant Whom a Judge Is Accused of Aiding Agrees to a Plea Deal**\
 `Federal prosecutors say Judge Hannah C. Dugan helped the man evade immigration agents who were waiting in a Milwaukee courthouse to arrest him.`\
 https://nytimes.com/2025/06/23/us/judge-hannah-dugan-immigrant-plea.html
