@@ -1,3 +1,7 @@
+**Ad Giants, Seeking Merger, Agree to F.T.C.’s No-Boycott Deal**\
+`Omnicom and Interpublic said they would not direct their clients’ advertising away from media platforms because of the platforms’ political content.`\
+https://nytimes.com/2025/06/23/business/omnicom-interpublic-merger-ftc.html
+
 **Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained.**\
 `Bombing Iran without congressional authorization escalated a bipartisan trend of presidents bypassing the original intent of the Constitution.`\
 https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.html

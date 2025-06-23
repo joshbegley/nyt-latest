@@ -1,3 +1,7 @@
+**Ad Giants, Seeking Merger, Agree to F.T.C.’s No-Boycott Deal**\
+`Omnicom and Interpublic said they would not direct their clients’ advertising away from media platforms because of the platforms’ political content.`\
+https://nytimes.com/2025/06/23/business/omnicom-interpublic-merger-ftc.html
+
 **Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained.**\
 `Bombing Iran without congressional authorization escalated a bipartisan trend of presidents bypassing the original intent of the Constitution.`\
 https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010245481/iran-fires-missiles-a
 **Iran’s Weak Attack Is an Offramp. Trump Should Take It.**\
 `The threat of war may propel both sides to work more earnestly to get back to the negotiating table.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/iran-qatar-attack
-
-**Cuomo and Mamdani Push to Raise Turnout in ‘Jump Ball’ Mayor’s Race**\
-`A new poll shows the New York City mayor’s race tightening in its final days. Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are scrambling for every last vote.`\
-https://nytimes.com/2025/06/23/nyregion/mayor-primary-mamdani-cuomo.html
 
