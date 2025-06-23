@@ -1,3 +1,11 @@
+**Cuomo and Mamdani Push to Raise Turnout in ‘Jump Ball’ Mayor’s Race**\
+`A new poll shows the New York City mayor’s race tightening in its final days. Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are scrambling for every last vote.`\
+https://nytimes.com/2025/06/23/nyregion/mayor-primary-mamdani-cuomo.html
+
+**Fernando Tatis, Jr. sues Big League Advance Fund for exploitative business practices**\
+`Tatis is suing Big League Advance Fund, alleging they have "for years run an unlicensed lending business that evades legal oversight."`\
+https://nytimes.com/athletic/6446404/2025/06/23/fernando-tatis-jr-big-league-advance-fund-lawsuit/
+
 **The Briefing: Atletico 1 Botafogo 0 - Spaniards first Europeans eliminated after controversial Alvarez penalty call**\
 `Atletico were sent packing despite rallying late against an impressive Botafogo side`\
 https://nytimes.com/athletic/6435227/2025/06/23/atletico-madrid-1-botafogo-0-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/23/briefing/iran-missile-us-qatar-gaza-israel.html
 **Supreme Court Lets Trump Deport Migrants to Countries to Which They Have No Connection**\
 `The ruling applies immediately to a group of men the government has sought to send to South Sudan.`\
 https://nytimes.com/2025/06/23/us/politics/supreme-court-south-sudan-migrants.html
-
-**Iran’s Retaliation Could Be Just the Beginning**\
-`Nicholas Kristof on why the U.S. may be headed into a “minefield.”`\
-https://nytimes.com/2025/06/23/opinion/iran-strikes-qatar.html
-
-**Game 7 of Thunder-Pacers was most-watched NBA Finals game since 2019**\
-`The seven-game series finished with an average of 10.266 million viewers, down from the 11.3 million average for last year.`\
-https://nytimes.com/athletic/6446312/2025/06/23/thunder-pacers-game-7-ratings/
 

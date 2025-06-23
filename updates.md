@@ -1,3 +1,11 @@
+**The Briefing: Atletico 1 Botafogo 0 - Spaniards first Europeans eliminated after controversial Alvarez penalty call**\
+`Atletico were sent packing despite rallying late against an impressive Botafogo side`\
+https://nytimes.com/athletic/6435227/2025/06/23/atletico-madrid-1-botafogo-0-club-world-cup/
+
+**Former Astronaut Launches Texas Senate Run by Hitting Both Parties**\
+`Terry Virts, an early entrant in the Democratic field targeting Senator John Cornyn’s seat, appeared eager to take on his own party as well as President Trump’s.`\
+https://nytimes.com/2025/06/23/us/terry-virts-john-cornyn-senate-texas.html
+
 **The Briefing: Seattle Sounders 0 PSG 2 - Bizarre goal helps European champions qualify for last 16**\
 `Our writers analyse end evaluate the key talking points from Paris Saint-Germain's victory at the Club World Cup`\
 https://nytimes.com/athletic/6435214/2025/06/23/seattle-sounders-0-psg-2-the-briefing/
