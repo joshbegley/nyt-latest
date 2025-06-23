@@ -1,3 +1,11 @@
+**Fantasy baseball cheat sheet: Fade David Peterson, Seth Lugo and more THE BAT X insights**\
+`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6445273/2025/06/23/fantasy-baseball-the-bat-x-peterson-lugo/
+
+**Liberty Media's $4.2bn MotoGP deal finally gets European Commission approval**\
+`Formula One's commercial rights have been owned by Liberty since 2017.`\
+https://nytimes.com/athletic/6445608/2025/06/23/motogp-liberty-media-f1/
+
 **Group That Vandalized Trump Golf Course Faces U.K. Ban as Terrorist**\
 `The British government announced plans to proscribe the group, Palestine Action, after members broke into a military air base.`\
 https://nytimes.com/2025/06/23/world/europe/palestine-action-uk-government-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/23/style/telfar-20th-anniversary-show.html
 **James Lloydovich Patterson, 91, Dies; Soviet Poet and Symbol of Racial Unity**\
 `Years after being catapulted to national fame in the U.S.S.R. as a child actor, he wrote about ideals of racial harmony and international solidarity.`\
 https://nytimes.com/2025/06/23/world/europe/james-lloydovich-patterson-dead.html
-
-**What we're hearing about Pac-12 expansion after it announced a TV deal with CBS**\
-`The revamped Pac-12 has seven football members for 2026 and needs an eighth as it finalizes its TV deals, including one with CBS.`\
-https://nytimes.com/athletic/6445237/2025/06/23/pac-12-tv-deal-realignment-candidates/
-
-**Israel widens its targets in another series of strikes on the Iranian capital.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2025/06/23/world/iran-trump-israel-news/israel-widens-targets-in-another-series-of-strikes-on-the-iranian-capital
 
