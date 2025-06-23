@@ -1,4 +1,4 @@
-**All the FIFA Club World Cup permutations as final round of group games begin**\
+**All the FIFA Club World Cup permutations as final round of group games begins**\
 `As the 32 sides at the tournament prepare for their third and final group game here's who can go through to the knockouts, and how`\
 https://nytimes.com/athletic/6443102/2025/06/23/club-world-cup-group-permutations/
 
