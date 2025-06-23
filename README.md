@@ -1,5 +1,13 @@
+**The Curtain Drops on Improv Theater for the New York Police**\
+`Police Commissioner Jessica Tisch said a staffing crisis kept her from letting officers participate in a Brooklyn theater group that began after the death of Eric Garner, who died after a police officer put him in a chokehold, in 2014.`\
+https://nytimes.com/2025/06/23/nyregion/nypd-acting-improv-class.html
+
+**What Jaka Bijol will bring to Leeds: Patience, aerial strength and football intelligence**\
+`The data suggests the Slovenia centre-back can read play, anticipate danger and pick the right moments to be aggressive`\
+https://nytimes.com/athletic/6435724/2025/06/23/jaka-bijol-profile-leeds-united/
+
 **Lionel Messi's 50 Inter Miami goals: How the legend has scored for his MLS side**\
-`Lionel Messi hit the 50-goal landmark with Miami after striking a trademark free kick vs. Porto in the Club World Cup`\
+`Messi hit the 50-goal landmark with Miami after striking a trademark free kick vs. Porto in the Club World Cup`\
 https://nytimes.com/athletic/6445678/2025/06/23/lionel-messi-50-goals-inter-miami/
 
 **Nearly 150 Report Being Jabbed With Needles at French Music Festival**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6445589/2025/06/23/d-wayne-lukas-hospitalized-horse
 **As Black New Yorkers Move Out, N.Y.C. Politics May Be Reshaped**\
 `Housing affordability and quality-of-life concerns are pushing longtime Black New Yorkers out of the city, underscoring Democrats’ challenges with their base ahead of the mayoral election.`\
 https://nytimes.com/2025/06/23/nyregion/nyc-mayor-black-voters.html
-
-**This Powerful Telescope Quickly Found 2,100 New Asteroids**\
-`The Vera C. Rubin Observatory is expected to find millions of unknown objects in our solar system, and perhaps even a mysterious Planet Nine.`\
-https://nytimes.com/2025/06/23/science/rubin-telescope-asteroids.html
-
-**The NHL's busy season is here, and we've got oddly specific predictions**\
-`Let’s all grab the popcorn bags and see where this goes.`\
-https://nytimes.com/athletic/6445607/2025/06/23/red-light-newsletter-nhl-draft-free-agency/
 
