@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6445584/2025/06/24/de-bruyne-future-napoli-chicago-
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/heres-the-latest
 
 **Live Updates: Israel and Iran Agree to Cease-Fire Announced By Trump**\
-`Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal.`\
+`Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal, which halts 12 days of fierce fighting.`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
 
 **Jimmy Fallon Wonders What Trump Will Launch Next**\
