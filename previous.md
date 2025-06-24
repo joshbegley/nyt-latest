@@ -22,6 +22,14 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**JB Pritzker to Seek Third Term as Illinois Governor**\
+`Mr. Pritzker, a Democrat and billionaire hotel heir, has emerged as a vocal critic of President Trump and a possible presidential contender.`\
+https://nytimes.com/2025/06/24/us/governor-jb-pritzker-illinois-reelection.html
+
+**Pride Flags Slashed at an Atlanta L.G.B.T.Q. Landmark**\
+`Authorities were considering hate crime charges after a group of young men tore Pride flags at a rainbow crosswalk in Atlanta on Tuesday.`\
+https://nytimes.com/video/us/100000010248608/atlanta-pride-lgbtq-flag-vandalism.html
+
 **How People Are Coping With the East Coast Heat Spike**\
 `A brutally hot day across the Eastern United States left residents struggling to find relief.`\
 https://nytimes.com/2025/06/24/us/heat-wave-east-coast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/us/heat-wave-east-coast.html
 **House Conservatives Warn They Can’t Back Senate Bill to Enact Trump’s Agenda**\
 `Both President Trump and Senate Republican leaders are pressing for the House to accept their version of the sprawling domestic policy bill, but some right-wing holdouts are opposed to key pieces.`\
 https://nytimes.com/2025/06/24/us/politics/house-conservatives-senate-big-beautiful-bill.html
-
-**With Hours Left in the Primary, the Stars Come Out for Mamdani**\
-`Celebrities like Lorde, Emily Ratajkowski, Cynthia Nixon and Bowen Yang have expressed support for Zohran Mamdani in the New York City mayor’s race.`\
-https://nytimes.com/2025/06/24/nyregion/emily-ratajkowski-mamdani-bowen-yang.html
-
-**A Plan to Sell Federal Land Near This Colorado Town Looks Dead. Here’s Why.**\
-`Senator Mike Lee hoped to sell millions of acres of federal land through President Trump’s policy bill, in part to ease housing costs. The opposition was bipartisan, in Congress and the West.`\
-https://nytimes.com/2025/06/24/us/politics/mike-lee-public-lands-selloff-colorado.html
 
