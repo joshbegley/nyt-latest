@@ -1,3 +1,7 @@
+**Mavericks, Daniel Gafford closing in on extension: Source**\
+`Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
+https://nytimes.com/athletic/6446807/2025/06/23/mavericks-daniel-gafford-extension/
+
 **Judge Blocks Trump Proclamation Barring Harvard’s International Students**\
 `The same judge issued an order last week blocking a separate government effort to keep the school from enrolling students from abroad.`\
 https://nytimes.com/2025/06/23/us/harvard-trump-international-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6446657/2025/06/23/psg-club-world-cup-champions-lea
 **Trump Says ‘Time for Peace’ After Iran Gives Warning Before Firing on U.S. Base**\
 `The Pentagon said there were no reports of casualties after the strike on Al Udeid Air Base in Qatar, and President Trump said it was time for peace.`\
 https://nytimes.com/2025/06/23/world/middleeast/iran-missile-attack-us-base-qatar.html
-
-**What will Trevor Zegras' arrival mean for the Flyers' need at center?**\
-`"We hope he can find that magic again," GM Daniel Briere said of Zegras, acquired Monday in a trade with Anaheim.`\
-https://nytimes.com/athletic/6446600/2025/06/23/trevor-zegras-trade-flyers-center/
 
