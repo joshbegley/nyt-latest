@@ -1,3 +1,11 @@
+**Design for Queen Elizabeth II Memorial Features a Tiara-Inspired Bridge**\
+`A London park is to host monuments celebrating Britain’s longest-reigning monarch, with two statues also planned.`\
+https://nytimes.com/2025/06/24/world/europe/queen-elizabeth-memorial-bridge.html
+
+**Tehran Endures Night of Heavy Attacks Before Cease-Fire Is Announced**\
+`Large flames illuminated the night sky as airstrikes pummeled the Iranian capital, residents said. Later on Tuesday morning, state television said a cease-fire had been agreed to with Israel.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-war-ceasefire-tehran-strikes.html
+
 **Spain 6-5 Germany: Breaking down an absolutely wild game of football**\
 `Welcome to a match that had a missed penalty, a calamitous own goal, and two separate hat-tricks — including a goal straight from a corner `\
 https://nytimes.com/athletic/6447541/2025/06/24/spain-6-germany-5-euro-u19-analysis/

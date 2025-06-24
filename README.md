@@ -1,3 +1,7 @@
+**Final mayoral primary polls suggest a dead heat between Cuomo and Mamdani.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/final-mayoral-primary-polls-suggest-a-dead-heat-between-cuomo-and-mamdani
+
 **Design for Queen Elizabeth II Memorial Features a Tiara-Inspired Bridge**\
 `A London park is to host monuments celebrating Britain’s longest-reigning monarch, with two statues also planned.`\
 https://nytimes.com/2025/06/24/world/europe/queen-elizabeth-memorial-bridge.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-may
 **Why N.Y.C. Business Leaders Fear Mamdani**\
 `As voters head to the polls, the democratic socialist candidate appears to be neck-and-neck with Andrew Cuomo. That has many executives worried.`\
 https://nytimes.com/2025/06/24/business/dealbook/new-york-mayor-mamdani-cuomo-business.html
-
-**Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
-`The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
-https://nytimes.com/2025/06/24/business/fed-jerome-powell-interest-rates.html
 

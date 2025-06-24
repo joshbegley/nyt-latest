@@ -1,3 +1,11 @@
+**Design for Queen Elizabeth II Memorial Features a Tiara-Inspired Bridge**\
+`A London park is to host monuments celebrating Britain’s longest-reigning monarch, with two statues also planned.`\
+https://nytimes.com/2025/06/24/world/europe/queen-elizabeth-memorial-bridge.html
+
+**Tehran Endures Night of Heavy Attacks Before Cease-Fire Is Announced**\
+`Large flames illuminated the night sky as airstrikes pummeled the Iranian capital, residents said. Later on Tuesday morning, state television said a cease-fire had been agreed to with Israel.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-war-ceasefire-tehran-strikes.html
+
 **Spain 6-5 Germany: Breaking down an absolutely wild game of football**\
 `Welcome to a match that had a missed penalty, a calamitous own goal, and two separate hat-tricks — including a goal straight from a corner `\
 https://nytimes.com/athletic/6447541/2025/06/24/spain-6-germany-5-euro-u19-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/business/dealbook/new-york-mayor-mamdani-cuomo-bu
 **Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
 `The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
 https://nytimes.com/2025/06/24/business/fed-jerome-powell-interest-rates.html
-
-**World Leaders Cautiously Welcome Israel-Iran Cease-Fire**\
-`In the shaky first hours of the truce, officials were largely positive about the agreement to end the fighting but expressed concern that it remained fragile.`\
-https://nytimes.com/2025/06/24/world/middleeast/world-leaders-israel-iran-ceasefire.html
-
-**Video Captures Explosion at Military Base North of Iraqi Capital**\
-`The Iraqi authorities said a wave of drones targeted several Iraqi military bases in the early hours of Tuesday, including the Taji base 12 miles north of Baghdad, hours after Iran launched missiles at a U.S. base in Qatar.`\
-https://nytimes.com/video/world/middleeast/100000010246718/iraq-taji-base-explosion-iran.html
 
