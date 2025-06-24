@@ -1,3 +1,7 @@
+**Grant Hill to join NBC's NBA coverage for 2025-26 season**\
+`Hill will keep his role at TNT Sports as a college basketball analyst for the NCAA Tournament.`\
+https://nytimes.com/athletic/6448015/2025/06/24/grant-hill-nbc-nba-coverage/
+
 **How South Africa's 1995 Rugby World Cup win united and 'galvanised' a nation**\
 `Nelson Mandela not only put his reputation on the line but spent significant political capital actively supporting the Springboks in 1995 `\
 https://nytimes.com/athletic/6445062/2025/06/24/south-africa-1995-rugby-world-cup-win-anniversary/
