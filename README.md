@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
-**Why Adrienne Adams declined to cross-endorse Zohran Mamdani.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/why-adrienne-adams-declined-to-cross-endorse-zohran-mamdani
+**Wednesday Briefing: New Details About U.S. Strikes on Iran**\
+`Plus, Australia’s “Flying Padres”`\
+https://nytimes.com/2025/06/24/briefing/iran-us-strikes-israel-nato-trump.html
 
-**Talking Yankees trade deadline, Aaron Boone’s biggest strength, Jasson Domínguez’s splits**\
-`Chris Kirschner discussed a variety of Yankees topics during a live Q&A. But, unsurprisingly, trade talk dominated the discussion. `\
-https://nytimes.com/athletic/6448906/2025/06/24/yankees-trade-deadline-aaron-boone-jasson-dominguez/
+**Alex Rodriguez, Marc Lore outline their vision as new owners of Wolves and Lynx**\
+`The new general partners of Minnesota's basketball teams say they have no intention of moving the teams, but must replace Target Center.`\
+https://nytimes.com/athletic/6447043/2025/06/24/timberwolves-owners-alex-rodriguez-a-rod-marc-lore/
 
-**Canada’s Biggest City Wilts Under Intense Heat**\
-`Sweltering temperatures not seen in Toronto in nearly a decade have prompted health alerts, pool closures and warnings to students to expect “uncomfortable conditions.”`\
-https://nytimes.com/2025/06/24/world/canada/toronto-heat-wave.html
+**The Briefing: Benfica 1 Bayern 0 - How did players cope with heat? Has Kompany got a Musiala deputy?**\
+`Seb Stafford-Bloor and Mark Carey break down the action from Bank of America Stadium, Charlotte`\
+https://nytimes.com/athletic/6443026/2025/06/24/benfica-bayern-munich-heat-club-world-cup/
 
-**NBA trade grades: Do the Pels need Jordan Poole? How can CJ McCollum help Washington?**\
-`Washington will add some leadership and financial flexibility, but New Orleans' plans seem less clear.`\
-https://nytimes.com/athletic/6448882/2025/06/24/jordan-poole-cj-mccollum-wizards-pelicans-trade-grades/
+**If This Mideast War Is Over, Get Ready for Some Interesting Politics**\
+`Everyone went all the way in the Israel-Iran conflict, bursting through psychological and military barriers we never imagined would be breached.`\
+https://nytimes.com/2025/06/24/opinion/iran-israel-regime-change.html
 
