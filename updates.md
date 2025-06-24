@@ -1,3 +1,11 @@
+**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`Welcome to the fourth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6443074/2025/06/24/man-utd-arsenal-liverpool-transfer-news/
+
+**Naples, Chicago and a Liverpool chat: How Kevin De Bruyne's post-Man City career was decided**\
+`There was an understandable clamour for the Belgian once it was known he was leaving City — here's how it played out`\
+https://nytimes.com/athletic/6445584/2025/06/24/de-bruyne-future-napoli-chicago-liverpool/
+
 **Here’s the latest.**\
 `By Patrick Kingsley, Isabel Kershner and Aaron Boxerman`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/heres-the-latest

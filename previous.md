@@ -1,3 +1,11 @@
+**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`Welcome to the fourth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6443074/2025/06/24/man-utd-arsenal-liverpool-transfer-news/
+
+**Naples, Chicago and a Liverpool chat: How Kevin De Bruyne's post-Man City career was decided**\
+`There was an understandable clamour for the Belgian once it was known he was leaving City — here's how it played out`\
+https://nytimes.com/athletic/6445584/2025/06/24/de-bruyne-future-napoli-chicago-liverpool/
+
 **Here’s the latest.**\
 `By Patrick Kingsley, Isabel Kershner and Aaron Boxerman`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6447203/2025/06/24/jrue-holiday-trade-grades-nba-an
 **‘Unsafe to Inhabit’: The Toxic Homes of L.A.**\
 `After the fires clouded neighborhoods in smoke, residents whose homes were spared learned that danger was still lurking in the walls, the furniture and the air. But their insurers have doubts.`\
 https://nytimes.com/interactive/2025/06/24/realestate/los-angeles-fires-toxic-homes.html
-
-**NBA star James Harden sued for alleged negligence in sexual assault case**\
-`Lawsuit accuses Harden's nephew of sexual assault at New Year's party.`\
-https://nytimes.com/athletic/6447197/2025/06/24/james-harden-lawsuit-sexual-assault-negligence-clippers/
-
-**Putin Has Lost the West. This Was Not the Plan.**\
-`The loss is a tragedy for Russia.`\
-https://nytimes.com/2025/06/24/opinion/putin-trump-nato-russia.html
 
