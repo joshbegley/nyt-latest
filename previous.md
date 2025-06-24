@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
-**Wizards trading Jordan Poole to Pelicans for CJ McCollum: Sources**\
-`The deal also sends Saddiq Bey to New Orleans and Kelly Olynyk to Washington. `\
-https://nytimes.com/athletic/6448901/2025/06/24/pelicans-trade-cj-mccollum-wizards-jordan-poole/
+**White House Postpones Briefing Congress on Iran Strikes**\
+`Democrats reacted with outrage after the Trump administration, which has yet to consult with Congress on its strikes against Iran, delayed a planned briefing with lawmakers on Capitol Hill.`\
+https://nytimes.com/2025/06/24/world/middleeast/white-house-briefing-iran-strikes.html
 
-**Lyon relegated to Ligue 2 following review of financial situation**\
-`The French club failed to improve their financial situation before the end of the season. `\
-https://nytimes.com/athletic/6447717/2025/06/24/lyon-relegation-ligue-2/
+**Did Iran or Israel Violate the Cease-Fire Overnight?**\
+`The period after President Trump announced the cease-fire was muddied by time zone differences, unclear wording in statements and continuing strikes.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-ceasefire-timeline.html
 
-**Manhattan Democrats Will Weigh Tenure of District Attorney in Primary**\
-`Patrick Timmins, who is challenging Alvin L. Bragg, says the groundbreaking felony conviction of President Trump is irrelevant. He promises to tackle crime in the subway.`\
-https://nytimes.com/2025/06/24/nyregion/manhattan-district-attorney-primary.html
+**The Democratic primary won’t necessarily determine who will become mayor.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-democratic-primary-wont-necessarily-determine-who-will-become-mayor
 
-**A Running List of Policies Rejected From the Republican Megabill**\
-`So far, the parliamentarian has determined that dozens of provisions do not pass muster to be included.`\
-https://nytimes.com/interactive/2025/06/24/upshot/reconciliation-byrd-bath.html
+**Hockey Hall of Fame 2025 class includes Chara, Keith, Thornton, Mogilny, Botterill**\
+`An induction ceremony will be held for the eight new members on Nov. 10 in Toronto.`\
+https://nytimes.com/athletic/6448953/2025/06/24/hockey-hall-fame-chara-keith-thornton/
 
