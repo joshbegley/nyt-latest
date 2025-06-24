@@ -1,3 +1,7 @@
+**Scenes From the Hottest Blocks in New York City**\
+`Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
+https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
+
 **Scenes From the Hottest Block in New York City**\
 `Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
 https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
