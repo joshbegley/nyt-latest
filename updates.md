@@ -1,3 +1,11 @@
+**Indonesia Plans Helicopter Rescue for Hiker Who Fell Off Volcano Trail**\
+`The hiker, a Brazilian in her 20s, has been unreachable since Saturday, when she fell while climbing Mount Rinjani, her family said.`\
+https://nytimes.com/2025/06/24/world/asia/brazilian-indonesia-volcano-rescue.html
+
+**Video Shows Belongings of Tourist Who Fell Hiking Indonesian Volcano**\
+`A search and rescue team found a flashlight and hiking pole that were believed to belong to a woman who fell while hiking Mount Rinjani in Indonesia.`\
+https://nytimes.com/video/world/asia/100000010246544/indonesia-tourist-mount-rinjani.html
+
 **Live Updates: Israel and Iran Agree to Cease-Fire Announced by Trump**\
 `Both countries announced the truce in separate statements on Tuesday morning. Underscoring the fragility of the deal, soon after it went into effect, Israel said Iran had fired another missile barrage and threatened to retaliate.`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
