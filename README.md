@@ -1,3 +1,15 @@
+**NBA star James Harden sued for alleged negligence in sexual assault case**\
+`Lawsuit accuses Harden's nephew of sexual assault at New Year's party.`\
+https://nytimes.com/athletic/6447197/2025/06/24/james-harden-lawsuit-sexual-assault-negligence-clippers/
+
+**Putin Has Lost the West. This Was Not the Plan.**\
+`The loss is a tragedy for Russia.`\
+https://nytimes.com/2025/06/24/opinion/putin-trump-nato-russia.html
+
+**The New York Times in Print for Tuesday, June 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/24/todays-new-york-times
+
 **The Yankees have been a brutal watch in June. Here's why**\
 `Without better offense in scoring opportunities, the Yankees will continue to frustrate fans while their lead in the division shrinks.`\
 https://nytimes.com/athletic/6447049/2025/06/24/yankees-brutal-watch-june/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6411784/2025/06/24/portugal-team-guide-euro-2025/
 **Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/24/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
-
-**What's going on with Rodrygo at Madrid?**\
-`Rodrygo's future is unclear after not featuring at all in Madrid's latest Club World Cup game against Pachuca`\
-https://nytimes.com/athletic/6445808/2025/06/24/rodrygo-real-madrid-transfer-future/
-
-**Where does the word 'soccer' come from?**\
-`While 'soccer' is used to differentiate between two popular sports in America, it originated at a prestigious British university`\
-https://nytimes.com/athletic/5900907/2025/06/24/soccer-football-origin-name/
-
-**Are players signed for record-breaking transfer fees affected by the pressure of their price?**\
-`What the likes of Shearer, Ferdinand, Collymore and Francis have said about becoming a club's most expensive ever buy`\
-https://nytimes.com/athletic/6445130/2025/06/24/are-players-signed-for-record-breaking-transfer-fees-affected-by-the-pressure-wirtz/
 
