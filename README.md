@@ -22,6 +22,14 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Auckland City 1 Boca Juniors 1 - Amateurs humble Boca with surprise draw to 'get respect back'**\
+`Analysis of Auckland City's remarkable draw against Boca Juniors`\
+https://nytimes.com/athletic/6448876/2025/06/24/auckland-city-boca-juniors-get-respect-back/
+
+**Gout, 17, sets new Australian 200m record on senior international debut**\
+`The 17-year-old clocked a time of 20.02 seconds to eclipse his own previous record of 20.04.`\
+https://nytimes.com/athletic/6449274/2025/06/24/gout-gout-200m-national-record/
+
 **Lynn Hamilton, a Steady Presence on ‘Sanford and Son,’ Dies at 95**\
 `A former Broadway actress, she was a no-nonsense foil for the unruly Fred Sanford. She also warmed hearts with a recurring role on the “The Waltons.”`\
 https://nytimes.com/2025/06/24/arts/television/lynn-hamilton-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/arts/television/lynn-hamilton-dead.html
 **Man Charged With Helping California Fertility Clinic Bomber Dies in Custody**\
 `Daniel Park, 32, of Washington State, was found unresponsive Tuesday morning and was later pronounced dead at the hospital, the authorities said. No cause was given.`\
 https://nytimes.com/2025/06/24/us/california-fertility-clinic-bombing-suspect-dead.html
-
-**Man in Jan. 6 Riot Ordered to Pay $500,000 to Family of Officer Who Later Killed Himself**\
-`A federal jury found that the man, David Walls-Kaufman, had assaulted Officer Jeffrey Smith, who later died by suicide.`\
-https://nytimes.com/2025/06/24/us/politics/capitol-police-suicide-january-6.html
-
-**Cease-Fire Between Israel and Iran Appears to Hold After Trump Rebuke**\
-`The truce went into effect after pressure from President Trump and Qatar. Israel said its forces were now shifting their attention back to Gaza.`\
-https://nytimes.com/2025/06/24/world/middleeast/israel-iran-ceasefire-trump.html
 
