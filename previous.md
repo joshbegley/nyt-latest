@@ -1,3 +1,7 @@
+**The Yankees have been a brutal watch in June. Here's why**\
+`Without better offense in scoring opportunities, the Yankees will continue to frustrate fans while their lead in the division shrinks.`\
+https://nytimes.com/athletic/6447049/2025/06/24/yankees-brutal-watch-june/
+
 **Tuesday Briefing**\
 `A possible cease-fire between Israel and Iran.`\
 https://nytimes.com/2025/06/24/briefing/israel-iran-truce-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900907/2025/06/24/soccer-football-origin-name/
 **Are players signed for record-breaking transfer fees affected by the pressure of their price?**\
 `What the likes of Shearer, Ferdinand, Collymore and Francis have said about becoming a club's most expensive ever buy`\
 https://nytimes.com/athletic/6445130/2025/06/24/are-players-signed-for-record-breaking-transfer-fees-affected-by-the-pressure-wirtz/
-
-**Women's Euros 2025: Guide to Group A - Hosts' hopes, Hegerberg and a long-throw weapon**\
-`Everything you need to know about Group A at Euro 2025, which features hosts Switzerland, Norway, Iceland and Finland`\
-https://nytimes.com/athletic/6415547/2025/06/24/womens-euros-2025-group-a-guide/
 

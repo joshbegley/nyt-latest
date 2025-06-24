@@ -1,3 +1,7 @@
+**The Yankees have been a brutal watch in June. Here's why**\
+`Without better offense in scoring opportunities, the Yankees will continue to frustrate fans while their lead in the division shrinks.`\
+https://nytimes.com/athletic/6447049/2025/06/24/yankees-brutal-watch-june/
+
 **Tuesday Briefing**\
 `A possible cease-fire between Israel and Iran.`\
 https://nytimes.com/2025/06/24/briefing/israel-iran-truce-gaza.html
