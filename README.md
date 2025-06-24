@@ -1,3 +1,19 @@
+**Extreme Heat Is Exacerbating Air Pollution, a ‘Double Whammy’ for Health**\
+`Extreme heat is making air pollution worse, scientists say. And President Trump’s regulatory rollbacks could drive air pollution even higher.`\
+https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html
+
+**Rangers to send Penguins No. 12 pick in 2025 NHL Draft, keeping 2026 first-rounder**\
+`The Rangers had to decide whether to send the Penguins this year's first-rounder or next year's to complete the J.T. Miller trade.`\
+https://nytimes.com/athletic/6448101/2025/06/24/rangers-penguins-draft-pick-trade/
+
+**What's new in EA Sports College Football 26's Dynasty mode and what we still want to see**\
+`Asthe July 10 release date gets closer, we can finally talk about the foundational part of the College Football 26 video game: Dynasty mode.`\
+https://nytimes.com/athletic/6446454/2025/06/24/college-football-26-dynasty-mode-ea-sports/
+
+**Smashed Cucumber and Chicken Salad Because It’s Too Hot to Cook**\
+`“SOLID HOT SUMMER DISH,” says Rita, a reader.`\
+https://nytimes.com/2025/06/24/dining/smashed-cucumber-and-chicken-salad-recipe.html
+
 **With $25 Million, Pro-Cuomo Super PAC Shatters Outside Spending Records**\
 `Former Gov. Andrew M. Cuomo’s candidacy has been bankrolled by the largest super PAC ever created in a New York City mayoral campaign.`\
 https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-campaign-finance.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/24/us/politics/nato-trump-preview.html
 **The Bounce: Can the Cavaliers, Knicks dominate a potentially wide-open East? The WOE meter answers**\
 `Injuries cast a dark cloud over an otherwise fun NBA postseason. Will those same injuries leave the East wide open next season?`\
 https://nytimes.com/athletic/6447855/2025/06/24/cavaliers-knicks-pacers-tyrese-haliburton-nba-east-playoffs-the-bounce/
-
-**Tropical Storm Andrea Forms in the Atlantic**\
-`See the likely path and wind arrival times for Andrea.`\
-https://nytimes.com/interactive/2025/06/24/weather/andrea-map-path-tracker.html
-
-**Here Are 5 Key City Council Races to Watch in the N.Y.C. Primary**\
-`In two bitterly contested races in Brooklyn, Democratic candidates have clashed over Gaza, while in Manhattan Anthony Weiner is trying to return to the Council.`\
-https://nytimes.com/2025/06/24/nyregion/nyc-democratic-primary-city-council.html
-
-**The Windup: Reds' top prospect debuting vs. Yankees tonight**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6447434/2025/06/24/chase-burns-reds-debut-the-windup/
-
-**‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
-`Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened” — and the lesson he took away.`\
-https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
 
