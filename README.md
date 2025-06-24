@@ -1,3 +1,7 @@
+**Scenes From the Hottest Block in New York City**\
+`Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
+https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
+
 **Royal Domain**\
 `Ingrid Steffensen makes her New York Times Crossword debut.`\
 https://nytimes.com/2025/06/23/crosswords/daily-puzzle-2025-06-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/climate/trump-end-protections-for-58-million-acre
 **Michigan earns a key recruiting win over Bama with Titan Davis**\
 `A four-star defensive lineman from St. Louis, Titan Davis is now the second-highest rated recruit in Michigan football's Class of 2026.`\
 https://nytimes.com/athletic/6446819/2025/06/23/titan-davis-michigan-football-recruiting-commitment/
-
-**On Truth Social, Trump Narrated U.S. Attacks in Real Time**\
-`The president gave updates on a war on his social media account: Armistices may never be the same again.`\
-https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
 
