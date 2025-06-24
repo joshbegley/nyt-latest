@@ -1,3 +1,5 @@
+
+
 **A Toddler With a Halo Stirs Up the Campus Unfaithful**\
 `Set among divinity school professors unsure of just what they believe, Robert P. Baird’s satirical novel, “The Nimbus,” strains for the heavenly.`\
 https://nytimes.com/2025/06/24/books/review/the-nimbus-robert-baird.html
