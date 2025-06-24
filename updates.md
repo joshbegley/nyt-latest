@@ -1,3 +1,11 @@
+**NBA trade grades: Do the Pels need Jordan Poole? How can CJ McCollum help Washington?**\
+`Washington will add some leadership and financial flexibility, but New Orleans' plans seem less clear.`\
+https://nytimes.com/athletic/6448882/2025/06/24/jordan-poole-cj-mccollum-wizards-pelicans-trade-grades/
+
+**How Iran Became Isolated**\
+`Christina Goldbaum, a New York Times reporter, and Katrin Bennhold, a senior writer on the international desk, discuss how the power dynamics in the Middle East could change as Iran has become more isolated.`\
+https://nytimes.com/video/world/middleeast/100000010248215/how-iran-became-isolated.html
+
 **Blake Farenthold, 63, Congressman Who Quit in Harassment Case, Dies**\
 `A Texas Republican, he gave up his seat after news broke that public funds had been used to settle the case, made by his former communications director.`\
 https://nytimes.com/2025/06/24/us/politics/blake-farenthold-dead.html

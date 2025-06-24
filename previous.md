@@ -22,6 +22,14 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**NBA trade grades: Do the Pels need Jordan Poole? How can CJ McCollum help Washington?**\
+`Washington will add some leadership and financial flexibility, but New Orleans' plans seem less clear.`\
+https://nytimes.com/athletic/6448882/2025/06/24/jordan-poole-cj-mccollum-wizards-pelicans-trade-grades/
+
+**How Iran Became Isolated**\
+`Christina Goldbaum, a New York Times reporter, and Katrin Bennhold, a senior writer on the international desk, discuss how the power dynamics in the Middle East could change as Iran has become more isolated.`\
+https://nytimes.com/video/world/middleeast/100000010248215/how-iran-became-isolated.html
+
 **Blake Farenthold, 63, Congressman Who Quit in Harassment Case, Dies**\
 `A Texas Republican, he gave up his seat after news broke that public funds had been used to settle the case, made by his former communications director.`\
 https://nytimes.com/2025/06/24/us/politics/blake-farenthold-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/us/politics/blake-farenthold-dead.html
 **Anthony Weiner Hopes Voters Have Forgiven or Forgotten**\
 `Mr. Weiner returned from a prison term to launch an unlikely campaign for the City Council. Outside a polling place on Tuesday, it was hot, mostly friendly and a little awkward.`\
 https://nytimes.com/2025/06/24/nyregion/anthony-weiner-comeback-council.html
-
-**The Fears Dominating the NATO Summit**\
-`Russian aggression and keeping Trump happy are the two themes of the gathering so far.`\
-https://nytimes.com/live/2025/06/16/opinion/thepoint/nato-summit-trump-russia-defense
-
-**Eight thoughts from Sabres GM Kevyn Adams' draft week news conference**\
-`Pending roster decisions have made the NHL Draft almost an afterthought for the Sabres.`\
-https://nytimes.com/athletic/6448606/2025/06/24/sabres-peterka-adams-nhl-draft-2025/
 
