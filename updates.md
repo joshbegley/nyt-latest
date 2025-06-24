@@ -1,3 +1,43 @@
+**Wimbledon to honor Andy Murray with statue by 2027**\
+`Murray ended Britain’s 77-year wait for a male champion in 2013, before winning a second title three years later.`\
+https://nytimes.com/athletic/6447702/2025/06/24/andy-murray-statue-wimbledon/
+
+**A 5-step plan for ensuring Connor McDavid stays with the Edmonton Oilers**\
+`If the Oilers want to keep the best player in hockey, they need to prove he can win in Edmonton long-term. Here's how that could happen.`\
+https://nytimes.com/athletic/6446777/2025/06/24/oilers-mcdavid-future-contract-roster/
+
+**Bills training camp 2025 running backs preview: Why change what worked?**\
+`The running backs room is probably going to look a lot like last year's.`\
+https://nytimes.com/athletic/6429750/2025/06/24/bills-running-backs-training-camp-preview/
+
+**Pacers' legacy isn't that they made the NBA Finals. It's how they did it**\
+`Indiana's relentless style of play started with brutal conditioning drills in training camp and lasted all the way into June.`\
+https://nytimes.com/athletic/6446825/2025/06/24/pacers-nba-finals-legacy-conditioning-pace/
+
+**Five burning Lakers questions heading into the 2025 NBA Draft**\
+`What can the Lakers take away from the NBA Finals? Who will their next center be? We dive into these questions entering the draft.`\
+https://nytimes.com/athletic/6447184/2025/06/24/lakers-questions-2025-nba-draft-free-agency/
+
+**Should the Rangers keep pick No. 12? Examining the pros and cons**\
+`The Rangers have until Wednesday night to decide whether to send their first-round pick to Pittsburgh. Why is it such a dilemma?`\
+https://nytimes.com/athletic/6446909/2025/06/24/rangers-nhl-draft-pick-12-pros-cons/
+
+**Could the Blackhawks be largely done with their offseason moves?**\
+`The Blackhawks could pull off a major signing or trade in the coming weeks, but it's more likely their roster is nearly set.`\
+https://nytimes.com/athletic/6446077/2025/06/24/blackhawks-nhl-draft-free-agency-roster-projection/
+
+**Maple Leafs draft preview: Who could Toronto take with its first pick?**\
+`GM Brad Treliving's Leafs are set to make six selections, beginning with a second-round pick they acquired from the Panthers last year.`\
+https://nytimes.com/athletic/6423878/2025/06/24/maple-leafs-2025-draft-preview-nhl/
+
+**Weight loss, a missed season and a 'little ways to go': Hunter Renfrow's comeback story**\
+`Renfrow hasn't felt like himself since 2021 and has been battling ulcerative colitis. Now, he hopes to earn a spot on the Panthers' roster.`\
+https://nytimes.com/athletic/6445898/2025/06/24/hunter-renfrow-nfl-panthers-raiders-comeback-clemson/
+
+**Canucks offseason preview mailbag, part 2: Abbotsford's champs, Vancouver's options in net**\
+`We answer a second set of pressing offseason questions our subscribers are pondering.`\
+https://nytimes.com/athletic/6444822/2025/06/24/canucks-offseason-preview-mailbag-part-2/
+
 **Lauri Markkanen? Trae Young? Raptors don't need to dive into next big offseason trade**\
 `With the Eastern Conference in flux due to injuries, the Raptors could make a move to shake things up. `\
 https://nytimes.com/athletic/6446326/2025/06/24/raptors-2025-nba-draft-offseason-trades/

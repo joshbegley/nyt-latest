@@ -1,40 +1,40 @@
-**Lauri Markkanen? Trae Young? Raptors don't need to dive into next big offseason trade**\
-`With the Eastern Conference in flux due to injuries, the Raptors could make a move to shake things up. `\
-https://nytimes.com/athletic/6446326/2025/06/24/raptors-2025-nba-draft-offseason-trades/
+**Wimbledon to honor Andy Murray with statue by 2027**\
+`Murray ended Britain’s 77-year wait for a male champion in 2013, before winning a second title three years later.`\
+https://nytimes.com/athletic/6447702/2025/06/24/andy-murray-statue-wimbledon/
 
-**Cedric Tillman, Carson Schwesinger and other Browns with important roles this season**\
-`We explore seven players not named Myles Garrett or Joe Flacco who will be pivotal to Cleveland having any kind of success in 2025.  `\
-https://nytimes.com/athletic/6446285/2025/06/24/browns-denzel-ward-cedric-tillman-carson-schwesinger/
+**A 5-step plan for ensuring Connor McDavid stays with the Edmonton Oilers**\
+`If the Oilers want to keep the best player in hockey, they need to prove he can win in Edmonton long-term. Here's how that could happen.`\
+https://nytimes.com/athletic/6446777/2025/06/24/oilers-mcdavid-future-contract-roster/
 
-**Drones hit Iraqi military sites, hours after Iran attacked a U.S. base in Qatar.**\
-`The Iraqi authorities said that two facilities had been damaged and that four other sites had been targeted. There was no immediate claim of responsibility.`\
-https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/drones-hit-iraqi-military-sites-hours-after-iran-attacked-a-us-base-in-qatar
+**Bills training camp 2025 running backs preview: Why change what worked?**\
+`The running backs room is probably going to look a lot like last year's.`\
+https://nytimes.com/athletic/6429750/2025/06/24/bills-running-backs-training-camp-preview/
 
-**Astros trade deadline: Answering 9 key questions, plus potential All-Stars and more**\
-`The Astros are surging in June despite injuries and an unbalanced lineup. How can they improve their roster and what's led to their success?`\
-https://nytimes.com/athletic/6446390/2025/06/24/astros-trade-deadline-all-stars/
+**Pacers' legacy isn't that they made the NBA Finals. It's how they did it**\
+`Indiana's relentless style of play started with brutal conditioning drills in training camp and lasted all the way into June.`\
+https://nytimes.com/athletic/6446825/2025/06/24/pacers-nba-finals-legacy-conditioning-pace/
 
-**RB Leipzig appoint Ole Werner as head coach**\
-`The 37-year-old has signed a two-year contract that runs until 2027.`\
-https://nytimes.com/athletic/6427106/2025/06/24/ole-werner-rb-leipzig-head-coach/
+**Five burning Lakers questions heading into the 2025 NBA Draft**\
+`What can the Lakers take away from the NBA Finals? Who will their next center be? We dive into these questions entering the draft.`\
+https://nytimes.com/athletic/6447184/2025/06/24/lakers-questions-2025-nba-draft-free-agency/
 
-**Club World Cup's extreme heat problem, USMNT star on Bundesliga radar, and Messi birthday facts**\
-`Today in TAFC: Extreme weather grips the Club World Cup, Brazilian brilliance and Bundesliga side move to sign in-form USMNT man`\
-https://nytimes.com/athletic/6447637/2025/06/24/the-athletic-fc-newsletter-heat-club-world-cup-messi/
+**Should the Rangers keep pick No. 12? Examining the pros and cons**\
+`The Rangers have until Wednesday night to decide whether to send their first-round pick to Pittsburgh. Why is it such a dilemma?`\
+https://nytimes.com/athletic/6446909/2025/06/24/rangers-nhl-draft-pick-12-pros-cons/
 
-**Kirk Ferentz may surprise you with his take on college's new era ahead of 27th Iowa season**\
-`When it comes to paying athletes and allowing them to move around at a whim, Ferentz is more invigorated than many of his peers.`\
-https://nytimes.com/athletic/6446598/2025/06/24/iowa-football-kirk-ferentz-interview/
+**Could the Blackhawks be largely done with their offseason moves?**\
+`The Blackhawks could pull off a major signing or trade in the coming weeks, but it's more likely their roster is nearly set.`\
+https://nytimes.com/athletic/6446077/2025/06/24/blackhawks-nhl-draft-free-agency-roster-projection/
 
-**Tigers stock report: Who's trending up on the 26-man roster?**\
-`A look at who's trending up, who's trending down and who is somewhere in the middle as the Tigers near the season's halfway point.`\
-https://nytimes.com/athletic/6445819/2025/06/24/tigers-stock-26-man-roster/
+**Maple Leafs draft preview: Who could Toronto take with its first pick?**\
+`GM Brad Treliving's Leafs are set to make six selections, beginning with a second-round pick they acquired from the Panthers last year.`\
+https://nytimes.com/athletic/6423878/2025/06/24/maple-leafs-2025-draft-preview-nhl/
 
-**A beginner's guide to Crystal Palace, Woody Johnson's new football club**\
-`All you need to know about the New York Jets' owner's latest investment`\
-https://nytimes.com/athletic/6445872/2025/06/24/crystal-palace-woody-johnson-explained-2/
+**Weight loss, a missed season and a 'little ways to go': Hunter Renfrow's comeback story**\
+`Renfrow hasn't felt like himself since 2021 and has been battling ulcerative colitis. Now, he hopes to earn a spot on the Panthers' roster.`\
+https://nytimes.com/athletic/6445898/2025/06/24/hunter-renfrow-nfl-panthers-raiders-comeback-clemson/
 
-**What's the latest on the sale of the Twins? Are Buxton, Correa tradeable?**\
-`Also, should Buxton or Correa be traded? What's the trade deadline approach? More Twins questions, answered.`\
-https://nytimes.com/athletic/6445985/2025/06/24/twins-team-sale-pohlads-byron-buxton/
+**Canucks offseason preview mailbag, part 2: Abbotsford's champs, Vancouver's options in net**\
+`We answer a second set of pressing offseason questions our subscribers are pondering.`\
+https://nytimes.com/athletic/6444822/2025/06/24/canucks-offseason-preview-mailbag-part-2/
 
