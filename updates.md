@@ -1,3 +1,7 @@
+**Iran has previously given warnings before attacking U.S. bases, limiting damage and repercussions.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/iran-has-previously-given-warnings-before-attacking-us-bases-limiting-damage-and-repercussions
+
 **Scenes From the Hottest Blocks in New York City**\
 `Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
 https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html

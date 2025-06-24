@@ -1,3 +1,7 @@
+**Iran has previously given warnings before attacking U.S. bases, limiting damage and repercussions.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/iran-has-previously-given-warnings-before-attacking-us-bases-limiting-damage-and-repercussions
+
 **Scenes From the Hottest Blocks in New York City**\
 `Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
 https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/world/middleeast/iran-israel-ceasefire-qatar.html
 **Trump Administration to End Protections for 58 Million Acres of National Forests**\
 `Agriculture Secretary Brooke Rollins said the Clinton-era rule barring road construction and logging was outdated and “absurd.”`\
 https://nytimes.com/2025/06/23/climate/trump-end-protections-for-58-million-acres-of-national-forests.html
-
-**Michigan earns a key recruiting win over Bama with Titan Davis**\
-`A four-star defensive lineman from St. Louis, Titan Davis is now the second-highest rated recruit in Michigan football's Class of 2026.`\
-https://nytimes.com/athletic/6446819/2025/06/23/titan-davis-michigan-football-recruiting-commitment/
 
