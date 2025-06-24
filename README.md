@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
-**8 Rising Pop Girls You Should Hear Now**\
-`Reneé Rapp, Ethel Cain, Suzy Clue and more from prospects experimenting with undeniably modern modes while recognizing their place in the Pop Girl lineage.`\
-https://nytimes.com/2025/06/24/arts/music/amplifier-newsletter-pop-girls.html
+**Judge Orders Administration to ‘Facilitate’ Return of Another Deported Immigrant**\
+`The ruling was the fourth time in recent months that federal judges directed the government to seek the return of immigrants who were expelled in error or in violation of previous court orders.`\
+https://nytimes.com/2025/06/24/us/politics/trump-deportation-el-salvador.html
 
-**‘Cold War Choir Practice’ Review: When the President Made a Deal**\
-`Ro Reddick’s music-infused comedy, set during the Cold War, finishes this year’s edition of Clubbed Thumb’s Summerworks festival on a high.`\
-https://nytimes.com/2025/06/24/theater/cold-war-choir-practice-review.html
+**New York City Council Primary Election Results**\
+`Get live results and maps from the 2025 New York primary election.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-city-council-primary.html
 
-**Man on His Honeymoon Is Struck by Lightning and Killed on Florida Beach**\
-`Just before Jake Rosencranz, 29, of Denver, was struck while standing in ankle-deep water in New Smyrna Beach, two people were struck at a golf course in the area.`\
-https://nytimes.com/2025/06/24/us/lightning-kills-man-florida-honeymoon.html
+**New York Primary Election Results**\
+`Get live results and maps from the 2025 New York primary elections.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-primary.html
 
-**Filmmaker Vaughn and businessman Lubner in advanced talks to buy minority stake in Brentford**\
-`Brentford owner Matthew Benham has been open to selling a stake in the club for a few years.`\
-https://nytimes.com/athletic/6445535/2025/06/24/brentford-sale-matthew-vaughn-lubner/
+**New York City Mayoral Primary Election Results**\
+`Get live results and maps from the 2025 New York City primary election.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-city-mayor-primary.html
 

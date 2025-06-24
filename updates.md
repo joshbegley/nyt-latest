@@ -1,3 +1,19 @@
+**8 Rising Pop Girls You Should Hear Now**\
+`Reneé Rapp, Ethel Cain, Suzy Clue and more from prospects experimenting with undeniably modern modes while recognizing their place in the Pop Girl lineage.`\
+https://nytimes.com/2025/06/24/arts/music/amplifier-newsletter-pop-girls.html
+
+**‘Cold War Choir Practice’ Review: When the President Made a Deal**\
+`Ro Reddick’s music-infused comedy, set during the Cold War, finishes this year’s edition of Clubbed Thumb’s Summerworks festival on a high.`\
+https://nytimes.com/2025/06/24/theater/cold-war-choir-practice-review.html
+
+**Man on His Honeymoon Is Struck by Lightning and Killed on Florida Beach**\
+`Just before Jake Rosencranz, 29, of Denver, was struck while standing in ankle-deep water in New Smyrna Beach, two people were struck at a golf course in the area.`\
+https://nytimes.com/2025/06/24/us/lightning-kills-man-florida-honeymoon.html
+
+**Filmmaker Vaughn and businessman Lubner in advanced talks to buy minority stake in Brentford**\
+`Brentford owner Matthew Benham has been open to selling a stake in the club for a few years.`\
+https://nytimes.com/athletic/6445535/2025/06/24/brentford-sale-matthew-vaughn-lubner/
+
 **Until Saturday: CFB 26 Dynasty upgrades**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6448637/2025/06/24/college-football-26-dynasty-mode-deep-dive-until-saturday/
