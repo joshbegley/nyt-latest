@@ -1,40 +1,40 @@
-**Indonesia Plans Helicopter Rescue for Hiker Who Fell Off Volcano Trail**\
-`The hiker, a Brazilian in her 20s, has been unreachable since Saturday, when she fell while climbing Mount Rinjani, her family said.`\
-https://nytimes.com/2025/06/24/world/asia/brazilian-indonesia-volcano-rescue.html
+**​China Calls Them Fish Farms. South Korea Fears They Have Another Use.**\
+`China has installed large steel cages and a former oil drilling rig in the Yellow Sea, raising concerns in South Korea that they could be used for military purposes.`\
+https://nytimes.com/2025/06/24/world/asia/china-south-korea-sea-dispute.html
 
-**Video Shows Belongings of Tourist Who Fell Hiking Indonesian Volcano**\
-`A search and rescue team found a flashlight and hiking pole that were believed to belong to a woman who fell while hiking Mount Rinjani in Indonesia.`\
-https://nytimes.com/video/world/asia/100000010246544/indonesia-tourist-mount-rinjani.html
+**A Show of Unity May Be the Best That NATO Can Hope For at Summit**\
+`An internal rift over defense spending and President Trump’s disregard for Ukraine have lowered expectations for the gathering.`\
+https://nytimes.com/2025/06/24/world/europe/nato-what-to-watch.html
 
-**Canada's Marsch cleared by Concacaf over alleged use of 'offensive language'**\
-`Concacaf's disciplinary committee found "no clear evidence" Marsch, 51, disregarded the competition's rules.`\
-https://nytimes.com/athletic/6447490/2025/06/24/jesse-marsch-canada-cleared-concacaf/
+**What to Know About the Cease-Fire Between Israel and Iran**\
+`A senior Israeli official accused Iran of breaking the deal hours after it was announced, raising questions about whether the war would resume.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-cease-fire-deal-war-trump.html
 
-**Gareth Bale: Buying Cardiff City would be a 'dream come true'**\
-`Bale wants to propel his hometown club back into the Premier League.`\
-https://nytimes.com/athletic/6441829/2025/06/24/gareth-bale-cardiff-takeover-dream/
+**Antisemitism Isn’t What People Think It Is**\
+`It may be time to rethink the tragic events in Washington and Boulder.`\
+https://nytimes.com/2025/06/24/opinion/antisemitism-new-york-city-mayor.html
 
-**Snapshots of N.Y.C. Mayoral Candidates on the Campaign Trail**\
-`The Democrats running in New York City’s mayoral primary have crisscrossed the five boroughs over several months to make their case to voters in person.`\
-https://nytimes.com/2025/06/24/nyregion/nyc-mayor-election-candidate-photos.html
+**Behind Closed Doors, Harvard Officials Debate a Risky Truce With Trump**\
+`The university is trying to avoid the appearance of appeasement, something other powerful institutions that made deals with President Trump found impossible.`\
+https://nytimes.com/2025/06/24/us/politics/harvard-debate-settlement-trump.html
 
-**Here’s How the N.Y.C. Mayoral Results May Emerge**\
-`A winner on Tuesday night is unlikely, but not impossible. Ranked-choice voting will play a big role in the outcome. Here’s what else you should look for as votes are counted.`\
-https://nytimes.com/2025/06/24/nyregion/when-know-nyc-mayor-primary-winner.html
+**Judge’s Ruling Casts Doubt on Trump Administration’s Claims Against Migrant**\
+`Attorney General Pam Bondi has disregarded departmental norms to level lurid public accusations at Mr. Abrego Garcia without first detailing evidence.`\
+https://nytimes.com/2025/06/24/us/politics/bondi-trump-abrego-garcia.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/24/crosswords/spelling-bee-forum.html
+**Bob Dylan’s New Release: A Big Book of Black-and-White Drawings**\
+`Along with some 100 images of everyday objects and scenes, “Point Blank” will include vignettes by the writers Lucy Sante and Jackie Hamilton.`\
+https://nytimes.com/2025/06/24/books/bob-dylan-drawings-point-blank.html
 
-**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
-`Welcome to the fourth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
-https://nytimes.com/athletic/6443074/2025/06/24/man-utd-arsenal-liverpool-transfer-news/
+**Antony Blinken: Trump’s Iran Strike Was a Mistake. I Hope It Succeeds.**\
+`Iran can’t be allowed to develop a nuclear weapon, but the president’s approach wasn’t the best way to prevent that.`\
+https://nytimes.com/2025/06/24/opinion/trump-iran-jcpoa-biden.html
 
-**Naples, Chicago and a Liverpool chat: How Kevin De Bruyne's post-Man City career was decided**\
-`There was an understandable clamour for the Belgian once it was known he was leaving City — here's how it played out`\
-https://nytimes.com/athletic/6445584/2025/06/24/de-bruyne-future-napoli-chicago-liverpool/
+**Primary Day, by the Numbers**\
+`Here’s what to know about the primary election for mayor and a number of other posts, which will take place on the hottest day of the year so far.`\
+https://nytimes.com/2025/06/24/nyregion/primary-day-what-to-know.html
 
-**Here’s the latest.**\
-`By Patrick Kingsley, Isabel Kershner and Aaron Boxerman`\
-https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/heres-the-latest
+**In Los Angeles, a Blank Canvas Gets a Rock Star Makeover**\
+`The musicians Andy and Meredith Hurley bought a house that had white walls. Not anymore. Their designer also layered in plenty of patterns and textures.`\
+https://nytimes.com/2025/06/24/realestate/los-angeles-home-renovation-fall-out-boy.html
 
