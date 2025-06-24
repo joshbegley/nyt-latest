@@ -1,3 +1,11 @@
+**How People Are Coping With the East Coast Heat Spike**\
+`A brutally hot day across the Eastern United States left residents struggling to find relief.`\
+https://nytimes.com/2025/06/24/us/heat-wave-east-coast.html
+
+**House Conservatives Warn They Can’t Back Senate Bill to Enact Trump’s Agenda**\
+`Both President Trump and Senate Republican leaders are pressing for the House to accept their version of the sprawling domestic policy bill, but some right-wing holdouts are opposed to key pieces.`\
+https://nytimes.com/2025/06/24/us/politics/house-conservatives-senate-big-beautiful-bill.html
+
 **House Conservatives Warn They Can’t Back Senate Bill to Enact Trump’s Agenda**\
 `Both President Trump and Senate Republican leaders are pressing for the House to accept their version of the sprawling domestic policy bill, but some right-wing holdouts are opposed to key pieces.`\
 https://nytimes.com/2025/06/24/us/politics/house-conservatives-warn-they-cant-back-senate-bill-to-enact-trumps-agenda.html

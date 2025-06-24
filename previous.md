@@ -22,9 +22,13 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**How People Are Coping With the East Coast Heat Spike**\
+`A brutally hot day across the Eastern United States left residents struggling to find relief.`\
+https://nytimes.com/2025/06/24/us/heat-wave-east-coast.html
+
 **House Conservatives Warn They Can’t Back Senate Bill to Enact Trump’s Agenda**\
 `Both President Trump and Senate Republican leaders are pressing for the House to accept their version of the sprawling domestic policy bill, but some right-wing holdouts are opposed to key pieces.`\
-https://nytimes.com/2025/06/24/us/politics/house-conservatives-warn-they-cant-back-senate-bill-to-enact-trumps-agenda.html
+https://nytimes.com/2025/06/24/us/politics/house-conservatives-senate-big-beautiful-bill.html
 
 **With Hours Left in the Primary, the Stars Come Out for Mamdani**\
 `Celebrities like Lorde, Emily Ratajkowski, Cynthia Nixon and Bowen Yang have expressed support for Zohran Mamdani in the New York City mayor’s race.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/nyregion/emily-ratajkowski-mamdani-bowen-yang.htm
 **A Plan to Sell Federal Land Near This Colorado Town Looks Dead. Here’s Why.**\
 `Senator Mike Lee hoped to sell millions of acres of federal land through President Trump’s policy bill, in part to ease housing costs. The opposition was bipartisan, in Congress and the West.`\
 https://nytimes.com/2025/06/24/us/politics/mike-lee-public-lands-selloff-colorado.html
-
-**Pride Flags Slashed at Atlanta L.G.B.T.Q. Landmark, Four Arrested**\
-`A group of male youths traveled to Atlanta before dawn and tore flags at a rainbow crosswalk, the police said. Two of them remain at large as the authorities consider hate crime charges.`\
-https://nytimes.com/2025/06/24/us/politics/atlanta-hate-crime-pride-flags.html
 
