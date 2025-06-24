@@ -1,3 +1,7 @@
+**Trump Posts Through the Iran Attack**\
+`The remarkable way the president narrated a war on his social media account: Armistices may never be the same again.`\
+https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
+
 **Reds’ big roster moves send a message: 'We want to win games'**\
 `With Chase Burns entering the clubhouse and struggling Jeimer Candelario headed out, Cincinnati is energized.`\
 https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeimer-candelario/

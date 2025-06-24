@@ -1,3 +1,7 @@
+**Trump Posts Through the Iran Attack**\
+`The remarkable way the president narrated a war on his social media account: Armistices may never be the same again.`\
+https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
+
 **Reds’ big roster moves send a message: 'We want to win games'**\
 `With Chase Burns entering the clubhouse and struggling Jeimer Candelario headed out, Cincinnati is energized.`\
 https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeimer-candelario/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.ht
 **Wisconsin Couple Charged in Scheme to Poison Women He Dated**\
 `Paul VanDuyne Jr. and Andrea Whitaker placed cyanide, homemade poisons and other substances in water bottles and cars belonging to two women he had briefly dated, the authorities said.`\
 https://nytimes.com/2025/06/23/us/wisconsin-couple-charged-poison-plot.html
-
-**With Tyler Fitzgerald demoted, Casey Schmitt looks like the Giants everyday second baseman**\
-`Schmitt's tools are finally being enhanced by a better approach at the plate, while Fitzgerald's offense had taken a big step back.`\
-https://nytimes.com/athletic/6446170/2025/06/23/sf-giants-second-base-casey-schmitt-tyler-fitzgerald/
 
