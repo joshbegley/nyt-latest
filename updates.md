@@ -1,3 +1,15 @@
+**Euro 2025: Italy team guide - midfield depth, a favourable group but a confusing build-up**\
+`From players to watch to pedigree and much more, we set out what to epect from Italy at the European Championship`\
+https://nytimes.com/athletic/6413162/2025/06/24/italy-team-guide-euro-2025/
+
+**Euro 2025: Portugal team guide - can they justify their status as dark horses?**\
+`From players to watch to pedigree and much more, we set out what to epect from Portugal at the European Championship`\
+https://nytimes.com/athletic/6411784/2025/06/24/portugal-team-guide-euro-2025/
+
+**Club World Cup daily rankings: Madrid makes a leap, Bayern still top**\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/24/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
 **What's going on with Rodrygo at Madrid?**\
 `Rodrygo's future is unclear after not featuring at all in Madrid's latest Club World Cup game against Pachuca`\
 https://nytimes.com/athletic/6445808/2025/06/24/rodrygo-real-madrid-transfer-future/

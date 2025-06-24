@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`A possible cease-fire between Israel and Iran.`\
+https://nytimes.com/2025/06/24/briefing/israel-iran-truce-gaza.html
+
+**Ben Brown hits rough patch in Cubs' loss to Cardinals, jeopardizing his spot in rotation**\
+`Brown, who has shown immense upside this season, could face a demotion when Shota Imanaga returns from injury this week.`\
+https://nytimes.com/athletic/6447058/2025/06/24/ben-brown-rough-outing-cubs-lose/
+
+**Mets fans love booing Braves' Ronald Acuña Jr., and he loves hearing them do it**\
+`It's unclear how long Chris Sale will be out after injuring his ribs, but the Braves are finding ways to win without him.`\
+https://nytimes.com/athletic/6447106/2025/06/24/braves-ronald-acuna-jr-mets-chris-sale-update/
+
 **Euro 2025: Italy team guide - midfield depth, a favourable group but a confusing build-up**\
 `From players to watch to pedigree and much more, we set out what to epect from Italy at the European Championship`\
 https://nytimes.com/athletic/6413162/2025/06/24/italy-team-guide-euro-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6445130/2025/06/24/are-players-signed-for-record-br
 **Women's Euros 2025: Guide to Group A - Hosts' hopes, Hegerberg and a long-throw weapon**\
 `Everything you need to know about Group A at Euro 2025, which features hosts Switzerland, Norway, Iceland and Finland`\
 https://nytimes.com/athletic/6415547/2025/06/24/womens-euros-2025-group-a-guide/
-
-**Cardinals' Alec Burleson has slugged his way into more playing time**\
-`After homering on Monday, Burleson's OPS on the season is up to a team-leading .818. His .474 slugging percentage is also a team-high. `\
-https://nytimes.com/athletic/6446877/2025/06/24/st-louis-cardinals-alec-burleson-playing-time/
-
-**Diamondbacks' Corbin Carroll (left wrist fracture) to go on IL**\
-`This season, Carroll has slashed .255/.341/.573 with 20 home runs and 44 RBIs.`\
-https://nytimes.com/athletic/6447187/2025/06/24/az-diamondbacks-corbin-carroll-injury/
-
-**In a Big Place With Few People, a Minister Needs a Pilot’s License**\
-`The Salvation Army’s “Flying Padres” cross the Australian outback by air, dropping in on ranches and small communities — sometimes, just to lend an ear.`\
-https://nytimes.com/2025/06/24/world/australia/australia-flying-padres-chaplains.html
 
