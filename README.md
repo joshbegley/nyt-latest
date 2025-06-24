@@ -1,3 +1,15 @@
+**What's going on with Rodrygo at Madrid?**\
+`Rodrygo's future is unclear after not featuring at all in Madrid's latest Club World Cup game against Pachuca`\
+https://nytimes.com/athletic/6445808/2025/06/24/rodrygo-real-madrid-transfer-future/
+
+**Where does the word 'soccer' come from?**\
+`While 'soccer' is used to differentiate between two popular sports in America, it originated at a prestigious British university`\
+https://nytimes.com/athletic/5900907/2025/06/24/soccer-football-origin-name/
+
+**Are players signed for record-breaking transfer fees affected by the pressure of their price?**\
+`What the likes of Shearer, Ferdinand, Collymore and Francis have said about becoming a club's most expensive ever buy`\
+https://nytimes.com/athletic/6445130/2025/06/24/are-players-signed-for-record-breaking-transfer-fees-affected-by-the-pressure-wirtz/
+
 **Women's Euros 2025: Guide to Group A - Hosts' hopes, Hegerberg and a long-throw weapon**\
 `Everything you need to know about Group A at Euro 2025, which features hosts Switzerland, Norway, Iceland and Finland`\
 https://nytimes.com/athletic/6415547/2025/06/24/womens-euros-2025-group-a-guide/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6442028/2025/06/24/connections-sports-edition-hints
 **Why Do Yemeni Coffeehouses Seem to Be Everywhere Lately?**\
 `For cafes like Haraz Coffee House, riding a wave of interest nationwide in late-night, alcohol-free gathering spaces means embracing the franchise model.`\
 https://nytimes.com/2025/06/24/business/yemeni-cafe-haraz-coffee-house.html
-
-**Corrections: June 24, 2025**\
-`Corrections that appeared in print on Tuesday, June 24, 2025.`\
-https://nytimes.com/2025/06/24/pageoneplus/corrections-june-24-2025.html
-
-**Celtics trade Jrue Holiday to Trail Blazers for Anfernee Simons, picks: Sources**\
-`Holiday still has three years and $104.4 million left on his contract, including a player option for the 2027-28 season.`\
-https://nytimes.com/athletic/6447146/2025/06/23/celtics-jrue-holiday-trade-trail-blazers-nba/
-
-**Quote of the Day: Iran Suggests Everything Is Normal, but Nothing Is**\
-`Quotation of the Day for Tuesday, June 24, 2025.`\
-https://nytimes.com/2025/06/23/pageoneplus/quote-of-the-day-iran-suggests-everything-is-normal-but-nothing-is.html
 
