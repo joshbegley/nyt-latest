@@ -1,3 +1,11 @@
+**Flyers' Tocchet: 'We'd be idiots' not to try Michkov, Zegras on a line together**\
+`New coach Rick Tocchet spoke with Zegras "at length" after Monday's trade to discuss possibilities.`\
+https://nytimes.com/athletic/6449144/2025/06/24/flyers-trevor-zegras-michkov-center-tocchet/
+
+**Duncan Keith's Hall of Fame election puts him in rarefied company — exactly where he belongs**\
+`Keith was, is and always will be a Blackhawks legend. Now, officially, he’s a hockey legend, too.`\
+https://nytimes.com/athletic/6449119/2025/06/24/duncan-keith-hockey-hall-of-fame-blackhawks/
+
 **JB Pritzker to Seek Third Term as Illinois Governor**\
 `Mr. Pritzker, a Democrat and billionaire hotel heir, has emerged as a vocal critic of President Trump and a possible presidential contender.`\
 https://nytimes.com/2025/06/24/us/governor-jb-pritzker-illinois-reelection.html
