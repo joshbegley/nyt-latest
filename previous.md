@@ -1,6 +1,10 @@
+**Why N.Y.C. Business Leaders Fear Mamdani**\
+`As voters head to the polls, the democratic socialist candidate appears to be neck-and-neck with Andrew Cuomo. That has many executives worried.`\
+https://nytimes.com/2025/06/24/business/dealbook/new-york-mayor-mamdani-cuomo-business.html
+
 **Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
 `The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
-https://nytimes.com/2025/06/24/business/powell-reiterates-feds-wait-and-see-approach-before-cutting-rates.html
+https://nytimes.com/2025/06/24/business/fed-jerome-powell-interest-rates.html
 
 **World Leaders Cautiously Welcome Israel-Iran Cease-Fire**\
 `In the shaky first hours of the truce, officials were largely positive about the agreement to end the fighting but expressed concern that it remained fragile.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447184/2025/06/24/lakers-questions-2025-nba-draft-
 **Should the Rangers keep pick No. 12? Examining the pros and cons**\
 `The Rangers have until Wednesday night to decide whether to send their first-round pick to Pittsburgh. Why is it such a dilemma?`\
 https://nytimes.com/athletic/6446909/2025/06/24/rangers-nhl-draft-pick-12-pros-cons/
-
-**Could the Blackhawks be largely done with their offseason moves?**\
-`The Blackhawks could pull off a major signing or trade in the coming weeks, but it's more likely their roster is nearly set.`\
-https://nytimes.com/athletic/6446077/2025/06/24/blackhawks-nhl-draft-free-agency-roster-projection/
 

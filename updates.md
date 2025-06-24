@@ -1,3 +1,11 @@
+**Why N.Y.C. Business Leaders Fear Mamdani**\
+`As voters head to the polls, the democratic socialist candidate appears to be neck-and-neck with Andrew Cuomo. That has many executives worried.`\
+https://nytimes.com/2025/06/24/business/dealbook/new-york-mayor-mamdani-cuomo-business.html
+
+**Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
+`The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
+https://nytimes.com/2025/06/24/business/fed-jerome-powell-interest-rates.html
+
 **Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
 `The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
 https://nytimes.com/2025/06/24/business/powell-reiterates-feds-wait-and-see-approach-before-cutting-rates.html
