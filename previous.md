@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Lynn Hamilton, a Steady Presence on ‘Sanford and Son,’ Dies at 95**\
+`A former Broadway actress, she was a no-nonsense foil for the unruly Fred Sanford. She also warmed hearts with a recurring role on the “The Waltons.”`\
+https://nytimes.com/2025/06/24/arts/television/lynn-hamilton-dead.html
+
+**Man Charged With Helping California Fertility Clinic Bomber Dies in Custody**\
+`Daniel Park, 32, of Washington State, was found unresponsive Tuesday morning and was later pronounced dead at the hospital, the authorities said. No cause was given.`\
+https://nytimes.com/2025/06/24/us/california-fertility-clinic-bombing-suspect-dead.html
+
+**Man in Jan. 6 Riot Ordered to Pay $500,000 to Family of Officer Who Later Killed Himself**\
+`A federal jury found that the man, David Walls-Kaufman, had assaulted Officer Jeffrey Smith, who later died by suicide.`\
+https://nytimes.com/2025/06/24/us/politics/capitol-police-suicide-january-6.html
+
 **Cease-Fire Between Israel and Iran Appears to Hold After Trump Rebuke**\
 `The truce went into effect after pressure from President Trump and Qatar. Israel said its forces were now shifting their attention back to Gaza.`\
 https://nytimes.com/2025/06/24/world/middleeast/israel-iran-ceasefire-trump.html
-
-**Trump’s Cuts Could Leave the U.S. Exposed Amid a Heightened Threat From Iran**\
-`The president has slashed the federal bureaucracy and reoriented much of the national security apparatus to help with his immigration crackdown.`\
-https://nytimes.com/2025/06/24/us/politics/trump-cuts-iran-threats.html
-
-**Using water and fans, N.Y.C. voters try to stay cool during primary voting.**\
-`By Taylor Robinson`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/using-water-and-fans-nyc-voters-try-to-stay-cool-during-primary-voting
-
-**Iran’s president casts the cease-fire as a victory and floats the prospect of nuclear talks.**\
-`By Ephrat Livni and Sanam Mahoozi`\
-https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/irans-president-casts-the-cease-fire-as-a-victory-and-floats-the-prospect-of-nuclear-talks
 
