@@ -1,3 +1,19 @@
+**Extreme Heat Is Exacerbating Air Pollution, a ‘Double Whammy’ for Health**\
+`Extreme heat is making air pollution worse, scientists say. And President Trump’s regulatory rollbacks could drive air pollution even higher.`\
+https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html
+
+**Rangers to send Penguins No. 12 pick in 2025 NHL Draft, keeping 2026 first-rounder**\
+`The Rangers had to decide whether to send the Penguins this year's first-rounder or next year's to complete the J.T. Miller trade.`\
+https://nytimes.com/athletic/6448101/2025/06/24/rangers-penguins-draft-pick-trade/
+
+**What's new in EA Sports College Football 26's Dynasty mode and what we still want to see**\
+`Asthe July 10 release date gets closer, we can finally talk about the foundational part of the College Football 26 video game: Dynasty mode.`\
+https://nytimes.com/athletic/6446454/2025/06/24/college-football-26-dynasty-mode-ea-sports/
+
+**Smashed Cucumber and Chicken Salad Because It’s Too Hot to Cook**\
+`“SOLID HOT SUMMER DISH,” says Rita, a reader.`\
+https://nytimes.com/2025/06/24/dining/smashed-cucumber-and-chicken-salad-recipe.html
+
 **With $25 Million, Pro-Cuomo Super PAC Shatters Outside Spending Records**\
 `Former Gov. Andrew M. Cuomo’s candidacy has been bankrolled by the largest super PAC ever created in a New York City mayoral campaign.`\
 https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-campaign-finance.html

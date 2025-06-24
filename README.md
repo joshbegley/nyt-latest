@@ -1,3 +1,7 @@
+**How South Africa's 1995 Rugby World Cup win united and 'galvanised' a nation**\
+`Nelson Mandela not only put his reputation on the line but spent significant political capital actively supporting the Springboks in 1995 `\
+https://nytimes.com/athletic/6445062/2025/06/24/south-africa-1995-rugby-world-cup-win-anniversary/
+
 **Extreme Heat Is Exacerbating Air Pollution, a ‘Double Whammy’ for Health**\
 `Extreme heat is making air pollution worse, scientists say. And President Trump’s regulatory rollbacks could drive air pollution even higher.`\
 https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409212/2025/06/24/anthony-elanga-newcastle-transfe
 **Trump Departs for NATO Summit and ‘a New Set of Problems’**\
 `President Trump is expected to talk about spending commitments from the alliance’s members, while NATO’s secretary general has been eager to avoid diplomatic blowups.`\
 https://nytimes.com/2025/06/24/us/politics/nato-trump-preview.html
-
-**The Bounce: Can the Cavaliers, Knicks dominate a potentially wide-open East? The WOE meter answers**\
-`Injuries cast a dark cloud over an otherwise fun NBA postseason. Will those same injuries leave the East wide open next season?`\
-https://nytimes.com/athletic/6447855/2025/06/24/cavaliers-knicks-pacers-tyrese-haliburton-nba-east-playoffs-the-bounce/
 
