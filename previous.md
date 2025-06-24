@@ -1,8 +1,12 @@
+**Red Sox base-running blunders lead manager Alex Cora to second straight ejection**\
+`Cora was also ejected on Sunday afternoon for arguing that Jarren Duran was safe at second. `\
+https://nytimes.com/athletic/6447381/2025/06/24/red-sox-alex-cora-ejection-explanation/
+
 **Celtics-Blazers trade grades: Will Anfernee Simons keep Boston contending in the East?**\
 `For the second time in the last few years, Jrue Holiday is being traded to Portland after helping a team win a title.`\
 https://nytimes.com/athletic/6447203/2025/06/24/jrue-holiday-trade-grades-nba-anfernee-simons/
 
-**‘Unsafe to Inhabit’: </br>The Toxic Homes of L.A.**\
+**‘Unsafe to Inhabit’: The Toxic Homes of L.A.**\
 `After the fires clouded neighborhoods in smoke, residents whose homes were spared learned that danger was still lurking in the walls, the furniture and the air. But their insurers have doubts.`\
 https://nytimes.com/interactive/2025/06/24/realestate/los-angeles-fires-toxic-homes.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447058/2025/06/24/ben-brown-rough-outing-cubs-lose
 **Mets fans love booing Braves' Ronald Acuña Jr., and he loves hearing them do it**\
 `It's unclear how long Chris Sale will be out after injuring his ribs, but the Braves are finding ways to win without him.`\
 https://nytimes.com/athletic/6447106/2025/06/24/braves-ronald-acuna-jr-mets-chris-sale-update/
-
-**Euro 2025: Italy team guide - midfield depth, a favourable group but a confusing build-up**\
-`From players to watch to pedigree and much more, we set out what to epect from Italy at the European Championship`\
-https://nytimes.com/athletic/6413162/2025/06/24/italy-team-guide-euro-2025/
 

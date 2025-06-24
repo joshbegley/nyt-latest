@@ -1,3 +1,11 @@
+**Red Sox base-running blunders lead manager Alex Cora to second straight ejection**\
+`Cora was also ejected on Sunday afternoon for arguing that Jarren Duran was safe at second. `\
+https://nytimes.com/athletic/6447381/2025/06/24/red-sox-alex-cora-ejection-explanation/
+
+**‘Unsafe to Inhabit’: The Toxic Homes of L.A.**\
+`After the fires clouded neighborhoods in smoke, residents whose homes were spared learned that danger was still lurking in the walls, the furniture and the air. But their insurers have doubts.`\
+https://nytimes.com/interactive/2025/06/24/realestate/los-angeles-fires-toxic-homes.html
+
 **Celtics-Blazers trade grades: Will Anfernee Simons keep Boston contending in the East?**\
 `For the second time in the last few years, Jrue Holiday is being traded to Portland after helping a team win a title.`\
 https://nytimes.com/athletic/6447203/2025/06/24/jrue-holiday-trade-grades-nba-anfernee-simons/
