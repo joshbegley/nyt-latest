@@ -1,3 +1,11 @@
+**Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
+`The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
+https://nytimes.com/2025/06/24/business/powell-reiterates-feds-wait-and-see-approach-before-cutting-rates.html
+
+**World Leaders Cautiously Welcome Israel-Iran Cease-Fire**\
+`In the shaky first hours of the truce, officials were largely positive about the agreement to end the fighting but expressed concern that it remained fragile.`\
+https://nytimes.com/2025/06/24/world/middleeast/world-leaders-israel-iran-ceasefire.html
+
 **Video Captures Explosion at Military Base North of Iraqi Capital**\
 `The Iraqi authorities said a wave of drones targeted several Iraqi military bases in the early hours of Tuesday, including the Taji base 12 miles north of Baghdad, hours after Iran launched missiles at a U.S. base in Qatar.`\
 https://nytimes.com/video/world/middleeast/100000010246718/iraq-taji-base-explosion-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6446909/2025/06/24/rangers-nhl-draft-pick-12-pros-c
 **Could the Blackhawks be largely done with their offseason moves?**\
 `The Blackhawks could pull off a major signing or trade in the coming weeks, but it's more likely their roster is nearly set.`\
 https://nytimes.com/athletic/6446077/2025/06/24/blackhawks-nhl-draft-free-agency-roster-projection/
-
-**Maple Leafs draft preview: Who could Toronto take with its first pick?**\
-`GM Brad Treliving's Leafs are set to make six selections, beginning with a second-round pick they acquired from the Panthers last year.`\
-https://nytimes.com/athletic/6423878/2025/06/24/maple-leafs-2025-draft-preview-nhl/
-
-**Weight loss, a missed season and a 'little ways to go': Hunter Renfrow's comeback story**\
-`Renfrow hasn't felt like himself since 2021 and has been battling ulcerative colitis. Now, he hopes to earn a spot on the Panthers' roster.`\
-https://nytimes.com/athletic/6445898/2025/06/24/hunter-renfrow-nfl-panthers-raiders-comeback-clemson/
 

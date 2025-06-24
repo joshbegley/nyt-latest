@@ -1,3 +1,11 @@
+**Powell Reiterates Fed’s Wait-and-See Approach Before Cutting Rates**\
+`The Fed chair will tell lawmakers that the central bank can wait to see how President Trump’s tariffs affect the economy before lowering borrowing costs.`\
+https://nytimes.com/2025/06/24/business/powell-reiterates-feds-wait-and-see-approach-before-cutting-rates.html
+
+**World Leaders Cautiously Welcome Israel-Iran Cease-Fire**\
+`In the shaky first hours of the truce, officials were largely positive about the agreement to end the fighting but expressed concern that it remained fragile.`\
+https://nytimes.com/2025/06/24/world/middleeast/world-leaders-israel-iran-ceasefire.html
+
 **Video Captures Explosion at Military Base North of Iraqi Capital**\
 `The Iraqi authorities said a wave of drones targeted several Iraqi military bases in the early hours of Tuesday, including the Taji base 12 miles north of Baghdad, hours after Iran launched missiles at a U.S. base in Qatar.`\
 https://nytimes.com/video/world/middleeast/100000010246718/iraq-taji-base-explosion-iran.html
