@@ -7,8 +7,8 @@ https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.h
 https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
 
 **Trump’s cease-fire announcement caught his own top officials by surprise.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trumps-cease-fire-announcement-caught-his-own-top-officials-by-surprise
+`Before asserting that Iran and Israel had agreed to a cease-fire, President Trump spoke to Prime Minister Benjamin Netanyahu of Israel and Iranian officials, with Qatar helping to mediate.`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trump-ceasefire-israel-iran
 
 **Mavericks, Daniel Gafford closing in on extension: Source**\
 `The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
