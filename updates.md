@@ -1,3 +1,7 @@
+**Verdict in Wander Franco underage sexual abuse trial likely coming Thursday**\
+`While rulings are typically handled the same day, a judge said more time is needed due to the amount of evidence and testimony. `\
+https://nytimes.com/athletic/6446973/2025/06/23/rays-wander-franco-trial-verdict/
+
 **Iran has previously given warnings before attacking U.S. bases, limiting damage and repercussions.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/iran-has-previously-given-warnings-before-attacking-us-bases-limiting-damage-and-repercussions
