@@ -22,6 +22,10 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Lyon relegated to Ligue 2 following review of financial situation**\
+`The French club failed to improve their financial situation before the end of the season. `\
+https://nytimes.com/athletic/6447717/2025/06/24/lyon-relegation-ligue-2/
+
 **Manhattan Democrats Will Weigh Tenure of District Attorney in Primary**\
 `Patrick Timmins, who is challenging Alvin L. Bragg, says the groundbreaking felony conviction of President Trump is irrelevant. He promises to tackled crime in the subway.`\
 https://nytimes.com/2025/06/24/nyregion/manhattan-district-attorney-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/24/upshot/reconciliation-byrd-bath.html
 **Strike Set Back Iran’s Nuclear Program by Only a Few Months, U.S. Report Says**\
 `Classified findings indicate that the attack sealed off the entrances to two facilities but did not collapse their underground buildings.`\
 https://nytimes.com/2025/06/24/us/politics/iran-nuclear-sites.html
-
-**2025 NBA Draft preview: Teams to watch, a Rutgers moment and more**\
-`As the draft gets underway on Wednesday, here are the trends and teams we'll be watching. `\
-https://nytimes.com/athletic/6446133/2025/06/24/nba-draft-2025-lottery-dylan-harper-ace-bailey/
 

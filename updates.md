@@ -1,3 +1,7 @@
+**Lyon relegated to Ligue 2 following review of financial situation**\
+`The French club failed to improve their financial situation before the end of the season. `\
+https://nytimes.com/athletic/6447717/2025/06/24/lyon-relegation-ligue-2/
+
 **Manhattan Democrats Will Weigh Tenure of District Attorney in Primary**\
 `Patrick Timmins, who is challenging Alvin L. Bragg, says the groundbreaking felony conviction of President Trump is irrelevant. He promises to tackled crime in the subway.`\
 https://nytimes.com/2025/06/24/nyregion/manhattan-district-attorney-primary.html
