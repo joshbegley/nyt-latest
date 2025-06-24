@@ -1,3 +1,11 @@
+**Word of the Day: retrench**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/24/learning/word-of-the-day-retrench.html
+
+**Luis Suarez and the muscle memory of hundreds of previous finishes**\
+`The Inter Miami striker fleetingly turned back the clock against Palmeiras. He will probably need a time machine to knock out PSG`\
+https://nytimes.com/athletic/6447325/2025/06/24/luis-suarez-inter-miami-club-world-cup/
+
 **Red Sox base-running blunders lead manager Alex Cora to second straight ejection**\
 `Cora was also ejected on Sunday afternoon for arguing that Jarren Duran was safe at second. `\
 https://nytimes.com/athletic/6447381/2025/06/24/red-sox-alex-cora-ejection-explanation/

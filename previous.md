@@ -1,3 +1,11 @@
+**Word of the Day: retrench**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/24/learning/word-of-the-day-retrench.html
+
+**Luis Suarez and the muscle memory of hundreds of previous finishes**\
+`The Inter Miami striker fleetingly turned back the clock against Palmeiras. He will probably need a time machine to knock out PSG`\
+https://nytimes.com/athletic/6447325/2025/06/24/luis-suarez-inter-miami-club-world-cup/
+
 **Red Sox base-running blunders lead manager Alex Cora to second straight ejection**\
 `Cora was also ejected on Sunday afternoon for arguing that Jarren Duran was safe at second. `\
 https://nytimes.com/athletic/6447381/2025/06/24/red-sox-alex-cora-ejection-explanation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6447049/2025/06/24/yankees-brutal-watch-june/
 **Tuesday Briefing**\
 `A possible cease-fire between Israel and Iran.`\
 https://nytimes.com/2025/06/24/briefing/israel-iran-truce-gaza.html
-
-**Ben Brown hits rough patch in Cubs' loss to Cardinals, jeopardizing his spot in rotation**\
-`Brown, who has shown immense upside this season, could face a demotion when Shota Imanaga returns from injury this week.`\
-https://nytimes.com/athletic/6447058/2025/06/24/ben-brown-rough-outing-cubs-lose/
-
-**Mets fans love booing Braves' Ronald Acuña Jr., and he loves hearing them do it**\
-`It's unclear how long Chris Sale will be out after injuring his ribs, but the Braves are finding ways to win without him.`\
-https://nytimes.com/athletic/6447106/2025/06/24/braves-ronald-acuna-jr-mets-chris-sale-update/
 
