@@ -1,3 +1,7 @@
+**London Police Appeal for Help in the Theft of a $200,000 Violin**\
+`British police are asking for assistance in identifying the suspect in the theft of a 285-year-old violin, which was snatched while a musician was in a pub.`\
+https://nytimes.com/2025/06/24/world/europe/london-violin-stolen-police.html
+
 **A Cuomo Victory Would Signal a Comeback From His Sexual Harassment Scandal**\
 `The former governor resigned in 2021 after the state attorney general found he had harassed roughly a dozen women.`\
 https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-sexual-harassment.html
