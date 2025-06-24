@@ -22,6 +22,10 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Central Park Hits Its Hottest Temperature Since 2012**\
+`New York’s official temperature gauge hit 99 degrees on Tuesday afternoon. It could climb even higher.`\
+https://nytimes.com/2025/06/24/weather/new-york-city-temperatures-heat-today.html
+
 **Haymarket, From a Saga Alum, Takes a Global Approach**\
 `Massara moves into the Time and Tide space, Samsaen emulates a Thai train station and more restaurant news.`\
 https://nytimes.com/2025/06/24/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447593/2025/06/24/why-inter-miamis-fluid-attack-an
 **Andrew Cuomo casts his vote as he looks to cap a political comeback.**\
 `By Sean Piccoli`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/andrew-cuomo-casts-his-vote-as-he-looks-to-cap-a-political-comeback
-
-**We asked. The top candidates for mayor answered.**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/we-asked-the-top-candidates-for-mayor-answered
 
