@@ -1,3 +1,5 @@
+
+
 **Far More New Yorkers Voted Early This Year, With Strong Showing by Younger Voters**\
 `More than twice as many New York City voters voted early in person than in 2021, the last time there was a mayoral primary.`\
 https://nytimes.com/2025/06/24/nyregion/nyc-mayor-early-voting.html
