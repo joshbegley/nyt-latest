@@ -1,3 +1,11 @@
+**Trump Departs for NATO Summit and ‘a New Set of Problems’**\
+`President Trump is expected to talk about spending commitments from the alliance’s members, while NATO’s secretary general has been eager to avoid diplomatic blowups.`\
+https://nytimes.com/2025/06/24/us/politics/nato-trump-preview.html
+
+**The Bounce: Can the Cavaliers, Knicks dominate a potentially wide-open East? The WOE meter answers**\
+`Injuries cast a dark cloud over an otherwise fun NBA postseason. Will those same injuries leave the East wide open next season?`\
+https://nytimes.com/athletic/6447855/2025/06/24/cavaliers-knicks-pacers-tyrese-haliburton-nba-east-playoffs-the-bounce/
+
 **Tropical Storm Andrea Forms in the Atlantic**\
 `See the likely path and wind arrival times for Andrea.`\
 https://nytimes.com/interactive/2025/06/24/weather/andrea-map-path-tracker.html
