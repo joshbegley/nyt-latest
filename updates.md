@@ -1,3 +1,15 @@
+**Tropical Storm Andrea Forms in the Atlantic**\
+`See the likely path and wind arrival times for Andrea.`\
+https://nytimes.com/interactive/2025/06/24/weather/andrea-map-path-tracker.html
+
+**Here Are 5 Key City Council Races to Watch in the N.Y.C. Primary**\
+`In two bitterly contested races in Brooklyn, Democratic candidates have clashed over Gaza, while in Manhattan Anthony Weiner is trying to return to the Council.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-democratic-primary-city-council.html
+
+**The Windup: Reds' top prospect debuting vs. Yankees tonight**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6447434/2025/06/24/chase-burns-reds-debut-the-windup/
+
 **‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
 `Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened” — and the lesson he took away.`\
 https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
