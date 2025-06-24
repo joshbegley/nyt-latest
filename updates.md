@@ -1,3 +1,19 @@
+**Iran’s president casts the cease-fire as a victory and floats the prospect of nuclear talks.**\
+`By Ephrat Livni and Sanam Mahoozi`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/irans-president-casts-the-cease-fire-as-a-victory-and-floats-the-prospect-of-nuclear-talks
+
+**A Cease-Fire Between Israel and Iran Appeared to Hold**\
+`Also, New Yorkers went to the polls. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/06/24/briefing/iran-israel-truce-new-york-city-election.html
+
+**Trump’s threat to N.Y.C.’s finances dominates comptroller’s race.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/trumps-threat-to-nycs-finances-dominates-comptrollers-race
+
+**‘Baby Farm’ Is a Harrowing Nigerian Drama**\
+`Inspired by the bleak, real-life phenomenon of Nigerian “baby factories,” the Netflix series nonetheless manages not to be a didactic, punishing slog.`\
+https://nytimes.com/2025/06/24/arts/television/baby-farm-netflix-nigeria.html
+
 **Flyers' Tocchet: 'We'd be idiots' not to try Michkov, Zegras on a line together**\
 `New coach Rick Tocchet spoke with Zegras "at length" after Monday's trade to discuss possibilities.`\
 https://nytimes.com/athletic/6449144/2025/06/24/flyers-trevor-zegras-michkov-center-tocchet/

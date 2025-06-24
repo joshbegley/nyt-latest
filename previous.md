@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
-**Flyers' Tocchet: 'We'd be idiots' not to try Michkov, Zegras on a line together**\
-`New coach Rick Tocchet spoke with Zegras "at length" after Monday's trade to discuss possibilities.`\
-https://nytimes.com/athletic/6449144/2025/06/24/flyers-trevor-zegras-michkov-center-tocchet/
+**Iran’s president casts the cease-fire as a victory and floats the prospect of nuclear talks.**\
+`By Ephrat Livni and Sanam Mahoozi`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/irans-president-casts-the-cease-fire-as-a-victory-and-floats-the-prospect-of-nuclear-talks
 
-**Duncan Keith's Hall of Fame election puts him in rarefied company — exactly where he belongs**\
-`Keith was, is and always will be a Blackhawks legend. Now, officially, he’s a hockey legend, too.`\
-https://nytimes.com/athletic/6449119/2025/06/24/duncan-keith-hockey-hall-of-fame-blackhawks/
+**A Cease-Fire Between Israel and Iran Appeared to Hold**\
+`Also, New Yorkers went to the polls. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/06/24/briefing/iran-israel-truce-new-york-city-election.html
 
-**JB Pritzker to Seek Third Term as Illinois Governor**\
-`Mr. Pritzker, a Democrat and billionaire hotel heir, has emerged as a vocal critic of President Trump and a possible presidential contender.`\
-https://nytimes.com/2025/06/24/us/governor-jb-pritzker-illinois-reelection.html
+**Trump’s threat to N.Y.C.’s finances dominates comptroller’s race.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/trumps-threat-to-nycs-finances-dominates-comptrollers-race
 
-**Pride Flags Slashed at an Atlanta L.G.B.T.Q. Landmark**\
-`Authorities were considering hate crime charges after a group of young men tore Pride flags at a rainbow crosswalk in Atlanta on Tuesday.`\
-https://nytimes.com/video/us/100000010248608/atlanta-pride-lgbtq-flag-vandalism.html
+**‘Baby Farm’ Is a Harrowing Nigerian Drama**\
+`Inspired by the bleak, real-life phenomenon of Nigerian “baby factories,” the Netflix series nonetheless manages not to be a didactic, punishing slog.`\
+https://nytimes.com/2025/06/24/arts/television/baby-farm-netflix-nigeria.html
 
