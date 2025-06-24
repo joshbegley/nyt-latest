@@ -1,3 +1,7 @@
+**A Toddler With a Halo Stirs Up the Campus Unfaithful**\
+`Set among divinity school professors unsure of just what they believe, Robert P. Baird’s satirical novel, “The Nimbus,” strains for the heavenly.`\
+https://nytimes.com/2025/06/24/books/review/the-nimbus-robert-baird.html
+
 **The West isn't wide open anymore. What can the 14 other teams do about OKC?**\
 `The 2025 title looks like just the start of a long run by the Thunder, which will require creativity from their conference rivals.`\
 https://nytimes.com/athletic/6438879/2025/06/24/thunder-western-conference-nba-parity-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436193/2025/06/24/us-open-art-spander-sportswriter
 **A Fragile Cease-Fire Between Iran and Israel, and Toxic Homes in L.A.**\
 `Plus, Florida’s new “Alligator Alcatraz” for migrants.`\
 https://nytimes.com/2025/06/24/podcasts/the-headlines/ceasefire-iran-israel-toxic-homes-los-angeles.html
-
-**A beginner’s guide to the 2025 NHL Draft: Storylines, top prospects and biggest questions**\
-`Need to catch up on everything NHL Draft? This is your primer for what will happen Friday night in Los Angeles.`\
-https://nytimes.com/athletic/6427171/2025/06/24/nhl-draft-2025-prospects-order-guide/
 
