@@ -1,3 +1,19 @@
+**Judge Orders Administration to ‘Facilitate’ Return of Another Deported Immigrant**\
+`The ruling was the fourth time in recent months that federal judges directed the government to seek the return of immigrants who were expelled in error or in violation of previous court orders.`\
+https://nytimes.com/2025/06/24/us/politics/trump-deportation-el-salvador.html
+
+**New York City Council Primary Election Results**\
+`Get live results and maps from the 2025 New York primary election.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-city-council-primary.html
+
+**New York Primary Election Results**\
+`Get live results and maps from the 2025 New York primary elections.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-primary.html
+
+**New York City Mayoral Primary Election Results**\
+`Get live results and maps from the 2025 New York City primary election.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-city-mayor-primary.html
+
 **8 Rising Pop Girls You Should Hear Now**\
 `Reneé Rapp, Ethel Cain, Suzy Clue and more from prospects experimenting with undeniably modern modes while recognizing their place in the Pop Girl lineage.`\
 https://nytimes.com/2025/06/24/arts/music/amplifier-newsletter-pop-girls.html

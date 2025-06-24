@@ -22,6 +22,10 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Aaron Rodgers says he will retire after 2025 season with Pittsburgh Steelers**\
+`In the 2023-24 season, Rodgers threw for 3.897 yards, 28 touchdowns and 11 interceptions. `\
+https://nytimes.com/athletic/6448463/2025/06/24/aaron-rodgers-pittsburgh-steelers-retirement/
+
 **Judge Orders Administration to ‘Facilitate’ Return of Another Deported Immigrant**\
 `The ruling was the fourth time in recent months that federal judges directed the government to seek the return of immigrants who were expelled in error or in violation of previous court orders.`\
 https://nytimes.com/2025/06/24/us/politics/trump-deportation-el-salvador.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-city-co
 **New York Primary Election Results**\
 `Get live results and maps from the 2025 New York primary elections.`\
 https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-primary.html
-
-**New York City Mayoral Primary Election Results**\
-`Get live results and maps from the 2025 New York City primary election.`\
-https://nytimes.com/interactive/2025/06/24/us/elections/results-new-york-city-mayor-primary.html
 
