@@ -1,10 +1,14 @@
+**Can Iran, Israel and the U.S. Now All Claim to Have Won?**\
+`Iran’s response to the attacks on its nuclear facilities killed no Americans, and analysts see a chance for a cease-fire, with each nation having a victory narrative.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.html
+
 **Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
 `Baldelli, who’s currently in his seventh season as manager, had opened the 2025 season on the hot seat after a poor starting stretch.`\
 https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
 
 **Trump’s cease-fire announcement caught his own top officials by surprise.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trumps-cease-fire-announcement-caught-his-own-top-officials-by-surprise
+`Before asserting that Iran and Israel had agreed to a cease-fire, President Trump spoke to Prime Minister Benjamin Netanyahu of Israel and Iranian officials, with Qatar helping to mediate.`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trump-ceasefire-israel-iran
 
 **Mavericks, Daniel Gafford closing in on extension: Source**\
 `The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
 **Reds’ big roster moves send a message: 'We want to win games'**\
 `With Chase Burns entering the clubhouse and struggling Jeimer Candelario headed out, Cincinnati is energized.`\
 https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeimer-candelario/
-
-**Zegras trade sets up intriguing offseason for Ducks, who have a win-now mandate**\
-`Will the Ducks, with ample cap space, be in the Mitch Marner sweepstakes? Or is a big trade more likely?`\
-https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
 

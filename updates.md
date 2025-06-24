@@ -1,3 +1,11 @@
+**Can Iran, Israel and the U.S. Now All Claim to Have Won?**\
+`Iran’s response to the attacks on its nuclear facilities killed no Americans, and analysts see a chance for a cease-fire, with each nation having a victory narrative.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.html
+
+**Trump’s cease-fire announcement caught his own top officials by surprise.**\
+`Before asserting that Iran and Israel had agreed to a cease-fire, President Trump spoke to Prime Minister Benjamin Netanyahu of Israel and Iranian officials, with Qatar helping to mediate.`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trump-ceasefire-israel-iran
+
 **Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
 `Baldelli, who’s currently in his seventh season as manager, had opened the 2025 season on the hot seat after a poor starting stretch.`\
 https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
