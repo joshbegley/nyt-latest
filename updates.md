@@ -1,3 +1,7 @@
+**Central Park Hits Its Hottest Temperature Since 2012**\
+`New York’s official temperature gauge hit 99 degrees on Tuesday afternoon. It could climb even higher.`\
+https://nytimes.com/2025/06/24/weather/new-york-city-temperatures-heat-today.html
+
 **Haymarket, From a Saga Alum, Takes a Global Approach**\
 `Massara moves into the Time and Tide space, Samsaen emulates a Thai train station and more restaurant news.`\
 https://nytimes.com/2025/06/24/dining/nyc-restaurant-news.html
