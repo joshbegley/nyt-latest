@@ -1,3 +1,7 @@
+**Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
+`Baldelli opened the season on the hot seat after a poor start. Bailey Ober allowed a pair of 3-run homers to the Mariners in an 11-2 loss.`\
+https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
+
 **Inter Miami 2 Palmeiras 2: Messi's side blows chance to top Club World Cup group**\
 `Analysis from a wild conclusion to Group A at the FIFA Club World Cup, where Lionel Messi will see a familiar foe in the last 16`\
 https://nytimes.com/athletic/6446883/2025/06/23/inter-miami-palmeiras-club-world-cup-messi-suarez-allende-highlights/

@@ -23,7 +23,7 @@ https://nytimes.com/2025/06/23/crosswords/daily-puzzle-2025-06-24.html
 https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.html
 
 **Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
-`Baldelli, who’s currently in his seventh season as manager, had opened the 2025 season on the hot seat after a poor starting stretch.`\
+`Baldelli opened the season on the hot seat after a poor start. Bailey Ober allowed a pair of 3-run homers to the Mariners in an 11-2 loss.`\
 https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
 
 **Trump’s Cease-Fire Announcement Catches His Own Top Officials by Surprise**\
