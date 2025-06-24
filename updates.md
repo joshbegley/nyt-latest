@@ -1,3 +1,7 @@
+**Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
+`Baldelli, who’s currently in his seventh season as manager, had opened the 2025 season on the hot seat after a poor starting stretch.`\
+https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
+
 **Trump’s cease-fire announcement caught his own top officials by surprise.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trumps-cease-fire-announcement-caught-his-own-top-officials-by-surprise

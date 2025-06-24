@@ -1,3 +1,7 @@
+**Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
+`Baldelli, who’s currently in his seventh season as manager, had opened the 2025 season on the hot seat after a poor starting stretch.`\
+https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
+
 **Trump’s cease-fire announcement caught his own top officials by surprise.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trumps-cease-fire-announcement-caught-his-own-top-officials-by-surprise
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeim
 **Zegras trade sets up intriguing offseason for Ducks, who have a win-now mandate**\
 `Will the Ducks, with ample cap space, be in the Mitch Marner sweepstakes? Or is a big trade more likely?`\
 https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
-
-**PSG survives Club World Cup's toughest group and chases double triumph**\
-`The Champions League winners are through to the knockout stage and looking dangerous.`\
-https://nytimes.com/athletic/6446657/2025/06/23/psg-club-world-cup-champions-league-seattle-sounders/
 
