@@ -1,3 +1,11 @@
+**Cooper Flagg long-shot bets and Ace Bailey dropping impact NBA Draft betting markets**\
+`Max Meyer spoke to oddsmakers to report on the NBA Draft betting action. Read about how Cooper Flagg and Ace Bailey have become liabilities.`\
+https://nytimes.com/athletic/6446415/2025/06/24/nba-draft-betting-odds-cooper-flagg/
+
+**Trump says he is ‘not happy’ with Israel and Iran.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/trump-says-he-is-not-happy-with-israel-and-iran
+
 **Final mayoral primary polls suggest a dead heat between Cuomo and Mamdani.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/final-mayoral-primary-polls-suggest-a-dead-heat-between-cuomo-and-mamdani
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-may
 **The closing arguments of the mayoral candidates.**\
 `By Nicholas Fandos, Emma G. Fitzsimmons, Jeffery C. Mays and Maya King`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-closing-arguments-of-the-mayoral-candidates
-
-**Live Updates: Polls Are Open in New York City’s Democratic Primary for Mayor**\
-``\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor
-
-**Why N.Y.C. Business Leaders Fear Mamdani**\
-`As voters head to the polls, the democratic socialist candidate appears to be neck-and-neck with Andrew Cuomo. That has many executives worried.`\
-https://nytimes.com/2025/06/24/business/dealbook/new-york-mayor-mamdani-cuomo-business.html
 
