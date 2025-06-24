@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/24/world/asia/china-south-korea-sea-dispute.html
 https://nytimes.com/2025/06/24/world/europe/nato-what-to-watch.html
 
 **What to Know About the Cease-Fire Between Israel and Iran**\
-`A senior Israeli official accused Iran of breaking the deal hours after it was announced, raising questions about whether the war would resume.`\
+`A senior Israeli official accused Iran of breaking the deal hours after it was announced. Iran’s military denied it had fired more missiles, according to state news outlets.`\
 https://nytimes.com/2025/06/24/world/middleeast/israel-iran-cease-fire-deal-war-trump.html
 
 **Antisemitism Isn’t What People Think It Is**\

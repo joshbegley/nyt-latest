@@ -1,3 +1,7 @@
+**John Hollinger's Top 75 draft prospects, from Cooper Flagg to Ace Bailey and more**\
+`One big man has moved all the way into the top 10 after our initial breakdown of top prospects.`\
+https://nytimes.com/athletic/6445611/2025/06/24/nba-draft-2025-top-prospects-cooper-flagg-bailey/
+
 **The New York Times International Edition in Print for Wednesday, June 25, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/24/todays-new-york-times-international-edition
