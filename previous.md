@@ -1,3 +1,15 @@
+**Judge Blocks Trump Proclamation Barring Harvard’s International Students**\
+`The same judge issued an order last week blocking a separate government effort to keep the school from enrolling students from abroad.`\
+https://nytimes.com/2025/06/23/us/harvard-trump-international-students.html
+
+**Qatar Intervened to Persuade Iran to Accept Cease-Fire Deal, Diplomats Say**\
+`There was no immediate confirmation from the Israeli or Iranian governments of a cease-fire, but Qatar has long worked to present itself as capable of narrowing the gaps between warring parties.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-israel-ceasefire-qatar.html
+
+**Trump Administration to End Protections for 58 Million Acres of National Forests**\
+`Agriculture Secretary Brooke Rollins said the Clinton-era rule barring road construction and logging was outdated and “absurd.”`\
+https://nytimes.com/2025/06/23/climate/trump-end-protections-for-58-million-acres-of-national-forests.html
+
 **Michigan earns a key recruiting win over Bama with Titan Davis**\
 `A four-star defensive lineman from St. Louis, Titan Davis is now the second-highest rated recruit in Michigan football's Class of 2026.`\
 https://nytimes.com/athletic/6446819/2025/06/23/titan-davis-michigan-football-recruiting-commitment/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/23/world/middleeast/iran-missile-attack-us-base-qata
 **What will Trevor Zegras' arrival mean for the Flyers' need at center?**\
 `"We hope he can find that magic again," GM Daniel Briere said of Zegras, acquired Monday in a trade with Anaheim.`\
 https://nytimes.com/athletic/6446600/2025/06/23/trevor-zegras-trade-flyers-center/
-
-**Astros' Jeremy Peña changes agencies, hires Scott Boras: Source**\
-`Houston's star shortstop is batting .326 with a 144 OPS+ and will become a free agent after the 2027 season.`\
-https://nytimes.com/athletic/6446558/2025/06/23/astros-jeremy-pena-scott-boras-agent/
-
-**Ad Giants, Seeking Merger, Agree to F.T.C.’s No-Boycott Deal**\
-`Omnicom and Interpublic said they would not direct their clients’ advertising away from media platforms because of the platforms’ political content.`\
-https://nytimes.com/2025/06/23/business/omnicom-interpublic-merger-ftc.html
-
-**Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained.**\
-`Bombing Iran without congressional authorization escalated a bipartisan trend of presidents bypassing the original intent of the Constitution.`\
-https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.html
 

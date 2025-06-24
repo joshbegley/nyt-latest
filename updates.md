@@ -1,3 +1,15 @@
+**Judge Blocks Trump Proclamation Barring Harvard’s International Students**\
+`The same judge issued an order last week blocking a separate government effort to keep the school from enrolling students from abroad.`\
+https://nytimes.com/2025/06/23/us/harvard-trump-international-students.html
+
+**Qatar Intervened to Persuade Iran to Accept Cease-Fire Deal, Diplomats Say**\
+`There was no immediate confirmation from the Israeli or Iranian governments of a cease-fire, but Qatar has long worked to present itself as capable of narrowing the gaps between warring parties.`\
+https://nytimes.com/2025/06/23/world/middleeast/iran-israel-ceasefire-qatar.html
+
+**Trump Administration to End Protections for 58 Million Acres of National Forests**\
+`Agriculture Secretary Brooke Rollins said the Clinton-era rule barring road construction and logging was outdated and “absurd.”`\
+https://nytimes.com/2025/06/23/climate/trump-end-protections-for-58-million-acres-of-national-forests.html
+
 **On Truth Social, Trump Narrated U.S. Attacks in Real Time**\
 `The president gave updates on a war on his social media account: Armistices may never be the same again.`\
 https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
