@@ -1,3 +1,15 @@
+**One difference-making trade for each NL team in the wild-card race**\
+`Suggesting impact trades for the teams in the thick of the wild-card race, including a blockbuster for a contender that's eying the future. `\
+https://nytimes.com/athletic/6447630/2025/06/24/mlb-trade-deadline-national-league-wild-card-team-scenarios/
+
+**America’s Adversaries Are Gaining the Global Megaphone**\
+`The U.S. is dismantling key communications efforts abroad, once a major part of its efforts to build soft power. Its rivals are eager to fill the vacuum.`\
+https://nytimes.com/2025/06/24/business/media/us-china-russia-global-communications.html
+
+**Five-star Ryder Lyons, top uncommitted QB in Class of 2026, picks BYU over Oregon**\
+`Lyons, a California native, is ranked No. 19 overall and the No. 5 QB in the 247Sports Composite. `\
+https://nytimes.com/athletic/6447818/2025/06/24/ryder-lyons-5-star-quarterback-byu-oregon/
+
 **Cassidy, in Break With Kennedy, Calls for Vaccine Meeting Delay**\
 `The Senate health committee chairman said new members of a key advisory panel who were appointed by Robert F. Kennedy Jr. “lack experience.”`\
 https://nytimes.com/2025/06/24/us/politics/cassidy-kennedy-vaccine-committee.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6441614/2025/06/24/nba-draft-2025-clippers-potentia
 **How does ranked-choice voting work? Let’s look at how it worked last time.**\
 `By Meghan Morris, Eden Weingart and Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/how-does-ranked-choice-voting-work-lets-look-at-how-it-worked-last-time
-
-**Cannonball with Wesley Morris**\
-`Conversations about the culture that moves us – the good, the bad and whatever’s in between. Every week, critic Wesley Morris talks with writers, artists and his friends about the moment we’re in. New episodes drop Thursdays.`\
-https://nytimes.com/column/cannonball-with-wesley-morris
-
-**How Qatar Helped Broker the Israel-Iran Cease-Fire**\
-`In public, Qatar was insisting on the right to defend itself after Iran attacked a U.S. military site in the emirate. Behind the scenes, it was already mediating a truce between Israel and Iran.`\
-https://nytimes.com/2025/06/24/world/middleeast/iran-israel-qatar.html
-
-**Nico Williams tells Athletic Club he intends to join Barcelona**\
-`Barca do not plan to pay the release clause until after June 30, ensuring the deal is registered in the next financial year in Spain.`\
-https://nytimes.com/athletic/6437327/2025/06/24/nico-williams-barcelona-transfer-athletic-club/
 

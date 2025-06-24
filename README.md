@@ -1,3 +1,7 @@
+**The primary for public advocate pits Jumaane Williams against an Eric Adams ally.**\
+`By Maya King`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-primary-for-public-advocate-pits-jumaane-williams-against-an-eric-adams-ally
+
 **One difference-making trade for each NL team in the wild-card race**\
 `Suggesting impact trades for the teams in the thick of the wild-card race, including a blockbuster for a contender that's eying the future. `\
 https://nytimes.com/athletic/6447630/2025/06/24/mlb-trade-deadline-national-league-wild-card-team-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/israel-and
 **Clippers NBA Draft guide: Identifying potential fits, positions of need in LA**\
 `Rookies haven't seen much game action in LA recently, but could that change with some Clippers roster uncertainty?`\
 https://nytimes.com/athletic/6441614/2025/06/24/nba-draft-2025-clippers-potential-fits/
-
-**How does ranked-choice voting work? Let’s look at how it worked last time.**\
-`By Meghan Morris, Eden Weingart and Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/how-does-ranked-choice-voting-work-lets-look-at-how-it-worked-last-time
 
