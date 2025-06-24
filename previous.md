@@ -2,8 +2,8 @@
 `A four-star defensive lineman from St. Louis, Titan Davis is now the second-highest rated recruit in Michigan football's Class of 2026.`\
 https://nytimes.com/athletic/6446819/2025/06/23/titan-davis-michigan-football-recruiting-commitment/
 
-**Trump Posts Through the Iran Attack**\
-`The remarkable way the president narrated a war on his social media account: Armistices may never be the same again.`\
+**On Truth Social, Trump Narrated U.S. Attacks in Real Time**\
+`The president gave updates on a war on his social media account: Armistices may never be the same again.`\
 https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
 
 **Reds’ big roster moves send a message: 'We want to win games'**\
