@@ -1,3 +1,15 @@
+**Far More New Yorkers Voted Early This Year, With Strong Showing by Younger Voters**\
+`More than twice as many New York City voters voted early in person than in 2021, the last time there was a mayoral primary.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-mayor-early-voting.html
+
+**Cooper Flagg long-shot bets and Ace Bailey dropping in NBA Draft betting markets**\
+`Max Meyer spoke to oddsmakers to report on the NBA Draft betting action. Read about how Cooper Flagg and Ace Bailey have become liabilities.`\
+https://nytimes.com/athletic/6446415/2025/06/24/nba-draft-betting-odds-cooper-flagg/
+
+**Trump says he is ‘not happy’ with Israel and Iran.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/trump-says-he-is-not-happy-with-israel-and-iran
+
 **Final mayoral primary polls suggest a dead heat between Cuomo and Mamdani.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/final-mayoral-primary-polls-suggest-a-dead-heat-between-cuomo-and-mamdani
@@ -11,7 +23,7 @@ https://nytimes.com/2025/06/24/world/europe/queen-elizabeth-memorial-bridge.html
 https://nytimes.com/2025/06/24/world/middleeast/israel-iran-war-ceasefire-tehran-strikes.html
 
 **Spain 6-5 Germany: Breaking down an absolutely wild game of football**\
-`Welcome to a match that had a missed penalty, a calamitous own goal, and two separate hat-tricks — including a goal straight from a corner `\
+`Welcome to a match that had a missed penalty, a calamitous own goal, and two separate hat-tricks - including a goal straight from a corner `\
 https://nytimes.com/athletic/6447541/2025/06/24/spain-6-germany-5-euro-u19-analysis/
 
 **Justice Dept. Leader Suggested Violating Court Orders, Whistle-Blower Says**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/24/style/street-style-look-summery-white-clothes.htm
 **Here’s the latest.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/heres-the-latest
-
-**The closing arguments of the mayoral candidates.**\
-`By Nicholas Fandos, Emma G. Fitzsimmons, Jeffery C. Mays and Maya King`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-closing-arguments-of-the-mayoral-candidates
-
-**Live Updates: Polls Are Open in New York City’s Democratic Primary for Mayor**\
-``\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor
-
-**Why N.Y.C. Business Leaders Fear Mamdani**\
-`As voters head to the polls, the democratic socialist candidate appears to be neck-and-neck with Andrew Cuomo. That has many executives worried.`\
-https://nytimes.com/2025/06/24/business/dealbook/new-york-mayor-mamdani-cuomo-business.html
 
