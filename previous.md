@@ -1,3 +1,11 @@
+**Scenes From the Hottest Block in New York City**\
+`Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
+https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
+
+**Royal Domain**\
+`Ingrid Steffensen makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/06/23/crosswords/daily-puzzle-2025-06-24.html
+
 **Can Iran, Israel and the U.S. Now All Claim to Have Won?**\
 `Iran’s response to the attacks on its nuclear facilities killed no Americans, and analysts see a chance for a cease-fire, with each nation having a victory narrative.`\
 https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.html
@@ -6,9 +14,9 @@ https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.h
 `Baldelli, who’s currently in his seventh season as manager, had opened the 2025 season on the hot seat after a poor starting stretch.`\
 https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
 
-**Trump’s cease-fire announcement caught his own top officials by surprise.**\
+**Trump’s Cease-Fire Announcement Catches His Own Top Officials by Surprise**\
 `Before asserting that Iran and Israel had agreed to a cease-fire, President Trump spoke to Prime Minister Benjamin Netanyahu of Israel and Iranian officials, with Qatar helping to mediate.`\
-https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trump-ceasefire-israel-iran
+https://nytimes.com/2025/06/23/world/middleeast/trump-ceasefire-israel-iran.html
 
 **Mavericks, Daniel Gafford closing in on extension: Source**\
 `The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/23/climate/trump-end-protections-for-58-million-acre
 **Michigan earns a key recruiting win over Bama with Titan Davis**\
 `A four-star defensive lineman from St. Louis, Titan Davis is now the second-highest rated recruit in Michigan football's Class of 2026.`\
 https://nytimes.com/athletic/6446819/2025/06/23/titan-davis-michigan-football-recruiting-commitment/
-
-**On Truth Social, Trump Narrated U.S. Attacks in Real Time**\
-`The president gave updates on a war on his social media account: Armistices may never be the same again.`\
-https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
-
-**Reds’ big roster moves send a message: 'We want to win games'**\
-`With Chase Burns entering the clubhouse and struggling Jeimer Candelario headed out, Cincinnati is energized.`\
-https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeimer-candelario/
 

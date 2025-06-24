@@ -1,3 +1,15 @@
+**Scenes From the Hottest Block in New York City**\
+`Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
+https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
+
+**Royal Domain**\
+`Ingrid Steffensen makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/06/23/crosswords/daily-puzzle-2025-06-24.html
+
+**Trump’s Cease-Fire Announcement Catches His Own Top Officials by Surprise**\
+`Before asserting that Iran and Israel had agreed to a cease-fire, President Trump spoke to Prime Minister Benjamin Netanyahu of Israel and Iranian officials, with Qatar helping to mediate.`\
+https://nytimes.com/2025/06/23/world/middleeast/trump-ceasefire-israel-iran.html
+
 **Can Iran, Israel and the U.S. Now All Claim to Have Won?**\
 `Iran’s response to the attacks on its nuclear facilities killed no Americans, and analysts see a chance for a cease-fire, with each nation having a victory narrative.`\
 https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.html
