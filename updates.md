@@ -1,3 +1,7 @@
+**Video Captures Explosion at Military Base North of Iraqi Capital**\
+`The Iraqi authorities said a wave of drones targeted several Iraqi military bases in the early hours of Tuesday, including the Taji base 12 miles north of Baghdad, hours after Iran launched missiles at a U.S. base in Qatar.`\
+https://nytimes.com/video/world/middleeast/100000010246718/iraq-taji-base-explosion-iran.html
+
 **Wimbledon to honor Andy Murray with statue by 2027**\
 `Murray ended Britain’s 77-year wait for a male champion in 2013, before winning a second title three years later.`\
 https://nytimes.com/athletic/6447702/2025/06/24/andy-murray-statue-wimbledon/

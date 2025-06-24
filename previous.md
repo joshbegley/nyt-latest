@@ -1,3 +1,7 @@
+**Video Captures Explosion at Military Base North of Iraqi Capital**\
+`The Iraqi authorities said a wave of drones targeted several Iraqi military bases in the early hours of Tuesday, including the Taji base 12 miles north of Baghdad, hours after Iran launched missiles at a U.S. base in Qatar.`\
+https://nytimes.com/video/world/middleeast/100000010246718/iraq-taji-base-explosion-iran.html
+
 **Wimbledon to honor Andy Murray with statue by 2027**\
 `Murray ended Britain’s 77-year wait for a male champion in 2013, before winning a second title three years later.`\
 https://nytimes.com/athletic/6447702/2025/06/24/andy-murray-statue-wimbledon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423878/2025/06/24/maple-leafs-2025-draft-preview-n
 **Weight loss, a missed season and a 'little ways to go': Hunter Renfrow's comeback story**\
 `Renfrow hasn't felt like himself since 2021 and has been battling ulcerative colitis. Now, he hopes to earn a spot on the Panthers' roster.`\
 https://nytimes.com/athletic/6445898/2025/06/24/hunter-renfrow-nfl-panthers-raiders-comeback-clemson/
-
-**Canucks offseason preview mailbag, part 2: Abbotsford's champs, Vancouver's options in net**\
-`We answer a second set of pressing offseason questions our subscribers are pondering.`\
-https://nytimes.com/athletic/6444822/2025/06/24/canucks-offseason-preview-mailbag-part-2/
 
