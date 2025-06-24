@@ -1,3 +1,11 @@
+**Wizards trading Jordan Poole to Pelicans for CJ McCollum: Sources**\
+`The deal also sends Saddiq Bey to New Orleans and Kelly Olynyk to Washington. `\
+https://nytimes.com/athletic/6448901/2025/06/24/pelicans-trade-cj-mccollum-wizards-jordan-poole/
+
+**Manhattan Democrats Will Weigh Tenure of District Attorney in Primary**\
+`Patrick Timmins, who is challenging Alvin L. Bragg, says the groundbreaking felony conviction of President Trump is irrelevant. He promises to tackle crime in the subway.`\
+https://nytimes.com/2025/06/24/nyregion/manhattan-district-attorney-primary.html
+
 **Lyon relegated to Ligue 2 following review of financial situation**\
 `The French club failed to improve their financial situation before the end of the season. `\
 https://nytimes.com/athletic/6447717/2025/06/24/lyon-relegation-ligue-2/
