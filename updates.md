@@ -1,3 +1,7 @@
+**Live Updates: Israel and Iran Agree to Cease-Fire Announced by Trump**\
+`Both countries announced the truce in separate statements on Tuesday morning. Underscoring the fragility of the deal, soon after it went into effect, Israel said Iran had fired another missile barrage and threatened to retaliate.`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
+
 **Canada's Marsch cleared by Concacaf over alleged use of 'offensive language'**\
 `Concacaf's disciplinary committee found "no clear evidence" Marsch, 51, disregarded the competition's rules.`\
 https://nytimes.com/athletic/6447490/2025/06/24/jesse-marsch-canada-cleared-concacaf/
