@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Cease-Fire Between Israel and Iran Appears to Hold After Trump Rebuke**\
+`The truce went into effect after pressure from President Trump and Qatar. Israel said its forces were now shifting their attention back to Gaza.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-ceasefire-trump.html
+
+**Trump’s Cuts Could Leave the U.S. Exposed Amid a Heightened Threat From Iran**\
+`The president has slashed the federal bureaucracy and reoriented much of the national security apparatus to help with his immigration crackdown.`\
+https://nytimes.com/2025/06/24/us/politics/trump-cuts-iran-threats.html
+
+**Using water and fans, N.Y.C. voters try to stay cool during primary voting.**\
+`By Taylor Robinson`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/using-water-and-fans-nyc-voters-try-to-stay-cool-during-primary-voting
+
 **Iran’s president casts the cease-fire as a victory and floats the prospect of nuclear talks.**\
 `By Ephrat Livni and Sanam Mahoozi`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/irans-president-casts-the-cease-fire-as-a-victory-and-floats-the-prospect-of-nuclear-talks
-
-**A Cease-Fire Between Israel and Iran Appeared to Hold**\
-`Also, New Yorkers went to the polls. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/06/24/briefing/iran-israel-truce-new-york-city-election.html
-
-**Trump’s threat to N.Y.C.’s finances dominates comptroller’s race.**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/trumps-threat-to-nycs-finances-dominates-comptrollers-race
-
-**‘Baby Farm’ Is a Harrowing Nigerian Drama**\
-`Inspired by the bleak, real-life phenomenon of Nigerian “baby factories,” the Netflix series nonetheless manages not to be a didactic, punishing slog.`\
-https://nytimes.com/2025/06/24/arts/television/baby-farm-netflix-nigeria.html
 
