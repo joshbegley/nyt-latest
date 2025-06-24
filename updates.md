@@ -1,3 +1,11 @@
+**Blake Farenthold, 63, Congressman Who Quit in Harassment Case, Dies**\
+`A Texas Republican, he gave up his seat after news broke that public funds had been used to settle the case, made by his former communications director.`\
+https://nytimes.com/2025/06/24/us/politics/blake-farenthold-dead.html
+
+**Anthony Weiner Hopes Voters Have Forgiven or Forgotten**\
+`Mr. Weiner returned from a prison term to launch an unlikely campaign for the City Council. Outside a polling place on Tuesday, it was hot, mostly friendly and a little awkward.`\
+https://nytimes.com/2025/06/24/nyregion/anthony-weiner-comeback-council.html
+
 **The Fears Dominating the NATO Summit**\
 `Russian aggression and keeping Trump happy are the two themes of the gathering so far.`\
 https://nytimes.com/live/2025/06/16/opinion/thepoint/nato-summit-trump-russia-defense
