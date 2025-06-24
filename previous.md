@@ -22,6 +22,14 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**How Inter Miami's fluid attack and Palmeiras' runs in behind created maximum fun**\
+`How both teams entertained their way to the knockouts`\
+https://nytimes.com/athletic/6447593/2025/06/24/why-inter-miamis-fluid-attack-and-palmeiras-runs-in-behind-created-maximum-fun/
+
+**Andrew Cuomo casts his vote as he looks to cap a political comeback.**\
+`By Sean Piccoli`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/andrew-cuomo-casts-his-vote-as-he-looks-to-cap-a-political-comeback
+
 **We asked. The top candidates for mayor answered.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/we-asked-the-top-candidates-for-mayor-answered
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-may
 **Messages From the U.S. Attack on Iran**\
 `Readers weigh in on the legality and morality of President Trump’s decision to bomb Iranian nuclear sites.`\
 https://nytimes.com/2025/06/24/opinion/us-attack-iran.html
-
-**For B-2 Pilots, a 37-Hour Nonstop Mission to Iran and Back**\
-`The U.S. crews involved in attacking the nuclear site at Fordo probably trained for years. But dropping 30,000-pound bombs was almost certainly a new feeling.`\
-https://nytimes.com/2025/06/24/us/politics/b2-pilots-iran.html
-
-**How Netanyahu’s Move Against Iran Gives Him Room to Maneuver on Gaza**\
-`Benjamin Netanyahu, the Israeli prime minister, has avoided a truce in Gaza. Boosted by his Iran campaign, he can negotiate from strength.`\
-https://nytimes.com/2025/06/24/world/middleeast/netanyahu-iran-gaza-israel.html
 

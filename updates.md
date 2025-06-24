@@ -1,3 +1,11 @@
+**How Inter Miami's fluid attack and Palmeiras' runs in behind created maximum fun**\
+`How both teams entertained their way to the knockouts`\
+https://nytimes.com/athletic/6447593/2025/06/24/why-inter-miamis-fluid-attack-and-palmeiras-runs-in-behind-created-maximum-fun/
+
+**Andrew Cuomo casts his vote as he looks to cap a political comeback.**\
+`By Sean Piccoli`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/andrew-cuomo-casts-his-vote-as-he-looks-to-cap-a-political-comeback
+
 **The Best Data Removal Services**\
 `If you’ve ever Googled yourself — who hasn’t? — you’ve probably found your personal information for sale on websites belonging to data brokers.`\
 https://nytimes.com/wirecutter/reviews/best-data-removal-services/
