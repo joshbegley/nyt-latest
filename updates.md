@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`A possible cease-fire between Israel and Iran.`\
+https://nytimes.com/2025/06/24/briefing/israel-iran-truce-gaza.html
+
+**Ben Brown hits rough patch in Cubs' loss to Cardinals, jeopardizing his spot in rotation**\
+`Brown, who has shown immense upside this season, could face a demotion when Shota Imanaga returns from injury this week.`\
+https://nytimes.com/athletic/6447058/2025/06/24/ben-brown-rough-outing-cubs-lose/
+
+**Mets fans love booing Braves' Ronald Acuña Jr., and he loves hearing them do it**\
+`It's unclear how long Chris Sale will be out after injuring his ribs, but the Braves are finding ways to win without him.`\
+https://nytimes.com/athletic/6447106/2025/06/24/braves-ronald-acuna-jr-mets-chris-sale-update/
+
 **Euro 2025: Italy team guide - midfield depth, a favourable group but a confusing build-up**\
 `From players to watch to pedigree and much more, we set out what to epect from Italy at the European Championship`\
 https://nytimes.com/athletic/6413162/2025/06/24/italy-team-guide-euro-2025/
