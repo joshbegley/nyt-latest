@@ -1,3 +1,7 @@
+**Final mayoral primary polls suggest a dead heat between Cuomo and Mamdani.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/final-mayoral-primary-polls-suggest-a-dead-heat-between-cuomo-and-mamdani
+
 **Design for Queen Elizabeth II Memorial Features a Tiara-Inspired Bridge**\
 `A London park is to host monuments celebrating Britain’s longest-reigning monarch, with two statues also planned.`\
 https://nytimes.com/2025/06/24/world/europe/queen-elizabeth-memorial-bridge.html
