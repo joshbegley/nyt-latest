@@ -1,3 +1,7 @@
+**Pride Flags Slashed at Atlanta L.G.B.T.Q. Landmark, Four Arrested**\
+`A group of male youths traveled to Atlanta before dawn and tore flags at a rainbow crosswalk, the police said. Two of them remain at large as the authorities consider hate crime charges.`\
+https://nytimes.com/2025/06/24/us/politics/atlanta-hate-crime-pride-flags.html
+
 **Wednesday Briefing: New Details About U.S. Strikes on Iran**\
 `Plus, Australia’s “Flying Padres”`\
 https://nytimes.com/2025/06/24/briefing/iran-us-strikes-israel-nato-trump.html
