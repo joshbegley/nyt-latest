@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**A Running List of Policies Rejected From the Republican Megabill**\
+`So far, the parliamentarian has determined that dozens of provisions do not pass muster to be included.`\
+https://nytimes.com/interactive/2025/06/24/upshot/reconciliation-byrd-bath.html
+
+**Strike Set Back Iran’s Nuclear Program by Only a Few Months, U.S. Report Says**\
+`Classified findings indicate that the attack sealed off the entrances to two facilities but did not collapse their underground buildings.`\
+https://nytimes.com/2025/06/24/us/politics/iran-nuclear-sites.html
+
+**2025 NBA Draft preview: Teams to watch, a Rutgers moment and more**\
+`As the draft gets underway on Wednesday, here are the trends and teams we'll be watching. `\
+https://nytimes.com/athletic/6446133/2025/06/24/nba-draft-2025-lottery-dylan-harper-ace-bailey/
+
 **His swagger intact, Adams says ‘I know how to win a race for mayor.’**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/his-swagger-intact-adams-says-i-know-how-to-win-a-race-for-mayor
-
-**We Updated Our Chicago Dining Guide**\
-`An Italian-inspired restaurant with Midwestern roots, a suburban spot for top-tier Hawaiian food, and French Canadian dishes from a powerhouse kitchen.`\
-https://nytimes.com/2025/06/24/dining/where-to-eat-chicago.html
-
-**How Heat Waves Can Worsen Air Quality**\
-`Scientists are increasingly concerned about the ways extreme heat and air pollution are linked.`\
-https://nytimes.com/2025/06/24/climate/heat-wave-air-quality.html
-
-**England, Headingley and another cricket victory for the ages**\
-`The famous old ground in West Yorkshire has a rich history of producing drama - it delivered again, thanks to Ben Duckett and Stokes' team `\
-https://nytimes.com/athletic/6448569/2025/06/24/england-india-headingley-duckett-stokes/
 

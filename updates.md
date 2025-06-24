@@ -1,3 +1,15 @@
+**A Running List of Policies Rejected From the Republican Megabill**\
+`So far, the parliamentarian has determined that dozens of provisions do not pass muster to be included.`\
+https://nytimes.com/interactive/2025/06/24/upshot/reconciliation-byrd-bath.html
+
+**Strike Set Back Iran’s Nuclear Program by Only a Few Months, U.S. Report Says**\
+`Classified findings indicate that the attack sealed off the entrances to two facilities but did not collapse their underground buildings.`\
+https://nytimes.com/2025/06/24/us/politics/iran-nuclear-sites.html
+
+**2025 NBA Draft preview: Teams to watch, a Rutgers moment and more**\
+`As the draft gets underway on Wednesday, here are the trends and teams we'll be watching. `\
+https://nytimes.com/athletic/6446133/2025/06/24/nba-draft-2025-lottery-dylan-harper-ace-bailey/
+
 **The Best Data Removal Services**\
 `If you’ve ever Googled yourself — who hasn’t? — you’ve probably found your personal information for sale on websites belonging to data brokers.`\
 https://nytimes.com/wirecutter/reviews/best-data-removal-services/
