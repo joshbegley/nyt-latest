@@ -1,3 +1,7 @@
+**Trump’s cease-fire announcement caught his own top officials by surprise.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trumps-cease-fire-announcement-caught-his-own-top-officials-by-surprise
+
 **Mavericks, Daniel Gafford closing in on extension: Source**\
 `The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
 https://nytimes.com/athletic/6446807/2025/06/23/mavericks-daniel-gafford-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
 **PSG survives Club World Cup's toughest group and chases double triumph**\
 `The Champions League winners are through to the knockout stage and looking dangerous.`\
 https://nytimes.com/athletic/6446657/2025/06/23/psg-club-world-cup-champions-league-seattle-sounders/
-
-**Trump Says ‘Time for Peace’ After Iran Gives Warning Before Firing on U.S. Base**\
-`The Pentagon said there were no reports of casualties after the strike on Al Udeid Air Base in Qatar, and President Trump said it was time for peace.`\
-https://nytimes.com/2025/06/23/world/middleeast/iran-missile-attack-us-base-qatar.html
 

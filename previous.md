@@ -1,5 +1,5 @@
 **Mavericks, Daniel Gafford closing in on extension: Source**\
-`Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
+`The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
 https://nytimes.com/athletic/6446807/2025/06/23/mavericks-daniel-gafford-extension/
 
 **Judge Blocks Trump Proclamation Barring Harvard’s International Students**\
