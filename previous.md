@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**The Fears Dominating the NATO Summit**\
+`Russian aggression and keeping Trump happy are the two themes of the gathering so far.`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/nato-summit-trump-russia-defense
+
+**Eight thoughts from Sabres GM Kevyn Adams' draft week news conference**\
+`Pending roster decisions have made the NHL Draft almost an afterthought for the Sabres.`\
+https://nytimes.com/athletic/6448606/2025/06/24/sabres-peterka-adams-nhl-draft-2025/
+
+**Chin Hair, Laundry, Your Opinion: Women in Menopause Don’t Care**\
+`The “We Do Not Care” club, founded by influencer Melani Sanders, celebrates women who have stopped trying to please everyone.`\
+https://nytimes.com/2025/06/24/well/menopause-melani-sanders-club.html
+
 **White House Postpones Briefing Congress on Iran Strikes**\
 `Democrats reacted with outrage after the Trump administration, which has yet to consult with Congress on its strikes against Iran, delayed a planned briefing with lawmakers on Capitol Hill.`\
 https://nytimes.com/2025/06/24/world/middleeast/white-house-briefing-iran-strikes.html
-
-**Did Iran or Israel Violate the Cease-Fire Overnight?**\
-`The period after President Trump announced the cease-fire was muddied by time zone differences, unclear wording in statements and continuing strikes.`\
-https://nytimes.com/2025/06/24/world/middleeast/israel-iran-ceasefire-timeline.html
-
-**The Democratic primary won’t necessarily determine who will become mayor.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-democratic-primary-wont-necessarily-determine-who-will-become-mayor
-
-**Hockey Hall of Fame 2025 class includes Chara, Keith, Thornton, Mogilny, Botterill**\
-`An induction ceremony will be held for the eight new members on Nov. 10 in Toronto.`\
-https://nytimes.com/athletic/6448953/2025/06/24/hockey-hall-fame-chara-keith-thornton/
 
