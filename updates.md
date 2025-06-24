@@ -1,3 +1,15 @@
+**Cease-Fire Between Israel and Iran Appears to Hold After Trump Rebuke**\
+`The truce went into effect after pressure from President Trump and Qatar. Israel said its forces were now shifting their attention back to Gaza.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-ceasefire-trump.html
+
+**Trump’s Cuts Could Leave the U.S. Exposed Amid a Heightened Threat From Iran**\
+`The president has slashed the federal bureaucracy and reoriented much of the national security apparatus to help with his immigration crackdown.`\
+https://nytimes.com/2025/06/24/us/politics/trump-cuts-iran-threats.html
+
+**Using water and fans, N.Y.C. voters try to stay cool during primary voting.**\
+`By Taylor Robinson`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/using-water-and-fans-nyc-voters-try-to-stay-cool-during-primary-voting
+
 **Iran’s president casts the cease-fire as a victory and floats the prospect of nuclear talks.**\
 `By Ephrat Livni and Sanam Mahoozi`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/irans-president-casts-the-cease-fire-as-a-victory-and-floats-the-prospect-of-nuclear-talks
