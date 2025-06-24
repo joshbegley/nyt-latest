@@ -1,3 +1,19 @@
+**Wednesday Briefing: New Details About U.S. Strikes on Iran**\
+`Plus, Australia’s “Flying Padres”`\
+https://nytimes.com/2025/06/24/briefing/iran-us-strikes-israel-nato-trump.html
+
+**Alex Rodriguez, Marc Lore outline their vision as new owners of Wolves and Lynx**\
+`The new general partners of Minnesota's basketball teams say they have no intention of moving the teams, but must replace Target Center.`\
+https://nytimes.com/athletic/6447043/2025/06/24/timberwolves-owners-alex-rodriguez-a-rod-marc-lore/
+
+**The Briefing: Benfica 1 Bayern 0 - How did players cope with heat? Has Kompany got a Musiala deputy?**\
+`Seb Stafford-Bloor and Mark Carey break down the action from Bank of America Stadium, Charlotte`\
+https://nytimes.com/athletic/6443026/2025/06/24/benfica-bayern-munich-heat-club-world-cup/
+
+**If This Mideast War Is Over, Get Ready for Some Interesting Politics**\
+`Everyone went all the way in the Israel-Iran conflict, bursting through psychological and military barriers we never imagined would be breached.`\
+https://nytimes.com/2025/06/24/opinion/iran-israel-regime-change.html
+
 **Why Adrienne Adams declined to cross-endorse Zohran Mamdani.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/why-adrienne-adams-declined-to-cross-endorse-zohran-mamdani
