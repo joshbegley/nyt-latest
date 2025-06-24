@@ -1,3 +1,11 @@
+**Kyle Dubas needs to strongly consider moving up in the draft**\
+`Getting the No. 12 pick gives the Penguins power. They need stars and standing pat in this top-heavy draft won't do the trick.`\
+https://nytimes.com/athletic/6448400/2025/06/24/penguins-2025-nhl-draft-pick-kyle-dubas/
+
+**Aaron Rodgers is 'pretty sure' 2025 season will be last**\
+`In the 2023-24 season, Rodgers threw for 3.897 yards, 28 touchdowns and 11 interceptions. `\
+https://nytimes.com/athletic/6448463/2025/06/24/aaron-rodgers-pittsburgh-steelers-retirement/
+
 **Judge Orders Administration to ‘Facilitate’ Return of Another Deported Immigrant**\
 `The ruling was the fourth time in recent months that federal judges directed the government to seek the return of immigrants who were expelled in error or in violation of previous court orders.`\
 https://nytimes.com/2025/06/24/us/politics/trump-deportation-el-salvador.html
