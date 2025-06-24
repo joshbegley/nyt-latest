@@ -1,3 +1,7 @@
+**John Hollinger's Top 75 draft prospects, from Cooper Flagg to Ace Bailey and more**\
+`One big man has moved all the way into the top 10 after our initial breakdown of top prospects.`\
+https://nytimes.com/athletic/6445611/2025/06/24/nba-draft-2025-top-prospects-cooper-flagg-bailey/
+
 **The New York Times International Edition in Print for Wednesday, June 25, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/24/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/opinion/antisemitism-new-york-city-mayor.html
 **Behind Closed Doors, Harvard Officials Debate a Risky Truce With Trump**\
 `The university is trying to avoid the appearance of appeasement, something other powerful institutions that made deals with President Trump found impossible.`\
 https://nytimes.com/2025/06/24/us/politics/harvard-debate-settlement-trump.html
-
-**Judge’s Ruling Casts Doubt on Trump Administration’s Claims Against Migrant**\
-`Attorney General Pam Bondi has disregarded departmental norms to level lurid public accusations at Mr. Abrego Garcia without first detailing evidence.`\
-https://nytimes.com/2025/06/24/us/politics/bondi-trump-abrego-garcia.html
 

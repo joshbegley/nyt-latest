@@ -1,3 +1,19 @@
+**The New York Times International Edition in Print for Wednesday, June 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/24/todays-new-york-times-international-edition
+
+**Iran and Israel Trade Strikes Ahead of Cease-Fire**\
+`Iran launched a deadly strike in Beersheba, Israel, and Israel struck targets in Tehran early Tuesday, Israeli officials said, hours before the countries confirmed they had agreed to a cease-fire.`\
+https://nytimes.com/video/world/middleeast/100000010246596/israel-iran-beersheba-strike.html
+
+**Iran Mounts Deadly Attack on Israel Hours Before Fragile Cease-Fire**\
+`At least four people were killed in a missile strike in southern Israel early Tuesday, the Israeli authorities said.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-beersheba-strike.html
+
+**Trump Asks NATO to Spend More but Is Quiet About Why**\
+`The “why” is Russia. But at a summit focused on keeping President Trump happy, discussion of that is expected to be muted.`\
+https://nytimes.com/2025/06/24/world/europe/trump-ukraine-russia-nato.html
+
 **​China Calls Them Fish Farms. South Korea Fears They Have Another Use.**\
 `China has installed large steel cages and a former oil drilling rig in the Yellow Sea, raising concerns in South Korea that they could be used for military purposes.`\
 https://nytimes.com/2025/06/24/world/asia/china-south-korea-sea-dispute.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/24/us/politics/harvard-debate-settlement-trump.html
 **Judge’s Ruling Casts Doubt on Trump Administration’s Claims Against Migrant**\
 `Attorney General Pam Bondi has disregarded departmental norms to level lurid public accusations at Mr. Abrego Garcia without first detailing evidence.`\
 https://nytimes.com/2025/06/24/us/politics/bondi-trump-abrego-garcia.html
-
-**Bob Dylan’s New Release: A Big Book of Black-and-White Drawings**\
-`Along with some 100 images of everyday objects and scenes, “Point Blank” will include vignettes by the writers Lucy Sante and Jackie Hamilton.`\
-https://nytimes.com/2025/06/24/books/bob-dylan-drawings-point-blank.html
-
-**Antony Blinken: Trump’s Iran Strike Was a Mistake. I Hope It Succeeds.**\
-`Iran can’t be allowed to develop a nuclear weapon, but the president’s approach wasn’t the best way to prevent that.`\
-https://nytimes.com/2025/06/24/opinion/trump-iran-jcpoa-biden.html
-
-**Primary Day, by the Numbers**\
-`Here’s what to know about the primary election for mayor and a number of other posts, which will take place on the hottest day of the year so far.`\
-https://nytimes.com/2025/06/24/nyregion/primary-day-what-to-know.html
-
-**In Los Angeles, a Blank Canvas Gets a Rock Star Makeover**\
-`The musicians Andy and Meredith Hurley bought a house that had white walls. Not anymore. Their designer also layered in plenty of patterns and textures.`\
-https://nytimes.com/2025/06/24/realestate/los-angeles-home-renovation-fall-out-boy.html
 
