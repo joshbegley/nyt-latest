@@ -1,3 +1,11 @@
+**A Cuomo Victory Would Signal a Comeback From His Sexual Harassment Scandal**\
+`The former governor resigned in 2021 after the state attorney general found he had harassed roughly a dozen women.`\
+https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-sexual-harassment.html
+
+**FIFA throwing $1,000-a-ticket CWC 'official celebration' party**\
+`The event, with prices ranging from $1,000 to $3,000, is described as "the official celebration of the FIFA Club World Cup Finals."`\
+https://nytimes.com/athletic/6448276/2025/06/24/club-world-cup-fifa-dinner/
+
 **It’s Primary Day, and the Mayor’s Race Has Never Been Closer**\
 `Voters are heading to the polls amid sweltering heat. Will New Yorkers know the Democratic mayoral nominee this evening? Unlikely.`\
 https://nytimes.com/2025/06/24/nyregion/nyc-primary-day.html

@@ -1,3 +1,7 @@
+**London Police Appeal for Help in the Theft of a $200,000 Violin**\
+`British police are asking for assistance in identifying the suspect in the theft of a 285-year-old violin, which was snatched while a musician was in a pub.`\
+https://nytimes.com/2025/06/24/world/europe/london-violin-stolen-police.html
+
 **A Cuomo Victory Would Signal a Comeback From His Sexual Harassment Scandal**\
 `The former governor resigned in 2021 after the state attorney general found he had harassed roughly a dozen women.`\
 https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-sexual-harassment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/us/politics/cassidy-kennedy-vaccine-committee.htm
 **For the Girls Who Were Never Meant to Be**\
 `We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Fariza Fazyl, age 17.`\
 https://nytimes.com/2025/06/24/learning/for-the-girls-who-were-never-meant-to-be.html
-
-**Dear Ohio State Senators: I’m a Student, Not a Substitute**\
-`We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Michelle Huang, age 17.`\
-https://nytimes.com/2025/06/24/learning/dear-ohio-state-senators-im-a-student-not-a-substitute.html
 
