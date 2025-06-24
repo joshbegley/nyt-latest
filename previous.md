@@ -1,3 +1,7 @@
+**Canada's Marsch by Concacaf over alleged use of 'offensive language'**\
+`Concacaf's disciplinary committee found "no clear evidence" Marsch, 51, disregarded the competition's rules.`\
+https://nytimes.com/athletic/6447490/2025/06/24/jesse-marsch-canada-cleared-concacaf/
+
 **Gareth Bale: Buying Cardiff City would be a 'dream come true'**\
 `Bale wants to propel his hometown club back into the Premier League.`\
 https://nytimes.com/athletic/6441829/2025/06/24/gareth-bale-cardiff-takeover-dream/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6445584/2025/06/24/de-bruyne-future-napoli-chicago-
 `By Patrick Kingsley, Isabel Kershner and Aaron Boxerman`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/heres-the-latest
 
-**Live Updates: Israel and Iran Agree to Cease-Fire Announced By Trump**\
+**Live Updates: Israel and Iran Agree to Cease-Fire Announced by Trump**\
 `Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal, which halts 12 days of fierce fighting.`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
 
 **Jimmy Fallon Wonders What Trump Will Launch Next**\
 `The “Tonight Show” host said it was crazy that the president had “launched an attack on Iran, his own parade and a cellphone in the same week.”`\
 https://nytimes.com/2025/06/24/arts/television/fallon-trump-launches-iran.html
-
-**Word of the Day: retrench**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/24/learning/word-of-the-day-retrench.html
 

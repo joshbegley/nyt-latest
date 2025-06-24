@@ -1,3 +1,11 @@
+**Canada's Marsch by Concacaf over alleged use of 'offensive language'**\
+`Concacaf's disciplinary committee found "no clear evidence" Marsch, 51, disregarded the competition's rules.`\
+https://nytimes.com/athletic/6447490/2025/06/24/jesse-marsch-canada-cleared-concacaf/
+
+**Live Updates: Israel and Iran Agree to Cease-Fire Announced by Trump**\
+`Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal, which halts 12 days of fierce fighting.`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
+
 **Live Updates: Israel and Iran Agree to Cease-Fire Announced By Trump**\
 `Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal, which halts 12 days of fierce fighting.`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
