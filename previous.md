@@ -1,3 +1,19 @@
+**With $25 Million, Pro-Cuomo Super PAC Shatters Outside Spending Records**\
+`Former Gov. Andrew M. Cuomo’s candidacy has been bankrolled by the largest super PAC ever created in a New York City mayoral campaign.`\
+https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-campaign-finance.html
+
+**Democrats Elect Garcia for Top Oversight Post, Elevating Youth Over Seniority**\
+`The second-term congressman and former mayor of Long Beach, Calif., prevailed over an older and more experienced member to take on the high-profile job on one of the House’s most contentious panels.`\
+https://nytimes.com/2025/06/24/us/politics/democrats-congress-oversight-post.html
+
+**Germany to Spend Record Amount on Its Military and Infrastructure**\
+`The increase was announced hours before a NATO meeting during which member countries are expected to agree to raise military spending to 5 percent of their G.D.P.`\
+https://nytimes.com/2025/06/24/world/europe/germany-budget-military-infrastructure.html
+
+**Newcastle have £45m bid Elanga bid rejected by Forest**\
+`Newcastle are now considering whether to maintain their pursuit or walk away, with other targets also on their radar.`\
+https://nytimes.com/athletic/6409212/2025/06/24/anthony-elanga-newcastle-transfer/
+
 **Trump Departs for NATO Summit and ‘a New Set of Problems’**\
 `President Trump is expected to talk about spending commitments from the alliance’s members, while NATO’s secretary general has been eager to avoid diplomatic blowups.`\
 https://nytimes.com/2025/06/24/us/politics/nato-trump-preview.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6447434/2025/06/24/chase-burns-reds-debut-the-windu
 **‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
 `Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened” — and the lesson he took away.`\
 https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
-
-**James close to signing new Leeds contract**\
-`The 27-year-old’s deal expires in June 2026.`\
-https://nytimes.com/athletic/6447843/2025/06/24/dan-james-leeds-contract-update/
-
-**Zohran Mamdani starts Primary Day with a speech at dawn in Queens.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/zohran-mamdani-starts-primary-day-with-a-speech-at-dawn-in-queens
-
-**Far More New Yorkers Voted Early This Year, With Strong Showing by Younger Voters**\
-`More than twice as many New York City voters voted early in person than in 2021, the last time there was a mayoral primary.`\
-https://nytimes.com/2025/06/24/nyregion/nyc-mayor-early-voting.html
-
-**Cooper Flagg long-shot bets and Ace Bailey dropping in NBA Draft betting markets**\
-`Max Meyer spoke to oddsmakers to report on the NBA Draft betting action. Read about how Cooper Flagg and Ace Bailey have become liabilities.`\
-https://nytimes.com/athletic/6446415/2025/06/24/nba-draft-betting-odds-cooper-flagg/
 
