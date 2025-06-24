@@ -1,3 +1,7 @@
+**Michigan earns a key recruiting win over Bama with Titan Davis**\
+`A four-star defensive lineman from St. Louis, Titan Davis is now the second-highest rated recruit in Michigan football's Class of 2026.`\
+https://nytimes.com/athletic/6446819/2025/06/23/titan-davis-michigan-football-recruiting-commitment/
+
 **Trump Posts Through the Iran Attack**\
 `The remarkable way the president narrated a war on his social media account: Armistices may never be the same again.`\
 https://nytimes.com/2025/06/23/us/politics/trump-truth-social-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/business/omnicom-interpublic-merger-ftc.html
 **Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained.**\
 `Bombing Iran without congressional authorization escalated a bipartisan trend of presidents bypassing the original intent of the Constitution.`\
 https://nytimes.com/2025/06/23/us/politics/trump-iran-war-powers-constitution.html
-
-**Wisconsin Couple Charged in Scheme to Poison Women He Dated**\
-`Paul VanDuyne Jr. and Andrea Whitaker placed cyanide, homemade poisons and other substances in water bottles and cars belonging to two women he had briefly dated, the authorities said.`\
-https://nytimes.com/2025/06/23/us/wisconsin-couple-charged-poison-plot.html
 
