@@ -1,3 +1,15 @@
+**NBA star James Harden sued for alleged negligence in sexual assault case**\
+`Lawsuit accuses Harden's nephew of sexual assault at New Year's party.`\
+https://nytimes.com/athletic/6447197/2025/06/24/james-harden-lawsuit-sexual-assault-negligence-clippers/
+
+**Putin Has Lost the West. This Was Not the Plan.**\
+`The loss is a tragedy for Russia.`\
+https://nytimes.com/2025/06/24/opinion/putin-trump-nato-russia.html
+
+**The New York Times in Print for Tuesday, June 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/24/todays-new-york-times
+
 **The Yankees have been a brutal watch in June. Here's why**\
 `Without better offense in scoring opportunities, the Yankees will continue to frustrate fans while their lead in the division shrinks.`\
 https://nytimes.com/athletic/6447049/2025/06/24/yankees-brutal-watch-june/
