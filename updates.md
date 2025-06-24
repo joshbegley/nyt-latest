@@ -1,3 +1,7 @@
+**Live Updates: Israel and Iran Agree to Cease-Fire Announced By Trump**\
+`Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal, which halts 12 days of fierce fighting.`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
+
 **Gareth Bale: Buying Cardiff City would be a 'dream come true'**\
 `Bale wants to propel his hometown club back into the Premier League.`\
 https://nytimes.com/athletic/6441829/2025/06/24/gareth-bale-cardiff-takeover-dream/
