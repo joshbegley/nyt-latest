@@ -1,3 +1,7 @@
+**Manhattan Democrats Will Weigh Tenure of District Attorney in Primary**\
+`Patrick Timmins, who is challenging Alvin L. Bragg, says the groundbreaking felony conviction of President Trump is irrelevant. He promises to tackled crime in the subway.`\
+https://nytimes.com/2025/06/24/nyregion/manhattan-district-attorney-primary.html
+
 **A Running List of Policies Rejected From the Republican Megabill**\
 `So far, the parliamentarian has determined that dozens of provisions do not pass muster to be included.`\
 https://nytimes.com/interactive/2025/06/24/upshot/reconciliation-byrd-bath.html

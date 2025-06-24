@@ -22,6 +22,10 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Manhattan Democrats Will Weigh Tenure of District Attorney in Primary**\
+`Patrick Timmins, who is challenging Alvin L. Bragg, says the groundbreaking felony conviction of President Trump is irrelevant. He promises to tackled crime in the subway.`\
+https://nytimes.com/2025/06/24/nyregion/manhattan-district-attorney-primary.html
+
 **A Running List of Policies Rejected From the Republican Megabill**\
 `So far, the parliamentarian has determined that dozens of provisions do not pass muster to be included.`\
 https://nytimes.com/interactive/2025/06/24/upshot/reconciliation-byrd-bath.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/us/politics/iran-nuclear-sites.html
 **2025 NBA Draft preview: Teams to watch, a Rutgers moment and more**\
 `As the draft gets underway on Wednesday, here are the trends and teams we'll be watching. `\
 https://nytimes.com/athletic/6446133/2025/06/24/nba-draft-2025-lottery-dylan-harper-ace-bailey/
-
-**His swagger intact, Adams says ‘I know how to win a race for mayor.’**\
-`By Dana Rubinstein`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/his-swagger-intact-adams-says-i-know-how-to-win-a-race-for-mayor
 
