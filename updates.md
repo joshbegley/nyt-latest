@@ -1,3 +1,7 @@
+**The primary for public advocate pits Jumaane Williams against an Eric Adams ally.**\
+`By Maya King`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-primary-for-public-advocate-pits-jumaane-williams-against-an-eric-adams-ally
+
 **One difference-making trade for each NL team in the wild-card race**\
 `Suggesting impact trades for the teams in the thick of the wild-card race, including a blockbuster for a contender that's eying the future. `\
 https://nytimes.com/athletic/6447630/2025/06/24/mlb-trade-deadline-national-league-wild-card-team-scenarios/
