@@ -1,3 +1,7 @@
+**Florida Men Accused of Stealing More Than $100 Million Meant for People With Special Needs**\
+`Federal prosecutors say the money was used to fly on a private jet, buy real estate and help operate a brewery.`\
+https://nytimes.com/2025/06/23/us/politics/florida-nonprofit-millions-stolen.html
+
 **Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
 `Baldelli opened the season on the hot seat after a poor start. Bailey Ober allowed a pair of 3-run homers to the Mariners in an 11-2 loss.`\
 https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/

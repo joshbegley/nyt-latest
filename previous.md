@@ -1,3 +1,7 @@
+**Florida Men Accused of Stealing More Than $100 Million Meant for People With Special Needs**\
+`Federal prosecutors say the money was used to fly on a private jet, buy real estate and help operate a brewery.`\
+https://nytimes.com/2025/06/23/us/politics/florida-nonprofit-millions-stolen.html
+
 **Inter Miami 2 Palmeiras 2: Messi's side blows chance to top Club World Cup group**\
 `Analysis from a wild conclusion to Group A at the FIFA Club World Cup, where Lionel Messi will see a familiar foe in the last 16`\
 https://nytimes.com/athletic/6446883/2025/06/23/inter-miami-palmeiras-club-world-cup-messi-suarez-allende-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/world/middleeast/trump-ceasefire-israel-iran.html
 **Mavericks, Daniel Gafford closing in on extension: Source**\
 `The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
 https://nytimes.com/athletic/6446807/2025/06/23/mavericks-daniel-gafford-extension/
-
-**Judge Blocks Trump Proclamation Barring Harvard’s International Students**\
-`The same judge issued an order last week blocking a separate government effort to keep the school from enrolling students from abroad.`\
-https://nytimes.com/2025/06/23/us/harvard-trump-international-students.html
 
