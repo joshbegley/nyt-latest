@@ -1,40 +1,40 @@
-**Florida Men Accused of Stealing More Than $100 Million Meant for People With Special Needs**\
-`Federal prosecutors say the money was used to fly on a private jet, buy real estate and help operate a brewery.`\
-https://nytimes.com/2025/06/23/us/politics/florida-nonprofit-millions-stolen.html
+**Women's Euros 2025: Guide to Group A - Hosts' hopes, Hegerberg and a long-throw weapon**\
+`Everything you need to know about Group A at Euro 2025, which features hosts Switzerland, Norway, Iceland and Finland`\
+https://nytimes.com/athletic/6415547/2025/06/24/womens-euros-2025-group-a-guide/
 
-**Inter Miami 2 Palmeiras 2: Messi's side blows chance to top Club World Cup group**\
-`Analysis from a wild conclusion to Group A at the FIFA Club World Cup, where Lionel Messi will see a familiar foe in the last 16`\
-https://nytimes.com/athletic/6446883/2025/06/23/inter-miami-palmeiras-club-world-cup-messi-suarez-allende-highlights/
+**Cardinals' Alec Burleson has slugged his way into more playing time**\
+`After homering on Monday, Burleson's OPS on the season is up to a team-leading .818. His .474 slugging percentage is also a team-high. `\
+https://nytimes.com/athletic/6446877/2025/06/24/st-louis-cardinals-alec-burleson-playing-time/
 
-**Verdict in Wander Franco underage sexual abuse trial likely coming Thursday**\
-`While rulings are typically handled the same day, a judge said more time is needed due to the amount of evidence and testimony. `\
-https://nytimes.com/athletic/6446973/2025/06/23/rays-wander-franco-trial-verdict/
+**Diamondbacks' Corbin Carroll (left wrist fracture) to go on IL**\
+`This season, Carroll has slashed .255/.341/.573 with 20 home runs and 44 RBIs.`\
+https://nytimes.com/athletic/6447187/2025/06/24/az-diamondbacks-corbin-carroll-injury/
 
-**Iran has previously given warnings before attacking U.S. bases, limiting damage and repercussions.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/iran-has-previously-given-warnings-before-attacking-us-bases-limiting-damage-and-repercussions
+**In a Big Place With Few People, a Minister Needs a Pilot’s License**\
+`The Salvation Army’s “Flying Padres” cross the Australian outback by air, dropping in on ranches and small communities — sometimes, just to lend an ear.`\
+https://nytimes.com/2025/06/24/world/australia/australia-flying-padres-chaplains.html
 
-**Scenes From the Hottest Blocks in New York City**\
-`Whatever the temperature is in Central Park, it’s hotter alongside Newtown Creek, the toxic and industrial waterway separating Brooklyn from Queens.`\
-https://nytimes.com/2025/06/23/nyregion/heat-weather-nyc-queens.html
+**The Challenge of Rebuilding Syria**\
+`After one of the most brutal wars of this century, a new flag flies across Syria: the emblem of the rebels who toppled the dictator Bashar al-Assad.`\
+https://nytimes.com/video/world/middleeast/100000010114624/the-challenge-of-rebuilding-syria.html
 
-**Royal Domain**\
-`Ingrid Steffensen makes her New York Times Crossword debut.`\
-https://nytimes.com/2025/06/23/crosswords/daily-puzzle-2025-06-24.html
+**Connections: Sports Edition Coach: Hints for June 24, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6442028/2025/06/24/connections-sports-edition-hints-for-june-24-2025/
 
-**Can Iran, Israel and the U.S. Now All Claim to Have Won?**\
-`Iran’s response to the attacks on its nuclear facilities killed no Americans, and analysts see a chance for a cease-fire, with each nation having a victory narrative.`\
-https://nytimes.com/2025/06/23/world/middleeast/iran-response-ceasefire-chance.html
+**Why Do Yemeni Coffeehouses Seem to Be Everywhere Lately?**\
+`For cafes like Haraz Coffee House, riding a wave of interest nationwide in late-night, alcohol-free gathering spaces means embracing the franchise model.`\
+https://nytimes.com/2025/06/24/business/yemeni-cafe-haraz-coffee-house.html
 
-**Twins' Rocco Baldelli has team option picked up for 2026 season: Sources**\
-`Baldelli opened the season on the hot seat after a poor start. Bailey Ober allowed a pair of 3-run homers to the Mariners in an 11-2 loss.`\
-https://nytimes.com/athletic/6446872/2025/06/23/minnesota-twins-rocco-baldelli-contract/
+**Corrections: June 24, 2025**\
+`Corrections that appeared in print on Tuesday, June 24, 2025.`\
+https://nytimes.com/2025/06/24/pageoneplus/corrections-june-24-2025.html
 
-**Trump’s Cease-Fire Announcement Catches His Own Top Officials by Surprise**\
-`Before asserting that Iran and Israel had agreed to a cease-fire, President Trump spoke to Prime Minister Benjamin Netanyahu of Israel and Iranian officials, with Qatar helping to mediate.`\
-https://nytimes.com/2025/06/23/world/middleeast/trump-ceasefire-israel-iran.html
+**Celtics trade Jrue Holiday to Trail Blazers for Anfernee Simons, picks: Sources**\
+`Holiday still has three years and $104.4 million left on his contract, including a player option for the 2027-28 season.`\
+https://nytimes.com/athletic/6447146/2025/06/23/celtics-jrue-holiday-trade-trail-blazers-nba/
 
-**Mavericks, Daniel Gafford closing in on extension: Source**\
-`The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
-https://nytimes.com/athletic/6446807/2025/06/23/mavericks-daniel-gafford-extension/
+**Quote of the Day: Iran Suggests Everything Is Normal, but Nothing Is**\
+`Quotation of the Day for Tuesday, June 24, 2025.`\
+https://nytimes.com/2025/06/23/pageoneplus/quote-of-the-day-iran-suggests-everything-is-normal-but-nothing-is.html
 
