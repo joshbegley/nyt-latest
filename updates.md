@@ -1,3 +1,11 @@
+**How does ranked-choice voting work? Let’s look at how it worked last time.**\
+`By Meghan Morris, Eden Weingart and Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/how-does-ranked-choice-voting-work-lets-look-at-how-it-worked-last-time
+
+**Cannonball with Wesley Morris**\
+`Conversations about the culture that moves us – the good, the bad and whatever’s in between. Every week, critic Wesley Morris talks with writers, artists and his friends about the moment we’re in. New episodes drop Thursdays.`\
+https://nytimes.com/column/cannonball-with-wesley-morris
+
 **How Qatar Helped Broker the Israel-Iran Cease-Fire**\
 `In public, Qatar was insisting on the right to defend itself after Iran attacked a U.S. military site in the emirate. Behind the scenes, it was already mediating a truce between Israel and Iran.`\
 https://nytimes.com/2025/06/24/world/middleeast/iran-israel-qatar.html

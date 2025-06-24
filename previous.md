@@ -1,3 +1,11 @@
+**How does ranked-choice voting work? Let’s look at how it worked last time.**\
+`By Meghan Morris, Eden Weingart and Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/how-does-ranked-choice-voting-work-lets-look-at-how-it-worked-last-time
+
+**Cannonball with Wesley Morris**\
+`Conversations about the culture that moves us – the good, the bad and whatever’s in between. Every week, critic Wesley Morris talks with writers, artists and his friends about the moment we’re in. New episodes drop Thursdays.`\
+https://nytimes.com/column/cannonball-with-wesley-morris
+
 **How Qatar Helped Broker the Israel-Iran Cease-Fire**\
 `In public, Qatar was insisting on the right to defend itself after Iran attacked a U.S. military site in the emirate. Behind the scenes, it was already mediating a truce between Israel and Iran.`\
 https://nytimes.com/2025/06/24/world/middleeast/iran-israel-qatar.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/nyregion/nyc-election-heat.html
 **Grant Hill to join NBC's NBA coverage for 2025-26 season**\
 `Hill will keep his role at TNT Sports as a college basketball analyst for the NCAA Tournament.`\
 https://nytimes.com/athletic/6448015/2025/06/24/grant-hill-nbc-nba-coverage/
-
-**How South Africa's 1995 Rugby World Cup win united and 'galvanised' a nation**\
-`Nelson Mandela not only put his reputation on the line but spent significant political capital actively supporting the Springboks in 1995 `\
-https://nytimes.com/athletic/6445062/2025/06/24/south-africa-1995-rugby-world-cup-win-anniversary/
-
-**Extreme Heat Is Exacerbating Air Pollution, a ‘Double Whammy’ for Health**\
-`Extreme heat is making air pollution worse, scientists say. And President Trump’s regulatory rollbacks could drive air pollution even higher.`\
-https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html
 
