@@ -1,3 +1,11 @@
+**Auckland City 1 Boca Juniors 1 - Amateurs humble Boca with surprise draw to 'get respect back'**\
+`Analysis of Auckland City's remarkable draw against Boca Juniors`\
+https://nytimes.com/athletic/6448876/2025/06/24/auckland-city-boca-juniors-get-respect-back/
+
+**Gout, 17, sets new Australian 200m record on senior international debut**\
+`The 17-year-old clocked a time of 20.02 seconds to eclipse his own previous record of 20.04.`\
+https://nytimes.com/athletic/6449274/2025/06/24/gout-gout-200m-national-record/
+
 **Lynn Hamilton, a Steady Presence on ‘Sanford and Son,’ Dies at 95**\
 `A former Broadway actress, she was a no-nonsense foil for the unruly Fred Sanford. She also warmed hearts with a recurring role on the “The Waltons.”`\
 https://nytimes.com/2025/06/24/arts/television/lynn-hamilton-dead.html
