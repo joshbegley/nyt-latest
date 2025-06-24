@@ -1,3 +1,5 @@
+
+
 **How Heat Waves Can Worsen Air Quality**\
 `Scientists are increasingly concerned about the ways extreme heat and air pollution are linked.`\
 https://nytimes.com/2025/06/24/climate/how-heat-waves-can-worsen-air-quality.html
