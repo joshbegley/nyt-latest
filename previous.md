@@ -1,40 +1,40 @@
-**John Hollinger's Top 75 draft prospects, from Cooper Flagg to Ace Bailey and more**\
-`One big man has moved all the way into the top 10 after our initial breakdown of top prospects.`\
-https://nytimes.com/athletic/6445611/2025/06/24/nba-draft-2025-top-prospects-cooper-flagg-bailey/
+**Chase Burns' major-league debut should bring Reds fans to their feet**\
+`Burns will make his big-league debut Tuesday night against the New York Yankees, the team he imagined playing shortstop for as a kid.`\
+https://nytimes.com/athletic/6446961/2025/06/24/reds-chase-burns-mlb-debut-yankees/
 
-**The New York Times International Edition in Print for Wednesday, June 25, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/24/todays-new-york-times-international-edition
+**38 things you might not have known about Lionel Messi for his 38th birthday**\
+`A selection of stats, facts and trivia about one of the greatest footballers to have ever played the game`\
+https://nytimes.com/athletic/6439829/2025/06/24/lionel-messi-38th-birthday-facts/
 
-**Iran and Israel Trade Strikes Ahead of Cease-Fire**\
-`Iran launched a deadly strike in Beersheba, Israel, and Israel struck targets in Tehran early Tuesday, Israeli officials said, hours before the countries confirmed they had agreed to a cease-fire.`\
-https://nytimes.com/video/world/middleeast/100000010246596/israel-iran-beersheba-strike.html
+**2025 NHL Mock Draft: Wheeler's final predictions for the first two rounds**\
+`Who follows Matthew Schaefer at No. 1 to the New York Islanders in Scott Wheeler's 64-pick mock? `\
+https://nytimes.com/athletic/6441466/2025/06/24/nhl-mock-draft-2025-wheeler/
 
-**Iran Mounts Deadly Attack on Israel Hours Before Fragile Cease-Fire**\
-`At least four people were killed in a missile strike in southern Israel early Tuesday, the Israeli authorities said.`\
-https://nytimes.com/2025/06/24/world/middleeast/israel-iran-beersheba-strike.html
+**How Jets coaches are reading Justin Fields' mind, while Fields is winning over teammates' hearts**\
+`What coaches and teammates think of their new quarterback as summer begins.`\
+https://nytimes.com/athletic/6435782/2025/06/24/justin-fields-new-york-jets-development-passer/
 
-**Trump Asks NATO to Spend More but Is Quiet About Why**\
-`The “why” is Russia. But at a summit focused on keeping President Trump happy, discussion of that is expected to be muted.`\
-https://nytimes.com/2025/06/24/world/europe/trump-ukraine-russia-nato.html
+**Why this NBA Draft prospect could among be the last of his kind**\
+`Nique Clifford could follow in the path of NBA stars like Steph Curry, Damian Lillard and Pascal Siakam. But it's a path rarely taken now.`\
+https://nytimes.com/athletic/6441793/2025/06/24/nique-clifford-nba-draft-colorado-state-college-basketball/
 
-**​China Calls Them Fish Farms. South Korea Fears They Have Another Use.**\
-`China has installed large steel cages and a former oil drilling rig in the Yellow Sea, raising concerns in South Korea that they could be used for military purposes.`\
-https://nytimes.com/2025/06/24/world/asia/china-south-korea-sea-dispute.html
+**One more story from the last of his kind**\
+`Why is Art Spander, nearly blind and unable to type his own stories, still covering events at 86? Because he is the job. And because of Liz.`\
+https://nytimes.com/athletic/6436193/2025/06/24/us-open-art-spander-sportswriter-column/
 
-**A Show of Unity May Be the Best That NATO Can Hope For at Summit**\
-`An internal rift over defense spending and President Trump’s disregard for Ukraine have lowered expectations for the gathering.`\
-https://nytimes.com/2025/06/24/world/europe/nato-what-to-watch.html
+**A Fragile Cease-Fire Between Iran and Israel, and Toxic Homes in L.A.**\
+`Plus, Florida’s new “Alligator Alcatraz” for migrants.`\
+https://nytimes.com/2025/06/24/podcasts/the-headlines/ceasefire-iran-israel-toxic-homes-los-angeles.html
 
-**What to Know About the Cease-Fire Between Israel and Iran**\
-`A senior Israeli official accused Iran of breaking the deal hours after it was announced. Iran’s military denied it had fired more missiles, according to state news outlets.`\
-https://nytimes.com/2025/06/24/world/middleeast/israel-iran-cease-fire-deal-war-trump.html
+**A beginner’s guide to the 2025 NHL Draft: Storylines, top prospects and biggest questions**\
+`Need to catch up on everything NHL Draft? This is your primer for what will happen Friday night in Los Angeles.`\
+https://nytimes.com/athletic/6427171/2025/06/24/nhl-draft-2025-prospects-order-guide/
 
-**Antisemitism Isn’t What People Think It Is**\
-`It may be time to rethink the tragic events in Washington and Boulder.`\
-https://nytimes.com/2025/06/24/opinion/antisemitism-new-york-city-mayor.html
+**AI is coming to the NFL, and it could transform the game**\
+`The next wave of artificial intelligence will make the fourth-down bot look like an abacus.`\
+https://nytimes.com/athletic/6446516/2025/06/24/nfl-ai-artificial-intelligence-investments-analytics-advantage/
 
-**Behind Closed Doors, Harvard Officials Debate a Risky Truce With Trump**\
-`The university is trying to avoid the appearance of appeasement, something other powerful institutions that made deals with President Trump found impossible.`\
-https://nytimes.com/2025/06/24/us/politics/harvard-debate-settlement-trump.html
+**Cooper Flagg is one of the 'most ready-to-play guys' NBA folks have seen. It's no accident**\
+`Cooper Flagg has always been able to drive winning, even if he's the youngest guy on the floor. Just ask anyone who watched him develop.`\
+https://nytimes.com/athletic/6424520/2025/06/24/cooper-flagg-nba-draft-mavericks-duke/
 
