@@ -22,6 +22,14 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Bobby Sherman, Easygoing Teen Idol of the 1960s and ’70s, Dies at 81**\
+`First on TV and then on the pop charts, he became so popular so young, he once said, that he “didn’t really have time to have an ego.”`\
+https://nytimes.com/2025/06/24/arts/music/bobby-sherman-dead.html
+
+**Two Brown Bears Escape Enclosure and Steal a Week’s Worth of Honey**\
+`Mish and Lucy, two 5-year-old brown bears, escaped their enclosure on Monday and broke into their stockpile of treats at the Wildwood Trust wildlife sanctuary in Devon, England.`\
+https://nytimes.com/video/world/europe/100000010247244/bears-steal-honey-from-wildlife-sanctuary.html
+
 **Full Time: NWSL takes a break**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6448377/2025/06/24/nwsl-break-international-schedule-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6448377/2025/06/24/nwsl-break-international-schedul
 **It’s Time to Clean Your Books. Join Us. **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-books
-
-**Kyle Dubas needs to strongly consider moving up in the draft**\
-`Getting the No. 12 pick gives the Penguins power. They need stars and standing pat in this top-heavy draft won't do the trick.`\
-https://nytimes.com/athletic/6448400/2025/06/24/penguins-2025-nhl-draft-pick-kyle-dubas/
-
-**Aaron Rodgers is 'pretty sure' 2025 season will be his last**\
-`In the 2023-24 season, Rodgers threw for 3,897 yards, 28 touchdowns and 11 interceptions. `\
-https://nytimes.com/athletic/6448463/2025/06/24/aaron-rodgers-pittsburgh-steelers-retirement/
 

@@ -1,3 +1,11 @@
+**Bobby Sherman, Easygoing Teen Idol of the 1960s and ’70s, Dies at 81**\
+`First on TV and then on the pop charts, he became so popular so young, he once said, that he “didn’t really have time to have an ego.”`\
+https://nytimes.com/2025/06/24/arts/music/bobby-sherman-dead.html
+
+**Two Brown Bears Escape Enclosure and Steal a Week’s Worth of Honey**\
+`Mish and Lucy, two 5-year-old brown bears, escaped their enclosure on Monday and broke into their stockpile of treats at the Wildwood Trust wildlife sanctuary in Devon, England.`\
+https://nytimes.com/video/world/europe/100000010247244/bears-steal-honey-from-wildlife-sanctuary.html
+
 **Full Time: NWSL takes a break**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6448377/2025/06/24/nwsl-break-international-schedule-full-time/
