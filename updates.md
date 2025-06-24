@@ -1,3 +1,7 @@
+**How Qatar Helped Broker the Israel-Iran Cease-Fire**\
+`In public, Qatar was insisting on the right to defend itself after Iran attacked a U.S. military site in the emirate. Behind the scenes, it was already mediating a truce between Israel and Iran.`\
+https://nytimes.com/2025/06/24/world/middleeast/iran-israel-qatar.html
+
 **Nico Williams tells Athletic Club he intends to join Barcelona**\
 `Barca do not plan to pay the release clause until after June 30, ensuring the deal is registered in the next financial year in Spain.`\
 https://nytimes.com/athletic/6437327/2025/06/24/nico-williams-barcelona-transfer-athletic-club/

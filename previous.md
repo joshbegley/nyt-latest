@@ -1,3 +1,7 @@
+**How Qatar Helped Broker the Israel-Iran Cease-Fire**\
+`In public, Qatar was insisting on the right to defend itself after Iran attacked a U.S. military site in the emirate. Behind the scenes, it was already mediating a truce between Israel and Iran.`\
+https://nytimes.com/2025/06/24/world/middleeast/iran-israel-qatar.html
+
 **Nico Williams tells Athletic Club he intends to join Barcelona**\
 `Barca do not plan to pay the release clause until after June 30, ensuring the deal is registered in the next financial year in Spain.`\
 https://nytimes.com/athletic/6437327/2025/06/24/nico-williams-barcelona-transfer-athletic-club/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6445062/2025/06/24/south-africa-1995-rugby-world-cu
 **Extreme Heat Is Exacerbating Air Pollution, a ‘Double Whammy’ for Health**\
 `Extreme heat is making air pollution worse, scientists say. And President Trump’s regulatory rollbacks could drive air pollution even higher.`\
 https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html
-
-**Rangers to send Penguins No. 12 pick in 2025 NHL Draft, keeping 2026 first-rounder**\
-`The Rangers had to decide whether to send the Penguins this year's first-rounder or next year's to complete the J.T. Miller trade.`\
-https://nytimes.com/athletic/6448101/2025/06/24/rangers-penguins-draft-pick-trade/
 
