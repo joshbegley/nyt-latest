@@ -1,3 +1,7 @@
+**Reds’ big roster moves send a message: 'We want to win games'**\
+`With Chase Burns entering the clubhouse and struggling Jeimer Candelario headed out, Cincinnati is energized.`\
+https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeimer-candelario/
+
 **Zegras trade sets up intriguing offseason for Ducks, who have a win-now mandate**\
 `Will the Ducks, with ample cap space, be in the Mitch Marner sweepstakes? Or is a big trade more likely?`\
 https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/23/us/wisconsin-couple-charged-poison-plot.html
 **With Tyler Fitzgerald demoted, Casey Schmitt looks like the Giants everyday second baseman**\
 `Schmitt's tools are finally being enhanced by a better approach at the plate, while Fitzgerald's offense had taken a big step back.`\
 https://nytimes.com/athletic/6446170/2025/06/23/sf-giants-second-base-casey-schmitt-tyler-fitzgerald/
-
-**Iran Fired Missiles at a U.S. Base**\
-`Also, a heat wave grips the eastern U.S. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/06/23/briefing/iran-us-base-heat-wave.html
 

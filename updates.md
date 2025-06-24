@@ -1,3 +1,7 @@
+**Reds’ big roster moves send a message: 'We want to win games'**\
+`With Chase Burns entering the clubhouse and struggling Jeimer Candelario headed out, Cincinnati is energized.`\
+https://nytimes.com/athletic/6446756/2025/06/23/cincinnati-reds-chase-burns-jeimer-candelario/
+
 **Zegras trade sets up intriguing offseason for Ducks, who have a win-now mandate**\
 `Will the Ducks, with ample cap space, be in the Mitch Marner sweepstakes? Or is a big trade more likely?`\
 https://nytimes.com/athletic/6446682/2025/06/23/ducks-trade-zegras-marner/
