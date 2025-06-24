@@ -22,6 +22,10 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Pride Flags Slashed at Atlanta L.G.B.T.Q. Landmark, Four Arrested**\
+`A group of male youths traveled to Atlanta before dawn and tore flags at a rainbow crosswalk, the police said. Two of them remain at large as the authorities consider hate crime charges.`\
+https://nytimes.com/2025/06/24/us/politics/atlanta-hate-crime-pride-flags.html
+
 **Wednesday Briefing: New Details About U.S. Strikes on Iran**\
 `Plus, Australia’s “Flying Padres”`\
 https://nytimes.com/2025/06/24/briefing/iran-us-strikes-israel-nato-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447043/2025/06/24/timberwolves-owners-alex-rodrigu
 **The Briefing: Benfica 1 Bayern 0 - How did players cope with heat? Has Kompany got a Musiala deputy?**\
 `Seb Stafford-Bloor and Mark Carey break down the action from Bank of America Stadium, Charlotte`\
 https://nytimes.com/athletic/6443026/2025/06/24/benfica-bayern-munich-heat-club-world-cup/
-
-**If This Mideast War Is Over, Get Ready for Some Interesting Politics**\
-`Everyone went all the way in the Israel-Iran conflict, bursting through psychological and military barriers we never imagined would be breached.`\
-https://nytimes.com/2025/06/24/opinion/iran-israel-regime-change.html
 
