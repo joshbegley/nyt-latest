@@ -1,3 +1,7 @@
+**Canada's Marsch cleared by Concacaf over alleged use of 'offensive language'**\
+`Concacaf's disciplinary committee found "no clear evidence" Marsch, 51, disregarded the competition's rules.`\
+https://nytimes.com/athletic/6447490/2025/06/24/jesse-marsch-canada-cleared-concacaf/
+
 **Canada's Marsch by Concacaf over alleged use of 'offensive language'**\
 `Concacaf's disciplinary committee found "no clear evidence" Marsch, 51, disregarded the competition's rules.`\
 https://nytimes.com/athletic/6447490/2025/06/24/jesse-marsch-canada-cleared-concacaf/
