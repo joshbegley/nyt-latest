@@ -1,3 +1,7 @@
+**Trump’s cease-fire announcement caught his own top officials by surprise.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/06/23/world/iran-israel-ceasefire-trump/trumps-cease-fire-announcement-caught-his-own-top-officials-by-surprise
+
 **Mavericks, Daniel Gafford closing in on extension: Source**\
 `The Mavs are set to have a formidable frontcourt with Gafford, Anthony Davis, Dereck Lively II and Cooper Flagg.`\
 https://nytimes.com/athletic/6446807/2025/06/23/mavericks-daniel-gafford-extension/
