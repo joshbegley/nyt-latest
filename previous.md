@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
-**Central Park Hits Its Hottest Temperature Since 2012**\
-`New York’s official temperature gauge hit 99 degrees on Tuesday afternoon. It could climb even higher.`\
-https://nytimes.com/2025/06/24/weather/new-york-city-temperatures-heat-today.html
+**Until Saturday: CFB 26 Dynasty upgrades**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6448637/2025/06/24/college-football-26-dynasty-mode-deep-dive-until-saturday/
 
-**Haymarket, From a Saga Alum, Takes a Global Approach**\
-`Massara moves into the Time and Tide space, Samsaen emulates a Thai train station and more restaurant news.`\
-https://nytimes.com/2025/06/24/dining/nyc-restaurant-news.html
+**Airspace closures snarl travel to the Middle East.**\
+`Nearly half of all Qatar Airways flights were canceled on Tuesday, causing headaches and confusion around the world.`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/qatar-flights-travel-israel-iran-war
 
-**How Inter Miami's fluid attack and Palmeiras' runs in behind created maximum fun**\
-`How both teams entertained their way to the knockouts`\
-https://nytimes.com/athletic/6447593/2025/06/24/why-inter-miamis-fluid-attack-and-palmeiras-runs-in-behind-created-maximum-fun/
+**Mamdani made affordability his campaign’s focus. It put him within striking distance.**\
+`By Eliza Shapiro`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/mamdani-made-affordability-his-campaigns-focus-it-put-him-within-striking-distance
 
-**Andrew Cuomo casts his vote as he looks to cap a political comeback.**\
-`By Sean Piccoli`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/andrew-cuomo-casts-his-vote-as-he-looks-to-cap-a-political-comeback
+**Stocks Rise and Oil Falls as Middle East Cease-Fire Begins**\
+`A second day of declining oil prices helped lift stocks. Energy costs are a primary expense for companies, making them an important factor in inflation calculations.`\
+https://nytimes.com/2025/06/24/business/oil-prices-fall-stocks-rise-iran-israel-ceasefire.html
 

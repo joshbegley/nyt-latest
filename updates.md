@@ -1,3 +1,19 @@
+**Until Saturday: CFB 26 Dynasty upgrades**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6448637/2025/06/24/college-football-26-dynasty-mode-deep-dive-until-saturday/
+
+**Airspace closures snarl travel to the Middle East.**\
+`Nearly half of all Qatar Airways flights were canceled on Tuesday, causing headaches and confusion around the world.`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/qatar-flights-travel-israel-iran-war
+
+**Mamdani made affordability his campaign’s focus. It put him within striking distance.**\
+`By Eliza Shapiro`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/mamdani-made-affordability-his-campaigns-focus-it-put-him-within-striking-distance
+
+**Stocks Rise and Oil Falls as Middle East Cease-Fire Begins**\
+`A second day of declining oil prices helped lift stocks. Energy costs are a primary expense for companies, making them an important factor in inflation calculations.`\
+https://nytimes.com/2025/06/24/business/oil-prices-fall-stocks-rise-iran-israel-ceasefire.html
+
 **Central Park Hits Its Hottest Temperature Since 2012**\
 `New York’s official temperature gauge hit 99 degrees on Tuesday afternoon. It could climb even higher.`\
 https://nytimes.com/2025/06/24/weather/new-york-city-temperatures-heat-today.html
