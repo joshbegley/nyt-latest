@@ -1,3 +1,11 @@
+**The West isn't wide open anymore. What can the 14 other teams do about OKC?**\
+`The 2025 title looks like just the start of a long run by the Thunder, which will require creativity from their conference rivals.`\
+https://nytimes.com/athletic/6438879/2025/06/24/thunder-western-conference-nba-parity-future/
+
+**The Pulse: All hail Big Dumper**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6445916/2025/06/24/cal-raleigh-big-dumper-the-pulse/
+
 **Chase Burns' major-league debut should bring Reds fans to their feet**\
 `Burns will make his big-league debut Tuesday night against the New York Yankees, the team he imagined playing shortstop for as a kid.`\
 https://nytimes.com/athletic/6446961/2025/06/24/reds-chase-burns-mlb-debut-yankees/
