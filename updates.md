@@ -1,3 +1,11 @@
+**Lauri Markkanen? Trae Young? Raptors don't need to dive into next big offseason trade**\
+`With the Eastern Conference in flux due to injuries, the Raptors could make a move to shake things up. `\
+https://nytimes.com/athletic/6446326/2025/06/24/raptors-2025-nba-draft-offseason-trades/
+
+**Cedric Tillman, Carson Schwesinger and other Browns with important roles this season**\
+`We explore seven players not named Myles Garrett or Joe Flacco who will be pivotal to Cleveland having any kind of success in 2025.  `\
+https://nytimes.com/athletic/6446285/2025/06/24/browns-denzel-ward-cedric-tillman-carson-schwesinger/
+
 **Drones hit Iraqi military sites, hours after Iran attacked a U.S. base in Qatar.**\
 `The Iraqi authorities said that two facilities had been damaged and that four other sites had been targeted. There was no immediate claim of responsibility.`\
 https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/drones-hit-iraqi-military-sites-hours-after-iran-attacked-a-us-base-in-qatar
