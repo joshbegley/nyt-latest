@@ -1,3 +1,27 @@
+**Nico Williams tells Athletic Club he intends to join Barcelona**\
+`Barca do not plan to pay the release clause until after June 30, ensuring the deal is registered in the next financial year in Spain.`\
+https://nytimes.com/athletic/6437327/2025/06/24/nico-williams-barcelona-transfer-athletic-club/
+
+**Chelsea's Jackson has CWC ban extended to two matches**\
+`The Senegal international’s studs-up tackle in the 68th minute at Lincoln Financial Field prompted a straight red card.`\
+https://nytimes.com/athletic/6448247/2025/06/24/chelsea-club-world-cup-jackson-ban/
+
+**How Atletico missed out on a €40m opportunity with early Club World Cup exit**\
+`Atletico, whose president is a film promoter by trade, wanted this tournament to be a Hollywood blockbuster. It turned into a horror movie`\
+https://nytimes.com/athletic/6447577/2025/06/24/atletico-club-world-cup-exit-analysis/
+
+**Returning to Supreme Court, Trump Accuses Judge of Lawless Defiance**\
+`After the justices let the administration deport migrants to countries with which they had no connection, a federal judge blocked the removal of eight men.`\
+https://nytimes.com/2025/06/24/us/supreme-court-migrants-sudan.html
+
+**Mayoral rivals showcase their unique alliance on The Late Show.**\
+`By Taylor Robinson`\
+https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/mamdani-lander-colbert
+
+**Primary Day in New York City Coincides With a Major Heat Wave**\
+`The temperature was forecast to reach 99 degrees or higher on Tuesday, which could cause some voters, especially older ones, to stay home.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-election-heat.html
+
 **Grant Hill to join NBC's NBA coverage for 2025-26 season**\
 `Hill will keep his role at TNT Sports as a college basketball analyst for the NCAA Tournament.`\
 https://nytimes.com/athletic/6448015/2025/06/24/grant-hill-nbc-nba-coverage/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html
 **Rangers to send Penguins No. 12 pick in 2025 NHL Draft, keeping 2026 first-rounder**\
 `The Rangers had to decide whether to send the Penguins this year's first-rounder or next year's to complete the J.T. Miller trade.`\
 https://nytimes.com/athletic/6448101/2025/06/24/rangers-penguins-draft-pick-trade/
-
-**What's new in EA Sports College Football 26's Dynasty mode and what we still want to see**\
-`Asthe July 10 release date gets closer, we can finally talk about the foundational part of the College Football 26 video game: Dynasty mode.`\
-https://nytimes.com/athletic/6446454/2025/06/24/college-football-26-dynasty-mode-ea-sports/
-
-**Smashed Cucumber and Chicken Salad Because It’s Too Hot to Cook**\
-`“SOLID HOT SUMMER DISH,” says Rita, a reader.`\
-https://nytimes.com/2025/06/24/dining/smashed-cucumber-and-chicken-salad-recipe.html
-
-**With $25 Million, Pro-Cuomo Super PAC Shatters Outside Spending Records**\
-`Former Gov. Andrew M. Cuomo’s candidacy has been bankrolled by the largest super PAC ever created in a New York City mayoral campaign.`\
-https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-campaign-finance.html
-
-**Democrats Elect Garcia for Top Oversight Post, Elevating Youth Over Seniority**\
-`The second-term congressman and former mayor of Long Beach, Calif., prevailed over an older and more experienced member to take on the high-profile job on one of the House’s most contentious panels.`\
-https://nytimes.com/2025/06/24/us/politics/democrats-congress-oversight-post.html
-
-**Germany to Spend Record Amount on Its Military and Infrastructure**\
-`The increase was announced hours before a NATO meeting during which member countries are expected to agree to raise military spending to 5 percent of their G.D.P.`\
-https://nytimes.com/2025/06/24/world/europe/germany-budget-military-infrastructure.html
-
-**Newcastle have £45m bid Elanga bid rejected by Forest**\
-`Newcastle are now considering whether to maintain their pursuit or walk away, with other targets also on their radar.`\
-https://nytimes.com/athletic/6409212/2025/06/24/anthony-elanga-newcastle-transfer/
 
