@@ -1,3 +1,19 @@
+**Gareth Bale: Buying Cardiff City would be a 'dream come true'**\
+`Bale wants to propel his hometown club back into the Premier League.`\
+https://nytimes.com/athletic/6441829/2025/06/24/gareth-bale-cardiff-takeover-dream/
+
+**Snapshots of N.Y.C. Mayoral Candidates on the Campaign Trail**\
+`The Democrats running in New York City’s mayoral primary have crisscrossed the five boroughs over several months to make their case to voters in person.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-mayor-election-candidate-photos.html
+
+**Here’s How the N.Y.C. Mayoral Results May Emerge**\
+`A winner on Tuesday night is unlikely, but not impossible. Ranked-choice voting will play a big role in the outcome. Here’s what else you should look for as votes are counted.`\
+https://nytimes.com/2025/06/24/nyregion/when-know-nyc-mayor-primary-winner.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/24/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
 `Welcome to the fourth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6443074/2025/06/24/man-utd-arsenal-liverpool-transfer-news/
