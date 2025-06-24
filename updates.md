@@ -1,4 +1,8 @@
 **‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
+`Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened” — and the lesson he took away.`\
+https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
+
+**‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
 `Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened — and the lesson he took away.`\
 https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
 
