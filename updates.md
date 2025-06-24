@@ -1,3 +1,15 @@
+**Full Time: NWSL takes a break**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6448377/2025/06/24/nwsl-break-international-schedule-full-time/
+
+**It’s Time to Clean Your Books. Join Us. **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-books
+
+**Aaron Rodgers is 'pretty sure' 2025 season will be his last**\
+`In the 2023-24 season, Rodgers threw for 3,897 yards, 28 touchdowns and 11 interceptions. `\
+https://nytimes.com/athletic/6448463/2025/06/24/aaron-rodgers-pittsburgh-steelers-retirement/
+
 **Kyle Dubas needs to strongly consider moving up in the draft**\
 `Getting the No. 12 pick gives the Penguins power. They need stars and standing pat in this top-heavy draft won't do the trick.`\
 https://nytimes.com/athletic/6448400/2025/06/24/penguins-2025-nhl-draft-pick-kyle-dubas/
