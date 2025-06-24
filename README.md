@@ -1,3 +1,11 @@
+**A Cuomo Victory Would Signal a Comeback From His Sexual Harassment Scandal**\
+`The former governor resigned in 2021 after the state attorney general found he had harassed roughly a dozen women.`\
+https://nytimes.com/2025/06/24/nyregion/andrew-cuomo-sexual-harassment.html
+
+**FIFA throwing $1,000-a-ticket CWC 'official celebration' party**\
+`The event, with prices ranging from $1,000 to $3,000, is described as "the official celebration of the FIFA Club World Cup Finals."`\
+https://nytimes.com/athletic/6448276/2025/06/24/club-world-cup-fifa-dinner/
+
 **It’s Primary Day, and the Mayor’s Race Has Never Been Closer**\
 `Voters are heading to the polls amid sweltering heat. Will New Yorkers know the Democratic mayoral nominee this evening? Unlikely.`\
 https://nytimes.com/2025/06/24/nyregion/nyc-primary-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/learning/for-the-girls-who-were-never-meant-to-be
 **Dear Ohio State Senators: I’m a Student, Not a Substitute**\
 `We are honoring the Top 10 winners of our Student Open Letter Contest by publishing their entries. This one is by Michelle Huang, age 17.`\
 https://nytimes.com/2025/06/24/learning/dear-ohio-state-senators-im-a-student-not-a-substitute.html
-
-**Two Brown Bears Broke Out of Their Pen. Then They Ransacked the Honey Stash.**\
-`Mish and Lucy, 5-year-old siblings, escaped their enclosure at a wildlife sanctuary in Devon, England. Only honey was in danger.`\
-https://nytimes.com/2025/06/24/world/europe/bears-escaped-wildwood-devon-honey.html
-
-**Israel and Iran deny violating a nascent truce, offering their own versions of events.**\
-`By Isabel Kershner and Vivian Yee`\
-https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/israel-and-iran-deny-violating-a-nascent-truce-offering-their-own-versions-of-events
 

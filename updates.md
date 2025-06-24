@@ -1,3 +1,7 @@
+**It’s Primary Day, and the Mayor’s Race Has Never Been Closer**\
+`Voters are heading to the polls amid sweltering heat. Will New Yorkers know the Democratic mayoral nominee this evening? Unlikely.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-primary-day.html
+
 **The primary for public advocate pits Jumaane Williams against an Eric Adams ally.**\
 `By Maya King`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/the-primary-for-public-advocate-pits-jumaane-williams-against-an-eric-adams-ally
