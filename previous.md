@@ -1,3 +1,11 @@
+**‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
+`Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened — and the lesson he took away.`\
+https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
+
+**James close to signing new Leeds contract**\
+`The 27-year-old’s deal expires in June 2026.`\
+https://nytimes.com/athletic/6447843/2025/06/24/dan-james-leeds-contract-update/
+
 **Zohran Mamdani starts Primary Day with a speech at dawn in Queens.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/zohran-mamdani-starts-primary-day-with-a-speech-at-dawn-in-queens
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/world/middleeast/israel-iran-war-ceasefire-tehran
 **Spain 6-5 Germany: Breaking down an absolutely wild game of football**\
 `Welcome to a match that had a missed penalty, a calamitous own goal, and two separate hat-tricks - including a goal straight from a corner `\
 https://nytimes.com/athletic/6447541/2025/06/24/spain-6-germany-5-euro-u19-analysis/
-
-**Justice Dept. Leader Suggested Violating Court Orders, Whistle-Blower Says**\
-`Emil Bove III, a Trump judicial nominee, voiced his intent to disobey court orders as others stonewalled and misled judges, according to a complaint.`\
-https://nytimes.com/2025/06/24/us/politics/justice-department-emil-bove-trump-deportations-reuveni.html
-
-**Loose White Layers That Dance On the Wind**\
-`Seeing the airy attire move recalled the sight of a cloud drifting through the sky.`\
-https://nytimes.com/2025/06/24/style/street-style-look-summery-white-clothes.html
 

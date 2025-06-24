@@ -1,3 +1,11 @@
+**‘The Authoritarian Playbook Is Always the Same’: The Week 1 Winner of Our Summer Reading Contest**\
+`Alexander M., 16, writes about his experiences growing up in Russia “as Putin’s tyranny strengthened — and the lesson he took away.`\
+https://nytimes.com/2025/06/24/learning/the-authoritarian-playbook-is-always-the-same-the-week-1-winner-of-our-summer-reading-contest.html
+
+**James close to signing new Leeds contract**\
+`The 27-year-old’s deal expires in June 2026.`\
+https://nytimes.com/athletic/6447843/2025/06/24/dan-james-leeds-contract-update/
+
 **Zohran Mamdani starts Primary Day with a speech at dawn in Queens.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/zohran-mamdani-starts-primary-day-with-a-speech-at-dawn-in-queens
