@@ -1,3 +1,7 @@
+**What to Know About the Cease-Fire Between Israel and Iran**\
+`A senior Israeli official accused Iran of breaking the deal hours after it was announced. Iran’s military denied it had fired more missiles, according to state news outlets.`\
+https://nytimes.com/2025/06/24/world/middleeast/israel-iran-cease-fire-deal-war-trump.html
+
 **John Hollinger's Top 75 draft prospects, from Cooper Flagg to Ace Bailey and more**\
 `One big man has moved all the way into the top 10 after our initial breakdown of top prospects.`\
 https://nytimes.com/athletic/6445611/2025/06/24/nba-draft-2025-top-prospects-cooper-flagg-bailey/
