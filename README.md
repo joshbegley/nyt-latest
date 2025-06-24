@@ -22,6 +22,10 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**Haymarket, From a Saga Alum, Takes a Global Approach**\
+`Massara moves into the Time and Tide space, Samsaen emulates a Thai train station and more restaurant news.`\
+https://nytimes.com/2025/06/24/dining/nyc-restaurant-news.html
+
 **How Inter Miami's fluid attack and Palmeiras' runs in behind created maximum fun**\
 `How both teams entertained their way to the knockouts`\
 https://nytimes.com/athletic/6447593/2025/06/24/why-inter-miamis-fluid-attack-and-palmeiras-runs-in-behind-created-maximum-fun/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-may
 **We asked. The top candidates for mayor answered.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/we-asked-the-top-candidates-for-mayor-answered
-
-**Messages From the U.S. Attack on Iran**\
-`Readers weigh in on the legality and morality of President Trump’s decision to bomb Iranian nuclear sites.`\
-https://nytimes.com/2025/06/24/opinion/us-attack-iran.html
 
