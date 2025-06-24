@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
-**Until Saturday: CFB 26 Dynasty upgrades**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6448637/2025/06/24/college-football-26-dynasty-mode-deep-dive-until-saturday/
+**8 Rising Pop Girls You Should Hear Now**\
+`Reneé Rapp, Ethel Cain, Suzy Clue and more from prospects experimenting with undeniably modern modes while recognizing their place in the Pop Girl lineage.`\
+https://nytimes.com/2025/06/24/arts/music/amplifier-newsletter-pop-girls.html
 
-**Airspace closures snarl travel to the Middle East.**\
-`Nearly half of all Qatar Airways flights were canceled on Tuesday, causing headaches and confusion around the world.`\
-https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/qatar-flights-travel-israel-iran-war
+**‘Cold War Choir Practice’ Review: When the President Made a Deal**\
+`Ro Reddick’s music-infused comedy, set during the Cold War, finishes this year’s edition of Clubbed Thumb’s Summerworks festival on a high.`\
+https://nytimes.com/2025/06/24/theater/cold-war-choir-practice-review.html
 
-**Mamdani made affordability his campaign’s focus. It put him within striking distance.**\
-`By Eliza Shapiro`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/mamdani-made-affordability-his-campaigns-focus-it-put-him-within-striking-distance
+**Man on His Honeymoon Is Struck by Lightning and Killed on Florida Beach**\
+`Just before Jake Rosencranz, 29, of Denver, was struck while standing in ankle-deep water in New Smyrna Beach, two people were struck at a golf course in the area.`\
+https://nytimes.com/2025/06/24/us/lightning-kills-man-florida-honeymoon.html
 
-**Stocks Rise and Oil Falls as Middle East Cease-Fire Begins**\
-`A second day of declining oil prices helped lift stocks. Energy costs are a primary expense for companies, making them an important factor in inflation calculations.`\
-https://nytimes.com/2025/06/24/business/oil-prices-fall-stocks-rise-iran-israel-ceasefire.html
+**Filmmaker Vaughn and businessman Lubner in advanced talks to buy minority stake in Brentford**\
+`Brentford owner Matthew Benham has been open to selling a stake in the club for a few years.`\
+https://nytimes.com/athletic/6445535/2025/06/24/brentford-sale-matthew-vaughn-lubner/
 
