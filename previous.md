@@ -22,19 +22,19 @@ https://nytimes.com/wirecutter/reviews/advice-stolen-phone-laptop/
 `This is not a conspiracy theory: Many of the devices living in your home are quietly collecting towering heaps of information about you.`\
 https://nytimes.com/wirecutter/reviews/advice-smart-devices-data-tracking/
 
+**How Heat Waves Can Worsen Air Quality**\
+`Scientists are increasingly concerned about the ways extreme heat and air pollution are linked.`\
+https://nytimes.com/2025/06/24/climate/how-heat-waves-can-worsen-air-quality.html
+
+**England, Headingley and another cricket victory for the ages**\
+`The famous old ground in West Yorkshire has a rich history of producing drama - it delivered again, thanks to Ben Duckett and Stokes' team `\
+https://nytimes.com/athletic/6448569/2025/06/24/england-india-headingley-duckett-stokes/
+
+**Why Ranked-Choice Voting Could Have a Pivotal Effect on the Mayor’s Race**\
+`The candidates have struck alliances and made cross-endorsements to take advantage of the ranked-choice voting system.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-mayor-ranked-choice-cross-endorsements.html
+
 **Bobby Sherman, Easygoing Teen Idol of the 1960s and ’70s, Dies at 81**\
 `First on TV and then on the pop charts, he became so popular so young, he once said, that he “didn’t really have time to have an ego.”`\
 https://nytimes.com/2025/06/24/arts/music/bobby-sherman-dead.html
-
-**Two Brown Bears Escape Enclosure and Steal a Week’s Worth of Honey**\
-`Mish and Lucy, two 5-year-old brown bears, escaped their enclosure on Monday and broke into their stockpile of treats at the Wildwood Trust wildlife sanctuary in Devon, England.`\
-https://nytimes.com/video/world/europe/100000010247244/bears-steal-honey-from-wildlife-sanctuary.html
-
-**Full Time: NWSL takes a break**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6448377/2025/06/24/nwsl-break-international-schedule-full-time/
-
-**It’s Time to Clean Your Books. Join Us. **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-books
 

@@ -1,3 +1,15 @@
+**How Heat Waves Can Worsen Air Quality**\
+`Scientists are increasingly concerned about the ways extreme heat and air pollution are linked.`\
+https://nytimes.com/2025/06/24/climate/how-heat-waves-can-worsen-air-quality.html
+
+**England, Headingley and another cricket victory for the ages**\
+`The famous old ground in West Yorkshire has a rich history of producing drama - it delivered again, thanks to Ben Duckett and Stokes' team `\
+https://nytimes.com/athletic/6448569/2025/06/24/england-india-headingley-duckett-stokes/
+
+**Why Ranked-Choice Voting Could Have a Pivotal Effect on the Mayor’s Race**\
+`The candidates have struck alliances and made cross-endorsements to take advantage of the ranked-choice voting system.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-mayor-ranked-choice-cross-endorsements.html
+
 **Bobby Sherman, Easygoing Teen Idol of the 1960s and ’70s, Dies at 81**\
 `First on TV and then on the pop charts, he became so popular so young, he once said, that he “didn’t really have time to have an ego.”`\
 https://nytimes.com/2025/06/24/arts/music/bobby-sherman-dead.html
