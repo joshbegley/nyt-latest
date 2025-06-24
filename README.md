@@ -4,7 +4,7 @@ https://nytimes.com/issue/todaysinyt/2025/06/24/todays-new-york-times-internatio
 
 **Iran and Israel Trade Strikes Ahead of Cease-Fire**\
 `Iran launched a deadly strike in Beersheba, Israel, and Israel struck targets in Tehran early Tuesday, Israeli officials said, hours before the countries confirmed they had agreed to a cease-fire.`\
-https://nytimes.com/video/world/middleeast/100000010246596/24iran-israel-beersheba.html
+https://nytimes.com/video/world/middleeast/100000010246596/israel-iran-beersheba-strike.html
 
 **Iran Mounts Deadly Attack on Israel Hours Before Fragile Cease-Fire**\
 `At least four people were killed in a missile strike in southern Israel early Tuesday, the Israeli authorities said.`\
