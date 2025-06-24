@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Patrick Kingsley, Isabel Kershner and Aaron Boxerman`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump/heres-the-latest
+
+**Live Updates: Israel and Iran Agree to Cease-Fire Announced By Trump**\
+`Both countries announced the truce in separate statements on Tuesday morning. President Trump gave few details about the deal.`\
+https://nytimes.com/live/2025/06/24/world/ceasefire-iran-israel-trump
+
+**Jimmy Fallon Wonders What Trump Will Launch Next**\
+`The “Tonight Show” host said it was crazy that the president had “launched an attack on Iran, his own parade and a cellphone in the same week.”`\
+https://nytimes.com/2025/06/24/arts/television/fallon-trump-launches-iran.html
+
 **Word of the Day: retrench**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/24/learning/word-of-the-day-retrench.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6447197/2025/06/24/james-harden-lawsuit-sexual-assa
 **Putin Has Lost the West. This Was Not the Plan.**\
 `The loss is a tragedy for Russia.`\
 https://nytimes.com/2025/06/24/opinion/putin-trump-nato-russia.html
-
-**The New York Times in Print for Tuesday, June 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/24/todays-new-york-times
-
-**The Yankees have been a brutal watch in June. Here's why**\
-`Without better offense in scoring opportunities, the Yankees will continue to frustrate fans while their lead in the division shrinks.`\
-https://nytimes.com/athletic/6447049/2025/06/24/yankees-brutal-watch-june/
-
-**Tuesday Briefing**\
-`A possible cease-fire between Israel and Iran.`\
-https://nytimes.com/2025/06/24/briefing/israel-iran-truce-gaza.html
 
