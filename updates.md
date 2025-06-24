@@ -1,3 +1,7 @@
+**Inter Miami 2 Palmeiras 2: Messi's side blows chance to top Club World Cup group**\
+`Analysis from a wild conclusion to Group A at the FIFA Club World Cup, where Lionel Messi will see a familiar foe in the last 16`\
+https://nytimes.com/athletic/6446883/2025/06/23/inter-miami-palmeiras-club-world-cup-messi-suarez-allende-highlights/
+
 **Verdict in Wander Franco underage sexual abuse trial likely coming Thursday**\
 `While rulings are typically handled the same day, a judge said more time is needed due to the amount of evidence and testimony. `\
 https://nytimes.com/athletic/6446973/2025/06/23/rays-wander-franco-trial-verdict/
