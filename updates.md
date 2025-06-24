@@ -1,3 +1,7 @@
+**How South Africa's 1995 Rugby World Cup win united and 'galvanised' a nation**\
+`Nelson Mandela not only put his reputation on the line but spent significant political capital actively supporting the Springboks in 1995 `\
+https://nytimes.com/athletic/6445062/2025/06/24/south-africa-1995-rugby-world-cup-win-anniversary/
+
 **Extreme Heat Is Exacerbating Air Pollution, a ‘Double Whammy’ for Health**\
 `Extreme heat is making air pollution worse, scientists say. And President Trump’s regulatory rollbacks could drive air pollution even higher.`\
 https://nytimes.com/2025/06/24/climate/extreme-heat-pollution-health.html

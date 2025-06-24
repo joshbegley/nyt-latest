@@ -1,3 +1,7 @@
+**Grant Hill to join NBC's NBA coverage for 2025-26 season**\
+`Hill will keep his role at TNT Sports as a college basketball analyst for the NCAA Tournament.`\
+https://nytimes.com/athletic/6448015/2025/06/24/grant-hill-nbc-nba-coverage/
+
 **How South Africa's 1995 Rugby World Cup win united and 'galvanised' a nation**\
 `Nelson Mandela not only put his reputation on the line but spent significant political capital actively supporting the Springboks in 1995 `\
 https://nytimes.com/athletic/6445062/2025/06/24/south-africa-1995-rugby-world-cup-win-anniversary/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/world/europe/germany-budget-military-infrastructu
 **Newcastle have £45m bid Elanga bid rejected by Forest**\
 `Newcastle are now considering whether to maintain their pursuit or walk away, with other targets also on their radar.`\
 https://nytimes.com/athletic/6409212/2025/06/24/anthony-elanga-newcastle-transfer/
-
-**Trump Departs for NATO Summit and ‘a New Set of Problems’**\
-`President Trump is expected to talk about spending commitments from the alliance’s members, while NATO’s secretary general has been eager to avoid diplomatic blowups.`\
-https://nytimes.com/2025/06/24/us/politics/nato-trump-preview.html
 
