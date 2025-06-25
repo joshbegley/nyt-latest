@@ -1,3 +1,7 @@
+**Padres closer Robert Suarez has suspension reduced to two games: Sources**\
+`Suarez was immediately ejected after hitting Shohei Ohtani in the right shoulder blade with a 99.8 mph fastball. `\
+https://nytimes.com/athletic/6449891/2025/06/24/padres-robert-suarez-suspension-appeal/
+
 **A Stunned Cuomo Watch Party Finds Itself With Little to Celebrate.**\
 `The former governor’s supporters were in a low-key mood even before Mr. Cuomo told them that Zohran Mamdani had won the primary.`\
 https://nytimes.com/2025/06/24/nyregion/cuomo-watch-party-manhattan.html

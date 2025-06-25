@@ -1,3 +1,7 @@
+**Padres closer Robert Suarez has suspension reduced to two games: Sources**\
+`Suarez was immediately ejected after hitting Shohei Ohtani in the right shoulder blade with a 99.8 mph fastball. `\
+https://nytimes.com/athletic/6449891/2025/06/24/padres-robert-suarez-suspension-appeal/
+
 **A Stunned Cuomo Watch Party Finds Itself With Little to Celebrate.**\
 `The former governor’s supporters were in a low-key mood even before Mr. Cuomo told them that Zohran Mamdani had won the primary.`\
 https://nytimes.com/2025/06/24/nyregion/cuomo-watch-party-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/crosswords/daily-puzzle-2025-06-25.html
 **Trade grades: How can Porziņģis help Hawks' offense? Do Nets have new plan?**\
 `The Celtics made another big trade to shed salary. Do they have other big moves in mind?`\
 https://nytimes.com/athletic/6449460/2025/06/24/kristaps-porzingis-celtics-hawks-nets-trade-nba/
-
-**Jumaane Williams Wins Democratic Primary for Public Advocate**\
-`Mr. Williams, a progressive who has served as public advocate since 2019, has been a forceful critic of Mayor Eric Adams. He faced two more moderate challengers.`\
-https://nytimes.com/2025/06/24/nyregion/nyc-public-advocate-jumaane-williams.html
 
