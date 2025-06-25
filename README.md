@@ -1,3 +1,11 @@
+**Iran’s Attack on a U.S. Base in Qatar is a Nightmare Come True for Gulf States**\
+`The countries have long worried about being sucked into regional war as they juggle relations with Washington, their security guarantor, while seeking to improve ties with Tehran.`\
+https://nytimes.com/2025/06/25/world/middleeast/gulf-states-iran-attack-us-qatar-base.html
+
+**PWHL Draft 2025: Best picks, biggest surprises and why New York stole the show**\
+`The New York Sirens grabbed two of the top three players available at the 2025 PWHL Draft, which was highlighted by trades.`\
+https://nytimes.com/athletic/6450214/2025/06/25/pwhl-draft-2025-new-york-kaltounkova-obrien/
+
 **Mandaric rules out Sheffield Wednesday takeover bid**\
 `Having flown to London on Monday, the serial club-owner has issued a statement to say he is not in a position to buy the club.`\
 https://nytimes.com/athletic/6450517/2025/06/25/sheffield-wednesday-takeover-milan-mandaric/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450407/2025/06/25/stefano-pioli-manager-saudi-al-n
 **U.K. Says It’s Buying 12 F-35A Stealth Jets That Can Carry Nuclear Weapons**\
 `The decision means that Britain’s air force will have a nuclear role for the first time since the end of the Cold War.`\
 https://nytimes.com/2025/06/25/world/europe/uk-nato-f35-nuclear-jets.html
-
-**OpenAI’s Self-Driving Ambitions**\
-`The artificial intelligence company has set many challenging goals. Autonomous vehicle software is now among them — but may pit the company against Tesla.`\
-https://nytimes.com/2025/06/25/business/dealbook/openai-autonomous-vehicles-musk-tesla.html
-
-**Vietnam Abolishes Death Penalty for Embezzlement and Other Crimes**\
-`The move, one official said, would help the country extradite suspects from abroad. It would also spare the life of a recently convicted tycoon.`\
-https://nytimes.com/2025/06/25/world/asia/vietnam-death-penalty-law.html
 
