@@ -1,3 +1,7 @@
+**Can This Woman’s Bra Help Her Make History?**\
+`Faith Kipyegon, a three-time Olympic champion, wants to become the first woman to break the four-minute mile. Nike kitted her out for her attempt.`\
+https://nytimes.com/2025/06/25/style/nike-faith-kipyegon-bra-four-minute-mile.html
+
 **Watch: Is the most important position in the WNBA changing?**\
 `No Offseason discusses whether guards will overtake power forwards as the WNBA's premier position.`\
 https://nytimes.com/athletic/6450546/2025/06/25/no-off-season-wnba-guard-important-position/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450778/2025/06/25/mls-salary-list-2025-mlspa-messi
 **After adding a center, might the Flyers pursue one of these 10 goalies?**\
 `Here are some possible options for the Flyers via trade or free agency this offseason.`\
 https://nytimes.com/athletic/6450899/2025/06/25/flyers-goalie-trade-free-agent/
-
-**Tensions Grow Between Iran and the U.N. Nuclear Watchdog**\
-`The Iranian government has raised the prospect that inspectors from the International Atomic Energy Agency may be ejected from the country.`\
-https://nytimes.com/2025/06/25/world/middleeast/iran-iaea-inspectors.html
 
