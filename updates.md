@@ -1,3 +1,7 @@
+**7 Israeli Soldiers Killed in Gaza, Military Says**\
+`The Israeli military said the soldiers were killed in the southern city of Khan Younis, and that they were part of a team finding and demolishing tunnels.`\
+https://nytimes.com/2025/06/25/world/middleeast/israel-soldiers-killed-gaza-khan-younis.html
+
 **Axiom-4 Mission Takes Off for the I.S.S.**\
 `Hungary, India and Poland sent astronauts to the International Space Station for the first time by paying Axiom Space for the journey.`\
 https://nytimes.com/video/science/space/100000010249283/spacex-launch-axiom-mission-4-watch.html
