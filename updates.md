@@ -1,3 +1,15 @@
+**Knicks ask permission to interview Pels assistant James Borrego: Sources**\
+`Borrego would be the fourth known candidate to meet with the Knicks about vacant head coaching position.`\
+https://nytimes.com/athletic/6451735/2025/06/25/james-borrego-knicks-pelicans-coaching-search/
+
+**As Donors Work Against Mamdani, Top Democrats Stop Short of Backing Him**\
+`After Zohran Mamdani’s performance in the New York City mayoral primary, Republicans and suburban Democrats attacked him, and party leaders seemed to be hedging their bets.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-democrats-schumer-jeffries.html
+
+**In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
+`Their changes might be less pronounced in the future, but for one game we got to see how different top-of-the-league stuff can look.`\
+https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
+
 **From Serial Productions: The Retrievals, Season 1**\
 `Dozens of women seeking to become mothers came to a fertility clinic at Yale. A five-part narrative series explores the shocking events that unfolded there.`\
 https://nytimes.com/article/serial-the-retreivals-season-one.html
