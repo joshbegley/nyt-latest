@@ -1,3 +1,11 @@
+**Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
+`Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
+https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
+
+**Mushy Wording Lets NATO Commit to Trump’s Military Spending Demand**\
+`President Trump has pressed members of the alliance to spend 5 percent of their gross domestic products on defense. Leaders agreed that “allies” — but not “all allies” — would meet that figure.`\
+https://nytimes.com/2025/06/25/us/politics/nato-gdp-defense-spending-trump.html
+
 **Iran’s Attack on a U.S. Base in Qatar is a Nightmare Come True for Gulf States**\
 `The countries have long worried about being sucked into regional war as they juggle relations with Washington, their security guarantor, while seeking to improve ties with Tehran.`\
 https://nytimes.com/2025/06/25/world/middleeast/gulf-states-iran-attack-us-qatar-base.html
