@@ -1,3 +1,7 @@
+**England Under-21s reach Euros final after 2-1 win over the Netherlands**\
+`Two goals from Liverpool midfielder Harvey Elliott ensured that Lee Carsley’s side will play in back-to-back finals.`\
+https://nytimes.com/athletic/6451198/2025/06/25/england-under-21-euros-netherlands/
+
 **P. Adams Sitney, Leading Scholar of Avant-Garde Film, Dies at 80**\
 `He championed works of cinema that were destined never to have a commercial breakthrough — which, to him, was the whole point.`\
 https://nytimes.com/2025/06/25/movies/p-adams-sitney-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election
 **Here’s the latest.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election/heres-the-latest
-
-**Marie-Philip Poulin wins PWHL MVP, Forward of the Year**\
-`The PWHL announced the winners of four other major awards at a ceremony on Wednesday afternoon. Here are the results and the finalists.`\
-https://nytimes.com/athletic/6450832/2025/06/25/pwhl-awards-2025-mvp-marie-philip-poulin/
 

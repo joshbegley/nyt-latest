@@ -1,3 +1,7 @@
+**British Man Is Charged Over Attempted Mock Wedding With 9-Year-Old at Disneyland Paris**\
+`The French authorities said a 39-year-old had attempted to conduct the ceremony with a minor on Saturday. The British police say he is a convicted sex offender.`\
+https://nytimes.com/2025/06/25/world/europe/disneyland-paris-mock-wedding-britain.html
+
 **P. Adams Sitney, Leading Scholar of Avant-Garde Film, Dies at 80**\
 `He championed works of cinema that were destined never to have a commercial breakthrough — which, to him, was the whole point.`\
 https://nytimes.com/2025/06/25/movies/p-adams-sitney-dead.html
