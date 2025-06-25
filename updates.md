@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/25/crosswords/spelling-bee-forum.html
+
+**Here’s the latest.**\
+`By Adam Rasgon, Michael D. Shear and Francesca Regalado`\
+https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/heres-the-latest
+
+**Live Updates: Cease-fire Enters Second Day as Iran and Israel Both Claim Victory**\
+`President Trump urged both sides to respect the truce, as the leak of a U.S. intelligence report put into question if American strikes had significantly set back Iran’s nuclear ambitions.`\
+https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump
+
 **Maresca has 'no doubt' that Delap will be a goal-scoring success at Chelsea**\
 `Maresca has generally been reluctant to lean on the new faces in his squad for this CWC campaign, but Delap has been the exception.`\
 https://nytimes.com/athletic/6450129/2025/06/25/chelsea-delap-maresca-club-world-cup/
