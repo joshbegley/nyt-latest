@@ -1,6 +1,6 @@
-**A stunned Cuomo watch party finds itself with little to celebrate.**\
-`By Claire Fahy`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/a-stunned-cuomo-watch-party-finds-itself-with-little-to-celebrate
+**A Stunned Cuomo Watch Party Finds Itself With Little to Celebrate.**\
+`The former governor’s supporters were in a low-key mood even before Mr. Cuomo told them that Zohran Mamdani had won the primary.`\
+https://nytimes.com/2025/06/24/nyregion/cuomo-watch-party-manhattan.html
 
 **PTPA removes complaints by top players from lawsuit vs. ATP, WTA Tours**\
 `French Open champion Carlos Alcaraz is among players whose complaints about the tennis schedule separate to the lawsuit have been removed.`\
