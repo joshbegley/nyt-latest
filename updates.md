@@ -1,3 +1,7 @@
+**Gailard Sartain, Character Actor and ‘Hee Haw’ Regular, Dies at 81**\
+`Though best known for comedy, he also played serious roles, including a sinister sheriff in “Mississippi Burning.” The director Alan Rudolph cast him in nine films.`\
+https://nytimes.com/2025/06/25/arts/television/gailard-sartain-dead.html
+
 **Brutal Temperatures Expected for Many on Wednesday, but Relief Is Near**\
 `After days of record-breaking heat, some cooling is expected in the Eastern United States starting Thursday.`\
 https://nytimes.com/2025/06/25/weather/us-heat-wave-forecast-wednesday.html

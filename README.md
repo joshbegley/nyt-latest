@@ -1,3 +1,7 @@
+**Inside a Last-Ditch Battle to Save (or Kill) Clean-Energy Tax Credits**\
+`Supporters of tax breaks for wind and solar are fighting to retain them in the G.O.P. tax bill. They’re facing a conservative effort to kill them entirely.`\
+https://nytimes.com/2025/06/25/climate/trump-bill-clean-energy-tax-credits.html
+
 **Gailard Sartain, Character Actor and ‘Hee Haw’ Regular, Dies at 81**\
 `Though best known for comedy, he also played serious roles, including a sinister sheriff in “Mississippi Burning.” The director Alan Rudolph cast him in nine films.`\
 https://nytimes.com/2025/06/25/arts/television/gailard-sartain-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6435588/2025/06/25/bucks-draft-mailbag-trade-into-f
 **Global Arts Festival Taking Shape Inside Gowanus Power Station**\
 `The first Powerhouse: International will feature works from South Africa’s William Kentridge, Brazil’s Carolina Bianchi — and 10,000, $30 tickets.`\
 https://nytimes.com/2025/06/25/arts/powerhouse-festival-gowanus.html
-
-**The Washington Post Will Ask Some Sources to Annotate Its Stories**\
-`The program, called From the Source, will start with articles from the publication’s climate team. It could provide readers with more viewpoints but would also require moderation and vetting.`\
-https://nytimes.com/2025/06/25/business/washington-post-annotations-comments.html
 
