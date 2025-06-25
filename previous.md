@@ -1,3 +1,7 @@
+**Prospects to watch for fantasy baseball based on minor league Statcast metrics**\
+`Michael Salfino scours the expected stats of minor leaguers with an eye toward players who could soon be of help in fantasy baseball.`\
+https://nytimes.com/athletic/6449405/2025/06/25/fantasy-baseball-prospect-watch-basallo/
+
 **Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
 `Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
 https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.htm
 `President Trump has pressed members of the alliance to spend 5 percent of their gross domestic products on defense. Leaders agreed that “allies” — but not “all allies” — would meet that figure.`\
 https://nytimes.com/2025/06/25/us/politics/nato-gdp-defense-spending-trump.html
 
-**Iran’s Attack on a U.S. Base in Qatar is a Nightmare Come True for Gulf States**\
+**Iran’s Attack on a U.S. Base in Qatar Is a Nightmare Come True for Gulf States**\
 `The countries have long worried about being sucked into regional war as they juggle relations with Washington, their security guarantor, while seeking to improve ties with Tehran.`\
 https://nytimes.com/2025/06/25/world/middleeast/gulf-states-iran-attack-us-qatar-base.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6449611/2025/06/25/trevor-zegras-ducks-trade/
 **Don’t Let Silicon Valley Move Fast and Break Children’s Minds**\
 `The federal government needs to step up and regulate artificial intelligence now.`\
 https://nytimes.com/2025/06/25/opinion/silicon-valley-ai-mattel.html
-
-**How Can We Get My Aging Stepmother to Cull Her Many Belongings?**\
-`After his father’s years of struggle to make progress on the matter, a reader feels obligated to take up the cause of persuading his stepmother to cut back.`\
-https://nytimes.com/2025/06/25/style/elderly-relatives-possessions.html
 

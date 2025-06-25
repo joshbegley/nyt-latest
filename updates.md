@@ -1,3 +1,11 @@
+**Prospects to watch for fantasy baseball based on minor league Statcast metrics**\
+`Michael Salfino scours the expected stats of minor leaguers with an eye toward players who could soon be of help in fantasy baseball.`\
+https://nytimes.com/athletic/6449405/2025/06/25/fantasy-baseball-prospect-watch-basallo/
+
+**Iran’s Attack on a U.S. Base in Qatar Is a Nightmare Come True for Gulf States**\
+`The countries have long worried about being sucked into regional war as they juggle relations with Washington, their security guarantor, while seeking to improve ties with Tehran.`\
+https://nytimes.com/2025/06/25/world/middleeast/gulf-states-iran-attack-us-qatar-base.html
+
 **Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
 `Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
 https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
