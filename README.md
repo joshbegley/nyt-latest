@@ -1,9 +1,25 @@
-**Lakers sale announced, with Jeanie Buss staying in charge "for the foreseeable future"**\
+**Watch: Is the most important position in the WNBA changing?**\
+`No Offseason discusses whether guards will overtake power forwards as the WNBA's premier position.`\
+https://nytimes.com/athletic/6450546/2025/06/25/no-off-season-wnba-guard-important-position/
+
+**House Democrat Pleads Not Guilty to Assault at Migrant Detention Center**\
+`Representative LaMonica McIver was caught up in an onrush outside a troubled Newark immigration facility where, weeks later, four detainees escaped.`\
+https://nytimes.com/2025/06/25/nyregion/lamonica-mciver-newark-ice-not-guilty.html
+
+**R.F.K. Jr. Says U.S. Will Stop Funding Global Vaccine Agency**\
+`Robert F. Kennedy Jr., the health and human services secretary, said the United States would not deliver on a $1.2 billion pledge made by the Biden administration until the organization changed its processes.`\
+https://nytimes.com/video/health/100000010250028/kennedy-gavi-vaccines.html
+
+**USMNT summer transfer primer: Latest on Weah, Tillman, Reyna and more**\
+`It's a pivotal summer for a number of key U.S. players whose club situations remain in flux less than a year out from the World Cup`\
+https://nytimes.com/athletic/6448409/2025/06/25/usmnt-summer-transfers-weah-tillman-reyna-musah-johnny/
+
+**Lakers sale announced, with Jeanie Buss staying in charge 'for the foreseeable future'**\
 `Last week, Mark Walter agreed to buy a controlling interest in the storied franchise from the Buss family.`\
 https://nytimes.com/athletic/6450811/2025/06/25/lakers-sale-jeanie-buss/
 
 **Trade grades: Canucks make desperate bet on Evander Kane as Oilers get out of a jam**\
-`The fact that Edmonton managed to clear the entirety of Kane's salary, and get a fourth-rounder in return, is truly remarkable.`\
+`The fact that Edmonton managed to clear the entirety of Kane's salary and get a fourth-rounder in return, is truly remarkable.`\
 https://nytimes.com/athletic/6450879/2025/06/25/evander-kane-trade-grades-oilers-canucks-nhl/
 
 **Three ways the Giants' slumping offense can get better**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6450899/2025/06/25/flyers-goalie-trade-free-agent/
 **Tensions Grow Between Iran and the U.N. Nuclear Watchdog**\
 `The Iranian government has raised the prospect that inspectors from the International Atomic Energy Agency may be ejected from the country.`\
 https://nytimes.com/2025/06/25/world/middleeast/iran-iaea-inspectors.html
-
-**A Play About a Breakdown Was a 2000 Hit. What Do Audiences Say Today?**\
-`Sarah Kane’s “4:48 Psychosis” premiered to rave reviews shortly after the playwright killed herself. A quarter-century later, the original cast is reviving the production.`\
-https://nytimes.com/2025/06/25/theater/sarah-kane-448-psychosis-revival.html
-
-**Tiny Love Stories: ‘Nudes of the Man I Miss’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i-miss.html
-
-**Rockets re-sign Fred VanVleet to 2-year, $50 million contract**\
-`VanVleet’s $44.9 million team option for the upcoming season will be declined as a result of the new deal.`\
-https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract/
-
-**American Airlines Flight Returns to Las Vegas Airport After Engine Issue**\
-`Videos show smoke coming out of the right engine of an American Airlines passenger jet heading from Las Vegas to Charlotte, N.C. The plane turned around and landed safely after the crew reported an engine issue, the F.A.A. said.`\
-https://nytimes.com/video/us/100000010250202/american-airlines-engine-issue.html
 
