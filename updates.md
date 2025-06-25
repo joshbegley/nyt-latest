@@ -1,3 +1,11 @@
+**Suited and selected: One awesome NBA Draft outfit from each modern era**\
+`From Olajuwon's Michael Jackson look to the bespoke threads of today's rookies, NBA Draft night is a bellwether of evolving league fashion.`\
+https://nytimes.com/athletic/6448092/2025/06/25/nba-draft-fashion-how-to-watch-2025/
+
+**The New York Times International Edition in Print for Thursday, June 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/25/todays-new-york-times-international-edition
+
 **Cargo Ship That Caught Fire Carrying Electric Vehicles Sinks in the Pacific**\
 `Three weeks after a fire broke out on the ship off the coast of Alaska, the Morning Midas sank, along with thousands of cars on board.`\
 https://nytimes.com/2025/06/25/us/alaska-cargo-ship-vehicles-sinks-pacific.html
