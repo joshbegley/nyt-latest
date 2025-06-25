@@ -1,3 +1,19 @@
+**Rays, MLB have held preliminary talks about home playoff locations: Sources**\
+`Steinbrenner Field could be viable for early rounds. But an appearance in the ALCS or World Series would pose logistical concerns.`\
+https://nytimes.com/athletic/6451763/2025/06/25/tampa-bay-rays-playoff-locations-steinbrenner-field/
+
+**Lionel Messi headlines MLS All-Star roster for second straight year**\
+`The MLS squad for the annual All-Star celebration has been finalized - and Vancouver leads the way with four selections`\
+https://nytimes.com/athletic/6451265/2025/06/25/mls-all-star-roster-messi/
+
+**Soaring Temperatures in N.Y.C. Land More Than 100 in Emergency Rooms**\
+`Not since 2019 have so many New Yorkers in a single day sought emergency medical attention for heat-related illnesses.`\
+https://nytimes.com/2025/06/25/nyregion/heat-related-illness-new-york-city.html
+
+**Pep Guardiola says Claudio Echeverri set to miss rest of Club World Cup with ankle injury**\
+`Pep Guardiola has said that Claudio Echeverri is likely to miss the remainder of the Club World Cup after suffering an ankle injury in training.`\
+https://nytimes.com/athletic/6451721/2025/06/25/manchester-city-claudio-echeverri-injury/
+
 **Best available players remaining in 2025 NBA Draft**\
 `Who are the top prospects on the board at the 2025 draft? We're tracking all the movement as things unfold from Brooklyn.`\
 https://nytimes.com/athletic/6451687/2025/06/25/nba-draft-2025-best-available-players/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.htm
 **The Anatomy of Mamdani’s Political Earthquake**\
 `The 33-year-old State Assemblyman just achieved one of the greatest political upsets in New York City history.`\
 https://nytimes.com/interactive/2025/06/25/opinion/mamdani-cuomo-new-york-mayor-election.html
-
-**Mamdani’s Success Spotlights a Deepening Rupture Among U.S. Jews**\
-`While Zohran Mamdani won over some Jewish supporters, other Jewish Democrats suggested that concerns about their community’s safety are being dismissed in a movement and a city they helped build.`\
-https://nytimes.com/2025/06/25/us/politics/zohran-mamdani-jewish-voters.html
-
-**Potential Cyberattack Scrambles Columbia University Computer Systems**\
-`Images of a smiling President Trump popped up on some screens, although they could not be conclusively linked to the episode.`\
-https://nytimes.com/2025/06/25/nyregion/columbia-university-cyberattack.html
-
-**In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
-`Their changes might be less pronounced in the future, but for one game we got to see how different top-of-the-league stuff can look.`\
-https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
-
-**Democrats Looked for Lessons in New York City’s Mayoral Upset**\
-`Also, Trump said the U.S. would soon meet with Iran. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/06/25/briefing/new-york-city-mayoral-election-us-iran.html
 

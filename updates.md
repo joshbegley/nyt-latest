@@ -1,3 +1,19 @@
+**Rays, MLB have held preliminary talks about home playoff locations: Sources**\
+`Steinbrenner Field could be viable for early rounds. But an appearance in the ALCS or World Series would pose logistical concerns.`\
+https://nytimes.com/athletic/6451763/2025/06/25/tampa-bay-rays-playoff-locations-steinbrenner-field/
+
+**Lionel Messi headlines MLS All-Star roster for second straight year**\
+`The MLS squad for the annual All-Star celebration has been finalized - and Vancouver leads the way with four selections`\
+https://nytimes.com/athletic/6451265/2025/06/25/mls-all-star-roster-messi/
+
+**Soaring Temperatures in N.Y.C. Land More Than 100 in Emergency Rooms**\
+`Not since 2019 have so many New Yorkers in a single day sought emergency medical attention for heat-related illnesses.`\
+https://nytimes.com/2025/06/25/nyregion/heat-related-illness-new-york-city.html
+
+**Pep Guardiola says Claudio Echeverri set to miss rest of Club World Cup with ankle injury**\
+`Pep Guardiola has said that Claudio Echeverri is likely to miss the remainder of the Club World Cup after suffering an ankle injury in training.`\
+https://nytimes.com/athletic/6451721/2025/06/25/manchester-city-claudio-echeverri-injury/
+
 **Best available players remaining in 2025 NBA Draft**\
 `Who are the top prospects on the board at the 2025 draft? We're tracking all the movement as things unfold from Brooklyn.`\
 https://nytimes.com/athletic/6451687/2025/06/25/nba-draft-2025-best-available-players/
