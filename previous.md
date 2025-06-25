@@ -1,3 +1,7 @@
+**Diamondbacks' Ketel Marte in tears after heckler's comment about his late mom**\
+`The incident left Marte in tears on the field, and the fan was immediately ejected from the stadium.`\
+https://nytimes.com/athletic/6449956/2025/06/25/ketel-marte-fan-mother-diamondbacks/
+
 **The New York Times in Print for Wednesday, June 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/25/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6445041/2025/06/25/brooke-norton-cuffy-arsenal-viei
 **Club World Cup daily rankings: A new No. 1 as Bayern loses grip on top spot**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/25/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
-
-**Canada handles 9-man El Salvador, tops Gold Cup group and eyes USMNT semifinal**\
-`Jonathan David and Tajon Buchanan scored after two Salvadoran red cards, as Canada rebounded from a draw vs. Curaçao to win its group`\
-https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
 

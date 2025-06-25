@@ -1,3 +1,7 @@
+**Diamondbacks' Ketel Marte in tears after heckler's comment about his late mom**\
+`The incident left Marte in tears on the field, and the fan was immediately ejected from the stadium.`\
+https://nytimes.com/athletic/6449956/2025/06/25/ketel-marte-fan-mother-diamondbacks/
+
 **The New York Times in Print for Wednesday, June 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/25/todays-new-york-times
