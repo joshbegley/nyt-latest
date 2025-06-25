@@ -1,3 +1,11 @@
+**Iran’s Attack on a U.S. Base in Qatar is a Nightmare Come True for Gulf States**\
+`The countries have long worried about being sucked into regional war as they juggle relations with Washington, their security guarantor, while seeking to improve ties with Tehran.`\
+https://nytimes.com/2025/06/25/world/middleeast/gulf-states-iran-attack-us-qatar-base.html
+
+**PWHL Draft 2025: Best picks, biggest surprises and why New York stole the show**\
+`The New York Sirens grabbed two of the top three players available at the 2025 PWHL Draft, which was highlighted by trades.`\
+https://nytimes.com/athletic/6450214/2025/06/25/pwhl-draft-2025-new-york-kaltounkova-obrien/
+
 **Mandaric rules out Sheffield Wednesday takeover bid**\
 `Having flown to London on Monday, the serial club-owner has issued a statement to say he is not in a position to buy the club.`\
 https://nytimes.com/athletic/6450517/2025/06/25/sheffield-wednesday-takeover-milan-mandaric/
