@@ -1,40 +1,41 @@
-**Suited and selected: One awesome NBA Draft outfit from each modern era**\
-`From Olajuwon's Michael Jackson look to the bespoke threads of today's rookies, NBA Draft night is a bellwether of evolving league fashion.`\
-https://nytimes.com/athletic/6448092/2025/06/25/nba-draft-fashion-how-to-watch-2025/
+**Arsenal exploring deal for Brentford's Christian Norgaard after €11m bid**\
+`The north London club are exploring a deal for the the 31-year-old, while they await Brentford's response to their offer.`\
+https://nytimes.com/athletic/6450226/2025/06/25/christian-norgaard-arsenal-brentford-transfer/
 
-**The New York Times International Edition in Print for Thursday, June 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/25/todays-new-york-times-international-edition
+**Projecting the futures for Jacob Misiorowski, Chase Burns, Mick Abel and more rookie pitchers**\
+` No matter how good their raw stuff is, rookie starters have a lot of work to do if they want to figure out what will be successful.`\
+https://nytimes.com/athletic/6446267/2025/06/25/mlb-rookie-pitcher-projections-jacob-misiorowski-chase-burns-mick-abel/
 
-**Cargo Ship That Caught Fire Carrying Electric Vehicles Sinks in the Pacific**\
-`Three weeks after a fire broke out on the ship off the coast of Alaska, the Morning Midas sank, along with thousands of cars on board.`\
-https://nytimes.com/2025/06/25/us/alaska-cargo-ship-vehicles-sinks-pacific.html
+**NHL free-agent big board 3.0: Expanding to the top 80 targets ahead of Draft Day**\
+`With less than a week to go until free agency, the market is starting to take shape.`\
+https://nytimes.com/athletic/6447240/2025/06/25/nhl-free-agency-rankings-big-board-draft/
 
-**Former Liverpool and Southampton midfielder Lallana announces retirement**\
-`Lallana has called time on a professional playing career that spanned almost two decades and saw him make 569 appearances.`\
-https://nytimes.com/athletic/6450206/2025/06/25/adam-lallana-retirement-liverpool-southampton/
+**Cooper Flagg NBA Draft sweepstakes result a 'fantastic feeling' for Rolando Blackman**\
+`Blackman, the No. 9 pick in the 1981 NBA Draft, called the 2025 lottery results "a time of renewal ... for our organization, for our fans."`\
+https://nytimes.com/athletic/6439250/2025/06/25/cooper-flagg-mavericks-rolando-blackman-nba-draft-lottery/
 
-**To Share or Not to Share? How Location Sharing Is Changing Our Relationships**\
-`Arlon Jay Staggs knew it was time to stop sharing his location with his mother, but with everything his family was going through, he just couldn’t figure out how to tell her.`\
-https://nytimes.com/2025/06/25/podcasts/location-sharing-relationships.html
+**NWSL midseason review: League leaders, most improved and MVP frontrunners**\
+`The Athletic's women's soccer writers take stock of the NWSL as it heads for a midseason break.`\
+https://nytimes.com/athletic/6449871/2025/06/25/nwsl-midseason-review-league-leaders-mvp/
 
-**Can’t Repeat the Past? A Gatsby Boat Tour Can.**\
-`A hundred years after F. Scott Fitzgerald published his classic novel, a trip around Manhasset Bay shows how little has changed.`\
-https://nytimes.com/2025/06/25/style/gatsby-boat-tour.html
+**The Sabres have a historic playoff drought. Here are 3 leadership lessons from their struggles**\
+`The Buffalo Sabres have the longest playoff drought in NHL history. Here are three leadership lessons from their struggles.
+`\
+https://nytimes.com/athletic/6448658/2025/06/25/the-sabres-have-a-historic-playoff-drought-here-are-3-leadership-lessons-from-their-struggles/
 
-**A Film About a Murdered Russian Activist Takes Its Own Risks**\
-`The widely condemned killing of Natalya Estemirova is the subject of a documentary that those involved say needed to take heed of the dangers of speaking out.`\
-https://nytimes.com/2025/06/25/movies/natasha-documentary-natalya-estemirova-murder.html
+**Khaman Maluach, Carter Bryant and other players Raptors should target at NBA Draft**\
+`A trade down could make sense for the Raptors, but it takes two to tango.`\
+https://nytimes.com/athletic/6448414/2025/06/25/raptors-khaman-maluach-nba-draft-2025/
 
-**With Bezos Wedding, Venice Braces for Love in the Time of Tech Billionaires**\
-`The celebration of Jeff Bezos and Lauren Sánchez has divided a city that centuries ago set the standard for opulence.`\
-https://nytimes.com/2025/06/25/world/europe/venice-jeff-bezos-lauren-sanchez-wedding.html
+**Can Kyle Williams break the Patriots' streak of WR draft busts?**\
+`The Patriots' recent track record with drafted wide receivers is terrible, but can Williams, a third-round pick, turn it around?`\
+https://nytimes.com/athletic/6433652/2025/06/25/kyle-williams-patriots-wr-draft-busts/
 
-**Amid the Rubble of the Palisades Fire, Taco Trucks Feed the Recovery**\
-`A huddle of trucks has become the most reliable place for cleanup crews and contractors to find lunch.`\
-https://nytimes.com/2025/06/25/dining/taco-trucks-palisades-fires-california.html
+**Yes, pitching is still the Mets' biggest problem**\
+`The Mets ended up losing to the Atlanta Braves 7-4 after their bullpen melted down in the sixth inning.`\
+https://nytimes.com/athletic/6450056/2025/06/25/mets-lose-braves-pitching-problem/
 
-**Democratic Leaders Tried to Crush Zohran Mamdani. They Should Have Been Taking Notes.**\
-`Democratic leaders have a curiosity problem, and it’s losing them elections.`\
-https://nytimes.com/2025/06/25/opinion/zohran-mamdani-democratic-party.html
+**Ranger Suárez can adapt to a bullpen role, but maybe he should remain in the rotation**\
+`"He's been huge," Rob Thomson said. "You can pretty much book six or seven innings every time. … He's just been incredible."`\
+https://nytimes.com/athletic/6449950/2025/06/25/phillies-astros-ranger-suarez-rotation/
 
