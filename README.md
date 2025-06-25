@@ -1,3 +1,7 @@
+**Lakers sale announced, with Jeanie Buss staying in charge "for the foreseeable future"**\
+`Last week, Mark Walter agreed to buy a controlling interest in the storied franchise from the Buss family.`\
+https://nytimes.com/athletic/6450811/2025/06/25/lakers-sale-jeanie-buss/
+
 **Trade grades: Canucks make desperate bet on Evander Kane as Oilers get out of a jam**\
 `The fact that Edmonton managed to clear the entirety of Kane's salary, and get a fourth-rounder in return, is truly remarkable.`\
 https://nytimes.com/athletic/6450879/2025/06/25/evander-kane-trade-grades-oilers-canucks-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract/
 **American Airlines Flight Returns to Las Vegas Airport After Engine Issue**\
 `Videos show smoke coming out of the right engine of an American Airlines passenger jet heading from Las Vegas to Charlotte, N.C. The plane turned around and landed safely after the crew reported an engine issue, the F.A.A. said.`\
 https://nytimes.com/video/us/100000010250202/american-airlines-engine-issue.html
-
-**Bettinelli: Playing with 'winners' was the reason for City move**\
-`The 33-year-old spent four years at Chelsea but has replaced Scott Carson in the role of third-choice goalkeeper at City.`\
-https://nytimes.com/athletic/6450891/2025/06/25/marcus-bettinelli-man-city-winners/
 
