@@ -1,9 +1,21 @@
+**Everton's search for a right-winger (or two): From Weah to Doak, potential targets home and abroad**\
+`David Moyes is desperate to boost his attacking output, and that flank is a key area to strengthen. The Athletic assesses the options...`\
+https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fellows-mcatee-bakayoko/
+
+**Wednesday Briefing**\
+`An Iran-Israel truce takes hold.`\
+https://nytimes.com/2025/06/25/briefing/iran-israel-nato.html
+
+**'Vieira said, 'You alright, Brooke? I've heard a lot of good things about you.' He's helped me a lot'**\
+`The former Arsenal full-back is loving life in Italy after leaving home - and playing his part for the Under-21s in Slovakia too`\
+https://nytimes.com/athletic/6445041/2025/06/25/brooke-norton-cuffy-arsenal-vieira-genoa-england/
+
 **Club World Cup daily rankings: A new No. 1 as Bayern loses grip on top spot**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/25/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 
 **Canada plods to El Salvador win, tops Gold Cup group and eyes USMNT semifinal**\
-`Through one of the longer and more plodding games in recent memory for Canada, Jesse Marsch&#8217;s side didn&#8217;t buy into El Salvador&#8217;s antics and pressed through to the Gold Cup quarterfinal stage.`\
+`Goals from Jonathan David and Tajon Buchanan came after a lot of fouls from El Salvador and lengthy stoppage time to give Canada a 2-0 win.`\
 https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
 
 **Manchester United want to sell before they buy this summer. Will it work?**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/nyregion/nyc-comptroller-primary-mark-levine.html
 **Marcus Thuram on Inter and the Champions League final: 'It was not the last chance'**\
 `The striker says Giannis Antetokounmpo's words about NBA legend Michael Jordan have helped him to put the UCL final loss into perspective`\
 https://nytimes.com/athletic/6448215/2025/06/25/marcus-thuram-inter-milan-giannis-antetokounmpo/
-
-**Nico Williams, Lamine Yamal and the faction of friends at Barcelona**\
-`The 22-year-old is edging towards a long-heralded move to Barcelona. Many good friends are waiting for him there`\
-https://nytimes.com/athletic/6440131/2025/06/25/nico-williams-lamine-yamal-barcelona-spain/
-
-**Explaining Rodri's serious knee injury and why Manchester City aren't rushing his return**\
-`Pep Guardiola said Rodri suffered damage to "ACL and some meniscus" and that even though he has returned "it is a long, long injury"`\
-https://nytimes.com/athletic/6438741/2025/06/25/rodri-acl-meniscus-injury/
-
-**Women's Euros 2025: Guide to Group B - the world champions and a Nations League reunion**\
-`Everything you need to know about Group B at Euro 2025, which features world champions Spain, plus Italy, Belgium and Portugal`\
-https://nytimes.com/athletic/6415629/2025/06/25/womens-euros-2025-group-b-guide/
 
