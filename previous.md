@@ -1,4 +1,16 @@
-**These Best Protein Bars Are the Ones You Make at Home**\
+**León Krier, Architect Whose Classical Work Won a Royal Ally, Dies at 79**\
+`Although his many of his designs remain unbuilt — with a few exceptions, including King Charles’s Poundbury — he was a driving force in the New Urbanism movement.`\
+https://nytimes.com/2025/06/25/arts/design/leon-krier-dead.html
+
+**The Judgment of History Won’t Save Gaza**\
+`The airstrikes on Iran seem to have closed a chapter.`\
+https://nytimes.com/2025/06/25/opinion/gaza-crimes.html
+
+**Liverpool appoint former Wales manager Page as under-21s head coach**\
+`The 50-year-old takes over from Barry Lewtas, who left the club earlier this month after 12 years of service.`\
+https://nytimes.com/athletic/6451256/2025/06/25/rob-page-liverpool-under-21s/
+
+**The Best Protein Bars Are the Ones You Make at Home**\
 `This simple recipe from Genevieve Ko gets the bulk of its protein from nuts, not powders, for an especially delicious on-the-go snack.`\
 https://nytimes.com/2025/06/25/dining/how-to-make-protein-bars.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/science/space/fred-espenak-dead.html
 **Why the Canucks rolled the dice on Evander Kane, and what comes next**\
 `Kane joins his hometown team with a fair bit of baggage accumulated over a lengthy NHL career.`\
 https://nytimes.com/athletic/6450767/2025/06/25/canucks-evander-kane-trade-nhl/
-
-**Southgate 'not missing' managing England, cites pressure of the job**\
-`Southgate received a knighthood on Wednesday for his services to football, which encompassed an eight-year spell in charge of England.`\
-https://nytimes.com/athletic/6451139/2025/06/25/gareth-southgate-not-missing-managing-england-citing-pressure-of-the-job/
-
-**Housing Department to Move Headquarters, Booting National Science Foundation**\
-`The plan to depart Washington and take over the science agency building in Virginia raised questions about where N.S.F. employees would go.`\
-https://nytimes.com/2025/06/25/us/politics/housing-department-headquarters-move.html
-
-**England Under-21s reach Euros final after 2-1 win over the Netherlands**\
-`Two goals from Liverpool midfielder Harvey Elliott ensured that Lee Carsley’s side will play in back-to-back finals.`\
-https://nytimes.com/athletic/6451198/2025/06/25/england-under-21-euros-netherlands/
 
