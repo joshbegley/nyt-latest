@@ -1,3 +1,7 @@
+**Oilers trading Evander Kane was expected. It's their next move that truly matters**\
+`Moving out Kane and his entire $5.125 million cap hit is only the first domino to fall in the offseason makeover for Edmonton.`\
+https://nytimes.com/athletic/6451435/2025/06/25/oilers-evander-kane-trade-canucks-nhl/
+
 **Mamdani’s Wife, Absent for Much of Campaign, Is Thrust Into Spotlight**\
 `Rama Duwaji, a 27-year-old animator and illustrator, married the presumptive Democratic nominee for New York City mayor this winter.`\
 https://nytimes.com/2025/06/25/nyregion/rama-duwaji-zohran-mamdani-wife.html
