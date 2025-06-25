@@ -1,3 +1,11 @@
+**Former Arsenal assistant Bould set to join QPR in defensive coaching role**\
+`Bould's position at the Championship club will focus on developing young defenders.`\
+https://nytimes.com/athletic/6450240/2025/06/25/steve-bould-qpr-coach/
+
+**Atletico Madrid in talks to sign USMNT's Cardoso from Betis**\
+`Atletico have held an interest in signing the midfielder with club-to-club negotiations in Madrid taking place this week.`\
+https://nytimes.com/athletic/6399268/2025/06/25/atletico-madrid-transfer-news-cardoso-betis/
+
 **F1 Academy’s Netflix debut opens doors, but struggles to tell the series' full story**\
 `F1 Academy has launched a Netflix series similar to 'Drive to Survive' - but does it achieve what it sets out to do? `\
 https://nytimes.com/athletic/6449049/2025/06/25/f1-academy-netflix-series-review/
