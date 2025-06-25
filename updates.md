@@ -1,3 +1,5 @@
+
+
 **Padres closer Robert Suarez has suspension reduced to 2 games: Sources**\
 `Suarez was immediately ejected after hitting Shohei Ohtani in the right shoulder blade with a 99.8 mph fastball. `\
 https://nytimes.com/athletic/6449891/2025/06/24/padres-robert-suarez-suspension-appeal/
