@@ -1,3 +1,11 @@
+**Suited and selected: One awesome NBA Draft outfit from each modern era**\
+`From Olajuwon's Michael Jackson look to the bespoke threads of today's rookies, NBA Draft night is a bellwether of evolving league fashion.`\
+https://nytimes.com/athletic/6448092/2025/06/25/nba-draft-fashion-how-to-watch-2025/
+
+**The New York Times International Edition in Print for Thursday, June 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/25/todays-new-york-times-international-edition
+
 **Cargo Ship That Caught Fire Carrying Electric Vehicles Sinks in the Pacific**\
 `Three weeks after a fire broke out on the ship off the coast of Alaska, the Morning Midas sank, along with thousands of cars on board.`\
 https://nytimes.com/2025/06/25/us/alaska-cargo-ship-vehicles-sinks-pacific.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/dining/taco-trucks-palisades-fires-california.htm
 **Democratic Leaders Tried to Crush Zohran Mamdani. They Should Have Been Taking Notes.**\
 `Democratic leaders have a curiosity problem, and it’s losing them elections.`\
 https://nytimes.com/2025/06/25/opinion/zohran-mamdani-democratic-party.html
-
-**Is Iran Really a Threat to the United States? A Debate.**\
-`A hawk and a skeptic on their shared hope for Iran.`\
-https://nytimes.com/2025/06/25/opinion/iran-united-states-threat.html
-
-**Now That They’re Champions, Will the Oklahoma City Thunder Kiss Trump’s Ring?**\
-`Teams invited to the White House are faced with a question: Will they continue to dissent or get in line?`\
-https://nytimes.com/2025/06/25/opinion/oklahoma-city-thunder-trump.html
 
