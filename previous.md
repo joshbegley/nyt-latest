@@ -1,3 +1,7 @@
+**Vietnam Abolishes Death Penalty for Embezzlement and Other Crimes**\
+`The move, one official said, would help the country extradite suspects from abroad. It would also spare the life of a recently convicted tycoon.`\
+https://nytimes.com/2025/06/25/world/asia/vietnam-death-penalty-law.html
+
 **The Israeli military says the war set back Iran’s nuclear program by ‘years.’**\
 `The assertion comes as questions swirl about the status of Iran’s nuclear program after U.S. and Israeli strikes.`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/the-israeli-military-says-the-war-set-back-irans-nuclear-program-by-years
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6448368/2025/06/25/blackhawks-nhl-draft-free-agency
 **Looking back at the Maple Leafs' disastrous 2020 draft, 5 years later**\
 `The Leafs made 12 picks in the 2020 draft. Five years later, not a single one has played NHL games.`\
 https://nytimes.com/athletic/6447865/2025/06/25/maple-leafs-2020-draft-niemela-villeneuve-dubas/
-
-**What I'm watching around the Red Wings as NHL offseason heats up**\
-`Which names should Detroit fans keep an eye on as NHL teams begin to reshape their rosters this summer?`\
-https://nytimes.com/athletic/6448546/2025/06/25/red-wings-offseason-patrick-kane-steve-yzerman/
 

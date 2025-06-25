@@ -1,3 +1,7 @@
+**Vietnam Abolishes Death Penalty for Embezzlement and Other Crimes**\
+`The move, one official said, would help the country extradite suspects from abroad. It would also spare the life of a recently convicted tycoon.`\
+https://nytimes.com/2025/06/25/world/asia/vietnam-death-penalty-law.html
+
 **The Israeli military says the war set back Iran’s nuclear program by ‘years.’**\
 `The assertion comes as questions swirl about the status of Iran’s nuclear program after U.S. and Israeli strikes.`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/the-israeli-military-says-the-war-set-back-irans-nuclear-program-by-years
