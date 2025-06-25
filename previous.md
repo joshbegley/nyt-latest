@@ -1,3 +1,7 @@
+**Tensions Grow Between Iran and the U.N. Nuclear Watchdog**\
+`The Iranian government has raised the prospect that inspectors from the International Atomic Energy Agency may be ejected from the country.`\
+https://nytimes.com/2025/06/25/world/middleeast/iran-iaea-inspectors.html
+
 **A Play About a Breakdown Was a 2000 Hit. What Do Audiences Say Today?**\
 `Sarah Kane’s “4:48 Psychosis” premiered to rave reviews shortly after the playwright killed herself. A quarter-century later, the original cast is reviving the production.`\
 https://nytimes.com/2025/06/25/theater/sarah-kane-448-psychosis-revival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/us/politics/trump-ukraine-patriot-missiles-zelens
 **Everton remain in talks with Villarreal over Thierno Barry, hopeful of reaching a deal**\
 `The two clubs remain in talks over a potential move.`\
 https://nytimes.com/athletic/6410529/2025/06/25/everton-transfers-thierno-barry-villarreal/
-
-**Streams Were Dying in West Virginia. Here’s How They’re Coming Back.**\
-`Abandoned coal mines had left waterways acidic and rusty orange. Local residents are cleaning them up, and recovering rare earths in the process.`\
-https://nytimes.com/interactive/2025/06/25/climate/west-virginia-pollution-cleanup-coal-mine.html
 

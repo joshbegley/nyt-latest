@@ -1,3 +1,15 @@
+**Three ways the Giants' slumping offense can get better**\
+`The Giants have already done the hard part in adding Rafael Devers. Now they need the rest of their lineup to pick up the pace.`\
+https://nytimes.com/athletic/6444279/2025/06/25/sf-giants-offensive-woes-solutions/
+
+**2025 MLS salaries revealed: Messi top earner, highest-paid players, best deals**\
+`What stands out – for better or worse – from MLS's salary reveal, and the trends we can spot in 2025`\
+https://nytimes.com/athletic/6450778/2025/06/25/mls-salary-list-2025-mlspa-messi/
+
+**After adding a center, might the Flyers pursue one of these 10 goalies?**\
+`Here are some possible options for the Flyers via trade or free agency this offseason.`\
+https://nytimes.com/athletic/6450899/2025/06/25/flyers-goalie-trade-free-agent/
+
 **Tensions Grow Between Iran and the U.N. Nuclear Watchdog**\
 `The Iranian government has raised the prospect that inspectors from the International Atomic Energy Agency may be ejected from the country.`\
 https://nytimes.com/2025/06/25/world/middleeast/iran-iaea-inspectors.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6450891/2025/06/25/marcus-bettinelli-man-city-winne
 **2025 Gold Cup odds: Mexico edges USMNT as favorite ahead of quarterfinals**\
 `As the Gold Cup enters the knockout stage, Mexico is a tick ahead of the USMNT as the favorite to win the tournament.`\
 https://nytimes.com/athletic/6450771/2025/06/25/gold-cup-odds-mexico-usmnt-canada/
-
-**Video Shows Engine Fire as Plane Returns to Las Vegas Airport Just After Takeoff**\
-`The crew of an American Airlines flight from Las Vegas to Charlotte, N.C., reported an engine issue.`\
-https://nytimes.com/2025/06/25/us/american-airlines-flight-engine-issue.html
-
-**Trump Says He May Send Additional Patriot Systems to Ukraine**\
-`The president met with President Volodymyr Zelensky of Ukraine but neither the White House nor Mr. Zelensky offered any details about their encounter.`\
-https://nytimes.com/2025/06/25/us/politics/trump-ukraine-patriot-missiles-zelensky.html
-
-**Everton remain in talks with Villarreal over Thierno Barry, hopeful of reaching a deal**\
-`The two clubs remain in talks over a potential move.`\
-https://nytimes.com/athletic/6410529/2025/06/25/everton-transfers-thierno-barry-villarreal/
 
