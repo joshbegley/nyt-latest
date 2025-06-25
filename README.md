@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6450100/2025/06/25/chase-burns-reds-nl-central-the-
 `Cooper Flagg and Dylan Harper are expected to be the top picks of the NBA Draft. From there? Nobody really knows what will happen`\
 https://nytimes.com/athletic/6450550/2025/06/25/cooper-flagg-nba-draft-predictions-trade-the-bounce/
 
-**A Loved One was Diagnosed With Dementia. Now What?**\
+**A Loved One Was Diagnosed With Dementia. Now What?**\
 `Families and experts share their best advice for navigating and coping.`\
 https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
 
