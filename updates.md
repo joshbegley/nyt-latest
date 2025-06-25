@@ -1,3 +1,7 @@
+**Birmingham in advanced negotiations over Gray return**\
+`The clubs remain in discussions over the structure of a potential deal, with Gray interested in a return to his hometown team.`\
+https://nytimes.com/athletic/6450752/2025/06/25/demarai-gray-birmingham-transfer/
+
 **Forget Therapy. Do Men Need Book Clubs?**\
 `Men are leaving fiction reading behind. Some people want to change that.`\
 https://nytimes.com/2025/06/25/style/fiction-books-men-reading.html

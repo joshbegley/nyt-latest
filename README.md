@@ -1,3 +1,11 @@
+**Violence Erupts in Kenya a Year After Deadly Protests**\
+`Kenyan police fired live rounds, tear gas and rubber bullets at protesters who were in the streets a year after massive anti-government demonstrations against a contentious tax plan turned deadly.`\
+https://nytimes.com/video/world/africa/100000010249502/violence-erupts-in-kenya-a-year-after-deadly-protests.html
+
+**Sainz Sr. opts against running for FIA presidency**\
+`Incumbent president Mohammed Ben Sulayem, who has held the role since 2021, is currently running unopposed ahead of December’s election.`\
+https://nytimes.com/athletic/6450800/2025/06/25/carlos-sainz-sr-fia-presidency/
+
 **Birmingham in advanced negotiations over Gray return**\
 `The clubs remain in discussions over the structure of a potential deal, with Gray interested in a return to his hometown team.`\
 https://nytimes.com/athletic/6450752/2025/06/25/demarai-gray-birmingham-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/dining/healthy-cold-noodle-salad-with-spicy-peanu
 **The Windup: NL Central deserves some shine**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6450100/2025/06/25/chase-burns-reds-nl-central-the-windup/
-
-**The Bounce: Cooper Flagg will be NBA Draft's No. 1 pick, but are you ready for other chaos?**\
-`Cooper Flagg and Dylan Harper are expected to be the top picks of the NBA Draft. From there? Nobody really knows what will happen`\
-https://nytimes.com/athletic/6450550/2025/06/25/cooper-flagg-nba-draft-predictions-trade-the-bounce/
-
-**A Loved One Was Diagnosed With Dementia. Now What?**\
-`Families and experts share their best advice for navigating and coping.`\
-https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
 
