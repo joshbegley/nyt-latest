@@ -1,3 +1,11 @@
+**Alvin Bragg, the Democratic Incumbent, wins primary for district attorney.**\
+`By Hurubie Meko`\
+https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html
+
+**‘Duke & Roya’ Review: He’s Got Swagger, She’s No-Nonsense**\
+`Jay Ellis stars as an American rapper who falls for his Afghan interpreter at an Army base in Charles Randolph-Wright’s new play.`\
+https://nytimes.com/2025/06/24/theater/duke-roya-review-jay-ellis.html
+
 **‘Ironheart’ Review: Marvel Follows Suit**\
 `Our biggest cinematic universe ends its current phase with a Disney+ series about a young engineering genius with Ironman dreams.`\
 https://nytimes.com/2025/06/24/arts/television/ironheart-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/climate/vermont-green-soccer-climate.html
 **In Alabama, a Social Media Influencer Really Gets Wild**\
 `Kyle Lybarger built a loyal following online by talking about native plants and why biodiversity matters.`\
 https://nytimes.com/2025/06/24/climate/alabama-influencer-native-plants.html
-
-**How Sin City Is Powered by the Sun**\
-`Nevada leads the country in solar generation per capita. It’s not just homeowners betting on it, but casinos, too.`\
-https://nytimes.com/card/2025/06/25/climate/las-vegas-renewable-energy-solar
-
-**In Florida, ‘Powerful Little Plants’ That Protect From Big Storms **\
-`On Sanibel Island, volunteer “mangrove mamas” and “propagule papas” grow red mangrove seedlings to restore critical habitats and strengthen shorelines from future storms.`\
-https://nytimes.com/card/2025/06/25/climate/florida-hurricane-protection-trees-plants
 

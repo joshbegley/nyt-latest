@@ -1,5 +1,9 @@
-**Alvin Bragg, the Democratic Incumbent, wins primary for district attorney.**\
-`By Hurubie Meko`\
+**The Most Detailed Map of the N.Y.C. Mayoral Primary**\
+`See neighborhood-level election results from the first round of the mayoral race.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/nyc-mayor-primary-results-precinct-map.html
+
+**Alvin Bragg, the Democratic Incumbent, Wins D.A. Primary in Manhattan**\
+`Mr. Bragg, who defeated Patrick Timmins, will face a Republican and an independent in the general election.`\
 https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html
 
 **‘Duke & Roya’ Review: He’s Got Swagger, She’s No-Nonsense**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-may
 **In Vermont, a Soccer Team That Plays for the Planet**\
 `The Vermont Green Football Club champions environmental work and draws sold-out crowds, with the help of free ice cream.`\
 https://nytimes.com/2025/06/24/climate/vermont-green-soccer-climate.html
-
-**In Alabama, a Social Media Influencer Really Gets Wild**\
-`Kyle Lybarger built a loyal following online by talking about native plants and why biodiversity matters.`\
-https://nytimes.com/2025/06/24/climate/alabama-influencer-native-plants.html
 

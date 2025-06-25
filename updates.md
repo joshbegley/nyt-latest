@@ -1,3 +1,11 @@
+**Alvin Bragg, the Democratic Incumbent, wins primary for district attorney.**\
+`By Hurubie Meko`\
+https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html
+
+**‘Duke & Roya’ Review: He’s Got Swagger, She’s No-Nonsense**\
+`Jay Ellis stars as an American rapper who falls for his Afghan interpreter at an Army base in Charles Randolph-Wright’s new play.`\
+https://nytimes.com/2025/06/24/theater/duke-roya-review-jay-ellis.html
+
 **‘Ironheart’ Review: Marvel Follows Suit**\
 `Our biggest cinematic universe ends its current phase with a Disney+ series about a young engineering genius with Ironman dreams.`\
 https://nytimes.com/2025/06/24/arts/television/ironheart-review.html
