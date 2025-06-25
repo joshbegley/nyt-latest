@@ -1,3 +1,7 @@
+**Dylan Lee emerges as closer candidate for Braves, who are winning and need one**\
+`Lee has surpassed all reasonable expectations, posting a 1.98 ERA in 88 appearances since the beginning of last season.`\
+https://nytimes.com/athletic/6449973/2025/06/25/atlanta-braves-new-york-mets-dylan-lee-closer/
+
 **Arsenal exploring deal for Brentford's Christian Norgaard after €11m bid**\
 `The north London club are exploring a deal for the the 31-year-old, while they await Brentford's response to their offer.`\
 https://nytimes.com/athletic/6450226/2025/06/25/christian-norgaard-arsenal-brentford-transfer/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6433652/2025/06/25/kyle-williams-patriots-wr-draft-
 **Yes, pitching is still the Mets' biggest problem**\
 `The Mets ended up losing to the Atlanta Braves 7-4 after their bullpen melted down in the sixth inning.`\
 https://nytimes.com/athletic/6450056/2025/06/25/mets-lose-braves-pitching-problem/
-
-**Ranger Suárez can adapt to a bullpen role, but maybe he should remain in the rotation**\
-`"He's been huge," Rob Thomson said. "You can pretty much book six or seven innings every time. … He's just been incredible."`\
-https://nytimes.com/athletic/6449950/2025/06/25/phillies-astros-ranger-suarez-rotation/
 
