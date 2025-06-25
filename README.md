@@ -1,3 +1,7 @@
+**NBA trade grades: How can Porziņģis help Hawks' offense? Do Nets have new plan?**\
+`The Celtics made another big trade to shed salary. Do they have other big moves in mind?`\
+https://nytimes.com/athletic/6449460/2025/06/24/kristaps-porzingis-celtics-hawks-nets-trade-nba/
+
 **Jumaane Williams Wins Democratic Primary for Public Advocate**\
 `Mr. Williams, a progressive who has served as public advocate since 2019, has been a forceful critic of Mayor Eric Adams. He faced two more moderate challengers.`\
 https://nytimes.com/2025/06/24/nyregion/nyc-public-advocate-jumaane-williams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6449561/2025/06/24/cincinnati-reds-chase-burns-debu
 **Mission Not Accomplished**\
 `Israel may have astonished much of the world with its tactical skill in its recent war against Iran, but for now, it has lost, in terms of its true goals.`\
 https://nytimes.com/2025/06/24/opinion/strikes-iran-intelligence-report-nuclear-trump.html
-
-**Online and IRL, Trump Offers a Window Into His Psyche**\
-`Other countries used to need spies to discern the thinking of American presidents. Now they just need a Truth Social account.`\
-https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complications.html
 
