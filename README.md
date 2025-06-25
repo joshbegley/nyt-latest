@@ -1,8 +1,16 @@
+**Valery Panov, Ballet Star Who Fought to Leave the U.S.S.R., Dies at 87**\
+`Trying to move to Israel with his ballerina wife, he was harassed and jailed while becoming an international cause célèbre and a Cold War symbol of the plight of Soviet Jews.`\
+https://nytimes.com/2025/06/25/arts/dance/valery-panov-dead.html
+
+**Fred Espenak, Astrophysicist Known as Mr. Eclipse, Dies at 73**\
+`He chased eclipses for five decades, wrote several books about them and worked with NASA to make data accessible to nonscientist sky gazers.`\
+https://nytimes.com/2025/06/25/science/space/fred-espenak-dead.html
+
 **Why the Canucks rolled the dice on Evander Kane, and what comes next**\
 `Kane joins his hometown team with a fair bit of baggage accumulated over a lengthy NHL career.`\
 https://nytimes.com/athletic/6450767/2025/06/25/canucks-evander-kane-trade-nhl/
 
-**Southgate 'not missing' managing England, citing pressure of the job**\
+**Southgate 'not missing' managing England, cites pressure of the job**\
 `Southgate received a knighthood on Wednesday for his services to football, which encompassed an eight-year spell in charge of England.`\
 https://nytimes.com/athletic/6451139/2025/06/25/gareth-southgate-not-missing-managing-england-citing-pressure-of-the-job/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/us/same-sex-marriage-massachusetts-obergefell.htm
 **Trump says the U.S. will meet with Iran but downplays the need for a nuclear agreement.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-says-the-us-will-meet-with-iran-but-downplays-the-need-for-a-nuclear-agreement
-
-**British Man Is Charged Over Attempted Mock Wedding With 9-Year-Old at Disneyland Paris**\
-`The French authorities said a 39-year-old had attempted to conduct the ceremony with a minor on Saturday. The British police say he is a convicted sex offender.`\
-https://nytimes.com/2025/06/25/world/europe/disneyland-paris-mock-wedding-britain.html
-
-**Scientists Retrace 30,000-Year-Old Sea Voyage, in a Hollowed-Out Log**\
-`Japanese researchers turned to “experimental archaeology” to study how ancient humans navigated powerful ocean currents and migrated offshore.`\
-https://nytimes.com/2025/06/25/science/anthropology-ocean-migration-japan.html
 
