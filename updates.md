@@ -1,3 +1,7 @@
+**F1 Academy’s Netflix debut opens doors, but struggles to tell the series' full story**\
+`F1 Academy has launched a Netflix series similar to 'Drive to Survive' - but does it achieve what it sets out to do? `\
+https://nytimes.com/athletic/6449049/2025/06/25/f1-academy-netflix-series-review/
+
 **Barcelona to make Camp Nou return in partial reopening for pre-season match**\
 `The Camp Nou will host Barca's annual Joan Gamper trophy on August 10 with a reduced capacity due to the unfinished works.`\
 https://nytimes.com/athletic/6450257/2025/06/25/barcelona-camp-nou-return-date-confirmed/

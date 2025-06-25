@@ -1,3 +1,7 @@
+**F1 Academy’s Netflix debut opens doors, but struggles to tell the series' full story**\
+`F1 Academy has launched a Netflix series similar to 'Drive to Survive' - but does it achieve what it sets out to do? `\
+https://nytimes.com/athletic/6449049/2025/06/25/f1-academy-netflix-series-review/
+
 **Barcelona to make Camp Nou return in partial reopening for pre-season match**\
 `The Camp Nou will host Barca's annual Joan Gamper trophy on August 10 with a reduced capacity due to the unfinished works.`\
 https://nytimes.com/athletic/6450257/2025/06/25/barcelona-camp-nou-return-date-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6448766/2025/06/25/mitch-marner-nhl-free-agency-ufa
 **In his Pittsburgh twilight, Andrew McCutchen is still here and still hitting**\
 `“At this stage and this point in my career, you don’t want to be a guy who bounces around,” McCutchen said of his situation with the Pirates`\
 https://nytimes.com/athletic/6448654/2025/06/25/andrew-mccutchen-pittsburgh-pirates-late-career/
-
-**Could a new 3X3 women's basketball tourney create a pipeline for the Olympics?**\
-`3XBA starts this weekend. Recently cut WNBA draftees see it as a way to stay on the league's radar. `\
-https://nytimes.com/athletic/6449162/2025/06/25/3x3-womens-basketball-tournament-olympics-wnba/
 

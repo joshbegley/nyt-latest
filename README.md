@@ -1,3 +1,11 @@
+**Former Arsenal assistant Bould set to join QPR in defensive coaching role**\
+`Bould's position at the Championship club will focus on developing young defenders.`\
+https://nytimes.com/athletic/6450240/2025/06/25/steve-bould-qpr-coach/
+
+**Atletico Madrid in talks to sign USMNT's Cardoso from Betis**\
+`Atletico have held an interest in signing the midfielder with club-to-club negotiations in Madrid taking place this week.`\
+https://nytimes.com/athletic/6399268/2025/06/25/atletico-madrid-transfer-news-cardoso-betis/
+
 **F1 Academy’s Netflix debut opens doors, but struggles to tell the series' full story**\
 `F1 Academy has launched a Netflix series similar to 'Drive to Survive' - but does it achieve what it sets out to do? `\
 https://nytimes.com/athletic/6449049/2025/06/25/f1-academy-netflix-series-review/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450259/2025/06/25/dave-dombrowski-phillies-mlb-tra
 **Ranger Suárez can adapt to bullpen role, but maybe he should remain in Phillies rotation**\
 `"He's been huge," Rob Thomson said. "You can pretty much book six or seven innings every time. … He's just been incredible."`\
 https://nytimes.com/athletic/6449950/2025/06/25/phillies-astros-ranger-suarez-rotation/
-
-**Mitch Marner UFA power rankings: Who needs him, what's funniest and where does he land?**\
-`Breaking out the trusty Power Rankings gimmick to see what kind of different lenses we can look at the Marner situation through.`\
-https://nytimes.com/athletic/6448766/2025/06/25/mitch-marner-nhl-free-agency-ufa-power-rankings/
-
-**In his Pittsburgh twilight, Andrew McCutchen is still here and still hitting**\
-`“At this stage and this point in my career, you don’t want to be a guy who bounces around,” McCutchen said of his situation with the Pirates`\
-https://nytimes.com/athletic/6448654/2025/06/25/andrew-mccutchen-pittsburgh-pirates-late-career/
 
