@@ -1,3 +1,11 @@
+**Yankees' Jazz Chisholm Jr. ejected between innings for arguing strike call**\
+`Chisholm ultimately had to be held back by manager Aaron Boone. `\
+https://nytimes.com/athletic/6449743/2025/06/24/yankees-jazz-chisholm-jr-ejected/
+
+**Like a Clock with Hands**\
+`Ben Zimmer and Zach Sherwin make their New York Times Crossword collaboration debut.`\
+https://nytimes.com/2025/06/24/crosswords/daily-puzzle-2025-06-25.html
+
 **Trade grades: How can Porziņģis help Hawks' offense? Do Nets have new plan?**\
 `The Celtics made another big trade to shed salary. Do they have other big moves in mind?`\
 https://nytimes.com/athletic/6449460/2025/06/24/kristaps-porzingis-celtics-hawks-nets-trade-nba/
@@ -11,7 +19,7 @@ https://nytimes.com/2025/06/24/nyregion/nyc-public-advocate-jumaane-williams.htm
 https://nytimes.com/2025/06/24/nyregion/shahana-hanif-city-council.html
 
 **Kyrie Irving to decline player option, sign 3-year extension with Mavs: Source**\
-`Irving, 33, is recovering from a torn ACL suffered in early March.`\
+`Irving holds a player option in the final year of the contract in 2027-28 and will be aligned contractually with Anthony Davis`\
 https://nytimes.com/athletic/6449682/2025/06/24/kyrie-irving-mavericks-contract-signed-option-declined-nba/
 
 **The Most Detailed Map of the N.Y.C. Mayoral Primary**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/theater/duke-roya-review-jay-ellis.html
 **‘Ironheart’ Review: Marvel Follows Suit**\
 `Our biggest cinematic universe ends its current phase with a Disney+ series about a young engineering genius with Ironman dreams.`\
 https://nytimes.com/2025/06/24/arts/television/ironheart-review.html
-
-**Reds' Chase Burns makes pitching history in debut against Yankees**\
-`A Yankee fan growing up, Burns said Monday that he had been looking forward to facing Judge since he was drafted. His wish came true.`\
-https://nytimes.com/athletic/6449561/2025/06/24/cincinnati-reds-chase-burns-debut/
-
-**Mission Not Accomplished**\
-`Israel may have astonished much of the world with its tactical skill in its recent war against Iran, but for now, it has lost, in terms of its true goals.`\
-https://nytimes.com/2025/06/24/opinion/strikes-iran-intelligence-report-nuclear-trump.html
 

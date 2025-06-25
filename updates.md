@@ -1,3 +1,15 @@
+**Yankees' Jazz Chisholm Jr. ejected between innings for arguing strike call**\
+`Chisholm ultimately had to be held back by manager Aaron Boone. `\
+https://nytimes.com/athletic/6449743/2025/06/24/yankees-jazz-chisholm-jr-ejected/
+
+**Like a Clock with Hands**\
+`Ben Zimmer and Zach Sherwin make their New York Times Crossword collaboration debut.`\
+https://nytimes.com/2025/06/24/crosswords/daily-puzzle-2025-06-25.html
+
+**Kyrie Irving to decline player option, sign 3-year extension with Mavs: Source**\
+`Irving holds a player option in the final year of the contract in 2027-28 and will be aligned contractually with Anthony Davis`\
+https://nytimes.com/athletic/6449682/2025/06/24/kyrie-irving-mavericks-contract-signed-option-declined-nba/
+
 **Trade grades: How can Porziņģis help Hawks' offense? Do Nets have new plan?**\
 `The Celtics made another big trade to shed salary. Do they have other big moves in mind?`\
 https://nytimes.com/athletic/6449460/2025/06/24/kristaps-porzingis-celtics-hawks-nets-trade-nba/
