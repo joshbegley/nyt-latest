@@ -1,3 +1,7 @@
+**Fandamentals**\
+`TKTKTK `\
+https://nytimes.com/paidpost/athletic/bankofamerica/fandamentals.html
+
 **The Political Power of Mamdani’s Positive Message and Coalition Building**\
 `Mamdani won in parts of the city people wouldn’t normally expect. Democrats should pay attention to his positive message and laser focus on costs.`\
 https://nytimes.com/2025/06/25/opinion/zohran-mamdani-andrew-cuomo-primary-victory.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6449405/2025/06/25/fantasy-baseball-prospect-watch-
 **Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
 `Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
 https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
-
-**Mushy Wording Lets NATO Commit to Trump’s Military Spending Demand**\
-`President Trump has pressed members of the alliance to spend 5 percent of their gross domestic products on defense. Leaders agreed that “allies” — but not “all allies” — would meet that figure.`\
-https://nytimes.com/2025/06/25/us/politics/nato-gdp-defense-spending-trump.html
 
