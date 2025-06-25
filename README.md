@@ -1,3 +1,7 @@
+**Mamdani Declares Victory in N.Y.C. Mayoral Primary**\
+`Zohran Mamdani, a state lawmaker from Queens, celebrated with his supporters at a party in Long Island City. The result was not final but he declared victory in the primary after former Gov. Andrew M. Cuomo conceded the race.`\
+https://nytimes.com/video/nyregion/100000010249348/zohran-mamdani-cuomo-nyc-mayor.html
+
 **Late Night Is Taken Aback by Trump’s Potty Mouth**\
 `Seth Meyers said that even with “zero standards of expectations for Trump,” he was shocked to see the president use profanity on the White House lawn.`\
 https://nytimes.com/2025/06/25/arts/television/late-night-trumps-profanity.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447533/2025/06/25/spurs-scott-munn-vinai-venkatesh
 **China Tightens Controls on Fentanyl but Calls It a U.S. Problem**\
 `Two chemicals used to make the powerful opioid will be more strictly regulated, but an official said it was “the United States’ responsibility to solve the issue.”`\
 https://nytimes.com/2025/06/25/world/asia/china-fentanyl-us-trade.html
-
-**5 Takeaways From the New York City Mayoral Primary**\
-`Here are some of the factors that drove Zohran Mamdani to the cusp of a seismic upset, and how they will affect the general election in November.`\
-https://nytimes.com/2025/06/25/nyregion/nyc-mayor-primary-mamdani-takeaways.html
 
