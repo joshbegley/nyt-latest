@@ -1,3 +1,11 @@
+**Reds' Chase Burns makes pitching history in debut against Yankees**\
+`A Yankee fan growing up, Burns said Monday that he had been looking forward to facing Judge since he was drafted. His wish came true.`\
+https://nytimes.com/athletic/6449561/2025/06/24/cincinnati-reds-chase-burns-debut/
+
+**Mission Not Accomplished**\
+`Israel may have astonished much of the world with its tactical skill in its recent war against Iran, but for now, it has lost, in terms of its true goals.`\
+https://nytimes.com/2025/06/24/opinion/strikes-iran-intelligence-report-nuclear-trump.html
+
 **Online and IRL, Trump Offers a Window Into His Psyche**\
 `Other countries used to need spies to discern the thinking of American presidents. Now they just need a Truth Social account.`\
 https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complications.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/06/25/climate/florida-hurricane-protection-trees-p
 **The Best Data Removal Services**\
 `If you’ve ever Googled yourself — who hasn’t? — you’ve probably found your personal information for sale on websites belonging to data brokers.`\
 https://nytimes.com/wirecutter/reviews/best-data-removal-services/
-
-**I Tried, and Failed, to Disappear From the Internet**\
-`About a decade ago, I stopped hearing from an old friend of mine. They had a habit of disappearing. I’d become used to their dropping off the map, sometimes for years. They’d always pop up again with a new email address or username after a while. But not this time. I had long known that...`\
-https://nytimes.com/wirecutter/reviews/how-to-disappear-from-the-internet/
-
-**A Loved One Dies. No One Knows Their Passwords. Here’s What to Do.**\
-`Before I lost my father, I’d always heard that nothing can prepare you for the grief of losing a loved one. But in the aftermath of his death, I was especially blindsided by what came next: the bills that stopped for no one, the accounts that needed to be closed, and the frustrations of taking...`\
-https://nytimes.com/wirecutter/reviews/advice-password-recovery-after-death/
 
