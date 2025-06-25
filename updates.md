@@ -1,3 +1,7 @@
+**Canada plods to El Salvador win, tops Gold Cup group and eyes USMNT semifinal**\
+`Goals from Jonathan David and Tajon Buchanan came after a lot of fouls from El Salvador and lengthy stoppage time to give Canada a 2-0 win.`\
+https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
+
 **Canada handles 9-man El Salvador, tops Gold Cup group and eyes USMNT semifinal**\
 `Canada eventually broke through after two Salvadoran red cards to rebound from a shocking draw vs. Curaçao`\
 https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
