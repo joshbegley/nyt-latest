@@ -1,3 +1,11 @@
+**Housing Department to Move Headquarters, Booting National Science Foundation**\
+`The plan to depart Washington and take over the science agency building in Virginia raised questions about where N.S.F. employees would go.`\
+https://nytimes.com/2025/06/25/us/politics/housing-department-headquarters-move.html
+
+**England Under-21s reach Euros final after 2-1 win over the Netherlands**\
+`Two goals from Liverpool midfielder Harvey Elliott ensured that Lee Carsley’s side will play in back-to-back finals.`\
+https://nytimes.com/athletic/6451198/2025/06/25/england-under-21-euros-netherlands/
+
 **British Man Is Charged Over Attempted Mock Wedding With 9-Year-Old at Disneyland Paris**\
 `The French authorities said a 39-year-old had attempted to conduct the ceremony with a minor on Saturday. The British police say he is a convicted sex offender.`\
 https://nytimes.com/2025/06/25/world/europe/disneyland-paris-mock-wedding-britain.html

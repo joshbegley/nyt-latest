@@ -1,3 +1,11 @@
+**Why the Canucks rolled the dice on Evander Kane, and what comes next**\
+`Kane joins his hometown team with a fair bit of baggage accumulated over a lengthy NHL career.`\
+https://nytimes.com/athletic/6450767/2025/06/25/canucks-evander-kane-trade-nhl/
+
+**Southgate 'not missing' managing England, citing pressure of the job**\
+`Southgate received a knighthood on Wednesday for his services to football, which encompassed an eight-year spell in charge of England.`\
+https://nytimes.com/athletic/6451139/2025/06/25/gareth-southgate-not-missing-managing-england-citing-pressure-of-the-job/
+
 **Housing Department to Move Headquarters, Booting National Science Foundation**\
 `The plan to depart Washington and take over the science agency building in Virginia raised questions about where N.S.F. employees would go.`\
 https://nytimes.com/2025/06/25/us/politics/housing-department-headquarters-move.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/world/europe/disneyland-paris-mock-wedding-britai
 **Scientists Retrace 30,000-Year-Old Sea Voyage, in a Hollowed-Out Log**\
 `Japanese researchers turned to “experimental archaeology” to study how ancient humans navigated powerful ocean currents and migrated offshore.`\
 https://nytimes.com/2025/06/25/science/anthropology-ocean-migration-japan.html
-
-**Did Baby Talk Give Rise to Language?**\
-`The way that human adults talk to young children is unique among primates, a new study found. That might be one secret to our species’ grasp of language.`\
-https://nytimes.com/2025/06/25/science/language-evolution-apes.html
-
-**Live Updates: Mamdani’s Success in Mayoral Primary Reverberates Beyond New York City**\
-`While Zohran Mamdani pledges major changes in the city after his expected primary win, national Democrats look for lessons ahead of the midterms and Republicans see a new political target.`\
-https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election
 
