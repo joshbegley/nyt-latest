@@ -1,3 +1,15 @@
+**Marcus Thuram on Inter and the Champions League final: 'It was not the last chance'**\
+`The striker says Giannis Antetokounmpo's words about NBA legend Michael Jordan have helped him to put the UCL final loss into perspective`\
+https://nytimes.com/athletic/6448215/2025/06/25/marcus-thuram-inter-milan-giannis-antetokounmpo/
+
+**Nico Williams, Lamine Yamal and the faction of friends at Barcelona**\
+`The 22-year-old is edging towards a long-heralded move to Barcelona. Many good friends are waiting for him there`\
+https://nytimes.com/athletic/6440131/2025/06/25/nico-williams-lamine-yamal-barcelona-spain/
+
+**Explaining Rodri's serious knee injury and why Manchester City aren't rushing his return**\
+`Pep Guardiola said Rodri suffered damage to "ACL and some meniscus" and that even though he has returned "it is a long, long injury"`\
+https://nytimes.com/athletic/6438741/2025/06/25/rodri-acl-meniscus-injury/
+
 **Women's Euros 2025: Guide to Group B - the world champions and a Nations League reunion**\
 `Everything you need to know about Group B at Euro 2025, which features world champions Spain, plus Italy, Belgium and Portugal`\
 https://nytimes.com/athletic/6415629/2025/06/25/womens-euros-2025-group-b-guide/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/pageoneplus/quote-of-the-day-the-mystery-of-the-p
 **How to Watch Indian, Hungarian and Polish Astronauts Launch to the I.S.S.**\
 `The fourth mission by the company Axiom Space will help the three countries get to the International Space Station for the first time.`\
 https://nytimes.com/2025/06/25/science/spacex-launch-axiom-mission-4-watch.html
-
-**The Bombing of Iran May Teach an Unwelcome Lesson on Nuclear Weapons**\
-`Will America’s pre-emptive strike discourage other countries from pursuing a weapon — or just the opposite?`\
-https://nytimes.com/2025/06/25/world/middleeast/iran-trump-nuclear-weapons.html
-
-**Connections: Sports Edition Coach: Hints for June 25, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6442037/2025/06/25/connections-sports-edition-hints-for-june-25-2025/
-
-**Corrections: June 25, 2025**\
-`Corrections that appeared in print on Wednesday, June 25, 2025.`\
-https://nytimes.com/2025/06/25/pageoneplus/corrections-june-25-2025.html
 
