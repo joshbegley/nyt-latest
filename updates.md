@@ -1,3 +1,15 @@
+**A Shock in New York’s Mayoral Primary**\
+`Reaction to Zohran Mamdani’s upset of Andrew Cuomo in the Democratic primary for mayor of New York. Also: President Trump’s reversals; junk food.`\
+https://nytimes.com/2025/06/25/opinion/new-york-mayor-primary.html
+
+**Pulisic will be a 'key player' for Milan next season, says sporting director**\
+`The 26-year-old forward recorded 17 goals and 12 assists last season for the the club last campaign.`\
+https://nytimes.com/athletic/6451008/2025/06/25/usmnt-christian-pulisic-milan/
+
+**Trump Threatens Spain With Tough Trade Deal Over Defense Spending**\
+`President Trump laid into Spain during the NATO summit at The Hague on Wednesday, after it broke ranks with the other member states and declined to increase its military spending to 5 percent of its economic output over a decade.`\
+https://nytimes.com/video/us/politics/100000010250068/trump-nato-spain.html
+
 **Michigan tops Miami, Nebraska, Stanford for key WR target Zion Robinson**\
 `Sherrone Moore is prioritizing recruiting tall receivers with length, and Zion Robinson can give Michigan just that after his commitment.`\
 https://nytimes.com/athletic/6451100/2025/06/25/michigan-zion-robinson-football-recruiting-commitment/

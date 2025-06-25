@@ -1,3 +1,15 @@
+**A Shock in New York’s Mayoral Primary**\
+`Reaction to Zohran Mamdani’s upset of Andrew Cuomo in the Democratic primary for mayor of New York. Also: President Trump’s reversals; junk food.`\
+https://nytimes.com/2025/06/25/opinion/new-york-mayor-primary.html
+
+**Pulisic will be a 'key player' for Milan next season, says sporting director**\
+`The 26-year-old forward recorded 17 goals and 12 assists last season for the the club last campaign.`\
+https://nytimes.com/athletic/6451008/2025/06/25/usmnt-christian-pulisic-milan/
+
+**Trump Threatens Spain With Tough Trade Deal Over Defense Spending**\
+`President Trump laid into Spain during the NATO summit at The Hague on Wednesday, after it broke ranks with the other member states and declined to increase its military spending to 5 percent of its economic output over a decade.`\
+https://nytimes.com/video/us/politics/100000010250068/trump-nato-spain.html
+
 **Michigan tops Miami, Nebraska, Stanford for key WR target Zion Robinson**\
 `Sherrone Moore is prioritizing recruiting tall receivers with length, and Zion Robinson can give Michigan just that after his commitment.`\
 https://nytimes.com/athletic/6451100/2025/06/25/michigan-zion-robinson-football-recruiting-commitment/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6448409/2025/06/25/usmnt-summer-transfers-weah-till
 **Lakers sale announced, with Jeanie Buss staying in charge 'for the foreseeable future'**\
 `Last week, Mark Walter agreed to buy a controlling interest in the storied franchise from the Buss family.`\
 https://nytimes.com/athletic/6450811/2025/06/25/lakers-sale-jeanie-buss/
-
-**Trade grades: Canucks make desperate bet on Evander Kane as Oilers get out of a jam**\
-`The fact that Edmonton managed to clear the entirety of Kane's salary and get a fourth-rounder in return, is truly remarkable.`\
-https://nytimes.com/athletic/6450879/2025/06/25/evander-kane-trade-grades-oilers-canucks-nhl/
-
-**Three ways the Giants' slumping offense can get better**\
-`The Giants have already done the hard part in adding Rafael Devers. Now they need the rest of their lineup to pick up the pace.`\
-https://nytimes.com/athletic/6444279/2025/06/25/sf-giants-offensive-woes-solutions/
-
-**2025 MLS salaries revealed: Messi top earner, highest-paid players, best deals**\
-`What stands out – for better or worse – from MLS's salary reveal, and the trends we can spot in 2025`\
-https://nytimes.com/athletic/6450778/2025/06/25/mls-salary-list-2025-mlspa-messi/
 
