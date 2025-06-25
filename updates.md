@@ -1,3 +1,7 @@
+**Can This Woman’s Bra Help Her Make History?**\
+`Faith Kipyegon, a three-time Olympic champion, wants to become the first woman to break the four-minute mile. Nike kitted her out for her attempt.`\
+https://nytimes.com/2025/06/25/style/nike-faith-kipyegon-bra-four-minute-mile.html
+
 **Watch: Is the most important position in the WNBA changing?**\
 `No Offseason discusses whether guards will overtake power forwards as the WNBA's premier position.`\
 https://nytimes.com/athletic/6450546/2025/06/25/no-off-season-wnba-guard-important-position/
