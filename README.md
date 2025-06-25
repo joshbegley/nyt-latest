@@ -1,3 +1,11 @@
+**In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
+`Their changes may be less pronounced in the future, but for one game we got to see how different top of the league stuff can look.`\
+https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
+
+**Democrats Looked for Lessons in New York City’s Mayoral Upset**\
+`Also, Trump said the U.S. would soon meet with Iran. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/06/25/briefing/new-york-city-mayoral-election-us-iran.html
+
 **Democrats’ Scattered Response to Iran Strikes Highlights Party Divides**\
 `President Trump’s strikes on Iran have resurfaced old rifts among Democrats over war and peace that have been inflamed by a newer schism inside the party, over support for Israel.`\
 https://nytimes.com/2025/06/25/us/politics/democrats-divisions-iran-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6443566/2025/06/25/jd-vance-club-world-cup/
 **Reflecting on Same-Sex Marriage Ruling a Decade Later**\
 `Adam Liptak describes the moment in which same-sex marriage became legal nationwide on June 26, 2015 — and what the future may hold for the Supreme Court’s ruling.`\
 https://nytimes.com/2025/06/25/insider/same-sex-marriage-legal-10-years.html
-
-**D.O.J. Ends Inquiry of Housing Development by Texas Muslims**\
-`A proposed housing development with a mosque at its center drew scrutiny from Texas Republicans, who feared the project would discriminate against non-Muslims.`\
-https://nytimes.com/2025/06/25/us/politics/texas-muslim-development-justice-department.html
-
-**They Had Come to Graduate. Their Minds Were on a Student Held by ICE.**\
-`Dylan Lopez Contreras was arrested by immigration authorities. This week, he was remembered during the commencement for a school devoted to immigrants.`\
-https://nytimes.com/2025/06/25/nyregion/immigrant-students-graduation-ice.html
 
