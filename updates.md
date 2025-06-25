@@ -1,3 +1,15 @@
+**Marcus Thuram on Inter and the Champions League final: 'It was not the last chance'**\
+`The striker says Giannis Antetokounmpo's words about NBA legend Michael Jordan have helped him to put the UCL final loss into perspective`\
+https://nytimes.com/athletic/6448215/2025/06/25/marcus-thuram-inter-milan-giannis-antetokounmpo/
+
+**Nico Williams, Lamine Yamal and the faction of friends at Barcelona**\
+`The 22-year-old is edging towards a long-heralded move to Barcelona. Many good friends are waiting for him there`\
+https://nytimes.com/athletic/6440131/2025/06/25/nico-williams-lamine-yamal-barcelona-spain/
+
+**Explaining Rodri's serious knee injury and why Manchester City aren't rushing his return**\
+`Pep Guardiola said Rodri suffered damage to "ACL and some meniscus" and that even though he has returned "it is a long, long injury"`\
+https://nytimes.com/athletic/6438741/2025/06/25/rodri-acl-meniscus-injury/
+
 **Women's Euros 2025: Guide to Group B - the world champions and a Nations League reunion**\
 `Everything you need to know about Group B at Euro 2025, which features world champions Spain, plus Italy, Belgium and Portugal`\
 https://nytimes.com/athletic/6415629/2025/06/25/womens-euros-2025-group-b-guide/
