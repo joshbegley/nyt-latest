@@ -1,3 +1,19 @@
+**Late Night Is Taken Aback by Trump’s Potty Mouth**\
+`Seth Meyers said that even with “zero standards of expectations for Trump,” he was shocked to see the president use profanity on the White House lawn.`\
+https://nytimes.com/2025/06/25/arts/television/late-night-trumps-profanity.html
+
+**Here’s the latest.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/06/25/us/trump-nato-news/heres-the-latest
+
+**Live Updates: Trump Pushes Allies on Military Spending at NATO Summit**\
+`Spain said it was unwilling to spend more on its military, complicating President Trump’s plans. The cease-fire between Israel and Iran risked overshadowing the spending talks.`\
+https://nytimes.com/live/2025/06/25/us/trump-nato-news
+
+**Live Updates: Cease-Fire Enters Second Day as Iran and Israel Both Claim Victory**\
+`President Trump urged both sides to respect the truce, as the leak of a U.S. intelligence report put into question whether American strikes had significantly set back Iran’s nuclear ambitions.`\
+https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/25/crosswords/spelling-bee-forum.html
