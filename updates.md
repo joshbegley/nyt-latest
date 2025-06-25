@@ -1,3 +1,7 @@
+**From Serial Productions: The Retrievals, Season 1**\
+`Dozens of women seeking to become mothers came to a fertility clinic at Yale. A five-part narrative series explores the shocking events that unfolded there.`\
+https://nytimes.com/article/serial-the-retreivals-season-one.html
+
 **Federal Judge Blocks Trump From Collecting Data on Small-Dollar Border Transactions**\
 `So far, the courts have sided with business owners who sued after their money service businesses were caught up in President Trump’s crackdown on cartels.`\
 https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.html

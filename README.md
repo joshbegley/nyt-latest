@@ -1,3 +1,11 @@
+**Knicks ask permission to interview Pels assistant James Borrego: Sources**\
+`Borrego would be the fourth known candidate to meet with the Knicks about vacant head coaching position.`\
+https://nytimes.com/athletic/6451735/2025/06/25/james-borrego-knicks-pelicans-coaching-search/
+
+**As Donors Work Against Mamdani, Top Democrats Stop Short of Backing Him**\
+`After Zohran Mamdani’s performance in the New York City mayoral primary, Republicans and suburban Democrats attacked him, and party leaders seemed to be hedging their bets.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-democrats-schumer-jeffries.html
+
 **From Serial Productions: The Retrievals, Season 1**\
 `Dozens of women seeking to become mothers came to a fertility clinic at Yale. A five-part narrative series explores the shocking events that unfolded there.`\
 https://nytimes.com/article/serial-the-retreivals-season-one.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/briefing/new-york-city-mayoral-election-us-iran.h
 **Democrats’ Scattered Response to Iran Strikes Highlights Party Divides**\
 `President Trump’s strikes on Iran have resurfaced old rifts among Democrats over war and peace that have been inflamed by a newer schism inside the party, over support for Israel.`\
 https://nytimes.com/2025/06/25/us/politics/democrats-divisions-iran-strikes.html
-
-**Polls Underestimated Mamdani. Here’s Why It’s So Hard to Poll Primaries.**\
-`Accurately gauging support in primaries can be notoriously difficult. Pollsters face multiple challenges.`\
-https://nytimes.com/2025/06/25/polls/polling-mamdani-primaries.html
-
-**Reilly Smith, Golden Knights agree to 1-year contract extension**\
-`The Golden Knights signed Reilly Smith to a one-year contract extension worth $2 million, The Athletic’s Chris Johnston reported on Wednesday.`\
-https://nytimes.com/athletic/6451662/2025/06/25/reilly-smith-contract-golden-knights-contract/
 
