@@ -1,3 +1,11 @@
+**In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
+`Their changes may be less pronounced in the future, but for one game we got to see how different top of the league stuff can look.`\
+https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
+
+**Democrats Looked for Lessons in New York City’s Mayoral Upset**\
+`Also, Trump said the U.S. would soon meet with Iran. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/06/25/briefing/new-york-city-mayoral-election-us-iran.html
+
 **Democrats’ Scattered Response to Iran Strikes Highlights Party Divides**\
 `President Trump’s strikes on Iran have resurfaced old rifts among Democrats over war and peace that have been inflamed by a newer schism inside the party, over support for Israel.`\
 https://nytimes.com/2025/06/25/us/politics/democrats-divisions-iran-strikes.html

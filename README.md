@@ -1,3 +1,15 @@
+**The Anatomy of Mamdani’s Political Earthquake**\
+`The 33-year-old State Assemblyman just achieved one of the greatest political upsets in New York City history.`\
+https://nytimes.com/interactive/2025/06/25/opinion/mamdani-cuomo-new-york-mayor-election.html
+
+**Mamdani’s Victory Spotlights a Deepening Rupture Among U.S. Jews**\
+`While Zohran Mamdani won over some Jewish supporters, other Jewish Democrats suggested that concerns about their community’s safety are being dismissed in a movement and a city they helped build.`\
+https://nytimes.com/2025/06/25/us/politics/zohran-mamdani-jewish-voters.html
+
+**Potential Cyberattack Scrambles Columbia University Computer Systems**\
+`Images of a smiling President Trump popped up on some screens, although they could not be conclusively linked to the episode.`\
+https://nytimes.com/2025/06/25/nyregion/columbia-university-cyberattack.html
+
 **In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
 `Their changes may be less pronounced in the future, but for one game we got to see how different top of the league stuff can look.`\
 https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/world/africa/kenya-protests-william-ruto.html
 **Mamdani Reflects on His Astonishing Rise and the Challenges Ahead**\
 `In a post-election interview, Zohran Mamdani, the likely winner of the Democratic primary for mayor of New York, said he took some lessons from Donald Trump’s focus on the cost of living.`\
 https://nytimes.com/2025/06/25/nyregion/zohran-mamdani-interview.html
-
-**Connor Bedard training smarter, not just harder, for his third NHL season**\
-`After a frustrating sophomore campaign, Bedard is starting to understand that rest isn't a sign of weakness; it’s a source of strength.`\
-https://nytimes.com/athletic/6451445/2025/06/25/blackhawks-connor-bedard-nhl-season/
-
-**JD Vance, judging Jobe Bellingham and Fluminense get defensive - how Club World Cup group F ended**\
-`Analysis of how group F ended as JD Vance watched on`\
-https://nytimes.com/athletic/6443566/2025/06/25/jd-vance-club-world-cup/
-
-**Reflecting on Same-Sex Marriage Ruling a Decade Later**\
-`Adam Liptak describes the moment in which same-sex marriage became legal nationwide on June 26, 2015 — and what the future may hold for the Supreme Court’s ruling.`\
-https://nytimes.com/2025/06/25/insider/same-sex-marriage-legal-10-years.html
 
