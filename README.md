@@ -1,3 +1,7 @@
+**In Joyful Victory Speech, Mamdani Vows to Work for ‘Each and Every New Yorker’**\
+`A crowd in Queens celebrated the triumph of Zohran Mamdani, the presumptive winner of the Democratic primary for mayor of New York City.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-speech-watch-party.html
+
 **Dodgers come to Denver looking to pile on wins, improve some ugly stat lines**\
 `"You need to beat the teams you're supposed to beat," Dodgers manager Dave Roberts said. "That's just the way it is."`\
 https://nytimes.com/athletic/6450027/2025/06/25/dodgers-rockies-michael-conforto-shohei-ohtani/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-nig
 **Everton's search for a right-winger (or two): From Weah to Doak, potential targets home and abroad**\
 `David Moyes is desperate to boost his attacking output, and that flank is a key area to strengthen. The Athletic assesses the options...`\
 https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fellows-mcatee-bakayoko/
-
-**Wednesday Briefing**\
-`An Iran-Israel truce takes hold.`\
-https://nytimes.com/2025/06/25/briefing/iran-israel-nato.html
 

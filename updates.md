@@ -1,3 +1,15 @@
+**Dodgers come to Denver looking to pile on wins, improve some ugly stat lines**\
+`"You need to beat the teams you're supposed to beat," Dodgers manager Dave Roberts said. "That's just the way it is."`\
+https://nytimes.com/athletic/6450027/2025/06/25/dodgers-rockies-michael-conforto-shohei-ohtani/
+
+**Zohran Mamdani’s Success Is Especially Meaningful for Muslim New Yorkers**\
+`Mr. Mamdani would be the first Muslim mayor of New York City, and his faith played a role in expanding the diverse coalition that propelled his campaign.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-muslim-nyc.html
+
+**In a season of highs, Pete Crow-Armstrong and the Cubs hit low point in loss to Cardinals**\
+`Chicago's MVP candidate made a mental mistake on defense and a questionable decision at the plate in the one-run loss.`\
+https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-night/
+
 **Takeaways From Hard Fork’s Interview With OpenAI’s Sam Altman**\
 `Mr. Altman discussed President Trump’s understanding of artificial intelligence, the war for A.I. talent and OpenAI’s relationship with Microsoft.`\
 https://nytimes.com/2025/06/25/technology/hard-fork-sam-altman.html
