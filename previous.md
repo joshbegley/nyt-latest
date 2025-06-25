@@ -1,3 +1,11 @@
+**Mamdani’s Wife, Absent for Much of Campaign, Is Thrust Into Spotlight**\
+`Rama Duwaji, a 27-year-old animator and illustrator, married the presumptive Democratic nominee for New York City mayor this winter.`\
+https://nytimes.com/2025/06/25/nyregion/rama-duwaji-zohran-mamdani-wife.html
+
+**A Year After an International Force Landed, Haiti Is No Closer to Peace**\
+`It’s been one year since an international police force was sent to take on gangs that have terrorized Haiti, but its funding and future are uncertain.`\
+https://nytimes.com/2025/06/25/us/international-force-haiti-gangs-funding-trump.html
+
 **See Which Neighborhoods and Groups Drove Mamdani’s Success in the N.Y.C. Primary**\
 `A Times analysis shows where Zohran Mamdani has built a strong lead in the votes counted so far.`\
 https://nytimes.com/interactive/2025/06/25/nyregion/nyc-mayor-election-results-map-mamdani-cuomo.html
@@ -25,16 +33,4 @@ https://nytimes.com/2025/06/25/world/europe/nato-increase-military-spending-trum
 **What’s in Our Queue? ‘Overcompensating’ and More **\
 `Text by Katherine Rosman`\
 https://nytimes.com/card/2025/06/25/arts/editors-recommendations-overcompensating
-
-**Mamdani Wins Nadler’s Endorsement as He Seeks to Unify Democrats**\
-`Jerrold Nadler, who represents parts of Manhattan in Congress, had previously endorsed one of Zohran Mamdani’s opponents, Scott Stringer, in the Democratic mayoral primary.`\
-https://nytimes.com/2025/06/25/nyregion/nadler-endorse-mamdani.html
-
-**Growth Claims Behind Trump’s Big Policy Bill Rarely Pan Out in Reality**\
-`A retrospective on four previous Republican-driven tax-cut packages found that the results always come up short compared to bullish predictions of economic booms and lower deficits.`\
-https://nytimes.com/2025/06/25/us/politics/growth-taxes-republican-policy-bill.html
-
-**Kutter Crawford to have wrist surgery, 'likely' out for the season**\
-`Crawford's latest setback doesn't immediately change the Red Sox's rotation plans but does bite into their overall depth.`\
-https://nytimes.com/athletic/6451202/2025/06/25/kutter-crawford-red-sox-wrist-surgery/
 

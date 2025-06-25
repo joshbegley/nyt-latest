@@ -1,3 +1,11 @@
+**Mamdani’s Wife, Absent for Much of Campaign, Is Thrust Into Spotlight**\
+`Rama Duwaji, a 27-year-old animator and illustrator, married the presumptive Democratic nominee for New York City mayor this winter.`\
+https://nytimes.com/2025/06/25/nyregion/rama-duwaji-zohran-mamdani-wife.html
+
+**A Year After an International Force Landed, Haiti Is No Closer to Peace**\
+`It’s been one year since an international police force was sent to take on gangs that have terrorized Haiti, but its funding and future are uncertain.`\
+https://nytimes.com/2025/06/25/us/international-force-haiti-gangs-funding-trump.html
+
 **See Which Neighborhoods and Groups Drove Mamdani’s Success in the N.Y.C. Primary**\
 `A Times analysis shows where Zohran Mamdani has built a strong lead in the votes counted so far.`\
 https://nytimes.com/interactive/2025/06/25/nyregion/nyc-mayor-election-results-map-mamdani-cuomo.html
