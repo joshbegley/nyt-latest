@@ -1,3 +1,7 @@
+**OpenAI’s Self-Driving Ambitions**\
+`The artificial intelligence company has set many challenging goals. Autonomous vehicle software is now among them — but may pit the company against Tesla.`\
+https://nytimes.com/2025/06/25/business/dealbook/openai-autonomous-vehicles-musk-tesla.html
+
 **Vietnam Abolishes Death Penalty for Embezzlement and Other Crimes**\
 `The move, one official said, would help the country extradite suspects from abroad. It would also spare the life of a recently convicted tycoon.`\
 https://nytimes.com/2025/06/25/world/asia/vietnam-death-penalty-law.html

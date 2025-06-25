@@ -1,3 +1,7 @@
+**OpenAI’s Self-Driving Ambitions**\
+`The artificial intelligence company has set many challenging goals. Autonomous vehicle software is now among them — but may pit the company against Tesla.`\
+https://nytimes.com/2025/06/25/business/dealbook/openai-autonomous-vehicles-musk-tesla.html
+
 **Vietnam Abolishes Death Penalty for Embezzlement and Other Crimes**\
 `The move, one official said, would help the country extradite suspects from abroad. It would also spare the life of a recently convicted tycoon.`\
 https://nytimes.com/2025/06/25/world/asia/vietnam-death-penalty-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6433116/2025/06/25/49ers-coaches-gus-bradley-robert
 **Who will Chicago draft third? Michael Misa, Anton Frondell among top candidates**\
 `The Blackhawks could have one of the youngest defenses in the NHL come next season.`\
 https://nytimes.com/athletic/6448368/2025/06/25/blackhawks-nhl-draft-free-agency-michael-misa/
-
-**Looking back at the Maple Leafs' disastrous 2020 draft, 5 years later**\
-`The Leafs made 12 picks in the 2020 draft. Five years later, not a single one has played NHL games.`\
-https://nytimes.com/athletic/6447865/2025/06/25/maple-leafs-2020-draft-niemela-villeneuve-dubas/
 
