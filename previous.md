@@ -1,3 +1,11 @@
+**Pioli leaves position as Al Nassr head coach**\
+`Pioli joined Al Nassr three matches into their 2024-25 Saudi Pro League campaign and led the club to a third-placed finish. `\
+https://nytimes.com/athletic/6450407/2025/06/25/stefano-pioli-manager-saudi-al-nassr/
+
+**U.K. Says It’s Buying 12 F-35A Stealth Jets That Can Carry Nuclear Weapons**\
+`The decision means that Britain’s air force will have a nuclear role for the first time since the end of the Cold War.`\
+https://nytimes.com/2025/06/25/world/europe/uk-nato-f35-nuclear-jets.html
+
 **OpenAI’s Self-Driving Ambitions**\
 `The artificial intelligence company has set many challenging goals. Autonomous vehicle software is now among them — but may pit the company against Tesla.`\
 https://nytimes.com/2025/06/25/business/dealbook/openai-autonomous-vehicles-musk-tesla.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6447241/2025/06/25/penguins-nhl-draft-free-agency-t
 **Winnipeg's next move after Jonathan Toews; Nikolaj Ehlers and contingencies for his departure**\
 `With Toews officially signing July 1, the Jets have momentum and the opportunity to keep it going with a good pick at No. 28.`\
 https://nytimes.com/athletic/6448325/2025/06/25/winnipeg-jets-next-move-jonathan-toews-nikolaj-ehlers/
-
-**49ers see Gus Bradley as 'huge addition' to defense as he navigates role reversal**\
-`Fourteen years after Bradley hired Robert Saleh as a quality control coach, Bradley is now working under the 49ers defensive coordinator.`\
-https://nytimes.com/athletic/6433116/2025/06/25/49ers-coaches-gus-bradley-robert-saleh/
-
-**Who will Chicago draft third? Michael Misa, Anton Frondell among top candidates**\
-`The Blackhawks could have one of the youngest defenses in the NHL come next season.`\
-https://nytimes.com/athletic/6448368/2025/06/25/blackhawks-nhl-draft-free-agency-michael-misa/
 
