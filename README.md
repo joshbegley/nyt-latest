@@ -1,3 +1,19 @@
+**Finding Yourselves in a Gloriously Stressful Sci-Fi Adventure**\
+`The Alters is an extraordinary survival game that explores miscommunication, human fallibility and conflicting motivations.`\
+https://nytimes.com/2025/06/25/arts/the-alters-review.html
+
+**This Cold Noodle Salad With Spicy Peanut Sauce Is Really Cool**\
+`Hetty Lui McKinnon’s recipe is refreshing and flexible — use whatever vegetables you like or have on hand.`\
+https://nytimes.com/2025/06/25/dining/healthy-cold-noodle-salad-with-spicy-peanut-sauce-recipe.html
+
+**The Windup: NL Central deserves some shine**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6450100/2025/06/25/chase-burns-reds-nl-central-the-windup/
+
+**The Bounce: Cooper Flagg will be NBA Draft's No. 1 pick, but are you ready for other chaos?**\
+`Cooper Flagg and Dylan Harper are expected to be the top picks of the NBA Draft. From there? Nobody really knows what will happen`\
+https://nytimes.com/athletic/6450550/2025/06/25/cooper-flagg-nba-draft-predictions-trade-the-bounce/
+
 **A Loved One was Diagnosed With Dementia. Now What?**\
 `Families and experts share their best advice for navigating and coping.`\
 https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/25/theater/hercules-disney-theatre-royal-drury-lane.
 **Fandamentals**\
 `TKTKTK `\
 https://nytimes.com/paidpost/athletic/bankofamerica/fandamentals.html
-
-**The Political Power of Mamdani’s Positive Message and Coalition Building**\
-`Mamdani won in parts of the city people wouldn’t normally expect. Democrats should pay attention to his positive message and laser focus on costs.`\
-https://nytimes.com/2025/06/25/opinion/zohran-mamdani-andrew-cuomo-primary-victory.html
-
-**Kennedy Withdraws Funding Pledge to International Vaccine Agency**\
-`In a video address, the health secretary said the United States would no longer donate to Gavi, the vaccine agency. The organization rejected his claims.`\
-https://nytimes.com/2025/06/25/health/kennedy-vaccines-gavi.html
-
-**Why New Balance went all-in on NBA Draft sensation Cooper Flagg: MoneyCall**\
-`Welcome back to The Athletic's free weekly sports business cheat sheet. Name-dropped: Woody Johnson, Mark Walter, Caitlin Clark, KD and more`\
-https://nytimes.com/athletic/6450534/2025/06/25/cooper-flagg-new-balance-2025-nba-draft-moneycall/
-
-**Bucks draft mailbag: Trade into the first round? Deal No. 47? Buy another pick?**\
-`How could the Bucks end up in the first round on Wednesday? We explore the chances and look at how Tyler Smith may contribute next season.`\
-https://nytimes.com/athletic/6435588/2025/06/25/bucks-draft-mailbag-trade-into-first-round-deal-no-47-buy-another-pick/
 
