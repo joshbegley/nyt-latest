@@ -1,3 +1,7 @@
+**Zohran Mamdani Says He’s a Democratic Socialist. What Does That Mean?**\
+`The term has no singular definition. But simply put, it’s an ideology rooted in its opposition to capitalism and wanting to shift power from corporations to workers.`\
+https://nytimes.com/2025/06/25/us/politics/what-is-democratic-socialism.html
+
 **U.S. Is Creating 2 New Expanded Military Zones Along Border With Mexico**\
 `The plans for strips of land in Texas and Arizona are the latest step to militarize the boundary to stem an already dwindling number of migrant crossings.`\
 https://nytimes.com/2025/06/25/us/politics/us-is-creating-2-new-expanded-military-zones-along-border-with-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/arts/design/leon-krier-dead.html
 **The Judgment of History Won’t Save Gaza**\
 `The airstrikes on Iran seem to have closed a chapter.`\
 https://nytimes.com/2025/06/25/opinion/gaza-crimes.html
-
-**Liverpool appoint former Wales manager Page as under-21s head coach**\
-`The 50-year-old takes over from Barry Lewtas, who left the club earlier this month after 12 years of service.`\
-https://nytimes.com/athletic/6451256/2025/06/25/rob-page-liverpool-under-21s/
 
