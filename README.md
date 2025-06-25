@@ -1,3 +1,7 @@
+**Axiom-4 Mission Takes Off for the I.S.S.**\
+`Hungary, India and Poland sent astronauts to the International Space Station for the first time by paying Axiom Space for the journey.`\
+https://nytimes.com/video/science/space/100000010249283/spacex-launch-axiom-mission-4-watch.html
+
 **Cuomo, Chastened, Will Reassess Plans to Run as an Independent**\
 `The shape of the mayor’s race in November and the future of Andrew M. Cuomo are now in flux after Zohran Mamdani’s performance on Tuesday.`\
 https://nytimes.com/2025/06/25/nyregion/nyc-mayor-election-november.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/crosswords/spelling-bee-forum.html
 **Here’s the latest.**\
 `By Adam Rasgon, Michael D. Shear and Francesca Regalado`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/heres-the-latest
-
-**Live Updates: Cease-Fire Enters Second Day as Iran and Israel Both Claim Victory**\
-`President Trump urged both sides to respect the truce, as the leak of a U.S. intelligence report put into question whether American strikes had significantly set back Iran’s nuclear ambitions.`\
-https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump
 
