@@ -1,3 +1,7 @@
+**On the Giants' offensive woes, similarities to 2010s teams, Justin Verlander and more**\
+`An excerpt of Grant Brisbee's subscriber-only conversation on June 25.`\
+https://nytimes.com/athletic/6451428/2025/06/25/sf-giants-offense-struggles-justin-verlander/
+
 **Oilers trading Evander Kane was expected. It's their next move that truly matters**\
 `Moving out Kane and his entire $5.125 million cap hit is only the first domino to fall in the offseason makeover for Edmonton.`\
 https://nytimes.com/athletic/6451435/2025/06/25/oilers-evander-kane-trade-canucks-nhl/
