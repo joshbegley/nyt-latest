@@ -1,3 +1,7 @@
+**Michigan tops Miami, Nebraska, Stanford for key WR target Zion Robinson**\
+`Sherrone Moore is prioritizing recruiting tall receivers with length, and Zion Robinson can give Michigan just that after his commitment.`\
+https://nytimes.com/athletic/6451100/2025/06/25/michigan-zion-robinson-football-recruiting-commitment/
+
 **Can This Woman’s Bra Help Her Make History?**\
 `Faith Kipyegon, a three-time Olympic champion, wants to become the first woman to break the four-minute mile. Nike kitted her out for her attempt.`\
 https://nytimes.com/2025/06/25/style/nike-faith-kipyegon-bra-four-minute-mile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6444279/2025/06/25/sf-giants-offensive-woes-solutio
 **2025 MLS salaries revealed: Messi top earner, highest-paid players, best deals**\
 `What stands out – for better or worse – from MLS's salary reveal, and the trends we can spot in 2025`\
 https://nytimes.com/athletic/6450778/2025/06/25/mls-salary-list-2025-mlspa-messi/
-
-**After adding a center, might the Flyers pursue one of these 10 goalies?**\
-`Here are some possible options for the Flyers via trade or free agency this offseason.`\
-https://nytimes.com/athletic/6450899/2025/06/25/flyers-goalie-trade-free-agent/
 
