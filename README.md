@@ -1,3 +1,11 @@
+**The Athletic FC: Inside Rodri's 'terrible triad' injury hell, FIFA open racism investigation**\
+`Today in TAFC: All eyes on Rodri's recovery from his ACL injury, FIFA open an in investigation into Cabral racism allegation.`\
+https://nytimes.com/athletic/6450212/2025/06/25/rodri-acl-injury-hell-fifa-cabral-racism-probe/
+
+**The Pulse: The NBA Draft’s biggest mysteries**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6448254/2025/06/25/nba-draft-cooper-flagg-ace-bailey-the-pulse/
+
 **Dylan Lee emerges as closer candidate for Braves, who are winning and need one**\
 `Lee has surpassed all reasonable expectations, posting a 1.98 ERA in 88 appearances since the beginning of last season.`\
 https://nytimes.com/athletic/6449973/2025/06/25/atlanta-braves-new-york-mets-dylan-lee-closer/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6447240/2025/06/25/nhl-free-agency-rankings-big-boa
 `Blackman, the No. 9 pick in the 1981 NBA Draft, called the 2025 lottery results "a time of renewal ... for our organization, for our fans."`\
 https://nytimes.com/athletic/6439250/2025/06/25/cooper-flagg-mavericks-rolando-blackman-nba-draft-lottery/
 
-**NWSL midseason review: League leaders, most improved and MVP frontrunners**\
+**NWSL midseason review: League leaders, most improved, and MVP frontrunners**\
 `The Athletic's women's soccer writers take stock of the NWSL as it heads for a midseason break.`\
 https://nytimes.com/athletic/6449871/2025/06/25/nwsl-midseason-review-league-leaders-mvp/
 
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6448658/2025/06/25/the-sabres-have-a-historic-playo
 **Khaman Maluach, Carter Bryant and other players Raptors should target at NBA Draft**\
 `A trade down could make sense for the Raptors, but it takes two to tango.`\
 https://nytimes.com/athletic/6448414/2025/06/25/raptors-khaman-maluach-nba-draft-2025/
-
-**Can Kyle Williams break the Patriots' streak of WR draft busts?**\
-`The Patriots' recent track record with drafted wide receivers is terrible, but can Williams, a third-round pick, turn it around?`\
-https://nytimes.com/athletic/6433652/2025/06/25/kyle-williams-patriots-wr-draft-busts/
-
-**Yes, pitching is still the Mets' biggest problem**\
-`The Mets ended up losing to the Atlanta Braves 7-4 after their bullpen melted down in the sixth inning.`\
-https://nytimes.com/athletic/6450056/2025/06/25/mets-lose-braves-pitching-problem/
 
