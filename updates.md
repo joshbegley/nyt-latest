@@ -1,3 +1,11 @@
+**A Play About a Breakdown Was a 2000 Hit. What Do Audiences Say Today?**\
+`Sarah Kane’s “4:48 Psychosis” premiered to rave reviews shortly after the playwright killed herself. A quarter-century later, the original cast is reviving the production.`\
+https://nytimes.com/2025/06/25/theater/sarah-kane-448-psychosis-revival.html
+
+**American Airlines Flight Returns to Las Vegas Airport After Engine Issue**\
+`Videos show smoke coming out of the right engine of an American Airlines passenger jet heading from Las Vegas to Charlotte, N.C. The plane turned around and landed safely after the crew reported an engine issue, the F.A.A. said.`\
+https://nytimes.com/video/us/100000010250202/american-airlines-engine-issue.html
+
 **Tiny Love Stories: ‘Nudes of the Man I Miss’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i-miss.html
