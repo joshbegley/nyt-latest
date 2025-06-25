@@ -1,3 +1,15 @@
+**Barcelona to make Camp Nou return in partial reopening for pre-season match**\
+`The Camp Nou will host Barca's annual Joan Gamper trophy on August 10 with a reduced capacity due to the unfinished works.`\
+https://nytimes.com/athletic/6450257/2025/06/25/barcelona-camp-nou-return-date-confirmed/
+
+**With online threats mounting, Twins' first line of defense is a former policeman**\
+`A struggling Twins pitcher's wife received an online threat. The man tasked with helping? A former policeman who doubles as a football coach`\
+https://nytimes.com/athletic/6449437/2025/06/25/mlb-players-twins-online-threats-defense/
+
+**Yankees' biggest trade deadline needs: Where they should — and shouldn't — focus**\
+`In a stock up-stock down format, here's where the Yankees should focus, and where they shouldn't as much, leading up to the trade deadline.`\
+https://nytimes.com/athletic/6449074/2025/06/25/yankees-trade-deadline-needs/
+
 **Kirby 'really respected' Wiegman honesty in 'tough' Euro 2025 exclusion**\
 `The 31-year-old Brighton and Hove Albion forward announced her retirement in June.`\
 https://nytimes.com/athletic/6448505/2025/06/25/fran-kirby-england-squad-sarina-wiegman/
@@ -10,6 +22,10 @@ https://nytimes.com/2025/06/25/world/africa/kenya-protests-ruto.html
 `Dombrowski laid out what is at stake for the Phillies, and how his front office will attack its most obvious need: upgrading the bullpen. `\
 https://nytimes.com/athletic/6450259/2025/06/25/dave-dombrowski-phillies-mlb-trade-deadline-bullpen/
 
+**Ranger Suárez can adapt to bullpen role, but maybe he should remain in Phillies rotation**\
+`"He's been huge," Rob Thomson said. "You can pretty much book six or seven innings every time. … He's just been incredible."`\
+https://nytimes.com/athletic/6449950/2025/06/25/phillies-astros-ranger-suarez-rotation/
+
 **Mitch Marner UFA power rankings: Who needs him, what's funniest and where does he land?**\
 `Breaking out the trusty Power Rankings gimmick to see what kind of different lenses we can look at the Marner situation through.`\
 https://nytimes.com/athletic/6448766/2025/06/25/mitch-marner-nhl-free-agency-ufa-power-rankings/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6448654/2025/06/25/andrew-mccutchen-pittsburgh-pira
 **Could a new 3X3 women's basketball tourney create a pipeline for the Olympics?**\
 `3XBA starts this weekend. Recently cut WNBA draftees see it as a way to stay on the league's radar. `\
 https://nytimes.com/athletic/6449162/2025/06/25/3x3-womens-basketball-tournament-olympics-wnba/
-
-**How Phillies starter Cristopher Sánchez developed MLB's most devastating changeup**\
-`The off-speed pitch, which he throws nearly 36 percent of the time, pairs nicely with a sinker that often reaches the mid-90s.`\
-https://nytimes.com/athletic/6448072/2025/06/25/phillies-cristopher-sanchez-changeup/
-
-**Nottingham Forest's revamped City Ground will look great, but the work is not done yet**\
-`Nottingham Forest's six-year wait to upgrade the City Ground is nearly at an end - but this should just be the start`\
-https://nytimes.com/athletic/6445705/2025/06/25/nottingham-forest-city-ground-plans/
-
-**NHL rumblings: What it'd take to move Karlsson, plus latest on Tavares, Marchand, Ekblad, Bouchard**\
-`What it would take to get Erik Karlsson out of Pittsburgh,, why a Brad Marchand-Panthers re-signing is becoming more likely and more.`\
-https://nytimes.com/athletic/6449414/2025/06/25/nhl-trades-free-agency-tavares-marchand-ekblad/
-
-**With Kristaps Porziņģis trade, Hawks start their pathway to soar in a weakened East**\
-`Health is concern, but Porziņģis is far and away the best pick-and-pop partner Trae Young has ever had in Atlanta.`\
-https://nytimes.com/athletic/6449654/2025/06/25/kristaps-porzingis-trade-hawks-nba-eastern-conference/
 

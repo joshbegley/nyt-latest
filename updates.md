@@ -1,3 +1,19 @@
+**Barcelona to make Camp Nou return in partial reopening for pre-season match**\
+`The Camp Nou will host Barca's annual Joan Gamper trophy on August 10 with a reduced capacity due to the unfinished works.`\
+https://nytimes.com/athletic/6450257/2025/06/25/barcelona-camp-nou-return-date-confirmed/
+
+**With online threats mounting, Twins' first line of defense is a former policeman**\
+`A struggling Twins pitcher's wife received an online threat. The man tasked with helping? A former policeman who doubles as a football coach`\
+https://nytimes.com/athletic/6449437/2025/06/25/mlb-players-twins-online-threats-defense/
+
+**Yankees' biggest trade deadline needs: Where they should — and shouldn't — focus**\
+`In a stock up-stock down format, here's where the Yankees should focus, and where they shouldn't as much, leading up to the trade deadline.`\
+https://nytimes.com/athletic/6449074/2025/06/25/yankees-trade-deadline-needs/
+
+**Ranger Suárez can adapt to bullpen role, but maybe he should remain in Phillies rotation**\
+`"He's been huge," Rob Thomson said. "You can pretty much book six or seven innings every time. … He's just been incredible."`\
+https://nytimes.com/athletic/6449950/2025/06/25/phillies-astros-ranger-suarez-rotation/
+
 **Kirby 'really respected' Wiegman honesty in 'tough' Euro 2025 exclusion**\
 `The 31-year-old Brighton and Hove Albion forward announced her retirement in June.`\
 https://nytimes.com/athletic/6448505/2025/06/25/fran-kirby-england-squad-sarina-wiegman/
