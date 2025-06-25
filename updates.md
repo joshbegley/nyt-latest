@@ -1,3 +1,11 @@
+**China Tightens Controls on Fentanyl but Calls It a U.S. Problem**\
+`Two chemicals used to make the powerful opioid will be more strictly regulated, but an official said it was “the United States’ responsibility to solve the issue.”`\
+https://nytimes.com/2025/06/25/world/asia/china-fentanyl-us-trade.html
+
+**5 Takeaways From the New York City Mayoral Primary**\
+`Here are some of the factors that drove Zohran Mamdani to the cusp of a seismic upset, and how they will affect the general election in November.`\
+https://nytimes.com/2025/06/25/nyregion/nyc-mayor-primary-mamdani-takeaways.html
+
 **5 Things to Know About Zohran Mamdani**\
 `Not so long ago, Mr. Mamdani was a little-known state assemblyman. But his personality and platform captivated an unlikely coalition of New York City primary voters.`\
 https://nytimes.com/2025/06/25/nyregion/who-is-zohran-mamdani.html
