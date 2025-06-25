@@ -1,3 +1,7 @@
+**Federal Judge Blocks Trump From Collecting Data on Small-Dollar Border Transactions**\
+`So far, the courts have sided with business owners who sued after their money service businesses were caught up in President Trump’s crackdown on cartels.`\
+https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.html
+
 **The Anatomy of Mamdani’s Political Earthquake**\
 `The 33-year-old State Assemblyman just achieved one of the greatest political upsets in New York City history.`\
 https://nytimes.com/interactive/2025/06/25/opinion/mamdani-cuomo-new-york-mayor-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451662/2025/06/25/reilly-smith-contract-golden-kni
 **What to Know About the Antigovernment Protests in Kenya**\
 `Thousands demonstrated on Wednesday to express their anger over government corruption and police brutality.`\
 https://nytimes.com/2025/06/25/world/africa/kenya-protests-william-ruto.html
-
-**Mamdani Reflects on His Astonishing Rise and the Challenges Ahead**\
-`In a post-election interview, Zohran Mamdani, the likely winner of the Democratic primary for mayor of New York, said he took some lessons from Donald Trump’s focus on the cost of living.`\
-https://nytimes.com/2025/06/25/nyregion/zohran-mamdani-interview.html
 
