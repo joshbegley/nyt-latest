@@ -14,7 +14,7 @@ https://nytimes.com/2025/06/25/us/same-sex-marriage-massachusetts-obergefell.htm
 `By Tyler Pager`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-says-the-us-will-meet-with-iran-but-downplays-the-need-for-a-nuclear-agreement
 
-**British Man Is Charged in Attempted Mock Wedding With 9-Year-Old at Disneyland Paris**\
+**British Man Is Charged Over Attempted Mock Wedding With 9-Year-Old at Disneyland Paris**\
 `The French authorities said a 39-year-old had attempted to conduct the ceremony with a minor on Saturday. The British police say he is a convicted sex offender.`\
 https://nytimes.com/2025/06/25/world/europe/disneyland-paris-mock-wedding-britain.html
 
