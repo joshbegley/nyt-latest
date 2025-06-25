@@ -1,3 +1,11 @@
+**The Most Detailed Map of the N.Y.C. Mayoral Primary**\
+`See neighborhood-level election results from the first round of the mayoral race.`\
+https://nytimes.com/interactive/2025/06/24/us/elections/nyc-mayor-primary-results-precinct-map.html
+
+**Alvin Bragg, the Democratic Incumbent, Wins D.A. Primary in Manhattan**\
+`Mr. Bragg, who defeated Patrick Timmins, will face a Republican and an independent in the general election.`\
+https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html
+
 **Alvin Bragg, the Democratic Incumbent, wins primary for district attorney.**\
 `By Hurubie Meko`\
 https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html

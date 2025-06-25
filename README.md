@@ -1,3 +1,11 @@
+**Hanif Wins Re-election in Council Contest Defined by Israel and Gaza**\
+`Shahana Hanif defeated Maya Kornberg, a first-time candidate, in an acrimonious race for a City Council seat in Brooklyn.`\
+https://nytimes.com/2025/06/24/nyregion/shahana-hanif-city-council.html
+
+**Kyrie Irving to decline player option, sign 3-year extension with Mavs: Source**\
+`Irving, 33, is recovering from a torn ACL suffered in early March.`\
+https://nytimes.com/athletic/6449682/2025/06/24/kyrie-irving-mavericks-contract-signed-option-declined-nba/
+
 **The Most Detailed Map of the N.Y.C. Mayoral Primary**\
 `See neighborhood-level election results from the first round of the mayoral race.`\
 https://nytimes.com/interactive/2025/06/24/us/elections/nyc-mayor-primary-results-precinct-map.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complicatio
 **Key Member of Musk’s DOGE Resigns From Government**\
 `Edward Coristine, the 19-year-old who was hired by Elon Musk to help slash the government bureaucracy, became a public symbol of his team.`\
 https://nytimes.com/2025/06/24/us/politics/big-balls-edward-coristine-musk-doge.html
-
-**We asked N.Y.C. celebrities to share their ranked-choice ballots. Here’s what they said.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/we-asked-nyc-celebrities-to-share-their-ranked-choice-ballots-heres-what-they-said
-
-**In Vermont, a Soccer Team That Plays for the Planet**\
-`The Vermont Green Football Club champions environmental work and draws sold-out crowds, with the help of free ice cream.`\
-https://nytimes.com/2025/06/24/climate/vermont-green-soccer-climate.html
 
