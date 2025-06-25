@@ -1,3 +1,19 @@
+**Finding Yourselves in a Gloriously Stressful Sci-Fi Adventure**\
+`The Alters is an extraordinary survival game that explores miscommunication, human fallibility and conflicting motivations.`\
+https://nytimes.com/2025/06/25/arts/the-alters-review.html
+
+**This Cold Noodle Salad With Spicy Peanut Sauce Is Really Cool**\
+`Hetty Lui McKinnon’s recipe is refreshing and flexible — use whatever vegetables you like or have on hand.`\
+https://nytimes.com/2025/06/25/dining/healthy-cold-noodle-salad-with-spicy-peanut-sauce-recipe.html
+
+**The Windup: NL Central deserves some shine**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6450100/2025/06/25/chase-burns-reds-nl-central-the-windup/
+
+**The Bounce: Cooper Flagg will be NBA Draft's No. 1 pick, but are you ready for other chaos?**\
+`Cooper Flagg and Dylan Harper are expected to be the top picks of the NBA Draft. From there? Nobody really knows what will happen`\
+https://nytimes.com/athletic/6450550/2025/06/25/cooper-flagg-nba-draft-predictions-trade-the-bounce/
+
 **A Loved One was Diagnosed With Dementia. Now What?**\
 `Families and experts share their best advice for navigating and coping.`\
 https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
