@@ -1,3 +1,27 @@
+**The New York Times in Print for Wednesday, June 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/25/todays-new-york-times
+
+**The Bezos-Sánchez Wedding and the Triumph of Tacky**\
+`In the wake of President Trump’s second election, it’s the luxe life at full volume.`\
+https://nytimes.com/2025/06/25/opinion/jeff-bezos-lauren-sanchez-wedding.html
+
+**Zohran Mamdani’s Success Is Especially Meaningful for Muslim New Yorkers**\
+`Mr. Mamdani is Muslim, and his faith played a role in expanding the diverse coalition that propelled his campaign.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-muslim-nyc.html
+
+**Masyn Winn drives in 4, but speed steals the show in Cardinals' thriller over Cubs**\
+`Winn slid into home, scoring what would be the game's decisive run in St. Louis' 8-7 win over Chicago.`\
+https://nytimes.com/athletic/6449683/2025/06/25/cardinals-win-cubs-masyn-winn-slide-home/
+
+**In a season of highs, Crow-Armstrong and the Cubs hit a low point in loss to Cardinals**\
+`Chicago's MVP candidate made a mental mistake on defense and a questionable decision at the plate in the one-run loss.`\
+https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-night/
+
+**Canada handles 9-man El Salvador, tops Gold Cup group and eyes USMNT semifinal**\
+`Jonathan David and Tajon Buchanan scored after two Salvadoran red cards, as Canada rebounded from a draw vs. Curaçao to win its group`\
+https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
+
 **Canada plods to El Salvador win, tops Gold Cup group and eyes USMNT semifinal**\
 `Goals from Jonathan David and Tajon Buchanan came after a lot of fouls from El Salvador and lengthy stoppage time to give Canada a 2-0 win.`\
 https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
