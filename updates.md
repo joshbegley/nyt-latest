@@ -1,3 +1,11 @@
+**Forget Therapy. Do Men Need Book Clubs?**\
+`Men are leaving fiction reading behind. Some people want to change that.`\
+https://nytimes.com/2025/06/25/style/fiction-books-men-reading.html
+
+**A Loved One Was Diagnosed With Dementia. Now What?**\
+`Families and experts share their best advice for navigating and coping.`\
+https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
+
 **Usha Vance’s New Life in Trump’s Washington**\
 `Old friends are bewildered by the turn taken by the second lady, a onetime Democrat and former litigator for a San Francisco firm. Others say she’s happy in the role.`\
 https://nytimes.com/2025/06/25/us/politics/usha-vance.html
