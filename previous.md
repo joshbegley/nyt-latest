@@ -1,3 +1,15 @@
+**Young Muslims Loved Zohran Mamdani, and Their Parents Listened to Them**\
+`Many Muslim Americans in New York City were impressed by Mr. Mamdani’s campaign and thrilled at being able to see themselves reflected in a mayoral candidate.`\
+https://nytimes.com/2025/06/25/nyregion/nyc-voters-muslim-zohran-mamdani.html
+
+**Is Mamdani Really a Gift to Trump and the G.O.P.?**\
+`Republicans have gleefully seized on Zohran Mamdani, a democratic socialist, as a fresh boogeyman. The reality could be more complicated.`\
+https://nytimes.com/2025/06/25/us/politics/mamdani-trump-republicans.html
+
+**Trump Urges Congress to ‘Kill’ Voice of America as Its Leader Defends Gutting It**\
+`In a heated hearing, Kari Lake, the Trump ally in charge of the federally funded international broadcasting network, called the media agency “a rotten piece of fish” that should be defunded.`\
+https://nytimes.com/2025/06/25/us/politics/trump-lake-voice-of-america.html
+
 **‘Trophy Boys’ Review: The Nerds’ Case Against Feminism**\
 `In an Off Broadway play, young men on a high school debate team prepare to argue an uncomfortable case.`\
 https://nytimes.com/2025/06/25/theater/trophy-boys-review-emmanuelle-mattana.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6451687/2025/06/25/nba-draft-2025-best-available-pl
 **Knicks ask permission to interview Pels assistant James Borrego: Sources**\
 `Borrego would be the fourth known candidate to meet with the Knicks about vacant head coaching position.`\
 https://nytimes.com/athletic/6451735/2025/06/25/james-borrego-knicks-pelicans-coaching-search/
-
-**As Donors Work Against Mamdani, Top Democrats Stop Short of Backing Him**\
-`After Zohran Mamdani’s performance in the New York City mayoral primary, Republicans and suburban Democrats attacked him, and party leaders seemed to be hedging their bets.`\
-https://nytimes.com/2025/06/25/nyregion/mamdani-democrats-schumer-jeffries.html
-
-**From Serial Productions: The Retrievals, Season 1**\
-`Dozens of women seeking to become mothers came to a fertility clinic at Yale. A five-part narrative series explores the shocking events that unfolded there.`\
-https://nytimes.com/article/serial-the-retreivals-season-one.html
-
-**Federal Judge Blocks Trump From Collecting Data on Small-Dollar Border Transactions**\
-`So far, the courts have sided with business owners who sued after their money service businesses were caught up in President Trump’s crackdown on cartels.`\
-https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.html
 
