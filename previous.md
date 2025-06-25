@@ -1,3 +1,7 @@
+**See Which Neighborhoods and Groups Drove Mamdani’s Success in the N.Y.C. Primary**\
+`A Times analysis shows where Zohran Mamdani has built a strong lead in the votes counted so far.`\
+https://nytimes.com/interactive/2025/06/25/nyregion/nyc-mayor-election-results-map-mamdani-cuomo.html
+
 **Iranians and Israelis Begin Tense Return to Normal Life**\
 `As a cease-fire held for a second day, people in both countries were still haunted by the terrifying moments of a brief but intense war.`\
 https://nytimes.com/2025/06/25/world/middleeast/iran-israel-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/us/politics/growth-taxes-republican-policy-bill.h
 **Kutter Crawford to have wrist surgery, 'likely' out for the season**\
 `Crawford's latest setback doesn't immediately change the Red Sox's rotation plans but does bite into their overall depth.`\
 https://nytimes.com/athletic/6451202/2025/06/25/kutter-crawford-red-sox-wrist-surgery/
-
-**Israelis and Iranians Embrace a Return to Normalcy as Truce Holds**\
-`After a shaky start to the U.S.-brokered cease-fire between Israel and Iran, a sense of normalcy returned to the warring countries on Wednesday as the truce appeared to hold.`\
-https://nytimes.com/video/world/middleeast/100000010250203/israel-iran-ceasefire-.html
 

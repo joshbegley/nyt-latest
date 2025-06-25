@@ -1,3 +1,7 @@
+**See Which Neighborhoods and Groups Drove Mamdani’s Success in the N.Y.C. Primary**\
+`A Times analysis shows where Zohran Mamdani has built a strong lead in the votes counted so far.`\
+https://nytimes.com/interactive/2025/06/25/nyregion/nyc-mayor-election-results-map-mamdani-cuomo.html
+
 **Iranians and Israelis Begin Tense Return to Normal Life**\
 `As a cease-fire held for a second day, people in both countries were still haunted by the terrifying moments of a brief but intense war.`\
 https://nytimes.com/2025/06/25/world/middleeast/iran-israel-cease-fire.html
