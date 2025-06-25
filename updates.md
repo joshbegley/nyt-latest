@@ -1,3 +1,11 @@
+**U.S. Is Creating 2 New Expanded Military Zones Along Border With Mexico**\
+`The plans for strips of land in Texas and Arizona are the latest step to militarize the boundary to stem an already dwindling number of migrant crossings.`\
+https://nytimes.com/2025/06/25/us/politics/us-is-creating-2-new-expanded-military-zones-along-border-with-mexico.html
+
+**NATO Agrees to a Big Increase in Military Spending, Pleasing Trump**\
+`President Trump has long pushed the European allies to be more self-sufficient on defense, relying less on American protection. NATO committed to a major increase over the next decade.`\
+https://nytimes.com/2025/06/25/world/europe/nato-increase-military-spending-trump.html
+
 **NATO Agrees to a Big Increase in Military Spending, Pleasing Trump**\
 `President Trump has long pushed the European allies to be more self-sufficient on defense, relying less on American protection. NATO committed to a major increase over the next decade.`\
 https://nytimes.com/2025/06/25/world/europe/nato-agrees-to-a-big-increase-in-military-spending-pleasing-trump.html
