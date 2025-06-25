@@ -1,3 +1,15 @@
+**Zohran Mamdani’s Success Is Especially Meaningful for Muslim New Yorkers**\
+`Mr. Mamdani is Muslim, and his faith played a role in expanding the diverse coalition that propelled his campaign.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-muslim-nyc.html
+
+**Masyn Winn drives in 4, but speed steals the show in Cardinals' thriller over Cubs**\
+`Winn slid into home, scoring what would be the game's decisive run in St. Louis' 8-7 win over Chicago.`\
+https://nytimes.com/athletic/6449683/2025/06/25/cardinals-win-cubs-masyn-winn-slide-home/
+
+**In a season of highs, Crow-Armstrong and the Cubs hit a low point in loss to Cardinals**\
+`Chicago's MVP candidate made a mental mistake on defense and a questionable decision at the plate in the one-run loss.`\
+https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-night/
+
 **Everton's search for a right-winger (or two): From Weah to Doak, potential targets home and abroad**\
 `David Moyes is desperate to boost his attacking output, and that flank is a key area to strengthen. The Athletic assesses the options...`\
 https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fellows-mcatee-bakayoko/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6447914/2025/06/25/manchester-united-transfers-sale
 **Euro 2025: Poland team guide - first-timers and outsiders but beware deadly striker Pajor**\
 `From players to watch to pedigree and much more, we set out what to epect from Poland at the European Championship`\
 https://nytimes.com/athletic/6418941/2025/06/25/poland-team-guide-euro-2025/
-
-**Euro 2025: Germany team guide - a side rebuilt and revived after World Cup humiliation**\
-`From players to watch to pedigree and much more, we set out what to epect from Germany at the European Championship`\
-https://nytimes.com/athletic/6418397/2025/06/25/germany-team-guide-euro-2025/
-
-**Justin Brannan Concedes N.Y.C. Comptroller Primary to Mark Levine**\
-`Though the race had not been called by The Associated Press, Mr. Levine, the Manhattan borough president, had a significant lead ahead of Justin Brannan, a member of the City Council.`\
-https://nytimes.com/2025/06/25/nyregion/nyc-comptroller-primary-mark-levine.html
-
-**Marcus Thuram on Inter and the Champions League final: 'It was not the last chance'**\
-`The striker says Giannis Antetokounmpo's words about NBA legend Michael Jordan have helped him to put the UCL final loss into perspective`\
-https://nytimes.com/athletic/6448215/2025/06/25/marcus-thuram-inter-milan-giannis-antetokounmpo/
 
