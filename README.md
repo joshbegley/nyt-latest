@@ -1,5 +1,9 @@
+**What to Know About the Antigovernment Protests in Kenya**\
+`Thousands demonstrated on Wednesday to express their anger over government corruption and police brutality.`\
+https://nytimes.com/2025/06/25/world/africa/kenya-protests-william-ruto.html
+
 **Mamdani Reflects on His Astonishing Rise and the Challenges Ahead**\
-`In a post-election interview, Zohran Mamdani, the likely winner of the Democratic primary for mayor of New York, said he took some lessons from Donald Trump’s focus on cost of living.`\
+`In a post-election interview, Zohran Mamdani, the likely winner of the Democratic primary for mayor of New York, said he took some lessons from Donald Trump’s focus on the cost of living.`\
 https://nytimes.com/2025/06/25/nyregion/zohran-mamdani-interview.html
 
 **Less is more for Blackhawks' Connor Bedard as he prepares for his third NHL season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/briefing/thursday-briefing-trump-says-hell-meet-w
 **Why Is World Hunger America’s Problem?**\
 `We can’t fix everything. But if it’s cheap and easy to save lives, why wouldn’t we?`\
 https://nytimes.com/2025/06/25/opinion/american-aid-africa.html
-
-**Broadway Musical About Betty Boop Is Fourth to Close Post-Tonys**\
-`‘Boop! The Musical’ imagines the cartoon character leaving 1920s filmdom for 2020s New York City. Ticket sales were weak.`\
-https://nytimes.com/2025/06/25/theater/boop-musical-broadway-closing.html
 
