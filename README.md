@@ -1,3 +1,15 @@
+**Mandaric rules out Sheffield Wednesday takeover bid**\
+`Having flown to London on Monday, the serial club-owner has issued a statement to say he is not in a position to buy the club.`\
+https://nytimes.com/athletic/6450517/2025/06/25/sheffield-wednesday-takeover-milan-mandaric/
+
+**After a dozen starts, Justin Verlander is still winless with Giants**\
+`"You can't expect too many wins when you go out there every time and give up three-plus runs," Verlander said of his performance this year.`\
+https://nytimes.com/athletic/6450162/2025/06/25/justin-verlander-giants-starts-record/
+
+**Eurostar Trains Delayed and Canceled After Cable Theft**\
+`The company running the passenger service between Britain and continental Europe advised travelers to “cancel or postpone.”`\
+https://nytimes.com/2025/06/25/world/europe/eurostar-severe-delays-theft-cable.html
+
 **After early thills, Trevor Zegras departs the Ducks with a legacy of what-ifs**\
 `Zegras, at one point, seemed to be a marketable star of the future. So what went wrong in Anaheim?`\
 https://nytimes.com/athletic/6449611/2025/06/25/trevor-zegras-ducks-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/business/dealbook/openai-autonomous-vehicles-musk
 **Vietnam Abolishes Death Penalty for Embezzlement and Other Crimes**\
 `The move, one official said, would help the country extradite suspects from abroad. It would also spare the life of a recently convicted tycoon.`\
 https://nytimes.com/2025/06/25/world/asia/vietnam-death-penalty-law.html
-
-**The Israeli military says the war set back Iran’s nuclear program by ‘years.’**\
-`The assertion comes as questions swirl about the status of Iran’s nuclear program after U.S. and Israeli strikes.`\
-https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/the-israeli-military-says-the-war-set-back-irans-nuclear-program-by-years
-
-**Senators' fans trade proposals and UFA pitches: Miller? Dobson? Ehlers?**\
-`We opened up the mailbag a few days before July 1 and took in the best trade proposals and unrestricted free-agent pitches available.`\
-https://nytimes.com/athletic/6435310/2025/06/25/ehlers-miller-ufas-senators-trade/
-
-**How the NHL’s plus-minus dud landed a $6.4 million payday**\
-`“On paper, it wasn’t pretty. But if you dig into it, it wasn’t nearly as egregious as it looks.”`\
-https://nytimes.com/athletic/6449042/2025/06/25/bruins-mason-lohrei-contract/
 
