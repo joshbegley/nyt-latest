@@ -1,3 +1,7 @@
+**Dodgers come to Denver looking to pile on wins, improve some ugly stat lines**\
+`"You need to beat the teams you're supposed to beat," Dodgers manager Dave Roberts said. "That's just the way it is."`\
+https://nytimes.com/athletic/6450027/2025/06/25/dodgers-rockies-michael-conforto-shohei-ohtani/
+
 **Takeaways From Hard Fork’s Interview With OpenAI’s Sam Altman**\
 `Mr. Altman discussed President Trump’s understanding of artificial intelligence, the war for A.I. talent and OpenAI’s relationship with Microsoft.`\
 https://nytimes.com/2025/06/25/technology/hard-fork-sam-altman.html
@@ -22,7 +26,7 @@ https://nytimes.com/2025/06/25/nyregion/mamdani-muslim-nyc.html
 `Winn slid into home, scoring what would be the game's decisive run in St. Louis' 8-7 win over Chicago.`\
 https://nytimes.com/athletic/6449683/2025/06/25/cardinals-win-cubs-masyn-winn-slide-home/
 
-**In a season of highs, Crow-Armstrong and the Cubs hit a low point in loss to Cardinals**\
+**In a season of highs, Pete Crow-Armstrong and the Cubs hit low point in loss to Cardinals**\
 `Chicago's MVP candidate made a mental mistake on defense and a questionable decision at the plate in the one-run loss.`\
 https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-night/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fell
 **Wednesday Briefing**\
 `An Iran-Israel truce takes hold.`\
 https://nytimes.com/2025/06/25/briefing/iran-israel-nato.html
-
-**'Vieira said, 'You alright, Brooke? I've heard a lot of good things about you.' He's helped me a lot'**\
-`The former Arsenal full-back is loving life in Italy after leaving home - and playing his part for the Under-21s in Slovakia too`\
-https://nytimes.com/athletic/6445041/2025/06/25/brooke-norton-cuffy-arsenal-vieira-genoa-england/
 
