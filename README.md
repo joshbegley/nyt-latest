@@ -1,3 +1,7 @@
+**Jumaane Williams Wins Democratic Primary for Public Advocate**\
+`Mr. Williams, a progressive who has served as public advocate since 2019, has been a forceful critic of Mayor Eric Adams. He faced two more moderate challengers.`\
+https://nytimes.com/2025/06/24/nyregion/nyc-public-advocate-jumaane-williams.html
+
 **Hanif Wins Re-election in Council Contest Defined by Israel and Gaza**\
 `Shahana Hanif defeated Maya Kornberg, a first-time candidate, in an acrimonious race for a City Council seat in Brooklyn.`\
 https://nytimes.com/2025/06/24/nyregion/shahana-hanif-city-council.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/opinion/strikes-iran-intelligence-report-nuclear-
 **Online and IRL, Trump Offers a Window Into His Psyche**\
 `Other countries used to need spies to discern the thinking of American presidents. Now they just need a Truth Social account.`\
 https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complications.html
-
-**Key Member of Musk’s DOGE Resigns From Government**\
-`Edward Coristine, the 19-year-old who was hired by Elon Musk to help slash the government bureaucracy, became a public symbol of his team.`\
-https://nytimes.com/2025/06/24/us/politics/big-balls-edward-coristine-musk-doge.html
 

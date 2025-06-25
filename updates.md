@@ -1,3 +1,11 @@
+**Hanif Wins Re-election in Council Contest Defined by Israel and Gaza**\
+`Shahana Hanif defeated Maya Kornberg, a first-time candidate, in an acrimonious race for a City Council seat in Brooklyn.`\
+https://nytimes.com/2025/06/24/nyregion/shahana-hanif-city-council.html
+
+**Kyrie Irving to decline player option, sign 3-year extension with Mavs: Source**\
+`Irving, 33, is recovering from a torn ACL suffered in early March.`\
+https://nytimes.com/athletic/6449682/2025/06/24/kyrie-irving-mavericks-contract-signed-option-declined-nba/
+
 **The Most Detailed Map of the N.Y.C. Mayoral Primary**\
 `See neighborhood-level election results from the first round of the mayoral race.`\
 https://nytimes.com/interactive/2025/06/24/us/elections/nyc-mayor-primary-results-precinct-map.html
