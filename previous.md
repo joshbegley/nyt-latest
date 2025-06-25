@@ -1,3 +1,15 @@
+**Growth Claims Behind Trump’s Big Policy Bill Rarely Pan Out in Reality**\
+`A retrospective on four previous Republican-driven tax-cut packages found that the results always come up short compared to bullish predictions of economic booms and lower deficits.`\
+https://nytimes.com/2025/06/25/us/politics/growth-taxes-republican-policy-bill.html
+
+**Kutter Crawford to have wrist surgery, 'likely' out for the season**\
+`Crawford's latest setback doesn't immediately change the Red Sox's rotation plans but does bite into their overall depth.`\
+https://nytimes.com/athletic/6451202/2025/06/25/kutter-crawford-red-sox-wrist-surgery/
+
+**Israelis and Iranians Embrace a Return to Normalcy as Truce Holds**\
+`After a shaky start to the U.S.-brokered cease-fire between Israel and Iran, a sense of normalcy returned to the warring countries on Wednesday as the truce appeared to hold.`\
+https://nytimes.com/video/world/middleeast/100000010250203/israel-iran-ceasefire-.html
+
 **León Krier, Architect Whose Classical Work Won a Royal Ally, Dies at 79**\
 `Although his many of his designs remain unbuilt — with a few exceptions, including King Charles’s Poundbury — he was a driving force in the New Urbanism movement.`\
 https://nytimes.com/2025/06/25/arts/design/leon-krier-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6451242/2025/06/25/nascar-antitrust-lawsuit-financi
 **N.I.H. Memo Pauses Cancellations of Medical Research Grants**\
 `The directive, in a memo issued Tuesday, came after two court rulings that questioned the Trump administration’s swift cuts to funding.`\
 https://nytimes.com/2025/06/25/science/nih-grant-terminations-halted.html
-
-**Valery Panov, Ballet Star Who Fought to Leave the U.S.S.R., Dies at 87**\
-`Trying to move to Israel with his ballerina wife, he was harassed and jailed while becoming an international cause célèbre and a Cold War symbol of the plight of Soviet Jews.`\
-https://nytimes.com/2025/06/25/arts/dance/valery-panov-dead.html
-
-**Fred Espenak, Astrophysicist Known as Mr. Eclipse, Dies at 73**\
-`He chased eclipses for five decades, wrote several books about them and worked with NASA to make data accessible to nonscientist sky gazers.`\
-https://nytimes.com/2025/06/25/science/space/fred-espenak-dead.html
-
-**Why the Canucks rolled the dice on Evander Kane, and what comes next**\
-`Kane joins his hometown team with a fair bit of baggage accumulated over a lengthy NHL career.`\
-https://nytimes.com/athletic/6450767/2025/06/25/canucks-evander-kane-trade-nhl/
 
