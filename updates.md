@@ -1,3 +1,7 @@
+**Trade grades: How can Porziņģis help Hawks' offense? Do Nets have new plan?**\
+`The Celtics made another big trade to shed salary. Do they have other big moves in mind?`\
+https://nytimes.com/athletic/6449460/2025/06/24/kristaps-porzingis-celtics-hawks-nets-trade-nba/
+
 **NBA trade grades: How can Porziņģis help Hawks' offense? Do Nets have new plan?**\
 `The Celtics made another big trade to shed salary. Do they have other big moves in mind?`\
 https://nytimes.com/athletic/6449460/2025/06/24/kristaps-porzingis-celtics-hawks-nets-trade-nba/
