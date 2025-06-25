@@ -1,40 +1,40 @@
-**Boston Legacy FC names Filipa Patão as club’s inaugural coach**\
-`The 36-year-old, who spent the last five years as head coach of Benfica's women's team, begins her role in July pending visa approval.`\
-https://nytimes.com/athletic/6449334/2025/06/25/boston-legacy-fc-filipa-patao-head-coach/
+**The Israeli military says the war set back Iran’s nuclear program by ‘years.’**\
+`The assertion comes as questions swirl about the status of Iran’s nuclear program after U.S. and Israeli strikes.`\
+https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/the-israeli-military-says-the-war-set-back-irans-nuclear-program-by-years
 
-**Former Arsenal assistant Bould set to join QPR in defensive coaching role**\
-`Bould's position at the Championship club will focus on developing young defenders.`\
-https://nytimes.com/athletic/6450240/2025/06/25/steve-bould-qpr-coach/
+**Senators' fans trade proposals and UFA pitches: Miller? Dobson? Ehlers?**\
+`We opened up the mailbag a few days before July 1 and took in the best trade proposals and unrestricted free-agent pitches available.`\
+https://nytimes.com/athletic/6435310/2025/06/25/ehlers-miller-ufas-senators-trade/
 
-**Atletico Madrid in talks to sign USMNT's Cardoso from Betis**\
-`Atletico have held an interest in signing the midfielder with club-to-club negotiations in Madrid taking place this week.`\
-https://nytimes.com/athletic/6399268/2025/06/25/atletico-madrid-transfer-news-cardoso-betis/
+**How the NHL’s plus-minus dud landed a $6.4 million payday**\
+`“On paper, it wasn’t pretty. But if you dig into it, it wasn’t nearly as egregious as it looks.”`\
+https://nytimes.com/athletic/6449042/2025/06/25/bruins-mason-lohrei-contract/
 
-**F1 Academy’s Netflix debut opens doors, but struggles to tell the series' full story**\
-`F1 Academy has launched a Netflix series similar to 'Drive to Survive' - but does it achieve what it sets out to do? `\
-https://nytimes.com/athletic/6449049/2025/06/25/f1-academy-netflix-series-review/
+**Lowetide: The Oilers cannot trade McDavid. But what would a deal even look like?**\
+`A McDavid trade would mean something went badly wrong from an ownership and management point of view in Edmonton.`\
+https://nytimes.com/athletic/6446855/2025/06/25/oilers-connor-mcdavid-contract-trade-offers/
 
-**Barcelona to make Camp Nou return in partial reopening for pre-season match**\
-`The Camp Nou will host Barca's annual Joan Gamper trophy on August 10 with a reduced capacity due to the unfinished works.`\
-https://nytimes.com/athletic/6450257/2025/06/25/barcelona-camp-nou-return-date-confirmed/
+**Penguins' NHL Draft, free agency, trades: Everything to know**\
+`What will Kyle Dubas do this summer? Let's examine the possibilities as the Penguins enter a crucially important 10-day period.`\
+https://nytimes.com/athletic/6447241/2025/06/25/penguins-nhl-draft-free-agency-trades/
 
-**With online threats mounting, Twins' first line of defense is a former policeman**\
-`A struggling Twins pitcher's wife received an online threat. The man tasked with helping? A former policeman who doubles as a football coach`\
-https://nytimes.com/athletic/6449437/2025/06/25/mlb-players-twins-online-threats-defense/
+**Winnipeg's next move after Jonathan Toews; Nikolaj Ehlers and contingencies for his departure**\
+`With Toews officially signing July 1, the Jets have momentum and the opportunity to keep it going with a good pick at No. 28.`\
+https://nytimes.com/athletic/6448325/2025/06/25/winnipeg-jets-next-move-jonathan-toews-nikolaj-ehlers/
 
-**Yankees' biggest trade deadline needs: Where they should — and shouldn't — focus**\
-`In a stock up-stock down format, here's where the Yankees should focus, and where they shouldn't as much, leading up to the trade deadline.`\
-https://nytimes.com/athletic/6449074/2025/06/25/yankees-trade-deadline-needs/
+**49ers see Gus Bradley as 'huge addition' to defense as he navigates role reversal**\
+`Fourteen years after Bradley hired Robert Saleh as a quality control coach, Bradley is now working under the 49ers defensive coordinator.`\
+https://nytimes.com/athletic/6433116/2025/06/25/49ers-coaches-gus-bradley-robert-saleh/
 
-**Kirby 'really respected' Wiegman honesty in 'tough' Euro 2025 exclusion**\
-`The 31-year-old Brighton and Hove Albion forward announced her retirement in June.`\
-https://nytimes.com/athletic/6448505/2025/06/25/fran-kirby-england-squad-sarina-wiegman/
+**Who will Chicago draft third? Michael Misa, Anton Frondell among top candidates**\
+`The Blackhawks could have one of the youngest defenses in the NHL come next season.`\
+https://nytimes.com/athletic/6448368/2025/06/25/blackhawks-nhl-draft-free-agency-michael-misa/
 
-**Kenyans Return to the Streets a Year After Deadly Tax Protests**\
-`The police fired tear gas at demonstrators who were expressing anger at the government over growing economic hardship and a lack of accountability for killings at earlier rallies.`\
-https://nytimes.com/2025/06/25/world/africa/kenya-protests-ruto.html
+**Looking back at the Maple Leafs' disastrous 2020 draft, 5 years later**\
+`The Leafs made 12 picks in the 2020 draft. Five years later, not a single one has played NHL games.`\
+https://nytimes.com/athletic/6447865/2025/06/25/maple-leafs-2020-draft-niemela-villeneuve-dubas/
 
-**Dave Dombrowski talks trade deadline: How the Phillies aim to address their biggest need**\
-`Dombrowski laid out what is at stake for the Phillies, and how his front office will attack its most obvious need: upgrading the bullpen. `\
-https://nytimes.com/athletic/6450259/2025/06/25/dave-dombrowski-phillies-mlb-trade-deadline-bullpen/
+**What I'm watching around the Red Wings as NHL offseason heats up**\
+`Which names should Detroit fans keep an eye on as NHL teams begin to reshape their rosters this summer?`\
+https://nytimes.com/athletic/6448546/2025/06/25/red-wings-offseason-patrick-kane-steve-yzerman/
 
