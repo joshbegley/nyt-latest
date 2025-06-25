@@ -1,3 +1,7 @@
+**‘Trophy Boys’ Review: The Nerds’ Case Against Feminism**\
+`In an Off Broadway play, young men on a high school debate team prepare to argue an uncomfortable case.`\
+https://nytimes.com/2025/06/25/theater/trophy-boys-review-emmanuelle-mattana.html
+
 **Rays, MLB have held preliminary talks about home playoff locations: Sources**\
 `Steinbrenner Field could be viable for early rounds. But an appearance in the ALCS or World Series would pose logistical concerns.`\
 https://nytimes.com/athletic/6451763/2025/06/25/tampa-bay-rays-playoff-locations-steinbrenner-field/
