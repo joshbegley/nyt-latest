@@ -1,3 +1,15 @@
+**Live Updates: Mamdani’s Success in Mayoral Primary Reverberates Beyond New York City**\
+`While Zohran Mamdani pledges major changes in the city after his expected primary win, national Democrats look for lessons ahead of the midterms and Republicans see a new political target.`\
+https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election
+
+**Here’s the latest.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election/heres-the-latest
+
+**Marie-Philip Poulin wins PWHL MVP, Forward of the Year**\
+`The PWHL announced the winners of four other major awards at a ceremony on Wednesday afternoon. Here are the results and the finalists.`\
+https://nytimes.com/athletic/6450832/2025/06/25/pwhl-awards-2025-mvp-marie-philip-poulin/
+
 **A Shock in New York’s Mayoral Primary**\
 `Reaction to Zohran Mamdani’s upset of Andrew Cuomo in the Democratic primary for mayor of New York. Also: President Trump’s reversals; junk food.`\
 https://nytimes.com/2025/06/25/opinion/new-york-mayor-primary.html
