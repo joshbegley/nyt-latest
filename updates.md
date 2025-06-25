@@ -1,3 +1,5 @@
+
+
 **Pioli leaves position as Al Nassr head coach**\
 `Pioli joined Al Nassr three matches into their 2024-25 Saudi Pro League campaign and led the club to a third-placed finish. `\
 https://nytimes.com/athletic/6450407/2025/06/25/stefano-pioli-manager-saudi-al-nassr/
