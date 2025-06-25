@@ -1,3 +1,7 @@
+**7 Israeli Soldiers Killed in Gaza, Military Says**\
+`The Israeli military said the soldiers were killed in the southern city of Khan Younis, and that they were part of a team finding and demolishing tunnels.`\
+https://nytimes.com/2025/06/25/world/middleeast/israel-soldiers-killed-gaza-khan-younis.html
+
 **Axiom-4 Mission Takes Off for the I.S.S.**\
 `Hungary, India and Poland sent astronauts to the International Space Station for the first time by paying Axiom Space for the journey.`\
 https://nytimes.com/video/science/space/100000010249283/spacex-launch-axiom-mission-4-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/25/us/trump-nato-news
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/25/crosswords/spelling-bee-forum.html
-
-**Here’s the latest.**\
-`By Adam Rasgon, Michael D. Shear and Francesca Regalado`\
-https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/heres-the-latest
 
