@@ -1,3 +1,19 @@
+**These Best Protein Bars Are the Ones You Make at Home**\
+`This simple recipe from Genevieve Ko gets the bulk of its protein from nuts, not powders, for an especially delicious on-the-go snack.`\
+https://nytimes.com/2025/06/25/dining/how-to-make-protein-bars.html
+
+**Trump Administration Says California’s Trans Sports Policies Discriminate Against Girls**\
+`The Education Department cited Gov. Gavin Newsom’s own words questioning transgender girls in female sports, and said the state had violated federal civil rights law.`\
+https://nytimes.com/2025/06/25/us/trump-california-trans-athletes.html
+
+**NASCAR antitrust lawsuit: Judge orders 12 teams to disclose some financial records**\
+`NASCAR's non-suing teams will have to turn over only limited financial information to the league, a judge ruled Wednesday.`\
+https://nytimes.com/athletic/6451242/2025/06/25/nascar-antitrust-lawsuit-financial-records/
+
+**N.I.H. Memo Pauses Cancellations of Medical Research Grants**\
+`The directive, in a memo issued Tuesday, came after two court rulings that questioned the Trump administration’s swift cuts to funding.`\
+https://nytimes.com/2025/06/25/science/nih-grant-terminations-halted.html
+
 **Valery Panov, Ballet Star Who Fought to Leave the U.S.S.R., Dies at 87**\
 `Trying to move to Israel with his ballerina wife, he was harassed and jailed while becoming an international cause célèbre and a Cold War symbol of the plight of Soviet Jews.`\
 https://nytimes.com/2025/06/25/arts/dance/valery-panov-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/25/us/politics/housing-department-headquarters-move.
 **England Under-21s reach Euros final after 2-1 win over the Netherlands**\
 `Two goals from Liverpool midfielder Harvey Elliott ensured that Lee Carsley’s side will play in back-to-back finals.`\
 https://nytimes.com/athletic/6451198/2025/06/25/england-under-21-euros-netherlands/
-
-**P. Adams Sitney, Leading Scholar of Avant-Garde Film, Dies at 80**\
-`He championed works of cinema that were destined never to have a commercial breakthrough — which, to him, was the whole point.`\
-https://nytimes.com/2025/06/25/movies/p-adams-sitney-dead.html
-
-**The Edge, U2’s Guitarist, Becomes Irish Citizen After 62 Years There**\
-`The musician born David Evans was one of more than 7,500 people who became citizens in a series of ceremonies in southwest Ireland this week.`\
-https://nytimes.com/2025/06/25/arts/music/u2-the-edge-irish-citizenship.html
-
-**Before Same-Sex Marriage Was U.S. Law, They Said ‘I Do’ in Massachusetts**\
-`The couples who exchanged vows in May 2004 helped usher in a period of profound change, leading to the U.S. Supreme Court ruling that same-sex marriage is a constitutional right.`\
-https://nytimes.com/2025/06/25/us/same-sex-marriage-massachusetts-obergefell.html
-
-**Trump says the U.S. will meet with Iran but downplays the need for a nuclear agreement.**\
-`By Tyler Pager`\
-https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-says-the-us-will-meet-with-iran-but-downplays-the-need-for-a-nuclear-agreement
 
