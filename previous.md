@@ -1,3 +1,23 @@
+**Before Same-Sex Marriage Was U.S. Law, They Said ‘I Do’ in Massachusetts**\
+`The couples who exchanged vows in May 2004 helped usher in a period of profound change, leading to the U.S. Supreme Court ruling that same-sex marriage is a constitutional right.`\
+https://nytimes.com/2025/06/25/us/same-sex-marriage-massachusetts-obergefell.html
+
+**Trump says the U.S. will meet with Iran but downplays the need for a nuclear agreement.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-says-the-us-will-meet-with-iran-but-downplays-the-need-for-a-nuclear-agreement
+
+**British Man Is Charged in Attempted Mock Wedding With 9-Year-Old at Disneyland Paris**\
+`The French authorities said a 39-year-old had attempted to conduct the ceremony with a minor on Saturday. The British police say he is a convicted sex offender.`\
+https://nytimes.com/2025/06/25/world/europe/disneyland-paris-mock-wedding-britain.html
+
+**Scientists Retrace 30,000-Year-Old Sea Voyage, in a Hollowed-Out Log**\
+`Japanese researchers turned to “experimental archaeology” to study how ancient humans navigated powerful ocean currents and migrated offshore.`\
+https://nytimes.com/2025/06/25/science/anthropology-ocean-migration-japan.html
+
+**Did Baby Talk Give Rise to Language?**\
+`The way that human adults talk to young children is unique among primates, a new study found. That might be one secret to our species’ grasp of language.`\
+https://nytimes.com/2025/06/25/science/language-evolution-apes.html
+
 **Live Updates: Mamdani’s Success in Mayoral Primary Reverberates Beyond New York City**\
 `While Zohran Mamdani pledges major changes in the city after his expected primary win, national Democrats look for lessons ahead of the midterms and Republicans see a new political target.`\
 https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/25/opinion/new-york-mayor-primary.html
 **Pulisic will be a 'key player' for Milan next season, says sporting director**\
 `The 26-year-old forward recorded 17 goals and 12 assists last season for the the club last campaign.`\
 https://nytimes.com/athletic/6451008/2025/06/25/usmnt-christian-pulisic-milan/
-
-**Trump Threatens Spain With Tough Trade Deal Over Defense Spending**\
-`President Trump laid into Spain during the NATO summit at The Hague on Wednesday, after it broke ranks with the other member states and declined to increase its military spending to 5 percent of its economic output over a decade.`\
-https://nytimes.com/video/us/politics/100000010250068/trump-nato-spain.html
-
-**Michigan tops Miami, Nebraska, Stanford for key WR target Zion Robinson**\
-`Sherrone Moore is prioritizing recruiting tall receivers with length, and Zion Robinson can give Michigan just that after his commitment.`\
-https://nytimes.com/athletic/6451100/2025/06/25/michigan-zion-robinson-football-recruiting-commitment/
-
-**Can This Woman’s Bra Help Her Make History?**\
-`Faith Kipyegon, a three-time Olympic champion, wants to become the first woman to break the four-minute mile. Nike kitted her out for her attempt.`\
-https://nytimes.com/2025/06/25/style/nike-faith-kipyegon-bra-four-minute-mile.html
-
-**Watch: Is the most important position in the WNBA changing?**\
-`No Offseason discusses whether guards will overtake power forwards as the WNBA's premier position.`\
-https://nytimes.com/athletic/6450546/2025/06/25/no-off-season-wnba-guard-important-position/
-
-**House Democrat Pleads Not Guilty to Assault at Migrant Detention Center**\
-`Representative LaMonica McIver was caught up in an onrush outside a troubled Newark immigration facility where, weeks later, four detainees escaped.`\
-https://nytimes.com/2025/06/25/nyregion/lamonica-mciver-newark-ice-not-guilty.html
 

@@ -1,3 +1,11 @@
+**P. Adams Sitney, Leading Scholar of Avant-Garde Film, Dies at 80**\
+`He championed works of cinema that were destined never to have a commercial breakthrough — which, to him, was the whole point.`\
+https://nytimes.com/2025/06/25/movies/p-adams-sitney-dead.html
+
+**The Edge, U2’s Guitarist, Becomes Irish Citizen After 62 Years There**\
+`The musician born David Evans was one of more than 7,500 people who became citizens in a series of ceremonies in southwest Ireland this week.`\
+https://nytimes.com/2025/06/25/arts/music/u2-the-edge-irish-citizenship.html
+
 **Before Same-Sex Marriage Was U.S. Law, They Said ‘I Do’ in Massachusetts**\
 `The couples who exchanged vows in May 2004 helped usher in a period of profound change, leading to the U.S. Supreme Court ruling that same-sex marriage is a constitutional right.`\
 https://nytimes.com/2025/06/25/us/same-sex-marriage-massachusetts-obergefell.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/25/nyregion/zohran-mamdani-nyc-mayor-election/h
 **Marie-Philip Poulin wins PWHL MVP, Forward of the Year**\
 `The PWHL announced the winners of four other major awards at a ceremony on Wednesday afternoon. Here are the results and the finalists.`\
 https://nytimes.com/athletic/6450832/2025/06/25/pwhl-awards-2025-mvp-marie-philip-poulin/
-
-**A Shock in New York’s Mayoral Primary**\
-`Reaction to Zohran Mamdani’s upset of Andrew Cuomo in the Democratic primary for mayor of New York. Also: President Trump’s reversals; junk food.`\
-https://nytimes.com/2025/06/25/opinion/new-york-mayor-primary.html
-
-**Pulisic will be a 'key player' for Milan next season, says sporting director**\
-`The 26-year-old forward recorded 17 goals and 12 assists last season for the the club last campaign.`\
-https://nytimes.com/athletic/6451008/2025/06/25/usmnt-christian-pulisic-milan/
 
