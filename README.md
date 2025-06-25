@@ -1,3 +1,15 @@
+**Grand Jury Indicts Russian Scientist on Smuggling Charges**\
+`Kseniia Petrova, a Harvard researcher, was detained in February after failing to declare scientific samples she was carrying into the country.`\
+https://nytimes.com/2025/06/25/science/russian-scientist-harvard-smuggling-deportation-petrova.html
+
+**Some Republicans Join Democrats in Unease Over White House Budget Cuts**\
+`President Trump has sought to claw back funds for public broadcasting and foreign aid, sparking a fierce debate over the power of the purse.`\
+https://nytimes.com/2025/06/25/us/politics/republicans-democrats-unease-white-house-budget-cuts.html
+
+**Mamdani Has Long Criticized Israel. His Opponents Attack Him for It.**\
+`Zohran Mamdani has promised to fight antisemitism, while consistently criticizing Israel’s treatment of Palestinians and its conduct of the war in Gaza.`\
+https://nytimes.com/2025/06/25/nyregion/mamdani-has-long-criticized-israel-his-opponents-attack-him-for-it.html
+
 **Young Muslims Loved Zohran Mamdani, and Their Parents Listened to Them**\
 `Many Muslim Americans in New York City were impressed by Mr. Mamdani’s campaign and thrilled at being able to see themselves reflected in a mayoral candidate.`\
 https://nytimes.com/2025/06/25/nyregion/nyc-voters-muslim-zohran-mamdani.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6451265/2025/06/25/mls-all-star-roster-messi/
 **Soaring Temperatures in N.Y.C. Land More Than 100 in Emergency Rooms**\
 `Not since 2019 have so many New Yorkers in a single day sought emergency medical attention for heat-related illnesses.`\
 https://nytimes.com/2025/06/25/nyregion/heat-related-illness-new-york-city.html
-
-**Pep Guardiola says Claudio Echeverri set to miss rest of Club World Cup with ankle injury**\
-`Pep Guardiola has said that Claudio Echeverri is likely to miss the remainder of the Club World Cup after suffering an ankle injury in training.`\
-https://nytimes.com/athletic/6451721/2025/06/25/manchester-city-claudio-echeverri-injury/
-
-**Best available players remaining in 2025 NBA Draft**\
-`Who are the top prospects on the board at the 2025 draft? We're tracking all the movement as things unfold from Brooklyn.`\
-https://nytimes.com/athletic/6451687/2025/06/25/nba-draft-2025-best-available-players/
-
-**Knicks ask permission to interview Pels assistant James Borrego: Sources**\
-`Borrego would be the fourth known candidate to meet with the Knicks about vacant head coaching position.`\
-https://nytimes.com/athletic/6451735/2025/06/25/james-borrego-knicks-pelicans-coaching-search/
 
