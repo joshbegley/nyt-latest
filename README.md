@@ -1,3 +1,7 @@
+**Gailard Sartain, Character Actor and ‘Hee Haw’ Regular, Dies at 81**\
+`Though best known for comedy, he also played serious roles, including a sinister sheriff in “Mississippi Burning.” The director Alan Rudolph cast him in nine films.`\
+https://nytimes.com/2025/06/25/arts/television/gailard-sartain-dead.html
+
 **Brutal Temperatures Expected for Many on Wednesday, but Relief Is Near**\
 `After days of record-breaking heat, some cooling is expected in the Eastern United States starting Thursday.`\
 https://nytimes.com/2025/06/25/weather/us-heat-wave-forecast-wednesday.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/arts/powerhouse-festival-gowanus.html
 **The Washington Post Will Ask Some Sources to Annotate Its Stories**\
 `The program, called From the Source, will start with articles from the publication’s climate team. It could provide readers with more viewpoints but would also require moderation and vetting.`\
 https://nytimes.com/2025/06/25/business/washington-post-annotations-comments.html
-
-**How the salary cap growth era will shape the Canucks in offseason**\
-`The implications of what's about to happen this summer will reshape the industry and mold the competitive balance of the NHL.`\
-https://nytimes.com/athletic/6450091/2025/06/25/how-canucks-will-be-shaped-by-the-salary-cap-growth-era-this-offseason/
 
