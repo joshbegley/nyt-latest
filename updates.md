@@ -1,3 +1,7 @@
+**Word of the Day: exogenous**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/25/learning/word-of-the-day-exogenous.html
+
 **In Joyful Victory Speech, Mamdani Vows to Work for ‘Each and Every New Yorker’**\
 `A crowd in Queens celebrated the triumph of Zohran Mamdani, the presumptive winner of the Democratic primary for mayor of New York City.`\
 https://nytimes.com/2025/06/25/nyregion/mamdani-speech-watch-party.html
