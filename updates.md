@@ -1,3 +1,19 @@
+**Everton's search for a right-winger (or two): From Weah to Doak, potential targets home and abroad**\
+`David Moyes is desperate to boost his attacking output, and that flank is a key area to strengthen. The Athletic assesses the options...`\
+https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fellows-mcatee-bakayoko/
+
+**Wednesday Briefing**\
+`An Iran-Israel truce takes hold.`\
+https://nytimes.com/2025/06/25/briefing/iran-israel-nato.html
+
+**'Vieira said, 'You alright, Brooke? I've heard a lot of good things about you.' He's helped me a lot'**\
+`The former Arsenal full-back is loving life in Italy after leaving home - and playing his part for the Under-21s in Slovakia too`\
+https://nytimes.com/athletic/6445041/2025/06/25/brooke-norton-cuffy-arsenal-vieira-genoa-england/
+
+**Canada plods to El Salvador win, tops Gold Cup group and eyes USMNT semifinal**\
+`Goals from Jonathan David and Tajon Buchanan came after a lot of fouls from El Salvador and lengthy stoppage time to give Canada a 2-0 win.`\
+https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
+
 **Club World Cup daily rankings: A new No. 1 as Bayern loses grip on top spot**\
 `Our ranking of all 32 Club World Cup teams, updated daily`\
 https://nytimes.com/athletic/6433032/2025/06/25/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
