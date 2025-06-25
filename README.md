@@ -1,3 +1,11 @@
+**Club World Cup daily rankings: A new No. 1 as Bayern loses grip on top spot**\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/25/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
+
+**Canada plods to El Salvador win, tops Gold Cup group and eyes USMNT semifinal**\
+`Through one of the longer and more plodding games in recent memory for Canada, Jesse Marsch&#8217;s side didn&#8217;t buy into El Salvador&#8217;s antics and pressed through to the Gold Cup quarterfinal stage.`\
+https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
+
 **Manchester United want to sell before they buy this summer. Will it work?**\
 `If United are to remain disciplined and invest beyond Cunha and Mbeumo, financial solutions will have to be found sooner rather than later`\
 https://nytimes.com/athletic/6447914/2025/06/25/manchester-united-transfers-sales-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6438741/2025/06/25/rodri-acl-meniscus-injury/
 **Women's Euros 2025: Guide to Group B - the world champions and a Nations League reunion**\
 `Everything you need to know about Group B at Euro 2025, which features world champions Spain, plus Italy, Belgium and Portugal`\
 https://nytimes.com/athletic/6415629/2025/06/25/womens-euros-2025-group-b-guide/
-
-**Mamdani Stuns Cuomo in New York Mayoral Primary**\
-`Zohran Mamdani, a state assemblyman and democratic socialist, had a commanding lead over former Gov. Andrew M. Cuomo, who conceded in the Democratic primary.`\
-https://nytimes.com/2025/06/25/nyregion/cuomo-mamdani-mayor-primary-nyc.html
-
-**What can Crystal Palace expect from Woody Johnson, and what can he expect from Palace?**\
-`New York Jets owner Johnson is set to become the largest shareholder in the Premier League club`\
-https://nytimes.com/athletic/6440376/2025/06/25/crystal-palace-jets-woody-johnson/
 
