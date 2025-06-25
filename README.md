@@ -1,6 +1,6 @@
-**A stunned Cuomo watch party finds itself with little to celebrate.**\
+**A Stunned Cuomo Watch party finds itself with little to celebrate.**\
 `By Claire Fahy`\
-https://nytimes.com/live/2025/06/24/nyregion/nyc-democratic-primary-election-mayor/a-stunned-cuomo-watch-party-finds-itself-with-little-to-celebrate
+https://nytimes.com/2025/06/24/nyregion/a-stunned-cuomo-watch-party-finds-itself-with-little-to-celebrate.html
 
 **PTPA removes complaints by top players from lawsuit vs. ATP, WTA Tours**\
 `French Open champion Carlos Alcaraz is among players whose complaints about the tennis schedule separate to the lawsuit have been removed.`\
