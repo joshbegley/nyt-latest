@@ -1,3 +1,11 @@
+**A Primary and a Heat Wave**\
+`We’re covering the upset in New York City and the weather.`\
+https://nytimes.com/2025/06/25/briefing/a-primary-and-a-heat-wave.html
+
+**Rosenthal: With the clock ticking on Kyle Tucker in Chicago, the Cubs can't go halfway at the deadline**\
+`In addition to Tucker's impending free agency this offseason, the Cubs could lose five more important players to the open market after 2026.`\
+https://nytimes.com/athletic/6449778/2025/06/25/chicago-cubs-trade-deadline-free-agency-tucker/
+
 **Trump reiterates claims about Iran’s nuclear program that contradict early intelligence findings.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-reiterates-claims-about-irans-nuclear-program-that-contradict-early-intelligence-findings
