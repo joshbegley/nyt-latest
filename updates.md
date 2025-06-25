@@ -1,3 +1,5 @@
+
+
 **Bove Denies Suggesting Justice Dept. Ignore Court Orders**\
 `At a confirmation hearing, a Trump appointee pushed back against a whistle-blower’s allegations.`\
 https://nytimes.com/2025/06/25/us/politics/emil-bove-confirmation.html
