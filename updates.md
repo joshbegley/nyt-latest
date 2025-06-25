@@ -1,3 +1,11 @@
+**Axiom-4 Mission Takes Off for the I.S.S.**\
+`Hungary, India and Poland sent astronauts to the International Space Station for the first time by paying Axiom Space for the journey.`\
+https://nytimes.com/video/science/space/100000010249283/spacex-launch-axiom-mission-4-watch.html
+
+**Cuomo, Chastened, Will Reassess Plans to Run as an Independent**\
+`The shape of the mayor’s race in November and the future of Andrew M. Cuomo are now in flux after Zohran Mamdani’s performance on Tuesday.`\
+https://nytimes.com/2025/06/25/nyregion/nyc-mayor-election-november.html
+
 **Australian Court Says Journalist Critical of Israel Was Wrongfully Fired**\
 `The Australian Broadcasting Corporation violated labor law when it took Antoinette Lattouf off the air after she posted on Instagram about Gaza, the court ruled.`\
 https://nytimes.com/2025/06/25/world/australia/abc-latouff-israel-gaza-firing.html
