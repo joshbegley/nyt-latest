@@ -1,3 +1,15 @@
+**Three ways the Giants' slumping offense can get better**\
+`The Giants have already done the hard part in adding Rafael Devers. Now they need the rest of their lineup to pick up the pace.`\
+https://nytimes.com/athletic/6444279/2025/06/25/sf-giants-offensive-woes-solutions/
+
+**2025 MLS salaries revealed: Messi top earner, highest-paid players, best deals**\
+`What stands out – for better or worse – from MLS's salary reveal, and the trends we can spot in 2025`\
+https://nytimes.com/athletic/6450778/2025/06/25/mls-salary-list-2025-mlspa-messi/
+
+**After adding a center, might the Flyers pursue one of these 10 goalies?**\
+`Here are some possible options for the Flyers via trade or free agency this offseason.`\
+https://nytimes.com/athletic/6450899/2025/06/25/flyers-goalie-trade-free-agent/
+
 **Tensions Grow Between Iran and the U.N. Nuclear Watchdog**\
 `The Iranian government has raised the prospect that inspectors from the International Atomic Energy Agency may be ejected from the country.`\
 https://nytimes.com/2025/06/25/world/middleeast/iran-iaea-inspectors.html

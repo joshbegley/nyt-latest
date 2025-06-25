@@ -1,3 +1,7 @@
+**Trade grades: Canucks make desperate bet on Evander Kane as Oilers get out of a jam**\
+`The fact that Edmonton managed to clear the entirety of Kane's salary, and get a fourth-rounder in return, is truly remarkable.`\
+https://nytimes.com/athletic/6450879/2025/06/25/evander-kane-trade-grades-oilers-canucks-nhl/
+
 **Three ways the Giants' slumping offense can get better**\
 `The Giants have already done the hard part in adding Rafael Devers. Now they need the rest of their lineup to pick up the pace.`\
 https://nytimes.com/athletic/6444279/2025/06/25/sf-giants-offensive-woes-solutions/
@@ -23,7 +27,7 @@ https://nytimes.com/2025/06/25/theater/sarah-kane-448-psychosis-revival.html
 https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i-miss.html
 
 **Rockets re-sign Fred VanVleet to 2-year, $50 million contract**\
-`VanVleet’s $44.9 team option for the upcoming season will be declined as a result of the new deal.`\
+`VanVleet’s $44.9 million team option for the upcoming season will be declined as a result of the new deal.`\
 https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract/
 
 **American Airlines Flight Returns to Las Vegas Airport After Engine Issue**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010250202/american-airlines-engine-issue.html
 **Bettinelli: Playing with 'winners' was the reason for City move**\
 `The 33-year-old spent four years at Chelsea but has replaced Scott Carson in the role of third-choice goalkeeper at City.`\
 https://nytimes.com/athletic/6450891/2025/06/25/marcus-bettinelli-man-city-winners/
-
-**2025 Gold Cup odds: Mexico edges USMNT as favorite ahead of quarterfinals**\
-`As the Gold Cup enters the knockout stage, Mexico is a tick ahead of the USMNT as the favorite to win the tournament.`\
-https://nytimes.com/athletic/6450771/2025/06/25/gold-cup-odds-mexico-usmnt-canada/
 
