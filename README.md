@@ -1,3 +1,7 @@
+**NATO Agrees to a Big Increase in Military Spending, Pleasing Trump**\
+`President Trump has long pushed the European allies to be more self-sufficient on defense, relying less on American protection. NATO committed to a major increase over the next decade.`\
+https://nytimes.com/2025/06/25/world/europe/nato-agrees-to-a-big-increase-in-military-spending-pleasing-trump.html
+
 **What’s in Our Queue? ‘Overcompensating’ and More **\
 `Text by Katherine Rosman`\
 https://nytimes.com/card/2025/06/25/arts/editors-recommendations-overcompensating
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6451202/2025/06/25/kutter-crawford-red-sox-wrist-su
 https://nytimes.com/video/world/middleeast/100000010250203/israel-iran-ceasefire-.html
 
 **León Krier, Architect Whose Classical Work Won a Royal Ally, Dies at 79**\
-`Although his many of his designs remain unbuilt — with a few exceptions, including King Charles’s Poundbury — he was a driving force in the New Urbanism movement.`\
+`Although many of his designs remain unbuilt — with a few exceptions, including King Charles’s Poundbury — he was a driving force in the New Urbanism movement.`\
 https://nytimes.com/2025/06/25/arts/design/leon-krier-dead.html
 
 **The Judgment of History Won’t Save Gaza**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451256/2025/06/25/rob-page-liverpool-under-21s/
 **The Best Protein Bars Are the Ones You Make at Home**\
 `This simple recipe from Genevieve Ko gets the bulk of its protein from nuts, not powders, for an especially delicious on-the-go snack.`\
 https://nytimes.com/2025/06/25/dining/how-to-make-protein-bars.html
-
-**Trump Administration Says California’s Trans Sports Policies Discriminate Against Girls**\
-`The Education Department cited Gov. Gavin Newsom’s own words questioning transgender girls in female sports, and said the state had violated federal civil rights law.`\
-https://nytimes.com/2025/06/25/us/trump-california-trans-athletes.html
 
