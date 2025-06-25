@@ -1,3 +1,11 @@
+**Trump Says He May Send Additional Patriot Systems to Ukraine**\
+`The president met with President Volodymyr Zelensky of Ukraine but neither the White House nor Mr. Zelensky offered any details about their encounter.`\
+https://nytimes.com/2025/06/25/us/politics/trump-ukraine-patriot-missiles-zelensky.html
+
+**Everton remain in talks with Villarreal over Thierno Barry, hopeful of reaching a deal**\
+`The two clubs remain in talks over a potential move.`\
+https://nytimes.com/athletic/6410529/2025/06/25/everton-transfers-thierno-barry-villarreal/
+
 **Streams Were Dying in West Virginia. Here’s How They’re Coming Back.**\
 `Abandoned coal mines had left waterways acidic and rusty orange. Local residents are cleaning them up, and recovering rare earths in the process.`\
 https://nytimes.com/interactive/2025/06/25/climate/west-virginia-pollution-cleanup-coal-mine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450405/2025/06/25/aston-villa-womens-team-sale-psr
 **Trump Administration Sues Federal Bench in Maryland, Escalating Fight With Judiciary**\
 `Lawyers for the administration said that a rule issued by a judge in Maryland intruded on the White House’s inherent powers to “enforce the nation’s immigration laws.”`\
 https://nytimes.com/2025/06/25/us/politics/trump-maryland-judges-lawsuit.html
-
-**Violence Erupts in Kenya a Year After Deadly Protests**\
-`Kenyan police fired live rounds, tear gas and rubber bullets at protesters who were in the streets a year after massive anti-government demonstrations against a contentious tax plan turned deadly.`\
-https://nytimes.com/video/world/africa/100000010249502/violence-erupts-in-kenya-a-year-after-deadly-protests.html
-
-**Sainz Sr. opts against running for FIA presidency**\
-`Incumbent president Mohammed Ben Sulayem, who has held the role since 2021, is currently running unopposed ahead of December’s election.`\
-https://nytimes.com/athletic/6450800/2025/06/25/carlos-sainz-sr-fia-presidency/
 
