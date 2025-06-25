@@ -1,3 +1,11 @@
+**Maresca has 'no doubt' that Delap will be a goal-scoring success at Chelsea**\
+`Maresca has generally been reluctant to lean on the new faces in his squad for this CWC campaign, but Delap has been the exception.`\
+https://nytimes.com/athletic/6450129/2025/06/25/chelsea-delap-maresca-club-world-cup/
+
+**Another summer of change at the top of Tottenham Hotspur. Is there more to come?**\
+`We are not even in July yet and it has already been a summer of profound change at Tottenham Hotspur - and Paratici could still be next in`\
+https://nytimes.com/athletic/6447533/2025/06/25/spurs-scott-munn-vinai-venkatesham-fabio-paratici/
+
 **China Tightens Controls on Fentanyl but Calls It a U.S. Problem**\
 `Two chemicals used to make the powerful opioid will be more strictly regulated, but an official said it was “the United States’ responsibility to solve the issue.”`\
 https://nytimes.com/2025/06/25/world/asia/china-fentanyl-us-trade.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450027/2025/06/25/dodgers-rockies-michael-conforto
 **Takeaways From Hard Fork’s Interview With OpenAI’s Sam Altman**\
 `Mr. Altman discussed President Trump’s understanding of artificial intelligence, the war for A.I. talent and OpenAI’s relationship with Microsoft.`\
 https://nytimes.com/2025/06/25/technology/hard-fork-sam-altman.html
-
-**Diamondbacks' Ketel Marte in tears after heckler's comment about his late mom**\
-`The incident left Marte in tears on the field, and the fan was immediately ejected from the stadium.`\
-https://nytimes.com/athletic/6449956/2025/06/25/ketel-marte-fan-mother-diamondbacks/
-
-**The New York Times in Print for Wednesday, June 25, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/25/todays-new-york-times
 

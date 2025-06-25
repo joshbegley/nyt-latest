@@ -1,3 +1,11 @@
+**Maresca has 'no doubt' that Delap will be a goal-scoring success at Chelsea**\
+`Maresca has generally been reluctant to lean on the new faces in his squad for this CWC campaign, but Delap has been the exception.`\
+https://nytimes.com/athletic/6450129/2025/06/25/chelsea-delap-maresca-club-world-cup/
+
+**Another summer of change at the top of Tottenham Hotspur. Is there more to come?**\
+`We are not even in July yet and it has already been a summer of profound change at Tottenham Hotspur - and Paratici could still be next in`\
+https://nytimes.com/athletic/6447533/2025/06/25/spurs-scott-munn-vinai-venkatesham-fabio-paratici/
+
 **China Tightens Controls on Fentanyl but Calls It a U.S. Problem**\
 `Two chemicals used to make the powerful opioid will be more strictly regulated, but an official said it was “the United States’ responsibility to solve the issue.”`\
 https://nytimes.com/2025/06/25/world/asia/china-fentanyl-us-trade.html
