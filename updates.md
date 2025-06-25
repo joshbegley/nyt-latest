@@ -1,3 +1,5 @@
+
+
 **Prospects to watch for fantasy baseball based on minor league Statcast metrics**\
 `Michael Salfino scours the expected stats of minor leaguers with an eye toward players who could soon be of help in fantasy baseball.`\
 https://nytimes.com/athletic/6449405/2025/06/25/fantasy-baseball-prospect-watch-basallo/
