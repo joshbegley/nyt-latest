@@ -1,3 +1,7 @@
+**A Play About a Breakdown Was a 2000 Hit. What Do Audiences Say Today?**\
+`Sarah Kane’s “4:48 Psychosis” premiered to rave reviews shortly after the playwright killed herself. A quarter-century later, the original cast is reviving the production.`\
+https://nytimes.com/2025/06/25/theater/sarah-kane-448-psychosis-revival.html
+
 **Tiny Love Stories: ‘Nudes of the Man I Miss’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i-miss.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i
 `VanVleet’s $44.9 team option for the upcoming season will be declined as a result of the new deal.`\
 https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract/
 
-**American Airlines Flight Returns to Las Vegas Airport After Engine Fire**\
+**American Airlines Flight Returns to Las Vegas Airport After Engine Issue**\
 `Videos show smoke coming out of the right engine of an American Airlines passenger jet heading from Las Vegas to Charlotte, N.C. The plane turned around and landed safely after the crew reported an engine issue, the F.A.A. said.`\
 https://nytimes.com/video/us/100000010250202/american-airlines-engine-issue.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410529/2025/06/25/everton-transfers-thierno-barry-
 **Streams Were Dying in West Virginia. Here’s How They’re Coming Back.**\
 `Abandoned coal mines had left waterways acidic and rusty orange. Local residents are cleaning them up, and recovering rare earths in the process.`\
 https://nytimes.com/interactive/2025/06/25/climate/west-virginia-pollution-cleanup-coal-mine.html
-
-**Oilers trade Evander Kane to Canucks for fourth-round pick**\
-`Kane's agent said three teams were interested in him but the veteran is going back home to Vancouver, which was his preference.`\
-https://nytimes.com/athletic/6450829/2025/06/25/nhl-evander-kane-trade-oilers-canucks/
 

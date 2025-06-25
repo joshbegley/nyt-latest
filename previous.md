@@ -1,6 +1,10 @@
-**Rockets, Fred VanVleet agree to 2-year, $50 million contract extension: Source**\
+**Tiny Love Stories: ‘Nudes of the Man I Miss’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i-miss.html
+
+**Rockets re-sign Fred VanVleet to 2-year, $50 million contract**\
 `VanVleet’s $44.9 team option for the upcoming season will be declined as a result of the new deal.`\
-https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract-extension/
+https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract/
 
 **American Airlines Flight Returns to Las Vegas Airport After Engine Fire**\
 `Videos show smoke coming out of the right engine of an American Airlines passenger jet heading from Las Vegas to Charlotte, N.C. The plane turned around and landed safely after the crew reported an engine issue, the F.A.A. said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/25/climate/west-virginia-pollution-clean
 **Oilers trade Evander Kane to Canucks for fourth-round pick**\
 `Kane's agent said three teams were interested in him but the veteran is going back home to Vancouver, which was his preference.`\
 https://nytimes.com/athletic/6450829/2025/06/25/nhl-evander-kane-trade-oilers-canucks/
-
-**Bobb 'ready' to make instant impact for Man City after injury layoff**\
-`The 21-year-old suffered a bone fracture in his leg last August and experienced further setbacks with ankle and hamstring problems.`\
-https://nytimes.com/athletic/6450236/2025/06/25/man-city-oscar-bobb-return/
 

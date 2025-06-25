@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Nudes of the Man I Miss’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/25/style/tiny-modern-love-stories-nudes-of-the-man-i-miss.html
+
+**Rockets re-sign Fred VanVleet to 2-year, $50 million contract**\
+`VanVleet’s $44.9 team option for the upcoming season will be declined as a result of the new deal.`\
+https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract/
+
 **Rockets, Fred VanVleet agree to 2-year, $50 million contract extension: Source**\
 `VanVleet’s $44.9 team option for the upcoming season will be declined as a result of the new deal.`\
 https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract-extension/
