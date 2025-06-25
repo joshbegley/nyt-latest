@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/25/us/politics/zohran-mamdani-jewish-voters.html
 https://nytimes.com/2025/06/25/nyregion/columbia-university-cyberattack.html
 
 **In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
-`Their changes may be less pronounced in the future, but for one game we got to see how different top of the league stuff can look.`\
+`Their changes might be less pronounced in the future, but for one game we got to see how different top-of-the-league stuff can look.`\
 https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
 
 **Democrats Looked for Lessons in New York City’s Mayoral Upset**\
