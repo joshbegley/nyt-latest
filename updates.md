@@ -1,3 +1,11 @@
+**P. Adams Sitney, Leading Scholar of Avant-Garde Film, Dies at 80**\
+`He championed works of cinema that were destined never to have a commercial breakthrough — which, to him, was the whole point.`\
+https://nytimes.com/2025/06/25/movies/p-adams-sitney-dead.html
+
+**The Edge, U2’s Guitarist, Becomes Irish Citizen After 62 Years There**\
+`The musician born David Evans was one of more than 7,500 people who became citizens in a series of ceremonies in southwest Ireland this week.`\
+https://nytimes.com/2025/06/25/arts/music/u2-the-edge-irish-citizenship.html
+
 **Before Same-Sex Marriage Was U.S. Law, They Said ‘I Do’ in Massachusetts**\
 `The couples who exchanged vows in May 2004 helped usher in a period of profound change, leading to the U.S. Supreme Court ruling that same-sex marriage is a constitutional right.`\
 https://nytimes.com/2025/06/25/us/same-sex-marriage-massachusetts-obergefell.html
