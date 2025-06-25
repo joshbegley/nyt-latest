@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Overcompensating’ and More **\
+`Text by Katherine Rosman`\
+https://nytimes.com/card/2025/06/25/arts/editors-recommendations-overcompensating
+
+**Mamdani Wins Nadler’s Endorsement as He Seeks to Unify Democrats**\
+`Jerrold Nadler, who represents parts of Manhattan in Congress, had previously endorsed one of Zohran Mamdani’s opponents, Scott Stringer, in the Democratic mayoral primary.`\
+https://nytimes.com/2025/06/25/nyregion/nadler-endorse-mamdani.html
+
 **Growth Claims Behind Trump’s Big Policy Bill Rarely Pan Out in Reality**\
 `A retrospective on four previous Republican-driven tax-cut packages found that the results always come up short compared to bullish predictions of economic booms and lower deficits.`\
 https://nytimes.com/2025/06/25/us/politics/growth-taxes-republican-policy-bill.html

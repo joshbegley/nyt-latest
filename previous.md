@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Overcompensating’ and More **\
+`Text by Katherine Rosman`\
+https://nytimes.com/card/2025/06/25/arts/editors-recommendations-overcompensating
+
+**Mamdani Wins Nadler’s Endorsement as He Seeks to Unify Democrats**\
+`Jerrold Nadler, who represents parts of Manhattan in Congress, had previously endorsed one of Zohran Mamdani’s opponents, Scott Stringer, in the Democratic mayoral primary.`\
+https://nytimes.com/2025/06/25/nyregion/nadler-endorse-mamdani.html
+
 **Growth Claims Behind Trump’s Big Policy Bill Rarely Pan Out in Reality**\
 `A retrospective on four previous Republican-driven tax-cut packages found that the results always come up short compared to bullish predictions of economic booms and lower deficits.`\
 https://nytimes.com/2025/06/25/us/politics/growth-taxes-republican-policy-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/dining/how-to-make-protein-bars.html
 **Trump Administration Says California’s Trans Sports Policies Discriminate Against Girls**\
 `The Education Department cited Gov. Gavin Newsom’s own words questioning transgender girls in female sports, and said the state had violated federal civil rights law.`\
 https://nytimes.com/2025/06/25/us/trump-california-trans-athletes.html
-
-**NASCAR antitrust lawsuit: Judge orders 12 teams to disclose some financial records**\
-`NASCAR's non-suing teams will have to turn over only limited financial information to the league, a judge ruled Wednesday.`\
-https://nytimes.com/athletic/6451242/2025/06/25/nascar-antitrust-lawsuit-financial-records/
-
-**N.I.H. Memo Pauses Cancellations of Medical Research Grants**\
-`The directive, in a memo issued Tuesday, came after two court rulings that questioned the Trump administration’s swift cuts to funding.`\
-https://nytimes.com/2025/06/25/science/nih-grant-terminations-halted.html
 
