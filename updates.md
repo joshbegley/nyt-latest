@@ -1,3 +1,11 @@
+**Cargo Ship That Caught Fire Carrying Electric Vehicles Sinks in the Pacific**\
+`Three weeks after a fire broke out on the ship off the coast of Alaska, the Morning Midas sank, along with thousands of cars on board.`\
+https://nytimes.com/2025/06/25/us/alaska-cargo-ship-vehicles-sinks-pacific.html
+
+**Former Liverpool and Southampton midfielder Lallana announces retirement**\
+`Lallana has called time on a professional playing career that spanned almost two decades and saw him make 569 appearances.`\
+https://nytimes.com/athletic/6450206/2025/06/25/adam-lallana-retirement-liverpool-southampton/
+
 **To Share or Not to Share? How Location Sharing Is Changing Our Relationships**\
 `Arlon Jay Staggs knew it was time to stop sharing his location with his mother, but with everything his family was going through, he just couldn’t figure out how to tell her.`\
 https://nytimes.com/2025/06/25/podcasts/location-sharing-relationships.html
