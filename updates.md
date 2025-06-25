@@ -1,3 +1,7 @@
+**Boston Legacy FC names Filipa Patão as club’s inaugural coach**\
+`The 36-year-old, who spent the last five years as head coach of Benfica's women's team, begins her role in July pending visa approval.`\
+https://nytimes.com/athletic/6449334/2025/06/25/boston-legacy-fc-filipa-patao-head-coach/
+
 **Former Arsenal assistant Bould set to join QPR in defensive coaching role**\
 `Bould's position at the Championship club will focus on developing young defenders.`\
 https://nytimes.com/athletic/6450240/2025/06/25/steve-bould-qpr-coach/

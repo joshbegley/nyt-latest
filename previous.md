@@ -1,3 +1,7 @@
+**Boston Legacy FC names Filipa Patão as club’s inaugural coach**\
+`The 36-year-old, who spent the last five years as head coach of Benfica's women's team, begins her role in July pending visa approval.`\
+https://nytimes.com/athletic/6449334/2025/06/25/boston-legacy-fc-filipa-patao-head-coach/
+
 **Former Arsenal assistant Bould set to join QPR in defensive coaching role**\
 `Bould's position at the Championship club will focus on developing young defenders.`\
 https://nytimes.com/athletic/6450240/2025/06/25/steve-bould-qpr-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/world/africa/kenya-protests-ruto.html
 **Dave Dombrowski talks trade deadline: How the Phillies aim to address their biggest need**\
 `Dombrowski laid out what is at stake for the Phillies, and how his front office will attack its most obvious need: upgrading the bullpen. `\
 https://nytimes.com/athletic/6450259/2025/06/25/dave-dombrowski-phillies-mlb-trade-deadline-bullpen/
-
-**Ranger Suárez can adapt to bullpen role, but maybe he should remain in Phillies rotation**\
-`"He's been huge," Rob Thomson said. "You can pretty much book six or seven innings every time. … He's just been incredible."`\
-https://nytimes.com/athletic/6449950/2025/06/25/phillies-astros-ranger-suarez-rotation/
 
