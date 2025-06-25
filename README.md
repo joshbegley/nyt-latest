@@ -19,7 +19,7 @@ https://nytimes.com/issue/todayspaper/2025/06/25/todays-new-york-times
 https://nytimes.com/2025/06/25/opinion/jeff-bezos-lauren-sanchez-wedding.html
 
 **Zohran Mamdani’s Success Is Especially Meaningful for Muslim New Yorkers**\
-`Mr. Mamdani is Muslim, and his faith played a role in expanding the diverse coalition that propelled his campaign.`\
+`Mr. Mamdani would be the first Muslim mayor of New York City, and his faith played a role in expanding the diverse coalition that propelled his campaign.`\
 https://nytimes.com/2025/06/25/nyregion/mamdani-muslim-nyc.html
 
 **Masyn Winn drives in 4, but speed steals the show in Cardinals' thriller over Cubs**\
