@@ -1,3 +1,7 @@
+**Takeaways From Hard Fork’s Interview With OpenAI’s Sam Altman**\
+`Mr. Altman discussed President Trump’s understanding of artificial intelligence, the war for A.I. talent and OpenAI’s relationship with Microsoft.`\
+https://nytimes.com/2025/06/25/technology/hard-fork-sam-altman.html
+
 **Diamondbacks' Ketel Marte in tears after heckler's comment about his late mom**\
 `The incident left Marte in tears on the field, and the fan was immediately ejected from the stadium.`\
 https://nytimes.com/athletic/6449956/2025/06/25/ketel-marte-fan-mother-diamondbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/briefing/iran-israel-nato.html
 **'Vieira said, 'You alright, Brooke? I've heard a lot of good things about you.' He's helped me a lot'**\
 `The former Arsenal full-back is loving life in Italy after leaving home - and playing his part for the Under-21s in Slovakia too`\
 https://nytimes.com/athletic/6445041/2025/06/25/brooke-norton-cuffy-arsenal-vieira-genoa-england/
-
-**Club World Cup daily rankings: A new No. 1 as Bayern loses grip on top spot**\
-`Our ranking of all 32 Club World Cup teams, updated daily`\
-https://nytimes.com/athletic/6433032/2025/06/25/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 

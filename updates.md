@@ -1,3 +1,7 @@
+**Takeaways From Hard Fork’s Interview With OpenAI’s Sam Altman**\
+`Mr. Altman discussed President Trump’s understanding of artificial intelligence, the war for A.I. talent and OpenAI’s relationship with Microsoft.`\
+https://nytimes.com/2025/06/25/technology/hard-fork-sam-altman.html
+
 **Diamondbacks' Ketel Marte in tears after heckler's comment about his late mom**\
 `The incident left Marte in tears on the field, and the fan was immediately ejected from the stadium.`\
 https://nytimes.com/athletic/6449956/2025/06/25/ketel-marte-fan-mother-diamondbacks/
