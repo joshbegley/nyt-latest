@@ -1,3 +1,15 @@
+**Brutal Temperatures Expected for Many on Wednesday, but Relief Is Near**\
+`After days of record-breaking heat, some cooling is expected in the Eastern United States starting Thursday.`\
+https://nytimes.com/2025/06/25/weather/us-heat-wave-forecast-wednesday.html
+
+**How Did ‘Hercules’ Get So Lame?**\
+`A Disney musical based on the 1997 animated movie feels as though its creators wanted to get to the finish line and move on.`\
+https://nytimes.com/2025/06/25/theater/hercules-disney-theatre-royal-drury-lane.html
+
+**Fandamentals**\
+`TKTKTK `\
+https://nytimes.com/paidpost/athletic/bankofamerica/fandamentals.html
+
 **The Political Power of Mamdani’s Positive Message and Coalition Building**\
 `Mamdani won in parts of the city people wouldn’t normally expect. Democrats should pay attention to his positive message and laser focus on costs.`\
 https://nytimes.com/2025/06/25/opinion/zohran-mamdani-andrew-cuomo-primary-victory.html

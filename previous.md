@@ -1,3 +1,15 @@
+**Brutal Temperatures Expected for Many on Wednesday, but Relief Is Near**\
+`After days of record-breaking heat, some cooling is expected in the Eastern United States starting Thursday.`\
+https://nytimes.com/2025/06/25/weather/us-heat-wave-forecast-wednesday.html
+
+**How Did ‘Hercules’ Get So Lame?**\
+`A Disney musical based on the 1997 animated movie feels as though its creators wanted to get to the finish line and move on.`\
+https://nytimes.com/2025/06/25/theater/hercules-disney-theatre-royal-drury-lane.html
+
+**Fandamentals**\
+`TKTKTK `\
+https://nytimes.com/paidpost/athletic/bankofamerica/fandamentals.html
+
 **The Political Power of Mamdani’s Positive Message and Coalition Building**\
 `Mamdani won in parts of the city people wouldn’t normally expect. Democrats should pay attention to his positive message and laser focus on costs.`\
 https://nytimes.com/2025/06/25/opinion/zohran-mamdani-andrew-cuomo-primary-victory.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/business/washington-post-annotations-comments.htm
 **How the salary cap growth era will shape the Canucks in offseason**\
 `The implications of what's about to happen this summer will reshape the industry and mold the competitive balance of the NHL.`\
 https://nytimes.com/athletic/6450091/2025/06/25/how-canucks-will-be-shaped-by-the-salary-cap-growth-era-this-offseason/
-
-**Prospects to watch for fantasy baseball based on minor league Statcast metrics**\
-`Michael Salfino scours the expected stats of minor leaguers with an eye toward players who could soon be of help in fantasy baseball.`\
-https://nytimes.com/athletic/6449405/2025/06/25/fantasy-baseball-prospect-watch-basallo/
-
-**Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
-`Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
-https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
-
-**Mushy Wording Lets NATO Commit to Trump’s Military Spending Demand**\
-`President Trump has pressed members of the alliance to spend 5 percent of their gross domestic products on defense. Leaders agreed that “allies” — but not “all allies” — would meet that figure.`\
-https://nytimes.com/2025/06/25/us/politics/nato-gdp-defense-spending-trump.html
 
