@@ -1,3 +1,15 @@
+**What to Know About the Antigovernment Protests in Kenya**\
+`Thousands demonstrated on Wednesday to express their anger over government corruption and police brutality.`\
+https://nytimes.com/2025/06/25/world/africa/kenya-protests-william-ruto.html
+
+**Mamdani Reflects on His Astonishing Rise and the Challenges Ahead**\
+`In a post-election interview, Zohran Mamdani, the likely winner of the Democratic primary for mayor of New York, said he took some lessons from Donald Trump’s focus on the cost of living.`\
+https://nytimes.com/2025/06/25/nyregion/zohran-mamdani-interview.html
+
+**Less is more for Blackhawks' Connor Bedard as he prepares for his third NHL season**\
+`After a frustrating sophomore campaign, Bedard is starting to understand that rest isn't a sign of weakness; it’s a source of strength.`\
+https://nytimes.com/athletic/6451445/2025/06/25/blackhawks-connor-bedard-nhl-season/
+
 **JD Vance, judging Jobe Bellingham and Fluminense get defensive - how Club World Cup group F ended**\
 `Analysis of how group F ended as JD Vance watched on`\
 https://nytimes.com/athletic/6443566/2025/06/25/jd-vance-club-world-cup/

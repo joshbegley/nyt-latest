@@ -1,3 +1,15 @@
+**What to Know About the Antigovernment Protests in Kenya**\
+`Thousands demonstrated on Wednesday to express their anger over government corruption and police brutality.`\
+https://nytimes.com/2025/06/25/world/africa/kenya-protests-william-ruto.html
+
+**Mamdani Reflects on His Astonishing Rise and the Challenges Ahead**\
+`In a post-election interview, Zohran Mamdani, the likely winner of the Democratic primary for mayor of New York, said he took some lessons from Donald Trump’s focus on the cost of living.`\
+https://nytimes.com/2025/06/25/nyregion/zohran-mamdani-interview.html
+
+**Less is more for Blackhawks' Connor Bedard as he prepares for his third NHL season**\
+`After a frustrating sophomore campaign, Bedard is starting to understand that rest isn't a sign of weakness; it’s a source of strength.`\
+https://nytimes.com/athletic/6451445/2025/06/25/blackhawks-connor-bedard-nhl-season/
+
 **JD Vance, judging Jobe Bellingham and Fluminense get defensive - how Club World Cup group F ended**\
 `Analysis of how group F ended as JD Vance watched on`\
 https://nytimes.com/athletic/6443566/2025/06/25/jd-vance-club-world-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/25/briefing/thursday-briefing-trump-says-hell-meet-w
 **Why Is World Hunger America’s Problem?**\
 `We can’t fix everything. But if it’s cheap and easy to save lives, why wouldn’t we?`\
 https://nytimes.com/2025/06/25/opinion/american-aid-africa.html
-
-**Broadway Musical About Betty Boop Is Fourth to Close Post-Tonys**\
-`‘Boop! The Musical’ imagines the cartoon character leaving 1920s filmdom for 2020s New York City. Ticket sales were weak.`\
-https://nytimes.com/2025/06/25/theater/boop-musical-broadway-closing.html
-
-**Canadiens thoughts: Claude Giroux, John Tavares, salary cap implications**\
-`Here's how the Canadiens fit in a shifting marketplace as the player movement market begins to take shape.`\
-https://nytimes.com/athletic/6451498/2025/06/25/canadiens-claude-giroux-nhl-free-agency/
-
-**Bove Denies Suggesting Justice Dept. Ignore Court Orders**\
-`At a confirmation hearing, a Trump appointee pushed back against a whistle-blower’s allegations.`\
-https://nytimes.com/2025/06/25/us/politics/emil-bove-confirmation.html
 
