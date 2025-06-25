@@ -1,3 +1,20 @@
+**The Athletic FC: Inside Rodri's 'terrible triad' injury hell, FIFA open racism investigation**\
+`Today in TAFC: All eyes on Rodri's recovery from his ACL injury, FIFA open an in investigation into Cabral racism allegation.`\
+https://nytimes.com/athletic/6450212/2025/06/25/rodri-acl-injury-hell-fifa-cabral-racism-probe/
+
+**The Pulse: The NBA Draft’s biggest mysteries**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6448254/2025/06/25/nba-draft-cooper-flagg-ace-bailey-the-pulse/
+
+**NWSL midseason review: League leaders, most improved, and MVP frontrunners**\
+`The Athletic's women's soccer writers take stock of the NWSL as it heads for a midseason break.`\
+https://nytimes.com/athletic/6449871/2025/06/25/nwsl-midseason-review-league-leaders-mvp/
+
+**The Sabres have a historic playoff drought. Here are 3 leadership lessons from their struggles**\
+`The Buffalo Sabres have the longest playoff drought in NHL history. Here are three leadership lessons from their struggles.
+`\
+https://nytimes.com/athletic/6448658/2025/06/25/the-sabres-have-a-historic-playoff-drought-here-are-3-leadership-lessons-from-their-struggles/
+
 **The Sabres have a historic playoff drought. Here are 3 leadership lessons from their struggles**\
 `The Buffalo Sabres have the longest playoff drought in NHL history. Here are three leadership lessons from their struggles.
 `\
