@@ -1,3 +1,7 @@
+**‘Trophy Boys’ Review: The Nerds’ Case Against Feminism**\
+`In an Off Broadway play, young men on a high school debate team prepare to argue an uncomfortable case.`\
+https://nytimes.com/2025/06/25/theater/trophy-boys-review-emmanuelle-mattana.html
+
 **Rays, MLB have held preliminary talks about home playoff locations: Sources**\
 `Steinbrenner Field could be viable for early rounds. But an appearance in the ALCS or World Series would pose logistical concerns.`\
 https://nytimes.com/athletic/6451763/2025/06/25/tampa-bay-rays-playoff-locations-steinbrenner-field/
@@ -33,8 +37,4 @@ https://nytimes.com/article/serial-the-retreivals-season-one.html
 **Federal Judge Blocks Trump From Collecting Data on Small-Dollar Border Transactions**\
 `So far, the courts have sided with business owners who sued after their money service businesses were caught up in President Trump’s crackdown on cartels.`\
 https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.html
-
-**The Anatomy of Mamdani’s Political Earthquake**\
-`The 33-year-old State Assemblyman just achieved one of the greatest political upsets in New York City history.`\
-https://nytimes.com/interactive/2025/06/25/opinion/mamdani-cuomo-new-york-mayor-election.html
 
