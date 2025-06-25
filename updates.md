@@ -1,3 +1,8 @@
+**The Sabres have a historic playoff drought. Here are 3 leadership lessons from their struggles**\
+`The Buffalo Sabres have the longest playoff drought in NHL history. Here are three leadership lessons from their struggles.
+`\
+https://nytimes.com/athletic/6448658/2025/06/25/the-sabres-have-a-historic-playoff-drought-here-are-3-leadership-lessons-from-their-struggles/
+
 **The Athletic FC: Inside Rodri's 'terrible triad' injury hell, FIFA open racism investigation**\
 `Today in TAFC: All eyes on Rodri's recovery from his ACL injury, FIFA open an in investigation into Cabral racism allegation.`\
 https://nytimes.com/athletic/6450212/2025/06/25/rodri-acl-injury-hell-fifa-cabral-racism-probe/
