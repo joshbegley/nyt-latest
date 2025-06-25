@@ -1,3 +1,11 @@
+**LAFC 1 Flamengo 1 - Consolation point for MLS side, Bayern next for Brazilians**\
+`Analysis of a match that appeared to be headed for a scoreless draw before a pair of late goals delivered some drama`\
+https://nytimes.com/athletic/6443027/2025/06/24/lafc-flamengo-club-world-cup-highlights-bouanga/
+
+**Esperance 0 Chelsea 3 - Liam Delap's first goal for the club and what to expect from Benfica**\
+`Analysis of Chelsea's victory over Esperance at the Club World Cup`\
+https://nytimes.com/athletic/6443028/2025/06/24/chelsea-liam-delap-benfica-highlights/
+
 **Vaccine Panel Gutted by Kennedy Loses a Member Ahead of First Meeting**\
 `Health Secretary Robert F. Kennedy Jr. fired all 17 members of the panel and appointed eight new ones. Now, the board is down to just seven.`\
 https://nytimes.com/2025/06/24/us/politics/rfk-jr-cdc-vaccine-panel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/24/nyregion/shahana-hanif-city-council.html
 **Kyrie Irving to decline player option, sign 3-year deal with Mavs: Source**\
 `Irving holds a player option in the final year of the contract in 2027-28 and will be aligned contractually with Anthony Davis.`\
 https://nytimes.com/athletic/6449682/2025/06/24/kyrie-irving-mavericks-contract-signed-option-declined-nba/
-
-**The Most Detailed Map of the N.Y.C. Mayoral Primary**\
-`See neighborhood-level election results from the first round of the mayoral race.`\
-https://nytimes.com/interactive/2025/06/24/us/elections/nyc-mayor-primary-results-precinct-map.html
-
-**Alvin Bragg, the Democratic Incumbent, Wins D.A. Primary in Manhattan**\
-`Mr. Bragg, who defeated Patrick Timmins, will face a Republican and an independent in the general election.`\
-https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html
 
