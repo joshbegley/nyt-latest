@@ -1,3 +1,11 @@
+**A Loved One was Diagnosed With Dementia. Now What?**\
+`Families and experts share their best advice for navigating and coping.`\
+https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
+
+**Inside a Last-Ditch Battle to Save (or Kill) Clean-Energy Tax Credits**\
+`Supporters of tax breaks for wind and solar are fighting to retain them in the G.O.P. tax bill. They’re facing a conservative effort to kill them entirely.`\
+https://nytimes.com/2025/06/25/climate/trump-bill-clean-energy-tax-credits.html
+
 **Gailard Sartain, Character Actor and ‘Hee Haw’ Regular, Dies at 81**\
 `Though best known for comedy, he also played serious roles, including a sinister sheriff in “Mississippi Burning.” The director Alan Rudolph cast him in nine films.`\
 https://nytimes.com/2025/06/25/arts/television/gailard-sartain-dead.html
@@ -18,7 +26,7 @@ https://nytimes.com/paidpost/athletic/bankofamerica/fandamentals.html
 `Mamdani won in parts of the city people wouldn’t normally expect. Democrats should pay attention to his positive message and laser focus on costs.`\
 https://nytimes.com/2025/06/25/opinion/zohran-mamdani-andrew-cuomo-primary-victory.html
 
-**Kennedy Accuses International Vaccine Agency of Ignoring Science**\
+**Kennedy Withdraws Funding Pledge to International Vaccine Agency**\
 `In a video address, the health secretary said the United States would no longer donate to Gavi, the vaccine agency. The organization rejected his claims.`\
 https://nytimes.com/2025/06/25/health/kennedy-vaccines-gavi.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450534/2025/06/25/cooper-flagg-new-balance-2025-nb
 **Bucks draft mailbag: Trade into the first round? Deal No. 47? Buy another pick?**\
 `How could the Bucks end up in the first round on Wednesday? We explore the chances and look at how Tyler Smith may contribute next season.`\
 https://nytimes.com/athletic/6435588/2025/06/25/bucks-draft-mailbag-trade-into-first-round-deal-no-47-buy-another-pick/
-
-**Global Arts Festival Taking Shape Inside Gowanus Power Station**\
-`The first Powerhouse: International will feature works from South Africa’s William Kentridge, Brazil’s Carolina Bianchi — and 10,000, $30 tickets.`\
-https://nytimes.com/2025/06/25/arts/powerhouse-festival-gowanus.html
-
-**The Washington Post Will Ask Some Sources to Annotate Its Stories**\
-`The program, called From the Source, will start with articles from the publication’s climate team. It could provide readers with more viewpoints but would also require moderation and vetting.`\
-https://nytimes.com/2025/06/25/business/washington-post-annotations-comments.html
 
