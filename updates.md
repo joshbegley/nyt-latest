@@ -1,3 +1,11 @@
+**Best available players remaining in 2025 NBA Draft**\
+`Who are the top prospects on the board at the 2025 draft? We're tracking all the movement as things unfold from Brooklyn.`\
+https://nytimes.com/athletic/6451687/2025/06/25/nba-draft-2025-best-available-players/
+
+**Mamdani’s Success Spotlights a Deepening Rupture Among U.S. Jews**\
+`While Zohran Mamdani won over some Jewish supporters, other Jewish Democrats suggested that concerns about their community’s safety are being dismissed in a movement and a city they helped build.`\
+https://nytimes.com/2025/06/25/us/politics/zohran-mamdani-jewish-voters.html
+
 **Knicks ask permission to interview Pels assistant James Borrego: Sources**\
 `Borrego would be the fourth known candidate to meet with the Knicks about vacant head coaching position.`\
 https://nytimes.com/athletic/6451735/2025/06/25/james-borrego-knicks-pelicans-coaching-search/

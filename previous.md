@@ -1,3 +1,7 @@
+**Best available players remaining in 2025 NBA Draft**\
+`Who are the top prospects on the board at the 2025 draft? We're tracking all the movement as things unfold from Brooklyn.`\
+https://nytimes.com/athletic/6451687/2025/06/25/nba-draft-2025-best-available-players/
+
 **Knicks ask permission to interview Pels assistant James Borrego: Sources**\
 `Borrego would be the fourth known candidate to meet with the Knicks about vacant head coaching position.`\
 https://nytimes.com/athletic/6451735/2025/06/25/james-borrego-knicks-pelicans-coaching-search/
@@ -18,7 +22,7 @@ https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.htm
 `The 33-year-old State Assemblyman just achieved one of the greatest political upsets in New York City history.`\
 https://nytimes.com/interactive/2025/06/25/opinion/mamdani-cuomo-new-york-mayor-election.html
 
-**Mamdani’s Victory Spotlights a Deepening Rupture Among U.S. Jews**\
+**Mamdani’s Success Spotlights a Deepening Rupture Among U.S. Jews**\
 `While Zohran Mamdani won over some Jewish supporters, other Jewish Democrats suggested that concerns about their community’s safety are being dismissed in a movement and a city they helped build.`\
 https://nytimes.com/2025/06/25/us/politics/zohran-mamdani-jewish-voters.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pi
 **Democrats Looked for Lessons in New York City’s Mayoral Upset**\
 `Also, Trump said the U.S. would soon meet with Iran. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/25/briefing/new-york-city-mayoral-election-us-iran.html
-
-**Democrats’ Scattered Response to Iran Strikes Highlights Party Divides**\
-`President Trump’s strikes on Iran have resurfaced old rifts among Democrats over war and peace that have been inflamed by a newer schism inside the party, over support for Israel.`\
-https://nytimes.com/2025/06/25/us/politics/democrats-divisions-iran-strikes.html
 
