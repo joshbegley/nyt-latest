@@ -1,3 +1,7 @@
+**Lakers sale announced, with Jeanie Buss staying in charge "for the foreseeable future"**\
+`Last week, Mark Walter agreed to buy a controlling interest in the storied franchise from the Buss family.`\
+https://nytimes.com/athletic/6450811/2025/06/25/lakers-sale-jeanie-buss/
+
 **Trade grades: Canucks make desperate bet on Evander Kane as Oilers get out of a jam**\
 `The fact that Edmonton managed to clear the entirety of Kane's salary, and get a fourth-rounder in return, is truly remarkable.`\
 https://nytimes.com/athletic/6450879/2025/06/25/evander-kane-trade-grades-oilers-canucks-nhl/
