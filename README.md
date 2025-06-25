@@ -1,3 +1,7 @@
+**Cuomo, Chastened, Will Reassess Plans to Run as an Independent**\
+`The shape of the mayor’s race in November and the future of Andrew M. Cuomo are now in flux after Zohran Mamdani’s performance on Tuesday.`\
+https://nytimes.com/2025/06/25/nyregion/nyc-mayor-election-november.html
+
 **Australian Court Says Journalist Critical of Israel Was Wrongfully Fired**\
 `The Australian Broadcasting Corporation violated labor law when it took Antoinette Lattouf off the air after she posted on Instagram about Gaza, the court ruled.`\
 https://nytimes.com/2025/06/25/world/australia/abc-latouff-israel-gaza-firing.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/heres-the-
 **Live Updates: Cease-Fire Enters Second Day as Iran and Israel Both Claim Victory**\
 `President Trump urged both sides to respect the truce, as the leak of a U.S. intelligence report put into question whether American strikes had significantly set back Iran’s nuclear ambitions.`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump
-
-**Maresca has 'no doubt' that Delap will be a goal-scoring success at Chelsea**\
-`Maresca has generally been reluctant to lean on the new faces in his squad for this CWC campaign, but Delap has been the exception.`\
-https://nytimes.com/athletic/6450129/2025/06/25/chelsea-delap-maresca-club-world-cup/
 
