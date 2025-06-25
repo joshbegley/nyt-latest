@@ -1,3 +1,11 @@
+**Iranians and Israelis Begin Tense Return to Normal Life**\
+`As a cease-fire held for a second day, people in both countries were still haunted by the terrifying moments of a brief but intense war.`\
+https://nytimes.com/2025/06/25/world/middleeast/iran-israel-cease-fire.html
+
+**With Trump, Flattery Gets NATO Somewhere**\
+`The NATO leaders gathered together to praise Donald Trump (and get an item or two they wanted too).`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/nato-trump-leaders-defense-spending
+
 **Zohran Mamdani Says He’s a Democratic Socialist. What Does That Mean?**\
 `The term has no singular definition. But simply put, it’s an ideology rooted in its opposition to capitalism and wanting to shift power from corporations to workers.`\
 https://nytimes.com/2025/06/25/us/politics/what-is-democratic-socialism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6451202/2025/06/25/kutter-crawford-red-sox-wrist-su
 **Israelis and Iranians Embrace a Return to Normalcy as Truce Holds**\
 `After a shaky start to the U.S.-brokered cease-fire between Israel and Iran, a sense of normalcy returned to the warring countries on Wednesday as the truce appeared to hold.`\
 https://nytimes.com/video/world/middleeast/100000010250203/israel-iran-ceasefire-.html
-
-**León Krier, Architect Whose Classical Work Won a Royal Ally, Dies at 79**\
-`Although many of his designs remain unbuilt — with a few exceptions, including King Charles’s Poundbury — he was a driving force in the New Urbanism movement.`\
-https://nytimes.com/2025/06/25/arts/design/leon-krier-dead.html
-
-**The Judgment of History Won’t Save Gaza**\
-`The airstrikes on Iran seem to have closed a chapter.`\
-https://nytimes.com/2025/06/25/opinion/gaza-crimes.html
 

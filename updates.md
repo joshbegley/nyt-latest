@@ -1,3 +1,11 @@
+**Iranians and Israelis Begin Tense Return to Normal Life**\
+`As a cease-fire held for a second day, people in both countries were still haunted by the terrifying moments of a brief but intense war.`\
+https://nytimes.com/2025/06/25/world/middleeast/iran-israel-cease-fire.html
+
+**With Trump, Flattery Gets NATO Somewhere**\
+`The NATO leaders gathered together to praise Donald Trump (and get an item or two they wanted too).`\
+https://nytimes.com/live/2025/06/16/opinion/thepoint/nato-trump-leaders-defense-spending
+
 **Zohran Mamdani Says He’s a Democratic Socialist. What Does That Mean?**\
 `The term has no singular definition. But simply put, it’s an ideology rooted in its opposition to capitalism and wanting to shift power from corporations to workers.`\
 https://nytimes.com/2025/06/25/us/politics/what-is-democratic-socialism.html
