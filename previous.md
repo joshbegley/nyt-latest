@@ -1,3 +1,7 @@
+**How a Birthday Boat Ride on Lake Tahoe Turned Tragic**\
+`Eight people died when a surprise storm caused dangerous waves on the lake along the California-Nevada border, upending boats and tossing passengers into the frigid water.`\
+https://nytimes.com/2025/06/24/us/lake-tahoe-deaths-weather.html
+
 **Yankees' Jazz Chisholm Jr. ejected between innings for arguing strike call**\
 `Chisholm ultimately had to be held back by manager Aaron Boone. `\
 https://nytimes.com/athletic/6449743/2025/06/24/yankees-jazz-chisholm-jr-ejected/
@@ -18,7 +22,7 @@ https://nytimes.com/2025/06/24/nyregion/nyc-public-advocate-jumaane-williams.htm
 `Shahana Hanif defeated Maya Kornberg, a first-time candidate, in an acrimonious race for a City Council seat in Brooklyn.`\
 https://nytimes.com/2025/06/24/nyregion/shahana-hanif-city-council.html
 
-**Kyrie Irving to decline player option, sign 3-year extension with Mavs: Source**\
+**Kyrie Irving to decline player option, sign 3-year deal with Mavs: Source**\
 `Irving holds a player option in the final year of the contract in 2027-28 and will be aligned contractually with Anthony Davis.`\
 https://nytimes.com/athletic/6449682/2025/06/24/kyrie-irving-mavericks-contract-signed-option-declined-nba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.
 **‘Duke & Roya’ Review: He’s Got Swagger, She’s No-Nonsense**\
 `Jay Ellis stars as an American rapper who falls for his Afghan interpreter at an Army base in Charles Randolph-Wright’s new play.`\
 https://nytimes.com/2025/06/24/theater/duke-roya-review-jay-ellis.html
-
-**‘Ironheart’ Review: Marvel Follows Suit**\
-`Our biggest cinematic universe ends its current phase with a Disney+ series about a young engineering genius with Ironman dreams.`\
-https://nytimes.com/2025/06/24/arts/television/ironheart-review.html
 
