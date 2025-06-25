@@ -1,3 +1,7 @@
+**Word of the Day: exogenous**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/25/learning/word-of-the-day-exogenous.html
+
 **In Joyful Victory Speech, Mamdani Vows to Work for ‘Each and Every New Yorker’**\
 `A crowd in Queens celebrated the triumph of Zohran Mamdani, the presumptive winner of the Democratic primary for mayor of New York City.`\
 https://nytimes.com/2025/06/25/nyregion/mamdani-speech-watch-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6449683/2025/06/25/cardinals-win-cubs-masyn-winn-sl
 **In a season of highs, Pete Crow-Armstrong and the Cubs hit low point in loss to Cardinals**\
 `Chicago's MVP candidate made a mental mistake on defense and a questionable decision at the plate in the one-run loss.`\
 https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-night/
-
-**Everton's search for a right-winger (or two): From Weah to Doak, potential targets home and abroad**\
-`David Moyes is desperate to boost his attacking output, and that flank is a key area to strengthen. The Athletic assesses the options...`\
-https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fellows-mcatee-bakayoko/
 
