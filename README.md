@@ -1,5 +1,5 @@
 **Cargo Ship That Caught Fire Carrying Electric Vehicles Sinks in the Pacific**\
-`Three weeks after a fire broke out on the ship off the coast of Alaska, the Morning Midas sank, along with thousand of cars on board.`\
+`Three weeks after a fire broke out on the ship off the coast of Alaska, the Morning Midas sank, along with thousands of cars on board.`\
 https://nytimes.com/2025/06/25/us/alaska-cargo-ship-vehicles-sinks-pacific.html
 
 **Former Liverpool and Southampton midfielder Lallana announces retirement**\
