@@ -1,3 +1,7 @@
+**Canada handles 9-man El Salvador, tops Gold Cup group and eyes USMNT semifinal**\
+`Canada eventually broke through after two Salvadoran red cards to rebound from a shocking draw vs. Curaçao`\
+https://nytimes.com/athletic/6449874/2025/06/25/canada-el-salvador-concacaf-gold-cup/
+
 **Everton's search for a right-winger (or two): From Weah to Doak, potential targets home and abroad**\
 `David Moyes is desperate to boost his attacking output, and that flank is a key area to strengthen. The Athletic assesses the options...`\
 https://nytimes.com/athletic/6447886/2025/06/25/everton-transfers-weah-doak-fellows-mcatee-bakayoko/
