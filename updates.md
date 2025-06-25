@@ -1,3 +1,8 @@
+**The Sabres have a historic playoff drought. Here are 3 leadership lessons from their struggles**\
+`The Buffalo Sabres have the longest playoff drought in NHL history. Here are three leadership lessons from their struggles.
+`\
+https://nytimes.com/athletic/6448658/2025/06/25/the-sabres-have-a-historic-playoff-drought-here-are-3-leadership-lessons-from-their-struggles/
+
 **Dylan Lee emerges as closer candidate for Braves, who are winning and need one**\
 `Lee has surpassed all reasonable expectations, posting a 1.98 ERA in 88 appearances since the beginning of last season.`\
 https://nytimes.com/athletic/6449973/2025/06/25/atlanta-braves-new-york-mets-dylan-lee-closer/
