@@ -1,3 +1,19 @@
+**Federal Judge Blocks Trump From Collecting Data on Small-Dollar Border Transactions**\
+`So far, the courts have sided with business owners who sued after their money service businesses were caught up in President Trump’s crackdown on cartels.`\
+https://nytimes.com/2025/06/25/us/politics/federal-judge-border-transactions.html
+
+**The Anatomy of Mamdani’s Political Earthquake**\
+`The 33-year-old State Assemblyman just achieved one of the greatest political upsets in New York City history.`\
+https://nytimes.com/interactive/2025/06/25/opinion/mamdani-cuomo-new-york-mayor-election.html
+
+**Mamdani’s Victory Spotlights a Deepening Rupture Among U.S. Jews**\
+`While Zohran Mamdani won over some Jewish supporters, other Jewish Democrats suggested that concerns about their community’s safety are being dismissed in a movement and a city they helped build.`\
+https://nytimes.com/2025/06/25/us/politics/zohran-mamdani-jewish-voters.html
+
+**Potential Cyberattack Scrambles Columbia University Computer Systems**\
+`Images of a smiling President Trump popped up on some screens, although they could not be conclusively linked to the episode.`\
+https://nytimes.com/2025/06/25/nyregion/columbia-university-cyberattack.html
+
 **In a battle of top stuff, Jacob Misiorowski and Paul Skenes offer contrasting styles**\
 `Their changes may be less pronounced in the future, but for one game we got to see how different top of the league stuff can look.`\
 https://nytimes.com/athletic/6451492/2025/06/25/jacob-misiorowski-paul-skenes-pitching-breakdown/
