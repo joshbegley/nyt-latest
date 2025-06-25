@@ -1,3 +1,15 @@
+**‘Ironheart’ Review: Marvel Follows Suit**\
+`Our biggest cinematic universe ends its current phase with a Disney+ series about a young engineering genius with Ironman dreams.`\
+https://nytimes.com/2025/06/24/arts/television/ironheart-review.html
+
+**Reds' Chase Burns makes pitching history in debut against Yankees**\
+`A Yankee fan growing up, Burns said Monday that he had been looking forward to facing Judge since he was drafted. His wish came true.`\
+https://nytimes.com/athletic/6449561/2025/06/24/cincinnati-reds-chase-burns-debut/
+
+**Mission Not Accomplished**\
+`Israel may have astonished much of the world with its tactical skill in its recent war against Iran, but for now, it has lost, in terms of its true goals.`\
+https://nytimes.com/2025/06/24/opinion/strikes-iran-intelligence-report-nuclear-trump.html
+
 **Online and IRL, Trump Offers a Window Into His Psyche**\
 `Other countries used to need spies to discern the thinking of American presidents. Now they just need a Truth Social account.`\
 https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complications.html
