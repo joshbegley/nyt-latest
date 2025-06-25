@@ -1,3 +1,7 @@
+**Birmingham in advanced negotiations over Gray return**\
+`The clubs remain in discussions over the structure of a potential deal, with Gray interested in a return to his hometown team.`\
+https://nytimes.com/athletic/6450752/2025/06/25/demarai-gray-birmingham-transfer/
+
 **Forget Therapy. Do Men Need Book Clubs?**\
 `Men are leaving fiction reading behind. Some people want to change that.`\
 https://nytimes.com/2025/06/25/style/fiction-books-men-reading.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450550/2025/06/25/cooper-flagg-nba-draft-predictio
 **A Loved One Was Diagnosed With Dementia. Now What?**\
 `Families and experts share their best advice for navigating and coping.`\
 https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
-
-**Inside a Last-Ditch Battle to Save (or Kill) Clean-Energy Tax Credits**\
-`Supporters of tax breaks for wind and solar are fighting to retain them in the G.O.P. tax bill. They’re facing a conservative effort to kill them entirely.`\
-https://nytimes.com/2025/06/25/climate/trump-bill-clean-energy-tax-credits.html
 
