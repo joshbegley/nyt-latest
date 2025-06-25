@@ -1,3 +1,11 @@
+**Brutal Temperatures Expected for Many on Wednesday, but Relief Is Near**\
+`After days of record-breaking heat, some cooling is expected in the Eastern United States starting Thursday.`\
+https://nytimes.com/2025/06/25/weather/us-heat-wave-forecast-wednesday.html
+
+**How Did ‘Hercules’ Get So Lame?**\
+`A Disney musical based on the 1997 animated movie feels as though its creators wanted to get to the finish line and move on.`\
+https://nytimes.com/2025/06/25/theater/hercules-disney-theatre-royal-drury-lane.html
+
 **Fandamentals**\
 `TKTKTK `\
 https://nytimes.com/paidpost/athletic/bankofamerica/fandamentals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/business/washington-post-annotations-comments.htm
 **How the salary cap growth era will shape the Canucks in offseason**\
 `The implications of what's about to happen this summer will reshape the industry and mold the competitive balance of the NHL.`\
 https://nytimes.com/athletic/6450091/2025/06/25/how-canucks-will-be-shaped-by-the-salary-cap-growth-era-this-offseason/
-
-**Prospects to watch for fantasy baseball based on minor league Statcast metrics**\
-`Michael Salfino scours the expected stats of minor leaguers with an eye toward players who could soon be of help in fantasy baseball.`\
-https://nytimes.com/athletic/6449405/2025/06/25/fantasy-baseball-prospect-watch-basallo/
-
-**Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
-`Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
-https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
 
