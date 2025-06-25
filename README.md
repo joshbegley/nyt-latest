@@ -1,3 +1,7 @@
+**Forget Therapy. Do Men Need Book Clubs?**\
+`Men are leaving fiction reading behind. Some people want to change that.`\
+https://nytimes.com/2025/06/25/style/fiction-books-men-reading.html
+
 **Usha Vance’s New Life in Trump’s Washington**\
 `Old friends are bewildered by the turn taken by the second lady, a onetime Democrat and former litigator for a San Francisco firm. Others say she’s happy in the role.`\
 https://nytimes.com/2025/06/25/us/politics/usha-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/well/family/dementia-diagnosis-advice.html
 **Inside a Last-Ditch Battle to Save (or Kill) Clean-Energy Tax Credits**\
 `Supporters of tax breaks for wind and solar are fighting to retain them in the G.O.P. tax bill. They’re facing a conservative effort to kill them entirely.`\
 https://nytimes.com/2025/06/25/climate/trump-bill-clean-energy-tax-credits.html
-
-**Gailard Sartain, Character Actor and ‘Hee Haw’ Regular, Dies at 81**\
-`Though best known for comedy, he also played serious roles, including a sinister sheriff in “Mississippi Burning.” The director Alan Rudolph cast him in nine films.`\
-https://nytimes.com/2025/06/25/arts/television/gailard-sartain-dead.html
 
