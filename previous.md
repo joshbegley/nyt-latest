@@ -1,3 +1,7 @@
+**Bove Denies Suggesting Justice Dept. Ignore Court Orders**\
+`At a confirmation hearing, a Trump appointee pushed back against a whistle-blower’s allegations.`\
+https://nytimes.com/2025/06/25/us/politics/emil-bove-confirmation.html
+
 **On the Giants' offensive woes, similarities to 2010s teams, Justin Verlander and more**\
 `An excerpt of Grant Brisbee's subscriber-only conversation on June 25.`\
 https://nytimes.com/athletic/6451428/2025/06/25/sf-giants-offense-struggles-justin-verlander/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/06/16/opinion/thepoint/nato-trump-leaders-defense-
 **Zohran Mamdani Says He’s a Democratic Socialist. What Does That Mean?**\
 `The term has no singular definition. But simply put, it’s an ideology rooted in its opposition to capitalism and wanting to shift power from corporations to workers.`\
 https://nytimes.com/2025/06/25/us/politics/what-is-democratic-socialism.html
-
-**U.S. Is Creating 2 New Expanded Military Zones Along Border With Mexico**\
-`The plans for strips of land in Texas and Arizona are the latest step to militarize the boundary to stem an already dwindling number of migrant crossings.`\
-https://nytimes.com/2025/06/25/us/politics/us-is-creating-2-new-expanded-military-zones-along-border-with-mexico.html
 

@@ -1,3 +1,7 @@
+**Bove Denies Suggesting Justice Dept. Ignore Court Orders**\
+`At a confirmation hearing, a Trump appointee pushed back against a whistle-blower’s allegations.`\
+https://nytimes.com/2025/06/25/us/politics/emil-bove-confirmation.html
+
 **On the Giants' offensive woes, similarities to 2010s teams, Justin Verlander and more**\
 `An excerpt of Grant Brisbee's subscriber-only conversation on June 25.`\
 https://nytimes.com/athletic/6451428/2025/06/25/sf-giants-offense-struggles-justin-verlander/
