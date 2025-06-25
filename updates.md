@@ -1,3 +1,11 @@
+**JD Vance, judging Jobe Bellingham and Fluminense get defensive - how Club World Cup group F ended**\
+`Analysis of how group F ended as JD Vance watched on`\
+https://nytimes.com/athletic/6443566/2025/06/25/jd-vance-club-world-cup/
+
+**Reflecting on Same-Sex Marriage Ruling a Decade Later**\
+`Adam Liptak describes the moment in which same-sex marriage became legal nationwide on June 26, 2015 — and what the future may hold for the Supreme Court’s ruling.`\
+https://nytimes.com/2025/06/25/insider/same-sex-marriage-legal-10-years.html
+
 **D.O.J. Ends Inquiry of Housing Development by Texas Muslims**\
 `A proposed housing development with a mosque at its center drew scrutiny from Texas Republicans, who feared the project would discriminate against non-Muslims.`\
 https://nytimes.com/2025/06/25/us/politics/texas-muslim-development-justice-department.html

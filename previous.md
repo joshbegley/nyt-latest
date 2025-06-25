@@ -1,3 +1,11 @@
+**JD Vance, judging Jobe Bellingham and Fluminense get defensive - how Club World Cup group F ended**\
+`Analysis of how group F ended as JD Vance watched on`\
+https://nytimes.com/athletic/6443566/2025/06/25/jd-vance-club-world-cup/
+
+**Reflecting on Same-Sex Marriage Ruling a Decade Later**\
+`Adam Liptak describes the moment in which same-sex marriage became legal nationwide on June 26, 2015 — and what the future may hold for the Supreme Court’s ruling.`\
+https://nytimes.com/2025/06/25/insider/same-sex-marriage-legal-10-years.html
+
 **D.O.J. Ends Inquiry of Housing Development by Texas Muslims**\
 `A proposed housing development with a mosque at its center drew scrutiny from Texas Republicans, who feared the project would discriminate against non-Muslims.`\
 https://nytimes.com/2025/06/25/us/politics/texas-muslim-development-justice-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6451498/2025/06/25/canadiens-claude-giroux-nhl-free
 **Bove Denies Suggesting Justice Dept. Ignore Court Orders**\
 `At a confirmation hearing, a Trump appointee pushed back against a whistle-blower’s allegations.`\
 https://nytimes.com/2025/06/25/us/politics/emil-bove-confirmation.html
-
-**On the Giants' offensive woes, similarities to 2010s teams, Justin Verlander and more**\
-`An excerpt of Grant Brisbee's subscriber-only conversation on June 25.`\
-https://nytimes.com/athletic/6451428/2025/06/25/sf-giants-offense-struggles-justin-verlander/
-
-**Oilers trading Evander Kane was expected. It's their next move that truly matters**\
-`Moving out Kane and his entire $5.125 million cap hit is only the first domino to fall in the offseason makeover for Edmonton.`\
-https://nytimes.com/athletic/6451435/2025/06/25/oilers-evander-kane-trade-canucks-nhl/
 
