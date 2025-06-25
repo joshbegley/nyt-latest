@@ -1,3 +1,11 @@
+**Australian Court Says Journalist Critical of Israel Was Wrongfully Fired**\
+`The Australian Broadcasting Corporation violated labor law when it took Antoinette Lattouf off the air after she posted on Instagram about Gaza, the court ruled.`\
+https://nytimes.com/2025/06/25/world/australia/abc-latouff-israel-gaza-firing.html
+
+**The alliance’s leaders will approve sizable spending increases, NATO’s chief predicts.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/06/25/us/trump-nato-news/the-alliances-leaders-will-approve-sizable-spending-increases-natos-chief-predicts
+
 **Mamdani Declares Victory in N.Y.C. Mayoral Primary**\
 `Zohran Mamdani, a state lawmaker from Queens, celebrated with his supporters at a party in Long Island City. The result was not final but he declared victory in the primary after former Gov. Andrew M. Cuomo conceded the race.`\
 https://nytimes.com/video/nyregion/100000010249348/zohran-mamdani-cuomo-nyc-mayor.html
