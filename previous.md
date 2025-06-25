@@ -1,3 +1,7 @@
+**Vaccine Panel Gutted by Kennedy Loses a Member Ahead of First Meeting**\
+`Health Secretary Robert F. Kennedy Jr. fired all 17 members of the panel and appointed eight new ones. Now, the board is down to just seven.`\
+https://nytimes.com/2025/06/24/us/politics/rfk-jr-cdc-vaccine-panel.html
+
 **How a Birthday Boat Ride on Lake Tahoe Turned Tragic**\
 `Eight people died when a surprise storm caused dangerous waves on the lake along the California-Nevada border, upending boats and tossing passengers into the frigid water.`\
 https://nytimes.com/2025/06/24/us/lake-tahoe-deaths-weather.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/24/us/elections/nyc-mayor-primary-result
 **Alvin Bragg, the Democratic Incumbent, Wins D.A. Primary in Manhattan**\
 `Mr. Bragg, who defeated Patrick Timmins, will face a Republican and an independent in the general election.`\
 https://nytimes.com/2025/06/24/nyregion/alvin-bragg-manhattan-district-attorney.html
-
-**‘Duke & Roya’ Review: He’s Got Swagger, She’s No-Nonsense**\
-`Jay Ellis stars as an American rapper who falls for his Afghan interpreter at an Army base in Charles Randolph-Wright’s new play.`\
-https://nytimes.com/2025/06/24/theater/duke-roya-review-jay-ellis.html
 
