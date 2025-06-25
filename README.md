@@ -1,3 +1,11 @@
+**Rockets, Fred VanVleet agree to 2-year, $50 million contract extension: Source**\
+`VanVleet’s $44.9 team option for the upcoming season will be declined as a result of the new deal.`\
+https://nytimes.com/athletic/6450966/2025/06/25/rockets-fred-vanvleet-contract-extension/
+
+**American Airlines Flight Returns to Las Vegas Airport After Engine Fire**\
+`Videos show smoke coming out of the right engine of an American Airlines passenger jet heading from Las Vegas to Charlotte, N.C. The plane turned around and landed safely after the crew reported an engine issue, the F.A.A. said.`\
+https://nytimes.com/video/us/100000010250202/american-airlines-engine-issue.html
+
 **Bettinelli: Playing with 'winners' was the reason for City move**\
 `The 33-year-old spent four years at Chelsea but has replaced Scott Carson in the role of third-choice goalkeeper at City.`\
 https://nytimes.com/athletic/6450891/2025/06/25/marcus-bettinelli-man-city-winners/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450829/2025/06/25/nhl-evander-kane-trade-oilers-ca
 **Bobb 'ready' to make instant impact for Man City after injury layoff**\
 `The 21-year-old suffered a bone fracture in his leg last August and experienced further setbacks with ankle and hamstring problems.`\
 https://nytimes.com/athletic/6450236/2025/06/25/man-city-oscar-bobb-return/
-
-**Chelsea, Angel Di Maria and how to combat Benfica's dangerous right flank**\
-`Enzo Maresca be warned: the Portuguese side are notably impressive in wide areas - as Bayern Munich just found out`\
-https://nytimes.com/athletic/6450174/2025/06/25/benfica-right-side-chelsea-challenge-club-world-cup/
-
-**Do I Need to Subscribe to My Friend’s Substack Newsletter?**\
-`They’ve made it clear that my support as a paid subscriber is expected.`\
-https://nytimes.com/2025/06/25/magazine/substack-newsletter-ethics.html
 
