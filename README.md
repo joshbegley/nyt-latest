@@ -1,3 +1,7 @@
+**Trump Administration Sues Federal Bench in Maryland, Escalating Fight With Judiciary**\
+`Lawyers for the administration said that a rule issued by a judge in Maryland intruded on the White House’s inherent powers to “enforce the nation’s immigration laws.”`\
+https://nytimes.com/2025/06/25/us/politics/trump-maryland-judges-lawsuit.html
+
 **Violence Erupts in Kenya a Year After Deadly Protests**\
 `Kenyan police fired live rounds, tear gas and rubber bullets at protesters who were in the streets a year after massive anti-government demonstrations against a contentious tax plan turned deadly.`\
 https://nytimes.com/video/world/africa/100000010249502/violence-erupts-in-kenya-a-year-after-deadly-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/arts/the-alters-review.html
 **This Cold Noodle Salad With Spicy Peanut Sauce Is Really Cool**\
 `Hetty Lui McKinnon’s recipe is refreshing and flexible — use whatever vegetables you like or have on hand.`\
 https://nytimes.com/2025/06/25/dining/healthy-cold-noodle-salad-with-spicy-peanut-sauce-recipe.html
-
-**The Windup: NL Central deserves some shine**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6450100/2025/06/25/chase-burns-reds-nl-central-the-windup/
 
