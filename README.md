@@ -1,3 +1,7 @@
+**Rubio Mounts Pushback Against Report on Iranian Nuclear Damage**\
+`Secretary of State Marco Rubio said U.S. strikes had destroyed a facility that is key to producing a nuclear weapon. He railed against a less optimistic U.S. intelligence report.`\
+https://nytimes.com/2025/06/25/us/politics/iran-nuclear-program-damage-rubio.html
+
 **Mushy Wording Lets NATO Commit to Trump’s Military Spending Demand**\
 `President Trump has pressed members of the alliance to spend 5 percent of their gross domestic products on defense. Leaders agreed that “allies” — but not “all allies” — would meet that figure.`\
 https://nytimes.com/2025/06/25/us/politics/nato-gdp-defense-spending-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/opinion/silicon-valley-ai-mattel.html
 **How Can We Get My Aging Stepmother to Cull Her Many Belongings?**\
 `After his father’s years of struggle to make progress on the matter, a reader feels obligated to take up the cause of persuading his stepmother to cut back.`\
 https://nytimes.com/2025/06/25/style/elderly-relatives-possessions.html
-
-**Pioli leaves position as Al Nassr head coach**\
-`Pioli joined Al Nassr three matches into their 2024-25 Saudi Pro League campaign and led the club to a third-placed finish. `\
-https://nytimes.com/athletic/6450407/2025/06/25/stefano-pioli-manager-saudi-al-nassr/
 
