@@ -1,3 +1,11 @@
+**5 Things to Know About Zohran Mamdani**\
+`Not so long ago, Mr. Mamdani was a little-known state assemblyman. But his personality and platform captivated an unlikely coalition of New York City primary voters.`\
+https://nytimes.com/2025/06/25/nyregion/who-is-zohran-mamdani.html
+
+**Can a New Star Help Guide the Democratic Party Out of the Darkness?**\
+`The emergence of Zohran Mamdani, a democratic socialist, is likely to divide national Democrats, who are already torn about what the party should stand for.`\
+https://nytimes.com/2025/06/25/nyregion/democratic-party-zohran-mamdani.html
+
 **Word of the Day: exogenous**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/25/learning/word-of-the-day-exogenous.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/25/opinion/jeff-bezos-lauren-sanchez-wedding.html
 **Zohran Mamdani’s Success Is Especially Meaningful for Muslim New Yorkers**\
 `Mr. Mamdani would be the first Muslim mayor of New York City, and his faith played a role in expanding the diverse coalition that propelled his campaign.`\
 https://nytimes.com/2025/06/25/nyregion/mamdani-muslim-nyc.html
-
-**Masyn Winn drives in 4, but speed steals the show in Cardinals' thriller over Cubs**\
-`Winn slid into home, scoring what would be the game's decisive run in St. Louis' 8-7 win over Chicago.`\
-https://nytimes.com/athletic/6449683/2025/06/25/cardinals-win-cubs-masyn-winn-slide-home/
-
-**In a season of highs, Pete Crow-Armstrong and the Cubs hit low point in loss to Cardinals**\
-`Chicago's MVP candidate made a mental mistake on defense and a questionable decision at the plate in the one-run loss.`\
-https://nytimes.com/athletic/6449943/2025/06/25/cubs-pete-crow-armstrong-bad-night/
 

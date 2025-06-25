@@ -1,3 +1,11 @@
+**5 Things to Know About Zohran Mamdani**\
+`Not so long ago, Mr. Mamdani was a little-known state assemblyman. But his personality and platform captivated an unlikely coalition of New York City primary voters.`\
+https://nytimes.com/2025/06/25/nyregion/who-is-zohran-mamdani.html
+
+**Can a New Star Help Guide the Democratic Party Out of the Darkness?**\
+`The emergence of Zohran Mamdani, a democratic socialist, is likely to divide national Democrats, who are already torn about what the party should stand for.`\
+https://nytimes.com/2025/06/25/nyregion/democratic-party-zohran-mamdani.html
+
 **Word of the Day: exogenous**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/25/learning/word-of-the-day-exogenous.html
