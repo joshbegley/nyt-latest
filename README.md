@@ -1,3 +1,7 @@
+**‘Ironheart’ Review: Marvel Follows Suit**\
+`Our biggest cinematic universe ends its current phase with a Disney+ series about a young engineering genius with Ironman dreams.`\
+https://nytimes.com/2025/06/24/arts/television/ironheart-review.html
+
 **Reds' Chase Burns makes pitching history in debut against Yankees**\
 `A Yankee fan growing up, Burns said Monday that he had been looking forward to facing Judge since he was drafted. His wish came true.`\
 https://nytimes.com/athletic/6449561/2025/06/24/cincinnati-reds-chase-burns-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/06/25/climate/las-vegas-renewable-energy-solar
 **In Florida, ‘Powerful Little Plants’ That Protect From Big Storms **\
 `On Sanibel Island, volunteer “mangrove mamas” and “propagule papas” grow red mangrove seedlings to restore critical habitats and strengthen shorelines from future storms.`\
 https://nytimes.com/card/2025/06/25/climate/florida-hurricane-protection-trees-plants
-
-**The Best Data Removal Services**\
-`If you’ve ever Googled yourself — who hasn’t? — you’ve probably found your personal information for sale on websites belonging to data brokers.`\
-https://nytimes.com/wirecutter/reviews/best-data-removal-services/
 
