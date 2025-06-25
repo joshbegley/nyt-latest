@@ -1,3 +1,11 @@
+**Trump reiterates claims about Iran’s nuclear program that contradict early intelligence findings.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-reiterates-claims-about-irans-nuclear-program-that-contradict-early-intelligence-findings
+
+**Chelsea's Club World Cup campaign so far: What has worked... and what hasn't**\
+`There have been positives for Enzo Maresca in America this summer, but some notable frustrations too`\
+https://nytimes.com/athletic/6450186/2025/06/25/chelsea-club-world-cup-group-stage-analysis/
+
 **The Sabres have a historic playoff drought. Here are 3 leadership lessons from their struggles**\
 `The Buffalo Sabres have the longest playoff drought in NHL history. Here are three leadership lessons from their struggles.
 `\

@@ -1,3 +1,11 @@
+**A Primary and a Heat Wave**\
+`We’re covering the upset in New York City and the weather.`\
+https://nytimes.com/2025/06/25/briefing/a-primary-and-a-heat-wave.html
+
+**Rosenthal: With the clock ticking on Kyle Tucker in Chicago, the Cubs can't go halfway at the deadline**\
+`In addition to Tucker's impending free agency this offseason, the Cubs could lose five more important players to the open market after 2026.`\
+https://nytimes.com/athletic/6449778/2025/06/25/chicago-cubs-trade-deadline-free-agency-tucker/
+
 **Trump reiterates claims about Iran’s nuclear program that contradict early intelligence findings.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/06/25/world/iran-israel-ceasefire-trump/trump-reiterates-claims-about-irans-nuclear-program-that-contradict-early-intelligence-findings
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6446267/2025/06/25/mlb-rookie-pitcher-projections-j
 **NHL free-agent big board 3.0: Expanding to the top 80 targets ahead of Draft Day**\
 `With less than a week to go until free agency, the market is starting to take shape.`\
 https://nytimes.com/athletic/6447240/2025/06/25/nhl-free-agency-rankings-big-board-draft/
-
-**Cooper Flagg NBA Draft sweepstakes result a 'fantastic feeling' for Rolando Blackman**\
-`Blackman, the No. 9 pick in the 1981 NBA Draft, called the 2025 lottery results "a time of renewal ... for our organization, for our fans."`\
-https://nytimes.com/athletic/6439250/2025/06/25/cooper-flagg-mavericks-rolando-blackman-nba-draft-lottery/
-
-**NWSL midseason review: League leaders, most improved, and MVP frontrunners**\
-`The Athletic's women's soccer writers take stock of the NWSL as it heads for a midseason break.`\
-https://nytimes.com/athletic/6449871/2025/06/25/nwsl-midseason-review-league-leaders-mvp/
 
