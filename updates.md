@@ -1,3 +1,11 @@
+**Trump Says He May Send Additional Patriot Systems to Ukraine**\
+`The president met with President Volodymyr Zelensky of Ukraine but neither the White House nor Mr. Zelensky offered any details about their encounter.`\
+https://nytimes.com/2025/06/25/us/politics/trump-ukraine-patriot-missiles-zelensky.html
+
+**Everton remain in talks with Villarreal over Thierno Barry, hopeful of reaching a deal**\
+`The two clubs remain in talks over a potential move.`\
+https://nytimes.com/athletic/6410529/2025/06/25/everton-transfers-thierno-barry-villarreal/
+
 **Streams Were Dying in West Virginia. Here’s How They’re Coming Back.**\
 `Abandoned coal mines had left waterways acidic and rusty orange. Local residents are cleaning them up, and recovering rare earths in the process.`\
 https://nytimes.com/interactive/2025/06/25/climate/west-virginia-pollution-cleanup-coal-mine.html
