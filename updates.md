@@ -1,3 +1,7 @@
+**Mamdani Declares Victory in N.Y.C. Mayoral Primary**\
+`Zohran Mamdani, a state lawmaker from Queens, celebrated with his supporters at a party in Long Island City. The result was not final but he declared victory in the primary after former Gov. Andrew M. Cuomo conceded the race.`\
+https://nytimes.com/video/nyregion/100000010249348/zohran-mamdani-cuomo-nyc-mayor.html
+
 **Late Night Is Taken Aback by Trump’s Potty Mouth**\
 `Seth Meyers said that even with “zero standards of expectations for Trump,” he was shocked to see the president use profanity on the White House lawn.`\
 https://nytimes.com/2025/06/25/arts/television/late-night-trumps-profanity.html
