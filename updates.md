@@ -1,3 +1,7 @@
+**Online and IRL, Trump Offers a Window Into His Psyche**\
+`Other countries used to need spies to discern the thinking of American presidents. Now they just need a Truth Social account.`\
+https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complications.html
+
 **Key Member of Musk’s DOGE Resigns From Government**\
 `Edward Coristine, the 19-year-old who was hired by Elon Musk to help slash the government bureaucracy, became a public symbol of his team.`\
 https://nytimes.com/2025/06/24/us/politics/big-balls-edward-coristine-musk-doge.html

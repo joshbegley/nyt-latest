@@ -1,3 +1,7 @@
+**Online and IRL, Trump Offers a Window Into His Psyche**\
+`Other countries used to need spies to discern the thinking of American presidents. Now they just need a Truth Social account.`\
+https://nytimes.com/2025/06/24/us/politics/online-trump-transparency-complications.html
+
 **Key Member of Musk’s DOGE Resigns From Government**\
 `Edward Coristine, the 19-year-old who was hired by Elon Musk to help slash the government bureaucracy, became a public symbol of his team.`\
 https://nytimes.com/2025/06/24/us/politics/big-balls-edward-coristine-musk-doge.html
@@ -33,8 +37,4 @@ https://nytimes.com/wirecutter/reviews/how-to-disappear-from-the-internet/
 **A Loved One Dies. No One Knows Their Passwords. Here’s What to Do.**\
 `Before I lost my father, I’d always heard that nothing can prepare you for the grief of losing a loved one. But in the aftermath of his death, I was especially blindsided by what came next: the bills that stopped for no one, the accounts that needed to be closed, and the frustrations of taking...`\
 https://nytimes.com/wirecutter/reviews/advice-password-recovery-after-death/
-
-**Your Data Appeared in a Leak. Now What?**\
-`My personal information has been leaked in a data breach not once or twice or even thrice.`\
-https://nytimes.com/wirecutter/reviews/data-breach-protection-steps/
 
