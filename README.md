@@ -1,3 +1,7 @@
+**As a Mamdani Victory Looms, Anti-Muslim Attacks Roll In From the Right**\
+`Republican members of Congress and Trump administration officials have targeted Zohran Mamdani, who would be New York City’s first Muslim mayor.`\
+https://nytimes.com/2025/06/26/nyregion/mamdani-muslim-attacks.html
+
 **Intelligence Agencies Race to Evaluate Iran’s Nuclear Program**\
 `Also, violence has frequently erupted near aid sites in Gaza. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/06/26/briefing/iran-nuclear-program-sean-combs-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/us/politics/justice-department-deport-abrego-garc
 **‘Art Detectives’ Is Good Nerdy Fun**\
 `Murder? Of course. But this British series also gets excited about things like Viking gold, Chinese artifacts and Dutch master paintings.`\
 https://nytimes.com/2025/06/26/arts/television/art-detectives-acorntv.html
-
-**United Faces Race Discrimination Lawsuit After Barring Passengers**\
-`Two Asian American women were mistaken for each other. One was accused of physically assaulting a flight attendant, but both were denied boarding, a lawsuit claims.`\
-https://nytimes.com/2025/06/26/travel/united-airlines-lawsuit-racism.html
 
