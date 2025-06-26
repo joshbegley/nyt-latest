@@ -1,3 +1,9 @@
+**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
+`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+
+`\
+https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+
 **NBA Draft shocker: China center Yang Hansen picked at No. 16, dealt to Blazers**\
 `Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
 https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
