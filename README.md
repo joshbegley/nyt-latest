@@ -1,3 +1,7 @@
+**Mysterious Fireball Reported Over South Carolina, Georgia and Tennessee**\
+`A glowing object lit up the sky, prompting dozens of calls to the authorities, as scientists scrambled to figure out what it was.`\
+https://nytimes.com/2025/06/26/us/fire-ball-south-carolina-georgia-tennessee.html
+
 **New York Red Bulls in talks over Timo Werner move**\
 `No agreement has been reached yet, but both sides are optimistic that a deal can be concluded this summer.`\
 https://nytimes.com/athletic/6454062/2025/06/26/timo-werner-new-york-red-bulls-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453950/2025/06/26/maple-leafs-mitch-marner-nhl-fre
 **Bruins trade tiers: Who could be moved before the draft?**\
 `Who's untouchable and who's most likely to be moved as Don Sweeney looks to shake things up? Here's who we see staying and going.`\
 https://nytimes.com/athletic/6453760/2025/06/26/bruins-trade-tiers-nhl-draft/
-
-**Why the FIA has suddenly gone public with F1 stewards’ guidelines and racing rules**\
-`The FIA has just released previously secret racing rules and stewards' penalty guidelines. Some in the paddock are questioning the motives`\
-https://nytimes.com/athletic/6453842/2025/06/26/f1-racing-rules-released/
 
