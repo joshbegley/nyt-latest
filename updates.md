@@ -1,3 +1,11 @@
+**Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the five hole**\
+`After a string of poor performances from the starters, Matthew Boyd delivered a gem to help lift the Cubs out of their funk.`\
+https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agency-boyd-swanson/
+
+**What I'm hearing about the Kings as the NBA offseason heats up**\
+`What backcourt targets do the Kings have in mind? And what's the latest on the future of their All-Star tandem?`\
+https://nytimes.com/athletic/6452468/2025/06/26/sacramento-kings-offseason-nba-draft-2025/
+
 **What I learned bowling at India's best batters: 'Rishabh Pant smashes every ball'**\
 `Abhay Negi swapped bowling at amateurs for two days practicing with some of the very best batters in the world – and loved it`\
 https://nytimes.com/athletic/6438701/2025/06/26/india-cricket-net-bowler/
