@@ -1,3 +1,11 @@
+**For 53 Years, She Led a New York Theater. Now She’s Stepping Down.**\
+`Lynne Meadow was just 25 when she took a job running the Off Off Broadway Manhattan Theater Club. Now the nonprofit is a major player on and off Broadway.`\
+https://nytimes.com/2025/06/26/theater/mtc-lynne-meadow-steps-down.html
+
+**Don’t Roast. Rotisserie.**\
+`Put your favorite rotisserie chicken to work in Yewande Komolafe’s assertively zippy chicken and herb salad with nuoc cham.`\
+https://nytimes.com/2025/06/26/dining/healthy-chicken-and-herb-salad-with-nuoc-cham-recipe.html
+
 **Red Light: A late-night blockbuster trade. Plus: Why you need to care about this NHL draft**\
 `Let's break down the Mammoth-Sabres blockbuster that went down just before midnight last night.`\
 https://nytimes.com/athletic/6453472/2025/06/26/red-light-newsletter-sabres-mammoth-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6452683/2025/06/26/winners-losers-nba-draft-first-r
 **After declining a max extension, what's next for Austin Reaves and the Lakers?**\
 `While Reaves’ upcoming potential free agency meant his name was floating in rumors, the Lakers consider him one of three pillars.`\
 https://nytimes.com/athletic/6453010/2025/06/26/lakers-austin-reaves-contract-extension/
-
-**Supreme Court Rules Planned Parenthood Cannot Sue Over S. Carolina Defunding Effort**\
-`The question for the justices was whether Medicaid beneficiaries may sue to receive services under a law that lets them choose any qualified provider.`\
-https://nytimes.com/2025/06/26/us/supreme-court-planned-parenthood.html
-
-**Valencia secure €322m funding to finally complete Nou Mestalla**\
-`The club say the 70,000-capacity stadium is now due to be ready in 2027.`\
-https://nytimes.com/athletic/6453363/2025/06/26/valencia-funding-nou-mestalla-new-stadium/
 
