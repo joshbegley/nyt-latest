@@ -1,3 +1,19 @@
+**Wall Street’s Regulatory Reins Start Loosening as Fed Proposes New Rule**\
+`The central bank is planning to reduce a capital buffer for the country’s largest banks, which critics warn will make the financial system less resilient.`\
+https://nytimes.com/2025/06/26/business/fed-banks-capital-rule-change.html
+
+**The Lethal Risk of Seeking Food in Gaza**\
+`Hundreds of Palestinians have been killed over the past month near aid hubs set up under a new Israel-backed system, according to Gaza health officials.`\
+https://nytimes.com/2025/06/26/world/middleeast/gaza-aid-violence.html
+
+**Sharks intend to buy out final year of Marc-Edouard Vlasic's contract**\
+`Vlasic has played 1,323 regular-season games with the Sharks, who drafted him in 2005.`\
+https://nytimes.com/athletic/6453718/2025/06/26/sharks-vlasic-contract-buyout/
+
+**‘Dune’ Director Denis Villeneuve to Take on Next James Bond Film**\
+`Amazon MGM Studios announced earlier this year that it had gained creative control over the Bond franchise after a family had held those duties for more than 60 years.`\
+https://nytimes.com/2025/06/26/movies/denis-villeneuve-james-bond-franchise.html
+
 **Debris From SpaceX Explosion, Landing in Mexico, Draws Investigation**\
 `Mexican environmental activists say detritus raining down from Elon Musk’s rocket company has caused die-offs of marine life.`\
 https://nytimes.com/2025/06/26/us/spacex-explosion-debris-mexico-investigation.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/26/sports/trans-athletes-equestrian-riding.html
 **Arsenal looking to experience with Norgaard, but do they need youth in their midfield too?**\
 `Norgaard is one of the Premier League's most trusted midfielders. But should Arsenal be planning for the future as well as the present?`\
 https://nytimes.com/athletic/6450681/2025/06/26/arsenal-midfield-norgaard-agoume/
-
-**The Proper Saddle Can Bring Harmony to a Horse and Rider**\
-`A saddle fitter explains what makes the perfect match for horse, rider and saddle.`\
-https://nytimes.com/2025/06/26/sports/saddle-horse-rider.html
-
-**Fati set to join Monaco on loan from Barcelona**\
-`The 22-year-old appeared just 11 times for the La Liga champions in the 2024-25 season, failing to register a goal or assist.`\
-https://nytimes.com/athletic/6383544/2025/06/26/ansu-fati-barcelona-monaco-loan/
-
-**How Much Do Celebrities Make From Fashion Deals?**\
-`And what’s in it for the brands? As the industry’s model for working with public figures shifts, the power dynamics are becoming increasingly unclear.`\
-https://nytimes.com/2025/06/26/t-magazine/fashion-brands-celebrity-endorsement-pay.html
-
-**What Blackhawks could get in draft prospect Michael Misa with No. 3 pick**\
-`If Misa, the draft's No. 2 prospect in The Athletic's evaluations, gets to the Blackhawks' pick, they'd likely take him. Here's what to know`\
-https://nytimes.com/athletic/6451157/2025/06/26/blackhawks-nhl-draft-michael-misa-no-3-pick/
 

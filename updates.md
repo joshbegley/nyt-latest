@@ -1,3 +1,7 @@
+**Debris From SpaceX Explosion, Landing in Mexico, Draws Investigation**\
+`Mexican environmental activists say detritus raining down from Elon Musk’s rocket company has caused die-offs of marine life.`\
+https://nytimes.com/2025/06/26/us/spacex-explosion-debris-mexico-investigation.html
+
 **How Brad Lander Helped Push Zohran Mamdani Toward Victory**\
 `In New York’s mayoral primary, Andrew Cuomo was no match for the energy of progressive rivals who saw a virtue in unity.`\
 https://nytimes.com/2025/06/26/nyregion/brad-lander-zohran-mamdani.html
