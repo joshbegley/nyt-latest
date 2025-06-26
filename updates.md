@@ -1,3 +1,11 @@
+**Can Steve From ‘Blue’s Clues’ be a ‘Counterweight’ to the Manosphere?**\
+`The beloved children’s star is starting a podcast for adults. He hopes for thoughtful conversations and a lot of listening.`\
+https://nytimes.com/2025/06/26/style/steve-burns-blues-clues-podcast-alive.html
+
+**Aaron Judge, Shohei Ohtani named AL, NL starters for All-Star Game**\
+`The 2025 MLB All-Star Game will take place at Truist Park in Atlanta. `\
+https://nytimes.com/athletic/6454800/2025/06/26/mlb-all-star-game-2025-starters/
+
 **John Doe vs. Blackhawks lawsuit set for trial in October**\
 `A former player is suing the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
 https://nytimes.com/athletic/6454675/2025/06/26/john-doe-vs-blackhawks-trial-date/
