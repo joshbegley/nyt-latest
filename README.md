@@ -1,40 +1,40 @@
-**Drafting Tre Johnson should give the Wizards the best shooter in the 2025 draft**\
-`Johnson and fellow first-round pick Will Riley have the potential to help Washington. `\
-https://nytimes.com/athletic/6452687/2025/06/26/tre-johnson-will-riley-washington-wizards/
+**'Al Nassr forever': Ronaldo extends contract with Saudi club**\
+`Ronaldo’s previous deal with the Saudi Pro League (SPL) club was set to expire on June 30.`\
+https://nytimes.com/athletic/6035296/2025/06/26/cristiano-ronaldo-al-nassr-contract-new/
 
-**Susan Beth Pfeffer, 77, Dies; Wrote Complex Stories for Young Adults**\
-`Her 76 books included “Life as We Knew It,” a late-career best seller that told the story of a family in postapocalyptic Pennsylvania.`\
-https://nytimes.com/2025/06/26/books/susan-beth-pfeffer-dead.html
+**Playful Tables Topped With Tiles**\
+`Plus: a tranquil new hotel in Ojai, a design gallery in a Florentine palazzo and more recommendations from T Magazine.`\
+https://nytimes.com/2025/06/26/t-magazine/tiled-table-furniture.html
 
-**Centrifuges at Fordo ‘No Longer Operational,’ U.N. Nuclear Watchdog Head Says**\
-`Rafael Grossi told French radio that there was “no escaping significant physical damage” after the U.S. dropped bunker-buster bombs on the Iranian facility.`\
-https://nytimes.com/2025/06/26/world/middleeast/centrifuges-fordo-damage-iran.html
+**Key testimony for the defense: a disputed timeline and lots of texts.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/key-testimony-for-the-defense-a-disputed-timeline-and-lots-of-texts
 
-**Investors on Edge About a Potential Shadow Fed Chair**\
-`Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
-https://nytimes.com/2025/06/26/business/dealbook/trump-powell-shadow-fed-chair.html
+**Hegseth and Caine Delve Into Details but Not Results of Iranian Strikes**\
+`Neither man repeated President Trump’s assertion that the strikes had “obliterated” the Iranian facilities.`\
+https://nytimes.com/2025/06/26/us/politics/iran-hegseth-caine.html
 
-**Six prosecutors presented the case against Sean Combs.**\
-`By Olivia Bensimon`\
-https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/six-prosecutors-presented-the-case-against-sean-combs
+**Pelicans highlight GM Joe Dumars' emphasis on 'aggressive' moves with Jeremiah Fears, Derik Queen**\
+`“We’re going to be an aggressive front office,” says new Pels GM Joe Dumars on his moves in the first round of the NBA Draft. `\
+https://nytimes.com/athletic/6452800/2025/06/26/pelicans-jeremiah-fears-derik-queen-jordan-poole-nba-draft-2025/
 
-**How Prime won over the NASCAR world and raised the bar for future broadcasts**\
-`Prime's debut NASCAR broadcasts — the Cup Series' first with a streaming service — were well received by the sport's fans and personnel.`\
-https://nytimes.com/athletic/6450666/2025/06/26/amazon-prime-nascar-broadcasts-streaming/
+**Buccaneers extend coach Todd Bowles, GM Jason Licht**\
+`Under Bowles, the Bucs have gone 27-24, won the NFC South title three times and made three playoff appearances.`\
+https://nytimes.com/athletic/6453108/2025/06/26/todd-bowles-jason-licht-extension-buccaneers/
 
-**Rudy Gobert 2.0? Timberwolves take French big man Joan Beringer at No. 17**\
-`Beringer lands on a team with a player who knows exactly what it is like to come over to the United States from France at a young age.`\
-https://nytimes.com/athletic/6444310/2025/06/26/timberwolves-2025-nba-draft-joan-beringer/
+**Astros shortstop Jeremy Peña is where everyone presumed he'd be: On the brink of superstardom**\
+`After working out before this season with the man he replaced, Peña has risen to the expectations he created during the 2022 postseason.`\
+https://nytimes.com/athletic/6451401/2025/06/26/astros-jeremy-pena-superstardom/
 
-**Death Toll From Kenya Protests Climbs, Rights Group Says**\
-`Thousands of people turned out across Kenya on Wednesday to protest government corruption and police brutality.`\
-https://nytimes.com/2025/06/26/world/europe/kenya-protests.html
+**Canadiens expectations, Logan Mailloux as a trade chip, Stanley Cup checklist: Mailbag**\
+`Ahead of a busy week for the Canadiens, we take a look at the likelihood of a repeat playoff berth and much more.`\
+https://nytimes.com/athletic/6452636/2025/06/26/canadiens-logan-mailloux-trade-mailbag/
 
-**Burnley complete signing of Netherlands defender Quilindschy Hartman**\
-`The 23-year-old has signed a four-year contract and arrived from the Dutch club for an undisclosed fee.`\
-https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman-transfer-feyenoord/
+**'Are you going to say Italian food is trash?': How Weston McKennie and Tim Weah wound up a nation**\
+`Is American food better than Italian? The USMNT pair had a 'hot take'`\
+https://nytimes.com/athletic/6452926/2025/06/26/mckennie-and-weah-italian-food/
 
-**Sean Combs Trial Live Updates: Sex-Trafficking Case Reaches Closing Arguments**\
-`After 28 days of testimony from former girlfriends, personal assistants and federal agents, jurors will hear from prosecutors and the defense for the final time.`\
-https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial
+**Arsenal working on deal to sign Valencia defender Mosquera**\
+`The 20-year-old Spain youth international is currently the club's preferred option as they search for defensive reinforcements.`\
+https://nytimes.com/athletic/6452716/2025/06/26/arsenal-transfer-news-mosquera/
 
