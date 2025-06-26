@@ -1,3 +1,7 @@
+**New York Red Bulls in talks over Timo Werner move**\
+`No agreement has been reached yet, but both sides are optimistic that a deal can be concluded this summer.`\
+https://nytimes.com/athletic/6454062/2025/06/26/timo-werner-new-york-red-bulls-transfer/
+
 **U.S. soccer investor fighting extradition from Spain, wanted on multiple allegations of fraud**\
 `Paul Conway once owned as many as seven clubs around Europe, including League One side Barnsley.`\
 https://nytimes.com/athletic/6453698/2025/06/26/paul-conway-fraud-kv-oostende/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453760/2025/06/26/bruins-trade-tiers-nhl-draft/
 **Why the FIA has suddenly gone public with F1 stewards’ guidelines and racing rules**\
 `The FIA has just released previously secret racing rules and stewards' penalty guidelines. Some in the paddock are questioning the motives`\
 https://nytimes.com/athletic/6453842/2025/06/26/f1-racing-rules-released/
-
-**What are the ‘freak-offs’ and ‘hotel nights’ at the core of the Sean Combs case?**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/what-are-the-freak-offs-and-hotel-nights-at-the-core-of-the-sean-combs-case
 
