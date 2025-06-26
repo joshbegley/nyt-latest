@@ -1,6 +1,14 @@
+**Drafting Tre Johnson should give the Wizards the best shooter in the 2025 draft**\
+`Johnson and fellow first-round pick Will Riley have the potential to help Washington. `\
+https://nytimes.com/athletic/6452687/2025/06/26/tre-johnson-will-riley-washington-wizards/
+
+**Susan Beth Pfeffer, 77, Dies; Wrote Complex Stories for Young Adults**\
+`Her 76 books included “Life as We Knew It,” a late-career best seller that told the story of a family in postapocalyptic Pennsylvania.`\
+https://nytimes.com/2025/06/26/books/susan-beth-pfeffer-dead.html
+
 **Centrifuges at Fordo ‘No Longer Operational,’ U.N. Nuclear Watchdog Head Says**\
 `Rafael Grossi told French radio that there was “no escaping significant physical damage” after the U.S. dropped bunker-buster bombs on the Iranian facility.`\
-https://nytimes.com/2025/06/26/world/middleeast/centrifuges-at-fordo-no-longer-operational-un-nuclear-watchdog-head-says.html
+https://nytimes.com/2025/06/26/world/middleeast/centrifuges-fordo-damage-iran.html
 
 **Investors on Edge About a Potential Shadow Fed Chair**\
 `Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman
 **Sean Combs Trial Live Updates: Sex-Trafficking Case Reaches Closing Arguments**\
 `After 28 days of testimony from former girlfriends, personal assistants and federal agents, jurors will hear from prosecutors and the defense for the final time.`\
 https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial
-
-**How Liverpool signed Kerkez, why they wanted him and what it means for Robertson**\
-`The Hungary international is viewed as the long-term answer at left-back by head coach Arne Slot`\
-https://nytimes.com/athletic/6429641/2025/06/26/milos-kerkez-liverpool-robertson-tsimikas/
-
-**Cowboys 53-man roster projection: One spot left open for player not on current roster**\
-`Predicting that Dallas will keep five running backs, five receivers and three tight ends. Is a spot remaining in the secondary?`\
-https://nytimes.com/athletic/6451352/2025/06/26/cowboys-53-man-roster-projection-predictions/
 
