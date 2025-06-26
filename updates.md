@@ -1,3 +1,7 @@
+**3 More Victims Identified in West Virginia Flooding, Bringing Death Toll to 9**\
+`Seven of the victims were from Triadelphia, a town of about 900 people, in the northern panhandle of West Virginia.`\
+https://nytimes.com/2025/06/26/us/politics/west-virginia-flood-death-toll.html
+
 **Young Father Announces Own Death on Social Media**\
 `Tanner Martin documented his five-year-long battle against colon cancer for his hundreds of thousands of followers on social media before passing away at age 30. He left behind his young family and a legacy of candid honesty about living with cancer.`\
 https://nytimes.com/video/us/100000010252641/tanner-martin-death-announcement-video.html
