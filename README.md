@@ -1,3 +1,7 @@
+**Bolster the Building Blocks of Kindergarten**\
+`Readers respond to an Upshot article about expectations for kindergarten. Also: Black lung in miners.`\
+https://nytimes.com/2025/06/26/opinion/kindergarten-boys-girls.html
+
 **Wall Street’s Regulatory Reins Start Loosening as Fed Proposes New Rule**\
 `The central bank is planning to reduce a capital buffer for the country’s largest banks, which critics warn will make the financial system less resilient.`\
 https://nytimes.com/2025/06/26/business/fed-banks-capital-rule-change.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/06/26/world/middleeast/gaza-aid-violence.html
 `Vlasic has played 1,323 regular-season games with the Sharks, who drafted him in 2005.`\
 https://nytimes.com/athletic/6453718/2025/06/26/sharks-vlasic-contract-buyout/
 
-**‘Dune’ Director Denis Villeneuve to Take on Next James Bond Film**\
+**‘Dune’ Director Denis Villeneuve to Take On Next James Bond Film**\
 `Amazon MGM Studios announced earlier this year that it had gained creative control over the Bond franchise after a family had held those duties for more than 60 years.`\
 https://nytimes.com/2025/06/26/movies/denis-villeneuve-james-bond-franchise.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/combss-criminal-
 **Trans Athletes Find a Refuge: Equestrian Sport**\
 `Men and women compete equally, so being transgender has not stirred the debate about equity raging in other sports.`\
 https://nytimes.com/2025/06/26/sports/trans-athletes-equestrian-riding.html
-
-**Arsenal adding proven quality with Norgaard – could they still target a young midfielder too?**\
-`Norgaard is one of the Premier League's most trusted midfielders. But should Arsenal be planning for the future as well as the present?`\
-https://nytimes.com/athletic/6450681/2025/06/26/arsenal-midfield-norgaard-agoume/
 

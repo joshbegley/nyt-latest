@@ -1,3 +1,23 @@
+**Wall Street’s Regulatory Reins Start Loosening as Fed Proposes New Rule**\
+`The central bank is planning to reduce a capital buffer for the country’s largest banks, which critics warn will make the financial system less resilient.`\
+https://nytimes.com/2025/06/26/business/fed-banks-capital-rule-change.html
+
+**The Lethal Risk of Seeking Food in Gaza**\
+`Hundreds of Palestinians have been killed over the past month near aid hubs set up under a new Israel-backed system, according to Gaza health officials.`\
+https://nytimes.com/2025/06/26/world/middleeast/gaza-aid-violence.html
+
+**Sharks intend to buy out final year of Marc-Edouard Vlasic's contract**\
+`Vlasic has played 1,323 regular-season games with the Sharks, who drafted him in 2005.`\
+https://nytimes.com/athletic/6453718/2025/06/26/sharks-vlasic-contract-buyout/
+
+**‘Dune’ Director Denis Villeneuve to Take on Next James Bond Film**\
+`Amazon MGM Studios announced earlier this year that it had gained creative control over the Bond franchise after a family had held those duties for more than 60 years.`\
+https://nytimes.com/2025/06/26/movies/denis-villeneuve-james-bond-franchise.html
+
+**Arsenal adding proven quality with Norgaard – could they still target a young midfielder too?**\
+`Norgaard is one of the Premier League's most trusted midfielders. But should Arsenal be planning for the future as well as the present?`\
+https://nytimes.com/athletic/6450681/2025/06/26/arsenal-midfield-norgaard-agoume/
+
 **Debris From SpaceX Explosion, Landing in Mexico, Draws Investigation**\
 `Mexican environmental activists say detritus raining down from Elon Musk’s rocket company has caused die-offs of marine life.`\
 https://nytimes.com/2025/06/26/us/spacex-explosion-debris-mexico-investigation.html
