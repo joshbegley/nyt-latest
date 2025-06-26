@@ -1,3 +1,5 @@
+
+
 **Blue Jays' Max Scherzer fires five innings in return to rotation**\
 `For at least one start, Scherzer returned to Toronto’s starting staff. If the thumb allows, the Blue Jays hope he stays there.`\
 https://nytimes.com/athletic/6452043/2025/06/25/blue-jays-max-scherzer-return/
