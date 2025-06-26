@@ -1,3 +1,7 @@
+**Jazz draft Rutgers star Ace Bailey with No. 5 pic**\
+`Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
+https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
+
 **Hornets draft Kon Knueppel with No. 4 pick**\
 `Knueppel thrived in his only season at Duke thanks to his high basketball IQ, proving to be far more than Cooper Flagg's wingman.`\
 https://nytimes.com/athletic/6439340/2025/06/25/kon-knueppel-hornets-nba-draft-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451301/2025/06/25/nba-draft-grades-analysis-2025-j
 **Browns get green light to build indoor stadium as state budget gets approved**\
 `The state Senate and House of Representatives separately approved a budget that includes $600 million for the new indoor Browns stadium.`\
 https://nytimes.com/athletic/6451878/2025/06/25/cleveland-browns-indoor-stadium-ohio-budget/
-
-**A Look at Zohran Mamdani’s Stances on Key Issues**\
-`The state assemblyman ran a campaign tightly focused on issues related to affordability. Here is a look at where he stands on those issues and others.`\
-https://nytimes.com/2025/06/25/nyregion/mamdani-policies-stances.html
 
