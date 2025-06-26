@@ -1,3 +1,15 @@
+**‘Art Detectives’ Is Good Nerdy Fun**\
+`Murder? Of course. But this British series also gets excited about things like Viking gold, Chinese artifacts and Dutch master paintings.`\
+https://nytimes.com/2025/06/26/arts/television/art-detectives-acorntv.html
+
+**United Faces Race Discrimination Lawsuit After Barring Passengers**\
+`Two Asian American women were mistaken for each other. One was accused of physically assaulting a flight attendant, but both were denied boarding, a lawsuit claims.`\
+https://nytimes.com/2025/06/26/travel/united-airlines-lawsuit-racism.html
+
+**The Last Word: Carolyn McCarthy**\
+`When a mass shooting in 1993 shattered Carolyn McCarthy’s family, she took her gun control crusade to Washington. The former nine-term congresswoman sat down with the Times reporter Clyde Haberman in 2014 to talk about the tragedy that transformed her life.`\
+https://nytimes.com/video/us/100000005033423/the-last-word-carolyn-mccarthy.html
+
 **Amid Attacks, Iran’s Exiled Opposition Remained Divided. Who Are They?**\
 `While many in Iran’s divided diaspora opposed Israel’s campaign, some took the war as a chance to amplify their ideas about Iran’s future.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-opposition-groups.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/26/opinion/netanyahu-trump-iran.html
 **‘Re-elect Eric’: Adams Kicks Off Bid to Oppose Mamdani for Mayor**\
 `Just a few months ago, it appeared unlikely that Mayor Eric Adams of New York, who was facing federal corruption charges, would be in a position to seek a second term.`\
 https://nytimes.com/2025/06/26/nyregion/eric-adams-mayor-campaign.html
-
-**Trump Threatens to Sue The Times and CNN Over Iran Reporting**\
-`The president has criticized media coverage of a preliminary classified report that ran counter to his assertion that U.S. strikes had “obliterated” Iran’s nuclear program.`\
-https://nytimes.com/2025/06/26/business/media/trump-iran-new-york-times-cnn.html
-
-**What the Leafs are signalling about their plans for Matthew Knies and the offseason**\
-`What does GM Brad Treliving have in store this summer? He discussed Mitch Marner's future, contract talks with John Tavares and much more.`\
-https://nytimes.com/athletic/6454145/2025/06/26/maple-leafs-matthew-knies-nhl-offseason/
-
-**Giants' Hayden Birdsong plunks Otto Lopez in finale of combative series against Marlins**\
-`Logan Webb hinted a night earlier that the Giants would take action after their batters had been hit by several pitches in recent games.`\
-https://nytimes.com/athletic/6454385/2025/06/26/sf-giants-hayden-birdsong-marlins-otto-lopez-hit-by-pitch-retaliation/
 
