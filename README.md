@@ -1,42 +1,40 @@
-**Magic draft Jase Richardson, son Jason Richardson, at No. 25**\
+**Quote of the Day: Online and IRL, the President Offers the World a Picture Window Into His Psyche**\
+`Quotation of the Day for Thursday, June 26, 2025.`\
+https://nytimes.com/2025/06/26/pageoneplus/quote-of-the-day-online-and-irl-the-president-offers-the-world-a-picture-window-into-his-psyche.html
+
+**An Investor Who Took on Hong Kong’s Tycoons Faces a Tougher Foe**\
+`David Webb spent decades exposing shady financial dealings. But doctors say he has months to live, and he hasn’t found anyone willing to carry on his mission.`\
+https://nytimes.com/2025/06/26/world/asia/hong-kong-investor-david-webb.html
+
+**How Trump’s Strike on Iran Might Affect China’s Calculus on Taiwan**\
+`By attacking Iran, President Trump has shown he is willing to engage in a distant war. This raises questions in Beijing about what he might risk for Taiwan.`\
+https://nytimes.com/2025/06/26/world/asia/iran-china-trump-taiwan.html
+
+**Corrections: June 26, 2025**\
+`Corrections that appeared in print on Thursday, June 26, 2025.`\
+https://nytimes.com/2025/06/26/pageoneplus/corrections-june-26-2025.html
+
+**How Japan and Alaska Pioneered the Global Market for L.N.G.**\
+`The leading role the United States plays in liquefied natural gas traces its roots to a small Alaskan outpost that began shipping the fuel to Japan in 1969.`\
+https://nytimes.com/2025/06/26/business/lng-alaska-japan.html
+
+**The Outpost at the Center of Trump’s $44 Billion Energy Push**\
+`Nikiski in southern Alaska is waiting to see if backing from President Trump and a new developer will advance a decades-old initiative to export natural gas.`\
+https://nytimes.com/2025/06/26/business/alaska-lng-japan.html
+
+**Connections: Sports Edition Coach: Hints for June 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6442044/2025/06/26/connections-sports-edition-hints-for-june-26-2025/
+
+**10 Years of Marriage Equality: ‘With the Stroke of a Pen,Our Lives Changed Completely’**\
+`A decade after the Supreme Court legalized same-sex marriage nationwide, we asked people from across the country to share stories of what the ruling in Obergefell v. Hodges has meant to them.`\
+https://nytimes.com/2025/06/26/style/same-sex-marriage-supreme-court.html
+
+**Magic draft Jase Richardson, son of Jason Richardson, at No. 25**\
 `Jase Richardson has a great basketball pedigree, but is he ready for the next level?`\
 https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-2025/
 
 **Urawa 0 Monterrey 4: Explosive sequence sends Liga MX side through**\
 `With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
 https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
-
-**Marcos Acuna loses his head as River Plate exit the Club World Cup fighting in defeat by Inter**\
-`Analysis of Inter Milan's victory over nine-man River Plate`\
-https://nytimes.com/athletic/6443567/2025/06/25/inter-river-plate-esposito/
-
-**Reach of the NBA Draft? Blazers land China center Yang Hansen at No. 16**\
-`Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
-https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
-
-**Wizards pick Florida guard Walter Clayton Jr. at No. 18, will trade to Jazz**\
-`In 2025, Clayton's 134 total points (22.3 per game) are the most by any player in an NCAA Tournament since “Cardiac” Kemba Walker in 2011.`\
-https://nytimes.com/athletic/6449566/2025/06/25/walter-clayton-jr-wizards-jazz-nba-draft-2025/
-
-**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
-`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
-
-`\
-https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
-
-**Pelicans trade for No. 13 pick, draft Derik Queen**\
-`The Pelicans gave up two first-round picks to move up for Queen, who tallied 16.5 points and nine rebounds per game last season at Maryland.`\
-https://nytimes.com/athletic/6442225/2025/06/25/derik-queen-pelicans-trade-nba-draft-2025/
-
-**How Zohran Mamdani Says He Won**\
-`Emma Fitzsimmons, City Hall bureau chief for The New York Times, explains how State Assemblyman Zohran Mamdani claimed victory over former Gov. Andrew Cuomo.`\
-https://nytimes.com/video/nyregion/100000010249653/how-zohran-mamdani-says-he-won.html
-
-**Love Lines**\
-`Simeon Seigel offers us choices.`\
-https://nytimes.com/2025/06/25/crosswords/daily-puzzle-2025-06-26.html
-
-**Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
-`Maluach brings defense, length and coachability to the NBA.`\
-https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
 
