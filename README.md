@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6446966/2025/06/25/tre-johnson-wizards-nba-draft-20
 https://nytimes.com/2025/06/25/nyregion/shooting-bronx-park-water-gun.html
 
 **Jazz draft Rutgers star Ace Bailey with No. 5 pick, ending draft speculation**\
-`Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
+`After a unique predraft process in which he didn't work out for anyone, Ace Bailey ends up with a team few expected.`\
 https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
 
 **Hornets draft Kon Knueppel with No. 4 pick**\

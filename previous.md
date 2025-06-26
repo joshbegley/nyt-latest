@@ -1,3 +1,7 @@
+**Houston picks Duke's Khaman Maluach at No. 10, will trade him to Suns**\
+`Maluach brings defense, length and coachability to the NBA.`\
+https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
+
 **U.S. Spy Chiefs Give New Assessments on Damage at Iran Nuclear Sites**\
 `President Trump defended his assertion that Iran’s key facilities had been “obliterated” as a preliminary intelligence report became a flashpoint in the public discussion.`\
 https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-baile
 **Hornets draft Kon Knueppel with No. 4 pick**\
 `Knueppel thrived in his only season at Duke thanks to his high basketball IQ, proving to be far more than Cooper Flagg's wingman.`\
 https://nytimes.com/athletic/6439340/2025/06/25/kon-knueppel-hornets-nba-draft-2025/
-
-**Supreme Leader’s Absence Raises Alarm in Iran**\
-`Ayatollah Ali Khamenei has not been seen publicly or heard from in nearly a week. That absence has surprised and unnerved everyone from political insiders to the general public.`\
-https://nytimes.com/2025/06/25/world/middleeast/where-is-khamenei-iran-supreme-leader.html
 
