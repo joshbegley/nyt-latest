@@ -1,3 +1,5 @@
+
+
 **Buccaneers extend coach Todd Bowles, GM Jason Licht**\
 `Under Bowles, the Bucs have gone 27-24, won the NFC South title three times and made three playoff appearances.`\
 https://nytimes.com/athletic/6453108/2025/06/26/todd-bowles-jason-licht-extension-buccaneers/
