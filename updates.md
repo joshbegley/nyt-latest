@@ -1,3 +1,15 @@
+**Playful Tables Topped With Tiles**\
+`Plus: a tranquil new hotel in Ojai, a design gallery in a Florentine palazzo and more recommendations from T Magazine.`\
+https://nytimes.com/2025/06/26/t-magazine/tiled-table-furniture.html
+
+**Key testimony for the defense: a disputed timeline and lots of texts.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/key-testimony-for-the-defense-a-disputed-timeline-and-lots-of-texts
+
+**Hegseth and Caine Delve Into Details but Not Results of Iranian Strikes**\
+`Neither man repeated President Trump’s assertion that the strikes had “obliterated” the Iranian facilities.`\
+https://nytimes.com/2025/06/26/us/politics/iran-hegseth-caine.html
+
 **Pelicans highlight GM Joe Dumars' emphasis on 'aggressive' moves with Jeremiah Fears, Derik Queen**\
 `“We’re going to be an aggressive front office,” says new Pels GM Joe Dumars on his moves in the first round of the NBA Draft. `\
 https://nytimes.com/athletic/6452800/2025/06/26/pelicans-jeremiah-fears-derik-queen-jordan-poole-nba-draft-2025/
