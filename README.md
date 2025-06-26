@@ -1,3 +1,7 @@
+**An Ode to Joy, in Climate Action**\
+`Climate change is often unrelentingly grim. But some activists argue that joyful climate action can change minds.`\
+https://nytimes.com/2025/06/26/climate/an-ode-to-joy-in-climate-action.html
+
 **Bill Moyers, Presidential Aide and Veteran of Public TV, Dies at 91**\
 `Before becoming known as an unusual breed of television correspondent and commentator, he had a long association with President Lyndon B. Johnson.`\
 https://nytimes.com/2025/06/26/business/media/bill-moyers-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/spotlight/strands-sidekick
 **General Caine Faces His First Big Test Under Trump**\
 `In remarks about Iran, the chairman of the Joint Chiefs of Staff was speaking to the American people, but also to an audience of one in the White House.`\
 https://nytimes.com/2025/06/26/us/politics/general-caine-trump.html
-
-**California risks 'imminent enforcement action' over transgender athlete policy**\
-`The statement is the latest battle between the Trump administration and some states over the role of transgender women and girls in sports.`\
-https://nytimes.com/athletic/6454194/2025/06/26/trump-california-department-education-transgender-athlete-policy/
 
