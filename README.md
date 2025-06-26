@@ -1,3 +1,7 @@
+**3 More Victims Identified in West Virginia Flooding, Bringing Death Toll to 9**\
+`Seven of the victims were from Triadelphia, a town of about 900 people, in the northern panhandle of West Virginia.`\
+https://nytimes.com/2025/06/26/us/politics/west-virginia-flood-death-toll.html
+
 **Young Father Announces Own Death on Social Media**\
 `Tanner Martin documented his five-year-long battle against colon cancer for his hundreds of thousands of followers on social media before passing away at age 30. He left behind his young family and a legacy of candid honesty about living with cancer.`\
 https://nytimes.com/video/us/100000010252641/tanner-martin-death-announcement-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010247286/why-is-this-music-superstar-s
 **In NATO Visit, Trump Casts Himself as a Global Peacemaker**\
 `The president’s trip to NATO offered a glimpse into how he sees himself — and wants to be seen — on the world stage.`\
 https://nytimes.com/2025/06/26/us/politics/trump-nato-visit-nobel-prize.html
-
-**Lawyer Who Pushed Bogus Trump Elector Scheme Is Disbarred in New York**\
-`Kenneth Chesebro, an architect of the plan to use phony slates of pro-Trump electors to overturn the 2020 election, was indefinitely barred from practicing in the state last year.`\
-https://nytimes.com/2025/06/26/us/politics/kenneth-chesebro-disbarred-trump.html
 
