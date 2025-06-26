@@ -1,3 +1,7 @@
+**Round 1 of the 2025 NBA Draft full of twists and turns with surprising trades**\
+`The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
+https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
+
 **As Phillies stumble, a familiar platoon debate reopens for Brandon Marsh and Bryson Stott**\
 `"I hope they're everyday guys," Phillies manager Rob Thomson said. "I hope. We'll see how it all transpires."`\
 https://nytimes.com/athletic/6452421/2025/06/26/phillies-lose-astros-platoon-debate-brandon-marsh-bryson-stott/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438701/2025/06/26/india-cricket-net-bowler/
 **The Aston Villa coaching syllabus, who implemented it and how it works**\
 `The academy is not there to copy the first team, but for young players to know the expectations of Emery’s environment`\
 https://nytimes.com/athletic/6377864/2025/06/26/the-aston-villa-coaching-syllabus-who-implemented-it-and-how-it-works/
-
-**'Potential All-Star': Why 76ers zeroed in on VJ Edgecombe with No. 3 pick**\
-`Daryl Morey, Philadelphia believe Baylor star's defense, motor and athleticism make him the perfect fit for 76ers.`\
-https://nytimes.com/athletic/6451967/2025/06/26/76ers-vj-edgecombe-nba-draft-all-star-upside/
 

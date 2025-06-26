@@ -1,3 +1,7 @@
+**Round 1 of the 2025 NBA Draft full of twists and turns with surprising trades**\
+`The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
+https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
+
 **As Phillies stumble, a familiar platoon debate reopens for Brandon Marsh and Bryson Stott**\
 `"I hope they're everyday guys," Phillies manager Rob Thomson said. "I hope. We'll see how it all transpires."`\
 https://nytimes.com/athletic/6452421/2025/06/26/phillies-lose-astros-platoon-debate-brandon-marsh-bryson-stott/
