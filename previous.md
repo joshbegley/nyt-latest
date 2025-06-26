@@ -1,3 +1,7 @@
+**After big trades, Celtics become harbinger for the destruction of the second apron era**\
+`Brad Stevens spoke about the Celtics' big salary-dump moves to get out of the second apron and what it means for the future.`\
+https://nytimes.com/athletic/6452639/2025/06/26/celtics-nba-draft-big-trades-second-apron-era/
+
 **Can Mamdani’s Energetic Campaign Be a Blueprint for Democrats?**\
 `The progressive state lawmaker’s sleek social media presence and army of eager volunteers could offer his party a road map for how to win back voters.`\
 https://nytimes.com/2025/06/26/us/politics/mamdani-campaign-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6452492/2025/06/26/greenberg-bulls-noa-essengue-nba
 **Word of the Day: spectral**\
 `This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/26/learning/word-of-the-day-spectral.html
-
-**NBA Draft's first round full of twists, turns and surprising trades**\
-`The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
-https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
 

@@ -1,3 +1,7 @@
+**After big trades, Celtics become harbinger for the destruction of the second apron era**\
+`Brad Stevens spoke about the Celtics' big salary-dump moves to get out of the second apron and what it means for the future.`\
+https://nytimes.com/athletic/6452639/2025/06/26/celtics-nba-draft-big-trades-second-apron-era/
+
 **Can Mamdani’s Energetic Campaign Be a Blueprint for Democrats?**\
 `The progressive state lawmaker’s sleek social media presence and army of eager volunteers could offer his party a road map for how to win back voters.`\
 https://nytimes.com/2025/06/26/us/politics/mamdani-campaign-democrats.html
