@@ -1,42 +1,40 @@
-**Magic draft Jase Richardson, son Jason Richardson, at No. 25**\
-`Jase Richardson has a great basketball pedigree, but is he ready for the next level?`\
-https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-2025/
+**Real Madrid's £50m defender Dean Huijsen: The car crash, cultures and country that made him**\
+`Dean Huijsen was born in the Netherlands but brought up in Spain. His remarkable rise started back on the Costa del Sol`\
+https://nytimes.com/athletic/6435068/2025/06/26/huijsen-real-madrid-malaga-spain-juventus/
 
-**Urawa 0 Monterrey 4: Explosive sequence sends Liga MX side through**\
-`With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
-https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
+**Club World Cup daily rankings: Manchester City seeks to tighten grip at top**\
+`Our ranking of all 32 Club World Cup teams, updated daily`\
+https://nytimes.com/athletic/6433032/2025/06/26/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
 
-**Marcos Acuna loses his head as River Plate exit the Club World Cup fighting in defeat by Inter**\
-`Analysis of Inter Milan's victory over nine-man River Plate`\
-https://nytimes.com/athletic/6443567/2025/06/25/inter-river-plate-esposito/
+**Premier League clubs have the greatest spending power - but it comes at a cost...**\
+`The Premier League spends the most on transfers — but that brings with it a problem when buying from other 'big five' leagues`\
+https://nytimes.com/athletic/6440235/2025/06/26/premier-league-spending-power-saudi/
 
-**Reach of the NBA Draft? Blazers land China center Yang Hansen at No. 16**\
-`Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
-https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
+**Sabres trade Peterka to Mammoth for Kesselring, Doan**\
+`As part of the deal, Peterka has agreed to a contract extension with the Mammoth.`\
+https://nytimes.com/athletic/6441617/2025/06/26/sabres-peterka-mammoth-kesselring-doan/
 
-**Wizards pick Florida guard Walter Clayton Jr. at No. 18, will trade to Jazz**\
-`In 2025, Clayton's 134 total points (22.3 per game) are the most by any player in an NCAA Tournament since “Cardiac” Kemba Walker in 2011.`\
-https://nytimes.com/athletic/6449566/2025/06/25/walter-clayton-jr-wizards-jazz-nba-draft-2025/
+**Women's Euros 2025: Guide to Group C - historic heavyweights and Pajor's Lewandowski likeness**\
+`Everything you need to know about Group C at Euro 2025, featuring Germany, Poland, Denmark and Sweden`\
+https://nytimes.com/athletic/6418315/2025/06/26/womens-euros-2025-group-c-guide/
 
-**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
-`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+**Yankees believe Jose Trevino 'contributed' to Jazz Chisholm Jr.'s ejection, get revenge**\
+`Trevino, who played three seasons in New York, was a key figure in the Yankees' success during that span.`\
+https://nytimes.com/athletic/6452264/2025/06/26/yankees-believe-jose-trevino-contributed-to-jazz-chisholm-jr-s-ejection-get-revenge/
 
-`\
-https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+**How the heatwave has affected players at the Club World Cup and what the lessons are for the 2026 World Cup**\
+`Experts explain what the extreme temperatures being experienced in the United States does to footballers and whether they can adapt`\
+https://nytimes.com/athletic/6438611/2025/06/26/club-world-cup-heat-affect-players/
 
-**Pelicans trade for No. 13 pick, draft Derik Queen**\
-`The Pelicans gave up two first-round picks to move up for Queen, who tallied 16.5 points and nine rebounds per game last season at Maryland.`\
-https://nytimes.com/athletic/6442225/2025/06/25/derik-queen-pelicans-trade-nba-draft-2025/
+**Quote of the Day: Online and IRL, the President Offers the World a Picture Window Into His Psyche**\
+`Quotation of the Day for Thursday, June 26, 2025.`\
+https://nytimes.com/2025/06/26/pageoneplus/quote-of-the-day-online-and-irl-the-president-offers-the-world-a-picture-window-into-his-psyche.html
 
-**How Zohran Mamdani Says He Won**\
-`Emma Fitzsimmons, City Hall bureau chief for The New York Times, explains how State Assemblyman Zohran Mamdani claimed victory over former Gov. Andrew Cuomo.`\
-https://nytimes.com/video/nyregion/100000010249653/how-zohran-mamdani-says-he-won.html
+**An Investor Who Took on Hong Kong’s Tycoons Faces a Tougher Foe**\
+`David Webb spent decades exposing shady financial dealings. But doctors say he has months to live, and he hasn’t found anyone willing to carry on his mission.`\
+https://nytimes.com/2025/06/26/world/asia/hong-kong-investor-david-webb.html
 
-**Love Lines**\
-`Simeon Seigel offers us choices.`\
-https://nytimes.com/2025/06/25/crosswords/daily-puzzle-2025-06-26.html
-
-**Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
-`Maluach brings defense, length and coachability to the NBA.`\
-https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
+**How Trump’s Strike on Iran Might Affect China’s Calculus on Taiwan**\
+`By attacking Iran, President Trump has shown he is willing to engage in a distant war. This raises questions in Beijing about what he might risk for Taiwan.`\
+https://nytimes.com/2025/06/26/world/asia/iran-china-trump-taiwan.html
 
