@@ -1,3 +1,11 @@
+**Investors on Edge About a Potential Shadow Fed Chair**\
+`Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
+https://nytimes.com/2025/06/26/business/dealbook/trump-powell-shadow-fed-chair.html
+
+**Six prosecutors presented the case against Sean Combs.**\
+`By Olivia Bensimon`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/six-prosecutors-presented-the-case-against-sean-combs
+
 **How Prime won over the NASCAR world and raised the bar for future broadcasts**\
 `Prime's debut NASCAR broadcasts — the Cup Series' first with a streaming service — were well received by the sport's fans and personnel.`\
 https://nytimes.com/athletic/6450666/2025/06/26/amazon-prime-nascar-broadcasts-streaming/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6451352/2025/06/26/cowboys-53-man-roster-projection
 **This is the latest Yankees pitching prospect turning heads**\
 `The 22-year-old touched 102 mph, struck out four batters and worked out of early trouble for Double-A Somerset on Wednesday night.`\
 https://nytimes.com/athletic/6452270/2025/06/26/yankees-pitching-prospects-carlos-lagrange/
-
-**Dalton Rushing's strides behind the plate showing in the assignments Dodgers are giving him**\
-`He has so wowed the Dodgers’ brass that Roberts dropped the "S" word. “He feels that he's going to be a superstar,” Roberts said.`\
-https://nytimes.com/athletic/6452589/2025/06/26/dodgers-catchers-dalton-rushing/
-
-**Meet Kalle Larsson, an NHL outsider who’s reshaping Oilers’ player development**\
-`With Kalle Larsson at the helm, strides are being made to internally improve how the Oilers work with their prospects.`\
-https://nytimes.com/athletic/6276430/2025/06/26/edmonton-oilers-draft-kalle-larsson/
 

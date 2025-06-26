@@ -1,3 +1,11 @@
+**Investors on Edge About a Potential Shadow Fed Chair**\
+`Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
+https://nytimes.com/2025/06/26/business/dealbook/trump-powell-shadow-fed-chair.html
+
+**Six prosecutors presented the case against Sean Combs.**\
+`By Olivia Bensimon`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/six-prosecutors-presented-the-case-against-sean-combs
+
 **How Prime won over the NASCAR world and raised the bar for future broadcasts**\
 `Prime's debut NASCAR broadcasts — the Cup Series' first with a streaming service — were well received by the sport's fans and personnel.`\
 https://nytimes.com/athletic/6450666/2025/06/26/amazon-prime-nascar-broadcasts-streaming/
