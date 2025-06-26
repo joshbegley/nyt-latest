@@ -1,3 +1,7 @@
+**Reds live Q&A with C. Trent Rosecrans at noon ET on Thursday, June 26**\
+`Chase Burns is up for the Cincinnati Reds, Elly De La Cruz is hot, Matt McLain is on track, Jeimer Candelario is a Red no more and the cavalry of Austin Hays, Noelvi Marte and Hunter Greene seems to be on their way back.`\
+https://nytimes.com/athletic/6448661/2025/06/26/reds-live-qa-with-c-trent-rosecrans-at-noon-et-on-thursday-june-26/
+
 **'Al Nassr forever': Ronaldo extends contract with Saudi club**\
 `Ronaldo’s previous deal with the Saudi Pro League (SPL) club was set to expire on June 30.`\
 https://nytimes.com/athletic/6035296/2025/06/26/cristiano-ronaldo-al-nassr-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6452636/2025/06/26/canadiens-logan-mailloux-trade-m
 **'Are you going to say Italian food is trash?': How Weston McKennie and Tim Weah wound up a nation**\
 `Is American food better than Italian? The USMNT pair had a 'hot take'`\
 https://nytimes.com/athletic/6452926/2025/06/26/mckennie-and-weah-italian-food/
-
-**Arsenal working on deal to sign Valencia defender Mosquera**\
-`The 20-year-old Spain youth international is currently the club's preferred option as they search for defensive reinforcements.`\
-https://nytimes.com/athletic/6452716/2025/06/26/arsenal-transfer-news-mosquera/
 
