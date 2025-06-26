@@ -1,3 +1,7 @@
+**My Love Affair With Bruno Mars**\
+`Wesley Morris untangles his complicated relationship with the pop star on his new podcast, “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010250537/my-love-affair-with-bruno-mars.html
+
 **Iran’s Khamenei Makes First Public Comments Since Cease-Fire Agreed With Israel**\
 `Supreme leader strikes defiant tone in remarks reported by state media, after not being heard of or seen publicly in days.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-leader-khamenei-statement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6435381/2025/06/26/nhl-draft-2025-penguins-hagens/
 **F1 teams opened their doors for Brad Pitt’s new movie – and sparked competitive paranoia**\
 `'F1: The Movie' uses many locations familiar for F1 fans, but using the secretive design facilities of one team had to be cleared legally `\
 https://nytimes.com/athletic/6450923/2025/06/26/f1-movie-filming-locations/
-
-**If Jake Paul is boxing's biggest draw, what does that say about the sport?**\
-`Whether he's inspiring or infuriating or repulsive or innovative, Paul’s persisting existence in boxing is certainly not neutral.`\
-https://nytimes.com/athletic/6435868/2025/06/26/jake-paul-boxing-julio-cesar-chavez-jr/
 

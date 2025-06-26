@@ -1,3 +1,7 @@
+**Iran’s Khamenei Makes First Public Comments Since Cease-Fire Agreed With Israel**\
+`Supreme leader strikes defiant tone in remarks reported by state media, after not being heard of or seen publicly in days.`\
+https://nytimes.com/2025/06/26/world/middleeast/iran-leader-khamenei-statement.html
+
 **Dortmund head coach Kovac set to be handed contract extension**\
 `Kovac signed a short-term contract until the end of next season when he succeeded Nuri Sahin in February.`\
 https://nytimes.com/athletic/6445122/2025/06/26/borussia-dortmund-niko-kovac-contract-extension/
