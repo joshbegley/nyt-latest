@@ -1,3 +1,11 @@
+**Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the five hole**\
+`After a string of poor performances from the starters, Matthew Boyd delivered a gem to help lift the Cubs out of their funk.`\
+https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agency-boyd-swanson/
+
+**What I'm hearing about the Kings as the NBA offseason heats up**\
+`What backcourt targets do the Kings have in mind? And what's the latest on the future of their All-Star tandem?`\
+https://nytimes.com/athletic/6452468/2025/06/26/sacramento-kings-offseason-nba-draft-2025/
+
 **What I learned bowling at India's best batters: 'Rishabh Pant smashes every ball'**\
 `Abhay Negi swapped bowling at amateurs for two days practicing with some of the very best batters in the world – and loved it`\
 https://nytimes.com/athletic/6438701/2025/06/26/india-cricket-net-bowler/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6404851/2025/06/26/sweden-team-guide-euro-2025/
 **Prospect Didier Fuentes hit hard by Mets as Braves' pitching needs become more glaring**\
 `Fuentes lasted 3 1/3 innings in a 7-3 loss to New York, allowing eight hits and six runs with one strikeout.`\
 https://nytimes.com/athletic/6452269/2025/06/26/prospect-didier-fuentes-braves-lose-mets/
-
-**Liverpool need a centre-back. Who could they target?**\
-`With Jarell Quansah on his way out, who could be of interest to Arne Slot as his club search for a replacement?`\
-https://nytimes.com/athletic/6450272/2025/06/26/liverpool-transfers-centre-half/
-
-**Real Madrid's £50m defender Dean Huijsen: The car crash, cultures and country that made him**\
-`Dean Huijsen was born in the Netherlands but brought up in Spain. His remarkable rise started back on the Costa del Sol`\
-https://nytimes.com/athletic/6435068/2025/06/26/huijsen-real-madrid-malaga-spain-juventus/
 

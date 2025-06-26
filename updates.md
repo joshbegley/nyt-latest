@@ -1,3 +1,15 @@
+**What I learned bowling at India's best batters: 'Rishabh Pant smashes every ball'**\
+`Abhay Negi swapped bowling at amateurs for two days practicing with some of the very best batters in the world – and loved it`\
+https://nytimes.com/athletic/6438701/2025/06/26/india-cricket-net-bowler/
+
+**The Aston Villa coaching syllabus, who implemented it and how it works**\
+`The academy is not there to copy the first team, but for young players to know the expectations of Emery’s environment`\
+https://nytimes.com/athletic/6377864/2025/06/26/the-aston-villa-coaching-syllabus-who-implemented-it-and-how-it-works/
+
+**'Potential All-Star': Why 76ers zeroed in on VJ Edgecombe with No. 3 pick**\
+`Daryl Morey, Philadelphia believe Baylor star's defense, motor and athleticism make him the perfect fit for 76ers.`\
+https://nytimes.com/athletic/6451967/2025/06/26/76ers-vj-edgecombe-nba-draft-all-star-upside/
+
 **Wilkinson statue campaign gathers pace, even after ex-Leeds manager's initial reluctance**\
 `A campaign for Howard Wilkinson to be given a statue is gaining traction, but the former Leeds United manager is modest as ever...`\
 https://nytimes.com/athletic/6450579/2025/06/26/leeds-united-howard-wilkinson-statue/
