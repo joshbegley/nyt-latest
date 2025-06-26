@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict
 
 **What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
 `President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
-https://nytimes.com/2025/06/26/world/iran-nuclear-program-israeli-us-attacks.html
+https://nytimes.com/2025/06/26/world/middleeast/iran-nuclear-program-israeli-us-attacks.html
 
 **Trump Administration Tells Congress to Kill ‘Revenge Tax’**\
 `Treasury Secretary Scott Bessent said the Group of 7 agreed that penalties related to a 2021 “global minimum tax” deal will not apply to American companies.`\

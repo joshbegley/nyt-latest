@@ -1,3 +1,19 @@
+**Tigers' Dietrich Enns back to major leagues after journey of more than 1,000 days**\
+`After stints in Japan and Korea, 34-year-old lefty Enns threw five scoreless innings in a long-awaited return to the major leagues.`\
+https://nytimes.com/athletic/6454602/2025/06/26/tigers-dietrich-enns-back-to-major-leagues/
+
+**A New Middle East?**\
+`The Middle East analyst Aaron David Miller on how the latest attacks on Iran have changed the balance of power in the region.`\
+https://nytimes.com/video/opinion/100000010239884/a-new-middle-east.html
+
+**Why Is This Music Superstar So Sad?**\
+`On his new album, Morgan Wallen paints a picture of a man putting up walls. His song “Just in Case” is an incredibly vulnerable song about that invulnerability.`\
+https://nytimes.com/video/podcasts/100000010247286/why-is-this-music-superstar-so-sad.html
+
+**In NATO Visit, Trump Casts Himself as a Global Peacemaker**\
+`The president’s trip to NATO offered a glimpse into how he sees himself — and wants to be seen — on the world stage.`\
+https://nytimes.com/2025/06/26/us/politics/trump-nato-visit-nobel-prize.html
+
 **Lawyer Who Pushed Bogus Trump Elector Scheme Is Disbarred in New York**\
 `Kenneth Chesebro, an architect of the plan to use phony slates of pro-Trump electors to overturn the 2020 election, was indefinitely barred from practicing in the state last year.`\
 https://nytimes.com/2025/06/26/us/politics/kenneth-chesebro-disbarred-trump.html
