@@ -1,3 +1,15 @@
+**How Zohran Mamdani Says He Won**\
+`Emma Fitzsimmons, City Hall bureau chief for The New York Times, explains how State Assemblyman Zohran Mamdani claimed victory over former Gov. Andrew Cuomo.`\
+https://nytimes.com/video/nyregion/100000010249653/how-zohran-mamdani-says-he-won.html
+
+**Love Lines**\
+`Simeon Seigel offers us choices.`\
+https://nytimes.com/2025/06/25/crosswords/daily-puzzle-2025-06-26.html
+
+**In New Assessment, C.I.A. Chief Says U.S. Strikes ‘Severely Damaged’ Iranian Program**\
+`The administration suggested an initial report of less-severe damage was already outdated as the president continued to defend his assertion that key facilities had been “obliterated,” though no intelligence official has yet directly echoed his view.`\
+https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
+
 **Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
 `Maluach brings defense, length and coachability to the NBA.`\
 https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/

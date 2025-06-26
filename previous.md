@@ -1,9 +1,17 @@
+**How Zohran Mamdani Says He Won**\
+`Emma Fitzsimmons, City Hall bureau chief for The New York Times, explains how State Assemblyman Zohran Mamdani claimed victory over former Gov. Andrew Cuomo.`\
+https://nytimes.com/video/nyregion/100000010249653/how-zohran-mamdani-says-he-won.html
+
+**Love Lines**\
+`Simeon Seigel offers us choices.`\
+https://nytimes.com/2025/06/25/crosswords/daily-puzzle-2025-06-26.html
+
 **Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
 `Maluach brings defense, length and coachability to the NBA.`\
 https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
 
-**U.S. Spy Chiefs Give New Assessments on Damage at Iran Nuclear Sites**\
-`President Trump defended his assertion that Iran’s key facilities had been “obliterated” as a preliminary intelligence report became a flashpoint in the public discussion.`\
+**In New Assessment, C.I.A. Chief Says U.S. Strikes ‘Severely Damaged’ Iranian Program**\
+`The administration suggested an initial report of less-severe damage was already outdated as the president continued to defend his assertion that key facilities had been “obliterated,” though no intelligence official has yet directly echoed his view.`\
 https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
 
 **Brooklyn Nets draft BYU's Egor Demin with No. 8 pick**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6446966/2025/06/25/tre-johnson-wizards-nba-draft-20
 **17-Year-Old Fatally Shot in the Bronx After a Fight Over a Water Gun**\
 `Darrell Harris, a high school student, died after an encounter with men who were having a water gun fight at a local park, an official with knowledge of the incident said.`\
 https://nytimes.com/2025/06/25/nyregion/shooting-bronx-park-water-gun.html
-
-**Jazz draft Rutgers star Ace Bailey with No. 5 pick, ending draft speculation**\
-`After a unique predraft process in which he didn't work out for anyone, Ace Bailey ends up with a team few expected.`\
-https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
-
-**Hornets draft Kon Knueppel with No. 4 pick**\
-`Knueppel thrived in his only season at Duke thanks to his high basketball IQ, proving to be far more than Cooper Flagg's wingman.`\
-https://nytimes.com/athletic/6439340/2025/06/25/kon-knueppel-hornets-nba-draft-2025/
 
