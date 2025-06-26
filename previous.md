@@ -1,3 +1,19 @@
+**What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
+`President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
+https://nytimes.com/2025/06/26/world/iran-nuclear-program-israeli-us-attacks.html
+
+**Trump Administration Tells Congress to Kill ‘Revenge Tax’**\
+`Treasury Secretary Scott Bessent said the Group of 7 agreed that penalties related to a 2021 “global minimum tax” deal will not apply to American companies.`\
+https://nytimes.com/2025/06/26/business/trump-congress-tax-corporations-global-minimum.html
+
+**It’s Heating Up Outside. Here’s Why That’s a Big Deal.**\
+`Judson Jones, The New York Times’s resident meteorologist, discussed this week’s stifling heat and how to prepare for the next temperature spike.`\
+https://nytimes.com/2025/06/26/insider/its-heating-up-outside-heres-why-thats-a-big-deal.html
+
+**N.Y.C. Taxi Commission Restricts Lockouts of Uber and Lyft Drivers**\
+`The companies, which have been randomly locking out drivers to manage costs, must now give at least 72 hours’ notice before blocking access to the apps.`\
+https://nytimes.com/2025/06/26/nyregion/nyc-taxi-commission-uber-lyft-lockout.html
+
 **Eric Adams Launches Mayoral Re-election Campaign**\
 `On Thursday, Mayor Eric Adams of New York City appeared on the steps of City Hall to launch his bid for re-election as an independent.`\
 https://nytimes.com/video/nyregion/100000010252347/eric-adams-campaign-launch.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/100000005033423/the-last-word-carolyn-mccarthy.html
 **Amid Attacks, Iran’s Exiled Opposition Remained Divided. Who Are They?**\
 `While many in Iran’s divided diaspora opposed Israel’s campaign, some took the war as a chance to amplify their ideas about Iran’s future.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-opposition-groups.html
-
-**Justice Dept. Opens Inquiry Into University of California Hiring Practices**\
-`The Trump administration has targeted the state system as part of its broad effort to eliminate diversity, equity and inclusion initiatives and programs.`\
-https://nytimes.com/2025/06/26/us/politics/justice-dept-opens-inquiry-into-university-of-california-hiring-practices.html
-
-**Juventus 2 Manchester City 5 - Rodri plays over an hour, Haaland's 300th goal as City hammer Serie A opponents**\
-`Sam Lee, Thom Harris and Jordan Campbell break down the main talking points from Manchester City's 5-2 win over Juventus `\
-https://nytimes.com/athletic/6445260/2025/06/26/juventus-2-manchester-city-5-rodri-haaland-savinho/
-
-**Florida Boaters Capture Twin Waterspouts Up Close on Video**\
-`A family was heading back to dry land when two of the funnel formations suddenly sprung up. “It looked like something from a movie,” one of them said.`\
-https://nytimes.com/2025/06/26/us/florida-water-spouts-video.html
-
-**Friday Briefing: The Deadly Search for Food in Gaza**\
-`Plus, a recap of “Squid Game.”`\
-https://nytimes.com/2025/06/26/briefing/gaza-hunger-iran-strikes-kenya-protests.html
 
