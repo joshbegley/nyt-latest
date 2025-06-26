@@ -1,3 +1,15 @@
+**Draft's biggest takeaway? How much teams were willing to pay just to move up a few picks**\
+`Maybe Derik Queen becomes a player. But the process for New Orleans, in particular, on draft night was awful.`\
+https://nytimes.com/athletic/6452680/2025/06/26/new-orleans-pelicans-trade-draft-derik-queen/
+
+**Housekeeper Arrested Over Wildfire That Scorched Greek Island**\
+`“She’d been smoking,” a Greek official said of a Georgian woman who was arrested after a blaze tore through 11,000 acres of Chios this week.`\
+https://nytimes.com/2025/06/26/world/europe/wildfire-chios-greece-arson.html
+
+**Myles Lewis-Skelly, the whirlwind continues**\
+`It’s a sign of his rapid progression that securing a new contract for the 18-year-old became a matter of urgency for Arsenal. `\
+https://nytimes.com/athletic/6450506/2025/06/26/myle-lewis-skelly-contract-whirlwind/
+
 **TAFC: Dempsey on Pulisic, Pochettino and podcasts; River Plate's angry exit at Club World Cup**\
 `Today in TAFC: Dempsey calls for a 'unified' message after Pulisic and Pochettino comments, Argentine sides bow out of the Club World Cup`\
 https://nytimes.com/athletic/6452782/2025/06/26/dempsey-pulisic-pochettino-river-plate-angry-club-world-cup/

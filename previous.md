@@ -1,3 +1,15 @@
+**Draft's biggest takeaway? How much teams were willing to pay just to move up a few picks**\
+`Maybe Derik Queen becomes a player. But the process for New Orleans, in particular, on draft night was awful.`\
+https://nytimes.com/athletic/6452680/2025/06/26/new-orleans-pelicans-trade-draft-derik-queen/
+
+**Housekeeper Arrested Over Wildfire That Scorched Greek Island**\
+`“She’d been smoking,” a Greek official said of a Georgian woman who was arrested after a blaze tore through 11,000 acres of Chios this week.`\
+https://nytimes.com/2025/06/26/world/europe/wildfire-chios-greece-arson.html
+
+**Myles Lewis-Skelly, the whirlwind continues**\
+`It’s a sign of his rapid progression that securing a new contract for the 18-year-old became a matter of urgency for Arsenal. `\
+https://nytimes.com/athletic/6450506/2025/06/26/myle-lewis-skelly-contract-whirlwind/
+
 **TAFC: Dempsey on Pulisic, Pochettino and podcasts; River Plate's angry exit at Club World Cup**\
 `Today in TAFC: Dempsey calls for a 'unified' message after Pulisic and Pochettino comments, Argentine sides bow out of the Club World Cup`\
 https://nytimes.com/athletic/6452782/2025/06/26/dempsey-pulisic-pochettino-river-plate-angry-club-world-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6452158/2025/06/26/blue-jays-mailbag-trade-deadline
 **Erik Karlsson trade destinations: 8 teams that could make sense for the Penguins defenseman**\
 `Could he be the latest coup for the two-time-defending champs? Or give Carolina a firepower boost? Or close his career where it started?`\
 https://nytimes.com/athletic/6451510/2025/06/26/erik-karlsson-trade-destinations/
-
-**The All-IL team: As more MLB stars go down, building an All-Star team of injured players**\
-`Want to build a rotation of injured Cy Young winners? In 2025, that isn't hard to do at all. `\
-https://nytimes.com/athletic/6449253/2025/06/26/mlb-all-star-team-injured-players/
-
-**Trading roster players? Moving up in the draft? The Bruins are considering everything**\
-`Six options the Bruins are considering for the option, based on the latest from the general manager.`\
-https://nytimes.com/athletic/6451669/2025/06/26/bruins-don-sweeney-draft-free-agency-trades/
-
-**Manchester City squad audit: Pep Guardiola has 'too many players' but who goes?**\
-`They have 32 players in their squad – there is work to do if they are to trim it to a more manageable size`\
-https://nytimes.com/athletic/6451287/2025/06/26/manchester-city-squad-audit-june-2025/
 
