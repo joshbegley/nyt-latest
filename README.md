@@ -1,3 +1,7 @@
+**Introducing Your New Where to Eat Writer**\
+`Nikita Richardson passes the baton and shares some good news.`\
+https://nytimes.com/2025/06/26/dining/introducing-your-new-where-to-eat-writer.html
+
 **Wild GM Bill Guerin on Kirill Kaprizov, Marco Rossi and why there might not be a big splash July 1**\
 `Guerin’s current focus ahead of this weekend’s draft is the trade market, then free agency, which begins Tuesday.`\
 https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-draft/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6454359/2025/06/26/kamaldeen-sulemana-atalanta-sout
 https://nytimes.com/athletic/6454067/2025/06/26/flyers-offseason-goalies-ahl/
 
 **Strands Sidekick**\
-`Get daily tips, tricks`\
+``\
 https://nytimes.com/spotlight/strands-sidekick
 
 **General Caine Faces His First Big Test Under Trump**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453957/2025/06/26/kate-martin-valkyries-liberty-ca
 **ScoopCity: 2025 AFC West preview**\
 `Inside: Key questions, breakout players and positions to watch in the AFC West.`\
 https://nytimes.com/athletic/6454193/2025/06/26/nfl-preview-afc-west-2025-chiefs-broncos-chargers-raiders/
-
-**The Winners of Our 8th Annual Student Podcast Contest**\
-`We invited teenagers to create an original five-minute podcast about almost anything. Listen to some of the winning podcasts selected from over 1,600 submissions.`\
-https://nytimes.com/2025/06/26/learning/the-winners-of-our-8th-annual-student-podcast-contest.html
 

@@ -1,3 +1,15 @@
+**Wild GM Bill Guerin on Kirill Kaprizov, Marco Rossi and why there might not be a big splash July 1**\
+`Guerin’s current focus ahead of this weekend’s draft is the trade market, then free agency, which begins Tuesday.`\
+https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-draft/
+
+**Atalanta reach agreement with Southampton for Sulemana signing**\
+`A deal consisting of €17.5million in five annual instalments, plus €4million in add ons has been reached.`\
+https://nytimes.com/athletic/6454359/2025/06/26/kamaldeen-sulemana-atalanta-southampton-transfer/
+
+**What I'm hearing about the Flyers' approach to goalies and centers, AHL coaching and more**\
+`If Thatcher Demko signs an extension in Vancouver, might the Flyers look at Arturs Silovs?`\
+https://nytimes.com/athletic/6454067/2025/06/26/flyers-offseason-goalies-ahl/
+
 **Strands Sidekick**\
 `Get daily tips, tricks`\
 https://nytimes.com/spotlight/strands-sidekick
