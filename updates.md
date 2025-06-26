@@ -1,3 +1,7 @@
+**TAFC: Dempsey on Pulisic, Pochettino and podcasts; River Plate's angry exit at Club World Cup**\
+`Today in TAFC: Dempsey calls for a 'unified' message after Pulisic and Pochettino comments, Argentine sides bow out of the Club World Cup`\
+https://nytimes.com/athletic/6452782/2025/06/26/dempsey-pulisic-pochettino-river-plate-angry-club-world-cup/
+
 **Lewis-Skelly signs long-term Arsenal contract**\
 `The 18-year-old made 39 appearances in all competitions in 2024-25, his first season in senior football.`\
 https://nytimes.com/athletic/6435674/2025/06/26/myles-lewis-skelly-arsenal-contract-update/
