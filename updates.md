@@ -1,3 +1,23 @@
+**For 53 Years, She Led a New York Theater. Now She’s Stepping Down.**\
+`Lynne Meadow was just 25 when she took a job running the Off Off Broadway Manhattan Theater Club. Now the nonprofit is a major player on and off Broadway.`\
+https://nytimes.com/2025/06/26/theater/mtc-lynne-meadow-steps-down.html
+
+**Don’t Roast. Rotisserie.**\
+`Put your favorite rotisserie chicken to work in Yewande Komolafe’s assertively zippy chicken and herb salad with nuoc cham.`\
+https://nytimes.com/2025/06/26/dining/healthy-chicken-and-herb-salad-with-nuoc-cham-recipe.html
+
+**Red Light: A late-night blockbuster trade. Plus: Why you need to care about this NHL draft**\
+`Let's break down the Mammoth-Sabres blockbuster that went down just before midnight last night.`\
+https://nytimes.com/athletic/6453472/2025/06/26/red-light-newsletter-sabres-mammoth-trade/
+
+**The prosecution begins by emphasizing two violent assaults at the heart of the case.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/the-prosecution-begins-by-emphasizing-two-violent-assaults-at-the-heart-of-the-case
+
+**Stars, Jamie Benn agree on 1-year contract extension, keeping franchise icon in Dallas**\
+`The incentive-laden 35-plus deal has $1 million in base salary and $3 million in potential bonuses.`\
+https://nytimes.com/athletic/6453489/2025/06/26/jamie-been-stars-contract-extension/
+
 **Zohran Mamdani’s Well-Dressed Balancing Act**\
 `The Democratic candidate for New York City mayor understands what it means to look the part. Many parts.`\
 https://nytimes.com/2025/06/26/style/zohran-mamdani-style.html
