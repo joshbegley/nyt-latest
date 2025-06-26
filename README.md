@@ -1,3 +1,15 @@
+**Hornets draft Kon Knueppel with No. 4 pick**\
+`Knueppel thrived in his only season at Duke thanks to his high basketball IQ, proving to be far more than Cooper Flagg's wingman.`\
+https://nytimes.com/athletic/6439340/2025/06/25/kon-knueppel-hornets-nba-draft-2025/
+
+**Supreme Leader’s Absence Raises Alarm in Iran**\
+`Ayatollah Ali Khamenei has not been seen publicly or heard from in nearly a week. That absence has surprised and unnerved everyone from political insiders to the general public.`\
+https://nytimes.com/2025/06/25/world/middleeast/where-is-khamenei-iran-supreme-leader.html
+
+**76ers draft Baylor star V.J. Edgecombe with No. 3 pick**\
+`An elite athlete and premier defender, Edgecombe led the Bears in steals last season.`\
+https://nytimes.com/athletic/6446755/2025/06/25/nba-draft-76ers-baylor-vj-edgecombe/
+
 **Braves' Ronald Acuña Jr. to participate in MLB Home Run Derby in Atlanta**\
 `It’ll be the third time Acuña has participated in the Home Run Derby. `\
 https://nytimes.com/athletic/6451966/2025/06/25/ronald-acuna-jr-home-run-derby/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6451878/2025/06/25/cleveland-browns-indoor-stadium-
 **A Look at Zohran Mamdani’s Stances on Key Issues**\
 `The state assemblyman ran a campaign tightly focused on issues related to affordability. Here is a look at where he stands on those issues and others.`\
 https://nytimes.com/2025/06/25/nyregion/mamdani-policies-stances.html
-
-**U.S. Accuses 3 Mexican Financial Firms of Money Laundering Tied to Fentanyl**\
-`The U.S. Treasury found ties between drug cartels and the Mexican companies, including a brokerage firm controlled by a former chief of staff of Andrés Manuel López Obrador.`\
-https://nytimes.com/2025/06/25/world/americas/mexico-financial-firms-fentanyl.html
-
-**Grand Jury Indicts Russian Scientist on Smuggling Charges**\
-`Kseniia Petrova, a Harvard researcher, was detained in February after failing to declare scientific samples she was carrying into the country.`\
-https://nytimes.com/2025/06/25/science/russian-scientist-harvard-smuggling-deportation-petrova.html
-
-**Some Republicans Join Democrats in Unease Over White House Budget Cuts**\
-`President Trump has sought to claw back funds for public broadcasting and foreign aid, sparking a fierce debate over the power of the purse.`\
-https://nytimes.com/2025/06/25/us/politics/republicans-democrats-unease-white-house-budget-cuts.html
 

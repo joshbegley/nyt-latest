@@ -1,3 +1,7 @@
+**Braves' Ronald Acuña Jr. to participate in MLB Home Run Derby in Atlanta**\
+`It’ll be the third time Acuña has participated in the Home Run Derby. `\
+https://nytimes.com/athletic/6451966/2025/06/25/ronald-acuna-jr-home-run-derby/
+
 **Spurs draft Rutgers star freshman Dylan Harper with No. 2 pick**\
 `Dylan notched back-to-back 30-point games against Notre Dame (36) and Alabama (37).`\
 https://nytimes.com/athletic/6442126/2025/06/25/dylan-harper-spurs-nba-draft-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/25/science/russian-scientist-harvard-smuggling-depor
 **Some Republicans Join Democrats in Unease Over White House Budget Cuts**\
 `President Trump has sought to claw back funds for public broadcasting and foreign aid, sparking a fierce debate over the power of the purse.`\
 https://nytimes.com/2025/06/25/us/politics/republicans-democrats-unease-white-house-budget-cuts.html
-
-**Mamdani Has Long Criticized Israel. His Opponents Attack Him for It.**\
-`Zohran Mamdani has promised to fight antisemitism, while consistently criticizing Israel’s treatment of Palestinians and its conduct of the war in Gaza.`\
-https://nytimes.com/2025/06/25/nyregion/mamdani-has-long-criticized-israel-his-opponents-attack-him-for-it.html
 

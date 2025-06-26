@@ -1,3 +1,7 @@
+**Braves' Ronald Acuña Jr. to participate in MLB Home Run Derby in Atlanta**\
+`It’ll be the third time Acuña has participated in the Home Run Derby. `\
+https://nytimes.com/athletic/6451966/2025/06/25/ronald-acuna-jr-home-run-derby/
+
 **Spurs draft Rutgers star freshman Dylan Harper with No. 2 pick**\
 `Dylan notched back-to-back 30-point games against Notre Dame (36) and Alabama (37).`\
 https://nytimes.com/athletic/6442126/2025/06/25/dylan-harper-spurs-nba-draft-2025/
