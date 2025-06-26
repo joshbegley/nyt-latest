@@ -1,3 +1,7 @@
+**Supreme Court Sides With Death Row Prisoner Seeking DNA Testing**\
+`For nearly 15 years, a man on death row in Texas has sought DNA testing to try and prove he did not kill an 85-year-old woman.`\
+https://nytimes.com/2025/06/26/us/supreme-court-death-row-dna.html
+
 **Who could Pistons target in second round? Maxime Raynaud leads NBA Draft wish list**\
 `The Detroit Pistons have pick No. 37 in the second round of the NBA Draft, which players could be a good fit?`\
 https://nytimes.com/athletic/6452963/2025/06/26/pistons-nba-draft-2025-maxime-raynaud/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/health/rfk-jr-vaccines-acip-cdc.html
 **A prosecutor lays out the racketeering evidence against Combs.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/a-prosecutor-lays-out-the-racketeering-evidence-against-combs
-
-**Crypto Industry Moves Into the U.S. Housing Market**\
-`Americans are finding ways to use digital currencies to help them buy homes, and new companies are forming to help people tap their home’s value to buy Bitcoin.`\
-https://nytimes.com/2025/06/26/business/crypto-industry-housing-market.html
 
