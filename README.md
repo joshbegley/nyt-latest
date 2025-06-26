@@ -1,4 +1,4 @@
-**Houston picks Duke's Khaman Maluach at No. 10, will trade him to Suns**\
+**Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
 `Maluach brings defense, length and coachability to the NBA.`\
 https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
 
