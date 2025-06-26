@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, June 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/26/todays-new-york-times
+
+**The Ayatollah Has a Plan**\
+`Iran’s supreme leader believes the country can outlast the West in a war of attrition.`\
+https://nytimes.com/2025/06/26/opinion/iran-nuclear-ayatollah-cease-fire.html
+
+**Liverpool need a centre-back. Who could they target?**\
+`With Jarell Quansah on his way out, who could be of interest to Arne Slot as his club search for a replacement?`\
+https://nytimes.com/athletic/6450272/2025/06/26/liverpool-transfers-centre-half/
+
 **Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the 5 hole**\
 `After a string of poor performances from the starters, Matthew Boyd delivered a gem to help lift the Cubs out of their funk.`\
 https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agency-boyd-swanson/

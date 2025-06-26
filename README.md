@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Potential talks between the U.S. and Iran.`\
+https://nytimes.com/2025/06/26/briefing/iran-talks-nato.html
+
 **The New York Times in Print for Thursday, June 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/26/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450579/2025/06/26/leeds-united-howard-wilkinson-st
 **Liverpool need a centre-back. Who could they target?**\
 `With Jarell Quansah on his way out, who could be of interest to Arne Slot as his club search for a replacement?`\
 https://nytimes.com/athletic/6450272/2025/06/26/liverpool-transfers-centre-half/
-
-**What Spurs can expect from Kota Takai: 'Emerging talent' who proved himself against Ronaldo**\
-`The 20-year-old is set to join Spurs. He brings recovery tackles, build-up play and strength`\
-https://nytimes.com/athletic/6450552/2025/06/26/kota-takai-spurs-what-to-expect/
 
