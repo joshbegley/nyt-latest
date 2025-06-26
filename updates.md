@@ -1,3 +1,7 @@
+**Coach Jason Kidd to return for fifth season with Mavericks**\
+`The New York Knicks have expressed serious interest in poaching Kidd from the Mavericks, without success.`\
+https://nytimes.com/athletic/6452547/2025/06/26/jason-kidd-mavericks-nico-harrison/
+
 **Thursday Briefing**\
 `Potential talks between the U.S. and Iran.`\
 https://nytimes.com/2025/06/26/briefing/iran-talks-nato.html

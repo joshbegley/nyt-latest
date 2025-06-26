@@ -1,3 +1,7 @@
+**Coach Jason Kidd to return for fifth season with Mavericks**\
+`The New York Knicks have expressed serious interest in poaching Kidd from the Mavericks, without success.`\
+https://nytimes.com/athletic/6452547/2025/06/26/jason-kidd-mavericks-nico-harrison/
+
 **Thursday Briefing**\
 `Potential talks between the U.S. and Iran.`\
 https://nytimes.com/2025/06/26/briefing/iran-talks-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451967/2025/06/26/76ers-vj-edgecombe-nba-draft-all
 **Wilkinson statue campaign gathers pace, even after ex-Leeds manager's initial reluctance**\
 `A campaign for Howard Wilkinson to be given a statue is gaining traction, but the former Leeds United manager is modest as ever...`\
 https://nytimes.com/athletic/6450579/2025/06/26/leeds-united-howard-wilkinson-statue/
-
-**Liverpool need a centre-back. Who could they target?**\
-`With Jarell Quansah on his way out, who could be of interest to Arne Slot as his club search for a replacement?`\
-https://nytimes.com/athletic/6450272/2025/06/26/liverpool-transfers-centre-half/
 

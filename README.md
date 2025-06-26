@@ -1,4 +1,8 @@
-**Coach Jason Kidd to return for fifth season with Mavericks**\
+**As Phillies stumble, a familiar platoon debate reopens for Brandon Marsh and Bryson Stott**\
+`"I hope they're everyday guys," Phillies manager Rob Thomson said. "I hope. We'll see how it all transpires."`\
+https://nytimes.com/athletic/6452421/2025/06/26/phillies-lose-astros-platoon-debate-brandon-marsh-bryson-stott/
+
+**Mavs' Nico Harrison says Jason Kidd will return next season**\
 `The New York Knicks have expressed serious interest in poaching Kidd from the Mavericks, without success.`\
 https://nytimes.com/athletic/6452547/2025/06/26/jason-kidd-mavericks-nico-harrison/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377864/2025/06/26/the-aston-villa-coaching-syllabu
 **'Potential All-Star': Why 76ers zeroed in on VJ Edgecombe with No. 3 pick**\
 `Daryl Morey, Philadelphia believe Baylor star's defense, motor and athleticism make him the perfect fit for 76ers.`\
 https://nytimes.com/athletic/6451967/2025/06/26/76ers-vj-edgecombe-nba-draft-all-star-upside/
-
-**Wilkinson statue campaign gathers pace, even after ex-Leeds manager's initial reluctance**\
-`A campaign for Howard Wilkinson to be given a statue is gaining traction, but the former Leeds United manager is modest as ever...`\
-https://nytimes.com/athletic/6450579/2025/06/26/leeds-united-howard-wilkinson-statue/
 
