@@ -1,3 +1,7 @@
+**‘Re-elect Eric’: Adams Kicks Off Bid to Oppose Mamdani for Mayor**\
+`Just a few months ago, it appeared unlikely that Mayor Eric Adams of New York, who was facing federal corruption charges, would be in a position to seek a second term.`\
+https://nytimes.com/2025/06/26/nyregion/eric-adams-mayor-campaign.html
+
 **Trump Threatens to Sue The Times and CNN Over Iran Reporting**\
 `The president has criticized media coverage of a preliminary classified report that ran counter to his assertion that U.S. strikes had “obliterated” Iran’s nuclear program.`\
 https://nytimes.com/2025/06/26/business/media/trump-iran-new-york-times-cnn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/business/media/anna-wintour-vogue-conde-nast.html
 **Pittsburgh native L.J. Mooney might be the NHL Draft's biggest, smallest X-factor**\
 `Suburban Pittsburgh's L.J. Mooney, all 5-8 of him, is one of the NHL Draft's most interesting players.`\
 https://nytimes.com/athletic/6453385/2025/06/26/nhl-draft-prospect-lj-mooney-bio-pittsburgh/
-
-**Introducing Your New Where to Eat Writer**\
-`Nikita Richardson passes the baton and shares some good news.`\
-https://nytimes.com/2025/06/26/dining/introducing-your-new-where-to-eat-writer.html
 
