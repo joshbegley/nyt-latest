@@ -1,3 +1,11 @@
+**What I'm hearing about the Wild: Offer for JJ Peterka, latest on the Marco Rossi market, more**\
+`The latest on striking out on Peterka, what's holding up a Rossi trade, Brock Boeser interest and other center moves that could be coming.`\
+https://nytimes.com/athletic/6453487/2025/06/26/wild-trades-free-agency-nhl/
+
+**Fever's Caitlin Clark out vs. Sparks with groin injury**\
+`Clark's latest injury comes after she missed three weeks with a left quad strain and returned on June 14.`\
+https://nytimes.com/athletic/6453482/2025/06/26/caitlin-clark-injury-fever-sparks/
+
 **For 53 Years, She Led a New York Theater. Now She’s Stepping Down.**\
 `Lynne Meadow was just 25 when she took a job running the Off Off Broadway Manhattan Theater Club. Now the nonprofit is a major player on and off Broadway.`\
 https://nytimes.com/2025/06/26/theater/mtc-lynne-meadow-steps-down.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/climate/republicans-fuel-economy-standards.html
 **Iran’s Leader Says U.S. President is ‘Exaggerating’ Success of Strikes**\
 `In his first remarks since the cease-fire agreement, Iran’s supreme leader, Ayatollah Ali Khamenei, declared victory over the U.S. and Israel, and accused President Trump of exaggerating the success of American strikes on Iran’s nuclear sites.`\
 https://nytimes.com/video/world/middleeast/100000010251931/iran-supreme-leader-israel-us.html
-
-**Winners and losers from 2025 NBA Draft first round: What are the Pelicans doing?**\
-`The Spurs, Hornets, Wizards and Hawks were among the winners on Wednesday, while the Nets' moves were a head-scratcher.`\
-https://nytimes.com/athletic/6452683/2025/06/26/winners-losers-nba-draft-first-round-2025-pelicans-hornets-spurs/
-
-**After declining a max extension, what's next for Austin Reaves and the Lakers?**\
-`While Reaves’ upcoming potential free agency meant his name was floating in rumors, the Lakers consider him one of three pillars.`\
-https://nytimes.com/athletic/6453010/2025/06/26/lakers-austin-reaves-contract-extension/
 
