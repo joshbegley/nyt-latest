@@ -1,3 +1,11 @@
+**For Bezos and Sánchez, a Wedding of Secrets That Everyone Knows About**\
+`As A-listers gather in Venice to celebrate the union of Jeff Bezos and Lauren Sánchez, the couple is following a familiar playbook of how to control the message.`\
+https://nytimes.com/2025/06/26/style/jeff-bezos-lauren-sanchez-wedding-privacy.html
+
+**Kate Martin's career night didn't top Liberty, but it's still a win for Valkyries**\
+`If Wednesday night was Kate Martin's breakthrough, that bodes well for a Valkyries team eyeing the playoffs.`\
+https://nytimes.com/athletic/6453957/2025/06/26/kate-martin-valkyries-liberty-career-high/
+
 **ScoopCity: 2025 AFC West preview**\
 `Inside: Key questions, breakout players and positions to watch in the AFC West.`\
 https://nytimes.com/athletic/6454193/2025/06/26/nfl-preview-afc-west-2025-chiefs-broncos-chargers-raiders/
