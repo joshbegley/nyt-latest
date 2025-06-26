@@ -1,3 +1,11 @@
+**Buccaneers extend coach Todd Bowles, GM Jason Licht**\
+`Under Bowles, the Bucs have gone 27-24, won the NFC South title three times and made three playoff appearances.`\
+https://nytimes.com/athletic/6453108/2025/06/26/todd-bowles-jason-licht-extension-buccaneers/
+
+**Astros shortstop Jeremy Peña is where everyone presumed he'd be: On the brink of superstardom**\
+`After working out before this season with the man he replaced, Peña has risen to the expectations he created during the 2022 postseason.`\
+https://nytimes.com/athletic/6451401/2025/06/26/astros-jeremy-pena-superstardom/
+
 **Canadiens expectations, Logan Mailloux as a trade chip, Stanley Cup checklist: Mailbag**\
 `Ahead of a busy week for the Canadiens, we take a look at the likelihood of a repeat playoff berth and much more.`\
 https://nytimes.com/athletic/6452636/2025/06/26/canadiens-logan-mailloux-trade-mailbag/

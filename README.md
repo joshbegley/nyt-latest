@@ -1,3 +1,7 @@
+**Pelicans highlight GM Joe Dumars' emphasis on 'aggressive' moves with Jeremiah Fears, Derik Queen**\
+`“We’re going to be an aggressive front office,” says new Pels GM Joe Dumars on his moves in the first round of the NBA Draft. `\
+https://nytimes.com/athletic/6452800/2025/06/26/pelicans-jeremiah-fears-derik-queen-jordan-poole-nba-draft-2025/
+
 **Buccaneers extend coach Todd Bowles, GM Jason Licht**\
 `Under Bowles, the Bucs have gone 27-24, won the NFC South title three times and made three playoff appearances.`\
 https://nytimes.com/athletic/6453108/2025/06/26/todd-bowles-jason-licht-extension-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6452690/2025/06/26/logan-webb-giants-hit-by-pitches
 **Key testimony for the prosecution: Cassie and ‘Jane,’ violence and the role of employees.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/key-testimony-for-the-prosecution-cassie-and-jane-violence-and-the-role-of-employees
-
-**Drafting Tre Johnson should give the Wizards the best shooter in the 2025 draft**\
-`Johnson and fellow first-round pick Will Riley have the potential to help Washington. `\
-https://nytimes.com/athletic/6452687/2025/06/26/tre-johnson-will-riley-washington-wizards/
 

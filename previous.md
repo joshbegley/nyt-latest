@@ -1,3 +1,11 @@
+**Buccaneers extend coach Todd Bowles, GM Jason Licht**\
+`Under Bowles, the Bucs have gone 27-24, won the NFC South title three times and made three playoff appearances.`\
+https://nytimes.com/athletic/6453108/2025/06/26/todd-bowles-jason-licht-extension-buccaneers/
+
+**Astros shortstop Jeremy Peña is where everyone presumed he'd be: On the brink of superstardom**\
+`After working out before this season with the man he replaced, Peña has risen to the expectations he created during the 2022 postseason.`\
+https://nytimes.com/athletic/6451401/2025/06/26/astros-jeremy-pena-superstardom/
+
 **Canadiens expectations, Logan Mailloux as a trade chip, Stanley Cup checklist: Mailbag**\
 `Ahead of a busy week for the Canadiens, we take a look at the likelihood of a repeat playoff berth and much more.`\
 https://nytimes.com/athletic/6452636/2025/06/26/canadiens-logan-mailloux-trade-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/key-testimony-fo
 **Drafting Tre Johnson should give the Wizards the best shooter in the 2025 draft**\
 `Johnson and fellow first-round pick Will Riley have the potential to help Washington. `\
 https://nytimes.com/athletic/6452687/2025/06/26/tre-johnson-will-riley-washington-wizards/
-
-**Susan Beth Pfeffer, 77, Dies; Wrote Complex Stories for Young Adults**\
-`Her 76 books included “Life as We Knew It,” a late-career best seller that told the story of a family in postapocalyptic Pennsylvania.`\
-https://nytimes.com/2025/06/26/books/susan-beth-pfeffer-dead.html
-
-**Centrifuges at Fordo ‘No Longer Operational,’ U.N. Nuclear Watchdog Head Says**\
-`Rafael Grossi told French radio that there was “no escaping significant physical damage” after the U.S. dropped bunker-buster bombs on the Iranian facility.`\
-https://nytimes.com/2025/06/26/world/middleeast/centrifuges-fordo-damage-iran.html
 
