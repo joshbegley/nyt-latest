@@ -1,3 +1,17 @@
+**Urawa 0 Monterrey 4: Explosive sequence sends Liga MX side through**\
+`With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
+https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
+
+**Inter 2 River Plate 0 - Esposito's first goal sets up Fluminense tie as River see red**\
+`Analysis of Inter Milan's victory over nine-man River Plate`\
+https://nytimes.com/athletic/6443567/2025/06/25/inter-river-plate-esposito/
+
+**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
+`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+
+`\
+https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+
 **Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
 `Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
 

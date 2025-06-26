@@ -1,3 +1,7 @@
+**Magic draft Michigan State guard Jase Richardson with No. 25 pick**\
+`Jase Richardson has a great basketball pedigree, but is he ready for the next level?`\
+https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-2025/
+
 **Urawa 0 Monterrey 4: Explosive sequence sends Liga MX side through**\
 `With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
 https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-h
 `Analysis of Inter Milan's victory over nine-man River Plate`\
 https://nytimes.com/athletic/6443567/2025/06/25/inter-river-plate-esposito/
 
-**NBA Draft shocker: China center Yang Hansen picked at No. 16, dealt to Blazers**\
+**Reach of the NBA Draft? Blazers land China center Yang Hansen at No. 16**\
 `Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
 https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
 
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/25/crosswords/daily-puzzle-2025-06-26.html
 **Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
 `Maluach brings defense, length and coachability to the NBA.`\
 https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
-
-**In New Assessment, C.I.A. Chief Says U.S. Strikes ‘Severely Damaged’ Iranian Program**\
-`The administration suggested an initial report of less-severe damage was already outdated as the president continued to defend his assertion that key facilities had been “obliterated,” though no intelligence official has yet directly echoed his view.`\
-https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
 
