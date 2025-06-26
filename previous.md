@@ -1,3 +1,11 @@
+**Crypto Industry Moves Into the U.S. Housing Market**\
+`Americans are finding ways to use digital currencies to help them buy homes, and new companies are forming to help people tap their home’s value to buy Bitcoin.`\
+https://nytimes.com/2025/06/26/business/crypto-industry-housing-market.html
+
+**‘Sorry, Baby’ Review: Life and Nothing but, Beautifully**\
+`In her tender, funny feature directing debut, Eva Victor tells the story of a woman, the trauma that changed her and the life she kept on living.`\
+https://nytimes.com/2025/06/26/movies/sorry-baby-review-eva-victor.html
+
 **Bolster the Building Blocks of Kindergarten**\
 `Readers respond to an Upshot article about expectations for kindergarten. Also: Black lung in miners.`\
 https://nytimes.com/2025/06/26/opinion/kindergarten-boys-girls.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/nyregion/brad-lander-zohran-mamdani.html
 **At the Cloisters, Percussion and Dance Move Through Medieval Spaces**\
 `Michael Gordon’s site-specific “The Forest of Metal Objects” surrounds precious art and architecture with the music of chains and flower pots.`\
 https://nytimes.com/2025/06/26/arts/music/met-cloisters-forest-of-metal-objects.html
-
-**Combs’s criminal conspiracy included Kristina Khorram, his top aide, the prosecution says.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/combss-criminal-conspiracy-included-kristina-khorram-his-top-aide-the-prosecution-says
-
-**Trans Athletes Find a Refuge: Equestrian Sport**\
-`Men and women compete equally, so being transgender has not stirred the debate about equity raging in other sports.`\
-https://nytimes.com/2025/06/26/sports/trans-athletes-equestrian-riding.html
 

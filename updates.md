@@ -1,3 +1,11 @@
+**Crypto Industry Moves Into the U.S. Housing Market**\
+`Americans are finding ways to use digital currencies to help them buy homes, and new companies are forming to help people tap their home’s value to buy Bitcoin.`\
+https://nytimes.com/2025/06/26/business/crypto-industry-housing-market.html
+
+**‘Sorry, Baby’ Review: Life and Nothing but, Beautifully**\
+`In her tender, funny feature directing debut, Eva Victor tells the story of a woman, the trauma that changed her and the life she kept on living.`\
+https://nytimes.com/2025/06/26/movies/sorry-baby-review-eva-victor.html
+
 **Bolster the Building Blocks of Kindergarten**\
 `Readers respond to an Upshot article about expectations for kindergarten. Also: Black lung in miners.`\
 https://nytimes.com/2025/06/26/opinion/kindergarten-boys-girls.html
