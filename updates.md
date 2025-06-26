@@ -1,3 +1,7 @@
+**Burnley complete signing of Netherlands defender Quilindschy Hartman**\
+`The 23-year-old has signed a four-year contract and arrived from the Dutch club for an undisclosed fee.`\
+https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman-transfer-feyenoord/
+
 **Sean Combs Trial Live Updates: Sex-Trafficking Case Reaches Closing Arguments**\
 `After 28 days of testimony from former girlfriends, personal assistants and federal agents, jurors will hear from prosecutors and the defense for the final time.`\
 https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial
