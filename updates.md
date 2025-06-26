@@ -1,3 +1,7 @@
+**Death Toll From Kenya Protests Climbs, Rights Group Says**\
+`Thousands of people turned out across Kenya on Wednesday to protest government corruption and police brutality.`\
+https://nytimes.com/2025/06/26/world/europe/kenya-protests.html
+
 **Burnley complete signing of Netherlands defender Quilindschy Hartman**\
 `The 23-year-old has signed a four-year contract and arrived from the Dutch club for an undisclosed fee.`\
 https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman-transfer-feyenoord/
