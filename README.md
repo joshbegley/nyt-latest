@@ -1,3 +1,7 @@
+**California risks 'imminent enforcement action' over transgender athlete policy**\
+`The statement is the latest battle between the Trump administration and some states over the role of transgender women and girls in sports.`\
+https://nytimes.com/athletic/6454194/2025/06/26/trump-california-department-education-transgender-athlete-policy/
+
 **For Bezos and Sánchez, a Wedding of Secrets That Everyone Knows About**\
 `As A-listers gather in Venice to celebrate the union of Jeff Bezos and Lauren Sánchez, the couple is following a familiar playbook of how to control the message.`\
 https://nytimes.com/2025/06/26/style/jeff-bezos-lauren-sanchez-wedding-privacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6454245/2025/06/26/tarasov-trade-blue-jackets-panth
 **Uber in Talks With Its Founder, Travis Kalanick, to Fund Self-Driving Car Deal**\
 `The ride-hailing company is in talks to help Mr. Kalanick, who was forced out in 2017, purchase an autonomous vehicles start-up as robot taxi service Waymo gains momentum.`\
 https://nytimes.com/2025/06/26/technology/uber-travis-kalanick-self-driving-car-deal.html
-
-**Dashcam Captures Fireball Over South Carolina**\
-`Authorities were investigating what exactly the glowing object was. It was not clear if it was a meteorite, space debris, or something else.`\
-https://nytimes.com/video/us/100000010252994/dashcam-captures-fireball-over-south-carolina.html
 
