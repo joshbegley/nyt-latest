@@ -1,3 +1,11 @@
+**‘Re-elect Eric’: Adams Kicks Off Bid to Oppose Mamdani for Mayor**\
+`Just a few months ago, it appeared unlikely that Mayor Eric Adams of New York, who was facing federal corruption charges, would be in a position to seek a second term.`\
+https://nytimes.com/2025/06/26/nyregion/eric-adams-mayor-campaign.html
+
+**Trump Threatens to Sue The Times and CNN Over Iran Reporting**\
+`The president has criticized media coverage of a preliminary classified report that ran counter to his assertion that U.S. strikes had “obliterated” Iran’s nuclear program.`\
+https://nytimes.com/2025/06/26/business/media/trump-iran-new-york-times-cnn.html
+
 **What the Leafs are signalling about their plans for Matthew Knies and the offseason**\
 `What does GM Brad Treliving have in store this summer? He discussed Mitch Marner's future, contract talks with John Tavares and much more.`\
 https://nytimes.com/athletic/6454145/2025/06/26/maple-leafs-matthew-knies-nhl-offseason/
