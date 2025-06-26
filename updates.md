@@ -1,3 +1,11 @@
+**Goodbye Argentina. The Club World Cup will miss your fans but not your football**\
+`Boca and River Plate are out while all of the Brazilian teams are through, a sign of the issues affecting Argentina at club level`\
+https://nytimes.com/athletic/6452533/2025/06/26/argentina-boca-river-club-world-cup/
+
+**NBA Draft's first round full of twists, turns and surprising trades**\
+`The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
+https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
+
 **Greenberg: Bulls have long way to go, which is why Noa Essengue is smart draft pick**\
 `For mediocre teams like the Bulls, if you don’t get lucky in the draft lottery, you have to make your own luck.`\
 https://nytimes.com/athletic/6452492/2025/06/26/greenberg-bulls-noa-essengue-nba-draft-pick/
