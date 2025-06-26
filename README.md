@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6451499/2025/06/26/nhl-team-salary-cap/
 https://nytimes.com/athletic/6427988/2025/06/26/marcelo-mayer-red-sox-first-mlb-month/
 
 **What's the worst college football team Nick Saban could have won a national title with?**\
-`Editor&#8217;s note: This story is a part of No Wrong Answers, a series that explores the college sports questions you’ve always been curious about — and the ones you never thought to ask.`\
+`How many teams could actually win the college football national title? Let's play the what-if game with the peak version of Nick Saban.`\
 https://nytimes.com/athletic/6451165/2025/06/26/college-football-teams-nick-saban-national-championship/
 
 **Blue Jays mailbag: Trade deadline needs, Toronto’s biggest surprise and more**\
