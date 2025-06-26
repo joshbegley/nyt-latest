@@ -1,3 +1,7 @@
+**What I learned bowling at India's best batters: 'Rishabh Pant smashes every ball'**\
+`Abhay Negi swapped bowling at amateurs for two days practicing with some of the very best batters in the world – and loved it`\
+https://nytimes.com/athletic/6438701/2025/06/26/india-cricket-net-bowler/
+
 **The Aston Villa coaching syllabus, who implemented it and how it works**\
 `The academy is not there to copy the first team, but for young players to know the expectations of Emery’s environment`\
 https://nytimes.com/athletic/6377864/2025/06/26/the-aston-villa-coaching-syllabus-who-implemented-it-and-how-it-works/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450272/2025/06/26/liverpool-transfers-centre-half/
 **Real Madrid's £50m defender Dean Huijsen: The car crash, cultures and country that made him**\
 `Dean Huijsen was born in the Netherlands but brought up in Spain. His remarkable rise started back on the Costa del Sol`\
 https://nytimes.com/athletic/6435068/2025/06/26/huijsen-real-madrid-malaga-spain-juventus/
-
-**Andre Onana, Emiliano Martinez and Manchester United's goalkeeping conundrum**\
-`This is not a question of who is more talented. It is what this United team needs in this moment`\
-https://nytimes.com/athletic/6444960/2025/06/26/andre-onana-emiliano-martinez-man-united-transfer/
 
