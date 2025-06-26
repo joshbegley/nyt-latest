@@ -1,40 +1,40 @@
-**Twins pitchers respond to fiery, emotional meeting with three-hit shutout over Seattle**\
-`An honest, pitchers-only discussion sparked the team to a win over the Mariners, only its second victory since June 11.`\
-https://nytimes.com/athletic/6451923/2025/06/26/twins-mariners-result-pitching/
+**Sean Combs Trial Live Updates: Sex-Trafficking Case Reaches Closing Arguments**\
+`After 28 days of testimony from former girlfriends, personal assistants and federal agents, jurors will hear from prosecutors and the defense for the final time.`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial
 
-**Trump Administration Live Updates: Hegseth to Hold News Conference on Iran Strikes**\
-``\
-https://nytimes.com/live/2025/06/26/us/trump-news
+**How Liverpool signed Kerkez, why they wanted him and what it means for Robertson**\
+`The Hungary international is viewed as the long-term answer at left-back by head coach Arne Slot`\
+https://nytimes.com/athletic/6429641/2025/06/26/milos-kerkez-liverpool-robertson-tsimikas/
 
-**Transfers TLDR: Milos Kerkez to Liverpool - all you need to know**\
-`Liverpool have completed the signing of Milos Kerkez from Bournemouth - here, we break down the transfer`\
-https://nytimes.com/athletic/6418611/2025/06/26/milos-kerkez-liverpool-transfer/
+**Cowboys 53-man roster projection: One spot left open for player not on current roster**\
+`Predicting that Dallas will keep five running backs, five receivers and three tight ends. Is a spot remaining in the secondary?`\
+https://nytimes.com/athletic/6451352/2025/06/26/cowboys-53-man-roster-projection-predictions/
 
-**Draft's biggest takeaway? How much teams were willing to pay just to move up a few picks**\
-`Maybe Derik Queen becomes a player. But the process for New Orleans, in particular, on draft night was awful.`\
-https://nytimes.com/athletic/6452680/2025/06/26/new-orleans-pelicans-trade-draft-derik-queen/
+**This is the latest Yankees pitching prospect turning heads**\
+`The 22-year-old touched 102 mph, struck out four batters and worked out of early trouble for Double-A Somerset on Wednesday night.`\
+https://nytimes.com/athletic/6452270/2025/06/26/yankees-pitching-prospects-carlos-lagrange/
 
-**Housekeeper Arrested Over Wildfire That Scorched Greek Island**\
-`“She’d been smoking,” a Greek official said of a Georgian woman who was arrested after a blaze tore through 11,000 acres of Chios this week.`\
-https://nytimes.com/2025/06/26/world/europe/wildfire-chios-greece-arson.html
+**Dalton Rushing's strides behind the plate showing in the assignments Dodgers are giving him**\
+`He has so wowed the Dodgers’ brass that Roberts dropped the "S" word. “He feels that he's going to be a superstar,” Roberts said.`\
+https://nytimes.com/athletic/6452589/2025/06/26/dodgers-catchers-dalton-rushing/
 
-**Myles Lewis-Skelly, the whirlwind continues**\
-`It’s a sign of his rapid progression that securing a new contract for the 18-year-old became a matter of urgency for Arsenal. `\
-https://nytimes.com/athletic/6450506/2025/06/26/myle-lewis-skelly-contract-whirlwind/
+**Meet Kalle Larsson, an NHL outsider who’s reshaping Oilers’ player development**\
+`With Kalle Larsson at the helm, strides are being made to internally improve how the Oilers work with their prospects.`\
+https://nytimes.com/athletic/6276430/2025/06/26/edmonton-oilers-draft-kalle-larsson/
 
-**TAFC: Dempsey on Pulisic, Pochettino and podcasts; River Plate's angry exit at Club World Cup**\
-`Today in TAFC: Dempsey calls for a 'unified' message after Pulisic and Pochettino comments, Argentine sides bow out of the Club World Cup`\
-https://nytimes.com/athletic/6452782/2025/06/26/dempsey-pulisic-pochettino-river-plate-angry-club-world-cup/
+**It's a good time to be a Notre Dame fan, our survey says. Here's how Irish faithful feel**\
+`More than 2,500 Notre Dame fans gave us their thoughts on the state of Marcus Freeman's program, rivalry games, the 2025 team and more.`\
+https://nytimes.com/athletic/6450661/2025/06/26/notre-dame-football-2025-survey-fans/
 
-**Lewis-Skelly signs long-term Arsenal contract**\
-`The 18-year-old made 39 appearances in all competitions in 2024-25, his first season in senior football.`\
-https://nytimes.com/athletic/6435674/2025/06/26/myles-lewis-skelly-arsenal-contract-update/
+**Blues trade 'rumors' pick up with Jordan Kyrou's no-trade clause kicking in July 1**\
+`Kyrou, 27, improved his all-around game last season, finishing with a team-best plus-23 rating.`\
+https://nytimes.com/athletic/6451096/2025/06/26/jordan-kyrou-no-trade-clause-blues-rumors/
 
-**Ranking every NHL team’s salary-cap situation, from best to worst**\
-`What will teams be able to spend in unrestricted free agency to fill out their rosters?`\
-https://nytimes.com/athletic/6451499/2025/06/26/nhl-team-salary-cap/
+**Bills training camp 2025 offensive line preview: One battle could be brewing**\
+`Alec Anderson vs. Sedrick Van Pran-Granger could have long-term implications.`\
+https://nytimes.com/athletic/6414584/2025/06/26/2025-bills-training-camp-offensive-line/
 
-**Marcelo Mayer adjusting to life with the Boston Red Sox: 'I'm pretty comfortable'**\
-`Mayer isn't dominating the league statistically yet, but he's learning how pitchers are attacking him and improving every day.`\
-https://nytimes.com/athletic/6427988/2025/06/26/marcelo-mayer-red-sox-first-mlb-month/
+**How Claude Giroux's remaining unsigned affects Ottawa's offseason plans**\
+`The Athletic's Pierre LeBrun also reported that Ottawa and Giroux's agent, Pat Brisson, were "slated" to speak Wednesday.`\
+https://nytimes.com/athletic/6450851/2025/06/26/claude-giroux-senators-free-agent/
 
