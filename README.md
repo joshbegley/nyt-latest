@@ -1,3 +1,11 @@
+**Columbus Blue Jackets trade Daniil Tarasov to Florida Panthers for draft pick**\
+`It had become clear that Tarasov was supplanted on the Blue Jackets' depth chart.`\
+https://nytimes.com/athletic/6454245/2025/06/26/tarasov-trade-blue-jackets-panthers/
+
+**Uber in Talks With Its Founder, Travis Kalanick, to Fund Self-Driving Car Deal**\
+`The ride-hailing company is in talks to help Mr. Kalanick, who was forced out in 2017, purchase an autonomous vehicles start-up as robot taxi service Waymo gains momentum.`\
+https://nytimes.com/2025/06/26/technology/uber-travis-kalanick-self-driving-car-deal.html
+
 **Dashcam Captures Fireball Over South Carolina**\
 `Authorities were investigating what exactly the glowing object was. It was not clear if it was a meteorite, space debris, or something else.`\
 https://nytimes.com/video/us/100000010252994/dashcam-captures-fireball-over-south-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6453860/2025/06/26/romulo-fulham-transfer-goztepe/
 **Mysterious Fireball Reported Over South Carolina, Georgia and Tennessee**\
 `A glowing object lit up the sky, prompting dozens of calls to the authorities, as scientists scrambled to figure out what it was.`\
 https://nytimes.com/2025/06/26/us/fire-ball-south-carolina-georgia-tennessee.html
-
-**New York Red Bulls in talks over Timo Werner move**\
-`No agreement has been reached yet, but both sides are optimistic that a deal can be concluded this summer.`\
-https://nytimes.com/athletic/6454062/2025/06/26/timo-werner-new-york-red-bulls-transfer/
-
-**U.S. soccer investor fighting extradition from Spain, wanted on multiple allegations of fraud**\
-`Paul Conway once owned as many as seven clubs around Europe, including League One side Barnsley.`\
-https://nytimes.com/athletic/6453698/2025/06/26/paul-conway-fraud-kv-oostende/
 
