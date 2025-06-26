@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Potential talks between the U.S. and Iran.`\
+https://nytimes.com/2025/06/26/briefing/iran-talks-nato.html
+
 **The New York Times in Print for Thursday, June 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/26/todays-new-york-times
