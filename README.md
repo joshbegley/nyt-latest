@@ -1,40 +1,40 @@
-**My Love Affair With Bruno Mars**\
-`Wesley Morris untangles his complicated relationship with the pop star on his new podcast, “Cannonball.”`\
-https://nytimes.com/video/podcasts/100000010250537/my-love-affair-with-bruno-mars.html
+**Lewis-Skelly signs long-term Arsenal contract**\
+`The 18-year-old made 39 appearances in all competitions in 2024-25, his first season in senior football.`\
+https://nytimes.com/athletic/6435674/2025/06/26/myles-lewis-skelly-arsenal-contract-update/
 
-**Iran’s Khamenei Makes First Public Comments Since Cease-Fire Agreed With Israel**\
-`Supreme leader strikes defiant tone in remarks reported by state media, after not being heard of or seen publicly in days.`\
-https://nytimes.com/2025/06/26/world/middleeast/iran-leader-khamenei-statement.html
+**Ranking every NHL team’s salary-cap situation, from best to worst**\
+`What will teams be able to spend in unrestricted free agency to fill out their rosters?`\
+https://nytimes.com/athletic/6451499/2025/06/26/nhl-team-salary-cap/
 
-**Dortmund head coach Kovac set to be handed contract extension**\
-`Kovac signed a short-term contract until the end of next season when he succeeded Nuri Sahin in February.`\
-https://nytimes.com/athletic/6445122/2025/06/26/borussia-dortmund-niko-kovac-contract-extension/
+**Marcelo Mayer adjusting to life with the Boston Red Sox: 'I'm pretty comfortable'**\
+`Mayer isn't dominating the league statistically yet, but he's learning how pitchers are attacking him and improving every day.`\
+https://nytimes.com/athletic/6427988/2025/06/26/marcelo-mayer-red-sox-first-mlb-month/
 
-**The Pulse: New superstars everywhere**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6451180/2025/06/26/cooper-flagg-dylan-harper-nba-draft-the-pulse/
+**What's the worst college football team Nick Saban could have won a national title with?**\
+`Editor&#8217;s note: This story is a part of No Wrong Answers, a series that explores the college sports questions you’ve always been curious about — and the ones you never thought to ask.`\
+https://nytimes.com/athletic/6451165/2025/06/26/college-football-teams-nick-saban-national-championship/
 
-**2025 NBA Draft fashion review: Whose looks won the night?**\
-`Which NBA Draftees had the best fits and looks? The Athletic's experts break down the night's big fashion winners.`\
-https://nytimes.com/athletic/6450688/2025/06/26/nba-draft-fashion-style-report-card-cooper-flagg-jeremiah-fears/
+**Blue Jays mailbag: Trade deadline needs, Toronto’s biggest surprise and more**\
+`The Blue Jays' -7 run differential says they could be due for regression. But they have a way to counter that dip.`\
+https://nytimes.com/athletic/6452158/2025/06/26/blue-jays-mailbag-trade-deadline-needs/
 
-**Josh Metellus is due an extension, but his contract situation is more interesting than most**\
-`The 27-year-old is more than just a safety. He's a Swiss Army knife who can play almost any role on Brian Flores' vaunted defense.`\
-https://nytimes.com/athletic/6451076/2025/06/26/josh-metellus-vikings-contract-situation/
+**Erik Karlsson trade destinations: 8 teams that could make sense for the Penguins defenseman**\
+`Could he be the latest coup for the two-time-defending champs? Or give Carolina a firepower boost? Or close his career where it started?`\
+https://nytimes.com/athletic/6451510/2025/06/26/erik-karlsson-trade-destinations/
 
-**With Collin Murray-Boyles pick, Raptors are setting themselves up for more roster changes**\
-`“We're still in talent acquisition mode,” says Raptors general manager Bobby Webster, after the first round of the NBA Draft.`\
-https://nytimes.com/athletic/6452514/2025/06/26/raptors-collin-murray-boyles-nba-draft-pick/
+**The All-IL team: As more MLB stars go down, building an All-Star team of injured players**\
+`Want to build a rotation of injured Cy Young winners? In 2025, that isn't hard to do at all. `\
+https://nytimes.com/athletic/6449253/2025/06/26/mlb-all-star-team-injured-players/
 
-**NHL trade grades: JJ Peterka is a great fit among Mammoth's rising stars**\
-`The Sabres got back two quality players in Michael Kesselring and Josh Doan, but was the return enough?`\
-https://nytimes.com/athletic/6452390/2025/06/26/jj-peterka-nhl-trade-grades-sabres-mammoth/
+**Trading roster players? Moving up in the draft? The Bruins are considering everything**\
+`Six options the Bruins are considering for the option, based on the latest from the general manager.`\
+https://nytimes.com/athletic/6451669/2025/06/26/bruins-don-sweeney-draft-free-agency-trades/
 
-**What Wheeler is hearing ahead of 2025 NHL Draft: Penguins trade? Hagens landing spot?**\
-`Plus, a few names rising up the draft board and more quotes and insights gathered over the course of the season.`\
-https://nytimes.com/athletic/6435381/2025/06/26/nhl-draft-2025-penguins-hagens/
+**Manchester City squad audit: Pep Guardiola has 'too many players' but who goes?**\
+`They have 32 players in their squad – there is work to do if they are to trim it to a more manageable size`\
+https://nytimes.com/athletic/6451287/2025/06/26/manchester-city-squad-audit-june-2025/
 
-**F1 teams opened their doors for Brad Pitt’s new movie – and sparked competitive paranoia**\
-`'F1: The Movie' uses many locations familiar for F1 fans, but using the secretive design facilities of one team had to be cleared legally `\
-https://nytimes.com/athletic/6450923/2025/06/26/f1-movie-filming-locations/
+**Michael Kesselring, Josh Doan fill Sabres' needs, but did Buffalo get enough for JJ Peterka?**\
+`The Sabres have developed a reputation for high-profile trades that don’t age particularly well. Will the Peterka deal be different?`\
+https://nytimes.com/athletic/6452609/2025/06/26/jj-peterka-nhl-trade-sabres-kesselring-doan/
 

@@ -1,3 +1,7 @@
+**My Love Affair With Bruno Mars**\
+`Wesley Morris untangles his complicated relationship with the pop star on his new podcast, “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010250537/my-love-affair-with-bruno-mars.html
+
 **Iran’s Khamenei Makes First Public Comments Since Cease-Fire Agreed With Israel**\
 `Supreme leader strikes defiant tone in remarks reported by state media, after not being heard of or seen publicly in days.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-leader-khamenei-statement.html
