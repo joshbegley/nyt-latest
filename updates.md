@@ -1,3 +1,5 @@
+
+
 **Grand Jury Indicts Russian Scientist on Smuggling Charges**\
 `Kseniia Petrova, a Harvard researcher, was detained in February after failing to declare scientific samples she was carrying into the country.`\
 https://nytimes.com/2025/06/25/science/russian-scientist-harvard-smuggling-deportation-petrova.html
