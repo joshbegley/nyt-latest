@@ -1,3 +1,7 @@
+**How Courts Are Rethinking Criminal Sentencing**\
+`One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
+https://nytimes.com/2025/06/26/headway/courts-rethinking-criminal-sentencing.html
+
 **Tigers' Dietrich Enns back to major leagues after journey of more than 1,000 days**\
 `After stints in Japan and Korea, 34-year-old lefty Enns threw five scoreless innings in a long-awaited return to the major leagues.`\
 https://nytimes.com/athletic/6454602/2025/06/26/tigers-dietrich-enns-back-to-major-leagues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict
 **What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
 `President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-nuclear-program-israeli-us-attacks.html
-
-**Trump Administration Tells Congress to Kill ‘Revenge Tax’**\
-`Treasury Secretary Scott Bessent said the Group of 7 agreed that penalties related to a 2021 “global minimum tax” deal will not apply to American companies.`\
-https://nytimes.com/2025/06/26/business/trump-congress-tax-corporations-global-minimum.html
 
