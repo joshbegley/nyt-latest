@@ -2,8 +2,8 @@
 `Maluach brings defense, length and coachability to the NBA.`\
 https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
 
-**U.S. Spy Chiefs Give New Assessments on Damage at Iran Nuclear Sites**\
-`President Trump defended his assertion that Iran’s key facilities had been “obliterated” as a preliminary intelligence report became a flashpoint in the public discussion.`\
+**In New Assessment, C.I.A. Chief Says U.S. Strikes ‘Severely Damaged’ Iranian Program**\
+`The administration suggested an initial report of less-severe damage was already outdated as the president continued to defend his assertion that key facilities had been “obliterated,” though no intelligence official has yet directly echoed his view.`\
 https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
 
 **Brooklyn Nets draft BYU's Egor Demin with No. 8 pick**\

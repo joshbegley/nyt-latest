@@ -1,3 +1,11 @@
+**Rockets pick Duke's Khaman Maluach at No. 10, will trade him to Suns**\
+`Maluach brings defense, length and coachability to the NBA.`\
+https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
+
+**Jazz draft Rutgers star Ace Bailey with No. 5 pick, ending draft speculation**\
+`After a unique predraft process in which he didn't work out for anyone, Ace Bailey ends up with a team few expected.`\
+https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
+
 **Houston picks Duke's Khaman Maluach at No. 10, will trade him to Suns**\
 `Maluach brings defense, length and coachability to the NBA.`\
 https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-draft-2025/
