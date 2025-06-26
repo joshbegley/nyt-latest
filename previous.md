@@ -1,3 +1,7 @@
+**Suns' drafting of Khaman Maluach continues an offseason theme that's hard to miss**\
+`When the Suns hired first-time head coach Jordan Ott, maybe everyone focused on the wrong part of his background.`\
+https://nytimes.com/athletic/6452571/2025/06/26/suns-draft-khaman-maluach-offseason-theme/
+
 **Goodbye Argentina. The Club World Cup will miss your fans but not your football**\
 `Boca and River Plate are out while all of the Brazilian teams are through, a sign of the issues affecting Argentina at club level`\
 https://nytimes.com/athletic/6452533/2025/06/26/argentina-boca-river-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/26/todays-new-york-times
 **The Ayatollah Has a Plan**\
 `Iran’s supreme leader believes the country can outlast the West in a war of attrition.`\
 https://nytimes.com/2025/06/26/opinion/iran-nuclear-ayatollah-cease-fire.html
-
-**Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the 5 hole**\
-`After a string of poor performances from the starters, Matthew Boyd delivered a gem to help lift the Cubs out of their funk.`\
-https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agency-boyd-swanson/
 
