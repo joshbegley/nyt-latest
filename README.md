@@ -1,3 +1,19 @@
+**Can Mamdani’s Energetic Campaign Be a Blueprint for Democrats?**\
+`The progressive state lawmaker’s sleek social media presence and army of eager volunteers could offer his party a road map for how to win back voters.`\
+https://nytimes.com/2025/06/26/us/politics/mamdani-campaign-democrats.html
+
+**A New Rail Line May Come to New York. Will a Housing Boom Follow?**\
+`The Interborough Express, a rail line connecting Brooklyn and Queens, could spur the building of tens of thousands of homes. Obstacles await.`\
+https://nytimes.com/2025/06/26/nyregion/nyc-brooklyn-queens-train-housing.html
+
+**Trump’s Bill Slashes the Safety Net That Many Republican Voters Rely on**\
+`As they push for big cuts in Medicaid and food stamps, Republicans are making a big bet that they can avoid political backlash from working-class supporters who increasingly rely on those programs.`\
+https://nytimes.com/2025/06/26/us/politics/trump-republicans-safety-net-cuts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/26/crosswords/spelling-bee-forum.html
+
 **Late Night Ponders the Possibility of a Millennial Mayor of New York**\
 `Jimmy Fallon imagined Zohran Mamdani’s reaction to his surprising success in the primary: “My seven roommates are never going to believe this.”`\
 https://nytimes.com/2025/06/26/arts/television/late-night-zohran-mamdani-new-york.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/26/learning/word-of-the-day-spectral.html
 **NBA Draft's first round full of twists, turns and surprising trades**\
 `The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
 https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
-
-**As Phillies stumble, a familiar platoon debate reopens for Brandon Marsh and Bryson Stott**\
-`"I hope they're everyday guys," Phillies manager Rob Thomson said. "I hope. We'll see how it all transpires."`\
-https://nytimes.com/athletic/6452421/2025/06/26/phillies-lose-astros-platoon-debate-brandon-marsh-bryson-stott/
-
-**Mavs' Nico Harrison says Jason Kidd will return next season**\
-`The New York Knicks have expressed serious interest in poaching Kidd from the Mavericks, without success.`\
-https://nytimes.com/athletic/6452547/2025/06/26/jason-kidd-mavericks-nico-harrison/
-
-**Thursday Briefing**\
-`Potential talks between the U.S. and Iran.`\
-https://nytimes.com/2025/06/26/briefing/iran-talks-nato.html
-
-**The Ayatollah Has a Plan**\
-`Iran’s supreme leader believes the country can outlast the West in a war of attrition.`\
-https://nytimes.com/2025/06/26/opinion/iran-nuclear-ayatollah-cease-fire.html
 
