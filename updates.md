@@ -1,3 +1,7 @@
+**ScoopCity: 2025 AFC West preview**\
+`Inside: Key questions, breakout players and positions to watch in the AFC West.`\
+https://nytimes.com/athletic/6454193/2025/06/26/nfl-preview-afc-west-2025-chiefs-broncos-chargers-raiders/
+
 **The Winners of Our 8th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Listen to some of the winning podcasts selected from over 1,600 submissions.`\
 https://nytimes.com/2025/06/26/learning/the-winners-of-our-8th-annual-student-podcast-contest.html

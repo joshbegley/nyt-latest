@@ -1,3 +1,7 @@
+**Kate Martin's career night didn't top Liberty, but it's still a win for Valkyries**\
+`If Wednesday night was Kate Martin's breakthrough, that bodes well for a Valkyries team eyeing the playoffs.`\
+https://nytimes.com/athletic/6453957/2025/06/26/kate-martin-valkyries-liberty-career-high/
+
 **ScoopCity: 2025 AFC West preview**\
 `Inside: Key questions, breakout players and positions to watch in the AFC West.`\
 https://nytimes.com/athletic/6454193/2025/06/26/nfl-preview-afc-west-2025-chiefs-broncos-chargers-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010252994/dashcam-captures-fireball-over-sout
 **Everton Women expected to complete deals for Van Gool, Kitagawa**\
 `Both players are expected to be the first of many international signings this summer at Everton under new ownership, The Friedkin Group.`\
 https://nytimes.com/athletic/6453595/2025/06/26/everton-rosa-van-gool-hikaru-kitagawa/
-
-**Faith Kipyegon falls short in attempt to break four-minute mile**\
-`Kipyegon ran 4:06.92, the fastest time over the distance recorded by a woman.`\
-https://nytimes.com/athletic/6454142/2025/06/26/faith-kipyegon-attempt-four-minute-mile/
 
