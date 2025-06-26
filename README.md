@@ -1,3 +1,7 @@
+**Burnley complete signing of Netherlands defender Quilindschy Hartman**\
+`The 23-year-old has signed a four-year contract and arrived from the Dutch club for an undisclosed fee.`\
+https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman-transfer-feyenoord/
+
 **Sean Combs Trial Live Updates: Sex-Trafficking Case Reaches Closing Arguments**\
 `After 28 days of testimony from former girlfriends, personal assistants and federal agents, jurors will hear from prosecutors and the defense for the final time.`\
 https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451096/2025/06/26/jordan-kyrou-no-trade-clause-blu
 **Bills training camp 2025 offensive line preview: One battle could be brewing**\
 `Alec Anderson vs. Sedrick Van Pran-Granger could have long-term implications.`\
 https://nytimes.com/athletic/6414584/2025/06/26/2025-bills-training-camp-offensive-line/
-
-**How Claude Giroux's remaining unsigned affects Ottawa's offseason plans**\
-`The Athletic's Pierre LeBrun also reported that Ottawa and Giroux's agent, Pat Brisson, were "slated" to speak Wednesday.`\
-https://nytimes.com/athletic/6450851/2025/06/26/claude-giroux-senators-free-agent/
 
