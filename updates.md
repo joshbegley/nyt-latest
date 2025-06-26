@@ -1,3 +1,19 @@
+**Leeds striker Boast, 16, set to join Tottenham**\
+`Boast, one of Leeds' prized academy assets, has chosen to continue his development with the north London club.`\
+https://nytimes.com/athletic/6453541/2025/06/26/oliver-boast-tottenham-leeds-transfer/
+
+**Death in the Modern Age**\
+`New approaches to death and dying — today and beyond.`\
+https://nytimes.com/spotlight/death-in-the-modern-age
+
+**The Bounce: NBA Draft surprises, explained: Ace Bailey's slight slip, Nets make odd reaches and more**\
+`Last night, the 2025 NBA Draft began the way everybody believed it would before it got interesting. Which surprise stood out most?`\
+https://nytimes.com/athletic/6453198/2025/06/26/nba-draft-surprises-cooper-flagg-mavericks-ace-bailey-jazz-the-bounce/
+
+**The Windup: Biggest surprises of MLB's first half**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6452653/2025/06/26/mlb-surprises-first-half-the-athletic/
+
 **What I'm hearing about the Wild: Offer for JJ Peterka, latest on the Marco Rossi market, more**\
 `The latest on striking out on Peterka, what's holding up a Rossi trade, Brock Boeser interest and other center moves that could be coming.`\
 https://nytimes.com/athletic/6453487/2025/06/26/wild-trades-free-agency-nhl/
