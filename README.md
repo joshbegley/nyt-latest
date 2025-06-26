@@ -1,3 +1,7 @@
+**U.S. Spy Chiefs Give New Assessments on Damage at Iran Nuclear Sites**\
+`President Trump defended his assertion that Iran’s key facilities had been “obliterated” as a preliminary intelligence report became a flashpoint in the public discussion.`\
+https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
+
 **Brooklyn Nets draft BYU's Egor Demin with No. 8 pick**\
 `Demin is the first Russian-born player to be drafted since Sergey Karasev in 2013.`\
 https://nytimes.com/athletic/6451489/2025/06/25/egor-demin-nets-nba-draft-2025/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6451489/2025/06/25/egor-demin-nets-nba-draft-2025/
 https://nytimes.com/2025/06/25/theater/lowcountry-review.html
 
 **Pelicans select Jeremiah Fears with No. 7 pick in the 2025 NBA Draft**\
-`The 6-foot-3 guard arrived in Norman as a top 25 recruit and was named to the SEC All-Freshman team.`\
+`The 6-foot-3 guard arrived in Norman as a top-25 recruit and was named to the SEC All-Freshman team.`\
 https://nytimes.com/athletic/6451491/2025/06/25/jeremiah-fears-pelicans-nba-draft-2025/
 
 **Blue Jays' Max Scherzer fires five innings in return to rotation**\
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6446966/2025/06/25/tre-johnson-wizards-nba-draft-20
 `Darrell Harris, a high school student, died after an encounter with men who were having a water gun fight at a local park, an official with knowledge of the incident said.`\
 https://nytimes.com/2025/06/25/nyregion/shooting-bronx-park-water-gun.html
 
-**Jazz draft Rutgers star Ace Bailey with No. 5 pic**\
+**Jazz draft Rutgers star Ace Bailey with No. 5 pick**\
 `Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
 https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6439340/2025/06/25/kon-knueppel-hornets-nba-draft-2
 **Supreme Leader’s Absence Raises Alarm in Iran**\
 `Ayatollah Ali Khamenei has not been seen publicly or heard from in nearly a week. That absence has surprised and unnerved everyone from political insiders to the general public.`\
 https://nytimes.com/2025/06/25/world/middleeast/where-is-khamenei-iran-supreme-leader.html
-
-**76ers draft Baylor star V.J. Edgecombe with No. 3 pick**\
-`An elite athlete and premier defender, Edgecombe led the Bears in steals last season.`\
-https://nytimes.com/athletic/6446755/2025/06/25/nba-draft-76ers-baylor-vj-edgecombe/
 
