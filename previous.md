@@ -1,3 +1,27 @@
+**How Brad Lander Helped Push Zohran Mamdani Toward Victory**\
+`In New York’s mayoral primary, Andrew Cuomo was no match for the energy of progressive rivals who saw a virtue in unity.`\
+https://nytimes.com/2025/06/26/nyregion/brad-lander-zohran-mamdani.html
+
+**At the Cloisters, Percussion and Dance Move Through Medieval Spaces**\
+`Michael Gordon’s site-specific “The Forest of Metal Objects” surrounds precious art and architecture with the music of chains and flower pots.`\
+https://nytimes.com/2025/06/26/arts/music/met-cloisters-forest-of-metal-objects.html
+
+**Combs’s criminal conspiracy included Kristina Khorram, his top aide, the prosecution says.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/combss-criminal-conspiracy-included-kristina-khorram-his-top-aide-the-prosecution-says
+
+**Trans Athletes Find a Refuge: Equestrian Sport**\
+`Men and women compete equally, so being transgender has not stirred the debate about equity raging in other sports.`\
+https://nytimes.com/2025/06/26/sports/trans-athletes-equestrian-riding.html
+
+**Arsenal looking to experience with Norgaard, but do they need youth in their midfield too?**\
+`Norgaard is one of the Premier League's most trusted midfielders. But should Arsenal be planning for the future as well as the present?`\
+https://nytimes.com/athletic/6450681/2025/06/26/arsenal-midfield-norgaard-agoume/
+
+**The Proper Saddle Can Bring Harmony to a Horse and Rider**\
+`A saddle fitter explains what makes the perfect match for horse, rider and saddle.`\
+https://nytimes.com/2025/06/26/sports/saddle-horse-rider.html
+
 **Fati set to join Monaco on loan from Barcelona**\
 `The 22-year-old appeared just 11 times for the La Liga champions in the 2024-25 season, failing to register a goal or assist.`\
 https://nytimes.com/athletic/6383544/2025/06/26/ansu-fati-barcelona-monaco-loan/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6451157/2025/06/26/blackhawks-nhl-draft-michael-mis
 **The Art of Performing Gymnastics on a Moving Horse**\
 `The sport is called vaulting, and a major competition will be held at the World Equestrian Festival this weekend in Aachen, Germany.`\
 https://nytimes.com/2025/06/26/sports/world-equestrian-festival-vaulting.html
-
-**The World Is Warming Up. And It’s Happening Faster.**\
-`Human-caused global warming has been increasing faster and faster since the 1970s.`\
-https://nytimes.com/2025/06/26/climate/climate-heat-intensity.html
-
-**Ecuador Recaptures Gang Leader “Fito” After Prison Escape Last Year**\
-`The Ecuadorean president said José Adolfo Macías, known as “Fito” and leader of the infamous Los Choneros criminal organization, will be extradited to the U.S., where he’s accused of drug trafficking and weapons smuggling.`\
-https://nytimes.com/video/world/americas/100000010252041/ecuador-fito-gang-leader-captured-.html
-
-**Vladislav Gavrikov, Jordan Spence and the future of the Kings' blue line**\
-`New Kings general manager Ken Holland spoke for nearly 40 minutes on Gavrikov, Spence and the team's offseason priorities.`\
-https://nytimes.com/athletic/6452580/2025/06/26/kings-nhl-gavrikov-free-agency-defense/
-
-**What Are RICO Charges, and How Can They Be Proven?**\
-`Prosecutors aim to show jurors that Sean Combs ran a criminal enterprise responsible for years of sex-trafficking, drug distribution and other crimes.`\
-https://nytimes.com/2025/06/26/arts/music/rico-charges-diddy-racketeering.html
-
-**Benson Boone, a Showy Male Pop Star for This American Moment**\
-`Pop in the 21st century has largely been a woman’s game, but Boone has flipped his way into the upper echelon by satisfying at least four different internet niches.`\
-https://nytimes.com/2025/06/26/arts/music/benson-boone-american-heart.html
-
-**Wild trade center Freddy Gaudreau to Kraken for fourth-round pick: Where it leaves the depth chart**\
-`The Wild get out of the remaining three years of the 32-year-old’s contract at $2.1 million annually. Gaudreau had a 15-team no-trade list.`\
-https://nytimes.com/athletic/6453619/2025/06/26/wild-trade-freddy-gaudreau-kraken/
 

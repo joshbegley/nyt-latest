@@ -1,3 +1,7 @@
+**Debris From SpaceX Explosion, Landing in Mexico, Draws Investigation**\
+`Mexican environmental activists say detritus raining down from Elon Musk’s rocket company has caused die-offs of marine life.`\
+https://nytimes.com/2025/06/26/us/spacex-explosion-debris-mexico-investigation.html
+
 **How Brad Lander Helped Push Zohran Mamdani Toward Victory**\
 `In New York’s mayoral primary, Andrew Cuomo was no match for the energy of progressive rivals who saw a virtue in unity.`\
 https://nytimes.com/2025/06/26/nyregion/brad-lander-zohran-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/t-magazine/fashion-brands-celebrity-endorsement-p
 **What Blackhawks could get in draft prospect Michael Misa with No. 3 pick**\
 `If Misa, the draft's No. 2 prospect in The Athletic's evaluations, gets to the Blackhawks' pick, they'd likely take him. Here's what to know`\
 https://nytimes.com/athletic/6451157/2025/06/26/blackhawks-nhl-draft-michael-misa-no-3-pick/
-
-**The Art of Performing Gymnastics on a Moving Horse**\
-`The sport is called vaulting, and a major competition will be held at the World Equestrian Festival this weekend in Aachen, Germany.`\
-https://nytimes.com/2025/06/26/sports/world-equestrian-festival-vaulting.html
 

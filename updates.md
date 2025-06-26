@@ -1,3 +1,27 @@
+**How Brad Lander Helped Push Zohran Mamdani Toward Victory**\
+`In New York’s mayoral primary, Andrew Cuomo was no match for the energy of progressive rivals who saw a virtue in unity.`\
+https://nytimes.com/2025/06/26/nyregion/brad-lander-zohran-mamdani.html
+
+**At the Cloisters, Percussion and Dance Move Through Medieval Spaces**\
+`Michael Gordon’s site-specific “The Forest of Metal Objects” surrounds precious art and architecture with the music of chains and flower pots.`\
+https://nytimes.com/2025/06/26/arts/music/met-cloisters-forest-of-metal-objects.html
+
+**Combs’s criminal conspiracy included Kristina Khorram, his top aide, the prosecution says.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/combss-criminal-conspiracy-included-kristina-khorram-his-top-aide-the-prosecution-says
+
+**Trans Athletes Find a Refuge: Equestrian Sport**\
+`Men and women compete equally, so being transgender has not stirred the debate about equity raging in other sports.`\
+https://nytimes.com/2025/06/26/sports/trans-athletes-equestrian-riding.html
+
+**Arsenal looking to experience with Norgaard, but do they need youth in their midfield too?**\
+`Norgaard is one of the Premier League's most trusted midfielders. But should Arsenal be planning for the future as well as the present?`\
+https://nytimes.com/athletic/6450681/2025/06/26/arsenal-midfield-norgaard-agoume/
+
+**The Proper Saddle Can Bring Harmony to a Horse and Rider**\
+`A saddle fitter explains what makes the perfect match for horse, rider and saddle.`\
+https://nytimes.com/2025/06/26/sports/saddle-horse-rider.html
+
 **Fati set to join Monaco on loan from Barcelona**\
 `The 22-year-old appeared just 11 times for the La Liga champions in the 2024-25 season, failing to register a goal or assist.`\
 https://nytimes.com/athletic/6383544/2025/06/26/ansu-fati-barcelona-monaco-loan/
