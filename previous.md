@@ -1,6 +1,18 @@
+**Young Father Announces Own Death on Social Media**\
+`Tanner Martin documented his five-year-long battle against colon cancer for his hundreds of thousands of followers on social media before passing away at age 30. He left behind his young family and a legacy of candid honesty about living with cancer.`\
+https://nytimes.com/video/us/100000010252641/tanner-martin-death-announcement-video.html
+
+**4 Takeaways From the Prosecution’s Closing Argument at Sean Combs’s Trial**\
+`After seven weeks of testimony, the government detailed to jurors why it says the mogul is guilty of sex trafficking and racketeering.`\
+https://nytimes.com/2025/06/26/arts/music/sean-diddy-combs-trial-prosecution-closing-argument.html
+
+**Senators Remain Divided on Iran Strikes After Trump Administration Briefing**\
+`The closed-door session drew more questions from Democrats over the true success of the operation.`\
+https://nytimes.com/2025/06/26/us/politics/senate-iran-strikes-trump-administration.html
+
 **University of Virginia President Under Pressure From Trump’s D.O.J. to Resign**\
 `The Justice Department has demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school, three people familiar with the matter said.`\
-https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-under-pressure-from-trumps-doj-to-resign.html
+https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-trump.html
 
 **How Courts Are Rethinking Criminal Sentencing**\
 `One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/26/us/politics/trump-nato-visit-nobel-prize.html
 **Lawyer Who Pushed Bogus Trump Elector Scheme Is Disbarred in New York**\
 `Kenneth Chesebro, an architect of the plan to use phony slates of pro-Trump electors to overturn the 2020 election, was indefinitely barred from practicing in the state last year.`\
 https://nytimes.com/2025/06/26/us/politics/kenneth-chesebro-disbarred-trump.html
-
-**As Mamdani Rises, Anti-Muslim Attacks Roll In From the Right**\
-`Republican members of Congress and Trump administration officials have targeted Zohran Mamdani, who would be New York City’s first Muslim mayor.`\
-https://nytimes.com/2025/06/26/nyregion/mamdani-muslim-attacks.html
-
-**Intelligence Agencies Race to Evaluate Iran’s Nuclear Program**\
-`Also, violence has frequently erupted near aid sites in Gaza. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/06/26/briefing/iran-nuclear-program-sean-combs-trial.html
-
-**Wander Franco, one-time Rays star, convicted after underage sexual abuse trial**\
-`The 24-year-old was given a suspended two-year sentence, which means he will not serve prison time as long as he meets certain conditions.`\
-https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict/
 

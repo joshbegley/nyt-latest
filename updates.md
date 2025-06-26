@@ -1,3 +1,19 @@
+**Young Father Announces Own Death on Social Media**\
+`Tanner Martin documented his five-year-long battle against colon cancer for his hundreds of thousands of followers on social media before passing away at age 30. He left behind his young family and a legacy of candid honesty about living with cancer.`\
+https://nytimes.com/video/us/100000010252641/tanner-martin-death-announcement-video.html
+
+**4 Takeaways From the Prosecution’s Closing Argument at Sean Combs’s Trial**\
+`After seven weeks of testimony, the government detailed to jurors why it says the mogul is guilty of sex trafficking and racketeering.`\
+https://nytimes.com/2025/06/26/arts/music/sean-diddy-combs-trial-prosecution-closing-argument.html
+
+**Senators Remain Divided on Iran Strikes After Trump Administration Briefing**\
+`The closed-door session drew more questions from Democrats over the true success of the operation.`\
+https://nytimes.com/2025/06/26/us/politics/senate-iran-strikes-trump-administration.html
+
+**University of Virginia President Under Pressure From Trump’s D.O.J. to Resign**\
+`The Justice Department has demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school, three people familiar with the matter said.`\
+https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-trump.html
+
 **University of Virginia President Under Pressure From Trump’s D.O.J. to Resign**\
 `The Justice Department has demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school, three people familiar with the matter said.`\
 https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-under-pressure-from-trumps-doj-to-resign.html
