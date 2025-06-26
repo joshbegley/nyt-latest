@@ -1,3 +1,11 @@
+**As a Mamdani Victory Looms, Anti-Muslim Attacks Roll In From the Right**\
+`Republican members of Congress and Trump administration officials have targeted Zohran Mamdani, who would be New York City’s first Muslim mayor.`\
+https://nytimes.com/2025/06/26/nyregion/mamdani-muslim-attacks.html
+
+**Intelligence Agencies Race to Evaluate Iran’s Nuclear Program**\
+`Also, violence has frequently erupted near aid sites in Gaza. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/06/26/briefing/iran-nuclear-program-sean-combs-trial.html
+
 **Wander Franco, one-time Rays star, convicted after underage sexual abuse trial**\
 `The 24-year-old was given a suspended two-year sentence, which means he will not serve prison time as long as he meets certain conditions.`\
 https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict/

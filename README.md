@@ -1,4 +1,8 @@
-**As a Mamdani Victory Looms, Anti-Muslim Attacks Roll In From the Right**\
+**Lawyer Who Pushed Bogus Trump Elector Scheme Is Disbarred in New York**\
+`Kenneth Chesebro, an architect of the plan to use phony slates of pro-Trump electors to overturn the 2020 election, was indefinitely barred from practicing in the state last year.`\
+https://nytimes.com/2025/06/26/us/politics/kenneth-chesebro-disbarred-trump.html
+
+**As Mamdani Rises, Anti-Muslim Attacks Roll In From the Right**\
 `Republican members of Congress and Trump administration officials have targeted Zohran Mamdani, who would be New York City’s first Muslim mayor.`\
 https://nytimes.com/2025/06/26/nyregion/mamdani-muslim-attacks.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010252347/eric-adams-campaign-launch.ht
 **Justice Department Says the Trump Administration Plans to Re-Deport Abrego Garcia**\
 `The assertion raised questions about how seriously the administration takes the criminal charges filed against the migrant, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/2025/06/26/us/politics/justice-department-deport-abrego-garcia.html
-
-**‘Art Detectives’ Is Good Nerdy Fun**\
-`Murder? Of course. But this British series also gets excited about things like Viking gold, Chinese artifacts and Dutch master paintings.`\
-https://nytimes.com/2025/06/26/arts/television/art-detectives-acorntv.html
 
