@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000010252641/tanner-martin-death-announcement-video.html
 
 **4 Takeaways From the Prosecution’s Closing Argument at Sean Combs’s Trial**\
-`After seven weeks of testimony, Christy Slavik detailed how she said the mogul was guilty of sex-trafficking and racketeering, and had evaded responsibility.`\
+`After seven weeks of testimony, the government detailed to jurors why it says the mogul is guilty of sex trafficking and racketeering.`\
 https://nytimes.com/2025/06/26/arts/music/sean-diddy-combs-trial-prosecution-closing-argument.html
 
 **Senators Remain Divided on Iran Strikes After Trump Administration Briefing**\
