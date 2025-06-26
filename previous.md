@@ -1,4 +1,16 @@
-**Jazz draft Rutgers star Ace Bailey with No. 5 pic**\
+**Blue Jays' Max Scherzer fires five innings in return to rotation**\
+`For at least one start, Scherzer returned to Toronto’s starting staff. If the thumb allows, the Blue Jays hope he stays there.`\
+https://nytimes.com/athletic/6452043/2025/06/25/blue-jays-max-scherzer-return/
+
+**Wizards draft Texas star Tre Johnson with No. 6 pick**\
+`A talented scorer and adept long-range shooter, Tre Johnson also works hard at his craft, according to scouts.`\
+https://nytimes.com/athletic/6446966/2025/06/25/tre-johnson-wizards-nba-draft-2025/
+
+**17-Year-Old Fatally Shot in the Bronx After a Fight Over a Water Gun**\
+`Darrell Harris, a high school student, died after an encounter with men who were having a water gun fight at a local park, an official with knowledge of the incident said.`\
+https://nytimes.com/2025/06/25/nyregion/shooting-bronx-park-water-gun.html
+
+**Jazz draft Rutgers star Ace Bailey with No. 5 pick**\
 `Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
 https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6442126/2025/06/25/dylan-harper-spurs-nba-draft-202
 **Dallas Mavericks make Duke's Cooper Flagg the 2025 NBA Draft's top pick**\
 `Flagg was the fifth freshman to win the Naismith College Player of the Year award.`\
 https://nytimes.com/athletic/6448235/2025/06/25/cooper-flagg-mavericks-nba-draft-2025-picks-day-1/
-
-**Full list of 2025 NBA Draft picks, starting with Cooper Flagg at No. 1**\
-`Weeks after a shocking draft lottery win, the Mavericks made the expected move at No. 1`\
-https://nytimes.com/athletic/6451016/2025/06/25/nba-draft-pick-by-pick-tracker-2025/
-
-**Analysis, fits for every NBA Draft pick from John Hollinger and Sam Vecenie**\
-`From Cooper Flagg to the end of the second round, our experts will break down every draft pick as it happens.`\
-https://nytimes.com/athletic/6451301/2025/06/25/nba-draft-grades-analysis-2025-jvecenie-hollinger/
-
-**Browns get green light to build indoor stadium as state budget gets approved**\
-`The state Senate and House of Representatives separately approved a budget that includes $600 million for the new indoor Browns stadium.`\
-https://nytimes.com/athletic/6451878/2025/06/25/cleveland-browns-indoor-stadium-ohio-budget/
 
