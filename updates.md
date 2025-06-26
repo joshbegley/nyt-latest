@@ -1,3 +1,11 @@
+**What I'm hearing about the Wild: Offer for JJ Peterka, latest on the Marco Rossi market, more**\
+`The latest on striking out on Peterka, what's holding up a Rossi trade, Brock Boeser interest and other center moves that could be coming.`\
+https://nytimes.com/athletic/6453487/2025/06/26/wild-trades-free-agency-nhl/
+
+**Fever's Caitlin Clark out vs. Sparks with groin injury**\
+`Clark's latest injury comes after she missed three weeks with a left quad strain and returned on June 14.`\
+https://nytimes.com/athletic/6453482/2025/06/26/caitlin-clark-injury-fever-sparks/
+
 **For 53 Years, She Led a New York Theater. Now She’s Stepping Down.**\
 `Lynne Meadow was just 25 when she took a job running the Off Off Broadway Manhattan Theater Club. Now the nonprofit is a major player on and off Broadway.`\
 https://nytimes.com/2025/06/26/theater/mtc-lynne-meadow-steps-down.html
