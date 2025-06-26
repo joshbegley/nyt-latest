@@ -1,3 +1,11 @@
+**Strands Sidekick**\
+`Get daily tips, tricks`\
+https://nytimes.com/spotlight/strands-sidekick
+
+**General Caine Faces His First Big Test Under Trump**\
+`In remarks about Iran, the chairman of the Joint Chiefs of Staff was speaking to the American people, but also to an audience of one in the White House.`\
+https://nytimes.com/2025/06/26/us/politics/general-caine-trump.html
+
 **California risks 'imminent enforcement action' over transgender athlete policy**\
 `The statement is the latest battle between the Trump administration and some states over the role of transgender women and girls in sports.`\
 https://nytimes.com/athletic/6454194/2025/06/26/trump-california-department-education-transgender-athlete-policy/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/a-prosecutor-arg
 **A U.S. Base in Saudi Arabia Expands to Help Counter Iran**\
 `The military site near the Red Sea sat mostly idle for several years until a recent burst of activity turned it into a supply hub, a New York Times analysis found.`\
 https://nytimes.com/2025/06/26/world/middleeast/camp-yanbu-us-saudi-arabia-iran.html
-
-**Columbus Blue Jackets trade Daniil Tarasov to Florida Panthers for draft pick**\
-`It had become clear that Tarasov was supplanted on the Blue Jackets' depth chart.`\
-https://nytimes.com/athletic/6454245/2025/06/26/tarasov-trade-blue-jackets-panthers/
-
-**Uber in Talks With Its Founder, Travis Kalanick, to Fund Self-Driving Car Deal**\
-`The ride-hailing company is in talks to help Mr. Kalanick, who was forced out in 2017, purchase an autonomous vehicles start-up as robot taxi service Waymo gains momentum.`\
-https://nytimes.com/2025/06/26/technology/uber-travis-kalanick-self-driving-car-deal.html
 

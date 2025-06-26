@@ -1,3 +1,7 @@
+**California risks 'imminent enforcement action' over transgender athlete policy**\
+`The statement is the latest battle between the Trump administration and some states over the role of transgender women and girls in sports.`\
+https://nytimes.com/athletic/6454194/2025/06/26/trump-california-department-education-transgender-athlete-policy/
+
 **For Bezos and Sánchez, a Wedding of Secrets That Everyone Knows About**\
 `As A-listers gather in Venice to celebrate the union of Jeff Bezos and Lauren Sánchez, the couple is following a familiar playbook of how to control the message.`\
 https://nytimes.com/2025/06/26/style/jeff-bezos-lauren-sanchez-wedding-privacy.html
