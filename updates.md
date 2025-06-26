@@ -1,3 +1,11 @@
+**Germany Wants Recruits. But ‘No One Wants Their Children in the Army.’**\
+`Given the country’s past, cultural resistance to becoming a soldier is high. Can leaders change minds to meet a changing world?`\
+https://nytimes.com/2025/06/26/world/europe/germany-army-recruitment.html
+
+**Ecuador Captures Gang Leader Whose Prison Escape Set Off Violence**\
+`José Adolfo Macías, known as “Fito,” will be extradited to the U.S., where he is wanted on accusations of trafficking drugs and smuggling weapons, Ecuador’s president said.`\
+https://nytimes.com/2025/06/26/world/americas/ecuador-wanted-gang-leader-captured-fito.html
+
 **They Escaped War in Ukraine. It Found Them in Israel.**\
 `A family of five Ukrainians was killed by an Iranian missile strike in Israel, in a tragic intersection of two wars.`\
 https://nytimes.com/2025/06/26/world/europe/ukrainian-family-israel-iran-war.html
