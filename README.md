@@ -1,3 +1,15 @@
+**Wild GM Bill Guerin on Kirill Kaprizov, Marco Rossi and why there might not be a big splash July 1**\
+`Guerin’s current focus ahead of this weekend’s draft is the trade market, then free agency, which begins Tuesday.`\
+https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-draft/
+
+**Atalanta reach agreement with Southampton for Sulemana signing**\
+`A deal consisting of €17.5million in five annual instalments, plus €4million in add ons has been reached.`\
+https://nytimes.com/athletic/6454359/2025/06/26/kamaldeen-sulemana-atalanta-southampton-transfer/
+
+**What I'm hearing about the Flyers' approach to goalies and centers, AHL coaching and more**\
+`If Thatcher Demko signs an extension in Vancouver, might the Flyers look at Arturs Silovs?`\
+https://nytimes.com/athletic/6454067/2025/06/26/flyers-offseason-goalies-ahl/
+
 **Strands Sidekick**\
 `Get daily tips, tricks`\
 https://nytimes.com/spotlight/strands-sidekick
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6454193/2025/06/26/nfl-preview-afc-west-2025-chiefs
 **The Winners of Our 8th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Listen to some of the winning podcasts selected from over 1,600 submissions.`\
 https://nytimes.com/2025/06/26/learning/the-winners-of-our-8th-annual-student-podcast-contest.html
-
-**Mortimer Matz, a Virtuoso New York P.R. Man, Is Dead at 100**\
-`He represented the lofty as well as the low. His credits included the Nathan’s hot dog eating contest and the obligatory raincoat to keep a defendant’s cuffed hands covered in a “perp walk.”`\
-https://nytimes.com/2025/06/26/nyregion/mortimer-matz-dead.html
-
-**A prosecutor argues Combs’s use of coercion to compel freak-offs proves sex trafficking.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/a-prosecutor-argues-combss-use-of-coercion-to-compel-freak-offs-proves-sex-trafficking
-
-**A U.S. Base in Saudi Arabia Expands to Help Counter Iran**\
-`The military site near the Red Sea sat mostly idle for several years until a recent burst of activity turned it into a supply hub, a New York Times analysis found.`\
-https://nytimes.com/2025/06/26/world/middleeast/camp-yanbu-us-saudi-arabia-iran.html
 

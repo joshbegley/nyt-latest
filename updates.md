@@ -1,3 +1,11 @@
+**Strands Sidekick**\
+`Get daily tips, tricks`\
+https://nytimes.com/spotlight/strands-sidekick
+
+**General Caine Faces His First Big Test Under Trump**\
+`In remarks about Iran, the chairman of the Joint Chiefs of Staff was speaking to the American people, but also to an audience of one in the White House.`\
+https://nytimes.com/2025/06/26/us/politics/general-caine-trump.html
+
 **California risks 'imminent enforcement action' over transgender athlete policy**\
 `The statement is the latest battle between the Trump administration and some states over the role of transgender women and girls in sports.`\
 https://nytimes.com/athletic/6454194/2025/06/26/trump-california-department-education-transgender-athlete-policy/
