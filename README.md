@@ -1,3 +1,19 @@
+**Tigers' Dietrich Enns back to major leagues after journey of more than 1,000 days**\
+`After stints in Japan and Korea, 34-year-old lefty Enns threw five scoreless innings in a long-awaited return to the major leagues.`\
+https://nytimes.com/athletic/6454602/2025/06/26/tigers-dietrich-enns-back-to-major-leagues/
+
+**A New Middle East?**\
+`The Middle East analyst Aaron David Miller on how the latest attacks on Iran have changed the balance of power in the region.`\
+https://nytimes.com/video/opinion/100000010239884/a-new-middle-east.html
+
+**Why Is This Music Superstar So Sad?**\
+`On his new album, Morgan Wallen paints a picture of a man putting up walls. His song “Just in Case” is an incredibly vulnerable song about that invulnerability.`\
+https://nytimes.com/video/podcasts/100000010247286/why-is-this-music-superstar-so-sad.html
+
+**In NATO Visit, Trump Casts Himself as a Global Peacemaker**\
+`The president’s trip to NATO offered a glimpse into how he sees himself — and wants to be seen — on the world stage.`\
+https://nytimes.com/2025/06/26/us/politics/trump-nato-visit-nobel-prize.html
+
 **Lawyer Who Pushed Bogus Trump Elector Scheme Is Disbarred in New York**\
 `Kenneth Chesebro, an architect of the plan to use phony slates of pro-Trump electors to overturn the 2020 election, was indefinitely barred from practicing in the state last year.`\
 https://nytimes.com/2025/06/26/us/politics/kenneth-chesebro-disbarred-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/26/world/iran-nuclear-program-israeli-us-attacks.htm
 **Trump Administration Tells Congress to Kill ‘Revenge Tax’**\
 `Treasury Secretary Scott Bessent said the Group of 7 agreed that penalties related to a 2021 “global minimum tax” deal will not apply to American companies.`\
 https://nytimes.com/2025/06/26/business/trump-congress-tax-corporations-global-minimum.html
-
-**It’s Heating Up Outside. Here’s Why That’s a Big Deal.**\
-`Judson Jones, The New York Times’s resident meteorologist, discussed this week’s stifling heat and how to prepare for the next temperature spike.`\
-https://nytimes.com/2025/06/26/insider/its-heating-up-outside-heres-why-thats-a-big-deal.html
-
-**N.Y.C. Taxi Commission Restricts Lockouts of Uber and Lyft Drivers**\
-`The companies, which have been randomly locking out drivers to manage costs, must now give at least 72 hours’ notice before blocking access to the apps.`\
-https://nytimes.com/2025/06/26/nyregion/nyc-taxi-commission-uber-lyft-lockout.html
-
-**Eric Adams Launches Mayoral Re-election Campaign**\
-`On Thursday, Mayor Eric Adams of New York City appeared on the steps of City Hall to launch his bid for re-election as an independent.`\
-https://nytimes.com/video/nyregion/100000010252347/eric-adams-campaign-launch.html
-
-**Justice Department Says the Trump Administration Plans to Re-Deport Abrego Garcia**\
-`The assertion raised questions about how seriously the administration takes the criminal charges filed against the migrant, Kilmar Armando Abrego Garcia.`\
-https://nytimes.com/2025/06/26/us/politics/justice-department-deport-abrego-garcia.html
 
