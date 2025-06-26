@@ -1,4 +1,4 @@
-**Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the five hole**\
+**Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the 5 hole**\
 `After a string of poor performances from the starters, Matthew Boyd delivered a gem to help lift the Cubs out of their funk.`\
 https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agency-boyd-swanson/
 
