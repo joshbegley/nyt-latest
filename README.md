@@ -1,3 +1,11 @@
+**Germany Wants Recruits. But ‘No One Wants Their Children in the Army.’**\
+`Given the country’s past, cultural resistance to becoming a soldier is high. Can leaders change minds to meet a changing world?`\
+https://nytimes.com/2025/06/26/world/europe/germany-army-recruitment.html
+
+**Ecuador Captures Gang Leader Whose Prison Escape Set Off Violence**\
+`José Adolfo Macías, known as “Fito,” will be extradited to the U.S., where he is wanted on accusations of trafficking drugs and smuggling weapons, Ecuador’s president said.`\
+https://nytimes.com/2025/06/26/world/americas/ecuador-wanted-gang-leader-captured-fito.html
+
 **They Escaped War in Ukraine. It Found Them in Israel.**\
 `A family of five Ukrainians was killed by an Iranian missile strike in Israel, in a tragic intersection of two wars.`\
 https://nytimes.com/2025/06/26/world/europe/ukrainian-family-israel-iran-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/opinion/trump-iran-protests-mamdani.html
 **Mamdani Triumphed Without a Majority of Black Voters. Where Does That Leave Them?**\
 `Black city leaders are worried their influence is waning at a moment when the rising costs that Zohran Mamdani put at the center of his campaign are pushing Black New Yorkers out of the city.`\
 https://nytimes.com/2025/06/26/us/politics/mamdani-black-voters-democrats.html
-
-**‘Squid Game’ Is Back for Its Final Season. Here’s What to Remember**\
-`Only six months have passed since the Season 2 premiere, but there was plenty to keep track of. Here’s a quick look at where things left off.`\
-https://nytimes.com/2025/06/26/arts/television/squid-game-recap-season-2.html
-
-**He Searched for His Past in Children’s Books. He Found His Wife’s.**\
-`Steve Mills has been collecting secondhand books in England to reawaken lost memories. His search revealed more about his family’s past than he thought possible.`\
-https://nytimes.com/2025/06/26/world/europe/uk-book-collector-wife.html
 
