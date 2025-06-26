@@ -1,3 +1,27 @@
+**NBA Draft 2025: Kam Jones? Tyrese Proctor? Who will be selected in Round 2?**\
+`The first 30 players are off the board. Who will be next?`\
+https://nytimes.com/athletic/6450435/2025/06/26/nba-mock-draft-round-2-kam-jones-tyrese-proctor/
+
+**Juan Soto embraces heat, continues June barrage: 'I can have fun now'**\
+`Soto belted two more homers to give him 10 for the month. He hit only nine combined through May. `\
+https://nytimes.com/athletic/6452414/2025/06/26/juan-soto-mlb-mets-home-runs-june/
+
+**How to watch Sparks at Fever: Odds and streaming info for Caitlin Clark's crew vs. LA**\
+`Caitlin Clark and the Indiana Fever look to get over .500 with a win Thursday. They play host to the languishing Los Angeles Sparks.`\
+https://nytimes.com/athletic/6451343/2025/06/26/sparks-fever-caitlin-clark-dewanna-bonner-wnba-how-to-watch/
+
+**The New York Times International Edition in Print for Friday, June 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/26/todays-new-york-times-international-edition
+
+**Bezos Wedding Divides Venice as Festivities Kick Off**\
+`Celebrations began for Jeff Bezos and his bride, Lauren Sánchez, as around 200 A-list guests descended on the city, drawing excitement and resentment.`\
+https://nytimes.com/video/world/europe/100000010251794/jeff-bezos-wedding-lauren-sanchez-venice.html
+
+**Why Ukraine Fell Down the Agenda at the NATO Summit**\
+`Russia’s invasion has dominated previous meetings, but keeping President Trump happy was the focus at the gathering this week. Ukraine was largely shunted to the sidelines.`\
+https://nytimes.com/2025/06/26/world/europe/russia-ukraine-nato-summit-trump-zelensky.html
+
 **Germany Wants Recruits. But ‘No One Wants Their Children in the Army.’**\
 `Given the country’s past, cultural resistance to becoming a soldier is high. Can leaders change minds to meet a changing world?`\
 https://nytimes.com/2025/06/26/world/europe/germany-army-recruitment.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/26/world/europe/ukrainian-family-israel-iran-war.htm
 **Here’s Another Use for Ice: Creating Secret Codes**\
 `Scientists have devised a way of writing and storing messages by creating patterns of air bubbles in sheets of ice.`\
 https://nytimes.com/2025/06/26/science/physics-ice-bubbles-code.html
-
-**Is This Really a New Middle East?**\
-`Trying to peer through the fog of war.`\
-https://nytimes.com/2025/06/26/opinion/iran-israel-nuclear-trump.html
-
-**In Taos, N.M., They Searched for Adobe Style and High-Desert Views**\
-`After fixing up several homes over the years, a couple was ready to build ‘sweat equity’ in a Southwest-style house in New Mexico’s famed art haven.`\
-https://nytimes.com/interactive/2025/06/26/realestate/taos-new-mexico-homes-for-sale.html
-
-**Peter Thiel and the Antichrist**\
-`A conversation with the original tech right power player.`\
-https://nytimes.com/2025/06/26/opinion/peter-thiel-antichrist-ross-douthat.html
-
-**Ten Years In, Same-Sex Marriage Is Part of American Life. But It’s Still Under Attack.**\
-`On the 10th anniversary of the Supreme Court decision legalizing same-sex marriage nationally, supporters say they are secure but also wary and watchful.`\
-https://nytimes.com/2025/06/26/us/politics/gay-marriage-obergefell-hodges-anniversary.html
-
-**We’ve Just Seen How Trump Can Be Stopped**\
-`A majority of Americans oppose both Trump’s adventurism abroad and his aggression at home. Who can unite them?`\
-https://nytimes.com/2025/06/26/opinion/trump-iran-protests-mamdani.html
-
-**Mamdani Triumphed Without a Majority of Black Voters. Where Does That Leave Them?**\
-`Black city leaders are worried their influence is waning at a moment when the rising costs that Zohran Mamdani put at the center of his campaign are pushing Black New Yorkers out of the city.`\
-https://nytimes.com/2025/06/26/us/politics/mamdani-black-voters-democrats.html
 
