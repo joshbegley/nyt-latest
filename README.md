@@ -1,3 +1,19 @@
+**They Escaped War in Ukraine. It Found Them in Israel.**\
+`A family of five Ukrainians was killed by an Iranian missile strike in Israel, in a tragic intersection of two wars.`\
+https://nytimes.com/2025/06/26/world/europe/ukrainian-family-israel-iran-war.html
+
+**Here’s Another Use for Ice: Creating Secret Codes**\
+`Scientists have devised a way of writing and storing messages by creating patterns of air bubbles in sheets of ice.`\
+https://nytimes.com/2025/06/26/science/physics-ice-bubbles-code.html
+
+**Is This Really a New Middle East?**\
+`Trying to peer through the fog of war.`\
+https://nytimes.com/2025/06/26/opinion/iran-israel-nuclear-trump.html
+
+**In Taos, N.M., They Searched for Adobe Style and High-Desert Views**\
+`After fixing up several homes over the years, a couple was ready to build ‘sweat equity’ in a Southwest-style house in New Mexico’s famed art haven.`\
+https://nytimes.com/interactive/2025/06/26/realestate/taos-new-mexico-homes-for-sale.html
+
 **Peter Thiel and the Antichrist**\
 `A conversation with the original tech right power player.`\
 https://nytimes.com/2025/06/26/opinion/peter-thiel-antichrist-ross-douthat.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/26/arts/television/squid-game-recap-season-2.html
 **He Searched for His Past in Children’s Books. He Found His Wife’s.**\
 `Steve Mills has been collecting secondhand books in England to reawaken lost memories. His search revealed more about his family’s past than he thought possible.`\
 https://nytimes.com/2025/06/26/world/europe/uk-book-collector-wife.html
-
-**How Two Neuroscientists View Optical Illusions**\
-`The Best Illusion of the Year contest offers researchers, and participants, an opportunity to explore the gaps and limits of human perception.`\
-https://nytimes.com/2025/06/26/science/neuroscience-brain-illusions.html
-
-**My Love Affair With Bruno Mars**\
-`It’s complicated.`\
-https://nytimes.com/2025/06/26/podcasts/cannonball-wesleymorris-brunomars.html
-
-**Peter Thiel and the Antichrist**\
-`A conversation with the original tech right power player.`\
-https://nytimes.com/video/opinion/100000010244372/peter-thiel-and-the-antichrist.html
-
-**How the Gay Rights Movement Radicalized, and Lost Its Way**\
-`In the decade after the Supreme Court decision about same-sex marriage, the lesbian and gay movement has radicalized.`\
-https://nytimes.com/2025/06/26/opinion/gay-lesbian-trans-rights.html
 
