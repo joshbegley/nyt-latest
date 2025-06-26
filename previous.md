@@ -1,3 +1,15 @@
+**Canadiens' desire to improve at the draft takes back seat to avoiding critical mistakes**\
+`The Canadiens have hopes and ambitions for the NHL Draft, but market forces may dictate further patience is required in the rebuild. `\
+https://nytimes.com/athletic/6454833/2025/06/26/canadiens-2025-nhl-draft-picks/
+
+**Fate of Iran’s Enriched Uranium Is a Mystery**\
+`U.S. intelligence agencies had long assessed that, faced with the possibility of an attack on its nuclear facilities, Iran would try to move its stockpile.`\
+https://nytimes.com/2025/06/26/us/politics/iran-nuclear-program-uranium.html
+
+**Phillies, sluggish but not slugging, reach halfway mark with familiar outfield issues**\
+`The righties in the middle of the Phillies' lineup, including Nick Castellanos, have been close to league average or below. `\
+https://nytimes.com/athletic/6454815/2025/06/26/phillies-halfway-mark-outfield-issues/
+
 **Can Steve From ‘Blue’s Clues’ be a ‘Counterweight’ to the Manosphere?**\
 `The beloved children’s star is starting a podcast for adults. He hopes for thoughtful conversations and a lot of listening.`\
 https://nytimes.com/2025/06/26/style/steve-burns-blues-clues-podcast-alive.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010252641/tanner-martin-death-announcement-vi
 **4 Takeaways From the Prosecution’s Closing Argument at Sean Combs’s Trial**\
 `After seven weeks of testimony, the government detailed to jurors why it says the mogul is guilty of sex trafficking and racketeering.`\
 https://nytimes.com/2025/06/26/arts/music/sean-diddy-combs-trial-prosecution-closing-argument.html
-
-**Senators Remain Divided on Iran Strikes After Trump Administration Briefing**\
-`The closed-door session drew more questions from Democrats over the true success of the operation.`\
-https://nytimes.com/2025/06/26/us/politics/senate-iran-strikes-trump-administration.html
-
-**University of Virginia President Under Pressure From Trump’s D.O.J. to Resign**\
-`The Justice Department has demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school, three people familiar with the matter said.`\
-https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-trump.html
-
-**How Courts Are Rethinking Criminal Sentencing**\
-`One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
-https://nytimes.com/2025/06/26/headway/courts-rethinking-criminal-sentencing.html
 

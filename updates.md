@@ -1,3 +1,15 @@
+**Canadiens' desire to improve at the draft takes back seat to avoiding critical mistakes**\
+`The Canadiens have hopes and ambitions for the NHL Draft, but market forces may dictate further patience is required in the rebuild. `\
+https://nytimes.com/athletic/6454833/2025/06/26/canadiens-2025-nhl-draft-picks/
+
+**Fate of Iran’s Enriched Uranium Is a Mystery**\
+`U.S. intelligence agencies had long assessed that, faced with the possibility of an attack on its nuclear facilities, Iran would try to move its stockpile.`\
+https://nytimes.com/2025/06/26/us/politics/iran-nuclear-program-uranium.html
+
+**Phillies, sluggish but not slugging, reach halfway mark with familiar outfield issues**\
+`The righties in the middle of the Phillies' lineup, including Nick Castellanos, have been close to league average or below. `\
+https://nytimes.com/athletic/6454815/2025/06/26/phillies-halfway-mark-outfield-issues/
+
 **Can Steve From ‘Blue’s Clues’ be a ‘Counterweight’ to the Manosphere?**\
 `The beloved children’s star is starting a podcast for adults. He hopes for thoughtful conversations and a lot of listening.`\
 https://nytimes.com/2025/06/26/style/steve-burns-blues-clues-podcast-alive.html
