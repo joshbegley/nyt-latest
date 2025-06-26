@@ -1,3 +1,11 @@
+**Fantasy bullpen report: MLB trade primer, including buyers, sellers and fence-sitters**\
+`Greg Jewett focuses on the upcoming MLB trade deadline, running through all the teams looking to buy or sell relievers in the coming month.`\
+https://nytimes.com/athletic/6453580/2025/06/26/fantasy-baseball-bullpen-trade-primer-buyers-sellers/
+
+**The fast learning of Inter's youth saw off River Plate – Fluminense should be worried**\
+`The movement from Inter's midfield was too much for River Plate to handle - and it secured them top spot in their group`\
+https://nytimes.com/athletic/6450198/2025/06/26/inter-river-plate-cwc-midfield/
+
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/06/26/books/review/new-books-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/us/supreme-court-death-row-dna.html
 **Who could Pistons target in second round? Maxime Raynaud leads NBA Draft wish list**\
 `The Detroit Pistons have pick No. 37 in the second round of the NBA Draft, which players could be a good fit?`\
 https://nytimes.com/athletic/6452963/2025/06/26/pistons-nba-draft-2025-maxime-raynaud/
-
-**NHL, NHLPA agree to 84-game schedule, playoff salary cap, other key elements of new CBA: Sources**\
-`The new CBA, which could be announced Friday, will also shorten the maximum length of contracts and eliminate deferred-salary contracts.`\
-https://nytimes.com/athletic/6453454/2025/06/26/nhl-84-game-schedule-ltir-loophole-cba/
-
-**‘Life Was Awesome’: After Terminal Diagnosis, a Young Father Announces His Own Death**\
-`Tanner Martin has documented his fight against colon cancer for hundreds of thousands of followers. His death was announced in a recorded video.`\
-https://nytimes.com/2025/06/26/us/tanner-martin-dead-cancer-tiktok.html
 

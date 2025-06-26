@@ -1,3 +1,11 @@
+**Fantasy bullpen report: MLB trade primer, including buyers, sellers and fence-sitters**\
+`Greg Jewett focuses on the upcoming MLB trade deadline, running through all the teams looking to buy or sell relievers in the coming month.`\
+https://nytimes.com/athletic/6453580/2025/06/26/fantasy-baseball-bullpen-trade-primer-buyers-sellers/
+
+**The fast learning of Inter's youth saw off River Plate – Fluminense should be worried**\
+`The movement from Inter's midfield was too much for River Plate to handle - and it secured them top spot in their group`\
+https://nytimes.com/athletic/6450198/2025/06/26/inter-river-plate-cwc-midfield/
+
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/06/26/books/review/new-books-recommendations.html
