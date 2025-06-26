@@ -1,3 +1,11 @@
+**U.S. soccer investor fighting extradition from Spain, wanted on multiple allegations of fraud**\
+`Paul Conway once owned as many as seven clubs around Europe, including League One side Barnsley.`\
+https://nytimes.com/athletic/6453698/2025/06/26/paul-conway-fraud-kv-oostende/
+
+**Bengals' Paycor Stadium lease extension: 5 things to know from Thursday's vote**\
+`Hamilton County approved the framework of a new lease that will keep the Bengals in Cincinnati through at least 2036. `\
+https://nytimes.com/athletic/6453879/2025/06/26/bengals-paycor-stadium-lease-extension/
+
 **The fast learning of Inter's youth saw off River Plate - Fluminense should be worried**\
 `Serie A side's movement from midfield was too much for their Argentine opponents to handle - and it secured top spot in Group E`\
 https://nytimes.com/athletic/6450198/2025/06/26/inter-river-plate-cwc-midfield/
