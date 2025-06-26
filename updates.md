@@ -1,3 +1,7 @@
+**What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
+`President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
+https://nytimes.com/2025/06/26/world/middleeast/iran-nuclear-program-israeli-us-attacks.html
+
 **Tigers' Dietrich Enns back to major leagues after journey of more than 1,000 days**\
 `After stints in Japan and Korea, 34-year-old lefty Enns threw five scoreless innings in a long-awaited return to the major leagues.`\
 https://nytimes.com/athletic/6454602/2025/06/26/tigers-dietrich-enns-back-to-major-leagues/
