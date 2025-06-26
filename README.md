@@ -1,4 +1,4 @@
-**Magic draft Michigan State guard Jase Richardson with No. 25 pick**\
+**Magic draft Jase Richardson, son Jason Richardson, at No. 25**\
 `Jase Richardson has a great basketball pedigree, but is he ready for the next level?`\
 https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-2025/
 

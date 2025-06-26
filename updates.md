@@ -1,3 +1,17 @@
+**Magic draft Michigan State guard Jase Richardson with No. 25 pick**\
+`Jase Richardson has a great basketball pedigree, but is he ready for the next level?`\
+https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-2025/
+
+**Reach of the NBA Draft? Blazers land China center Yang Hansen at No. 16**\
+`Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
+https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
+
+**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
+`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+
+`\
+https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+
 **Urawa 0 Monterrey 4: Explosive sequence sends Liga MX side through**\
 `With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
 https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
