@@ -1,3 +1,11 @@
+**Dashcam Captures Fireball Over South Carolina**\
+`Authorities were investigating what exactly the glowing object was. It was not clear if it was a meteorite, space debris, or something else.`\
+https://nytimes.com/video/us/100000010252994/dashcam-captures-fireball-over-south-carolina.html
+
+**Everton Women expected to complete deals for Van Gool, Kitagawa**\
+`Both players are expected to be the first of many international signings this summer at Everton under new ownership, The Friedkin Group.`\
+https://nytimes.com/athletic/6453595/2025/06/26/everton-rosa-van-gool-hikaru-kitagawa/
+
 **Faith Kipyegon falls short in attempt to break four-minute mile**\
 `Kipyegon ran 4:06.92, the fastest time over the distance recorded by a woman.`\
 https://nytimes.com/athletic/6454142/2025/06/26/faith-kipyegon-attempt-four-minute-mile/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6454062/2025/06/26/timo-werner-new-york-red-bulls-t
 **U.S. soccer investor fighting extradition from Spain, wanted on multiple allegations of fraud**\
 `Paul Conway once owned as many as seven clubs around Europe, including League One side Barnsley.`\
 https://nytimes.com/athletic/6453698/2025/06/26/paul-conway-fraud-kv-oostende/
-
-**Fantasy bullpen report: MLB trade primer, including buyers, sellers and fence-sitters**\
-`Greg Jewett focuses on the upcoming MLB trade deadline, running through all the teams looking to buy or sell relievers in the coming month.`\
-https://nytimes.com/athletic/6453580/2025/06/26/fantasy-baseball-bullpen-trade-primer-buyers-sellers/
-
-**The fast learning of Inter's youth saw off River Plate - Fluminense should be worried**\
-`Serie A side's movement from midfield was too much for their Argentine opponents to handle - and it secured top spot in Group E`\
-https://nytimes.com/athletic/6450198/2025/06/26/inter-river-plate-cwc-midfield/
 
