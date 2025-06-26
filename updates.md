@@ -1,3 +1,7 @@
+**New York Red Bulls in talks over Timo Werner move**\
+`No agreement has been reached yet, but both sides are optimistic that a deal can be concluded this summer.`\
+https://nytimes.com/athletic/6454062/2025/06/26/timo-werner-new-york-red-bulls-transfer/
+
 **U.S. soccer investor fighting extradition from Spain, wanted on multiple allegations of fraud**\
 `Paul Conway once owned as many as seven clubs around Europe, including League One side Barnsley.`\
 https://nytimes.com/athletic/6453698/2025/06/26/paul-conway-fraud-kv-oostende/
