@@ -1,3 +1,19 @@
+**Jazz draft Rutgers star Ace Bailey with No. 5 pic**\
+`Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
+https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
+
+**Hornets draft Kon Knueppel with No. 4 pick**\
+`Knueppel thrived in his only season at Duke thanks to his high basketball IQ, proving to be far more than Cooper Flagg's wingman.`\
+https://nytimes.com/athletic/6439340/2025/06/25/kon-knueppel-hornets-nba-draft-2025/
+
+**Supreme Leader’s Absence Raises Alarm in Iran**\
+`Ayatollah Ali Khamenei has not been seen publicly or heard from in nearly a week. That absence has surprised and unnerved everyone from political insiders to the general public.`\
+https://nytimes.com/2025/06/25/world/middleeast/where-is-khamenei-iran-supreme-leader.html
+
+**76ers draft Baylor star V.J. Edgecombe with No. 3 pick**\
+`An elite athlete and premier defender, Edgecombe led the Bears in steals last season.`\
+https://nytimes.com/athletic/6446755/2025/06/25/nba-draft-76ers-baylor-vj-edgecombe/
+
 **Braves' Ronald Acuña Jr. to participate in MLB Home Run Derby in Atlanta**\
 `It’ll be the third time Acuña has participated in the Home Run Derby. `\
 https://nytimes.com/athletic/6451966/2025/06/25/ronald-acuna-jr-home-run-derby/

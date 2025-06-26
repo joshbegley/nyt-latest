@@ -1,4 +1,4 @@
-**Jazz draft Rutgers star Ace Bailey with No. 5 pic**\
+**Jazz draft Rutgers star Ace Bailey with No. 5 pick**\
 `Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
 https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
 
