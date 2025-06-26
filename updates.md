@@ -1,3 +1,7 @@
+**University of Virginia President Under Pressure From Trump’s D.O.J. to Resign**\
+`The Justice Department has demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school, three people familiar with the matter said.`\
+https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-under-pressure-from-trumps-doj-to-resign.html
+
 **How Courts Are Rethinking Criminal Sentencing**\
 `One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
 https://nytimes.com/2025/06/26/headway/courts-rethinking-criminal-sentencing.html

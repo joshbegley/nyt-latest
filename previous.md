@@ -1,3 +1,7 @@
+**University of Virginia President Under Pressure From Trump’s D.O.J. to Resign**\
+`The Justice Department has demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school, three people familiar with the matter said.`\
+https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-under-pressure-from-trumps-doj-to-resign.html
+
 **How Courts Are Rethinking Criminal Sentencing**\
 `One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
 https://nytimes.com/2025/06/26/headway/courts-rethinking-criminal-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/briefing/iran-nuclear-program-sean-combs-trial.ht
 **Wander Franco, one-time Rays star, convicted after underage sexual abuse trial**\
 `The 24-year-old was given a suspended two-year sentence, which means he will not serve prison time as long as he meets certain conditions.`\
 https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict/
-
-**What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
-`President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
-https://nytimes.com/2025/06/26/world/middleeast/iran-nuclear-program-israeli-us-attacks.html
 
