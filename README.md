@@ -1,3 +1,7 @@
+**Goodbye Argentina. The Club World Cup will miss your fans but not your football**\
+`Boca and River Plate are out while all of the Brazilian teams are through, a sign of the issues affecting Argentina at club level`\
+https://nytimes.com/athletic/6452533/2025/06/26/argentina-boca-river-club-world-cup/
+
 **Greenberg: Bulls have long way to go, which is why Noa Essengue is smart draft pick**\
 `For mediocre teams like the Bulls, if you don’t get lucky in the draft lottery, you have to make your own luck.`\
 https://nytimes.com/athletic/6452492/2025/06/26/greenberg-bulls-noa-essengue-nba-draft-pick/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6452492/2025/06/26/greenberg-bulls-noa-essengue-nba
 `This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/26/learning/word-of-the-day-spectral.html
 
-**Round 1 of the 2025 NBA Draft full of twists and turns with surprising trades**\
+**NBA Draft's first round full of twists, turns and surprising trades**\
 `The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
 https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/opinion/iran-nuclear-ayatollah-cease-fire.html
 **Cubs notes: Boyd a stopper, Tucker talks free agency and Swanson in the 5 hole**\
 `After a string of poor performances from the starters, Matthew Boyd delivered a gem to help lift the Cubs out of their funk.`\
 https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agency-boyd-swanson/
-
-**What I'm hearing about the Kings as the NBA offseason heats up**\
-`What backcourt targets do the Kings have in mind? And what's the latest on the future of their All-Star tandem?`\
-https://nytimes.com/athletic/6452468/2025/06/26/sacramento-kings-offseason-nba-draft-2025/
 
