@@ -1,3 +1,7 @@
+**Death Toll From Kenya Protests Climbs, Rights Group Says**\
+`Thousands of people turned out across Kenya on Wednesday to protest government corruption and police brutality.`\
+https://nytimes.com/2025/06/26/world/europe/kenya-protests.html
+
 **Burnley complete signing of Netherlands defender Quilindschy Hartman**\
 `The 23-year-old has signed a four-year contract and arrived from the Dutch club for an undisclosed fee.`\
 https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman-transfer-feyenoord/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450661/2025/06/26/notre-dame-football-2025-survey-
 **Blues trade 'rumors' pick up with Jordan Kyrou's no-trade clause kicking in July 1**\
 `Kyrou, 27, improved his all-around game last season, finishing with a team-best plus-23 rating.`\
 https://nytimes.com/athletic/6451096/2025/06/26/jordan-kyrou-no-trade-clause-blues-rumors/
-
-**Bills training camp 2025 offensive line preview: One battle could be brewing**\
-`Alec Anderson vs. Sedrick Van Pran-Granger could have long-term implications.`\
-https://nytimes.com/athletic/6414584/2025/06/26/2025-bills-training-camp-offensive-line/
 
