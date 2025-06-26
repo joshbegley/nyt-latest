@@ -1,3 +1,7 @@
+**Former Aide to Hochul and Cuomo Faces Fresh Corruption Charges**\
+`Linda Sun, who worked for two New York governors, is accused of steering contracts to Chinese companies to sell masks to New York’s government during the pandemic.`\
+https://nytimes.com/2025/06/26/nyregion/linda-sun-fraud-charges.html
+
 **Former Aide to Two New York Governors Faces Fresh Corruption Charges**\
 `Linda Sun, who worked for Kathy Hochul and Andrew Cuomo in Albany, is accused of steering contracts to Chinese companies to sell masks to New York’s government during the pandemic.`\
 https://nytimes.com/2025/06/26/nyregion/linda-sun-fraud-charges.html
