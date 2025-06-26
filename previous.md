@@ -1,3 +1,15 @@
+**Giants' Hayden Birdsong plunks Otto Lopez in finale of combative series against Marlins**\
+`Logan Webb hinted a night earlier that the Giants would take action after their hitters have been hit by several pitches in recent games.`\
+https://nytimes.com/athletic/6454385/2025/06/26/sf-giants-hayden-birdsong-marlins-otto-lopez-hit-by-pitch-retaliation/
+
+**Former Ravens kicker Justin Tucker suspended 10 games by NFL**\
+`Tucker was accused of inappropriate sexual behavior by 16 Baltimore-area massage therapists.`\
+https://nytimes.com/athletic/6454379/2025/06/26/justin-tucker-nfl-suspended/
+
+**Carolyn McCarthy, Who Turned a Gunfire Massacre Into a Crusade, Dies at 81**\
+`After her husband was killed and her son wounded on a Long Island commuter train in 1993, she went to Congress on a mission to curb gun violence.`\
+https://nytimes.com/2025/06/26/nyregion/carolyn-mccarthy-dead.html
+
 **An Ode to Joy, in Climate Action**\
 `Climate change is often unrelentingly grim. But some activists argue that joyful climate action can change minds.`\
 https://nytimes.com/2025/06/26/climate/an-ode-to-joy-in-climate-action.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-
 **Atalanta reach agreement with Southampton for Sulemana signing**\
 `A deal consisting of €17.5million in five annual instalments, plus €4million in add ons has been reached.`\
 https://nytimes.com/athletic/6454359/2025/06/26/kamaldeen-sulemana-atalanta-southampton-transfer/
-
-**What I'm hearing about the Flyers' approach to goalies and centers, AHL coaching and more**\
-`If Thatcher Demko signs an extension in Vancouver, might the Flyers look at Arturs Silovs?`\
-https://nytimes.com/athletic/6454067/2025/06/26/flyers-offseason-goalies-ahl/
-
-**Strands Sidekick**\
-`Need help with today's Strands puzzle? Get hints and share your score with the community in the comments.`\
-https://nytimes.com/spotlight/strands-sidekick
-
-**General Caine Faces His First Big Test Under Trump**\
-`In remarks about Iran, the chairman of the Joint Chiefs of Staff was speaking to the American people, but also to an audience of one in the White House.`\
-https://nytimes.com/2025/06/26/us/politics/general-caine-trump.html
 
