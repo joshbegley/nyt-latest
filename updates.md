@@ -1,3 +1,7 @@
+**Centrifuges at Fordo ‘No Longer Operational,’ U.N. Nuclear Watchdog Head Says**\
+`Rafael Grossi told French radio that there was “no escaping significant physical damage” after the U.S. dropped bunker-buster bombs on the Iranian facility.`\
+https://nytimes.com/2025/06/26/world/middleeast/centrifuges-at-fordo-no-longer-operational-un-nuclear-watchdog-head-says.html
+
 **Investors on Edge About a Potential Shadow Fed Chair**\
 `Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
 https://nytimes.com/2025/06/26/business/dealbook/trump-powell-shadow-fed-chair.html

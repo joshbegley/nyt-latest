@@ -1,3 +1,7 @@
+**Centrifuges at Fordo ‘No Longer Operational,’ U.N. Nuclear Watchdog Head Says**\
+`Rafael Grossi told French radio that there was “no escaping significant physical damage” after the U.S. dropped bunker-buster bombs on the Iranian facility.`\
+https://nytimes.com/2025/06/26/world/middleeast/centrifuges-at-fordo-no-longer-operational-un-nuclear-watchdog-head-says.html
+
 **Investors on Edge About a Potential Shadow Fed Chair**\
 `Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
 https://nytimes.com/2025/06/26/business/dealbook/trump-powell-shadow-fed-chair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429641/2025/06/26/milos-kerkez-liverpool-robertson
 **Cowboys 53-man roster projection: One spot left open for player not on current roster**\
 `Predicting that Dallas will keep five running backs, five receivers and three tight ends. Is a spot remaining in the secondary?`\
 https://nytimes.com/athletic/6451352/2025/06/26/cowboys-53-man-roster-projection-predictions/
-
-**This is the latest Yankees pitching prospect turning heads**\
-`The 22-year-old touched 102 mph, struck out four batters and worked out of early trouble for Double-A Somerset on Wednesday night.`\
-https://nytimes.com/athletic/6452270/2025/06/26/yankees-pitching-prospects-carlos-lagrange/
 
