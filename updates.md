@@ -1,3 +1,13 @@
+**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
+`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+
+`\
+https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+
+**Pelicans trade for No. 13 pick, draft Derik Queen**\
+`The Pelicans gave up two first-round picks to move up for Queen, who tallied 16.5 points and nine rebounds per game last season at Maryland.`\
+https://nytimes.com/athletic/6442225/2025/06/25/derik-queen-pelicans-trade-nba-draft-2025/
+
 **How Zohran Mamdani Says He Won**\
 `Emma Fitzsimmons, City Hall bureau chief for The New York Times, explains how State Assemblyman Zohran Mamdani claimed victory over former Gov. Andrew Cuomo.`\
 https://nytimes.com/video/nyregion/100000010249653/how-zohran-mamdani-says-he-won.html
