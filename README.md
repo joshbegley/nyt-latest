@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-
 `With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
 https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
 
-**Inter 2 River Plate 0 - Nine-man River go down fighting as Esposito's first goal sets up Fluminense tie**\
+**Marcos Acuna loses his head as River Plate exit the Club World Cup fighting in defeat by Inter**\
 `Analysis of Inter Milan's victory over nine-man River Plate`\
 https://nytimes.com/athletic/6443567/2025/06/25/inter-river-plate-esposito/
 

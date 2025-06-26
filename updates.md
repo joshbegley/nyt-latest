@@ -16,6 +16,12 @@ https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-
 `\
 https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
 
+**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
+`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+
+`\
+https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+
 **Magic draft Jase Richardson, son Jason Richardson, at No. 25**\
 `Jase Richardson has a great basketball pedigree, but is he ready for the next level?`\
 https://nytimes.com/athletic/6449220/2025/06/25/jase-richardson-magic-nba-draft-2025/
