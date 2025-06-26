@@ -1,3 +1,7 @@
+**The fast learning of Inter's youth saw off River Plate - Fluminense should be worried**\
+`Serie A side's movement from midfield was too much for their Argentine opponents to handle - and it secured top spot in Group E`\
+https://nytimes.com/athletic/6450198/2025/06/26/inter-river-plate-cwc-midfield/
+
 **Fantasy bullpen report: MLB trade primer, including buyers, sellers and fence-sitters**\
 `Greg Jewett focuses on the upcoming MLB trade deadline, running through all the teams looking to buy or sell relievers in the coming month.`\
 https://nytimes.com/athletic/6453580/2025/06/26/fantasy-baseball-bullpen-trade-primer-buyers-sellers/
