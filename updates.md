@@ -1,3 +1,9 @@
+**Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
+`Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
+
+`\
+https://nytimes.com/athletic/6452000/2025/06/25/rose-lavelle-naomi-girma-return-uswnt-camp/
+
 **Wizards pick Florida guard Walter Clayton Jr. at No. 18, will trade to Jazz**\
 `In 2025, Clayton's 134 total points (22.3 per game) are the most by any player in an NCAA Tournament since “Cardiac” Kemba Walker in 2011.`\
 https://nytimes.com/athletic/6449566/2025/06/25/walter-clayton-jr-wizards-jazz-nba-draft-2025/
