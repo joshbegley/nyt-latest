@@ -1,3 +1,7 @@
+**NBA Draft shocker: China center Yang Hansen picked at No. 16, dealt to Blazers**\
+`Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
+https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
+
 **Wizards pick Florida guard Walter Clayton Jr. at No. 18, will trade to Jazz**\
 `In 2025, Clayton's 134 total points (22.3 per game) are the most by any player in an NCAA Tournament since “Cardiac” Kemba Walker in 2011.`\
 https://nytimes.com/athletic/6449566/2025/06/25/walter-clayton-jr-wizards-jazz-nba-draft-2025/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6451489/2025/06/25/egor-demin-nets-nba-draft-2025/
 **‘Lowcountry’ Review: A Flat-Footed First Date**\
 `Abby Rosebrock’s latest offering for Atlantic Theater Company mines fertile ground, but simmers about with nary a sign of tension, sexual or otherwise.`\
 https://nytimes.com/2025/06/25/theater/lowcountry-review.html
-
-**Pelicans select Jeremiah Fears with No. 7 pick in the 2025 NBA Draft**\
-`The 6-foot-3 guard arrived in Norman as a top-25 recruit and was named to the SEC All-Freshman team.`\
-https://nytimes.com/athletic/6451491/2025/06/25/jeremiah-fears-pelicans-nba-draft-2025/
 
