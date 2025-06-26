@@ -1,3 +1,11 @@
+**Bolster the Building Blocks of Kindergarten**\
+`Readers respond to an Upshot article about expectations for kindergarten. Also: Black lung in miners.`\
+https://nytimes.com/2025/06/26/opinion/kindergarten-boys-girls.html
+
+**‘Dune’ Director Denis Villeneuve to Take On Next James Bond Film**\
+`Amazon MGM Studios announced earlier this year that it had gained creative control over the Bond franchise after a family had held those duties for more than 60 years.`\
+https://nytimes.com/2025/06/26/movies/denis-villeneuve-james-bond-franchise.html
+
 **Wall Street’s Regulatory Reins Start Loosening as Fed Proposes New Rule**\
 `The central bank is planning to reduce a capital buffer for the country’s largest banks, which critics warn will make the financial system less resilient.`\
 https://nytimes.com/2025/06/26/business/fed-banks-capital-rule-change.html
