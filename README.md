@@ -1,3 +1,7 @@
+**TAFC: Dempsey on Pulisic, Pochettino and podcasts; River Plate's angry exit at Club World Cup**\
+`Today in TAFC: Dempsey calls for a 'unified' message after Pulisic and Pochettino comments, Argentine sides bow out of the Club World Cup`\
+https://nytimes.com/athletic/6452782/2025/06/26/dempsey-pulisic-pochettino-river-plate-angry-club-world-cup/
+
 **Lewis-Skelly signs long-term Arsenal contract**\
 `The 18-year-old made 39 appearances in all competitions in 2024-25, his first season in senior football.`\
 https://nytimes.com/athletic/6435674/2025/06/26/myles-lewis-skelly-arsenal-contract-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451669/2025/06/26/bruins-don-sweeney-draft-free-ag
 **Manchester City squad audit: Pep Guardiola has 'too many players' but who goes?**\
 `They have 32 players in their squad – there is work to do if they are to trim it to a more manageable size`\
 https://nytimes.com/athletic/6451287/2025/06/26/manchester-city-squad-audit-june-2025/
-
-**Michael Kesselring, Josh Doan fill Sabres' needs, but did Buffalo get enough for JJ Peterka?**\
-`The Sabres have developed a reputation for high-profile trades that don’t age particularly well. Will the Peterka deal be different?`\
-https://nytimes.com/athletic/6452609/2025/06/26/jj-peterka-nhl-trade-sabres-kesselring-doan/
 
