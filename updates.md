@@ -1,3 +1,7 @@
+**How Courts Are Rethinking Criminal Sentencing**\
+`One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
+https://nytimes.com/2025/06/26/headway/courts-rethinking-criminal-sentencing.html
+
 **What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
 `President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-nuclear-program-israeli-us-attacks.html
