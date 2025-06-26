@@ -1,3 +1,7 @@
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/06/26/books/review/new-books-recommendations.html
+
 **2025-26 NBA Rookie of the Year odds: Can anyone challenge Cooper Flagg?**\
 `Cooper Flagg is obviously favored to win Rookie of the Year, but how do the other top draft prospects rank in the betting odds?`\
 https://nytimes.com/athletic/6453612/2025/06/26/nba-rookie-of-the-year-odds-cooper-flagg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453454/2025/06/26/nhl-84-game-schedule-ltir-loopho
 **‘Life Was Awesome’: After Terminal Diagnosis, a Young Father Announces His Own Death**\
 `Tanner Martin has documented his fight against colon cancer for hundreds of thousands of followers. His death was announced in a recorded video.`\
 https://nytimes.com/2025/06/26/us/tanner-martin-dead-cancer-tiktok.html
-
-**Eric Adams Meets With Business Leaders Desperate to Stop Mamdani’s Rise**\
-`Daniel Loeb, the hedge fund manager, and some other New York City business leaders are aghast at Zohran Mamdani’s success in the Democratic mayoral primary and are considering backing Mr. Adams in the general election.`\
-https://nytimes.com/2025/06/26/nyregion/eric-adams-business-leaders-meeting.html
 
