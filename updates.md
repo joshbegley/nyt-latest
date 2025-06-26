@@ -1,3 +1,7 @@
+**Jazz draft Rutgers star Ace Bailey with No. 5 pick, ending draft speculation**\
+`Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
+https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
+
 **U.S. Spy Chiefs Give New Assessments on Damage at Iran Nuclear Sites**\
 `President Trump defended his assertion that Iran’s key facilities had been “obliterated” as a preliminary intelligence report became a flashpoint in the public discussion.`\
 https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
