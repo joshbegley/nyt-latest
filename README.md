@@ -7,7 +7,7 @@ https://nytimes.com/2025/06/26/arts/television/late-night-zohran-mamdani-new-yor
 https://nytimes.com/athletic/6452571/2025/06/26/suns-draft-khaman-maluach-offseason-theme/
 
 **Goodbye Argentina. The Club World Cup will miss your fans but not your football**\
-`Boca and River Plate are out while all of the Brazilian teams are through, a sign of the issues affecting Argentina at club level`\
+`Boca Juniors and River Plate are out while all of the Brazilian teams are through, a sign of the issues affecting Argentina at club level`\
 https://nytimes.com/athletic/6452533/2025/06/26/argentina-boca-river-club-world-cup/
 
 **Greenberg: Bulls have long way to go, which is why Noa Essengue is smart draft pick**\
