@@ -1,3 +1,15 @@
+**Fati set to join Monaco on loan from Barcelona**\
+`The 22-year-old appeared just 11 times for the La Liga champions in the 2024-25 season, failing to register a goal or assist.`\
+https://nytimes.com/athletic/6383544/2025/06/26/ansu-fati-barcelona-monaco-loan/
+
+**How Much Do Celebrities Make From Fashion Deals?**\
+`And what’s in it for the brands? As the industry’s model for working with public figures shifts, the power dynamics are becoming increasingly unclear.`\
+https://nytimes.com/2025/06/26/t-magazine/fashion-brands-celebrity-endorsement-pay.html
+
+**What Blackhawks could get in draft prospect Michael Misa with No. 3 pick**\
+`If Misa, the draft's No. 2 prospect in The Athletic's evaluations, gets to the Blackhawks' pick, they'd likely take him. Here's what to know`\
+https://nytimes.com/athletic/6451157/2025/06/26/blackhawks-nhl-draft-michael-misa-no-3-pick/
+
 **The Art of Performing Gymnastics on a Moving Horse**\
 `The sport is called vaulting, and a major competition will be held at the World Equestrian Festival this weekend in Aachen, Germany.`\
 https://nytimes.com/2025/06/26/sports/world-equestrian-festival-vaulting.html
