@@ -1,3 +1,11 @@
+**Tuanzebe undergoing Burnley medical ahead of proposed free transfer**\
+`Tuanzebe spent the last two seasons at Ipswich Town, making 44 appearances for the club.`\
+https://nytimes.com/athletic/6453346/2025/06/26/axel-tuanzebe-burnley-free-transfer/
+
+**An 18-Year-Old Prodigy May Be Darts’ First Global Superstar**\
+`Luke Littler, the world’s best pro darts player, is just 18 — and he’s helping put his sport on the map.`\
+https://nytimes.com/2025/06/26/magazine/luke-littler-darts.html
+
 **Leeds striker Boast, 16, set to join Tottenham**\
 `Boast, one of Leeds' prized academy assets, has chosen to continue his development with the north London club.`\
 https://nytimes.com/athletic/6453541/2025/06/26/oliver-boast-tottenham-leeds-transfer/
