@@ -1,3 +1,11 @@
+**Former Aide to Two New York Governors Faces Fresh Corruption Charges**\
+`Linda Sun, who worked for Kathy Hochul and Andrew Cuomo in Albany, is accused of steering contracts to Chinese companies to sell masks to New York’s government during the pandemic.`\
+https://nytimes.com/2025/06/26/nyregion/linda-sun-fraud-charges.html
+
+**Fulham pursuing deal for Goztepe striker Romulo**\
+`The 23-year-old is generating heavy interest after scoring 17 goals last season.`\
+https://nytimes.com/athletic/6453860/2025/06/26/romulo-fulham-transfer-goztepe/
+
 **Mysterious Fireball Reported Over South Carolina, Georgia and Tennessee**\
 `A glowing object lit up the sky, prompting dozens of calls to the authorities, as scientists scrambled to figure out what it was.`\
 https://nytimes.com/2025/06/26/us/fire-ball-south-carolina-georgia-tennessee.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/books/review/new-books-recommendations.html
 **2025-26 NBA Rookie of the Year odds: Can anyone challenge Cooper Flagg?**\
 `Cooper Flagg is obviously favored to win Rookie of the Year, but how do the other top draft prospects rank in the betting odds?`\
 https://nytimes.com/athletic/6453612/2025/06/26/nba-rookie-of-the-year-odds-cooper-flagg/
-
-**Leafs GM Brad Treliving anticipates Mitch Marner will 'hit the market'**\
-`On July 1, Marner will become one of the most sought-after free agents in recent NHL history.`\
-https://nytimes.com/athletic/6453950/2025/06/26/maple-leafs-mitch-marner-nhl-free-agency-treliving/
-
-**Bruins trade tiers: Who could be moved before the draft?**\
-`Who's untouchable and who's most likely to be moved as Don Sweeney looks to shake things up? Here's who we see staying and going.`\
-https://nytimes.com/athletic/6453760/2025/06/26/bruins-trade-tiers-nhl-draft/
 
