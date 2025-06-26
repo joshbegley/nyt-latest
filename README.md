@@ -1,3 +1,11 @@
+**What Blackhawks could get in draft prospect Michael Misa with No. 3 pick**\
+`If Misa, the draft's No. 2 prospect in The Athletic's evaluations, gets to the Blackhawks' pick, they'd likely take him. Here's what to know`\
+https://nytimes.com/athletic/6451157/2025/06/26/blackhawks-nhl-draft-michael-misa-no-3-pick/
+
+**How Much Do Celebrities Make From Fashion Deals?**\
+`And what’s in it for the brands? As the industry’s model for working with public figures shifts, the power dynamics are becoming increasingly unclear.`\
+https://nytimes.com/2025/06/26/t-magazine/fashion-brands-celebrity-endorsement-pay.html
+
 **The Art of Performing Gymnastics on a Moving Horse**\
 `The sport is called vaulting, and a major competition will be held at the World Equestrian Festival this weekend in Aachen, Germany.`\
 https://nytimes.com/2025/06/26/sports/world-equestrian-festival-vaulting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6453619/2025/06/26/wild-trade-freddy-gaudreau-krake
 **Tuanzebe undergoing Burnley medical ahead of proposed free transfer**\
 `Tuanzebe spent the last two seasons at Ipswich Town, making 44 appearances for the club.`\
 https://nytimes.com/athletic/6453346/2025/06/26/axel-tuanzebe-burnley-free-transfer/
-
-**An 18-Year-Old Prodigy May Be Darts’ First Global Superstar**\
-`Luke Littler, the world’s best pro darts player, is just 18 — and he’s helping put his sport on the map.`\
-https://nytimes.com/2025/06/26/magazine/luke-littler-darts.html
-
-**Leeds striker Boast, 16, set to join Tottenham**\
-`Boast, one of Leeds' prized academy assets, has chosen to continue his development with the north London club.`\
-https://nytimes.com/athletic/6453541/2025/06/26/oliver-boast-tottenham-leeds-transfer/
 

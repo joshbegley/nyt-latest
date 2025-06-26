@@ -1,3 +1,15 @@
+**The Art of Performing Gymnastics on a Moving Horse**\
+`The sport is called vaulting, and a major competition will be held at the World Equestrian Festival this weekend in Aachen, Germany.`\
+https://nytimes.com/2025/06/26/sports/world-equestrian-festival-vaulting.html
+
+**The World Is Warming Up. And It’s Happening Faster.**\
+`Human-caused global warming has been increasing faster and faster since the 1970s.`\
+https://nytimes.com/2025/06/26/climate/climate-heat-intensity.html
+
+**Ecuador Recaptures Gang Leader “Fito” After Prison Escape Last Year**\
+`The Ecuadorean president said José Adolfo Macías, known as “Fito” and leader of the infamous Los Choneros criminal organization, will be extradited to the U.S., where he’s accused of drug trafficking and weapons smuggling.`\
+https://nytimes.com/video/world/americas/100000010252041/ecuador-fito-gang-leader-captured-.html
+
 **Vladislav Gavrikov, Jordan Spence and the future of the Kings' blue line**\
 `New Kings general manager Ken Holland spoke for nearly 40 minutes on Gavrikov, Spence and the team's offseason priorities.`\
 https://nytimes.com/athletic/6452580/2025/06/26/kings-nhl-gavrikov-free-agency-defense/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/26/magazine/luke-littler-darts.html
 **Leeds striker Boast, 16, set to join Tottenham**\
 `Boast, one of Leeds' prized academy assets, has chosen to continue his development with the north London club.`\
 https://nytimes.com/athletic/6453541/2025/06/26/oliver-boast-tottenham-leeds-transfer/
-
-**Death in the Modern Age**\
-`New approaches to death and dying — today and beyond.`\
-https://nytimes.com/spotlight/death-in-the-modern-age
-
-**The Bounce: NBA Draft surprises, explained: Ace Bailey's slight slip, Nets make odd reaches and more**\
-`Last night, the 2025 NBA Draft began the way everybody believed it would before it got interesting. Which surprise stood out most?`\
-https://nytimes.com/athletic/6453198/2025/06/26/nba-draft-surprises-cooper-flagg-mavericks-ace-bailey-jazz-the-bounce/
-
-**The Windup: Biggest surprises of MLB's first half**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6452653/2025/06/26/mlb-surprises-first-half-the-athletic/
 
