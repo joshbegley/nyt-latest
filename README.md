@@ -1,3 +1,11 @@
+**The Aston Villa coaching syllabus, who implemented it and how it works**\
+`The academy is not there to copy the first team, but for young players to know the expectations of Emery’s environment`\
+https://nytimes.com/athletic/6377864/2025/06/26/the-aston-villa-coaching-syllabus-who-implemented-it-and-how-it-works/
+
+**'Potential All-Star': Why 76ers zeroed in on VJ Edgecombe with No. 3 pick**\
+`Daryl Morey, Philadelphia believe Baylor star's defense, motor and athleticism make him the perfect fit for 76ers.`\
+https://nytimes.com/athletic/6451967/2025/06/26/76ers-vj-edgecombe-nba-draft-all-star-upside/
+
 **Wilkinson statue campaign gathers pace, even after ex-Leeds manager's initial reluctance**\
 `A campaign for Howard Wilkinson to be given a statue is gaining traction, but the former Leeds United manager is modest as ever...`\
 https://nytimes.com/athletic/6450579/2025/06/26/leeds-united-howard-wilkinson-statue/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6435068/2025/06/26/huijsen-real-madrid-malaga-spain
 **Andre Onana, Emiliano Martinez and Manchester United's goalkeeping conundrum**\
 `This is not a question of who is more talented. It is what this United team needs in this moment`\
 https://nytimes.com/athletic/6444960/2025/06/26/andre-onana-emiliano-martinez-man-united-transfer/
-
-**Club World Cup daily rankings: Manchester City seeks to tighten grip at top**\
-`Our ranking of all 32 Club World Cup teams, updated daily`\
-https://nytimes.com/athletic/6433032/2025/06/26/club-world-cup-daily-rankings-bayern-psg-flamengo-real-madrid/
-
-**Premier League clubs have the greatest spending power - but it comes at a cost...**\
-`The Premier League spends the most on transfers — but that brings with it a problem when buying from other 'big five' leagues`\
-https://nytimes.com/athletic/6440235/2025/06/26/premier-league-spending-power-saudi/
 
