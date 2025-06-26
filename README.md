@@ -1,3 +1,7 @@
+**Trump Threatens to Sue The Times and CNN Over Iran Reporting**\
+`The president has criticized media coverage of a preliminary classified report that ran counter to his assertion that U.S. strikes had “obliterated” Iran’s nuclear program.`\
+https://nytimes.com/2025/06/26/business/media/trump-iran-new-york-times-cnn.html
+
 **What the Leafs are signalling about their plans for Matthew Knies and the offseason**\
 `What does GM Brad Treliving have in store this summer? He discussed Mitch Marner's future, contract talks with John Tavares and much more.`\
 https://nytimes.com/athletic/6454145/2025/06/26/maple-leafs-matthew-knies-nhl-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453385/2025/06/26/nhl-draft-prospect-lj-mooney-bio
 **Introducing Your New Where to Eat Writer**\
 `Nikita Richardson passes the baton and shares some good news.`\
 https://nytimes.com/2025/06/26/dining/introducing-your-new-where-to-eat-writer.html
-
-**Wild GM Bill Guerin on Kirill Kaprizov, Marco Rossi and why there might not be a big splash July 1**\
-`Guerin’s current focus ahead of this weekend’s draft is the trade market, then free agency, which begins Tuesday.`\
-https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-draft/
 

@@ -1,5 +1,9 @@
+**What the Leafs are signalling about their plans for Matthew Knies and the offseason**\
+`What does GM Brad Treliving have in store this summer? He discussed Mitch Marner's future, contract talks with John Tavares and much more.`\
+https://nytimes.com/athletic/6454145/2025/06/26/maple-leafs-matthew-knies-nhl-offseason/
+
 **Giants' Hayden Birdsong plunks Otto Lopez in finale of combative series against Marlins**\
-`Logan Webb hinted a night earlier that the Giants would take action after their hitters have been hit by several pitches in recent games.`\
+`Logan Webb hinted a night earlier that the Giants would take action after their hitters had been hit by several pitches in recent games.`\
 https://nytimes.com/athletic/6454385/2025/06/26/sf-giants-hayden-birdsong-marlins-otto-lopez-hit-by-pitch-retaliation/
 
 **Former Ravens kicker Justin Tucker suspended 10 games by NFL**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/dining/introducing-your-new-where-to-eat-writer.h
 **Wild GM Bill Guerin on Kirill Kaprizov, Marco Rossi and why there might not be a big splash July 1**\
 `Guerin’s current focus ahead of this weekend’s draft is the trade market, then free agency, which begins Tuesday.`\
 https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-draft/
-
-**Atalanta reach agreement with Southampton for Sulemana signing**\
-`A deal consisting of €17.5million in five annual instalments, plus €4million in add ons has been reached.`\
-https://nytimes.com/athletic/6454359/2025/06/26/kamaldeen-sulemana-atalanta-southampton-transfer/
 
