@@ -1,3 +1,11 @@
+**John Doe vs. Blackhawks lawsuit set for trial in October**\
+`A former player is suing the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
+https://nytimes.com/athletic/6454675/2025/06/26/john-doe-vs-blackhawks-trial-date/
+
+**75 Years After a Deadly Plane Crash, the Search for Its Wreckage Ends**\
+`In 2004, explorers began a search for a plane that crashed into Lake Michigan in 1950, killing 58 people. They didn’t find it, but they revived the history of what once was the country’s deadliest aviation accident.`\
+https://nytimes.com/2025/06/26/us/michigan-plane-crash-1950.html
+
 **3 More Victims Identified in West Virginia Flooding, Bringing Death Toll to 9**\
 `Seven of the victims were from Triadelphia, a town of about 900 people, in the northern panhandle of West Virginia.`\
 https://nytimes.com/2025/06/26/us/politics/west-virginia-flood-death-toll.html
