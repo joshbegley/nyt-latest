@@ -1,3 +1,11 @@
+**How Prime won over the NASCAR world and raised the bar for future broadcasts**\
+`Prime's debut NASCAR broadcasts — the Cup Series' first with a streaming service — were well received by the sport's fans and personnel.`\
+https://nytimes.com/athletic/6450666/2025/06/26/amazon-prime-nascar-broadcasts-streaming/
+
+**Rudy Gobert 2.0? Timberwolves take French big man Joan Beringer at No. 17**\
+`Beringer lands on a team with a player who knows exactly what it is like to come over to the United States from France at a young age.`\
+https://nytimes.com/athletic/6444310/2025/06/26/timberwolves-2025-nba-draft-joan-beringer/
+
 **Death Toll From Kenya Protests Climbs, Rights Group Says**\
 `Thousands of people turned out across Kenya on Wednesday to protest government corruption and police brutality.`\
 https://nytimes.com/2025/06/26/world/europe/kenya-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6452589/2025/06/26/dodgers-catchers-dalton-rushing/
 **Meet Kalle Larsson, an NHL outsider who’s reshaping Oilers’ player development**\
 `With Kalle Larsson at the helm, strides are being made to internally improve how the Oilers work with their prospects.`\
 https://nytimes.com/athletic/6276430/2025/06/26/edmonton-oilers-draft-kalle-larsson/
-
-**It's a good time to be a Notre Dame fan, our survey says. Here's how Irish faithful feel**\
-`More than 2,500 Notre Dame fans gave us their thoughts on the state of Marcus Freeman's program, rivalry games, the 2025 team and more.`\
-https://nytimes.com/athletic/6450661/2025/06/26/notre-dame-football-2025-survey-fans/
-
-**Blues trade 'rumors' pick up with Jordan Kyrou's no-trade clause kicking in July 1**\
-`Kyrou, 27, improved his all-around game last season, finishing with a team-best plus-23 rating.`\
-https://nytimes.com/athletic/6451096/2025/06/26/jordan-kyrou-no-trade-clause-blues-rumors/
 
