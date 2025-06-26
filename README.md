@@ -1,3 +1,15 @@
+**Amid Attacks, Iran’s Exiled Opposition Remained Divided. Who Are They?**\
+`While many in Iran’s divided diaspora opposed Israel’s campaign, some took the war as a chance to amplify their ideas about Iran’s future.`\
+https://nytimes.com/2025/06/26/world/middleeast/iran-opposition-groups.html
+
+**Justice Dept. Opens Inquiry Into University of California Hiring Practices**\
+`The Trump administration has targeted the state system as part of its broad effort to eliminate diversity, equity and inclusion initiatives and programs.`\
+https://nytimes.com/2025/06/26/us/politics/justice-dept-opens-inquiry-into-university-of-california-hiring-practices.html
+
+**Juventus 2 Manchester City 5 - Rodri plays over an hour, Haaland's 300th goal as City savage Serie A opponents**\
+`Sam Lee, Thom Harris and Jordan Campbell break down the main talking points from Manchester City's 5-2 win over Juventus `\
+https://nytimes.com/athletic/6445260/2025/06/26/juventus-2-manchester-city-5-rodri-haaland-savinho/
+
 **Florida Boaters Capture Twin Waterspouts Up Close on Video**\
 `A family was heading back to dry land when two of the funnel formations suddenly sprung up. “It looked like something from a movie,” one of them said.`\
 https://nytimes.com/2025/06/26/us/florida-water-spouts-video.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6454145/2025/06/26/maple-leafs-matthew-knies-nhl-of
 **Giants' Hayden Birdsong plunks Otto Lopez in finale of combative series against Marlins**\
 `Logan Webb hinted a night earlier that the Giants would take action after their batters had been hit by several pitches in recent games.`\
 https://nytimes.com/athletic/6454385/2025/06/26/sf-giants-hayden-birdsong-marlins-otto-lopez-hit-by-pitch-retaliation/
-
-**Former Ravens kicker Justin Tucker suspended 10 games by NFL**\
-`Tucker was accused of inappropriate sexual behavior by 16 Baltimore-area massage therapists.`\
-https://nytimes.com/athletic/6454379/2025/06/26/justin-tucker-nfl-suspended/
-
-**Carolyn McCarthy, Who Turned a Gunfire Massacre Into a Crusade, Dies at 81**\
-`After her husband was killed and her son wounded on a Long Island commuter train in 1993, she went to Congress on a mission to curb gun violence.`\
-https://nytimes.com/2025/06/26/nyregion/carolyn-mccarthy-dead.html
-
-**An Ode to Joy, in Climate Action**\
-`Climate change is often unrelentingly grim. But some activists argue that joyful climate action can change minds.`\
-https://nytimes.com/2025/06/26/climate/an-ode-to-joy-in-climate-action.html
 
