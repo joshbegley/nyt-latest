@@ -1,3 +1,7 @@
+**'Al Nassr forever': Ronaldo extends contract with Saudi club**\
+`Ronaldo’s previous deal with the Saudi Pro League (SPL) club was set to expire on June 30.`\
+https://nytimes.com/athletic/6035296/2025/06/26/cristiano-ronaldo-al-nassr-contract-new/
+
 **Playful Tables Topped With Tiles**\
 `Plus: a tranquil new hotel in Ojai, a design gallery in a Florentine palazzo and more recommendations from T Magazine.`\
 https://nytimes.com/2025/06/26/t-magazine/tiled-table-furniture.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6452926/2025/06/26/mckennie-and-weah-italian-food/
 **Arsenal working on deal to sign Valencia defender Mosquera**\
 `The 20-year-old Spain youth international is currently the club's preferred option as they search for defensive reinforcements.`\
 https://nytimes.com/athletic/6452716/2025/06/26/arsenal-transfer-news-mosquera/
-
-**Matthew Schaefer, top NHL Draft prospects get DC superhero mashups in new trading card set**\
-`The popular Fanimations cards from the '90s return as part of Upper Deck and DC's new partnership`\
-https://nytimes.com/athletic/6452147/2025/06/26/matthew-schaefer-superman-upper-deck/
 

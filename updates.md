@@ -1,3 +1,7 @@
+**'Al Nassr forever': Ronaldo extends contract with Saudi club**\
+`Ronaldo’s previous deal with the Saudi Pro League (SPL) club was set to expire on June 30.`\
+https://nytimes.com/athletic/6035296/2025/06/26/cristiano-ronaldo-al-nassr-contract-new/
+
 **Playful Tables Topped With Tiles**\
 `Plus: a tranquil new hotel in Ojai, a design gallery in a Florentine palazzo and more recommendations from T Magazine.`\
 https://nytimes.com/2025/06/26/t-magazine/tiled-table-furniture.html
