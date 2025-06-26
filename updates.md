@@ -1,3 +1,11 @@
+**Dortmund head coach Kovac set to be handed contract extension**\
+`Kovac signed a short-term contract until the end of next season when he succeeded Nuri Sahin in February.`\
+https://nytimes.com/athletic/6445122/2025/06/26/borussia-dortmund-niko-kovac-contract-extension/
+
+**The Pulse: New superstars everywhere**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6451180/2025/06/26/cooper-flagg-dylan-harper-nba-draft-the-pulse/
+
 **2025 NBA Draft fashion review: Whose looks won the night?**\
 `Which NBA Draftees had the best fits and looks? The Athletic's experts break down the night's big fashion winners.`\
 https://nytimes.com/athletic/6450688/2025/06/26/nba-draft-fashion-style-report-card-cooper-flagg-jeremiah-fears/
