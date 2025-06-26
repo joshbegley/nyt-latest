@@ -1,3 +1,11 @@
+**As Phillies stumble, a familiar platoon debate reopens for Brandon Marsh and Bryson Stott**\
+`"I hope they're everyday guys," Phillies manager Rob Thomson said. "I hope. We'll see how it all transpires."`\
+https://nytimes.com/athletic/6452421/2025/06/26/phillies-lose-astros-platoon-debate-brandon-marsh-bryson-stott/
+
+**Mavs' Nico Harrison says Jason Kidd will return next season**\
+`The New York Knicks have expressed serious interest in poaching Kidd from the Mavericks, without success.`\
+https://nytimes.com/athletic/6452547/2025/06/26/jason-kidd-mavericks-nico-harrison/
+
 **Coach Jason Kidd to return for fifth season with Mavericks**\
 `The New York Knicks have expressed serious interest in poaching Kidd from the Mavericks, without success.`\
 https://nytimes.com/athletic/6452547/2025/06/26/jason-kidd-mavericks-nico-harrison/
