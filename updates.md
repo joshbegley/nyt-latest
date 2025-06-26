@@ -1,3 +1,15 @@
+**U.S. Spy Chiefs Give New Assessments on Damage at Iran Nuclear Sites**\
+`President Trump defended his assertion that Iran’s key facilities had been “obliterated” as a preliminary intelligence report became a flashpoint in the public discussion.`\
+https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
+
+**Pelicans select Jeremiah Fears with No. 7 pick in the 2025 NBA Draft**\
+`The 6-foot-3 guard arrived in Norman as a top-25 recruit and was named to the SEC All-Freshman team.`\
+https://nytimes.com/athletic/6451491/2025/06/25/jeremiah-fears-pelicans-nba-draft-2025/
+
+**Jazz draft Rutgers star Ace Bailey with No. 5 pick**\
+`Ace Bailey already has a high floor, but The Athletic's Sam Vecenie says he could end up being the second-best player in this class.`\
+https://nytimes.com/athletic/6447031/2025/06/25/nba-draft-jazz-rutgers-ace-bailey/
+
 **Brooklyn Nets draft BYU's Egor Demin with No. 8 pick**\
 `Demin is the first Russian-born player to be drafted since Sergey Karasev in 2013.`\
 https://nytimes.com/athletic/6451489/2025/06/25/egor-demin-nets-nba-draft-2025/
