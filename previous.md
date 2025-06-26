@@ -1,3 +1,15 @@
+**Twins pitchers respond to fiery, emotional meeting with three-hit shutout over Seattle**\
+`An honest, pitchers-only discussion sparked the team to a win over the Mariners, only its second victory since June 11.`\
+https://nytimes.com/athletic/6451923/2025/06/26/twins-mariners-result-pitching/
+
+**Trump Administration Live Updates: Hegseth to Hold News Conference on Iran Strikes**\
+``\
+https://nytimes.com/live/2025/06/26/us/trump-news
+
+**Transfers TLDR: Milos Kerkez to Liverpool - all you need to know**\
+`Liverpool have completed the signing of Milos Kerkez from Bournemouth - here, we break down the transfer`\
+https://nytimes.com/athletic/6418611/2025/06/26/milos-kerkez-liverpool-transfer/
+
 **Draft's biggest takeaway? How much teams were willing to pay just to move up a few picks**\
 `Maybe Derik Queen becomes a player. But the process for New Orleans, in particular, on draft night was awful.`\
 https://nytimes.com/athletic/6452680/2025/06/26/new-orleans-pelicans-trade-draft-derik-queen/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6451499/2025/06/26/nhl-team-salary-cap/
 **Marcelo Mayer adjusting to life with the Boston Red Sox: 'I'm pretty comfortable'**\
 `Mayer isn't dominating the league statistically yet, but he's learning how pitchers are attacking him and improving every day.`\
 https://nytimes.com/athletic/6427988/2025/06/26/marcelo-mayer-red-sox-first-mlb-month/
-
-**What's the worst college football team Nick Saban could have won a national title with?**\
-`How many teams could actually win the college football national title? Let's play the what-if game with the peak version of Nick Saban.`\
-https://nytimes.com/athletic/6451165/2025/06/26/college-football-teams-nick-saban-national-championship/
-
-**Blue Jays mailbag: Trade deadline needs, Toronto’s biggest surprise and more**\
-`The Blue Jays' -7 run differential says they could be due for regression. But they have a way to counter that dip.`\
-https://nytimes.com/athletic/6452158/2025/06/26/blue-jays-mailbag-trade-deadline-needs/
-
-**Erik Karlsson trade destinations: 8 teams that could make sense for the Penguins defenseman**\
-`Could he be the latest coup for the two-time-defending champs? Or give Carolina a firepower boost? Or close his career where it started?`\
-https://nytimes.com/athletic/6451510/2025/06/26/erik-karlsson-trade-destinations/
 

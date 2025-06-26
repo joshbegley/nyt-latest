@@ -1,3 +1,15 @@
+**Twins pitchers respond to fiery, emotional meeting with three-hit shutout over Seattle**\
+`An honest, pitchers-only discussion sparked the team to a win over the Mariners, only its second victory since June 11.`\
+https://nytimes.com/athletic/6451923/2025/06/26/twins-mariners-result-pitching/
+
+**Trump Administration Live Updates: Hegseth to Hold News Conference on Iran Strikes**\
+``\
+https://nytimes.com/live/2025/06/26/us/trump-news
+
+**Transfers TLDR: Milos Kerkez to Liverpool - all you need to know**\
+`Liverpool have completed the signing of Milos Kerkez from Bournemouth - here, we break down the transfer`\
+https://nytimes.com/athletic/6418611/2025/06/26/milos-kerkez-liverpool-transfer/
+
 **Draft's biggest takeaway? How much teams were willing to pay just to move up a few picks**\
 `Maybe Derik Queen becomes a player. But the process for New Orleans, in particular, on draft night was awful.`\
 https://nytimes.com/athletic/6452680/2025/06/26/new-orleans-pelicans-trade-draft-derik-queen/
