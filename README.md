@@ -1,3 +1,7 @@
+**Intelligence Agencies Race to Evaluate Iran’s Nuclear Program**\
+`Also, violence has frequently erupted near aid sites in Gaza. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/06/26/briefing/iran-nuclear-program-sean-combs-trial.html
+
 **Wander Franco, one-time Rays star, convicted after underage sexual abuse trial**\
 `The 24-year-old was given a suspended two-year sentence, which means he will not serve prison time as long as he meets certain conditions.`\
 https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/arts/television/art-detectives-acorntv.html
 **United Faces Race Discrimination Lawsuit After Barring Passengers**\
 `Two Asian American women were mistaken for each other. One was accused of physically assaulting a flight attendant, but both were denied boarding, a lawsuit claims.`\
 https://nytimes.com/2025/06/26/travel/united-airlines-lawsuit-racism.html
-
-**The Last Word: Carolyn McCarthy**\
-`When a mass shooting in 1993 shattered Carolyn McCarthy’s family, she took her gun control crusade to Washington. The former nine-term congresswoman sat down with the Times reporter Clyde Haberman in 2014 to talk about the tragedy that transformed her life.`\
-https://nytimes.com/video/us/100000005033423/the-last-word-carolyn-mccarthy.html
 

@@ -1,3 +1,7 @@
+**Wander Franco, one-time Rays star, convicted after underage sexual abuse trial**\
+`The 24-year-old was given a suspended two-year sentence, which means he will not serve prison time as long as he meets certain conditions.`\
+https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict/
+
 **What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
 `President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
 https://nytimes.com/2025/06/26/world/iran-nuclear-program-israeli-us-attacks.html

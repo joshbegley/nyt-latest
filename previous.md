@@ -1,3 +1,7 @@
+**Wander Franco, one-time Rays star, convicted after underage sexual abuse trial**\
+`The 24-year-old was given a suspended two-year sentence, which means he will not serve prison time as long as he meets certain conditions.`\
+https://nytimes.com/athletic/6454234/2025/06/26/wander-franco-rays-trial-verdict/
+
 **What We Know About the Fate of Iran’s Nuclear Program After Israeli and U.S. Strikes**\
 `President Trump’s claimed Iran’s capabilities were “obliterated.” The full extent of the damage is still emerging.`\
 https://nytimes.com/2025/06/26/world/iran-nuclear-program-israeli-us-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/travel/united-airlines-lawsuit-racism.html
 **The Last Word: Carolyn McCarthy**\
 `When a mass shooting in 1993 shattered Carolyn McCarthy’s family, she took her gun control crusade to Washington. The former nine-term congresswoman sat down with the Times reporter Clyde Haberman in 2014 to talk about the tragedy that transformed her life.`\
 https://nytimes.com/video/us/100000005033423/the-last-word-carolyn-mccarthy.html
-
-**Amid Attacks, Iran’s Exiled Opposition Remained Divided. Who Are They?**\
-`While many in Iran’s divided diaspora opposed Israel’s campaign, some took the war as a chance to amplify their ideas about Iran’s future.`\
-https://nytimes.com/2025/06/26/world/middleeast/iran-opposition-groups.html
 
