@@ -1,3 +1,5 @@
+
+
 **After big trades, Celtics become harbinger for the destruction of the second apron era**\
 `Brad Stevens spoke about the Celtics' big salary-dump moves to get out of the second apron and what it means for the future.`\
 https://nytimes.com/athletic/6452639/2025/06/26/celtics-nba-draft-big-trades-second-apron-era/
