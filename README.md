@@ -1,3 +1,11 @@
+**Greenberg: Bulls have long way to go, which is why Noa Essengue is smart draft pick**\
+`For mediocre teams like the Bulls, if you don’t get lucky in the draft lottery, you have to make your own luck.`\
+https://nytimes.com/athletic/6452492/2025/06/26/greenberg-bulls-noa-essengue-nba-draft-pick/
+
+**Word of the Day: spectral**\
+`This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/26/learning/word-of-the-day-spectral.html
+
 **Round 1 of the 2025 NBA Draft full of twists and turns with surprising trades**\
 `The trade for Yang was the biggest surprise of an evening filled with more shock from trades than from draft picks.`\
 https://nytimes.com/athletic/6452507/2025/06/26/nba-draft-2025-round-1-shocking-trades-hansen-yang-mark-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6452316/2025/06/26/cubs-notes-kyle-tucker-free-agen
 **What I'm hearing about the Kings as the NBA offseason heats up**\
 `What backcourt targets do the Kings have in mind? And what's the latest on the future of their All-Star tandem?`\
 https://nytimes.com/athletic/6452468/2025/06/26/sacramento-kings-offseason-nba-draft-2025/
-
-**What I learned bowling at India's best batters: 'Rishabh Pant smashes every ball'**\
-`Abhay Negi swapped bowling at amateurs for two days practicing with some of the very best batters in the world – and loved it`\
-https://nytimes.com/athletic/6438701/2025/06/26/india-cricket-net-bowler/
-
-**The Aston Villa coaching syllabus, who implemented it and how it works**\
-`The academy is not there to copy the first team, but for young players to know the expectations of Emery’s environment`\
-https://nytimes.com/athletic/6377864/2025/06/26/the-aston-villa-coaching-syllabus-who-implemented-it-and-how-it-works/
 
