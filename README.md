@@ -1,3 +1,11 @@
+**Urawa 0 Monterrey 4: Explosive sequence sends Liga MX side through**\
+`With three great goals in a nine-minute stretch, Monterrey handled its business to punch a ticket to the Club World Cup last 16`\
+https://nytimes.com/athletic/6452115/2025/06/25/urawa-monterrey-club-world-cup-highlights-analysis/
+
+**Inter 2 River Plate 0 - Esposito's first goal sets up Fluminense tie as River see red**\
+`Analysis of Inter Milan's victory over nine-man River Plate`\
+https://nytimes.com/athletic/6443567/2025/06/25/inter-river-plate-esposito/
+
 **NBA Draft shocker: China center Yang Hansen picked at No. 16, dealt to Blazers**\
 `Center was considered by draft analysts as a rising prospect, but no one projected him to be a first-round pick.`\
 https://nytimes.com/athletic/6452189/2025/06/25/nba-draft-surprise-blazers-grizzlies-yang-hansen/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6449187/2025/06/25/khaman-maluach-rockets-suns-nba-
 **In New Assessment, C.I.A. Chief Says U.S. Strikes ‘Severely Damaged’ Iranian Program**\
 `The administration suggested an initial report of less-severe damage was already outdated as the president continued to defend his assertion that key facilities had been “obliterated,” though no intelligence official has yet directly echoed his view.`\
 https://nytimes.com/2025/06/25/us/politics/trump-iran-nuclear.html
-
-**Brooklyn Nets draft BYU's Egor Demin with No. 8 pick**\
-`Demin is the first Russian-born player to be drafted since Sergey Karasev in 2013.`\
-https://nytimes.com/athletic/6451489/2025/06/25/egor-demin-nets-nba-draft-2025/
-
-**‘Lowcountry’ Review: A Flat-Footed First Date**\
-`Abby Rosebrock’s latest offering for Atlantic Theater Company mines fertile ground, but simmers about with nary a sign of tension, sexual or otherwise.`\
-https://nytimes.com/2025/06/25/theater/lowcountry-review.html
 
