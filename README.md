@@ -34,7 +34,7 @@ https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/combss-criminal-
 `Men and women compete equally, so being transgender has not stirred the debate about equity raging in other sports.`\
 https://nytimes.com/2025/06/26/sports/trans-athletes-equestrian-riding.html
 
-**Arsenal looking to experience with Norgaard, but do they need youth in their midfield too?**\
+**Arsenal adding proven quality with Norgaard – could they still target a young midfielder too?**\
 `Norgaard is one of the Premier League's most trusted midfielders. But should Arsenal be planning for the future as well as the present?`\
 https://nytimes.com/athletic/6450681/2025/06/26/arsenal-midfield-norgaard-agoume/
 
