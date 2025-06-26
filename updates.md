@@ -1,3 +1,7 @@
+**Key testimony for the prosecution: Cassie and ‘Jane,’ violence and the role of employees.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/key-testimony-for-the-prosecution-cassie-and-jane-violence-and-the-role-of-employees
+
 **Drafting Tre Johnson should give the Wizards the best shooter in the 2025 draft**\
 `Johnson and fellow first-round pick Will Riley have the potential to help Washington. `\
 https://nytimes.com/athletic/6452687/2025/06/26/tre-johnson-will-riley-washington-wizards/

@@ -1,3 +1,27 @@
+**Canadiens expectations, Logan Mailloux as a trade chip, Stanley Cup checklist: Mailbag**\
+`Ahead of a busy week for the Canadiens, we take a look at the likelihood of a repeat playoff berth and much more.`\
+https://nytimes.com/athletic/6452636/2025/06/26/canadiens-logan-mailloux-trade-mailbag/
+
+**'Are you going to say Italian food is trash?': How Weston McKennie and Tim Weah wound up a nation**\
+`Is American food better than Italian? The USMNT pair had a 'hot take'`\
+https://nytimes.com/athletic/6452926/2025/06/26/mckennie-and-weah-italian-food/
+
+**Arsenal working on deal to sign Valencia defender Mosquera**\
+`The 20-year-old Spain youth international is currently the club's preferred option as they search for defensive reinforcements.`\
+https://nytimes.com/athletic/6452716/2025/06/26/arsenal-transfer-news-mosquera/
+
+**Matthew Schaefer, top NHL Draft prospects get DC superhero mashups in new trading card set**\
+`The popular Fanimations cards from the '90s return as part of Upper Deck and DC's new partnership`\
+https://nytimes.com/athletic/6452147/2025/06/26/matthew-schaefer-superman-upper-deck/
+
+**As Europe comes calling, the secret of Nathan Saliba is getting out**\
+`Saliba is poised to leave MLS for a Belgian power as the next step in his rapid ascent for club and country`\
+https://nytimes.com/athletic/6450831/2025/06/26/nathan-saliba-canada-anderlecht-transfer-montreal-mls-gold-cup/
+
+**Giants' Logan Webb vows to protect hitters after spate of plunkings**\
+`The Giants are fed up. They've been hit six times during their current homestand and twice in a recent series at Dodger Stadium.`\
+https://nytimes.com/athletic/6452690/2025/06/26/logan-webb-giants-hit-by-pitches/
+
 **Key testimony for the prosecution: Cassie and ‘Jane,’ violence and the role of employees.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/key-testimony-for-the-prosecution-cassie-and-jane-violence-and-the-role-of-employees
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/26/books/susan-beth-pfeffer-dead.html
 **Centrifuges at Fordo ‘No Longer Operational,’ U.N. Nuclear Watchdog Head Says**\
 `Rafael Grossi told French radio that there was “no escaping significant physical damage” after the U.S. dropped bunker-buster bombs on the Iranian facility.`\
 https://nytimes.com/2025/06/26/world/middleeast/centrifuges-fordo-damage-iran.html
-
-**Investors on Edge About a Potential Shadow Fed Chair**\
-`Traders have moved on a report that President Trump is again weighing a shake-up at the central bank that could undermine market confidence.`\
-https://nytimes.com/2025/06/26/business/dealbook/trump-powell-shadow-fed-chair.html
-
-**Six prosecutors presented the case against Sean Combs.**\
-`By Olivia Bensimon`\
-https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/six-prosecutors-presented-the-case-against-sean-combs
-
-**How Prime won over the NASCAR world and raised the bar for future broadcasts**\
-`Prime's debut NASCAR broadcasts — the Cup Series' first with a streaming service — were well received by the sport's fans and personnel.`\
-https://nytimes.com/athletic/6450666/2025/06/26/amazon-prime-nascar-broadcasts-streaming/
-
-**Rudy Gobert 2.0? Timberwolves take French big man Joan Beringer at No. 17**\
-`Beringer lands on a team with a player who knows exactly what it is like to come over to the United States from France at a young age.`\
-https://nytimes.com/athletic/6444310/2025/06/26/timberwolves-2025-nba-draft-joan-beringer/
-
-**Death Toll From Kenya Protests Climbs, Rights Group Says**\
-`Thousands of people turned out across Kenya on Wednesday to protest government corruption and police brutality.`\
-https://nytimes.com/2025/06/26/world/europe/kenya-protests.html
-
-**Burnley complete signing of Netherlands defender Quilindschy Hartman**\
-`The 23-year-old has signed a four-year contract and arrived from the Dutch club for an undisclosed fee.`\
-https://nytimes.com/athletic/6452973/2025/06/26/burnley-sign-quilindschy-hartman-transfer-feyenoord/
 
