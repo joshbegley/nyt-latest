@@ -1,3 +1,7 @@
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/06/26/books/review/new-books-recommendations.html
+
 **2025-26 NBA Rookie of the Year odds: Can anyone challenge Cooper Flagg?**\
 `Cooper Flagg is obviously favored to win Rookie of the Year, but how do the other top draft prospects rank in the betting odds?`\
 https://nytimes.com/athletic/6453612/2025/06/26/nba-rookie-of-the-year-odds-cooper-flagg/
