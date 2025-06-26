@@ -1,3 +1,11 @@
+**Can Steve From ‘Blue’s Clues’ be a ‘Counterweight’ to the Manosphere?**\
+`The beloved children’s star is starting a podcast for adults. He hopes for thoughtful conversations and a lot of listening.`\
+https://nytimes.com/2025/06/26/style/steve-burns-blues-clues-podcast-alive.html
+
+**Aaron Judge, Shohei Ohtani named AL, NL starters for All-Star Game**\
+`The 2025 MLB All-Star Game will take place at Truist Park in Atlanta. `\
+https://nytimes.com/athletic/6454800/2025/06/26/mlb-all-star-game-2025-starters/
+
 **John Doe vs. Blackhawks lawsuit set for trial in October**\
 `A former player is suing the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
 https://nytimes.com/athletic/6454675/2025/06/26/john-doe-vs-blackhawks-trial-date/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/us/politics/university-of-virginia-president-trum
 **How Courts Are Rethinking Criminal Sentencing**\
 `One effort to revisit overly tough sentences came from an unlikely source: prosecutors.`\
 https://nytimes.com/2025/06/26/headway/courts-rethinking-criminal-sentencing.html
-
-**Tigers' Dietrich Enns back to major leagues after journey of more than 1,000 days**\
-`After stints in Japan and Korea, 34-year-old lefty Enns threw five scoreless innings in a long-awaited return to the major leagues.`\
-https://nytimes.com/athletic/6454602/2025/06/26/tigers-dietrich-enns-back-to-major-leagues/
-
-**A New Middle East?**\
-`The Middle East analyst Aaron David Miller on how the latest attacks on Iran have changed the balance of power in the region.`\
-https://nytimes.com/video/opinion/100000010239884/a-new-middle-east.html
 
