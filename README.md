@@ -1,3 +1,7 @@
+**Wizards pick Florida guard Walter Clayton Jr. at No. 18, will trade to Jazz**\
+`In 2025, Clayton's 134 total points (22.3 per game) are the most by any player in an NCAA Tournament since “Cardiac” Kemba Walker in 2011.`\
+https://nytimes.com/athletic/6449566/2025/06/25/walter-clayton-jr-wizards-jazz-nba-draft-2025/
+
 **Rose Lavelle, Naomi Girma return to USWNT after injury layoffs**\
 `Lavelle said she'd "missed it a lot" and that she was "really happy to be back with the girls, happy to be back in the environment."
 
@@ -35,8 +39,4 @@ https://nytimes.com/2025/06/25/theater/lowcountry-review.html
 **Pelicans select Jeremiah Fears with No. 7 pick in the 2025 NBA Draft**\
 `The 6-foot-3 guard arrived in Norman as a top-25 recruit and was named to the SEC All-Freshman team.`\
 https://nytimes.com/athletic/6451491/2025/06/25/jeremiah-fears-pelicans-nba-draft-2025/
-
-**Blue Jays' Max Scherzer fires five innings in return to rotation**\
-`For at least one start, Scherzer returned to Toronto’s starting staff. If the thumb allows, the Blue Jays hope he stays there.`\
-https://nytimes.com/athletic/6452043/2025/06/25/blue-jays-max-scherzer-return/
 
