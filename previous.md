@@ -1,3 +1,11 @@
+**NHL, NHLPA agree to 84-game schedule, playoff salary cap, other key elements of new CBA: Sources**\
+`The new CBA, which could be announced Friday, will also shorten the maximum length of contracts and eliminate deferred-salary contracts.`\
+https://nytimes.com/athletic/6453454/2025/06/26/nhl-84-game-schedule-ltir-loophole-cba/
+
+**‘Life Was Awesome:’ After Terminal Diagnosis, a Young Father Announces His Own Death**\
+`Tanner Martin has documented his fight against colon cancer for hundreds of thousands of followers. His death was announced in a prerecorded video.`\
+https://nytimes.com/2025/06/26/us/tanner-martin-dead-cancer-tiktok.html
+
 **Eric Adams Meets With Business Leaders Desperate to Stop Mamdani’s Rise**\
 `Daniel Loeb, the hedge fund manager, and some other New York City business leaders are aghast at Zohran Mamdani’s success in the Democratic mayoral primary and are considering backing Mr. Adams in the general election.`\
 https://nytimes.com/2025/06/26/nyregion/eric-adams-business-leaders-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/business/crypto-industry-housing-market.html
 **‘Sorry, Baby’ Review: Life and Nothing but, Beautifully**\
 `In her tender, funny feature directing debut, Eva Victor tells the story of a woman, the trauma that changed her and the life she kept on living.`\
 https://nytimes.com/2025/06/26/movies/sorry-baby-review-eva-victor.html
-
-**Bolster the Building Blocks of Kindergarten**\
-`Readers respond to an Upshot article about expectations for kindergarten. Also: Black lung in miners.`\
-https://nytimes.com/2025/06/26/opinion/kindergarten-boys-girls.html
-
-**Wall Street’s Regulatory Reins Start Loosening as Fed Proposes New Rule**\
-`The central bank is planning to reduce a capital buffer for the country’s largest banks, which critics warn will make the financial system less resilient.`\
-https://nytimes.com/2025/06/26/business/fed-banks-capital-rule-change.html
 

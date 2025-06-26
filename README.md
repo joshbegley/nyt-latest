@@ -1,8 +1,12 @@
+**Who could Pistons target in second round? Maxime Raynaud leads NBA Draft wish list**\
+`The Detroit Pistons have pick No. 37 in the second round of the NBA Draft, which players could be a good fit?`\
+https://nytimes.com/athletic/6452963/2025/06/26/pistons-nba-draft-2025-maxime-raynaud/
+
 **NHL, NHLPA agree to 84-game schedule, playoff salary cap, other key elements of new CBA: Sources**\
 `The new CBA, which could be announced Friday, will also shorten the maximum length of contracts and eliminate deferred-salary contracts.`\
 https://nytimes.com/athletic/6453454/2025/06/26/nhl-84-game-schedule-ltir-loophole-cba/
 
-**‘Life Was Awesome:’ After Terminal Diagnosis, a Young Father Announces His Own Death**\
+**‘Life Was Awesome’: After Terminal Diagnosis, a Young Father Announces His Own Death**\
 `Tanner Martin has documented his fight against colon cancer for hundreds of thousands of followers. His death was announced in a prerecorded video.`\
 https://nytimes.com/2025/06/26/us/tanner-martin-dead-cancer-tiktok.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/a-prosecutor-lay
 **Crypto Industry Moves Into the U.S. Housing Market**\
 `Americans are finding ways to use digital currencies to help them buy homes, and new companies are forming to help people tap their home’s value to buy Bitcoin.`\
 https://nytimes.com/2025/06/26/business/crypto-industry-housing-market.html
-
-**‘Sorry, Baby’ Review: Life and Nothing but, Beautifully**\
-`In her tender, funny feature directing debut, Eva Victor tells the story of a woman, the trauma that changed her and the life she kept on living.`\
-https://nytimes.com/2025/06/26/movies/sorry-baby-review-eva-victor.html
 
