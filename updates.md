@@ -1,3 +1,15 @@
+**Why the FIA has suddenly gone public with F1 stewards’ guidelines and racing rules**\
+`The FIA has just released previously secret racing rules and stewards' penalty guidelines. Some in the paddock are questioning the motives`\
+https://nytimes.com/athletic/6453842/2025/06/26/f1-racing-rules-released/
+
+**What are the ‘freak-offs’ and ‘hotel nights’ at the core of the Sean Combs case?**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/26/arts/sean-combs-diddy-trial/what-are-the-freak-offs-and-hotel-nights-at-the-core-of-the-sean-combs-case
+
+**‘Life Was Awesome’: After Terminal Diagnosis, a Young Father Announces His Own Death**\
+`Tanner Martin has documented his fight against colon cancer for hundreds of thousands of followers. His death was announced in a recorded video.`\
+https://nytimes.com/2025/06/26/us/tanner-martin-dead-cancer-tiktok.html
+
 **Supreme Court Sides With Death Row Prisoner Seeking DNA Testing**\
 `For nearly 15 years, a man on death row in Texas has sought DNA testing to try and prove he did not kill an 85-year-old woman.`\
 https://nytimes.com/2025/06/26/us/supreme-court-death-row-dna.html
