@@ -1,3 +1,15 @@
+**Pittsburgh native L.J. Mooney might be the NHL Draft's biggest, smallest X-factor**\
+`Suburban Pittsburgh's L.J. Mooney, all 5-8 of him, is one of the NHL Draft's most interesting players.`\
+https://nytimes.com/athletic/6453385/2025/06/26/nhl-draft-prospect-lj-mooney-bio-pittsburgh/
+
+**Introducing Your New Where to Eat Writer**\
+`Nikita Richardson passes the baton and shares some good news.`\
+https://nytimes.com/2025/06/26/dining/introducing-your-new-where-to-eat-writer.html
+
+**Strands Sidekick**\
+`Need help with today's Strands puzzle? Get hints and share your score with the community in the comments.`\
+https://nytimes.com/spotlight/strands-sidekick
+
 **Wild GM Bill Guerin on Kirill Kaprizov, Marco Rossi and why there might not be a big splash July 1**\
 `Guerin’s current focus ahead of this weekend’s draft is the trade market, then free agency, which begins Tuesday.`\
 https://nytimes.com/athletic/6454044/2025/06/26/bill-guerin-kaprizov-rossi-wild-draft/

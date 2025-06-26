@@ -1,3 +1,11 @@
+**Bill Moyers, Presidential Aide and Veteran of Public TV, Dies at 91**\
+`Before becoming known as an unusual breed of television correspondent and commentator, he had a long association with President Lyndon B. Johnson.`\
+https://nytimes.com/2025/06/26/business/media/bill-moyers-dead.html
+
+**Anna Wintour’s ‘Pivotal Decision’ to Cede (Some) Control**\
+`American Vogue will create a new role, “head of editorial content,” beneath Ms. Wintour, who is giving up her editor in chief title. She’s not leaving, though.`\
+https://nytimes.com/2025/06/26/business/media/anna-wintour-vogue-conde-nast.html
+
 **Pittsburgh native L.J. Mooney might be the NHL Draft's biggest, smallest X-factor**\
 `Suburban Pittsburgh's L.J. Mooney, all 5-8 of him, is one of the NHL Draft's most interesting players.`\
 https://nytimes.com/athletic/6453385/2025/06/26/nhl-draft-prospect-lj-mooney-bio-pittsburgh/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/us/politics/general-caine-trump.html
 **California risks 'imminent enforcement action' over transgender athlete policy**\
 `The statement is the latest battle between the Trump administration and some states over the role of transgender women and girls in sports.`\
 https://nytimes.com/athletic/6454194/2025/06/26/trump-california-department-education-transgender-athlete-policy/
-
-**For Bezos and Sánchez, a Wedding of Secrets That Everyone Knows About**\
-`As A-listers gather in Venice to celebrate the union of Jeff Bezos and Lauren Sánchez, the couple is following a familiar playbook of how to control the message.`\
-https://nytimes.com/2025/06/26/style/jeff-bezos-lauren-sanchez-wedding-privacy.html
-
-**Kate Martin's career night didn't top Liberty, but it's still a win for Valkyries**\
-`If Wednesday night was Kate Martin's breakthrough, that bodes well for a Valkyries team eyeing the playoffs.`\
-https://nytimes.com/athletic/6453957/2025/06/26/kate-martin-valkyries-liberty-career-high/
 
