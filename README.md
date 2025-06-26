@@ -1,3 +1,15 @@
+**Florida Boaters Capture Twin Waterspouts Up Close on Video**\
+`A family was heading back to dry land when two of the funnel formations suddenly sprung up. “It looked like something from a movie,” one of them said.`\
+https://nytimes.com/2025/06/26/us/florida-water-spouts-video.html
+
+**Friday Briefing: The Deadly Search for Food in Gaza**\
+`Plus, a recap of “Squid Game.”`\
+https://nytimes.com/2025/06/26/briefing/gaza-hunger-iran-strikes-kenya-protests.html
+
+**I Detest Netanyahu, but on Some Things He’s Actually Right**\
+`On the broader issue of the Iranian threat, Netanyahu and Trump have been forces for good.`\
+https://nytimes.com/2025/06/26/opinion/netanyahu-trump-iran.html
+
 **‘Re-elect Eric’: Adams Kicks Off Bid to Oppose Mamdani for Mayor**\
 `Just a few months ago, it appeared unlikely that Mayor Eric Adams of New York, who was facing federal corruption charges, would be in a position to seek a second term.`\
 https://nytimes.com/2025/06/26/nyregion/eric-adams-mayor-campaign.html
@@ -11,7 +23,7 @@ https://nytimes.com/2025/06/26/business/media/trump-iran-new-york-times-cnn.html
 https://nytimes.com/athletic/6454145/2025/06/26/maple-leafs-matthew-knies-nhl-offseason/
 
 **Giants' Hayden Birdsong plunks Otto Lopez in finale of combative series against Marlins**\
-`Logan Webb hinted a night earlier that the Giants would take action after their hitters had been hit by several pitches in recent games.`\
+`Logan Webb hinted a night earlier that the Giants would take action after their batters had been hit by several pitches in recent games.`\
 https://nytimes.com/athletic/6454385/2025/06/26/sf-giants-hayden-birdsong-marlins-otto-lopez-hit-by-pitch-retaliation/
 
 **Former Ravens kicker Justin Tucker suspended 10 games by NFL**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/26/nyregion/carolyn-mccarthy-dead.html
 **An Ode to Joy, in Climate Action**\
 `Climate change is often unrelentingly grim. But some activists argue that joyful climate action can change minds.`\
 https://nytimes.com/2025/06/26/climate/an-ode-to-joy-in-climate-action.html
-
-**Bill Moyers, Presidential Aide and Veteran of Public TV, Dies at 91**\
-`Before becoming known as an unusual breed of television correspondent and commentator, he had a long association with President Lyndon B. Johnson.`\
-https://nytimes.com/2025/06/26/business/media/bill-moyers-dead.html
-
-**Anna Wintour’s ‘Pivotal Decision’ to Cede (Some) Control**\
-`American Vogue will create a new role, “head of editorial content,” beneath Ms. Wintour, who is giving up her editor in chief title. She’s not leaving, though.`\
-https://nytimes.com/2025/06/26/business/media/anna-wintour-vogue-conde-nast.html
-
-**Pittsburgh native L.J. Mooney might be the NHL Draft's biggest, smallest X-factor**\
-`Suburban Pittsburgh's L.J. Mooney, all 5-8 of him, is one of the NHL Draft's most interesting players.`\
-https://nytimes.com/athletic/6453385/2025/06/26/nhl-draft-prospect-lj-mooney-bio-pittsburgh/
 
