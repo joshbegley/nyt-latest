@@ -1,5 +1,5 @@
 **Britain's new tennis hope awaits his starring role in Wimbledon's national psychodrama**\
-`Draper has all the tennis tools to succeed at his home major, but being British at Wimbledon is a test of character like few in sports.`\
+`Jack Draper has all the tennis tools to succeed at his home major, but being British at Wimbledon is a test of character like few in sports.`\
 https://nytimes.com/athletic/6450159/2025/06/26/tennis-wimbledon-british-players-murray-draper-pressure/
 
 **How to watch the 2025 Rocket Classic: Tee times, streaming info, odds and picks**\
