@@ -1,3 +1,15 @@
+**Former Aide to Two New York Governors Faces Fresh Corruption Charges**\
+`Linda Sun, who worked for Kathy Hochul and Andrew Cuomo in Albany, is accused of steering contracts to Chinese companies to sell masks to New York’s government during the pandemic.`\
+https://nytimes.com/2025/06/26/nyregion/linda-sun-fraud-charges.html
+
+**Fulham pursuing deal for Goztepe striker Romulo**\
+`The 23-year-old is generating heavy interest after scoring 17 goals last season.`\
+https://nytimes.com/athletic/6453860/2025/06/26/romulo-fulham-transfer-goztepe/
+
+**Mysterious Fireball Reported Over South Carolina, Georgia and Tennessee**\
+`A glowing object lit up the sky, prompting dozens of calls to the authorities, as scientists scrambled to figure out what it was.`\
+https://nytimes.com/2025/06/26/us/fire-ball-south-carolina-georgia-tennessee.html
+
 **New York Red Bulls in talks over Timo Werner move**\
 `No agreement has been reached yet, but both sides are optimistic that a deal can be concluded this summer.`\
 https://nytimes.com/athletic/6454062/2025/06/26/timo-werner-new-york-red-bulls-transfer/
