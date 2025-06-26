@@ -1,3 +1,11 @@
+**Dortmund head coach Kovac set to be handed contract extension**\
+`Kovac signed a short-term contract until the end of next season when he succeeded Nuri Sahin in February.`\
+https://nytimes.com/athletic/6445122/2025/06/26/borussia-dortmund-niko-kovac-contract-extension/
+
+**The Pulse: New superstars everywhere**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6451180/2025/06/26/cooper-flagg-dylan-harper-nba-draft-the-pulse/
+
 **2025 NBA Draft fashion review: Whose looks won the night?**\
 `Which NBA Draftees had the best fits and looks? The Athletic's experts break down the night's big fashion winners.`\
 https://nytimes.com/athletic/6450688/2025/06/26/nba-draft-fashion-style-report-card-cooper-flagg-jeremiah-fears/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6435868/2025/06/26/jake-paul-boxing-julio-cesar-cha
 **Dempsey interview: USMNT icon on Pulisic podcast drama, pay-to-play**\
 `The Hall of Famer spoke out on the big issues of the American soccer summer, highlighted by the Pulisic saga.`\
 https://nytimes.com/athletic/6448184/2025/06/26/clint-dempsey-pulisic-usmnt-podcast/
-
-**After a lottery gut punch, the Wizards pivoted, solidly, with first-rounder Tre Johnson**\
-`Johnson is the best shooter in the 2025 draft. And he'll be the Wizards' best young two guard since they took Bradley Beal third in 2012.`\
-https://nytimes.com/athletic/6452271/2025/06/26/wizards-pivot-first-rounder-tre-johnson/
-
-**Breaking Down the Massive Cuts to Science Funding**\
-`A guide to what the Trump administration is targeting, which research is being cut — and how much the world of science is about to change.`\
-https://nytimes.com/2025/06/26/podcasts/the-daily/trump-nih-science-funding.html
 
