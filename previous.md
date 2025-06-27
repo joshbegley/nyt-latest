@@ -1,3 +1,15 @@
+**Trent Alexander-Arnold on 'amazing' Real Madrid welcome and Alonso help - 'Winning trophies is what we do'**\
+`Trent Alexander-Arnold speaks about his arrival at Real Madrid and how the dressing room is not "intimidating" as he expected`\
+https://nytimes.com/athletic/6455440/2025/06/27/trent-alexander-arnold-real-madrid-welcome/
+
+**Friday Briefing**\
+`The risks of receiving aid in Gaza.`\
+https://nytimes.com/2025/06/27/briefing/aid-gaza-iran-uranium.html
+
+**Ranking the round-of-16 contenders at the Club World Cup**\
+`Breaking down the remaining teams in the Club World Cup from 1 to 16.`\
+https://nytimes.com/athletic/6455206/2025/06/27/club-world-cup-power-rankings-last-16/
+
 **Welcome to Wrexham season 4 reviewed: McElhenney's pep talk, Mullin's hurt, and Ker's nipples**\
 `What to expect from the new series – and yes, the biggest talking point is addressed`\
 https://nytimes.com/athletic/6429404/2025/06/27/welcome-to-wrexham-season-4-reviewed/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
 **Ter Stegen's situation is complex. Where does the Barca captain go from here?**\
 `Barcelona need to free up space as they are operating above their La Liga salary limit - and goalkeeper Ter Stegen is first on the exit list`\
 https://nytimes.com/athletic/6452816/2025/06/27/barcelona-marc-andre-ter-stegen-transfers/
-
-**The future of New Zealand football and an ambitious plan to host the World Cup**\
-`Auckland City's Club World Cup participation has helped put football in New Zealand in the spotlight `\
-https://nytimes.com/athletic/6453790/2025/06/27/new-zealand-auckland-city-world-cup/
-
-**Igor Jesus – The Premier League-bound Club World Cup star who last year was a nobody**\
-`The 'Little Frog' is now starring on the global stage and has a move to Nottingham Forest already agreed. Not a bad year's work for a nobody`\
-https://nytimes.com/athletic/6454650/2025/06/27/igor-jesus-botafogo-club-world-cup/
-
-**Women's Euros 2025: Guide to Group D - can England escape toughest group?**\
-`Everything you need to know about Group D at Euro 2025, featuring reigning champions England, along with France, Netherlands and Wales`\
-https://nytimes.com/athletic/6418389/2025/06/27/womens-euros-2025-group-d-guide/
 

@@ -1,3 +1,15 @@
+**Trent Alexander-Arnold on 'amazing' Real Madrid welcome and Alonso help - 'Winning trophies is what we do'**\
+`Trent Alexander-Arnold speaks about his arrival at Real Madrid and how the dressing room is not "intimidating" as he expected`\
+https://nytimes.com/athletic/6455440/2025/06/27/trent-alexander-arnold-real-madrid-welcome/
+
+**Friday Briefing**\
+`The risks of receiving aid in Gaza.`\
+https://nytimes.com/2025/06/27/briefing/aid-gaza-iran-uranium.html
+
+**Ranking the round-of-16 contenders at the Club World Cup**\
+`Breaking down the remaining teams in the Club World Cup from 1 to 16.`\
+https://nytimes.com/athletic/6455206/2025/06/27/club-world-cup-power-rankings-last-16/
+
 **Welcome to Wrexham season 4 reviewed: McElhenney's pep talk, Mullin's hurt, and Ker's nipples**\
 `What to expect from the new series – and yes, the biggest talking point is addressed`\
 https://nytimes.com/athletic/6429404/2025/06/27/welcome-to-wrexham-season-4-reviewed/
