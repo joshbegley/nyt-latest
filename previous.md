@@ -1,40 +1,40 @@
-**‘F1’ | Anatomy of a Scene**\
-`Joseph Kosinski narrates a sequence from his film, starring Brad Pitt.`\
-https://nytimes.com/video/movies/100000010252229/f1-scene.html
+**Happiness Doesn’t Have to Be a Heavy Lift**\
+`It only takes a few minutes to boost your mood.`\
+https://nytimes.com/2025/06/27/well/happiness-postivity-tiny-little-joys.html
 
-**Paul Pogba set for Monaco medical**\
-`The 32-year-old is a free agent having left Juventus by mutual consent in November 2024.`\
-https://nytimes.com/athletic/6425014/2025/06/27/monaco-paul-pogba-transfer/
+**The New York Times News Quiz, June 27, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/06/27/briefing/news-quiz-trump-mamdani.html
 
-**Vinicius Jr is smiling again - and Real Madrid can be truly excited**\
-`After a season of criticism, boos and speculation, the Brazil forward put on a show at the Club World Cup`\
-https://nytimes.com/athletic/6455491/2025/06/27/vinicius-jr-real-madrid-club-world-cup/
+**Plenty of Jews Love Zohran Mamdani**\
+`It’s been maddening to see outsiders claim that his win in the mayoral primary was a victory for antisemitism.`\
+https://nytimes.com/2025/06/27/opinion/jews-zohran-mamdani.html
 
-**Regardless of Ace Bailey's desires, Jazz made right move drafting him**\
-`The Jazz knew Bailey wouldn't do backflips if they selected him. They didn't care. They took him anyway.`\
-https://nytimes.com/athletic/6454997/2025/06/27/ace-bailey-utah-jazz-nba-draft/
+**Inside Bruce Springsteen’s 7 Lost Albums**\
+`Our chief pop critic on the music the Boss recorded, but kept locked away for decades.`\
+https://nytimes.com/2025/06/27/podcasts/inside-bruce-springsteens-7-lost-albums.html
 
-**Cuomo Doesn’t Blame Himself for Losing the Primary. Others Do.**\
-`Even some of his supporters say Andrew M. Cuomo ran an aloof campaign for mayor that underestimated his chief rival, Zohran Mamdani.`\
-https://nytimes.com/2025/06/27/nyregion/cuomo-mayor-campaign.html
+**Authorities Rescue Girl Whose Mother Livestreamed Her Sexual Abuse**\
+`The 9-year-old from Vietnam was abused by her mother for customers watching on smartphone apps in the U.S. and elsewhere. The mother said she needed the money.`\
+https://nytimes.com/2025/06/27/us/online-child-abuse.html
 
-**A Hospital Was in Critical Condition. Could $1.1 Billion Fix It?**\
-`University Hospital at Downstate in Brooklyn faces many of the problems plaguing other medical centers in New York, but the state has reversed course and is investing in it.`\
-https://nytimes.com/2025/06/27/nyregion/brooklyn-hospital-new-york-state-funding.html
+**Our State Cannot Survive This Bill**\
+`Congress’s one-size-fits-all bill doesn’t take into account the realities of life in Alaska.`\
+https://nytimes.com/2025/06/27/opinion/alaska-republican-bill-policy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/27/crosswords/spelling-bee-forum.html
+**Watch Brad Pitt Burn Rubber in ‘F1’**\
+`The director Joseph Kosinski narrates a sequence in which Pitt’s character hatches a plan different from his team during a race.`\
+https://nytimes.com/2025/06/27/movies/brad-pitt-f1-clip.html
 
-**Inside Lewis-Skelly's Arsenal contract: His role in the deal, mamba mentality and Arteta's trust**\
-`An 18-year-old presenting to senior figures is rare - but Lewis-Skelly is a rare talent, and now one of the highest-paid teenage footballers`\
-https://nytimes.com/athletic/6453003/2025/06/27/inside-myles-lewis-skelly-arsenal-contract/
+**With Flu Shot Vote, Kennedy’s Vaccine Skepticism Comes Full Circle**\
+`The preservative thimerosal started Robert F. Kennedy Jr. down the path of questioning vaccine safety. A panel of experts he appointed will no longer recommend annual flu shots that contain it.`\
+https://nytimes.com/2025/06/27/us/politics/rfk-jr-flu-vaccine-thimerosal.html
 
-**Japan Hangs Man Convicted in Serial Killings of Nine People**\
-`Takahiro Shiraishi was put to death on Friday, eight years after body parts were found in coolers at his home outside Tokyo. It was Japan’s first execution in years.`\
-https://nytimes.com/2025/06/27/world/asia/japan-serial-killer-execution.html
+**The Age-Old Question Behind the New York Mayor’s Race**\
+`What makes for a better leader: grizzled experience or a fresh face?`\
+https://nytimes.com/2025/06/27/style/mamdani-cuomo-youth-experience.html
 
-**Mike Zarren praises Celtics' draft picks, says Jaylen Brown, Derrick White 'key parts of our team'**\
-`"We got two picks tonight, both of which should be good future picks. … But that's a key part of our strategy," Zarren said.`\
-https://nytimes.com/athletic/6455511/2025/06/27/celtics-nba-draft-round-2-jaylen-brown-derrick-white/
+**Did ‘The Bear’ Bounce Back? Sort of, Chef**\
+`After a divisive previous season, the fine-dining dramedy regained some momentum. But other aspects of Season 4 might leave fans cold. Here, we recap it all.`\
+https://nytimes.com/2025/06/27/arts/television/the-bear-season-4-recap.html
 
