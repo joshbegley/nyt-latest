@@ -1,3 +1,7 @@
+**12 Days of Attacks Later, Could Iran Make an Atomic Bomb?**\
+`How an atomic weapon is built, and what the recent Israeli and U.S. attacks on Iran may mean for the country’s nuclear ambitions.`\
+https://nytimes.com/interactive/2025/06/27/world/middleeast/iran-us-nuclear-weapons.html
+
 **How to watch Lynx at Dream: Atlanta looks to play spoiler vs. WNBA's top team**\
 `With both sides coming off of disappointing losses, the Lynx and Dream are headed for a hard-fought heavyweight battle on Friday night. `\
 https://nytimes.com/athletic/6454779/2025/06/27/lynx-vs-dream-atlanta-wnba-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/business/sp-500-record-trump.html
 **Trump and Bondi Won’t Say How Birthright Citizenship Will Be Enforced**\
 `The practical effect of Friday’s decision is that birthright citizenship would end in the 28 states that have not challenged the president’s order.`\
 https://nytimes.com/2025/06/27/us/politics/birthright-bondi-trump.html
-
-**Jung Hoo Lee's slump is a symptom of the type of hitter he is — and is likely temporary**\
-`Lee is a contact hitter and hitters with his profile tend to have lots of highs and lows through a season thanks to fluctuating BABIPs.`\
-https://nytimes.com/athletic/6453908/2025/06/27/jung-hoo-lee-slump-hitting-profile/
 
