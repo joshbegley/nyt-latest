@@ -1,3 +1,7 @@
+**Angels manager Ron Washington to miss the rest of the season**\
+`The Angels announced that Washington will remain on medical leave for the rest of the season.`\
+https://nytimes.com/athletic/6457403/2025/06/27/ron-washington-angels-medical-leave-full-season/
+
 **What John Tavares' hometown discount means for the Leafs — now and later**\
 `Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6456747/2025/06/27/masai-ujiri-raptors-parted-ways-
 **Raptors' firing of Masai Ujiri leaves MLSE's priorities open to questioning**\
 `Masai Ujiri wanted nothing more than for the Raptors to win. What does that mean for the team now that he's gone?`\
 https://nytimes.com/athletic/6457075/2025/06/27/masai-ujiri-toronto-raptors-departure/
-
-**How to watch the Twins at Tigers series, with Skubal on 'Sunday Night Baseball'**\
-`The Detroit Tigers are dominant, and we're all friends with Paws the Tiger now. Here's how to watch their series vs. the Minnesota Twins.`\
-https://nytimes.com/athletic/6456452/2025/06/27/twins-tigers-skubal-sunday-night-baseball-how-to-watch/
 
