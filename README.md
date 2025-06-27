@@ -1,10 +1,18 @@
-**The Fed’s Preferred Inflation Gauge Stayed Tame in May**\
-`Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
-https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
+**Premier League TV coverage set for enhanced access, including interviews with subs**\
+`In order to keep pace with their US counterparts, British broadcasters sought increased access from the Premier League.`\
+https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-coverage-to-include-dressing-room-access-and-interviews-with-subs/
+
+**In its closing argument, the prosecution said Combs’s ‘crimes have been exposed.’**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-its-closing-argument-the-prosecution-said-combss-crimes-have-been-exposed
 
 **Why the Pac-12 is adding Texas State, how it rebuilt and next steps in realignment**\
 `Texas State is expected to become the eighth football-playing school to join the rebuilt league. `\
 https://nytimes.com/athletic/6454276/2025/06/27/texas-state-pac-12-conference-realignment/
+
+**The Fed’s Preferred Inflation Gauge Was Slightly Hotter in May**\
+`Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
+https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
 
 **Teenager Is Charged in 2024 Plot to Attack Taylor Swift Concert in Vienna**\
 `The youth, a Syrian who lives in Germany, was accused of helping to interpret bomb-building instructions and of translating an oath of allegiance to the Islamic State for the main suspect.`\
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6455565/2025/06/27/2025-nba-draft-pelicans-yang-han
 https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team
 
 **Listen: England's three standout players at the Under-21 Euros so far**\
-`England reached their second consecutive Under-21 European Championship final, and will face Germany in Saturday's showpiece`\
+`England reached their second consecutive Under-21 European Championship final, where they will face Germany in Saturday's showpiece`\
 https://nytimes.com/athletic/6455650/2025/06/27/totally-football-show-england-under21s/
 
 **75 years of F1? Not quite: How the magic of 1950 gave way to an identity crisis**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6451034/2025/06/27/f1-lost-seasons/
 **What Business Is Watching in Negotiations Over Big Policy Bill**\
 `Senate Republicans are debating changes to the legislation, after a key official rejected some proposals. Time is ticking for hitting President Trump’s deadline.`\
 https://nytimes.com/2025/06/27/business/dealbook/trump-republicans-bill-parliamentarian.html
-
-**Who is Cassie, and what did she say on the stand?**\
-`By Caryn Ganz`\
-https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/who-is-cassie-and-what-did-she-say-on-the-stand
-
-**Israel’s Defense Minister Vows ‘Policy of Enforcement’ Against Iran**\
-`The minister, Israel Katz, said Israel would strike if Iran seeks to develop long-range missiles or advance its nuclear program, despite a truce.`\
-https://nytimes.com/2025/06/27/world/europe/israel-iran-enforcement-policy.html
 

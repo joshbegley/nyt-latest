@@ -1,3 +1,11 @@
+**The Fed’s Preferred Inflation Gauge Stayed Tame in May**\
+`Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
+https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
+
+**Why the Pac-12 is adding Texas State, how it rebuilt and next steps in realignment**\
+`Texas State is expected to become the eighth football-playing school to join the rebuilt league. `\
+https://nytimes.com/athletic/6454276/2025/06/27/texas-state-pac-12-conference-realignment/
+
 **Teenager Is Charged in 2024 Plot to Attack Taylor Swift Concert in Vienna**\
 `The youth, a Syrian who lives in Germany, was accused of helping to interpret bomb-building instructions and of translating an oath of allegiance to the Islamic State for the main suspect.`\
 https://nytimes.com/2025/06/27/world/europe/taylor-swift-concert-attack-vienna-charges.html
