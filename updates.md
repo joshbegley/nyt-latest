@@ -1,3 +1,19 @@
+**Raptors' Masai Ujiri out as vice chairman and president**\
+`The Raptors hired Ujiri in 2013, the same year he won the 2013 NBA Executive of the Year award.`\
+https://nytimes.com/athletic/6456136/2025/06/27/raptors-masai-ujiri-out-as-vice-chairman-president/
+
+**Read the Supreme Court Decision in the Birthright Citizenship Case**\
+`In the citizenship case, the justices voted 6-3, with the liberals in dissent, to limit the lower-courts’ preliminary injunctions to each plaintiff with standing to sue.`\
+https://nytimes.com/interactive/2025/06/27/us/politics/supreme-court-ruling-birthright-citizenship.html
+
+**Canadiens, Blue Jackets finalists in trade talks for Islanders' Noah Dobson: Sources**\
+`Dobson wishes to join a team on the upswing toward contention, and both of those landing spots are viewed as favorable.`\
+https://nytimes.com/athletic/6456232/2025/06/27/noah-dobson-trade-canadiens-blue-jackets-islanders/
+
+**Live Updates: Supreme Court Uses Birthright Citizenship Case to Limit Use of Nationwide Injunctions**\
+`The justices found federal judges had exceeded their power by issuing temporary pauses on President Trump’s order ending birthright citizenship. But they made no ruling on the constitutionality of the order itself.`\
+https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court
+
 **How the Birthright Citizenship and Nationwide Injunctions Case Began**\
 `The dispute before the court was prompted by an order President Trump signed on his first day back in the White House.`\
 https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-nationwide-injunctions.html

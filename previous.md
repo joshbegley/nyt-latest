@@ -1,3 +1,11 @@
+**Raptors' Masai Ujiri out as vice chairman and president**\
+`The Raptors hired Ujiri in 2013, the same year he won the 2013 NBA Executive of the Year award.`\
+https://nytimes.com/athletic/6456136/2025/06/27/raptors-masai-ujiri-out-as-vice-chairman-president/
+
+**Read the Supreme Court Decision in the Birthright Citizenship Case**\
+`In the citizenship case, the justices voted 6-3, with the liberals in dissent, to limit the lower-courts’ preliminary injunctions to each plaintiff with standing to sue.`\
+https://nytimes.com/interactive/2025/06/27/us/politics/supreme-court-ruling-birthright-citizenship.html
+
 **How the Birthright Citizenship and Nationwide Injunctions Case Began**\
 `The dispute before the court was prompted by an order President Trump signed on his first day back in the White House.`\
 https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-nationwide-injunctions.html
@@ -11,7 +19,7 @@ https://nytimes.com/2025/06/27/obituaries/rick-hurst-dead.html
 https://nytimes.com/2025/06/27/world/europe/uk-palestine-action-arrests-terrorism-law.html
 
 **Canadiens, Blue Jackets finalists in trade talks for Islanders' Noah Dobson: Sources**\
-`It is Dobson's wish to join a team on the upswing toward contention, and both of those landing spots are viewed as favorable.`\
+`Dobson wishes to join a team on the upswing toward contention, and both of those landing spots are viewed as favorable.`\
 https://nytimes.com/athletic/6456232/2025/06/27/noah-dobson-trade-canadiens-blue-jackets-islanders/
 
 **Here’s the latest.**\
@@ -22,19 +30,11 @@ https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/here
 `By Amy Qin`\
 https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/the-original-case-that-established-birthright-citizenship-was-decided-in-1898
 
-**Live Updates: Supreme Court Releases Decision in Birthright Citizenship Case**\
-`The justices had heard arguments on whether federal judges exceeded their power by issuing temporary nationwide pauses on President Trump’s order ending birthright citizenship.`\
+**Live Updates: Supreme Court Uses Birthright Citizenship Case to Limit Use of Nationwide Injunctions**\
+`The justices found federal judges had exceeded their power by issuing temporary pauses on President Trump’s order ending birthright citizenship. But they made no ruling on the constitutionality of the order itself.`\
 https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court
 
 **Coleman signs new Everton contract, set for 17th year at club**\
 `Coleman's extended terms sees him enter a 17th season with Everton, and he will captain the club as they move to the Hill Dickinson Stadium.`\
 https://nytimes.com/athletic/6456178/2025/06/27/everton-seamus-coleman-contract-new/
-
-**Book Club: Read ‘The Catch,’ by Yrsa Daley-Ward, with the Book Review**\
-`In July, the Book Review Book Club will read and discuss “The Catch,” a psychological thriller about twin sisters and their mother, whom they had presumed dead.`\
-https://nytimes.com/2025/06/27/books/review/the-catch-yrsa-daley-ward-book-club.html
-
-**Bucks hoped Bogoljub Marković would fall to them at No. 47: 'Crossing our fingers'**\
-`For the second consecutive season, the Bucks used their second-round pick on a teenager with upside and potential.`\
-https://nytimes.com/athletic/6454773/2025/06/27/bucks-draft-bogoljub-markovic/
 
