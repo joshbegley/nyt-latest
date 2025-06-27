@@ -1,3 +1,8 @@
+**What John Tavares' hometown discount means for the Leafs — now and later**\
+`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
+`\
+https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
+
 **Angels manager Ron Washington to miss the rest of the season**\
 `The Angels announced that Washington will remain on medical leave for the rest of the season.`\
 https://nytimes.com/athletic/6457403/2025/06/27/ron-washington-angels-medical-leave-full-season/
