@@ -1,3 +1,11 @@
+**Comparing How the House and Senate Bills Deliver on Trump’s Agenda**\
+`A look at some of the key provisions in Republicans' domestic policy bill and where the two chambers are divided.`\
+https://nytimes.com/interactive/2025/06/27/us/politics/house-senate-bill-trump-agenda-comparison.html
+
+**Panthers re-sign Sam Bennett to 8-year, $8 million AAV contract extension: Source**\
+`A pivotal player for the Panthers’ back-to-back Stanley Cup championship teams, Bennett won the 2025 Conn Smythe Trophy as postseason MVP.`\
+https://nytimes.com/athletic/6450716/2025/06/27/panthers-sam-bennett-contract-extension-nhl/
+
 **Why a Bill Nobody Loves Feels Inevitable**\
 `President Trump’s megabill makes many Republicans uncomfortable, but that probably won’t stop it from becoming law.`\
 https://nytimes.com/2025/06/27/us/politics/republicans-trump-big-beautiful-bill.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6457403/2025/06/27/ron-washington-angels-medical-le
 `Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
 `\
 https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
-
-**‘I’ve Basically Lost Everything’: The Aftermath of the 12-Day War**\
-`Mohsen Naghib-Hashemi, a graphic designer from Tehran, said his home and car were significantly damaged during the fighting between Israel and Iran. He described to The New York Times the challenges he faces in rebuilding his life.`\
-https://nytimes.com/video/world/middleeast/100000010252314/tehran-damage-war-israel.html
-
-**The Supreme Court Limited the Use of Nationwide Injunctions**\
-`Also, U.Va.’s president resigned under pressure from the Trump administration. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/06/27/briefing/supreme-court-virginia-president-resignation.html
 
