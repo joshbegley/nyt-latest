@@ -1,3 +1,7 @@
+**She Ripped German Conservatives on Social Media. They Didn’t Forget.**\
+`Heidi Reichinnek, a leader of the far-left Die Linke, was denied a seat on the parliamentary committee that oversees German intelligence agencies.`\
+https://nytimes.com/2025/06/27/world/europe/heidi-reichinnek-linke-germany.html
+
 **The Senate Should Let Trump’s Bill Die**\
 `Debt payments already exceed military spending. The president’s bill will make things worse.`\
 https://nytimes.com/2025/06/27/opinion/trump-budget-big-beautiful-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6454598/2025/06/27/blue-jackets-nhl-draft-2025/
 **Jets' Kevin Cheveldayoff talks draft, Nikolaj Ehlers, Jonathan Toews: 5 things we learned**\
 `Is Winnipeg still in dialogue with Ehlers? "We'll continue to have conversations until we can't," Cheveldayoff said.`\
 https://nytimes.com/athletic/6453749/2025/06/27/jets-gm-kevin-cheveldayoff-nhl-draft-nikolaj-ehlers-jonathan-toews/
-
-**Sabres NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Sabres' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6441026/2025/06/27/sabres-draft-picks-grades-2025/
 
