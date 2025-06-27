@@ -1,3 +1,11 @@
+**Welcome to Wrexham season 4 reviewed: McElhenney's pep talk, Mullin's hurt, and Ker's nipples**\
+`What to expect from the new series – and yes, the biggest talking point is addressed`\
+https://nytimes.com/athletic/6429404/2025/06/27/welcome-to-wrexham-season-4-reviewed/
+
+**After starting every U21 Euros match, will James Beadle seek a future beyond Brighton's bench?**\
+`Brighton's goalkeeping department is congested. Is it holding back the 20-year-old?`\
+https://nytimes.com/athletic/6445048/2025/06/27/james-beadle-brighton-future/
+
 **Euro 2025: England team guide - what can we expect from the defending champions?**\
 `From players to watch to pedigree and much more, we set out what to expect from Sarina Wiegman's side at the European Championship`\
 https://nytimes.com/athletic/6421430/2025/06/27/england-team-guide-euro-2025/
