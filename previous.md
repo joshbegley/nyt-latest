@@ -1,3 +1,11 @@
+**Jeff Bezos and Lauren Sanchez Tie the Knot**\
+`The bride announced the marriage on Friday night in an Instagram post under the name Lauren Sanchez Bezos.`\
+https://nytimes.com/2025/06/27/world/europe/jeff-bezos-lauren-sanchez-married.html
+
+**Freddy Gaudreau shocked by trade to Kraken but grateful for 'beautiful chapter' with Wild**\
+`A day after being traded, Gaudreau opened up to The Athletic on getting to play for the Wild and their fans: “It’s a special place to play."`\
+https://nytimes.com/athletic/6457304/2025/06/27/freddy-gaudreau-wild-trade-kraken/
+
 **Angels manager Ron Washington to miss the rest of the season**\
 `The Angels announced that Washington will remain on medical leave for the rest of the season.`\
 https://nytimes.com/athletic/6457403/2025/06/27/ron-washington-angels-medical-leave-full-season/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/27/arts/music/jack-kleinsinger-dead.html
 **Trade grades: Blue Jackets pay high price, let Avalanche off the hook in Charlie Coyle deal**\
 `This is an unbelievably good move for the Avalanche, who cleared $7.75 million in cap space and could be unexpected players in free agency.`\
 https://nytimes.com/athletic/6457196/2025/06/27/charlie-coyle-trade-grades-nhl-blue-jackets-avalanche/
-
-**Masai Ujiri and the Raptors have split, but their success will impact Toronto forever**\
-`The Raptors have been seeking a new direction for a while, but their peaks with Masai Ujiri will remain etched in NBA history`\
-https://nytimes.com/athletic/6456747/2025/06/27/masai-ujiri-raptors-parted-ways-nba-timeline/
-
-**Raptors' firing of Masai Ujiri leaves MLSE's priorities open to questioning**\
-`Masai Ujiri wanted nothing more than for the Raptors to win. What does that mean for the team now that he's gone?`\
-https://nytimes.com/athletic/6457075/2025/06/27/masai-ujiri-toronto-raptors-departure/
 

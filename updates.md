@@ -1,3 +1,16 @@
+**Jeff Bezos and Lauren Sanchez Tie the Knot**\
+`The bride announced the marriage on Friday night in an Instagram post under the name Lauren Sanchez Bezos.`\
+https://nytimes.com/2025/06/27/world/europe/jeff-bezos-lauren-sanchez-married.html
+
+**Freddy Gaudreau shocked by trade to Kraken but grateful for 'beautiful chapter' with Wild**\
+`A day after being traded, Gaudreau opened up to The Athletic on getting to play for the Wild and their fans: “It’s a special place to play."`\
+https://nytimes.com/athletic/6457304/2025/06/27/freddy-gaudreau-wild-trade-kraken/
+
+**What John Tavares' hometown discount means for the Leafs — now and later**\
+`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
+`\
+https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
+
 **What John Tavares' hometown discount means for the Leafs — now and later**\
 `Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
 `\
