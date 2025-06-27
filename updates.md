@@ -1,3 +1,7 @@
+**Quote of the Day: Earth Is Being Cooked at a Quickening Pace**\
+`Quotation of the Day for Friday, June 27, 2025.`\
+https://nytimes.com/2025/06/26/pageoneplus/quote-of-the-day-earth-is-being-cooked-at-a-quickening-pace.html
+
 **WNBA expansion team in Portland fires president Inky Son: Reports**\
 `New team's top employee, who was hired April 1, is out less than three months later. The team begins play in 2026.`\
 https://nytimes.com/athletic/6455288/2025/06/26/portland-wnba-expansion-team-fires-president/
