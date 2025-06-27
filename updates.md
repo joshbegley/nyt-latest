@@ -1,3 +1,7 @@
+**Word of the Day: tchotchke**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/27/learning/word-of-the-day-tchotchke.html
+
 **Pep Guardiola and the age of football amnesia**\
 `Is the abundance of games and competitions affecting our ability to remember what actually happened?`\
 https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
