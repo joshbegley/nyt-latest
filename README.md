@@ -1,3 +1,19 @@
+**Cuomo Doesn’t Blame Himself for Losing the Primary. Others Do.**\
+`Even some of his supporters say Andrew M. Cuomo ran an aloof campaign for mayor that underestimated his chief rival, Zohran Mamdani.`\
+https://nytimes.com/2025/06/27/nyregion/cuomo-mayor-campaign.html
+
+**A Hospital Was in Critical Condition. Could $1.1 Billion Fix It?**\
+`University Hospital at Downstate in Brooklyn faces many of the problems plaguing other medical centers in New York, but the state has reversed course and is investing in it.`\
+https://nytimes.com/2025/06/27/nyregion/brooklyn-hospital-new-york-state-funding.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/27/crosswords/spelling-bee-forum.html
+
+**Inside Lewis-Skelly's Arsenal contract: His role in the deal, mamba mentality and Arteta's trust**\
+`An 18-year-old presenting to senior figures is rare - but Lewis-Skelly is a rare talent, and now one of the highest-paid teenage footballers`\
+https://nytimes.com/athletic/6453003/2025/06/27/inside-myles-lewis-skelly-arsenal-contract/
+
 **Japan Hangs Man Convicted in Serial Killings of Nine People**\
 `Takahiro Shiraishi was put to death on Friday, eight years after body parts were found in coolers at his home outside Tokyo. It was Japan’s first execution in years.`\
 https://nytimes.com/2025/06/27/world/asia/japan-serial-killer-execution.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
 **Israel Has Proved Its Military Might. It’s Not Enough.**\
 `This is the moment for Israel to move on from intense military operations to political statecraft.`\
 https://nytimes.com/2025/06/27/opinion/israel-iran-statesman-diplomacy-war.html
-
-**The New York Times in Print for Friday, June 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/27/todays-new-york-times
-
-**Trent Alexander-Arnold on 'amazing' Real Madrid welcome and Alonso help - 'Winning trophies is what we do'**\
-`Trent Alexander-Arnold speaks about his arrival at Real Madrid and how the dressing room is not "intimidating" as he expected`\
-https://nytimes.com/athletic/6455440/2025/06/27/trent-alexander-arnold-real-madrid-welcome/
-
-**Friday Briefing**\
-`The risks of receiving aid in Gaza.`\
-https://nytimes.com/2025/06/27/briefing/aid-gaza-iran-uranium.html
-
-**Ranking the round-of-16 contenders at the Club World Cup**\
-`Breaking down the remaining teams in the Club World Cup from 1 to 16.`\
-https://nytimes.com/athletic/6455206/2025/06/27/club-world-cup-power-rankings-last-16/
 
