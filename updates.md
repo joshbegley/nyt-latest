@@ -1,3 +1,7 @@
+**Emma Hayes' 'astronomical' year as USWNT head coach - but this is only the first step**\
+`Bookended by two 4-0 wins in Colorado, Hayes has got the USWNT 'back on track' and there's more room to grow`\
+https://nytimes.com/athletic/6455675/2025/06/27/uswnt-emma-hayes-year-coach/
+
 **Finding Happily Ever After in a Snowstorm in June**\
 `After their wedding was spotted on a webcam, pictures of Jamie and Chris DeBruhl getting married at a mountain resort in Montana spread quickly online.`\
 https://nytimes.com/2025/06/27/weather/montana-wedding-snowstorm.html
