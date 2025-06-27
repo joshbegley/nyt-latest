@@ -1,3 +1,11 @@
+**Finding Happily Ever After in a Snowstorm in June**\
+`After their wedding was spotted on a webcam, pictures of Jamie and Chris DeBruhl getting married at a mountain resort in Montana spread quickly online.`\
+https://nytimes.com/2025/06/27/weather/montana-wedding-snowstorm.html
+
+**The New York Times International Edition in Print for Saturday, June 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/27/todays-new-york-times-international-edition
+
 **Inside Van Nistelrooy's Leicester demise: A damaging tenure for club and manager**\
 `How a disastrous spell in charge led to relegation, unwanted records and reputations in tatters`\
 https://nytimes.com/athletic/6272096/2025/06/27/ruud-van-nistelrooy-leicester-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/podcasts/inside-bruce-springsteens-7-lost-albums.
 **Authorities Rescue Girl Whose Mother Livestreamed Her Sexual Abuse**\
 `The 9-year-old from Vietnam was abused by her mother for customers watching on smartphone apps in the U.S. and elsewhere. The mother said she needed the money.`\
 https://nytimes.com/2025/06/27/us/online-child-abuse.html
-
-**Our State Cannot Survive This Bill**\
-`Congress’s one-size-fits-all bill doesn’t take into account the realities of life in Alaska.`\
-https://nytimes.com/2025/06/27/opinion/alaska-republican-bill-policy.html
-
-**Watch Brad Pitt Burn Rubber in ‘F1’**\
-`The director Joseph Kosinski narrates a sequence in which Pitt’s character hatches a plan different from his team during a race.`\
-https://nytimes.com/2025/06/27/movies/brad-pitt-f1-clip.html
 
