@@ -1,3 +1,7 @@
+**The Century’s Best Movies**\
+`We compiled the list by polling more than 500 people in and around the film industry.`\
+https://nytimes.com/2025/06/27/briefing/the-centurys-best-movies.html
+
 **The West End’s Hottest Seats: The Piles of Trash Outside ‘Evita’**\
 `Crowds are converging outside the London Palladium to watch Rachel Zegler sing “Don’t Cry for Me Argentina” from a balcony — while paying theatergoers inside see it on a screen.`\
 https://nytimes.com/2025/06/27/theater/evita-balcony-rachel-zegler.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455416/2025/06/27/braves-takeaways-ronald-acuna-jr
 **Don't let the Wings' record fool you: Paige Bueckers' rookie season is phenomenal**\
 `Caitlin Clark's historic rookie outing last season also shouldn't dim Bueckers' debut WNBA campaign.`\
 https://nytimes.com/athletic/6454487/2025/06/27/paige-bueckers-dallas-wings-rookie-season-wnba/
-
-**Blues NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Blues' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6442077/2025/06/27/blues-draft-picks-grades-2025/
 

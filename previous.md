@@ -1,3 +1,11 @@
+**The West End’s Hottest Seats: The Piles of Trash Outside ‘Evita’**\
+`Crowds are converging outside the London Palladium to watch Rachel Zegler sing “Don’t Cry for Me Argentina” from a balcony — while paying theatergoers inside see it on a screen.`\
+https://nytimes.com/2025/06/27/theater/evita-balcony-rachel-zegler.html
+
+**MLB notes: Globe Life Field has turned into a hitter's nightmare and the Rangers don't know why**\
+`Plus some trade deadline items on the Marlins, Brewers and Pirates, as well as a look at Juan Soto's increasing stolen base numbers.`\
+https://nytimes.com/athletic/6455108/2025/06/27/texas-rangers-globe-life-hitters-marlins-pirates/
+
 **Weird & Wild: Cal Raleigh vs. catching greats, powerful pitchers, and oh no Orioles!**\
 `It’s time to talk about that catcher in Seattle who is breaking baseball … and also baseballs.`\
 https://nytimes.com/athletic/6455231/2025/06/27/cal-raleigh-catching-history-baltiomre-orioles-june/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6454487/2025/06/27/paige-bueckers-dallas-wings-rook
 **Blues NHL Draft guide: Picks, best fits and analysis**\
 `Corey Pronman evaluates the Blues' picks at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6442077/2025/06/27/blues-draft-picks-grades-2025/
-
-**Sacramento State wants to join the party. It will have to do it the hard way, though**\
-`It has money, buzz, Mike Bibby and even Shaq. But does Sacramento State have what it takes to get to the next level?`\
-https://nytimes.com/athletic/6454456/2025/06/27/sacramento-state-college-football-fbs/
-
-**Kings NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Kings' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6441185/2025/06/27/kings-draft-picks-grades-2025/
 

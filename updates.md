@@ -1,3 +1,11 @@
+**The West End’s Hottest Seats: The Piles of Trash Outside ‘Evita’**\
+`Crowds are converging outside the London Palladium to watch Rachel Zegler sing “Don’t Cry for Me Argentina” from a balcony — while paying theatergoers inside see it on a screen.`\
+https://nytimes.com/2025/06/27/theater/evita-balcony-rachel-zegler.html
+
+**MLB notes: Globe Life Field has turned into a hitter's nightmare and the Rangers don't know why**\
+`Plus some trade deadline items on the Marlins, Brewers and Pirates, as well as a look at Juan Soto's increasing stolen base numbers.`\
+https://nytimes.com/athletic/6455108/2025/06/27/texas-rangers-globe-life-hitters-marlins-pirates/
+
 **Weird & Wild: Cal Raleigh vs. catching greats, powerful pitchers, and oh no Orioles!**\
 `It’s time to talk about that catcher in Seattle who is breaking baseball … and also baseballs.`\
 https://nytimes.com/athletic/6455231/2025/06/27/cal-raleigh-catching-history-baltiomre-orioles-june/
