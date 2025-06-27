@@ -1,3 +1,7 @@
+**Regardless of Ace Bailey's desires, Jazz made right move drafting him**\
+`The Jazz knew Bailey wouldn't do backflips if they selected him. They didn't care. They took him anyway.`\
+https://nytimes.com/athletic/6454997/2025/06/27/ace-bailey-utah-jazz-nba-draft/
+
 **Cuomo Doesn’t Blame Himself for Losing the Primary. Others Do.**\
 `Even some of his supporters say Andrew M. Cuomo ran an aloof campaign for mayor that underestimated his chief rival, Zohran Mamdani.`\
 https://nytimes.com/2025/06/27/nyregion/cuomo-mayor-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/learning/word-of-the-day-tchotchke.html
 **Pep Guardiola and the age of football amnesia**\
 `Is the abundance of games and competitions affecting our ability to remember what actually happened?`\
 https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
-
-**Israel Has Proved Its Military Might. It’s Not Enough.**\
-`This is the moment for Israel to move on from intense military operations to political statecraft.`\
-https://nytimes.com/2025/06/27/opinion/israel-iran-statesman-diplomacy-war.html
 
