@@ -1,3 +1,7 @@
+**Iran’s Foreign Minister Says Nuclear Facilities ‘Seriously Damaged’**\
+`The assessment came hours after the country’s supreme leader had downplayed the damage the U.S. strikes had caused.`\
+https://nytimes.com/2025/06/26/world/middleeast/iran-foreign-minister-nuclear-facilities-seriously-damaged.html
+
 **Right-wing Republicans in Congress attack Mamdani with racist comments.**\
 `The responses to Zohran Mamdani’s showing in the New York City mayoral primary were the latest examples of how some G.O.P. lawmakers have grown more overt in using bigoted language and tropes.`\
 https://nytimes.com/live/2025/06/26/us/trump-news/right-wing-republicans-in-congress-attack-mamdani-with-racist-comments

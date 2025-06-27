@@ -1,3 +1,7 @@
+**Iran’s Foreign Minister Says Nuclear Facilities ‘Seriously Damaged’**\
+`The assessment came hours after the country’s supreme leader had downplayed the damage the U.S. strikes had caused.`\
+https://nytimes.com/2025/06/26/world/middleeast/iran-foreign-minister-nuclear-facilities-seriously-damaged.html
+
 **Right-wing Republicans in Congress attack Mamdani with racist comments.**\
 `The responses to Zohran Mamdani’s showing in the New York City mayoral primary were the latest examples of how some G.O.P. lawmakers have grown more overt in using bigoted language and tropes.`\
 https://nytimes.com/live/2025/06/26/us/trump-news/right-wing-republicans-in-congress-attack-mamdani-with-racist-comments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6454808/2025/06/26/dodgers-stock-pitching-depth-lef
 **Cardinals remain committed to Andre Pallante in rotation despite inconsistences**\
 `Pallante clawed through five innings of two-run ball in the Cardinals' 3-0 loss in Thursday's series finale against the Chicago Cubs.`\
 https://nytimes.com/athletic/6453892/2025/06/26/cardinals-andre-pallante-rotation/
-
-**Canadiens' desire to improve at the draft takes back seat to avoiding critical mistakes**\
-`The Canadiens have hopes and ambitions for the NHL Draft, but market forces may dictate further patience is required in the rebuild. `\
-https://nytimes.com/athletic/6454833/2025/06/26/canadiens-2025-nhl-draft-picks/
 
