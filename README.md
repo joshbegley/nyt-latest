@@ -1,5 +1,21 @@
-**Jeff Bezos and Lauren Sanchez Tie the Knot**\
-`The bride announced the marriage on Friday night in an Instagram post under the name Lauren Sanchez Bezos.`\
+**Why a Bill Nobody Loves Feels Inevitable**\
+`President Trump’s megabill makes many Republicans uncomfortable, but that probably won’t stop it from becoming law.`\
+https://nytimes.com/2025/06/27/us/politics/republicans-trump-big-beautiful-bill.html
+
+**Diana Oh, Passionate Voice for Queer Liberation in Theater, Dies at 38**\
+`Mx. Oh’s politically provocative and often playful works, including the Off Broadway production “{my lingerie play},” asserted the right to be oneself while having fun.`\
+https://nytimes.com/2025/06/27/theater/diana-oh-dead.html
+
+**Max Fink, Champion of Electroconvulsive Therapy, Dies at 102**\
+`As a psychiatry resident, he became convinced of the benefits of ECT. But he spent years battling detractors and a misleading pop-culture depiction of the procedure.`\
+https://nytimes.com/2025/06/27/science/max-fink-dead.html
+
+**Portland WNBA hires Clare Hamill as interim president after firing Inky Son**\
+`Hamill replaces Inky Son, Portland’s first president, whom the franchise hired in April but is out of the job less than three months later.`\
+https://nytimes.com/athletic/6457224/2025/06/27/portland-wnba-clare-hamill-nike-inky-son/
+
+**Jeff Bezos and Lauren Sánchez Tie the Knot**\
+`The bride announced the marriage on Friday night in an Instagram post under the name Lauren Sánchez Bezos.`\
 https://nytimes.com/2025/06/27/world/europe/jeff-bezos-lauren-sanchez-married.html
 
 **Freddy Gaudreau shocked by trade to Kraken but grateful for 'beautiful chapter' with Wild**\
@@ -22,20 +38,4 @@ https://nytimes.com/video/world/middleeast/100000010252314/tehran-damage-war-isr
 **The Supreme Court Limited the Use of Nationwide Injunctions**\
 `Also, U.Va.’s president resigned under pressure from the Trump administration. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/06/27/briefing/supreme-court-virginia-president-resignation.html
-
-**Cocaine Is the Fastest-Growing Illegal Drug Worldwide. Here’s Why.**\
-`A United Nations report found a rise in users, confiscation and deaths as cocaine trafficking expands into Africa and Asia, and violence spreads into Europe.`\
-https://nytimes.com/2025/06/27/world/americas/cocaine-drug-market.html
-
-**Room for One More on Mount Rushmore? (The President Wants to Know)**\
-`Let’s review how we got here, and closely examine what the rock would allow.`\
-https://nytimes.com/interactive/2025/06/27/us/mount-rushmore-trump.html
-
-**Jack Kleinsinger, Impresario Behind a Marathon Jazz Series, Dies at 88**\
-`A lawyer by day, he created Highlights in Jazz, bringing together artists both famous and unknown in more than 300 concerts over 50 years.`\
-https://nytimes.com/2025/06/27/arts/music/jack-kleinsinger-dead.html
-
-**Trade grades: Blue Jackets pay high price, let Avalanche off the hook in Charlie Coyle deal**\
-`This is an unbelievably good move for the Avalanche, who cleared $7.75 million in cap space and could be unexpected players in free agency.`\
-https://nytimes.com/athletic/6457196/2025/06/27/charlie-coyle-trade-grades-nhl-blue-jackets-avalanche/
 
