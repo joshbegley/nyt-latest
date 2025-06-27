@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Ben Sisario, Julia Jacobs and Joe Coscarelli`\
+https://nytimes.com/2025/06/27/arts/music/heres-the-latest.html
+
+**Starmer Backtracks on Planned Social Cuts, Raising Doubts About His Leadership**\
+`The British prime minister had pressed ahead with the proposal despite pushback from within his party, but a parliamentary vote on it was expected to fail.`\
+https://nytimes.com/2025/06/27/world/europe/uk-starmer-welfare-reversal.html
+
 **She Ripped German Conservatives on Social Media. They Didn’t Forget.**\
 `Heidi Reichinnek, a leader of the far-left Die Linke, was denied a seat on the parliamentary committee that oversees German intelligence agencies.`\
 https://nytimes.com/2025/06/27/world/europe/heidi-reichinnek-linke-germany.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6453684/2025/06/27/yankees-prospects-spencer-jones-
 **At annual Sack Summit, Maxx Crosby stresses Raiders have 'a lot of work to do'**\
 `As the four-time Pro Bowler discussed the tricks of the pass-rush trade, he re-emphasized the Raiders' top priority in 2025: Just win, baby.`\
 https://nytimes.com/athletic/6454694/2025/06/27/maxx-crosby-raiders-sack-summit-las-vegas/
-
-**Blue Jackets want offseason upgrades to start taking shape at NHL Draft**\
-`"I'm still pretty confident that something's going to break here," GM Don Waddell said of trade possibilities.`\
-https://nytimes.com/athletic/6454598/2025/06/27/blue-jackets-nhl-draft-2025/
-
-**Jets' Kevin Cheveldayoff talks draft, Nikolaj Ehlers, Jonathan Toews: 5 things we learned**\
-`Is Winnipeg still in dialogue with Ehlers? "We'll continue to have conversations until we can't," Cheveldayoff said.`\
-https://nytimes.com/athletic/6453749/2025/06/27/jets-gm-kevin-cheveldayoff-nhl-draft-nikolaj-ehlers-jonathan-toews/
 

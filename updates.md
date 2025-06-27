@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Ben Sisario, Julia Jacobs and Joe Coscarelli`\
+https://nytimes.com/2025/06/27/arts/music/heres-the-latest.html
+
+**Starmer Backtracks on Planned Social Cuts, Raising Doubts About His Leadership**\
+`The British prime minister had pressed ahead with the proposal despite pushback from within his party, but a parliamentary vote on it was expected to fail.`\
+https://nytimes.com/2025/06/27/world/europe/uk-starmer-welfare-reversal.html
+
 **She Ripped German Conservatives on Social Media. They Didn’t Forget.**\
 `Heidi Reichinnek, a leader of the far-left Die Linke, was denied a seat on the parliamentary committee that oversees German intelligence agencies.`\
 https://nytimes.com/2025/06/27/world/europe/heidi-reichinnek-linke-germany.html
