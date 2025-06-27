@@ -1,3 +1,7 @@
+**Quote of the Day: Earth Is Being Cooked at a Quickening Pace**\
+`Quotation of the Day for Friday, June 27, 2025.`\
+https://nytimes.com/2025/06/26/pageoneplus/quote-of-the-day-earth-is-being-cooked-at-a-quickening-pace.html
+
 **WNBA expansion team in Portland fires president Inky Son: Reports**\
 `New team's top employee, who was hired April 1, is out less than three months later. The team begins play in 2026.`\
 https://nytimes.com/athletic/6455288/2025/06/26/portland-wnba-expansion-team-fires-president/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/us/politics/harvard-subpoena-house-judiciary.html
 **Giants reach midpoint of season in good position but not in good head space**\
 `San Francisco has a winning record but was just swept at home by the Miami Marlins.`\
 https://nytimes.com/athletic/6455079/2025/06/26/giants-midpoint-swept-by-marlins/
-
-**The Best Movies of the 21st Century: What to Watch**\
-`For your next movie night, our list of the 100 best films of this century makes a terrific resource. But how do you narrow it down?`\
-https://nytimes.com/interactive/2025/movies/21st-century-movie-watch-next.html
 
