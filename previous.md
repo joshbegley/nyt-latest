@@ -1,3 +1,11 @@
+**Harvey Milk’s Name Is Stripped from U.S. Navy Vessel**\
+`Defense Secretary Pete Hegseth said the decision to rename the replenishment vessel was “taking the politics out of ship naming.”`\
+https://nytimes.com/2025/06/27/us/politics/usns-harvey-milk-navy-ship-name-hegseth.html
+
+**Wimbledon draw: Djokovic's path to history, Sabalenka's tough quarter and grass-court floaters**\
+`The Wimbledon draw keeps Novak Djokovic and Carlos Alcaraz apart, while women's world No. 1 Aryna Sabalenka has a tough section.`\
+https://nytimes.com/athletic/6455726/2025/06/27/wimbledon-draw-djokovic-alcaraz-sabalenka-gauff/
+
 **Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 4 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
 https://nytimes.com/2025/06/27/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6454276/2025/06/27/texas-state-pac-12-conference-re
 **The Fed’s Preferred Inflation Gauge Was Slightly Hotter in May**\
 `Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
 https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
-
-**Teenager Is Charged in 2024 Plot to Attack Taylor Swift Concert in Vienna**\
-`The youth, a Syrian who lives in Germany, was accused of helping to interpret bomb-building instructions and of translating an oath of allegiance to the Islamic State for the main suspect.`\
-https://nytimes.com/2025/06/27/world/europe/taylor-swift-concert-attack-vienna-charges.html
-
-**Sizing up the best, worst and weirdest moves of the 2025 NBA Draft: Hollinger**\
-`Portland taking Yang Hansen? Nets using all five picks? What are the Pelicans doing? John Hollinger breaks down the 2025 NBA Draft.`\
-https://nytimes.com/athletic/6455565/2025/06/27/2025-nba-draft-pelicans-yang-hansen-nets/
 

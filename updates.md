@@ -1,3 +1,11 @@
+**Harvey Milk’s Name Is Stripped from U.S. Navy Vessel**\
+`Defense Secretary Pete Hegseth said the decision to rename the replenishment vessel was “taking the politics out of ship naming.”`\
+https://nytimes.com/2025/06/27/us/politics/usns-harvey-milk-navy-ship-name-hegseth.html
+
+**Wimbledon draw: Djokovic's path to history, Sabalenka's tough quarter and grass-court floaters**\
+`The Wimbledon draw keeps Novak Djokovic and Carlos Alcaraz apart, while women's world No. 1 Aryna Sabalenka has a tough section.`\
+https://nytimes.com/athletic/6455726/2025/06/27/wimbledon-draw-djokovic-alcaraz-sabalenka-gauff/
+
 **Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 4 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
 https://nytimes.com/2025/06/27/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
