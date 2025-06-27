@@ -1,3 +1,7 @@
+**Inside Van Nistelrooy's Leicester demise: A damaging tenure for club and manager**\
+`How a disastrous spell in charge led to relegation, unwanted records and reputations in tatters`\
+https://nytimes.com/athletic/6272096/2025/06/27/ruud-van-nistelrooy-leicester-manager/
+
 **Heaton signs one-year Man Utd contract extension**\
 `The 39-year-old extends his second spell at the club into a fifth season, having re-joined the team in 2021.`\
 https://nytimes.com/athletic/6455718/2025/06/27/tom-heaton-man-united-contract/
