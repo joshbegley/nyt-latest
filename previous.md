@@ -1,3 +1,11 @@
+**Places to Bear Witness**\
+`Carolyn Davies Lynch opens our weekend solving with her third themeless puzzle.`\
+https://nytimes.com/2025/06/26/crosswords/daily-puzzle-2025-06-27.html
+
+**Super Bowl halftime performer arrested over ‘Sudan and Free Gaza’ flag**\
+`The suspect, Zul-Qarnain Kwame Nantambu, is also listed as the victim in an attempted murder case against former NFL receiver Antonio Brown.`\
+https://nytimes.com/athletic/6455078/2025/06/26/super-bowl-halftime-sudan-gaza-protest/
+
 **U.S. Approves $30 Million for Contentious New Gaza Aid Group**\
 `The Israel-backed Gaza Humanitarian Foundation has been criticized by the United Nations and other aid groups, which say that its system exposes Gazans to danger.`\
 https://nytimes.com/2025/06/26/world/middleeast/us-30-million-gaza-humanitarian-foundation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6454996/2025/06/26/noah-dobson-trade-discussions-is
 **After 53-day absence, Shota Imanaga shows Cubs what they've been missing**\
 `After nearly two months on the shelf, Imanaga picked up right where he left off in the Cubs' series-splitting win Thursday.`\
 https://nytimes.com/athletic/6454805/2025/06/26/chicago-cubs-shota-imanaga-return/
-
-**Injury-plagued Astros are surging into second half of 2025 — but how?**\
-`Inevitability is part of the Astros’ aura, but it still doesn't explain what has transpired over the first half of the 2025 season.`\
-https://nytimes.com/athletic/6454928/2025/06/26/houston-astros-first-half-turnaround/
-
-**The Parents Who Helped Shape Zohran Mamdani’s Politics**\
-`Zohran Mamdani’s parents, a filmmaker and a professor, gave him the foundation for his run for mayor of New York. But their own political views may open him up to attacks.`\
-https://nytimes.com/2025/06/26/nyregion/zohran-mamdani-parents-mira-nair.html
 

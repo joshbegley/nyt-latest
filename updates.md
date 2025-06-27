@@ -1,3 +1,11 @@
+**Places to Bear Witness**\
+`Carolyn Davies Lynch opens our weekend solving with her third themeless puzzle.`\
+https://nytimes.com/2025/06/26/crosswords/daily-puzzle-2025-06-27.html
+
+**Super Bowl halftime performer arrested over ‘Sudan and Free Gaza’ flag**\
+`The suspect, Zul-Qarnain Kwame Nantambu, is also listed as the victim in an attempted murder case against former NFL receiver Antonio Brown.`\
+https://nytimes.com/athletic/6455078/2025/06/26/super-bowl-halftime-sudan-gaza-protest/
+
 **U.S. Approves $30 Million for Contentious New Gaza Aid Group**\
 `The Israel-backed Gaza Humanitarian Foundation has been criticized by the United Nations and other aid groups, which say that its system exposes Gazans to danger.`\
 https://nytimes.com/2025/06/26/world/middleeast/us-30-million-gaza-humanitarian-foundation.html
