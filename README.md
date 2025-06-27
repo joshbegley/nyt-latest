@@ -1,3 +1,7 @@
+**Word of the Day: tchotchke**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/27/learning/word-of-the-day-tchotchke.html
+
 **Pep Guardiola and the age of football amnesia**\
 `Is the abundance of games and competitions affecting our ability to remember what actually happened?`\
 https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6445048/2025/06/27/james-beadle-brighton-future/
 **Euro 2025: England team guide - what can we expect from the defending champions?**\
 `From players to watch to pedigree and much more, we set out what to expect from Sarina Wiegman's side at the European Championship`\
 https://nytimes.com/athletic/6421430/2025/06/27/england-team-guide-euro-2025/
-
-**Euro 2025: Wales team guide - can the debutants be disruptors in the toughest group?**\
-`From players to watch to pedigree and much more, we set out what to epect from Wales at the European Championship`\
-https://nytimes.com/athletic/6411787/2025/06/27/wales-team-guide-euro-2025/
 
