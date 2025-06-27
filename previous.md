@@ -1,3 +1,23 @@
+**Our Best Movies of the 21st Century List**\
+`More than 500 directors, actors and other names in Hollywood and around the world voted on the best films released since Jan.`\
+https://nytimes.com/video/movies/100000010247295/our-best-movies-of-the-21st-century-list.html
+
+**Manchester City 'connect' with Erling Haaland as cast help leading man find his 'rhythm'**\
+`Haaland’s game, galactic in its goalscoring but usually rigidly defined to between the goal posts, increased its bandwidth in Orlando`\
+https://nytimes.com/athletic/6455004/2025/06/26/manchester-city-connect-haaland/
+
+**House Panel Subpoenas Harvard in Tuition-Pricing Inquiry**\
+`The subpoena letter adds yet another front to the battle between the university and Republicans in Washington.`\
+https://nytimes.com/2025/06/26/us/politics/harvard-subpoena-house-judiciary.html
+
+**Giants reach midpoint of season in good position but not in good head space**\
+`San Francisco has a winning record but was just swept at home by the Miami Marlins.`\
+https://nytimes.com/athletic/6455079/2025/06/26/giants-midpoint-swept-by-marlins/
+
+**The Best Movies of the 21st Century: What to Watch**\
+`For your next movie night, our list of the 100 best films of this century makes a terrific resource. But how do you narrow it down?`\
+https://nytimes.com/interactive/2025/movies/21st-century-movie-watch-next.html
+
 **Places to Bear Witness**\
 `Carolyn Davies Lynch opens our weekend solving with her third themeless puzzle.`\
 https://nytimes.com/2025/06/26/crosswords/daily-puzzle-2025-06-27.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2025/movies/21st-century-movie-game.html
 **‘And Just Like That …’ Season 3, Episode 5 Recap: Heels**\
 `The Goldenblatts and the Wexleys go glamping on Governors Island, but all is not well. Carrie meets her moody new neighbor.`\
 https://nytimes.com/2025/06/26/arts/television/and-just-like-that-recap-season-3-episode-5.html
-
-**Iran’s Foreign Minister Says Nuclear Facilities ‘Seriously Damaged’**\
-`The assessment came hours after the country’s supreme leader had downplayed the damage the U.S. strikes had caused.`\
-https://nytimes.com/2025/06/26/world/middleeast/iran-foreign-minister-nuclear-facilities-seriously-damaged.html
-
-**Right-wing Republicans in Congress attack Mamdani with racist comments.**\
-`The responses to Zohran Mamdani’s showing in the New York City mayoral primary were the latest examples of how some G.O.P. lawmakers have grown more overt in using bigoted language and tropes.`\
-https://nytimes.com/live/2025/06/26/us/trump-news/right-wing-republicans-in-congress-attack-mamdani-with-racist-comments
-
-**Mets' rotation takes another hit as Griffin Canning exits with ankle injury**\
-`Mets, already down three starters, announced that Canning will undergo imaging on his ankle.`\
-https://nytimes.com/athletic/6454972/2025/06/26/mets-griffin-canning-ankle-injury/
-
-**Islanders engaged in Noah Dobson trade discussions with Blues, Canadiens, others: Sources**\
-`The 25-year-old defenseman had a career-best 70 points two years ago and finished last season with 10 goals and 39 points in 71 games.`\
-https://nytimes.com/athletic/6454996/2025/06/26/noah-dobson-trade-discussions-islanders/
-
-**After 53-day absence, Shota Imanaga shows Cubs what they've been missing**\
-`After nearly two months on the shelf, Imanaga picked up right where he left off in the Cubs' series-splitting win Thursday.`\
-https://nytimes.com/athletic/6454805/2025/06/26/chicago-cubs-shota-imanaga-return/
 
