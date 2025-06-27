@@ -1,3 +1,11 @@
+**Weird & Wild: Cal Raleigh vs. catching greats, powerful pitchers, and oh no Orioles!**\
+`It’s time to talk about that catcher in Seattle who is breaking baseball … and also baseballs.`\
+https://nytimes.com/athletic/6455231/2025/06/27/cal-raleigh-catching-history-baltiomre-orioles-june/
+
+**The Pulse: The most interesting program in college sports**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6453701/2025/06/27/sacramento-state-fbs-the-pulse/
+
 **An MLB manager found value in long walks. Research suggests it's a 'brain-changing power'**\
 `There are many benefits to walking, as MLB's Bruce Bochy can attest, but one unique benefit is backed by research: It enhances creativity.`\
 https://nytimes.com/athletic/6453809/2025/06/27/bruce-bochy-walking-exercise-creativity/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6454456/2025/06/27/sacramento-state-college-footbal
 **Kings NHL Draft guide: Picks, best fits and analysis**\
 `Corey Pronman evaluates the Kings' picks at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6441185/2025/06/27/kings-draft-picks-grades-2025/
-
-**What are the NBA's first and second aprons? How active will free agency be?**\
-`We've already seen some notable trades agreed upon, but what else should you know before free agency (officially) begins.`\
-https://nytimes.com/athletic/6448726/2025/06/27/nba-free-agency-2025-trade-apron-salary-cap/
-
-**The Trial of Sean ‘Diddy’ Combs**\
-`After seven weeks of testimony, the prosecution laid out its case accusing the music mogul of sex trafficking and racketeering.`\
-https://nytimes.com/2025/06/27/podcasts/the-daily/sean-diddy-combs-trial.html
 
