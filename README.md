@@ -1,3 +1,11 @@
+**49ers' Deommodore Lenoir arrested on obstruction charge by LAPD**\
+`The San Francisco 49ers said in a statement that they are aware of the matter and are in the process of gathering more information. `\
+https://nytimes.com/athletic/6456858/2025/06/27/deommodore-lenoir-arrest-san-francisco-49ers/
+
+**Blue Jackets acquire Charlie Coyle from the Avalanche: Sources**\
+`The veteran center will join a young and talented group of forwards in Columbus.`\
+https://nytimes.com/athletic/6457165/2025/06/27/blue-jackets-acquire-charlie-coyle-from-the-avalanche-sources/
+
 **Arch Manning Q&A: Advice from Matthew McConaughey, Walmart with LSU's QB and more**\
 `Texas' new QB1 held court with reporters for 30 minutes Friday at the Manning Passing Academy. Here's what we heard from Arch.`\
 https://nytimes.com/athletic/6457051/2025/06/27/arch-manning-passing-academy-interview-texas/
@@ -29,12 +37,4 @@ https://nytimes.com/spotlight/wellness-around-the-world
 **Prestige Podcast Company Pineapple Street Studios Shuts Down**\
 `The studio was a model podcast startup of the 2010s. But Audacy, its owner, has struggled to turn a profit.`\
 https://nytimes.com/2025/06/27/arts/music/pineapple-street-studios-podcasts.html
-
-**Rwanda and Congo Sign U.S.-Brokered Peace Treaty**\
-`President Trump claims credit for the outcome. The main question now is how the treaty will be implemented as fighting still rages in eastern Congo.`\
-https://nytimes.com/2025/06/27/us/politics/rwanda-congo-peace-agreement.html
-
-**Canadiens have long coveted a Noah Dobson type. Now they have the real thing**\
-`The Canadiens appear to be set on the blue line for years to come with Dobson joining Lane Hutson, Kaiden Guhle and David Reinbacher.`\
-https://nytimes.com/athletic/6457024/2025/06/27/canadiens-noah-dobson-trade-nhl-draft/
 
