@@ -1,3 +1,15 @@
+**Canadiens have long coveted a Noah Dobson type. Now they have the real thing**\
+`The Canadiens appear to be set on the blue line for years to come with Dobson joining Lane Hutson, Kaiden Guhle and David Reinbacher.`\
+https://nytimes.com/athletic/6457024/2025/06/27/canadiens-noah-dobson-trade-nhl-draft/
+
+**Man Who Kicked Customs Dog Is Turned Away at D.C. Airport, U.S. Says**\
+`The man, who was traveling on a tourist visa, kicked the dog, a beagle named Freddie who had detected food in his luggage, so hard that he was lifted off the ground, court records say.`\
+https://nytimes.com/2025/06/27/us/dulles-airport-customs-dog-kicked.html
+
+**Fearing Tax Increases and Trump, G.O.P. Toils to Pass a Bill With Plenty to Hate**\
+`The sweeping measure Senate Republican leaders hope to push through has many unpopular elements that they despise. But they face a political reckoning on taxes and the scorn of the president if they fail to pass it.`\
+https://nytimes.com/2025/06/27/us/politics/republicans-tax-increases-trump-bill.html
+
 **Mourners gather at the Minnesota Capitol, where the Hortmans are lying in state.**\
 `By Jeff Ernst, Jay Senter and Mitch Smith`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/nate-morris-kentucky-senate.html
 **How to watch Fever at Wings: Caitlin Clark will miss showdown vs. Paige Bueckers**\
 `Caitlin Clark and Paige Bueckers will have to wait to renew their rivalry as the Fever face the surging Wings without their star player.`\
 https://nytimes.com/athletic/6450656/2025/06/27/caitlin-clark-injury-paige-bueckers-fever-wings-wnba-how-to-watch/
-
-**Second Teenage Boy Shot and Killed in New York City in 2 Days**\
-`A 14-year-old was shot in the head by another teenage boy at the victim’s home in Queens, the police said.`\
-https://nytimes.com/2025/06/27/nyregion/nyc-teen-shootings.html
-
-**Book Club: Let’s Talk About ‘Mrs. Dalloway’**\
-`Virginia Woolf’s classic novel, celebrating its 100th anniversary, is the topic of this month’s discussion.`\
-https://nytimes.com/2025/06/27/books/review/podcast-mrs-dalloway-book-club.html
-
-**Rosalind Fox Solomon, Whose Photos Captured Emotional Nuance, Dies at 95**\
-`Critics compared her unnerving images to those of Diane Arbus, but praised her ability to infuse her subjects with warmth and humanity.`\
-https://nytimes.com/2025/06/27/arts/rosalind-fox-solomon-dead.html
 
