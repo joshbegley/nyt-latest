@@ -1,3 +1,11 @@
+**The Supreme Court Limited the Use of Nationwide Injunctions**\
+`Also, U.Va.’s president resigned under pressure from the Trump administration. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/06/27/briefing/supreme-court-virginia-president-resignation.html
+
+**Cocaine Is the Fastest-Growing Illegal Drug Worldwide. Here’s Why.**\
+`A United Nations report found a rise in users, confiscation and deaths as cocaine trafficking expands into Africa and Asia, and violence spreads into Europe.`\
+https://nytimes.com/2025/06/27/world/americas/cocaine-drug-market.html
+
 **Room for One More on Mount Rushmore? (The President Wants to Know)**\
 `Let’s review how we got here, and closely examine what the rock would allow.`\
 https://nytimes.com/interactive/2025/06/27/us/mount-rushmore-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/travel/american-airlines-outage-delays.html
 **Two Men Are Sentenced in Smuggling Deaths of 53 Migrants in Texas**\
 `The migrants were being transported in a tractor-trailer that had no air-conditioning on a day when temperatures reached more than 100 degrees.`\
 https://nytimes.com/2025/06/27/us/texas-migrant-deaths-smuggling-sentence.html
-
-**Trump Warns U.S. Will Strike Again if Iran Resumes High-Level Uranium Enrichment**\
-`The president said such an outcome was unlikely, describing Iran as exhausted from the damage it had suffered and eager to speak with the United States.`\
-https://nytimes.com/2025/06/27/us/politics/trump-iran-nuclear-bomb-uranium.html
-
-**Supreme Court Limits Ability of Judges to Block Executive Orders**\
-`Senator Chuck Schumer, the minority leader, along with several progressive House Democrats, denounced the Supreme Court’s decision.`\
-https://nytimes.com/video/us/politics/100000010255031/birthright-citizenship-supreme-court.html
 

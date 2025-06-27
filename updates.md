@@ -1,3 +1,11 @@
+**The Supreme Court Limited the Use of Nationwide Injunctions**\
+`Also, U.Va.’s president resigned under pressure from the Trump administration. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/06/27/briefing/supreme-court-virginia-president-resignation.html
+
+**Cocaine Is the Fastest-Growing Illegal Drug Worldwide. Here’s Why.**\
+`A United Nations report found a rise in users, confiscation and deaths as cocaine trafficking expands into Africa and Asia, and violence spreads into Europe.`\
+https://nytimes.com/2025/06/27/world/americas/cocaine-drug-market.html
+
 **Room for One More on Mount Rushmore? (The President Wants to Know)**\
 `Let’s review how we got here, and closely examine what the rock would allow.`\
 https://nytimes.com/interactive/2025/06/27/us/mount-rushmore-trump.html
