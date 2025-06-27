@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
 
+**What John Tavares' hometown discount means for the Leafs — now and later**\
+`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
+`\
+https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
+
 **Jeff Bezos and Lauren Sanchez Tie the Knot**\
 `The bride announced the marriage on Friday night in an Instagram post under the name Lauren Sanchez Bezos.`\
 https://nytimes.com/2025/06/27/world/europe/jeff-bezos-lauren-sanchez-married.html
