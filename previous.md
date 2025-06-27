@@ -1,3 +1,23 @@
+**Wimbledon 2025: How to watch the opening rounds of London's prestigious major**\
+`Tennis' oldest tournament gets a couple of significant updates. Wimbledon begins Monday and runs into the middle of July.`\
+https://nytimes.com/athletic/6453965/2025/06/27/wimbledon-2025-how-to-watch/
+
+**The Internet Needs Sex**\
+`And an internet without it is one that offers a pale shadow of human potential and possibility.`\
+https://nytimes.com/2025/06/27/opinion/pornography-restrictions-free-speech-obscenity.html
+
+**Evaluating 13 possible Rasmus Andersson trade destinations: Dallas? Detroit? Vegas?**\
+`The Flames have spent the last few seasons parting ways with key members of their core. Is Rasmus Andersson the next to go?`\
+https://nytimes.com/athletic/6448616/2025/06/27/rasmus-andersson-trade-nhl-flames/
+
+**In court, Combs has adopted an easygoing, subdued demeanor.**\
+`By Ben Sisario and Anusha Bayya`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-court-combs-has-adopted-an-easygoing-subdued-demeanor
+
+**Is There a Right Way to Use a Gift Card?**\
+`A ruling about the value of free money at an overpriced grocery store.`\
+https://nytimes.com/interactive/2025/06/27/magazine/gift-cards-hodgman-quiz.html
+
 **Bad pitches, searing heat and Brazil's pride: What we learned from the Club World Cup group stage**\
 `Tricky turf, torrid temperatures and Brazilian brilliance — just some of the trends to emerge from the first stage of the competition`\
 https://nytimes.com/athletic/6456166/2025/06/27/club-world-cup-what-we-learned/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/university-of-virginia-president-resi
 **What I'm hearing on James Harden and the Clippers' post-draft plans**\
 `"We're super hopeful that James is here, and he's here for a long time," Clippers president Lawrence Frank said this week.`\
 https://nytimes.com/athletic/6455597/2025/06/27/james-harden-clippers-free-agency-nba-draft/
-
-**Iga Swiatek and Alex Eala achieve firsts on the grass as Wimbledon comes into view**\
-`Świątek reached her first WTA Tour grass-court final in Germany, while in the UK, Eala became the first Filipino to reach a WTA Tour final.`\
-https://nytimes.com/athletic/6456513/2025/06/27/tennis-swiatek-grass-final-eala-wta-tour/
-
-**Officials say the gunman drove to four lawmakers’ homes on the night of the attacks.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/officials-say-the-gunman-drove-to-four-lawmakers-homes-on-the-night-of-the-attacks
-
-**France Opens Competition to Expand Overcrowded Louvre**\
-`Architects are being asked to submit proposals for a new entrance for the world’s most visited museum — and to create a new exhibition space for the Mona Lisa.`\
-https://nytimes.com/2025/06/27/arts/design/france-louvre-design-competition.html
-
-**A British Summer Dessert That Doesn’t Have to Be Perfect**\
-`The fashion designer turned ceramist Henry Holland puts his spin on a childhood favorite, Eton mess.`\
-https://nytimes.com/2025/06/27/t-magazine/eton-mess-recipe.html
-
-**Lawmakers Tell Rubio to Refrain From Mass Layoffs at State Department**\
-`Democrats say they are worried about reports that about 700 career diplomats will be fired. The agency has said it plans to lay off 2,000 employees soon.`\
-https://nytimes.com/2025/06/27/us/politics/state-department-rubio-layoffs.html
 

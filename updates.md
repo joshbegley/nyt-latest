@@ -1,3 +1,23 @@
+**Wimbledon 2025: How to watch the opening rounds of London's prestigious major**\
+`Tennis' oldest tournament gets a couple of significant updates. Wimbledon begins Monday and runs into the middle of July.`\
+https://nytimes.com/athletic/6453965/2025/06/27/wimbledon-2025-how-to-watch/
+
+**The Internet Needs Sex**\
+`And an internet without it is one that offers a pale shadow of human potential and possibility.`\
+https://nytimes.com/2025/06/27/opinion/pornography-restrictions-free-speech-obscenity.html
+
+**Evaluating 13 possible Rasmus Andersson trade destinations: Dallas? Detroit? Vegas?**\
+`The Flames have spent the last few seasons parting ways with key members of their core. Is Rasmus Andersson the next to go?`\
+https://nytimes.com/athletic/6448616/2025/06/27/rasmus-andersson-trade-nhl-flames/
+
+**In court, Combs has adopted an easygoing, subdued demeanor.**\
+`By Ben Sisario and Anusha Bayya`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-court-combs-has-adopted-an-easygoing-subdued-demeanor
+
+**Is There a Right Way to Use a Gift Card?**\
+`A ruling about the value of free money at an overpriced grocery store.`\
+https://nytimes.com/interactive/2025/06/27/magazine/gift-cards-hodgman-quiz.html
+
 **Bad pitches, searing heat and Brazil's pride: What we learned from the Club World Cup group stage**\
 `Tricky turf, torrid temperatures and Brazilian brilliance — just some of the trends to emerge from the first stage of the competition`\
 https://nytimes.com/athletic/6456166/2025/06/27/club-world-cup-what-we-learned/

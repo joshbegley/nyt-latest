@@ -1,3 +1,27 @@
+**On the 8th Day of Summer, You May Need Some Extra Layers**\
+`New York's hottest summer accessory might be the sweater you shunted aside during this week’s heat wave.`\
+https://nytimes.com/2025/06/27/weather/northeast-cooler-temperature-forecast-new-york.html
+
+**Drawing the Line on Antisemitism**\
+`Readers offer perspectives on M. Gessen’s column about antisemitism. Also: Dismantling U.S.A.I.D.`\
+https://nytimes.com/2025/06/27/opinion/antisemitism.html
+
+**John Robbins, Author of ‘Diet for a New America,’ Dies at 77**\
+`He walked away from his family’s hugely successful ice cream business to crusade for a plant-based diet and against cruelty to animals.`\
+https://nytimes.com/2025/06/27/health/john-robbins-dead.html
+
+**The Supreme Court’s ‘Zone of Lawlessness’**\
+`The court didn’t rule on the legality of Trump’s order, but it didn’t have to.`\
+https://nytimes.com/2025/06/27/opinion/birthright-citizenship-case-supreme-court.html
+
+**NHL, NHLPA announce memorandum of understanding on new CBA**\
+`The CBA includes an 84-game schedule and playoff salary cap and will ensure labor peace in the league through September 2030.`\
+https://nytimes.com/athletic/6456385/2025/06/27/nhl-nhlpa-memorandum-of-understanding-cba/
+
+**A Minnesota Lawmaker and Her Husband Are Lying in State. Next to Them: Their Golden Retriever.**\
+`Gilbert, Representative Melissa Hortman’s dog, is being honored at the State Capitol with Ms. Hortman and her husband, Mark. They were all killed in a shooting at their home this month.`\
+https://nytimes.com/2025/06/27/us/politics/gilbert-dog-hortman-minnesota-shootings.html
+
 **Wimbledon 2025: How to watch the opening rounds of London's prestigious major**\
 `Tennis' oldest tournament gets a couple of significant updates. Wimbledon begins Monday and runs into the middle of July.`\
 https://nytimes.com/athletic/6453965/2025/06/27/wimbledon-2025-how-to-watch/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6448616/2025/06/27/rasmus-andersson-trade-nhl-flame
 **In court, Combs has adopted an easygoing, subdued demeanor.**\
 `By Ben Sisario and Anusha Bayya`\
 https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-court-combs-has-adopted-an-easygoing-subdued-demeanor
-
-**Is There a Right Way to Use a Gift Card?**\
-`A ruling about the value of free money at an overpriced grocery store.`\
-https://nytimes.com/interactive/2025/06/27/magazine/gift-cards-hodgman-quiz.html
-
-**Bad pitches, searing heat and Brazil's pride: What we learned from the Club World Cup group stage**\
-`Tricky turf, torrid temperatures and Brazilian brilliance — just some of the trends to emerge from the first stage of the competition`\
-https://nytimes.com/athletic/6456166/2025/06/27/club-world-cup-what-we-learned/
-
-**John Tavares returns to Maple Leafs on 4-year deal**\
-`The Maple Leafs re-signed their former captain to a four-year, $17.52 million contract on Friday.`\
-https://nytimes.com/athletic/6406663/2025/06/27/john-tavares-maple-leafs-contract-extension/
-
-**Birthright Citizenship Case Has Some Unusual Quirks**\
-`The justices seldom hear arguments in cases on their emergency docket, and they rarely hold special argument sessions. And they usually know the precise question before them.`\
-https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-scotus-quirks.html
-
-**University of Virginia President Resigns Under Pressure From Trump Administration**\
-`The Justice Department had demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school.`\
-https://nytimes.com/2025/06/27/us/politics/university-of-virginia-president-resigns-trump-justice-department.html
-
-**What I'm hearing on James Harden and the Clippers' post-draft plans**\
-`"We're super hopeful that James is here, and he's here for a long time," Clippers president Lawrence Frank said this week.`\
-https://nytimes.com/athletic/6455597/2025/06/27/james-harden-clippers-free-agency-nba-draft/
 
