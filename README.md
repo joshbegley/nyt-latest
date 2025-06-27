@@ -1,3 +1,15 @@
+**Bad pitches, searing heat and Brazil's pride: What we learned from the Club World Cup group stage**\
+`Tricky turf, torrid temperatures and Brazilian brilliance — just some of the trends to emerge from the first stage of the competition`\
+https://nytimes.com/athletic/6456166/2025/06/27/club-world-cup-what-we-learned/
+
+**John Tavares returns to Maple Leafs on 4-year deal**\
+`The Maple Leafs re-signed their former captain to a four-year, $17.52 million contract on Friday.`\
+https://nytimes.com/athletic/6406663/2025/06/27/john-tavares-maple-leafs-contract-extension/
+
+**Birthright Citizenship Case Has Some Unusual Quirks**\
+`The justices seldom hear arguments in cases on their emergency docket, and they rarely hold special argument sessions. And they usually know the precise question before them.`\
+https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-scotus-quirks.html
+
 **University of Virginia President Resigns Under Pressure From Trump Administration**\
 `The Justice Department had demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school.`\
 https://nytimes.com/2025/06/27/us/politics/university-of-virginia-president-resigns-trump-justice-department.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/27/t-magazine/eton-mess-recipe.html
 **Lawmakers Tell Rubio to Refrain From Mass Layoffs at State Department**\
 `Democrats say they are worried about reports that about 700 career diplomats will be fired. The agency has said it plans to lay off 2,000 employees soon.`\
 https://nytimes.com/2025/06/27/us/politics/state-department-rubio-layoffs.html
-
-**Oilers re-sign Trent Frederic to 8-year, $3.85 million AAV contract**\
-`The max-term deal keeps the 27-year-old forward under team control until the end of the 2033-34 season.`\
-https://nytimes.com/athletic/6449797/2025/06/27/oilers-trent-frederic-contract/
-
-**Son of Norway’s Crown Princess Is Charged With Rape and Sexual Assault**\
-`Marius Borg Hoiby, the stepson of Crown Prince Haakon, was charged with rape and sexual assault after a monthslong police investigation that has caused turmoil for the royal family.`\
-https://nytimes.com/2025/06/27/world/europe/norway-crown-princess-son-rape-charge.html
-
-**How the Supreme Court’s Ruling Could Revive Some Contested Trump Policies**\
-`The Supreme Court has imposed new limits on the power of district-court judges. Here’s what that means for the Trump administration.`\
-https://nytimes.com/2025/06/27/us/politics/trump-birthright-citizenship-scotus.html
 
