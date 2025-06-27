@@ -1,3 +1,11 @@
+**Injury-plagued Astros are surging into second half of 2025 — but how?**\
+`Inevitability is part of the Astros’ aura, but it still doesn't explain what has transpired over the first half of the 2025 season.`\
+https://nytimes.com/athletic/6454928/2025/06/26/houston-astros-first-half-turnaround/
+
+**The Parents Who Helped Shape Zohran Mamdani’s Politics**\
+`Zohran Mamdani’s parents, a filmmaker and a professor, gave him the foundation for his run for mayor of New York. But their own political views may open him up to attacks.`\
+https://nytimes.com/2025/06/26/nyregion/zohran-mamdani-parents-mira-nair.html
+
 **Canadian Citizen Dies at ICE Detention Center in Florida**\
 `The death of Johnny Noviello, 49, came as ICE agents have made sweeping arrests across the United States as part of President Trump’s crackdown on immigration. The cause is under investigation.`\
 https://nytimes.com/2025/06/26/us/canadian-dies-ice-custody-florida.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/26/style/steve-burns-blues-clues-podcast-alive.html
 **Aaron Judge, Shohei Ohtani named AL, NL starters for All-Star Game**\
 `The 2025 MLB All-Star Game will take place at Truist Park in Atlanta. `\
 https://nytimes.com/athletic/6454800/2025/06/26/mlb-all-star-game-2025-starters/
-
-**John Doe vs. Blackhawks lawsuit set for trial in October**\
-`A former player is suing the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
-https://nytimes.com/athletic/6454675/2025/06/26/john-doe-vs-blackhawks-trial-date/
-
-**75 Years After a Deadly Plane Crash, the Search for Its Wreckage Ends**\
-`In 2004, explorers began a search for a plane that crashed into Lake Michigan in 1950, killing 58 people. They didn’t find it, but they revived the history of what once was the country’s deadliest aviation accident.`\
-https://nytimes.com/2025/06/26/us/michigan-plane-crash-1950.html
 
