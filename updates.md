@@ -1,3 +1,7 @@
+**Paul Pogba set for Monaco medical**\
+`The 32-year-old is a free agent having left Juventus by mutual consent in November 2024.`\
+https://nytimes.com/athletic/6425014/2025/06/27/monaco-paul-pogba-transfer/
+
 **Vinicius Jr is smiling again - and Real Madrid can be truly excited**\
 `After a season of criticism, boos and speculation, the Brazil forward put on a show at the Club World Cup`\
 https://nytimes.com/athletic/6455491/2025/06/27/vinicius-jr-real-madrid-club-world-cup/
