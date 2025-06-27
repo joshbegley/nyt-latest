@@ -1,3 +1,23 @@
+**Another Anfernee Simons trade coming? Celtics looking at ways to shed more salary**\
+`According to league sources the Celtics have explored the idea of flipping Simons’ $27.7 million expiring contract.`\
+https://nytimes.com/athletic/6457444/2025/06/27/celtics-anfernee-simons-trade/
+
+**Cut-resistant neck guards to be mandatory for new NHL players in 2026-27: Sources**\
+`The NHL follows the AHL, which required all players and on-ice officials to wear the protective equipment beginning this past season.`\
+https://nytimes.com/athletic/6457559/2025/06/27/nhl-players-neck-guards/
+
+**Why Blackhawks drafted Anton Frondell with No. 3 pick**\
+`Frondell has the size, offensive skill, defensive awareness and ceiling the Blackhawks believe will make him a perfect fit in their top six.`\
+https://nytimes.com/athletic/6456863/2025/06/27/blackhawks-anton-frondell-2025-nhl-draft-pick/
+
+**Track Corey Pronman's best available players left in 2025 NHL Draft**\
+`These are the top players still on the draft board based on Corey Pronman's final list of the 2025 class.`\
+https://nytimes.com/athletic/6456991/2025/06/27/nhl-draft-2025-best-players-available/
+
+**2025 NHL Draft tracker: Every pick starting with Matthew Schaefer at No. 1**\
+`Catch up on all selections, from No. 1 to No. 224, right here at The Athletic.`\
+https://nytimes.com/athletic/6456729/2025/06/27/nhl-draft-pick-by-pick-tracker-2025/
+
 **Full list of 2025 NHL Draft picks, starting with Matthew Schaefer at No. 1**\
 `Catch up on all selections, from No. 1 to No. 224, right here at The Athletic.`\
 https://nytimes.com/athletic/6456729/2025/06/27/nhl-draft-pick-by-pick-tracker-2025/
