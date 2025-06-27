@@ -1,3 +1,11 @@
+**The Senate Should Let Trump’s Bill Die**\
+`Debt payments already exceed military spending. The president’s bill will make things worse.`\
+https://nytimes.com/2025/06/27/opinion/trump-budget-big-beautiful-bill.html
+
+**TAFC: U.S. club investor in jail after arrest over fraud allegations, Vinicius Junior's sublime assist**\
+`Today in TAFC: A U.S. soccer investor is fighting extradition from Spain and is wanted on multiple allegations of fraud`\
+https://nytimes.com/athletic/6455680/2025/06/27/conway-club-investor-in-jail-after-arrest-over-fraud-allegations-vinicius-jnrs-sublime-assist/
+
 **With Marcus Stroman struggling, Yankees fans wonder when Cam Schlittler will debut**\
 `For the past two months, the Yankees rotation's 3.08 ERA has been the best across MLB. But now they're weighing options for the No. 5 spot.`\
 https://nytimes.com/athletic/6446881/2025/06/27/yankees-pitchers-cam-schlittler-marcus-stroman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6453749/2025/06/27/jets-gm-kevin-cheveldayoff-nhl-d
 **Sabres NHL Draft guide: Picks, best fits and analysis**\
 `Corey Pronman evaluates the Sabres' picks at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6441026/2025/06/27/sabres-draft-picks-grades-2025/
-
-**Ducks NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Ducks' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6440986/2025/06/27/ducks-draft-picks-grades-2025/
-
-**Konate's future is a dilemma for Liverpool, who risk seeing history repeat itself**\
-`After Trent Alexander-Arnold’s exit on a free transfer, Liverpool could find themselves in the same position for a second year running`\
-https://nytimes.com/athletic/6455712/2025/06/27/ibrahima-konate-contract-liverpool/
 
