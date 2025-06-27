@@ -1,3 +1,15 @@
+**Son of Norway’s Crown Princess Is Charged With Rape and Sexual Assault**\
+`Marius Borg Hoiby, the stepson of Crown Prince Haakon, was charged with rape and sexual assault after a monthslong police investigation that has caused turmoil for the royal family.`\
+https://nytimes.com/2025/06/27/world/europe/norway-crown-princess-son-rape-charge.html
+
+**How the Supreme Court’s Ruling Could Revive Some Contested Trump Policies**\
+`The Supreme Court has imposed new limits on the power of district-court judges. Here’s what that means for the Trump administration.`\
+https://nytimes.com/2025/06/27/us/politics/trump-birthright-citizenship-scotus.html
+
+**Club World Cup odds: Man City move up to become favourite after dominant group play**\
+`Manchester City are ahead of PSG as the betting favourite to win the Club World Cup after winning all three group matches.`\
+https://nytimes.com/athletic/6456348/2025/06/27/club-world-cup-odds-manchester-city/
+
 **The Concorde-and-Caviar Era of Condé Nast, When Magazines Ruled the Earth**\
 `Opulent days are over at Vogue, Vanity Fair, and other once-powerful glossies. Anna Wintour is giving up (some) control. Now that everyone’s a gatekeeper, why do we keep recreating their status-obsessed world?`\
 https://nytimes.com/2025/06/27/business/media/conde-nast-magazines-vogue-vanity-fair.html
