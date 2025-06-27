@@ -1,3 +1,11 @@
+**How to watch Liberty at Mercury: Fire meets ice as WNBA contenders clash**\
+`The red-hot Phoenix Mercury seek their second win of the season over the stumbling New York Liberty. Can the defending champs get right?`\
+https://nytimes.com/athletic/6455825/2025/06/27/liberty-mercury-wnba-contenders-how-to-watch/
+
+**Supreme Court Upholds Texas Law Limiting Access to Pornography**\
+`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are at least 18, was challenged on First Amendment grounds.`\
+https://nytimes.com/2025/06/27/us/supreme-court-pornography-minors.html
+
 **An Unearthed Joni Mitchell Jazz Demo, and 11 More New Songs**\
 `Hear tracks by Sarah McLachlan, Camilo, Us3 and others.`\
 https://nytimes.com/2025/06/27/arts/music/playlist-joni-mitchell-sarah-mclachlan.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/heres-
 **Here’s what to know.**\
 `The man is accused of killing State Representative Melissa Hortman and her husband, Mark, as well as wounding another Democratic lawmaker and his wife.`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/minnesota-court-appearance
-
-**Latest Updates: Suspect to Appear in Court as Assassination Victims Lie in State**\
-`The man accused of killing a Minnesota legislator and her husband is set to appear in federal court on the day that the couple and their dog will be mourned at the State Capitol.`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman
-
-**Answering your Reds questions: Elly's struggles, rotation unknowns, trade deadline and more**\
-`C. Trent Rosecrans discussed a wide-ranging series of Reds topics during a live Q&A on Thursday.`\
-https://nytimes.com/athletic/6456174/2025/06/27/reds-trade-deadline-elly-rotation/
 

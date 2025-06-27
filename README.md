@@ -1,3 +1,7 @@
+**In This Parisian Atelier, Bookbinding Is a Family Art**\
+`At Atelier Devauchelle, artisans repair damaged books, some of them hundreds of years old.`\
+https://nytimes.com/card/2025/06/27/books/paris-bookbinder-atelier-devauchelle
+
 **How to watch Liberty at Mercury: Fire meets ice as WNBA contenders clash**\
 `The red-hot Phoenix Mercury seek their second win of the season over the stumbling New York Liberty. Can the defending champs get right?`\
 https://nytimes.com/athletic/6455825/2025/06/27/liberty-mercury-wnba-contenders-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456126/2025/06/27/paige-bueckers-caitlin-clark-wnb
 **Here’s what we’ve learned about the man accused of shooting Minnesota lawmakers.**\
 `By Chris Hippensteel, Ernesto Londoño and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/heres-what-weve-learned-about-the-man-accused-of-shooting-minnesota-lawmakers
-
-**Here’s what to know.**\
-`The man is accused of killing State Representative Melissa Hortman and her husband, Mark, as well as wounding another Democratic lawmaker and his wife.`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/minnesota-court-appearance
 

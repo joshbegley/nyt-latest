@@ -1,3 +1,11 @@
+**How to watch Liberty at Mercury: Fire meets ice as WNBA contenders clash**\
+`The red-hot Phoenix Mercury seek their second win of the season over the stumbling New York Liberty. Can the defending champs get right?`\
+https://nytimes.com/athletic/6455825/2025/06/27/liberty-mercury-wnba-contenders-how-to-watch/
+
+**Supreme Court Upholds Texas Law Limiting Access to Pornography**\
+`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are at least 18, was challenged on First Amendment grounds.`\
+https://nytimes.com/2025/06/27/us/supreme-court-pornography-minors.html
+
 **An Unearthed Joni Mitchell Jazz Demo, and 11 More New Songs**\
 `Hear tracks by Sarah McLachlan, Camilo, Us3 and others.`\
 https://nytimes.com/2025/06/27/arts/music/playlist-joni-mitchell-sarah-mclachlan.html
