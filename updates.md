@@ -1,3 +1,5 @@
+
+
 **Newsom Sues Fox News for Saying He Lied About Call With Trump**\
 `The lawsuit, which seeks at least $787 million in damages, comes as the California governor adopts an increasingly combative style with the president and his allies.`\
 https://nytimes.com/2025/06/27/us/politics/gavin-newsom-fox-news-lawsuit-trump-call.html
