@@ -1,3 +1,7 @@
+**WNBA expansion team in Portland fires president Inky Son: Reports**\
+`New team's top employee, who was hired April 1, is out less than three months later. The team begins play in 2026.`\
+https://nytimes.com/athletic/6455288/2025/06/26/portland-wnba-expansion-team-fires-president/
+
 **Al Hilal 2 Pachuca 0: Saudi side survives for last Club World Cup knockout spot**\
 `The Asian Confederation booked one spot in the Club World Cup knockout phase after Al Hilal secured a second-place group finish`\
 https://nytimes.com/athletic/6455113/2025/06/26/al-hilal-pachuca-club-world-cup-al-dawsari-saudi-arabia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455079/2025/06/26/giants-midpoint-swept-by-marlins
 **The Best Movies of the 21st Century: What to Watch**\
 `For your next movie night, our list of the 100 best films of this century makes a terrific resource. But how do you narrow it down?`\
 https://nytimes.com/interactive/2025/movies/21st-century-movie-watch-next.html
-
-**Places to Bear Witness**\
-`Carolyn Davies Lynch opens our weekend solving with her third themeless puzzle.`\
-https://nytimes.com/2025/06/26/crosswords/daily-puzzle-2025-06-27.html
 

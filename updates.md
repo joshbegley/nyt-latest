@@ -1,3 +1,7 @@
+**WNBA expansion team in Portland fires president Inky Son: Reports**\
+`New team's top employee, who was hired April 1, is out less than three months later. The team begins play in 2026.`\
+https://nytimes.com/athletic/6455288/2025/06/26/portland-wnba-expansion-team-fires-president/
+
 **Al Hilal 2 Pachuca 0: Saudi side survives for last Club World Cup knockout spot**\
 `The Asian Confederation booked one spot in the Club World Cup knockout phase after Al Hilal secured a second-place group finish`\
 https://nytimes.com/athletic/6455113/2025/06/26/al-hilal-pachuca-club-world-cup-al-dawsari-saudi-arabia/
