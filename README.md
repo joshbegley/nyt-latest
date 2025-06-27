@@ -1,3 +1,7 @@
+**Emma Hayes' 'astronomical' year as USWNT head coach - but this is only the first step**\
+`Bookended by two 4-0 wins in Colorado, Hayes has got the USWNT 'back on track' and there's more room to grow`\
+https://nytimes.com/athletic/6455675/2025/06/27/uswnt-emma-hayes-year-coach/
+
 **Finding Happily Ever After in a Snowstorm in June**\
 `After their wedding was spotted on a webcam, pictures of Jamie and Chris DeBruhl getting married at a mountain resort in Montana spread quickly online.`\
 https://nytimes.com/2025/06/27/weather/montana-wedding-snowstorm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/opinion/jews-zohran-mamdani.html
 **Inside Bruce Springsteen’s 7 Lost Albums**\
 `Our chief pop critic on the music the Boss recorded, but kept locked away for decades.`\
 https://nytimes.com/2025/06/27/podcasts/inside-bruce-springsteens-7-lost-albums.html
-
-**Authorities Rescue Girl Whose Mother Livestreamed Her Sexual Abuse**\
-`The 9-year-old from Vietnam was abused by her mother for customers watching on smartphone apps in the U.S. and elsewhere. The mother said she needed the money.`\
-https://nytimes.com/2025/06/27/us/online-child-abuse.html
 
