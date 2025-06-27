@@ -1,3 +1,7 @@
+**‘F1’ | Anatomy of a Scene**\
+`Joseph Kosinski narrates a sequence from his film, starring Brad Pitt.`\
+https://nytimes.com/video/movies/100000010252229/f1-scene.html
+
 **Paul Pogba set for Monaco medical**\
 `The 32-year-old is a free agent having left Juventus by mutual consent in November 2024.`\
 https://nytimes.com/athletic/6425014/2025/06/27/monaco-paul-pogba-transfer/
