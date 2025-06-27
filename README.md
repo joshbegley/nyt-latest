@@ -1,3 +1,15 @@
+**Immigration Arrests Are Up Sharply in Every State. Here Are the Numbers.**\
+`Some states have seen immigration enforcement more than triple since President Trump took office, new data shows.`\
+https://nytimes.com/interactive/2025/06/27/us/ice-arrests-trump.html
+
+**Mbeumo informs Brentford, Tottenham of decision to join Manchester United**\
+`Mbeumo has notified Spurs and Brentford that should he depart the Gtech Community Stadium this summer, it will be for Old Trafford.`\
+https://nytimes.com/athletic/6447519/2025/06/27/bryan-mbeumo-manchester-united-transfer-spurs-brentford/
+
+**Sean Combs’s Son Christian Releases a Song With Ye: ‘Diddy Free’**\
+`The track, which also features North West, includes a chorus where the rapper known as King Combs promises not to sleep “’til we see Diddy free.”`\
+https://nytimes.com/2025/06/27/arts/music/sean-combs-son-kanye-west-diddy-free.html
+
 **Mark Hortman was an ‘enthusiastic campaign spouse.’**\
 `By Pooja Salhotra`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/mark-hortman-was-an-enthusiastic-campaign-spouse
@@ -25,17 +37,4 @@ https://nytimes.com/2025/06/27/climate/public-lands-sell-off-maga.html
 **Here’s what happened at the hearing for the man accused of shooting Minnesota lawmakers.**\
 `A lawyer representing the suspected gunman complained about the strict conditions under which he is being held in a local jail as she asked a judge to push back a detention hearing.`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/heres-what-happened-at-the-hearing-for-the-man-accused-of-shooting-minnesota-lawmakers
-
-**Padres live Q&A Dennis Lin at noon PT on Friday, June 27**\
-`<p>San Diego Padres writer Dennis Lin will answer subscribers’ questions about the team and organization during a live Q&amp;A on Friday, June 27 from noon. to 12:45 p.m. PT. Questions can be submitted ahead of time or during the Q&amp;A.</p>
-`\
-https://nytimes.com/athletic/6453556/2025/06/27/padres-live-qa-dennis-lin-at-noon-et-on-friday-june-27/
-
-**Canadiens acquire Dobson from Islanders, will sign him to 8-year extension**\
-`Dobson had a career-best 70 points for the team two years ago and finished last season with 10 goals and 39 points in 71 games.`\
-https://nytimes.com/athletic/6456350/2025/06/27/noah-dobson-canadiens-islanders-trade-nhl/
-
-**Cal Raleigh, MLB's HR leader, to participate in Home Run Derby**\
-`Raleigh is attempting to be the first catcher to win the Home Run Derby.`\
-https://nytimes.com/athletic/6456685/2025/06/27/cal-raleigh-mlbs-hr-leader-to-participate-in-2025-home-run-derby/
 
