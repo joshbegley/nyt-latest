@@ -1,40 +1,40 @@
-**The Century’s Best Movies**\
-`We compiled the list by polling more than 500 people in and around the film industry.`\
-https://nytimes.com/2025/06/27/briefing/the-centurys-best-movies.html
+**Yankees prospects: Jones' improvement, Lombard Jr.'s leadership, Brett Gardner comp**\
+`In the dugout this week at Double-A Somerset Patriots, manager Raul Domínguez discussed several young players who are standing out. `\
+https://nytimes.com/athletic/6453684/2025/06/27/yankees-prospects-spencer-jones-george-lombard-roc-riggio/
 
-**The West End’s Hottest Seats: The Piles of Trash Outside ‘Evita’**\
-`Crowds are converging outside the London Palladium to watch Rachel Zegler sing “Don’t Cry for Me Argentina” from a balcony — while paying theatergoers inside see it on a screen.`\
-https://nytimes.com/2025/06/27/theater/evita-balcony-rachel-zegler.html
+**At annual Sack Summit, Maxx Crosby stresses Raiders have 'a lot of work to do'**\
+`As the four-time Pro Bowler discussed the tricks of the pass-rush trade, he re-emphasized the Raiders' top priority in 2025: Just win, baby.`\
+https://nytimes.com/athletic/6454694/2025/06/27/maxx-crosby-raiders-sack-summit-las-vegas/
 
-**MLB notes: Globe Life Field has turned into a hitter's nightmare and the Rangers don't know why**\
-`Plus some trade deadline items on the Marlins, Brewers and Pirates, as well as a look at Juan Soto's increasing stolen base numbers.`\
-https://nytimes.com/athletic/6455108/2025/06/27/texas-rangers-globe-life-hitters-marlins-pirates/
+**Blue Jackets want offseason upgrades to start taking shape at NHL Draft**\
+`"I'm still pretty confident that something's going to break here," GM Don Waddell said of trade possibilities.`\
+https://nytimes.com/athletic/6454598/2025/06/27/blue-jackets-nhl-draft-2025/
 
-**Weird & Wild: Cal Raleigh vs. catching greats, powerful pitchers, and oh no Orioles!**\
-`It’s time to talk about that catcher in Seattle who is breaking baseball … and also baseballs.`\
-https://nytimes.com/athletic/6455231/2025/06/27/cal-raleigh-catching-history-baltiomre-orioles-june/
+**Jets' Kevin Cheveldayoff talks draft, Nikolaj Ehlers, Jonathan Toews: 5 things we learned**\
+`Is Winnipeg still in dialogue with Ehlers? "We'll continue to have conversations until we can't," Cheveldayoff said.`\
+https://nytimes.com/athletic/6453749/2025/06/27/jets-gm-kevin-cheveldayoff-nhl-draft-nikolaj-ehlers-jonathan-toews/
 
-**The Pulse: The most interesting program in college sports**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6453701/2025/06/27/sacramento-state-fbs-the-pulse/
+**Sabres NHL Draft guide: Picks, best fits and analysis**\
+`Corey Pronman evaluates the Sabres' picks at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6441026/2025/06/27/sabres-draft-picks-grades-2025/
 
-**An MLB manager found value in long walks. Research suggests it's a 'brain-changing power'**\
-`There are many benefits to walking, as MLB's Bruce Bochy can attest, but one unique benefit is backed by research: It enhances creativity.`\
-https://nytimes.com/athletic/6453809/2025/06/27/bruce-bochy-walking-exercise-creativity/
+**Ducks NHL Draft guide: Picks, best fits and analysis**\
+`Corey Pronman evaluates the Ducks' picks at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6440986/2025/06/27/ducks-draft-picks-grades-2025/
 
-**After a betting probe, an All-American went undrafted. Now he's one step from MLB**\
-`After being named in the 2023 sports betting probe, Iowa star Keaton Anthony went undrafted. “I didn’t know if my career was over,” he said.`\
-https://nytimes.com/athletic/6454292/2025/06/27/keaton-anthony-phillies-iowa-sports-betting-case/
+**Konate's future is a dilemma for Liverpool, who risk seeing history repeat itself**\
+`After Trent Alexander-Arnold’s exit on a free transfer, Liverpool could find themselves in the same position for a second year running`\
+https://nytimes.com/athletic/6455712/2025/06/27/ibrahima-konate-contract-liverpool/
 
-**Capitals NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Capitals' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6442154/2025/06/27/capitals-draft-picks-grades-2025/
+**Blue Jackets NHL Draft guide: Picks, best fits and analysis**\
+`Corey Pronman evaluates the Blue Jackets' picks at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6441069/2025/06/27/blue-jackets-draft-picks-grades-2025/
 
-**Braves takeaways: Acuña can't carry offense alone, team stuck in rut, plans for Fuentes?**\
-`The Braves mustered three singles and nothing else — not even a walk — in a 4-0 loss to the Mets.`\
-https://nytimes.com/athletic/6455416/2025/06/27/braves-takeaways-ronald-acuna-jr-marcell-ozuna-didier-fuentes/
+**Flames NHL Draft guide: Picks, best fits and analysis**\
+`Corey Pronman evaluates the Flames' picks at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6441032/2025/06/27/flames-draft-picks-grades-2025/
 
-**Don't let the Wings' record fool you: Paige Bueckers' rookie season is phenomenal**\
-`Caitlin Clark's historic rookie outing last season also shouldn't dim Bueckers' debut WNBA campaign.`\
-https://nytimes.com/athletic/6454487/2025/06/27/paige-bueckers-dallas-wings-rookie-season-wnba/
+**Wolves add another young big man and turn their attention toward 'unique' free agency**\
+`The Timberwolves' draft picks may tell us a couple things about how they view the offseason and the rest of the roster.`\
+https://nytimes.com/athletic/6454964/2025/06/27/nba-draft-timberwolves-free-agency-2025/
 
