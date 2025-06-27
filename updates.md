@@ -1,3 +1,15 @@
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 4 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
+https://nytimes.com/2025/06/27/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
+
+**Leeds tell fans not to travel for pre-season tour in Germany for second year in a row**\
+`Fans were unable to watch pre-season games in the country last year as German police said it could not stretch to support their friendlies.`\
+https://nytimes.com/athletic/6456092/2025/06/27/leeds-germany-pre-season/
+
+**‘No Buy’ July: Is It Really a Good Idea?**\
+`One proponent argues that fiscal fasting pushes people to confront their spending habits. But other financial experts prefer a more consistent approach to budgeting.`\
+https://nytimes.com/2025/06/27/your-money/no-buy-july-budgeting.html
+
 **Brentford to appoint Andrews as Frank's successor**\
 `Andrews has been Brentford's set-piece coach since the start of the 2024-25 season.`\
 https://nytimes.com/athletic/6423652/2025/06/27/keith-andrews-brentford-manager-confirmed/
