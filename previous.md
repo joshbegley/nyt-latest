@@ -1,3 +1,19 @@
+**The defense offers an alternative view of the video of the 2016 hotel assault.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/the-defense-offers-an-alternative-view-of-the-video-of-the-2016-hotel-assault
+
+**NHL trade grades: Noah Dobson gives big boost to Canadiens' dynamic blue line**\
+`The Islanders received two first-round picks for Dobson, who signed a contract extension.`\
+https://nytimes.com/athletic/6456756/2025/06/27/nhl-trade-grades-dobson-canadiens-islanders/
+
+**London City Lionesses set to sign defender Pattinson after Brighton exit**\
+`Pattinson had offers from elsewhere in the Women's Super League but has opted to join the newly-promoted London City.`\
+https://nytimes.com/athletic/6456791/2025/06/27/poppy-pattinson-london-city-lionesses-transfer/
+
+**Is Austria F1’s most beautiful track? Plus, Norris leads early at the Red Bull Ring**\
+`The Austrian Grand Prix takes place in the picturesque Styrian mountains, where this year McLaren's Lando Norris set the early practice pace`\
+https://nytimes.com/athletic/6456626/2025/06/27/austrian-grand-prix-track-red-bull-ring/
+
 **Immigration Arrests Are Up Sharply in Every State. Here Are the Numbers.**\
 `Some states have seen immigration enforcement more than triple since President Trump took office, new data shows.`\
 https://nytimes.com/interactive/2025/06/27/us/ice-arrests-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6456757/2025/06/27/freddie-woodman-liverpool-presto
 **Trump Says U.S. Ending Trade Talks With Canada**\
 `The president said he would cease negotiations and impose new tariffs because of Canada’s imminent, new digital services taxes.`\
 https://nytimes.com/2025/06/27/business/trump-ends-canada-trade-talks.html
-
-**Jonathan Mayers, a Founder of the Bonnaroo Music Festival, Dies at 51**\
-`He helped bring crowds of music fans to a remote Tennessee cow farm with Bonnaroo, and to San Francisco with the Outside Lands festival.`\
-https://nytimes.com/2025/06/27/arts/music/jonathan-mayers-dead.html
-
-**Lawmakers remember Melissa Hortman as a pragmatic problem solver.**\
-`Colleagues described Representative Melissa Hortman as a skilled, conciliatory lawmaker who was at once steely and warm.`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/lawmakers-remember-melissa-hortman-as-a-pragmatic-problem-solver
-
-**A Conservative’s Plan to Sell Public Lands Faces MAGA Pushback**\
-`They love hunting, fishing and conservatism. And they hate a plan by a conservative senator to sell millions of acres of public lands.`\
-https://nytimes.com/2025/06/27/climate/public-lands-sell-off-maga.html
-
-**Here’s what happened at the hearing for the man accused of shooting Minnesota lawmakers.**\
-`A lawyer representing the suspected gunman complained about the strict conditions under which he is being held in a local jail as she asked a judge to push back a detention hearing.`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/heres-what-happened-at-the-hearing-for-the-man-accused-of-shooting-minnesota-lawmakers
 

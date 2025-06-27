@@ -1,3 +1,31 @@
+**How to watch Fever at Wings: Caitlin Clark will miss showdown vs. Paige Bueckers**\
+`Caitlin Clark and Paige Bueckers will have to wait to renew their rivalry as the Fever face the surging Wings without their star player.`\
+https://nytimes.com/athletic/6450656/2025/06/27/caitlin-clark-injury-paige-bueckers-fever-wings-wnba-how-to-watch/
+
+**Second Teenage Boy Shot and Killed in New York City in 2 Days**\
+`A 14-year-old was shot in the head by another teenage boy at the victim’s home in Queens, the police said.`\
+https://nytimes.com/2025/06/27/nyregion/nyc-teen-shootings.html
+
+**Book Club: Let’s Talk About ‘Mrs. Dalloway’**\
+`Virginia Woolf’s classic novel, celebrating its 100th anniversary, is the topic of this month’s discussion.`\
+https://nytimes.com/2025/06/27/books/review/podcast-mrs-dalloway-book-club.html
+
+**Rosalind Fox Solomon, Whose Photos Captured Emotional Nuance, Dies at 95**\
+`Critics compared her unnerving images to those of Diane Arbus, but praised her ability to infuse her subjects with warmth and humanity.`\
+https://nytimes.com/2025/06/27/arts/rosalind-fox-solomon-dead.html
+
+**The Best Sheets for Hot Sleepers **\
+`Text by Jackie Reeve`\
+https://nytimes.com/card/2025/06/27/smarter-living/wirecutter/the-best-sheets-for-hot-sleepers
+
+**Highlights of the Citizenship Ruling (That Was Really About Universal Injunctions)**\
+`The Supreme Court’s conservative bloc reduced the power of district court judges to block government actions nationwide.`\
+https://nytimes.com/2025/06/27/us/politics/scotus-birthright-citizenship.html
+
+**Blue Jackets prospect Jordan Dumais has DUI charges dismissed: Report**\
+`Dumais was a third-round pick of the Blue Jackets in 2022.`\
+https://nytimes.com/athletic/6456875/2025/06/27/blue-jackets-prospect-jordan-dumais-has-dui-charges-dismissed-report/
+
 **The defense offers an alternative view of the video of the 2016 hotel assault.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/the-defense-offers-an-alternative-view-of-the-video-of-the-2016-hotel-assault
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6456756/2025/06/27/nhl-trade-grades-dobson-canadien
 **London City Lionesses set to sign defender Pattinson after Brighton exit**\
 `Pattinson had offers from elsewhere in the Women's Super League but has opted to join the newly-promoted London City.`\
 https://nytimes.com/athletic/6456791/2025/06/27/poppy-pattinson-london-city-lionesses-transfer/
-
-**Is Austria F1’s most beautiful track? Plus, Norris leads early at the Red Bull Ring**\
-`The Austrian Grand Prix takes place in the picturesque Styrian mountains, where this year McLaren's Lando Norris set the early practice pace`\
-https://nytimes.com/athletic/6456626/2025/06/27/austrian-grand-prix-track-red-bull-ring/
-
-**Immigration Arrests Are Up Sharply in Every State. Here Are the Numbers.**\
-`Some states have seen immigration enforcement more than triple since President Trump took office, new data shows.`\
-https://nytimes.com/interactive/2025/06/27/us/ice-arrests-trump.html
-
-**Mbeumo informs Brentford, Tottenham of decision to join Manchester United**\
-`Mbeumo has notified Spurs and Brentford that should he depart the Gtech Community Stadium this summer, it will be for Old Trafford.`\
-https://nytimes.com/athletic/6447519/2025/06/27/bryan-mbeumo-manchester-united-transfer-spurs-brentford/
-
-**Sean Combs’s Son Christian Releases a Song With Ye: ‘Diddy Free’**\
-`The track, which also features North West, includes a chorus where the rapper known as King Combs promises not to sleep “’til we see Diddy free.”`\
-https://nytimes.com/2025/06/27/arts/music/sean-combs-son-kanye-west-diddy-free.html
-
-**Mark Hortman was an ‘enthusiastic campaign spouse.’**\
-`By Pooja Salhotra`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/mark-hortman-was-an-enthusiastic-campaign-spouse
-
-**Liverpool set to sign goalkeeper Woodman on free transfer from Preston**\
-`The 28-year-old will provide experienced back-up for Alisson and Giorgi Mamardashvili.`\
-https://nytimes.com/athletic/6456757/2025/06/27/freddie-woodman-liverpool-preston-transfer/
-
-**Trump Says U.S. Ending Trade Talks With Canada**\
-`The president said he would cease negotiations and impose new tariffs because of Canada’s imminent, new digital services taxes.`\
-https://nytimes.com/2025/06/27/business/trump-ends-canada-trade-talks.html
 
