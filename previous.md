@@ -1,8 +1,16 @@
+**Scouting Jesús Made, Luis Peña, and more Brewers and Orioles prospects; plus Trey Yesavage notes**\
+`Made and Peña flashed elite tools, while Orioles prospect Nate George could be a pop-up prospect to watch.`\
+https://nytimes.com/athletic/6457147/2025/06/27/mlb-prospects-scouting-jesus-made-luis-pena/
+
+**Olivier Giroud, France’s All-Time leading scorer, mutually parts ways with LAFC**\
+`Giroud debuted for the MLS side in 2024 after ending his time with AC Milan.`\
+https://nytimes.com/athletic/6456996/2025/06/27/lafc-olivier-giroud-france/
+
 **49ers' Deommodore Lenoir arrested on obstruction charge by LAPD**\
 `The San Francisco 49ers said in a statement that they are aware of the matter and are in the process of gathering more information. `\
 https://nytimes.com/athletic/6456858/2025/06/27/deommodore-lenoir-arrest-san-francisco-49ers/
 
-**Blue Jackets acquire Charlie Coyle from the Avalanche: Sources**\
+**Blue Jackets acquire forward Charlie Coyle from the Avalanche**\
 `The veteran center will join a young and talented group of forwards in Columbus.`\
 https://nytimes.com/athletic/6457165/2025/06/27/blue-jackets-acquire-charlie-coyle-from-the-avalanche-sources/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/nyregion/us-medicare-fraud-charges.html
 **Season lengthened, contracts shortened, EBUGs squashed: Explaining the new NHL CBA**\
 `Exact details on everything in the new agreement are still not fully available, but here are the biggest changes and what they mean. `\
 https://nytimes.com/athletic/6456745/2025/06/27/nhl-cba-84-game-season-ebug-explainer/
-
-**Wellness Around the World**\
-``\
-https://nytimes.com/spotlight/wellness-around-the-world
-
-**Prestige Podcast Company Pineapple Street Studios Shuts Down**\
-`The studio was a model podcast startup of the 2010s. But Audacy, its owner, has struggled to turn a profit.`\
-https://nytimes.com/2025/06/27/arts/music/pineapple-street-studios-podcasts.html
 
