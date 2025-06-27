@@ -1,3 +1,7 @@
+**Rwanda and Congo Sign U.S.-Brokered Peace Treaty**\
+`President Trump claims credit for the outcome. The main question now is how the treaty will be implemented as fighting still rages in eastern Congo.`\
+https://nytimes.com/2025/06/27/us/politics/rwanda-congo-peace-agreement.html
+
 **Canadiens have long coveted a Noah Dobson type. Now they have the real thing**\
 `The Canadiens appear to be set on the blue line for years to come with Dobson joining Lane Hutson, Kaiden Guhle and David Reinbacher.`\
 https://nytimes.com/athletic/6457024/2025/06/27/canadiens-noah-dobson-trade-nhl-draft/
@@ -12,7 +16,7 @@ https://nytimes.com/2025/06/27/us/politics/republicans-tax-increases-trump-bill.
 
 **Mourners gather at the Minnesota Capitol, where the Hortmans are lying in state.**\
 `By Jeff Ernst, Jay Senter and Mitch Smith`\
-https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state
+https://nytimes.com/2025/06/27/us/politics/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state.html
 
 **What I'm hearing about a possible Rangers-Gavrikov fit, other free agency and trade plans**\
 `As the start of the NHL draft nears, here is what sources around the league are saying about New York's offseason plans.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455040/2025/06/27/chaz-lanier-pistons-draft-player
 **Nate Morris, Wealthy Business Executive, Enters Senate Race in Kentucky**\
 `Mr. Morris, a founder of a waste and recycling business, describes himself as the only political outsider in the field and an unwavering supporter of President Trump.`\
 https://nytimes.com/2025/06/27/us/politics/nate-morris-kentucky-senate.html
-
-**How to watch Fever at Wings: Caitlin Clark will miss showdown vs. Paige Bueckers**\
-`Caitlin Clark and Paige Bueckers will have to wait to renew their rivalry as the Fever face the surging Wings without their star player.`\
-https://nytimes.com/athletic/6450656/2025/06/27/caitlin-clark-injury-paige-bueckers-fever-wings-wnba-how-to-watch/
 

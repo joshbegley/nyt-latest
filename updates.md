@@ -1,3 +1,11 @@
+**Rwanda and Congo Sign U.S.-Brokered Peace Treaty**\
+`President Trump claims credit for the outcome. The main question now is how the treaty will be implemented as fighting still rages in eastern Congo.`\
+https://nytimes.com/2025/06/27/us/politics/rwanda-congo-peace-agreement.html
+
+**Mourners gather at the Minnesota Capitol, where the Hortmans are lying in state.**\
+`By Jeff Ernst, Jay Senter and Mitch Smith`\
+https://nytimes.com/2025/06/27/us/politics/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state.html
+
 **Canadiens have long coveted a Noah Dobson type. Now they have the real thing**\
 `The Canadiens appear to be set on the blue line for years to come with Dobson joining Lane Hutson, Kaiden Guhle and David Reinbacher.`\
 https://nytimes.com/athletic/6457024/2025/06/27/canadiens-noah-dobson-trade-nhl-draft/
