@@ -1,3 +1,7 @@
+**‘F1’ | Anatomy of a Scene**\
+`Joseph Kosinski narrates a sequence from his film, starring Brad Pitt.`\
+https://nytimes.com/video/movies/100000010252229/f1-scene.html
+
 **Paul Pogba set for Monaco medical**\
 `The 32-year-old is a free agent having left Juventus by mutual consent in November 2024.`\
 https://nytimes.com/athletic/6425014/2025/06/27/monaco-paul-pogba-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/world/asia/japan-serial-killer-execution.html
 **Mike Zarren praises Celtics' draft picks, says Jaylen Brown, Derrick White 'key parts of our team'**\
 `"We got two picks tonight, both of which should be good future picks. … But that's a key part of our strategy," Zarren said.`\
 https://nytimes.com/athletic/6455511/2025/06/27/celtics-nba-draft-round-2-jaylen-brown-derrick-white/
-
-**Diego Luna Gives Jimmy Kimmel the Gift of Fox News Coverage**\
-`While filling in for Kimmel this week, the actor-director got the attention of Laura Ingraham, who said she’d never seen the show before.`\
-https://nytimes.com/2025/06/27/arts/television/diego-luna-jimmy-kimmel-fox.html
 
