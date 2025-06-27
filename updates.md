@@ -1,3 +1,7 @@
+**Japan Hangs Man Convicted in Serial Killings of Nine People**\
+`Takahiro Shiraishi was put to death on Friday, eight years after body parts were found in coolers at his home outside Tokyo. It was Japan’s first execution in years.`\
+https://nytimes.com/2025/06/27/world/asia/japan-serial-killer-execution.html
+
 **Mike Zarren praises Celtics' draft picks, says Jaylen Brown, Derrick White 'key parts of our team'**\
 `"We got two picks tonight, both of which should be good future picks. … But that's a key part of our strategy," Zarren said.`\
 https://nytimes.com/athletic/6455511/2025/06/27/celtics-nba-draft-round-2-jaylen-brown-derrick-white/
