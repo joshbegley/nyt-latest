@@ -1,3 +1,11 @@
+**How to watch Lynx at Dream: Atlanta looks to play spoiler vs. WNBA's top team**\
+`With both sides coming off of disappointing losses, the Lynx and Dream are headed for a hard-fought heavyweight battle on Friday night. `\
+https://nytimes.com/athletic/6454779/2025/06/27/lynx-vs-dream-atlanta-wnba-how-to-watch/
+
+**:( Microsoft’s ‘Blue Screen of Death’ Is Going Away**\
+`The blue screen that stressed computer users for more than three decades is giving way to a black one.`\
+https://nytimes.com/2025/06/27/technology/microsoft-blue-screen-death-windows.html
+
 **Scouting Jesús Made, Luis Peña, and more Brewers and Orioles prospects; plus Trey Yesavage notes**\
 `Made and Peña flashed elite tools, while Orioles prospect Nate George could be a pop-up prospect to watch.`\
 https://nytimes.com/athletic/6457147/2025/06/27/mlb-prospects-scouting-jesus-made-luis-pena/

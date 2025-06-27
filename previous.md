@@ -1,3 +1,11 @@
+**How to watch Lynx at Dream: Atlanta looks to play spoiler vs. WNBA's top team**\
+`With both sides coming off of disappointing losses, the Lynx and Dream are headed for a hard-fought heavyweight battle on Friday night. `\
+https://nytimes.com/athletic/6454779/2025/06/27/lynx-vs-dream-atlanta-wnba-how-to-watch/
+
+**:( Microsoft’s ‘Blue Screen of Death’ Is Going Away**\
+`The blue screen that stressed computer users for more than three decades is giving way to a black one.`\
+https://nytimes.com/2025/06/27/technology/microsoft-blue-screen-death-windows.html
+
 **Scouting Jesús Made, Luis Peña, and more Brewers and Orioles prospects; plus Trey Yesavage notes**\
 `Made and Peña flashed elite tools, while Orioles prospect Nate George could be a pop-up prospect to watch.`\
 https://nytimes.com/athletic/6457147/2025/06/27/mlb-prospects-scouting-jesus-made-luis-pena/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/birthright-bondi-trump.html
 **Jung Hoo Lee's slump is a symptom of the type of hitter he is — and is likely temporary**\
 `Lee is a contact hitter and hitters with his profile tend to have lots of highs and lows through a season thanks to fluctuating BABIPs.`\
 https://nytimes.com/athletic/6453908/2025/06/27/jung-hoo-lee-slump-hitting-profile/
-
-**U.S. Charges 11 in Russia-Based Scheme to Bilk Medicare of $10.6 Billion**\
-`Concerns of a far-reaching fraud grew when hundreds of thousands of Medicare recipients were billed for medical equipment they had not asked for.`\
-https://nytimes.com/2025/06/27/nyregion/us-medicare-fraud-charges.html
-
-**Season lengthened, contracts shortened, EBUGs squashed: Explaining the new NHL CBA**\
-`Exact details on everything in the new agreement are still not fully available, but here are the biggest changes and what they mean. `\
-https://nytimes.com/athletic/6456745/2025/06/27/nhl-cba-84-game-season-ebug-explainer/
 
