@@ -1,3 +1,11 @@
+**Injury-plagued Astros are surging into second half of 2025 — but how?**\
+`Inevitability is part of the Astros’ aura, but it still doesn't explain what has transpired over the first half of the 2025 season.`\
+https://nytimes.com/athletic/6454928/2025/06/26/houston-astros-first-half-turnaround/
+
+**The Parents Who Helped Shape Zohran Mamdani’s Politics**\
+`Zohran Mamdani’s parents, a filmmaker and a professor, gave him the foundation for his run for mayor of New York. But their own political views may open him up to attacks.`\
+https://nytimes.com/2025/06/26/nyregion/zohran-mamdani-parents-mira-nair.html
+
 **Canadian Citizen Dies at ICE Detention Center in Florida**\
 `The death of Johnny Noviello, 49, came as ICE agents have made sweeping arrests across the United States as part of President Trump’s crackdown on immigration. The cause is under investigation.`\
 https://nytimes.com/2025/06/26/us/canadian-dies-ice-custody-florida.html
