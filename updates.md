@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
 
+**What John Tavares' hometown discount means for the Leafs — now and later**\
+`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
+`\
+https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
+
 **‘I’ve Basically Lost Everything’: The Aftermath of the 12-Day War**\
 `Mohsen Naghib-Hashemi, a graphic designer from Tehran, said his home and car were significantly damaged during the fighting between Israel and Iran. He described to The New York Times the challenges he faces in rebuilding his life.`\
 https://nytimes.com/video/world/middleeast/100000010252314/tehran-damage-war-israel.html
