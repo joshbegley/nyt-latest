@@ -1,3 +1,7 @@
+**Newsom Sues Fox News for Saying He Lied About Call With Trump**\
+`The lawsuit, which seeks at least $787 million in damages, comes as the California governor adopts an increasingly combative style with the president and his allies.`\
+https://nytimes.com/2025/06/27/us/politics/gavin-newsom-fox-news-lawsuit-trump-call.html
+
 **Harvey Milk’s Name Is Stripped from U.S. Navy Vessel**\
 `Defense Secretary Pete Hegseth said the decision to rename the replenishment vessel was “taking the politics out of ship naming.”`\
 https://nytimes.com/2025/06/27/us/politics/usns-harvey-milk-navy-ship-name-hegseth.html

@@ -1,3 +1,7 @@
+**Newsom Sues Fox News for Saying He Lied About Call With Trump**\
+`The lawsuit, which seeks at least $787 million in damages, comes as the California governor adopts an increasingly combative style with the president and his allies.`\
+https://nytimes.com/2025/06/27/us/politics/gavin-newsom-fox-news-lawsuit-trump-call.html
+
 **Harvey Milk’s Name Is Stripped from U.S. Navy Vessel**\
 `Defense Secretary Pete Hegseth said the decision to rename the replenishment vessel was “taking the politics out of ship naming.”`\
 https://nytimes.com/2025/06/27/us/politics/usns-harvey-milk-navy-ship-name-hegseth.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-its-closing-a
 **Why the Pac-12 is adding Texas State, how it rebuilt and next steps in realignment**\
 `Texas State is expected to become the eighth football-playing school to join the rebuilt league. `\
 https://nytimes.com/athletic/6454276/2025/06/27/texas-state-pac-12-conference-realignment/
-
-**The Fed’s Preferred Inflation Gauge Was Slightly Hotter in May**\
-`Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
-https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
 
