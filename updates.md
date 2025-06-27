@@ -1,3 +1,11 @@
+**How the Birthright Citizenship and Nationwide Injunctions Case Began**\
+`The dispute before the court was prompted by an order President Trump signed on his first day back in the White House.`\
+https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-nationwide-injunctions.html
+
+**Rick Hurst, Cletus Hogg on ‘The Dukes of Hazzard,’ Dies at 79**\
+`As the affable deputy sheriff on the popular CBS show, Mr. Hurst became a beloved figure for many fans of the show.`\
+https://nytimes.com/2025/06/27/obituaries/rick-hurst-dead.html
+
 **Pro-Palestinian Activists Arrested Under Terrorism Law in U.K. Air Base Break-In**\
 `The powers used against the members of a group called Palestine Action are more usually employed in cases of planned jihadist or far-right violence.`\
 https://nytimes.com/2025/06/27/world/europe/uk-palestine-action-arrests-terrorism-law.html
