@@ -1,8 +1,16 @@
+**Chase DeLauter, Mickey Moniak and more top fantasy baseball waiver wire adds**\
+`Owen Poindexter offers up his top waiver wire targets this week, and likes the profile of Cleveland's impending call-up Chase DeLauter.`\
+https://nytimes.com/athletic/6454330/2025/06/27/fantasy-baseball-waiver-wire-adds-pickups-delauter/
+
+**Tech C.E.O. Pays $400,000 to Conduct the Toronto Symphony**\
+`Mandle Cheung, a 78-year-old amateur conductor, led a performance of Mahler’s “Resurrection” Symphony over the objections of some musicians.`\
+https://nytimes.com/2025/06/27/arts/music/mandle-cheung-toronto-symphony-mahler.html
+
 **Newsom Sues Fox News for Saying He Lied About Call With Trump**\
 `The lawsuit, which seeks at least $787 million in damages, comes as the California governor adopts an increasingly combative style with the president and his allies.`\
 https://nytimes.com/2025/06/27/us/politics/gavin-newsom-fox-news-lawsuit-trump-call.html
 
-**Harvey Milk’s Name Is Stripped from U.S. Navy Vessel**\
+**Harvey Milk’s Name Is Stripped From U.S. Navy Vessel**\
 `Defense Secretary Pete Hegseth said the decision to rename the replenishment vessel was “taking the politics out of ship naming.”`\
 https://nytimes.com/2025/06/27/us/politics/usns-harvey-milk-navy-ship-name-hegseth.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6423652/2025/06/27/keith-andrews-brentford-manager-
 **Premier League TV coverage set for enhanced access, including interviews with subs**\
 `In order to keep pace with their US counterparts, British broadcasters sought increased access from the Premier League.`\
 https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-sub-interviews/
-
-**In its closing argument, the prosecution said Combs’s ‘crimes have been exposed.’**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-its-closing-argument-the-prosecution-said-combss-crimes-have-been-exposed
-
-**Why the Pac-12 is adding Texas State, how it rebuilt and next steps in realignment**\
-`Texas State is expected to become the eighth football-playing school to join the rebuilt league. `\
-https://nytimes.com/athletic/6454276/2025/06/27/texas-state-pac-12-conference-realignment/
 
