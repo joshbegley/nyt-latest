@@ -1,3 +1,7 @@
+**Supreme Court Punts Decision on Louisiana Voting Map Until Next Term**\
+`The justices asked that the case, which has implications for the political power of Black voters, be reargued next term.`\
+https://nytimes.com/2025/06/27/us/politics/supreme-court-louisiana-congressional-map.html
+
 **London Man Who Killed a Boy With a Samurai Sword Receives Life Sentence**\
 `Prosecutors said Marcos Arduini Monzo experienced a drug-induced psychosis before going on a 20-minute rampage through the residential streets of northeast London.`\
 https://nytimes.com/2025/06/27/world/europe/london-samurai-sword-murder-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/nyregion/unions-mamdani-cuomo-endorsement.html
 **Real Madrid expect Alaba to miss Club World Cup after fresh injury**\
 `Alaba underwent assessments which revealed an injury to his left calf muscle.`\
 https://nytimes.com/athletic/6456648/2025/06/27/david-alaba-real-madrid-injury-club-world-cup/
-
-**The 6.29.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/06/27/the-6292025-issue
 
