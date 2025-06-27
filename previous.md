@@ -1,3 +1,11 @@
+**U.S. Approves $30 Million for Contentious New Gaza Aid Group**\
+`The Israel-backed Gaza Humanitarian Foundation has been criticized by the United Nations and other aid groups, which say that its system exposes Gazans to danger.`\
+https://nytimes.com/2025/06/26/world/middleeast/us-30-million-gaza-humanitarian-foundation.html
+
+**The Best of the Rest: Help Us Rank Your Favorite 21st-Century Superhero Movies, Rom-Coms, Horror Films and More**\
+`A collaborative, live-updating reader exercise.`\
+https://nytimes.com/interactive/2025/movies/21st-century-movie-game.html
+
 **‘And Just Like That …’ Season 3, Episode 5 Recap: Heels**\
 `The Goldenblatts and the Wexleys go glamping on Governors Island, but all is not well. Carrie meets her moody new neighbor.`\
 https://nytimes.com/2025/06/26/arts/television/and-just-like-that-recap-season-3-episode-5.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6454928/2025/06/26/houston-astros-first-half-turnar
 **The Parents Who Helped Shape Zohran Mamdani’s Politics**\
 `Zohran Mamdani’s parents, a filmmaker and a professor, gave him the foundation for his run for mayor of New York. But their own political views may open him up to attacks.`\
 https://nytimes.com/2025/06/26/nyregion/zohran-mamdani-parents-mira-nair.html
-
-**Canadian Citizen Dies at ICE Detention Center in Florida**\
-`The death of Johnny Noviello, 49, came as ICE agents have made sweeping arrests across the United States as part of President Trump’s crackdown on immigration. The cause is under investigation.`\
-https://nytimes.com/2025/06/26/us/canadian-dies-ice-custody-florida.html
-
-**Dodgers stock report: Pitching depth, left field and Andy Pages' All-Star case**\
-`"He's just blossomed into, in my opinion, an All-Star," reliever Anthony Banda said of Pages last week. "He's one of a kind."`\
-https://nytimes.com/athletic/6454808/2025/06/26/dodgers-stock-pitching-depth-left-field-andy-pages/
 

@@ -1,3 +1,11 @@
+**U.S. Approves $30 Million for Contentious New Gaza Aid Group**\
+`The Israel-backed Gaza Humanitarian Foundation has been criticized by the United Nations and other aid groups, which say that its system exposes Gazans to danger.`\
+https://nytimes.com/2025/06/26/world/middleeast/us-30-million-gaza-humanitarian-foundation.html
+
+**The Best of the Rest: Help Us Rank Your Favorite 21st-Century Superhero Movies, Rom-Coms, Horror Films and More**\
+`A collaborative, live-updating reader exercise.`\
+https://nytimes.com/interactive/2025/movies/21st-century-movie-game.html
+
 **‘And Just Like That …’ Season 3, Episode 5 Recap: Heels**\
 `The Goldenblatts and the Wexleys go glamping on Governors Island, but all is not well. Carrie meets her moody new neighbor.`\
 https://nytimes.com/2025/06/26/arts/television/and-just-like-that-recap-season-3-episode-5.html
