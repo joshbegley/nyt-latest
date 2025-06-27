@@ -1,3 +1,15 @@
+**‘Done Waiting My Turn’: Younger Democrats Are Eager to Seize the Car Keys**\
+`Three very different politicians — from New York, Virginia and New Jersey — won elections this month with a common theme: leadership for the next generation.`\
+https://nytimes.com/2025/06/27/us/politics/democrats-mamdani-younger-generation.html
+
+**UEFA increase funding for clubs releasing players for Women's Euros**\
+`The increase in club benefits coincides with the record increase in prize money for Euro 2025 to €41m.`\
+https://nytimes.com/athletic/6456215/2025/06/27/uefa-euro-2025-clubs-funding/
+
+**Sean Combs’s lawyer, in an animated closing argument, calls it ‘a tale of two trials.’**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/sean-combss-lawyer-in-an-animated-closing-argument-calls-it-a-tale-of-two-trials
+
 **Supreme Court Allows Trump Order Ending Birthright Citizenship to Go Into Effect in Some Parts of Country**\
 `The decision upends the power of federal judges to freeze policies for the entire country, clearing a major hurdle to President Trump’s agenda.`\
 https://nytimes.com/2025/06/27/us/supreme-court-birthright-citizenship.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/27/world/europe/uk-palestine-action-arrests-terroris
 **Canadiens, Blue Jackets finalists in trade talks for Islanders' Noah Dobson: Sources**\
 `Dobson wishes to join a team on the upswing toward contention, and both of those landing spots are viewed as favorable.`\
 https://nytimes.com/athletic/6456232/2025/06/27/noah-dobson-trade-canadiens-blue-jackets-islanders/
-
-**Here’s the latest.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/heres-the-latest
-
-**The original case that established birthright citizenship was decided in 1898.**\
-`By Amy Qin`\
-https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/the-original-case-that-established-birthright-citizenship-was-decided-in-1898
-
-**Live Updates: Supreme Court Uses Birthright Citizenship Case to Limit Use of Nationwide Injunctions**\
-`The justices found federal judges had exceeded their power by issuing temporary pauses on President Trump’s order ending birthright citizenship. But they made no ruling on the constitutionality of the order itself.`\
-https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court
 
