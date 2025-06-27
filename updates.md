@@ -1,3 +1,7 @@
+**She Ripped German Conservatives on Social Media. They Didn’t Forget.**\
+`Heidi Reichinnek, a leader of the far-left Die Linke, was denied a seat on the parliamentary committee that oversees German intelligence agencies.`\
+https://nytimes.com/2025/06/27/world/europe/heidi-reichinnek-linke-germany.html
+
 **The Senate Should Let Trump’s Bill Die**\
 `Debt payments already exceed military spending. The president’s bill will make things worse.`\
 https://nytimes.com/2025/06/27/opinion/trump-budget-big-beautiful-bill.html
