@@ -1,3 +1,15 @@
+**Chase DeLauter, Mickey Moniak and more top fantasy baseball waiver wire adds**\
+`Owen Poindexter offers up his top waiver wire targets this week, and likes the profile of Cleveland's impending call-up Chase DeLauter.`\
+https://nytimes.com/athletic/6454330/2025/06/27/fantasy-baseball-waiver-wire-adds-pickups-delauter/
+
+**Tech C.E.O. Pays $400,000 to Conduct the Toronto Symphony**\
+`Mandle Cheung, a 78-year-old amateur conductor, led a performance of Mahler’s “Resurrection” Symphony over the objections of some musicians.`\
+https://nytimes.com/2025/06/27/arts/music/mandle-cheung-toronto-symphony-mahler.html
+
+**Harvey Milk’s Name Is Stripped From U.S. Navy Vessel**\
+`Defense Secretary Pete Hegseth said the decision to rename the replenishment vessel was “taking the politics out of ship naming.”`\
+https://nytimes.com/2025/06/27/us/politics/usns-harvey-milk-navy-ship-name-hegseth.html
+
 **Newsom Sues Fox News for Saying He Lied About Call With Trump**\
 `The lawsuit, which seeks at least $787 million in damages, comes as the California governor adopts an increasingly combative style with the president and his allies.`\
 https://nytimes.com/2025/06/27/us/politics/gavin-newsom-fox-news-lawsuit-trump-call.html
