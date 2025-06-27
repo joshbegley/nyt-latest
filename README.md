@@ -1,3 +1,11 @@
+**G7 Backs Plan for ‘Side-by-Side’ Tax System to Avoid U.S. Fight**\
+`American companies will be exempt from penalties related to a 2021 global minimum tax deal that President Trump opposes.`\
+https://nytimes.com/2025/06/27/business/g7-tax-plan-trump.html
+
+**Until Saturday: The new best G5 conference is ...**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6456429/2025/06/27/sun-belt-football-jmu-until-saturday/
+
 **NFL will not hold Supplemental Draft in 2025: Sources**\
 `The last Supplemental Draft was held in 2023 with two eligible prospects, though neither was selected.`\
 https://nytimes.com/athletic/6456326/2025/06/27/nfl-no-supplemental-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6456098/2025/06/27/cooper-flagg-mavericks-nba-draft
 **Blackhawks unveil home jersey for centennial season**\
 `Features include a vintage lace-up collar, a gold trim around the logo and a “100” shoulder patch.`\
 https://nytimes.com/athletic/6455338/2025/06/27/blackhawks-jersey-centennial-2026/
-
-**A Perfect Pasta for Not-Yet-Perfect Tomatoes**\
-`Melissa Clark’s ace recipe enhances cherry tomatoes with pancetta, loads of mint, pecorino and a little butter. It’s ridiculously good.`\
-https://nytimes.com/2025/06/27/dining/easy-pasta-with-cherry-tomatoes.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a Spanish drama about a transgender girl, a nail-biting Indian thriller, a Chinese docufiction and more.`\
-https://nytimes.com/2025/06/27/movies/five-international-movies-to-stream-now.html
 
