@@ -1,4 +1,33 @@
-**Canadiens acquire Noah Dobson in trade with Islanders, will sign him to 8-year extension**\
+**Liverpool set to sign goalkeeper Woodman on free transfer from Preston**\
+`The 28-year-old will provide experienced back-up for Alisson and Giorgi Mamardashvili.`\
+https://nytimes.com/athletic/6456757/2025/06/27/freddie-woodman-liverpool-preston-transfer/
+
+**Trump Says U.S. Ending Trade Talks With Canada**\
+`The president said he would cease negotiations and impose new tariffs because of Canada’s imminent, new digital services taxes.`\
+https://nytimes.com/2025/06/27/business/trump-ends-canada-trade-talks.html
+
+**Jonathan Mayers, a Founder of the Bonnaroo Music Festival, Dies at 51**\
+`He helped bring crowds of music fans to a remote Tennessee cow farm with Bonnaroo, and to San Francisco with the Outside Lands festival.`\
+https://nytimes.com/2025/06/27/arts/music/jonathan-mayers-dead.html
+
+**Lawmakers remember Melissa Hortman as a pragmatic problem solver.**\
+`Colleagues described Representative Melissa Hortman as a skilled, conciliatory lawmaker who was at once steely and warm.`\
+https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/lawmakers-remember-melissa-hortman-as-a-pragmatic-problem-solver
+
+**A Conservative’s Plan to Sell Public Lands Faces MAGA Pushback**\
+`They love hunting, fishing and conservatism. And they hate a plan by a conservative senator to sell millions of acres of public lands.`\
+https://nytimes.com/2025/06/27/climate/public-lands-sell-off-maga.html
+
+**Here’s what happened at the hearing for the man accused of shooting Minnesota lawmakers.**\
+`A lawyer representing the suspected gunman complained about the strict conditions under which he is being held in a local jail as she asked a judge to push back a detention hearing.`\
+https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/heres-what-happened-at-the-hearing-for-the-man-accused-of-shooting-minnesota-lawmakers
+
+**Padres live Q&A Dennis Lin at noon PT on Friday, June 27**\
+`<p>San Diego Padres writer Dennis Lin will answer subscribers’ questions about the team and organization during a live Q&amp;A on Friday, June 27, from 12 p.m. to 12:45 p.m. PT. Questions can be submitted ahead of time or during the Q&amp;A.</p>
+`\
+https://nytimes.com/athletic/6453556/2025/06/27/padres-live-qa-dennis-lin-at-noon-et-on-friday-june-27/
+
+**Canadiens acquire Dobson from Islanders, will sign him to 8-year extension**\
 `Dobson had a career-best 70 points for the team two years ago and finished last season with 10 goals and 39 points in 71 games.`\
 https://nytimes.com/athletic/6456350/2025/06/27/noah-dobson-canadiens-islanders-trade-nhl/
 
@@ -9,32 +38,4 @@ https://nytimes.com/athletic/6456685/2025/06/27/cal-raleigh-mlbs-hr-leader-to-pa
 **Supreme Court Punts Decision on Louisiana Voting Map Until Next Term**\
 `The justices asked that the case, which has implications for the political power of Black voters, be reargued next term.`\
 https://nytimes.com/2025/06/27/us/politics/supreme-court-louisiana-congressional-map.html
-
-**London Man Who Killed a Boy With a Samurai Sword Receives Life Sentence**\
-`Prosecutors said Marcos Arduini Monzo experienced a drug-induced psychosis before going on a 20-minute rampage through the residential streets of northeast London.`\
-https://nytimes.com/2025/06/27/world/europe/london-samurai-sword-murder-sentencing.html
-
-**With Mark Vientos back, how can Mets find time for Ronny Mauricio, Brett Baty?**\
-`Manager Carlos Mendoza said players will rotate through a few spots in the lineup and "that's a good problem to have."`\
-https://nytimes.com/athletic/6456538/2025/06/27/mark-vientos-ronny-mauricio-brett-baty-mets-roster/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 6/27 at 2:30 p.m. ET**\
-`Submit your questions for Eno Sarris' live chat about MLB and fantasy baseball.`\
-https://nytimes.com/athletic/6454282/2025/06/27/sarris-live-chat-mlb-fantasy-baseball-6-27/
-
-**NHL contract grades: John Tavares takes hometown discount to stick with Maple Leafs**\
-`The modest AAV means Tavares should comfortably live up to his contract even if he declines significantly toward the end of this deal.`\
-https://nytimes.com/athletic/6456683/2025/06/27/nhl-contract-grades-john-tavares/
-
-**Where does Oilers' bet on Trent Frederic fit among past long-term commitments?**\
-`There’s a bit of sticker shock with Frederic’s contract, especially as it pertains to the length.`\
-https://nytimes.com/athletic/6453930/2025/06/27/oilers-trent-frederic-contract-hyman-lucic/
-
-**Civil rights groups warn that the decision involving birthright citizenship will create chaos.**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/civil-rights-groups-warn-that-the-decision-involving-birthright-citizenship-will-create-chaos
-
-**A Slain Minnesota Lawmaker Is Lying in State. Here’s What That Means.**\
-`The former speaker of the House, her husband and their dog were killed in what officials describe as a political assassination. All three are being honored at the State Capitol.`\
-https://nytimes.com/2025/06/27/us/politics/lie-in-state-minnesota-capitol-hortman.html
 
