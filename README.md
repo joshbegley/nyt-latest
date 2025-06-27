@@ -1,3 +1,11 @@
+**How the Birthright Citizenship and Nationwide Injunctions Case Began**\
+`The dispute before the court was prompted by an order President Trump signed on his first day back in the White House.`\
+https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-nationwide-injunctions.html
+
+**Rick Hurst, Cletus Hogg on ‘The Dukes of Hazzard,’ Dies at 79**\
+`As the affable deputy sheriff on the popular CBS show, Mr. Hurst became a beloved figure for many fans of the show.`\
+https://nytimes.com/2025/06/27/obituaries/rick-hurst-dead.html
+
 **Pro-Palestinian Activists Arrested Under Terrorism Law in U.K. Air Base Break-In**\
 `The powers used against the members of a group called Palestine Action are more usually employed in cases of planned jihadist or far-right violence.`\
 https://nytimes.com/2025/06/27/world/europe/uk-palestine-action-arrests-terrorism-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/books/review/the-catch-yrsa-daley-ward-book-club.
 **Bucks hoped Bogoljub Marković would fall to them at No. 47: 'Crossing our fingers'**\
 `For the second consecutive season, the Bucks used their second-round pick on a teenager with upside and potential.`\
 https://nytimes.com/athletic/6454773/2025/06/27/bucks-draft-bogoljub-markovic/
-
-**Trump Administration Signals Trade Talks May Extend Beyond July Deadline**\
-`The Treasury secretary said negotiations with some countries might last until Labor Day, signaling that the White House may hold back from imposing tariffs on some trading partners in early July.`\
-https://nytimes.com/2025/06/27/business/economy/trump-trade-talks-july-deadline-labor-day.html
-
-**Chase DeLauter, Mickey Moniak and more top fantasy baseball waiver wire adds**\
-`Owen Poindexter offers up his top waiver wire targets this week, and likes the profile of Cleveland's impending call-up Chase DeLauter.`\
-https://nytimes.com/athletic/6454330/2025/06/27/fantasy-baseball-waiver-wire-adds-pickups-delauter/
 
