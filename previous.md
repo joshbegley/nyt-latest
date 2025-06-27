@@ -1,3 +1,27 @@
+**Room for One More on Mount Rushmore? (The President Wants to Know)**\
+`Let’s review how we got here, and closely examine what the rock would allow.`\
+https://nytimes.com/interactive/2025/06/27/us/mount-rushmore-trump.html
+
+**Jack Kleinsinger, Impresario Behind a Marathon Jazz Series, Dies at 88**\
+`A lawyer by day, he created Highlights in Jazz, bringing together artists both famous and unknown in more than 300 concerts over 50 years.`\
+https://nytimes.com/2025/06/27/arts/music/jack-kleinsinger-dead.html
+
+**Trade grades: Blue Jackets pay high price, let Avalanche off the hook in Charlie Coyle deal**\
+`This is an unbelievably good move for the Avalanche, who cleared $7.75 million in cap space and could be unexpected players in free agency.`\
+https://nytimes.com/athletic/6457196/2025/06/27/charlie-coyle-trade-grades-nhl-blue-jackets-avalanche/
+
+**Masai Ujiri and the Raptors have split, but their success will impact Toronto forever**\
+`The Raptors have been seeking a new direction for a while, but their peaks with Masai Ujiri will remain etched in NBA history`\
+https://nytimes.com/athletic/6456747/2025/06/27/masai-ujiri-raptors-parted-ways-nba-timeline/
+
+**Raptors' firing of Masai Ujiri leaves MLSE's priorities open to questioning**\
+`Masai Ujiri wanted nothing more than for the Raptors to win. What does that mean for the team now that he's gone?`\
+https://nytimes.com/athletic/6457075/2025/06/27/masai-ujiri-toronto-raptors-departure/
+
+**How to watch the Twins at Tigers series, with Skubal on 'Sunday Night Baseball'**\
+`The Detroit Tigers are dominant, and we're all friends with Paws the Tiger now. Here's how to watch their series vs. the Minnesota Twins.`\
+https://nytimes.com/athletic/6456452/2025/06/27/twins-tigers-skubal-sunday-night-baseball-how-to-watch/
+
 **American Airlines Flights Snarled by Computer Glitch**\
 `A systems outage temporarily grounded some planes on Friday, causing headaches for both crew and passengers around the United States.`\
 https://nytimes.com/2025/06/27/travel/american-airlines-outage-delays.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/trump-iran-nuclear-bomb-uranium.html
 **Supreme Court Limits Ability of Judges to Block Executive Orders**\
 `Senator Chuck Schumer, the minority leader, along with several progressive House Democrats, denounced the Supreme Court’s decision.`\
 https://nytimes.com/video/us/politics/100000010255031/birthright-citizenship-supreme-court.html
-
-**Overlooked No More: Rotimi Fani-Kayode, Whose Camera Sought a Truer Image of Black Men**\
-`He was a pioneering figure in Black British art whose rebellious, symbol-rich images explored race, queerness, desire and spirituality.`\
-https://nytimes.com/2025/06/27/obituaries/rotimi-fani-kayode-overlooked.html
-
-**12 Days of Attacks Later, Could Iran Make an Atomic Bomb?**\
-`How an atomic weapon is built, and what the recent Israeli and U.S. attacks on Iran may mean for the country’s nuclear ambitions.`\
-https://nytimes.com/interactive/2025/06/27/world/middleeast/iran-us-nuclear-weapons.html
-
-**How to watch Lynx at Dream: Atlanta looks to play spoiler vs. WNBA's top team**\
-`With both sides coming off of disappointing losses, the Lynx and Dream are headed for a hard-fought heavyweight battle on Friday night. `\
-https://nytimes.com/athletic/6454779/2025/06/27/lynx-vs-dream-atlanta-wnba-how-to-watch/
-
-**:( Microsoft’s ‘Blue Screen of Death’ Is Going Away**\
-`The blue screen that stressed computer users for more than three decades is giving way to a black one.`\
-https://nytimes.com/2025/06/27/technology/microsoft-blue-screen-death-windows.html
-
-**Scouting Jesús Made, Luis Peña, and more Brewers and Orioles prospects; plus Trey Yesavage notes**\
-`Made and Peña flashed elite tools, while Orioles prospect Nate George could be a pop-up prospect to watch.`\
-https://nytimes.com/athletic/6457147/2025/06/27/mlb-prospects-scouting-jesus-made-luis-pena/
-
-**Olivier Giroud, France’s All-Time leading scorer, mutually parts ways with LAFC**\
-`Giroud debuted for the MLS side in 2024 after ending his time with AC Milan.`\
-https://nytimes.com/athletic/6456996/2025/06/27/lafc-olivier-giroud-france/
 
