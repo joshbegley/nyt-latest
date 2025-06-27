@@ -1,3 +1,11 @@
+**Brentford to appoint Andrews as Frank's successor**\
+`Andrews has been Brentford's set-piece coach since the start of the 2024-25 season.`\
+https://nytimes.com/athletic/6423652/2025/06/27/keith-andrews-brentford-manager-confirmed/
+
+**Premier League TV coverage set for enhanced access, including interviews with subs**\
+`In order to keep pace with their US counterparts, British broadcasters sought increased access from the Premier League.`\
+https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-sub-interviews/
+
 **Premier League TV coverage set for enhanced access, including interviews with subs**\
 `In order to keep pace with their US counterparts, British broadcasters sought increased access from the Premier League.`\
 https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-coverage-to-include-dressing-room-access-and-interviews-with-subs/

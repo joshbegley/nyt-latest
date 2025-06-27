@@ -1,6 +1,10 @@
+**Brentford to appoint Andrews as Frank's successor**\
+`Andrews has been Brentford's set-piece coach since the start of the 2024-25 season.`\
+https://nytimes.com/athletic/6423652/2025/06/27/keith-andrews-brentford-manager-confirmed/
+
 **Premier League TV coverage set for enhanced access, including interviews with subs**\
 `In order to keep pace with their US counterparts, British broadcasters sought increased access from the Premier League.`\
-https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-coverage-to-include-dressing-room-access-and-interviews-with-subs/
+https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-sub-interviews/
 
 **In its closing argument, the prosecution said Combs’s ‘crimes have been exposed.’**\
 `By Joe Coscarelli`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455650/2025/06/27/totally-football-show-england-un
 **75 years of F1? Not quite: How the magic of 1950 gave way to an identity crisis**\
 `For two full seasons, the Formula One World Championship wasn’t actually contested with Formula One cars`\
 https://nytimes.com/athletic/6451034/2025/06/27/f1-lost-seasons/
-
-**What Business Is Watching in Negotiations Over Big Policy Bill**\
-`Senate Republicans are debating changes to the legislation, after a key official rejected some proposals. Time is ticking for hitting President Trump’s deadline.`\
-https://nytimes.com/2025/06/27/business/dealbook/trump-republicans-bill-parliamentarian.html
 
