@@ -1,3 +1,7 @@
+**Japan Hangs Man Convicted in Serial Killings of Nine People**\
+`Takahiro Shiraishi was put to death on Friday, eight years after body parts were found in coolers at his home outside Tokyo. It was Japan’s first execution in years.`\
+https://nytimes.com/2025/06/27/world/asia/japan-serial-killer-execution.html
+
 **Mike Zarren praises Celtics' draft picks, says Jaylen Brown, Derrick White 'key parts of our team'**\
 `"We got two picks tonight, both of which should be good future picks. … But that's a key part of our strategy," Zarren said.`\
 https://nytimes.com/athletic/6455511/2025/06/27/celtics-nba-draft-round-2-jaylen-brown-derrick-white/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/briefing/aid-gaza-iran-uranium.html
 **Ranking the round-of-16 contenders at the Club World Cup**\
 `Breaking down the remaining teams in the Club World Cup from 1 to 16.`\
 https://nytimes.com/athletic/6455206/2025/06/27/club-world-cup-power-rankings-last-16/
-
-**Welcome to Wrexham season 4 reviewed: McElhenney's pep talk, Mullin's hurt, and Ker's nipples**\
-`What to expect from the new series – and yes, the biggest talking point is addressed`\
-https://nytimes.com/athletic/6429404/2025/06/27/welcome-to-wrexham-season-4-reviewed/
 
