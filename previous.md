@@ -1,3 +1,11 @@
+**With Marcus Stroman struggling, Yankees fans wonder when Cam Schlittler will debut**\
+`For the past two months, the Yankees rotation's 3.08 ERA has been the best across MLB. But now they're weighing options for the No. 5 spot.`\
+https://nytimes.com/athletic/6446881/2025/06/27/yankees-pitchers-cam-schlittler-marcus-stroman/
+
+**Everton and Branthwaite close to agreement over new contract**\
+`The 23-year-old's current terms run until 2027 with the club holding the option of a further year.`\
+https://nytimes.com/athletic/6455839/2025/06/27/everton-jarrad-branthwaite-contract-new/
+
 **China Confirms Trade Framework With U.S. to Lift Export Controls**\
 `The deal involves loosening exports of rare earths to the United States and the lifting of some restrictions on U.S. goods to China, China’s Ministry of Commerce said.`\
 https://nytimes.com/2025/06/27/world/asia/us-china-trade.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6440986/2025/06/27/ducks-draft-picks-grades-2025/
 **Konate's future is a dilemma for Liverpool, who risk seeing history repeat itself**\
 `After Trent Alexander-Arnold’s exit on a free transfer, Liverpool could find themselves in the same position for a second year running`\
 https://nytimes.com/athletic/6455712/2025/06/27/ibrahima-konate-contract-liverpool/
-
-**Blue Jackets NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Blue Jackets' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6441069/2025/06/27/blue-jackets-draft-picks-grades-2025/
-
-**Flames NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Flames' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6441032/2025/06/27/flames-draft-picks-grades-2025/
 
