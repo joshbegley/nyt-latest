@@ -1,3 +1,11 @@
+**49ers' Deommodore Lenoir arrested on obstruction charge by LAPD**\
+`The San Francisco 49ers said in a statement that they are aware of the matter and are in the process of gathering more information. `\
+https://nytimes.com/athletic/6456858/2025/06/27/deommodore-lenoir-arrest-san-francisco-49ers/
+
+**Blue Jackets acquire Charlie Coyle from the Avalanche: Sources**\
+`The veteran center will join a young and talented group of forwards in Columbus.`\
+https://nytimes.com/athletic/6457165/2025/06/27/blue-jackets-acquire-charlie-coyle-from-the-avalanche-sources/
+
 **Arch Manning Q&A: Advice from Matthew McConaughey, Walmart with LSU's QB and more**\
 `Texas' new QB1 held court with reporters for 30 minutes Friday at the Manning Passing Academy. Here's what we heard from Arch.`\
 https://nytimes.com/athletic/6457051/2025/06/27/arch-manning-passing-academy-interview-texas/
