@@ -1,3 +1,7 @@
+**Russia Seizes Key Lithium Field in Challenge for U.S.-Ukraine Minerals Deal**\
+`The capture highlights a core problem in the agreement: The more territory Moscow grabs, the fewer resources Kyiv can offer to Washington.`\
+https://nytimes.com/2025/06/27/world/europe/ukraine-minerals-lithium-russia-donetsk.html
+
 **Emma Hayes' 'astronomical' year as USWNT head coach - but this is only the first step**\
 `Bookended by two 4-0 wins in Colorado, Hayes has got the USWNT 'back on track' and there's more room to grow`\
 https://nytimes.com/athletic/6455675/2025/06/27/uswnt-emma-hayes-year-coach/

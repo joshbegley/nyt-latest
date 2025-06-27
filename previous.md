@@ -1,3 +1,7 @@
+**Russia Seizes Key Lithium Field in Challenge for U.S.-Ukraine Minerals Deal**\
+`The capture highlights a core problem in the agreement: The more territory Moscow grabs, the fewer resources Kyiv can offer to Washington.`\
+https://nytimes.com/2025/06/27/world/europe/ukraine-minerals-lithium-russia-donetsk.html
+
 **Emma Hayes' 'astronomical' year as USWNT head coach - but this is only the first step**\
 `Bookended by two 4-0 wins in Colorado, Hayes has got the USWNT 'back on track' and there's more room to grow`\
 https://nytimes.com/athletic/6455675/2025/06/27/uswnt-emma-hayes-year-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/27/briefing/news-quiz-trump-mamdani.html
 **Plenty of Jews Love Zohran Mamdani**\
 `It’s been maddening to see outsiders claim that his win in the mayoral primary was a victory for antisemitism.`\
 https://nytimes.com/2025/06/27/opinion/jews-zohran-mamdani.html
-
-**Inside Bruce Springsteen’s 7 Lost Albums**\
-`Our chief pop critic on the music the Boss recorded, but kept locked away for decades.`\
-https://nytimes.com/2025/06/27/podcasts/inside-bruce-springsteens-7-lost-albums.html
 
