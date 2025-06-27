@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6456996/2025/06/27/lafc-olivier-giroud-france/
 `The San Francisco 49ers said in a statement that they are aware of the matter and are in the process of gathering more information. `\
 https://nytimes.com/athletic/6456858/2025/06/27/deommodore-lenoir-arrest-san-francisco-49ers/
 
-**Blue Jackets acquire Charlie Coyle from the Avalanche: Sources**\
+**Blue Jackets acquire forward Charlie Coyle from the Avalanche**\
 `The veteran center will join a young and talented group of forwards in Columbus.`\
 https://nytimes.com/athletic/6457165/2025/06/27/blue-jackets-acquire-charlie-coyle-from-the-avalanche-sources/
 
