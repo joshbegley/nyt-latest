@@ -1,3 +1,19 @@
+**Sabres extend Jack Quinn for 2 years: What it means for lineup, salary cap**\
+`Quinn is coming off a disappointing season. This contract is a bet that the 2020 first-rounder can bounce back to form.`\
+https://nytimes.com/athletic/6457357/2025/06/27/sabres-jack-quinn-extension-nhl/
+
+**Harvard Announces a Contingency Plan for Some of Its International Students**\
+`Students at the Kennedy School of Government can study online or finish their degrees at the University of Toronto.`\
+https://nytimes.com/2025/06/27/us/harvard-international-students-university-of-toronto.html
+
+**Comparing How the House and Senate Bills Deliver on Trump’s Agenda**\
+`A look at some of the key provisions in Republicans' domestic policy bill and where the two chambers are divided.`\
+https://nytimes.com/interactive/2025/06/27/us/politics/house-senate-bill-trump-agenda-comparison.html
+
+**Panthers re-sign Sam Bennett to 8-year, $8 million AAV contract extension: Source**\
+`A pivotal player for the Panthers’ back-to-back Stanley Cup championship teams, Bennett won the 2025 Conn Smythe Trophy as postseason MVP.`\
+https://nytimes.com/athletic/6450716/2025/06/27/panthers-sam-bennett-contract-extension-nhl/
+
 **What John Tavares' hometown discount means for the Leafs — now and later**\
 `Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
 `\

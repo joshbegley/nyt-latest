@@ -1,3 +1,19 @@
+**Sabres extend Jack Quinn for 2 years: What it means for lineup, salary cap**\
+`Quinn is coming off a disappointing season. This contract is a bet that the 2020 first-rounder can bounce back to form.`\
+https://nytimes.com/athletic/6457357/2025/06/27/sabres-jack-quinn-extension-nhl/
+
+**Harvard Announces a Contingency Plan for Some of Its International Students**\
+`Students at the Kennedy School of Government can study online or finish their degrees at the University of Toronto.`\
+https://nytimes.com/2025/06/27/us/harvard-international-students-university-of-toronto.html
+
+**Comparing How the House and Senate Bills Deliver on Trump’s Agenda**\
+`A look at some of the key provisions in Republicans' domestic policy bill and where the two chambers are divided.`\
+https://nytimes.com/interactive/2025/06/27/us/politics/house-senate-bill-trump-agenda-comparison.html
+
+**Panthers re-sign Sam Bennett to 8-year, $8 million AAV contract extension: Source**\
+`A pivotal player for the Panthers’ back-to-back Stanley Cup championship teams, Bennett won the 2025 Conn Smythe Trophy as postseason MVP.`\
+https://nytimes.com/athletic/6450716/2025/06/27/panthers-sam-bennett-contract-extension-nhl/
+
 **Why a Bill Nobody Loves Feels Inevitable**\
 `President Trump’s megabill makes many Republicans uncomfortable, but that probably won’t stop it from becoming law.`\
 https://nytimes.com/2025/06/27/us/politics/republicans-trump-big-beautiful-bill.html
@@ -21,21 +37,4 @@ https://nytimes.com/2025/06/27/world/europe/jeff-bezos-lauren-sanchez-married.ht
 **Freddy Gaudreau shocked by trade to Kraken but grateful for 'beautiful chapter' with Wild**\
 `A day after being traded, Gaudreau opened up to The Athletic on getting to play for the Wild and their fans: “It’s a special place to play."`\
 https://nytimes.com/athletic/6457304/2025/06/27/freddy-gaudreau-wild-trade-kraken/
-
-**Angels manager Ron Washington to miss the rest of the season**\
-`The Angels announced that Washington will remain on medical leave for the rest of the season.`\
-https://nytimes.com/athletic/6457403/2025/06/27/ron-washington-angels-medical-leave-full-season/
-
-**What John Tavares' hometown discount means for the Leafs — now and later**\
-`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
-`\
-https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
-
-**‘I’ve Basically Lost Everything’: The Aftermath of the 12-Day War**\
-`Mohsen Naghib-Hashemi, a graphic designer from Tehran, said his home and car were significantly damaged during the fighting between Israel and Iran. He described to The New York Times the challenges he faces in rebuilding his life.`\
-https://nytimes.com/video/world/middleeast/100000010252314/tehran-damage-war-israel.html
-
-**The Supreme Court Limited the Use of Nationwide Injunctions**\
-`Also, U.Va.’s president resigned under pressure from the Trump administration. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/06/27/briefing/supreme-court-virginia-president-resignation.html
 
