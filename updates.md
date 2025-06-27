@@ -1,3 +1,15 @@
+**Immigration Arrests Are Up Sharply in Every State. Here Are the Numbers.**\
+`Some states have seen immigration enforcement more than triple since President Trump took office, new data shows.`\
+https://nytimes.com/interactive/2025/06/27/us/ice-arrests-trump.html
+
+**Mbeumo informs Brentford, Tottenham of decision to join Manchester United**\
+`Mbeumo has notified Spurs and Brentford that should he depart the Gtech Community Stadium this summer, it will be for Old Trafford.`\
+https://nytimes.com/athletic/6447519/2025/06/27/bryan-mbeumo-manchester-united-transfer-spurs-brentford/
+
+**Sean Combs’s Son Christian Releases a Song With Ye: ‘Diddy Free’**\
+`The track, which also features North West, includes a chorus where the rapper known as King Combs promises not to sleep “’til we see Diddy free.”`\
+https://nytimes.com/2025/06/27/arts/music/sean-combs-son-kanye-west-diddy-free.html
+
 **Mark Hortman was an ‘enthusiastic campaign spouse.’**\
 `By Pooja Salhotra`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/mark-hortman-was-an-enthusiastic-campaign-spouse
