@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6456215/2025/06/27/uefa-euro-2025-clubs-funding/
 `By Ben Sisario`\
 https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/sean-combss-lawyer-in-an-animated-closing-argument-calls-it-a-tale-of-two-trials
 
-**Supreme Court Allows Trump Order Ending Birthright Citizenship to Go Into Effect in Some Parts of Country**\
-`The decision upends the power of federal judges to freeze policies for the entire country, clearing a major hurdle to President Trump’s agenda.`\
+**In Birthright Citizenship Case, Supreme Court Limits Power of Judges to Block Trump Policies**\
+`The ruling clears a major hurdle to President Trump’s agenda and could reshape American citizenship, at least temporarily, as lower court challenges proceed.`\
 https://nytimes.com/2025/06/27/us/supreme-court-birthright-citizenship.html
 
 **Raptors' Masai Ujiri out as vice chairman and president**\
