@@ -1,3 +1,23 @@
+**Ter Stegen's situation is complex. Where does the Barca captain go from here?**\
+`Barcelona need to free up space as they are operating above their La Liga salary limit - and goalkeeper Ter Stegen is first on the exit list`\
+https://nytimes.com/athletic/6452816/2025/06/27/barcelona-marc-andre-ter-stegen-transfers/
+
+**The future of New Zealand football and an ambitious plan to host the World Cup**\
+`Auckland City's Club World Cup participation has helped put football in New Zealand in the spotlight `\
+https://nytimes.com/athletic/6453790/2025/06/27/new-zealand-auckland-city-world-cup/
+
+**Igor Jesus – The Premier League-bound Club World Cup star who last year was a nobody**\
+`The 'Little Frog' is now starring on the global stage and has a move to Nottingham Forest already agreed. Not a bad year's work for a nobody`\
+https://nytimes.com/athletic/6454650/2025/06/27/igor-jesus-botafogo-club-world-cup/
+
+**Women's Euros 2025: Guide to Group D - can England escape toughest group?**\
+`Everything you need to know about Group D at Euro 2025, featuring reigning champions England, along with France, Netherlands and Wales`\
+https://nytimes.com/athletic/6418389/2025/06/27/womens-euros-2025-group-d-guide/
+
+**'They feel they wasted 20 years of their life' - football academies and rejection**\
+`Clubs have begun to put support those let go, but research shows mental health, lack of self-worth and loss of identity are common issues`\
+https://nytimes.com/athletic/6447682/2025/06/27/premier-league-academy-players-released/
+
 **Connections: Sports Edition Coach: Hints for June 27, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6442050/2025/06/27/connections-sports-edition-hints-for-june-27-2025/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/27/style/lumi-samoyed-jackie-wedding.html
 **Your Cat’s Food Probably Comes From Thailand. Tariffs May Change That.**\
 `After rapid growth, Thailand is the biggest overseas supplier of pet food in the United States. Volatility in policy has some importers looking elsewhere.`\
 https://nytimes.com/2025/06/27/business/thailand-pet-food-exports.html
-
-**A Party Crasher of the Best Variety**\
-`Six months after Ayo Jackson had sworn off online dating, Leon Kirkland wandered into a party for her friends.`\
-https://nytimes.com/2025/06/27/style/ayo-jackson-leon-kirkland-wedding.html
-
-**The Lumberjack Psychic Is Never Wrong**\
-`My friend and I learned how our romantic futures would unfold from a very unlikely source.`\
-https://nytimes.com/2025/06/27/style/modern-love-the-lumberjack-psychic-is-never-wrong.html
-
-**A Planner Finally Gets His Own ‘Big Gay Wedding’**\
-`Jove Meyer, who has planned more than 200 weddings over the years, got to organize his own after meeting Kyle Torrence — a celebration filled with rainbows and vibrant colors.`\
-https://nytimes.com/2025/06/27/style/jove-meyer-kyle-torrence-wedding.html
-
-**Quote of the Day: Earth Is Being Cooked at a Quickening Pace**\
-`Quotation of the Day for Friday, June 27, 2025.`\
-https://nytimes.com/2025/06/26/pageoneplus/quote-of-the-day-earth-is-being-cooked-at-a-quickening-pace.html
-
-**WNBA expansion team in Portland fires president Inky Son: Reports**\
-`New team's top employee, who was hired April 1, is out less than three months later. The team begins play in 2026.`\
-https://nytimes.com/athletic/6455288/2025/06/26/portland-wnba-expansion-team-fires-president/
 
