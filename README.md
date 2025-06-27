@@ -30,8 +30,8 @@ https://nytimes.com/2025/06/27/us/dulles-airport-customs-dog-kicked.html
 `The sweeping measure Senate Republican leaders hope to push through has many unpopular elements that they despise. But they face a political reckoning on taxes and the scorn of the president if they fail to pass it.`\
 https://nytimes.com/2025/06/27/us/politics/republicans-tax-increases-trump-bill.html
 
-**Mourners gather at the Minnesota Capitol, where the Hortmans are lying in state.**\
-`By Jeff Ernst, Jay Senter and Mitch Smith`\
+**Mourners Stream Into Minnesota Capitol as Assassination Victims Lie in State**\
+`A line stretched around the block to honor State Representative Melissa Hortman, her husband and their dog, who were killed in an attack that officials have called a political assassination.`\
 https://nytimes.com/2025/06/27/us/politics/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state.html
 
 **What I'm hearing about a possible Rangers-Gavrikov fit, other free agency and trade plans**\

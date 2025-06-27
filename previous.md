@@ -1,3 +1,19 @@
+**U.S. Charges 11 in Russia-Based Scheme to Bilk Medicare of $10.6 Billion**\
+`Concerns of a far-reaching fraud grew when hundreds of thousands of Medicare recipients were billed for medical equipment they had not asked for.`\
+https://nytimes.com/2025/06/27/nyregion/us-medicare-fraud-charges.html
+
+**Season lengthened, contracts shortened, EBUGs squashed: Explaining the new NHL CBA**\
+`Exact details on everything in the new agreement are still not fully available, but here are the biggest changes and what they mean. `\
+https://nytimes.com/athletic/6456745/2025/06/27/nhl-cba-84-game-season-ebug-explainer/
+
+**Wellness Around the World**\
+``\
+https://nytimes.com/spotlight/wellness-around-the-world
+
+**Prestige Podcast Company Pineapple Street Studios Shuts Down**\
+`The studio was a model podcast startup of the 2010s. But Audacy, its owner, has struggled to turn a profit.`\
+https://nytimes.com/2025/06/27/arts/music/pineapple-street-studios-podcasts.html
+
 **Rwanda and Congo Sign U.S.-Brokered Peace Treaty**\
 `President Trump claims credit for the outcome. The main question now is how the treaty will be implemented as fighting still rages in eastern Congo.`\
 https://nytimes.com/2025/06/27/us/politics/rwanda-congo-peace-agreement.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/mourners-gather-at-the-minnesota-capi
 **What I'm hearing about a possible Rangers-Gavrikov fit, other free agency and trade plans**\
 `As the start of the NHL draft nears, here is what sources around the league are saying about New York's offseason plans.`\
 https://nytimes.com/athletic/6456832/2025/06/27/new-york-rangers-gavrikov-nhl-free-agency/
-
-**Flashback: Your Weekly History Quiz, June 28, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/06/27/upshot/flashback.html
-
-**10 Libraries Will Open on Sundays in N.Y.C. Budget Deal**\
-`Mayor Eric Adams and the New York City Council are expected to announce a budget deal that will include bringing Sunday service to some library branches.`\
-https://nytimes.com/2025/06/27/nyregion/libraries-nyc-budget.html
-
-**Chaz Lanier's strengths and weaknesses: Pistons player evaluation**\
-`How can the Pistons' second-round pick help them this season and what will he need to work on to be a regular contributor?`\
-https://nytimes.com/athletic/6455040/2025/06/27/chaz-lanier-pistons-draft-player-evaluation/
-
-**Nate Morris, Wealthy Business Executive, Enters Senate Race in Kentucky**\
-`Mr. Morris, a founder of a waste and recycling business, describes himself as the only political outsider in the field and an unwavering supporter of President Trump.`\
-https://nytimes.com/2025/06/27/us/politics/nate-morris-kentucky-senate.html
 
