@@ -1,3 +1,7 @@
+**Supreme Court Requires Schools to Allow Opting Out From L.G.B.T.Q. Stories**\
+`Maryland parents have a religious right to withdraw their children from classes on days that storybooks with gay and transgender themes are discussed, the court ruled.`\
+https://nytimes.com/2025/06/27/us/politics/supreme-court-lgbtq-books.html
+
 **In Birthright Citizenship Case, Supreme Court Limits Power of Judges to Block Trump Policies**\
 `The ruling clears a major hurdle to President Trump’s agenda and could reshape American citizenship, at least temporarily, as lower court challenges proceed.`\
 https://nytimes.com/2025/06/27/us/supreme-court-birthright-citizenship.html

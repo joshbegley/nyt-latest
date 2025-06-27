@@ -1,3 +1,7 @@
+**Supreme Court Requires Schools to Allow Opting Out From L.G.B.T.Q. Stories**\
+`Maryland parents have a religious right to withdraw their children from classes on days that storybooks with gay and transgender themes are discussed, the court ruled.`\
+https://nytimes.com/2025/06/27/us/politics/supreme-court-lgbtq-books.html
+
 **‘Done Waiting My Turn’: Younger Democrats Are Eager to Seize the Car Keys**\
 `Three very different politicians — from New York, Virginia and New Jersey — won elections this month with a common theme: leadership for the next generation.`\
 https://nytimes.com/2025/06/27/us/politics/democrats-mamdani-younger-generation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/obituaries/rick-hurst-dead.html
 **Pro-Palestinian Activists Arrested Under Terrorism Law in U.K. Air Base Break-In**\
 `The powers used against the members of a group called Palestine Action are more usually employed in cases of planned jihadist or far-right violence.`\
 https://nytimes.com/2025/06/27/world/europe/uk-palestine-action-arrests-terrorism-law.html
-
-**Canadiens, Blue Jackets finalists in trade talks for Islanders' Noah Dobson: Sources**\
-`Dobson wishes to join a team on the upswing toward contention, and both of those landing spots are viewed as favorable.`\
-https://nytimes.com/athletic/6456232/2025/06/27/noah-dobson-trade-canadiens-blue-jackets-islanders/
 
