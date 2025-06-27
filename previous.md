@@ -1,3 +1,11 @@
+**Trump Encourages Powell to Resign in Latest Attack on the Fed Chair**\
+`Jerome H. Powell, whose term does not expire until May, has argued that the central bank can afford to be patient about cutting interest rates amid uncertainty about the economic outlook.`\
+https://nytimes.com/2025/06/27/business/trump-powell-federal-reserve-resign.html
+
+**4 Takeaways From the Defense’s Closing Argument at Sean Combs’s Trial**\
+`Mr. Combs’s lead lawyer made a final appeal to the jury, arguing in often sarcastic tones that the government’s evidence contradicted its case against the hip-hop mogul.`\
+https://nytimes.com/2025/06/27/arts/music/sean-combs-diddy-trial-defense-closings.html
+
 **Trump Administration to Appeal Order Allowing International Students at Harvard**\
 `A district court judge had blocked President Trump’s proclamation barring international students from attending the university.`\
 https://nytimes.com/2025/06/27/us/trump-harvard-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/republicans-trump-big-beautiful-bill.
 **Diana Oh, Passionate Voice for Queer Liberation in Theater, Dies at 38**\
 `Mx. Oh’s politically provocative and often playful works, including the Off Broadway production “{my lingerie play},” asserted the right to be oneself while having fun.`\
 https://nytimes.com/2025/06/27/theater/diana-oh-dead.html
-
-**Max Fink, Champion of Electroconvulsive Therapy, Dies at 102**\
-`As a psychiatry resident, he became convinced of the benefits of ECT. But he spent years battling detractors and a misleading pop-culture depiction of the procedure.`\
-https://nytimes.com/2025/06/27/science/max-fink-dead.html
-
-**Portland WNBA hires Clare Hamill as interim president after firing Inky Son**\
-`Hamill replaces Inky Son, Portland’s first president, whom the franchise hired in April but is out of the job less than three months later.`\
-https://nytimes.com/athletic/6457224/2025/06/27/portland-wnba-clare-hamill-nike-inky-son/
 

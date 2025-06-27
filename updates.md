@@ -1,3 +1,11 @@
+**Trump Encourages Powell to Resign in Latest Attack on the Fed Chair**\
+`Jerome H. Powell, whose term does not expire until May, has argued that the central bank can afford to be patient about cutting interest rates amid uncertainty about the economic outlook.`\
+https://nytimes.com/2025/06/27/business/trump-powell-federal-reserve-resign.html
+
+**4 Takeaways From the Defense’s Closing Argument at Sean Combs’s Trial**\
+`Mr. Combs’s lead lawyer made a final appeal to the jury, arguing in often sarcastic tones that the government’s evidence contradicted its case against the hip-hop mogul.`\
+https://nytimes.com/2025/06/27/arts/music/sean-combs-diddy-trial-defense-closings.html
+
 **Trump Administration to Appeal Order Allowing International Students at Harvard**\
 `A district court judge had blocked President Trump’s proclamation barring international students from attending the university.`\
 https://nytimes.com/2025/06/27/us/trump-harvard-appeal.html
