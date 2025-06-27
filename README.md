@@ -1,3 +1,19 @@
+**Arch Manning Q&A: Advice from Matthew McConaughey, Walmart with LSU's QB and more**\
+`Texas' new QB1 held court with reporters for 30 minutes Friday at the Manning Passing Academy. Here's what we heard from Arch.`\
+https://nytimes.com/athletic/6457051/2025/06/27/arch-manning-passing-academy-interview-texas/
+
+**S&P 500 Surges Through Trump Turmoil to a Record High**\
+`The index has regained all the ground it lost in March and early April, when President Trump proposed his broad array of tariffs.`\
+https://nytimes.com/2025/06/27/business/sp-500-record-trump.html
+
+**Trump and Bondi Won’t Say How Birthright Citizenship Will Be Enforced**\
+`The practical effect of Friday’s decision is that birthright citizenship would end in the 28 states that have not challenged the president’s order.`\
+https://nytimes.com/2025/06/27/us/politics/birthright-bondi-trump.html
+
+**Jung Hoo Lee's slump is a symptom of the type of hitter he is — and is likely temporary**\
+`Lee is a contact hitter and hitters with his profile tend to have lots of highs and lows through a season thanks to fluctuating BABIPs.`\
+https://nytimes.com/athletic/6453908/2025/06/27/jung-hoo-lee-slump-hitting-profile/
+
 **U.S. Charges 11 in Russia-Based Scheme to Bilk Medicare of $10.6 Billion**\
 `Concerns of a far-reaching fraud grew when hundreds of thousands of Medicare recipients were billed for medical equipment they had not asked for.`\
 https://nytimes.com/2025/06/27/nyregion/us-medicare-fraud-charges.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/rwanda-congo-peace-agreement.html
 **Canadiens have long coveted a Noah Dobson type. Now they have the real thing**\
 `The Canadiens appear to be set on the blue line for years to come with Dobson joining Lane Hutson, Kaiden Guhle and David Reinbacher.`\
 https://nytimes.com/athletic/6457024/2025/06/27/canadiens-noah-dobson-trade-nhl-draft/
-
-**Man Who Kicked Customs Dog Is Turned Away at D.C. Airport, U.S. Says**\
-`The man, who was traveling on a tourist visa, kicked the dog, a beagle named Freddie who had detected food in his luggage, so hard that he was lifted off the ground, court records say.`\
-https://nytimes.com/2025/06/27/us/dulles-airport-customs-dog-kicked.html
-
-**Fearing Tax Increases and Trump, G.O.P. Toils to Pass a Bill With Plenty to Hate**\
-`The sweeping measure Senate Republican leaders hope to push through has many unpopular elements that they despise. But they face a political reckoning on taxes and the scorn of the president if they fail to pass it.`\
-https://nytimes.com/2025/06/27/us/politics/republicans-tax-increases-trump-bill.html
-
-**Mourners Stream Into Minnesota Capitol as Assassination Victims Lie in State**\
-`A line stretched around the block to honor State Representative Melissa Hortman, her husband and their dog, who were killed in an attack that officials have called a political assassination.`\
-https://nytimes.com/2025/06/27/us/politics/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state.html
-
-**What I'm hearing about a possible Rangers-Gavrikov fit, other free agency and trade plans**\
-`As the start of the NHL draft nears, here is what sources around the league are saying about New York's offseason plans.`\
-https://nytimes.com/athletic/6456832/2025/06/27/new-york-rangers-gavrikov-nhl-free-agency/
 
