@@ -1,3 +1,7 @@
+**Supreme Court Allows Trump Order Ending Birthright Citizenship to Go Into Effect in Some Parts of Country**\
+`The decision upends the power of federal judges to freeze policies for the entire country, clearing a major hurdle to President Trump’s agenda.`\
+https://nytimes.com/2025/06/27/us/supreme-court-birthright-citizenship.html
+
 **Raptors' Masai Ujiri out as vice chairman and president**\
 `The Raptors hired Ujiri in 2013, the same year he won the 2013 NBA Executive of the Year award.`\
 https://nytimes.com/athletic/6456136/2025/06/27/raptors-masai-ujiri-out-as-vice-chairman-president/
