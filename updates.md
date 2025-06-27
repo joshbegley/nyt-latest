@@ -1,3 +1,5 @@
+
+
 **Canadiens' desire to improve at the draft takes back seat to avoiding critical mistakes**\
 `The Canadiens have hopes and ambitions for the NHL Draft, but market forces may dictate further patience is required in the rebuild. `\
 https://nytimes.com/athletic/6454833/2025/06/26/canadiens-2025-nhl-draft-picks/
