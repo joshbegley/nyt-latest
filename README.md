@@ -1,3 +1,7 @@
+**China Confirms Trade Framework With U.S. to Lift Export Controls**\
+`The deal involves loosening exports of rare earths to the United States and the lifting of some restrictions on U.S. goods to China, China’s Ministry of Commerce said.`\
+https://nytimes.com/2025/06/27/world/asia/us-china-trade.html
+
 **Yankees prospects: Jones' improvement, Lombard Jr.'s leadership, Brett Gardner comp**\
 `In the dugout this week at Double-A Somerset Patriots, manager Raul Domínguez discussed several young players who are standing out. `\
 https://nytimes.com/athletic/6453684/2025/06/27/yankees-prospects-spencer-jones-george-lombard-roc-riggio/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6441069/2025/06/27/blue-jackets-draft-picks-grades-
 **Flames NHL Draft guide: Picks, best fits and analysis**\
 `Corey Pronman evaluates the Flames' picks at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6441032/2025/06/27/flames-draft-picks-grades-2025/
-
-**Wolves add another young big man and turn their attention toward 'unique' free agency**\
-`The Timberwolves' draft picks may tell us a couple things about how they view the offseason and the rest of the roster.`\
-https://nytimes.com/athletic/6454964/2025/06/27/nba-draft-timberwolves-free-agency-2025/
 
