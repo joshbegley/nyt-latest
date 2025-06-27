@@ -1,3 +1,19 @@
+**Teenager Is Charged in 2024 Plot to Attack Taylor Swift Concert in Vienna**\
+`The youth, a Syrian who lives in Germany, was accused of helping to interpret bomb-building instructions and of translating an oath of allegiance to the Islamic State for the main suspect.`\
+https://nytimes.com/2025/06/27/world/europe/taylor-swift-concert-attack-vienna-charges.html
+
+**Sizing up the best, worst and weirdest moves of the 2025 NBA Draft: Hollinger**\
+`Portland taking Yang Hansen? Nets using all five picks? What are the Pelicans doing? John Hollinger breaks down the 2025 NBA Draft.`\
+https://nytimes.com/athletic/6455565/2025/06/27/2025-nba-draft-pelicans-yang-hansen-nets/
+
+**Who’s who on Sean Combs’s defense team.**\
+`By Anusha Bayya`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team
+
+**Listen: England's three standout players at the Under-21 Euros so far**\
+`England reached their second consecutive Under-21 European Championship final, and will face Germany in Saturday's showpiece`\
+https://nytimes.com/athletic/6455650/2025/06/27/totally-football-show-england-under21s/
+
 **75 years of F1? Not quite: How the magic of 1950 gave way to an identity crisis**\
 `For two full seasons, the Formula One World Championship wasn’t actually contested with Formula One cars`\
 https://nytimes.com/athletic/6451034/2025/06/27/f1-lost-seasons/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/06/27/us/trump-news
 **What we're hearing about Canucks' extension talks, trade efforts and draft plans**\
 `It's draft day, and the Canucks have plenty going on as they continue to try to improve the roster.`\
 https://nytimes.com/athletic/6455268/2025/06/27/canucks-draft-trade-contracts-2025/
-
-**Angels stock report: Nolan Schanuel's breakout season, two struggling starting pitchers**\
-`The Angels have taken a step forward from their terrible 2024 season. Can they sustain it?`\
-https://nytimes.com/athletic/6455144/2025/06/27/angels-stock-report-nolan-schanuel-jo-adell-tyler-anderson/
-
-**Islanders NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Islanders' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6442000/2025/06/27/islanders-draft-picks-grades-2025/
-
-**Flyers NHL Draft guide: Picks, best fits and analysis**\
-`Corey Pronman evaluates the Flyers' picks at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6442013/2025/06/27/flyers-draft-picks-grades-2025/
-
-**What I'm hearing about a Penguins trade target and moving up in the NHL Draft**\
-`The Penguins are targeting a Utah Mammoth player in a trade. Plus, here's what we know about their NHL Draft plans and more.`\
-https://nytimes.com/athletic/6448926/2025/06/27/penguins-trade-jack-mcbain-nhl-draft/
 
