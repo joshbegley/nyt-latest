@@ -1,3 +1,11 @@
+**Canadiens acquire Noah Dobson in trade with Islanders, will sign him to 8-year extension**\
+`Dobson had a career-best 70 points for the team two years ago and finished last season with 10 goals and 39 points in 71 games.`\
+https://nytimes.com/athletic/6456350/2025/06/27/noah-dobson-canadiens-islanders-trade-nhl/
+
+**Cal Raleigh, MLB's HR leader, to participate in Home Run Derby**\
+`Raleigh is attempting to be the first catcher to win the Home Run Derby.`\
+https://nytimes.com/athletic/6456685/2025/06/27/cal-raleigh-mlbs-hr-leader-to-participate-in-2025-home-run-derby/
+
 **Supreme Court Punts Decision on Louisiana Voting Map Until Next Term**\
 `The justices asked that the case, which has implications for the political power of Black voters, be reargued next term.`\
 https://nytimes.com/2025/06/27/us/politics/supreme-court-louisiana-congressional-map.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/civi
 **A Slain Minnesota Lawmaker Is Lying in State. Here’s What That Means.**\
 `The former speaker of the House, her husband and their dog were killed in what officials describe as a political assassination. All three are being honored at the State Capitol.`\
 https://nytimes.com/2025/06/27/us/politics/lie-in-state-minnesota-capitol-hortman.html
-
-**Major Unions Are Dropping Cuomo to Back Mamdani in N.Y.C. Mayor’s Race**\
-`The powerful hotel workers union and Local 32BJ are switching their endorsements to Zohran Mamdani, a sign that Democratic power brokers are coalescing behind him.`\
-https://nytimes.com/2025/06/27/nyregion/unions-mamdani-cuomo-endorsement.html
-
-**Real Madrid expect Alaba to miss Club World Cup after fresh injury**\
-`Alaba underwent assessments which revealed an injury to his left calf muscle.`\
-https://nytimes.com/athletic/6456648/2025/06/27/david-alaba-real-madrid-injury-club-world-cup/
 
