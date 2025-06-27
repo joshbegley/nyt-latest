@@ -1,3 +1,19 @@
+**London Man Who Killed a Boy With a Samurai Sword Receives Life Sentence**\
+`Prosecutors said Marcos Arduini Monzo experienced a drug-induced psychosis before going on a 20-minute rampage through the residential streets of northeast London.`\
+https://nytimes.com/2025/06/27/world/europe/london-samurai-sword-murder-sentencing.html
+
+**With Mark Vientos back, how can Mets find time for Ronny Mauricio, Brett Baty?**\
+`Manager Carlos Mendoza said players will rotate through a few spots in the lineup and "that's a good problem to have."`\
+https://nytimes.com/athletic/6456538/2025/06/27/mark-vientos-ronny-mauricio-brett-baty-mets-roster/
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 6/27 at 2:30 p.m. ET**\
+`Submit your questions for Eno Sarris' live chat about MLB and fantasy baseball.`\
+https://nytimes.com/athletic/6454282/2025/06/27/sarris-live-chat-mlb-fantasy-baseball-6-27/
+
+**NHL contract grades: John Tavares takes hometown discount to stick with Maple Leafs**\
+`The modest AAV means Tavares should comfortably live up to his contract even if he declines significantly toward the end of this deal.`\
+https://nytimes.com/athletic/6456683/2025/06/27/nhl-contract-grades-john-tavares/
+
 **Where does Oilers' bet on Trent Frederic fit among past long-term commitments?**\
 `There’s a bit of sticker shock with Frederic’s contract, especially as it pertains to the length.`\
 https://nytimes.com/athletic/6453930/2025/06/27/oilers-trent-frederic-contract-hyman-lucic/
