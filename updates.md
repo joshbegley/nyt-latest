@@ -1,3 +1,19 @@
+**A British Summer Dessert That Doesn’t Have to Be Perfect**\
+`The fashion designer turned ceramist Henry Holland puts his spin on a childhood favorite, Eton mess.`\
+https://nytimes.com/2025/06/27/t-magazine/eton-mess-recipe.html
+
+**Lawmakers Tell Rubio to Refrain From Mass Layoffs at State Department**\
+`Democrats say they are worried about reports that about 700 career diplomats will be fired. The agency has said it plans to lay off 2,000 employees soon.`\
+https://nytimes.com/2025/06/27/us/politics/state-department-rubio-layoffs.html
+
+**Oilers re-sign Trent Frederic to 8-year, $3.85 million AAV contract**\
+`The max-term deal keeps the 27-year-old forward under team control until the end of the 2033-34 season.`\
+https://nytimes.com/athletic/6449797/2025/06/27/oilers-trent-frederic-contract/
+
+**Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
+`How the Nottingham Forest winger would fit Eddie Howe's team`\
+https://nytimes.com/athletic/6455608/2025/06/27/why-newcastle-want-elanga/
+
 **Son of Norway’s Crown Princess Is Charged With Rape and Sexual Assault**\
 `Marius Borg Hoiby, the stepson of Crown Prince Haakon, was charged with rape and sexual assault after a monthslong police investigation that has caused turmoil for the royal family.`\
 https://nytimes.com/2025/06/27/world/europe/norway-crown-princess-son-rape-charge.html
