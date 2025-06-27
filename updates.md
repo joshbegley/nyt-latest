@@ -1,3 +1,15 @@
+**Bad pitches, searing heat and Brazil's pride: What we learned from the Club World Cup group stage**\
+`Tricky turf, torrid temperatures and Brazilian brilliance — just some of the trends to emerge from the first stage of the competition`\
+https://nytimes.com/athletic/6456166/2025/06/27/club-world-cup-what-we-learned/
+
+**John Tavares returns to Maple Leafs on 4-year deal**\
+`The Maple Leafs re-signed their former captain to a four-year, $17.52 million contract on Friday.`\
+https://nytimes.com/athletic/6406663/2025/06/27/john-tavares-maple-leafs-contract-extension/
+
+**Birthright Citizenship Case Has Some Unusual Quirks**\
+`The justices seldom hear arguments in cases on their emergency docket, and they rarely hold special argument sessions. And they usually know the precise question before them.`\
+https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-scotus-quirks.html
+
 **University of Virginia President Resigns Under Pressure From Trump Administration**\
 `The Justice Department had demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school.`\
 https://nytimes.com/2025/06/27/us/politics/university-of-virginia-president-resigns-trump-justice-department.html
