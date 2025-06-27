@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 5 Recap: Heels**\
+`The Goldenblatts and the Wexleys go glamping on Governors Island, but all is not well. Carrie meets her moody new neighbor.`\
+https://nytimes.com/2025/06/26/arts/television/and-just-like-that-recap-season-3-episode-5.html
+
 **Iran’s Foreign Minister Says Nuclear Facilities ‘Seriously Damaged’**\
 `The assessment came hours after the country’s supreme leader had downplayed the damage the U.S. strikes had caused.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-foreign-minister-nuclear-facilities-seriously-damaged.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/26/us/canadian-dies-ice-custody-florida.html
 **Dodgers stock report: Pitching depth, left field and Andy Pages' All-Star case**\
 `"He's just blossomed into, in my opinion, an All-Star," reliever Anthony Banda said of Pages last week. "He's one of a kind."`\
 https://nytimes.com/athletic/6454808/2025/06/26/dodgers-stock-pitching-depth-left-field-andy-pages/
-
-**Cardinals remain committed to Andre Pallante in rotation despite inconsistences**\
-`Pallante clawed through five innings of two-run ball in the Cardinals' 3-0 loss in Thursday's series finale against the Chicago Cubs.`\
-https://nytimes.com/athletic/6453892/2025/06/26/cardinals-andre-pallante-rotation/
 
