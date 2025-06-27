@@ -1,3 +1,19 @@
+**Right-wing Republicans in Congress attack Mamdani with racist comments.**\
+`The responses to Zohran Mamdani’s showing in the New York City mayoral primary were the latest examples of how some G.O.P. lawmakers have grown more overt in using bigoted language and tropes.`\
+https://nytimes.com/live/2025/06/26/us/trump-news/right-wing-republicans-in-congress-attack-mamdani-with-racist-comments
+
+**Mets' rotation takes another hit as Griffin Canning exits with ankle injury**\
+`Mets, already down three starters, announced that Canning will undergo imaging on his ankle.`\
+https://nytimes.com/athletic/6454972/2025/06/26/mets-griffin-canning-ankle-injury/
+
+**Islanders engaged in Noah Dobson trade discussions with Blues, Canadiens, others: Sources**\
+`The 25-year-old defenseman had a career-best 70 points two years ago and finished last season with 10 goals and 39 points in 71 games.`\
+https://nytimes.com/athletic/6454996/2025/06/26/noah-dobson-trade-discussions-islanders/
+
+**After 53-day absence, Shota Imanaga shows Cubs what they've been missing**\
+`After nearly two months on the shelf, Imanaga picked up right where he left off in the Cubs' series-splitting win Thursday.`\
+https://nytimes.com/athletic/6454805/2025/06/26/chicago-cubs-shota-imanaga-return/
+
 **Injury-plagued Astros are surging into second half of 2025 — but how?**\
 `Inevitability is part of the Astros’ aura, but it still doesn't explain what has transpired over the first half of the 2025 season.`\
 https://nytimes.com/athletic/6454928/2025/06/26/houston-astros-first-half-turnaround/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6453892/2025/06/26/cardinals-andre-pallante-rotatio
 **Canadiens' desire to improve at the draft takes back seat to avoiding critical mistakes**\
 `The Canadiens have hopes and ambitions for the NHL Draft, but market forces may dictate further patience is required in the rebuild. `\
 https://nytimes.com/athletic/6454833/2025/06/26/canadiens-2025-nhl-draft-picks/
-
-**Fate of Iran’s Enriched Uranium Is a Mystery**\
-`U.S. intelligence agencies had long assessed that, faced with the possibility of an attack on its nuclear facilities, Iran would try to move its stockpile.`\
-https://nytimes.com/2025/06/26/us/politics/iran-nuclear-program-uranium.html
-
-**Phillies, sluggish but not slugging, reach halfway mark with familiar outfield issues**\
-`The righties in the middle of the Phillies' lineup, including Nick Castellanos, have been close to league average or below. `\
-https://nytimes.com/athletic/6454815/2025/06/26/phillies-halfway-mark-outfield-issues/
-
-**Can Steve From ‘Blue’s Clues’ be a ‘Counterweight’ to the Manosphere?**\
-`The beloved children’s star is starting a podcast for adults. He hopes for thoughtful conversations and a lot of listening.`\
-https://nytimes.com/2025/06/26/style/steve-burns-blues-clues-podcast-alive.html
-
-**Aaron Judge, Shohei Ohtani named AL, NL starters for All-Star Game**\
-`The 2025 MLB All-Star Game will take place at Truist Park in Atlanta. `\
-https://nytimes.com/athletic/6454800/2025/06/26/mlb-all-star-game-2025-starters/
 
