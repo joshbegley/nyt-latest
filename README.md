@@ -1,3 +1,19 @@
+**The Concorde-and-Caviar Era of Condé Nast, When Magazines Ruled the Earth**\
+`Opulent days are over at Vogue, Vanity Fair, and other once-powerful glossies. Anna Wintour is giving up (some) control. Now that everyone’s a gatekeeper, why do we keep recreating their status-obsessed world?`\
+https://nytimes.com/2025/06/27/business/media/conde-nast-magazines-vogue-vanity-fair.html
+
+**Sean Combs’s defense pokes at witness testimony about kidnappings and arson.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/sean-combss-defense-pokes-at-witness-testimony-about-kidnappings-and-arson
+
+**‘The Comeback’ to Come Back**\
+`Lisa Kudrow’s critically beloved cult comedy will return to HBO next year, the network announced on Friday.`\
+https://nytimes.com/2025/06/27/business/media/the-comeback-lisa-kudrow-hbo.html
+
+**The police say the gunman dressed as one of them. It’s an insidious tactic.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/the-police-say-the-gunman-dressed-as-one-of-them-its-an-insidious-tactic
+
 **Critical Hurricane Monitoring Data Is Going Offline**\
 `The loss of access to the data could hamstring forecasters’ ability to track hurricanes and warn residents of their risk.`\
 https://nytimes.com/2025/06/27/climate/hurricane-monitoring-data.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6455825/2025/06/27/liberty-mercury-wnba-contenders-
 **Supreme Court Upholds Texas Law Limiting Access to Pornography**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are at least 18, was challenged on First Amendment grounds.`\
 https://nytimes.com/2025/06/27/us/supreme-court-pornography-minors.html
-
-**An Unearthed Joni Mitchell Jazz Demo, and 11 More New Songs**\
-`Hear tracks by Sarah McLachlan, Camilo, Us3 and others.`\
-https://nytimes.com/2025/06/27/arts/music/playlist-joni-mitchell-sarah-mclachlan.html
-
-**Justices Uphold Preventive Care Provision in Affordable Care Act**\
-`The case stemmed from a lawsuit brought by conservatives seeking to block free preventive care, including medicine to prevent H.I.V. transmission.`\
-https://nytimes.com/2025/06/27/us/supreme-court-preventative-care.html
-
-**G7 Backs Plan for ‘Side-by-Side’ Tax System to Avoid U.S. Fight**\
-`American companies will be exempt from penalties related to a 2021 global minimum tax deal that President Trump opposes.`\
-https://nytimes.com/2025/06/27/business/g7-tax-plan-trump.html
-
-**Until Saturday: The new best G5 conference is ...**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6456429/2025/06/27/sun-belt-football-jmu-until-saturday/
 
