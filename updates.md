@@ -1,3 +1,8 @@
+**What John Tavares' hometown discount means for the Leafs — now and later**\
+`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
+`\
+https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
+
 **Why a Bill Nobody Loves Feels Inevitable**\
 `President Trump’s megabill makes many Republicans uncomfortable, but that probably won’t stop it from becoming law.`\
 https://nytimes.com/2025/06/27/us/politics/republicans-trump-big-beautiful-bill.html
