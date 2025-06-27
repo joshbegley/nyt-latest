@@ -1,3 +1,7 @@
+**The Century’s Best Movies**\
+`We compiled the list by polling more than 500 people in and around the film industry.`\
+https://nytimes.com/2025/06/27/briefing/the-centurys-best-movies.html
+
 **The West End’s Hottest Seats: The Piles of Trash Outside ‘Evita’**\
 `Crowds are converging outside the London Palladium to watch Rachel Zegler sing “Don’t Cry for Me Argentina” from a balcony — while paying theatergoers inside see it on a screen.`\
 https://nytimes.com/2025/06/27/theater/evita-balcony-rachel-zegler.html
