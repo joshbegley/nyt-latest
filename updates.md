@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 5 Recap: Heels**\
+`The Goldenblatts and the Wexleys go glamping on Governors Island, but all is not well. Carrie meets her moody new neighbor.`\
+https://nytimes.com/2025/06/26/arts/television/and-just-like-that-recap-season-3-episode-5.html
+
 **Iran’s Foreign Minister Says Nuclear Facilities ‘Seriously Damaged’**\
 `The assessment came hours after the country’s supreme leader had downplayed the damage the U.S. strikes had caused.`\
 https://nytimes.com/2025/06/26/world/middleeast/iran-foreign-minister-nuclear-facilities-seriously-damaged.html
