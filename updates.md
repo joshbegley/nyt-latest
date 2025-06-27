@@ -1,3 +1,7 @@
+**France Opens Competition to Expand Overcrowded Louvre**\
+`Architects are being asked to submit proposals for a new entrance for the world’s most visited museum — and to create a new exhibition space for the Mona Lisa.`\
+https://nytimes.com/2025/06/27/arts/design/france-louvre-design-competition.html
+
 **A British Summer Dessert That Doesn’t Have to Be Perfect**\
 `The fashion designer turned ceramist Henry Holland puts his spin on a childhood favorite, Eton mess.`\
 https://nytimes.com/2025/06/27/t-magazine/eton-mess-recipe.html

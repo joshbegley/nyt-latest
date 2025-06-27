@@ -1,3 +1,19 @@
+**University of Virginia President Resigns Under Pressure From Trump Administration**\
+`The Justice Department had demanded that James E. Ryan step down in order to help resolve a civil rights investigation into the school.`\
+https://nytimes.com/2025/06/27/us/politics/university-of-virginia-president-resigns-trump-justice-department.html
+
+**What I'm hearing on James Harden and the Clippers' post-draft plans**\
+`"We're super hopeful that James is here, and he's here for a long time," Clippers president Lawrence Frank said this week.`\
+https://nytimes.com/athletic/6455597/2025/06/27/james-harden-clippers-free-agency-nba-draft/
+
+**Iga Swiatek and Alex Eala achieve firsts on the grass as Wimbledon comes into view**\
+`Świątek reached her first WTA Tour grass-court final in Germany, while in the UK, Eala became the first Filipino to reach a WTA Tour final.`\
+https://nytimes.com/athletic/6456513/2025/06/27/tennis-swiatek-grass-final-eala-wta-tour/
+
+**Officials say the gunman drove to four lawmakers’ homes on the night of the attacks.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/officials-say-the-gunman-drove-to-four-lawmakers-homes-on-the-night-of-the-attacks
+
 **France Opens Competition to Expand Overcrowded Louvre**\
 `Architects are being asked to submit proposals for a new entrance for the world’s most visited museum — and to create a new exhibition space for the Mona Lisa.`\
 https://nytimes.com/2025/06/27/arts/design/france-louvre-design-competition.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/27/world/europe/norway-crown-princess-son-rape-charg
 **How the Supreme Court’s Ruling Could Revive Some Contested Trump Policies**\
 `The Supreme Court has imposed new limits on the power of district-court judges. Here’s what that means for the Trump administration.`\
 https://nytimes.com/2025/06/27/us/politics/trump-birthright-citizenship-scotus.html
-
-**Club World Cup odds: Man City move up to become favourite after dominant group play**\
-`Manchester City are ahead of PSG as the betting favourite to win the Club World Cup after winning all three group matches.`\
-https://nytimes.com/athletic/6456348/2025/06/27/club-world-cup-odds-manchester-city/
-
-**The Concorde-and-Caviar Era of Condé Nast, When Magazines Ruled the Earth**\
-`Opulent days are over at Vogue, Vanity Fair, and other once-powerful glossies. Anna Wintour is giving up (some) control. Now that everyone’s a gatekeeper, why do we keep recreating their status-obsessed world?`\
-https://nytimes.com/2025/06/27/business/media/conde-nast-magazines-vogue-vanity-fair.html
-
-**Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
-`How the Nottingham Forest winger would fit Eddie Howe's team`\
-https://nytimes.com/athletic/6455608/2025/06/27/why-newcastle-want-elanga/
-
-**Sean Combs’s defense pokes at witness testimony about kidnappings and arson.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/sean-combss-defense-pokes-at-witness-testimony-about-kidnappings-and-arson
 
