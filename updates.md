@@ -1,3 +1,15 @@
+**Mike Zarren praises Celtics' draft picks, says Jaylen Brown, Derrick White 'key parts of our team'**\
+`"We got two picks tonight, both of which should be good future picks. … But that's a key part of our strategy," Zarren said.`\
+https://nytimes.com/athletic/6455511/2025/06/27/celtics-nba-draft-round-2-jaylen-brown-derrick-white/
+
+**Diego Luna Gives Jimmy Kimmel the Gift of Fox News Coverage**\
+`While filling in for Kimmel this week, the actor-director got the attention of Laura Ingraham, who said she’d never seen the show before.`\
+https://nytimes.com/2025/06/27/arts/television/diego-luna-jimmy-kimmel-fox.html
+
+**Israel Has Proved Its Military Might. It’s Not Enough.**\
+`This is the moment for Israel to move on from intense military operations to political statecraft.`\
+https://nytimes.com/2025/06/27/opinion/israel-iran-statesman-diplomacy-war.html
+
 **Word of the Day: tchotchke**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/27/learning/word-of-the-day-tchotchke.html
