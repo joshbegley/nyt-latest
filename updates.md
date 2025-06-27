@@ -1,3 +1,11 @@
+**Heaton signs one-year Man Utd contract extension**\
+`The 39-year-old extends his second spell at the club into a fifth season, having re-joined the team in 2021.`\
+https://nytimes.com/athletic/6455718/2025/06/27/tom-heaton-man-united-contract/
+
+**How to watch Day 1 of X Games Salt Lake City**\
+`The X Games honors its 30th anniversary this weekend in Salt Lake City, with skateboarding, BMX and motocross events set to unfold. `\
+https://nytimes.com/athletic/6451415/2025/06/27/x-games-salt-lake-city-day-1-how-to-watch/
+
 **Happiness Doesn’t Have to Be a Heavy Lift**\
 `It only takes a few minutes to boost your mood.`\
 https://nytimes.com/2025/06/27/well/happiness-postivity-tiny-little-joys.html

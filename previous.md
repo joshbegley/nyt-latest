@@ -1,3 +1,11 @@
+**Heaton signs one-year Man Utd contract extension**\
+`The 39-year-old extends his second spell at the club into a fifth season, having re-joined the team in 2021.`\
+https://nytimes.com/athletic/6455718/2025/06/27/tom-heaton-man-united-contract/
+
+**How to watch Day 1 of X Games Salt Lake City**\
+`The X Games honors its 30th anniversary this weekend in Salt Lake City, with skateboarding, BMX and motocross events set to unfold. `\
+https://nytimes.com/athletic/6451415/2025/06/27/x-games-salt-lake-city-day-1-how-to-watch/
+
 **Happiness Doesn’t Have to Be a Heavy Lift**\
 `It only takes a few minutes to boost your mood.`\
 https://nytimes.com/2025/06/27/well/happiness-postivity-tiny-little-joys.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/movies/brad-pitt-f1-clip.html
 **With Flu Shot Vote, Kennedy’s Vaccine Skepticism Comes Full Circle**\
 `The preservative thimerosal started Robert F. Kennedy Jr. down the path of questioning vaccine safety. A panel of experts he appointed will no longer recommend annual flu shots that contain it.`\
 https://nytimes.com/2025/06/27/us/politics/rfk-jr-flu-vaccine-thimerosal.html
-
-**The Age-Old Question Behind the New York Mayor’s Race**\
-`What makes for a better leader: grizzled experience or a fresh face?`\
-https://nytimes.com/2025/06/27/style/mamdani-cuomo-youth-experience.html
-
-**Did ‘The Bear’ Bounce Back? Sort of, Chef**\
-`After a divisive previous season, the fine-dining dramedy regained some momentum. But other aspects of Season 4 might leave fans cold. Here, we recap it all.`\
-https://nytimes.com/2025/06/27/arts/television/the-bear-season-4-recap.html
 
