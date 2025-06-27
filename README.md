@@ -1,3 +1,11 @@
+**Al Hilal 2 Pachuca 0: Saudi side survives for last Club World Cup knockout spot**\
+`The Asian Confederation booked one spot in the Club World Cup knockout phase after Al Hilal secured a second-place group finish`\
+https://nytimes.com/athletic/6455113/2025/06/26/al-hilal-pachuca-club-world-cup-al-dawsari-saudi-arabia/
+
+**Rose Lavelle earns a goal and assist in first game back with USWNT against Ireland**\
+`Avery Patterson, Sam Coffey and Alyssa Thompson also scored in the win.`\
+https://nytimes.com/athletic/6455331/2025/06/26/rose-lavelle-goal-assist-uswnt-ireland/
+
 **Senate Republicans Reprise Push to Pay for Tax Cuts by Slashing Food Stamps**\
 `Party lawmakers have devised a way around an earlier procedural roadblock to their safety-net cuts.`\
 https://nytimes.com/2025/06/26/us/politics/republican-bill-food-stamps.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/movies/21st-century-movie-watch-next.html
 **Places to Bear Witness**\
 `Carolyn Davies Lynch opens our weekend solving with her third themeless puzzle.`\
 https://nytimes.com/2025/06/26/crosswords/daily-puzzle-2025-06-27.html
-
-**Super Bowl halftime performer arrested over ‘Sudan and Free Gaza’ flag**\
-`The suspect, Zul-Qarnain Kwame Nantambu, is also listed as the victim in an attempted murder case against former NFL receiver Antonio Brown.`\
-https://nytimes.com/athletic/6455078/2025/06/26/super-bowl-halftime-sudan-gaza-protest/
-
-**U.S. Approves $30 Million for Contentious New Gaza Aid Group**\
-`The Israel-backed Gaza Humanitarian Foundation has been criticized by the United Nations and other aid groups, which say that its system exposes Gazans to danger.`\
-https://nytimes.com/2025/06/26/world/middleeast/us-30-million-gaza-humanitarian-foundation.html
 
