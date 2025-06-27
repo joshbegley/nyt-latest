@@ -1,3 +1,5 @@
+
+
 **Trump Encourages Powell to Resign in Latest Attack on the Fed Chair**\
 `Jerome H. Powell, whose term does not expire until May, has argued that the central bank can afford to be patient about cutting interest rates amid uncertainty about the economic outlook.`\
 https://nytimes.com/2025/06/27/business/trump-powell-federal-reserve-resign.html
