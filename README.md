@@ -1,3 +1,7 @@
+**Paul Pogba set for Monaco medical**\
+`The 32-year-old is a free agent having left Juventus by mutual consent in November 2024.`\
+https://nytimes.com/athletic/6425014/2025/06/27/monaco-paul-pogba-transfer/
+
 **Vinicius Jr is smiling again - and Real Madrid can be truly excited**\
 `After a season of criticism, boos and speculation, the Brazil forward put on a show at the Club World Cup`\
 https://nytimes.com/athletic/6455491/2025/06/27/vinicius-jr-real-madrid-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455511/2025/06/27/celtics-nba-draft-round-2-jaylen
 **Diego Luna Gives Jimmy Kimmel the Gift of Fox News Coverage**\
 `While filling in for Kimmel this week, the actor-director got the attention of Laura Ingraham, who said she’d never seen the show before.`\
 https://nytimes.com/2025/06/27/arts/television/diego-luna-jimmy-kimmel-fox.html
-
-**Word of the Day: tchotchke**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/27/learning/word-of-the-day-tchotchke.html
 
