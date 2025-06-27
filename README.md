@@ -1,3 +1,15 @@
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 4 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
+https://nytimes.com/2025/06/27/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
+
+**Leeds tell fans not to travel for pre-season tour in Germany for second year in a row**\
+`Fans were unable to watch pre-season games in the country last year as German police said it could not stretch to support their friendlies.`\
+https://nytimes.com/athletic/6456092/2025/06/27/leeds-germany-pre-season/
+
+**‘No Buy’ July: Is It Really a Good Idea?**\
+`One proponent argues that fiscal fasting pushes people to confront their spending habits. But other financial experts prefer a more consistent approach to budgeting.`\
+https://nytimes.com/2025/06/27/your-money/no-buy-july-budgeting.html
+
 **Brentford to appoint Andrews as Frank's successor**\
 `Andrews has been Brentford's set-piece coach since the start of the 2024-25 season.`\
 https://nytimes.com/athletic/6423652/2025/06/27/keith-andrews-brentford-manager-confirmed/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/27/world/europe/taylor-swift-concert-attack-vienna-c
 **Sizing up the best, worst and weirdest moves of the 2025 NBA Draft: Hollinger**\
 `Portland taking Yang Hansen? Nets using all five picks? What are the Pelicans doing? John Hollinger breaks down the 2025 NBA Draft.`\
 https://nytimes.com/athletic/6455565/2025/06/27/2025-nba-draft-pelicans-yang-hansen-nets/
-
-**Who’s who on Sean Combs’s defense team.**\
-`By Anusha Bayya`\
-https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team
-
-**Listen: England's three standout players at the Under-21 Euros so far**\
-`England reached their second consecutive Under-21 European Championship final, where they will face Germany in Saturday's showpiece`\
-https://nytimes.com/athletic/6455650/2025/06/27/totally-football-show-england-under21s/
-
-**75 years of F1? Not quite: How the magic of 1950 gave way to an identity crisis**\
-`For two full seasons, the Formula One World Championship wasn’t actually contested with Formula One cars`\
-https://nytimes.com/athletic/6451034/2025/06/27/f1-lost-seasons/
 
