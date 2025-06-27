@@ -1,3 +1,7 @@
+**In Birthright Citizenship Case, Supreme Court Limits Power of Judges to Block Trump Policies**\
+`The ruling clears a major hurdle to President Trump’s agenda and could reshape American citizenship, at least temporarily, as lower court challenges proceed.`\
+https://nytimes.com/2025/06/27/us/supreme-court-birthright-citizenship.html
+
 **‘Done Waiting My Turn’: Younger Democrats Are Eager to Seize the Car Keys**\
 `Three very different politicians — from New York, Virginia and New Jersey — won elections this month with a common theme: leadership for the next generation.`\
 https://nytimes.com/2025/06/27/us/politics/democrats-mamdani-younger-generation.html
