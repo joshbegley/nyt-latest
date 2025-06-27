@@ -1,3 +1,23 @@
+**American Airlines Flights Snarled by Computer Glitch**\
+`A systems outage temporarily grounded some planes on Friday, causing headaches for both crew and passengers around the United States.`\
+https://nytimes.com/2025/06/27/travel/american-airlines-outage-delays.html
+
+**Two Men Are Sentenced in Smuggling Deaths of 53 Migrants in Texas**\
+`The migrants were being transported in a tractor-trailer that had no air-conditioning on a day when temperatures reached more than 100 degrees.`\
+https://nytimes.com/2025/06/27/us/texas-migrant-deaths-smuggling-sentence.html
+
+**Trump Warns U.S. Will Strike Again if Iran Resumes High-Level Uranium Enrichment**\
+`The president said such an outcome was unlikely, describing Iran as exhausted from the damage it had suffered and eager to speak with the United States.`\
+https://nytimes.com/2025/06/27/us/politics/trump-iran-nuclear-bomb-uranium.html
+
+**Supreme Court Limits Ability of Judges to Block Executive Orders**\
+`Senator Chuck Schumer, the minority leader, along with several progressive House Democrats, denounced the Supreme Court’s decision.`\
+https://nytimes.com/video/us/politics/100000010255031/birthright-citizenship-supreme-court.html
+
+**Overlooked No More: Rotimi Fani-Kayode, Whose Camera Sought a Truer Image of Black Men**\
+`He was a pioneering figure in Black British art whose rebellious, symbol-rich images explored race, queerness, desire and spirituality.`\
+https://nytimes.com/2025/06/27/obituaries/rotimi-fani-kayode-overlooked.html
+
 **12 Days of Attacks Later, Could Iran Make an Atomic Bomb?**\
 `How an atomic weapon is built, and what the recent Israeli and U.S. attacks on Iran may mean for the country’s nuclear ambitions.`\
 https://nytimes.com/interactive/2025/06/27/world/middleeast/iran-us-nuclear-weapons.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6457147/2025/06/27/mlb-prospects-scouting-jesus-mad
 **Olivier Giroud, France’s All-Time leading scorer, mutually parts ways with LAFC**\
 `Giroud debuted for the MLS side in 2024 after ending his time with AC Milan.`\
 https://nytimes.com/athletic/6456996/2025/06/27/lafc-olivier-giroud-france/
-
-**49ers' Deommodore Lenoir arrested on obstruction charge by LAPD**\
-`The San Francisco 49ers said in a statement that they are aware of the matter and are in the process of gathering more information. `\
-https://nytimes.com/athletic/6456858/2025/06/27/deommodore-lenoir-arrest-san-francisco-49ers/
-
-**Blue Jackets acquire forward Charlie Coyle from the Avalanche**\
-`The veteran center will join a young and talented group of forwards in Columbus.`\
-https://nytimes.com/athletic/6457165/2025/06/27/blue-jackets-acquire-charlie-coyle-from-the-avalanche-sources/
-
-**Arch Manning Q&A: Advice from Matthew McConaughey, Walmart with LSU's QB and more**\
-`Texas' new QB1 held court with reporters for 30 minutes Friday at the Manning Passing Academy. Here's what we heard from Arch.`\
-https://nytimes.com/athletic/6457051/2025/06/27/arch-manning-passing-academy-interview-texas/
-
-**S&P 500 Surges Through Trump Turmoil to a Record High**\
-`The index has regained all the ground it lost in March and early April, when President Trump proposed his broad array of tariffs.`\
-https://nytimes.com/2025/06/27/business/sp-500-record-trump.html
-
-**Trump and Bondi Won’t Say How Birthright Citizenship Will Be Enforced**\
-`The practical effect of Friday’s decision is that birthright citizenship would end in the 28 states that have not challenged the president’s order.`\
-https://nytimes.com/2025/06/27/us/politics/birthright-bondi-trump.html
 
