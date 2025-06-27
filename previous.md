@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, June 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/27/todays-new-york-times
+
+**Can Netanyahu Now Become a Statesman?**\
+`This is the moment for Israel to move on from intense military operations to political statecraft.`\
+https://nytimes.com/2025/06/27/opinion/israel-iran-statesman-diplomacy-war.html
+
 **Trent Alexander-Arnold on 'amazing' Real Madrid welcome and Alonso help - 'Winning trophies is what we do'**\
 `Trent Alexander-Arnold speaks about his arrival at Real Madrid and how the dressing room is not "intimidating" as he expected`\
 https://nytimes.com/athletic/6455440/2025/06/27/trent-alexander-arnold-real-madrid-welcome/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6411787/2025/06/27/wales-team-guide-euro-2025/
 **Head has to rule heart for West Ham when it comes to Michail Antonio's future**\
 `Antonio is set to depart West Ham as a free agent next week. For a club in need of a fresh start, a painful goodbye is the right decision`\
 https://nytimes.com/athletic/6452818/2025/06/27/michail-antonio-west-ham-contract-future/
-
-**Pep Guardiola and the age of football amnesia**\
-`Is the abundance of games and competitions affecting our ability to remember what actually happened?`\
-https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
-
-**Ter Stegen's situation is complex. Where does the Barca captain go from here?**\
-`Barcelona need to free up space as they are operating above their La Liga salary limit - and goalkeeper Ter Stegen is first on the exit list`\
-https://nytimes.com/athletic/6452816/2025/06/27/barcelona-marc-andre-ter-stegen-transfers/
 

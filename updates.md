@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, June 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/27/todays-new-york-times
+
+**Can Netanyahu Now Become a Statesman?**\
+`This is the moment for Israel to move on from intense military operations to political statecraft.`\
+https://nytimes.com/2025/06/27/opinion/israel-iran-statesman-diplomacy-war.html
+
 **Trent Alexander-Arnold on 'amazing' Real Madrid welcome and Alonso help - 'Winning trophies is what we do'**\
 `Trent Alexander-Arnold speaks about his arrival at Real Madrid and how the dressing room is not "intimidating" as he expected`\
 https://nytimes.com/athletic/6455440/2025/06/27/trent-alexander-arnold-real-madrid-welcome/
