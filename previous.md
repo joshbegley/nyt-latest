@@ -1,3 +1,15 @@
+**Full list of 2025 NHL Draft picks, starting with Matthew Schaefer at No. 1**\
+`Catch up on all selections, from No. 1 to No. 224, right here at The Athletic.`\
+https://nytimes.com/athletic/6456729/2025/06/27/nhl-draft-pick-by-pick-tracker-2025/
+
+**NHL Draft grades, analysis for every 2025 first-round pick by Corey Pronman**\
+`Scouting reports and analysis of every first-round pick at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6440973/2025/06/27/nhl-draft-grades-2025-first-round-analysis/
+
+**Matthew Schaefer selected by New York Islanders with first pick in 2025 NHL Draft**\
+`Schaefer became the Islanders’ fifth No. 1 overall pick in franchise history, and projects as a future No. 1 defenseman.`\
+https://nytimes.com/athletic/6451164/2025/06/27/matthew-schaefer-islanders-nhl-draft-2025/
+
 **The Merchant in Venice: Jeff Bezos’ Italian Wedding**\
 `In a city built on secrecy and theatrical ceremonies, the wedding of Jeff Bezos and Lauren Sánchez has unfolded with impeccable choreography.`\
 https://nytimes.com/card/2025/06/27/style/jeff-bezos-lauren-sanchez-venice-photos
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6457540/2025/06/27/cooper-flagg-mavericks-jason-kid
 **Trump Encourages Powell to Resign in Latest Attack on the Fed Chair**\
 `Jerome H. Powell, whose term does not expire until May, has argued that the central bank can afford to be patient about cutting interest rates amid uncertainty about the economic outlook.`\
 https://nytimes.com/2025/06/27/business/trump-powell-federal-reserve-resign.html
-
-**4 Takeaways From the Defense’s Closing Argument at Sean Combs’s Trial**\
-`Mr. Combs’s lead lawyer made a final appeal to the jury, arguing in often sarcastic tones that the government’s evidence contradicted its case against the hip-hop mogul.`\
-https://nytimes.com/2025/06/27/arts/music/sean-combs-diddy-trial-defense-closings.html
-
-**Trump Administration to Appeal Order Allowing International Students at Harvard**\
-`A district court judge had blocked President Trump’s proclamation barring international students from attending the university.`\
-https://nytimes.com/2025/06/27/us/trump-harvard-appeal.html
-
-**Minnesota State Lawmaker Lies in State With Her Husband**\
-`At the Minnesota State Capitol, mourners lined up to pay their respects to State Representative Melissa Hortman and her husband, who were assassinated at their home earlier this month.`\
-https://nytimes.com/video/us/politics/100000010256085/minnesota-state-lawmaker-lies-in-state-with-her-husband.html
 
