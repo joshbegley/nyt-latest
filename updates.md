@@ -1,3 +1,19 @@
+**Euro 2025: England team guide - what can we expect from the defending champions?**\
+`From players to watch to pedigree and much more, we set out what to expect from Sarina Wiegman's side at the European Championship`\
+https://nytimes.com/athletic/6421430/2025/06/27/england-team-guide-euro-2025/
+
+**Euro 2025: Wales team guide - can the debutants be disruptors in the toughest group?**\
+`From players to watch to pedigree and much more, we set out what to epect from Wales at the European Championship`\
+https://nytimes.com/athletic/6411787/2025/06/27/wales-team-guide-euro-2025/
+
+**Head has to rule heart for West Ham when it comes to Michail Antonio's future**\
+`Antonio is set to depart West Ham as a free agent next week. For a club in need of a fresh start, a painful goodbye is the right decision`\
+https://nytimes.com/athletic/6452818/2025/06/27/michail-antonio-west-ham-contract-future/
+
+**Pep Guardiola and the age of football amnesia**\
+`Is the abundance of games and competitions affecting our ability to remember what actually happened?`\
+https://nytimes.com/athletic/6454546/2025/06/27/pep-guardiola-football-amnesia/
+
 **Ter Stegen's situation is complex. Where does the Barca captain go from here?**\
 `Barcelona need to free up space as they are operating above their La Liga salary limit - and goalkeeper Ter Stegen is first on the exit list`\
 https://nytimes.com/athletic/6452816/2025/06/27/barcelona-marc-andre-ter-stegen-transfers/
