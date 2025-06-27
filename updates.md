@@ -1,3 +1,7 @@
+**‘I’ve Basically Lost Everything’: The Aftermath of the 12-Day War**\
+`Mohsen Naghib-Hashemi, a graphic designer from Tehran, said his home and car were significantly damaged during the fighting between Israel and Iran. He described to The New York Times the challenges he faces in rebuilding his life.`\
+https://nytimes.com/video/world/middleeast/100000010252314/tehran-damage-war-israel.html
+
 **The Supreme Court Limited the Use of Nationwide Injunctions**\
 `Also, U.Va.’s president resigned under pressure from the Trump administration. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/06/27/briefing/supreme-court-virginia-president-resignation.html
