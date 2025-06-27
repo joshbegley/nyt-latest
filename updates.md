@@ -1,3 +1,11 @@
+**Trump Administration to Appeal Order Allowing International Students at Harvard**\
+`A district court judge had blocked President Trump’s proclamation barring international students from attending the university.`\
+https://nytimes.com/2025/06/27/us/trump-harvard-appeal.html
+
+**Minnesota State Lawmaker Lies in State With Her Husband**\
+`At the Minnesota State Capitol, mourners lined up to pay their respects to State Representative Melissa Hortman and her husband, who were assassinated at their home earlier this month.`\
+https://nytimes.com/video/us/politics/100000010256085/minnesota-state-lawmaker-lies-in-state-with-her-husband.html
+
 **Sabres extend Jack Quinn for 2 years: What it means for lineup, salary cap**\
 `Quinn is coming off a disappointing season. This contract is a bet that the 2020 first-rounder can bounce back to form.`\
 https://nytimes.com/athletic/6457357/2025/06/27/sabres-jack-quinn-extension-nhl/
