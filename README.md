@@ -1,3 +1,15 @@
+**Where does Oilers' bet on Trent Frederic fit among past long-term commitments?**\
+`There’s a bit of sticker shock with Frederic’s contract, especially as it pertains to the length.`\
+https://nytimes.com/athletic/6453930/2025/06/27/oilers-trent-frederic-contract-hyman-lucic/
+
+**Civil rights groups warn that the decision involving birthright citizenship will create chaos.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2025/06/27/us/birthright-citizenship-supreme-court/civil-rights-groups-warn-that-the-decision-involving-birthright-citizenship-will-create-chaos
+
+**A Slain Minnesota Lawmaker Is Lying in State. Here’s What That Means.**\
+`The former speaker of the House, her husband and their dog were killed in what officials describe as a political assassination. All three are being honored at the State Capitol.`\
+https://nytimes.com/2025/06/27/us/politics/lie-in-state-minnesota-capitol-hortman.html
+
 **Major Unions Are Dropping Cuomo to Back Mamdani in N.Y.C. Mayor’s Race**\
 `The powerful hotel workers union and Local 32BJ are switching their endorsements to Zohran Mamdani, a sign that Democratic power brokers are coalescing behind him.`\
 https://nytimes.com/2025/06/27/nyregion/unions-mamdani-cuomo-endorsement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/27/health/john-robbins-dead.html
 **The Supreme Court’s ‘Zone of Lawlessness’**\
 `The court didn’t rule on the legality of Trump’s order, but it didn’t have to.`\
 https://nytimes.com/2025/06/27/opinion/birthright-citizenship-case-supreme-court.html
-
-**NHL, NHLPA announce memorandum of understanding on new CBA**\
-`The CBA includes an 84-game schedule and playoff salary cap and will ensure labor peace in the league through September 2030.`\
-https://nytimes.com/athletic/6456385/2025/06/27/nhl-nhlpa-memorandum-of-understanding-cba/
-
-**A Minnesota Lawmaker and Her Husband Are Lying in State. Next to Them: Their Golden Retriever.**\
-`Gilbert, Representative Melissa Hortman’s dog, is being honored at the State Capitol with Ms. Hortman and her husband, Mark. They were all killed in a shooting at their home this month.`\
-https://nytimes.com/2025/06/27/us/politics/minnesota-melissa-hortman-dog-lying-in-state.html
-
-**Wimbledon 2025: How to watch the opening rounds of London's prestigious major**\
-`Tennis' oldest tournament gets a couple of significant updates. Wimbledon begins Monday and runs into the middle of July.`\
-https://nytimes.com/athletic/6453965/2025/06/27/wimbledon-2025-how-to-watch/
 
