@@ -1,3 +1,7 @@
+**Vinicius Jr is smiling again - and Real Madrid can be truly excited**\
+`After a season of criticism, boos and speculation, the Brazil forward put on a show at the Club World Cup`\
+https://nytimes.com/athletic/6455491/2025/06/27/vinicius-jr-real-madrid-club-world-cup/
+
 **Regardless of Ace Bailey's desires, Jazz made right move drafting him**\
 `The Jazz knew Bailey wouldn't do backflips if they selected him. They didn't care. They took him anyway.`\
 https://nytimes.com/athletic/6454997/2025/06/27/ace-bailey-utah-jazz-nba-draft/
