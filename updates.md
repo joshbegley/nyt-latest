@@ -1,3 +1,15 @@
+**Canadiens have long coveted a Noah Dobson type. Now they have the real thing**\
+`The Canadiens appear to be set on the blue line for years to come with Dobson joining Lane Hutson, Kaiden Guhle and David Reinbacher.`\
+https://nytimes.com/athletic/6457024/2025/06/27/canadiens-noah-dobson-trade-nhl-draft/
+
+**Man Who Kicked Customs Dog Is Turned Away at D.C. Airport, U.S. Says**\
+`The man, who was traveling on a tourist visa, kicked the dog, a beagle named Freddie who had detected food in his luggage, so hard that he was lifted off the ground, court records say.`\
+https://nytimes.com/2025/06/27/us/dulles-airport-customs-dog-kicked.html
+
+**Fearing Tax Increases and Trump, G.O.P. Toils to Pass a Bill With Plenty to Hate**\
+`The sweeping measure Senate Republican leaders hope to push through has many unpopular elements that they despise. But they face a political reckoning on taxes and the scorn of the president if they fail to pass it.`\
+https://nytimes.com/2025/06/27/us/politics/republicans-tax-increases-trump-bill.html
+
 **Mourners gather at the Minnesota Capitol, where the Hortmans are lying in state.**\
 `By Jeff Ernst, Jay Senter and Mitch Smith`\
 https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman/mourners-gather-at-the-minnesota-capitol-where-the-hortmans-are-lying-in-state
