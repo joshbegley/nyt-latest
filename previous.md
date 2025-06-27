@@ -1,3 +1,15 @@
+**Blackhawks unveil home jersey for centennial season**\
+`Features include a vintage lace-up collar, a gold trim around the logo and a “100” shoulder patch.`\
+https://nytimes.com/athletic/6455338/2025/06/27/blackhawks-jersey-centennial-2026/
+
+**A Perfect Pasta for Not-Yet-Perfect Tomatoes**\
+`Melissa Clark’s ace recipe enhances cherry tomatoes with pancetta, loads of mint, pecorino and a little butter. It’s ridiculously good.`\
+https://nytimes.com/2025/06/27/dining/easy-pasta-with-cherry-tomatoes.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Spanish drama about a transgender girl, a nail-biting Indian thriller, a Chinese docufiction and more.`\
+https://nytimes.com/2025/06/27/movies/five-international-movies-to-stream-now.html
+
 **Supreme Court Requires Schools to Allow Opting Out From L.G.B.T.Q. Stories**\
 `Maryland parents have a religious right to withdraw their children from classes on days that storybooks with gay and transgender themes are discussed, the court ruled.`\
 https://nytimes.com/2025/06/27/us/politics/supreme-court-lgbtq-books.html
@@ -18,23 +30,11 @@ https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/sean-combss-lawy
 `The ruling clears a major hurdle to President Trump’s agenda and could reshape American citizenship, at least temporarily, as lower court challenges proceed.`\
 https://nytimes.com/2025/06/27/us/supreme-court-birthright-citizenship.html
 
-**Raptors' Masai Ujiri out as vice chairman and president**\
+**Raptors' Masai Ujiri out as vice chairman and president after 12 years**\
 `The Raptors hired Ujiri in 2013, the same year he won the 2013 NBA Executive of the Year award.`\
 https://nytimes.com/athletic/6456136/2025/06/27/raptors-masai-ujiri-out-as-vice-chairman-president/
 
 **Read the Supreme Court Decision in the Birthright Citizenship Case**\
 `In the citizenship case, the justices voted 6-3, with the liberals in dissent, to limit the lower-courts’ preliminary injunctions to each plaintiff with standing to sue.`\
 https://nytimes.com/interactive/2025/06/27/us/politics/supreme-court-ruling-birthright-citizenship.html
-
-**How the Birthright Citizenship and Nationwide Injunctions Case Began**\
-`The dispute before the court was prompted by an order President Trump signed on his first day back in the White House.`\
-https://nytimes.com/2025/06/27/us/politics/birthright-citizenship-nationwide-injunctions.html
-
-**Rick Hurst, Cletus Hogg on ‘The Dukes of Hazzard,’ Dies at 79**\
-`As the affable deputy sheriff on the popular CBS show, Mr. Hurst became a beloved figure for many fans of the show.`\
-https://nytimes.com/2025/06/27/obituaries/rick-hurst-dead.html
-
-**Pro-Palestinian Activists Arrested Under Terrorism Law in U.K. Air Base Break-In**\
-`The powers used against the members of a group called Palestine Action are more usually employed in cases of planned jihadist or far-right violence.`\
-https://nytimes.com/2025/06/27/world/europe/uk-palestine-action-arrests-terrorism-law.html
 

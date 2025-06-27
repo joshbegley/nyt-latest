@@ -1,3 +1,19 @@
+**Blackhawks unveil home jersey for centennial season**\
+`Features include a vintage lace-up collar, a gold trim around the logo and a “100” shoulder patch.`\
+https://nytimes.com/athletic/6455338/2025/06/27/blackhawks-jersey-centennial-2026/
+
+**A Perfect Pasta for Not-Yet-Perfect Tomatoes**\
+`Melissa Clark’s ace recipe enhances cherry tomatoes with pancetta, loads of mint, pecorino and a little butter. It’s ridiculously good.`\
+https://nytimes.com/2025/06/27/dining/easy-pasta-with-cherry-tomatoes.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Spanish drama about a transgender girl, a nail-biting Indian thriller, a Chinese docufiction and more.`\
+https://nytimes.com/2025/06/27/movies/five-international-movies-to-stream-now.html
+
+**Raptors' Masai Ujiri out as vice chairman and president after 12 years**\
+`The Raptors hired Ujiri in 2013, the same year he won the 2013 NBA Executive of the Year award.`\
+https://nytimes.com/athletic/6456136/2025/06/27/raptors-masai-ujiri-out-as-vice-chairman-president/
+
 **Supreme Court Requires Schools to Allow Opting Out From L.G.B.T.Q. Stories**\
 `Maryland parents have a religious right to withdraw their children from classes on days that storybooks with gay and transgender themes are discussed, the court ruled.`\
 https://nytimes.com/2025/06/27/us/politics/supreme-court-lgbtq-books.html
