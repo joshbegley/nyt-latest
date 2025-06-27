@@ -1,3 +1,7 @@
+**Diego Luna Gives Jimmy Kimmel the Gift of Fox News Coverage**\
+`While filling in for Kimmel this week, the actor-director got the attention of Laura Ingraham, who said she’d never seen the show before.`\
+https://nytimes.com/2025/06/27/arts/television/diego-luna-jimmy-kimmel-fox.html
+
 **Word of the Day: tchotchke**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/27/learning/word-of-the-day-tchotchke.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429404/2025/06/27/welcome-to-wrexham-season-4-revi
 **After starting every U21 Euros match, will James Beadle seek a future beyond Brighton's bench?**\
 `Brighton's goalkeeping department is congested. Is it holding back the 20-year-old?`\
 https://nytimes.com/athletic/6445048/2025/06/27/james-beadle-brighton-future/
-
-**Euro 2025: England team guide - what can we expect from the defending champions?**\
-`From players to watch to pedigree and much more, we set out what to expect from Sarina Wiegman's side at the European Championship`\
-https://nytimes.com/athletic/6421430/2025/06/27/england-team-guide-euro-2025/
 
