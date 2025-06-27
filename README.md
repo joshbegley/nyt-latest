@@ -1,3 +1,11 @@
+**An Unearthed Joni Mitchell Jazz Demo, and 11 More New Songs**\
+`Hear tracks by Sarah McLachlan, Camilo, Us3 and others.`\
+https://nytimes.com/2025/06/27/arts/music/playlist-joni-mitchell-sarah-mclachlan.html
+
+**Justices Uphold Preventive Care Provision in Affordable Care Act**\
+`The case stemmed from a lawsuit brought by conservatives seeking to block free preventive care, including medicine to prevent H.I.V. transmission.`\
+https://nytimes.com/2025/06/27/us/supreme-court-preventative-care.html
+
 **G7 Backs Plan for ‘Side-by-Side’ Tax System to Avoid U.S. Fight**\
 `American companies will be exempt from penalties related to a 2021 global minimum tax deal that President Trump opposes.`\
 https://nytimes.com/2025/06/27/business/g7-tax-plan-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/27/us/minnesota-shooting-boelter-hortman
 **Answering your Reds questions: Elly's struggles, rotation unknowns, trade deadline and more**\
 `C. Trent Rosecrans discussed a wide-ranging series of Reds topics during a live Q&A on Thursday.`\
 https://nytimes.com/athletic/6456174/2025/06/27/reds-trade-deadline-elly-rotation/
-
-**The Bounce: Answering big post-draft NBA questions as free agency and offseason near**\
-`One of the biggest hurdles in team-building these days is the dreaded second apron. How will that affect free agency and potential trades?`\
-https://nytimes.com/athletic/6456098/2025/06/27/cooper-flagg-mavericks-nba-draft-free-agency-trades-the-bounce/
-
-**Blackhawks unveil home jersey for centennial season**\
-`Features include a vintage lace-up collar, a gold trim around the logo and a “100” shoulder patch.`\
-https://nytimes.com/athletic/6455338/2025/06/27/blackhawks-jersey-centennial-2026/
 
