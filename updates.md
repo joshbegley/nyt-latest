@@ -1,3 +1,19 @@
+**Premier League TV coverage set for enhanced access, including interviews with subs**\
+`In order to keep pace with their US counterparts, British broadcasters sought increased access from the Premier League.`\
+https://nytimes.com/athletic/6455982/2025/06/27/premier-league-tv-coverage-to-include-dressing-room-access-and-interviews-with-subs/
+
+**In its closing argument, the prosecution said Combs’s ‘crimes have been exposed.’**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/06/27/arts/sean-combs-diddy-trial/in-its-closing-argument-the-prosecution-said-combss-crimes-have-been-exposed
+
+**The Fed’s Preferred Inflation Gauge Was Slightly Hotter in May**\
+`Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
+https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
+
+**Listen: England's three standout players at the Under-21 Euros so far**\
+`England reached their second consecutive Under-21 European Championship final, where they will face Germany in Saturday's showpiece`\
+https://nytimes.com/athletic/6455650/2025/06/27/totally-football-show-england-under21s/
+
 **The Fed’s Preferred Inflation Gauge Stayed Tame in May**\
 `Most economists and policymakers are bracing for price pressures to intensify this summer because of President Trump’s tariffs.`\
 https://nytimes.com/2025/06/27/business/pce-inflation-fed.html
