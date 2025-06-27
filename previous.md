@@ -1,3 +1,8 @@
+**What John Tavares' hometown discount means for the Leafs — now and later**\
+`Tavares' four-year, $4.38 AAV deal is a clear win for a front office that needed one to get the ball rolling on the offseason.
+`\
+https://nytimes.com/athletic/6457136/2025/06/27/maple-leafs-john-tavares-contract-extension/
+
 **‘I’ve Basically Lost Everything’: The Aftermath of the 12-Day War**\
 `Mohsen Naghib-Hashemi, a graphic designer from Tehran, said his home and car were significantly damaged during the fighting between Israel and Iran. He described to The New York Times the challenges he faces in rebuilding his life.`\
 https://nytimes.com/video/world/middleeast/100000010252314/tehran-damage-war-israel.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6457075/2025/06/27/masai-ujiri-toronto-raptors-depa
 **How to watch the Twins at Tigers series, with Skubal on 'Sunday Night Baseball'**\
 `The Detroit Tigers are dominant, and we're all friends with Paws the Tiger now. Here's how to watch their series vs. the Minnesota Twins.`\
 https://nytimes.com/athletic/6456452/2025/06/27/twins-tigers-skubal-sunday-night-baseball-how-to-watch/
-
-**American Airlines Flights Snarled by Computer Glitch**\
-`A systems outage temporarily grounded some planes on Friday, causing headaches for both crew and passengers around the United States.`\
-https://nytimes.com/2025/06/27/travel/american-airlines-outage-delays.html
 
