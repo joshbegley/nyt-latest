@@ -1,3 +1,11 @@
+**Weird & Wild: Cal Raleigh vs. catching greats, powerful pitchers, and oh no Orioles!**\
+`It’s time to talk about that catcher in Seattle who is breaking baseball … and also baseballs.`\
+https://nytimes.com/athletic/6455231/2025/06/27/cal-raleigh-catching-history-baltiomre-orioles-june/
+
+**The Pulse: The most interesting program in college sports**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6453701/2025/06/27/sacramento-state-fbs-the-pulse/
+
 **An MLB manager found value in long walks. Research suggests it's a 'brain-changing power'**\
 `There are many benefits to walking, as MLB's Bruce Bochy can attest, but one unique benefit is backed by research: It enhances creativity.`\
 https://nytimes.com/athletic/6453809/2025/06/27/bruce-bochy-walking-exercise-creativity/
