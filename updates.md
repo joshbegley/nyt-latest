@@ -1,3 +1,11 @@
+**Senators acquire defenseman Jordan Spence from Kings for draft picks**\
+`The 24-year-old Australian-born defenseman scored four goals and 28 points in 79 games with the Kings last season.`\
+https://nytimes.com/athletic/6458846/2025/06/28/senators-kings-jordan-spence-trade-nhl/
+
+**Red Wings trade for John Gibson from Ducks: Why now, and why Detroit?**\
+`The Detroit Red Wings have made their first potential upgrade of the 2025 offseason — and it's in the crease.`\
+https://nytimes.com/athletic/6458891/2025/06/28/red-wings-john-gibson-trade-ducks/
+
 **Fletcher in talks to become Manchester United under-18 head coach**\
 `Fletcher is expected to decide now is the right time to take on a lead coach role and support the club in filling a key vacancy.`\
 https://nytimes.com/athletic/6458631/2025/06/28/darren-fletcher-manchester-united-coach/
