@@ -1,3 +1,7 @@
+**Ronaldo says 2034 World Cup in Saudi Arabia will be 'the most beautiful one ever'**\
+`Ronaldo has been vocal in his belief in the Saudi Pro League, saying in January 2024 that it was better than Ligue 1.`\
+https://nytimes.com/athletic/6459266/2025/06/28/cristiano-ronaldo-world-cup-2034-saudi/
+
 **Angel Reese releases 'mebounds' merch, applies for 'Reesebounds' trademark as well**\
 `In addition the 'mebounds' collection, Reese also wants to produce 'Reesebounds' merchandise`\
 https://nytimes.com/athletic/6457895/2025/06/28/angel-reese-mebounds-merchandise-trademark/

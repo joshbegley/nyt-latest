@@ -1,3 +1,7 @@
+**Ronaldo says 2034 World Cup in Saudi Arabia will be 'the most beautiful one ever'**\
+`Ronaldo has been vocal in his belief in the Saudi Pro League, saying in January 2024 that it was better than Ligue 1.`\
+https://nytimes.com/athletic/6459266/2025/06/28/cristiano-ronaldo-world-cup-2034-saudi/
+
 **Angel Reese releases 'mebounds' merch, applies for 'Reesebounds' trademark as well**\
 `In addition the 'mebounds' collection, Reese also wants to produce 'Reesebounds' merchandise`\
 https://nytimes.com/athletic/6457895/2025/06/28/angel-reese-mebounds-merchandise-trademark/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453141/2025/06/28/jamie-gittens-chelsea-what-he-br
 **Gerry Philbin, Star Defensive End for the Jets, Dies at 83**\
 `A sack specialist, he led the American Football League in taking down quarterbacks in the 1968 regular season, which was capped by the Jets’ upset win in Super Bowl III.`\
 https://nytimes.com/2025/06/28/sports/football/gerry-philbin-dead.html
-
-**How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
-`The big talking points from the first of the FIFA Club World Cup round of 16 matches`\
-https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/
 
