@@ -1,3 +1,11 @@
+**French Police Officers Who Beat a Black Man on Camera to Stand Trial**\
+`The brutal beating in 2020 of Michel Zecler, a well-known music producer, sent shock waves through France.`\
+https://nytimes.com/2025/06/28/world/europe/france-michel-zecler-police-beating-video.html
+
+**Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord**\
+`Nuclear experts say the president’s rejection of the restrictive deal forced him to neutralize an Iranian threat of his own making.`\
+https://nytimes.com/2025/06/28/science/iran-nuclear-uranium-metal.html
+
 **The Pulse: MLB's first half is done. Time for Regression Court**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/world/europe/bezos-sanchez-venice-wedding.html
 **Thai Protesters Vent Their Exasperation With the Prime Minister**\
 `The political turmoil set off by a leaked phone conversation shows no sign of easing, in a country where demonstrations have helped oust governments before.`\
 https://nytimes.com/2025/06/28/world/asia/thailand-protesters-prime-minister.html
-
-**Thompson runs world lead 100m time, Fraser-Pryce makes World Championships**\
-`Thompson's performance is the fastest men’s 100m for over a decade — since Gatlin ran 9.74s once and 9.75s twice in the summer of 2015.`\
-https://nytimes.com/athletic/6458478/2025/06/28/thompson-100m-record-fraser-pryce-jamaica-athletics/
-
-**NBA offseason themes to watch: Pacers' roster-building, second-apron fears and more**\
-`An unpredictable tax situation. A player’s contract again at the center of mixed messaging. And the NBA is avoiding one boogeyman.`\
-https://nytimes.com/athletic/6457671/2025/06/28/nba-offseason-themes-pacers-nuggets-bradley-beal-suns/
 

@@ -1,3 +1,11 @@
+**French Police Officers Who Beat a Black Man on Camera to Stand Trial**\
+`The brutal beating in 2020 of Michel Zecler, a well-known music producer, sent shock waves through France.`\
+https://nytimes.com/2025/06/28/world/europe/france-michel-zecler-police-beating-video.html
+
+**Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord**\
+`Nuclear experts say the president’s rejection of the restrictive deal forced him to neutralize an Iranian threat of his own making.`\
+https://nytimes.com/2025/06/28/science/iran-nuclear-uranium-metal.html
+
 **Justin Tucker had a decision to make. Will it help him return to the field?**\
 `By accepting the league's ban, Tucker opted to fight for his career rather than continue to fight for his reputation. `\
 https://nytimes.com/athletic/6457460/2025/06/28/justin-tucker-nfl-suspension/
