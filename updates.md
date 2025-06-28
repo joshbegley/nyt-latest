@@ -1,3 +1,11 @@
+**Musk Wades Back Into Politics, Slamming Trump’s Domestic Policy Bill**\
+`Weeks after ending his war of words with President Trump, Elon Musk called the president’s bill “utterly insane and destructive.”`\
+https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
+
+**Bruins still eyeing trades with NHL Draft behind them and a shallow free-agent market ahead**\
+`GM Don Sweeney on potential trades: "We have a couple of those things we looked at. Maybe they come to bear over the next day or so."`\
+https://nytimes.com/athletic/6459654/2025/06/28/bruins-trades-free-agency-draft/
+
 **USMNT 'very focused, very involved' heading into quarterfinal after week-long break**\
 `Despite an easygoing warmup, it's back to business for the USMNT ahead of Sunday's quarterfinal against Costa Rica.`\
 https://nytimes.com/athletic/6459543/2025/06/28/usmnt-soccer-gold-cup-pochettino/

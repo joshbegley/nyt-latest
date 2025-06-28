@@ -1,3 +1,11 @@
+**Musk Wades Back Into Politics, Slamming Trump’s Domestic Policy Bill**\
+`Weeks after ending his war of words with President Trump, Elon Musk called the president’s bill “utterly insane and destructive.”`\
+https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
+
+**Bruins still eyeing trades with NHL Draft behind them and a shallow free-agent market ahead**\
+`GM Don Sweeney on potential trades: "We have a couple of those things we looked at. Maybe they come to bear over the next day or so."`\
+https://nytimes.com/athletic/6459654/2025/06/28/bruins-trades-free-agency-draft/
+
 **USMNT 'very focused, very involved' heading into quarterfinal after week-long break**\
 `Despite an easygoing warmup, it's back to business for the USMNT ahead of Sunday's quarterfinal against Costa Rica.`\
 https://nytimes.com/athletic/6459543/2025/06/28/usmnt-soccer-gold-cup-pochettino/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6459397/2025/06/28/penguins-sidney-crosby-2025-nhl-
 **The Advantages of Attacking the Net in Tennis**\
 `Analysts said it was a strategy that few employ, but that it could improve players’ games if they mastered the shot.`\
 https://nytimes.com/2025/06/28/sports/tennis/attacking-net-strategy.html
-
-**Wild NHL Draft takeaways: Jonas Brodin out to start season, most interesting pick, stocking up on D**\
-`Also, Judd Brackett calls one of the team's picks a "heat-seeking missile" and another an "abrasive, physical" prospect.`\
-https://nytimes.com/athletic/6459489/2025/06/28/wild-nhl-draft-jonas-brodin/
-
-**NHL Draft 2025 grades for every team: Best picks, fits and analysis**\
-`Corey Pronman grades how every team performed at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6458881/2025/06/28/nhl-draft-2025-team-grades/
 
