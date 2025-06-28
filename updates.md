@@ -1,3 +1,7 @@
+**Angel Reese releases 'mebounds' merch, applies for 'Reesebounds' trademark as well**\
+`In addition the 'mebounds' collection, Reese also wants to produce 'Reesebounds' merchandise`\
+https://nytimes.com/athletic/6457895/2025/06/28/angel-reese-mebounds-merchandise-trademark/
+
 **Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
 `Melissa Hortman was eulogized by Gov. Tim Walz as a compassionate leader in a service also attended by former President Biden and former Vice President Harris.`\
 https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html

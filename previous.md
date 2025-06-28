@@ -1,3 +1,7 @@
+**Angel Reese releases 'mebounds' merch, applies for 'Reesebounds' trademark as well**\
+`In addition the 'mebounds' collection, Reese also wants to produce 'Reesebounds' merchandise`\
+https://nytimes.com/athletic/6457895/2025/06/28/angel-reese-mebounds-merchandise-trademark/
+
 **Yankees' George Costanza bobblehead pre-selling for more than tickets to giveaway game**\
 `Seinfeld Night returns to Yankee Stadium with a unique giveaway that's already in high demand`\
 https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/sports/football/gerry-philbin-dead.html
 **How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
 `The big talking points from the first of the FIFA Club World Cup round of 16 matches`\
 https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/
-
-**Kayla Thornton, with career-best night, shows she's right at home with Valkyries**\
-`Her 29-point outing Friday in a win over Chicago was a career high and the latest sign that she has filled her cup with Golden State.`\
-https://nytimes.com/athletic/6458929/2025/06/28/kayla-thornton-golden-state-valkyries-all-star/
 
