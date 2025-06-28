@@ -1,3 +1,7 @@
+**Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
+`The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
+https://nytimes.com/athletic/6458847/2025/06/28/blues-re-sign-goalie-joel-hofer-what-the-depth-chart-looks-like-heading-into-free-agency/
+
 **Mikayla Raines, Who Rescued Foxes and Other Animals, Is Dead at 30**\
 `She founded Save a Fox Rescue to care for foxes that had been abandoned or bred for their pelts on fur farms. She gained millions of social media followers along the way.`\
 https://nytimes.com/2025/06/28/us/mikayla-raines-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458822/2025/06/28/lonzo-ball-cavaliers-bulls-trade
 **Maple Leafs, Golden Knights discussing trade for Mitch Marner's rights: Sources**\
 `Marner is one of the Leafs organization’s most accomplished players, sitting fifth on the all-time scoring list with 741 points.`\
 https://nytimes.com/athletic/6458557/2025/06/28/mitch-marner-trade-talks-maple-leafs-golden-knights/
-
-**Pat Williams, Last Montana Democrat to Serve in the House, Dies at 87**\
-`His liberal politics, inspired by the safety nets of the New Deal, were shaped in working-class mining country.`\
-https://nytimes.com/2025/06/28/us/politics/pat-williams-dead.html
 
