@@ -1,3 +1,19 @@
+**Chinese Police Detain Dozens of Writers Over Gay Erotic Online Novels**\
+`The genre known as Boys’ Love, stories written mostly by and for straight women, has been in the authorities’ sights for years.`\
+https://nytimes.com/2025/06/28/world/asia/china-boys-love-women.html
+
+**Budapest Pride Parade Will Go On Despite Orban’s Ban. How Will He Respond?**\
+`Prime Minister Viktor Orban’s party enacted the ban, trying to create a dilemma for the opposition leader. Now it is the government that faces a tough choice.`\
+https://nytimes.com/2025/06/28/world/europe/hungary-orban-gay-pride.html
+
+**Connections: Sports Edition Coach: Hints for June 28, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6442057/2025/06/28/connections-sports-edition-hints-for-june-28-2025/
+
+**Corrections: June 28, 2025**\
+`Corrections that appeared in print on Saturday, June 28, 2025.`\
+https://nytimes.com/2025/06/28/pageoneplus/corrections-june-28-2025.html
+
 **Quote of the Day: Graduates’ Joy Chilled by Worry After Student’s ICE Arrest**\
 `Quotation of the Day for Saturday, June 28, 2025.`\
 https://nytimes.com/2025/06/27/pageoneplus/quote-of-the-day-graduates-joy-chilled-by-worry-after-students-ice-arrest.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6457851/2025/06/27/atlanta-braves-lineup-is-a-mess/
 **Kyle Tucker and Ryan Pressly return to Houston: 'Everyone’s going to be watching this series'**\
 `The Astros played a tribute video for two Cubs who contributed to a Houston title: “A lot of memories have been made out on that field."`\
 https://nytimes.com/athletic/6457904/2025/06/27/kyle-tucker-ryan-pressly-houston-astros-return-cubs/
-
-**Trump Administration Rescinds Voice of America Layoffs After Errors in Notices**\
-`The errors in the layoff notices could have derailed President Trump’s effort to dismantle the news organization. The administration said it would attempt the layoffs again.`\
-https://nytimes.com/2025/06/27/us/politics/trump-voa-layoffs-errors.html
-
-**Dallas Stars' Jim Nill wins third straight NHL General Manager of the Year Award**\
-`Nill is the first three-time winner in the award's history.`\
-https://nytimes.com/athletic/6400649/2025/06/27/jim-nill-dallas-stars-nhl-gm-award/
-
-**Crushing, in a Way**\
-`Jesse Guzman makes a swoonworthy Saturday debut.`\
-https://nytimes.com/2025/06/27/crosswords/daily-puzzle-2025-06-28.html
-
-**Maresca: Best for Acheampong to stay at Chelsea this season**\
-`Amid transfer interest in the 19-year-old rising talent, Chelsea's boss makes his wishes clear`\
-https://nytimes.com/athletic/6457876/2025/06/27/josh-acheampong-chelsea-enzo-maresca-plans/
 
