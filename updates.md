@@ -1,3 +1,7 @@
+**The Atlanta Braves' lineup is a mess, and there are no easy fixes**\
+`Are the Braves feeling increased pressure with their streak of eight straight playoff appearances in serious jeopardy?`\
+https://nytimes.com/athletic/6457851/2025/06/27/atlanta-braves-lineup-is-a-mess/
+
 **Kyle Tucker and Ryan Pressly return to Houston: 'Everyone’s going to be watching this series'**\
 `The Astros played a tribute video for two Cubs who contributed to a Houston title: “A lot of memories have been made out on that field."`\
 https://nytimes.com/athletic/6457904/2025/06/27/kyle-tucker-ryan-pressly-houston-astros-return-cubs/

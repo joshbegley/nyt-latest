@@ -1,3 +1,7 @@
+**The Atlanta Braves' lineup is a mess, and there are no easy fixes**\
+`Are the Braves feeling increased pressure with their streak of eight straight playoff appearances in serious jeopardy?`\
+https://nytimes.com/athletic/6457851/2025/06/27/atlanta-braves-lineup-is-a-mess/
+
 **Kyle Tucker and Ryan Pressly return to Houston: 'Everyone’s going to be watching this series'**\
 `The Astros played a tribute video for two Cubs who contributed to a Houston title: “A lot of memories have been made out on that field."`\
 https://nytimes.com/athletic/6457904/2025/06/27/kyle-tucker-ryan-pressly-houston-astros-return-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6457801/2025/06/27/naz-reid-minnesota-timberwolves-
 **What the Supreme Court’s Ruling Will Mean for Birthright Citizenship**\
 `The ruling left unsettled the question of whether children born to immigrants without full legal status in the United States are entitled to automatic citizenship. So what happens now?`\
 https://nytimes.com/2025/06/27/us/politics/27nat-birthright-citizenship-impacts.html
-
-**A Special ‘Climate’ Visa? People in Tuvalu Are Applying Fast.**\
-`Nearly half the citizens of the tiny Pacific Island nation have already applied in a lottery for Australian visas amid an existential threat from global warming and sea-level rise.`\
-https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-are-applying-fast.html
 
