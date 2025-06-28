@@ -1,3 +1,7 @@
+**Spain's Bonmati diagnosed with viral meningitis ahead of Euro 2025**\
+`Bonmati, who has won each of the two most recent women's Ballon d'Or awards, posted a photo from her hospital bed on Friday night.`\
+https://nytimes.com/athletic/6458422/2025/06/28/aitana-bonmati-spain-euro-2025/
+
 **How the ‘Italian Fairy’ Spends Her Day Teaching Children to Sing**\
 `Simona Rodano barely has time to strap on her sparkly wings before she dashes around New York City, teaching children how to sing in Italian, French and Spanish.`\
 https://nytimes.com/2025/06/28/nyregion/simona-rodano-italian-fairy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6457934/2025/06/28/senators-nhl-draft-logan-hensler
 **Why the Canucks landed on Braeden Cootes with their first-round pick**\
 `Cootes is precisely the sort of high-variance bet that the Canucks should be making in bulk.`\
 https://nytimes.com/athletic/6458058/2025/06/28/canucks-nhl-draft-braeden-cootes/
-
-**Blackhawks add 3 more first-round draft picks to continue playing numbers game**\
-`In GM Kyle Davidson's eyes, the Blackhawks' first-round haul is a mix of quality and quantity.`\
-https://nytimes.com/athletic/6458237/2025/06/28/blackhawks-nhl-draft-frondell-nestrasil-west-first-round/
 

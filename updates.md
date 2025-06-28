@@ -1,3 +1,7 @@
+**Spain's Bonmati diagnosed with viral meningitis ahead of Euro 2025**\
+`Bonmati, who has won each of the two most recent women's Ballon d'Or awards, posted a photo from her hospital bed on Friday night.`\
+https://nytimes.com/athletic/6458422/2025/06/28/aitana-bonmati-spain-euro-2025/
+
 **How the ‘Italian Fairy’ Spends Her Day Teaching Children to Sing**\
 `Simona Rodano barely has time to strap on her sparkly wings before she dashes around New York City, teaching children how to sing in Italian, French and Spanish.`\
 https://nytimes.com/2025/06/28/nyregion/simona-rodano-italian-fairy.html
