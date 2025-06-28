@@ -1,3 +1,7 @@
+**E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
+`Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
+https://nytimes.com/2025/06/28/business/dealbook/etfs-are-booming-mutual-funds-want-in-on-the-action.html
+
 **Iran Holds State Funeral for Military Commanders and Nuclear Scientists**\
 `A procession of marchers honored prominent figures killed during the 12-day war with Israel.`\
 https://nytimes.com/2025/06/28/world/middleeast/iran-funerals-israel-war.html
