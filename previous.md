@@ -1,3 +1,7 @@
+**Analyzing the top 5 picks of the 2025 NHL Draft**\
+`The Athletic's experts break down what fans of the Islanders, Sharks, Blackhawks, Mammoth and Predators can expect from picks No. 1-5.`\
+https://nytimes.com/athletic/6454316/2025/06/27/nhl-draft-2025-ny-islanders-matthew-schaefer-analysis/
+
 **Naz Reid, Timberwolves agree to 5-year, $125 million contract: Sources**\
 `The deal ensures that the former Sixth Man of the Year will remain with the only team he has played for.`\
 https://nytimes.com/athletic/6457801/2025/06/27/naz-reid-minnesota-timberwolves-contract-nba-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/27/us/senate-war-powers-vote.html
 **Another Anfernee Simons trade coming? Celtics looking at ways to shed more salary**\
 `According to league sources the Celtics have explored the idea of flipping Simons’ $27.7 million expiring contract.`\
 https://nytimes.com/athletic/6457444/2025/06/27/celtics-anfernee-simons-trade/
-
-**Cut-resistant neck guards to be mandatory for new NHL players in 2026-27: Sources**\
-`The NHL follows the AHL, which required all players and on-ice officials to wear the protective equipment beginning this past season.`\
-https://nytimes.com/athletic/6457559/2025/06/27/nhl-players-neck-guards/
 
