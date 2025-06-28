@@ -1,3 +1,7 @@
+**'I belong to Saudi Arabia,' says Cristiano Ronaldo after signing new Al Nassr deal**\
+`Ronaldo has been vocal in his belief in the Saudi Pro League, saying in January 2024 that it was better than Ligue 1.`\
+https://nytimes.com/athletic/6459266/2025/06/28/cristiano-ronaldo-world-cup-2034-saudi/
+
 **Dave Parker, Hall of Famer and 7-time All-Star, dies at 74**\
 `Parker won two World Series and hit 339 home runs while playing for six teams. He was elected to the Hall of Fame in December 2024.`\
 https://nytimes.com/athletic/6022737/2025/06/28/dave-parker-obituary/
