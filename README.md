@@ -1,3 +1,7 @@
+**Don Bacon, House Republican Who Often Criticized Trump, Won’t Seek Re-election**\
+`The departure of the five-term lawmaker from Nebraska enhances Democrats’ chances of picking up a seat in the narrowly divided House.`\
+https://nytimes.com/2025/06/27/us/politics/don-bacon-retiring.html
+
 **Craig Breslow on Red Sox trade deadline mindset: 'The future has to be now'**\
 `With the trade deadline just over 30 days away, Breslow has addressed three areas of need: starting pitching, bullpen help and another bat.`\
 https://nytimes.com/athletic/6457576/2025/06/27/craig-breslow-red-sox-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440973/2025/06/27/nhl-draft-grades-2025-first-roun
 **Matthew Schaefer selected by New York Islanders with first pick in 2025 NHL Draft**\
 `Schaefer became the Islanders’ fifth No. 1 overall pick in franchise history, and projects as a future No. 1 defenseman.`\
 https://nytimes.com/athletic/6451164/2025/06/27/matthew-schaefer-islanders-nhl-draft-2025/
-
-**The Merchant in Venice: Jeff Bezos’ Italian Wedding**\
-`In a city built on secrecy and theatrical ceremonies, the wedding of Jeff Bezos and Lauren Sánchez has unfolded with impeccable choreography.`\
-https://nytimes.com/card/2025/06/27/style/jeff-bezos-lauren-sanchez-venice-photos
 
