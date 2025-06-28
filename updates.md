@@ -1,3 +1,5 @@
+
+
 **Trump Officials to End Deportation Protections for Haitian Immigrants**\
 `The move continues the administration’s campaign of revoking special protections for migrants from some of the most unstable places in the world.`\
 https://nytimes.com/2025/06/28/us/politics/trump-deportation-haiti-immigrants.html
