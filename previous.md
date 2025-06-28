@@ -2,7 +2,7 @@
 `The ruling completed a clean sweep for the handful of law firms that took the risk of fighting the Trump administration in court, rather than accepting punitive conditions.`\
 https://nytimes.com/2025/06/27/us/politics/trump-susan-godfrey-law-firm-order.html
 
-**Don Bacon, House Republican Who Often Criticized Trump, Won’t Seek Re-election**\
+**Don Bacon, House Republican Who Often Criticizes Trump, Won’t Seek Re-election**\
 `The departure of the five-term lawmaker from Nebraska enhances Democrats’ chances of picking up a seat in the narrowly divided House.`\
 https://nytimes.com/2025/06/27/us/politics/don-bacon-retiring.html
 
