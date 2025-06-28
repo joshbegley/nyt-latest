@@ -1,3 +1,11 @@
+**A Special ‘Climate’ Visa? People in Tuvalu Are Applying Fast.**\
+`Nearly half the citizens of the tiny Pacific Island nation have already applied in a lottery for Australian visas amid an existential threat from global warming and sea-level rise.`\
+https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-are-applying-fast.html
+
+**Woman Was ‘Most Likely’ Bitten by Shark at Jones Beach, Officials Say**\
+`The woman had minor cuts to her left foot and leg after being bitten on Wednesday. She was transported to a hospital for injuries that were not life-threatening, officials said.`\
+https://nytimes.com/2025/06/27/nyregion/shark-bite-jones-beach-new-york.html
+
 **Don Bacon, House Republican Who Often Criticizes Trump, Won’t Seek Re-election**\
 `The departure of the five-term lawmaker from Nebraska enhances Democrats’ chances of picking up a seat in the narrowly divided House.`\
 https://nytimes.com/2025/06/27/us/politics/don-bacon-retiring.html

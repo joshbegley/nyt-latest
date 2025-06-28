@@ -1,3 +1,11 @@
+**A Special ‘Climate’ Visa? People in Tuvalu Are Applying Fast.**\
+`Nearly half the citizens of the tiny Pacific Island nation have already applied in a lottery for Australian visas amid an existential threat from global warming and sea-level rise.`\
+https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-are-applying-fast.html
+
+**Woman Was ‘Most Likely’ Bitten by Shark at Jones Beach, Officials Say**\
+`The woman had minor cuts to her left foot and leg after being bitten on Wednesday. She was transported to a hospital for injuries that were not life-threatening, officials said.`\
+https://nytimes.com/2025/06/27/nyregion/shark-bite-jones-beach-new-york.html
+
 **Judge Strikes Down Trump Order Targeting Another Top Law Firm**\
 `The ruling completed a clean sweep for the handful of law firms that took the risk of fighting the Trump administration in court, rather than accepting punitive conditions.`\
 https://nytimes.com/2025/06/27/us/politics/trump-susan-godfrey-law-firm-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6456863/2025/06/27/blackhawks-anton-frondell-2025-n
 **NHL Draft 2025 best players available in Round 1**\
 `These are the top players still on the draft board based on Corey Pronman's final list of the 2025 class.`\
 https://nytimes.com/athletic/6456991/2025/06/27/nhl-draft-2025-best-players-available/
-
-**2025 NHL Draft tracker: Every pick starting with Matthew Schaefer at No. 1**\
-`Catch up on all selections, from No. 1 to No. 224, right here at The Athletic.`\
-https://nytimes.com/athletic/6456729/2025/06/27/nhl-draft-pick-by-pick-tracker-2025/
-
-**NHL Draft grades, analysis for every 2025 first-round pick by Corey Pronman**\
-`Scouting reports and analysis of every first-round pick at the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6440973/2025/06/27/nhl-draft-grades-2025-first-round-analysis/
 
