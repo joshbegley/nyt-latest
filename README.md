@@ -1,3 +1,7 @@
+**Kyle Tucker and Ryan Pressly return to Houston: 'Everyone’s going to be watching this series'**\
+`The Astros played a tribute video for two Cubs who contributed to a Houston title: “A lot of memories have been made out on that field."`\
+https://nytimes.com/athletic/6457904/2025/06/27/kyle-tucker-ryan-pressly-houston-astros-return-cubs/
+
 **Trump Administration Rescinds Voice of America Layoffs After Errors in Notices**\
 `The errors in the layoff notices could have derailed President Trump’s effort to dismantle the news organization. The administration said it would attempt the layoffs again.`\
 https://nytimes.com/2025/06/27/us/politics/trump-voa-layoffs-errors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/us/politics/27nat-birthright-citizenship-impacts.
 **A Special ‘Climate’ Visa? People in Tuvalu Are Applying Fast.**\
 `Nearly half the citizens of the tiny Pacific Island nation have already applied in a lottery for Australian visas amid an existential threat from global warming and sea-level rise.`\
 https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-are-applying-fast.html
-
-**Woman Was ‘Most Likely’ Bitten by Shark at Jones Beach, Officials Say**\
-`The woman had minor cuts to her left foot and leg after being bitten on Wednesday. She was transported to a hospital for injuries that were not life-threatening, officials said.`\
-https://nytimes.com/2025/06/27/nyregion/shark-bite-jones-beach-new-york.html
 
