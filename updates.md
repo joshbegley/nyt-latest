@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, June 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/28/todays-new-york-times
+
+**Flyers add scoring, size in first round of draft with Porter Martone, Jack Nesbitt picks**\
+`GM Daniel Briere was aggressive in the first round of the 2025 NHL Draft Friday night, moving up to No. 12 and grabbing center Jack Nesbitt.`\
+https://nytimes.com/athletic/6458193/2025/06/28/flyers-nhl-draft-porter-martone-jack-nesbitt-analysis/
+
 **Islanders 'replenished' prospect pool with first-round draft haul**\
 `In addition to No. 1 pick Matthew Schaefer, New York made back-to-back selections Friday after trading defenseman Noah Dobson.`\
 https://nytimes.com/athletic/6457939/2025/06/28/islanders-matthew-schaefer-nhl-draft-analysis/
