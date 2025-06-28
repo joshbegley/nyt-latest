@@ -1,3 +1,7 @@
+**Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
+`Melissa Hortman was eulogized by Gov. Tim Walz as a compassionate leader in a service also attended by former President Biden and former Vice President Harris.`\
+https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
+
 **Yankees' George Costanza bobblehead pre-selling for more than tickets to giveaway game**\
 `Seinfeld Night returns to Yankee Stadium with a unique giveaway that's already in high demand`\
 https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/

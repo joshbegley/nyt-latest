@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/
 
 **Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
-`Melissa Hortman was killed alongside her husband, Mark, in an attack two weeks ago. She was eulogized by Gov. Tim Walz as a consequential and compassionate leader.`\
+`Melissa Hortman was eulogized by Gov. Tim Walz as a compassionate leader in a service also attended by former President Biden and former Vice President Harris.`\
 https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
 
 **Trade grades: How much can Lonzo Ball help Cavaliers bolster depth, contend in East?**\
