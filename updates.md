@@ -1,3 +1,11 @@
+**Iran Holds State Funeral for Military Commanders and Nuclear Scientists**\
+`A procession of marchers honored prominent figures killed during the 12-day war with Israel.`\
+https://nytimes.com/2025/06/28/world/middleeast/iran-funerals-israel-war.html
+
+**Sunderland set to sign Strasbourg's Diarra in club-record transfer**\
+`The 21-year-old has spent the entirety of his professional career at the Ligue 1 club, scoring 10 goals across 99 first-team appearances.`\
+https://nytimes.com/athletic/6458457/2025/06/28/sunderland-transfer-record-habib-diarra/
+
 **Yankees first-half awards: Aaron Judge for MVP, but who's LVP?**\
 `Judge is leading MLB in batting average (.358), on-base percentage (.458), slugging percentage (.712), OPS (1.170) and fWAR (6.1).`\
 https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-awards/
