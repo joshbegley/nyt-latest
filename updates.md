@@ -1,3 +1,11 @@
+**Blues draft winger Justin Carbonneau in first round while search for second-line center continues**\
+`GM Doug Armstrong hinted at a trade after picking the winger in the draft, saying: "it will be an apple for an apple."`\
+https://nytimes.com/athletic/6457797/2025/06/28/blues-second-line-center-draft-justin-carbonneau/
+
+**Senators draft another prospect at a 'premium' position with Logan Hensler pick**\
+`"Right-handed defencemen are a premium" in the NHL. With Hensler and 2024 pick Carter Yakemchuk, Ottawa now has two in its prospect pool.`\
+https://nytimes.com/athletic/6457934/2025/06/28/senators-nhl-draft-logan-hensler-analysis/
+
 **Senators add another prospect at a 'premium' position with Logan Hensler draft pick**\
 `"Right-handed defencemen are a premium" in the NHL. With Hensler and 2024 pick Carter Yakemchuk, Ottawa now has two in its prospect pool.`\
 https://nytimes.com/athletic/6457934/2025/06/28/senators-nhl-draft-logan-hensler-analysis/
