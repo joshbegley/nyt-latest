@@ -1,3 +1,11 @@
+**NHL trade grades: John Gibson, at last, is on the move as Red Wings shore up goaltending**\
+`The Red Wings added some stability to their crease while the Ducks finally moved on from their former franchise goalie.`\
+https://nytimes.com/athletic/6458894/2025/06/28/nhl-trade-grades-john-gibson-red-wings/
+
+**Senate Republicans Ready Vote on Tax Bill, Still Awaiting Its Final Cost**\
+`Economists have estimated that previous versions of the bill could add trillions to the national debt, but many haven’t had the chance to review the latest Senate version.`\
+https://nytimes.com/2025/06/28/us/politics/senate-republicans-tax-bill-cost.html
+
 **Senators acquire defenseman Jordan Spence from Kings for draft picks**\
 `The 24-year-old Australian-born defenseman scored four goals and 28 points in 79 games with the Kings last season.`\
 https://nytimes.com/athletic/6458846/2025/06/28/senators-kings-jordan-spence-trade-nhl/
