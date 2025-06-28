@@ -1,3 +1,7 @@
+**Blackhawks add 3 more first-round draft picks to continue playing numbers game**\
+`In GM Kyle Davidson's eyes, the Blackhawks' first-round haul is a mix of quality and quantity.`\
+https://nytimes.com/athletic/6458237/2025/06/28/blackhawks-nhl-draft-frondell-nestrasil-west-first-round/
+
 **The New York Times in Print for Saturday, June 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/28/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6457939/2025/06/28/islanders-matthew-schaefer-nhl-d
 **Kenny Bednarek knows what he wants, if he can just relax: 'Make money, get gold medals and just run fast'**\
 `The American is on a mission to become the world's fastest sprinter`\
 https://nytimes.com/athletic/6450426/2025/06/28/kenny-bednarek-interview/
-
-**Penguins' first round was unpredictable, unorthodox and completely Kyle Dubas**\
-`With the Penguins going outside the box, we're getting more and more peeks into Dubas' world.`\
-https://nytimes.com/athletic/6457562/2025/06/28/penguins-nhl-draft-benjamin-kindel-analysis/
 
