@@ -1,3 +1,7 @@
+**The Briefing: England beat Germany in thriller to retain Under-21 Euros title**\
+`Analysis as England survive a scare to beat Germany to win the U21 Euros for the second consecutive time`\
+https://nytimes.com/athletic/6459178/2025/06/28/england-germany-u21-euros-final-2025/
+
 **Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
 `The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
 https://nytimes.com/athletic/6458847/2025/06/28/blues-joel-hofer-free-agency-depth-chart/

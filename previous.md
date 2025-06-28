@@ -1,3 +1,7 @@
+**The Briefing: England beat Germany in thriller to retain Under-21 Euros title**\
+`Analysis as England survive a scare to beat Germany to win the U21 Euros for the second consecutive time`\
+https://nytimes.com/athletic/6459178/2025/06/28/england-germany-u21-euros-final-2025/
+
 **Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
 `The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
 https://nytimes.com/athletic/6458847/2025/06/28/blues-joel-hofer-free-agency-depth-chart/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.htm
 **Trade grades: How much can Lonzo Ball help Cavaliers bolster depth, contend in East?**\
 `Acquiring Lonzo Ball makes for a pretty intriguing deal for the 64-win Cavaliers. Can Ball reinvent himself to aid a hopeful contender?`\
 https://nytimes.com/athletic/6458822/2025/06/28/lonzo-ball-cavaliers-bulls-trade-east-nba/
-
-**Maple Leafs, Golden Knights discussing trade for Mitch Marner's rights: Sources**\
-`Marner is one of the Leafs organization’s most accomplished players, sitting fifth on the all-time scoring list with 741 points.`\
-https://nytimes.com/athletic/6458557/2025/06/28/mitch-marner-trade-talks-maple-leafs-golden-knights/
 
