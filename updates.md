@@ -1,3 +1,43 @@
+**How to watch X Games Salt Lake City Day 2: Gold up for grabs Saturday**\
+`Day 2 of X Games Salt Lake City 2025 features some of the most talented riders and skaters from around the world as they compete for gold. `\
+https://nytimes.com/athletic/6453669/2025/06/28/x-games-salt-lake-city-day-2-how-to-watch/
+
+**With Supreme Court Ruling, Another Check on Trump’s Power Fades**\
+`The court tied the hands of judges at a time when Congress has been cowed and internal executive branch constraints have been steamrolled.`\
+https://nytimes.com/2025/06/28/us/supreme-court-trump-executive-branch-power.html
+
+**Courts Will Have to Grapple With New Limits on Their Power**\
+`The Supreme Court has set a new, higher bar for judges seeking to block Trump administration policies nationwide. But some legal routes remain open.`\
+https://nytimes.com/2025/06/28/us/politics/injunctions-what-comes-next.html
+
+**Audience Report: Celebrating 50 Years of ‘Jaws’ on Martha’s Vineyard**\
+`The anniversary festivities included V.I.P. meet-and-greets, book signings, film screenings and lectures about sharks. But for many, the real draw was the island itself.`\
+https://nytimes.com/2025/06/28/movies/jaws-50th-anniversary-marthas-vineyard.html
+
+**LACMA Opens the Doors to Its New Building**\
+`The museum invited the public for a preview of its new David Geffen Galleries spanning Wilshire Boulevard — before the art moves in next year.`\
+https://nytimes.com/2025/06/28/arts/design/lacma-david-geffen-galleries-building-architecture.html
+
+**How to Do a Perfect Lunge**\
+`Mastering the lower-body move can improve your balance and stability.`\
+https://nytimes.com/interactive/2025/06/28/well/move/lunge-exercise-form.html
+
+**Chanel Looks to Build Cultural Capital With Arts Magazine**\
+`The fashion house hopes the new title, Arts & Culture, can extend Coco Chanel’s legacy of surrounding herself with “audacious creatives.”`\
+https://nytimes.com/2025/06/28/style/chanel-arts-and-culture-magazine.html
+
+**What Happened in the Closing Arguments of the Sean Combs Trial**\
+`The jurors will begin deliberating on Monday. The music mogul has pleaded not guilty to sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2025/06/28/arts/music/sean-combs-diddy-trial-closing-arguments.html
+
+**How to Potty-Train a Co-Worker**\
+`When a colleague isn’t housebroken, there are options. Plus, can you tell someone they’re getting too old to work?`\
+https://nytimes.com/2025/06/28/business/co-worker-bathroom-issues-advice.html
+
+**‘The Bear’ Season 4: Here Are the Cameos**\
+`“The Bear” returned for its fourth season this week with high-stakes restaurant drama and high-wattage cameos.`\
+https://nytimes.com/2025/06/28/arts/television/the-bear-season-4-cameos.html
+
 **Spain's Bonmati diagnosed with viral meningitis ahead of Euro 2025**\
 `Bonmati, who has won each of the two most recent women's Ballon d'Or awards, posted a photo from her hospital bed on Friday night.`\
 https://nytimes.com/athletic/6458422/2025/06/28/aitana-bonmati-spain-euro-2025/
