@@ -1,3 +1,7 @@
+**How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
+`The big talking points from the first of the FIFA Cub World Cup round of 16 matches`\
+https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/
+
 **Kayla Thornton, with career-best night, shows she's right at home with Valkyries**\
 `Her 29-point outing Friday in a win over Chicago was a career high and the latest sign that she has filled her cup with Golden State.`\
 https://nytimes.com/athletic/6458929/2025/06/28/kayla-thornton-golden-state-valkyries-all-star/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459084/2025/06/28/blues-joel-hofer-contract-extens
 **Stream These 7 Movies and TV Shows Before They Leave in July**\
 `A ton of great titles are leaving next month for U.S. subscribers, many of them very soon. Catch them while you can.`\
 https://nytimes.com/2025/06/28/arts/television/netflix-leaving-july.html
-
-**Flames sign defenseman Kevin Bahl to 6-year, $32.1 million extension**\
-`Calgary acquired Bahl last summer as part of the Jacob Markstrom trade that also netted them a 2025 first-round pick.`\
-https://nytimes.com/athletic/6458854/2025/06/28/flames-kevin-bahl-free-agency-contract-nhl/
 
