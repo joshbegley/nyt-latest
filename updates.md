@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-peng
 `\
 https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
 
+**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
+`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
+`\
+https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
+
 **Chelsea reach agreement in principle to sign Borussia Dortmund winger Gittens**\
 `Gittens recorded 12 goals and five assists in 48 matches for Dortmund during the 2024-25 campaign.`\
 https://nytimes.com/athletic/6410528/2025/06/28/chelsea-transfers-jamie-gittens/
