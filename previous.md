@@ -1,3 +1,11 @@
+**Naz Reid, Timberwolves agree to 5-year, $125 million contract: Sources**\
+`The deal ensures that the former Sixth Man of the Year will remain with the only team he has played for.`\
+https://nytimes.com/athletic/6457801/2025/06/27/naz-reid-minnesota-timberwolves-contract-nba-2025/
+
+**What the Supreme Court’s Ruling Will Mean for Birthright Citizenship**\
+`The ruling left unsettled the question of whether children born to immigrants without full legal status in the United States are entitled to automatic citizenship. So what happens now?`\
+https://nytimes.com/2025/06/27/us/politics/27nat-birthright-citizenship-impacts.html
+
 **A Special ‘Climate’ Visa? People in Tuvalu Are Applying Fast.**\
 `Nearly half the citizens of the tiny Pacific Island nation have already applied in a lottery for Australian visas amid an existential threat from global warming and sea-level rise.`\
 https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-are-applying-fast.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6457444/2025/06/27/celtics-anfernee-simons-trade/
 **Cut-resistant neck guards to be mandatory for new NHL players in 2026-27: Sources**\
 `The NHL follows the AHL, which required all players and on-ice officials to wear the protective equipment beginning this past season.`\
 https://nytimes.com/athletic/6457559/2025/06/27/nhl-players-neck-guards/
-
-**Why Blackhawks drafted Anton Frondell with No. 3 pick**\
-`Frondell has the size, offensive skill, defensive awareness and ceiling the Blackhawks believe will make him a perfect fit in their top six.`\
-https://nytimes.com/athletic/6456863/2025/06/27/blackhawks-anton-frondell-2025-nhl-draft-pick/
-
-**NHL Draft 2025 best players available in Round 1**\
-`These are the top players still on the draft board based on Corey Pronman's final list of the 2025 class.`\
-https://nytimes.com/athletic/6456991/2025/06/27/nhl-draft-2025-best-players-available/
 

@@ -1,3 +1,11 @@
+**Naz Reid, Timberwolves agree to 5-year, $125 million contract: Sources**\
+`The deal ensures that the former Sixth Man of the Year will remain with the only team he has played for.`\
+https://nytimes.com/athletic/6457801/2025/06/27/naz-reid-minnesota-timberwolves-contract-nba-2025/
+
+**What the Supreme Court’s Ruling Will Mean for Birthright Citizenship**\
+`The ruling left unsettled the question of whether children born to immigrants without full legal status in the United States are entitled to automatic citizenship. So what happens now?`\
+https://nytimes.com/2025/06/27/us/politics/27nat-birthright-citizenship-impacts.html
+
 **A Special ‘Climate’ Visa? People in Tuvalu Are Applying Fast.**\
 `Nearly half the citizens of the tiny Pacific Island nation have already applied in a lottery for Australian visas amid an existential threat from global warming and sea-level rise.`\
 https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-are-applying-fast.html
