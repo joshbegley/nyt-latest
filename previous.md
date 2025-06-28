@@ -1,3 +1,7 @@
+**Dave Parker, Hall of Famer and 7-time All-Star, dies at 74**\
+`Parker won two World Series and hit 339 home runs while playing for six teams. He was elected to the Hall of Fame in December 2024.`\
+https://nytimes.com/athletic/6022737/2025/06/28/dave-parker-obituary/
+
 **Ronaldo says 2034 World Cup in Saudi Arabia will be 'the most beautiful one ever'**\
 `Ronaldo has been vocal in his belief in the Saudi Pro League, saying in January 2024 that it was better than Ligue 1.`\
 https://nytimes.com/athletic/6459266/2025/06/28/cristiano-ronaldo-world-cup-2034-saudi/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6457895/2025/06/28/angel-reese-mebounds-merchandise
 https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/
 
 **Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
-`Melissa Hortman was eulogized by Gov. Tim Walz as a compassionate leader in a service also attended by former President Biden and former Vice President Harris.`\
+`Melissa Hortman was eulogized by Gov. Tim Walz as a compassionate leader in a service that former President Biden and former Vice President Harris also attended.`\
 https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
 
 **Trade grades: How much can Lonzo Ball help Cavaliers bolster depth, contend in East?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459215/2025/06/28/wild-trade-declan-chisholm-capit
 **Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
 `Analysis of what the England Under-21 international will bring to Stamford Bridge`\
 https://nytimes.com/athletic/6453141/2025/06/28/jamie-gittens-chelsea-what-he-brings/
-
-**Gerry Philbin, Star Defensive End for the Jets, Dies at 83**\
-`A sack specialist, he led the American Football League in taking down quarterbacks in the 1968 regular season, which was capped by the Jets’ upset win in Super Bowl III.`\
-https://nytimes.com/2025/06/28/sports/football/gerry-philbin-dead.html
 
