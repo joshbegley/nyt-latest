@@ -1,3 +1,7 @@
+**What are the Maple Leafs getting in their 2025 NHL Draft picks?**\
+`The Leafs kept all six of their picks on Day 2. Here's what the picks' coaches and GMs had to say.`\
+https://nytimes.com/athletic/6458815/2025/06/28/maple-leafs-2025-draft-analysis-leach/
+
 **Musk Wades Back Into Politics, Slamming Trump’s Domestic Policy Bill**\
 `Weeks after ending his war of words with President Trump, Elon Musk called the president’s bill “utterly insane and destructive.”`\
 https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
