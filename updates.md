@@ -1,3 +1,7 @@
+**Newsom Signs Budget That Relies on Health Care Cuts for Undocumented Immigrants**\
+`Gov. Gavin Newsom of California signed a budget bill on Friday that depends in part on rolling back those benefits to help close a $12 billion deficit.`\
+https://nytimes.com/2025/06/27/us/newsom-signs-budget-that-relies-on-health-care-cuts-for-undocumented-immigrants.html
+
 **The NHL tried something new with how the 2025 draft worked. It got awkward**\
 `Here are Sean McIndoe's thoughts on the good, the bad, and everything in between from Friday night’s opening round of the NHL Draft.`\
 https://nytimes.com/athletic/6457896/2025/06/27/nhl-draft-2025-broadcast/
