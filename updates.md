@@ -1,3 +1,7 @@
+**Kayla Thornton, with career-best night, shows she's right at home with Valkyries**\
+`Her 29-point outing Friday in a win over Chicago was a career high and the latest sign that she has filled her cup with Golden State.`\
+https://nytimes.com/athletic/6458929/2025/06/28/kayla-thornton-golden-state-valkyries-all-star/
+
 **Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
 `Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
 `\
