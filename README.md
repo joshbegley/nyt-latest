@@ -1,3 +1,7 @@
+**Samin Nosrat’s Go-To Salad Dressing**\
+`Or: How to love your salads.`\
+https://nytimes.com/2025/06/28/dining/samin-nosrat-salad-dressing-recipes.html
+
 **How the Club World Cup has seen a unexpected flurry of red cards**\
 `10 red cards were issued during the Club World Cup's group stage, for a variety of potential reasons.`\
 https://nytimes.com/athletic/6456586/2025/06/28/club-world-cup-red-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6457460/2025/06/28/justin-tucker-nfl-suspension/
 **E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
 `Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
 https://nytimes.com/2025/06/28/business/dealbook/etf-mutual-funds.html
-
-**Iran Holds State Funeral for Military Commanders and Nuclear Scientists**\
-`A procession of marchers honored prominent figures killed during the 12-day war with Israel.`\
-https://nytimes.com/2025/06/28/world/middleeast/iran-funerals-israel-war.html
 
