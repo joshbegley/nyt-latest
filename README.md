@@ -1,3 +1,11 @@
+**Iran Holds State Funeral for Military Commanders and Nuclear Scientists**\
+`A procession of marchers honored prominent figures killed during the 12-day war with Israel.`\
+https://nytimes.com/2025/06/28/world/middleeast/iran-funerals-israel-war.html
+
+**Sunderland set to sign Strasbourg's Diarra in club-record transfer**\
+`The 21-year-old has spent the entirety of his professional career at the Ligue 1 club, scoring 10 goals across 99 first-team appearances.`\
+https://nytimes.com/athletic/6458457/2025/06/28/sunderland-transfer-record-habib-diarra/
+
 **Yankees first-half awards: Aaron Judge for MVP, but who's LVP?**\
 `Judge is leading MLB in batting average (.358), on-base percentage (.458), slugging percentage (.712), OPS (1.170) and fWAR (6.1).`\
 https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-awards/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/opinion/birthright-citizenship-supreme-court-inju
 **Mamdani, Trump and the End of the Old Politics**\
 `The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
 https://nytimes.com/2025/06/28/opinion/ezra-klein-show-chris-hayes.html
-
-**Obfuscating on Obliterating**\
-`Trump schools the Ayatollah on the fine art of truth telling.`\
-https://nytimes.com/2025/06/28/opinion/trump-iran-ayatollah-khamenei.html
-
-**What’s More Powerful Than Bombs**\
-`Someday the regime will crack and people power will prevail. I suspect that will be more likely when there’s peace.`\
-https://nytimes.com/2025/06/28/opinion/iran-war-america-titanic.html
 
