@@ -1,3 +1,7 @@
+**Bruins' tank pays off as James Hagens pick gives them an NHL Draft first-round steal**\
+`The Boston College center, who was once projected to go No. 1 in this draft, could be the future franchise cornerstone the Bruins need.`\
+https://nytimes.com/athletic/6458198/2025/06/28/bruins-james-hagens-nhl-draft-steal/
+
 **Busy draft day for Blue Jackets as trade talks fizzle before Smith, Andreyanov picks**\
 `GM Don Waddell walked the line between boosting the current roster and planning for the future in a series of Friday negotiations.`\
 https://nytimes.com/athletic/6458006/2025/06/28/blue-jackets-nhl-draft-trade-smith-andreyanov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6428795/2025/06/28/france-team-guide-euro-2025/
 **Who won Round 1 of the 2025 NHL Draft? Which team performed the worst? Scott Wheeler weighs in**\
 `A pick-by-pick breakdown of the 2025 NHL Draft's first round, with each team in one of four tiers.`\
 https://nytimes.com/athletic/6449769/2025/06/28/nhl-draft-2025-winners-losers-first-round/
-
-**Euro 2025: Netherlands team guide - a stellar squad with injury issues and a daunting task**\
-`From players to watch to pedigree and much more, we set out what to expect from the Dutch at the European Championship`\
-https://nytimes.com/athletic/6411791/2025/06/28/netherlands-team-guide-euro-2025/
 
