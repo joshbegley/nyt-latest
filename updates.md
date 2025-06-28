@@ -1,3 +1,15 @@
+**We Know Exactly Where the Supreme Court’s Change of Heart Has Come From**\
+`The justices’ strange about-face has a source.`\
+https://nytimes.com/2025/06/28/opinion/supreme-court-ketanji-jackson.html
+
+**Bulls agree to trade Lonzo Ball to Cavaliers for Isaac Okoro: Source**\
+`In 35 games, Ball averaged 7.6 points, 3.4 rebounds and 3.3 assists per game.`\
+https://nytimes.com/athletic/6458742/2025/06/28/lonzo-ball-trade-bulls-cavs-isaac-okoro/
+
+**Maybe It’s Not Just Aging. Maybe It’s Anemia.**\
+`Significant numbers of older people have the condition. Many find relief with an effective treatment that is being more widely prescribed.`\
+https://nytimes.com/2025/06/28/health/anemia-intravenous-iron.html
+
 **Senate Republicans Revise Trump’s Policy Bill, Scrounging for Votes to Pass It**\
 `A new version of the measure released in the middle of the night would set aside money to help states hit by its cuts to Medicaid, hasten the end of clean energy tax credits and sweeten the state and local tax deduction.`\
 https://nytimes.com/2025/06/28/us/politics/senate-republicans-reconciliation.html

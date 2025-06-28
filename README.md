@@ -1,3 +1,11 @@
+**Klopp says Club World Cup 'worst idea ever implemented in football'**\
+`Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
+https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
+
+**F1 Austrian GP qualifying briefing: Norris storms to pole ahead of Leclerc and Piastri**\
+`McLaren's Lando Norris blew away his Formula One opposition to claim pole position for the 2025 Austrian Grand Prix`\
+https://nytimes.com/athletic/6458593/2025/06/28/f1-austrian-gp-qualifying-briefing-norris-storms-to-pole-ahead-of-leclerc-and-piastri/
+
 **We Know Exactly Where the Supreme Court’s Change of Heart Has Come From**\
 `The justices’ strange about-face has a source.`\
 https://nytimes.com/2025/06/28/opinion/supreme-court-ketanji-jackson.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
 **Chelsea and Newcastle competing to sign Brighton's Joao Pedro**\
 `Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
 https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
-
-**Trump Administration Live Updates: Senate Republicans Cut Deals to Win Votes on Domestic Policy Bill**\
-``\
-https://nytimes.com/live/2025/06/28/us/trump-news
-
-**French Police Officers Who Beat a Black Man on Camera to Stand Trial**\
-`The brutal beating in 2020 of Michel Zecler, a well-known music producer, sent shock waves through France.`\
-https://nytimes.com/2025/06/28/world/europe/france-michel-zecler-police-beating-video.html
 
