@@ -1,3 +1,7 @@
+**The Savannah Bananas are a baseball fever dream, and they're on national TV**\
+`There's always money in the banana stand, and there's always a good time in Banana Ball.`\
+https://nytimes.com/athletic/6452210/2025/06/28/savannah-bananas-rules-how-to-watch/
+
 **How to watch X Games Salt Lake City Day 2: Gold up for grabs Saturday**\
 `Day 2 of X Games Salt Lake City 2025 features some of the most talented riders and skaters from around the world as they compete for gold. `\
 https://nytimes.com/athletic/6453669/2025/06/28/x-games-salt-lake-city-day-2-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/arts/music/sean-combs-diddy-trial-closing-argumen
 **How to Potty-Train a Co-Worker**\
 `When a colleague isn’t housebroken, there are options. Plus, can you tell someone they’re getting too old to work?`\
 https://nytimes.com/2025/06/28/business/co-worker-bathroom-issues-advice.html
-
-**‘The Bear’ Season 4: Here Are the Cameos**\
-`“The Bear” returned for its fourth season this week with high-stakes restaurant drama and high-wattage cameos.`\
-https://nytimes.com/2025/06/28/arts/television/the-bear-season-4-cameos.html
 
