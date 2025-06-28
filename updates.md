@@ -1,3 +1,11 @@
+**Dave Parker, Power Hitter for the Pittsburgh Pirates, Dies at 74**\
+`Parker, a towering outfielder who helped propel the Pirates to the World Series in 1979, was elected to the Baseball Hall of Fame last year.`\
+https://nytimes.com/2025/06/28/sports/dave-parker-dead.html
+
+**Next season might be the hardest one of all for Sidney Crosby**\
+`As one name after another flooded the Penguins' prospect pool at the 2025 NHL Draft, it was hard not to think back to the captain.`\
+https://nytimes.com/athletic/6459397/2025/06/28/penguins-sidney-crosby-2025-nhl-draft/
+
 **The Advantages of Attacking the Net in Tennis**\
 `Analysts said it was a strategy that few employ, but that it could improve players’ games if they mastered the shot.`\
 https://nytimes.com/2025/06/28/sports/tennis/attacking-net-strategy.html

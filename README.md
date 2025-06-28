@@ -1,3 +1,23 @@
+**USMNT 'very focused, very involved' heading into quarterfinal after week-long break**\
+`Despite an easygoing warmup, it's back to business for the USMNT ahead of Sunday's quarterfinal against Costa Rica.`\
+https://nytimes.com/athletic/6459543/2025/06/28/usmnt-soccer-gold-cup-pochettino/
+
+**Messi and Inter Miami ready to 'fight' against 'possibly the best team in the world' PSG, says Mascherano**\
+`"We are quite aware that we are the weaker of the two teams but in no way does this mean we should be declared dead before we have started"`\
+https://nytimes.com/athletic/6459710/2025/06/28/inter-miami-psg-mascherano/
+
+**Thoughts on the Rangers' draft: Evaluating the K'Andre Miller situation, class of 2025**\
+`Even if the draft passed without resolution, the Rangers either have to trade Miller or find another way to clear cap space.`\
+https://nytimes.com/athletic/6459531/2025/06/28/rangers-kandre-miller-nhl-draft-analysis-2025/
+
+**Best undrafted players at the 2025 NHL Draft: Owen Conrad, Tomas Pobezal and more**\
+`These 12 players are worth teams considering for development camp invites/contracts or keeping a close eye on next season.`\
+https://nytimes.com/athletic/6449786/2025/06/28/nhl-draft-2025-best-undrafted-players/
+
+**In 1975, Arthur Ashe Made His Point**\
+`He won Wimbledon over the favored Jimmy Connors, who was not only suing the ATP, but also Ashe himself.`\
+https://nytimes.com/2025/06/28/sports/tennis/wimbledon-arthur-ashe.html
+
 **Dave Parker, Power Hitter for the Pittsburgh Pirates, Dies at 74**\
 `Parker, a towering outfielder who helped propel the Pirates to the World Series in 1979, was elected to the Baseball Hall of Fame last year.`\
 https://nytimes.com/2025/06/28/sports/dave-parker-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6459489/2025/06/28/wild-nhl-draft-jonas-brodin/
 **NHL Draft 2025 grades for every team: Best picks, fits and analysis**\
 `Corey Pronman grades how every team performed at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6458881/2025/06/28/nhl-draft-2025-team-grades/
-
-**Expect Club World Cup storm delays to repeat at 2026 World Cup, says weather chief**\
-`Chelsea's game against Benfica is the latest to be suspended during the Club World Cup and the trend may continue — this summer and next`\
-https://nytimes.com/athletic/6441522/2025/06/28/club-world-cup-weather-delays-thunder/
-
-**Jim Harbaugh added to computer hacking lawsuit against ex-Michigan OC**\
-`The lawsuit claims that Michigan officials allowed Weiss to coach in a playoff game despite knowing about allegations against him.`\
-https://nytimes.com/athletic/6459343/2025/06/28/jim-harbaugh-michigan-matt-weiss-lawsuit/
-
-**NHL Draft 2025 winners and losers: Islanders impress while Maple Leafs falls short**\
-`Scott Wheeler reviews how all 32 teams did at the 2025 NHL Draft, with thoughts on almost every pick.`\
-https://nytimes.com/athletic/6449780/2025/06/28/nhl-draft-2025-winners-losers-islanders-leafs/
-
-**All-In-Clue-sive**\
-`Mike Hobin’s puzzle has a theme with no clues! Fortunately, tipping is allowed.`\
-https://nytimes.com/2025/06/28/crosswords/daily-puzzle-2025-06-29.html
-
-**Canada focused as USMNT opportunity looms: 'We have to earn the right'**\
-`Canada will hope a win over Guatemala can cement their standing as the dominant power, regardless of who awaits them in the semifinal.`\
-https://nytimes.com/athletic/6459449/2025/06/28/canada-usmnt-gold-cup-jesse-marsch/
 

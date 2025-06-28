@@ -1,3 +1,11 @@
+**Dave Parker, Power Hitter for the Pittsburgh Pirates, Dies at 74**\
+`Parker, a towering outfielder who helped propel the Pirates to the World Series in 1979, was elected to the Baseball Hall of Fame last year.`\
+https://nytimes.com/2025/06/28/sports/dave-parker-dead.html
+
+**Next season might be the hardest one of all for Sidney Crosby**\
+`As one name after another flooded the Penguins' prospect pool at the 2025 NHL Draft, it was hard not to think back to the captain.`\
+https://nytimes.com/athletic/6459397/2025/06/28/penguins-sidney-crosby-2025-nhl-draft/
+
 **The Advantages of Attacking the Net in Tennis**\
 `Analysts said it was a strategy that few employ, but that it could improve players’ games if they mastered the shot.`\
 https://nytimes.com/2025/06/28/sports/tennis/attacking-net-strategy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/crosswords/daily-puzzle-2025-06-29.html
 **Canada focused as USMNT opportunity looms: 'We have to earn the right'**\
 `Canada will hope a win over Guatemala can cement their standing as the dominant power, regardless of who awaits them in the semifinal.`\
 https://nytimes.com/athletic/6459449/2025/06/28/canada-usmnt-gold-cup-jesse-marsch/
-
-**Mourners Honor Minnesota Lawmaker and Husband at Funeral**\
-`Gov. Tim Walz of Minnesota delivered a eulogy praising Melissa Hortman as a consequential and compassionate political leader, and her husband, Mark, as her proudest supporter.`\
-https://nytimes.com/video/us/politics/100000010256890/minnesota-lawmaker-husband-funeral.html
-
-**Shohei Ohtani throws fastest pitch of his MLB career**\
-`Ohtani continued to reach new heights in his third pitching appearance for the Los Angeles Dodgers.`\
-https://nytimes.com/athletic/6459424/2025/06/28/shohei-ohtani-fastest-pitch-mlb-career-dodgers/
 
