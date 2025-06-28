@@ -1,3 +1,15 @@
+**Mourners Honor Minnesota Lawmaker and Husband at Funeral**\
+`Gov. Tim Walz of Minnesota delivered a eulogy praising Melissa Hortman as a consequential and compassionate political leader, and her husband, Mark, as her proudest supporter.`\
+https://nytimes.com/video/us/politics/100000010256890/minnesota-lawmaker-husband-funeral.html
+
+**Shohei Ohtani throws fastest pitch of his MLB career**\
+`Ohtani continued to reach new heights in his third pitching appearance for the Los Angeles Dodgers.`\
+https://nytimes.com/athletic/6459424/2025/06/28/shohei-ohtani-fastest-pitch-mlb-career-dodgers/
+
+**Kneecap Brings Pro-Palestinian Politics Back Onstage at Glastonbury**\
+`The band landed in trouble over anti-Israel statements, and a member faces a terrorism charge. But at Britain’s biggest music festival, tens of thousands cheered it.`\
+https://nytimes.com/2025/06/28/arts/music/kneecap-glastonbury.html
+
 **The Briefing: England beat Germany in thriller to retain Under-21 Euros title**\
 `Analysis as England survive a scare to beat Germany to win the U21 Euros for the second consecutive time`\
 https://nytimes.com/athletic/6459178/2025/06/28/england-germany-u21-euros-final-2025/

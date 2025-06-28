@@ -1,3 +1,15 @@
+**Mourners Honor Minnesota Lawmaker and Husband at Funeral**\
+`Gov. Tim Walz of Minnesota delivered a eulogy praising Melissa Hortman as a consequential and compassionate political leader, and her husband, Mark, as her proudest supporter.`\
+https://nytimes.com/video/us/politics/100000010256890/minnesota-lawmaker-husband-funeral.html
+
+**Shohei Ohtani throws fastest pitch of his MLB career**\
+`Ohtani continued to reach new heights in his third pitching appearance for the Los Angeles Dodgers.`\
+https://nytimes.com/athletic/6459424/2025/06/28/shohei-ohtani-fastest-pitch-mlb-career-dodgers/
+
+**Kneecap Brings Pro-Palestinian Politics Back Onstage at Glastonbury**\
+`The band landed in trouble over anti-Israel statements, and a member faces a terrorism charge. But at Britain’s biggest music festival, tens of thousands cheered it.`\
+https://nytimes.com/2025/06/28/arts/music/kneecap-glastonbury.html
+
 **The Briefing: England beat Germany in thriller to retain Under-21 Euros title**\
 `Analysis as England survive a scare to beat Germany to win the U21 Euros for the second consecutive time`\
 https://nytimes.com/athletic/6459178/2025/06/28/england-germany-u21-euros-final-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6459266/2025/06/28/cristiano-ronaldo-world-cup-2034
 **Angel Reese releases 'mebounds' merch, applies for 'Reesebounds' trademark as well**\
 `In addition the 'mebounds' collection, Reese also wants to produce 'Reesebounds' merchandise`\
 https://nytimes.com/athletic/6457895/2025/06/28/angel-reese-mebounds-merchandise-trademark/
-
-**Yankees' George Costanza bobblehead pre-selling for more than tickets to giveaway game**\
-`Seinfeld Night returns to Yankee Stadium with a unique giveaway that's already in high demand`\
-https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/
-
-**Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
-`Melissa Hortman was eulogized by Gov. Tim Walz as a compassionate leader in a service that former President Biden and former Vice President Harris also attended.`\
-https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
-
-**Trade grades: How much can Lonzo Ball help Cavaliers bolster depth, contend in East?**\
-`Acquiring Lonzo Ball makes for a pretty intriguing deal for the 64-win Cavaliers. Can Ball reinvent himself to aid a hopeful contender?`\
-https://nytimes.com/athletic/6458822/2025/06/28/lonzo-ball-cavaliers-bulls-trade-east-nba/
 
