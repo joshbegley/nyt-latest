@@ -1,3 +1,7 @@
+**Maple Leafs, Golden Knights discussing trade for Mitch Marner's rights: Sources**\
+`Marner is one of the Leafs organization’s most accomplished players, sitting fifth on the all-time scoring list with 741 points.`\
+https://nytimes.com/athletic/6458557/2025/06/28/mitch-marner-trade-talks-maple-leafs-golden-knights/
+
 **Pat Williams, Last Montana Democrat to Serve in the House, Dies at 87**\
 `His liberal politics, inspired by the safety nets of the New Deal, were shaped in working-class mining country.`\
 https://nytimes.com/2025/06/28/us/politics/pat-williams-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459014/2025/06/28/yankees-clarke-schmidt-scoreless
 **Republicans Lavish Alaska With Benefits in Policy Bill, Grasping for a Key Vote**\
 `New provisions that benefit whaling captains and rural hospitals appear to be aimed at winning over Senator Lisa Murkowski, the Alaska Republican who had said the bill would hurt her state.`\
 https://nytimes.com/2025/06/28/us/politics/republicans-alaska-murkowski-bill.html
-
-**Lalo Schifrin, 93, Dies; Composer of ‘Mission: Impossible’ and Much More**\
-`He was best known for one enduring TV theme, but he had a startlingly diverse career as a composer, arranger and conductor in a wide range of genres.`\
-https://nytimes.com/2025/06/28/arts/music/lalo-schifrin-dead.html
 

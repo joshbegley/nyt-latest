@@ -1,3 +1,7 @@
+**Pat Williams, Last Montana Democrat to Serve in the House, Dies at 87**\
+`His liberal politics, inspired by the safety nets of the New Deal, were shaped in working-class mining country.`\
+https://nytimes.com/2025/06/28/us/politics/pat-williams-dead.html
+
 **Wild trade Declan Chisholm to Capitals to move up to fourth round**\
 `The move up to the fourth round gives the Wild three fourth-rounders (Nos. 102, 121 and 123) in this year's draft.`\
 https://nytimes.com/athletic/6459215/2025/06/28/wild-trade-declan-chisholm-capitals/
