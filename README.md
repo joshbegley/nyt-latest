@@ -1,3 +1,7 @@
+**Yankees' George Costanza bobblehead pre-selling for more than tickets to giveaway game**\
+`Seinfeld Night returns to Yankee Stadium with a unique giveaway that's already in high demand`\
+https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/
+
 **Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
 `Melissa Hortman was killed alongside her husband, Mark, in an attack two weeks ago. She was eulogized by Gov. Tim Walz as a consequential and compassionate leader.`\
 https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cu
 **Kayla Thornton, with career-best night, shows she's right at home with Valkyries**\
 `Her 29-point outing Friday in a win over Chicago was a career high and the latest sign that she has filled her cup with Golden State.`\
 https://nytimes.com/athletic/6458929/2025/06/28/kayla-thornton-golden-state-valkyries-all-star/
-
-**Chelsea reach agreement in principle to sign Borussia Dortmund winger Gittens**\
-`Gittens recorded 12 goals and five assists in 48 matches for Dortmund during the 2024-25 campaign.`\
-https://nytimes.com/athletic/6410528/2025/06/28/chelsea-transfers-jamie-gittens/
 
