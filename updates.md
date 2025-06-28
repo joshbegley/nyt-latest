@@ -1,3 +1,11 @@
+**Paul Pogba joins Monaco on two-year contract**\
+`The 32-year-old had been a free agent since leaving Juventus in November 2024 and has not made a senior appearance since September 2023.`\
+https://nytimes.com/athletic/6458451/2025/06/28/paul-pogba-transfer-monaco/
+
+**Bulls agree to trade Lonzo Ball to Cavaliers for Isaac Okoro: Sources**\
+`In 35 games, Ball averaged 7.6 points, 3.4 rebounds and 3.3 assists per game.`\
+https://nytimes.com/athletic/6458742/2025/06/28/lonzo-ball-trade-bulls-cavs-isaac-okoro/
+
 **Maya Joint beats Alex Eala in stunning Eastbourne final, saving four championship points**\
 `When tennis powers downgraded the storied WTA tournament at Eastbourne, on the south coast of the U.`\
 https://nytimes.com/athletic/6458734/2025/06/28/eastbourne-open-joint-eala/
