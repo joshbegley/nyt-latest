@@ -1,3 +1,7 @@
+**Kayla Thornton, with career-best night, shows she's right at home with Valkyries**\
+`Her 29-point outing Friday in a win over Chicago was a career high and the latest sign that she has filled her cup with Golden State.`\
+https://nytimes.com/athletic/6458929/2025/06/28/kayla-thornton-golden-state-valkyries-all-star/
+
 **Chelsea reach agreement in principle to sign Borussia Dortmund winger Gittens**\
 `Gittens recorded 12 goals and five assists in 48 matches for Dortmund during the 2024-25 campaign.`\
 https://nytimes.com/athletic/6410528/2025/06/28/chelsea-transfers-jamie-gittens/
@@ -33,9 +37,4 @@ https://nytimes.com/2025/06/28/arts/television/netflix-leaving-july.html
 **Flames sign defenseman Kevin Bahl to 6-year, $32.1 million extension**\
 `Calgary acquired Bahl last summer as part of the Jacob Markstrom trade that also netted them a 2025 first-round pick.`\
 https://nytimes.com/athletic/6458854/2025/06/28/flames-kevin-bahl-free-agency-contract-nhl/
-
-**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
-`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
-`\
-https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
 
