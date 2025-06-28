@@ -1,40 +1,40 @@
-**Better Half**\
-`The midpoint of the year is an opportune moment to look back at where we’ve been, and set our sights for where we want to go.`\
-https://nytimes.com/2025/06/28/briefing/better-half.html
+**Thompson runs record 100m time, Fraser-Pryce makes World Championships**\
+`Thompson's performance is the fastest men’s 100m for over a decade — since Gatlin ran 9.74s once and 9.75s twice in the summer of 2015.`\
+https://nytimes.com/athletic/6458478/2025/06/28/thompson-100m-record-fraser-pryce-jamaica-athletics/
 
-**NBA Draft grades for every team: Spurs, Hornets get As while Pelicans flunk**\
-`Sam Vecenie reviews every team's draft and has praise for the Wizards and Hawks and questions for the Suns.`\
-https://nytimes.com/athletic/6452980/2025/06/28/nba-draft-grades-team-by-team-2025/
+**NBA offseason themes to watch: Pacers' roster-building, second-apron fears and more**\
+`An unpredictable tax situation. A player’s contract again at the center of mixed messaging. And the NBA is avoiding one boogeyman.`\
+https://nytimes.com/athletic/6457671/2025/06/28/nba-offseason-themes-pacers-nuggets-bradley-beal-suns/
 
-**What the Noah Dobson acquisition means for what the Canadiens are hoping to accomplish**\
-`The Canadiens improved by trading for Dobson, but more importantly, it signaled a new and exciting phase of their rebuild.`\
-https://nytimes.com/athletic/6458387/2025/06/28/noah-dobson-canadiens-trade/
+**Filipe Luis: The Flamengo coach who is making a hard job look easy**\
+`Tipped to manage Brazil in the future, Filipe Luis has already made a big impression at the Club World Cup this summer`\
+https://nytimes.com/athletic/6457687/2025/06/28/felipe-luis-profile-flamengo-club-world-cup/
 
-**Reds just miss no-hitter and 4-homer game as Nick Martinez and Spencer Steer shine**\
-`For all that could have been, what was is still pretty special for the Reds.`\
-https://nytimes.com/athletic/6458155/2025/06/28/reds-nick-martinez-just-miss-no-hitter-spencer-steer/
+**The Supreme Court Is Watching Out for the Courts, Not for Trump**\
+`How the court reaffirmed the proper role of the federal courts within our constitutional system.`\
+https://nytimes.com/2025/06/28/opinion/birthright-citizenship-supreme-court-injunction.html
 
-**Why Red Wings used NHL Draft's No. 13 on 'special young prospect' Carter Bear**\
-`In Bear, the Red Wings are getting a highly skilled and highly competitive winger to add to their prospect stable.`\
-https://nytimes.com/athletic/6457888/2025/06/28/red-wings-nhl-draft-carter-bear/
+**Mamdani, Trump and the End of the Old Politics**\
+`The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
+https://nytimes.com/2025/06/28/opinion/ezra-klein-show-chris-hayes.html
 
-**A Celebration of Canada and a Protest Against Musk and Trump**\
-`A small apartment building in Ottawa is using Canadian flags to send a message about Canada’s sovereignty.`\
-https://nytimes.com/2025/06/28/world/canada/a-celebration-of-canada-and-a-protest-against-musk-and-trump.html
+**Obfuscating on Obliterating**\
+`Trump schools the Ayatollah on the fine art of truth telling.`\
+https://nytimes.com/2025/06/28/opinion/trump-iran-ayatollah-khamenei.html
 
-**Is It Wrong to Push Ozempic on My Spouse?**\
-`He’s very sensitive about his weight.`\
-https://nytimes.com/2025/06/28/magazine/ozempic-spouse-ethics.html
+**What’s More Powerful Than Bombs**\
+`Someday the regime will crack and people power will prevail. I suspect that will be more likely when there’s peace.`\
+https://nytimes.com/2025/06/28/opinion/iran-war-america-titanic.html
 
-**Wordle Review No. 1,471**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 29, 2025.`\
-https://nytimes.com/2025/06/28/crosswords/wordle-review-1471.html
+**In the Quest to Shrink NASA, Trump Forgets National Security**\
+`An agency’s service to the country goes far beyond space exploration.`\
+https://nytimes.com/2025/06/28/opinion/nasa-national-security.html
 
-**Connections Companion No. 749**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 29, 2025.`\
-https://nytimes.com/2025/06/28/crosswords/connections-companion-749.html
+**The Moral Paralysis Facing Iranians Right Now**\
+`Between bombs and the Islamic Republic, Iranians face an agonizing choice`\
+https://nytimes.com/2025/06/28/opinion/iran-israel-war-islamic-republic.html
 
-**Why Max Verstappen’s F1 future and links to Mercedes are back in focus once again**\
-`After initial informal talks in 2024, Mercedes team boss Toto Wolff is again courting Max Verstappen's services. This could impact F1 2026`\
-https://nytimes.com/athletic/6456825/2025/06/28/max-verstappen-f1-mercedes-red-bull-contract-talks/
+**Belarus Is a Warning**\
+`I’m going to tell you how the people in charge of my country made the truth a crime.`\
+https://nytimes.com/2025/06/28/opinion/belarus-democracy-lukashenko.html
 
