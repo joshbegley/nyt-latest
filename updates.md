@@ -1,3 +1,15 @@
+**Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
+`Melissa Hortman was killed alongside her husband, Mark, in an attack two weeks ago. She was eulogized by Gov. Tim Walz as a consequential and compassionate leader.`\
+https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
+
+**Trade grades: How much can Lonzo Ball help Cavaliers bolster depth, contend in East?**\
+`Acquiring Lonzo Ball makes for a pretty intriguing deal for the 64-win Cavaliers. Can Ball reinvent himself to aid a hopeful contender?`\
+https://nytimes.com/athletic/6458822/2025/06/28/lonzo-ball-cavaliers-bulls-trade-east-nba/
+
+**Maple Leafs, Golden Knights discussing trade for Mitch Marner's rights: Sources**\
+`Marner is one of the Leafs organization’s most accomplished players, sitting fifth on the all-time scoring list with 741 points.`\
+https://nytimes.com/athletic/6458557/2025/06/28/mitch-marner-trade-talks-maple-leafs-golden-knights/
+
 **Pat Williams, Last Montana Democrat to Serve in the House, Dies at 87**\
 `His liberal politics, inspired by the safety nets of the New Deal, were shaped in working-class mining country.`\
 https://nytimes.com/2025/06/28/us/politics/pat-williams-dead.html

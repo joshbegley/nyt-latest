@@ -1,3 +1,15 @@
+**Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
+`Melissa Hortman was killed alongside her husband, Mark, in an attack two weeks ago. She was eulogized by Gov. Tim Walz as a consequential and compassionate leader.`\
+https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
+
+**Trade grades: How much can Lonzo Ball help Cavaliers bolster depth, contend in East?**\
+`Acquiring Lonzo Ball makes for a pretty intriguing deal for the 64-win Cavaliers. Can Ball reinvent himself to aid a hopeful contender?`\
+https://nytimes.com/athletic/6458822/2025/06/28/lonzo-ball-cavaliers-bulls-trade-east-nba/
+
+**Maple Leafs, Golden Knights discussing trade for Mitch Marner's rights: Sources**\
+`Marner is one of the Leafs organization’s most accomplished players, sitting fifth on the all-time scoring list with 741 points.`\
+https://nytimes.com/athletic/6458557/2025/06/28/mitch-marner-trade-talks-maple-leafs-golden-knights/
+
 **Pat Williams, Last Montana Democrat to Serve in the House, Dies at 87**\
 `His liberal politics, inspired by the safety nets of the New Deal, were shaped in working-class mining country.`\
 https://nytimes.com/2025/06/28/us/politics/pat-williams-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6458929/2025/06/28/kayla-thornton-golden-state-valk
 **Chelsea reach agreement in principle to sign Borussia Dortmund winger Gittens**\
 `Gittens recorded 12 goals and five assists in 48 matches for Dortmund during the 2024-25 campaign.`\
 https://nytimes.com/athletic/6410528/2025/06/28/chelsea-transfers-jamie-gittens/
-
-**Yankees' Clarke Schmidt makes franchise history with scoreless innings streak**\
-`Schmidt's run of dominance was the longest for a Yankees starter since Don Larsen's 29 scoreless innings across the 1957 and 1958 seasons.`\
-https://nytimes.com/athletic/6459014/2025/06/28/yankees-clarke-schmidt-scoreless-innings-streak/
-
-**Republicans Lavish Alaska With Benefits in Policy Bill, Grasping for a Key Vote**\
-`New provisions that benefit whaling captains and rural hospitals appear to be aimed at winning over Senator Lisa Murkowski, the Alaska Republican who had said the bill would hurt her state.`\
-https://nytimes.com/2025/06/28/us/politics/republicans-alaska-murkowski-bill.html
-
-**Lalo Schifrin, 93, Dies; Composer of ‘Mission: Impossible’ and Much More**\
-`He was best known for one enduring TV theme, but he had a startlingly diverse career as a composer, arranger and conductor in a wide range of genres.`\
-https://nytimes.com/2025/06/28/arts/music/lalo-schifrin-dead.html
 
