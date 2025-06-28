@@ -1,3 +1,7 @@
+**Yankees' George Costanza bobblehead pre-selling for more than tickets to giveaway game**\
+`Seinfeld Night returns to Yankee Stadium with a unique giveaway that's already in high demand`\
+https://nytimes.com/athletic/6458554/2025/06/28/yankees-george-costanza-bobblehead-seinfeld/
+
 **How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
 `The big talking points from the first of the FIFA Club World Cup round of 16 matches`\
 https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/
