@@ -1,3 +1,7 @@
+**What's in the new NHL CBA? Digging into the memorandum of understanding**\
+`From changes to the calendar to how the playoff salary cap will work, a look inside the new CBA based on a summary obtained by The Athletic.`\
+https://nytimes.com/athletic/6457760/2025/06/27/nhl-cba-provisions-schedule-ltir/
+
 **Analyzing the top 5 picks of the 2025 NHL Draft**\
 `The Athletic's experts break down what fans of the Islanders, Sharks, Blackhawks, Mammoth and Predators can expect from picks No. 1-5.`\
 https://nytimes.com/athletic/6454316/2025/06/27/nhl-draft-2025-ny-islanders-matthew-schaefer-analysis/
