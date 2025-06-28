@@ -1,3 +1,8 @@
+**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
+`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
+`\
+https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
+
 **Blues, Joel Hofer agree to 2-year, $6.8 million contract extension**\
 `Hofer, 24, would have become an RFA if unsigned on July 1 and eligible to sign an offer sheet with another club.`\
 https://nytimes.com/athletic/6459084/2025/06/28/blues-joel-hofer-contract-extension/

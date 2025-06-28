@@ -1,3 +1,7 @@
+**Zohran Mamdani Returns to Harlem to Make His Pitch to Black New Yorkers**\
+`The presumptive Democratic nominee for mayor, who has struggled to make inroads with the Black community, spoke at the Rev. Al Sharpton’s National Action Network on Saturday.`\
+https://nytimes.com/2025/06/28/nyregion/mamdani-harlem-black-voters.html
+
 **Blues, Joel Hofer agree to 2-year, $6.8 million contract extension**\
 `Hofer, 24, would have become an RFA if unsigned on July 1 and eligible to sign an offer sheet with another club.`\
 https://nytimes.com/athletic/6459084/2025/06/28/blues-joel-hofer-contract-extension/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6458891/2025/06/28/red-wings-john-gibson-trade-duck
 **Fletcher in talks to become Manchester United under-18 head coach**\
 `Fletcher is expected to decide now is the right time to take on a lead coach role and support the club in filling a key vacancy.`\
 https://nytimes.com/athletic/6458631/2025/06/28/darren-fletcher-manchester-united-coach/
-
-**Paul Pogba joins Monaco on two-year contract**\
-`The 32-year-old had been a free agent since leaving Juventus in November 2024 and has not made a senior appearance since September 2023.`\
-https://nytimes.com/athletic/6458451/2025/06/28/paul-pogba-transfer-monaco/
 
