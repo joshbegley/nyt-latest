@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Senate Republicans Seek to Pass Sprawling Domestic Policy Bill**\
+``\
+https://nytimes.com/live/2025/06/28/us/trump-news
+
 **French Police Officers Who Beat a Black Man on Camera to Stand Trial**\
 `The brutal beating in 2020 of Michel Zecler, a well-known music producer, sent shock waves through France.`\
 https://nytimes.com/2025/06/28/world/europe/france-michel-zecler-police-beating-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-a
 **At Bezos’ Venetian Wedding: Buzz, Bling and Backlash**\
 `The over-the-top party in the photogenic Italian city mixed Hollywood, Silicon Valley and political overtones.`\
 https://nytimes.com/2025/06/28/world/europe/bezos-sanchez-venice-wedding.html
-
-**Thai Protesters Vent Their Exasperation With the Prime Minister**\
-`The political turmoil set off by a leaked phone conversation shows no sign of easing, in a country where demonstrations have helped oust governments before.`\
-https://nytimes.com/2025/06/28/world/asia/thailand-protesters-prime-minister.html
 

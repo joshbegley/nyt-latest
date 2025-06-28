@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Senate Republicans Seek to Pass Sprawling Domestic Policy Bill**\
+``\
+https://nytimes.com/live/2025/06/28/us/trump-news
+
 **French Police Officers Who Beat a Black Man on Camera to Stand Trial**\
 `The brutal beating in 2020 of Michel Zecler, a well-known music producer, sent shock waves through France.`\
 https://nytimes.com/2025/06/28/world/europe/france-michel-zecler-police-beating-video.html
