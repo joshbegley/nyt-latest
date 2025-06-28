@@ -1,40 +1,40 @@
-**Spain's Bonmati diagnosed with viral meningitis ahead of Euro 2025**\
-`Bonmati, who has won each of the two most recent women's Ballon d'Or awards, posted a photo from her hospital bed on Friday night.`\
-https://nytimes.com/athletic/6458422/2025/06/28/aitana-bonmati-spain-euro-2025/
+**How to watch X Games Salt Lake City Day 2: Gold up for grabs Saturday**\
+`Day 2 of X Games Salt Lake City 2025 features some of the most talented riders and skaters from around the world as they compete for gold. `\
+https://nytimes.com/athletic/6453669/2025/06/28/x-games-salt-lake-city-day-2-how-to-watch/
 
-**How the ‘Italian Fairy’ Spends Her Day Teaching Children to Sing**\
-`Simona Rodano barely has time to strap on her sparkly wings before she dashes around New York City, teaching children how to sing in Italian, French and Spanish.`\
-https://nytimes.com/2025/06/28/nyregion/simona-rodano-italian-fairy.html
+**With Supreme Court Ruling, Another Check on Trump’s Power Fades**\
+`The court tied the hands of judges at a time when Congress has been cowed and internal executive branch constraints have been steamrolled.`\
+https://nytimes.com/2025/06/28/us/supreme-court-trump-executive-branch-power.html
 
-**Free Buses and Child Care. A Rent Freeze. Can Mamdani Achieve His Plans?**\
-`Zohran Mamdani, the Democratic mayoral hopeful, also promises a $30 minimum wage, but many of his plans are not within a mayor’s control.`\
-https://nytimes.com/2025/06/28/nyregion/mamdani-policies-economy-housing-buses-childcare.html
+**Courts Will Have to Grapple With New Limits on Their Power**\
+`The Supreme Court has set a new, higher bar for judges seeking to block Trump administration policies nationwide. But some legal routes remain open.`\
+https://nytimes.com/2025/06/28/us/politics/injunctions-what-comes-next.html
 
-**Is the Local Weed Store the New Place to Hang Out?**\
-`Young adults are drinking less alcohol and seeking more connection, and New York’s dispensaries are putting themselves out there as alternative gathering spaces.`\
-https://nytimes.com/2025/06/28/nyregion/is-the-local-weed-store-the-new-place-to-hang-out.html
+**Audience Report: Celebrating 50 Years of ‘Jaws’ on Martha’s Vineyard**\
+`The anniversary festivities included V.I.P. meet-and-greets, book signings, film screenings and lectures about sharks. But for many, the real draw was the island itself.`\
+https://nytimes.com/2025/06/28/movies/jaws-50th-anniversary-marthas-vineyard.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/28/crosswords/spelling-bee-forum.html
+**LACMA Opens the Doors to Its New Building**\
+`The museum invited the public for a preview of its new David Geffen Galleries spanning Wilshire Boulevard — before the art moves in next year.`\
+https://nytimes.com/2025/06/28/arts/design/lacma-david-geffen-galleries-building-architecture.html
 
-**From NHL Draft stage to Disneyland, a memorable night for Ducks' Roger McQueen**\
-`The Ducks thrilled McQueen by selecting him at No. 10, then sent him on a helicopter ride.`\
-https://nytimes.com/athletic/6458352/2025/06/28/ducks-draft-disneyland-mcqueen/
+**How to Do a Perfect Lunge**\
+`Mastering the lower-body move can improve your balance and stability.`\
+https://nytimes.com/interactive/2025/06/28/well/move/lunge-exercise-form.html
 
-**Sabres couldn’t make it work with JJ Peterka. Can they find a way to keep Bowen Byram?**\
-`Trading Peterka can help the Sabres in the long run, but Kevyn Adams needs to complete the work of building this team.`\
-https://nytimes.com/athletic/6458331/2025/06/28/sabres-jj-peterka-bowen-byram/
+**Chanel Looks to Build Cultural Capital With Arts Magazine**\
+`The fashion house hopes the new title, Arts & Culture, can extend Coco Chanel’s legacy of surrounding herself with “audacious creatives.”`\
+https://nytimes.com/2025/06/28/style/chanel-arts-and-culture-magazine.html
 
-**Blues draft winger Justin Carbonneau in first round while search for second-line center continues**\
-`GM Doug Armstrong hinted at a trade after picking the winger in the draft, saying: "it will be an apple for an apple."`\
-https://nytimes.com/athletic/6457797/2025/06/28/blues-second-line-center-draft-justin-carbonneau/
+**What Happened in the Closing Arguments of the Sean Combs Trial**\
+`The jurors will begin deliberating on Monday. The music mogul has pleaded not guilty to sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2025/06/28/arts/music/sean-combs-diddy-trial-closing-arguments.html
 
-**Senators draft another prospect at a 'premium' position with Logan Hensler pick**\
-`"Right-handed defencemen are a premium" in the NHL. With Hensler and 2024 pick Carter Yakemchuk, Ottawa now has two in its prospect pool.`\
-https://nytimes.com/athletic/6457934/2025/06/28/senators-nhl-draft-logan-hensler-analysis/
+**How to Potty-Train a Co-Worker**\
+`When a colleague isn’t housebroken, there are options. Plus, can you tell someone they’re getting too old to work?`\
+https://nytimes.com/2025/06/28/business/co-worker-bathroom-issues-advice.html
 
-**Why the Canucks landed on Braeden Cootes with their first-round pick**\
-`Cootes is precisely the sort of high-variance bet that the Canucks should be making in bulk.`\
-https://nytimes.com/athletic/6458058/2025/06/28/canucks-nhl-draft-braeden-cootes/
+**‘The Bear’ Season 4: Here Are the Cameos**\
+`“The Bear” returned for its fourth season this week with high-stakes restaurant drama and high-wattage cameos.`\
+https://nytimes.com/2025/06/28/arts/television/the-bear-season-4-cameos.html
 
