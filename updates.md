@@ -1,3 +1,7 @@
+**Islanders 'replenished' prospect pool with first-round draft haul**\
+`In addition to No. 1 pick Matthew Schaefer, New York made back-to-back selections Friday after trading defenseman Noah Dobson.`\
+https://nytimes.com/athletic/6457939/2025/06/28/islanders-matthew-schaefer-nhl-draft-analysis/
+
 **Bruins' tank pays off as James Hagens pick gives them an NHL Draft first-round steal**\
 `The Boston College center, who was once projected to go No. 1 in this draft, could be the future franchise cornerstone the Bruins need.`\
 https://nytimes.com/athletic/6458198/2025/06/28/bruins-james-hagens-nhl-draft-steal/
