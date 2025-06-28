@@ -1,4 +1,8 @@
-**Thompson runs record 100m time, Fraser-Pryce makes World Championships**\
+**Thai Protesters Vent Their Exasperation With the Prime Minister**\
+`The political turmoil set off by a leaked phone conversation shows no sign of easing, in a country where demonstrations have helped oust governments before.`\
+https://nytimes.com/2025/06/28/world/asia/thailand-protesters-prime-minister.html
+
+**Thompson runs world lead 100m time, Fraser-Pryce makes World Championships**\
 `Thompson's performance is the fastest men’s 100m for over a decade — since Gatlin ran 9.74s once and 9.75s twice in the summer of 2015.`\
 https://nytimes.com/athletic/6458478/2025/06/28/thompson-100m-record-fraser-pryce-jamaica-athletics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/opinion/nasa-national-security.html
 **The Moral Paralysis Facing Iranians Right Now**\
 `Between bombs and the Islamic Republic, Iranians face an agonizing choice`\
 https://nytimes.com/2025/06/28/opinion/iran-israel-war-islamic-republic.html
-
-**Belarus Is a Warning**\
-`I’m going to tell you how the people in charge of my country made the truth a crime.`\
-https://nytimes.com/2025/06/28/opinion/belarus-democracy-lukashenko.html
 
