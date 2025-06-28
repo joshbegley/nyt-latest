@@ -1,3 +1,11 @@
+**Quote of the Day: Graduates’ Joy Chilled by Worry After Student’s ICE Arrest**\
+`Quotation of the Day for Saturday, June 28, 2025.`\
+https://nytimes.com/2025/06/27/pageoneplus/quote-of-the-day-graduates-joy-chilled-by-worry-after-students-ice-arrest.html
+
+**What Visual and Audio Evidence Reveals About the Air India Crash**\
+`Photos, videos and flight tracking data reveal what happened before the flight crashed less than a minute after taking off.`\
+https://nytimes.com/interactive/2025/06/27/world/asia/air-india-crash-cause.html
+
 **Newsom Signs Budget That Relies on Health Care Cuts for Undocumented Immigrants**\
 `Gov. Gavin Newsom of California signed a budget bill on Friday that depends in part on rolling back those benefits to help close a $12 billion deficit.`\
 https://nytimes.com/2025/06/27/us/newsom-signs-budget-that-relies-on-health-care-cuts-for-undocumented-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/27/crosswords/daily-puzzle-2025-06-28.html
 **Maresca: Best for Acheampong to stay at Chelsea this season**\
 `Amid transfer interest in the 19-year-old rising talent, Chelsea's boss makes his wishes clear`\
 https://nytimes.com/athletic/6457876/2025/06/27/josh-acheampong-chelsea-enzo-maresca-plans/
-
-**What's in the new NHL CBA? Digging into the memorandum of understanding**\
-`From changes to the calendar to how the playoff salary cap will work, a look inside the new CBA based on a summary obtained by The Athletic.`\
-https://nytimes.com/athletic/6457760/2025/06/27/nhl-cba-provisions-schedule-ltir/
-
-**Analyzing the top 5 picks of the 2025 NHL Draft**\
-`The Athletic's experts break down what fans of the Islanders, Sharks, Blackhawks, Mammoth and Predators can expect from picks No. 1-5.`\
-https://nytimes.com/athletic/6454316/2025/06/27/nhl-draft-2025-ny-islanders-matthew-schaefer-analysis/
 
