@@ -1,3 +1,7 @@
+**The NHL tried something new with how the 2025 draft worked. It got awkward**\
+`Here are Sean McIndoe's thoughts on the good, the bad, and everything in between from Friday night’s opening round of the NHL Draft.`\
+https://nytimes.com/athletic/6457896/2025/06/27/nhl-draft-2025-broadcast/
+
 **The Atlanta Braves' lineup is a mess, and there are no easy fixes**\
 `Are the Braves feeling increased pressure with their streak of eight straight playoff appearances in serious jeopardy?`\
 https://nytimes.com/athletic/6457851/2025/06/27/atlanta-braves-lineup-is-a-mess/

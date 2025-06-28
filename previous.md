@@ -1,3 +1,7 @@
+**The NHL tried something new with how the 2025 draft worked. It got awkward**\
+`Here are Sean McIndoe's thoughts on the good, the bad, and everything in between from Friday night’s opening round of the NHL Draft.`\
+https://nytimes.com/athletic/6457896/2025/06/27/nhl-draft-2025-broadcast/
+
 **The Atlanta Braves' lineup is a mess, and there are no easy fixes**\
 `Are the Braves feeling increased pressure with their streak of eight straight playoff appearances in serious jeopardy?`\
 https://nytimes.com/athletic/6457851/2025/06/27/atlanta-braves-lineup-is-a-mess/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6454316/2025/06/27/nhl-draft-2025-ny-islanders-matt
 **Naz Reid, Timberwolves agree to 5-year, $125 million contract: Sources**\
 `The deal ensures that the former Sixth Man of the Year will remain with the only team he has played for.`\
 https://nytimes.com/athletic/6457801/2025/06/27/naz-reid-minnesota-timberwolves-contract-nba-2025/
-
-**What the Supreme Court’s Ruling Will Mean for Birthright Citizenship**\
-`The ruling left unsettled the question of whether children born to immigrants without full legal status in the United States are entitled to automatic citizenship. So what happens now?`\
-https://nytimes.com/2025/06/27/us/politics/27nat-birthright-citizenship-impacts.html
 
