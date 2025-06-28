@@ -1,3 +1,7 @@
+**How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
+`The big talking points from the first of the FIFA Club World Cup round of 16 matches`\
+https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/
+
 **Minnesota Lawmaker and Her Husband Remembered for Their Shared Legacy**\
 `Melissa Hortman was killed alongside her husband, Mark, in an attack two weeks ago. She was eulogized by Gov. Tim Walz as a consequential and compassionate leader.`\
 https://nytimes.com/2025/06/28/us/politics/minnesota-melissa-hortman-funeral.html
