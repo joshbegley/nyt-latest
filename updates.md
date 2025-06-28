@@ -1,3 +1,16 @@
+**Lalo Schifrin, 93, Dies; Composer of ‘Mission: Impossible’ and Much More**\
+`He was best known for one enduring TV theme, but he had a startlingly diverse career as a composer, arranger and conductor in a wide range of genres.`\
+https://nytimes.com/2025/06/28/arts/music/lalo-schifrin-dead.html
+
+**Chief Justice Urges Political Leaders to Tone Down Rhetoric**\
+`At a conference with federal judges, the chief justice did not mention the court’s decision sharply limiting their power, focusing instead on the danger of threats to the judiciary.`\
+https://nytimes.com/2025/06/28/us/chief-justice-roberts-threats.html
+
+**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
+`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
+`\
+https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
+
 **Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
 `Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
 `\
