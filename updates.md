@@ -1,3 +1,11 @@
+**Klopp says Club World Cup 'worst idea ever implemented in football'**\
+`Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
+https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
+
+**F1 Austrian GP qualifying briefing: Norris storms to pole ahead of Leclerc and Piastri**\
+`McLaren's Lando Norris blew away his Formula One opposition to claim pole position for the 2025 Austrian Grand Prix`\
+https://nytimes.com/athletic/6458593/2025/06/28/f1-austrian-gp-qualifying-briefing-norris-storms-to-pole-ahead-of-leclerc-and-piastri/
+
 **We Know Exactly Where the Supreme Court’s Change of Heart Has Come From**\
 `The justices’ strange about-face has a source.`\
 https://nytimes.com/2025/06/28/opinion/supreme-court-ketanji-jackson.html
