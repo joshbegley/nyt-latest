@@ -1,3 +1,7 @@
+**Jonathan Anderson Sets a New Dressing Agenda at Dior**\
+`The designer showed his first men’s collection. Was it any good?`\
+https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
+
 **Chelsea and Newcastle competing to sign Brighton's Joao Pedro**\
 `Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
 https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/world/middleeast/iran-funerals-israel-war.html
 **Sunderland set to sign Strasbourg's Diarra in club-record transfer**\
 `The 21-year-old has spent the entirety of his professional career at the Ligue 1 club, scoring 10 goals across 99 first-team appearances.`\
 https://nytimes.com/athletic/6458457/2025/06/28/sunderland-transfer-record-habib-diarra/
-
-**Yankees first-half awards: Aaron Judge for MVP, but who's LVP?**\
-`Judge is leading MLB in batting average (.358), on-base percentage (.458), slugging percentage (.712), OPS (1.170) and fWAR (6.1).`\
-https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-awards/
 

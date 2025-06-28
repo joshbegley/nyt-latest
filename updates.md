@@ -1,3 +1,7 @@
+**Jonathan Anderson Sets a New Dressing Agenda at Dior**\
+`The designer showed his first men’s collection. Was it any good?`\
+https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
+
 **Chelsea and Newcastle competing to sign Brighton's Joao Pedro**\
 `Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
 https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
