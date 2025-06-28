@@ -1,3 +1,5 @@
+
+
 **Mourners Honor Minnesota Lawmaker and Husband at Funeral**\
 `Gov. Tim Walz of Minnesota delivered a eulogy praising Melissa Hortman as a consequential and compassionate political leader, and her husband, Mark, as her proudest supporter.`\
 https://nytimes.com/video/us/politics/100000010256890/minnesota-lawmaker-husband-funeral.html
