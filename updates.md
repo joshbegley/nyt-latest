@@ -1,3 +1,7 @@
+**Bruins' tank pays off as James Hagens pick gives them an NHL Draft first-round steal**\
+`The Boston College center, who was once projected to go No. 1 in this draft, could be the future franchise cornerstone the Bruins need.`\
+https://nytimes.com/athletic/6458198/2025/06/28/bruins-james-hagens-nhl-draft-steal/
+
 **Busy draft day for Blue Jackets as trade talks fizzle before Smith, Andreyanov picks**\
 `GM Don Waddell walked the line between boosting the current roster and planning for the future in a series of Friday negotiations.`\
 https://nytimes.com/athletic/6458006/2025/06/28/blue-jackets-nhl-draft-trade-smith-andreyanov/
