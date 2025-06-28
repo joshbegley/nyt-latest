@@ -1,3 +1,7 @@
+**Craig Breslow on Red Sox trade deadline mindset: 'The future has to be now'**\
+`With the trade deadline just over 30 days away, Breslow has addressed three areas of need: starting pitching, bullpen help and another bat.`\
+https://nytimes.com/athletic/6457576/2025/06/27/craig-breslow-red-sox-trade-deadline/
+
 **How Every Senator Voted on the Iran War Powers Resolution**\
 `The Senate voted 53 to 47 to reject a resolution to block the president’s use of force against Iran without congressional approval.`\
 https://nytimes.com/interactive/2025/06/27/us/senate-war-powers-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6451164/2025/06/27/matthew-schaefer-islanders-nhl-d
 **The Merchant in Venice: Jeff Bezos’ Italian Wedding**\
 `In a city built on secrecy and theatrical ceremonies, the wedding of Jeff Bezos and Lauren Sánchez has unfolded with impeccable choreography.`\
 https://nytimes.com/card/2025/06/27/style/jeff-bezos-lauren-sanchez-venice-photos
-
-**A's Luis Severino complains about Sacramento ballpark, says it's like pitching in spring training**\
-`Severino listed smaller crowds, a lack of AC and a different kind of energy, among other things, as drawbacks to pitching in Sacramento.`\
-https://nytimes.com/athletic/6457526/2025/06/27/luis-severino-athletics-sacramento-ballpark-complaints/
 
