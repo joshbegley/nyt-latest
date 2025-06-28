@@ -1,3 +1,7 @@
+**Stream These 7 Movies and TV Shows Before They Leave in July**\
+`A ton of great titles are leaving next month for U.S. subscribers, many of them very soon. Catch them while you can.`\
+https://nytimes.com/2025/06/28/arts/television/netflix-leaving-july.html
+
 **Flames sign defenseman Kevin Bahl to 6-year, $32.1 million extension**\
 `Calgary acquired Bahl last summer as part of the Jacob Markstrom trade that also netted them a 2025 first-round pick.`\
 https://nytimes.com/athletic/6458854/2025/06/28/flames-kevin-bahl-free-agency-contract-nhl/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6458451/2025/06/28/paul-pogba-transfer-monaco/
 **Maya Joint beats Alex Eala in stunning Eastbourne final, saving four championship points**\
 `When tennis powers downgraded the storied WTA tournament at Eastbourne, on the south coast of the U.`\
 https://nytimes.com/athletic/6458734/2025/06/28/eastbourne-open-joint-eala/
-
-**Klopp says Club World Cup 'worst idea ever implemented in football'**\
-`Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
-https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
 
