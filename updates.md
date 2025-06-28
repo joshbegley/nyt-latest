@@ -1,3 +1,7 @@
+**Dirk Kuyt appointed Dordrecht head coach**\
+`The appointment comes one week after Kuyt left his role at Beerschot, who were relegated from Belgium's top flight.`\
+https://nytimes.com/athletic/6458470/2025/06/28/dirk-kuyt-liverpool-manager-dordrecht/
+
 **How to watch Mexico vs. Saudi Arabia: Historic stakes in Gold Cup quarterfinals**\
 `For Saudi Arabia, reaching this point of the 2025 Concacaf Gold Cup marks progress. For Mexico, the tournament starts now.`\
 https://nytimes.com/athletic/6457298/2025/06/28/concacaf-gold-cup-mexico-saudi-arabia-how-to-watch/
