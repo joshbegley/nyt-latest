@@ -1,3 +1,7 @@
+**Trump Administration Rescinds Voice of America Layoffs After Errors in Notices**\
+`The errors in the layoff notices could have derailed President Trump’s effort to dismantle the news organization. The administration said it would attempt the layoffs again.`\
+https://nytimes.com/2025/06/27/us/politics/trump-voa-layoffs-errors.html
+
 **Dallas Stars' Jim Nill wins third straight NHL General Manager of the Year Award**\
 `Nill is the first three-time winner in the award's history.`\
 https://nytimes.com/athletic/6400649/2025/06/27/jim-nill-dallas-stars-nhl-gm-award/
