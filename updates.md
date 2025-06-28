@@ -1,3 +1,11 @@
+**NHL Draft 2025 grades for every team: Best picks, fits and analysis**\
+`Corey Pronman grades how every team performed at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6458881/2025/06/28/nhl-draft-2025-team-grades/
+
+**Expect Club World Cup storm delays to repeat at 2026 World Cup, says weather chief**\
+`Chelsea's game against Benfica is the latest to be suspended during the Club World Cup and the trend may continue — this summer and next`\
+https://nytimes.com/athletic/6441522/2025/06/28/club-world-cup-weather-delays-thunder/
+
 **Jim Harbaugh added to computer hacking lawsuit against ex-Michigan OC**\
 `The lawsuit claims that Michigan officials allowed Weiss to coach in a playoff game despite knowing about allegations against him.`\
 https://nytimes.com/athletic/6459343/2025/06/28/jim-harbaugh-michigan-matt-weiss-lawsuit/
