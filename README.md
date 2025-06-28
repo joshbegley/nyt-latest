@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6458106/2025/06/28/twins-brooks-lee-david-festa-def
 `Guardiola said it had been a 'long time' since his team had a performance like their win over Juventus. We break down how they did it...`\
 https://nytimes.com/athletic/6455931/2025/06/28/how-manchester-city-dismantled-juventus-with-straight-passes-and-diagonal-runs/
 
-**With first-round haul at 2025 draft, Islanders 'replenished' prospect pool for future**\
+**Islanders 'replenished' prospect pool with first-round draft haul**\
 `In addition to No. 1 pick Matthew Schaefer, New York made back-to-back selections Friday after trading defenseman Noah Dobson.`\
 https://nytimes.com/athletic/6457939/2025/06/28/islanders-matthew-schaefer-nhl-draft-analysis/
 
