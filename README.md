@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, June 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/28/todays-new-york-times
+
 **Flyers add scoring, size in first round of draft with Porter Martone, Jack Nesbitt picks**\
 `GM Daniel Briere was aggressive in the first round of the 2025 NHL Draft Friday night, moving up to No. 12 and grabbing center Jack Nesbitt.`\
 https://nytimes.com/athletic/6458193/2025/06/28/flyers-nhl-draft-porter-martone-jack-nesbitt-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450426/2025/06/28/kenny-bednarek-interview/
 **Penguins' first round was unpredictable, unorthodox and completely Kyle Dubas**\
 `With the Penguins going outside the box, we're getting more and more peeks into Dubas' world.`\
 https://nytimes.com/athletic/6457562/2025/06/28/penguins-nhl-draft-benjamin-kindel-analysis/
-
-**Euro 2025: France team guide - will drastic changes transform their fortunes?**\
-`From players to watch to pedigree and much more, we set out what to expect from the French at the European Championship`\
-https://nytimes.com/athletic/6428795/2025/06/28/france-team-guide-euro-2025/
 
