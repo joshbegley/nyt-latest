@@ -1,3 +1,7 @@
+**Sabres couldn’t make it work with JJ Peterka. Can they find a way to keep Bowen Byram?**\
+`Trading Peterka can help the Sabres in the long run, but Kevyn Adams needs to complete the work of building this team.`\
+https://nytimes.com/athletic/6458331/2025/06/28/sabres-jj-peterka-bowen-byram/
+
 **Blues draft winger Justin Carbonneau in first round while search for second-line center continues**\
 `GM Doug Armstrong hinted at a trade after picking the winger in the draft, saying: "it will be an apple for an apple."`\
 https://nytimes.com/athletic/6457797/2025/06/28/blues-second-line-center-draft-justin-carbonneau/
