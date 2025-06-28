@@ -1,3 +1,7 @@
+**Better Half**\
+`The midpoint of the year is an opportune moment to look back at where we’ve been, and set our sights for where we want to go.`\
+https://nytimes.com/2025/06/28/briefing/better-half.html
+
 **NBA Draft grades for every team: Spurs, Hornets get As while Pelicans flunk**\
 `Sam Vecenie reviews every team's draft and has praise for the Wizards and Hawks and questions for the Suns.`\
 https://nytimes.com/athletic/6452980/2025/06/28/nba-draft-grades-team-by-team-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/crosswords/connections-companion-749.html
 **Why Max Verstappen’s F1 future and links to Mercedes are back in focus once again**\
 `After initial informal talks in 2024, Mercedes team boss Toto Wolff is again courting Max Verstappen's services. This could impact F1 2026`\
 https://nytimes.com/athletic/6456825/2025/06/28/max-verstappen-f1-mercedes-red-bull-contract-talks/
-
-**Dirk Kuyt appointed Dordrecht head coach**\
-`The appointment comes one week after Kuyt left his role at Beerschot, who were relegated from Belgium's top flight.`\
-https://nytimes.com/athletic/6458470/2025/06/28/dirk-kuyt-liverpool-manager-dordrecht/
 
