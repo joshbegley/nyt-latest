@@ -1,3 +1,7 @@
+**Bucks' Kevin Porter Jr. to let option expire, become unrestricted free agent**\
+`After being acquired at the trade deadline, Porter averaged 11.7 points and 3.7 assists in 30 regular-season games.`\
+https://nytimes.com/athletic/6459086/2025/06/28/bucks-kevin-porter-jr-free-agent/
+
 **What are the Maple Leafs getting in their 2025 NHL Draft picks?**\
 `The Leafs kept all six of their picks on Day 2. Here's what the picks' coaches and GMs had to say.`\
 https://nytimes.com/athletic/6458815/2025/06/28/maple-leafs-2025-draft-analysis-leach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/sports/tennis/wimbledon-arthur-ashe.html
 **Dave Parker, Power Hitter for the Pittsburgh Pirates, Dies at 74**\
 `Parker, a towering outfielder who helped propel the Pirates to the World Series in 1979, was elected to the Baseball Hall of Fame last year.`\
 https://nytimes.com/2025/06/28/sports/dave-parker-dead.html
-
-**Next season might be the hardest one of all for Sidney Crosby**\
-`As one name after another flooded the Penguins' prospect pool at the 2025 NHL Draft, it was hard not to think back to the captain.`\
-https://nytimes.com/athletic/6459397/2025/06/28/penguins-sidney-crosby-2025-nhl-draft/
 
