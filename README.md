@@ -1,3 +1,7 @@
+**Trump Administration Rescinds Voice of America Layoffs After Errors in Notices**\
+`The errors in the layoff notices could have derailed President Trump’s effort to dismantle the news organization. The administration said it would attempt the layoffs again.`\
+https://nytimes.com/2025/06/27/us/politics/trump-voa-layoffs-errors.html
+
 **Dallas Stars' Jim Nill wins third straight NHL General Manager of the Year Award**\
 `Nill is the first three-time winner in the award's history.`\
 https://nytimes.com/athletic/6400649/2025/06/27/jim-nill-dallas-stars-nhl-gm-award/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/27/climate/a-special-climate-visa-people-in-tuvalu-a
 **Woman Was ‘Most Likely’ Bitten by Shark at Jones Beach, Officials Say**\
 `The woman had minor cuts to her left foot and leg after being bitten on Wednesday. She was transported to a hospital for injuries that were not life-threatening, officials said.`\
 https://nytimes.com/2025/06/27/nyregion/shark-bite-jones-beach-new-york.html
-
-**Judge Strikes Down Trump Order Targeting Another Top Law Firm**\
-`The ruling completed a clean sweep for the handful of law firms that took the risk of fighting the Trump administration in court, rather than accepting punitive conditions.`\
-https://nytimes.com/2025/06/27/us/politics/trump-susan-godfrey-law-firm-order.html
 

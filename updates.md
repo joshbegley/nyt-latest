@@ -1,3 +1,15 @@
+**Dallas Stars' Jim Nill wins third straight NHL General Manager of the Year Award**\
+`Nill is the first three-time winner in the award's history.`\
+https://nytimes.com/athletic/6400649/2025/06/27/jim-nill-dallas-stars-nhl-gm-award/
+
+**Crushing, in a Way**\
+`Jesse Guzman makes a swoonworthy Saturday debut.`\
+https://nytimes.com/2025/06/27/crosswords/daily-puzzle-2025-06-28.html
+
+**Maresca: Best for Acheampong to stay at Chelsea this season**\
+`Amid transfer interest in the 19-year-old rising talent, Chelsea's boss makes his wishes clear`\
+https://nytimes.com/athletic/6457876/2025/06/27/josh-acheampong-chelsea-enzo-maresca-plans/
+
 **What's in the new NHL CBA? Digging into the memorandum of understanding**\
 `From changes to the calendar to how the playoff salary cap will work, a look inside the new CBA based on a summary obtained by The Athletic.`\
 https://nytimes.com/athletic/6457760/2025/06/27/nhl-cba-provisions-schedule-ltir/
