@@ -1,3 +1,7 @@
+**E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
+`Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
+https://nytimes.com/2025/06/28/business/dealbook/etf-mutual-funds.html
+
 **Jonathan Anderson Sets a New Dressing Agenda at Dior**\
 `The designer showed his first men’s collection. Was it any good?`\
 https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
