@@ -1,3 +1,11 @@
+**NHL Draft 2025 grades for every team: Best picks, fits and analysis**\
+`Corey Pronman grades how every team performed at the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6458881/2025/06/28/nhl-draft-2025-team-grades/
+
+**Expect Club World Cup storm delays to repeat at 2026 World Cup, says weather chief**\
+`Chelsea's game against Benfica is the latest to be suspended during the Club World Cup and the trend may continue — this summer and next`\
+https://nytimes.com/athletic/6441522/2025/06/28/club-world-cup-weather-delays-thunder/
+
 **Jim Harbaugh added to computer hacking lawsuit against ex-Michigan OC**\
 `The lawsuit claims that Michigan officials allowed Weiss to coach in a playoff game despite knowing about allegations against him.`\
 https://nytimes.com/athletic/6459343/2025/06/28/jim-harbaugh-michigan-matt-weiss-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/arts/music/kneecap-glastonbury.html
 **The Briefing: England beat Germany in thriller to retain Under-21 Euros title**\
 `Analysis as England survive a scare to beat Germany to win the U21 Euros for the second consecutive time`\
 https://nytimes.com/athletic/6459178/2025/06/28/england-germany-u21-euros-final-2025/
-
-**Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
-`The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
-https://nytimes.com/athletic/6458847/2025/06/28/blues-joel-hofer-free-agency-depth-chart/
-
-**Mikayla Raines, Who Rescued Foxes and Other Animals, Is Dead at 30**\
-`She founded Save a Fox Rescue to care for foxes that had been abandoned or bred for their pelts on fur farms. She gained millions of social media followers along the way.`\
-https://nytimes.com/2025/06/28/us/mikayla-raines-dead.html
 
