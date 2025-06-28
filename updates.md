@@ -1,3 +1,7 @@
+**Blackhawks add 3 more first-round draft picks to continue playing numbers game**\
+`In GM Kyle Davidson's eyes, the Blackhawks' first-round haul is a mix of quality and quantity.`\
+https://nytimes.com/athletic/6458237/2025/06/28/blackhawks-nhl-draft-frondell-nestrasil-west-first-round/
+
 **The New York Times in Print for Saturday, June 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/28/todays-new-york-times
