@@ -1,3 +1,7 @@
+**How to watch Mexico vs. Saudi Arabia: Historic stakes in Gold Cup quarterfinals**\
+`For Saudi Arabia, reaching this point of the 2025 Concacaf Gold Cup marks progress. For Mexico, the tournament starts now.`\
+https://nytimes.com/athletic/6457298/2025/06/28/concacaf-gold-cup-mexico-saudi-arabia-how-to-watch/
+
 **The Savannah Bananas are a baseball fever dream, and they're on national TV**\
 `There's always money in the banana stand, and there's always a good time in Banana Ball.`\
 https://nytimes.com/athletic/6452210/2025/06/28/savannah-bananas-rules-how-to-watch/

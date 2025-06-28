@@ -1,3 +1,7 @@
+**Dirk Kuyt appointed Dordrecht head coach**\
+`The appointment comes one week after Kuyt left his role at Beerschot, who were relegated from Belgium's top flight.`\
+https://nytimes.com/athletic/6458470/2025/06/28/dirk-kuyt-liverpool-manager-dordrecht/
+
 **How to watch Mexico vs. Saudi Arabia: Historic stakes in Gold Cup quarterfinals**\
 `For Saudi Arabia, reaching this point of the 2025 Concacaf Gold Cup marks progress. For Mexico, the tournament starts now.`\
 https://nytimes.com/athletic/6457298/2025/06/28/concacaf-gold-cup-mexico-saudi-arabia-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/28/well/move/lunge-exercise-form.html
 **Chanel Looks to Build Cultural Capital With Arts Magazine**\
 `The fashion house hopes the new title, Arts & Culture, can extend Coco Chanel’s legacy of surrounding herself with “audacious creatives.”`\
 https://nytimes.com/2025/06/28/style/chanel-arts-and-culture-magazine.html
-
-**What Happened in the Closing Arguments of the Sean Combs Trial**\
-`The jurors will begin deliberating on Monday. The music mogul has pleaded not guilty to sex trafficking and racketeering conspiracy.`\
-https://nytimes.com/2025/06/28/arts/music/sean-combs-diddy-trial-closing-arguments.html
 
