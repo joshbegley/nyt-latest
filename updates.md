@@ -1,3 +1,15 @@
+**Wild trade Declan Chisholm to Capitals to move up to fourth round**\
+`The move up to the fourth round gives the Wild three fourth-rounders (Nos. 102, 121 and 123) in this year's draft.`\
+https://nytimes.com/athletic/6459215/2025/06/28/wild-trade-declan-chisholm-capitals/
+
+**Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
+`Analysis of what the England Under-21 international will bring to Stamford Bridge`\
+https://nytimes.com/athletic/6453141/2025/06/28/jamie-gittens-chelsea-what-he-brings/
+
+**Gerry Philbin, Star Defensive End for the Jets, Dies at 83**\
+`A sack specialist, he led the American Football League in taking down quarterbacks in the 1968 regular season, which was capped by the Jets’ upset win in Super Bowl III.`\
+https://nytimes.com/2025/06/28/sports/football/gerry-philbin-dead.html
+
 **How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
 `The big talking points from the first of the FIFA Cub World Cup round of 16 matches`\
 https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/

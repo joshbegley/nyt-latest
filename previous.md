@@ -1,3 +1,15 @@
+**Wild trade Declan Chisholm to Capitals to move up to fourth round**\
+`The move up to the fourth round gives the Wild three fourth-rounders (Nos. 102, 121 and 123) in this year's draft.`\
+https://nytimes.com/athletic/6459215/2025/06/28/wild-trade-declan-chisholm-capitals/
+
+**Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
+`Analysis of what the England Under-21 international will bring to Stamford Bridge`\
+https://nytimes.com/athletic/6453141/2025/06/28/jamie-gittens-chelsea-what-he-brings/
+
+**Gerry Philbin, Star Defensive End for the Jets, Dies at 83**\
+`A sack specialist, he led the American Football League in taking down quarterbacks in the 1968 regular season, which was capped by the Jets’ upset win in Super Bowl III.`\
+https://nytimes.com/2025/06/28/sports/football/gerry-philbin-dead.html
+
 **How Paulinho turned supersub to fire Palmeiras into Club World Cup quarter-finals**\
 `The big talking points from the first of the FIFA Cub World Cup round of 16 matches`\
 https://nytimes.com/athletic/6453214/2025/06/28/palmeiras-botafogo-club-world-cup-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/28/arts/music/lalo-schifrin-dead.html
 **Chief Justice Urges Political Leaders to Tone Down Rhetoric**\
 `At a conference with federal judges, the chief justice did not mention the court’s decision sharply limiting their power, focusing instead on the danger of threats to the judiciary.`\
 https://nytimes.com/2025/06/28/us/chief-justice-roberts-threats.html
-
-**Zohran Mamdani Returns to Harlem to Make His Pitch to Black New Yorkers**\
-`The presumptive Democratic nominee for mayor, who has struggled to make inroads with the Black community, spoke at the Rev. Al Sharpton’s National Action Network on Saturday.`\
-https://nytimes.com/2025/06/28/nyregion/mamdani-harlem-black-voters.html
-
-**Blues, Joel Hofer agree to 2-year, $6.8 million contract extension**\
-`Hofer, 24, would have become an RFA if unsigned on July 1 and eligible to sign an offer sheet with another club.`\
-https://nytimes.com/athletic/6459084/2025/06/28/blues-joel-hofer-contract-extension/
-
-**Stream These 7 Movies and TV Shows Before They Leave in July**\
-`A ton of great titles are leaving next month for U.S. subscribers, many of them very soon. Catch them while you can.`\
-https://nytimes.com/2025/06/28/arts/television/netflix-leaving-july.html
 
