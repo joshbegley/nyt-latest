@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-peng
 `\
 https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
 
+**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
+`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
+`\
+https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
+
 **Flames sign defenseman Kevin Bahl to 6-year, $32.1 million extension**\
 `Calgary acquired Bahl last summer as part of the Jacob Markstrom trade that also netted them a 2025 first-round pick.`\
 https://nytimes.com/athletic/6458854/2025/06/28/flames-kevin-bahl-free-agency-contract-nhl/
