@@ -1,3 +1,11 @@
+**Yankees first-half awards: Aaron Judge for MVP, but who's LVP?**\
+`Judge is leading MLB in batting average (.358), on-base percentage (.458), slugging percentage (.712), OPS (1.170) and fWAR (6.1).`\
+https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-awards/
+
+**At Bezos’ Venetian Wedding: Buzz, Bling and Backlash**\
+`The over-the-top party in the photogenic Italian city mixed Hollywood, Silicon Valley and political overtones.`\
+https://nytimes.com/2025/06/28/world/europe/bezos-sanchez-venice-wedding.html
+
 **Thai Protesters Vent Their Exasperation With the Prime Minister**\
 `The political turmoil set off by a leaked phone conversation shows no sign of easing, in a country where demonstrations have helped oust governments before.`\
 https://nytimes.com/2025/06/28/world/asia/thailand-protesters-prime-minister.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/opinion/trump-iran-ayatollah-khamenei.html
 **What’s More Powerful Than Bombs**\
 `Someday the regime will crack and people power will prevail. I suspect that will be more likely when there’s peace.`\
 https://nytimes.com/2025/06/28/opinion/iran-war-america-titanic.html
-
-**In the Quest to Shrink NASA, Trump Forgets National Security**\
-`An agency’s service to the country goes far beyond space exploration.`\
-https://nytimes.com/2025/06/28/opinion/nasa-national-security.html
-
-**The Moral Paralysis Facing Iranians Right Now**\
-`Between bombs and the Islamic Republic, Iranians face an agonizing choice`\
-https://nytimes.com/2025/06/28/opinion/iran-israel-war-islamic-republic.html
 
