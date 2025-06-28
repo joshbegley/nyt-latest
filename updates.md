@@ -1,3 +1,8 @@
+**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
+`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
+`\
+https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
+
 **Zohran Mamdani Returns to Harlem to Make His Pitch to Black New Yorkers**\
 `The presumptive Democratic nominee for mayor, who has struggled to make inroads with the Black community, spoke at the Rev. Al Sharpton’s National Action Network on Saturday.`\
 https://nytimes.com/2025/06/28/nyregion/mamdani-harlem-black-voters.html
