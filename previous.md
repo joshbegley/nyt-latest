@@ -1,3 +1,19 @@
+**How the ‘Italian Fairy’ Spends Her Day Teaching Children to Sing**\
+`Simona Rodano barely has time to strap on her sparkly wings before she dashes around New York City, teaching children how to sing in Italian, French and Spanish.`\
+https://nytimes.com/2025/06/28/nyregion/simona-rodano-italian-fairy.html
+
+**Free Buses and Child Care. A Rent Freeze. Can Mamdani Achieve His Plans?**\
+`Zohran Mamdani, the Democratic mayoral hopeful, also promises a $30 minimum wage, but many of his plans are not within a mayor’s control.`\
+https://nytimes.com/2025/06/28/nyregion/mamdani-policies-economy-housing-buses-childcare.html
+
+**Is the Local Weed Store the New Place to Hang Out?**\
+`Young adults are drinking less alcohol and seeking more connection, and New York’s dispensaries are putting themselves out there as alternative gathering spaces.`\
+https://nytimes.com/2025/06/28/nyregion/is-the-local-weed-store-the-new-place-to-hang-out.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/28/crosswords/spelling-bee-forum.html
+
 **From NHL Draft stage to Disneyland, a memorable night for Ducks' Roger McQueen**\
 `The Ducks thrilled McQueen by selecting him at No. 10, then sent him on a helicopter ride.`\
 https://nytimes.com/athletic/6458352/2025/06/28/ducks-draft-disneyland-mcqueen/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6458058/2025/06/28/canucks-nhl-draft-braeden-cootes
 **Blackhawks add 3 more first-round draft picks to continue playing numbers game**\
 `In GM Kyle Davidson's eyes, the Blackhawks' first-round haul is a mix of quality and quantity.`\
 https://nytimes.com/athletic/6458237/2025/06/28/blackhawks-nhl-draft-frondell-nestrasil-west-first-round/
-
-**The New York Times in Print for Saturday, June 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/28/todays-new-york-times
-
-**Flyers add scoring, size in first round of draft with Porter Martone, Jack Nesbitt picks**\
-`GM Daniel Briere was aggressive in the first round of the 2025 NHL Draft Friday night, moving up to No. 12 and grabbing center Jack Nesbitt.`\
-https://nytimes.com/athletic/6458193/2025/06/28/flyers-nhl-draft-porter-martone-jack-nesbitt-analysis/
-
-**Bruins' tank pays off as James Hagens pick gives them an NHL Draft first-round steal**\
-`The Boston College center, who was once projected to go No. 1 in this draft, could be the future franchise cornerstone the Bruins need.`\
-https://nytimes.com/athletic/6458198/2025/06/28/bruins-james-hagens-nhl-draft-steal/
-
-**Busy draft day for Blue Jackets as trade talks fizzle before Smith, Andreyanov picks**\
-`GM Don Waddell walked the line between boosting the current roster and planning for the future in a series of Friday negotiations.`\
-https://nytimes.com/athletic/6458006/2025/06/28/blue-jackets-nhl-draft-trade-smith-andreyanov/
 
