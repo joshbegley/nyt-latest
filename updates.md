@@ -1,3 +1,5 @@
+
+
 **Klopp says Club World Cup 'worst idea ever implemented in football'**\
 `Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
 https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
