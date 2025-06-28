@@ -1,3 +1,11 @@
+**How Every Senator Voted on the Iran War Powers Resolution**\
+`The Senate voted 53 to 47 to reject a resolution to block the president’s use of force against Iran without congressional approval.`\
+https://nytimes.com/interactive/2025/06/27/us/senate-war-powers-vote.html
+
+**NHL Draft 2025 best players available in Round 1**\
+`These are the top players still on the draft board based on Corey Pronman's final list of the 2025 class.`\
+https://nytimes.com/athletic/6456991/2025/06/27/nhl-draft-2025-best-players-available/
+
 **Another Anfernee Simons trade coming? Celtics looking at ways to shed more salary**\
 `According to league sources the Celtics have explored the idea of flipping Simons’ $27.7 million expiring contract.`\
 https://nytimes.com/athletic/6457444/2025/06/27/celtics-anfernee-simons-trade/

@@ -1,3 +1,7 @@
+**How Every Senator Voted on the Iran War Powers Resolution**\
+`The Senate voted 53 to 47 to reject a resolution to block the president’s use of force against Iran without congressional approval.`\
+https://nytimes.com/interactive/2025/06/27/us/senate-war-powers-vote.html
+
 **Another Anfernee Simons trade coming? Celtics looking at ways to shed more salary**\
 `According to league sources the Celtics have explored the idea of flipping Simons’ $27.7 million expiring contract.`\
 https://nytimes.com/athletic/6457444/2025/06/27/celtics-anfernee-simons-trade/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6457559/2025/06/27/nhl-players-neck-guards/
 `Frondell has the size, offensive skill, defensive awareness and ceiling the Blackhawks believe will make him a perfect fit in their top six.`\
 https://nytimes.com/athletic/6456863/2025/06/27/blackhawks-anton-frondell-2025-nhl-draft-pick/
 
-**Track Corey Pronman's best available players left in 2025 NHL Draft**\
+**NHL Draft 2025 best players available in Round 1**\
 `These are the top players still on the draft board based on Corey Pronman's final list of the 2025 class.`\
 https://nytimes.com/athletic/6456991/2025/06/27/nhl-draft-2025-best-players-available/
 
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/06/27/style/jeff-bezos-lauren-sanchez-venice-photo
 **A's Luis Severino complains about Sacramento ballpark, says it's like pitching in spring training**\
 `Severino listed smaller crowds, a lack of AC and a different kind of energy, among other things, as drawbacks to pitching in Sacramento.`\
 https://nytimes.com/athletic/6457526/2025/06/27/luis-severino-athletics-sacramento-ballpark-complaints/
-
-**Senate Blocks War Powers Resolution to Limit Trump’s Ability to Strike Iran Again**\
-`The vote against the measure was mostly along party lines, with Republicans opposing it and Democrats almost unanimously in favor.`\
-https://nytimes.com/2025/06/27/us/politics/trump-war-powers-iran-strike.html
 
