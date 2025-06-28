@@ -1,3 +1,15 @@
+**Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
+`The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
+https://nytimes.com/athletic/6458847/2025/06/28/blues-re-sign-goalie-joel-hofer-what-the-depth-chart-looks-like-heading-into-free-agency/
+
+**Mikayla Raines, Who Rescued Foxes and Other Animals, Is Dead at 30**\
+`She founded Save a Fox Rescue to care for foxes that had been abandoned or bred for their pelts on fur farms. She gained millions of social media followers along the way.`\
+https://nytimes.com/2025/06/28/us/mikayla-raines-dead.html
+
+**‘Rust’ Crew Members Settle Civil Suit With Producers, Court Papers Show**\
+`The lawsuit accused the producers of negligence in the fatal shooting of the cinematographer Halyna Hutchins on the movie’s set in 2021.`\
+https://nytimes.com/2025/06/28/arts/rust-shooting-settlement.html
+
 **'I belong to Saudi Arabia,' says Cristiano Ronaldo after signing new Al Nassr deal**\
 `Ronaldo has been vocal in his belief in the Saudi Pro League, saying in January 2024 that it was better than Ligue 1.`\
 https://nytimes.com/athletic/6459266/2025/06/28/cristiano-ronaldo-world-cup-2034-saudi/
