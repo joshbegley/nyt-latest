@@ -1,3 +1,7 @@
+**Senate Republicans Revise Trump’s Policy Bill, Scrounging for Votes to Pass It**\
+`A new version of the measure released in the middle of the night would set aside money to help states hit by its cuts to Medicaid, hasten the end of clean energy tax credits and sweeten the state and local tax deduction.`\
+https://nytimes.com/2025/06/28/us/politics/senate-republicans-reconciliation.html
+
 **Samin Nosrat’s Go-To Salad Dressing**\
 `Or: How to love your salads.`\
 https://nytimes.com/2025/06/28/dining/samin-nosrat-salad-dressing-recipes.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
 `Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
 https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
 
-**Trump Administration Live Updates: Senate Republicans Seek to Pass Sprawling Domestic Policy Bill**\
+**Trump Administration Live Updates: Senate Republicans Cut Deals to Win Votes on Domestic Policy Bill**\
 ``\
 https://nytimes.com/live/2025/06/28/us/trump-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
 **Justin Tucker had a decision to make. Will it help him return to the field?**\
 `By accepting the league's ban, Tucker opted to fight for his career rather than continue to fight for his reputation. `\
 https://nytimes.com/athletic/6457460/2025/06/28/justin-tucker-nfl-suspension/
-
-**E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
-`Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
-https://nytimes.com/2025/06/28/business/dealbook/etf-mutual-funds.html
 

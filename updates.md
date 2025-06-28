@@ -1,3 +1,7 @@
+**Samin Nosrat’s Go-To Salad Dressing**\
+`Or: How to love your salads.`\
+https://nytimes.com/2025/06/28/dining/samin-nosrat-salad-dressing-recipes.html
+
 **How the Club World Cup has seen a unexpected flurry of red cards**\
 `10 red cards were issued during the Club World Cup's group stage, for a variety of potential reasons.`\
 https://nytimes.com/athletic/6456586/2025/06/28/club-world-cup-red-cards/
