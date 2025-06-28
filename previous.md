@@ -1,3 +1,7 @@
+**Maya Joint beats Alex Eala in stunning Eastbourne final, saving four championship points**\
+`When tennis powers downgraded the storied WTA tournament at Eastbourne, on the south coast of the U.`\
+https://nytimes.com/athletic/6458734/2025/06/28/eastbourne-open-joint-eala/
+
 **Klopp says Club World Cup 'worst idea ever implemented in football'**\
 `Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
 https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456586/2025/06/28/club-world-cup-red-cards/
 **Jonathan Anderson Sets a New Dressing Agenda at Dior**\
 `The designer showed his first men’s collection. Was it any good?`\
 https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
-
-**Chelsea and Newcastle competing to sign Brighton's Joao Pedro**\
-`Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
-https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
 

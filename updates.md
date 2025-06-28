@@ -1,3 +1,7 @@
+**Maya Joint beats Alex Eala in stunning Eastbourne final, saving four championship points**\
+`When tennis powers downgraded the storied WTA tournament at Eastbourne, on the south coast of the U.`\
+https://nytimes.com/athletic/6458734/2025/06/28/eastbourne-open-joint-eala/
+
 **Klopp says Club World Cup 'worst idea ever implemented in football'**\
 `Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
 https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
