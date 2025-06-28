@@ -1,3 +1,7 @@
+**Fletcher in talks to become Manchester United under-18 head coach**\
+`Fletcher is expected to decide now is the right time to take on a lead coach role and support the club in filling a key vacancy.`\
+https://nytimes.com/athletic/6458631/2025/06/28/darren-fletcher-manchester-united-coach/
+
 **Paul Pogba joins Monaco on two-year contract**\
 `The 32-year-old had been a free agent since leaving Juventus in November 2024 and has not made a senior appearance since September 2023.`\
 https://nytimes.com/athletic/6458451/2025/06/28/paul-pogba-transfer-monaco/
