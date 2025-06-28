@@ -1,3 +1,7 @@
+**How to watch Mexico vs. Saudi Arabia: Historic stakes in Gold Cup quarterfinals**\
+`For Saudi Arabia, reaching this point of the 2025 Concacaf Gold Cup marks progress. For Mexico, the tournament starts now.`\
+https://nytimes.com/athletic/6457298/2025/06/28/concacaf-gold-cup-mexico-saudi-arabia-how-to-watch/
+
 **The Savannah Bananas are a baseball fever dream, and they're on national TV**\
 `There's always money in the banana stand, and there's always a good time in Banana Ball.`\
 https://nytimes.com/athletic/6452210/2025/06/28/savannah-bananas-rules-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/style/chanel-arts-and-culture-magazine.html
 **What Happened in the Closing Arguments of the Sean Combs Trial**\
 `The jurors will begin deliberating on Monday. The music mogul has pleaded not guilty to sex trafficking and racketeering conspiracy.`\
 https://nytimes.com/2025/06/28/arts/music/sean-combs-diddy-trial-closing-arguments.html
-
-**How to Potty-Train a Co-Worker**\
-`When a colleague isn’t housebroken, there are options. Plus, can you tell someone they’re getting too old to work?`\
-https://nytimes.com/2025/06/28/business/co-worker-bathroom-issues-advice.html
 
