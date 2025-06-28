@@ -2,7 +2,7 @@
 `The political turmoil set off by a leaked phone conversation shows no sign of easing, in a country where demonstrations have helped oust governments before.`\
 https://nytimes.com/2025/06/28/world/asia/thailand-protesters-prime-minister.html
 
-**Thompson runs record 100m time, Fraser-Pryce makes World Championships**\
+**Thompson runs world lead 100m time, Fraser-Pryce makes World Championships**\
 `Thompson's performance is the fastest men’s 100m for over a decade — since Gatlin ran 9.74s once and 9.75s twice in the summer of 2015.`\
 https://nytimes.com/athletic/6458478/2025/06/28/thompson-100m-record-fraser-pryce-jamaica-athletics/
 
