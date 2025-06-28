@@ -1,3 +1,11 @@
+**Senators add another prospect at a 'premium' position with Logan Hensler draft pick**\
+`"Right-handed defencemen are a premium" in the NHL. With Hensler and 2024 pick Carter Yakemchuk, Ottawa now has two in its prospect pool.`\
+https://nytimes.com/athletic/6457934/2025/06/28/senators-nhl-draft-logan-hensler-analysis/
+
+**Why the Canucks landed on Braeden Cootes with their first-round pick**\
+`Cootes is precisely the sort of high-variance bet that the Canucks should be making in bulk.`\
+https://nytimes.com/athletic/6458058/2025/06/28/canucks-nhl-draft-braeden-cootes/
+
 **Blackhawks add 3 more first-round draft picks to continue playing numbers game**\
 `In GM Kyle Davidson's eyes, the Blackhawks' first-round haul is a mix of quality and quantity.`\
 https://nytimes.com/athletic/6458237/2025/06/28/blackhawks-nhl-draft-frondell-nestrasil-west-first-round/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6458106/2025/06/28/twins-brooks-lee-david-festa-def
 **How Manchester City dismantled Juventus with straight passes and diagonal runs**\
 `Guardiola said it had been a 'long time' since his team had a performance like their win over Juventus. We break down how they did it...`\
 https://nytimes.com/athletic/6455931/2025/06/28/how-manchester-city-dismantled-juventus-with-straight-passes-and-diagonal-runs/
-
-**Islanders 'replenished' prospect pool with first-round draft haul**\
-`In addition to No. 1 pick Matthew Schaefer, New York made back-to-back selections Friday after trading defenseman Noah Dobson.`\
-https://nytimes.com/athletic/6457939/2025/06/28/islanders-matthew-schaefer-nhl-draft-analysis/
-
-**Kenny Bednarek knows what he wants, if he can just relax: 'Make money, get gold medals and just run fast'**\
-`The American is on a mission to become the world's fastest sprinter`\
-https://nytimes.com/athletic/6450426/2025/06/28/kenny-bednarek-interview/
 
