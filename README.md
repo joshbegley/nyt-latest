@@ -1,3 +1,7 @@
+**Judge Strikes Down Trump Order Targeting Another Top Law Firm**\
+`The ruling completed a clean sweep for the handful of law firms that took the risk of fighting the Trump administration in court, rather than accepting punitive conditions.`\
+https://nytimes.com/2025/06/27/us/politics/trump-susan-godfrey-law-firm-order.html
+
 **Don Bacon, House Republican Who Often Criticized Trump, Won’t Seek Re-election**\
 `The departure of the five-term lawmaker from Nebraska enhances Democrats’ chances of picking up a seat in the narrowly divided House.`\
 https://nytimes.com/2025/06/27/us/politics/don-bacon-retiring.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456729/2025/06/27/nhl-draft-pick-by-pick-tracker-2
 **NHL Draft grades, analysis for every 2025 first-round pick by Corey Pronman**\
 `Scouting reports and analysis of every first-round pick at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6440973/2025/06/27/nhl-draft-grades-2025-first-round-analysis/
-
-**Matthew Schaefer selected by New York Islanders with first pick in 2025 NHL Draft**\
-`Schaefer became the Islanders’ fifth No. 1 overall pick in franchise history, and projects as a future No. 1 defenseman.`\
-https://nytimes.com/athletic/6451164/2025/06/27/matthew-schaefer-islanders-nhl-draft-2025/
 
