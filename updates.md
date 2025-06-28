@@ -1,5 +1,9 @@
 **Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
 `The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
+https://nytimes.com/athletic/6458847/2025/06/28/blues-joel-hofer-free-agency-depth-chart/
+
+**Blues re-sign goalie Joel Hofer: What the depth chart looks like heading into free agency**\
+`The Blues signed backup goalie Joel Hofer to a two-year, $6.8 million contract extension Saturday.`\
 https://nytimes.com/athletic/6458847/2025/06/28/blues-re-sign-goalie-joel-hofer-what-the-depth-chart-looks-like-heading-into-free-agency/
 
 **Mikayla Raines, Who Rescued Foxes and Other Animals, Is Dead at 30**\
