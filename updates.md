@@ -1,3 +1,7 @@
+**Justin Tucker had a decision to make. Will it help him return to the field?**\
+`By accepting the league's ban, Tucker opted to fight for his career rather than continue to fight for his reputation. `\
+https://nytimes.com/athletic/6457460/2025/06/28/justin-tucker-nfl-suspension/
+
 **The Pulse: MLB's first half is done. Time for Regression Court**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
