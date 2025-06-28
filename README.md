@@ -1,3 +1,15 @@
+**Dallas Stars' Jim Nill wins third straight NHL General Manager of the Year Award**\
+`Nill is the first three-time winner in the award's history.`\
+https://nytimes.com/athletic/6400649/2025/06/27/jim-nill-dallas-stars-nhl-gm-award/
+
+**Crushing, in a Way**\
+`Jesse Guzman makes a swoonworthy Saturday debut.`\
+https://nytimes.com/2025/06/27/crosswords/daily-puzzle-2025-06-28.html
+
+**Maresca: Best for Acheampong to stay at Chelsea this season**\
+`Amid transfer interest in the 19-year-old rising talent, Chelsea's boss makes his wishes clear`\
+https://nytimes.com/athletic/6457876/2025/06/27/josh-acheampong-chelsea-enzo-maresca-plans/
+
 **What's in the new NHL CBA? Digging into the memorandum of understanding**\
 `From changes to the calendar to how the playoff salary cap will work, a look inside the new CBA based on a summary obtained by The Athletic.`\
 https://nytimes.com/athletic/6457760/2025/06/27/nhl-cba-provisions-schedule-ltir/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/27/nyregion/shark-bite-jones-beach-new-york.html
 **Judge Strikes Down Trump Order Targeting Another Top Law Firm**\
 `The ruling completed a clean sweep for the handful of law firms that took the risk of fighting the Trump administration in court, rather than accepting punitive conditions.`\
 https://nytimes.com/2025/06/27/us/politics/trump-susan-godfrey-law-firm-order.html
-
-**Don Bacon, House Republican Who Often Criticizes Trump, Won’t Seek Re-election**\
-`The departure of the five-term lawmaker from Nebraska enhances Democrats’ chances of picking up a seat in the narrowly divided House.`\
-https://nytimes.com/2025/06/27/us/politics/don-bacon-retiring.html
-
-**Craig Breslow on Red Sox trade deadline mindset: 'The future has to be now'**\
-`With the trade deadline just over 30 days away, Breslow has addressed three areas of need: starting pitching, bullpen help and another bat.`\
-https://nytimes.com/athletic/6457576/2025/06/27/craig-breslow-red-sox-trade-deadline/
-
-**How Every Senator Voted on the Iran War Powers Resolution**\
-`The Senate voted 53 to 47 to reject a resolution to block the president’s use of force against Iran without congressional approval.`\
-https://nytimes.com/interactive/2025/06/27/us/senate-war-powers-vote.html
 
