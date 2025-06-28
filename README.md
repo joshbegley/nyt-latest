@@ -1,3 +1,7 @@
+**What are the Maple Leafs getting in their 2025 NHL Draft picks?**\
+`The Leafs kept all six of their picks on Day 2. Here's what the picks' coaches and GMs had to say.`\
+https://nytimes.com/athletic/6458815/2025/06/28/maple-leafs-2025-draft-analysis-leach/
+
 **Musk Wades Back Into Politics, Slamming Trump’s Domestic Policy Bill**\
 `Weeks after ending his war of words with President Trump, Elon Musk called the president’s bill “utterly insane and destructive.”`\
 https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/sports/dave-parker-dead.html
 **Next season might be the hardest one of all for Sidney Crosby**\
 `As one name after another flooded the Penguins' prospect pool at the 2025 NHL Draft, it was hard not to think back to the captain.`\
 https://nytimes.com/athletic/6459397/2025/06/28/penguins-sidney-crosby-2025-nhl-draft/
-
-**The Advantages of Attacking the Net in Tennis**\
-`Analysts said it was a strategy that few employ, but that it could improve players’ games if they mastered the shot.`\
-https://nytimes.com/2025/06/28/sports/tennis/attacking-net-strategy.html
 
