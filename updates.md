@@ -1,3 +1,11 @@
+**Senate Republicans Revise Trump’s Policy Bill, Scrounging for Votes to Pass It**\
+`A new version of the measure released in the middle of the night would set aside money to help states hit by its cuts to Medicaid, hasten the end of clean energy tax credits and sweeten the state and local tax deduction.`\
+https://nytimes.com/2025/06/28/us/politics/senate-republicans-reconciliation.html
+
+**Trump Administration Live Updates: Senate Republicans Cut Deals to Win Votes on Domestic Policy Bill**\
+``\
+https://nytimes.com/live/2025/06/28/us/trump-news
+
 **Samin Nosrat’s Go-To Salad Dressing**\
 `Or: How to love your salads.`\
 https://nytimes.com/2025/06/28/dining/samin-nosrat-salad-dressing-recipes.html
