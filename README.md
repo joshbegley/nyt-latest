@@ -1,3 +1,7 @@
+**Blues, Joel Hofer agree to 2-year, $6.8 million contract extension**\
+`Hofer, 24, would have become an RFA if unsigned on July 1 and eligible to sign an offer sheet with another club.`\
+https://nytimes.com/athletic/6459084/2025/06/28/blues-joel-hofer-contract-extension/
+
 **Stream These 7 Movies and TV Shows Before They Leave in July**\
 `A ton of great titles are leaving next month for U.S. subscribers, many of them very soon. Catch them while you can.`\
 https://nytimes.com/2025/06/28/arts/television/netflix-leaving-july.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6458631/2025/06/28/darren-fletcher-manchester-unite
 **Paul Pogba joins Monaco on two-year contract**\
 `The 32-year-old had been a free agent since leaving Juventus in November 2024 and has not made a senior appearance since September 2023.`\
 https://nytimes.com/athletic/6458451/2025/06/28/paul-pogba-transfer-monaco/
-
-**Maya Joint beats Alex Eala in stunning Eastbourne final, saving four championship points**\
-`When tennis powers downgraded the storied WTA tournament at Eastbourne, on the south coast of the U.`\
-https://nytimes.com/athletic/6458734/2025/06/28/eastbourne-open-joint-eala/
 
