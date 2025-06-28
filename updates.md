@@ -1,3 +1,7 @@
+**From NHL Draft stage to Disneyland, a memorable night for Ducks' Roger McQueen**\
+`The Ducks thrilled McQueen by selecting him at No. 10, then sent him on a helicopter ride.`\
+https://nytimes.com/athletic/6458352/2025/06/28/ducks-draft-disneyland-mcqueen/
+
 **Sabres couldn’t make it work with JJ Peterka. Can they find a way to keep Bowen Byram?**\
 `Trading Peterka can help the Sabres in the long run, but Kevyn Adams needs to complete the work of building this team.`\
 https://nytimes.com/athletic/6458331/2025/06/28/sabres-jj-peterka-bowen-byram/

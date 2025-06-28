@@ -1,3 +1,7 @@
+**From NHL Draft stage to Disneyland, a memorable night for Ducks' Roger McQueen**\
+`The Ducks thrilled McQueen by selecting him at No. 10, then sent him on a helicopter ride.`\
+https://nytimes.com/athletic/6458352/2025/06/28/ducks-draft-disneyland-mcqueen/
+
 **Sabres couldn’t make it work with JJ Peterka. Can they find a way to keep Bowen Byram?**\
 `Trading Peterka can help the Sabres in the long run, but Kevyn Adams needs to complete the work of building this team.`\
 https://nytimes.com/athletic/6458331/2025/06/28/sabres-jj-peterka-bowen-byram/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458198/2025/06/28/bruins-james-hagens-nhl-draft-st
 **Busy draft day for Blue Jackets as trade talks fizzle before Smith, Andreyanov picks**\
 `GM Don Waddell walked the line between boosting the current roster and planning for the future in a series of Friday negotiations.`\
 https://nytimes.com/athletic/6458006/2025/06/28/blue-jackets-nhl-draft-trade-smith-andreyanov/
-
-**England women and a new focus after 'fitness' furore**\
-`After a chastening winter on and off the field, England women have a new coach, captain – and outlook. They know they have to respond`\
-https://nytimes.com/athletic/6455973/2025/06/28/england-women-india-cricket-charlotte-edwards-scrutiny/
 
