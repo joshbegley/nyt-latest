@@ -1,3 +1,7 @@
+**The Advantages of Attacking the Net in Tennis**\
+`Analysts said it was a strategy that few employ, but that it could improve players’ games if they mastered the shot.`\
+https://nytimes.com/2025/06/28/sports/tennis/attacking-net-strategy.html
+
 **Wild NHL Draft takeaways: Jonas Brodin out to start season, most interesting pick, stocking up on D**\
 `Also Judd Brackett calls one of the team's picks a "heat-seeking missile" and another a "abrasive, physical" prospect.`\
 https://nytimes.com/athletic/6459489/2025/06/28/wild-nhl-draft-jonas-brodin/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010256890/minnesota-lawmaker-husband
 **Shohei Ohtani throws fastest pitch of his MLB career**\
 `Ohtani continued to reach new heights in his third pitching appearance for the Los Angeles Dodgers.`\
 https://nytimes.com/athletic/6459424/2025/06/28/shohei-ohtani-fastest-pitch-mlb-career-dodgers/
-
-**Kneecap Brings Pro-Palestinian Politics Back Onstage at Glastonbury**\
-`The band landed in trouble over anti-Israel statements, and a member faces a terrorism charge. But at Britain’s biggest music festival, tens of thousands cheered it.`\
-https://nytimes.com/2025/06/28/arts/music/kneecap-glastonbury.html
 

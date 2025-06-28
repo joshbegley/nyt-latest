@@ -1,3 +1,7 @@
+**Wild NHL Draft takeaways: Jonas Brodin out to start season, most interesting pick, stocking up on D**\
+`Also Judd Brackett calls one of the team's picks a "heat-seeking missile" and another a "abrasive, physical" prospect.`\
+https://nytimes.com/athletic/6459489/2025/06/28/wild-nhl-draft-jonas-brodin/
+
 **NHL Draft 2025 grades for every team: Best picks, fits and analysis**\
 `Corey Pronman grades how every team performed at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6458881/2025/06/28/nhl-draft-2025-team-grades/

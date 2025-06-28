@@ -1,3 +1,7 @@
+**Wild NHL Draft takeaways: Jonas Brodin out to start season, most interesting pick, stocking up on D**\
+`Also Judd Brackett calls one of the team's picks a "heat-seeking missile" and another a "abrasive, physical" prospect.`\
+https://nytimes.com/athletic/6459489/2025/06/28/wild-nhl-draft-jonas-brodin/
+
 **NHL Draft 2025 grades for every team: Best picks, fits and analysis**\
 `Corey Pronman grades how every team performed at the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6458881/2025/06/28/nhl-draft-2025-team-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459424/2025/06/28/shohei-ohtani-fastest-pitch-mlb-
 **Kneecap Brings Pro-Palestinian Politics Back Onstage at Glastonbury**\
 `The band landed in trouble over anti-Israel statements, and a member faces a terrorism charge. But at Britain’s biggest music festival, tens of thousands cheered it.`\
 https://nytimes.com/2025/06/28/arts/music/kneecap-glastonbury.html
-
-**The Briefing: England beat Germany in thriller to retain Under-21 Euros title**\
-`Analysis as England survive a scare to beat Germany to win the U21 Euros for the second consecutive time`\
-https://nytimes.com/athletic/6459178/2025/06/28/england-germany-u21-euros-final-2025/
 
