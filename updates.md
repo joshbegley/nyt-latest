@@ -1,3 +1,7 @@
+**Better Half**\
+`The midpoint of the year is an opportune moment to look back at where we’ve been, and set our sights for where we want to go.`\
+https://nytimes.com/2025/06/28/briefing/better-half.html
+
 **NBA Draft grades for every team: Spurs, Hornets get As while Pelicans flunk**\
 `Sam Vecenie reviews every team's draft and has praise for the Wizards and Hawks and questions for the Suns.`\
 https://nytimes.com/athletic/6452980/2025/06/28/nba-draft-grades-team-by-team-2025/
