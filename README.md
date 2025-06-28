@@ -1,3 +1,15 @@
+**We Know Exactly Where the Supreme Court’s Change of Heart Has Come From**\
+`The justices’ strange about-face has a source.`\
+https://nytimes.com/2025/06/28/opinion/supreme-court-ketanji-jackson.html
+
+**Bulls agree to trade Lonzo Ball to Cavaliers for Isaac Okoro: Source**\
+`In 35 games, Ball averaged 7.6 points, 3.4 rebounds and 3.3 assists per game.`\
+https://nytimes.com/athletic/6458742/2025/06/28/lonzo-ball-trade-bulls-cavs-isaac-okoro/
+
+**Maybe It’s Not Just Aging. Maybe It’s Anemia.**\
+`Significant numbers of older people have the condition. Many find relief with an effective treatment that is being more widely prescribed.`\
+https://nytimes.com/2025/06/28/health/anemia-intravenous-iron.html
+
 **Senate Republicans Revise Trump’s Policy Bill, Scrounging for Votes to Pass It**\
 `A new version of the measure released in the middle of the night would set aside money to help states hit by its cuts to Medicaid, hasten the end of clean energy tax credits and sweeten the state and local tax deduction.`\
 https://nytimes.com/2025/06/28/us/politics/senate-republicans-reconciliation.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/28/us/trump-news
 **French Police Officers Who Beat a Black Man on Camera to Stand Trial**\
 `The brutal beating in 2020 of Michel Zecler, a well-known music producer, sent shock waves through France.`\
 https://nytimes.com/2025/06/28/world/europe/france-michel-zecler-police-beating-video.html
-
-**Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord**\
-`Nuclear experts say the president’s rejection of the restrictive deal forced him to neutralize an Iranian threat of his own making.`\
-https://nytimes.com/2025/06/28/science/iran-nuclear-uranium-metal.html
-
-**The Pulse: MLB's first half is done. Time for Regression Court**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
-
-**Justin Tucker had a decision to make. Will it help him return to the field?**\
-`By accepting the league's ban, Tucker opted to fight for his career rather than continue to fight for his reputation. `\
-https://nytimes.com/athletic/6457460/2025/06/28/justin-tucker-nfl-suspension/
 
