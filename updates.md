@@ -1,3 +1,11 @@
+**Senators add another prospect at a 'premium' position with Logan Hensler draft pick**\
+`"Right-handed defencemen are a premium" in the NHL. With Hensler and 2024 pick Carter Yakemchuk, Ottawa now has two in its prospect pool.`\
+https://nytimes.com/athletic/6457934/2025/06/28/senators-nhl-draft-logan-hensler-analysis/
+
+**Why the Canucks landed on Braeden Cootes with their first-round pick**\
+`Cootes is precisely the sort of high-variance bet that the Canucks should be making in bulk.`\
+https://nytimes.com/athletic/6458058/2025/06/28/canucks-nhl-draft-braeden-cootes/
+
 **Blackhawks add 3 more first-round draft picks to continue playing numbers game**\
 `In GM Kyle Davidson's eyes, the Blackhawks' first-round haul is a mix of quality and quantity.`\
 https://nytimes.com/athletic/6458237/2025/06/28/blackhawks-nhl-draft-frondell-nestrasil-west-first-round/
