@@ -1,3 +1,7 @@
+**Chelsea and Newcastle competing to sign Brighton's Joao Pedro**\
+`Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
+https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
+
 **Trump Administration Live Updates: Senate Republicans Seek to Pass Sprawling Domestic Policy Bill**\
 ``\
 https://nytimes.com/live/2025/06/28/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458457/2025/06/28/sunderland-transfer-record-habib
 **Yankees first-half awards: Aaron Judge for MVP, but who's LVP?**\
 `Judge is leading MLB in batting average (.358), on-base percentage (.458), slugging percentage (.712), OPS (1.170) and fWAR (6.1).`\
 https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-awards/
-
-**At Bezos’ Venetian Wedding: Buzz, Bling and Backlash**\
-`The over-the-top party in the photogenic Italian city mixed Hollywood, Silicon Valley and political overtones.`\
-https://nytimes.com/2025/06/28/world/europe/bezos-sanchez-venice-wedding.html
 
