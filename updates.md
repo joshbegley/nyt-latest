@@ -1,3 +1,7 @@
+**The Advantages of Attacking the Net in Tennis**\
+`Analysts said it was a strategy that few employ, but that it could improve players’ games if they mastered the shot.`\
+https://nytimes.com/2025/06/28/sports/tennis/attacking-net-strategy.html
+
 **Wild NHL Draft takeaways: Jonas Brodin out to start season, most interesting pick, stocking up on D**\
 `Also Judd Brackett calls one of the team's picks a "heat-seeking missile" and another a "abrasive, physical" prospect.`\
 https://nytimes.com/athletic/6459489/2025/06/28/wild-nhl-draft-jonas-brodin/
