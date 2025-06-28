@@ -1,3 +1,12 @@
+**Flames sign defenseman Kevin Bahl to 6-year, $32.1 million extension**\
+`Calgary acquired Bahl last summer as part of the Jacob Markstrom trade that also netted them a 2025 first-round pick.`\
+https://nytimes.com/athletic/6458854/2025/06/28/flames-kevin-bahl-free-agency-contract-nhl/
+
+**Sabres trade Connor Clifton and pick to Penguins for Conor Timmins, Isaac Belliveau**\
+`Buffalo traded the No. 39 pick in the 2025 NHL Draft in the deal, which Pittsburgh used to select Peyton Kettles.
+`\
+https://nytimes.com/athletic/6458917/2025/06/28/sabres-trade-connor-clifton-penguins-timmins-belliveau/
+
 **NHL trade grades: John Gibson, at last, is on the move as Red Wings shore up goaltending**\
 `The Red Wings added some stability to their crease while the Ducks finally moved on from their former franchise goalie.`\
 https://nytimes.com/athletic/6458894/2025/06/28/nhl-trade-grades-john-gibson-red-wings/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6458734/2025/06/28/eastbourne-open-joint-eala/
 **Klopp says Club World Cup 'worst idea ever implemented in football'**\
 `Klopp was speaking in relation to developing players, the volume of matches they play and the likelihood of increased injury risk.`\
 https://nytimes.com/athletic/6458725/2025/06/28/klopp-club-world-cup-criticism/
-
-**F1 Austrian GP qualifying briefing: Norris storms to pole ahead of Leclerc and Piastri**\
-`McLaren's Lando Norris blew away his Formula One opposition to claim pole position for the 2025 Austrian Grand Prix`\
-https://nytimes.com/athletic/6458593/2025/06/28/f1-austrian-gp-qualifying-results-lando-norris-pole/
-
-**We Know Exactly Where the Supreme Court’s Change of Heart Has Come From**\
-`The justices’ strange about-face has a source.`\
-https://nytimes.com/2025/06/28/opinion/supreme-court-ketanji-jackson.html
 
