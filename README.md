@@ -1,3 +1,7 @@
+**How the Club World Cup has seen a unexpected flurry of red cards**\
+`10 red cards were issued during the Club World Cup's group stage, for a variety of potential reasons.`\
+https://nytimes.com/athletic/6456586/2025/06/28/club-world-cup-red-cards/
+
 **Jonathan Anderson Sets a New Dressing Agenda at Dior**\
 `The designer showed his first men’s collection. Was it any good?`\
 https://nytimes.com/2025/06/28/style/jonathan-anderson-dior-mens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/28/business/dealbook/etf-mutual-funds.html
 **Iran Holds State Funeral for Military Commanders and Nuclear Scientists**\
 `A procession of marchers honored prominent figures killed during the 12-day war with Israel.`\
 https://nytimes.com/2025/06/28/world/middleeast/iran-funerals-israel-war.html
-
-**Sunderland set to sign Strasbourg's Diarra in club-record transfer**\
-`The 21-year-old has spent the entirety of his professional career at the Ligue 1 club, scoring 10 goals across 99 first-team appearances.`\
-https://nytimes.com/athletic/6458457/2025/06/28/sunderland-transfer-record-habib-diarra/
 
