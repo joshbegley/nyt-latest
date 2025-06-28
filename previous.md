@@ -1,3 +1,7 @@
+**The Pulse: MLB's first half is done. Time for Regression Court**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
+
 **E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
 `Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
 https://nytimes.com/2025/06/28/business/dealbook/etfs-are-booming-mutual-funds-want-in-on-the-action.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6457671/2025/06/28/nba-offseason-themes-pacers-nugg
 **Filipe Luis: The Flamengo coach who is making a hard job look easy**\
 `Tipped to manage Brazil in the future, Filipe Luis has already made a big impression at the Club World Cup this summer`\
 https://nytimes.com/athletic/6457687/2025/06/28/felipe-luis-profile-flamengo-club-world-cup/
-
-**The Supreme Court Is Watching Out for the Courts, Not for Trump**\
-`How the court reaffirmed the proper role of the federal courts within our constitutional system.`\
-https://nytimes.com/2025/06/28/opinion/birthright-citizenship-supreme-court-injunction.html
 

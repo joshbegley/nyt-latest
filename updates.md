@@ -1,3 +1,7 @@
+**The Pulse: MLB's first half is done. Time for Regression Court**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
+
 **E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
 `Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
 https://nytimes.com/2025/06/28/business/dealbook/etfs-are-booming-mutual-funds-want-in-on-the-action.html

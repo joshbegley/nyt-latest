@@ -2,6 +2,10 @@
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6458028/2025/06/28/mlb-first-half-the-pulse/
 
+**Justin Tucker had a decision to make. Will it help him return to the field?**\
+`By accepting the league's ban, Tucker opted to fight for his career rather than continue to fight for his reputation. `\
+https://nytimes.com/athletic/6457460/2025/06/28/justin-tucker-nfl-suspension/
+
 **E.T.F.s Are Booming. Mutual Funds Want In on the Action.**\
 `Asset managers are eagerly awaiting an S.E.C. decision that would allow mutual funds to also trade as E.T.F.s — potentially changing how trillions of dollars are invested.`\
 https://nytimes.com/2025/06/28/business/dealbook/etfs-are-booming-mutual-funds-want-in-on-the-action.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458478/2025/06/28/thompson-100m-record-fraser-pryc
 **NBA offseason themes to watch: Pacers' roster-building, second-apron fears and more**\
 `An unpredictable tax situation. A player’s contract again at the center of mixed messaging. And the NBA is avoiding one boogeyman.`\
 https://nytimes.com/athletic/6457671/2025/06/28/nba-offseason-themes-pacers-nuggets-bradley-beal-suns/
-
-**Filipe Luis: The Flamengo coach who is making a hard job look easy**\
-`Tipped to manage Brazil in the future, Filipe Luis has already made a big impression at the Club World Cup this summer`\
-https://nytimes.com/athletic/6457687/2025/06/28/felipe-luis-profile-flamengo-club-world-cup/
 
