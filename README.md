@@ -1,3 +1,11 @@
+**Lalo Schifrin, 93, Dies; Composer of ‘Mission: Impossible’ and Much More**\
+`He was best known for one enduring TV theme, but he had a startlingly diverse career as a composer, arranger and conductor in a wide range of genres.`\
+https://nytimes.com/2025/06/28/arts/music/lalo-schifrin-dead.html
+
+**Chief Justice Urges Political Leaders to Tone Down Rhetoric**\
+`At a conference with federal judges, the chief justice did not mention the court’s decision sharply limiting their power, focusing instead on the danger of threats to the judiciary.`\
+https://nytimes.com/2025/06/28/us/chief-justice-roberts-threats.html
+
 **Zohran Mamdani Returns to Harlem to Make His Pitch to Black New Yorkers**\
 `The presumptive Democratic nominee for mayor, who has struggled to make inroads with the Black community, spoke at the Rev. Al Sharpton’s National Action Network on Saturday.`\
 https://nytimes.com/2025/06/28/nyregion/mamdani-harlem-black-voters.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/28/us/politics/senate-republicans-tax-bill-cost.html
 **Senators acquire defenseman Jordan Spence from Kings for draft picks**\
 `The 24-year-old Australian-born defenseman scored four goals and 28 points in 79 games with the Kings last season.`\
 https://nytimes.com/athletic/6458846/2025/06/28/senators-kings-jordan-spence-trade-nhl/
-
-**Red Wings trade for John Gibson from Ducks: Why now, and why Detroit?**\
-`The Detroit Red Wings have made their first potential upgrade of the 2025 offseason — and it's in the crease.`\
-https://nytimes.com/athletic/6458891/2025/06/28/red-wings-john-gibson-trade-ducks/
-
-**Fletcher in talks to become Manchester United under-18 head coach**\
-`Fletcher is expected to decide now is the right time to take on a lead coach role and support the club in filling a key vacancy.`\
-https://nytimes.com/athletic/6458631/2025/06/28/darren-fletcher-manchester-united-coach/
 
