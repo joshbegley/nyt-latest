@@ -1,3 +1,11 @@
+**Don Bacon, House Republican Who Often Criticized Trump, Won’t Seek Re-election**\
+`The departure of the five-term lawmaker from Nebraska enhances Democrats’ chances of picking up a seat in the narrowly divided House.`\
+https://nytimes.com/2025/06/27/us/politics/don-bacon-retiring.html
+
+**Craig Breslow on Red Sox trade deadline mindset: 'The future has to be now'**\
+`With the trade deadline just over 30 days away, Breslow has addressed three areas of need: starting pitching, bullpen help and another bat.`\
+https://nytimes.com/athletic/6457576/2025/06/27/craig-breslow-red-sox-trade-deadline/
+
 **How Every Senator Voted on the Iran War Powers Resolution**\
 `The Senate voted 53 to 47 to reject a resolution to block the president’s use of force against Iran without congressional approval.`\
 https://nytimes.com/interactive/2025/06/27/us/senate-war-powers-vote.html
