@@ -1,3 +1,11 @@
+**Yankees first-half awards: Aaron Judge for MVP, but who's LVP?**\
+`Judge is leading MLB in batting average (.358), on-base percentage (.458), slugging percentage (.712), OPS (1.170) and fWAR (6.1).`\
+https://nytimes.com/athletic/6458015/2025/06/28/yankees-aaron-judge-first-half-awards/
+
+**At Bezos’ Venetian Wedding: Buzz, Bling and Backlash**\
+`The over-the-top party in the photogenic Italian city mixed Hollywood, Silicon Valley and political overtones.`\
+https://nytimes.com/2025/06/28/world/europe/bezos-sanchez-venice-wedding.html
+
 **Thai Protesters Vent Their Exasperation With the Prime Minister**\
 `The political turmoil set off by a leaked phone conversation shows no sign of easing, in a country where demonstrations have helped oust governments before.`\
 https://nytimes.com/2025/06/28/world/asia/thailand-protesters-prime-minister.html
