@@ -1,3 +1,7 @@
+**Chelsea and Newcastle competing to sign Brighton's Joao Pedro**\
+`Brighton have not accepted any bid for the 23-year-old Brazil international, with Chelsea and Newcastle both in talks over a move.`\
+https://nytimes.com/athletic/6330808/2025/06/28/joao-pedro-transfer-chelsea-newcastle/
+
 **Trump Administration Live Updates: Senate Republicans Seek to Pass Sprawling Domestic Policy Bill**\
 ``\
 https://nytimes.com/live/2025/06/28/us/trump-news
