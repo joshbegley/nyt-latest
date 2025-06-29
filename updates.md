@@ -1,3 +1,11 @@
+**Canada flops vs. Guatemala in PKs, out of Gold Cup in quarterfinals**\
+`Canada had aspirations of winning the Gold Cup. Instead, it's on the wrong side of Guatemala's history and left to lament an early ouster `\
+https://nytimes.com/athletic/6461181/2025/06/29/canada-guatemala-gold-cup-quarterfinals-penalty-kicks/
+
+**Magic decline Moe Wagner's team option. Is finding a point guard next?**\
+`Sunday's decision on Wagner sets the stage for the Magic to seek perimeter help during free agency.`\
+https://nytimes.com/athletic/6460983/2025/06/29/orlando-magic-decline-moe-wagner-team-option/
+
 **With Accounting Gimmick, Republicans Upend Senate Norms**\
 `Senate Republicans are charging forward with a plan to disregard the chamber’s longtime rules affecting what bills can be passed along party lines.`\
 https://nytimes.com/2025/06/29/us/politics/with-accounting-gimmick-republicans-upend-senate-norms.html

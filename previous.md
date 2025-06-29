@@ -1,3 +1,11 @@
+**Canada flops vs. Guatemala in PKs, out of Gold Cup in quarterfinals**\
+`Canada had aspirations of winning the Gold Cup. Instead, it's on the wrong side of Guatemala's history and left to lament an early ouster `\
+https://nytimes.com/athletic/6461181/2025/06/29/canada-guatemala-gold-cup-quarterfinals-penalty-kicks/
+
+**Magic decline Moe Wagner's team option. Is finding a point guard next?**\
+`Sunday's decision on Wagner sets the stage for the Magic to seek perimeter help during free agency.`\
+https://nytimes.com/athletic/6460983/2025/06/29/orlando-magic-decline-moe-wagner-team-option/
+
 **With Accounting Gimmick, Republicans Upend Senate Norms**\
 `Senate Republicans are charging forward with a plan to disregard the chamber’s longtime rules affecting what bills can be passed along party lines.`\
 https://nytimes.com/2025/06/29/us/politics/with-accounting-gimmick-republicans-upend-senate-norms.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6461233/2025/06/29/byu-qb-jake-retzlaff-sexual-assa
 **We Shouldn’t Have Billionaires, Mamdani Says**\
 `Appearing on “Meet the Press” days after the mayoral primary, Zohran Mamdani defended his proposals to make New York City more affordable and to increase taxes on the wealthy.`\
 https://nytimes.com/2025/06/29/nyregion/zohran-mamdani-nyc-affordability-billionaires.html
-
-**Gluck: Chase Elliott's latest win reminds us distance does not equal disinterest**\
-`Chase Elliott separates from NASCAR in a way most drivers and fans don't. That doesn't mean he's not all-in on what counts.`\
-https://nytimes.com/athletic/6460161/2025/06/29/chase-elliott-nascar-atlanta-motor-speedway-win/
-
-**Maple Leafs re-sign Matthew Knies to six-year extension**\
-`Maple Leafs lock up RFA power forward for 6 years at an annual value of $7.75 million.`\
-https://nytimes.com/athletic/6440505/2025/06/29/maple-leafs-matthew-knies-contract-nhl/
 
