@@ -1,3 +1,7 @@
+**How much longer can Oilers afford to wait to make a decision on their goalies?**\
+`With John Gibson and Joel Hofer now off the board, the pickings are even slimmer should Edmonton opt to make changes in net.`\
+https://nytimes.com/athletic/6459771/2025/06/28/oilers-goaltending-bowman-gibson/
+
 **What a Mitch Marner deal would mean for the Golden Knights and their cap situation**\
 `If Vegas added Marner, it could have close to $50 million in cap space committed to five players.`\
 https://nytimes.com/athletic/6459776/2025/06/28/mitch-marner-golden-knights-salary-cap/
