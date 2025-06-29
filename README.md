@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6458487/2025/06/29/lionel-messi-miami-soccer-inter/
 `As the iconic band prepare to begin their comeback tour, Michael Cox looks at how football and Oasis has always been a natural combination`\
 https://nytimes.com/athletic/6447624/2025/06/29/complete-history-of-oasis-and-football/
 
+**Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
+`What the Chelsea coach said about the weather delays and the key questions answered`\
+https://nytimes.com/athletic/6459997/2025/06/29/maresca-chelsea-delay-joke/
+
 **Bonmati's illness is a cruel blow for Spain, who have been here before on the eve of a Euros**\
 `The Ballon d'Or winner is in hospital with viral meningitis and her participation at the Euros is in doubt`\
 https://nytimes.com/athletic/6459092/2025/06/29/aitana-bonmati-illness-euros-meningitis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455734/2025/06/29/england-u21-euros-inside-story/
 **Women's Euro 2025 team guides: Everything you need to know about the 16 competing nations**\
 `Who are the key players? What are the tactics? Are they in form? Read our guides to the teams taking part in this summer's tournament`\
 https://nytimes.com/athletic/6458968/2025/06/29/womens-euro-2025-team-guides/
-
-**The rise of Gonzalo Garcia, Real Madrid's breakthrough star of the Club World Cup**\
-`The 21-year-old has shone while deputising for Kylian Mbappe, making good on the ambitious mindset he cultivated in Madrid's youth ranks`\
-https://nytimes.com/athletic/6458679/2025/06/29/gonzalo-garcia-real-madrid-club-world-cup/
 
