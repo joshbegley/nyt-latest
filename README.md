@@ -1,3 +1,11 @@
+**Michigan beats Ohio State for Carter Meadows in crucial recruiting battle**\
+`The Michigan-Ohio State rivalry got some big offseason news when the Wolverines landed top-100 DE Carter Meadows on Sunday.`\
+https://nytimes.com/athletic/6461091/2025/06/29/carter-meadows-michigan-recruiting-ohio-state/
+
+**Caitlin Clark, Napheesa Collier named WNBA All-Star captains**\
+`Clark and Collier were named captains because they received the highest number of fan votes among the All-Star starters.`\
+https://nytimes.com/athletic/6461072/2025/06/29/caitlin-clark-napheesa-collier-wnba-all-star-captains/
+
 **Hicks nearing Red Sox bullpen debut with a new pitch after Devers trade**\
 `The 28-year-old has been on the injury list since early June with toe inflammation, but is set to be activated on Monday.`\
 https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6422385/2025/06/29/senators-claude-giroux-contract-
 **Inter Miami first half vs PSG was a 'bloodbath' – coach Javier Mascherano**\
 `The MLS club were outclassed by Europe's recent Champions League winners in the first 45 minutes and eventually lost 4-0.`\
 https://nytimes.com/athletic/6460883/2025/06/29/inter-miami-psg-mascherano-messi/
-
-**Malik Beasley under gambling investigation by U.S. District Attorney**\
-`Beasley signed a one-year, $6 million deal with the Detroit Pistons ahead of last season, and is now set to hit unrestricted free agency.`\
-https://nytimes.com/athletic/6460622/2025/06/29/malik-beasley-gambling-investigation-pistons-nba-free-agency/
-
-**Austrian Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the race in Spielberg?`\
-https://nytimes.com/athletic/6460913/2025/06/29/f1-mailbag-austrian-grand-prix/
 
