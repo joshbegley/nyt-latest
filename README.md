@@ -1,3 +1,7 @@
+**Giants Mailbagg: What happened to San Francisco's offense?**\
+`Fans want to know why the Giants aren't scoring more runs. The Giants do, too. Plus, should they move on from Matt Williams? `\
+https://nytimes.com/athletic/6459330/2025/06/29/sf-giants-offense-struggles-mailbag/
+
 **The 'joke' Club World Cup weather delays and an ominous warning for World Cup 2026**\
 `What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go`\
 https://nytimes.com/athletic/6460275/2025/06/29/maresca-joke-weather-delays-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/briefing/obergefell-marriage-equality.html
 **Bailey Ober's historic struggles continue in Twins' loss to Tigers**\
 `Ober's 14 homers allowed in June ties Bert Blyleven's 1986 Twins record and ranks second-most in a calendar month in MLB history.`\
 https://nytimes.com/athletic/6459633/2025/06/29/twins-bailey-ober-14-home-runs/
-
-**Calvert-Lewin scored one of Everton's most important goals, but his exit feels right**\
-`Calvert-Lewin's departure after nine years at Goodison gives player and club chance for a new start – he owes Everton very little `\
-https://nytimes.com/athletic/6424374/2025/06/29/dominic-calvert-lewin-everton-exit-transfer/
 
