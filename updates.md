@@ -1,3 +1,7 @@
+**Tillis Announces He Won’t Run Again as Trump Threatens Him With a Primary**\
+`The day after President Trump castigated the North Carolina Republican for saying he was opposed to the policy bill carrying his domestic agenda, the senator announced he would not seek a third term.`\
+https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html
+
 **Dante Fabbro re-signs with Blue Jackets for 4 years, avoids free agency**\
 `Fabbro was set to be one of the most interesting free agents on the market.`\
 https://nytimes.com/athletic/6453869/2025/06/29/fabbro-blue-jackets-contract/

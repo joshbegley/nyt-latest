@@ -1,3 +1,11 @@
+**Austrian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Spielberg?`\
+https://nytimes.com/athletic/6460913/2025/06/29/f1-mailbag-austrian-grand-prix/
+
+**Norris’s perfect Austria weekend may change his F1 title narrative, but he's not assuming so**\
+`Lando Norris took a confidence-boosting victory in Formula One's 2025 Austrian GP. It made for a quick turnaround after his Canada struggles`\
+https://nytimes.com/athletic/6460653/2025/06/29/lando-norris-austrian-gp-analysis-oscar-piastri/
+
 **Dante Fabbro re-signs with Blue Jackets for 4 years, avoids free agency**\
 `Fabbro was set to be one of the most interesting free agents on the market.`\
 https://nytimes.com/athletic/6453869/2025/06/29/fabbro-blue-jackets-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6453273/2025/06/29/lionel-messi-inter-miami-psg-hig
 **Trump Says He’s Found Buyers for TikTok**\
 `He didn’t say who was interested in buying the app, just that it was “a group of very wealthy people.” But the Chinese government needs to approve any sale.`\
 https://nytimes.com/2025/06/29/us/politics/trump-tiktok-buyer.html
-
-**‘F1: The Movie’ Gives Apple Its First Box Office Hit**\
-`But the movie cost at least $350 million to make and market, analysts said, so it will need to attract substantial crowds in the weeks ahead to make money.`\
-https://nytimes.com/2025/06/29/business/media/f1-the-movie-apple-box-office.html
-
-**Spurs keep building their way as they seek the 'mountaintop' once again**\
-`San Antonio has been in the draft lottery the past six seasons. Its newest faces seem confident that will end soon.`\
-https://nytimes.com/athletic/6460592/2025/06/29/dylan-harper-carter-bryant-spurs-introduction/
 
