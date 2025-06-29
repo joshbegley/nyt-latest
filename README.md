@@ -1,3 +1,7 @@
+**James Harden to re-sign with Clippers for 2 years, $81.5 million: Sources**\
+`The second year of the deal is partially guaranteed with a player option.`\
+https://nytimes.com/athletic/6460962/2025/06/29/james-harden-opt-out-clippers/
+
 **Bobby Portis, Bucks agree to 3-year, $44 million extension: Sources**\
 `Portis' deal with the Bucks includes a player option for the 2027-28 season.`\
 https://nytimes.com/athletic/6460815/2025/06/29/bobby-portis-bucks-contract-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-deb
 **D. Wayne Lukas, Horse Trainer Who Saddled Champions From Coast to Coast, Dies at 89**\
 `He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
 https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
-
-**Jazz trade Collin Sexton to Hornets for Jusuf Nurkić: Sources**\
-`Utah is also sending a future second-round pick to Charlotte in the deal.`\
-https://nytimes.com/athletic/6461034/2025/06/29/jazz-collin-sexton-hornets-nurkic-trade/
 
