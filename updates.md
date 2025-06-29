@@ -1,3 +1,19 @@
+**Gluck: Chase Elliott's latest win reminds us that distance does not equal disinterest**\
+`Chase Elliott separates from NASCAR in a way most drivers and fans don't. That doesn't mean he's not all-in on what counts.`\
+https://nytimes.com/athletic/6460161/2025/06/29/chase-elliott-nascar-atlanta-motor-speedway-win/
+
+**Maple Leafs re-sign Matthew Knies to six-year extension**\
+`Maple Leafs lock up RFA power forward for 6 years at an annual value of $7.75 million.`\
+https://nytimes.com/athletic/6440505/2025/06/29/maple-leafs-matthew-knies-contract-nhl/
+
+**Police Officers Protest Pride After Being Barred From Marching With Guns**\
+`An L.G.B.T.Q. officers’ group had been barred from New York City’s Pride March since 2021. This year, organizers said they could participate only if they left their weapons at home.`\
+https://nytimes.com/2025/06/29/nyregion/gay-nypd-nyc-pride-march.html
+
+**Bobby Portis, Bucks agree to 3-year, $44 million extension: Sources**\
+`Portis, who became a fan favorite in Milwaukee for his underdog persona, ultimately agreed to a deal that made sense for both sides.`\
+https://nytimes.com/athletic/6460815/2025/06/29/bobby-portis-bucks-contract-free-agency/
+
 **D. Wayne Lukas, Horse Trainer Who Saddled Champions, Dies at 89**\
 `He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
 https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
