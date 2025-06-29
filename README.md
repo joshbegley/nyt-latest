@@ -1,3 +1,11 @@
+**Richard Carapaz ruled out of Tour de France with stomach bug**\
+`It comes less than a month after the 32-year-old Ecuadorian record a podium finish at the Giro d'Italia.`\
+https://nytimes.com/athletic/6460179/2025/06/29/tour-de-france-richard-carapaz/
+
+**For South Koreans,‘Squid Game’ Was More Than Just Entertainment**\
+`The Netflix hit has left a lasting legacy as a major cultural export, but also one that exposed some unsettling aspects of Korean society.`\
+https://nytimes.com/2025/06/29/world/asia/south-korean-squid-game-entertainment.html
+
 **How to watch the USWNT vs. Ireland on Sunday, their second friendly this week**\
 `Rose Lavelle is back on the pitch, and she now gets to show out for her home city.`\
 https://nytimes.com/athletic/6456632/2025/06/29/uswnt-ireland-america-womens-soccer-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/nyregion/trump-cuts-lgbtq-funding.html
 **New York City Pride March Arrives Amid Growing National Backlash**\
 `As millions gather on Sunday for America’s largest Pride parade, the L.G.B.T.Q. community is increasingly concerned about the pushback against transgender people.`\
 https://nytimes.com/2025/06/29/nyregion/nyc-pride-parade-march.html
-
-**Jake Paul beats Chavez Jr., another over-the-hill former champ, with ease**\
-`“All the boos are words and action speak louder than words. So y’all can shut the f— up,” Paul said after Saturday’s win.`\
-https://nytimes.com/athletic/6460122/2025/06/29/jake-paul-julio-cesar-chavez-jr-result/
-
-**Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
-`El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
-https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/
 
