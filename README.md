@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, June 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/29/todays-new-york-times
+
+**America Can’t Do to North Korea What It Just Did to Iran**\
+`The Trump administration should embrace a North Korea strategy that aims to contain escalation, not keep a white-knuckled grip on a failed policy.`\
+https://nytimes.com/2025/06/29/opinion/north-korea-nuclear-weapons.html
+
 **Lionel Messi has made Miami America's new soccer capital. Will it last?**\
 `The world and everything in it has come to Miami. But, after Messi, after the World Cup, will it stay there?`\
 https://nytimes.com/athletic/6458487/2025/06/29/lionel-messi-miami-soccer-inter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6456114/2025/06/29/womens-euro-2025-home-kits-ranke
 **The football manager working at an airport: 'Why? Because you can learn from anything'**\
 `Former Swansea head coach Luke Williams opens up on his decision to work as a customer care assistant at a British airport`\
 https://nytimes.com/athletic/6456107/2025/06/29/luke-williams-airport-manager-swansea/
-
-**Inside England's U21 Euros win: 'Creative' selections, dodgeball drills and padel**\
-`England are U21 European champions for a second consecutive time - this is how they did it`\
-https://nytimes.com/athletic/6455734/2025/06/29/england-u21-euros-inside-story/
-
-**Women's Euro 2025 team guides: Everything you need to know about the 16 competing nations**\
-`Who are the key players? What are the tactics? Are they in form? Read our guides to the teams taking part in this summer's tournament`\
-https://nytimes.com/athletic/6458968/2025/06/29/womens-euro-2025-team-guides/
 
