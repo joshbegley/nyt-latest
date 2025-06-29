@@ -1,3 +1,7 @@
+**With Accounting Gimmick, Republicans Upend Senate Norms**\
+`Senate Republicans are charging forward with a plan to disregard the chamber’s longtime rules affecting what bills can be passed along party lines.`\
+https://nytimes.com/2025/06/29/us/politics/with-accounting-gimmick-republicans-upend-senate-norms.html
+
 **Lionel Messi carried Inter Miami and FIFA as far as he could but football is a team game**\
 `Lionel Messi is the face of his team, his league and the Club World Cup but ultimately there is a limit to his superpowers`\
 https://nytimes.com/athletic/6460580/2025/06/29/lionel-messi-club-world-cup-fifa-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6460161/2025/06/29/chase-elliott-nascar-atlanta-mot
 **Maple Leafs re-sign Matthew Knies to six-year extension**\
 `Maple Leafs lock up RFA power forward for 6 years at an annual value of $7.75 million.`\
 https://nytimes.com/athletic/6440505/2025/06/29/maple-leafs-matthew-knies-contract-nhl/
-
-**Police Officers Protest Pride After Being Barred From Marching With Guns**\
-`An L.G.B.T.Q. officers’ group had been barred from New York City’s Pride March since 2021. This year, organizers said they could participate only if they left their weapons at home.`\
-https://nytimes.com/2025/06/29/nyregion/gay-nypd-nyc-pride-march.html
 
