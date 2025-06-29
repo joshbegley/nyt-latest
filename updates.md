@@ -1,3 +1,7 @@
+**U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’**\
+`The assessment widens the divide with President Trump, who has claimed that Tehran has given up its nuclear ambitions after a U.S. attack.`\
+https://nytimes.com/2025/06/29/us/politics/un-iran-nuclear-program-enrichment.html
+
 **Michigan beats Ohio State for Carter Meadows in crucial recruiting battle**\
 `The Michigan-Ohio State rivalry got some big offseason news when the Wolverines landed top-100 DE Carter Meadows on Sunday.`\
 https://nytimes.com/athletic/6461091/2025/06/29/carter-meadows-michigan-recruiting-ohio-state/
