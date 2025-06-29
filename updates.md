@@ -1,3 +1,11 @@
+**Austrian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Spielberg?`\
+https://nytimes.com/athletic/6460913/2025/06/29/f1-mailbag-austrian-grand-prix/
+
+**Norris’s perfect Austria weekend may change his F1 title narrative, but he's not assuming so**\
+`Lando Norris took a confidence-boosting victory in Formula One's 2025 Austrian GP. It made for a quick turnaround after his Canada struggles`\
+https://nytimes.com/athletic/6460653/2025/06/29/lando-norris-austrian-gp-analysis-oscar-piastri/
+
 **Tillis Announces He Won’t Run Again as Trump Threatens Him With a Primary**\
 `The day after President Trump castigated the North Carolina Republican for saying he was opposed to the policy bill carrying his domestic agenda, the senator announced he would not seek a third term.`\
 https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html

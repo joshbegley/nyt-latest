@@ -1,3 +1,11 @@
+**Inter Miami first half vs PSG was a 'bloodbath' - coach Javier Mascherano**\
+`The MLS club were outclassed by Europe's recent Champions League winners in the first 45 minutes and eventually lost 4-0.`\
+https://nytimes.com/athletic/6460883/2025/06/29/inter-miami-psg-mascherano-messi/
+
+**Malik Beasley under gambling investigation by U.S. District Attorney**\
+`Beasley signed a one-year, $6 million deal with the Detroit Pistons ahead of last season, and is now set to hit unrestricted free agency.`\
+https://nytimes.com/athletic/6460622/2025/06/29/malik-beasley-gambling-investigation-pistons-nba-free-agency/
+
 **Austrian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Spielberg?`\
 https://nytimes.com/athletic/6460913/2025/06/29/f1-mailbag-austrian-grand-prix/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6460600/2025/06/29/england-jamaica-lionesses-euros-
 **Dodgers Q&A: Fabian Ardaya on the trade deadline, Shohei Ohtani, 2026 and more**\
 `Submit your questions about the Dodgers for Fabian Ardaya's Q&A.`\
 https://nytimes.com/athletic/6459611/2025/06/29/dodgers-live-qa-fabian-ardaya-trade-deadline-shohei-ohtani/
-
-**Lionel Messi's Inter Miami humbled in crushing Club World Cup exit – Paris Saint-Germain 4 Inter Miami 0**\
-`How Lionel Messi's Club World Cup ended and what makes PSG so good`\
-https://nytimes.com/athletic/6453273/2025/06/29/lionel-messi-inter-miami-psg-highlights/
-
-**Trump Says He’s Found Buyers for TikTok**\
-`He didn’t say who was interested in buying the app, just that it was “a group of very wealthy people.” But the Chinese government needs to approve any sale.`\
-https://nytimes.com/2025/06/29/us/politics/trump-tiktok-buyer.html
 
