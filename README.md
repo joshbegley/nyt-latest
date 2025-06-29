@@ -1,3 +1,7 @@
+**The Pulse: Caitlin Clark's complicated season**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6460000/2025/06/29/caitlin-clarks-drama-filled-season-rolls-on-plus-ohtani-hits-100/
+
 **With immediate future on defense uncertain, which players could the Kings target?**\
 `With Vladislav Gavrikov looking increasingly likely to hit free agency and Jordan Spence traded to Ottawa, the Kings' blue line has holes.`\
 https://nytimes.com/athletic/6459998/2025/06/29/kings-defense-targets-holland-spence-gavrikov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459377/2025/06/29/tigers-matt-vierling-trey-sweene
 **Breaking down Winnipeg's 2025 draft: Sascha Boumedienne leads five-player class**\
 `From Sascha Boumedienne in the first round to hometown hero Owen Martin, here's a breakdown of Winnipeg's five-player 2025 draft class. `\
 https://nytimes.com/athletic/6459831/2025/06/29/what-are-the-winnipeg-jets-getting-in-their-2025-nhl-draft-picks/
-
-**Calvert-Lewin confirms Everton exit as free agent**\
-`Everton offered the 11-time England international a new deal towards the end of 2023-24 but no agreement on an extension was reached.`\
-https://nytimes.com/athletic/6301982/2025/06/29/dominic-calvert-lewin-everton-leaves/
 
