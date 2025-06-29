@@ -1,3 +1,7 @@
+**Monday Briefing: The Toll of an Attack on an Iranian Prison**\
+`Plus, correcting Captain Nemo.`\
+https://nytimes.com/2025/06/29/briefing/iran-israel-evin-prison-trump-venezuela-immigration-ukraine-russia.html
+
 **U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’**\
 `The assessment widens the divide with President Trump, who has claimed that Tehran has given up its nuclear ambitions after a U.S. attack.`\
 https://nytimes.com/2025/06/29/us/politics/un-iran-nuclear-program-enrichment.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6461072/2025/06/29/caitlin-clark-napheesa-collier-w
 `The 28-year-old has been on the injury list since early June with toe inflammation, but is set to be activated on Monday.`\
 https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-debut/
 
-**D. Wayne Lukas, Trainer Who Saddled 15 Triple Crown Winners, Dies at 89**\
+**D. Wayne Lukas, Horse Trainer Who Saddled Champions From Coast to Coast, Dies at 89**\
 `He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
 https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6448096/2025/06/29/d-wayne-lukas-horse-trainer-dies
 **‘Pastoral’ Review: Sampling Beethoven at Bard**\
 `The latest work by the choreographer Pam Tanowitz combines music and design in fresh and delightfully unpredictable ways.`\
 https://nytimes.com/2025/06/29/arts/dance/tanowitz-pastoral-review.html
-
-**Claude Giroux re-signs with Senators on 1-year, $2 million deal**\
-`The 37-year-old forward scored 15 goals and 50 points in 81 games played this season for Ottawa.`\
-https://nytimes.com/athletic/6422385/2025/06/29/senators-claude-giroux-contract-nhl-free-agency/
 
