@@ -1,3 +1,11 @@
+**Police Responding to Shooting in Coeur d’Alene, Idaho**\
+`It was not immediately clear whether there were any injuries, but a sheriff’s office issued a shelter-in-place alert near the scene of the shooting.`\
+https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
+
+**Trade grades: Can Collin Sexton help the Hornets get more creative on offense?**\
+`While Sexton isn't a straight-up lead guard, he has enough ability to give the Hornets options with and without LaMelo Ball`\
+https://nytimes.com/athletic/6461030/2025/06/29/collin-sexton-hornets-jusuf-nurkic-jazz-nba-trade/
+
 **Canada flops vs. Guatemala in PKs, out of Gold Cup in quarterfinals**\
 `Canada had aspirations of winning the Gold Cup. Instead, it's on the wrong side of Guatemala's history and left to lament an early ouster `\
 https://nytimes.com/athletic/6461181/2025/06/29/canada-guatemala-gold-cup-quarterfinals-penalty-kicks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/crosswords/daily-puzzle-2025-06-30.html
 **Jane Stanton Hitchcock, 78, Dies; Crime Novelist Who Mocked High Society**\
 `A daughter of privilege, she mixed social satire with murder in a series of addictive mysteries.`\
 https://nytimes.com/2025/06/29/books/jane-stanton-hitchcock-dead.html
-
-**BYU's Jake Retzlaff faces suspension, may leave over sexual assault lawsuit**\
-`Retzlaff's accuser, who is identified as Jane Doe A.G., alleges that the senior raped, strangled and bit her during a 2023 incident.`\
-https://nytimes.com/athletic/6461233/2025/06/29/byu-qb-jake-retzlaff-sexual-assault-lawsuit/
-
-**We Shouldn’t Have Billionaires, Mamdani Says**\
-`Appearing on “Meet the Press” days after the mayoral primary, Zohran Mamdani defended his proposals to make New York City more affordable and to increase taxes on the wealthy.`\
-https://nytimes.com/2025/06/29/nyregion/zohran-mamdani-nyc-affordability-billionaires.html
 
