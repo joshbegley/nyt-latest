@@ -1,6 +1,6 @@
 **G.O.P. Bill Has $1.1 Trillion in Health Cuts and 11.8 Million Losing Care, C.B.O. Says**\
 `Analysis from the nonpartisan Congressional Budget Office found that Republicans’ new version of the legislation would make far deeper cuts and lead to more people becoming uninsured than previous proposals.`\
-https://nytimes.com/2025/06/29/us/politics/gop-bill-has-1-1-trillion-in-health-cuts-and-11-8-million-losing-care-cbo-says.html
+https://nytimes.com/2025/06/29/us/politics/trump-policy-bill-health-insurance-cuts.html
 
 **Quentin Grimes, Guerschon Yabusele top 76ers' offseason to-do list. Can they keep both?**\
 `Grimes and Yabusele performed well for the Sixers late in the season, but Philadelphia may not be able to sign both players.`\
