@@ -1,3 +1,7 @@
+**Tropical Storm Barry Expected to Bring Heavy Rain to Mexico**\
+`The storm, the second of the Atlantic season, formed on Sunday.`\
+https://nytimes.com/2025/06/29/weather/tropical-storm-barry-mexico.html
+
 **Israel’s Attack on Evin Prison Killed 71, Iranian State Media Report**\
 `The notorious detention facility in Tehran, where dissidents and political prisoners are held, came under attack on June 23.`\
 https://nytimes.com/2025/06/29/world/middleeast/evin-prison-iran.html

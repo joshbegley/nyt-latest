@@ -1,3 +1,7 @@
+**Tropical Storm Barry Expected to Bring Heavy Rain to Mexico**\
+`The storm, the second of the Atlantic season, formed on Sunday.`\
+https://nytimes.com/2025/06/29/weather/tropical-storm-barry-mexico.html
+
 **Israel’s Attack on Evin Prison Killed 71, Iranian State Media Report**\
 `The notorious detention facility in Tehran, where dissidents and political prisoners are held, came under attack on June 23.`\
 https://nytimes.com/2025/06/29/world/middleeast/evin-prison-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/world/europe/bob-vylan-idf-palestine-glastonbury.
 **G.O.P. Bill Adds Surprise Tax That Could Cripple Wind and Solar Power**\
 `Wind and solar companies were already bracing for Congress to end federal subsidies. But the Senate bill goes even further and penalizes those industries.`\
 https://nytimes.com/2025/06/29/climate/gop-bill-adds-surprise-tax-that-could-cripple-wind-and-solar-power.html
-
-**Sporting CP president says 'strong probability' Gyokeres sold below €100m clause**\
-`Gyokeres scored 54 goals in 52 games in 2024-25 for the Portuguese club and is under consideration from Arsenal this summer.`\
-https://nytimes.com/athletic/6460493/2025/06/29/viktor-gyokeres-transfer-news/
 
