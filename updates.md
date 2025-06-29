@@ -1,3 +1,7 @@
+**Every NHL team's toughest decision during 2025 free agency**\
+`With the free-agent frenzy around the corner, The Athletic asked its NHL staff to identify the toughest decision for all 32 teams.`\
+https://nytimes.com/athletic/6459158/2025/06/29/nhl-free-agency-2025-offseason-news/
+
 **Was Wimbledon promoting Coco Gauff and Aryna Sabalenka's olive branch an unforced error?**\
 `Players collaborate online all the time, but should a Grand Slam sell its top two seeds as best friends instead of sporting rivals?`\
 https://nytimes.com/athletic/6458739/2025/06/29/tennis-gauff-sabalenka-apology-rivalry-wimbledon/
