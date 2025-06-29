@@ -1,3 +1,11 @@
+**G.O.P. Bill Has $1.1 Trillion in Health Cuts and 11.8 Million Losing Care, C.B.O. Says**\
+`Analysis from the nonpartisan Congressional Budget Office found that Republicans’ new version of the legislation would make far deeper cuts and lead to more people becoming uninsured than previous proposals.`\
+https://nytimes.com/2025/06/29/us/politics/gop-bill-has-1-1-trillion-in-health-cuts-and-11-8-million-losing-care-cbo-says.html
+
+**Quentin Grimes, Guerschon Yabusele top 76ers' offseason to-do list. Can they keep both?**\
+`Grimes and Yabusele performed well for the Sixers late in the season, but Philadelphia may not be able to sign both players.`\
+https://nytimes.com/athletic/6460089/2025/06/29/quentin-grimes-guerschon-yabusele-76ers/
+
 **Appeals Court to Consider Trump’s Use of Alien Enemies Act**\
 `The case before one of the most conservative courts in the country is likely to be the first to reach the Supreme Court.`\
 https://nytimes.com/2025/06/29/us/politics/appeal-trump-alien-enemies-act.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/opinion/progressives-third-parties.html
 **Trump Administration Live Updates: Senate to Debate President’s Policy Bill After Late Night Vote**\
 ``\
 https://nytimes.com/live/2025/06/29/us/trump-news
-
-**Meet Leafs prospect Tinus Luc Koblar: 'There's nothing I like to lose at'**\
-`The Leafs' highest pick in the 2025 draft made the unusual switch from winger to centre as an ultra-competitive force.`\
-https://nytimes.com/athletic/6459905/2025/06/29/maple-leafs-tinus-luc-koblar-prospect-nhl-draft/
-
-**A Decade of Marriage Equality**\
-`Readers explain what Obergefell meant to them.`\
-https://nytimes.com/2025/06/29/briefing/obergefell-marriage-equality.html
 
