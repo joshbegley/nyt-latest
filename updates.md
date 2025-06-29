@@ -1,3 +1,7 @@
+**Chelsea win extraordinary four-hour Club World Cup match delayed by severe weather and packed with drama**\
+`Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
+https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/
+
 **How much longer can Oilers afford to wait to make a decision on their goalies?**\
 `With John Gibson and Joel Hofer now off the board, the pickings are even slimmer should Edmonton opt to make changes in net.`\
 https://nytimes.com/athletic/6459771/2025/06/28/oilers-goaltending-bowman-gibson/

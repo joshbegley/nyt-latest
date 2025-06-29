@@ -1,3 +1,7 @@
+**Chelsea win extraordinary four-hour Club World Cup match delayed by severe weather and packed with drama**\
+`Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
+https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/
+
 **How much longer can Oilers afford to wait to make a decision on their goalies?**\
 `With John Gibson and Joel Hofer now off the board, the pickings are even slimmer should Edmonton opt to make changes in net.`\
 https://nytimes.com/athletic/6459771/2025/06/28/oilers-goaltending-bowman-gibson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459543/2025/06/28/usmnt-soccer-gold-cup-pochettino
 **Messi and Inter Miami ready to 'fight' against 'possibly the best team in the world' PSG, says Mascherano**\
 `"We are quite aware that we are the weaker of the two teams but in no way does this mean we should be declared dead before we have started"`\
 https://nytimes.com/athletic/6459710/2025/06/28/inter-miami-psg-mascherano/
-
-**Thoughts on the Rangers' draft: Evaluating the K'Andre Miller situation, class of 2025**\
-`Even if the draft passed without resolution, the Rangers either have to trade Miller or find another way to clear cap space.`\
-https://nytimes.com/athletic/6459531/2025/06/28/rangers-kandre-miller-nhl-draft-analysis-2025/
 
