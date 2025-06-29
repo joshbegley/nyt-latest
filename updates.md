@@ -1,3 +1,11 @@
+**Israel’s Attack on Evin Prison Killed 71, Iranian State Media Report**\
+`The notorious detention facility in Tehran, where dissidents and political prisoners are held, came under attack on June 23.`\
+https://nytimes.com/2025/06/29/world/middleeast/evin-prison-iran.html
+
+**Senate Bill Would Add at Least $3.3 Trillion to Debt, Budget Office Says**\
+`A new analysis showing the legislation would be far more expensive than the House version could complicate its chances of final passage in that chamber, where fiscal hawks have said the cost must not grow.`\
+https://nytimes.com/2025/06/29/us/politics/senate-bill-trump-cbo-score-debt.html
+
 **Senate Bill Would Add at Least $3.3 Trillion to Debt, Budget Office Says**\
 `A new analysis showing the legislation would be far more expensive than the House version could complicate its chances of final passage in that chamber, where fiscal hawks have said the cost must not grow.`\
 https://nytimes.com/2025/06/29/us/politics/senate-bill-would-add-at-least-3-3-trillion-to-debt-budget-office-says.html
