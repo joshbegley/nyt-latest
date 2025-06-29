@@ -1,3 +1,7 @@
+**Breaking down Chelsea's extraordinary four-hour Club World Cup match that was delayed by severe weather**\
+`Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
+https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/
+
 **A Public Lands Sell-Off Is Struck From the G.O.P. Policy Bill**\
 `Senator Mike Lee, Republican of Utah, said he would withdraw his proposal after it faced intense intraparty opposition.`\
 https://nytimes.com/2025/06/28/climate/public-lands-sell-off-dropped-mike-lee.html
