@@ -1,3 +1,7 @@
+**How to watch X Games Salt Lake City Day 3: Best trick showcase in grand finale**\
+`Day 3 of X Games Salt Lake City is the event's grand finale, with numerous best trick competitions peppering Sunday's schedule. `\
+https://nytimes.com/athletic/6459932/2025/06/29/x-games-salt-lake-city-day-3-how-to-watch/
+
 **How to watch the USMNT vs. Costa Rica: Tournament legacy on the line in Gold Cup**\
 `The United States returns to the Concacaf Gold Cup quarterfinals Sunday, when it will face a depleted but familiar Costa Rica squad.`\
 https://nytimes.com/athletic/6457431/2025/06/29/usmnt-costa-rica-2025-gold-cup-how-to-watch/
