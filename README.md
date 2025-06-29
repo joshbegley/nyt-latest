@@ -1,3 +1,11 @@
+**Russian Barrage of Drones and Missiles Hits Beyond Usual Ukraine Targets**\
+`The overnight attack was one of the largest on Ukraine and included strikes in the western part of the country, which is hit less often.`\
+https://nytimes.com/2025/06/29/world/europe/russia-ukraine-war.html
+
+**Blue Jackets Sunday Gathering: Expect newcomer Charlie Coyle to play a big role**\
+`A collection of Blue Jackets notes, insights, ruminations and did-you-knows from this week.`\
+https://nytimes.com/athletic/6460031/2025/06/29/blue-jackets-sunday-gathering-charlie-coyle/
+
 **Partey to leave Arsenal at end of contract**\
 `The 32-year-old was in talks over extending his career at the Emirates Stadium but an agreement could not be reached on the terms of a deal.`\
 https://nytimes.com/athletic/6280640/2025/06/29/thomas-partey-arsenal-contract-exit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/world/europe/europe-heat-wave-record-temperatures
 **Lowetide: An early look at Oilers prospects after the 2025 NHL Draft**\
 `It's possible the Oilers drafted a gem Saturday, although the identity of that player isn't known today.`\
 https://nytimes.com/athletic/6458029/2025/06/29/edmonton-oilers-prospects-2025-nhl-draft/
-
-**LeBron James exercises option, will remain with Lakers for 23rd NBA season**\
-`After 22 seasons, LeBron James can finally check off a new first — opting into the final year of his contract.`\
-https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-lakers-return/
-
-**My Three-Ingredient Salmon Dinner**\
-`Roasted salmon glazed with brown sugar and mustard, a New York Times Cooking classic with over 18,000 reviews.`\
-https://nytimes.com/2025/06/29/dining/three-ingredient-salmon-dinner-from-sam-sifton.html
 
