@@ -1,3 +1,23 @@
+**Was Wimbledon promoting Coco Gauff and Aryna Sabalenka's olive branch an unforced error?**\
+`Players collaborate online all the time, but should a Grand Slam sell its top two seeds as best friends instead of sporting rivals?`\
+https://nytimes.com/athletic/6458739/2025/06/29/tennis-gauff-sabalenka-apology-rivalry-wimbledon/
+
+**Russo: Free agency, Kirill Kaprizov's future and how new CBA rules could help the Wild keep their superstar**\
+`Kaprizov is eligible to re-sign with the Wild on Tuesday. Can they prove that his best chance to win — and get paid — is in Minnesota?`\
+https://nytimes.com/athletic/6459563/2025/06/29/kirill-kaprizov-wild-nhl-cba-free-agency/
+
+**Mirtle: What big moves could be coming for the Maple Leafs on July 1?**\
+`With John Tavares signed and talk of a Mitch Marner sign-and-trade deal swirling, what's a reasonable July 1 plan for Toronto?`\
+https://nytimes.com/athletic/6459890/2025/06/29/maple-leafs-nhl-free-agency-plan-2025/
+
+**Ian Happ's scouting report on Ryan Pressly shows Cubs' chemistry, purpose**\
+`Happ prepared as if Pressly would be the opponent's starting pitcher, allowing Pressly to change his pitch mix and lower his ERA.`\
+https://nytimes.com/athletic/6456485/2025/06/29/ian-happ-ryan-pressly-cubs-scouting-report/
+
+**Israel’s Military Appears Poised to Expand into Gaza City Amid Cease-Fire Calls**\
+`President Trump urged Israel and Hamas to “make the deal,” but it was unclear if any significant progress has been made toward an agreement.`\
+https://nytimes.com/2025/06/29/world/middleeast/gaza-israel.html
+
 **Sabres post-draft thoughts: Conor Timmins trade, the latest on Bowen Byram and more**\
 `Buffalo added some interesting prospects in the draft, but there are still so many directions this offseason can go.`\
 https://nytimes.com/athletic/6460061/2025/06/29/sabres-conor-timmins-bowen-byram/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6439364/2025/06/29/nba-mock-draft-2026-prospective-
 **Trump Wants One of His Lawyers to Be One of His Judges**\
 `A reckless nomination puts the Senate to the test.`\
 https://nytimes.com/2025/06/29/opinion/bove-trump-judges-confirmation.html
-
-**Why We Couldn’t Sell America on U.S.A.I.D.**\
-`The end of the federal agency gives us a final lesson about the importance of telling the stories of humanitarian aid.`\
-https://nytimes.com/2025/06/29/opinion/usaid-ending.html
-
-**Achilles injuries have vexed the NBA. A Hall of Famer reflects, medical pros analyze**\
-`Tearing an Achilles tendon is "something unexplainable," and returning to regular form after a rupture is difficult but not impossible.`\
-https://nytimes.com/athletic/6453371/2025/06/29/nba-achilles-injuries-haliburton-tatum-lillard/
-
-**The Population Bust Won’t Solve the Climate Crisis**\
-`There is a progressive case for people.`\
-https://nytimes.com/2025/06/29/opinion/population-climate-progress.html
-
-**Wordle Review No. 1,472**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 30, 2025.`\
-https://nytimes.com/2025/06/29/crosswords/wordle-review-1472.html
-
-**2025 Wimbledon odds: Alcaraz, Sabalenka enter as favorites again**\
-`Wimbledon's pre-tournament favorites are the same as the French Open's, a sign of how striking the the difference between courts is.`\
-https://nytimes.com/athletic/6458991/2025/06/29/wimbledon-odds-alcaraz-sabalenka-sinner/
 
