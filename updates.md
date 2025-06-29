@@ -1,3 +1,7 @@
+**Beyoncé Pauses Concert After Car Prop Mishap Left Her Dangling Over Crowds**\
+`She was singing “16 Carriages,” as she sat in the back of a red convertible prop high above the crowds on Saturday, when it suddenly slanted in the air.`\
+https://nytimes.com/2025/06/29/arts/beyonce-concert-houston-car-malfunction.html
+
 **Tropical Storm Barry Expected to Bring Heavy Rain to Mexico**\
 `The storm, the second of the Atlantic season, formed on Sunday.`\
 https://nytimes.com/2025/06/29/weather/tropical-storm-barry-mexico.html

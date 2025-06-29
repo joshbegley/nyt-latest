@@ -1,3 +1,7 @@
+**Beyoncé Pauses Concert After Car Prop Mishap Left Her Dangling Over Crowds**\
+`She was singing “16 Carriages,” as she sat in the back of a red convertible prop high above the crowds on Saturday, when it suddenly slanted in the air.`\
+https://nytimes.com/2025/06/29/arts/beyonce-concert-houston-car-malfunction.html
+
 **Tropical Storm Barry Expected to Bring Heavy Rain to Mexico**\
 `The storm, the second of the Atlantic season, formed on Sunday.`\
 https://nytimes.com/2025/06/29/weather/tropical-storm-barry-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/style/mens-fashion-week-paris.html
 **Glastonbury ‘Appalled’ by Band’s Chant Against Israel’s Military**\
 `The band Bob Vylan led a crowd in a chant of “Death, death to the I.D.F.” while performing at Glastonbury, Britain’s biggest music festival.`\
 https://nytimes.com/2025/06/29/world/europe/bob-vylan-idf-palestine-glastonbury.html
-
-**G.O.P. Bill Adds Surprise Tax That Could Cripple Wind and Solar Power**\
-`Wind and solar companies were already bracing for Congress to end federal subsidies. But the Senate bill goes even further and penalizes those industries.`\
-https://nytimes.com/2025/06/29/climate/gop-bill-adds-surprise-tax-that-could-cripple-wind-and-solar-power.html
 
