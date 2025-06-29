@@ -1,4 +1,12 @@
 **USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
+`Hayes started a completely new lineup from Thursday's win, but the result was the same: a 4-0 victory.`\
+https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
+
+**Kane arrives at the Club World Cup - but can Bayern overcome PSG?**\
+`Analysing the major talking points as Flamengo crash out of the FIFA Club World Cup in Miami`\
+https://nytimes.com/athletic/6453275/2025/06/29/bayern-munich-flamengo-harry-kane-club-world-cup/
+
+**USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
 `Emma Hayes started a completely new lineup from Thursday's win, but the result was the same: A 4-0 victory.`\
 https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
 
