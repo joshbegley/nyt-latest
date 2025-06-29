@@ -1,3 +1,11 @@
+**Europe Endures Relentless Heat Wave**\
+`Extreme heat has gripped Europe with record-high temperatures, health alerts and wildfires, from France and Spain to Greece.`\
+https://nytimes.com/2025/06/29/world/europe/europe-heat-wave-record-temperatures.html
+
+**Lowetide: An early look at Oilers prospects after the 2025 NHL Draft**\
+`It's possible the Oilers drafted a gem Saturday, although the identity of that player isn't known today.`\
+https://nytimes.com/athletic/6458029/2025/06/29/edmonton-oilers-prospects-2025-nhl-draft/
+
 **LeBron James exercises option, will remain with Lakers for 23rd NBA season**\
 `After 22 seasons, LeBron James can finally check off a new first — opting into the final year of his contract.`\
 https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-lakers-return/

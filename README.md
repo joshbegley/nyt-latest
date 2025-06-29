@@ -1,3 +1,7 @@
+**Explained: Why Estevao is able to play against Chelsea at the Club World Cup**\
+`Estevao will soon be a Chelsea player but could help send them home from the Club World Cup when he faces them with Palmeiras`\
+https://nytimes.com/athletic/6460397/2025/06/29/estevao-chelsea-palmeiras-club-world-cup/
+
 **Europe Endures Relentless Heat Wave**\
 `Extreme heat has gripped Europe with record-high temperatures, health alerts and wildfires, from France and Spain to Greece.`\
 https://nytimes.com/2025/06/29/world/europe/europe-heat-wave-record-temperatures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/us/politics/appeal-trump-alien-enemies-act.html
 **Giants Mailbagg: What happened to San Francisco's offense?**\
 `Fans want to know why the Giants aren't scoring more runs. The Giants do, too. Plus, should they move on from Matt Williams? `\
 https://nytimes.com/athletic/6459330/2025/06/29/sf-giants-offense-struggles-mailbag/
-
-**The 'joke' Club World Cup weather delays and an ominous warning for World Cup 2026**\
-`What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go `\
-https://nytimes.com/athletic/6460275/2025/06/29/maresca-joke-weather-delays-world-cup/
 
