@@ -1,40 +1,40 @@
+**The complete history of Oasis and football**\
+`As the iconic band prepare to begin their comeback tour, Michael Cox looks at how football and Oasis has always been a natural combination`\
+https://nytimes.com/athletic/6447624/2025/06/29/complete-history-of-oasis-and-football/
+
+**Bonmati's illness is a cruel blow for Spain, who have been here before on the eve of a Euros**\
+`The Ballon d'Or winner is in hospital with viral meningitis and her participation at the Euros is in doubt`\
+https://nytimes.com/athletic/6459092/2025/06/29/aitana-bonmati-illness-euros-meningitis/
+
+**What Chelsea can expect from Estevao when they face their own player in a Club World Cup quarter-final**\
+`So often causing chaos from the right wing or in a No. 10 position, Estevao was switched to the left side for the win over Botafogo`\
+https://nytimes.com/athletic/6459904/2025/06/29/estevao-chelsea-club-world-cup/
+
+**Slaven Bilic: 'People think coaching in Saudi Arabia is easy. It’s not'**\
+`The former West Ham and Croatia coach on Dimitri Payet, Luka Modric and why every team needs a 'safe house'`\
+https://nytimes.com/athletic/6452759/2025/06/29/slaven-bilic-interview-west-ham-croatia-saudi-arabia/
+
+**Ranking the best and worst of the Women's Euros home kits**\
+`Nick Miller and Steve Madeley rate every home shirt that we'll see at Euro 2025`\
+https://nytimes.com/athletic/6456114/2025/06/29/womens-euro-2025-home-kits-ranked/
+
+**The football manager working at an airport: 'Why? Because you can learn from anything'**\
+`Former Swansea head coach Luke Williams opens up on his decision to work as a customer care assistant at a British airport`\
+https://nytimes.com/athletic/6456107/2025/06/29/luke-williams-airport-manager-swansea/
+
+**Inside England's U21 Euros win: 'Creative' selections, dodgeball drills and padel**\
+`England are U21 European champions for a second consecutive time - this is how they did it`\
+https://nytimes.com/athletic/6455734/2025/06/29/england-u21-euros-inside-story/
+
+**Women's Euro 2025 team guides: Everything you need to know about the 16 competing nations**\
+`Who are the key players? What are the tactics? Are they in form? Read our guides to the teams taking part in this summer's tournament`\
+https://nytimes.com/athletic/6458968/2025/06/29/womens-euro-2025-team-guides/
+
+**The rise of Gonzalo Garcia, Real Madrid's breakthrough star of the Club World Cup**\
+`The 21-year-old has shone while deputising for Kylian Mbappe, making good on the ambitious mindset he cultivated in Madrid's youth ranks`\
+https://nytimes.com/athletic/6458679/2025/06/29/gonzalo-garcia-real-madrid-club-world-cup/
+
 **Why soccer fans are taking over Times Square this summer**\
 `Supporters from around the world are converging on one of New York's most recognisable locations`\
 https://nytimes.com/athletic/6448944/2025/06/29/soccer-fans-times-square/
-
-**How Europe Got Tough on Migration**\
-`The European Union has not gone as far as President Trump in cracking down on immigration, but its shift is already profound.`\
-https://nytimes.com/2025/06/29/world/europe/europe-migration-crackdown-trump.html
-
-**Quote of the Day: Bruce Springsteen Reveals His Paths Not Taken**\
-`Quote of the Day for Sunday, June 29, 2025`\
-https://nytimes.com/2025/06/29/pageoneplus/quote-of-the-day-bruce-springsteen-reveals-his-paths-not-taken.html
-
-**Connections: Sports Edition Coach: Hints for June 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6442064/2025/06/29/connections-sports-edition-hints-for-june-29-2025/
-
-**After another loss, Mets players call a team meeting in bid for a turnaround**\
-`“This is not 'Rah-Rah,’ and ‘Now, the season is going to turn around.' We are competing — still," said de facto captain Francisco Lindor.`\
-https://nytimes.com/athletic/6460007/2025/06/28/mets-players-postgame-meeting/
-
-**Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
-`What the Chelsea coach said about the weather delays and the key questions answered`\
-https://nytimes.com/athletic/6459997/2025/06/28/maresca-chelsea-delay-joke/
-
-**A Public Lands Sell-Off Is Struck From the G.O.P. Policy Bill**\
-`Senator Mike Lee, Republican of Utah, said he would withdraw his proposal after it faced intense intraparty opposition.`\
-https://nytimes.com/2025/06/28/climate/public-lands-sell-off-dropped-mike-lee.html
-
-**How the Canadiens' amateur scouting approach is adjusting coming out of a rebuild**\
-`The Canadiens have built through the draft for three years, but with a deep and diverse prospect pool, a change in approach is necessary.`\
-https://nytimes.com/athletic/6459888/2025/06/28/canadiens-nhl-draft-scouting-zharovsky/
-
-**Red Wings thoughts: Gibson, draft class and what's next**\
-`Analyzing the Gibson trade, breaking down Detroit's draft class, and what Steve Yzerman said about the Red Wings' offseason outlook.`\
-https://nytimes.com/athletic/6459350/2025/06/28/red-wings-nhl-draft-john-gibson-trade/
-
-**Centres, sneaky upside and volume: How Canucks approached 2025 NHL Draft**\
-`For the first time in a long time the Canucks will emerge from the draft with a proper class.`\
-https://nytimes.com/athletic/6459581/2025/06/28/canucks-nhl-draft-2025/
 
