@@ -1,3 +1,15 @@
+**Partey to leave Arsenal at end of contract**\
+`The 32-year-old was in talks over extending his career at the Emirates Stadium but an agreement could not be reached on the terms of a deal.`\
+https://nytimes.com/athletic/6280640/2025/06/29/thomas-partey-arsenal-contract-exit/
+
+**Men’s Fashion Week Moments That Had Us Talking**\
+`The spring 2026 men’s wear shows arrived in Paris with starry celebs, startling Anna Wintour buzz and a Demna goodbye.`\
+https://nytimes.com/2025/06/29/style/mens-fashion-week-paris.html
+
+**Glastonbury ‘Appalled’ by Band’s Chant Against Israel’s Military**\
+`The band Bob Vylan led a crowd in a chant of “Death, death to the I.D.F.” while performing at Glastonbury, Britain’s biggest music festival.`\
+https://nytimes.com/2025/06/29/world/europe/bob-vylan-idf-palestine-glastonbury.html
+
 **G.O.P. Bill Adds Surprise Tax That Could Cripple Wind and Solar Power**\
 `Wind and solar companies were already bracing for Congress to end federal subsidies. But the Senate bill goes even further and penalizes those industries.`\
 https://nytimes.com/2025/06/29/climate/gop-bill-adds-surprise-tax-that-could-cripple-wind-and-solar-power.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-laker
 **My Three-Ingredient Salmon Dinner**\
 `Roasted salmon glazed with brown sugar and mustard, a New York Times Cooking classic with over 18,000 reviews.`\
 https://nytimes.com/2025/06/29/dining/three-ingredient-salmon-dinner-from-sam-sifton.html
-
-**Lando Norris wins Austrian Grand Prix as Kimi Antonelli takes out Max Verstappen**\
-`Lando Norris claims huge win to maintain title hopes but Max Verstappen's chances of defending his crown now appear slim`\
-https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-results-lando-norris-oscar-piastri/
-
-**G.O.P. Bill Has $1.1 Trillion in Health Cuts and 11.8 Million Losing Care, C.B.O. Says**\
-`Analysis from the nonpartisan Congressional Budget Office found that Republicans’ new version of the legislation would make far deeper cuts and lead to more people becoming uninsured than previous proposals.`\
-https://nytimes.com/2025/06/29/us/politics/trump-policy-bill-health-insurance-cuts.html
-
-**Quentin Grimes, Guerschon Yabusele top 76ers' offseason to-do list. Can they keep both?**\
-`Grimes and Yabusele performed well for the Sixers late in the season, but Philadelphia may not be able to sign both players.`\
-https://nytimes.com/athletic/6460089/2025/06/29/quentin-grimes-guerschon-yabusele-76ers/
 
