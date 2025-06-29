@@ -1,3 +1,19 @@
+**USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
+`Emma Hayes started a completely new lineup from Thursday's win, but the result was the same: A 4-0 victory.`\
+https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
+
+**Kane arrives at the Club World Cup - but can Bayern overcome PSG?**\
+`Analysing the major talking points from the FIFA Club World Cup last 16 tie in Miami`\
+https://nytimes.com/athletic/6453275/2025/06/29/bayern-munich-flamengo-harry-kane-club-world-cup/
+
+**Hand Out Hands**\
+`Dena R. Verkuil and Andrea Carla Michaels make their collaboration debut.`\
+https://nytimes.com/2025/06/29/crosswords/daily-puzzle-2025-06-30.html
+
+**Gluck: Chase Elliott's latest win reminds us distance does not equal disinterest**\
+`Chase Elliott separates from NASCAR in a way most drivers and fans don't. That doesn't mean he's not all-in on what counts.`\
+https://nytimes.com/athletic/6460161/2025/06/29/chase-elliott-nascar-atlanta-motor-speedway-win/
+
 **BYU's Jake Retzlaff faces suspension, may leave over sexual assault lawsuit**\
 `Retzlaff's accuser, who is identified as Jane Doe A.G., alleges that the senior raped, strangled and bit her during a 2023 incident.`\
 https://nytimes.com/athletic/6461233/2025/06/29/byu-qb-jake-retzlaff-sexual-assault-lawsuit/
