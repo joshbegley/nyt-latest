@@ -1,3 +1,11 @@
+**Jake Paul beats Chavez Jr., another over-the-hill former champ, with ease**\
+`“All the boos are words and action speak louder than words. So y’all can shut the f— up,” Paul said after Saturday’s win.`\
+https://nytimes.com/athletic/6460122/2025/06/29/jake-paul-julio-cesar-chavez-jr-result/
+
+**Inside England's U21 Euros win: 'Creative' selections, dodgeball drills and padel**\
+`England are U21 European champions for a second consecutive time - this is how they did it`\
+https://nytimes.com/athletic/6455734/2025/06/29/england-u21-euros-inside-story/
+
 **Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
 `El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
 https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/

@@ -1,3 +1,7 @@
+**Jake Paul beats Chavez Jr., another over-the-hill former champ, with ease**\
+`“All the boos are words and action speak louder than words. So y’all can shut the f— up,” Paul said after Saturday’s win.`\
+https://nytimes.com/athletic/6460122/2025/06/29/jake-paul-julio-cesar-chavez-jr-result/
+
 **Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
 `El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
 https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6459092/2025/06/29/aitana-bonmati-illness-euros-men
 `So often causing chaos from the right wing or in a No. 10 position, Estevao was switched to the left side for the win over Botafogo`\
 https://nytimes.com/athletic/6459904/2025/06/29/estevao-chelsea-club-world-cup/
 
-**Slaven Bilic: 'People think coaching in Saudi Arabia is easy. It’s not'**\
-`The former West Ham and Croatia coach on Dimitri Payet, Luka Modric and why every team needs a 'safe house'`\
-https://nytimes.com/athletic/6452759/2025/06/29/slaven-bilic-interview-west-ham-croatia-saudi-arabia/
-
-**Ranking the best and worst of the Women's Euros home kits**\
-`Nick Miller and Steve Madeley rate every home shirt that we'll see at Euro 2025`\
-https://nytimes.com/athletic/6456114/2025/06/29/womens-euro-2025-home-kits-ranked/
+**Inside England's U21 Euros win: 'Creative' selections, dodgeball drills and padel**\
+`England are U21 European champions for a second consecutive time - this is how they did it`\
+https://nytimes.com/athletic/6455734/2025/06/29/england-u21-euros-inside-story/
 
