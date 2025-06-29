@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6460600/2025/06/29/england-jamaica-lionesses-euros-
 `Submit your questions about the Dodgers for Fabian Ardaya's Q&A.`\
 https://nytimes.com/athletic/6459611/2025/06/29/dodgers-live-qa-fabian-ardaya-trade-deadline-shohei-ohtani/
 
-**Lionel Messi's Inter Miami humbled in crushing Club World Cup exit - Paris Saint-Germain 4 Inter Miami 0**\
+**Lionel Messi's Inter Miami humbled in crushing Club World Cup exit – Paris Saint-Germain 4 Inter Miami 0**\
 `How Lionel Messi's Club World Cup ended and what makes PSG so good`\
 https://nytimes.com/athletic/6453273/2025/06/29/lionel-messi-inter-miami-psg-highlights/
 
