@@ -1,5 +1,5 @@
-**Firefighters Targeted in Shooting in Coeur d’Alene, Idaho, Officials Say**\
-`A sheriff’s office issued a shelter-in-place alert near the scene of the shooting. The governor called the attack “a heinous direct assault on our brave firefighters.”`\
+**2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
+`Firefighters were responding to a call when the shooting erupted, a sheriff said, adding that it was not clear how many might be wounded.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
 
 **Trade grades: Can Collin Sexton help the Hornets get more creative on offense?**\
