@@ -1,4 +1,4 @@
-**LeBron James exercises player option, remaining with Lakers for 23rd NBA season**\
+**LeBron James exercises option, will remain with Lakers for 23rd NBA season**\
 `After 22 seasons, LeBron James can finally check off a new first — opting into the final year of his contract.`\
 https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-lakers-return/
 
