@@ -2,7 +2,7 @@
 `A daughter of privilege, she mixed social satire with murder in a series of addictive mysteries.`\
 https://nytimes.com/2025/06/29/books/jane-stanton-hitchcock-dead.html
 
-**BYU quarterback Jake Retzlaff could face suspension, will likely leave team**\
+**BYU's Jake Retzlaff faces suspension, may leave over sexual assault lawsuit**\
 `Retzlaff's accuser, who is identified as Jane Doe A.G., alleges that the senior raped, strangled and bit her during a 2023 incident.`\
 https://nytimes.com/athletic/6461233/2025/06/29/byu-qb-jake-retzlaff-sexual-assault-lawsuit/
 
