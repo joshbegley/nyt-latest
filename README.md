@@ -1,3 +1,7 @@
+**The Sheikh Who Conquered Soccer and Coddles Warlords**\
+`The Emirati vice president is best known as the owner of a top British soccer team. Behind the scenes, he has been described as the “handler” guiding his country’s secret foreign wars.`\
+https://nytimes.com/2025/06/29/world/middleeast/emirates-manchester-city-soccer-sudan.html
+
 **The New York Times International Edition in Print for Monday, June 30, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/29/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/us/baseball-fairbanks-alaska-midnight-game.html
 **After War With Israel and U.S., Iran Rests on a Knife Edge**\
 `The Islamic Republic limps on after the 12-day conflict. Where will the nation go from here?`\
 https://nytimes.com/2025/06/29/world/middleeast/iran-israel-war-future.html
-
-**Catholic Bishops Try to Rally Opposition to Trump’s Immigration Agenda**\
-`Leading prelates are expressing outrage at the drive toward mass deportation.`\
-https://nytimes.com/2025/06/29/us/catholic-bishops-trump-immigration.html
 
