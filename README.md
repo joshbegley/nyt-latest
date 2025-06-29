@@ -1,3 +1,11 @@
+**How the Canadiens' amateur scouting approach is adjusting coming out of a rebuild**\
+`The Canadiens have built through the draft for three years, but with a deep and diverse prospect pool, a change in approach is necessary.`\
+https://nytimes.com/athletic/6459888/2025/06/28/canadiens-nhl-draft-scouting-zharovsky/
+
+**Red Wings thoughts: Gibson, draft class and what's next**\
+`Analyzing the Gibson trade, breaking down Detroit's draft class, and what Steve Yzerman said about the Red Wings' offseason outlook.`\
+https://nytimes.com/athletic/6459350/2025/06/28/red-wings-nhl-draft-john-gibson-trade/
+
 **Centres, sneaky upside and volume: How Canucks approached 2025 NHL Draft**\
 `For the first time in a long time the Canucks will emerge from the draft with a proper class.`\
 https://nytimes.com/athletic/6459581/2025/06/28/canucks-nhl-draft-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6459117/2025/06/28/winnipeg-jets-sascha-boumedienne
 **Bucks' Kevin Porter Jr. to let option expire, become unrestricted free agent**\
 `After being acquired at the trade deadline, Porter averaged 11.7 points and 3.7 assists in 30 regular-season games.`\
 https://nytimes.com/athletic/6459086/2025/06/28/bucks-kevin-porter-jr-free-agent/
-
-**What are the Maple Leafs getting in their 2025 NHL Draft picks?**\
-`The Leafs kept all six of their picks on Day 2. Here's what the picks' coaches and GMs had to say.`\
-https://nytimes.com/athletic/6458815/2025/06/28/maple-leafs-2025-draft-analysis-leach/
-
-**Musk Wades Back Into Politics, Slamming Trump’s Domestic Policy Bill**\
-`Weeks after ending his war of words with President Trump, Elon Musk called the president’s bill “utterly insane and destructive.”`\
-https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
 
