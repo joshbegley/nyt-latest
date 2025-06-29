@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6459831/2025/06/29/what-are-the-winnipeg-jets-getti
 `Everton offered the 11-time England international a new deal towards the end of 2023-24 but no agreement on an extension was reached.`\
 https://nytimes.com/athletic/6301982/2025/06/29/dominic-calvert-lewin-everton-leaves/
 
+**Russo: Free agency, Kirill Kaprizov's future and how new CBA rules could help the Wild keep their superstar**\
+`Kaprizov is eligible to re-sign with the Wild on Tuesday. Can they prove that his best chance to win — and get paid — is in Minnesota?`\
+https://nytimes.com/athletic/6459563/2025/06/29/kirill-kaprizov-wild-nhl-cba-free-agency/
+
 **Every NHL team's toughest decision during 2025 free agency**\
 `With the free-agent frenzy around the corner, The Athletic asked its NHL staff to identify the toughest decision for all 32 teams.`\
 https://nytimes.com/athletic/6459158/2025/06/29/nhl-free-agency-2025-offseason-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459158/2025/06/29/nhl-free-agency-2025-offseason-n
 **Was Wimbledon promoting Coco Gauff and Aryna Sabalenka's olive branch an unforced error?**\
 `Players collaborate online all the time, but should a Grand Slam sell its top two seeds as best friends instead of sporting rivals?`\
 https://nytimes.com/athletic/6458739/2025/06/29/tennis-gauff-sabalenka-apology-rivalry-wimbledon/
-
-**Russo: Free agency, Kirill Kaprizov's future and how new CBA rules could help the Wild keep their superstar**\
-`Kaprizov is eligible to re-sign with the Wild on Tuesday. Can they prove that his best chance to win — and get paid — is in Minnesota?`\
-https://nytimes.com/athletic/6459563/2025/06/29/kirill-kaprizov-wild-nhl-cba-free-agency/
 

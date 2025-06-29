@@ -1,3 +1,15 @@
+**With immediate future on defense uncertain, which players could the Kings target?**\
+`With Vladislav Gavrikov looking increasingly likely to hit free agency and Jordan Spence traded to Ottawa, the Kings' blue line has holes.`\
+https://nytimes.com/athletic/6459998/2025/06/29/kings-defense-targets-holland-spence-gavrikov/
+
+**Progressives and the Third-Party Question**\
+`Readers involved with third parties discuss the pros and cons. Also: Smoking still kills; phone addiction.`\
+https://nytimes.com/2025/06/29/opinion/progressives-third-parties.html
+
+**Trump Administration Live Updates: Senate to Debate President’s Policy Bill After Late Night Vote**\
+``\
+https://nytimes.com/live/2025/06/29/us/trump-news
+
 **Meet Leafs prospect Tinus Luc Koblar: 'There's nothing I like to lose at'**\
 `The Leafs' highest pick in the 2025 draft made the unusual switch from winger to centre as an ultra-competitive force.`\
 https://nytimes.com/athletic/6459905/2025/06/29/maple-leafs-tinus-luc-koblar-prospect-nhl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6459831/2025/06/29/what-are-the-winnipeg-jets-getti
 **Calvert-Lewin confirms Everton exit as free agent**\
 `Everton offered the 11-time England international a new deal towards the end of 2023-24 but no agreement on an extension was reached.`\
 https://nytimes.com/athletic/6301982/2025/06/29/dominic-calvert-lewin-everton-leaves/
-
-**Russo: Free agency, Kirill Kaprizov's future and how new CBA rules could help the Wild keep their superstar**\
-`Kaprizov is eligible to re-sign with the Wild on Tuesday. Can they prove that his best chance to win — and get paid — is in Minnesota?`\
-https://nytimes.com/athletic/6459563/2025/06/29/kirill-kaprizov-wild-nhl-cba-free-agency/
-
-**Every NHL team's toughest decision during 2025 free agency**\
-`With the free-agent frenzy around the corner, The Athletic asked its NHL staff to identify the toughest decision for all 32 teams.`\
-https://nytimes.com/athletic/6459158/2025/06/29/nhl-free-agency-2025-offseason-news/
-
-**Was Wimbledon promoting Coco Gauff and Aryna Sabalenka's olive branch an unforced error?**\
-`Players collaborate online all the time, but should a Grand Slam sell its top two seeds as best friends instead of sporting rivals?`\
-https://nytimes.com/athletic/6458739/2025/06/29/tennis-gauff-sabalenka-apology-rivalry-wimbledon/
 
