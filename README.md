@@ -1,3 +1,7 @@
+**Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
+`El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
+https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/
+
 **The New York Times in Print for Sunday, June 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/29/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6452759/2025/06/29/slaven-bilic-interview-west-ham-
 **Ranking the best and worst of the Women's Euros home kits**\
 `Nick Miller and Steve Madeley rate every home shirt that we'll see at Euro 2025`\
 https://nytimes.com/athletic/6456114/2025/06/29/womens-euro-2025-home-kits-ranked/
-
-**The football manager working at an airport: 'Why? Because you can learn from anything'**\
-`Former Swansea head coach Luke Williams opens up on his decision to work as a customer care assistant at a British airport`\
-https://nytimes.com/athletic/6456107/2025/06/29/luke-williams-airport-manager-swansea/
 
