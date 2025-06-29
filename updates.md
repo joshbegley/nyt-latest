@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, June 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/29/todays-new-york-times
+
+**America Can’t Do to North Korea What It Just Did to Iran**\
+`The Trump administration should embrace a North Korea strategy that aims to contain escalation, not keep a white-knuckled grip on a failed policy.`\
+https://nytimes.com/2025/06/29/opinion/north-korea-nuclear-weapons.html
+
 **Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
 `What the Chelsea coach said about the weather delays and the key questions answered`\
 https://nytimes.com/athletic/6459997/2025/06/29/maresca-chelsea-delay-joke/
