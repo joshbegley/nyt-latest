@@ -1,3 +1,11 @@
+**G.O.P. Bill Has $1.1 Trillion in Health Cuts and 11.8 Million Losing Care, C.B.O. Says**\
+`Analysis from the nonpartisan Congressional Budget Office found that Republicans’ new version of the legislation would make far deeper cuts and lead to more people becoming uninsured than previous proposals.`\
+https://nytimes.com/2025/06/29/us/politics/trump-policy-bill-health-insurance-cuts.html
+
+**Quentin Grimes, Guerschon Yabusele top 76ers' offseason to-do list. Can they keep both?**\
+`Grimes and Yabusele performed well for the Sixers late in the season, but Philadelphia may not be able to sign both players.`\
+https://nytimes.com/athletic/6460089/2025/06/29/quentin-grimes-guerschon-yabusele-76ers/
+
 **Appeals Court to Consider Trump’s Use of Alien Enemies Act**\
 `The case before one of the most conservative courts in the country is likely to be the first to reach the Supreme Court.`\
 https://nytimes.com/2025/06/29/us/politics/appeal-trump-alien-enemies-act.html
