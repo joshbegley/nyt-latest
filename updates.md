@@ -1,3 +1,7 @@
+**Trump Says He’s Found Buyers for TikTok**\
+`He didn’t say who was interested in buying the app, just that it was “a group of very wealthy people.” But the Chinese government needs to approve any sale.`\
+https://nytimes.com/2025/06/29/us/politics/trump-tiktok-buyer.html
+
 **‘F1: The Movie’ Gives Apple Its First Box Office Hit**\
 `But the movie cost at least $350 million to make and market, analysts said, so it will need to attract substantial crowds in the weeks ahead to make money.`\
 https://nytimes.com/2025/06/29/business/media/f1-the-movie-apple-box-office.html

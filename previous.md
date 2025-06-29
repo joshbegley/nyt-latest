@@ -1,3 +1,7 @@
+**Trump Says He’s Found Buyers for TikTok**\
+`He didn’t say who was interested in buying the app, just that it was “a group of very wealthy people.” But the Chinese government needs to approve any sale.`\
+https://nytimes.com/2025/06/29/us/politics/trump-tiktok-buyer.html
+
 **‘F1: The Movie’ Gives Apple Its First Box Office Hit**\
 `But the movie cost at least $350 million to make and market, analysts said, so it will need to attract substantial crowds in the weeks ahead to make money.`\
 https://nytimes.com/2025/06/29/business/media/f1-the-movie-apple-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/world/europe/russia-ukraine-war.html
 **Blue Jackets Sunday Gathering: Expect newcomer Charlie Coyle to play a big role**\
 `A collection of Blue Jackets notes, insights, ruminations and did-you-knows from this week.`\
 https://nytimes.com/athletic/6460031/2025/06/29/blue-jackets-sunday-gathering-charlie-coyle/
-
-**Partey to leave Arsenal at end of contract**\
-`The 32-year-old was in talks over extending his career at the Emirates Stadium but an agreement could not be reached on the terms of a deal.`\
-https://nytimes.com/athletic/6280640/2025/06/29/thomas-partey-arsenal-contract-exit/
 
