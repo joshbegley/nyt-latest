@@ -1,3 +1,7 @@
+**Gluck: Chase Elliott's latest win reminds us that distance does not equal disinterest**\
+`Chase Elliott separates from NASCAR in a way most drivers and fans don't. That doesn't mean he's not all-in on what counts.`\
+https://nytimes.com/athletic/6460161/2025/06/29/chase-elliott-nascar-atlanta-motor-speedway-win/
+
 **Maple Leafs re-sign Matthew Knies to six-year extension**\
 `Maple Leafs lock up RFA power forward for 6 years at an annual value of $7.75 million.`\
 https://nytimes.com/athletic/6440505/2025/06/29/maple-leafs-matthew-knies-contract-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/us/politics/un-iran-nuclear-program-enrichment.ht
 **Michigan beats Ohio State for Carter Meadows in crucial recruiting battle**\
 `The Michigan-Ohio State rivalry got some big offseason news when the Wolverines landed top-100 DE Carter Meadows on Sunday.`\
 https://nytimes.com/athletic/6461091/2025/06/29/carter-meadows-michigan-recruiting-ohio-state/
-
-**Caitlin Clark, Napheesa Collier named WNBA All-Star captains**\
-`Clark and Collier were named captains because they received the highest number of fan votes among the All-Star starters.`\
-https://nytimes.com/athletic/6461072/2025/06/29/caitlin-clark-napheesa-collier-wnba-all-star-captains/
 
