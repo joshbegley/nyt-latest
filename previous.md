@@ -1,3 +1,19 @@
+**Hicks nearing Red Sox bullpen debut with a new pitch after Devers trade**\
+`The 28-year-old has been on the injury list since early June with toe inflammation, but is set to be activated on Monday.`\
+https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-debut/
+
+**D. Wayne Lukas, Trainer Who Saddled 15 Triple Crown Winners, Dies at 89**\
+`He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
+https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
+
+**Jazz trade Collin Sexton to Hornets for Jusuf Nurkić: Sources**\
+`Utah is also sending a future second-round pick to Charlotte in the deal.`\
+https://nytimes.com/athletic/6461034/2025/06/29/jazz-collin-sexton-hornets-nurkic-trade/
+
+**Non-League manager given six-game ban for sexist comment about women drivers**\
+`White was speaking to the Under the Cosh podcast in January as he took charge of his 1,000th game in charge of the club.`\
+https://nytimes.com/athletic/6460797/2025/06/29/marc-white-droking-ban-sexist-comment/
+
 **Hall of Fame horse trainer D. Wayne Lukas dies at 89**\
 `His 15 Triple Crown victories, including a record six consecutive wins from 1994 to 1996, are second only to those of Bob Baffert.`\
 https://nytimes.com/athletic/6448096/2025/06/29/d-wayne-lukas-horse-trainer-dies/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6460622/2025/06/29/malik-beasley-gambling-investiga
 **Austrian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Spielberg?`\
 https://nytimes.com/athletic/6460913/2025/06/29/f1-mailbag-austrian-grand-prix/
-
-**Norris’s perfect Austria weekend may change his F1 title narrative, but he's not assuming so**\
-`Lando Norris took a confidence-boosting victory in Formula One's 2025 Austrian GP. It made for a quick turnaround after his Canada struggles`\
-https://nytimes.com/athletic/6460653/2025/06/29/lando-norris-austrian-gp-analysis-oscar-piastri/
-
-**Dante Fabbro re-signs with Blue Jackets for 4 years, avoids free agency**\
-`Fabbro was set to be one of the most interesting free agents on the market.`\
-https://nytimes.com/athletic/6453869/2025/06/29/fabbro-blue-jackets-contract/
-
-**Timberwolves, Julius Randle agree to new 3-year, $100 million deal: Source**\
-`The deal keeps the three-time All-Star in Minnesota and came on the last day he had to opt in or out of the final year of his deal.`\
-https://nytimes.com/athletic/6460760/2025/06/29/julius-randle-contract-extension-timberwolves-nba-free-agency/
-
-**Tillis Announces He Won’t Run Again as Trump Threatens Him With a Primary**\
-`The day after President Trump castigated the North Carolina Republican senator Thom Tillis for opposing the bill carrying his domestic agenda, Mr. Tillis said he would not seek a third term.`\
-https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html
 
