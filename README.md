@@ -1,4 +1,8 @@
-**Blue Jackets delight in their fortune, add four more on NHL draft's second day**\
+**Centres, sneaky upside and volume: How Canucks approached 2025 NHL Draft**\
+`For the first time in a long time the Canucks will emerge from the draft with a proper class.`\
+https://nytimes.com/athletic/6459581/2025/06/28/canucks-nhl-draft-2025/
+
+**Blue Jackets delight in their fortune, add 4 more on NHL Draft's second day**\
 `Waddell: "When you're sitting there at 76 and you're able to get a guy who is still on your top 15 list, there's only one decision to make."`\
 https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-vass/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458815/2025/06/28/maple-leafs-2025-draft-analysis-
 **Musk Wades Back Into Politics, Slamming Trump’s Domestic Policy Bill**\
 `Weeks after ending his war of words with President Trump, Elon Musk called the president’s bill “utterly insane and destructive.”`\
 https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
-
-**Bruins still eyeing trades with NHL Draft behind them and a shallow free-agent market ahead**\
-`GM Don Sweeney on potential trades: "We have a couple of those things we looked at. Maybe they come to bear over the next day or so."`\
-https://nytimes.com/athletic/6459654/2025/06/28/bruins-trades-free-agency-draft/
 
