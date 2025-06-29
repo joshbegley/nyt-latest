@@ -1,3 +1,11 @@
+**Centres, sneaky upside and volume: How Canucks approached 2025 NHL Draft**\
+`For the first time in a long time the Canucks will emerge from the draft with a proper class.`\
+https://nytimes.com/athletic/6459581/2025/06/28/canucks-nhl-draft-2025/
+
+**Blue Jackets delight in their fortune, add 4 more on NHL Draft's second day**\
+`Waddell: "When you're sitting there at 76 and you're able to get a guy who is still on your top 15 list, there's only one decision to make."`\
+https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-vass/
+
 **Blue Jackets delight in their fortune, add four more on NHL draft's second day**\
 `Waddell: "When you're sitting there at 76 and you're able to get a guy who is still on your top 15 list, there's only one decision to make."`\
 https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-vass/
