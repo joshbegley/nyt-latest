@@ -1,3 +1,7 @@
+**How to watch the USMNT vs. Costa Rica: Tournament legacy on the line in Gold Cup**\
+`The United States returns to the Concacaf Gold Cup quarterfinals Sunday, when it will face a depleted but familiar Costa Rica squad.`\
+https://nytimes.com/athletic/6457431/2025/06/29/usmnt-costa-rica-2025-gold-cup-how-to-watch/
+
 **How the G.O.P. Bill Saves Money: Paperwork, Paperwork, Paperwork**\
 `Instead of directly reducing benefits for the poor, Republicans are making them harder to get and to keep.`\
 https://nytimes.com/2025/06/29/upshot/republicans-medicaid-cuts-paperwork.html
