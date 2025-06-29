@@ -1,3 +1,7 @@
+**Lionel Messi has made Miami America's new soccer capital. Will it last?**\
+`The world and everything in it has come to Miami. But, after Messi, after the World Cup, will it stay there?`\
+https://nytimes.com/athletic/6458487/2025/06/29/lionel-messi-miami-soccer-inter/
+
 **The complete history of Oasis and football**\
 `As the iconic band prepare to begin their comeback tour, Michael Cox looks at how football and Oasis has always been a natural combination`\
 https://nytimes.com/athletic/6447624/2025/06/29/complete-history-of-oasis-and-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458968/2025/06/29/womens-euro-2025-team-guides/
 **The rise of Gonzalo Garcia, Real Madrid's breakthrough star of the Club World Cup**\
 `The 21-year-old has shone while deputising for Kylian Mbappe, making good on the ambitious mindset he cultivated in Madrid's youth ranks`\
 https://nytimes.com/athletic/6458679/2025/06/29/gonzalo-garcia-real-madrid-club-world-cup/
-
-**Why soccer fans are taking over Times Square this summer**\
-`Supporters from around the world are converging on one of New York's most recognisable locations`\
-https://nytimes.com/athletic/6448944/2025/06/29/soccer-fans-times-square/
 

@@ -1,3 +1,7 @@
+**Lionel Messi has made Miami America's new soccer capital. Will it last?**\
+`The world and everything in it has come to Miami. But, after Messi, after the World Cup, will it stay there?`\
+https://nytimes.com/athletic/6458487/2025/06/29/lionel-messi-miami-soccer-inter/
+
 **The complete history of Oasis and football**\
 `As the iconic band prepare to begin their comeback tour, Michael Cox looks at how football and Oasis has always been a natural combination`\
 https://nytimes.com/athletic/6447624/2025/06/29/complete-history-of-oasis-and-football/
