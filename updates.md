@@ -1,3 +1,7 @@
+**How to watch the USWNT vs. Ireland on Sunday, their second friendly this week**\
+`Rose Lavelle is back on the pitch, and she now gets to show out for her home city.`\
+https://nytimes.com/athletic/6456632/2025/06/29/uswnt-ireland-america-womens-soccer-how-to-watch/
+
 **How Social Media Videos Fueled Zohran Mamdani’s Success**\
 `The son of a filmmaker is running a visually rich campaign for mayor of New York City — and has inspired voters to make their own videos on his behalf.`\
 https://nytimes.com/2025/06/29/nyregion/zohran-mamdani-campaign-videos.html
