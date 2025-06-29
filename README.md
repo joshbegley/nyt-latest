@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-v
 `USWNT coach Emma Hayes will continue to test the player pool's depth as the team prepares to face Ireland for the second time in four days.`\
 https://nytimes.com/athletic/6459876/2025/06/28/uswnt-roster-changes-emma-hayes/
 
-**Chelsea win extraordinary four-hour Club World Cup match delayed by severe weather and packed with drama**\
+**Breaking down Chelsea's extraordinary four-hour Club World Cup match that was delayed by severe weather**\
 `Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
 https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/
 
