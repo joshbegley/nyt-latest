@@ -1,3 +1,7 @@
+**A Public Lands Sell-Off Is Struck From the G.O.P. Policy Bill**\
+`Senator Mike Lee, Republican of Utah, said he would withdraw his proposal after it faced intense intraparty opposition.`\
+https://nytimes.com/2025/06/28/climate/public-lands-sell-off-dropped-mike-lee.html
+
 **How the Canadiens' amateur scouting approach is adjusting coming out of a rebuild**\
 `The Canadiens have built through the draft for three years, but with a deep and diverse prospect pool, a change in approach is necessary.`\
 https://nytimes.com/athletic/6459888/2025/06/28/canadiens-nhl-draft-scouting-zharovsky/
