@@ -1,3 +1,7 @@
+**A Public Lands Sell-Off Is Struck From the G.O.P. Policy Bill**\
+`Senator Mike Lee, Republican of Utah, said he would withdraw his proposal after it faced intense intraparty opposition.`\
+https://nytimes.com/2025/06/28/climate/public-lands-sell-off-dropped-mike-lee.html
+
 **How the Canadiens' amateur scouting approach is adjusting coming out of a rebuild**\
 `The Canadiens have built through the draft for three years, but with a deep and diverse prospect pool, a change in approach is necessary.`\
 https://nytimes.com/athletic/6459888/2025/06/28/canadiens-nhl-draft-scouting-zharovsky/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459776/2025/06/28/mitch-marner-golden-knights-sala
 **For Jets' pick Sascha Boumedienne, hockey and family go hand in hand**\
 `Sascha Boumedienne met hockey, fell in love with it, and never let it go.`\
 https://nytimes.com/athletic/6459117/2025/06/28/winnipeg-jets-sascha-boumedienne/
-
-**Bucks' Kevin Porter Jr. to let option expire, become unrestricted free agent**\
-`After being acquired at the trade deadline, Porter averaged 11.7 points and 3.7 assists in 30 regular-season games.`\
-https://nytimes.com/athletic/6459086/2025/06/28/bucks-kevin-porter-jr-free-agent/
 
