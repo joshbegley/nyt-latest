@@ -1,3 +1,7 @@
+**Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
+`El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
+https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/
+
 **The New York Times in Print for Sunday, June 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/29/todays-new-york-times
