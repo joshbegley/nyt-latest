@@ -1,3 +1,7 @@
+**The Sheikh Who Conquered Soccer and Coddles Warlords**\
+`The Emirati vice president is best known as the owner of a top British soccer team. Behind the scenes, he has been described as the “handler” guiding his country’s secret foreign wars.`\
+https://nytimes.com/2025/06/29/world/middleeast/emirates-manchester-city-soccer-sudan.html
+
 **The New York Times International Edition in Print for Monday, June 30, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/29/todays-new-york-times-international-edition
