@@ -1,3 +1,11 @@
+**Michigan beats Ohio State for Carter Meadows in crucial recruiting battle**\
+`The Michigan-Ohio State rivalry got some big offseason news when the Wolverines landed top-100 DE Carter Meadows on Sunday.`\
+https://nytimes.com/athletic/6461091/2025/06/29/carter-meadows-michigan-recruiting-ohio-state/
+
+**Caitlin Clark, Napheesa Collier named WNBA All-Star captains**\
+`Clark and Collier were named captains because they received the highest number of fan votes among the All-Star starters.`\
+https://nytimes.com/athletic/6461072/2025/06/29/caitlin-clark-napheesa-collier-wnba-all-star-captains/
+
 **Hicks nearing Red Sox bullpen debut with a new pitch after Devers trade**\
 `The 28-year-old has been on the injury list since early June with toe inflammation, but is set to be activated on Monday.`\
 https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-debut/
