@@ -1,3 +1,15 @@
+**G.O.P. Bill Adds Surprise Tax That Could Cripple Wind and Solar Power**\
+`Wind and solar companies were already bracing for Congress to end federal subsidies. But the Senate bill goes even further and penalizes those industries.`\
+https://nytimes.com/2025/06/29/climate/gop-bill-adds-surprise-tax-that-could-cripple-wind-and-solar-power.html
+
+**G.O.P. Toils to Find Votes for Policy Bill as Senate Prepares to Debate**\
+`New official estimates showed the bill would swell deficits while slashing health programs and insurance coverage, posing potential problems as the legislation moved forward in the Senate.`\
+https://nytimes.com/2025/06/29/us/politics/senate-trump-domestic-policy-bill.html
+
+**Lando Norris wins Austrian Grand Prix as Kimi Antonelli takes out Max Verstappen**\
+`Lando Norris claims huge win to maintain title hopes but Max Verstappen's chances of defending his crown now appear slim`\
+https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-results-lando-norris-oscar-piastri/
+
 **Explained: Why Estevao is able to play against Chelsea at the Club World Cup**\
 `Estevao will soon be a Chelsea player but could help send them home from the Club World Cup when he faces them with Palmeiras`\
 https://nytimes.com/athletic/6460397/2025/06/29/estevao-chelsea-palmeiras-club-world-cup/

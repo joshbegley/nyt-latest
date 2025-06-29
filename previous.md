@@ -1,3 +1,11 @@
+**G.O.P. Bill Adds Surprise Tax That Could Cripple Wind and Solar Power**\
+`Wind and solar companies were already bracing for Congress to end federal subsidies. But the Senate bill goes even further and penalizes those industries.`\
+https://nytimes.com/2025/06/29/climate/gop-bill-adds-surprise-tax-that-could-cripple-wind-and-solar-power.html
+
+**G.O.P. Toils to Find Votes for Policy Bill as Senate Prepares to Debate**\
+`New official estimates showed the bill would swell deficits while slashing health programs and insurance coverage, posing potential problems as the legislation moved forward in the Senate.`\
+https://nytimes.com/2025/06/29/us/politics/senate-trump-domestic-policy-bill.html
+
 **Explained: Why Estevao is able to play against Chelsea at the Club World Cup**\
 `Estevao will soon be a Chelsea player but could help send them home from the Club World Cup when he faces them with Palmeiras`\
 https://nytimes.com/athletic/6460397/2025/06/29/estevao-chelsea-palmeiras-club-world-cup/
@@ -19,8 +27,8 @@ https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-laker
 https://nytimes.com/2025/06/29/dining/three-ingredient-salmon-dinner-from-sam-sifton.html
 
 **Lando Norris wins Austrian Grand Prix as Kimi Antonelli takes out Max Verstappen**\
-`Lando Norris claims huge win to maintain title hopes `\
-https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-briefing-lando-norris-wins-kimi-antonelli-takes-out-max-verstappen/
+`Lando Norris claims huge win to maintain title hopes but Max Verstappen's chances of defending his crown now appear slim`\
+https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-results-lando-norris-oscar-piastri/
 
 **G.O.P. Bill Has $1.1 Trillion in Health Cuts and 11.8 Million Losing Care, C.B.O. Says**\
 `Analysis from the nonpartisan Congressional Budget Office found that Republicans’ new version of the legislation would make far deeper cuts and lead to more people becoming uninsured than previous proposals.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/us/politics/trump-policy-bill-health-insurance-cu
 **Quentin Grimes, Guerschon Yabusele top 76ers' offseason to-do list. Can they keep both?**\
 `Grimes and Yabusele performed well for the Sixers late in the season, but Philadelphia may not be able to sign both players.`\
 https://nytimes.com/athletic/6460089/2025/06/29/quentin-grimes-guerschon-yabusele-76ers/
-
-**Appeals Court to Consider Trump’s Use of Alien Enemies Act**\
-`The case before one of the most conservative courts in the country is likely to be the first to reach the Supreme Court.`\
-https://nytimes.com/2025/06/29/us/politics/appeal-trump-alien-enemies-act.html
-
-**Giants Mailbagg: What happened to San Francisco's offense?**\
-`Fans want to know why the Giants aren't scoring more runs. The Giants do, too. Plus, should they move on from Matt Williams? `\
-https://nytimes.com/athletic/6459330/2025/06/29/sf-giants-offense-struggles-mailbag/
 
