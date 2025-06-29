@@ -1,3 +1,5 @@
+
+
 **Calvert-Lewin confirms Everton exit as free agent**\
 `Everton offered the 11-time England international a new deal towards the end of 2023-24 but no agreement on an extension was reached.`\
 https://nytimes.com/athletic/6301982/2025/06/29/dominic-calvert-lewin-everton-leaves/
