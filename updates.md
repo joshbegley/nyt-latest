@@ -1,3 +1,15 @@
+**Partey to leave Arsenal at end of contract**\
+`The 32-year-old was in talks over extending his career at the Emirates Stadium but an agreement could not be reached on the terms of a deal.`\
+https://nytimes.com/athletic/6280640/2025/06/29/thomas-partey-arsenal-contract-exit/
+
+**Men’s Fashion Week Moments That Had Us Talking**\
+`The spring 2026 men’s wear shows arrived in Paris with starry celebs, startling Anna Wintour buzz and a Demna goodbye.`\
+https://nytimes.com/2025/06/29/style/mens-fashion-week-paris.html
+
+**Glastonbury ‘Appalled’ by Band’s Chant Against Israel’s Military**\
+`The band Bob Vylan led a crowd in a chant of “Death, death to the I.D.F.” while performing at Glastonbury, Britain’s biggest music festival.`\
+https://nytimes.com/2025/06/29/world/europe/bob-vylan-idf-palestine-glastonbury.html
+
 **G.O.P. Bill Adds Surprise Tax That Could Cripple Wind and Solar Power**\
 `Wind and solar companies were already bracing for Congress to end federal subsidies. But the Senate bill goes even further and penalizes those industries.`\
 https://nytimes.com/2025/06/29/climate/gop-bill-adds-surprise-tax-that-could-cripple-wind-and-solar-power.html
