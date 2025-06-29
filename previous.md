@@ -1,3 +1,7 @@
+**Dante Fabbro re-signs with Blue Jackets for 4 years, avoids free agency**\
+`Fabbro was set to be one of the most interesting free agents on the market.`\
+https://nytimes.com/athletic/6453869/2025/06/29/fabbro-blue-jackets-contract/
+
 **Timberwolves, Julius Randle agree to new 3-year, $100 million deal: Source**\
 `The deal keeps the three-time All-Star in Minnesota and came on the last day he had to opt in or out of the final year of his deal.`\
 https://nytimes.com/athletic/6460760/2025/06/29/julius-randle-contract-extension-timberwolves-nba-free-agency/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6460600/2025/06/29/england-jamaica-lionesses-euros-
 `Submit your questions about the Dodgers for Fabian Ardaya's Q&A.`\
 https://nytimes.com/athletic/6459611/2025/06/29/dodgers-live-qa-fabian-ardaya-trade-deadline-shohei-ohtani/
 
-**Lionel Messi's Inter Miami humbled in crushing Club World Cup exit - Paris Saint-Germain 4 Inter Miami 0**\
+**Lionel Messi's Inter Miami humbled in crushing Club World Cup exit – Paris Saint-Germain 4 Inter Miami 0**\
 `How Lionel Messi's Club World Cup ended and what makes PSG so good`\
 https://nytimes.com/athletic/6453273/2025/06/29/lionel-messi-inter-miami-psg-highlights/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/business/media/f1-the-movie-apple-box-office.html
 **Spurs keep building their way as they seek the 'mountaintop' once again**\
 `San Antonio has been in the draft lottery the past six seasons. Its newest faces seem confident that will end soon.`\
 https://nytimes.com/athletic/6460592/2025/06/29/dylan-harper-carter-bryant-spurs-introduction/
-
-**Beyoncé Pauses Concert After Car Prop Mishap Left Her Dangling Over Crowds**\
-`She was singing “16 Carriages,” as she sat in the back of a red convertible prop high above the crowds on Saturday, when it suddenly slanted in the air.`\
-https://nytimes.com/2025/06/29/arts/beyonce-concert-houston-car-malfunction.html
 

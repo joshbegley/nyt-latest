@@ -1,3 +1,11 @@
+**Dante Fabbro re-signs with Blue Jackets for 4 years, avoids free agency**\
+`Fabbro was set to be one of the most interesting free agents on the market.`\
+https://nytimes.com/athletic/6453869/2025/06/29/fabbro-blue-jackets-contract/
+
+**Lionel Messi's Inter Miami humbled in crushing Club World Cup exit – Paris Saint-Germain 4 Inter Miami 0**\
+`How Lionel Messi's Club World Cup ended and what makes PSG so good`\
+https://nytimes.com/athletic/6453273/2025/06/29/lionel-messi-inter-miami-psg-highlights/
+
 **Timberwolves, Julius Randle agree to new 3-year, $100 million deal: Source**\
 `The deal keeps the three-time All-Star in Minnesota and came on the last day he had to opt in or out of the final year of his deal.`\
 https://nytimes.com/athletic/6460760/2025/06/29/julius-randle-contract-extension-timberwolves-nba-free-agency/
