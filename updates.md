@@ -1,3 +1,7 @@
+**Why Was the Italian Football Championship Played in Toledo?**\
+`Amateur football players from Ancona and Florence drew a crowd in Ohio on Saturday.`\
+https://nytimes.com/2025/06/29/sports/football/italian-bowl-toledo-football.html
+
 **The Pulse: Caitlin Clark's complicated season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6460000/2025/06/29/caitlin-clarks-drama-filled-season-rolls-on-plus-ohtani-hits-100/

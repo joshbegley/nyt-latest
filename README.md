@@ -1,3 +1,7 @@
+**The 'joke' Club World Cup weather delays and an ominous warning for World Cup 2026**\
+`What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go`\
+https://nytimes.com/athletic/6460275/2025/06/29/maresca-joke-weather-delays-world-cup/
+
 **Why Was the Italian Football Championship Played in Toledo?**\
 `Amateur football players from Ancona and Florence drew a crowd in Ohio on Saturday.`\
 https://nytimes.com/2025/06/29/sports/football/italian-bowl-toledo-football.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459633/2025/06/29/twins-bailey-ober-14-home-runs/
 **Calvert-Lewin scored one of Everton's most important goals, but his exit feels right**\
 `Calvert-Lewin's departure after nine years at Goodison gives player and club chance for a new start – he owes Everton very little `\
 https://nytimes.com/athletic/6424374/2025/06/29/dominic-calvert-lewin-everton-exit-transfer/
-
-**Tigers takeaways: Matt Vierling's return, Trey Sweeney's demotion and more**\
-`More notes on Brant Hurter's struggles, Parker Meadows' search to get going and Colt Keith's role at third base.`\
-https://nytimes.com/athletic/6459377/2025/06/29/tigers-matt-vierling-trey-sweeney/
 

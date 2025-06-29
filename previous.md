@@ -1,3 +1,7 @@
+**Why Was the Italian Football Championship Played in Toledo?**\
+`Amateur football players from Ancona and Florence drew a crowd in Ohio on Saturday.`\
+https://nytimes.com/2025/06/29/sports/football/italian-bowl-toledo-football.html
+
 **The Pulse: Caitlin Clark's complicated season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6460000/2025/06/29/caitlin-clarks-drama-filled-season-rolls-on-plus-ohtani-hits-100/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424374/2025/06/29/dominic-calvert-lewin-everton-ex
 **Tigers takeaways: Matt Vierling's return, Trey Sweeney's demotion and more**\
 `More notes on Brant Hurter's struggles, Parker Meadows' search to get going and Colt Keith's role at third base.`\
 https://nytimes.com/athletic/6459377/2025/06/29/tigers-matt-vierling-trey-sweeney/
-
-**Breaking down Winnipeg's 2025 draft: Sascha Boumedienne leads five-player class**\
-`From Sascha Boumedienne in the first round to hometown hero Owen Martin, here's a breakdown of Winnipeg's five-player 2025 draft class. `\
-https://nytimes.com/athletic/6459831/2025/06/29/what-are-the-winnipeg-jets-getting-in-their-2025-nhl-draft-picks/
 
