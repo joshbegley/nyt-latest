@@ -1,3 +1,7 @@
+**How to watch the USWNT vs. Ireland on Sunday, their second friendly this week**\
+`Rose Lavelle is back on the pitch, and she now gets to show out for her home city.`\
+https://nytimes.com/athletic/6456632/2025/06/29/uswnt-ireland-america-womens-soccer-how-to-watch/
+
 **How Social Media Videos Fueled Zohran Mamdani’s Success**\
 `The son of a filmmaker is running a visually rich campaign for mayor of New York City — and has inspired voters to make their own videos on his behalf.`\
 https://nytimes.com/2025/06/29/nyregion/zohran-mamdani-campaign-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6460122/2025/06/29/jake-paul-julio-cesar-chavez-jr-
 **Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
 `El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
 https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/
-
-**The New York Times in Print for Sunday, June 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/29/todays-new-york-times
 
