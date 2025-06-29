@@ -1,3 +1,11 @@
+**Inter Miami first half vs PSG was a 'bloodbath' - coach Javier Mascherano**\
+`The MLS club were outclassed by Europe's recent Champions League winners in the first 45 minutes and eventually lost 4-0.`\
+https://nytimes.com/athletic/6460883/2025/06/29/inter-miami-psg-mascherano-messi/
+
+**Malik Beasley under gambling investigation by U.S. District Attorney**\
+`Beasley signed a one-year, $6 million deal with the Detroit Pistons ahead of last season, and is now set to hit unrestricted free agency.`\
+https://nytimes.com/athletic/6460622/2025/06/29/malik-beasley-gambling-investigation-pistons-nba-free-agency/
+
 **Austrian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Spielberg?`\
 https://nytimes.com/athletic/6460913/2025/06/29/f1-mailbag-austrian-grand-prix/
