@@ -1,3 +1,7 @@
+**Inter Miami first half vs PSG was a 'bloodbath' – coach Javier Mascherano**\
+`The MLS club were outclassed by Europe's recent Champions League winners in the first 45 minutes and eventually lost 4-0.`\
+https://nytimes.com/athletic/6460883/2025/06/29/inter-miami-psg-mascherano-messi/
+
 **Inter Miami first half vs PSG was a 'bloodbath' - coach Javier Mascherano**\
 `The MLS club were outclassed by Europe's recent Champions League winners in the first 45 minutes and eventually lost 4-0.`\
 https://nytimes.com/athletic/6460883/2025/06/29/inter-miami-psg-mascherano-messi/
