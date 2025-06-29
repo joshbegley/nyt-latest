@@ -1,3 +1,7 @@
+**Hall of Fame horse trainer D. Wayne Lukas dies at 89**\
+`His 15 Triple Crown victories, including a record six consecutive wins from 1994 to 1996, are second only to those of Bob Baffert.`\
+https://nytimes.com/athletic/6448096/2025/06/29/d-wayne-lukas-horse-trainer-dies/
+
 **Tillis Announces He Won’t Run Again as Trump Threatens Him With a Primary**\
 `The day after President Trump castigated the North Carolina Republican senator Thom Tillis for opposing the bill carrying his domestic agenda, Mr. Tillis said he would not seek a third term.`\
 https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html
