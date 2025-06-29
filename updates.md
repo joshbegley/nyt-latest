@@ -1,3 +1,7 @@
+**The 'joke' Club World Cup weather delays and an ominous warning for World Cup 2026**\
+`What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go`\
+https://nytimes.com/athletic/6460275/2025/06/29/maresca-joke-weather-delays-world-cup/
+
 **Why Was the Italian Football Championship Played in Toledo?**\
 `Amateur football players from Ancona and Florence drew a crowd in Ohio on Saturday.`\
 https://nytimes.com/2025/06/29/sports/football/italian-bowl-toledo-football.html
