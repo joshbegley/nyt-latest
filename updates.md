@@ -1,3 +1,11 @@
+**Monday Briefing: The Toll of an Attack on an Iranian Prison**\
+`Plus, correcting Captain Nemo.`\
+https://nytimes.com/2025/06/29/briefing/iran-israel-evin-prison-trump-venezuela-immigration-ukraine-russia.html
+
+**D. Wayne Lukas, Horse Trainer Who Saddled Champions From Coast to Coast, Dies at 89**\
+`He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
+https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
+
 **U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’**\
 `The assessment widens the divide with President Trump, who has claimed that Tehran has given up its nuclear ambitions after a U.S. attack.`\
 https://nytimes.com/2025/06/29/us/politics/un-iran-nuclear-program-enrichment.html

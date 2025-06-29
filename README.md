@@ -1,3 +1,15 @@
+**Bobby Portis, Bucks agree to 3-year, $44 million extension: Sources**\
+`Portis' deal with the Bucks includes a player option for the 2027-28 season.`\
+https://nytimes.com/athletic/6460815/2025/06/29/bobby-portis-bucks-contract-free-agency/
+
+**Ex-Man United and England midfielder Paul Ince charged with drink-driving**\
+`The 57-year-old was arrested on Saturday and will appear before magistrates in Chester on Friday having been bailed.`\
+https://nytimes.com/athletic/6461007/2025/06/29/paul-ince-arrest-drink-driving-charge/
+
+**The disappearance of 'Guards Ball' and Cleveland's long wait for Chase DeLauter: Meisel**\
+`Somehow, a team that stood three wins from the World Series eight months ago is trending toward a summer of retooling. What's the solution?`\
+https://nytimes.com/athletic/6457634/2025/06/29/cleveland-guardians-slump-chase-delauter/
+
 **Monday Briefing: The Toll of an Attack on an Iranian Prison**\
 `Plus, correcting Captain Nemo.`\
 https://nytimes.com/2025/06/29/briefing/iran-israel-evin-prison-trump-venezuela-immigration-ukraine-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
 **Jazz trade Collin Sexton to Hornets for Jusuf Nurkić: Sources**\
 `Utah is also sending a future second-round pick to Charlotte in the deal.`\
 https://nytimes.com/athletic/6461034/2025/06/29/jazz-collin-sexton-hornets-nurkic-trade/
-
-**Non-League manager given six-game ban for sexist comment about women drivers**\
-`White was speaking to the Under the Cosh podcast in January as he took charge of his 1,000th game in charge of the club.`\
-https://nytimes.com/athletic/6460797/2025/06/29/marc-white-droking-ban-sexist-comment/
-
-**Hall of Fame horse trainer D. Wayne Lukas dies at 89**\
-`His 15 Triple Crown victories, including a record six consecutive wins from 1994 to 1996, are second only to those of Bob Baffert.`\
-https://nytimes.com/athletic/6448096/2025/06/29/d-wayne-lukas-horse-trainer-dies/
-
-**‘Pastoral’ Review: Sampling Beethoven at Bard**\
-`The latest work by the choreographer Pam Tanowitz combines music and design in fresh and delightfully unpredictable ways.`\
-https://nytimes.com/2025/06/29/arts/dance/tanowitz-pastoral-review.html
 
