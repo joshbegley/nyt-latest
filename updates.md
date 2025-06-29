@@ -1,3 +1,7 @@
+**Lando Norris wins Austrian Grand Prix as Kimi Antonelli takes out Max Verstappen**\
+`Lando Norris claims huge win to maintain title hopes `\
+https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-briefing-lando-norris-wins-kimi-antonelli-takes-out-max-verstappen/
+
 **G.O.P. Bill Has $1.1 Trillion in Health Cuts and 11.8 Million Losing Care, C.B.O. Says**\
 `Analysis from the nonpartisan Congressional Budget Office found that Republicans’ new version of the legislation would make far deeper cuts and lead to more people becoming uninsured than previous proposals.`\
 https://nytimes.com/2025/06/29/us/politics/trump-policy-bill-health-insurance-cuts.html
