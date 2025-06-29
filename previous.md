@@ -1,3 +1,7 @@
+**Spurs keep building their way as they seek the 'mountaintop' once again**\
+`San Antonio has been in the draft lottery the past six seasons. Its newest faces seem confident that will end soon.`\
+https://nytimes.com/athletic/6460592/2025/06/29/dylan-harper-carter-bryant-spurs-introduction/
+
 **Beyoncé Pauses Concert After Car Prop Mishap Left Her Dangling Over Crowds**\
 `She was singing “16 Carriages,” as she sat in the back of a red convertible prop high above the crowds on Saturday, when it suddenly slanted in the air.`\
 https://nytimes.com/2025/06/29/arts/beyonce-concert-houston-car-malfunction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6280640/2025/06/29/thomas-partey-arsenal-contract-e
 **Men’s Fashion Week Moments That Had Us Talking**\
 `The spring 2026 men’s wear shows arrived in Paris with starry celebs, startling Anna Wintour buzz and a Demna goodbye.`\
 https://nytimes.com/2025/06/29/style/mens-fashion-week-paris.html
-
-**Glastonbury ‘Appalled’ by Band’s Chant Against Israel’s Military**\
-`The band Bob Vylan led a crowd in a chant of “Death, death to the I.D.F.” while performing at Glastonbury, Britain’s biggest music festival.`\
-https://nytimes.com/2025/06/29/world/europe/bob-vylan-idf-palestine-glastonbury.html
 

@@ -1,3 +1,7 @@
+**Spurs keep building their way as they seek the 'mountaintop' once again**\
+`San Antonio has been in the draft lottery the past six seasons. Its newest faces seem confident that will end soon.`\
+https://nytimes.com/athletic/6460592/2025/06/29/dylan-harper-carter-bryant-spurs-introduction/
+
 **Beyoncé Pauses Concert After Car Prop Mishap Left Her Dangling Over Crowds**\
 `She was singing “16 Carriages,” as she sat in the back of a red convertible prop high above the crowds on Saturday, when it suddenly slanted in the air.`\
 https://nytimes.com/2025/06/29/arts/beyonce-concert-houston-car-malfunction.html
