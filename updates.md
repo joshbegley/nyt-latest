@@ -1,3 +1,7 @@
+**‘F1: The Movie’ Gives Apple Its First Box Office Hit**\
+`But the movie cost at least $350 million to make and market, analysts said, so it will need to attract substantial crowds in the weeks ahead to make money.`\
+https://nytimes.com/2025/06/29/business/media/f1-the-movie-apple-box-office.html
+
 **Spurs keep building their way as they seek the 'mountaintop' once again**\
 `San Antonio has been in the draft lottery the past six seasons. Its newest faces seem confident that will end soon.`\
 https://nytimes.com/athletic/6460592/2025/06/29/dylan-harper-carter-bryant-spurs-introduction/
