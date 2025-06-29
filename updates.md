@@ -1,3 +1,7 @@
+**Calvert-Lewin confirms Everton exit as free agent**\
+`Everton offered the 11-time England international a new deal towards the end of 2023-24 but no agreement on an extension was reached.`\
+https://nytimes.com/athletic/6301982/2025/06/29/dominic-calvert-lewin-everton-leaves/
+
 **Every NHL team's toughest decision during 2025 free agency**\
 `With the free-agent frenzy around the corner, The Athletic asked its NHL staff to identify the toughest decision for all 32 teams.`\
 https://nytimes.com/athletic/6459158/2025/06/29/nhl-free-agency-2025-offseason-news/

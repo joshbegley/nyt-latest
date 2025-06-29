@@ -1,3 +1,7 @@
+**Calvert-Lewin confirms Everton exit as free agent**\
+`Everton offered the 11-time England international a new deal towards the end of 2023-24 but no agreement on an extension was reached.`\
+https://nytimes.com/athletic/6301982/2025/06/29/dominic-calvert-lewin-everton-leaves/
+
 **Every NHL team's toughest decision during 2025 free agency**\
 `With the free-agent frenzy around the corner, The Athletic asked its NHL staff to identify the toughest decision for all 32 teams.`\
 https://nytimes.com/athletic/6459158/2025/06/29/nhl-free-agency-2025-offseason-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459031/2025/06/29/senators-staios-trade-spence/
 **There Will Be No Next Anna Wintour and That’s Just Fine**\
 `There will never again be a Vogue editor like Anna Wintour. That’s probably a good thing.`\
 https://nytimes.com/2025/06/29/opinion/anna-wintour-vogue.html
-
-**2026 NBA mock draft: A clear big 3 of potential superstars front a deep class**\
-`The 2025 NBA Draft is in the books and next year's draft already looks more talented, as Sam Vecenie explains in his 2026 mock draft.`\
-https://nytimes.com/athletic/6439364/2025/06/29/nba-mock-draft-2026-prospective-players/
 
