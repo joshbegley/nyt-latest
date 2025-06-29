@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, June 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/29/todays-new-york-times-international-edition
+
 **How to watch X Games Salt Lake City Day 3: Best trick showcase in grand finale**\
 `Day 3 of X Games Salt Lake City is the event's grand finale, with numerous best trick competitions peppering Sunday's schedule. `\
 https://nytimes.com/athletic/6459932/2025/06/29/x-games-salt-lake-city-day-3-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/world/middleeast/iran-israel-war-future.html
 **Catholic Bishops Try to Rally Opposition to Trump’s Immigration Agenda**\
 `Leading prelates are expressing outrage at the drive toward mass deportation.`\
 https://nytimes.com/2025/06/29/us/catholic-bishops-trump-immigration.html
-
-**Greenland, Once a Distant Destination, Gets a Little Closer to the U.S.**\
-`United Airlines has started a seasonal, nonstop flight from Newark to the capital of the Arctic island that President Trump wants to acquire.`\
-https://nytimes.com/2025/06/29/business/greenland-united-airlines.html
 
