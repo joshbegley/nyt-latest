@@ -1,3 +1,7 @@
+**Explained: Why Estevao is able to play against Chelsea at the Club World Cup**\
+`Estevao will soon be a Chelsea player but could help send them home from the Club World Cup when he faces them with Palmeiras`\
+https://nytimes.com/athletic/6460397/2025/06/29/estevao-chelsea-palmeiras-club-world-cup/
+
 **Europe Endures Relentless Heat Wave**\
 `Extreme heat has gripped Europe with record-high temperatures, health alerts and wildfires, from France and Spain to Greece.`\
 https://nytimes.com/2025/06/29/world/europe/europe-heat-wave-record-temperatures.html
