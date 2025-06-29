@@ -1,3 +1,11 @@
+**Blue Jackets delight in their fortune, add four more on NHL draft's second day**\
+`Waddell: "When you're sitting there at 76 and you're able to get a guy who is still on your top 15 list, there's only one decision to make."`\
+https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-vass/
+
+**More changes coming to USWNT roster ahead of matchup with Ireland**\
+`USWNT coach Emma Hayes will continue to test the player pool's depth as the team prepares to face Ireland for the second time in four days.`\
+https://nytimes.com/athletic/6459876/2025/06/28/uswnt-roster-changes-emma-hayes/
+
 **Chelsea win extraordinary four-hour Club World Cup match delayed by severe weather and packed with drama**\
 `Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
 https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/

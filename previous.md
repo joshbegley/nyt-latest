@@ -1,3 +1,11 @@
+**Blue Jackets delight in their fortune, add four more on NHL draft's second day**\
+`Waddell: "When you're sitting there at 76 and you're able to get a guy who is still on your top 15 list, there's only one decision to make."`\
+https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-vass/
+
+**More changes coming to USWNT roster ahead of matchup with Ireland**\
+`USWNT coach Emma Hayes will continue to test the player pool's depth as the team prepares to face Ireland for the second time in four days.`\
+https://nytimes.com/athletic/6459876/2025/06/28/uswnt-roster-changes-emma-hayes/
+
 **Chelsea win extraordinary four-hour Club World Cup match delayed by severe weather and packed with drama**\
 `Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
 https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/28/us/politics/musk-trump-bill.html
 **Bruins still eyeing trades with NHL Draft behind them and a shallow free-agent market ahead**\
 `GM Don Sweeney on potential trades: "We have a couple of those things we looked at. Maybe they come to bear over the next day or so."`\
 https://nytimes.com/athletic/6459654/2025/06/28/bruins-trades-free-agency-draft/
-
-**USMNT 'very focused, very involved' heading into quarterfinal after week-long break**\
-`Despite an easygoing warmup, it's back to business for the USMNT ahead of Sunday's quarterfinal against Costa Rica.`\
-https://nytimes.com/athletic/6459543/2025/06/28/usmnt-soccer-gold-cup-pochettino/
-
-**Messi and Inter Miami ready to 'fight' against 'possibly the best team in the world' PSG, says Mascherano**\
-`"We are quite aware that we are the weaker of the two teams but in no way does this mean we should be declared dead before we have started"`\
-https://nytimes.com/athletic/6459710/2025/06/28/inter-miami-psg-mascherano/
 
