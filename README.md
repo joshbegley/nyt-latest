@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6453869/2025/06/29/fabbro-blue-jackets-contract/
 https://nytimes.com/athletic/6460760/2025/06/29/julius-randle-contract-extension-timberwolves-nba-free-agency/
 
 **Tillis Announces He Won’t Run Again as Trump Threatens Him With a Primary**\
-`The day after President Trump castigated the North Carolina Republican for opposing the policy bill carrying his domestic agenda, the senator announced he would not seek a third term.`\
+`The day after President Trump castigated the North Carolina Republican for saying he was opposed to the policy bill carrying his domestic agenda, the senator announced he would not seek a third term.`\
 https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html
 
 **Chelsea reach agreement with Brighton to sign Joao Pedro**\
