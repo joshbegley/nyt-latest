@@ -1,3 +1,7 @@
+**How much longer can Oilers afford to wait to make a decision on their goalies?**\
+`With John Gibson and Joel Hofer now off the board, the pickings are even slimmer should Edmonton opt to make changes in net.`\
+https://nytimes.com/athletic/6459771/2025/06/28/oilers-goaltending-bowman-gibson/
+
 **What a Mitch Marner deal would mean for the Golden Knights and their cap situation**\
 `If Vegas added Marner, it could have close to $50 million in cap space committed to five players.`\
 https://nytimes.com/athletic/6459776/2025/06/28/mitch-marner-golden-knights-salary-cap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459710/2025/06/28/inter-miami-psg-mascherano/
 **Thoughts on the Rangers' draft: Evaluating the K'Andre Miller situation, class of 2025**\
 `Even if the draft passed without resolution, the Rangers either have to trade Miller or find another way to clear cap space.`\
 https://nytimes.com/athletic/6459531/2025/06/28/rangers-kandre-miller-nhl-draft-analysis-2025/
-
-**Best undrafted players at the 2025 NHL Draft: Owen Conrad, Tomas Pobezal and more**\
-`These 12 players are worth teams considering for development camp invites/contracts or keeping a close eye on next season.`\
-https://nytimes.com/athletic/6449786/2025/06/28/nhl-draft-2025-best-undrafted-players/
 
