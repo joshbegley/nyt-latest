@@ -1,3 +1,7 @@
+**LeBron James exercises player option, remaining with Lakers for 23rd NBA season**\
+`After 22 seasons, LeBron James can finally check off a new first — opting into the final year of his contract.`\
+https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-lakers-return/
+
 **My Three-Ingredient Salmon Dinner**\
 `Roasted salmon glazed with brown sugar and mustard, a New York Times Cooking classic with over 18,000 reviews.`\
 https://nytimes.com/2025/06/29/dining/three-ingredient-salmon-dinner-from-sam-sifton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/sports/football/italian-bowl-toledo-football.html
 **The Pulse: Caitlin Clark's complicated season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6460000/2025/06/29/caitlin-clarks-drama-filled-season-rolls-on-plus-ohtani-hits-100/
-
-**With immediate future on defense uncertain, which players could the Kings target?**\
-`With Vladislav Gavrikov looking increasingly likely to hit free agency and Jordan Spence traded to Ottawa, the Kings' blue line has holes.`\
-https://nytimes.com/athletic/6459998/2025/06/29/kings-defense-targets-holland-spence-gavrikov/
 
