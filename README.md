@@ -1,3 +1,7 @@
+**Lionel Messi carried Inter Miami and FIFA as far as he could but football is a team game**\
+`Lionel Messi is the face of his team, his league and the Club World Cup but ultimately there is a limit to his superpowers`\
+https://nytimes.com/athletic/6460580/2025/06/29/lionel-messi-club-world-cup-fifa-exit/
+
 **USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
 `Hayes started a completely new lineup from Thursday's win, but the result was the same: a 4-0 victory.`\
 https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440505/2025/06/29/maple-leafs-matthew-knies-contra
 **Police Officers Protest Pride After Being Barred From Marching With Guns**\
 `An L.G.B.T.Q. officers’ group had been barred from New York City’s Pride March since 2021. This year, organizers said they could participate only if they left their weapons at home.`\
 https://nytimes.com/2025/06/29/nyregion/gay-nypd-nyc-pride-march.html
-
-**James Harden to re-sign with Clippers for 2 years, $81.5 million: Sources**\
-`The second year of the deal is partially guaranteed with a player option.`\
-https://nytimes.com/athletic/6460962/2025/06/29/james-harden-opt-out-clippers/
 
