@@ -1,3 +1,7 @@
+**Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
+`What the Chelsea coach said about the weather delays and the key questions answered`\
+https://nytimes.com/athletic/6459997/2025/06/28/maresca-chelsea-delay-joke/
+
 **Breaking down Chelsea's extraordinary four-hour Club World Cup match that was delayed by severe weather**\
 `Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
 https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/

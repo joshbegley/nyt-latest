@@ -1,3 +1,23 @@
+**Why soccer fans are taking over Times Square this summer**\
+`Supporters from around the world are converging on one of New York's most recognisable locations`\
+https://nytimes.com/athletic/6448944/2025/06/29/soccer-fans-times-square/
+
+**How Europe Got Tough on Migration**\
+`The European Union has not gone as far as President Trump in cracking down on immigration, but its shift is already profound.`\
+https://nytimes.com/2025/06/29/world/europe/europe-migration-crackdown-trump.html
+
+**Quote of the Day: Bruce Springsteen Reveals His Paths Not Taken**\
+`Quote of the Day for Sunday, June 29, 2025`\
+https://nytimes.com/2025/06/29/pageoneplus/quote-of-the-day-bruce-springsteen-reveals-his-paths-not-taken.html
+
+**Connections: Sports Edition Coach: Hints for June 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6442064/2025/06/29/connections-sports-edition-hints-for-june-29-2025/
+
+**After another loss, Mets players call a team meeting in bid for a turnaround**\
+`“This is not 'Rah-Rah,’ and ‘Now, the season is going to turn around.' We are competing — still," said de facto captain Francisco Lindor.`\
+https://nytimes.com/athletic/6460007/2025/06/28/mets-players-postgame-meeting/
+
 **Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
 `What the Chelsea coach said about the weather delays and the key questions answered`\
 https://nytimes.com/athletic/6459997/2025/06/28/maresca-chelsea-delay-joke/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6459350/2025/06/28/red-wings-nhl-draft-john-gibson-
 **Centres, sneaky upside and volume: How Canucks approached 2025 NHL Draft**\
 `For the first time in a long time the Canucks will emerge from the draft with a proper class.`\
 https://nytimes.com/athletic/6459581/2025/06/28/canucks-nhl-draft-2025/
-
-**Blue Jackets delight in their fortune, add 4 more on NHL Draft's second day**\
-`Waddell: "When you're sitting there at 76 and you're able to get a guy who is still on your top 15 list, there's only one decision to make."`\
-https://nytimes.com/athletic/6459668/2025/06/28/blue-jackets-nhl-draft-waddell-vass/
-
-**More changes coming to USWNT roster ahead of matchup with Ireland**\
-`USWNT coach Emma Hayes will continue to test the player pool's depth as the team prepares to face Ireland for the second time in four days.`\
-https://nytimes.com/athletic/6459876/2025/06/28/uswnt-roster-changes-emma-hayes/
-
-**Breaking down Chelsea's extraordinary four-hour Club World Cup match that was delayed by severe weather**\
-`Analysis of Chelsea's game against Benfica in the Club World Cup knockouts that lasted four hours and 38 minutes`\
-https://nytimes.com/athletic/6453216/2025/06/28/chelsea-benfica-highlights-delay/
-
-**How much longer can Oilers afford to wait to make a decision on their goalies?**\
-`With John Gibson and Joel Hofer now off the board, the pickings are even slimmer should Edmonton opt to make changes in net.`\
-https://nytimes.com/athletic/6459771/2025/06/28/oilers-goaltending-bowman-gibson/
-
-**What a Mitch Marner deal would mean for the Golden Knights and their cap situation**\
-`If Vegas added Marner, it could have close to $50 million in cap space committed to five players.`\
-https://nytimes.com/athletic/6459776/2025/06/28/mitch-marner-golden-knights-salary-cap/
 

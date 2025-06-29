@@ -1,3 +1,7 @@
+**Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
+`What the Chelsea coach said about the weather delays and the key questions answered`\
+https://nytimes.com/athletic/6459997/2025/06/28/maresca-chelsea-delay-joke/
+
 **A Public Lands Sell-Off Is Struck From the G.O.P. Policy Bill**\
 `Senator Mike Lee, Republican of Utah, said he would withdraw his proposal after it faced intense intraparty opposition.`\
 https://nytimes.com/2025/06/28/climate/public-lands-sell-off-dropped-mike-lee.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459771/2025/06/28/oilers-goaltending-bowman-gibson
 **What a Mitch Marner deal would mean for the Golden Knights and their cap situation**\
 `If Vegas added Marner, it could have close to $50 million in cap space committed to five players.`\
 https://nytimes.com/athletic/6459776/2025/06/28/mitch-marner-golden-knights-salary-cap/
-
-**For Jets' pick Sascha Boumedienne, hockey and family go hand in hand**\
-`Sascha Boumedienne met hockey, fell in love with it, and never let it go.`\
-https://nytimes.com/athletic/6459117/2025/06/28/winnipeg-jets-sascha-boumedienne/
 
