@@ -1,3 +1,11 @@
+**Europe Endures Relentless Heat Wave**\
+`Extreme heat has gripped Europe with record-high temperatures, health alerts and wildfires, from France and Spain to Greece.`\
+https://nytimes.com/2025/06/29/world/europe/europe-heat-wave-record-temperatures.html
+
+**Lowetide: An early look at Oilers prospects after the 2025 NHL Draft**\
+`It's possible the Oilers drafted a gem Saturday, although the identity of that player isn't known today.`\
+https://nytimes.com/athletic/6458029/2025/06/29/edmonton-oilers-prospects-2025-nhl-draft/
+
 **LeBron James exercises option, will remain with Lakers for 23rd NBA season**\
 `After 22 seasons, LeBron James can finally check off a new first — opting into the final year of his contract.`\
 https://nytimes.com/athletic/6458727/2025/06/29/lebron-james-player-option-lakers-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6459330/2025/06/29/sf-giants-offense-struggles-mail
 **The 'joke' Club World Cup weather delays and an ominous warning for World Cup 2026**\
 `What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go `\
 https://nytimes.com/athletic/6460275/2025/06/29/maresca-joke-weather-delays-world-cup/
-
-**Why Was the Italian Football Championship Played in Toledo?**\
-`Amateur football players from Ancona and Florence drew a crowd in Ohio on Saturday.`\
-https://nytimes.com/2025/06/29/sports/football/italian-bowl-toledo-football.html
-
-**The Pulse: Caitlin Clark's complicated season**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6460000/2025/06/29/caitlin-clarks-drama-filled-season-rolls-on-plus-ohtani-hits-100/
 
