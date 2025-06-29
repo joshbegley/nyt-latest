@@ -1,3 +1,7 @@
+**Maresca calls Chelsea's two-hour weather delay 'a joke' and questions choice of U.S. Club World Cup venue cities**\
+`What the Chelsea coach said about the weather delays and the key questions answered`\
+https://nytimes.com/athletic/6459997/2025/06/29/maresca-chelsea-delay-joke/
+
 **Lionel Messi has made Miami America's new soccer capital. Will it last?**\
 `The world and everything in it has come to Miami. But, after Messi, after the World Cup, will it stay there?`\
 https://nytimes.com/athletic/6458487/2025/06/29/lionel-messi-miami-soccer-inter/
