@@ -1,9 +1,17 @@
+**Maple Leafs re-sign Matthew Knies to six-year extension**\
+`Maple Leafs lock up RFA power forward for 6 years at an annual value of $7.75 million.`\
+https://nytimes.com/athletic/6440505/2025/06/29/maple-leafs-matthew-knies-contract-nhl/
+
+**Police Officers Protest Pride After Being Barred From Marching With Guns**\
+`An L.G.B.T.Q. officers’ group had been barred from New York City’s Pride March since 2021. This year, organizers said they could participate only if they left their weapons at home.`\
+https://nytimes.com/2025/06/29/nyregion/gay-nypd-nyc-pride-march.html
+
 **James Harden to re-sign with Clippers for 2 years, $81.5 million: Sources**\
 `The second year of the deal is partially guaranteed with a player option.`\
 https://nytimes.com/athletic/6460962/2025/06/29/james-harden-opt-out-clippers/
 
 **Bobby Portis, Bucks agree to 3-year, $44 million extension: Sources**\
-`Portis' deal with the Bucks includes a player option for the 2027-28 season.`\
+`Portis, who became a fan favorite in Milwaukee for his underdog persona, ultimately agreed to a deal that made sense for both sides.`\
 https://nytimes.com/athletic/6460815/2025/06/29/bobby-portis-bucks-contract-free-agency/
 
 **Ex-Man United and England midfielder Paul Ince charged with drink-driving**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6461091/2025/06/29/carter-meadows-michigan-recruiti
 **Caitlin Clark, Napheesa Collier named WNBA All-Star captains**\
 `Clark and Collier were named captains because they received the highest number of fan votes among the All-Star starters.`\
 https://nytimes.com/athletic/6461072/2025/06/29/caitlin-clark-napheesa-collier-wnba-all-star-captains/
-
-**Hicks nearing Red Sox bullpen debut with a new pitch after Devers trade**\
-`The 28-year-old has been on the injury list since early June with toe inflammation, but is set to be activated on Monday.`\
-https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-debut/
-
-**D. Wayne Lukas, Horse Trainer Who Saddled Champions, Dies at 89**\
-`He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
-https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
 

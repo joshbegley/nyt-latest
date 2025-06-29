@@ -1,3 +1,7 @@
+**D. Wayne Lukas, Horse Trainer Who Saddled Champions, Dies at 89**\
+`He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
+https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
+
 **James Harden to re-sign with Clippers for 2 years, $81.5 million: Sources**\
 `The second year of the deal is partially guaranteed with a player option.`\
 https://nytimes.com/athletic/6460962/2025/06/29/james-harden-opt-out-clippers/
