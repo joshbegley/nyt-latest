@@ -1,3 +1,7 @@
+**With Accounting Gimmick, Republicans Upend Senate Norms**\
+`Senate Republicans are charging forward with a plan to disregard the chamber’s longtime rules affecting what bills can be passed along party lines.`\
+https://nytimes.com/2025/06/29/us/politics/with-accounting-gimmick-republicans-upend-senate-norms.html
+
 **Lionel Messi carried Inter Miami and FIFA as far as he could but football is a team game**\
 `Lionel Messi is the face of his team, his league and the Club World Cup but ultimately there is a limit to his superpowers`\
 https://nytimes.com/athletic/6460580/2025/06/29/lionel-messi-club-world-cup-fifa-exit/
