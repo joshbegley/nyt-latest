@@ -1,3 +1,7 @@
+**Tillis Announces He Won’t Run Again as Trump Threatens Him With a Primary**\
+`The day after President Trump castigated the North Carolina Republican senator Thom Tillis for opposing the bill carrying his domestic agenda, Mr. Tillis said he would not seek a third term.`\
+https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html
+
 **‘Pastoral’ Review: Sampling Beethoven at Bard**\
 `The latest work by the choreographer Pam Tanowitz combines music and design in fresh and delightfully unpredictable ways.`\
 https://nytimes.com/2025/06/29/arts/dance/tanowitz-pastoral-review.html
