@@ -1,3 +1,19 @@
+**James Harden to re-sign with Clippers for 2 years, $81.5 million: Sources**\
+`The second year of the deal is partially guaranteed with a player option.`\
+https://nytimes.com/athletic/6460962/2025/06/29/james-harden-opt-out-clippers/
+
+**Bobby Portis, Bucks agree to 3-year, $44 million extension: Sources**\
+`Portis' deal with the Bucks includes a player option for the 2027-28 season.`\
+https://nytimes.com/athletic/6460815/2025/06/29/bobby-portis-bucks-contract-free-agency/
+
+**Ex-Man United and England midfielder Paul Ince charged with drink-driving**\
+`The 57-year-old was arrested on Saturday and will appear before magistrates in Chester on Friday having been bailed.`\
+https://nytimes.com/athletic/6461007/2025/06/29/paul-ince-arrest-drink-driving-charge/
+
+**The disappearance of 'Guards Ball' and Cleveland's long wait for Chase DeLauter: Meisel**\
+`Somehow, a team that stood three wins from the World Series eight months ago is trending toward a summer of retooling. What's the solution?`\
+https://nytimes.com/athletic/6457634/2025/06/29/cleveland-guardians-slump-chase-delauter/
+
 **Monday Briefing: The Toll of an Attack on an Iranian Prison**\
 `Plus, correcting Captain Nemo.`\
 https://nytimes.com/2025/06/29/briefing/iran-israel-evin-prison-trump-venezuela-immigration-ukraine-russia.html

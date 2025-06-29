@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6461072/2025/06/29/caitlin-clark-napheesa-collier-w
 `The 28-year-old has been on the injury list since early June with toe inflammation, but is set to be activated on Monday.`\
 https://nytimes.com/athletic/6460992/2025/06/29/jordan-hicks-red-sox-bullpen-debut/
 
-**D. Wayne Lukas, Horse Trainer Who Saddled Champions From Coast to Coast, Dies at 89**\
+**D. Wayne Lukas, Horse Trainer Who Saddled Champions, Dies at 89**\
 `He earned purses of more than $300 million in a Hall of Fame career that revolutionized thoroughbred racing with a modern-day corporate approach.`\
 https://nytimes.com/2025/06/29/obituaries/d-wayne-lukas-dead.html
 
