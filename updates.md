@@ -1,3 +1,11 @@
+**How the Canadiens' amateur scouting approach is adjusting coming out of a rebuild**\
+`The Canadiens have built through the draft for three years, but with a deep and diverse prospect pool, a change in approach is necessary.`\
+https://nytimes.com/athletic/6459888/2025/06/28/canadiens-nhl-draft-scouting-zharovsky/
+
+**Red Wings thoughts: Gibson, draft class and what's next**\
+`Analyzing the Gibson trade, breaking down Detroit's draft class, and what Steve Yzerman said about the Red Wings' offseason outlook.`\
+https://nytimes.com/athletic/6459350/2025/06/28/red-wings-nhl-draft-john-gibson-trade/
+
 **Centres, sneaky upside and volume: How Canucks approached 2025 NHL Draft**\
 `For the first time in a long time the Canucks will emerge from the draft with a proper class.`\
 https://nytimes.com/athletic/6459581/2025/06/28/canucks-nhl-draft-2025/
