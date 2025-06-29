@@ -1,3 +1,7 @@
+**What a Mitch Marner deal would mean for the Golden Knights and their cap situation**\
+`If Vegas added Marner, it could have close to $50 million in cap space committed to five players.`\
+https://nytimes.com/athletic/6459776/2025/06/28/mitch-marner-golden-knights-salary-cap/
+
 **For Jets' pick Sascha Boumedienne, hockey and family go hand in hand**\
 `Sascha Boumedienne met hockey, fell in love with it, and never let it go.`\
 https://nytimes.com/athletic/6459117/2025/06/28/winnipeg-jets-sascha-boumedienne/
