@@ -1,3 +1,15 @@
+**With immediate future on defense uncertain, which players could the Kings target?**\
+`With Vladislav Gavrikov looking increasingly likely to hit free agency and Jordan Spence traded to Ottawa, the Kings' blue line has holes.`\
+https://nytimes.com/athletic/6459998/2025/06/29/kings-defense-targets-holland-spence-gavrikov/
+
+**Progressives and the Third-Party Question**\
+`Readers involved with third parties discuss the pros and cons. Also: Smoking still kills; phone addiction.`\
+https://nytimes.com/2025/06/29/opinion/progressives-third-parties.html
+
+**Trump Administration Live Updates: Senate to Debate President’s Policy Bill After Late Night Vote**\
+``\
+https://nytimes.com/live/2025/06/29/us/trump-news
+
 **Meet Leafs prospect Tinus Luc Koblar: 'There's nothing I like to lose at'**\
 `The Leafs' highest pick in the 2025 draft made the unusual switch from winger to centre as an ultra-competitive force.`\
 https://nytimes.com/athletic/6459905/2025/06/29/maple-leafs-tinus-luc-koblar-prospect-nhl-draft/
