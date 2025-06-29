@@ -1,40 +1,40 @@
-**How to watch the USWNT vs. Ireland on Sunday, their second friendly this week**\
-`Rose Lavelle is back on the pitch, and she now gets to show out for her home city.`\
-https://nytimes.com/athletic/6456632/2025/06/29/uswnt-ireland-america-womens-soccer-how-to-watch/
+**How the G.O.P. Bill Saves Money: Paperwork, Paperwork, Paperwork**\
+`Instead of directly reducing benefits for the poor, Republicans are making them harder to get and to keep.`\
+https://nytimes.com/2025/06/29/upshot/republicans-medicaid-cuts-paperwork.html
 
-**How Social Media Videos Fueled Zohran Mamdani’s Success**\
-`The son of a filmmaker is running a visually rich campaign for mayor of New York City — and has inspired voters to make their own videos on his behalf.`\
-https://nytimes.com/2025/06/29/nyregion/zohran-mamdani-campaign-videos.html
+**Jell-O With Natural Dyes? It’s Not Easy Becoming Green.**\
+`Replacing artificial colors in foods with algae, fruits and spices and achieving the same look and taste is challenging — and expensive.`\
+https://nytimes.com/2025/06/29/business/jell-o-artificial-food-dye.html
 
-**How Zohran Mamdani Brought New Voters to the Polls**\
-`Mr. Mamdani, the likely winner of the Democratic primary for mayor of New York City, drew tens of thousands of new voters to the polls. Here’s how.`\
-https://nytimes.com/2025/06/29/nyregion/zohran-mamdani-voters-strategy.html
+**After Seeing ‘F1,’ Here’s What to Stream Next**\
+`Once you’ve spent some time on the track with Brad Pitt, steer your way toward these other suspenseful racing movies and shows.`\
+https://nytimes.com/2025/06/29/movies/after-seeing-f1-heres-what-to-stream-next.html
 
-**‘She Went Inside and Returned With a Shoe Box That Had Seeds in It’**\
-`A flash of lime green in Park Slope, a museum beckons and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/06/29/nyregion/metropolitan-diary.html
+**Refugees Worry: Is Nicaragua Assassinating Government Critics in Costa Rica?**\
+`After a Nicaraguan human rights activist who had fled to Costa Rica was killed, concern has grown that the Ortega government may be targeting its enemies abroad.`\
+https://nytimes.com/2025/06/29/world/americas/costa-rica-nicaragua-ortega.html
 
-**Why Is ChatGPT Telling People to Email Me?**\
-`A reporter who writes about A.I. finds her work is catching on — with the Chatbot she often writes about.`\
-https://nytimes.com/2025/06/29/technology/why-is-chatgpt-telling-people-to-email-me.html
+**Baseball in the Everlasting Light of Fairbanks, Alaska**\
+`For more than a century, baseball teams in Fairbanks have played at midnight on the summer solstice, illuminated only by the sun.`\
+https://nytimes.com/2025/06/29/us/baseball-fairbanks-alaska-midnight-game.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/29/crosswords/spelling-bee-forum.html
+**After War With Israel and U.S., Iran Rests on a Knife Edge**\
+`The Islamic Republic limps on after the 12-day conflict. Where will the nation go from here?`\
+https://nytimes.com/2025/06/29/world/middleeast/iran-israel-war-future.html
 
-**Trump Cuts Threaten L.G.B.T.Q. Senior Centers: ‘This Is About People’**\
-`The funding cuts, aimed at programs that deal with diversity and gender, pose a danger to organizations in New York City that are also losing corporate sponsors.`\
-https://nytimes.com/2025/06/29/nyregion/trump-cuts-lgbtq-funding.html
+**Catholic Bishops Try to Rally Opposition to Trump’s Immigration Agenda**\
+`Leading prelates are expressing outrage at the drive toward mass deportation.`\
+https://nytimes.com/2025/06/29/us/catholic-bishops-trump-immigration.html
 
-**New York City Pride March Arrives Amid Growing National Backlash**\
-`As millions gather on Sunday for America’s largest Pride parade, the L.G.B.T.Q. community is increasingly concerned about the pushback against transgender people.`\
-https://nytimes.com/2025/06/29/nyregion/nyc-pride-parade-march.html
+**Greenland, Once a Distant Destination, Gets a Little Closer to the U.S.**\
+`United Airlines has started a seasonal, nonstop flight from Newark to the capital of the Arctic island that President Trump wants to acquire.`\
+https://nytimes.com/2025/06/29/business/greenland-united-airlines.html
 
-**Jake Paul beats Chavez Jr., another over-the-hill former champ, with ease**\
-`“All the boos are words and action speak louder than words. So y’all can shut the f— up,” Paul said after Saturday’s win.`\
-https://nytimes.com/athletic/6460122/2025/06/29/jake-paul-julio-cesar-chavez-jr-result/
+**She Thought Lady Gaga Bought Her Art. Then Things Got Strange.**\
+`The artist Emma Webster was excited when it appeared the pop star wanted to buy one of her artworks. But it was an impostor and she has asked the F.B.I. for help.`\
+https://nytimes.com/2025/06/29/arts/design/lady-gaga-art-dispute.html
 
-**Alexis Vega goal ensures Mexico stays on track in Gold Cup title defense**\
-`El Tri is headed to a semifinal clash with Honduras on Wednesday.`\
-https://nytimes.com/athletic/6460119/2025/06/29/mexico-alexis-vega-gold-cup-saudi-arabia/
+**The Beatboxing, Dancing Nuns Expanding the Flock in Brazil**\
+`The Catholic Church’s effort to win young followers relies in part on influencers, D.J.s and two Brazilian nuns with plenty of rhythm.`\
+https://nytimes.com/2025/06/29/world/americas/brazil-dancing-nuns.html
 
