@@ -1,3 +1,11 @@
+**‘Pastoral’ Review: Sampling Beethoven at Bard**\
+`The latest work by the choreographer Pam Tanowitz combines music and design in fresh and delightfully unpredictable ways.`\
+https://nytimes.com/2025/06/29/arts/dance/tanowitz-pastoral-review.html
+
+**Claude Giroux re-signs with Senators on 1-year, $2 million deal**\
+`The 37-year-old forward scored 15 goals and 50 points in 81 games played this season for Ottawa.`\
+https://nytimes.com/athletic/6422385/2025/06/29/senators-claude-giroux-contract-nhl-free-agency/
+
 **Inter Miami first half vs PSG was a 'bloodbath' – coach Javier Mascherano**\
 `The MLS club were outclassed by Europe's recent Champions League winners in the first 45 minutes and eventually lost 4-0.`\
 https://nytimes.com/athletic/6460883/2025/06/29/inter-miami-psg-mascherano-messi/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/us/politics/thom-tillis-retirement.html
 **Chelsea reach agreement with Brighton to sign Joao Pedro**\
 `A deal in excess of £50million has been struck, while personal terms are in place on a contract until 2032.`\
 https://nytimes.com/athletic/6460263/2025/06/29/joao-pedro-chelsea-transfer/
-
-**The Briefing: England 7 Jamaica 0 - Lionesses warm up for Euros with dominant win**\
-`Nancy Froston and Cerys Jones analyse the key talking points from the Lionesses' final game before Euro 2025 gets under way`\
-https://nytimes.com/athletic/6460600/2025/06/29/england-jamaica-lionesses-euros-friendly/
-
-**Dodgers Q&A: Fabian Ardaya on the trade deadline, Shohei Ohtani, 2026 and more**\
-`Submit your questions about the Dodgers for Fabian Ardaya's Q&A.`\
-https://nytimes.com/athletic/6459611/2025/06/29/dodgers-live-qa-fabian-ardaya-trade-deadline-shohei-ohtani/
 
