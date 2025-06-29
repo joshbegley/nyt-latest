@@ -1,3 +1,7 @@
+**My Three-Ingredient Salmon Dinner**\
+`Roasted salmon glazed with brown sugar and mustard, a New York Times Cooking classic with over 18,000 reviews.`\
+https://nytimes.com/2025/06/29/dining/three-ingredient-salmon-dinner-from-sam-sifton.html
+
 **Lando Norris wins Austrian Grand Prix as Kimi Antonelli takes out Max Verstappen**\
 `Lando Norris claims huge win to maintain title hopes `\
 https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-briefing-lando-norris-wins-kimi-antonelli-takes-out-max-verstappen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6460000/2025/06/29/caitlin-clarks-drama-filled-seas
 **With immediate future on defense uncertain, which players could the Kings target?**\
 `With Vladislav Gavrikov looking increasingly likely to hit free agency and Jordan Spence traded to Ottawa, the Kings' blue line has holes.`\
 https://nytimes.com/athletic/6459998/2025/06/29/kings-defense-targets-holland-spence-gavrikov/
-
-**Progressives and the Third-Party Question**\
-`Readers involved with third parties discuss the pros and cons. Also: Smoking still kills; phone addiction.`\
-https://nytimes.com/2025/06/29/opinion/progressives-third-parties.html
 

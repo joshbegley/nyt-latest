@@ -1,3 +1,7 @@
+**My Three-Ingredient Salmon Dinner**\
+`Roasted salmon glazed with brown sugar and mustard, a New York Times Cooking classic with over 18,000 reviews.`\
+https://nytimes.com/2025/06/29/dining/three-ingredient-salmon-dinner-from-sam-sifton.html
+
 **Lando Norris wins Austrian Grand Prix as Kimi Antonelli takes out Max Verstappen**\
 `Lando Norris claims huge win to maintain title hopes `\
 https://nytimes.com/athletic/6460299/2025/06/29/austrian-grand-prix-briefing-lando-norris-wins-kimi-antonelli-takes-out-max-verstappen/
