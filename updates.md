@@ -1,3 +1,7 @@
+**Meet Leafs prospect Tinus Luc Koblar: 'There's nothing I like to lose at'**\
+`The Leafs' highest pick in the 2025 draft made the unusual switch from winger to centre as an ultra-competitive force.`\
+https://nytimes.com/athletic/6459905/2025/06/29/maple-leafs-tinus-luc-koblar-prospect-nhl-draft/
+
 **A Decade of Marriage Equality**\
 `Readers explain what Obergefell meant to them.`\
 https://nytimes.com/2025/06/29/briefing/obergefell-marriage-equality.html

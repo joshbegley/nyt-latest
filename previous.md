@@ -1,3 +1,7 @@
+**Meet Leafs prospect Tinus Luc Koblar: 'There's nothing I like to lose at'**\
+`The Leafs' highest pick in the 2025 draft made the unusual switch from winger to centre as an ultra-competitive force.`\
+https://nytimes.com/athletic/6459905/2025/06/29/maple-leafs-tinus-luc-koblar-prospect-nhl-draft/
+
 **A Decade of Marriage Equality**\
 `Readers explain what Obergefell meant to them.`\
 https://nytimes.com/2025/06/29/briefing/obergefell-marriage-equality.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458739/2025/06/29/tennis-gauff-sabalenka-apology-r
 **Russo: Free agency, Kirill Kaprizov's future and how new CBA rules could help the Wild keep their superstar**\
 `Kaprizov is eligible to re-sign with the Wild on Tuesday. Can they prove that his best chance to win — and get paid — is in Minnesota?`\
 https://nytimes.com/athletic/6459563/2025/06/29/kirill-kaprizov-wild-nhl-cba-free-agency/
-
-**Mirtle: What big moves could be coming for the Maple Leafs on July 1?**\
-`With John Tavares signed and talk of a Mitch Marner sign-and-trade deal swirling, what's a reasonable July 1 plan for Toronto?`\
-https://nytimes.com/athletic/6459890/2025/06/29/maple-leafs-nhl-free-agency-plan-2025/
 
