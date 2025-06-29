@@ -1,3 +1,7 @@
+**For Jets' pick Sascha Boumedienne, hockey and family go hand in hand**\
+`Sascha Boumedienne met hockey, fell in love with it, and never let it go.`\
+https://nytimes.com/athletic/6459117/2025/06/28/winnipeg-jets-sascha-boumedienne/
+
 **Bucks' Kevin Porter Jr. to let option expire, become unrestricted free agent**\
 `After being acquired at the trade deadline, Porter averaged 11.7 points and 3.7 assists in 30 regular-season games.`\
 https://nytimes.com/athletic/6459086/2025/06/28/bucks-kevin-porter-jr-free-agent/

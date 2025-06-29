@@ -1,3 +1,7 @@
+**For Jets' pick Sascha Boumedienne, hockey and family go hand in hand**\
+`Sascha Boumedienne met hockey, fell in love with it, and never let it go.`\
+https://nytimes.com/athletic/6459117/2025/06/28/winnipeg-jets-sascha-boumedienne/
+
 **Bucks' Kevin Porter Jr. to let option expire, become unrestricted free agent**\
 `After being acquired at the trade deadline, Porter averaged 11.7 points and 3.7 assists in 30 regular-season games.`\
 https://nytimes.com/athletic/6459086/2025/06/28/bucks-kevin-porter-jr-free-agent/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6449786/2025/06/28/nhl-draft-2025-best-undrafted-pl
 **In 1975, Arthur Ashe Made His Point**\
 `He won Wimbledon over the favored Jimmy Connors, who was not only suing the ATP, but also Ashe himself.`\
 https://nytimes.com/2025/06/28/sports/tennis/wimbledon-arthur-ashe.html
-
-**Dave Parker, Power Hitter for the Pittsburgh Pirates, Dies at 74**\
-`Parker, a towering outfielder who helped propel the Pirates to the World Series in 1979, was elected to the Baseball Hall of Fame last year.`\
-https://nytimes.com/2025/06/28/sports/dave-parker-dead.html
 
