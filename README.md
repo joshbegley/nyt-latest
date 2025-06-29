@@ -1,3 +1,11 @@
+**USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
+`Emma Hayes started a completely new lineup from Thursday's win, but the result was the same: A 4-0 victory.`\
+https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
+
+**Kane arrives at the Club World Cup - but can Bayern overcome PSG?**\
+`Analysing the major talking points from the FIFA Club World Cup last 16 tie in Miami`\
+https://nytimes.com/athletic/6453275/2025/06/29/bayern-munich-flamengo-harry-kane-club-world-cup/
+
 **Hand Out Hands**\
 `Dena R. Verkuil and Andrea Carla Michaels make their collaboration debut.`\
 https://nytimes.com/2025/06/29/crosswords/daily-puzzle-2025-06-30.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/29/nyregion/gay-nypd-nyc-pride-march.html
 **James Harden to re-sign with Clippers for 2 years, $81.5 million: Sources**\
 `The second year of the deal is partially guaranteed with a player option.`\
 https://nytimes.com/athletic/6460962/2025/06/29/james-harden-opt-out-clippers/
-
-**Bobby Portis, Bucks agree to new 3-year, $44 million contract: Sources**\
-`Portis, who became a fan favorite in Milwaukee for his underdog persona, ultimately agreed to a deal that made sense for both sides.`\
-https://nytimes.com/athletic/6460815/2025/06/29/bobby-portis-bucks-contract-free-agency/
-
-**Ex-Man United and England midfielder Paul Ince charged with drink-driving**\
-`The 57-year-old was arrested on Saturday and will appear before magistrates in Chester on Friday having been bailed.`\
-https://nytimes.com/athletic/6461007/2025/06/29/paul-ince-arrest-drink-driving-charge/
 
