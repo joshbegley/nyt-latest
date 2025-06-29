@@ -1,3 +1,7 @@
+**Firefighters Targeted in Shooting in Coeur d’Alene, Idaho, Officials Say**\
+`A sheriff’s office issued a shelter-in-place alert near the scene of the shooting. The governor called the attack “a heinous direct assault on our brave firefighters.”`\
+https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
+
 **Police Responding to Shooting in Coeur d’Alene, Idaho**\
 `It was not immediately clear whether there were any injuries, but a sheriff’s office issued a shelter-in-place alert near the scene of the shooting.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
