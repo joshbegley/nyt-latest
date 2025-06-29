@@ -1,9 +1,13 @@
+**Appeals Court to Consider Trump’s Use of Alien Enemies Act**\
+`The case before one of the most conservative courts in the country is likely to be the first to reach the Supreme Court.`\
+https://nytimes.com/2025/06/29/us/politics/appeal-trump-alien-enemies-act.html
+
 **Giants Mailbagg: What happened to San Francisco's offense?**\
 `Fans want to know why the Giants aren't scoring more runs. The Giants do, too. Plus, should they move on from Matt Williams? `\
 https://nytimes.com/athletic/6459330/2025/06/29/sf-giants-offense-struggles-mailbag/
 
 **The 'joke' Club World Cup weather delays and an ominous warning for World Cup 2026**\
-`What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go`\
+`What has happened at this Club World Cup, with six games held up, has felt extreme and a concern with 12 months to go `\
 https://nytimes.com/athletic/6460275/2025/06/29/maresca-joke-weather-delays-world-cup/
 
 **Why Was the Italian Football Championship Played in Toledo?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6459905/2025/06/29/maple-leafs-tinus-luc-koblar-pro
 **A Decade of Marriage Equality**\
 `Readers explain what Obergefell meant to them.`\
 https://nytimes.com/2025/06/29/briefing/obergefell-marriage-equality.html
-
-**Bailey Ober's historic struggles continue in Twins' loss to Tigers**\
-`Ober's 14 homers allowed in June ties Bert Blyleven's 1986 Twins record and ranks second-most in a calendar month in MLB history.`\
-https://nytimes.com/athletic/6459633/2025/06/29/twins-bailey-ober-14-home-runs/
 
