@@ -1,3 +1,7 @@
+**How to play tennis on grass at Wimbledon – by not practicing on grass at all**\
+`The shortest season in tennis demands very specific skills. This is how players acquire them in quick time.`\
+https://nytimes.com/athletic/6430370/2025/06/30/tennis-grass-how-to-play-wimbledon-strategy/
+
 **Firefighters Killed in Sniper Ambush in Idaho**\
 `The attack happened in the Canfield Mountain area. Voices could be heard pleading for help in recordings of radio channels used by first responders.`\
 https://nytimes.com/video/us/100000010258269/idaho-shooting-sniper-firefighter.html
