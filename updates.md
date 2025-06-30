@@ -1,3 +1,7 @@
+**2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
+`Firefighters were responding to a fire near Coeur D’Alene when the shooting happened, a sheriff said. It was unclear how many might be wounded.`\
+https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
+
 **Rockets intend to sign Jabari Smith Jr. to 5-year, $122 million extension: Sources**\
 `Smith averaged 12.2 points, 7.0 rebounds and 1.1 assists during his third season with the franchise.`\
 https://nytimes.com/athletic/6461545/2025/06/29/rockets-jabari-smith-jr-extension/
