@@ -1,3 +1,7 @@
+**Trump Steps Up Pressure Campaign on Powell With Handwritten Note**\
+`President Trump has repeatedly attacked Jerome H. Powell, chair of the Federal Reserve, for resisting his demands for lower interest rates.`\
+https://nytimes.com/2025/06/30/business/trump-powell-fed-handwritten-note.html
+
 **Dangerous Heat Grips Much of Europe, With More to Come**\
 `A punishing heat wave broke records in southern Europe and hasn’t peaked yet in some places, prompting warnings to residents, employers and tourists to alter their habits.`\
 https://nytimes.com/2025/06/30/world/europe/europe-heat-wave.html
