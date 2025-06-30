@@ -1,3 +1,23 @@
+**No Corrections: June 30, 2025**\
+`No corrections appeared in print on Monday, June 30, 2025.`\
+https://nytimes.com/2025/06/30/pageoneplus/no-corrections-june-30-2025.html
+
+**Corrections: June 29, 2025**\
+`Corrections that appeared in print on Sunday, June 29, 2025.`\
+https://nytimes.com/2025/06/30/pageoneplus/corrections-june-29-2025.html
+
+**Bucks free agency primer: After retaining Bobby Portis, what's next for Milwaukee?**\
+`It will be an interesting offseason for the Bucks as they have only six players under contract as free agency begins on Monday.`\
+https://nytimes.com/athletic/6456479/2025/06/30/bucks-free-agency-primer-bobby-portis/
+
+**'We could use a lot of things': How will the Sharks approach this offseason?**\
+`The Sharks have plentiful salary-cap space, but don't count on them overspending this summer.`\
+https://nytimes.com/athletic/6461731/2025/06/30/sharks-free-agents-misa/
+
+**Taraji P. Henson to Make Broadway Debut in August Wilson Play**\
+`The actress will star opposite Cedric the Entertainer in a revival of “Joe Turner’s Come and Gone” next spring.`\
+https://nytimes.com/2025/06/30/theater/taraji-henson-cedric-entertainer-august-wilson-broadway.html
+
 **Brit Sonay Kartal upsets Jelena Ostapenko in Wimbledon first round**\
 `The 23-year-old provided the British crowd a first home success story of the tournament.`\
 https://nytimes.com/athletic/6462316/2025/06/30/tennis-wimbledon-sonay-kartal-ostapenko/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6462168/2025/06/30/sebastiaan-bornauw-leeds-transfe
 **Villa agree deal to sell women's team to owner V Sports**\
 `The Athletic reported last week that Villa were exploring the option of selling their women’s team to help with PSR.`\
 https://nytimes.com/athletic/6462218/2025/06/30/aston-villa-women-psr/
-
-**Senate Poised to Begin Voting on Marquee Policy Bill With Support Still in Doubt**\
-`Republicans delayed a rapid-fire series of votes on the measure until Monday morning as they grasped for the support to pass President Trump’s signature legislation.`\
-https://nytimes.com/2025/06/30/us/politics/senate-tax-trump-bill.html
-
-**What I'm hearing about Pius Suter's market, Canucks' approach to free agency**\
-`There's a tricky balance that the Canucks are going to try to maintain in the days ahead.`\
-https://nytimes.com/athletic/6459583/2025/06/30/canucks-pius-suter-free-agents/
-
-**Believe the hype: Matthew Knies is bound for stardom with the Leafs**\
-`The Leafs are getting something pretty special in their newly re-signed top-line power forward.`\
-https://nytimes.com/athletic/6461419/2025/06/30/matthew-knies-maple-leafs-extension-scoring-matthews/
-
-**'A horrible race': Red Bull’s Austria GP unraveling raises fresh questions**\
-`A troublesome car, a shocking Verstappen DNF and continued second-driver problems, at Red Bull answers are hard to come by `\
-https://nytimes.com/athletic/6460770/2025/06/30/red-bull-f1-austrian-gp-max-verstappen-yuki-tsunoda/
-
-**Breaking down the Blackhawks' plans for their restricted free agents**\
-`With seven RFAs to sort through this offseason, GM Kyle Davidson has some decisions to make.`\
-https://nytimes.com/athletic/6461443/2025/06/30/blackhawks-restricted-free-agents-2025/
 
