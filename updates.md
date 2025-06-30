@@ -1,3 +1,11 @@
+**WNBA expansion timeline as the league looks to have a record 18 teams**\
+`By 2030, the league will have added six teams in five years.`\
+https://nytimes.com/athletic/6463382/2025/06/30/wnba-expansion-timeline-philadelphia-detroit-cleveland-portland-toronto/
+
+**On whether the Twins will spend, if the team values speed, Royce Lewis' future and more**\
+`Excerpts from the live Q&A Aaron Gleeman had with subscribers on Monday.`\
+https://nytimes.com/athletic/6463522/2025/06/30/twins-spending-royce-lewis-pitching-depth/
+
 **Deadly Strike Levels Popular Seaside Cafe in Gaza**\
 `The restaurant, a destination for Palestinians seeking a respite or internet access, was reduced to a mere shell by the blast.`\
 https://nytimes.com/2025/06/30/world/middleeast/gaza-city-cafe-airstrike.html

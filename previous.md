@@ -1,3 +1,11 @@
+**WNBA expansion timeline as the league looks to have a record 18 teams**\
+`By 2030, the league will have added six teams in five years.`\
+https://nytimes.com/athletic/6463382/2025/06/30/wnba-expansion-timeline-philadelphia-detroit-cleveland-portland-toronto/
+
+**On whether the Twins will spend, if the team values speed, Royce Lewis' future and more**\
+`Excerpts from the live Q&A Aaron Gleeman had with subscribers on Monday.`\
+https://nytimes.com/athletic/6463522/2025/06/30/twins-spending-royce-lewis-pitching-depth/
+
 **Deadly Strike Levels Popular Seaside Cafe in Gaza**\
 `The restaurant, a destination for Palestinians seeking a respite or internet access, was reduced to a mere shell by the blast.`\
 https://nytimes.com/2025/06/30/world/middleeast/gaza-city-cafe-airstrike.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6463342/2025/06/30/blackhawks-nhl-free-agency-targe
 **A Canadian City Brings Fluoride Back to Its Drinking Water**\
 `Calgary removed fluoride from its water supply in 2011, but residents voted to reverse course after studies linked the move to worse dental health among children.`\
 https://nytimes.com/2025/06/30/world/canada/calgary-fluoride-water-canada.html
-
-**The NHL's frantic season is here — and we've got every team's wish list**\
-`The league's free-agency bonanza is nearly upon us. Don't blink or you might miss it.`\
-https://nytimes.com/athletic/6463349/2025/06/30/red-light-newsletter-nhl-free-agency-draft/
-
-**What I'm hearing about the Warriors as NBA free agency arrives**\
-`Could free agent Al Horford be heading to Golden State?`\
-https://nytimes.com/athletic/6455296/2025/06/30/warriors-nba-free-agency-2025-jonathan-kuminga/
 
