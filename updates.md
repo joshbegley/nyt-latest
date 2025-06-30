@@ -1,3 +1,7 @@
+**Nebraska beefs up O-line with pledges from 4-star Claude Mpouma, 3-star Leon Noil**\
+`The Huskers now have 11 commitments in the Class of 2026, eight of whom were secured in June.`\
+https://nytimes.com/athletic/6463582/2025/06/30/nebraska-recruiting-claude-mpouma-leon-noil/
+
 **NHL contract grades: Term, not money, is the issue with Evan Bouchard and Oilers**\
 `Bouchard got paid, as expected, and now he is set up for another jackpot in four years.`\
 https://nytimes.com/athletic/6463671/2025/06/30/nhl-contract-grades-evan-bouchard-oilers/
