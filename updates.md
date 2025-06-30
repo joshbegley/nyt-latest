@@ -1,3 +1,7 @@
+**2025/26 Serie A winner odds: Inter just ahead of defending champion Napoli**\
+`Napoli won Serie A last season, but Inter Milan are the early favourites to reclaim the Scudetto.`\
+https://nytimes.com/athletic/6454433/2025/06/30/2025-26-serie-a-winner-odds-inter-just-ahead-of-defending-champions-napoli/
+
 **Why Is Trump Returning MS-13 Leaders to El Salvador? 5 Takeaways From the Times Investigation.**\
 `The agreement with Nayib Bukele, the president of El Salvador, is undermining a long-running federal investigation into the gang, according to people familiar with the inquiry.`\
 https://nytimes.com/2025/06/30/us/politics/takeaways-trump-bukele-ms-13.html

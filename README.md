@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Tuesday, July 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/30/todays-new-york-times-international-edition
+
+**A Bitter Political Rivalry in Zambia Shows No Deference to Death**\
+`The burial site of Edgar Lungu, Zambia’s former president, has become the latest conflict in a relationship marred by hostility`\
+https://nytimes.com/2025/06/30/world/africa/zambia-edgar-lungu-funeral.html
+
 **2025/26 Serie A winner odds: Inter just ahead of defending champion Napoli**\
 `Napoli won Serie A last season, but Inter Milan are the early favourites to reclaim the Scudetto.`\
 https://nytimes.com/athletic/6454433/2025/06/30/2025-26-serie-a-winner-odds-inter-just-ahead-of-defending-champions-napoli/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/30/arts/music/sean-combs-diddy-trial-jury-deliberati
 **There’s a Race to Power the Future. China Is Pulling Away.**\
 `Beijing is selling clean energy to the world, Washington is pushing oil and gas. Both are driven by national security.`\
 https://nytimes.com/interactive/2025/06/30/climate/china-clean-energy-power.html
-
-**Why Are So Many Men Wearing Bright Blue Suits Now?**\
-`President Trump and others in his White House seem to favor suits in shades besides traditional navy. Our critic offers thoughts on why, and whether it will catch on more broadly.`\
-https://nytimes.com/2025/06/30/fashion/trump-suits-blue-bright.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, a look back at a city in France during the Nazi occupation, an assessment of a renowned gay politician and an exploration of press freedoms in sovereign tribal nations.`\
-https://nytimes.com/2025/06/30/movies/three-great-documentaries-to-stream.html
 
