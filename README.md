@@ -1,3 +1,7 @@
+**Trail Blazers' Deandre Ayton accepts contract buyout, will hit free agency**\
+`The specific nature of the buyout will be finalized after Ayton clears waivers, a league source said.`\
+https://nytimes.com/athletic/6462473/2025/06/30/deandre-ayton-contract-buyout-trail-blazers/
+
 **WNBA announces record expansion to Cleveland, Detroit and Philadelphia**\
 `The decision to grow to 18 teams will be a new record for the league, which previously peaked at 16 teams in 2002.`\
 https://nytimes.com/athletic/6462405/2025/06/30/wnba-expansion-philadelphia-cleveland-detroit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462407/2025/06/30/aston-villa-transfers-kaine-kesl
 **Tracking Tropical Storm Flossie**\
 `See the likely path and wind arrival times for Flossie.`\
 https://nytimes.com/interactive/2025/06/30/world/americas/flossie-storm-tracker.html
-
-**How Jalen Green and Devin Booker can co-exist in a Suns backcourt and reversal**\
-`The Suns have emphasized size, length and defense this offseason. However, next season's success likely depends upon Booker and Green.`\
-https://nytimes.com/athletic/6461116/2025/06/30/phoenix-suns-jalen-green-devin-booker-backcourt/
 
