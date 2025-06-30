@@ -1,3 +1,7 @@
+**WATCH: This is what makes Kevin Durant a perfect fit for the Rockets**\
+`The Rockets' one weakness last season was an ugly half-court offense. Here's how the acquisition of Kevin Durant solves that problem.`\
+https://nytimes.com/athletic/6463599/2025/06/30/video-kevin-durant-rockets-fit-2026/
+
 **Trump Lifts Sanctions on Syria, Tightening His Embrace of Its New Leader**\
 `U.S. officials said sanctions against targets such as its central bank would end, but they would remain on Syria’s former dictator, Bashar al-Assad.`\
 https://nytimes.com/2025/06/30/us/politics/trump-syria-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463657/2025/06/30/fernando-cruz-injured-yankees-bu
 **Math, Revealed**\
 `An exploration of the mathematics behind everyday objects.`\
 https://nytimes.com/series/math-revealed
-
-**Trump Appeals Ruling Blocking Executive Order Against Perkins Coie**\
-`The administration appears to have decided to press forward with its fight against top law firms despite numerous defeats.`\
-https://nytimes.com/2025/06/30/us/politics/trump-perkins-coie.html
 
