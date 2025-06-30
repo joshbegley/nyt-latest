@@ -1,3 +1,11 @@
+**Aldrich Potgieter wins Rocket Classic in first career PGA Tour victory**\
+`Potgieter carried a two-shot lead into the final round but bogeyed two of his first five holes to allow the pack to catch up.`\
+https://nytimes.com/athletic/6461514/2025/06/29/aldrich-potgieter-rocket-classic-first-pga-win/
+
+**Luis Severino doesn’t care if A’s 'get mad' about him bashing Sacramento stadium**\
+`Severino didn't back off his comments about the minor-league park: “If you ask me how I feel pitching at home, I’m not going to lie to you."`\
+https://nytimes.com/athletic/6461423/2025/06/29/luis-severino-athletics-sacramento-ballpark-trade-rumors/
+
 **A's Luis Severino: 'I'm not the only one' who feels uncomfortable playing at Sacramento**\
 `Severino didn't back off his comments about the minor-league park: “If you ask me how I feel pitching at home, I’m not going to lie to you."`\
 https://nytimes.com/athletic/6461423/2025/06/29/luis-severino-athletics-sacramento-ballpark-trade-rumors/
