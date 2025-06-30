@@ -1,3 +1,23 @@
+**The Pulse: The end of LeBron James?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6461652/2025/06/30/lebron-james-retirement-lakers-luka-doncic-the-pulse/
+
+**Phillies takeaways: Relief for bullpen, offseason additions underwhelm, and a late-season move?**\
+`There is one month to go until the deadline. The Phillies just need to make it there, then make the right moves — starting with the bullpen.`\
+https://nytimes.com/athletic/6461669/2025/06/30/phillies-bullpen-upgrade-jordan-romano-max-kepler/
+
+**Should Caitlin Clark be a WNBA All-Star Game starter? Our experts reveal their votes**\
+`"The disqualifying factor for Clark was her inefficiency," one of our experts argues.`\
+https://nytimes.com/athletic/6460882/2025/06/30/caitlin-clark-wnba-all-star-game-roster-votes/
+
+**Trump Administration Live Updates: Senate to Begin Voting on Policy Bill, as G.O.P. Grasps for Support**\
+``\
+https://nytimes.com/live/2025/06/30/us/trump-news
+
+**A Year After ‘Loveless Landslide,’ U.K. Leader Is Even Less Popular**\
+`With scores of Labour Party lawmakers in open revolt and voters signaling their distaste, some are urging Prime Minister Keir Starmer to abandon caution and pivot left.`\
+https://nytimes.com/2025/06/30/world/europe/keir-starmer-uk-polls-labour.html
+
 **F1 reveals plan for private first preseason test in 2026**\
 `There are no plans for the running to be broadcast, or for fans or the media to be allowed to attend.`\
 https://nytimes.com/athletic/6462110/2025/06/30/f1-preseason-testing-closed/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6460500/2025/06/30/caitlin-clark-fever-wnba-salary/
 **‘Time to make a shift’: Are the Blue Jays closer to fixing their pitching development pipeline?**\
 `Since Opening Day 2023, Alek Manoah remains the only amateur signing or drafted pitcher to make a start for the Blue Jays.`\
 https://nytimes.com/athletic/6458621/2025/06/30/toronto-blue-jays-pitching-development/
-
-**Why Brad Pitt’s F1 movie was told 'no' at Daytona — for the sake of authenticity**\
-`"F1 The Movie" filmed an important opening scene at one of America's iconic racing locales — but not without some compromise`\
-https://nytimes.com/athletic/6455038/2025/06/30/f1-movie-brad-pitt-daytona-scenes-racing/
-
-**Supreme Court Hands Trump Even More Power**\
-`How a major ruling last week redefines the role of the courts — at a moment when President Trump is testing the limits of his powers.`\
-https://nytimes.com/2025/06/30/podcasts/the-daily/trump-scotus-birthright.html
-
-**Celtics' Hugo González has what it takes for NBA success: 'He knows what winning looks like'**\
-`Real Madrid teammate Xavier Rathan-Mayes provides insight on González's game for The Athletic.`\
-https://nytimes.com/athletic/6460605/2025/06/30/celtics-hugo-gonzalez-nba-draft-pick/
-
-**Rosenthal: Aaron Judge is swinging more than ever and he's reaping the benefits**\
-`It wasn't a conscious decision made by the best hitter on the planet to swing early and often. You can't argue with the results, though.`\
-https://nytimes.com/athletic/6461328/2025/06/30/aaron-judge-swing-rate-yankees/
-
-**The New Cost of Trump’s Bill, and Gen Z’s Retirement Plan**\
-`Plus, the tricky science behind lime green Jell-O.`\
-https://nytimes.com/2025/06/30/podcasts/the-headlines/trump-bill-gen-z-retirement-jello.html
 

@@ -1,3 +1,23 @@
+**The Pulse: The end of LeBron James?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6461652/2025/06/30/lebron-james-retirement-lakers-luka-doncic-the-pulse/
+
+**Phillies takeaways: Relief for bullpen, offseason additions underwhelm, and a late-season move?**\
+`There is one month to go until the deadline. The Phillies just need to make it there, then make the right moves — starting with the bullpen.`\
+https://nytimes.com/athletic/6461669/2025/06/30/phillies-bullpen-upgrade-jordan-romano-max-kepler/
+
+**Should Caitlin Clark be a WNBA All-Star Game starter? Our experts reveal their votes**\
+`"The disqualifying factor for Clark was her inefficiency," one of our experts argues.`\
+https://nytimes.com/athletic/6460882/2025/06/30/caitlin-clark-wnba-all-star-game-roster-votes/
+
+**Trump Administration Live Updates: Senate to Begin Voting on Policy Bill, as G.O.P. Grasps for Support**\
+``\
+https://nytimes.com/live/2025/06/30/us/trump-news
+
+**A Year After ‘Loveless Landslide,’ U.K. Leader Is Even Less Popular**\
+`With scores of Labour Party lawmakers in open revolt and voters signaling their distaste, some are urging Prime Minister Keir Starmer to abandon caution and pivot left.`\
+https://nytimes.com/2025/06/30/world/europe/keir-starmer-uk-polls-labour.html
+
 **F1 reveals plan for private first preseason test in 2026**\
 `There are no plans for the running to be broadcast, or for fans or the media to be allowed to attend.`\
 https://nytimes.com/athletic/6462110/2025/06/30/f1-preseason-testing-closed/
