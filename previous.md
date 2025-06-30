@@ -1,3 +1,7 @@
+**Dangerous Heat Grips Much of Europe, With More to Come**\
+`A punishing heat wave broke records in southern Europe and hasn’t peaked yet in some places, prompting warnings to residents, employers and tourists to alter their habits.`\
+https://nytimes.com/2025/06/30/world/europe/europe-heat-wave.html
+
 **MLB, ESPN renew talks to keep baseball on network: Sources**\
 `In February, ESPN opted out of the final three seasons of its $550 million contract with MLB.`\
 https://nytimes.com/athletic/6463359/2025/06/30/mlb-espn-contract-talk/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/nyregion/nyc-rent-increase-vote.html
 **The Prada Sandal That Led to Cries of Cultural Theft in India**\
 `An uproar over a shoe that resembles leather footwear worn by many Indians shows a growing sense that the country should be recognized for its products that collect fame internationally.`\
 https://nytimes.com/2025/06/30/world/asia/india-prada-sandal.html
-
-**Two Rescued After Going Overboard During Disney Cruise**\
-`Crew members rescued two passengers after they drifted in the sea away from the ship. Witnesses said on social media that they had seen a girl fall overboard and a man, possibly her father, go in after her.`\
-https://nytimes.com/2025/06/30/us/disney-cruise-child-overboard-rescue.html
 

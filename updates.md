@@ -1,3 +1,7 @@
+**Dangerous Heat Grips Much of Europe, With More to Come**\
+`A punishing heat wave broke records in southern Europe and hasn’t peaked yet in some places, prompting warnings to residents, employers and tourists to alter their habits.`\
+https://nytimes.com/2025/06/30/world/europe/europe-heat-wave.html
+
 **MLB, ESPN renew talks to keep baseball on network: Sources**\
 `In February, ESPN opted out of the final three seasons of its $550 million contract with MLB.`\
 https://nytimes.com/athletic/6463359/2025/06/30/mlb-espn-contract-talk/
