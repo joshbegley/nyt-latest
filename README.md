@@ -1,3 +1,19 @@
+**What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
+` Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
+https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
+
+**'Whoever doesn’t want to fight for Inter should leave,' says Lautaro Martinez after Club World Cup exit**\
+`Martinez spoke after the defeat by Fluminense and the appearance of midfielder Hakan Calhanoglu in Istanbul amid interest from Galatasaray`\
+https://nytimes.com/athletic/6463955/2025/06/30/inter-martinez-calhanoglu-transfer/
+
+**Why Trump Had So Many Supreme Court Wins**\
+`The New York Times Supreme Court reporter Adam Liptak recaps this Supreme Court term, which was defined by a disproportionate amount of emergency docket cases. Liptak explains why these cases tended to go in the Trump administration’s favor.`\
+https://nytimes.com/video/us/100000010256773/why-trump-had-so-many-supreme-court-wins.html
+
+**Rockets, Dorian Finney-Smith agree to 4-year, $53 million contract: Sources**\
+`Finney-Smith is the latest indication that the Rockets are pushing their chips to center of the championship table.`\
+https://nytimes.com/athletic/6463975/2025/06/30/rockets-dorian-finney-smith-contract-agreement/
+
 **NHL contract grades: Blue Jackets massively overpay Ivan Provorov in confounding 7-year deal**\
 `On paper, it feels almost impossible to spin this immediate albatross in any positive light. The problem is the cost, at $8.5 million AAV.`\
 https://nytimes.com/athletic/6463841/2025/06/30/nhl-contract-grades-ivan-provorov-blue-jackets/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/30/us/juniper-fire-riverside-county.html
 **Senators depth chart: Where can Ottawa plug holes after re-signing Giroux?**\
 `The Sens are expected to stick to small changes to their depth chart, and if a trade makes sense, maybe they go down that road too.`\
 https://nytimes.com/athletic/6462738/2025/06/30/senators-offseason-depth-chart/
-
-**Jaren Jackson Jr., Grizzlies finalizing 5-year, $240M extension: Source**\
-`Jackson is coming off arguably his best statistical season as a pro. The deal will include a player option for 2029-30.`\
-https://nytimes.com/athletic/6463948/2025/06/30/jaren-jackson-jr-grizzlies-agree-to-5-year-240-million-max-extension/
-
-**Trump Urges Powell to Cut Interest Rates ‘By a Lot’ in Penned Note**\
-`Jerome H. Powell, chair of the Federal Reserve, has been at odds with President Donald Trump’s stance on lowering interest rates.`\
-https://nytimes.com/video/us/politics/100000010259913/trump-powell-fed-handwritten-note.html
-
-**Listen: The Athletic Hockey Show's top NHL Draft picks from Day 2**\
-`The Athletic Hockey Show discusses the Day 2 picks that stood out most to them from the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6462105/2025/06/30/athletic-hockey-show-nhl-draft-2025-day-2/
-
-**Senate Republicans Try to Find Votes for Trump’s ‘Big Bill’**\
-`On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would fail to pass.`\
-https://nytimes.com/video/us/politics/100000010259952/big-beautiful-bill-senate-vote.html
 

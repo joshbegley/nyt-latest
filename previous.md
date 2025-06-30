@@ -1,3 +1,7 @@
+**NHL contract grades: Blue Jackets massively overpay Ivan Provorov in confounding 7-year deal**\
+`On paper, it feels almost impossible to spin this immediate albatross in any positive light. The problem is the cost, at $8.5 million AAV.`\
+https://nytimes.com/athletic/6463841/2025/06/30/nhl-contract-grades-ivan-provorov-blue-jackets/
+
 **Is more WNBA expansion on the horizon? Our experts explain the league's growth**\
 `How will WNBA expansion impact the league? Will the schedule increase? `\
 https://nytimes.com/athletic/6463940/2025/06/30/wnba-expansion-league-growth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462105/2025/06/30/athletic-hockey-show-nhl-draft-2
 **Senate Republicans Try to Find Votes for Trump’s ‘Big Bill’**\
 `On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would fail to pass.`\
 https://nytimes.com/video/us/politics/100000010259952/big-beautiful-bill-senate-vote.html
-
-**Should Leafs fans view Mitch Marner as a hero or villain? A debate with myself**\
-`Marner leaves behind a complicated legacy in Toronto after a sign-and-trade to Vegas on Monday.`\
-https://nytimes.com/athletic/6463787/2025/06/30/mitch-marner-maple-leafs-fan-debate/
 

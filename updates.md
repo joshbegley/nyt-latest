@@ -1,3 +1,7 @@
+**NHL contract grades: Blue Jackets massively overpay Ivan Provorov in confounding 7-year deal**\
+`On paper, it feels almost impossible to spin this immediate albatross in any positive light. The problem is the cost, at $8.5 million AAV.`\
+https://nytimes.com/athletic/6463841/2025/06/30/nhl-contract-grades-ivan-provorov-blue-jackets/
+
 **Is more WNBA expansion on the horizon? Our experts explain the league's growth**\
 `How will WNBA expansion impact the league? Will the schedule increase? `\
 https://nytimes.com/athletic/6463940/2025/06/30/wnba-expansion-league-growth/
