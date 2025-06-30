@@ -1,3 +1,7 @@
+**USMNT survives Costa Rica in PKs, avoids Gold Cup upset bug to reach semis**\
+`Unlike Canada and Panama, the U.S. won its penalty shootout and advances to a Gold Cup semifinal vs. upstart Guatemala.`\
+https://nytimes.com/athletic/6461634/2025/06/29/usmnt-costa-rica-gold-cup-quarterfinals-penalty-kicks/
+
 **2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
 `Firefighters were responding to a fire near Coeur D’Alene when the shooting happened, a sheriff said. It was unclear how many might be wounded.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
