@@ -1,3 +1,7 @@
+**Europe asserts itself as Club World Cup threatens to reinforce football's established order**\
+`Bayern and Paris Saint-Germain saw off Flamengo and Inter Miami as the bracket starts to look like a Champions League lite`\
+https://nytimes.com/athletic/6461621/2025/06/29/club-world-cup-europe/
+
 **It's clearer than ever that the Lakers' long-term future doesn't revolve around LeBron**\
 `The tone of Sunday's messaging was such that it’s fair to wonder how the LeBron-Lakers partnership will go from here.`\
 https://nytimes.com/athletic/6461518/2025/06/29/lebron-james-contract-lakers-luka-doncic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461514/2025/06/29/aldrich-potgieter-rocket-classic
 **Luis Severino doesn’t care if A’s 'get mad' about him bashing Sacramento stadium**\
 `Severino didn't back off his comments about the minor-league park: “If you ask me how I feel pitching at home, I’m not going to lie to you."`\
 https://nytimes.com/athletic/6461423/2025/06/29/luis-severino-athletics-sacramento-ballpark-trade-rumors/
-
-**Championship Window**\
-`People trying to achieve their goals in that brief moment where everything is still possible.`\
-https://nytimes.com/2025/06/29/podcasts/championship-window.html
 

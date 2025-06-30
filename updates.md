@@ -1,3 +1,7 @@
+**Europe asserts itself as Club World Cup threatens to reinforce football's established order**\
+`Bayern and Paris Saint-Germain saw off Flamengo and Inter Miami as the bracket starts to look like a Champions League lite`\
+https://nytimes.com/athletic/6461621/2025/06/29/club-world-cup-europe/
+
 **It's clearer than ever that the Lakers' long-term future doesn't revolve around LeBron**\
 `The tone of Sunday's messaging was such that it’s fair to wonder how the LeBron-Lakers partnership will go from here.`\
 https://nytimes.com/athletic/6461518/2025/06/29/lebron-james-contract-lakers-luka-doncic/
