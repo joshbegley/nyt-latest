@@ -1,3 +1,11 @@
+**How the Brooklyn Bridge Ship Disaster Unfolded**\
+`An initial report from the National Transportation Safety Board described the moments before a Mexican Navy ship crashed into the Brooklyn Bridge.`\
+https://nytimes.com/2025/06/30/nyregion/brooklyn-mexican-naval-ship-crash-report.html
+
+**Why the Oilers had to pay up for Evan Bouchard's new contract**\
+`There's some sticker shock to Bouchard's deal, but the Oilers have retained an elite defenseman.`\
+https://nytimes.com/athletic/6464052/2025/06/30/edmonton-oilers-evan-bouchard-contract/
+
 **Nuggets trading Michael Porter Jr., first-round pick to Nets: Sources**\
 `Brooklyn still has approximately $24 million in easily accessible cap space and likely will remain a dumping ground for other salary moves.`\
 https://nytimes.com/athletic/6464112/2025/06/30/michael-porter-jr-nuggets-cam-johnson-nets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6463693/2025/06/30/detroit-red-wings-free-agency-tr
 **At Glastonbury, Left-Wing Politics Are Shocking Again**\
 `Trying to stamp out anti-Israel rhetoric only lends it the frisson of forbidden truth.`\
 https://nytimes.com/2025/06/30/opinion/glastonbury-bob-vylan-israel.html
-
-**What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
-`Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
-https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
-
-**'Whoever doesn’t want to fight for Inter should leave,' says Lautaro Martinez after Club World Cup exit**\
-`Martinez spoke after the defeat by Fluminense and the appearance of midfielder Hakan Calhanoglu in Istanbul amid interest from Galatasaray`\
-https://nytimes.com/athletic/6463955/2025/06/30/inter-martinez-calhanoglu-transfer/
 

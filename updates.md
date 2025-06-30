@@ -1,3 +1,11 @@
+**Nuggets trading Michael Porter Jr., first-round pick to Nets: Sources**\
+`Brooklyn still has approximately $24 million in easily accessible cap space and likely will remain a dumping ground for other salary moves.`\
+https://nytimes.com/athletic/6464112/2025/06/30/michael-porter-jr-nuggets-cam-johnson-nets/
+
+**Where things stand for Red Wings after busy Monday on free agency's eve**\
+`General Manager Steve Yzerman got some housekeeping moves done on Monday, but the market kept moving around him.`\
+https://nytimes.com/athletic/6463693/2025/06/30/detroit-red-wings-free-agency-trade-yzerman/
+
 **What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
 `Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
 https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
