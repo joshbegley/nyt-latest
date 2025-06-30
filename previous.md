@@ -1,40 +1,40 @@
-**Every NHL team's biggest need ahead of 2025 free agency**\
-`Before the free-agent frenzy begins on July 1, The Athletic asked its NHL staff to identify the biggest need for all 32 teams.`\
-https://nytimes.com/athletic/6459151/2025/06/30/nhl-free-agency-2025-team-needs/
+**What to Know About the Dangerous Heat in Europe**\
+`Health warnings were issued to tens of millions of Europeans as temperatures climbed well above 100 degrees Fahrenheit, or more than 40 degrees Celsius.`\
+https://nytimes.com/2025/06/30/world/europe/heat-wave-europe-what-to-know.html
 
-**TAFC: Upshot of Messi and Inter Miami's humbling, USMNT squeak through, Euro 2025 radar**\
-`Today in TAFC: The implications of PSG's 4-0 thrashing of Inter Miami. Plus: USMNT beat Costa Rica on penalties and our Euro 2025 Radar.`\
-https://nytimes.com/athletic/6462072/2025/06/30/messi-inter-miami-defeat-club-world-cup/
+**Brendan Donovan emerges as a Cardinals leader amid transition season**\
+`Donovan ranks among the Cardinals' most productive players and offers a motivational style that's helping to define the culture. `\
+https://nytimes.com/athletic/6459957/2025/06/30/cardinals-brendan-donovan-leadership/
 
-**The Pulse: The end of LeBron James?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6461652/2025/06/30/lebron-james-retirement-lakers-luka-doncic-the-pulse/
+**Cubs’ trade deadline checklist will include adding a hitter, too**\
+`The Cubs are casting a wide net for pitchers who might available, but they'll be aggressive and open-minded about upgrading the offense.`\
+https://nytimes.com/athletic/6461383/2025/06/30/cubs-trade-deadline-checklist/
 
-**Phillies takeaways: Relief for bullpen, offseason additions underwhelm, and a late-season move?**\
-`There is one month to go until the deadline. The Phillies just need to make it there, then make the right moves — starting with the bullpen.`\
-https://nytimes.com/athletic/6461669/2025/06/30/phillies-bullpen-upgrade-jordan-romano-max-kepler/
+**Corporate Politics**\
+`We take a look at why businesses are turning away from political causes.`\
+https://nytimes.com/2025/06/30/briefing/corporate-politics-pride-blm.html
 
-**Should Caitlin Clark be a WNBA All-Star Game starter? Our experts reveal their votes**\
-`"The disqualifying factor for Clark was her inefficiency," one of our experts argues.`\
-https://nytimes.com/athletic/6460882/2025/06/30/caitlin-clark-wnba-all-star-game-roster-votes/
+**Cole Palmer the left-winger? Chelsea's experiment at the Club World Cup**\
+`Enzo Maresca has tried the England star in several positions in the U.S. tournament`\
+https://nytimes.com/athletic/6460301/2025/06/30/cole-palmer-the-left-winger-chelseas-experiment-at-the-club-world-cup/
 
-**Trump Administration Live Updates: Senate to Begin Voting on Policy Bill, as G.O.P. Grasps for Support**\
-``\
-https://nytimes.com/live/2025/06/30/us/trump-news
+**Is Georgia Tech getting good again at just the right time?**\
+`Georgia Tech was slipping into national irrelevancy as college football rapidly changed. Key is on a mission to change that.`\
+https://nytimes.com/athletic/6453148/2025/06/30/georgia-tech-football-brent-key-2025/
 
-**A Year After ‘Loveless Landslide,’ U.K. Leader Is Even Less Popular**\
-`With scores of Labour Party lawmakers in open revolt and voters signaling their distaste, some are urging Prime Minister Keir Starmer to abandon caution and pivot left.`\
-https://nytimes.com/2025/06/30/world/europe/keir-starmer-uk-polls-labour.html
+**Rob Manfred has a plan: tell players they've lost billions, and build their trust in him**\
+`Manfred has been speaking to teams and players across the league, taking an aggressive approach not seen in past years. `\
+https://nytimes.com/athletic/6461725/2025/06/30/mlb-commissioner-rob-manfred-mlbpa-tour-lockout/
 
-**F1 reveals plan for private first preseason test in 2026**\
-`There are no plans for the running to be broadcast, or for fans or the media to be allowed to attend.`\
-https://nytimes.com/athletic/6462110/2025/06/30/f1-preseason-testing-closed/
+**WNBA power rankings: Could Angel Reese's hot streak boost Chicago Sky?**\
+`What's the key to the Mystics' fourth quarters? Sabreena Merchant dives into the league. `\
+https://nytimes.com/athletic/6461854/2025/06/30/wnba-power-rankings-angel-reese-chicago-sky/
 
-**Taiwan’s President Takes on China, and His Opponents, in Speaking Tour**\
-`Lai Ching-te is ramping up his warnings about China’s threat to Taiwan. Critics say he is stoking divisions, and risking blowback from Beijing.`\
-https://nytimes.com/2025/06/30/world/asia/taiwan-china-identity.html
+**Greenberg: As free agency commences, Bulls are in same place they always are**\
+`For the second straight summer, the Bulls have helped a contending team and not gotten enough in return. It's all part of a flawed plan.`\
+https://nytimes.com/athletic/6460950/2025/06/30/chicago-bulls-nba-free-agency-draft/
 
-**What We Know About the Idaho Shooting**\
-`The authorities said a gunman started a wildfire to lure firefighters, then ambushed them in a sniper attack.`\
-https://nytimes.com/2025/06/30/us/idaho-shooting-firefighters-sniper-suspect.html
+**The Hurricanes have everything they need to improve — but patience might also be needed**\
+`The rising salary-cap ceiling impacted what Carolina thought would be an advantage this summer.`\
+https://nytimes.com/athletic/6461860/2025/06/30/carolina-hurricanes-offseason-free-agents/
 
