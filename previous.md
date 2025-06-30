@@ -1,4 +1,12 @@
-**NHL free-agent big board 4.0: Expanding to the top 90 targets as big names start to fall**\
+**How inaccurate claims by Trump were used to justify executive actions**\
+`Many executive actions reflect Mr. Trump’s messaging, in some cases closely echoing inaccurate claims that have long been a feature of his public appearances.`\
+https://nytimes.com/interactive/2025/06/30/us/trump-executive-orders-inaccurate-claims.html
+
+**Scoop City: 2025 NFC East preview**\
+`Inside: Key questions, breakout players and positions to watch in the NFC East, plus`\
+https://nytimes.com/athletic/6462853/2025/06/30/nfl-preview-2025-nfc-east-eagles-cowboys-washington-commanders-giants/
+
+**NHL free-agent big board 4.0: Expanding the list of top targets as big names fall**\
 `With the opening of free agency coming into view, we’ve refreshed the Big Board.`\
 https://nytimes.com/athletic/6462876/2025/06/30/nhl-free-agency-rankings-big-board-re-signings/
 
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6462600/2025/06/30/rangers-free-agency-preview-nhl/
 **Live Q&A: Talking Tigers with Cody Stavenhagen at Noon ET Tuesday**\
 `<p>The Tigers still have the best record in the American League, and Tarik Skubal is dealing like never before.`\
 https://nytimes.com/athletic/6462775/2025/06/30/live-qa-tigers-cody-stavenhagen/
-
-**Riley Quick's fast recovery from Tommy John has ex-football player's MLB Draft stock soaring**\
-`"An o-lineman playing baseball," Quick is one of the top college righties in the draft. He channeled his aggressiveness during his recovery.`\
-https://nytimes.com/athletic/6457063/2025/06/30/riley-quick-mlb-draft-stock-tommy-john/
-
-**In 2022, it was Russo and Toone. Which young England players could make an impact at Euro 2025?**\
-`Wiegman's use of the substitutes' bench was key when England won the Euros – will it be the same again in Switzerland?`\
-https://nytimes.com/athletic/6461536/2025/06/30/england-clinton-park-beever-jones-agyemang/
 

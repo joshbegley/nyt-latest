@@ -1,3 +1,15 @@
+**How inaccurate claims by Trump were used to justify executive actions**\
+`Many executive actions reflect Mr. Trump’s messaging, in some cases closely echoing inaccurate claims that have long been a feature of his public appearances.`\
+https://nytimes.com/interactive/2025/06/30/us/trump-executive-orders-inaccurate-claims.html
+
+**Scoop City: 2025 NFC East preview**\
+`Inside: Key questions, breakout players and positions to watch in the NFC East, plus`\
+https://nytimes.com/athletic/6462853/2025/06/30/nfl-preview-2025-nfc-east-eagles-cowboys-washington-commanders-giants/
+
+**NHL free-agent big board 4.0: Expanding the list of top targets as big names fall**\
+`With the opening of free agency coming into view, we’ve refreshed the Big Board.`\
+https://nytimes.com/athletic/6462876/2025/06/30/nhl-free-agency-rankings-big-board-re-signings/
+
 **NHL free-agent big board 4.0: Expanding to the top 90 targets as big names start to fall**\
 `With the opening of free agency coming into view, we’ve refreshed the Big Board.`\
 https://nytimes.com/athletic/6462876/2025/06/30/nhl-free-agency-rankings-big-board-re-signings/
