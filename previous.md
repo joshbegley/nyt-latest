@@ -1,3 +1,15 @@
+**Trump Appeals Ruling Blocking Executive Order Against Perkins Coie**\
+`The administration appears to have decided to press forward with its fight against top law firms despite numerous defeats.`\
+https://nytimes.com/2025/06/30/us/politics/trump-perkins-coie.html
+
+**A manic Monday at Wimbledon shows why it is a Grand Slam tennis treasure**\
+`Wimbledon is the last Grand Slam to play 64 matches on its first day. That's worse for revenue, but better for tennis.`\
+https://nytimes.com/athletic/6463457/2025/06/30/tennis-wimbledon-grand-slam-first-day-sunday-start/
+
+**NHL contract grades: Aaron Ekblad gets term but takes discount to stay with Panthers**\
+`Aaron Ekblad signed a team-friendly deal that will age very well.`\
+https://nytimes.com/athletic/6463510/2025/06/30/nhl-contract-grades-aaron-ekblad-panthers/
+
 **Trump and Paramount in ‘Advanced’ Talks to Settle ‘60 Minutes’ Suit**\
 `The lawsuit has added a layer of complexity to Paramount’s multibillion-dollar merger with Skydance, a Hollywood studio.`\
 https://nytimes.com/2025/06/30/business/media/trump-paramount-60-minutes-lawsuit-settlement-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6463569/2025/06/30/chelsea-charly-musonda-retiremen
 **Two Disney Cruise Passengers Rescued After Going Overboard**\
 `The passengers, who appeared to be a man and a young child, were rescued by Disney Cruise Line crew members after they drifted away from the ship.`\
 https://nytimes.com/video/world/americas/100000010259592/disney-cruise-rescue.html
-
-**WNBA expansion timeline as the league looks to have a record 18 teams**\
-`By 2030, the league will have added six teams in five years.`\
-https://nytimes.com/athletic/6463382/2025/06/30/wnba-expansion-timeline-philadelphia-detroit-cleveland-portland-toronto/
-
-**On whether the Twins will spend, if the team values speed, Royce Lewis' future and more**\
-`Excerpts from the live Q&A Aaron Gleeman had with subscribers on Monday.`\
-https://nytimes.com/athletic/6463522/2025/06/30/twins-spending-royce-lewis-pitching-depth/
-
-**Deadly Strike Levels Popular Seaside Cafe in Gaza**\
-`The restaurant, a destination for Palestinians seeking a respite or internet access, was reduced to a mere shell by the blast.`\
-https://nytimes.com/2025/06/30/world/middleeast/gaza-city-cafe-airstrike.html
 

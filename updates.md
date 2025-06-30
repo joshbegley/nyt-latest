@@ -1,3 +1,15 @@
+**Trump Appeals Ruling Blocking Executive Order Against Perkins Coie**\
+`The administration appears to have decided to press forward with its fight against top law firms despite numerous defeats.`\
+https://nytimes.com/2025/06/30/us/politics/trump-perkins-coie.html
+
+**A manic Monday at Wimbledon shows why it is a Grand Slam tennis treasure**\
+`Wimbledon is the last Grand Slam to play 64 matches on its first day. That's worse for revenue, but better for tennis.`\
+https://nytimes.com/athletic/6463457/2025/06/30/tennis-wimbledon-grand-slam-first-day-sunday-start/
+
+**NHL contract grades: Aaron Ekblad gets term but takes discount to stay with Panthers**\
+`Aaron Ekblad signed a team-friendly deal that will age very well.`\
+https://nytimes.com/athletic/6463510/2025/06/30/nhl-contract-grades-aaron-ekblad-panthers/
+
 **Trump and Paramount in ‘Advanced’ Talks to Settle ‘60 Minutes’ Suit**\
 `The lawsuit has added a layer of complexity to Paramount’s multibillion-dollar merger with Skydance, a Hollywood studio.`\
 https://nytimes.com/2025/06/30/business/media/trump-paramount-60-minutes-lawsuit-settlement-talks.html
