@@ -1,3 +1,7 @@
+**Firefighters Killed in Sniper Ambush in Idaho**\
+`The attack happened in the Canfield Mountain area. Voices could be heard pleading for help in recordings of radio channels used by first responders.`\
+https://nytimes.com/video/us/100000010258269/idaho-shooting-sniper-firefighter.html
+
 **Inside the Roosevelt, a Migrant Shelter No More, Echoes of a Crisis**\
 `The Midtown Manhattan hotel opened as a shelter in 2023. That mission has ended as border crossings plummet, slowing the flow of migrants.`\
 https://nytimes.com/2025/06/30/nyregion/roosevelt-hotel-migrant-shelter-closed.html
