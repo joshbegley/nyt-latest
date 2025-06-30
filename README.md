@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6461423/2025/06/29/luis-severino-athletics-sacramen
 https://nytimes.com/2025/06/29/podcasts/championship-window.html
 
 **2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
-`Firefighters were responding to a fire call when the shooting erupted, a sheriff said, adding that it was not clear how many might be wounded.`\
+`Firefighters were responding to a fire near Coeur D’Alene when the shooting happened, a sheriff said. It was unclear how many might be wounded.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
 
 **Trade grades: Can Collin Sexton help the Hornets get more creative on offense?**\

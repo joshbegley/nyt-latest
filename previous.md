@@ -1,3 +1,7 @@
+**Rockets intend to sign Jabari Smith Jr. to 5-year, $122 million extension: Sources**\
+`Smith averaged 12.2 points, 7.0 rebounds and 1.1 assists during his third season with the franchise.`\
+https://nytimes.com/athletic/6461545/2025/06/29/rockets-jabari-smith-jr-extension/
+
 **Braves takeaways: Profar's return from PED suspension, offensive malaise, Strider improving**\
 `The Braves were 7-6 after 13 NL East games in 13 days, with their place in the division and wild-card standings unchanged. `\
 https://nytimes.com/athletic/6461452/2025/06/29/braves-takeaways-profar-returning-strider-improving/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
 **Trade grades: Can Collin Sexton help the Hornets get more creative on offense?**\
 `While Sexton isn't a straight-up lead guard, he has enough ability to give the Hornets options with and without LaMelo Ball`\
 https://nytimes.com/athletic/6461030/2025/06/29/collin-sexton-hornets-jusuf-nurkic-jazz-nba-trade/
-
-**Canada flops vs. Guatemala in PKs, out of Gold Cup in quarterfinals**\
-`Canada had aspirations of winning the Gold Cup. Instead, it's on the wrong side of Guatemala's history and left to lament an early ouster `\
-https://nytimes.com/athletic/6461181/2025/06/29/canada-guatemala-gold-cup-quarterfinals-penalty-kicks/
 
