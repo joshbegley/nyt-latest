@@ -1,3 +1,5 @@
+
+
 **Trump Appeals Ruling Blocking Executive Order Against Perkins Coie**\
 `The administration appears to have decided to press forward with its fight against top law firms despite numerous defeats.`\
 https://nytimes.com/2025/06/30/us/politics/trump-perkins-coie.html
