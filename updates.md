@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Tuesday, July 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/30/todays-new-york-times-international-edition
+
+**A Bitter Political Rivalry in Zambia Shows No Deference to Death**\
+`The burial site of Edgar Lungu, Zambia’s former president, has become the latest conflict in a relationship marred by hostility`\
+https://nytimes.com/2025/06/30/world/africa/zambia-edgar-lungu-funeral.html
+
 **2025/26 Serie A winner odds: Inter just ahead of defending champion Napoli**\
 `Napoli won Serie A last season, but Inter Milan are the early favourites to reclaim the Scudetto.`\
 https://nytimes.com/athletic/6454433/2025/06/30/2025-26-serie-a-winner-odds-inter-just-ahead-of-defending-champions-napoli/
