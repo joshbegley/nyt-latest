@@ -1,3 +1,11 @@
+**Wings trade NaLyssa Smith to Aces for first-round pick**\
+`The move allows Dallas to give their young frontcourt options more playing time, but could be a massive risk for Las Vegas.`\
+https://nytimes.com/athletic/6463214/2025/06/30/wnba-wings-nalyssa-smith-aces-trade/
+
+**FIFA urged to abandon early kick-offs at 'high risk' World Cup venues**\
+`Kansas City and Miami, along with Monterrey in Mexico, carry “extremely high risk” of heat-stress injury during afternoon fixtures`\
+https://nytimes.com/athletic/6463216/2025/06/30/players-union-urges-fifa-to-scrap-early-kick-offs-at-extremely-high-risk-world-cup-venues/
+
 **Will Canada learn from a total Gold Cup failure, or just keep talking a big game?**\
 `Canada's been knocking on the door of a breakthrough, but it's going to take more than speaking it into existence, as the Gold Cup showed`\
 https://nytimes.com/athletic/6462468/2025/06/30/canada-gold-cup-failure-jesse-marsch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6463087/2025/06/30/maple-leafs-trade-matias-maccell
 **New York’s Public Defenders Threaten to Strike for Higher Pay**\
 `The lawyers who represent the city’s poorest defendants want to be paid on par with their federal counterparts. They last walked out in 1994.`\
 https://nytimes.com/2025/06/30/nyregion/new-york-legal-aid-society-strike.html
-
-**NHL rumblings: Golden Knights talking Andersson trade, latest on Marner, Marchand, Kyrou, more**\
-`Andersson has indicated he would sign an extension in Vegas, leading to talks between the Knights and Flames.`\
-https://nytimes.com/athletic/6462976/2025/06/30/nhl-trades-free-agency-andersson-marner-marchand-kyrou/
-
-**‘The Bomb Lady’ and the Forerunner of the ‘Bunker Buster’ Used in Iran**\
-`While a child in wartime Vietnam, Anh Duong vowed to one day help the soldiers who saved her. She and her Navy team helped revolutionize American munitions.`\
-https://nytimes.com/2025/06/30/us/politics/bomb-iran.html
 

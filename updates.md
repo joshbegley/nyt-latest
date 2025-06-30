@@ -1,3 +1,11 @@
+**Wings trade NaLyssa Smith to Aces for first-round pick**\
+`The move allows Dallas to give their young frontcourt options more playing time, but could be a massive risk for Las Vegas.`\
+https://nytimes.com/athletic/6463214/2025/06/30/wnba-wings-nalyssa-smith-aces-trade/
+
+**FIFA urged to abandon early kick-offs at 'high risk' World Cup venues**\
+`Kansas City and Miami, along with Monterrey in Mexico, carry “extremely high risk” of heat-stress injury during afternoon fixtures`\
+https://nytimes.com/athletic/6463216/2025/06/30/players-union-urges-fifa-to-scrap-early-kick-offs-at-extremely-high-risk-world-cup-venues/
+
 **Will Canada learn from a total Gold Cup failure, or just keep talking a big game?**\
 `Canada's been knocking on the door of a breakthrough, but it's going to take more than speaking it into existence, as the Gold Cup showed`\
 https://nytimes.com/athletic/6462468/2025/06/30/canada-gold-cup-failure-jesse-marsch/
