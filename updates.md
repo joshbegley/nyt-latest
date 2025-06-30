@@ -1,3 +1,15 @@
+**Braves takeaways: Profar's return from PED suspension, offensive malaise, Strider improving**\
+`The Braves were 7-6 after 13 NL East games in 13 days, with their place in the division and wild-card standings unchanged. `\
+https://nytimes.com/athletic/6461452/2025/06/29/braves-takeaways-profar-returning-strider-improving/
+
+**How bad can it get for Mets? Everything goes wrong in sweep in Pittsburgh**\
+`The Mets have lost 13 of their last 16 games, including a three-game sweep in Pittsburgh in which they were outscored 30-4.`\
+https://nytimes.com/athletic/6461477/2025/06/29/mets-struggles-pittsburgh-sweep-takeaways/
+
+**Aldrich Potgieter wins Rocket Classic for first career PGA Tour victory**\
+`Potgieter carried a two-shot lead into the final round but bogeyed two of his first five holes to allow the pack to catch up.`\
+https://nytimes.com/athletic/6461514/2025/06/29/aldrich-potgieter-rocket-classic-first-pga-win/
+
 **Guardiola 'understands' Klopp's Club World Cup criticisms, raises possible 'disaster' season**\
 `“Maybe in November, December or January it will be a disaster, we are exhausted and the World Cup has destroyed us. I don’t know," he said`\
 https://nytimes.com/athletic/6461558/2025/06/29/guardiola-klopp-disaster-season/
