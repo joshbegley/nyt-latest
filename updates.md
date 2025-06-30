@@ -1,3 +1,7 @@
+**Pep Guardiola's Manchester City: The first steps of a rejuvenation**\
+`Not long after his toughest season at City, Guardiola appears revitalised already, with his team showing off a host of new tricks `\
+https://nytimes.com/athletic/6461638/2025/06/30/pep-guardiola-manchester-city-club-world-cup/
+
 **Roberto Baggio, the football icon footballers love: 'To entertain people... that's what I lived for'**\
 `The great Roberto Baggio didn't do it for the money or for the fame - perhaps that's why the likes of Lionel Messi love him`\
 https://nytimes.com/athletic/6456416/2025/06/30/roberto-baggio-interview-italy-world-cup-juventus-inter-milan/
