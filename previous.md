@@ -1,3 +1,19 @@
+**The Radar - Women's Euro 2025: The Athletic picks 25 players to watch**\
+`From the biggest names to the breakthrough talents, we profile the players our experts think you need to know about during the tournament`\
+https://nytimes.com/athletic/6437719/2025/06/30/the-radar-womens-euro-2025-players-to-watch/
+
+**Headed to Switzerland for the Women's Euros? Pack your jersey, your passion and your savings**\
+`How much will it cost to watch Euro 2025 in the world's most expensive country?`\
+https://nytimes.com/athletic/6454702/2025/06/30/headed-to-switzerland-for-the-womens-euros-pack-your-jersey-your-passion-and-your-savings/
+
+**A List of Nearly Everything in the Senate G.O.P. Bill, and How Much It Would Cost or Save**\
+`The legislation includes tax cuts as well as big cuts to Medicaid, food benefits and other programs, and it would add more than $3 trillion to the national debt.`\
+https://nytimes.com/interactive/2025/06/30/upshot/senate-republican-megabill.html
+
+**Yes, Chelsea have signed lots of forwards but Joao Pedro offers them something different**\
+`Joao Pedro could provide an added dimension to Chelsea’s attack that complements the existing creativity shouldered by Cole Palmer`\
+https://nytimes.com/athletic/6461405/2025/06/30/joao-pedro-chelsea-transfer-explained/
+
 **England have depth, dynamism and a clear identity heading into Euro 2025**\
 `The Lionesses signed off for the Euros with a thumping win over Jamaica but beyond that they appear to be in a healthy position`\
 https://nytimes.com/athletic/6460472/2025/06/30/england-depth-jamaica-euro-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/30/business/trump-tariffs-textiles-china.html
 **Trump Wants America to Make iPhones. Here’s How India Is Doing It.**\
 `India is carving out a new space for Foxconn and other high-end manufacturers, just as President Trump demands American companies do at home.`\
 https://nytimes.com/2025/06/30/business/apple-foxconn-india.html
-
-**They Demanded Democracy. Years Later, They Are Still Paying the Price.**\
-`Thousands of young people lost careers, friends and dreams after taking part in mass antigovernment protests that erupted six years ago in Hong Kong.`\
-https://nytimes.com/2025/06/30/world/asia/they-demanded-democracy-years-later-they-are-still-paying-the-price.html
-
-**Connections: Sports Edition Coach: Hints for June 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6442081/2025/06/30/connections-sports-edition-hints-for-june-30-2025/
-
-**Quote of the Day: A ‘Sister Act’ With Millions of Views and a Mission**\
-`Quotation of the Day for Monday, June 30, 2025.`\
-https://nytimes.com/2025/06/29/pageoneplus/quote-of-the-day-a-sister-act-with-millions-of-views-and-a-mission.html
-
-**After loss to Tigers, Twins make room for Royce Lewis by removing Jonah Bride from roster**\
-`The Twins could have used the potential right-handed thump from Lewis against a dominant Tarik Skubal in Sunday's loss to the Tigers.`\
-https://nytimes.com/athletic/6461785/2025/06/29/twins-royce-lewis-return/
 
