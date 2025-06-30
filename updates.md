@@ -1,3 +1,11 @@
+**WATCH: This is what makes Kevin Durant a perfect fit for the Rockets**\
+`The Rockets' one weakness last season was an ugly half-court offense. Here's how the acquisition of Kevin Durant solves that problem.`\
+https://nytimes.com/athletic/6463599/2025/06/30/video-kevin-durant-rockets-fit-2026/
+
+**The Briefing – Inter 0 Fluminense 2: Cano and Hercules send second Brazilian side through to Club World Cup quarter-finals**\
+`Analysis of Monday's last-16 clash in Charlotte `\
+https://nytimes.com/athletic/6462535/2025/06/30/inter-fluminense-club-world-cup-analysis/
+
 **Trump Lifts Sanctions on Syria, Tightening His Embrace of Its New Leader**\
 `U.S. officials said sanctions against targets such as its central bank would end, but they would remain on Syria’s former dictator, Bashar al-Assad.`\
 https://nytimes.com/2025/06/30/us/politics/trump-syria-sanctions.html
