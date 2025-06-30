@@ -1,3 +1,7 @@
+**‘Squid Game’ Season 3 Recap: More Misery and a Surprise Cameo**\
+`The final season of the Netflix hit brought the story to a largely predictable conclusion, with one last twist at the end.`\
+https://nytimes.com/2025/06/30/arts/television/squid-game-season-3-recap.html
+
 **A Common Assumption About Aging May Be Wrong, Study Suggests**\
 `Experts have long pointed to inflammation as a natural part of getting older. But a new paper suggests it might be more a product of our environment.`\
 https://nytimes.com/2025/06/30/well/live/aging-inflammation-lifespan-environment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/world/middleeast/violence-israeli-settlers-west-b
 **Liverpool's Nyoni signs new long-term contract with the club**\
 `The midfielder turned 18 today, and the new deal rewards the impression and impact he has made since his arrival from Leicester in 2023.`\
 https://nytimes.com/athletic/6462588/2025/06/30/liverpool-news-nyoni-contract/
-
-**Word of the Day: extemporaneous**\
-`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/30/learning/word-of-the-day-extemporaneous.html
 
