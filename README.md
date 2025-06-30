@@ -1,3 +1,7 @@
+**Earps: ‘I was villainised’ after England retirement**\
+`Earps announced her retirement from international competition in May, just over a month before Euro 2025.`\
+https://nytimes.com/athletic/6462045/2025/06/30/mary-earps-england-retirment-reaction/
+
 **How to play tennis on grass at Wimbledon – by not practicing on grass at all**\
 `The shortest season in tennis demands very specific skills. This is how players acquire them in quick time.`\
 https://nytimes.com/athletic/6430370/2025/06/30/tennis-grass-how-to-play-wimbledon-strategy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456416/2025/06/30/roberto-baggio-interview-italy-w
 **The New York Times in Print for Monday, June 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/30/todays-new-york-times
-
-**Europe Is Making a Big Mistake**\
-`Breakneck rearmament risks taking the European Union not forward but backward.`\
-https://nytimes.com/2025/06/30/opinion/europe-nato-military-spending.html
 
