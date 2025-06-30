@@ -1,3 +1,7 @@
+**Marsch laments Canada's Gold Cup collapse, cites his reasons and to-do list**\
+`Marsch curiously claimed he was without "half" his squad while also looking in the mirror after a quarterfinal ouster`\
+https://nytimes.com/athletic/6461449/2025/06/29/jesse-marsch-canada-gold-cup-guatemala-loss/
+
 **Aldrich Potgieter wins Rocket Classic in first career PGA Tour victory**\
 `Potgieter carried a two-shot lead into the final round but bogeyed two of his first five holes to allow the pack to catch up.`\
 https://nytimes.com/athletic/6461514/2025/06/29/aldrich-potgieter-rocket-classic-first-pga-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/us/politics/with-accounting-gimmick-republicans-u
 **Lionel Messi carried Inter Miami and FIFA as far as he could but football is a team game**\
 `Lionel Messi is the face of his team, his league and the Club World Cup but ultimately there is a limit to his superpowers`\
 https://nytimes.com/athletic/6460580/2025/06/29/lionel-messi-club-world-cup-fifa-exit/
-
-**USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
-`Hayes started a completely new lineup from Thursday's win, but the result was the same: a 4-0 victory.`\
-https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
 
