@@ -1,3 +1,15 @@
+**Juniper Fire in California Prompts Evacuation Order**\
+`The wildfire, in Riverside County, east of Los Angeles, burned more than 600 acres in just a few hours on Monday. About 5,000 people were ordered to leave their homes.`\
+https://nytimes.com/2025/06/30/us/juniper-fire-riverside-county.html
+
+**Senators depth chart: Where can Ottawa plug holes after re-signing Giroux?**\
+`The Sens are expected to stick to small changes to their depth chart, and if a trade makes sense, maybe they go down that road too.`\
+https://nytimes.com/athletic/6462738/2025/06/30/senators-offseason-depth-chart/
+
+**Jaren Jackson Jr., Grizzlies finalizing 5-year, $240M max extension: Source**\
+`Deal includes a player option for 2029-30 for forward, who is coming off arguably his best statistical season as a pro.`\
+https://nytimes.com/athletic/6463948/2025/06/30/jaren-jackson-jr-grizzlies-agree-to-5-year-240-million-max-extension/
+
 **Trump Urges Powell to Cut Interest Rates ‘By a Lot’ in Penned Note**\
 `Jerome H. Powell, chair of the Federal Reserve, has been at odds with President Donald Trump’s stance on lowering interest rates.`\
 https://nytimes.com/video/us/politics/100000010259913/trump-powell-fed-handwritten-note.html
