@@ -1,3 +1,15 @@
+**Trump Administration Finds Harvard Violated Civil Rights Law**\
+`The university had recently restarted talks with the White House regarding a potential deal after months of fighting in court.`\
+https://nytimes.com/2025/06/30/us/politics/trump-harvard-civil-rights-law.html
+
+**Violence Erupts Between Israeli Settlers and Military in West Bank**\
+`Hard-right activists clashed with troops and set fire to a security site following a growing wave of attacks on Palestinians in the occupied territory.`\
+https://nytimes.com/2025/06/30/world/middleeast/violence-israeli-settlers-west-bank.html
+
+**Liverpool's Nyoni signs new long-term contract with the club**\
+`The midfielder turned 18 today, and the new deal rewards the impression and impact he has made since his arrival from Leicester in 2023.`\
+https://nytimes.com/athletic/6462588/2025/06/30/liverpool-news-nyoni-contract/
+
 **Word of the Day: extemporaneous**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/30/learning/word-of-the-day-extemporaneous.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6462404/2025/06/30/sheffield-wednesday-wages-paymen
 **How Much Do You Know About Early American Literature?**\
 `Before the Independence Day fireworks this week, try this short quiz on America’s popular books published during the country’s formative years.`\
 https://nytimes.com/interactive/2025/06/30/books/review/early-american-quiz.html
-
-**Trail Blazers' Deandre Ayton accepts contract buyout, will hit free agency**\
-`The specific nature of the buyout will be finalized after Ayton clears waivers, a league source said.`\
-https://nytimes.com/athletic/6462473/2025/06/30/deandre-ayton-contract-buyout-trail-blazers/
-
-**WNBA announces record expansion to Cleveland, Detroit and Philadelphia**\
-`Cleveland will begin play in 2028, Detroit in 2029 and Philadelphia in 2030.`\
-https://nytimes.com/athletic/6462405/2025/06/30/wnba-expansion-philadelphia-cleveland-detroit/
-
-**West Ham United fan survey: Have your say ahead of the 2025-26 season**\
-`Vote in our West Ham United fan survey now`\
-https://nytimes.com/athletic/6462364/2025/06/30/west-ham-united-fan-survey-new-season/
 

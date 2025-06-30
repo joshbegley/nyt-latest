@@ -1,3 +1,15 @@
+**Trump Administration Finds Harvard Violated Civil Rights Law**\
+`The university had recently restarted talks with the White House regarding a potential deal after months of fighting in court.`\
+https://nytimes.com/2025/06/30/us/politics/trump-harvard-civil-rights-law.html
+
+**Violence Erupts Between Israeli Settlers and Military in West Bank**\
+`Hard-right activists clashed with troops and set fire to a security site following a growing wave of attacks on Palestinians in the occupied territory.`\
+https://nytimes.com/2025/06/30/world/middleeast/violence-israeli-settlers-west-bank.html
+
+**Liverpool's Nyoni signs new long-term contract with the club**\
+`The midfielder turned 18 today, and the new deal rewards the impression and impact he has made since his arrival from Leicester in 2023.`\
+https://nytimes.com/athletic/6462588/2025/06/30/liverpool-news-nyoni-contract/
+
 **Word of the Day: extemporaneous**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/30/learning/word-of-the-day-extemporaneous.html
