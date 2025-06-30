@@ -1,3 +1,15 @@
+**Senate Republicans Try to Find Votes for Trump’s ‘Big Bill’**\
+`On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would be killed.`\
+https://nytimes.com/video/us/politics/100000010259952/big-beautiful-bill-senate-vote.html
+
+**Should Leafs fans view Mitch Marner as a hero or villain? A debate with myself**\
+`Mitch Marner leaves behind a complicated legacy in Toronto after a sign-and-trade to Vegas on Monday.`\
+https://nytimes.com/athletic/6463787/2025/06/30/mitch-marner-maple-leafs-fan-debate/
+
+**NHL contract grades: Mitch Marner gets a fresh start and Golden Knights add a superstar**\
+`On the surface, it’s a fair contract for a superstar signing with a contender. Digging deeper shows potential red flags for Vegas.`\
+https://nytimes.com/athletic/6459310/2025/06/30/nhl-contract-grades-mitch-marner-golden-knights/
+
 **Canada’s Tax U-turn Highlights Trump Tariff Tactics**\
 `After President Trump suspended trade talks with Canada over its controversial digital services tax, Ottawa scrapped it to get back to the negotiating table.`\
 https://nytimes.com/2025/06/30/world/canada/canada-digital-tax-tariff-negotiations-trump.html
