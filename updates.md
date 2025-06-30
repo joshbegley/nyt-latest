@@ -1,3 +1,15 @@
+**A Common Assumption About Aging May Be Wrong, Study Suggests**\
+`Experts have long pointed to inflammation as a natural part of getting older. But a new paper suggests it might be more a product of our environment.`\
+https://nytimes.com/2025/06/30/well/live/aging-inflammation-lifespan-environment.html
+
+**Watkins on Man Utd shortlist if Hojlund leaves**\
+`United are assessing the market for No 9s and it is not guaranteed one arrives if outgoings are insufficient.`\
+https://nytimes.com/athletic/6462637/2025/06/30/ollie-watkins-manchester-united-transfer/
+
+**Wild's home will have new name for first time in 2025-26: Grand Casino Arena**\
+`The Wild and the Mille Lacs Band of Ojibwe, which founded Grand Casino Mille Lacs and Hinckley, agreed to a 14-year naming-rights contract.`\
+https://nytimes.com/athletic/6461274/2025/06/30/wild-grand-casino-arena-naming-rights/
+
 **Lowetide: Oilers top 20 prospects ranking, summer 2025 edition**\
 `The quality of the Oilers' prospect pool has increased dramatically since last summer.`\
 https://nytimes.com/athletic/6459651/2025/06/30/oilers-prospects-ranking-summer-2025/
