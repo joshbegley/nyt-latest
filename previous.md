@@ -1,3 +1,15 @@
+**Trump and Paramount in ‘Advanced’ Talks to Settle ‘60 Minutes’ Suit**\
+`The lawsuit has added a layer of complexity to Paramount’s multibillion-dollar merger with Skydance, a Hollywood studio.`\
+https://nytimes.com/2025/06/30/business/media/trump-paramount-60-minutes-lawsuit-settlement-talks.html
+
+**Tony Petitti defends CFP proposal with 4 automatic bids for Big Ten, SEC**\
+`Petitti said his focus for automatic qualifiers is to encourage teams to compete in more challenging regular-season games.`\
+https://nytimes.com/athletic/6463516/2025/06/30/big-ten-tony-petitti-cfp-expansion/
+
+**Trump Foes May Bring More Class-Action Suits. How Do They Work?**\
+`A Supreme Court decision limiting the ability of judges to issue nationwide injunctions blocking Trump orders left open the possibility of class-action lawsuits to do the same. Here’s how.`\
+https://nytimes.com/2025/06/30/us/trump-supreme-court-birthright-citizenship-class-action-lawsuits.html
+
 **Carolina Panthers fan survey: What are your expectations for the 2025 season?**\
 `It&#8217;s hot out there.`\
 https://nytimes.com/athletic/6463467/2025/06/30/panthers-fan-survey-questions-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6463522/2025/06/30/twins-spending-royce-lewis-pitch
 **Deadly Strike Levels Popular Seaside Cafe in Gaza**\
 `The restaurant, a destination for Palestinians seeking a respite or internet access, was reduced to a mere shell by the blast.`\
 https://nytimes.com/2025/06/30/world/middleeast/gaza-city-cafe-airstrike.html
-
-**Aaron Ekblad takes hometown discount, signs 8-year extension with Cup-champion Panthers**\
-`Ekblad was considered the top defenseman on the free-agent market before inking the contract, worth $6.1 million annually.`\
-https://nytimes.com/athletic/6463163/2025/06/30/aaron-ekblad-florida-panthers-contract-nhl-free-agency-2025/
-
-**Trump Steps Up Pressure Campaign on Powell With Handwritten Note**\
-`President Trump has repeatedly attacked Jerome H. Powell, chair of the Federal Reserve, for resisting his demands for lower interest rates.`\
-https://nytimes.com/2025/06/30/business/trump-powell-fed-handwritten-note.html
-
-**Dangerous Heat Grips Much of Europe, With More to Come**\
-`A punishing heat wave broke records in southern Europe and hasn’t peaked yet in some places, prompting warnings to residents, employers and tourists to alter their habits.`\
-https://nytimes.com/2025/06/30/world/europe/europe-heat-wave.html
 
