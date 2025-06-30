@@ -1,4 +1,8 @@
 **2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
+`Firefighters were responding to a fire call when the shooting erupted, a sheriff said, adding that it was not clear how many might be wounded.`\
+https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
+
+**2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
 `Firefighters were responding to a call when the shooting erupted, a sheriff said, adding that it was not clear how many might be wounded.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
 
