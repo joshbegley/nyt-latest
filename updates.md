@@ -1,3 +1,7 @@
+**2025 Concacaf Gold Cup odds: Mexico, USMNT remain on collision course for final**\
+`Mexico retains the top spot in the odds to win the Gold Cup and it appears to be a two-horse race entering the semifinals.`\
+https://nytimes.com/athletic/6462643/2025/06/30/gold-cup-odds-mexico-usmnt-concacaf/
+
 **Europeans Struggle to Stay Cool Amid an Extreme Heatwave**\
 `Spain, France, Portugal, Greece and Italy have experienced severe conditions over the weekend. The heatwave is expected to persist into the middle of the week.`\
 https://nytimes.com/video/world/europe/100000010258486/europe-spain-portugal-france-heatwave.html
