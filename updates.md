@@ -1,3 +1,7 @@
+**Earps: ‘I was villainised’ after England retirement**\
+`Earps announced her retirement from international competition in May, just over a month before Euro 2025.`\
+https://nytimes.com/athletic/6462045/2025/06/30/mary-earps-england-retirment-reaction/
+
 **How to play tennis on grass at Wimbledon – by not practicing on grass at all**\
 `The shortest season in tennis demands very specific skills. This is how players acquire them in quick time.`\
 https://nytimes.com/athletic/6430370/2025/06/30/tennis-grass-how-to-play-wimbledon-strategy/
