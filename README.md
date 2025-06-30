@@ -1,3 +1,11 @@
+**Will Canada learn from a total Gold Cup failure, or just keep talking a big game?**\
+`Canada's been knocking on the door of a breakthrough, but it's going to take more than speaking it into existence, as the Gold Cup showed`\
+https://nytimes.com/athletic/6462468/2025/06/30/canada-gold-cup-failure-jesse-marsch/
+
+**He Made Billions on Google and PayPal. Now, He’s Betting on News.**\
+`Michael Moritz co-founded The San Francisco Standard, a local news organization. It is acquiring Charter, a start-up focused on the future of work.`\
+https://nytimes.com/2025/06/30/business/media/michael-moritz-san-francisco-standard-charter.html
+
 **Trump’s Task Force Sought to Clear an MS-13 Leader While Pursuing Abrego Garcia**\
 `The dueling moves reflected how federal law enforcement officers have at times been put in the position of pursuing the Trump administration’s shifting political agenda.`\
 https://nytimes.com/2025/06/30/us/politics/trump-ms-13-abrego-garcia.html
@@ -18,23 +26,15 @@ https://nytimes.com/2025/06/30/us/boulder-fire-bombing-attack.html
 `Leafs send conditional third-round draft pick to Utah in exchange for winger.`\
 https://nytimes.com/athletic/6463087/2025/06/30/maple-leafs-trade-matias-maccelli-utah-mammoth/
 
-**New York’s Public Defenders Could Soon Strike for Higher Pay**\
+**New York’s Public Defenders Threaten to Strike for Higher Pay**\
 `The lawyers who represent the city’s poorest defendants want to be paid on par with their federal counterparts. They last walked out in 1994.`\
 https://nytimes.com/2025/06/30/nyregion/new-york-legal-aid-society-strike.html
 
-**NHL rumblings: Golden Knights talking Andersson trade, plus latest on Marner, Marchand, Kyrou, more**\
+**NHL rumblings: Golden Knights talking Andersson trade, latest on Marner, Marchand, Kyrou, more**\
 `Andersson has indicated he would sign an extension in Vegas, leading to talks between the Knights and Flames.`\
 https://nytimes.com/athletic/6462976/2025/06/30/nhl-trades-free-agency-andersson-marner-marchand-kyrou/
 
 **‘The Bomb Lady’ and the Forerunner of the ‘Bunker Buster’ Used in Iran**\
 `While a child in wartime Vietnam, Anh Duong vowed to one day help the soldiers who saved her. She and her Navy team helped revolutionize American munitions.`\
 https://nytimes.com/2025/06/30/us/politics/bomb-iran.html
-
-**Astros place Jeremy Peña on injured list with rib fracture**\
-`Houston's shortstop left Friday's game in the sixth inning after Chicago Cubs starter Cade Horton hit him with a pitch in the second inning.`\
-https://nytimes.com/athletic/6462991/2025/06/30/astros-jeremy-pena-injury/
-
-**Red Wings trade Vladimir Tarasenko to Wild: What the deal means for both teams**\
-`Detroit dumps Tarasenko's salary, while Minnesota buys time.`\
-https://nytimes.com/athletic/6463060/2025/06/30/wild-vladimir-tarasenko-trade-red-wings/
 

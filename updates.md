@@ -1,3 +1,15 @@
+**Trump’s Task Force Sought to Clear an MS-13 Leader While Pursuing Abrego Garcia**\
+`The dueling moves reflected how federal law enforcement officers have at times been put in the position of pursuing the Trump administration’s shifting political agenda.`\
+https://nytimes.com/2025/06/30/us/politics/trump-ms-13-abrego-garcia.html
+
+**Plaintiff withdraws sexual assault lawsuit against BYU QB Jake Retzlaff**\
+`Reports said Sunday that the quarterback would likely leave the program.`\
+https://nytimes.com/athletic/6463116/2025/06/30/jake-retzlaff-sexual-assault-lawsuit-byu-suspension/
+
+**'Surviving Ohio State' documentary gives chilling reminder of a 'powerless' time**\
+`“It was classic predator behavior,” said Eva Orner, the Academy Award- and Emmy Award-winner who directed the documentary.`\
+https://nytimes.com/athletic/6430515/2025/06/30/ohio-state-documentary-sexual-abuse/
+
 **Victim of Boulder Firebombing Attack Dies of Wounds**\
 `The death of Karen Diamond, 82, has turned the attack in Boulder, Colo., on marchers for Israeli hostages into a possible death-penalty case.`\
 https://nytimes.com/2025/06/30/us/boulder-fire-bombing-attack.html

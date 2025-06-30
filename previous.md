@@ -1,3 +1,15 @@
+**Trump’s Task Force Sought to Clear an MS-13 Leader While Pursuing Abrego Garcia**\
+`The dueling moves reflected how federal law enforcement officers have at times been put in the position of pursuing the Trump administration’s shifting political agenda.`\
+https://nytimes.com/2025/06/30/us/politics/trump-ms-13-abrego-garcia.html
+
+**Plaintiff withdraws sexual assault lawsuit against BYU QB Jake Retzlaff**\
+`Reports said Sunday that the quarterback would likely leave the program.`\
+https://nytimes.com/athletic/6463116/2025/06/30/jake-retzlaff-sexual-assault-lawsuit-byu-suspension/
+
+**'Surviving Ohio State' documentary gives chilling reminder of a 'powerless' time**\
+`“It was classic predator behavior,” said Eva Orner, the Academy Award- and Emmy Award-winner who directed the documentary.`\
+https://nytimes.com/athletic/6430515/2025/06/30/ohio-state-documentary-sexual-abuse/
+
 **Victim of Boulder Firebombing Attack Dies of Wounds**\
 `The death of Karen Diamond, 82, has turned the attack in Boulder, Colo., on marchers for Israeli hostages into a possible death-penalty case.`\
 https://nytimes.com/2025/06/30/us/boulder-fire-bombing-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6462991/2025/06/30/astros-jeremy-pena-injury/
 **Red Wings trade Vladimir Tarasenko to Wild: What the deal means for both teams**\
 `Detroit dumps Tarasenko's salary, while Minnesota buys time.`\
 https://nytimes.com/athletic/6463060/2025/06/30/wild-vladimir-tarasenko-trade-red-wings/
-
-**Wimbledon play interrupted after spectator receives medical assistance on Centre Court**\
-`Carlos Alcaraz was one of the first to spot the incident that occurred during the fifth set of his opening match of the tournament.`\
-https://nytimes.com/athletic/6463015/2025/06/30/tennis-wimbledon-weather-heat-centre-court-fan/
-
-**Aaron Ramsey set to join Liga MX side Pumas**\
-`Ramsey, 34, played 10 games for Cardiff last season and was named interim head coach with three matches remaining of the campaign.`\
-https://nytimes.com/athletic/6411398/2025/06/30/aaron-ramsey-mexico-pumas-transfer/
-
-**2025 Concacaf Gold Cup odds: Mexico, USMNT remain on collision course for final**\
-`Mexico retains the top spot in the odds to win the Gold Cup and it appears to be a two-horse race entering the semifinals.`\
-https://nytimes.com/athletic/6462643/2025/06/30/gold-cup-odds-mexico-usmnt-concacaf/
 
