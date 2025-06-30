@@ -1,3 +1,11 @@
+**What Makes Someone Cool? A New Study Offers Clues.**\
+`Six traits can determine your ‘it’ factor, according to researchers who measured coolness around the globe.`\
+https://nytimes.com/2025/06/30/well/mind/cool-people-traits-study.html
+
+**Nonprofits Lose Legal Bid to Halt U.K. Exports of Fighter Jet Parts to Israel**\
+`A top court ruled Monday that the British government, rather than judges, should decide on the “acutely sensitive and political issue.”`\
+https://nytimes.com/2025/06/30/world/europe/uk-high-court-israel-arms-gaza.html
+
 **Villa defender Kesler-Hayden to join Coventry**\
 `The 22-year-old has agreed a four-year contract with Villa inserting a sell-on clause into the deal.`\
 https://nytimes.com/athletic/6462407/2025/06/30/aston-villa-transfers-kaine-kesler-hayden-coventry/

@@ -1,3 +1,11 @@
+**What Makes Someone Cool? A New Study Offers Clues.**\
+`Six traits can determine your ‘it’ factor, according to researchers who measured coolness around the globe.`\
+https://nytimes.com/2025/06/30/well/mind/cool-people-traits-study.html
+
+**Nonprofits Lose Legal Bid to Halt U.K. Exports of Fighter Jet Parts to Israel**\
+`A top court ruled Monday that the British government, rather than judges, should decide on the “acutely sensitive and political issue.”`\
+https://nytimes.com/2025/06/30/world/europe/uk-high-court-israel-arms-gaza.html
+
 **Villa defender Kesler-Hayden to join Coventry**\
 `The 22-year-old has agreed a four-year contract with Villa inserting a sell-on clause into the deal.`\
 https://nytimes.com/athletic/6462407/2025/06/30/aston-villa-transfers-kaine-kesler-hayden-coventry/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6461731/2025/06/30/sharks-free-agents-misa/
 **Taraji P. Henson to Make Broadway Debut in August Wilson Play**\
 `The actress will star opposite Cedric the Entertainer in a revival of “Joe Turner’s Come and Gone” next spring.`\
 https://nytimes.com/2025/06/30/theater/taraji-henson-cedric-entertainer-august-wilson-broadway.html
-
-**Brit Sonay Kartal upsets Jelena Ostapenko in Wimbledon first round**\
-`The 23-year-old provided the British crowd a first home success story of the tournament.`\
-https://nytimes.com/athletic/6462316/2025/06/30/tennis-wimbledon-sonay-kartal-ostapenko/
-
-**Brad Keselowski, as playoff hopes fade, grapples with another difficult loss**\
-`Brad Keselowski is used to dealing with tough defeats. But as this season slips away, Saturday's runner-up finish was especially brutal.`\
-https://nytimes.com/athletic/6461729/2025/06/30/brad-keselowski-nascar-atlanta-motor-speedway-loss-playoffs/
 
