@@ -1,3 +1,15 @@
+**Victim of Boulder Firebombing Attack Dies of Wounds**\
+`The death of Karen Diamond, 82, has turned the attack in Boulder, Colo., on marchers for Israeli hostages into a possible death-penalty case.`\
+https://nytimes.com/2025/06/30/us/boulder-fire-bombing-attack.html
+
+**Maple Leafs acquire Matias Maccelli from Utah Mammoth**\
+`Leafs send conditional third-round draft pick to Utah in exchange for winger.`\
+https://nytimes.com/athletic/6463087/2025/06/30/maple-leafs-trade-matias-maccelli-utah-mammoth/
+
+**New York’s Public Defenders Could Soon Strike for Higher Pay**\
+`The lawyers who represent the city’s poorest defendants want to be paid on par with their federal counterparts. They last walked out in 1994.`\
+https://nytimes.com/2025/06/30/nyregion/new-york-legal-aid-society-strike.html
+
 **New York’s Public Defenders Could Soon Strike for Higher Pay**\
 `The lawyers who represent the city’s poorest defendants want to be paid on par with their federal counterparts. They last walked out in 1994.`\
 https://nytimes.com/2025/06/30/nyregion/new-yorks-public-defenders-could-soon-strike-for-higher-pay.html
