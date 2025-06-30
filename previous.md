@@ -1,3 +1,7 @@
+**Leeds close to signing Bornauw from Wolfsburg**\
+`The centre-back would become Leeds' third summer arrival after deals for Jaka Bijol and Lukas Nmecha.`\
+https://nytimes.com/athletic/6462168/2025/06/30/sebastiaan-bornauw-leeds-transfer/
+
 **Villa agree deal to sell women's team to owner V Sports**\
 `The Athletic reported last week that Villa were exploring the option of selling their women’s team to help with PSR.`\
 https://nytimes.com/athletic/6462218/2025/06/30/aston-villa-women-psr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461612/2025/06/30/matt-freese-usmnt-gold-cup-costa
 **The Flyers are pivoting on the rebuild. How aggressive might they be this week?**\
 `After making 12 picks in the first two rounds over the last three drafts, the Flyers seem to be focusing on on-ice improvement.`\
 https://nytimes.com/athletic/6461184/2025/06/30/flyers-nhl-draft-free-agency-briere-rebuild/
-
-**Canadiens offseason notebook: The Dobson domino, his numbers and what’s next**\
-`Dobson's arrival creates a bit of a logjam on the Canadiens' blue line that we might see alleviated in the coming days.`\
-https://nytimes.com/athletic/6461902/2025/06/30/canadiens-dobson-matheson-hutson-contracts/
 
