@@ -1,3 +1,15 @@
+**Ty Jerome, Grizzlies agree to 3-year, $28 million contract: Sources**\
+`A Sixth Man of the Year candidate in 2024-25, Jerome gives the Grizzlies an instant-offense option off their bench.`\
+https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
+
+**Wimbledon day 1 recap: Hottest opening day brings upset fever as Alcaraz escapes defeat**\
+`This is The Athletic's Grand Slam Briefing, a newsletter with daily updates from Wimbledon.`\
+https://nytimes.com/athletic/6463749/2025/06/30/wimbledon-tennis-recap-day-one/
+
+**Juniper Fire Spreads in County East of Los Angeles**\
+`The blaze began on Monday morning and swiftly burned more than 600 acres in Riverside County, Calif., prompting evacuation order in the area, the authorities said.`\
+https://nytimes.com/video/us/100000010260113/juniper-fire-california.html
+
 **How the Brooklyn Bridge Ship Disaster Unfolded**\
 `An initial report from the National Transportation Safety Board described the moments before a Mexican Navy ship crashed into the Brooklyn Bridge.`\
 https://nytimes.com/2025/06/30/nyregion/brooklyn-mexican-naval-ship-crash-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/30/us/idaho-murders-bryan-kohberger-plea.html
 **Mavericks reach agreement with D'Angelo Russell: 3 thoughts about the fit**\
 `Dallas lost backcourt star power after trading Luka Dončić and seeing Kyrie Irving go down with an ACL tear.`\
 https://nytimes.com/athletic/6463595/2025/06/30/mavericks-sign-dangelo-russell-3-thoughts-about-the-fit/
-
-**The Republicans in Congress Who Are Opting to Self-Deport From Washington**\
-`Feeling out of step with President Trump’s G.O.P., Senator Thom Tillis and Representative Don Bacon are deciding to retire.`\
-https://nytimes.com/2025/06/30/us/politics/tillis-bacon-trump-gop.html
-
-**Where things stand for Red Wings after busy Monday on free agency's eve**\
-`General Manager Steve Yzerman got some housekeeping moves done on Monday, but the market kept moving around him.`\
-https://nytimes.com/athletic/6463693/2025/06/30/detroit-red-wings-free-agency-trade-yzerman/
-
-**At Glastonbury, Left-Wing Politics Are Shocking Again**\
-`Trying to stamp out anti-Israel rhetoric only lends it the frisson of forbidden truth.`\
-https://nytimes.com/2025/06/30/opinion/glastonbury-bob-vylan-israel.html
 

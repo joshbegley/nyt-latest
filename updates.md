@@ -1,3 +1,15 @@
+**Ty Jerome, Grizzlies agree to 3-year, $28 million contract: Sources**\
+`A Sixth Man of the Year candidate in 2024-25, Jerome gives the Grizzlies an instant-offense option off their bench.`\
+https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
+
+**Wimbledon day 1 recap: Hottest opening day brings upset fever as Alcaraz escapes defeat**\
+`This is The Athletic's Grand Slam Briefing, a newsletter with daily updates from Wimbledon.`\
+https://nytimes.com/athletic/6463749/2025/06/30/wimbledon-tennis-recap-day-one/
+
+**Juniper Fire Spreads in County East of Los Angeles**\
+`The blaze began on Monday morning and swiftly burned more than 600 acres in Riverside County, Calif., prompting evacuation order in the area, the authorities said.`\
+https://nytimes.com/video/us/100000010260113/juniper-fire-california.html
+
 **How the Brooklyn Bridge Ship Disaster Unfolded**\
 `An initial report from the National Transportation Safety Board described the moments before a Mexican Navy ship crashed into the Brooklyn Bridge.`\
 https://nytimes.com/2025/06/30/nyregion/brooklyn-mexican-naval-ship-crash-report.html
