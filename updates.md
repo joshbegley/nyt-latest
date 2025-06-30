@@ -1,3 +1,7 @@
+**After loss to Tigers, Twins make room for Royce Lewis by removing Jonah Bride from roster**\
+`The Twins could have used the potential right-handed thump from Lewis against a dominant Tarik Skubal in Sunday's loss to the Tigers.`\
+https://nytimes.com/athletic/6461785/2025/06/29/twins-royce-lewis-return/
+
 **Giants takeaways: Ugly week ends with ugly series loss to White Sox**\
 `Nothing beats the simple truth: The Giants couldn't score runs against the Marlins and White Sox, who scored plenty of runs against them.`\
 https://nytimes.com/athletic/6461096/2025/06/29/giants-takeaways-ugly-week-white-sox-marlins/

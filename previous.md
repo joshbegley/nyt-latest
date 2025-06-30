@@ -1,3 +1,7 @@
+**After loss to Tigers, Twins make room for Royce Lewis by removing Jonah Bride from roster**\
+`The Twins could have used the potential right-handed thump from Lewis against a dominant Tarik Skubal in Sunday's loss to the Tigers.`\
+https://nytimes.com/athletic/6461785/2025/06/29/twins-royce-lewis-return/
+
 **Giants takeaways: Ugly week ends with ugly series loss to White Sox**\
 `Nothing beats the simple truth: The Giants couldn't score runs against the Marlins and White Sox, who scored plenty of runs against them.`\
 https://nytimes.com/athletic/6461096/2025/06/29/giants-takeaways-ugly-week-white-sox-marlins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461634/2025/06/29/usmnt-costa-rica-gold-cup-quarte
 **Rockets intend to sign Jabari Smith Jr. to 5-year, $122 million extension: Sources**\
 `Smith averaged 12.2 points, 7.0 rebounds and 1.1 assists during his third season with the franchise.`\
 https://nytimes.com/athletic/6461545/2025/06/29/rockets-jabari-smith-jr-extension/
-
-**Braves takeaways: Profar's return from PED suspension, offensive malaise, Strider improving**\
-`The Braves were 7-6 after 13 NL East games in 13 days, with their place in the division and wild-card standings unchanged. `\
-https://nytimes.com/athletic/6461452/2025/06/29/braves-takeaways-profar-returning-strider-improving/
 
