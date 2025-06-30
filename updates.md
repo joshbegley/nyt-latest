@@ -1,3 +1,7 @@
+**Morgan Geekie signs 6-year contract extension with Boston Bruins: Source**\
+`Geekie scored 33 goals in a breakout year for the Bruins last season.`\
+https://nytimes.com/athletic/6461761/2025/06/29/morgan-geekie-boston-bruins-contract-extension/
+
 **Europe asserts itself as Club World Cup threatens to reinforce football's established order**\
 `Bayern and Paris Saint-Germain saw off Flamengo and Inter Miami as the bracket starts to look like a Champions League lite`\
 https://nytimes.com/athletic/6461621/2025/06/29/club-world-cup-europe/
