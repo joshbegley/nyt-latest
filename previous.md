@@ -1,3 +1,11 @@
+**Every NHL team's biggest need ahead of 2025 free agency**\
+`Before the free-agent frenzy begins on July 1, The Athletic asked its NHL staff to identify the biggest need for all 32 teams.`\
+https://nytimes.com/athletic/6459151/2025/06/30/nhl-free-agency-2025-team-needs/
+
+**TAFC: Upshot of Messi and Inter Miami's humbling, USMNT squeak through, Euro 2025 radar**\
+`Today in TAFC: The implications of PSG's 4-0 thrashing of Inter Miami. Plus: USMNT beat Costa Rica on penalties and our Euro 2025 Radar.`\
+https://nytimes.com/athletic/6462072/2025/06/30/messi-inter-miami-defeat-club-world-cup/
+
 **The Pulse: The end of LeBron James?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6461652/2025/06/30/lebron-james-retirement-lakers-luka-doncic-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/30/world/asia/taiwan-china-identity.html
 **What We Know About the Idaho Shooting**\
 `The authorities said a gunman started a wildfire to lure firefighters, then ambushed them in a sniper attack.`\
 https://nytimes.com/2025/06/30/us/idaho-shooting-firefighters-sniper-suspect.html
-
-**Caitlin Clark is worth a 'billion' to the WNBA. Why is she paid only a fraction of that?**\
-`Unpacking how and why the overwhelmingly most popular player in the league earns a fraction of her true value, and what might happen next.`\
-https://nytimes.com/athletic/6460500/2025/06/30/caitlin-clark-fever-wnba-salary/
-
-**‘Time to make a shift’: Are the Blue Jays closer to fixing their pitching development pipeline?**\
-`Since Opening Day 2023, Alek Manoah remains the only amateur signing or drafted pitcher to make a start for the Blue Jays.`\
-https://nytimes.com/athletic/6458621/2025/06/30/toronto-blue-jays-pitching-development/
 

@@ -1,3 +1,11 @@
+**Every NHL team's biggest need ahead of 2025 free agency**\
+`Before the free-agent frenzy begins on July 1, The Athletic asked its NHL staff to identify the biggest need for all 32 teams.`\
+https://nytimes.com/athletic/6459151/2025/06/30/nhl-free-agency-2025-team-needs/
+
+**TAFC: Upshot of Messi and Inter Miami's humbling, USMNT squeak through, Euro 2025 radar**\
+`Today in TAFC: The implications of PSG's 4-0 thrashing of Inter Miami. Plus: USMNT beat Costa Rica on penalties and our Euro 2025 Radar.`\
+https://nytimes.com/athletic/6462072/2025/06/30/messi-inter-miami-defeat-club-world-cup/
+
 **The Pulse: The end of LeBron James?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6461652/2025/06/30/lebron-james-retirement-lakers-luka-doncic-the-pulse/
