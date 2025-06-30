@@ -1,5 +1,13 @@
+**Villa defender Kesler-Hayden to join Coventry**\
+`The 22-year-old has agreed a four-year contract with Villa inserting a sell-on clause into the deal.`\
+https://nytimes.com/athletic/6462407/2025/06/30/aston-villa-transfers-kaine-kesler-hayden-coventry/
+
+**Tracking Tropical Storm Flossie**\
+`See the likely path and wind arrival times for Flossie.`\
+https://nytimes.com/interactive/2025/06/30/world/americas/flossie-storm-tracker.html
+
 **How Jalen Green and Devin Booker can co-exist in a Suns backcourt and reversal**\
-`The Suns have emphasized size, length and defense this offseason. But next season's success likely depends upon Booker and Green.`\
+`The Suns have emphasized size, length and defense this offseason. However, next season's success likely depends upon Booker and Green.`\
 https://nytimes.com/athletic/6461116/2025/06/30/phoenix-suns-jalen-green-devin-booker-backcourt/
 
 **No Corrections: June 30, 2025**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6462316/2025/06/30/tennis-wimbledon-sonay-kartal-os
 **Brad Keselowski, as playoff hopes fade, grapples with another difficult loss**\
 `Brad Keselowski is used to dealing with tough defeats. But as this season slips away, Saturday's runner-up finish was especially brutal.`\
 https://nytimes.com/athletic/6461729/2025/06/30/brad-keselowski-nascar-atlanta-motor-speedway-loss-playoffs/
-
-**How Emma Hayes is fortifying the pathway from the under-23s to the senior USWNT squad**\
-`Hayes is determined to shrink the gaps she’s identified between age groups within the national team setup — and it seems to be working`\
-https://nytimes.com/athletic/6462064/2025/06/30/emma-hayes-uswnt-u23-pathway/
-
-**Leeds close to signing Bornauw from Wolfsburg**\
-`The centre-back would become Leeds' third summer arrival after deals for Jaka Bijol and Lukas Nmecha.`\
-https://nytimes.com/athletic/6462168/2025/06/30/sebastiaan-bornauw-leeds-transfer/
 
