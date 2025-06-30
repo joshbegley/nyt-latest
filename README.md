@@ -1,3 +1,7 @@
+**UEFA postpones decision on Crystal Palace's place in the Europa League**\
+`Crystal Palace’s hopes of playing in the Europa League next season appear to hinge on Lyon failing to overturn their relegation to Ligue 2.`\
+https://nytimes.com/athletic/6462146/2025/06/30/uefa-crystal-palace-europa-league-lyon/
+
 **Weighing the Costs of Tax Cuts, Medicaid and ‘Debt Slavery’**\
 `As the Senate prepares to vote on a key piece of the president’s domestic agenda, prominent critics, including Elon Musk, are speaking out.`\
 https://nytimes.com/2025/06/30/business/dealbook/senate-bill-tillis-murkowski-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/briefing/corporate-politics-pride-blm.html
 **Cole Palmer the left-winger? Chelsea's experiment at the Club World Cup**\
 `Enzo Maresca has tried the England star in several positions in the U.S. tournament`\
 https://nytimes.com/athletic/6460301/2025/06/30/cole-palmer-the-left-winger-chelseas-experiment-at-the-club-world-cup/
-
-**Is Georgia Tech getting good again at just the right time?**\
-`Georgia Tech was slipping into national irrelevancy as college football rapidly changed. Key is on a mission to change that.`\
-https://nytimes.com/athletic/6453148/2025/06/30/georgia-tech-football-brent-key-2025/
 

@@ -1,3 +1,15 @@
+**Weighing the Costs of Tax Cuts, Medicaid and ‘Debt Slavery’**\
+`As the Senate prepares to vote on a key piece of the president’s domestic agenda, prominent critics, including Elon Musk, are speaking out.`\
+https://nytimes.com/2025/06/30/business/dealbook/senate-bill-tillis-murkowski-musk.html
+
+**‘False Hopes’ Dashed in Norway as Thousands Mistakenly Told of Lottery Wins**\
+`A state-owned gambling company apologized after telling players they had won “erroneously high prizes.” It blamed the error on a faulty currency conversion.`\
+https://nytimes.com/2025/06/30/world/europe/norway-lottery-wins-mistake.html
+
+**From Iran-Israel Strikes to Russia’s War: How Conflicts Reshape Air Travel**\
+`Whether caused by a long war or brief skirmish, the closing of skies to air travel is having big effects on cost, convenience and safety.`\
+https://nytimes.com/2025/06/30/world/asia/iran-israel-airlines-war.html
+
 **What Michigan fans think about the Wolverines now: Our fan survey results**\
 `More than 1,000 Michigan fans weigh in on the state of the Michigan football program, raising revenue in the House era and more.`\
 https://nytimes.com/athletic/6456826/2025/06/30/michigan-wolverines-2025-fan-survey/

@@ -1,3 +1,15 @@
+**Weighing the Costs of Tax Cuts, Medicaid and ‘Debt Slavery’**\
+`As the Senate prepares to vote on a key piece of the president’s domestic agenda, prominent critics, including Elon Musk, are speaking out.`\
+https://nytimes.com/2025/06/30/business/dealbook/senate-bill-tillis-murkowski-musk.html
+
+**‘False Hopes’ Dashed in Norway as Thousands Mistakenly Told of Lottery Wins**\
+`A state-owned gambling company apologized after telling players they had won “erroneously high prizes.” It blamed the error on a faulty currency conversion.`\
+https://nytimes.com/2025/06/30/world/europe/norway-lottery-wins-mistake.html
+
+**From Iran-Israel Strikes to Russia’s War: How Conflicts Reshape Air Travel**\
+`Whether caused by a long war or brief skirmish, the closing of skies to air travel is having big effects on cost, convenience and safety.`\
+https://nytimes.com/2025/06/30/world/asia/iran-israel-airlines-war.html
+
 **What Michigan fans think about the Wolverines now: Our fan survey results**\
 `More than 1,000 Michigan fans weigh in on the state of the Michigan football program, raising revenue in the House era and more.`\
 https://nytimes.com/athletic/6456826/2025/06/30/michigan-wolverines-2025-fan-survey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6460301/2025/06/30/cole-palmer-the-left-winger-chel
 **Is Georgia Tech getting good again at just the right time?**\
 `Georgia Tech was slipping into national irrelevancy as college football rapidly changed. Key is on a mission to change that.`\
 https://nytimes.com/athletic/6453148/2025/06/30/georgia-tech-football-brent-key-2025/
-
-**Rob Manfred has a plan: tell players they've lost billions, and build their trust in him**\
-`Manfred has been speaking to teams and players across the league, taking an aggressive approach not seen in past years. `\
-https://nytimes.com/athletic/6461725/2025/06/30/mlb-commissioner-rob-manfred-mlbpa-tour-lockout/
-
-**WNBA power rankings: Could Angel Reese's hot streak boost Chicago Sky?**\
-`What's the key to the Mystics' fourth quarters? Sabreena Merchant dives into the league. `\
-https://nytimes.com/athletic/6461854/2025/06/30/wnba-power-rankings-angel-reese-chicago-sky/
-
-**Greenberg: As free agency commences, Bulls are in same place they always are**\
-`For the second straight summer, the Bulls have helped a contending team and not gotten enough in return. It's all part of a flawed plan.`\
-https://nytimes.com/athletic/6460950/2025/06/30/chicago-bulls-nba-free-agency-draft/
 
