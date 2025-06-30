@@ -1,3 +1,7 @@
+**F1 reveals plan for private first preseason test in 2026**\
+`There are no plans for the running to be broadcast, or for fans or the media to be allowed to attend.`\
+https://nytimes.com/athletic/6462110/2025/06/30/f1-preseason-testing-closed/
+
 **Taiwan’s President Takes on China, and His Opponents, in Speaking Tour**\
 `Lai Ching-te is ramping up his warnings about China’s threat to Taiwan. Critics say he is stoking divisions, and risking blowback from Beijing.`\
 https://nytimes.com/2025/06/30/world/asia/taiwan-china-identity.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461328/2025/06/30/aaron-judge-swing-rate-yankees/
 **The New Cost of Trump’s Bill, and Gen Z’s Retirement Plan**\
 `Plus, the tricky science behind lime green Jell-O.`\
 https://nytimes.com/2025/06/30/podcasts/the-headlines/trump-bill-gen-z-retirement-jello.html
-
-**Wordle Review No. 1,473**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
-https://nytimes.com/2025/06/30/crosswords/wordle-review-1473.html
 
