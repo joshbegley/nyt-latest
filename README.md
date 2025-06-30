@@ -1,4 +1,8 @@
-**A's Luis Severino: 'I'm not the only one' who feels uncomfortable playing at Sacramento**\
+**Aldrich Potgieter wins Rocket Classic in first career PGA Tour victory**\
+`Potgieter carried a two-shot lead into the final round but bogeyed two of his first five holes to allow the pack to catch up.`\
+https://nytimes.com/athletic/6461514/2025/06/29/aldrich-potgieter-rocket-classic-first-pga-win/
+
+**Luis Severino doesn’t care if A’s 'get mad' about him bashing Sacramento stadium**\
 `Severino didn't back off his comments about the minor-league park: “If you ask me how I feel pitching at home, I’m not going to lie to you."`\
 https://nytimes.com/athletic/6461423/2025/06/29/luis-severino-athletics-sacramento-ballpark-trade-rumors/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6460580/2025/06/29/lionel-messi-club-world-cup-fifa
 **USWNT handles Ireland, 4-0, as Emma Hayes continues to rotate in new faces**\
 `Hayes started a completely new lineup from Thursday's win, but the result was the same: a 4-0 victory.`\
 https://nytimes.com/athletic/6460973/2025/06/29/uswnt-ireland-friendly-emma-hayes/
-
-**Kane arrives at the Club World Cup - but can Bayern overcome PSG?**\
-`Analysing the major talking points as Flamengo crash out of the FIFA Club World Cup in Miami`\
-https://nytimes.com/athletic/6453275/2025/06/29/bayern-munich-flamengo-harry-kane-club-world-cup/
 
