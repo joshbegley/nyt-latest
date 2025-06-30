@@ -1,3 +1,7 @@
+**Nicolas Hague signs 4-year contract after trade from Vegas to Nashville: Report**\
+`Hague will make an average of $5.5 million per season with the Predators.`\
+https://nytimes.com/athletic/6461938/2025/06/30/nicolas-hague-predators-trade-contract/
+
 **Liverpool summer mailbag: Send your questions to James Pearce now**\
 `Send in your queries about transfers, contracts, pre-season plans and anything else that's on your mind`\
 https://nytimes.com/athletic/6460446/2025/06/30/liverpool-summer-mailbag-transfers-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455799/2025/06/30/arsenal-christian-norgaard/
 **The Radar - Women's Euro 2025: The Athletic picks 25 players to watch**\
 `From the biggest names to the breakthrough talents, we profile the players our experts think you need to know about during the tournament`\
 https://nytimes.com/athletic/6437719/2025/06/30/the-radar-womens-euro-2025-players-to-watch/
-
-**Headed to Switzerland for the Women's Euros? Pack your jersey, your passion and your savings**\
-`How much will it cost to watch Euro 2025 in the world's most expensive country?`\
-https://nytimes.com/athletic/6454702/2025/06/30/headed-to-switzerland-for-the-womens-euros-pack-your-jersey-your-passion-and-your-savings/
 
