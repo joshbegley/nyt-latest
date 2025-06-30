@@ -1,3 +1,7 @@
+**Nebraska beefs up O-line with pledges from 4-star Claude Mpouma, 3-star Leon Noil**\
+`The Huskers now have 11 commitments in the Class of 2026, eight of whom were secured in June.`\
+https://nytimes.com/athletic/6463582/2025/06/30/nebraska-recruiting-claude-mpouma-leon-noil/
+
 **NHL contract grades: Term, not money, is the issue with Evan Bouchard and Oilers**\
 `Bouchard got paid, as expected, and now he is set up for another jackpot in four years.`\
 https://nytimes.com/athletic/6463671/2025/06/30/nhl-contract-grades-evan-bouchard-oilers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462954/2025/06/30/bryan-mbeumo-man-utd-transfer-la
 **Brad Marchand agrees to six-year extension with Panthers following Stanley Cup run**\
 `Marchand, 37, is coming off arguably the best postseason of his 16-year NHL career in helping lead Florida to the championship.`\
 https://nytimes.com/athletic/6450696/2025/06/30/brad-marchand-panthers-contract-nhl-free-agency-2025/
-
-**Cancer Curtailed U.K. Royal Family’s Exercise of ‘Soft Power’ Through Public Events**\
-`Members of the monarchy took part in fewer public engagements in the year leading to March, a sovereign grant report said, reflecting the illnesses of King Charles III and Catherine.`\
-https://nytimes.com/2025/06/30/world/europe/uk-royal-family-cancer-public-engagements.html
 
