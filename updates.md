@@ -1,3 +1,11 @@
+**Deadly Strike Levels Popular Seaside Cafe in Gaza**\
+`The restaurant, a destination for Palestinians seeking a respite or internet access, was reduced to a mere shell by the blast.`\
+https://nytimes.com/2025/06/30/world/middleeast/gaza-city-cafe-airstrike.html
+
+**Aaron Ekblad takes hometown discount, signs 8-year extension with Cup-champion Panthers**\
+`Ekblad was considered the top defenseman on the free-agent market before inking the contract, worth $6.1 million annually.`\
+https://nytimes.com/athletic/6463163/2025/06/30/aaron-ekblad-florida-panthers-contract-nhl-free-agency-2025/
+
 **Trump Steps Up Pressure Campaign on Powell With Handwritten Note**\
 `President Trump has repeatedly attacked Jerome H. Powell, chair of the Federal Reserve, for resisting his demands for lower interest rates.`\
 https://nytimes.com/2025/06/30/business/trump-powell-fed-handwritten-note.html
