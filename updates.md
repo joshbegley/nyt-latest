@@ -1,3 +1,7 @@
+**It's clearer than ever that the Lakers' long-term future doesn't revolve around LeBron**\
+`The tone of Sunday's messaging was such that it’s fair to wonder how the LeBron-Lakers partnership will go from here.`\
+https://nytimes.com/athletic/6461518/2025/06/29/lebron-james-contract-lakers-luka-doncic/
+
 **USMNT survives Costa Rica in PKs, avoids Gold Cup upset bug to reach semis**\
 `Unlike Canada and Panama, the U.S. won its penalty shootout and advances to a Gold Cup semifinal vs. upstart Guatemala.`\
 https://nytimes.com/athletic/6461634/2025/06/29/usmnt-costa-rica-gold-cup-quarterfinals-penalty-kicks/
