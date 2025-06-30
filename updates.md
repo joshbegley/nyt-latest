@@ -1,3 +1,7 @@
+**Roberto Baggio, the football icon footballers love: 'To entertain people... that's what I lived for'**\
+`The great Roberto Baggio didn't do it for the money or for the fame - perhaps that's why the likes of Lionel Messi love him`\
+https://nytimes.com/athletic/6456416/2025/06/30/roberto-baggio-interview-italy-world-cup-juventus-inter-milan/
+
 **The New York Times in Print for Monday, June 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/30/todays-new-york-times
