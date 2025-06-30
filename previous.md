@@ -1,3 +1,7 @@
+**What Michigan fans think about the Wolverines now: Our fan survey results**\
+`More than 1,000 Michigan fans weigh in on the state of the Michigan football program, raising revenue in the House era and more.`\
+https://nytimes.com/athletic/6456826/2025/06/30/michigan-wolverines-2025-fan-survey/
+
 **What to Know About the Dangerous Heat in Europe**\
 `Health warnings were issued to tens of millions of Europeans as temperatures climbed well above 100 degrees Fahrenheit, or more than 40 degrees Celsius.`\
 https://nytimes.com/2025/06/30/world/europe/heat-wave-europe-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461854/2025/06/30/wnba-power-rankings-angel-reese-
 **Greenberg: As free agency commences, Bulls are in same place they always are**\
 `For the second straight summer, the Bulls have helped a contending team and not gotten enough in return. It's all part of a flawed plan.`\
 https://nytimes.com/athletic/6460950/2025/06/30/chicago-bulls-nba-free-agency-draft/
-
-**The Hurricanes have everything they need to improve — but patience might also be needed**\
-`The rising salary-cap ceiling impacted what Carolina thought would be an advantage this summer.`\
-https://nytimes.com/athletic/6461860/2025/06/30/carolina-hurricanes-offseason-free-agents/
 
