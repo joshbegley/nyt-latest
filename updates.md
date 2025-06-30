@@ -1,3 +1,7 @@
+**Pochettino hails USMNT Gold Cup penalty shootout triumph as 'priceless'**\
+`The head coach thinks his squad will grow in stature after overcoming adversity against Costa Rica.`\
+https://nytimes.com/athletic/6461734/2025/06/29/mauricio-pochettino-usmnt-concacaf-gold-cup-penalty-shootout/
+
 **Morgan Geekie signs 6-year contract extension with Boston Bruins: Source**\
 `Geekie scored 33 goals in a breakout year for the Bruins last season.`\
 https://nytimes.com/athletic/6461761/2025/06/29/morgan-geekie-boston-bruins-contract-extension/
