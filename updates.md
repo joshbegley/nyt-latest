@@ -1,3 +1,13 @@
+**EA Sports announces college basketball game targeting 2028 release: Source**\
+`EA Sports last released a college basketball game in 2009.`\
+https://nytimes.com/athletic/6462741/2025/06/30/ea-sports-college-basketball-video-game-return-2028/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We finally got the realignment bombshell you&#8217;d all been waiting for: Texas State to the Pac-12.</p>
+<p>What else is on your mind this week? Leave questions here.</p>
+`\
+https://nytimes.com/athletic/6462973/2025/06/30/submit-a-question-for-stewart-mandels-college-football-mailbag-304/
+
 **How inaccurate claims by Trump were used to justify executive actions**\
 `Many executive actions reflect Mr. Trump’s messaging, in some cases closely echoing inaccurate claims that have long been a feature of his public appearances.`\
 https://nytimes.com/interactive/2025/06/30/us/trump-executive-orders-inaccurate-claims.html
