@@ -1,3 +1,7 @@
+**2 People Shot Near Stonewall Inn in Manhattan’s Greenwich Village**\
+`Few details were immediately available. The bar, an icon of the L.G.B.T.Q. rights movement, was scheduled to host a Pride event on Sunday.`\
+https://nytimes.com/2025/06/29/nyregion/stonewall-inn-pride-shooting-nyc.html
+
 **Pochettino hails USMNT Gold Cup penalty shootout triumph as 'priceless'**\
 `The head coach thinks his squad will grow in stature after overcoming adversity against Costa Rica.`\
 https://nytimes.com/athletic/6461734/2025/06/29/mauricio-pochettino-usmnt-concacaf-gold-cup-penalty-shootout/
