@@ -1,3 +1,7 @@
+**It’s About Power: The Supreme Court, the Judges and the President**\
+`Readers react to the Supreme Court decision on nationwide injunctions. Also: A resignation at the University of Virginia.`\
+https://nytimes.com/2025/06/30/opinion/supreme-court-birthright-injunctions.html
+
 **Mark Makers – Dana Nussbaum**\
 `The Moment I Threw Out the Map and Charted My Own Course`\
 https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dana-nussbaum.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6461536/2025/06/30/england-clinton-park-beever-jone
 **Max Clark, Sebastian Walcott highlight star-studded MLB Futures Game rosters**\
 `Several of the game's top 50 prospects are on the Futures Game rosters, including the top two prospects still in the minor leagues.`\
 https://nytimes.com/athletic/6454611/2025/06/30/mlb-futures-game-2025-rosters-max-clark-sebastian-walcott/
-
-**Lakers want Brook Lopez, Clint Capela, expect to lose Dorian Finney-Smith**\
-`The Lakers are interested in some of the top centers in free agency with an eye toward a top-tier long-term partner for Luka Dončić.`\
-https://nytimes.com/athletic/6462671/2025/06/30/lakers-free-agency-finney-smith-doncic/
 

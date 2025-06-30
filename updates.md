@@ -1,3 +1,7 @@
+**It’s About Power: The Supreme Court, the Judges and the President**\
+`Readers react to the Supreme Court decision on nationwide injunctions. Also: A resignation at the University of Virginia.`\
+https://nytimes.com/2025/06/30/opinion/supreme-court-birthright-injunctions.html
+
 **Mark Makers – Dana Nussbaum**\
 `The Moment I Threw Out the Map and Charted My Own Course`\
 https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dana-nussbaum.html

@@ -1,3 +1,7 @@
+**NHL free-agent big board 4.0: Expanding to the top 90 targets as big names start to fall**\
+`With the opening of free agency coming into view, we’ve refreshed the Big Board.`\
+https://nytimes.com/athletic/6462876/2025/06/30/nhl-free-agency-rankings-big-board-re-signings/
+
 **It’s About Power: The Supreme Court, the Judges and the President**\
 `Readers react to the Supreme Court decision on nationwide injunctions. Also: A resignation at the University of Virginia.`\
 https://nytimes.com/2025/06/30/opinion/supreme-court-birthright-injunctions.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6457063/2025/06/30/riley-quick-mlb-draft-stock-tomm
 **In 2022, it was Russo and Toone. Which young England players could make an impact at Euro 2025?**\
 `Wiegman's use of the substitutes' bench was key when England won the Euros – will it be the same again in Switzerland?`\
 https://nytimes.com/athletic/6461536/2025/06/30/england-clinton-park-beever-jones-agyemang/
-
-**Max Clark, Sebastian Walcott highlight star-studded MLB Futures Game rosters**\
-`Several of the game's top 50 prospects are on the Futures Game rosters, including the top two prospects still in the minor leagues.`\
-https://nytimes.com/athletic/6454611/2025/06/30/mlb-futures-game-2025-rosters-max-clark-sebastian-walcott/
 
