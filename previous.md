@@ -1,3 +1,19 @@
+**Oilers sign Bouchard to 4-year, $10.5 million AAV extension: Sources**\
+`The Oilers have a little less than $1 million in cap space with Bouchard’s contract on the books.`\
+https://nytimes.com/athletic/6463727/2025/06/30/oilers-evan-bouchard-contract-extension/
+
+**Brentford chief 'wouldn't be surprised' if Mbeumo stays, despite Man Utd interest**\
+`United's full focus is on completing a deal for Mbeumo, after they saw a bid of of £55m plus £7.5m turned down.`\
+https://nytimes.com/athletic/6462954/2025/06/30/bryan-mbeumo-man-utd-transfer-latest/
+
+**Brad Marchand agrees to six-year extension with Panthers following Stanley Cup run**\
+`Marchand, 37, is coming off arguably the best postseason of his 16-year NHL career in helping lead Florida to the championship.`\
+https://nytimes.com/athletic/6450696/2025/06/30/brad-marchand-panthers-contract-nhl-free-agency-2025/
+
+**Cancer Curtailed U.K. Royal Family’s Exercise of ‘Soft Power’ Through Public Events**\
+`Members of the monarchy took part in fewer public engagements in the year leading to March, a sovereign grant report said, reflecting the illnesses of King Charles III and Catherine.`\
+https://nytimes.com/2025/06/30/world/europe/uk-royal-family-cancer-public-engagements.html
+
 **WATCH: This is what makes Kevin Durant a perfect fit for the Rockets**\
 `The Rockets' one weakness last season was an ugly half-court offense. Here's how the acquisition of Kevin Durant solves that problem.`\
 https://nytimes.com/athletic/6463599/2025/06/30/video-kevin-durant-rockets-fit-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/30/climate/antarctic-sea-ice-salinity.html
 **Tuesday Briefing: Senate Votes on Trump’s Big Policy Bill**\
 `Plus, Hong Kong protesters are still paying.`\
 https://nytimes.com/2025/06/30/briefing/trump-megabill-china-clean-energy-el-salvador-bukele.html
-
-**Would-be Home Buyers Are Deterred by Interest Rates. Explore Your Options.**\
-`From locking in the rate to government-backed loans, there are options to buy a home.`\
-https://nytimes.com/2025/06/30/realestate/mortgage-interest-rate-loan-options.html
-
-**Senate’s New A.I. Moratorium Proposal Draws Fresh Criticism**\
-`Language in the chamber’s spending bill says that state laws related to A.I. cannot pose an “undue or disproportionate burden” to tech companies.`\
-https://nytimes.com/2025/06/30/us/politics/senates-new-ai-moratorium-proposal-draws-fresh-criticism.html
-
-**Yankees' reliever Fernando Cruz back on IL in a blow to their bullpen**\
-`Cruz leads all MLB relievers with a 41.2 K% and has averaged a career-high 14.7 strikeouts per nine innings in his first year in New York.`\
-https://nytimes.com/athletic/6463657/2025/06/30/fernando-cruz-injured-yankees-bullpen/
-
-**Math, Revealed**\
-`An exploration of the mathematics behind everyday objects.`\
-https://nytimes.com/series/math-revealed
 
