@@ -1,3 +1,7 @@
+**Dennis Schröder agrees to deal with Kings, his 10th NBA team**\
+`Well-traveled guard will give the Kings the primary ballhandler they need.`\
+https://nytimes.com/athletic/6464017/2025/06/30/dennis-schroder-kings-nba-free-agency/
+
 **NHL contract grades: Panthers spend big for Brad Marchand, but so what?**\
 `After two consecutive championships, the Panthers are keeping the group together for another run — or several.`\
 https://nytimes.com/athletic/6463734/2025/06/30/nhl-contract-grades-brad-marchand-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463955/2025/06/30/inter-martinez-calhanoglu-transf
 **Why Trump Had So Many Supreme Court Wins**\
 `The New York Times Supreme Court reporter Adam Liptak recaps this Supreme Court term, which was defined by a disproportionate amount of emergency docket cases. Liptak explains why these cases tended to go in the Trump administration’s favor.`\
 https://nytimes.com/video/us/100000010256773/why-trump-had-so-many-supreme-court-wins.html
-
-**Rockets, Dorian Finney-Smith agree to 4-year, $53 million contract: Sources**\
-`Finney-Smith is the latest indication that the Rockets are pushing their chips to center of the championship table.`\
-https://nytimes.com/athletic/6463975/2025/06/30/rockets-dorian-finney-smith-contract-agreement/
 
