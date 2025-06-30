@@ -1,3 +1,7 @@
+**NHL free-agent big board 4.0: Expanding to the top 90 targets as big names start to fall**\
+`With the opening of free agency coming into view, we’ve refreshed the Big Board.`\
+https://nytimes.com/athletic/6462876/2025/06/30/nhl-free-agency-rankings-big-board-re-signings/
+
 **It’s About Power: The Supreme Court, the Judges and the President**\
 `Readers react to the Supreme Court decision on nationwide injunctions. Also: A resignation at the University of Virginia.`\
 https://nytimes.com/2025/06/30/opinion/supreme-court-birthright-injunctions.html
