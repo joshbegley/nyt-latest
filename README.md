@@ -1,3 +1,7 @@
+**Quote of the Day: A ‘Sister Act’ With Millions of Views and a Mission**\
+`Quotation of the Day for Monday, June 30, 2025.`\
+https://nytimes.com/2025/06/29/pageoneplus/quote-of-the-day-a-sister-act-with-millions-of-views-and-a-mission.html
+
 **After loss to Tigers, Twins make room for Royce Lewis by removing Jonah Bride from roster**\
 `The Twins could have used the potential right-handed thump from Lewis against a dominant Tarik Skubal in Sunday's loss to the Tigers.`\
 https://nytimes.com/athletic/6461785/2025/06/29/twins-royce-lewis-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461518/2025/06/29/lebron-james-contract-lakers-luk
 **USMNT survives Costa Rica in PKs, avoids Gold Cup upset bug to reach semis**\
 `Unlike Canada and Panama, the U.S. won its penalty shootout and advances to a Gold Cup semifinal vs. upstart Guatemala.`\
 https://nytimes.com/athletic/6461634/2025/06/29/usmnt-costa-rica-gold-cup-quarterfinals-penalty-kicks/
-
-**Rockets intend to sign Jabari Smith Jr. to 5-year, $122 million extension: Sources**\
-`Smith averaged 12.2 points, 7.0 rebounds and 1.1 assists during his third season with the franchise.`\
-https://nytimes.com/athletic/6461545/2025/06/29/rockets-jabari-smith-jr-extension/
 
