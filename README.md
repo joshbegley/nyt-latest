@@ -1,3 +1,7 @@
+**The NHL's frantic season is here — and we've got every team's wish list**\
+`The league's free-agency bonanza is nearly upon us. Don't blink or you might miss it.`\
+https://nytimes.com/athletic/6463349/2025/06/30/red-light-newsletter-nhl-free-agency-draft/
+
 **What I'm hearing about the Warriors as NBA free agency arrives**\
 `Could free agent Al Horford be heading to Golden State?`\
 https://nytimes.com/athletic/6455296/2025/06/30/warriors-nba-free-agency-2025-jonathan-kuminga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456931/2025/06/30/bryce-harper-phillies-lineup-act
 **Satellite Imagery Shows Iran at Work at Fordo Nuclear Site**\
 `Amid competing assessments of how badly the enrichment facility was damaged in U.S. strikes, Iran appears to be making its own inspection.`\
 https://nytimes.com/2025/06/30/world/middleeast/iran-fordo-satellite-imagery.html
-
-**Wild free-agency primer and depth chart after adding Tarasenko: What centers could they pursue?**\
-`The free agency market has proved tighter than the Wild might like, but there are still holes for the team to fill starting Tuesday.`\
-https://nytimes.com/athletic/6463203/2025/06/30/wild-free-agency-primer-centers/
 
