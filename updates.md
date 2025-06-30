@@ -1,3 +1,15 @@
+**The Republicans in Congress Who Are Opting to Self-Deport From Washington**\
+`Feeling out of step with President Trump’s G.O.P., Senator Thom Tillis and Representative Don Bacon are deciding to retire.`\
+https://nytimes.com/2025/06/30/us/politics/tillis-bacon-trump-gop.html
+
+**Where things stand for Red Wings after busy Monday on free agency's eve**\
+`Resetting where things stand for Detroit after a busy day on the eve of free agency.`\
+https://nytimes.com/athletic/6463693/2025/06/30/detroit-red-wings-free-agency-trade-yzerman/
+
+**At Glastonbury, Left-Wing Politics Are Shocking Again**\
+`Trying to stamp out anti-Israel rhetoric only lends it the frisson of forbidden truth.`\
+https://nytimes.com/2025/06/30/opinion/glastonbury-bob-vylan-israel.html
+
 **What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
 ` Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
 https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
