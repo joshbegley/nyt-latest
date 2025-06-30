@@ -1,3 +1,27 @@
+**Trail Blazers' Deandre Ayton accepts contract buyout, will hit free agency**\
+`The specific nature of the buyout will be finalized after Ayton clears waivers, a league source said.`\
+https://nytimes.com/athletic/6462473/2025/06/30/deandre-ayton-contract-buyout-trail-blazers/
+
+**WNBA announces record expansion to Cleveland, Detroit and Philadelphia**\
+`The decision to grow to 18 teams will be a new record for the league, which previously peaked at 16 teams in 2002.`\
+https://nytimes.com/athletic/6462405/2025/06/30/wnba-expansion-philadelphia-cleveland-detroit/
+
+**West Ham United fan survey: Have your say ahead of the 2025-26 season**\
+`Vote in our West Ham United fan survey now`\
+https://nytimes.com/athletic/6462364/2025/06/30/west-ham-united-fan-survey-new-season/
+
+**Answering your Padres questions: Pitching problems, the trade deadline and future free agents**\
+`Dennis Lin discussed the state of Pads pitching, the trade deadline and more during a live Q&A last week. Here are the highlights. `\
+https://nytimes.com/athletic/6461243/2025/06/30/padres-questions-trade-deadline-pitching/
+
+**Conservations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/06/30/opinion/thepoint
+
+**The Windup: Mets’ slump hits alarming sweep**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6461943/2025/06/30/mets-slump-hits-alarming-sweep-plus-remembering-dave-parker/
+
 **What Makes Someone Cool? A New Study Offers Clues.**\
 `Six traits can determine your ‘it’ factor, according to researchers who measured coolness around the globe.`\
 https://nytimes.com/2025/06/30/well/mind/cool-people-traits-study.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6462407/2025/06/30/aston-villa-transfers-kaine-kesl
 **Tracking Tropical Storm Flossie**\
 `See the likely path and wind arrival times for Flossie.`\
 https://nytimes.com/interactive/2025/06/30/world/americas/flossie-storm-tracker.html
-
-**How Jalen Green and Devin Booker can co-exist in a Suns backcourt and reversal**\
-`The Suns have emphasized size, length and defense this offseason. However, next season's success likely depends upon Booker and Green.`\
-https://nytimes.com/athletic/6461116/2025/06/30/phoenix-suns-jalen-green-devin-booker-backcourt/
-
-**No Corrections: June 30, 2025**\
-`No corrections appeared in print on Monday, June 30, 2025.`\
-https://nytimes.com/2025/06/30/pageoneplus/no-corrections-june-30-2025.html
-
-**Corrections: June 29, 2025**\
-`Corrections that appeared in print on Sunday, June 29, 2025.`\
-https://nytimes.com/2025/06/30/pageoneplus/corrections-june-29-2025.html
-
-**Bucks free agency primer: After retaining Bobby Portis, what's next for Milwaukee?**\
-`It will be an interesting offseason for the Bucks as they have only six players under contract as free agency begins on Monday.`\
-https://nytimes.com/athletic/6456479/2025/06/30/bucks-free-agency-primer-bobby-portis/
-
-**'We could use a lot of things': How will the Sharks approach this offseason?**\
-`The Sharks have plentiful salary-cap space, but don't count on them overspending this summer.`\
-https://nytimes.com/athletic/6461731/2025/06/30/sharks-free-agents-misa/
-
-**Taraji P. Henson to Make Broadway Debut in August Wilson Play**\
-`The actress will star opposite Cedric the Entertainer in a revival of “Joe Turner’s Come and Gone” next spring.`\
-https://nytimes.com/2025/06/30/theater/taraji-henson-cedric-entertainer-august-wilson-broadway.html
 
