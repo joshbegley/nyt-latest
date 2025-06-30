@@ -1,9 +1,13 @@
+**Listen: The Athletic Hockey Show's top NHL Draft picks from Day 2**\
+`The Athletic Hockey Show discusses the Day 2 picks that stood out most to them from the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6462105/2025/06/30/athletic-hockey-show-nhl-draft-2025-day-2/
+
 **Senate Republicans Try to Find Votes for Trump’s ‘Big Bill’**\
-`On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would be killed.`\
+`On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would fail to pass.`\
 https://nytimes.com/video/us/politics/100000010259952/big-beautiful-bill-senate-vote.html
 
 **Should Leafs fans view Mitch Marner as a hero or villain? A debate with myself**\
-`Mitch Marner leaves behind a complicated legacy in Toronto after a sign-and-trade to Vegas on Monday.`\
+`Marner leaves behind a complicated legacy in Toronto after a sign-and-trade to Vegas on Monday.`\
 https://nytimes.com/athletic/6463787/2025/06/30/mitch-marner-maple-leafs-fan-debate/
 
 **NHL contract grades: Mitch Marner gets a fresh start and Golden Knights add a superstar**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/us/politics/appeals-court-trump-alien-enemies-act
 **The Dollar Has Its Worst Start to a Year Since 1973**\
 `It has continued to slide even as President Trump has backed down from his tariff threats and the U.S. stock market has recovered from its losses.`\
 https://nytimes.com/2025/06/30/business/dollar-decline-trump.html
-
-**Nebraska beefs up O-line with pledges from 4-star Claude Mpouma, 3-star Leon Noil**\
-`The Huskers now have 11 commitments in the Class of 2026, eight of whom were secured in June.`\
-https://nytimes.com/athletic/6463582/2025/06/30/nebraska-recruiting-claude-mpouma-leon-noil/
 

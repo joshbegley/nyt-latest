@@ -1,3 +1,7 @@
+**Trump Urges Powell to Cut Interest Rates ‘By a Lot’ in Penned Note**\
+`Jerome H. Powell, chair of the Federal Reserve, has been at odds with President Donald Trump’s stance on lowering interest rates.`\
+https://nytimes.com/video/us/politics/100000010259913/trump-powell-fed-handwritten-note.html
+
 **Listen: The Athletic Hockey Show's top NHL Draft picks from Day 2**\
 `The Athletic Hockey Show discusses the Day 2 picks that stood out most to them from the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6462105/2025/06/30/athletic-hockey-show-nhl-draft-2025-day-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463402/2025/06/30/fever-lynx-caitlin-clark-injury-
 **Appeals Court Weighs Trump’s Use of Alien Enemies Act for Deportations**\
 `The case is likely to be the first to reach the Supreme Court on the substantive issue of the president’s invocation of a rarely used wartime law.`\
 https://nytimes.com/2025/06/30/us/politics/appeals-court-trump-alien-enemies-act-deportations.html
-
-**The Dollar Has Its Worst Start to a Year Since 1973**\
-`It has continued to slide even as President Trump has backed down from his tariff threats and the U.S. stock market has recovered from its losses.`\
-https://nytimes.com/2025/06/30/business/dollar-decline-trump.html
 

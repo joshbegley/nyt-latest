@@ -1,3 +1,15 @@
+**Listen: The Athletic Hockey Show's top NHL Draft picks from Day 2**\
+`The Athletic Hockey Show discusses the Day 2 picks that stood out most to them from the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6462105/2025/06/30/athletic-hockey-show-nhl-draft-2025-day-2/
+
+**Senate Republicans Try to Find Votes for Trump’s ‘Big Bill’**\
+`On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would fail to pass.`\
+https://nytimes.com/video/us/politics/100000010259952/big-beautiful-bill-senate-vote.html
+
+**Should Leafs fans view Mitch Marner as a hero or villain? A debate with myself**\
+`Marner leaves behind a complicated legacy in Toronto after a sign-and-trade to Vegas on Monday.`\
+https://nytimes.com/athletic/6463787/2025/06/30/mitch-marner-maple-leafs-fan-debate/
+
 **Senate Republicans Try to Find Votes for Trump’s ‘Big Bill’**\
 `On Monday, Senate Republicans voted on several proposed amendments to the measure in an attempt to gain the support of at least a half-dozen Republicans that remained undecided. If just four Republicans voted against Trump’s controversial domestic policy plan, the bill would be killed.`\
 https://nytimes.com/video/us/politics/100000010259952/big-beautiful-bill-senate-vote.html
