@@ -7,7 +7,7 @@ https://nytimes.com/2025/06/30/us/politics/trump-syria-sanctions.html
 https://nytimes.com/athletic/6463564/2025/06/30/mitch-marner-maple-leafs-golden-knights-sign-trade/
 
 **The Briefing – Inter 0 Fluminense 2: Cano and Hercules send second Brazilian side through to Club World Cup quarter-finals**\
-`Analysis of Monday's Round of 16 clash in Charlotte `\
+`Analysis of Monday's last-16 clash in Charlotte `\
 https://nytimes.com/athletic/6462535/2025/06/30/inter-fluminense-club-world-cup-analysis/
 
 **Near Antarctica, Saltier Seas Mean Less Ice, Study Finds**\
