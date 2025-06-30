@@ -1,3 +1,19 @@
+**Inside the Roosevelt, a Migrant Shelter No More, Echoes of a Crisis**\
+`The Midtown Manhattan hotel opened as a shelter in 2023. That mission has ended as border crossings plummet, slowing the flow of migrants.`\
+https://nytimes.com/2025/06/30/nyregion/roosevelt-hotel-migrant-shelter-closed.html
+
+**The Kodak Brand Gets a Second Life**\
+`The company’s name has become synonymous with a failure to adapt to the digital revolution. But overseas, its logo has become an unlikely retro fashion statement.`\
+https://nytimes.com/2025/06/30/nyregion/the-kodak-brand-gets-a-second-life.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/30/crosswords/spelling-bee-forum.html
+
+**At 91, an Idiosyncratic Judge Prepares for His Latest Big Case**\
+`Judge Frederic Block will oversee the prosecution of Rafael Caro Quintero, a Mexican drug lord, which could bend in the death penalty. In the meantime, there’s stand-up comedy to keep him busy.`\
+https://nytimes.com/2025/06/30/nyregion/judge-frederic-block-caro-quintero.html
+
 **Pep Guardiola's Manchester City: The first steps of a rejuvenation**\
 `Not long after his toughest season at City, Guardiola appears revitalised already, with his team showing off a host of new tricks `\
 https://nytimes.com/athletic/6461638/2025/06/30/pep-guardiola-manchester-city-club-world-cup/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/30/arts/television/what-to-watch-on-tv-this-week.htm
 **Nicolas Hague signs 4-year contract after trade from Vegas to Nashville: Report**\
 `Hague will make an average of $5.5 million per season with the Predators.`\
 https://nytimes.com/athletic/6461938/2025/06/30/nicolas-hague-predators-trade-contract/
-
-**Liverpool summer mailbag: Send your questions to James Pearce now**\
-`Send in your queries about transfers, contracts, pre-season plans and anything else that's on your mind`\
-https://nytimes.com/athletic/6460446/2025/06/30/liverpool-summer-mailbag-transfers-contracts/
-
-**Cricket mailbag: England's bold bowling plans, Indian concerns – and transfer speculation**\
-`There has been much to ponder after the first Test of the England-India series – The Athletic answers a selection of the questions you asked`\
-https://nytimes.com/athletic/6456274/2025/06/30/england-india-cricket-mailbag/
-
-**Jack Hinshelwood's England glory is just the start - Brighton's academy is thriving**\
-`Brighton are famed for signing players from across the globe but are now starting to have success when it comes to developing local talent`\
-https://nytimes.com/athletic/6432080/2025/06/30/jack-hinshelwood-james-beadle-england-u21-brighton/
-
-**Nottingham Forest by numbers: How can they get even better after historic season?**\
-`Analysing the numbers behind Forest's 2024-25, and looking at what it might mean as they embark on a season that includes European football`\
-https://nytimes.com/athletic/6437216/2025/06/30/forest-season-analysis-scoring-defence/
 

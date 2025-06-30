@@ -1,3 +1,19 @@
+**Inside the Roosevelt, a Migrant Shelter No More, Echoes of a Crisis**\
+`The Midtown Manhattan hotel opened as a shelter in 2023. That mission has ended as border crossings plummet, slowing the flow of migrants.`\
+https://nytimes.com/2025/06/30/nyregion/roosevelt-hotel-migrant-shelter-closed.html
+
+**The Kodak Brand Gets a Second Life**\
+`The company’s name has become synonymous with a failure to adapt to the digital revolution. But overseas, its logo has become an unlikely retro fashion statement.`\
+https://nytimes.com/2025/06/30/nyregion/the-kodak-brand-gets-a-second-life.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/30/crosswords/spelling-bee-forum.html
+
+**At 91, an Idiosyncratic Judge Prepares for His Latest Big Case**\
+`Judge Frederic Block will oversee the prosecution of Rafael Caro Quintero, a Mexican drug lord, which could bend in the death penalty. In the meantime, there’s stand-up comedy to keep him busy.`\
+https://nytimes.com/2025/06/30/nyregion/judge-frederic-block-caro-quintero.html
+
 **Pep Guardiola's Manchester City: The first steps of a rejuvenation**\
 `Not long after his toughest season at City, Guardiola appears revitalised already, with his team showing off a host of new tricks `\
 https://nytimes.com/athletic/6461638/2025/06/30/pep-guardiola-manchester-city-club-world-cup/
