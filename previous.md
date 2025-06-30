@@ -1,3 +1,11 @@
+**Blackhawks in NHL free agency: Needs and fits for Chicago's rebuild**\
+`The Blackhawks could have a quiet offseason, but they do have some holes that can’t necessarily be filled from within.`\
+https://nytimes.com/athletic/6463342/2025/06/30/blackhawks-nhl-free-agency-targets/
+
+**A Canadian City Brings Fluoride Back to Its Drinking Water**\
+`Calgary removed fluoride from its water supply in 2011, but residents voted to reverse course after studies linked the move to worse dental health among children.`\
+https://nytimes.com/2025/06/30/world/canada/calgary-fluoride-water-canada.html
+
 **The NHL's frantic season is here — and we've got every team's wish list**\
 `The league's free-agency bonanza is nearly upon us. Don't blink or you might miss it.`\
 https://nytimes.com/athletic/6463349/2025/06/30/red-light-newsletter-nhl-free-agency-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6463192/2025/06/30/romanov-islanders-nhl-free-agenc
 **Suspect Identified in Deadly Ambush of Idaho Firefighters**\
 `The authorities believe that the suspect, who was found dead on Canfield Mountain, set a brush fire and shot at the firefighters who responded, killing two.`\
 https://nytimes.com/2025/06/30/us/wess-roley-idaho-shooting-suspect.html
-
-**Bryce Harper activated from IL, boosting a Phillies lineup that's missed its cornerstone**\
-`After 24 days, Harper is back. Whether he is able to play without pain for the remainder of the season is a great unknown.`\
-https://nytimes.com/athletic/6456931/2025/06/30/bryce-harper-phillies-lineup-activated-injured-list/
-
-**Satellite Imagery Shows Iran at Work at Fordo Nuclear Site**\
-`Amid competing assessments of how badly the enrichment facility was damaged in U.S. strikes, Iran appears to be making its own inspection.`\
-https://nytimes.com/2025/06/30/world/middleeast/iran-fordo-satellite-imagery.html
 

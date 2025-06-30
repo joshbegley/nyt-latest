@@ -1,3 +1,11 @@
+**Blackhawks in NHL free agency: Needs and fits for Chicago's rebuild**\
+`The Blackhawks could have a quiet offseason, but they do have some holes that can’t necessarily be filled from within.`\
+https://nytimes.com/athletic/6463342/2025/06/30/blackhawks-nhl-free-agency-targets/
+
+**A Canadian City Brings Fluoride Back to Its Drinking Water**\
+`Calgary removed fluoride from its water supply in 2011, but residents voted to reverse course after studies linked the move to worse dental health among children.`\
+https://nytimes.com/2025/06/30/world/canada/calgary-fluoride-water-canada.html
+
 **Suspect Identified in Deadly Ambush of Idaho Firefighters**\
 `The authorities believe that the suspect, who was found dead on Canfield Mountain, set a brush fire and shot at the firefighters who responded, killing two.`\
 https://nytimes.com/2025/06/30/us/wess-roley-idaho-shooting-suspect.html

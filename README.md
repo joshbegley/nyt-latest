@@ -1,3 +1,11 @@
+**MLB, ESPN renew talks to keep baseball on network: Sources**\
+`In February, ESPN opted out of the final three seasons of its $550 million contract with MLB.`\
+https://nytimes.com/athletic/6463359/2025/06/30/mlb-espn-contract-talk/
+
+**Georgia closes NIL collective as revenue sharing begins. What's new plan?**\
+`As the House settlement goes into effect Tuesday, NIL operations at some schools are shifting.`\
+https://nytimes.com/athletic/6463398/2025/06/30/georgia-nil-collective-revenue-sharing/
+
 **Blackhawks in NHL free agency: Needs and fits for Chicago's rebuild**\
 `The Blackhawks could have a quiet offseason, but they do have some holes that can’t necessarily be filled from within.`\
 https://nytimes.com/athletic/6463342/2025/06/30/blackhawks-nhl-free-agency-targets/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/30/world/asia/india-prada-sandal.html
 **Two Rescued After Going Overboard During Disney Cruise**\
 `Crew members rescued two passengers after they drifted in the sea away from the ship. Witnesses said on social media that they had seen a girl fall overboard and a man, possibly her father, go in after her.`\
 https://nytimes.com/2025/06/30/us/disney-cruise-child-overboard-rescue.html
-
-**Islanders re-sign Alexander Romanov to 8-year, $50 million extension**\
-`The new contract is worth $50 million total and carries a $6.25 million average annual value.`\
-https://nytimes.com/athletic/6463192/2025/06/30/romanov-islanders-nhl-free-agency-2025/
-
-**Suspect Identified in Deadly Ambush of Idaho Firefighters**\
-`The authorities believe that the suspect, who was found dead on Canfield Mountain, set a brush fire and shot at the firefighters who responded, killing two.`\
-https://nytimes.com/2025/06/30/us/wess-roley-idaho-shooting-suspect.html
 
