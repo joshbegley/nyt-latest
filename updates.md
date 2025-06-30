@@ -1,3 +1,11 @@
+**Former Chelsea winger Musonda announces retirement due to recurring injuries**\
+`The 28-year-old was once heralded as one of Chelsea’s most promising talents and was set to become a mainstay in the Belgium national team.`\
+https://nytimes.com/athletic/6463569/2025/06/30/chelsea-charly-musonda-retirement-injury/
+
+**Two Disney Cruise Passengers Rescued After Going Overboard**\
+`The passengers, who appeared to be a man and a young child, were rescued by Disney Cruise Line crew members after they drifted away from the ship.`\
+https://nytimes.com/video/world/americas/100000010259592/disney-cruise-rescue.html
+
 **WNBA expansion timeline as the league looks to have a record 18 teams**\
 `By 2030, the league will have added six teams in five years.`\
 https://nytimes.com/athletic/6463382/2025/06/30/wnba-expansion-timeline-philadelphia-detroit-cleveland-portland-toronto/

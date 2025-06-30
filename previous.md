@@ -1,3 +1,11 @@
+**Former Chelsea winger Musonda announces retirement due to recurring injuries**\
+`The 28-year-old was once heralded as one of Chelsea’s most promising talents and was set to become a mainstay in the Belgium national team.`\
+https://nytimes.com/athletic/6463569/2025/06/30/chelsea-charly-musonda-retirement-injury/
+
+**Two Disney Cruise Passengers Rescued After Going Overboard**\
+`The passengers, who appeared to be a man and a young child, were rescued by Disney Cruise Line crew members after they drifted away from the ship.`\
+https://nytimes.com/video/world/americas/100000010259592/disney-cruise-rescue.html
+
 **WNBA expansion timeline as the league looks to have a record 18 teams**\
 `By 2030, the league will have added six teams in five years.`\
 https://nytimes.com/athletic/6463382/2025/06/30/wnba-expansion-timeline-philadelphia-detroit-cleveland-portland-toronto/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6463359/2025/06/30/mlb-espn-contract-talk/
 **Georgia closes NIL collective as revenue sharing begins. What's new plan?**\
 `As the House settlement goes into effect Tuesday, NIL operations at some schools are shifting.`\
 https://nytimes.com/athletic/6463398/2025/06/30/georgia-nil-collective-revenue-sharing/
-
-**Blackhawks in NHL free agency: Needs and fits for Chicago's rebuild**\
-`The Blackhawks could have a quiet offseason, but they do have some holes that can’t necessarily be filled from within.`\
-https://nytimes.com/athletic/6463342/2025/06/30/blackhawks-nhl-free-agency-targets/
-
-**A Canadian City Brings Fluoride Back to Its Drinking Water**\
-`Calgary removed fluoride from its water supply in 2011, but residents voted to reverse course after studies linked the move to worse dental health among children.`\
-https://nytimes.com/2025/06/30/world/canada/calgary-fluoride-water-canada.html
 
