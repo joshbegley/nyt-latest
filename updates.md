@@ -1,3 +1,19 @@
+**Is more WNBA expansion on the horizon? Our experts explain the league's growth**\
+`How will WNBA expansion impact the league? Will the schedule increase? `\
+https://nytimes.com/athletic/6463940/2025/06/30/wnba-expansion-league-growth/
+
+**NHL free agency day: Grading the biggest contracts signed this offseason**\
+`The free agent frenzy started early this year. Here's a list of the free-agent contracts we've graded so far.`\
+https://nytimes.com/athletic/6463953/2025/06/30/nhl-free-agency-grading-the-biggest-contracts-signed-this-offseason/
+
+**Deadly Airstrike Kills Dozens at Gaza Cafe**\
+`Footage captured the aftermath of the strike, showing the cafe awash in the blood of the dead and the wounded. Tables and seating were smashed and strewn about from the blast.`\
+https://nytimes.com/video/world/middleeast/100000010260001/israel-strike-gaza-cafe.html
+
+**Jaren Jackson Jr., Grizzlies finalizing 5-year, $240M extension: Source**\
+`Jackson is coming off arguably his best statistical season as a pro. The deal will include a player option for 2029-30.`\
+https://nytimes.com/athletic/6463948/2025/06/30/jaren-jackson-jr-grizzlies-agree-to-5-year-240-million-max-extension/
+
 **Juniper Fire in California Prompts Evacuation Order**\
 `The wildfire, in Riverside County, east of Los Angeles, burned more than 600 acres in just a few hours on Monday. About 5,000 people were ordered to leave their homes.`\
 https://nytimes.com/2025/06/30/us/juniper-fire-riverside-county.html
