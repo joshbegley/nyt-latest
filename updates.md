@@ -1,3 +1,11 @@
+**A's Luis Severino: 'I'm not the only one' who feels uncomfortable playing at Sacramento**\
+`Severino didn't back off his comments about the minor-league park: “If you ask me how I feel pitching at home, I’m not going to lie to you."`\
+https://nytimes.com/athletic/6461423/2025/06/29/luis-severino-athletics-sacramento-ballpark-trade-rumors/
+
+**Championship Window**\
+`People trying to achieve their goals in that brief moment where everything is still possible.`\
+https://nytimes.com/2025/06/29/podcasts/championship-window.html
+
 **2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
 `Firefighters were responding to a fire call when the shooting erupted, a sheriff said, adding that it was not clear how many might be wounded.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
