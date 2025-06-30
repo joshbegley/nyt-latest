@@ -1,3 +1,7 @@
+**A Common Assumption About Aging May Be Wrong, Study Suggests**\
+`Experts have long pointed to inflammation as a natural part of getting older. But a new paper suggests it might be more a product of our environment.`\
+https://nytimes.com/2025/06/30/well/live/aging-inflammation-lifespan-environment.html
+
 **Watkins on Man Utd shortlist if Hojlund leaves**\
 `United are assessing the market for No 9s and it is not guaranteed one arrives if outgoings are insufficient.`\
 https://nytimes.com/athletic/6462637/2025/06/30/ollie-watkins-manchester-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462588/2025/06/30/liverpool-news-nyoni-contract/
 **Word of the Day: extemporaneous**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/30/learning/word-of-the-day-extemporaneous.html
-
-**Archer misses out as England go unchanged for second India Test**\
-`The 30-year-old missed England training on Monday due to a family emergency, though that did not have a bearing on his selection.`\
-https://nytimes.com/athletic/6462567/2025/06/30/england-india-jofra-archer-edgbaston/
 
