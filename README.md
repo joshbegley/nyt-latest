@@ -1,3 +1,7 @@
+**Astros place Jeremy Peña on injured list with rib fracture**\
+`Houston's shortstop left Friday's game in the sixth inning after Chicago Cubs starter Cade Horton hit him with a pitch in the second inning.`\
+https://nytimes.com/athletic/6462991/2025/06/30/astros-jeremy-pena-injury/
+
 **Red Wings trade Vladimir Tarasenko to Wild: What the deal means for both teams**\
 `Detroit dumps Tarasenko's salary, while Minnesota buys time.`\
 https://nytimes.com/athletic/6463060/2025/06/30/wild-vladimir-tarasenko-trade-red-wings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461486/2025/06/30/wild-free-agency-primer-centers-
 **Here Are the Republican Senators Who May Revolt on Trump’s Bill**\
 `Senate Republicans can afford to lose no more than three of their own votes on the bill, but two already are opposed and others remained undecided.`\
 https://nytimes.com/2025/06/30/us/politics/republican-senators-against-trump-big-bill.html
-
-**EA Sports announces college basketball game targeting 2028 release: Source**\
-`EA Sports last released a college basketball game in 2009.`\
-https://nytimes.com/athletic/6462741/2025/06/30/ea-sports-college-basketball-video-game-return-2028/
 

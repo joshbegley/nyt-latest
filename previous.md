@@ -1,3 +1,15 @@
+**Red Wings trade Vladimir Tarasenko to Wild: What the deal means for both teams**\
+`Detroit dumps Tarasenko's salary, while Minnesota buys time.`\
+https://nytimes.com/athletic/6463060/2025/06/30/wild-vladimir-tarasenko-trade-red-wings/
+
+**Wimbledon play interrupted after spectator receives medical assistance on Centre Court**\
+`Carlos Alcaraz was one of the first to spot the incident that occurred during the fifth set of his opening match of the tournament.`\
+https://nytimes.com/athletic/6463015/2025/06/30/tennis-wimbledon-weather-heat-centre-court-fan/
+
+**Aaron Ramsey set to join Liga MX side Pumas**\
+`Ramsey, 34, played 10 games for Cardiff last season and was named interim head coach with three matches remaining of the campaign.`\
+https://nytimes.com/athletic/6411398/2025/06/30/aaron-ramsey-mexico-pumas-transfer/
+
 **2025 Concacaf Gold Cup odds: Mexico, USMNT remain on collision course for final**\
 `Mexico retains the top spot in the odds to win the Gold Cup and it appears to be a two-horse race entering the semifinals.`\
 https://nytimes.com/athletic/6462643/2025/06/30/gold-cup-odds-mexico-usmnt-concacaf/
@@ -25,18 +37,4 @@ https://nytimes.com/2025/06/30/us/politics/republican-senators-against-trump-big
 **EA Sports announces college basketball game targeting 2028 release: Source**\
 `EA Sports last released a college basketball game in 2009.`\
 https://nytimes.com/athletic/6462741/2025/06/30/ea-sports-college-basketball-video-game-return-2028/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We finally got the realignment bombshell you&#8217;d all been waiting for: Texas State to the Pac-12.</p>
-<p>What else is on your mind this week? Leave questions here.</p>
-`\
-https://nytimes.com/athletic/6462973/2025/06/30/submit-a-question-for-stewart-mandels-college-football-mailbag-304/
-
-**How inaccurate claims by Trump were used to justify executive actions**\
-`Many executive actions reflect Mr. Trump’s messaging, in some cases closely echoing inaccurate claims that have long been a feature of his public appearances.`\
-https://nytimes.com/interactive/2025/06/30/us/trump-executive-orders-inaccurate-claims.html
-
-**Scoop City: 2025 NFC East preview**\
-`Inside: Key questions, breakout players and positions to watch in the NFC East, plus`\
-https://nytimes.com/athletic/6462853/2025/06/30/nfl-preview-2025-nfc-east-eagles-cowboys-washington-commanders-giants/
 
