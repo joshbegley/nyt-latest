@@ -1,3 +1,15 @@
+**Sheffield Wednesday on track to miss wage payments for second month in a row**\
+`The Championship club have already been hit with an EFL charge preventing them from spending money on transfers for three windows.`\
+https://nytimes.com/athletic/6462404/2025/06/30/sheffield-wednesday-wages-payments/
+
+**How Much Do You Know About Early American Literature?**\
+`Before the Independence Day fireworks this week, try this short quiz on America’s popular books published during the country’s formative years.`\
+https://nytimes.com/interactive/2025/06/30/books/review/early-american-quiz.html
+
+**WNBA announces record expansion to Cleveland, Detroit and Philadelphia**\
+`Cleveland will begin play in 2028, Detroit in 2029 and Philadelphia in 2030.`\
+https://nytimes.com/athletic/6462405/2025/06/30/wnba-expansion-philadelphia-cleveland-detroit/
+
 **Trail Blazers' Deandre Ayton accepts contract buyout, will hit free agency**\
 `The specific nature of the buyout will be finalized after Ayton clears waivers, a league source said.`\
 https://nytimes.com/athletic/6462473/2025/06/30/deandre-ayton-contract-buyout-trail-blazers/
