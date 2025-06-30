@@ -1,3 +1,27 @@
+**NHL contract grades: Term, not money, is the issue with Evan Bouchard and Oilers**\
+`Bouchard got paid, as expected, and now he is set up for another jackpot in four years.`\
+https://nytimes.com/athletic/6463671/2025/06/30/nhl-contract-grades-evan-bouchard-oilers/
+
+**Kings re-sign Andrei Kuzmenko for one year, $4.3 million**\
+`Kuzmenko enjoyed a resurgence after an in-season trade to Los Angeles.`\
+https://nytimes.com/athletic/6444464/2025/06/30/andrei-kuzmenko-kings-nhl-free-agency-2025/
+
+**Trump’s Big Policy Bill Still Faces Hurdles**\
+`Also, the Supreme Court agreed to hear a major campaign finance case. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/30/briefing/trump-senate-bill-wimbledon-first-day.html
+
+**Rookie Paige Bueckers among starters in WNBA All-Star Game**\
+`Captains Caitlin Clark, Napheesa Collier will pick their teams as rest of starters are revealed.`\
+https://nytimes.com/athletic/6463592/2025/06/30/paige-bueckers-wnba-all-star-game-starters/
+
+**ICE to require lawmakers to give a week’s notice before detention visits.**\
+`By Michael Gold`\
+https://nytimes.com/live/2025/06/30/us/trump-news/ice-detention-visits-notice
+
+**Ivan Provorov re-signing with Blue Jackets for 7 years, $59.5 million**\
+`Provorov averaged more than 23 minutes per game last season for the Blue Jackets.`\
+https://nytimes.com/athletic/6453854/2025/06/30/ivan-provorov-nhl-free-agency-contract/
+
 **Oilers sign Bouchard to 4-year, $10.5 million AAV extension: Sources**\
 `The Oilers have a little less than $1 million in cap space with Bouchard’s contract on the books.`\
 https://nytimes.com/athletic/6463727/2025/06/30/oilers-evan-bouchard-contract-extension/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6450696/2025/06/30/brad-marchand-panthers-contract-
 **Cancer Curtailed U.K. Royal Family’s Exercise of ‘Soft Power’ Through Public Events**\
 `Members of the monarchy took part in fewer public engagements in the year leading to March, a sovereign grant report said, reflecting the illnesses of King Charles III and Catherine.`\
 https://nytimes.com/2025/06/30/world/europe/uk-royal-family-cancer-public-engagements.html
-
-**WATCH: This is what makes Kevin Durant a perfect fit for the Rockets**\
-`The Rockets' one weakness last season was an ugly half-court offense. Here's how the acquisition of Kevin Durant solves that problem.`\
-https://nytimes.com/athletic/6463599/2025/06/30/video-kevin-durant-rockets-fit-2026/
-
-**Trump Lifts Sanctions on Syria, Tightening His Embrace of Its New Leader**\
-`U.S. officials said sanctions against targets such as its central bank would end, but they would remain on Syria’s former dictator, Bashar al-Assad.`\
-https://nytimes.com/2025/06/30/us/politics/trump-syria-sanctions.html
-
-**Golden Knights land Mitch Marner with 8-year extension in sign-and-trade with Maple Leafs: Sources**\
-`The deal materialized after days of speculation about a trade involving Marner’s rights and after multiple previous failed attempts.`\
-https://nytimes.com/athletic/6463564/2025/06/30/mitch-marner-maple-leafs-golden-knights-sign-trade/
-
-**The Briefing – Inter 0 Fluminense 2: Cano and Hercules send second Brazilian side through to Club World Cup quarter-finals**\
-`Analysis of Monday's last-16 clash in Charlotte `\
-https://nytimes.com/athletic/6462535/2025/06/30/inter-fluminense-club-world-cup-analysis/
-
-**Near Antarctica, Saltier Seas Mean Less Ice, Study Finds**\
-`Briny warm water is mixing on the surface of the ocean, making sea ice melt faster, a new study found.`\
-https://nytimes.com/2025/06/30/climate/antarctic-sea-ice-salinity.html
-
-**Tuesday Briefing: Senate Votes on Trump’s Big Policy Bill**\
-`Plus, Hong Kong protesters are still paying.`\
-https://nytimes.com/2025/06/30/briefing/trump-megabill-china-clean-energy-el-salvador-bukele.html
 
