@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, June 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/30/todays-new-york-times
+
+**Europe Is Making a Big Mistake**\
+`Breakneck rearmament risks taking the European Union not forward but backward.`\
+https://nytimes.com/2025/06/30/opinion/europe-nato-military-spending.html
+
+**‘Tour de France: Unchained,’ Plus 9 Things to Watch on TV this Week**\
+`Netflix airs the documentary series on the bike race and various networks release shark stories.`\
+https://nytimes.com/2025/06/30/arts/television/what-to-watch-on-tv-this-week.html
+
 **Nicolas Hague signs 4-year contract after trade from Vegas to Nashville: Report**\
 `Hague will make an average of $5.5 million per season with the Predators.`\
 https://nytimes.com/athletic/6461938/2025/06/30/nicolas-hague-predators-trade-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6458954/2025/06/30/meslier-leeds-transfer/
 **Monday Briefing**\
 `The future of Iran’s nuclear program.`\
 https://nytimes.com/2025/06/30/briefing/iran-migration-glastonbury.html
-
-**Shopping for Amorim and Man Utd: Baleba, Agoume and other options to solve a midfield muddle**\
-`Breaking down what Amorim wants from his central midfielder and identifying ideal targets for United to pursue in the transfer window`\
-https://nytimes.com/athletic/6428779/2025/06/30/manchester-united-midfield-recruitment-scouting/
-
-**Christian Norgaard to Arsenal: Could Thomas Frank's right-hand man bolster Arteta's midfield?**\
-`Norgaard's career has been intertwined with that of the new Tottenham boss - but now they could be North London rivals`\
-https://nytimes.com/athletic/6455799/2025/06/30/arsenal-christian-norgaard/
-
-**The Radar - Women's Euro 2025: The Athletic picks 25 players to watch**\
-`From the biggest names to the breakthrough talents, we profile the players our experts think you need to know about during the tournament`\
-https://nytimes.com/athletic/6437719/2025/06/30/the-radar-womens-euro-2025-players-to-watch/
 

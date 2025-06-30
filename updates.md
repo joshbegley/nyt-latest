@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, June 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/30/todays-new-york-times
+
+**Europe Is Making a Big Mistake**\
+`Breakneck rearmament risks taking the European Union not forward but backward.`\
+https://nytimes.com/2025/06/30/opinion/europe-nato-military-spending.html
+
+**‘Tour de France: Unchained,’ Plus 9 Things to Watch on TV this Week**\
+`Netflix airs the documentary series on the bike race and various networks release shark stories.`\
+https://nytimes.com/2025/06/30/arts/television/what-to-watch-on-tv-this-week.html
+
 **Nicolas Hague signs 4-year contract after trade from Vegas to Nashville: Report**\
 `Hague will make an average of $5.5 million per season with the Predators.`\
 https://nytimes.com/athletic/6461938/2025/06/30/nicolas-hague-predators-trade-contract/
