@@ -1,3 +1,11 @@
+**Brit Sonay Kartal upsets Jelena Ostapenko in Wimbledon first round**\
+`The 23-year-old provided the British crowd a first home success story of the tournament.`\
+https://nytimes.com/athletic/6462316/2025/06/30/tennis-wimbledon-sonay-kartal-ostapenko/
+
+**Brad Keselowski, as playoff hopes fade, grapples with another difficult loss**\
+`Brad Keselowski is used to dealing with tough defeats. But as this season slips away, Saturday's runner-up finish was especially brutal.`\
+https://nytimes.com/athletic/6461729/2025/06/30/brad-keselowski-nascar-atlanta-motor-speedway-loss-playoffs/
+
 **How Emma Hayes is fortifying the pathway from the under-23s to the senior USWNT squad**\
 `Hayes is determined to shrink the gaps she’s identified between age groups within the nation team setup — and it seems to be working`\
 https://nytimes.com/athletic/6462064/2025/06/30/emma-hayes-uswnt-u23-pathway/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6460770/2025/06/30/red-bull-f1-austrian-gp-max-vers
 **Breaking down the Blackhawks' plans for their restricted free agents**\
 `With seven RFAs to sort through this offseason, GM Kyle Davidson has some decisions to make.`\
 https://nytimes.com/athletic/6461443/2025/06/30/blackhawks-restricted-free-agents-2025/
-
-**Red Wings offseason target tiers: Needs, likelihood and best fits**\
-`A final look at the top targets for Detroit in free agency — plus a few more trade candidates if the UFA market dries up on July 1.`\
-https://nytimes.com/athletic/6461208/2025/06/30/red-wings-free-agent-target-tiers/
-
-**With USMNT GK role in flux, Freese stops Costa Rica cold with PK heroics**\
-`With the U.S. goalkeeping position unsettled and the team in need of a morale boost, Matt Freese stepped into the limelight`\
-https://nytimes.com/athletic/6461612/2025/06/30/matt-freese-usmnt-gold-cup-costa-rica-pochettino-turner/
 
