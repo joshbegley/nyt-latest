@@ -1,3 +1,7 @@
+**Nicolas Hague signs 4-year contract after trade from Vegas to Nashville: Report**\
+`Hague will make an average of $5.5 million per season with the Predators.`\
+https://nytimes.com/athletic/6461938/2025/06/30/nicolas-hague-predators-trade-contract/
+
 **Liverpool summer mailbag: Send your questions to James Pearce now**\
 `Send in your queries about transfers, contracts, pre-season plans and anything else that's on your mind`\
 https://nytimes.com/athletic/6460446/2025/06/30/liverpool-summer-mailbag-transfers-contracts/
