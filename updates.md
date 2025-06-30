@@ -1,3 +1,7 @@
+**Daniil Medvedev stunned in Wimbledon first round by unseeded Benjamin Bonzi**\
+`It was just Bonzi's second win against top-10 opposition, following his win over Casper Ruud en route to the Moselle Open title last year.`\
+https://nytimes.com/athletic/6462350/2025/06/30/tennis-wimbledon-medvedev-benjamin-bonzi/
+
 **Sheffield Wednesday on track to miss wage payments for second month in a row**\
 `The Championship club have already been hit with an EFL charge preventing them from spending money on transfers for three windows.`\
 https://nytimes.com/athletic/6462404/2025/06/30/sheffield-wednesday-wages-payments/
