@@ -1,3 +1,7 @@
+**The A.I. Issue**\
+``\
+https://nytimes.com/panel/live/the-ai-issue
+
 **8 Key Text Exchanges at the Sean Combs Trial**\
 `The words sent between the mogul and his girlfriends have been cited as crucial evidence by both sides in a case that turns on whether sex marathons he directed were coercive.`\
 https://nytimes.com/2025/06/30/arts/music/sean-combs-diddy-trial-jury-text-messages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/well/live/aging-inflammation-lifespan-environment
 **Watkins on Man Utd shortlist if Hojlund leaves**\
 `United are assessing the market for No 9s and it is not guaranteed one arrives if outgoings are insufficient.`\
 https://nytimes.com/athletic/6462637/2025/06/30/ollie-watkins-manchester-united-transfer/
-
-**Wild's home will have new name for first time in 2025-26: Grand Casino Arena**\
-`The Wild and the Mille Lacs Band of Ojibwe, which founded Grand Casino Mille Lacs and Hinckley, agreed to a 14-year naming-rights contract.`\
-https://nytimes.com/athletic/6461274/2025/06/30/wild-grand-casino-arena-naming-rights/
 
