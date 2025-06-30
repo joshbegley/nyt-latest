@@ -1,3 +1,15 @@
+**Lowetide: Oilers top 20 prospects ranking, summer 2025 edition**\
+`The quality of the Oilers' prospect pool has increased dramatically since last summer.`\
+https://nytimes.com/athletic/6459651/2025/06/30/oilers-prospects-ranking-summer-2025/
+
+**A New Go-To Tofu Dinner**\
+`Yewande Komolafe’s masala chickpeas with tofu and blistered tomatoes is quick, easy, economical and delicious.`\
+https://nytimes.com/2025/06/30/dining/healthy-chickpea-and-tofu-dinner-recipe.html
+
+**What I'm hearing about Penguins' free agency, NHL Draft haul and what's next**\
+`What should we expect from the Penguins entering the offseason's most frenzied day? `\
+https://nytimes.com/athletic/6462314/2025/06/30/penguins-nhl-free-agency-draft-offseason-plans/
+
 **Trump Administration Finds Harvard Violated Civil Rights Law**\
 `The university had recently restarted talks with the White House regarding a potential deal after months of fighting in court.`\
 https://nytimes.com/2025/06/30/us/politics/trump-harvard-civil-rights-law.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/30/us/politics/supreme-court-campaign-finance.html
 **Sound Familiar? Democrats Lay Groundwork for a ‘Project 2029’**\
 `The plan to write a policy agenda for the next Democratic president is at the center of a raging debate within the party: whether its biggest problem is its ideas or its difficulty in selling them.`\
 https://nytimes.com/2025/06/30/us/politics/democrats-project-2029.html
-
-**Daniil Medvedev stunned in Wimbledon first round by unseeded Benjamin Bonzi**\
-`It was just Bonzi's second win against top-10 opposition, following his win over Casper Ruud en route to the Moselle Open title last year.`\
-https://nytimes.com/athletic/6462350/2025/06/30/tennis-wimbledon-medvedev-benjamin-bonzi/
-
-**Sheffield Wednesday on track to miss wage payments for second month in a row**\
-`The Championship club have already been hit with an EFL charge preventing them from spending money on transfers for three windows.`\
-https://nytimes.com/athletic/6462404/2025/06/30/sheffield-wednesday-wages-payments/
-
-**How Much Do You Know About Early American Literature?**\
-`Before the Independence Day fireworks this week, try this short quiz on America’s popular books published during the country’s formative years.`\
-https://nytimes.com/interactive/2025/06/30/books/review/early-american-quiz.html
 
