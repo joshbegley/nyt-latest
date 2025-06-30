@@ -1,3 +1,7 @@
+**USMNT survives Costa Rica in PKs, avoids Gold Cup upset bug to reach semis**\
+`Unlike Canada and Panama, the U.S. won its penalty shootout and advances to a Gold Cup semifinal vs. upstart Guatemala.`\
+https://nytimes.com/athletic/6461634/2025/06/29/usmnt-costa-rica-gold-cup-quarterfinals-penalty-kicks/
+
 **Rockets intend to sign Jabari Smith Jr. to 5-year, $122 million extension: Sources**\
 `Smith averaged 12.2 points, 7.0 rebounds and 1.1 assists during his third season with the franchise.`\
 https://nytimes.com/athletic/6461545/2025/06/29/rockets-jabari-smith-jr-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/29/podcasts/championship-window.html
 **2 Dead as Firefighters Targeted in Shooting in Idaho, Officials Say**\
 `Firefighters were responding to a fire near Coeur D’Alene when the shooting happened, a sheriff said. It was unclear how many might be wounded.`\
 https://nytimes.com/2025/06/29/us/coeur-dalene-idaho-shooting-ambush.html
-
-**Trade grades: Can Collin Sexton help the Hornets get more creative on offense?**\
-`While Sexton isn't a straight-up lead guard, he has enough ability to give the Hornets options with and without LaMelo Ball`\
-https://nytimes.com/athletic/6461030/2025/06/29/collin-sexton-hornets-jusuf-nurkic-jazz-nba-trade/
 
