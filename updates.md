@@ -1,3 +1,7 @@
+**Astros place Jeremy Peña on injured list with rib fracture**\
+`Houston's shortstop left Friday's game in the sixth inning after Chicago Cubs starter Cade Horton hit him with a pitch in the second inning.`\
+https://nytimes.com/athletic/6462991/2025/06/30/astros-jeremy-pena-injury/
+
 **Red Wings trade Vladimir Tarasenko to Wild: What the deal means for both teams**\
 `Detroit dumps Tarasenko's salary, while Minnesota buys time.`\
 https://nytimes.com/athletic/6463060/2025/06/30/wild-vladimir-tarasenko-trade-red-wings/
