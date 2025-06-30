@@ -1,3 +1,7 @@
+**2025 Concacaf Gold Cup odds: Mexico, USMNT remain on collision course for final**\
+`Mexico retains the top spot in the odds to win the Gold Cup and it appears to be a two-horse race entering the semifinals.`\
+https://nytimes.com/athletic/6462643/2025/06/30/gold-cup-odds-mexico-usmnt-concacaf/
+
 **Europeans Struggle to Stay Cool Amid an Extreme Heatwave**\
 `Spain, France, Portugal, Greece and Italy have experienced severe conditions over the weekend. The heatwave is expected to persist into the middle of the week.`\
 https://nytimes.com/video/world/europe/100000010258486/europe-spain-portugal-france-heatwave.html
@@ -35,8 +39,4 @@ https://nytimes.com/interactive/2025/06/30/us/trump-executive-orders-inaccurate-
 **Scoop City: 2025 NFC East preview**\
 `Inside: Key questions, breakout players and positions to watch in the NFC East, plus`\
 https://nytimes.com/athletic/6462853/2025/06/30/nfl-preview-2025-nfc-east-eagles-cowboys-washington-commanders-giants/
-
-**NHL free-agent big board 4.0: Expanding the list of top targets as big names fall**\
-`With the opening of free agency coming into view, we’ve refreshed the Big Board.`\
-https://nytimes.com/athletic/6462876/2025/06/30/nhl-free-agency-rankings-big-board-re-signings/
 
