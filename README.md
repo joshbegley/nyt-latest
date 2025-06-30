@@ -1,3 +1,7 @@
+**Trump Steps Up Pressure Campaign on Powell With Handwritten Note**\
+`President Trump has repeatedly attacked Jerome H. Powell, chair of the Federal Reserve, for resisting his demands for lower interest rates.`\
+https://nytimes.com/2025/06/30/business/trump-powell-fed-handwritten-note.html
+
 **Dangerous Heat Grips Much of Europe, With More to Come**\
 `A punishing heat wave broke records in southern Europe and hasn’t peaked yet in some places, prompting warnings to residents, employers and tourists to alter their habits.`\
 https://nytimes.com/2025/06/30/world/europe/europe-heat-wave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/arts/music/lorde-virgin-review.html
 **Panel Will Vote on Rent Increases, a Key Issue for Mamdani and Adams**\
 `As Mayor Eric Adams blasts Zohran Mamdani’s pledge to freeze the rent, a panel he appointed will decide Monday if tenants will soon have to pay more.`\
 https://nytimes.com/2025/06/30/nyregion/nyc-rent-increase-vote.html
-
-**The Prada Sandal That Led to Cries of Cultural Theft in India**\
-`An uproar over a shoe that resembles leather footwear worn by many Indians shows a growing sense that the country should be recognized for its products that collect fame internationally.`\
-https://nytimes.com/2025/06/30/world/asia/india-prada-sandal.html
 
