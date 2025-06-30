@@ -1,3 +1,15 @@
+**Taiwan’s President Takes on China, and His Opponents, in Speaking Tour**\
+`Lai Ching-te is ramping up his warnings about China’s threat to Taiwan. Critics say he is stoking divisions, and risking blowback from Beijing.`\
+https://nytimes.com/2025/06/30/world/asia/taiwan-china-identity.html
+
+**What We Know About the Idaho Shooting**\
+`The authorities said a gunman started a wildfire to lure firefighters, then ambushed them in a sniper attack.`\
+https://nytimes.com/2025/06/30/us/idaho-shooting-firefighters-sniper-suspect.html
+
+**Caitlin Clark is worth a 'billion' to the WNBA. Why is she paid only a fraction of that?**\
+`Unpacking how and why the overwhelmingly most popular player in the league earns a fraction of her true value, and what might happen next.`\
+https://nytimes.com/athletic/6460500/2025/06/30/caitlin-clark-fever-wnba-salary/
+
 **‘Time to make a shift’: Are the Blue Jays closer to fixing their pitching development pipeline?**\
 `Since Opening Day 2023, Alek Manoah remains the only amateur signing or drafted pitcher to make a start for the Blue Jays.`\
 https://nytimes.com/athletic/6458621/2025/06/30/toronto-blue-jays-pitching-development/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/30/podcasts/the-headlines/trump-bill-gen-z-retiremen
 **Wordle Review No. 1,473**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
 https://nytimes.com/2025/06/30/crosswords/wordle-review-1473.html
-
-**Connections Companion No. 751**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
-https://nytimes.com/2025/06/30/crosswords/connections-companion-751.html
-
-**Strands Sidekick No. 485**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
-https://nytimes.com/2025/06/30/crosswords/strands-sidekick-485.html
-
-**The New York Times International Edition in Print for Tuesday, July 1, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/30/todays-new-york-times-international-edition
 
