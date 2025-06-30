@@ -1,3 +1,7 @@
+**The A.I. Issue**\
+``\
+https://nytimes.com/panel/live/the-ai-issue
+
 **8 Key Text Exchanges at the Sean Combs Trial**\
 `The words sent between the mogul and his girlfriends have been cited as crucial evidence by both sides in a case that turns on whether sex marathons he directed were coercive.`\
 https://nytimes.com/2025/06/30/arts/music/sean-combs-diddy-trial-jury-text-messages.html
