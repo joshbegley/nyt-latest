@@ -1,3 +1,23 @@
+**Riley Quick's fast recovery from Tommy John has ex-football player's MLB Draft stock soaring**\
+`"An o-lineman playing baseball," Quick is one of the top college righties in the draft. He channeled his aggressiveness during his recovery.`\
+https://nytimes.com/athletic/6457063/2025/06/30/riley-quick-mlb-draft-stock-tommy-john/
+
+**In 2022, it was Russo and Toone. Which young England players could make an impact at Euro 2025?**\
+`Wiegman's use of the substitutes' bench was key when England won the Euros – will it be the same again in Switzerland?`\
+https://nytimes.com/athletic/6461536/2025/06/30/england-clinton-park-beever-jones-agyemang/
+
+**Max Clark, Sebastian Walcott highlight star-studded MLB Futures Game rosters**\
+`Several of the game's top 50 prospects are on the Futures Game rosters, including the top two prospects still in the minor leagues.`\
+https://nytimes.com/athletic/6454611/2025/06/30/mlb-futures-game-2025-rosters-max-clark-sebastian-walcott/
+
+**Lakers want Brook Lopez, Clint Capela, expect to lose Dorian Finney-Smith**\
+`The Lakers are interested in some of the top centers in free agency with an eye toward a top-tier long-term partner for Luka Dončić.`\
+https://nytimes.com/athletic/6462671/2025/06/30/lakers-free-agency-finney-smith-doncic/
+
+**Dolphins trade Jalen Ramsey, Jonnu Smith to Steelers for Minkah Fitzpatrick**\
+`The trade is the latest in Pittsburgh's offseason moves to overhaul its offense.`\
+https://nytimes.com/athletic/6288148/2025/06/30/jalen-ramsey-trade-minkah-fitzpatrick-steelers-dolphins-nfl/
+
 **The A.I. Issue**\
 ``\
 https://nytimes.com/panel/live/the-ai-issue
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6462327/2025/06/30/fantasy-baseball-the-bat-x-freem
 **Get a Taste of D.C.**\
 ` A food blogger’s tour of the nation’s capital.`\
 https://nytimes.com/paidpost/destination-dc/get-a-taste-of-dc.html
-
-**England receive send-off from Prince William ahead of Euros defence**\
-`"Women's football opportunities have changed because of what you’ve done," the Prince told the Lionesses on Monday.`\
-https://nytimes.com/athletic/6462606/2025/06/30/prince-william-england-lionesses/
-
-**Bruins depth chart: What holes are left to fill in free agency and trades after recent re-signings?**\
-`Boston has re-signed Morgan Geekie, Henri Jokiharju, Johnny Beecher and Michael DiPietro in recent days, but still has plenty of needs.`\
-https://nytimes.com/athletic/6462478/2025/06/30/bruins-depth-chart-free-agency-needs/
-
-**‘Squid Game’ Season 3 Recap: More Misery and a Surprise Cameo**\
-`The final season of the Netflix hit brought the story to a largely predictable conclusion, with one last twist at the end.`\
-https://nytimes.com/2025/06/30/arts/television/squid-game-season-3-recap.html
-
-**A Common Assumption About Aging May Be Wrong, Study Suggests**\
-`Experts have long pointed to inflammation as a natural part of getting older. But a new paper suggests it might be more a product of our environment.`\
-https://nytimes.com/2025/06/30/well/live/aging-inflammation-lifespan-environment.html
-
-**Watkins on Man Utd shortlist if Hojlund leaves**\
-`United are assessing the market for No 9s and it is not guaranteed one arrives if outgoings are insufficient.`\
-https://nytimes.com/athletic/6462637/2025/06/30/ollie-watkins-manchester-united-transfer/
 
