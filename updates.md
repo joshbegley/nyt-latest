@@ -1,3 +1,11 @@
+**How Jalen Green and Devin Booker can co-exist in a Suns backcourt and reversal**\
+`The Suns have emphasized size, length and defense this offseason. But next season's success likely depends upon Booker and Green.`\
+https://nytimes.com/athletic/6461116/2025/06/30/phoenix-suns-jalen-green-devin-booker-backcourt/
+
+**How Emma Hayes is fortifying the pathway from the under-23s to the senior USWNT squad**\
+`Hayes is determined to shrink the gaps she’s identified between age groups within the national team setup — and it seems to be working`\
+https://nytimes.com/athletic/6462064/2025/06/30/emma-hayes-uswnt-u23-pathway/
+
 **No Corrections: June 30, 2025**\
 `No corrections appeared in print on Monday, June 30, 2025.`\
 https://nytimes.com/2025/06/30/pageoneplus/no-corrections-june-30-2025.html
