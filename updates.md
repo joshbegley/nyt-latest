@@ -1,3 +1,11 @@
+**MLB, ESPN renew talks to keep baseball on network: Sources**\
+`In February, ESPN opted out of the final three seasons of its $550 million contract with MLB.`\
+https://nytimes.com/athletic/6463359/2025/06/30/mlb-espn-contract-talk/
+
+**Georgia closes NIL collective as revenue sharing begins. What's new plan?**\
+`As the House settlement goes into effect Tuesday, NIL operations at some schools are shifting.`\
+https://nytimes.com/athletic/6463398/2025/06/30/georgia-nil-collective-revenue-sharing/
+
 **Blackhawks in NHL free agency: Needs and fits for Chicago's rebuild**\
 `The Blackhawks could have a quiet offseason, but they do have some holes that can’t necessarily be filled from within.`\
 https://nytimes.com/athletic/6463342/2025/06/30/blackhawks-nhl-free-agency-targets/
