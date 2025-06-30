@@ -1,3 +1,11 @@
+**Giants takeaways: Ugly week ends with ugly series loss to White Sox**\
+`Nothing beats the simple truth: The Giants couldn't score runs against the Marlins and White Sox, who scored plenty of runs against them.`\
+https://nytimes.com/athletic/6461096/2025/06/29/giants-takeaways-ugly-week-white-sox-marlins/
+
+**Canada Will Scrap Tax That Prompted Trump to Suspend Trade Talks**\
+`The government said on Sunday night that it would cancel its tax on American technology companies, handing a victory to the Trump administration.`\
+https://nytimes.com/2025/06/29/world/canada/trump-digital-services-tax.html
+
 **2 People Shot Near Stonewall Inn in Manhattan’s Greenwich Village**\
 `Few details were immediately available. The bar, an icon of the L.G.B.T.Q. rights movement, was scheduled to host a Pride event on Sunday.`\
 https://nytimes.com/2025/06/29/nyregion/stonewall-inn-pride-shooting-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6461545/2025/06/29/rockets-jabari-smith-jr-extensio
 **Braves takeaways: Profar's return from PED suspension, offensive malaise, Strider improving**\
 `The Braves were 7-6 after 13 NL East games in 13 days, with their place in the division and wild-card standings unchanged. `\
 https://nytimes.com/athletic/6461452/2025/06/29/braves-takeaways-profar-returning-strider-improving/
-
-**How bad can it get for Mets? Everything goes wrong in sweep in Pittsburgh**\
-`The Mets have lost 13 of their last 16 games, including a three-game sweep in Pittsburgh in which they were outscored 30-4.`\
-https://nytimes.com/athletic/6461477/2025/06/29/mets-struggles-pittsburgh-sweep-takeaways/
-
-**Guardiola 'understands' Klopp's Club World Cup criticisms, raises possible 'disaster' season**\
-`“Maybe in November, December or January it will be a disaster, we are exhausted and the World Cup has destroyed us. I don’t know," he said`\
-https://nytimes.com/athletic/6461558/2025/06/29/guardiola-klopp-disaster-season/
 

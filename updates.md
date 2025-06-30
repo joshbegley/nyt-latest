@@ -1,3 +1,11 @@
+**Giants takeaways: Ugly week ends with ugly series loss to White Sox**\
+`Nothing beats the simple truth: The Giants couldn't score runs against the Marlins and White Sox, who scored plenty of runs against them.`\
+https://nytimes.com/athletic/6461096/2025/06/29/giants-takeaways-ugly-week-white-sox-marlins/
+
+**Canada Will Scrap Tax That Prompted Trump to Suspend Trade Talks**\
+`The government said on Sunday night that it would cancel its tax on American technology companies, handing a victory to the Trump administration.`\
+https://nytimes.com/2025/06/29/world/canada/trump-digital-services-tax.html
+
 **2 People Shot Near Stonewall Inn in Manhattan’s Greenwich Village**\
 `Few details were immediately available. The bar, an icon of the L.G.B.T.Q. rights movement, was scheduled to host a Pride event on Sunday.`\
 https://nytimes.com/2025/06/29/nyregion/stonewall-inn-pride-shooting-nyc.html
