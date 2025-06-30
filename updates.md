@@ -1,3 +1,15 @@
+**Lowetide: Oilers top 20 prospects ranking, summer 2025 edition**\
+`The quality of the Oilers' prospect pool has increased dramatically since last summer.`\
+https://nytimes.com/athletic/6459651/2025/06/30/oilers-prospects-ranking-summer-2025/
+
+**A New Go-To Tofu Dinner**\
+`Yewande Komolafe’s masala chickpeas with tofu and blistered tomatoes is quick, easy, economical and delicious.`\
+https://nytimes.com/2025/06/30/dining/healthy-chickpea-and-tofu-dinner-recipe.html
+
+**What I'm hearing about Penguins' free agency, NHL Draft haul and what's next**\
+`What should we expect from the Penguins entering the offseason's most frenzied day? `\
+https://nytimes.com/athletic/6462314/2025/06/30/penguins-nhl-free-agency-draft-offseason-plans/
+
 **Trump Administration Finds Harvard Violated Civil Rights Law**\
 `The university had recently restarted talks with the White House regarding a potential deal after months of fighting in court.`\
 https://nytimes.com/2025/06/30/us/politics/trump-harvard-civil-rights-law.html

@@ -1,3 +1,11 @@
+**Watkins on Man Utd shortlist if Hojlund leaves**\
+`United are assessing the market for No 9s and it is not guaranteed one arrives if outgoings are insufficient.`\
+https://nytimes.com/athletic/6462637/2025/06/30/ollie-watkins-manchester-united-transfer/
+
+**Wild's home will have new name for first time in 2025-26: Grand Casino Arena**\
+`The Wild and the Mille Lacs Band of Ojibwe, which founded Grand Casino Mille Lacs and Hinckley, agreed to a 14-year naming-rights contract.`\
+https://nytimes.com/athletic/6461274/2025/06/30/wild-grand-casino-arena-naming-rights/
+
 **Lowetide: Oilers top 20 prospects ranking, summer 2025 edition**\
 `The quality of the Oilers' prospect pool has increased dramatically since last summer.`\
 https://nytimes.com/athletic/6459651/2025/06/30/oilers-prospects-ranking-summer-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/30/learning/word-of-the-day-extemporaneous.html
 **Archer misses out as England go unchanged for second India Test**\
 `The 30-year-old missed England training on Monday due to a family emergency, though that did not have a bearing on his selection.`\
 https://nytimes.com/athletic/6462567/2025/06/30/england-india-jofra-archer-edgbaston/
-
-**Supreme Court Agrees to Hear Major Campaign Finance Challenge**\
-`The case involves a challenge to federal limits on how much political parties can spend in coordination with candidates.`\
-https://nytimes.com/2025/06/30/us/politics/supreme-court-campaign-finance.html
-
-**Sound Familiar? Democrats Lay Groundwork for a ‘Project 2029’**\
-`The plan to write a policy agenda for the next Democratic president is at the center of a raging debate within the party: whether its biggest problem is its ideas or its difficulty in selling them.`\
-https://nytimes.com/2025/06/30/us/politics/democrats-project-2029.html
 
