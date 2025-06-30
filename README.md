@@ -1,3 +1,7 @@
+**Pep Guardiola's Manchester City: The first steps of a rejuvenation**\
+`Not long after his toughest season at City, Guardiola appears revitalised already, with his team showing off a host of new tricks `\
+https://nytimes.com/athletic/6461638/2025/06/30/pep-guardiola-manchester-city-club-world-cup/
+
 **Roberto Baggio, the football icon footballers love: 'To entertain people... that's what I lived for'**\
 `The great Roberto Baggio didn't do it for the money or for the fame - perhaps that's why the likes of Lionel Messi love him`\
 https://nytimes.com/athletic/6456416/2025/06/30/roberto-baggio-interview-italy-world-cup-juventus-inter-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6432080/2025/06/30/jack-hinshelwood-james-beadle-en
 **Nottingham Forest by numbers: How can they get even better after historic season?**\
 `Analysing the numbers behind Forest's 2024-25, and looking at what it might mean as they embark on a season that includes European football`\
 https://nytimes.com/athletic/6437216/2025/06/30/forest-season-analysis-scoring-defence/
-
-**The Illan Meslier debate: Is this the window for Leeds to cash in?**\
-`Rumours of interest from Turkey have brought an old debate back into sharp focus...`\
-https://nytimes.com/athletic/6458954/2025/06/30/meslier-leeds-transfer/
 
