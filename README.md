@@ -1,3 +1,15 @@
+**The Republicans in Congress Who Are Opting to Self-Deport From Washington**\
+`Feeling out of step with President Trump’s G.O.P., Senator Thom Tillis and Representative Don Bacon are deciding to retire.`\
+https://nytimes.com/2025/06/30/us/politics/tillis-bacon-trump-gop.html
+
+**Where things stand for Red Wings after busy Monday on free agency's eve**\
+`Resetting where things stand for Detroit after a busy day on the eve of free agency.`\
+https://nytimes.com/athletic/6463693/2025/06/30/detroit-red-wings-free-agency-trade-yzerman/
+
+**At Glastonbury, Left-Wing Politics Are Shocking Again**\
+`Trying to stamp out anti-Israel rhetoric only lends it the frisson of forbidden truth.`\
+https://nytimes.com/2025/06/30/opinion/glastonbury-bob-vylan-israel.html
+
 **What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
 ` Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
 https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6463940/2025/06/30/wnba-expansion-league-growth/
 **NHL free agency day: Grading the biggest contracts signed this offseason**\
 `The free agent frenzy started early this year. Here's a list of the free-agent contracts we've graded so far.`\
 https://nytimes.com/athletic/6463953/2025/06/30/nhl-free-agency-grading-the-biggest-contracts-signed-this-offseason/
-
-**Deadly Airstrike Kills Dozens at Gaza Cafe**\
-`Footage captured the aftermath of the strike, showing the cafe awash in the blood of the dead and the wounded. Tables and seating were smashed and strewn about from the blast.`\
-https://nytimes.com/video/world/middleeast/100000010260001/israel-strike-gaza-cafe.html
-
-**Juniper Fire in California Prompts Evacuation Order**\
-`The wildfire, in Riverside County, east of Los Angeles, burned more than 600 acres in just a few hours on Monday. About 5,000 people were ordered to leave their homes.`\
-https://nytimes.com/2025/06/30/us/juniper-fire-riverside-county.html
-
-**Senators depth chart: Where can Ottawa plug holes after re-signing Giroux?**\
-`The Sens are expected to stick to small changes to their depth chart, and if a trade makes sense, maybe they go down that road too.`\
-https://nytimes.com/athletic/6462738/2025/06/30/senators-offseason-depth-chart/
 
