@@ -1,3 +1,15 @@
+**Liverpool summer mailbag: Send your questions to James Pearce now**\
+`Send in your queries about transfers, contracts, pre-season plans and anything else that's on your mind`\
+https://nytimes.com/athletic/6460446/2025/06/30/liverpool-summer-mailbag-transfers-contracts/
+
+**Cricket mailbag: England's bold bowling plans, Indian concerns – and transfer speculation**\
+`There has been much to ponder after the first Test of the England-India series – The Athletic answers a selection of the questions you asked`\
+https://nytimes.com/athletic/6456274/2025/06/30/england-india-cricket-mailbag/
+
+**Nottingham Forest by numbers: How can they get even better after historic season?**\
+`Analysing the numbers behind Forest's 2024-25, and looking at what it might mean as they embark on a season that includes European football`\
+https://nytimes.com/athletic/6437216/2025/06/30/forest-season-analysis-scoring-defence/
+
 **Jack Hinshelwood's England glory is just the start - Brighton's academy is thriving**\
 `Brighton are famed for signing players from across the globe but are now starting to have success when it comes to developing local talent`\
 https://nytimes.com/athletic/6432080/2025/06/30/jack-hinshelwood-james-beadle-england-u21-brighton/
