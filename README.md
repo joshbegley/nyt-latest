@@ -1,40 +1,40 @@
-**Earps: ‘I was villainised’ after England retirement**\
-`Earps announced her retirement from international competition in May, just over a month before Euro 2025.`\
-https://nytimes.com/athletic/6462045/2025/06/30/mary-earps-england-retirment-reaction/
+**Why Is Trump Returning MS-13 Leaders to El Salvador? 5 Takeaways From the Times Investigation.**\
+`The agreement with Nayib Bukele, the president of El Salvador, is undermining a long-running federal investigation into the gang, according to people familiar with the inquiry.`\
+https://nytimes.com/2025/06/30/us/politics/takeaways-trump-bukele-ms-13.html
 
-**How to play tennis on grass at Wimbledon – by not practicing on grass at all**\
-`The shortest season in tennis demands very specific skills. This is how players acquire them in quick time.`\
-https://nytimes.com/athletic/6430370/2025/06/30/tennis-grass-how-to-play-wimbledon-strategy/
+**The (Gaudy) Tie That Binds Trump and Bezos**\
+`They’re champion exhibitionists in a culture made for that.`\
+https://nytimes.com/2025/06/30/opinion/trump-bezos-sanchez-iran.html
 
-**Firefighters Killed in Sniper Ambush in Idaho**\
-`The attack happened in the Canfield Mountain area. Voices could be heard pleading for help in recordings of radio channels used by first responders.`\
-https://nytimes.com/video/us/100000010258269/idaho-shooting-sniper-firefighter.html
+**Are You Applying for Tech Jobs or Tech Internships? We Want to Hear About It.**\
+`Companies using A.I. tools to automate tasks like coding are changing job prospects for recent grads and college students. Tell us about your experiences.`\
+https://nytimes.com/2025/06/30/business/computer-science-grads-tech-jobs.html
 
-**Inside the Roosevelt, a Migrant Shelter No More, Echoes of a Crisis**\
-`The Midtown Manhattan hotel opened as a shelter in 2023. That mission has ended as border crossings plummet, slowing the flow of migrants.`\
-https://nytimes.com/2025/06/30/nyregion/roosevelt-hotel-migrant-shelter-closed.html
+**What the University of Virginia Should Have Done**\
+`The university should have stood up to the Justice Department.`\
+https://nytimes.com/2025/06/30/opinion/university-of-virginia-doj-trump.html
 
-**The Kodak Brand Gets a Second Life**\
-`The company’s name has become synonymous with a failure to adapt to the digital revolution. But overseas, its logo has become an unlikely retro fashion statement.`\
-https://nytimes.com/2025/06/30/nyregion/the-kodak-brand-gets-a-second-life.html
+**Why Food Banks Are Worried Now**\
+`President Trump’s cuts could hurt food programs at a time when demand for them has skyrocketed.`\
+https://nytimes.com/2025/06/30/nyregion/why-food-banks-are-worried-now.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/30/crosswords/spelling-bee-forum.html
+**Months Into Sean Combs’s Trial, Jurors Are Ready to Deliberate**\
+`The panel of 12 will be asked to decided whether the music mogul is guilty of racketeering conspiracy and sex trafficking.`\
+https://nytimes.com/2025/06/30/arts/music/sean-combs-diddy-trial-jury-deliberations.html
 
-**At 91, an Idiosyncratic Judge Prepares for His Latest Big Case**\
-`Judge Frederic Block will oversee the prosecution of Rafael Caro Quintero, a Mexican drug lord, which could bend in the death penalty. In the meantime, there’s stand-up comedy to keep him busy.`\
-https://nytimes.com/2025/06/30/nyregion/judge-frederic-block-caro-quintero.html
+**There’s a Race to Power the Future. China Is Pulling Away.**\
+`Beijing is selling clean energy to the world, Washington is pushing oil and gas. Both are driven by national security.`\
+https://nytimes.com/interactive/2025/06/30/climate/china-clean-energy-power.html
 
-**Pep Guardiola's Manchester City: The first steps of a rejuvenation**\
-`Not long after his toughest season at City, Guardiola appears revitalised already, with his team showing off a host of new tricks `\
-https://nytimes.com/athletic/6461638/2025/06/30/pep-guardiola-manchester-city-club-world-cup/
+**Why Are So Many Men Wearing Bright Blue Suits Now?**\
+`President Trump and others in his White House seem to favor suits in shades besides traditional navy. Our critic offers thoughts on why, and whether it will catch on more broadly.`\
+https://nytimes.com/2025/06/30/fashion/trump-suits-blue-bright.html
 
-**Roberto Baggio, the football icon footballers love: 'To entertain people... that's what I lived for'**\
-`The great Roberto Baggio didn't do it for the money or for the fame - perhaps that's why the likes of Lionel Messi love him`\
-https://nytimes.com/athletic/6456416/2025/06/30/roberto-baggio-interview-italy-world-cup-juventus-inter-milan/
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a look back at a city in France during the Nazi occupation, an assessment of a renowned gay politician and an exploration of press freedoms in sovereign tribal nations.`\
+https://nytimes.com/2025/06/30/movies/three-great-documentaries-to-stream.html
 
-**The New York Times in Print for Monday, June 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/30/todays-new-york-times
+**As Trade Deadline Nears, Europe Preps for a Scant Outline of a Deal**\
+`President Trump’s administration once promised 90 deals in 90 days. When it comes to the European Union, it may be more of a framework.`\
+https://nytimes.com/2025/06/30/world/europe/europe-us-trade-deal.html
 
