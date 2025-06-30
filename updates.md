@@ -1,3 +1,7 @@
+**Trump Urges Powell to Cut Interest Rates ‘By a Lot’ in Penned Note**\
+`Jerome H. Powell, chair of the Federal Reserve, has been at odds with President Donald Trump’s stance on lowering interest rates.`\
+https://nytimes.com/video/us/politics/100000010259913/trump-powell-fed-handwritten-note.html
+
 **Listen: The Athletic Hockey Show's top NHL Draft picks from Day 2**\
 `The Athletic Hockey Show discusses the Day 2 picks that stood out most to them from the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6462105/2025/06/30/athletic-hockey-show-nhl-draft-2025-day-2/
