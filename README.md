@@ -1,3 +1,7 @@
+**2 People Shot Near Stonewall Inn in Manhattan’s Greenwich Village**\
+`Few details were immediately available. The bar, an icon of the L.G.B.T.Q. rights movement, was scheduled to host a Pride event on Sunday.`\
+https://nytimes.com/2025/06/29/nyregion/stonewall-inn-pride-shooting-nyc.html
+
 **Pochettino hails USMNT Gold Cup penalty shootout triumph as 'priceless'**\
 `The head coach thinks his squad will grow in stature after overcoming adversity against Costa Rica.`\
 https://nytimes.com/athletic/6461734/2025/06/29/mauricio-pochettino-usmnt-concacaf-gold-cup-penalty-shootout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6461477/2025/06/29/mets-struggles-pittsburgh-sweep-
 **Guardiola 'understands' Klopp's Club World Cup criticisms, raises possible 'disaster' season**\
 `“Maybe in November, December or January it will be a disaster, we are exhausted and the World Cup has destroyed us. I don’t know," he said`\
 https://nytimes.com/athletic/6461558/2025/06/29/guardiola-klopp-disaster-season/
-
-**Marsch laments Canada's Gold Cup collapse, cites his reasons and to-do list**\
-`Marsch curiously claimed he was without "half" his squad while also looking in the mirror after a quarterfinal ouster`\
-https://nytimes.com/athletic/6461449/2025/06/29/jesse-marsch-canada-gold-cup-guatemala-loss/
 
