@@ -1,3 +1,15 @@
+**Mark Makers – Dana Nussbaum**\
+`The Moment I Threw Out the Map and Charted My Own Course`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dana-nussbaum.html
+
+**Mark Makers – Asmita Dubey**\
+`The Moment I Embraced Both Math and Magic`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-asmita-dubey.html
+
+**Threat of More Tariffs Hangs Over Countries Negotiating Trade Deals**\
+`As America’s largest trading partners race toward deals, they are increasingly worried about being hit with future tariffs on their critical industries.`\
+https://nytimes.com/2025/06/30/business/economy/trump-tariffs-trade-deals.html
+
 **Mark Makers – Carla Hassan**\
 `The Moment I Stopped Hiding and Began to Lead
 `\

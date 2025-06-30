@@ -1,3 +1,15 @@
+**Mark Makers – Dana Nussbaum**\
+`The Moment I Threw Out the Map and Charted My Own Course`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dana-nussbaum.html
+
+**Mark Makers – Asmita Dubey**\
+`The Moment I Embraced Both Math and Magic`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-asmita-dubey.html
+
+**Threat of More Tariffs Hangs Over Countries Negotiating Trade Deals**\
+`As America’s largest trading partners race toward deals, they are increasingly worried about being hit with future tariffs on their critical industries.`\
+https://nytimes.com/2025/06/30/business/economy/trump-tariffs-trade-deals.html
+
 **Mark Makers – Carla Hassan**\
 `The Moment I Stopped Hiding and Began to Lead
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6454611/2025/06/30/mlb-futures-game-2025-rosters-ma
 **Lakers want Brook Lopez, Clint Capela, expect to lose Dorian Finney-Smith**\
 `The Lakers are interested in some of the top centers in free agency with an eye toward a top-tier long-term partner for Luka Dončić.`\
 https://nytimes.com/athletic/6462671/2025/06/30/lakers-free-agency-finney-smith-doncic/
-
-**Dolphins trade Jalen Ramsey, Jonnu Smith to Steelers for Minkah Fitzpatrick**\
-`The trade is the latest in Pittsburgh's offseason moves to overhaul its offense.`\
-https://nytimes.com/athletic/6288148/2025/06/30/jalen-ramsey-trade-minkah-fitzpatrick-steelers-dolphins-nfl/
-
-**The A.I. Issue**\
-``\
-https://nytimes.com/panel/live/the-ai-issue
-
-**8 Key Text Exchanges at the Sean Combs Trial**\
-`The words sent between the mogul and his girlfriends have been cited as crucial evidence by both sides in a case that turns on whether sex marathons he directed were coercive.`\
-https://nytimes.com/2025/06/30/arts/music/sean-combs-diddy-trial-jury-text-messages.html
 
