@@ -1,3 +1,7 @@
+**What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
+`Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
+https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
+
 **Dennis Schröder agrees to deal with Kings, his 10th NBA team**\
 `Well-traveled guard will give the Kings the primary ballhandler they need.`\
 https://nytimes.com/athletic/6464017/2025/06/30/dennis-schroder-kings-nba-free-agency/

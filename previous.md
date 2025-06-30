@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6463693/2025/06/30/detroit-red-wings-free-agency-tr
 https://nytimes.com/2025/06/30/opinion/glastonbury-bob-vylan-israel.html
 
 **What just happened to the Maple Leafs' offseason? Trades, signings shift landscape**\
-` Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
+`Mitch Marner out. Nicolas Roy, Matias Maccelli in. Steven Lorentz stays. Pontus Holmberg in limbo. Brad Marchand in Florida. `\
 https://nytimes.com/athletic/6463934/2025/06/30/maple-leafs-free-agency-marner-roy-lorentz/
 
 **'Whoever doesn’t want to fight for Inter should leave,' says Lautaro Martinez after Club World Cup exit**\
