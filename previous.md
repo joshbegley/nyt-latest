@@ -1,3 +1,11 @@
+**What I'm hearing about the Warriors as NBA free agency arrives**\
+`Could free agent Al Horford be heading to Golden State?`\
+https://nytimes.com/athletic/6455296/2025/06/30/warriors-nba-free-agency-2025-jonathan-kuminga/
+
+**Is Lorde Finally Done With the Spotlight?**\
+`Her fourth album, “Virgin,” is her most erratic and least convincing. But the pop skeptic has a new target: herself.`\
+https://nytimes.com/2025/06/30/arts/music/lorde-virgin-review.html
+
 **Panel Will Vote on Rent Increases, a Key Issue for Mamdani and Adams**\
 `As Mayor Eric Adams blasts Zohran Mamdani’s pledge to freeze the rent, a panel he appointed will decide Monday if tenants will soon have to pay more.`\
 https://nytimes.com/2025/06/30/nyregion/nyc-rent-increase-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/30/world/middleeast/iran-fordo-satellite-imagery.htm
 **Wild free-agency primer and depth chart after adding Tarasenko: What centers could they pursue?**\
 `The free agency market has proved tighter than the Wild might like, but there are still holes for the team to fill starting Tuesday.`\
 https://nytimes.com/athletic/6463203/2025/06/30/wild-free-agency-primer-centers/
-
-**Lauren Sánchez Bezos Commits to the Corset**\
-`At her wedding to Jeff Bezos, the bride took her love of a nipped waist to the next level.`\
-https://nytimes.com/2025/06/30/style/lauren-sanchez-bezos-wedding-style.html
-
-**Villa's Barry set to complete permanent Hull City transfer**\
-`Villa have inserted a substantial sell-on clause into the fee with Barry making last season's loan move to Hull permanent.`\
-https://nytimes.com/athletic/6463236/2025/06/30/aston-villa-transfer-news-louie-barry-hull/
 
