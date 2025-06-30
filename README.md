@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/30/us/disney-cruise-child-overboard-rescue.html
 https://nytimes.com/athletic/6463192/2025/06/30/romanov-islanders-nhl-free-agency-2025/
 
 **Suspect Identified in Deadly Ambush of Idaho Firefighters**\
-`The authorities said they believed the man they found dead on Canfield Mountain had set a brush fire and then shot at firefighters who responded, killing two and wounding a third.`\
+`The authorities believe that the suspect, who was found dead on Canfield Mountain, set a brush fire and shot at the firefighters who responded, killing two.`\
 https://nytimes.com/2025/06/30/us/wess-roley-idaho-shooting-suspect.html
 
 **Bryce Harper activated from IL, boosting a Phillies lineup that's missed its cornerstone**\

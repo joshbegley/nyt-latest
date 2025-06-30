@@ -1,3 +1,7 @@
+**The NHL's frantic season is here — and we've got every team's wish list**\
+`The league's free-agency bonanza is nearly upon us. Don't blink or you might miss it.`\
+https://nytimes.com/athletic/6463349/2025/06/30/red-light-newsletter-nhl-free-agency-draft/
+
 **What I'm hearing about the Warriors as NBA free agency arrives**\
 `Could free agent Al Horford be heading to Golden State?`\
 https://nytimes.com/athletic/6455296/2025/06/30/warriors-nba-free-agency-2025-jonathan-kuminga/
