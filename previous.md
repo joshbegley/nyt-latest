@@ -1,40 +1,40 @@
-**Weighing the Costs of Tax Cuts, Medicaid and ‘Debt Slavery’**\
-`As the Senate prepares to vote on a key piece of the president’s domestic agenda, prominent critics, including Elon Musk, are speaking out.`\
-https://nytimes.com/2025/06/30/business/dealbook/senate-bill-tillis-murkowski-musk.html
+**Villa agree deal to sell women's team to owner V Sports**\
+`The Athletic reported last week that Villa were exploring the option of selling their women’s team to help with PSR.`\
+https://nytimes.com/athletic/6462218/2025/06/30/aston-villa-women-psr/
 
-**‘False Hopes’ Dashed in Norway as Thousands Mistakenly Told of Lottery Wins**\
-`A state-owned gambling company apologized after telling players they had won “erroneously high prizes.” It blamed the error on a faulty currency conversion.`\
-https://nytimes.com/2025/06/30/world/europe/norway-lottery-wins-mistake.html
+**Senate Poised to Begin Voting on Marquee Policy Bill With Support Still in Doubt**\
+`Republicans delayed a rapid-fire series of votes on the measure until Monday morning as they grasped for the support to pass President Trump’s signature legislation.`\
+https://nytimes.com/2025/06/30/us/politics/senate-tax-trump-bill.html
 
-**From Iran-Israel Strikes to Russia’s War: How Conflicts Reshape Air Travel**\
-`Whether caused by a long war or brief skirmish, the closing of skies to air travel is having big effects on cost, convenience and safety.`\
-https://nytimes.com/2025/06/30/world/asia/iran-israel-airlines-war.html
+**What I'm hearing about Pius Suter's market, Canucks' approach to free agency**\
+`There's a tricky balance that the Canucks are going to try to maintain in the days ahead.`\
+https://nytimes.com/athletic/6459583/2025/06/30/canucks-pius-suter-free-agents/
 
-**What Michigan fans think about the Wolverines now: Our fan survey results**\
-`More than 1,000 Michigan fans weigh in on the state of the Michigan football program, raising revenue in the House era and more.`\
-https://nytimes.com/athletic/6456826/2025/06/30/michigan-wolverines-2025-fan-survey/
+**Believe the hype: Matthew Knies is bound for stardom with the Leafs**\
+`The Leafs are getting something pretty special in their newly re-signed top-line power forward.`\
+https://nytimes.com/athletic/6461419/2025/06/30/matthew-knies-maple-leafs-extension-scoring-matthews/
 
-**What to Know About the Dangerous Heat in Europe**\
-`Health warnings were issued to tens of millions of Europeans as temperatures climbed well above 100 degrees Fahrenheit, or more than 40 degrees Celsius.`\
-https://nytimes.com/2025/06/30/world/europe/heat-wave-europe-what-to-know.html
+**'A horrible race': Red Bull’s Austria GP unraveling raises fresh questions**\
+`A troublesome car, a shocking Verstappen DNF and continued second-driver problems, at Red Bull answers are hard to come by `\
+https://nytimes.com/athletic/6460770/2025/06/30/red-bull-f1-austrian-gp-max-verstappen-yuki-tsunoda/
 
-**Brendan Donovan emerges as a Cardinals leader amid transition season**\
-`Donovan ranks among the Cardinals' most productive players and offers a motivational style that's helping to define the culture. `\
-https://nytimes.com/athletic/6459957/2025/06/30/cardinals-brendan-donovan-leadership/
+**Breaking down the Blackhawks' plans for their restricted free agents**\
+`With seven RFAs to sort through this offseason, GM Kyle Davidson has some decisions to make.`\
+https://nytimes.com/athletic/6461443/2025/06/30/blackhawks-restricted-free-agents-2025/
 
-**Cubs’ trade deadline checklist will include adding a hitter, too**\
-`The Cubs are casting a wide net for pitchers who might available, but they'll be aggressive and open-minded about upgrading the offense.`\
-https://nytimes.com/athletic/6461383/2025/06/30/cubs-trade-deadline-checklist/
+**Red Wings offseason target tiers: Needs, likelihood and best fits**\
+`A final look at the top targets for Detroit in free agency — plus a few more trade candidates if the UFA market dries up on July 1.`\
+https://nytimes.com/athletic/6461208/2025/06/30/red-wings-free-agent-target-tiers/
 
-**Corporate Politics**\
-`We take a look at why businesses are turning away from political causes.`\
-https://nytimes.com/2025/06/30/briefing/corporate-politics-pride-blm.html
+**With USMNT GK role in flux, Freese stops Costa Rica cold with PK heroics**\
+`With the U.S. goalkeeping position unsettled and the team in need of a morale boost, Matt Freese stepped into the limelight`\
+https://nytimes.com/athletic/6461612/2025/06/30/matt-freese-usmnt-gold-cup-costa-rica-pochettino-turner/
 
-**Cole Palmer the left-winger? Chelsea's experiment at the Club World Cup**\
-`Enzo Maresca has tried the England star in several positions in the U.S. tournament`\
-https://nytimes.com/athletic/6460301/2025/06/30/cole-palmer-the-left-winger-chelseas-experiment-at-the-club-world-cup/
+**The Flyers are pivoting on the rebuild. How aggressive might they be this week?**\
+`After making 12 picks in the first two rounds over the last three drafts, the Flyers seem to be focusing on on-ice improvement.`\
+https://nytimes.com/athletic/6461184/2025/06/30/flyers-nhl-draft-free-agency-briere-rebuild/
 
-**Is Georgia Tech getting good again at just the right time?**\
-`Georgia Tech was slipping into national irrelevancy as college football rapidly changed. Key is on a mission to change that.`\
-https://nytimes.com/athletic/6453148/2025/06/30/georgia-tech-football-brent-key-2025/
+**Canadiens offseason notebook: The Dobson domino, his numbers and what’s next**\
+`Dobson's arrival creates a bit of a logjam on the Canadiens' blue line that we might see alleviated in the coming days.`\
+https://nytimes.com/athletic/6461902/2025/06/30/canadiens-dobson-matheson-hutson-contracts/
 
