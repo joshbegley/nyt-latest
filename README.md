@@ -1,3 +1,7 @@
+**Firefighters Killed in Sniper Ambush in Idaho**\
+`The attack happened in the Canfield Mountain area. Voices could be heard pleading for help in recordings of radio channels used by first responders.`\
+https://nytimes.com/video/us/100000010258269/idaho-shooting-sniper-firefighter.html
+
 **Inside the Roosevelt, a Migrant Shelter No More, Echoes of a Crisis**\
 `The Midtown Manhattan hotel opened as a shelter in 2023. That mission has ended as border crossings plummet, slowing the flow of migrants.`\
 https://nytimes.com/2025/06/30/nyregion/roosevelt-hotel-migrant-shelter-closed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/opinion/europe-nato-military-spending.html
 **‘Tour de France: Unchained,’ Plus 9 Things to Watch on TV this Week**\
 `Netflix airs the documentary series on the bike race and various networks release shark stories.`\
 https://nytimes.com/2025/06/30/arts/television/what-to-watch-on-tv-this-week.html
-
-**Nicolas Hague signs 4-year contract after trade from Vegas to Nashville: Report**\
-`Hague will make an average of $5.5 million per season with the Predators.`\
-https://nytimes.com/athletic/6461938/2025/06/30/nicolas-hague-predators-trade-contract/
 
