@@ -1,3 +1,11 @@
+**Carolina Panthers fan survey: What are your expectations for the 2025 season?**\
+`It&#8217;s hot out there.`\
+https://nytimes.com/athletic/6463467/2025/06/30/panthers-fan-survey-questions-2025/
+
+**Gulf States Lead Push to Invest in New Syria**\
+`The fall of the Syrian dictator Bashar al-Assad has opened a window for wealthy Gulf countries to expand their influence as the sway of Iran diminishes.`\
+https://nytimes.com/2025/06/30/world/middleeast/gulf-states-invest-syria-iran.html
+
 **Former Chelsea winger Musonda announces retirement due to recurring injuries**\
 `The 28-year-old was once heralded as one of Chelsea’s most promising talents and was set to become a mainstay in the Belgium national team.`\
 https://nytimes.com/athletic/6463569/2025/06/30/chelsea-charly-musonda-retirement-injury/
