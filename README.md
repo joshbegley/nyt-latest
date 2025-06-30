@@ -1,6 +1,14 @@
+**Victim of Boulder Firebombing Attack Dies of Wounds**\
+`The death of Karen Diamond, 82, has turned the attack in Boulder, Colo., on marchers for Israeli hostages into a possible death-penalty case.`\
+https://nytimes.com/2025/06/30/us/boulder-fire-bombing-attack.html
+
+**Maple Leafs acquire Matias Maccelli from Utah Mammoth**\
+`Leafs send conditional third-round draft pick to Utah in exchange for winger.`\
+https://nytimes.com/athletic/6463087/2025/06/30/maple-leafs-trade-matias-maccelli-utah-mammoth/
+
 **New York’s Public Defenders Could Soon Strike for Higher Pay**\
 `The lawyers who represent the city’s poorest defendants want to be paid on par with their federal counterparts. They last walked out in 1994.`\
-https://nytimes.com/2025/06/30/nyregion/new-yorks-public-defenders-could-soon-strike-for-higher-pay.html
+https://nytimes.com/2025/06/30/nyregion/new-york-legal-aid-society-strike.html
 
 **NHL rumblings: Golden Knights talking Andersson trade, plus latest on Marner, Marchand, Kyrou, more**\
 `Andersson has indicated he would sign an extension in Vegas, leading to talks between the Knights and Flames.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6411398/2025/06/30/aaron-ramsey-mexico-pumas-transf
 **2025 Concacaf Gold Cup odds: Mexico, USMNT remain on collision course for final**\
 `Mexico retains the top spot in the odds to win the Gold Cup and it appears to be a two-horse race entering the semifinals.`\
 https://nytimes.com/athletic/6462643/2025/06/30/gold-cup-odds-mexico-usmnt-concacaf/
-
-**Europeans Struggle to Stay Cool Amid an Extreme Heatwave**\
-`Spain, France, Portugal, Greece and Italy have experienced severe conditions over the weekend. The heatwave is expected to persist into the middle of the week.`\
-https://nytimes.com/video/world/europe/100000010258486/europe-spain-portugal-france-heatwave.html
-
-**Data Crucial to Hurricane Forecasts Will Continue, but for One Month Only**\
-`U.S. officials said they would stop providing the satellite data online on July 31 rather at the end of June.`\
-https://nytimes.com/2025/06/30/climate/noaa-hurricane-data-offline.html
 
