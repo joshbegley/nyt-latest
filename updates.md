@@ -1,3 +1,15 @@
+**New York’s Public Defenders Could Soon Strike for Higher Pay**\
+`The lawyers who represent the city’s poorest defendants want to be paid on par with their federal counterparts. They last walked out in 1994.`\
+https://nytimes.com/2025/06/30/nyregion/new-yorks-public-defenders-could-soon-strike-for-higher-pay.html
+
+**NHL rumblings: Golden Knights talking Andersson trade, plus latest on Marner, Marchand, Kyrou, more**\
+`Andersson has indicated he would sign an extension in Vegas, leading to talks between the Knights and Flames.`\
+https://nytimes.com/athletic/6462976/2025/06/30/nhl-trades-free-agency-andersson-marner-marchand-kyrou/
+
+**‘The Bomb Lady’ and the Forerunner of the ‘Bunker Buster’ Used in Iran**\
+`While a child in wartime Vietnam, Anh Duong vowed to one day help the soldiers who saved her. She and her Navy team helped revolutionize American munitions.`\
+https://nytimes.com/2025/06/30/us/politics/bomb-iran.html
+
 **Astros place Jeremy Peña on injured list with rib fracture**\
 `Houston's shortstop left Friday's game in the sixth inning after Chicago Cubs starter Cade Horton hit him with a pitch in the second inning.`\
 https://nytimes.com/athletic/6462991/2025/06/30/astros-jeremy-pena-injury/

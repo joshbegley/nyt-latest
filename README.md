@@ -36,5 +36,5 @@ https://nytimes.com/video/world/europe/100000010258486/europe-spain-portugal-fra
 
 **Data Crucial to Hurricane Forecasts Will Continue, but for One Month Only**\
 `U.S. officials said they would stop providing the satellite data online on July 31 rather at the end of June.`\
-https://nytimes.com/2025/06/30/climate/hurricane-data-cutoff.html
+https://nytimes.com/2025/06/30/climate/noaa-hurricane-data-offline.html
 
