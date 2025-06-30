@@ -1,40 +1,40 @@
+**‘Time to make a shift’: Are the Blue Jays closer to fixing their pitching development pipeline?**\
+`Since Opening Day 2023, Alek Manoah remains the only amateur signing or drafted pitcher to make a start for the Blue Jays.`\
+https://nytimes.com/athletic/6458621/2025/06/30/toronto-blue-jays-pitching-development/
+
+**Why Brad Pitt’s F1 movie was told 'no' at Daytona — for the sake of authenticity**\
+`"F1 The Movie" filmed an important opening scene at one of America's iconic racing locales — but not without some compromise`\
+https://nytimes.com/athletic/6455038/2025/06/30/f1-movie-brad-pitt-daytona-scenes-racing/
+
+**Supreme Court Hands Trump Even More Power**\
+`How a major ruling last week redefines the role of the courts — at a moment when President Trump is testing the limits of his powers.`\
+https://nytimes.com/2025/06/30/podcasts/the-daily/trump-scotus-birthright.html
+
+**Celtics' Hugo González has what it takes for NBA success: 'He knows what winning looks like'**\
+`Real Madrid teammate Xavier Rathan-Mayes provides insight on González's game for The Athletic.`\
+https://nytimes.com/athletic/6460605/2025/06/30/celtics-hugo-gonzalez-nba-draft-pick/
+
+**Rosenthal: Aaron Judge is swinging more than ever and he's reaping the benefits**\
+`It wasn't a conscious decision made by the best hitter on the planet to swing early and often. You can't argue with the results, though.`\
+https://nytimes.com/athletic/6461328/2025/06/30/aaron-judge-swing-rate-yankees/
+
+**The New Cost of Trump’s Bill, and Gen Z’s Retirement Plan**\
+`Plus, the tricky science behind lime green Jell-O.`\
+https://nytimes.com/2025/06/30/podcasts/the-headlines/trump-bill-gen-z-retirement-jello.html
+
+**Wordle Review No. 1,473**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
+https://nytimes.com/2025/06/30/crosswords/wordle-review-1473.html
+
+**Connections Companion No. 751**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
+https://nytimes.com/2025/06/30/crosswords/connections-companion-751.html
+
+**Strands Sidekick No. 485**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 1, 2025.`\
+https://nytimes.com/2025/06/30/crosswords/strands-sidekick-485.html
+
 **The New York Times International Edition in Print for Tuesday, July 1, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/30/todays-new-york-times-international-edition
-
-**A Bitter Political Rivalry in Zambia Shows No Deference to Death**\
-`The burial site of Edgar Lungu, Zambia’s former president, has become the latest conflict in a relationship marred by hostility`\
-https://nytimes.com/2025/06/30/world/africa/zambia-edgar-lungu-funeral.html
-
-**2025/26 Serie A winner odds: Inter just ahead of defending champion Napoli**\
-`Napoli won Serie A last season, but Inter Milan are the early favourites to reclaim the Scudetto.`\
-https://nytimes.com/athletic/6454433/2025/06/30/2025-26-serie-a-winner-odds-inter-just-ahead-of-defending-champions-napoli/
-
-**Why Is Trump Returning MS-13 Leaders to El Salvador? 5 Takeaways From the Times Investigation.**\
-`The agreement with Nayib Bukele, the president of El Salvador, is undermining a long-running federal investigation into the gang, according to people familiar with the inquiry.`\
-https://nytimes.com/2025/06/30/us/politics/takeaways-trump-bukele-ms-13.html
-
-**The (Gaudy) Tie That Binds Trump and Bezos**\
-`They’re champion exhibitionists in a culture made for that.`\
-https://nytimes.com/2025/06/30/opinion/trump-bezos-sanchez-iran.html
-
-**Are You Applying for Tech Jobs or Tech Internships? We Want to Hear About It.**\
-`Companies using A.I. tools to automate tasks like coding are changing job prospects for recent grads and college students. Tell us about your experiences.`\
-https://nytimes.com/2025/06/30/business/computer-science-grads-tech-jobs.html
-
-**What the University of Virginia Should Have Done**\
-`The university should have stood up to the Justice Department.`\
-https://nytimes.com/2025/06/30/opinion/university-of-virginia-doj-trump.html
-
-**Why Food Banks Are Worried Now**\
-`President Trump’s cuts could hurt food programs at a time when demand for them has skyrocketed.`\
-https://nytimes.com/2025/06/30/nyregion/why-food-banks-are-worried-now.html
-
-**Months Into Sean Combs’s Trial, Jurors Are Ready to Deliberate**\
-`The panel of 12 will be asked to decided whether the music mogul is guilty of racketeering conspiracy and sex trafficking.`\
-https://nytimes.com/2025/06/30/arts/music/sean-combs-diddy-trial-jury-deliberations.html
-
-**There’s a Race to Power the Future. China Is Pulling Away.**\
-`Beijing is selling clean energy to the world, Washington is pushing oil and gas. Both are driven by national security.`\
-https://nytimes.com/interactive/2025/06/30/climate/china-clean-energy-power.html
 
