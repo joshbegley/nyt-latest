@@ -1,3 +1,7 @@
+**Suspect Identified in Deadly Ambush of Idaho Firefighters**\
+`The authorities believe that the suspect, who was found dead on Canfield Mountain, set a brush fire and shot at the firefighters who responded, killing two.`\
+https://nytimes.com/2025/06/30/us/wess-roley-idaho-shooting-suspect.html
+
 **The NHL's frantic season is here — and we've got every team's wish list**\
 `The league's free-agency bonanza is nearly upon us. Don't blink or you might miss it.`\
 https://nytimes.com/athletic/6463349/2025/06/30/red-light-newsletter-nhl-free-agency-draft/
