@@ -1,3 +1,7 @@
+**How Emma Hayes is fortifying the pathway from the under-23s to the senior USWNT squad**\
+`Hayes is determined to shrink the gaps she’s identified between age groups within the nation team setup — and it seems to be working`\
+https://nytimes.com/athletic/6462064/2025/06/30/emma-hayes-uswnt-u23-pathway/
+
 **Leeds close to signing Bornauw from Wolfsburg**\
 `The centre-back would become Leeds' third summer arrival after deals for Jaka Bijol and Lukas Nmecha.`\
 https://nytimes.com/athletic/6462168/2025/06/30/sebastiaan-bornauw-leeds-transfer/
