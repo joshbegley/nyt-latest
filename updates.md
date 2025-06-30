@@ -1,3 +1,7 @@
+**Quote of the Day: A ‘Sister Act’ With Millions of Views and a Mission**\
+`Quotation of the Day for Monday, June 30, 2025.`\
+https://nytimes.com/2025/06/29/pageoneplus/quote-of-the-day-a-sister-act-with-millions-of-views-and-a-mission.html
+
 **After loss to Tigers, Twins make room for Royce Lewis by removing Jonah Bride from roster**\
 `The Twins could have used the potential right-handed thump from Lewis against a dominant Tarik Skubal in Sunday's loss to the Tigers.`\
 https://nytimes.com/athletic/6461785/2025/06/29/twins-royce-lewis-return/
