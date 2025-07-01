@@ -1,3 +1,11 @@
+**China Bans Some Portable Batteries From Flights as Safety Concerns Grow**\
+`Airlines and governments around the world have tightened restrictions on the devices after a series of accidents. The ban in China has caught some travelers off guard.`\
+https://nytimes.com/2025/07/01/world/asia/china-portable-battery-ban-planes.html
+
+**Video Shows Drone Rescuing Stranded Man During Flood in China**\
+`Unmanned aerial vehicles are playing an increasing role in transporting supplies, and even people.`\
+https://nytimes.com/2025/07/01/world/asia/video-drone-rescue-flooding-china.html
+
 **Trump Administration Live Updates: Senate Debate on Republicans’ Policy Bill Stretches Into Third Day**\
 ``\
 https://nytimes.com/live/2025/07/01/us/trump-bill-news
