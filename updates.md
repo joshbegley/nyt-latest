@@ -1,3 +1,7 @@
+**Under a Drone-Swarmed Sky: Surviving in Eastern Ukraine**\
+`Towns and troops long accustomed to merciless bombardment are adjusting to an even denser pattern of attacks.`\
+https://nytimes.com/2025/07/01/world/europe/ukraine-russia-frontline.html
+
 **Jessica Pegula stunned in Wimbledon first round by world No. 116 Elisabetta Cocciaretto**\
 `Two years after world No.`\
 https://nytimes.com/athletic/6465083/2025/07/01/pegula-wimbledon-tennis-cocciaretto-result-analysis/
