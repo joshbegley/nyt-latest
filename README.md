@@ -1,9 +1,17 @@
+**Former Fiorentina chief scout announces West Ham move**\
+`Tramontano is the latest addition to head coach Graham Potter's backroom staff.`\
+https://nytimes.com/athletic/6464889/2025/07/01/former-fiorentina-chief-scout-announces-move-to-west-ham-recruitment-team/
+
+**Yulia Putintseva asks for 'dangerous' Wimbledon spectator to be removed during match**\
+`Putintseva lost the match 6-0, 6-0 in 45 minutes after saying that a spectator could have a knife in their possession.`\
+https://nytimes.com/athletic/6465091/2025/07/01/tennis-yulia-putintseva-wimbledon-fan/
+
 **Under a Drone-Swarmed Sky: Surviving in Eastern Ukraine**\
 `Towns and troops long accustomed to merciless bombardment are adjusting to an even denser pattern of attacks.`\
 https://nytimes.com/2025/07/01/world/europe/ukraine-russia-frontline.html
 
 **Jessica Pegula stunned in Wimbledon first round by world No. 116 Elisabetta Cocciaretto**\
-`Two years after world No.`\
+`The Athletic has live coverage from Day 2 at Wimbledon 2025.`\
 https://nytimes.com/athletic/6465083/2025/07/01/pegula-wimbledon-tennis-cocciaretto-result-analysis/
 
 **Why Franco Colapinto is staying in Alpine’s second F1 seat on a race-by-race basis**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6463278/2025/07/01/college-football-recruiting-blue
 **The enduring bond between Tom Seaver and David Wright still resonates**\
 `“It’s like a pinch-me moment saying, yeah, Tom Seaver is my friend,” said Wright, who will join Seaver in the Mets Hall of Fame this month.`\
 https://nytimes.com/athletic/6464616/2025/07/01/david-wright-tom-seaver-mets-hall-of-fame/
-
-**Patriots, Giants, Seahawks among 5 defenses primed to break out: Nguyen**\
-`The Cardinals and Buccaneers round out the list of defenses that could see a big jump in 2025.`\
-https://nytimes.com/athletic/6438502/2025/07/01/nfl-breakout-defenses-patriots-giants-seahawks/
-
-**What Jabari Smith Jr.’s extension tells us about the state of NBA player salaries**\
-`The NBA will have 16 players earn at least $50 million during the 2025-26 season while the NFL, MLB and NHL will have just six between them.`\
-https://nytimes.com/athletic/6463072/2025/07/01/rockets-jabari-smith-jr-contract-extension/
 
