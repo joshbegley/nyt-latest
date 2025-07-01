@@ -1,3 +1,11 @@
+**Tyus Jones, Orlando Magic agree to 1-year, $7 million contract: Source**\
+`Magic officials hope Jones will improve the team’s 3-point shooting and point-guard depth. `\
+https://nytimes.com/athletic/6464133/2025/06/30/tyus-jones-orlando-magic-free-agency/
+
+**Patrick Kane re-signs with Red Wings on 1-year contract full of bonuses**\
+`The future Hall-of-Famer signed a one-year contract extension just hours before he was set to become an unrestricted free agent.`\
+https://nytimes.com/athletic/6464287/2025/06/30/patrick-kane-red-wings-extension-nhl-free-agency/
+
 **Why the Wild are betting on Vladimir Tarasenko and what comes next in free agency**\
 `With a thin free-agent market, the 33-year-old Tarasenko checks off one box for the Wild before the frenzy begins in earnest.`\
 https://nytimes.com/athletic/6463969/2025/06/30/vladimir-tarasenko-wild-guerin-free-agency/
