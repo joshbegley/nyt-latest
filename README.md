@@ -1,3 +1,19 @@
+**Jessica Pegula stunned in Wimbledon first round by world No. 116 Elisabetta Cocciaretto**\
+`Two years after world No.`\
+https://nytimes.com/athletic/6465083/2025/07/01/pegula-wimbledon-tennis-cocciaretto-result-analysis/
+
+**Why Franco Colapinto is staying in Alpine’s second F1 seat on a race-by-race basis**\
+`Franco Colaptino has moved past five initial F1 races he was given to impress Alpine. Here's how his 2025 season situation currently stands`\
+https://nytimes.com/athletic/6464999/2025/07/01/franco-colapinto-alpine-race-by-race-deal/
+
+**Celebrity Broker Sues National Association of Realtors Over House Listings**\
+`Mauricio Umansky, the real estate broker best known for appearing on “The Real Housewives of Beverly Hills,” claims N.A.R. has created a monopoly through its databases of listings.`\
+https://nytimes.com/2025/07/01/realestate/mauricio-umansky-nar-lawsuit-listings.html
+
+**Deandre Ayton, LeBron and Luka make the Lakers a keystone of NBA free agency**\
+`With their need for a center and two superstars on different timelines, the Lakers are getting lots of attention — and understandably so.`\
+https://nytimes.com/athletic/6464748/2025/07/01/lakers-free-agency-nba-doncic-ayton/
+
 **Twins still waiting for Carlos Correa's 'clutch' reputation to make its way to Minnesota**\
 `'Clutch Correa' has gone missing in Minnesota, with his production in game-changing moments plummeting compared to his Houston days.`\
 https://nytimes.com/athletic/6429042/2025/07/01/carlos-correa-twins-clutch-stats/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6463072/2025/07/01/rockets-jabari-smith-jr-contract
 **Siegel: It didn't have to be this way for Mitch Marner and the Maple Leafs**\
 `The marriage of Mitch Marner and his hometown Maple Leafs should have been a hockey fairytale. Why did the story turn so sour? `\
 https://nytimes.com/athletic/6453180/2025/07/01/maple-leafs-mitch-marner-career/
-
-**How 'small' Switzerland came to host Euro 2025 and how it could spark 'cultural change'**\
-`Switzerland's bid to host Euro 2025 had many firsts. The tournament could change the country`\
-https://nytimes.com/athletic/6460773/2025/07/01/switzerland-euro-2025-host/
-
-**From the SEC to the Ivy League: QB Dante Reno returns home to play for his dad at Yale**\
-`Reno was ranked No. 516 overall and the No. 33 QB in the Class of 2024 in the 247Sports Composite.`\
-https://nytimes.com/athletic/6446196/2025/07/01/dante-reno-qb-yale-south-carolina-transfer/
-
-**5 Canucks thoughts as free agency frenzy begins**\
-`As the free agent market gets set to open shortly, the Canucks haven't accomplished nearly as much as they'd have liked to.`\
-https://nytimes.com/athletic/6464844/2025/07/01/canucks-free-agency-five-thoughts/
-
-**Dave Parker, Jim Rice once graced SI cover that asked, 'Who's best?' Rice's answer: Parker**\
-`“Dave Parker had more tools as far as running and his hitting, and he was stronger,” said Rice, who once asked Parker for one of his bats. `\
-https://nytimes.com/athletic/6464672/2025/07/01/dave-parker-jim-rice-red-sox-pirates/
 
