@@ -1,3 +1,7 @@
+**Full Time: Your Euro 2025 cheat sheet**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6464574/2025/06/30/euro-2025-guide-uswnt-ireland-full-time/
+
 **Nickeil Alexander-Walker is on his way out, but Wolves are counting on continuity**\
 `Alexander-Walker's departure was expected, but one Minnesota transaction from Monday was a bit surprising.`\
 https://nytimes.com/athletic/6463390/2025/06/30/nickeil-alexander-walker-timberwolves-joe-ingles/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/30/us/quake-northern-california-tracker.
 **Finding the Key to Cézanne, the First Painter I Ever Loved**\
 `In the artist's breathtaking quarry pictures, his singular vision runs into the hard facts of deep time.`\
 https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html
-
-**Trade grades: Can Michael Porter Jr. help Nets' rebuilding efforts?**\
-`This is a major shakeup to the core of the Nuggets — and a cost-effective one at that. Will it work?`\
-https://nytimes.com/athletic/6464093/2025/06/30/michael-porter-jr-nets-cameron-johnson-nuggets-nba-trade-grades/
 
