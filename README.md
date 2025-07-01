@@ -1,3 +1,7 @@
+**Ducks sign Mikael Granlund to 3-year contract with $7 million cap hit**\
+`Granlund is coming off a strong 2024-25 campaign, racking up 22 goals and 44 assists for the Stars.`\
+https://nytimes.com/athletic/6438366/2025/07/01/granlund-ducks-nhl-free-agency-2025/
+
 **Newcastle remove scene which may 'inadvertently cause offence' from kit launch**\
 `A version of the Japanese imperialist flag, in Newcastle club colours and logo, was shown briefly in the original video.`\
 https://nytimes.com/athletic/6466600/2025/07/01/newcastle-kit-launch-japan-flag/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/arts/music/jay-z-tony-buzbee-lawsuit-dismissed.ht
 **Coco Gauff loses in Wimbledon first round after nightmare draw against Dayana Yastremska**\
 `Gauff lost to a dangerous opponent under the roof on No. 1 Court, capping two days of upsets at Wimbledon.`\
 https://nytimes.com/athletic/6466616/2025/07/01/coco-gauff-wimbledon-yastremska-first-round-result-analysis/
-
-**Deadly Explosion at Factory in India**\
-`The Monday blast at a pharmaceutical factory set off a fire in the southern Indian state of Telangana, killing at least 36 people and injuring another three dozen, officials said.`\
-https://nytimes.com/video/world/asia/100000010261956/india-factory-explosion.html
 

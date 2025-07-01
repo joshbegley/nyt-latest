@@ -1,3 +1,15 @@
+**Newcastle remove scene which may 'inadvertently cause offence' from kit launch**\
+`A version of the Japanese imperialist flag, in Newcastle club colours and logo, was shown briefly in the original video.`\
+https://nytimes.com/athletic/6466600/2025/07/01/newcastle-kit-launch-japan-flag/
+
+**Sharks sign John Klingberg to 1-year contract**\
+`Klingberg boosted his profile with an excellent postseason run for the Edmonton Oilers.`\
+https://nytimes.com/athletic/6438458/2025/07/01/sharks-john-klingberg-contract/
+
+**In midst of a tough stretch, Giants pick up manager Bob Melvin's option for 2026**\
+`Only the first two years of Melvin's three-year deal were guaranteed. Now he's in a secure place to try to steer his team out of a slump.`\
+https://nytimes.com/athletic/6466646/2025/07/01/sf-giants-bob-melvin-manager-option/
+
 **Maple Leafs addition Nicolas Roy says he's ready for 'pressure of the moment'**\
 `Centre coming from Vegas in Mitch Marner deal says he'll lean on his 'Stanley Cup experience' as he joins the Maple Leafs.`\
 https://nytimes.com/athletic/6466445/2025/07/01/maple-leafs-nicolas-roy-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6466616/2025/07/01/coco-gauff-wimbledon-yastremska-
 **Deadly Explosion at Factory in India**\
 `The Monday blast at a pharmaceutical factory set off a fire in the southern Indian state of Telangana, killing at least 36 people and injuring another three dozen, officials said.`\
 https://nytimes.com/video/world/asia/100000010261956/india-factory-explosion.html
-
-**Trump’s Policy Bill Could Put the U.S. Further Behind China**\
-`Republicans’ tax and policy bill could give China a bigger lead in the race to develop renewable energy technologies.`\
-https://nytimes.com/2025/07/01/climate/china-climate-united-states.html
-
-**The Role of Cindy Sherman Will Be Played by Cindy Sherman**\
-`The pioneering self-portrait artist discusses working alone, finding her doppelgängers and selling her first prints for less than $50.`\
-https://nytimes.com/2025/07/01/t-magazine/cindy-sherman-hauser-wirth-menorca.html
-
-**David R. Slavitt, Poet and Critic With a Side Gig in Pulp Fiction, Dies at 90**\
-`He wrote more than 130 books, mostly collections of poetry and translations of classics, as well as lowbrow novels under a pen name.`\
-https://nytimes.com/2025/07/01/books/david-r-slavitt-dead.html
 

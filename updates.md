@@ -1,3 +1,15 @@
+**Newcastle remove scene which may 'inadvertently cause offence' from kit launch**\
+`A version of the Japanese imperialist flag, in Newcastle club colours and logo, was shown briefly in the original video.`\
+https://nytimes.com/athletic/6466600/2025/07/01/newcastle-kit-launch-japan-flag/
+
+**Sharks sign John Klingberg to 1-year contract**\
+`Klingberg boosted his profile with an excellent postseason run for the Edmonton Oilers.`\
+https://nytimes.com/athletic/6438458/2025/07/01/sharks-john-klingberg-contract/
+
+**In midst of a tough stretch, Giants pick up manager Bob Melvin's option for 2026**\
+`Only the first two years of Melvin's three-year deal were guaranteed. Now he's in a secure place to try to steer his team out of a slump.`\
+https://nytimes.com/athletic/6466646/2025/07/01/sf-giants-bob-melvin-manager-option/
+
 **Maple Leafs addition Nicolas Roy says he's ready for 'pressure of the moment'**\
 `Centre coming from Vegas in Mitch Marner deal says he'll lean on his 'Stanley Cup experience' as he joins the Maple Leafs.`\
 https://nytimes.com/athletic/6466445/2025/07/01/maple-leafs-nicolas-roy-trade/
