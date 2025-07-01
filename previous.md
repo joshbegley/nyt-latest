@@ -1,3 +1,19 @@
+**Senate Breaks Vote-a-Rama Record Before Passing Trump’s Domestic Bill**\
+`Senators cast 49 votes during a marathon session on President Trump’s domestic policy bill. Vice President JD Vance cast the deciding vote on the final version after roughly 27 hours without a recess.`\
+https://nytimes.com/2025/07/01/us/politics/senate-trump-bill-vote-a-rama-record.html
+
+**Trump Exaggerates His Agenda Bill’s Impact on Social Security Taxes**\
+`The bill creates a new deduction specifically for seniors 65 and over, which would relieve the tax burden on some 88% of them.`\
+https://nytimes.com/2025/07/01/us/politics/trump-bill-social-security-taxes.html
+
+**Devils sign Connor Brown to 4-year contract with $3 million cap hit: Source**\
+`Brown is coming off a strong bounce-back season in Edmonton.`\
+https://nytimes.com/athletic/6443614/2025/07/01/connor-brown-devils-contract/
+
+**Tigers OF Kerry Carpenter goes on IL with hamstring issue**\
+`Carpenter is third on the Tigers in home runs, but his absence will be buffered by the return of Matt Vierling.`\
+https://nytimes.com/athletic/6466175/2025/07/01/tigers-kerry-carpenter-injured-list/
+
 **National Climate Report Website Goes Dark**\
 `The federal website hosting five legislatively mandated reports stopped working Monday afternoon.`\
 https://nytimes.com/2025/07/01/climate/national-climate-assessment.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6465639/2025/07/01/archer-reminds-stokes-of-his-qua
 **The Less Discussed but Very Important Measure in Trump’s Terrible Bill**\
 `Vance’s posts about the reconciliation package reveal the true nature of Trump’s populism.`\
 https://nytimes.com/live/2025/06/30/opinion/thepoint/reconciliation-funding-detentions-ice-jd-vance
-
-**Rangers sign prized defenseman Vladislav Gavrikov to 7-year, $49 million contract**\
-`Gavrikov had some of the NHL's best underlying defensive numbers last season, and New York will count on him to continue at that level.`\
-https://nytimes.com/athletic/6444282/2025/07/01/gavrikov-rangers-nhl-free-agency-2025/
-
-**Tottenham Women to appoint Martin Ho as new head coach**\
-`Ho, currently the head coach of Norwegian side SK Brann, has previously been an assistant at both Everton and Manchester United.`\
-https://nytimes.com/athletic/6466103/2025/07/01/tottenham-women-manager-martin-ho/
-
-**Explosion at Indian Pharmaceutical Factory Kills 36**\
-`It was not immediately clear what led to the blast at a factory near Hyderabad, but officials said initial clues suggested a pressure buildup in a dryer system.`\
-https://nytimes.com/2025/07/01/world/asia/india-factory-explosion-hyderabad.html
-
-**Got Orlando Magic questions? Submit them for Josh Robbins' mailbag**\
-`<p>The Orlando Magic are in win-now mode, as shown by their trade for Desmond Bane and their impending signing of free-agent point guard Tyus Jones.`\
-https://nytimes.com/athletic/6466142/2025/07/01/orlando-magic-mailbag-submit/
 
