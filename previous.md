@@ -1,40 +1,40 @@
-**Novak Djokovic is a tennis mentor and sage for young stars. Then they try to beat him.**\
-`Djokovic sought advice from the tennis royalty that ruled when he arrived. Now he wants to be that person for the next generation.`\
-https://nytimes.com/athletic/6460800/2025/07/01/tennis-novak-djokovic-advice-mentorship-young-players/
+**Drone Rescues Stranded Person During Flood in China**\
+`As heavy rains battered southwestern China, drones were deployed to deliver relief supplies, disinfect flooded areas and airlift a trapped resident.`\
+https://nytimes.com/video/world/asia/100000010260496/drones-aid-in-china-flood-rescue.html
 
-**What to Know About Ranked-Choice Results in the N.Y.C. Mayor’s Race**\
-`Since no candidate received 50 percent of the vote on Primary Day, the Board of Elections proceeded to ranked-choice tabulations, which will be released on Tuesday.`\
-https://nytimes.com/2025/07/01/nyregion/nyc-mayor-results-ranked-choice-voting.html
+**Colin Allred Will Run Again for Senate in Texas**\
+`After losing to Ted Cruz last year, Mr. Allred is planning his second statewide run and looking for a stronger political climate for Democrats.`\
+https://nytimes.com/2025/07/01/us/politics/colin-allred-texas-senate.html
 
-**With Etch a Sketches and Apples, Math Is Revealed**\
-`A new series for the Health and Science section aims to make complex topics easy to dissect, and maybe even help people ‘fall in love’ with math.`\
-https://nytimes.com/2025/07/01/insider/math-revealed.html
+**At Ladyland, Everyone Wanted to ‘Protect the Dolls’**\
+`Pride Month finished strong with a low-budget music festival known for attracting big stars and emerging talent.`\
+https://nytimes.com/2025/07/01/style/at-ladyland-everyone-wanted-to-protect-the-dolls.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/01/crosswords/spelling-bee-forum.html
+**The Best Movies and TV Shows Coming to Netflix in July**\
+`This month brings an “Old Guard” sequel and Lena Dunham’s return to TV.`\
+https://nytimes.com/2025/07/01/arts/television/netflix-new-july.html
 
-**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
-`Welcome to the fifth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
-https://nytimes.com/athletic/6459308/2025/07/01/transfers-man-utd-arsenal-liverpool/
+**Giants roster projection: Who's in and who's out as training camp nears?**\
+`Is Tommy DeVito the odd man out at QB? Why is outside linebackers the best position group on the team? That and more in our projections.`\
+https://nytimes.com/athletic/6456678/2025/07/01/new-york-giants-roster-projection-training-camp/
 
-**Thai Prime Minister Is Suspended in Fallout From Cambodia Dispute**\
-`Paetongtarn Shinawatra is accused of ethical lapses in a conversation with the Cambodian leader Hun Sen and has faced calls to resign.`\
-https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
+**With Tillis Out, North Carolina’s Senate Race Will Draw Parties’ Firepower**\
+`A popular former Democratic governor, Roy Cooper, is expected to announce a bid this summer. The Republicans are banking on an endorsement by President Trump to clear their field.`\
+https://nytimes.com/2025/07/01/us/politics/north-carolina-senate-tillis-cooper.html
 
-**How the Apollo space missions are inspiring America’s new F1 team**\
-`Cadillac will join the grid as F1’s 11th team in 2026. Luke Smith gets rare access to a team at the start of its journey`\
-https://nytimes.com/athletic/6462636/2025/07/01/cadillac-f1-new-team-tour-apollo-inspiration/
+**The Supreme Court’s Pro-Trump Opportunism Is Now Undeniable**\
+`A Supreme Court decision demonstrates a new degree of cimperiousness, seeming to co-sign the Trump administration’s contempt for the lower courts.`\
+https://nytimes.com/2025/07/01/opinion/supreme-court-trump.html
 
-**Word of the Day: woebegone**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/01/learning/word-of-the-day-woebegone.html
+**Can the ‘Princess Treatment’ Go Too Far?**\
+`A popular video has prompted discussions about how to treat your significant other, what qualifies as “the bare minimum” and how this all relates to traditional gender roles.`\
+https://nytimes.com/2025/07/01/style/princess-treatment-bare-minimum-tiktok.html
 
-**Meet Jhon Arias - a novel football hero**\
-`The softly spoken Colombian winger has emerged as one of the stars of the Club World Cup, and was crucial to Fluminense's win over Inter`\
-https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world-cup/
+**New Yorkers May Vote on Curbing Council’s Power to Block New Housing**\
+`The City Council can block the development of new housing. A panel created by Mayor Eric Adams wants to let voters weigh in on reducing the Council’s power.`\
+https://nytimes.com/2025/07/01/nyregion/nyc-charter-revision-housing.html
 
-**The New York Times in Print for Tuesday, July 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
+**Get Used to Seeing More Thigh**\
+`Shorts took on many forms at the men’s shows in Paris.`\
+https://nytimes.com/2025/07/01/style/shorts-mens-fashion-week-paris.html
 
