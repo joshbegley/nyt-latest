@@ -1,3 +1,7 @@
+**Lucy the Pig, a Celebrity on Staten Island, Can Stay at Home for Now**\
+`Health officials told Lucy’s owners that she would have to leave the city. After the family, the neighborhood and its political representatives protested, a temporary reprieve emerged.`\
+https://nytimes.com/2025/07/01/nyregion/lucy-pig-staten-island.html
+
 **USMNT finds its fight in Gold Cup, readies for semis vs. Guatemala and its familiar faces**\
 `Mauricio Pochettino craved a group that would lean into its emotions when needed, and the U.S. has done that en route to the Gold Cup semis`\
 https://nytimes.com/athletic/6466843/2025/07/01/usmnt-guatemala-gold-cup-semifinal-pochettino-adams-ream-rubin/
