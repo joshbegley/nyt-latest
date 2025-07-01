@@ -1,3 +1,15 @@
+**Judge Dismisses Jay-Z’s Suit Against Lawyer He Said Extorted Him**\
+`Lawyers for the rapper had accused Tony Buzbee of making false assault claims. Another federal suit Jay-Z has filed against Mr. Buzbee and his client continues.`\
+https://nytimes.com/2025/07/01/arts/music/jay-z-tony-buzbee-lawsuit-dismissed.html
+
+**Coco Gauff loses in Wimbledon first round after nightmare draw against Dayana Yastremska**\
+`Gauff lost to a dangerous opponent under the roof on No. 1 Court, capping two days of upsets at Wimbledon.`\
+https://nytimes.com/athletic/6466616/2025/07/01/coco-gauff-wimbledon-yastremska-first-round-result-analysis/
+
+**Deadly Explosion at Factory in India**\
+`The Monday blast at a pharmaceutical factory set off a fire in the southern Indian state of Telangana, killing at least 36 people and injuring another three dozen, officials said.`\
+https://nytimes.com/video/world/asia/100000010261956/india-factory-explosion.html
+
 **Two Chinese Citizens Accused of Trying to Gather Information About U.S. Navy**\
 `The charges come as the Trump administration tries to aggressively confront China on a host of issues, including national security, trade and immigration.`\
 https://nytimes.com/2025/07/01/us/politics/chinese-citizens-counterintelligence-navy-charges.html
