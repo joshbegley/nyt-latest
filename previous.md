@@ -1,3 +1,11 @@
+**Jeannot? Arvidsson? Kuraly? Eyssimont? Bruins pursue belligerence: ‘We were an easy out'**\
+`Opponents will not enjoy retrieving pucks against the Bruins in 2025-26. But will Boston be any better for its Tuesday additions?`\
+https://nytimes.com/athletic/6467132/2025/07/01/bruins-free-agency-belligerence/
+
+**Red Wings may need to get creative as quiet July 1 leaves key needs unfilled**\
+`In a barren free-agent market, the Red Wings' biggest needs still remain. What's next for Steve Yzerman?`\
+https://nytimes.com/athletic/6466796/2025/07/01/red-wings-free-agency-steve-yzerman-roster/
+
 **Lucy the Pig, a Celebrity on Staten Island, Can Stay at Home for Now**\
 `Health officials told Lucy’s owners that she would have to leave the city. After the family, the neighborhood and its political representatives protested, a temporary reprieve emerged.`\
 https://nytimes.com/2025/07/01/nyregion/lucy-pig-staten-island.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6465880/2025/07/01/ottawa-senators-analysis-nhl-fre
 **Trump Faces the Biggest Test Yet of His Second-Term Political Power**\
 `If President Trump gets his domestic policy bill over the finish line, it will be a vivid demonstration of his continuing hold over the Republican Party.`\
 https://nytimes.com/2025/07/01/us/politics/trump-test-political-power.html
-
-**Rangers send K'Andre Miller to Hurricanes in sign-and-trade for picks, prospect**\
-`The Rangers made seven first-round draft picks from 2012 to 2019. Miller was the last of those picks remaining with the organization.`\
-https://nytimes.com/athletic/6448389/2025/07/01/kandre-miller-trade-rangers-hurricanes-nhl-free-agency-2025/
-
-**Some House Republicans Already Plan to Vote Against Trump’s Agenda Bill**\
-`To meet the president’s Friday deadline, the speaker will have to corral his party into accepting a bill several have criticized.`\
-https://nytimes.com/2025/07/01/us/politics/house-trump-policy-bill-republicans.html
 
