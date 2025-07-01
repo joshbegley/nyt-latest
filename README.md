@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`Welcome to the fifth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6459308/2025/07/01/transfers-man-utd-arsenal-liverpool/
+
 **Thai Prime Minister Is Suspended in Fallout From Cambodia Dispute**\
 `Paetongtarn Shinawatra is accused of ethical lapses in a conversation with the Cambodian leader Hun Sen and has faced calls to resign.`\
 https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462051/2025/07/01/borussia-dortmund-kovac-ricken-c
 **The wait goes on… UEFA delays drag Palace's summer of uncertainty into pre-season**\
 `With the date for the hearing of Lyon’s appeal against their relegation yet to be determined, it leaves Palace in something of a stasis`\
 https://nytimes.com/athletic/6456172/2025/07/01/the-wait-goes-on-uefa-delays-drag-crystal-palace-uncertainty-into-pre-season/
-
-**How Saudi Arabia's Al Hilal stunned Man City in Club World Cup - ex-Premier League stars, kick-off protest and cost of exit**\
-`Breaking down Al Hilal's remarkable 4-3 win over Saudi Arabia in the last 16 of the Club World Cup and what it all means`\
-https://nytimes.com/athletic/6462549/2025/07/01/al-hilal-manchester-city-saudi-arabia-highlights/
 
