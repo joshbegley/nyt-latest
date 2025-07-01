@@ -1,3 +1,19 @@
+**Thought Markets Were Volatile Already? Watch Out.**\
+`Stocks have rebounded, but the dollar is in a deep slump. Here’s what could go right (and very wrong) for investors.`\
+https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html
+
+**Netanyahu Says He Plans to Meet With Trump Next Week**\
+`The Israeli prime minister’s planned visit to the United States comes as the cease-fire with Iran may create new momentum for a truce in Gaza.`\
+https://nytimes.com/2025/07/01/world/middleeast/netanyahu-israel-trump-meeting.html
+
+**Toronto FC mutually terminating Insigne, Bernadeschi contracts**\
+`Insigne only played 76 times for the MLS club after a 2021 move from Napoli, while Bernadeschi joined a year later from Juventus.`\
+https://nytimes.com/athletic/6465024/2025/07/01/lorenzo-insigne-toronto-federico-bernadeschi/
+
+**Bills training camp 2025 wide receiver preview: What will Keon Coleman's season look like?**\
+`Plus, why Joshua Palmer has sleeper potential.`\
+https://nytimes.com/athletic/6390914/2025/07/01/bills-training-camp-preview-2025-wide-receiver-keon-coleman/
+
 **Jhon Duran flying to Turkey to complete Fenerbahce move**\
 `The 22-year-old only joined Al Nassr in January, signing a five-and-a-half-year contract after leaving Aston Villa.`\
 https://nytimes.com/athletic/6458497/2025/07/01/jhon-duran-transfer-fenerbahce/

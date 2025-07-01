@@ -1,3 +1,19 @@
+**Thought Markets Were Volatile Already? Watch Out.**\
+`Stocks have rebounded, but the dollar is in a deep slump. Here’s what could go right (and very wrong) for investors.`\
+https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html
+
+**Netanyahu Says He Plans to Meet With Trump Next Week**\
+`The Israeli prime minister’s planned visit to the United States comes as the cease-fire with Iran may create new momentum for a truce in Gaza.`\
+https://nytimes.com/2025/07/01/world/middleeast/netanyahu-israel-trump-meeting.html
+
+**Toronto FC mutually terminating Insigne, Bernadeschi contracts**\
+`Insigne only played 76 times for the MLS club after a 2021 move from Napoli, while Bernadeschi joined a year later from Juventus.`\
+https://nytimes.com/athletic/6465024/2025/07/01/lorenzo-insigne-toronto-federico-bernadeschi/
+
+**Bills training camp 2025 wide receiver preview: What will Keon Coleman's season look like?**\
+`Plus, why Joshua Palmer has sleeper potential.`\
+https://nytimes.com/athletic/6390914/2025/07/01/bills-training-camp-preview-2025-wide-receiver-keon-coleman/
+
 **Jhon Duran flying to Turkey to complete Fenerbahce move**\
 `The 22-year-old only joined Al Nassr in January, signing a five-and-a-half-year contract after leaving Aston Villa.`\
 https://nytimes.com/athletic/6458497/2025/07/01/jhon-duran-transfer-fenerbahce/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6463838/2025/07/01/bruins-dean-letourneau-boston-co
 **Taylor Moton thinks he still has good years — and another contract — ahead of him**\
 `Moton's Ironman streak ended last season but the veteran is feeling better and ready to help Carolina to the playoffs.`\
 https://nytimes.com/athletic/6461796/2025/07/01/panthers-taylor-moton-ironman-offensive-line/
-
-**Frustrated Giants lose another game and another third baseman to injury**\
-`The Giants' 4-2 loss to the Diamondbacks at Chase Field marked their 12th in 17 games — a skid that seems more like a free fall.`\
-https://nytimes.com/athletic/6464845/2025/07/01/giants-injuries-christian-koss/
-
-**Cowboys’ most important players for 2025: Dallas needs Dak Prescott's best season**\
-`Three newcomers make the top 10, but Dallas still needs elite performances from its stars, Prescott, Micah Parsons and CeeDee Lamb.`\
-https://nytimes.com/athletic/6463834/2025/07/01/cowboys-important-players-2025-dak-parsons/
-
-**How Wimbledon Is Tackling Its Hottest Opening on Record**\
-`With 6,700 refillable water bottles, “shade mapping” and ice packs, the world’s oldest championship tennis tournament is taking Britain’s heat wave seriously.`\
-https://nytimes.com/2025/07/01/world/europe/wimbledon-heat-wave.html
-
-**Former Fiorentina chief scout announces West Ham move**\
-`Tramontano is the latest addition to head coach Graham Potter's backroom staff.`\
-https://nytimes.com/athletic/6464889/2025/07/01/former-fiorentina-chief-scout-announces-move-to-west-ham-recruitment-team/
 
