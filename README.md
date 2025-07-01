@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6462051/2025/07/01/borussia-dortmund-kovac-ricken-c
 https://nytimes.com/athletic/6456172/2025/07/01/the-wait-goes-on-uefa-delays-drag-crystal-palace-uncertainty-into-pre-season/
 
 **How Saudi Arabia's Al Hilal stunned Man City in Club World Cup - ex-Premier League stars, kick-off protest and cost of exit**\
-`Breaking down a remarkable Club World Cup last 16 game between Manchester City and Al Hilal`\
+`Breaking down Al Hilal's remarkable 4-3 win over Saudi Arabia in the last 16 of the Club World Cup and what it all means`\
 https://nytimes.com/athletic/6462549/2025/07/01/al-hilal-manchester-city-saudi-arabia-highlights/
 
 **Xabi Alonso's new training methods are surprising and exciting at Real Madrid**\
