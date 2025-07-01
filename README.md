@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6466624/2025/07/01/emma-hayes-uswnt-process/
 https://nytimes.com/2025/07/01/nyregion/ranked-choice-voting-nyc-mayor.html
 
 **Jurors in Sean Combs Trial Reach Verdict on All but One Count**\
-`The judge has told them to keep deliberating on a racketeering conspiracy charge after the jury said there were “unpersuadable opinions on both sides.”`\
+`The judge is considering having the jury continue to deliberate on a racketeering conspiracy charge after it said there were “unpersuadable opinions on both sides.”`\
 https://nytimes.com/2025/07/01/arts/music/sean-combs-diddy-trial-partial-verdict.html
 
 **Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
