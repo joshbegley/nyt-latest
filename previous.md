@@ -1,3 +1,7 @@
+**British Man, 92, Receives Life Sentence for 1967 Rape and Murder**\
+`Ryland Headley was convicted this week in the killing of 75-year-old Louisa Dunne. The police used DNA evidence to solve what had been one of Britain’s oldest cold cases.`\
+https://nytimes.com/2025/07/01/world/europe/cold-case-bristol-murder-louisa-dunne.html
+
 **Clippers begin free agency by adding Brook Lopez. Could Chris Paul be next?**\
 `If LA's backup point guard isn't Chris Paul, then the pickings get slimmer.`\
 https://nytimes.com/athletic/6464797/2025/07/01/clippers-nba-free-agency-brook-lopez-chris-paul/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464550/2025/07/01/ny-yankees-anthony-volpe-errors/
 **Ohio State’s superstar wide receiver Jeremiah Smith: ‘I’m not finished’**\
 `“I’m just trying to win another natty — that’s what I’m focused on,” Smith said. “All the other individual accolades will come after that.”`\
 https://nytimes.com/athletic/6462913/2025/07/01/ohio-state-football-jeremiah-smith-wr/
-
-**Sweat science: As temps rise, MLB players, teams devise methods to stay cool**\
-`“I drink half my body weight in ounces of water every day,” said Tigers starter Casey Mize, who struggled with cramps in a recent start.`\
-https://nytimes.com/athletic/6463906/2025/07/01/sweat-science-mlb-players-teams-devise-methods-to-stay-cool-as-temperatures-rise/
 

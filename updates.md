@@ -1,3 +1,7 @@
+**British Man, 92, Receives Life Sentence for 1967 Rape and Murder**\
+`Ryland Headley was convicted this week in the killing of 75-year-old Louisa Dunne. The police used DNA evidence to solve what had been one of Britain’s oldest cold cases.`\
+https://nytimes.com/2025/07/01/world/europe/cold-case-bristol-murder-louisa-dunne.html
+
 **Clippers begin free agency by adding Brook Lopez. Could Chris Paul be next?**\
 `If LA's backup point guard isn't Chris Paul, then the pickings get slimmer.`\
 https://nytimes.com/athletic/6464797/2025/07/01/clippers-nba-free-agency-brook-lopez-chris-paul/
