@@ -1,6 +1,18 @@
+**Maple Leafs addition Nicolas Roy says he's ready for 'pressure of the moment'**\
+`Centre coming from Vegas in Mitch Marner deal says he'll lean on his 'Stanley Cup experience' as he joins the Maple Leafs.`\
+https://nytimes.com/athletic/6466445/2025/07/01/maple-leafs-nicolas-roy-trade/
+
+**The Penguins' rebuild is painful, but it might just be perfectly timed**\
+`The Penguins are playing it cool in free agency, which will pay off sooner rather than later.`\
+https://nytimes.com/athletic/6466425/2025/07/01/penguins-nhl-free-agency-rebuild/
+
+**Judge Halts Mass Firings and Organizational Changes at H.H.S.**\
+`In an order on Tuesday, a judge found the Trump administration’s plans to drastically change the structure and mission of the Department of Health and Human Services was probably unlawful.`\
+https://nytimes.com/2025/07/01/us/politics/judge-ruling-health-department-layoffs.html
+
 **Wild bring back Nico Sturm on a 2-year, $4 million contract**\
 `Sturm, a two-time Stanley Cup champion, played parts of four seasons with the Wild, scoring 20 goals and 36 points in 111 games.`\
-https://nytimes.com/athletic/6465665/2025/07/01/wild-bring-back-nico-sturm-on-a-2-year-4-million-contract/
+https://nytimes.com/athletic/6465665/2025/07/01/wild-nico-sturm-signing/
 
 **Judge Dismisses Jay-Z’s Suit Against Lawyer He Said Extorted Him**\
 `Lawyers for the rapper had accused Tony Buzbee of making false assault claims. Another federal suit Jay-Z has filed against Mr. Buzbee and his client continues.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/t-magazine/cindy-sherman-hauser-wirth-menorca.htm
 **David R. Slavitt, Poet and Critic With a Side Gig in Pulp Fiction, Dies at 90**\
 `He wrote more than 130 books, mostly collections of poetry and translations of classics, as well as lowbrow novels under a pen name.`\
 https://nytimes.com/2025/07/01/books/david-r-slavitt-dead.html
-
-**Murkowski Casts Decisive Vote for G.O.P. Policy Bill, Making an ‘Agonizing’ Choice**\
-`The Alaska Republican, a frequent critic of the president who is often a swing vote, acknowledged the bill would harm Americans but backed it after winning carve outs for her state.`\
-https://nytimes.com/2025/07/01/us/politics/murkowski-republican-bill.html
-
-**Two Chinese Citizens Accused of Trying to Gather Information About U.S. Navy**\
-`The charges come as the Trump administration tries to aggressively confront China on a host of issues, including national security, trade and immigration.`\
-https://nytimes.com/2025/07/01/us/politics/chinese-citizens-counterintelligence-navy-charges.html
-
-**What Does President Trump’s New Perfume Smell Like?**\
-`The president announced a fragrance line called Victory 45-47. Each bottle costs almost $250.`\
-https://nytimes.com/2025/07/01/style/trump-fragrances-victory-45-47.html
 

@@ -1,3 +1,7 @@
+**Wild bring back Nico Sturm on a 2-year, $4 million contract**\
+`Sturm, a two-time Stanley Cup champion, played parts of four seasons with the Wild, scoring 20 goals and 36 points in 111 games.`\
+https://nytimes.com/athletic/6465665/2025/07/01/wild-bring-back-nico-sturm-on-a-2-year-4-million-contract/
+
 **Judge Dismisses Jay-Z’s Suit Against Lawyer He Said Extorted Him**\
 `Lawyers for the rapper had accused Tony Buzbee of making false assault claims. Another federal suit Jay-Z has filed against Mr. Buzbee and his client continues.`\
 https://nytimes.com/2025/07/01/arts/music/jay-z-tony-buzbee-lawsuit-dismissed.html
