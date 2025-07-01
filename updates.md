@@ -1,3 +1,7 @@
+**With 38 days to go before the 2025-26 season starts, Leicester City are rudderless**\
+`Ruud van Nistelrooy's belated sacking has left Leicester drifting aimlessly while fan disenchantment festers`\
+https://nytimes.com/athletic/6464868/2025/07/01/leicester-city-ownership-manager-van-nistelrooy/
+
 **Darren Waller, former Giants TE, coming out of retirement to join Dolphins**\
 `Waller's acquisition is another significant roster development made by the Dolphins, who traded Jalen Ramsey and Jonnu Smith this week.`\
 https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-giants-nfl-news/

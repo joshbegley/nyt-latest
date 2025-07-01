@@ -1,3 +1,15 @@
+**Denmark Extends Military Conscription to Women**\
+`Women volunteers currently in the Danish armed forces said that some may “be surprised and like it a lot more than they probably think they would.”`\
+https://nytimes.com/video/world/europe/100000010260944/denmark-military-conscription-women.html
+
+**How Zohran Mamdani Stunned New York and Won the Primary for Mayor**\
+`Mr. Mamdani’s victory upended city politics and reverberated nationally. He relied on a memorable message, charisma and a strong ground game.`\
+https://nytimes.com/2025/07/01/nyregion/how-mamdani-won-campaign-mayor.html
+
+**Until Saturday: Conference names, ranked by accuracy**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6466030/2025/07/01/college-conference-realignment-names-until-saturday/
+
 **With 38 days to go before the 2025-26 season starts, Leicester City are rudderless**\
 `Ruud van Nistelrooy's belated sacking has left Leicester drifting aimlessly while fan disenchantment festers`\
 https://nytimes.com/athletic/6464868/2025/07/01/leicester-city-ownership-manager-van-nistelrooy/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6465895/2025/07/01/randy-moss-espn-sunday-nfl-count
 **Trump and Republicans Mislead on Tax Cuts in Policy Bill**\
 `The president and his Senate allies have cited inaccurate claims about their tax and policy bill.`\
 https://nytimes.com/2025/07/01/us/politics/trump-tax-cuts-policy-bill.html
-
-**Ahmed Fareed to anchor NBC's Monday night NBA coverage**\
-`Fareed hosted the majority of the 151st Kentucky Derby broadcast in place of Mike Tirico, who left following an allergic reaction.`\
-https://nytimes.com/athletic/6465748/2025/07/01/nba-nbc-coverage-ahmed-fareed/
-
-**Zohran Mamdani Wins Democratic Primary for New York City Mayor**\
-`Mr. Mamdani, a state assemblyman and democratic socialist, won by a 12-point margin. He was declared the winner on Tuesday after ranked-choice tabulations were run.`\
-https://nytimes.com/2025/07/01/nyregion/mamdani-wins-mayor-primary-nyc.html
-
-**NHL contract grades: Jake Allen is a solid '1B' for Devils at a reasonable price**\
-`Amid a free-agent class weak on goalies, the Devils secured the best option.`\
-https://nytimes.com/athletic/6465809/2025/07/01/nhl-contract-grades-jake-allen-devils/
 
