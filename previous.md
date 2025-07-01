@@ -1,3 +1,15 @@
+**Darren Waller, former Giants TE, coming out of retirement to join Dolphins**\
+`Waller's acquisition is another significant roster development made by the Dolphins, who traded Jalen Ramsey and Jonnu Smith this week.`\
+https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-giants-nfl-news/
+
+**Have Gay Rights Gone Too Far, or Not Far Enough?**\
+`Readers offer strong, sharply varied responses to Andrew Sullivan’s guest essay.`\
+https://nytimes.com/2025/07/01/opinion/gay-lgbtq-andrew-sullivan.html
+
+**Aquarelle Brings the European Seaside to Avenue B**\
+`The Paris Café returns to the Seaport district, Sailor’s Choice offers another vintage boat for dinner and more restaurant news.`\
+https://nytimes.com/2025/07/01/dining/nyc-restaurant-news.html
+
 **Dallas Stars hire Glen Gulutzan for second stint as head coach**\
 `Gulutzan coached the Stars from 2011 to '13 and also had a two-year run with the Calgary Flames.`\
 https://nytimes.com/athletic/6441923/2025/07/01/stars-coach-glen-gulutzan/
@@ -15,7 +27,7 @@ https://nytimes.com/2025/07/01/us/politics/trump-tax-cuts-policy-bill.html
 https://nytimes.com/athletic/6465748/2025/07/01/nba-nbc-coverage-ahmed-fareed/
 
 **Zohran Mamdani Wins Democratic Primary for New York City Mayor**\
-`Mr. Mamdani, a state assemblyman and democratic socialist, won by a 12-point margin. He was officially declared the winner on Tuesday after ranked-choice tabulations were run.`\
+`Mr. Mamdani, a state assemblyman and democratic socialist, won by a 12-point margin. He was declared the winner on Tuesday after ranked-choice tabulations were run.`\
 https://nytimes.com/2025/07/01/nyregion/mamdani-wins-mayor-primary-nyc.html
 
 **NHL contract grades: Jake Allen is a solid '1B' for Devils at a reasonable price**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6465809/2025/07/01/nhl-contract-grades-jake-allen-d
 **Republican Bill Puts Nation on New, More Perilous Fiscal Path**\
 `Among the most expensive pieces of legislation in years, the Republican legislation could reshape the country’s finances for a generation.`\
 https://nytimes.com/2025/07/01/us/politics/republican-policy-bill-perilous-fiscal-path.html
-
-**NHL trade grades: Canadiens and Blues swap intriguing prospects**\
-`Corey Pronman has Zach Bolduc rated slightly higher than Logan Mailloux but both look like good fits in their new homes.`\
-https://nytimes.com/athletic/6465859/2025/07/01/nhl-trade-grades-canadiens-blues-bolduc-mailloux/
-
-**Forest's Williams signs new contract through to 2029**\
-`The versatile former Liverpool defender was a key figure in Nuno Espirito Santo’s side last season.`\
-https://nytimes.com/athletic/6465845/2025/07/01/neco-williams-nottingham-forest-contract-length/
-
-**Jake Paul officially added to WBA rankings, now eligible for title shot**\
-`Paul is not ranked by the WBC, WBO or IBF. He is the No. 69-ranked cruiserweight on BoxRec.`\
-https://nytimes.com/athletic/6465606/2025/07/01/jake-paul-wba-rankings-title-fight/
 

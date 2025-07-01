@@ -1,3 +1,7 @@
+**With 38 days to go before the 2025-26 season starts, Leicester City are rudderless**\
+`Ruud van Nistelrooy's belated sacking has left Leicester drifting aimlessly while fan disenchantment festers`\
+https://nytimes.com/athletic/6464868/2025/07/01/leicester-city-ownership-manager-van-nistelrooy/
+
 **Darren Waller, former Giants TE, coming out of retirement to join Dolphins**\
 `Waller's acquisition is another significant roster development made by the Dolphins, who traded Jalen Ramsey and Jonnu Smith this week.`\
 https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-giants-nfl-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/nyregion/mamdani-wins-mayor-primary-nyc.html
 **NHL contract grades: Jake Allen is a solid '1B' for Devils at a reasonable price**\
 `Amid a free-agent class weak on goalies, the Devils secured the best option.`\
 https://nytimes.com/athletic/6465809/2025/07/01/nhl-contract-grades-jake-allen-devils/
-
-**Republican Bill Puts Nation on New, More Perilous Fiscal Path**\
-`Among the most expensive pieces of legislation in years, the Republican legislation could reshape the country’s finances for a generation.`\
-https://nytimes.com/2025/07/01/us/politics/republican-policy-bill-perilous-fiscal-path.html
 

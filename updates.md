@@ -1,3 +1,19 @@
+**Darren Waller, former Giants TE, coming out of retirement to join Dolphins**\
+`Waller's acquisition is another significant roster development made by the Dolphins, who traded Jalen Ramsey and Jonnu Smith this week.`\
+https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-giants-nfl-news/
+
+**Have Gay Rights Gone Too Far, or Not Far Enough?**\
+`Readers offer strong, sharply varied responses to Andrew Sullivan’s guest essay.`\
+https://nytimes.com/2025/07/01/opinion/gay-lgbtq-andrew-sullivan.html
+
+**Aquarelle Brings the European Seaside to Avenue B**\
+`The Paris Café returns to the Seaport district, Sailor’s Choice offers another vintage boat for dinner and more restaurant news.`\
+https://nytimes.com/2025/07/01/dining/nyc-restaurant-news.html
+
+**Zohran Mamdani Wins Democratic Primary for New York City Mayor**\
+`Mr. Mamdani, a state assemblyman and democratic socialist, won by a 12-point margin. He was declared the winner on Tuesday after ranked-choice tabulations were run.`\
+https://nytimes.com/2025/07/01/nyregion/mamdani-wins-mayor-primary-nyc.html
+
 **Dallas Stars hire Glen Gulutzan for second stint as head coach**\
 `Gulutzan coached the Stars from 2011 to '13 and also had a two-year run with the Calgary Flames.`\
 https://nytimes.com/athletic/6441923/2025/07/01/stars-coach-glen-gulutzan/
