@@ -1,3 +1,15 @@
+**Kepa Arrizabalaga to Arsenal: Transfers TLDR - all you need to know**\
+`Arsenal have signed goalkeeper Kepa Arrizabalaga from Chelsea on a £5million deal - here we break down the transfer.`\
+https://nytimes.com/athletic/6413844/2025/07/01/kepa-arrizabalaga-arsenal-transfer-tldr/
+
+**Defeat of a 10-Year Ban on State A.I. Laws Is a Blow to Tech Industry**\
+`All but a handful of states have some laws regulating artificial intelligence.`\
+https://nytimes.com/2025/07/01/us/politics/state-ai-laws.html
+
+**‘Love Island USA’ Has a New Villain This Season: The Viewers**\
+`Audiences have bullied past contestants, but after an islander has become particularly divisive, the series is taking more steps to keep fans from harassing stars and their families.`\
+https://nytimes.com/2025/07/01/arts/television/love-island-season-7-harassment.html
+
 **Canucks agree to extensions with Demko and Garland**\
 `Demko's deal is for three years at a $8.5 million cap hit while Garland's is for six years with a $6 million AAV.`\
 https://nytimes.com/athletic/6465519/2025/07/01/canucks-thatcher-demko-conor-garland/
