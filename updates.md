@@ -1,3 +1,11 @@
+**Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
+`Students said they had been overcharged for their educations as a result of incorrect data that they said the school had used to artificially inflate its ranking.`\
+https://nytimes.com/2025/07/01/nyregion/columbia-university-us-news-ranking.html
+
+**Ducks sign Mikael Granlund to 3-year contract with $7 million cap hit**\
+`Granlund is coming off a strong 2024-25 campaign, racking up 22 goals and 44 assists for the Stars.`\
+https://nytimes.com/athletic/6438366/2025/07/01/granlund-ducks-nhl-free-agency-2025/
+
 **Newcastle remove scene which may 'inadvertently cause offence' from kit launch**\
 `A version of the Japanese imperialist flag, in Newcastle club colours and logo, was shown briefly in the original video.`\
 https://nytimes.com/athletic/6466600/2025/07/01/newcastle-kit-launch-japan-flag/
