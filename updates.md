@@ -1,3 +1,15 @@
+**Former Fiorentina chief scout announces West Ham move**\
+`Tramontano is the latest addition to head coach Graham Potter's backroom staff.`\
+https://nytimes.com/athletic/6464889/2025/07/01/former-fiorentina-chief-scout-announces-move-to-west-ham-recruitment-team/
+
+**Yulia Putintseva asks for 'dangerous' Wimbledon spectator to be removed during match**\
+`Putintseva lost the match 6-0, 6-0 in 45 minutes after saying that a spectator could have a knife in their possession.`\
+https://nytimes.com/athletic/6465091/2025/07/01/tennis-yulia-putintseva-wimbledon-fan/
+
+**Jessica Pegula stunned in Wimbledon first round by world No. 116 Elisabetta Cocciaretto**\
+`The Athletic has live coverage from Day 2 at Wimbledon 2025.`\
+https://nytimes.com/athletic/6465083/2025/07/01/pegula-wimbledon-tennis-cocciaretto-result-analysis/
+
 **Under a Drone-Swarmed Sky: Surviving in Eastern Ukraine**\
 `Towns and troops long accustomed to merciless bombardment are adjusting to an even denser pattern of attacks.`\
 https://nytimes.com/2025/07/01/world/europe/ukraine-russia-frontline.html
