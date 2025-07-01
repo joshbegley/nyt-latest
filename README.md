@@ -1,3 +1,15 @@
+**Kepa Arrizabalaga to Arsenal: Transfers TLDR - all you need to know**\
+`Arsenal have signed goalkeeper Kepa Arrizabalaga from Chelsea on a £5million deal - here we break down the transfer.`\
+https://nytimes.com/athletic/6413844/2025/07/01/kepa-arrizabalaga-arsenal-transfer-tldr/
+
+**Defeat of a 10-Year Ban on State A.I. Laws Is a Blow to Tech Industry**\
+`All but a handful of states have some laws regulating artificial intelligence.`\
+https://nytimes.com/2025/07/01/us/politics/state-ai-laws.html
+
+**‘Love Island USA’ Has a New Villain This Season: The Viewers**\
+`Audiences have bullied past contestants, but after an islander has become particularly divisive, the series is taking more steps to keep fans from harassing stars and their families.`\
+https://nytimes.com/2025/07/01/arts/television/love-island-season-7-harassment.html
+
 **Canucks agree to extensions with Demko and Garland**\
 `Demko's deal is for three years at a $8.5 million cap hit while Garland's is for six years with a $6 million AAV.`\
 https://nytimes.com/athletic/6465519/2025/07/01/canucks-thatcher-demko-conor-garland/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6465383/2025/07/01/bruins-free-agency-boeser-granlu
 **In an Attack at Sunset, Israelis Set a Palestinian Village Ablaze**\
 `The violence last week in Kafr Malik, in the West Bank, comes amid a surge in assaults by Israeli settlers. It also set off a chain of violence in the area.`\
 https://nytimes.com/2025/07/01/world/middleeast/israel-west-bank-palestinians-attack.html
-
-**Arsenal confirm signing of Arrizabalaga from Chelsea**\
-`Arrizabalaga departs Stamford Bridge seven years after signing from Athletic Club in a deal worth £71.6m ($96.9m).`\
-https://nytimes.com/athletic/6410283/2025/07/01/arsenal-kepa-arrizabalaga-chelsea/
-
-**Wrexham sign Wales international Danny Ward**\
-`Ward, 32, rejoins the club where he came through the youth ranks before joining Liverpool.`\
-https://nytimes.com/athletic/6465479/2025/07/01/danny-ward-wrexham-transfer/
-
-**The Windup: Manfred’s CBA sales pitch**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6464833/2025/07/01/rob-manfred-cba-players-the-windup/
 
