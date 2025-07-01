@@ -1,3 +1,15 @@
+**Algerian Court Upholds 5-Year Sentence for Writer, Angering France**\
+`The conviction of Boualem Sansal, an outspoken French and Algerian writer, has worsened tensions between the countries.`\
+https://nytimes.com/2025/07/01/world/africa/algeria-boualem-sansal-france.html
+
+**Amtrak Will Revive Long-Stalled Gulf Coast Route in August**\
+`The Mardi Gras Service, starting on Aug. 18, will connect New Orleans and Mobile, Ala., by train for the first time since Hurricane Katrina in 2005.`\
+https://nytimes.com/2025/07/01/travel/amtrak-mardi-gras-service-route.html
+
+**A Shorts Suit and Tabi Shoes**\
+`An assortment of accessories telegraphed a taste for fancy things.`\
+https://nytimes.com/2025/07/01/style/street-style-look-shorts-suit-tabi-shoes.html
+
 **Top Russian General Convicted in High-Profile Corruption Case**\
 `Timur Ivanov, a longtime deputy defense minister, was sentenced to 13 years in a penal colony, according to the Russian state news agency Tass.`\
 https://nytimes.com/2025/07/01/world/europe/russia-timur-ivanov-verdict.html

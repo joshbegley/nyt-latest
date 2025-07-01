@@ -1,3 +1,7 @@
+**Villa complete signing of forward Zepiqueno Redmond**\
+`Signing the Dutch youth international is part of Villa's strategy to recruit talents at a low cost but with a high ceiling.`\
+https://nytimes.com/athletic/6448464/2025/07/01/aston-villa-transfer-news-zepiqueno-redmond/
+
 **Algerian Court Upholds 5-Year Sentence for Writer, Angering France**\
 `The conviction of Boualem Sansal, an outspoken French and Algerian writer, has worsened tensions between the countries.`\
 https://nytimes.com/2025/07/01/world/africa/algeria-boualem-sansal-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html
 **Netanyahu Says He Plans to Meet With Trump Next Week**\
 `The Israeli prime minister’s planned visit to the United States comes as the cease-fire with Iran may create new momentum for a truce in Gaza.`\
 https://nytimes.com/2025/07/01/world/middleeast/netanyahu-israel-trump-meeting.html
-
-**Toronto FC mutually terminating Insigne, Bernadeschi contracts**\
-`Insigne only played 76 times for the MLS club after a 2021 move from Napoli, while Bernadeschi joined a year later from Juventus.`\
-https://nytimes.com/athletic/6465024/2025/07/01/lorenzo-insigne-toronto-federico-bernadeschi/
 

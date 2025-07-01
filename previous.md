@@ -1,3 +1,15 @@
+**Algerian Court Upholds 5-Year Sentence for Writer, Angering France**\
+`The conviction of Boualem Sansal, an outspoken French and Algerian writer, has worsened tensions between the countries.`\
+https://nytimes.com/2025/07/01/world/africa/algeria-boualem-sansal-france.html
+
+**Amtrak Will Revive Long-Stalled Gulf Coast Route in August**\
+`The Mardi Gras Service, starting on Aug. 18, will connect New Orleans and Mobile, Ala., by train for the first time since Hurricane Katrina in 2005.`\
+https://nytimes.com/2025/07/01/travel/amtrak-mardi-gras-service-route.html
+
+**A Shorts Suit and Tabi Shoes**\
+`An assortment of accessories telegraphed a taste for fancy things.`\
+https://nytimes.com/2025/07/01/style/street-style-look-shorts-suit-tabi-shoes.html
+
 **Top Russian General Convicted in High-Profile Corruption Case**\
 `Timur Ivanov, a longtime deputy defense minister, was sentenced to 13 years in a penal colony, according to the Russian state news agency Tass.`\
 https://nytimes.com/2025/07/01/world/europe/russia-timur-ivanov-verdict.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/world/middleeast/netanyahu-israel-trump-meeting.h
 **Toronto FC mutually terminating Insigne, Bernadeschi contracts**\
 `Insigne only played 76 times for the MLS club after a 2021 move from Napoli, while Bernadeschi joined a year later from Juventus.`\
 https://nytimes.com/athletic/6465024/2025/07/01/lorenzo-insigne-toronto-federico-bernadeschi/
-
-**Bills training camp 2025 wide receiver preview: What will Keon Coleman's season look like?**\
-`Plus, why Joshua Palmer has sleeper potential.`\
-https://nytimes.com/athletic/6390914/2025/07/01/bills-training-camp-preview-2025-wide-receiver-keon-coleman/
-
-**Jhon Duran flying to Turkey to complete Fenerbahce move**\
-`The 22-year-old only joined Al Nassr in January, signing a five-and-a-half-year contract after leaving Aston Villa.`\
-https://nytimes.com/athletic/6458497/2025/07/01/jhon-duran-transfer-fenerbahce/
-
-**Kyrou's no-trade clause kicks in; Carbonneau impresses at camp**\
-`Despite plenty of speculation around Jordan Kyrou in recent weeks, his no-trade clause officially kicked in Monday night.`\
-https://nytimes.com/athletic/6464121/2025/07/01/blues-kyrou-no-trade-clause-carbonneau-camp/
 
