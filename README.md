@@ -1,3 +1,11 @@
+**3 Managers Arrested Over Deaths at U.K. Hospital Where Lucy Letby Worked**\
+`People who were managers when Ms. Letby was convicted of killing babies were arrested on suspicion of manslaughter by gross negligence.`\
+https://nytimes.com/2025/07/01/world/europe/lucy-letby-hospital-manslaughter-negligence-arrests.html
+
+**In Three Off Broadway Shows, They’re Coming Out and Out and Out**\
+`Several recent productions have featured a range of L.G.B.T.Q. stories, from strained familial relationships to self-discovery via Disney cosplay.`\
+https://nytimes.com/2025/07/01/theater/beau-the-musical-my-sons-a-queer.html
+
 **Senators Work All Night on Trump’s Bill, Breaking a Record and Twisting Arms**\
 `Voting for over 24 hours, senators donned fluffy blankets in the frigid chamber, gobbled fast food and recorded behind-the-scenes tours of the Capitol as Republicans struggled to pass their sweeping policy bill.`\
 https://nytimes.com/2025/07/01/us/politics/senate-all-night-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6413844/2025/07/01/kepa-arrizabalaga-arsenal-transf
 **Defeat of a 10-Year Ban on State A.I. Laws Is a Blow to Tech Industry**\
 `All but a handful of states have some laws regulating artificial intelligence.`\
 https://nytimes.com/2025/07/01/us/politics/state-ai-laws.html
-
-**‘Love Island USA’ Has a New Villain This Season: The Viewers**\
-`Audiences have bullied past contestants, but after an islander has become particularly divisive, the series is taking more steps to keep fans from harassing stars and their families.`\
-https://nytimes.com/2025/07/01/arts/television/love-island-season-7-harassment.html
-
-**Canucks agree to extensions with Demko and Garland**\
-`Demko's deal is for three years at a $8.5 million cap hit while Garland's is for six years with a $6 million AAV.`\
-https://nytimes.com/athletic/6465519/2025/07/01/canucks-thatcher-demko-conor-garland/
 
