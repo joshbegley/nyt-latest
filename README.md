@@ -1,3 +1,7 @@
+**With quiet start to free agency, Senators GM Steve Staios doubles down on core**\
+`The pressure is on Ottawa's roster to take that next step after making the playoffs this season, as currently constructed.`\
+https://nytimes.com/athletic/6465880/2025/07/01/ottawa-senators-analysis-nhl-free-agency-2025/
+
 **Trump Faces the Biggest Test Yet of His Second-Term Political Power**\
 `If President Trump gets his domestic policy bill over the finish line, it will be a vivid demonstration of his continuing hold over the Republican Party.`\
 https://nytimes.com/2025/07/01/us/politics/trump-test-political-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466976/2025/07/01/flyers-dvorak-vladar-free-agency
 **Giroud joins Lille after LAFC exit, returns to Ligue 1 after 13-year absence**\
 `The striker's move to Lille marks a return to his home country for the first time since 2012, when he left Montpellier for Arsenal.`\
 https://nytimes.com/athletic/6455903/2025/07/01/olivier-giroud-transfer-lille-france/
-
-**Storms Threaten to Bring Heavy Rain Across the Mid-Atlantic on Tuesday**\
-`Forecasters warned of flash flooding across Maryland, Pennsylvania and New Jersey.`\
-https://nytimes.com/2025/07/01/weather/flood-warnings-storms-maryland-pennsylvania.html
 
