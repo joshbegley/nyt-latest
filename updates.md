@@ -1,3 +1,19 @@
+**Maple Leafs addition Nicolas Roy says he's ready for 'pressure of the moment'**\
+`Centre coming from Vegas in Mitch Marner deal says he'll lean on his 'Stanley Cup experience' as he joins the Maple Leafs.`\
+https://nytimes.com/athletic/6466445/2025/07/01/maple-leafs-nicolas-roy-trade/
+
+**The Penguins' rebuild is painful, but it might just be perfectly timed**\
+`The Penguins are playing it cool in free agency, which will pay off sooner rather than later.`\
+https://nytimes.com/athletic/6466425/2025/07/01/penguins-nhl-free-agency-rebuild/
+
+**Judge Halts Mass Firings and Organizational Changes at H.H.S.**\
+`In an order on Tuesday, a judge found the Trump administration’s plans to drastically change the structure and mission of the Department of Health and Human Services was probably unlawful.`\
+https://nytimes.com/2025/07/01/us/politics/judge-ruling-health-department-layoffs.html
+
+**Wild bring back Nico Sturm on a 2-year, $4 million contract**\
+`Sturm, a two-time Stanley Cup champion, played parts of four seasons with the Wild, scoring 20 goals and 36 points in 111 games.`\
+https://nytimes.com/athletic/6465665/2025/07/01/wild-nico-sturm-signing/
+
 **Wild bring back Nico Sturm on a 2-year, $4 million contract**\
 `Sturm, a two-time Stanley Cup champion, played parts of four seasons with the Wild, scoring 20 goals and 36 points in 111 games.`\
 https://nytimes.com/athletic/6465665/2025/07/01/wild-bring-back-nico-sturm-on-a-2-year-4-million-contract/
