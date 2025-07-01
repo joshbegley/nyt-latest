@@ -1,3 +1,11 @@
+**Clippers begin free agency by adding Brook Lopez. Could Chris Paul be next?**\
+`If LA's backup point guard isn't Chris Paul, then the pickings get slimmer.`\
+https://nytimes.com/athletic/6464797/2025/07/01/clippers-nba-free-agency-brook-lopez-chris-paul/
+
+**NBA free agency 2025: Grades, head-scratchers and more from Day 1**\
+`The league got the ball rolling on transactions early, but that doesn't mean things were quiet once the clock struck 6 p.m. Eastern`\
+https://nytimes.com/athletic/6464776/2025/07/01/nba-free-agency-2025-grades-day-1/
+
 **The Pulse: Free agency’s 2 winners**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6462943/2025/07/01/panthers-hawks-nba-nhl-free-agency-the-pulse/
