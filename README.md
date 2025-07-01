@@ -1,3 +1,15 @@
+**Oilers — and Connor McDavid — must wait to see how the roster can be upgraded**\
+`The Oilers have a long way to go based on what was achieved through the first and biggest day of free agency.`\
+https://nytimes.com/athletic/6467186/2025/07/01/oilers-free-agents-connor-mcdavid-viktor-arvidsson/
+
+**Alabama Violated Constitutional Rights of Death Row Inmate, Appeals Court Rules**\
+`A federal appellate panel said that Michael Sockwell was eligible to be retried because prosecutors systematically eliminated Black potential jurors at his 1990 murder trial.`\
+https://nytimes.com/2025/07/01/us/politics/death-penalty-retrial-alabama.html
+
+**NHL free agency best and worst deals: On Ivan Provorov, Mitch Marner and many more**\
+`Here are the best and worst deals signed in the early going of the NHL's free-agent frenzy.`\
+https://nytimes.com/athletic/6466972/2025/07/01/nhl-free-agency-best-worst-deals-2025/
+
 **Trump Withholds Nearly $7 Billion for Schools, With Little Explanation**\
 `The money, which was allocated by Congress, helps pay for after-school programs, support for students learning English and other services.`\
 https://nytimes.com/2025/07/01/us/trump-education-funds.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6466843/2025/07/01/usmnt-guatemala-gold-cup-semifin
 **Blackhawks' new rebuild stage factored into quiet offseason for GM Kyle Davidson**\
 `Davidson's lack of moves was a sign that he's ready to go further with his youth movement at the NHL level.`\
 https://nytimes.com/athletic/6466062/2025/07/01/blackhawks-nhl-free-agency-offseason-kyle-davidson/
-
-**Top Iran Official Survived Israeli Strike**\
-`Rear Adm. Ali Shamkhani was seen struggling to walk with a cane at a funeral procession this weekend for military commanders killed in the 12-day war.`\
-https://nytimes.com/2025/07/01/world/middleeast/iran-shamkhani-israel-attack.html
-
-**Alex Delvecchio, Hockey Hall of Famer With Red Wings, Dies at 93**\
-`A center who skated alongside Gordie Howe on the team’s famed “Production Line,” he helped win three Stanley Cups and stood out for his clean play over 24 years in Detroit.`\
-https://nytimes.com/2025/07/01/sports/hockey/alex-delvecchio-dead.html
-
-**NHL trade/contract grades: Hurricanes make huge bet on K'Andre Miller's future**\
-`The Rangers got a strong return for Miller after they pivoted to Vladislav Gavrikov on the blue line.`\
-https://nytimes.com/athletic/6467067/2025/07/01/nhl-trade-contract-grades-miller-hurricanes-rangers/
 
