@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Senate Debate on Republicans’ Policy Bill Stretches Into Third Day**\
+``\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news
+
+**G.O.P. Toils to Lock Down Senate Votes as Debate on Policy Bill Enters Third Day**\
+`Republican leaders were pushing for a final vote to pass their marquee tax cut and domestic policy legislation, but had yet to resolve major issues after an all-night session of voting and negotiations.`\
+https://nytimes.com/2025/07/01/us/politics/senate-trump-bill.html
+
+**The New York Times International Edition in Print for Wednesday, July 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/01/todays-new-york-times-international-edition
+
 **Drone Rescues Stranded Person During Flood in China**\
 `As heavy rains battered southwestern China, drones were deployed to deliver relief supplies, disinfect flooded areas and airlift a trapped resident.`\
 https://nytimes.com/video/world/asia/100000010260496/drones-aid-in-china-flood-rescue.html

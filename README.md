@@ -1,3 +1,7 @@
+**Video Shows Drone Rescuing Stranded Man During Flood in China**\
+`Unmanned aerial vehicles are playing an increasing role in transporting supplies, and even people.`\
+https://nytimes.com/2025/07/01/world/asia/video-drone-rescue-flooding-china.html
+
 **Trump Administration Live Updates: Senate Debate on Republicans’ Policy Bill Stretches Into Third Day**\
 ``\
 https://nytimes.com/live/2025/07/01/us/trump-bill-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456678/2025/07/01/new-york-giants-roster-projectio
 **With Tillis Out, North Carolina’s Senate Race Will Draw Parties’ Firepower**\
 `A popular former Democratic governor, Roy Cooper, is expected to announce a bid this summer. The Republicans are banking on an endorsement by President Trump to clear their field.`\
 https://nytimes.com/2025/07/01/us/politics/north-carolina-senate-tillis-cooper.html
-
-**The Supreme Court’s Pro-Trump Opportunism Is Now Undeniable**\
-`A Supreme Court decision demonstrates a new degree of cimperiousness, seeming to co-sign the Trump administration’s contempt for the lower courts.`\
-https://nytimes.com/2025/07/01/opinion/supreme-court-trump.html
 
