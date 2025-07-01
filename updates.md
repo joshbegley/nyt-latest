@@ -1,3 +1,11 @@
+**New Yorkers Embraced Ranked-Choice Voting. Mamdani’s Win Proves It.**\
+`Here are five takeaways from New York City’s second experience with ranked-choice voting, and how it helped Zohran Mamdani secure a decisive victory.`\
+https://nytimes.com/2025/07/01/nyregion/ranked-choice-voting-nyc-mayor.html
+
+**Jurors in Sean Combs Trial Reach Verdict on All but One Count**\
+`The judge has told them to keep deliberating on a racketeering conspiracy charge after the jury said there were “unpersuadable opinions on both sides.”`\
+https://nytimes.com/2025/07/01/arts/music/sean-combs-diddy-trial-partial-verdict.html
+
 **Amid a tough stretch, Giants pick up manager Bob Melvin's option for 2026**\
 `Only the first two years of Melvin's three-year deal were guaranteed. Now he's in a secure place to try to steer his team out of a slump.`\
 https://nytimes.com/athletic/6466646/2025/07/01/sf-giants-bob-melvin-manager-option/

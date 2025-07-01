@@ -1,3 +1,11 @@
+**New Yorkers Embraced Ranked-Choice Voting. Mamdani’s Win Proves It.**\
+`Here are five takeaways from New York City’s second experience with ranked-choice voting, and how it helped Zohran Mamdani secure a decisive victory.`\
+https://nytimes.com/2025/07/01/nyregion/ranked-choice-voting-nyc-mayor.html
+
+**Jurors in Sean Combs Trial Reach Verdict on All but One Count**\
+`The judge has told them to keep deliberating on a racketeering conspiracy charge after the jury said there were “unpersuadable opinions on both sides.”`\
+https://nytimes.com/2025/07/01/arts/music/sean-combs-diddy-trial-partial-verdict.html
+
 **Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
 `Students said they had been overcharged for their educations as a result of incorrect data that they said the school had used to artificially inflate its ranking.`\
 https://nytimes.com/2025/07/01/nyregion/columbia-university-us-news-ranking.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6466425/2025/07/01/penguins-nhl-free-agency-rebuild
 **Judge Halts Mass Firings and Organizational Changes at H.H.S.**\
 `In an order on Tuesday, a judge found the Trump administration’s plans to drastically change the structure and mission of the Department of Health and Human Services was probably unlawful.`\
 https://nytimes.com/2025/07/01/us/politics/judge-ruling-health-department-layoffs.html
-
-**Wild bring back Nico Sturm on a 2-year, $4 million contract**\
-`Sturm, a two-time Stanley Cup champion, played parts of four seasons with the Wild, scoring 20 goals and 36 points in 111 games.`\
-https://nytimes.com/athletic/6465665/2025/07/01/wild-nico-sturm-signing/
-
-**Judge Dismisses Jay-Z’s Suit Against Lawyer He Said Extorted Him**\
-`Lawyers for the rapper had accused Tony Buzbee of making false assault claims. Another federal suit Jay-Z has filed against Mr. Buzbee and his client continues.`\
-https://nytimes.com/2025/07/01/arts/music/jay-z-tony-buzbee-lawsuit-dismissed.html
 
