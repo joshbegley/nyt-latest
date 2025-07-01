@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6459308/2025/07/01/transfers-man-utd-arsenal-liverp
 `Paetongtarn Shinawatra is accused of ethical lapses in a conversation with the Cambodian leader Hun Sen and has faced calls to resign.`\
 https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
 
+**How the Apollo space missions are inspiring America’s new F1 team**\
+`Cadillac will join the grid as F1’s 11th team in 2026. Luke Smith gets rare access to a team at the start of its journey`\
+https://nytimes.com/athletic/6462636/2025/07/01/cadillac-f1-new-team-tour-apollo-inspiration/
+
 **Word of the Day: woebegone**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/01/learning/word-of-the-day-woebegone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world
 **The New York Times in Print for Tuesday, July 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
-
-**Trump’s America Is Beginning to Look More Like China**\
-`In the great dance between the two rivals, it’s getting harder to tell which of them is leading and which is following.`\
-https://nytimes.com/2025/07/01/opinion/america-china-similarities-differences.html
 

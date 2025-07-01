@@ -1,3 +1,7 @@
+**How the Apollo space missions are inspiring America’s new F1 team**\
+`Cadillac will join the grid as F1’s 11th team in 2026. Luke Smith gets rare access to a team at the start of its journey`\
+https://nytimes.com/athletic/6462636/2025/07/01/cadillac-f1-new-team-tour-apollo-inspiration/
+
 **Novak Djokovic is a tennis mentor and sage for young stars. Then they try to beat him.**\
 `Djokovic sought advice from the tennis royalty that ruled when he arrived. Now he wants to be that person for the next generation.`\
 https://nytimes.com/athletic/6460800/2025/07/01/tennis-novak-djokovic-advice-mentorship-young-players/
