@@ -1,3 +1,15 @@
+**Concluding Part**\
+`Adam Aaronson and Michael Garbus make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2025/06/30/crosswords/daily-puzzle-2025-07-01.html
+
+**Why Steven Lorentz returned to Maple Leafs: 'To wear the Leaf with pride'**\
+`Pending unrestricted free agent winger signs a three-year extension with the Maple Leafs at an AAV of $1.35 million.`\
+https://nytimes.com/athletic/6464008/2025/06/30/maple-leafs-steven-lorentz-contract/
+
+**Map: 3.6-Magnitude Earthquake Strikes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/30/us/quake-northern-california-tracker.html
+
 **Map: 3.6-Magnitude Earthquake Strikes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/30/us/30wea-quake-tracker-northern-california-nyt66vwu.html
