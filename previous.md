@@ -1,3 +1,16 @@
+**Got Washington Wizards questions? Submit them for Josh Robbins’ mailbag**\
+`<p>What questions do you have about the Washington Wizards?</p>
+<p>Josh Robbins,<em> The Athletic</em>’s Wizards beat writer, wants to hear — and answer — your questions about the team, its roster and its rebuild.`\
+https://nytimes.com/athletic/6466117/2025/07/01/wizards-mailbag-submit-questions/
+
+**Ask The Times About New York City’s Mayoral Race**\
+`Have questions about New York City’s mayoral race or politics in the city? We want to hear them.`\
+https://nytimes.com/2025/07/01/nyregion/questions-nyc-mayor-race.html
+
+**Corey Perry signs 1-year contract with Los Angeles Kings**\
+`Perry scored 19 goals for the Edmonton Oilers in 2024-25, his 20th season in the NHL.`\
+https://nytimes.com/athletic/6463069/2025/07/01/corey-perry-la-kings-contract/
+
 **Besiktas announce negotiations with Roma over Abraham deal**\
 `The 27-year-old spent last season on loan at AC Milan, who chose not to make the move permanent.`\
 https://nytimes.com/athletic/6464911/2025/07/01/tammy-abraham-besiktas-roma-transfer/
@@ -25,16 +38,4 @@ https://nytimes.com/2025/07/01/nyregion/how-mamdani-won-campaign-mayor.html
 **Until Saturday: Conference names, ranked by accuracy**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6466030/2025/07/01/college-conference-realignment-names-until-saturday/
-
-**With 38 days to go before the 2025-26 season starts, Leicester City are rudderless**\
-`Ruud van Nistelrooy's belated sacking has left Leicester drifting aimlessly while fan disenchantment festers`\
-https://nytimes.com/athletic/6464868/2025/07/01/leicester-city-ownership-manager-van-nistelrooy/
-
-**Darren Waller, former Giants TE, coming out of retirement to join Dolphins**\
-`Waller's acquisition is another significant roster development made by the Dolphins, who traded Jalen Ramsey and Jonnu Smith this week.`\
-https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-giants-nfl-news/
-
-**Have Gay Rights Gone Too Far, or Not Far Enough?**\
-`Readers offer strong, sharply varied responses to Andrew Sullivan’s guest essay.`\
-https://nytimes.com/2025/07/01/opinion/gay-lgbtq-andrew-sullivan.html
 
