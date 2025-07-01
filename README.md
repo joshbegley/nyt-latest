@@ -1,3 +1,7 @@
+**Nickeil Alexander-Walker is on his way out, but Wolves are counting on continuity**\
+`Alexander-Walker's departure was expected, but one Minnesota transaction from Monday was a bit surprising.`\
+https://nytimes.com/athletic/6463390/2025/06/30/nickeil-alexander-walker-timberwolves-joe-ingles/
+
 **Blue Jackets circle back to Ivan Provorov after summer makeover stagnates**\
 `The changing markets gave a lot of leverage to Provorov, who agreed to a seven-year contract.`\
 https://nytimes.com/athletic/6464363/2025/06/30/blue-jackets-free-agency-provorov/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html
 **Trade grades: Can Michael Porter Jr. help Nets' rebuilding efforts?**\
 `This is a major shakeup to the core of the Nuggets — and a cost-effective one at that. Will it work?`\
 https://nytimes.com/athletic/6464093/2025/06/30/michael-porter-jr-nets-cameron-johnson-nuggets-nba-trade-grades/
-
-**Depth free-agency targets: The 12 best players on the secondary market**\
-`Players who were bought out or did not receive a qualifying offer can still be effective depth. Here are 12 possible reclamation projects.`\
-https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/
 
