@@ -1,3 +1,7 @@
+**Dolls, Girls and Dreams at Marc Jacobs**\
+`The 19 looks came bulbous and tapered in the designer’s latest collection.`\
+https://nytimes.com/2025/07/01/style/marc-jacobs-2026-runway.html
+
 **Wrexham sign Wales international Danny Ward**\
 `Ward, 32, rejoins the club where he came through the youth ranks before joining Liverpool.`\
 https://nytimes.com/athletic/6465479/2025/07/01/danny-ward-wrexham-transfer/
