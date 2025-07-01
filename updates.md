@@ -1,3 +1,11 @@
+**As Kevon Looney leaves the Warriors, so does the dynasty's backbone**\
+`Looney's greatest value to the Warriors came in times of desperation. Another pillar of the championship years is now gone.`\
+https://nytimes.com/athletic/6464922/2025/07/01/kevon-looney-warriors-backbone-pelicans-free-agency/
+
+**Barcelona's Fati completes loan move to Monaco**\
+`Monaco confirmed they have an option to buy the 22-year-old as part of the deal.`\
+https://nytimes.com/athletic/6465246/2025/07/01/barcelona-news-ansu-fati-monaco/
+
 **Thought Markets Were Volatile Already? Watch Out.**\
 `Stocks have rebounded, but the dollar is in a deep slump. Here’s what could go right (and very wrong) for investors.`\
 https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html

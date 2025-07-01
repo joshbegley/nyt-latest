@@ -1,3 +1,11 @@
+**Top Russian General Convicted in High-Profile Corruption Case**\
+`Timur Ivanov, a longtime deputy defense minister, was sentenced to 13 years in a penal colony, according to the Russian state news agency Tass.`\
+https://nytimes.com/2025/07/01/world/europe/russia-timur-ivanov-verdict.html
+
+**‘I Do Not See Rot. I See Rest.’:The Week 2 Winner of Our Summer Reading Contest**\
+`Alvin Su, 15, writes that summer doesn’t need to be a productivity contest for teens, but can, instead, be a quiet space for “magic to grow wild.”`\
+https://nytimes.com/2025/07/01/learning/i-do-not-see-rot-i-see-restthe-week-2-winner-of-our-summer-reading-contest.html
+
 **As Kevon Looney leaves the Warriors, so does the dynasty's backbone**\
 `Looney's greatest value to the Warriors came in times of desperation. Another pillar of the championship years is now gone.`\
 https://nytimes.com/athletic/6464922/2025/07/01/kevon-looney-warriors-backbone-pelicans-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6458497/2025/07/01/jhon-duran-transfer-fenerbahce/
 **Kyrou's no-trade clause kicks in; Carbonneau impresses at camp**\
 `Despite plenty of speculation around Jordan Kyrou in recent weeks, his no-trade clause officially kicked in Monday night.`\
 https://nytimes.com/athletic/6464121/2025/07/01/blues-kyrou-no-trade-clause-carbonneau-camp/
-
-**Cincinnati Bengals 2025 fan survey: How do you feel about the franchise's direction?**\
-`The offensive stars are signed but contract turmoil looms over the defense as the Bengals try to get back to the playoffs.`\
-https://nytimes.com/athletic/6445707/2025/07/01/cincinnati-bengals-2025-fan-survey/
-
-**Hawks' rapid rebuild around Trae Young comes full circle, so is he still Atlanta's future?**\
-`Trade rumors have surrounded Young for years. Now, the Hawks have built a roster optimized for him.`\
-https://nytimes.com/athletic/6464820/2025/07/01/hawks-rebuild-trae-young/
 

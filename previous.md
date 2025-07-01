@@ -1,3 +1,11 @@
+**As Kevon Looney leaves the Warriors, so does the dynasty's backbone**\
+`Looney's greatest value to the Warriors came in times of desperation. Another pillar of the championship years is now gone.`\
+https://nytimes.com/athletic/6464922/2025/07/01/kevon-looney-warriors-backbone-pelicans-free-agency/
+
+**Barcelona's Fati completes loan move to Monaco**\
+`Monaco confirmed they have an option to buy the 22-year-old as part of the deal.`\
+https://nytimes.com/athletic/6465246/2025/07/01/barcelona-news-ansu-fati-monaco/
+
 **Thought Markets Were Volatile Already? Watch Out.**\
 `Stocks have rebounded, but the dollar is in a deep slump. Here’s what could go right (and very wrong) for investors.`\
 https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6445707/2025/07/01/cincinnati-bengals-2025-fan-surv
 **Hawks' rapid rebuild around Trae Young comes full circle, so is he still Atlanta's future?**\
 `Trade rumors have surrounded Young for years. Now, the Hawks have built a roster optimized for him.`\
 https://nytimes.com/athletic/6464820/2025/07/01/hawks-rebuild-trae-young/
-
-**‘Definitely a frustrating year’: The first-round pick coping with a no-goal freshman season**\
-`The right-shot forward, who had three points in 36 games with Boston College last season, said it was a "good learning experience."`\
-https://nytimes.com/athletic/6463838/2025/07/01/bruins-dean-letourneau-boston-college/
-
-**Taylor Moton thinks he still has good years — and another contract — ahead of him**\
-`Moton's Ironman streak ended last season but the veteran is feeling better and ready to help Carolina to the playoffs.`\
-https://nytimes.com/athletic/6461796/2025/07/01/panthers-taylor-moton-ironman-offensive-line/
 
