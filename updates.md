@@ -1,3 +1,7 @@
+**Meet Jhon Arias - a novel football hero**\
+`The softly spoken Colombian winger has emerged as one of the stars of the Club World Cup, and was crucial to Fluminense's win over Inter`\
+https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world-cup/
+
 **What to Know About Ranked-Choice Results in the N.Y.C. Mayor’s Race**\
 `Since no candidate received 50 percent of the vote on Primary Day, the Board of Elections proceeded to ranked-choice tabulations, which will be released on Tuesday.`\
 https://nytimes.com/2025/07/01/nyregion/nyc-mayor-results-ranked-choice-voting.html
