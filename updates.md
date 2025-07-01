@@ -1,3 +1,7 @@
+**With quiet start to free agency, Senators GM Steve Staios doubles down on core**\
+`The pressure is on Ottawa's roster to take that next step after making the playoffs this season, as currently constructed.`\
+https://nytimes.com/athletic/6465880/2025/07/01/ottawa-senators-analysis-nhl-free-agency-2025/
+
 **Trump Faces the Biggest Test Yet of His Second-Term Political Power**\
 `If President Trump gets his domestic policy bill over the finish line, it will be a vivid demonstration of his continuing hold over the Republican Party.`\
 https://nytimes.com/2025/07/01/us/politics/trump-test-political-power.html
