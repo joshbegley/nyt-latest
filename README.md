@@ -1,3 +1,7 @@
+**With Mitch Marner, and without Alex Pietrangelo, how does Vegas' lineup look?**\
+`The Golden Knights will have stellar depth at forward but some questions on the blue line.`\
+https://nytimes.com/athletic/6464246/2025/06/30/golden-knights-marner-lineup/
+
 **Concluding Part**\
 `Adam Aaronson and Michael Garbus make their collaboration debut in the New York Times Crossword.`\
 https://nytimes.com/2025/06/30/crosswords/daily-puzzle-2025-07-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/30/us/california-environment-newsom-ceqa.html
 **A Saber-Rattling Musk Promises a New Political Party if the G.O.P. Bill Passes**\
 `The billionaire and former Trump adviser suggested that if the domestic policy bill passed, he would swiftly form a new “America Party” and back primary challenges to Republicans.`\
 https://nytimes.com/2025/06/30/us/politics/elon-musk-trump-bill-republicans.html
-
-**Caris LeVert, Pistons agree to terms on 2-year, $29 million deal: Source**\
-`Agreeing to terms on a contract with LeVert ensures the Pistons a source of second-unit scoring.`\
-https://nytimes.com/athletic/6464259/2025/06/30/pistons-caris-levert-contract-deal-hawks/
 
