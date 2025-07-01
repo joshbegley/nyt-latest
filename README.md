@@ -1,3 +1,11 @@
+**Bucks waiving Damian Lillard to make room to sign Myles Turner: Sources**\
+`The moves by general manager Jon Horst should make Milwaukee a top contender in the East.`\
+https://nytimes.com/athletic/6465715/2025/07/01/damian-lillard-waived-bucks-myles-turner-nba-free-agency/
+
+**Bruins trade for Victor Arvidsson, send fifth-round pick to Oilers**\
+`Arvidsson, 32, is entering the last season of his two-year, $8 million contract.`\
+https://nytimes.com/athletic/6465807/2025/07/01/victor-arvidsson-trade-bruins-oilers/
+
 **Hurricanes sign Logan Stankoven to 8-year, $48 million extension**\
 `Stankoven came to the Hurricanes in the Mikko Rantanen deal with the Stars at the trade deadline in March and fit Carolina's style well.`\
 https://nytimes.com/athletic/6465740/2025/07/01/hurricanes-logan-stankoven-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6451310/2025/07/01/nhl-free-agency-2025/
 **Devils re-signing Jake Allen to 5-year contract, taking top option off weak goalie market**\
 `Allen's extension carries a $1.8 million average annual value. He posted a .906 save percentage last season.`\
 https://nytimes.com/athletic/6438298/2025/07/01/jake-allen-devils-goalie-nhl-free-agency-2025/
-
-**Jimmy Swaggart, Passionate Televangelist Ousted by Scandal, Dies at 90**\
-`A fire-and-brimstone preacher, he reached millions and made millions in a global enterprise before tumbling from grace over his encounters with a prostitute.`\
-https://nytimes.com/2025/07/01/us/the-rev-jimmy-lee-swaggart-dead.html
-
-**Zheng Qinwen latest Wimbledon seed to fall after defeat to Katerina Siniakova**\
-`Zheng becomes the seventh women's seed to fall in the first round, and follows the shock exit of No. 3 Jessica Pegula.`\
-https://nytimes.com/athletic/6465706/2025/07/01/tennis-wimbledon-zheng-qinwen-katerina-siniakova/
 
