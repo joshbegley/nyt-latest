@@ -1,3 +1,15 @@
+**What to Know About Ranked-Choice Results in the N.Y.C. Mayor’s Race**\
+`Since no candidate received 50 percent of the vote on Primary Day, the Board of Elections proceeded to ranked-choice tabulations, which will be released on Tuesday.`\
+https://nytimes.com/2025/07/01/nyregion/nyc-mayor-results-ranked-choice-voting.html
+
+**With Etch a Sketches and Apples, Math Is Revealed**\
+`A new series for the Health and Science section aims to make complex topics easy to dissect, and maybe even help people ‘fall in love’ with math.`\
+https://nytimes.com/2025/07/01/insider/math-revealed.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/01/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
 `Welcome to the fifth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6459308/2025/07/01/transfers-man-utd-arsenal-liverpool/
