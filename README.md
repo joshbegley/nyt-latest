@@ -1,3 +1,7 @@
+**Trump Faces the Biggest Test Yet of His Second-Term Political Power**\
+`If President Trump gets his domestic policy bill over the finish line, it will be a vivid demonstration of his continuing hold over the Republican Party.`\
+https://nytimes.com/2025/07/01/us/politics/trump-test-political-power.html
+
 **Rangers send K'Andre Miller to Hurricanes in sign-and-trade for picks, prospect**\
 `The Rangers made seven first-round draft picks from 2012 to 2019. Miller was the last of those picks remaining with the organization.`\
 https://nytimes.com/athletic/6448389/2025/07/01/kandre-miller-trade-rangers-hurricanes-nhl-free-agency-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455903/2025/07/01/olivier-giroud-transfer-lille-fr
 **Storms Threaten to Bring Heavy Rain Across the Mid-Atlantic on Tuesday**\
 `Forecasters warned of flash flooding across Maryland, Pennsylvania and New Jersey.`\
 https://nytimes.com/2025/07/01/weather/flood-warnings-storms-maryland-pennsylvania.html
-
-**F.B.I. Moving Into Building That Housed U.S.A.I.D.**\
-`In his announcement, Kash Patel, the F.B.I. director, did not provide key details on the cost of the project or when employees would transition into the new headquarters.`\
-https://nytimes.com/2025/07/01/us/politics/fbi-headquarters-hoover-reagan-usaid.html
 
