@@ -1,3 +1,7 @@
+**Thought Markets Were Volatile Already? Watch Out.**\
+`Stocks have rebounded, but the dollar is in a deep slump. Here’s what could go right (and very wrong) for investors.`\
+https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html
+
 **Netanyahu Says He Plans to Meet With Trump Next Week**\
 `The Israeli prime minister’s planned visit to the United States comes as the cease-fire with Iran may create new momentum for a truce in Gaza.`\
 https://nytimes.com/2025/07/01/world/middleeast/netanyahu-israel-trump-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463838/2025/07/01/bruins-dean-letourneau-boston-co
 **Taylor Moton thinks he still has good years — and another contract — ahead of him**\
 `Moton's Ironman streak ended last season but the veteran is feeling better and ready to help Carolina to the playoffs.`\
 https://nytimes.com/athletic/6461796/2025/07/01/panthers-taylor-moton-ironman-offensive-line/
-
-**Frustrated Giants lose another game and another third baseman to injury**\
-`The Giants' 4-2 loss to the Diamondbacks at Chase Field marked their 12th in 17 games — a skid that seems more like a free fall.`\
-https://nytimes.com/athletic/6464845/2025/07/01/giants-injuries-christian-koss/
 
