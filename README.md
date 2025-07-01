@@ -16,7 +16,7 @@ https://nytimes.com/2025/07/01/us/politics/murkowski-republican-bill.html
 
 **Two Chinese Citizens Accused of Trying to Gather Information About U.S. Navy**\
 `The charges come as the Trump administration tries to aggressively confront China on a host of issues, including national security, trade and immigration.`\
-https://nytimes.com/2025/07/01/us/politics/chinese-citizens-counterintelligence-navy.html
+https://nytimes.com/2025/07/01/us/politics/chinese-citizens-counterintelligence-navy-charges.html
 
 **What Does President Trump’s New Perfume Smell Like?**\
 `The president announced a fragrance line called Victory 45-47. Each bottle costs almost $250.`\
