@@ -1,3 +1,7 @@
+**Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Source**\
+`The Wolves are also getting a future second-round pick and cash from the Hawks, according to a team source. `\
+https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-wolves/
+
 **Canada Resumes U.S. Trade Negotiations After Cancelling Digital Services Tax**\
 `Canada scrapped its controversial digital services tax after President Trump said he was suspending trade talks with Canada last week. President Emmanuel Macron of France criticized tariffs levied by powerful nations as “blackmail.”`\
 https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macron.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/hers/gummies/from-roots-to-ritual-meet-the-biotin-m
 **Ty Jerome, Grizzlies agree to 3-year, $28 million contract: Sources**\
 `A Sixth Man of the Year candidate in 2024-25, Jerome gives the Grizzlies an instant-offense option off their bench.`\
 https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
-
-**Wimbledon day 1 recap: Hottest opening day brings upset fever as Alcaraz escapes defeat**\
-`This is The Athletic's Grand Slam Briefing, a newsletter with daily updates from Wimbledon.`\
-https://nytimes.com/athletic/6463749/2025/06/30/wimbledon-tennis-recap-day-one/
 

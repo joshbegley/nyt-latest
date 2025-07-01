@@ -1,3 +1,11 @@
+**Canada Resumes U.S. Trade Negotiations After Cancelling Digital Services Tax**\
+`Canada scrapped its controversial digital services tax after President Trump said he was suspending trade talks with Canada last week. President Emmanuel Macron of France criticized tariffs levied by powerful nations as “blackmail.”`\
+https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macron.html
+
+**Bush, Obama and Bono Commend USAID Staff Members on Their Last Day**\
+`Two ex-presidents and a rock star thanked the outgoing workers of a doomed agency.`\
+https://nytimes.com/2025/06/30/us/politics/usaid-staff-obama-bush-bono.html
+
 **Tyus Jones, Orlando Magic agree to 1-year, $7 million contract: Source**\
 `Magic officials hope Jones will improve the team’s 3-point shooting and point-guard depth. `\
 https://nytimes.com/athletic/6464133/2025/06/30/tyus-jones-orlando-magic-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
 **Wimbledon day 1 recap: Hottest opening day brings upset fever as Alcaraz escapes defeat**\
 `This is The Athletic's Grand Slam Briefing, a newsletter with daily updates from Wimbledon.`\
 https://nytimes.com/athletic/6463749/2025/06/30/wimbledon-tennis-recap-day-one/
-
-**Juniper Fire Spreads in County East of Los Angeles**\
-`The blaze began on Monday morning and swiftly burned more than 600 acres in Riverside County, Calif., prompting an evacuation order in the area, the authorities said.`\
-https://nytimes.com/video/us/100000010260113/juniper-fire-california.html
-
-**How the Brooklyn Bridge Ship Disaster Unfolded**\
-`An initial report from the National Transportation Safety Board described the moments before a Mexican Navy ship crashed into the Brooklyn Bridge.`\
-https://nytimes.com/2025/06/30/nyregion/brooklyn-mexican-naval-ship-crash-report.html
 

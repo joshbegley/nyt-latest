@@ -1,3 +1,11 @@
+**Canada Resumes U.S. Trade Negotiations After Cancelling Digital Services Tax**\
+`Canada scrapped its controversial digital services tax after President Trump said he was suspending trade talks with Canada last week. President Emmanuel Macron of France criticized tariffs levied by powerful nations as “blackmail.”`\
+https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macron.html
+
+**Bush, Obama and Bono Commend USAID Staff Members on Their Last Day**\
+`Two ex-presidents and a rock star thanked the outgoing workers of a doomed agency.`\
+https://nytimes.com/2025/06/30/us/politics/usaid-staff-obama-bush-bono.html
+
 **Tyus Jones, Orlando Magic agree to 1-year, $7 million contract: Source**\
 `Magic officials hope Jones will improve the team’s 3-point shooting and point-guard depth. `\
 https://nytimes.com/athletic/6464133/2025/06/30/tyus-jones-orlando-magic-free-agency/
