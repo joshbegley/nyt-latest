@@ -1,4 +1,8 @@
-**Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Source**\
+**Caris LeVert, Pistons agree to terms on 2-year, $29 million deal: Source**\
+`Agreeing to terms on a contract with LeVert ensures the Pistons a source of second-unit scoring.`\
+https://nytimes.com/athletic/6464259/2025/06/30/pistons-caris-levert-contract-deal-hawks/
+
+**Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Sources**\
 `The Wolves are also getting a future second-round pick and cash from the Hawks, according to a team source. `\
 https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-wolves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463929/2025/06/30/deandre-ayton-portlant-trail-bla
 **From Roots to Ritual: Meet the Biotin + Minoxidil Gummy through Hers**\
 `The Minoxidil + Biotin Gummy through Hers is the first-ever prescription hair regrowth gummy1, a major step forward in delivering the convenient, personalized health solutions women deserve.`\
 https://nytimes.com/paidpost/hers/gummies/from-roots-to-ritual-meet-the-biotin-minoxidil-gummy-through-hers.html
-
-**Ty Jerome, Grizzlies agree to 3-year, $28 million contract: Sources**\
-`A Sixth Man of the Year candidate in 2024-25, Jerome gives the Grizzlies an instant-offense option off their bench.`\
-https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
 

@@ -1,3 +1,11 @@
+**Caris LeVert, Pistons agree to terms on 2-year, $29 million deal: Source**\
+`Agreeing to terms on a contract with LeVert ensures the Pistons a source of second-unit scoring.`\
+https://nytimes.com/athletic/6464259/2025/06/30/pistons-caris-levert-contract-deal-hawks/
+
+**Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Sources**\
+`The Wolves are also getting a future second-round pick and cash from the Hawks, according to a team source. `\
+https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-wolves/
+
 **Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Source**\
 `The Wolves are also getting a future second-round pick and cash from the Hawks, according to a team source. `\
 https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-wolves/
