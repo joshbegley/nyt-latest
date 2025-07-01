@@ -1,3 +1,16 @@
+**Storms Threaten to Bring Heavy Rain Across the Mid-Atlantic on Tuesday**\
+`Forecasters warned of flash flooding across Maryland, Pennsylvania and New Jersey.`\
+https://nytimes.com/2025/07/01/weather/flood-warnings-storms-maryland-pennsylvania.html
+
+**F.B.I. Moving Into Building That Housed U.S.A.I.D.**\
+`In his announcement, Kash Patel, the F.B.I. director, did not provide key details on the cost of the project or when employees would transition into the new headquarters.`\
+https://nytimes.com/2025/07/01/us/politics/fbi-headquarters-hoover-reagan-usaid.html
+
+**The Maple Leafs still have one very large hole to fill this offseason**\
+`Other than Mitch Marner's exit, this was easily the quietest start to free agency for the Maple Leafs in recent memory.
+`\
+https://nytimes.com/athletic/6466764/2025/07/01/maple-leafs-nhl-free-agency-offseason/
+
 **The Maple Leafs still have one very large hole to fill this offseason**\
 `Other than Mitch Marner's exit, this was easily the quietest start to free agency for the Maple Leafs in recent memory.
 `\

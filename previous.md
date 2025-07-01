@@ -1,3 +1,11 @@
+**Storms Threaten to Bring Heavy Rain Across the Mid-Atlantic on Tuesday**\
+`Forecasters warned of flash flooding across Maryland, Pennsylvania and New Jersey.`\
+https://nytimes.com/2025/07/01/weather/flood-warnings-storms-maryland-pennsylvania.html
+
+**F.B.I. Moving Into Building That Housed U.S.A.I.D.**\
+`In his announcement, Kash Patel, the F.B.I. director, did not provide key details on the cost of the project or when employees would transition into the new headquarters.`\
+https://nytimes.com/2025/07/01/us/politics/fbi-headquarters-hoover-reagan-usaid.html
+
 **Heavy Rains Bring Flash Flood Warnings to Mid-Atlantic**\
 `Severe weather across Maryland, Pennsylvania and New Jersey on Tuesday led to flight cancellations, power outages and flash flood warnings.`\
 https://nytimes.com/video/weather/100000010262335/extreme-weather-rain-storms-east-coast.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/07/01/us/california-national-guard-trump.html
 **Pardoned Jan. 6 Rioter Who Threatened Police Joins Justice Dept.**\
 `The pardoned rioter, a former F.B.I. agent who was charged with encouraging the mob that stormed the Capitol, is a counselor to Ed Martin, the director of the so-called weaponization committee.`\
 https://nytimes.com/2025/07/01/us/politics/justice-department-rioter-weaponization.html
-
-**Sophia Wilson, Trinity Rodman headline NWSL's class of free agents**\
-`Other notable free agents include Gotham’s Midge Purce, Kansas City Current’s Lo’Eau LaBonta and North Carolina Courage’s Casey Murphy.`\
-https://nytimes.com/athletic/6466827/2025/07/01/sophia-wilson-trinity-rodman-nwsl-free-agents/
-
-**Wimbledon recap: Grand Slam record as seeds fall across the draws**\
-`23 Wimbledon seeds have exited the first round, with a record number on the men's side.`\
-https://nytimes.com/athletic/6465084/2025/07/01/tennis-wimbledon-recap-seeds-record/
 
