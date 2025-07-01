@@ -1,3 +1,7 @@
+**Transfer spend and success: Do big fees really correlate with winning?**\
+`Chelsea have spent roughly £5m per Premier League point since their 2022 takeover, compared to just over £1m by Brentford since promotion`\
+https://nytimes.com/athletic/6450705/2025/07/01/transfer-fees-correlate-success/
+
 **Bravo for $2 hot dogs. Boo for $19 beers. The cost of food and drink at the Club World Cup**\
 `Our reporters sampled concessions at the Club World Cup stadiums to see just how costly it is`\
 https://nytimes.com/athletic/6455861/2025/07/01/bravo-for-2-hot-dogs-boo-for-19-beers-the-cost-of-food-and-drink-at-the-club-world-cup/

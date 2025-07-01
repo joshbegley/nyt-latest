@@ -1,3 +1,7 @@
+**Transfer spend and success: Do big fees really correlate with winning?**\
+`Chelsea have spent roughly £5m per Premier League point since their 2022 takeover, compared to just over £1m by Brentford since promotion`\
+https://nytimes.com/athletic/6450705/2025/07/01/transfer-fees-correlate-success/
+
 **Bravo for $2 hot dogs. Boo for $19 beers. The cost of food and drink at the Club World Cup**\
 `Our reporters sampled concessions at the Club World Cup stadiums to see just how costly it is`\
 https://nytimes.com/athletic/6455861/2025/07/01/bravo-for-2-hot-dogs-boo-for-19-beers-the-cost-of-food-and-drink-at-the-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/pageoneplus/corrections-july-1-2025.html
 **Full Time: Your Euro 2025 cheat sheet**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6464574/2025/06/30/euro-2025-guide-uswnt-ireland-full-time/
-
-**Nickeil Alexander-Walker is on his way out, but Wolves are counting on continuity**\
-`Alexander-Walker's departure was expected, but one Minnesota transaction from Monday was a bit surprising.`\
-https://nytimes.com/athletic/6463390/2025/06/30/nickeil-alexander-walker-timberwolves-joe-ingles/
 
