@@ -1,3 +1,11 @@
+**Knicks set for second interview with Mike Brown, Dawn Staley not considered finalist**\
+`The Knicks also reached out South Carolina women's coach Dawn Staley, but she is currently not considered a finalist, league sources said.`\
+https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
+
+**Dolls vs. Real Girls at Marc Jacobs**\
+`The 19 looks came bulbous and tapered in the designer’s latest collection.`\
+https://nytimes.com/2025/07/01/style/marc-jacobs-2026-runway.html
+
 **Villa complete signing of forward Zepiqueno Redmond**\
 `Signing the Dutch youth international is part of Villa's strategy to recruit talents at a low cost but with a high ceiling.`\
 https://nytimes.com/athletic/6448464/2025/07/01/aston-villa-transfer-news-zepiqueno-redmond/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6464922/2025/07/01/kevon-looney-warriors-backbone-p
 **Barcelona's Fati completes loan move to Monaco**\
 `Monaco confirmed they have an option to buy the 22-year-old as part of the deal.`\
 https://nytimes.com/athletic/6465246/2025/07/01/barcelona-news-ansu-fati-monaco/
-
-**Thought Markets Were Volatile Already? Watch Out.**\
-`Stocks have rebounded, but the dollar is in a deep slump. Here’s what could go right (and very wrong) for investors.`\
-https://nytimes.com/2025/07/01/business/dealbook/2025-markets-outlook.html
-
-**Netanyahu Says He Plans to Meet With Trump Next Week**\
-`The Israeli prime minister’s planned visit to the United States comes as the cease-fire with Iran may create new momentum for a truce in Gaza.`\
-https://nytimes.com/2025/07/01/world/middleeast/netanyahu-israel-trump-meeting.html
 
