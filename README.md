@@ -1,3 +1,11 @@
+**Concluding Part**\
+`Adam Aaronson and Michael Garbus make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2025/06/30/crosswords/daily-puzzle-2025-07-01.html
+
+**Why Steven Lorentz returned to Maple Leafs: 'To wear the Leaf with pride'**\
+`Pending unrestricted free agent winger signs a three-year extension with the Maple Leafs at an AAV of $1.35 million.`\
+https://nytimes.com/athletic/6464008/2025/06/30/maple-leafs-steven-lorentz-contract/
+
 **Map: 3.6-Magnitude Earthquake Strikes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/30/us/quake-northern-california-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/30/us/politics/elon-musk-trump-bill-republicans.html
 **Caris LeVert, Pistons agree to terms on 2-year, $29 million deal: Source**\
 `Agreeing to terms on a contract with LeVert ensures the Pistons a source of second-unit scoring.`\
 https://nytimes.com/athletic/6464259/2025/06/30/pistons-caris-levert-contract-deal-hawks/
-
-**Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Sources**\
-`The Wolves are also getting a future second-round pick and cash from the Hawks, according to a team source. `\
-https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-wolves/
-
-**Canada Resumes U.S. Trade Negotiations After Cancelling Digital Services Tax**\
-`Canada scrapped its controversial digital services tax after President Trump said he was suspending trade talks with Canada last week. President Emmanuel Macron of France criticized tariffs levied by powerful nations as “blackmail.”`\
-https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macron.html
 
