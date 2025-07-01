@@ -1,3 +1,19 @@
+**Would Brock Boeser be worth the price for the Bruins? 8 alternatives in a closing market**\
+`The market is limited after most of the top targets re-signed on Monday. Who's left? Here are some targets for Boston GM Don Sweeney.`\
+https://nytimes.com/athletic/6465383/2025/07/01/bruins-free-agency-boeser-granlund-suter/
+
+**In an Attack at Sunset, Israelis Set a Palestinian Village Ablaze**\
+`The violence last week in Kafr Malik, in the West Bank, comes amid a surge in assaults by Israeli settlers. It also set off a chain of violence in the area.`\
+https://nytimes.com/2025/07/01/world/middleeast/israel-west-bank-palestinians-attack.html
+
+**Arsenal confirm signing of Arrizabalaga from Chelsea**\
+`Arrizabalaga departs Stamford Bridge seven years after signing from Athletic Club in a deal worth £71.6m ($96.9m).`\
+https://nytimes.com/athletic/6410283/2025/07/01/arsenal-kepa-arrizabalaga-chelsea/
+
+**Knicks set for second interview with Mike Brown, Dawn Staley not considered finalist**\
+`In addition, New York is considering bringing back both James Borrego and Micah Nori for second interviews, multiple league sources said.`\
+https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
+
 **Dolls, Girls and Dreams at Marc Jacobs**\
 `The 19 looks came bulbous and tapered in the designer’s latest collection.`\
 https://nytimes.com/2025/07/01/style/marc-jacobs-2026-runway.html
