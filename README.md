@@ -1,3 +1,11 @@
+**Richard A. Boucher, Veteran State Department Spokesman, Dies at 73**\
+`Working for six secretaries of state, he was known for explaining and defending U.S. foreign policy in a noncombative tone, without interjecting his own opinion.`\
+https://nytimes.com/2025/07/01/us/politics/richard-a-boucher-dead.html
+
+**NHL contract grades: Mikael Granlund is pricey but sensible for the building Ducks**\
+`The Ducks add another veteran as they attempt to emerge from their rebuild.`\
+https://nytimes.com/athletic/6465817/2025/07/01/nhl-contract-grades-mikael-granlund-ducks/
+
 **Columbia Cyberattack Appears Politically Motivated, University Says**\
 `The attacker, described as a “hacktivist,” shut down computer systems and stole student data last week.`\
 https://nytimes.com/2025/07/01/nyregion/columbia-university-hacker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/briefing/trump-senate-india-heat-thailand-prime-m
 **Did the ‘Deep State’ Invent the U.F.O. Craze?**\
 `Toward a unified theory of an extremely weird situation.`\
 https://nytimes.com/2025/07/01/opinion/pentagon-ufo.html
-
-**The Briefing: Real Madrid 1 Juventus 0 - Gonzalo keeps shining, Mbappe's return and a fine Alexander-Arnold cross**\
-`Alonso's side are into the quarter-finals after yet another goal from 21-year-old striker Gonzalo Garcia`\
-https://nytimes.com/athletic/6466430/2025/07/01/real-madrid-1-juventus-0-gonzalo-mbappe-alexander-arnold/
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Max, AMC+ and More in July**\
-`A “Jaws” documentary, “Sinners,” “Washington Black” and the low-budget “Monster Island” arrive, and “Foundation” and “Star Trek: Strange New Worlds” return.`\
-https://nytimes.com/2025/07/01/arts/television/movies-tv-shows-july-2025-streaming.html
 
