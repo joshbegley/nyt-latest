@@ -1,3 +1,7 @@
+**Anne Merriman, ‘Mother of Palliative Care’ in Uganda, Dies at 90**\
+`A medical doctor and former nun, she found an affordable way to expand palliative care in the developing world, bringing pain relief to poor, terminally ill patients.`\
+https://nytimes.com/2025/07/01/world/africa/anne-merriman-dead.html
+
 **Kristi Noem raises prospect of prosecuting CNN over ICE app story.**\
 `The remarks by the homeland security secretary`\
 https://nytimes.com/live/2025/07/01/us/trump-bill-news/kristi-noem-raises-prospect-of-prosecuting-cnn-over-ice-app-story
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6466624/2025/07/01/emma-hayes-uswnt-process/
 https://nytimes.com/2025/07/01/nyregion/ranked-choice-voting-nyc-mayor.html
 
 **Jurors in Sean Combs Trial Reach Verdict on All but One Count**\
-`The judge is considering having the jury continue to deliberate on a racketeering conspiracy charge after it said there were “unpersuadable opinions on both sides.”`\
+`The judge decided the jury should keep deliberating on a racketeering conspiracy charge after it said there were “unpersuadable opinions on both sides.”`\
 https://nytimes.com/2025/07/01/arts/music/sean-combs-diddy-trial-partial-verdict.html
-
-**Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
-`Students said they had been overcharged for their educations as a result of incorrect data that they said the school had used to artificially inflate its ranking.`\
-https://nytimes.com/2025/07/01/nyregion/columbia-university-us-news-ranking.html
 
