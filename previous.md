@@ -1,3 +1,15 @@
+**Trump’s Policy Bill Could Put the U.S. Further Behind China**\
+`Republicans’ tax and policy bill could give China a bigger lead in the race to develop renewable energy technologies.`\
+https://nytimes.com/2025/07/01/climate/china-climate-united-states.html
+
+**The Role of Cindy Sherman Will Be Played by Cindy Sherman**\
+`The pioneering self-portrait artist discusses working alone, finding her doppelgängers and selling her first prints for less than $50.`\
+https://nytimes.com/2025/07/01/t-magazine/cindy-sherman-hauser-wirth-menorca.html
+
+**David R. Slavitt, Poet and Critic With a Side Gig in Pulp Fiction, Dies at 90**\
+`He wrote more than 130 books, mostly collections of poetry and translations of classics, as well as lowbrow novels under a pen name.`\
+https://nytimes.com/2025/07/01/books/david-r-slavitt-dead.html
+
 **Murkowski Casts Decisive Vote for G.O.P. Policy Bill, Making an ‘Agonizing’ Choice**\
 `The Alaska Republican, a frequent critic of the president who is often a swing vote, acknowledged the bill would harm Americans but backed it after winning carve outs for her state.`\
 https://nytimes.com/2025/07/01/us/politics/murkowski-republican-bill.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6466319/2025/07/01/world-cup-2026-security-bill-sen
 **USWNT's Yohannes to join OL Lyonnes from Ajax**\
 `The 18-year-old USWNT midfielder is expected to finalise personal terms with the French champions in the coming days.`\
 https://nytimes.com/athletic/6423942/2025/07/01/lily-yohannes-uswnt-transfer-lyon/
-
-**Denmark Begins Drafting Women as Russian Threat Looms**\
-`The Nordic country for the first time has extended a lottery for compulsory military service to women in its latest move to expand its armed forces.`\
-https://nytimes.com/2025/07/01/world/europe/denmark-military-draft-women-russia.html
-
-**gws-great-gatsby-long-island-tour**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/great-gatsby-long-island-tour
-
-**Brighton goalkeeper Beadle joins Birmingham on loan**\
-`Beadle will have another campaign in the Championship to aid his development after helping England win the under-21 Euros last month.`\
-https://nytimes.com/athletic/6466314/2025/07/01/brighton-james-beadle-transfer-birmingham/
 
