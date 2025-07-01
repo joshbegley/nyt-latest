@@ -1,3 +1,7 @@
+**What’s in the Trump Policy Bill?**\
+`We take a closer look at some less discussed provisions.`\
+https://nytimes.com/2025/07/01/briefing/trump-policy-bill.html
+
 **British Man, 92, Receives Life Sentence for 1967 Rape and Murder**\
 `Ryland Headley was convicted this week in the killing of 75-year-old Louisa Dunne. The police used DNA evidence to solve what had been one of Britain’s oldest cold cases.`\
 https://nytimes.com/2025/07/01/world/europe/cold-case-bristol-murder-louisa-dunne.html
