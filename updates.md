@@ -1,3 +1,7 @@
+**What Does President Trump’s New Perfume Smell Like?**\
+`The president announced a fragrance line called Victory 45-47. Each bottle costs almost $250.`\
+https://nytimes.com/2025/07/01/style/trump-fragrances-victory-45-47.html
+
 **Shell Oil Company - Headline**\
 `Summary`\
 https://nytimes.com/paidpost/shell-oil-company/shell-ad-post/shell-oil-company-headline.html
