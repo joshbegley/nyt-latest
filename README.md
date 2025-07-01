@@ -1,40 +1,41 @@
-**The Senate Muscled Through Trump’s Big Policy Bill**\
-`Also, heat waves are punishing India. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/07/01/briefing/senate-trump-policy-bill-ai-scrapers.html
+**Heavy Rains Bring Flash Flood Warnings to Mid-Atlantic**\
+`Severe weather across Maryland, Pennsylvania and New Jersey on Tuesday led to flight cancellations, power outages and flash flood warnings.`\
+https://nytimes.com/video/weather/100000010262335/extreme-weather-rain-storms-east-coast.html
 
-**Canadiens have short-term holes, but their long-term goal seems more achievable**\
-`The addition of Noah Dobson and Zachary Bolduc has added talent to the Canadiens' young core and made the team significantly younger. `\
-https://nytimes.com/athletic/6466847/2025/07/01/canadiens-free-agency-dvorak-bolduc-armia-rebuild/
+**Gonzalo Garcia: 'Raul messages me after every game, the comparisons are a great compliment'**\
+`Gonzalo has been the breakout player for Real Madrid during the Club World Cup, scoring three goals in four appearances.`\
+https://nytimes.com/athletic/6466943/2025/07/01/gonzalo-garcia-real-madrid-raul/
 
-**Richard A. Boucher, Veteran State Department Spokesman, Dies at 73**\
-`Working for six secretaries of state, he was known for explaining and defending U.S. foreign policy in a noncombative tone, without interjecting his own opinion.`\
-https://nytimes.com/2025/07/01/us/politics/richard-a-boucher-dead.html
+**On Pivotal Day for His Bill, Trump Leaves Washington for ‘Alligator Alcatraz’**\
+`President Trump’s visit to the migrant detention center in the Everglades was meant to highlight the issue that binds his party to him more than anything else — immigration.`\
+https://nytimes.com/2025/07/01/us/elections/trump-bill-alligator-alcatraz.html
 
-**NHL contract grades: Mikael Granlund is pricey but sensible for the building Ducks**\
-`The Ducks add another veteran as they attempt to emerge from their rebuild.`\
-https://nytimes.com/athletic/6465817/2025/07/01/nhl-contract-grades-mikael-granlund-ducks/
+**Penn Agrees to Limit Participation of Transgender Athletes**\
+`In a deal with the Trump administration, the University of Pennsylvania will not allow transgender women to participate in women’s sports.`\
+https://nytimes.com/2025/07/01/us/penn-title-ix-transgender-swimmer-trump.html
 
-**Columbia Cyberattack Appears Politically Motivated, University Says**\
-`The attacker, described as a “hacktivist,” shut down computer systems and stole student data last week.`\
-https://nytimes.com/2025/07/01/nyregion/columbia-university-hacker.html
+**We’ve Never Seen Health Care Cuts This Big**\
+`Over 17 million Americans could lose their insurance or Medicaid as a result of moves by Republicans.`\
+https://nytimes.com/2025/07/01/opinion/medicare-republican-bill-policy.html
 
-**La Liga fixtures 2025-26: Key dates for season including El Clasico**\
-`La Liga's fixture list for the upcoming season confirms Barcelona will play their first three matches of the league season away from home.`\
-https://nytimes.com/athletic/6466721/2025/07/01/la-liga-fixtures-real-madrid-barcelona-clasico/
+**The Maple Leafs still have one very large hole to fill this offseason**\
+`Other than Mitch Marner's exit, this was easily the quietest start to free agency for the Maple Leafs in recent memory.
+`\
+https://nytimes.com/athletic/6466764/2025/07/01/maple-leafs-nhl-free-agency-offseason/
 
-**Rangers extend forward Will Cuylle for 2 years, $3.9 million annually**\
-`Along with showing offensive promise this season, Cuylle brought a physical edge and became one of the team's penalty killers.`\
-https://nytimes.com/athletic/6463326/2025/07/01/rangers-will-cuylle-nhl-free-agency-2025/
+**Trump Pulls Back 150 Guard Troops From Federal Duties in California**\
+`The Trump administration sent the soldiers back to state command, allowing them to return to firefighting work. Thousands remain under federal control.`\
+https://nytimes.com/2025/07/01/us/california-national-guard-trump.html
 
-**Sabres sign Ryan McLeod to 4-year, $20 million contract extension**\
-`McLeod had a career season with 20 goals and 53 points playing a middle-six role for the Sabres.`\
-https://nytimes.com/athletic/6466888/2025/07/01/sabres-ryan-mcleod-contract-extension/
+**Pardoned Jan. 6 Rioter Who Threatened Police Joins Justice Dept.**\
+`The pardoned rioter, a former F.B.I. agent who was charged with encouraging the mob that stormed the Capitol, is a counselor to Ed Martin, the director of the so-called weaponization committee.`\
+https://nytimes.com/2025/07/01/us/politics/justice-department-rioter-weaponization.html
 
-**Anne Merriman, ‘Mother of Palliative Care’ in Uganda, Dies at 90**\
-`A medical doctor and former nun, she found an affordable way to expand palliative care in the developing world, bringing pain relief to poor, terminally ill patients.`\
-https://nytimes.com/2025/07/01/world/africa/anne-merriman-dead.html
+**Sophia Wilson, Trinity Rodman headline NWSL's class of free agents**\
+`Other notable free agents include Gotham’s Midge Purce, Kansas City Current’s Lo’Eau LaBonta and North Carolina Courage’s Casey Murphy.`\
+https://nytimes.com/athletic/6466827/2025/07/01/sophia-wilson-trinity-rodman-nwsl-free-agents/
 
-**Kristi Noem raises prospect of prosecuting CNN over ICE app story.**\
-`The remarks by the homeland security secretary`\
-https://nytimes.com/live/2025/07/01/us/trump-bill-news/kristi-noem-raises-prospect-of-prosecuting-cnn-over-ice-app-story
+**Wimbledon recap: Grand Slam record as seeds fall across the draws**\
+`23 Wimbledon seeds have exited the first round, with a record number on the men's side.`\
+https://nytimes.com/athletic/6465084/2025/07/01/tennis-wimbledon-recap-seeds-record/
 
