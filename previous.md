@@ -1,3 +1,11 @@
+**The Pulse: Free agency’s 2 winners**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6462943/2025/07/01/panthers-hawks-nba-nhl-free-agency-the-pulse/
+
+**The supersized Rockets, a potential Giannis suitor and more Day 1 NBA free-agency thoughts**\
+`It did not take long for much of the NBA market to clear out. And does Houston plan on playing any guards this season?`\
+https://nytimes.com/athletic/6464849/2025/07/01/nba-free-agency-has-been-good-for-the-middle-class-and-more-day-1-thoughts/
+
 **Chelsea to sign Lyon defender Carpenter in swap deal for Lawrence**\
 `Carpenter is expected to sign a three-year deal while Lawrence will return to France after two seasons in west London.`\
 https://nytimes.com/athletic/6452775/2025/07/01/ellie-carpenter-chelsea-lyon-transfer-ashley-lawrence/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6464659/2025/07/01/wnba-expansion-problems/
 **Steve Bannon’s Battle for the Soul of MAGA**\
 `The former White House chief strategist speaks about the threats he sees to the political movement that formed around Donald J. Trump.`\
 https://nytimes.com/2025/07/01/podcasts/the-daily/steve-bannon-interview-maga.html
-
-**Cloudflare Introduces Default Blocking of A.I. Data Scrapers**\
-`The tech company’s customers can automatically block A.I. companies from exploiting their websites, it said, as it moves to protect original content online.`\
-https://nytimes.com/2025/07/01/technology/cloudflare-introduces-default-blocking-of-ai-data-scrapers.html
-
-**‘Horror Show’ at Detention Facility, and the Dollar’s Big Drop**\
-`Plus, three new teams for the WNBA.`\
-https://nytimes.com/2025/07/01/podcasts/the-headlines/migrant-detention-facility-dollar-big-drop-wnba.html
 
