@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`Welcome to the fifth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6459308/2025/07/01/transfers-man-utd-arsenal-liverpool/
+
 **Thai Prime Minister Is Suspended in Fallout From Cambodia Dispute**\
 `Paetongtarn Shinawatra is accused of ethical lapses in a conversation with the Cambodian leader Hun Sen and has faced calls to resign.`\
 https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
