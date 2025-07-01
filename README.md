@@ -1,3 +1,11 @@
+**Besiktas announce negotiations with Roma over Abraham deal**\
+`The 27-year-old spent last season on loan at AC Milan, who chose not to make the move permanent.`\
+https://nytimes.com/athletic/6464911/2025/07/01/tammy-abraham-besiktas-roma-transfer/
+
+**Lucian Leape, Whose Work Spurred Patient Safety in Medicine, Dies at 94**\
+`Despite resistance from the medical establishment, he found systemic ways to reduce errors, paving the way for a global standard. Thousands of lives have been saved.`\
+https://nytimes.com/2025/07/01/health/lucian-leape-dead.html
+
 **Brock Boeser staying with Canucks, agrees to 7-year, $50.75 million contract**\
 `One of the best goal-scoring wingers available on the free-agent market, Boeser is staying in Vancouver for $7.25 million per year.`\
 https://nytimes.com/athletic/6453839/2025/07/01/brock-boeser-canucks-nhl-free-agency-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-gia
 **Have Gay Rights Gone Too Far, or Not Far Enough?**\
 `Readers offer strong, sharply varied responses to Andrew Sullivan’s guest essay.`\
 https://nytimes.com/2025/07/01/opinion/gay-lgbtq-andrew-sullivan.html
-
-**Aquarelle Brings the European Seaside to Avenue B**\
-`The Paris Café returns to the Seaport district, Sailor’s Choice offers another vintage boat for dinner and more restaurant news.`\
-https://nytimes.com/2025/07/01/dining/nyc-restaurant-news.html
-
-**Dallas Stars hire Glen Gulutzan for second stint as head coach**\
-`Gulutzan coached the Stars from 2011 to '13 and also had a two-year run with the Calgary Flames.`\
-https://nytimes.com/athletic/6441923/2025/07/01/stars-coach-glen-gulutzan/
 
