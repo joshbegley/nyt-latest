@@ -1,3 +1,7 @@
+**Villa complete signing of forward Zepiqueno Redmond**\
+`Signing the Dutch youth international is part of Villa's strategy to recruit talents at a low cost but with a high ceiling.`\
+https://nytimes.com/athletic/6448464/2025/07/01/aston-villa-transfer-news-zepiqueno-redmond/
+
 **Algerian Court Upholds 5-Year Sentence for Writer, Angering France**\
 `The conviction of Boualem Sansal, an outspoken French and Algerian writer, has worsened tensions between the countries.`\
 https://nytimes.com/2025/07/01/world/africa/algeria-boualem-sansal-france.html
