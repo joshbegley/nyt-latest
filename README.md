@@ -1,3 +1,7 @@
+**Thai Prime Minister Is Suspended in Fallout From Cambodia Dispute**\
+`Paetongtarn Shinawatra is accused of ethical lapses in a conversation with the Cambodian leader Hun Sen and has faced calls to resign.`\
+https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
+
 **Word of the Day: woebegone**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/01/learning/word-of-the-day-woebegone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456172/2025/07/01/the-wait-goes-on-uefa-delays-dra
 **How Saudi Arabia's Al Hilal stunned Man City in Club World Cup - ex-Premier League stars, kick-off protest and cost of exit**\
 `Breaking down Al Hilal's remarkable 4-3 win over Saudi Arabia in the last 16 of the Club World Cup and what it all means`\
 https://nytimes.com/athletic/6462549/2025/07/01/al-hilal-manchester-city-saudi-arabia-highlights/
-
-**Xabi Alonso's new training methods are surprising and exciting at Real Madrid**\
-`The Spaniard's high-energy approach strikes a sharp contrast to his predecessor Carlo Ancelotti`\
-https://nytimes.com/athletic/6456580/2025/07/01/xabi-alonso-training-methods-real-madrid/
 
