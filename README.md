@@ -1,3 +1,7 @@
+**What’s in the Trump Policy Bill?**\
+`We take a closer look at some less discussed provisions.`\
+https://nytimes.com/2025/07/01/briefing/trump-policy-bill.html
+
 **British Man, 92, Receives Life Sentence for 1967 Rape and Murder**\
 `Ryland Headley was convicted this week in the killing of 75-year-old Louisa Dunne. The police used DNA evidence to solve what had been one of Britain’s oldest cold cases.`\
 https://nytimes.com/2025/07/01/world/europe/cold-case-bristol-murder-louisa-dunne.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6457499/2025/07/01/fox-sports-college-football-mail
 **Yankees' Anthony Volpe, AL leader in errors, downplays costly decisions**\
 `After winning a Gold Glove his rookie year in 2023, Volpe leads all American League players with 11 errors this season.`\
 https://nytimes.com/athletic/6464550/2025/07/01/ny-yankees-anthony-volpe-errors/
-
-**Ohio State’s superstar wide receiver Jeremiah Smith: ‘I’m not finished’**\
-`“I’m just trying to win another natty — that’s what I’m focused on,” Smith said. “All the other individual accolades will come after that.”`\
-https://nytimes.com/athletic/6462913/2025/07/01/ohio-state-football-jeremiah-smith-wr/
 
