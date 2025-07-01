@@ -1,3 +1,7 @@
+**Two Chinese Citizens Accused of Trying to Gather Information About U.S. Navy**\
+`The charges come as the Trump administration tries to aggressively confront China on a host of issues, including national security, trade and immigration.`\
+https://nytimes.com/2025/07/01/us/politics/chinese-citizens-counterintelligence-navy-charges.html
+
 **Trump’s Policy Bill Could Put the U.S. Further Behind China**\
 `Republicans’ tax and policy bill could give China a bigger lead in the race to develop renewable energy technologies.`\
 https://nytimes.com/2025/07/01/climate/china-climate-united-states.html

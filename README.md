@@ -1,3 +1,15 @@
+**Judge Dismisses Jay-Z’s Suit Against Lawyer He Said Extorted Him**\
+`Lawyers for the rapper had accused Tony Buzbee of making false assault claims. Another federal suit Jay-Z has filed against Mr. Buzbee and his client continues.`\
+https://nytimes.com/2025/07/01/arts/music/jay-z-tony-buzbee-lawsuit-dismissed.html
+
+**Coco Gauff loses in Wimbledon first round after nightmare draw against Dayana Yastremska**\
+`Gauff lost to a dangerous opponent under the roof on No. 1 Court, capping two days of upsets at Wimbledon.`\
+https://nytimes.com/athletic/6466616/2025/07/01/coco-gauff-wimbledon-yastremska-first-round-result-analysis/
+
+**Deadly Explosion at Factory in India**\
+`The Monday blast at a pharmaceutical factory set off a fire in the southern Indian state of Telangana, killing at least 36 people and injuring another three dozen, officials said.`\
+https://nytimes.com/video/world/asia/100000010261956/india-factory-explosion.html
+
 **Trump’s Policy Bill Could Put the U.S. Further Behind China**\
 `Republicans’ tax and policy bill could give China a bigger lead in the race to develop renewable energy technologies.`\
 https://nytimes.com/2025/07/01/climate/china-climate-united-states.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/style/trump-fragrances-victory-45-47.html
 **Shell Oil Company - Headline**\
 `Summary`\
 https://nytimes.com/paidpost/shell-oil-company/shell-ad-post/shell-oil-company-headline.html
-
-**The Rise of AI Meets the Golden Age of Geography**\
-`Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
-https://nytimes.com/paidpost/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
-
-**U.S. Senate passes $625M in funding for 2026 World Cup, awaiting House vote**\
-`The version of the bill passed by the Senate also included an additional $500M to be made available for defending against drones.`\
-https://nytimes.com/athletic/6466319/2025/07/01/world-cup-2026-security-bill-senate/
-
-**USWNT's Yohannes to join OL Lyonnes from Ajax**\
-`The 18-year-old USWNT midfielder is expected to finalise personal terms with the French champions in the coming days.`\
-https://nytimes.com/athletic/6423942/2025/07/01/lily-yohannes-uswnt-transfer-lyon/
 
