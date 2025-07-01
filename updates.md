@@ -1,3 +1,11 @@
+**Finding the Key to Cézanne, the First Painter I Ever Loved**\
+`In the artist's breathtaking quarry pictures, his singular vision runs into the hard facts of deep time.`\
+https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html
+
+**Trade grades: Can Michael Porter Jr. help Nets' rebuilding efforts?**\
+`This is a major shakeup to the core of the Nuggets — and a cost-effective one at that. Will it work?`\
+https://nytimes.com/athletic/6464093/2025/06/30/michael-porter-jr-nets-cameron-johnson-nuggets-nba-trade-grades/
+
 **Depth free-agency targets: The 12 best players on the secondary market**\
 `Players who were bought out or did not receive a qualifying offer can still be effective depth. Here's 12 possible reclamation projects.`\
 https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/

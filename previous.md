@@ -1,3 +1,11 @@
+**Finding the Key to Cézanne, the First Painter I Ever Loved**\
+`In the artist's breathtaking quarry pictures, his singular vision runs into the hard facts of deep time.`\
+https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html
+
+**Trade grades: Can Michael Porter Jr. help Nets' rebuilding efforts?**\
+`This is a major shakeup to the core of the Nuggets — and a cost-effective one at that. Will it work?`\
+https://nytimes.com/athletic/6464093/2025/06/30/michael-porter-jr-nets-cameron-johnson-nuggets-nba-trade-grades/
+
 **Depth free-agency targets: The 12 best players on the secondary market**\
 `Players who were bought out or did not receive a qualifying offer can still be effective depth. Here's 12 possible reclamation projects.`\
 https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macro
 **Bush, Obama and Bono Commend USAID Staff Members on Their Last Day**\
 `Two ex-presidents and a rock star thanked the outgoing workers of a doomed agency.`\
 https://nytimes.com/2025/06/30/us/politics/usaid-staff-obama-bush-bono.html
-
-**Tyus Jones, Orlando Magic agree to 1-year, $7 million contract: Source**\
-`Magic officials hope Jones will improve the team’s 3-point shooting and point-guard depth. `\
-https://nytimes.com/athletic/6464133/2025/06/30/tyus-jones-orlando-magic-free-agency/
-
-**Patrick Kane re-signs with Red Wings on 1-year contract full of bonuses**\
-`The future Hall-of-Famer signed a one-year contract extension just hours before he was set to become an unrestricted free agent.`\
-https://nytimes.com/athletic/6464287/2025/06/30/patrick-kane-red-wings-extension-nhl-free-agency/
 
