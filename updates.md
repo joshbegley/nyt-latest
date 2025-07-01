@@ -1,3 +1,11 @@
+**Bucks waiving Damian Lillard to make room to sign Myles Turner: Sources**\
+`The moves by general manager Jon Horst should make Milwaukee a top contender in the East.`\
+https://nytimes.com/athletic/6465715/2025/07/01/damian-lillard-waived-bucks-myles-turner-nba-free-agency/
+
+**Bruins trade for Victor Arvidsson, send fifth-round pick to Oilers**\
+`Arvidsson, 32, is entering the last season of his two-year, $8 million contract.`\
+https://nytimes.com/athletic/6465807/2025/07/01/victor-arvidsson-trade-bruins-oilers/
+
 **Hurricanes sign Logan Stankoven to 8-year, $48 million extension**\
 `Stankoven came to the Hurricanes in the Mikko Rantanen deal with the Stars at the trade deadline in March and fit Carolina's style well.`\
 https://nytimes.com/athletic/6465740/2025/07/01/hurricanes-logan-stankoven-extension/
