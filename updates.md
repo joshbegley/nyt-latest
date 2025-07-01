@@ -1,3 +1,11 @@
+**Vance Keeps Aggressive Summer Fund-Raising Schedule for G.O.P.**\
+`The vice president is set to appear in Nantucket, Mass., Jackson Hole, Wyo., and San Diego this month in his role as the Republicans’ finance chair.`\
+https://nytimes.com/2025/07/01/us/politics/vance-republicans-fundraising.html
+
+**Why did Caitlin Clark receive low All-Star Game votes from her WNBA peers?**\
+`WNBA players voted Clark ninth among guards for the All-Star Game.`\
+https://nytimes.com/athletic/6466240/2025/07/01/caitlin-clark-low-all-star-game-votes-wnba-peers/
+
 **Poorest Americans Dealt Biggest Blow Under Senate Republican Tax Package**\
 `Small improvements in taxes are overshadowed by cuts to health insurance and other federal aid, resulting in a package favoring the wealthy.`\
 https://nytimes.com/2025/07/01/business/poor-americans-senate-legislation.html
