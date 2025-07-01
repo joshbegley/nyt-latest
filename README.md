@@ -1,40 +1,40 @@
-**China Bans Some Portable Batteries From Flights as Safety Concerns Grow**\
-`Airlines and governments around the world have tightened restrictions on the devices after a series of accidents. The ban in China has caught some travelers off guard.`\
-https://nytimes.com/2025/07/01/world/asia/china-portable-battery-ban-planes.html
+**Yankees' Anthony Volpe, AL leader in errors, downplays costly decisions**\
+`After winning a Gold Glove his rookie year in 2023, Volpe leads all American League players with 11 errors this season.`\
+https://nytimes.com/athletic/6464550/2025/07/01/ny-yankees-anthony-volpe-errors/
 
-**Video Shows Drone Rescuing Stranded Man During Flood in China**\
-`Unmanned aerial vehicles are playing an increasing role in transporting supplies, and even people.`\
-https://nytimes.com/2025/07/01/world/asia/video-drone-rescue-flooding-china.html
+**Ohio State’s superstar wide receiver Jeremiah Smith: ‘I’m not finished’**\
+`“I’m just trying to win another natty — that’s what I’m focused on,” Smith said. “All the other individual accolades will come after that.”`\
+https://nytimes.com/athletic/6462913/2025/07/01/ohio-state-football-jeremiah-smith-wr/
 
-**Trump Administration Live Updates: Senate Debate on Republicans’ Policy Bill Stretches Into Third Day**\
-``\
-https://nytimes.com/live/2025/07/01/us/trump-bill-news
+**Sweat science: As temps rise, MLB players, teams devise methods to stay cool**\
+`“I drink half my body weight in ounces of water every day,” said Tigers starter Casey Mize, who struggled with cramps in a recent start.`\
+https://nytimes.com/athletic/6463906/2025/07/01/sweat-science-mlb-players-teams-devise-methods-to-stay-cool-as-temperatures-rise/
 
-**G.O.P. Toils to Lock Down Senate Votes as Debate on Policy Bill Enters Third Day**\
-`Republican leaders were pushing for a final vote to pass their marquee tax cut and domestic policy legislation, but had yet to resolve major issues after an all-night session of voting and negotiations.`\
-https://nytimes.com/2025/07/01/us/politics/senate-trump-bill.html
+**Merchant: Rapid rate of WNBA expansion could prove costly in the long run**\
+`The pace and scale of W expansion robs it of its unique character and will bring a host of issues.`\
+https://nytimes.com/athletic/6464659/2025/07/01/wnba-expansion-problems/
 
-**The New York Times International Edition in Print for Wednesday, July 2, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/01/todays-new-york-times-international-edition
+**Steve Bannon’s Battle for the Soul of MAGA**\
+`The former White House chief strategist speaks about the threats he sees to the political movement that formed around Donald J. Trump.`\
+https://nytimes.com/2025/07/01/podcasts/the-daily/steve-bannon-interview-maga.html
 
-**Drone Rescues Stranded Person During Flood in China**\
-`As heavy rains battered southwestern China, drones were deployed to deliver relief supplies, disinfect flooded areas and airlift a trapped resident.`\
-https://nytimes.com/video/world/asia/100000010260496/drones-aid-in-china-flood-rescue.html
+**Cloudflare Introduces Default Blocking of A.I. Data Scrapers**\
+`The tech company’s customers can automatically block A.I. companies from exploiting their websites, it said, as it moves to protect original content online.`\
+https://nytimes.com/2025/07/01/technology/cloudflare-introduces-default-blocking-of-ai-data-scrapers.html
 
-**Colin Allred Will Run Again for Senate in Texas**\
-`After losing to Ted Cruz last year, Mr. Allred is planning his second statewide run and looking for a stronger political climate for Democrats.`\
-https://nytimes.com/2025/07/01/us/politics/colin-allred-texas-senate.html
+**‘Horror Show’ at Detention Facility, and the Dollar’s Big Drop**\
+`Plus, three new teams for the WNBA.`\
+https://nytimes.com/2025/07/01/podcasts/the-headlines/migrant-detention-facility-dollar-big-drop-wnba.html
 
-**At Ladyland, Everyone Wanted to ‘Protect the Dolls’**\
-`Pride Month finished strong with a low-budget music festival known for attracting big stars and emerging talent.`\
-https://nytimes.com/2025/07/01/style/at-ladyland-everyone-wanted-to-protect-the-dolls.html
+**MLB Draft 2025 top 100 prospects: Ethan Holliday, Liam Doyle and Kade Anderson lead the way**\
+`The final ranking of this year's top 100 MLB prospects starts with high school shortstop Ethan Holliday, followed by two college lefties.`\
+https://nytimes.com/athletic/6454202/2025/07/01/mlb-draft-2025-top-100-prospects-holliday-doyle/
 
-**The Best Movies and TV Shows Coming to Netflix in July**\
-`This month brings an “Old Guard” sequel and Lena Dunham’s return to TV.`\
-https://nytimes.com/2025/07/01/arts/television/netflix-new-july.html
+**Wordle Review No. 1,474**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 2, 2025.`\
+https://nytimes.com/2025/07/01/crosswords/wordle-review-1474.html
 
-**Giants roster projection: Who's in and who's out as training camp nears?**\
-`Is Tommy DeVito the odd man out at QB? Why is outside linebackers the best position group on the team? That and more in our projections.`\
-https://nytimes.com/athletic/6456678/2025/07/01/new-york-giants-roster-projection-training-camp/
+**Connections Companion No. 752**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 2, 2025.`\
+https://nytimes.com/2025/07/01/crosswords/connections-companion-752.html
 
