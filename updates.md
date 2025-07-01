@@ -1,3 +1,15 @@
+**Mirtle: In Vegas, Mitch Marner finds a perfect new home — and escapes a mess**\
+`Marner will be remembered in Toronto in some ways as a cautionary tale: a local boy who got to live his dream and had it become a nightmare.`\
+https://nytimes.com/athletic/6464188/2025/06/30/mitch-marner-vegas-toronto-exit/
+
+**With Mitch Marner, and without Alex Pietrangelo, how does Vegas' lineup look?**\
+`The Golden Knights will have stellar depth at forward but some questions on the blue line.`\
+https://nytimes.com/athletic/6464246/2025/06/30/golden-knights-marner-lineup/
+
+**California Rolls Back Its Landmark Environmental Law**\
+`Gov. Gavin Newsom had demanded changes to address the state’s housing crisis, a philosophical shift for Democratic leaders.`\
+https://nytimes.com/2025/06/30/us/california-environment-newsom-ceqa.html
+
 **Concluding Part**\
 `Adam Aaronson and Michael Garbus make their collaboration debut in the New York Times Crossword.`\
 https://nytimes.com/2025/06/30/crosswords/daily-puzzle-2025-07-01.html
