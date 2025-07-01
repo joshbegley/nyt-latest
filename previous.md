@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, July 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
+
+**America and China Are Becoming More Alike Every Day**\
+`In the great dance between the two rivals, it’s getting harder to tell which of them is leading and which is following.`\
+https://nytimes.com/2025/07/01/opinion/america-china-similarities-differences.html
+
 **Tuesday Briefing**\
 `The sliding U.S. dollar.`\
 https://nytimes.com/2025/07/01/briefing/dollar-china-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6450839/2025/07/01/europe-elite-teams-euro-2025/
 **Wilyer Abreu powers Red Sox's historic night with grand slam, inside-the-park HR**\
 `Abreu leads the Red Sox with 16 homers through 74 games. That's already more than he hit in 132 games last season.`\
 https://nytimes.com/athletic/6464628/2025/07/01/wilyer-abreu-red-sox-grand-slam-inside-the-park-hr/
-
-**Brentford see Andrews as 'low risk', but this is their biggest challenge since promotion**\
-`Brentford could soon have lost their manager, keeper, captain and top scorer in one summer - can a rookie coach keep them on course?`\
-https://nytimes.com/athletic/6463463/2025/07/01/brentford-keith-andrews-mbeumo-norgaard-frank/
-
-**Transfer spend and success: Do big fees really correlate with winning?**\
-`Chelsea have spent roughly £5m per Premier League point since their 2022 takeover, compared to just over £1m by Brentford since promotion`\
-https://nytimes.com/athletic/6450705/2025/07/01/transfer-fees-correlate-success/
 

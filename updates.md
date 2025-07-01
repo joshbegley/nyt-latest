@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, July 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
+
+**America and China Are Becoming More Alike Every Day**\
+`In the great dance between the two rivals, it’s getting harder to tell which of them is leading and which is following.`\
+https://nytimes.com/2025/07/01/opinion/america-china-similarities-differences.html
+
 **Tuesday Briefing**\
 `The sliding U.S. dollar.`\
 https://nytimes.com/2025/07/01/briefing/dollar-china-gaza.html
