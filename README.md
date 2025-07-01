@@ -1,3 +1,7 @@
+**NHL contract grades: Canucks take a risk giving big money to Thatcher Demko**\
+`Canucks management solidified a Lankinen-Demko tandem for at least the next three years. Is that a good thing?`\
+https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take-a-risk-giving-big-money-to-thatcher-demko/
+
 **3 Managers Arrested Over Deaths at U.K. Hospital Where Lucy Letby Worked**\
 `People who were managers when Ms. Letby was convicted of killing babies were arrested on suspicion of manslaughter by gross negligence.`\
 https://nytimes.com/2025/07/01/world/europe/lucy-letby-hospital-manslaughter-negligence-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/climate/plastic-recycling-malaysia-import-ban.htm
 **Kepa Arrizabalaga to Arsenal: Transfers TLDR - all you need to know**\
 `Arsenal have signed goalkeeper Kepa Arrizabalaga from Chelsea on a £5million deal - here we break down the transfer.`\
 https://nytimes.com/athletic/6413844/2025/07/01/kepa-arrizabalaga-arsenal-transfer-tldr/
-
-**Defeat of a 10-Year Ban on State A.I. Laws Is a Blow to Tech Industry**\
-`All but a handful of states have some laws regulating artificial intelligence.`\
-https://nytimes.com/2025/07/01/us/politics/state-ai-laws.html
 

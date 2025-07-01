@@ -1,3 +1,11 @@
+**3 Managers Arrested Over Deaths at U.K. Hospital Where Lucy Letby Worked**\
+`People who were managers when Ms. Letby was convicted of killing babies were arrested on suspicion of manslaughter by gross negligence.`\
+https://nytimes.com/2025/07/01/world/europe/lucy-letby-hospital-manslaughter-negligence-arrests.html
+
+**In Three Off Broadway Shows, They’re Coming Out and Out and Out**\
+`Several recent productions have featured a range of L.G.B.T.Q. stories, from strained familial relationships to self-discovery via Disney cosplay.`\
+https://nytimes.com/2025/07/01/theater/beau-the-musical-my-sons-a-queer.html
+
 **Senators Work All Night on Trump’s Bill, Breaking a Record and Twisting Arms**\
 `Voting for over 24 hours, senators donned fluffy blankets in the frigid chamber, gobbled fast food and recorded behind-the-scenes tours of the Capitol as Republicans struggled to pass their sweeping policy bill.`\
 https://nytimes.com/2025/07/01/us/politics/senate-all-night-vote.html
