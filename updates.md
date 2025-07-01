@@ -1,3 +1,11 @@
+**Brook Lopez, Clippers agree to 2-year, $18 million deal: Source**\
+`Lopez, who turned 37 years old on April 1, gives the Clippers a strong backup to Ivica Zubac.`\
+https://nytimes.com/athletic/6464231/2025/06/30/brook-lopez-clippers-nba-free-agency/
+
+**Blazers couldn't abide Deandre Ayton's 'bad ways.' Will former No. 1 pick find a fit?**\
+`Portland joins Phoenix as teams that have calculated that Ayton’s baggage — a lack of health and maturity — isn’t worth his talent.`\
+https://nytimes.com/athletic/6463929/2025/06/30/deandre-ayton-portlant-trail-blazers-free-agency/
+
 **From Roots to Ritual: Meet the Biotin + Minoxidil Gummy through Hers**\
 `The Minoxidil + Biotin Gummy through Hers is the first-ever prescription hair regrowth gummy1, a major step forward in delivering the convenient, personalized health solutions women deserve.`\
 https://nytimes.com/paidpost/hers/gummies/from-roots-to-ritual-meet-the-biotin-minoxidil-gummy-through-hers.html
