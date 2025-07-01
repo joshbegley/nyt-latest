@@ -1,3 +1,7 @@
+**Novak Djokovic is a tennis mentor and sage for young stars. Then they try to beat him.**\
+`Djokovic sought advice from the tennis royalty that ruled when he arrived. Now he wants to be that person for the next generation.`\
+https://nytimes.com/athletic/6460800/2025/07/01/tennis-novak-djokovic-advice-mentorship-young-players/
+
 **What to Know About Ranked-Choice Results in the N.Y.C. Mayor’s Race**\
 `Since no candidate received 50 percent of the vote on Primary Day, the Board of Elections proceeded to ranked-choice tabulations, which will be released on Tuesday.`\
 https://nytimes.com/2025/07/01/nyregion/nyc-mayor-results-ranked-choice-voting.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
 **Trump’s America Is Beginning to Look More Like China**\
 `In the great dance between the two rivals, it’s getting harder to tell which of them is leading and which is following.`\
 https://nytimes.com/2025/07/01/opinion/america-china-similarities-differences.html
-
-**Tuesday Briefing**\
-`The sliding U.S. dollar.`\
-https://nytimes.com/2025/07/01/briefing/dollar-china-gaza.html
 
