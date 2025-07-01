@@ -1,3 +1,11 @@
+**Wrexham sign Wales international Danny Ward**\
+`Ward, 32, rejoins the club where he came through the youth ranks before joining Liverpool.`\
+https://nytimes.com/athletic/6465479/2025/07/01/danny-ward-wrexham-transfer/
+
+**The Windup: Manfred’s CBA sales pitch**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6464833/2025/07/01/rob-manfred-cba-players-the-windup/
+
 **Knicks set for second interview with Mike Brown, Dawn Staley not considered finalist**\
 `The Knicks also reached out South Carolina women's coach Dawn Staley, but she is currently not considered a finalist, league sources said.`\
 https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/world/europe/russia-timur-ivanov-verdict.html
 **‘I Do Not See Rot. I See Rest.’:The Week 2 Winner of Our Summer Reading Contest**\
 `Alvin Su, 15, writes that summer doesn’t need to be a productivity contest for teens, but can, instead, be a quiet space for “magic to grow wild.”`\
 https://nytimes.com/2025/07/01/learning/i-do-not-see-rot-i-see-restthe-week-2-winner-of-our-summer-reading-contest.html
-
-**As Kevon Looney leaves the Warriors, so does the dynasty's backbone**\
-`Looney's greatest value to the Warriors came in times of desperation. Another pillar of the championship years is now gone.`\
-https://nytimes.com/athletic/6464922/2025/07/01/kevon-looney-warriors-backbone-pelicans-free-agency/
-
-**Barcelona's Fati completes loan move to Monaco**\
-`Monaco confirmed they have an option to buy the 22-year-old as part of the deal.`\
-https://nytimes.com/athletic/6465246/2025/07/01/barcelona-news-ansu-fati-monaco/
 
