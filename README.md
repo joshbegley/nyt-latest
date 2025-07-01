@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Senate Debate on Republicans’ Policy Bill Stretches Into Third Day**\
+``\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news
+
+**G.O.P. Toils to Lock Down Senate Votes as Debate on Policy Bill Enters Third Day**\
+`Republican leaders were pushing for a final vote to pass their marquee tax cut and domestic policy legislation, but had yet to resolve major issues after an all-night session of voting and negotiations.`\
+https://nytimes.com/2025/07/01/us/politics/senate-trump-bill.html
+
+**The New York Times International Edition in Print for Wednesday, July 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/01/todays-new-york-times-international-edition
+
 **Drone Rescues Stranded Person During Flood in China**\
 `As heavy rains battered southwestern China, drones were deployed to deliver relief supplies, disinfect flooded areas and airlift a trapped resident.`\
 https://nytimes.com/video/world/asia/100000010260496/drones-aid-in-china-flood-rescue.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/north-carolina-senate-tillis-cooper.h
 **The Supreme Court’s Pro-Trump Opportunism Is Now Undeniable**\
 `A Supreme Court decision demonstrates a new degree of cimperiousness, seeming to co-sign the Trump administration’s contempt for the lower courts.`\
 https://nytimes.com/2025/07/01/opinion/supreme-court-trump.html
-
-**Can the ‘Princess Treatment’ Go Too Far?**\
-`A popular video has prompted discussions about how to treat your significant other, what qualifies as “the bare minimum” and how this all relates to traditional gender roles.`\
-https://nytimes.com/2025/07/01/style/princess-treatment-bare-minimum-tiktok.html
-
-**New Yorkers May Vote on Curbing Council’s Power to Block New Housing**\
-`The City Council can block the development of new housing. A panel created by Mayor Eric Adams wants to let voters weigh in on reducing the Council’s power.`\
-https://nytimes.com/2025/07/01/nyregion/nyc-charter-revision-housing.html
-
-**Get Used to Seeing More Thigh**\
-`Shorts took on many forms at the men’s shows in Paris.`\
-https://nytimes.com/2025/07/01/style/shorts-mens-fashion-week-paris.html
 
