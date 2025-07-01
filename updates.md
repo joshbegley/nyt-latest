@@ -1,3 +1,7 @@
+**Trump’s America Is Beginning to Look More Like China**\
+`In the great dance between the two rivals, it’s getting harder to tell which of them is leading and which is following.`\
+https://nytimes.com/2025/07/01/opinion/america-china-similarities-differences.html
+
 **Meet Jhon Arias - a novel football hero**\
 `The softly spoken Colombian winger has emerged as one of the stars of the Club World Cup, and was crucial to Fluminense's win over Inter`\
 https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world-cup/

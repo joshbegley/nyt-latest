@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
 
-**America and China Are Becoming More Alike Every Day**\
+**Trump’s America Is Beginning to Look More Like China**\
 `In the great dance between the two rivals, it’s getting harder to tell which of them is leading and which is following.`\
 https://nytimes.com/2025/07/01/opinion/america-china-similarities-differences.html
 
