@@ -1,3 +1,7 @@
+**NHL trade/contract grades: Hurricanes make huge bet on K'Andre Miller's future**\
+`The Rangers got a strong return for Miller after they pivoted to Vladislav Gavrikov on the blue line.`\
+https://nytimes.com/athletic/6467067/2025/07/01/nhl-trade-contract-grades-miller-hurricanes-rangers/
+
 **With quiet start to free agency, Senators GM Steve Staios doubles down on core**\
 `The pressure is on Ottawa's roster to take that next step after making the playoffs this season, as currently constructed.`\
 https://nytimes.com/athletic/6465880/2025/07/01/ottawa-senators-analysis-nhl-free-agency-2025/

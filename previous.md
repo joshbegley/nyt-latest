@@ -1,3 +1,7 @@
+**NHL trade/contract grades: Hurricanes make huge bet on K'Andre Miller's future**\
+`The Rangers got a strong return for Miller after they pivoted to Vladislav Gavrikov on the blue line.`\
+https://nytimes.com/athletic/6467067/2025/07/01/nhl-trade-contract-grades-miller-hurricanes-rangers/
+
 **With quiet start to free agency, Senators GM Steve Staios doubles down on core**\
 `The pressure is on Ottawa's roster to take that next step after making the playoffs this season, as currently constructed.`\
 https://nytimes.com/athletic/6465880/2025/07/01/ottawa-senators-analysis-nhl-free-agency-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/nyregion/trump-habba-us-attorney-nomination.html
 **Flyers forced to overpay to add Christian Dvorak, Dan Vladar in free agency**\
 `"We focused on term — short term — to try to fill those holes," GM Daniel Briere said.`\
 https://nytimes.com/athletic/6466976/2025/07/01/flyers-dvorak-vladar-free-agency/
-
-**Giroud joins Lille after LAFC exit, returns to Ligue 1 after 13-year absence**\
-`The striker's move to Lille marks a return to his home country for the first time since 2012, when he left Montpellier for Arsenal.`\
-https://nytimes.com/athletic/6455903/2025/07/01/olivier-giroud-transfer-lille-france/
 

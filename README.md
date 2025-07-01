@@ -1,3 +1,11 @@
+**Top Iran Official Survived Israeli Strike**\
+`Rear Adm. Ali Shamkhani was seen struggling to walk with a cane at a funeral procession this weekend for military commanders killed in the 12-day war.`\
+https://nytimes.com/2025/07/01/world/middleeast/iran-shamkhani-israel-attack.html
+
+**Alex Delvecchio, Hockey Hall of Famer With Red Wings, Dies at 93**\
+`A center who skated alongside Gordie Howe on the team’s famed “Production Line,” he helped win three Stanley Cups and stood out for his clean play over 24 years in Detroit.`\
+https://nytimes.com/2025/07/01/sports/hockey/alex-delvecchio-dead.html
+
 **NHL trade/contract grades: Hurricanes make huge bet on K'Andre Miller's future**\
 `The Rangers got a strong return for Miller after they pivoted to Vladislav Gavrikov on the blue line.`\
 https://nytimes.com/athletic/6467067/2025/07/01/nhl-trade-contract-grades-miller-hurricanes-rangers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/trump-zohran-mamdani.html
 **NHL free agency winners and losers: Panthers do it again, good day for D, bad day for Kings**\
 `The Panthers, Canadiens and Mitch Marner are free agency winners while the Bruins and Kings are the ultimate losers.`\
 https://nytimes.com/athletic/6466849/2025/07/01/nhl-free-agency-winners-and-losers-2025/
-
-**Trump Nominates Alina Habba as New Jersey’s Permanent U.S. Attorney**\
-`Ms. Habba, the president’s former spokeswoman and personal lawyer, has been serving in an interim capacity. She had no prosecutorial experience when she was appointed.`\
-https://nytimes.com/2025/07/01/nyregion/trump-habba-us-attorney-nomination.html
-
-**Flyers forced to overpay to add Christian Dvorak, Dan Vladar in free agency**\
-`"We focused on term — short term — to try to fill those holes," GM Daniel Briere said.`\
-https://nytimes.com/athletic/6466976/2025/07/01/flyers-dvorak-vladar-free-agency/
 
