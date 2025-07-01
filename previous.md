@@ -1,3 +1,19 @@
+**Canucks agree to extensions with Demko and Garland**\
+`Demko's deal is for three years at a $8.5 million cap hit while Garland's is for six years with a $6 million AAV.`\
+https://nytimes.com/athletic/6465519/2025/07/01/canucks-thatcher-demko-conor-garland/
+
+**The Bounce: Hawks, Rockets among NBA's early free agency winners with more to come**\
+`Day 1 of free agency is over, and Trae Young's new-look Hawks might seek to run through a wide-open East. What other moves stand out so far?`\
+https://nytimes.com/athletic/6465155/2025/07/01/trae-young-hawks-kevin-durant-rockets-nba-free-agency-the-bounce/
+
+**LeBron James is no longer the Lakers' top priority. What's next for both parties?**\
+`LeBron James is hanging around the Lakers and figuring out if there’s a better place to end his career. Will he remain in purple and gold?`\
+https://nytimes.com/athletic/6465494/2025/07/01/lebron-james-lakers-luka-doncic-trade-free-agency-nba-the-bounce/
+
+**Bucks say goodbye to Brook Lopez, ending an era. How will Milwaukee change going forward?**\
+`Lopez was a defensive stalwart and a floor-stretching big. Only Giannis Antetokounmpo remains from the Bucks' core four from the 2021 title.`\
+https://nytimes.com/athletic/6464547/2025/07/01/bucks-brook-lopez-free-agency/
+
 **Ford Foundation’s New Leader Is From Yale Law School**\
 `Heather K. Gerken, the dean of the law school, will run the powerful philanthropy, known for pushing for social justice.`\
 https://nytimes.com/2025/07/01/us/ford-foundation-heather-gerken-yale-law-school.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6465479/2025/07/01/danny-ward-wrexham-transfer/
 **The Windup: Manfred’s CBA sales pitch**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6464833/2025/07/01/rob-manfred-cba-players-the-windup/
-
-**Knicks set for second interview with Mike Brown, Dawn Staley not considered finalist**\
-`In addition, New York is considering bringing back both James Borrego and Micah Nori for second interviews, multiple league sources said.`\
-https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
-
-**Dolls, Girls and Dreams at Marc Jacobs**\
-`The 19 looks came bulbous and tapered in the designer’s latest collection.`\
-https://nytimes.com/2025/07/01/style/marc-jacobs-2026-runway.html
-
-**Villa complete signing of forward Zepiqueno Redmond**\
-`Signing the Dutch youth international is part of Villa's strategy to recruit talents at a low cost but with a high ceiling.`\
-https://nytimes.com/athletic/6448464/2025/07/01/aston-villa-transfer-news-zepiqueno-redmond/
-
-**Algerian Court Upholds 5-Year Sentence for Writer, Angering France**\
-`The conviction of Boualem Sansal, an outspoken French and Algerian writer, has worsened tensions between the countries.`\
-https://nytimes.com/2025/07/01/world/africa/algeria-boualem-sansal-france.html
 
