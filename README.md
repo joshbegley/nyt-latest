@@ -1,3 +1,7 @@
+**Darren Waller, former Giants TE, coming out of retirement to join Dolphins**\
+`Waller's acquisition is another significant roster development made by the Dolphins, who traded Jalen Ramsey and Jonnu Smith this week.`\
+https://nytimes.com/athletic/6465742/2025/07/01/darren-waller-dolphins-trade-giants-nfl-news/
+
 **Have Gay Rights Gone Too Far, or Not Far Enough?**\
 `Readers offer strong, sharply varied responses to Andrew Sullivan’s guest essay.`\
 https://nytimes.com/2025/07/01/opinion/gay-lgbtq-andrew-sullivan.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/07/01/us/politics/trump-tax-cuts-policy-bill.html
 https://nytimes.com/athletic/6465748/2025/07/01/nba-nbc-coverage-ahmed-fareed/
 
 **Zohran Mamdani Wins Democratic Primary for New York City Mayor**\
-`Mr. Mamdani, a state assemblyman and democratic socialist, won by a 12-point margin. He was officially declared the winner on Tuesday after ranked-choice tabulations were run.`\
+`Mr. Mamdani, a state assemblyman and democratic socialist, won by a 12-point margin. He was declared the winner on Tuesday after ranked-choice tabulations were run.`\
 https://nytimes.com/2025/07/01/nyregion/mamdani-wins-mayor-primary-nyc.html
 
 **NHL contract grades: Jake Allen is a solid '1B' for Devils at a reasonable price**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6465809/2025/07/01/nhl-contract-grades-jake-allen-d
 **Republican Bill Puts Nation on New, More Perilous Fiscal Path**\
 `Among the most expensive pieces of legislation in years, the Republican legislation could reshape the country’s finances for a generation.`\
 https://nytimes.com/2025/07/01/us/politics/republican-policy-bill-perilous-fiscal-path.html
-
-**NHL trade grades: Canadiens and Blues swap intriguing prospects**\
-`Corey Pronman has Zach Bolduc rated slightly higher than Logan Mailloux but both look like good fits in their new homes.`\
-https://nytimes.com/athletic/6465859/2025/07/01/nhl-trade-grades-canadiens-blues-bolduc-mailloux/
 
