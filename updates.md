@@ -1,3 +1,11 @@
+**Shell Oil Company - Headline**\
+`Summary`\
+https://nytimes.com/paidpost/shell-oil-company/shell-ad-post/shell-oil-company-headline.html
+
+**The Rise of AI Meets the Golden Age of Geography**\
+`Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
+https://nytimes.com/paidpost/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
+
 **The Rise of AI Meets the Golden Age of Geography**\
 `Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
 https://nytimes.com/paidpost/esri/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
