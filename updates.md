@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6466764/2025/07/01/maple-leafs-nhl-free-agency-offseason/
 
+**The Maple Leafs still have one very large hole to fill this offseason**\
+`Other than Mitch Marner's exit, this was easily the quietest start to free agency for the Maple Leafs in recent memory.
+`\
+https://nytimes.com/athletic/6466764/2025/07/01/maple-leafs-nhl-free-agency-offseason/
+
 **Heavy Rains Bring Flash Flood Warnings to Mid-Atlantic**\
 `Severe weather across Maryland, Pennsylvania and New Jersey on Tuesday led to flight cancellations, power outages and flash flood warnings.`\
 https://nytimes.com/video/weather/100000010262335/extreme-weather-rain-storms-east-coast.html
