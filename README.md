@@ -1,3 +1,7 @@
+**Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
+`Students said they had been overcharged for their educations as a result of incorrect data that they said the school had used to artificially inflate its ranking.`\
+https://nytimes.com/2025/07/01/nyregion/columbia-university-us-news-ranking.html
+
 **Ducks sign Mikael Granlund to 3-year contract with $7 million cap hit**\
 `Granlund is coming off a strong 2024-25 campaign, racking up 22 goals and 44 assists for the Stars.`\
 https://nytimes.com/athletic/6438366/2025/07/01/granlund-ducks-nhl-free-agency-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6465665/2025/07/01/wild-nico-sturm-signing/
 **Judge Dismisses Jay-Z’s Suit Against Lawyer He Said Extorted Him**\
 `Lawyers for the rapper had accused Tony Buzbee of making false assault claims. Another federal suit Jay-Z has filed against Mr. Buzbee and his client continues.`\
 https://nytimes.com/2025/07/01/arts/music/jay-z-tony-buzbee-lawsuit-dismissed.html
-
-**Coco Gauff loses in Wimbledon first round after nightmare draw against Dayana Yastremska**\
-`Gauff lost to a dangerous opponent under the roof on No. 1 Court, capping two days of upsets at Wimbledon.`\
-https://nytimes.com/athletic/6466616/2025/07/01/coco-gauff-wimbledon-yastremska-first-round-result-analysis/
 
