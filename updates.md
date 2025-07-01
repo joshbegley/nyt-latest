@@ -1,3 +1,11 @@
+**The Rise of AI Meets the Golden Age of Geography**\
+`Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
+https://nytimes.com/paidpost/esri/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
+
+**U.S. Senate passes $625M in funding for 2026 World Cup, awaiting House vote**\
+`The version of the bill passed by the Senate also included an additional $500M to be made available for defending against drones.`\
+https://nytimes.com/athletic/6466319/2025/07/01/world-cup-2026-security-bill-senate/
+
 **USWNT's Yohannes to join OL Lyonnes from Ajax**\
 `The 18-year-old USWNT midfielder is expected to finalise personal terms with the French champions in the coming days.`\
 https://nytimes.com/athletic/6423942/2025/07/01/lily-yohannes-uswnt-transfer-lyon/

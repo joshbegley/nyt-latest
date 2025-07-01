@@ -1,6 +1,10 @@
+**Shell Oil Company - Headline**\
+`Summary`\
+https://nytimes.com/paidpost/shell-oil-company/shell-ad-post/shell-oil-company-headline.html
+
 **The Rise of AI Meets the Golden Age of Geography**\
 `Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
-https://nytimes.com/paidpost/esri/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
+https://nytimes.com/paidpost/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
 
 **U.S. Senate passes $625M in funding for 2026 World Cup, awaiting House vote**\
 `The version of the bill passed by the Senate also included an additional $500M to be made available for defending against drones.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/books/review/the-cia-book-club-charlie-english.ht
 **gws-shirley-manson-the-unexpected-godmother-of-rock**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/shirley-manson-the-unexpected-godmother-of-rock
-
-**Houston group not giving up on landing WNBA team after missed expansion bid**\
-`The city previously had a WNBA team from 1997 to 2008. The Houston Comets won the first four WNBA titles in the league's history.`\
-https://nytimes.com/athletic/6466451/2025/07/01/wnba-houston-team-expansion/
 

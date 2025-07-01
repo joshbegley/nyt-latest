@@ -1,3 +1,11 @@
+**The Rise of AI Meets the Golden Age of Geography**\
+`Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
+https://nytimes.com/paidpost/esri/esri/the-rise-of-ai-meets-the-golden-age-of-geography.html
+
+**U.S. Senate passes $625M in funding for 2026 World Cup, awaiting House vote**\
+`The version of the bill passed by the Senate also included an additional $500M to be made available for defending against drones.`\
+https://nytimes.com/athletic/6466319/2025/07/01/world-cup-2026-security-bill-senate/
+
 **USWNT's Yohannes to join OL Lyonnes from Ajax**\
 `The 18-year-old USWNT midfielder is expected to finalise personal terms with the French champions in the coming days.`\
 https://nytimes.com/athletic/6423942/2025/07/01/lily-yohannes-uswnt-transfer-lyon/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/shirley-manson-the-unexpected-godmot
 **Houston group not giving up on landing WNBA team after missed expansion bid**\
 `The city previously had a WNBA team from 1997 to 2008. The Houston Comets won the first four WNBA titles in the league's history.`\
 https://nytimes.com/athletic/6466451/2025/07/01/wnba-houston-team-expansion/
-
-**Islanders sign winger Jonathan Drouin to 2-year, $8 million contract**\
-`The 30-year-old spent his last two seasons with the Avalanche, scoring 30 goals and 93 points in 122 games.`\
-https://nytimes.com/athletic/6462862/2025/07/01/jonathan-drouin-islanders-nhl-free-agency-2025/
-
-**Semenyo extends Bournemouth contract through to 2030**\
-`The forward's previous deal at the south-coast club ran through to 2029, which has now been extended by a further year.`\
-https://nytimes.com/athletic/6441801/2025/07/01/antoine-semenyo-bournemouth-contract-new/
 
