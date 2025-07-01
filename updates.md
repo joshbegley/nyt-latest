@@ -1,3 +1,19 @@
+**Wrexham sign Wales international Danny Ward**\
+`Ward, 32, rejoins the club where he came through the youth ranks before joining Liverpool.`\
+https://nytimes.com/athletic/6465479/2025/07/01/danny-ward-wrexham-transfer/
+
+**The Windup: Manfred’s CBA sales pitch**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6464833/2025/07/01/rob-manfred-cba-players-the-windup/
+
+**Knicks set for second interview with Mike Brown, Dawn Staley not considered finalist**\
+`The Knicks also reached out South Carolina women's coach Dawn Staley, but she is currently not considered a finalist, league sources said.`\
+https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
+
+**Dolls vs. Real Girls at Marc Jacobs**\
+`The 19 looks came bulbous and tapered in the designer’s latest collection.`\
+https://nytimes.com/2025/07/01/style/marc-jacobs-2026-runway.html
+
 **Villa complete signing of forward Zepiqueno Redmond**\
 `Signing the Dutch youth international is part of Villa's strategy to recruit talents at a low cost but with a high ceiling.`\
 https://nytimes.com/athletic/6448464/2025/07/01/aston-villa-transfer-news-zepiqueno-redmond/

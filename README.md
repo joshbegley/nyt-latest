@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6464833/2025/07/01/rob-manfred-cba-players-the-wind
 `The Knicks also reached out South Carolina women's coach Dawn Staley, but she is currently not considered a finalist, league sources said.`\
 https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
 
-**Dolls vs. Real Girls at Marc Jacobs**\
+**Dolls, Girls and Dreams at Marc Jacobs**\
 `The 19 looks came bulbous and tapered in the designer’s latest collection.`\
 https://nytimes.com/2025/07/01/style/marc-jacobs-2026-runway.html
 
