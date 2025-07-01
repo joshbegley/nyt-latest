@@ -1,3 +1,11 @@
+**Blue Jackets circle back to Ivan Provorov after summer makeover stagnates**\
+`The changing markets gave a lot of leverage to Provorov, who agreed to a seven-year contract.`\
+https://nytimes.com/athletic/6464363/2025/06/30/blue-jackets-free-agency-provorov/
+
+**In Vegas, Mitch Marner finds a perfect new home — and escapes a mess: Mirtle**\
+`Marner will be remembered in Toronto in some ways as a cautionary tale: a local boy who got to live his dream and had it become a nightmare.`\
+https://nytimes.com/athletic/6464188/2025/06/30/mitch-marner-vegas-toronto-exit/
+
 **NHL free-agent big board 5.0: Who's left with Marner, Marchand, Ekblad, Provorov off the market?**\
 `After a flurry of activity, it's slim pickings for Tuesday's opening of free agency. Who could your team land? Here are our top targets.`\
 https://nytimes.com/athletic/6463690/2025/06/30/nhl-free-agent-big-board-marner-marchand/
