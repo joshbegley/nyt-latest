@@ -1,3 +1,7 @@
+**The Three Republican Senators Who Voted ‘No’ on Trump’s Bill**\
+`Senators Susan Collins of Maine, Rand Paul of Kentucky and Thom Tillis of North Carolina defied the president on his signature measure.`\
+https://nytimes.com/2025/07/01/us/politics/republican-senators-no-vote-bill-collins-paul-tillis.html
+
 **Vance Keeps Aggressive Summer Fund-Raising Schedule for G.O.P.**\
 `The vice president is set to appear in Nantucket, Mass., Jackson Hole, Wyo., and San Diego this month in his role as the Republicans’ finance chair.`\
 https://nytimes.com/2025/07/01/us/politics/vance-republicans-fundraising.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/business/powell-central-bank-inflation-tariffs.ht
 **The Rise of the Japanese Toilet**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/toto-toilet-japan-bidet
-
-**Maple Leafs sign Michael Pezzetta to two-year deal**\
-`Hard-nosed depth forward inks deal with $775,000 average annual value.`\
-https://nytimes.com/athletic/6466277/2025/07/01/maple-leafs-sign-michael-pezzetta/
 
