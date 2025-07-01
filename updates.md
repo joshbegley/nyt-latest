@@ -1,3 +1,19 @@
+**Mamdani Has Won the Primary. Now On to November.**\
+`Few expected Zohran Mamdani to win so decisively. Can he do it again in November’s general election against another host of challengers?`\
+https://nytimes.com/2025/07/01/nyregion/nyc-mayor-election-november.html
+
+**Beyond George Costanza, here are the MLB bobblehead giveaways you need to see**\
+`A highly scientific consideration of this season's most notable bobbleheads from across the league`\
+https://nytimes.com/athletic/6464482/2025/07/01/best-mlb-bobblehead-giveaways/
+
+**As U.S. Warms Ties With Syria, What Does It Expect?**\
+`President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
+https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
+
+**Why did Caitlin Clark receive low All-Star Game votes from her WNBA peers?**\
+`WNBA players voted Clark ninth among guards for the All-Star Game. She'll miss Tuesday's game in Minnesota with injury.`\
+https://nytimes.com/athletic/6466240/2025/07/01/caitlin-clark-low-all-star-game-votes-wnba-peers/
+
 **Nate Schmidt signs 3-year contract with Mammoth after Stanley Cup run**\
 `Schmidt enjoyed success with the Panthers after having his contract bought out by Winnipeg a year ago.`\
 https://nytimes.com/athletic/6457189/2025/07/01/nate-schmidt-mammoth-nhl-free-agency-2025/
