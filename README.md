@@ -1,6 +1,6 @@
 **Meet Jhon Arias - a novel football hero**\
 `“I’m a dreamer,” said Jhon Arias, the softly spoken Colombian winger who has emerged as one of the stars of the Club World Cup`\
-https://nytimes.com/athletic/6464538/2025/07/01/john-arias-fluminense-club-world-cup/
+https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world-cup/
 
 **The New York Times in Print for Tuesday, July 1, 2025**\
 ``\
