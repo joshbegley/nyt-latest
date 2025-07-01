@@ -1,3 +1,7 @@
+**Nickeil Alexander-Walker headed to Hawks on sign-and-trade deal: Source**\
+`The Wolves are also getting a future second-round pick and cash from the Hawks, according to a team source. `\
+https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-wolves/
+
 **Canada Resumes U.S. Trade Negotiations After Cancelling Digital Services Tax**\
 `Canada scrapped its controversial digital services tax after President Trump said he was suspending trade talks with Canada last week. President Emmanuel Macron of France criticized tariffs levied by powerful nations as “blackmail.”`\
 https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macron.html
