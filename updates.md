@@ -1,3 +1,15 @@
+**Senate Passes Trump’s Sprawling Policy Bill After Marathon Session**\
+`The Senate passed President Trump’s marquee bill to slash taxes and social safety net programs after more than 24 hours of debate and negotiations. It must now go to the house for final approval.`\
+https://nytimes.com/video/us/politics/100000010261434/trump-senate-bill-vote.html
+
+**The final Senate version of the tax and policy bill changed some provisions on renewable energy.**\
+`By Brad Plumer`\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news/the-final-senate-version-of-the-tax-and-policy-bill-changed-some-provisions-on-renewable-energy
+
+**What is Bobby Bonilla Day? Explaining MLB’s deferred contracts**\
+`Bonilla has the most infamous deferred deal in MLB history and still receives checks from the Mets, despite last playing for them in 1999.`\
+https://nytimes.com/athletic/6465415/2025/07/01/bobby-bonilla-day-mlb-deferred-contracts-mets/
+
 **Senate Breaks Vote-a-Rama Record Before Passing Trump’s Domestic Bill**\
 `Senators cast 49 votes during a marathon session on President Trump’s domestic policy bill. Vice President JD Vance cast the deciding vote on the final version after roughly 27 hours without a recess.`\
 https://nytimes.com/2025/07/01/us/politics/senate-trump-bill-vote-a-rama-record.html

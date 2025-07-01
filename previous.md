@@ -1,3 +1,15 @@
+**Senate Passes Trump’s Sprawling Policy Bill After Marathon Session**\
+`The Senate passed President Trump’s marquee bill to slash taxes and social safety net programs after more than 24 hours of debate and negotiations. It must now go to the house for final approval.`\
+https://nytimes.com/video/us/politics/100000010261434/trump-senate-bill-vote.html
+
+**The final Senate version of the tax and policy bill changed some provisions on renewable energy.**\
+`By Brad Plumer`\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news/the-final-senate-version-of-the-tax-and-policy-bill-changed-some-provisions-on-renewable-energy
+
+**What is Bobby Bonilla Day? Explaining MLB’s deferred contracts**\
+`Bonilla has the most infamous deferred deal in MLB history and still receives checks from the Mets, despite last playing for them in 1999.`\
+https://nytimes.com/athletic/6465415/2025/07/01/bobby-bonilla-day-mlb-deferred-contracts-mets/
+
 **Senate Breaks Vote-a-Rama Record Before Passing Trump’s Domestic Bill**\
 `Senators cast 49 votes during a marathon session on President Trump’s domestic policy bill. Vice President JD Vance cast the deciding vote on the final version after roughly 27 hours without a recess.`\
 https://nytimes.com/2025/07/01/us/politics/senate-trump-bill-vote-a-rama-record.html
@@ -21,20 +33,4 @@ https://nytimes.com/2025/07/01/climate/national-climate-assessment.html
 **Sharks sign William Eklund to 3-year, $16.8 million contract extension**\
 `Eklund ranked second on the team last season with 58 points.`\
 https://nytimes.com/athletic/6466165/2025/07/01/sharks-william-eklund-contract-extension/
-
-**Man Who Killed Paramedic in Random Attack Receives 25 Years to Life**\
-`Alison Russo was stabbed over 20 times as she returned from lunch to her station in Queens, according to the police. She had been just months from retirement.`\
-https://nytimes.com/2025/07/01/nyregion/ems-lieutenant-russo-murder-sentence.html
-
-**Leeds complete signing of centre-back Bornauw from Wolfsburg**\
-`The newly-promoted Premier League outfit have agreed to pay VfL Wolfsburg €6m (£5.2m, $7.1m) for the 26-year-old.`\
-https://nytimes.com/athletic/6466033/2025/07/01/leeds-transfer-sebastiaan-bornauw/
-
-**Archer reminds Stokes of his quality as England target Lord's for Test return**\
-`"Jofra was in contention to play this week and unless anything goes wrong, I can’t see why he won’t be next week," Stokes said on Tuesday.`\
-https://nytimes.com/athletic/6465639/2025/07/01/archer-reminds-stokes-of-his-quality-as-england-target-lords-for-test-return/
-
-**The Less Discussed but Very Important Measure in Trump’s Terrible Bill**\
-`Vance’s posts about the reconciliation package reveal the true nature of Trump’s populism.`\
-https://nytimes.com/live/2025/06/30/opinion/thepoint/reconciliation-funding-detentions-ice-jd-vance
 
