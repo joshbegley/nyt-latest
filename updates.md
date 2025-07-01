@@ -1,3 +1,11 @@
+**Murkowski Casts Decisive Vote for G.O.P. Policy Bill, Making an ‘Agonizing’ Choice**\
+`The Alaska Republican, a frequent critic of the president who is often a swing vote, acknowledged the bill would harm Americans but backed it after winning carve outs for her state.`\
+https://nytimes.com/2025/07/01/us/politics/murkowski-republican-bill.html
+
+**Two Chinese Citizens Accused of Trying to Gather Information About U.S. Navy**\
+`The charges come as the Trump administration tries to aggressively confront China on a host of issues, including national security, trade and immigration.`\
+https://nytimes.com/2025/07/01/us/politics/chinese-citizens-counterintelligence-navy.html
+
 **What Does President Trump’s New Perfume Smell Like?**\
 `The president announced a fragrance line called Victory 45-47. Each bottle costs almost $250.`\
 https://nytimes.com/2025/07/01/style/trump-fragrances-victory-45-47.html
