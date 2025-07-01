@@ -1,3 +1,15 @@
+**Kristi Noem raises prospect of prosecuting CNN over ICE app story.**\
+`The remarks by the homeland security secretary`\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news/kristi-noem-raises-prospect-of-prosecuting-cnn-over-ice-app-story
+
+**The Briefing: Real Madrid 1 Juventus 0 - Gonzalo keeps shining, Mbappe's return and a fine Alexander-Arnold cross**\
+`Alonso's side are into the quarter-finals after yet another goal from 21-year-old striker Gonzalo Garcia`\
+https://nytimes.com/athletic/6466430/2025/07/01/real-madrid-1-juventus-0-gonzalo-mbappe-alexander-arnold/
+
+**Jurors in Sean Combs Trial Reach Verdict on All but One Count**\
+`The judge is considering having the jury continue to deliberate on a racketeering conspiracy charge after it said there were “unpersuadable opinions on both sides.”`\
+https://nytimes.com/2025/07/01/arts/music/sean-combs-diddy-trial-partial-verdict.html
+
 **Wednesday Briefing: Senate Passes Trump’s Signature Bill**\
 `Plus, a new way to see Cézanne.`\
 https://nytimes.com/2025/07/01/briefing/trump-senate-india-heat-thailand-prime-minister.html
