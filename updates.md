@@ -1,3 +1,23 @@
+**Alexander Zverev out of Wimbledon after defeat to Arthur Rinderknech as seeds tumble**\
+`The world No. 3 is the 12th men's seed to exit Wimbledon in the first round in 2025.`\
+https://nytimes.com/athletic/6465979/2025/07/01/tennis-wimbledon-zverev-rinderknech-result/
+
+**gws-hongkong-bamboo-scaffolding**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/hongkong-bamboo-scaffolding
+
+**NHL contract grades: Tanner Jeannot's deal with Bruins and the lessons not learned**\
+`Jeannot's five-year, $3.4 million AAV contract with Boston is the latest, best example of NHL GMs repeating the mistakes of their peers.`\
+https://nytimes.com/athletic/6466204/2025/07/01/nhl-contract-grades-tanner-jeannot-bruins/
+
+**Anatomy of a Comedy Cliché**\
+`How did comedians “getting real” become such a common trope in TV and movies?`\
+https://nytimes.com/interactive/2025/07/01/arts/television/stand-up-comedy-cliche-tv-movies.html
+
+**gws-american-beaches-fourth-of-july**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/american-beaches-fourth-of-july
+
 **gws-pacific-coast-highway-closed-climate-change**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/pacific-coast-highway-closed-climate-change
