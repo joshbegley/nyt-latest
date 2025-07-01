@@ -1,3 +1,7 @@
+**Word of the Day: woebegone**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/01/learning/word-of-the-day-woebegone.html
+
 **Meet Jhon Arias - a novel football hero**\
 `“I’m a dreamer,” said Jhon Arias, the softly spoken Colombian winger who has emerged as one of the stars of the Club World Cup`\
 https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462549/2025/07/01/al-hilal-manchester-city-saudi-a
 **Xabi Alonso's new training methods are surprising and exciting at Real Madrid**\
 `The Spaniard's high-energy approach strikes a sharp contrast to his predecessor Carlo Ancelotti`\
 https://nytimes.com/athletic/6456580/2025/07/01/xabi-alonso-training-methods-real-madrid/
-
-**The rest of Europe could catch up to the traditional elite at Euro 2025 - that's not a bad thing**\
-`These days, the world’s best players do not always play for genuine contenders. It speaks to the growth of the women's game`\
-https://nytimes.com/athletic/6450839/2025/07/01/europe-elite-teams-euro-2025/
 
