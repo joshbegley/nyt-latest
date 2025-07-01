@@ -1,3 +1,7 @@
+**Taylor Fritz recovers from Wimbledon curfew frustration to complete comeback**\
+`The American No. 1 had rallied from two sets down before his match was delayed despite having 42 minutes left before curfew.`\
+https://nytimes.com/athletic/6463723/2025/07/01/wimbledon-curfew-match-suspended-taylor-fritz-giovanni-mpetshi-perricard/
+
 **Five Super Simple Summery Recipes**\
 `By Emily Weinstein`\
 https://nytimes.com/2025/07/01/dining/five-super-simple-summery-recipes.html

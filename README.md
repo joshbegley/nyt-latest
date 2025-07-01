@@ -1,3 +1,11 @@
+**Zheng Qinwen latest Wimbledon seed to fall after defeat to Katerina Siniakova**\
+`Zheng becomes the seventh women's seed to fall in the first round, and follows the shock exit of No. 3 Jessica Pegula.`\
+https://nytimes.com/athletic/6465706/2025/07/01/tennis-wimbledon-zheng-qinwen-katerina-siniakova/
+
+**Egyptian Squash Players Rule the Women’s Game**\
+`Egyptians start playing young and top the world rankings in a game that was brought to the country by the British. It is about to become an Olympic sport.`\
+https://nytimes.com/2025/07/01/sports/squash-women-egypt.html
+
 **Five Super Simple Summery Recipes**\
 `By Emily Weinstein`\
 https://nytimes.com/2025/07/01/dining/five-super-simple-summery-recipes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/theater/beau-the-musical-my-sons-a-queer.html
 **Senators Work All Night on Trump’s Bill, Breaking a Record and Twisting Arms**\
 `Voting for over 24 hours, senators donned fluffy blankets in the frigid chamber, gobbled fast food and recorded behind-the-scenes tours of the Capitol as Republicans struggled to pass their sweeping policy bill.`\
 https://nytimes.com/2025/07/01/us/politics/senate-all-night-vote.html
-
-**USMNT striker Agyemang subject of $8m offer from Derby**\
-`The English Championship side has already agreed terms with Agyemang, but the offer has yet to be accepted by Charlotte FC.`\
-https://nytimes.com/athletic/6465567/2025/07/01/patrick-agyemang-transfer-derby-charlotte/
-
-**Britain’s Royal Train, Once a Symbol of Luxury and Modernity, Is Being Retired**\
-`Specially commissioned private rail cars have transported the royal family around the country for over 150 years, beginning with an initially trepidatious Queen Victoria.`\
-https://nytimes.com/2025/07/01/world/europe/uk-royal-train.html
 
