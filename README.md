@@ -1,3 +1,23 @@
+**Winning the Cold War With le Carré and Cosmopolitan Magazine**\
+`In “The CIA Book Club,” Charlie English tells the story of America’s war of ideas in the Eastern Bloc.`\
+https://nytimes.com/2025/07/01/books/review/the-cia-book-club-charlie-english.html
+
+**gws-shirley-manson-the-unexpected-godmother-of-rock**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/shirley-manson-the-unexpected-godmother-of-rock
+
+**Houston group not giving up on landing WNBA team after missed expansion bid**\
+`The city previously had a WNBA team from 1997 to 2008. The Houston Comets won the first four WNBA titles in the league's history.`\
+https://nytimes.com/athletic/6466451/2025/07/01/wnba-houston-team-expansion/
+
+**Islanders sign winger Jonathan Drouin to 2-year, $8 million contract**\
+`The 31-year-old spent his last two seasons with the Avalanche, scoring 30 goals and 93 points in 122 games.`\
+https://nytimes.com/athletic/6462862/2025/07/01/jonathan-drouin-islanders-nhl-free-agency-2025/
+
+**Semenyo extends Bournemouth contract through to 2030**\
+`The forward's previous deal at the south-coast club ran through to 2029, which has now been extended by a further year.`\
+https://nytimes.com/athletic/6441801/2025/07/01/antoine-semenyo-bournemouth-contract-new/
+
 **Daniel Suárez will leave Trackhouse after 2025 season: What's next**\
 `Suárez is in the last year of his contract, having signed a one-year extension with the Justin Marks-owned team last summer.`\
 https://nytimes.com/athletic/6466457/2025/07/01/daniel-suarez-will-leave-trackhouse-after-2025-season-whats-next-for-the-driver/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/01/arts/television/dana-carvey-saturday-night-live-b
 **Günther Uecker, Who Punctuated His Art With Nails, Dies at 95**\
 `A member of the German collective Zero Group, he hammered thousands of nails — into columns, chairs, canvases — expressing the power of repetition to bring about complexity.`\
 https://nytimes.com/2025/07/01/arts/gunther-uecker-dead.html
-
-**U.K. Prime Minister Endures Biggest Rebellion of Leadership Over Welfare Cuts**\
-`A bill to cut the cost of Britain’s social welfare system passed a hurdle in Parliament on Tuesday, but only after Prime Minister Keir Starmer made significant concessions.`\
-https://nytimes.com/2025/07/01/world/europe/uk-keir-starmer-welfare-cuts-rebellion.html
-
-**Mamdani Has Won the Primary. Now On to November.**\
-`Few expected Zohran Mamdani to win so decisively. Can he do it again in November’s general election against another host of challengers?`\
-https://nytimes.com/2025/07/01/nyregion/nyc-mayor-election-november.html
-
-**Beyond George Costanza, here are the MLB bobblehead giveaways you need to see**\
-`A highly scientific consideration of this season's most notable bobbleheads from across the league`\
-https://nytimes.com/athletic/6464482/2025/07/01/best-mlb-bobblehead-giveaways/
-
-**Nate Schmidt signs 3-year contract with Mammoth after Stanley Cup run**\
-`Schmidt enjoyed success with the Panthers after having his contract bought out by Winnipeg a year ago.`\
-https://nytimes.com/athletic/6457189/2025/07/01/nate-schmidt-mammoth-nhl-free-agency-2025/
-
-**As U.S. Warms Ties With Syria, What Does It Expect?**\
-`President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
-https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
 
