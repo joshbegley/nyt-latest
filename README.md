@@ -1,3 +1,7 @@
+**Blue Jackets circle back to Ivan Provorov after summer makeover stagnates**\
+`The changing markets gave a lot of leverage to Provorov, who agreed to a seven-year contract.`\
+https://nytimes.com/athletic/6464363/2025/06/30/blue-jackets-free-agency-provorov/
+
 **NHL free-agent big board 5.0: Who's left with Marner, Marchand, Ekblad, Provorov off the market?**\
 `After a flurry of activity, it's slim pickings for Tuesday's opening of free agency. Who could your team land? Here are our top targets.`\
 https://nytimes.com/athletic/6463690/2025/06/30/nhl-free-agent-big-board-marner-marchand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464093/2025/06/30/michael-porter-jr-nets-cameron-j
 **Depth free-agency targets: The 12 best players on the secondary market**\
 `Players who were bought out or did not receive a qualifying offer can still be effective depth. Here are 12 possible reclamation projects.`\
 https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/
-
-**Injured Alex Pietrangelo steps away, says 'likelihood is low' of return to NHL**\
-`Vegas' veteran defenseman did not retire but is dealing with serious hip issues.`\
-https://nytimes.com/athletic/6464318/2025/06/30/alex-pietrangelo-injury-golden-knights/
 

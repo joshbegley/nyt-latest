@@ -1,3 +1,7 @@
+**NHL free-agent big board 5.0: Who's left with Marner, Marchand, Ekblad, Provorov off the market?**\
+`After a flurry of activity, it's slim pickings for Tuesday's opening of free agency. Who could your team land? Here are our top targets.`\
+https://nytimes.com/athletic/6463690/2025/06/30/nhl-free-agent-big-board-marner-marchand/
+
 **Mirtle: In Vegas, Mitch Marner finds a perfect new home — and escapes a mess**\
 `Marner will be remembered in Toronto in some ways as a cautionary tale: a local boy who got to live his dream and had it become a nightmare.`\
 https://nytimes.com/athletic/6464188/2025/06/30/mitch-marner-vegas-toronto-exit/
