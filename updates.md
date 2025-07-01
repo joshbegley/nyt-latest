@@ -1,3 +1,7 @@
+**The Three Republican Senators Who Voted ‘No’ on Trump’s Bill**\
+`Senators Susan Collins of Maine, Rand Paul of Kentucky and Thom Tillis of North Carolina defied the president on his signature measure.`\
+https://nytimes.com/2025/07/01/us/politics/republican-senators-no-vote-bill-collins-paul-tillis.html
+
 **Vance Keeps Aggressive Summer Fund-Raising Schedule for G.O.P.**\
 `The vice president is set to appear in Nantucket, Mass., Jackson Hole, Wyo., and San Diego this month in his role as the Republicans’ finance chair.`\
 https://nytimes.com/2025/07/01/us/politics/vance-republicans-fundraising.html
