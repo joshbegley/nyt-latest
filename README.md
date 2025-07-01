@@ -30,7 +30,7 @@ https://nytimes.com/newsgraphics/card-story/shirley-manson-the-unexpected-godmot
 `The city previously had a WNBA team from 1997 to 2008. The Houston Comets won the first four WNBA titles in the league's history.`\
 https://nytimes.com/athletic/6466451/2025/07/01/wnba-houston-team-expansion/
 
-**Islanders sign winger Jonathan Drouin to 2-year, $8 million contract**\
+**Islanders sign Jonathan Drouin to 2-year, $8 million contract**\
 `The 30-year-old spent his last two seasons with the Avalanche, scoring 30 goals and 93 points in 122 games.`\
 https://nytimes.com/athletic/6462862/2025/07/01/jonathan-drouin-islanders-nhl-free-agency-2025/
 
