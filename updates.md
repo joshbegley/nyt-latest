@@ -1,3 +1,11 @@
+**From Roots to Ritual: Meet the Biotin + Minoxidil Gummy through Hers**\
+`The Minoxidil + Biotin Gummy through Hers is the first-ever prescription hair regrowth gummy1, a major step forward in delivering the convenient, personalized health solutions women deserve.`\
+https://nytimes.com/paidpost/hers/gummies/from-roots-to-ritual-meet-the-biotin-minoxidil-gummy-through-hers.html
+
+**Juniper Fire Spreads in County East of Los Angeles**\
+`The blaze began on Monday morning and swiftly burned more than 600 acres in Riverside County, Calif., prompting an evacuation order in the area, the authorities said.`\
+https://nytimes.com/video/us/100000010260113/juniper-fire-california.html
+
 **Ty Jerome, Grizzlies agree to 3-year, $28 million contract: Sources**\
 `A Sixth Man of the Year candidate in 2024-25, Jerome gives the Grizzlies an instant-offense option off their bench.`\
 https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
