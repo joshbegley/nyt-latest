@@ -1,4 +1,4 @@
-**Why the Wild are betting on Tarasenko and what comes next in free agency**\
+**Why the Wild are betting on Vladimir Tarasenko and what comes next in free agency**\
 `With a thin free-agent market, the 33-year-old Tarasenko checks off one box for the Wild before the frenzy begins in earnest.`\
 https://nytimes.com/athletic/6463969/2025/06/30/vladimir-tarasenko-wild-guerin-free-agency/
 
