@@ -14,6 +14,10 @@ https://nytimes.com/2025/07/01/theater/andre-bishop-lincoln-center-theater.html
 `Canucks management solidified a Lankinen-Demko tandem for at least the next three years. Is that a good thing?`\
 https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take-a-risk-giving-big-money-to-thatcher-demko/
 
+**Taylor Fritz recovers from Wimbledon curfew frustration to complete comeback**\
+`The American No. 1 had rallied from two sets down before his match was delayed despite having 42 minutes left before curfew.`\
+https://nytimes.com/athletic/6463723/2025/07/01/wimbledon-curfew-match-suspended-taylor-fritz-giovanni-mpetshi-perricard/
+
 **3 Managers Arrested Over Deaths at U.K. Hospital Where Lucy Letby Worked**\
 `People who were managers when Ms. Letby was convicted of killing babies were arrested on suspicion of manslaughter by gross negligence.`\
 https://nytimes.com/2025/07/01/world/europe/lucy-letby-hospital-manslaughter-negligence-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6465567/2025/07/01/patrick-agyemang-transfer-derby-
 **Britain’s Royal Train, Once a Symbol of Luxury and Modernity, Is Being Retired**\
 `Specially commissioned private rail cars have transported the royal family around the country for over 150 years, beginning with an initially trepidatious Queen Victoria.`\
 https://nytimes.com/2025/07/01/world/europe/uk-royal-train.html
-
-**Differences Over Policy Bill Reignite the Trump-Musk Feud**\
-`President Trump ratcheted up his rhetoric against Elon Musk, at one point suggesting that he could be interested in attempting to deport him.`\
-https://nytimes.com/2025/07/01/us/politics/trump-musk-policy-bill-feud.html
 
