@@ -1,3 +1,7 @@
+**Ford Foundation’s New Leader Is From Yale Law School**\
+`Heather K. Gerken, the dean of the law school, will run the powerful philanthropy, known for pushing for social justice.`\
+https://nytimes.com/2025/07/01/us/ford-foundation-heather-gerken-yale-law-school.html
+
 **Would Brock Boeser be worth the price for the Bruins? 8 alternatives in a closing market**\
 `The market is limited after most of the top targets re-signed on Monday. Who's left? Here are some targets for Boston GM Don Sweeney.`\
 https://nytimes.com/athletic/6465383/2025/07/01/bruins-free-agency-boeser-granlund-suter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6448464/2025/07/01/aston-villa-transfer-news-zepiqu
 **Algerian Court Upholds 5-Year Sentence for Writer, Angering France**\
 `The conviction of Boualem Sansal, an outspoken French and Algerian writer, has worsened tensions between the countries.`\
 https://nytimes.com/2025/07/01/world/africa/algeria-boualem-sansal-france.html
-
-**Amtrak Will Revive Long-Stalled Gulf Coast Route in August**\
-`The Mardi Gras Service, starting on Aug. 18, will connect New Orleans and Mobile, Ala., by train for the first time since Hurricane Katrina in 2005.`\
-https://nytimes.com/2025/07/01/travel/amtrak-mardi-gras-service-route.html
 

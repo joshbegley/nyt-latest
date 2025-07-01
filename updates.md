@@ -1,3 +1,7 @@
+**Ford Foundation’s New Leader Is From Yale Law School**\
+`Heather K. Gerken, the dean of the law school, will run the powerful philanthropy, known for pushing for social justice.`\
+https://nytimes.com/2025/07/01/us/ford-foundation-heather-gerken-yale-law-school.html
+
 **Would Brock Boeser be worth the price for the Bruins? 8 alternatives in a closing market**\
 `The market is limited after most of the top targets re-signed on Monday. Who's left? Here are some targets for Boston GM Don Sweeney.`\
 https://nytimes.com/athletic/6465383/2025/07/01/bruins-free-agency-boeser-granlund-suter/
