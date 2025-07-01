@@ -1,3 +1,11 @@
+**Brock Boeser staying with Canucks, agrees to 7-year, $50.75 million contract**\
+`One of the best goal-scoring wingers available on the free-agent market, Boeser is staying in Vancouver for $7.25 million per year.`\
+https://nytimes.com/athletic/6453839/2025/07/01/brock-boeser-canucks-nhl-free-agency-2025/
+
+**Former Fox Sports reporter requests dismissal of suit against network, executive**\
+`Decision comes after months of settlement discussions with Fox over sexual assault claims by Julie Stewart-Binks.`\
+https://nytimes.com/athletic/6454247/2025/07/01/fox-sports-lawsuit-dropped-julie-stewart-binks/
+
 **Denmark Extends Military Conscription to Women**\
 `Women volunteers currently in the Danish armed forces said that some may “be surprised and like it a lot more than they probably think they would.”`\
 https://nytimes.com/video/world/europe/100000010260944/denmark-military-conscription-women.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/dining/nyc-restaurant-news.html
 **Dallas Stars hire Glen Gulutzan for second stint as head coach**\
 `Gulutzan coached the Stars from 2011 to '13 and also had a two-year run with the Calgary Flames.`\
 https://nytimes.com/athletic/6441923/2025/07/01/stars-coach-glen-gulutzan/
-
-**Randy Moss to return to ESPN's 'Sunday NFL Countdown' this season**\
-`In December, Moss, 48, revealed his cancer diagnosis on an Instagram Live video.`\
-https://nytimes.com/athletic/6465895/2025/07/01/randy-moss-espn-sunday-nfl-countdown/
-
-**Trump and Republicans Mislead on Tax Cuts in Policy Bill**\
-`The president and his Senate allies have cited inaccurate claims about their tax and policy bill.`\
-https://nytimes.com/2025/07/01/us/politics/trump-tax-cuts-policy-bill.html
 
