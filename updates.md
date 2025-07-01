@@ -1,3 +1,7 @@
+**Thai Prime Minister Is Suspended in Fallout From Cambodia Dispute**\
+`Paetongtarn Shinawatra is accused of ethical lapses in a conversation with the Cambodian leader Hun Sen and has faced calls to resign.`\
+https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
+
 **Word of the Day: woebegone**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/01/learning/word-of-the-day-woebegone.html
