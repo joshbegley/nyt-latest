@@ -1,3 +1,15 @@
+**Five Super Simple Summery Recipes**\
+`By Emily Weinstein`\
+https://nytimes.com/2025/07/01/dining/five-super-simple-summery-recipes.html
+
+**Quilting Gathering Brings a New Tradition to a Classic Form**\
+`A Juneteenth weekend conference in Durham, N.C., looks to establish itself as a place that carries on a cultural legacy.`\
+https://nytimes.com/2025/07/01/arts/quilting-conference-durham.html
+
+**After Hundreds of Shows and 15 Tonys, André Bishop Takes a Bow**\
+`He is moving on from 33 years at Lincoln Center Theater and will head to Rome to focus on his memoirs.`\
+https://nytimes.com/2025/07/01/theater/andre-bishop-lincoln-center-theater.html
+
 **NHL contract grades: Canucks take a risk giving big money to Thatcher Demko**\
 `Canucks management solidified a Lankinen-Demko tandem for at least the next three years. Is that a good thing?`\
 https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take-a-risk-giving-big-money-to-thatcher-demko/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/world/europe/uk-royal-train.html
 **Differences Over Policy Bill Reignite the Trump-Musk Feud**\
 `President Trump ratcheted up his rhetoric against Elon Musk, at one point suggesting that he could be interested in attempting to deport him.`\
 https://nytimes.com/2025/07/01/us/politics/trump-musk-policy-bill-feud.html
-
-**Shai Gilgeous-Alexander, Thunder agree to 4-year supermax extension**\
-`Gilgeous-Alexander has two years and $79.1 million left on his current deal.`\
-https://nytimes.com/athletic/6465521/2025/07/01/shai-gilgeous-alexander-sga-supermax-contract-extension-okc/
-
-**The U.S. Sends Lots of Plastic Trash Overseas. Malaysia Just Said No Thanks.**\
-`No country receives more discarded plastic from wealthy countries, but shipments from the United States are no longer welcome.`\
-https://nytimes.com/2025/07/01/climate/plastic-recycling-malaysia-import-ban.html
-
-**Kepa Arrizabalaga to Arsenal: Transfers TLDR - all you need to know**\
-`Arsenal have signed goalkeeper Kepa Arrizabalaga from Chelsea on a £5million deal - here we break down the transfer.`\
-https://nytimes.com/athletic/6413844/2025/07/01/kepa-arrizabalaga-arsenal-transfer-tldr/
 
