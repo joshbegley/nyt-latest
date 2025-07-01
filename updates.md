@@ -1,3 +1,11 @@
+**Top Iran Official Survived Israeli Strike**\
+`Rear Adm. Ali Shamkhani was seen struggling to walk with a cane at a funeral procession this weekend for military commanders killed in the 12-day war.`\
+https://nytimes.com/2025/07/01/world/middleeast/iran-shamkhani-israel-attack.html
+
+**Alex Delvecchio, Hockey Hall of Famer With Red Wings, Dies at 93**\
+`A center who skated alongside Gordie Howe on the team’s famed “Production Line,” he helped win three Stanley Cups and stood out for his clean play over 24 years in Detroit.`\
+https://nytimes.com/2025/07/01/sports/hockey/alex-delvecchio-dead.html
+
 **NHL trade/contract grades: Hurricanes make huge bet on K'Andre Miller's future**\
 `The Rangers got a strong return for Miller after they pivoted to Vladislav Gavrikov on the blue line.`\
 https://nytimes.com/athletic/6467067/2025/07/01/nhl-trade-contract-grades-miller-hurricanes-rangers/

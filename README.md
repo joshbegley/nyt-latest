@@ -1,3 +1,11 @@
+**USMNT finds its fight in Gold Cup, readies for semis vs. Guatemala and its familiar faces**\
+`Mauricio Pochettino craved a group that would lean into its emotions when needed, and the U.S. has done that en route to the Gold Cup semis`\
+https://nytimes.com/athletic/6466843/2025/07/01/usmnt-guatemala-gold-cup-semifinal-pochettino-adams-ream-rubin/
+
+**Blackhawks' new rebuild stage factored into quiet offseason for GM Kyle Davidson**\
+`Davidson's lack of moves was a sign that he's ready to go further with his youth movement at the NHL level.`\
+https://nytimes.com/athletic/6466062/2025/07/01/blackhawks-nhl-free-agency-offseason-kyle-davidson/
+
 **Top Iran Official Survived Israeli Strike**\
 `Rear Adm. Ali Shamkhani was seen struggling to walk with a cane at a funeral procession this weekend for military commanders killed in the 12-day war.`\
 https://nytimes.com/2025/07/01/world/middleeast/iran-shamkhani-israel-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/house-trump-policy-bill-republicans.h
 **What Are SNAP Benefits, and How Might They Change?**\
 `President Trump’s policy bill would make significant cuts to the food aid program, once known as food stamps, used by about 42 million people.`\
 https://nytimes.com/2025/07/01/dining/snap-food-stamps-trump-bill.html
-
-**Trump Escalates Attacks on Mamdani**\
-`President Trump claimed that the New York mayoral candidate, a naturalized U.S. citizen, was “here illegally,” his latest effort to promote false conspiracy theories about political opponents.`\
-https://nytimes.com/2025/07/01/us/politics/trump-zohran-mamdani.html
-
-**NHL free agency winners and losers: Panthers do it again, good day for D, bad day for Kings**\
-`The Panthers, Canadiens and Mitch Marner are free agency winners while the Bruins and Kings are the ultimate losers.`\
-https://nytimes.com/athletic/6466849/2025/07/01/nhl-free-agency-winners-and-losers-2025/
 
