@@ -2,7 +2,7 @@
 `Schmidt enjoyed success with the Panthers after having his contract bought out by Winnipeg a year ago.`\
 https://nytimes.com/athletic/6457189/2025/07/01/nate-schmidt-mammoth-nhl-free-agency-2025/
 
-**As U.S. Warms Ties With Syria, What Does it Expect?**\
+**As U.S. Warms Ties With Syria, What Does It Expect?**\
 `President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
 https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
 

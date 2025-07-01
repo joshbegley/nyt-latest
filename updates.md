@@ -1,3 +1,11 @@
+**Nate Schmidt signs 3-year contract with Mammoth after Stanley Cup run**\
+`Schmidt enjoyed success with the Panthers after having his contract bought out by Winnipeg a year ago.`\
+https://nytimes.com/athletic/6457189/2025/07/01/nate-schmidt-mammoth-nhl-free-agency-2025/
+
+**Democrats Bet Jobs in Red States Would Save Clean Power Projects. They Lost.**\
+`By ending tax credits for wind and solar power, Senate Republicans may have jeopardized billions in investments in their own districts.`\
+https://nytimes.com/2025/07/01/climate/trump-bill-clean-energy-credits-biden.html
+
 **As U.S. Warms Ties With Syria, What Does it Expect?**\
 `President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
 https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
