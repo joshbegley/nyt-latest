@@ -1,3 +1,11 @@
+**Zheng Qinwen latest Wimbledon seed to fall after defeat to Katerina Siniakova**\
+`Zheng becomes the seventh women's seed to fall in the first round, and follows the shock exit of No. 3 Jessica Pegula.`\
+https://nytimes.com/athletic/6465706/2025/07/01/tennis-wimbledon-zheng-qinwen-katerina-siniakova/
+
+**Egyptian Squash Players Rule the Women’s Game**\
+`Egyptians start playing young and top the world rankings in a game that was brought to the country by the British. It is about to become an Olympic sport.`\
+https://nytimes.com/2025/07/01/sports/squash-women-egypt.html
+
 **Taylor Fritz recovers from Wimbledon curfew frustration to complete comeback**\
 `The American No. 1 had rallied from two sets down before his match was delayed despite having 42 minutes left before curfew.`\
 https://nytimes.com/athletic/6463723/2025/07/01/wimbledon-curfew-match-suspended-taylor-fritz-giovanni-mpetshi-perricard/
