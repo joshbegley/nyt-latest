@@ -1,3 +1,7 @@
+**Canadiens have short-term holes, but their long-term goal seems more achievable**\
+`The addition of Noah Dobson and Zachary Bolduc has added talent to the Canadiens' young core and made the team significantly younger. `\
+https://nytimes.com/athletic/6466847/2025/07/01/canadiens-free-agency-dvorak-bolduc-armia-rebuild/
+
 **Richard A. Boucher, Veteran State Department Spokesman, Dies at 73**\
 `Working for six secretaries of state, he was known for explaining and defending U.S. foreign policy in a noncombative tone, without interjecting his own opinion.`\
 https://nytimes.com/2025/07/01/us/politics/richard-a-boucher-dead.html
