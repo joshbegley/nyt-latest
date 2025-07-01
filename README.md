@@ -23,7 +23,7 @@ https://nytimes.com/2025/07/01/world/asia/thai-pm-shinawatra-suspended.html
 https://nytimes.com/2025/07/01/learning/word-of-the-day-woebegone.html
 
 **Meet Jhon Arias - a novel football hero**\
-`“I’m a dreamer,” said Jhon Arias, the softly spoken Colombian winger who has emerged as one of the stars of the Club World Cup`\
+`The softly spoken Colombian winger has emerged as one of the stars of the Club World Cup, and was crucial to Fluminense's win over Inter`\
 https://nytimes.com/athletic/6464538/2025/07/01/jhon-arias-fluminense-club-world-cup/
 
 **The New York Times in Print for Tuesday, July 1, 2025**\
