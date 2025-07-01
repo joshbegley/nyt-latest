@@ -1,3 +1,11 @@
+**NHL contract grades: Hurricanes commit to Logan Stankoven's high ceiling in 8-year deal**\
+`Stankoven is a really good young player and the quintessential Carolina Hurricane. His contract could be a steal.`\
+https://nytimes.com/athletic/6465682/2025/07/01/nhl-contract-grades-logan-stankoven-hurricanes/
+
+**Devils re-signing Jake Allen to 5-year contract, taking top option off weak goalie market**\
+`Allen's extension carries a $1.8 million average annual value. He posted a .906 save percentage last season.`\
+https://nytimes.com/athletic/6438298/2025/07/01/jake-allen-devils-goalie-nhl-free-agency-2025/
+
 **How does NHL free agency work? How does the salary cap impact decisions?**\
 `Our primer on the NHL salary cap and how things work in unrestricted and restricted free agency.`\
 https://nytimes.com/athletic/6451310/2025/07/01/nhl-free-agency-2025/

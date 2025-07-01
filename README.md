@@ -1,3 +1,11 @@
+**Lululemon Sues Costco Over Selling ‘Dupes.’ What’s Behind the Case?**\
+`In a 49-page lawsuit filed in California, Lululemon accused the retail wholesaler of selling knockoff versions of its Scuba clothing and popular ABC men’s pants.`\
+https://nytimes.com/2025/07/01/us/lululemon-costco-dupes-lawsuit.html
+
+**Man Utd's Diego Leon aiming for big pre-season and first-team spot**\
+`United completed a pre-contract deal for the left-back from Paraguayan side Cerro Porteno in the winter transfer window.`\
+https://nytimes.com/athletic/6465656/2025/07/01/manchester-united-transfers-diego-leon/
+
 **NHL contract grades: Hurricanes commit to Logan Stankoven's high ceiling in 8-year deal**\
 `Stankoven is a really good young player and the quintessential Carolina Hurricane. His contract could be a steal.`\
 https://nytimes.com/athletic/6465682/2025/07/01/nhl-contract-grades-logan-stankoven-hurricanes/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/dining/five-super-simple-summery-recipes.html
 **Quilting Gathering Brings a New Tradition to a Classic Form**\
 `A Juneteenth weekend conference in Durham, N.C., looks to establish itself as a place that carries on a cultural legacy.`\
 https://nytimes.com/2025/07/01/arts/quilting-conference-durham.html
-
-**After Hundreds of Shows and 15 Tonys, André Bishop Takes a Bow**\
-`He is moving on from 33 years at Lincoln Center Theater and will head to Rome to focus on his memoirs.`\
-https://nytimes.com/2025/07/01/theater/andre-bishop-lincoln-center-theater.html
-
-**NHL contract grades: Canucks take a risk giving big money to Thatcher Demko**\
-`Canucks management solidified a Lankinen-Demko tandem for at least the next three years. Is that a good thing?`\
-https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take-a-risk-giving-big-money-to-thatcher-demko/
 
