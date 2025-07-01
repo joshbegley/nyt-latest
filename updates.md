@@ -1,3 +1,7 @@
+**Amid a tough stretch, Giants pick up manager Bob Melvin's option for 2026**\
+`Only the first two years of Melvin's three-year deal were guaranteed. Now he's in a secure place to try to steer his team out of a slump.`\
+https://nytimes.com/athletic/6466646/2025/07/01/sf-giants-bob-melvin-manager-option/
+
 **Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
 `Students said they had been overcharged for their educations as a result of incorrect data that they said the school had used to artificially inflate its ranking.`\
 https://nytimes.com/2025/07/01/nyregion/columbia-university-us-news-ranking.html
