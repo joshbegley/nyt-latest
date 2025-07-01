@@ -1,3 +1,7 @@
+**gws-american-beaches-fourth-of-july**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/american-beaches-fourth-of-july
+
 **gws-pacific-coast-highway-closed-climate-change**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/pacific-coast-highway-closed-climate-change

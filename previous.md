@@ -1,3 +1,11 @@
+**gws-pacific-coast-highway-closed-climate-change**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/pacific-coast-highway-closed-climate-change
+
+**Blues sign center Nick Bjugstad to 2-year, $1.75 million AAV contract**\
+`Bjugstad, 32, had eight goals and 19 points in 66 games with Utah Hockey Club in 2024-25.`\
+https://nytimes.com/athletic/6466251/2025/07/01/blues-nick-bjugstad-signing/
+
 **NHL contract grades: Kings sign Corey Perry with eye on playoff progress**\
 `Perry is a playoff warrior and exactly the type of player the Kings need as they try to make it past the first round.`\
 https://nytimes.com/athletic/6465810/2025/07/01/nhl-contract-grades-corey-perry-kings/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6466132/2025/07/01/nhl-contract-grades-vladislav-ga
 **Senate Passes Trump’s Sprawling Policy Bill After Marathon Session**\
 `The Senate passed President Trump’s marquee bill to slash taxes and social safety net programs after more than 24 hours of debate and negotiations. It must now go to the house for final approval.`\
 https://nytimes.com/video/us/politics/100000010261434/trump-senate-bill-vote.html
-
-**The final Senate version of the tax and policy bill changed some provisions on renewable energy.**\
-`By Brad Plumer`\
-https://nytimes.com/live/2025/07/01/us/trump-bill-news/the-final-senate-version-of-the-tax-and-policy-bill-changed-some-provisions-on-renewable-energy
-
-**What is Bobby Bonilla Day? Explaining MLB’s deferred contracts**\
-`Bonilla has the most infamous deferred deal in MLB history and still receives checks from the Mets, despite last playing for them in 1999.`\
-https://nytimes.com/athletic/6465415/2025/07/01/bobby-bonilla-day-mlb-deferred-contracts-mets/
 

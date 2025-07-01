@@ -1,3 +1,11 @@
+**gws-pacific-coast-highway-closed-climate-change**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/pacific-coast-highway-closed-climate-change
+
+**Blues sign center Nick Bjugstad to 2-year, $1.75 million AAV contract**\
+`Bjugstad, 32, had eight goals and 19 points in 66 games with Utah Hockey Club in 2024-25.`\
+https://nytimes.com/athletic/6466251/2025/07/01/blues-nick-bjugstad-signing/
+
 **NHL contract grades: Kings sign Corey Perry with eye on playoff progress**\
 `Perry is a playoff warrior and exactly the type of player the Kings need as they try to make it past the first round.`\
 https://nytimes.com/athletic/6465810/2025/07/01/nhl-contract-grades-corey-perry-kings/
