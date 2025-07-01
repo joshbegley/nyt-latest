@@ -1,3 +1,19 @@
+**Five Super Simple Summery Recipes**\
+`By Emily Weinstein`\
+https://nytimes.com/2025/07/01/dining/five-super-simple-summery-recipes.html
+
+**Quilting Gathering Brings a New Tradition to a Classic Form**\
+`A Juneteenth weekend conference in Durham, N.C., looks to establish itself as a place that carries on a cultural legacy.`\
+https://nytimes.com/2025/07/01/arts/quilting-conference-durham.html
+
+**After Hundreds of Shows and 15 Tonys, André Bishop Takes a Bow**\
+`He is moving on from 33 years at Lincoln Center Theater and will head to Rome to focus on his memoirs.`\
+https://nytimes.com/2025/07/01/theater/andre-bishop-lincoln-center-theater.html
+
+**NHL contract grades: Canucks take a risk giving big money to Thatcher Demko**\
+`Canucks management solidified a Lankinen-Demko tandem for at least the next three years. Is that a good thing?`\
+https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take-a-risk-giving-big-money-to-thatcher-demko/
+
 **3 Managers Arrested Over Deaths at U.K. Hospital Where Lucy Letby Worked**\
 `People who were managers when Ms. Letby was convicted of killing babies were arrested on suspicion of manslaughter by gross negligence.`\
 https://nytimes.com/2025/07/01/world/europe/lucy-letby-hospital-manslaughter-negligence-arrests.html
