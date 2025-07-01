@@ -1,40 +1,40 @@
-**What’s in the Trump Policy Bill?**\
-`We take a closer look at some less discussed provisions.`\
-https://nytimes.com/2025/07/01/briefing/trump-policy-bill.html
+**Twins still waiting for Carlos Correa's 'clutch' reputation to make its way to Minnesota**\
+`'Clutch Correa' has gone missing in Minnesota, with his production in game-changing moments plummeting compared to his Houston days.`\
+https://nytimes.com/athletic/6429042/2025/07/01/carlos-correa-twins-clutch-stats/
 
-**British Man, 92, Receives Life Sentence for 1967 Rape and Murder**\
-`Ryland Headley was convicted this week in the killing of 75-year-old Louisa Dunne. The police used DNA evidence to solve what had been one of Britain’s oldest cold cases.`\
-https://nytimes.com/2025/07/01/world/europe/cold-case-bristol-murder-louisa-dunne.html
+**Recruiting reset: Taking stock of blue-chip quarterbacks in Class of 2026**\
+`Only four of the 27 blue-chip quarterbacks in the Class of 2026 are uncommitted. `\
+https://nytimes.com/athletic/6463278/2025/07/01/college-football-recruiting-blue-chip-qbs-2026/
 
-**Clippers begin free agency by adding Brook Lopez. Could Chris Paul be next?**\
-`If LA's backup point guard isn't Chris Paul, then the pickings get slimmer.`\
-https://nytimes.com/athletic/6464797/2025/07/01/clippers-nba-free-agency-brook-lopez-chris-paul/
+**The enduring bond between Tom Seaver and David Wright still resonates**\
+`“It’s like a pinch-me moment saying, yeah, Tom Seaver is my friend,” said Wright, who will join Seaver in the Mets Hall of Fame this month.`\
+https://nytimes.com/athletic/6464616/2025/07/01/david-wright-tom-seaver-mets-hall-of-fame/
 
-**NBA free agency 2025: Grades, head-scratchers and more from Day 1**\
-`The league got the ball rolling on transactions early, but that doesn't mean things were quiet once the clock struck 6 p.m. Eastern`\
-https://nytimes.com/athletic/6464776/2025/07/01/nba-free-agency-2025-grades-day-1/
+**Patriots, Giants, Seahawks among 5 defenses primed to break out: Nguyen**\
+`The Cardinals and Buccaneers round out the list of defenses that could see a big jump in 2025.`\
+https://nytimes.com/athletic/6438502/2025/07/01/nfl-breakout-defenses-patriots-giants-seahawks/
 
-**The Pulse: Free agency’s 2 winners**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6462943/2025/07/01/panthers-hawks-nba-nhl-free-agency-the-pulse/
+**What Jabari Smith Jr.’s extension tells us about the state of NBA player salaries**\
+`The NBA will have 16 players earn at least $50 million during the 2025-26 season while the NFL, MLB and NHL will have just six between them.`\
+https://nytimes.com/athletic/6463072/2025/07/01/rockets-jabari-smith-jr-contract-extension/
 
-**The supersized Rockets, a potential Giannis suitor and more Day 1 NBA free-agency thoughts**\
-`It did not take long for much of the NBA market to clear out. And does Houston plan on playing any guards this season?`\
-https://nytimes.com/athletic/6464849/2025/07/01/nba-free-agency-has-been-good-for-the-middle-class-and-more-day-1-thoughts/
+**Siegel: It didn't have to be this way for Mitch Marner and the Maple Leafs**\
+`The marriage of Mitch Marner and his hometown Maple Leafs should have been a hockey fairytale. Why did the story turn so sour? `\
+https://nytimes.com/athletic/6453180/2025/07/01/maple-leafs-mitch-marner-career/
 
-**Chelsea to sign Lyon defender Carpenter in swap deal for Lawrence**\
-`Carpenter is expected to sign a three-year deal while Lawrence will return to France after two seasons in west London.`\
-https://nytimes.com/athletic/6452775/2025/07/01/ellie-carpenter-chelsea-lyon-transfer-ashley-lawrence/
+**How 'small' Switzerland came to host Euro 2025 and how it could spark 'cultural change'**\
+`Switzerland's bid to host Euro 2025 had many firsts. The tournament could change the country`\
+https://nytimes.com/athletic/6460773/2025/07/01/switzerland-euro-2025-host/
 
-**Zack Wheeler caps off dominant June for 'next-guy-up' Phillies rotation**\
-`“Competition is what drives all of us to be better,” said Wheeler, who finished off an elite June — for himself and the Phillies' rotation. `\
-https://nytimes.com/athletic/6464621/2025/07/01/zack-wheeler-phillies-rotation-june/
+**From the SEC to the Ivy League: QB Dante Reno returns home to play for his dad at Yale**\
+`Reno was ranked No. 516 overall and the No. 33 QB in the Class of 2024 in the 247Sports Composite.`\
+https://nytimes.com/athletic/6446196/2025/07/01/dante-reno-qb-yale-south-carolina-transfer/
 
-**Does Fox Sports hate college football? (And more sports media questions, answered)**\
-`Mark Walters' dual Dodgers-Lakers ownership, the fascination with Kevin Durant and more of your media questions answered by our columnist.`\
-https://nytimes.com/athletic/6457499/2025/07/01/fox-sports-college-football-mailbag/
+**5 Canucks thoughts as free agency frenzy begins**\
+`As the free agent market gets set to open shortly, the Canucks haven't accomplished nearly as much as they'd have liked to.`\
+https://nytimes.com/athletic/6464844/2025/07/01/canucks-free-agency-five-thoughts/
 
-**Yankees' Anthony Volpe, AL leader in errors, downplays costly decisions**\
-`After winning a Gold Glove his rookie year in 2023, Volpe leads all American League players with 11 errors this season.`\
-https://nytimes.com/athletic/6464550/2025/07/01/ny-yankees-anthony-volpe-errors/
+**Dave Parker, Jim Rice once graced SI cover that asked, 'Who's best?' Rice's answer: Parker**\
+`“Dave Parker had more tools as far as running and his hitting, and he was stronger,” said Rice, who once asked Parker for one of his bats. `\
+https://nytimes.com/athletic/6464672/2025/07/01/dave-parker-jim-rice-red-sox-pirates/
 
