@@ -1,3 +1,15 @@
+**Chelsea to sign Lyon defender Carpenter in swap deal for Lawrence**\
+`Carpenter is expected to sign a three-year deal while Lawrence will return to France after two seasons in west London.`\
+https://nytimes.com/athletic/6452775/2025/07/01/ellie-carpenter-chelsea-lyon-transfer-ashley-lawrence/
+
+**Zack Wheeler caps off dominant June for 'next-guy-up' Phillies rotation**\
+`“Competition is what drives all of us to be better,” said Wheeler, who finished off an elite June — for himself and the Phillies' rotation. `\
+https://nytimes.com/athletic/6464621/2025/07/01/zack-wheeler-phillies-rotation-june/
+
+**Does Fox Sports hate college football? (And more sports media questions, answered)**\
+`Mark Walters' dual Dodgers-Lakers ownership, the fascination with Kevin Durant and more of your media questions answered by our columnist.`\
+https://nytimes.com/athletic/6457499/2025/07/01/fox-sports-college-football-mailbag/
+
 **Yankees' Anthony Volpe, AL leader in errors, downplays costly decisions**\
 `After winning a Gold Glove his rookie year in 2023, Volpe leads all American League players with 11 errors this season.`\
 https://nytimes.com/athletic/6464550/2025/07/01/ny-yankees-anthony-volpe-errors/
