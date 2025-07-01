@@ -1,3 +1,7 @@
+**From Roots to Ritual: Meet the Biotin + Minoxidil Gummy through Hers**\
+`The Minoxidil + Biotin Gummy through Hers is the first-ever prescription hair regrowth gummy1, a major step forward in delivering the convenient, personalized health solutions women deserve.`\
+https://nytimes.com/paidpost/hers/gummies/from-roots-to-ritual-meet-the-biotin-minoxidil-gummy-through-hers.html
+
 **Ty Jerome, Grizzlies agree to 3-year, $28 million contract: Sources**\
 `A Sixth Man of the Year candidate in 2024-25, Jerome gives the Grizzlies an instant-offense option off their bench.`\
 https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6464183/2025/06/30/ty-jerome-grizzlies-free-agency/
 https://nytimes.com/athletic/6463749/2025/06/30/wimbledon-tennis-recap-day-one/
 
 **Juniper Fire Spreads in County East of Los Angeles**\
-`The blaze began on Monday morning and swiftly burned more than 600 acres in Riverside County, Calif., prompting evacuation order in the area, the authorities said.`\
+`The blaze began on Monday morning and swiftly burned more than 600 acres in Riverside County, Calif., prompting an evacuation order in the area, the authorities said.`\
 https://nytimes.com/video/us/100000010260113/juniper-fire-california.html
 
 **How the Brooklyn Bridge Ship Disaster Unfolded**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463734/2025/06/30/nhl-contract-grades-brad-marchan
 **Suspect in Idaho Murders Accepts Plea Deal**\
 `Bryan Kohberger, a former criminology student, was set to go on trial this summer in the stabbing deaths of four University of Idaho students.`\
 https://nytimes.com/2025/06/30/us/idaho-murders-bryan-kohberger-plea.html
-
-**Mavericks reach agreement with D'Angelo Russell: 3 thoughts about the fit**\
-`Dallas lost backcourt star power after trading Luka Dončić and seeing Kyrie Irving go down with an ACL tear.`\
-https://nytimes.com/athletic/6463595/2025/06/30/mavericks-sign-dangelo-russell-3-thoughts-about-the-fit/
 
