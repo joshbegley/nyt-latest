@@ -1,3 +1,11 @@
+**USMNT finds its fight in Gold Cup, readies for semis vs. Guatemala and its familiar faces**\
+`Mauricio Pochettino craved a group that would lean into its emotions when needed, and the U.S. has done that en route to the Gold Cup semis`\
+https://nytimes.com/athletic/6466843/2025/07/01/usmnt-guatemala-gold-cup-semifinal-pochettino-adams-ream-rubin/
+
+**Blackhawks' new rebuild stage factored into quiet offseason for GM Kyle Davidson**\
+`Davidson's lack of moves was a sign that he's ready to go further with his youth movement at the NHL level.`\
+https://nytimes.com/athletic/6466062/2025/07/01/blackhawks-nhl-free-agency-offseason-kyle-davidson/
+
 **Top Iran Official Survived Israeli Strike**\
 `Rear Adm. Ali Shamkhani was seen struggling to walk with a cane at a funeral procession this weekend for military commanders killed in the 12-day war.`\
 https://nytimes.com/2025/07/01/world/middleeast/iran-shamkhani-israel-attack.html
