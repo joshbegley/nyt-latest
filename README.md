@@ -1,3 +1,15 @@
+**National Climate Report Website Goes Dark**\
+`The federal website hosting five legislatively mandated reports stopped working Monday afternoon.`\
+https://nytimes.com/2025/07/01/climate/national-climate-assessment.html
+
+**Sharks sign William Eklund to 3-year, $16.8 million contract extension**\
+`Eklund ranked second on the team last season with 58 points.`\
+https://nytimes.com/athletic/6466165/2025/07/01/sharks-william-eklund-contract-extension/
+
+**Man Who Killed Paramedic in Random Attack Receives 25 Years to Life**\
+`Alison Russo was stabbed over 20 times as she returned from lunch to her station in Queens, according to the police. She had been just months from retirement.`\
+https://nytimes.com/2025/07/01/nyregion/ems-lieutenant-russo-murder-sentence.html
+
 **Leeds complete signing of centre-back Bornauw from Wolfsburg**\
 `The newly-promoted Premier League outfit have agreed to pay VfL Wolfsburg €6m (£5.2m, $7.1m) for the 26-year-old.`\
 https://nytimes.com/athletic/6466033/2025/07/01/leeds-transfer-sebastiaan-bornauw/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/07/01/world/asia/india-factory-explosion-hyderabad.html
 **Got Orlando Magic questions? Submit them for Josh Robbins' mailbag**\
 `<p>The Orlando Magic are in win-now mode, as shown by their trade for Desmond Bane and their impending signing of free-agent point guard Tyus Jones.`\
 https://nytimes.com/athletic/6466142/2025/07/01/orlando-magic-mailbag-submit/
-
-**Got Washington Wizards questions? Submit them for Josh Robbins’ mailbag**\
-`<p>What questions do you have about the Washington Wizards?</p>
-<p>Josh Robbins,<em> The Athletic</em>’s Wizards beat writer, wants to hear — and answer — your questions about the team, its roster and its rebuild.`\
-https://nytimes.com/athletic/6466117/2025/07/01/wizards-mailbag-submit-questions/
-
-**Ask The Times About New York City’s Mayoral Race**\
-`Have questions about New York City’s mayoral race or politics in the city? We want to hear them.`\
-https://nytimes.com/2025/07/01/nyregion/questions-nyc-mayor-race.html
-
-**Corey Perry signs 1-year contract with Los Angeles Kings**\
-`Perry scored 19 goals for the Edmonton Oilers in 2024-25, his 20th season in the NHL.`\
-https://nytimes.com/athletic/6463069/2025/07/01/corey-perry-la-kings-contract/
 
