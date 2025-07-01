@@ -1,3 +1,7 @@
+**Meet Jhon Arias - a novel football hero**\
+`“I’m a dreamer,” said Jhon Arias, the softly spoken Colombian winger who has emerged as one of the stars of the Club World Cup`\
+https://nytimes.com/athletic/6464538/2025/07/01/john-arias-fluminense-club-world-cup/
+
 **The New York Times in Print for Tuesday, July 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/01/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6456580/2025/07/01/xabi-alonso-training-methods-rea
 **The rest of Europe could catch up to the traditional elite at Euro 2025 - that's not a bad thing**\
 `These days, the world’s best players do not always play for genuine contenders. It speaks to the growth of the women's game`\
 https://nytimes.com/athletic/6450839/2025/07/01/europe-elite-teams-euro-2025/
-
-**Wilyer Abreu powers Red Sox's historic night with grand slam, inside-the-park HR**\
-`Abreu leads the Red Sox with 16 homers through 74 games. That's already more than he hit in 132 games last season.`\
-https://nytimes.com/athletic/6464628/2025/07/01/wilyer-abreu-red-sox-grand-slam-inside-the-park-hr/
 
