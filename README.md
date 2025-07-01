@@ -1,3 +1,7 @@
+**The Senate Muscled Through Trump’s Big Policy Bill**\
+`Also, heat waves are punishing India. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/07/01/briefing/senate-trump-policy-bill-ai-scrapers.html
+
 **Canadiens have short-term holes, but their long-term goal seems more achievable**\
 `The addition of Noah Dobson and Zachary Bolduc has added talent to the Canadiens' young core and made the team significantly younger. `\
 https://nytimes.com/athletic/6466847/2025/07/01/canadiens-free-agency-dvorak-bolduc-armia-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/world/africa/anne-merriman-dead.html
 **Kristi Noem raises prospect of prosecuting CNN over ICE app story.**\
 `The remarks by the homeland security secretary`\
 https://nytimes.com/live/2025/07/01/us/trump-bill-news/kristi-noem-raises-prospect-of-prosecuting-cnn-over-ice-app-story
-
-**Wednesday Briefing: Senate Passes Trump’s Signature Bill**\
-`Plus, a new way to see Cézanne.`\
-https://nytimes.com/2025/07/01/briefing/trump-senate-india-heat-thailand-prime-minister.html
 
