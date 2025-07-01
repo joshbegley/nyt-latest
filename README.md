@@ -1,3 +1,11 @@
+**Vance Keeps Aggressive Summer Fund-Raising Schedule for G.O.P.**\
+`The vice president is set to appear in Nantucket, Mass., Jackson Hole, Wyo., and San Diego this month in his role as the Republicans’ finance chair.`\
+https://nytimes.com/2025/07/01/us/politics/vance-republicans-fundraising.html
+
+**Why did Caitlin Clark receive low All-Star Game votes from her WNBA peers?**\
+`WNBA players voted Clark ninth among guards for the All-Star Game.`\
+https://nytimes.com/athletic/6466240/2025/07/01/caitlin-clark-low-all-star-game-votes-wnba-peers/
+
 **Poorest Americans Dealt Biggest Blow Under Senate Republican Tax Package**\
 `Small improvements in taxes are overshadowed by cuts to health insurance and other federal aid, resulting in a package favoring the wealthy.`\
 https://nytimes.com/2025/07/01/business/poor-americans-senate-legislation.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/toto-toilet-japan-bidet
 **Maple Leafs sign Michael Pezzetta to two-year deal**\
 `Hard-nosed depth forward inks deal with $775,000 average annual value.`\
 https://nytimes.com/athletic/6466277/2025/07/01/maple-leafs-sign-michael-pezzetta/
-
-**Alexander Zverev out of Wimbledon after defeat to Arthur Rinderknech as seeds tumble**\
-`The world No. 3 is the 12th men's seed to exit Wimbledon in the first round in 2025.`\
-https://nytimes.com/athletic/6465979/2025/07/01/tennis-wimbledon-zverev-rinderknech-result/
-
-**gws-hongkong-bamboo-scaffolding**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/hongkong-bamboo-scaffolding
 
