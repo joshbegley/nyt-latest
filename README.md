@@ -1,3 +1,15 @@
+**Hurricanes sign Logan Stankoven to 8-year, $48 million extension**\
+`Stankoven came to the Hurricanes in the Mikko Rantanen deal with the Stars at the trade deadline in March and fit Carolina's style well.`\
+https://nytimes.com/athletic/6465740/2025/07/01/hurricanes-logan-stankoven-extension/
+
+**Live Count: The Senate Votes on the G.O.P. Megabill**\
+`The Senate is preparing to vote on President Trump’s sweeping domestic policy package.`\
+https://nytimes.com/interactive/2025/07/01/us/senate-megabill-vote.html
+
+**Is Verstappen’s 2025 F1 title race run? Plus, the feel-good result from the Austrian GP**\
+`Max Verstappen's early retirement in the Austrian GP dealt a big blow to his 2025 F1 title hopes - but are they really over?`\
+https://nytimes.com/athletic/6465718/2025/07/01/max-verstappen-f1-title-chances/
+
 **Lululemon Sues Costco Over Selling ‘Dupes.’ What’s Behind the Case?**\
 `In a 49-page lawsuit filed in California, Lululemon accused the retail wholesaler of selling knockoff versions of its Scuba clothing and popular ABC men’s pants.`\
 https://nytimes.com/2025/07/01/us/lululemon-costco-dupes-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/us/the-rev-jimmy-lee-swaggart-dead.html
 **Zheng Qinwen latest Wimbledon seed to fall after defeat to Katerina Siniakova**\
 `Zheng becomes the seventh women's seed to fall in the first round, and follows the shock exit of No. 3 Jessica Pegula.`\
 https://nytimes.com/athletic/6465706/2025/07/01/tennis-wimbledon-zheng-qinwen-katerina-siniakova/
-
-**Egyptian Squash Players Rule the Women’s Game**\
-`Egyptians start playing young and top the world rankings in a game that was brought to the country by the British. It is about to become an Olympic sport.`\
-https://nytimes.com/2025/07/01/sports/squash-women-egypt.html
-
-**Five Super Simple Summery Recipes**\
-`By Emily Weinstein`\
-https://nytimes.com/2025/07/01/dining/five-super-simple-summery-recipes.html
-
-**Quilting Gathering Brings a New Tradition to a Classic Form**\
-`A Juneteenth weekend conference in Durham, N.C., looks to establish itself as a place that carries on a cultural legacy.`\
-https://nytimes.com/2025/07/01/arts/quilting-conference-durham.html
 
