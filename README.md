@@ -1,3 +1,7 @@
+**Under a Drone-Swarmed Sky: Surviving in Eastern Ukraine**\
+`Towns and troops long accustomed to merciless bombardment are adjusting to an even denser pattern of attacks.`\
+https://nytimes.com/2025/07/01/world/europe/ukraine-russia-frontline.html
+
 **Jessica Pegula stunned in Wimbledon first round by world No. 116 Elisabetta Cocciaretto**\
 `Two years after world No.`\
 https://nytimes.com/athletic/6465083/2025/07/01/pegula-wimbledon-tennis-cocciaretto-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6438502/2025/07/01/nfl-breakout-defenses-patriots-g
 **What Jabari Smith Jr.’s extension tells us about the state of NBA player salaries**\
 `The NBA will have 16 players earn at least $50 million during the 2025-26 season while the NFL, MLB and NHL will have just six between them.`\
 https://nytimes.com/athletic/6463072/2025/07/01/rockets-jabari-smith-jr-contract-extension/
-
-**Siegel: It didn't have to be this way for Mitch Marner and the Maple Leafs**\
-`The marriage of Mitch Marner and his hometown Maple Leafs should have been a hockey fairytale. Why did the story turn so sour? `\
-https://nytimes.com/athletic/6453180/2025/07/01/maple-leafs-mitch-marner-career/
 
