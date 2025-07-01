@@ -1,3 +1,7 @@
+**Why the Wild are betting on Vladimir Tarasenko and what comes next in free agency**\
+`With a thin free-agent market, the 33-year-old Tarasenko checks off one box for the Wild before the frenzy begins in earnest.`\
+https://nytimes.com/athletic/6463969/2025/06/30/vladimir-tarasenko-wild-guerin-free-agency/
+
 **Brook Lopez, Clippers agree to 2-year, $18 million deal: Source**\
 `Lopez, who turned 37 years old on April 1, gives the Clippers a strong backup to Ivica Zubac.`\
 https://nytimes.com/athletic/6464231/2025/06/30/brook-lopez-clippers-nba-free-agency/

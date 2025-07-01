@@ -1,3 +1,7 @@
+**Why the Wild are betting on Vladimir Tarasenko and what comes next in free agency**\
+`With a thin free-agent market, the 33-year-old Tarasenko checks off one box for the Wild before the frenzy begins in earnest.`\
+https://nytimes.com/athletic/6463969/2025/06/30/vladimir-tarasenko-wild-guerin-free-agency/
+
 **Brook Lopez, Clippers agree to 2-year, $18 million deal: Source**\
 `Lopez, who turned 37 years old on April 1, gives the Clippers a strong backup to Ivica Zubac.`\
 https://nytimes.com/athletic/6464231/2025/06/30/brook-lopez-clippers-nba-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464052/2025/06/30/edmonton-oilers-evan-bouchard-co
 **Nuggets trading Michael Porter Jr., first-round pick to Nets: Sources**\
 `Brooklyn still has approximately $24 million in easily accessible cap space and likely will remain a dumping ground for other salary moves.`\
 https://nytimes.com/athletic/6464112/2025/06/30/michael-porter-jr-nuggets-cam-johnson-nets/
-
-**Dennis Schröder agrees to deal with Kings, his 10th NBA team**\
-`Well-traveled guard will give the Kings the primary ballhandler they need.`\
-https://nytimes.com/athletic/6464017/2025/06/30/dennis-schroder-kings-nba-free-agency/
 
