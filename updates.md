@@ -1,3 +1,5 @@
+
+
 **Anne Merriman, ‘Mother of Palliative Care’ in Uganda, Dies at 90**\
 `A medical doctor and former nun, she found an affordable way to expand palliative care in the developing world, bringing pain relief to poor, terminally ill patients.`\
 https://nytimes.com/2025/07/01/world/africa/anne-merriman-dead.html
