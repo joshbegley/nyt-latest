@@ -1,8 +1,12 @@
+**NHL contract grades: Hurricanes commit to Logan Stankoven's high ceiling in 8-year deal**\
+`Stankoven is a really good young player and the quintessential Carolina Hurricane. His contract could be a steal.`\
+https://nytimes.com/athletic/6465682/2025/07/01/nhl-contract-grades-logan-stankoven-hurricanes/
+
 **How does NHL free agency work? How does the salary cap impact decisions?**\
 `Our primer on the NHL salary cap and how things work in unrestricted and restricted free agency.`\
 https://nytimes.com/athletic/6451310/2025/07/01/nhl-free-agency-2025/
 
-**Devils re-sign Jake Allen to 5-year contract, taking top option off weak goalie market**\
+**Devils re-signing Jake Allen to 5-year contract, taking top option off weak goalie market**\
 `Allen's extension carries a $1.8 million average annual value. He posted a .906 save percentage last season.`\
 https://nytimes.com/athletic/6438298/2025/07/01/jake-allen-devils-goalie-nhl-free-agency-2025/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/theater/andre-bishop-lincoln-center-theater.html
 **NHL contract grades: Canucks take a risk giving big money to Thatcher Demko**\
 `Canucks management solidified a Lankinen-Demko tandem for at least the next three years. Is that a good thing?`\
 https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take-a-risk-giving-big-money-to-thatcher-demko/
-
-**Taylor Fritz recovers from Wimbledon curfew frustration to complete comeback**\
-`The American No. 1 had rallied from two sets down before his match was delayed despite having 42 minutes left before curfew.`\
-https://nytimes.com/athletic/6463723/2025/07/01/wimbledon-curfew-match-suspended-taylor-fritz-giovanni-mpetshi-perricard/
 

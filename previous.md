@@ -1,3 +1,15 @@
+**How does NHL free agency work? How does the salary cap impact decisions?**\
+`Our primer on the NHL salary cap and how things work in unrestricted and restricted free agency.`\
+https://nytimes.com/athletic/6451310/2025/07/01/nhl-free-agency-2025/
+
+**Devils re-sign Jake Allen to 5-year contract, taking top option off weak goalie market**\
+`Allen's extension carries a $1.8 million average annual value. He posted a .906 save percentage last season.`\
+https://nytimes.com/athletic/6438298/2025/07/01/jake-allen-devils-goalie-nhl-free-agency-2025/
+
+**Jimmy Swaggart, Passionate Televangelist Ousted by Scandal, Dies at 90**\
+`A fire-and-brimstone preacher, he reached millions and made millions in a global enterprise before tumbling from grace over his encounters with a prostitute.`\
+https://nytimes.com/2025/07/01/us/the-rev-jimmy-lee-swaggart-dead.html
+
 **Zheng Qinwen latest Wimbledon seed to fall after defeat to Katerina Siniakova**\
 `Zheng becomes the seventh women's seed to fall in the first round, and follows the shock exit of No. 3 Jessica Pegula.`\
 https://nytimes.com/athletic/6465706/2025/07/01/tennis-wimbledon-zheng-qinwen-katerina-siniakova/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6465631/2025/07/01/nhl-contract-grades-canucks-take
 **Taylor Fritz recovers from Wimbledon curfew frustration to complete comeback**\
 `The American No. 1 had rallied from two sets down before his match was delayed despite having 42 minutes left before curfew.`\
 https://nytimes.com/athletic/6463723/2025/07/01/wimbledon-curfew-match-suspended-taylor-fritz-giovanni-mpetshi-perricard/
-
-**3 Managers Arrested Over Deaths at U.K. Hospital Where Lucy Letby Worked**\
-`People who were managers when Ms. Letby was convicted of killing babies were arrested on suspicion of manslaughter by gross negligence.`\
-https://nytimes.com/2025/07/01/world/europe/lucy-letby-hospital-manslaughter-negligence-arrests.html
-
-**In Three Off Broadway Shows, They’re Coming Out and Out and Out**\
-`Several recent productions have featured a range of L.G.B.T.Q. stories, from strained familial relationships to self-discovery via Disney cosplay.`\
-https://nytimes.com/2025/07/01/theater/beau-the-musical-my-sons-a-queer.html
-
-**Senators Work All Night on Trump’s Bill, Breaking a Record and Twisting Arms**\
-`Voting for over 24 hours, senators donned fluffy blankets in the frigid chamber, gobbled fast food and recorded behind-the-scenes tours of the Capitol as Republicans struggled to pass their sweeping policy bill.`\
-https://nytimes.com/2025/07/01/us/politics/senate-all-night-vote.html
 
