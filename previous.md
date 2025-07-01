@@ -1,3 +1,27 @@
+**Daniel Suárez will leave Trackhouse after 2025 season: What's next**\
+`Suárez is in the last year of his contract, having signed a one-year extension with the Justin Marks-owned team last summer.`\
+https://nytimes.com/athletic/6466457/2025/07/01/daniel-suarez-will-leave-trackhouse-after-2025-season-whats-next-for-the-driver/
+
+**Macron and Putin Discuss Iran and Ukraine in Rare Call**\
+`It was the two leaders’ first call since 2022, and the Russian president’s first with any major European leader since last year.`\
+https://nytimes.com/2025/07/01/world/europe/putin-macron-ukraine-iran.html
+
+**Senate G.O.P. Gambles Its Legacy and Political Fate on Bill**\
+`The sprawling legislation that Republicans expended extraordinary effort to muscle through the Senate was a high-stakes risk that is likely to have major consequences for the party and the country.`\
+https://nytimes.com/2025/07/01/us/politics/senate-republicans-bill.html
+
+**Dana Carvey Calls His Biden Impression a ‘Delicate Thing’**\
+`For his portrayal of the former president on “Saturday Night Live,” Carvey admitted that he had to toe a careful line.`\
+https://nytimes.com/2025/07/01/arts/television/dana-carvey-saturday-night-live-biden-impression.html
+
+**Günther Uecker, Who Punctuated His Art With Nails, Dies at 95**\
+`A member of the German collective Zero Group, he hammered thousands of nails — into columns, chairs, canvases — expressing the power of repetition to bring about complexity.`\
+https://nytimes.com/2025/07/01/arts/gunther-uecker-dead.html
+
+**U.K. Prime Minister Endures Biggest Rebellion of Leadership Over Welfare Cuts**\
+`A bill to cut the cost of Britain’s social welfare system passed a hurdle in Parliament on Tuesday, but only after Prime Minister Keir Starmer made significant concessions.`\
+https://nytimes.com/2025/07/01/world/europe/uk-keir-starmer-welfare-cuts-rebellion.html
+
 **Mamdani Has Won the Primary. Now On to November.**\
 `Few expected Zohran Mamdani to win so decisively. Can he do it again in November’s general election against another host of challengers?`\
 https://nytimes.com/2025/07/01/nyregion/nyc-mayor-election-november.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6457189/2025/07/01/nate-schmidt-mammoth-nhl-free-ag
 **As U.S. Warms Ties With Syria, What Does It Expect?**\
 `President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
 https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
-
-**The Three Republican Senators Who Voted ‘No’ on Trump’s Bill**\
-`Senators Susan Collins of Maine, Rand Paul of Kentucky and Thom Tillis of North Carolina defied the president on his signature measure.`\
-https://nytimes.com/2025/07/01/us/politics/republican-senators-no-vote-bill-collins-paul-tillis.html
-
-**Vance Keeps Aggressive Summer Fund-Raising Schedule for G.O.P.**\
-`The vice president is set to appear in Nantucket, Mass., Jackson Hole, Wyo., and San Diego this month in his role as the Republicans’ finance chair.`\
-https://nytimes.com/2025/07/01/us/politics/vance-republicans-fundraising.html
-
-**Why did Caitlin Clark receive low All-Star Game votes from her WNBA peers?**\
-`WNBA players voted Clark ninth among guards for the All-Star Game. She'll miss Tuesday's game in Minnesota with injury.`\
-https://nytimes.com/athletic/6466240/2025/07/01/caitlin-clark-low-all-star-game-votes-wnba-peers/
-
-**Poorest Americans Dealt Biggest Blow Under Senate Republican Tax Package**\
-`Small improvements in taxes are overshadowed by cuts to health insurance and other federal aid, resulting in a package favoring the wealthy.`\
-https://nytimes.com/2025/07/01/business/poor-americans-senate-legislation.html
-
-**10 Songs of Rebellion and Defiance for the Fourth**\
-`Tracy Chapman, Björk, Public Enemy and more songs for rabble-rousing and celebrating revolution.`\
-https://nytimes.com/2025/07/01/arts/music/amplifier-newsletter-july-fourth-songs.html
-
-**Democrats Bet Jobs in Red States Would Save Clean Power Projects. They Lost.**\
-`By ending tax credits for wind and solar power, Senate Republicans may have jeopardized billions in investments in their own districts.`\
-https://nytimes.com/2025/07/01/climate/trump-bill-clean-energy-credits-biden.html
 
