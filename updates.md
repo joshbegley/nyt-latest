@@ -1,3 +1,7 @@
+**California Democrats Agree to Roll Back Landmark Environmental Law**\
+`Gov. Gavin Newsom had demanded changes to address the state’s housing crisis, a philosophical shift for Democratic leaders.`\
+https://nytimes.com/2025/06/30/us/california-environment-newsom-ceqa.html
+
 **A Saber-Rattling Musk Promises a New Political Party if the G.O.P. Bill Passes**\
 `The billionaire and former Trump adviser suggested that if the domestic policy bill passed, he would swiftly form a new “America Party” and back primary challenges to Republicans.`\
 https://nytimes.com/2025/06/30/us/politics/elon-musk-trump-bill-republicans.html
