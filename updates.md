@@ -1,3 +1,7 @@
+**As U.S. Warms Ties With Syria, What Does it Expect?**\
+`President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
+https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
+
 **The Three Republican Senators Who Voted ‘No’ on Trump’s Bill**\
 `Senators Susan Collins of Maine, Rand Paul of Kentucky and Thom Tillis of North Carolina defied the president on his signature measure.`\
 https://nytimes.com/2025/07/01/us/politics/republican-senators-no-vote-bill-collins-paul-tillis.html

@@ -1,3 +1,7 @@
+**As U.S. Warms Ties With Syria, What Does it Expect?**\
+`President Trump signed an executive order this week lifting most sanctions on Syria. Ahead of that action, U.S. officials laid out expectations from the new government in Damascus.`\
+https://nytimes.com/2025/07/01/world/europe/syria-sanctions-trump.html
+
 **The Three Republican Senators Who Voted ‘No’ on Trump’s Bill**\
 `Senators Susan Collins of Maine, Rand Paul of Kentucky and Thom Tillis of North Carolina defied the president on his signature measure.`\
 https://nytimes.com/2025/07/01/us/politics/republican-senators-no-vote-bill-collins-paul-tillis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/environmentalists-alligator-alcatraz-
 **Despite Pressure From Trump, Powell Remains Patient on Rate Cuts**\
 `The Federal Reserve chair said the central bank would make decisions on interest rates based on data.`\
 https://nytimes.com/2025/07/01/business/powell-central-bank-inflation-tariffs.html
-
-**The Rise of the Japanese Toilet**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/toto-toilet-japan-bidet
 
