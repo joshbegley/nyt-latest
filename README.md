@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6465479/2025/07/01/danny-ward-wrexham-transfer/
 https://nytimes.com/athletic/6464833/2025/07/01/rob-manfred-cba-players-the-windup/
 
 **Knicks set for second interview with Mike Brown, Dawn Staley not considered finalist**\
-`The Knicks also reached out South Carolina women's coach Dawn Staley, but she is currently not considered a finalist, league sources said.`\
+`In addition, New York is considering bringing back both James Borrego and Micah Nori for second interviews, multiple league sources said.`\
 https://nytimes.com/athletic/6465420/2025/07/01/knicks-coach-mike-brown-dawn-staley/
 
 **Dolls, Girls and Dreams at Marc Jacobs**\
