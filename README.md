@@ -1,3 +1,7 @@
+**Kristi Noem raises prospect of prosecuting CNN over ICE app story.**\
+`The remarks by the homeland security secretary`\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news/kristi-noem-raises-prospect-of-prosecuting-cnn-over-ice-app-story
+
 **Wednesday Briefing: Senate Passes Trump’s Signature Bill**\
 `Plus, a new way to see Cézanne.`\
 https://nytimes.com/2025/07/01/briefing/trump-senate-india-heat-thailand-prime-minister.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/01/briefing/trump-senate-india-heat-thailand-prime-m
 `Toward a unified theory of an extremely weird situation.`\
 https://nytimes.com/2025/07/01/opinion/pentagon-ufo.html
 
-**The Briefing: Real Madrid 1 Juventus 0 - Gonzalo keeps shining, Mbappe's return and Alexander-Arnold ups and downs**\
+**The Briefing: Real Madrid 1 Juventus 0 - Gonzalo keeps shining, Mbappe's return and a fine Alexander-Arnold cross**\
 `Alonso's side are into the quarter-finals after yet another goal from 21-year-old striker Gonzalo Garcia`\
 https://nytimes.com/athletic/6466430/2025/07/01/real-madrid-1-juventus-0-gonzalo-mbappe-alexander-arnold/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/arts/music/sean-combs-diddy-trial-partial-verdict
 **Columbia Will Pay $9 Million to Settle Lawsuit Over U.S. News Ranking**\
 `Students said they had been overcharged for their educations as a result of incorrect data that they said the school had used to artificially inflate its ranking.`\
 https://nytimes.com/2025/07/01/nyregion/columbia-university-us-news-ranking.html
-
-**Ducks sign Mikael Granlund to 3-year contract with $7 million cap hit**\
-`Granlund is coming off a strong 2024-25 campaign, racking up 22 goals and 44 assists for the Stars.`\
-https://nytimes.com/athletic/6438366/2025/07/01/granlund-ducks-nhl-free-agency-2025/
 
