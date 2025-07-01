@@ -1,3 +1,11 @@
+**Depth free-agency targets: The 12 best players on the secondary market**\
+`Players who were bought out or did not receive a qualifying offer can still be effective depth. Here's 12 possible reclamation projects.`\
+https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/
+
+**Injured Alex Pietrangelo steps away, says 'likelihood is low' of return to NHL**\
+`Vegas' veteran defenseman did not retire but is dealing with serious hip issues.`\
+https://nytimes.com/athletic/6464318/2025/06/30/alex-pietrangelo-injury-golden-knights/
+
 **California Democrats Agree to Roll Back Landmark Environmental Law**\
 `Gov. Gavin Newsom had demanded changes to address the state’s housing crisis, a philosophical shift for Democratic leaders.`\
 https://nytimes.com/2025/06/30/us/california-environment-newsom-ceqa.html
