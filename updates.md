@@ -1,3 +1,7 @@
+**Nickeil Alexander-Walker is on his way out, but Wolves are counting on continuity**\
+`Alexander-Walker's departure was expected, but one Minnesota transaction from Monday was a bit surprising.`\
+https://nytimes.com/athletic/6463390/2025/06/30/nickeil-alexander-walker-timberwolves-joe-ingles/
+
 **Blue Jackets circle back to Ivan Provorov after summer makeover stagnates**\
 `The changing markets gave a lot of leverage to Provorov, who agreed to a seven-year contract.`\
 https://nytimes.com/athletic/6464363/2025/06/30/blue-jackets-free-agency-provorov/
