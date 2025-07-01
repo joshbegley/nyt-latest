@@ -1,3 +1,7 @@
+**A Saber-Rattling Musk Promises a New Political Party if the G.O.P. Bill Passes**\
+`The billionaire and former Trump adviser suggested that if the domestic policy bill passed, he would swiftly form a new “America Party” and back primary challenges to Republicans.`\
+https://nytimes.com/2025/06/30/us/politics/elon-musk-trump-bill-republicans.html
+
 **Caris LeVert, Pistons agree to terms on 2-year, $29 million deal: Source**\
 `Agreeing to terms on a contract with LeVert ensures the Pistons a source of second-unit scoring.`\
 https://nytimes.com/athletic/6464259/2025/06/30/pistons-caris-levert-contract-deal-hawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464231/2025/06/30/brook-lopez-clippers-nba-free-ag
 **Blazers couldn't abide Deandre Ayton's 'bad ways.' Will former No. 1 pick find a fit?**\
 `Portland joins Phoenix as teams that have calculated that Ayton’s baggage — a lack of health and maturity — isn’t worth his talent.`\
 https://nytimes.com/athletic/6463929/2025/06/30/deandre-ayton-portlant-trail-blazers-free-agency/
-
-**From Roots to Ritual: Meet the Biotin + Minoxidil Gummy through Hers**\
-`The Minoxidil + Biotin Gummy through Hers is the first-ever prescription hair regrowth gummy1, a major step forward in delivering the convenient, personalized health solutions women deserve.`\
-https://nytimes.com/paidpost/hers/gummies/from-roots-to-ritual-meet-the-biotin-minoxidil-gummy-through-hers.html
 

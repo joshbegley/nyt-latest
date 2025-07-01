@@ -1,3 +1,7 @@
+**California Democrats Agree to Roll Back Landmark Environmental Law**\
+`Gov. Gavin Newsom had demanded changes to address the state’s housing crisis, a philosophical shift for Democratic leaders.`\
+https://nytimes.com/2025/06/30/us/california-environment-newsom-ceqa.html
+
 **A Saber-Rattling Musk Promises a New Political Party if the G.O.P. Bill Passes**\
 `The billionaire and former Trump adviser suggested that if the domestic policy bill passed, he would swiftly form a new “America Party” and back primary challenges to Republicans.`\
 https://nytimes.com/2025/06/30/us/politics/elon-musk-trump-bill-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463969/2025/06/30/vladimir-tarasenko-wild-guerin-f
 **Brook Lopez, Clippers agree to 2-year, $18 million deal: Source**\
 `Lopez, who turned 37 years old on April 1, gives the Clippers a strong backup to Ivica Zubac.`\
 https://nytimes.com/athletic/6464231/2025/06/30/brook-lopez-clippers-nba-free-agency/
-
-**Blazers couldn't abide Deandre Ayton's 'bad ways.' Will former No. 1 pick find a fit?**\
-`Portland joins Phoenix as teams that have calculated that Ayton’s baggage — a lack of health and maturity — isn’t worth his talent.`\
-https://nytimes.com/athletic/6463929/2025/06/30/deandre-ayton-portlant-trail-blazers-free-agency/
 
