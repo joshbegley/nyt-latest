@@ -1,3 +1,7 @@
+**Map: 3.6-Magnitude Earthquake Strikes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/30/us/30wea-quake-tracker-northern-california-nyt66vwu.html
+
 **Finding the Key to Cézanne, the First Painter I Ever Loved**\
 `In the artist's breathtaking quarry pictures, his singular vision runs into the hard facts of deep time.`\
 https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html
@@ -7,7 +11,7 @@ https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html
 https://nytimes.com/athletic/6464093/2025/06/30/michael-porter-jr-nets-cameron-johnson-nuggets-nba-trade-grades/
 
 **Depth free-agency targets: The 12 best players on the secondary market**\
-`Players who were bought out or did not receive a qualifying offer can still be effective depth. Here's 12 possible reclamation projects.`\
+`Players who were bought out or did not receive a qualifying offer can still be effective depth. Here are 12 possible reclamation projects.`\
 https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/
 
 **Injured Alex Pietrangelo steps away, says 'likelihood is low' of return to NHL**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464270/2025/06/30/nickeil-alexander-walker-hawks-w
 **Canada Resumes U.S. Trade Negotiations After Cancelling Digital Services Tax**\
 `Canada scrapped its controversial digital services tax after President Trump said he was suspending trade talks with Canada last week. President Emmanuel Macron of France criticized tariffs levied by powerful nations as “blackmail.”`\
 https://nytimes.com/video/us/politics/100000010260046/trump-tariffs-carney-macron.html
-
-**Bush, Obama and Bono Commend USAID Staff Members on Their Last Day**\
-`Two ex-presidents and a rock star thanked the outgoing workers of a doomed agency.`\
-https://nytimes.com/2025/06/30/us/politics/usaid-staff-obama-bush-bono.html
 

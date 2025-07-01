@@ -1,3 +1,11 @@
+**Map: 3.6-Magnitude Earthquake Strikes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/30/us/30wea-quake-tracker-northern-california-nyt66vwu.html
+
+**Depth free-agency targets: The 12 best players on the secondary market**\
+`Players who were bought out or did not receive a qualifying offer can still be effective depth. Here are 12 possible reclamation projects.`\
+https://nytimes.com/athletic/6464065/2025/06/30/nhl-free-agency-secondary-market-targets/
+
 **Finding the Key to Cézanne, the First Painter I Ever Loved**\
 `In the artist's breathtaking quarry pictures, his singular vision runs into the hard facts of deep time.`\
 https://nytimes.com/interactive/2025/06/30/arts/cezanne-bibemus-quarry.html

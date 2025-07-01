@@ -1,6 +1,6 @@
 **Map: 3.6-Magnitude Earthquake Strikes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/06/30/us/30wea-quake-tracker-northern-california-nyt66vwu.html
+https://nytimes.com/interactive/2025/06/30/us/quake-northern-california-tracker.html
 
 **Finding the Key to Cézanne, the First Painter I Ever Loved**\
 `In the artist's breathtaking quarry pictures, his singular vision runs into the hard facts of deep time.`\
