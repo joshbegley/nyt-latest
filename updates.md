@@ -1,3 +1,11 @@
+**Trump Withholds Nearly $7 Billion for Schools, With Little Explanation**\
+`The money, which was allocated by Congress, helps pay for after-school programs, support for students learning English and other services.`\
+https://nytimes.com/2025/07/01/us/trump-education-funds.html
+
+**Astros slugger Yordan Alvarez to see hand specialist after suffering setback**\
+`The Astros initially described his injury as a muscle strain in the top of his right hand, but on May 31 discovered a “small fracture."`\
+https://nytimes.com/athletic/6467225/2025/07/01/houston-astros-yordan-alvarez-setback/
+
 **Jeannot? Arvidsson? Kuraly? Eyssimont? Bruins pursue belligerence: ‘We were an easy out'**\
 `Opponents will not enjoy retrieving pucks against the Bruins in 2025-26. But will Boston be any better for its Tuesday additions?`\
 https://nytimes.com/athletic/6467132/2025/07/01/bruins-free-agency-belligerence/
