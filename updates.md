@@ -1,3 +1,11 @@
+**C.I.A. Says Its Leaders Rushed Report on Russia Interference in 2016 Vote**\
+`But the new review of the earlier assessment does not dispute the conclusion that Russia favored the election of Donald J. Trump.`\
+https://nytimes.com/2025/07/02/us/politics/russia-trump-2016-election.html
+
+**As Sean Combs Celebrates, the Testimony of Cassie and ‘Jane’ Lingers**\
+`Two of Mr. Combs’s former girlfriends gave days of harrowing testimony of abuse, but jurors weren’t convinced those experiences with escorts were sex trafficking.`\
+https://nytimes.com/2025/07/02/arts/music/sean-combs-verdict-cassie-jane-testimony.html
+
 **Chris Drury on 'busy and exciting' offseason, plus K'Andre Miller on trade to Hurricanes**\
 `As New York makes moves to improve next season, top prospect Gabe Perreault is also aiming to make the NHL roster in the fall.`\
 https://nytimes.com/athletic/6469724/2025/07/02/rangers-kandre-miller-trade-chris-drury-nhl-offseason/
