@@ -1,3 +1,11 @@
+**Ayto, Wilson advance in Newcastle sporting director hiring process**\
+`Both are in the running to replace Paul Mitchell, who left the club on Monday.`\
+https://nytimes.com/athletic/6468209/2025/07/02/newcastle-sporting-director-jason-ayto-ross-wilson/
+
+**Van Bronckhorst named Liverpool assistant coach**\
+`Van Bronckhorst will form a new-look backroom team alongside Sipke Hulshoff and Aaron Briggs, and the returning Xavi Valero.`\
+https://nytimes.com/athletic/6423647/2025/07/02/giovanni-van-bronckhorst-named-liverpool-assistant-xavi-valero-returns-in-coaching-shake-up/
+
 **Fireworks Warehouse Explodes in Northern California**\
 `The cause of the explosion in Esparto, Calif., remained unclear. There were no initial reports of injuries.`\
 https://nytimes.com/2025/07/02/us/fireworks-warehouse-explosion-esparto-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/world/middleeast/oman-income-tax-persian-gulf.htm
 **Best of the rest: The top 9 players still available on the free-agency market**\
 `There's still some quality to be found after the first day of NHL free agency with solid depth pieces on offer.`\
 https://nytimes.com/athletic/6467443/2025/07/02/nhl-free-agency-day-2-targets-ehlers-suter/
-
-**Greenberg: Kyle Tucker, 'Cubby Capitalism' and the start of a very important July**\
-`If Jed Hoyer's bets continue to hit, everyone — from him to Tucker to the beer vendors to chairman Tom Ricketts — is going to cash in. `\
-https://nytimes.com/athletic/6467519/2025/07/02/chicago-cubs-guardians-trade-deadline-kyle-tucker/
-
-**Steve Soderstrom's big league career was brief; now he cherishes every moment of his son Tyler's**\
-`In 1996, Steve Soderstrom appeared in three games for the Giants. His experience would help his son Tyler reach the majors. `\
-https://nytimes.com/athletic/6467346/2025/07/02/tyler-soderstrom-steve-athletics-father-son/
 

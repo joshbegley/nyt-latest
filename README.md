@@ -1,3 +1,7 @@
+**Does Ohio State have a D-line recruiting problem? What's next for Buckeyes' 2026 class**\
+`Ohio State still has a top-five recruiting class with several high-priority targets left, even if there's been a run of bad news recently.`\
+https://nytimes.com/athletic/6466341/2025/07/02/ohio-state-football-recruiting-visits-commits-2026/
+
 **Ayto, Wilson advance in Newcastle sporting director hiring process**\
 `Both are in the running to replace Paul Mitchell, who left the club on Monday.`\
 https://nytimes.com/athletic/6468209/2025/07/02/newcastle-sporting-director-jason-ayto-ross-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463505/2025/07/02/mls-club-world-cup-lafc-seattle-
 **The First Income Tax in the Persian Gulf Signals a Changing Economic Reality**\
 `A plan by Oman is being closely watched by other governments in the region that are preparing for a future beyond oil.`\
 https://nytimes.com/2025/07/02/world/middleeast/oman-income-tax-persian-gulf.html
-
-**Best of the rest: The top 9 players still available on the free-agency market**\
-`There's still some quality to be found after the first day of NHL free agency with solid depth pieces on offer.`\
-https://nytimes.com/athletic/6467443/2025/07/02/nhl-free-agency-day-2-targets-ehlers-suter/
 
