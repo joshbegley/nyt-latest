@@ -1,3 +1,7 @@
+**Watching the Poulters turn rivals for a day with Open qualification on the line**\
+`We spent a day watching father and son Ian and Luke Poulter try to beat each other to secure a place at The Open`\
+https://nytimes.com/athletic/6467092/2025/07/02/ian-poulter-luke-poulter-open-golf/
+
 **Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
 `In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so Wolves fans listen`\
 https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-eng
 **Indiana Fever's resilience on display in Commissioner's Cup championship**\
 `Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
 https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
-
-**Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
-`President Trump had sued over an interview with former Vice President Kamala Harris. The company needs federal approval for a multibillion-dollar sale.`\
-https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
 
