@@ -1,41 +1,40 @@
-**Iran Suspends Cooperation With U.N. Nuclear Watchdog**\
-`The decision means that international inspectors will not be able to oversee sites, as experts warn that Tehran could revive plans to build a bomb.`\
-https://nytimes.com/2025/07/02/world/middleeast/iran-nuclear-iaea.html
+**Chase Elliott on his consistent season and staying true to himself: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
+https://nytimes.com/athletic/6461462/2025/07/02/chase-elliott-nascar-atlanta-win-12-questions/
 
-**Hockey insider Bob McKenzie retires after 48 years: A tribute**\
-`In a flurry of free-agency moves on July 1, it was the deal that was — in McKenzie's own words — "one for none" that stole the show.
-`\
-https://nytimes.com/athletic/6467697/2025/07/02/bob-mckenzie-retires-tsn-nhl-insider-free-agency/
+**Yohe's 10 observations: What to make of Penguins' July 1 moves**\
+`Some observations on the Penguins' first day of free agency and where they go from here. `\
+https://nytimes.com/athletic/6467360/2025/07/02/yohe-10-observations-penguins-free-agency/
 
-**Pause in U.S. Weapons Deepens Ukrainian Concerns as Russian Attacks Grow**\
-`The suspension includes air defense interceptors, and it will directly affect Ukraine’s ability to fend off escalating Russian air assaults.`\
-https://nytimes.com/2025/07/02/world/europe/ukraine-russia-war-trump-weapons.html
+**NWSL expansion team Boston Legacy FC signs Annie Karich, its first player**\
+`The California native joins Boston as a free agent from SC Freiburg in the Frauen-Bundesliga`\
+https://nytimes.com/athletic/6467841/2025/07/02/nwsl-expansion-boston-legacy-fc-annie-karich/
 
-**Does Ohio State have a D-line recruiting problem? What's next for Buckeyes' 2026 class**\
-`Ohio State still has a top-five recruiting class with several high-priority targets left, even if there's been a run of bad news recently.`\
-https://nytimes.com/athletic/6466341/2025/07/02/ohio-state-football-recruiting-visits-commits-2026/
+**Sean Combs Trial Live Updates: Deadlocked Jury Will Return to Discuss Racketeering Conspiracy**\
+`The jurors said they reached verdicts on sex-trafficking charges but could not agree whether Mr. Combs had run a criminal enterprise.`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury
 
-**Ayto, Wilson advance in Newcastle sporting director hiring process**\
-`Both are in the running to replace Paul Mitchell, who left the club on Monday.`\
-https://nytimes.com/athletic/6468209/2025/07/02/newcastle-sporting-director-jason-ayto-ross-wilson/
+**In quest to regain NHL relevance, Rangers still have one advantage: New York**\
+`It was a messy season at Madison Square Garden, but July 1 proved that the Rangers remain a free agency destination.`\
+https://nytimes.com/athletic/6467504/2025/07/02/new-york-rangers-nhl-free-agency-analysis-2025/
 
-**Van Bronckhorst named Liverpool assistant coach**\
-`Van Bronckhorst will form a new-look backroom team alongside Sipke Hulshoff and Aaron Briggs, and the returning Xavi Valero.`\
-https://nytimes.com/athletic/6423647/2025/07/02/giovanni-van-bronckhorst-named-liverpool-assistant-xavi-valero-returns-in-coaching-shake-up/
+**Blues sub Bjugstad for Faksa: Where it leaves the depth chart, and are they done?**\
+`The Blues signed veteran center Nick Bjugstad in free agency but could still use more depth up the middle.`\
+https://nytimes.com/athletic/6466670/2025/07/02/blues-depth-chart-bjugstad-faksa/
 
-**Fireworks Warehouse Explodes in Northern California**\
-`The cause of the explosion in Esparto, Calif., remained unclear. There were no initial reports of injuries.`\
-https://nytimes.com/2025/07/02/us/fireworks-warehouse-explosion-esparto-california.html
+**Jed Hoyer says Cubs have trade resources, calls Kyle Tucker a long-term fit**\
+`"Kyle Tucker is a player you want to have for a long time," Hoyer said. "He's been one of the best players in baseball this year."`\
+https://nytimes.com/athletic/6467641/2025/07/02/cubs-kyle-tucker-trade-deadline/
 
-**The Reds beat the Red Sox in epic '75 Series, but NESN won reunion with thowback telecast**\
-`Even though they lost in seven, the Super Sox of '75 were a special team. NESN's effort succeeded in recapturing that.`\
-https://nytimes.com/athletic/6467813/2025/07/02/red-sox-reds-1975-world-series-50th-celebration/
+**Dallas Cowboys fan survey: What are your expectations for the 2025 season?**\
+`From Brian Schottenheimer's first season to Dak Prescott's return to how many games the Cowboys will win, we want to hear from you.`\
+https://nytimes.com/athletic/6466771/2025/07/02/dallas-cowboys-fan-survey-2025/
 
-**Burnley complete signing of Lazio forward Tchaouna**\
-`The 21-year-old is Burnley's fourth signing of a busy summer.`\
-https://nytimes.com/athletic/6468195/2025/07/02/burnley-complete-signing-of-lazio-forward-loum-tchaouna-on-long-term-deal/
+**Here’s the latest.**\
+`By Ben Sisario and Julia Jacobs`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/heres-the-latest
 
-**Matt Freese's shootout heroics could give USMNT a lasting emotional lift**\
-`Penalty shootouts provide dramatic moments. But the long-term effects could be even more telling. `\
-https://nytimes.com/athletic/6467431/2025/07/02/matt-freese-penalty-shootout-usmnt-costa-rica/
+**Trump Administration Live Updates: Divided G.O.P. to Decide Fate of President’s Policy Bill**\
+``\
+https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news
 
