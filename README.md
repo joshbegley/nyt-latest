@@ -1,3 +1,12 @@
+**Iran Suspends Cooperation With U.N. Nuclear Watchdog**\
+`The decision means that international inspectors will not be able to oversee sites, as experts warn that Tehran could revive plans to build a bomb.`\
+https://nytimes.com/2025/07/02/world/middleeast/iran-nuclear-iaea.html
+
+**Hockey insider Bob McKenzie retires after 48 years: A tribute**\
+`In a flurry of free-agency moves on July 1, it was the deal that was — in McKenzie's own words — "one for none" that stole the show.
+`\
+https://nytimes.com/athletic/6467697/2025/07/02/bob-mckenzie-retires-tsn-nhl-insider-free-agency/
+
 **Pause in U.S. Weapons Deepens Ukrainian Concerns as Russian Attacks Grow**\
 `The suspension includes air defense interceptors, and it will directly affect Ukraine’s ability to fend off escalating Russian air assaults.`\
 https://nytimes.com/2025/07/02/world/europe/ukraine-russia-war-trump-weapons.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6468195/2025/07/02/burnley-complete-signing-of-lazi
 **Matt Freese's shootout heroics could give USMNT a lasting emotional lift**\
 `Penalty shootouts provide dramatic moments. But the long-term effects could be even more telling. `\
 https://nytimes.com/athletic/6467431/2025/07/02/matt-freese-penalty-shootout-usmnt-costa-rica/
-
-**With trade talk behind him, Rashod Bateman believes Ravens have unfinished business**\
-`The fifth-year receiver shares thoughts on his contract extension, his quarterback and Baltimore's chances of getting over the playoff hump.`\
-https://nytimes.com/athletic/6444465/2025/07/02/ravens-rashod-bateman-contract-lamar-jackson/
-
-**Where MLS truly stands after its Club World Cup awakening**\
-`The performances of Inter Miami, LAFC and the Seattle Sounders shed some insight into where MLS stands on the global stage.`\
-https://nytimes.com/athletic/6463505/2025/07/02/mls-club-world-cup-lafc-seattle-inter-miami/
 

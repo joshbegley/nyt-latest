@@ -1,3 +1,7 @@
+**Pause in U.S. Weapons Deepens Ukrainian Concerns as Russian Attacks Grow**\
+`The suspension includes air defense interceptors, and it will directly affect Ukraine’s ability to fend off escalating Russian air assaults.`\
+https://nytimes.com/2025/07/02/world/europe/ukraine-russia-war-trump-weapons.html
+
 **Does Ohio State have a D-line recruiting problem? What's next for Buckeyes' 2026 class**\
 `Ohio State still has a top-five recruiting class with several high-priority targets left, even if there's been a run of bad news recently.`\
 https://nytimes.com/athletic/6466341/2025/07/02/ohio-state-football-recruiting-visits-commits-2026/

@@ -1,3 +1,7 @@
+**Pause in U.S. Weapons Deepens Ukrainian Concerns as Russian Attacks Grow**\
+`The suspension includes air defense interceptors, and it will directly affect Ukraine’s ability to fend off escalating Russian air assaults.`\
+https://nytimes.com/2025/07/02/world/europe/ukraine-russia-war-trump-weapons.html
+
 **Does Ohio State have a D-line recruiting problem? What's next for Buckeyes' 2026 class**\
 `Ohio State still has a top-five recruiting class with several high-priority targets left, even if there's been a run of bad news recently.`\
 https://nytimes.com/athletic/6466341/2025/07/02/ohio-state-football-recruiting-visits-commits-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6444465/2025/07/02/ravens-rashod-bateman-contract-l
 **Where MLS truly stands after its Club World Cup awakening**\
 `The performances of Inter Miami, LAFC and the Seattle Sounders shed some insight into where MLS stands on the global stage.`\
 https://nytimes.com/athletic/6463505/2025/07/02/mls-club-world-cup-lafc-seattle-inter-miami/
-
-**The First Income Tax in the Persian Gulf Signals a Changing Economic Reality**\
-`A plan by Oman is being closely watched by other governments in the region that are preparing for a future beyond oil.`\
-https://nytimes.com/2025/07/02/world/middleeast/oman-income-tax-persian-gulf.html
 
