@@ -1,9 +1,13 @@
+**Lawmakers Hit the Road to Reach Washington for Vote on Trump Bill**\
+`Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
+https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
+
 **Watching the Poulters turn rivals for a day with British Open qualification on the line**\
 `We spent a day watching father and son Ian and Luke Poulter try to beat each other to secure a place at Portrush`\
 https://nytimes.com/athletic/6467092/2025/07/02/ian-poulter-luke-poulter-open-golf/
 
 **Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
-`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so Wolves fans listen`\
+`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so when he does, Wolves fans listen`\
 https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
 
 **Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times
 **2025 Women's Euros odds: Spain favoured ahead of defending champs England**\
 `After winning the World Cup two years ago, Spain are favoured to win the Euros this summer. Defending champs England are second favourites.`\
 https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-england/
-
-**Indiana Fever's resilience on display in Commissioner's Cup championship**\
-`Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
-https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
 
