@@ -1,3 +1,23 @@
+**Leeds in talks with Bremen over Wober sale**\
+`Sources at Elland Road are optimistic an agreement will be reached.`\
+https://nytimes.com/athletic/6468574/2025/07/02/leeds-news-max-wober-bremen/
+
+**The Pulse: NBA free agency starts with a stunner**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6467922/2025/07/02/damian-lillard-bucks-giannis-the-pulse/
+
+**How Xabi Alonso's in-game changes guided Real Madrid past Juventus**\
+`Alonso's recent words are of a coach who is trying to improve a side that had lost its structure due to the focus on individuality`\
+https://nytimes.com/athletic/6468130/2025/07/02/xabi-alonso-tactics-real-madrid-juventus/
+
+**Keanu Reeves to lead documentary on Cadillac F1 team**\
+`Cadillac are set to join the grid next season after a lengthy approval process that took over two years.`\
+https://nytimes.com/athletic/6468239/2025/07/02/keanu-reeves-cadillac-f1-documentary/
+
+**Sunderland agree €20.5m deal for Sadiki**\
+`The agreement is worth a guaranteed €17.5m.`\
+https://nytimes.com/athletic/6468495/2025/07/02/sunderland-transfer-noah-sadiki-union-saint-gilloise/
+
 **U.K. Chancellor in Tears in Parliament as Questions Are Raised About Her Role**\
 `Rachel Reeves, Britain’s most senior finance official, appeared visibly upset in the House of Commons on Wednesday, as Prime Minister Keir Starmer was asked about her position.`\
 https://nytimes.com/2025/07/02/world/europe/rachel-reeves-uk-keir-starmer-crying.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html
 **Non-negotiables vs obvious talent: The pros and cons of selling Joao Pedro**\
 `The Brazilian has become the latest Brighton employee to join Chelsea. But is the feeling different this time?`\
 https://nytimes.com/athletic/6462044/2025/07/02/brighton-joao-pedro-hurzeler/
-
-**Chelsea confirm Joao Pedro signing from Brighton**\
-`The Brazilian has signed a contract until 2032, having spent the last two seasons at Brighton.`\
-https://nytimes.com/athletic/6462058/2025/07/02/chelsea-joao-pedro-transfer-brighton/
-
-**The Unrepentant Return of Christian Diet Culture**\
-`How thinness as a virtue shifts from debauchery to conservatism.`\
-https://nytimes.com/2025/07/02/opinion/christian-diet-culture.html
-
-**A Friend Asked to Bring My Ex to My Party. Was It OK to Disinvite Her?**\
-`A reader was caught off guard by her college best friend’s request of a plus one, considering how poorly her relationship with the ex ended. But did she overreact?`\
-https://nytimes.com/2025/07/02/style/party-disinvitation.html
-
-**What we know about the jury’s deliberations.**\
-`By Ben Sisario and Julia Jacobs`\
-https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/what-we-know-about-the-jurys-deliberations
-
-**How U.S.-Japan Tariff Talks Got Stuck on Cars and Rice**\
-`Negotiations have stalled ahead of next week’s deadline, with some suggesting Japan misjudged the depth of President Trump’s frustration over Tokyo’s policies.`\
-https://nytimes.com/2025/07/02/business/trump-tariffs-japan-rice-cars.html
 
