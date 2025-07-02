@@ -1,3 +1,19 @@
+**What Is the Mann Act?**\
+`The law, passed in 1910, prohibits the interstate or foreign transportation of an individual for sex. It has at times been used as a tool for political persecution.`\
+https://nytimes.com/2025/07/02/arts/music/mann-act-sean-combs-diddy-charges.html
+
+**The Tragedy of Halting Weapons to Ukraine**\
+`Despite everything, it is still possible to achieve a just end to the war in Ukraine.`\
+https://nytimes.com/2025/07/02/opinion/trump-ukraine-weapons.html
+
+**Trump Asks Justices to Let Him Fire Consumer Product Safety Regulators**\
+`In an interim ruling in a similar case in May, the Supreme Court ruled that the president court terminate leaders of two other independent agencies.`\
+https://nytimes.com/2025/07/02/us/politics/trump-consumer-product-safety.html
+
+**Johnson Faces G.O.P. Resistance to Quick Final Vote on Trump Policy Bill**\
+`Several conservative House Republicans expressed grave reservations about changes the Senate made to the party’s major policy bill, leaving its fate and the timing of any final vote uncertain.`\
+https://nytimes.com/2025/07/02/us/politics/trump-bill-johnson-house-vote.html
+
 **How you can watch (and bet on) Clayton Kershaw joining MLB's 3K strikeout club**\
 `Clayton Kershaw is in line to become the 20th member of MLB's 3K tier. Here's how to watch his Wednesday night start out in Los Angeles.`\
 https://nytimes.com/athletic/6468767/2025/07/02/clayton-kershaw-3000-strikeouts-dodgers-mlb-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/02/climate/methane-sat-lost.html
 **The Combs verdict lets down advocates for sex-abuse victims.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-combs-verdict-lets-down-advocates-for-sex-abuse-victims
-
-**Tiny Love Stories: ‘Being a “Throuple” Felt Unthinkable’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/07/02/style/tiny-modern-love-stories-being-a-throuple-felt-unthinkable.html
-
-**A ‘Nepo Baby’ Sings Sharply About Fame**\
-`Romy Mars, the daughter of Sofia Coppola, the filmaker, and Thomas Mars, the musician, is onto something with “A-Lister,” according to our critic.`\
-https://nytimes.com/video/podcasts/100000010260642/a-nepo-baby-sings-sharply-about-fame.html
-
-**Review: Jealousy Sets a Dance in Motion at American Ballet Theater**\
-`Christopher Wheeldon’s lengthy “The Winter’s Tale,” a ballet based on the Shakespeare play, is filled with bad behavior but also love and forgiveness.`\
-https://nytimes.com/2025/07/02/arts/dance/winters-tale-ballet-wheedon.html
-
-**G/O Media Winds Down, Selling Off One of Its Last Sites**\
-`With the sale of the video game site Kotaku to the European publisher Keleops, all but one website remains at G/O Media, which is shutting down.`\
-https://nytimes.com/2025/07/02/business/media/kotaku-go-media-sale.html
 
