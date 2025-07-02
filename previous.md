@@ -1,3 +1,7 @@
+**Allison Williams on ‘M3gan 2.0’ and Parenting With A.I.**\
+`The actress said “we should be expressing a little more gratitude to the Roomba,” in an interview on the role of A.I. in her life and work.`\
+https://nytimes.com/2025/07/02/podcasts/hard-fork-allison-williams-megan-2-0.html
+
 **Sean Combs’s Nine Lives**\
 `For decades, he occupied a special stripe of the celebrity stratosphere. Now the man who helped turn rap into a global concern has escaped a sex-trafficking conviction.`\
 https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469310/2025/07/02/tennis-wimbledon-raducanu-vondro
 **Dodgers subject of civil rights complaint filed by conservative legal group**\
 `The complaint was filed weeks after the Dodgers said they denied federal immigration authorities access to Dodger Stadium parking lots.`\
 https://nytimes.com/athletic/6469611/2025/07/02/dodgers-dei-federal-civil-rights-complaint-america-first-legal/
-
-**Judge Rejects Trump’s Attempt to Stop Asylum Claims**\
-`The judge wrote that neither the Constitution nor federal immigration law gave the president the authority to “adopt an alternative immigration system.”`\
-https://nytimes.com/2025/07/02/us/politics/asylum-trump.html
 

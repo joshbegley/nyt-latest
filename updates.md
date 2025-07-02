@@ -1,3 +1,7 @@
+**Allison Williams on ‘M3gan 2.0’ and Parenting With A.I.**\
+`The actress said “we should be expressing a little more gratitude to the Roomba,” in an interview on the role of A.I. in her life and work.`\
+https://nytimes.com/2025/07/02/podcasts/hard-fork-allison-williams-megan-2-0.html
+
 **Sean Combs’s Nine Lives**\
 `For decades, he occupied a special stripe of the celebrity stratosphere. Now the man who helped turn rap into a global concern has escaped a sex-trafficking conviction.`\
 https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy.html
