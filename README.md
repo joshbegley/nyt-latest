@@ -1,4 +1,4 @@
-**'Wild and unexpected': How and why Mitch Marner ended up a Vegas Golden Knight**\
+**'Wild and unexpected': How Mitch Marner ended up a Vegas Golden Knight**\
 `"This is where we wanted to be," Marner said in his introduction after a sign-and-trade to Vegas.`\
 https://nytimes.com/athletic/6467517/2025/07/01/mitch-marner-golden-knights-contract/
 
