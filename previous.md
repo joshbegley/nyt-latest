@@ -1,3 +1,7 @@
+**Abrego Garcia Was Beaten and Tortured in El Salvador Prison, Lawyers Say**\
+`Kilmar Armando Abrego Garcia was made to kneel overnight, denied bathroom access and confined in an overcrowded cell with bright lights and no windows, his lawyers say.`\
+https://nytimes.com/2025/07/02/us/politics/kilmar-abrego-garcia-el-salvador-trump-deportation.html
+
 **Cardinals swept: 3 takeaways from 3 ugly losses to the Pirates**\
 `Injuries to Willson Contreras, Nolan Arenado and Lars Nootbar made for a quiet offense: "When you don't have them, it's tough to score'" `\
 https://nytimes.com/athletic/6469715/2025/07/02/cardinals-swept-pirates-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468440/2025/07/02/tennis-wimbledon-recap-day-3-res
 **Republicans Want States to Cut Food Aid Errors. Their Bill Could Do the Opposite.**\
 `To secure a key vote, an “absurd policy” was created that winds up encouraging states to make more mistakes.`\
 https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
-
-**Deandre Ayton agrees to two-year deal with Lakers: Sources**\
-`The Lakers biggest question entering the summer — who will play center? — has now been answered. `\
-https://nytimes.com/athletic/6464043/2025/07/02/lakers-center-nba-deandre-ayton/
 

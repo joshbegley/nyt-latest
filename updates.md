@@ -1,3 +1,7 @@
+**Abrego Garcia Was Beaten and Tortured in El Salvador Prison, Lawyers Say**\
+`Kilmar Armando Abrego Garcia was made to kneel overnight, denied bathroom access and confined in an overcrowded cell with bright lights and no windows, his lawyers say.`\
+https://nytimes.com/2025/07/02/us/politics/kilmar-abrego-garcia-el-salvador-trump-deportation.html
+
 **Cardinals swept: 3 takeaways from 3 ugly losses to the Pirates**\
 `Injuries to Willson Contreras, Nolan Arenado and Lars Nootbar made for a quiet offense: "When you don't have them, it's tough to score'" `\
 https://nytimes.com/athletic/6469715/2025/07/02/cardinals-swept-pirates-takeaways/
