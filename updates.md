@@ -1,3 +1,11 @@
+**What to Know: How Will the Next Dalai Lama Be Chosen?**\
+`The Tibetan spiritual leader may announce a succession plan intended to thwart Chinese interference.`\
+https://nytimes.com/2025/07/02/world/asia/next-dalai-lama-tibet.html
+
+**Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
+`President Trump had sued over an interview with former Vice President Kamala Harris. The company needs federal approval for a multibillion-dollar sale.`\
+https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
+
 **Dalai Lama Tightens Grip on Succession in the Face of Chinese Pressure**\
 `The aging Tibetan spiritual leader is looking to prevent Beijing from taking advantage of a power vacuum that might arise after his death.`\
 https://nytimes.com/2025/07/02/world/asia/dalai-lama-successor-tibet-china.html

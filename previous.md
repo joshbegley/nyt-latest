@@ -1,3 +1,7 @@
+**What to Know: How Will the Next Dalai Lama Be Chosen?**\
+`The Tibetan spiritual leader may announce a succession plan intended to thwart Chinese interference.`\
+https://nytimes.com/2025/07/02/world/asia/next-dalai-lama-tibet.html
+
 **Dalai Lama Tightens Grip on Succession in the Face of Chinese Pressure**\
 `The aging Tibetan spiritual leader is looking to prevent Beijing from taking advantage of a power vacuum that might arise after his death.`\
 https://nytimes.com/2025/07/02/world/asia/dalai-lama-successor-tibet-china.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-eng
 https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
 
 **Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
-`President Trump had sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
+`President Trump had sued over an interview with former Vice President Kamala Harris. The company needs federal approval for a multibillion-dollar sale.`\
 https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
 
 **How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6464891/2025/07/02/aston-villa-womens-team-sale-psr
 **Euro 2025 predictions: Will Spain win, which players to watch and could Iceland make the semis?**\
 `Our writers in Switzerland, the UK and the U.S. attempt to work out what will happen over the coming weeks`\
 https://nytimes.com/athletic/6458707/2025/07/02/womens-euro-2025-predictions/
-
-**Instructed to right the ship, Norway manager Gemma Grainger brings something new to Euro 2025**\
-`Grainger is hoping to guide Norway past the Euros group stages for the first time since 2013`\
-https://nytimes.com/athletic/6419169/2025/07/02/gemma-grainger-norway-euro-2025/
 
