@@ -1,3 +1,23 @@
+**How you can watch (and bet on) Clayton Kershaw joining MLB's 3K strikeout club**\
+`Clayton Kershaw is in line to become the 20th member of MLB's 3K tier. Here's how to watch his Wednesday night start out in Los Angeles.`\
+https://nytimes.com/athletic/6468767/2025/07/02/clayton-kershaw-3000-strikeouts-dodgers-mlb-how-to-watch/
+
+**Blues waive veteran defenseman Nick Leddy a day after acquiring Logan Mailloux**\
+`The club will find out Thursday if Leddy has been claimed. The move is not connected to a buyout, as the buyout period has closed.`\
+https://nytimes.com/athletic/6469059/2025/07/02/blues-waive-nick-leddy-logan-mailloux/
+
+**Como complete Jesus Rodriguez transfer from Betis**\
+`Rodriguez, 19, broke into Betis' first team during the 2024-25 season, making 31 appearances and scoring three goals.`\
+https://nytimes.com/athletic/6427179/2025/07/02/jesus-rodriguez-transfer-betis-como/
+
+**‘The Odyssey’ Teaser Is in Theaters. We Took a Look.**\
+`The teaser for Christopher Nolan’s next film, based on Homer’s epic, is playing ahead of screenings of “Jurassic World Rebirth.” Here’s how much of the film’s story is revealed.`\
+https://nytimes.com/2025/07/02/movies/the-odyssey-teaser.html
+
+**Methane-Tracking Satellite Is Lost, in a Blow to Climate Efforts**\
+`The spacecraft, MethaneSAT, was just a year into its mission to provide a clearer picture of planet-warming emissions from oil and gas sites.`\
+https://nytimes.com/2025/07/02/climate/methane-sat-lost.html
+
 **The Combs verdict lets down advocates for sex-abuse victims.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-combs-verdict-lets-down-advocates-for-sex-abuse-victims
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/02/arts/dance/winters-tale-ballet-wheedon.html
 **G/O Media Winds Down, Selling Off One of Its Last Sites**\
 `With the sale of the video game site Kotaku to the European publisher Keleops, all but one website remains at G/O Media, which is shutting down.`\
 https://nytimes.com/2025/07/02/business/media/kotaku-go-media-sale.html
-
-**With All Eyes on Them, a ‘WAG’ Style Emerges**\
-`In the sports world, some wives and girlfriends are more famous than the athletes they are watching. Fashion brands have noticed.`\
-https://nytimes.com/2025/07/02/style/wag-style-wives-girlfriends-athletes.html
-
-**As Heat Grips Europe, a Struggle to Keep Workers and Customers Cool**\
-`Companies are reporting a drop in business, reflecting the economic toll of the heat wave, which is lowering productivity and keeping shoppers at bay.`\
-https://nytimes.com/2025/07/02/business/heat-wave-europe-workers-customers.html
-
-**Microsoft to Lay Off About 9,000 Employees**\
-`The reductions followed cuts of about 6,000 positions last quarter, and were indicative of a tightening job market at big technology companies.`\
-https://nytimes.com/2025/07/02/technology/microsoft-layoffs-ai.html
-
-**Will the Bombing Stop Iran From Going Nuclear?**\
-`Iran just ended its cooperation with international inspectors, suggesting no post-bombing deal is imminent. That may point to a long game of hide-and-seek, punctuated by military action.`\
-https://nytimes.com/2025/07/02/us/politics/trump-nuclear-weapons-programs.html
-
-**PFA boss says Sheffield Wednesday players can terminate contracts**\
-`The four-time English champions were meant to pay June’s wages on Monday.`\
-https://nytimes.com/athletic/6468961/2025/07/02/sheffield-wednesday-unpaid-wages-players-terminate-contracts/
 
