@@ -1,3 +1,7 @@
+**2025 Women's Euros odds: Spain favoured ahead of defending champs England**\
+`After winning the World Cup two years ago, Spain are favoured to win the Euros this summer. Defending champs England are second favourites.`\
+https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-england/
+
 **Indiana Fever's resilience shines in Commissioner's Cup championship**\
 `Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
 https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
@@ -29,10 +33,6 @@ https://nytimes.com/athletic/6419169/2025/07/02/gemma-grainger-norway-euro-2025/
 **Tour de France 2025 preview: Schedule, stage guide, team rosters, riders to watch and more**\
 `The 112th Tour de France gets underway in Lille on Saturday. Here's a complete guide to one of sport's most prestigious events `\
 https://nytimes.com/athletic/6448427/2025/07/02/tour-de-france-2025-schedule-rosters-stages-riders/
-
-**Wirtz can buck the 'Havertz trend' and thrive at Liverpool**\
-`Vaunted young German players have not always succeeded in England. This is why Liverpool's new recruit can defy that record`\
-https://nytimes.com/athletic/6455561/2025/07/02/florian-wirtz-liverpool-german-attacker/
 
 **How Sheffield Wednesday descended into chaos**\
 `Unpaid wages, a highly regarded manager on way out and very real fears for the future. A once proud club is on the brink`\
