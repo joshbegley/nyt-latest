@@ -1,3 +1,11 @@
+**How could teams trade for LeBron James? A look at Cavs, Warriors, Mavs and more possibilities**\
+`At 40 years old, LeBron James wants to win, and win now. If he and the Lakers agree to part ways, these teams could make sense.`\
+https://nytimes.com/athletic/6468448/2025/07/02/lebron-james-trade-scenarios-nba-player-option/
+
+**Wisconsin Supreme Court Strikes Down 1849 Abortion Ban**\
+`After the U.S. Supreme Court overturned Roe v. Wade in 2022, Republican prosecutors in Wisconsin said they intended to enforce the old law.`\
+https://nytimes.com/2025/07/02/us/wisconsin-abortion-1849-supreme-court.html
+
 **Gladbach midfielder Neuhaus fined, demoted to U23s after 'unacceptable' video**\
 `Borussia Monchengladbach said Florian Neuhaus has been issued a "heavy fine" and will train with the Under-23s for four weeks.`\
 https://nytimes.com/athletic/6468376/2025/07/02/gladbach-florian-neuhaus-video-fined-demoted/
