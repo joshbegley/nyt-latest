@@ -1,3 +1,7 @@
+**Giants' Buster Posey commits to manager Bob Melvin for 2026: 'Time to show my belief'**\
+`However this second season ends, Melvin knows he'll have a shot at a third. His expectation continues to be that it will go well.`\
+https://nytimes.com/athletic/6467628/2025/07/01/giants-buster-posey-commits-to-manager-bob-melvin-for-2026-time-to-show-my-belief/
+
 **How the Astros will handle shortstop Jeremy Peña's absence**\
 `Peña's rib fracture will sideline him for at least 10 days, derailing a prolific season that had him near stardom.`\
 https://nytimes.com/athletic/6467593/2025/07/01/jeremy-pena-rib-fracture-astros/

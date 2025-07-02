@@ -1,3 +1,7 @@
+**Giants' Buster Posey commits to manager Bob Melvin for 2026: 'Time to show my belief'**\
+`However this second season ends, Melvin knows he'll have a shot at a third. His expectation continues to be that it will go well.`\
+https://nytimes.com/athletic/6467628/2025/07/01/giants-buster-posey-commits-to-manager-bob-melvin-for-2026-time-to-show-my-belief/
+
 **How the Astros will handle shortstop Jeremy Peña's absence**\
 `Peña's rib fracture will sideline him for at least 10 days, derailing a prolific season that had him near stardom.`\
 https://nytimes.com/athletic/6467593/2025/07/01/jeremy-pena-rib-fracture-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467235/2025/07/01/yankees-jazz-chisholm-jr-why-thi
 **Red Panda injured during performance at WNBA game, leaves arena in ambulance**\
 `The iconic halftime performer takes spill less than a minute into her halftime show, is seen leaving arena in ambulance.`\
 https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-performance/
-
-**Grizzlies' Jaren Jackson Jr. sustains turf toe injury in right foot**\
-`The injury is a tough loss for the Grizzlies, who agreed with Jackson Monday on a five-year, $240 million maximum renegotation-and-extension`\
-https://nytimes.com/athletic/6467426/2025/07/01/grizzlies-jaren-jackson-jr-toe-injury/
 
