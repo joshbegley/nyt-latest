@@ -1,3 +1,11 @@
+**Leverkusen complete signing of Liverpool's Jarell Quansah**\
+`Liverpool say the deal is worth £30million and will include a buy-back option for the defender.`\
+https://nytimes.com/athletic/6443343/2025/07/02/bayer-leverkusen-complete-signing-of-liverpool-defender-jarell-quansah/
+
+**How to watch the 2025 John Deere Classic: Tee times, streaming info, picks and odds**\
+`The PGA Tour's annual John Deere Classic starts up on Thursday afternoon. Fittingly, Fourth of July action goes down at the Quad Cities.`\
+https://nytimes.com/athletic/6466298/2025/07/02/john-deere-classic-pga-golf-how-to-watch/
+
 **Senate Bill Offers Interest Deduction for Buyers of American-Made Cars**\
 `But the benefits of the deduction, estimated to cost $31 billion over four years, may be limited to a narrow slice of consumers, economists say.`\
 https://nytimes.com/2025/07/02/us/politics/senate-trump-bill-new-car-interest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/opinion/planned-parenthood-supreme-court-decision
 **What the Supreme Court’s Birthright Ruling Means for Trump’s Power**\
 `A recent Supreme Court ruling could allow President Trump’s order ending birthright citizenship to go into effect in some states.`\
 https://nytimes.com/video/us/politics/100000010259478/what-the-supreme-courts-birthright-ruling-means-for-trumps-power.html
-
-**At Men’s Fashion Week, Hot Collections (and Temperatures)**\
-`Against a backdrop of scorching heat, the spring men’s wear shows in Paris prioritized lightness and wearability.`\
-https://nytimes.com/2025/07/02/style/mens-fashion-week-paris.html
-
-**How to Organize Your Digital Library**\
-`If the e-book app on your phone or tablet is overflowing and full of outdated files, use these tools to tidy it up.`\
-https://nytimes.com/2025/07/02/technology/personaltech/organizing-kindle-apple-google-ebooks.html
 
