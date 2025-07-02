@@ -1,3 +1,7 @@
+**Why the Zero SP draft strategy continues to be the right approach in fantasy baseball**\
+`Michael Salfino shows the evidence for why the Zero SP draft strategy continues to be a winning strategy in fantasy baseball 2025.`\
+https://nytimes.com/athletic/6469395/2025/07/02/fantasy-baseball-zero-sp-draft-strategy-revisited/
+
 **Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
 `The music mogul was convicted of arranging for the travel of male escorts across state lines but acquitted of sex trafficking and racketeering conspiracy.`\
 https://nytimes.com/2025/07/02/arts/music/combs-acquitted-sex-trafficking-sean-diddy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/asylum-trump.html
 **10 Ways of Making Sense of Zohran Mamdani’s Win**\
 `New York City’s surprising primary result has ramifications for the whole country.`\
 https://nytimes.com/2025/07/02/opinion/zohran-mamdani-democrats-trump.html
-
-**With Trump’s Policy Bill Teetering, Johnson Is in a Familiar Pickle**\
-`The speaker’s struggle to bring his party’s sprawling domestic policy bill in for a landing was just the latest in his string of near-death legislative experiences.`\
-https://nytimes.com/2025/07/02/us/politics/johnson-trump-policy-bill.html
 

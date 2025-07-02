@@ -1,3 +1,7 @@
+**Why the Zero SP draft strategy continues to be the right approach in fantasy baseball**\
+`Michael Salfino shows the evidence for why the Zero SP draft strategy continues to be a winning strategy in fantasy baseball 2025.`\
+https://nytimes.com/athletic/6469395/2025/07/02/fantasy-baseball-zero-sp-draft-strategy-revisited/
+
 **Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
 `The music mogul was convicted of arranging for the travel of male escorts across state lines but acquitted of sex trafficking and racketeering conspiracy.`\
 https://nytimes.com/2025/07/02/arts/music/combs-acquitted-sex-trafficking-sean-diddy.html

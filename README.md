@@ -1,3 +1,7 @@
+**Sean Combs’s Nine Lives**\
+`For decades, he occupied a special stripe of the celebrity stratosphere. Now the man who helped turn rap into a global concern has escaped a sex-trafficking conviction.`\
+https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy.html
+
 **Why the Zero SP draft strategy continues to be the right approach in fantasy baseball**\
 `Michael Salfino shows the evidence for why the Zero SP draft strategy continues to be a winning strategy in fantasy baseball 2025.`\
 https://nytimes.com/athletic/6469395/2025/07/02/fantasy-baseball-zero-sp-draft-strategy-revisited/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469611/2025/07/02/dodgers-dei-federal-civil-rights
 **Judge Rejects Trump’s Attempt to Stop Asylum Claims**\
 `The judge wrote that neither the Constitution nor federal immigration law gave the president the authority to “adopt an alternative immigration system.”`\
 https://nytimes.com/2025/07/02/us/politics/asylum-trump.html
-
-**10 Ways of Making Sense of Zohran Mamdani’s Win**\
-`New York City’s surprising primary result has ramifications for the whole country.`\
-https://nytimes.com/2025/07/02/opinion/zohran-mamdani-democrats-trump.html
 
