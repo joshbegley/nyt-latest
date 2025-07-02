@@ -1,3 +1,19 @@
+**Chris Drury on 'busy and exciting' offseason, plus K'Andre Miller on trade to Hurricanes**\
+`As New York makes moves to improve next season, top prospect Gabe Perreault is also aiming to make the NHL roster in the fall.`\
+https://nytimes.com/athletic/6469724/2025/07/02/rangers-kandre-miller-trade-chris-drury-nhl-offseason/
+
+**Thursday Briefing: Sean Combs Acquitted of Sex Trafficking**\
+`Plus, pet crocodiles in Australia.`\
+https://nytimes.com/2025/07/02/briefing/sean-combs-trial-israel-hamas-ukraine.html
+
+**The Quiet Girls’ Revolution Underway in Africa**\
+`We think of human rights abuses as wartime atrocities, but sometimes they involve what family members do to the people they love.`\
+https://nytimes.com/2025/07/02/opinion/sierra-leone-africa-women.html
+
+**gws-greenland-says-visit-but-step-lightly-and-speak-softly**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/greenland-says-visit-but-step-lightly-and-speak-softly
+
 **Republican Disputes Over Trump’s Bill Give Democrats More Chances to Attack It**\
 `Democrats are sharpening their political arguments against their opposition as the president’s major policy bill moves through Congress.`\
 https://nytimes.com/2025/07/02/us/politics/democrats-trump-bill.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6469395/2025/07/02/fantasy-baseball-zero-sp-draft-s
 **Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
 `The music mogul was convicted of arranging for the travel of male escorts across state lines but acquitted of sex trafficking and racketeering conspiracy.`\
 https://nytimes.com/2025/07/02/arts/music/combs-acquitted-sex-trafficking-sean-diddy.html
-
-**Wiegman: England have 'protocols in place' to deal with Euro 2025 heat**\
-`Wiegman says she does not envision the heatwave in Switzerland impacting her side's 2025 European Championship preparations.`\
-https://nytimes.com/athletic/6469251/2025/07/02/sarina-wiegman-england-euros-switzerland-heat/
-
-**Mamdani Says Trump Is Attacking Him to Divert Focus From G.O.P. Agenda**\
-`Zohran Mamdani, the Democratic nominee for mayor of New York City, has been targeted by the president and other Republicans since his success in the primary.`\
-https://nytimes.com/2025/07/02/nyregion/mamdani-trump.html
-
-**Red Wings sign Mason Appleton to 2-year contract worth $2.9 million per season**\
-`Detroit has been looking to add size and hardness to its lineup. Appleton will help with that.`\
-https://nytimes.com/athletic/6469688/2025/07/02/red-wings-mason-appleton-contract-nhl/
-
-**What Has Trump Said About Undocumented Farmers and Hotel Workers?**\
-`President Trump has floated ideas about helping certain industries that rely on immigrant labor, but the White House has yet to release a concrete plan about what’s in store.`\
-https://nytimes.com/2025/07/02/us/politics/trump-undocumented-immigrants-farmers-hotels.html
 

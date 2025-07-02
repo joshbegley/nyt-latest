@@ -1,3 +1,19 @@
+**Chris Drury on 'busy and exciting' offseason, plus K'Andre Miller on trade to Hurricanes**\
+`As New York makes moves to improve next season, top prospect Gabe Perreault is also aiming to make the NHL roster in the fall.`\
+https://nytimes.com/athletic/6469724/2025/07/02/rangers-kandre-miller-trade-chris-drury-nhl-offseason/
+
+**Thursday Briefing: Sean Combs Acquitted of Sex Trafficking**\
+`Plus, pet crocodiles in Australia.`\
+https://nytimes.com/2025/07/02/briefing/sean-combs-trial-israel-hamas-ukraine.html
+
+**The Quiet Girls’ Revolution Underway in Africa**\
+`We think of human rights abuses as wartime atrocities, but sometimes they involve what family members do to the people they love.`\
+https://nytimes.com/2025/07/02/opinion/sierra-leone-africa-women.html
+
+**gws-greenland-says-visit-but-step-lightly-and-speak-softly**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/greenland-says-visit-but-step-lightly-and-speak-softly
+
 **Republican Disputes Over Trump’s Bill Give Democrats More Chances to Attack It**\
 `Democrats are sharpening their political arguments against their opposition as the president’s major policy bill moves through Congress.`\
 https://nytimes.com/2025/07/02/us/politics/democrats-trump-bill.html
