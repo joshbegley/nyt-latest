@@ -1,3 +1,7 @@
+**Sentencing experts say judge has wide latitude in sentencing.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/sentencing-experts-say-judge-has-wide-latitude-in-sentencing
+
 **How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\
 `Turner agreeing to sign with the Bucks and then Milwaukee waiving Lillard stunned the NBA. Here's how the Bucks made it work financially.`\
 https://nytimes.com/athletic/6467602/2025/07/02/myles-turner-damian-lillard-bucks-salary-cap-explained/
