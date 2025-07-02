@@ -1,3 +1,7 @@
+**Women’s Pro Baseball League to hold first-ever tryouts in August**\
+`More than 600 people registered to take part in the league's tryouts, which will happen in Washington, D.C., in August.`\
+https://nytimes.com/athletic/6468400/2025/07/02/womens-pro-baseball-league-tryouts/
+
 **Europe’s Heat Wave Persists, Moving Eastwards**\
 `The heat wave moved toward Germany after affecting southwestern Europe, including Spain and France, earlier this week.`\
 https://nytimes.com/video/world/europe/100000010263338/europes-heat-wave-persists-moving-eastwards.html
