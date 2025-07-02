@@ -1,3 +1,7 @@
+**Fever beat Lynx without Caitlin Clark to take WNBA Commissioner's Cup**\
+`Natasha Howard leads way as Indiana hands Minnesota first home loss of season, wins $500,000 pot.`\
+https://nytimes.com/athletic/6467622/2025/07/01/wnba-commissioners-cup-fever-lynx/
+
 **'Wild and unexpected': How Mitch Marner ended up a Vegas Golden Knight**\
 `"This is where we wanted to be," Marner said in his introduction after a sign-and-trade to Vegas.`\
 https://nytimes.com/athletic/6467517/2025/07/01/mitch-marner-golden-knights-contract/
