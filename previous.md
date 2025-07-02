@@ -1,3 +1,7 @@
+**Iran’s Nuclear Hopes Set Back by 1-2 Years by Bombings, Pentagon Now Says**\
+`The assessment was the latest in a series of sometimes-contradictory evaluations of the damage that bombs inflicted on Iran’s nuclear program.`\
+https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
+
 **Braves lose Spencer Schwellenbach to IL with fractured elbow**\
 `Schwellenbach injured the elbow in his last start. It isn't clear whether he will be able to return this season.`\
 https://nytimes.com/athletic/6469829/2025/07/02/spencer-schwellenbach-braves-fractured-elbow/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/pentagon-weapons-review.html
 **What Happens if the House Can’t Pass Trump’s Bill?**\
 `If members of the House demand changes to the legislation the Senate has passed, the two chambers will have to work out their differences in what could be a prolonged negotiation, potentially killing the effort.`\
 https://nytimes.com/2025/07/02/us/politics/trump-policy-bill-conference-process.html
-
-**Tax Cuts Now, Benefit Cuts Later: The Timeline in the Republican Megabill**\
-`Republicans deferred some of their most painful spending cuts until after the midterm elections.`\
-https://nytimes.com/2025/07/02/us/politics/tax-cuts-benefit-cuts.html
 
