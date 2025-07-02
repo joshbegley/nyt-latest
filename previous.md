@@ -1,8 +1,12 @@
+**Microsoft to Lay Off About 9,000 Employees**\
+`The reductions followed cuts of about 6,000 positions last quarter, and were indicative of a tightening job market at big technology companies.`\
+https://nytimes.com/2025/07/02/technology/microsoft-layoffs-ai.html
+
 **Will the Bombing Stop Iran From Going Nuclear?**\
 `Iran just ended its cooperation with international inspectors, suggesting no post-bombing deal is imminent. That may point to a long game of hide-and-seek, punctuated by military action.`\
 https://nytimes.com/2025/07/02/us/politics/trump-nuclear-weapons-programs.html
 
-**Players' union boss says Sheffield Wednesday players can terminate contracts**\
+**PFA boss says Sheffield Wednesday players can terminate contracts**\
 `The four-time English champions were meant to pay June’s wages on Monday.`\
 https://nytimes.com/athletic/6468961/2025/07/02/sheffield-wednesday-unpaid-wages-players-terminate-contracts/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/style/this-artist-has-big-feelings-about-indian-w
 **A Woman in My Book Club Never Reads the Books. Can I Expose Her?**\
 `She reads reviews online and passes off the opinions as her own.`\
 https://nytimes.com/2025/07/02/magazine/book-club-books-ethics.html
-
-**Cameron Norrie rescues second-round comeback win to send Frances Tiafoe out of Wimbledon**\
-`Having created a huge opportunity for a two-set lead, Tiafoe became the latest seed to exit SW19.`\
-https://nytimes.com/athletic/6468697/2025/07/02/tennis-wimbledon-norrie-tiafoe-result-analysis/
 

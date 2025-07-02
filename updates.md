@@ -1,3 +1,11 @@
+**Microsoft to Lay Off About 9,000 Employees**\
+`The reductions followed cuts of about 6,000 positions last quarter, and were indicative of a tightening job market at big technology companies.`\
+https://nytimes.com/2025/07/02/technology/microsoft-layoffs-ai.html
+
+**PFA boss says Sheffield Wednesday players can terminate contracts**\
+`The four-time English champions were meant to pay June’s wages on Monday.`\
+https://nytimes.com/athletic/6468961/2025/07/02/sheffield-wednesday-unpaid-wages-players-terminate-contracts/
+
 **Will the Bombing Stop Iran From Going Nuclear?**\
 `Iran just ended its cooperation with international inspectors, suggesting no post-bombing deal is imminent. That may point to a long game of hide-and-seek, punctuated by military action.`\
 https://nytimes.com/2025/07/02/us/politics/trump-nuclear-weapons-programs.html
