@@ -1,3 +1,19 @@
+**Braves designate Alex Verdugo for assignment to make room for Jurickson Profar: Source**\
+`Verdugo has hit .203 in his last 42 games. Profar will return from an 80-game suspension handed down four days into the season.`\
+https://nytimes.com/athletic/6469123/2025/07/02/alex-verdugo-braves-dfa-jurickson-profar/
+
+**Knicks offer Mike Brown head coach role: Sources**\
+`New York fired Tom Thibodeau just days after making the Eastern Conference Finals for the first time in 25 years.`\
+https://nytimes.com/athletic/6435187/2025/07/02/knicks-mike-brown-coach-hire/
+
+**How will the Bruins score in 2025-26?**\
+`Boston has gotten more truculent, hostile and belligerent in free agency, but will any of that translate to the scoreboard?`\
+https://nytimes.com/athletic/6468891/2025/07/02/bruins-offense-free-agent-additions/
+
+**Bills rookie Maxwell Hairston accused of sexual assault in lawsuit**\
+`The alleged incident occurred when Hairston was a 17-year-old freshman at the University of Kentucky.`\
+https://nytimes.com/athletic/6468811/2025/07/02/maxwell-hairston-lawsuit-sexual-assault-bills/
+
 **Justice Dept. Weighs Seeking Criminal Charges as It Presses States for Election Data**\
 `Such a path could drastically raise the stakes for federal investigations of state or county officials, bringing the department and the threat of criminalization into the election system.`\
 https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html

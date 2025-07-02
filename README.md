@@ -1,3 +1,7 @@
+**Top F.D.A. Official Overrode Scientists on Covid Shots**\
+`Records show that a top U.S. regulator rejected the recommendations of agency experts and limited the use of Covid vaccines.`\
+https://nytimes.com/2025/07/02/health/fda-covid-vaccines.html
+
 **Braves designate Alex Verdugo for assignment to make room for Jurickson Profar: Source**\
 `Verdugo has hit .203 in his last 42 games. Profar will return from an 80-game suspension handed down four days into the season.`\
 https://nytimes.com/athletic/6469123/2025/07/02/alex-verdugo-braves-dfa-jurickson-profar/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/trump-consumer-product-safety.html
 **Johnson Faces G.O.P. Resistance to Quick Final Vote on Trump Policy Bill**\
 `Several conservative House Republicans expressed grave reservations about changes the Senate made to the party’s major policy bill, leaving its fate and the timing of any final vote uncertain.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-johnson-house-vote.html
-
-**How you can watch (and bet on) Clayton Kershaw joining MLB's 3K strikeout club**\
-`Clayton Kershaw is in line to become the 20th member of MLB's 3K tier. Here's how to watch his Wednesday night start out in Los Angeles.`\
-https://nytimes.com/athletic/6468767/2025/07/02/clayton-kershaw-3000-strikeouts-dodgers-mlb-how-to-watch/
 
