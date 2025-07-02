@@ -1,3 +1,7 @@
+**What Has Trump Said About Undocumented Farmers and Hotel Workers?**\
+`President Trump has floated ideas about helping certain industries that rely on immigrant labor, but the White House has yet to release a concrete plan about what’s in store.`\
+https://nytimes.com/2025/07/02/us/politics/trump-undocumented-immigrants-farmers-hotels.html
+
 **Emma Raducanu and Marketa Vondrousova's Wimbledon duel of champions and cautionary tales**\
 `In a parallel universe, this matchup is between two top-10 players. In this one, it is a duel of two cautionary tales about tennis success.`\
 https://nytimes.com/athletic/6469310/2025/07/02/tennis-wimbledon-raducanu-vondrousova-grand-slam-champions/
