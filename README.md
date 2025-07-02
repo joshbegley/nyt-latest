@@ -1,3 +1,15 @@
+**England and Ben Stokes are changing the cricket toss**\
+`Win the toss and bat first was always the conventional wisdom in Test cricket - England are taking a very different approach`\
+https://nytimes.com/athletic/6469476/2025/07/02/england-ben-stokes-india-cricket-toss/
+
+**For ‘60 Minutes,’ a Humbling Moment at an Uneasy Time for Press Freedom**\
+`After an astonishing concession to a sitting president, the country’s most popular television news program faces the prospect of new ownership and a chilled environment for the First Amendment.`\
+https://nytimes.com/2025/07/02/business/media/trump-paramount-cbs-60-minutes-lawsuit.html
+
+**NWSL releases 2026 schedule footprint with adjustments for Men's World Cup**\
+`The 2026 season will coincide with the Men's World Cup, which will host games in seven cities with NWSL teams.`\
+https://nytimes.com/athletic/6469425/2025/07/02/nwsl-2026-schedule-world-cup-cities/
+
 **454 Hints That a Chatbot Wrote Part of a Biomedical Researcher’s Paper**\
 `Scientists show that the frequency of a set of words seems to have increased in published study abstracts since ChatGPT was released into the world.`\
 https://nytimes.com/2025/07/02/health/ai-chatgpt-research-papers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/02/health/fda-covid-vaccines.html
 **Braves designate Alex Verdugo for assignment to make room for Jurickson Profar: Source**\
 `Verdugo has hit .203 in his last 42 games. Profar will return from an 80-game suspension handed down four days into the season.`\
 https://nytimes.com/athletic/6469123/2025/07/02/alex-verdugo-braves-dfa-jurickson-profar/
-
-**Knicks offer Mike Brown head coach role: Sources**\
-`New York fired Tom Thibodeau just days after making the Eastern Conference Finals for the first time in 25 years.`\
-https://nytimes.com/athletic/6435187/2025/07/02/knicks-mike-brown-coach-hire/
-
-**How will the Bruins score in 2025-26?**\
-`Boston has gotten more truculent, hostile and belligerent in free agency, but will any of that translate to the scoreboard?`\
-https://nytimes.com/athletic/6468891/2025/07/02/bruins-offense-free-agent-additions/
-
-**Bills rookie Maxwell Hairston accused of sexual assault in lawsuit**\
-`The alleged incident occurred when Hairston was a 17-year-old freshman at the University of Kentucky.`\
-https://nytimes.com/athletic/6468811/2025/07/02/maxwell-hairston-lawsuit-sexual-assault-bills/
 
