@@ -1,3 +1,23 @@
+**Downtown Housing Could Rise in California Cities, but Barriers Remain**\
+`After scaling back a landmark environmental law, Gov. Gavin Newsom and other state leaders are hoping for a construction boom.`\
+https://nytimes.com/2025/07/01/us/ceqa-california-housing.html
+
+**Sea Spiders Lack a Key Body Part and a Missing Gene Could Explain Why**\
+`Scientists have long sought to understand why sea spiders keep some of their most important organs in their legs.`\
+https://nytimes.com/2025/07/01/science/sea-spiders-abdomen-genes.html
+
+**U.S. Judge Blocks Deportation of Haitian Migrants**\
+`Judge Brian Cogan’s order prevented the Trump administration from ending special immigration protections for hundreds of thousands of Haitian migrants.`\
+https://nytimes.com/2025/07/01/us/politics/trump-haiti-migrants-deportation.html
+
+**The Disaster That Just Passed the Senate**\
+`Trump’s “big beautiful bill” would gut Medicaid, nutrition assistance and clean energy credits. All for what?`\
+https://nytimes.com/2025/07/01/opinion/ezra-klein-podcast-matthew-yglesias.html
+
+**Trump Says Israel Agrees to Conditions for Gaza Cease-Fire Proposal**\
+`In a social media post, the president said the United States and Israel were finalizing a proposal to Hamas. The announcement comes ahead of Prime Minister Benjamin Netanyahu’s visit to Washington next week.`\
+https://nytimes.com/2025/07/01/us/politics/trump-israel-gaza-ceasefire.html
+
 **The story behind Jack Leiter's surprise at-bat: 'Let me try to punch one in there'**\
 `It was the sort of baseball game that makes you wonder how anyone managed to even paint the foul lines straight.`\
 https://nytimes.com/athletic/6467065/2025/07/01/texas-rangers-jack-leiter-at-bat/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6467278/2025/07/01/sabres-free-agency-2025/
 **Beyoncé’s Hometown Throwdown**\
 `The superstar’s Cowboy Carter Tour arrived in Houston over the weekend, and fans once again dressed in their sparkly country finest.`\
 https://nytimes.com/card/2025/07/02/arts/music/beyonce-cowboy-carter-tour-houston
-
-**What's next for the Winnipeg Jets after a quiet first day of free agency?**\
-`Where do the Jets go from here? What do Pearson and Koepke bring and what might Kevin Cheveldayoff still have in store?`\
-https://nytimes.com/athletic/6465906/2025/07/01/winnipeg-jets-free-agency/
-
-**After Wild check 2 boxes with Nico Sturm signing, focus turns to Kirill Kaprizov, Marco Rossi**\
-`The Wild improved their PK and faceoffs by signing Sturm and also made five depth additions that are expected to be announced Wednesday.`\
-https://nytimes.com/athletic/6467166/2025/07/01/wild-free-agency-sturm-kaprizov-rossi/
-
-**Why the Blues traded Zack Bolduc for Logan Mailloux and what they said about his past**\
-`The trade brings the Blues a 22-year-old defensive prospect, but they're giving up a forward who had a breakout season in 2024-25.`\
-https://nytimes.com/athletic/6466520/2025/07/01/blues-logan-mailloux-trade-doug-armstrong/
-
-**Social Security Backs Off Listing Living Migrants as Dead**\
-`Instead, the agency is flagging as “unverified” the Social Security numbers of thousands of people who lost their temporary legal status.`\
-https://nytimes.com/2025/07/01/us/politics/social-security-immigrants-dead.html
-
-**Oilers — and Connor McDavid — must wait to see how the roster can be upgraded**\
-`The Oilers have a long way to go based on what was achieved through the first and biggest day of free agency.`\
-https://nytimes.com/athletic/6467186/2025/07/01/oilers-free-agents-connor-mcdavid-viktor-arvidsson/
 

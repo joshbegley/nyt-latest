@@ -1,3 +1,23 @@
+**Downtown Housing Could Rise in California Cities, but Barriers Remain**\
+`After scaling back a landmark environmental law, Gov. Gavin Newsom and other state leaders are hoping for a construction boom.`\
+https://nytimes.com/2025/07/01/us/ceqa-california-housing.html
+
+**Sea Spiders Lack a Key Body Part and a Missing Gene Could Explain Why**\
+`Scientists have long sought to understand why sea spiders keep some of their most important organs in their legs.`\
+https://nytimes.com/2025/07/01/science/sea-spiders-abdomen-genes.html
+
+**U.S. Judge Blocks Deportation of Haitian Migrants**\
+`Judge Brian Cogan’s order prevented the Trump administration from ending special immigration protections for hundreds of thousands of Haitian migrants.`\
+https://nytimes.com/2025/07/01/us/politics/trump-haiti-migrants-deportation.html
+
+**The Disaster That Just Passed the Senate**\
+`Trump’s “big beautiful bill” would gut Medicaid, nutrition assistance and clean energy credits. All for what?`\
+https://nytimes.com/2025/07/01/opinion/ezra-klein-podcast-matthew-yglesias.html
+
+**Trump Says Israel Agrees to Conditions for Gaza Cease-Fire Proposal**\
+`In a social media post, the president said the United States and Israel were finalizing a proposal to Hamas. The announcement comes ahead of Prime Minister Benjamin Netanyahu’s visit to Washington next week.`\
+https://nytimes.com/2025/07/01/us/politics/trump-israel-gaza-ceasefire.html
+
 **The story behind Jack Leiter's surprise at-bat: 'Let me try to punch one in there'**\
 `It was the sort of baseball game that makes you wonder how anyone managed to even paint the foul lines straight.`\
 https://nytimes.com/athletic/6467065/2025/07/01/texas-rangers-jack-leiter-at-bat/
