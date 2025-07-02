@@ -1,3 +1,23 @@
+**Review: Jealousy Sets a Dance in Motion at American Ballet Theater**\
+`Christopher Wheeldon’s lengthy “The Winter’s Tale,” a ballet based on the Shakespeare play, is filled with bad behavior but also love and forgiveness.`\
+https://nytimes.com/2025/07/02/arts/dance/winters-tale-ballet-wheedon.html
+
+**G/O Media Winds Down, Selling Off One of Its Last Sites**\
+`With the sale of the video game site Kotaku to the European publisher Keleops, all but one website remains at G/O Media, which is shutting down.`\
+https://nytimes.com/2025/07/02/business/media/kotaku-go-media-sale.html
+
+**With All Eyes on Them, a ‘WAG’ Style Emerges**\
+`In the sports world, some wives and girlfriends are more famous than the athletes they are watching. Fashion brands have noticed.`\
+https://nytimes.com/2025/07/02/style/wag-style-wives-girlfriends-athletes.html
+
+**Tiny Love Stories: ‘Being a “Throuple” Felt Unthinkable’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/07/02/style/tiny-modern-love-stories-being-a-throuple-felt-unthinkable.html
+
+**As Heat Grips Europe, a Struggle to Keep Workers and Customers Cool**\
+`Companies are reporting a drop in business, reflecting the economic toll of the heat wave, which is lowering productivity and keeping shoppers at bay.`\
+https://nytimes.com/2025/07/02/business/heat-wave-europe-workers-customers.html
+
 **Microsoft to Lay Off About 9,000 Employees**\
 `The reductions followed cuts of about 6,000 positions last quarter, and were indicative of a tightening job market at big technology companies.`\
 https://nytimes.com/2025/07/02/technology/microsoft-layoffs-ai.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6468855/2025/07/02/best-sports-movies-21st-century-
 **Great Mangoes Are a Treasure. Here’s How to Savor Them.**\
 `Let Yewande Komolafe’s recipes — for a mango shortcake, a tomato-mango salad and a hot, savory relish — extend the best part of the year.`\
 https://nytimes.com/2025/07/02/dining/mango-recipes.html
-
-**Brighton sign former PSV defender Boscagli on free transfer**\
-`The 27-year-old has signed a five-year deal with the Premier League club.`\
-https://nytimes.com/athletic/6468931/2025/07/02/olivier-boscagli-brighton-transfer/
-
-**Sabres will match any Bowen Byram offer sheet, says GM Kevyn Adams**\
-`Adams said Wednesday the Sabres are prepared to match any offer sheet Byram would sign.`\
-https://nytimes.com/athletic/6468923/2025/07/02/sabres-bowen-byram-offer-sheet-contract/
-
-**2026 NBA title odds: How the contenders rank after free agency and trade frenzy**\
-`The Thunder are still the clear favorites, but the first two days of NBA free agency have shuffled the contending pack.`\
-https://nytimes.com/athletic/6466420/2025/07/02/2026-nba-champion-odds-thunder-nuggets-rockets/
-
-**This Artist Has Big Feelings About Indian Weddings**\
-`Viraj Khanna’s new exhibition at Rajiv Menon Contemporary in Los Angeles offers a loving, satirical look at the spectacle of the big Indian wedding.`\
-https://nytimes.com/2025/07/02/style/this-artist-has-big-feelings-about-indian-weddings.html
-
-**A Woman in My Book Club Never Reads the Books. Can I Expose Her?**\
-`She reads reviews online and passes off the opinions as her own.`\
-https://nytimes.com/2025/07/02/magazine/book-club-books-ethics.html
 
