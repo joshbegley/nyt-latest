@@ -1,3 +1,7 @@
+**Pentagon Again Shifts Assessment of Damage to Iran’s Nuclear Program**\
+`The appraisal that Iran’s nuclear hopes had been set back 1 to 2 years by U.S. and Israeli bombings was the latest in a shifting series of pronouncements.`\
+https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
+
 **Columbia’s Acting President Apologizes for Texts Disparaging Trustee**\
 `Claire Shipman said she was “wrong” to have sent messages in 2023 and 2024 criticizing a trustee who was outspoken about the treatment of Jewish students.`\
 https://nytimes.com/2025/07/02/nyregion/columbia-claire-shipman-apology-messages.html

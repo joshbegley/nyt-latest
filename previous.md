@@ -10,8 +10,8 @@ https://nytimes.com/2025/07/02/us/politics/trump-domestic-policy-bill-deadline.h
 `The Giants are struggling on offense and, not surprisingly, find themselves dead-last in several offensive categories. `\
 https://nytimes.com/athletic/6469142/2025/07/02/sf-giants-statistical-rankings-midseason-2025/
 
-**Iran’s Nuclear Hopes Set Back by 1-2 Years by Bombings, Pentagon Now Says**\
-`The assessment was the latest in a series of sometimes-contradictory evaluations of the damage that bombs inflicted on Iran’s nuclear program.`\
+**Pentagon Again Shifts Assessment of Damage to Iran’s Nuclear Program**\
+`The appraisal that Iran’s nuclear hopes had been set back 1 to 2 years by U.S. and Israeli bombings was the latest in a shifting series of pronouncements.`\
 https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
 
 **Braves lose Spencer Schwellenbach to IL with fractured elbow**\
