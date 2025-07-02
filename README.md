@@ -1,3 +1,7 @@
+**Fever beat Lynx without Caitlin Clark to take WNBA Commissioner's Cup**\
+`Natasha Howard leads way as Indiana hands Minnesota first home loss of season, wins $500,000 pot.`\
+https://nytimes.com/athletic/6467622/2025/07/01/wnba-commissioners-cup-fever-lynx/
+
 **'Wild and unexpected': How Mitch Marner ended up a Vegas Golden Knight**\
 `"This is where we wanted to be," Marner said in his introduction after a sign-and-trade to Vegas.`\
 https://nytimes.com/athletic/6467517/2025/07/01/mitch-marner-golden-knights-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467404/2025/07/01/trump-lia-thomas-transgender-ath
 **Kings fans spent 20 seasons jeering Corey Perry — will they cheer the 'Worm' now?**\
 `The Kings also reshaped their blue line on Tuesday by adding Cody Ceci and Brian Dumoulin.`\
 https://nytimes.com/athletic/6467387/2025/07/01/corey-perry-free-agent-kings-ducks/
-
-**Brock Boeser, Thatcher Demko and the Canucks winners and losers in free agency**\
-`The Canucks spent July 1 locking up three long-tenured members of their unproven core group to significant extensions.`\
-https://nytimes.com/athletic/6465518/2025/07/01/canucks-brock-boeser-thatcher-demko-contract/
 
