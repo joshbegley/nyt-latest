@@ -1,3 +1,7 @@
+**Justice Dept. Weighs Seeking Criminal Charges as It Presses States for Election Data**\
+`Such a path could drastically raise the stakes for federal investigations of state or county officials, bringing the department and the threat of criminalization into the election system.`\
+https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html
+
 **What Is the Mann Act?**\
 `The law, passed in 1910, prohibits the interstate or foreign transportation of an individual for sex. It has at times been used as a tool for political persecution.`\
 https://nytimes.com/2025/07/02/arts/music/mann-act-sean-combs-diddy-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/movies/the-odyssey-teaser.html
 **Methane-Tracking Satellite Is Lost, in a Blow to Climate Efforts**\
 `The spacecraft, MethaneSAT, was just a year into its mission to provide a clearer picture of planet-warming emissions from oil and gas sites.`\
 https://nytimes.com/2025/07/02/climate/methane-sat-lost.html
-
-**The Combs verdict lets down advocates for sex-abuse victims.**\
-`By Matt Stevens`\
-https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-combs-verdict-lets-down-advocates-for-sex-abuse-victims
 

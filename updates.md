@@ -1,3 +1,7 @@
+**Justice Dept. Weighs Seeking Criminal Charges as It Presses States for Election Data**\
+`Such a path could drastically raise the stakes for federal investigations of state or county officials, bringing the department and the threat of criminalization into the election system.`\
+https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html
+
 **What Is the Mann Act?**\
 `The law, passed in 1910, prohibits the interstate or foreign transportation of an individual for sex. It has at times been used as a tool for political persecution.`\
 https://nytimes.com/2025/07/02/arts/music/mann-act-sean-combs-diddy-charges.html
