@@ -1,3 +1,7 @@
+**The Winners and Losers of Trump’s Big Bill, and a ‘60 Minutes’ Settlement**\
+`Plus, the science of staying cool.`\
+https://nytimes.com/2025/07/02/podcasts/the-headlines/republican-bill-60-minutes-settlement.html
+
 **Video Shows Explosion at Fireworks Warehouse in California**\
 `The cause of the explosion, which set off a pyrotechnics display, remained unclear. There were no initial reports of injuries.`\
 https://nytimes.com/video/us/100000010262925/video-shows-explosion-at-fireworks-warehouse-in-california.html
