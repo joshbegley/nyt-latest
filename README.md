@@ -1,3 +1,7 @@
+**Social Security Backs Off Listing Living Migrants as Dead**\
+`Instead, the agency is flagging as “unverified” the Social Security numbers of thousands of people who lost their temporary legal status.`\
+https://nytimes.com/2025/07/01/us/politics/social-security-immigrants-dead.html
+
 **Oilers — and Connor McDavid — must wait to see how the roster can be upgraded**\
 `The Oilers have a long way to go based on what was achieved through the first and biggest day of free agency.`\
 https://nytimes.com/athletic/6467186/2025/07/01/oilers-free-agents-connor-mcdavid-viktor-arvidsson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/nyregion/lucy-pig-staten-island.html
 **USMNT finds its fight in Gold Cup, readies for semis vs. Guatemala and its familiar faces**\
 `Mauricio Pochettino craved a group that would lean into its emotions when needed, and the U.S. has done that en route to the Gold Cup semis`\
 https://nytimes.com/athletic/6466843/2025/07/01/usmnt-guatemala-gold-cup-semifinal-pochettino-adams-ream-rubin/
-
-**Blackhawks' new rebuild stage factored into quiet offseason for GM Kyle Davidson**\
-`Davidson's lack of moves was a sign that he's ready to go further with his youth movement at the NHL level.`\
-https://nytimes.com/athletic/6466062/2025/07/01/blackhawks-nhl-free-agency-offseason-kyle-davidson/
 
