@@ -1,3 +1,11 @@
+**The story behind Jack Leiter's surprise at-bat: 'Let me try to punch one in there'**\
+`It was the sort of baseball game that makes you wonder how anyone managed to even paint the foul lines straight.`\
+https://nytimes.com/athletic/6467065/2025/07/01/texas-rangers-jack-leiter-at-bat/
+
+**A federal judge rejected the DOGE takeover of an African aid agency as likely illegal.**\
+`A federal judge found that efforts by Pete Marocco and affiliates of Elon Musk to seize control of the U.S. African Development Foundation earlier this year appeared unlawful.`\
+https://nytimes.com/live/2025/07/01/us/trump-bill-news/a-federal-judge-rejected-the-doge-takeover-of-an-african-aid-agency-as-likely-illegal
+
 **Alex Delvecchio, Detroit Red Wings legend, dies at age 93**\
 `Delvecchio won three Stanley Cup championships with the Red Wings.`\
 https://nytimes.com/athletic/6467333/2025/07/01/delvecchio-detroit-red-wings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/social-security-immigrants-dead.html
 **Oilers — and Connor McDavid — must wait to see how the roster can be upgraded**\
 `The Oilers have a long way to go based on what was achieved through the first and biggest day of free agency.`\
 https://nytimes.com/athletic/6467186/2025/07/01/oilers-free-agents-connor-mcdavid-viktor-arvidsson/
-
-**Alabama Violated Constitutional Rights of Death Row Inmate, Appeals Court Rules**\
-`A federal appellate panel said that Michael Sockwell was eligible to be retried because prosecutors systematically eliminated Black potential jurors at his 1990 murder trial.`\
-https://nytimes.com/2025/07/01/us/politics/death-penalty-retrial-alabama.html
-
-**NHL free agency best and worst deals: On Ivan Provorov, Mitch Marner and many more**\
-`Here are the best and worst deals signed in the early going of the NHL's free-agent frenzy.`\
-https://nytimes.com/athletic/6466972/2025/07/01/nhl-free-agency-best-worst-deals-2025/
 
