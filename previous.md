@@ -1,3 +1,7 @@
+**Alex Delvecchio, Detroit Red Wings legend, dies at age 93**\
+`Delvecchio won three Stanley Cup championships with the Red Wings.`\
+https://nytimes.com/athletic/6467333/2025/07/01/delvecchio-detroit-red-wings/
+
 **Sabres free agency: Alex Lyon, Justin Danforth, Jacob Bernard-Docker and other moves**\
 `Here's a rundown of what Buffalo got accomplished on July 1 and what work is left to be done.`\
 https://nytimes.com/athletic/6467278/2025/07/01/sabres-free-agency-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/death-penalty-retrial-alabama.html
 **NHL free agency best and worst deals: On Ivan Provorov, Mitch Marner and many more**\
 `Here are the best and worst deals signed in the early going of the NHL's free-agent frenzy.`\
 https://nytimes.com/athletic/6466972/2025/07/01/nhl-free-agency-best-worst-deals-2025/
-
-**Trump Withholds Nearly $7 Billion for Schools, With Little Explanation**\
-`The money, which was allocated by Congress, helps pay for after-school programs, support for students learning English and other services.`\
-https://nytimes.com/2025/07/01/us/trump-education-funds.html
 

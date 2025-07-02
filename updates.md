@@ -1,3 +1,7 @@
+**Alex Delvecchio, Detroit Red Wings legend, dies at age 93**\
+`Delvecchio won three Stanley Cup championships with the Red Wings.`\
+https://nytimes.com/athletic/6467333/2025/07/01/delvecchio-detroit-red-wings/
+
 **Sabres free agency: Alex Lyon, Justin Danforth, Jacob Bernard-Docker and other moves**\
 `Here's a rundown of what Buffalo got accomplished on July 1 and what work is left to be done.`\
 https://nytimes.com/athletic/6467278/2025/07/01/sabres-free-agency-2025/
