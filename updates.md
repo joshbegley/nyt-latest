@@ -1,3 +1,19 @@
+**Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
+`The music mogul was convicted of arranging for the travel of male escorts across state lines but acquitted of sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2025/07/02/arts/music/combs-acquitted-sex-trafficking-sean-diddy.html
+
+**Wiegman: England have 'protocols in place' to deal with Euro 2025 heat**\
+`Wiegman says she does not envision the heatwave in Switzerland impacting her side's 2025 European Championship preparations.`\
+https://nytimes.com/athletic/6469251/2025/07/02/sarina-wiegman-england-euros-switzerland-heat/
+
+**Mamdani Says Trump Is Attacking Him to Divert Focus From G.O.P. Agenda**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, has been targeted by the president and other Republicans since his success in the primary.`\
+https://nytimes.com/2025/07/02/nyregion/mamdani-trump.html
+
+**Red Wings sign Mason Appleton to 2-year contract worth $2.9 million per season**\
+`Detroit has been looking to add size and hardness to its lineup. Appleton will help with that.`\
+https://nytimes.com/athletic/6469688/2025/07/02/red-wings-mason-appleton-contract-nhl/
+
 **What Has Trump Said About Undocumented Farmers and Hotel Workers?**\
 `President Trump has floated ideas about helping certain industries that rely on immigrant labor, but the White House has yet to release a concrete plan about what’s in store.`\
 https://nytimes.com/2025/07/02/us/politics/trump-undocumented-immigrants-farmers-hotels.html
