@@ -1,3 +1,15 @@
+**Dalai Lama Tightens Grip on Succession in the Face of Chinese Pressure**\
+`The aging Tibetan spiritual leader is looking to prevent Beijing from taking advantage of a power vacuum that might arise after his death.`\
+https://nytimes.com/2025/07/02/world/asia/dalai-lama-successor-tibet-china.html
+
+**Indiana Fever's resilience on display in Commissioner's Cup championship**\
+`Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
+https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
+
+**Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
+`President Trump had sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
+https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
+
 **The New York Times in Print for Wednesday, July 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times

@@ -1,3 +1,7 @@
+**Dalai Lama Tightens Grip on Succession in the Face of Chinese Pressure**\
+`The aging Tibetan spiritual leader is looking to prevent Beijing from taking advantage of a power vacuum that might arise after his death.`\
+https://nytimes.com/2025/07/02/world/asia/dalai-lama-successor-tibet-china.html
+
 **The New York Times in Print for Wednesday, July 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times
@@ -6,12 +10,12 @@ https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times
 `After winning the World Cup two years ago, Spain are favoured to win the Euros this summer. Defending champs England are second favourites.`\
 https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-england/
 
-**Indiana Fever's resilience shines in Commissioner's Cup championship**\
+**Indiana Fever's resilience on display in Commissioner's Cup championship**\
 `Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
 https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
 
 **Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
-`President Trump sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
+`President Trump had sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
 https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
 
 **How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458707/2025/07/02/womens-euro-2025-predictions/
 **Instructed to right the ship, Norway manager Gemma Grainger brings something new to Euro 2025**\
 `Grainger is hoping to guide Norway past the Euros group stages for the first time since 2013`\
 https://nytimes.com/athletic/6419169/2025/07/02/gemma-grainger-norway-euro-2025/
-
-**How Sheffield Wednesday descended into chaos**\
-`Unpaid wages, a highly regarded manager on way out and very real fears for the future. A once proud club is on the brink`\
-https://nytimes.com/athletic/6465422/2025/07/02/sheffield-wednesday-dejphon-chansiri-ownership/
 
