@@ -1,3 +1,7 @@
+**Kim Jong-un Pays Tribute to North Korean Troops Killed in Ukraine**\
+`Kim Jong-un highlighted Pyongyang’s support for Russia’s war in Ukraine by showing his people, for the first time, images of North Korean soldiers fighting alongside Russian troops.`\
+https://nytimes.com/video/world/asia/100000010262929/north-korea-troops-kim-jong-un.html
+
 **Leverkusen complete signing of Liverpool's Jarell Quansah**\
 `Liverpool say the deal is worth £30million and will include a buy-back option for the defender.`\
 https://nytimes.com/athletic/6443343/2025/07/02/bayer-leverkusen-complete-signing-of-liverpool-defender-jarell-quansah/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/business/jobs-numbers-immigration-fed.html
 **This Supreme Court Decision Is a Backdoor Attack on Protecting Our Rights**\
 `The Planned Parenthood case was about much more than abortion.`\
 https://nytimes.com/2025/07/02/opinion/planned-parenthood-supreme-court-decision.html
-
-**What the Supreme Court’s Birthright Ruling Means for Trump’s Power**\
-`A recent Supreme Court ruling could allow President Trump’s order ending birthright citizenship to go into effect in some states.`\
-https://nytimes.com/video/us/politics/100000010259478/what-the-supreme-courts-birthright-ruling-means-for-trumps-power.html
 

@@ -1,3 +1,7 @@
+**Kim Jong-un Pays Tribute to North Korean Troops Killed in Ukraine**\
+`Kim Jong-un highlighted Pyongyang’s support for Russia’s war in Ukraine by showing his people, for the first time, images of North Korean soldiers fighting alongside Russian troops.`\
+https://nytimes.com/video/world/asia/100000010262929/north-korea-troops-kim-jong-un.html
+
 **Leverkusen complete signing of Liverpool's Jarell Quansah**\
 `Liverpool say the deal is worth £30million and will include a buy-back option for the defender.`\
 https://nytimes.com/athletic/6443343/2025/07/02/bayer-leverkusen-complete-signing-of-liverpool-defender-jarell-quansah/
