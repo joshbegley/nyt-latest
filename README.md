@@ -1,3 +1,7 @@
+**Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
+`President Trump sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
+https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
+
 **How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
 `Tottenham have two elite central defenders but their injury records mean Frank needs to coax improvements from the entire defensive unit`\
 https://nytimes.com/athletic/6448292/2025/07/02/tottenham-defence-romero-thomas-frank/
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/6458707/2025/07/02/womens-euro-2025-predictions/
 `Grainger is hoping to guide Norway past the Euros group stages for the first time since 2013`\
 https://nytimes.com/athletic/6419169/2025/07/02/gemma-grainger-norway-euro-2025/
 
+**Tour de France 2025 preview: Schedule, stage guide, team rosters, riders to watch and more**\
+`The 112th Tour de France gets underway in Lille on Saturday. Here's a complete guide to one of sport's most prestigious events `\
+https://nytimes.com/athletic/6448427/2025/07/02/tour-de-france-2025-schedule-rosters-stages-riders/
+
 **Wirtz can buck the 'Havertz trend' and thrive at Liverpool**\
 `Vaunted young German players have not always succeeded in England. This is why Liverpool's new recruit can defy that record`\
 https://nytimes.com/athletic/6455561/2025/07/02/florian-wirtz-liverpool-german-attacker/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6465422/2025/07/02/sheffield-wednesday-dejphon-chan
 **Why are Premier League clubs selling their women's teams? And which club could do it next?**\
 `After Chelsea and Aston Villa have sold their women's teams to a parent company, we consider the long-term effect it could have on the game`\
 https://nytimes.com/athletic/6456251/2025/07/02/psr-premier-league-women-teams-sales/
-
-**Don’t Tell These Australians They Can’t Have a Pet Crocodile**\
-`The reptiles are a part of the Northern Territory’s identity.`\
-https://nytimes.com/card/2025/07/02/world/australia/australia-pet-crocodiles
-
-**Wednesday Briefing**\
-`President Trump’s signature policy bill.`\
-https://nytimes.com/2025/07/02/briefing/trump-gaza-heat.html
 

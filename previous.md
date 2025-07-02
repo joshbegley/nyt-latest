@@ -1,3 +1,15 @@
+**How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
+`Tottenham have two elite central defenders but their injury records mean Frank needs to coax improvements from the entire defensive unit`\
+https://nytimes.com/athletic/6448292/2025/07/02/tottenham-defence-romero-thomas-frank/
+
+**Eberechi Eze has an Arsenal past. Would his future flourish under Mikel Arteta?**\
+`The Palace attacking midfielder is of interest to Arsenal - and he would provide something Arteta's team have been missing`\
+https://nytimes.com/athletic/6464962/2025/07/02/eberechi-eze-arsenal-crystal-palace/
+
+**Aston Villa PSR fears eased by selling women's team - but UEFA rules are a bigger battle**\
+`Profit from the women’s sale will be stripped out of UEFA's calculations as it refuses to allow clubs to record profits on intra-group deals`\
+https://nytimes.com/athletic/6464891/2025/07/02/aston-villa-womens-team-sale-psr-2/
+
 **Euro 2025 predictions: Will Spain win, which players to watch and could Iceland make the semis?**\
 `Our writers in Switzerland, the UK and the U.S. attempt to work out what will happen over the coming weeks`\
 https://nytimes.com/athletic/6458707/2025/07/02/womens-euro-2025-predictions/
@@ -25,16 +37,4 @@ https://nytimes.com/card/2025/07/02/world/australia/australia-pet-crocodiles
 **Wednesday Briefing**\
 `President Trump’s signature policy bill.`\
 https://nytimes.com/2025/07/02/briefing/trump-gaza-heat.html
-
-**Lautaro and Calhanoglu's tense exchange highlights Inter's delicate state in this post-Inzaghi era**\
-`Hakan Calhanoglu's commitment to Inter's cause has been questioned – but with or without him, this is a team in transition under Chivu`\
-https://nytimes.com/athletic/6465148/2025/07/02/lautaro-martinez-inter-calhanoglu-transfer/
-
-**How football shirts and music sponsors always strike the right chord**\
-`Musicians have a long history of appearing as front-of-shirt sponsors and when they do, those kits always stand out from the crowd`\
-https://nytimes.com/athletic/6452776/2025/07/02/football-shirts-music-barcelona-drake-travis-scott-coldplay/
-
-**An attacking focal point and aerial strength: What Watkins would bring to Manchester United**\
-`A detailed breakdown of the Aston Villa forward's playing style and a look at how he would fit into Ruben Amorim's plans for next season`\
-https://nytimes.com/athletic/6462505/2025/07/02/what-watkins-would-bring-to-manchester-united/
 

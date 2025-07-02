@@ -1,3 +1,15 @@
+**How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
+`Tottenham have two elite central defenders but their injury records mean Frank needs to coax improvements from the entire defensive unit`\
+https://nytimes.com/athletic/6448292/2025/07/02/tottenham-defence-romero-thomas-frank/
+
+**Eberechi Eze has an Arsenal past. Would his future flourish under Mikel Arteta?**\
+`The Palace attacking midfielder is of interest to Arsenal - and he would provide something Arteta's team have been missing`\
+https://nytimes.com/athletic/6464962/2025/07/02/eberechi-eze-arsenal-crystal-palace/
+
+**Aston Villa PSR fears eased by selling women's team - but UEFA rules are a bigger battle**\
+`Profit from the women’s sale will be stripped out of UEFA's calculations as it refuses to allow clubs to record profits on intra-group deals`\
+https://nytimes.com/athletic/6464891/2025/07/02/aston-villa-womens-team-sale-psr-2/
+
 **Euro 2025 predictions: Will Spain win, which players to watch and could Iceland make the semis?**\
 `Our writers in Switzerland, the UK and the U.S. attempt to work out what will happen over the coming weeks`\
 https://nytimes.com/athletic/6458707/2025/07/02/womens-euro-2025-predictions/
