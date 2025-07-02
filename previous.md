@@ -1,3 +1,11 @@
+**Israeli Officials Express Optimism on Gaza Cease-Fire as Netanyahu Prepares to Meet With Trump**\
+`It was still unclear whether the latest U.S.-backed effort can overcome the most entrenched sticking point between Israel and Hamas.`\
+https://nytimes.com/2025/07/02/world/middleeast/israel-gaza-cease-fire-trump.html
+
+**NBA free agency 2025: Grades, head-scratchers and analysis from Day 2**\
+`The Central Division got shaken up, the MVP got paid, the Knicks and Nuggets add important depth and a whole lot more.`\
+https://nytimes.com/athletic/6467840/2025/07/02/nba-free-agency-2025-grades-day-2/
+
 **Bank it like Beckham: Why female footballers are building media companies**\
 `The next wave of athlete-driven media will come in stronger, louder and increasingly more lucrative for female football players.`\
 https://nytimes.com/athletic/6466289/2025/07/02/ella-toone-midge-purce-togethxr-womens-soccer-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6467095/2025/07/02/bucks-giannis-damian-lillard-myl
 **How do the Mets' long-term needs influence their trade deadline plans?**\
 `A team that didn’t have any pressing needs at the start of June has them all over the place to begin July.`\
 https://nytimes.com/athletic/6467508/2025/07/02/mets-trade-deadline-plans/
-
-**2026 World Cup final slated for midday start, despite Club World Cup weather concerns**\
-`New Jersey's governor has hinted at the plans for the start time of the 2026 World Cup final`\
-https://nytimes.com/athletic/6467433/2025/07/02/2026-world-cup-final-time-metlife-stadium-new-jersey/
-
-**'The original iPad': Lou Gehrig's replacement helped launch the video revolution**\
-`Babe Dahlgren analyzed Yankees greats from the bench on his way to becoming the first MLB coach implement film study.`\
-https://nytimes.com/athletic/6467568/2025/07/02/lou-gehrig-babe-dahlgren-video-yankees/
 

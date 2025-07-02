@@ -1,3 +1,11 @@
+**Israeli Officials Express Optimism on Gaza Cease-Fire as Netanyahu Prepares to Meet With Trump**\
+`It was still unclear whether the latest U.S.-backed effort can overcome the most entrenched sticking point between Israel and Hamas.`\
+https://nytimes.com/2025/07/02/world/middleeast/israel-gaza-cease-fire-trump.html
+
+**NBA free agency 2025: Grades, head-scratchers and analysis from Day 2**\
+`The Central Division got shaken up, the MVP got paid, the Knicks and Nuggets add important depth and a whole lot more.`\
+https://nytimes.com/athletic/6467840/2025/07/02/nba-free-agency-2025-grades-day-2/
+
 **Bank it like Beckham: Why female footballers are building media companies**\
 `The next wave of athlete-driven media will come in stronger, louder and increasingly more lucrative for female football players.`\
 https://nytimes.com/athletic/6466289/2025/07/02/ella-toone-midge-purce-togethxr-womens-soccer-investment/
