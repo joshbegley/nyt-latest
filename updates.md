@@ -1,3 +1,11 @@
+**Trump Goes on a Charm Offensive as He Woos Holdout Republicans**\
+`President Trump worked the phones and welcomed Republicans to the White House to cajole them into supporting his megabill. They left with signed merchandise and photos of the Oval Office.`\
+https://nytimes.com/2025/07/02/us/politics/trump-bill-holdout-republicans.html
+
+**Bronny James not focused on LeBron rumors: 'I don't really pay attention'**\
+`James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G League.`\
+https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rumors/
+
 **Bronny James not focused on LeBron rumors: 'I don't really pay attention'**\
 `James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G-League.`\
 https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rumors/
