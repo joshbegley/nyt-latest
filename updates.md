@@ -1,3 +1,7 @@
+**Indiana Fever's resilience shines in Commissioner's Cup championship**\
+`Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
+https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
+
 **Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
 `President Trump sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
 https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
