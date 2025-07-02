@@ -1,3 +1,11 @@
+**Hundreds of Small Earthquakes Rattle Remote Islands in Japan**\
+`More than 800 tremors have shaken the southwestern Tokara Islands over the past 11 days, including a 5.6-magnitude quake on Wednesday.`\
+https://nytimes.com/2025/07/02/world/asia/earthquake-japan-tokara-islands.html
+
+**Heat warnings in place for opening days of Euro 2025**\
+`Host country Switzerland, like many in Europe, is in the midst of a heatwave with temperatures expected to rise to as high as 34C.`\
+https://nytimes.com/athletic/6468109/2025/07/02/womens-euros-heat-weather-warnings/
+
 **Going to Be Outside on July 4? Here’s How to Plan Around the Weather.**\
 `“Ideal” conditions are expected in the Northeast, but Florida is warily eyeing a potential tropical system.`\
 https://nytimes.com/2025/07/02/weather/july-fourth-travel-forecast-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/us/idaho-murders-kohberger-plea-deal.html
 **Planned Parenthood at Risk of Losing Millions in Federal Funding**\
 `The nation’s largest abortion provider must stop offering it in some states or risk losing millions in Medicaid funding to provide basic health care for low-income Americans.`\
 https://nytimes.com/2025/07/02/us/politics/planned-parenthood-abortions-senate-medicaid-funding.html
-
-**Former Criminology Student Is Set to Plead Guilty in Idaho Murders**\
-`Bryan Kohberger, now 30, was charged in the 2022 murders that shook the University of Idaho. In exchange, he would avoid a possible death penalty.`\
-https://nytimes.com/2025/07/02/us/idaho-murders-kohberger-plea.html
-
-**We Both Served as Treasury Secretary. We Know This Bill Is Dangerous.**\
-`Fighting the Fed, piling on tax cuts and pursuing a trade war will set American on an unsustainable path.`\
-https://nytimes.com/2025/07/02/opinion/republican-bill-fed-treasury-secretary.html
 

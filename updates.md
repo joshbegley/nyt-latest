@@ -1,3 +1,11 @@
+**Hundreds of Small Earthquakes Rattle Remote Islands in Japan**\
+`More than 800 tremors have shaken the southwestern Tokara Islands over the past 11 days, including a 5.6-magnitude quake on Wednesday.`\
+https://nytimes.com/2025/07/02/world/asia/earthquake-japan-tokara-islands.html
+
+**Heat warnings in place for opening days of Euro 2025**\
+`Host country Switzerland, like many in Europe, is in the midst of a heatwave with temperatures expected to rise to as high as 34C.`\
+https://nytimes.com/athletic/6468109/2025/07/02/womens-euros-heat-weather-warnings/
+
 **Going to Be Outside on July 4? Here’s How to Plan Around the Weather.**\
 `“Ideal” conditions are expected in the Northeast, but Florida is warily eyeing a potential tropical system.`\
 https://nytimes.com/2025/07/02/weather/july-fourth-travel-forecast-us.html
