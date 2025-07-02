@@ -1,3 +1,23 @@
+**Supporters warned over homophobic chant during Monterrey's Club World Cup defeat by Borussia Dortmund**\
+`A message was displayed on the big screen at the arena which said the game could be suspended or even abandoned if it did not stop`\
+https://nytimes.com/athletic/6467780/2025/07/02/club-world-cup-homophobic-chant/
+
+**Lack of New U.S. Sanctions Allows Russia to Replenish Its War Chest**\
+`President Trump has issued no new restrictions on Russia this year, in effect allowing Moscow to acquire the money and materials it needs in its conflict with Ukraine.`\
+https://nytimes.com/2025/07/02/us/politics/trump-russia-sanctions.html
+
+**Quote of the Day: Halal Cart Holds Blueprint for Mamdani’s Upset**\
+`Quotation of the Day for Wednesday, July 2, 2025.`\
+https://nytimes.com/2025/07/02/pageoneplus/quote-of-the-day-halal-cart-holds-blueprint-for-mamdanis-upset.html
+
+**Connections: Sports Edition Coach: Hints for July 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6442117/2025/07/02/connections-sports-edition-hints-for-july-2-2025-puzzle-no-282/
+
+**Corrections: July 2, 2025**\
+`Corrections that appeared in print on Wednesday, July 2, 2025.`\
+https://nytimes.com/2025/07/02/pageoneplus/corrections-july-2-2025.html
+
 **Giants' Buster Posey commits to manager Bob Melvin for 2026: 'Time to show my belief'**\
 `However this second season ends, Melvin knows he'll have a shot at a third. His expectation continues to be that it will go well.`\
 https://nytimes.com/athletic/6467628/2025/07/01/giants-buster-posey-commits-to-manager-bob-melvin-for-2026-time-to-show-my-belief/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6467622/2025/07/01/wnba-commissioners-cup-fever-lyn
 **'Wild and unexpected': How Mitch Marner ended up a Vegas Golden Knight**\
 `"This is where we wanted to be," Marner said in his introduction after a sign-and-trade to Vegas.`\
 https://nytimes.com/athletic/6467517/2025/07/01/mitch-marner-golden-knights-contract/
-
-**Bingo Relative**\
-`In the event of crossword trouble, call Dan Caprera.`\
-https://nytimes.com/2025/07/01/crosswords/daily-puzzle-2025-07-02.html
-
-**Mirtle: Why was free agency such a dud this year? What does it mean for next season?**\
-`Despite a rising cap, NHL teams didn't splash the kind of cash we're used to seeing on July 1.`\
-https://nytimes.com/athletic/6467266/2025/07/01/nhl-free-agency-contract-analysis-2025/
-
-**Diamondbacks ban 'Home Run Thief' fan for 2025 after latest interference incident**\
-`Monday's incident brought a series of recent interference moments from the fan into a larger spotlight and prompted a season-long ban.`\
-https://nytimes.com/athletic/6466830/2025/07/01/diamondbacks-fan-interference-home-run-thief-banned/
-
-**'Everybody knows' Yankees' Chisholm is a 2B, so why is he playing 3B?**\
-`By playing Chisholm at third base and DJ LeMahieu at second, the Yankees are willingly choosing to have defensive issues at two spots.`\
-https://nytimes.com/athletic/6467235/2025/07/01/yankees-jazz-chisholm-jr-why-third-base/
-
-**Red Panda injured during performance at WNBA game, leaves arena in ambulance**\
-`The iconic halftime performer takes spill less than a minute into her halftime show, is seen leaving arena in ambulance.`\
-https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-performance/
 
