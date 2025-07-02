@@ -1,3 +1,11 @@
+**Republican Disputes Over Trump’s Bill Give Democrats More Chances to Attack It**\
+`Democrats are sharpening their political arguments against their opposition as the president’s major policy bill moves through Congress.`\
+https://nytimes.com/2025/07/02/us/politics/democrats-trump-bill.html
+
+**Del Monte Foods, the Canned Goods Giant, Files for Bankruptcy**\
+`The company behind brands like College Inn and Kitchen Basics faces issues including rising debt, changing consumer habits and pandemic missteps.`\
+https://nytimes.com/2025/07/02/business/del-monte-bankruptcy.html
+
 **Allison Williams on ‘M3gan 2.0’ and Parenting With A.I.**\
 `The actress said “we should be expressing a little more gratitude to the Roomba,” in an interview on the role of A.I. in her life and work.`\
 https://nytimes.com/2025/07/02/podcasts/hard-fork-allison-williams-megan-2-0.html
