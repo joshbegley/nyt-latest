@@ -1,3 +1,7 @@
+**Video Shows Explosion at Fireworks Warehouse in California**\
+`The cause of the explosion, which set off a pyrotechnics display, remained unclear. There were no initial reports of injuries.`\
+https://nytimes.com/video/us/100000010262925/video-shows-explosion-at-fireworks-warehouse-in-california.html
+
 **Israeli Officials Express Optimism on Gaza Cease-Fire as Netanyahu Prepares to Meet With Trump**\
 `It was still unclear whether the latest U.S.-backed effort can overcome the most entrenched sticking point between Israel and Hamas.`\
 https://nytimes.com/2025/07/02/world/middleeast/israel-gaza-cease-fire-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466659/2025/07/02/panthers-free-agency-bennett-mar
 **Bucks once again go big to win back Giannis — this time with a historic, daring gamble**\
 `As star sagas go, the NBA has rarely, if ever, seen something as drastic as the Bucks waiving Damian Lillard for Myles Turner. Will it work?`\
 https://nytimes.com/athletic/6467095/2025/07/02/bucks-giannis-damian-lillard-myles-turner-gamble/
-
-**How do the Mets' long-term needs influence their trade deadline plans?**\
-`A team that didn’t have any pressing needs at the start of June has them all over the place to begin July.`\
-https://nytimes.com/athletic/6467508/2025/07/02/mets-trade-deadline-plans/
 

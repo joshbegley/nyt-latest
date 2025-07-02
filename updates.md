@@ -1,3 +1,7 @@
+**Video Shows Explosion at Fireworks Warehouse in California**\
+`The cause of the explosion, which set off a pyrotechnics display, remained unclear. There were no initial reports of injuries.`\
+https://nytimes.com/video/us/100000010262925/video-shows-explosion-at-fireworks-warehouse-in-california.html
+
 **Israeli Officials Express Optimism on Gaza Cease-Fire as Netanyahu Prepares to Meet With Trump**\
 `It was still unclear whether the latest U.S.-backed effort can overcome the most entrenched sticking point between Israel and Hamas.`\
 https://nytimes.com/2025/07/02/world/middleeast/israel-gaza-cease-fire-trump.html
