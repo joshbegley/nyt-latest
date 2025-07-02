@@ -1,3 +1,12 @@
+**Iran Suspends Cooperation With U.N. Nuclear Watchdog**\
+`The decision means that international inspectors will not be able to oversee sites, as experts warn that Tehran could revive plans to build a bomb.`\
+https://nytimes.com/2025/07/02/world/middleeast/iran-nuclear-iaea.html
+
+**Hockey insider Bob McKenzie retires after 48 years: A tribute**\
+`In a flurry of free-agency moves on July 1, it was the deal that was — in McKenzie's own words — "one for none" that stole the show.
+`\
+https://nytimes.com/athletic/6467697/2025/07/02/bob-mckenzie-retires-tsn-nhl-insider-free-agency/
+
 **Pause in U.S. Weapons Deepens Ukrainian Concerns as Russian Attacks Grow**\
 `The suspension includes air defense interceptors, and it will directly affect Ukraine’s ability to fend off escalating Russian air assaults.`\
 https://nytimes.com/2025/07/02/world/europe/ukraine-russia-war-trump-weapons.html
