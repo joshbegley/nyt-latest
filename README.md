@@ -1,3 +1,11 @@
+**U.K. Chancellor in Tears in Parliament as Questions Are Raised About Her Role**\
+`Rachel Reeves, Britain’s most senior finance official, appeared visibly upset in the House of Commons on Wednesday, as Prime Minister Keir Starmer was asked about her position.`\
+https://nytimes.com/2025/07/02/world/europe/rachel-reeves-uk-keir-starmer-crying.html
+
+**Transfers TLDR: Joao Pedro to Chelsea - all you need to know**\
+`Chelsea have signed forward Joao Pedro from Brighton - here we break down the deal.`\
+https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
+
 **Atletico sign Spain international Baena from Villarreal**\
 `The versatile attacking player helped Villarreal to a fifth-place finish in 2024-25 and Champions League qualification.`\
 https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-villarreal/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/what-we-kno
 **How U.S.-Japan Tariff Talks Got Stuck on Cars and Rice**\
 `Negotiations have stalled ahead of next week’s deadline, with some suggesting Japan misjudged the depth of President Trump’s frustration over Tokyo’s policies.`\
 https://nytimes.com/2025/07/02/business/trump-tariffs-japan-rice-cars.html
-
-**The DOGE Wild Card in Musk’s Feud With Trump**\
-`Joe Gebbia, a confidant of the technology billionaire and a Tesla director, is also a leader of the federal cost-cutting team. The fight might put him in a bind.`\
-https://nytimes.com/2025/07/02/business/dealbook/gebbia-musk-trump-doge.html
-
-**'He wants to learn from everyone': Why Liverpool hired Van Bronckhorst**\
-`Liverpool's new assistant coach has dugout pedigree in his own right but is still eager to advance his football knowledge`\
-https://nytimes.com/athletic/6445026/2025/07/02/giovanni-van-bronckhorst-liverpool-coach-profile/
 

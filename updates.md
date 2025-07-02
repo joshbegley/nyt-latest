@@ -1,3 +1,7 @@
+**Atletico sign Spain international Baena from Villarreal**\
+`The versatile attacking player helped Villarreal to a fifth-place finish in 2024-25 and Champions League qualification.`\
+https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-villarreal/
+
 **Tesla Sales Fall as Elon Musk Focuses on Self-Driving Cars**\
 `The company has devoted resources to autonomous driving rather than developing new models to attract car buyers.`\
 https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html

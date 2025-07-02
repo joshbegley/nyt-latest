@@ -1,3 +1,7 @@
+**Atletico sign Spain international Baena from Villarreal**\
+`The versatile attacking player helped Villarreal to a fifth-place finish in 2024-25 and Champions League qualification.`\
+https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-villarreal/
+
 **Tesla Sales Fall as Elon Musk Focuses on Self-Driving Cars**\
 `The company has devoted resources to autonomous driving rather than developing new models to attract car buyers.`\
 https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/business/dealbook/gebbia-musk-trump-doge.html
 **'He wants to learn from everyone': Why Liverpool hired Van Bronckhorst**\
 `Liverpool's new assistant coach has dugout pedigree in his own right but is still eager to advance his football knowledge`\
 https://nytimes.com/athletic/6445026/2025/07/02/giovanni-van-bronckhorst-liverpool-coach-profile/
-
-**Chase Elliott on his consistent season and staying true to himself: 12 Questions**\
-`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
-https://nytimes.com/athletic/6461462/2025/07/02/chase-elliott-nascar-atlanta-win-12-questions/
 
