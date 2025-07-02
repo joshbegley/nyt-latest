@@ -1,3 +1,7 @@
+**Transfers TLDR: Joao Pedro to Chelsea – all you need to know**\
+`Chelsea have signed forward Joao Pedro from Brighton – here we break down the deal`\
+https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
+
 **Why Paredes will miss Spain's Euro 2025 opener – for a sending off 12 months ago**\
 `Paredes, 33, will serve the second of a two-game suspension during Thursday's group stage fixture.`\
 https://nytimes.com/athletic/6468590/2025/07/02/irene-paredes-spain-suspension-european-championship/

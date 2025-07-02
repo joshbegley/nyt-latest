@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6468495/2025/07/02/sunderland-transfer-noah-sadiki-
 `Rachel Reeves, Britain’s most senior finance official, appeared visibly upset in the House of Commons on Wednesday, as Prime Minister Keir Starmer was asked about her position.`\
 https://nytimes.com/2025/07/02/world/europe/rachel-reeves-uk-keir-starmer-crying.html
 
-**Transfers TLDR: Joao Pedro to Chelsea - all you need to know**\
-`Chelsea have signed forward Joao Pedro from Brighton - here we break down the deal.`\
+**Transfers TLDR: Joao Pedro to Chelsea – all you need to know**\
+`Chelsea have signed forward Joao Pedro from Brighton – here we break down the deal`\
 https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
 
