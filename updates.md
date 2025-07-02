@@ -1,3 +1,15 @@
+**Court Reinstates Convictions in International Soccer Corruption Case**\
+`Hernán López, a former Fox executive, and Full Play Group, an Argentine sports marketing company, paid millions in bribes to secure the rights to broadcast soccer tournaments.`\
+https://nytimes.com/2025/07/02/nyregion/court-reinstates-fifa-corruption-convictions.html
+
+**Meet the judge who oversaw the Combs trial: Arun Subramanian.**\
+`By Anusha Bayya`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/meet-the-judge-who-oversaw-the-combs-trial-arun-subramanian
+
+**Blues sign free agent center Pius Suter to 2-year, $8.25 million contract**\
+`Suter, 29, is coming off the best season of his career, notching 29 goals and 46 points in 81 games with the Vancouver Canucks.`\
+https://nytimes.com/athletic/6454358/2025/07/02/pius-suter-blues-nhl-free-agency-2025/
+
 **Pentagon Is Reviewing Which Countries Receive U.S. Weapons**\
 `President Trump’s decision to pause the delivery of some air defense interceptors and precision-guided munitions to Ukraine is part of a broader effort.`\
 https://nytimes.com/2025/07/02/us/politics/pentagon-weapons-review.html
