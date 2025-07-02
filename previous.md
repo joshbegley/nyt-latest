@@ -1,3 +1,7 @@
+**Deandre Ayton agrees to two-year deal with Lakers: Sources**\
+`The Lakers biggest question entering the summer — who will play center? — has now been answered. `\
+https://nytimes.com/athletic/6464043/2025/07/02/lakers-center-nba-deandre-ayton/
+
 **Court Reinstates Convictions in International Soccer Corruption Case**\
 `Hernán López, a former Fox executive, and Full Play Group, an Argentine sports marketing company, paid millions in bribes to secure the rights to broadcast soccer tournaments.`\
 https://nytimes.com/2025/07/02/nyregion/court-reinstates-fifa-corruption-convictions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/briefing/sean-combs-verdict-trump-bill-house.html
 **The $3 Trillion Question at the Capitol: Will Conservatives Cave (Again)?**\
 `Fiscal hawks have repeatedly threatened to bring down their party’s agenda out of debt fears, only to back down after pressure from party leaders and President Trump.`\
 https://nytimes.com/2025/07/02/us/politics/trump-conservatives-bill.html
-
-**Blues sign free agent center Pius Suter to 2-year, $8.25 million contract**\
-`Suter, 29, is coming off the best season of his career, notching 29 goals and 46 points in 81 games with the Vancouver Canucks.`\
-https://nytimes.com/athletic/6454358/2025/07/02/pius-suter-blues-nhl-free-agency-2025/
 

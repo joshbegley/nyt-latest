@@ -1,3 +1,7 @@
+**Deandre Ayton agrees to two-year deal with Lakers: Sources**\
+`The Lakers biggest question entering the summer — who will play center? — has now been answered. `\
+https://nytimes.com/athletic/6464043/2025/07/02/lakers-center-nba-deandre-ayton/
+
 **Court Reinstates Convictions in International Soccer Corruption Case**\
 `Hernán López, a former Fox executive, and Full Play Group, an Argentine sports marketing company, paid millions in bribes to secure the rights to broadcast soccer tournaments.`\
 https://nytimes.com/2025/07/02/nyregion/court-reinstates-fifa-corruption-convictions.html
