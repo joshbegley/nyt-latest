@@ -1,3 +1,7 @@
+**The Windup: Milestone for Kershaw tonight?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6467995/2025/07/02/clayton-kershaw-strikeouts-3000-the-windup/
+
 **Wisconsin Supreme Court Strikes Down 1849 Abortion Ban**\
 `After the U.S. Supreme Court overturned Roe v. Wade in 2022, Republican prosecutors in Wisconsin had said they intended to enforce the old law.`\
 https://nytimes.com/2025/07/02/us/wisconsin-abortion-1849-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-
 **Atletico sign Spain international Baena from Villarreal**\
 `The versatile attacking player helped Villarreal to a fifth-place finish in 2024-25 and Champions League qualification.`\
 https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-villarreal/
-
-**Tesla Sales Fall as Elon Musk Focuses on Self-Driving Cars**\
-`The company has devoted resources to autonomous driving rather than developing new models to attract car buyers.`\
-https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html
 
