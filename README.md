@@ -1,5 +1,9 @@
+**Trump Goes on a Charm Offensive as He Woos Holdout Republicans**\
+`President Trump worked the phones and welcomed Republicans to the White House to cajole them into supporting his megabill. They left with signed merchandise and photos of the Oval Office.`\
+https://nytimes.com/2025/07/02/us/politics/trump-bill-holdout-republicans.html
+
 **Bronny James not focused on LeBron rumors: 'I don't really pay attention'**\
-`James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G-League.`\
+`James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G League.`\
 https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rumors/
 
 **Chicago Suburb Will Buy Pope Leo XIV’s Boyhood Home**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469142/2025/07/02/sf-giants-statistical-hitters-ra
 **Pentagon Again Shifts Assessment of Damage to Iran’s Nuclear Program**\
 `The appraisal that Iran’s nuclear hopes had been set back 1 to 2 years by U.S. and Israeli bombings was the latest in a shifting series of pronouncements.`\
 https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
-
-**Braves lose Spencer Schwellenbach to IL with fractured elbow**\
-`Schwellenbach injured the elbow in his last start. It isn't clear whether he will be able to return this season.`\
-https://nytimes.com/athletic/6469829/2025/07/02/spencer-schwellenbach-braves-fractured-elbow/
 
