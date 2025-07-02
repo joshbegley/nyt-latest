@@ -1,3 +1,15 @@
+**England and Ben Stokes are changing the cricket toss**\
+`Win the toss and bat first was always the conventional wisdom in Test cricket - England are taking a very different approach`\
+https://nytimes.com/athletic/6469476/2025/07/02/england-ben-stokes-india-cricket-toss/
+
+**For ‘60 Minutes,’ a Humbling Moment at an Uneasy Time for Press Freedom**\
+`After an astonishing concession to a sitting president, the country’s most popular television news program faces the prospect of new ownership and a chilled environment for the First Amendment.`\
+https://nytimes.com/2025/07/02/business/media/trump-paramount-cbs-60-minutes-lawsuit.html
+
+**NWSL releases 2026 schedule footprint with adjustments for Men's World Cup**\
+`The 2026 season will coincide with the Men's World Cup, which will host games in seven cities with NWSL teams.`\
+https://nytimes.com/athletic/6469425/2025/07/02/nwsl-2026-schedule-world-cup-cities/
+
 **454 Hints That a Chatbot Wrote Part of a Biomedical Researcher’s Paper**\
 `Scientists show that the frequency of a set of words seems to have increased in published study abstracts since ChatGPT was released into the world.`\
 https://nytimes.com/2025/07/02/health/ai-chatgpt-research-papers.html
