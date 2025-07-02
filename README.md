@@ -1,3 +1,27 @@
+**Dodgers subject of civil rights complaint filed by conservative legal group**\
+`The complaint was filed weeks after the Dodgers said they denied federal immigration authorities access to Dodger Stadium parking lots.`\
+https://nytimes.com/athletic/6469611/2025/07/02/dodgers-dei-federal-civil-rights-complaint-america-first-legal/
+
+**Judge Rejects Trump’s Attempt to Stop Asylum Claims**\
+`The judge wrote that neither the Constitution nor federal immigration law gave the president the authority to “to adopt an alternative immigration system.”`\
+https://nytimes.com/2025/07/02/us/politics/asylum-trump.html
+
+**10 Ways of Making Sense of Zohran Mamdani’s Win**\
+`New York City’s surprising primary result has ramifications for the whole country.`\
+https://nytimes.com/2025/07/02/opinion/zohran-mamdani-democrats-trump.html
+
+**With Trump’s Policy Bill Teetering, Johnson Is in a Familiar Pickle**\
+`The speaker’s struggle to bring his party’s sprawling domestic policy bill in for a landing was just the latest in his string of near-death legislative experiences.`\
+https://nytimes.com/2025/07/02/us/politics/johnson-trump-policy-bill.html
+
+**Dalai Lama Announces He Will Reincarnate**\
+`The Dalai Lama, the spiritual head of Tibetan Buddhists, announced that the lineage would go on despite Chinese efforts to control the institution.`\
+https://nytimes.com/video/world/asia/100000010263725/dalai-lama-succession-china.html
+
+**Mike Brown has faced pressure before, but this time might be different. Welcome to the Knicks**\
+`The Knicks feel like they've got the right person to take them to the NBA Finals and beyond. Can Brown get them there? `\
+https://nytimes.com/athletic/6469405/2025/07/02/knicks-mike-brown-head-coach-pressure-nba/
+
 **Why the Golden Knights continue to be the NHL's ultimate 'home run' team**\
 `“We never want to rebuild,” owner Bill Foley said of the franchise's aggressive mindset in roster building.`\
 https://nytimes.com/athletic/6469332/2025/07/02/golden-knights-mitch-marner-nhl-bill-foley/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/trump-house-republican-holdouts.html
 **Jasmine Paolini, a Wimbledon finalist in 2024, goes out in second round**\
 `Paolini's exit means that the No. 2, No. 3, No. 4 and No. 5 women's seeds are all out in the first week.`\
 https://nytimes.com/athletic/6469610/2025/07/02/tennis-wimbledon-jasmine-paolini-rakhimova-result-analysis/
-
-**Could the Pirates' Paul Skenes go from cutters to cutting grass?**\
-`Skenes has been the best Pirate on the field and might be destined to maintain it when he's done playing. `\
-https://nytimes.com/athletic/6469452/2025/07/02/pirates-paul-skenes-cutting-grass/
-
-**Experts Say Judge Has Wide Latitude in Sentencing Sean Combs**\
-`Judge Arun Subramanian can consider federal guidelines and aspects of the music mogul’s character and history when determining Mr. Combs’s sentence.`\
-https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy-sentencing-prediction.html
-
-**How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\
-`Turner agreeing to sign with the Bucks and then Milwaukee waiving Lillard stunned the NBA. Here's how the Bucks made it work financially.`\
-https://nytimes.com/athletic/6467602/2025/07/02/myles-turner-damian-lillard-bucks-salary-cap-explained/
-
-**Amid Warnings of Iranian Terrorism, a History of Failed ‘C Team’ Plots**\
-`For high-stakes plots like an effort to kill President Trump, Iran has turned to common criminals, raising questions about its capabilities inside the U.S.`\
-https://nytimes.com/2025/07/02/us/politics/iran-threat-sleeper-cells.html
-
-**The Best Movies of the 21st Century: Readers Choose Their Top Movies**\
-`The people have spoken. Here are the movies they voted for.`\
-https://nytimes.com/interactive/2025/movies/readers-movies-21st-century.html
-
-**Notebook: Claude Giroux's 'difficult' negotiations, Shane Pinto contract projections, more**\
-`For the veteran Giroux, signing a one-year contract extension with Ottawa "was definitely a relief."`\
-https://nytimes.com/athletic/6466933/2025/07/02/senators-nhl-free-agency-claude-giroux-shane-pinto/
 
