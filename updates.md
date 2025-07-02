@@ -1,3 +1,11 @@
+**Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
+`President Trump sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
+https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
+
+**Tour de France 2025 preview: Schedule, stage guide, team rosters, riders to watch and more**\
+`The 112th Tour de France gets underway in Lille on Saturday. Here's a complete guide to one of sport's most prestigious events `\
+https://nytimes.com/athletic/6448427/2025/07/02/tour-de-france-2025-schedule-rosters-stages-riders/
+
 **How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
 `Tottenham have two elite central defenders but their injury records mean Frank needs to coax improvements from the entire defensive unit`\
 https://nytimes.com/athletic/6448292/2025/07/02/tottenham-defence-romero-thomas-frank/

@@ -1,3 +1,7 @@
+**Indiana Fever's resilience shines in Commissioner's Cup championship**\
+`Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
+https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
+
 **Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
 `President Trump sued Paramount over a “60 Minutes” interview with his opponent, former Vice President Kamala Harris.`\
 https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455561/2025/07/02/florian-wirtz-liverpool-german-a
 **How Sheffield Wednesday descended into chaos**\
 `Unpaid wages, a highly regarded manager on way out and very real fears for the future. A once proud club is on the brink`\
 https://nytimes.com/athletic/6465422/2025/07/02/sheffield-wednesday-dejphon-chansiri-ownership/
-
-**Why are Premier League clubs selling their women's teams? And which club could do it next?**\
-`After Chelsea and Aston Villa have sold their women's teams to a parent company, we consider the long-term effect it could have on the game`\
-https://nytimes.com/athletic/6456251/2025/07/02/psr-premier-league-women-teams-sales/
 
