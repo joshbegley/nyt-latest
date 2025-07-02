@@ -1,3 +1,7 @@
+**Dortmund 2 Monterrey 1 - Suspended Jobe misses Bellingham derby with Jude, fans warned over homophobic chant**\
+`Analysis of Dortmund's victory over Monterrey at the Club World Cup`\
+https://nytimes.com/athletic/6466918/2025/07/01/jobe-bellingham-jude-suspended/
+
 **Mirtle: Why was free agency such a dud this year? What does it mean for next season?**\
 `Despite a rising cap, NHL teams didn't splash the kind of cash we're used to seeing on July 1.`\
 https://nytimes.com/athletic/6467266/2025/07/01/nhl-free-agency-contract-analysis-2025/

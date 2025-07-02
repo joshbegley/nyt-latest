@@ -1,3 +1,7 @@
+**Dortmund 2 Monterrey 1 - Suspended Jobe misses Bellingham derby with Jude, fans warned over homophobic chant**\
+`Analysis of Dortmund's victory over Monterrey at the Club World Cup`\
+https://nytimes.com/athletic/6466918/2025/07/01/jobe-bellingham-jude-suspended/
+
 **Fever beat Lynx without Caitlin Clark to take WNBA Commissioner's Cup**\
 `Natasha Howard leads way as Indiana hands Minnesota first home loss of season, wins $500,000 pot.`\
 https://nytimes.com/athletic/6467622/2025/07/01/wnba-commissioners-cup-fever-lynx/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467426/2025/07/01/grizzlies-jaren-jackson-jr-toe-i
 **Penn revokes Lia Thomas' records, bans trans athletes in deal with Trump**\
 `The university’s website already shows other athletes holding school records that Thomas set in freestyle swimming.`\
 https://nytimes.com/athletic/6467404/2025/07/01/trump-lia-thomas-transgender-athletes-penn/
-
-**Kings fans spent 20 seasons jeering Corey Perry — will they cheer the 'Worm' now?**\
-`The Kings also reshaped their blue line on Tuesday by adding Cody Ceci and Brian Dumoulin.`\
-https://nytimes.com/athletic/6467387/2025/07/01/corey-perry-free-agent-kings-ducks/
 
