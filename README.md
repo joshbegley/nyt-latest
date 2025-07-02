@@ -1,8 +1,20 @@
+**It Came From Outside Our Solar System, and It Might Be Big**\
+`A11pI3Z is only the third interstellar visitor to be discovered, and astronomers can’t say yet whether it is a comet or a rocky body.`\
+https://nytimes.com/2025/07/02/science/interstellar-object-a11pi3z.html
+
+**Teens Guilty of Bullying Could Lose Drivers’ Licenses Under Tennessee Law**\
+`Supporters hope the law will deter young people from bullying. Critics questioned whether it would actually make teenagers think twice about their behavior.`\
+https://nytimes.com/2025/07/02/us/tennessee-license-suspension-bullying-law.html
+
+**Combs Was Acquitted of the Most Serious Charges Against Him**\
+`Also, House Republicans were divided over the party’s big policy bill. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/02/briefing/sean-combs-verdict-trump-bill-house.html
+
 **The $3 Trillion Question at the Capitol: Will Conservatives Cave (Again)?**\
 `Fiscal hawks have repeatedly threatened to bring down their party’s agenda out of debt fears, only to back down after pressure from party leaders and President Trump.`\
 https://nytimes.com/2025/07/02/us/politics/trump-conservatives-bill.html
 
-**Blues sign center Pius Suter to 2-year, $4 million contract**\
+**Blues sign free agent center Pius Suter to 2-year contract**\
 `Suter, 29, is coming off the best season of his career, notching 29 goals and 46 points in 81 games with the Vancouver Canucks.`\
 https://nytimes.com/athletic/6454358/2025/07/02/pius-suter-blues-nhl-free-agency-2025/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/02/nyregion/avi-small-sexual-harassment.html
 **C.I.A. Says Its Leaders Rushed Report on Russia Interference in 2016 Vote**\
 `But the new review of the earlier assessment does not dispute the conclusion that Russia favored the election of Donald J. Trump.`\
 https://nytimes.com/2025/07/02/us/politics/russia-trump-2016-election.html
-
-**As Sean Combs Celebrates, the Testimony of Cassie and ‘Jane’ Lingers**\
-`Two of Mr. Combs’s former girlfriends gave days of harrowing testimony of abuse, but jurors weren’t convinced those experiences with escorts were sex trafficking.`\
-https://nytimes.com/2025/07/02/arts/music/sean-combs-verdict-cassie-jane-testimony.html
-
-**Chris Drury on 'busy and exciting' offseason, plus K'Andre Miller on trade to Hurricanes**\
-`As New York makes moves to improve next season, top prospect Gabe Perreault is also aiming to make the NHL roster in the fall.`\
-https://nytimes.com/athletic/6469724/2025/07/02/rangers-kandre-miller-trade-chris-drury-nhl-offseason/
-
-**Thursday Briefing: Sean Combs Acquitted of Sex Trafficking**\
-`Plus, pet crocodiles in Australia.`\
-https://nytimes.com/2025/07/02/briefing/sean-combs-trial-israel-hamas-ukraine.html
 

@@ -1,3 +1,7 @@
+**The $3 Trillion Question at the Capitol: Will Conservatives Cave (Again)?**\
+`Fiscal hawks have repeatedly threatened to bring down their party’s agenda out of debt fears, only to back down after pressure from party leaders and President Trump.`\
+https://nytimes.com/2025/07/02/us/politics/trump-conservatives-bill.html
+
 **Blues sign center Pius Suter to 2-year, $4 million contract**\
 `Suter, 29, is coming off the best season of his career, notching 29 goals and 46 points in 81 games with the Vancouver Canucks.`\
 https://nytimes.com/athletic/6454358/2025/07/02/pius-suter-blues-nhl-free-agency-2025/
