@@ -1,3 +1,7 @@
+**Fireworks Warehouse Explodes in Northern California**\
+`The cause of the explosion in Esparto, Calif., remained unclear. There were no initial reports of injuries.`\
+https://nytimes.com/2025/07/02/us/fireworks-warehouse-explosion-esparto-california.html
+
 **The Reds beat the Red Sox in epic '75 Series, but NESN won reunion with thowback telecast**\
 `Even though they lost in seven, the Super Sox of '75 were a special team. NESN's effort succeeded in recapturing that.`\
 https://nytimes.com/athletic/6467813/2025/07/02/red-sox-reds-1975-world-series-50th-celebration/
