@@ -1,3 +1,7 @@
+**What Has Trump Said About Undocumented Farmers and Hotel Workers?**\
+`President Trump has floated ideas about helping certain industries that rely on immigrant labor, but the White House has yet to release a concrete plan about what’s in store.`\
+https://nytimes.com/2025/07/02/us/politics/trump-undocumented-immigrants-farmers-hotels.html
+
 **Emma Raducanu and Marketa Vondrousova's Wimbledon duel of champions and cautionary tales**\
 `In a parallel universe, this matchup is between two top-10 players. In this one, it is a duel of two cautionary tales about tennis success.`\
 https://nytimes.com/athletic/6469310/2025/07/02/tennis-wimbledon-raducanu-vondrousova-grand-slam-champions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469332/2025/07/02/golden-knights-mitch-marner-nhl-
 **What’s in Our Queue? ‘Face in the Crowd’ and More**\
 `Text by Shawn McCreesh`\
 https://nytimes.com/card/2025/07/02/arts/editors-recommendations-faceinthecrowd
-
-**Trump Meets With House Republican Holdouts to Press for Policy Bill**\
-`President Trump met with Republican lawmakers in hopes of bridging deep divisions over the legislation that would enact his domestic agenda.`\
-https://nytimes.com/2025/07/02/us/politics/trump-house-republican-holdouts.html
 
