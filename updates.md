@@ -1,3 +1,7 @@
+**Why the Blues traded Zack Bolduc for Logan Mailloux and what they said about his past**\
+`The trade brings the Blues a 22-year-old defensive prospect, but they're giving up a forward who had a breakout season in 2024-25.`\
+https://nytimes.com/athletic/6466520/2025/07/01/blues-logan-mailloux-trade-doug-armstrong/
+
 **Social Security Backs Off Listing Living Migrants as Dead**\
 `Instead, the agency is flagging as “unverified” the Social Security numbers of thousands of people who lost their temporary legal status.`\
 https://nytimes.com/2025/07/01/us/politics/social-security-immigrants-dead.html
