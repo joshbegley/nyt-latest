@@ -1,3 +1,11 @@
+**Liverpool knock back interest from Bayern in Diaz**\
+`Diaz's contract at Anfield runs until 2027.`\
+https://nytimes.com/athletic/6468053/2025/07/02/liverpool-luis-diaz-bayern-munich-transfer/
+
+**In Rare Tribute to Slain Troops, Kim Jong-un Still Keeps Up Appearances**\
+`Through an event shown on North Korean state television, Mr. Kim also highlighted the sacrifices made for Moscow and the rewards he seeks.`\
+https://nytimes.com/2025/07/02/world/asia/north-korea-troops-kim-jong-un.html
+
 **How to watch Mexico vs. Honduras: Are the defending Gold Cup champs on upset alert?**\
 `Mexico is widely projected to advance to the final, but this Honduras side won't make it easy on El Tri in the Gold Cup semifinal.`\
 https://nytimes.com/athletic/6467392/2025/07/02/mexico-honduras-2025-gold-cup-how-to-watch/

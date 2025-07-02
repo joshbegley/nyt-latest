@@ -1,3 +1,11 @@
+**Liverpool knock back interest from Bayern in Diaz**\
+`Diaz's contract at Anfield runs until 2027.`\
+https://nytimes.com/athletic/6468053/2025/07/02/liverpool-luis-diaz-bayern-munich-transfer/
+
+**In Rare Tribute to Slain Troops, Kim Jong-un Still Keeps Up Appearances**\
+`Through an event shown on North Korean state television, Mr. Kim also highlighted the sacrifices made for Moscow and the rewards he seeks.`\
+https://nytimes.com/2025/07/02/world/asia/north-korea-troops-kim-jong-un.html
+
 **How to watch Mexico vs. Honduras: Are the defending Gold Cup champs on upset alert?**\
 `Mexico is widely projected to advance to the final, but this Honduras side won't make it easy on El Tri in the Gold Cup semifinal.`\
 https://nytimes.com/athletic/6467392/2025/07/02/mexico-honduras-2025-gold-cup-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
 **Watching the Poulters turn rivals for a day with Open Championship qualification on the line**\
 `We spent a day watching father and son Ian and Luke Poulter try to beat each other to secure a place at Portrush`\
 https://nytimes.com/athletic/6467092/2025/07/02/ian-poulter-luke-poulter-open-golf/
-
-**Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
-`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently – so when he does, Wolves fans listen`\
-https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
-
-**Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
-`Emily Olsen, The Athletic's head of global women's soccer, outlines our coverage plans for Euro 2025`\
-https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-euros-coverage/
 
