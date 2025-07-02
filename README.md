@@ -1,3 +1,7 @@
+**Red Panda injured during performance at WNBA game, leaves arena in ambulance**\
+`The iconic halftime performer takes spill less than a minute into her halftime show, is seen leaving arena in ambulance.`\
+https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-performance/
+
 **Grizzlies' Jaren Jackson Jr. sustains turf toe injury in right foot**\
 `The injury is a tough loss for the Grizzlies, who agreed with Jackson Monday on a five-year, $240 million maximum renegotation-and-extension`\
 https://nytimes.com/athletic/6467426/2025/07/01/grizzlies-jaren-jackson-jr-toe-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/trump-haiti-migrants-deportation.html
 **The Disaster That Just Passed the Senate**\
 `Trump’s “big beautiful bill” would gut Medicaid, nutrition assistance and clean energy credits. All for what?`\
 https://nytimes.com/2025/07/01/opinion/ezra-klein-podcast-matthew-yglesias.html
-
-**Trump Says Israel Agrees to Conditions for Gaza Cease-Fire Proposal**\
-`In a social media post, the president said the United States and Israel were finalizing a proposal to Hamas. The announcement comes ahead of Prime Minister Benjamin Netanyahu’s visit to Washington next week.`\
-https://nytimes.com/2025/07/01/us/politics/trump-israel-gaza-ceasefire.html
 
