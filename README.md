@@ -1,3 +1,15 @@
+**Bronny James not focused on LeBron rumors: 'I don't really pay attention'**\
+`James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G-League.`\
+https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rumors/
+
+**Chicago Suburb Will Buy Pope Leo XIV’s Boyhood Home**\
+`Officials in Dolton, Ill., called the purchase a rare opportunity. But some residents questioned whether the village, grappling with a deficit and potholes, could afford it.`\
+https://nytimes.com/2025/07/02/us/pope-leo-chicago-childhood-home.html
+
+**Trump Says Fed Chair Should ‘Resign Immediately’**\
+`The president escalated his recent attacks on Jerome H. Powell for not cutting interest rates.`\
+https://nytimes.com/2025/07/02/us/politics/trump-jerome-powell-fed.html
+
 **Abrego Garcia Was Beaten and Tortured in El Salvador Prison, Lawyers Say**\
 `Kilmar Armando Abrego Garcia was made to kneel overnight, denied bathroom access and confined in an overcrowded cell with bright lights and no windows, his lawyers say.`\
 https://nytimes.com/2025/07/02/us/politics/kilmar-abrego-garcia-el-salvador-trump-deportation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
 **Braves lose Spencer Schwellenbach to IL with fractured elbow**\
 `Schwellenbach injured the elbow in his last start. It isn't clear whether he will be able to return this season.`\
 https://nytimes.com/athletic/6469829/2025/07/02/spencer-schwellenbach-braves-fractured-elbow/
-
-**Illegal Border Crossings Plunge to Lowest Level in Decades**\
-`Border Patrol agents made just over 6,000 arrests in June, according to government figures, a sign that President Trump’s hard-line immigration policies are working to keep people out.`\
-https://nytimes.com/2025/07/02/us/politics/border-crossings-trump.html
-
-**Wimbledon day 3: Rain doesn't stop the upsets but world No. 1 Aryna Sabalenka holds firm**\
-`Just two top-10 players remain in the top half of the women's draw at Wimbledon.`\
-https://nytimes.com/athletic/6468440/2025/07/02/tennis-wimbledon-recap-day-3-results/
-
-**Republicans Want States to Cut Food Aid Errors. Their Bill Could Do the Opposite.**\
-`To secure a key vote, an “absurd policy” was created that winds up encouraging states to make more mistakes.`\
-https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
 
