@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/02/nyregion/nyc-atm-thefts.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/02/crosswords/spelling-bee-forum.html
 
-**Lawmakers Hit the Road to Reach Washington for Vote on Trump Bill**\
+**Lawmakers Scramble to Reach Washington for Vote on Trump Bill**\
 `Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
 
