@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6469610/2025/07/02/tennis-wimbledon-jasmine-paolini
 https://nytimes.com/athletic/6469452/2025/07/02/pirates-paul-skenes-cutting-grass/
 
 **Experts Say Judge Has Wide Latitude in Sentencing Sean Combs**\
-`By Daniel Victor`\
+`Judge Arun Subramanian can consider federal guidelines and aspects of the music mogul’s character and history when determining Mr. Combs’s sentence.`\
 https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy-sentencing-prediction.html
 
 **How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\

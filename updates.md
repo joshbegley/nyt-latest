@@ -1,3 +1,7 @@
+**Experts Say Judge Has Wide Latitude in Sentencing Sean Combs**\
+`Judge Arun Subramanian can consider federal guidelines and aspects of the music mogul’s character and history when determining Mr. Combs’s sentence.`\
+https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy-sentencing-prediction.html
+
 **Why the Golden Knights continue to be the NHL's ultimate 'home run' team**\
 `“We never want to rebuild,” owner Bill Foley said of the franchise's aggressive mindset in roster building.`\
 https://nytimes.com/athletic/6469332/2025/07/02/golden-knights-mitch-marner-nhl-bill-foley/
