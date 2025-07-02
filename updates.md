@@ -1,3 +1,11 @@
+**Tesla Sales Fall as Elon Musk Focuses on Self-Driving Cars**\
+`The company has devoted resources to autonomous driving rather than developing new models to attract car buyers.`\
+https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html
+
+**'He wants to learn from everyone': Why Liverpool hired Van Bronckhorst**\
+`Liverpool's new assistant coach has dugout pedigree in his own right but is still eager to advance his football knowledge`\
+https://nytimes.com/athletic/6445026/2025/07/02/giovanni-van-bronckhorst-liverpool-coach-profile/
+
 **Non-negotiables vs obvious talent: The pros and cons of selling Joao Pedro**\
 `The Brazilian has become the latest Brighton employee to join Chelsea. But is the feeling different this time?`\
 https://nytimes.com/athletic/6462044/2025/07/02/brighton-joao-pedro-hurzeler/
