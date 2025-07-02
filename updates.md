@@ -1,3 +1,15 @@
+**Kings fans spent 20 seasons jeering Corey Perry — will they cheer the 'Worm' now?**\
+`The Kings also reshaped their blue line on Tuesday by adding Cody Ceci and Brian Dumoulin.`\
+https://nytimes.com/athletic/6467387/2025/07/01/corey-perry-free-agent-kings-ducks/
+
+**Brock Boeser, Thatcher Demko and the Canucks winners and losers in free agency**\
+`The Canucks spent July 1 locking up three long-tenured members of their unproven core group to significant extensions.`\
+https://nytimes.com/athletic/6465518/2025/07/01/canucks-brock-boeser-thatcher-demko-contract/
+
+**Trump Pauses Some Weapons Transfers to Ukraine**\
+`The White House cited Pentagon concerns that some American arms stockpiles were dwindling too low. Among the affected weapons were air defense systems, bombs, missiles and artillery rounds.`\
+https://nytimes.com/2025/07/01/us/politics/trump-ukraine-weapons.html
+
 **Downtown Housing Could Rise in California Cities, but Barriers Remain**\
 `After scaling back a landmark environmental law, Gov. Gavin Newsom and other state leaders are hoping for a construction boom.`\
 https://nytimes.com/2025/07/01/us/ceqa-california-housing.html

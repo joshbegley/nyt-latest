@@ -1,3 +1,15 @@
+**Kings fans spent 20 seasons jeering Corey Perry — will they cheer the 'Worm' now?**\
+`The Kings also reshaped their blue line on Tuesday by adding Cody Ceci and Brian Dumoulin.`\
+https://nytimes.com/athletic/6467387/2025/07/01/corey-perry-free-agent-kings-ducks/
+
+**Brock Boeser, Thatcher Demko and the Canucks winners and losers in free agency**\
+`The Canucks spent July 1 locking up three long-tenured members of their unproven core group to significant extensions.`\
+https://nytimes.com/athletic/6465518/2025/07/01/canucks-brock-boeser-thatcher-demko-contract/
+
+**Trump Pauses Some Weapons Transfers to Ukraine**\
+`The White House cited Pentagon concerns that some American arms stockpiles were dwindling too low. Among the affected weapons were air defense systems, bombs, missiles and artillery rounds.`\
+https://nytimes.com/2025/07/01/us/politics/trump-ukraine-weapons.html
+
 **Downtown Housing Could Rise in California Cities, but Barriers Remain**\
 `After scaling back a landmark environmental law, Gov. Gavin Newsom and other state leaders are hoping for a construction boom.`\
 https://nytimes.com/2025/07/01/us/ceqa-california-housing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6467065/2025/07/01/texas-rangers-jack-leiter-at-bat
 **A federal judge rejected the DOGE takeover of an African aid agency as likely illegal.**\
 `A federal judge found that efforts by Pete Marocco and affiliates of Elon Musk to seize control of the U.S. African Development Foundation earlier this year appeared unlawful.`\
 https://nytimes.com/live/2025/07/01/us/trump-bill-news/a-federal-judge-rejected-the-doge-takeover-of-an-african-aid-agency-as-likely-illegal
-
-**Alex Delvecchio, Detroit Red Wings legend, dies at age 93**\
-`Delvecchio won three Stanley Cup championships with the Red Wings.`\
-https://nytimes.com/athletic/6467333/2025/07/01/delvecchio-detroit-red-wings/
-
-**Sabres free agency: Alex Lyon, Justin Danforth, Jacob Bernard-Docker and other moves**\
-`Here's a rundown of what Buffalo got accomplished on July 1 and what work is left to be done.`\
-https://nytimes.com/athletic/6467278/2025/07/01/sabres-free-agency-2025/
-
-**Beyoncé’s Hometown Throwdown**\
-`The superstar’s Cowboy Carter Tour arrived in Houston over the weekend, and fans once again dressed in their sparkly country finest.`\
-https://nytimes.com/card/2025/07/02/arts/music/beyonce-cowboy-carter-tour-houston
 
