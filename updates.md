@@ -1,3 +1,11 @@
+**The Best Movies of the 21st Century: Readers Choose Their Top Movies**\
+`The people have spoken. Here are the movies they voted for.`\
+https://nytimes.com/interactive/2025/movies/readers-movies-21st-century.html
+
+**Notebook: Claude Giroux's 'difficult' negotiations, Shane Pinto contract projections, more**\
+`For the 37-year-old veteran, signing a one-year contract extension with Ottawa "was definitely a relief."`\
+https://nytimes.com/athletic/6466933/2025/07/02/senators-nhl-free-agency-claude-giroux-shane-pinto/
+
 **In Argentina, A.I.-Fueled Smear Highlights Milei’s War on Press**\
 `Journalists face an increasing number of attacks from Argentina’s highest office, raising concerns about the undermining of press freedom.`\
 https://nytimes.com/2025/07/02/world/americas/argentina-president-milei-press-attacks.html

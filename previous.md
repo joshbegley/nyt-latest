@@ -1,3 +1,11 @@
+**The Best Movies of the 21st Century: Readers Choose Their Top Movies**\
+`The people have spoken. Here are the movies they voted for.`\
+https://nytimes.com/interactive/2025/movies/readers-movies-21st-century.html
+
+**Notebook: Claude Giroux's 'difficult' negotiations, Shane Pinto contract projections, more**\
+`For the 37-year-old veteran, signing a one-year contract extension with Ottawa "was definitely a relief."`\
+https://nytimes.com/athletic/6466933/2025/07/02/senators-nhl-free-agency-claude-giroux-shane-pinto/
+
 **England and Ben Stokes are changing the cricket toss**\
 `Win the toss and bat first was always the conventional wisdom in Test cricket - England are taking a very different approach`\
 https://nytimes.com/athletic/6469476/2025/07/02/england-ben-stokes-india-cricket-toss/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/world/americas/argentina-president-milei-press-at
 **An ‘Immoral and Cruel’ Republican Bill**\
 `Readers criticize several aspects of the Trump policy bill. Also: In praise of U.S.A.I.D.`\
 https://nytimes.com/2025/07/02/opinion/trump-republican-bill.html
-
-**Top F.D.A. Official Overrode Scientists on Covid Shots**\
-`Records show that a top U.S. regulator rejected the recommendations of agency experts and limited the use of Covid vaccines.`\
-https://nytimes.com/2025/07/02/health/fda-covid-vaccines.html
-
-**Braves designate Alex Verdugo for assignment to make room for Jurickson Profar: Source**\
-`Verdugo has hit .203 in his last 42 games. Profar will return from an 80-game suspension handed down four days into the season.`\
-https://nytimes.com/athletic/6469123/2025/07/02/alex-verdugo-braves-dfa-jurickson-profar/
 
