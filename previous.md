@@ -1,3 +1,7 @@
+**Cardinals swept: 3 takeaways from 3 ugly losses to the Pirates**\
+`Injuries to Willson Contreras, Nolan Arenado and Lars Nootbar made for a quiet offense: "When you don't have them, it's tough to score'" `\
+https://nytimes.com/athletic/6469715/2025/07/02/cardinals-swept-pirates-takeaways/
+
 **Columbia’s Acting President Apologizes for Texts Disparaging Trustee**\
 `Claire Shipman said she was “wrong” to have sent messages in 2023 and 2024 criticizing a trustee who was outspoken about the treatment of Jewish students.`\
 https://nytimes.com/2025/07/02/nyregion/columbia-claire-shipman-apology-messages.html
@@ -6,9 +10,9 @@ https://nytimes.com/2025/07/02/nyregion/columbia-claire-shipman-apology-messages
 `President Trump is using his July 4 deadline as a cudgel to pass his signature domestic policy bill.`\
 https://nytimes.com/2025/07/02/us/politics/trump-domestic-policy-bill-deadline.html
 
-**Where the Giants hitters rank first (or last) halfway through the season**\
+**Where the Giants' hitters rank first (or last) halfway through the season**\
 `The Giants are struggling on offense and, not surprisingly, find themselves dead-last in several offensive categories. `\
-https://nytimes.com/athletic/6469142/2025/07/02/sf-giants-statistical-rankings-midseason-2025/
+https://nytimes.com/athletic/6469142/2025/07/02/sf-giants-statistical-hitters-rankings-midseason-2025/
 
 **Pentagon Again Shifts Assessment of Damage to Iran’s Nuclear Program**\
 `The appraisal that Iran’s nuclear hopes had been set back 1 to 2 years by U.S. and Israeli bombings was the latest in a shifting series of pronouncements.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
 **Deandre Ayton agrees to two-year deal with Lakers: Sources**\
 `The Lakers biggest question entering the summer — who will play center? — has now been answered. `\
 https://nytimes.com/athletic/6464043/2025/07/02/lakers-center-nba-deandre-ayton/
-
-**Court Reinstates Convictions in International Soccer Corruption Case**\
-`Hernán López, a former Fox executive, and Full Play Group, an Argentine sports marketing company, paid millions in bribes to secure the rights to broadcast soccer tournaments.`\
-https://nytimes.com/2025/07/02/nyregion/court-reinstates-fifa-corruption-convictions.html
 

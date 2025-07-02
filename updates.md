@@ -1,3 +1,11 @@
+**Cardinals swept: 3 takeaways from 3 ugly losses to the Pirates**\
+`Injuries to Willson Contreras, Nolan Arenado and Lars Nootbar made for a quiet offense: "When you don't have them, it's tough to score'" `\
+https://nytimes.com/athletic/6469715/2025/07/02/cardinals-swept-pirates-takeaways/
+
+**Where the Giants' hitters rank first (or last) halfway through the season**\
+`The Giants are struggling on offense and, not surprisingly, find themselves dead-last in several offensive categories. `\
+https://nytimes.com/athletic/6469142/2025/07/02/sf-giants-statistical-hitters-rankings-midseason-2025/
+
 **Pentagon Again Shifts Assessment of Damage to Iran’s Nuclear Program**\
 `The appraisal that Iran’s nuclear hopes had been set back 1 to 2 years by U.S. and Israeli bombings was the latest in a shifting series of pronouncements.`\
 https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
