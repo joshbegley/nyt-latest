@@ -1,3 +1,11 @@
+**U.K. Chancellor in Tears in Parliament as Questions Are Raised About Her Role**\
+`Rachel Reeves, Britain’s most senior finance official, appeared visibly upset in the House of Commons on Wednesday, as Prime Minister Keir Starmer was asked about her position.`\
+https://nytimes.com/2025/07/02/world/europe/rachel-reeves-uk-keir-starmer-crying.html
+
+**Transfers TLDR: Joao Pedro to Chelsea - all you need to know**\
+`Chelsea have signed forward Joao Pedro from Brighton - here we break down the deal.`\
+https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
+
 **Atletico sign Spain international Baena from Villarreal**\
 `The versatile attacking player helped Villarreal to a fifth-place finish in 2024-25 and Champions League qualification.`\
 https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-villarreal/
