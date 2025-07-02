@@ -1,3 +1,11 @@
+**Gladbach midfielder Neuhaus fined, demoted to U23s after 'unacceptable' video**\
+`Borussia Monchengladbach said Florian Neuhaus has been issued a "heavy fine" and will train with the Under-23s for four weeks.`\
+https://nytimes.com/athletic/6468376/2025/07/02/gladbach-florian-neuhaus-video-fined-demoted/
+
+**Spurs announce return of 'Bill Nicholson Gates' to stadium**\
+`The gates were a feature of Spurs' former home, White Hart Lane.`\
+https://nytimes.com/athletic/6468655/2025/07/02/tottenham-bill-nicholson-gates/
+
 **Why Paredes will miss Spain's Euro 2025 opener – for a sending off 12 months ago**\
 `Paredes, 33, will serve the second of a two-game suspension during Thursday's group stage fixture.`\
 https://nytimes.com/athletic/6468590/2025/07/02/irene-paredes-spain-suspension-european-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6468239/2025/07/02/keanu-reeves-cadillac-f1-documen
 **Sunderland agree €20.5m deal for Sadiki**\
 `The agreement is worth a guaranteed €17.5m.`\
 https://nytimes.com/athletic/6468495/2025/07/02/sunderland-transfer-noah-sadiki-union-saint-gilloise/
-
-**U.K. Chancellor in Tears in Parliament as Questions Are Raised About Her Role**\
-`Rachel Reeves, Britain’s most senior finance official, appeared visibly upset in the House of Commons on Wednesday, as Prime Minister Keir Starmer was asked about her position.`\
-https://nytimes.com/2025/07/02/world/europe/rachel-reeves-uk-keir-starmer-crying.html
-
-**Transfers TLDR: Joao Pedro to Chelsea – all you need to know**\
-`Chelsea have signed forward Joao Pedro from Brighton – here we break down the deal`\
-https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
 
