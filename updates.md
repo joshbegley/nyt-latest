@@ -1,3 +1,7 @@
+**2025 Women's Euros odds: Spain favoured ahead of defending champs England**\
+`After winning the World Cup two years ago, Spain are favoured to win the Euros this summer. Defending champs England are second favourites.`\
+https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-england/
+
 **Indiana Fever's resilience shines in Commissioner's Cup championship**\
 `Without Caitlin Clark and trailing early, the Fever's defense inspired a rally to beat the Minnesota Lynx. `\
 https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-championship/
