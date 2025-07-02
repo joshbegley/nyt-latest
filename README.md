@@ -1,3 +1,11 @@
+**How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\
+`Turner agreeing to sign with the Bucks and then Milwaukee waiving Lillard stunned the NBA. Here's how the Bucks made it work financially.`\
+https://nytimes.com/athletic/6467602/2025/07/02/myles-turner-damian-lillard-bucks-salary-cap-explained/
+
+**Amid Warnings of Iranian Terrorism, a History of Failed ‘C Team’ Plots**\
+`For high-stakes plots like an effort to kill President Trump, Iran has turned to common criminals, raising questions about its capabilities inside the U.S.`\
+https://nytimes.com/2025/07/02/us/politics/iran-threat-sleeper-cells.html
+
 **The Best Movies of the 21st Century: Readers Choose Their Top Movies**\
 `The people have spoken. Here are the movies they voted for.`\
 https://nytimes.com/interactive/2025/movies/readers-movies-21st-century.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html
 **Mamdani, Trump and the End of the Old Politics**\
 `The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
 https://nytimes.com/video/opinion/100000010254574/mamdani-trump-and-the-end-of-the-old-politics.html
-
-**In Argentina, A.I.-Fueled Smear Highlights Milei’s War on Press**\
-`Journalists face an increasing number of attacks from Argentina’s highest office, raising concerns about the undermining of press freedom.`\
-https://nytimes.com/2025/07/02/world/americas/argentina-president-milei-press-attacks.html
-
-**An ‘Immoral and Cruel’ Republican Bill**\
-`Readers criticize several aspects of the Trump policy bill. Also: In praise of U.S.A.I.D.`\
-https://nytimes.com/2025/07/02/opinion/trump-republican-bill.html
 
