@@ -1,3 +1,19 @@
+**Non-negotiables vs obvious talent: The pros and cons of selling Joao Pedro**\
+`The Brazilian has become the latest Brighton employee to join Chelsea. But is the feeling different this time?`\
+https://nytimes.com/athletic/6462044/2025/07/02/brighton-joao-pedro-hurzeler/
+
+**Chelsea confirm Joao Pedro signing from Brighton**\
+`The Brazilian has signed a contract until 2032, having spent the last two seasons at Brighton.`\
+https://nytimes.com/athletic/6462058/2025/07/02/chelsea-joao-pedro-transfer-brighton/
+
+**The Unrepentant Return of Christian Diet Culture**\
+`How thinness as a virtue shifts from debauchery to conservatism.`\
+https://nytimes.com/2025/07/02/opinion/christian-diet-culture.html
+
+**A Friend Asked to Bring My Ex to My Party. Was It OK to Disinvite Her?**\
+`A reader was caught off guard by her college best friend’s request of a plus one, considering how poorly her relationship with the ex ended. But did she overreact?`\
+https://nytimes.com/2025/07/02/style/party-disinvitation.html
+
 **What we know about the jury’s deliberations.**\
 `By Ben Sisario and Julia Jacobs`\
 https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/what-we-know-about-the-jurys-deliberations

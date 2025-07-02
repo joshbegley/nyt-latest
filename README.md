@@ -1,3 +1,7 @@
+**Tesla Sales Fall as Elon Musk Focuses on Self-Driving Cars**\
+`The company has devoted resources to autonomous driving rather than developing new models to attract car buyers.`\
+https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html
+
 **Non-negotiables vs obvious talent: The pros and cons of selling Joao Pedro**\
 `The Brazilian has become the latest Brighton employee to join Chelsea. But is the feeling different this time?`\
 https://nytimes.com/athletic/6462044/2025/07/02/brighton-joao-pedro-hurzeler/
@@ -27,14 +31,10 @@ https://nytimes.com/2025/07/02/business/trump-tariffs-japan-rice-cars.html
 https://nytimes.com/2025/07/02/business/dealbook/gebbia-musk-trump-doge.html
 
 **'He wants to learn from everyone': Why Liverpool hired Van Bronckhorst**\
-`Liverpool's new assistant coach has dug-out pedigree in his own right but is still eager to advance his football knowledge`\
+`Liverpool's new assistant coach has dugout pedigree in his own right but is still eager to advance his football knowledge`\
 https://nytimes.com/athletic/6445026/2025/07/02/giovanni-van-bronckhorst-liverpool-coach-profile/
 
 **Chase Elliott on his consistent season and staying true to himself: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/6461462/2025/07/02/chase-elliott-nascar-atlanta-win-12-questions/
-
-**Yohe's 10 observations: What to make of Penguins' July 1 moves**\
-`Some observations on the Penguins' first day of free agency and where they go from here. `\
-https://nytimes.com/athletic/6467360/2025/07/02/yohe-10-observations-penguins-free-agency/
 
