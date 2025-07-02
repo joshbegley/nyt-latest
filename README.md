@@ -1,3 +1,11 @@
+**Will the Bombing Stop Iran From Going Nuclear?**\
+`Iran just ended its cooperation with international inspectors, suggesting no post-bombing deal is imminent. That may point to a long game of hide-and-seek, punctuated by military action.`\
+https://nytimes.com/2025/07/02/us/politics/trump-nuclear-weapons-programs.html
+
+**Players' union boss says Sheffield Wednesday players can terminate contracts**\
+`The four-time English champions were meant to pay June’s wages on Monday.`\
+https://nytimes.com/athletic/6468961/2025/07/02/sheffield-wednesday-unpaid-wages-players-terminate-contracts/
+
 **What are the 10 best sports movies of the 21st century? (Plus: MoneyCall wants yours!)**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6468855/2025/07/02/best-sports-movies-21st-century-f1-brad-pitt-moneycall/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/magazine/book-club-books-ethics.html
 **Cameron Norrie rescues second-round comeback win to send Frances Tiafoe out of Wimbledon**\
 `Having created a huge opportunity for a two-set lead, Tiafoe became the latest seed to exit SW19.`\
 https://nytimes.com/athletic/6468697/2025/07/02/tennis-wimbledon-norrie-tiafoe-result-analysis/
-
-**Rachel Zegler Delights in an ‘Evita’ for the Masses**\
-`The actress is making her West End debut in Jamie Lloyd’s latest take on an Andrew Lloyd Webber musical.`\
-https://nytimes.com/2025/07/02/theater/evita-rachel-zegler-jamie-lloyd.html
-
-**Trump Announces Preliminary Trade Pact With Vietnam**\
-`The president said he had agreed to initial trade terms with Vietnam, the second country to strike a limited deal after Mr. Trump threatened steep tariffs.`\
-https://nytimes.com/2025/07/02/business/economy/trump-vietnam-trade-deal.html
 
