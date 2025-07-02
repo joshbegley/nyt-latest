@@ -1,3 +1,7 @@
+**Fireworks Warehouse Explodes in Northern California**\
+`The cause of the explosion in Esparto, Calif., remained unclear. There were no initial reports of injuries.`\
+https://nytimes.com/2025/07/02/us/fireworks-warehouse-explosion-esparto-california.html
+
 **The Reds beat the Red Sox in epic '75 Series, but NESN won reunion with thowback telecast**\
 `Even though they lost in seven, the Super Sox of '75 were a special team. NESN's effort succeeded in recapturing that.`\
 https://nytimes.com/athletic/6467813/2025/07/02/red-sox-reds-1975-world-series-50th-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467519/2025/07/02/chicago-cubs-guardians-trade-dea
 **Steve Soderstrom's big league career was brief; now he cherishes every moment of his son Tyler's**\
 `In 1996, Steve Soderstrom appeared in three games for the Giants. His experience would help his son Tyler reach the majors. `\
 https://nytimes.com/athletic/6467346/2025/07/02/tyler-soderstrom-steve-athletics-father-son/
-
-**As Blue Jays close in on first place, 3 fits from 2025 MLB trade deadline big board**\
-`As the trade deadline approaches, there's a clear trend when it comes to evaluating some of the team's most sensible targets.`\
-https://nytimes.com/athletic/6458833/2025/07/02/blue-jays-trade-deadline-big-board/
 
