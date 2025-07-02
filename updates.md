@@ -1,3 +1,7 @@
+**Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
+`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently – so when he does, Wolves fans listen`\
+https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
+
 **Heathrow Shutdown Caused by Problem Left Unfixed for Years, Report Says**\
 `The fire at an electrical substation that forced the London airport to close for more than 12 hours was caused by a short circuit in a part that hadn’t been properly maintained, investigators found.`\
 https://nytimes.com/2025/07/02/world/europe/london-heathrow-shutdown-transformer.html

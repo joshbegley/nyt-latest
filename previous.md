@@ -23,7 +23,7 @@ https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
 https://nytimes.com/athletic/6467092/2025/07/02/ian-poulter-luke-poulter-open-golf/
 
 **Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
-`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so when he does, Wolves fans listen`\
+`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently – so when he does, Wolves fans listen`\
 https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
 
 **Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
