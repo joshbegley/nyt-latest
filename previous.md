@@ -1,3 +1,15 @@
+**Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
+`Emily Olsen, The Athletic's head of global women's soccer, outlines our coverage plans for Euro 2025`\
+https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-euros-coverage/
+
+**Word of the Day: fawning**\
+`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/02/learning/word-of-the-day-fawning.html
+
+**Alexander-Arnold needed to deliver a big Real Madrid moment. Now he has**\
+`The former Liverpool defender had a quiet start with his new club but a crucial assist against Juventus proved his quality`\
+https://nytimes.com/athletic/6467659/2025/07/02/trent-alexander-arnold-real-madrid-juventus-assist/
+
 **What to Know: How Will the Next Dalai Lama Be Chosen?**\
 `The Tibetan spiritual leader may announce a succession plan intended to thwart Chinese interference.`\
 https://nytimes.com/2025/07/02/world/asia/next-dalai-lama-tibet.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit
 **How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
 `Tottenham have two elite central defenders but their injury records mean Frank needs to coax improvements from the entire defensive unit`\
 https://nytimes.com/athletic/6448292/2025/07/02/tottenham-defence-romero-thomas-frank/
-
-**Eberechi Eze has an Arsenal past. Would his future flourish under Mikel Arteta?**\
-`The Palace attacking midfielder is of interest to Arsenal - and he would provide something Arteta's team have been missing`\
-https://nytimes.com/athletic/6464962/2025/07/02/eberechi-eze-arsenal-crystal-palace/
-
-**Aston Villa PSR fears eased by selling women's team - but UEFA rules are a bigger battle**\
-`Profit from the women’s sale will be stripped out of UEFA's calculations as it refuses to allow clubs to record profits on intra-group deals`\
-https://nytimes.com/athletic/6464891/2025/07/02/aston-villa-womens-team-sale-psr-2/
-
-**Euro 2025 predictions: Will Spain win, which players to watch and could Iceland make the semis?**\
-`Our writers in Switzerland, the UK and the U.S. attempt to work out what will happen over the coming weeks`\
-https://nytimes.com/athletic/6458707/2025/07/02/womens-euro-2025-predictions/
 

@@ -1,3 +1,15 @@
+**Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
+`Emily Olsen, The Athletic's head of global women's soccer, outlines our coverage plans for Euro 2025`\
+https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-euros-coverage/
+
+**Word of the Day: fawning**\
+`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/02/learning/word-of-the-day-fawning.html
+
+**Alexander-Arnold needed to deliver a big Real Madrid moment. Now he has**\
+`The former Liverpool defender had a quiet start with his new club but a crucial assist against Juventus proved his quality`\
+https://nytimes.com/athletic/6467659/2025/07/02/trent-alexander-arnold-real-madrid-juventus-assist/
+
 **What to Know: How Will the Next Dalai Lama Be Chosen?**\
 `The Tibetan spiritual leader may announce a succession plan intended to thwart Chinese interference.`\
 https://nytimes.com/2025/07/02/world/asia/next-dalai-lama-tibet.html
