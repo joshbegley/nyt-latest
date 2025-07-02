@@ -1,3 +1,7 @@
+**Heathrow Shutdown Caused by Problem With Transformer, Report Says**\
+`The fire at an electrical substation that forced the London airport to close for more than 12 hours was caused by a short circuit in a part that hadn’t been properly maintained, investigators found.`\
+https://nytimes.com/2025/07/02/world/europe/london-heathrow-shutdown-transformer.html
+
 **Women's Euro 2025: How to watch the first round of group stage matches**\
 `The premier continental tournament in women's soccer is underway, and its field is decidedly open. Here's how to watch each team's opener.`\
 https://nytimes.com/athletic/6464766/2025/07/02/womens-euro-spain-england-germany-how-to-watch/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/02/nyregion/nyc-atm-thefts.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/02/crosswords/spelling-bee-forum.html
 
-**Lawmakers Hit the Road to Reach Washington for Vote on Trump Bill**\
+**Lawmakers Scramble to Reach Washington for Vote on Trump Bill**\
 `Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/learning/word-of-the-day-fawning.html
 **Alexander-Arnold needed to deliver a big Real Madrid moment. Now he has**\
 `The former Liverpool defender had a quiet start with his new club but a crucial assist against Juventus proved his quality`\
 https://nytimes.com/athletic/6467659/2025/07/02/trent-alexander-arnold-real-madrid-juventus-assist/
-
-**What to Know: How Will the Next Dalai Lama Be Chosen?**\
-`The Tibetan spiritual leader may announce a succession plan intended to thwart Chinese interference.`\
-https://nytimes.com/2025/07/02/world/asia/next-dalai-lama-tibet.html
 

@@ -1,3 +1,11 @@
+**Heathrow Shutdown Caused by Problem With Transformer, Report Says**\
+`The fire at an electrical substation that forced the London airport to close for more than 12 hours was caused by a short circuit in a part that hadn’t been properly maintained, investigators found.`\
+https://nytimes.com/2025/07/02/world/europe/london-heathrow-shutdown-transformer.html
+
+**Lawmakers Scramble to Reach Washington for Vote on Trump Bill**\
+`Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
+https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
+
 **Women's Euro 2025: How to watch the first round of group stage matches**\
 `The premier continental tournament in women's soccer is underway, and its field is decidedly open. Here's how to watch each team's opener.`\
 https://nytimes.com/athletic/6464766/2025/07/02/womens-euro-spain-england-germany-how-to-watch/
