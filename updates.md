@@ -1,3 +1,11 @@
+**Will the Bombing Stop Iran From Going Nuclear?**\
+`Iran just ended its cooperation with international inspectors, suggesting no post-bombing deal is imminent. That may point to a long game of hide-and-seek, punctuated by military action.`\
+https://nytimes.com/2025/07/02/us/politics/trump-nuclear-weapons-programs.html
+
+**Players' union boss says Sheffield Wednesday players can terminate contracts**\
+`The four-time English champions were meant to pay June’s wages on Monday.`\
+https://nytimes.com/athletic/6468961/2025/07/02/sheffield-wednesday-unpaid-wages-players-terminate-contracts/
+
 **What are the 10 best sports movies of the 21st century? (Plus: MoneyCall wants yours!)**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6468855/2025/07/02/best-sports-movies-21st-century-f1-brad-pitt-moneycall/
