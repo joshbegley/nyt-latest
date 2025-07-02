@@ -1,3 +1,15 @@
+**Cameron Norrie rescues second-round comeback win to send Frances Tiafoe out of Wimbledon**\
+`Having created a huge opportunity for a two-set lead, Tiafoe became the latest seed to exit SW19.`\
+https://nytimes.com/athletic/6468697/2025/07/02/tennis-wimbledon-norrie-tiafoe-result-analysis/
+
+**Rachel Zegler Delights in an ‘Evita’ for the Masses**\
+`The actress is making her West End debut in Jamie Lloyd’s latest take on an Andrew Lloyd Webber musical.`\
+https://nytimes.com/2025/07/02/theater/evita-rachel-zegler-jamie-lloyd.html
+
+**Trump Announces Preliminary Trade Pact With Vietnam**\
+`The president said he had agreed to initial trade terms with Vietnam, the second country to strike a limited deal after Mr. Trump threatened steep tariffs.`\
+https://nytimes.com/2025/07/02/business/economy/trump-vietnam-trade-deal.html
+
 **L.A. Legal Groups Sue to Stop ‘Unconstitutional’ Immigration Actions**\
 `A suit filed in Los Angeles highlights Trump administration enforcement tactics and accuses officers of racial profiling, brutality and holding detainees in “dungeonlike” facilities.`\
 https://nytimes.com/2025/07/02/us/politics/immigration-lawsuit-los-angeles.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/sean-combs-
 **Women’s Pro Baseball League to hold first-ever tryouts in August**\
 `More than 600 people registered to take part in the league's tryouts, which will happen in Washington, D.C., in August.`\
 https://nytimes.com/athletic/6468400/2025/07/02/womens-pro-baseball-league-tryouts/
-
-**Europe’s Heat Wave Persists, Moving Eastwards**\
-`The heat wave moved toward Germany after affecting southwestern Europe, including Spain and France, earlier this week.`\
-https://nytimes.com/video/world/europe/100000010263338/europes-heat-wave-persists-moving-eastwards.html
-
-**The anonymous jury was a diverse group of New Yorkers.**\
-`By Olivia Bensimon`\
-https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-anonymous-jury-was-a-diverse-group-of-new-yorkers
-
-**NHL players officially returning to Olympics in 2026 for first time since 2014**\
-`It's no surprise, but the formalized agreement was a landmark achievement after the NHL opted not to attend the past two Winter Games.`\
-https://nytimes.com/athletic/6468748/2025/07/02/nhl-olympic-hockey-2026/
 
