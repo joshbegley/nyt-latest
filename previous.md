@@ -1,3 +1,15 @@
+**Braves lose Spencer Schwellenbach to IL with fractured elbow**\
+`Schwellenbach injured the elbow in his last start. It isn't clear whether he will be able to return this season.`\
+https://nytimes.com/athletic/6469829/2025/07/02/spencer-schwellenbach-braves-fractured-elbow/
+
+**Illegal Border Crossings Plunge to Lowest Level in Decades**\
+`Border Patrol agents made just over 6,000 arrests in June, according to government figures, a sign that President Trump’s hard-line immigration policies are working to keep people out.`\
+https://nytimes.com/2025/07/02/us/politics/border-crossings-trump.html
+
+**Wimbledon day 3: Rain doesn't stop the upsets but world No. 1 Aryna Sabalenka holds firm**\
+`Just two top-10 players remain in the top half of the women's draw at Wimbledon.`\
+https://nytimes.com/athletic/6468440/2025/07/02/tennis-wimbledon-recap-day-3-results/
+
 **Republicans Want States to Cut Food Aid Errors. Their Bill Could Do the Opposite.**\
 `To secure a key vote, an “absurd policy” was created that winds up encouraging states to make more mistakes.`\
 https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/trump-policy-bill-conference-process.
 **Tax Cuts Now, Benefit Cuts Later: The Timeline in the Republican Megabill**\
 `Republicans deferred some of their most painful spending cuts until after the midterm elections.`\
 https://nytimes.com/2025/07/02/us/politics/tax-cuts-benefit-cuts.html
-
-**It Came From Outside Our Solar System, and It Might Be Big**\
-`A11pI3Z is only the third interstellar visitor to be discovered, and astronomers can’t say yet whether it is a comet or a rocky body.`\
-https://nytimes.com/2025/07/02/science/interstellar-object-a11pi3z.html
-
-**Teens Guilty of Bullying Could Lose Drivers’ Licenses Under Tennessee Law**\
-`Supporters hope the law will deter young people from bullying. Critics questioned whether it would actually make teenagers think twice about their behavior.`\
-https://nytimes.com/2025/07/02/us/tennessee-license-suspension-bullying-law.html
-
-**Combs Was Acquitted of the Most Serious Charges Against Him**\
-`Also, House Republicans were divided over the party’s big policy bill. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/07/02/briefing/sean-combs-verdict-trump-bill-house.html
 

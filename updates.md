@@ -1,3 +1,15 @@
+**Braves lose Spencer Schwellenbach to IL with fractured elbow**\
+`Schwellenbach injured the elbow in his last start. It isn't clear whether he will be able to return this season.`\
+https://nytimes.com/athletic/6469829/2025/07/02/spencer-schwellenbach-braves-fractured-elbow/
+
+**Illegal Border Crossings Plunge to Lowest Level in Decades**\
+`Border Patrol agents made just over 6,000 arrests in June, according to government figures, a sign that President Trump’s hard-line immigration policies are working to keep people out.`\
+https://nytimes.com/2025/07/02/us/politics/border-crossings-trump.html
+
+**Wimbledon day 3: Rain doesn't stop the upsets but world No. 1 Aryna Sabalenka holds firm**\
+`Just two top-10 players remain in the top half of the women's draw at Wimbledon.`\
+https://nytimes.com/athletic/6468440/2025/07/02/tennis-wimbledon-recap-day-3-results/
+
 **Republicans Want States to Cut Food Aid Errors. Their Bill Could Do the Opposite.**\
 `To secure a key vote, an “absurd policy” was created that winds up encouraging states to make more mistakes.`\
 https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
