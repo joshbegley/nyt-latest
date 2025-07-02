@@ -1,3 +1,7 @@
+**Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
+`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so Wolves fans listen`\
+https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
+
 **Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
 `Emily Olsen, The Athletic's head of global women's soccer, outlines our coverage plans for Euro 2025`\
 https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-euros-coverage/
