@@ -12,7 +12,7 @@ https://nytimes.com/2025/07/01/crosswords/daily-puzzle-2025-07-02.html
 
 **Mirtle: Why was free agency such a dud this year? What does it mean for next season?**\
 `Despite a rising cap, NHL teams didn't splash the kind of cash we're used to seeing on July 1.`\
-https://nytimes.com/athletic/6467266/2025/07/01/nhl-free-agency-gms-2025/
+https://nytimes.com/athletic/6467266/2025/07/01/nhl-free-agency-contract-analysis-2025/
 
 **Diamondbacks ban 'Home Run Thief' fan for 2025 after latest interference incident**\
 `Monday's incident brought a series of recent interference moments from the fan into a larger spotlight and prompted a season-long ban.`\

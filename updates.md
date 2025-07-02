@@ -1,3 +1,7 @@
+**Mirtle: Why was free agency such a dud this year? What does it mean for next season?**\
+`Despite a rising cap, NHL teams didn't splash the kind of cash we're used to seeing on July 1.`\
+https://nytimes.com/athletic/6467266/2025/07/01/nhl-free-agency-contract-analysis-2025/
+
 **Fever beat Lynx without Caitlin Clark to take WNBA Commissioner's Cup**\
 `Natasha Howard leads way as Indiana hands Minnesota first home loss of season, wins $500,000 pot.`\
 https://nytimes.com/athletic/6467622/2025/07/01/wnba-commissioners-cup-fever-lynx/
