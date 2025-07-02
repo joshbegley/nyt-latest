@@ -1,3 +1,15 @@
+**Lowetide: Ranking the 10 best free-agent signings in Oilers history**\
+`Oilers fans would be delighted if Andrew Mangiapane joins the list of top free-agent signings in the years to come.`\
+https://nytimes.com/athletic/6464440/2025/07/02/edmonton-oilers-free-agents-history/
+
+**The Serial Killer Expert Who Taught the Idaho Killer Shares Her Story**\
+`Dr. Katherine Ramsland was Bryan Kohberger’s professor before he moved to the Pacific Northwest, where he is expected to plead guilty to killing four University of Idaho students.`\
+https://nytimes.com/2025/07/02/us/kohberger-serial-killer-teacher-ramsland.html
+
+**Sean Combs was supported in court by his family (and Ye).**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/sean-combs-was-supported-in-court-by-his-family-and-ye
+
 **Women’s Pro Baseball League to hold first-ever tryouts in August**\
 `More than 600 people registered to take part in the league's tryouts, which will happen in Washington, D.C., in August.`\
 https://nytimes.com/athletic/6468400/2025/07/02/womens-pro-baseball-league-tryouts/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/02/science/ai-psychology-mind.html
 **Go Forth and Fourth**\
 `Recipes for a delicious July 4 weekend: grilled tahini-honey chicken thighs; succotash with sausage and shrimp; buttermilk chess pie.`\
 https://nytimes.com/2025/07/02/dining/grilled-tahini-honey-chicken-and-more-july-4-recipes.html
-
-**How could teams trade for LeBron James? A look at Cavs, Warriors, Mavs and more possibilities**\
-`At 40 years old, LeBron James wants to win, and win now. If he and the Lakers agree to part ways, these teams could make sense.`\
-https://nytimes.com/athletic/6468448/2025/07/02/lebron-james-trade-scenarios-nba-player-option/
-
-**Gladbach midfielder Neuhaus fined, demoted to U23s after 'unacceptable' video**\
-`Borussia Monchengladbach said Florian Neuhaus has been issued a "heavy fine" and will train with the Under-23s for four weeks.`\
-https://nytimes.com/athletic/6468376/2025/07/02/gladbach-florian-neuhaus-video-fined-demoted/
-
-**Spurs announce return of 'Bill Nicholson Gates' to stadium**\
-`The gates were a feature of Spurs' former home, White Hart Lane.`\
-https://nytimes.com/athletic/6468655/2025/07/02/tottenham-bill-nicholson-gates/
 
