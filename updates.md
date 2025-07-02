@@ -1,3 +1,7 @@
+**'He wants to learn from everyone': Why Liverpool hired Van Bronckhorst**\
+`Liverpool's new assistant coach has dug-out pedigree in his own right but is still eager to advance his football knowledge`\
+https://nytimes.com/athletic/6445026/2025/07/02/giovanni-van-bronckhorst-liverpool-coach-profile/
+
 **Chase Elliott on his consistent season and staying true to himself: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/6461462/2025/07/02/chase-elliott-nascar-atlanta-win-12-questions/
