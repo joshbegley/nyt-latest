@@ -1,3 +1,11 @@
+**Why the Golden Knights continue to be the NHL's ultimate 'home run' team**\
+`“We never want to rebuild,” owner Bill Foley said of the franchise's aggressive mindset in roster building.`\
+https://nytimes.com/athletic/6469332/2025/07/02/golden-knights-mitch-marner-nhl-bill-foley/
+
+**Experts Say Judge Has Wide Latitude in Sentencing Sean Combs**\
+`By Daniel Victor`\
+https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy-sentencing-prediction.html
+
 **What’s in Our Queue? ‘Face in the Crowd’ and More**\
 `Text by Shawn McCreesh`\
 https://nytimes.com/card/2025/07/02/arts/editors-recommendations-faceinthecrowd

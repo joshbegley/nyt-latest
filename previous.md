@@ -1,3 +1,7 @@
+**Why the Golden Knights continue to be the NHL's ultimate 'home run' team**\
+`“We never want to rebuild,” owner Bill Foley said of the franchise's aggressive mindset in roster building.`\
+https://nytimes.com/athletic/6469332/2025/07/02/golden-knights-mitch-marner-nhl-bill-foley/
+
 **What’s in Our Queue? ‘Face in the Crowd’ and More**\
 `Text by Shawn McCreesh`\
 https://nytimes.com/card/2025/07/02/arts/editors-recommendations-faceinthecrowd
@@ -14,9 +18,9 @@ https://nytimes.com/athletic/6469610/2025/07/02/tennis-wimbledon-jasmine-paolini
 `Skenes has been the best Pirate on the field and might be destined to maintain it when he's done playing. `\
 https://nytimes.com/athletic/6469452/2025/07/02/pirates-paul-skenes-cutting-grass/
 
-**Sentencing experts say judge has wide latitude in sentencing.**\
+**Experts Say Judge Has Wide Latitude in Sentencing Sean Combs**\
 `By Daniel Victor`\
-https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/sentencing-experts-say-judge-has-wide-latitude-in-sentencing
+https://nytimes.com/2025/07/02/arts/music/sean-combs-diddy-sentencing-prediction.html
 
 **How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\
 `Turner agreeing to sign with the Bucks and then Milwaukee waiving Lillard stunned the NBA. Here's how the Bucks made it work financially.`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/movies/readers-movies-21st-century.html
 **Notebook: Claude Giroux's 'difficult' negotiations, Shane Pinto contract projections, more**\
 `For the veteran Giroux, signing a one-year contract extension with Ottawa "was definitely a relief."`\
 https://nytimes.com/athletic/6466933/2025/07/02/senators-nhl-free-agency-claude-giroux-shane-pinto/
-
-**England and Ben Stokes are changing the cricket toss**\
-`Win the toss and bat first was always the conventional wisdom in Test cricket - England are taking a very different approach`\
-https://nytimes.com/athletic/6469476/2025/07/02/england-ben-stokes-india-cricket-toss/
 
