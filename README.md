@@ -1,4 +1,4 @@
-**Israeli Officials Express Optimism on Gaza Cease-Fire Before Netanyahu Meeting With Trump**\
+**Israeli Officials Express Optimism on Gaza Cease-Fire as Netanyahu Prepares to Meet With Trump**\
 `It was still unclear whether the latest U.S.-backed effort can overcome the most entrenched sticking point between Israel and Hamas.`\
 https://nytimes.com/2025/07/02/world/middleeast/israel-gaza-cease-fire-trump.html
 
