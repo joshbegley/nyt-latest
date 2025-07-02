@@ -1,3 +1,7 @@
+**Republicans Want States to Cut Food Aid Errors. Their Bill Could Do the Opposite.**\
+`To secure a key vote, an “absurd policy” was created that winds up encouraging states to make more mistakes.`\
+https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
+
 **Deandre Ayton agrees to two-year deal with Lakers: Sources**\
 `The Lakers biggest question entering the summer — who will play center? — has now been answered. `\
 https://nytimes.com/athletic/6464043/2025/07/02/lakers-center-nba-deandre-ayton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/us/tennessee-license-suspension-bullying-law.html
 **Combs Was Acquitted of the Most Serious Charges Against Him**\
 `Also, House Republicans were divided over the party’s big policy bill. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/02/briefing/sean-combs-verdict-trump-bill-house.html
-
-**The $3 Trillion Question at the Capitol: Will Conservatives Cave (Again)?**\
-`Fiscal hawks have repeatedly threatened to bring down their party’s agenda out of debt fears, only to back down after pressure from party leaders and President Trump.`\
-https://nytimes.com/2025/07/02/us/politics/trump-conservatives-bill.html
 

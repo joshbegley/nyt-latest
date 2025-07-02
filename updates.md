@@ -1,3 +1,7 @@
+**Republicans Want States to Cut Food Aid Errors. Their Bill Could Do the Opposite.**\
+`To secure a key vote, an “absurd policy” was created that winds up encouraging states to make more mistakes.`\
+https://nytimes.com/2025/07/02/upshot/republicans-food-aid-alaska.html
+
 **Deandre Ayton agrees to two-year deal with Lakers: Sources**\
 `The Lakers biggest question entering the summer — who will play center? — has now been answered. `\
 https://nytimes.com/athletic/6464043/2025/07/02/lakers-center-nba-deandre-ayton/
