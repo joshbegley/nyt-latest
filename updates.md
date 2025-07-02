@@ -1,3 +1,7 @@
+**Watching the Poulters turn rivals for a day with British Open qualification on the line**\
+`We spent a day watching father and son Ian and Luke Poulter try to beat each other to secure a place at Portrush`\
+https://nytimes.com/athletic/6467092/2025/07/02/ian-poulter-luke-poulter-open-golf/
+
 **Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
 `In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so Wolves fans listen`\
 https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
