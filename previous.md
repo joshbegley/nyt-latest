@@ -1,3 +1,7 @@
+**How to watch Mexico vs. Honduras: Are the defending Gold Cup champs on upset alert?**\
+`Mexico is widely projected to advance to the final, but this Honduras side won't make it easy on El Tri in the Gold Cup semifinal.`\
+https://nytimes.com/athletic/6467392/2025/07/02/mexico-honduras-2025-gold-cup-how-to-watch/
+
 **How to watch the USMNT vs. Guatemala: Who has the momentum in the Gold Cup semis?**\
 `The U.S. enters as a heavy favorite to reach the Concacaf Gold Cup Final, but the margins are thinner than the line suggests. `\
 https://nytimes.com/athletic/6466980/2025/07/02/usmnt-guatemala-2025-gold-cup-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analys
 **Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
 `Emily Olsen, The Athletic's head of global women's soccer, outlines our coverage plans for Euro 2025`\
 https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-euros-coverage/
-
-**Word of the Day: fawning**\
-`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/02/learning/word-of-the-day-fawning.html
 

@@ -1,3 +1,7 @@
+**How to watch Mexico vs. Honduras: Are the defending Gold Cup champs on upset alert?**\
+`Mexico is widely projected to advance to the final, but this Honduras side won't make it easy on El Tri in the Gold Cup semifinal.`\
+https://nytimes.com/athletic/6467392/2025/07/02/mexico-honduras-2025-gold-cup-how-to-watch/
+
 **How to watch the USMNT vs. Guatemala: Who has the momentum in the Gold Cup semis?**\
 `The U.S. enters as a heavy favorite to reach the Concacaf Gold Cup Final, but the margins are thinner than the line suggests. `\
 https://nytimes.com/athletic/6466980/2025/07/02/usmnt-guatemala-2025-gold-cup-how-to-watch/
