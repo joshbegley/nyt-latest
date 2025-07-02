@@ -1,3 +1,15 @@
+**Women's Euro 2025: How to watch the first round of group stage matches**\
+`The premier continental tournament in women's soccer is underway, and its field is decidedly open. Here's how to watch each team's opener.`\
+https://nytimes.com/athletic/6464766/2025/07/02/womens-euro-spain-england-germany-how-to-watch/
+
+**The Burglars Who Snatch A.T.M.s Instead of Robbing Banks**\
+`Common tools and a little muscle have fueled a crime wave that may have netted one burglary crew hundreds of thousands of dollars in a matter of months.`\
+https://nytimes.com/2025/07/02/nyregion/nyc-atm-thefts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/02/crosswords/spelling-bee-forum.html
+
 **Lawmakers Hit the Road to Reach Washington for Vote on Trump Bill**\
 `Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6467659/2025/07/02/trent-alexander-arnold-real-madr
 **What to Know: How Will the Next Dalai Lama Be Chosen?**\
 `The Tibetan spiritual leader may announce a succession plan intended to thwart Chinese interference.`\
 https://nytimes.com/2025/07/02/world/asia/next-dalai-lama-tibet.html
-
-**Dalai Lama Tightens Grip on Succession in the Face of Chinese Pressure**\
-`The aging Tibetan spiritual leader is looking to prevent Beijing from taking advantage of a power vacuum that might arise after his death.`\
-https://nytimes.com/2025/07/02/world/asia/dalai-lama-successor-tibet-china.html
-
-**The New York Times in Print for Wednesday, July 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times
-
-**2025 Women's Euros odds: Spain favoured ahead of defending champs England**\
-`After winning the World Cup two years ago, Spain are favoured to win the Euros this summer. Defending champs England are second favourites.`\
-https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-england/
 
