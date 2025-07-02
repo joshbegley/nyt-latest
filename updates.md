@@ -1,3 +1,11 @@
+**How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\
+`Turner agreeing to sign with the Bucks and then Milwaukee waiving Lillard stunned the NBA. Here's how the Bucks made it work financially.`\
+https://nytimes.com/athletic/6467602/2025/07/02/myles-turner-damian-lillard-bucks-salary-cap-explained/
+
+**Amid Warnings of Iranian Terrorism, a History of Failed ‘C Team’ Plots**\
+`For high-stakes plots like an effort to kill President Trump, Iran has turned to common criminals, raising questions about its capabilities inside the U.S.`\
+https://nytimes.com/2025/07/02/us/politics/iran-threat-sleeper-cells.html
+
 **The Best Movies of the 21st Century: Readers Choose Their Top Movies**\
 `The people have spoken. Here are the movies they voted for.`\
 https://nytimes.com/interactive/2025/movies/readers-movies-21st-century.html

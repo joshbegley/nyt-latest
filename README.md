@@ -1,3 +1,7 @@
+**Sentencing experts say judge has wide latitude in sentencing.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/sentencing-experts-say-judge-has-wide-latitude-in-sentencing
+
 **How can Bucks afford Myles Turner? The salary cap mechanics of waiving Damian Lillard**\
 `Turner agreeing to sign with the Bucks and then Milwaukee waiving Lillard stunned the NBA. Here's how the Bucks made it work financially.`\
 https://nytimes.com/athletic/6467602/2025/07/02/myles-turner-damian-lillard-bucks-salary-cap-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/health/ai-chatgpt-research-papers.html
 **Robert Holton Dies at 81; His Potent Chemo Drug Saved Lives — and Trees**\
 `His method of producing the drug Taxol, now used widely to treat various cancers, eliminated the need to source its active compound from endangered trees.`\
 https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html
-
-**Mamdani, Trump and the End of the Old Politics**\
-`The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
-https://nytimes.com/video/opinion/100000010254574/mamdani-trump-and-the-end-of-the-old-politics.html
 
