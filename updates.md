@@ -1,3 +1,7 @@
+**The Windup: Milestone for Kershaw tonight?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6467995/2025/07/02/clayton-kershaw-strikeouts-3000-the-windup/
+
 **Wisconsin Supreme Court Strikes Down 1849 Abortion Ban**\
 `After the U.S. Supreme Court overturned Roe v. Wade in 2022, Republican prosecutors in Wisconsin had said they intended to enforce the old law.`\
 https://nytimes.com/2025/07/02/us/wisconsin-abortion-1849-supreme-court.html
