@@ -1,3 +1,19 @@
+**Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
+`The music mogul was convicted of arranging for the travel of male escorts across state lines but acquitted of sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2025/07/02/arts/music/combs-acquitted-sex-trafficking-sean-diddy.html
+
+**Wiegman: England have 'protocols in place' to deal with Euro 2025 heat**\
+`Wiegman says she does not envision the heatwave in Switzerland impacting her side's 2025 European Championship preparations.`\
+https://nytimes.com/athletic/6469251/2025/07/02/sarina-wiegman-england-euros-switzerland-heat/
+
+**Mamdani Says Trump Is Attacking Him to Divert Focus From G.O.P. Agenda**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, has been targeted by the president and other Republicans since his success in the primary.`\
+https://nytimes.com/2025/07/02/nyregion/mamdani-trump.html
+
+**Red Wings sign Mason Appleton to 2-year contract worth $2.9 million per season**\
+`Detroit has been looking to add size and hardness to its lineup. Appleton will help with that.`\
+https://nytimes.com/athletic/6469688/2025/07/02/red-wings-mason-appleton-contract-nhl/
+
 **What Has Trump Said About Undocumented Farmers and Hotel Workers?**\
 `President Trump has floated ideas about helping certain industries that rely on immigrant labor, but the White House has yet to release a concrete plan about what’s in store.`\
 https://nytimes.com/2025/07/02/us/politics/trump-undocumented-immigrants-farmers-hotels.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/02/opinion/zohran-mamdani-democrats-trump.html
 **With Trump’s Policy Bill Teetering, Johnson Is in a Familiar Pickle**\
 `The speaker’s struggle to bring his party’s sprawling domestic policy bill in for a landing was just the latest in his string of near-death legislative experiences.`\
 https://nytimes.com/2025/07/02/us/politics/johnson-trump-policy-bill.html
-
-**Dalai Lama Announces He Will Reincarnate**\
-`The Dalai Lama, the spiritual head of Tibetan Buddhists, announced that the lineage would go on despite Chinese efforts to control the institution.`\
-https://nytimes.com/video/world/asia/100000010263725/dalai-lama-succession-china.html
-
-**Mike Brown has faced pressure before, but this time might be different. Welcome to the Knicks**\
-`The Knicks feel like they've got the right person to take them to the NBA Finals and beyond. Can Brown get them there? `\
-https://nytimes.com/athletic/6469405/2025/07/02/knicks-mike-brown-head-coach-pressure-nba/
-
-**Why the Golden Knights continue to be the NHL's ultimate 'home run' team**\
-`“We never want to rebuild,” owner Bill Foley said of the franchise's aggressive mindset in roster building.`\
-https://nytimes.com/athletic/6469332/2025/07/02/golden-knights-mitch-marner-nhl-bill-foley/
-
-**What’s in Our Queue? ‘Face in the Crowd’ and More**\
-`Text by Shawn McCreesh`\
-https://nytimes.com/card/2025/07/02/arts/editors-recommendations-faceinthecrowd
 
