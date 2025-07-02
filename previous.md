@@ -1,3 +1,11 @@
+**Mamdani, Trump and the End of the Old Politics**\
+`The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
+https://nytimes.com/video/opinion/100000010254574/mamdani-trump-and-the-end-of-the-old-politics.html
+
+**In Argentina, AI-Fueled Smear Highlights Milei’s War on Press**\
+`Journalists face an increasing number of attacks from Argentina’s highest office, raising concerns about the undermining of press freedom.`\
+https://nytimes.com/2025/07/02/world/americas/argentina-president-milei-press-attacks.html
+
 **An ‘Immoral and Cruel’ Republican Bill**\
 `Readers criticize several aspects of the Trump policy bill. Also: In praise of U.S.A.I.D.`\
 https://nytimes.com/2025/07/02/opinion/trump-republican-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html
 **What Is the Mann Act?**\
 `The law, passed in 1910, prohibits the interstate or foreign transportation of an individual for sex. It has at times been used as a tool for political persecution.`\
 https://nytimes.com/2025/07/02/arts/music/mann-act-sean-combs-diddy-charges.html
-
-**The Tragedy of Halting Weapons to Ukraine**\
-`Despite everything, it is still possible to achieve a just end to the war in Ukraine.`\
-https://nytimes.com/2025/07/02/opinion/trump-ukraine-weapons.html
-
-**Trump Asks Justices to Let Him Fire Consumer Product Safety Regulators**\
-`In an interim ruling in a similar case in May, the Supreme Court ruled that the president court terminate leaders of two other independent agencies.`\
-https://nytimes.com/2025/07/02/us/politics/trump-consumer-product-safety.html
 
