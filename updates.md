@@ -1,3 +1,11 @@
+**The Combs verdict lets down advocates for sex-abuse victims.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-combs-verdict-lets-down-advocates-for-sex-abuse-victims
+
+**A ‘Nepo Baby’ Sings Sharply About Fame**\
+`Romy Mars, the daughter of Sofia Coppola, the filmaker, and Thomas Mars, the musician, is onto something with “A-Lister,” according to our critic.`\
+https://nytimes.com/video/podcasts/100000010260642/a-nepo-baby-sings-sharply-about-fame.html
+
 **Review: Jealousy Sets a Dance in Motion at American Ballet Theater**\
 `Christopher Wheeldon’s lengthy “The Winter’s Tale,” a ballet based on the Shakespeare play, is filled with bad behavior but also love and forgiveness.`\
 https://nytimes.com/2025/07/02/arts/dance/winters-tale-ballet-wheedon.html
