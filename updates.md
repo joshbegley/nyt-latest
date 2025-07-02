@@ -1,3 +1,7 @@
+**Wisconsin Supreme Court Strikes Down 1849 Abortion Ban**\
+`After the U.S. Supreme Court overturned Roe v. Wade in 2022, Republican prosecutors in Wisconsin had said they intended to enforce the old law.`\
+https://nytimes.com/2025/07/02/us/wisconsin-abortion-1849-supreme-court.html
+
 **Leeds in talks with Bremen over Wober sale**\
 `Sources at Elland Road are optimistic an agreement will be reached.`\
 https://nytimes.com/athletic/6468574/2025/07/02/leeds-news-max-wober-bremen/
