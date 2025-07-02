@@ -1,3 +1,11 @@
+**What Is the Mann Act?**\
+`The law, passed in 1910, prohibits the interstate or foreign transportation of an individual for sex. It has at times been used as a tool for political persecution.`\
+https://nytimes.com/2025/07/02/arts/music/mann-act-sean-combs-diddy-charges.html
+
+**The Tragedy of Halting Weapons to Ukraine**\
+`Despite everything, it is still possible to achieve a just end to the war in Ukraine.`\
+https://nytimes.com/2025/07/02/opinion/trump-ukraine-weapons.html
+
 **Trump Asks Justices to Let Him Fire Consumer Product Safety Regulators**\
 `In an interim ruling in a similar case in May, the Supreme Court ruled that the president court terminate leaders of two other independent agencies.`\
 https://nytimes.com/2025/07/02/us/politics/trump-consumer-product-safety.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/climate/methane-sat-lost.html
 **The Combs verdict lets down advocates for sex-abuse victims.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-combs-verdict-lets-down-advocates-for-sex-abuse-victims
-
-**Tiny Love Stories: ‘Being a “Throuple” Felt Unthinkable’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/07/02/style/tiny-modern-love-stories-being-a-throuple-felt-unthinkable.html
-
-**A ‘Nepo Baby’ Sings Sharply About Fame**\
-`Romy Mars, the daughter of Sofia Coppola, the filmaker, and Thomas Mars, the musician, is onto something with “A-Lister,” according to our critic.`\
-https://nytimes.com/video/podcasts/100000010260642/a-nepo-baby-sings-sharply-about-fame.html
 
