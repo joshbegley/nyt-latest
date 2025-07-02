@@ -1,3 +1,7 @@
+**An ‘Immoral and Cruel’ Republican Bill**\
+`Readers criticize several aspects of the Trump policy bill. Also: In praise of U.S.A.I.D.`\
+https://nytimes.com/2025/07/02/opinion/trump-republican-bill.html
+
 **Top F.D.A. Official Overrode Scientists on Covid Shots**\
 `Records show that a top U.S. regulator rejected the recommendations of agency experts and limited the use of Covid vaccines.`\
 https://nytimes.com/2025/07/02/health/fda-covid-vaccines.html

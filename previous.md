@@ -1,3 +1,7 @@
+**An ‘Immoral and Cruel’ Republican Bill**\
+`Readers criticize several aspects of the Trump policy bill. Also: In praise of U.S.A.I.D.`\
+https://nytimes.com/2025/07/02/opinion/trump-republican-bill.html
+
 **Top F.D.A. Official Overrode Scientists on Covid Shots**\
 `Records show that a top U.S. regulator rejected the recommendations of agency experts and limited the use of Covid vaccines.`\
 https://nytimes.com/2025/07/02/health/fda-covid-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/opinion/trump-ukraine-weapons.html
 **Trump Asks Justices to Let Him Fire Consumer Product Safety Regulators**\
 `In an interim ruling in a similar case in May, the Supreme Court ruled that the president court terminate leaders of two other independent agencies.`\
 https://nytimes.com/2025/07/02/us/politics/trump-consumer-product-safety.html
-
-**Johnson Faces G.O.P. Resistance to Quick Final Vote on Trump Policy Bill**\
-`Several conservative House Republicans expressed grave reservations about changes the Senate made to the party’s major policy bill, leaving its fate and the timing of any final vote uncertain.`\
-https://nytimes.com/2025/07/02/us/politics/trump-bill-johnson-house-vote.html
 
