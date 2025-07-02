@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6466289/2025/07/02/ella-toone-midge-purce-togethxr-
 `The Vikings offense looks formidable on paper, but its success will likely come down to the play of quarterback J.J. McCarthy.`\
 https://nytimes.com/athletic/6457138/2025/07/02/minnesota-vikings-offense-jefferson-mccarthy/
 
-**Who Trump’s Bill Will Help and Hurt, and a ‘60 Minutes’ Settlement**\
+**The Winners and Losers of Trump’s Big Bill, and a ‘60 Minutes’ Settlement**\
 `Plus, the science of staying cool.`\
 https://nytimes.com/2025/07/02/podcasts/the-headlines/republican-bill-60-minutes-settlement.html
 
