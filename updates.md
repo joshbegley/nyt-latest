@@ -1,3 +1,11 @@
+**Gladbach midfielder Neuhaus fined, demoted to U23s after 'unacceptable' video**\
+`Borussia Monchengladbach said Florian Neuhaus has been issued a "heavy fine" and will train with the Under-23s for four weeks.`\
+https://nytimes.com/athletic/6468376/2025/07/02/gladbach-florian-neuhaus-video-fined-demoted/
+
+**Spurs announce return of 'Bill Nicholson Gates' to stadium**\
+`The gates were a feature of Spurs' former home, White Hart Lane.`\
+https://nytimes.com/athletic/6468655/2025/07/02/tottenham-bill-nicholson-gates/
+
 **Transfers TLDR: Joao Pedro to Chelsea – all you need to know**\
 `Chelsea have signed forward Joao Pedro from Brighton – here we break down the deal`\
 https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
