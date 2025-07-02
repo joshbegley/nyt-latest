@@ -1,9 +1,13 @@
+**Emma Raducanu and Marketa Vondrousova's Wimbledon duel of champions and cautionary tales**\
+`In a parallel universe, this matchup is between two top-10 players. In this one, it is a duel of two cautionary tales about tennis success.`\
+https://nytimes.com/athletic/6469310/2025/07/02/tennis-wimbledon-raducanu-vondrousova-grand-slam-champions/
+
 **Dodgers subject of civil rights complaint filed by conservative legal group**\
 `The complaint was filed weeks after the Dodgers said they denied federal immigration authorities access to Dodger Stadium parking lots.`\
 https://nytimes.com/athletic/6469611/2025/07/02/dodgers-dei-federal-civil-rights-complaint-america-first-legal/
 
 **Judge Rejects Trump’s Attempt to Stop Asylum Claims**\
-`The judge wrote that neither the Constitution nor federal immigration law gave the president the authority to “to adopt an alternative immigration system.”`\
+`The judge wrote that neither the Constitution nor federal immigration law gave the president the authority to “adopt an alternative immigration system.”`\
 https://nytimes.com/2025/07/02/us/politics/asylum-trump.html
 
 **10 Ways of Making Sense of Zohran Mamdani’s Win**\
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/07/02/arts/editors-recommendations-faceinthecrowd
 **Trump Meets With House Republican Holdouts to Press for Policy Bill**\
 `President Trump met with Republican lawmakers in hopes of bridging deep divisions over the legislation that would enact his domestic agenda.`\
 https://nytimes.com/2025/07/02/us/politics/trump-house-republican-holdouts.html
-
-**Jasmine Paolini, a Wimbledon finalist in 2024, goes out in second round**\
-`Paolini's exit means that the No. 2, No. 3, No. 4 and No. 5 women's seeds are all out in the first week.`\
-https://nytimes.com/athletic/6469610/2025/07/02/tennis-wimbledon-jasmine-paolini-rakhimova-result-analysis/
 
