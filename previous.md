@@ -1,3 +1,11 @@
+**Going to Be Outside on July 4? Here’s How to Plan Around the Weather.**\
+`“Ideal” conditions are expected in the Northeast, but Florida is warily eyeing a potential tropical system.`\
+https://nytimes.com/2025/07/02/weather/july-fourth-travel-forecast-us.html
+
+**The New York Times International Edition in Print for Thursday, July 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/02/todays-new-york-times-international-edition
+
 **Kim Jong-un Pays Tribute to North Korean Troops Killed in Ukraine**\
 `Kim Jong-un highlighted Pyongyang’s support for Russia’s war in Ukraine by showing his people, for the first time, images of North Korean soldiers fighting alongside Russian troops.`\
 https://nytimes.com/video/world/asia/100000010262929/north-korea-troops-kim-jong-un.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/us/idaho-murders-kohberger-plea.html
 **We Both Served as Treasury Secretary. We Know This Bill Is Dangerous.**\
 `Fighting the Fed, piling on tax cuts and pursuing a trade war will set American on an unsustainable path.`\
 https://nytimes.com/2025/07/02/opinion/republican-bill-fed-treasury-secretary.html
-
-**How Immigration Could Muddy the Jobs Numbers**\
-`Job growth is expected to fall this year, adding to pressure on the Federal Reserve to cut interest rates. But the slowdown might reflect a smaller labor force, not declining demand from employers.`\
-https://nytimes.com/2025/07/02/business/jobs-numbers-immigration-fed.html
-
-**This Supreme Court Decision Is a Backdoor Attack on Protecting Our Rights**\
-`The Planned Parenthood case was about much more than abortion.`\
-https://nytimes.com/2025/07/02/opinion/planned-parenthood-supreme-court-decision.html
 

@@ -1,3 +1,11 @@
+**Going to Be Outside on July 4? Here’s How to Plan Around the Weather.**\
+`“Ideal” conditions are expected in the Northeast, but Florida is warily eyeing a potential tropical system.`\
+https://nytimes.com/2025/07/02/weather/july-fourth-travel-forecast-us.html
+
+**The New York Times International Edition in Print for Thursday, July 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/02/todays-new-york-times-international-edition
+
 **Kim Jong-un Pays Tribute to North Korean Troops Killed in Ukraine**\
 `Kim Jong-un highlighted Pyongyang’s support for Russia’s war in Ukraine by showing his people, for the first time, images of North Korean soldiers fighting alongside Russian troops.`\
 https://nytimes.com/video/world/asia/100000010262929/north-korea-troops-kim-jong-un.html
