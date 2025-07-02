@@ -1,3 +1,7 @@
+**HFO Wisconsin Supreme Court Upholds/Strikes Down 1849 Abortion Ban**\
+`After the U.S. Supreme Court overturned Roe v. Wade in 2022, Republican prosecutors in Wisconsin said they intended to enforce the old law.`\
+https://nytimes.com/2025/07/02/us/wisconsin-abortion-1849-supreme-court.html
+
 **Leeds in talks with Bremen over Wober sale**\
 `Sources at Elland Road are optimistic an agreement will be reached.`\
 https://nytimes.com/athletic/6468574/2025/07/02/leeds-news-max-wober-bremen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-vil
 **Tesla Sales Fall as Elon Musk Focuses on Self-Driving Cars**\
 `The company has devoted resources to autonomous driving rather than developing new models to attract car buyers.`\
 https://nytimes.com/2025/07/02/business/tesla-sales-elon-musk.html
-
-**Non-negotiables vs obvious talent: The pros and cons of selling Joao Pedro**\
-`The Brazilian has become the latest Brighton employee to join Chelsea. But is the feeling different this time?`\
-https://nytimes.com/athletic/6462044/2025/07/02/brighton-joao-pedro-hurzeler/
 
