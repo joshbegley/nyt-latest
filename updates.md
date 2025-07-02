@@ -1,3 +1,7 @@
+**454 Hints That a Chatbot Wrote Part of a Biomedical Researcher’s Paper**\
+`Scientists show that the frequency of a set of words seems to have increased in published study abstracts since ChatGPT was released into the world.`\
+https://nytimes.com/2025/07/02/health/ai-chatgpt-research-papers.html
+
 **Robert Holton Dies at 81; His Potent Chemo Drug Saved Lives — and Trees**\
 `His method of producing the drug Taxol, now used widely to treat various cancers, eliminated the need to source its active compound from endangered trees.`\
 https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html

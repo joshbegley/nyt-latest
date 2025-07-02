@@ -1,3 +1,7 @@
+**454 Hints That a Chatbot Wrote Part of a Biomedical Researcher’s Paper**\
+`Scientists show that the frequency of a set of words seems to have increased in published study abstracts since ChatGPT was released into the world.`\
+https://nytimes.com/2025/07/02/health/ai-chatgpt-research-papers.html
+
 **Robert Holton Dies at 81; His Potent Chemo Drug Saved Lives — and Trees**\
 `His method of producing the drug Taxol, now used widely to treat various cancers, eliminated the need to source its active compound from endangered trees.`\
 https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468891/2025/07/02/bruins-offense-free-agent-additi
 **Bills rookie Maxwell Hairston accused of sexual assault in lawsuit**\
 `The alleged incident occurred when Hairston was a 17-year-old freshman at the University of Kentucky.`\
 https://nytimes.com/athletic/6468811/2025/07/02/maxwell-hairston-lawsuit-sexual-assault-bills/
-
-**Justice Dept. Weighs Seeking Criminal Charges as It Presses States for Election Data**\
-`Such a path could drastically raise the stakes for federal investigations of state or county officials, bringing the department and the threat of criminalization into the election system.`\
-https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html
 
