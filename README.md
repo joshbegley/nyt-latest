@@ -1,3 +1,7 @@
+**Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
+`In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently - so Wolves fans listen`\
+https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
+
 **Welcome to The Athletic’s Euro 2025 coverage: Insight, analysis and a new signing**\
 `Emily Olsen, The Athletic's head of global women's soccer, outlines our coverage plans for Euro 2025`\
 https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-euros-coverage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467893/2025/07/02/indiana-fever-commissioners-cup-
 **Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit**\
 `President Trump had sued over an interview with former Vice President Kamala Harris. The company needs federal approval for a multibillion-dollar sale.`\
 https://nytimes.com/2025/07/02/business/media/paramount-trump-60-minutes-lawsuit.html
-
-**How does Thomas Frank fix Spurs' defence? And will Cristian Romero be part of the solution?**\
-`Tottenham have two elite central defenders but their injury records mean Frank needs to coax improvements from the entire defensive unit`\
-https://nytimes.com/athletic/6448292/2025/07/02/tottenham-defence-romero-thomas-frank/
 
