@@ -1,3 +1,7 @@
+**Robert Holton Dies at 81; His Potent Chemo Drug Saved Lives — and Trees**\
+`His method of producing the drug Taxol, now used widely to treat various cancers, eliminated the need to source its active compound from endangered trees.`\
+https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html
+
 **Mamdani, Trump and the End of the Old Politics**\
 `The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
 https://nytimes.com/video/opinion/100000010254574/mamdani-trump-and-the-end-of-the-old-politics.html

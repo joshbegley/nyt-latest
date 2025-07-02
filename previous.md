@@ -1,3 +1,7 @@
+**Robert Holton Dies at 81; His Potent Chemo Drug Saved Lives — and Trees**\
+`His method of producing the drug Taxol, now used widely to treat various cancers, eliminated the need to source its active compound from endangered trees.`\
+https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html
+
 **Mamdani, Trump and the End of the Old Politics**\
 `The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
 https://nytimes.com/video/opinion/100000010254574/mamdani-trump-and-the-end-of-the-old-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468811/2025/07/02/maxwell-hairston-lawsuit-sexual-
 **Justice Dept. Weighs Seeking Criminal Charges as It Presses States for Election Data**\
 `Such a path could drastically raise the stakes for federal investigations of state or county officials, bringing the department and the threat of criminalization into the election system.`\
 https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html
-
-**What Is the Mann Act?**\
-`The law, passed in 1910, prohibits the interstate or foreign transportation of an individual for sex. It has at times been used as a tool for political persecution.`\
-https://nytimes.com/2025/07/02/arts/music/mann-act-sean-combs-diddy-charges.html
 
