@@ -1,3 +1,7 @@
+**Russia-Azerbaijan Tensions Soar, Threatening Moscow’s Influence**\
+`The rift, provoked by the deaths of two ethnic Azerbaijanis in Russian custody, was the latest in a series of spats that revealed a deeper diplomatic rift between the former allies.`\
+https://nytimes.com/2025/07/02/world/europe/russia-azerbaijan-tensions-safarov.html
+
 **Lowetide: Ranking the 10 best free-agent signings in Oilers history**\
 `Oilers fans would be delighted if Andrew Mangiapane joins the list of top free-agent signings in the years to come.`\
 https://nytimes.com/athletic/6464440/2025/07/02/edmonton-oilers-free-agents-history/

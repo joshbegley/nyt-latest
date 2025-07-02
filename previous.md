@@ -1,3 +1,7 @@
+**Russia-Azerbaijan Tensions Soar, Threatening Moscow’s Influence**\
+`The rift, provoked by the deaths of two ethnic Azerbaijanis in Russian custody, was the latest in a series of spats that revealed a deeper diplomatic rift between the former allies.`\
+https://nytimes.com/2025/07/02/world/europe/russia-azerbaijan-tensions-safarov.html
+
 **Lowetide: Ranking the 10 best free-agent signings in Oilers history**\
 `Oilers fans would be delighted if Andrew Mangiapane joins the list of top free-agent signings in the years to come.`\
 https://nytimes.com/athletic/6464440/2025/07/02/edmonton-oilers-free-agents-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466618/2025/07/02/live-chat-mlb-draft-keith-law-ju
 **Scientists Use A.I. to Mimic the Mind, Warts and All**\
 `To better understand human cognition, scientists trained a large language model on 10 million psychology experiment questions. It now answers questions much like we do.`\
 https://nytimes.com/2025/07/02/science/ai-psychology-mind.html
-
-**Go Forth and Fourth**\
-`Recipes for a delicious July 4 weekend: grilled tahini-honey chicken thighs; succotash with sausage and shrimp; buttermilk chess pie.`\
-https://nytimes.com/2025/07/02/dining/grilled-tahini-honey-chicken-and-more-july-4-recipes.html
 
