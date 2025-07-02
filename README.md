@@ -1,40 +1,40 @@
-**Video Shows Explosion at Fireworks Warehouse in California**\
-`The cause of the explosion, which set off a pyrotechnics display, remained unclear. There were no initial reports of injuries.`\
-https://nytimes.com/video/us/100000010262925/video-shows-explosion-at-fireworks-warehouse-in-california.html
+**The Reds beat the Red Sox in epic '75 Series, but NESN won reunion with thowback telecast**\
+`Even though they lost in seven, the Super Sox of '75 were a special team. NESN's effort succeeded in recapturing that.`\
+https://nytimes.com/athletic/6467813/2025/07/02/red-sox-reds-1975-world-series-50th-celebration/
 
-**Israeli Officials Express Optimism on Gaza Cease-Fire as Netanyahu Prepares to Meet With Trump**\
-`It was still unclear whether the latest U.S.-backed effort can overcome the most entrenched sticking point between Israel and Hamas.`\
-https://nytimes.com/2025/07/02/world/middleeast/israel-gaza-cease-fire-trump.html
+**Burnley complete signing of Lazio forward Tchaouna**\
+`The 21-year-old is Burnley's fourth signing of a busy summer.`\
+https://nytimes.com/athletic/6468195/2025/07/02/burnley-complete-signing-of-lazio-forward-loum-tchaouna-on-long-term-deal/
 
-**NBA free agency 2025: Grades, head-scratchers and analysis from Day 2**\
-`The Central Division got shaken up, the MVP got paid, the Knicks and Nuggets add important depth and a whole lot more.`\
-https://nytimes.com/athletic/6467840/2025/07/02/nba-free-agency-2025-grades-day-2/
+**Matt Freese's shootout heroics could give USMNT a lasting emotional lift**\
+`Penalty shootouts provide dramatic moments. But the long-term effects could be even more telling. `\
+https://nytimes.com/athletic/6467431/2025/07/02/matt-freese-penalty-shootout-usmnt-costa-rica/
 
-**Bank it like Beckham: Why female footballers are building media companies**\
-`The next wave of athlete-driven media will come in stronger, louder and increasingly more lucrative for female football players.`\
-https://nytimes.com/athletic/6466289/2025/07/02/ella-toone-midge-purce-togethxr-womens-soccer-investment/
+**With trade talk behind him, Rashod Bateman believes Ravens have unfinished business**\
+`The fifth-year receiver shares thoughts on his contract extension, his quarterback and Baltimore's chances of getting over the playoff hump.`\
+https://nytimes.com/athletic/6444465/2025/07/02/ravens-rashod-bateman-contract-lamar-jackson/
 
-**45 thoughts on the Vikings' offensive players ahead of training camp**\
-`The Vikings offense looks formidable on paper, but its success will likely come down to the play of quarterback J.J. McCarthy.`\
-https://nytimes.com/athletic/6457138/2025/07/02/minnesota-vikings-offense-jefferson-mccarthy/
+**Where MLS truly stands after its Club World Cup awakening**\
+`The performances of Inter Miami, LAFC and the Seattle Sounders shed some insight into where MLS stands on the global stage.`\
+https://nytimes.com/athletic/6463505/2025/07/02/mls-club-world-cup-lafc-seattle-inter-miami/
 
-**The Winners and Losers of Trump’s Big Bill, and a ‘60 Minutes’ Settlement**\
-`Plus, the science of staying cool.`\
-https://nytimes.com/2025/07/02/podcasts/the-headlines/republican-bill-60-minutes-settlement.html
+**The First Income Tax in the Persian Gulf Signals a Changing Economic Reality**\
+`A plan by Oman is being closely watched by other governments in the region that are preparing for a future beyond oil.`\
+https://nytimes.com/2025/07/02/world/middleeast/oman-income-tax-persian-gulf.html
 
-**MLB execs predict Alcantara, Naylor and other players most likely to be traded at deadline**\
-`We surveyed 42 MLB executives. Here are the position players, starters and relievers they think are most likely to be traded this month.`\
-https://nytimes.com/athletic/6467560/2025/07/02/mlb-trade-deadline-predictions-alcantara-naylor/
+**Best of the rest: The top 9 players still available on the free-agency market**\
+`There's still some quality to be found after the first day of NHL free agency with solid depth pieces on offer.`\
+https://nytimes.com/athletic/6467443/2025/07/02/nhl-free-agency-day-2-targets-ehlers-suter/
 
-**After Clayton Kershaw, who's next to 3,000 career strikeouts? Will there be anyone?**\
-`Only 19 men have reached 3,000 career strikeouts. With declining starting pitcher usage and spiking injury rates, will Kershaw be the last?`\
-https://nytimes.com/athletic/6466407/2025/07/02/mlb-clayton-kershaw-strikeouts-pitcher/
+**Greenberg: Kyle Tucker, 'Cubby Capitalism' and the start of a very important July**\
+`If Jed Hoyer's bets continue to hit, everyone — from him to Tucker to the beer vendors to chairman Tom Ricketts — is going to cash in. `\
+https://nytimes.com/athletic/6467519/2025/07/02/chicago-cubs-guardians-trade-deadline-kyle-tucker/
 
-**LeBrun: How the Panthers won free agency: Inside the Bennett, Marchand, Ekblad hat trick**\
-`Sure, there's the taxes. But there's also elite team-building and a culture that players adore. GM Bill Zito: "They stayed to win, period."`\
-https://nytimes.com/athletic/6466659/2025/07/02/panthers-free-agency-bennett-marchand-ekblad/
+**Steve Soderstrom's big league career was brief; now he cherishes every moment of his son Tyler's**\
+`In 1996, Steve Soderstrom appeared in three games for the Giants. His experience would help his son Tyler reach the majors. `\
+https://nytimes.com/athletic/6467346/2025/07/02/tyler-soderstrom-steve-athletics-father-son/
 
-**Bucks once again go big to win back Giannis — this time with a historic, daring gamble**\
-`As star sagas go, the NBA has rarely, if ever, seen something as drastic as the Bucks waiving Damian Lillard for Myles Turner. Will it work?`\
-https://nytimes.com/athletic/6467095/2025/07/02/bucks-giannis-damian-lillard-myles-turner-gamble/
+**As Blue Jays close in on first place, 3 fits from 2025 MLB trade deadline big board**\
+`As the trade deadline approaches, there's a clear trend when it comes to evaluating some of the team's most sensible targets.`\
+https://nytimes.com/athletic/6458833/2025/07/02/blue-jays-trade-deadline-big-board/
 
