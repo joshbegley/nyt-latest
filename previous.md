@@ -1,3 +1,7 @@
+**Why Paredes will miss Spain's Euro 2025 opener – for a sending off 12 months ago**\
+`Paredes, 33, will serve the second of a two-game suspension during Thursday's group stage fixture.`\
+https://nytimes.com/athletic/6468590/2025/07/02/irene-paredes-spain-suspension-european-championship/
+
 **The Windup: Milestone for Kershaw tonight?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6467995/2025/07/02/clayton-kershaw-strikeouts-3000-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/world/europe/rachel-reeves-uk-keir-starmer-crying
 **Transfers TLDR: Joao Pedro to Chelsea - all you need to know**\
 `Chelsea have signed forward Joao Pedro from Brighton - here we break down the deal.`\
 https://nytimes.com/athletic/6466128/2025/07/02/joao-pedro-to-chelsea-transfers-tldr/
-
-**Atletico sign Spain international Baena from Villarreal**\
-`The versatile attacking player helped Villarreal to a fifth-place finish in 2024-25 and Champions League qualification.`\
-https://nytimes.com/athletic/6468371/2025/07/02/alex-baena-transfer-atletico-villarreal/
 
