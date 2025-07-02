@@ -1,3 +1,11 @@
+**L.A. Legal Groups Sue to Stop ‘Unconstitutional’ Immigration Actions**\
+`A suit filed in Los Angeles highlights Trump administration enforcement tactics and accuses officers of racial profiling, brutality and holding detainees in “dungeonlike” facilities.`\
+https://nytimes.com/2025/07/02/us/politics/immigration-lawsuit-los-angeles.html
+
+**Wild announce 6 depth signings: Who's headed to AHL Iowa, and what it means for the depth chart**\
+`Nicolas Aube-Kubel, Tyler Pitlick, Bradley Marek, Matt Kiersted and Ben Gleason signed two-way contracts, and Cal Petersen singed a one-way.`\
+https://nytimes.com/athletic/6467222/2025/07/02/wild-depth-signings-iowa/
+
 **Russia-Azerbaijan Tensions Soar, Threatening Moscow’s Influence**\
 `The rift, provoked by the deaths of two ethnic Azerbaijanis in Russian custody, was the latest in a series of spats that revealed a deeper diplomatic rift between the former allies.`\
 https://nytimes.com/2025/07/02/world/europe/russia-azerbaijan-tensions-safarov.html

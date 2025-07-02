@@ -1,3 +1,11 @@
+**L.A. Legal Groups Sue to Stop ‘Unconstitutional’ Immigration Actions**\
+`A suit filed in Los Angeles highlights Trump administration enforcement tactics and accuses officers of racial profiling, brutality and holding detainees in “dungeonlike” facilities.`\
+https://nytimes.com/2025/07/02/us/politics/immigration-lawsuit-los-angeles.html
+
+**Wild announce 6 depth signings: Who's headed to AHL Iowa, and what it means for the depth chart**\
+`Nicolas Aube-Kubel, Tyler Pitlick, Bradley Marek, Matt Kiersted and Ben Gleason signed two-way contracts, and Cal Petersen singed a one-way.`\
+https://nytimes.com/athletic/6467222/2025/07/02/wild-depth-signings-iowa/
+
 **Russia-Azerbaijan Tensions Soar, Threatening Moscow’s Influence**\
 `The rift, provoked by the deaths of two ethnic Azerbaijanis in Russian custody, was the latest in a series of spats that revealed a deeper diplomatic rift between the former allies.`\
 https://nytimes.com/2025/07/02/world/europe/russia-azerbaijan-tensions-safarov.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/the-anonymo
 **NHL players officially returning to Olympics in 2026 for first time since 2014**\
 `It's no surprise, but the formalized agreement was a landmark achievement after the NHL opted not to attend the past two Winter Games.`\
 https://nytimes.com/athletic/6468748/2025/07/02/nhl-olympic-hockey-2026/
-
-**Live chat on the MLB Draft with The Athletic's Keith Law on July 2 at 1pm!**\
-`Chat with Law about the draft, the Futures Game and more at 1pm ET on July 2.`\
-https://nytimes.com/athletic/6466618/2025/07/02/live-chat-mlb-draft-keith-law-july-2/
-
-**Scientists Use A.I. to Mimic the Mind, Warts and All**\
-`To better understand human cognition, scientists trained a large language model on 10 million psychology experiment questions. It now answers questions much like we do.`\
-https://nytimes.com/2025/07/02/science/ai-psychology-mind.html
 
