@@ -1,3 +1,7 @@
+**Social Security Backs Off Listing Living Migrants as Dead**\
+`Instead, the agency is flagging as “unverified” the Social Security numbers of thousands of people who lost their temporary legal status.`\
+https://nytimes.com/2025/07/01/us/politics/social-security-immigrants-dead.html
+
 **Oilers — and Connor McDavid — must wait to see how the roster can be upgraded**\
 `The Oilers have a long way to go based on what was achieved through the first and biggest day of free agency.`\
 https://nytimes.com/athletic/6467186/2025/07/01/oilers-free-agents-connor-mcdavid-viktor-arvidsson/
