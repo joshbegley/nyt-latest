@@ -1,3 +1,7 @@
+**How the Astros will handle shortstop Jeremy Peña's absence**\
+`Peña's rib fracture will sideline him for at least 10 days, derailing a prolific season that had him near stardom.`\
+https://nytimes.com/athletic/6467593/2025/07/01/jeremy-pena-rib-fracture-astros/
+
 **Dortmund 2 Monterrey 1 - Suspended Jobe misses Bellingham derby with Jude, fans warned over homophobic chant**\
 `Analysis of Dortmund's victory over Monterrey at the Club World Cup`\
 https://nytimes.com/athletic/6466918/2025/07/01/jobe-bellingham-jude-suspended/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-
 **Grizzlies' Jaren Jackson Jr. sustains turf toe injury in right foot**\
 `The injury is a tough loss for the Grizzlies, who agreed with Jackson Monday on a five-year, $240 million maximum renegotation-and-extension`\
 https://nytimes.com/athletic/6467426/2025/07/01/grizzlies-jaren-jackson-jr-toe-injury/
-
-**Penn revokes Lia Thomas' records, bans trans athletes in deal with Trump**\
-`The university’s website already shows other athletes holding school records that Thomas set in freestyle swimming.`\
-https://nytimes.com/athletic/6467404/2025/07/01/trump-lia-thomas-transgender-athletes-penn/
 
