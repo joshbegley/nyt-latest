@@ -1,3 +1,7 @@
+**What's next for the Winnipeg Jets after a quiet first day of free agency?**\
+`Where do the Jets go from here? What do Pearson and Koepke bring and what might Kevin Cheveldayoff still have in store?`\
+https://nytimes.com/athletic/6465906/2025/07/01/winnipeg-jets-free-agency/
+
 **After Wild check 2 boxes with Nico Sturm signing, focus turns to Kirill Kaprizov, Marco Rossi**\
 `The Wild improved their PK and faceoffs by signing Sturm and also made five depth additions that are expected to be announced Wednesday.`\
 https://nytimes.com/athletic/6467166/2025/07/01/wild-free-agency-sturm-kaprizov-rossi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6467225/2025/07/01/houston-astros-yordan-alvarez-se
 **Jeannot? Arvidsson? Kuraly? Eyssimont? Bruins pursue belligerence: ‘We were an easy out'**\
 `Opponents will not enjoy retrieving pucks against the Bruins in 2025-26. But will Boston be any better for its Tuesday additions?`\
 https://nytimes.com/athletic/6467132/2025/07/01/bruins-free-agency-belligerence/
-
-**Red Wings may need to get creative as quiet July 1 leaves key needs unfilled**\
-`In a barren free-agent market, the Red Wings' biggest needs still remain. What's next for Steve Yzerman?`\
-https://nytimes.com/athletic/6466796/2025/07/01/red-wings-free-agency-steve-yzerman-roster/
 

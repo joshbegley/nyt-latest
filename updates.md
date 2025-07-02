@@ -1,3 +1,7 @@
+**After Wild check 2 boxes with Nico Sturm signing, focus turns to Kirill Kaprizov, Marco Rossi**\
+`The Wild improved their PK and faceoffs by signing Sturm and also made five depth additions that are expected to be announced Wednesday.`\
+https://nytimes.com/athletic/6467166/2025/07/01/wild-free-agency-sturm-kaprizov-rossi/
+
 **Why the Blues traded Zack Bolduc for Logan Mailloux and what they said about his past**\
 `The trade brings the Blues a 22-year-old defensive prospect, but they're giving up a forward who had a breakout season in 2024-25.`\
 https://nytimes.com/athletic/6466520/2025/07/01/blues-logan-mailloux-trade-doug-armstrong/
