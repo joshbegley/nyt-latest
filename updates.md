@@ -1,3 +1,11 @@
+**Sabres free agency: Alex Lyon, Justin Danforth, Jacob Bernard-Docker and other moves**\
+`Here's a rundown of what Buffalo got accomplished on July 1 and what work is left to be done.`\
+https://nytimes.com/athletic/6467278/2025/07/01/sabres-free-agency-2025/
+
+**Beyoncé’s Hometown Throwdown**\
+`The superstar’s Cowboy Carter Tour arrived in Houston over the weekend, and fans once again dressed in their sparkly country finest.`\
+https://nytimes.com/card/2025/07/02/arts/music/beyonce-cowboy-carter-tour-houston
+
 **What's next for the Winnipeg Jets after a quiet first day of free agency?**\
 `Where do the Jets go from here? What do Pearson and Koepke bring and what might Kevin Cheveldayoff still have in store?`\
 https://nytimes.com/athletic/6465906/2025/07/01/winnipeg-jets-free-agency/
