@@ -22,7 +22,7 @@ https://nytimes.com/2025/07/02/obituaries/robert-holton-dead.html
 `The MSNBC anchor — and native New Yorker — Chris Hayes considers what Democrats can learn from the mayoral primary.`\
 https://nytimes.com/video/opinion/100000010254574/mamdani-trump-and-the-end-of-the-old-politics.html
 
-**In Argentina, AI-Fueled Smear Highlights Milei’s War on Press**\
+**In Argentina, A.I.-Fueled Smear Highlights Milei’s War on Press**\
 `Journalists face an increasing number of attacks from Argentina’s highest office, raising concerns about the undermining of press freedom.`\
 https://nytimes.com/2025/07/02/world/americas/argentina-president-milei-press-attacks.html
 

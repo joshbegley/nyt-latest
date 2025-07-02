@@ -1,3 +1,7 @@
+**In Argentina, A.I.-Fueled Smear Highlights Milei’s War on Press**\
+`Journalists face an increasing number of attacks from Argentina’s highest office, raising concerns about the undermining of press freedom.`\
+https://nytimes.com/2025/07/02/world/americas/argentina-president-milei-press-attacks.html
+
 **England and Ben Stokes are changing the cricket toss**\
 `Win the toss and bat first was always the conventional wisdom in Test cricket - England are taking a very different approach`\
 https://nytimes.com/athletic/6469476/2025/07/02/england-ben-stokes-india-cricket-toss/
