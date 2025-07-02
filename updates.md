@@ -1,3 +1,19 @@
+**'Wild and unexpected': How and why Mitch Marner ended up a Vegas Golden Knight**\
+`"This is where we wanted to be," Marner said in his introduction after a sign-and-trade to Vegas.`\
+https://nytimes.com/athletic/6467517/2025/07/01/mitch-marner-golden-knights-contract/
+
+**Bingo Relative**\
+`In the event of crossword trouble, call Dan Caprera.`\
+https://nytimes.com/2025/07/01/crosswords/daily-puzzle-2025-07-02.html
+
+**Mirtle: Why was free agency such a dud this year? What does it mean for next season?**\
+`Despite a rising cap, NHL teams didn't splash the kind of cash we're used to seeing on July 1.`\
+https://nytimes.com/athletic/6467266/2025/07/01/nhl-free-agency-gms-2025/
+
+**Diamondbacks ban 'Home Run Thief' fan for 2025 after latest interference incident**\
+`Monday's incident brought a series of recent interference moments from the fan into a larger spotlight and prompted a season-long ban.`\
+https://nytimes.com/athletic/6466830/2025/07/01/diamondbacks-fan-interference-home-run-thief-banned/
+
 **'Everybody knows' Yankees' Chisholm is a 2B, so why is he playing 3B?**\
 `By playing Chisholm at third base and DJ LeMahieu at second, the Yankees are willingly choosing to have defensive issues at two spots.`\
 https://nytimes.com/athletic/6467235/2025/07/01/yankees-jazz-chisholm-jr-why-third-base/
