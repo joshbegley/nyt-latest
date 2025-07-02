@@ -1,3 +1,7 @@
+**'Everybody knows' Yankees' Chisholm is a 2B, so why is he playing 3B?**\
+`By playing Chisholm at third base and DJ LeMahieu at second, the Yankees are willingly choosing to have defensive issues at two spots.`\
+https://nytimes.com/athletic/6467235/2025/07/01/yankees-jazz-chisholm-jr-why-third-base/
+
 **Red Panda injured during performance at WNBA game, leaves arena in ambulance**\
 `The iconic halftime performer takes spill less than a minute into her halftime show, is seen leaving arena in ambulance.`\
 https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-performance/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/01/science/sea-spiders-abdomen-genes.html
 **U.S. Judge Blocks Deportation of Haitian Migrants**\
 `Judge Brian Cogan’s order prevented the Trump administration from ending special immigration protections for hundreds of thousands of Haitian migrants.`\
 https://nytimes.com/2025/07/01/us/politics/trump-haiti-migrants-deportation.html
-
-**The Disaster That Just Passed the Senate**\
-`Trump’s “big beautiful bill” would gut Medicaid, nutrition assistance and clean energy credits. All for what?`\
-https://nytimes.com/2025/07/01/opinion/ezra-klein-podcast-matthew-yglesias.html
 
