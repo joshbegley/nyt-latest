@@ -1,3 +1,15 @@
+**Women's Euro 2025: How to watch the first round of group stage matches**\
+`The premier continental tournament in women's soccer is underway, and its field is decidedly open. Here's how to watch each team's opener.`\
+https://nytimes.com/athletic/6464766/2025/07/02/womens-euro-spain-england-germany-how-to-watch/
+
+**The Burglars Who Snatch A.T.M.s Instead of Robbing Banks**\
+`Common tools and a little muscle have fueled a crime wave that may have netted one burglary crew hundreds of thousands of dollars in a matter of months.`\
+https://nytimes.com/2025/07/02/nyregion/nyc-atm-thefts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/02/crosswords/spelling-bee-forum.html
+
 **Lawmakers Hit the Road to Reach Washington for Vote on Trump Bill**\
 `Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
