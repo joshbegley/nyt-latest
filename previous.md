@@ -1,3 +1,7 @@
+**How to watch the USMNT vs. Guatemala: Who has the momentum in the Gold Cup semis?**\
+`The U.S. enters as a heavy favorite to reach the Concacaf Gold Cup Final, but the margins are thinner than the line suggests. `\
+https://nytimes.com/athletic/6466980/2025/07/02/usmnt-guatemala-2025-gold-cup-how-to-watch/
+
 **Heathrow Shutdown Caused by Problem Left Unfixed for Years, Report Says**\
 `The fire at an electrical substation that forced the London airport to close for more than 12 hours was caused by a short circuit in a part that hadn’t been properly maintained, investigators found.`\
 https://nytimes.com/2025/07/02/world/europe/london-heathrow-shutdown-transformer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6458641/2025/07/02/introduction-athletic-womens-eur
 **Word of the Day: fawning**\
 `This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/02/learning/word-of-the-day-fawning.html
-
-**Alexander-Arnold needed to deliver a big Real Madrid moment. Now he has**\
-`The former Liverpool defender had a quiet start with his new club but a crucial assist against Juventus proved his quality`\
-https://nytimes.com/athletic/6467659/2025/07/02/trent-alexander-arnold-real-madrid-juventus-assist/
 

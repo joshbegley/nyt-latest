@@ -1,3 +1,7 @@
+**How to watch the USMNT vs. Guatemala: Who has the momentum in the Gold Cup semis?**\
+`The U.S. enters as a heavy favorite to reach the Concacaf Gold Cup Final, but the margins are thinner than the line suggests. `\
+https://nytimes.com/athletic/6466980/2025/07/02/usmnt-guatemala-2025-gold-cup-how-to-watch/
+
 **Ownership models, ground improvements and Nuno era reflections: Analysing a rare Jeff Shi interview**\
 `In terms of genuine interviews, the club’s executive chairman speaks fairly infrequently – so when he does, Wolves fans listen`\
 https://nytimes.com/athletic/6466985/2025/07/02/wolves-jeff-shi-interview-analysis/
