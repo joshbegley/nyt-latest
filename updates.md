@@ -1,3 +1,7 @@
+**What's next for the Winnipeg Jets after a quiet first day of free agency?**\
+`Where do the Jets go from here? What do Pearson and Koepke bring and what might Kevin Cheveldayoff still have in store?`\
+https://nytimes.com/athletic/6465906/2025/07/01/winnipeg-jets-free-agency/
+
 **After Wild check 2 boxes with Nico Sturm signing, focus turns to Kirill Kaprizov, Marco Rossi**\
 `The Wild improved their PK and faceoffs by signing Sturm and also made five depth additions that are expected to be announced Wednesday.`\
 https://nytimes.com/athletic/6467166/2025/07/01/wild-free-agency-sturm-kaprizov-rossi/
