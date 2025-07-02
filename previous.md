@@ -1,3 +1,15 @@
+**Red Panda injured during performance at WNBA game, leaves arena in ambulance**\
+`The iconic halftime performer takes spill less than a minute into her halftime show, is seen leaving arena in ambulance.`\
+https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-performance/
+
+**Grizzlies' Jaren Jackson Jr. sustains turf toe injury in right foot**\
+`The injury is a tough loss for the Grizzlies, who agreed with Jackson Monday on a five-year, $240 million maximum renegotation-and-extension`\
+https://nytimes.com/athletic/6467426/2025/07/01/grizzlies-jaren-jackson-jr-toe-injury/
+
+**Penn revokes Lia Thomas' records, bans trans athletes in deal with Trump**\
+`The university’s website already shows other athletes holding school records that Thomas set in freestyle swimming.`\
+https://nytimes.com/athletic/6467404/2025/07/01/trump-lia-thomas-transgender-athletes-penn/
+
 **Kings fans spent 20 seasons jeering Corey Perry — will they cheer the 'Worm' now?**\
 `The Kings also reshaped their blue line on Tuesday by adding Cody Ceci and Brian Dumoulin.`\
 https://nytimes.com/athletic/6467387/2025/07/01/corey-perry-free-agent-kings-ducks/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/01/us/politics/trump-haiti-migrants-deportation.html
 **The Disaster That Just Passed the Senate**\
 `Trump’s “big beautiful bill” would gut Medicaid, nutrition assistance and clean energy credits. All for what?`\
 https://nytimes.com/2025/07/01/opinion/ezra-klein-podcast-matthew-yglesias.html
-
-**Trump Says Israel Agrees to Conditions for Gaza Cease-Fire Proposal**\
-`In a social media post, the president said the United States and Israel were finalizing a proposal to Hamas. The announcement comes ahead of Prime Minister Benjamin Netanyahu’s visit to Washington next week.`\
-https://nytimes.com/2025/07/01/us/politics/trump-israel-gaza-ceasefire.html
-
-**The story behind Jack Leiter's surprise at-bat: 'Let me try to punch one in there'**\
-`It was the sort of baseball game that makes you wonder how anyone managed to even paint the foul lines straight.`\
-https://nytimes.com/athletic/6467065/2025/07/01/texas-rangers-jack-leiter-at-bat/
-
-**A federal judge rejected the DOGE takeover of an African aid agency as likely illegal.**\
-`A federal judge found that efforts by Pete Marocco and affiliates of Elon Musk to seize control of the U.S. African Development Foundation earlier this year appeared unlawful.`\
-https://nytimes.com/live/2025/07/01/us/trump-bill-news/a-federal-judge-rejected-the-doge-takeover-of-an-african-aid-agency-as-likely-illegal
 

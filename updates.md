@@ -1,3 +1,15 @@
+**Red Panda injured during performance at WNBA game, leaves arena in ambulance**\
+`The iconic halftime performer takes spill less than a minute into her halftime show, is seen leaving arena in ambulance.`\
+https://nytimes.com/athletic/6467503/2025/07/01/red-panda-injured-wnba-halftime-performance/
+
+**Grizzlies' Jaren Jackson Jr. sustains turf toe injury in right foot**\
+`The injury is a tough loss for the Grizzlies, who agreed with Jackson Monday on a five-year, $240 million maximum renegotation-and-extension`\
+https://nytimes.com/athletic/6467426/2025/07/01/grizzlies-jaren-jackson-jr-toe-injury/
+
+**Penn revokes Lia Thomas' records, bans trans athletes in deal with Trump**\
+`The university’s website already shows other athletes holding school records that Thomas set in freestyle swimming.`\
+https://nytimes.com/athletic/6467404/2025/07/01/trump-lia-thomas-transgender-athletes-penn/
+
 **Kings fans spent 20 seasons jeering Corey Perry — will they cheer the 'Worm' now?**\
 `The Kings also reshaped their blue line on Tuesday by adding Cody Ceci and Brian Dumoulin.`\
 https://nytimes.com/athletic/6467387/2025/07/01/corey-perry-free-agent-kings-ducks/
