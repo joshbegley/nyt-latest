@@ -1,3 +1,19 @@
+**Braves designate Alex Verdugo for assignment to make room for Jurickson Profar: Source**\
+`Verdugo has hit .203 in his last 42 games. Profar will return from an 80-game suspension handed down four days into the season.`\
+https://nytimes.com/athletic/6469123/2025/07/02/alex-verdugo-braves-dfa-jurickson-profar/
+
+**Knicks offer Mike Brown head coach role: Sources**\
+`New York fired Tom Thibodeau just days after making the Eastern Conference Finals for the first time in 25 years.`\
+https://nytimes.com/athletic/6435187/2025/07/02/knicks-mike-brown-coach-hire/
+
+**How will the Bruins score in 2025-26?**\
+`Boston has gotten more truculent, hostile and belligerent in free agency, but will any of that translate to the scoreboard?`\
+https://nytimes.com/athletic/6468891/2025/07/02/bruins-offense-free-agent-additions/
+
+**Bills rookie Maxwell Hairston accused of sexual assault in lawsuit**\
+`The alleged incident occurred when Hairston was a 17-year-old freshman at the University of Kentucky.`\
+https://nytimes.com/athletic/6468811/2025/07/02/maxwell-hairston-lawsuit-sexual-assault-bills/
+
 **Justice Dept. Weighs Seeking Criminal Charges as It Presses States for Election Data**\
 `Such a path could drastically raise the stakes for federal investigations of state or county officials, bringing the department and the threat of criminalization into the election system.`\
 https://nytimes.com/2025/07/02/us/politics/justice-department-election-data.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/trump-bill-johnson-house-vote.html
 **How you can watch (and bet on) Clayton Kershaw joining MLB's 3K strikeout club**\
 `Clayton Kershaw is in line to become the 20th member of MLB's 3K tier. Here's how to watch his Wednesday night start out in Los Angeles.`\
 https://nytimes.com/athletic/6468767/2025/07/02/clayton-kershaw-3000-strikeouts-dodgers-mlb-how-to-watch/
-
-**Blues waive veteran defenseman Nick Leddy a day after acquiring Logan Mailloux**\
-`The club will find out Thursday if Leddy has been claimed. The move is not connected to a buyout, as the buyout period has closed.`\
-https://nytimes.com/athletic/6469059/2025/07/02/blues-waive-nick-leddy-logan-mailloux/
-
-**Como complete Jesus Rodriguez transfer from Betis**\
-`Rodriguez, 19, broke into Betis' first team during the 2024-25 season, making 31 appearances and scoring three goals.`\
-https://nytimes.com/athletic/6427179/2025/07/02/jesus-rodriguez-transfer-betis-como/
-
-**‘The Odyssey’ Teaser Is in Theaters. We Took a Look.**\
-`The teaser for Christopher Nolan’s next film, based on Homer’s epic, is playing ahead of screenings of “Jurassic World Rebirth.” Here’s how much of the film’s story is revealed.`\
-https://nytimes.com/2025/07/02/movies/the-odyssey-teaser.html
-
-**Methane-Tracking Satellite Is Lost, in a Blow to Climate Efforts**\
-`The spacecraft, MethaneSAT, was just a year into its mission to provide a clearer picture of planet-warming emissions from oil and gas sites.`\
-https://nytimes.com/2025/07/02/climate/methane-sat-lost.html
 
