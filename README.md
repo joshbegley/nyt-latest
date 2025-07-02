@@ -1,3 +1,7 @@
+**Women’s Pro Baseball League to hold first-ever tryouts in August**\
+`More than 600 people registered to take part in the league's tryouts, which will happen in Washington, D.C., in August.`\
+https://nytimes.com/athletic/6468400/2025/07/02/womens-pro-baseball-league-tryouts/
+
 **Europe’s Heat Wave Persists, Moving Eastwards**\
 `The heat wave moved toward Germany after affecting southwestern Europe, including Spain and France, earlier this week.`\
 https://nytimes.com/video/world/europe/100000010263338/europes-heat-wave-persists-moving-eastwards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468376/2025/07/02/gladbach-florian-neuhaus-video-f
 **Spurs announce return of 'Bill Nicholson Gates' to stadium**\
 `The gates were a feature of Spurs' former home, White Hart Lane.`\
 https://nytimes.com/athletic/6468655/2025/07/02/tottenham-bill-nicholson-gates/
-
-**Why Paredes will miss Spain's Euro 2025 opener – for a sending off 12 months ago**\
-`Paredes, 33, will serve the second of a two-game suspension during Thursday's group stage fixture.`\
-https://nytimes.com/athletic/6468590/2025/07/02/irene-paredes-spain-suspension-european-championship/
 
