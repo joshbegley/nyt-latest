@@ -1,4 +1,4 @@
-**Heathrow Shutdown Caused by Problem With Transformer, Report Says**\
+**Heathrow Shutdown Caused by Problem Left Unfixed for Years, Report Says**\
 `The fire at an electrical substation that forced the London airport to close for more than 12 hours was caused by a short circuit in a part that hadn’t been properly maintained, investigators found.`\
 https://nytimes.com/2025/07/02/world/europe/london-heathrow-shutdown-transformer.html
 
@@ -18,7 +18,7 @@ https://nytimes.com/2025/07/02/crosswords/spelling-bee-forum.html
 `Hundreds of flights to Washington were canceled because of severe weather, forcing some members of the House to set off on hourslong drives to the Capitol.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-flight-cancellations.html
 
-**Watching the Poulters turn rivals for a day with British Open qualification on the line**\
+**Watching the Poulters turn rivals for a day with Open Championship qualification on the line**\
 `We spent a day watching father and son Ian and Luke Poulter try to beat each other to secure a place at Portrush`\
 https://nytimes.com/athletic/6467092/2025/07/02/ian-poulter-luke-poulter-open-golf/
 
