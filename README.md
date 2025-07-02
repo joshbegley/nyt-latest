@@ -1,3 +1,31 @@
+**What are the 10 best sports movies of the 21st century? (Plus: MoneyCall wants yours!)**\
+`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
+https://nytimes.com/athletic/6468855/2025/07/02/best-sports-movies-21st-century-f1-brad-pitt-moneycall/
+
+**Great Mangoes Are a Treasure. Here’s How to Savor Them.**\
+`Let Yewande Komolafe’s recipes — for a mango shortcake, a tomato-mango salad and a hot, savory relish — extend the best part of the year.`\
+https://nytimes.com/2025/07/02/dining/mango-recipes.html
+
+**Brighton sign former PSV defender Boscagli on free transfer**\
+`The 27-year-old has signed a five-year deal with the Premier League club.`\
+https://nytimes.com/athletic/6468931/2025/07/02/olivier-boscagli-brighton-transfer/
+
+**Sabres will match any Bowen Byram offer sheet, says GM Kevyn Adams**\
+`Adams said Wednesday the Sabres are prepared to match any offer sheet Byram would sign.`\
+https://nytimes.com/athletic/6468923/2025/07/02/sabres-bowen-byram-offer-sheet-contract/
+
+**2026 NBA title odds: How the contenders rank after free agency and trade frenzy**\
+`The Thunder are still the clear favorites, but the first two days of NBA free agency have shuffled the contending pack.`\
+https://nytimes.com/athletic/6466420/2025/07/02/2026-nba-champion-odds-thunder-nuggets-rockets/
+
+**This Artist Has Big Feelings About Indian Weddings**\
+`Viraj Khanna’s new exhibition at Rajiv Menon Contemporary in Los Angeles offers a loving, satirical look at the spectacle of the big Indian wedding.`\
+https://nytimes.com/2025/07/02/style/this-artist-has-big-feelings-about-indian-weddings.html
+
+**A Woman in My Book Club Never Reads the Books. Can I Expose Her?**\
+`She reads reviews online and passes off the opinions as her own.`\
+https://nytimes.com/2025/07/02/magazine/book-club-books-ethics.html
+
 **Cameron Norrie rescues second-round comeback win to send Frances Tiafoe out of Wimbledon**\
 `Having created a huge opportunity for a two-set lead, Tiafoe became the latest seed to exit SW19.`\
 https://nytimes.com/athletic/6468697/2025/07/02/tennis-wimbledon-norrie-tiafoe-result-analysis/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/07/02/theater/evita-rachel-zegler-jamie-lloyd.html
 **Trump Announces Preliminary Trade Pact With Vietnam**\
 `The president said he had agreed to initial trade terms with Vietnam, the second country to strike a limited deal after Mr. Trump threatened steep tariffs.`\
 https://nytimes.com/2025/07/02/business/economy/trump-vietnam-trade-deal.html
-
-**L.A. Legal Groups Sue to Stop ‘Unconstitutional’ Immigration Actions**\
-`A suit filed in Los Angeles highlights Trump administration enforcement tactics and accuses officers of racial profiling, brutality and holding detainees in “dungeonlike” facilities.`\
-https://nytimes.com/2025/07/02/us/politics/immigration-lawsuit-los-angeles.html
-
-**Wild announce 6 depth signings: Who's headed to AHL Iowa, and what it means for the depth chart**\
-`Nicolas Aube-Kubel, Tyler Pitlick, Bradley Marek, Matt Kiersted and Ben Gleason signed two-way contracts, and Cal Petersen singed a one-way.`\
-https://nytimes.com/athletic/6467222/2025/07/02/wild-depth-signings-iowa/
-
-**Russia-Azerbaijan Tensions Soar, Threatening Moscow’s Influence**\
-`The rift, provoked by the deaths of two ethnic Azerbaijanis in Russian custody, was the latest in a series of spats that revealed a deeper diplomatic rift between the former allies.`\
-https://nytimes.com/2025/07/02/world/europe/russia-azerbaijan-tensions-safarov.html
-
-**Lowetide: Ranking the 10 best free-agent signings in Oilers history**\
-`Oilers fans would be delighted if Andrew Mangiapane joins the list of top free-agent signings in the years to come.`\
-https://nytimes.com/athletic/6464440/2025/07/02/edmonton-oilers-free-agents-history/
-
-**The Serial Killer Expert Who Taught the Idaho Killer Shares Her Story**\
-`Dr. Katherine Ramsland was Bryan Kohberger’s professor before he moved to the Pacific Northwest, where he is expected to plead guilty to killing four University of Idaho students.`\
-https://nytimes.com/2025/07/02/us/kohberger-serial-killer-teacher-ramsland.html
-
-**Sean Combs was supported in court by his family (and Ye).**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/07/02/arts/sean-combs-diddy-trial-jury/sean-combs-was-supported-in-court-by-his-family-and-ye
-
-**Women’s Pro Baseball League to hold first-ever tryouts in August**\
-`More than 600 people registered to take part in the league's tryouts, which will happen in Washington, D.C., in August.`\
-https://nytimes.com/athletic/6468400/2025/07/02/womens-pro-baseball-league-tryouts/
 
