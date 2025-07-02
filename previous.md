@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, July 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times
+
 **2025 Women's Euros odds: Spain favoured ahead of defending champs England**\
 `After winning the World Cup two years ago, Spain are favoured to win the Euros this summer. Defending champs England are second favourites.`\
 https://nytimes.com/athletic/6465863/2025/07/02/2025-womens-euros-odds-spain-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419169/2025/07/02/gemma-grainger-norway-euro-2025/
 **How Sheffield Wednesday descended into chaos**\
 `Unpaid wages, a highly regarded manager on way out and very real fears for the future. A once proud club is on the brink`\
 https://nytimes.com/athletic/6465422/2025/07/02/sheffield-wednesday-dejphon-chansiri-ownership/
-
-**Why are Premier League clubs selling their women's teams? And which club could do it next?**\
-`After Chelsea and Aston Villa have sold their women's teams to a parent company, we consider the long-term effect it could have on the game`\
-https://nytimes.com/athletic/6456251/2025/07/02/psr-premier-league-women-teams-sales/
 

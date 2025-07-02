@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, July 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/02/todays-new-york-times
+
 **Why are Premier League clubs selling their women's teams? And which club could do it next?**\
 `After Chelsea and Aston Villa have sold their women's teams to a parent company, we consider the long-term effect it could have on the game`\
 https://nytimes.com/athletic/6456251/2025/07/02/psr-premier-league-women-teams-sales/
