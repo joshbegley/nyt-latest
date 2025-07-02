@@ -1,3 +1,15 @@
+**Columbia’s Acting President Apologizes for Texts Disparaging Trustee**\
+`Claire Shipman said she was “wrong” to have sent messages in 2023 and 2024 criticizing a trustee who was outspoken about the treatment of Jewish students.`\
+https://nytimes.com/2025/07/02/nyregion/columbia-claire-shipman-apology-messages.html
+
+**The Power and the Pain of a Deadline**\
+`President Trump is using his July 4 deadline as a cudgel to pass his signature domestic policy bill.`\
+https://nytimes.com/2025/07/02/us/politics/trump-domestic-policy-bill-deadline.html
+
+**Where the Giants hitters rank first (or last) halfway through the season**\
+`The Giants are struggling on offense and, not surprisingly, find themselves dead-last in several offensive categories. `\
+https://nytimes.com/athletic/6469142/2025/07/02/sf-giants-statistical-rankings-midseason-2025/
+
 **Iran’s Nuclear Hopes Set Back by 1-2 Years by Bombings, Pentagon Now Says**\
 `The assessment was the latest in a series of sometimes-contradictory evaluations of the damage that bombs inflicted on Iran’s nuclear program.`\
 https://nytimes.com/2025/07/02/us/politics/iran-nuclear-us-strike-trump.html
