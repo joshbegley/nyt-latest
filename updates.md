@@ -1,3 +1,11 @@
+**Sharks sign Dmitry Orlov to 2-year contract with $6.5 million cap hit**\
+`Orlov is a well-rounded presence on the blue line, capable of handling a heavy workload.`\
+https://nytimes.com/athletic/6438403/2025/07/03/sharks-dmitry-orlov-contract-details/
+
+**The MLB prospects execs say are most likely to be traded at the deadline**\
+`Which top prospects could be on the move in the biggest trades before the July 31 deadline? Here are eight identified by front office execs.`\
+https://nytimes.com/athletic/6470899/2025/07/03/mlb-prospects-trade-deadline-executive-survey/
+
 **How Syria’s Dictator Buried His Victims**\
 `A cemetery near Damascus was transformed into an industrial-scale mass grave for Syrians who opposed President Bashar al-Assad.`\
 https://nytimes.com/interactive/2025/07/03/world/middleeast/syria-mass-grave-assad-regime.html
