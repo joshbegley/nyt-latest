@@ -1,5 +1,13 @@
+**Skydiving Plane With 15 Aboard Crashes on Takeoff in New Jersey**\
+`The plane, a Cessna 208B, went off the end of a runway as it was taking off from a small airport in Gloucester County, according to the F.A.A. Victims were being treated at the scene, officials said.`\
+https://nytimes.com/2025/07/02/nyregion/plane-crash-new-jersey-cross-keys.html
+
+**Ronald Acuña Jr. makes All-Star team in his comeback season**\
+`ATLANTA — When Ronald Acuña Jr.`\
+https://nytimes.com/athletic/6470143/2025/07/02/ronald-acuna-all-star-comeback/
+
 **Francisco Lindor becomes Mets' first fan-elected starter since 2016**\
-`NEW YORK — The wait is over.`\
+`Francisco Lindor is the Mets' first fan-elected starter since Yoenis Cespedes in 2016.`\
 https://nytimes.com/athletic/6470234/2025/07/02/francisco-lindor-mets-all-star/
 
 **FIFA’s Club World Cup prices get slashed for quarter-finals competition**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/kilmar-abrego-garcia-el-salvador-trum
 **Cardinals swept: 3 takeaways from 3 ugly losses to the Pirates**\
 `Injuries to Willson Contreras, Nolan Arenado and Lars Nootbar made for a quiet offense: "When you don't have them, it's tough to score'" `\
 https://nytimes.com/athletic/6469715/2025/07/02/cardinals-swept-pirates-takeaways/
-
-**Columbia’s Acting President Apologizes for Texts Disparaging Trustee**\
-`Claire Shipman said she was “wrong” to have sent messages in 2023 and 2024 criticizing a trustee who was outspoken about the treatment of Jewish students.`\
-https://nytimes.com/2025/07/02/nyregion/columbia-claire-shipman-apology-messages.html
-
-**The Power and the Pain of a Deadline**\
-`President Trump is using his July 4 deadline as a cudgel to pass his signature domestic policy bill.`\
-https://nytimes.com/2025/07/02/us/politics/trump-domestic-policy-bill-deadline.html
 
