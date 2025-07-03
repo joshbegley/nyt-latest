@@ -1,3 +1,7 @@
+**Cristiano Ronaldo leads tributes to Diogo Jota, brother Andre Silva**\
+`Tributes from across the football world follow the news of their deaths on Thursday morning.`\
+https://nytimes.com/athletic/6470938/2025/07/03/diogo-jota-death-tributes-cristiano-ronaldo/
+
 **Tourists Evacuated as Firefighters Battle Crete Blaze**\
 `The authorities evacuated around 1,500 people, most of them tourists, as firefighters struggled against heavy winds to bring the flames under control.`\
 https://nytimes.com/2025/07/03/world/europe/tourists-evacuated-crete-wildfire.html

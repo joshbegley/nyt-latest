@@ -1,3 +1,7 @@
+**Cristiano Ronaldo leads tributes to Diogo Jota, brother Andre Silva**\
+`Tributes from across the football world follow the news of their deaths on Thursday morning.`\
+https://nytimes.com/athletic/6470938/2025/07/03/diogo-jota-death-tributes-cristiano-ronaldo/
+
 **Tourists Evacuated as Firefighters Battle Crete Blaze**\
 `The authorities evacuated around 1,500 people, most of them tourists, as firefighters struggled against heavy winds to bring the flames under control.`\
 https://nytimes.com/2025/07/03/world/europe/tourists-evacuated-crete-wildfire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463490/2025/07/03/myles-garrett-joe-flacco-browns-
 **Dissecting the Club World Cup quarter-finals: The key men, tactics and our predictions**\
 `All you need to know about the last-eight ties being played on Friday and Saturday as the competition reaches its final few games`\
 https://nytimes.com/athletic/6468569/2025/07/03/club-world-cup-quarter-final-predictions/
-
-**How a pitch that the metrics hate is helping Giants ace Logan Webb have his best season**\
-`Webb's pitch mix has changed this season and his best pitches are working even better thanks to two that don't grade out that well.`\
-https://nytimes.com/athletic/6470150/2025/07/03/logan-webb-sf-giants-cut-fastball/
 
