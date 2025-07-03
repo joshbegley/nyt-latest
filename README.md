@@ -1,3 +1,7 @@
+**Israel and Syria in U.S.-Brokered Talks to End Border Conflict, Trump Envoy Says**\
+`Thomas J. Barrack Jr., the U.S. ambassador to Turkey, says Washington is facilitating the discussions and prioritizing economic development over nation-building in the Middle East.`\
+https://nytimes.com/2025/07/03/world/middleeast/israel-syria-border-us-barrack.html
+
 **Celtics depth chart: More changes coming, but where does the roster stand?**\
 `The Celtics have undergone significant change in the offseason. Jay King breaks down where things stand. `\
 https://nytimes.com/athletic/6470195/2025/07/03/celtics-depth-chart-roster-2025-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470150/2025/07/03/logan-webb-sf-giants-cut-fastbal
 **4 Dead and 14 Injured in Chicago Drive-By Shooting**\
 `An unknown number of people fired into a crowd from a vehicle in the River North neighborhood, the police said.`\
 https://nytimes.com/2025/07/03/us/chicago-shooting.html
-
-**For teens, summer jobs are getting harder to find.**\
-`By Kailyn Rhone`\
-https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/for-teens-summer-jobs-are-getting-harder-to-find
 
