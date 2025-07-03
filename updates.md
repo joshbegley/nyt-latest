@@ -1,3 +1,7 @@
+**What’s It Like to Run a U.S. City Now? Watch What 16 Mayors Said.**\
+`The New York Times interviewed 16 U.S. mayors about President Trump, immigration and their lives outside City Hall.`\
+https://nytimes.com/interactive/2025/07/03/us/mayors-trump-housing-immigration-republican-democrat.html
+
 **Michael Madsen, Actor Known for Tough-Guy Roles, Dies at 67**\
 `He had the air of a throwback actor, a timeless Hollywood heavy who seemed to have stepped out of a 1940s film noir.`\
 https://nytimes.com/2025/07/03/movies/michael-madsen-dead.html

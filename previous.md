@@ -1,3 +1,7 @@
+**What’s It Like to Run a U.S. City Now? Watch What 16 Mayors Said.**\
+`The New York Times interviewed 16 U.S. mayors about President Trump, immigration and their lives outside City Hall.`\
+https://nytimes.com/interactive/2025/07/03/us/mayors-trump-housing-immigration-republican-democrat.html
+
 **Michael Madsen, Actor Known for Tough-Guy Roles, Dies at 67**\
 `He had the air of a throwback actor, a timeless Hollywood heavy who seemed to have stepped out of a 1940s film noir.`\
 https://nytimes.com/2025/07/03/movies/michael-madsen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/business/trump-tax-bill-personal-finances.h
 **9 Questions About the Republican Megabill, Answered**\
 `Who benefits, and who gets hurt? How much does it really add to the debt? And what’s the deal with Alaska?`\
 https://nytimes.com/2025/07/03/upshot/republican-bill-faq.html
-
-**Venturing Inside L.A.’s Toxic Homes**\
-`Journalists investigated the hazards that homeowners in Los Angeles faced, even if their houses were left standing after the wildfires.`\
-https://nytimes.com/2025/07/03/insider/los-angeles-fires-toxic-homes.html
 
