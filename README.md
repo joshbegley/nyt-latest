@@ -1,3 +1,7 @@
+**Will Cleveland's new WNBA team be the Rockers? How did it earn an expansion franchise?**\
+`Nic Barlage, CEO of Rock Entertainment Group, talks about his new WNBA ownership.`\
+https://nytimes.com/athletic/6469740/2025/07/03/cleveland-wnba-expansion-franchise-nic-barlage/
+
 **Will the NFL ever offer 'Sunday Ticket' on a single-team basis? Sports Media Mailbag (Part 2!)**\
 `Plus: 2030 World Cup rights, top local WNBA announcers, dream broadcast booths and more, from The Athletic's Richard Deitsch.`\
 https://nytimes.com/athletic/6460554/2025/07/03/nfl-sunday-ticket-sports-media-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/podcasts/the-daily/sean-combs-diddy-verdict.html
 **Knicks, Magic or Cavs: Which teams are prepared to jump up in the Eastern Conference?**\
 `The Leastern Conference? With all the injuries and turmoil, Eric Koreen takes a look at team tiers for the upcoming season. `\
 https://nytimes.com/athletic/6469389/2025/07/03/knicks-magic-cavaliers-eastern-conference-tiers-nba/
-
-**Connections Companion No. 754**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 4, 2025.`\
-https://nytimes.com/2025/07/03/crosswords/connections-companion-754.html
 
