@@ -1,3 +1,7 @@
+**‘Bet Your Life’ Is a Perky, Ghostly Dramedy**\
+`This Turkish Netflix series puts a metaphysical spin on the small-town murder mystery formula.`\
+https://nytimes.com/2025/07/03/arts/television/bet-your-life-netflix.html
+
 **How to Have the Perfect Summer**\
 `A roundup of practical guides for the season, featuring tips for hosting, organizing a last-minute vacation and more.`\
 https://nytimes.com/2025/07/03/t-magazine/summer-guides-meals-travel.html

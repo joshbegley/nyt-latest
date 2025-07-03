@@ -1,3 +1,7 @@
+**‘Bet Your Life’ Is a Perky, Ghostly Dramedy**\
+`This Turkish Netflix series puts a metaphysical spin on the small-town murder mystery formula.`\
+https://nytimes.com/2025/07/03/arts/television/bet-your-life-netflix.html
+
 **How to Have the Perfect Summer**\
 `A roundup of practical guides for the season, featuring tips for hosting, organizing a last-minute vacation and more.`\
 https://nytimes.com/2025/07/03/t-magazine/summer-guides-meals-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/jobs-repor
 **They Planned Parties and Salsa Music for July 4th. ICE Raids Made Them Think Twice.**\
 `Some communities in the Los Angeles region canceled events over fears of immigration raids, as Latinos grapple with how, and whether, to celebrate Independence Day.`\
 https://nytimes.com/2025/07/03/us/immigration-raids-fourth-of-july.html
-
-**Who might the Knicks get in Mike Brown? Two-time Coach of the Year is still evolving**\
-`Brown is notorious for holding players accountable. His potential employer is betting on personality and diligence more than anything else.`\
-https://nytimes.com/athletic/6471316/2025/07/03/mike-brown-knicks-evolution-expectations/
 
