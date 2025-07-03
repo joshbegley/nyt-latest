@@ -1,3 +1,7 @@
+**Park Service Is Left Short-Staffed in Peak Travel Season**\
+`Layoffs and departures after pressure from the Trump administration have left sites struggling, with the remaining employees each doing the work of two or three people.`\
+https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html
+
 **Bruins' James Hagens vows to remember 'every team' that passed on him, and why Sean Kuraly came home**\
 `Hagens is set to return for his sophomore season at Boston College but is ready for what's next: “I want to be a Boston Bruin really bad.”`\
 https://nytimes.com/athletic/6472524/2025/07/03/james-hagens-sean-kuraly-bruins/
