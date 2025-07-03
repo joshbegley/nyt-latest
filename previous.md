@@ -1,9 +1,33 @@
+**Michael Madsen, Actor Known for Tough-Guy Roles, Dies at 67**\
+`He had the air of a throwback actor, a timeless Hollywood heavy who seemed to have stepped out of a 1940s film noir.`\
+https://nytimes.com/2025/07/03/movies/michael-madsen-dead.html
+
+**Appeals Court Lets Trump Remove Another Democrat From Independent Agency**\
+`The ruling cited a Supreme Court decision in May that allowed President Trump to sideline Democratic appointees from several other nonpartisan agencies.`\
+https://nytimes.com/2025/07/03/us/politics/trump-labor-relations-authority.html
+
+**Arsenal head of recruitment Ellis to be promoted to technical director**\
+`The Athletic previously reported that new sporting director Andrea Berta is looking to expand the group working around him.`\
+https://nytimes.com/athletic/6471906/2025/07/03/arsenal-james-ellis-technical-director/
+
+**Gill's class with the bat was never in doubt, but this was the day he came of age as India's captain**\
+`The skipper scored a career best 269 at Edgbaston as the visitors ran up an imposing total before making early in-roads into England's reply`\
+https://nytimes.com/athletic/6470839/2025/07/03/gill-india-edgbaston-captain/
+
+**Hurricanes sign Nikolaj Ehlers to 6-year contract with $8.5 million cap hit**\
+`Carolina made another major move after trading for K'Andre Miller this week.`\
+https://nytimes.com/athletic/6438374/2025/07/03/ehlers-contract-carolina-hurricanes/
+
+**Man Is Charged With Creating ‘Hit List’ of Public Officials**\
+`Noah Lamb, 24, was accused of playing a “central role” in a white supremacist group’s creation of a list of assassination targets, including a U.S. senator and a federal judge.`\
+https://nytimes.com/2025/07/03/us/white-supremacist-charged-assassination.html
+
 **Drugmakers Notch a $5 Billion Win in Republicans’ Policy Bill**\
 `More medicines will be spared from Medicare price negotiations, a change that is projected to wipe out billions in savings for the federal government.`\
 https://nytimes.com/2025/07/03/health/trump-bill-medicare-drug-prices.html
 
 **How Will Trump’s Big Bill Affect Your Wallet?**\
-`The wide-ranging domestic policy legislation could impact taxes, clean energy choices, health care access and more.`\
+`The wide-ranging domestic policy legislation could impact your taxes, clean energy choices, health care access and more.`\
 https://nytimes.com/interactive/2025/business/trump-tax-bill-personal-finances.html
 
 **9 Questions About the Republican Megabill, Answered**\
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/03/upshot/republican-bill-faq.html
 **Venturing Inside L.A.’s Toxic Homes**\
 `Journalists investigated the hazards that homeowners in Los Angeles faced, even if their houses were left standing after the wildfires.`\
 https://nytimes.com/2025/07/03/insider/los-angeles-fires-toxic-homes.html
-
-**Wokeness Will Always Be With Us**\
-`A substitute religion, it offers a sense of moral superiority and group membership.`\
-https://nytimes.com/2025/07/03/opinion/wokeness-race-gaza.html
-
-**Jack Draper upset by Marin Cilic in Wimbledon second round**\
-`The world No. 4 could not stage a comeback at his home Grand Slam, going out in round two for the second year in a row.`\
-https://nytimes.com/athletic/6472079/2025/07/03/tennis-wimbledon-jack-draper-marin-cilic-result-analysis/
-
-**The Summer Entertaining Issue**\
-`T drops in on meals prepared by friends on trips together around the world and shares tips for your own gatherings.`\
-https://nytimes.com/issue/t-magazine/2025/07/03/summer-entertaining-2025
-
-**How Bad Is This Bill? The Answer in 10 Charts**\
-`Steven Rattner reveals the ugly reality lurking within the ‘big beautiful bill.’`\
-https://nytimes.com/interactive/2025/07/03/opinion/domestic-policy-bill-in-charts.html
-
-**‘Trump Has Betrayed His Working-Class Voters’: What 7 Conservatives Really Think of Trump’s Bill**\
-`Seven writers on the best and worst provisions in Trump’s bill.`\
-https://nytimes.com/2025/07/03/opinion/trump-bill-republicans-conservative.html
-
-**How the G.O.P. Bill Will Reshape America’s Energy Landscape**\
-`Here’s a rundown on the winners and losers in the legislation muscled through Congress.`\
-https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
 
