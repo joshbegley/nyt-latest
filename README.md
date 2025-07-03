@@ -1,3 +1,7 @@
+**José Ramírez doesn't think he's having a great season. The stats say otherwise**\
+`"He's the best all-around third baseman in baseball," said Guardians manager Stephen Vogt. `\
+https://nytimes.com/athletic/6470402/2025/07/02/jose-ramirez-all-star-season/
+
 **4 Dead and 38 Missing After Ferry Sinks Near Bali**\
 `The ship was carrying 65 people when it sank on its way to the Indonesian resort island, a popular tourist destination.`\
 https://nytimes.com/2025/07/02/world/asia/bali-ferry-sinks-indonesia.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010265188/plane-crash-new-jersey-cross-keys.h
 **USMNT heads to Gold Cup final as Diego Luna takes a star turn**\
 `The USMNT scored twice early, then defended out of desperation to book a place in Sunday's Concacaf Gold Cup final`\
 https://nytimes.com/athletic/6470215/2025/07/02/usmnt-guatemala-gold-cup-semifinals-diego-luna/
-
-**Cubs outfielders Kyle Tucker and Pete Crow-Armstrong voted All-Star Game starters**\
-`The full All-Star rosters will be revealed Sunday, and other Cubs are under consideration, particularly given the club’s first-half success.`\
-https://nytimes.com/athletic/6469578/2025/07/02/cubs-kyle-tucker-pete-crow-armstrong-all-star-game/
 
