@@ -1,3 +1,7 @@
+**USMNT heads to Gold Cup final as Diego Luna takes a star turn**\
+`The USMNT scored twice early, then defended out of desperation to book a place in Sunday's Concacaf Gold Cup final`\
+https://nytimes.com/athletic/6470215/2025/07/02/usmnt-guatemala-gold-cup-semifinals-diego-luna/
+
 **Cubs outfielders Kyle Tucker and Pete Crow-Armstrong voted All-Star Game starters**\
 `The full All-Star rosters will be revealed Sunday, and other Cubs are under consideration, particularly given the club’s first-half success.`\
 https://nytimes.com/athletic/6469578/2025/07/02/cubs-kyle-tucker-pete-crow-armstrong-all-star-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470002/2025/07/02/fifas-club-world-cup-prices-get-
 **Trump Goes on a Charm Offensive as He Woos Holdout Republicans**\
 `President Trump worked the phones and welcomed Republicans to the White House to cajole them into supporting his megabill. They left with signed merchandise and photos of the Oval Office.`\
 https://nytimes.com/2025/07/02/us/politics/trump-bill-holdout-republicans.html
-
-**Bronny James not focused on LeBron rumors: 'I don't really pay attention'**\
-`James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G League.`\
-https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rumors/
 

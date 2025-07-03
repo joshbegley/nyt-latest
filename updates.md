@@ -1,3 +1,7 @@
+**USMNT heads to Gold Cup final as Diego Luna takes a star turn**\
+`The USMNT scored twice early, then defended out of desperation to book a place in Sunday's Concacaf Gold Cup final`\
+https://nytimes.com/athletic/6470215/2025/07/02/usmnt-guatemala-gold-cup-semifinals-diego-luna/
+
 **Cubs outfielders Kyle Tucker and Pete Crow-Armstrong voted All-Star Game starters**\
 `The full All-Star rosters will be revealed Sunday, and other Cubs are under consideration, particularly given the club’s first-half success.`\
 https://nytimes.com/athletic/6469578/2025/07/02/cubs-kyle-tucker-pete-crow-armstrong-all-star-game/
