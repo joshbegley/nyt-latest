@@ -1,3 +1,7 @@
+**Trump Claims Sweeping Power to Nullify Laws, Letters on TikTok Ban Show**\
+`In purporting to license otherwise illegal conduct by tech firms, President Trump set a precedent expanding executive power, legal experts warned.`\
+https://nytimes.com/2025/07/03/us/politics/trump-bondi-tiktok-executive-power.html
+
 **Heinze to join Arteta's Arsenal coaching staff**\
 `The former Manchester United and Real Madrid defender has held managerial roles at Godoy Cruz, Atlanta United and Newell's Old Boys.`\
 https://nytimes.com/athletic/6440623/2025/07/03/gabriel-heinze-arsenal-coach/

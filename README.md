@@ -1,3 +1,7 @@
+**Jim Shooter, Editor Who ‘Saved the Comics Industry,’ Dies at 73**\
+`He brought order and profits to Marvel in the 1980s and helped establish the genre as a popular-culture tent pole for decades to come.`\
+https://nytimes.com/2025/07/03/arts/jim-shooter-dead.html
+
 **Heinze to join Arteta's Arsenal coaching staff**\
 `The former Manchester United and Real Madrid defender has held managerial roles at Godoy Cruz, Atlanta United and Newell's Old Boys.`\
 https://nytimes.com/athletic/6440623/2025/07/03/gabriel-heinze-arsenal-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/politics/trump-bondi-tiktok-executive-power.ht
 **Malik Beasley facing complaint from former agency amid gambling investigation**\
 `Beasley has been trailed by lawsuits and liens since he got to the league, and concerns from at least one team about his off-court life`\
 https://nytimes.com/athletic/6470182/2025/07/03/malik-beasley-pistons-gambling-investigation-lawsuit/
-
-**Russia Becomes First Country to Recognize Afghanistan’s Taliban Government**\
-`Afghanistan has remained largely isolated since the Taliban seized power nearly four years ago, despite subtle signs of increased cooperation with countries like China and India.`\
-https://nytimes.com/2025/07/03/world/asia/russia-afghanistan-recognize.html
 
