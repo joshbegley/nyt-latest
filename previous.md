@@ -1,40 +1,40 @@
+**Tokens to Access Private Companies, or to Investor Trouble?**\
+`Robinhood is the latest to offer investors a novel, and potentially risky, investment opportunity: crypto that’s meant to give exposure to the likes of OpenAI.`\
+https://nytimes.com/2025/07/03/business/dealbook/tokenization-robinhood-openai-spacex.html
+
+**Are the Twins headed for another inactive trade deadline as ownership uncertainty looms?**\
+`Should the Twins be buyers or sellers? Or will they stand pat again after going more than two years without making a substantial move?`\
+https://nytimes.com/athletic/6468308/2025/07/03/twins-trade-deadline-ownership-derek-falvey-pohlad/
+
+**Why the Blackhawks are staying the course and not rushing Kyle Davidson's rebuild**\
+`Davidson's strategy requires a lot of losing and growing pains, but it’s all with the intent of sustaining success afterward.`\
+https://nytimes.com/athletic/6469700/2025/07/03/blackhawks-nhl-free-agency-rebuild/
+
+**Canucks offseason depth chart 2.0: Where does Vancouver stand after free agency?**\
+`Vancouver didn't add volume this offseason but that doesn't mean changes haven't been made.`\
+https://nytimes.com/athletic/6468003/2025/07/03/canucks-offseason-depth-chart-free-agency/
+
+**Sabres thoughts: The Bowen Byram situation could define Kevyn Adams' summer**\
+`Too many recent offseasons have been defined by the players that left the Sabres. Can Adams change the narrative?`\
+https://nytimes.com/athletic/6470639/2025/07/03/sabres-kevyn-adams-bowen-byram-offseason/
+
+**Blues sign Pius Suter, place Nick Leddy on waivers: Where does it leave the depth chart?**\
+`The Blues had an eventful Wednesday that shook up potential roster lineups. Let's break it down.`\
+https://nytimes.com/athletic/6470465/2025/07/03/blues-depth-chart-suter-leddy/
+
+**Flyers depth chart 2.0: Could Jett Luchanko, Porter Martone make the NHL team?**\
+`It's been a bit more than a month since the last depth chart and the Flyers' potential options have noticeably changed.`\
+https://nytimes.com/athletic/6469824/2025/07/03/flyers-depth-chart-2025-martone-luchanko-vladar/
+
+**Projecting the Jets' opening-night roster with Nyquist, without Ehlers**\
+`Where are the spots up for grabs in the Jets lineup after Winnipeg added veteran depth in free agency?`\
+https://nytimes.com/athletic/6469199/2025/07/03/jets-roster-projection-nyquist-ehlers/
+
+**PFA boss says footballers close to striking over 'nonsensical' playing calendar**\
+`Molango said players at this summer's Club World Cup “will be struggling to know which season they are in”.`\
+https://nytimes.com/athletic/6470979/2025/07/03/footballers-strike-calendar-club-world-cup/
+
 **Cristiano Ronaldo leads tributes to Diogo Jota, brother Andre Silva**\
 `Tributes from across the football world follow the news of their deaths on Thursday morning.`\
 https://nytimes.com/athletic/6470938/2025/07/03/diogo-jota-death-tributes-cristiano-ronaldo/
-
-**Tourists Evacuated as Firefighters Battle Crete Blaze**\
-`The authorities evacuated around 1,500 people, most of them tourists, as firefighters struggled against heavy winds to bring the flames under control.`\
-https://nytimes.com/2025/07/03/world/europe/tourists-evacuated-crete-wildfire.html
-
-**Israel and Syria in U.S.-Brokered Talks to End Border Conflict, Trump Envoy Says**\
-`Thomas J. Barrack Jr., the U.S. ambassador to Turkey, says Washington is facilitating the discussions and prioritizing economic development over nation-building in the Middle East.`\
-https://nytimes.com/2025/07/03/world/middleeast/israel-syria-border-us-barrack.html
-
-**Celtics depth chart: More changes coming, but where does the roster stand?**\
-`The Celtics have undergone significant change in the offseason. Jay King breaks down where things stand. `\
-https://nytimes.com/athletic/6470195/2025/07/03/celtics-depth-chart-roster-2025-26/
-
-**'He never quit': Broncos' Dondrea Tillman's improbable NFL path one of perseverance**\
-`The outside linebacker played in spring leagues for four years after going undrafted in 2020. Now, he's a key part of Denver's defense.`\
-https://nytimes.com/athletic/6466035/2025/07/03/dondrea-tillman-broncos-ufl-spring-league/
-
-**Brewers' Jackson Chourio envisions bigger days ahead: 'I just feel motivation'**\
-`Midway through his second season, the outfielder understands the increased expectations after his solid rookie year.`\
-https://nytimes.com/athletic/6470495/2025/07/03/brewers-jackson-chourio-expectations/
-
-**Joe Dumars' draft night trade is overshadowing the rest of his offseason work**\
-`The new Pelicans' boss has made some sensible moves, but the Derik Queen deal puts a lot of pressure on everyone in New Orleans.`\
-https://nytimes.com/athletic/6470375/2025/07/03/pelicans-joe-dumars-derik-queen-nba-offseason/
-
-**Winners and losers of the offseason NHL goalie carousel**\
-`Which teams improved? Which teams should have made moves? Which goalies should be happy?`\
-https://nytimes.com/athletic/6469978/2025/07/03/nhl-goalies-2025-offseason/
-
-**Why Myles Garrett, Joe Flacco will determine Browns' level of success this season**\
-`Garrett's on-field dominance and Flacco's wisdom and experience makes the two veterans Cleveland's most important players this season.`\
-https://nytimes.com/athletic/6463490/2025/07/03/myles-garrett-joe-flacco-browns-2025-season/
-
-**Dissecting the Club World Cup quarter-finals: The key men, tactics and our predictions**\
-`All you need to know about the last-eight ties being played on Friday and Saturday as the competition reaches its final few games`\
-https://nytimes.com/athletic/6468569/2025/07/03/club-world-cup-quarter-final-predictions/
 
