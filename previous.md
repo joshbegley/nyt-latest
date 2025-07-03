@@ -1,3 +1,19 @@
+**Manchester City Women appoint Andree Jeglertz as head coach**\
+`Jeglertz will remain in charge of Denmark for the Euros before taking over at City.`\
+https://nytimes.com/athletic/6402039/2025/07/03/manchester-city-andree-jeglertz/
+
+**9 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/07/03/books/review/new-book-recommendations.html
+
+**Don’t Bet Against the House Salad Dressing**\
+`Creamy lemon miso, jalapeño ranch, honey mustard, carrot ginger, miso sesame. Any of these, on your favorite veggies, is an easy win.`\
+https://nytimes.com/2025/07/03/dining/11-easy-salad-dressing-recipes.html
+
+**Fantasy bullpen report featuring rising relievers Ronny Henriquez, Bryan Abreu and more**\
+`Greg Jewett's weekly bullpen report, featuring leverage pathways, rising relievers, save stashes, trade deadline insurance and more. `\
+https://nytimes.com/athletic/6471610/2025/07/03/fantasy-bullpen-report-henriquez-abreu/
+
 **‘Bet Your Life’ Is a Perky, Ghostly Dramedy**\
 `This Turkish Netflix series puts a metaphysical spin on the small-town murder mystery formula.`\
 https://nytimes.com/2025/07/03/arts/television/bet-your-life-netflix.html
@@ -18,23 +34,7 @@ https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-
 `Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
 https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
 
-**Sharks claim Nick Leddy: Why the Blues waived him, what he brings to San Jose**\
+**Sharks claim Nick Leddy: Why the Blues waived him, what he brings to San Jose and where he fits**\
 `St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
 https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
-
-**Vatican Publishes a New Mass on Caring for the Environment**\
-`The Mass, along with other steps, show Pope Leo XIV and the Roman Catholic Church building on the environmental commitment of his predecessor, Francis.`\
-https://nytimes.com/2025/07/03/world/europe/vatican-mass-environment.html
-
-**‘I haven’t changed. I'm the same Pogba': New Monaco midfielder targeting World Cup**\
-`The 32-year-old signed a two-year deal with the Ligue 1 club last week.`\
-https://nytimes.com/athletic/6471332/2025/07/03/paul-pogba-monaco-france/
-
-**What to know about the jobs report.**\
-`By Sydney Ember`\
-https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/jobs-report-june
-
-**They Planned Parties and Salsa Music for July 4th. ICE Raids Made Them Think Twice.**\
-`Some communities in the Los Angeles region canceled events over fears of immigration raids, as Latinos grapple with how, and whether, to celebrate Independence Day.`\
-https://nytimes.com/2025/07/03/us/immigration-raids-fourth-of-july.html
 
