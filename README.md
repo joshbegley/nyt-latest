@@ -1,3 +1,15 @@
+**Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
+`How the Nottingham Forest winger would fit Eddie Howe's team`\
+https://nytimes.com/athletic/6455608/2025/07/03/why-newcastle-want-elanga/
+
+**Supreme Court Lets Trump Deport Eight Migrants to South Sudan**\
+`The court’s order followed a broader one last month allowing removals to countries with which migrants have no connections.`\
+https://nytimes.com/2025/07/03/us/supreme-court-migrants-south-sudan.html
+
+**Hamas Has a New Leader in Gaza. His Next Test: Cease-Fire Talks.**\
+`The rise of Izz al-Din al-Haddad in the chain of command suggests the group will hold firm to its position demanding a total end to the war before releasing all remaining hostages.`\
+https://nytimes.com/2025/07/03/world/middleeast/hamas-new-leader-gaza-cease-fire.html
+
 **Newcastle pushing to secure signing of Elanga from Forest**\
 `The Athletic previously reported that Newcastle had seen a bid in the region of £45million for the 21-year-old rejected by Forest.`\
 https://nytimes.com/athletic/6448441/2025/07/03/newcastle-pushing-elanga-forest-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/03/climate/trumps-policy-bill-climate-change-energy.
 **Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul loss**\
 `Chávez was determined to be in the country illegally and removable one day before his loss to Jake Paul, according to the DHS.`\
 https://nytimes.com/athletic/6472101/2025/07/03/julio-cesar-chavez-jr-arrest-ice-dhs/
-
-**Liverpool - a city and club locked in numb disbelief**\
-`Merseyside is used to tragedy becoming part of its football narrative, but the death of their beloved striker has cut deep`\
-https://nytimes.com/athletic/6456072/2025/07/03/liverpool-diogo-jota-fans-reaction/
-
-**Congress Passes a National School Voucher Program**\
-`The plan, part of the Republican domestic policy bill, includes all but the wealthiest families. But states must opt in, which could limit its reach.`\
-https://nytimes.com/2025/07/03/us/federal-voucher-program-congress-private-school-tuition.html
-
-**ACC’s legal settlement with FSU, Clemson reveals 'super league' escape clause**\
-`That hypothetical — however realistic or unrealistic it may be — is addressed in the settlement agreement that ended the conference’s duelin`\
-https://nytimes.com/athletic/6472151/2025/07/03/accs-legal-settlement-with-fsu-clemson-reveals-super-league-escape-clause/
 
