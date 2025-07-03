@@ -1,6 +1,14 @@
+**Strasbourg set to sign Coulibaly from Dortmund**\
+`The 21-year-old is set to move for a fee of €7.5million plus €1m in add-ons. `\
+https://nytimes.com/athletic/6470783/2025/07/03/strasbourg-coulibaly-dortmund-transfer/
+
+**NHL contract grades: Nikolaj Ehlers is the perfect fit for the Hurricanes at a fair price**\
+`Next to a talented center like Sebastian Aho, there’s a good chance Ehlers can really thrive.`\
+https://nytimes.com/athletic/6472186/2025/07/03/nhl-contract-grades-nikolaj-ehlers-is-the-perfect-fit-for-the-hurricanes-at-a-fair-price/
+
 **They Savaged Their Party’s Bill. Then They Voted for It.**\
 `Many Republicans had harshly criticized President Trump’s marquee bill extending tax cuts and slashing social safety net programs — almost right up until the moment they voted for it.`\
-https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill/they-savaged-their-partys-bill-then-they-voted-for-it
+https://nytimes.com/2025/07/03/us/politics/they-savaged-their-partys-bill-then-they-voted-for-it.html
 
 **Steelers sign GM Omar Khan to 3-year extension**\
 `Khan took over a famously conservative team and made a splash with his aggressiveness, but the Steelers' playoff win drought continues.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/magazine/27-kid-approved-summer-adventures.html
 **What’s It Like to Run a U.S. City Now? Watch What 16 Mayors Said.**\
 `The New York Times interviewed 16 U.S. mayors about President Trump, immigration and their lives outside City Hall.`\
 https://nytimes.com/interactive/2025/07/03/us/mayors-trump-housing-immigration-republican-democrat.html
-
-**Michael Madsen, Actor Known for Tough-Guy Roles, Dies at 67**\
-`He had the air of a throwback actor, a timeless Hollywood heavy who seemed to have stepped out of a 1940s film noir.`\
-https://nytimes.com/2025/07/03/movies/michael-madsen-dead.html
-
-**Appeals Court Lets Trump Remove Another Democrat From Independent Agency**\
-`The ruling cited a Supreme Court decision in May that allowed President Trump to sideline Democratic appointees from several other nonpartisan agencies.`\
-https://nytimes.com/2025/07/03/us/politics/trump-labor-relations-authority.html
 
