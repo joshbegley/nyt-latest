@@ -1,3 +1,7 @@
+**Guardians pitcher Luis Ortiz placed on leave due to MLB investigation**\
+`CHICAGO — Guardians pitcher Luis Ortiz has been placed on &#8220;non-disciplinary paid leave&#8221; through the end of the All-Star break as a result of an MLB investigation, the league announced Thursday morning.`\
+https://nytimes.com/athletic/6471323/2025/07/03/luis-ortiz-mlb-guardians-investigation/
+
 **Supreme Court Agrees to Hear Cases Involving Transgender Athletes**\
 `The court announced it would hear challenges to state laws barring transgender athletes from girls’ and women’s sports.`\
 https://nytimes.com/2025/07/03/us/politics/supreme-court-transgender-athletes.html

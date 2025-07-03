@@ -1,3 +1,7 @@
+**The Windup: AL East race is cooking**\
+`Welcome back to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6470763/2025/07/03/al-east-yankees-blue-jays-the-windup/
+
 **Guardians pitcher Luis Ortiz placed on leave due to MLB investigation**\
 `CHICAGO — Guardians pitcher Luis Ortiz has been placed on &#8220;non-disciplinary paid leave&#8221; through the end of the All-Star break as a result of an MLB investigation, the league announced Thursday morning.`\
 https://nytimes.com/athletic/6471323/2025/07/03/luis-ortiz-mlb-guardians-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/politics/trump-policy-bill.html
 **​North Korea Opens Seaside Resort With Fanfare but No Foreign Tourists**\
 `The Kalma Beach resort town, one of Kim Jong-un’s most ambitious projects aimed at attracting foreign tourists, may not draw the waves of visitors he wants.`\
 https://nytimes.com/2025/07/03/world/asia/north-korea-wonsan-kalma-beach.html
-
-**Here's how the Kings' depth chart might look, after numerous changes**\
-`The Kings still have a little under $6 million of cap space, but most of their offseason work appears to be complete.`\
-https://nytimes.com/athletic/6470438/2025/07/03/kings-nhl-depth-chart-2025/
 
