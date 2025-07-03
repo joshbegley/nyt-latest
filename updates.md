@@ -1,3 +1,11 @@
+**Sandy Gall, War Correspondent Without Swagger, Dies at 97**\
+`For nearly 50 years, he was ubiquitous on British television — first as a reporter and then as an imperturbable presenter on Independent Television’s “News at Ten.”`\
+https://nytimes.com/2025/07/03/business/media/sandy-gall-dead.html
+
+**The Windup: AL East race is cooking**\
+`Welcome back to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6470763/2025/07/03/al-east-yankees-blue-jays-the-windup/
+
 **Guardians pitcher Luis Ortiz placed on leave due to MLB investigation**\
 `CHICAGO — Guardians pitcher Luis Ortiz has been placed on &#8220;non-disciplinary paid leave&#8221; through the end of the All-Star break as a result of an MLB investigation, the league announced Thursday morning.`\
 https://nytimes.com/athletic/6471323/2025/07/03/luis-ortiz-mlb-guardians-investigation/
