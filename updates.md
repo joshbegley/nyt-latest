@@ -1,3 +1,15 @@
+**Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
+`it is understood that relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
+https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/
+
+**Red Wings thoughts: Is Yzerman done dealing? Plus prospect notes from development camp**\
+`What the Red Wings GM said about his offseason Thursday, plus some thoughts on Detroit's prospects from development camp.`\
+https://nytimes.com/athletic/6471951/2025/07/03/red-wings-nhl-free-agency-steve-yzerman-prospect/
+
+**The G.O.P. Policy Bill Would Shift U.S. Energy Policy**\
+`The sprawling bill would boost fossil fuels and end tax credits for wind, solar power and electric vehicles.`\
+https://nytimes.com/2025/07/03/climate/trumps-policy-bill-climate-change-energy.html
+
 **Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul loss**\
 `Chávez was determined to be in the country illegally and removable one day before his loss to Jake Paul, according to the DHS.`\
 https://nytimes.com/athletic/6472101/2025/07/03/julio-cesar-chavez-jr-arrest-ice-dhs/
