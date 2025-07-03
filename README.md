@@ -1,3 +1,11 @@
+**Brent Burns agrees to 1-year contract with Colorado Avalanche**\
+`Burns has played 925 consecutive regular-season games.`\
+https://nytimes.com/athletic/6458348/2025/07/02/brent-burns-avalanche-contract/
+
+**Them’s Fighting Words!**\
+`Adam Wagner tells us which way to go.`\
+https://nytimes.com/2025/07/02/crosswords/daily-puzzle-07-03.html
+
 **Sean Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
 `Sean Combs, the hip-hop mogul who built a business empire around his personal brand, was convicted on Wednesday of transporting prostitutes to participate in his drug-fueled sex marathons, but acquitted of racketeering and sex trafficking, the most serious charges against him.`\
 https://nytimes.com/video/us/100000010263390/sean-combs-acquitted-of-sex-trafficking-but-found-guilty-on-lesser-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6470285/2025/07/02/red-panda-wrist-fracture-wnba-co
 **Padres’ Manny Machado named All-Star Game starter at 3B over Dodgers’ Max Muncy**\
 `The two division rivals were the finalists for that honor after receiving the most fan votes in the first phase of voting.`\
 https://nytimes.com/athletic/6470196/2025/07/02/padres-manny-machado-all-star-2025/
-
-**Skydiving Plane With 15 Aboard Crashes in New Jersey**\
-`The plane, a Cessna 208B, went off the end of a runway as it was taking off from a small airport in Gloucester County, according to the F.A.A. Victims were being treated at the scene, officials said.`\
-https://nytimes.com/2025/07/02/nyregion/plane-crash-new-jersey-cross-keys.html
-
-**Ronald Acuña Jr. makes All-Star team in his comeback season**\
-`ATLANTA — When Ronald Acuña Jr.`\
-https://nytimes.com/athletic/6470143/2025/07/02/ronald-acuna-all-star-comeback/
 
