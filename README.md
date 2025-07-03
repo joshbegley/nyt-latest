@@ -1,3 +1,7 @@
+**Can we trust the numbers? Yes, with caveats.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/can-we-trust-the-numbers-yes-with-caveats
+
 **Will Cleveland's new WNBA team be the Rockers? How did it earn an expansion franchise?**\
 `Nic Barlage, CEO of Rock Entertainment Group, talks about his new WNBA ownership.`\
 https://nytimes.com/athletic/6469740/2025/07/03/cleveland-wnba-expansion-franchise-nic-barlage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470340/2025/07/03/rosenthal-justin-verlander-notes
 **The Sean ‘Diddy’ Combs Verdict**\
 `After a lengthy and highly publicized trial, the music mogul was found not guilty of the most serious charges against him.`\
 https://nytimes.com/2025/07/03/podcasts/the-daily/sean-combs-diddy-verdict.html
-
-**Knicks, Magic or Cavs: Which teams are prepared to jump up in the Eastern Conference?**\
-`The Leastern Conference? With all the injuries and turmoil, Eric Koreen takes a look at team tiers for the upcoming season. `\
-https://nytimes.com/athletic/6469389/2025/07/03/knicks-magic-cavaliers-eastern-conference-tiers-nba/
 
