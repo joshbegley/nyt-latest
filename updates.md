@@ -1,3 +1,15 @@
+**The 2025 Summer Entertaining Issue**\
+`T drops in on meals prepared by friends on trips together around the world and shares tips for your own gatherings.`\
+https://nytimes.com/issue/t-magazine/2025/07/03/summer-entertaining-2025
+
+**How Bad Is This Bill? The Answer in 10 Charts**\
+`Steven Rattner reveals the ugly reality lurking within the ‘big beautiful bill.’`\
+https://nytimes.com/interactive/2025/07/03/opinion/domestic-policy-bill-in-charts.html
+
+**Clayton Kershaw reached milestone as Austin Barnes tried 'to will it over the phone'**\
+`Barnes, a Dodgers mainstay, caught Kershaw 86 times over the years and felt a deep connection to the 3,000th strikeout.`\
+https://nytimes.com/athletic/6471968/2025/07/03/dodgers-clayton-kershaw-austin-barnes-strikeouts/
+
 **‘Trump Has Betrayed His Working-Class Voters’: What 7 Conservatives Really Think of Trump’s Bill**\
 `Seven writers on the best and worst provisions in Trump’s bill.`\
 https://nytimes.com/2025/07/03/opinion/trump-bill-republicans-conservative.html

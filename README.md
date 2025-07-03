@@ -1,4 +1,8 @@
-**The 2025 Summer Entertaining Issue**\
+**Jack Draper upset by Marin Cilic in Wimbledon second round**\
+`The world No. 4 could not stage another comeback at a major in his home Grand Slam, going out in round two for the second year in a row.`\
+https://nytimes.com/athletic/6472079/2025/07/03/tennis-wimbledon-jack-draper-marin-cilic-result-analysis/
+
+**The Summer Entertaining Issue**\
 `T drops in on meals prepared by friends on trips together around the world and shares tips for your own gatherings.`\
 https://nytimes.com/issue/t-magazine/2025/07/03/summer-entertaining-2025
 
@@ -10,8 +14,8 @@ https://nytimes.com/interactive/2025/07/03/opinion/domestic-policy-bill-in-chart
 `Seven writers on the best and worst provisions in Trump’s bill.`\
 https://nytimes.com/2025/07/03/opinion/trump-bill-republicans-conservative.html
 
-**A Bill That’s Big for Fossil Fuels, Not So Beautiful for Clean Energy**\
-`The Republican legislation muscled through Congress will reshape American’s energy landscape. Here’s a rundown on the winners and losers.`\
+**Here’s How the G.O.P. Bill Will Reshape America’s Energy Landscape**\
+`Here’s a rundown on the winners and losers in the legislation muscled through Congress.`\
 https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
 
 **In Trump’s Bill, Democrats See a Path to Win Back Voters**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471944/2025/07/03/brescia-licence-revoked-bankrupt
 **Top Russian General Killed in ‘Combat Operations’ Near Ukraine**\
 `Maj. Gen. Mikhail Gudkov, promoted to deputy head of the Russian Navy just a few months earlier, died in an apparent Ukrainian strike.`\
 https://nytimes.com/2025/07/03/world/europe/russian-general-killed-ukraine-strike.html
-
-**Fourth of July watch guide: What our staff is streaming, from live sports to movies**\
-`There's an interesting sports slate built around July 4th, and it's also "The Sandlot" season. Here's what we're watching this weekend.`\
-https://nytimes.com/athletic/6470310/2025/07/03/fourth-of-july-sports-movies-hot-dogs-baseball-how-to-watch/
 
