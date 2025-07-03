@@ -1,3 +1,7 @@
+**E.P.A. Puts 144 Employees on Leave for Signing Letter Criticizing Trump**\
+`The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
+https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
+
 **Manchester City Women appoint Andree Jeglertz as head coach**\
 `Jeglertz will remain in charge of Denmark for the Euros before taking over at City.`\
 https://nytimes.com/athletic/6402039/2025/07/03/manchester-city-andree-jeglertz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-
 **A Last Ride for Clyde Aikau, Surfing Royalty **\
 `Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
 https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
-
-**Sharks claim Nick Leddy: Why the Blues waived him, what he brings to San Jose and where he fits**\
-`St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
-https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
 

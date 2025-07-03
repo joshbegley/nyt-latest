@@ -1,3 +1,7 @@
+**E.P.A. Puts 144 Employees on Leave for Signing Letter Criticizing Trump**\
+`The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
+https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
+
 **Manchester City Women appoint Andree Jeglertz as head coach**\
 `Jeglertz will remain in charge of Denmark for the Euros before taking over at City.`\
 https://nytimes.com/athletic/6402039/2025/07/03/manchester-city-andree-jeglertz/

@@ -1,3 +1,7 @@
+**Get Your Phones Ready, ‘The Group Chat’ Is Coming Back**\
+`Sydney Jo Robinson created the wildly popular TikTok series in March. As she gets ready to release Season 3, it has upended her entire life.`\
+https://nytimes.com/2025/07/03/style/group-chat-tiktok-sydney-jo-robinson.html
+
 **E.P.A. Puts 144 Employees on Leave for Signing Letter Criticizing Trump**\
 `The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
 https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1
 **Scoop City: 2025 AFC East preview**\
 `Key questions, breakout players and positions to watch in the AFC East, plus an NFL legend's take on the rookie wage scale.`\
 https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-patriots-dolphins-jets-scoop-city/
-
-**A Last Ride for Clyde Aikau, Surfing Royalty **\
-`Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
-https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
 
