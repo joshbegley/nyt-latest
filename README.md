@@ -1,3 +1,7 @@
+**They Savaged Their Party’s Bill. Then They Voted for It.**\
+`Many Republicans had harshly criticized President Trump’s marquee bill extending tax cuts and slashing social safety net programs — almost right up until the moment they voted for it.`\
+https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill/they-savaged-their-partys-bill-then-they-voted-for-it
+
 **Steelers sign GM Omar Khan to 3-year extension**\
 `Khan took over a famously conservative team and made a splash with his aggressiveness, but the Steelers' playoff win drought continues.`\
 https://nytimes.com/athletic/6472078/2025/07/03/omar-khan-steelers-gm-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/movies/michael-madsen-dead.html
 **Appeals Court Lets Trump Remove Another Democrat From Independent Agency**\
 `The ruling cited a Supreme Court decision in May that allowed President Trump to sideline Democratic appointees from several other nonpartisan agencies.`\
 https://nytimes.com/2025/07/03/us/politics/trump-labor-relations-authority.html
-
-**Arsenal head of recruitment Ellis to be promoted to technical director**\
-`The Athletic previously reported that new sporting director Andrea Berta is looking to expand the group working around him.`\
-https://nytimes.com/athletic/6471906/2025/07/03/arsenal-james-ellis-technical-director/
 

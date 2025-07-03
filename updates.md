@@ -1,3 +1,11 @@
+**Steelers sign GM Omar Khan to 3-year extension**\
+`Khan took over a famously conservative team and made a splash with his aggressiveness, but the Steelers' playoff win drought continues.`\
+https://nytimes.com/athletic/6472078/2025/07/03/omar-khan-steelers-gm-extension/
+
+**Alternate Juror at the Sean Combs Trial: ‘I Understand’ the Verdict**\
+`A Manhattan man who did not deliberate but heard all 28 days of testimony said in an interview that he was not persuaded by the prosecution’s case.`\
+https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-alternate-juror.html
+
 **Clouds Are Cool, but Have You Ever Seen One Like This?**\
 `A “roll cloud” spotted off the coast of Portugal looked like something out of a movie. Here’s the science behind it.`\
 https://nytimes.com/2025/07/03/weather/roll-cloud-portugal-heat-wave.html
