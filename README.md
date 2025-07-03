@@ -1,3 +1,11 @@
+**What the Republicans’ New Policy Bill Means for Higher Education**\
+`Social work majors might struggle to get student loans. University endowments would be more heavily taxed. But students in some training programs would become eligible for Pell Grants.`\
+https://nytimes.com/2025/07/03/us/trump-bill-education-college-student-loans.html
+
+**Trump Administration Asserted Sweeping Power in Seeking to Bypass TikTok Ban**\
+`Legal experts warned that the move appeared to set a significant new precedent about the potential reach of presidential authority.`\
+https://nytimes.com/2025/07/03/us/politics/trump-bondi-tiktok-executive-power.html
+
 **Malik Beasley facing complaint from former agency amid gambling investigation**\
 `Beasley has been trailed by lawsuits and liens since he got to the league, and concerns from at least one team about his off-court life`\
 https://nytimes.com/athletic/6470182/2025/07/03/malik-beasley-pistons-gambling-investigation-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/briefing/trump-policy-bill-europe-heatwave-vietna
 **Junk Food for the Mind**\
 `It’s not an education if A.I. does your thinking for you.`\
 https://nytimes.com/2025/07/03/opinion/aritificial-intelligence-education.html
-
-**Dispute Over Golden Globes Heats Up**\
-`The Hollywood Foreign Press Association, which ran the awards show until a couple of years ago, has voted to investigate the deal that sold the event to a joint venture.`\
-https://nytimes.com/2025/07/03/business/media/golden-globes-hfpa-penske-media-eldridge.html
-
-**Finding Beauty in Midair**\
-`Stretched out in the sunshine, even the flimsiest things radiate inner light.`\
-https://nytimes.com/interactive/2025/07/03/opinion/clean-laundry-clotheslines-beauty.html
 
