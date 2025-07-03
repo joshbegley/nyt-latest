@@ -1,5 +1,5 @@
 **Diogo Jota, Liverpool Soccer Star, Dies in Car Crash at 28**\
-`Mr. Jota and his brother Andrés, 26, died in Spain, the authorities said. The crash came two weeks after the Portuguese player’s wedding.`\
+`Mr. Jota and his brother André, 26, died in Spain, the authorities said. The crash came two weeks after the Portuguese player’s wedding.`\
 https://nytimes.com/2025/07/03/world/europe/diogo-jota-dead-car-crash-liverpool.html
 
 **How to watch the 2025 British Grand Prix, F1's big midseason test**\

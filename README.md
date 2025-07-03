@@ -1,3 +1,7 @@
+**How Health Care Remade the U.S. Economy**\
+`Medicine is now the nation’s largest employer, but its growth may be slowing.`\
+https://nytimes.com/interactive/2025/07/03/business/economy/healthcare-jobs.html
+
 **Diogo Jota, Liverpool Soccer Star, Dies in Car Crash at 28**\
 `Mr. Jota and his brother André, 26, died in Spain, the authorities said. The crash came two weeks after the Portuguese player’s wedding.`\
 https://nytimes.com/2025/07/03/world/europe/diogo-jota-dead-car-crash-liverpool.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/arts/things-to-do-nyc-july-2025.html
 **After Mamdani Mania, the Next Democratic Test Comes to Tucson**\
 `Adelita Grijalva remains heavily favored to win the House seat of her late father, Raúl Grijalva, but youthful challengers and tired voters are asking why change is so hard for Democrats.`\
 https://nytimes.com/2025/07/03/us/tucson-arizona-democrats.html
-
-**Dan Evans sacrificed his career for Andy Murray's Olympic farewell. Now he is back on Centre Court**\
-`12 months ago, Evans sacrificed his career to play at the Olympics. Now he is back on Centre Court at his home major.`\
-https://nytimes.com/athletic/6468549/2025/07/03/tennis-dan-evans-wimbledon-olympics-rankings-andy-murray/
 
