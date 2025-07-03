@@ -1,3 +1,15 @@
+**Skydiving Plane With 15 Aboard Crashes on Takeoff in New Jersey**\
+`The plane, a Cessna 208B, went off the end of a runway as it was taking off from a small airport in Gloucester County, according to the F.A.A. Victims were being treated at the scene, officials said.`\
+https://nytimes.com/2025/07/02/nyregion/plane-crash-new-jersey-cross-keys.html
+
+**Ronald Acuña Jr. makes All-Star team in his comeback season**\
+`ATLANTA — When Ronald Acuña Jr.`\
+https://nytimes.com/athletic/6470143/2025/07/02/ronald-acuna-all-star-comeback/
+
+**Francisco Lindor becomes Mets' first fan-elected starter since 2016**\
+`Francisco Lindor is the Mets' first fan-elected starter since Yoenis Cespedes in 2016.`\
+https://nytimes.com/athletic/6470234/2025/07/02/francisco-lindor-mets-all-star/
+
 **Francisco Lindor becomes Mets' first fan-elected starter since 2016**\
 `NEW YORK — The wait is over.`\
 https://nytimes.com/athletic/6470234/2025/07/02/francisco-lindor-mets-all-star/
