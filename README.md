@@ -1,3 +1,15 @@
+**A Bill That’s Big for Fossil Fuels, Not So Beautiful for Clean Energy**\
+`The Republican legislation muscled through Congress will reshape American’s energy landscape. Here’s a rundown on the winners and losers.`\
+https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
+
+**In Trump’s Bill, Democrats See a Path to Win Back Voters**\
+`Top party officials see the president’s sweeping domestic policy bill as cruel and fiscally ruinous — and they’re betting the American public will, too.`\
+https://nytimes.com/2025/07/03/us/politics/democrats-trump-bill.html
+
+**Clayton Kershaw reached milestone as his ex-catcher tried 'to will it over the phone'**\
+`Barnes, a Dodgers mainstay, caught Kershaw 86 times over the years and felt a deep connection to the 3,000th strikeout.`\
+https://nytimes.com/athletic/6471968/2025/07/03/dodgers-clayton-kershaw-austin-barnes-strikeouts/
+
 **A Potential Tropical Depression Brings Heavy Rain to Florida**\
 `The National Hurricane Center is tracking a “disturbance” that could intensify in the coming days.`\
 https://nytimes.com/2025/07/03/weather/florida-tropical-depression-storm-rain.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/03/fashion/jewelry-young-designers-seoul.html
 **In Mexico, a Family Focused on Twists of Silver Filigree**\
 `Even the grandchildren in the Salgado Téllez workshop know how to create jewelry by hand.`\
 https://nytimes.com/2025/07/03/fashion/jewelry-silver-filigree-salgado-mexico.html
-
-**Astros' Yordan Alvarez gets 'encouraging news' from hand specialist**\
-`Houston's slugger received two injections in his injured right hand and will be shut down from baseball activities for the immediate future.`\
-https://nytimes.com/athletic/6471918/2025/07/03/astros-yordan-alvarez-hand-injury/
-
-**Pinkie Rings Go Big**\
-`As women adopt an accessory traditionally worn by men, designers have begun creating unusual statement pieces for that often-overlooked fifth finger.`\
-https://nytimes.com/2025/07/03/fashion/jewelry-pinkie-rings.html
-
-**How Wiegman has evolved: A dislike of rules, her 'direct' style and embracing English food**\
-`The Dutchwoman has been in charge of the Lionesses for four years. She explains how she has changed her managerial approach in that time`\
-https://nytimes.com/athletic/6469785/2025/07/03/sarina-wiegman-england-evolution/
 
