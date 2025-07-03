@@ -1,3 +1,15 @@
+**With Her Designs, Pebbles Become Distinctive Jewelry**\
+`Nathalie Mathoulin said her young children “were the ones showing me the way of looking at stones.”`\
+https://nytimes.com/2025/07/03/fashion/jewelry-pebbles-nathalie-mathoulin-england.html
+
+**Why Buyers Are Spending Millions on Colored Diamonds**\
+`Is the global turmoil driving sales of portable assets? Or is it just a love of rare jewels?`\
+https://nytimes.com/2025/07/03/fashion/jewelry-colored-diamonds-christies.html
+
+**Extreme Heat Shuts Down Some Nuclear Reactors in Europe**\
+`Power plant operators in Switzerland and France idled reactors so that discharged cooling water would not harm wildlife in already-hot rivers.`\
+https://nytimes.com/2025/07/03/climate/extreme-heat-nuclear-shutdowns.html
+
 **Get Your Phones Ready, ‘The Group Chat’ Is Coming Back**\
 `Sydney Jo Robinson created the wildly popular TikTok series in March. As she gets ready to release Season 3, it has upended her entire life.`\
 https://nytimes.com/2025/07/03/style/group-chat-tiktok-sydney-jo-robinson.html
