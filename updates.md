@@ -1,3 +1,7 @@
+**A Pop Star’s Cookies Draw a Crowd (No Backflip Required)**\
+`With help from social media, Crumbl’s Benson Boone-inspired Moonbeam Ice Cream has received an extended run.`\
+https://nytimes.com/2025/07/03/style/benson-boone-crumbl-moonbeam-ice-cream-cookie.html
+
 **Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
 `it is understood that relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
 https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/

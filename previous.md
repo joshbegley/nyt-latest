@@ -1,3 +1,7 @@
+**A Pop Star’s Cookies Draw a Crowd (No Backflip Required)**\
+`With help from social media, Crumbl’s Benson Boone-inspired Moonbeam Ice Cream has received an extended run.`\
+https://nytimes.com/2025/07/03/style/benson-boone-crumbl-moonbeam-ice-cream-cookie.html
+
 **Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
 `it is understood that relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
 https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/dining/where-have-all-the-dollar-eats-gone.html
 **How Los Angeles Police Officers Broke Protocols and Injured Protesters**\
 `A Times analysis of videos and interviews with police, protesters and legal experts found that officers misused 40-mm sponge rounds at immigration-raid protests.`\
 https://nytimes.com/video/world/americas/100000010259036/los-angeles-protests-lapd-violence.html
-
-**Accused Minnesota Assassin Ordered to Remain in Jail Until Federal Trial**\
-`The suspect faces federal and state murder charges over shootings that killed a state lawmaker and her husband and wounded another couple. He told a judge he was “looking forward to court.”`\
-https://nytimes.com/2025/07/03/us/boelter-minnesota-shooting.html
 
