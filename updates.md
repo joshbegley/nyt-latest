@@ -1,3 +1,7 @@
+**Jim Shooter, Editor Who ‘Saved the Comics Industry,’ Dies at 73**\
+`He brought order and profits to Marvel in the 1980s and helped establish the genre as a popular-culture tent pole for decades to come.`\
+https://nytimes.com/2025/07/03/arts/jim-shooter-dead.html
+
 **Trump Claims Sweeping Power to Nullify Laws, Letters on TikTok Ban Show**\
 `In purporting to license otherwise illegal conduct by tech firms, President Trump set a precedent expanding executive power, legal experts warned.`\
 https://nytimes.com/2025/07/03/us/politics/trump-bondi-tiktok-executive-power.html
