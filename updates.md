@@ -1,3 +1,7 @@
+**Red Light: NHL free agency hot takes. Plus: The little-known rule that could ruin Buffalo’s summer**\
+`Good morning to everyone except teams that don’t put the dollar value in their contract announcements. `\
+https://nytimes.com/athletic/6471113/2025/07/03/nhl-free-agency-hot-takes-plus-the-little-known-rule-that-could-ruin-buffalos-summer/
+
 **Trump Wants the World to Squeeze Out China. He’s Starting With Vietnam.**\
 `An initial trade deal with Vietnam offers a glimpse of how President Trump is pushing countries to cut back on trade with China.`\
 https://nytimes.com/2025/07/03/business/trump-tariffs-vietnam-southeast-asia.html
