@@ -1,3 +1,7 @@
+**The House Passed Trump’s Big Bill, Showcasing His Power**\
+`Also, the U.S. labor market remained robust. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
+
 **Bonmati returns for Spain a week after viral meningitis hospitalisation**\
 `Bonmati entered the field in the 81st minute of Spain's group stage win over Portugal at Euro 2025.`\
 https://nytimes.com/athletic/6468281/2025/07/03/aitana-bonmati-spain-return-meningitis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/world/africa/david-mabuza-dead.html
 **Ben Shelton's Wimbledon match suspended due to darkness as he serves for win**\
 `Shelton is the latest American tennis player to fall foul of Wimbledon's curfews.`\
 https://nytimes.com/athletic/6472417/2025/07/03/ben-shelton-wimbledon-match-suspended-darkness/
-
-**Mexico Confirms Arrest Warrant for Boxer Julio César Chávez Jr.**\
-`The well-known Mexican boxer was detained by U.S. immigration agents in California on Wednesday, days after fighting a high-profile contest against the former YouTuber Jake Paul.`\
-https://nytimes.com/2025/07/03/world/americas/mexico-arrest-warrant-boxer-julio-cesar-chavez-jr.html
 
