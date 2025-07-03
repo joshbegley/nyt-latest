@@ -1,3 +1,15 @@
+**Pardoned Jan. 6 Rioter Sentenced to Life in Assassination Plot**\
+`Edward Kelley had been convicted of plotting to kill the law enforcement officers who had investigated his case.`\
+https://nytimes.com/2025/07/03/us/politics/jan6-assassination-plot-sentence.html
+
+**Venus Williams says she dealt with painful fibroids for decades: 'I never had enough energy'**\
+`Williams opened up about her painful struggle with uterine fibroids, which went undiagnosed for years.`\
+https://nytimes.com/athletic/6471549/2025/07/03/venus-williams-tennis-fibroids/
+
+**How a Parasitic Bird With No Parents Learns What Species It Is**\
+`Cowbird mothers abandon their eggs in the nests of other bird species, but the chicks somehow manage to find their flock and learn what they really are.`\
+https://nytimes.com/2025/07/03/science/cowbirds-parasites-species.html
+
 **Supreme Court to hear cases challenging state bans on transgender athletes**\
 `The decision could have sweeping ramifications for more than two dozen states across the country with similar laws.`\
 https://nytimes.com/athletic/6471533/2025/07/03/supreme-court-transgender-athletes-bans/
