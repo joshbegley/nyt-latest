@@ -1,3 +1,7 @@
+**USWNT revives set piece dominance with 3-0 win over continental rival Canada**\
+`Midfielder Rose Lavelle facilitated two of the three goals for the U.S.`\
+https://nytimes.com/athletic/6470406/2025/07/02/uswnt-revives-set-piece-dominance-win-canada/
+
 **Brent Burns agrees to 1-year contract with Colorado Avalanche**\
 `Burns has played 925 consecutive regular-season games.`\
 https://nytimes.com/athletic/6458348/2025/07/02/brent-burns-avalanche-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470265/2025/07/02/mlb-all-star-starters-aaron-judg
 **Red Panda fractured wrist after fall during act at WNBA Commissioner’s Cup game**\
 `Her agent said the accident was due to the left pedal of her unicycle being damaged while in transit.`\
 https://nytimes.com/athletic/6470285/2025/07/02/red-panda-wrist-fracture-wnba-commissioners-cup/
-
-**Padres’ Manny Machado named All-Star Game starter at 3B over Dodgers’ Max Muncy**\
-`The two division rivals were the finalists for that honor after receiving the most fan votes in the first phase of voting.`\
-https://nytimes.com/athletic/6470196/2025/07/02/padres-manny-machado-all-star-2025/
 

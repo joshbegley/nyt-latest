@@ -1,3 +1,11 @@
+**Brent Burns agrees to 1-year contract with Colorado Avalanche**\
+`Burns has played 925 consecutive regular-season games.`\
+https://nytimes.com/athletic/6458348/2025/07/02/brent-burns-avalanche-contract/
+
+**Them’s Fighting Words!**\
+`Adam Wagner tells us which way to go.`\
+https://nytimes.com/2025/07/02/crosswords/daily-puzzle-07-03.html
+
 **Sean Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
 `Sean Combs, the hip-hop mogul who built a business empire around his personal brand, was convicted on Wednesday of transporting prostitutes to participate in his drug-fueled sex marathons, but acquitted of racketeering and sex trafficking, the most serious charges against him.`\
 https://nytimes.com/video/us/100000010263390/sean-combs-acquitted-of-sex-trafficking-but-found-guilty-on-lesser-charges.html
