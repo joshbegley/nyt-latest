@@ -1,3 +1,7 @@
+**Sean Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
+`Sean Combs, the hip-hop mogul who built a business empire around his personal brand, was convicted on Wednesday of transporting prostitutes to participate in his drug-fueled sex marathons, but acquitted of racketeering and sex trafficking, the most serious charges against him.`\
+https://nytimes.com/video/us/100000010263390/sean-combs-acquitted-of-sex-trafficking-but-found-guilty-on-lesser-charges.html
+
 **A federal judge blasts a ‘war’ against D.E.I. by federal health agencies.**\
 `In a 103-page opinion, Judge William G. Young chronicled an “unmistakable pattern of discrimination” by the Trump administration in its termination of federal science funding.`\
 https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news/a-federal-judge-blasts-a-war-against-dei-by-federal-health-agencies
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6470285/2025/07/02/red-panda-wrist-fracture-wnba-co
 `The two division rivals were the finalists for that honor after receiving the most fan votes in the first phase of voting.`\
 https://nytimes.com/athletic/6470196/2025/07/02/padres-manny-machado-all-star-2025/
 
-**Skydiving Plane With 15 Aboard Crashes on Takeoff in New Jersey**\
+**Skydiving Plane With 15 Aboard Crashes in New Jersey**\
 `The plane, a Cessna 208B, went off the end of a runway as it was taking off from a small airport in Gloucester County, according to the F.A.A. Victims were being treated at the scene, officials said.`\
 https://nytimes.com/2025/07/02/nyregion/plane-crash-new-jersey-cross-keys.html
 
 **Ronald Acuña Jr. makes All-Star team in his comeback season**\
 `ATLANTA — When Ronald Acuña Jr.`\
 https://nytimes.com/athletic/6470143/2025/07/02/ronald-acuna-all-star-comeback/
-
-**Francisco Lindor becomes Mets' first fan-elected starter since 2016**\
-`Francisco Lindor is the Mets' first fan-elected starter since Yoenis Cespedes in 2016.`\
-https://nytimes.com/athletic/6470234/2025/07/02/francisco-lindor-mets-all-star/
 
