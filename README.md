@@ -1,3 +1,7 @@
+**Madre Fire Explodes to 35,000 Acres, Becoming California’s Largest This Year**\
+`The blaze is burning in a desolate area of San Luis Obispo County, but its smoke has spread to two nearby counties.`\
+https://nytimes.com/2025/07/03/us/madre-wildfire-san-luis-obispo-california.html
+
 **Trump Administration Live Updates: House Moves Ahead With President’s Policy Bill Amid G.O.P. Resistance**\
 `A vote allowing the bill to come up for debate indicated a breakthrough after Speaker Mike Johnson haggled with Republican holdouts into the early hours of Thursday.`\
 https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/crosswords/spelling-bee-forum.html
 **Sean Combs’s Lawyers Celebrate His Acquittal**\
 `Lawyers said Sean “Diddy” Combs was thankful to have avoided a possible life sentence. The jury found the hip-hop mogul guilty of lesser charges of transporting prostitutes.`\
 https://nytimes.com/video/us/100000010265441/combs-acquitted-sex-trafficking-sean-diddy.html
-
-**House Moves Ahead on Trump Policy Bill, Overcoming G.O.P. Resistance**\
-`The action suggested a breakthrough on the party’s signature legislation that came after House Republican leaders haggled into the early morning hours with conservatives holdouts.`\
-https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
 
