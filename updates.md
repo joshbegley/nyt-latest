@@ -1,3 +1,7 @@
+**Clayton Kershaw reflects on long, difficult journey to 3,000 strikeouts: 'I am grateful'**\
+`“I’ve been through it. Ups and downs here. More downs than I care to admit. But the fans tonight, it really meant a lot," Kershaw said.`\
+https://nytimes.com/athletic/6470769/2025/07/03/dodgers-clayton-kershaw-3000-strikeouts/
+
 **The Pulse: What’s real about the WNBA.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6470731/2025/07/03/wnba-expansion-caitlin-clark-the-pulse/
