@@ -1,3 +1,11 @@
+**Russell says 'exceptionally low' chance he will leave Mercedes, no Verstappen contract update**\
+`Russell's contract at Mercedes expires at the end of 2025, while Verstappen is tied to Red Bull until 2028.`\
+https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1-contracts/
+
+**Scoop City: 2025 AFC East preview**\
+`Key questions, breakout players and positions to watch in the AFC East, plus an NFL legend's take on the rookie wage scale.`\
+https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-patriots-dolphins-jets-scoop-city/
+
 **A Last Ride for Clyde Aikau, Surfing Royalty **\
 `Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
 https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6471316/2025/07/03/mike-brown-knicks-evolution-expe
 **In Europe, Economists See a Chance to Rise on the Global Stage**\
 `Central bankers who gathered in Portugal this week focused on ways that Europe could improve its competitiveness with the United States and China.`\
 https://nytimes.com/2025/07/03/business/europe-economy-trump-competition.html
-
-**Fury in talks to return to boxing with Usyk trilogy fight in 2026**\
-`Fury announced his retirement from the sport in January, the fifth time he had indicated he was stepping away from the ring.`\
-https://nytimes.com/athletic/6470029/2025/07/03/tyson-fury-return-oleksandr-usyk/
-
-**Sharks sign Dmitry Orlov to 2-year contract with $6.5 million cap hit**\
-`Orlov is a well-rounded presence on the blue line, capable of handling a heavy workload.`\
-https://nytimes.com/athletic/6438403/2025/07/03/sharks-dmitry-orlov-contract-details/
 

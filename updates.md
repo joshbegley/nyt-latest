@@ -1,3 +1,11 @@
+**Russell says 'exceptionally low' chance he will leave Mercedes, no Verstappen contract update**\
+`Russell's contract at Mercedes expires at the end of 2025, while Verstappen is tied to Red Bull until 2028.`\
+https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1-contracts/
+
+**Scoop City: 2025 AFC East preview**\
+`Key questions, breakout players and positions to watch in the AFC East, plus an NFL legend's take on the rookie wage scale.`\
+https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-patriots-dolphins-jets-scoop-city/
+
 **Sharks claim Nick Leddy: Why the Blues waived him, and what he brings to San Jose**\
 `St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
 https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
