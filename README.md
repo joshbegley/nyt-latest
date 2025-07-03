@@ -1,5 +1,5 @@
-**Trump Administration Live Updates: Speaker Says There Are Enough Votes to Advance President’s Bill**\
-`Speaker Mike Johnson said Republicans had enough votes to move the bill to the House floor for debate, after discussions with holdouts dragged into the early hours of Thursday.`\
+**Trump Administration Live Updates: House Moves Ahead With President’s Policy Bill Amid G.O.P. Resistance**\
+`A vote allowing the bill to come up for debate indicated a breakthrough after Speaker Mike Johnson haggled with Republican holdouts into the early hours of Thursday.`\
 https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
 
 **Despite loss to Norway, Switzerland's opening Euro 2025 match showed promise of what could be**\
@@ -34,7 +34,7 @@ https://nytimes.com/2025/07/03/crosswords/spelling-bee-forum.html
 `Lawyers said Sean “Diddy” Combs was thankful to have avoided a possible life sentence. The jury found the hip-hop mogul guilty of lesser charges of transporting prostitutes.`\
 https://nytimes.com/video/us/100000010265441/combs-acquitted-sex-trafficking-sean-diddy.html
 
-**Trump Policy Bill Stalls as Johnson Works to Wear Down G.O.P. Resistance**\
-`After a day of paralysis, the House remained frozen in place overnight as party leaders labored to address the concerns of Republican holdouts to the party’s major policy bill.`\
+**House Moves Ahead on Trump Policy Bill, Overcoming G.O.P. Resistance**\
+`The action suggested a breakthrough on the party’s signature legislation that came after House Republican leaders haggled into the early morning hours with conservatives holdouts.`\
 https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
 

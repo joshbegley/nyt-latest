@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Speaker Says There Are Enough Votes to Advance President’s Bill**\
+`Speaker Mike Johnson said Republicans had enough votes to move the bill to the House floor for debate, after discussions with holdouts dragged into the early hours of Thursday.`\
+https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
+
 **Trump Administration Live Updates: House G.O.P. Resistance Stalls President’s Policy Bill**\
 `Speaker Mike Johnson and other Republican leaders haggled into the early hours of Thursday to try and convince their party’s holdouts to support the bill.`\
 https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
