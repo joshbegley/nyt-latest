@@ -1,3 +1,11 @@
+**Winners (Hawks), losers (July) and more (Lakers) from NBA free agency's first days**\
+`The summer transaction cycle isn't what it used to be, but we still had plenty of action to analyze this week.`\
+https://nytimes.com/athletic/6470729/2025/07/03/nba-free-agency-2025-winners-losers-lakers-celtics-hawks/
+
+**Tracking Tropical Storm Mun**\
+`See the likely path and wind arrival times for Mun`\
+https://nytimes.com/interactive/2025/07/03/weather/mun-map-path-tracker.html
+
 **Hamilton warns against rushing into making sequel to F1 The Movie**\
 `Seven-time F1 world champion Hamilton served as a producer on F1 The Movie, which starred Brad Pitt and was released last week worldwide.`\
 https://nytimes.com/athletic/6471485/2025/07/03/lewis-hamilton-f1-movie-sequel/
