@@ -1,3 +1,11 @@
+**Sharks sign Dmitry Orlov to 2-year contract with $6.5 million cap hit**\
+`Orlov is a well-rounded presence on the blue line, capable of handling a heavy workload.`\
+https://nytimes.com/athletic/6438403/2025/07/03/sharks-dmitry-orlov-contract-details/
+
+**The MLB prospects execs say are most likely to be traded at the deadline**\
+`Which top prospects could be on the move in the biggest trades before the July 31 deadline? Here are eight identified by front office execs.`\
+https://nytimes.com/athletic/6470899/2025/07/03/mlb-prospects-trade-deadline-executive-survey/
+
 **How Syria’s Dictator Buried His Victims**\
 `A cemetery near Damascus was transformed into an industrial-scale mass grave for Syrians who opposed President Bashar al-Assad.`\
 https://nytimes.com/interactive/2025/07/03/world/middleeast/syria-mass-grave-assad-regime.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6471298/2025/07/03/diogo-jota-wolves-liverpool-fans
 **Impressively Easy Berries and Cream Cake Impresses, Easily**\
 `You don’t need any fancy equipment to make this beautiful sheet cake (and you don’t need to remember to soften your butter first, either).`\
 https://nytimes.com/2025/07/03/dining/easy-berry-sheet-cake-for-july-4.html
-
-**Who to watch at Nathan's Famous Hot Dog Eating Contest: Joey Chestnut, Miki Sudo and the field**\
-`The 16-time champ is back in the Nathan's Famous International Hot Dog Eating Contest, but elite eaters worldwide will be at Coney Island.`\
-https://nytimes.com/athletic/6470093/2025/07/03/joey-chestnut-nathans-hot-dog-eating-contest-miki-sudo/
-
-**With WNBA expansion adding roster spots, it's time to drop the age restriction**\
-`To keep the WNBA's play high-caliber, bringing in young college stars should be a priority.`\
-https://nytimes.com/athletic/6470548/2025/07/03/wnba-age-restriction-limit-expansion/
 
