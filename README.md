@@ -1,3 +1,7 @@
+**E.P.A. Employees Are Invited to Adopt Soon-to-Be Homeless Lab Rats**\
+`The agency is cutting animal testing of chemicals. Some scientists are concerned, but in the meantime the rats (and zebra fish) need new homes.`\
+https://nytimes.com/2025/07/03/climate/epa-lab-rat-zebra-fish-adoption.html
+
 **Jeffries Has His Moment in Hourslong Speech Opposing Trump’s Policy Bill**\
 `Representative Hakeem Jeffries, the New York Democrat and minority leader, delayed a final House vote with an impassioned speech, saying he would take his “sweet time” assailing the measure.`\
 https://nytimes.com/2025/07/03/us/politics/hakeem-jeffries-house-speech-magic-minute-trump-bill.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/07/03/us/politics/hakeem-jeffries-house-speech-magic-mi
 `See detailed maps of the latest temperature forecasts across Europe.`\
 https://nytimes.com/interactive/2025/07/03/world/europe/europe-heat-map-tracker.html
 
-**North Korea Opens Beach Resort Hoping to Attract Foreign Tourists**\
-`North Korean state media described the Wonsan Kalma complex on the country’s eastern coast as “a world-class cultural resort.”`\
+**North Korea Opens Beach Resort, Hoping to Attract Foreign Tourists**\
+`The resort was on Kalma Beach, which South Korean media nicknamed ‘North Korea’s Waikiki.”`\
 https://nytimes.com/video/world/asia/100000010265683/north-korea-beach-resort-.html
 
 **Dier: ‘Objective’ is to return to England squad**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470723/2025/07/03/nickeil-alexander-walker-timberw
 **Why Diogo Jota, Liverpool’s supreme goalscorer, was far more than just a footballer**\
 `The Portuguese, who has died aged 28, was a force of nature on the pitch and cherished by his team-mates off it `\
 https://nytimes.com/athletic/6471080/2025/07/03/diogo-jota-profile-liverpool/
-
-**Red Light: NHL free agency hot takes. Plus: The little-known rule that could ruin Buffalo’s summer**\
-`Good morning to everyone except teams that don’t put the dollar value in their contract announcements. `\
-https://nytimes.com/athletic/6471113/2025/07/03/nhl-free-agency-hot-takes-plus-the-little-known-rule-that-could-ruin-buffalos-summer/
 
