@@ -1,3 +1,7 @@
+**Winners (Hawks), losers (July) and more (Lakers) from NBA free agency's first days**\
+`The summer transaction cycle isn't what it used to be, but we still had plenty of action to analyze this week.`\
+https://nytimes.com/athletic/6470729/2025/07/03/nba-free-agency-2025-winners-losers-lakers-celtics-hawks/
+
 **Tracking Tropical Storm Mun**\
 `See the likely path and wind arrival times for Mun`\
 https://nytimes.com/interactive/2025/07/03/weather/mun-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470548/2025/07/03/wnba-age-restriction-limit-expan
 **Solid Jobs Report Keeps Fed Rate Cuts at Bay**\
 `The latest labor market data reinforces the central bank’s wait-and-see approach to lowering borrowing costs, despite pressure from President Trump.`\
 https://nytimes.com/2025/07/03/business/jobs-fed-rate-cuts.html
-
-**Real Madrid, Xabi Alonso open to selling Rodrygo this summer**\
-`The 24-year-old has played only 23 minutes for Real Madrid in their three most recent Club World Cup matches.`\
-https://nytimes.com/athletic/6469414/2025/07/03/real-madrid-rodrygo-transfer-latest/
 
