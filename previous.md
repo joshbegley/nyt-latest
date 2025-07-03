@@ -1,3 +1,7 @@
+**Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul loss**\
+`Chávez was determined to be in the country illegally and removable one day before his loss to Jake Paul, according to the DHS.`\
+https://nytimes.com/athletic/6472101/2025/07/03/julio-cesar-chavez-jr-arrest-ice-dhs/
+
 **Liverpool - a city and club locked in numb disbelief**\
 `Merseyside is used to tragedy becoming part of its football narrative, but the death of their beloved striker has cut deep`\
 https://nytimes.com/athletic/6456072/2025/07/03/liverpool-diogo-jota-fans-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470783/2025/07/03/strasbourg-coulibaly-dortmund-tr
 **NHL contract grades: Nikolaj Ehlers is the perfect fit for the Hurricanes at a fair price**\
 `Next to a talented center like Sebastian Aho, there’s a good chance Ehlers can really thrive.`\
 https://nytimes.com/athletic/6472186/2025/07/03/nhl-contract-grades-nikolaj-ehlers-is-the-perfect-fit-for-the-hurricanes-at-a-fair-price/
-
-**They Savaged Their Party’s Bill. Then They Voted for It.**\
-`Many Republicans had harshly criticized President Trump’s marquee bill extending tax cuts and slashing social safety net programs — almost right up until the moment they voted for it.`\
-https://nytimes.com/2025/07/03/us/politics/republican-criticism-trump-policy-bill.html
 

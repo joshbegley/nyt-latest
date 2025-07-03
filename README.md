@@ -1,3 +1,15 @@
+**Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
+`it is understood that relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
+https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/
+
+**Red Wings thoughts: Is Yzerman done dealing? Plus prospect notes from development camp**\
+`What the Red Wings GM said about his offseason Thursday, plus some thoughts on Detroit's prospects from development camp.`\
+https://nytimes.com/athletic/6471951/2025/07/03/red-wings-nhl-free-agency-steve-yzerman-prospect/
+
+**The G.O.P. Policy Bill Would Shift U.S. Energy Policy**\
+`The sprawling bill would boost fossil fuels and end tax credits for wind, solar power and electric vehicles.`\
+https://nytimes.com/2025/07/03/climate/trumps-policy-bill-climate-change-energy.html
+
 **Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul loss**\
 `Chávez was determined to be in the country illegally and removable one day before his loss to Jake Paul, according to the DHS.`\
 https://nytimes.com/athletic/6472101/2025/07/03/julio-cesar-chavez-jr-arrest-ice-dhs/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/americas/100000010259036/los-angeles-protests-la
 **Accused Minnesota Assassin Ordered to Remain in Jail Until Federal Trial**\
 `The suspect faces federal and state murder charges over shootings that killed a state lawmaker and her husband and wounded another couple. He told a judge he was “looking forward to court.”`\
 https://nytimes.com/2025/07/03/us/boelter-minnesota-shooting.html
-
-**Liverpool Star Diogo Jota Killed in Car Crash**\
-`Spanish emergency crews found the Liverpool star Diogo Jota and his brother dead in a car crash along a highway near Cernadilla, Spain.`\
-https://nytimes.com/video/sports/soccer/100000010265918/diogo-liverpool-football-soccer.html
-
-**Strasbourg set to sign Coulibaly from Dortmund**\
-`The 21-year-old is set to move for a fee of €7.5million plus €1m in add-ons. `\
-https://nytimes.com/athletic/6470783/2025/07/03/strasbourg-coulibaly-dortmund-transfer/
-
-**NHL contract grades: Nikolaj Ehlers is the perfect fit for the Hurricanes at a fair price**\
-`Next to a talented center like Sebastian Aho, there’s a good chance Ehlers can really thrive.`\
-https://nytimes.com/athletic/6472186/2025/07/03/nhl-contract-grades-nikolaj-ehlers-is-the-perfect-fit-for-the-hurricanes-at-a-fair-price/
 

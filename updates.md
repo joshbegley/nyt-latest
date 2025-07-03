@@ -1,3 +1,7 @@
+**Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul loss**\
+`Chávez was determined to be in the country illegally and removable one day before his loss to Jake Paul, according to the DHS.`\
+https://nytimes.com/athletic/6472101/2025/07/03/julio-cesar-chavez-jr-arrest-ice-dhs/
+
 **Liverpool - a city and club locked in numb disbelief**\
 `Merseyside is used to tragedy becoming part of its football narrative, but the death of their beloved striker has cut deep`\
 https://nytimes.com/athletic/6456072/2025/07/03/liverpool-diogo-jota-fans-reaction/
