@@ -1,3 +1,7 @@
+**Sean Combs’s Lawyers Celebrate His Acquittal**\
+`Lawyers said Sean “Diddy” Combs was thankful to have avoided a possible life sentence. The jury found the hip-hop mogul guilty of lesser charges of transporting prostitutes.`\
+https://nytimes.com/video/us/100000010265441/combs-acquitted-sex-trafficking-sean-diddy.html
+
 **Trump Policy Bill Stalls as Johnson Works to Wear Down G.O.P. Resistance**\
 `After a day of paralysis, the House remained frozen in place overnight as party leaders labored to address the concerns of Republican holdouts to the party’s major policy bill.`\
 https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/briefing/hamas-israel-sean-combs.html
 **Tim Ream: 'Shame' on USMNT critics as Luna goals set up Mexico final**\
 `The veteran central defender had some strong words for those who have doubted Mauricio Pochettino's team.`\
 https://nytimes.com/athletic/6470643/2025/07/03/usmnt-mexico-guatemala-ream-luna/
-
-**Should Diaz be sold? Our Liverpool writer argues with himself**\
-`The Colombian's future has been the subject of scrutiny all summer. Andy Jones and Andrew Jones untangle the debate`\
-https://nytimes.com/athletic/6468839/2025/07/03/luis-diaz-liverpool-contract-transfer-debate/
 
