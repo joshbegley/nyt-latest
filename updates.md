@@ -1,3 +1,7 @@
+**Israel and Syria in U.S.-Brokered Talks to End Border Conflict, Trump Envoy Says**\
+`Thomas J. Barrack Jr., the U.S. ambassador to Turkey, says Washington is facilitating the discussions and prioritizing economic development over nation-building in the Middle East.`\
+https://nytimes.com/2025/07/03/world/middleeast/israel-syria-border-us-barrack.html
+
 **Celtics depth chart: More changes coming, but where does the roster stand?**\
 `The Celtics have undergone significant change in the offseason. Jay King breaks down where things stand. `\
 https://nytimes.com/athletic/6470195/2025/07/03/celtics-depth-chart-roster-2025-26/
