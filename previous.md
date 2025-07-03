@@ -1,3 +1,7 @@
+**Immigration Agents Appear to Urinate in Public at a California School**\
+`School officials have demanded answers from federal agencies. It was the latest example of how locals have scrutinized the actions of immigration agents.`\
+https://nytimes.com/2025/07/03/us/immigration-agents-urinate-california-school.html
+
 **What we're hearing on the Mets' rotation after another injury**\
 `The Mets have to cobble a rotation together before reinforcements arrive just ahead of the All-Star break.`\
 https://nytimes.com/athletic/6472589/2025/07/03/what-were-hearing-mets-rotation-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6440623/2025/07/03/gabriel-heinze-arsenal-coach/
 **Where the Giants’ pitchers rank first (or last) halfway through the season**\
 `Giants hitters are putting up some scary stats but, on the flip side, Giants pitchers are leading the way in several good categories.`\
 https://nytimes.com/athletic/6469952/2025/07/03/sf-giants-pitching-statistical-rankings/
-
-**The House Passed Trump’s Big Bill, Showcasing His Power**\
-`Also, the U.S. labor market remained robust. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
 

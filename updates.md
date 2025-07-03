@@ -1,3 +1,7 @@
+**Immigration Agents Appear to Urinate in Public at a California School**\
+`School officials have demanded answers from federal agencies. It was the latest example of how locals have scrutinized the actions of immigration agents.`\
+https://nytimes.com/2025/07/03/us/immigration-agents-urinate-california-school.html
+
 **What we're hearing on the Mets' rotation after another injury**\
 `The Mets have to cobble a rotation together before reinforcements arrive just ahead of the All-Star break.`\
 https://nytimes.com/athletic/6472589/2025/07/03/what-were-hearing-mets-rotation-injuries/
