@@ -1,3 +1,7 @@
+**Park Service Is Left Short-Staffed in Peak Travel Season**\
+`Layoffs and departures after pressure from the Trump administration have left sites struggling, with the remaining employees each doing the work of two or three people.`\
+https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html
+
 **Bruins' James Hagens vows to remember 'every team' that passed on him, and why Sean Kuraly came home**\
 `Hagens is set to return for his sophomore season at Boston College but is ready for what's next: “I want to be a Boston Bruin really bad.”`\
 https://nytimes.com/athletic/6472524/2025/07/03/james-hagens-sean-kuraly-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468281/2025/07/03/aitana-bonmati-spain-return-meni
 **Mamdani Identified as Asian and African American on College Application**\
 `Zohran Mamdani, the Democrat running for mayor of New York City, was born in Uganda. He doesn’t consider himself Black but said the application didn’t allow for the complexity of his background.`\
 https://nytimes.com/2025/07/03/nyregion/mamdani-columbia-black-application.html
-
-**Palmeiras coach to U.S. fans before Fourth of July Chelsea clash: 'Join up with us against the English!'**\
-`Ferreira’s light-hearted call to action means that Palmeiras might have a louder cohort of local fans in the stadium on Friday evening.`\
-https://nytimes.com/athletic/6472437/2025/07/03/abel-ferreira-palmeiras-chelsea/
 
