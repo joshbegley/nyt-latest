@@ -1,3 +1,15 @@
+**Trump Policy Bill Stalls as Johnson Works to Wear Down G.O.P. Resistance**\
+`After a day of paralysis, the House remained frozen in place overnight as party leaders labored to address the concerns of Republican holdouts to the party’s major policy bill.`\
+https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
+
+**What we're hearing on Messi's future: Miami contract talks, links to Argentina and 2026 World Cup**\
+`The Club World Cup highlighted some of Miami shortcomings - and those in Argentina believe Messi should reconsider his future in the U.S.`\
+https://nytimes.com/athletic/6464247/2025/07/03/lionel-messi-inter-miami-contract-mls-club-world-cup-argentina/
+
+**Word of the Day: perimeter**\
+`This word has appeared in 1,750 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/03/learning/word-of-the-day-perimeter.html
+
 **Pete Crow-Armstrong's rapid rise keys Cubs' success**\
 `Shota Imanaga made an unexpected star turn in 2024. A year later, it’s Crow-Armstrong’s turn.`\
 https://nytimes.com/athletic/6470689/2025/07/03/pete-crow-armstrong-cubs-success-shota-imanaga/
