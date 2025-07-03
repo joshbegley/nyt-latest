@@ -1,3 +1,11 @@
+**A Last Ride for Clyde Aikau, Surfing Royalty **\
+`Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
+https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
+
+**Sharks claim veteran defenseman Nick Leddy off waivers from Blues**\
+`St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
+https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
+
 **Vatican Publishes a New Mass on Caring for the Environment**\
 `The Mass, along with other steps, show Pope Leo XIV and the Roman Catholic Church building on the environmental commitment of his predecessor, Francis.`\
 https://nytimes.com/2025/07/03/world/europe/vatican-mass-environment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6470029/2025/07/03/tyson-fury-return-oleksandr-usyk
 **Sharks sign Dmitry Orlov to 2-year contract with $6.5 million cap hit**\
 `Orlov is a well-rounded presence on the blue line, capable of handling a heavy workload.`\
 https://nytimes.com/athletic/6438403/2025/07/03/sharks-dmitry-orlov-contract-details/
-
-**The MLB prospects execs say are most likely to be traded at the deadline**\
-`Which top prospects could be on the move in the biggest trades before the July 31 deadline? Here are eight identified by front office execs.`\
-https://nytimes.com/athletic/6470899/2025/07/03/mlb-prospects-trade-deadline-executive-survey/
-
-**How Syria’s Dictator Buried His Victims**\
-`A cemetery near Damascus was transformed into an industrial-scale mass grave for Syrians who opposed President Bashar al-Assad.`\
-https://nytimes.com/interactive/2025/07/03/world/middleeast/syria-mass-grave-assad-regime.html
 
