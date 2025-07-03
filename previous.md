@@ -1,3 +1,15 @@
+**Jeffries Has His Moment in Hourslong Speech Opposing Trump’s Policy Bill**\
+`Representative Hakeem Jeffries, the New York Democrat and minority leader, delayed a final House vote with an impassioned speech, saying he would take his “sweet time” assailing the measure.`\
+https://nytimes.com/2025/07/03/us/politics/hakeem-jeffries-house-speech-magic-minute-trump-bill.html
+
+**Tracking Heat Across Europe**\
+`See detailed maps of the latest temperature forecasts across Europe.`\
+https://nytimes.com/interactive/2025/07/03/world/europe/europe-heat-map-tracker.html
+
+**North Korea Opens Beach Resort Hoping to Attract Foreign Tourists**\
+`North Korean state media described the Wonsan Kalma complex on the country’s eastern coast as “a world-class cultural resort.”`\
+https://nytimes.com/video/world/asia/100000010265683/north-korea-beach-resort-.html
+
 **Dier: ‘Objective’ is to return to England squad**\
 `The 31-year-old joined the Ligue 1 side in May after the expiration of his contract at Bayern Munich.`\
 https://nytimes.com/athletic/6471213/2025/07/03/eric-dier-monaco-england-squad/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6471080/2025/07/03/diogo-jota-profile-liverpool/
 **Red Light: NHL free agency hot takes. Plus: The little-known rule that could ruin Buffalo’s summer**\
 `Good morning to everyone except teams that don’t put the dollar value in their contract announcements. `\
 https://nytimes.com/athletic/6471113/2025/07/03/nhl-free-agency-hot-takes-plus-the-little-known-rule-that-could-ruin-buffalos-summer/
-
-**Trump Wants the World to Squeeze Out China. He’s Starting With Vietnam.**\
-`An initial trade deal with Vietnam offers a glimpse of how President Trump is pushing countries to cut back on trade with China.`\
-https://nytimes.com/2025/07/03/business/trump-tariffs-vietnam-southeast-asia.html
-
-**Bills training camp 2025 tight end preview: Will Dalton Kincaid finally have his breakout season?**\
-`The Bills have a lot invested in the tight end position.`\
-https://nytimes.com/athletic/6391606/2025/07/03/bills-training-camp-2025-tight-end-dalton-kincaid/
-
-**Clayton Kershaw reflects on long, difficult journey to 3,000 strikeouts: 'I am grateful'**\
-`“I’ve been through it. Ups and downs here. More downs than I care to admit. But the fans tonight, it really meant a lot," Kershaw said.`\
-https://nytimes.com/athletic/6470769/2025/07/03/dodgers-clayton-kershaw-3000-strikeouts/
 
