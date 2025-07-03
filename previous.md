@@ -1,9 +1,17 @@
+**Newcastle pushing to secure signing of Elanga from Forest**\
+`The Athletic previously reported that Newcastle had seen a bid in the region of £45million for the 21-year-old rejected by Forest.`\
+https://nytimes.com/athletic/6448441/2025/07/03/newcastle-pushing-elanga-forest-transfer/
+
+**Cruise Ship Passenger Is Missing After Going for a Hike in Alaska**\
+`The woman, a doctor from Kentucky, was last spotted on security footage while leaving a building at the top stop of a tramway in Juneau.`\
+https://nytimes.com/2025/07/03/us/missing-hiker-alaska-cruise-ship.html
+
 **A Pop Star’s Cookies Draw a Crowd (No Backflip Required)**\
 `With help from social media, Crumbl’s Benson Boone-inspired Moonbeam Ice Cream has received an extended run.`\
 https://nytimes.com/2025/07/03/style/benson-boone-crumbl-moonbeam-ice-cream-cookie.html
 
 **Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
-`it is understood that relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
+`The sanction relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
 https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/
 
 **Red Wings thoughts: Is Yzerman done dealing? Plus prospect notes from development camp**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/us/federal-voucher-program-congress-private-schoo
 **ACC’s legal settlement with FSU, Clemson reveals 'super league' escape clause**\
 `That hypothetical — however realistic or unrealistic it may be — is addressed in the settlement agreement that ended the conference’s duelin`\
 https://nytimes.com/athletic/6472151/2025/07/03/accs-legal-settlement-with-fsu-clemson-reveals-super-league-escape-clause/
-
-**Where Have All the Dollar Eats Gone?**\
-`Our new “Where to Eat” writer scours the city for meals that can be enjoyed for a buck.`\
-https://nytimes.com/2025/07/03/dining/where-have-all-the-dollar-eats-gone.html
-
-**How Los Angeles Police Officers Broke Protocols and Injured Protesters**\
-`A Times analysis of videos and interviews with police, protesters and legal experts found that officers misused 40-mm sponge rounds at immigration-raid protests.`\
-https://nytimes.com/video/world/americas/100000010259036/los-angeles-protests-lapd-violence.html
 

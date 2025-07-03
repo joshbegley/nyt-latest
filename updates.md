@@ -1,3 +1,15 @@
+**Newcastle pushing to secure signing of Elanga from Forest**\
+`The Athletic previously reported that Newcastle had seen a bid in the region of £45million for the 21-year-old rejected by Forest.`\
+https://nytimes.com/athletic/6448441/2025/07/03/newcastle-pushing-elanga-forest-transfer/
+
+**Cruise Ship Passenger Is Missing After Going for a Hike in Alaska**\
+`The woman, a doctor from Kentucky, was last spotted on security footage while leaving a building at the top stop of a tramway in Juneau.`\
+https://nytimes.com/2025/07/03/us/missing-hiker-alaska-cruise-ship.html
+
+**Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
+`The sanction relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
+https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/
+
 **A Pop Star’s Cookies Draw a Crowd (No Backflip Required)**\
 `With help from social media, Crumbl’s Benson Boone-inspired Moonbeam Ice Cream has received an extended run.`\
 https://nytimes.com/2025/07/03/style/benson-boone-crumbl-moonbeam-ice-cream-cookie.html
