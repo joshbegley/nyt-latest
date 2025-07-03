@@ -1,3 +1,7 @@
+**Dier: ‘Objective’ is to return to England squad**\
+`The 31-year-old joined the Ligue 1 side in May after the expiration of his contract at Bayern Munich.`\
+https://nytimes.com/athletic/6471213/2025/07/03/eric-dier-monaco-england-squad/
+
 **Trump’s Task as He Heads to Iowa: Selling His Bill to the American Public**\
 `President Trump has spent days cajoling Republicans to support his spending bill. He will also have to sell it to the public as Democrats focus on all the ways it helps the wealthy.`\
 https://nytimes.com/2025/07/03/us/politics/trump-policy-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391606/2025/07/03/bills-training-camp-2025-tight-e
 **Clayton Kershaw reflects on long, difficult journey to 3,000 strikeouts: 'I am grateful'**\
 `“I’ve been through it. Ups and downs here. More downs than I care to admit. But the fans tonight, it really meant a lot," Kershaw said.`\
 https://nytimes.com/athletic/6470769/2025/07/03/dodgers-clayton-kershaw-3000-strikeouts/
-
-**The Pulse: What’s real about the WNBA.**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6470731/2025/07/03/wnba-expansion-caitlin-clark-the-pulse/
 

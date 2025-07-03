@@ -1,3 +1,7 @@
+**Dier: ‘Objective’ is to return to England squad**\
+`The 31-year-old joined the Ligue 1 side in May after the expiration of his contract at Bayern Munich.`\
+https://nytimes.com/athletic/6471213/2025/07/03/eric-dier-monaco-england-squad/
+
 **Why Diogo Jota, Liverpool’s supreme goalscorer, was far more than just a footballer**\
 `The Portuguese, who has died aged 28, was a force of nature on the pitch and cherished by his team-mates off it `\
 https://nytimes.com/athletic/6471080/2025/07/03/diogo-jota-profile-liverpool/
