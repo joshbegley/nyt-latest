@@ -1,3 +1,7 @@
+**How to Have the Perfect Summer**\
+`A roundup of practical guides for the season, featuring tips for hosting, organizing a last-minute vacation and more.`\
+https://nytimes.com/2025/07/03/t-magazine/summer-guides-meals-travel.html
+
 **Russell says 'exceptionally low' chance he will leave Mercedes, no Verstappen contract update**\
 `Russell's contract at Mercedes expires at the end of 2025, while Verstappen is tied to Red Bull until 2028.`\
 https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/immigration-raids-fourth-of-july.html
 **Who might the Knicks get in Mike Brown? Two-time Coach of the Year is still evolving**\
 `Brown is notorious for holding players accountable. His potential employer is betting on personality and diligence more than anything else.`\
 https://nytimes.com/athletic/6471316/2025/07/03/mike-brown-knicks-evolution-expectations/
-
-**In Europe, Economists See a Chance to Rise on the Global Stage**\
-`Central bankers who gathered in Portugal this week focused on ways that Europe could improve its competitiveness with the United States and China.`\
-https://nytimes.com/2025/07/03/business/europe-economy-trump-competition.html
 
