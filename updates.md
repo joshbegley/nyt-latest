@@ -1,3 +1,7 @@
+**Read Abrego Garcia’s Court Filing**\
+`Kilmar Armando Abrego Garcia, the Maryland man who was wrongfully deported to El Salvador in March, was beaten, deprived of sleep and psychologically tortured while in Salvadoran custody, according to court papers filed by his lawyers.`\
+https://nytimes.com/interactive/2025/07/02/us/politics/abrego-garcia-prison-filing.html
+
 **USWNT revives set piece dominance with 3-0 win over continental rival Canada**\
 `Midfielder Rose Lavelle facilitated two of the three goals for the U.S.`\
 https://nytimes.com/athletic/6470406/2025/07/02/uswnt-revives-set-piece-dominance-win-canada/
