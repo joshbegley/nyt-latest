@@ -1,3 +1,7 @@
+**Solid Jobs Report Keeps Fed Rate Cuts at Bay**\
+`The latest labor market data released on Thursday reinforces the central bank’s wait-and-see approach to lowering borrowing costs, despite pressure from President Trump.`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/solid-jobs-report-keeps-fed-rate-cuts-at-bay
+
 **Real Madrid, Xabi Alonso open to selling Rodrygo this summer**\
 `The 24-year-old has played only 23 minutes for Real Madrid in their three most recent Club World Cup matches.`\
 https://nytimes.com/athletic/6469414/2025/07/03/real-madrid-rodrygo-transfer-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/politics/hakeem-jeffries-house-speech-magic-mi
 **Tracking Heat Across Europe**\
 `See detailed maps of the latest temperature forecasts across Europe.`\
 https://nytimes.com/interactive/2025/07/03/world/europe/europe-heat-map-tracker.html
-
-**North Korea Opens Beach Resort, Hoping to Attract Foreign Tourists**\
-`The resort was on Kalma Beach, which South Korean media nicknamed ‘North Korea’s Waikiki.”`\
-https://nytimes.com/video/world/asia/100000010265683/north-korea-beach-resort-.html
 

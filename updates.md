@@ -1,3 +1,7 @@
+**Solid Jobs Report Keeps Fed Rate Cuts at Bay**\
+`The latest labor market data released on Thursday reinforces the central bank’s wait-and-see approach to lowering borrowing costs, despite pressure from President Trump.`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/solid-jobs-report-keeps-fed-rate-cuts-at-bay
+
 **Real Madrid, Xabi Alonso open to selling Rodrygo this summer**\
 `The 24-year-old has played only 23 minutes for Real Madrid in their three most recent Club World Cup matches.`\
 https://nytimes.com/athletic/6469414/2025/07/03/real-madrid-rodrygo-transfer-latest/
