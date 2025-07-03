@@ -1,3 +1,7 @@
+**Can we trust the numbers? Yes, with caveats.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/can-we-trust-the-numbers-yes-with-caveats
+
 **Will Cleveland's new WNBA team be the Rockers? How did it earn an expansion franchise?**\
 `Nic Barlage, CEO of Rock Entertainment Group, talks about his new WNBA ownership.`\
 https://nytimes.com/athletic/6469740/2025/07/03/cleveland-wnba-expansion-franchise-nic-barlage/
