@@ -1,3 +1,7 @@
+**‘Trump Has Betrayed His Working-Class Voters’: What 7 Conservatives Really Think of Trump’s Bill**\
+`Seven writers on the best and worst provisions in Trump’s bill.`\
+https://nytimes.com/2025/07/03/opinion/trump-bill-republicans-conservative.html
+
 **A Bill That’s Big for Fossil Fuels, Not So Beautiful for Clean Energy**\
 `The Republican legislation muscled through Congress will reshape American’s energy landscape. Here’s a rundown on the winners and losers.`\
 https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471710/2025/07/03/deandre-ayton-lakers-fit/
 **A New Generation Rises in Seoul’s Jewelry District**\
 `Young designers, many of them the sons and daughters of longtime jewelers, have established their own businesses in the neighborhood.`\
 https://nytimes.com/2025/07/03/fashion/jewelry-young-designers-seoul.html
-
-**In Mexico, a Family Focused on Twists of Silver Filigree**\
-`Even the grandchildren in the Salgado Téllez workshop know how to create jewelry by hand.`\
-https://nytimes.com/2025/07/03/fashion/jewelry-silver-filigree-salgado-mexico.html
 
