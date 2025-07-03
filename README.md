@@ -1,3 +1,7 @@
+**Despite loss to Norway, Switzerland's opening Euro 2025 match showed promise of what could be**\
+`Switzerland's biggest test won't be winning Euro 2025, but figuring out how to make the most of the tournament`\
+https://nytimes.com/athletic/6469903/2025/07/03/switzerland-euro-2025-host-lesson/
+
 **She Spent Nearly $600,000 on Her Council Race and Lost. Was It Worth It?**\
 `If nothing else, Elizabeth Lewinsohn’s failed bid for a New York City Council seat highlights two great needs: housing and idealistic candidates.`\
 https://nytimes.com/2025/07/03/nyregion/city-council-new-york-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
 **What we're hearing on Messi's future: Miami contract talks, links to Argentina and 2026 World Cup**\
 `The Club World Cup highlighted some of Miami shortcomings - and those in Argentina believe Messi should reconsider his future in the U.S.`\
 https://nytimes.com/athletic/6464247/2025/07/03/lionel-messi-inter-miami-contract-mls-club-world-cup-argentina/
-
-**Word of the Day: perimeter**\
-`This word has appeared in 1,750 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/03/learning/word-of-the-day-perimeter.html
 
