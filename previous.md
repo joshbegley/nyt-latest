@@ -1,3 +1,15 @@
+**All-Star Game starters announced: 4 first-timers including surprise at AL shortstop**\
+`Shohei Ohtani and Aaron Judge will be at the Midsummer Classic, of course, but who saw A's rookie Jacob Wilson coming?`\
+https://nytimes.com/athletic/6470265/2025/07/02/mlb-all-star-starters-aaron-judge-shohei-ohtani/
+
+**Red Panda fractured wrist after fall during act at WNBA Commissioner’s Cup game**\
+`Her agent said the accident was due to the left pedal of her unicycle being damaged while in transit.`\
+https://nytimes.com/athletic/6470285/2025/07/02/red-panda-wrist-fracture-wnba-commissioners-cup/
+
+**Padres’ Manny Machado named All-Star Game starter at 3B over Dodgers’ Max Muncy**\
+`The two division rivals were the finalists for that honor after receiving the most fan votes in the first phase of voting.`\
+https://nytimes.com/athletic/6470196/2025/07/02/padres-manny-machado-all-star-2025/
+
 **Skydiving Plane With 15 Aboard Crashes on Takeoff in New Jersey**\
 `The plane, a Cessna 208B, went off the end of a runway as it was taking off from a small airport in Gloucester County, according to the F.A.A. Victims were being treated at the scene, officials said.`\
 https://nytimes.com/2025/07/02/nyregion/plane-crash-new-jersey-cross-keys.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rum
 **Chicago Suburb Will Buy Pope Leo XIV’s Boyhood Home**\
 `Officials in Dolton, Ill., called the purchase a rare opportunity. But some residents questioned whether the village, grappling with a deficit and potholes, could afford it.`\
 https://nytimes.com/2025/07/02/us/pope-leo-chicago-childhood-home.html
-
-**Trump Says Fed Chair Should ‘Resign Immediately’**\
-`The president escalated his recent attacks on Jerome H. Powell for not cutting interest rates.`\
-https://nytimes.com/2025/07/02/us/politics/trump-jerome-powell-fed.html
-
-**Abrego Garcia Was Beaten and Tortured in El Salvador Prison, Lawyers Say**\
-`Kilmar Armando Abrego Garcia was made to kneel overnight, denied bathroom access and confined in an overcrowded cell with bright lights and no windows, his lawyers say.`\
-https://nytimes.com/2025/07/02/us/politics/kilmar-abrego-garcia-el-salvador-trump-deportation.html
-
-**Cardinals swept: 3 takeaways from 3 ugly losses to the Pirates**\
-`Injuries to Willson Contreras, Nolan Arenado and Lars Nootbar made for a quiet offense: "When you don't have them, it's tough to score'" `\
-https://nytimes.com/athletic/6469715/2025/07/02/cardinals-swept-pirates-takeaways/
 
