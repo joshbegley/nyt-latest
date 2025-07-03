@@ -1,3 +1,15 @@
+**With Her Designs, Pebbles Become Distinctive Jewelry**\
+`Nathalie Mathoulin said her young children “were the ones showing me the way of looking at stones.”`\
+https://nytimes.com/2025/07/03/fashion/jewelry-pebbles-nathalie-mathoulin-england.html
+
+**Why Buyers Are Spending Millions on Colored Diamonds**\
+`Is the global turmoil driving sales of portable assets? Or is it just a love of rare jewels?`\
+https://nytimes.com/2025/07/03/fashion/jewelry-colored-diamonds-christies.html
+
+**Extreme Heat Shuts Down Some Nuclear Reactors in Europe**\
+`Power plant operators in Switzerland and France idled reactors so that discharged cooling water would not harm wildlife in already-hot rivers.`\
+https://nytimes.com/2025/07/03/climate/extreme-heat-nuclear-shutdowns.html
+
 **Get Your Phones Ready, ‘The Group Chat’ Is Coming Back**\
 `Sydney Jo Robinson created the wildly popular TikTok series in March. As she gets ready to release Season 3, it has upended her entire life.`\
 https://nytimes.com/2025/07/03/style/group-chat-tiktok-sydney-jo-robinson.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6471610/2025/07/03/fantasy-bullpen-report-henriquez
 **‘Bet Your Life’ Is a Perky, Ghostly Dramedy**\
 `This Turkish Netflix series puts a metaphysical spin on the small-town murder mystery formula.`\
 https://nytimes.com/2025/07/03/arts/television/bet-your-life-netflix.html
-
-**How to Have the Perfect Summer**\
-`A roundup of practical guides for the season, featuring tips for hosting, organizing a last-minute vacation and more.`\
-https://nytimes.com/2025/07/03/t-magazine/summer-guides-meals-travel.html
-
-**Russell says 'exceptionally low' chance he will leave Mercedes, no Verstappen contract update**\
-`Russell's contract at Mercedes expires at the end of 2025, while Verstappen is tied to Red Bull until 2028.`\
-https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1-contracts/
-
-**Scoop City: 2025 AFC East preview**\
-`Key questions, breakout players and positions to watch in the AFC East, plus an NFL legend's take on the rookie wage scale.`\
-https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-patriots-dolphins-jets-scoop-city/
 
