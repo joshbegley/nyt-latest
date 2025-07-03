@@ -1,3 +1,15 @@
+**Huijsen, Delap, Mbeumo and now Joao Pedro: Why do Newcastle keep missing out on targets?**\
+`Newcastle are yet to sign a senior player this summer and supporter apprehension is growing...`\
+https://nytimes.com/athletic/6468027/2025/07/03/newcastle-transfers-missing-out/
+
+**Dodgers third baseman Max Muncy leaves game vs. White Sox with knee injury**\
+`Muncy hobbled off the field after applying a tag to White Sox baserunner Michael A. Taylor, who was attempting to swipe third base.`\
+https://nytimes.com/athletic/6470610/2025/07/03/dodgers-max-muncy-leaves-game-knee-injury/
+
+**Branthwaite's Everton deal is a statement of club and player - Moyes wants to build around him**\
+`The left-footed centre-back has become one of the most coveted players in Europe - tying him to a five-year deal is a coup for Everton`\
+https://nytimes.com/athletic/6468725/2025/07/03/jarrad-branthwaite-everton-new-contract/
+
 **Olivier Boscagli is not like most Premier League defenders - that may work in Brighton's favour**\
 `He may not be the biggest or most powerful, but Brighton's new signing has the pace and distribution to become a real asset`\
 https://nytimes.com/athletic/6407734/2025/07/03/olivier-boscagli-brighton-signing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6462765/2025/07/03/spain-euro-2025-hermoso-strikers
 **'DNA', talent-spotting and toast tutorials: What it takes to lead Man Utd's academy**\
 `It is one of the biggest jobs in youth football but what is required of the person to take over United's academy?`\
 https://nytimes.com/athletic/6468186/2025/07/03/manchester-united-academy-head-role/
-
-**Mexico outlasts Honduras to set up Gold Cup final showdown against USMNT**\
-`The Concacaf Gold Cup final will be battled out by the region's biggest rivals.`\
-https://nytimes.com/athletic/6470584/2025/07/03/mexico-honduras-gold-cup-usmnt/
-
-**Club World Cup is not a glorious new era for football, whatever Infantino tries to tell us**\
-`Infantino talks about driving back against elitism, but the vast majority of prize money will end up going to the biggest European clubs`\
-https://nytimes.com/athletic/6469838/2025/07/03/gianni-infantino-fifa-club-world-cup/
-
-**The mastermind behind the Tour de France route: ‘We have to find a little subterfuge’**\
-`Thierry Gouvenou used to get paid to ride the Tour de France in the 1990s — now his job is to decide which roads the modern race visits`\
-https://nytimes.com/athletic/6464971/2025/07/03/tour-de-france-route-designer-interview/
 
