@@ -1,3 +1,7 @@
+**Plane Crash in New Jersey**\
+`A skydiving plane with 15 people on board crashed as it was taking off from Cross Keys Airport in Gloucester County, N.J., the authorities said.`\
+https://nytimes.com/video/us/100000010265188/plane-crash-new-jersey-cross-keys.html
+
 **USMNT heads to Gold Cup final as Diego Luna takes a star turn**\
 `The USMNT scored twice early, then defended out of desperation to book a place in Sunday's Concacaf Gold Cup final`\
 https://nytimes.com/athletic/6470215/2025/07/02/usmnt-guatemala-gold-cup-semifinals-diego-luna/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470234/2025/07/02/francisco-lindor-mets-all-star/
 **FIFA’s Club World Cup prices get slashed for quarter-finals competition**\
 `Prices for the quarter-finals are cheaper than had been showing for any group stage game before the start of the competition.`\
 https://nytimes.com/athletic/6470002/2025/07/02/fifas-club-world-cup-prices-get-slashed-for-quarter-finals-competition/
-
-**Trump Goes on a Charm Offensive as He Woos Holdout Republicans**\
-`President Trump worked the phones and welcomed Republicans to the White House to cajole them into supporting his megabill. They left with signed merchandise and photos of the Oval Office.`\
-https://nytimes.com/2025/07/02/us/politics/trump-bill-holdout-republicans.html
 
