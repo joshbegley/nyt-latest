@@ -1,3 +1,15 @@
+**Fourth of July watch guide: What our staff is streaming, from live sports to movies**\
+`There's an interesting sports slate built around July 4th, and it's also "The Sandlot" season. Here's what we're watching this weekend.`\
+https://nytimes.com/athletic/6470310/2025/07/03/fourth-of-july-sports-movies-hot-dogs-baseball-how-to-watch/
+
+**Deandre Ayton fits with LeBron, Luka and the Lakers on the court. Will that be enough?**\
+`Ayton's addition makes the Lakers better on paper. But it will be what happens when no one is watching that demonstrates his biggest impact.`\
+https://nytimes.com/athletic/6471710/2025/07/03/deandre-ayton-fits-with-lebron-luka-and-the-lakers-on-the-court-will-that-be-enough/
+
+**A New Generation Rises in Seoul’s Jewelry District**\
+`Young designers, many of them the sons and daughters of longtime jewelers, have established their own businesses in the neighborhood.`\
+https://nytimes.com/2025/07/03/fashion/jewelry-young-designers-seoul.html
+
 **In Mexico, a Family Focused on Twists of Silver Filigree**\
 `Even the grandchildren in the Salgado Téllez workshop know how to create jewelry by hand.`\
 https://nytimes.com/2025/07/03/fashion/jewelry-silver-filigree-salgado-mexico.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6471840/2025/07/03/mehmet-ali-arsenal-brentford/
 **Pardoned Jan. 6 Rioter Sentenced to Life in Assassination Plot**\
 `Edward Kelley had been convicted of plotting to kill the law enforcement officers who had investigated his case.`\
 https://nytimes.com/2025/07/03/us/politics/jan6-assassination-plot-sentence.html
-
-**Venus Williams says she dealt with painful fibroids for decades: 'I never had enough energy'**\
-`Williams opened up about her painful struggle with uterine fibroids, which went undiagnosed for years.`\
-https://nytimes.com/athletic/6471549/2025/07/03/venus-williams-tennis-fibroids/
-
-**How a Parasitic Bird With No Parents Learns What Species It Is**\
-`Cowbird mothers abandon their eggs in the nests of other bird species, but the chicks somehow manage to find their flock and learn what they really are.`\
-https://nytimes.com/2025/07/03/science/cowbirds-parasites-species.html
-
-**Supreme Court to hear cases challenging state bans on transgender athletes**\
-`The decision could have sweeping ramifications for more than two dozen states across the country with similar laws.`\
-https://nytimes.com/athletic/6471533/2025/07/03/supreme-court-transgender-athletes-bans/
 
