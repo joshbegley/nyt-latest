@@ -1,3 +1,7 @@
+**Madre Fire Explodes to 35,000 Acres, Becoming California’s Largest This Year**\
+`The blaze is burning in a desolate area of San Luis Obispo County, but its smoke has spread to two nearby counties.`\
+https://nytimes.com/2025/07/03/us/madre-wildfire-san-luis-obispo-california.html
+
 **Trump Administration Live Updates: House Moves Ahead With President’s Policy Bill Amid G.O.P. Resistance**\
 `A vote allowing the bill to come up for debate indicated a breakthrough after Speaker Mike Johnson haggled with Republican holdouts into the early hours of Thursday.`\
 https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
