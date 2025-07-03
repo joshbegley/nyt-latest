@@ -1,3 +1,11 @@
+**A Last Ride for Clyde Aikau, Surfing Royalty **\
+`Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
+https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
+
+**Sharks claim veteran defenseman Nick Leddy off waivers from Blues**\
+`St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
+https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
+
 **Vatican Publishes a New Mass on Caring for the Environment**\
 `The Mass, along with other steps, show Pope Leo XIV and the Roman Catholic Church building on the environmental commitment of his predecessor, Francis.`\
 https://nytimes.com/2025/07/03/world/europe/vatican-mass-environment.html
