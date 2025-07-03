@@ -1,3 +1,7 @@
+**Sandy Gall, War Correspondent Without Swagger, Dies at 97**\
+`For nearly 50 years, he was ubiquitous on British television — first as a reporter and then as an imperturbable presenter on Independent Television’s “News at Ten.”`\
+https://nytimes.com/2025/07/03/business/media/sandy-gall-dead.html
+
 **The Windup: AL East race is cooking**\
 `Welcome back to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6470763/2025/07/03/al-east-yankees-blue-jays-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471213/2025/07/03/eric-dier-monaco-england-squad/
 **Trump’s Task as He Heads to Iowa: Selling His Bill to the American Public**\
 `President Trump has spent days cajoling Republicans to support his spending bill. He will also have to sell it to the public as Democrats focus on all the ways it helps the wealthy.`\
 https://nytimes.com/2025/07/03/us/politics/trump-policy-bill.html
-
-**​North Korea Opens Seaside Resort With Fanfare but No Foreign Tourists**\
-`The Kalma Beach resort town, one of Kim Jong-un’s most ambitious projects aimed at attracting foreign tourists, may not draw the waves of visitors he wants.`\
-https://nytimes.com/2025/07/03/world/asia/north-korea-wonsan-kalma-beach.html
 
