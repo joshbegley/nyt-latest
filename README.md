@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6422543/2025/07/03/serie-a-italy-must-improve-rita-
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/03/todays-new-york-times
 
-**We Need to Finish the Job in Iran**\
+**Trump’s Work in Iran Has Only Begun**\
 `It remains to be seen if Washington has learned enough of a lesson to destroy Iran’s remaining nuclear infrastructure.`\
 https://nytimes.com/2025/07/03/opinion/bolton-iran-nuclear.html
 
