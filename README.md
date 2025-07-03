@@ -1,3 +1,11 @@
+**The 2025 Summer Entertaining Issue**\
+`T drops in on meals prepared by friends on trips together around the world and shares tips for your own gatherings.`\
+https://nytimes.com/issue/t-magazine/2025/07/03/summer-entertaining-2025
+
+**How Bad Is This Bill? The Answer in 10 Charts**\
+`Steven Rattner reveals the ugly reality lurking within the ‘big beautiful bill.’`\
+https://nytimes.com/interactive/2025/07/03/opinion/domestic-policy-bill-in-charts.html
+
 **‘Trump Has Betrayed His Working-Class Voters’: What 7 Conservatives Really Think of Trump’s Bill**\
 `Seven writers on the best and worst provisions in Trump’s bill.`\
 https://nytimes.com/2025/07/03/opinion/trump-bill-republicans-conservative.html
@@ -10,7 +18,7 @@ https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
 `Top party officials see the president’s sweeping domestic policy bill as cruel and fiscally ruinous — and they’re betting the American public will, too.`\
 https://nytimes.com/2025/07/03/us/politics/democrats-trump-bill.html
 
-**Clayton Kershaw reached milestone as his ex-catcher tried 'to will it over the phone'**\
+**Clayton Kershaw reached milestone as Austin Barnes tried 'to will it over the phone'**\
 `Barnes, a Dodgers mainstay, caught Kershaw 86 times over the years and felt a deep connection to the 3,000th strikeout.`\
 https://nytimes.com/athletic/6471968/2025/07/03/dodgers-clayton-kershaw-austin-barnes-strikeouts/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/world/europe/russian-general-killed-ukraine-strik
 **Fourth of July watch guide: What our staff is streaming, from live sports to movies**\
 `There's an interesting sports slate built around July 4th, and it's also "The Sandlot" season. Here's what we're watching this weekend.`\
 https://nytimes.com/athletic/6470310/2025/07/03/fourth-of-july-sports-movies-hot-dogs-baseball-how-to-watch/
-
-**Deandre Ayton fits with LeBron, Luka and the Lakers on the court. Will that be enough?**\
-`Ayton's addition makes the Lakers better on paper. But it will be what happens when no one is watching that demonstrates his biggest impact.`\
-https://nytimes.com/athletic/6471710/2025/07/03/deandre-ayton-lakers-fit/
-
-**A New Generation Rises in Seoul’s Jewelry District**\
-`Young designers, many of them the sons and daughters of longtime jewelers, have established their own businesses in the neighborhood.`\
-https://nytimes.com/2025/07/03/fashion/jewelry-young-designers-seoul.html
 

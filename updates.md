@@ -1,3 +1,7 @@
+**‘Trump Has Betrayed His Working-Class Voters’: What 7 Conservatives Really Think of Trump’s Bill**\
+`Seven writers on the best and worst provisions in Trump’s bill.`\
+https://nytimes.com/2025/07/03/opinion/trump-bill-republicans-conservative.html
+
 **A Bill That’s Big for Fossil Fuels, Not So Beautiful for Clean Energy**\
 `The Republican legislation muscled through Congress will reshape American’s energy landscape. Here’s a rundown on the winners and losers.`\
 https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
