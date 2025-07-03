@@ -1,3 +1,7 @@
+**Supreme Court Agrees to Hear Cases Involving Transgender Athletes**\
+`The court announced it would hear challenges to state laws barring transgender athletes from girls’ and women’s sports.`\
+https://nytimes.com/2025/07/03/us/politics/supreme-court-transgender-athletes.html
+
 **E.P.A. Employees Are Invited to Adopt Soon-to-Be Homeless Lab Rats**\
 `The agency is cutting animal testing of chemicals. Some scientists are concerned, but in the meantime the rats (and zebra fish) need new homes.`\
 https://nytimes.com/2025/07/03/climate/epa-lab-rat-zebra-fish-adoption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470438/2025/07/03/kings-nhl-depth-chart-2025/
 **Saying goodbye to Nickeil Alexander-Walker, a true Timberwolves success story**\
 `Alexander-Walker will be replaced in Minnesota. He will not be duplicated.`\
 https://nytimes.com/athletic/6470723/2025/07/03/nickeil-alexander-walker-timberwolves-goodbye/
-
-**Why Diogo Jota, Liverpool’s supreme goalscorer, was far more than just a footballer**\
-`The Portuguese, who has died aged 28, was a force of nature on the pitch and cherished by his team-mates off it `\
-https://nytimes.com/athletic/6471080/2025/07/03/diogo-jota-profile-liverpool/
 
