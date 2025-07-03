@@ -1,3 +1,11 @@
+**Heinze to join Arteta's Arsenal coaching staff**\
+`The former Manchester United and Real Madrid defender has held managerial roles at Godoy Cruz, Atlanta United and Newell's Old Boys.`\
+https://nytimes.com/athletic/6440623/2025/07/03/gabriel-heinze-arsenal-coach/
+
+**Where the Giants’ pitchers rank first (or last) halfway through the season**\
+`Giants hitters are putting up some scary stats but, on the flip side, Giants pitchers are leading the way in several good categories.`\
+https://nytimes.com/athletic/6469952/2025/07/03/sf-giants-pitching-statistical-rankings/
+
 **The House Passed Trump’s Big Bill, Showcasing His Power**\
 `Also, the U.S. labor market remained robust. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6470182/2025/07/03/malik-beasley-pistons-gambling-i
 **Russia Becomes First Country to Recognize Afghanistan’s Taliban Government**\
 `Afghanistan has remained largely isolated since the Taliban seized power nearly four years ago, despite subtle signs of increased cooperation with countries like China and India.`\
 https://nytimes.com/2025/07/03/world/asia/russia-afghanistan-recognize.html
-
-**David Mabuza, South Africa’s Former Deputy President, Dies at 64**\
-`Hailing from a small, rural province, Mr. Mabuza had a remarkable rise to national power. But much of it came crashing down amid corruption allegations.`\
-https://nytimes.com/2025/07/03/world/africa/david-mabuza-dead.html
-
-**Ben Shelton's Wimbledon match suspended due to darkness as he serves for win**\
-`Shelton is the latest American tennis player to fall foul of Wimbledon's curfews.`\
-https://nytimes.com/athletic/6472417/2025/07/03/ben-shelton-wimbledon-match-suspended-darkness/
 
