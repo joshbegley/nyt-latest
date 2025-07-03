@@ -1,3 +1,7 @@
+**Serie A Femminile's most successful coach on how women's football in Italy must improve**\
+`Rita Guarino knows intimately what it takes to bring success to Italy as a player and manager. Ahead of Euro 2025, she reflects on the team`\
+https://nytimes.com/athletic/6422543/2025/07/03/serie-a-italy-must-improve-rita-guarino-euros/
+
 **The New York Times in Print for Thursday, July 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/03/todays-new-york-times

@@ -1,3 +1,7 @@
+**Serie A Femminile's most successful coach on how women's football in Italy must improve**\
+`Rita Guarino knows intimately what it takes to bring success to Italy as a player and manager. Ahead of Euro 2025, she reflects on the team`\
+https://nytimes.com/athletic/6422543/2025/07/03/serie-a-italy-must-improve-rita-guarino-euros/
+
 **The New York Times in Print for Thursday, July 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/03/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468725/2025/07/03/jarrad-branthwaite-everton-new-c
 **Olivier Boscagli is not like most Premier League defenders - that may work in Brighton's favour**\
 `He may not be the biggest or most powerful, but Brighton's new signing has the pace and distribution to become a real asset`\
 https://nytimes.com/athletic/6407734/2025/07/03/olivier-boscagli-brighton-signing/
-
-**An attacking set-piece weapon with deceptive pace: What Leeds can expect from Bornauw**\
-`An analysis of the new centre-back's style of play and what his strengths and weaknesses are`\
-https://nytimes.com/athletic/6468989/2025/07/03/what-leeds-can-expect-from-bornauw/
 

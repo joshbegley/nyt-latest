@@ -1,3 +1,7 @@
+**Pete Crow-Armstrong's rapid rise keys Cubs' success**\
+`Shota Imanaga made an unexpected star turn in 2024. A year later, it’s Crow-Armstrong’s turn.`\
+https://nytimes.com/athletic/6470689/2025/07/03/pete-crow-armstrong-cubs-success-shota-imanaga/
+
 **Serie A Femminile's most successful coach on how women's football in Italy must improve**\
 `Rita Guarino knows intimately what it takes to bring success to Italy as a player and manager. Ahead of Euro 2025, she reflects on the team`\
 https://nytimes.com/athletic/6422543/2025/07/03/serie-a-italy-must-improve-rita-guarino-euros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470610/2025/07/03/dodgers-max-muncy-leaves-game-kn
 **Branthwaite's Everton deal is a statement of club and player - Moyes wants to build around him**\
 `The left-footed centre-back has become one of the most coveted players in Europe - tying him to a five-year deal is a coup for Everton`\
 https://nytimes.com/athletic/6468725/2025/07/03/jarrad-branthwaite-everton-new-contract/
-
-**Olivier Boscagli is not like most Premier League defenders - that may work in Brighton's favour**\
-`He may not be the biggest or most powerful, but Brighton's new signing has the pace and distribution to become a real asset`\
-https://nytimes.com/athletic/6407734/2025/07/03/olivier-boscagli-brighton-signing/
 
