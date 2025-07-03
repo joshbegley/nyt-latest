@@ -1,3 +1,7 @@
+**Guardians pitcher Luis Ortiz placed on leave due to MLB investigation**\
+`CHICAGO — Guardians pitcher Luis Ortiz has been placed on &#8220;non-disciplinary paid leave&#8221; through the end of the All-Star break as a result of an MLB investigation, the league announced Thursday morning.`\
+https://nytimes.com/athletic/6471323/2025/07/03/luis-ortiz-mlb-guardians-investigation/
+
 **Supreme Court Agrees to Hear Cases Involving Transgender Athletes**\
 `The court announced it would hear challenges to state laws barring transgender athletes from girls’ and women’s sports.`\
 https://nytimes.com/2025/07/03/us/politics/supreme-court-transgender-athletes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/world/asia/north-korea-wonsan-kalma-beach.html
 **Here's how the Kings' depth chart might look, after numerous changes**\
 `The Kings still have a little under $6 million of cap space, but most of their offseason work appears to be complete.`\
 https://nytimes.com/athletic/6470438/2025/07/03/kings-nhl-depth-chart-2025/
-
-**Saying goodbye to Nickeil Alexander-Walker, a true Timberwolves success story**\
-`Alexander-Walker will be replaced in Minnesota. He will not be duplicated.`\
-https://nytimes.com/athletic/6470723/2025/07/03/nickeil-alexander-walker-timberwolves-goodbye/
 

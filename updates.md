@@ -1,3 +1,15 @@
+**Supreme Court Agrees to Hear Cases Involving Transgender Athletes**\
+`The court announced it would hear challenges to state laws barring transgender athletes from girls’ and women’s sports.`\
+https://nytimes.com/2025/07/03/us/politics/supreme-court-transgender-athletes.html
+
+**E.P.A. Employees Are Invited to Adopt Soon-to-Be Homeless Lab Rats**\
+`The agency is cutting animal testing of chemicals. Some scientists are concerned, but in the meantime the rats (and zebra fish) need new homes.`\
+https://nytimes.com/2025/07/03/climate/epa-lab-rat-zebra-fish-adoption.html
+
+**North Korea Opens Beach Resort, Hoping to Attract Foreign Tourists**\
+`The resort was on Kalma Beach, which South Korean media nicknamed ‘North Korea’s Waikiki.”`\
+https://nytimes.com/video/world/asia/100000010265683/north-korea-beach-resort-.html
+
 **Jeffries Has His Moment in Hourslong Speech Opposing Trump’s Policy Bill**\
 `Representative Hakeem Jeffries, the New York Democrat and minority leader, delayed a final House vote with an impassioned speech, saying he would take his “sweet time” assailing the measure.`\
 https://nytimes.com/2025/07/03/us/politics/hakeem-jeffries-house-speech-magic-minute-trump-bill.html
