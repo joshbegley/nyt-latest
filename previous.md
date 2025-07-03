@@ -1,3 +1,7 @@
+**Tourists Evacuated as Firefighters Battle Crete Blaze**\
+`The authorities evacuated around 1,500 people, most of them tourists, as firefighters struggled against heavy winds to bring the flames under control.`\
+https://nytimes.com/2025/07/03/world/europe/tourists-evacuated-crete-wildfire.html
+
 **Israel and Syria in U.S.-Brokered Talks to End Border Conflict, Trump Envoy Says**\
 `Thomas J. Barrack Jr., the U.S. ambassador to Turkey, says Washington is facilitating the discussions and prioritizing economic development over nation-building in the Middle East.`\
 https://nytimes.com/2025/07/03/world/middleeast/israel-syria-border-us-barrack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468569/2025/07/03/club-world-cup-quarter-final-pre
 **How a pitch that the metrics hate is helping Giants ace Logan Webb have his best season**\
 `Webb's pitch mix has changed this season and his best pitches are working even better thanks to two that don't grade out that well.`\
 https://nytimes.com/athletic/6470150/2025/07/03/logan-webb-sf-giants-cut-fastball/
-
-**4 Dead and 14 Injured in Chicago Drive-By Shooting**\
-`An unknown number of people fired into a crowd from a vehicle in the River North neighborhood, the police said.`\
-https://nytimes.com/2025/07/03/us/chicago-shooting.html
 
