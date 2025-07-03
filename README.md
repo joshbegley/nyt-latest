@@ -1,3 +1,15 @@
+**Trump Policy Bill Stalls as Johnson Works to Wear Down G.O.P. Resistance**\
+`After a day of paralysis, the House remained frozen in place overnight as party leaders labored to address the concerns of Republican holdouts to the party’s major policy bill.`\
+https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
+
+**What we're hearing on Messi's future: Miami contract talks, links to Argentina and 2026 World Cup**\
+`The Club World Cup highlighted some of Miami shortcomings - and those in Argentina believe Messi should reconsider his future in the U.S.`\
+https://nytimes.com/athletic/6464247/2025/07/03/lionel-messi-inter-miami-contract-mls-club-world-cup-argentina/
+
+**Word of the Day: perimeter**\
+`This word has appeared in 1,750 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/03/learning/word-of-the-day-perimeter.html
+
 **Pete Crow-Armstrong's rapid rise keys Cubs' success**\
 `Shota Imanaga made an unexpected star turn in 2024. A year later, it’s Crow-Armstrong’s turn.`\
 https://nytimes.com/athletic/6470689/2025/07/03/pete-crow-armstrong-cubs-success-shota-imanaga/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6470643/2025/07/03/usmnt-mexico-guatemala-ream-luna
 **Should Diaz be sold? Our Liverpool writer argues with himself**\
 `The Colombian's future has been the subject of scrutiny all summer. Andy Jones and Andrew Jones untangle the debate`\
 https://nytimes.com/athletic/6468839/2025/07/03/luis-diaz-liverpool-contract-transfer-debate/
-
-**Huijsen, Delap, Mbeumo and now Joao Pedro: Why do Newcastle keep missing out on targets?**\
-`Newcastle are yet to sign a senior player this summer and supporter apprehension is growing...`\
-https://nytimes.com/athletic/6468027/2025/07/03/newcastle-transfers-missing-out/
-
-**Dodgers third baseman Max Muncy leaves game vs. White Sox with knee injury**\
-`Muncy hobbled off the field after applying a tag to White Sox baserunner Michael A. Taylor, who was attempting to swipe third base.`\
-https://nytimes.com/athletic/6470610/2025/07/03/dodgers-max-muncy-leaves-game-knee-injury/
-
-**Branthwaite's Everton deal is a statement of club and player - Moyes wants to build around him**\
-`The left-footed centre-back has become one of the most coveted players in Europe - tying him to a five-year deal is a coup for Everton`\
-https://nytimes.com/athletic/6468725/2025/07/03/jarrad-branthwaite-everton-new-contract/
 
