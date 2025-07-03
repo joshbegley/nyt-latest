@@ -1,3 +1,19 @@
+**Olivier Boscagli is not like most Premier League defenders - that may work in Brighton's favour**\
+`He may not be the biggest or most powerful, but Brighton's new signing has the pace and distribution to become a real asset`\
+https://nytimes.com/athletic/6407734/2025/07/03/olivier-boscagli-brighton-signing/
+
+**An attacking set-piece weapon with deceptive pace: What Leeds can expect from Bornauw**\
+`An analysis of the new centre-back's style of play and what his strengths and weaknesses are`\
+https://nytimes.com/athletic/6468989/2025/07/03/what-leeds-can-expect-from-bornauw/
+
+**Jurickson Profar apologizes to teammates for PED suspension, then homers in Braves win**\
+`Profar turned the crowd's boos into cheers after his towering leadoff homer in the seventh.`\
+https://nytimes.com/athletic/6470567/2025/07/03/jurickson-profar-apologizes-ped-suspension/
+
+**As a Nation’s Economy Slows, Some Say It’s No Time for a Free Lunch**\
+`Indonesia’s president promised free meals for every student in the country. But unemployment is rising, and some analysts say he’s making matters worse.`\
+https://nytimes.com/2025/07/03/world/asia/indonesia-school-lunch-economy.html
+
 **Football Architects: Rebuilding Ajax’s famous academy in Johan Cruyff’s image**\
 `The Dutch giants were at a low ebb in 2010 — this is the story of how they worked with their greatest figure to rebuild the club`\
 https://nytimes.com/athletic/6445365/2025/07/03/football-architects-rebuilding-ajax-johan-cruyff/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6469838/2025/07/03/gianni-infantino-fifa-club-world
 **The mastermind behind the Tour de France route: ‘We have to find a little subterfuge’**\
 `Thierry Gouvenou used to get paid to ride the Tour de France in the 1990s — now his job is to decide which roads the modern race visits`\
 https://nytimes.com/athletic/6464971/2025/07/03/tour-de-france-route-designer-interview/
-
-**Once Russia’s Most Volatile Region, Chechnya Is Bracing for Succession**\
-`Amid rampant speculation about his health, Ramzan Kadyrov, the Kremlin-allied strongman who rules the region, has been noticeably absent from view, while grooming his teenage son for the future.`\
-https://nytimes.com/2025/07/03/world/europe/chechnya-kadyrov-illness-succession.html
-
-**Quote of the Day: Looking for a Summer Job? It’s Brutal Out There.**\
-`Quotation of the Day for Thursday, July 3, 2025.`\
-https://nytimes.com/2025/07/03/pageoneplus/quote-of-the-day-looking-for-a-summer-job-its-brutal-out-there.html
-
-**Why 50,000 Iconic French Shirts, Intended for America, Sit in Storage**\
-`Hit by President Trump’s tariffs, the Saint James clothing factory has put its inventory of striped shirts and sweaters intended for U.S. retailers in its warehouse in France.`\
-https://nytimes.com/2025/07/03/business/trump-tariffs-st-james-fashion-france.html
-
-**Corrections: July 3, 2025**\
-`Corrections that appeared in print on Thursday, July 3, 2025.`\
-https://nytimes.com/2025/07/03/pageoneplus/corrections-july-3-2025.html
 

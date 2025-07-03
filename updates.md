@@ -1,3 +1,19 @@
+**Olivier Boscagli is not like most Premier League defenders - that may work in Brighton's favour**\
+`He may not be the biggest or most powerful, but Brighton's new signing has the pace and distribution to become a real asset`\
+https://nytimes.com/athletic/6407734/2025/07/03/olivier-boscagli-brighton-signing/
+
+**An attacking set-piece weapon with deceptive pace: What Leeds can expect from Bornauw**\
+`An analysis of the new centre-back's style of play and what his strengths and weaknesses are`\
+https://nytimes.com/athletic/6468989/2025/07/03/what-leeds-can-expect-from-bornauw/
+
+**Jurickson Profar apologizes to teammates for PED suspension, then homers in Braves win**\
+`Profar turned the crowd's boos into cheers after his towering leadoff homer in the seventh.`\
+https://nytimes.com/athletic/6470567/2025/07/03/jurickson-profar-apologizes-ped-suspension/
+
+**As a Nation’s Economy Slows, Some Say It’s No Time for a Free Lunch**\
+`Indonesia’s president promised free meals for every student in the country. But unemployment is rising, and some analysts say he’s making matters worse.`\
+https://nytimes.com/2025/07/03/world/asia/indonesia-school-lunch-economy.html
+
 **Football Architects: Rebuilding Ajax’s famous academy in Johan Cruyff’s image**\
 `The Dutch giants were at a low ebb in 2010 — this is the story of how they worked with their greatest figure to rebuild the club`\
 https://nytimes.com/athletic/6445365/2025/07/03/football-architects-rebuilding-ajax-johan-cruyff/
