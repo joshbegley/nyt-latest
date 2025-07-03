@@ -1,3 +1,11 @@
+**Pope Leo Returns to Tradition: A Summer Break at a Papal Villa**\
+`For 400 years, most popes escaped the Roman summer in the hilltop town of Castel Gandolfo, Italy. Then Francis stopped going, leaving the town a bit bereft.`\
+https://nytimes.com/2025/07/03/world/europe/pope-leo-summer-castel-gandolfo.html
+
+**The New York Times International Edition in Print for Friday, July 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/03/todays-new-york-times-international-edition
+
 **How Health Care Remade the U.S. Economy**\
 `Medicine is now the nation’s largest employer, but its growth may be slowing.`\
 https://nytimes.com/interactive/2025/07/03/business/economy/healthcare-jobs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-trial-next-prison-law
 **Sean Combs’s Winning Defense: He’s Abusive, but He’s Not a Racketeer**\
 `In defusing much of the government’s case, lawyers for the music mogul did not dispute that he did bad things. They disputed that they matched the crimes he was charged with.`\
 https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-lawyers-defense-racketeering.html
-
-**What to Do in New York City in July**\
-`Celebrate the Fourth of July with an address on the state of the hot dog, a chance to make ice cream the old-fashioned way and a film that offers up a peculiar slice of Americana.`\
-https://nytimes.com/2025/07/03/arts/things-to-do-nyc-july-2025.html
-
-**After Mamdani Mania, the Next Democratic Test Comes to Tucson**\
-`Adelita Grijalva remains heavily favored to win the House seat of her late father, Raúl Grijalva, but youthful challengers and tired voters are asking why change is so hard for Democrats.`\
-https://nytimes.com/2025/07/03/us/tucson-arizona-democrats.html
 

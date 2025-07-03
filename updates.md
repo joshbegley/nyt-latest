@@ -1,3 +1,7 @@
+**How Health Care Remade the U.S. Economy**\
+`Medicine is now the nation’s largest employer, but its growth may be slowing.`\
+https://nytimes.com/interactive/2025/07/03/business/economy/healthcare-jobs.html
+
 **Diogo Jota, Liverpool Soccer Star, Dies in Car Crash at 28**\
 `Mr. Jota and his brother André, 26, died in Spain, the authorities said. The crash came two weeks after the Portuguese player’s wedding.`\
 https://nytimes.com/2025/07/03/world/europe/diogo-jota-dead-car-crash-liverpool.html
