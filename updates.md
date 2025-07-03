@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: House G.O.P. Resistance Stalls President’s Policy Bill**\
+`Speaker Mike Johnson and other Republican leaders haggled into the early hours of Thursday to try and convince their party’s holdouts to support the bill.`\
+https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
+
 **Despite loss to Norway, Switzerland's opening Euro 2025 match showed promise of what could be**\
 `Switzerland's biggest test won't be winning Euro 2025, but figuring out how to make the most of the tournament`\
 https://nytimes.com/athletic/6469903/2025/07/03/switzerland-euro-2025-host-lesson/
