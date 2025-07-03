@@ -1,3 +1,7 @@
+**A federal judge blasts a ‘war’ against D.E.I. by federal health agencies.**\
+`In a 103-page opinion, Judge William G. Young chronicled an “unmistakable pattern of discrimination” by the Trump administration in its termination of federal science funding.`\
+https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news/a-federal-judge-blasts-a-war-against-dei-by-federal-health-agencies
+
 **Plane Crash in New Jersey**\
 `A skydiving plane with 15 people on board crashed as it was taking off from Cross Keys Airport in Gloucester County, N.J., the authorities said.`\
 https://nytimes.com/video/us/100000010265188/plane-crash-new-jersey-cross-keys.html
