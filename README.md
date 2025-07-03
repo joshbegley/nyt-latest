@@ -1,3 +1,7 @@
+**Malik Beasley facing complaint from former agency amid gambling investigation**\
+`Beasley has been trailed by lawsuits and liens since he got to the league, and concerns from at least one team about his off-court life`\
+https://nytimes.com/athletic/6470182/2025/07/03/malik-beasley-pistons-gambling-investigation-lawsuit/
+
 **Russia Becomes First Country to Recognize Afghanistan’s Taliban Government**\
 `Afghanistan has remained largely isolated since the Taliban seized power nearly four years ago, despite subtle signs of increased cooperation with countries like China and India.`\
 https://nytimes.com/2025/07/03/world/asia/russia-afghanistan-recognize.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/business/media/golden-globes-hfpa-penske-media-el
 **Finding Beauty in Midair**\
 `Stretched out in the sunshine, even the flimsiest things radiate inner light.`\
 https://nytimes.com/interactive/2025/07/03/opinion/clean-laundry-clotheslines-beauty.html
-
-**Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
-`Newcastle have made a new bid for Elanga worth more than £50million plus bonuses. Here's how the Forest winger would fit Eddie Howe's team`\
-https://nytimes.com/athletic/6455608/2025/07/03/why-newcastle-want-elanga/
 

@@ -1,3 +1,43 @@
+**Russia Becomes First Country to Recognize Afghanistan’s Taliban Government**\
+`Afghanistan has remained largely isolated since the Taliban seized power nearly four years ago, despite subtle signs of increased cooperation with countries like China and India.`\
+https://nytimes.com/2025/07/03/world/asia/russia-afghanistan-recognize.html
+
+**David Mabuza, South Africa’s Former Deputy President, Dies at 64**\
+`Hailing from a small, rural province, Mr. Mabuza had a remarkable rise to national power. But much of it came crashing down amid corruption allegations.`\
+https://nytimes.com/2025/07/03/world/africa/david-mabuza-dead.html
+
+**Ben Shelton's Wimbledon match suspended due to darkness as he serves for win**\
+`Shelton is the latest American tennis player to fall foul of Wimbledon's curfews.`\
+https://nytimes.com/athletic/6472417/2025/07/03/ben-shelton-wimbledon-match-suspended-darkness/
+
+**Mexico Confirms Arrest Warrant for Boxer Julio César Chávez Jr.**\
+`The well-known Mexican boxer was detained by U.S. immigration agents in California on Wednesday, days after fighting a high-profile contest against the former YouTuber Jake Paul.`\
+https://nytimes.com/2025/07/03/world/americas/mexico-arrest-warrant-boxer-julio-cesar-chavez-jr.html
+
+**House Narrowly Passes Trump’s Bill**\
+`In a 218 to 214 vote, the House passed a sweeping bill to extend tax cuts and slash social safety net programs.`\
+https://nytimes.com/video/us/politics/100000010266736/house-tax-cut-bill.html
+
+**Friday Briefing: House Passes Trump’s Big Bill**\
+`Plus, North Korea’s new beach resort.`\
+https://nytimes.com/2025/07/03/briefing/trump-policy-bill-europe-heatwave-vietnam-trade.html
+
+**Junk Food for the Mind**\
+`It’s not an education if A.I. does your thinking for you.`\
+https://nytimes.com/2025/07/03/opinion/aritificial-intelligence-education.html
+
+**Dispute Over Golden Globes Heats Up**\
+`The Hollywood Foreign Press Association, which ran the awards show until a couple of years ago, has voted to investigate the deal that sold the event to a joint venture.`\
+https://nytimes.com/2025/07/03/business/media/golden-globes-hfpa-penske-media-eldridge.html
+
+**Finding Beauty in Midair**\
+`Stretched out in the sunshine, even the flimsiest things radiate inner light.`\
+https://nytimes.com/interactive/2025/07/03/opinion/clean-laundry-clotheslines-beauty.html
+
+**Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
+`Newcastle have made a new bid for Elanga worth more than £50million plus bonuses. Here's how the Forest winger would fit Eddie Howe's team`\
+https://nytimes.com/athletic/6455608/2025/07/03/why-newcastle-want-elanga/
+
 **Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
 `How the Nottingham Forest winger would fit Eddie Howe's team`\
 https://nytimes.com/athletic/6455608/2025/07/03/why-newcastle-want-elanga/
