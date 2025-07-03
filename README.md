@@ -1,3 +1,7 @@
+**Clayton Kershaw reflects on long, difficult journey to 3,000 strikeouts: 'I am grateful'**\
+`“I’ve been through it. Ups and downs here. More downs than I care to admit. But the fans tonight, it really meant a lot," Kershaw said.`\
+https://nytimes.com/athletic/6470769/2025/07/03/dodgers-clayton-kershaw-3000-strikeouts/
+
 **The Pulse: What’s real about the WNBA.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6470731/2025/07/03/wnba-expansion-caitlin-clark-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468003/2025/07/03/canucks-offseason-depth-chart-fr
 **Sabres thoughts: The Bowen Byram situation could define Kevyn Adams' summer**\
 `Too many recent offseasons have been defined by the players that left the Sabres. Can Adams change the narrative?`\
 https://nytimes.com/athletic/6470639/2025/07/03/sabres-kevyn-adams-bowen-byram-offseason/
-
-**Blues sign Pius Suter, place Nick Leddy on waivers: Where does it leave the depth chart?**\
-`The Blues had an eventful Wednesday that shook up potential roster lineups. Let's break it down.`\
-https://nytimes.com/athletic/6470465/2025/07/03/blues-depth-chart-suter-leddy/
 
