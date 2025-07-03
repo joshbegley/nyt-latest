@@ -1,3 +1,15 @@
+**A Bill That’s Big for Fossil Fuels, Not So Beautiful for Clean Energy**\
+`The Republican legislation muscled through Congress will reshape American’s energy landscape. Here’s a rundown on the winners and losers.`\
+https://nytimes.com/2025/07/03/climate/congress-bill-energy.html
+
+**In Trump’s Bill, Democrats See a Path to Win Back Voters**\
+`Top party officials see the president’s sweeping domestic policy bill as cruel and fiscally ruinous — and they’re betting the American public will, too.`\
+https://nytimes.com/2025/07/03/us/politics/democrats-trump-bill.html
+
+**Clayton Kershaw reached milestone as his ex-catcher tried 'to will it over the phone'**\
+`Barnes, a Dodgers mainstay, caught Kershaw 86 times over the years and felt a deep connection to the 3,000th strikeout.`\
+https://nytimes.com/athletic/6471968/2025/07/03/dodgers-clayton-kershaw-austin-barnes-strikeouts/
+
 **A Potential Tropical Depression Brings Heavy Rain to Florida**\
 `The National Hurricane Center is tracking a “disturbance” that could intensify in the coming days.`\
 https://nytimes.com/2025/07/03/weather/florida-tropical-depression-storm-rain.html
