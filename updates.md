@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: House Moves Ahead With President’s Policy Bill Amid G.O.P. Resistance**\
+`A vote allowing the bill to come up for debate indicated a breakthrough after Speaker Mike Johnson haggled with Republican holdouts into the early hours of Thursday.`\
+https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
+
+**House Moves Ahead on Trump Policy Bill, Overcoming G.O.P. Resistance**\
+`The action suggested a breakthrough on the party’s signature legislation that came after House Republican leaders haggled into the early morning hours with conservatives holdouts.`\
+https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
+
 **Trump Administration Live Updates: Speaker Says There Are Enough Votes to Advance President’s Bill**\
 `Speaker Mike Johnson said Republicans had enough votes to move the bill to the House floor for debate, after discussions with holdouts dragged into the early hours of Thursday.`\
 https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
