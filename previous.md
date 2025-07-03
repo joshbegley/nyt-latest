@@ -1,40 +1,40 @@
-**Can we trust the numbers? Yes, with caveats.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/can-we-trust-the-numbers-yes-with-caveats
+**Celtics depth chart: More changes coming, but where does the roster stand?**\
+`The Celtics have undergone significant change in the offseason. Jay King breaks down where things stand. `\
+https://nytimes.com/athletic/6470195/2025/07/03/celtics-depth-chart-roster-2025-26/
 
-**Will Cleveland's new WNBA team be the Rockers? How did it earn an expansion franchise?**\
-`Nic Barlage, CEO of Rock Entertainment Group, talks about his new WNBA ownership.`\
-https://nytimes.com/athletic/6469740/2025/07/03/cleveland-wnba-expansion-franchise-nic-barlage/
+**'He never quit': Broncos' Dondrea Tillman's improbable NFL path one of perseverance**\
+`The outside linebacker played in spring leagues for four years after going undrafted in 2020. Now, he's a key part of Denver's defense.`\
+https://nytimes.com/athletic/6466035/2025/07/03/dondrea-tillman-broncos-ufl-spring-league/
 
-**Will the NFL ever offer 'Sunday Ticket' on a single-team basis? Sports Media Mailbag (Part 2!)**\
-`Plus: 2030 World Cup rights, top local WNBA announcers, dream broadcast booths and more, from The Athletic's Richard Deitsch.`\
-https://nytimes.com/athletic/6460554/2025/07/03/nfl-sunday-ticket-sports-media-mailbag/
+**Brewers' Jackson Chourio envisions bigger days ahead: 'I just feel motivation'**\
+`Midway through his second season, the outfielder understands the increased expectations after his solid rookie year.`\
+https://nytimes.com/athletic/6470495/2025/07/03/brewers-jackson-chourio-expectations/
 
-**Hayes, Stoney and a rivalry now playing out on the international stage**\
-`The head coaches of the USWNT and Canada have mutual respect but also a strong desire to outdo each other`\
-https://nytimes.com/athletic/6470551/2025/07/03/emma-hayes-casey-stoney-rivalry/
+**Joe Dumars' draft night trade is overshadowing the rest of his offseason work**\
+`The new Pelicans' boss has made some sensible moves, but the Derik Queen deal puts a lot of pressure on everyone in New Orleans.`\
+https://nytimes.com/athletic/6470375/2025/07/03/pelicans-joe-dumars-derik-queen-nba-offseason/
 
-**Yankees have blown 7-game lead in AL East. Here's how they can reclaim the division**\
-`With New York's 11-9 loss to Toronto, the two clubs are tied atop the American League East.`\
-https://nytimes.com/athletic/6470460/2025/07/03/yankees-blue-jays-al-east/
+**Winners and losers of the offseason NHL goalie carousel**\
+`Which teams improved? Which teams should have made moves? Which goalies should be happy?`\
+https://nytimes.com/athletic/6469978/2025/07/03/nhl-goalies-2025-offseason/
 
-**LSU won the transfer portal, but will it be enough to get the Tigers over the hump?**\
-`The last two national champions did the bulk of their roster building on the recruiting trail and used the portal only to fill small holes.`\
-https://nytimes.com/athletic/6469622/2025/07/03/lsu-football-transfer-portal-brian-kelly/
+**Why Myles Garrett, Joe Flacco will determine Browns' level of success this season**\
+`Garrett's on-field dominance and Flacco's wisdom and experience makes the two veterans Cleveland's most important players this season.`\
+https://nytimes.com/athletic/6463490/2025/07/03/myles-garrett-joe-flacco-browns-2025-season/
 
-**This Week in Sports Trivia: July 3, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6468843/2025/07/03/this-week-in-sports-trivia-july-3-2025/
+**Dissecting the Club World Cup quarter-finals: The key men, tactics and our predictions**\
+`All you need to know about the last-eight ties being played on Friday and Saturday as the competition reaches its final few games`\
+https://nytimes.com/athletic/6468569/2025/07/03/club-world-cup-quarter-final-predictions/
 
-**NASCAR midseason review: Checking our predictions at Cup Series' halfway point**\
-`Halfway through the points-race schedule, we update our preseason predictions for Breakout Driver, Biggest Disappointment and more.`\
-https://nytimes.com/athletic/6468266/2025/07/03/nascar-midseason-review-cup-series-prediction/
+**How a pitch that the metrics hate is helping Giants ace Logan Webb have his best season**\
+`Webb's pitch mix has changed this season and his best pitches are working even better thanks to two that don't grade out that well.`\
+https://nytimes.com/athletic/6470150/2025/07/03/logan-webb-sf-giants-cut-fastball/
 
-**Justin Verlander’s outlook, Royals eye Bryan Reynolds and more notes: Rosenthal**\
-`Eugenio Suárez would be a natural trade piece if the Diamondbacks wind up selling, though he says “I don’t want to leave Arizona."`\
-https://nytimes.com/athletic/6470340/2025/07/03/rosenthal-justin-verlander-notes/
+**4 Dead and 14 Injured in Chicago Drive-By Shooting**\
+`An unknown number of people fired into a crowd from a vehicle in the River North neighborhood, the police said.`\
+https://nytimes.com/2025/07/03/us/chicago-shooting.html
 
-**The Sean ‘Diddy’ Combs Verdict**\
-`After a lengthy and highly publicized trial, the music mogul was found not guilty of the most serious charges against him.`\
-https://nytimes.com/2025/07/03/podcasts/the-daily/sean-combs-diddy-verdict.html
+**For teens, summer jobs are getting harder to find.**\
+`By Kailyn Rhone`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/for-teens-summer-jobs-are-getting-harder-to-find
 
