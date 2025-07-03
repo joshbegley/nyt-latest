@@ -1,3 +1,7 @@
+**Tisch Refuses to Fire Officer Who Killed Driver, Despite Judge’s Finding**\
+`The police commissioner said Lieutenant Jonathan Rivera fired shots that killed a man after a seatbelt stop only because he believed his partner’s life was in peril.`\
+https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
+
 **Park Service Is Left Short-Staffed in Peak Travel Season**\
 `Layoffs and departures after pressure from the Trump administration have left sites struggling, with the remaining employees each doing the work of two or three people.`\
 https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html

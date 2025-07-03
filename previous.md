@@ -1,3 +1,7 @@
+**Tisch Refuses to Fire Officer Who Killed Driver, Despite Judge’s Finding**\
+`The police commissioner said Lieutenant Jonathan Rivera fired shots that killed a man after a seatbelt stop only because he believed his partner’s life was in peril.`\
+https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
+
 **Park Service Is Left Short-Staffed in Peak Travel Season**\
 `Layoffs and departures after pressure from the Trump administration have left sites struggling, with the remaining employees each doing the work of two or three people.`\
 https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
 **Bonmati returns for Spain a week after viral meningitis hospitalisation**\
 `Bonmati entered the field in the 81st minute of Spain's group stage win over Portugal at Euro 2025.`\
 https://nytimes.com/athletic/6468281/2025/07/03/aitana-bonmati-spain-return-meningitis/
-
-**Mamdani Identified as Asian and African American on College Application**\
-`Zohran Mamdani, the Democrat running for mayor of New York City, was born in Uganda. He doesn’t consider himself Black but said the application didn’t allow for the complexity of his background.`\
-https://nytimes.com/2025/07/03/nyregion/mamdani-columbia-black-application.html
 
