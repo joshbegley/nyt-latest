@@ -1,10 +1,14 @@
+**Top Russian General Killed in ‘Combat Operations’ Near Ukraine**\
+`Maj. Gen. Mikhail Gudkov, promoted to deputy head of the Russian Navy just a few months earlier, died in an apparent Ukrainian strike.`\
+https://nytimes.com/2025/07/03/world/europe/russian-general-killed-ukraine-strike.html
+
 **Fourth of July watch guide: What our staff is streaming, from live sports to movies**\
 `There's an interesting sports slate built around July 4th, and it's also "The Sandlot" season. Here's what we're watching this weekend.`\
 https://nytimes.com/athletic/6470310/2025/07/03/fourth-of-july-sports-movies-hot-dogs-baseball-how-to-watch/
 
 **Deandre Ayton fits with LeBron, Luka and the Lakers on the court. Will that be enough?**\
 `Ayton's addition makes the Lakers better on paper. But it will be what happens when no one is watching that demonstrates his biggest impact.`\
-https://nytimes.com/athletic/6471710/2025/07/03/deandre-ayton-fits-with-lebron-luka-and-the-lakers-on-the-court-will-that-be-enough/
+https://nytimes.com/athletic/6471710/2025/07/03/deandre-ayton-lakers-fit/
 
 **A New Generation Rises in Seoul’s Jewelry District**\
 `Young designers, many of them the sons and daughters of longtime jewelers, have established their own businesses in the neighborhood.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill/trump-putin-call-u
 **Arsenal U21 coach Ali leaves to take up role at Brentford**\
 `Ali had been in charge of the under-21s since 2022 after taking over from Kevin Betsy.`\
 https://nytimes.com/athletic/6471840/2025/07/03/mehmet-ali-arsenal-brentford/
-
-**Pardoned Jan. 6 Rioter Sentenced to Life in Assassination Plot**\
-`Edward Kelley had been convicted of plotting to kill the law enforcement officers who had investigated his case.`\
-https://nytimes.com/2025/07/03/us/politics/jan6-assassination-plot-sentence.html
 

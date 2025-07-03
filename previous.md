@@ -1,40 +1,40 @@
+**Fourth of July watch guide: What our staff is streaming, from live sports to movies**\
+`There's an interesting sports slate built around July 4th, and it's also "The Sandlot" season. Here's what we're watching this weekend.`\
+https://nytimes.com/athletic/6470310/2025/07/03/fourth-of-july-sports-movies-hot-dogs-baseball-how-to-watch/
+
+**Deandre Ayton fits with LeBron, Luka and the Lakers on the court. Will that be enough?**\
+`Ayton's addition makes the Lakers better on paper. But it will be what happens when no one is watching that demonstrates his biggest impact.`\
+https://nytimes.com/athletic/6471710/2025/07/03/deandre-ayton-fits-with-lebron-luka-and-the-lakers-on-the-court-will-that-be-enough/
+
+**A New Generation Rises in Seoul’s Jewelry District**\
+`Young designers, many of them the sons and daughters of longtime jewelers, have established their own businesses in the neighborhood.`\
+https://nytimes.com/2025/07/03/fashion/jewelry-young-designers-seoul.html
+
+**In Mexico, a Family Focused on Twists of Silver Filigree**\
+`Even the grandchildren in the Salgado Téllez workshop know how to create jewelry by hand.`\
+https://nytimes.com/2025/07/03/fashion/jewelry-silver-filigree-salgado-mexico.html
+
+**Astros' Yordan Alvarez gets 'encouraging news' from hand specialist**\
+`Houston's slugger received two injections in his injured right hand and will be shut down from baseball activities for the immediate future.`\
+https://nytimes.com/athletic/6471918/2025/07/03/astros-yordan-alvarez-hand-injury/
+
+**Pinkie Rings Go Big**\
+`As women adopt an accessory traditionally worn by men, designers have begun creating unusual statement pieces for that often-overlooked fifth finger.`\
+https://nytimes.com/2025/07/03/fashion/jewelry-pinkie-rings.html
+
+**How Wiegman has evolved: A dislike of rules, her 'direct' style and embracing English food**\
+`The Dutchwoman has been in charge of the Lionesses for four years. She explains how she has changed her managerial approach in that time`\
+https://nytimes.com/athletic/6469785/2025/07/03/sarina-wiegman-england-evolution/
+
+**Trump and Putin discuss Iran, Ukraine and possible joint projects.**\
+`By Paul Sonne and Tyler Pager`\
+https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill/trump-putin-call-ukraine-iran
+
+**Arsenal U21 coach Ali leaves to take up role at Brentford**\
+`Ali had been in charge of the under-21s since 2022 after taking over from Kevin Betsy.`\
+https://nytimes.com/athletic/6471840/2025/07/03/mehmet-ali-arsenal-brentford/
+
 **Pardoned Jan. 6 Rioter Sentenced to Life in Assassination Plot**\
 `Edward Kelley had been convicted of plotting to kill the law enforcement officers who had investigated his case.`\
 https://nytimes.com/2025/07/03/us/politics/jan6-assassination-plot-sentence.html
-
-**Venus Williams says she dealt with painful fibroids for decades: 'I never had enough energy'**\
-`Williams opened up about her painful struggle with uterine fibroids, which went undiagnosed for years.`\
-https://nytimes.com/athletic/6471549/2025/07/03/venus-williams-tennis-fibroids/
-
-**How a Parasitic Bird With No Parents Learns What Species It Is**\
-`Cowbird mothers abandon their eggs in the nests of other bird species, but the chicks somehow manage to find their flock and learn what they really are.`\
-https://nytimes.com/2025/07/03/science/cowbirds-parasites-species.html
-
-**Supreme Court to hear cases challenging state bans on transgender athletes**\
-`The decision could have sweeping ramifications for more than two dozen states across the country with similar laws.`\
-https://nytimes.com/athletic/6471533/2025/07/03/supreme-court-transgender-athletes-bans/
-
-**Mistreating Detained Immigrants: ‘Is This Who We Are Now?’**\
-`Readers voice outrage over appalling conditions in immigrant detention centers. Also: Paramount’s settlement; political violence; not pro bono.`\
-https://nytimes.com/2025/07/03/opinion/immigrants-detention-mistreatment.html
-
-**Caitlin Clark to WNBA commissioner on pay: 'It makes no sense. ... Help us out.'**\
-`Winners of the Commissioner's Cup earn more than WNBA championship winners, an issue Clark pointed out after the Fever's victory.`\
-https://nytimes.com/athletic/6471877/2025/07/03/caitlin-clark-wnba-commissioner-salary/
-
-**Live Count: The House Votes on the President’s Policy Bill**\
-`The House is preparing to vote on President Trump’s sweeping domestic policy package.`\
-https://nytimes.com/interactive/2025/07/03/us/house-megabill-vote.html
-
-**Norway start slowly in their mission to re-establish themselves as a major footballing nation**\
-`Wednesday's opener was eventually a step in the right direction — but there is still a lot of work to do`\
-https://nytimes.com/athletic/6471479/2025/07/03/norway-euros-switzerland-analysis/
-
-**With Her Designs, Pebbles Become Distinctive Jewelry**\
-`Nathalie Mathoulin said her young children “were the ones showing me the way of looking at stones.”`\
-https://nytimes.com/2025/07/03/fashion/jewelry-pebbles-nathalie-mathoulin-england.html
-
-**Why Buyers Are Spending Millions on Colored Diamonds**\
-`Is the global turmoil driving sales of portable assets? Or is it just a love of rare jewels?`\
-https://nytimes.com/2025/07/03/fashion/jewelry-colored-diamonds-christies.html
 
