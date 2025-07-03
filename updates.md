@@ -1,3 +1,7 @@
+**4 Dead and 38 Missing After Ferry Sinks Near Bali**\
+`The ship was carrying 65 people when it sank on its way to the Indonesian resort island, a popular tourist destination.`\
+https://nytimes.com/2025/07/02/world/asia/bali-ferry-sinks-indonesia.html
+
 **Read Abrego Garcia’s Court Filing**\
 `Kilmar Armando Abrego Garcia, the Maryland man who was wrongfully deported to El Salvador in March, was beaten, deprived of sleep and psychologically tortured while in Salvadoran custody, according to court papers filed by his lawyers.`\
 https://nytimes.com/interactive/2025/07/02/us/politics/abrego-garcia-prison-filing.html
