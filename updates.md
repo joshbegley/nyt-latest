@@ -1,3 +1,11 @@
+**Real Madrid, Xabi Alonso open to selling Rodrygo this summer**\
+`The 24-year-old has played only 23 minutes for Real Madrid in their three most recent Club World Cup matches.`\
+https://nytimes.com/athletic/6469414/2025/07/03/real-madrid-rodrygo-transfer-latest/
+
+**How Trump’s China Tariffs Are Jeopardizing America’s Fireworks Extravaganzas**\
+`The pyrotechnics industry relies heavily on Chinese fireworks imports and warns that this could be the last big bang Fourth of July.`\
+https://nytimes.com/2025/07/03/business/trumps-china-tariffs-effect-fireworks.html
+
 **Sandy Gall, War Correspondent Without Swagger, Dies at 97**\
 `For nearly 50 years, he was ubiquitous on British television — first as a reporter and then as an imperturbable presenter on Independent Television’s “News at Ten.”`\
 https://nytimes.com/2025/07/03/business/media/sandy-gall-dead.html

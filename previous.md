@@ -1,3 +1,11 @@
+**Real Madrid, Xabi Alonso open to selling Rodrygo this summer**\
+`The 24-year-old has played only 23 minutes for Real Madrid in their three most recent Club World Cup matches.`\
+https://nytimes.com/athletic/6469414/2025/07/03/real-madrid-rodrygo-transfer-latest/
+
+**How Trump’s China Tariffs Are Jeopardizing America’s Fireworks Extravaganzas**\
+`The pyrotechnics industry relies heavily on Chinese fireworks imports and warns that this could be the last big bang Fourth of July.`\
+https://nytimes.com/2025/07/03/business/trumps-china-tariffs-effect-fireworks.html
+
 **Sandy Gall, War Correspondent Without Swagger, Dies at 97**\
 `For nearly 50 years, he was ubiquitous on British television — first as a reporter and then as an imperturbable presenter on Independent Television’s “News at Ten.”`\
 https://nytimes.com/2025/07/03/business/media/sandy-gall-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/07/03/world/europe/europe-heat-map-tracker.
 **North Korea Opens Beach Resort, Hoping to Attract Foreign Tourists**\
 `The resort was on Kalma Beach, which South Korean media nicknamed ‘North Korea’s Waikiki.”`\
 https://nytimes.com/video/world/asia/100000010265683/north-korea-beach-resort-.html
-
-**Dier: ‘Objective’ is to return to England squad**\
-`The 31-year-old joined the Ligue 1 side in May after the expiration of his contract at Bayern Munich.`\
-https://nytimes.com/athletic/6471213/2025/07/03/eric-dier-monaco-england-squad/
-
-**Trump’s Task as He Heads to Iowa: Selling His Bill to the American Public**\
-`President Trump has spent days cajoling Republicans to support his spending bill. He will also have to sell it to the public as Democrats focus on all the ways it helps the wealthy.`\
-https://nytimes.com/2025/07/03/us/politics/trump-policy-bill.html
 
