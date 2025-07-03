@@ -1,3 +1,7 @@
+**What we're hearing on the Mets' rotation after another injury**\
+`The Mets have to cobble a rotation together before reinforcements arrive just ahead of the All-Star break.`\
+https://nytimes.com/athletic/6472589/2025/07/03/what-were-hearing-mets-rotation-injuries/
+
 **Tisch Refuses to Fire Officer Who Killed Driver, Despite Judge’s Finding**\
 `The police commissioner said Lieutenant Jonathan Rivera fired shots that killed a man after a seatbelt stop only because he believed his partner’s life was in peril.`\
 https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469952/2025/07/03/sf-giants-pitching-statistical-r
 **The House Passed Trump’s Big Bill, Showcasing His Power**\
 `Also, the U.S. labor market remained robust. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
-
-**Bonmati returns for Spain a week after viral meningitis hospitalisation**\
-`Bonmati entered the field in the 81st minute of Spain's group stage win over Portugal at Euro 2025.`\
-https://nytimes.com/athletic/6468281/2025/07/03/aitana-bonmati-spain-return-meningitis/
 

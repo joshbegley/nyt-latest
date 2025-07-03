@@ -1,3 +1,7 @@
+**What we're hearing on the Mets' rotation after another injury**\
+`The Mets have to cobble a rotation together before reinforcements arrive just ahead of the All-Star break.`\
+https://nytimes.com/athletic/6472589/2025/07/03/what-were-hearing-mets-rotation-injuries/
+
 **Tisch Refuses to Fire Officer Who Killed Driver, Despite Judge’s Finding**\
 `The police commissioner said Lieutenant Jonathan Rivera fired shots that killed a man after a seatbelt stop only because he believed his partner’s life was in peril.`\
 https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
