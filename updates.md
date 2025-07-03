@@ -1,3 +1,15 @@
+**Bruins' James Hagens vows to remember 'every team' that passed on him, and why Sean Kuraly came home**\
+`Hagens is set to return for his sophomore season at Boston College but is ready for what's next: “I want to be a Boston Bruin really bad.”`\
+https://nytimes.com/athletic/6472524/2025/07/03/james-hagens-sean-kuraly-bruins/
+
+**Who Loses in the Republican Policy Bill?**\
+`Congressional Republicans just passed President Trump’s sprawling domestic policy bill that extends and expands tax cuts and spending on defense and deportations, while slashing Medicaid, food benefits and clean energy initiatives.`\
+https://nytimes.com/video/us/100000010261616/who-loses-in-the-republican-policy-bill.html
+
+**Teenage Aviator Detained After Landing in Antarctica, Chile Says**\
+`Ethan Guo, 19, had been documenting his attempt to fly solo to all seven continents on social media. He is no longer in custody but has no easy way to leave an island off Antarctica’s coast.`\
+https://nytimes.com/2025/07/03/world/americas/ethan-guo-chile-detained.html
+
 **Jim Shooter, Editor Who ‘Saved the Comics Industry,’ Dies at 73**\
 `He brought order and profits to Marvel in the 1980s and helped establish the genre as a popular-culture tent pole for decades to come.`\
 https://nytimes.com/2025/07/03/arts/jim-shooter-dead.html
