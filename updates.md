@@ -1,3 +1,11 @@
+**How to Have the Perfect Summer**\
+`A roundup of practical guides for the season, featuring tips for hosting, organizing a last-minute vacation and more.`\
+https://nytimes.com/2025/07/03/t-magazine/summer-guides-meals-travel.html
+
+**Sharks claim Nick Leddy: Why the Blues waived him, what he brings to San Jose**\
+`St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
+https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
+
 **Russell says 'exceptionally low' chance he will leave Mercedes, no Verstappen contract update**\
 `Russell's contract at Mercedes expires at the end of 2025, while Verstappen is tied to Red Bull until 2028.`\
 https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1-contracts/

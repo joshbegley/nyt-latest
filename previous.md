@@ -1,3 +1,7 @@
+**How to Have the Perfect Summer**\
+`A roundup of practical guides for the season, featuring tips for hosting, organizing a last-minute vacation and more.`\
+https://nytimes.com/2025/07/03/t-magazine/summer-guides-meals-travel.html
+
 **Russell says 'exceptionally low' chance he will leave Mercedes, no Verstappen contract update**\
 `Russell's contract at Mercedes expires at the end of 2025, while Verstappen is tied to Red Bull until 2028.`\
 https://nytimes.com/athletic/6471720/2025/07/03/max-verstappen-george-russell-f1-contracts/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6471649/2025/07/03/nfl-2025-preview-afc-east-bills-
 `Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
 https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
 
-**Sharks claim Nick Leddy: Why the Blues waived him, and what he brings to San Jose**\
+**Sharks claim Nick Leddy: Why the Blues waived him, what he brings to San Jose**\
 `St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
 https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/immigration-raids-fourth-of-july.html
 **Who might the Knicks get in Mike Brown? Two-time Coach of the Year is still evolving**\
 `Brown is notorious for holding players accountable. His potential employer is betting on personality and diligence more than anything else.`\
 https://nytimes.com/athletic/6471316/2025/07/03/mike-brown-knicks-evolution-expectations/
-
-**In Europe, Economists See a Chance to Rise on the Global Stage**\
-`Central bankers who gathered in Portugal this week focused on ways that Europe could improve its competitiveness with the United States and China.`\
-https://nytimes.com/2025/07/03/business/europe-economy-trump-competition.html
 
