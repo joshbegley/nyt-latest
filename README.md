@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: House G.O.P. Resistance Stalls President’s Policy Bill**\
+`Speaker Mike Johnson and other Republican leaders haggled into the early hours of Thursday to try and convince their party’s holdouts to support the bill.`\
+https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill
+
 **Despite loss to Norway, Switzerland's opening Euro 2025 match showed promise of what could be**\
 `Switzerland's biggest test won't be winning Euro 2025, but figuring out how to make the most of the tournament`\
 https://nytimes.com/athletic/6469903/2025/07/03/switzerland-euro-2025-host-lesson/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010265441/combs-acquitted-sex-trafficking-sea
 **Trump Policy Bill Stalls as Johnson Works to Wear Down G.O.P. Resistance**\
 `After a day of paralysis, the House remained frozen in place overnight as party leaders labored to address the concerns of Republican holdouts to the party’s major policy bill.`\
 https://nytimes.com/2025/07/03/us/politics/house-trump-bill-obbb.html
-
-**What we're hearing on Messi's future: Miami contract talks, links to Argentina and 2026 World Cup**\
-`The Club World Cup highlighted some of Miami shortcomings - and those in Argentina believe Messi should reconsider his future in the U.S.`\
-https://nytimes.com/athletic/6464247/2025/07/03/lionel-messi-inter-miami-contract-mls-club-world-cup-argentina/
 
