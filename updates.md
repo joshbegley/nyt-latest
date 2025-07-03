@@ -1,3 +1,7 @@
+**Why Diogo Jota, Liverpool’s supreme goalscorer, was far more than just a footballer**\
+`The Portuguese, who has died aged 28, was a force of nature on the pitch and cherished by his team-mates off it `\
+https://nytimes.com/athletic/6471080/2025/07/03/diogo-jota-profile-liverpool/
+
 **Trump’s Task as He Heads to Iowa: Selling His Bill to the American Public**\
 `President Trump has spent days cajoling Republicans to support his spending bill. He will also have to sell it to the public as Democrats focus on all the ways it helps the wealthy.`\
 https://nytimes.com/2025/07/03/us/politics/trump-policy-bill.html

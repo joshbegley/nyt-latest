@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6470438/2025/07/03/kings-nhl-depth-chart-2025/
 `Alexander-Walker will be replaced in Minnesota. He will not be duplicated.`\
 https://nytimes.com/athletic/6470723/2025/07/03/nickeil-alexander-walker-timberwolves-goodbye/
 
-**Diogo Jota: A supreme goalscorer who was far more than just a footballer**\
+**Why Diogo Jota, Liverpool’s supreme goalscorer, was far more than just a footballer**\
 `The Portuguese, who has died aged 28, was a force of nature on the pitch and cherished by his team-mates off it `\
 https://nytimes.com/athletic/6471080/2025/07/03/diogo-jota-profile-liverpool/
 
