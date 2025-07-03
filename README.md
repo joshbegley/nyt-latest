@@ -1,40 +1,40 @@
+**David Mabuza, South Africa’s Former Deputy President, Dies at 64**\
+`Hailing from a small, rural province, Mr. Mabuza had a remarkable rise to national power. But much of it came crashing down amid corruption allegations.`\
+https://nytimes.com/2025/07/03/world/africa/david-mabuza-dead.html
+
+**Ben Shelton's Wimbledon match suspended due to darkness as he serves for win**\
+`Shelton is the latest American tennis player to fall foul of Wimbledon's curfews.`\
+https://nytimes.com/athletic/6472417/2025/07/03/ben-shelton-wimbledon-match-suspended-darkness/
+
+**Mexico Confirms Arrest Warrant for Boxer Julio César Chávez Jr.**\
+`The well-known Mexican boxer was detained by U.S. immigration agents in California on Wednesday, days after fighting a high-profile contest against the former YouTuber Jake Paul.`\
+https://nytimes.com/2025/07/03/world/americas/mexico-arrest-warrant-boxer-julio-cesar-chavez-jr.html
+
+**House Narrowly Passes Trump’s Bill**\
+`In a 218 to 214 vote, the House passed a sweeping bill to extend tax cuts and slash social safety net programs.`\
+https://nytimes.com/video/us/politics/100000010266736/house-tax-cut-bill.html
+
+**Friday Briefing: House Passes Trump’s Big Bill**\
+`Plus, North Korea’s new beach resort.`\
+https://nytimes.com/2025/07/03/briefing/trump-policy-bill-europe-heatwave-vietnam-trade.html
+
+**Junk Food for the Mind**\
+`It’s not an education if A.I. does your thinking for you.`\
+https://nytimes.com/2025/07/03/opinion/aritificial-intelligence-education.html
+
+**Dispute Over Golden Globes Heats Up**\
+`The Hollywood Foreign Press Association, which ran the awards show until a couple of years ago, has voted to investigate the deal that sold the event to a joint venture.`\
+https://nytimes.com/2025/07/03/business/media/golden-globes-hfpa-penske-media-eldridge.html
+
+**Finding Beauty in Midair**\
+`Stretched out in the sunshine, even the flimsiest things radiate inner light.`\
+https://nytimes.com/interactive/2025/07/03/opinion/clean-laundry-clotheslines-beauty.html
+
 **Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
-`How the Nottingham Forest winger would fit Eddie Howe's team`\
+`Newcastle have made a new bid for Elanga worth more than £50million plus bonuses. Here's how the Forest winger would fit Eddie Howe's team`\
 https://nytimes.com/athletic/6455608/2025/07/03/why-newcastle-want-elanga/
 
 **Supreme Court Lets Trump Deport Eight Migrants to South Sudan**\
 `The court’s order followed a broader one last month allowing removals to countries with which migrants have no connections.`\
 https://nytimes.com/2025/07/03/us/supreme-court-migrants-south-sudan.html
-
-**Hamas Has a New Leader in Gaza. His Next Test: Cease-Fire Talks.**\
-`The rise of Izz al-Din al-Haddad in the chain of command suggests the group will hold firm to its position demanding a total end to the war before releasing all remaining hostages.`\
-https://nytimes.com/2025/07/03/world/middleeast/hamas-new-leader-gaza-cease-fire.html
-
-**Newcastle pushing to secure signing of Elanga from Forest**\
-`The Athletic previously reported that Newcastle had seen a bid in the region of £45million for the 21-year-old rejected by Forest.`\
-https://nytimes.com/athletic/6448441/2025/07/03/newcastle-pushing-elanga-forest-transfer/
-
-**Cruise Ship Passenger Is Missing After Going for a Hike in Alaska**\
-`The woman, a doctor from Kentucky, was last spotted on security footage while leaving a building at the top stop of a tramway in Juneau.`\
-https://nytimes.com/2025/07/03/us/missing-hiker-alaska-cruise-ship.html
-
-**A Pop Star’s Cookies Draw a Crowd (No Backflip Required)**\
-`With help from social media, Crumbl’s Benson Boone-inspired Moonbeam Ice Cream has received an extended run.`\
-https://nytimes.com/2025/07/03/style/benson-boone-crumbl-moonbeam-ice-cream-cookie.html
-
-**Hull hit with three-window transfer ban by EFL for failing to maintain payments**\
-`The sanction relates to money owed to Aston Villa after Louie Barry was loaned from the Premier League club last season.`\
-https://nytimes.com/athletic/6472213/2025/07/03/hull-transfer-embargo-efl/
-
-**Red Wings thoughts: Is Yzerman done dealing? Plus prospect notes from development camp**\
-`What the Red Wings GM said about his offseason Thursday, plus some thoughts on Detroit's prospects from development camp.`\
-https://nytimes.com/athletic/6471951/2025/07/03/red-wings-nhl-free-agency-steve-yzerman-prospect/
-
-**The G.O.P. Policy Bill Would Shift U.S. Energy Policy**\
-`The sprawling bill would boost fossil fuels and end tax credits for wind, solar power and electric vehicles.`\
-https://nytimes.com/2025/07/03/climate/trumps-policy-bill-climate-change-energy.html
-
-**Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul loss**\
-`Chávez was determined to be in the country illegally and removable one day before his loss to Jake Paul, according to the DHS.`\
-https://nytimes.com/athletic/6472101/2025/07/03/julio-cesar-chavez-jr-arrest-ice-dhs/
 
