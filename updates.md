@@ -1,3 +1,7 @@
+**A Potential Tropical Depression Brings Heavy Rain to Florida**\
+`The National Hurricane Center is tracking a “disturbance” that could intensify in the coming days.`\
+https://nytimes.com/2025/07/03/weather/florida-tropical-depression-storm-rain.html
+
 **Brescia have licence revoked for bankruptcy, kicked out of Italy's Serie C**\
 `The club, who last played in Serie A in 2019-20, were relegated from Serie B after being deducted four points for financial irregularities.`\
 https://nytimes.com/athletic/6471944/2025/07/03/brescia-licence-revoked-bankruptcy/
