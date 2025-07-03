@@ -1,3 +1,19 @@
+**Trump’s immigration crackdown could make it harder to interpret the jobs numbers.**\
+`By Colby Smith and Ben Casselman`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/trumps-immigration-crackdown-could-make-it-harder-to-interpret-the-jobs-numbers
+
+**What to know about the jobs report.**\
+`By Sydney Ember`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/what-to-know-about-the-jobs-report
+
+**Live Updates: U.S. Hiring Expected to Cool**\
+`How resilient is the labor market? Amid signs of softer economic growth, the latest report on jobs will be watched closely.`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy
+
+**The Diddy Trial Is Over.**\
+`But my mind is still racing.`\
+https://nytimes.com/2025/07/03/podcasts/diddy-sean-combs-verdict.html
+
 **Liverpool's Diogo Jota, brother Andre Silva die in road accident**\
 `Local police in Spain confirmed the incident occurred at 00:30 local time on Thursday morning.`\
 https://nytimes.com/athletic/6470812/2025/07/03/diogo-jota-death-brother-road-accident-liverpool/
