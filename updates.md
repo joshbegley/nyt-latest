@@ -1,3 +1,19 @@
+**Supreme Court to hear cases challenging state bans on transgender athletes**\
+`The decision could have sweeping ramifications for more than two dozen states across the country with similar laws.`\
+https://nytimes.com/athletic/6471533/2025/07/03/supreme-court-transgender-athletes-bans/
+
+**Mistreating Detained Immigrants: ‘Is This Who We Are Now?’**\
+`Readers voice outrage over appalling conditions in immigrant detention centers. Also: Paramount’s settlement; political violence; not pro bono.`\
+https://nytimes.com/2025/07/03/opinion/immigrants-detention-mistreatment.html
+
+**Caitlin Clark to WNBA commissioner on pay: 'It makes no sense. ... Help us out.'**\
+`Winners of the Commissioner's Cup earn more than WNBA championship winners, an issue Clark pointed out after the Fever's victory.`\
+https://nytimes.com/athletic/6471877/2025/07/03/caitlin-clark-wnba-commissioner-salary/
+
+**Live Count: The House Votes on the President’s Policy Bill**\
+`The House is preparing to vote on President Trump’s sweeping domestic policy package.`\
+https://nytimes.com/interactive/2025/07/03/us/house-megabill-vote.html
+
 **Norway start slowly in their mission to re-establish themselves as a major footballing nation**\
 `Wednesday's opener was eventually a step in the right direction — but there is still a lot of work to do`\
 https://nytimes.com/athletic/6471479/2025/07/03/norway-euros-switzerland-analysis/
