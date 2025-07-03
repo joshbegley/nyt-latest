@@ -1,3 +1,11 @@
+**Will the NFL ever offer 'Sunday Ticket' on a single-team basis? Sports Media Mailbag (Part 2!)**\
+`Plus: 2030 World Cup rights, top local WNBA announcers, dream broadcast booths and more, from The Athletic's Richard Deitsch.`\
+https://nytimes.com/athletic/6460554/2025/07/03/nfl-sunday-ticket-sports-media-mailbag/
+
+**Hayes, Stoney and a rivalry now playing out on the international stage**\
+`The head coaches of the USWNT and Canada have mutual respect but also a strong desire to outdo each other`\
+https://nytimes.com/athletic/6470551/2025/07/03/emma-hayes-casey-stoney-rivalry/
+
 **Yankees have blown 7-game lead in AL East. Here's how they can reclaim the division**\
 `With New York's 11-9 loss to Toronto, the two clubs are tied atop the American League East.`\
 https://nytimes.com/athletic/6470460/2025/07/03/yankees-blue-jays-al-east/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6469389/2025/07/03/knicks-magic-cavaliers-eastern-c
 **Connections Companion No. 754**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 4, 2025.`\
 https://nytimes.com/2025/07/03/crosswords/connections-companion-754.html
-
-**The Final Vote, and the Sean Combs Verdict**\
-`Plus, Lululemon vs. Costco.`\
-https://nytimes.com/2025/07/03/podcasts/the-headlines/house-vote-sean-combs-diddy-verdict.html
-
-**Wordle Review No. 1,476**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 4, 2025.`\
-https://nytimes.com/2025/07/03/crosswords/wordle-review-1476.html
 
