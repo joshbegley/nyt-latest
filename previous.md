@@ -1,3 +1,19 @@
+**Clouds Are Cool, but Have You Ever Seen One Like This?**\
+`A “roll cloud” spotted off the coast of Portugal looked like something out of a movie. Here’s the science behind it.`\
+https://nytimes.com/2025/07/03/weather/roll-cloud-portugal-heat-wave.html
+
+**How Trump’s ‘Big, Beautiful Bill’ Will Make China Great Again**\
+`Beijing must be delighted by how the U.S. is surrendering the future of electricity to it.`\
+https://nytimes.com/2025/07/03/opinion/trump-bill-clean-energy-china.html
+
+**Mark Brokaw, Theater Director Known for Slight-of-Set Magic, Dies at 66**\
+`On and off Broadway, he worked with rising talents like Kenneth Lonergan and Paula Vogel, combining complex storytelling with the simplest possible productions.`\
+https://nytimes.com/2025/07/03/theater/mark-brokaw-dead.html
+
+**27 Kid-Approved Summer Adventures**\
+`Need ideas for how your family can make this the best summer ever? These kids have some enthusiastic recommendations.`\
+https://nytimes.com/2025/07/03/magazine/27-kid-approved-summer-adventures.html
+
 **What’s It Like to Run a U.S. City Now? Watch What 16 Mayors Said.**\
 `The New York Times interviewed 16 U.S. mayors about President Trump, immigration and their lives outside City Hall.`\
 https://nytimes.com/interactive/2025/07/03/us/mayors-trump-housing-immigration-republican-democrat.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6470839/2025/07/03/gill-india-edgbaston-captain/
 **Hurricanes sign Nikolaj Ehlers to 6-year contract with $8.5 million cap hit**\
 `Carolina made another major move after trading for K'Andre Miller this week.`\
 https://nytimes.com/athletic/6438374/2025/07/03/ehlers-contract-carolina-hurricanes/
-
-**Man Is Charged With Creating ‘Hit List’ of Public Officials**\
-`Noah Lamb, 24, was accused of playing a “central role” in a white supremacist group’s creation of a list of assassination targets, including a U.S. senator and a federal judge.`\
-https://nytimes.com/2025/07/03/us/white-supremacist-charged-assassination.html
-
-**Drugmakers Notch a $5 Billion Win in Republicans’ Policy Bill**\
-`More medicines will be spared from Medicare price negotiations, a change that is projected to wipe out billions in savings for the federal government.`\
-https://nytimes.com/2025/07/03/health/trump-bill-medicare-drug-prices.html
-
-**How Will Trump’s Big Bill Affect Your Wallet?**\
-`The wide-ranging domestic policy legislation could impact your taxes, clean energy choices, health care access and more.`\
-https://nytimes.com/interactive/2025/business/trump-tax-bill-personal-finances.html
-
-**9 Questions About the Republican Megabill, Answered**\
-`Who benefits, and who gets hurt? How much does it really add to the debt? And what’s the deal with Alaska?`\
-https://nytimes.com/2025/07/03/upshot/republican-bill-faq.html
 
