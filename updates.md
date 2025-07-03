@@ -1,3 +1,11 @@
+**Sean Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
+`Sean Combs, the hip-hop mogul who built a business empire around his personal brand, was convicted on Wednesday of transporting prostitutes to participate in his drug-fueled sex marathons, but acquitted of racketeering and sex trafficking, the most serious charges against him.`\
+https://nytimes.com/video/us/100000010263390/sean-combs-acquitted-of-sex-trafficking-but-found-guilty-on-lesser-charges.html
+
+**Skydiving Plane With 15 Aboard Crashes in New Jersey**\
+`The plane, a Cessna 208B, went off the end of a runway as it was taking off from a small airport in Gloucester County, according to the F.A.A. Victims were being treated at the scene, officials said.`\
+https://nytimes.com/2025/07/02/nyregion/plane-crash-new-jersey-cross-keys.html
+
 **A federal judge blasts a ‘war’ against D.E.I. by federal health agencies.**\
 `In a 103-page opinion, Judge William G. Young chronicled an “unmistakable pattern of discrimination” by the Trump administration in its termination of federal science funding.`\
 https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news/a-federal-judge-blasts-a-war-against-dei-by-federal-health-agencies
