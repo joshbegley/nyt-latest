@@ -1,3 +1,19 @@
+**Supreme Court to hear cases challenging state bans on transgender athletes**\
+`The decision could have sweeping ramifications for more than two dozen states across the country with similar laws.`\
+https://nytimes.com/athletic/6471533/2025/07/03/supreme-court-transgender-athletes-bans/
+
+**Mistreating Detained Immigrants: ‘Is This Who We Are Now?’**\
+`Readers voice outrage over appalling conditions in immigrant detention centers. Also: Paramount’s settlement; political violence; not pro bono.`\
+https://nytimes.com/2025/07/03/opinion/immigrants-detention-mistreatment.html
+
+**Caitlin Clark to WNBA commissioner on pay: 'It makes no sense. ... Help us out.'**\
+`Winners of the Commissioner's Cup earn more than WNBA championship winners, an issue Clark pointed out after the Fever's victory.`\
+https://nytimes.com/athletic/6471877/2025/07/03/caitlin-clark-wnba-commissioner-salary/
+
+**Live Count: The House Votes on the President’s Policy Bill**\
+`The House is preparing to vote on President Trump’s sweeping domestic policy package.`\
+https://nytimes.com/interactive/2025/07/03/us/house-megabill-vote.html
+
 **Norway start slowly in their mission to re-establish themselves as a major footballing nation**\
 `Wednesday's opener was eventually a step in the right direction — but there is still a lot of work to do`\
 https://nytimes.com/athletic/6471479/2025/07/03/norway-euros-switzerland-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/03/style/group-chat-tiktok-sydney-jo-robinson.html
 **E.P.A. Suspends 144 Employees After They Signed a Letter Criticizing Trump**\
 `The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
 https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
-
-**Manchester City Women appoint Andree Jeglertz as head coach**\
-`Jeglertz will remain in charge of Denmark for the Euros before taking over at City.`\
-https://nytimes.com/athletic/6402039/2025/07/03/manchester-city-andree-jeglertz/
-
-**9 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/07/03/books/review/new-book-recommendations.html
-
-**Don’t Bet Against the House Salad Dressing**\
-`Creamy lemon miso, jalapeño ranch, honey mustard, carrot ginger, miso sesame. Any of these, on your favorite veggies, is an easy win.`\
-https://nytimes.com/2025/07/03/dining/11-easy-salad-dressing-recipes.html
-
-**Fantasy bullpen report featuring rising relievers Ronny Henriquez, Bryan Abreu and more**\
-`Greg Jewett's weekly bullpen report, featuring leverage pathways, rising relievers, save stashes, trade deadline insurance and more. `\
-https://nytimes.com/athletic/6471610/2025/07/03/fantasy-bullpen-report-henriquez-abreu/
 

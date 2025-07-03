@@ -1,3 +1,11 @@
+**Norway start slowly in their mission to re-establish themselves as a major footballing nation**\
+`Wednesday's opener was eventually a step in the right direction — but there is still a lot of work to do`\
+https://nytimes.com/athletic/6471479/2025/07/03/norway-euros-switzerland-analysis/
+
+**E.P.A. Suspends 144 Employees After They Signed a Letter Criticizing Trump**\
+`The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
+https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
+
 **With Her Designs, Pebbles Become Distinctive Jewelry**\
 `Nathalie Mathoulin said her young children “were the ones showing me the way of looking at stones.”`\
 https://nytimes.com/2025/07/03/fashion/jewelry-pebbles-nathalie-mathoulin-england.html
