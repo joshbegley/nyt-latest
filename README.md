@@ -1,3 +1,7 @@
+**Wimbledon recap: Grand Slam champions hold firm as tournament sets seed record**\
+`Wimbledon has the fewest seeds in the third round of any Grand Slam since 2001, but plenty of major champions remain.`\
+https://nytimes.com/athletic/6472555/2025/07/03/tennis-wimbledon-recap-seed-record-grand-slam/
+
 **Immigration Agents Appear to Urinate in Public at a California School**\
 `School officials have demanded answers from federal agencies. It was the latest example of how locals have scrutinized the actions of immigration agents.`\
 https://nytimes.com/2025/07/03/us/immigration-agents-urinate-california-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/arts/jim-shooter-dead.html
 **Heinze to join Arteta's Arsenal coaching staff**\
 `The former Manchester United and Real Madrid defender has held managerial roles at Godoy Cruz, Atlanta United and Newell's Old Boys.`\
 https://nytimes.com/athletic/6440623/2025/07/03/gabriel-heinze-arsenal-coach/
-
-**Where the Giants’ pitchers rank first (or last) halfway through the season**\
-`Giants hitters are putting up some scary stats but, on the flip side, Giants pitchers are leading the way in several good categories.`\
-https://nytimes.com/athletic/6469952/2025/07/03/sf-giants-pitching-statistical-rankings/
 
