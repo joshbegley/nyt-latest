@@ -1,3 +1,7 @@
+**Liverpool - a city and club locked in numb disbelief**\
+`Merseyside is used to tragedy becoming part of its football narrative, but the death of their beloved striker has cut deep`\
+https://nytimes.com/athletic/6456072/2025/07/03/liverpool-diogo-jota-fans-reaction/
+
 **Congress Passes a National School Voucher Program**\
 `The plan, part of the Republican domestic policy bill, includes all but the wealthiest families. But states must opt in, which could limit its reach.`\
 https://nytimes.com/2025/07/03/us/federal-voucher-program-congress-private-school-tuition.html

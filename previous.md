@@ -1,3 +1,7 @@
+**Liverpool - a city and club locked in numb disbelief**\
+`Merseyside is used to tragedy becoming part of its football narrative, but the death of their beloved striker has cut deep`\
+https://nytimes.com/athletic/6456072/2025/07/03/liverpool-diogo-jota-fans-reaction/
+
 **Congress Passes a National School Voucher Program**\
 `The plan, part of the Republican domestic policy bill, includes all but the wealthiest families. But states must opt in, which could limit its reach.`\
 https://nytimes.com/2025/07/03/us/federal-voucher-program-congress-private-school-tuition.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472186/2025/07/03/nhl-contract-grades-nikolaj-ehle
 **They Savaged Their Party’s Bill. Then They Voted for It.**\
 `Many Republicans had harshly criticized President Trump’s marquee bill extending tax cuts and slashing social safety net programs — almost right up until the moment they voted for it.`\
 https://nytimes.com/2025/07/03/us/politics/republican-criticism-trump-policy-bill.html
-
-**Steelers sign GM Omar Khan to 3-year extension**\
-`Khan took over a famously conservative team and made a splash with his aggressiveness, but the Steelers' playoff win drought continues.`\
-https://nytimes.com/athletic/6472078/2025/07/03/omar-khan-steelers-gm-extension/
 
