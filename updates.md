@@ -1,3 +1,19 @@
+**Diogo Jota, Liverpool Soccer Star, Dies in Car Crash at 28**\
+`Mr. Jota and his brother Andrés, 26, died in Spain, the authorities said. The crash came two weeks after the Portuguese player’s wedding.`\
+https://nytimes.com/2025/07/03/world/europe/diogo-jota-dead-car-crash-liverpool.html
+
+**How to watch the 2025 British Grand Prix, F1's big midseason test**\
+`With McLaren surging, Verstappen stumbling and two Brits in the hunt, legacy leads as Formula One heads to Silverstone.`\
+https://nytimes.com/athletic/6468648/2025/07/03/british-grand-prix-2025-f1-how-to-watch/
+
+**Why This Country’s Stock Market Is Up 30% This Year**\
+`South Korea has zoomed upward in anticipation that a new president will pass shareholder-friendly reforms, making it the best-performing market in Asia and beyond.`\
+https://nytimes.com/2025/07/03/business/stocks-south-korea-kospi.html
+
+**Liverpool forward Diogo Jota, brother Andre Silva die in road accident**\
+`Local police in Spain confirmed the incident occurred at 00:30 local time on Thursday morning.`\
+https://nytimes.com/athletic/6470812/2025/07/03/diogo-jota-death-brother-road-accident-liverpool/
+
 **Reacting to the Sean Combs Verdict**\
 `A conversation about how and why the music mogul was acquitted of the most serious charges at his sex trafficking trial.`\
 https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-verdict-popcast.html
