@@ -1,3 +1,15 @@
+**Pardoned Jan. 6 Rioter Sentenced to Life in Assassination Plot**\
+`Edward Kelley had been convicted of plotting to kill the law enforcement officers who had investigated his case.`\
+https://nytimes.com/2025/07/03/us/politics/jan6-assassination-plot-sentence.html
+
+**Venus Williams says she dealt with painful fibroids for decades: 'I never had enough energy'**\
+`Williams opened up about her painful struggle with uterine fibroids, which went undiagnosed for years.`\
+https://nytimes.com/athletic/6471549/2025/07/03/venus-williams-tennis-fibroids/
+
+**How a Parasitic Bird With No Parents Learns What Species It Is**\
+`Cowbird mothers abandon their eggs in the nests of other bird species, but the chicks somehow manage to find their flock and learn what they really are.`\
+https://nytimes.com/2025/07/03/science/cowbirds-parasites-species.html
+
 **Supreme Court to hear cases challenging state bans on transgender athletes**\
 `The decision could have sweeping ramifications for more than two dozen states across the country with similar laws.`\
 https://nytimes.com/athletic/6471533/2025/07/03/supreme-court-transgender-athletes-bans/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/03/fashion/jewelry-pebbles-nathalie-mathoulin-englan
 **Why Buyers Are Spending Millions on Colored Diamonds**\
 `Is the global turmoil driving sales of portable assets? Or is it just a love of rare jewels?`\
 https://nytimes.com/2025/07/03/fashion/jewelry-colored-diamonds-christies.html
-
-**Extreme Heat Shuts Down Some Nuclear Reactors in Europe**\
-`Power plant operators in Switzerland and France idled reactors so that discharged cooling water would not harm wildlife in already-hot rivers.`\
-https://nytimes.com/2025/07/03/climate/extreme-heat-nuclear-shutdowns.html
-
-**Get Your Phones Ready, ‘The Group Chat’ Is Coming Back**\
-`Sydney Jo Robinson created the wildly popular TikTok series in March. As she gets ready to release Season 3, it has upended her entire life.`\
-https://nytimes.com/2025/07/03/style/group-chat-tiktok-sydney-jo-robinson.html
-
-**E.P.A. Suspends 144 Employees After They Signed a Letter Criticizing Trump**\
-`The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
-https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
 
