@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Talks between Israel and Hamas.`\
+https://nytimes.com/2025/07/03/briefing/hamas-israel-sean-combs.html
+
 **Tim Ream: 'Shame' on USMNT critics as Luna goals set up Mexico final**\
 `The veteran central defender had some strong words for those who have doubted Mauricio Pochettino's team.`\
 https://nytimes.com/athletic/6470643/2025/07/03/usmnt-mexico-guatemala-ream-luna/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470567/2025/07/03/jurickson-profar-apologizes-ped-
 **As a Nation’s Economy Slows, Some Say It’s No Time for a Free Lunch**\
 `Indonesia’s president promised free meals for every student in the country. But unemployment is rising, and some analysts say he’s making matters worse.`\
 https://nytimes.com/2025/07/03/world/asia/indonesia-school-lunch-economy.html
-
-**Football Architects: Rebuilding Ajax’s famous academy in Johan Cruyff’s image**\
-`The Dutch giants were at a low ebb in 2010 — this is the story of how they worked with their greatest figure to rebuild the club`\
-https://nytimes.com/athletic/6445365/2025/07/03/football-architects-rebuilding-ajax-johan-cruyff/
 
