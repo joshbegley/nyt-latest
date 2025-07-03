@@ -1,3 +1,11 @@
+**Trump Wants the World to Squeeze Out China. He’s Starting With Vietnam.**\
+`An initial trade deal with Vietnam offers a glimpse of how President Trump is pushing countries to cut back on trade with China.`\
+https://nytimes.com/2025/07/03/business/trump-tariffs-vietnam-southeast-asia.html
+
+**Bills training camp 2025 tight end preview: Will Dalton Kincaid finally have his breakout season?**\
+`The Bills have a lot invested in the tight end position.`\
+https://nytimes.com/athletic/6391606/2025/07/03/bills-training-camp-2025-tight-end-dalton-kincaid/
+
 **Clayton Kershaw reflects on long, difficult journey to 3,000 strikeouts: 'I am grateful'**\
 `“I’ve been through it. Ups and downs here. More downs than I care to admit. But the fans tonight, it really meant a lot," Kershaw said.`\
 https://nytimes.com/athletic/6470769/2025/07/03/dodgers-clayton-kershaw-3000-strikeouts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6468308/2025/07/03/twins-trade-deadline-ownership-d
 **Why the Blackhawks are staying the course and not rushing Kyle Davidson's rebuild**\
 `Davidson's strategy requires a lot of losing and growing pains, but it’s all with the intent of sustaining success afterward.`\
 https://nytimes.com/athletic/6469700/2025/07/03/blackhawks-nhl-free-agency-rebuild/
-
-**Canucks offseason depth chart 2.0: Where does Vancouver stand after free agency?**\
-`Vancouver didn't add volume this offseason but that doesn't mean changes haven't been made.`\
-https://nytimes.com/athletic/6468003/2025/07/03/canucks-offseason-depth-chart-free-agency/
-
-**Sabres thoughts: The Bowen Byram situation could define Kevyn Adams' summer**\
-`Too many recent offseasons have been defined by the players that left the Sabres. Can Adams change the narrative?`\
-https://nytimes.com/athletic/6470639/2025/07/03/sabres-kevyn-adams-bowen-byram-offseason/
 
