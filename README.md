@@ -1,3 +1,19 @@
+**Diogo Jota, Liverpool Soccer Star, Dies in Car Crash at 28**\
+`Mr. Jota and his brother Andrés, 26, died in Spain, the authorities said. The crash came two weeks after the Portuguese player’s wedding.`\
+https://nytimes.com/2025/07/03/world/europe/diogo-jota-dead-car-crash-liverpool.html
+
+**How to watch the 2025 British Grand Prix, F1's big midseason test**\
+`With McLaren surging, Verstappen stumbling and two Brits in the hunt, legacy leads as Formula One heads to Silverstone.`\
+https://nytimes.com/athletic/6468648/2025/07/03/british-grand-prix-2025-f1-how-to-watch/
+
+**Why This Country’s Stock Market Is Up 30% This Year**\
+`South Korea has zoomed upward in anticipation that a new president will pass shareholder-friendly reforms, making it the best-performing market in Asia and beyond.`\
+https://nytimes.com/2025/07/03/business/stocks-south-korea-kospi.html
+
+**Liverpool forward Diogo Jota, brother Andre Silva die in road accident**\
+`Local police in Spain confirmed the incident occurred at 00:30 local time on Thursday morning.`\
+https://nytimes.com/athletic/6470812/2025/07/03/diogo-jota-death-brother-road-accident-liverpool/
+
 **Reacting to the Sean Combs Verdict**\
 `A conversation about how and why the music mogul was acquitted of the most serious charges at his sex trafficking trial.`\
 https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-verdict-popcast.html
@@ -21,16 +37,4 @@ https://nytimes.com/2025/07/03/us/tucson-arizona-democrats.html
 **Dan Evans sacrificed his career for Andy Murray's Olympic farewell. Now he is back on Centre Court**\
 `12 months ago, Evans sacrificed his career to play at the Olympics. Now he is back on Centre Court at his home major.`\
 https://nytimes.com/athletic/6468549/2025/07/03/tennis-dan-evans-wimbledon-olympics-rankings-andy-murray/
-
-**What Are Republicans Thinking With Such a Reckless Bill? Maybe This.**\
-`A tax move from the Reagan era might explain what’s going on now.`\
-https://nytimes.com/2025/07/03/opinion/republican-bill-trump-reagan.html
-
-**42 Years After She Vanished, a Man She Was Seeing Is Charged in Her Murder**\
-`Teresa Peroni was last seen on July 4, 1983, in Selma, Ore. DNA testing confirmed that a skull found in 1997 was hers.`\
-https://nytimes.com/2025/07/03/us/teresa-peroni-cold-case.html
-
-**The Classical Music Our Critics Can’t Stop Thinking About**\
-`Watch and listen to recent highlights, including “The Comet/Poppea,” a Dave Malloy song cycle and a soprano’s surprise turn at the Metropolitan Opera.`\
-https://nytimes.com/2025/07/03/arts/music/best-classical-music-june-2025.html
 
