@@ -1,3 +1,31 @@
+**Vatican Publishes a New Mass on Caring for the Environment**\
+`The Mass, along with other steps, show Pope Leo XIV and the Roman Catholic Church building on the environmental commitment of his predecessor, Francis.`\
+https://nytimes.com/2025/07/03/world/europe/vatican-mass-environment.html
+
+**‘I haven’t changed. I'm the same Pogba': New Monaco midfielder targeting World Cup**\
+`The 32-year-old signed a two-year deal with the Ligue 1 club last week.`\
+https://nytimes.com/athletic/6471332/2025/07/03/paul-pogba-monaco-france/
+
+**What to know about the jobs report.**\
+`By Sydney Ember`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/jobs-report-june
+
+**They Planned Parties and Salsa Music for July 4th. ICE Raids Made Them Think Twice.**\
+`Some communities in the Los Angeles region canceled events over fears of immigration raids, as Latinos grapple with how, and whether, to celebrate Independence Day.`\
+https://nytimes.com/2025/07/03/us/immigration-raids-fourth-of-july.html
+
+**Who might the Knicks get in Mike Brown? Two-time Coach of the Year is still evolving**\
+`Brown is notorious for holding players accountable. His potential employer is betting on personality and diligence more than anything else.`\
+https://nytimes.com/athletic/6471316/2025/07/03/mike-brown-knicks-evolution-expectations/
+
+**In Europe, Economists See a Chance to Rise on the Global Stage**\
+`Central bankers who gathered in Portugal this week focused on ways that Europe could improve its competitiveness with the United States and China.`\
+https://nytimes.com/2025/07/03/business/europe-economy-trump-competition.html
+
+**Fury in talks to return to boxing with Usyk trilogy fight in 2026**\
+`Fury announced his retirement from the sport in January, the fifth time he had indicated he was stepping away from the ring.`\
+https://nytimes.com/athletic/6470029/2025/07/03/tyson-fury-return-oleksandr-usyk/
+
 **Sharks sign Dmitry Orlov to 2-year contract with $6.5 million cap hit**\
 `Orlov is a well-rounded presence on the blue line, capable of handling a heavy workload.`\
 https://nytimes.com/athletic/6438403/2025/07/03/sharks-dmitry-orlov-contract-details/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6470899/2025/07/03/mlb-prospects-trade-deadline-exe
 **How Syria’s Dictator Buried His Victims**\
 `A cemetery near Damascus was transformed into an industrial-scale mass grave for Syrians who opposed President Bashar al-Assad.`\
 https://nytimes.com/interactive/2025/07/03/world/middleeast/syria-mass-grave-assad-regime.html
-
-**Winners (Hawks), losers (July) and more (Lakers) from NBA free agency's first days**\
-`The summer transaction cycle isn't what it used to be, but we still had plenty of action to analyze this week.`\
-https://nytimes.com/athletic/6470729/2025/07/03/nba-free-agency-2025-winners-losers-lakers-celtics-hawks/
-
-**Tracking Tropical Storm Mun**\
-`See the likely path and wind arrival times for Mun`\
-https://nytimes.com/interactive/2025/07/03/weather/mun-map-path-tracker.html
-
-**Hamilton warns against rushing into making sequel to F1 The Movie**\
-`Seven-time F1 world champion Hamilton served as a producer on F1 The Movie, which starred Brad Pitt and was released last week worldwide.`\
-https://nytimes.com/athletic/6471485/2025/07/03/lewis-hamilton-f1-movie-sequel/
-
-**Lifting Gold Cup against Mexico can give Pochettino's USMNT extra belief**\
-`A Gold Cup title would be a welcome boost for the coach and his squad.`\
-https://nytimes.com/athletic/6471153/2025/07/03/pochettino-usmnt-gold-cup-mexico/
-
-**Lazerus: Fathers, sons and the unbreakable bond of sports absurdity**\
-`We shared a love of bad jokes and worse teams. Now that he’s gone, that beautiful, silly connection means more than ever.`\
-https://nytimes.com/athletic/6470382/2025/07/03/mark-lazerus-fathers-sons-sports/
-
-**Share your memories of Diogo Jota**\
-`In tribute to the Portuguese, we are inviting fans of his old clubs to share their favourite memories – on and off the field `\
-https://nytimes.com/athletic/6471298/2025/07/03/diogo-jota-wolves-liverpool-fans-memories/
-
-**Impressively Easy Berries and Cream Cake Impresses, Easily**\
-`You don’t need any fancy equipment to make this beautiful sheet cake (and you don’t need to remember to soften your butter first, either).`\
-https://nytimes.com/2025/07/03/dining/easy-berry-sheet-cake-for-july-4.html
 
