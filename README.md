@@ -1,3 +1,11 @@
+**Tim Ream: 'Shame' on USMNT critics as Luna goals set up Mexico final**\
+`The veteran central defender had some strong words for those who have doubted Mauricio Pochettino's team.`\
+https://nytimes.com/athletic/6470643/2025/07/03/usmnt-mexico-guatemala-ream-luna/
+
+**Should Diaz be sold? Our Liverpool writer argues with himself**\
+`The Colombian's future has been the subject of scrutiny all summer. Andy Jones and Andrew Jones untangle the debate`\
+https://nytimes.com/athletic/6468839/2025/07/03/luis-diaz-liverpool-contract-transfer-debate/
+
 **Huijsen, Delap, Mbeumo and now Joao Pedro: Why do Newcastle keep missing out on targets?**\
 `Newcastle are yet to sign a senior player this summer and supporter apprehension is growing...`\
 https://nytimes.com/athletic/6468027/2025/07/03/newcastle-transfers-missing-out/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/world/asia/indonesia-school-lunch-economy.html
 **Football Architects: Rebuilding Ajax’s famous academy in Johan Cruyff’s image**\
 `The Dutch giants were at a low ebb in 2010 — this is the story of how they worked with their greatest figure to rebuild the club`\
 https://nytimes.com/athletic/6445365/2025/07/03/football-architects-rebuilding-ajax-johan-cruyff/
-
-**With Jenni Hermoso left out, who will be Spain's star striker at Euro 2025?**\
-`Hermoso was key at the World Cup in 2023, scoring three times and winning the Silver Ball award for the second-best player of the tournament`\
-https://nytimes.com/athletic/6462765/2025/07/03/spain-euro-2025-hermoso-strikers/
-
-**'DNA', talent-spotting and toast tutorials: What it takes to lead Man Utd's academy**\
-`It is one of the biggest jobs in youth football but what is required of the person to take over United's academy?`\
-https://nytimes.com/athletic/6468186/2025/07/03/manchester-united-academy-head-role/
 
