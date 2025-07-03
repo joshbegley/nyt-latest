@@ -1,3 +1,11 @@
+**From strikeout No. 1 to his 3,000th: Why Clayton Kershaw's slider became his foundation**\
+`The Dodgers lefty looked promising when he began his career, but he really took off once he added a pitch he didn't even throw in 2008.`\
+https://nytimes.com/athletic/6457072/2025/07/02/clayton-kershaw-3000-strikeouts-slider-dodgers/
+
+**Patricia Peterson, Innovative Fashion Editor at The Times, Dies at 99**\
+`She oversaw fashion coverage beginning in 1957, when hemlines made headlines. She later made groundbreaking ads for Henri Bendel with her photographer husband, Gösta Peterson.`\
+https://nytimes.com/2025/07/02/style/patricia-peterson-dead.html
+
 **José Ramírez doesn't think he's having a great season. The stats say otherwise**\
 `"He's the best all-around third baseman in baseball," said Guardians manager Stephen Vogt. `\
 https://nytimes.com/athletic/6470402/2025/07/02/jose-ramirez-all-star-season/
