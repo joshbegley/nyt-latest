@@ -1,3 +1,15 @@
+**Thursday Briefing**\
+`Talks between Israel and Hamas.`\
+https://nytimes.com/2025/07/03/briefing/hamas-israel-sean-combs.html
+
+**Tim Ream: 'Shame' on USMNT critics as Luna goals set up Mexico final**\
+`The veteran central defender had some strong words for those who have doubted Mauricio Pochettino's team.`\
+https://nytimes.com/athletic/6470643/2025/07/03/usmnt-mexico-guatemala-ream-luna/
+
+**Should Diaz be sold? Our Liverpool writer argues with himself**\
+`The Colombian's future has been the subject of scrutiny all summer. Andy Jones and Andrew Jones untangle the debate`\
+https://nytimes.com/athletic/6468839/2025/07/03/luis-diaz-liverpool-contract-transfer-debate/
+
 **Huijsen, Delap, Mbeumo and now Joao Pedro: Why do Newcastle keep missing out on targets?**\
 `Newcastle are yet to sign a senior player this summer and supporter apprehension is growing...`\
 https://nytimes.com/athletic/6468027/2025/07/03/newcastle-transfers-missing-out/
