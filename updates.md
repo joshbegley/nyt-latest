@@ -1,3 +1,7 @@
+**USWNT revives set piece dominance with 3-0 win over continental rival Canada**\
+`Midfielder Rose Lavelle facilitated two of the three goals for the U.S.`\
+https://nytimes.com/athletic/6470406/2025/07/02/uswnt-revives-set-piece-dominance-win-canada/
+
 **Brent Burns agrees to 1-year contract with Colorado Avalanche**\
 `Burns has played 925 consecutive regular-season games.`\
 https://nytimes.com/athletic/6458348/2025/07/02/brent-burns-avalanche-contract/
