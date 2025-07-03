@@ -1,3 +1,19 @@
+**The House Passed Trump’s Big Bill, Showcasing His Power**\
+`Also, the U.S. labor market remained robust. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
+
+**Bonmati returns for Spain a week after viral meningitis hospitalisation**\
+`Bonmati entered the field in the 81st minute of Spain's group stage win over Portugal at Euro 2025.`\
+https://nytimes.com/athletic/6468281/2025/07/03/aitana-bonmati-spain-return-meningitis/
+
+**Mamdani Identified as Asian and African American on College Application**\
+`Zohran Mamdani, the Democrat running for mayor of New York City, was born in Uganda. He doesn’t consider himself Black but said the application didn’t allow for the complexity of his background.`\
+https://nytimes.com/2025/07/03/nyregion/mamdani-columbia-black-application.html
+
+**Palmeiras coach to U.S. fans before Fourth of July Chelsea clash: 'Join up with us against the English!'**\
+`Ferreira’s light-hearted call to action means that Palmeiras might have a louder cohort of local fans in the stadium on Friday evening.`\
+https://nytimes.com/athletic/6472437/2025/07/03/abel-ferreira-palmeiras-chelsea/
+
 **What the Republicans’ New Policy Bill Means for Higher Education**\
 `Social work majors might struggle to get student loans. University endowments would be more heavily taxed. But students in some training programs would become eligible for Pell Grants.`\
 https://nytimes.com/2025/07/03/us/trump-bill-education-college-student-loans.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/03/world/africa/david-mabuza-dead.html
 **Ben Shelton's Wimbledon match suspended due to darkness as he serves for win**\
 `Shelton is the latest American tennis player to fall foul of Wimbledon's curfews.`\
 https://nytimes.com/athletic/6472417/2025/07/03/ben-shelton-wimbledon-match-suspended-darkness/
-
-**Mexico Confirms Arrest Warrant for Boxer Julio César Chávez Jr.**\
-`The well-known Mexican boxer was detained by U.S. immigration agents in California on Wednesday, days after fighting a high-profile contest against the former YouTuber Jake Paul.`\
-https://nytimes.com/2025/07/03/world/americas/mexico-arrest-warrant-boxer-julio-cesar-chavez-jr.html
-
-**House Narrowly Passes Trump’s Bill**\
-`In a 218 to 214 vote, the House passed a sweeping bill to extend tax cuts and slash social safety net programs.`\
-https://nytimes.com/video/us/politics/100000010266736/house-tax-cut-bill.html
-
-**Friday Briefing: House Passes Trump’s Big Bill**\
-`Plus, North Korea’s new beach resort.`\
-https://nytimes.com/2025/07/03/briefing/trump-policy-bill-europe-heatwave-vietnam-trade.html
-
-**Junk Food for the Mind**\
-`It’s not an education if A.I. does your thinking for you.`\
-https://nytimes.com/2025/07/03/opinion/aritificial-intelligence-education.html
 

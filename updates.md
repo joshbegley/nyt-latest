@@ -1,3 +1,19 @@
+**The House Passed Trump’s Big Bill, Showcasing His Power**\
+`Also, the U.S. labor market remained robust. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/03/briefing/house-trump-policy-bill-jobs-report.html
+
+**Bonmati returns for Spain a week after viral meningitis hospitalisation**\
+`Bonmati entered the field in the 81st minute of Spain's group stage win over Portugal at Euro 2025.`\
+https://nytimes.com/athletic/6468281/2025/07/03/aitana-bonmati-spain-return-meningitis/
+
+**Mamdani Identified as Asian and African American on College Application**\
+`Zohran Mamdani, the Democrat running for mayor of New York City, was born in Uganda. He doesn’t consider himself Black but said the application didn’t allow for the complexity of his background.`\
+https://nytimes.com/2025/07/03/nyregion/mamdani-columbia-black-application.html
+
+**Palmeiras coach to U.S. fans before Fourth of July Chelsea clash: 'Join up with us against the English!'**\
+`Ferreira’s light-hearted call to action means that Palmeiras might have a louder cohort of local fans in the stadium on Friday evening.`\
+https://nytimes.com/athletic/6472437/2025/07/03/abel-ferreira-palmeiras-chelsea/
+
 **What the Republicans’ New Policy Bill Means for Higher Education**\
 `Social work majors might struggle to get student loans. University endowments would be more heavily taxed. But students in some training programs would become eligible for Pell Grants.`\
 https://nytimes.com/2025/07/03/us/trump-bill-education-college-student-loans.html
