@@ -1,3 +1,11 @@
+**A Lawyer Was Wrongly Charged With Bringing Drug-Laced Papers Into Rikers**\
+`The Correction Department said Bernardo Caceres’s papers tested positive for THC, a cannabinoid. Then officials tested the papers again.`\
+https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
+
+**Dodgers' Max Muncy expects to miss 6 weeks with bone bruise**\
+`The Dodgers placed Muncy on the injured list on Thursday afternoon after the 34-year-old third baseman spent the morning in an MRI tube.`\
+https://nytimes.com/athletic/6472488/2025/07/03/dodgers-max-muncy-injury/
+
 **Wimbledon recap: Grand Slam champions hold firm as tournament sets seed record**\
 `Wimbledon has the fewest seeds in the third round of any Grand Slam since 2001, but plenty of major champions remain.`\
 https://nytimes.com/athletic/6472555/2025/07/03/tennis-wimbledon-recap-seed-record-grand-slam/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010261616/who-loses-in-the-republican-policy-
 **Teenage Aviator Detained After Landing in Antarctica, Chile Says**\
 `Ethan Guo, 19, had been documenting his attempt to fly solo to all seven continents on social media. He is no longer in custody but has no easy way to leave an island off Antarctica’s coast.`\
 https://nytimes.com/2025/07/03/world/americas/ethan-guo-chile-detained.html
-
-**Jim Shooter, Editor Who ‘Saved the Comics Industry,’ Dies at 73**\
-`He brought order and profits to Marvel in the 1980s and helped establish the genre as a popular-culture tent pole for decades to come.`\
-https://nytimes.com/2025/07/03/arts/jim-shooter-dead.html
-
-**Heinze to join Arteta's Arsenal coaching staff**\
-`The former Manchester United and Real Madrid defender has held managerial roles at Godoy Cruz, Atlanta United and Newell's Old Boys.`\
-https://nytimes.com/athletic/6440623/2025/07/03/gabriel-heinze-arsenal-coach/
 

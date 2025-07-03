@@ -1,3 +1,11 @@
+**A Lawyer Was Wrongly Charged With Bringing Drug-Laced Papers Into Rikers**\
+`The Correction Department said Bernardo Caceres’s papers tested positive for THC, a cannabinoid. Then officials tested the papers again.`\
+https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
+
+**Dodgers' Max Muncy expects to miss 6 weeks with bone bruise**\
+`The Dodgers placed Muncy on the injured list on Thursday afternoon after the 34-year-old third baseman spent the morning in an MRI tube.`\
+https://nytimes.com/athletic/6472488/2025/07/03/dodgers-max-muncy-injury/
+
 **Wimbledon recap: Grand Slam champions hold firm as tournament sets seed record**\
 `Wimbledon has the fewest seeds in the third round of any Grand Slam since 2001, but plenty of major champions remain.`\
 https://nytimes.com/athletic/6472555/2025/07/03/tennis-wimbledon-recap-seed-record-grand-slam/
