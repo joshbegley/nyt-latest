@@ -1,3 +1,7 @@
+**Clayton Kershaw becomes 20th pitcher to reach 3,000 strikeouts**\
+`Kershaw is just the fourth left-hander to reach the exclusive 3,000 strikeout milestone.`\
+https://nytimes.com/athletic/6467874/2025/07/02/dodgers-clayton-kershaw-strikeouts-milestone/
+
 **From strikeout No. 1 to his 3,000th: Why Clayton Kershaw's slider became his foundation**\
 `The Dodgers lefty looked promising when he began his career, but he really took off once he added a pitch he didn't even throw in 2008.`\
 https://nytimes.com/athletic/6457072/2025/07/02/clayton-kershaw-3000-strikeouts-slider-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/crosswords/daily-puzzle-07-03.html
 **Sean Combs Acquitted of Sex Trafficking but Found Guilty on Lesser Charges**\
 `Sean Combs, the hip-hop mogul who built a business empire around his personal brand, was convicted on Wednesday of transporting prostitutes to participate in his drug-fueled sex marathons, but acquitted of racketeering and sex trafficking, the most serious charges against him.`\
 https://nytimes.com/video/us/100000010263390/sean-combs-acquitted-of-sex-trafficking-but-found-guilty-on-lesser-charges.html
-
-**A federal judge blasts a ‘war’ against D.E.I. by federal health agencies.**\
-`In a 103-page opinion, Judge William G. Young chronicled an “unmistakable pattern of discrimination” by the Trump administration in its termination of federal science funding.`\
-https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news/a-federal-judge-blasts-a-war-against-dei-by-federal-health-agencies
 

@@ -1,3 +1,7 @@
+**Clayton Kershaw becomes 20th pitcher to reach 3,000 strikeouts**\
+`Kershaw is just the fourth left-hander to reach the exclusive 3,000 strikeout milestone.`\
+https://nytimes.com/athletic/6467874/2025/07/02/dodgers-clayton-kershaw-strikeouts-milestone/
+
 **From strikeout No. 1 to his 3,000th: Why Clayton Kershaw's slider became his foundation**\
 `The Dodgers lefty looked promising when he began his career, but he really took off once he added a pitch he didn't even throw in 2008.`\
 https://nytimes.com/athletic/6457072/2025/07/02/clayton-kershaw-3000-strikeouts-slider-dodgers/
