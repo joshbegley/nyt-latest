@@ -1,3 +1,7 @@
+**Get Your Phones Ready, ‘The Group Chat’ Is Coming Back**\
+`Sydney Jo Robinson created the wildly popular TikTok series in March. As she gets ready to release Season 3, it has upended her entire life.`\
+https://nytimes.com/2025/07/03/style/group-chat-tiktok-sydney-jo-robinson.html
+
 **E.P.A. Puts 144 Employees on Leave for Signing Letter Criticizing Trump**\
 `The letter had accused the Trump administration of politicizing, dismantling and sidelining the agency.`\
 https://nytimes.com/2025/07/03/climate/epa-letter-administrative-leave.html
