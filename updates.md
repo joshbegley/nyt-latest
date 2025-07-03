@@ -1,3 +1,7 @@
+**How Syria’s Dictator Buried His Victims**\
+`A cemetery near Damascus was transformed into an industrial-scale mass grave for Syrians who opposed President Bashar al-Assad.`\
+https://nytimes.com/interactive/2025/07/03/world/middleeast/syria-mass-grave-assad-regime.html
+
 **Winners (Hawks), losers (July) and more (Lakers) from NBA free agency's first days**\
 `The summer transaction cycle isn't what it used to be, but we still had plenty of action to analyze this week.`\
 https://nytimes.com/athletic/6470729/2025/07/03/nba-free-agency-2025-winners-losers-lakers-celtics-hawks/

@@ -1,3 +1,7 @@
+**How Syria’s Dictator Buried His Victims**\
+`A cemetery near Damascus was transformed into an industrial-scale mass grave for Syrians who opposed President Bashar al-Assad.`\
+https://nytimes.com/interactive/2025/07/03/world/middleeast/syria-mass-grave-assad-regime.html
+
 **Winners (Hawks), losers (July) and more (Lakers) from NBA free agency's first days**\
 `The summer transaction cycle isn't what it used to be, but we still had plenty of action to analyze this week.`\
 https://nytimes.com/athletic/6470729/2025/07/03/nba-free-agency-2025-winners-losers-lakers-celtics-hawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470093/2025/07/03/joey-chestnut-nathans-hot-dog-ea
 **With WNBA expansion adding roster spots, it's time to drop the age restriction**\
 `To keep the WNBA's play high-caliber, bringing in young college stars should be a priority.`\
 https://nytimes.com/athletic/6470548/2025/07/03/wnba-age-restriction-limit-expansion/
-
-**Solid Jobs Report Keeps Fed Rate Cuts at Bay**\
-`The latest labor market data reinforces the central bank’s wait-and-see approach to lowering borrowing costs, despite pressure from President Trump.`\
-https://nytimes.com/2025/07/03/business/jobs-fed-rate-cuts.html
 
