@@ -1,3 +1,11 @@
+**Pete Crow-Armstrong's rapid rise keys Cubs' success**\
+`Shota Imanaga made an unexpected star turn in 2024. A year later, it’s Crow-Armstrong’s turn.`\
+https://nytimes.com/athletic/6470689/2025/07/03/pete-crow-armstrong-cubs-success-shota-imanaga/
+
+**Trump’s Work in Iran Has Only Begun**\
+`It remains to be seen if Washington has learned enough of a lesson to destroy Iran’s remaining nuclear infrastructure.`\
+https://nytimes.com/2025/07/03/opinion/bolton-iran-nuclear.html
+
 **Serie A Femminile's most successful coach on how women's football in Italy must improve**\
 `Rita Guarino knows intimately what it takes to bring success to Italy as a player and manager. Ahead of Euro 2025, she reflects on the team`\
 https://nytimes.com/athletic/6422543/2025/07/03/serie-a-italy-must-improve-rita-guarino-euros/
