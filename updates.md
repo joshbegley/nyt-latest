@@ -1,3 +1,11 @@
+**Pope Leo Returns to Tradition: A Summer Break at a Papal Villa**\
+`For 400 years, most popes escaped the Roman summer in the hilltop town of Castel Gandolfo, Italy. Then Francis stopped going, leaving the town a bit bereft.`\
+https://nytimes.com/2025/07/03/world/europe/pope-leo-summer-castel-gandolfo.html
+
+**The New York Times International Edition in Print for Friday, July 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/03/todays-new-york-times-international-edition
+
 **How Health Care Remade the U.S. Economy**\
 `Medicine is now the nation’s largest employer, but its growth may be slowing.`\
 https://nytimes.com/interactive/2025/07/03/business/economy/healthcare-jobs.html

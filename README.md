@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6468648/2025/07/03/british-grand-prix-2025-f1-how-t
 `South Korea has zoomed upward in anticipation that a new president will pass shareholder-friendly reforms, making it the best-performing market in Asia and beyond.`\
 https://nytimes.com/2025/07/03/business/stocks-south-korea-kospi.html
 
-**Liverpool forward Diogo Jota, brother Andre Silva die in road accident**\
+**Liverpool's Diogo Jota, brother Andre Silva die in road accident**\
 `Local police in Spain confirmed the incident occurred at 00:30 local time on Thursday morning.`\
 https://nytimes.com/athletic/6470812/2025/07/03/diogo-jota-death-brother-road-accident-liverpool/
 
