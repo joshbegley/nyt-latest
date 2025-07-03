@@ -1,3 +1,7 @@
+**Brescia have licence revoked for bankruptcy, kicked out of Italy's Serie C**\
+`The club, who last played in Serie A in 2019-20, were relegated from Serie B after being deducted four points for financial irregularities.`\
+https://nytimes.com/athletic/6471944/2025/07/03/brescia-licence-revoked-bankruptcy/
+
 **Top Russian General Killed in ‘Combat Operations’ Near Ukraine**\
 `Maj. Gen. Mikhail Gudkov, promoted to deputy head of the Russian Navy just a few months earlier, died in an apparent Ukrainian strike.`\
 https://nytimes.com/2025/07/03/world/europe/russian-general-killed-ukraine-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469785/2025/07/03/sarina-wiegman-england-evolution
 **Trump and Putin discuss Iran, Ukraine and possible joint projects.**\
 `By Paul Sonne and Tyler Pager`\
 https://nytimes.com/live/2025/07/03/us/trump-news-policy-bill/trump-putin-call-ukraine-iran
-
-**Arsenal U21 coach Ali leaves to take up role at Brentford**\
-`Ali had been in charge of the under-21s since 2022 after taking over from Kevin Betsy.`\
-https://nytimes.com/athletic/6471840/2025/07/03/mehmet-ali-arsenal-brentford/
 
