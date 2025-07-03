@@ -1,3 +1,19 @@
+**Trump’s immigration crackdown could make it harder to interpret the jobs numbers.**\
+`By Colby Smith and Ben Casselman`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/trumps-immigration-crackdown-could-make-it-harder-to-interpret-the-jobs-numbers
+
+**What to know about the jobs report.**\
+`By Sydney Ember`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/what-to-know-about-the-jobs-report
+
+**Live Updates: U.S. Hiring Expected to Cool**\
+`How resilient is the labor market? Amid signs of softer economic growth, the latest report on jobs will be watched closely.`\
+https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy
+
+**The Diddy Trial Is Over.**\
+`But my mind is still racing.`\
+https://nytimes.com/2025/07/03/podcasts/diddy-sean-combs-verdict.html
+
 **Pope Leo Returns to Tradition: A Summer Break at a Papal Villa**\
 `For 400 years, most popes escaped the Roman summer in the hilltop town of Castel Gandolfo, Italy. Then Francis stopped going, leaving the town a bit bereft.`\
 https://nytimes.com/2025/07/03/world/europe/pope-leo-summer-castel-gandolfo.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6468648/2025/07/03/british-grand-prix-2025-f1-how-t
 **Why This Country’s Stock Market Is Up 30% This Year**\
 `South Korea has zoomed upward in anticipation that a new president will pass shareholder-friendly reforms, making it the best-performing market in Asia and beyond.`\
 https://nytimes.com/2025/07/03/business/stocks-south-korea-kospi.html
-
-**Liverpool's Diogo Jota, brother Andre Silva die in road accident**\
-`Local police in Spain confirmed the incident occurred at 00:30 local time on Thursday morning.`\
-https://nytimes.com/athletic/6470812/2025/07/03/diogo-jota-death-brother-road-accident-liverpool/
-
-**Reacting to the Sean Combs Verdict**\
-`A conversation about how and why the music mogul was acquitted of the most serious charges at his sex trafficking trial.`\
-https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-verdict-popcast.html
-
-**What’s Next for Sean Combs?**\
-`The music mogul remains in custody after he was convicted on two counts of transporting prostitutes. A judge will determine his prison sentence at an unspecified date.`\
-https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-trial-next-prison-lawsuits.html
-
-**Sean Combs’s Winning Defense: He’s Abusive, but He’s Not a Racketeer**\
-`In defusing much of the government’s case, lawyers for the music mogul did not dispute that he did bad things. They disputed that they matched the crimes he was charged with.`\
-https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-lawyers-defense-racketeering.html
 

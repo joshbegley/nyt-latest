@@ -1,3 +1,7 @@
+**Liverpool's Diogo Jota, brother Andre Silva die in road accident**\
+`Local police in Spain confirmed the incident occurred at 00:30 local time on Thursday morning.`\
+https://nytimes.com/athletic/6470812/2025/07/03/diogo-jota-death-brother-road-accident-liverpool/
+
 **Pope Leo Returns to Tradition: A Summer Break at a Papal Villa**\
 `For 400 years, most popes escaped the Roman summer in the hilltop town of Castel Gandolfo, Italy. Then Francis stopped going, leaving the town a bit bereft.`\
 https://nytimes.com/2025/07/03/world/europe/pope-leo-summer-castel-gandolfo.html
