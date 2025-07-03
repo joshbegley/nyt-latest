@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, July 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/03/todays-new-york-times
+
+**We Need to Finish the Job in Iran**\
+`It remains to be seen if Washington has learned enough of a lesson to destroy Iran’s remaining nuclear infrastructure.`\
+https://nytimes.com/2025/07/03/opinion/bolton-iran-nuclear.html
+
 **Thursday Briefing**\
 `Talks between Israel and Hamas.`\
 https://nytimes.com/2025/07/03/briefing/hamas-israel-sean-combs.html

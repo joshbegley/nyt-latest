@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, July 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/03/todays-new-york-times
+
+**We Need to Finish the Job in Iran**\
+`It remains to be seen if Washington has learned enough of a lesson to destroy Iran’s remaining nuclear infrastructure.`\
+https://nytimes.com/2025/07/03/opinion/bolton-iran-nuclear.html
+
 **Thursday Briefing**\
 `Talks between Israel and Hamas.`\
 https://nytimes.com/2025/07/03/briefing/hamas-israel-sean-combs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6407734/2025/07/03/olivier-boscagli-brighton-signin
 **An attacking set-piece weapon with deceptive pace: What Leeds can expect from Bornauw**\
 `An analysis of the new centre-back's style of play and what his strengths and weaknesses are`\
 https://nytimes.com/athletic/6468989/2025/07/03/what-leeds-can-expect-from-bornauw/
-
-**Jurickson Profar apologizes to teammates for PED suspension, then homers in Braves win**\
-`Profar turned the crowd's boos into cheers after his towering leadoff homer in the seventh.`\
-https://nytimes.com/athletic/6470567/2025/07/03/jurickson-profar-apologizes-ped-suspension/
-
-**As a Nation’s Economy Slows, Some Say It’s No Time for a Free Lunch**\
-`Indonesia’s president promised free meals for every student in the country. But unemployment is rising, and some analysts say he’s making matters worse.`\
-https://nytimes.com/2025/07/03/world/asia/indonesia-school-lunch-economy.html
 
