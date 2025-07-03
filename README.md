@@ -1,3 +1,7 @@
+**A federal judge blasts a ‘war’ against D.E.I. by federal health agencies.**\
+`In a 103-page opinion, Judge William G. Young chronicled an “unmistakable pattern of discrimination” by the Trump administration in its termination of federal science funding.`\
+https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news/a-federal-judge-blasts-a-war-against-dei-by-federal-health-agencies
+
 **Plane Crash in New Jersey**\
 `A skydiving plane with 15 people on board crashed as it was taking off from Cross Keys Airport in Gloucester County, N.J., the authorities said.`\
 https://nytimes.com/video/us/100000010265188/plane-crash-new-jersey-cross-keys.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470143/2025/07/02/ronald-acuna-all-star-comeback/
 **Francisco Lindor becomes Mets' first fan-elected starter since 2016**\
 `Francisco Lindor is the Mets' first fan-elected starter since Yoenis Cespedes in 2016.`\
 https://nytimes.com/athletic/6470234/2025/07/02/francisco-lindor-mets-all-star/
-
-**FIFA’s Club World Cup prices get slashed for quarter-finals competition**\
-`Prices for the quarter-finals are cheaper than had been showing for any group stage game before the start of the competition.`\
-https://nytimes.com/athletic/6470002/2025/07/02/fifas-club-world-cup-prices-get-slashed-for-quarter-finals-competition/
 
