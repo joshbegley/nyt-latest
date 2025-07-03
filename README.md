@@ -1,3 +1,11 @@
+**Sizing Up the Debt**\
+`We explain how economists evaluate the national debt.`\
+https://nytimes.com/2025/07/03/briefing/sizing-up-the-debt.html
+
+**Phillies takeaways: Abel's place in rotation, outfield slugging, rookie reliever impresses**\
+`Five walks in 1 2/3 innings — the first Phillies starter to do that since 1998 — will only prompt larger questions about where Abel fits.`\
+https://nytimes.com/athletic/6470527/2025/07/03/phillies-takeaways-mick-abel-rotation-seth-johnson/
+
 **Can we trust the numbers? Yes, with caveats.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/07/03/business/jobs-report-june-economy/can-we-trust-the-numbers-yes-with-caveats
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6468843/2025/07/03/this-week-in-sports-trivia-july-
 **NASCAR midseason review: Checking our predictions at Cup Series' halfway point**\
 `Halfway through the points-race schedule, we update our preseason predictions for Breakout Driver, Biggest Disappointment and more.`\
 https://nytimes.com/athletic/6468266/2025/07/03/nascar-midseason-review-cup-series-prediction/
-
-**Justin Verlander’s outlook, Royals eye Bryan Reynolds and more notes: Rosenthal**\
-`Eugenio Suárez would be a natural trade piece if the Diamondbacks wind up selling, though he says “I don’t want to leave Arizona."`\
-https://nytimes.com/athletic/6470340/2025/07/03/rosenthal-justin-verlander-notes/
-
-**The Sean ‘Diddy’ Combs Verdict**\
-`After a lengthy and highly publicized trial, the music mogul was found not guilty of the most serious charges against him.`\
-https://nytimes.com/2025/07/03/podcasts/the-daily/sean-combs-diddy-verdict.html
 
