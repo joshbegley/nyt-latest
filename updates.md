@@ -1,3 +1,7 @@
+**Sharks claim Nick Leddy: Why the Blues waived him, and what he brings to San Jose**\
+`St. Louis traded for Logan Mailloux on Tuesday, effectively replacing Leddy on the roster for 2025-26.`\
+https://nytimes.com/athletic/6471755/2025/07/03/nick-leddy-sharks-blues-waivers/
+
 **A Last Ride for Clyde Aikau, Surfing Royalty **\
 `Hundreds of surfers paid tribute to a beloved fixture on the Hawaii surf scene.`\
 https://nytimes.com/card/2025/07/03/us/clyde-aikau-paddle-out-hawaii
