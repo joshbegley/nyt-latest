@@ -1,3 +1,7 @@
+**Cubs outfielders Kyle Tucker and Pete Crow-Armstrong voted All-Star Game starters**\
+`The full All-Star rosters will be revealed Sunday, and other Cubs are under consideration, particularly given the club’s first-half success.`\
+https://nytimes.com/athletic/6469578/2025/07/02/cubs-kyle-tucker-pete-crow-armstrong-all-star-game/
+
 **All-Star Game starters announced: 4 first-timers including surprise at AL shortstop**\
 `Shohei Ohtani and Aaron Judge will be at the Midsummer Classic, of course, but who saw A's rookie Jacob Wilson coming?`\
 https://nytimes.com/athletic/6470265/2025/07/02/mlb-all-star-starters-aaron-judge-shohei-ohtani/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/02/us/politics/trump-bill-holdout-republicans.html
 **Bronny James not focused on LeBron rumors: 'I don't really pay attention'**\
 `James said his primary goal this summer is to be in “elite” physical condition after a successful year in the G League.`\
 https://nytimes.com/athletic/6470199/2025/07/02/bronny-james-lebron-contract-rumors/
-
-**Chicago Suburb Will Buy Pope Leo XIV’s Boyhood Home**\
-`Officials in Dolton, Ill., called the purchase a rare opportunity. But some residents questioned whether the village, grappling with a deficit and potholes, could afford it.`\
-https://nytimes.com/2025/07/02/us/pope-leo-chicago-childhood-home.html
 

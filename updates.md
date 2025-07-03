@@ -1,3 +1,7 @@
+**Cubs outfielders Kyle Tucker and Pete Crow-Armstrong voted All-Star Game starters**\
+`The full All-Star rosters will be revealed Sunday, and other Cubs are under consideration, particularly given the club’s first-half success.`\
+https://nytimes.com/athletic/6469578/2025/07/02/cubs-kyle-tucker-pete-crow-armstrong-all-star-game/
+
 **All-Star Game starters announced: 4 first-timers including surprise at AL shortstop**\
 `Shohei Ohtani and Aaron Judge will be at the Midsummer Classic, of course, but who saw A's rookie Jacob Wilson coming?`\
 https://nytimes.com/athletic/6470265/2025/07/02/mlb-all-star-starters-aaron-judge-shohei-ohtani/
