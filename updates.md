@@ -1,3 +1,7 @@
+**Will Cleveland's new WNBA team be the Rockers? How did it earn an expansion franchise?**\
+`Nic Barlage, CEO of Rock Entertainment Group, talks about his new WNBA ownership.`\
+https://nytimes.com/athletic/6469740/2025/07/03/cleveland-wnba-expansion-franchise-nic-barlage/
+
 **Will the NFL ever offer 'Sunday Ticket' on a single-team basis? Sports Media Mailbag (Part 2!)**\
 `Plus: 2030 World Cup rights, top local WNBA announcers, dream broadcast booths and more, from The Athletic's Richard Deitsch.`\
 https://nytimes.com/athletic/6460554/2025/07/03/nfl-sunday-ticket-sports-media-mailbag/
