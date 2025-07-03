@@ -1,3 +1,11 @@
+**Steelers sign GM Omar Khan to 3-year extension**\
+`Khan took over a famously conservative team and made a splash with his aggressiveness, but the Steelers' playoff win drought continues.`\
+https://nytimes.com/athletic/6472078/2025/07/03/omar-khan-steelers-gm-extension/
+
+**Alternate Juror at the Sean Combs Trial: ‘I Understand’ the Verdict**\
+`A Manhattan man who did not deliberate but heard all 28 days of testimony said in an interview that he was not persuaded by the prosecution’s case.`\
+https://nytimes.com/2025/07/03/arts/music/sean-combs-diddy-alternate-juror.html
+
 **Clouds Are Cool, but Have You Ever Seen One Like This?**\
 `A “roll cloud” spotted off the coast of Portugal looked like something out of a movie. Here’s the science behind it.`\
 https://nytimes.com/2025/07/03/weather/roll-cloud-portugal-heat-wave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/us/politics/trump-labor-relations-authority.html
 **Arsenal head of recruitment Ellis to be promoted to technical director**\
 `The Athletic previously reported that new sporting director Andrea Berta is looking to expand the group working around him.`\
 https://nytimes.com/athletic/6471906/2025/07/03/arsenal-james-ellis-technical-director/
-
-**Gill's class with the bat was never in doubt, but this was the day he came of age as India's captain**\
-`The skipper scored a career best 269 at Edgbaston as the visitors ran up an imposing total before making early in-roads into England's reply`\
-https://nytimes.com/athletic/6470839/2025/07/03/gill-india-edgbaston-captain/
-
-**Hurricanes sign Nikolaj Ehlers to 6-year contract with $8.5 million cap hit**\
-`Carolina made another major move after trading for K'Andre Miller this week.`\
-https://nytimes.com/athletic/6438374/2025/07/03/ehlers-contract-carolina-hurricanes/
 
