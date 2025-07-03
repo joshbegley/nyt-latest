@@ -1,3 +1,7 @@
+**Russia Becomes First Country to Recognize Afghanistan’s Taliban Government**\
+`Afghanistan has remained largely isolated since the Taliban seized power nearly four years ago, despite subtle signs of increased cooperation with countries like China and India.`\
+https://nytimes.com/2025/07/03/world/asia/russia-afghanistan-recognize.html
+
 **David Mabuza, South Africa’s Former Deputy President, Dies at 64**\
 `Hailing from a small, rural province, Mr. Mabuza had a remarkable rise to national power. But much of it came crashing down amid corruption allegations.`\
 https://nytimes.com/2025/07/03/world/africa/david-mabuza-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/03/opinion/clean-laundry-clotheslines-be
 **Why Newcastle want Elanga: Rapid dribbling, decision-making at pace, and crossing with either foot**\
 `Newcastle have made a new bid for Elanga worth more than £50million plus bonuses. Here's how the Forest winger would fit Eddie Howe's team`\
 https://nytimes.com/athletic/6455608/2025/07/03/why-newcastle-want-elanga/
-
-**Supreme Court Lets Trump Deport Eight Migrants to South Sudan**\
-`The court’s order followed a broader one last month allowing removals to countries with which migrants have no connections.`\
-https://nytimes.com/2025/07/03/us/supreme-court-migrants-south-sudan.html
 
