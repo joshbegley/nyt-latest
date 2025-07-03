@@ -1,3 +1,11 @@
+**From strikeout No. 1 to his 3,000th: Why Clayton Kershaw's slider became his foundation**\
+`The Dodgers lefty looked promising when he began his career, but he really took off once he added a pitch he didn't even throw in 2008.`\
+https://nytimes.com/athletic/6457072/2025/07/02/clayton-kershaw-3000-strikeouts-slider-dodgers/
+
+**Patricia Peterson, Innovative Fashion Editor at The Times, Dies at 99**\
+`She oversaw fashion coverage beginning in 1957, when hemlines made headlines. She later made groundbreaking ads for Henri Bendel with her photographer husband, Gösta Peterson.`\
+https://nytimes.com/2025/07/02/style/patricia-peterson-dead.html
+
 **José Ramírez doesn't think he's having a great season. The stats say otherwise**\
 `"He's the best all-around third baseman in baseball," said Guardians manager Stephen Vogt. `\
 https://nytimes.com/athletic/6470402/2025/07/02/jose-ramirez-all-star-season/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010263390/sean-combs-acquitted-of-sex-traffic
 **A federal judge blasts a ‘war’ against D.E.I. by federal health agencies.**\
 `In a 103-page opinion, Judge William G. Young chronicled an “unmistakable pattern of discrimination” by the Trump administration in its termination of federal science funding.`\
 https://nytimes.com/live/2025/07/02/us/trump-policy-bill-news/a-federal-judge-blasts-a-war-against-dei-by-federal-health-agencies
-
-**Plane Crash in New Jersey**\
-`A skydiving plane with 15 people on board crashed as it was taking off from Cross Keys Airport in Gloucester County, N.J., the authorities said.`\
-https://nytimes.com/video/us/100000010265188/plane-crash-new-jersey-cross-keys.html
-
-**USMNT heads to Gold Cup final as Diego Luna takes a star turn**\
-`The USMNT scored twice early, then defended out of desperation to book a place in Sunday's Concacaf Gold Cup final`\
-https://nytimes.com/athletic/6470215/2025/07/02/usmnt-guatemala-gold-cup-semifinals-diego-luna/
 
