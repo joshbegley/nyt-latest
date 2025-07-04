@@ -1,5 +1,5 @@
 **United confirm director of women's football, Williams extension**\
-`Johnson originally replaced Dan Ashworth as director of women's football on a six-month interim basis. `\
+`Johnson originally replaced Polly Bancroft as head of women's football on a six-month interim basis. `\
 https://nytimes.com/athletic/6473193/2025/07/04/manchester-united-rachel-williams-contract-director-womens-football/
 
 **Wrigleyville energy returns as Cubs position themselves as trade deadline buyers**\
