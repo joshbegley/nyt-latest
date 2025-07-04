@@ -1,6 +1,18 @@
-**Joey Chesnut wins 2025 Nathan’s Famous Hot Dog Eating Contest after 2024 ban**\
-`Chesnut dominated the competition, eating 70.5  hot dogs and buns in 10 minutes.`\
-https://nytimes.com/athletic/6473777/2025/07/04/joey-chesnut-wins-2025-nathans-famous-hot-dog-eating-contest-after-2024-ban/
+**States Brace for Added Burdens of Trump’s Tax and Spending Law**\
+`With the president’s domestic policy law signed, states will have to administer many of the cuts and decide how much they can spend to keep their citizens insured and fed.`\
+https://nytimes.com/2025/07/04/us/politics/states-trump-bill.html
+
+**Oasis Is Set for Reunion Gig After Years of Feuding**\
+`Liam and Noel Gallagher seem ready to put aside their brotherly rivalry and play the first date of their band’s long-awaited comeback tour.`\
+https://nytimes.com/2025/07/04/arts/oasis-tour-cardiff-concert.html
+
+**Beyond the Light Show: The Effects of Fireworks on Animals and People**\
+`Firework displays can harm animals and create bursts of pollution with lingering effects, but there are ways to mitigate them.`\
+https://nytimes.com/2025/07/04/climate/fireworks-animals-pollution.html
+
+**Joey Chestnut wins 2025 Nathan’s Famous Hot Dog Eating Contest after 2024 ban**\
+`Chestnut dominated the competition, eating 70.5 hot dogs and buns in 10 minutes.`\
+https://nytimes.com/athletic/6473777/2025/07/04/joey-chestnut-wins-2025-nathans-famous-hot-dog-eating-contest-after-2024-ban/
 
 **Kesha Seeks a Chaotic Love, and 9 More New Songs**\
 `Hear tracks by Foo Fighters, Ethel Cain, Tyler Childers and others.`\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6473798/2025/07/04/chelsea-aston-villa-uefa-fines-s
 **As Americans celebrate Independence Day, some are protesting the Trump administration.**\
 `By Ruth Graham, Valerie Crowder and Maria Jimenez Moya`\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news/as-americans-celebrate-independence-day-some-are-protesting-the-trump-administration
-
-**Palace in offer for Ajax left-back Borna Sosa**\
-`The 27-year-old is among several options Palace are considering as they look to add depth and competition for Tyrick Mitchell.`\
-https://nytimes.com/athletic/6473863/2025/07/04/borna-sosa-palace-ajax/
-
-**From Court to Congress to the Mideast, Trump Tallies His Wins**\
-`There are serious questions about the wisdom and durability of President Trump’s policies, but on his terms, he can point to a string of accomplishments.`\
-https://nytimes.com/2025/07/04/us/trump-policy-bill-iran-israel-supreme-court.html
-
-**Wildfires Sweep Syria’s Coast as Drought Strains Fragile State**\
-`Firefighting efforts have been hampered by the presence of mines and unexploded ordnance left over from the civil war, as the country grapples with the worst drought in decades.`\
-https://nytimes.com/2025/07/04/world/middleeast/syria-wildfires-drought.html
 

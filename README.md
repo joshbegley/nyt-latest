@@ -1,10 +1,14 @@
+**Netherlands coach denies causing Euro 2025 'puppet show' with podcast comments**\
+`Andries Jonker appeared on a podcast to discuss his impending departure, and fielded questions about it at a heated press conference.`\
+https://nytimes.com/athletic/6473874/2025/07/04/andries-jonker-netherlands-podcast-comments/
+
 **States Brace for Added Burdens of Trump’s Tax and Spending Law**\
 `With the president’s domestic policy law signed, states will have to administer many of the cuts and decide how much they can spend to keep their citizens insured and fed.`\
 https://nytimes.com/2025/07/04/us/politics/states-trump-bill.html
 
 **Oasis Is Set for Reunion Gig After Years of Feuding**\
 `Liam and Noel Gallagher seem ready to put aside their brotherly rivalry and play the first date of their band’s long-awaited comeback tour.`\
-https://nytimes.com/2025/07/04/arts/oasis-tour-cardiff-concert.html
+https://nytimes.com/2025/07/04/arts/music/oasis-tour-cardiff-concert.html
 
 **Beyond the Light Show: The Effects of Fireworks on Animals and People**\
 `Firework displays can harm animals and create bursts of pollution with lingering effects, but there are ways to mitigate them.`\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6473796/2025/07/04/lyonnes-korbin-albert-transfer-u
 **Chelsea, Aston Villa handed UEFA fines, spending restrictions for breaching financial rules**\
 `Both clubs were found to have breached the European governing body's football earning rules and squad cost rules.`\
 https://nytimes.com/athletic/6473798/2025/07/04/chelsea-aston-villa-uefa-fines-spending-restrictions/
-
-**As Americans celebrate Independence Day, some are protesting the Trump administration.**\
-`By Ruth Graham, Valerie Crowder and Maria Jimenez Moya`\
-https://nytimes.com/live/2025/07/04/us/trump-bill-news/as-americans-celebrate-independence-day-some-are-protesting-the-trump-administration
 

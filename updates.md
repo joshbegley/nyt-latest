@@ -1,3 +1,24 @@
+**States Brace for Added Burdens of Trump’s Tax and Spending Law**\
+`With the president’s domestic policy law signed, states will have to administer many of the cuts and decide how much they can spend to keep their citizens insured and fed.`\
+https://nytimes.com/2025/07/04/us/politics/states-trump-bill.html
+
+**Oasis Is Set for Reunion Gig After Years of Feuding**\
+`Liam and Noel Gallagher seem ready to put aside their brotherly rivalry and play the first date of their band’s long-awaited comeback tour.`\
+https://nytimes.com/2025/07/04/arts/oasis-tour-cardiff-concert.html
+
+**Beyond the Light Show: The Effects of Fireworks on Animals and People**\
+`Firework displays can harm animals and create bursts of pollution with lingering effects, but there are ways to mitigate them.`\
+https://nytimes.com/2025/07/04/climate/fireworks-animals-pollution.html
+
+**Joey Chestnut wins 2025 Nathan’s Famous Hot Dog Eating Contest after 2024 ban**\
+`Chestnut dominated the competition, eating 70.5 hot dogs and buns in 10 minutes.`\
+https://nytimes.com/athletic/6473777/2025/07/04/joey-chestnut-wins-2025-nathans-famous-hot-dog-eating-contest-after-2024-ban/
+
+**NHL 2024-25 prediction contest results, where playing it safe finally paid off**\
+`July 1 has come and gone, marking one of the most important dates on the NHL calendar: the end of the annual prediction contest.
+`\
+https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-contest-results/
+
 **NHL 2024-25 prediction contest results, where playing it safe finally paid off**\
 `July 1 has come and gone, marking one of the most important dates on the NHL calendar: the end of the annual prediction contest.
 `\
