@@ -1,3 +1,11 @@
+**Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
+`Murmurs about Italy’s ability to upset the odds this summer have been building since they finished top of a tough qualifying group`\
+https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
+
+**Manila’s Returning Mayor Has a Mountain to Climb. It’s Made of Garbage.**\
+`Mayor Francisco Domagoso declared a state of emergency in the Philippine capital with piles of garbage left uncollected by contractors saying they had not been paid.`\
+https://nytimes.com/2025/07/04/world/asia/manila-mayor-philippines-garbage.html
+
 **Enter Vicky Lopez, Spain's 18-year-old star-in-waiting**\
 `With Aitana Bonmati on the bench, Lopez stepped up in Spain's Euro 2025 opener and continued to add to her growing reputation `\
 https://nytimes.com/athletic/6472779/2025/07/04/vicky-lopez-spain-euro-2025-barcelona/

@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6473018/2025/07/04/f1-tim-mayer-fia-president-ben-s
 https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
 
 **Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
-`Arianna Caruso’s winning goal against Belgium was a good advert for Italy’s status as European Championship outsiders`\
+`Murmurs about Italy’s ability to upset the odds this summer have been building since they finished top of a tough qualifying group`\
 https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
 
 **Move Over, $100 Lobster Salad. In the Hamptons, These Melons Cost $400.**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transf
 `Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
 https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
 
-**Manila’s Mayor Returns to Office to Face Mountains of Trash**\
+**Manila’s Returning Mayor Has a Mountain to Climb. It’s Made of Garbage.**\
 `Mayor Francisco Domagoso declared a state of emergency in the Philippine capital with piles of garbage left uncollected by contractors saying they had not been paid.`\
 https://nytimes.com/2025/07/04/world/asia/manila-mayor-philippines-garbage.html
 
