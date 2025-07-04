@@ -1,3 +1,19 @@
+**Madison Keys latest Wimbledon seed to fall after grass masterclass from Laura Siegemund**\
+`Keys had no answer to Siegemund's control of the ball on the grass.`\
+https://nytimes.com/athletic/6473630/2025/07/04/tennis-wimbledon-madison-keys-laura-siegemund-result-analysis/
+
+**Rare Cloud Sends Beachgoers Running in Portugal**\
+`A dramatic “roll cloud“ spotted up and down the country’s central coast formed during a weeklong heat wave.`\
+https://nytimes.com/video/world/europe/100000010267804/rare-cloud-sends-beachgoers-running-in-portugal.html
+
+**Villa confirm permanent Coutinho departure**\
+`The 33-year-old's last appearance for Villa came in a 4-0 win over Everton in August 2023.`\
+https://nytimes.com/athletic/6473635/2025/07/04/aston-villa-philippe-coutinho-departure/
+
+**Nuclear Inspectors Leave Iran After Cooperation Halted With U.N. Watchdog**\
+`The withdrawal of international inspectors comes amid heightened concerns that Iran, battered by Israeli and U.S. strikes, may be driven to try to build a nuclear bomb.`\
+https://nytimes.com/2025/07/04/world/middleeast/nuclear-inspectors-iran-iaea.html
+
 **Why Beef Prices Have Hit a Record**\
 `Smaller cattle herds and a decade of headwinds for the industry are expected to push up the cost of burgers and steaks for several years.`\
 https://nytimes.com/2025/07/04/business/beef-prices-cattle.html

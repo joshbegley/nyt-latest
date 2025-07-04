@@ -1,3 +1,7 @@
+**Hurricanes lineup projection after big K'Andre Miller, Nikolaj Ehlers signings**\
+`Two big additions — and a few subtractions — mean the Hurricanes will have a new look next season.`\
+https://nytimes.com/athletic/6472946/2025/07/04/hurricanes-lineup-miller-ehlers/
+
 **Madison Keys latest Wimbledon seed to fall after grass masterclass from Laura Siegemund**\
 `Keys had no answer to Siegemund's control of the ball on the grass.`\
 https://nytimes.com/athletic/6473630/2025/07/04/tennis-wimbledon-madison-keys-laura-siegemund-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010267685/russia-ukraine-kyiv-drone
 **How Chicago's historic orchestra hall helps NASCAR tackle a street-race problem**\
 `At spread-out street courses, NASCAR's spotters need help. At the Chicago race, Symphony Center and some double-decker buses help the cause.`\
 https://nytimes.com/athletic/6472536/2025/07/04/nascar-chicago-street-race-symphony-center-spotters/
-
-**China Sets Steep Duties on European Brandy but Spares Biggest Producers**\
-`Major Cognac companies made concessions to avoid the worst of the penalties, imposed by Beijing in retaliation for E.U. tariffs on Chinese electric vehicles.`\
-https://nytimes.com/2025/07/04/business/china-europe-brandy-cognac-duties.html
 
