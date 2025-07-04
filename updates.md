@@ -1,3 +1,7 @@
+**Trump Signs Signature Policy Bill at Independence Day Event**\
+`President Trump triumphantly highlighted tax cuts in the legislation while downplaying cuts to Medicaid and other assistance for poor Americans.`\
+https://nytimes.com/2025/07/04/us/politics/trump-signs-policy-bill.html
+
 **A Frantic Search for Flooding Survivors by Air, Water and Land**\
 `Hundreds of emergency personnel were searching for stranded people, using 14 helicopters, though crews were struggling to navigate flooded roads, officials said.`\
 https://nytimes.com/2025/07/04/us/search-texas-flood-kerr-county.html

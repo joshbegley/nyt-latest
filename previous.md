@@ -1,3 +1,7 @@
+**Trump Signs Signature Policy Bill at Independence Day Event**\
+`President Trump triumphantly highlighted tax cuts in the legislation while downplaying cuts to Medicaid and other assistance for poor Americans.`\
+https://nytimes.com/2025/07/04/us/politics/trump-signs-policy-bill.html
+
 **A Frantic Search for Flooding Survivors by Air, Water and Land**\
 `Hundreds of emergency personnel were searching for stranded people, using 14 helicopters, though crews were struggling to navigate flooded roads, officials said.`\
 https://nytimes.com/2025/07/04/us/search-texas-flood-kerr-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-te
 **White Sox call up former top prospect Colson Montgomery ahead of Colorado series**\
 `The 23-year-old Montgomery will hit seventh and start at shortstop in Friday's series opener. `\
 https://nytimes.com/athletic/6474238/2025/07/04/chicago-white-sox-colson-montgomery-call-up/
-
-**Wimbledon day 5 recap: Jarry beats Fonseca as South American tennis makes its mark**\
-`South American players were the stars on day five, despite the tennis-mad continent's lack of representation in terms of tournaments.`\
-https://nytimes.com/athletic/6473357/2025/07/04/tennis-wimbledon-recap-day-five-results-news/
 
