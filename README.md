@@ -1,3 +1,7 @@
+**Leader of El Salvador Disputes Claims That Maryland Man Was Tortured**\
+`President Nayib Bukele released a video showing Kilmar Armando Albrego Garcia in comfortable-looking quarters.`\
+https://nytimes.com/2025/07/03/us/politics/abrego-garcia-el-salvador-bukele.html
+
 **Yankees starter Clarke Schmidt exits early after apparent injury**\
 `Clarke Schmidt left Thursday night's start against the Toronto Blue Jays after three innings and 55 pitches.`\
 https://nytimes.com/athletic/6472735/2025/07/03/yankees-clarke-schmidt-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472488/2025/07/03/dodgers-max-muncy-injury/
 **Wimbledon recap: Grand Slam champions hold firm as tournament sets seed record**\
 `Wimbledon has the fewest seeds in the third round of any Grand Slam since 2001, but plenty of major champions remain.`\
 https://nytimes.com/athletic/6472555/2025/07/03/tennis-wimbledon-recap-seed-record-grand-slam/
-
-**Immigration Agents Appear to Urinate in Public at a California School**\
-`School officials have demanded answers from federal agencies. It was the latest example of how locals have scrutinized the actions of immigration agents.`\
-https://nytimes.com/2025/07/03/us/immigration-agents-urinate-california-school.html
 
