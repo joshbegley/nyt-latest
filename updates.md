@@ -1,3 +1,7 @@
+**Are the Blues and Bowen Byram a trade match? Breaking down fit, cost and other factors**\
+`The Blues are interested in Sabres defenseman Bowen Byram, but what would they be willing to give up? Does a deal make sense?`\
+https://nytimes.com/athletic/6473820/2025/07/04/blues-sabres-bowen-byram-trade/
+
 **Partey's rape charges explained: Why did it take so long and why are Arsenal under scrutiny?**\
 `Explaining the process behind former Arsenal midfielder's charges and what happens now`\
 https://nytimes.com/athletic/6473868/2025/07/04/thomas-partey-arsenal-rape-charges-explained/

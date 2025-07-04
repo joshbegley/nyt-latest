@@ -1,3 +1,7 @@
+**Are the Blues and Bowen Byram a trade match? Breaking down fit, cost and other factors**\
+`The Blues are interested in Sabres defenseman Bowen Byram, but what would they be willing to give up? Does a deal make sense?`\
+https://nytimes.com/athletic/6473820/2025/07/04/blues-sabres-bowen-byram-trade/
+
 **Partey's rape charges explained: Why did it take so long and why are Arsenal under scrutiny?**\
 `Explaining the process behind former Arsenal midfielder's charges and what happens now`\
 https://nytimes.com/athletic/6473868/2025/07/04/thomas-partey-arsenal-rape-charges-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-calls-zelensky-afte
 **Netherlands coach denies causing Euro 2025 'puppet show' with podcast comments**\
 `Andries Jonker appeared on a podcast to discuss his impending departure, and fielded questions about it at a heated press conference.`\
 https://nytimes.com/athletic/6473874/2025/07/04/andries-jonker-netherlands-podcast-comments/
-
-**States Brace for Added Burdens of Trump’s Tax and Spending Law**\
-`With the president’s domestic policy law signed, states will have to administer many of the cuts and decide how much they can spend to keep their citizens insured and fed.`\
-https://nytimes.com/2025/07/04/us/politics/states-trump-bill.html
 
