@@ -1,3 +1,7 @@
+**Al Hilal's Kalidou Koulibaly calls out referee in Club World Cup loss**\
+`The Saudi Pro League side lost 2-1 to Fluminense in the quarter-final of the Club World Cup after its shocking win over Manchester City.`\
+https://nytimes.com/athletic/6474304/2025/07/04/al-hilal-club-world-cup-koulibaly-penalties/
+
 **Trump Signs Signature Policy Bill at Independence Day Event**\
 `President Trump triumphantly highlighted tax cuts in the legislation while downplaying cuts to Medicaid and other assistance for poor Americans.`\
 https://nytimes.com/2025/07/04/us/politics/trump-signs-policy-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474218/2025/07/04/phillies-jesus-luzardo-mechanica
 **Pro-Palestinian Activists Lose Appeal Against U.K. Government Ban**\
 `The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain while its full legal challenge to the ban plays out.`\
 https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-terrorist.html
-
-**White Sox call up former top prospect Colson Montgomery ahead of Colorado series**\
-`The 23-year-old Montgomery will hit seventh and start at shortstop in Friday's series opener. `\
-https://nytimes.com/athletic/6474238/2025/07/04/chicago-white-sox-colson-montgomery-call-up/
 
