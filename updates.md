@@ -1,3 +1,11 @@
+**Palace in offer for Ajax left-back Borna Sosa**\
+`The 27-year-old is among several options Palace are considering as they look to add depth and competition for Tyrick Mitchell.`\
+https://nytimes.com/athletic/6473863/2025/07/04/borna-sosa-palace-ajax/
+
+**From Court to Congress to the Mideast, Trump Tallies His Wins**\
+`There are serious questions about the wisdom and durability of President Trump’s policies, but on his terms, he can point to a string of accomplishments.`\
+https://nytimes.com/2025/07/04/us/trump-policy-bill-iran-israel-supreme-court.html
+
 **From Court to Congress to the Mideast, Trump Tallies His Wins**\
 `There are serious questions about the wisdom and durability of President Trump’s policies, but on his terms, he can point to a string of accomplishments.`\
 https://nytimes.com/2025/07/04/us/from-court-to-congress-to-the-mideast-trump-tallies-his-wins.html

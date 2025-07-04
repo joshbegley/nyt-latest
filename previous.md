@@ -1,6 +1,10 @@
+**Palace in offer for Ajax left-back Borna Sosa**\
+`The 27-year-old is among several options Palace are considering as they look to add depth and competition for Tyrick Mitchell.`\
+https://nytimes.com/athletic/6473863/2025/07/04/borna-sosa-palace-ajax/
+
 **From Court to Congress to the Mideast, Trump Tallies His Wins**\
 `There are serious questions about the wisdom and durability of President Trump’s policies, but on his terms, he can point to a string of accomplishments.`\
-https://nytimes.com/2025/07/04/us/from-court-to-congress-to-the-mideast-trump-tallies-his-wins.html
+https://nytimes.com/2025/07/04/us/trump-policy-bill-iran-israel-supreme-court.html
 
 **Wildfires Sweep Syria’s Coast as Drought Strains Fragile State**\
 `Firefighting efforts have been hampered by the presence of mines and unexploded ordnance left over from the civil war, as the country grapples with the worst drought in decades.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/world/australia/melbourne-synagogue-fire.html
 **As Fire Videos Compete With Beach Photos, Greeks Who Rely on Tourism Are Worried**\
 `More than 1,500 people were evacuated when a fire broke out on the southeastern tip of Crete, most of them tourists.`\
 https://nytimes.com/2025/07/04/world/europe/greece-crete-wildfires-tourism.html
-
-**Until Saturday: AAC loaded with great coaches (plus Dilfer)**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6473803/2025/07/04/american-athletic-conference-until-saturday/
 
