@@ -1,3 +1,7 @@
+**Fuel Tank Explosion Rocks Gas Station in Rome**\
+`The explosion injured several people including eight police officers and a firefighter, officials said. The cause was not immediately clear.`\
+https://nytimes.com/video/world/europe/100000010267616/fuel-tank-explosion-rocks-gas-station-in-rome.html
+
 **A Competition That’s All About Nothing**\
 `The annual Space-Out Competition in South Korea was created to draw attention to the benefits of zoning out in a competitive society.`\
 https://nytimes.com/video/world/asia/100000010262728/space-out-competition-seoul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/nyregion/hamptons-grocery-prices.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/04/crosswords/spelling-bee-forum.html
-
-**Ramsey joins Mexican club Pumas after Cardiff exit**\
-`Ramsey, formerly of Arsenal, was a free agent after his contract at Cardiff City expired in late June.`\
-https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transfer-cardiff/
 
