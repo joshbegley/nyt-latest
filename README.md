@@ -1,3 +1,7 @@
+**The 7.6.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/07/04/the-762025-issue
+
 **Jewish Leaders Denounce Trump’s Use of Centuries-Old Trope**\
 `President Trump said he did not realize that the term “Shylock” was viewed as antisemitic.`\
 https://nytimes.com/2025/07/04/us/politics/jewish-trump-shylock-slur-adl.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473252/2025/07/04/jonathan-david-juventus-canada/
 **Jamie Smith: The wicketkeeper-batter earmarked to be England's Adam Gilchrist**\
 `England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batter position his own`\
 https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper-england-gilchrist-stewart/
-
-**Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
-`Despite the unspeakable horror of her youth, she embraced a school of psychotherapy that stresses empathy and the belief that everyone can change for the better.`\
-https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
 
