@@ -1,3 +1,15 @@
+**Keane signs new Everton contract**\
+`The 32-year-old is the latest Everton player to commit their future after Seamus Coleman and Jarrad Branthwaite.`\
+https://nytimes.com/athletic/6456567/2025/07/04/everton-michael-keane-contract/
+
+**OL Lyonnes sign USWNT midfielder Korbin Albert from PSG**\
+`Albert has played in the French top-flight since signing a pro contract with PSG in January 2023 after leaving Notre Dame University.`\
+https://nytimes.com/athletic/6473796/2025/07/04/lyonnes-korbin-albert-transfer-uswnt/
+
+**Chelsea, Aston Villa handed UEFA fines, spending restrictions for breaching financial rules**\
+`Both clubs were found to have breached the European governing body's football earning rules and squad cost rules.`\
+https://nytimes.com/athletic/6473798/2025/07/04/chelsea-aston-villa-uefa-fines-spending-restrictions/
+
 **As Americans celebrate Independence Day, some are protesting the Trump administration.**\
 `By Ruth Graham, Valerie Crowder and Maria Jimenez Moya`\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news/as-americans-celebrate-independence-day-some-are-protesting-the-trump-administration
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6473828/2025/07/04/nba-western-conference-tiers-con
 **British Fighter Jet Takes Unexpected Detour to India, and Is Embraced by Locals**\
 `A British F-35B has been stranded for weeks at an airport in southern India because of mechanical issues. The internet, and the region’s tourism agency, are having fun with it.`\
 https://nytimes.com/2025/07/04/world/asia/india-kerala-tourism-f35-fighter-jet.html
-
-**Phillies demote Mick Abel to minors, reinsert Taijuan Walker into rotation — for now**\
-`Walker will start Tuesday at San Francisco. He could pitch four innings or so. Then, during the All-Star break, the Phillies will reassess.`\
-https://nytimes.com/athletic/6473793/2025/07/04/phillies-rotation-mick-abel-taijuan-walker/
-
-**France captain Mbock to miss England opener with injury**\
-`The 30-year-old is still suffering with a calf issue, France manager Laurent Bonadei confirmed.`\
-https://nytimes.com/athletic/6473129/2025/07/04/griedge-mbock-france-england-injury/
-
-**Man Attempts to Set Fire to a Melbourne Synagogue**\
-`None of the approximately 20 people who were inside the synagogue were injured in the incident, the latest in a surge of anti-Jewish acts in Australia.`\
-https://nytimes.com/2025/07/04/world/australia/melbourne-synagogue-fire.html
 

@@ -1,3 +1,7 @@
+**As Americans celebrate Independence Day, some are protesting the Trump administration.**\
+`By Ruth Graham, Valerie Crowder and Maria Jimenez Moya`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/as-americans-celebrate-independence-day-some-are-protesting-the-trump-administration
+
 **Palace in offer for Ajax left-back Borna Sosa**\
 `The 27-year-old is among several options Palace are considering as they look to add depth and competition for Tyrick Mitchell.`\
 https://nytimes.com/athletic/6473863/2025/07/04/borna-sosa-palace-ajax/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473129/2025/07/04/griedge-mbock-france-england-inj
 **Man Attempts to Set Fire to a Melbourne Synagogue**\
 `None of the approximately 20 people who were inside the synagogue were injured in the incident, the latest in a surge of anti-Jewish acts in Australia.`\
 https://nytimes.com/2025/07/04/world/australia/melbourne-synagogue-fire.html
-
-**As Fire Videos Compete With Beach Photos, Greeks Who Rely on Tourism Are Worried**\
-`More than 1,500 people were evacuated when a fire broke out on the southeastern tip of Crete, most of them tourists.`\
-https://nytimes.com/2025/07/04/world/europe/greece-crete-wildfires-tourism.html
 

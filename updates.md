@@ -1,3 +1,7 @@
+**As Americans celebrate Independence Day, some are protesting the Trump administration.**\
+`By Ruth Graham, Valerie Crowder and Maria Jimenez Moya`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/as-americans-celebrate-independence-day-some-are-protesting-the-trump-administration
+
 **Palace in offer for Ajax left-back Borna Sosa**\
 `The 27-year-old is among several options Palace are considering as they look to add depth and competition for Tyrick Mitchell.`\
 https://nytimes.com/athletic/6473863/2025/07/04/borna-sosa-palace-ajax/
