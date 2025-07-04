@@ -1,3 +1,11 @@
+**Until Saturday: AAC loaded with great coaches (plus Dilfer)**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6473803/2025/07/04/american-athletic-conference-until-saturday/
+
+**Trump Welcomes Edan Alexander, Former Hamas Hostage, to White House**\
+`Mr. Alexander, who was held for nearly 600 days before being released in May, is a dual citizen of Israel and the United States. He was in the Israeli military when he was abducted on Oct. 7, 2023.`\
+https://nytimes.com/2025/07/04/us/politics/trump-edan-alexander-hamas-hostage.html
+
 **S. Daniel Abraham, the Force Behind Slim-Fast, Dies at 100**\
 `He turned a tiny family business into a billion-dollar weight-loss empire by replacing calorie counting and forbidden foods with “just add milk.”`\
 https://nytimes.com/2025/07/04/business/s-daniel-abraham-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6468887/2025/07/04/club-world-cup-tactical-experime
 **Gochujang Burgers, Salmon Burgers, Black Bean Burgers, Cheeseburgers**\
 `And more recipe inspiration (besides burgers) for your Independence Day weekend.`\
 https://nytimes.com/2025/07/04/dining/last-minute-july-4-recipes.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, time-loop romance and creepy postapocalyptic roommates.`\
-https://nytimes.com/2025/07/04/movies/science-fiction-movies-streaming.html
-
-**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
-`With less than a month until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals.`\
-https://nytimes.com/athletic/6473695/2025/07/04/mlb-trade-deadline-questions-submit/
 
