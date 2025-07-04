@@ -1,3 +1,11 @@
+**Soccer agent Jonathan Barnett accused of rape, torture and trafficking in U.S. lawsuit**\
+`The civil complaint was made against Barnett, 75, in a California district court by a woman referred to only as Jane Doe earlier this week.`\
+https://nytimes.com/athletic/6473173/2025/07/04/jonathan-barnett-rape-lawsuit/
+
+**Why Nico Williams' Barcelona transfer collapsed: The full story**\
+`It was a bolt from the blue that left Barcelona reeling. This is the story behind Nico Williams' decision to stay at Athletic Club`\
+https://nytimes.com/athletic/6473318/2025/07/04/barcelona-nico-williams-athletic-club-transfer-collapsed/
+
 **Naomi Osaka didn't 'feel anything' after latest tight Grand Slam loss at Wimbledon**\
 `Six of Osaka's last seven defeats have been in three sets, with the four-time Grand Slam champion closer than ever to a return to form.`\
 https://nytimes.com/athletic/6473656/2025/07/04/tennis-wimbledon-naomi-osaka-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473695/2025/07/04/mlb-trade-deadline-questions-sub
 **Hurricanes lineup projection after big K'Andre Miller, Nikolaj Ehlers signings**\
 `Two big additions — and a few subtractions — mean the Hurricanes will have a new look next season.`\
 https://nytimes.com/athletic/6472946/2025/07/04/hurricanes-lineup-miller-ehlers/
-
-**Madison Keys latest Wimbledon seed to fall after grass masterclass from Laura Siegemund**\
-`Keys had no answer to Siegemund's control of the ball on the grass.`\
-https://nytimes.com/athletic/6473630/2025/07/04/tennis-wimbledon-madison-keys-laura-siegemund-result-analysis/
-
-**Rare Cloud Sends Beachgoers Running in Portugal**\
-`A dramatic “roll cloud“ spotted up and down the country’s central coast formed during a weeklong heat wave.`\
-https://nytimes.com/video/world/europe/100000010267804/rare-cloud-sends-beachgoers-running-in-portugal.html
 
