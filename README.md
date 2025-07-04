@@ -1,6 +1,6 @@
-**A frantic search for survivors by air, water and land.**\
-`By Ernesto Londoño`\
-https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/a-frantic-search-for-survivors-by-air-water-and-land
+**A Frantic Search for Flooding Survivors by Air, Water and Land**\
+`Hundreds of emergency personnel were searching for stranded people, using 14 helicopters, though crews were struggling to navigate flooded roads, officials said.`\
+https://nytimes.com/2025/07/04/us/search-texas-flood-kerr-county.html
 
 **The Girls Camp Where 20 Children Are Missing Is Nearly a Century Old**\
 `Camp Mystic, on the banks of the Guadalupe River in Hunt, Texas, has been operated by generations of the same family since the 1930s.`\
