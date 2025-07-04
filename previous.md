@@ -1,40 +1,40 @@
+**What does Myles Turner bring to the Bucks? Breaking down the fit on both ends of the floor**\
+`Turner being eight years younger than Brook Lopez will allow him to impact the game differently, even if the two share similar strengths.`\
+https://nytimes.com/athletic/6468789/2025/07/04/myles-turner-bucks-fit-strengths-weaknesses/
+
+**Rangers depth chart 2.0: Where does the lineup stand after the start of free agency?**\
+`After a series of moves, here's a position-by-position breakdown of where the potential lineup stands for next season.`\
+https://nytimes.com/athletic/6471443/2025/07/04/rangers-nhl-free-agency-roster-lineup/
+
+**Canucks offseason notebook: Pius Suter's departure and mid-summer values**\
+`Suter's exit to the St. Louis Blues leaves Vancouver with plenty to ponder.`\
+https://nytimes.com/athletic/6472807/2025/07/04/canucks-offseason-notebook-pius-suter-blues/
+
+**Looking at the Oilers' depth chart so far this offseason**\
+`The depth chart looks sparser than it did a couple weeks ago, though sensible options are ready.`\
+https://nytimes.com/athletic/6472403/2025/07/04/looking-at-the-oilers-depth-chart-so-far-this-offseason/
+
+**Lowetide: How free agency has impacted Oilers' roster construction for 2025-26**\
+`If there's another loud noise for the Oilers on the transaction front this summer, it's a goalie.`\
+https://nytimes.com/athletic/6470225/2025/07/04/oilers-roster-2025-free-agency/
+
+**Robbie Ray makes complete case for an All-Star selection as Giants split series**\
+`Ray threw his second career complete game, his first since 2017, while leading the Giants to a 7-2 victory over the Diamondbacks.`\
+https://nytimes.com/athletic/6473079/2025/07/04/giants-robbie-ray-all-star-case/
+
+**View from the Hollies: Watching Test cricket from England's most raucous stand**\
+`Edgbaston is renowned for its ‘awesome’ atmosphere and, even as England struggled, three butchers chased an inflatable pig round the stand`\
+https://nytimes.com/athletic/6472700/2025/07/04/hollies-edgbaston-england-india-butcher-pig/
+
+**Will the Washington Wizards add a big man in free agency or via trade?**\
+`The Wizards have been silent in free agency so far. Why? And will that change? `\
+https://nytimes.com/athletic/6472620/2025/07/04/washington-wizards-free-agency-mailbag/
+
+**What we saw and heard from Sabres prospects at development camp**\
+`In 2025, development camp had a much different feel than past years for the Sabres.`\
+https://nytimes.com/athletic/6472702/2025/07/04/sabres-prospects-development-camp-2025/
+
 **Newcastle, the challenge of attracting top players and why this summer is different to others**\
 `PSR rules have weakened the club's ability to bring in fresh talent but they have still managed to build a winning formula`\
 https://nytimes.com/athletic/6471369/2025/07/04/newcastle-the-challenge-of-attracting-top-players-and-why-this-summer-is-different/
-
-**Renard says France career not over amid 'disbelief, injustice' of Euro 2025 omission**\
-`OL Lyonnes centre-back Renard, with 168 international appearances and considered a legend of the game, is not part of the Euro 2025 squad.`\
-https://nytimes.com/athletic/6473267/2025/07/04/france-euro-2025-wendie-renard/
-
-**United confirm director of women's football, Williams extension**\
-`Johnson originally replaced Polly Bancroft as head of women's football on a six-month interim basis. `\
-https://nytimes.com/athletic/6473193/2025/07/04/manchester-united-rachel-williams-contract-director-womens-football/
-
-**Wrigleyville energy returns as Cubs position themselves as trade deadline buyers**\
-`“There’s a difference between playoff odds and World Series odds,” Jed Hoyer said. “Just getting in is not necessarily the ticket."`\
-https://nytimes.com/athletic/6472858/2025/07/04/chicago-cubs-trade-deadline-buyers/
-
-**How to watch the 2025 Nathan's Famous Hot Dog Eating Contest, a July 4th tradition**\
-`American gastrointestinal ingenuity is celebrated at the annual Hot Dog Eating Contest. This year's Coney Island spectacle goes down Friday.`\
-https://nytimes.com/athletic/6469441/2025/07/04/nathans-hot-dog-eating-contest-how-to-watch-2025/
-
-**Sliders: Fearless forecast on All-Star Game rosters, Clayton Kershaw’s place among the greats**\
-`An educated guess on who'll fill out the All-Star rosters, thoughts on the Nationals' new jersey patches and much more.`\
-https://nytimes.com/athletic/6458610/2025/07/04/mlb-all-star-game-rosters-clayton-kershaw-3000-strikeouts/
-
-**2025 MLB Draft primer: 5 names Cardinals could target with No. 5 pick**\
-`Eli Willits looks like the best shortstop in this draft, but keep an eye on pitchers like Kyson Witherspoon and Liam Doyle.`\
-https://nytimes.com/athletic/6467189/2025/07/04/cardinals-mlb-draft-willits-holliday/
-
-**The Athletic’s Friday football quiz question #62**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6465265/2025/07/04/the-athletics-friday-football-quiz-question-62/
-
-**Blue Jays’ sweep of Yankees vaults Toronto to top of AL East**\
-`Toronto hasn’t led the AL East this late in a season since 2016. Now, the challenge is staying there.`\
-https://nytimes.com/athletic/6472893/2025/07/04/blue-jays-sweep-yankees-al-east/
-
-**Ranking the NHL's top 40 free agents of 2026: McDavid, Kaprizov, Eichel and more**\
-`The 2026 class of free agents is incredibly star-studded and is led by a handful of the best offensive players in the NHL.`\
-https://nytimes.com/athletic/6472199/2025/07/04/nhl-top-free-agents-2026-ranking-mcdavid-kaprizov/
 
