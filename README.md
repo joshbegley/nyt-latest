@@ -1,3 +1,19 @@
+**Ronald Ribman, 92, Dies; His Plays Mined the Absurdity of Existence**\
+`He set his frequently neurotic characters in bleak, morally ambiguous situations where laughter, as he put it, “is a measure of the sickness of society.”`\
+https://nytimes.com/2025/07/04/theater/ronald-ribman-dead.html
+
+**The teams that are using the Club World Cup to experiment like it's pre-season**\
+`The competition has been an opportunity for both new and established managers to workshop some new tactical ideas ahead of 2025-26`\
+https://nytimes.com/athletic/6468887/2025/07/04/club-world-cup-tactical-experimentation/
+
+**Gochujang Burgers, Salmon Burgers, Black Bean Burgers, Cheeseburgers**\
+`And more recipe inspiration (besides burgers) for your Independence Day weekend.`\
+https://nytimes.com/2025/07/04/dining/last-minute-july-4-recipes.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, time-loop romance and creepy postapocalyptic roommates.`\
+https://nytimes.com/2025/07/04/movies/science-fiction-movies-streaming.html
+
 **Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
 `With less than a month until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals.`\
 https://nytimes.com/athletic/6473695/2025/07/04/mlb-trade-deadline-questions-submit/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6473635/2025/07/04/aston-villa-philippe-coutinho-de
 **Why Beef Prices Have Hit a Record**\
 `Smaller cattle herds and a decade of headwinds for the industry are expected to push up the cost of burgers and steaks for several years.`\
 https://nytimes.com/2025/07/04/business/beef-prices-cattle.html
-
-**Nuclear Inspectors Leave Iran After Cooperation Halted With U.N. Watchdog**\
-`The withdrawal of international inspectors comes amid heightened concerns that Iran, battered by Israeli and U.S. strikes, may be driven to try to build a nuclear bomb.`\
-https://nytimes.com/2025/07/04/world/middleeast/nuclear-inspectors-iran-iaea.html
-
-**Leeds' Wober joins Werder Bremen on season-long loan**\
-`The 27-year-old fell down the pecking order after injuries and the arrival of two new centre-backs this summer.`\
-https://nytimes.com/athletic/6473517/2025/07/04/leeds-max-wober-loan-werder-bremen/
-
-**Former Arsenal midfielder Thomas Partey charged with rape, sexual assault**\
-`The 32-year-old previously could not be named for legal reasons.`\
-https://nytimes.com/athletic/6473464/2025/07/04/thomas-partey-rape-case-arsenal/
-
-**Russia Targets Kyiv With Record Number of Drones and Missiles**\
-`President Trump said he “didn’t make any progress” after a call with President Vladimir V. Putin of Russia, hours before a barrage that Ukraine’s air forces said was the largest since the war started.`\
-https://nytimes.com/video/world/europe/100000010267685/russia-ukraine-kyiv-drones-missiles-.html
 
