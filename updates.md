@@ -1,3 +1,7 @@
+**Naomi Osaka didn't 'feel anything' after latest tight Grand Slam loss at Wimbledon**\
+`Six of Osaka's last seven defeats have been in three sets, with the four-time Grand Slam champion closer than ever to a return to form.`\
+https://nytimes.com/athletic/6473656/2025/07/04/tennis-wimbledon-naomi-osaka-result/
+
 **Rashford, Garnacho, Sancho to be allowed to find new clubs**\
 `The rest of United's first team squad are set to return to Carrington on Monday.`\
 https://nytimes.com/athletic/6473680/2025/07/04/man-utd-transfers-rashford-garnacho/
