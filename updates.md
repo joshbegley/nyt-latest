@@ -1,3 +1,7 @@
+**Nico Williams turns down Barcelona transfer, signs eight-year Athletic extension**\
+`The Catalan club were rebuffed by Athletic Club last summer and had to compete with Bayern Munich for the winger.`\
+https://nytimes.com/athletic/6448217/2025/07/04/nico-williams-transfer-athletic-club-barcelona/
+
 **July 4th's Subway Series pits Aaron Judge vs. Juan Soto. Here's how to watch**\
 `New York's Subway Series between the Yankees and Mets is always one of MLB's coolest interleague matchups.`\
 https://nytimes.com/athletic/6472317/2025/07/04/yankees-mets-subway-series-juan-soto-aaron-judge-july-4-how-to-watch/
