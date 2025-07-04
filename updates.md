@@ -1,3 +1,7 @@
+**'Much more than football' - Portugal pays respect to Diogo Jota at Euro 2025**\
+`Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
+https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
+
 **Iran Is Terrorizing Its Own Citizens. The World Needs to Respond.**\
 `The regime is sending a chilling message: Dissent equals death.`\
 https://nytimes.com/2025/07/04/opinion/iran-israel-arrests.html
