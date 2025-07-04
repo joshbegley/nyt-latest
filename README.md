@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6472813/2025/07/04/christian-fischer-retires-nhl-re
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6472862/2025/07/04/tour-de-france-preview-the-pulse/
 
-**Storms Trigger Life-Threatening Flooding and Evacuations in Texas**\
-`The National Weather Service urged people to avoid flooded areas and to not drive through water as the Guadalupe River rose swiftly.`\
+**Storms Trigger Deadly Flooding and Evacuations in Texas**\
+`The authorities confirmed that people had died as a result of the flooding along the Guadalupe River, and urged those living near the river to seek higher ground immediately.`\
 https://nytimes.com/2025/07/04/us/texas-flooding-kerr-county-san-angelo.html
 
 **Corrections: July 4, 2025**\
