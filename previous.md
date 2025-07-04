@@ -1,3 +1,12 @@
+**Kesha Seeks a Chaotic Love, and 9 More New Songs**\
+`Hear tracks by Foo Fighters, Ethel Cain, Tyler Childers and others.`\
+https://nytimes.com/2025/07/04/arts/music/playlist-kesha-foo-fighters-ethel-cain.html
+
+**NHL 2024-25 prediction contest results, where playing it safe finally paid off**\
+`July 1 has come and gone, marking one of the most important dates on the entire NHL calendar: the end of the annual prediction contest.
+`\
+https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-contest-results/
+
 **Keane signs new Everton contract**\
 `The 32-year-old is the latest Everton player to commit their future after Seamus Coleman and Jarrad Branthwaite.`\
 https://nytimes.com/athletic/6456567/2025/07/04/everton-michael-keane-contract/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/07/04/world/middleeast/syria-wildfires-drought.html
 **'This is a new England’: Williamson, Wiegman on 'new challenge' of Euro 2025**\
 `England head into this summer's tournament in Switzerland as reigning champions after their victory on home soil at Euro 2022.`\
 https://nytimes.com/athletic/6473756/2025/07/04/williamson-wiegman-england-euro-2025/
-
-**The Bounce: West tiers, with a legit OKC challenger**\
-`Welcome to The Bounce, The Athletic's basketball newsletter.`\
-https://nytimes.com/athletic/6473828/2025/07/04/nba-western-conference-tiers-contenders-the-bounce/
-
-**British Fighter Jet Takes Unexpected Detour to India, and Is Embraced by Locals**\
-`A British F-35B has been stranded for weeks at an airport in southern India because of mechanical issues. The internet, and the region’s tourism agency, are having fun with it.`\
-https://nytimes.com/2025/07/04/world/asia/india-kerala-tourism-f35-fighter-jet.html
 
