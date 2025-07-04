@@ -1,3 +1,7 @@
+**With Taillon on IL, Cubs will be more focused on pitching at trade deadline**\
+`Taillon will miss “more than a month” with a strained right calf muscle, manager Craig Counsell said Friday.`\
+https://nytimes.com/athletic/6474109/2025/07/04/cubs-jameson-taillon-injured-trade-deadline/
+
 **Celebrating the Fourth of July Across the Country**\
 `Displays of patriotism were evident at parades and hot dog eating contests, even at a time of deep political divisions among Americans.`\
 https://nytimes.com/2025/07/04/us/july-4th-photos-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473820/2025/07/04/blues-sabres-bowen-byram-trade/
 **Partey's rape charges explained: Why did it take so long and why are Arsenal under scrutiny?**\
 `Explaining the process behind former Arsenal midfielder's charges and what happens now`\
 https://nytimes.com/athletic/6473868/2025/07/04/thomas-partey-arsenal-rape-charges-explained/
-
-**Torrential Downpour Leads to Deadly Flooding in Texas**\
-`Authorities urged those living near the Guadalupe River to seek higher ground immediately.`\
-https://nytimes.com/video/weather/100000010268065/torrential-downpour-leads-to-deadly-flooding-in-texas.html
 

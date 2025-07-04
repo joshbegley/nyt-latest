@@ -1,3 +1,7 @@
+**With Taillon on IL, Cubs will be more focused on pitching at trade deadline**\
+`Taillon will miss “more than a month” with a strained right calf muscle, manager Craig Counsell said Friday.`\
+https://nytimes.com/athletic/6474109/2025/07/04/cubs-jameson-taillon-injured-trade-deadline/
+
 **Celebrating the Fourth of July Across the Country**\
 `Displays of patriotism were evident at parades and hot dog eating contests, even at a time of deep political divisions among Americans.`\
 https://nytimes.com/2025/07/04/us/july-4th-photos-videos.html

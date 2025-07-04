@@ -1,3 +1,11 @@
+**Sandra Neels, a Force in Modern Dance for 60 Years, Dies at 85**\
+`She was a leading dancer for Merce Cunningham, a prolific choreographer and an admired teacher.`\
+https://nytimes.com/2025/07/04/arts/dance/sandra-neels-dead.html
+
+**The migrants filed a new lawsuit challenging their transfer on other grounds.**\
+`After the Supreme Court ruled that the deportations could move forward, the migrants filed a new lawsuit, challenging their transfer on other grounds.`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/the-migrants-filed-a-new-lawsuit-challenging-their-transfer-on-other-grounds
+
 **With Taillon on IL, Cubs will be more focused on pitching at trade deadline**\
 `Taillon will miss “more than a month” with a strained right calf muscle, manager Craig Counsell said Friday.`\
 https://nytimes.com/athletic/6474109/2025/07/04/cubs-jameson-taillon-injured-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/us/census-racial-categories.html
 **Joey Chestnut Returns and Regains Title at Hot Dog Eating Contest**\
 `Mr. Chestnut, who was barred last year over an endorsement deal with a vegan-meat company, and Miki Sudo easily won their respective contests but did not break records.`\
 https://nytimes.com/2025/07/04/nyregion/joey-chestnut-nathans-hot-dog-contest.html
-
-**Are the Blues and Bowen Byram a trade match? Breaking down fit, cost and other factors**\
-`The Blues are interested in Sabres defenseman Bowen Byram, but what would they be willing to give up? Does a deal make sense?`\
-https://nytimes.com/athletic/6473820/2025/07/04/blues-sabres-bowen-byram-trade/
-
-**Partey's rape charges explained: Why did it take so long and why are Arsenal under scrutiny?**\
-`Explaining the process behind former Arsenal midfielder's charges and what happens now`\
-https://nytimes.com/athletic/6473868/2025/07/04/thomas-partey-arsenal-rape-charges-explained/
 
