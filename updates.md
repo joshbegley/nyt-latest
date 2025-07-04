@@ -1,3 +1,7 @@
+**Fear spreads in Texas, but hope as well.**\
+`Scenes from Central Texas and beyond captured the anxiety of those searching for loved ones after the Guadalupe River burst its banks.`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/fear-spreads-in-texas-but-hope-as-well
+
 **Joseph Giordano, Surgeon Who Helped Save Reagan’s Life, Dies at 84**\
 `He had built one of the country’s leading trauma centers in Washington, which made it possible for his team to respond quickly after the president was shot.`\
 https://nytimes.com/2025/07/04/us/joseph-giordano-dead.html

@@ -1,3 +1,7 @@
+**Wimbledon day 5 recap: Jarry beats Fonseca as South American tennis makes its mark**\
+`South American players were the stars on day five, despite the tennis-mad continent's lack of representation in terms of tournaments.`\
+https://nytimes.com/athletic/6473357/2025/07/04/tennis-wimbledon-recap-day-five-results-news/
+
 **Fear spreads in Texas, but hope as well.**\
 `Scenes from Central Texas and beyond captured the anxiety of those searching for loved ones after the Guadalupe River burst its banks.`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/fear-spreads-in-texas-but-hope-as-well
@@ -18,8 +22,8 @@ https://nytimes.com/2025/07/04/nyregion/new-jersey-storm.html
 `See the likely path and wind arrival times for Three`\
 https://nytimes.com/interactive/2025/07/04/weather/tropical-depression-south-carolina-map-path-tracker.html
 
-**Aryna Sabalenka quells Emma Raducanu and Centre Court crowd to advance at Wimbledon**\
-`The world No. 1 responded to adversity and a partisan crowd to come through against Raducanu in straight sets.`\
+**Aryna Sabalenka quells Emma Raducanu and her fans to advance at Wimbledon**\
+`She still has a long way to go before the final, but whatever happens from here, this was a crucial victory for the world No. 1.`\
 https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raducanu-result-analysis/
 
 **Fatally Injured Teenager Is Discovered on Top of a N.Y.C. Subway Car**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472492/2025/07/04/fluminense-al-hilal-cwc-hercules
 **Live Updates: Frantic Search for the Missing After at Least 13 Killed in Texas Flood**\
 `The authorities confirmed that 20 girls were still missing as a result of the flooding along the Guadalupe River, but the full scope of the disaster was not clear.`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river
-
-**The 7.6.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/07/04/the-762025-issue
 
