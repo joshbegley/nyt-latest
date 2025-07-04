@@ -1,3 +1,7 @@
+**Search Begins for 7 Missing After Disaster at Fireworks Warehouse in California**\
+`The company indicated that multiple people died in the incident three days before the Fourth of July, but officials have not issued a determination.`\
+https://nytimes.com/2025/07/03/us/fireworks-factory-california.html
+
 **How to Keep Cats and Dogs Cool in the Sweltering Heat **\
 `(No description)`\
 https://nytimes.com/card/2025/07/04/smarter-living/wirecutter/how-to-keep-cats-and-dogs-cool-in-the-sweltering-heat
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
 **Park Service Is Left Short-Staffed in Peak Travel Season**\
 `Layoffs and departures after pressure from the Trump administration have left sites struggling, with the remaining employees each doing the work of two or three people.`\
 https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html
-
-**Bruins' James Hagens vows to remember 'every team' that passed on him, and why Sean Kuraly came home**\
-`Hagens is set to return for his sophomore season at Boston College but is ready for what's next: “I want to be a Boston Bruin really bad.”`\
-https://nytimes.com/athletic/6472524/2025/07/03/james-hagens-sean-kuraly-bruins/
 
