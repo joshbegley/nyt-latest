@@ -1,3 +1,7 @@
+**Ramsey joins Mexican club Pumas after Cardiff exit**\
+`Ramsey, formerly of Arsenal, was a free agent after his contract at Cardiff City expired in late June.`\
+https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transfer-cardiff/
+
 **'Much more than football' - Portugal pays respect to Diogo Jota at Euro 2025**\
 `Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
 https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
