@@ -1,3 +1,11 @@
+**Why Christian Fischer is retiring from the NHL at age 28**\
+`Fischer is retiring from the NHL after nine seasons and 523 games.`\
+https://nytimes.com/athletic/6472813/2025/07/04/christian-fischer-retires-nhl-red-wings-blue-jackets-coyotes/
+
+**The Pulse: Tour de Pulse returns — with reinforcements**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6472862/2025/07/04/tour-de-france-preview-the-pulse/
+
 **Storms Trigger Life-Threatening Flooding and Evacuations in Texas**\
 `The National Weather Service urged people to avoid flooded areas and to not drive through water as the Guadalupe River rose swiftly.`\
 https://nytimes.com/2025/07/04/us/texas-flooding-kerr-county-san-angelo.html

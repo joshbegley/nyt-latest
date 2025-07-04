@@ -1,3 +1,11 @@
+**Why Christian Fischer is retiring from the NHL at age 28**\
+`Fischer is retiring from the NHL after nine seasons and 523 games.`\
+https://nytimes.com/athletic/6472813/2025/07/04/christian-fischer-retires-nhl-red-wings-blue-jackets-coyotes/
+
+**The Pulse: Tour de Pulse returns — with reinforcements**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6472862/2025/07/04/tour-de-france-preview-the-pulse/
+
 **Storms Trigger Life-Threatening Flooding and Evacuations in Texas**\
 `The National Weather Service urged people to avoid flooded areas and to not drive through water as the Guadalupe River rose swiftly.`\
 https://nytimes.com/2025/07/04/us/texas-flooding-kerr-county-san-angelo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/arts/music/sean-combs-diddy-civil-lawsuits.html
 **Filling Jobs, and Bridging the Blue-Collar Gap**\
 `Readers respond to an article about jobs in manufacturing. Also: Young minds and digital addiction.`\
 https://nytimes.com/2025/07/04/opinion/manufacturing-jobs-labor.html
-
-**A Solid Report Card for the Markets, Despite Shock and Worry**\
-`While the Trump administration has engaged in continual disruptions, most investors have prospered.`\
-https://nytimes.com/2025/07/04/business/markets-investment-returns-trump.html
-
-**Liverpool cancel planned preseason testing after Diogo Jota's death**\
-`A staggered return to pre-season will now begin on Monday.`\
-https://nytimes.com/athletic/6473336/2025/07/04/diogo-jota-liverpool-preseason-testing/
 
