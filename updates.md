@@ -1,3 +1,7 @@
+**United confirm director of women's football, Williams extension**\
+`Johnson originally replaced Polly Bancroft as head of women's football on a six-month interim basis. `\
+https://nytimes.com/athletic/6473193/2025/07/04/manchester-united-rachel-williams-contract-director-womens-football/
+
 **Wrigleyville energy returns as Cubs position themselves as trade deadline buyers**\
 `“There’s a difference between playoff odds and World Series odds,” Jed Hoyer said. “Just getting in is not necessarily the ticket."`\
 https://nytimes.com/athletic/6472858/2025/07/04/chicago-cubs-trade-deadline-buyers/

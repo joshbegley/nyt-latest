@@ -1,3 +1,7 @@
+**United confirm director of women's football, Williams extension**\
+`Johnson originally replaced Polly Bancroft as head of women's football on a six-month interim basis. `\
+https://nytimes.com/athletic/6473193/2025/07/04/manchester-united-rachel-williams-contract-director-womens-football/
+
 **Wrigleyville energy returns as Cubs position themselves as trade deadline buyers**\
 `“There’s a difference between playoff odds and World Series odds,” Jed Hoyer said. “Just getting in is not necessarily the ticket."`\
 https://nytimes.com/athletic/6472858/2025/07/04/chicago-cubs-trade-deadline-buyers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471411/2025/07/04/blue-jackets-offseason-2025/
 **Hard Fork Live, Part 2: Patrick Collison of Stripe, Kathryn Zealand of Skip, and Listener Questions**\
 `More from our first live show taping, including a robot pants demo and audience questions.`\
 https://nytimes.com/2025/07/04/podcasts/hardfork-live-patrick-collison.html
-
-**The Fourth**\
-`Politics are colliding with the holiday this year.`\
-https://nytimes.com/2025/07/04/briefing/the-fourth.html
 
