@@ -1,3 +1,11 @@
+**Jewish Leaders Denounce Trump’s Use of Centuries-Old Trope**\
+`President Trump said he did not realize that the term “Shylock” was viewed as antisemitic.`\
+https://nytimes.com/2025/07/04/us/politics/jewish-trump-shylock-slur-adl.html
+
+**Hamas Says It Is Ready to Negotiate Truce Proposal**\
+`It was not immediately clear whether the group was demanding any significant changes to the plan for a 60-day truce, hostage-for-prisoner swaps and talks on a permanent end to the Gaza war.`\
+https://nytimes.com/2025/07/04/world/middleeast/hamas-israel-ceasefire.html
+
 **Sandra Neels, a Force in Modern Dance for 60 Years, Dies at 85**\
 `She was a leading dancer for Merce Cunningham, a prolific choreographer and an admired teacher.`\
 https://nytimes.com/2025/07/04/arts/dance/sandra-neels-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper
 **Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
 `Despite the unspeakable horror of her youth, she embraced a school of psychotherapy that stresses empathy and the belief that everyone can change for the better.`\
 https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
-
-**We Want to Hear From You: Are You Frustrated by Census and Racial Categories?**\
-`Americans are routinely asked to check off boxes about their race and ethnicity, but many say they do not see themselves reflected in the options.`\
-https://nytimes.com/2025/07/04/us/census-racial-categories.html
-
-**Joey Chestnut Returns and Regains Title at Hot Dog Eating Contest**\
-`Mr. Chestnut, who was barred last year over an endorsement deal with a vegan-meat company, and Miki Sudo easily won their respective contests but did not break records.`\
-https://nytimes.com/2025/07/04/nyregion/joey-chestnut-nathans-hot-dog-contest.html
 

@@ -1,3 +1,11 @@
+**Jewish Leaders Denounce Trump’s Use of Centuries-Old Trope**\
+`President Trump said he did not realize that the term “Shylock” was viewed as antisemitic.`\
+https://nytimes.com/2025/07/04/us/politics/jewish-trump-shylock-slur-adl.html
+
+**Hamas Says It Is Ready to Negotiate Truce Proposal**\
+`It was not immediately clear whether the group was demanding any significant changes to the plan for a 60-day truce, hostage-for-prisoner swaps and talks on a permanent end to the Gaza war.`\
+https://nytimes.com/2025/07/04/world/middleeast/hamas-israel-ceasefire.html
+
 **Sandra Neels, a Force in Modern Dance for 60 Years, Dies at 85**\
 `She was a leading dancer for Merce Cunningham, a prolific choreographer and an admired teacher.`\
 https://nytimes.com/2025/07/04/arts/dance/sandra-neels-dead.html
