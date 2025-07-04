@@ -1,3 +1,7 @@
+**Phillies Jesús Luzardo can't find strike zone after mechanics fix**\
+`In five starts since Luzardo unveiled a new delivery, it's harder for him to throw strikes from the stretch.`\
+https://nytimes.com/athletic/6474218/2025/07/04/phillies-jesus-luzardo-mechanical-fix/
+
 **Pro-Palestinian Activists Lose Appeal Against U.K. Government Ban**\
 `The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain while its full legal challenge to the ban plays out.`\
 https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-terrorist.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/04/weather/tropical-depression-south-car
 **Aryna Sabalenka quells Emma Raducanu and her fans to advance at Wimbledon**\
 `She still has a long way to go before the final, but whatever happens from here, this was a crucial victory for the world No. 1.`\
 https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raducanu-result-analysis/
-
-**Fatally Injured Teenager Is Discovered on Top of a N.Y.C. Subway Car**\
-`A 15-year-old boy could be the latest victim of subway surfing, a dangerous practice of riding on the roofs of train cars that has lured New York City youth for decades.`\
-https://nytimes.com/2025/07/04/nyregion/subway-car-dead-7-train.html
 

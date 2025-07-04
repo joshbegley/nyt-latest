@@ -1,3 +1,7 @@
+**Phillies Jesús Luzardo can't find strike zone after mechanics fix**\
+`In five starts since Luzardo unveiled a new delivery, it's harder for him to throw strikes from the stretch.`\
+https://nytimes.com/athletic/6474218/2025/07/04/phillies-jesus-luzardo-mechanical-fix/
+
 **Pro-Palestinian Activists Lose Appeal Against U.K. Government Ban**\
 `The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain while its full legal challenge to the ban plays out.`\
 https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-terrorist.html
