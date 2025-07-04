@@ -1,3 +1,7 @@
+**Liverpool cancel planned preseason testing after Diogo Jota's death**\
+`A staggered return to pre-season will now begin on Monday.`\
+https://nytimes.com/athletic/6473336/2025/07/04/diogo-jota-liverpool-preseason-testing/
+
 **Ben Shelton takes 70 seconds to finish Wimbledon match suspended due to darkness**\
 `Shelton was the latest American tennis player to fall foul of Wimbledon's curfews.`\
 https://nytimes.com/athletic/6472417/2025/07/04/ben-shelton-wimbledon-match-suspended-darkness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473079/2025/07/04/giants-robbie-ray-all-star-case/
 **View from the Hollies: Watching Test cricket from England's most raucous stand**\
 `Edgbaston is renowned for its ‘awesome’ atmosphere and, even as England struggled, three butchers chased an inflatable pig round the stand`\
 https://nytimes.com/athletic/6472700/2025/07/04/hollies-edgbaston-england-india-butcher-pig/
-
-**Will the Washington Wizards add a big man in free agency or via trade?**\
-`The Wizards have been silent in free agency so far. Why? And will that change? `\
-https://nytimes.com/athletic/6472620/2025/07/04/washington-wizards-free-agency-mailbag/
 
