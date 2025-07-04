@@ -1,3 +1,7 @@
+**Celebrating the Fourth of July Across the Country**\
+`Displays of patriotism were evident at parades and hot dog eating contests, even at a time of deep political divisions among Americans.`\
+https://nytimes.com/2025/07/04/us/july-4th-photos-videos.html
+
 **Top Hochul Aide Resigns After Being Accused of Sexual Harassment**\
 `Avi Small, who had served as Gov. Kathy Hochul’s longtime press secretary, was accused of inappropriately touching another male aide.`\
 https://nytimes.com/2025/07/04/nyregion/hochul-press-secretary-small-resigns-sexual-harassment.html
