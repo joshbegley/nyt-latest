@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`President Trump’s big legislative win.`\
+https://nytimes.com/2025/07/04/briefing/trump-bill-heat-oasis-tour.html
+
 **Striker scouting for West Ham United: Analysing Calvert-Lewin, Mitrovic and other No 9s**\
 `West Ham have one recognised senior striker. The Athletic speculatively analyses four No 9s that fit the bill to bolster their options`\
 https://nytimes.com/athletic/6462339/2025/07/04/west-ham-united-strikers-transfer-window-analysed/

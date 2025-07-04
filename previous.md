@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`President Trump’s big legislative win.`\
+https://nytimes.com/2025/07/04/briefing/trump-bill-heat-oasis-tour.html
+
 **Striker scouting for West Ham United: Analysing Calvert-Lewin, Mitrovic and other No 9s**\
 `West Ham have one recognised senior striker. The Athletic speculatively analyses four No 9s that fit the bill to bolster their options`\
 https://nytimes.com/athletic/6462339/2025/07/04/west-ham-united-strikers-transfer-window-analysed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470071/2025/07/04/inside-joao-pedro-transfer-chels
 **Ethan Nwaneri's Arsenal contract situation - what we're hearing**\
 `As Arsenal’s hierarchy debate squad-building decisions, the role of Nwaneri will feature prominently in their discussions.`\
 https://nytimes.com/athletic/6468300/2025/07/04/ethan-nwaneri-arsenal-contract-update/
-
-**Pogacar, Vingegaard, Van der Poel, Evenepoel: Welcome to cycling's 'Big Four' era**\
-`Sports need elite competitors who push the boundaries of what's possible — right now, cycling has several of them`\
-https://nytimes.com/athletic/6466747/2025/07/04/pogacar-vingegaard-van-der-poel-evenepoel-tour-de-france/
 
