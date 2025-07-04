@@ -1,3 +1,15 @@
+**Russia Targets Kyiv With Record Number of Drones and Missiles**\
+`President Trump said he “didn’t make any progress” after a call with President Vladimir V. Putin of Russia, hours before a barrage that Ukraine’s air forces said was the largest since the war started.`\
+https://nytimes.com/video/world/europe/100000010267685/russia-ukraine-kyiv-drones-missiles-.html
+
+**How Chicago's historic orchestra hall helps NASCAR tackle a street-race problem**\
+`At spread-out street courses, NASCAR's spotters need help. At the Chicago race, Symphony Center and some double-decker buses help the cause.`\
+https://nytimes.com/athletic/6472536/2025/07/04/nascar-chicago-street-race-symphony-center-spotters/
+
+**China Sets Steep Duties on European Brandy but Spares Biggest Producers**\
+`Major Cognac companies made concessions to avoid the worst of the penalties, imposed by Beijing in retaliation for E.U. tariffs on Chinese electric vehicles.`\
+https://nytimes.com/2025/07/04/business/china-europe-brandy-cognac-duties.html
+
 **Why Christian Fischer is retiring from the NHL at age 28**\
 `Fischer is retiring from the NHL after nine seasons and 523 games.`\
 https://nytimes.com/athletic/6472813/2025/07/04/christian-fischer-retires-nhl-red-wings-blue-jackets-coyotes/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6473392/2025/07/04/nottingham-forest-mailbag-elanga
 **Trump Administration Live Updates: President to Sign Sweeping Domestic Policy Bill Into Law**\
 ``\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news
-
-**Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 11 at 9 a.m. Eastern. This week’s winners will be announced by July 22.`\
-https://nytimes.com/2025/07/04/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
-
-**Sean Combs Faces Not Just a Sentencing, but a Host of Civil Cases**\
-`The music mogul, convicted on lesser charges at his federal trial, has been accused of sexually assaulting people in dozens of suits. He has denied the allegations.`\
-https://nytimes.com/2025/07/04/arts/music/sean-combs-diddy-civil-lawsuits.html
-
-**Filling Jobs, and Bridging the Blue-Collar Gap**\
-`Readers respond to an article about jobs in manufacturing. Also: Young minds and digital addiction.`\
-https://nytimes.com/2025/07/04/opinion/manufacturing-jobs-labor.html
 
