@@ -1,3 +1,7 @@
+**Hurricanes lineup projection after big K'Andre Miller, Nikolaj Ehlers signings**\
+`Two big additions — and a few subtractions — mean the Hurricanes will have a new look next season.`\
+https://nytimes.com/athletic/6472946/2025/07/04/hurricanes-lineup-miller-ehlers/
+
 **Madison Keys latest Wimbledon seed to fall after grass masterclass from Laura Siegemund**\
 `Keys had no answer to Siegemund's control of the ball on the grass.`\
 https://nytimes.com/athletic/6473630/2025/07/04/tennis-wimbledon-madison-keys-laura-siegemund-result-analysis/
