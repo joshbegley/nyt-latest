@@ -1,3 +1,11 @@
+**Aston Villa and the project inspiring Birmingham's multicultural communities**\
+`Aspiring Young Minds is on the doorstep of Villa Park to provide opportunities to children often of Somali heritage - and talent is emerging`\
+https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-multicultural-communities/
+
+**Anderson knocking on the England door is testament to Forest's growth environment**\
+`The midfielder is the latest example of why, if you are a young player wanting to progress, signing for Forest might be a very good idea`\
+https://nytimes.com/athletic/6471023/2025/07/04/elliot-anderson-nottingham-forest-england-thomas-tuchel/
+
 **Will tumbling Braves be trade deadline sellers? Plus Charlie Morton's return to Atlanta**\
 `With the trade deadline in four weeks, there is a growing opinion that the Braves could be, or should be, sellers.`\
 https://nytimes.com/athletic/6472818/2025/07/04/braves-trade-deadline-sellers-charlie-morton-returns/
