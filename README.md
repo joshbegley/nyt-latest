@@ -1,5 +1,5 @@
 **Fuel Tank Explosion Rocks Gas Station in Rome**\
-`The explosion injured several people including eight police officers and a firefighter, officials said. The cause was not immediately clear.`\
+`A fuel tank exploded in an eastern neighborhood of Rome. Firefighters and police officers had already been called to the gas station after an earlier incident involving a truck.`\
 https://nytimes.com/video/world/europe/100000010267616/fuel-tank-explosion-rocks-gas-station-in-rome.html
 
 **A Competition That’s All About Nothing**\
