@@ -1,3 +1,7 @@
+**Live Updates: Frantic Search for the Missing After At Least 13 Killed in Texas Flood**\
+`The authorities confirmed that 20 girls were still missing as a result of the flooding along the Guadalupe River, but the full scope of the disaster was not clear.`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river
+
 **The 7.6.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/04/the-762025-issue
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/nyregion/hochul-press-secretary-small-resigns-sex
 **Canada's Jonathan David completes Juventus move**\
 `The Canada international has signed a five-year contract with the Serie A club.`\
 https://nytimes.com/athletic/6473252/2025/07/04/jonathan-david-juventus-canada/
-
-**Jamie Smith: The wicketkeeper-batter earmarked to be England's Adam Gilchrist**\
-`England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batter position his own`\
-https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper-england-gilchrist-stewart/
 

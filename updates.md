@@ -1,3 +1,7 @@
+**Live Updates: Frantic Search for the Missing After At Least 13 Killed in Texas Flood**\
+`The authorities confirmed that 20 girls were still missing as a result of the flooding along the Guadalupe River, but the full scope of the disaster was not clear.`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river
+
 **The 7.6.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/04/the-762025-issue
