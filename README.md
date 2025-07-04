@@ -1,3 +1,7 @@
+**Jamie Smith: The wicketkeeper batsman earmarked to be England's Adam Gilchrist**\
+`England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batsman position his own`\
+https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper-england-gilchrist-stewart/
+
 **Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
 `Despite the unspeakable horror of her youth, she embraced a school of psychotherapy that stresses empathy and the belief that everyone can change for the better.`\
 https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
 `Americans are routinely asked to check off boxes about their race and ethnicity, but many say they do not see themselves reflected in the options.`\
 https://nytimes.com/2025/07/04/us/census-racial-categories.html
 
-**Joey Chestnut Returns and Regains Title at Hot Dog Contest**\
+**Joey Chestnut Returns and Regains Title at Hot Dog Eating Contest**\
 `Mr. Chestnut, who was barred last year over an endorsement deal with a vegan-meat company, and Miki Sudo easily won their respective contests but did not break records.`\
 https://nytimes.com/2025/07/04/nyregion/joey-chestnut-nathans-hot-dog-contest.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/04/upshot/flashback.html
 **FIFA dropping anti-racism messages a 'human rights risk' for World Cup**\
 `Anti-racism and anti-discrimination messages have not been displayed in this summer's Club World Cup in the U.S..`\
 https://nytimes.com/athletic/6473509/2025/07/04/fifa-racism-discrimination-world-cup/
-
-**UFC confirms Donald Trump's plans to have fight at White House in 2026**\
-`Trump has been a public supporter of the UFC and a friend of its president, Dana White, for decades, with Trump regularly attending fights.`\
-https://nytimes.com/athletic/6473889/2025/07/04/donald-trump-ufc-fight-250th-birthday-2026/
 
