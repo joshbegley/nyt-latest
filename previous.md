@@ -1,3 +1,7 @@
+**Former NBA guard Ben McLemore convicted of rape, sexual assault**\
+`The sexual assault occurred Oct. 3, 2021 after a party at then-teammate Robert Covington's house in Lake Oswego.`\
+https://nytimes.com/athletic/6472699/2025/07/03/ben-mclemore-trail-blazers-guilty-convicted/
+
 **Getting Really Pumped Up**\
 `Colin Adams believes that a certain crossword debut may have changed the course of a ballplayer’s career.`\
 https://nytimes.com/2025/07/03/crosswords/daily-puzzle-2025-07-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/07/04/smarter-living/wirecutter/how-to-keep-cats-a
 **Renato Gaucho calls his team the 'ugly duckling' of 8 Club World Cup teams**\
 `The Brazilian guided his side to the quarterfinals after beating UEFA Champions League finalists Inter Milan 2-0.`\
 https://nytimes.com/athletic/6472657/2025/07/03/renato-gaucho-fluminense-fc-club-world-cup-comment/
-
-**A Lawyer Was Wrongly Charged With Bringing Drug-Laced Papers Into Rikers**\
-`The Correction Department said Bernardo Caceres’s papers tested positive for THC, a cannabinoid. Then officials tested the papers again.`\
-https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
 

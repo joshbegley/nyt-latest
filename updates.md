@@ -1,3 +1,7 @@
+**Former NBA guard Ben McLemore convicted of rape, sexual assault**\
+`The sexual assault occurred Oct. 3, 2021 after a party at then-teammate Robert Covington's house in Lake Oswego.`\
+https://nytimes.com/athletic/6472699/2025/07/03/ben-mclemore-trail-blazers-guilty-convicted/
+
 **Getting Really Pumped Up**\
 `Colin Adams believes that a certain crossword debut may have changed the course of a ballplayer’s career.`\
 https://nytimes.com/2025/07/03/crosswords/daily-puzzle-2025-07-04.html

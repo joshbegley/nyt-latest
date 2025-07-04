@@ -1,3 +1,7 @@
+**Trump Executive Order Creates Commission to Open Protected Public Land**\
+`The Make America Beautiful Again panel will be led by Interior Secretary Doug Burgum.`\
+https://nytimes.com/2025/07/03/us/politics/trump-executive-order-maba-public-land.html
+
 **Former NBA guard Ben McLemore convicted of rape, sexual assault**\
 `The sexual assault occurred Oct. 3, 2021 after a party at then-teammate Robert Covington's house in Lake Oswego.`\
 https://nytimes.com/athletic/6472699/2025/07/03/ben-mclemore-trail-blazers-guilty-convicted/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/us/fireworks-factory-california.html
 **How to Keep Cats and Dogs Cool in the Sweltering Heat **\
 `(No description)`\
 https://nytimes.com/card/2025/07/04/smarter-living/wirecutter/how-to-keep-cats-and-dogs-cool-in-the-sweltering-heat
-
-**Renato Gaucho calls his team the 'ugly duckling' of 8 Club World Cup teams**\
-`The Brazilian guided his side to the quarterfinals after beating UEFA Champions League finalists Inter Milan 2-0.`\
-https://nytimes.com/athletic/6472657/2025/07/03/renato-gaucho-fluminense-fc-club-world-cup-comment/
 
