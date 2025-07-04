@@ -1,4 +1,8 @@
-**Explosion at Gas Station Rattles Rome, Booming Across the City**\
+**A Competition That’s All About Nothing**\
+`The annual Space-Out Competition in South Korea was created to draw attention to the benefits of zoning out in a competitive society.`\
+https://nytimes.com/video/world/asia/100000010262728/space-out-competition-seoul.html
+
+**Explosion at Gas Station Booms Across Rome**\
 `Several people were injured, including eight police officers and a firefighter, officials said. The cause of the blast was not immediately clear.`\
 https://nytimes.com/2025/07/04/world/europe/italy-rome-explosion-gas-station.html
 
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6473018/2025/07/04/f1-tim-mayer-fia-president-ben-s
 `The Liverpool player died in a car accident 11 days after his wedding. The Athletic reports from Spain on a tragedy that stunned football`\
 https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
 
-**Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
+**Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests await**\
 `Murmurs about Italy’s ability to upset the odds this summer have been building since they finished top of a tough qualifying group`\
 https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/crosswords/spelling-bee-forum.html
 **Ramsey joins Mexican club Pumas after Cardiff exit**\
 `Ramsey, formerly of Arsenal, was a free agent after his contract at Cardiff City expired in late June.`\
 https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transfer-cardiff/
-
-**'Much more than football' - Portugal pays respect to Diogo Jota at Euro 2025**\
-`Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
-https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
 

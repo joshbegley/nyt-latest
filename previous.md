@@ -1,3 +1,7 @@
+**Explosion at Gas Station Rattles Rome, Booming Across the City**\
+`Several people were injured, including eight police officers and a firefighter, officials said. The cause of the blast was not immediately clear.`\
+https://nytimes.com/2025/07/04/world/europe/italy-rome-explosion-gas-station.html
+
 **Enter Vicky Lopez, Spain's 18-year-old star-in-waiting**\
 `With Aitana Bonmati on the bench, Lopez stepped up in Spain's Euro 2025 opener and continued to add to her growing reputation `\
 https://nytimes.com/athletic/6472779/2025/07/04/vicky-lopez-spain-euro-2025-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transf
 **'Much more than football' - Portugal pays respect to Diogo Jota at Euro 2025**\
 `Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
 https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
-
-**Manila’s Returning Mayor Has a Mountain to Climb. It’s Made of Garbage.**\
-`Mayor Francisco Domagoso declared a state of emergency in the Philippine capital with piles of garbage left uncollected by contractors saying they had not been paid.`\
-https://nytimes.com/2025/07/04/world/asia/manila-mayor-philippines-garbage.html
 

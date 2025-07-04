@@ -1,3 +1,7 @@
+**Explosion at Gas Station Rattles Rome, Booming Across the City**\
+`Several people were injured, including eight police officers and a firefighter, officials said. The cause of the blast was not immediately clear.`\
+https://nytimes.com/2025/07/04/world/europe/italy-rome-explosion-gas-station.html
+
 **Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
 `Murmurs about Italy’s ability to upset the odds this summer have been building since they finished top of a tough qualifying group`\
 https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
