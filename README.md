@@ -1,3 +1,7 @@
+**Ben Shelton takes 70 seconds to finish Wimbledon match suspended due to darkness**\
+`Shelton was the latest American tennis player to fall foul of Wimbledon's curfews.`\
+https://nytimes.com/athletic/6472417/2025/07/04/ben-shelton-wimbledon-match-suspended-darkness/
+
 **Heat Fuels Fire, Fish Deaths and Tensions Over Protests in Eastern Europe**\
 `Exceptionally high temperatures strained electricity systems as people sought air-conditioning, although many did not have that option.`\
 https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472700/2025/07/04/hollies-edgbaston-england-india-
 **Will the Washington Wizards add a big man in free agency or via trade?**\
 `The Wizards have been silent in free agency so far. Why? And will that change? `\
 https://nytimes.com/athletic/6472620/2025/07/04/washington-wizards-free-agency-mailbag/
-
-**What we saw and heard from Sabres prospects at development camp**\
-`In 2025, development camp had a much different feel than past years for the Sabres.`\
-https://nytimes.com/athletic/6472702/2025/07/04/sabres-prospects-development-camp-2025/
 
