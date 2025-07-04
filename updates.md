@@ -1,3 +1,7 @@
+**Wolves remember Jota: 'I’m sure he’s up there on a head tennis court, watching over loved ones'**\
+`Players, staff and those close to Wolverhampton Wanderers remember Diogo Jota after his tragic death in a car crash.`\
+https://nytimes.com/athletic/6473139/2025/07/04/wolves-remember-diogo-jota-a-remarkable-human-who-showed-empathy-and-respect-to-everyone/
+
 **Forest mailbag: Elanga transfer, City Ground upgrade, what do you want to know?**\
 `What do you want to know about Nottingham Forest ahead of next season? Send you questions to Paul Taylor`\
 https://nytimes.com/athletic/6473392/2025/07/04/nottingham-forest-mailbag-elanga-transfer-city-ground-upgrade-what-do-you-want-to-know/

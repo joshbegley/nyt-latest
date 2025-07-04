@@ -1,3 +1,7 @@
+**Wolves remember Jota: 'I’m sure he’s up there on a head tennis court, watching over loved ones'**\
+`Players, staff and those close to Wolverhampton Wanderers remember Diogo Jota after his tragic death in a car crash.`\
+https://nytimes.com/athletic/6473139/2025/07/04/wolves-remember-diogo-jota-a-remarkable-human-who-showed-empathy-and-respect-to-everyone/
+
 **Forest mailbag: Elanga transfer, City Ground upgrade, what do you want to know?**\
 `What do you want to know about Nottingham Forest ahead of next season? Send you questions to Paul Taylor`\
 https://nytimes.com/athletic/6473392/2025/07/04/nottingham-forest-mailbag-elanga-transfer-city-ground-upgrade-what-do-you-want-to-know/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472417/2025/07/04/ben-shelton-wimbledon-match-susp
 **Heat Fuels Fire, Fish Deaths and Tensions Over Protests in Eastern Europe**\
 `Exceptionally high temperatures strained electricity systems as people sought air-conditioning, although many did not have that option.`\
 https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
-
-**What does Myles Turner bring to the Bucks? Breaking down the fit on both ends of the floor**\
-`Turner being eight years younger than Brook Lopez will allow him to impact the game differently, even if the two share similar strengths.`\
-https://nytimes.com/athletic/6468789/2025/07/04/myles-turner-bucks-fit-strengths-weaknesses/
 
