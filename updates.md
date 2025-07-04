@@ -1,3 +1,7 @@
+**Ben Shelton takes 70 seconds to finish Wimbledon match suspended due to darkness**\
+`Shelton was the latest American tennis player to fall foul of Wimbledon's curfews.`\
+https://nytimes.com/athletic/6472417/2025/07/04/ben-shelton-wimbledon-match-suspended-darkness/
+
 **Heat Fuels Fire, Fish Deaths and Tensions Over Protests in Eastern Europe**\
 `Exceptionally high temperatures strained electricity systems as people sought air-conditioning, although many did not have that option.`\
 https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
