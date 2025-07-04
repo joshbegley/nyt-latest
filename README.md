@@ -1,3 +1,7 @@
+**Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
+`Despite the unspeakable horror of her youth, she embraced a school of psychotherapy that stresses empathy and the belief that everyone can change for the better.`\
+https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
+
 **We Want to Hear From You: Are You Frustrated by Census and Racial Categories?**\
 `Americans are routinely asked to check off boxes about their race and ethnicity, but many say they do not see themselves reflected in the options.`\
 https://nytimes.com/2025/07/04/us/census-racial-categories.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473509/2025/07/04/fifa-racism-discrimination-world
 **UFC confirms Donald Trump's plans to have fight at White House in 2026**\
 `Trump has been a public supporter of the UFC and a friend of its president, Dana White, for decades, with Trump regularly attending fights.`\
 https://nytimes.com/athletic/6473889/2025/07/04/donald-trump-ufc-fight-250th-birthday-2026/
-
-**Submit your Canucks questions for Thomas Drance's mailbag**\
-`Got a question about the Canucks now that the NHL Draft and the opening of free agency are behind us?`\
-https://nytimes.com/athletic/6474025/2025/07/04/vancouver-canucks-mailbag-july-2025/
 
