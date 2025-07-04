@@ -1,3 +1,7 @@
+**How to watch Astros at Dodgers, starring Shohei Ohtani and a chorus of boos**\
+`The Dodgers and Astros play a three-game series on a holiday weekend. Los Angeles crowds are not fond of Jose Altuve and his Houston crew.`\
+https://nytimes.com/athletic/6472538/2025/07/04/astros-dodgers-ohtani-altuve-how-to-watch/
+
 **Why tennis serve bots are on the verge of extinction, even as they star at Wimbledon**\
 `‘Serve bot’ used to be a pejorative for limited tennis players. Now Carlos Alcaraz, a player with immense gifts, wants to be one. Why?`\
 https://nytimes.com/athletic/6469895/2025/07/04/tennis-serve-bot-meaning-players-history-evolution/
