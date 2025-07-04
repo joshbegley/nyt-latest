@@ -1,3 +1,7 @@
+**Ramsey joins Mexican club Pumas after Cardiff exit**\
+`Ramsey, formerly of Arsenal, was a free agent after his contract at Cardiff City expired in late June.`\
+https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transfer-cardiff/
+
 **'Much more than football' - Portugal pays respect to Diogo Jota at Euro 2025**\
 `Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
 https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462339/2025/07/04/west-ham-united-strikers-transfe
 **Aston Villa and the project inspiring Birmingham's multicultural communities**\
 `Aspiring Young Minds is on the doorstep of Villa Park to provide opportunities to children often of Somali heritage - and talent is emerging`\
 https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-multicultural-communities/
-
-**Anderson knocking on the England door is testament to Forest's growth environment**\
-`The midfielder is the latest example of why, if you are a young player wanting to progress, signing for Forest might be a very good idea`\
-https://nytimes.com/athletic/6471023/2025/07/04/elliot-anderson-nottingham-forest-england-thomas-tuchel/
 
