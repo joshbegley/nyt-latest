@@ -1,3 +1,15 @@
+**France captain Mbock to miss England opener with injury**\
+`The 30-year-old is still suffering with a calf issue, France manager Laurent Bonadei confirmed.`\
+https://nytimes.com/athletic/6473129/2025/07/04/griedge-mbock-france-england-injury/
+
+**Man Attempts to Set Fire to a Melbourne Synagogue**\
+`None of the approximately 20 people who were inside the synagogue were injured in the incident, the latest in a surge of anti-Jewish acts in Australia.`\
+https://nytimes.com/2025/07/04/world/australia/melbourne-synagogue-fire.html
+
+**As Fire Videos Compete With Beach Photos, Greeks Who Rely on Tourism Are Worried**\
+`More than 1,500 people were evacuated when a fire broke out on the southeastern tip of Crete, most of them tourists.`\
+https://nytimes.com/2025/07/04/world/europe/greece-crete-wildfires-tourism.html
+
 **Until Saturday: AAC loaded with great coaches (plus Dilfer)**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6473803/2025/07/04/american-athletic-conference-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6473656/2025/07/04/tennis-wimbledon-naomi-osaka-res
 **Rashford, Garnacho, Sancho to be allowed to find new clubs**\
 `The rest of United's first team squad are set to return to Carrington on Monday.`\
 https://nytimes.com/athletic/6473680/2025/07/04/man-utd-transfers-rashford-garnacho/
-
-**Ronald Ribman, 92, Dies; His Plays Mined the Absurdity of Existence**\
-`He set his frequently neurotic characters in bleak, morally ambiguous situations where laughter, as he put it, “is a measure of the sickness of society.”`\
-https://nytimes.com/2025/07/04/theater/ronald-ribman-dead.html
-
-**The teams that are using the Club World Cup to experiment like it's pre-season**\
-`The competition has been an opportunity for both new and established managers to workshop some new tactical ideas ahead of 2025-26`\
-https://nytimes.com/athletic/6468887/2025/07/04/club-world-cup-tactical-experimentation/
-
-**Gochujang Burgers, Salmon Burgers, Black Bean Burgers, Cheeseburgers**\
-`And more recipe inspiration (besides burgers) for your Independence Day weekend.`\
-https://nytimes.com/2025/07/04/dining/last-minute-july-4-recipes.html
 

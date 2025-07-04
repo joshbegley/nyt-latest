@@ -1,3 +1,11 @@
+**British Fighter Jet Takes Unexpected Detour to India, and Is Embraced by Locals**\
+`A British F-35B has been stranded for weeks at an airport in southern India because of mechanical issues. The internet, and the region’s tourism agency, are having fun with it.`\
+https://nytimes.com/2025/07/04/world/asia/india-kerala-tourism-f35-fighter-jet.html
+
+**Phillies demote Mick Abel to minors, reinsert Taijuan Walker into rotation — for now**\
+`Walker will start Tuesday at San Francisco. He could pitch four innings or so. Then, during the All-Star break, the Phillies will reassess.`\
+https://nytimes.com/athletic/6473793/2025/07/04/phillies-rotation-mick-abel-taijuan-walker/
+
 **France captain Mbock to miss England opener with injury**\
 `The 30-year-old is still suffering with a calf issue, France manager Laurent Bonadei confirmed.`\
 https://nytimes.com/athletic/6473129/2025/07/04/griedge-mbock-france-england-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473173/2025/07/04/jonathan-barnett-rape-lawsuit/
 **Why Nico Williams' Barcelona transfer collapsed: The full story**\
 `It was a bolt from the blue that left Barcelona reeling. This is the story behind Nico Williams' decision to stay at Athletic Club`\
 https://nytimes.com/athletic/6473318/2025/07/04/barcelona-nico-williams-athletic-club-transfer-collapsed/
-
-**Naomi Osaka didn't 'feel anything' after latest tight Grand Slam loss at Wimbledon**\
-`Six of Osaka's last seven defeats have been in three sets, with the four-time Grand Slam champion closer than ever to a return to form.`\
-https://nytimes.com/athletic/6473656/2025/07/04/tennis-wimbledon-naomi-osaka-result/
-
-**Rashford, Garnacho, Sancho to be allowed to find new clubs**\
-`The rest of United's first team squad are set to return to Carrington on Monday.`\
-https://nytimes.com/athletic/6473680/2025/07/04/man-utd-transfers-rashford-garnacho/
 

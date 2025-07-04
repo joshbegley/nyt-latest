@@ -1,3 +1,15 @@
+**France captain Mbock to miss England opener with injury**\
+`The 30-year-old is still suffering with a calf issue, France manager Laurent Bonadei confirmed.`\
+https://nytimes.com/athletic/6473129/2025/07/04/griedge-mbock-france-england-injury/
+
+**Man Attempts to Set Fire to a Melbourne Synagogue**\
+`None of the approximately 20 people who were inside the synagogue were injured in the incident, the latest in a surge of anti-Jewish acts in Australia.`\
+https://nytimes.com/2025/07/04/world/australia/melbourne-synagogue-fire.html
+
+**As Fire Videos Compete With Beach Photos, Greeks Who Rely on Tourism Are Worried**\
+`More than 1,500 people were evacuated when a fire broke out on the southeastern tip of Crete, most of them tourists.`\
+https://nytimes.com/2025/07/04/world/europe/greece-crete-wildfires-tourism.html
+
 **Until Saturday: AAC loaded with great coaches (plus Dilfer)**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6473803/2025/07/04/american-athletic-conference-until-saturday/
