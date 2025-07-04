@@ -1,3 +1,7 @@
+**Forest mailbag: Elanga transfer, City Ground upgrade, what do you want to know?**\
+`What do you want to know about Nottingham Forest ahead of next season? Send you questions to Paul Taylor`\
+https://nytimes.com/athletic/6473392/2025/07/04/nottingham-forest-mailbag-elanga-transfer-city-ground-upgrade-what-do-you-want-to-know/
+
 **Trump Administration Live Updates: President to Sign Sweeping Domestic Policy Bill Into Law**\
 ``\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
 **What does Myles Turner bring to the Bucks? Breaking down the fit on both ends of the floor**\
 `Turner being eight years younger than Brook Lopez will allow him to impact the game differently, even if the two share similar strengths.`\
 https://nytimes.com/athletic/6468789/2025/07/04/myles-turner-bucks-fit-strengths-weaknesses/
-
-**Rangers depth chart 2.0: Where does the lineup stand after the start of free agency?**\
-`After a series of moves, here's a position-by-position breakdown of where the potential lineup stands for next season.`\
-https://nytimes.com/athletic/6471443/2025/07/04/rangers-nhl-free-agency-roster-lineup/
 
