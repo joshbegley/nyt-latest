@@ -1,3 +1,7 @@
+**The latest on Jonathan Kuminga, the Warriors and his restricted free agency**\
+`We're four days into free agency, and Kuminga remains in patient pursuit of a situation that matches his ambitions.`\
+https://nytimes.com/athletic/6472793/2025/07/03/jonathan-kuminga-warriors-free-agency-latest/
+
 **Maresca will let Neto decide whether to play following Jota tragedy**\
 `Chelsea star has been dealing with the heartbreaking news of his international teammate's death.`\
 https://nytimes.com/athletic/6472786/2025/07/03/chelsea-maresca-neto-jota-tragedy/

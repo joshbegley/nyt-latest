@@ -1,3 +1,7 @@
+**The latest on Jonathan Kuminga, the Warriors and his restricted free agency**\
+`We're four days into free agency, and Kuminga remains in patient pursuit of a situation that matches his ambitions.`\
+https://nytimes.com/athletic/6472793/2025/07/03/jonathan-kuminga-warriors-free-agency-latest/
+
 **Maresca will let Neto decide whether to play following Jota tragedy**\
 `Chelsea star has been dealing with the heartbreaking news of his international teammate's death.`\
 https://nytimes.com/athletic/6472786/2025/07/03/chelsea-maresca-neto-jota-tragedy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472739/2025/07/03/mlb-gambling-investigation-luis-
 **Jose Altuve's pursuit of 3,000 hits begins in earnest after milestone**\
 `Only 33 players have collected 3,000 hits, a benchmark that all but guarantees enshrinement in Cooperstown.`\
 https://nytimes.com/athletic/6472664/2025/07/03/jose-altuve-astros-3000-hits/
-
-**Search Begins for 7 Missing After Disaster at Fireworks Warehouse in California**\
-`The company indicated that multiple people died in the incident three days before the Fourth of July, but officials have not issued a determination.`\
-https://nytimes.com/2025/07/03/us/fireworks-factory-california.html
 
