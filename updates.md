@@ -1,3 +1,7 @@
+**Liverpool cancel planned preseason testing after Diogo Jota's death**\
+`A staggered return to pre-season will now begin on Monday.`\
+https://nytimes.com/athletic/6473336/2025/07/04/diogo-jota-liverpool-preseason-testing/
+
 **Ben Shelton takes 70 seconds to finish Wimbledon match suspended due to darkness**\
 `Shelton was the latest American tennis player to fall foul of Wimbledon's curfews.`\
 https://nytimes.com/athletic/6472417/2025/07/04/ben-shelton-wimbledon-match-suspended-darkness/
