@@ -1,3 +1,7 @@
+**Newcastle, the challenge of attracting top players and why this summer is different to others**\
+`PSR rules have weakened the club's ability to bring in fresh talent but they have still managed to build a winning formula`\
+https://nytimes.com/athletic/6471369/2025/07/04/newcastle-the-challenge-of-attracting-top-players-and-why-this-summer-is-different/
+
 **Renard says France career not over amid 'disbelief, injustice' of Euro 2025 omission**\
 `OL Lyonnes centre-back Renard, with 168 international appearances and considered a legend of the game, is not part of the Euro 2025 squad.`\
 https://nytimes.com/athletic/6473267/2025/07/04/france-euro-2025-wendie-renard/
