@@ -1,3 +1,7 @@
+**Iran Is Terrorizing Its Own Citizens. The World Needs to Respond.**\
+`The regime is sending a chilling message: Dissent equals death.`\
+https://nytimes.com/2025/07/04/opinion/iran-israel-arrests.html
+
 **Manila’s Mayor Returns to Office to Face Mountains of Trash**\
 `Mayor Francisco Domagoso declared a state of emergency in the Philippine capital with piles of garbage left uncollected by contractors saying they had not been paid.`\
 https://nytimes.com/2025/07/04/world/asia/manila-mayor-philippines-garbage.html

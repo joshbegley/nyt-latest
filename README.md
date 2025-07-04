@@ -1,3 +1,7 @@
+**'Much more than football' - Portugal pays respect to Diogo Jota at Euro 2025**\
+`Portugal may have lost their Women's Euros opener to Spain, but the result was clearly far from the front of fans' minds`\
+https://nytimes.com/athletic/6472372/2025/07/04/diogo-jota-portugal-spain-euro-2025/
+
 **Manila’s Mayor Returns to Office to Face Mountains of Trash**\
 `Mayor Francisco Domagoso declared a state of emergency in the Philippine capital with piles of garbage left uncollected by contractors saying they had not been paid.`\
 https://nytimes.com/2025/07/04/world/asia/manila-mayor-philippines-garbage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-m
 **Anderson knocking on the England door is testament to Forest's growth environment**\
 `The midfielder is the latest example of why, if you are a young player wanting to progress, signing for Forest might be a very good idea`\
 https://nytimes.com/athletic/6471023/2025/07/04/elliot-anderson-nottingham-forest-england-thomas-tuchel/
-
-**Will tumbling Braves be trade deadline sellers? Plus Charlie Morton's return to Atlanta**\
-`With the trade deadline in four weeks, there is a growing opinion that the Braves could be, or should be, sellers.`\
-https://nytimes.com/athletic/6472818/2025/07/04/braves-trade-deadline-sellers-charlie-morton-returns/
 
