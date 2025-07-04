@@ -1,3 +1,11 @@
+**Storms Trigger Life-Threatening Flooding and Evacuations in Texas**\
+`The National Weather Service urged people to avoid flooded areas and to not drive through water as the Guadalupe River rose swiftly.`\
+https://nytimes.com/2025/07/04/us/texas-flooding-kerr-county-san-angelo.html
+
+**Corrections: July 4, 2025**\
+`Corrections that appeared in print on Friday, July 4, 2025.`\
+https://nytimes.com/2025/07/04/pageoneplus/corrections-july-4-2025.html
+
 **Wolves remember Jota: 'I’m sure he’s up there on a head tennis court, watching over loved ones'**\
 `Players, staff and those close to Wolverhampton Wanderers remember Diogo Jota after his tragic death in a car crash.`\
 https://nytimes.com/athletic/6473139/2025/07/04/wolves-remember-diogo-jota-a-remarkable-human-who-showed-empathy-and-respect-to-everyone/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/business/markets-investment-returns-trump.html
 **Liverpool cancel planned preseason testing after Diogo Jota's death**\
 `A staggered return to pre-season will now begin on Monday.`\
 https://nytimes.com/athletic/6473336/2025/07/04/diogo-jota-liverpool-preseason-testing/
-
-**Ben Shelton takes 70 seconds to finish Wimbledon match suspended due to darkness**\
-`Shelton was the latest American tennis player to fall foul of Wimbledon's curfews.`\
-https://nytimes.com/athletic/6472417/2025/07/04/ben-shelton-wimbledon-match-suspended-darkness/
-
-**Heat Fuels Fire, Fish Deaths and Tensions Over Protests in Eastern Europe**\
-`Exceptionally high temperatures strained electricity systems as people sought air-conditioning, although many did not have that option.`\
-https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
 
