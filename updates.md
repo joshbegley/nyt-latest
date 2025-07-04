@@ -1,3 +1,7 @@
+**Alpine hires Steve Nielsen as new managing director**\
+`Nielsen worked for the team between for almost 10 years in the late 1990s and 2000s and replaces Oliver Oakes, who left in May.`\
+https://nytimes.com/athletic/6473028/2025/07/04/alpine-f1-steve-nielsen-managing-director/
+
 **Tim Mayer launches bid to become FIA president, will run against Mohammed Ben Sulayem**\
 `The 59-year-old is the first candidate to officially stand against the incumbent president.`\
 https://nytimes.com/athletic/6473018/2025/07/04/f1-tim-mayer-fia-president-ben-sulayem/

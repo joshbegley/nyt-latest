@@ -1,3 +1,7 @@
+**Alpine hires Steve Nielsen as new managing director**\
+`Nielsen worked for the team between for almost 10 years in the late 1990s and 2000s and replaces Oliver Oakes, who left in May.`\
+https://nytimes.com/athletic/6473028/2025/07/04/alpine-f1-steve-nielsen-managing-director/
+
 **Tim Mayer launches bid to become FIA president, will run against Mohammed Ben Sulayem**\
 `The 59-year-old is the first candidate to officially stand against the incumbent president.`\
 https://nytimes.com/athletic/6473018/2025/07/04/f1-tim-mayer-fia-president-ben-sulayem/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/world/asia/manila-mayor-philippines-garbage.html
 **The New York Times in Print for Friday, July 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/04/todays-new-york-times
-
-**In Trump’s America, Who Gets to Call Themselves American?**\
-`His politicization of the name America taps into a long, well, American tradition, as old as the nation itself.`\
-https://nytimes.com/2025/07/04/opinion/trump-america-.html
 
