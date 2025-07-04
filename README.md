@@ -1,3 +1,7 @@
+**Rashford, Garnacho, Sancho to be allowed to find new clubs**\
+`The rest of United's first team squad are set to return to Carrington on Monday.`\
+https://nytimes.com/athletic/6473680/2025/07/04/man-utd-transfers-rashford-garnacho/
+
 **Ronald Ribman, 92, Dies; His Plays Mined the Absurdity of Existence**\
 `He set his frequently neurotic characters in bleak, morally ambiguous situations where laughter, as he put it, “is a measure of the sickness of society.”`\
 https://nytimes.com/2025/07/04/theater/ronald-ribman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010267804/rare-cloud-sends-beachgoe
 **Villa confirm permanent Coutinho departure**\
 `The 33-year-old's last appearance for Villa came in a 4-0 win over Everton in August 2023.`\
 https://nytimes.com/athletic/6473635/2025/07/04/aston-villa-philippe-coutinho-departure/
-
-**Why Beef Prices Have Hit a Record**\
-`Smaller cattle herds and a decade of headwinds for the industry are expected to push up the cost of burgers and steaks for several years.`\
-https://nytimes.com/2025/07/04/business/beef-prices-cattle.html
 
