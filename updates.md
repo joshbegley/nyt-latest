@@ -1,3 +1,19 @@
+**From Salt Lake City to San Francisco, here's how to watch early NBA Summer League**\
+`Before the Las Vegas proceedings, eight NBA teams will round robin in California and Utah. Here's how to watch the early action.`\
+https://nytimes.com/athletic/6469893/2025/07/04/nba-summer-league-salt-lake-city-california-classic-how-to-watch/
+
+**How the Weather Could Make Your Fireworks Fizzle**\
+`Rain can put a damper on your July 4 display, and drought risks can turn a neighborhood celebration into a five-alarm fire.`\
+https://nytimes.com/2025/07/04/weather/fireworks-wildfires.html
+
+**The New York Times International Edition in Print for Saturday, July 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/04/todays-new-york-times-international-edition
+
+**Nico Williams turns down Barcelona, signs eight-year Athletic extension**\
+`The Catalan club were rebuffed by Athletic Club last summer and had to compete with Bayern Munich for the winger.`\
+https://nytimes.com/athletic/6448217/2025/07/04/nico-williams-transfer-athletic-club-barcelona/
+
 **Nico Williams turns down Barcelona transfer, signs eight-year Athletic extension**\
 `The Catalan club were rebuffed by Athletic Club last summer and had to compete with Bayern Munich for the winger.`\
 https://nytimes.com/athletic/6448217/2025/07/04/nico-williams-transfer-athletic-club-barcelona/
