@@ -1,3 +1,11 @@
+**Yankees starter Clarke Schmidt exits early after apparent injury**\
+`TORONTO — The New York Yankees&#8217; rotation may have taken a hit.`\
+https://nytimes.com/athletic/6472735/2025/07/03/yankees-clarke-schmidt-injury/
+
+**MLB's gambling investigation into Guardians pitcher Luis Ortiz: What we know**\
+`Cleveland’s brass insists it doesn’t have more information than what has been publicly reported: "Not something we were expecting."`\
+https://nytimes.com/athletic/6472739/2025/07/03/mlb-gambling-investigation-luis-ortiz-guardians/
+
 **Jose Altuve's pursuit of 3,000 hits begins in earnest after milestone**\
 `Only 33 players have collected 3,000 hits, a benchmark that all but guarantees enshrinement in Cooperstown.`\
 https://nytimes.com/athletic/6472664/2025/07/03/jose-altuve-astros-3000-hits/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6472555/2025/07/03/tennis-wimbledon-recap-seed-reco
 **Immigration Agents Appear to Urinate in Public at a California School**\
 `School officials have demanded answers from federal agencies. It was the latest example of how locals have scrutinized the actions of immigration agents.`\
 https://nytimes.com/2025/07/03/us/immigration-agents-urinate-california-school.html
-
-**What we're hearing on the Mets' rotation after another injury**\
-`The Mets have to cobble a rotation together before reinforcements arrive just ahead of the All-Star break.`\
-https://nytimes.com/athletic/6472589/2025/07/03/what-were-hearing-mets-rotation-injuries/
-
-**Tisch Refuses to Fire Officer Who Killed Driver, Despite Judge’s Finding**\
-`The police commissioner said Lieutenant Jonathan Rivera fired shots that killed a man after a seatbelt stop only because he believed his partner’s life was in peril.`\
-https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
 

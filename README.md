@@ -1,5 +1,5 @@
 **Yankees starter Clarke Schmidt exits early after apparent injury**\
-`TORONTO — The New York Yankees&#8217; rotation may have taken a hit.`\
+`Clarke Schmidt left Thursday night's start against the Toronto Blue Jays after three innings and 55 pitches.`\
 https://nytimes.com/athletic/6472735/2025/07/03/yankees-clarke-schmidt-injury/
 
 **MLB's gambling investigation into Guardians pitcher Luis Ortiz: What we know**\

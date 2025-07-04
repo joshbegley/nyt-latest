@@ -1,3 +1,11 @@
+**Yankees starter Clarke Schmidt exits early after apparent injury**\
+`TORONTO — The New York Yankees&#8217; rotation may have taken a hit.`\
+https://nytimes.com/athletic/6472735/2025/07/03/yankees-clarke-schmidt-injury/
+
+**MLB's gambling investigation into Guardians pitcher Luis Ortiz: What we know**\
+`Cleveland’s brass insists it doesn’t have more information than what has been publicly reported: "Not something we were expecting."`\
+https://nytimes.com/athletic/6472739/2025/07/03/mlb-gambling-investigation-luis-ortiz-guardians/
+
 **Jose Altuve's pursuit of 3,000 hits begins in earnest after milestone**\
 `Only 33 players have collected 3,000 hits, a benchmark that all but guarantees enshrinement in Cooperstown.`\
 https://nytimes.com/athletic/6472664/2025/07/03/jose-altuve-astros-3000-hits/
