@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-co
 `\
 https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-contest-results/
 
+**NHL 2024-25 prediction contest results, where playing it safe finally paid off**\
+`July 1 has come and gone, marking one of the most important dates on the NHL calendar: the end of the annual prediction contest.
+`\
+https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-contest-results/
+
 **Netherlands coach denies causing Euro 2025 'puppet show' with podcast comments**\
 `Andries Jonker appeared on a podcast to discuss his impending departure, and fielded questions about it at a heated press conference.`\
 https://nytimes.com/athletic/6473874/2025/07/04/andries-jonker-netherlands-podcast-comments/
