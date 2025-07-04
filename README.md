@@ -1,3 +1,7 @@
+**Renard says France career not over amid 'disbelief, injustice' of Euro 2025 omission**\
+`OL Lyonnes centre-back Renard, with 168 international appearances and considered a legend of the game, is not part of the Euro 2025 squad.`\
+https://nytimes.com/athletic/6473267/2025/07/04/france-euro-2025-wendie-renard/
+
 **United confirm director of women's football, Williams extension**\
 `Johnson originally replaced Polly Bancroft as head of women's football on a six-month interim basis. `\
 https://nytimes.com/athletic/6473193/2025/07/04/manchester-united-rachel-williams-contract-director-womens-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472199/2025/07/04/nhl-top-free-agents-2026-ranking
 **Five thoughts after an underwhelming start to the Blue Jackets' offseason**\
 `How did Ivan Provorov's signing became imperative for Columbus?`\
 https://nytimes.com/athletic/6471411/2025/07/04/blue-jackets-offseason-2025/
-
-**Hard Fork Live, Part 2: Patrick Collison of Stripe, Kathryn Zealand of Skip, and Listener Questions**\
-`More from our first live show taping, including a robot pants demo and audience questions.`\
-https://nytimes.com/2025/07/04/podcasts/hardfork-live-patrick-collison.html
 
