@@ -1,5 +1,9 @@
-**Jamie Smith: The wicketkeeper batsman earmarked to be England's Adam Gilchrist**\
-`England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batsman position his own`\
+**Canada's Jonathan David completes Juventus move**\
+`The Canada international has signed a five-year contract with the Serie A club.`\
+https://nytimes.com/athletic/6473252/2025/07/04/jonathan-david-juventus-canada/
+
+**Jamie Smith: The wicketkeeper batter earmarked to be England's Adam Gilchrist**\
+`England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batter position his own`\
 https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper-england-gilchrist-stewart/
 
 **Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423779/2025/07/04/kyle-walker-transfer-man-city-bu
 **Flashback: Your Weekly History Quiz, July 5, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/07/04/upshot/flashback.html
-
-**FIFA dropping anti-racism messages a 'human rights risk' for World Cup**\
-`Anti-racism and anti-discrimination messages have not been displayed in this summer's Club World Cup in the U.S..`\
-https://nytimes.com/athletic/6473509/2025/07/04/fifa-racism-discrimination-world-cup/
 
