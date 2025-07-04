@@ -1,3 +1,7 @@
+**July 4th's Subway Series pits Aaron Judge vs. Juan Soto. Here's how to watch**\
+`New York's Subway Series between the Yankees and Mets is always one of MLB's coolest interleague matchups.`\
+https://nytimes.com/athletic/6472317/2025/07/04/yankees-mets-subway-series-juan-soto-aaron-judge-july-4-how-to-watch/
+
 **What Sean Combs Got Away With**\
 `That the hotel tape is not by itself enough to convict the celebrity — of something — speaks to the system’s failures.`\
 https://nytimes.com/2025/07/04/opinion/sean-combs-cassie-ventura-domestic-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/opinion/congress-john-thune-mike-johnson.html
 **Superhero Movies Dominated the Box Office, but Not the Top 100 List**\
 `The notable exceptions — “The Dark Knight” and “Black Panther” — stood out among the many sequels and spinoffs.`\
 https://nytimes.com/2025/07/04/movies/superhero-movies-best-films-list.html
-
-**A Musician on a Mission to Make Us Pay Attention to the Viola**\
-`Lawrence Power’s instrument has been overlooked throughout its history. He has made a career of changing that.`\
-https://nytimes.com/2025/07/04/arts/music/lawrence-power-viola.html
 
