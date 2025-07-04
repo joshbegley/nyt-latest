@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
+`With less than a month until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals.`\
+https://nytimes.com/athletic/6473695/2025/07/04/mlb-trade-deadline-questions-submit/
+
 **Hurricanes lineup projection after big K'Andre Miller, Nikolaj Ehlers signings**\
 `Two big additions — and a few subtractions — mean the Hurricanes will have a new look next season.`\
 https://nytimes.com/athletic/6472946/2025/07/04/hurricanes-lineup-miller-ehlers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473464/2025/07/04/thomas-partey-rape-case-arsenal/
 **Russia Targets Kyiv With Record Number of Drones and Missiles**\
 `President Trump said he “didn’t make any progress” after a call with President Vladimir V. Putin of Russia, hours before a barrage that Ukraine’s air forces said was the largest since the war started.`\
 https://nytimes.com/video/world/europe/100000010267685/russia-ukraine-kyiv-drones-missiles-.html
-
-**How Chicago's historic orchestra hall helps NASCAR tackle a street-race problem**\
-`At spread-out street courses, NASCAR's spotters need help. At the Chicago race, Symphony Center and some double-decker buses help the cause.`\
-https://nytimes.com/athletic/6472536/2025/07/04/nascar-chicago-street-race-symphony-center-spotters/
 

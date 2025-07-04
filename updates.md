@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
+`With less than a month until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals.`\
+https://nytimes.com/athletic/6473695/2025/07/04/mlb-trade-deadline-questions-submit/
+
 **Hurricanes lineup projection after big K'Andre Miller, Nikolaj Ehlers signings**\
 `Two big additions — and a few subtractions — mean the Hurricanes will have a new look next season.`\
 https://nytimes.com/athletic/6472946/2025/07/04/hurricanes-lineup-miller-ehlers/
