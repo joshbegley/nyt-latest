@@ -1,3 +1,12 @@
+**Joey Chesnut wins 2025 Nathan’s Famous Hot Dog Eating Contest after 2024 ban**\
+`Chesnut dominated the competition, eating 70.5  hot dogs and buns in 10 minutes.`\
+https://nytimes.com/athletic/6473777/2025/07/04/joey-chesnut-wins-2025-nathans-famous-hot-dog-eating-contest-after-2024-ban/
+
+**NHL 2024-25 prediction contest results, where playing it safe finally paid off**\
+`July 1 has come and gone, marking one of the most important dates on the NHL calendar: the end of the annual prediction contest.
+`\
+https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-contest-results/
+
 **NHL 2024-25 prediction contest results, where playing it safe finally paid off**\
 `July 1 has come and gone, marking one of the most important dates on the entire NHL calendar: the end of the annual prediction contest.
 `\
