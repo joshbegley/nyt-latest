@@ -1,3 +1,11 @@
+**British Fighter Jet Takes Unexpected Detour to India, and Is Embraced by Locals**\
+`A British F-35B has been stranded for weeks at an airport in southern India because of mechanical issues. The internet, and the region’s tourism agency, are having fun with it.`\
+https://nytimes.com/2025/07/04/world/asia/india-kerala-tourism-f35-fighter-jet.html
+
+**Phillies demote Mick Abel to minors, reinsert Taijuan Walker into rotation — for now**\
+`Walker will start Tuesday at San Francisco. He could pitch four innings or so. Then, during the All-Star break, the Phillies will reassess.`\
+https://nytimes.com/athletic/6473793/2025/07/04/phillies-rotation-mick-abel-taijuan-walker/
+
 **France captain Mbock to miss England opener with injury**\
 `The 30-year-old is still suffering with a calf issue, France manager Laurent Bonadei confirmed.`\
 https://nytimes.com/athletic/6473129/2025/07/04/griedge-mbock-france-england-injury/
