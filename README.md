@@ -1,3 +1,7 @@
+**Trump Signs the ‘One Big Beautiful Bill’ Into Law**\
+`President Donald Trump celebrated the Fourth of July by signing his signature policy bill.`\
+https://nytimes.com/video/us/politics/100000010268448/trump-signs-the-one-big-beautiful-bill-into-law.html
+
 **Floods in the same part of Texas swept away 10 teenagers in July 1987.**\
 `By Adeel Hassan and Judson Jones`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/floods-camp-deaths-july-1987
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/us/joseph-giordano-dead.html
 **Paul Libin, a Forceful Presence On and Off Broadway, Dies at 94**\
 `He staged a revival of “The Crucible” in a Manhattan hotel ballroom in 1958, helped run Circle in the Square and oversaw the operations of Jujamcyn Theaters.`\
 https://nytimes.com/2025/07/04/theater/paul-libin-dead.html
-
-**Brief but Violent Storms in New Jersey Leave 3 Dead**\
-`Powerful gusts blew down trees in central New Jersey on Thursday, killing three people who were in their cars.`\
-https://nytimes.com/2025/07/04/nyregion/new-jersey-storm.html
 
