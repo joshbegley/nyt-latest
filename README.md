@@ -10,7 +10,7 @@ https://nytimes.com/issue/todayspaper/2025/07/04/todays-new-york-times
 `His politicization of the name America taps into a long, well, American tradition, as old as the nation itself.`\
 https://nytimes.com/2025/07/04/opinion/trump-america-.html
 
-**Iran’s Quiet Campaign of Domestic Terror**\
+**Iran Is Terrorizing Its Own Citizens. The World Needs to Respond.**\
 `The regime is sending a chilling message: Dissent equals death.`\
 https://nytimes.com/2025/07/04/opinion/iran-israel-arrests.html
 
