@@ -1,3 +1,7 @@
+**A Frantic Search for Flooding Survivors by Air, Water and Land**\
+`Hundreds of emergency personnel were searching for stranded people, using 14 helicopters, though crews were struggling to navigate flooded roads, officials said.`\
+https://nytimes.com/2025/07/04/us/search-texas-flood-kerr-county.html
+
 **A frantic search for survivors by air, water and land.**\
 `By Ernesto Londoño`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/a-frantic-search-for-survivors-by-air-water-and-land
