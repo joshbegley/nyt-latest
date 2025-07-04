@@ -1,3 +1,11 @@
+**We Want to Hear From You: Are You Frustrated by Census and Racial Categories?**\
+`Americans are routinely asked to check off boxes about their race and ethnicity, but many say they do not see themselves reflected in the options.`\
+https://nytimes.com/2025/07/04/us/census-racial-categories.html
+
+**Joey Chestnut Returns and Regains Title at Hot Dog Contest**\
+`Mr. Chestnut, who was barred last year over an endorsement deal with a vegan-meat company, and Miki Sudo easily won their respective contests but did not break records.`\
+https://nytimes.com/2025/07/04/nyregion/joey-chestnut-nathans-hot-dog-contest.html
+
 **Are the Blues and Bowen Byram a trade match? Breaking down fit, cost and other factors**\
 `The Blues are interested in Sabres defenseman Bowen Byram, but what would they be willing to give up? Does a deal make sense?`\
 https://nytimes.com/athletic/6473820/2025/07/04/blues-sabres-bowen-byram-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473889/2025/07/04/donald-trump-ufc-fight-250th-bir
 **Submit your Canucks questions for Thomas Drance's mailbag**\
 `Got a question about the Canucks now that the NHL Draft and the opening of free agency are behind us?`\
 https://nytimes.com/athletic/6474025/2025/07/04/vancouver-canucks-mailbag-july-2025/
-
-**Trump calls Zelensky after Russia hits Ukraine with a large air barrage.**\
-`It was the latest in a series of almost weekly large-scale missile and drone attacks. President Trump said he “didn’t make any progress” with President Vladimir V. Putin of Russia.`\
-https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-calls-zelensky-after-russia-hits-ukraine-with-a-large-air-barrage
-
-**Netherlands coach denies causing Euro 2025 'puppet show' with podcast comments**\
-`Andries Jonker appeared on a podcast to discuss his impending departure, and fielded questions about it at a heated press conference.`\
-https://nytimes.com/athletic/6473874/2025/07/04/andries-jonker-netherlands-podcast-comments/
 
