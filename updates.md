@@ -1,3 +1,7 @@
+**Search Begins for 7 Missing After Disaster at Fireworks Warehouse in California**\
+`The company indicated that multiple people died in the incident three days before the Fourth of July, but officials have not issued a determination.`\
+https://nytimes.com/2025/07/03/us/fireworks-factory-california.html
+
 **How to Keep Cats and Dogs Cool in the Sweltering Heat **\
 `(No description)`\
 https://nytimes.com/card/2025/07/04/smarter-living/wirecutter/how-to-keep-cats-and-dogs-cool-in-the-sweltering-heat
