@@ -1,3 +1,11 @@
+**Jamie Smith: The wicketkeeper batsman earmarked to be England's Adam Gilchrist**\
+`England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batsman position his own`\
+https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper-england-gilchrist-stewart/
+
+**Joey Chestnut Returns and Regains Title at Hot Dog Eating Contest**\
+`Mr. Chestnut, who was barred last year over an endorsement deal with a vegan-meat company, and Miki Sudo easily won their respective contests but did not break records.`\
+https://nytimes.com/2025/07/04/nyregion/joey-chestnut-nathans-hot-dog-contest.html
+
 **Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
 `Despite the unspeakable horror of her youth, she embraced a school of psychotherapy that stresses empathy and the belief that everyone can change for the better.`\
 https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
