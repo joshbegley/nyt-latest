@@ -1,3 +1,7 @@
+**July 4th's Subway Series pits Aaron Judge vs. Juan Soto. Here's how to watch**\
+`New York's Subway Series between the Yankees and Mets is always one of MLB's coolest interleague matchups.`\
+https://nytimes.com/athletic/6472317/2025/07/04/yankees-mets-subway-series-juan-soto-aaron-judge-july-4-how-to-watch/
+
 **What Sean Combs Got Away With**\
 `That the hotel tape is not by itself enough to convict the celebrity — of something — speaks to the system’s failures.`\
 https://nytimes.com/2025/07/04/opinion/sean-combs-cassie-ventura-domestic-violence.html
