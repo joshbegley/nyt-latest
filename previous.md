@@ -1,3 +1,11 @@
+**'This is a new England’: Williamson, Wiegman on 'new challenge' of Euro 2025**\
+`England head into this summer's tournament in Switzerland as reigning champions after their victory on home soil at Euro 2022.`\
+https://nytimes.com/athletic/6473756/2025/07/04/williamson-wiegman-england-euro-2025/
+
+**The Bounce: West tiers, with a legit OKC challenger**\
+`Welcome to The Bounce, The Athletic's basketball newsletter.`\
+https://nytimes.com/athletic/6473828/2025/07/04/nba-western-conference-tiers-contenders-the-bounce/
+
 **British Fighter Jet Takes Unexpected Detour to India, and Is Embraced by Locals**\
 `A British F-35B has been stranded for weeks at an airport in southern India because of mechanical issues. The internet, and the region’s tourism agency, are having fun with it.`\
 https://nytimes.com/2025/07/04/world/asia/india-kerala-tourism-f35-fighter-jet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/us/politics/trump-edan-alexander-hamas-hostage.ht
 **S. Daniel Abraham, the Force Behind Slim-Fast, Dies at 100**\
 `He turned a tiny family business into a billion-dollar weight-loss empire by replacing calorie counting and forbidden foods with “just add milk.”`\
 https://nytimes.com/2025/07/04/business/s-daniel-abraham-dead.html
-
-**Soccer agent Jonathan Barnett accused of rape, torture and trafficking in U.S. lawsuit**\
-`The civil complaint was made against Barnett, 75, in a California district court by a woman referred to only as Jane Doe earlier this week.`\
-https://nytimes.com/athletic/6473173/2025/07/04/jonathan-barnett-rape-lawsuit/
-
-**Why Nico Williams' Barcelona transfer collapsed: The full story**\
-`It was a bolt from the blue that left Barcelona reeling. This is the story behind Nico Williams' decision to stay at Athletic Club`\
-https://nytimes.com/athletic/6473318/2025/07/04/barcelona-nico-williams-athletic-club-transfer-collapsed/
 

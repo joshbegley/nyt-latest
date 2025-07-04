@@ -1,3 +1,7 @@
+**Wildfires Sweep Syria’s Coast as Drought Strains Fragile State**\
+`Firefighting efforts have been hampered by the presence of mines and unexploded ordnance left over from the civil war, as the country grapples with the worst drought in decades.`\
+https://nytimes.com/2025/07/04/world/middleeast/syria-wildfires-drought.html
+
 **'This is a new England’: Williamson, Wiegman on 'new challenge' of Euro 2025**\
 `England head into this summer's tournament in Switzerland as reigning champions after their victory on home soil at Euro 2022.`\
 https://nytimes.com/athletic/6473756/2025/07/04/williamson-wiegman-england-euro-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473803/2025/07/04/american-athletic-conference-unt
 **Trump Welcomes Edan Alexander, Former Hamas Hostage, to White House**\
 `Mr. Alexander, who was held for nearly 600 days before being released in May, is a dual citizen of Israel and the United States. He was in the Israeli military when he was abducted on Oct. 7, 2023.`\
 https://nytimes.com/2025/07/04/us/politics/trump-edan-alexander-hamas-hostage.html
-
-**S. Daniel Abraham, the Force Behind Slim-Fast, Dies at 100**\
-`He turned a tiny family business into a billion-dollar weight-loss empire by replacing calorie counting and forbidden foods with “just add milk.”`\
-https://nytimes.com/2025/07/04/business/s-daniel-abraham-dead.html
 
