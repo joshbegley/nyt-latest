@@ -1,3 +1,7 @@
+**Anna Ornstein, Psychoanalyst Who Survived the Holocaust, Dies at 98**\
+`Despite the unspeakable horror of her youth, she embraced a school of psychotherapy that stresses empathy and the belief that everyone can change for the better.`\
+https://nytimes.com/2025/07/04/health/anna-ornstein-dead.html
+
 **We Want to Hear From You: Are You Frustrated by Census and Racial Categories?**\
 `Americans are routinely asked to check off boxes about their race and ethnicity, but many say they do not see themselves reflected in the options.`\
 https://nytimes.com/2025/07/04/us/census-racial-categories.html
