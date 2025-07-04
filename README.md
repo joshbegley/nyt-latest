@@ -1,3 +1,7 @@
+**‘Jurassic World Rebirth’ | Anatomy of a Scene**\
+`The director Gareth Edwards narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010264963/jurassic-world-rebirth-scene.html
+
 **Fuel Tank Explosion Rocks Gas Station in Rome**\
 `A fuel tank exploded in an eastern neighborhood of Rome. Firefighters and police officers had already been called to the gas station after an earlier incident involving a truck.`\
 https://nytimes.com/video/world/europe/100000010267616/fuel-tank-explosion-rocks-gas-station-in-rome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
 **Move Over, $100 Lobster Salad. In the Hamptons, These Melons Cost $400.**\
 `Gourmet grocery stores are upping their game in the Hamptons, serving a welcoming wealthy clientele.`\
 https://nytimes.com/2025/07/04/nyregion/hamptons-grocery-prices.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/04/crosswords/spelling-bee-forum.html
 
