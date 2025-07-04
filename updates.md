@@ -1,3 +1,7 @@
+**Renard says France career not over amid 'disbelief, injustice' of Euro 2025 omission**\
+`OL Lyonnes centre-back Renard, with 168 international appearances and considered a legend of the game, is not part of the Euro 2025 squad.`\
+https://nytimes.com/athletic/6473267/2025/07/04/france-euro-2025-wendie-renard/
+
 **United confirm director of women's football, Williams extension**\
 `Johnson originally replaced Polly Bancroft as head of women's football on a six-month interim basis. `\
 https://nytimes.com/athletic/6473193/2025/07/04/manchester-united-rachel-williams-contract-director-womens-football/
