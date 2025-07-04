@@ -1,3 +1,7 @@
+**Fatally Injured Teenager Is Discovered on Top of a N.Y.C. Subway Car**\
+`A 15-year-old boy could be the latest victim of subway surfing, a dangerous practice of riding on the roofs of train cars that has lured New York City youth for decades.`\
+https://nytimes.com/2025/07/04/nyregion/subway-car-dead-7-train.html
+
 **The Briefing - Fluminense 2 Al Hilal 1: Saudis left feeling aggrieved as Hercules lands the telling blow**\
 `The first of the FIFA Club World Cup quarter-finals came to life just before half-time as the Brazilians of Fluminense edged out Al Hilal`\
 https://nytimes.com/athletic/6472492/2025/07/04/fluminense-al-hilal-cwc-hercules/

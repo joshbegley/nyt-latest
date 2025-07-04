@@ -1,3 +1,7 @@
+**Aryna Sabalenka quells Emma Raducanu and Centre Court crowd to advance at Wimbledon**\
+`The world No. 1 responded to adversity and a partisan crowd to come through against Raducanu in straight sets.`\
+https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raducanu-result-analysis/
+
 **Fatally Injured Teenager Is Discovered on Top of a N.Y.C. Subway Car**\
 `A 15-year-old boy could be the latest victim of subway surfing, a dangerous practice of riding on the roofs of train cars that has lured New York City youth for decades.`\
 https://nytimes.com/2025/07/04/nyregion/subway-car-dead-7-train.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/04/us/trump-bill-news/the-migrants-filed-a-new-
 **With Taillon on IL, Cubs will be more focused on pitching at trade deadline**\
 `Taillon will miss “more than a month” with a strained right calf muscle, manager Craig Counsell said Friday.`\
 https://nytimes.com/athletic/6474109/2025/07/04/cubs-jameson-taillon-injured-trade-deadline/
-
-**Celebrating the Fourth of July Across the Country**\
-`Displays of patriotism were evident at parades and hot dog eating contests, even at a time of deep political divisions among Americans.`\
-https://nytimes.com/2025/07/04/us/july-4th-photos-videos.html
 
