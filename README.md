@@ -1,3 +1,7 @@
+**Nico Williams turns down Barcelona transfer, signs eight-year Athletic extension**\
+`The Catalan club were rebuffed by Athletic Club last summer and had to compete with Bayern Munich for the winger.`\
+https://nytimes.com/athletic/6448217/2025/07/04/nico-williams-transfer-athletic-club-barcelona/
+
 **July 4th's Subway Series pits Aaron Judge vs. Juan Soto. Here's how to watch**\
 `New York's Subway Series between the Yankees and Mets is always one of MLB's coolest interleague matchups.`\
 https://nytimes.com/athletic/6472317/2025/07/04/yankees-mets-subway-series-juan-soto-aaron-judge-july-4-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/movies/jurassic-world-rebirth-clip.html
 **Is This Really How We’re Legislating Now?**\
 `Congress is no longer in the business of thoughtful legislating. Its role has been reduced to putting political points on the board for the president.`\
 https://nytimes.com/2025/07/04/opinion/congress-john-thune-mike-johnson.html
-
-**Superhero Movies Dominated the Box Office, but Not the Top 100 List**\
-`The notable exceptions — “The Dark Knight” and “Black Panther” — stood out among the many sequels and spinoffs.`\
-https://nytimes.com/2025/07/04/movies/superhero-movies-best-films-list.html
 
