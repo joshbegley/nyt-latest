@@ -1,3 +1,7 @@
+**Why Beef Prices Have Hit a Record**\
+`Smaller cattle herds and a decade of headwinds for the industry are expected to push up the cost of burgers and steaks for several years.`\
+https://nytimes.com/2025/07/04/business/beef-prices-cattle.html
+
 **Nuclear Inspectors Leave Iran After Cooperation Halted With U.N. Watchdog**\
 `The withdrawal of international inspectors comes amid heightened concerns that Iran, battered by Israeli and U.S. strikes, may be driven to try to build a nuclear bomb.`\
 https://nytimes.com/2025/07/04/world/middleeast/nuclear-inspectors-leave-iran-after-cooperation-halted-with-un-watchdog.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6472813/2025/07/04/christian-fischer-retires-nhl-re
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6472862/2025/07/04/tour-de-france-preview-the-pulse/
 
-**Storms Trigger Deadly Flooding and Evacuations in Texas**\
+**Heavy Storms Cause Deadly Flooding and Evacuations in Texas**\
 `The authorities confirmed that people had died as a result of the flooding along the Guadalupe River, and urged those living near the river to seek higher ground immediately.`\
 https://nytimes.com/2025/07/04/us/texas-flooding-kerr-county-san-angelo.html
-
-**Corrections: July 4, 2025**\
-`Corrections that appeared in print on Friday, July 4, 2025.`\
-https://nytimes.com/2025/07/04/pageoneplus/corrections-july-4-2025.html
 
