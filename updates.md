@@ -1,3 +1,15 @@
+**Keane signs new Everton contract**\
+`The 32-year-old is the latest Everton player to commit their future after Seamus Coleman and Jarrad Branthwaite.`\
+https://nytimes.com/athletic/6456567/2025/07/04/everton-michael-keane-contract/
+
+**OL Lyonnes sign USWNT midfielder Korbin Albert from PSG**\
+`Albert has played in the French top-flight since signing a pro contract with PSG in January 2023 after leaving Notre Dame University.`\
+https://nytimes.com/athletic/6473796/2025/07/04/lyonnes-korbin-albert-transfer-uswnt/
+
+**Chelsea, Aston Villa handed UEFA fines, spending restrictions for breaching financial rules**\
+`Both clubs were found to have breached the European governing body's football earning rules and squad cost rules.`\
+https://nytimes.com/athletic/6473798/2025/07/04/chelsea-aston-villa-uefa-fines-spending-restrictions/
+
 **As Americans celebrate Independence Day, some are protesting the Trump administration.**\
 `By Ruth Graham, Valerie Crowder and Maria Jimenez Moya`\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news/as-americans-celebrate-independence-day-some-are-protesting-the-trump-administration
