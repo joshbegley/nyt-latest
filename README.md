@@ -1,3 +1,19 @@
+**Joseph Giordano, Surgeon Who Helped Save Reagan’s Life, Dies at 84**\
+`He had built one of the country’s leading trauma centers in Washington, which made it possible for his team to respond quickly after the president was shot.`\
+https://nytimes.com/2025/07/04/us/joseph-giordano-dead.html
+
+**Paul Libin, a Forceful Presence On and Off Broadway, Dies at 94**\
+`He staged a revival of “The Crucible” in a Manhattan hotel ballroom in 1958, helped run Circle in the Square and oversaw the operations of Jujamcyn Theaters.`\
+https://nytimes.com/2025/07/04/theater/paul-libin-dead.html
+
+**Brief but Violent Storms in New Jersey Leave 3 Dead**\
+`Powerful gusts blew down trees in central New Jersey on Thursday, killing three people who were in their cars.`\
+https://nytimes.com/2025/07/04/nyregion/new-jersey-storm.html
+
+**Tracking Tropical Depression Three**\
+`See the likely path and wind arrival times for Three`\
+https://nytimes.com/interactive/2025/07/04/weather/tropical-depression-south-carolina-map-path-tracker.html
+
 **Aryna Sabalenka quells Emma Raducanu and Centre Court crowd to advance at Wimbledon**\
 `The world No. 1 responded to adversity and a partisan crowd to come through against Raducanu in straight sets.`\
 https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raducanu-result-analysis/
@@ -10,7 +26,7 @@ https://nytimes.com/2025/07/04/nyregion/subway-car-dead-7-train.html
 `The first of the FIFA Club World Cup quarter-finals came to life just before half-time as the Brazilians of Fluminense edged out Al Hilal`\
 https://nytimes.com/athletic/6472492/2025/07/04/fluminense-al-hilal-cwc-hercules/
 
-**Live Updates: Frantic Search for the Missing After At Least 13 Killed in Texas Flood**\
+**Live Updates: Frantic Search for the Missing After at Least 13 Killed in Texas Flood**\
 `The authorities confirmed that 20 girls were still missing as a result of the flooding along the Guadalupe River, but the full scope of the disaster was not clear.`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river
 
@@ -21,20 +37,4 @@ https://nytimes.com/issue/magazine/2025/07/04/the-762025-issue
 **Jewish Leaders Denounce Trump’s Use of Centuries-Old Trope**\
 `President Trump said he did not realize that the term “Shylock” was viewed as antisemitic.`\
 https://nytimes.com/2025/07/04/us/politics/jewish-trump-shylock-slur-adl.html
-
-**Hamas Says It Is Ready to Negotiate Truce Proposal**\
-`It was not immediately clear whether the group was demanding any significant changes to the plan for a 60-day truce, hostage-for-prisoner swaps and talks on a permanent end to the Gaza war.`\
-https://nytimes.com/2025/07/04/world/middleeast/hamas-israel-ceasefire.html
-
-**Sandra Neels, a Force in Modern Dance for 60 Years, Dies at 85**\
-`She was a leading dancer for Merce Cunningham, a prolific choreographer and an admired teacher.`\
-https://nytimes.com/2025/07/04/arts/dance/sandra-neels-dead.html
-
-**The migrants filed a new lawsuit challenging their transfer on other grounds.**\
-`After the Supreme Court ruled that the deportations could move forward, the migrants filed a new lawsuit, challenging their transfer on other grounds.`\
-https://nytimes.com/live/2025/07/04/us/trump-bill-news/the-migrants-filed-a-new-lawsuit-challenging-their-transfer-on-other-grounds
-
-**With Taillon on IL, Cubs will be more focused on pitching at trade deadline**\
-`Taillon will miss “more than a month” with a strained right calf muscle, manager Craig Counsell said Friday.`\
-https://nytimes.com/athletic/6474109/2025/07/04/cubs-jameson-taillon-injured-trade-deadline/
 
