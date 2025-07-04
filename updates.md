@@ -1,3 +1,7 @@
+**Top Hochul Aide Resigns After Being Accused of Sexual Harassment**\
+`Avi Small, who had served as Gov. Kathy Hochul’s longtime press secretary, was accused of inappropriately touching another male aide.`\
+https://nytimes.com/2025/07/04/nyregion/hochul-press-secretary-small-resigns-sexual-harassment.html
+
 **Canada's Jonathan David completes Juventus move**\
 `The Canada international has signed a five-year contract with the Serie A club.`\
 https://nytimes.com/athletic/6473252/2025/07/04/jonathan-david-juventus-canada/
