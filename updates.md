@@ -1,3 +1,11 @@
+**‘And Just Like That …’ Season 3, Episode 6 Recap: The Dams Break**\
+`Charlotte decides she can no longer keep a secret. Tensions between Aidan and his ex erupt, just not the way Carrie would have wanted.`\
+https://nytimes.com/2025/07/03/arts/television/and-just-like-that-recap-season-3-episode-6.html
+
+**What we know about MLB’s gambling investigation of Guardians' Luis Ortiz**\
+`Cleveland’s brass insists it doesn’t have more information than what has been publicly reported: "Not something we were expecting."`\
+https://nytimes.com/athletic/6472739/2025/07/03/mlb-gambling-investigation-luis-ortiz-guardians/
+
 **Leader of El Salvador Disputes Claims That Maryland Man Was Tortured**\
 `President Nayib Bukele released a video showing Kilmar Armando Albrego Garcia in comfortable-looking quarters.`\
 https://nytimes.com/2025/07/03/us/politics/abrego-garcia-el-salvador-bukele.html
