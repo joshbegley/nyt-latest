@@ -1,3 +1,7 @@
+**Tomiyasu set to leave Arsenal by mutual consent**\
+`Tomiyasu had not featured for Arsenal since coming on as a substitute in the Premier League win over Southampton in October 2024.`\
+https://nytimes.com/athletic/6472981/2025/07/04/takehiro-tomiyasu-leaves-arsenal-transfers/
+
 **‘Jurassic World Rebirth’ | Anatomy of a Scene**\
 `The director Gareth Edwards narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000010264963/jurassic-world-rebirth-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
 **Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests await**\
 `Murmurs about Italy’s ability to upset the odds this summer have been building since they finished top of a tough qualifying group`\
 https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
-
-**Move Over, $100 Lobster Salad. In the Hamptons, These Melons Cost $400.**\
-`Gourmet grocery stores are upping their game in the Hamptons, serving a welcoming wealthy clientele.`\
-https://nytimes.com/2025/07/04/nyregion/hamptons-grocery-prices.html
 

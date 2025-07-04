@@ -1,3 +1,7 @@
+**Tomiyasu set to leave Arsenal by mutual consent**\
+`Tomiyasu had not featured for Arsenal since coming on as a substitute in the Premier League win over Southampton in October 2024.`\
+https://nytimes.com/athletic/6472981/2025/07/04/takehiro-tomiyasu-leaves-arsenal-transfers/
+
 **‘Jurassic World Rebirth’ | Anatomy of a Scene**\
 `The director Gareth Edwards narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000010264963/jurassic-world-rebirth-scene.html
