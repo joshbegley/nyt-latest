@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 6 Recap: The Dams Break**\
+`Charlotte decides she can no longer keep a secret. Tensions between Aidan and his ex erupt, just not the way Carrie would have wanted.`\
+https://nytimes.com/2025/07/03/arts/television/and-just-like-that-recap-season-3-episode-6.html
+
 **Leader of El Salvador Disputes Claims That Maryland Man Was Tortured**\
 `President Nayib Bukele released a video showing Kilmar Armando Albrego Garcia in comfortable-looking quarters.`\
 https://nytimes.com/2025/07/03/us/politics/abrego-garcia-el-salvador-bukele.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/03/us/politics/abrego-garcia-el-salvador-bukele.html
 `Clarke Schmidt left Thursday night's start against the Toronto Blue Jays after three innings and 55 pitches.`\
 https://nytimes.com/athletic/6472735/2025/07/03/yankees-clarke-schmidt-injury/
 
-**MLB's gambling investigation into Guardians pitcher Luis Ortiz: What we know**\
+**What we know about MLB’s gambling investigation of Guardians' Luis Ortiz**\
 `Cleveland’s brass insists it doesn’t have more information than what has been publicly reported: "Not something we were expecting."`\
 https://nytimes.com/athletic/6472739/2025/07/03/mlb-gambling-investigation-luis-ortiz-guardians/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
 **Dodgers' Max Muncy expects to miss 6 weeks with bone bruise**\
 `The Dodgers placed Muncy on the injured list on Thursday afternoon after the 34-year-old third baseman spent the morning in an MRI tube.`\
 https://nytimes.com/athletic/6472488/2025/07/03/dodgers-max-muncy-injury/
-
-**Wimbledon recap: Grand Slam champions hold firm as tournament sets seed record**\
-`Wimbledon has the fewest seeds in the third round of any Grand Slam since 2001, but plenty of major champions remain.`\
-https://nytimes.com/athletic/6472555/2025/07/03/tennis-wimbledon-recap-seed-record-grand-slam/
 
