@@ -1,3 +1,7 @@
+**Heat Fuels Fire, Fish Deaths and Tensions Over Protests in Eastern Europe**\
+`Exceptionally high temperatures strained electricity systems as people sought air-conditioning, although many did not have that option.`\
+https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
+
 **What does Myles Turner bring to the Bucks? Breaking down the fit on both ends of the floor**\
 `Turner being eight years younger than Brook Lopez will allow him to impact the game differently, even if the two share similar strengths.`\
 https://nytimes.com/athletic/6468789/2025/07/04/myles-turner-bucks-fit-strengths-weaknesses/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472620/2025/07/04/washington-wizards-free-agency-m
 **What we saw and heard from Sabres prospects at development camp**\
 `In 2025, development camp had a much different feel than past years for the Sabres.`\
 https://nytimes.com/athletic/6472702/2025/07/04/sabres-prospects-development-camp-2025/
-
-**Newcastle, the challenge of attracting top players and why this summer is different to others**\
-`PSR rules have weakened the club's ability to bring in fresh talent but they have still managed to build a winning formula`\
-https://nytimes.com/athletic/6471369/2025/07/04/newcastle-the-challenge-of-attracting-top-players-and-why-this-summer-is-different/
 

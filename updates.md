@@ -1,3 +1,7 @@
+**Heat Fuels Fire, Fish Deaths and Tensions Over Protests in Eastern Europe**\
+`Exceptionally high temperatures strained electricity systems as people sought air-conditioning, although many did not have that option.`\
+https://nytimes.com/2025/07/04/world/europe/heat-wave-eastern-europe.html
+
 **What does Myles Turner bring to the Bucks? Breaking down the fit on both ends of the floor**\
 `Turner being eight years younger than Brook Lopez will allow him to impact the game differently, even if the two share similar strengths.`\
 https://nytimes.com/athletic/6468789/2025/07/04/myles-turner-bucks-fit-strengths-weaknesses/
