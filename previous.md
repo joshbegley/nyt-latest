@@ -1,3 +1,11 @@
+**WAFCON 2024: A tournament nearly forgotten could be the best one yet**\
+`Why WAFCON 2024 is happening in 2025 and which teams will stand out `\
+https://nytimes.com/athletic/6472415/2025/07/04/wafcon-2024-tournament-preview/
+
+**Howell, 17, signs first professional contract at Brighton**\
+`The England junior international has penned a three-year deal after making his Premier League debut in May against Liverpool.`\
+https://nytimes.com/athletic/6473212/2025/07/04/brighton-harry-howell-contract/
+
 **How to watch Astros at Dodgers, starring Shohei Ohtani and a chorus of boos**\
 `The Dodgers and Astros play a three-game series on a holiday weekend. Los Angeles crowds are not fond of Jose Altuve and his Houston crew.`\
 https://nytimes.com/athletic/6472538/2025/07/04/astros-dodgers-ohtani-altuve-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/podcasts/the-daily/how-the-megabill-will-change-a
 **Wordle Review No. 1,477**\
 `Scroll down for hints and conversation about the puzzle for Saturday, July 5, 2025.`\
 https://nytimes.com/2025/07/04/crosswords/wordle-review-1477.html
-
-**Strands Sidekick No. 489**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 5, 2025.`\
-https://nytimes.com/2025/07/04/crosswords/strands-sidekick-489.html
-
-**Connections Companion No. 755**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 5, 2025.`\
-https://nytimes.com/2025/07/04/crosswords/connections-companion-755.html
 

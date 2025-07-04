@@ -1,3 +1,11 @@
+**WAFCON 2024: A tournament nearly forgotten could be the best one yet**\
+`Why WAFCON 2024 is happening in 2025 and which teams will stand out `\
+https://nytimes.com/athletic/6472415/2025/07/04/wafcon-2024-tournament-preview/
+
+**Howell, 17, signs first professional contract at Brighton**\
+`The England junior international has penned a three-year deal after making his Premier League debut in May against Liverpool.`\
+https://nytimes.com/athletic/6473212/2025/07/04/brighton-harry-howell-contract/
+
 **How to watch Astros at Dodgers, starring Shohei Ohtani and a chorus of boos**\
 `The Dodgers and Astros play a three-game series on a holiday weekend. Los Angeles crowds are not fond of Jose Altuve and his Houston crew.`\
 https://nytimes.com/athletic/6472538/2025/07/04/astros-dodgers-ohtani-altuve-how-to-watch/
