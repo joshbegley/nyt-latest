@@ -1,3 +1,11 @@
+**Pro-Palestinian Activists Lose Appeal Against U.K. Government Ban**\
+`The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain.`\
+https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-terrorist.html
+
+**White Sox call up former top prospect Colson Montgomery ahead of Colorado series**\
+`The 23-year-old Montgomery will hit seventh and start at shortstop in Friday's series opener. `\
+https://nytimes.com/athletic/6474238/2025/07/04/chicago-white-sox-colson-montgomery-call-up/
+
 **Wimbledon day 5 recap: Jarry beats Fonseca as South American tennis makes its mark**\
 `South American players were the stars on day five, despite the tennis-mad continent's lack of representation in terms of tournaments.`\
 https://nytimes.com/athletic/6473357/2025/07/04/tennis-wimbledon-recap-day-five-results-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raduc
 **Fatally Injured Teenager Is Discovered on Top of a N.Y.C. Subway Car**\
 `A 15-year-old boy could be the latest victim of subway surfing, a dangerous practice of riding on the roofs of train cars that has lured New York City youth for decades.`\
 https://nytimes.com/2025/07/04/nyregion/subway-car-dead-7-train.html
-
-**The Briefing - Fluminense 2 Al Hilal 1: Saudis left feeling aggrieved as Hercules lands the telling blow**\
-`The first of the FIFA Club World Cup quarter-finals came to life just before half-time as the Brazilians of Fluminense edged out Al Hilal`\
-https://nytimes.com/athletic/6472492/2025/07/04/fluminense-al-hilal-cwc-hercules/
-
-**Live Updates: Frantic Search for the Missing After at Least 13 Killed in Texas Flood**\
-`The authorities confirmed that 20 girls were still missing as a result of the flooding along the Guadalupe River, but the full scope of the disaster was not clear.`\
-https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river
 
