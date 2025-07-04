@@ -1,3 +1,15 @@
+**The heartbreaking death of Diogo Jota**\
+`The Liverpool player died in a car accident 11 days after his wedding. The Athletic reports from Spain on a tragedy that stunned football`\
+https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
+
+**Move Over, $100 Lobster Salad. In the Hamptons, These Melons Cost $400.**\
+`Gourmet grocery stores are upping their game in the Hamptons, serving a welcoming wealthy clientele.`\
+https://nytimes.com/2025/07/04/nyregion/hamptons-grocery-prices.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/04/crosswords/spelling-bee-forum.html
+
 **Ramsey joins Mexican club Pumas after Cardiff exit**\
 `Ramsey, formerly of Arsenal, was a free agent after his contract at Cardiff City expired in late June.`\
 https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transfer-cardiff/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/04/opinion/iran-israel-arrests.html
 **Why China Isn’t Lecturing Trump About His Costly Bill**\
 `Beijing has a history of warning Washington about the safety of its Treasury holdings. This time it may have reasons to stay silent, at least publicly.`\
 https://nytimes.com/2025/07/04/world/asia/trump-bill-debt-china.html
-
-**Friday Briefing**\
-`President Trump’s big legislative win.`\
-https://nytimes.com/2025/07/04/briefing/trump-bill-heat-oasis-tour.html
-
-**Striker scouting for West Ham United: Analysing Calvert-Lewin, Mitrovic and other No 9s**\
-`West Ham have one recognised senior striker. The Athletic speculatively analyses four No 9s that fit the bill to bolster their options`\
-https://nytimes.com/athletic/6462339/2025/07/04/west-ham-united-strikers-transfer-window-analysed/
-
-**Aston Villa and the project inspiring Birmingham's multicultural communities**\
-`Aspiring Young Minds is on the doorstep of Villa Park to provide opportunities to children often of Somali heritage - and talent is emerging`\
-https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-multicultural-communities/
 

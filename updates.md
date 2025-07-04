@@ -1,3 +1,15 @@
+**The heartbreaking death of Diogo Jota**\
+`The Liverpool player died in a car accident 11 days after his wedding. The Athletic reports from Spain on a tragedy that stunned football`\
+https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
+
+**Move Over, $100 Lobster Salad. In the Hamptons, These Melons Cost $400.**\
+`Gourmet grocery stores are upping their game in the Hamptons, serving a welcoming wealthy clientele.`\
+https://nytimes.com/2025/07/04/nyregion/hamptons-grocery-prices.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/04/crosswords/spelling-bee-forum.html
+
 **Ramsey joins Mexican club Pumas after Cardiff exit**\
 `Ramsey, formerly of Arsenal, was a free agent after his contract at Cardiff City expired in late June.`\
 https://nytimes.com/athletic/6463185/2025/07/04/aaron-ramsey-mexico-pumas-transfer-cardiff/
