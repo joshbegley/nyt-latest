@@ -1,3 +1,15 @@
+**Until Saturday: AAC loaded with great coaches (plus Dilfer)**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6473803/2025/07/04/american-athletic-conference-until-saturday/
+
+**Trump Welcomes Edan Alexander, Former Hamas Hostage, to White House**\
+`Mr. Alexander, who was held for nearly 600 days before being released in May, is a dual citizen of Israel and the United States. He was in the Israeli military when he was abducted on Oct. 7, 2023.`\
+https://nytimes.com/2025/07/04/us/politics/trump-edan-alexander-hamas-hostage.html
+
+**S. Daniel Abraham, the Force Behind Slim-Fast, Dies at 100**\
+`He turned a tiny family business into a billion-dollar weight-loss empire by replacing calorie counting and forbidden foods with “just add milk.”`\
+https://nytimes.com/2025/07/04/business/s-daniel-abraham-dead.html
+
 **Soccer agent Jonathan Barnett accused of rape, torture and trafficking in U.S. lawsuit**\
 `The civil complaint was made against Barnett, 75, in a California district court by a woman referred to only as Jane Doe earlier this week.`\
 https://nytimes.com/athletic/6473173/2025/07/04/jonathan-barnett-rape-lawsuit/
