@@ -1,3 +1,7 @@
+**Getting Really Pumped Up**\
+`Colin Adams believes that a certain crossword debut may have changed the course of a ballplayer’s career.`\
+https://nytimes.com/2025/07/03/crosswords/daily-puzzle-2025-07-04.html
+
 **‘And Just Like That …’ Season 3, Episode 6 Recap: The Dams Break**\
 `Charlotte decides she can no longer keep a secret. Tensions between Aidan and his ex erupt, just not the way Carrie would have wanted.`\
 https://nytimes.com/2025/07/03/arts/television/and-just-like-that-recap-season-3-episode-6.html

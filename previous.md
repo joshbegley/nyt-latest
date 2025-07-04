@@ -1,3 +1,7 @@
+**Getting Really Pumped Up**\
+`Colin Adams believes that a certain crossword debut may have changed the course of a ballplayer’s career.`\
+https://nytimes.com/2025/07/03/crosswords/daily-puzzle-2025-07-04.html
+
 **‘And Just Like That …’ Season 3, Episode 6 Recap: The Dams Break**\
 `Charlotte decides she can no longer keep a secret. Tensions between Aidan and his ex erupt, just not the way Carrie would have wanted.`\
 https://nytimes.com/2025/07/03/arts/television/and-just-like-that-recap-season-3-episode-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472657/2025/07/03/renato-gaucho-fluminense-fc-club
 **A Lawyer Was Wrongly Charged With Bringing Drug-Laced Papers Into Rikers**\
 `The Correction Department said Bernardo Caceres’s papers tested positive for THC, a cannabinoid. Then officials tested the papers again.`\
 https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
-
-**Dodgers' Max Muncy expects to miss 6 weeks with bone bruise**\
-`The Dodgers placed Muncy on the injured list on Thursday afternoon after the 34-year-old third baseman spent the morning in an MRI tube.`\
-https://nytimes.com/athletic/6472488/2025/07/03/dodgers-max-muncy-injury/
 
