@@ -1,3 +1,11 @@
+**Floods in the same part of Texas swept away 10 teenagers in July 1987.**\
+`By Adeel Hassan and Judson Jones`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/floods-camp-deaths-july-1987
+
+**A bipartisan effort cuts unemployment benefits for high earners.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/a-bipartisan-effort-cuts-unemployment-benefits-for-high-earners
+
 **Phillies Jesús Luzardo can't find strike zone after mechanics fix**\
 `In five starts since Luzardo unveiled a new delivery, it's harder for him to throw strikes from the stretch.`\
 https://nytimes.com/athletic/6474218/2025/07/04/phillies-jesus-luzardo-mechanical-fix/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/theater/paul-libin-dead.html
 **Brief but Violent Storms in New Jersey Leave 3 Dead**\
 `Powerful gusts blew down trees in central New Jersey on Thursday, killing three people who were in their cars.`\
 https://nytimes.com/2025/07/04/nyregion/new-jersey-storm.html
-
-**Tracking Tropical Depression Three**\
-`See the likely path and wind arrival times for Three`\
-https://nytimes.com/interactive/2025/07/04/weather/tropical-depression-south-carolina-map-path-tracker.html
-
-**Aryna Sabalenka quells Emma Raducanu and her fans to advance at Wimbledon**\
-`She still has a long way to go before the final, but whatever happens from here, this was a crucial victory for the world No. 1.`\
-https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raducanu-result-analysis/
 

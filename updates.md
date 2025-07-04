@@ -1,3 +1,11 @@
+**Floods in the same part of Texas swept away 10 teenagers in July 1987.**\
+`By Adeel Hassan and Judson Jones`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/floods-camp-deaths-july-1987
+
+**A bipartisan effort cuts unemployment benefits for high earners.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/a-bipartisan-effort-cuts-unemployment-benefits-for-high-earners
+
 **Phillies Jesús Luzardo can't find strike zone after mechanics fix**\
 `In five starts since Luzardo unveiled a new delivery, it's harder for him to throw strikes from the stretch.`\
 https://nytimes.com/athletic/6474218/2025/07/04/phillies-jesus-luzardo-mechanical-fix/
