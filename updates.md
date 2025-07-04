@@ -1,3 +1,7 @@
+**The 7.6.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/07/04/the-762025-issue
+
 **Jewish Leaders Denounce Trump’s Use of Centuries-Old Trope**\
 `President Trump said he did not realize that the term “Shylock” was viewed as antisemitic.`\
 https://nytimes.com/2025/07/04/us/politics/jewish-trump-shylock-slur-adl.html
