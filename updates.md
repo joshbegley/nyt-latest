@@ -1,3 +1,7 @@
+**Enter Vicky Lopez, Spain's 18-year-old star-in-waiting**\
+`With Aitana Bonmati on the bench, Lopez stepped up in Spain's Euro 2025 opener and continued to add to her growing reputation `\
+https://nytimes.com/athletic/6472779/2025/07/04/vicky-lopez-spain-euro-2025-barcelona/
+
 **Alpine hires Steve Nielsen as new managing director**\
 `Nielsen worked for the team between for almost 10 years in the late 1990s and 2000s and replaces Oliver Oakes, who left in May.`\
 https://nytimes.com/athletic/6473028/2025/07/04/alpine-f1-steve-nielsen-managing-director/
