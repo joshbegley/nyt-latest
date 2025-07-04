@@ -1,3 +1,11 @@
+**Aston Villa and the project inspiring Birmingham's multicultural communities**\
+`Aspiring Young Minds is on the doorstep of Villa Park to provide opportunities to children often of Somali heritage - and talent is emerging`\
+https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-multicultural-communities/
+
+**Anderson knocking on the England door is testament to Forest's growth environment**\
+`The midfielder is the latest example of why, if you are a young player wanting to progress, signing for Forest might be a very good idea`\
+https://nytimes.com/athletic/6471023/2025/07/04/elliot-anderson-nottingham-forest-england-thomas-tuchel/
+
 **Will tumbling Braves be trade deadline sellers? Plus Charlie Morton's return to Atlanta**\
 `With the trade deadline in four weeks, there is a growing opinion that the Braves could be, or should be, sellers.`\
 https://nytimes.com/athletic/6472818/2025/07/04/braves-trade-deadline-sellers-charlie-morton-returns/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6466747/2025/07/04/pogacar-vingegaard-van-der-poel-
 **The curious career of Malcom - Barcelona, Russia and now a Club World Cup star for Al Hilal**\
 `The Brazilian forward changed the game against Man City in the last-16 and it was a reminder of why Barcelona paid €41m for him in 2018`\
 https://nytimes.com/athletic/6472049/2025/07/04/malcom-al-hilal-barcelona-club-world-cup/
-
-**Quote of the Day: Pope Leo Revives Tradition of Summer Break at Papal Villa**\
-`Quotation of the Day for Friday, July 4, 2025.`\
-https://nytimes.com/2025/07/04/pageoneplus/quote-of-the-day-pope-leo-revives-tradition-of-summer-break-at-papal-villa.html
-
-**Cooking With Love (and Lots of Beets) for the Front Line in Ukraine**\
-`This chef appeared on TV before joining the army when Russia invaded in 2022. Now he makes his borscht for troops instead of cooking show judges.`\
-https://nytimes.com/2025/07/04/world/europe/ukraine-war-front-line-chef-food.html
 
