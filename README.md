@@ -1,5 +1,5 @@
 **Pro-Palestinian Activists Lose Appeal Against U.K. Government Ban**\
-`The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain.`\
+`The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain while its full legal challenge to the ban plays out.`\
 https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-terrorist.html
 
 **White Sox call up former top prospect Colson Montgomery ahead of Colorado series**\
