@@ -1,3 +1,7 @@
+**Tim Mayer launches bid to become FIA president, will run against Mohammed Ben Sulayem**\
+`The 59-year-old is the first candidate to officially stand against the incumbent president.`\
+https://nytimes.com/athletic/6473018/2025/07/04/f1-tim-mayer-fia-president-ben-sulayem/
+
 **The heartbreaking death of Diogo Jota**\
 `The Liverpool player died in a car accident 11 days after his wedding. The Athletic reports from Spain on a tragedy that stunned football`\
 https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/04/todays-new-york-times
 **In Trump’s America, Who Gets to Call Themselves American?**\
 `His politicization of the name America taps into a long, well, American tradition, as old as the nation itself.`\
 https://nytimes.com/2025/07/04/opinion/trump-america-.html
-
-**Iran Is Terrorizing Its Own Citizens. The World Needs to Respond.**\
-`The regime is sending a chilling message: Dissent equals death.`\
-https://nytimes.com/2025/07/04/opinion/iran-israel-arrests.html
 

@@ -1,3 +1,7 @@
+**Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
+`Arianna Caruso’s winning goal against Belgium was a good advert for Italy’s status as European Championship outsiders`\
+https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
+
 **The heartbreaking death of Diogo Jota**\
 `The Liverpool player died in a car accident 11 days after his wedding. The Athletic reports from Spain on a tragedy that stunned football`\
 https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
