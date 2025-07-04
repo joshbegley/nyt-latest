@@ -1,3 +1,11 @@
+**How to Keep Cats and Dogs Cool in the Sweltering Heat **\
+`(No description)`\
+https://nytimes.com/card/2025/07/04/smarter-living/wirecutter/how-to-keep-cats-and-dogs-cool-in-the-sweltering-heat
+
+**Renato Gaucho calls his team the 'ugly duckling' of 8 Club World Cup teams**\
+`The Brazilian guided his side to the quarterfinals after beating UEFA Champions League finalists Inter Milan 2-0.`\
+https://nytimes.com/athletic/6472657/2025/07/03/renato-gaucho-fluminense-fc-club-world-cup-comment/
+
 **A Lawyer Was Wrongly Charged With Bringing Drug-Laced Papers Into Rikers**\
 `The Correction Department said Bernardo Caceres’s papers tested positive for THC, a cannabinoid. Then officials tested the papers again.`\
 https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html
 **Bruins' James Hagens vows to remember 'every team' that passed on him, and why Sean Kuraly came home**\
 `Hagens is set to return for his sophomore season at Boston College but is ready for what's next: “I want to be a Boston Bruin really bad.”`\
 https://nytimes.com/athletic/6472524/2025/07/03/james-hagens-sean-kuraly-bruins/
-
-**Who Loses in the Republican Policy Bill?**\
-`Congressional Republicans just passed President Trump’s sprawling domestic policy bill that extends and expands tax cuts and spending on defense and deportations, while slashing Medicaid, food benefits and clean energy initiatives.`\
-https://nytimes.com/video/us/100000010261616/who-loses-in-the-republican-policy-bill.html
-
-**Teenage Aviator Detained After Landing in Antarctica, Chile Says**\
-`Ethan Guo, 19, had been documenting his attempt to fly solo to all seven continents on social media. He is no longer in custody but has no easy way to leave an island off Antarctica’s coast.`\
-https://nytimes.com/2025/07/03/world/americas/ethan-guo-chile-detained.html
 

@@ -1,3 +1,11 @@
+**How to Keep Cats and Dogs Cool in the Sweltering Heat **\
+`(No description)`\
+https://nytimes.com/card/2025/07/04/smarter-living/wirecutter/how-to-keep-cats-and-dogs-cool-in-the-sweltering-heat
+
+**Renato Gaucho calls his team the 'ugly duckling' of 8 Club World Cup teams**\
+`The Brazilian guided his side to the quarterfinals after beating UEFA Champions League finalists Inter Milan 2-0.`\
+https://nytimes.com/athletic/6472657/2025/07/03/renato-gaucho-fluminense-fc-club-world-cup-comment/
+
 **A Lawyer Was Wrongly Charged With Bringing Drug-Laced Papers Into Rikers**\
 `The Correction Department said Bernardo Caceres’s papers tested positive for THC, a cannabinoid. Then officials tested the papers again.`\
 https://nytimes.com/2025/07/03/nyregion/lawyer-drug-charges-rikers.html
