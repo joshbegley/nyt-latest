@@ -1,3 +1,7 @@
+**‘Jurassic World Rebirth’ | Anatomy of a Scene**\
+`The director Gareth Edwards narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010264963/jurassic-world-rebirth-scene.html
+
 **Fuel Tank Explosion Rocks Gas Station in Rome**\
 `A fuel tank exploded in an eastern neighborhood of Rome. Firefighters and police officers had already been called to the gas station after an earlier incident involving a truck.`\
 https://nytimes.com/video/world/europe/100000010267616/fuel-tank-explosion-rocks-gas-station-in-rome.html
