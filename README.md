@@ -2,6 +2,10 @@
 `The Liverpool player died in a car accident 11 days after his wedding. The Athletic reports from Spain on a tragedy that stunned football`\
 https://nytimes.com/athletic/6468468/2025/07/04/liverpool-diogo-jota-crash/
 
+**Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
+`Arianna Caruso’s winning goal against Belgium was a good advert for Italy’s status as European Championship outsiders`\
+https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
+
 **Move Over, $100 Lobster Salad. In the Hamptons, These Melons Cost $400.**\
 `Gourmet grocery stores are upping their game in the Hamptons, serving a welcoming wealthy clientele.`\
 https://nytimes.com/2025/07/04/nyregion/hamptons-grocery-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/opinion/trump-america-.html
 **Iran Is Terrorizing Its Own Citizens. The World Needs to Respond.**\
 `The regime is sending a chilling message: Dissent equals death.`\
 https://nytimes.com/2025/07/04/opinion/iran-israel-arrests.html
-
-**Why China Isn’t Lecturing Trump About His Costly Bill**\
-`Beijing has a history of warning Washington about the safety of its Treasury holdings. This time it may have reasons to stay silent, at least publicly.`\
-https://nytimes.com/2025/07/04/world/asia/trump-bill-debt-china.html
 
