@@ -1,3 +1,11 @@
+**Sandra Neels, a Force in Modern Dance for 60 Years, Dies at 85**\
+`She was a leading dancer for Merce Cunningham, a prolific choreographer and an admired teacher.`\
+https://nytimes.com/2025/07/04/arts/dance/sandra-neels-dead.html
+
+**The migrants filed a new lawsuit challenging their transfer on other grounds.**\
+`After the Supreme Court ruled that the deportations could move forward, the migrants filed a new lawsuit, challenging their transfer on other grounds.`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/the-migrants-filed-a-new-lawsuit-challenging-their-transfer-on-other-grounds
+
 **With Taillon on IL, Cubs will be more focused on pitching at trade deadline**\
 `Taillon will miss “more than a month” with a strained right calf muscle, manager Craig Counsell said Friday.`\
 https://nytimes.com/athletic/6474109/2025/07/04/cubs-jameson-taillon-injured-trade-deadline/
