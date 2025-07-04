@@ -1,3 +1,15 @@
+**UFC confirms Donald Trump's plans to have fight at White House in 2026**\
+`Trump has been a public supporter of the UFC and a friend of its president, Dana White, for decades, with Trump regularly attending fights.`\
+https://nytimes.com/athletic/6473889/2025/07/04/donald-trump-ufc-fight-250th-birthday-2026/
+
+**Submit your Canucks questions for Thomas Drance's mailbag**\
+`Got a question about the Canucks now that the NHL Draft and the opening of free agency are behind us?`\
+https://nytimes.com/athletic/6474025/2025/07/04/vancouver-canucks-mailbag-july-2025/
+
+**Trump calls Zelensky after Russia hits Ukraine with a large air barrage.**\
+`It was the latest in a series of almost weekly large-scale missile and drone attacks. President Trump said he “didn’t make any progress” with President Vladimir V. Putin of Russia.`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-calls-zelensky-after-russia-hits-ukraine-with-a-large-air-barrage
+
 **Netherlands coach denies causing Euro 2025 'puppet show' with podcast comments**\
 `Andries Jonker appeared on a podcast to discuss his impending departure, and fielded questions about it at a heated press conference.`\
 https://nytimes.com/athletic/6473874/2025/07/04/andries-jonker-netherlands-podcast-comments/
@@ -26,16 +38,4 @@ https://nytimes.com/2025/07/04/arts/music/playlist-kesha-foo-fighters-ethel-cain
 `July 1 has come and gone, marking one of the most important dates on the NHL calendar: the end of the annual prediction contest.
 `\
 https://nytimes.com/athletic/6472489/2025/07/04/nhl-2024-25-season-prediction-contest-results/
-
-**Keane signs new Everton contract**\
-`The 32-year-old is the latest Everton player to commit their future after Seamus Coleman and Jarrad Branthwaite.`\
-https://nytimes.com/athletic/6456567/2025/07/04/everton-michael-keane-contract/
-
-**OL Lyonnes sign USWNT midfielder Korbin Albert from PSG**\
-`Albert has played in the French top-flight since signing a pro contract with PSG in January 2023 after leaving Notre Dame University.`\
-https://nytimes.com/athletic/6473796/2025/07/04/lyonnes-korbin-albert-transfer-uswnt/
-
-**Chelsea, Aston Villa handed UEFA fines, spending restrictions for breaching financial rules**\
-`Both clubs were found to have breached the European governing body's football earning rules and squad cost rules.`\
-https://nytimes.com/athletic/6473798/2025/07/04/chelsea-aston-villa-uefa-fines-spending-restrictions/
 
