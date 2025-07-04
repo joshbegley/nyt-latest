@@ -1,3 +1,7 @@
+**Newcastle, the challenge of attracting top players and why this summer is different to others**\
+`PSR rules have weakened the club's ability to bring in fresh talent but they have still managed to build a winning formula`\
+https://nytimes.com/athletic/6471369/2025/07/04/newcastle-the-challenge-of-attracting-top-players-and-why-this-summer-is-different/
+
 **Renard says France career not over amid 'disbelief, injustice' of Euro 2025 omission**\
 `OL Lyonnes centre-back Renard, with 168 international appearances and considered a legend of the game, is not part of the Euro 2025 squad.`\
 https://nytimes.com/athletic/6473267/2025/07/04/france-euro-2025-wendie-renard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472893/2025/07/04/blue-jays-sweep-yankees-al-east/
 **Ranking the NHL's top 40 free agents of 2026: McDavid, Kaprizov, Eichel and more**\
 `The 2026 class of free agents is incredibly star-studded and is led by a handful of the best offensive players in the NHL.`\
 https://nytimes.com/athletic/6472199/2025/07/04/nhl-top-free-agents-2026-ranking-mcdavid-kaprizov/
-
-**Five thoughts after an underwhelming start to the Blue Jackets' offseason**\
-`How did Ivan Provorov's signing became imperative for Columbus?`\
-https://nytimes.com/athletic/6471411/2025/07/04/blue-jackets-offseason-2025/
 
