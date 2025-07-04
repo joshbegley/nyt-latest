@@ -1,3 +1,15 @@
+**Maresca will let Neto decide whether to play following Jota tragedy**\
+`Chelsea star has been dealing with the heartbreaking news of his international teammate's death.`\
+https://nytimes.com/athletic/6472786/2025/07/03/chelsea-maresca-neto-jota-tragedy/
+
+**Trump Executive Order Creates Commission to Open Protected Public Land**\
+`The Make America Beautiful Again panel will be led by Interior Secretary Doug Burgum.`\
+https://nytimes.com/2025/07/03/us/politics/trump-executive-order-maba-public-land.html
+
+**Leader of El Salvador Disputes Claims That Maryland Man Was Tortured**\
+`President Nayib Bukele released a video showing Kilmar Armando Abrego Garcia in comfortable-looking quarters.`\
+https://nytimes.com/2025/07/03/us/politics/abrego-garcia-el-salvador-bukele.html
+
 **Former NBA guard Ben McLemore convicted of rape, sexual assault**\
 `The sexual assault occurred Oct. 3, 2021 after a party at then-teammate Robert Covington's house in Lake Oswego.`\
 https://nytimes.com/athletic/6472699/2025/07/03/ben-mclemore-trail-blazers-guilty-convicted/
