@@ -1,3 +1,11 @@
+**Soccer agent Jonathan Barnett accused of rape, torture and trafficking in U.S. lawsuit**\
+`The civil complaint was made against Barnett, 75, in a California district court by a woman referred to only as Jane Doe earlier this week.`\
+https://nytimes.com/athletic/6473173/2025/07/04/jonathan-barnett-rape-lawsuit/
+
+**Why Nico Williams' Barcelona transfer collapsed: The full story**\
+`It was a bolt from the blue that left Barcelona reeling. This is the story behind Nico Williams' decision to stay at Athletic Club`\
+https://nytimes.com/athletic/6473318/2025/07/04/barcelona-nico-williams-athletic-club-transfer-collapsed/
+
 **Naomi Osaka didn't 'feel anything' after latest tight Grand Slam loss at Wimbledon**\
 `Six of Osaka's last seven defeats have been in three sets, with the four-time Grand Slam champion closer than ever to a return to form.`\
 https://nytimes.com/athletic/6473656/2025/07/04/tennis-wimbledon-naomi-osaka-result/
