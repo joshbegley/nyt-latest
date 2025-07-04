@@ -1,3 +1,23 @@
+**Joseph Giordano, Surgeon Who Helped Save Reagan’s Life, Dies at 84**\
+`He had built one of the country’s leading trauma centers in Washington, which made it possible for his team to respond quickly after the president was shot.`\
+https://nytimes.com/2025/07/04/us/joseph-giordano-dead.html
+
+**Paul Libin, a Forceful Presence On and Off Broadway, Dies at 94**\
+`He staged a revival of “The Crucible” in a Manhattan hotel ballroom in 1958, helped run Circle in the Square and oversaw the operations of Jujamcyn Theaters.`\
+https://nytimes.com/2025/07/04/theater/paul-libin-dead.html
+
+**Brief but Violent Storms in New Jersey Leave 3 Dead**\
+`Powerful gusts blew down trees in central New Jersey on Thursday, killing three people who were in their cars.`\
+https://nytimes.com/2025/07/04/nyregion/new-jersey-storm.html
+
+**Tracking Tropical Depression Three**\
+`See the likely path and wind arrival times for Three`\
+https://nytimes.com/interactive/2025/07/04/weather/tropical-depression-south-carolina-map-path-tracker.html
+
+**Live Updates: Frantic Search for the Missing After at Least 13 Killed in Texas Flood**\
+`The authorities confirmed that 20 girls were still missing as a result of the flooding along the Guadalupe River, but the full scope of the disaster was not clear.`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river
+
 **Aryna Sabalenka quells Emma Raducanu and Centre Court crowd to advance at Wimbledon**\
 `The world No. 1 responded to adversity and a partisan crowd to come through against Raducanu in straight sets.`\
 https://nytimes.com/athletic/6474206/2025/07/04/tennis-wimbledon-sabalenka-raducanu-result-analysis/
