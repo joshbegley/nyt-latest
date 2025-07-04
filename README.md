@@ -1,3 +1,7 @@
+**Naomi Osaka didn't 'feel anything' after latest tight Grand Slam loss at Wimbledon**\
+`Six of Osaka's last seven defeats have been in three sets, with the four-time Grand Slam champion closer than ever to a return to form.`\
+https://nytimes.com/athletic/6473656/2025/07/04/tennis-wimbledon-naomi-osaka-result/
+
 **Rashford, Garnacho, Sancho to be allowed to find new clubs**\
 `The rest of United's first team squad are set to return to Carrington on Monday.`\
 https://nytimes.com/athletic/6473680/2025/07/04/man-utd-transfers-rashford-garnacho/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473630/2025/07/04/tennis-wimbledon-madison-keys-la
 **Rare Cloud Sends Beachgoers Running in Portugal**\
 `A dramatic “roll cloud“ spotted up and down the country’s central coast formed during a weeklong heat wave.`\
 https://nytimes.com/video/world/europe/100000010267804/rare-cloud-sends-beachgoers-running-in-portugal.html
-
-**Villa confirm permanent Coutinho departure**\
-`The 33-year-old's last appearance for Villa came in a 4-0 win over Everton in August 2023.`\
-https://nytimes.com/athletic/6473635/2025/07/04/aston-villa-philippe-coutinho-departure/
 
