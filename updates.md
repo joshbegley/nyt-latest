@@ -1,3 +1,7 @@
+**Tim Mayer launches bid to become FIA president, will run against Mohammed Ben Sulayem**\
+`The 59-year-old is the first candidate to officially stand against the incumbent president.`\
+https://nytimes.com/athletic/6473018/2025/07/04/f1-tim-mayer-fia-president-ben-sulayem/
+
 **Italy show signs of living up to Euro 2025 dark horses tag - but tougher tests to come**\
 `Arianna Caruso’s winning goal against Belgium was a good advert for Italy’s status as European Championship outsiders`\
 https://nytimes.com/athletic/6472546/2025/07/04/italy-belgium-euro-2025/
