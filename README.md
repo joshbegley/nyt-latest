@@ -2,7 +2,7 @@
 `The Canada international has signed a five-year contract with the Serie A club.`\
 https://nytimes.com/athletic/6473252/2025/07/04/jonathan-david-juventus-canada/
 
-**Jamie Smith: The wicketkeeper batter earmarked to be England's Adam Gilchrist**\
+**Jamie Smith: The wicketkeeper-batter earmarked to be England's Adam Gilchrist**\
 `England's No 7 launched a brutal counter attack at Edgbaston to offer his team hope and has made the wicketkeeper-batter position his own`\
 https://nytimes.com/athletic/6473605/2025/07/04/jamie-smith-england-wicketkeeper-england-gilchrist-stewart/
 
