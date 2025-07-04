@@ -1,3 +1,7 @@
+**Fuel Tank Explosion Rocks Gas Station in Rome**\
+`The explosion injured several people including eight police officers and a firefighter, officials said. The cause was not immediately clear.`\
+https://nytimes.com/video/world/europe/100000010267616/fuel-tank-explosion-rocks-gas-station-in-rome.html
+
 **A Competition That’s All About Nothing**\
 `The annual Space-Out Competition in South Korea was created to draw attention to the benefits of zoning out in a competitive society.`\
 https://nytimes.com/video/world/asia/100000010262728/space-out-competition-seoul.html
