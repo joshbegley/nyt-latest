@@ -1,3 +1,11 @@
+**From Court to Congress to the Mideast, Trump Tallies His Wins**\
+`There are serious questions about the wisdom and durability of President Trump’s policies, but on his terms, he can point to a string of accomplishments.`\
+https://nytimes.com/2025/07/04/us/from-court-to-congress-to-the-mideast-trump-tallies-his-wins.html
+
+**Wildfires Sweep Syria’s Coast as Drought Strains Fragile State**\
+`Firefighting efforts have been hampered by the presence of mines and unexploded ordnance left over from the civil war, as the country grapples with the worst drought in decades.`\
+https://nytimes.com/2025/07/04/world/middleeast/syria-wildfires-drought.html
+
 **'This is a new England’: Williamson, Wiegman on 'new challenge' of Euro 2025**\
 `England head into this summer's tournament in Switzerland as reigning champions after their victory on home soil at Euro 2022.`\
 https://nytimes.com/athletic/6473756/2025/07/04/williamson-wiegman-england-euro-2025/
