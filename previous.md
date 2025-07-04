@@ -1,3 +1,7 @@
+**Jose Altuve's pursuit of 3,000 hits begins in earnest after milestone**\
+`Only 33 players have collected 3,000 hits, a benchmark that all but guarantees enshrinement in Cooperstown.`\
+https://nytimes.com/athletic/6472664/2025/07/03/jose-altuve-astros-3000-hits/
+
 **Search Begins for 7 Missing After Disaster at Fireworks Warehouse in California**\
 `The company indicated that multiple people died in the incident three days before the Fourth of July, but officials have not issued a determination.`\
 https://nytimes.com/2025/07/03/us/fireworks-factory-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6472589/2025/07/03/what-were-hearing-mets-rotation-
 **Tisch Refuses to Fire Officer Who Killed Driver, Despite Judge’s Finding**\
 `The police commissioner said Lieutenant Jonathan Rivera fired shots that killed a man after a seatbelt stop only because he believed his partner’s life was in peril.`\
 https://nytimes.com/2025/07/03/nyregion/tisch-rivera-nypd-firing-decision.html
-
-**Park Service Is Left Short-Staffed in Peak Travel Season**\
-`Layoffs and departures after pressure from the Trump administration have left sites struggling, with the remaining employees each doing the work of two or three people.`\
-https://nytimes.com/2025/07/03/us/politics/park-service-staffing.html
 
