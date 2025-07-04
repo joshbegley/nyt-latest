@@ -1,3 +1,5 @@
+
+
 **Trump Signs the ‘One Big Beautiful Bill’ Into Law**\
 `President Donald Trump celebrated the Fourth of July by signing his signature policy bill.`\
 https://nytimes.com/video/us/politics/100000010268448/trump-signs-the-one-big-beautiful-bill-into-law.html
