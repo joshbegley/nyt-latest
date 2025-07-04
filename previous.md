@@ -1,3 +1,7 @@
+**Striker scouting for West Ham United: Analysing Calvert-Lewin, Mitrovic and other No 9s**\
+`West Ham have one recognised senior striker. The Athletic speculatively analyses four No 9s that fit the bill to bolster their options`\
+https://nytimes.com/athletic/6462339/2025/07/04/west-ham-united-strikers-transfer-window-analysed/
+
 **Aston Villa and the project inspiring Birmingham's multicultural communities**\
 `Aspiring Young Minds is on the doorstep of Villa Park to provide opportunities to children often of Somali heritage - and talent is emerging`\
 https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-multicultural-communities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468300/2025/07/04/ethan-nwaneri-arsenal-contract-u
 **Pogacar, Vingegaard, Van der Poel, Evenepoel: Welcome to cycling's 'Big Four' era**\
 `Sports need elite competitors who push the boundaries of what's possible — right now, cycling has several of them`\
 https://nytimes.com/athletic/6466747/2025/07/04/pogacar-vingegaard-van-der-poel-evenepoel-tour-de-france/
-
-**The curious career of Malcom - Barcelona, Russia and now a Club World Cup star for Al Hilal**\
-`The Brazilian forward changed the game against Man City in the last-16 and it was a reminder of why Barcelona paid €41m for him in 2018`\
-https://nytimes.com/athletic/6472049/2025/07/04/malcom-al-hilal-barcelona-club-world-cup/
 

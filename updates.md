@@ -1,3 +1,7 @@
+**Striker scouting for West Ham United: Analysing Calvert-Lewin, Mitrovic and other No 9s**\
+`West Ham have one recognised senior striker. The Athletic speculatively analyses four No 9s that fit the bill to bolster their options`\
+https://nytimes.com/athletic/6462339/2025/07/04/west-ham-united-strikers-transfer-window-analysed/
+
 **Aston Villa and the project inspiring Birmingham's multicultural communities**\
 `Aspiring Young Minds is on the doorstep of Villa Park to provide opportunities to children often of Somali heritage - and talent is emerging`\
 https://nytimes.com/athletic/6437446/2025/07/04/aston-villa-project-birmingham-multicultural-communities/
