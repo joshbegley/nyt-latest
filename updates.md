@@ -1,3 +1,11 @@
+**We Want to Hear From You: Are You Frustrated by Census and Racial Categories?**\
+`Americans are routinely asked to check off boxes about their race and ethnicity, but many say they do not see themselves reflected in the options.`\
+https://nytimes.com/2025/07/04/us/census-racial-categories.html
+
+**Joey Chestnut Returns and Regains Title at Hot Dog Contest**\
+`Mr. Chestnut, who was barred last year over an endorsement deal with a vegan-meat company, and Miki Sudo easily won their respective contests but did not break records.`\
+https://nytimes.com/2025/07/04/nyregion/joey-chestnut-nathans-hot-dog-contest.html
+
 **Are the Blues and Bowen Byram a trade match? Breaking down fit, cost and other factors**\
 `The Blues are interested in Sabres defenseman Bowen Byram, but what would they be willing to give up? Does a deal make sense?`\
 https://nytimes.com/athletic/6473820/2025/07/04/blues-sabres-bowen-byram-trade/
