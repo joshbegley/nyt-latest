@@ -1,3 +1,11 @@
+**WR Kaydon Finley chooses Notre Dame over father's alma mater Texas**\
+`Notre Dame will open Finley’s freshman season at Lambeau Field, where his dad Jermichael starred in his professional career.`\
+https://nytimes.com/athletic/6473782/2025/07/04/notre-dame-recruiting-kaydon-finley/
+
+**The mother of two rescued campers relays their story.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/the-mother-of-two-rescued-campers-relays-their-story
+
 **Mamdani Once Claimed to Be Asian and African American. Should It Matter?**\
 `Zohran Mamdani’s responses on a 2009 college application were criticized by his mayoral rivals. The blowback was dismissed by his supporters as a politically motivated attack.`\
 https://nytimes.com/2025/07/04/nyregion/mamdani-college-black-reaction.html
