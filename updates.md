@@ -1,3 +1,7 @@
+**Tickets for Club World Cup semi-final reduced from $473 to $13**\
+`It means that it could be cheaper to buy a ticket to that semi-final than buy a cheesesteak ($15) or beer ($14) inside MetLife.`\
+https://nytimes.com/athletic/6475113/2025/07/05/club-world-cup-tickets-semifinals/
+
 **Seine Reopens for Public Swimming After More Than a Century**\
 `A year after the long-polluted River Seine was cleaned for the 2024 Paris Olympics, French officials opened multiple sites for locals to go swimming.`\
 https://nytimes.com/video/world/europe/100000010268998/paris-seine-river-swim.html
