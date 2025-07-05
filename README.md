@@ -35,6 +35,6 @@ https://nytimes.com/2025/07/05/crosswords/daily-puzzle-2025-07-06.html
 https://nytimes.com/athletic/6475394/2025/07/05/bobby-jenks-white-sox-death-cancer/
 
 **Texas Flood Victims: What We Know**\
-`Young campers and a camp director were among at least 35 people who have died in the flooding in Central Texas.`\
+`Young campers and a camp director were among at least 46 people who have died in the flooding in Central Texas.`\
 https://nytimes.com/2025/07/05/us/texas-flood-victims.html
 
