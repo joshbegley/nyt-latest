@@ -1,3 +1,11 @@
+**Tropical Storm Chantal Forms Off the Coast of South Carolina**\
+`The storm is expected to bring heavy rain to the Carolinas this weekend.`\
+https://nytimes.com/2025/07/05/weather/tropical-storm-chantal-south-carolina.html
+
+**Efficiency Is an Ultimately Empty and Unattainable Life Goal**\
+`By Jessica Grose`\
+https://nytimes.com/2025/07/05/opinion/failed-promise-efficiency.html
+
 **Flooded Areas of Texas Could Get Several More Inches of Rain**\
 `The National Weather Service warned of “extremely dangerous” conditions on Saturday, and urged people in some areas to seek higher ground immediately.`\
 https://nytimes.com/2025/07/05/us/texas-rain-forecast.html

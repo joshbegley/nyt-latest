@@ -1,3 +1,11 @@
+**Tropical Storm Chantal Forms Off the Coast of South Carolina**\
+`The storm is expected to bring heavy rain to the Carolinas this weekend.`\
+https://nytimes.com/2025/07/05/weather/tropical-storm-chantal-south-carolina.html
+
+**Efficiency Is an Ultimately Empty and Unattainable Life Goal**\
+`By Jessica Grose`\
+https://nytimes.com/2025/07/05/opinion/failed-promise-efficiency.html
+
 **Oasis Reunites, Its Songs Still Stomping and Wounds Still Healing**\
 `The British band, a showcase for the intoxicating but toxic chemistry of the brothers Liam and Noel Gallagher, performed for the first time in 16 years.`\
 https://nytimes.com/2025/07/05/arts/music/oasis-reunion-tour-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473723/2025/07/05/maple-leafs-depth-chart-nhl/
 **Tigers get key reinforcement as Reese Olson returns from injured list**\
 `In 36 outings since Sept. 2, 2023, Olson has a 3.04 ERA. Only 15 MLB pitchers with 150+ innings have a better mark in that span.`\
 https://nytimes.com/athletic/6474420/2025/07/05/reese-olsons-return-detroit-tigers/
-
-**How Williams, F1’s ultimate underdog, found success — and might again**\
-`The Williams F1 team is on home ground in the 2025 British GP. It has many fans, thanks to its story of struggle and success`\
-https://nytimes.com/athletic/6473647/2025/07/05/williams-f1-history-frank-williams/
-
-**Brad Pitt, Whom So Proudly We Hail**\
-`Brad Pitt, icon, is one thing that still works in America.`\
-https://nytimes.com/2025/07/05/opinion/brad-pitt-f1.html
 
