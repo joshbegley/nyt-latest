@@ -1,3 +1,7 @@
+**Israeli Ministers Set to Meet on Next Steps Toward Gaza Truce**\
+`Members of the government are poised to decide whether to proceed with negotiations after Hamas said it had responded positively to the latest truce proposal.`\
+https://nytimes.com/2025/07/05/world/middleeast/israeli-ministers-hamas-gaza-ceasefire.html
+
 **Maple Leafs depth chart 2.0: Life after Marner gets complicated**\
 `The Maple Leafs' roster for the 2025-26 season feels unfinished. What could come next?`\
 https://nytimes.com/athletic/6473723/2025/07/05/maple-leafs-depth-chart-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/opinion/democrats-budget-bill-trump.html
 **Grading every NHL team’s early free-agency moves**\
 `Four days into NHL free agency, the list of impact players remaining on the market is … not lengthy. How's your favorite team doing so far?`\
 https://nytimes.com/athletic/6471687/2025/07/05/nhl-free-agency-grades-teams-offseason-moves/
-
-**Trump’s Politicized F.B.I. Has Made Americans Less Safe**\
-`The Trump administration’s political witch hunt is risking the bureau’s effectiveness and the public’s safety.`\
-https://nytimes.com/2025/07/05/opinion/trump-fbi-politics-safety.html
 

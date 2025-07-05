@@ -1,3 +1,7 @@
+**Israeli Ministers Set to Meet on Next Steps Toward Gaza Truce**\
+`Members of the government are poised to decide whether to proceed with negotiations after Hamas said it had responded positively to the latest truce proposal.`\
+https://nytimes.com/2025/07/05/world/middleeast/israeli-ministers-hamas-gaza-ceasefire.html
+
 **Trump’s Politicized F.B.I. Has Made Americans Less Safe**\
 `The Trump administration’s political witch hunt is risking the bureau’s effectiveness and the public’s safety.`\
 https://nytimes.com/2025/07/05/opinion/trump-fbi-politics-safety.html
