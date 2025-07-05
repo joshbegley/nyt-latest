@@ -1,3 +1,11 @@
+**France outlast late changes from England to win 2-1 in Euro 2025 group D: Briefing**\
+`The Athletic analyses the key moments from England's Group D defeat by France at Euro 2025`\
+https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outlast-group-d/
+
+**Faith Kipyegon, Beatrice Chebet smash world records at Prefontaine Classic**\
+`The Kenyan star shaved more than two seconds off the mark while pulling away from former record-holder Gudaf Tsegay on Saturday in Oregon.`\
+https://nytimes.com/athletic/6475372/2025/07/05/faith-kipyegon-beatrice-chebet-world-record-1500-5000-meter-prefontaine-classic/
+
 **Escape Room**\
 `Zhou Zhang and Kevin Curry present a monumental riddle in their Sunday puzzle debut.`\
 https://nytimes.com/2025/07/05/crosswords/daily-puzzle-2025-07-06.html
