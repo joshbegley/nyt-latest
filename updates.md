@@ -1,3 +1,7 @@
+**Stuart Burrows, Welsh Lyric Tenor Who Straddled the Atlantic, Dies at 92**\
+`He was a mainstay at both the Metropolitan Opera and the Royal Opera House, winning acclaim for his full tenor range and a rich, unforced tone, notably singing Mozart.`\
+https://nytimes.com/2025/07/05/arts/music/stuart-burrows-dead.html
+
 **Trump Says He Will Start Talks With China on TikTok Deal**\
 `President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
 https://nytimes.com/2025/07/05/us/politics/trump-china-tiktok.html

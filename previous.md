@@ -1,3 +1,7 @@
+**Stuart Burrows, Welsh Lyric Tenor Who Straddled the Atlantic, Dies at 92**\
+`He was a mainstay at both the Metropolitan Opera and the Royal Opera House, winning acclaim for his full tenor range and a rich, unforced tone, notably singing Mozart.`\
+https://nytimes.com/2025/07/05/arts/music/stuart-burrows-dead.html
+
 **Clarke Schmidt 'likely' to have Tommy John surgery. Should Yankees make a trade to replace him?**\
 `How will they replace him? Should they fill the job internally with a prospect? Or should they acquire a starter before the deadline? `\
 https://nytimes.com/athletic/6475146/2025/07/05/clarke-schmidt-tommy-john-surgery-yankees-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475058/2025/07/05/saint-maximin-fenerbahce-doping/
 **The Civil War That Never Ended**\
 `A Q&A with Zaakir Tameez about Charles Sumner and the antislavery movement.`\
 https://nytimes.com/2025/07/05/opinion/zaakir-tameez-charles-sumner-slavery.html
-
-**Panini's WNBA Rookie Royalty card set leaves me feeling sad for the hobby: Farrell**\
-`Panini attempted to sell its latest WNBA release for as much as $30,000 per two-card box`\
-https://nytimes.com/athletic/6475006/2025/07/05/panini-rookie-royalty-clark-reese/
 
