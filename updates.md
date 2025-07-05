@@ -1,3 +1,11 @@
+**Chelsea confirm Jamie Gittens transfer from Dortmund**\
+`The 20-year-old has signed a seven-year contract at Stamford Bridge through to 2032.`\
+https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
+
+**Forest confirm signing of Igor Jesus from Botafogo**\
+`The 24-year-old striker has signed a four-year contract after featuring for Botafogo at the Club World Cup.`\
+https://nytimes.com/athletic/6474783/2025/07/05/igor-jesus-nottingham-forest-transfer/
+
 **Germany captain Gwinn out of Euro 2025 with knee injury**\
 `Gwinn, 26, underwent a scan on Saturday after being forced off in the first half of Germany's group stage opener against Poland.`\
 https://nytimes.com/athletic/6474228/2025/07/05/giulia-gwinn-injury-update-germany/

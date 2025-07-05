@@ -1,3 +1,11 @@
+**Chelsea confirm Jamie Gittens transfer from Dortmund**\
+`The 20-year-old has signed a seven-year contract at Stamford Bridge through to 2032.`\
+https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
+
+**Forest confirm signing of Igor Jesus from Botafogo**\
+`The 24-year-old striker has signed a four-year contract after featuring for Botafogo at the Club World Cup.`\
+https://nytimes.com/athletic/6474783/2025/07/05/igor-jesus-nottingham-forest-transfer/
+
 **Germany captain Gwinn out of Euro 2025 with knee injury**\
 `Gwinn, 26, underwent a scan on Saturday after being forced off in the first half of Germany's group stage opener against Poland.`\
 https://nytimes.com/athletic/6474228/2025/07/05/giulia-gwinn-injury-update-germany/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/05/arts/music/oasis-reunion-tour-review.html
 **Prime Tire: Unremarkable places at the British GP. Plus, on Lewis Hamilton watch**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6474621/2025/07/05/f1-british-grand-prix-lewis-hamilton-prime-tire/
-
-**Leafs development camp: Awards, observations and questions for Easton Cowan, more**\
-`From two prospects dropping the gloves to standout performances, here's what stood out at 2025 Leafs development camp.`\
-https://nytimes.com/athletic/6473348/2025/07/05/maple-leafs-2025-development-camp-easton-cowan/
-
-**Canadiens development camp notebook: The shifting priorities of player growth**\
-`The Canadiens' latest bet is on a second-year draft-eligible player, and Owen Protz is in for a big summer and bigger adjustments.`\
-https://nytimes.com/athletic/6474213/2025/07/05/canadiens-development-camp-prospects/
 
