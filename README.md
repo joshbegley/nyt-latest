@@ -1,3 +1,7 @@
+**United complete signing of teenage defender Leon**\
+`The 18-year-old defender has made 33 senior appearances and scored four goals for Cerro Porteno. `\
+https://nytimes.com/athletic/6474574/2025/07/05/manchester-united-diego-leon-signing/
+
 **Here’s the latest.**\
 `By Edgar Sandoval, Ruth Graham, Ernesto Londoño, Aimee Ortiz and John Yoon`\
 https://nytimes.com/live/2025/07/05/us/texas-floods/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/magazine/genetic-cancer-family-ethics.html
 **Wordle Review No. 1,478**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 6, 2025.`\
 https://nytimes.com/2025/07/05/crosswords/wordle-review-1478.html
-
-**Strands Sidekick No. 490**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 6, 2025.`\
-https://nytimes.com/2025/07/05/crosswords/strands-sidekick-490.html
 
