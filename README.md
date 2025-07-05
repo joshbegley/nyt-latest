@@ -14,6 +14,10 @@ https://nytimes.com/2025/07/05/sports/tennis/wimbledon-royal-box-who.html
 `In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
 https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
 
+**Man Utd have failed to sell Rashford, Sancho and Garnacho - it's a mess of their own making**\
+`That Rashford, Garnacho, Sancho and Antony are still Manchester United players should leave the whole club with an awful lot to ponder`\
+https://nytimes.com/athletic/6474465/2025/07/05/manchester-united-rashford-sancho-garnacho-antony-sales/
+
 **The New York Times in Print for Saturday, July 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474439/2025/07/05/braves-lose-charlie-morton-oriol
 **France's bold new era: An Einstein quote, legends consigned to the past and players' shock**\
 `The new manager has left out three players with 444 caps between them. It is a gamble but also a bold move for a refreshed, younger France`\
 https://nytimes.com/athletic/6471126/2025/07/05/france-bonadei-renard-euros/
-
-**Remembering Andre Silva: How Diogo Jota's brother forged his own football path**\
-`He may have lacked his brother's celebrity, but Andre was also a fine footballer whose death is being deeply mourned`\
-https://nytimes.com/athletic/6473347/2025/07/05/andre-silva-diogo-jota-brother-crash/
 
