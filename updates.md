@@ -1,3 +1,19 @@
+**United complete signing of teenage defender Leon**\
+`The 18-year-old defender has made 33 senior appearances and scored four goals for Cerro Porteno. `\
+https://nytimes.com/athletic/6474574/2025/07/05/manchester-united-diego-leon-signing/
+
+**Here’s the latest.**\
+`By Edgar Sandoval, Ruth Graham, Ernesto Londoño, Aimee Ortiz and John Yoon`\
+https://nytimes.com/live/2025/07/05/us/texas-floods/heres-the-latest
+
+**Burnley sign Walker from Man City**\
+`The England international has now signed a two-year deal that will right-back Kyle Walker from Manchester City.`\
+https://nytimes.com/athletic/6474596/2025/07/05/walker-burnley-man-cty-transfer-complete/
+
+**Making Lists**\
+`What are they good for, anyway?`\
+https://nytimes.com/2025/07/05/briefing/making-lists.html
+
 **Live Updates: Rescuers Search Through the Night After Texas Floods Kill at Least 24**\
 `Two dozen girls were missing from a camp along the Guadalupe River. Flooding continued in some areas on Saturday.`\
 https://nytimes.com/live/2025/07/05/us/texas-floods
