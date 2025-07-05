@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6475107/2025/07/05/nikolaj-ehlers-hurricanes-jets-w
 
 **Trump Says He Will Start Talks With China on TikTok Deal**\
 `President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
-https://nytimes.com/2025/07/05/us/politics/trump-says-he-will-start-talks-with-china-on-tiktok-deal.html
+https://nytimes.com/2025/07/05/us/politics/trump-china-tiktok.html
 
 **The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
 `Analysis from the opening stage of the 2025 Tour de France`\

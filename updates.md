@@ -1,3 +1,7 @@
+**Clarke Schmidt 'likely' to have Tommy John surgery. Should Yankees make a trade to replace him?**\
+`How will they replace him? Should they fill the job internally with a prospect? Or should they acquire a starter before the deadline? `\
+https://nytimes.com/athletic/6475146/2025/07/05/clarke-schmidt-tommy-john-surgery-yankees-trade/
+
 **PSG v Bayern chaos dissected: Jamal Musiala's horror injury, two red cards and two fine goals**\
 `Analysing the major talking points from Saturday's FIFA Club World Cup quarter-final `\
 https://nytimes.com/athletic/6475094/2025/07/05/psg-bayern-club-world-cup-analysis/
