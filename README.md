@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outlast-group-d/
 
 **A Close Look at Camp Mystic**\
-`Many of the missing appeared to have been in cabins near the river.`\
+`Many of the missing girls appeared to have been in cabins near the river.`\
 https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
 
 **West Ham reject £50m Kudus bid from Tottenham**\
