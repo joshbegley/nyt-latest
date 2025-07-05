@@ -1,4 +1,4 @@
-**Maple Leafs' Robertson, Jets' Vilardi among 11 to file for salary arbitration**\
+**Maple Leafs' Robertson, Jets' Vilardi among 11 to file for arbitration**\
 `Arbitration hearings will be held from July 20 to Aug. 4.`\
 https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
 

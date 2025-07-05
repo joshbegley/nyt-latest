@@ -1,3 +1,7 @@
+**Maple Leafs' Robertson, Jets' Vilardi among 11 to file for salary arbitration**\
+`Arbitration hearings will be held from July 20 to Aug. 4.`\
+https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
+
 **Cubs' struggles against left-handed starters puts focus on another area of need**\
 `Since the start of May, the Cubs have been mediocre against left-handed pitchers, and their opponents have noticed.`\
 https://nytimes.com/athletic/6475488/2025/07/05/cubs-needs-struggles-vs-left-handers/
