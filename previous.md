@@ -1,3 +1,11 @@
+**The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
+`Analysis from the opening stage of the 2025 Tour de France`\
+https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysis/
+
+**Defending Wimbledon champion Barbora Krejcikova suffers heartbreaking defeat in third round**\
+`Wimbledon is guaranteed a first-time women's singles champion for the eighth consecutive tournament.`\
+https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-result-analysis/
+
 **U.S. Turns Eight Migrants Over to South Sudan, Ending Weeks of Legal Limbo**\
 `Courts blocked the handover after lawyers raised concerns of torture. Then the Supreme Court intervened to allow the Trump administration’s plan to move forward.`\
 https://nytimes.com/2025/07/05/us/migrants-djibouti-south-sudan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlande
 **Best Gazpacho Forever**\
 `When it’s hot and you’re hungry and thirsty and craving salt and sweetness and cold and smoothness, this is the very best thing to make.`\
 https://nytimes.com/2025/07/05/dining/best-gazpacho-recipe-for-summer.html
-
-**Arsenal agree personal terms with Chelsea's Madueke**\
-`Arsenal are yet to hold talks with Chelsea over the 23-year-old, who is under contract until 2030.`\
-https://nytimes.com/athletic/6462138/2025/07/05/noni-madueke-arsenal-chelsea-transfer/
-
-**Former Wimbledon champion Elena Rybakina beaten by Clara Tauson**\
-`The 2022 winner fell in a rain-affected match on No. 2 Court.`\
-https://nytimes.com/athletic/6474798/2025/07/05/tennis-wimbledon-rybakina-tauson-result-analysis/
 

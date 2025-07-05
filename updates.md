@@ -1,3 +1,11 @@
+**The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
+`Analysis from the opening stage of the 2025 Tour de France`\
+https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysis/
+
+**Defending Wimbledon champion Barbora Krejcikova suffers heartbreaking defeat in third round**\
+`Wimbledon is guaranteed a first-time women's singles champion for the eighth consecutive tournament.`\
+https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-result-analysis/
+
 **U.S. Turns Eight Migrants Over to South Sudan, Ending Weeks of Legal Limbo**\
 `Courts blocked the handover after lawyers raised concerns of torture. Then the Supreme Court intervened to allow the Trump administration’s plan to move forward.`\
 https://nytimes.com/2025/07/05/us/migrants-djibouti-south-sudan.html
