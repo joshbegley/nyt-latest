@@ -1,3 +1,7 @@
+**Seine Reopens for Public Swimming After More Than a Century**\
+`A year after the long-polluted River Seine was cleaned for the 2024 Paris Olympics, French officials opened multiple sites for locals to go swimming.`\
+https://nytimes.com/video/world/europe/100000010268998/paris-seine-river-swim.html
+
 **Neuer criticises Donnarumma over Musiala injury**\
 `The Bayern Munich midfielder was injured in a collision with the PSG goalkeeper just before half-time in their quarter-final.`\
 https://nytimes.com/athletic/6475331/2025/07/05/musiala-injury-donnarumma-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475107/2025/07/05/nikolaj-ehlers-hurricanes-jets-w
 **Trump Says He Will Start Talks With China on TikTok Deal**\
 `President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
 https://nytimes.com/2025/07/05/us/politics/trump-china-tiktok.html
-
-**The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
-`Analysis from the opening stage of the 2025 Tour de France`\
-https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysis/
 

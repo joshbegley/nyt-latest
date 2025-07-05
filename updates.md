@@ -1,3 +1,7 @@
+**Seine Reopens for Public Swimming After More Than a Century**\
+`A year after the long-polluted River Seine was cleaned for the 2024 Paris Olympics, French officials opened multiple sites for locals to go swimming.`\
+https://nytimes.com/video/world/europe/100000010268998/paris-seine-river-swim.html
+
 **Neuer criticises Donnarumma over Musiala injury**\
 `The Bayern Munich midfielder was injured in a collision with the PSG goalkeeper just before half-time in their quarter-final.`\
 https://nytimes.com/athletic/6475331/2025/07/05/musiala-injury-donnarumma-club-world-cup/
