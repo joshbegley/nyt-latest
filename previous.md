@@ -1,3 +1,11 @@
+**PSG v Bayern chaos dissected: Jamal Musiala's horror injury, two red cards and two fine goals**\
+`Analysing the major talking points from Saturday's FIFA Club World Cup quarter-final `\
+https://nytimes.com/athletic/6475094/2025/07/05/psg-bayern-club-world-cup-analysis/
+
+**Ehlers excited for fresh start with Hurricanes, calls Jets exit 'very emotional'**\
+`"I told (the Jets) they didn't do anything wrong," Ehlers said. "I loved it there. I love the organization, the people in it, the guys."`\
+https://nytimes.com/athletic/6475107/2025/07/05/nikolaj-ehlers-hurricanes-jets-winnipeg/
+
 **Trump Says He Will Start Talks With China on TikTok Deal**\
 `President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
 https://nytimes.com/2025/07/05/us/politics/trump-says-he-will-start-talks-with-china-on-tiktok-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475006/2025/07/05/panini-rookie-royalty-clark-rees
 **British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
 `Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
 https://nytimes.com/athletic/6474838/2025/07/05/british-grand-prix-qualifying/
-
-**Brighton sign Club Brugge defender Maxim de Cuyper on five-year deal**\
-`The 24-year-old played 54 times for Club Brugge last season and scored in the Champions League.`\
-https://nytimes.com/athletic/6474998/2025/07/05/brighton-club-brugge-maxim-de-cuyper-transfer/
-
-**Giants stink up Sacramento as Justin Verlander gets candid: 'I was pretty easy to hit tonight'**\
-`Verlander gave up six runs in three innings, extending his winless streak to 14 starts as a Giant.`\
-https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlander-score/
 
