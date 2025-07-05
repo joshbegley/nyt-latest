@@ -1,3 +1,7 @@
+**How does the Cam Whitmore trade fit into the Washington Wizards' long-term plan?**\
+`Whitmore, who grew up in suburban Washington, will have a chance to make the Wizards his NBA home.`\
+https://nytimes.com/athletic/6475516/2025/07/05/cam-whitmore-trade-wizards-rockets/
+
 **Maple Leafs' Robertson, Jets' Vilardi among 11 to file for arbitration**\
 `Arbitration hearings will be held from July 20 to Aug. 4.`\
 https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475394/2025/07/05/bobby-jenks-white-sox-death-canc
 **Texas Flood Victims: What We Know**\
 `Young campers and a camp director were among at least 35 people who have died in the flooding in Central Texas.`\
 https://nytimes.com/2025/07/05/us/texas-flood-victims.html
-
-**As a Tourist Influx Makes Prices Soar, Hundreds Protest in Mexico City**\
-`The outrage reflects the growing difficulty of affording a city that has become a hot spot for Western immigrants.`\
-https://nytimes.com/2025/07/05/world/americas/mexico-city-protest-gentrification.html
 
