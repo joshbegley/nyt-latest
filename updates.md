@@ -1,3 +1,7 @@
+**Trump Says He Will Start Talks With China on TikTok Deal**\
+`President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
+https://nytimes.com/2025/07/05/us/politics/trump-china-tiktok.html
+
 **Clarke Schmidt 'likely' to have Tommy John surgery. Should Yankees make a trade to replace him?**\
 `How will they replace him? Should they fill the job internally with a prospect? Or should they acquire a starter before the deadline? `\
 https://nytimes.com/athletic/6475146/2025/07/05/clarke-schmidt-tommy-john-surgery-yankees-trade/
