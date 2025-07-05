@@ -1,3 +1,7 @@
+**Wimbledon recap: Pride in London and a good July 4 weekend for American players**\
+`Wimbledon is the only Grand Slam not to have had a day formally dedicated to Pride.`\
+https://nytimes.com/athletic/6474638/2025/07/05/tennis-wimbledon-recap-day-six-results-analysis-news/
+
 **How does the Cam Whitmore trade fit into the Washington Wizards' long-term plan?**\
 `Whitmore, who grew up in suburban Washington, will have a chance to make the Wizards his NBA home.`\
 https://nytimes.com/athletic/6475516/2025/07/05/cam-whitmore-trade-wizards-rockets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/crosswords/daily-puzzle-2025-07-06.html
 **Bobby Jenks, All-Star closer and White Sox cult hero, dies of cancer at 44**\
 `Jenks, who was a rookie on Chicago's 2005 World Series championship team, died of a form of stomach cancer.`\
 https://nytimes.com/athletic/6475394/2025/07/05/bobby-jenks-white-sox-death-cancer/
-
-**Texas Flood Victims: What We Know**\
-`Young campers and a camp director were among at least 46 people who have died in the flooding in Central Texas.`\
-https://nytimes.com/2025/07/05/us/texas-flood-victims.html
 
