@@ -1,3 +1,7 @@
+**Diogo Jota's funeral held in his hometown of Gondomar**\
+`Virgil van Dijk and defender Andy Robertson carried wreaths with the numbers 20 and 30 (Jota and Silva's shirt numbers).`\
+https://nytimes.com/athletic/6473233/2025/07/05/diogo-jota-funeral-liverpool-portugal/
+
 **United complete signing of teenage defender Leon**\
 `The 18-year-old defender has made 33 senior appearances and scored four goals for Cerro Porteno. `\
 https://nytimes.com/athletic/6474574/2025/07/05/manchester-united-diego-leon-signing/
