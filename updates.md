@@ -1,3 +1,7 @@
+**Cubs' struggles against left-handed starters puts focus on another area of need**\
+`Since the start of May, the Cubs have been mediocre against left-handed pitchers, and their opponents have noticed.`\
+https://nytimes.com/athletic/6475488/2025/07/05/cubs-needs-struggles-vs-left-handers/
+
 **Khamenei Appears in Public for First Time Since Israel War Began**\
 `The long absence of Iran’s supreme leader, Ayatollah Ali Khamenei, from public life had fueled speculation about his health and threats to his life.`\
 https://nytimes.com/2025/07/05/world/middleeast/ayatollah-khamenei-iran-israel.html
