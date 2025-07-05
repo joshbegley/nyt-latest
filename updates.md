@@ -1,3 +1,7 @@
+**Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
+`The England Under-21 international has moved to Stamford Bridge on a seven-year contract. Here is what he will offer Maresca's side... `\
+https://nytimes.com/athletic/6453141/2025/07/05/jamie-gittens-chelsea-what-he-brings/
+
 **Chelsea confirm Jamie Gittens transfer from Dortmund**\
 `The 20-year-old has signed a seven-year contract at Stamford Bridge through to 2032.`\
 https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
