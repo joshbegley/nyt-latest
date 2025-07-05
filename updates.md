@@ -1,3 +1,7 @@
+**Trump Says He Will Start Talks With China on TikTok Deal**\
+`President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
+https://nytimes.com/2025/07/05/us/politics/trump-says-he-will-start-talks-with-china-on-tiktok-deal.html
+
 **Defending Wimbledon champion Krejcikova suffers defeat in third round**\
 `Wimbledon is guaranteed a first-time women's singles champion for the eighth consecutive tournament.`\
 https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-result-analysis/

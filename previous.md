@@ -1,3 +1,7 @@
+**Trump Says He Will Start Talks With China on TikTok Deal**\
+`President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
+https://nytimes.com/2025/07/05/us/politics/trump-says-he-will-start-talks-with-china-on-tiktok-deal.html
+
 **The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
 `Analysis from the opening stage of the 2025 Tour de France`\
 https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474998/2025/07/05/brighton-club-brugge-maxim-de-cu
 **Giants stink up Sacramento as Justin Verlander gets candid: 'I was pretty easy to hit tonight'**\
 `Verlander gave up six runs in three innings, extending his winless streak to 14 starts as a Giant.`\
 https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlander-score/
-
-**Best Gazpacho Forever**\
-`When it’s hot and you’re hungry and thirsty and craving salt and sweetness and cold and smoothness, this is the very best thing to make.`\
-https://nytimes.com/2025/07/05/dining/best-gazpacho-recipe-for-summer.html
 
