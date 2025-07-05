@@ -1,3 +1,7 @@
+**Maple Leafs' Robertson, Jets' Vilardi among 11 to file for salary arbitration**\
+`Arbitration hearings will be held from July 20 to Aug. 4.`\
+https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
+
 **Cubs' struggles against left-handed starters puts focus on another area of need**\
 `Since the start of May, the Cubs have been mediocre against left-handed pitchers, and their opponents have noticed.`\
 https://nytimes.com/athletic/6475488/2025/07/05/cubs-needs-struggles-vs-left-handers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/us/texas-flood-victims.html
 **As a Tourist Influx Makes Prices Soar, Hundreds Protest in Mexico City**\
 `The outrage reflects the growing difficulty of affording a city that has become a hot spot for Western immigrants.`\
 https://nytimes.com/2025/07/05/world/americas/mexico-city-protest-gentrification.html
-
-**Scenes From Camp Mystic a Day After Deadly Floods in Texas**\
-`Hundreds of children at the camp were rescued from ravaging floods. Debris and tree limbs covered the campgrounds on Saturday.`\
-https://nytimes.com/2025/07/05/us/camp-mystic-flood-damage.html
 
