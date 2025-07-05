@@ -1,3 +1,7 @@
+**Khamenei Appears in Public for First Time Since Israel War Began**\
+`The long absence of Iran’s supreme leader, Ayatollah Ali Khamenei, from public life had fueled speculation about his health and threats to his life.`\
+https://nytimes.com/2025/07/05/world/middleeast/ayatollah-khamenei-iran-israel.html
+
 **Real Madrid 3-2 Dortmund: Mbappe's spectacular volley and Courtois' save of the tournament in frantic finale**\
 `Madrid scored twice early on at MetLife and looked to be easing into the last four before a blockbuster finish to their quarter-final`\
 https://nytimes.com/athletic/6475332/2025/07/05/real-madrid-mbappe-goal-courtois-save-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/us/camp-mystic-flood-damage.html
 **France outlast late changes from England to win 2-1 in Euro 2025 group D: Briefing**\
 `The Athletic analyses the key moments from England's Group D defeat by France at Euro 2025`\
 https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outlast-group-d/
-
-**A Close Look at Camp Mystic**\
-`Many of the missing girls appeared to have been in cabins near the river.`\
-https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
 

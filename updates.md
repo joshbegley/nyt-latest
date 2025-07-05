@@ -1,3 +1,7 @@
+**Khamenei Appears in Public for First Time Since Israel War Began**\
+`The long absence of Iran’s supreme leader, Ayatollah Ali Khamenei, from public life had fueled speculation about his health and threats to his life.`\
+https://nytimes.com/2025/07/05/world/middleeast/ayatollah-khamenei-iran-israel.html
+
 **Real Madrid 3-2 Dortmund: Mbappe's spectacular volley and Courtois' save of the tournament in frantic finale**\
 `Madrid scored twice early on at MetLife and looked to be easing into the last four before a blockbuster finish to their quarter-final`\
 https://nytimes.com/athletic/6475332/2025/07/05/real-madrid-mbappe-goal-courtois-save-club-world-cup/
