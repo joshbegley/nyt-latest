@@ -1,40 +1,40 @@
-**Diogo Jota's funeral held in his hometown of Gondomar**\
-`Virgil van Dijk and defender Andy Robertson carried wreaths with the numbers 20 and 30 (Jota and Silva's shirt numbers).`\
-https://nytimes.com/athletic/6473233/2025/07/05/diogo-jota-funeral-liverpool-portugal/
+**Maple Leafs depth chart 2.0: Life after Marner gets complicated**\
+`The Maple Leafs' roster for the 2025-26 season feels unfinished. What could come next?`\
+https://nytimes.com/athletic/6473723/2025/07/05/maple-leafs-depth-chart-nhl/
 
-**United complete signing of teenage defender Leon**\
-`The 18-year-old defender has made 33 senior appearances and scored four goals for Cerro Porteno. `\
-https://nytimes.com/athletic/6474574/2025/07/05/manchester-united-diego-leon-signing/
+**Tigers get key reinforcement as Reese Olson returns from injured list**\
+`In 36 outings since Sept. 2, 2023, Olson has a 3.04 ERA. Only 15 MLB pitchers with 150+ innings have a better mark in that span.`\
+https://nytimes.com/athletic/6474420/2025/07/05/reese-olsons-return-detroit-tigers/
 
-**Here’s the latest.**\
-`By Edgar Sandoval, Ruth Graham, Ernesto Londoño, Aimee Ortiz and John Yoon`\
-https://nytimes.com/live/2025/07/05/us/texas-floods/heres-the-latest
+**How Williams, F1’s ultimate underdog, found success — and might again**\
+`The Williams F1 team is on home ground in the 2025 British GP. It has many fans, thanks to its story of struggle and success`\
+https://nytimes.com/athletic/6473647/2025/07/05/williams-f1-history-frank-williams/
 
-**Burnley sign Walker from Man City**\
-`The England international has now signed a two-year deal that will right-back Kyle Walker from Manchester City.`\
-https://nytimes.com/athletic/6474596/2025/07/05/walker-burnley-man-cty-transfer-complete/
+**Brad Pitt, Whom So Proudly We Hail**\
+`Brad Pitt, icon, is one thing that still works in America.`\
+https://nytimes.com/2025/07/05/opinion/brad-pitt-f1.html
 
-**Making Lists**\
-`What are they good for, anyway?`\
-https://nytimes.com/2025/07/05/briefing/making-lists.html
+**Donald Trump, Our Foundering Father**\
+`The president celebrates July 4 by stroking his ego and choking the poor.`\
+https://nytimes.com/2025/07/05/opinion/donald-trump-fourth-of-july.html
 
-**Live Updates: Rescuers Search Through the Night After Texas Floods Kill at Least 24**\
-`Two dozen girls were missing from a camp along the Guadalupe River. Flooding continued in some areas on Saturday.`\
-https://nytimes.com/live/2025/07/05/us/texas-floods
+**It Isn’t Freedom if It’s Not for Everyone**\
+`I went to West Africa to report on girls’ education. I left convinced that the Western feminist movement has grown far too comfortable fighting only for itself.`\
+https://nytimes.com/2025/07/05/opinion/africa-women-feminism.html
 
-**Blue Jays' Eric Lauer is becoming more than a placeholder**\
-`The Blue Jays will have many brief call-ups and cameos this season, but Lauer is no longer one of them.`\
-https://nytimes.com/athletic/6474438/2025/07/05/blue-jays-eric-lauer-more-than-placeholder/
+**Principles of the 24-hour athlete: How meal planning, journaling and OT can give a prospect an edge**\
+`Quinnipiac trainer Brijesh Patel explains how an athlete's routines "outside the gym and outside the arena" can take them to the next level.`\
+https://nytimes.com/athletic/6403263/2025/07/05/nhl-athlete-training-meal-planning/
 
-**Jonathan Toews' homecoming: 'I couldn't see myself wearing any other jersey'**\
-`Toews told the sizable audience that, despite interest from multiple teams, Winnipeg felt like the only choice.`\
-https://nytimes.com/athletic/6474166/2025/07/05/jonathan-toews-homecoming-i-couldnt-see-myself-wearing-any-other-jersey/
+**Three Urgent Lessons for Democrats From the Big, Awful Bill**\
+`A road map for undoing the damage.`\
+https://nytimes.com/2025/07/05/opinion/democrats-budget-bill-trump.html
 
-**Celebrating the U.S. in Canada During Turmoil in the Two Countries’ Relations**\
-`The annual Fourth of July party hosted by the U.S. ambassador to Canada occurred this year amid strained relations and resurgent Canadian patriotism.`\
-https://nytimes.com/2025/07/05/world/canada/celebrating-the-us-in-canada-during-turmoil-in-the-two-countries-relations.html
+**Grading every NHL team’s early free-agency moves**\
+`Four days into NHL free agency, the list of impact players remaining on the market is … not lengthy. How's your favorite team doing so far?`\
+https://nytimes.com/athletic/6471687/2025/07/05/nhl-free-agency-grades-teams-offseason-moves/
 
-**My Cancer Might Be Genetic. Should I Tell My Relatives?**\
-`We’re eligible for screening, but I don’t want anyone to panic.`\
-https://nytimes.com/2025/07/05/magazine/genetic-cancer-family-ethics.html
+**Trump’s Politicized F.B.I. Has Made Americans Less Safe**\
+`The Trump administration’s political witch hunt is risking the bureau’s effectiveness and the public’s safety.`\
+https://nytimes.com/2025/07/05/opinion/editorials/trump-fbi-politics-safety.html
 

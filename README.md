@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6471687/2025/07/05/nhl-free-agency-grades-teams-off
 
 **Trump’s Politicized F.B.I. Has Made Americans Less Safe**\
 `The Trump administration’s political witch hunt is risking the bureau’s effectiveness and the public’s safety.`\
-https://nytimes.com/2025/07/05/opinion/editorials/trump-fbi-politics-safety.html
+https://nytimes.com/2025/07/05/opinion/trump-fbi-politics-safety.html
 
