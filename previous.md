@@ -1,3 +1,11 @@
+**Karen Carney: England's Lauren Hemp is world class. It's time to call her that**\
+`In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
+https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
+
+**The New York Times in Print for Saturday, July 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/05/todays-new-york-times
+
 **Primoz Roglic interview: 'Cycling is one of the toughest sports. That’s what attracted me'**\
 `Slovenia's other cycling superstar on his unusual route into the sport and the resilience that keeps him coming back for more`\
 https://nytimes.com/athletic/6469876/2025/07/05/primoz-roglic-interview-tour-de-france/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473263/2025/07/05/psg-vs-bayern-tactical-preview-c
 **China Has Paid a High Price for Its Dominance in Rare Earths**\
 `Dust and groundwater contaminated with heavy metals and radioactive chemicals pose a health threat that the authorities have been trying to address for years.`\
 https://nytimes.com/2025/07/05/business/china-rare-earth-environment.html
-
-**China’s Rare Earth Origin Story, Explained**\
-`Low environmental standards helped China become the world’s low-cost producer of rare earths, but Beijing was also focused on helping the industry.`\
-https://nytimes.com/2025/07/05/business/china-rare-earth-history.html
-
-**Connections: Sports Edition Coach: Hints for July 5, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6471032/2025/07/05/connections-sports-edition-hints-for-july-5-2025/
 

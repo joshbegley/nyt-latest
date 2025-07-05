@@ -1,3 +1,11 @@
+**Karen Carney: England's Lauren Hemp is world class. It's time to call her that**\
+`In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
+https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
+
+**The New York Times in Print for Saturday, July 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/05/todays-new-york-times
+
 **Primoz Roglic interview: 'Cycling is one of the toughest sports. That’s what attracted me'**\
 `Slovenia's other cycling superstar on his unusual route into the sport and the resilience that keeps him coming back for more`\
 https://nytimes.com/athletic/6469876/2025/07/05/primoz-roglic-interview-tour-de-france/
