@@ -1,3 +1,15 @@
+**A Close Look at Camp Mystic**\
+`Many of the missing appeared to have been in cabins near the river.`\
+https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
+
+**West Ham reject £50m Kudus bid from Tottenham**\
+`Club-to-club talks continue and personal terms are not expected to be an issue.`\
+https://nytimes.com/athletic/6462846/2025/07/05/mohammed-kudus-tottenham-west-ham/
+
+**Olympic gold medalist Beatrice Chebet smashes world record in women's 5,000-meter**\
+`The Kenyan star shaved more than two seconds off the mark while pulling away from former record-holder Gudaf Tsegay on Saturday in Oregon.`\
+https://nytimes.com/athletic/6475372/2025/07/05/beatrice-chebet-world-record-5000-meter-olympic-gold/
+
 **Woman Rescued After Flood Sweeps Her 20 Miles Down River**\
 `Rescuers found the woman clutching a tree in Center Point, Texas, on Friday after she was swept away from a campsite in Ingram.`\
 https://nytimes.com/2025/07/05/us/flood-texas-center-point-rescue.html
