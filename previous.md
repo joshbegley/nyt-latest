@@ -1,3 +1,15 @@
+**Prime Tire: Unremarkable places at the British GP. Plus, on Lewis Hamilton watch**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6474621/2025/07/05/f1-british-grand-prix-lewis-hamilton-prime-tire/
+
+**Leafs development camp: Awards, observations and questions for Easton Cowan, more**\
+`From two prospects dropping the gloves to standout performances, here's what stood out at 2025 Leafs development camp.`\
+https://nytimes.com/athletic/6473348/2025/07/05/maple-leafs-2025-development-camp-easton-cowan/
+
+**Canadiens development camp notebook: The shifting priorities of player growth**\
+`The Canadiens' latest bet is on a second-year draft-eligible player, and Owen Protz is in for a big summer and bigger adjustments.`\
+https://nytimes.com/athletic/6474213/2025/07/05/canadiens-development-camp-prospects/
+
 **Parts of Central Texas could get 10 more inches of rain on Saturday.**\
 `The National Weather Service warned of “extremely dangerous” conditions, and urged people in some areas to seek higher ground immediately.`\
 https://nytimes.com/live/2025/07/05/us/texas-floods/parts-of-central-texas-could-get-10-more-inches-of-rain-on-saturday
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/05/opinion/brad-pitt-f1.html
 **Donald Trump, Our Foundering Father**\
 `The president celebrates July 4 by stroking his ego and choking the poor.`\
 https://nytimes.com/2025/07/05/opinion/donald-trump-fourth-of-july.html
-
-**It Isn’t Freedom if It’s Not for Everyone**\
-`I went to West Africa to report on girls’ education. I left convinced that the Western feminist movement has grown far too comfortable fighting only for itself.`\
-https://nytimes.com/2025/07/05/opinion/africa-women-feminism.html
-
-**Principles of the 24-hour athlete: How meal planning, journaling and OT can give a prospect an edge**\
-`Quinnipiac trainer Brijesh Patel explains how an athlete's routines "outside the gym and outside the arena" can take them to the next level.`\
-https://nytimes.com/athletic/6403263/2025/07/05/nhl-athlete-training-meal-planning/
-
-**Three Urgent Lessons for Democrats From the Big, Awful Bill**\
-`A road map for undoing the damage.`\
-https://nytimes.com/2025/07/05/opinion/democrats-budget-bill-trump.html
 
