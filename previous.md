@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6474213/2025/07/05/canadiens-development-camp-prosp
 
 **Parts of Central Texas could get 10 more inches of rain on Saturday.**\
 `The National Weather Service warned of “extremely dangerous” conditions, and urged people in some areas to seek higher ground immediately.`\
-https://nytimes.com/live/2025/07/05/us/texas-floods/parts-of-central-texas-could-get-10-more-inches-of-rain-on-saturday
+https://nytimes.com/2025/07/05/us/parts-of-central-texas-could-get-10-more-inches-of-rain-on-saturday.html
 
 **Israeli Ministers Set to Meet on Next Steps Toward Gaza Truce**\
 `Members of the government are poised to decide whether to proceed with negotiations after Hamas said it had responded positively to the latest truce proposal.`\

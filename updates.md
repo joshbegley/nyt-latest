@@ -1,3 +1,7 @@
+**Parts of Central Texas could get 10 more inches of rain on Saturday.**\
+`The National Weather Service warned of “extremely dangerous” conditions, and urged people in some areas to seek higher ground immediately.`\
+https://nytimes.com/2025/07/05/us/parts-of-central-texas-could-get-10-more-inches-of-rain-on-saturday.html
+
 **Oasis Reunites, Its Songs Still Stomping and Wounds Still Healing**\
 `The British band, a showcase for the intoxicating but toxic chemistry of the brothers Liam and Noel Gallagher, performed for the first time in 16 years.`\
 https://nytimes.com/2025/07/05/arts/music/oasis-reunion-tour-review.html
