@@ -1,3 +1,7 @@
+**Wimbledon recap: Pride in London and a good July 4 weekend for American players**\
+`Wimbledon is the only Grand Slam not to have had a day formally dedicated to Pride.`\
+https://nytimes.com/athletic/6474638/2025/07/05/tennis-wimbledon-recap-day-six-results-analysis-news/
+
 **How does the Cam Whitmore trade fit into the Washington Wizards' long-term plan?**\
 `Whitmore, who grew up in suburban Washington, will have a chance to make the Wizards his NBA home.`\
 https://nytimes.com/athletic/6475516/2025/07/05/cam-whitmore-trade-wizards-rockets/
