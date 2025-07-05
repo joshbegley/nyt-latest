@@ -1,3 +1,7 @@
+**Palmeiras 1 Chelsea 2 - Enzo Maresca's side moving on to semifinal**\
+`Chelsea will now take on Fluminense for a spot in next weekend's Club World Cup final.`\
+https://nytimes.com/athletic/6474349/2025/07/04/chelsea-palmeiras-palmer-maresca-club-world-cup/
+
 **The most urgent alerts came in the middle of the night.**\
 `By Erin McCann`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/weather-alerts-rivers-flooding
