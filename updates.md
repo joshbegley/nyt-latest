@@ -1,3 +1,11 @@
+**Neuer criticises Donnarumma over Musiala injury**\
+`The Bayern Munich midfielder was injured in a collision with the PSG goalkeeper just before half-time in their quarter-final.`\
+https://nytimes.com/athletic/6475331/2025/07/05/musiala-injury-donnarumma-club-world-cup/
+
+**In the Idyllic Texas Hill Country, Flash Floods Have Long Been a Threat**\
+`The region is also known as “Flash Flood Alley,” because of its propensity for high levels of rainfall and the runoff on thin soil.`\
+https://nytimes.com/2025/07/05/us/texas-hill-country-guadalupe-river.html
+
 **Blue Jackets sign restricted free agent Dmitri Voronkov to 2-year contract**\
 `Voronkov scored 18-plus goals in each of his first two NHL seasons and is regarded as one of the league's emerging power forwards.`\
 https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-free-agency-contract/
