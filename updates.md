@@ -1,3 +1,11 @@
+**Panini's WNBA Rookie Royalty card set leaves me feeling sad for the hobby: Farrell**\
+`Panini attempted to sell its latest WNBA release for as much as $30,000 per two-card box`\
+https://nytimes.com/athletic/6475006/2025/07/05/panini-rookie-royalty-clark-reese/
+
+**British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
+`Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
+https://nytimes.com/athletic/6474838/2025/07/05/british-grand-prix-qualifying/
+
 **British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
 `Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
 https://nytimes.com/athletic/6474838/2025/07/05/british-gp-qualifying-results/

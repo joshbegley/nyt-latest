@@ -1,6 +1,10 @@
+**Panini's WNBA Rookie Royalty card set leaves me feeling sad for the hobby: Farrell**\
+`Panini attempted to sell its latest WNBA release for as much as $30,000 per two-card box`\
+https://nytimes.com/athletic/6475006/2025/07/05/panini-rookie-royalty-clark-reese/
+
 **British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
 `Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
-https://nytimes.com/athletic/6474838/2025/07/05/british-gp-qualifying-results/
+https://nytimes.com/athletic/6474838/2025/07/05/british-grand-prix-qualifying/
 
 **Brighton sign Club Brugge defender Maxim de Cuyper on five-year deal**\
 `The 24-year-old played 54 times for Club Brugge last season and scored in the Champions League.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6453141/2025/07/05/jamie-gittens-chelsea-what-he-br
 **Chelsea confirm Jamie Gittens transfer from Dortmund**\
 `The 20-year-old has signed a seven-year contract at Stamford Bridge through to 2032.`\
 https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
-
-**Forest confirm signing of Igor Jesus from Botafogo**\
-`The 24-year-old striker has signed a four-year contract after featuring for Botafogo at the Club World Cup.`\
-https://nytimes.com/athletic/6474783/2025/07/05/igor-jesus-nottingham-forest-transfer/
 
