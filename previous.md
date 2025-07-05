@@ -1,3 +1,7 @@
+**Oasis Reunites, Its Songs Still Stomping and Wounds Still Healing**\
+`The British band, a showcase for the intoxicating but toxic chemistry of the brothers Liam and Noel Gallagher, performed for the first time in 16 years.`\
+https://nytimes.com/2025/07/05/arts/music/oasis-reunion-tour-review.html
+
 **Prime Tire: Unremarkable places at the British GP. Plus, on Lewis Hamilton watch**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6474621/2025/07/05/f1-british-grand-prix-lewis-hamilton-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473647/2025/07/05/williams-f1-history-frank-willia
 **Brad Pitt, Whom So Proudly We Hail**\
 `Brad Pitt, icon, is one thing that still works in America.`\
 https://nytimes.com/2025/07/05/opinion/brad-pitt-f1.html
-
-**Donald Trump, Our Foundering Father**\
-`The president celebrates July 4 by stroking his ego and choking the poor.`\
-https://nytimes.com/2025/07/05/opinion/donald-trump-fourth-of-july.html
 
