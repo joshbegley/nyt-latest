@@ -1,3 +1,7 @@
+**Violence at Synagogue and Restaurant Unnerves Jews in Melbourne**\
+`Local leaders denounced the episodes, which both took place on Friday evening: arson at a synagogue and a disturbance at an Israeli eatery.`\
+https://nytimes.com/2025/07/05/world/australia/jewish-synagogue-restaurant-violence.html
+
 **England vs France odds, prediction: Defending champs begin Euro 2025 campaign**\
 `England begin their title defence at Euro 2025 against a formidable opponent in France.`\
 https://nytimes.com/athletic/6472122/2025/07/05/england-france-odds-prediction-womens-euro/

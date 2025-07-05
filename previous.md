@@ -1,3 +1,7 @@
+**Violence at Synagogue and Restaurant Unnerves Jews in Melbourne**\
+`Local leaders denounced the episodes, which both took place on Friday evening: arson at a synagogue and a disturbance at an Israeli eatery.`\
+https://nytimes.com/2025/07/05/world/australia/jewish-synagogue-restaurant-violence.html
+
 **England vs France odds, prediction: Defending champs begin Euro 2025 campaign**\
 `England begin their title defence at Euro 2025 against a formidable opponent in France.`\
 https://nytimes.com/athletic/6472122/2025/07/05/england-france-odds-prediction-womens-euro/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/sports/tennis/wimbledon-royal-box-who.html
 **Karen Carney: England's Lauren Hemp is world class. It's time to call her that**\
 `In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
 https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
-
-**Man Utd have failed to sell Rashford, Sancho and Garnacho. It's a mess of their own making**\
-`That Rashford, Garnacho, Sancho and Antony are still Manchester United players should leave the whole club with an awful lot to ponder`\
-https://nytimes.com/athletic/6474465/2025/07/05/manchester-united-rashford-sancho-garnacho-antony-sales/
 
