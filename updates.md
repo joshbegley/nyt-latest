@@ -1,3 +1,7 @@
+**Harrison Bader's two home runs spark Twins victory over Tampa Bay**\
+`"It was awesome. Home runs are great. Walk-offs are awesome. It was my first one. It felt good just to deliver for my team, man."`\
+https://nytimes.com/athletic/6474344/2025/07/04/harrison-bader-minnesota-twins-walk-off/
+
 **WR Kaydon Finley chooses Notre Dame over father's alma mater Texas**\
 `Notre Dame will open Finley’s freshman season at Lambeau Field, where his dad Jermichael starred in his professional career.`\
 https://nytimes.com/athletic/6473782/2025/07/04/notre-dame-recruiting-kaydon-finley/

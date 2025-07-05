@@ -1,3 +1,7 @@
+**Harrison Bader's two home runs spark Twins victory over Tampa Bay**\
+`"It was awesome. Home runs are great. Walk-offs are awesome. It was my first one. It felt good just to deliver for my team, man."`\
+https://nytimes.com/athletic/6474344/2025/07/04/harrison-bader-minnesota-twins-walk-off/
+
 **WR Kaydon Finley chooses Notre Dame over father's alma mater Texas**\
 `Notre Dame will open Finley’s freshman season at Lambeau Field, where his dad Jermichael starred in his professional career.`\
 https://nytimes.com/athletic/6473782/2025/07/04/notre-dame-recruiting-kaydon-finley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474304/2025/07/04/al-hilal-club-world-cup-koulibal
 **Trump Signs Signature Policy Bill at Independence Day Event**\
 `President Trump triumphantly highlighted tax cuts in the legislation while downplaying cuts to Medicaid and other assistance for poor Americans.`\
 https://nytimes.com/2025/07/04/us/politics/trump-signs-policy-bill.html
-
-**A Frantic Search for Flooding Survivors by Air, Water and Land**\
-`Hundreds of emergency personnel were searching for stranded people, using 14 helicopters, though crews were struggling to navigate flooded roads, officials said.`\
-https://nytimes.com/2025/07/04/us/search-texas-flood-kerr-county.html
 
