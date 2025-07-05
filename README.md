@@ -1,4 +1,4 @@
-**Yankees' 4 reliever trade candidates as bullpen continues to falter**\
+**Four bullpen trade candidates as Yankees' relievers continue to falter**\
 `General manager Brian Cashman might have to do what he’s done for the last four trade deadlines: Trade for a reliever (or two).`\
 https://nytimes.com/athletic/6474371/2025/07/04/yankees-trade-reliever-candidates/
 
