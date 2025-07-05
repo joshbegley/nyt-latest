@@ -1,3 +1,11 @@
+**British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
+`Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
+https://nytimes.com/athletic/6474838/2025/07/05/british-grand-prix-qualifying/
+
+**Brighton sign Club Brugge defender Maxim de Cuyper on five-year deal**\
+`The 24-year-old played 54 times for Club Brugge last season and scored in the Champions League.`\
+https://nytimes.com/athletic/6474998/2025/07/05/brighton-club-brugge-maxim-de-cuyper-transfer/
+
 **Giants stink up Sacramento as Justin Verlander gets candid: 'I was pretty easy to hit tonight'**\
 `Verlander gave up six runs in three innings, extending his winless streak to 14 starts as a Giant.`\
 https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlander-score/

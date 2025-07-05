@@ -1,3 +1,11 @@
+**British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
+`Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
+https://nytimes.com/athletic/6474838/2025/07/05/british-grand-prix-qualifying/
+
+**Brighton sign Club Brugge defender Maxim de Cuyper on five-year deal**\
+`The 24-year-old played 54 times for Club Brugge last season and scored in the Champions League.`\
+https://nytimes.com/athletic/6474998/2025/07/05/brighton-club-brugge-maxim-de-cuyper-transfer/
+
 **Giants stink up Sacramento as Justin Verlander gets candid: 'I was pretty easy to hit tonight'**\
 `Verlander gave up six runs in three innings, extending his winless streak to 14 starts as a Giant.`\
 https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlander-score/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
 **Forest confirm signing of Igor Jesus from Botafogo**\
 `The 24-year-old striker has signed a four-year contract after featuring for Botafogo at the Club World Cup.`\
 https://nytimes.com/athletic/6474783/2025/07/05/igor-jesus-nottingham-forest-transfer/
-
-**Germany captain Gwinn out of Euro 2025 with knee injury**\
-`Gwinn, 26, underwent a scan on Saturday after being forced off in the first half of Germany's group stage opener against Poland.`\
-https://nytimes.com/athletic/6474228/2025/07/05/giulia-gwinn-injury-update-germany/
-
-**OPEC Plus Agrees to Pump More Oil in August**\
-`The increase, which the group said was a response to “a steady global economic outlook,” was higher than some analysts expected and could lead to lower oil prices.`\
-https://nytimes.com/2025/07/05/business/opec-oil-production-price.html
 
