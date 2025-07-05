@@ -1,3 +1,7 @@
+**You Can Swim in the Seine Again. Trust Me. I Just Did.**\
+`First, France cleaned the polluted river so that Olympians could swim there. Now, a year later, it is opening three sites for locals to plunge in.`\
+https://nytimes.com/2025/07/05/world/europe/france-paris-seine-river-swimming.html
+
 **Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
 `The England Under-21 international has moved to Stamford Bridge on a seven-year contract. Here is what he will offer Maresca's side... `\
 https://nytimes.com/athletic/6453141/2025/07/05/jamie-gittens-chelsea-what-he-brings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/weather/tropical-storm-chantal-south-carolina.htm
 **Efficiency Is an Ultimately Empty and Unattainable Life Goal**\
 `By Jessica Grose`\
 https://nytimes.com/2025/07/05/opinion/failed-promise-efficiency.html
-
-**Oasis Reunites, Its Songs Still Stomping and Wounds Still Healing**\
-`The British band, a showcase for the intoxicating but toxic chemistry of the brothers Liam and Noel Gallagher, performed for the first time in 16 years.`\
-https://nytimes.com/2025/07/05/arts/music/oasis-reunion-tour-review.html
 

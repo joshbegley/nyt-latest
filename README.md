@@ -1,3 +1,11 @@
+**Arsenal agree personal terms with Chelsea's Madueke**\
+`Arsenal are yet to hold talks with Chelsea over the 23-year-old, who is under contract until 2030.`\
+https://nytimes.com/athletic/6462138/2025/07/05/noni-madueke-arsenal-chelsea-transfer/
+
+**Former Wimbledon champion Elena Rybakina beaten by Clara Tauson**\
+`The 2022 winner fell in a rain-affected match on No. 2 Court.`\
+https://nytimes.com/athletic/6474798/2025/07/05/tennis-wimbledon-rybakina-tauson-result-analysis/
+
 **You Can Swim in the Seine Again. Trust Me. I Just Did.**\
 `First, France cleaned the polluted river so that Olympians could swim there. Now, a year later, it is opening three sites for locals to plunge in.`\
 https://nytimes.com/2025/07/05/world/europe/france-paris-seine-river-swimming.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6472380/2025/07/05/nba-free-agency-trades/
 **As the World Warms, Extreme Rain Is Becoming Even More Extreme**\
 `Even in places, like Central Texas, with a long history of floods, human-caused warming is creating the conditions for more frequent and severe deluges.`\
 https://nytimes.com/2025/07/05/climate/texas-flood-climate-change.html
-
-**Tropical Storm Chantal Forms Off the Coast of South Carolina**\
-`The storm is expected to bring heavy rain to the Carolinas this weekend.`\
-https://nytimes.com/2025/07/05/weather/tropical-storm-chantal-south-carolina.html
-
-**Efficiency Is an Ultimately Empty and Unattainable Life Goal**\
-`By Jessica Grose`\
-https://nytimes.com/2025/07/05/opinion/failed-promise-efficiency.html
 
