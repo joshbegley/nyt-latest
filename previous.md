@@ -1,3 +1,11 @@
+**The Pulse: Biggest NBA moves still coming?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6472380/2025/07/05/nba-free-agency-trades/
+
+**As the World Warms, Extreme Rain Is Becoming Even More Extreme**\
+`Even in places, like Central Texas, with a long history of floods, human-caused warming is creating the conditions for more frequent and severe deluges.`\
+https://nytimes.com/2025/07/05/climate/texas-flood-climate-change.html
+
 **Tropical Storm Chantal Forms Off the Coast of South Carolina**\
 `The storm is expected to bring heavy rain to the Carolinas this weekend.`\
 https://nytimes.com/2025/07/05/weather/tropical-storm-chantal-south-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/05/us/texas-rain-forecast.html
 **Israeli Ministers Set to Meet on Next Steps Toward Gaza Truce**\
 `Members of the government are poised to decide whether to proceed with negotiations after Hamas said it had responded positively to the latest truce proposal.`\
 https://nytimes.com/2025/07/05/world/middleeast/israeli-ministers-hamas-gaza-ceasefire.html
-
-**Maple Leafs depth chart 2.0: Life after Marner gets complicated**\
-`The Maple Leafs' roster for the 2025-26 season feels unfinished. What could come next?`\
-https://nytimes.com/athletic/6473723/2025/07/05/maple-leafs-depth-chart-nhl/
-
-**Tigers get key reinforcement as Reese Olson returns from injured list**\
-`In 36 outings since Sept. 2, 2023, Olson has a 3.04 ERA. Only 15 MLB pitchers with 150+ innings have a better mark in that span.`\
-https://nytimes.com/athletic/6474420/2025/07/05/reese-olsons-return-detroit-tigers/
 

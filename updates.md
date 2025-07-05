@@ -1,3 +1,11 @@
+**The Pulse: Biggest NBA moves still coming?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6472380/2025/07/05/nba-free-agency-trades/
+
+**As the World Warms, Extreme Rain Is Becoming Even More Extreme**\
+`Even in places, like Central Texas, with a long history of floods, human-caused warming is creating the conditions for more frequent and severe deluges.`\
+https://nytimes.com/2025/07/05/climate/texas-flood-climate-change.html
+
 **Tropical Storm Chantal Forms Off the Coast of South Carolina**\
 `The storm is expected to bring heavy rain to the Carolinas this weekend.`\
 https://nytimes.com/2025/07/05/weather/tropical-storm-chantal-south-carolina.html
