@@ -1,3 +1,11 @@
+**Mets show how to rebound in comeback win over Yankees**\
+`This was a bounceback win — for Reed Garrett, for a besieged bullpen and for an offense that might finally be clicking.`\
+https://nytimes.com/athletic/6474301/2025/07/04/mets-comeback-win-over-yankees-reed-garrett/
+
+**What to do if your loved one is missing or if you’ve been displaced.**\
+`The Arcadia Live Center and Ingram Elementary School are serving as reunification centers, the authorities said.`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/what-to-do-if-your-loved-one-is-missing-or-if-youve-been-displaced
+
 **Al Hilal's Kalidou Koulibaly calls out referee in Club World Cup loss**\
 `The Saudi Pro League side lost 2-1 to Fluminense in the quarter-final of the Club World Cup after its shocking win over Manchester City.`\
 https://nytimes.com/athletic/6474304/2025/07/04/al-hilal-club-world-cup-koulibaly-penalties/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/floods-camp-
 **A bipartisan effort cuts unemployment benefits for high earners.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news/a-bipartisan-effort-cuts-unemployment-benefits-for-high-earners
-
-**Phillies Jesús Luzardo can't find strike zone after mechanics fix**\
-`In five starts since Luzardo unveiled a new delivery, it's harder for him to throw strikes from the stretch.`\
-https://nytimes.com/athletic/6474218/2025/07/04/phillies-jesus-luzardo-mechanical-fix/
-
-**Pro-Palestinian Activists Lose Appeal Against U.K. Government Ban**\
-`The decision means that the group called Palestine Action will be banned as a terrorist organization in Britain while its full legal challenge to the ban plays out.`\
-https://nytimes.com/2025/07/04/world/europe/palestine-action-loses-appeal-ban-terrorist.html
 
