@@ -1,3 +1,11 @@
+**WR Kaydon Finley chooses Notre Dame over father's alma mater Texas**\
+`Notre Dame will open Finley’s freshman season at Lambeau Field, where his dad Jermichael starred in his professional career.`\
+https://nytimes.com/athletic/6473782/2025/07/04/notre-dame-recruiting-kaydon-finley/
+
+**The mother of two rescued campers relays their story.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/the-mother-of-two-rescued-campers-relays-their-story
+
 **Mamdani Once Claimed to Be Asian and African American. Should It Matter?**\
 `Zohran Mamdani’s responses on a 2009 college application were criticized by his mayoral rivals. The blowback was dismissed by his supporters as a politically motivated attack.`\
 https://nytimes.com/2025/07/04/nyregion/mamdani-college-black-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/04/us/politics/trump-signs-policy-bill.html
 **A Frantic Search for Flooding Survivors by Air, Water and Land**\
 `Hundreds of emergency personnel were searching for stranded people, using 14 helicopters, though crews were struggling to navigate flooded roads, officials said.`\
 https://nytimes.com/2025/07/04/us/search-texas-flood-kerr-county.html
-
-**The Girls Camp Where 20 Children Are Missing Is Nearly a Century Old**\
-`Camp Mystic, on the banks of the Guadalupe River in Hunt, Texas, has been operated by generations of the same family since the 1930s.`\
-https://nytimes.com/2025/07/04/us/camp-mystic-texas.html
-
-**Cardinals give up franchise-record 8 home runs in blowout loss to Cubs**\
-`Chicago hit 14 balls over 100 mph and set its own franchise record for home runs hit in a game.`\
-https://nytimes.com/athletic/6474287/2025/07/04/cardinals-franchise-record-home-runs-cubs-loss/
 
