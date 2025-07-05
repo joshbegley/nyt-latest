@@ -1,3 +1,11 @@
+**England yearn for an X factor as India expose a lack of bowling options**\
+`Shubman Gill became the first player to score 250 and 150 in the same Test as the tourists exploited a toothless England attack at Edgbaston`\
+https://nytimes.com/athletic/6474671/2025/07/05/england-bowling-india-archer-wood-carse/
+
+**In the idyllic Texas Hill Country, flash floods have long been a threat.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2025/07/05/us/texas-floods/texas-hill-country-guadalupe-river
+
 **Stuart Burrows, Welsh Lyric Tenor Who Straddled the Atlantic, Dies at 92**\
 `He was a mainstay at both the Metropolitan Opera and the Royal Opera House, winning acclaim for his full tenor range and a rich, unforced tone, notably singing Mozart.`\
 https://nytimes.com/2025/07/05/arts/music/stuart-burrows-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-resu
 **U.S. Turns Eight Migrants Over to South Sudan, Ending Weeks of Legal Limbo**\
 `Courts blocked the handover after lawyers raised concerns of torture. Then the Supreme Court intervened to allow the Trump administration’s plan to move forward.`\
 https://nytimes.com/2025/07/05/us/politics/migrants-djibouti-south-sudan.html
-
-**Fenerbahce deny Saint-Maximin's claim they gave him 'doping products'**\
-`The winger alleged that when he fell ill, Fenerbahce staff gave him “treatment that’s considered a doping product".`\
-https://nytimes.com/athletic/6475058/2025/07/05/saint-maximin-fenerbahce-doping/
-
-**The Civil War That Never Ended**\
-`A Q&A with Zaakir Tameez about Charles Sumner and the antislavery movement.`\
-https://nytimes.com/2025/07/05/opinion/zaakir-tameez-charles-sumner-slavery.html
 

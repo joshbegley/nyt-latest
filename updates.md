@@ -1,3 +1,7 @@
+**U.S. Turns Eight Migrants Over to South Sudan, Ending Weeks of Legal Limbo**\
+`Courts blocked the handover after lawyers raised concerns of torture. Then the Supreme Court intervened to allow the Trump administration’s plan to move forward.`\
+https://nytimes.com/2025/07/05/us/politics/migrants-djibouti-south-sudan.html
+
 **Stuart Burrows, Welsh Lyric Tenor Who Straddled the Atlantic, Dies at 92**\
 `He was a mainstay at both the Metropolitan Opera and the Royal Opera House, winning acclaim for his full tenor range and a rich, unforced tone, notably singing Mozart.`\
 https://nytimes.com/2025/07/05/arts/music/stuart-burrows-dead.html
