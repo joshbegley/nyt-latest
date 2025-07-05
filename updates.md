@@ -1,3 +1,11 @@
+**Woman Rescued After Flood Sweeps Her 20 Miles Down River**\
+`Rescuers found the woman clutching a tree in Center Point, Texas, on Friday after she was swept away from a campsite in Ingram.`\
+https://nytimes.com/2025/07/05/us/flood-texas-center-point-rescue.html
+
+**Woman Rescued From a Tree During Floods in Texas**\
+`Rescuers found the woman clutching a tree after she was swept up from a campsite 20 miles up river.`\
+https://nytimes.com/video/weather/100000010268994/texas-floods-water-rescue.html
+
 **Tickets for Club World Cup semi-final reduced from $473 to $13**\
 `It means that it could be cheaper to buy a ticket to that semi-final than buy a cheesesteak ($15) or beer ($14) inside MetLife.`\
 https://nytimes.com/athletic/6475113/2025/07/05/club-world-cup-tickets-semifinals/
