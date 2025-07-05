@@ -1,3 +1,7 @@
+**Braves lose to ex-teammate Charlie Morton, who would certainly help them**\
+`At this point, Morton could be more valuable to the Braves than to Baltimore.`\
+https://nytimes.com/athletic/6474439/2025/07/05/braves-lose-charlie-morton-orioles/
+
 **France's bold new era: An Einstein quote, legends consigned to the past and players' shock**\
 `The new manager has left out three players with 444 caps between them. It is a gamble but also a bold move for a refreshed, younger France`\
 https://nytimes.com/athletic/6471126/2025/07/05/france-bonadei-renard-euros/
