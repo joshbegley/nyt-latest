@@ -1,3 +1,11 @@
+**Notre Dame lands commitment from son of former NFL star Larry Fitzgerald**\
+`Devin Fitzgerald's commitment continues a trend of NFL legacies flocking to the Irish under Marcus Freeman.`\
+https://nytimes.com/athletic/6475569/2025/07/05/notre-dame-recruit-larry-fitzgerald-son/
+
+**Twins rally from 5-1 deficit, win on Brooks Lee's squeeze bunt**\
+`Brooks Lee's ninth-inning bunt single helped the Twins complete a comeback win and earn their first series victory in a month.`\
+https://nytimes.com/athletic/6475524/2025/07/05/brooks-lees-twins-bunt-walk-off/
+
 **Wimbledon recap: Pride in London and a good July 4 weekend for American players**\
 `Wimbledon is the only Grand Slam not to have had a day formally dedicated to Pride.`\
 https://nytimes.com/athletic/6474638/2025/07/05/tennis-wimbledon-recap-day-six-results-analysis-news/
