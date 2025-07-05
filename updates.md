@@ -1,3 +1,11 @@
+**Fenerbahce deny Saint-Maximin's claim they gave him 'doping products'**\
+`The winger alleged that when he fell ill, Fenerbahce staff gave him “treatment that’s considered a doping product".`\
+https://nytimes.com/athletic/6475058/2025/07/05/saint-maximin-fenerbahce-doping/
+
+**The Civil War That Never Ended**\
+`A Q&A with Zaakir Tameez about Charles Sumner and the antislavery movement.`\
+https://nytimes.com/2025/07/05/opinion/zaakir-tameez-charles-sumner-slavery.html
+
 **Panini's WNBA Rookie Royalty card set leaves me feeling sad for the hobby: Farrell**\
 `Panini attempted to sell its latest WNBA release for as much as $30,000 per two-card box`\
 https://nytimes.com/athletic/6475006/2025/07/05/panini-rookie-royalty-clark-reese/

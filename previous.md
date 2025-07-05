@@ -1,3 +1,11 @@
+**Fenerbahce deny Saint-Maximin's claim they gave him 'doping products'**\
+`The winger alleged that when he fell ill, Fenerbahce staff gave him “treatment that’s considered a doping product".`\
+https://nytimes.com/athletic/6475058/2025/07/05/saint-maximin-fenerbahce-doping/
+
+**The Civil War That Never Ended**\
+`A Q&A with Zaakir Tameez about Charles Sumner and the antislavery movement.`\
+https://nytimes.com/2025/07/05/opinion/zaakir-tameez-charles-sumner-slavery.html
+
 **Panini's WNBA Rookie Royalty card set leaves me feeling sad for the hobby: Farrell**\
 `Panini attempted to sell its latest WNBA release for as much as $30,000 per two-card box`\
 https://nytimes.com/athletic/6475006/2025/07/05/panini-rookie-royalty-clark-reese/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6474798/2025/07/05/tennis-wimbledon-rybakina-tauson
 **You Can Swim in the Seine Again. Trust Me. I Just Did.**\
 `First, France cleaned the polluted river so that Olympians could swim there. Now, a year later, it is opening three sites for locals to plunge in.`\
 https://nytimes.com/2025/07/05/world/europe/france-paris-seine-river-swimming.html
-
-**Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
-`The England Under-21 international has moved to Stamford Bridge on a seven-year contract. Here is what he will offer Maresca's side... `\
-https://nytimes.com/athletic/6453141/2025/07/05/jamie-gittens-chelsea-what-he-brings/
-
-**Chelsea confirm Jamie Gittens transfer from Dortmund**\
-`The 20-year-old has signed a seven-year contract at Stamford Bridge through to 2032.`\
-https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
 
