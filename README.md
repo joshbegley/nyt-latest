@@ -1,3 +1,15 @@
+**A Close Look at Camp Mystic**\
+`Many of the missing appeared to have been in cabins near the river.`\
+https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
+
+**West Ham reject £50m Kudus bid from Tottenham**\
+`Club-to-club talks continue and personal terms are not expected to be an issue.`\
+https://nytimes.com/athletic/6462846/2025/07/05/mohammed-kudus-tottenham-west-ham/
+
+**Olympic gold medalist Beatrice Chebet smashes world record in women's 5,000-meter**\
+`The Kenyan star shaved more than two seconds off the mark while pulling away from former record-holder Gudaf Tsegay on Saturday in Oregon.`\
+https://nytimes.com/athletic/6475372/2025/07/05/beatrice-chebet-world-record-5000-meter-olympic-gold/
+
 **Woman Rescued After Flood Sweeps Her 20 Miles Down River**\
 `Rescuers found the woman clutching a tree in Center Point, Texas, on Friday after she was swept away from a campsite in Ingram.`\
 https://nytimes.com/2025/07/05/us/flood-texas-center-point-rescue.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-fre
 **England yearn for an X factor as India expose a lack of bowling options**\
 `Shubman Gill became the first player to score 250 and 150 in the same Test as the tourists exploited a toothless England attack at Edgbaston`\
 https://nytimes.com/athletic/6474671/2025/07/05/england-bowling-india-archer-wood-carse/
-
-**In the Idyllic Texas Hill Country, Flash Floods Have Long Been a Threat**\
-`The region is also known as “Flash Flood Alley,” because of its propensity for high levels of rainfall and the runoff on thin soil.`\
-https://nytimes.com/2025/07/05/us/texas-hill-country-guadalupe-river.html
-
-**Stuart Burrows, Welsh Lyric Tenor Who Straddled the Atlantic, Dies at 92**\
-`He was a mainstay at both the Metropolitan Opera and the Royal Opera House, winning acclaim for his full tenor range and a rich, unforced tone, notably singing Mozart.`\
-https://nytimes.com/2025/07/05/arts/music/stuart-burrows-dead.html
-
-**Clarke Schmidt 'likely' to have Tommy John surgery. Should Yankees make a trade to replace him?**\
-`How will they replace him? Should they fill the job internally with a prospect? Or should they acquire a starter before the deadline? `\
-https://nytimes.com/athletic/6475146/2025/07/05/clarke-schmidt-tommy-john-surgery-yankees-trade/
 
