@@ -1,3 +1,7 @@
+**Trump again floats the idea of letting farmers hire undocumented workers.**\
+`By Alicia Chen`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-again-floats-the-idea-of-letting-farmers-hire-undocumented-workers
+
 **Cubs set a franchise record with 8 home run hits against Cardinals**\
 `The Cardinals, a franchise established in 1882, had never before surrendered eight home runs in a game.`\
 https://nytimes.com/athletic/6474291/2025/07/04/cubs-crow-armstrong-busch-franchise-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474287/2025/07/04/cardinals-franchise-record-home-
 **Trump Signs the ‘One Big Beautiful Bill’ Into Law**\
 `President Donald Trump celebrated the Fourth of July by signing his signature policy bill.`\
 https://nytimes.com/video/us/politics/100000010268448/trump-signs-the-one-big-beautiful-bill-into-law.html
-
-**Floods in the same part of Texas swept away 10 teenagers in July 1987.**\
-`By Adeel Hassan and Judson Jones`\
-https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/floods-camp-deaths-july-1987
 

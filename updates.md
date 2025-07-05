@@ -1,3 +1,7 @@
+**Trump again floats the idea of letting farmers hire undocumented workers.**\
+`By Alicia Chen`\
+https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-again-floats-the-idea-of-letting-farmers-hire-undocumented-workers
+
 **Cubs set a franchise record with 8 home run hits against Cardinals**\
 `The Cardinals, a franchise established in 1882, had never before surrendered eight home runs in a game.`\
 https://nytimes.com/athletic/6474291/2025/07/04/cubs-crow-armstrong-busch-franchise-record/
