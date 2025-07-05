@@ -1,3 +1,7 @@
+**The most urgent alerts came in the middle of the night.**\
+`By Erin McCann`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/weather-alerts-rivers-flooding
+
 **Fourth of July Fireworks Light Up the Skies**\
 `People filled the National Mall in Washington to celebrate the nation’s 249th birthday.`\
 https://nytimes.com/video/us/100000010268592/july-4th-fireworks.html

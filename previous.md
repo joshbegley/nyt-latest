@@ -1,3 +1,7 @@
+**The most urgent alerts came in the middle of the night.**\
+`By Erin McCann`\
+https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/weather-alerts-rivers-flooding
+
 **Fourth of July Fireworks Light Up the Skies**\
 `People filled the National Mall in Washington to celebrate the nation’s 249th birthday.`\
 https://nytimes.com/video/us/100000010268592/july-4th-fireworks.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-again-floats-the-id
 **Cubs set a franchise record with 8 home run hits against Cardinals**\
 `The Cardinals, a franchise established in 1882, had never before surrendered eight home runs in a game.`\
 https://nytimes.com/athletic/6474291/2025/07/04/cubs-crow-armstrong-busch-franchise-record/
-
-**Mets show how to rebound in comeback win over Yankees**\
-`This was a bounceback win — for Reed Garrett, for a besieged bullpen and for an offense that might finally be clicking.`\
-https://nytimes.com/athletic/6474301/2025/07/04/mets-comeback-win-over-yankees-reed-garrett/
 
