@@ -1,3 +1,7 @@
+**England vs France odds, prediction: Defending champs begin Euro 2025 campaign**\
+`England begin their title defence at Euro 2025 against a formidable opponent in France.`\
+https://nytimes.com/athletic/6472122/2025/07/05/england-france-odds-prediction-womens-euro/
+
 **PSG vs Bayern Munich odds, prediction: French club favoured in meeting of powers**\
 `PSG takes on Bayern Munich in a Club World Cup quarter-final that looks like `\
 https://nytimes.com/athletic/6469604/2025/07/05/psg-vs-bayern-munich-odds-prediction-french-club-favoured-in-meeting-of-european-powers/
