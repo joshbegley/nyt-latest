@@ -1,3 +1,7 @@
+**Palmeiras 1 Chelsea 2 - Enzo Maresca's side moving on to semifinal**\
+`Chelsea will now take on Fluminense for a spot in next weekend's Club World Cup final.`\
+https://nytimes.com/athletic/6474349/2025/07/04/chelsea-palmeiras-palmer-maresca-club-world-cup/
+
 **The most urgent alerts came in the middle of the night.**\
 `By Erin McCann`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/weather-alerts-rivers-flooding
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/04/nyregion/mamdani-college-black-reaction.html
 **Trump again floats the idea of letting farmers hire undocumented workers.**\
 `By Alicia Chen`\
 https://nytimes.com/live/2025/07/04/us/trump-bill-news/trump-again-floats-the-idea-of-letting-farmers-hire-undocumented-workers
-
-**Cubs set a franchise record with 8 home run hits against Cardinals**\
-`The Cardinals, a franchise established in 1882, had never before surrendered eight home runs in a game.`\
-https://nytimes.com/athletic/6474291/2025/07/04/cubs-crow-armstrong-busch-franchise-record/
 
