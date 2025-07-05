@@ -1,5 +1,9 @@
 **British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
 `Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
+https://nytimes.com/athletic/6474838/2025/07/05/british-gp-qualifying-results/
+
+**British Grand Prix qualifying results: Verstappen stuns McLaren pair to claim pole**\
+`Max Verstappen stunned McLaren driver Oscar Piastri and Lando Norris to claim pole position for the 2025 British Grand Prix`\
 https://nytimes.com/athletic/6474838/2025/07/05/british-grand-prix-qualifying/
 
 **Brighton sign Club Brugge defender Maxim de Cuyper on five-year deal**\
