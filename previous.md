@@ -1,9 +1,21 @@
+**Texas Flood Victims: What We Know**\
+`Young campers and a camp director were among at least 35 people who have died in the flooding in Central Texas.`\
+https://nytimes.com/2025/07/05/us/texas-flood-victims.html
+
+**As a Tourist Influx Makes Prices Soar, Hundreds Protest in Mexico City**\
+`The outrage reflects the growing difficulty of affording a city that has become a hot spot for Western immigrants.`\
+https://nytimes.com/2025/07/05/world/americas/mexico-city-protest-gentrification.html
+
+**Scenes From Camp Mystic a Day After Deadly Floods in Texas**\
+`Hundreds of children at the camp were rescued from ravaging floods. Debris and tree limbs covered the campgrounds on Saturday.`\
+https://nytimes.com/2025/07/05/us/camp-mystic-flood-damage.html
+
 **France outlast late changes from England to win 2-1 in Euro 2025 group D: Briefing**\
 `The Athletic analyses the key moments from England's group D loss to France at Euro 2025`\
 https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outlast-group-d/
 
 **A Close Look at Camp Mystic**\
-`Many of the missing appeared to have been in cabins near the river.`\
+`Many of the missing girls appeared to have been in cabins near the river.`\
 https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
 
 **West Ham reject £50m Kudus bid from Tottenham**\
@@ -25,16 +37,4 @@ https://nytimes.com/video/weather/100000010268994/texas-floods-water-rescue.html
 **Tickets for Club World Cup semi-final reduced from $473 to $13**\
 `It means that it could be cheaper to buy a ticket to that semi-final than buy a cheesesteak ($15) or beer ($14) inside MetLife.`\
 https://nytimes.com/athletic/6475113/2025/07/05/club-world-cup-tickets-semifinals/
-
-**Seine Reopens for Public Swimming After More Than a Century**\
-`A year after the long-polluted River Seine was cleaned for the 2024 Paris Olympics, French officials opened multiple sites for locals to go swimming.`\
-https://nytimes.com/video/world/europe/100000010268998/paris-seine-river-swim.html
-
-**Neuer criticises Donnarumma over Musiala injury**\
-`The Bayern Munich midfielder was injured in a collision with the PSG goalkeeper just before half-time in their quarter-final.`\
-https://nytimes.com/athletic/6475331/2025/07/05/musiala-injury-donnarumma-club-world-cup/
-
-**Blue Jackets sign restricted free agent Dmitri Voronkov to 2-year contract**\
-`Voronkov scored 18-plus goals in each of his first two NHL seasons and is regarded as one of the league's emerging power forwards.`\
-https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-free-agency-contract/
 
