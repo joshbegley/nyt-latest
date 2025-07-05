@@ -14,9 +14,9 @@ https://nytimes.com/athletic/6473348/2025/07/05/maple-leafs-2025-development-cam
 `The Canadiens' latest bet is on a second-year draft-eligible player, and Owen Protz is in for a big summer and bigger adjustments.`\
 https://nytimes.com/athletic/6474213/2025/07/05/canadiens-development-camp-prospects/
 
-**Parts of Central Texas could get 10 more inches of rain on Saturday.**\
-`The National Weather Service warned of “extremely dangerous” conditions, and urged people in some areas to seek higher ground immediately.`\
-https://nytimes.com/2025/07/05/us/parts-of-central-texas-could-get-10-more-inches-of-rain-on-saturday.html
+**Flooded Areas of Texas Could Get Several More Inches of Rain**\
+`The National Weather Service warned of “extremely dangerous” conditions on Saturday, and urged people in some areas to seek higher ground immediately.`\
+https://nytimes.com/2025/07/05/us/texas-rain-forecast.html
 
 **Israeli Ministers Set to Meet on Next Steps Toward Gaza Truce**\
 `Members of the government are poised to decide whether to proceed with negotiations after Hamas said it had responded positively to the latest truce proposal.`\

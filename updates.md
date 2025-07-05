@@ -1,3 +1,7 @@
+**Flooded Areas of Texas Could Get Several More Inches of Rain**\
+`The National Weather Service warned of “extremely dangerous” conditions on Saturday, and urged people in some areas to seek higher ground immediately.`\
+https://nytimes.com/2025/07/05/us/texas-rain-forecast.html
+
 **Parts of Central Texas could get 10 more inches of rain on Saturday.**\
 `The National Weather Service warned of “extremely dangerous” conditions, and urged people in some areas to seek higher ground immediately.`\
 https://nytimes.com/2025/07/05/us/parts-of-central-texas-could-get-10-more-inches-of-rain-on-saturday.html
