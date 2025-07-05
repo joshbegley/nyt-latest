@@ -1,3 +1,11 @@
+**Primoz Roglic interview: 'Cycling is one of the toughest sports. That’s what attracted me'**\
+`Slovenia's other cycling superstar on his unusual route into the sport and the resilience that keeps him coming back for more`\
+https://nytimes.com/athletic/6469876/2025/07/05/primoz-roglic-interview-tour-de-france/
+
+**Sherida Spitse's 244 caps is a European record - and she is not finished yet**\
+`The Netherlands captain has played more international matches than any other European player, male or female`\
+https://nytimes.com/athletic/6450770/2025/07/05/sherida-spitse-netherlands-most-capped/
+
 **Braves lose to ex-teammate Charlie Morton, who would certainly help them**\
 `At this point, Morton could be more valuable to the Braves than to Baltimore.`\
 https://nytimes.com/athletic/6474439/2025/07/05/braves-lose-charlie-morton-orioles/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/05/business/china-rare-earth-history.html
 **Connections: Sports Edition Coach: Hints for July 5, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6471032/2025/07/05/connections-sports-edition-hints-for-july-5-2025/
-
-**Corrections: July 5, 2025**\
-`Corrections that appeared in print on Saturday, July 5, 2025.`\
-https://nytimes.com/2025/07/05/pageoneplus/corrections-july-5-2025.html
-
-**Quote of the Day: Fuel for Ukrainians on the Front Line: This Man’s Borscht**\
-`Quotation of the Day for Saturday, July 5, 2025.`\
-https://nytimes.com/2025/07/04/pageoneplus/quote-of-the-day-fuel-for-ukrainians-on-the-front-line-this-mans-borscht.html
 

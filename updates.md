@@ -1,3 +1,11 @@
+**Primoz Roglic interview: 'Cycling is one of the toughest sports. That’s what attracted me'**\
+`Slovenia's other cycling superstar on his unusual route into the sport and the resilience that keeps him coming back for more`\
+https://nytimes.com/athletic/6469876/2025/07/05/primoz-roglic-interview-tour-de-france/
+
+**Sherida Spitse's 244 caps is a European record - and she is not finished yet**\
+`The Netherlands captain has played more international matches than any other European player, male or female`\
+https://nytimes.com/athletic/6450770/2025/07/05/sherida-spitse-netherlands-most-capped/
+
 **Braves lose to ex-teammate Charlie Morton, who would certainly help them**\
 `At this point, Morton could be more valuable to the Braves than to Baltimore.`\
 https://nytimes.com/athletic/6474439/2025/07/05/braves-lose-charlie-morton-orioles/
