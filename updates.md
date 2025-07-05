@@ -1,3 +1,11 @@
+**England yearn for an X factor as India expose a lack of bowling options**\
+`Shubman Gill became the first player to score 250 and 150 in the same Test as the tourists exploited a toothless England attack at Edgbaston`\
+https://nytimes.com/athletic/6474671/2025/07/05/england-bowling-india-archer-wood-carse/
+
+**In the idyllic Texas Hill Country, flash floods have long been a threat.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2025/07/05/us/texas-floods/texas-hill-country-guadalupe-river
+
 **U.S. Turns Eight Migrants Over to South Sudan, Ending Weeks of Legal Limbo**\
 `Courts blocked the handover after lawyers raised concerns of torture. Then the Supreme Court intervened to allow the Trump administration’s plan to move forward.`\
 https://nytimes.com/2025/07/05/us/politics/migrants-djibouti-south-sudan.html
