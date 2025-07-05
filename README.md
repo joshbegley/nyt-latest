@@ -1,3 +1,7 @@
+**Fourth of July Fireworks Light Up the Skies**\
+`People filled the National Mall in Washington to celebrate the nation’s 249th birthday.`\
+https://nytimes.com/video/us/100000010268592/july-4th-fireworks.html
+
 **Four bullpen trade candidates as Yankees' relievers continue to falter**\
 `General manager Brian Cashman might have to do what he’s done for the last four trade deadlines: Trade for a reliever (or two).`\
 https://nytimes.com/athletic/6474371/2025/07/04/yankees-trade-reliever-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474291/2025/07/04/cubs-crow-armstrong-busch-franch
 **Mets show how to rebound in comeback win over Yankees**\
 `This was a bounceback win — for Reed Garrett, for a besieged bullpen and for an offense that might finally be clicking.`\
 https://nytimes.com/athletic/6474301/2025/07/04/mets-comeback-win-over-yankees-reed-garrett/
-
-**What to do if your loved one is missing or if you’ve been displaced.**\
-`The Arcadia Live Center and Ingram Elementary School are serving as reunification centers, the authorities said.`\
-https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/what-to-do-if-your-loved-one-is-missing-or-if-youve-been-displaced
 
