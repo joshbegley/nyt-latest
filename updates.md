@@ -1,3 +1,7 @@
+**Fourth of July Fireworks Light Up the Skies**\
+`People filled the National Mall in Washington to celebrate the nation’s 249th birthday.`\
+https://nytimes.com/video/us/100000010268592/july-4th-fireworks.html
+
 **Four bullpen trade candidates as Yankees' relievers continue to falter**\
 `General manager Brian Cashman might have to do what he’s done for the last four trade deadlines: Trade for a reliever (or two).`\
 https://nytimes.com/athletic/6474371/2025/07/04/yankees-trade-reliever-candidates/
