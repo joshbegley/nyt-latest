@@ -1,3 +1,19 @@
+**PSG vs Bayern Munich odds, prediction: French club favoured in meeting of powers**\
+`PSG takes on Bayern Munich in a Club World Cup quarter-final that looks like `\
+https://nytimes.com/athletic/6469604/2025/07/05/psg-vs-bayern-munich-odds-prediction-french-club-favoured-in-meeting-of-european-powers/
+
+**Combs’s Racketeering Acquittal Was a Rare Misfire for a Powerful Law**\
+`The Racketeer Influenced and Corrupt Organizations Act has been an effective cudgel in a variety of criminal cases. Some defense lawyers say prosecutors use it unfairly.`\
+https://nytimes.com/2025/07/05/nyregion/sean-combs-rico-act.html
+
+**How Suzanne Vega Spends Her Day Off Tour**\
+`Ms. Vega, best known for her 1987 hit “Luka,” slips around New York City mostly unnoticed as she goes from Buddhist meetings to Central Park and cozy dinners with her husband.`\
+https://nytimes.com/2025/07/05/nyregion/suzanne-vega-tour.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/05/crosswords/spelling-bee-forum.html
+
 **Arsenal's stance over Thomas Partey feels morally indefensible**\
 `Serious questions are being asked over club's decision not to suspend midfielder after he was accused of rape `\
 https://nytimes.com/athletic/6474118/2025/07/05/arsenals-thomas-partey-rape-charge-morals/
@@ -14,27 +30,11 @@ https://nytimes.com/2025/07/05/sports/tennis/wimbledon-royal-box-who.html
 `In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
 https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
 
+**Man Utd have failed to sell Rashford, Sancho and Garnacho. It's a mess of their own making**\
+`That Rashford, Garnacho, Sancho and Antony are still Manchester United players should leave the whole club with an awful lot to ponder`\
+https://nytimes.com/athletic/6474465/2025/07/05/manchester-united-rashford-sancho-garnacho-antony-sales/
+
 **The New York Times in Print for Saturday, July 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/05/todays-new-york-times
-
-**Primoz Roglic interview: 'Cycling is one of the toughest sports. That’s what attracted me'**\
-`Slovenia's other cycling superstar on his unusual route into the sport and the resilience that keeps him coming back for more`\
-https://nytimes.com/athletic/6469876/2025/07/05/primoz-roglic-interview-tour-de-france/
-
-**Sherida Spitse's 244 caps is a European record - and she is not finished yet**\
-`The Netherlands captain has played more international matches than any other European player, male or female`\
-https://nytimes.com/athletic/6450770/2025/07/05/sherida-spitse-netherlands-most-capped/
-
-**Braves lose to ex-teammate Charlie Morton, who would certainly help them**\
-`At this point, Morton could be more valuable to the Braves than to Baltimore.`\
-https://nytimes.com/athletic/6474439/2025/07/05/braves-lose-charlie-morton-orioles/
-
-**France's bold new era: An Einstein quote, legends consigned to the past and players' shock**\
-`The new manager has left out three players with 444 caps between them. It is a gamble but also a bold move for a refreshed, younger France`\
-https://nytimes.com/athletic/6471126/2025/07/05/france-bonadei-renard-euros/
-
-**Remembering Andre Silva: How Diogo Jota's brother forged his own football path**\
-`He may have lacked his brother's celebrity, but Andre was also a fine footballer whose death is being deeply mourned`\
-https://nytimes.com/athletic/6473347/2025/07/05/andre-silva-diogo-jota-brother-crash/
 

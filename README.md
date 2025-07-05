@@ -1,3 +1,7 @@
+**England vs France odds, prediction: Defending champs begin Euro 2025 campaign**\
+`England begin their title defence at Euro 2025 against a formidable opponent in France.`\
+https://nytimes.com/athletic/6472122/2025/07/05/england-france-odds-prediction-womens-euro/
+
 **PSG vs Bayern Munich odds, prediction: French club favoured in meeting of powers**\
 `PSG takes on Bayern Munich in a Club World Cup quarter-final that looks like `\
 https://nytimes.com/athletic/6469604/2025/07/05/psg-vs-bayern-munich-odds-prediction-french-club-favoured-in-meeting-of-european-powers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england
 **Man Utd have failed to sell Rashford, Sancho and Garnacho. It's a mess of their own making**\
 `That Rashford, Garnacho, Sancho and Antony are still Manchester United players should leave the whole club with an awful lot to ponder`\
 https://nytimes.com/athletic/6474465/2025/07/05/manchester-united-rashford-sancho-garnacho-antony-sales/
-
-**The New York Times in Print for Saturday, July 5, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/05/todays-new-york-times
 
