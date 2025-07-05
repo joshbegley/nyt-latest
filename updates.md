@@ -1,3 +1,11 @@
+**Giants stink up Sacramento as Justin Verlander gets candid: 'I was pretty easy to hit tonight'**\
+`Verlander gave up six runs in three innings, extending his winless streak to 14 starts as a Giant.`\
+https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlander-score/
+
+**Best Gazpacho Forever**\
+`When it’s hot and you’re hungry and thirsty and craving salt and sweetness and cold and smoothness, this is the very best thing to make.`\
+https://nytimes.com/2025/07/05/dining/best-gazpacho-recipe-for-summer.html
+
 **Arsenal agree personal terms with Chelsea's Madueke**\
 `Arsenal are yet to hold talks with Chelsea over the 23-year-old, who is under contract until 2030.`\
 https://nytimes.com/athletic/6462138/2025/07/05/noni-madueke-arsenal-chelsea-transfer/

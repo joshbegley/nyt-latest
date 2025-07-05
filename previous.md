@@ -1,3 +1,11 @@
+**Giants stink up Sacramento as Justin Verlander gets candid: 'I was pretty easy to hit tonight'**\
+`Verlander gave up six runs in three innings, extending his winless streak to 14 starts as a Giant.`\
+https://nytimes.com/athletic/6474512/2025/07/05/giants-athletics-justin-verlander-score/
+
+**Best Gazpacho Forever**\
+`When it’s hot and you’re hungry and thirsty and craving salt and sweetness and cold and smoothness, this is the very best thing to make.`\
+https://nytimes.com/2025/07/05/dining/best-gazpacho-recipe-for-summer.html
+
 **Arsenal agree personal terms with Chelsea's Madueke**\
 `Arsenal are yet to hold talks with Chelsea over the 23-year-old, who is under contract until 2030.`\
 https://nytimes.com/athletic/6462138/2025/07/05/noni-madueke-arsenal-chelsea-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6474228/2025/07/05/giulia-gwinn-injury-update-germa
 **OPEC Plus Agrees to Pump More Oil in August**\
 `The increase, which the group said was a response to “a steady global economic outlook,” was higher than some analysts expected and could lead to lower oil prices.`\
 https://nytimes.com/2025/07/05/business/opec-oil-production-price.html
-
-**The Pulse: Biggest NBA moves still coming?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6472380/2025/07/05/nba-free-agency-trades/
-
-**As the World Warms, Extreme Rain Is Becoming Even More Extreme**\
-`Even in places, like Central Texas, with a long history of floods, human-caused warming is creating the conditions for more frequent and severe deluges.`\
-https://nytimes.com/2025/07/05/climate/texas-flood-climate-change.html
 
