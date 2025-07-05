@@ -1,3 +1,7 @@
+**Braves lose to ex-teammate Charlie Morton, who would certainly help them**\
+`At this point, Morton could be more valuable to the Braves than to Baltimore.`\
+https://nytimes.com/athletic/6474439/2025/07/05/braves-lose-charlie-morton-orioles/
+
 **France's bold new era: An Einstein quote, legends consigned to the past and players' shock**\
 `The new manager has left out three players with 444 caps between them. It is a gamble but also a bold move for a refreshed, younger France`\
 https://nytimes.com/athletic/6471126/2025/07/05/france-bonadei-renard-euros/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/pageoneplus/corrections-july-5-2025.html
 **Quote of the Day: Fuel for Ukrainians on the Front Line: This Man’s Borscht**\
 `Quotation of the Day for Saturday, July 5, 2025.`\
 https://nytimes.com/2025/07/04/pageoneplus/quote-of-the-day-fuel-for-ukrainians-on-the-front-line-this-mans-borscht.html
-
-**Palmeiras 1 Chelsea 2 - Enzo Maresca's side moving on to semifinal**\
-`Chelsea will now take on Fluminense for a spot in next weekend's Club World Cup final.`\
-https://nytimes.com/athletic/6474349/2025/07/04/chelsea-palmeiras-palmer-maresca-club-world-cup/
 
