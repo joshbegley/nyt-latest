@@ -1,3 +1,11 @@
+**Yankees' 4 reliever trade candidates as bullpen continues to falter**\
+`General manager Brian Cashman might have to do what he’s done for the last four trade deadlines: Trade for a reliever (or two).`\
+https://nytimes.com/athletic/6474371/2025/07/04/yankees-trade-reliever-candidates/
+
+**Leave Lost For Words**\
+`Tracy Bennett (not pictured) makes a sleek and modern Saturday puzzle debut.`\
+https://nytimes.com/2025/07/04/crosswords/daily-puzzle-2025-07-05.html
+
 **Harrison Bader's two home runs spark Twins victory over Tampa Bay**\
 `"It was awesome. Home runs are great. Walk-offs are awesome. It was my first one. It felt good just to deliver for my team, man."`\
 https://nytimes.com/athletic/6474344/2025/07/04/harrison-bader-minnesota-twins-walk-off/

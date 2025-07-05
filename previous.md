@@ -1,3 +1,11 @@
+**Yankees' 4 reliever trade candidates as bullpen continues to falter**\
+`General manager Brian Cashman might have to do what he’s done for the last four trade deadlines: Trade for a reliever (or two).`\
+https://nytimes.com/athletic/6474371/2025/07/04/yankees-trade-reliever-candidates/
+
+**Leave Lost For Words**\
+`Tracy Bennett (not pictured) makes a sleek and modern Saturday puzzle debut.`\
+https://nytimes.com/2025/07/04/crosswords/daily-puzzle-2025-07-05.html
+
 **Harrison Bader's two home runs spark Twins victory over Tampa Bay**\
 `"It was awesome. Home runs are great. Walk-offs are awesome. It was my first one. It felt good just to deliver for my team, man."`\
 https://nytimes.com/athletic/6474344/2025/07/04/harrison-bader-minnesota-twins-walk-off/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6474301/2025/07/04/mets-comeback-win-over-yankees-r
 **What to do if your loved one is missing or if you’ve been displaced.**\
 `The Arcadia Live Center and Ingram Elementary School are serving as reunification centers, the authorities said.`\
 https://nytimes.com/live/2025/07/04/us/texas-floods-guadalupe-river/what-to-do-if-your-loved-one-is-missing-or-if-youve-been-displaced
-
-**Al Hilal's Kalidou Koulibaly calls out referee in Club World Cup loss**\
-`The Saudi Pro League side lost 2-1 to Fluminense in the quarter-final of the Club World Cup after its shocking win over Manchester City.`\
-https://nytimes.com/athletic/6474304/2025/07/04/al-hilal-club-world-cup-koulibaly-penalties/
-
-**Trump Signs Signature Policy Bill at Independence Day Event**\
-`President Trump triumphantly highlighted tax cuts in the legislation while downplaying cuts to Medicaid and other assistance for poor Americans.`\
-https://nytimes.com/2025/07/04/us/politics/trump-signs-policy-bill.html
 
