@@ -19,7 +19,7 @@ https://nytimes.com/2025/07/05/world/americas/mexico-city-protest-gentrification
 https://nytimes.com/2025/07/05/us/camp-mystic-flood-damage.html
 
 **France outlast late changes from England to win 2-1 in Euro 2025 group D: Briefing**\
-`The Athletic analyses the key moments from England's group D loss to France at Euro 2025`\
+`The Athletic analyses the key moments from England's Group D defeat by France at Euro 2025`\
 https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outlast-group-d/
 
 **A Close Look at Camp Mystic**\
@@ -30,9 +30,9 @@ https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
 `Club-to-club talks continue and personal terms are not expected to be an issue.`\
 https://nytimes.com/athletic/6462846/2025/07/05/mohammed-kudus-tottenham-west-ham/
 
-**Olympic gold medalist Beatrice Chebet smashes world record in women's 5,000-meter**\
+**Faith Kipyegon, Beatrice Chebet smash world records at Prefontaine Classic**\
 `The Kenyan star shaved more than two seconds off the mark while pulling away from former record-holder Gudaf Tsegay on Saturday in Oregon.`\
-https://nytimes.com/athletic/6475372/2025/07/05/beatrice-chebet-world-record-5000-meter-olympic-gold/
+https://nytimes.com/athletic/6475372/2025/07/05/faith-kipyegon-beatrice-chebet-world-record-1500-5000-meter-prefontaine-classic/
 
 **Woman Rescued After Flood Sweeps Her 20 Miles Down River**\
 `Rescuers found the woman clutching a tree in Center Point, Texas, on Friday after she was swept away from a campsite in Ingram.`\

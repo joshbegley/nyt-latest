@@ -1,3 +1,11 @@
+**Escape Room**\
+`Zhou Zhang and Kevin Curry present a monumental riddle in their Sunday puzzle debut.`\
+https://nytimes.com/2025/07/05/crosswords/daily-puzzle-2025-07-06.html
+
+**Bobby Jenks, former All-Star closer for the White Sox, dies of cancer at 44**\
+`Jenks, who was a rookie on Chicago's 2005 World Series championship team, died of a form of stomach cancer.`\
+https://nytimes.com/athletic/6475394/2025/07/05/bobby-jenks-white-sox-death-cancer/
+
 **Texas Flood Victims: What We Know**\
 `Young campers and a camp director were among at least 35 people who have died in the flooding in Central Texas.`\
 https://nytimes.com/2025/07/05/us/texas-flood-victims.html
