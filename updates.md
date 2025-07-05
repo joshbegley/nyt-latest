@@ -1,3 +1,7 @@
+**Blue Jackets sign restricted free agent Dmitri Voronkov to 2-year contract**\
+`Voronkov scored 18-plus goals in each of his first two NHL seasons and is regarded as one of the league's emerging power forwards.`\
+https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-free-agency-contract/
+
 **England yearn for an X factor as India expose a lack of bowling options**\
 `Shubman Gill became the first player to score 250 and 150 in the same Test as the tourists exploited a toothless England attack at Edgbaston`\
 https://nytimes.com/athletic/6474671/2025/07/05/england-bowling-india-archer-wood-carse/

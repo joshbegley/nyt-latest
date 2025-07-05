@@ -1,3 +1,7 @@
+**Blue Jackets sign restricted free agent Dmitri Voronkov to 2-year contract**\
+`Voronkov scored 18-plus goals in each of his first two NHL seasons and is regarded as one of the league's emerging power forwards.`\
+https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-free-agency-contract/
+
 **England yearn for an X factor as India expose a lack of bowling options**\
 `Shubman Gill became the first player to score 250 and 150 in the same Test as the tourists exploited a toothless England attack at Edgbaston`\
 https://nytimes.com/athletic/6474671/2025/07/05/england-bowling-india-archer-wood-carse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysi
 **Defending Wimbledon champion Krejcikova suffers defeat in third round**\
 `Wimbledon is guaranteed a first-time women's singles champion for the eighth consecutive tournament.`\
 https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-result-analysis/
-
-**U.S. Turns Eight Migrants Over to South Sudan, Ending Weeks of Legal Limbo**\
-`Courts blocked the handover after lawyers raised concerns of torture. Then the Supreme Court intervened to allow the Trump administration’s plan to move forward.`\
-https://nytimes.com/2025/07/05/us/politics/migrants-djibouti-south-sudan.html
 
