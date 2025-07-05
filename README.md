@@ -1,40 +1,40 @@
-**Chelsea: Kings of the short corner**\
-`Chelsea's winner against Palmeiras at the Club World Cup was weeks in the making...`\
-https://nytimes.com/athletic/6474473/2025/07/05/chelsea-palmeiras-short-corners/
+**How to watch Sparks at Fever: Indiana looks to stay hot without Caitlin Clark**\
+`The Indiana Fever are seeking revenge when the Los Angeles Sparks return to Gainbridge Fieldhouse for the second time in 10 days.`\
+https://nytimes.com/athletic/6472646/2025/07/05/sparks-at-fever-caitlin-clark-injury-wnba-how-to-watch/
 
-**Violence at Synagogue and Restaurant Unnerves Jews in Melbourne**\
-`Local leaders denounced the episodes, which both took place on Friday evening: arson at a synagogue and a disturbance at an Israeli eatery.`\
-https://nytimes.com/2025/07/05/world/australia/jewish-synagogue-restaurant-violence.html
+**Iga Swiatek moves forward on grass, with the tennis that she finds in looking backward**\
+`Świątek has all the gifts required to be a great grass-court player. She needs to win a battle between her two tennis selves to use them.`\
+https://nytimes.com/athletic/6474056/2025/07/05/tennis-iga-swiatek-game-style-wimbledon-evolution/
 
-**England vs France odds, prediction: Defending champs begin Euro 2025 campaign**\
-`England begin their title defence at Euro 2025 against a formidable opponent in France.`\
-https://nytimes.com/athletic/6472122/2025/07/05/england-france-odds-prediction-womens-euro/
+**Justice Ketanji Brown Jackson Makes Herself Heard, Prompting a Rebuke**\
+`In solo dissents this term, the justice accused the conservative majority of lawless bias. On the term’s last day, Justice Amy Coney Barrett fired back.`\
+https://nytimes.com/2025/07/05/us/supreme-court-ketanji-brown-jackson.html
 
-**PSG vs Bayern Munich odds, prediction: French club favoured in meeting of powers**\
-`PSG takes on Bayern Munich in a Club World Cup quarter-final that looks like `\
-https://nytimes.com/athletic/6469604/2025/07/05/psg-vs-bayern-munich-odds-prediction-french-club-favoured-in-meeting-of-european-powers/
+**Where Are the Men in Boys’ Lives?**\
+`Jobs working with children are largely done by women, leaving many boys, especially in low-income areas, with few men as role models.`\
+https://nytimes.com/2025/07/05/upshot/boys-men-mentors.html
 
-**Combs’s Racketeering Acquittal Was a Rare Misfire for a Powerful Law**\
-`The Racketeer Influenced and Corrupt Organizations Act has been an effective cudgel in a variety of criminal cases. Some defense lawyers say prosecutors use it unfairly.`\
-https://nytimes.com/2025/07/05/nyregion/sean-combs-rico-act.html
+**How Many Dates Should You Go On Before You Start Talking About Money?**\
+`Couples tend to dance around discussing how much they earn or owe early in a relationship. But experts agree that talking about money sooner is better than later.`\
+https://nytimes.com/2025/07/05/business/dating-relationships-salary.html
 
-**How Suzanne Vega Spends Her Day Off Tour**\
-`Ms. Vega, best known for her 1987 hit “Luka,” slips around New York City mostly unnoticed as she goes from Buddhist meetings to Central Park and cozy dinners with her husband.`\
-https://nytimes.com/2025/07/05/nyregion/suzanne-vega-tour.html
+**An Isolated Iran Looks to BRICS for Allies, Testing a New World Order**\
+`The alliance of emerging economies hopes to offer a counterweight to the United States and other Western powers. But military strikes on Iran are testing its unity.`\
+https://nytimes.com/2025/07/05/world/americas/iran-brics-summit-rio-de-janeiro.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/05/crosswords/spelling-bee-forum.html
+**Carney’s ‘Build, Baby, Build’ Faces Pushback From Indigenous Groups**\
+`Prime Minister Mark Carney wants to fast-track nation-building projects to remake Canada’s economy. Indigenous groups want a seat at the table.`\
+https://nytimes.com/2025/07/05/world/canada/carney-projects-indigenous-opposition.html
 
-**Arsenal's stance over Thomas Partey feels morally indefensible**\
-`Serious questions are being asked over club's decision not to suspend midfielder after he was accused of rape `\
-https://nytimes.com/athletic/6474118/2025/07/05/arsenals-thomas-partey-rape-charge-morals/
+**How ‘Hot’ Became a Bipartisan Political Buzzword**\
+`Political messengers on both sides of the aisle are leaning on the same adjective in an attempt to appeal to young voters.`\
+https://nytimes.com/2025/07/05/style/hot-voting-politics-mamdani-maga.html
 
-**A Napoleon From Long Island Meets His Waterloo**\
-`An American war re-enactor earned the job of Napoleon for the 210th anniversary of the battle,  despite his accent.`\
-https://nytimes.com/2025/07/05/world/europe/waterloo-reenactment-american-napoleon.html
+**How to watch USMNT vs. Mexico in the Gold Cup final: The rivalry continues**\
+`The United States will face off against rival Mexico in the 2025 Concacaf Gold Cup title match to determine tournament glory.`\
+https://nytimes.com/athletic/6472600/2025/07/05/usmnt-mexico-gold-cup-final-how-to-watch/
 
-**The Royal Box: Who’s in Wimbledon’s Most Exclusive Seats?**\
-`The event’s most coveted seats are available only through invitation, reserved for celebrities and dignitaries. Here’s a look at who’s sitting in them.`\
-https://nytimes.com/2025/07/05/sports/tennis/wimbledon-royal-box-who.html
+**Virginia Has Become a Hotbed for Immigration Arrests**\
+`Lawyers and advocates have theories as to why immigration arrests have accelerated in Virginia at a rate more than that of almost any other state.`\
+https://nytimes.com/2025/07/05/us/virginia-immigration-arrests.html
 
