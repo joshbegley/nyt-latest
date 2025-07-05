@@ -1,3 +1,7 @@
+**The Head of NATO Thinks President Trump ‘Deserves All the Praise’**\
+`Mark Rutte has only good things to say about President Trump and his impact on the world stage.`\
+https://nytimes.com/2025/07/05/magazine/mark-rutte-interview.html
+
 **How to watch Sparks at Fever: Indiana looks to stay hot without Caitlin Clark**\
 `The Indiana Fever are seeking revenge when the Los Angeles Sparks return to Gainbridge Fieldhouse for the second time in 10 days.`\
 https://nytimes.com/athletic/6472646/2025/07/05/sparks-at-fever-caitlin-clark-injury-wnba-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/style/hot-voting-politics-mamdani-maga.html
 **How to watch USMNT vs. Mexico in the Gold Cup final: The rivalry continues**\
 `The United States will face off against rival Mexico in the 2025 Concacaf Gold Cup title match to determine tournament glory.`\
 https://nytimes.com/athletic/6472600/2025/07/05/usmnt-mexico-gold-cup-final-how-to-watch/
-
-**Virginia Has Become a Hotbed for Immigration Arrests**\
-`Lawyers and advocates have theories as to why immigration arrests have accelerated in Virginia at a rate more than that of almost any other state.`\
-https://nytimes.com/2025/07/05/us/virginia-immigration-arrests.html
 
