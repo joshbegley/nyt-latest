@@ -1,3 +1,11 @@
+**Escape Room**\
+`Zhou Zhang and Kevin Curry present a monumental riddle in their Sunday puzzle debut.`\
+https://nytimes.com/2025/07/05/crosswords/daily-puzzle-2025-07-06.html
+
+**Bobby Jenks, former All-Star closer for the White Sox, dies of cancer at 44**\
+`Jenks, who was a rookie on Chicago's 2005 World Series championship team, died of a form of stomach cancer.`\
+https://nytimes.com/athletic/6475394/2025/07/05/bobby-jenks-white-sox-death-cancer/
+
 **Texas Flood Victims: What We Know**\
 `Young campers and a camp director were among at least 35 people who have died in the flooding in Central Texas.`\
 https://nytimes.com/2025/07/05/us/texas-flood-victims.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475372/2025/07/05/beatrice-chebet-world-record-500
 **Woman Rescued After Flood Sweeps Her 20 Miles Down River**\
 `Rescuers found the woman clutching a tree in Center Point, Texas, on Friday after she was swept away from a campsite in Ingram.`\
 https://nytimes.com/2025/07/05/us/flood-texas-center-point-rescue.html
-
-**Woman Rescued From a Tree During Floods in Texas**\
-`Rescuers found the woman clutching a tree after she was swept up from a campsite 20 miles up river.`\
-https://nytimes.com/video/weather/100000010268994/texas-floods-water-rescue.html
-
-**Tickets for Club World Cup semi-final reduced from $473 to $13**\
-`It means that it could be cheaper to buy a ticket to that semi-final than buy a cheesesteak ($15) or beer ($14) inside MetLife.`\
-https://nytimes.com/athletic/6475113/2025/07/05/club-world-cup-tickets-semifinals/
 
