@@ -1,3 +1,11 @@
+**Real Madrid 3-2 Dortmund: Mbappe's spectacular volley and Courtois' save of the tournament in frantic finale**\
+`Madrid scored twice early on at MetLife and looked to be easing into the last four before a blockbuster finish to their quarter-final`\
+https://nytimes.com/athletic/6475332/2025/07/05/real-madrid-mbappe-goal-courtois-save-club-world-cup/
+
+**Elon Musk Says He Will Start a New Political Party**\
+`The tech billionaire, who has publicly feuded with President Trump, wrote on social media that he would be creating “the America Party,” though he hadn’t yet filed paperwork.`\
+https://nytimes.com/2025/07/05/us/politics/elon-musk-third-party.html
+
 **For the Parents of Camp Mystic, an Agonizing Wait for Their Missing Children**\
 `Stories of rescues have begun trickling out, but 27 children remain unaccounted for from a storied camp on the Guadalupe River in Texas Hill Country.`\
 https://nytimes.com/2025/07/05/us/politics/camp-mystic.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outl
 **A Close Look at Camp Mystic**\
 `Many of the missing girls appeared to have been in cabins near the river.`\
 https://nytimes.com/interactive/2025/07/05/us/camp-mystic-texas-flooding.html
-
-**West Ham reject £50m Kudus bid from Tottenham**\
-`Club-to-club talks continue and personal terms are not expected to be an issue.`\
-https://nytimes.com/athletic/6462846/2025/07/05/mohammed-kudus-tottenham-west-ham/
-
-**Faith Kipyegon, Beatrice Chebet smash world records at Prefontaine Classic**\
-`Kipyegon, just over a week removed from her sub-four-minute mile attempt, set the new official mark in the 1,500-meter.`\
-https://nytimes.com/athletic/6475372/2025/07/05/faith-kipyegon-beatrice-chebet-world-record-1500-5000-meter-prefontaine-classic/
 

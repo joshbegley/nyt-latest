@@ -1,3 +1,15 @@
+**For the Parents of Camp Mystic, an Agonizing Wait for Their Missing Children**\
+`Stories of rescues have begun trickling out, but 27 children remain unaccounted for from a storied camp on the Guadalupe River in Texas Hill Country.`\
+https://nytimes.com/2025/07/05/us/politics/camp-mystic.html
+
+**Bobby Jenks, All-Star closer and White Sox cult hero, dies of cancer at 44**\
+`Jenks, who was a rookie on Chicago's 2005 World Series championship team, died of a form of stomach cancer.`\
+https://nytimes.com/athletic/6475394/2025/07/05/bobby-jenks-white-sox-death-cancer/
+
+**Faith Kipyegon, Beatrice Chebet smash world records at Prefontaine Classic**\
+`Kipyegon, just over a week removed from her sub-four-minute mile attempt, set the new official mark in the 1,500-meter.`\
+https://nytimes.com/athletic/6475372/2025/07/05/faith-kipyegon-beatrice-chebet-world-record-1500-5000-meter-prefontaine-classic/
+
 **France outlast late changes from England to win 2-1 in Euro 2025 group D: Briefing**\
 `The Athletic analyses the key moments from England's Group D defeat by France at Euro 2025`\
 https://nytimes.com/athletic/6475390/2025/07/05/the-briefing-france-england-outlast-group-d/
