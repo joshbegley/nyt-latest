@@ -1,3 +1,7 @@
+**Chelsea: Kings of the short corner**\
+`Chelsea's winner against Palmeiras at the Club World Cup was weeks in the making...`\
+https://nytimes.com/athletic/6474473/2025/07/05/chelsea-palmeiras-short-corners/
+
 **Violence at Synagogue and Restaurant Unnerves Jews in Melbourne**\
 `Local leaders denounced the episodes, which both took place on Friday evening: arson at a synagogue and a disturbance at an Israeli eatery.`\
 https://nytimes.com/2025/07/05/world/australia/jewish-synagogue-restaurant-violence.html
