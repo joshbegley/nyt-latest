@@ -1,3 +1,15 @@
+**Arsenal's stance over Thomas Partey feels morally indefensible**\
+`Serious questions are being asked over club's decision not to suspend midfielder after he was accused of rape `\
+https://nytimes.com/athletic/6474118/2025/07/05/arsenals-thomas-partey-rape-charge-morals/
+
+**A Napoleon From Long Island Meets His Waterloo**\
+`An American war re-enactor earned the job of Napoleon for the 210th anniversary of the battle,  despite his accent.`\
+https://nytimes.com/2025/07/05/world/europe/waterloo-reenactment-american-napoleon.html
+
+**The Royal Box: Who’s in Wimbledon’s Most Exclusive Seats?**\
+`The event’s most coveted seats are available only through invitation, reserved for celebrities and dignitaries. Here’s a look at who’s sitting in them.`\
+https://nytimes.com/2025/07/05/sports/tennis/wimbledon-royal-box-who.html
+
 **Karen Carney: England's Lauren Hemp is world class. It's time to call her that**\
 `In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
 https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6471126/2025/07/05/france-bonadei-renard-euros/
 **Remembering Andre Silva: How Diogo Jota's brother forged his own football path**\
 `He may have lacked his brother's celebrity, but Andre was also a fine footballer whose death is being deeply mourned`\
 https://nytimes.com/athletic/6473347/2025/07/05/andre-silva-diogo-jota-brother-crash/
-
-**Lionesses and leadership: Who will step up in the absence of Bright and Earps?**\
-`England go into the Euros without some of the mainstays of the Sarina Wiegman era - but there is no lack of experience`\
-https://nytimes.com/athletic/6462378/2025/07/05/england-leadership-euros-bright-earps/
-
-**PSG vs Bayern tactical preview: Clash between two elite pressing teams leaves no margin for error**\
-`The Club World Cup quarter-final between two European heavyweights could be won or lost out of possession`\
-https://nytimes.com/athletic/6473263/2025/07/05/psg-vs-bayern-tactical-preview-club-world-cup-pressing/
-
-**China Has Paid a High Price for Its Dominance in Rare Earths**\
-`Dust and groundwater contaminated with heavy metals and radioactive chemicals pose a health threat that the authorities have been trying to address for years.`\
-https://nytimes.com/2025/07/05/business/china-rare-earth-environment.html
 
