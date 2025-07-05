@@ -1,3 +1,7 @@
+**Tickets for Club World Cup semi-final reduced from $473 to $13**\
+`It means that it could be cheaper to buy a ticket to that semi-final than buy a cheesesteak ($15) or beer ($14) inside MetLife.`\
+https://nytimes.com/athletic/6475113/2025/07/05/club-world-cup-tickets-semifinals/
+
 **Seine Reopens for Public Swimming After More Than a Century**\
 `A year after the long-polluted River Seine was cleaned for the 2024 Paris Olympics, French officials opened multiple sites for locals to go swimming.`\
 https://nytimes.com/video/world/europe/100000010268998/paris-seine-river-swim.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475094/2025/07/05/psg-bayern-club-world-cup-analys
 **Ehlers excited for fresh start with Hurricanes, calls Jets exit 'very emotional'**\
 `"I told (the Jets) they didn't do anything wrong," Ehlers said. "I loved it there. I love the organization, the people in it, the guys."`\
 https://nytimes.com/athletic/6475107/2025/07/05/nikolaj-ehlers-hurricanes-jets-winnipeg/
-
-**Trump Says He Will Start Talks With China on TikTok Deal**\
-`President Trump has declined to enforce a statutory ban of the popular social media app while his administration negotiates a deal for an American company to acquire it.`\
-https://nytimes.com/2025/07/05/us/politics/trump-china-tiktok.html
 
