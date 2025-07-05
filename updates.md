@@ -1,3 +1,11 @@
+**Real Madrid 3-2 Dortmund: Mbappe's spectacular volley and Courtois' save of the tournament in frantic finale**\
+`Madrid scored twice early on at MetLife and looked to be easing into the last four before a blockbuster finish to their quarter-final`\
+https://nytimes.com/athletic/6475332/2025/07/05/real-madrid-mbappe-goal-courtois-save-club-world-cup/
+
+**Elon Musk Says He Will Start a New Political Party**\
+`The tech billionaire, who has publicly feuded with President Trump, wrote on social media that he would be creating “the America Party,” though he hadn’t yet filed paperwork.`\
+https://nytimes.com/2025/07/05/us/politics/elon-musk-third-party.html
+
 **For the Parents of Camp Mystic, an Agonizing Wait for Their Missing Children**\
 `Stories of rescues have begun trickling out, but 27 children remain unaccounted for from a storied camp on the Guadalupe River in Texas Hill Country.`\
 https://nytimes.com/2025/07/05/us/politics/camp-mystic.html
