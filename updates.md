@@ -1,3 +1,7 @@
+**Germany captain Gwinn out of Euro 2025 with knee injury**\
+`Gwinn, 26, underwent a scan on Saturday after being forced off in the first half of Germany's group stage opener against Poland.`\
+https://nytimes.com/athletic/6474228/2025/07/05/giulia-gwinn-injury-update-germany/
+
 **OPEC Plus Agrees to Pump More Oil in August**\
 `The increase, which the group said was a response to “a steady global economic outlook,” was higher than some analysts expected and could lead to lower oil prices.`\
 https://nytimes.com/2025/07/05/business/opec-oil-production-price.html

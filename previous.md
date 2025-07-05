@@ -1,3 +1,7 @@
+**Germany captain Gwinn out of Euro 2025 with knee injury**\
+`Gwinn, 26, underwent a scan on Saturday after being forced off in the first half of Germany's group stage opener against Poland.`\
+https://nytimes.com/athletic/6474228/2025/07/05/giulia-gwinn-injury-update-germany/
+
 **OPEC Plus Agrees to Pump More Oil in August**\
 `The increase, which the group said was a response to “a steady global economic outlook,” was higher than some analysts expected and could lead to lower oil prices.`\
 https://nytimes.com/2025/07/05/business/opec-oil-production-price.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473348/2025/07/05/maple-leafs-2025-development-cam
 **Canadiens development camp notebook: The shifting priorities of player growth**\
 `The Canadiens' latest bet is on a second-year draft-eligible player, and Owen Protz is in for a big summer and bigger adjustments.`\
 https://nytimes.com/athletic/6474213/2025/07/05/canadiens-development-camp-prospects/
-
-**Flooded Areas of Texas Could Get Several More Inches of Rain**\
-`The National Weather Service warned of “extremely dangerous” conditions on Saturday, and urged people in some areas to seek higher ground immediately.`\
-https://nytimes.com/2025/07/05/us/texas-rain-forecast.html
 
