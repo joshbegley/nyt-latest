@@ -1,3 +1,7 @@
+**Neuer criticises Donnarumma over Musiala injury**\
+`The Bayern Munich midfielder was injured in a collision with the PSG goalkeeper just before half-time in their quarter-final.`\
+https://nytimes.com/athletic/6475331/2025/07/05/musiala-injury-donnarumma-club-world-cup/
+
 **Blue Jackets sign restricted free agent Dmitri Voronkov to 2-year contract**\
 `Voronkov scored 18-plus goals in each of his first two NHL seasons and is regarded as one of the league's emerging power forwards.`\
 https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-free-agency-contract/
@@ -6,9 +10,9 @@ https://nytimes.com/athletic/6475308/2025/07/05/dmitri-voronkov-blue-jackets-fre
 `Shubman Gill became the first player to score 250 and 150 in the same Test as the tourists exploited a toothless England attack at Edgbaston`\
 https://nytimes.com/athletic/6474671/2025/07/05/england-bowling-india-archer-wood-carse/
 
-**In the idyllic Texas Hill Country, flash floods have long been a threat.**\
-`By Rick Rojas`\
-https://nytimes.com/live/2025/07/05/us/texas-floods/texas-hill-country-guadalupe-river
+**In the Idyllic Texas Hill Country, Flash Floods Have Long Been a Threat**\
+`The region is also known as “Flash Flood Alley,” because of its propensity for high levels of rainfall and the runoff on thin soil.`\
+https://nytimes.com/2025/07/05/us/texas-hill-country-guadalupe-river.html
 
 **Stuart Burrows, Welsh Lyric Tenor Who Straddled the Atlantic, Dies at 92**\
 `He was a mainstay at both the Metropolitan Opera and the Royal Opera House, winning acclaim for his full tenor range and a rich, unforced tone, notably singing Mozart.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/us/politics/trump-china-tiktok.html
 **The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
 `Analysis from the opening stage of the 2025 Tour de France`\
 https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysis/
-
-**Defending Wimbledon champion Krejcikova suffers defeat in third round**\
-`Wimbledon is guaranteed a first-time women's singles champion for the eighth consecutive tournament.`\
-https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-result-analysis/
 
