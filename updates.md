@@ -1,3 +1,7 @@
+**OPEC Plus Agrees to Pump More Oil in August**\
+`The increase, which the group said was a response to “a steady global economic outlook,” was higher than some analysts expected and could lead to lower oil prices.`\
+https://nytimes.com/2025/07/05/business/opec-oil-production-price.html
+
 **The Pulse: Biggest NBA moves still coming?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6472380/2025/07/05/nba-free-agency-trades/

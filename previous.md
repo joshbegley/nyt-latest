@@ -1,3 +1,7 @@
+**OPEC Plus Agrees to Pump More Oil in August**\
+`The increase, which the group said was a response to “a steady global economic outlook,” was higher than some analysts expected and could lead to lower oil prices.`\
+https://nytimes.com/2025/07/05/business/opec-oil-production-price.html
+
 **The Pulse: Biggest NBA moves still coming?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6472380/2025/07/05/nba-free-agency-trades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474213/2025/07/05/canadiens-development-camp-prosp
 **Flooded Areas of Texas Could Get Several More Inches of Rain**\
 `The National Weather Service warned of “extremely dangerous” conditions on Saturday, and urged people in some areas to seek higher ground immediately.`\
 https://nytimes.com/2025/07/05/us/texas-rain-forecast.html
-
-**Israeli Ministers Set to Meet on Next Steps Toward Gaza Truce**\
-`Members of the government are poised to decide whether to proceed with negotiations after Hamas said it had responded positively to the latest truce proposal.`\
-https://nytimes.com/2025/07/05/world/middleeast/israeli-ministers-hamas-gaza-ceasefire.html
 
