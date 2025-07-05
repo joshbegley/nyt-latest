@@ -1,3 +1,7 @@
+**Defending Wimbledon champion Krejcikova suffers defeat in third round**\
+`Wimbledon is guaranteed a first-time women's singles champion for the eighth consecutive tournament.`\
+https://nytimes.com/athletic/6475096/2025/07/05/tennis-wimbledon-krejcikova-result-analysis/
+
 **The Briefing — Tour de France stage one: Philipsen takes yellow as Vingegaard and Pogacar distance rivals in wind**\
 `Analysis from the opening stage of the 2025 Tour de France`\
 https://nytimes.com/athletic/6474617/2025/07/05/tour-de-france-stage-one-analysis/
