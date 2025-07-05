@@ -1,3 +1,7 @@
+**Chelsea: Kings of the short corner**\
+`Chelsea's winner against Palmeiras at the Club World Cup was weeks in the making...`\
+https://nytimes.com/athletic/6474473/2025/07/05/chelsea-palmeiras-short-corners/
+
 **Violence at Synagogue and Restaurant Unnerves Jews in Melbourne**\
 `Local leaders denounced the episodes, which both took place on Friday evening: arson at a synagogue and a disturbance at an Israeli eatery.`\
 https://nytimes.com/2025/07/05/world/australia/jewish-synagogue-restaurant-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/world/europe/waterloo-reenactment-american-napole
 **The Royal Box: Who’s in Wimbledon’s Most Exclusive Seats?**\
 `The event’s most coveted seats are available only through invitation, reserved for celebrities and dignitaries. Here’s a look at who’s sitting in them.`\
 https://nytimes.com/2025/07/05/sports/tennis/wimbledon-royal-box-who.html
-
-**Karen Carney: England's Lauren Hemp is world class. It's time to call her that**\
-`In an exclusive column for The Athletic, former England winger Karen Carney talks about what makes Lauren Hemp so good`\
-https://nytimes.com/athletic/6473339/2025/07/05/karen-carney-lauren-hemp-england-world-class/
 
