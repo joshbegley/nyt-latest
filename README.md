@@ -1,3 +1,7 @@
+**Jamie Gittens will fill a left-wing gap for Chelsea and is one of Europe's most direct dribblers**\
+`The England Under-21 international has moved to Stamford Bridge on a seven-year contract. Here is what he will offer Maresca's side... `\
+https://nytimes.com/athletic/6453141/2025/07/05/jamie-gittens-chelsea-what-he-brings/
+
 **Chelsea confirm Jamie Gittens transfer from Dortmund**\
 `The 20-year-old has signed a seven-year contract at Stamford Bridge through to 2032.`\
 https://nytimes.com/athletic/6460201/2025/07/05/jamie-gittens-chelsea-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/05/opinion/failed-promise-efficiency.html
 **Oasis Reunites, Its Songs Still Stomping and Wounds Still Healing**\
 `The British band, a showcase for the intoxicating but toxic chemistry of the brothers Liam and Noel Gallagher, performed for the first time in 16 years.`\
 https://nytimes.com/2025/07/05/arts/music/oasis-reunion-tour-review.html
-
-**Prime Tire: Unremarkable places at the British GP. Plus, on Lewis Hamilton watch**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6474621/2025/07/05/f1-british-grand-prix-lewis-hamilton-prime-tire/
 
