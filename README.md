@@ -1,3 +1,11 @@
+**Crystal Palace closing in on Sosa signing from Ajax**\
+`Ajax have given the left-back permission to travel to the UK ahead of a proposed move and he is set to undergo a medical on Monday.`\
+https://nytimes.com/athletic/6474015/2025/07/06/borna-sosa-crystal-palace-medical/
+
+**The Pilgrimage to Ozzy Osbourne’s Last Gig**\
+`Heavy metal fans crossed continents to converge on Birmingham, England, and throw devil horns in honor of the Prince of Darkness and Black Sabbath.`\
+https://nytimes.com/2025/07/06/arts/music/ozzy-osbourne-black-sabbath.html
+
 **Police Officer Shot Outside Immigration Detention Facility in Texas**\
 `Several armed people were taken into custody after officers responded to a report of a suspicious person outside the detention center, officials said.`\
 https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475583/2025/07/06/ace-bailey-utah-jazz-summer-leag
 **British Grand Prix: Nico Hülkenberg ends F1-record podium drought**\
 `It was a dream ending for two drivers — and almost another for Lewis Hamilton.`\
 https://nytimes.com/athletic/6475119/2025/07/06/british-grand-prix-result-norris-mclaren-hulkenberg-podium/
-
-**Chinese club fined for placing 'feudal superstitious items' in away locker room**\
-`Changchun Xidu have been fined 30,000 yuan (£3,070, $4,100) following a league review into the incident.`\
-https://nytimes.com/athletic/6473431/2025/07/06/chinese-football-league-fine/
-
-**Sweet and Spicy Tofu With Soba Noodles to Refuel and Restore**\
-`An ideal low-effort, high-yield meal to close out a busy weekend.`\
-https://nytimes.com/2025/07/06/dining/healthy-tofu-with-soba-noodles-recipe.html
 
