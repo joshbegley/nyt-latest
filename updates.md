@@ -1,3 +1,11 @@
+**Angel Reese, Alyssa Thomas headline WNBA All-Star reserves**\
+`Who are the biggest surprises and omissions in Sunday's reveal?`\
+https://nytimes.com/athletic/6476407/2025/07/06/wnba-all-star-game-2025-roster-reserves/
+
+**British Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 British Grand Prix?`\
+https://nytimes.com/athletic/6475132/2025/07/06/british-grand-prix-submit-your-questions-for-our-f1-mailbag/
+
 **Blue Jackets Sunday Gathering: Dmitri Voronkov's new contract comes with demands**\
 `Voronkov's conditioning played a role in his contract, and we have notes from development camp.`\
 https://nytimes.com/athletic/6474106/2025/07/06/blue-jackets-dmitri-voronkov-contract/
