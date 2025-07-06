@@ -1,3 +1,7 @@
+**'Thank you, for making so many people happy' - Gondomar mourns Diogo Jota, their humble hero**\
+`Jack Lang reports from Portugal on the impact that Jota's death has had on the region where he grew up and leaves such an indelible mark`\
+https://nytimes.com/athletic/6475168/2025/07/06/diogo-jota-gondomar-funeral-tribute/
+
 **PSG lean on new-found championship mentality as they target Club World Cup triumph**\
 `Luis Enrique has turned a team who were used to falling short on the grandest stages into mentality monsters aiming to conquer the world`\
 https://nytimes.com/athletic/6475713/2025/07/06/psg-club-world-cup-mentality/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6470817/2025/07/06/arsenal-noni-madueke-tactical-pr
 **Switzerland's Sydney Schertenleib, an Instagram DM and why Barca wasted no time signing her**\
 `The teenager has had a rapid rise after joining Barcelona and has earned a reputation as one of Europe's most exciting prospects`\
 https://nytimes.com/athletic/6468046/2025/07/06/sydney-schertenleib-switzerland-barcelona/
-
-**The enduring legacy of Denmark's 1986 World Cup kits: Stripes, chevrons and 'carnival suits'**\
-`In 1986, Denmark thrilled in a set of striking Hummel kits that still set hearts fluttering today`\
-https://nytimes.com/athletic/6455716/2025/07/06/denmark-world-cup-hummel-kits-1986/
 
