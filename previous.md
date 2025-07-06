@@ -1,3 +1,11 @@
+**Sweet and Spicy Tofu With Soba Noodles to Refuel and Restore**\
+`An ideal low-effort, high-yield meal to close out a busy weekend.`\
+https://nytimes.com/2025/07/06/dining/healthy-tofu-with-soba-noodles-recipe.html
+
+**More rain is expected in the Texas region devastated by flooding.**\
+`Forecasters warned further rounds of rain were expected through Tuesday, potentially causing more flooding in already-saturated areas.`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/more-rain-is-expected-in-the-texas-region-devastated-by-flooding
+
 **How Wimbledon electronic line call failure led to a player losing a game on Centre Court**\
 `It is the first year Wimbledon is using electronic line calling instead of line judges.`\
 https://nytimes.com/athletic/6476350/2025/07/06/wimbledon-electronic-line-calling-pavlyuchenkova-kartal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475182/2025/07/06/f1-british-gp-lego-trophy/
 **How Europe Got Stuck Between Xi’s China and Trump’s America**\
 `European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
 https://nytimes.com/2025/07/06/world/europe/european-union-china-tariffs.html
-
-**Jim Parkinson, Logo Artist in Print’s Glory Days, Dies at 83**\
-`His work blended classic design with a loose ’60s-style energy, giving publications like Rolling Stone an identity that radiated with gravitas and personality.`\
-https://nytimes.com/2025/07/06/arts/design/jim-parkinson-dead.html
-
-**Deadly Floods in Texas**\
-`We have the latest on what happened and the search for survivors.`\
-https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
 

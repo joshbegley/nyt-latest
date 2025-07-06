@@ -1,3 +1,11 @@
+**Sweet and Spicy Tofu With Soba Noodles to Refuel and Restore**\
+`An ideal low-effort, high-yield meal to close out a busy weekend.`\
+https://nytimes.com/2025/07/06/dining/healthy-tofu-with-soba-noodles-recipe.html
+
+**More rain is expected in the Texas region devastated by flooding.**\
+`Forecasters warned further rounds of rain were expected through Tuesday, potentially causing more flooding in already-saturated areas.`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/more-rain-is-expected-in-the-texas-region-devastated-by-flooding
+
 **How Wimbledon electronic line call failure led to a player losing a game on Centre Court**\
 `It is the first year Wimbledon is using electronic line calling instead of line judges.`\
 https://nytimes.com/athletic/6476350/2025/07/06/wimbledon-electronic-line-calling-pavlyuchenkova-kartal/
