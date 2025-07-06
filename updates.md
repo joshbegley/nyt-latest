@@ -1,3 +1,7 @@
+**Padres’ Yu Darvish to make season debut Monday**\
+`Darvish has not pitched in a big-league game since he started the Padres’ 2024 postseason finale.`\
+https://nytimes.com/athletic/6443963/2025/07/06/sd-padres-yu-darvish-2025-debut/
+
 **The threat of flash flooding continues in Hill Country.**\
 `The National Weather Service issued several more flash flood warnings on Sunday afternoon and told people to seek higher ground.`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/texas-hill-country-flood-warning-forecast
