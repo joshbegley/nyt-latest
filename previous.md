@@ -1,3 +1,7 @@
+**Kevin Durant trade to Rockets part of NBA-record 7-team deal: Sources**\
+`Six players who were in the NBA last season will change teams in the megadeal.`\
+https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
+
 **Social Security Email Says Policy Bill Eliminates Tax on Benefits. Does It?**\
 `The Social Security Administration circulated an imprecise email about the provisions in the new law. Here’s what it actually does.`\
 https://nytimes.com/2025/07/06/your-money/social-security-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6476407/2025/07/06/wnba-all-star-game-2025-roster-r
 **British Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 British Grand Prix?`\
 https://nytimes.com/athletic/6475132/2025/07/06/british-grand-prix-submit-your-questions-for-our-f1-mailbag/
-
-**Blue Jackets Sunday Gathering: Dmitri Voronkov's new contract comes with demands**\
-`Voronkov's conditioning played a role in his contract, and we have notes from development camp.`\
-https://nytimes.com/athletic/6474106/2025/07/06/blue-jackets-dmitri-voronkov-contract/
 

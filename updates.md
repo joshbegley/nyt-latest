@@ -1,3 +1,7 @@
+**Kevin Durant trade to Rockets part of NBA-record 7-team deal: Sources**\
+`Six players who were in the NBA last season will change teams in the megadeal.`\
+https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
+
 **Social Security Email Says Policy Bill Eliminates Tax on Benefits. Does It?**\
 `The Social Security Administration circulated an imprecise email about the provisions in the new law. Here’s what it actually does.`\
 https://nytimes.com/2025/07/06/your-money/social-security-tax.html
