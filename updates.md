@@ -1,3 +1,7 @@
+**How Europe Got Stuck Between Xi’s China and Trump’s America**\
+`European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
+https://nytimes.com/2025/07/06/world/europe/european-union-china-tariffs.html
+
 **Jim Parkinson, Logo Artist in Print’s Glory Days, Dies at 83**\
 `His work blended classic design with a loose ’60s-style energy, giving publications like Rolling Stone an identity that radiated with gravitas and personality.`\
 https://nytimes.com/2025/07/06/arts/design/jim-parkinson-dead.html
