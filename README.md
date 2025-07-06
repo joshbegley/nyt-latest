@@ -1,3 +1,7 @@
+**How Europe Got Stuck Between Xi’s China and Trump’s America**\
+`European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
+https://nytimes.com/2025/07/06/world/europe/european-union-china-tariffs.html
+
 **Jim Parkinson, Logo Artist in Print’s Glory Days, Dies at 83**\
 `His work blended classic design with a loose ’60s-style energy, giving publications like Rolling Stone an identity that radiated with gravitas and personality.`\
 https://nytimes.com/2025/07/06/arts/design/jim-parkinson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475814/2025/07/06/wales-euros-anthem-bucket-nether
 **Arsenal confirm Zubimendi signing from Real Sociedad**\
 `The 26-year-old midfielder is Arsenal's second signing of the summer transfer window under new sporting director Andrea Berta.`\
 https://nytimes.com/athletic/6439762/2025/07/06/martin-zubimendi-arsenal-transfer-news/
-
-**Cooper Flagg brings competitive drive to Mavericks, which stems from days of picking peas**\
-`Flagg has gone from sitting on a bucket for hours at a time harvesting peas to finding a place in the NBA as the No. 1 draft pick.`\
-https://nytimes.com/athletic/6471900/2025/07/06/cooper-flagg-mavericks-nba-maine-farm-peas/
 

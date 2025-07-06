@@ -1,3 +1,7 @@
+**Jim Parkinson, Logo Artist in Print’s Glory Days, Dies at 83**\
+`His work blended classic design with a loose ’60s-style energy, giving publications like Rolling Stone an identity that radiated with gravitas and personality.`\
+https://nytimes.com/2025/07/06/arts/design/jim-parkinson-dead.html
+
 **Deadly Floods in Texas**\
 `We have the latest on what happened and the search for survivors.`\
 https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
