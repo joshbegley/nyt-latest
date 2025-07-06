@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Monday, July 7, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/06/todays-new-york-times-international-edition
+**Cooper Flagg brings competitive drive to Mavericks, which stems from days of picking peas**\
+`Flagg has gone from sitting on a bucket for hours at a time harvesting peas to finding a place in the NBA as the No. 1 draft pick.`\
+https://nytimes.com/athletic/6471900/2025/07/06/cooper-flagg-mavericks-nba-maine-farm-peas/
 
-**Here’s the latest.**\
-`By Yan Zhuang, Edgar Sandoval, Rick Rojas and Jack Healy`\
-https://nytimes.com/live/2025/07/06/us/texas-floods/heres-the-latest
+**If this is it for NASCAR's Chicago Street Race, drivers will miss a 'favorite event'**\
+`As NASCAR's Chicago Street Race embarks on its third, and perhaps final, edition, drivers spoke fondly about the experiment's legacy.`\
+https://nytimes.com/athletic/6475364/2025/07/06/nascar-chicago-street-race-last-year-future/
 
-**Live Updates: Desperate Search for Missing in Texas Floods as Death Toll Passes 50**\
-`Some two dozen girls from a summer camp along the Guadalupe River in the Texas Hill Country are among those unaccounted for. More rain could fall in hard-hit areas on Sunday.`\
-https://nytimes.com/live/2025/07/06/us/texas-floods
+**Why John Mozeliak, Cardinals could wait out the clock before trade deadline**\
+`As the Cardinals hover around contention, the call whether to buy, sell or hold ahead of trade deadline could come down to the wire.`\
+https://nytimes.com/athletic/6473987/2025/07/06/john-mozeliak-cardinals-wait-out-trade-deadline/
 
-**The Wimbledon curfew and the Grand Slam with an early bedtime**\
-`Wimbledon is the only tennis major with a hard stop. It is another example of its being a law unto itself.`\
-https://nytimes.com/athletic/6473920/2025/07/06/tennis-wimbledon-curfew-rule-explained-grand-slam/
+**Why history is not enough for Silverstone as F1 returns to its ‘forever’ home**\
+`Silverstone hosted the first world championship F1 event and is celebrates the 75th anniversary in 2025. But it's also future-proofing too`\
+https://nytimes.com/athletic/6474645/2025/07/06/silverstone-british-grand-prix-f1-75/
 
-**‘Tears My Heart to Pieces’: North Carolina Braces for Medicaid Cuts**\
-`President Trump’s domestic policy law jeopardizes plans to reopen one rural county’s hospital — and health coverage for hundreds of thousands of state residents.`\
-https://nytimes.com/2025/07/06/us/north-carolina-medicaid-cuts.html
+**This is the Casey Mize the Detroit Tigers have been waiting to see**\
+`Casey Mize has a 2.34 ERA over his past six starts and threw seven scoreless Sunday against the Guardians. `\
+https://nytimes.com/athletic/6475742/2025/07/06/casey-mize-tigers-improvement/
 
-**China and Russia Keep Their Distance From Iran During Crisis**\
-`Some U.S. officials talked about an “axis” of authoritarian nations, but the American and Israeli war with Iran has exposed the limits of that idea.`\
-https://nytimes.com/2025/07/06/us/politics/axis-china-russia-iran-north-korea.html
+**One of the Worst Industries in the World Gets Its Comeuppance**\
+`Porn platforms just got what they deserved at the Supreme Court.`\
+https://nytimes.com/2025/07/06/opinion/scotus-porn-free-speech.html
 
-**How Democrats Lost on Immigration**\
-`There is agreement among Democrats that the party had a problem on immigration and border security in the 2024 election, but there’s no consensus on how to fix it. Lisa Lerer, a national political correspondent for The New York Times, describes how the party got here.`\
-https://nytimes.com/video/us/politics/100000010262134/how-democrats-lost-on-immigration.html
+**Jeff Flake: In Today’s G.O.P., Voting Your Conscience Is Disqualifying**\
+`What Senator Thom Tillis’s retirement says about today’s Republican Party.`\
+https://nytimes.com/2025/07/06/opinion/trump-tillis-senate-republicans.html
 
-**Is Pilates Political?**\
-`A video about thinness, femininity and fascism has inspired months of debate in the fitness community.`\
-https://nytimes.com/2025/07/06/style/pilates-politics-trump.html
+**Walt Whitman Would Have Hated This**\
+`Trump’s cuts to the N.E.A. and the N.E.H. will leave America depleted.`\
+https://nytimes.com/2025/07/06/opinion/doge-nea-neh-walt-whitman.html
 
-**A Beachy Family Drama With a Shocking Twist**\
-`Bruce Holsinger tackles timely topics and the ties that bind in “Culpability.”`\
-https://nytimes.com/2025/07/06/books/review/culpability-bruce-holsinger.html
+**Wordle Review No. 1,479**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 7, 2025.`\
+https://nytimes.com/2025/07/06/crosswords/wordle-review-1479.html
 
-**Europe’s Dilemma: Build a Military Industry or Keep Relying on the U.S.**\
-`Europeans have agreed to pay more for arms and want to spend it at home. But can its manufacturers rush to compete with dominant U.S. firms?`\
-https://nytimes.com/2025/07/06/world/europe/europe-military-spending.html
+**Democrats Need to Understand That Opinions on Israel Are Changing Fast**\
+`What we can learn from the New York Democratic mayoral primary.`\
+https://nytimes.com/2025/07/06/opinion/zohran-mamdani-democrats-israel.html
 
