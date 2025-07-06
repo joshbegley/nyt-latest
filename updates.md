@@ -1,3 +1,11 @@
+**Crystal Palace closing in on Sosa signing from Ajax**\
+`Ajax have given the left-back permission to travel to the UK ahead of a proposed move and he is set to undergo a medical on Monday.`\
+https://nytimes.com/athletic/6474015/2025/07/06/borna-sosa-crystal-palace-medical/
+
+**The Pilgrimage to Ozzy Osbourne’s Last Gig**\
+`Heavy metal fans crossed continents to converge on Birmingham, England, and throw devil horns in honor of the Prince of Darkness and Black Sabbath.`\
+https://nytimes.com/2025/07/06/arts/music/ozzy-osbourne-black-sabbath.html
+
 **Police Officer Shot Outside Immigration Detention Facility in Texas**\
 `Several armed people were taken into custody after officers responded to a report of a suspicious person outside the detention center, officials said.`\
 https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html

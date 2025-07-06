@@ -1,3 +1,7 @@
+**Akash Deep delivered - and helped India completely turn the tables**\
+`Deep's ten wickets in the match and 430 runs from Gill has levelled the series - and set-up a mouthwatering third Test at Lord's`\
+https://nytimes.com/athletic/6476622/2025/07/06/akash-deep-shubman-gill-england-india/
+
 **Crystal Palace closing in on Sosa signing from Ajax**\
 `Ajax have given the left-back permission to travel to the UK ahead of a proposed move and he is set to undergo a medical on Monday.`\
 https://nytimes.com/athletic/6474015/2025/07/06/borna-sosa-crystal-palace-medical/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474106/2025/07/06/blue-jackets-dmitri-voronkov-con
 **Jazz rookie Ace Bailey wants to focus on the task at hand: 'Basketball is the job'**\
 `"Ace was always the first one in the gym," Rutgers head coach Steve Pikiell said. Bailey represents hope for Jazz fans looking for a star.`\
 https://nytimes.com/athletic/6475583/2025/07/06/ace-bailey-utah-jazz-summer-league/
-
-**British Grand Prix: Nico Hülkenberg ends F1-record podium drought**\
-`It was a dream ending for two drivers — and almost another for Lewis Hamilton.`\
-https://nytimes.com/athletic/6475119/2025/07/06/british-grand-prix-result-norris-mclaren-hulkenberg-podium/
 
