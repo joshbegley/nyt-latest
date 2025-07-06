@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, July 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/06/todays-new-york-times-international-edition
+
 **Here’s the latest.**\
 `By Yan Zhuang, Edgar Sandoval, Rick Rojas and Jack Healy`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/heres-the-latest

@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, July 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/06/todays-new-york-times-international-edition
+
 **Here’s the latest.**\
 `By Yan Zhuang, Edgar Sandoval, Rick Rojas and Jack Healy`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/books/review/culpability-bruce-holsinger.html
 **Europe’s Dilemma: Build a Military Industry or Keep Relying on the U.S.**\
 `Europeans have agreed to pay more for arms and want to spend it at home. But can its manufacturers rush to compete with dominant U.S. firms?`\
 https://nytimes.com/2025/07/06/world/europe/europe-military-spending.html
-
-**She Wanted to Save the World From A.I. Then the Killings Started.**\
-`At first, Ziz LaSota seemed much like any other philosophically inclined young tech aspirant. Now, she and her followers are in jail, six people are dead, and Rationalists are examining whether their ideas played a role.`\
-https://nytimes.com/2025/07/06/business/ziz-lasota-zizians-rationalists.html
 
