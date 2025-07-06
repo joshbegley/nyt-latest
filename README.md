@@ -1,3 +1,7 @@
+**Musiala set for at least four months out with fractured fibula**\
+`The 22-year-old is returning to Munich to undergo surgery and it is anticipated he will be unavailable until November at the earliest.`\
+https://nytimes.com/athletic/6475892/2025/07/06/jamal-musiala-injury-bayern-munich/
+
 **How does Sarina Wiegman solve England's problems after her first Euros loss?**\
 `The England coach is in uncharted territory having won all her previous group games at the Euros, but will now need to make changes`\
 https://nytimes.com/athletic/6475536/2025/07/06/england-wiegman-euros-france/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/nyregion/onetaste-orgasmic-meditation-publicity.h
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/06/crosswords/spelling-bee-forum.html
-
-**Jamal Musiala and the injury that has cast a shadow over a brilliant young career**\
-`Some in Bayern Munich ranks harshly pointed the finger at Gianluigi Donnarumma for the challenge that left the youngster seriously injured`\
-https://nytimes.com/athletic/6475553/2025/07/06/jamal-musiala-bayern-munich-injury-donnarumma/
 
