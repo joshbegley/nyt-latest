@@ -1,3 +1,7 @@
+**Kylian Mbappe, Thibault Courtois and the anatomy of a wonder goal and save**\
+`Real were clinically efficient in both boxes during a frantic period of added time to see off Borussia Dortmund and reach the semi-finals`\
+https://nytimes.com/athletic/6475749/2025/07/06/mbappe-courtois-real-madrid-dortmund-wonder-goal-save/
+
 **Where Saints, Sinners and a Shah Adorn a Wall**\
 `The portraits of world leaders hanging in the 15th-floor boardroom of The New York Times are not an endorsement.`\
 https://nytimes.com/2025/07/06/insider/iran-shah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodie
 **Messi makes uncharacteristic mistake, atones with two spectacular goals**\
 `The Argentina star quickly made up for a stunning mishap in Montreal.`\
 https://nytimes.com/athletic/6475785/2025/07/06/messi-inter-miami-mls-montreal/
-
-**The New York Times in Print for Sunday, July 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/06/todays-new-york-times
 
