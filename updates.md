@@ -1,3 +1,7 @@
+**How does Sarina Wiegman solve England's problems after her first Euros loss?**\
+`The England coach is in uncharted territory having won all her previous group games at the Euros, but will now need to make changes`\
+https://nytimes.com/athletic/6475536/2025/07/06/england-wiegman-euros-france/
+
 **With One War Over, Netanyahu Heads to Washington Amid Calls to End Another**\
 `Prime Minister Benjamin Netanyahu of Israel is set to meet with President Trump on Monday as attention has turned from Iran to a cease-fire for Gaza.`\
 https://nytimes.com/2025/07/06/world/middleeast/netanyahu-trump-israel-war-gaza.html
