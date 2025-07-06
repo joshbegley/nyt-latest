@@ -1,3 +1,7 @@
+**England left exposed in midfield as Sarina Wiegman struggles to strike a balance**\
+`The defending champions suffered some ill luck against the French, but that should not mask the reality that they were generally outclassed`\
+https://nytimes.com/athletic/6475672/2025/07/06/england-midfield-james-wiegman/
+
 **Kylian Mbappe, Thibaut Courtois and the anatomy of a wonder goal and save**\
 `Real were clinically efficient in both boxes during a frantic period of added time to see off Borussia Dortmund and reach the semi-finals`\
 https://nytimes.com/athletic/6475749/2025/07/06/mbappe-courtois-real-madrid-dortmund-wonder-goal-save/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475713/2025/07/06/psg-club-world-cup-mentality/
 **7 Bodies Found at Site of California Fireworks Warehouse Explosion**\
 `The explosion, which left seven people missing, started a wildfire and forced some cities and counties to cancel or postpone Fourth of July fireworks shows.`\
 https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodies.html
-
-**Messi makes uncharacteristic mistake, atones with two spectacular goals**\
-`The Argentina star quickly made up for a stunning mishap in Montreal.`\
-https://nytimes.com/athletic/6475785/2025/07/06/messi-inter-miami-mls-montreal/
 
