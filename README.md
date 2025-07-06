@@ -1,3 +1,7 @@
+**Arsenal in advanced talks to sign Gyokeres from Sporting**\
+`A deal for the 27-year-old striker is not done as discussions continue over the fee — but the situation is progressing towards a conclusion.`\
+https://nytimes.com/athletic/6242299/2025/07/06/viktor-gyokeres-arsenal-sporting-transfer/
+
 **Martin Zubimendi is an Arsenal player... finally**\
 `Arsenal's interest in Zubimendi goes back to 2019-20. He came close to joining last summer but 12 months on, Mikel Arteta now has his man`\
 https://nytimes.com/athletic/6463451/2025/07/06/arsenal-sign-zubimendi-transfer-liverpool-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475742/2025/07/06/casey-mize-tigers-improvement/
 **One of the Worst Industries in the World Gets Its Comeuppance**\
 `Porn platforms just got what they deserved at the Supreme Court.`\
 https://nytimes.com/2025/07/06/opinion/scotus-porn-free-speech.html
-
-**Jeff Flake: In Today’s G.O.P., Voting Your Conscience Is Disqualifying**\
-`What Senator Thom Tillis’s retirement says about today’s Republican Party.`\
-https://nytimes.com/2025/07/06/opinion/trump-tillis-senate-republicans.html
 
