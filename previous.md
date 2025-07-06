@@ -1,3 +1,11 @@
+**Mistaken identity in the morgue gives one family hope: ‘We’re still out there looking.’**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/texas-floods-mistaken-identity-ramsey-steele
+
+**A Family of 6, Swept Away. Now the Survivors Wait and Hope.**\
+`A woman whose mother, stepfather, aunt, uncle and cousin are among the missing confronts the unimaginable.`\
+https://nytimes.com/2025/07/06/us/politics/texas-flood-family-survivors.html
+
 **Padres’ Yu Darvish to make season debut Monday**\
 `Darvish has not pitched in a big-league game since he started the Padres’ 2024 postseason finale.`\
 https://nytimes.com/athletic/6443963/2025/07/06/sd-padres-yu-darvish-2025-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6476179/2025/07/06/tennis-wimbledon-norrie-bounce-j
 **Piles of debris and fast-moving water complicate rescue efforts along the Guadalupe River.**\
 `In Hunt and Kerrville,`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/piles-of-debris-and-fast-moving-water-complicate-rescue-efforts-along-the-guadalupe-river
-
-**10-Minute Challenge: An Archery Contest in Ancient India**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.html
-
-**Rescuers Race Against Time in Search for Texas Flood Survivors**\
-`Crews in helicopters and trucks, in horseback and on foot have saved hundreds of lives since the flooding began on Friday.`\
-https://nytimes.com/2025/07/06/us/texas-floods-rescues.html
 
