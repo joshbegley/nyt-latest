@@ -1,3 +1,7 @@
+**Aina signs three-year Forest contract**\
+`Aina made 37 appearances in all competitions in the 2024-25 season as Forest finished seventh in the Premier League.`\
+https://nytimes.com/athletic/6301868/2025/07/06/ola-aina-contract-nottingham-forest/
+
 **Bessent Says He Expects Trade Deals by This Week’s Deadline**\
 `But the Treasury secretary also said that some countries working toward agreements with the United States could have until Aug. 1.`\
 https://nytimes.com/2025/07/06/business/economy/bessent-trade-deals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/arts/music/ozzy-osbourne-black-sabbath.html
 **Police Officer Shot Outside Immigration Detention Facility in Texas**\
 `Several armed people were taken into custody after officers responded to a report of a suspicious person outside the detention center, officials said.`\
 https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html
-
-**Tour de France stage two: Van der Poel wins frantic finale, more Vingegaard aggression and why was Milan upset?**\
-`Analysis of the second stage of the 2025 Tour de France, from Lauwin-Planque to Boulogne-sur-Mer`\
-https://nytimes.com/athletic/6476001/2025/07/06/tour-de-france-stage-two-analysis/
 

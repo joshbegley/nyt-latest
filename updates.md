@@ -1,3 +1,7 @@
+**Aina signs three-year Forest contract**\
+`Aina made 37 appearances in all competitions in the 2024-25 season as Forest finished seventh in the Premier League.`\
+https://nytimes.com/athletic/6301868/2025/07/06/ola-aina-contract-nottingham-forest/
+
 **Bessent Says He Expects Trade Deals by This Week’s Deadline**\
 `But the Treasury secretary also said that some countries working toward agreements with the United States could have until Aug. 1.`\
 https://nytimes.com/2025/07/06/business/economy/bessent-trade-deals.html
