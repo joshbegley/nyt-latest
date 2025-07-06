@@ -1,3 +1,15 @@
+**Bessent Says He Expects Trade Deals by This Week’s Deadline**\
+`But the Treasury secretary also said that some countries working toward agreements with the United States could have until Aug. 1.`\
+https://nytimes.com/2025/07/06/business/economy/bessent-trade-deals.html
+
+**Carla Maxwell, Keeper of the José Limón Flame, Dies at 79**\
+`Her stewardship of the troupe that bears his name became a model for other dance companies, like Martha Graham’s, after their founders died.`\
+https://nytimes.com/2025/07/06/arts/dance/carla-maxwell-dead.html
+
+**Jhon Duran completes loan move to Fenerbahce from Al Nassr**\
+`The 22-year-old scored 12 goals in 18 appearances for Al Nassr, who finished third in 2024-25 — 13 points off champions Al Ittihad.`\
+https://nytimes.com/athletic/6465891/2025/07/06/jhon-duran-completes-loan-move-to-fenerbahce-from-al-nassr/
+
 **Kevin Durant trade to Rockets part of NBA-record 7-team deal: Sources**\
 `Six players who were in the NBA last season will change teams in the megadeal.`\
 https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html
 **Tour de France stage two: Van der Poel wins frantic finale, more Vingegaard aggression and why was Milan upset?**\
 `Analysis of the second stage of the 2025 Tour de France, from Lauwin-Planque to Boulogne-sur-Mer`\
 https://nytimes.com/athletic/6476001/2025/07/06/tour-de-france-stage-two-analysis/
-
-**As Drones Spot Sharks, New York Beaches Are Shut Down**\
-`Drone technology seemed to contribute to an unusual number of shark sightings along Rockaway Beach in recent days. Each time swimmers were ordered out of the ocean.`\
-https://nytimes.com/2025/07/06/nyregion/shark-sightings-new-york-beaches-drones.html
-
-**Angel Reese, Alyssa Thomas headline WNBA All-Star reserves**\
-`Who are the biggest surprises and omissions in Sunday's reveal?`\
-https://nytimes.com/athletic/6476407/2025/07/06/wnba-all-star-game-2025-roster-reserves/
-
-**British Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 writers after the 2025 British Grand Prix?`\
-https://nytimes.com/athletic/6475132/2025/07/06/british-grand-prix-submit-your-questions-for-our-f1-mailbag/
 

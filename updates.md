@@ -1,3 +1,15 @@
+**Bessent Says He Expects Trade Deals by This Week’s Deadline**\
+`But the Treasury secretary also said that some countries working toward agreements with the United States could have until Aug. 1.`\
+https://nytimes.com/2025/07/06/business/economy/bessent-trade-deals.html
+
+**Carla Maxwell, Keeper of the José Limón Flame, Dies at 79**\
+`Her stewardship of the troupe that bears his name became a model for other dance companies, like Martha Graham’s, after their founders died.`\
+https://nytimes.com/2025/07/06/arts/dance/carla-maxwell-dead.html
+
+**Jhon Duran completes loan move to Fenerbahce from Al Nassr**\
+`The 22-year-old scored 12 goals in 18 appearances for Al Nassr, who finished third in 2024-25 — 13 points off champions Al Ittihad.`\
+https://nytimes.com/athletic/6465891/2025/07/06/jhon-duran-completes-loan-move-to-fenerbahce-from-al-nassr/
+
 **Kevin Durant trade to Rockets part of NBA-record 7-team deal: Sources**\
 `Six players who were in the NBA last season will change teams in the megadeal.`\
 https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
