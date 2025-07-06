@@ -1,3 +1,7 @@
+**Can You Spend 10 Minutes With This Painting?**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.html
+
 **Rescuers Race Against Time in Search for Texas Flood Survivors**\
 `Crews in helicopters and trucks, in horseback and on foot have saved hundreds of lives since the flooding began on Friday.`\
 https://nytimes.com/2025/07/06/us/texas-floods-rescues.html
