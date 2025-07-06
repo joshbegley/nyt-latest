@@ -1,3 +1,7 @@
+**The Pulse: NFL status quo? Not so fast**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6475625/2025/07/06/nfl-super-bowl-contenders-2025-the-pulse/
+
 **Francesco Farioli appointed Porto head coach**\
 `The 36-year-old joins the Portuguese club less than two months after leaving Ajax, whom he coached for one season.`\
 https://nytimes.com/athletic/6475992/2025/07/06/francesco-farioli-porto-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473987/2025/07/06/john-mozeliak-cardinals-wait-out
 **Why history is not enough for Silverstone as F1 returns to its ‘forever’ home**\
 `Silverstone hosted the first world championship F1 event and is celebrates the 75th anniversary in 2025. But it's also future-proofing too`\
 https://nytimes.com/athletic/6474645/2025/07/06/silverstone-british-grand-prix-f1-75/
-
-**This is the Casey Mize the Detroit Tigers have been waiting to see**\
-`Casey Mize has a 2.34 ERA over his past six starts and threw seven scoreless Sunday against the Guardians. `\
-https://nytimes.com/athletic/6475742/2025/07/06/casey-mize-tigers-improvement/
 
