@@ -1,3 +1,11 @@
+**Martin Zubimendi is an Arsenal player... finally**\
+`Arsenal's interest in Zubimendi goes back to 2019-20. He came close to joining last summer but 12 months on, Mikel Arteta now has his man`\
+https://nytimes.com/athletic/6463451/2025/07/06/arsenal-sign-zubimendi-transfer-liverpool-real-madrid/
+
+**Arsenal confirm Zubimendi signing from Real Sociedad**\
+`The 26-year-old midfielder is Arsenal's second signing of the summer transfer window under new sporting director Andrea Berta.`\
+https://nytimes.com/athletic/6439762/2025/07/06/martin-zubimendi-arsenal-transfer-news/
+
 **Wales Women played in front of five fans in 2021. Saturday at the Euros showed how far they have come**\
 `Wales are tournament debutants and were drawn into Euro 2025’s most desperate group, but they took heart even in defeat against the Dutch`\
 https://nytimes.com/athletic/6475814/2025/07/06/wales-euros-anthem-bucket-netherlands/
