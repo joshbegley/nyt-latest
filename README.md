@@ -1,3 +1,11 @@
+**Deadly Floods in Texas**\
+`Plus, we look at how the true-crime craze online shaped the case of the Idaho college murders.`\
+https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
+
+**Lowetide: Which Oilers players will benefit most from recent roster moves?**\
+`The first week of free agency was relatively quiet for the Oilers compared to previous seasons.`\
+https://nytimes.com/athletic/6475019/2025/07/06/oilers-depth-chart-roster-2025/
+
 **The Pulse: NFL status quo? Not so fast**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6475625/2025/07/06/nfl-super-bowl-contenders-2025-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6471900/2025/07/06/cooper-flagg-mavericks-nba-maine
 **If this is it for NASCAR's Chicago Street Race, drivers will miss a 'favorite event'**\
 `As NASCAR's Chicago Street Race embarks on its third, and perhaps final, edition, drivers spoke fondly about the experiment's legacy.`\
 https://nytimes.com/athletic/6475364/2025/07/06/nascar-chicago-street-race-last-year-future/
-
-**Why John Mozeliak, Cardinals could wait out the clock before trade deadline**\
-`As the Cardinals hover around contention, the call whether to buy, sell or hold ahead of trade deadline could come down to the wire.`\
-https://nytimes.com/athletic/6473987/2025/07/06/john-mozeliak-cardinals-wait-out-trade-deadline/
-
-**Why history is not enough for Silverstone as F1 returns to its ‘forever’ home**\
-`Silverstone hosted the first world championship F1 event and is celebrates the 75th anniversary in 2025. But it's also future-proofing too`\
-https://nytimes.com/athletic/6474645/2025/07/06/silverstone-british-grand-prix-f1-75/
 
