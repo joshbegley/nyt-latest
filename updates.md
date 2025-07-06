@@ -1,3 +1,11 @@
+**Sabres elect arbitration with Bowen Byram: Why now and what it means for both sides**\
+`Byram didn't file for player-elected salary arbitration by Saturday's deadline but the team filing means he has some control over the award.`\
+https://nytimes.com/athletic/6477038/2025/07/06/bowen-byram-sabres-salary-arbitration/
+
+**Nationals fire general manager Mike Rizzo, manager Dave Martinez**\
+`Washington faced a tough June, going 7-19, and is currently sitting in last place in the NL East`\
+https://nytimes.com/athletic/6477078/2025/07/06/nationals-fire-mike-rizzo-dave-martinez/
+
 **John Deere Classic: How Brian Campbell won a playoff for 2nd PGA Tour win**\
 `Campbell joins Rory McIlroy, Scottie Scheffler, Sepp Straka and Ben Griffin as multi-time winners so far this season.`\
 https://nytimes.com/athletic/6477050/2025/07/06/john-deere-classic-brian-campbell-pga-tour-playoff/
