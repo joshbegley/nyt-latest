@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6475785/2025/07/06/messi-inter-miami-mls-montreal/
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/06/todays-new-york-times
 
-**How to Decide, According to Neuroscience**\
+**Here Is the Science of Why You Doomscroll**\
 `Making decisions that align long-term goals and short-term rewards is challenging, but it can lead to better choices and richer lives.`\
 https://nytimes.com/2025/07/06/opinion/decisions-neuroscience-brains.html
 
