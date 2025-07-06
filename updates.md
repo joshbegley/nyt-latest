@@ -1,3 +1,11 @@
+**Hometown hero Logan Webb pitches Giants to stabilizing win in West Sacramento**\
+`Webb grew up in Rocklin, Calif., not far from the Triple-A ballpark where he took the mound Saturday night.`\
+https://nytimes.com/athletic/6475878/2025/07/06/logan-webb-giants-win/
+
+**Lego built F1 trophies for the British Grand Prix. Here’s how they did it**\
+`F1 has launched another project with Lego - this time redesigning the iconic British Grand Prix winners' trophies in Lego bricks`\
+https://nytimes.com/athletic/6475182/2025/07/06/f1-british-gp-lego-trophy/
+
 **A Law School’s Award for a Racist Paper**\
 `Readers react to an award for a law student’s essay claiming that the rights recognized in the Constitution apply only to white people. Also: Climate change.`\
 https://nytimes.com/2025/07/06/opinion/racist-paper.html
