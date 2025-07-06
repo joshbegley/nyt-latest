@@ -1,3 +1,7 @@
+**Israel’s Deadly Assault on Iran Prison Incites Fury, Even Among Dissidents**\
+`The June 23 airstrikes on Evin prison, including the hospital ward, have turned it from a hated symbol of oppression into a new rallying cry against Israel, even among the Iranian regime’s domestic critics.`\
+https://nytimes.com/2025/07/06/world/middleeast/israels-deadly-assault-on-iran-prison-incites-fury-even-among-dissidents.html
+
 **NFL, Cowboys, Texans pledge $1.5 million for flood relief in Texas**\
 `Flooding along the Guadalupe River has left at least 70 dead and many more missing.`\
 https://nytimes.com/athletic/6476760/2025/07/06/nfl-cowboys-texans-flood-relief/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/arts/dance/carla-maxwell-dead.html
 **Jhon Duran completes loan move to Fenerbahce from Al Nassr**\
 `The 22-year-old scored 12 goals in 18 appearances for Al Nassr, who finished third in 2024-25 — 13 points off champions Al Ittihad.`\
 https://nytimes.com/athletic/6465891/2025/07/06/jhon-duran-completes-loan-move-to-fenerbahce-from-al-nassr/
-
-**Kevin Durant trade to Rockets part of NBA-record 7-team deal**\
-`The June trade between the Rockets and Suns for Durant now includes the Hawks, Nets, Warriors, Lakers and Timberwolves.`\
-https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
 
