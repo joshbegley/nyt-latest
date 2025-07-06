@@ -1,3 +1,7 @@
+**Tracking Typhoon Danas**\
+`See the likely path and wind arrival times for Danas`\
+https://nytimes.com/interactive/2025/07/06/weather/danas-map-path-tracker.html
+
 **'A huge surprise': Why was England's goal disallowed against France?**\
 `Alessia Russo’s goal for England against France at Euro 2025 was disallowed for for a marginal offside ruling.`\
 https://nytimes.com/athletic/6476025/2025/07/06/alessia-russo-offside-goal-england-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475019/2025/07/06/oilers-depth-chart-roster-2025/
 **The Pulse: NFL status quo? Not so fast**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6475625/2025/07/06/nfl-super-bowl-contenders-2025-the-pulse/
-
-**Francesco Farioli appointed Porto head coach**\
-`The 36-year-old joins the Portuguese club less than two months after leaving Ajax, whom he coached for one season.`\
-https://nytimes.com/athletic/6475992/2025/07/06/francesco-farioli-porto-manager/
 
