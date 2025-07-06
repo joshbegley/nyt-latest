@@ -1,3 +1,7 @@
+**PSG lean on new-found championship mentality as they target Club World Cup triumph**\
+`Luis Enrique has turned a team who were used to falling short on the grandest stages into mentality monsters aiming to conquer the world`\
+https://nytimes.com/athletic/6475713/2025/07/06/psg-club-world-cup-mentality/
+
 **7 Bodies Found at Site of California Fireworks Warehouse Explosion**\
 `The explosion, which left seven people missing, started a wildfire and forced some cities and counties to cancel or postpone Fourth of July fireworks shows.`\
 https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodies.html
