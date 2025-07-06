@@ -1,3 +1,7 @@
+**Jim Parkinson, Logo Artist in Print’s Glory Days, Dies at 83**\
+`His work blended classic design with a loose ’60s-style energy, giving publications like Rolling Stone an identity that radiated with gravitas and personality.`\
+https://nytimes.com/2025/07/06/arts/design/jim-parkinson-dead.html
+
 **Deadly Floods in Texas**\
 `We have the latest on what happened and the search for survivors.`\
 https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6439762/2025/07/06/martin-zubimendi-arsenal-transfe
 **Cooper Flagg brings competitive drive to Mavericks, which stems from days of picking peas**\
 `Flagg has gone from sitting on a bucket for hours at a time harvesting peas to finding a place in the NBA as the No. 1 draft pick.`\
 https://nytimes.com/athletic/6471900/2025/07/06/cooper-flagg-mavericks-nba-maine-farm-peas/
-
-**If this is it for NASCAR's Chicago Street Race, drivers will miss a 'favorite event'**\
-`As NASCAR's Chicago Street Race embarks on its third, and perhaps final, edition, drivers spoke fondly about the experiment's legacy.`\
-https://nytimes.com/athletic/6475364/2025/07/06/nascar-chicago-street-race-last-year-future/
 

@@ -1,4 +1,8 @@
 **Deadly Floods in Texas**\
+`We have the latest on what happened and the search for survivors.`\
+https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
+
+**Deadly Floods in Texas**\
 `Plus, we look at how the true-crime craze online shaped the case of the Idaho college murders.`\
 https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
 

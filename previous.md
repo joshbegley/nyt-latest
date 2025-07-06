@@ -1,5 +1,5 @@
 **Deadly Floods in Texas**\
-`Plus, we look at how the true-crime craze online shaped the case of the Idaho college murders.`\
+`We have the latest on what happened and the search for survivors.`\
 https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
 
 **Lowetide: Which Oilers players will benefit most from recent roster moves?**\
