@@ -1,3 +1,7 @@
+**Wimbledon day 7: Rows over bouncing a tennis ball on a stormy day at the All England Club**\
+`Jarry and Norrie exchanged words after their fourth-round match, in which the Chilean objected to the Brit's serve rituals.`\
+https://nytimes.com/athletic/6476179/2025/07/06/tennis-wimbledon-norrie-bounce-jarry/
+
 **Piles of debris and fast-moving water complicate rescue efforts along the Guadalupe River.**\
 `In Hunt and Kerrville,`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/piles-of-debris-and-fast-moving-water-complicate-rescue-efforts-along-the-guadalupe-river
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475922/2025/07/06/f1-british-gp-nico-hulkenberg-po
 **A reservoir downstream from the flooding has room for the water, an expert says.**\
 `By Mark Walker`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/a-reservoir-downstream-from-the-flooding-has-room-for-the-water-an-expert-says
-
-**Newcastle set to appoint Midtjylland's Martin Mark as new set piece coach**\
-`The 31-year-old impressed at FC Midtjylland and is set to bolster Newcastle's specialist team.`\
-https://nytimes.com/athletic/6476649/2025/07/06/newcastle-set-piece-coach-martin-mark/
 
