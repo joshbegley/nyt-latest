@@ -1,3 +1,7 @@
+**Francesco Farioli appointed Porto head coach**\
+`The 36-year-old joins the Portuguese club less than two months after leaving Ajax, whom he coached for one season.`\
+https://nytimes.com/athletic/6475992/2025/07/06/francesco-farioli-porto-manager/
+
 **Arsenal in advanced talks to sign Gyokeres from Sporting**\
 `A deal for the 27-year-old striker is not done as discussions continue over the fee — but the situation is progressing towards a conclusion.`\
 https://nytimes.com/athletic/6242299/2025/07/06/viktor-gyokeres-arsenal-sporting-transfer/
