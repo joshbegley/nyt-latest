@@ -1,40 +1,40 @@
-**Musiala set for at least four months out with fractured fibula**\
-`The 22-year-old is returning to Munich to undergo surgery and it is anticipated he will be unavailable until November at the earliest.`\
-https://nytimes.com/athletic/6475892/2025/07/06/jamal-musiala-injury-bayern-munich/
+**Here’s the latest.**\
+`By Yan Zhuang, Edgar Sandoval, Rick Rojas and Jack Healy`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/heres-the-latest
 
-**How does Sarina Wiegman solve England's problems after her first Euros loss?**\
-`The England coach is in uncharted territory having won all her previous group games at the Euros, but will now need to make changes`\
-https://nytimes.com/athletic/6475536/2025/07/06/england-wiegman-euros-france/
+**Live Updates: Desperate Search for Missing in Texas Floods as Death Toll Passes 50**\
+`Some two dozen girls from a summer camp along the Guadalupe River in the Texas Hill Country are among those unaccounted for. More rain could fall in hard-hit areas on Sunday.`\
+https://nytimes.com/live/2025/07/06/us/texas-floods
 
-**With One War Over, Netanyahu Heads to Washington Amid Calls to End Another**\
-`Prime Minister Benjamin Netanyahu of Israel is set to meet with President Trump on Monday as attention has turned from Iran to a cease-fire for Gaza.`\
-https://nytimes.com/2025/07/06/world/middleeast/netanyahu-trump-israel-war-gaza.html
+**The Wimbledon curfew and the Grand Slam with an early bedtime**\
+`Wimbledon is the only tennis major with a hard stop. It is another example of its being a law unto itself.`\
+https://nytimes.com/athletic/6473920/2025/07/06/tennis-wimbledon-curfew-rule-explained-grand-slam/
 
-**Euro 2025 roundup: Spain's dominance, too hot to play and key set pieces for underdogs**\
-`The key moments you may have missed for each round of Euro 2024`\
-https://nytimes.com/athletic/6475180/2025/07/06/euro-2025-roundup-spains-dominance-too-hot-to-play-and-key-set-pieces-for-underdogs/
+**‘Tears My Heart to Pieces’: North Carolina Braces for Medicaid Cuts**\
+`President Trump’s domestic policy law jeopardizes plans to reopen one rural county’s hospital — and health coverage for hundreds of thousands of state residents.`\
+https://nytimes.com/2025/07/06/us/north-carolina-medicaid-cuts.html
 
-**England left exposed in midfield as Sarina Wiegman struggles to strike a balance**\
-`The defending champions suffered some ill luck against the French, but that should not mask the reality that they were generally outclassed`\
-https://nytimes.com/athletic/6475672/2025/07/06/england-midfield-james-wiegman/
+**China and Russia Keep Their Distance From Iran During Crisis**\
+`Some U.S. officials talked about an “axis” of authoritarian nations, but the American and Israeli war with Iran has exposed the limits of that idea.`\
+https://nytimes.com/2025/07/06/us/politics/axis-china-russia-iran-north-korea.html
 
-**Kylian Mbappe, Thibaut Courtois and the anatomy of a wonder goal and save**\
-`Real were clinically efficient in both boxes during a frantic period of added time to see off Borussia Dortmund and reach the semi-finals`\
-https://nytimes.com/athletic/6475749/2025/07/06/mbappe-courtois-real-madrid-dortmund-wonder-goal-save/
+**How Democrats Lost on Immigration**\
+`There is agreement among Democrats that the party had a problem on immigration and border security in the 2024 election, but there’s no consensus on how to fix it. Lisa Lerer, a national political correspondent for The New York Times, describes how the party got here.`\
+https://nytimes.com/video/us/politics/100000010262134/how-democrats-lost-on-immigration.html
 
-**Where Saints, Sinners and a Shah Adorn a Wall**\
-`The portraits of world leaders hanging in the 15th-floor boardroom of The New York Times are not an endorsement.`\
-https://nytimes.com/2025/07/06/insider/iran-shah.html
+**Is Pilates Political?**\
+`A video about thinness, femininity and fascism has inspired months of debate in the fitness community.`\
+https://nytimes.com/2025/07/06/style/pilates-politics-trump.html
 
-**‘It Took One Bounce Before My Brother Blocked It With His Stomach’**\
-`A trip to Yankee Stadium leaves a mark, a Second Avenue sneeze and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/07/06/nyregion/metropolitan-diary.html
+**A Beachy Family Drama With a Shocking Twist**\
+`Bruce Holsinger tackles timely topics and the ties that bind in “Culpability.”`\
+https://nytimes.com/2025/07/06/books/review/culpability-bruce-holsinger.html
 
-**In ‘Orgasmic Meditation’ Case, Did a Zealous Media Strategy Backfire?**\
-`After two leaders of OneTaste were convicted, a judge referred to the aggressive publicity campaign on their behalf as she jailed them until their sentencing.`\
-https://nytimes.com/2025/07/06/nyregion/onetaste-orgasmic-meditation-publicity.html
+**Europe’s Dilemma: Build a Military Industry or Keep Relying on the U.S.**\
+`Europeans have agreed to pay more for arms and want to spend it at home. But can its manufacturers rush to compete with dominant U.S. firms?`\
+https://nytimes.com/2025/07/06/world/europe/europe-military-spending.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/06/crosswords/spelling-bee-forum.html
+**She Wanted to Save the World From A.I. Then the Killings Started.**\
+`At first, Ziz LaSota seemed much like any other philosophically inclined young tech aspirant. Now, she and her followers are in jail, six people are dead, and Rationalists are examining whether their ideas played a role.`\
+https://nytimes.com/2025/07/06/business/ziz-lasota-zizians-rationalists.html
 
