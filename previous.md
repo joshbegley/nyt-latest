@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: Dmitri Voronkov's new contract comes with demands**\
+`Voronkov's conditioning played a role in his contract, and we have notes from development camp.`\
+https://nytimes.com/athletic/6474106/2025/07/06/blue-jackets-dmitri-voronkov-contract/
+
+**Jazz rookie Ace Bailey wants to focus on the task at hand: 'Basketball is the job'**\
+`"Ace was always the first one in the gym," Rutgers head coach Steve Pikiell said. Bailey represents hope for Jazz fans looking for a star.`\
+https://nytimes.com/athletic/6475583/2025/07/06/ace-bailey-utah-jazz-summer-league/
+
 **British Grand Prix: Nico Hülkenberg ends F1-record podium drought**\
 `It was a dream ending for two drivers — and almost another for Lewis Hamilton.`\
 https://nytimes.com/athletic/6475119/2025/07/06/british-grand-prix-result-norris-mclaren-hulkenberg-podium/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/07/06/weather/danas-map-path-tracker.html
 **'A huge surprise': Why was England's goal disallowed against France?**\
 `Alessia Russo’s goal for England against France at Euro 2025 was disallowed for a marginal offside ruling`\
 https://nytimes.com/athletic/6476025/2025/07/06/alessia-russo-offside-goal-england-france/
-
-**Hometown hero Logan Webb pitches Giants to stabilizing win in West Sacramento**\
-`Webb grew up in Rocklin, Calif., not far from the Triple-A ballpark where he took the mound Saturday night.`\
-https://nytimes.com/athletic/6475878/2025/07/06/logan-webb-giants-win/
-
-**A Law School’s Award for a Racist Paper**\
-`Readers react to an award for a law student’s essay claiming that the rights recognized in the Constitution apply only to white people. Also: Climate change.`\
-https://nytimes.com/2025/07/06/opinion/racist-paper.html
 
