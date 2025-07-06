@@ -1,3 +1,7 @@
+**Julian McMahon, ‘Nip/Tuck’ and ‘Fantastic Four’ Star, Dies at 56**\
+`He played the half-human, half-demon Cole Turner in the WB supernatural series “Charmed” and a self-destructive playboy in the FX series “Nip/Tuck.”`\
+https://nytimes.com/2025/07/05/arts/television/julian-mcmahon-dead.html
+
 **Here’s Why the Deadly Storm Quickly Intensified in Texas**\
 `Thunderstorms and moisture from the Gulf were among the ingredients that led to catastrophic weather and flooding in the Hill Country.`\
 https://nytimes.com/2025/07/05/weather/texas-storm-forecast-timeline.html
