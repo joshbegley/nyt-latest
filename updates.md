@@ -1,3 +1,7 @@
+**As Floods Hit, Key Roles Were Vacant at Weather Service Offices in Texas**\
+`Some experts say staff shortages might have complicated forecasters’ ability to coordinate responses with local emergency management officials.`\
+https://nytimes.com/2025/07/05/us/politics/texas-floods-warnings-vacancies.html
+
 **Yankees' free fall reaches new low in 12-6 loss to Mets**\
 `The Yankees have lost 18 of their last 27 games, watching their seven-game advantage from May 28 collapse amid struggles on both sides.`\
 https://nytimes.com/athletic/6475701/2025/07/05/free-falling-yankees-look-sloppy/

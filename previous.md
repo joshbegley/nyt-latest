@@ -1,3 +1,7 @@
+**As Floods Hit, Key Roles Were Vacant at Weather Service Offices in Texas**\
+`Some experts say staff shortages might have complicated forecasters’ ability to coordinate responses with local emergency management officials.`\
+https://nytimes.com/2025/07/05/us/politics/texas-floods-warnings-vacancies.html
+
 **Yankees' free fall reaches new low in 12-6 loss to Mets**\
 `The Yankees have lost 18 of their last 27 games, watching their seven-game advantage from May 28 collapse amid struggles on both sides.`\
 https://nytimes.com/athletic/6475701/2025/07/05/free-falling-yankees-look-sloppy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475524/2025/07/05/brooks-lee-twins-bunt-walk-off/
 **Wimbledon recap: Pride in London and a good July 4 weekend for American players**\
 `Wimbledon is the only Grand Slam not to have had a day formally dedicated to Pride.`\
 https://nytimes.com/athletic/6474638/2025/07/05/tennis-wimbledon-recap-day-six-results-analysis-news/
-
-**How does the Cam Whitmore trade fit into the Washington Wizards' long-term plan?**\
-`Whitmore, who grew up in suburban Washington, will have a chance to make the Wizards his NBA home.`\
-https://nytimes.com/athletic/6475516/2025/07/05/cam-whitmore-trade-wizards-rockets/
 
