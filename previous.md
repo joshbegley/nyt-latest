@@ -1,3 +1,7 @@
+**How F1 is influencing cycling's pursuit of speed: ‘We’re in the middle of an aero war right now’**\
+`Virtually every team in the peloton has visited the Silverstone wind-tunnel over recent seasons, chasing aerodynamic improvements`\
+https://nytimes.com/athletic/6474727/2025/07/06/cycling-formula-one-aerodynamics/
+
 **Mets' romp over Yankees reveals positive signs: 'We are dangerous'**\
 `Top half of Mets lineup gets back in the groove, a relief until rotation gets healthier.`\
 https://nytimes.com/athletic/6475756/2025/07/06/mets-yankees-subway-series-romp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/world/australia/kids-social-media-ban.html
 **The Little Mountain Democracy That Sustains Tibet’s Refugee Nation**\
 `The exile government that was built by the Dalai Lama to preserve Tibetans’ cultural identity will be put to the test by his eventual succession.`\
 https://nytimes.com/2025/07/06/world/asia/dalai-lama-tibetan-administration.html
-
-**The Coder ‘Village’ at the Heart of China’s A.I. Frenzy**\
-`As China vies with Silicon Valley for primacy, Hangzhou, home to DeepSeek and Alibaba, is where its aspiring tech titans mingle and share ideas.`\
-https://nytimes.com/2025/07/06/technology/china-artificial-intelligence-hangzhou.html
 

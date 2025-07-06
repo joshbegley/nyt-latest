@@ -1,3 +1,7 @@
+**How F1 is influencing cycling's pursuit of speed: ‘We’re in the middle of an aero war right now’**\
+`Virtually every team in the peloton has visited the Silverstone wind-tunnel over recent seasons, chasing aerodynamic improvements`\
+https://nytimes.com/athletic/6474727/2025/07/06/cycling-formula-one-aerodynamics/
+
 **Mets' romp over Yankees reveals positive signs: 'We are dangerous'**\
 `Top half of Mets lineup gets back in the groove, a relief until rotation gets healthier.`\
 https://nytimes.com/athletic/6475756/2025/07/06/mets-yankees-subway-series-romp/
