@@ -1,3 +1,7 @@
+**Olson, Sale make All-Star team, Holmes gets no support from anemic offense: Braves takeways**\
+`The Braves also slipped to 11-22 in one-run games, the most such losses in the majors.`\
+https://nytimes.com/athletic/6476963/2025/07/06/braves-olson-sale-make-all-star-team/
+
 **Wimbledon day 7: Rows over bouncing a tennis ball on a stormy day at the All England Club**\
 `Jarry and Norrie exchanged words after their fourth-round match, in which the Chilean objected to the Brit's serve rituals.`\
 https://nytimes.com/athletic/6476179/2025/07/06/tennis-wimbledon-norrie-bounce-jarry/

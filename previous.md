@@ -1,3 +1,7 @@
+**Olson, Sale make All-Star team, Holmes gets no support from anemic offense: Braves takeways**\
+`The Braves also slipped to 11-22 in one-run games, the most such losses in the majors.`\
+https://nytimes.com/athletic/6476963/2025/07/06/braves-olson-sale-make-all-star-team/
+
 **Wimbledon day 7: Rows over bouncing a tennis ball on a stormy day at the All England Club**\
 `Jarry and Norrie exchanged words after their fourth-round match, in which the Chilean objected to the Brit's serve rituals.`\
 https://nytimes.com/athletic/6476179/2025/07/06/tennis-wimbledon-norrie-bounce-jarry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6476855/2025/07/06/ny-yankees-anthony-volpe-struggl
 **After 239 races, Nico Hülkenberg scores ‘the most overdue podium in F1 history’**\
 `Nico Hülkenberg had started 238 F1 races before Sunday's 2025 British Grand Prix. In his 239th, he finally scored a podium finish`\
 https://nytimes.com/athletic/6475922/2025/07/06/f1-british-gp-nico-hulkenberg-podium-silverstone/
-
-**A reservoir downstream from the flooding has room for the water, an expert says.**\
-`By Mark Walker`\
-https://nytimes.com/live/2025/07/06/us/texas-floods/a-reservoir-downstream-from-the-flooding-has-room-for-the-water-an-expert-says
 
