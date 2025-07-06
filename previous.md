@@ -1,3 +1,11 @@
+**Wales Women played in front of five fans in 2021. Saturday at the Euros showed how far they have come**\
+`Wales are tournament debutants and were drawn into Euro 2025’s most desperate group, but they took heart even in defeat against the Dutch`\
+https://nytimes.com/athletic/6475814/2025/07/06/wales-euros-anthem-bucket-netherlands/
+
+**Arsenal confirm Zubimendi signing from Real Sociedad**\
+`The 26-year-old midfielder is Arsenal's first signing of the transfer window and the first under new sporting director Andrea Berta.`\
+https://nytimes.com/athletic/6439762/2025/07/06/martin-zubimendi-arsenal-transfer-news/
+
 **Cooper Flagg brings competitive drive to Mavericks, which stems from days of picking peas**\
 `Flagg has gone from sitting on a bucket for hours at a time harvesting peas to finding a place in the NBA as the No. 1 draft pick.`\
 https://nytimes.com/athletic/6471900/2025/07/06/cooper-flagg-mavericks-nba-maine-farm-peas/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/06/opinion/trump-tillis-senate-republicans.html
 **Walt Whitman Would Have Hated This**\
 `Trump’s cuts to the N.E.A. and the N.E.H. will leave America depleted.`\
 https://nytimes.com/2025/07/06/opinion/doge-nea-neh-walt-whitman.html
-
-**Wordle Review No. 1,479**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 7, 2025.`\
-https://nytimes.com/2025/07/06/crosswords/wordle-review-1479.html
-
-**Democrats Need to Understand That Opinions on Israel Are Changing Fast**\
-`What we can learn from the New York Democratic mayoral primary.`\
-https://nytimes.com/2025/07/06/opinion/zohran-mamdani-democrats-israel.html
 
