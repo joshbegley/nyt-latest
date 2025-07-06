@@ -1,3 +1,7 @@
+**Yankees’ Anthony Volpe: 'It might sound crazy, but I feel good' despite struggles**\
+`Entering Sunday, since June 21, Volpe's hit .136 with a home run, six RBIs and a .523 OPS in 13 games (52 plate appearances). `\
+https://nytimes.com/athletic/6476855/2025/07/06/ny-yankees-anthony-volpe-struggles/
+
 **After 239 races, Nico Hülkenberg scores ‘the most overdue podium in F1 history’**\
 `Nico Hülkenberg had started 238 F1 races before Sunday's 2025 British Grand Prix. In his 239th, he finally scored a podium finish`\
 https://nytimes.com/athletic/6475922/2025/07/06/f1-british-gp-nico-hulkenberg-podium-silverstone/

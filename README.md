@@ -1,3 +1,7 @@
+**NFL, Cowboys, Texans pledge $1.5 million for flood relief in Texas**\
+`Flooding along the Guadalupe River has left at least 70 dead and many more missing.`\
+https://nytimes.com/athletic/6476760/2025/07/06/nfl-cowboys-texans-flood-relief/
+
 **Yankees’ Anthony Volpe: 'It might sound crazy, but I feel good' despite struggles**\
 `Entering Sunday, since June 21, Volpe's hit .136 with a home run, six RBIs and a .523 OPS in 13 games (52 plate appearances). `\
 https://nytimes.com/athletic/6476855/2025/07/06/ny-yankees-anthony-volpe-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6465891/2025/07/06/jhon-duran-completes-loan-move-t
 **Kevin Durant trade to Rockets part of NBA-record 7-team deal: Sources**\
 `Six players who were in the NBA last season will change teams in the megadeal.`\
 https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
-
-**Social Security Email Says Policy Bill Eliminates Tax on Benefits. Does It?**\
-`The Social Security Administration circulated an imprecise email about the provisions in the new law. Here’s what it actually does.`\
-https://nytimes.com/2025/07/06/your-money/social-security-tax.html
 
