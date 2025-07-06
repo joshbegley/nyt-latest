@@ -1,3 +1,15 @@
+**After 239 races, Nico Hülkenberg scores ‘the most overdue podium in F1 history’**\
+`Nico Hülkenberg had started 238 F1 races before Sunday's 2025 British Grand Prix. In his 239th, he finally scored a podium finish`\
+https://nytimes.com/athletic/6475922/2025/07/06/f1-british-gp-nico-hulkenberg-podium-silverstone/
+
+**A reservoir downstream from the flooding has room for the water, an expert says.**\
+`By Mark Walker`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/a-reservoir-downstream-from-the-flooding-has-room-for-the-water-an-expert-says
+
+**Newcastle set to appoint Midtjylland's Martin Mark as new set piece coach**\
+`The 31-year-old impressed at FC Midtjylland and is set to bolster Newcastle's specialist team.`\
+https://nytimes.com/athletic/6476649/2025/07/06/newcastle-set-piece-coach-martin-mark/
+
 **Aina signs three-year Forest contract**\
 `Aina made 37 appearances in all competitions in the 2024-25 season as Forest finished seventh in the Premier League.`\
 https://nytimes.com/athletic/6301868/2025/07/06/ola-aina-contract-nottingham-forest/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/06/your-money/social-security-tax.html
 **Akash Deep delivered - and helped India completely turn the tables**\
 `Deep's ten wickets in the match and 430 runs from Gill has levelled the series - and set-up a mouthwatering third Test at Lord's`\
 https://nytimes.com/athletic/6476622/2025/07/06/akash-deep-shubman-gill-england-india/
-
-**Crystal Palace closing in on Sosa signing from Ajax**\
-`Ajax have given the left-back permission to travel to the UK ahead of a proposed move and he is set to undergo a medical on Monday.`\
-https://nytimes.com/athletic/6474015/2025/07/06/borna-sosa-crystal-palace-medical/
-
-**The Pilgrimage to Ozzy Osbourne’s Last Gig**\
-`Heavy metal fans crossed continents to converge on Birmingham, England, and throw devil horns in honor of the Prince of Darkness and Black Sabbath.`\
-https://nytimes.com/2025/07/06/arts/music/ozzy-osbourne-black-sabbath.html
-
-**Police Officer Shot Outside Immigration Detention Facility in Texas**\
-`Several armed people were taken into custody after officers responded to a report of a suspicious person outside the detention center, officials said.`\
-https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html
 
