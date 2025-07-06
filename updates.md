@@ -1,3 +1,7 @@
+**Texas Tech's latest recruiting coup: 5-star offensive tackle Felix Ojo**\
+`Red Raiders continue to be a major player in college sports’ new era of player compensation, beating several heavyweights to top prospect.`\
+https://nytimes.com/athletic/6475649/2025/07/05/texas-tech-felix-ojo-nil-deal/
+
 **Kovac calls for FIFA to push back start times for 2026 World Cup games**\
 `The Borussia Dortmund manager also had critical words for the pitch at World Cup host site MetLife Stadium.`\
 https://nytimes.com/athletic/6475614/2025/07/05/borussia-dortmund-niko-kovac-world-cup/

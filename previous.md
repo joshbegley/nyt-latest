@@ -1,3 +1,7 @@
+**Texas Tech's latest recruiting coup: 5-star offensive tackle Felix Ojo**\
+`Red Raiders continue to be a major player in college sports’ new era of player compensation, beating several heavyweights to top prospect.`\
+https://nytimes.com/athletic/6475649/2025/07/05/texas-tech-felix-ojo-nil-deal/
+
 **Kovac calls for FIFA to push back start times for 2026 World Cup games**\
 `The Borussia Dortmund manager also had critical words for the pitch at World Cup host site MetLife Stadium.`\
 https://nytimes.com/athletic/6475614/2025/07/05/borussia-dortmund-niko-kovac-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475516/2025/07/05/cam-whitmore-trade-wizards-rocke
 **Maple Leafs' Robertson, Jets' Vilardi among 11 to file for arbitration**\
 `Arbitration hearings will be held from July 20 to Aug. 4.`\
 https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
-
-**Cubs' struggles against left-handed starters puts focus on another area of need**\
-`Since the start of May, the Cubs have been mediocre against left-handed pitchers, and their opponents have noticed.`\
-https://nytimes.com/athletic/6475488/2025/07/05/cubs-needs-struggles-vs-left-handers/
 
