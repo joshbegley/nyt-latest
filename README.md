@@ -34,7 +34,7 @@ https://nytimes.com/2025/07/06/arts/dance/carla-maxwell-dead.html
 `The 22-year-old scored 12 goals in 18 appearances for Al Nassr, who finished third in 2024-25 — 13 points off champions Al Ittihad.`\
 https://nytimes.com/athletic/6465891/2025/07/06/jhon-duran-completes-loan-move-to-fenerbahce-from-al-nassr/
 
-**Kevin Durant trade to Rockets part of NBA-record 7-team deal: Sources**\
-`Six players who were in the NBA last season will change teams in the megadeal.`\
+**Kevin Durant trade to Rockets part of NBA-record 7-team deal**\
+`The June trade between the Rockets and Suns for Durant now includes the Hawks, Nets, Warriors, Lakers and Timberwolves.`\
 https://nytimes.com/athletic/6470501/2025/07/06/nba-seven-team-trade-kevin-durant/
 
