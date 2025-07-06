@@ -1,3 +1,7 @@
+**Francesco Farioli appointed Porto head coach**\
+`The 36-year-old joins the Portuguese club less than two months after leaving Ajax, whom he coached for one season.`\
+https://nytimes.com/athletic/6475992/2025/07/06/francesco-farioli-porto-manager/
+
 **Arsenal in advanced talks to sign Gyokeres from Sporting**\
 `A deal for the 27-year-old striker is not done as discussions continue over the fee — but the situation is progressing towards a conclusion.`\
 https://nytimes.com/athletic/6242299/2025/07/06/viktor-gyokeres-arsenal-sporting-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474645/2025/07/06/silverstone-british-grand-prix-f
 **This is the Casey Mize the Detroit Tigers have been waiting to see**\
 `Casey Mize has a 2.34 ERA over his past six starts and threw seven scoreless Sunday against the Guardians. `\
 https://nytimes.com/athletic/6475742/2025/07/06/casey-mize-tigers-improvement/
-
-**One of the Worst Industries in the World Gets Its Comeuppance**\
-`Porn platforms just got what they deserved at the Supreme Court.`\
-https://nytimes.com/2025/07/06/opinion/scotus-porn-free-speech.html
 
