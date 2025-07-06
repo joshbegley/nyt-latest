@@ -1,6 +1,6 @@
 **Kovac calls for FIFA to push back start times for 2026 World Cup games**\
 `The Borussia Dortmund manager also had critical words for the pitch at World Cup host site MetLife Stadium.`\
-https://nytimes.com/athletic/6475614/2025/07/05/borussia-dortmund-ckovac-world-cup-start-times/
+https://nytimes.com/athletic/6475614/2025/07/05/borussia-dortmund-niko-kovac-world-cup/
 
 **USMNT has one goal vs. Mexico in Gold Cup final: 'Lift a trophy'**\
 `The U.S. views game vs. Mexico as a high-stakes contest, the last chance to play under pressure ahead of the 2026 World Cup.`\
