@@ -1,3 +1,11 @@
+**Kovac calls for FIFA to push back start times for 2026 World Cup games**\
+`The Borussia Dortmund manager also had critical words for the pitch at World Cup host site MetLife Stadium.`\
+https://nytimes.com/athletic/6475614/2025/07/05/borussia-dortmund-ckovac-world-cup-start-times/
+
+**USMNT has one goal vs. Mexico in Gold Cup final: 'Lift a trophy'**\
+`The U.S. views game vs. Mexico as a high-stakes contest, the last chance to play under pressure ahead of the 2026 World Cup.`\
+https://nytimes.com/athletic/6475565/2025/07/05/usmnt-gold-cup-mexico-final/
+
 **Julian McMahon, ‘Nip/Tuck’ and ‘Fantastic Four’ Star, Dies at 56**\
 `He played the half-human, half-demon Cole Turner in the WB supernatural series “Charmed” and a self-destructive playboy in the FX series “Nip/Tuck.”`\
 https://nytimes.com/2025/07/05/arts/television/julian-mcmahon-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
 **Cubs' struggles against left-handed starters puts focus on another area of need**\
 `Since the start of May, the Cubs have been mediocre against left-handed pitchers, and their opponents have noticed.`\
 https://nytimes.com/athletic/6475488/2025/07/05/cubs-needs-struggles-vs-left-handers/
-
-**Khamenei Appears in Public for First Time Since Israel War Began**\
-`The long absence of Iran’s supreme leader, Ayatollah Ali Khamenei, from public life had fueled speculation about his health and threats to his life.`\
-https://nytimes.com/2025/07/05/world/middleeast/ayatollah-khamenei-iran-israel.html
-
-**Real Madrid 3-2 Dortmund: Mbappe's spectacular volley and Courtois' save of the tournament in frantic finale**\
-`Madrid scored twice early on at MetLife and looked to be easing into the last four before a blockbuster finish to their quarter-final`\
-https://nytimes.com/athletic/6475332/2025/07/05/real-madrid-mbappe-goal-courtois-save-club-world-cup/
 
