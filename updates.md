@@ -1,3 +1,7 @@
+**Akash Deep delivered - and helped India completely turn the tables**\
+`Deep's ten wickets in the match and 430 runs from Gill has levelled the series - and set-up a mouthwatering third Test at Lord's`\
+https://nytimes.com/athletic/6476622/2025/07/06/akash-deep-shubman-gill-england-india/
+
 **Crystal Palace closing in on Sosa signing from Ajax**\
 `Ajax have given the left-back permission to travel to the UK ahead of a proposed move and he is set to undergo a medical on Monday.`\
 https://nytimes.com/athletic/6474015/2025/07/06/borna-sosa-crystal-palace-medical/

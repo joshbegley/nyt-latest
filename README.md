@@ -1,3 +1,7 @@
+**Social Security Email Says Policy Bill Eliminates Tax on Benefits. Does It?**\
+`The Social Security Administration circulated an imprecise email about the provisions in the new law. Here’s what it actually does.`\
+https://nytimes.com/2025/07/06/your-money/social-security-tax.html
+
 **Akash Deep delivered - and helped India completely turn the tables**\
 `Deep's ten wickets in the match and 430 runs from Gill has levelled the series - and set-up a mouthwatering third Test at Lord's`\
 https://nytimes.com/athletic/6476622/2025/07/06/akash-deep-shubman-gill-england-india/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475132/2025/07/06/british-grand-prix-submit-your-q
 **Blue Jackets Sunday Gathering: Dmitri Voronkov's new contract comes with demands**\
 `Voronkov's conditioning played a role in his contract, and we have notes from development camp.`\
 https://nytimes.com/athletic/6474106/2025/07/06/blue-jackets-dmitri-voronkov-contract/
-
-**Jazz rookie Ace Bailey wants to focus on the task at hand: 'Basketball is the job'**\
-`"Ace was always the first one in the gym," Rutgers head coach Steve Pikiell said. Bailey represents hope for Jazz fans looking for a star.`\
-https://nytimes.com/athletic/6475583/2025/07/06/ace-bailey-utah-jazz-summer-league/
 
