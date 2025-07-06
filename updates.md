@@ -1,3 +1,7 @@
+**Here’s Why the Deadly Storm Quickly Intensified in Texas**\
+`Thunderstorms and moisture from the Gulf were among the ingredients that led to catastrophic weather and flooding in the Hill Country.`\
+https://nytimes.com/2025/07/05/weather/texas-storm-forecast-timeline.html
+
 **Twins rally from 5-1 deficit, win on Brooks Lee's squeeze bunt**\
 `Brooks Lee's ninth-inning bunt single helped the Twins complete a comeback win and earn their first series victory in a month.`\
 https://nytimes.com/athletic/6475524/2025/07/05/brooks-lee-twins-bunt-walk-off/
