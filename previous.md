@@ -1,3 +1,11 @@
+**With One War Over, Netanyahu Heads to Washington Amid Calls to End Another**\
+`Prime Minister Benjamin Netanyahu of Israel is set to meet with President Trump on Monday as attention has turned from Iran to a cease-fire for Gaza.`\
+https://nytimes.com/2025/07/06/world/middleeast/netanyahu-trump-israel-war-gaza.html
+
+**Euro 2025 roundup: Spain's dominance, too hot to play and key set pieces for underdogs**\
+`The key moments you may have missed for each round of Euro 2024`\
+https://nytimes.com/athletic/6475180/2025/07/06/euro-2025-roundup-spains-dominance-too-hot-to-play-and-key-set-pieces-for-underdogs/
+
 **England left exposed in midfield as Sarina Wiegman struggles to strike a balance**\
 `The defending champions suffered some ill luck against the French, but that should not mask the reality that they were generally outclassed`\
 https://nytimes.com/athletic/6475672/2025/07/06/england-midfield-james-wiegman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475553/2025/07/06/jamal-musiala-bayern-munich-inju
 **'Thank you, for making so many people happy' - Gondomar mourns Diogo Jota, their humble hero**\
 `Jack Lang reports from Portugal on the impact that Jota's death has had on the region where he grew up and leaves such an indelible mark`\
 https://nytimes.com/athletic/6475168/2025/07/06/diogo-jota-gondomar-funeral-tribute/
-
-**PSG lean on new-found championship mentality as they target Club World Cup triumph**\
-`Luis Enrique has turned a team who were used to falling short on the grandest stages into mentality monsters aiming to conquer the world`\
-https://nytimes.com/athletic/6475713/2025/07/06/psg-club-world-cup-mentality/
-
-**7 Bodies Found at Site of California Fireworks Warehouse Explosion**\
-`The explosion, which left seven people missing, started a wildfire and forced some cities and counties to cancel or postpone Fourth of July fireworks shows.`\
-https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodies.html
 
