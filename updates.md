@@ -1,3 +1,15 @@
+**After 239 races, Nico Hülkenberg scores ‘the most overdue podium in F1 history’**\
+`Nico Hülkenberg had started 238 F1 races before Sunday's 2025 British Grand Prix. In his 239th, he finally scored a podium finish`\
+https://nytimes.com/athletic/6475922/2025/07/06/f1-british-gp-nico-hulkenberg-podium-silverstone/
+
+**A reservoir downstream from the flooding has room for the water, an expert says.**\
+`By Mark Walker`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/a-reservoir-downstream-from-the-flooding-has-room-for-the-water-an-expert-says
+
+**Newcastle set to appoint Midtjylland's Martin Mark as new set piece coach**\
+`The 31-year-old impressed at FC Midtjylland and is set to bolster Newcastle's specialist team.`\
+https://nytimes.com/athletic/6476649/2025/07/06/newcastle-set-piece-coach-martin-mark/
+
 **Aina signs three-year Forest contract**\
 `Aina made 37 appearances in all competitions in the 2024-25 season as Forest finished seventh in the Premier League.`\
 https://nytimes.com/athletic/6301868/2025/07/06/ola-aina-contract-nottingham-forest/
