@@ -1,3 +1,7 @@
+**How PSG and Bayern's positive tactics resulted in the best game of the Club World Cup**\
+`Both European heavyweights played to their forwards' strengths — focusing on getting the best out of their wingers' dribbling abilities`\
+https://nytimes.com/athletic/6475824/2025/07/06/bayern-psg-positive-tactics-club-world-cup-best-game/
+
 **'A huge surprise': Why was England's goal disallowed against France?**\
 `Alessia Russo’s goal for England against France at Euro 2025 was disallowed for a marginal offside ruling`\
 https://nytimes.com/athletic/6476025/2025/07/06/alessia-russo-offside-goal-england-france/

@@ -1,3 +1,7 @@
+**How PSG and Bayern's positive tactics resulted in the best game of the Club World Cup**\
+`Both European heavyweights played to their forwards' strengths — focusing on getting the best out of their wingers' dribbling abilities`\
+https://nytimes.com/athletic/6475824/2025/07/06/bayern-psg-positive-tactics-club-world-cup-best-game/
+
 **Tracking Typhoon Danas**\
 `See the likely path and wind arrival times for Danas`\
 https://nytimes.com/interactive/2025/07/06/weather/danas-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/briefing/floods-texas-camp-mystic.html
 **Lowetide: Which Oilers players will benefit most from recent roster moves?**\
 `The first week of free agency was relatively quiet for the Oilers compared to previous seasons.`\
 https://nytimes.com/athletic/6475019/2025/07/06/oilers-depth-chart-roster-2025/
-
-**The Pulse: NFL status quo? Not so fast**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6475625/2025/07/06/nfl-super-bowl-contenders-2025-the-pulse/
 
