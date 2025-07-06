@@ -1,3 +1,7 @@
+**Can You Spend 10 Minutes With This Painting?**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.html
+
 **Rescuers Race Against Time in Search for Texas Flood Survivors**\
 `Crews in helicopters and trucks, in horseback and on foot have saved hundreds of lives since the flooding began on Friday.`\
 https://nytimes.com/2025/07/06/us/texas-floods-rescues.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6476649/2025/07/06/newcastle-set-piece-coach-martin
 **Aina signs three-year Forest contract**\
 `Aina made 37 appearances in all competitions in the 2024-25 season as Forest finished seventh in the Premier League.`\
 https://nytimes.com/athletic/6301868/2025/07/06/ola-aina-contract-nottingham-forest/
-
-**Bessent Says He Expects Trade Deals by This Week’s Deadline**\
-`But the Treasury secretary also said that some countries working toward agreements with the United States could have until Aug. 1.`\
-https://nytimes.com/2025/07/06/business/economy/bessent-trade-deals.html
 
