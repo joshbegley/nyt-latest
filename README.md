@@ -1,3 +1,7 @@
+**Padres’ Yu Darvish to make season debut Monday**\
+`Darvish has not pitched in a big-league game since he started the Padres’ 2024 postseason finale.`\
+https://nytimes.com/athletic/6443963/2025/07/06/sd-padres-yu-darvish-2025-debut/
+
 **The threat of flash flooding continues in Hill Country.**\
 `The National Weather Service issued several more flash flood warnings on Sunday afternoon and told people to seek higher ground.`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/texas-hill-country-flood-warning-forecast
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.ht
 **Rescuers Race Against Time in Search for Texas Flood Survivors**\
 `Crews in helicopters and trucks, in horseback and on foot have saved hundreds of lives since the flooding began on Friday.`\
 https://nytimes.com/2025/07/06/us/texas-floods-rescues.html
-
-**Monday Briefing: Floods in Texas Killed nearly 80**\
-`Plus, the case of the lost Stradivarius.`\
-https://nytimes.com/2025/07/06/briefing/texas-flooding-israel-us-hamas-dalai-lama-beijing.html
 
