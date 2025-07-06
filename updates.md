@@ -1,3 +1,7 @@
+**Wimbledon day 7: Rows over bouncing a tennis ball on a stormy day at the All England Club**\
+`Jarry and Norrie exchanged words after their fourth-round match, in which the Chilean objected to the Brit's serve rituals.`\
+https://nytimes.com/athletic/6476179/2025/07/06/tennis-wimbledon-norrie-bounce-jarry/
+
 **Piles of debris and fast-moving water complicate rescue efforts along the Guadalupe River.**\
 `In Hunt and Kerrville,`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/piles-of-debris-and-fast-moving-water-complicate-rescue-efforts-along-the-guadalupe-river
