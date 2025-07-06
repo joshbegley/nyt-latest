@@ -1,3 +1,7 @@
+**England left exposed in midfield as Sarina Wiegman struggles to strike a balance**\
+`The defending champions suffered some ill luck against the French, but that should not mask the reality that they were generally outclassed`\
+https://nytimes.com/athletic/6475672/2025/07/06/england-midfield-james-wiegman/
+
 **Kylian Mbappe, Thibaut Courtois and the anatomy of a wonder goal and save**\
 `Real were clinically efficient in both boxes during a frantic period of added time to see off Borussia Dortmund and reach the semi-finals`\
 https://nytimes.com/athletic/6475749/2025/07/06/mbappe-courtois-real-madrid-dortmund-wonder-goal-save/
