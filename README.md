@@ -1,6 +1,14 @@
+**Hometown hero Logan Webb pitches Giants to stabilizing win in West Sacramento**\
+`Webb grew up in Rocklin, Calif., not far from the Triple-A ballpark where he took the mound Saturday night.`\
+https://nytimes.com/athletic/6475878/2025/07/06/logan-webb-giants-win/
+
 **A Law School’s Award for a Racist Paper**\
 `Readers react to an award for a law student’s essay claiming that the rights recognized in the Constitution apply only to white people. Also: Climate change.`\
 https://nytimes.com/2025/07/06/opinion/racist-paper.html
+
+**Lego built F1 trophies for the British Grand Prix. Here’s how they did it**\
+`F1 has launched another project with Lego - this time redesigning the iconic British Grand Prix winners' trophies in Lego bricks`\
+https://nytimes.com/athletic/6475182/2025/07/06/f1-british-gp-lego-trophy/
 
 **How Europe Got Stuck Between Xi’s China and Trump’s America**\
 `European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6475992/2025/07/06/francesco-farioli-porto-manager/
 **Arsenal in advanced talks to sign Gyokeres from Sporting**\
 `A deal for the 27-year-old striker is not done as discussions continue over the fee — but the situation is progressing towards a conclusion.`\
 https://nytimes.com/athletic/6242299/2025/07/06/viktor-gyokeres-arsenal-sporting-transfer/
-
-**Martin Zubimendi is an Arsenal player... finally**\
-`Arsenal's interest in Zubimendi goes back to 2019-20. He came close to joining last summer but 12 months on, Mikel Arteta now has his man`\
-https://nytimes.com/athletic/6463451/2025/07/06/arsenal-sign-zubimendi-transfer-liverpool-real-madrid/
-
-**Wales Women played in front of five fans in 2021. Saturday at the Euros showed how far they have come**\
-`Wales are tournament debutants and were drawn into Euro 2025’s most desperate group, but they took heart even in defeat against the Dutch`\
-https://nytimes.com/athletic/6475814/2025/07/06/wales-euros-anthem-bucket-netherlands/
 

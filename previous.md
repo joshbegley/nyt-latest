@@ -1,3 +1,7 @@
+**A Law School’s Award for a Racist Paper**\
+`Readers react to an award for a law student’s essay claiming that the rights recognized in the Constitution apply only to white people. Also: Climate change.`\
+https://nytimes.com/2025/07/06/opinion/racist-paper.html
+
 **How Europe Got Stuck Between Xi’s China and Trump’s America**\
 `European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
 https://nytimes.com/2025/07/06/world/europe/european-union-china-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6463451/2025/07/06/arsenal-sign-zubimendi-transfer-
 **Wales Women played in front of five fans in 2021. Saturday at the Euros showed how far they have come**\
 `Wales are tournament debutants and were drawn into Euro 2025’s most desperate group, but they took heart even in defeat against the Dutch`\
 https://nytimes.com/athletic/6475814/2025/07/06/wales-euros-anthem-bucket-netherlands/
-
-**Arsenal confirm Zubimendi signing from Real Sociedad**\
-`The 26-year-old midfielder is Arsenal's second signing of the summer transfer window under new sporting director Andrea Berta.`\
-https://nytimes.com/athletic/6439762/2025/07/06/martin-zubimendi-arsenal-transfer-news/
 

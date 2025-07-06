@@ -1,3 +1,7 @@
+**A Law School’s Award for a Racist Paper**\
+`Readers react to an award for a law student’s essay claiming that the rights recognized in the Constitution apply only to white people. Also: Climate change.`\
+https://nytimes.com/2025/07/06/opinion/racist-paper.html
+
 **How Europe Got Stuck Between Xi’s China and Trump’s America**\
 `European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
 https://nytimes.com/2025/07/06/world/europe/european-union-china-tariffs.html
