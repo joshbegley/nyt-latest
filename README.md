@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/06/todays-new-york-times
+
+**How to Decide, According to Neuroscience**\
+`Making decisions that align long-term goals and short-term rewards is challenging, but it can lead to better choices and richer lives.`\
+https://nytimes.com/2025/07/06/opinion/decisions-neuroscience-brains.html
+
 **How F1 is influencing cycling's pursuit of speed: ‘We’re in the middle of an aero war right now’**\
 `Virtually every team in the peloton has visited the Silverstone wind-tunnel over recent seasons, chasing aerodynamic improvements`\
 https://nytimes.com/athletic/6474727/2025/07/06/cycling-formula-one-aerodynamics/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/06/world/africa/kenya-africa-albert-ojwang-funeral.h
 **Quote of the Day: A Lifetime After Fleeing the Nazis, They Tell Their Stories**\
 `Quote of the Day for Sunday, July 6, 2025`\
 https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-a-lifetime-after-fleeing-the-nazis-they-tell-their-stories.html
-
-**Australia Wants to Bar Children From Social Media. Can It Succeed?**\
-`A law that restricts social media use to people 16 and over goes into effect in December, but much about it remains unclear or undecided.`\
-https://nytimes.com/2025/07/06/world/australia/kids-social-media-ban.html
-
-**The Little Mountain Democracy That Sustains Tibet’s Refugee Nation**\
-`The exile government that was built by the Dalai Lama to preserve Tibetans’ cultural identity will be put to the test by his eventual succession.`\
-https://nytimes.com/2025/07/06/world/asia/dalai-lama-tibetan-administration.html
 
