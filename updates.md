@@ -1,3 +1,7 @@
+**'Thank you, for making so many people happy' - Gondomar mourns Diogo Jota, their humble hero**\
+`Jack Lang reports from Portugal on the impact that Jota's death has had on the region where he grew up and leaves such an indelible mark`\
+https://nytimes.com/athletic/6475168/2025/07/06/diogo-jota-gondomar-funeral-tribute/
+
 **PSG lean on new-found championship mentality as they target Club World Cup triumph**\
 `Luis Enrique has turned a team who were used to falling short on the grandest stages into mentality monsters aiming to conquer the world`\
 https://nytimes.com/athletic/6475713/2025/07/06/psg-club-world-cup-mentality/
