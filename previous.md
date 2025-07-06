@@ -1,3 +1,7 @@
+**Messi makes uncharacteristic mistake, atones with two spectacular goals**\
+`The Argentina star quickly made up for a stunning mishap in Montreal.`\
+https://nytimes.com/athletic/6475785/2025/07/06/messi-inter-miami-mls-montreal/
+
 **The New York Times in Print for Sunday, July 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475339/2025/07/06/netherlands-vivianne-miedema-eur
 **He Was Killed in Police Custody. Kenyans Are Not About to Let It Go.**\
 `At the funeral for Albert Ojwang, protesters in Kenya said his death was a call to action for the country’s youth.`\
 https://nytimes.com/2025/07/06/world/africa/kenya-africa-albert-ojwang-funeral.html
-
-**Quote of the Day: A Lifetime After Fleeing the Nazis, They Tell Their Stories**\
-`Quote of the Day for Sunday, July 6, 2025`\
-https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-a-lifetime-after-fleeing-the-nazis-they-tell-their-stories.html
 

@@ -1,3 +1,7 @@
+**Messi makes uncharacteristic mistake, atones with two spectacular goals**\
+`The Argentina star quickly made up for a stunning mishap in Montreal.`\
+https://nytimes.com/athletic/6475785/2025/07/06/messi-inter-miami-mls-montreal/
+
 **The New York Times in Print for Sunday, July 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/06/todays-new-york-times
