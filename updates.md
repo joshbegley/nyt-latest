@@ -1,3 +1,5 @@
+
+
 **Israel’s Deadly Assault on Iran Prison Incites Fury, Even Among Dissidents**\
 `The June 23 airstrikes on Evin prison, including the hospital ward, have turned it from a hated symbol of oppression into a new rallying cry against Israel, even among the Iranian regime’s domestic critics.`\
 https://nytimes.com/2025/07/06/world/middleeast/israels-deadly-assault-on-iran-prison-incites-fury-even-among-dissidents.html
