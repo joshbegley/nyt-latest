@@ -1,3 +1,7 @@
+**Here’s Why the Deadly Storm Quickly Intensified in Texas**\
+`Thunderstorms and moisture from the Gulf were among the ingredients that led to catastrophic weather and flooding in the Hill Country.`\
+https://nytimes.com/2025/07/05/weather/texas-storm-forecast-timeline.html
+
 **Notre Dame lands commitment from son of former NFL star Larry Fitzgerald**\
 `Devin Fitzgerald's commitment continues a trend of NFL legacies flocking to the Irish under Marcus Freeman.`\
 https://nytimes.com/athletic/6475569/2025/07/05/notre-dame-recruit-larry-fitzgerald-son/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6475332/2025/07/05/real-madrid-mbappe-goal-courtois
 **Elon Musk Says He Will Start a New Political Party**\
 `The tech billionaire, who has publicly feuded with President Trump, wrote on social media that he would be creating “the America Party,” though he hadn’t yet filed paperwork.`\
 https://nytimes.com/2025/07/05/us/politics/elon-musk-third-party.html
-
-**For the Parents of Camp Mystic, an Agonizing Wait for Their Missing Children**\
-`Stories of rescues have begun trickling out, but 27 children remain unaccounted for from a storied camp on the Guadalupe River in Texas Hill Country.`\
-https://nytimes.com/2025/07/05/us/politics/camp-mystic.html
 

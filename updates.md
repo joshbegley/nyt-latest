@@ -1,3 +1,7 @@
+**Twins rally from 5-1 deficit, win on Brooks Lee's squeeze bunt**\
+`Brooks Lee's ninth-inning bunt single helped the Twins complete a comeback win and earn their first series victory in a month.`\
+https://nytimes.com/athletic/6475524/2025/07/05/brooks-lee-twins-bunt-walk-off/
+
 **Notre Dame lands commitment from son of former NFL star Larry Fitzgerald**\
 `Devin Fitzgerald's commitment continues a trend of NFL legacies flocking to the Irish under Marcus Freeman.`\
 https://nytimes.com/athletic/6475569/2025/07/05/notre-dame-recruit-larry-fitzgerald-son/
