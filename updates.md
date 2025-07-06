@@ -1,3 +1,7 @@
+**Israel’s Deadly Assault on Iran Prison Incites Fury, Even Among Dissidents**\
+`The June 23 airstrikes on Evin prison, including the hospital ward, have turned it from a hated symbol of oppression into a new rallying cry against Israel, even among the Iranian regime’s domestic critics.`\
+https://nytimes.com/2025/07/06/world/middleeast/israels-deadly-assault-on-iran-prison-incites-fury-even-among-dissidents.html
+
 **NFL, Cowboys, Texans pledge $1.5 million for flood relief in Texas**\
 `Flooding along the Guadalupe River has left at least 70 dead and many more missing.`\
 https://nytimes.com/athletic/6476760/2025/07/06/nfl-cowboys-texans-flood-relief/
