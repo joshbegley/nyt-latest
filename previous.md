@@ -1,3 +1,7 @@
+**Chinese club fined for placing 'feudal superstitious items' in away locker room**\
+`Changchun Xidu have been fined 30,000 yuan (£3,070, $4,100) following a league review into the incident.`\
+https://nytimes.com/athletic/6473431/2025/07/06/chinese-football-league-fine/
+
 **Sweet and Spicy Tofu With Soba Noodles to Refuel and Restore**\
 `An ideal low-effort, high-yield meal to close out a busy weekend.`\
 https://nytimes.com/2025/07/06/dining/healthy-tofu-with-soba-noodles-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/opinion/racist-paper.html
 **Lego built F1 trophies for the British Grand Prix. Here’s how they did it**\
 `F1 has launched another project with Lego - this time redesigning the iconic British Grand Prix winners' trophies in Lego bricks`\
 https://nytimes.com/athletic/6475182/2025/07/06/f1-british-gp-lego-trophy/
-
-**How Europe Got Stuck Between Xi’s China and Trump’s America**\
-`European Union officials will spend July in talks with China. Tensions are high, hopes are low and stability is the end game.`\
-https://nytimes.com/2025/07/06/world/europe/european-union-china-tariffs.html
 

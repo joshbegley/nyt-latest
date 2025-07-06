@@ -1,3 +1,7 @@
+**Chinese club fined for placing 'feudal superstitious items' in away locker room**\
+`Changchun Xidu have been fined 30,000 yuan (£3,070, $4,100) following a league review into the incident.`\
+https://nytimes.com/athletic/6473431/2025/07/06/chinese-football-league-fine/
+
 **Sweet and Spicy Tofu With Soba Noodles to Refuel and Restore**\
 `An ideal low-effort, high-yield meal to close out a busy weekend.`\
 https://nytimes.com/2025/07/06/dining/healthy-tofu-with-soba-noodles-recipe.html
