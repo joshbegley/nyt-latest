@@ -1,3 +1,11 @@
+**Days later, the search for loved ones and their pets continues.**\
+`Robert and Joni Blake, both in their 70s, remain missing after their RV camp flooded.`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/days-later-the-search-for-loved-ones-and-their-pets-continues
+
+**Tarik Skubal, Tigers keep finding new ways to dazzle in a charmed season**\
+`Detroit's ace pitched seven scoreless innings against Cleveland and got plenty of help from his teammates along the way.`\
+https://nytimes.com/athletic/6477083/2025/07/06/tarik-skubal-tigers-charmed-season/
+
 **Sabres elect arbitration with Bowen Byram: Why now and what it means for both sides**\
 `Byram didn't file for player-elected salary arbitration by Saturday's deadline but the team filing means he has some control over the award.`\
 https://nytimes.com/athletic/6477038/2025/07/06/bowen-byram-sabres-salary-arbitration/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/06/us/texas-floods/texas-hill-country-flood-war
 **Mets' Pete Alonso won't participate in the Home Run Derby for the first time**\
 `Alonso had been in the derby each year it had been held since his rookie season in 2019.`\
 https://nytimes.com/athletic/6477024/2025/07/06/mets-pete-alonso-home-run-derby-status/
-
-**At Least 79 People Killed in Texas Flash Floods**\
-`Several children and one counselor from a summer camp remained missing as rescue crews continued searching for survivors of the floods that devastated Central Texas.`\
-https://nytimes.com/video/weather/100000010269772/texas-flash-floods-camp.html
-
-**Lowest Voice**\
-`Daniel Raymon paints us a clear picture.`\
-https://nytimes.com/2025/07/06/crosswords/daily-puzzle-2025-07-07.html
 

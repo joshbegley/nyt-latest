@@ -1,3 +1,11 @@
+**Days later, the search for loved ones and their pets continues.**\
+`Robert and Joni Blake, both in their 70s, remain missing after their RV camp flooded.`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/days-later-the-search-for-loved-ones-and-their-pets-continues
+
+**Tarik Skubal, Tigers keep finding new ways to dazzle in a charmed season**\
+`Detroit's ace pitched seven scoreless innings against Cleveland and got plenty of help from his teammates along the way.`\
+https://nytimes.com/athletic/6477083/2025/07/06/tarik-skubal-tigers-charmed-season/
+
 **Sabres elect arbitration with Bowen Byram: Why now and what it means for both sides**\
 `Byram didn't file for player-elected salary arbitration by Saturday's deadline but the team filing means he has some control over the award.`\
 https://nytimes.com/athletic/6477038/2025/07/06/bowen-byram-sabres-salary-arbitration/
