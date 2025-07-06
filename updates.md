@@ -1,3 +1,7 @@
+**7 Bodies Found at Site of California Fireworks Warehouse Explosion**\
+`The explosion, which left seven people missing, started a wildfire and forced some cities and counties to cancel or postpone Fourth of July fireworks shows.`\
+https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodies.html
+
 **Here Is the Science of Why You Doomscroll**\
 `Making decisions that align long-term goals and short-term rewards is challenging, but it can lead to better choices and richer lives.`\
 https://nytimes.com/2025/07/06/opinion/decisions-neuroscience-brains.html

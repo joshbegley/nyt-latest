@@ -1,3 +1,7 @@
+**7 Bodies Found at Site of California Fireworks Warehouse Explosion**\
+`The explosion, which left seven people missing, started a wildfire and forced some cities and counties to cancel or postpone Fourth of July fireworks shows.`\
+https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodies.html
+
 **Messi makes uncharacteristic mistake, atones with two spectacular goals**\
 `The Argentina star quickly made up for a stunning mishap in Montreal.`\
 https://nytimes.com/athletic/6475785/2025/07/06/messi-inter-miami-mls-montreal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455716/2025/07/06/denmark-world-cup-hummel-kits-19
 **Netherlands forward Vivianne Miedema scores 100th goal, feeling 'liberated' in Euros return**\
 `Miedema's 100th goal comes in crucial first game of Euro 2025`\
 https://nytimes.com/athletic/6475339/2025/07/06/netherlands-vivianne-miedema-euro-2025-goal/
-
-**He Was Killed in Police Custody. Kenyans Are Not About to Let It Go.**\
-`At the funeral for Albert Ojwang, protesters in Kenya said his death was a call to action for the country’s youth.`\
-https://nytimes.com/2025/07/06/world/africa/kenya-africa-albert-ojwang-funeral.html
 
