@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6476760/2025/07/06/nfl-cowboys-texans-flood-relief/
 
 **Yankees’ Anthony Volpe: 'It might sound crazy, but I feel good' despite struggles**\
-`Entering Sunday, since June 21, Volpe's hit .136 with a home run, six RBIs and a .523 OPS in 13 games (52 plate appearances). `\
+`Entering Sunday, since June 21, Volpe has hit .136 with a home run, six RBIs and a .523 OPS in 13 games (52 plate appearances). `\
 https://nytimes.com/athletic/6476855/2025/07/06/ny-yankees-anthony-volpe-struggles/
 
 **After 239 races, Nico Hülkenberg scores ‘the most overdue podium in F1 history’**\
