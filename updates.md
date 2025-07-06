@@ -1,3 +1,7 @@
+**British Grand Prix: Nico Hülkenberg ends F1-record podium drought**\
+`It was a dream ending for two drivers — and almost another for Lewis Hamilton.`\
+https://nytimes.com/athletic/6475119/2025/07/06/british-grand-prix-result-norris-mclaren-hulkenberg-podium/
+
 **Chinese club fined for placing 'feudal superstitious items' in away locker room**\
 `Changchun Xidu have been fined 30,000 yuan (£3,070, $4,100) following a league review into the incident.`\
 https://nytimes.com/athletic/6473431/2025/07/06/chinese-football-league-fine/
