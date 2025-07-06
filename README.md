@@ -1,3 +1,7 @@
+**PSG lean on new-found championship mentality as they target Club World Cup triumph**\
+`Luis Enrique has turned a team who were used to falling short on the grandest stages into mentality monsters aiming to conquer the world`\
+https://nytimes.com/athletic/6475713/2025/07/06/psg-club-world-cup-mentality/
+
 **7 Bodies Found at Site of California Fireworks Warehouse Explosion**\
 `The explosion, which left seven people missing, started a wildfire and forced some cities and counties to cancel or postpone Fourth of July fireworks shows.`\
 https://nytimes.com/2025/07/06/us/california-fireworks-warehouse-explosion-bodies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468046/2025/07/06/sydney-schertenleib-switzerland-
 **The enduring legacy of Denmark's 1986 World Cup kits: Stripes, chevrons and 'carnival suits'**\
 `In 1986, Denmark thrilled in a set of striking Hummel kits that still set hearts fluttering today`\
 https://nytimes.com/athletic/6455716/2025/07/06/denmark-world-cup-hummel-kits-1986/
-
-**Netherlands forward Vivianne Miedema scores 100th goal, feeling 'liberated' in Euros return**\
-`Miedema's 100th goal comes in crucial first game of Euro 2025`\
-https://nytimes.com/athletic/6475339/2025/07/06/netherlands-vivianne-miedema-euro-2025-goal/
 
