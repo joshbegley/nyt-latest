@@ -1,3 +1,11 @@
+**Yankees earn reset after splitting Subway Series against Mets, snap six-game losing streak**\
+`After a week in the wilderness, the Yankees found their way to the clearing of Monday’s off da`\
+https://nytimes.com/athletic/6477143/2025/07/06/ny-yankees-mets-subway-series-analysis/
+
+**Yankees, Mets stunned by Bellinger's game-saving double play: 'Play of the year'**\
+`It was what the Yankees needed, not just to beat the Mets on Sunday, but also to snap their losing streak and lift them out of their haze.`\
+https://nytimes.com/athletic/6477128/2025/07/06/yankees-cody-bellinger-play-of-the-year/
+
 **Days later, the search for loved ones and their pets continues.**\
 `Robert and Joni Blake, both in their 70s, remain missing after their RV camp flooded.`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/days-later-the-search-for-loved-ones-and-their-pets-continues
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/06/us/politics/texas-flood-family-survivors.html
 **Padres’ Yu Darvish to make season debut Monday**\
 `Darvish has not pitched in a big-league game since he started the Padres’ 2024 postseason finale.`\
 https://nytimes.com/athletic/6443963/2025/07/06/sd-padres-yu-darvish-2025-debut/
-
-**The threat of flash flooding continues in Hill Country.**\
-`The National Weather Service issued several more flash flood warnings on Sunday afternoon and told people to seek higher ground.`\
-https://nytimes.com/live/2025/07/06/us/texas-floods/texas-hill-country-flood-warning-forecast
-
-**Mets' Pete Alonso won't participate in the Home Run Derby for the first time**\
-`Alonso had been in the derby each year it had been held since his rookie season in 2019.`\
-https://nytimes.com/athletic/6477024/2025/07/06/mets-pete-alonso-home-run-derby-status/
 
