@@ -1,3 +1,11 @@
+**Sabres elect arbitration with Bowen Byram: Why now and what it means for both sides**\
+`Byram didn't file for player-elected salary arbitration by Saturday's deadline but the team filing means he has some control over the award.`\
+https://nytimes.com/athletic/6477038/2025/07/06/bowen-byram-sabres-salary-arbitration/
+
+**Nationals fire general manager Mike Rizzo, manager Dave Martinez**\
+`Washington faced a tough June, going 7-19, and is currently sitting in last place in the NL East`\
+https://nytimes.com/athletic/6477078/2025/07/06/nationals-fire-mike-rizzo-dave-martinez/
+
 **John Deere Classic: How Brian Campbell won a playoff for 2nd PGA Tour win**\
 `Campbell joins Rory McIlroy, Scottie Scheffler, Sepp Straka and Ben Griffin as multi-time winners so far this season.`\
 https://nytimes.com/athletic/6477050/2025/07/06/john-deere-classic-brian-campbell-pga-tour-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/video/weather/100000010269772/texas-flash-floods-camp.html
 **Lowest Voice**\
 `Daniel Raymon paints us a clear picture.`\
 https://nytimes.com/2025/07/06/crosswords/daily-puzzle-2025-07-07.html
-
-**Olson, Sale make All-Star team, Holmes gets no support: Braves takeways**\
-`The Braves also slipped to 11-22 in one-run games, the most such losses in the majors.`\
-https://nytimes.com/athletic/6476963/2025/07/06/braves-olson-sale-make-all-star-team/
-
-**Wimbledon day 7: Rows over bouncing a tennis ball on a stormy day at the All England Club**\
-`Jarry and Norrie exchanged words after their fourth-round match, in which the Chilean objected to the Brit's serve rituals.`\
-https://nytimes.com/athletic/6476179/2025/07/06/tennis-wimbledon-norrie-bounce-jarry/
 
