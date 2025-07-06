@@ -1,3 +1,7 @@
+**Kylian Mbappe, Thibaut Courtois and the anatomy of a wonder goal and save**\
+`Real were clinically efficient in both boxes during a frantic period of added time to see off Borussia Dortmund and reach the semi-finals`\
+https://nytimes.com/athletic/6475749/2025/07/06/mbappe-courtois-real-madrid-dortmund-wonder-goal-save/
+
 **Kylian Mbappe, Thibault Courtois and the anatomy of a wonder goal and save**\
 `Real were clinically efficient in both boxes during a frantic period of added time to see off Borussia Dortmund and reach the semi-finals`\
 https://nytimes.com/athletic/6475749/2025/07/06/mbappe-courtois-real-madrid-dortmund-wonder-goal-save/
