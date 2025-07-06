@@ -1,3 +1,11 @@
+**Lowest Voice**\
+`Daniel Raymon paints us a clear picture.`\
+https://nytimes.com/2025/07/06/crosswords/daily-puzzle-2025-07-07.html
+
+**Israel’s Deadly Assault on Iran Prison Incites Fury, Even Among Dissidents**\
+`The June 23 airstrikes on Evin prison, including the hospital ward, have turned it from a hated symbol of oppression into a new rallying cry against Israel, even among the Iranian regime’s domestic critics.`\
+https://nytimes.com/2025/07/06/world/middleeast/israel-iran-evin-prison.html
+
 **Olson, Sale make All-Star team, Holmes gets no support from anemic offense: Braves takeways**\
 `The Braves also slipped to 11-22 in one-run games, the most such losses in the majors.`\
 https://nytimes.com/athletic/6476963/2025/07/06/braves-olson-sale-make-all-star-team/
