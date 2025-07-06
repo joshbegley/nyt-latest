@@ -1,3 +1,7 @@
+**As Drones Spot Sharks, New York Beaches Are Shut Down**\
+`Drone technology seemed to contribute to an unusual number of shark sightings along Rockaway Beach in recent days. Each time swimmers were ordered out of the ocean.`\
+https://nytimes.com/2025/07/06/nyregion/shark-sightings-new-york-beaches-drones.html
+
 **Angel Reese, Alyssa Thomas headline WNBA All-Star reserves**\
 `Who are the biggest surprises and omissions in Sunday's reveal?`\
 https://nytimes.com/athletic/6476407/2025/07/06/wnba-all-star-game-2025-roster-reserves/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/06/us/texas-floods/more-rain-is-expected-in-the
 **How Wimbledon electronic line call failure led to a player losing a game on Centre Court**\
 `It is the first year Wimbledon is using electronic line calling instead of line judges.`\
 https://nytimes.com/athletic/6476350/2025/07/06/wimbledon-electronic-line-calling-pavlyuchenkova-kartal/
-
-**How PSG and Bayern's positive tactics resulted in the best game of the Club World Cup**\
-`Both European heavyweights played to their forwards' strengths — focusing on getting the best out of their wingers' dribbling abilities`\
-https://nytimes.com/athletic/6475824/2025/07/06/bayern-psg-positive-tactics-club-world-cup-best-game/
 

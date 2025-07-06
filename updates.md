@@ -1,3 +1,7 @@
+**As Drones Spot Sharks, New York Beaches Are Shut Down**\
+`Drone technology seemed to contribute to an unusual number of shark sightings along Rockaway Beach in recent days. Each time swimmers were ordered out of the ocean.`\
+https://nytimes.com/2025/07/06/nyregion/shark-sightings-new-york-beaches-drones.html
+
 **Angel Reese, Alyssa Thomas headline WNBA All-Star reserves**\
 `Who are the biggest surprises and omissions in Sunday's reveal?`\
 https://nytimes.com/athletic/6476407/2025/07/06/wnba-all-star-game-2025-roster-reserves/
