@@ -1,4 +1,8 @@
-**Can You Spend 10 Minutes With This Painting?**\
+**Piles of debris and fast-moving water complicate rescue efforts along the Guadalupe River.**\
+`In Hunt and Kerrville,`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/piles-of-debris-and-fast-moving-water-complicate-rescue-efforts-along-the-guadalupe-river
+
+**10-Minute Challenge: An Archery Contest in Ancient India**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/06/us/texas-floods/a-reservoir-downstream-from-
 **Newcastle set to appoint Midtjylland's Martin Mark as new set piece coach**\
 `The 31-year-old impressed at FC Midtjylland and is set to bolster Newcastle's specialist team.`\
 https://nytimes.com/athletic/6476649/2025/07/06/newcastle-set-piece-coach-martin-mark/
-
-**Aina signs three-year Forest contract**\
-`Aina made 37 appearances in all competitions in the 2024-25 season as Forest finished seventh in the Premier League.`\
-https://nytimes.com/athletic/6301868/2025/07/06/ola-aina-contract-nottingham-forest/
 

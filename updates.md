@@ -1,3 +1,11 @@
+**Piles of debris and fast-moving water complicate rescue efforts along the Guadalupe River.**\
+`In Hunt and Kerrville,`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/piles-of-debris-and-fast-moving-water-complicate-rescue-efforts-along-the-guadalupe-river
+
+**10-Minute Challenge: An Archery Contest in Ancient India**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.html
+
 **Can You Spend 10 Minutes With This Painting?**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/07/06/upshot/ten-minute-challenge-archer.html
