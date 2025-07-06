@@ -1,3 +1,11 @@
+**Police Officer Shot Outside Immigration Detention Facility in Texas**\
+`Several armed people were taken into custody after officers responded to a report of a suspicious person outside the detention center, officials said.`\
+https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html
+
+**Tour de France stage two: Van der Poel wins frantic finale, more Vingegaard aggression and why was Milan upset?**\
+`Analysis of the second stage of the 2025 Tour de France, from Lauwin-Planque to Boulogne-sur-Mer`\
+https://nytimes.com/athletic/6476001/2025/07/06/tour-de-france-stage-two-analysis/
+
 **As Drones Spot Sharks, New York Beaches Are Shut Down**\
 `Drone technology seemed to contribute to an unusual number of shark sightings along Rockaway Beach in recent days. Each time swimmers were ordered out of the ocean.`\
 https://nytimes.com/2025/07/06/nyregion/shark-sightings-new-york-beaches-drones.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6473431/2025/07/06/chinese-football-league-fine/
 **Sweet and Spicy Tofu With Soba Noodles to Refuel and Restore**\
 `An ideal low-effort, high-yield meal to close out a busy weekend.`\
 https://nytimes.com/2025/07/06/dining/healthy-tofu-with-soba-noodles-recipe.html
-
-**More rain is expected in the Texas region devastated by flooding.**\
-`Forecasters warned further rounds of rain were expected through Tuesday, potentially causing more flooding in already-saturated areas.`\
-https://nytimes.com/live/2025/07/06/us/texas-floods/more-rain-is-expected-in-the-texas-region-devastated-by-flooding
-
-**How Wimbledon electronic line call failure led to a player losing a game on Centre Court**\
-`It is the first year Wimbledon is using electronic line calling instead of line judges.`\
-https://nytimes.com/athletic/6476350/2025/07/06/wimbledon-electronic-line-calling-pavlyuchenkova-kartal/
 

@@ -1,3 +1,11 @@
+**Police Officer Shot Outside Immigration Detention Facility in Texas**\
+`Several armed people were taken into custody after officers responded to a report of a suspicious person outside the detention center, officials said.`\
+https://nytimes.com/2025/07/06/us/ice-detention-facility-shooting-texas.html
+
+**Tour de France stage two: Van der Poel wins frantic finale, more Vingegaard aggression and why was Milan upset?**\
+`Analysis of the second stage of the 2025 Tour de France, from Lauwin-Planque to Boulogne-sur-Mer`\
+https://nytimes.com/athletic/6476001/2025/07/06/tour-de-france-stage-two-analysis/
+
 **As Drones Spot Sharks, New York Beaches Are Shut Down**\
 `Drone technology seemed to contribute to an unusual number of shark sightings along Rockaway Beach in recent days. Each time swimmers were ordered out of the ocean.`\
 https://nytimes.com/2025/07/06/nyregion/shark-sightings-new-york-beaches-drones.html
