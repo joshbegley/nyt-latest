@@ -1,5 +1,5 @@
 **Yankees' free fall reaches new low in 12-6 loss to Mets**\
-`The Yankees have lost 18 of their last 27 games, watching their seven-game advantage from May 28 collapse amid struggles on both sides. `\
+`The Yankees have lost 18 of their last 27 games, watching their seven-game advantage from May 28 collapse amid struggles on both sides.`\
 https://nytimes.com/athletic/6475701/2025/07/05/free-falling-yankees-look-sloppy/
 
 **Texas Tech's latest recruiting coup: 5-star offensive tackle Felix Ojo**\
