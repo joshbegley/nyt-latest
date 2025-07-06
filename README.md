@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2025/07/06/weather/danas-map-path-tracker.html
 
 **'A huge surprise': Why was England's goal disallowed against France?**\
-`Alessia Russo’s goal for England against France at Euro 2025 was disallowed for for a marginal offside ruling.`\
+`Alessia Russo’s goal for England against France at Euro 2025 was disallowed for a marginal offside ruling.`\
 https://nytimes.com/athletic/6476025/2025/07/06/alessia-russo-offside-goal-england-france/
 
 **Hometown hero Logan Webb pitches Giants to stabilizing win in West Sacramento**\
