@@ -1,3 +1,7 @@
+**'A huge surprise': Why was England's goal disallowed against France?**\
+`Alessia Russo’s goal for England against France at Euro 2025 was disallowed for a marginal offside ruling.`\
+https://nytimes.com/athletic/6476025/2025/07/06/alessia-russo-offside-goal-england-france/
+
 **Tracking Typhoon Danas**\
 `See the likely path and wind arrival times for Danas`\
 https://nytimes.com/interactive/2025/07/06/weather/danas-map-path-tracker.html
