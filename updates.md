@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/06/todays-new-york-times
+
+**How to Decide, According to Neuroscience**\
+`Making decisions that align long-term goals and short-term rewards is challenging, but it can lead to better choices and richer lives.`\
+https://nytimes.com/2025/07/06/opinion/decisions-neuroscience-brains.html
+
 **How F1 is influencing cycling's pursuit of speed: ‘We’re in the middle of an aero war right now’**\
 `Virtually every team in the peloton has visited the Silverstone wind-tunnel over recent seasons, chasing aerodynamic improvements`\
 https://nytimes.com/athletic/6474727/2025/07/06/cycling-formula-one-aerodynamics/
