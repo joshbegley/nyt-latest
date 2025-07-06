@@ -1,40 +1,40 @@
-**As Floods Hit, Key Roles Were Vacant at Weather Service Offices in Texas**\
-`Some experts say staff shortages might have complicated forecasters’ ability to coordinate responses with local emergency management officials.`\
-https://nytimes.com/2025/07/05/us/politics/texas-floods-warnings-vacancies.html
+**He Was Killed in Police Custody. Kenyans Are Not About to Let It Go.**\
+`At the funeral for Albert Ojwang, protesters in Kenya said his death was a call to action for the country’s youth.`\
+https://nytimes.com/2025/07/06/world/africa/kenya-africa-albert-ojwang-funeral.html
 
-**Yankees' free fall reaches new low in 12-6 loss to Mets**\
-`The Yankees have lost 18 of their last 27 games, watching their seven-game advantage from May 28 collapse amid struggles on both sides.`\
-https://nytimes.com/athletic/6475701/2025/07/05/free-falling-yankees-look-sloppy/
+**Quote of the Day: A Lifetime After Fleeing the Nazis, They Tell Their Stories**\
+`Quote of the Day for Sunday, July 6, 2025`\
+https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-a-lifetime-after-fleeing-the-nazis-they-tell-their-stories.html
 
-**Texas Tech's latest recruiting coup: 5-star offensive tackle Felix Ojo**\
-`Red Raiders continue to be a major player in college sports’ new era of player compensation, beating several heavyweights to top prospect.`\
-https://nytimes.com/athletic/6475649/2025/07/05/texas-tech-felix-ojo-nil-deal/
+**Australia Wants to Bar Children From Social Media. Can It Succeed?**\
+`A law that restricts social media use to people 16 and over goes into effect in December, but much about it remains unclear or undecided.`\
+https://nytimes.com/2025/07/06/world/australia/kids-social-media-ban.html
 
-**Kovac calls for FIFA to push back start times for 2026 World Cup games**\
-`The Borussia Dortmund manager also had critical words for the pitch at World Cup host site MetLife Stadium.`\
-https://nytimes.com/athletic/6475614/2025/07/05/borussia-dortmund-niko-kovac-world-cup/
+**The Little Mountain Democracy That Sustains Tibet’s Refugee Nation**\
+`The exile government that was built by the Dalai Lama to preserve Tibetans’ cultural identity will be put to the test by his eventual succession.`\
+https://nytimes.com/2025/07/06/world/asia/dalai-lama-tibetan-administration.html
 
-**USMNT has one goal vs. Mexico in Gold Cup final: 'Lift a trophy'**\
-`The U.S. views game vs. Mexico as a high-stakes contest, the last chance to play under pressure ahead of the 2026 World Cup.`\
-https://nytimes.com/athletic/6475565/2025/07/05/usmnt-gold-cup-mexico-final/
+**The Coder ‘Village’ at the Heart of China’s A.I. Frenzy**\
+`As China vies with Silicon Valley for primacy, Hangzhou, home to DeepSeek and Alibaba, is where its aspiring tech titans mingle and share ideas.`\
+https://nytimes.com/2025/07/06/technology/china-artificial-intelligence-hangzhou.html
 
-**Julian McMahon, ‘Nip/Tuck’ and ‘Fantastic Four’ Star, Dies at 56**\
-`He played the half-human, half-demon Cole Turner in the WB supernatural series “Charmed” and a self-destructive playboy in the FX series “Nip/Tuck.”`\
-https://nytimes.com/2025/07/05/arts/television/julian-mcmahon-dead.html
+**Connections: Sports Edition Coach: Hints for July 6, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6473475/2025/07/06/connections-sports-edition-hints-for-july-6-2025/
 
-**Here’s Why the Deadly Storm Quickly Intensified in Texas**\
-`Thunderstorms and moisture from the Gulf were among the ingredients that led to catastrophic weather and flooding in the Hill Country.`\
-https://nytimes.com/2025/07/05/weather/texas-storm-forecast-timeline.html
+**New Rules Could End the Beautiful Chaos of Rio’s Beaches **\
+`The mayor of Rio de Janeiro has issued a decree to regulate the city’s 30 miles of coastline. Many residents fear it will change Rio’s beach culture as they know it.`\
+https://nytimes.com/card/2025/07/06/world/americas/new-rules-could-end-the-beautiful-chaos-of-rios-beaches
 
-**Notre Dame lands commitment from son of former NFL star Larry Fitzgerald**\
-`Devin Fitzgerald's commitment continues a trend of NFL legacies flocking to the Irish under Marcus Freeman.`\
-https://nytimes.com/athletic/6475569/2025/07/05/notre-dame-recruit-larry-fitzgerald-son/
+**Corrections: July 6, 2025**\
+`Corrections that appeared in print on Sunday, July 6, 2025.`\
+https://nytimes.com/2025/07/06/pageoneplus/corrections-july-6-2025.html
 
-**Twins rally from 5-1 deficit, win on Brooks Lee's squeeze bunt**\
-`Brooks Lee's ninth-inning bunt single helped the Twins complete a comeback win and earn their first series victory in a month.`\
-https://nytimes.com/athletic/6475524/2025/07/05/brooks-lee-twins-bunt-walk-off/
+**Why the Dalai Lama’s Succession Is Complicated**\
+`Just before the Dalai Lama turned 90, he announced that his successor would be selected through the traditional process of reincarnation. Mujib Mashal, The New York Times’s South Asia bureau chief, explains why this process could increase tensions with China.`\
+https://nytimes.com/video/world/asia/100000010250045/why-the-dalai-lamas-succession-is-complicated.html
 
-**Wimbledon recap: Pride in London and a good July 4 weekend for American players**\
-`Wimbledon is the only Grand Slam not to have had a day formally dedicated to Pride.`\
-https://nytimes.com/athletic/6474638/2025/07/05/tennis-wimbledon-recap-day-six-results-analysis-news/
+**Ozzy Osbourne Plays His ‘Final Song’ With Black Sabbath**\
+`The metal luminary, 76, took the stage with his original bandmates at a farewell festival in his Birmingham, England, hometown on Saturday night.`\
+https://nytimes.com/2025/07/05/arts/music/ozzy-osbourne-black-sabbath-final-show.html
 
