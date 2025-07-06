@@ -1,3 +1,7 @@
+**Yankees' free fall reaches new low in 12-6 loss to Mets**\
+`The Yankees have lost 18 of their last 27 games, watching their seven-game advantage from May 28 collapse amid struggles on both sides. `\
+https://nytimes.com/athletic/6475701/2025/07/05/free-falling-yankees-look-sloppy/
+
 **Texas Tech's latest recruiting coup: 5-star offensive tackle Felix Ojo**\
 `Red Raiders continue to be a major player in college sports’ new era of player compensation, beating several heavyweights to top prospect.`\
 https://nytimes.com/athletic/6475649/2025/07/05/texas-tech-felix-ojo-nil-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6474638/2025/07/05/tennis-wimbledon-recap-day-six-r
 **How does the Cam Whitmore trade fit into the Washington Wizards' long-term plan?**\
 `Whitmore, who grew up in suburban Washington, will have a chance to make the Wizards his NBA home.`\
 https://nytimes.com/athletic/6475516/2025/07/05/cam-whitmore-trade-wizards-rockets/
-
-**Maple Leafs' Robertson, Jets' Vilardi among 11 to file for arbitration**\
-`Arbitration hearings will be held from July 20 to Aug. 4.`\
-https://nytimes.com/athletic/6475489/2025/07/05/nhl-salary-arbitration-2025/
 
