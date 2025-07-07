@@ -1,3 +1,11 @@
+**Erick Fedde falters again in 'ugly' loss to Cubs as Cardinals debate rotation changes**\
+`St. Louis posted its sixth shutout defeat in its last 11 games and fell to 6 1/2 games back in the division`\
+https://nytimes.com/athletic/6477257/2025/07/07/erick-fedde-cardinals-cubs/
+
+**The Future Looks Dark, but Familiar, in Gary Shteyngart’s New Book**\
+`“Vera, or Faith” follows a 10-year-old girl navigating family drama and a dystopian America.`\
+https://nytimes.com/2025/07/07/books/review/gary-shteyngart-vera-or-faith.html
+
 **Man Who Opened Fire on Border Patrol Building in Texas Is Fatally Shot**\
 `The man, who was armed with an assault rifle, opened fire on the building in McAllen, Texas, on Monday and was shot dead by federal officers, the police said.`\
 https://nytimes.com/2025/07/07/us/mcallen-airport-shooter-border-patrol.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6478124/2025/07/07/clippers-heat-jazz-agree-to-four
 **What I'm hearing about the Penguins' Bryan Rust, Rickard Rakell trade considerations**\
 `Teams around the NHL continue to show heavy interest in Rust and Rakell. `\
 https://nytimes.com/athletic/6478036/2025/07/07/penguins-bryan-rust-rickard-rakell-trade-rumors/
-
-**Can You Match These Snarky Lines to Their Books?**\
-`Literature is full of bold observations. See if you can match these five quotations to their sources.`\
-https://nytimes.com/interactive/2025/07/07/books/review/snarky-book-quotes.html
-
-**Transfers TLDR: Martin Zubimendi to Arsenal - all you need to know**\
-`The Spanish midfielder's move to the Emirates Stadium from Real Sociedad has been confirmed – this is everything you need to know...`\
-https://nytimes.com/athletic/6439985/2025/07/07/martin-zubimendi-to-arsenal-transfers-tldr/
 
