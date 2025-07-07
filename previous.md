@@ -1,3 +1,7 @@
+**No Corrections: July 7, 2025**\
+`No corrections appeared in print on Monday, July 7, 2025.`\
+https://nytimes.com/2025/07/07/pageoneplus/no-corrections-july-7-2025.html
+
 **‘Hallmarks of Institutional Racism’ Found in Police Killing of Aboriginal Man**\
 `A coroner said that she could not exclude the possibility that an officer’s racist attitudes contributed to the death of Kumanjayi Walker in 2019.`\
 https://nytimes.com/2025/07/07/world/australia/kumanjayi-walker-racist-attitudes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473084/2025/07/07/usmnts-damion-downs-set-to-join-
 **Indonesian Volcano Spews Ash 11 Miles High**\
 `Mount Lewotobi Laki-laki, on the southeastern Indonesian island of Flores, erupted for about six minutes on Monday morning, the national volcanic agency reported.`\
 https://nytimes.com/video/world/asia/100000010270351/indonesia-volcano-ash-mount-lewotobi.html
-
-**The Athletic FC: USMNT fail again – what now? Plus: Arsenal eye Gyokeres, and Jimenez's touching Jota tribute**\
-`Today in TAFC: USMNT fall at final hurdle in Gold Cup, Arsenal transfers hot up with Gyokeres at top of list, and poignant farewell for Jota`\
-https://nytimes.com/athletic/6477625/2025/07/07/usmnt-mexico-gold-cup-arsenal-gyokeres/
 
