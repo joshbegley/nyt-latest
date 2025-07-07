@@ -1,3 +1,7 @@
+**‘Hallmarks of Institutional Racism’ Found in Police Killing of Aboriginal Man**\
+`A coroner said that she could not exclude the possibility that an officer’s racist attitudes contributed to the death of Kumanjayi Walker in 2019.`\
+https://nytimes.com/2025/07/07/world/australia/kumanjayi-walker-racist-attitudes.html
+
 **New Deadlines, New Letters — Same Tariff Uncertainty**\
 `The Trump administration is keen to strike deals as it dangles an extension to trading partners. But it’s also issuing threats to some of them.`\
 https://nytimes.com/2025/07/07/business/dealbook/trump-tariff-deadline-trade.html
