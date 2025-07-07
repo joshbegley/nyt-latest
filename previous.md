@@ -1,3 +1,7 @@
+**The Met Gala After Anna?**\
+`What would it look like? The Bal d’Été at the Musée des Arts Décoratifs in Paris offered one example.`\
+https://nytimes.com/2025/07/07/style/musee-des-arts-decoratifs-bal-d-ete-sofia-coppola.html
+
 **Where every international NWSL player is competing this summer and how to watch**\
 `Every NWSL player competing in the three major continental tournaments this summer`\
 https://nytimes.com/athletic/6476934/2025/07/07/nwsl-players-euros-wafcon-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/podcasts/the-daily/cbs-paramount-trump-settlement
 **The Agonizing Search in Texas, and a Looming Trade Deadline**\
 `Plus, what your TV knows about you.`\
 https://nytimes.com/2025/07/07/podcasts/the-headlines/search-texas-flood-trade-deadline.html
-
-**By the numbers: Anatomy of the Guardians' 10-game losing streak**\
-`This streak has stretched 92 innings. The Guardians have scored in only eight of those 92. `\
-https://nytimes.com/athletic/6477077/2025/07/07/mlb-guardians-10-game-losing-streak/
 

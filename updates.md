@@ -1,3 +1,7 @@
+**The Met Gala After Anna?**\
+`What would it look like? The Bal d’Été at the Musée des Arts Décoratifs in Paris offered one example.`\
+https://nytimes.com/2025/07/07/style/musee-des-arts-decoratifs-bal-d-ete-sofia-coppola.html
+
 **Where every international NWSL player is competing this summer and how to watch**\
 `Every NWSL player competing in the three major continental tournaments this summer`\
 https://nytimes.com/athletic/6476934/2025/07/07/nwsl-players-euros-wafcon-copa-america/
