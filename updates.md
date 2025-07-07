@@ -1,5 +1,9 @@
 **Scouting Cam Schlittler, Konnor Griffin, Justin Crawford, Vance Honeycutt and more**\
 `Notes on Yankees, Phillies, Pirates and Orioles prospects, including Justin Crawford, Spencer Jones and Konnor Griffin.`\
+https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schlittler-konnor-griffin-justin-crawford/
+
+**Scouting Cam Schlittler, Konnor Griffin, Justin Crawford, Vance Honeycutt and more**\
+`Notes on Yankees, Phillies, Pirates and Orioles prospects, including Justin Crawford, Spencer Jones and Konnor Griffin.`\
 https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schlitter-konnor-griffin-justin-crawford/
 
 **Here Are Trump’s New Tariff Threats**\
