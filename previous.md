@@ -1,3 +1,11 @@
+**Indonesia Volcano Eruption Sends Ash Soaring 11 Miles High**\
+`The ash cloud above Mount Lewotobi Laki-laki on Monday was about four times taller than the one produced by an eruption there last month.`\
+https://nytimes.com/2025/07/07/world/asia/indonesia-volcano-eruption-mount-lewotobi-laki-laki.html
+
+**The New York Times International Edition in Print for Tuesday, July 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/07/todays-new-york-times-international-edition
+
 **Up Against Time, a Desperate Search Presses Ahead**\
 `Officials, emergency crews and volunteers in Central Texas were holding out hope for finding survivors of the flash flooding, as the death toll climbed.`\
 https://nytimes.com/2025/07/07/us/central-texas-flood-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/opinion/birds-nest-life.html
 **Ukraine Turns to Fishing Nets to Catch Russian Drones**\
 `With their dense mesh, the nets can tangle drone propellers. It’s a simple but effective countermeasure that reflects how low-tech means can blunt high-tech weapons in the war.`\
 https://nytimes.com/2025/07/07/world/europe/ukraine-russia-drones-nets.html
-
-**$1 Million Homes in California**\
-`A three-bedroom kit house in Los Angeles, a two-bedroom cottage in Santa Rosa, and a three-bedroom home in Palm Springs.`\
-https://nytimes.com/2025/07/07/realestate/1-million-homes-in-california.html
-
-**How a Show About Truly Terrible People Became the Defining American Sitcom**\
-`Over the last 20 years, television has changed, but the malignant narcissists of “It’s Always Sunny in Philadelphia” have not.`\
-https://nytimes.com/2025/07/07/magazine/always-sunny-in-philadelphia.html
 
