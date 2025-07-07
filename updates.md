@@ -1,3 +1,7 @@
+**Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
+`The tariffs on two of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
+https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
+
 **Fantasy baseball cheat sheet: Bench Shota Imanaga vs. Yankees and more THE BAT X insights**\
 `THE BAT X thinks Mike Trout's value will improve in the second half of the season and highlights reliever Bryan King as a streamer. `\
 https://nytimes.com/athletic/6477933/2025/07/07/fantasy-baseball-the-bat-x-shota-imanaga/
