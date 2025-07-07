@@ -1,3 +1,7 @@
+**Canucks mailbag, part 1: Strategic paths to contender status tiers**\
+`The meat of the NHL offseason is in the books. That doesn't mean it's the dog days of summer yet, however.`\
+https://nytimes.com/athletic/6476970/2025/07/07/vancouver-canucks-mailbag-drance-july-2025/
+
 **Trial Over Free Speech on Campus, and Trump’s Student Crackdown, Begins**\
 `The case challenges the Trump administration’s targeting of noncitizen student activists for arrest and deportation on First Amendment grounds.`\
 https://nytimes.com/2025/07/07/us/politics/trump-trial-free-speech-student-crackdowns.html
