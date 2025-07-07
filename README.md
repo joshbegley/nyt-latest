@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6477194/2025/07/06/usmnt-mexico-gold-cup-final-alva
 `Incoming BYU star shines at the FIBA U19 World Cup, but tournament shows that his draft class is stacked.`\
 https://nytimes.com/athletic/6477044/2025/07/06/aj-dybantsa-mvp-fiba-u19-world-cup/
 
-**Dallas church draws 600 to a service for the Texas flooding victims.**\
+**A Dallas church draws 600 to a service for the Texas flooding victims.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
 

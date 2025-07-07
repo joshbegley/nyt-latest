@@ -1,3 +1,11 @@
+**Rosenthal: Firing Mike Rizzo and Dave Martinez makes some sense for the Nationals, but the timing doesn't**\
+`The Nationals will now have an interim general manager making the No. 1 pick in next week's draft and handling the team's trade deadline.`\
+https://nytimes.com/athletic/6477294/2025/07/06/washington-nationals-lerner-rizzo-martinez-firings/
+
+**Officials Feared Flood Risk to Youth Camps but Rejected Warning System**\
+`Kerr County had discussed buying such things as water gauges and sirens after previous flood disasters. But as with many rural Texas counties, cost was an issue.`\
+https://nytimes.com/2025/07/06/us/texas-flood-warnings-sirens.html
+
 **Byron Buxton chosen as Twins' lone All-Star, Joe Ryan and Jhoan Duran snubbed**\
 `Buxton, a Georgia native, will be heading home for his second All-Star Game, but the Twins' top pitchers were passed over for the AL team.`\
 https://nytimes.com/athletic/6476597/2025/07/06/byron-buxton-twins-all-star-joe-ryan-jhoan-duran-snubbed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477096/2025/07/06/mlb-2025-all-star-game-snubs/
 **My Summer Self**\
 `Summer is a time when change seems more possible than ever. But is that really how it works?`\
 https://nytimes.com/2025/07/06/podcasts/my-summer-self-this-american-life-nyt-audio.html
-
-**Twins takeaways: With trade deadline looming, this team is in a tough spot**\
-`The Twins say they remain confident they can fix their self-made mess in time to avoid a roster teardown at the July 31 trade deadline.`\
-https://nytimes.com/athletic/6477104/2025/07/06/twins-takeaways-with-trade-deadline-looming-this-team-is-in-a-tough-spot/
-
-**In Subway Series finale, bruised but breathing Yankees earn reset after week in the wilderness**\
-`The Yankees ended a six-game losing streak by doing what they do best on Sunday against the Mets.`\
-https://nytimes.com/athletic/6477143/2025/07/06/ny-yankees-mets-subway-series-analysis/
 
