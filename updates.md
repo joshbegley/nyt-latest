@@ -1,3 +1,19 @@
+**In Texas, Another Tragic Warning on Climate Change**\
+`Readers react to the unfolding flooding disaster in Texas. Also: Empathy for immigrants; anticipating the 250th anniversary of the United States.`\
+https://nytimes.com/2025/07/07/opinion/texas-floods-climate-change.html
+
+**Tour de France stage three: Tim Merlier victorious on crash-marred day as green jersey Philipsen abandons**\
+`Analysis of the third stage of the 2025 Tour de France, which took the riders from Valenciennes to Dunkerque`\
+https://nytimes.com/athletic/6477870/2025/07/07/tour-de-france-stage-three-analysis/
+
+**Send in your Red Wings questions for Max Bultman's mailbag**\
+`Submit your questions here, and they may be answered in an upcoming mailbag.`\
+https://nytimes.com/athletic/6478485/2025/07/07/red-wings-mailbag-max-bultman-prompt/
+
+**Test record belongs to 'legend' Lara, says Mulder after declaring on 367**\
+`After declaring on himself with 33 runs remaining to tie the highest individual Test score, Mulder said Lara deserves to keep the milestone.`\
+https://nytimes.com/athletic/6477640/2025/07/07/wiaan-mulder-test-record-score-brian-lara/
+
 **Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
 `The tariffs on some of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
 https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
