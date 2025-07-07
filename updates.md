@@ -1,3 +1,7 @@
+**Flood risk persists in Central Texas as rainfall continues.**\
+`Flood watches remain in effect as forecasters warn of more rain and possible river rises through Monday.`\
+https://nytimes.com/live/2025/07/07/us/texas-floods/flood-risk-persists-in-central-texas-as-rainfall-continues
+
 **WNBA power rankings: Dallas' young cast looks like a strong support for Paige Bueckers**\
 `Will Caitlin Clark return and provide a showdown this weekend against Bueckers?`\
 https://nytimes.com/athletic/6477439/2025/07/07/wnba-power-rankings-paige-bueckers-dallas-wings/
