@@ -1,40 +1,40 @@
-**Botafogo target Davide Ancelotti appointment as head coach**\
-`The appointment comes one month after he joined his father Carlo’s coaching staff at the Brazil men’s international side.`\
-https://nytimes.com/athletic/6477511/2025/07/07/davide-ancelotti-botafogo-manager/
+**Up Against Time, a Desperate Search Presses Ahead**\
+`Officials, emergency crews and volunteers in Central Texas were holding out hope for finding survivors of the flash flooding, as the death toll climbed.`\
+https://nytimes.com/2025/07/07/us/central-texas-flood-search.html
 
-**Videos Show Camp Mystic Before and After Deadly Texas Flood**\
-`Surviving campers sang hymns as they drove past the damage left by the floods. Days earlier, they were having fun and playing games at the all-girls’ Christian summer camp.`\
-https://nytimes.com/video/us/100000010270226/texas-flood-camp-mystic.html
+**Texas Hill Country Is Underwater, and America’s Emergency Lifeline Is Fraying**\
+`With each passing day, the federal government is becoming less prepared to face the next big disaster.`\
+https://nytimes.com/2025/07/07/opinion/texas-floods-fema.html
 
-**Tropical Storm Chantal Floods Parts of North Carolina**\
-`The storm, which made landfall on Sunday, caused significant flooding that closed roads and stranded drivers. It is heading northeast.`\
-https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-north-carolina.html
+**In Digital Era, Supreme Court Insists on Vast Piles of Paper**\
+`The court’s rules require many litigants to submit 40 copies of their briefs, resulting in millions of pages printed each term. Critics call the process outdated and wasteful.`\
+https://nytimes.com/2025/07/07/us/politics/supreme-court-cases-paper-electronic.html
 
-**What We Know About the Floods in Central Texas**\
-`At least 81 people, including more than two dozen children, died in the torrential downpour. Dozens more were still missing three days later.`\
-https://nytimes.com/2025/07/07/us/texas-floods-kerr-county.html
+**Trump Keeps Foreign Countries on Edge as Tariff Deadline Nears**\
+`The president is again threatening higher tariff rates on a dozen foreign nations, as a deadline elapses this week for making trade deals.`\
+https://nytimes.com/2025/07/07/us/politics/trump-tariff-deadline.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/07/crosswords/spelling-bee-forum.html
+**Now You See Josh Hawley, Now You Don’t**\
+`The Missouri senator’s evasions expose a disgraced Senate.`\
+https://nytimes.com/2025/07/07/opinion/josh-hawley-trump-bill.html
 
-**Tropical Storm Chantal Soaks North Carolina**\
-`Heavy rains from Tropical Storm Chantal flooded homes and streets as it pushed into central North Carolina.`\
-https://nytimes.com/video/us/100000010270201/tropical-storm-chantal-floods-parts-of-north-carolina.html
+**Looking Beyond the U.S. for Trade, Canada Begins Shipping Natural Gas to Asia**\
+`A tanker is headed to South Korea with a first shipment of liquefied natural gas from Canada, which hopes to reduce its export reliance on its neighbor.`\
+https://nytimes.com/2025/07/07/world/canada/natural-gas-asia-us-trade.html
 
-**Word of the Day: whimsical**\
-`This word has appeared in 243 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/07/learning/word-of-the-day-whimsical.html
+**The Questions Started With the Wren**\
+`In this season of life and loss, the strangest moments arrive without answers.`\
+https://nytimes.com/2025/07/07/opinion/birds-nest-life.html
 
-**Randy Rodríguez, the Giants' quietest All-Star, is a sweeping success**\
-`Rodríguez is quiet and unassuming and likes to read classic novels. He also might be the best relief pitcher in baseball.`\
-https://nytimes.com/athletic/6477467/2025/07/07/randy-rodriguez-giants-all-star-sweeping-success/
+**Ukraine Turns to Fishing Nets to Catch Russian Drones**\
+`With their dense mesh, the nets can tangle drone propellers. It’s a simple but effective countermeasure that reflects how low-tech means can blunt high-tech weapons in the war.`\
+https://nytimes.com/2025/07/07/world/europe/ukraine-russia-drones-nets.html
 
-**2 Dead and 300 Injured After Typhoon Danas Strikes Taiwan**\
-`Most typhoons come ashore on the island’s sparsely populated east coast, but Danas scraped its crowded west coast. Nearly 400,000 households had no power on Monday.`\
-https://nytimes.com/2025/07/07/world/asia/typhoon-danas-taiwan.html
+**$1 Million Homes in California**\
+`A three-bedroom kit house in Los Angeles, a two-bedroom cottage in Santa Rosa, and a three-bedroom home in Palm Springs.`\
+https://nytimes.com/2025/07/07/realestate/1-million-homes-in-california.html
 
-**Monday Briefing: Floods in Texas Killed at Least 80**\
-`Plus, the case of the lost Stradivarius.`\
-https://nytimes.com/2025/07/07/briefing/texas-floods-israel-washington-dalai-lama.html
+**How a Show About Truly Terrible People Became the Defining American Sitcom**\
+`Over the last 20 years, television has changed, but the malignant narcissists of “It’s Always Sunny in Philadelphia” have not.`\
+https://nytimes.com/2025/07/07/magazine/always-sunny-in-philadelphia.html
 
