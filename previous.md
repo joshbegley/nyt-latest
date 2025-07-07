@@ -1,3 +1,7 @@
+**Botafogo target Davide Ancelotti appointment as head coach**\
+`The appointment comes one month after he joined his father Carlo’s coaching staff at the Brazil men’s international side.`\
+https://nytimes.com/athletic/6477511/2025/07/07/davide-ancelotti-botafogo-manager/
+
 **Videos Show Camp Mystic Before and After Deadly Texas Flood**\
 `Surviving campers sang hymns as they drove past the damage left by the floods. Days earlier, they were having fun and playing games at the all-girls’ Christian summer camp.`\
 https://nytimes.com/video/us/100000010270226/texas-flood-camp-mystic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/world/asia/typhoon-danas-taiwan.html
 **Monday Briefing: Floods in Texas Killed at Least 80**\
 `Plus, the case of the lost Stradivarius.`\
 https://nytimes.com/2025/07/07/briefing/texas-floods-israel-washington-dalai-lama.html
-
-**The New York Times in Print for Monday, July 7, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/07/todays-new-york-times
 

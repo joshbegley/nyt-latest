@@ -1,3 +1,7 @@
+**Botafogo target Davide Ancelotti appointment as head coach**\
+`The appointment comes one month after he joined his father Carlo’s coaching staff at the Brazil men’s international side.`\
+https://nytimes.com/athletic/6477511/2025/07/07/davide-ancelotti-botafogo-manager/
+
 **Videos Show Camp Mystic Before and After Deadly Texas Flood**\
 `Surviving campers sang hymns as they drove past the damage left by the floods. Days earlier, they were having fun and playing games at the all-girls’ Christian summer camp.`\
 https://nytimes.com/video/us/100000010270226/texas-flood-camp-mystic.html
