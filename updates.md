@@ -1,3 +1,23 @@
+**Monday Briefing: Floods in Texas Killed at Least 80**\
+`Plus, the case of the lost Stradivarius.`\
+https://nytimes.com/2025/07/07/briefing/texas-floods-israel-washington-dalai-lama.html
+
+**The New York Times in Print for Monday, July 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/07/todays-new-york-times
+
+**‘Too Much,’ Plus 7 Things on TV this Week**\
+`Lena Dunham’s new rom-com comes to Netflix, and two reality shows air.`\
+https://nytimes.com/2025/07/07/arts/television/too-much-plus-7-things-on-tv-this-week.html
+
+**Britain’s Prime Minister Is Fading Away**\
+`After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
+https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
+
+**USMNT's Gold Cup final defeat to Mexico a microcosm of its summer**\
+`A U.S. group missing some big names beat who it was supposed to, got exposed by a side with better quality and reset the program's standard`\
+https://nytimes.com/athletic/6477448/2025/07/07/usmnt-mexico-gold-cup-final-pochettino/
+
 **Sounders goalkeeper Stefan Frei taken in ambulance after head collision**\
 `Frei jumped forward to make a play on a free kick, and as he came down, his head collided with the knee of a Crew player.`\
 https://nytimes.com/athletic/6477377/2025/07/07/sounders-stefan-frei-goalkeeper-knee-collision-head-ambulance/
