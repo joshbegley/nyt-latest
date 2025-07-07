@@ -1,3 +1,11 @@
+**Dallas church draws 600 to a service for the Texas flooding victims.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
+
+**Yankees earn reset after splitting Subway Series against Mets, snap six-game losing streak**\
+`After a week in the wilderness, the Yankees found their way to the clearing of Monday’s off day.`\
+https://nytimes.com/athletic/6477143/2025/07/06/ny-yankees-mets-subway-series-analysis/
+
 **Trump Says Musk Is ‘Off the Rails’ With His Third-Party Effort**\
 `The tech billionaire’s effort to create a new political party, called the America Party, comes amid a ramped-up feud with the president over his new domestic policy law.`\
 https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html

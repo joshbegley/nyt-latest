@@ -1,3 +1,7 @@
+**Dallas church draws 600 to a service for the Texas flooding victims.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
+
 **Trump Says Musk Is ‘Off the Rails’ With His Third-Party Effort**\
 `The tech billionaire’s effort to create a new political party, called the America Party, comes amid a ramped-up feud with the president over his new domestic policy law.`\
 https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/06/podcasts/my-summer-self-this-american-life-nyt-au
 https://nytimes.com/athletic/6477104/2025/07/06/twins-takeaways-with-trade-deadline-looming-this-team-is-in-a-tough-spot/
 
 **Yankees earn reset after splitting Subway Series against Mets, snap six-game losing streak**\
-`After a week in the wilderness, the Yankees found their way to the clearing of Monday’s off da`\
+`After a week in the wilderness, the Yankees found their way to the clearing of Monday’s off day.`\
 https://nytimes.com/athletic/6477143/2025/07/06/ny-yankees-mets-subway-series-analysis/
 
 **Yankees, Mets stunned by Bellinger's game-saving double play: 'Play of the year'**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/06/us/texas-floods/days-later-the-search-for-lo
 **Tarik Skubal, Tigers keep finding new ways to dazzle in a charmed season**\
 `Detroit's ace pitched seven scoreless innings against Cleveland and got plenty of help from his teammates along the way.`\
 https://nytimes.com/athletic/6477083/2025/07/06/tarik-skubal-tigers-charmed-season/
-
-**Sabres elect arbitration with Bowen Byram: Why now and what it means for both sides**\
-`Byram didn't file for player-elected salary arbitration by Saturday's deadline but the team filing means he has some control over the award.`\
-https://nytimes.com/athletic/6477038/2025/07/06/bowen-byram-sabres-salary-arbitration/
 
