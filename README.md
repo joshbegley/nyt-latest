@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Trading Partners on Edge as Tariff Deadline Nears**\
+``\
+https://nytimes.com/live/2025/07/07/us/trump-news
+
 **Southampton set to sign USMNT striker Downs from Koln**\
 `The move is subject to a medical for the 21-year old, who was a second-half substitute in USMNT's Gold Cup final loss to Mexico on Sunday.`\
 https://nytimes.com/athletic/6473084/2025/07/07/usmnts-damion-downs-set-to-join-southampton-in-e8m-transfer-from-koln/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6477625/2025/07/07/usmnt-mexico-gold-cup-arsenal-gy
 https://nytimes.com/athletic/6477731/2025/07/07/callum-wilson-leaves-newcastle/
 
 **Typhoon Danas Strikes Taiwan**\
-`The storm left hundreds of thousands of homes without power and crushed the gate of a well-known temple in the southwest of Taiwan.`\
+`The storm left hundreds of thousands of homes without power and crushed the gate of a well-known temple in southwest Taiwan.`\
 https://nytimes.com/video/world/asia/100000010270274/typhoon-danas-strikes-taiwan.html
 
 **Summer lovin’, had me a blast: How CC Sabathia’s Milwaukee moment smoothed a path to Cooperstown**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
 **Your Questions, Answered**\
 `We address your queries about the news.`\
 https://nytimes.com/2025/07/07/briefing/your-questions-answered.html
-
-**A high school right-hander has never gone 1-1 in the MLB Draft. Why it may never happen**\
-`In 59 MLB Draft classes, a high school right-hander has never gone 1-1. Seth Hernandez is a top talent but is unlikely to be the first.`\
-https://nytimes.com/athletic/6476445/2025/07/07/mlb-draft-top-pick-high-school-right-handed-pitcher/
 
