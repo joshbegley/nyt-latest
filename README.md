@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schli
 `President Trump has told 14 countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
 https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
 
-**Zohran Mamdani’s Foes Go to Unusual Lengths to Derail His Mayoral Hopes**\
+**After Mamdani’s Win, Some Democrats Are Determined to Stop Him**\
 `After Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
 https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
 

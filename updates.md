@@ -1,3 +1,11 @@
+**Tuesday Briefing: Trump’s New Tariff Threats**\
+`Plus, the beautiful chaos of Rio’s beaches.`\
+https://nytimes.com/2025/07/07/briefing/tariffs-japan-south-korea-texas-floods-israel-gaza-iran.html
+
+**Here Are Trump’s New Tariff Threats**\
+`President Trump has told 14 countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
+https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
+
 **Why Are Protesters in Mexico City Angry at Remote Workers?**\
 `Top concerns include the displacement of longtime residents as rents and food prices surge. Ire over the influx of well-heeled foreigners has been building for years.`\
 https://nytimes.com/2025/07/07/world/americas/mexico-city-protests-rent-prices-tourists.html
