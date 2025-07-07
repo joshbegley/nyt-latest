@@ -1,3 +1,15 @@
+**Medical Societies Sue Kennedy and H.H.S. Over Vaccine Advice**\
+`New restrictions on Covid shots run counter to scientific evidence, the groups said.`\
+https://nytimes.com/2025/07/07/health/vaccines-kennedy-lawsuit.html
+
+**Szczesny signs two-year Barcelona contract extension**\
+`The 35-year-old previously retired from football at the start of the 2024-25 season following the expiration of his contract at Juventus.`\
+https://nytimes.com/athletic/6190085/2025/07/07/wojciech-szczesny-barcelona-contract-new/
+
+**Trump Administration Ends Deportation Protections for Hondurans and Nicaraguans**\
+`The decision by the Homeland Security Department’ to end protections for migrants from those countries goes into effect in about two months.`\
+https://nytimes.com/2025/07/07/us/politics/trump-deportations-tps-honduras-nicaragua.html
+
 **Stanway: England loss to France 'like a bad night out you want to forget'**\
 `The midfielder added that England are looking to 'put things right' against the Netherlands in their second Euro 2025 match on Wednesday.`\
 https://nytimes.com/athletic/6478147/2025/07/07/euro-2025-england-france-netherlands-stanway/

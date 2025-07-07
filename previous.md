@@ -1,3 +1,15 @@
+**Medical Societies Sue Kennedy and H.H.S. Over Vaccine Advice**\
+`New restrictions on Covid shots run counter to scientific evidence, the groups said.`\
+https://nytimes.com/2025/07/07/health/vaccines-kennedy-lawsuit.html
+
+**Szczesny signs two-year Barcelona contract extension**\
+`The 35-year-old previously retired from football at the start of the 2024-25 season following the expiration of his contract at Juventus.`\
+https://nytimes.com/athletic/6190085/2025/07/07/wojciech-szczesny-barcelona-contract-new/
+
+**Trump Administration Ends Deportation Protections for Hondurans and Nicaraguans**\
+`The decision by the Homeland Security Department’ to end protections for migrants from those countries goes into effect in about two months.`\
+https://nytimes.com/2025/07/07/us/politics/trump-deportations-tps-honduras-nicaragua.html
+
 **Stanway: England loss to France 'like a bad night out you want to forget'**\
 `The midfielder added that England are looking to 'put things right' against the Netherlands in their second Euro 2025 match on Wednesday.`\
 https://nytimes.com/athletic/6478147/2025/07/07/euro-2025-england-france-netherlands-stanway/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/07/world/europe/russia-official-dead.html
 **Spurs to name Fabian Otte as new head of goalkeeping**\
 `Otte joins Thomas Frank's new-look backroom team after the Dane replaced Ange Postecoglou as head coach`\
 https://nytimes.com/athletic/6478239/2025/07/07/tottenham-fabian-otte-liverpol-head-of-goalkeeping-frank/
-
-**Longtime Oklahoma AD Joe Castiglione to retire this school year**\
-`Castiglione is entering his 28th season overseeing the Sooners' athletic department, the longest active tenure in major college sports.`\
-https://nytimes.com/athletic/6478155/2025/07/07/joe-castiglione-oklahoma-athletic-director-retirement/
-
-**Olympic fencer Thibus cleared of doping charge with kissing defence**\
-`CAS judges accepted Thibus' contamination was due to kissing her then partner, who had been consuming ostarine without her knowledge.`\
-https://nytimes.com/athletic/6478133/2025/07/07/olympics-fencing-ysaora-thibus-doping/
-
-**Erick Fedde falters again in 'ugly' loss to Cubs as Cardinals debate rotation changes**\
-`St. Louis posted its sixth shutout defeat in its last 11 games and fell to 6 1/2 games back in the division`\
-https://nytimes.com/athletic/6477257/2025/07/07/erick-fedde-cardinals-cubs/
 
