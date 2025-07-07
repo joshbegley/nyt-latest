@@ -1,3 +1,11 @@
+**Summer lovin’, had me a blast: How CC Sabathia’s Milwaukee moment smoothed a path to Cooperstown**\
+`Seventeen years ago, Sabathia began a three-month stop with the Brewers that proved pivotal in his 19-season Hall of Fame career.`\
+https://nytimes.com/athletic/6476239/2025/07/07/cc-sabathia-milwaukee-brewers-trade-cooperstown/
+
+**What we've learned in the first half of the MLB season: 10 midsummer takeaways**\
+`It’s time to let you know What We’ve Learned in the First Half, with perspective from four MLB executives.`\
+https://nytimes.com/athletic/6477300/2025/07/07/mlb-season-first-half-takeaways/
+
 **Trump Threatens Extra Tariffs on BRICS-Aligned Countries**\
 `President Trump said nations that support the group’s “Anti-American policies” would face an additional 10 percent tariff. He did not elaborate.`\
 https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6466856/2025/07/07/michigan-ohio-state-best-college
 **Growing up in a military family should make playing QB for Bill Belichick a snap**\
 `Burgess, ranked the No. 16 QB nationally in the Class of 2026 by 247Sports, picked North Carolina over Auburn, NC State and others. `\
 https://nytimes.com/athletic/6469945/2025/07/07/bill-belichick-north-carolina-recruiting-travis-burgess/
-
-**Was Reds lefty Andrew Abbott an All-Star snub?: C. Notes**\
-`Abbott was deserving of an All-Star nod, but it’s hard to say any of those who were picked ahead of him didn’t.`\
-https://nytimes.com/athletic/6477074/2025/07/07/reds-andrew-abbott-all-star-snub/
-
-**Transfers TLDR: Jamie Gittens to Chelsea – all you need to know**\
-`Jamie Gittens has moved to Chelsea from Dortmund – here are the details behind the deal`\
-https://nytimes.com/athletic/6461153/2025/07/07/jamie-gittens-to-chelsea-transfers-tldr/
 
