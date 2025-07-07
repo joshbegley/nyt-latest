@@ -1,3 +1,11 @@
+**Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\
+`Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
+https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html
+
+**Tropical Depression Chantal Floods Central North Carolina**\
+`Authorities said that there was at least one storm-related death in North Carolina.`\
+https://nytimes.com/video/weather/100000010271901/tropical-depression-chantal-floods-central-north-carolina.html
+
 **Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
 `Kevin Pritchard says he was negotiating in good faith, but found out big man was signing with Bucks over social media.`\
 https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/world/americas/haiti-oloffson-hotel-fire-port-au-
 **Franklin W. Stahl, 95, Dies; Helped Create a ‘Beautiful’ DNA Experiment**\
 `He and a colleague proved a theory advanced by the Nobel Prize winners James Watson and Francis Crick, who discovered DNA’s helical structure.`\
 https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
-
-**U.S. Will Try to Deport Abrego Garcia Before He Faces Trial, Justice Dept. Says**\
-`The plan directly contradicted the White House, which last month described as “fake news” reports of plans to re-deport Kilmar Armando Abrego Garcia.`\
-https://nytimes.com/2025/07/07/us/politics/kilmar-abrego-garcia-trump-deport.html
-
-**As Renewed U.S. Tariffs Loom, Emerging Economies Turn to One Another**\
-`With President Trump preparing to revive tariffs this week, some of the world’s biggest exporters are planning a future less dependent on trade with the United States.`\
-https://nytimes.com/2025/07/07/world/americas/trump-tariffs-global-trade-economy.html
 
