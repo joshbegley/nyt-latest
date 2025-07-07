@@ -1,3 +1,11 @@
+**Red Light: Decoding the NHL's dog days. Plus: Mitch Marner's weirdest league record**\
+`Let’s just say we’re officially into the NHL’s slow period. Here's what's still unsettled.`\
+https://nytimes.com/athletic/6477945/2025/07/07/red-light-newsletter-nhl-offseason-snoozefest/
+
+**Milan head coach Allegri says Modric 'will be here in August'**\
+`Modric is currently playing for Madrid at the Club World Cup and will become a free agent once Madrid's tournament ends.`\
+https://nytimes.com/athletic/6477908/2025/07/07/luka-modric-will-be-here-in-august-milan-head-coach-max-allegri/
+
 **How to Help the Texas Flood Victims**\
 `Flash flooding killed at least 80 people in Central Texas, and dozens are still missing. Here’s how you can help.`\
 https://nytimes.com/2025/07/07/us/texas-flooding-victims-rescue-donate-help.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6472882/2025/07/07/chicago-blackhawks-lineup-projec
 **How much better does the Senators' pipeline look after the 2025 NHL draft?**\
 `The Athletic caught up with Senators prospects and scouting staff during last week's development camp.`\
 https://nytimes.com/athletic/6472412/2025/07/07/senators-yakemchuk-hensler-development-camp/
-
-**Knicks summer-league preview: What to watch from Tyler Kolek, Pacôme Dadiet and more**\
-`What I'm watching for from Knicks players at the Las Vegas Summer League.`\
-https://nytimes.com/athletic/6476055/2025/07/07/nba-summer-league-preview-knicks/
-
-**Trump Administration Live Updates: U.S. Trading Partners Are on Edge as Tariff Deadline Nears**\
-``\
-https://nytimes.com/live/2025/07/07/us/trump-news
 
