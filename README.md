@@ -1,3 +1,7 @@
+**Trump Says Musk Is ‘Off the Rails’ With His Third-Party Effort**\
+`The tech billionaire’s effort to create a new political party, called the America Party, comes amid a ramped-up feud with the president over his new domestic policy law.`\
+https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html
+
 **Raul Jimenez delivers Diogo Jota tribute after scoring for Mexico vs USMNT**\
 `The pair were teammates at Wolves and remained close friends.`\
 https://nytimes.com/athletic/6477192/2025/07/06/jimenez-jota-usmnt-mexico-gold-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6477083/2025/07/06/tarik-skubal-tigers-charmed-seas
 **Sabres elect arbitration with Bowen Byram: Why now and what it means for both sides**\
 `Byram didn't file for player-elected salary arbitration by Saturday's deadline but the team filing means he has some control over the award.`\
 https://nytimes.com/athletic/6477038/2025/07/06/bowen-byram-sabres-salary-arbitration/
-
-**Nationals fire general manager Mike Rizzo, manager Dave Martinez**\
-`Washington faced a tough June, going 7-19, and is currently sitting in last place in the NL East`\
-https://nytimes.com/athletic/6477078/2025/07/06/nationals-fire-mike-rizzo-dave-martinez/
 
