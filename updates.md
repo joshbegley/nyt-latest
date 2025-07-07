@@ -1,3 +1,7 @@
+**Randy Rodríguez, the Giants' quietest All-Star, is a sweeping success**\
+`Rodríguez is quiet and unassuming and likes to read classic novels. He also might be the best relief pitcher in baseball.`\
+https://nytimes.com/athletic/6477467/2025/07/07/randy-rodriguez-giants-all-star-sweeping-success/
+
 **2 Dead and 300 Injured After Typhoon Danas Strikes Taiwan**\
 `Most typhoons come ashore on the island’s sparsely populated east coast, but Danas scraped its crowded west coast. Nearly 400,000 households had no power on Monday.`\
 https://nytimes.com/2025/07/07/world/asia/typhoon-danas-taiwan.html
