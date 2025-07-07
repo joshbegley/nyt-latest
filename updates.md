@@ -1,3 +1,17 @@
+**Trade grades: Norman Powell bolsters Heat offense as Clippers take new path**\
+`With Norman Powell in the fold, the Heat upgrade their offense. The Clippers try something new while Utah further leans into tanking`\
+https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-john-collins-clippers-kevin-love-jazz-kyle-anderson-nba-free-agency/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Hope everyone is having a great summer and playing as much golf as Hugh Freeze.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-mandels-college-football-mailbag-305/
+
+**See How Fast the Floodwaters Rose Along the Guadalupe River**\
+`The speed and intensity of the flooding appeared to take officials by surprise.`\
+https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river.html
+
 **See How Fast Floodwaters Rose Along Guadalupe River**\
 `The speed and intensity of the flooding appeared to take officials by surprise.`\
 https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river.html
