@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/07/crosswords/spelling-bee-forum.html
+
 **Tropical Storm Chantal Soaks North Carolina**\
 `Heavy rains from Tropical Storm Chantal flooded homes and streets as it pushed into central North Carolina.`\
 https://nytimes.com/video/us/100000010270201/tropical-storm-chantal-floods-parts-of-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/arts/television/too-much-plus-7-things-on-tv-this
 **USMNT's Gold Cup final defeat to Mexico a microcosm of its summer**\
 `A U.S. group missing some big names beat who it was supposed to, got exposed by a side with better quality and reset the program's standard`\
 https://nytimes.com/athletic/6477448/2025/07/07/usmnt-mexico-gold-cup-final-pochettino/
-
-**Sounders goalkeeper Stefan Frei taken in ambulance after head collision**\
-`Frei jumped forward to make a play on a free kick, and as he came down, his head collided with the knee of a Crew player.`\
-https://nytimes.com/athletic/6477377/2025/07/07/sounders-stefan-frei-goalkeeper-knee-collision-head-ambulance/
 
