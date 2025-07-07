@@ -1,3 +1,7 @@
+**Trump Administration Acknowledges Lack of Evidence From Epstein Documents**\
+`After months of promising big revelations, Attorney General Pam Bondi acknowledged a lack of evidence for a host of conspiracy theories, including a “client list” and a jailhouse murder.`\
+https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html
+
 **Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
 `Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
 https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6478558/2025/07/07/bradley-beal-buyout-suns-nba/
 https://nytimes.com/2025/07/07/science/oysters-farming-acidic-ocean-climate-change.html
 
 **Scoop City: 2025 NFC South preview**\
-`Key questions, breakout players and positions to watch in the AFC East, plus expected win totals for each team.`\
+`Key questions, breakout players and positions to watch in the NFC South, plus expected win totals for each team.`\
 https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
 
 **Nationals name Miguel Cairo interim manager**\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-ma
 **See How Fast the Floodwaters Rose Along the Guadalupe River**\
 `The speed and intensity of the flooding appeared to take officials by surprise.`\
 https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river.html
-
-**Former PSG midfielder Verratti joins Al-Duhail from Al-Arabi**\
-`Verratti followed Lionel Messi, Neymar and Sergio Ramos by exiting Paris Saint-Germain in 2023, joining Qatari side Al-Arabi.`\
-https://nytimes.com/athletic/6302488/2025/07/07/former-psg-midfielder-marco-verratti-joins-al-duhail-from-qatari-rivals-al-arabi/
 

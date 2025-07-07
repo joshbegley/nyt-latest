@@ -1,3 +1,11 @@
+**Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
+`Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
+https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
+
+**At Essence Fest, Fashion Didn’t Miss a Beat**\
+`In tiaras, cowboy boots and thrifted T-shirts, festivalgoers used style to celebrate identity, joy and community.`\
+https://nytimes.com/2025/07/07/style/essence-fest-new-orleans-fashion.html
+
 **Shane van Gisbergen shows Trackhouse made the right call with Daniel SuÃ¡rez**\
 `SuÃ¡rez is great for NASCAR. But with van Gisbergen close to a lock on road courses â and a playoff spot â Trackhouse had to move on.`\
 https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
