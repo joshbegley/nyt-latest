@@ -1,3 +1,11 @@
+**Trump Administration Acknowledges Lack of Evidence From Epstein Documents**\
+`After months of promising big revelations, Attorney General Pam Bondi acknowledged a lack of evidence for a host of conspiracy theories, including a “client list” and a jailhouse murder.`\
+https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html
+
+**Scoop City: 2025 NFC South preview**\
+`Key questions, breakout players and positions to watch in the NFC South, plus expected win totals for each team.`\
+https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
+
 **Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
 `Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
 https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
