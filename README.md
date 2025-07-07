@@ -1,3 +1,15 @@
+**The Briefing — Tour de France stage three: Tim Merlier victorious on crash-marred day as green jersey Philipsen abandons**\
+`Analysis of the third stage of the 2025 Tour de France, which took the riders from Valenciennes to Dunkerque`\
+https://nytimes.com/athletic/6477870/2025/07/07/tour-de-france-stage-three-analysis/
+
+**Send in your Red Wings questions for Max Bultman's mailbag**\
+`Submit your questions here, and they may be answered in an upcoming mailbag.`\
+https://nytimes.com/athletic/6478485/2025/07/07/red-wings-mailbag-max-bultman-prompt/
+
+**Test record belongs to 'legend' Lara, says Mulder after declaring on 367**\
+`After declaring on himself with 33 runs remaining to tie the highest individual Test score, Mulder said Lara deserves to keep the milestone.`\
+https://nytimes.com/athletic/6477640/2025/07/07/wiaan-mulder-test-record-score-brian-lara/
+
 **Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
 `The tariffs on some of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
 https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6478364/2025/07/07/yankees-live-qa-submit-questions
 **Medical Societies Sue Kennedy and H.H.S. Over Vaccine Advice**\
 `New restrictions on Covid shots run counter to scientific evidence, the groups said.`\
 https://nytimes.com/2025/07/07/health/vaccines-kennedy-lawsuit.html
-
-**Szczesny signs two-year Barcelona contract extension**\
-`The 35-year-old previously retired from football at the start of the 2024-25 season following the expiration of his contract at Juventus.`\
-https://nytimes.com/athletic/6190085/2025/07/07/wojciech-szczesny-barcelona-contract-new/
-
-**Trump Administration Ends Deportation Protections for Hondurans and Nicaraguans**\
-`The decision by the Homeland Security Department’ to end protections for migrants from those countries goes into effect in about two months.`\
-https://nytimes.com/2025/07/07/us/politics/trump-deportations-tps-honduras-nicaragua.html
-
-**Stanway: England loss to France 'like a bad night out you want to forget'**\
-`The midfielder added that England are looking to 'put things right' against the Netherlands in their second Euro 2025 match on Wednesday.`\
-https://nytimes.com/athletic/6478147/2025/07/07/euro-2025-england-france-netherlands-stanway/
 
