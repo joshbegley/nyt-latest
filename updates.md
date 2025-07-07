@@ -1,3 +1,15 @@
+**WNBA power rankings: Dallas' young cast looks like a strong support for Paige Bueckers**\
+`Will Caitlin Clark return and provide a showdown this weekend against Bueckers?`\
+https://nytimes.com/athletic/6477439/2025/07/07/wnba-power-rankings-paige-bueckers-dallas-wings/
+
+**Luka, Durant, Jokić and more: Veteran extensions to keep an eye on this summer**\
+`We're likely to see a lot of extensions being signed in the coming days and weeks, but the terms of those deals aren't quite as clear.`\
+https://nytimes.com/athletic/6476399/2025/07/07/luka-doncic-lakers-kevin-durant-rockets-nba-extensions/
+
+**The Pulse: The upside of USMNT's loss**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6465515/2025/07/07/usmnt-mexico-gold-world-cup/
+
 **What’s at Stake as Netanyahu and Trump Meet in Washington**\
 `With the fighting in Iran over, President Trump is considering whether to pursue a new nuclear agreement with Tehran. He is also urging a new cease-fire deal to end the fighting in Gaza.`\
 https://nytimes.com/2025/07/07/world/middleeast/trump-netanyahu-washington.html

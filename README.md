@@ -1,3 +1,7 @@
+**Flood risk persists in Central Texas as rainfall continues.**\
+`Flood watches remain in effect as forecasters warn of more rain and possible river rises through Monday.`\
+https://nytimes.com/live/2025/07/07/us/texas-floods/flood-risk-persists-in-central-texas-as-rainfall-continues
+
 **WNBA power rankings: Dallas' young cast looks like a strong support for Paige Bueckers**\
 `Will Caitlin Clark return and provide a showdown this weekend against Bueckers?`\
 https://nytimes.com/athletic/6477439/2025/07/07/wnba-power-rankings-paige-bueckers-dallas-wings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6477018/2025/07/07/blue-jays-takeaways-alejandro-ki
 **2026 NHL Mock Draft: McKenna is No. 1 in Pronman’s way-too-early projection**\
 `The amount of high-end talent in the 2026 draft is exciting, although the lack of elite talent at premium positions is concerning.`\
 https://nytimes.com/athletic/6368342/2025/07/07/2026-nhl-mock-draft-gavin-mckenna/
-
-**Why Netflix's 'Quarterback' fit Joe Burrow's delicate balance of public life and privacy**\
-`The Bengals' star has been careful about protecting his personal life, so why did he give the green light to the documentary series?`\
-https://nytimes.com/athletic/6459325/2025/07/07/joe-burrow-bengals-netflix-quarterback/
 

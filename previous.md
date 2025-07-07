@@ -1,3 +1,15 @@
+**WNBA power rankings: Dallas' young cast looks like a strong support for Paige Bueckers**\
+`Will Caitlin Clark return and provide a showdown this weekend against Bueckers?`\
+https://nytimes.com/athletic/6477439/2025/07/07/wnba-power-rankings-paige-bueckers-dallas-wings/
+
+**Luka, Durant, Jokić and more: Veteran extensions to keep an eye on this summer**\
+`We're likely to see a lot of extensions being signed in the coming days and weeks, but the terms of those deals aren't quite as clear.`\
+https://nytimes.com/athletic/6476399/2025/07/07/luka-doncic-lakers-kevin-durant-rockets-nba-extensions/
+
+**The Pulse: The upside of USMNT's loss**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6465515/2025/07/07/usmnt-mexico-gold-world-cup/
+
 **What’s at Stake as Netanyahu and Trump Meet in Washington**\
 `With the fighting in Iran over, President Trump is considering whether to pursue a new nuclear agreement with Tehran. He is also urging a new cease-fire deal to end the fighting in Gaza.`\
 https://nytimes.com/2025/07/07/world/middleeast/trump-netanyahu-washington.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6368342/2025/07/07/2026-nhl-mock-draft-gavin-mckenn
 **Why Netflix's 'Quarterback' fit Joe Burrow's delicate balance of public life and privacy**\
 `The Bengals' star has been careful about protecting his personal life, so why did he give the green light to the documentary series?`\
 https://nytimes.com/athletic/6459325/2025/07/07/joe-burrow-bengals-netflix-quarterback/
-
-**This Week in Mets: The offense starts showing its potential**\
-`The Mets were able to take two of three from the Yankees despite a pitching staff with as many arms on the IL as on the active roster (13).`\
-https://nytimes.com/athletic/6477057/2025/07/07/this-week-in-mets-offense-showing-potential/
-
-**What's the best college football rivalry? We ranked the top 100**\
-`Rivalries form the backbone of college football. After months of research and debate, here's how the top 100 stack up.`\
-https://nytimes.com/athletic/6469306/2025/07/07/best-college-football-rivalries-rankings-100/
-
-**A Dark Moment for Journalism — and Devastation in Texas**\
-`Paramount has reached a settlement with President Trump, raising fears about journalistic independence.`\
-https://nytimes.com/2025/07/07/podcasts/the-daily/cbs-paramount-trump-settlement-texas.html
 
