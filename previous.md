@@ -1,3 +1,11 @@
+**Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
+`Kevin Pritchard says he was negotiating in good faith, but found out big man was signing with Bucks over social media.`\
+https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
+
+**Giants All-Star Randy Rodríguez is a development success. What that means for the organization**\
+`Rodríguez's improvement with his command has vaulted him into All-Star status. Can his improvement be replicated with others in the org.?`\
+https://nytimes.com/athletic/6478577/2025/07/07/randy-rodriguez-giants-pitching-development/
+
 **In an era of men's tennis dominance, Wimbledon reminds the world of the randomness of sport**\
 `Grigor Dimitrov's cruel exit from a two-set lead over world No. 1 Jannik Sinner was also a reminder of the vicissitudes of elite sport.`\
 https://nytimes.com/athletic/6479008/2025/07/07/tennis-sinner-dimitrov-wimbledon-dominance-alcaraz-djokovic/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/us/politics/kilmar-abrego-garcia-trump-deport.htm
 **As Renewed U.S. Tariffs Loom, Emerging Economies Turn to One Another**\
 `As President Trump prepares to revive tariffs this week, some of the world’s biggest exporters are planning a future less dependent on trade with the United States.`\
 https://nytimes.com/2025/07/07/world/trump-tariffs-global-trade-economy.html
-
-**Wimbledon day 8: Unexpected injury retirements all over the All England Club**\
-`A body shot in tennis usually comes from an opponent, but one Wimbledon competitor had to retire injured because of their partner.`\
-https://nytimes.com/athletic/6477884/2025/07/07/wimbledon-recap-tennis-results-news-day-8/
-
-**Tuesday Briefing: Trump’s New Tariff Threats**\
-`Plus, the beautiful chaos of Rio’s beaches.`\
-https://nytimes.com/2025/07/07/briefing/tariffs-japan-south-korea-texas-floods-israel-gaza-iran.html
 

@@ -1,3 +1,11 @@
+**Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
+`Kevin Pritchard says he was negotiating in good faith, but found out big man was signing with Bucks over social media.`\
+https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
+
+**Giants All-Star Randy Rodríguez is a development success. What that means for the organization**\
+`Rodríguez's improvement with his command has vaulted him into All-Star status. Can his improvement be replicated with others in the org.?`\
+https://nytimes.com/athletic/6478577/2025/07/07/randy-rodriguez-giants-pitching-development/
+
 **In an era of men's tennis dominance, Wimbledon reminds the world of the randomness of sport**\
 `Grigor Dimitrov's cruel exit from a two-set lead over world No. 1 Jannik Sinner was also a reminder of the vicissitudes of elite sport.`\
 https://nytimes.com/athletic/6479008/2025/07/07/tennis-sinner-dimitrov-wimbledon-dominance-alcaraz-djokovic/
