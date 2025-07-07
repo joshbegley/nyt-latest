@@ -1,3 +1,7 @@
+**Man Utd end talks over access-all-areas Amazon documentary**\
+`The decision was made to a significant extent because head coach Ruben Amorim made clear he was not comfortable with the proposal.`\
+https://nytimes.com/athletic/6477559/2025/07/07/manchester-united-amazon-documentary/
+
 **Barcelona Women announce Rolfo, Roebuck contract terminations**\
 `The club said it had reached agreements with both players to terminate their deals one year early.`\
 https://nytimes.com/athletic/6478780/2025/07/07/barcelona-rolfo-roebuck-exit/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6478777/2025/07/07/spain-euros-direct-belgium/
 https://nytimes.com/2025/07/07/arts/music/valery-gergiev-italy-festival.html
 
 **Trump Administration Acknowledges Lack of Evidence From Epstein Documents**\
-`After months of promising big revelations, Attorney General Pam Bondi acknowledged a lack of evidence for a host of conspiracy theories, including a “client list” and a jailhouse murder.`\
+`After Attorney General Pam Bondi promised big revelations for months, the Justice Department noted a lack of evidence for conspiracy theories, including a “client list” and a jailhouse murder.`\
 https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html
 
 **Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478558/2025/07/07/bradley-beal-buyout-suns-nba/
 **Increasingly Acidic Seas Threaten Oyster Farming**\
 `Researchers and hatcheries are exploring new ways to protect shellfish in the Pacific Northwest, although Trump budget cuts may thwart their efforts.`\
 https://nytimes.com/2025/07/07/science/oysters-farming-acidic-ocean-climate-change.html
-
-**Scoop City: 2025 NFC South preview**\
-`Key questions, breakout players and positions to watch in the NFC South, plus expected win totals for each team.`\
-https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
 

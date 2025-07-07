@@ -1,3 +1,15 @@
+**Barcelona Women announce Rolfo, Roebuck contract terminations**\
+`The club said it had reached agreements with both players to terminate their deals one year early.`\
+https://nytimes.com/athletic/6478780/2025/07/07/barcelona-rolfo-roebuck-exit/
+
+**European Commission’s Leader Faces No-Confidence Vote in Far-Right Challenge**\
+`Ahead of the vote on Thursday, Ursula von der Leyen, president of the commission, appeared before the European Parliament to defend herself against complaints about transparency.`\
+https://nytimes.com/2025/07/07/world/europe/von-der-leyen-no-confidence-vote.html
+
+**This is Spain 2.0: More purposeful, more direct and simply better than two years ago**\
+`At Euro 2025 the world champions are producing a cohesive and sophisticated style that was unthinkable in the women's game a decade ago`\
+https://nytimes.com/athletic/6478777/2025/07/07/spain-euros-direct-belgium/
+
 **This is Spain 2.0 - more purposeful, more direct and simply better than two years ago**\
 `At Euro 2025 the world champions are producing a cohesive and sophisticated style that was unthinkable in the women's game a decade ago`\
 https://nytimes.com/athletic/6478777/2025/07/07/spain-euros-direct-belgium/
