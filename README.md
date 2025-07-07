@@ -1,4 +1,8 @@
-**The Briefing — Tour de France stage three: Tim Merlier victorious on crash-marred day as green jersey Philipsen abandons**\
+**In Texas, Another Tragic Warning on Climate Change**\
+`Readers react to the unfolding flooding disaster in Texas. Also: Empathy for immigrants; anticipating the 250th anniversary of the United States.`\
+https://nytimes.com/2025/07/07/opinion/texas-floods-climate-change.html
+
+**Tour de France stage three: Tim Merlier victorious on crash-marred day as green jersey Philipsen abandons**\
 `Analysis of the third stage of the 2025 Tour de France, which took the riders from Valenciennes to Dunkerque`\
 https://nytimes.com/athletic/6477870/2025/07/07/tour-de-france-stage-three-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897169/2025/07/07/edu-nottingham-forest-global-hea
 **Live Q&A with Yankees writer Brendan Kuty on Wednesday: Submit questions**\
 `Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
 https://nytimes.com/athletic/6478364/2025/07/07/yankees-live-qa-submit-questions/
-
-**Medical Societies Sue Kennedy and H.H.S. Over Vaccine Advice**\
-`New restrictions on Covid shots run counter to scientific evidence, the groups said.`\
-https://nytimes.com/2025/07/07/health/vaccines-kennedy-lawsuit.html
 
