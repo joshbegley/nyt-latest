@@ -1,3 +1,11 @@
+**In an era of men's tennis dominance, Wimbledon reminds the world of the randomness of sport**\
+`Grigor Dimitrov's cruel exit from a two-set lead over world No. 1 Jannik Sinner was also a reminder of the vicissitudes of elite sport.`\
+https://nytimes.com/athletic/6479008/2025/07/07/tennis-sinner-dimitrov-wimbledon-dominance-alcaraz-djokovic/
+
+**Texas Floods Killed at Least 95 People**\
+`Also, Trump revived his tariff threats against close U.S. allies. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/07/briefing/texas-floods-death-toll-trump-tariffs.html
+
 **Leeds pushing to sign Newcastle midfielder Longstaff**\
 `Leeds have submitted an offer to their Premier League counterparts worth £10million plus £2million in add-ons for Longstaff.`\
 https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477884/2025/07/07/wimbledon-recap-tennis-results-n
 **Tuesday Briefing: Trump’s New Tariff Threats**\
 `Plus, the beautiful chaos of Rio’s beaches.`\
 https://nytimes.com/2025/07/07/briefing/tariffs-japan-south-korea-texas-floods-israel-gaza-iran.html
-
-**Why Are Protesters in Mexico City Angry at Remote Workers?**\
-`Top concerns include the displacement of longtime residents as rents and food prices surge. Ire over the influx of well-heeled foreigners has been building for years.`\
-https://nytimes.com/2025/07/07/world/americas/mexico-city-protests-rent-prices-tourists.html
-
-**Scouting Cam Schlittler, Konnor Griffin, Justin Crawford, Vance Honeycutt and more**\
-`Notes on Yankees, Phillies, Pirates and Orioles prospects, including Justin Crawford, Spencer Jones and Konnor Griffin.`\
-https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schlittler-konnor-griffin-justin-crawford/
 

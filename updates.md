@@ -1,3 +1,11 @@
+**In an era of men's tennis dominance, Wimbledon reminds the world of the randomness of sport**\
+`Grigor Dimitrov's cruel exit from a two-set lead over world No. 1 Jannik Sinner was also a reminder of the vicissitudes of elite sport.`\
+https://nytimes.com/athletic/6479008/2025/07/07/tennis-sinner-dimitrov-wimbledon-dominance-alcaraz-djokovic/
+
+**Texas Floods Killed at Least 95 People**\
+`Also, Trump revived his tariff threats against close U.S. allies. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/07/briefing/texas-floods-death-toll-trump-tariffs.html
+
 **Leeds pushing to sign Newcastle midfielder Longstaff**\
 `Leeds have submitted an offer to their Premier League counterparts worth £10million plus £2million in add-ons for Longstaff.`\
 https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
