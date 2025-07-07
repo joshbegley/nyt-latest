@@ -1,3 +1,7 @@
+**Why Are Protesters in Mexico City Angry at Remote Workers?**\
+`Top concerns include the displacement of longtime residents as rents and food prices surge. Ire over the influx of well-heeled foreigners has been building for years.`\
+https://nytimes.com/2025/07/07/world/americas/mexico-city-protests-rent-prices-tourists.html
+
 **Scouting Cam Schlittler, Konnor Griffin, Justin Crawford, Vance Honeycutt and more**\
 `Notes on Yankees, Phillies, Pirates and Orioles prospects, including Justin Crawford, Spencer Jones and Konnor Griffin.`\
 https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schlittler-konnor-griffin-justin-crawford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473040/2025/07/07/newcastle-anthony-elanga-notting
 **Trump and Netanyahu Expected to Discuss Prospects of Gaza Cease-Fire**\
 `The private dinner between the two leaders on Monday marks Prime Minister Benjamin Netanyahu’s third visit to Washington this year.`\
 https://nytimes.com/2025/07/07/us/politics/trump-netanyahu-dinner-gaza-cease-fire.html
-
-**Caltech Agrees to Settle Lawsuit Accusing It of Misleading Students**\
-`A student who paid thousands for a tech boot camp said it was “a Caltech program in name only.”`\
-https://nytimes.com/2025/07/07/us/caltech-simplilearn-settlement-bootcamp.html
 

@@ -1,3 +1,7 @@
+**Tuesday Briefing: Trump’s New Tariff Threats**\
+`Plus, the beautiful chaos of Rio’s beaches.`\
+https://nytimes.com/2025/07/07/briefing/tariffs-japan-south-korea-texas-floods-israel-gaza-iran.html
+
 **Why Are Protesters in Mexico City Angry at Remote Workers?**\
 `Top concerns include the displacement of longtime residents as rents and food prices surge. Ire over the influx of well-heeled foreigners has been building for years.`\
 https://nytimes.com/2025/07/07/world/americas/mexico-city-protests-rent-prices-tourists.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/07/07/world/americas/mexico-city-protests-rent-prices-t
 https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schlittler-konnor-griffin-justin-crawford/
 
 **Here Are Trump’s New Tariff Threats**\
-`President Trump has told seven countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
+`President Trump has told 14 countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
 https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
 
 **Zohran Mamdani’s Foes Go to Unusual Lengths to Derail His Mayoral Hopes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478598/2025/07/07/cam-york-flyers-contract-offseas
 **Newcastle reach agreement with Nottingham Forest for Elanga signing**\
 `A deal consisting of an initial fee of £52million ($70.7m) plus bonuses that are considered difficult to reach has been agreed`\
 https://nytimes.com/athletic/6473040/2025/07/07/newcastle-anthony-elanga-nottingham-forest-transfer/
-
-**Trump and Netanyahu Expected to Discuss Prospects of Gaza Cease-Fire**\
-`The private dinner between the two leaders on Monday marks Prime Minister Benjamin Netanyahu’s third visit to Washington this year.`\
-https://nytimes.com/2025/07/07/us/politics/trump-netanyahu-dinner-gaza-cease-fire.html
 
