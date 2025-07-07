@@ -1,3 +1,7 @@
+**What Pochettino and USMNT players learned about each other at the Gold Cup**\
+`The Gold Cup was Mauricio Pochettino first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
+https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
+
 **Fantasy baseball cheat sheet: Bench Shota Imanaga vs. Yankees and more THE BAT X insights**\
 `THE BAT X thinks Mike Trout's value will improve in the second half of the season and highlights reliever Bryan King as a streamer. `\
 https://nytimes.com/athletic/6477933/2025/07/07/fantasy-baseball-the-bat-x-shota-imanaga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478246/2025/07/07/matias-maccelli-maple-leafs-top-
 **OL Lyonnes sign USWNT’s Yohannes from Ajax**\
 `The 18-year-old has signed a three-year contract with the French club until 2028.`\
 https://nytimes.com/athletic/6477635/2025/07/07/ol-lyonnes-lily-yohannes-transfer/
-
-**Submit your questions for Pete Sampson's Notre Dame football mailbag**\
-`With power conference media days starting up and preseason camp around the corner, it's starting to feel like college football season.`\
-https://nytimes.com/athletic/6478392/2025/07/07/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag/
 

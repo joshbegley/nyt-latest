@@ -1,3 +1,7 @@
+**What Pochettino and USMNT players learned about each other at the Gold Cup**\
+`The Gold Cup was Mauricio Pochettino first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
+https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
+
 **Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
 `The tariffs on two of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
 https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
