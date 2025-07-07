@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6477096/2025/07/06/mlb-2025-all-star-game-snubs/
 https://nytimes.com/2025/07/06/podcasts/my-summer-self-this-american-life-nyt-audio.html
 
 **Twins takeaways: With trade deadline looming, this team is in a tough spot**\
-`MINNEAPOLIS — The Twins once again got in their own way on Sunday afternoon, and it prevented them from the completion of a much-needed sweep.`\
+`The Twins say they remain confident they can fix their self-made mess in time to avoid a roster teardown at the July 31 trade deadline.`\
 https://nytimes.com/athletic/6477104/2025/07/06/twins-takeaways-with-trade-deadline-looming-this-team-is-in-a-tough-spot/
 
 **Yankees earn reset after splitting Subway Series against Mets, snap six-game losing streak**\
