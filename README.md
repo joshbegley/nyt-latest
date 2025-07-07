@@ -1,3 +1,11 @@
+**What I'm hearing about the Penguins' Bryan Rust, Rickard Rakell trade considerations**\
+`Teams around the NHL continue to show heavy interest in Rust and Rakell. `\
+https://nytimes.com/athletic/6478036/2025/07/07/penguins-bryan-rust-rickard-rakell-trade-rumors/
+
+**Can You Match These Snarky Lines to Their Books?**\
+`Literature is full of bold observations. See if you can match these five quotations to their sources.`\
+https://nytimes.com/interactive/2025/07/07/books/review/snarky-book-quotes.html
+
 **Transfers TLDR: Martin Zubimendi to Arsenal - all you need to know**\
 `The Spanish midfielder's move to the Emirates Stadium from Real Sociedad has been confirmed – this is everything you need to know...`\
 https://nytimes.com/athletic/6439985/2025/07/07/martin-zubimendi-to-arsenal-transfers-tldr/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6476970/2025/07/07/vancouver-canucks-mailbag-drance
 **Trial Over Free Speech on Campus, and Trump’s Student Crackdown, Begins**\
 `The case challenges the Trump administration’s targeting of noncitizen student activists for arrest and deportation on First Amendment grounds.`\
 https://nytimes.com/2025/07/07/us/politics/trump-trial-free-speech-student-crackdowns.html
-
-**Laurie Metcalf to Star in Broadway Play Produced by Scott Rudin**\
-`The production, of the Samuel D. Hunter play “Little Bear Ridge Road” that got strong reviews in Chicago will be the first produced by Rudin since news reports of his bullying behavior in 2021.`\
-https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
-
-**MLB’s latest gambling probe, explained**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6477509/2025/07/07/mlb-gambling-investigation-luis-ortiz-the-windup/
 
