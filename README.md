@@ -1,4 +1,14 @@
-**See How Fast Floodwaters Rose Along Guadalupe River**\
+**Trade grades: Norman Powell bolsters Heat offense as Clippers take new path**\
+`With Norman Powell in the fold, the Heat upgrade their offense. The Clippers try something new while Utah further leans into tanking`\
+https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-john-collins-clippers-kevin-love-jazz-kyle-anderson-nba-free-agency/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Hope everyone is having a great summer and playing as much golf as Hugh Freeze.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-mandels-college-football-mailbag-305/
+
+**See How Fast the Floodwaters Rose Along the Guadalupe River**\
 `The speed and intensity of the flooding appeared to take officials by surprise.`\
 https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river.html
 
@@ -29,12 +39,4 @@ https://nytimes.com/2025/07/07/opinion/texas-floods-climate-change.html
 **Tour de France stage three: Tim Merlier victorious on crash-marred day as green jersey Philipsen abandons**\
 `Analysis of the third stage of the 2025 Tour de France, which took the riders from Valenciennes to Dunkerque`\
 https://nytimes.com/athletic/6477870/2025/07/07/tour-de-france-stage-three-analysis/
-
-**Send in your Red Wings questions for Max Bultman's mailbag**\
-`Submit your questions here, and they may be answered in an upcoming mailbag.`\
-https://nytimes.com/athletic/6478485/2025/07/07/red-wings-mailbag-max-bultman-prompt/
-
-**Test record belongs to 'legend' Lara, says Mulder after declaring on 367**\
-`After declaring on himself with 33 runs remaining to tie the highest individual Test score, Mulder said Lara deserves to keep the milestone.`\
-https://nytimes.com/athletic/6477640/2025/07/07/wiaan-mulder-test-record-score-brian-lara/
 
