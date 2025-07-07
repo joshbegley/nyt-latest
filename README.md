@@ -1,3 +1,7 @@
+**Submit your questions for Pete Sampson's Notre Dame football mailbag**\
+`With power conference media days starting up and preseason camp around the corner, it's starting to feel like college football season.`\
+https://nytimes.com/athletic/6478392/2025/07/07/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag/
+
 **Nottingham Forest confirm Edu as new global head of football**\
 `The club said the newly-established role will see Edu oversee all football activity at the City Ground.`\
 https://nytimes.com/athletic/5897169/2025/07/07/edu-nottingham-forest-global-head-of-football-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473374/2025/07/07/everton-gueye-contract-new/
 **As Avignon Festival Turns to Dance, It Trips Up Some Onlookers**\
 `The festival opener “Nôt,” from Marlene Monteiro Freitas, drew both boos and applause. Elsewhere, for Anne Teresa De Keersmaeker, the spectacle was kept to the stage.`\
 https://nytimes.com/2025/07/07/arts/avignon-festival-dance-freitas-de-keersmaeker.html
-
-**At a Small School in the Bronx, Classical Music Thrives**\
-`Students receive free lessons and instruments — and a serious introduction to musical traditions of all sorts. `\
-https://nytimes.com/card/2025/07/07/nyregion/upstartnyc
 
