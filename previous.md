@@ -1,3 +1,19 @@
+**Wilson to leave Newcastle after five seasons**\
+`The 33-year-old joined Newcastle in the summer of 2020 and scored 49 goals across in 130 appearances for the club.`\
+https://nytimes.com/athletic/6477731/2025/07/07/callum-wilson-leaves-newcastle/
+
+**Typhoon Danas Strikes Taiwan**\
+`The storm left hundreds of thousands of homes without power and crushed the gate of a well-known temple in the southwest of Taiwan.`\
+https://nytimes.com/video/world/asia/100000010270274/typhoon-danas-strikes-taiwan.html
+
+**Summer lovin’, had me a blast: How CC Sabathia’s Milwaukee moment smoothed a path to Cooperstown**\
+`Seventeen years ago, Sabathia began a three-month stop with the Brewers that proved pivotal in his 19-season Hall of Fame career.`\
+https://nytimes.com/athletic/6476239/2025/07/07/cc-sabathia-milwaukee-brewers-trade-cooperstown/
+
+**What we've learned in the first half of the MLB season: 10 midsummer takeaways**\
+`It’s time to let you know What We’ve Learned in the First Half, with perspective from four MLB executives.`\
+https://nytimes.com/athletic/6477300/2025/07/07/mlb-season-first-half-takeaways/
+
 **Trump Threatens Extra Tariffs on BRICS-Aligned Countries**\
 `President Trump said nations that support the group’s “Anti-American policies” would face an additional 10 percent tariff. He did not elaborate.`\
 https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6477441/2025/07/07/chicago-cubs-middle-order-all-st
 **Buckley: Breslow’s 3 Red Sox All-Stars great for July. Now it’s time to work on October **\
 `Breslow led a fine offseason acquisition process and deserves plaudits for that. He should be acquiring again at the trade deadline. `\
 https://nytimes.com/athletic/6477290/2025/07/07/red-sox-all-stars-nationals-craig-breslow/
-
-**Has the Ohio State-Michigan rivalry been diminished in the Playoff age?**\
-`Michigan beat Ohio State again. Yet Ohio State won the national championship. All it's done is add another wrinkle to CFB's best rivalry.`\
-https://nytimes.com/athletic/6466856/2025/07/07/michigan-ohio-state-best-college-football-rivalry/
-
-**Growing up in a military family should make playing QB for Bill Belichick a snap**\
-`Burgess, ranked the No. 16 QB nationally in the Class of 2026 by 247Sports, picked North Carolina over Auburn, NC State and others. `\
-https://nytimes.com/athletic/6469945/2025/07/07/bill-belichick-north-carolina-recruiting-travis-burgess/
-
-**Was Reds lefty Andrew Abbott an All-Star snub?: C. Notes**\
-`Abbott was deserving of an All-Star nod, but it’s hard to say any of those who were picked ahead of him didn’t.`\
-https://nytimes.com/athletic/6477074/2025/07/07/reds-andrew-abbott-all-star-snub/
-
-**Transfers TLDR: Jamie Gittens to Chelsea – all you need to know**\
-`Jamie Gittens has moved to Chelsea from Dortmund – here are the details behind the deal`\
-https://nytimes.com/athletic/6461153/2025/07/07/jamie-gittens-to-chelsea-transfers-tldr/
 

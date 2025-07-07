@@ -1,3 +1,19 @@
+**Wilson to leave Newcastle after five seasons**\
+`The 33-year-old joined Newcastle in the summer of 2020 and scored 49 goals across in 130 appearances for the club.`\
+https://nytimes.com/athletic/6477731/2025/07/07/callum-wilson-leaves-newcastle/
+
+**Typhoon Danas Strikes Taiwan**\
+`The storm left hundreds of thousands of homes without power and crushed the gate of a well-known temple in the southwest of Taiwan.`\
+https://nytimes.com/video/world/asia/100000010270274/typhoon-danas-strikes-taiwan.html
+
+**Summer lovin’, had me a blast: How CC Sabathia’s Milwaukee moment smoothed a path to Cooperstown**\
+`Seventeen years ago, Sabathia began a three-month stop with the Brewers that proved pivotal in his 19-season Hall of Fame career.`\
+https://nytimes.com/athletic/6476239/2025/07/07/cc-sabathia-milwaukee-brewers-trade-cooperstown/
+
+**What we've learned in the first half of the MLB season: 10 midsummer takeaways**\
+`It’s time to let you know What We’ve Learned in the First Half, with perspective from four MLB executives.`\
+https://nytimes.com/athletic/6477300/2025/07/07/mlb-season-first-half-takeaways/
+
 **Trump Threatens Extra Tariffs on BRICS-Aligned Countries**\
 `President Trump said nations that support the group’s “Anti-American policies” would face an additional 10 percent tariff. He did not elaborate.`\
 https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
