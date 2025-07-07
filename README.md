@@ -1,3 +1,15 @@
+**Australian Woman Is Convicted of Murder in Mushroom Poisoning Case**\
+`Three people died in 2023 after eating beef Wellington made by Erin Patterson, whose subsequent trial gripped the country.`\
+https://nytimes.com/2025/07/07/world/australia/mushroom-poisoning-trial-verdict.html
+
+**Real Madrid are using Valverde to protect Alexander-Arnold - how will that go against PSG?**\
+`Madrid have been solid throughout the Club World Cup but face Kvaratskhelia, Doue and co next. It's poised to be a tactical battle`\
+https://nytimes.com/athletic/6476803/2025/07/07/alexander-arnold-valverde-real-madrid-psg/
+
+**Viktor Gyokeres is a battering ram of a striker with an absurd scoring record. Is he what Arsenal need?**\
+`With Arsenal in advanced talks to sign Gyokeres, we analyse his strengths and style, and how it might work out for him in the Premier League`\
+https://nytimes.com/athletic/6423793/2025/07/07/gyokeres-arsenal-transfer-style-analysis/
+
 **Liverpool are a club in mourning. How can they think about football again?**\
 `Arne Slot faces an onerous task in managing a squad still struggling to process the death of their team-mate Diogo Jota`\
 https://nytimes.com/athletic/6474815/2025/07/07/liverpool-diogo-jota-football/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6474034/2025/07/07/what-can-club-world-cup-tell-us-
 **Can Taiwan Really Disconnect Its Economy From China?**\
 `Momentum is building in Taiwan to lessen its business dependency on China, its biggest trading partner. Doing so will not be easy.`\
 https://nytimes.com/2025/07/07/business/china-taiwan-chips.html
-
-**An Apartheid-Era Torture Method Endures Among South African Police**\
-`A government led by freedom fighters who helped to liberate the country more than 30 years ago is now overseeing a police force accused of staggering abuses.`\
-https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-tubing.html
-
-**Why Are Police Officers in South Africa Torturing People?**\
-`A data analysis by The New York Times shows that a form of torture popular during apartheid endures in the country despite laws designed to eliminate it.`\
-https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-crime.html
-
-**Connections: Sports Edition Coach: Hints for July 7, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6475584/2025/07/07/connections-sports-edition-hints-for-july-7-2025/
 

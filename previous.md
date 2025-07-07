@@ -1,3 +1,27 @@
+**Liverpool are a club in mourning. How can they think about football again?**\
+`Arne Slot faces an onerous task in managing a squad still struggling to process the death of their team-mate Diogo Jota`\
+https://nytimes.com/athletic/6474815/2025/07/07/liverpool-diogo-jota-football/
+
+**The number two: Dissecting the worth and influence of the assistant manager**\
+`The role of the assistant has taken on new significance in the modern era, allowing managers to take on decision-making with a clear head`\
+https://nytimes.com/athletic/6473891/2025/07/07/number-two-assistant-manager-lijnders-carver-tindall/
+
+**Juan Mata interview: 'I love Marcus Rashford - him staying would be a win-win'**\
+`The former United player talks about witnessing his ex-team-mate's first training session, the direction of the club and his love of art`\
+https://nytimes.com/athletic/6473133/2025/07/07/juan-mata-interview-rashford-manchester-united/
+
+**The steepest of stands, a faith room and 747 toilets: Behind the scenes at Everton's new £800m stadium**\
+`Everton's new home on the banks of the River Mersey is almost complete - The Athletic has been for a guided tour`\
+https://nytimes.com/athletic/6473568/2025/07/07/evertons-new-800m-stadium-behind-scenes/
+
+**At what cost? Saudi Arabia and soccer**\
+`A podcast special from The Athletic exploring Saudi Arabia's influence on two key tournaments in the U.S. this summer — on and off the pitch`\
+https://nytimes.com/athletic/6468517/2025/07/07/at-what-cost-saudi-arabia-and-soccer/
+
+**What can the Club World Cup tell us about the strength of leagues around the world?**\
+`Just how good is the Brazilian top flight? Is the Saudi domestic game improving or is there still a huge gulf in quality between its clubs?`\
+https://nytimes.com/athletic/6474034/2025/07/07/what-can-club-world-cup-tell-us-leagues-strength/
+
 **Can Taiwan Really Disconnect Its Economy From China?**\
 `Momentum is building in Taiwan to lessen its business dependency on China, its biggest trading partner. Doing so will not be easy.`\
 https://nytimes.com/2025/07/07/business/china-taiwan-chips.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-crime.ht
 **Connections: Sports Edition Coach: Hints for July 7, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6475584/2025/07/07/connections-sports-edition-hints-for-july-7-2025/
-
-**Quote of the Day: How Carroll Is Aging So Gracefully**\
-`Quotation of the Day for Monday, July 7, 2025.`\
-https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-how-carroll-is-aging-so-gracefully.html
-
-**USMNT's Pochettino blasts Gold Cup final refereeing after Mexico handball controversy**\
-`The USMNT coach praised his players' performance and felt they suffered at the hands of the officials.`\
-https://nytimes.com/athletic/6477368/2025/07/06/pochettino-referee-usmnt-mexico-gold-cup-final-handball/
-
-**Central Texas floods are likely to be some of the deadliest in the past century.**\
-`By Soumya Karlamangla`\
-https://nytimes.com/live/2025/07/06/us/texas-floods/central-texas-flooding-history
-
-**Rosenthal: Firing Mike Rizzo and Dave Martinez makes some sense for the Nationals, but the timing doesn't**\
-`The Nationals will now have an interim general manager making the No. 1 pick in next week's draft and handling the team's trade deadline.`\
-https://nytimes.com/athletic/6477294/2025/07/06/washington-nationals-lerner-rizzo-martinez-firings/
-
-**Officials Feared Flood Risk to Youth Camps but Rejected Warning System**\
-`Kerr County had discussed buying such things as water gauges and sirens after previous flood disasters. But as with many rural Texas counties, cost was an issue.`\
-https://nytimes.com/2025/07/06/us/texas-flood-warnings-sirens.html
-
-**Byron Buxton chosen as Twins' lone All-Star, Joe Ryan and Jhoan Duran snubbed**\
-`Buxton, a Georgia native, will be heading home for his second All-Star Game, but the Twins' top pitchers were passed over for the AL team.`\
-https://nytimes.com/athletic/6476597/2025/07/06/byron-buxton-twins-all-star-joe-ryan-jhoan-duran-snubbed/
 
