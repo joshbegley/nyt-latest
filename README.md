@@ -1,3 +1,15 @@
+**Newcastle reach agreement with Nottingham Forest for Elanga signing**\
+`A deal consisting of an initial fee of £52million plus bonuses that are considered difficult to reach has been agreed`\
+https://nytimes.com/athletic/6473040/2025/07/07/newcastle-anthony-elanga-nottingham-forest-transfer/
+
+**Trump and Netanyahu Expected to Discuss Prospects of Gaza Cease-Fire**\
+`The private dinner between the two leaders on Monday marks Prime Minister Benjamin Netanyahu’s third visit to Washington this year.`\
+https://nytimes.com/2025/07/07/us/politics/trump-netanyahu-dinner-gaza-cease-fire.html
+
+**Caltech Agrees to Settle Lawsuit Accusing It of Misleading Students**\
+`A student who paid thousands for a tech boot camp said it was “a Caltech program in name only.”`\
+https://nytimes.com/2025/07/07/us/caltech-simplilearn-settlement-bootcamp.html
+
 **Man Utd end talks over access-all-areas Amazon documentary**\
 `The decision was made to a significant extent because head coach Ruben Amorim made clear he was not comfortable with the proposal.`\
 https://nytimes.com/athletic/6477559/2025/07/07/manchester-united-amazon-documentary/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-
 **Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
 `Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
 https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
-
-**At Essence Fest, Fashion Didn’t Miss a Beat**\
-`In tiaras, cowboy boots and thrifted T-shirts, festivalgoers used style to celebrate identity, joy and community.`\
-https://nytimes.com/2025/07/07/style/essence-fest-new-orleans-fashion.html
-
-**A Bradley Beal buyout is looming: What I'm hearing about the Suns guard's future**\
-`As he considers his next steps, the list of teams Beal has thought about includes the Clippers, Lakers, Warriors and Bucks.`\
-https://nytimes.com/athletic/6478558/2025/07/07/bradley-beal-buyout-suns-nba/
-
-**Increasingly Acidic Seas Threaten Oyster Farming**\
-`Researchers and hatcheries are exploring new ways to protect shellfish in the Pacific Northwest, although Trump budget cuts may thwart their efforts.`\
-https://nytimes.com/2025/07/07/science/oysters-farming-acidic-ocean-climate-change.html
 
