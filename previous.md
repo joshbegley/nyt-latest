@@ -1,3 +1,7 @@
+**Central Texas floods are likely to be some of the deadliest in the past century.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/central-texas-flooding-history
+
 **Rosenthal: Firing Mike Rizzo and Dave Martinez makes some sense for the Nationals, but the timing doesn't**\
 `The Nationals will now have an interim general manager making the No. 1 pick in next week's draft and handling the team's trade deadline.`\
 https://nytimes.com/athletic/6477294/2025/07/06/washington-nationals-lerner-rizzo-martinez-firings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6477192/2025/07/06/jimenez-jota-usmnt-mexico-gold-c
 **MLB All-Star All-Snubs team: Trea Turner, Rafael Devers, Juan Soto among notable misses**\
 `There are always a few names that leave you, and us, scratching our heads after being left out from the roster.`\
 https://nytimes.com/athletic/6477096/2025/07/06/mlb-2025-all-star-game-snubs/
-
-**My Summer Self**\
-`Summer is a time when change seems more possible than ever. But is that really how it works?`\
-https://nytimes.com/2025/07/06/podcasts/my-summer-self-this-american-life-nyt-audio.html
 

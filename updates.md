@@ -1,3 +1,7 @@
+**Central Texas floods are likely to be some of the deadliest in the past century.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/central-texas-flooding-history
+
 **A Dallas church draws 600 to a service for the Texas flooding victims.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
