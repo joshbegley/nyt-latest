@@ -8,7 +8,7 @@ https://nytimes.com/video/us/100000010270226/texas-flood-camp-mystic.html
 
 **Tropical Storm Chantal Floods Parts of North Carolina**\
 `The storm, which made landfall on Sunday, caused significant flooding that closed roads and stranded drivers. It is heading northeast.`\
-https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-parts-of-north-carolina.html
+https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-north-carolina.html
 
 **What We Know About the Floods in Central Texas**\
 `At least 81 people, including more than two dozen children, died in the torrential downpour. Dozens more were still missing three days later.`\
