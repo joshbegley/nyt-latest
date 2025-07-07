@@ -1,3 +1,11 @@
+**Wimbledon day 8 Unexpected injury retirements all over the All England Club**\
+`A body shot in tennis usually comes from an opponent, but one Wimbledon competitor had to retire injured because of their partner.`\
+https://nytimes.com/athletic/6477884/2025/07/07/wimbledon-recap-tennis-results-news-day-8/
+
+**After Mamdani’s Win, Some Democrats Are Determined to Stop Him**\
+`Though Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
+https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
+
 **Tuesday Briefing: Trump’s New Tariff Threats**\
 `Plus, the beautiful chaos of Rio’s beaches.`\
 https://nytimes.com/2025/07/07/briefing/tariffs-japan-south-korea-texas-floods-israel-gaza-iran.html
