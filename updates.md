@@ -1,3 +1,7 @@
+**Trump Says Musk Is ‘Off the Rails’ With His Third-Party Effort**\
+`The tech billionaire’s effort to create a new political party, called the America Party, comes amid a ramped-up feud with the president over his new domestic policy law.`\
+https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html
+
 **Twins takeaways: With trade deadline looming, this team is in a tough spot**\
 `The Twins say they remain confident they can fix their self-made mess in time to avoid a roster teardown at the July 31 trade deadline.`\
 https://nytimes.com/athletic/6477104/2025/07/06/twins-takeaways-with-trade-deadline-looming-this-team-is-in-a-tough-spot/
