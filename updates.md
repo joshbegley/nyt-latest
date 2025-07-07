@@ -1,3 +1,19 @@
+**Can Taiwan Really Disconnect Its Economy From China?**\
+`Momentum is building in Taiwan to lessen its business dependency on China, its biggest trading partner. Doing so will not be easy.`\
+https://nytimes.com/2025/07/07/business/china-taiwan-chips.html
+
+**An Apartheid-Era Torture Method Endures Among South African Police**\
+`A government led by freedom fighters who helped to liberate the country more than 30 years ago is now overseeing a police force accused of staggering abuses.`\
+https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-tubing.html
+
+**Why Are Police Officers in South Africa Torturing People?**\
+`A data analysis by The New York Times shows that a form of torture popular during apartheid endures in the country despite laws designed to eliminate it.`\
+https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-crime.html
+
+**Connections: Sports Edition Coach: Hints for July 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6475584/2025/07/07/connections-sports-edition-hints-for-july-7-2025/
+
 **Quote of the Day: How Carroll Is Aging So Gracefully**\
 `Quotation of the Day for Monday, July 7, 2025.`\
 https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-how-carroll-is-aging-so-gracefully.html

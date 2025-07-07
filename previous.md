@@ -1,3 +1,19 @@
+**Can Taiwan Really Disconnect Its Economy From China?**\
+`Momentum is building in Taiwan to lessen its business dependency on China, its biggest trading partner. Doing so will not be easy.`\
+https://nytimes.com/2025/07/07/business/china-taiwan-chips.html
+
+**An Apartheid-Era Torture Method Endures Among South African Police**\
+`A government led by freedom fighters who helped to liberate the country more than 30 years ago is now overseeing a police force accused of staggering abuses.`\
+https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-tubing.html
+
+**Why Are Police Officers in South Africa Torturing People?**\
+`A data analysis by The New York Times shows that a form of torture popular during apartheid endures in the country despite laws designed to eliminate it.`\
+https://nytimes.com/2025/07/07/world/africa/south-africa-torture-police-crime.html
+
+**Connections: Sports Edition Coach: Hints for July 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6475584/2025/07/07/connections-sports-edition-hints-for-july-7-2025/
+
 **Quote of the Day: How Carroll Is Aging So Gracefully**\
 `Quotation of the Day for Monday, July 7, 2025.`\
 https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-how-carroll-is-aging-so-gracefully.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/06/us/texas-flood-warnings-sirens.html
 **Byron Buxton chosen as Twins' lone All-Star, Joe Ryan and Jhoan Duran snubbed**\
 `Buxton, a Georgia native, will be heading home for his second All-Star Game, but the Twins' top pitchers were passed over for the AL team.`\
 https://nytimes.com/athletic/6476597/2025/07/06/byron-buxton-twins-all-star-joe-ryan-jhoan-duran-snubbed/
-
-**Mexico repeats as Gold Cup winner, beats USMNT on Alvarez's late header**\
-`The USMNT scored less than four minutes in, but Mexico stormed back to reclaim Concacaf's championship in a thriller in Houston.`\
-https://nytimes.com/athletic/6477194/2025/07/06/usmnt-mexico-gold-cup-final-alvarez-handball-jimenez/
-
-**AJ Dybantsa, potential No. 1 NBA pick in 2026, leads U.S. to gold: Takeaways**\
-`Incoming BYU star shines at the FIBA U19 World Cup, but tournament shows that his draft class is stacked.`\
-https://nytimes.com/athletic/6477044/2025/07/06/aj-dybantsa-mvp-fiba-u19-world-cup/
-
-**A Dallas church draws 600 to a service for the Texas flooding victims.**\
-`By Ruth Graham`\
-https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
-
-**Trump Says Musk Is ‘Off the Rails’ With His Third-Party Effort**\
-`The tech billionaire’s effort to create a new political party, called the America Party, comes amid a ramped-up feud with the president over his new domestic policy law.`\
-https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html
 
