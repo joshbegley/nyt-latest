@@ -1,3 +1,7 @@
+**Iran Carries Out Mass Expulsion of Afghan Refugees**\
+`About 800,000 people have been deported to Afghanistan, a desperately poor country, under an Iranian campaign that accelerated sharply in June.`\
+https://nytimes.com/2025/07/07/world/middleeast/iran-afghan-refugees-deportations.html
+
 **What Pochettino and USMNT players learned about each other at the Gold Cup**\
 `The Gold Cup was Mauricio Pochettino's first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
 https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
 **Matias Maccelli eyes top-six role in a fresh start with the Maple Leafs**\
 `Eager to put a disappointing season behind him, Maccelli and the Leafs are both hoping he can be a solution high in the lineup.`\
 https://nytimes.com/athletic/6478246/2025/07/07/matias-maccelli-maple-leafs-top-six-berube-treliving/
-
-**OL Lyonnes sign USWNT’s Yohannes from Ajax**\
-`The 18-year-old has signed a three-year contract with the French club until 2028.`\
-https://nytimes.com/athletic/6477635/2025/07/07/ol-lyonnes-lily-yohannes-transfer/
 

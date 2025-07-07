@@ -1,3 +1,11 @@
+**See How Fast Floodwaters Rose Along Guadalupe River**\
+`The speed and intensity of the flooding appeared to take officials by surprise.`\
+https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river.html
+
+**Former PSG midfielder Verratti joins Al-Duhail from Al-Arabi**\
+`Verratti followed Lionel Messi, Neymar and Sergio Ramos by exiting Paris Saint-Germain in 2023, joining Qatari side Al-Arabi.`\
+https://nytimes.com/athletic/6302488/2025/07/07/former-psg-midfielder-marco-verratti-joins-al-duhail-from-qatari-rivals-al-arabi/
+
 **Iran Carries Out Mass Expulsion of Afghan Refugees**\
 `About 800,000 people have been deported to Afghanistan, a desperately poor country, under an Iranian campaign that accelerated sharply in June.`\
 https://nytimes.com/2025/07/07/world/middleeast/iran-afghan-refugees-deportations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6478485/2025/07/07/red-wings-mailbag-max-bultman-pr
 **Test record belongs to 'legend' Lara, says Mulder after declaring on 367**\
 `After declaring on himself with 33 runs remaining to tie the highest individual Test score, Mulder said Lara deserves to keep the milestone.`\
 https://nytimes.com/athletic/6477640/2025/07/07/wiaan-mulder-test-record-score-brian-lara/
-
-**Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
-`The tariffs on two of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
-https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
-
-**Matias Maccelli eyes top-six role in a fresh start with the Maple Leafs**\
-`Eager to put a disappointing season behind him, Maccelli and the Leafs are both hoping he can be a solution high in the lineup.`\
-https://nytimes.com/athletic/6478246/2025/07/07/matias-maccelli-maple-leafs-top-six-berube-treliving/
 

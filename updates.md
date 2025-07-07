@@ -1,3 +1,7 @@
+**Iran Carries Out Mass Expulsion of Afghan Refugees**\
+`About 800,000 people have been deported to Afghanistan, a desperately poor country, under an Iranian campaign that accelerated sharply in June.`\
+https://nytimes.com/2025/07/07/world/middleeast/iran-afghan-refugees-deportations.html
+
 **What Pochettino and USMNT players learned about each other at the Gold Cup**\
 `The Gold Cup was Mauricio Pochettino's first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
 https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
