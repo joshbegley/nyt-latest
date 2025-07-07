@@ -1,3 +1,11 @@
+**See How Fast Floodwaters Rose Along Guadalupe River**\
+`The speed and intensity of the flooding appeared to take officials by surprise.`\
+https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river.html
+
+**Former PSG midfielder Verratti joins Al-Duhail from Al-Arabi**\
+`Verratti followed Lionel Messi, Neymar and Sergio Ramos by exiting Paris Saint-Germain in 2023, joining Qatari side Al-Arabi.`\
+https://nytimes.com/athletic/6302488/2025/07/07/former-psg-midfielder-marco-verratti-joins-al-duhail-from-qatari-rivals-al-arabi/
+
 **Iran Carries Out Mass Expulsion of Afghan Refugees**\
 `About 800,000 people have been deported to Afghanistan, a desperately poor country, under an Iranian campaign that accelerated sharply in June.`\
 https://nytimes.com/2025/07/07/world/middleeast/iran-afghan-refugees-deportations.html
