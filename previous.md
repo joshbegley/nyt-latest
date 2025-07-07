@@ -1,40 +1,40 @@
-**Indonesia Volcano Eruption Sends Ash Soaring 11 Miles High**\
-`The ash cloud above Mount Lewotobi Laki-laki on Monday was about four times taller than the one produced by an eruption there last month.`\
-https://nytimes.com/2025/07/07/world/asia/indonesia-volcano-eruption-mount-lewotobi-laki-laki.html
+**Hot-streak heroics, Kirk’s All-Star turnaround, Toronto’s draft plans: Blue Jays takeaways**\
+`Toronto sits two victories away from the franchise record for wins before the All-Star break, with six games to go.`\
+https://nytimes.com/athletic/6477018/2025/07/07/blue-jays-takeaways-alejandro-kirk-all-star-mlb-draft-plans/
 
-**The New York Times International Edition in Print for Tuesday, July 8, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/07/todays-new-york-times-international-edition
+**2026 NHL Mock Draft: McKenna is No. 1 in Pronman’s way-too-early projection**\
+`The amount of high-end talent in the 2026 draft is exciting, although the lack of elite talent at premium positions is concerning.`\
+https://nytimes.com/athletic/6368342/2025/07/07/2026-nhl-mock-draft-gavin-mckenna/
 
-**Up Against Time, a Desperate Search Presses Ahead**\
-`Officials, emergency crews and volunteers in Central Texas were holding out hope for finding survivors of the flash flooding, as the death toll climbed.`\
-https://nytimes.com/2025/07/07/us/central-texas-flood-search.html
+**Why Netflix's 'Quarterback' fit Joe Burrow's delicate balance of public life and privacy**\
+`The Bengals' star has been careful about protecting his personal life, so why did he give the green light to the documentary series?`\
+https://nytimes.com/athletic/6459325/2025/07/07/joe-burrow-bengals-netflix-quarterback/
 
-**Texas Hill Country Is Underwater, and America’s Emergency Lifeline Is Fraying**\
-`With each passing day, the federal government is becoming less prepared to face the next big disaster.`\
-https://nytimes.com/2025/07/07/opinion/texas-floods-fema.html
+**This Week in Mets: The offense starts showing its potential**\
+`The Mets were able to take two of three from the Yankees despite a pitching staff with as many arms on the IL as on the active roster (13).`\
+https://nytimes.com/athletic/6477057/2025/07/07/this-week-in-mets-offense-showing-potential/
 
-**In Digital Era, Supreme Court Insists on Vast Piles of Paper**\
-`The court’s rules require many litigants to submit 40 copies of their briefs, resulting in millions of pages printed each term. Critics call the process outdated and wasteful.`\
-https://nytimes.com/2025/07/07/us/politics/supreme-court-cases-paper-electronic.html
+**Wha's the best college football rivalry? We ranked the top 100**\
+`Rivalries form the backbone of college football. After months of research and debate, here's how the top 100 stack up.`\
+https://nytimes.com/athletic/6469306/2025/07/07/best-college-football-rivalries-rankings-100/
 
-**Trump Keeps Foreign Countries on Edge as Tariff Deadline Nears**\
-`The president is again threatening higher tariff rates on a dozen foreign nations, as a deadline elapses this week for making trade deals.`\
-https://nytimes.com/2025/07/07/us/politics/trump-tariff-deadline.html
+**A Dark Moment for Journalism — and Devastation in Texas**\
+`Paramount has reached a settlement with President Trump, raising fears about journalistic independence.`\
+https://nytimes.com/2025/07/07/podcasts/the-daily/cbs-paramount-trump-settlement-texas.html
 
-**Now You See Josh Hawley, Now You Don’t**\
-`The Missouri senator’s evasions expose a disgraced Senate.`\
-https://nytimes.com/2025/07/07/opinion/josh-hawley-trump-bill.html
+**The Agonizing Search in Texas, and a Looming Trade Deadline**\
+`Plus, what your TV knows about you.`\
+https://nytimes.com/2025/07/07/podcasts/the-headlines/search-texas-flood-trade-deadline.html
 
-**Looking Beyond the U.S. for Trade, Canada Begins Shipping Natural Gas to Asia**\
-`A tanker is headed to South Korea with a first shipment of liquefied natural gas from Canada, which hopes to reduce its export reliance on its neighbor.`\
-https://nytimes.com/2025/07/07/world/canada/natural-gas-asia-us-trade.html
+**By the numbers: Anatomy of the Guardians' 10-game losing streak**\
+`This streak has stretched 92 innings. The Guardians have scored in only eight of those 92. `\
+https://nytimes.com/athletic/6477077/2025/07/07/mlb-guardians-10-game-losing-streak/
 
-**The Questions Started With the Wren**\
-`In this season of life and loss, the strangest moments arrive without answers.`\
-https://nytimes.com/2025/07/07/opinion/birds-nest-life.html
+**Wordle Review No. 1,480**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 8, 2025.`\
+https://nytimes.com/2025/07/07/crosswords/wordle-review-1480.html
 
-**Ukraine Turns to Fishing Nets to Catch Russian Drones**\
-`With their dense mesh, the nets can tangle drone propellers. It’s a simple but effective countermeasure that reflects how low-tech means can blunt high-tech weapons in the war.`\
-https://nytimes.com/2025/07/07/world/europe/ukraine-russia-drones-nets.html
+**Strands Sidekick No. 492**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 8, 2025.`\
+https://nytimes.com/2025/07/07/crosswords/strands-sidekick-492.html
 
