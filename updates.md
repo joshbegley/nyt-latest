@@ -1,3 +1,11 @@
+**Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
+`Rescue efforts in central Texas grew more desperate as the chance of finding survivors faded since the flooding on July 4 devastated the area. Dozens of people are still missing, authorities said.`\
+https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
+
+**Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
+`Kevin Pritchard says he was negotiating in good faith but found out big man was signing with Bucks over social media.`\
+https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
+
 **Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\
 `Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
 https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html

@@ -1,3 +1,7 @@
+**Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
+`Rescue efforts in central Texas grew more desperate as the chance of finding survivors faded since the flooding on July 4 devastated the area. Dozens of people are still missing, authorities said.`\
+https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
+
 **Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\
 `Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
 https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.htm
 https://nytimes.com/video/weather/100000010271901/tropical-depression-chantal-floods-central-north-carolina.html
 
 **Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
-`Kevin Pritchard says he was negotiating in good faith, but found out big man was signing with Bucks over social media.`\
+`Kevin Pritchard says he was negotiating in good faith but found out big man was signing with Bucks over social media.`\
 https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
 
 **Giants All-Star Randy Rodríguez is a development success. What that means for the organization**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatha
 **A Hotel Made Famous by Graham Greene Is a Victim of Haiti’s Violence**\
 `Haiti’s famed Oloffson Hotel, a cultural landmark and celebrity haven, was incinerated amid rising violence by gangs that control most of the country’s capital.`\
 https://nytimes.com/2025/07/07/world/americas/haiti-oloffson-hotel-fire-port-au-prince.html
-
-**Franklin W. Stahl, 95, Dies; Helped Create a ‘Beautiful’ DNA Experiment**\
-`He and a colleague proved a theory advanced by the Nobel Prize winners James Watson and Francis Crick, who discovered DNA’s helical structure.`\
-https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
 
