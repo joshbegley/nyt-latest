@@ -1,3 +1,7 @@
+**Franklin W. Stahl, 95, Dies; Helped Create a ‘Beautiful’ DNA Experiment**\
+`He and a colleague proved a theory advanced by the Nobel Prize winners James Watson and Francis Crick, who discovered DNA’s helical structure.`\
+https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
+
 **U.S. Will Try to Deport Abrego Garcia Before He Faces Trial, Justice Dept. Says**\
 `The plan directly contradicted the White House, which last month described as “fake news” reports of plans to re-deport Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/2025/07/07/us/politics/kilmar-abrego-garcia-trump-deport.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
 **Document Casts Doubt on White House’s Claims About Deported Venezuelans**\
 `The document from El Salvador seems to undermine a position that lawyers for the Justice Department and top Trump officials have taken time and again in front of a judge in Washington.`\
 https://nytimes.com/2025/07/07/us/politics/trump-venezuelans-un-el-salvador-cecot.html
-
-**Grigor Dimitrov forced to retire hurt one set from beating Jannik Sinner at Wimbledon**\
-`Dimitrov led by two sets to love when he injured his right pectoral muscle hitting a serve.`\
-https://nytimes.com/athletic/6478940/2025/07/07/tennis-wimbledon-dimitrov-injured-sinner-result/
 
