@@ -1,5 +1,9 @@
+**Leeds pushing to sign Newcastle midfielder Longstaff**\
+`Leeds have submitted an offer to their Premier League counterparts worth £10million plus £2million in add-ons for Longstaff.`\
+https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
+
 **N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
-`Saniyah Cheatham is said to have hanged herself early Saturday morning after she was arrested. Friends said she had been in good spirits a day earlier.`\
+`Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested. Friends said she had been in good spirits a day before.`\
 https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
 
 **A Hotel Made Famous by Graham Greene Is a Victim of Haiti’s Violence**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/world/americas/mexico-city-protests-rent-prices-t
 **Scouting Cam Schlittler, Konnor Griffin, Justin Crawford, Vance Honeycutt and more**\
 `Notes on Yankees, Phillies, Pirates and Orioles prospects, including Justin Crawford, Spencer Jones and Konnor Griffin.`\
 https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schlittler-konnor-griffin-justin-crawford/
-
-**Here Are Trump’s New Tariff Threats**\
-`President Trump has told 14 countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
-https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
 
