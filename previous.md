@@ -1,3 +1,7 @@
+**USMNT's Pochettino blasts Gold Cup final refereeing after Mexico handball controversy**\
+`The USMNT coach praised his players' performance and felt they suffered at the hands of the officials.`\
+https://nytimes.com/athletic/6477368/2025/07/06/pochettino-referee-usmnt-mexico-gold-cup-final-handball/
+
 **Central Texas floods are likely to be some of the deadliest in the past century.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/central-texas-flooding-history
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html
 **Raul Jimenez delivers Diogo Jota tribute after scoring for Mexico vs USMNT**\
 `The pair were teammates at Wolves and remained close friends.`\
 https://nytimes.com/athletic/6477192/2025/07/06/jimenez-jota-usmnt-mexico-gold-cup/
-
-**MLB All-Star All-Snubs team: Trea Turner, Rafael Devers, Juan Soto among notable misses**\
-`There are always a few names that leave you, and us, scratching our heads after being left out from the roster.`\
-https://nytimes.com/athletic/6477096/2025/07/06/mlb-2025-all-star-game-snubs/
 
