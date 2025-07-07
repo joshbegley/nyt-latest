@@ -1,3 +1,7 @@
+**What’s at Stake as Netanyahu and Trump Meet in Washington**\
+`With the fighting in Iran over, President Trump is considering whether to pursue a new nuclear agreement with Tehran. He is also urging a new cease-fire deal to end the fighting in Gaza.`\
+https://nytimes.com/2025/07/07/world/middleeast/trump-netanyahu-washington.html
+
 **The Met Gala After Anna?**\
 `What would it look like? The Bal d’Été at the Musée des Arts Décoratifs in Paris offered one example.`\
 https://nytimes.com/2025/07/07/style/musee-des-arts-decoratifs-bal-d-ete-sofia-coppola.html

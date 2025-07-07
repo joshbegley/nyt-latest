@@ -1,3 +1,7 @@
+**What’s at Stake as Netanyahu and Trump Meet in Washington**\
+`With the fighting in Iran over, President Trump is considering whether to pursue a new nuclear agreement with Tehran. He is also urging a new cease-fire deal to end the fighting in Gaza.`\
+https://nytimes.com/2025/07/07/world/middleeast/trump-netanyahu-washington.html
+
 **The Met Gala After Anna?**\
 `What would it look like? The Bal d’Été at the Musée des Arts Décoratifs in Paris offered one example.`\
 https://nytimes.com/2025/07/07/style/musee-des-arts-decoratifs-bal-d-ete-sofia-coppola.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6469306/2025/07/07/best-college-football-rivalries-
 **A Dark Moment for Journalism — and Devastation in Texas**\
 `Paramount has reached a settlement with President Trump, raising fears about journalistic independence.`\
 https://nytimes.com/2025/07/07/podcasts/the-daily/cbs-paramount-trump-settlement-texas.html
-
-**The Agonizing Search in Texas, and a Looming Trade Deadline**\
-`Plus, what your TV knows about you.`\
-https://nytimes.com/2025/07/07/podcasts/the-headlines/search-texas-flood-trade-deadline.html
 
