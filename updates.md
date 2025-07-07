@@ -1,3 +1,7 @@
+**Quote of the Day: How Carroll Is Aging So Gracefully**\
+`Quotation of the Day for Monday, July 7, 2025.`\
+https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-how-carroll-is-aging-so-gracefully.html
+
 **USMNT's Pochettino blasts Gold Cup final refereeing after Mexico handball controversy**\
 `The USMNT coach praised his players' performance and felt they suffered at the hands of the officials.`\
 https://nytimes.com/athletic/6477368/2025/07/06/pochettino-referee-usmnt-mexico-gold-cup-final-handball/
