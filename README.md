@@ -1,3 +1,23 @@
+**New Deadlines, New Letters — Same Tariff Uncertainty**\
+`The Trump administration is keen to strike deals as it dangles an extension to trading partners. But it’s also issuing threats to some of them.`\
+https://nytimes.com/2025/07/07/business/dealbook/trump-tariff-deadline-trade.html
+
+**How hard is it to rank college football's best rivalries? These were the toughest calls**\
+`Separating college football's best rivalries is no easy task. Who got left out of our top 100 and how was the top 10 built?`\
+https://nytimes.com/athletic/6465585/2025/07/07/college-football-best-rivalries-debate-rankings/
+
+**Projecting the Blackhawks' 2025-26 lineup, line by line and pair by pair**\
+`There are plenty of young prospects ready to earn NHL ice time, but where does everyone fit best based on what we know now?`\
+https://nytimes.com/athletic/6472882/2025/07/07/chicago-blackhawks-lineup-projection-frondell-rinzel/
+
+**How much better does the Senators' pipeline look after the 2025 NHL draft?**\
+`The Athletic caught up with Senators prospects and scouting staff during last week's development camp.`\
+https://nytimes.com/athletic/6472412/2025/07/07/senators-yakemchuk-hensler-development-camp/
+
+**Knicks summer-league preview: What to watch from Tyler Kolek, Pacôme Dadiet and more**\
+`What I'm watching for from Knicks players at the Las Vegas Summer League.`\
+https://nytimes.com/athletic/6476055/2025/07/07/nba-summer-league-preview-knicks/
+
 **Trump Administration Live Updates: Trading Partners on Edge as Tariff Deadline Nears**\
 ``\
 https://nytimes.com/live/2025/07/07/us/trump-news
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6477625/2025/07/07/usmnt-mexico-gold-cup-arsenal-gy
 **Wilson to leave Newcastle after five seasons**\
 `The 33-year-old joined Newcastle in the summer of 2020 and scored 49 goals across in 130 appearances for the club.`\
 https://nytimes.com/athletic/6477731/2025/07/07/callum-wilson-leaves-newcastle/
-
-**Typhoon Danas Strikes Taiwan**\
-`The storm left hundreds of thousands of homes without power and crushed the gate of a well-known temple in southwest Taiwan.`\
-https://nytimes.com/video/world/asia/100000010270274/typhoon-danas-strikes-taiwan.html
-
-**Summer lovin’, had me a blast: How CC Sabathia’s Milwaukee moment smoothed a path to Cooperstown**\
-`Seventeen years ago, Sabathia began a three-month stop with the Brewers that proved pivotal in his 19-season Hall of Fame career.`\
-https://nytimes.com/athletic/6476239/2025/07/07/cc-sabathia-milwaukee-brewers-trade-cooperstown/
-
-**What we've learned in the first half of the MLB season: 10 midsummer takeaways**\
-`It’s time to let you know What We’ve Learned in the First Half, with perspective from four MLB executives.`\
-https://nytimes.com/athletic/6477300/2025/07/07/mlb-season-first-half-takeaways/
-
-**Trump Threatens Extra Tariffs on BRICS-Aligned Countries**\
-`President Trump said nations that support the group’s “Anti-American policies” would face an additional 10 percent tariff. He did not elaborate.`\
-https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
-
-**Your Questions, Answered**\
-`We address your queries about the news.`\
-https://nytimes.com/2025/07/07/briefing/your-questions-answered.html
 
