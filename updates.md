@@ -1,3 +1,15 @@
+**Three Big Questions After the Texas Floods**\
+`The Trump administration and its predecessors will face scrutiny over the disaster that has killed more than 100 people.`\
+https://nytimes.com/2025/07/07/us/politics/texas-floods-trump-administration.html
+
+**Barnard College Pledges âZero Toleranceâ for Antisemitism in Settlement**\
+`Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
+https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html
+
+**Giants All-Star Randy RodrÃ­guez is a development success. What that means for the organization**\
+`RodrÃ­guez's improvement with his command has vaulted him into All-Star status. Can his improvement be replicated with others in the org.?`\
+https://nytimes.com/athletic/6478577/2025/07/07/randy-rodriguez-giants-pitching-development/
+
 **A Day Before Trial, Alleged Accomplice of Alexander Brothers Is Cleared**\
 `Ohad Fisherman had been charged with sexual battery along with Oren and Alon Alexander stemming from an alleged 2016 assault.`\
 https://nytimes.com/2025/07/07/realestate/ohad-fisherman-alexander-brothers-case.html
