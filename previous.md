@@ -1,3 +1,11 @@
+**Transfers TLDR: Martin Zubimendi to Arsenal - all you need to know**\
+`The Spanish midfielder's move to the Emirates Stadium from Real Sociedad has been confirmed – this is everything you need to know...`\
+https://nytimes.com/athletic/6439985/2025/07/07/martin-zubimendi-to-arsenal-transfers-tldr/
+
+**A Smart, Quick Curry for Sluggish Days**\
+`Keema palak is just the thing for the Monday after a long weekend (or Mondays in general).`\
+https://nytimes.com/2025/07/07/dining/healthy-keema-palak-recipe-for-ground-chicken-and-spinach.html
+
 **Sudan soccer league returns despite ongoing Civil War**\
 `The eight-team, month-long Sudan Elite League will take place to determine the Sudanese clubs playing continental football in 2025-26.`\
 https://nytimes.com/athletic/6478044/2025/07/07/sudan-civil-war-football-league-africa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge
 **MLB’s latest gambling probe, explained**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6477509/2025/07/07/mlb-gambling-investigation-luis-ortiz-the-windup/
-
-**Flavio Cobolli is a rising Italian tennis talent — who could have played for Roma**\
-`The 23-year-old had an inconsistent start to 2025, but the biggest title of his career to date was a spur to the Wimbledon quarterfinals.`\
-https://nytimes.com/athletic/6381211/2025/07/07/tennis-flavio-cobolli-italy-footballer-as-roma/
-
-**Red Light: Decoding the NHL's dog days. Plus: Mitch Marner's weirdest league record**\
-`Let’s just say we’re officially into the NHL’s slow period. Here's what's still unsettled.`\
-https://nytimes.com/athletic/6477945/2025/07/07/red-light-newsletter-nhl-offseason-snoozefest/
 

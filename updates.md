@@ -1,3 +1,11 @@
+**Transfers TLDR: Martin Zubimendi to Arsenal - all you need to know**\
+`The Spanish midfielder's move to the Emirates Stadium from Real Sociedad has been confirmed – this is everything you need to know...`\
+https://nytimes.com/athletic/6439985/2025/07/07/martin-zubimendi-to-arsenal-transfers-tldr/
+
+**A Smart, Quick Curry for Sluggish Days**\
+`Keema palak is just the thing for the Monday after a long weekend (or Mondays in general).`\
+https://nytimes.com/2025/07/07/dining/healthy-keema-palak-recipe-for-ground-chicken-and-spinach.html
+
 **Laurie Metcalf to Star in Broadway Play Produced by Scott Rudin**\
 `The production, of the Samuel D. Hunter play “Little Bear Ridge Road” that got strong reviews in Chicago will be the first produced by Rudin since news reports of his bullying behavior in 2021.`\
 https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
