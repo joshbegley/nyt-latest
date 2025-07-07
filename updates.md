@@ -1,3 +1,7 @@
+**N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
+`Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested in an assault case. Friends said she had been in good spirits a day before.`\
+https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
+
 **As Renewed U.S. Tariffs Loom, Emerging Economies Turn to One Another**\
 `With President Trump preparing to revive tariffs this week, some of the world’s biggest exporters are planning a future less dependent on trade with the United States.`\
 https://nytimes.com/2025/07/07/world/americas/trump-tariffs-global-trade-economy.html

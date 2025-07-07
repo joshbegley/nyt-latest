@@ -19,7 +19,7 @@ https://nytimes.com/2025/07/07/briefing/texas-floods-death-toll-trump-tariffs.ht
 https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
 
 **N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
-`Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested. Friends said she had been in good spirits a day before.`\
+`Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested in an assault case. Friends said she had been in good spirits a day before.`\
 https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
 
 **A Hotel Made Famous by Graham Greene Is a Victim of Haiti’s Violence**\
