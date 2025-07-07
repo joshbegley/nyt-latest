@@ -1,40 +1,40 @@
-**Flood risk persists in Central Texas as rainfall continues.**\
-`Flood watches remain in effect as forecasters warn of more rain and possible river rises through Monday.`\
-https://nytimes.com/live/2025/07/07/us/texas-floods/flood-risk-persists-in-central-texas-as-rainfall-continues
+**Trump Threatens Extra Tariffs on BRICS-Aligned Countries**\
+`President Trump said nations that support the group’s “Anti-American policies” would face an additional 10 percent tariff. He did not elaborate.`\
+https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
 
-**WNBA power rankings: Dallas' young cast looks like a strong support for Paige Bueckers**\
-`Will Caitlin Clark return and provide a showdown this weekend against Bueckers?`\
-https://nytimes.com/athletic/6477439/2025/07/07/wnba-power-rankings-paige-bueckers-dallas-wings/
+**Your Questions, Answered**\
+`We address your queries about the news.`\
+https://nytimes.com/2025/07/07/briefing/your-questions-answered.html
 
-**Luka, Durant, Jokić and more: Veteran extensions to keep an eye on this summer**\
-`We're likely to see a lot of extensions being signed in the coming days and weeks, but the terms of those deals aren't quite as clear.`\
-https://nytimes.com/athletic/6476399/2025/07/07/luka-doncic-lakers-kevin-durant-rockets-nba-extensions/
+**A high school right-hander has never gone 1-1 in the MLB Draft. Why it may never happen**\
+`In 59 MLB Draft classes, a high school right-hander has never gone 1-1. Seth Hernandez is a top talent but is unlikely to be the first.`\
+https://nytimes.com/athletic/6476445/2025/07/07/mlb-draft-top-pick-high-school-right-handed-pitcher/
 
-**The Pulse: The upside of USMNT's loss**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6465515/2025/07/07/usmnt-mexico-gold-world-cup/
+**When the Rockies and White Sox play one another, does anybody truly win?**\
+`"This is the World Series for the two worst teams," joked Rockies infielder Kyle Farmer. `\
+https://nytimes.com/athletic/6477431/2025/07/07/white-sox-rockies-series-worst-teams-ever/
 
-**What’s at Stake as Netanyahu and Trump Meet in Washington**\
-`With the fighting in Iran over, President Trump is considering whether to pursue a new nuclear agreement with Tehran. He is also urging a new cease-fire deal to end the fighting in Gaza.`\
-https://nytimes.com/2025/07/07/world/middleeast/trump-netanyahu-washington.html
+**Greenberg: This is the 'next great Cubs team' Chicago has been waiting for**\
+`The entire middle of the order is deserving of playing in the All-Star Game, meaning the Cubs are in a great place as we approach the break.`\
+https://nytimes.com/athletic/6477441/2025/07/07/chicago-cubs-middle-order-all-stars/
 
-**The Met Gala After Anna?**\
-`What would it look like? The Bal d’Été at the Musée des Arts Décoratifs in Paris offered one example.`\
-https://nytimes.com/2025/07/07/style/musee-des-arts-decoratifs-bal-d-ete-sofia-coppola.html
+**Buckley: Breslow’s 3 Red Sox All-Stars great for July. Now it’s time to work on October **\
+`Breslow led a fine offseason acquisition process and deserves plaudits for that. He should be acquiring again at the trade deadline. `\
+https://nytimes.com/athletic/6477290/2025/07/07/red-sox-all-stars-nationals-craig-breslow/
 
-**Where every international NWSL player is competing this summer and how to watch**\
-`Every NWSL player competing in the three major continental tournaments this summer`\
-https://nytimes.com/athletic/6476934/2025/07/07/nwsl-players-euros-wafcon-copa-america/
+**Has the Ohio State-Michigan rivalry been diminished in the Playoff age?**\
+`Michigan beat Ohio State again. Yet Ohio State won the national championship. All it's done is add another wrinkle to CFB's best rivalry.`\
+https://nytimes.com/athletic/6466856/2025/07/07/michigan-ohio-state-best-college-football-rivalry/
 
-**Bears mailbag: Did they finally get it right with Ben Johnson, Caleb Williams?**\
-`Heading into training camp, what's on the minds of Bears fans? Did they finally get it right at coach and QB? Will Cole Kmet be traded?`\
-https://nytimes.com/athletic/6469553/2025/07/07/bears-mailbag-ben-johnson-caleb-williams-cole-kmet/
+**Growing up in a military family should make playing QB for Bill Belichick a snap**\
+`Burgess, ranked the No. 16 QB nationally in the Class of 2026 by 247Sports, picked North Carolina over Auburn, NC State and others. `\
+https://nytimes.com/athletic/6469945/2025/07/07/bill-belichick-north-carolina-recruiting-travis-burgess/
 
-**Hot-streak heroics, Kirk’s All-Star turnaround, Toronto’s draft plans: Blue Jays takeaways**\
-`Toronto sits two victories away from the franchise record for wins before the All-Star break, with six games to go.`\
-https://nytimes.com/athletic/6477018/2025/07/07/blue-jays-takeaways-alejandro-kirk-all-star-mlb-draft-plans/
+**Was Reds lefty Andrew Abbott an All-Star snub?: C. Notes**\
+`Abbott was deserving of an All-Star nod, but it’s hard to say any of those who were picked ahead of him didn’t.`\
+https://nytimes.com/athletic/6477074/2025/07/07/reds-andrew-abbott-all-star-snub/
 
-**2026 NHL Mock Draft: McKenna is No. 1 in Pronman’s way-too-early projection**\
-`The amount of high-end talent in the 2026 draft is exciting, although the lack of elite talent at premium positions is concerning.`\
-https://nytimes.com/athletic/6368342/2025/07/07/2026-nhl-mock-draft-gavin-mckenna/
+**Transfers TLDR: Jamie Gittens to Chelsea – all you need to know**\
+`Jamie Gittens has moved to Chelsea from Dortmund – here are the details behind the deal`\
+https://nytimes.com/athletic/6461153/2025/07/07/jamie-gittens-to-chelsea-transfers-tldr/
 
