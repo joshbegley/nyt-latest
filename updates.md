@@ -1,3 +1,15 @@
+**Leeds pushing to sign Newcastle midfielder Longstaff**\
+`Leeds have submitted an offer to their Premier League counterparts worth £10million plus £2million in add-ons for Longstaff.`\
+https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
+
+**N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
+`Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested. Friends said she had been in good spirits a day before.`\
+https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
+
+**A Hotel Made Famous by Graham Greene Is a Victim of Haiti’s Violence**\
+`Haiti’s famed Oloffson Hotel, a cultural landmark and celebrity haven, was incinerated amid rising violence by gangs that control most of the country’s capital.`\
+https://nytimes.com/2025/07/07/world/americas/haiti-oloffson-hotel-fire-port-au-prince.html
+
 **Franklin W. Stahl, 95, Dies; Helped Create a ‘Beautiful’ DNA Experiment**\
 `He and a colleague proved a theory advanced by the Nobel Prize winners James Watson and Francis Crick, who discovered DNA’s helical structure.`\
 https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
