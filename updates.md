@@ -1,3 +1,19 @@
+**Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
+`Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
+https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
+
+**At Essence Fest, Fashion Didn’t Miss a Beat**\
+`In tiaras, cowboy boots and thrifted T-shirts, festivalgoers used style to celebrate identity, joy and community.`\
+https://nytimes.com/2025/07/07/style/essence-fest-new-orleans-fashion.html
+
+**A Bradley Beal buyout is looming: What I'm hearing about the Suns guard's future**\
+`As he considers his next steps, the list of teams Beal has thought about includes the Clippers, Lakers, Warriors and Bucks.`\
+https://nytimes.com/athletic/6478558/2025/07/07/bradley-beal-buyout-suns-nba/
+
+**Increasingly Acidic Seas Threaten Oyster Farming**\
+`Researchers and hatcheries are exploring new ways to protect shellfish in the Pacific Northwest, although Trump budget cuts may thwart their efforts.`\
+https://nytimes.com/2025/07/07/science/oysters-farming-acidic-ocean-climate-change.html
+
 **Scoop City: 2025 NFC South preview**\
 `Key questions, breakout players and positions to watch in the AFC East, plus expected win totals for each team.`\
 https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
