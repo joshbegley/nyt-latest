@@ -1,3 +1,7 @@
+**A Dallas church draws 600 to a service for the Texas flooding victims.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
+
 **Rosenthal: Firing Mike Rizzo and Dave Martinez makes some sense for the Nationals, but the timing doesn't**\
 `The Nationals will now have an interim general manager making the No. 1 pick in next week's draft and handling the team's trade deadline.`\
 https://nytimes.com/athletic/6477294/2025/07/06/washington-nationals-lerner-rizzo-martinez-firings/
