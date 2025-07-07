@@ -1,3 +1,11 @@
+**Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
+`The tariffs on some of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
+https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
+
+**Matias Maccelli eyes top-six role in a fresh start with the Maple Leafs**\
+`Eager to put a disappointing season behind him, Maccelli and the Leafs are both hoping he can be a solution high in the lineup.`\
+https://nytimes.com/athletic/6478246/2025/07/07/matias-maccelli-maple-leafs-top-six-berube-treliving/
+
 **OL Lyonnes sign USWNT’s Yohannes from Ajax**\
 `The 18-year-old has signed a three-year contract with the French club until 2028.`\
 https://nytimes.com/athletic/6477635/2025/07/07/ol-lyonnes-lily-yohannes-transfer/
