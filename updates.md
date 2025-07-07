@@ -1,3 +1,7 @@
+**Tropical Storm Chantal Floods Parts of North Carolina**\
+`The storm, which made landfall on Sunday, caused significant flooding that closed roads and stranded drivers. It is heading northeast.`\
+https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-north-carolina.html
+
 **Botafogo target Davide Ancelotti appointment as head coach**\
 `The appointment comes one month after he joined his father Carlo’s coaching staff at the Brazil men’s international side.`\
 https://nytimes.com/athletic/6477511/2025/07/07/davide-ancelotti-botafogo-manager/
