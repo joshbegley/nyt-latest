@@ -1,3 +1,11 @@
+**This is Spain 2.0 - more purposeful, more direct and simply better than two years ago**\
+`At Euro 2025 the world champions are producing a cohesive and sophisticated style that was unthinkable in the women's game a decade ago`\
+https://nytimes.com/athletic/6478777/2025/07/07/spain-euros-direct-belgium/
+
+**Russian Maestro, Shunned in West Over Putin Support, Will Conduct in Italy**\
+`Valery Gergiev, an ally of Vladimir V. Putin, is set to conduct in Western Europe for the first time since institutions there cut ties over Russia’s invasion of Ukraine.`\
+https://nytimes.com/2025/07/07/arts/music/valery-gergiev-italy-festival.html
+
 **Trump Administration Acknowledges Lack of Evidence From Epstein Documents**\
 `After months of promising big revelations, Attorney General Pam Bondi acknowledged a lack of evidence for a host of conspiracy theories, including a “client list” and a jailhouse murder.`\
 https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html

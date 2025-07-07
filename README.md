@@ -1,4 +1,12 @@
-**This is Spain 2.0 - more purposeful, more direct and simply better than two years ago**\
+**Barcelona Women announce Rolfo, Roebuck contract terminations**\
+`The club said it had reached agreements with both players to terminate their deals one year early.`\
+https://nytimes.com/athletic/6478780/2025/07/07/barcelona-rolfo-roebuck-exit/
+
+**European Commission’s Leader Faces No-Confidence Vote in Far-Right Challenge**\
+`Ahead of the vote on Thursday, Ursula von der Leyen, president of the commission, appeared before the European Parliament to defend herself against complaints about transparency.`\
+https://nytimes.com/2025/07/07/world/europe/von-der-leyen-no-confidence-vote.html
+
+**This is Spain 2.0: More purposeful, more direct and simply better than two years ago**\
 `At Euro 2025 the world champions are producing a cohesive and sophisticated style that was unthinkable in the women's game a decade ago`\
 https://nytimes.com/athletic/6478777/2025/07/07/spain-euros-direct-belgium/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/science/oysters-farming-acidic-ocean-climate-chan
 **Scoop City: 2025 NFC South preview**\
 `Key questions, breakout players and positions to watch in the NFC South, plus expected win totals for each team.`\
 https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
-
-**Nationals name Miguel Cairo interim manager**\
-`A day after the Nationals fired their manager and GM, they named Cairo as the interim manager.`\
-https://nytimes.com/athletic/6478652/2025/07/07/washington-nationals-miguel-cairo-interim-manager/
-
-**Trade grades: Norman Powell bolsters Heat offense as Clippers take new path**\
-`With Norman Powell in the fold, the Heat upgrade their offense. The Clippers try something new while Utah further leans into tanking`\
-https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-clippers-nba-free-agency/
 
