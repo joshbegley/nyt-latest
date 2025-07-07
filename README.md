@@ -1,3 +1,7 @@
+**Videos Show Camp Mystic Before and After Deadly Texas Flood**\
+`Surviving campers sang hymns as they drove past the damage left by the floods. Days earlier, they were having fun and playing games at the all-girls’ Christian summer camp.`\
+https://nytimes.com/video/us/100000010270226/texas-flood-camp-mystic.html
+
 **Tropical Storm Chantal Floods Parts of North Carolina**\
 `The storm, which made landfall on Sunday, caused significant flooding that closed roads and stranded drivers. It is heading northeast.`\
 https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-parts-of-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/briefing/texas-floods-israel-washington-dalai-lam
 **The New York Times in Print for Monday, July 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/07/todays-new-york-times
-
-**Britain’s Prime Minister Is Fading Away Before Our Eyes**\
-`After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
-https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
 
