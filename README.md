@@ -1,3 +1,7 @@
+**2 Dead and 300 Injured After Typhoon Danas Strikes Taiwan**\
+`Most typhoons come ashore on the island’s sparsely populated east coast, but Danas scraped its crowded west coast. Nearly 400,000 households had no power on Monday.`\
+https://nytimes.com/2025/07/07/world/asia/typhoon-danas-taiwan.html
+
 **Monday Briefing: Floods in Texas Killed at Least 80**\
 `Plus, the case of the lost Stradivarius.`\
 https://nytimes.com/2025/07/07/briefing/texas-floods-israel-washington-dalai-lama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473194/2025/07/07/fan-survey-west-ham-results/
 **Leeds United's goalkeeper search: Perri and Zentner interest but net cast far and wide**\
 `Daniel Farke is on the hunt for a new No 1 - there is interest in goalkeepers in France and Germany `\
 https://nytimes.com/athletic/6475032/2025/07/07/leeds-united-goalkeeper-transfer-perri-zentner/
-
-**Australian Woman Is Convicted of Murder in Mushroom Poisoning Case**\
-`Three people died in 2023 after eating beef Wellington made by Erin Patterson, whose subsequent trial gripped the country.`\
-https://nytimes.com/2025/07/07/world/australia/mushroom-poisoning-trial-verdict.html
 
