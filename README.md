@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6478485/2025/07/07/red-wings-mailbag-max-bultman-pr
 https://nytimes.com/athletic/6477640/2025/07/07/wiaan-mulder-test-record-score-brian-lara/
 
 **Trump Tells Japan and South Korea Their Tariff Rate: 25%**\
-`The tariffs on some of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
+`The tariffs on two of America’s closest allies would go into effect Aug. 1, unless the countries reach some kind of trade agreement with the United States.`\
 https://nytimes.com/2025/07/07/us/politics/trump-tariffs-japan-south-korea.html
 
 **Matias Maccelli eyes top-six role in a fresh start with the Maple Leafs**\
