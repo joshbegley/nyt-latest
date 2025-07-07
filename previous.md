@@ -1,3 +1,7 @@
+**Tropical Storm Chantal Soaks North Carolina**\
+`Heavy rains from Tropical Storm Chantal flooded homes and streets as it pushed into central North Carolina.`\
+https://nytimes.com/video/us/100000010270201/tropical-storm-chantal-floods-parts-of-north-carolina.html
+
 **Word of the Day: whimsical**\
 `This word has appeared in 243 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/07/learning/word-of-the-day-whimsical.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6477448/2025/07/07/usmnt-mexico-gold-cup-final-poch
 **Sounders goalkeeper Stefan Frei taken in ambulance after head collision**\
 `Frei jumped forward to make a play on a free kick, and as he came down, his head collided with the knee of a Crew player.`\
 https://nytimes.com/athletic/6477377/2025/07/07/sounders-stefan-frei-goalkeeper-knee-collision-head-ambulance/
-
-**Matthew Boyd earns All-Star nod before dominating Cardinals as Cubs keep shining**\
-`Chicago had three players selected to the All-Star team, but the argument could be made that other Cubs deserved some love as well.`\
-https://nytimes.com/athletic/6477404/2025/07/07/cubs-matthew-boyd-all-star-dominates-cardinals/
 

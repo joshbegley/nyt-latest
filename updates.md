@@ -1,3 +1,7 @@
+**Tropical Storm Chantal Soaks North Carolina**\
+`Heavy rains from Tropical Storm Chantal flooded homes and streets as it pushed into central North Carolina.`\
+https://nytimes.com/video/us/100000010270201/tropical-storm-chantal-floods-parts-of-north-carolina.html
+
 **Britain’s Prime Minister Is Fading Away Before Our Eyes**\
 `After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
 https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
