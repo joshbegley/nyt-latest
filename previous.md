@@ -1,3 +1,11 @@
+**Pet Theory**\
+`Emily Anthes explores the science and health of our creature companions.`\
+https://nytimes.com/column/pet-theory
+
+**Lowetide: Is Oilers' Ryan Nugent-Hopkins reaching a career crossroads?**\
+`Nugent-Hopkins' play for Edmonton last year suggests a feature role may no longer be warranted.`\
+https://nytimes.com/athletic/6476541/2025/07/07/oilers-ryan-nugent-hopkins-stats-2025/
+
 **Canucks mailbag, part 1: Strategic paths to contender status tiers**\
 `The meat of the NHL offseason is in the books. That doesn't mean it's the dog days of summer yet, however.`\
 https://nytimes.com/athletic/6476970/2025/07/07/vancouver-canucks-mailbag-drance-july-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477908/2025/07/07/luka-modric-will-be-here-in-augu
 **How to Help the Texas Flood Victims**\
 `Flash flooding killed at least 80 people in Central Texas, and dozens are still missing. Here’s how you can help.`\
 https://nytimes.com/2025/07/07/us/texas-flooding-victims-rescue-donate-help.html
-
-**Fernando Tatis Jr., Jackson Merrill and the Padres’ search for their former offense**\
-`After months of sputtering offense, San Diego needs more from its top two hitters.`\
-https://nytimes.com/athletic/6474113/2025/07/07/padres-offense-tatis-jr-merrill/
-
-**No Corrections: July 7, 2025**\
-`No corrections appeared in print on Monday, July 7, 2025.`\
-https://nytimes.com/2025/07/07/pageoneplus/no-corrections-july-7-2025.html
 

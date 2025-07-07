@@ -1,3 +1,11 @@
+**Pet Theory**\
+`Emily Anthes explores the science and health of our creature companions.`\
+https://nytimes.com/column/pet-theory
+
+**Lowetide: Is Oilers' Ryan Nugent-Hopkins reaching a career crossroads?**\
+`Nugent-Hopkins' play for Edmonton last year suggests a feature role may no longer be warranted.`\
+https://nytimes.com/athletic/6476541/2025/07/07/oilers-ryan-nugent-hopkins-stats-2025/
+
 **Canucks mailbag, part 1: Strategic paths to contender status tiers**\
 `The meat of the NHL offseason is in the books. That doesn't mean it's the dog days of summer yet, however.`\
 https://nytimes.com/athletic/6476970/2025/07/07/vancouver-canucks-mailbag-drance-july-2025/
