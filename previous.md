@@ -1,3 +1,15 @@
+**Submit your questions for Pete Sampson's Notre Dame football mailbag**\
+`With power conference media days starting up and preseason camp around the corner, it's starting to feel like college football season.`\
+https://nytimes.com/athletic/6478392/2025/07/07/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag/
+
+**Nottingham Forest confirm Edu as new global head of football**\
+`The club said the newly-established role will see Edu oversee all football activity at the City Ground.`\
+https://nytimes.com/athletic/5897169/2025/07/07/edu-nottingham-forest-global-head-of-football-arsenal/
+
+**Live Q&A with Yankees writer Brendan Kuty on Wednesday: Submit questions**\
+`Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
+https://nytimes.com/athletic/6478364/2025/07/07/yankees-live-qa-submit-questions/
+
 **Medical Societies Sue Kennedy and H.H.S. Over Vaccine Advice**\
 `New restrictions on Covid shots run counter to scientific evidence, the groups said.`\
 https://nytimes.com/2025/07/07/health/vaccines-kennedy-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6473374/2025/07/07/everton-gueye-contract-new/
 **As Avignon Festival Turns to Dance, It Trips Up Some Onlookers**\
 `The festival opener “Nôt,” from Marlene Monteiro Freitas, drew both boos and applause. Elsewhere, for Anne Teresa De Keersmaeker, the spectacle was kept to the stage.`\
 https://nytimes.com/2025/07/07/arts/avignon-festival-dance-freitas-de-keersmaeker.html
-
-**At a Small School in the Bronx, Classical Music Thrives**\
-`Students receive free lessons and instruments — and a serious introduction to musical traditions of all sorts. `\
-https://nytimes.com/card/2025/07/07/nyregion/upstartnyc
-
-**Russian Minister Who Had Led Region Later Invaded by Ukraine Is Found Dead**\
-`Roman V. Starovoyt, the transport minister, had governed Russia’s western Kursk region before Ukrainian forces invaded in 2024 and occupied part of the territory.`\
-https://nytimes.com/2025/07/07/world/europe/russia-official-dead.html
-
-**Spurs to name Fabian Otte as new head of goalkeeping**\
-`Otte joins Thomas Frank's new-look backroom team after the Dane replaced Ange Postecoglou as head coach`\
-https://nytimes.com/athletic/6478239/2025/07/07/tottenham-fabian-otte-liverpol-head-of-goalkeeping-frank/
 
