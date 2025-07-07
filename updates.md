@@ -1,3 +1,11 @@
+**Red Light: Decoding the NHL's dog days. Plus: Mitch Marner's weirdest league record**\
+`Let’s just say we’re officially into the NHL’s slow period. Here's what's still unsettled.`\
+https://nytimes.com/athletic/6477945/2025/07/07/red-light-newsletter-nhl-offseason-snoozefest/
+
+**Milan head coach Allegri says Modric 'will be here in August'**\
+`Modric is currently playing for Madrid at the Club World Cup and will become a free agent once Madrid's tournament ends.`\
+https://nytimes.com/athletic/6477908/2025/07/07/luka-modric-will-be-here-in-august-milan-head-coach-max-allegri/
+
 **How to Help the Texas Flood Victims**\
 `Flash flooding killed at least 80 people in Central Texas, and dozens are still missing. Here’s how you can help.`\
 https://nytimes.com/2025/07/07/us/texas-flooding-victims-rescue-donate-help.html
