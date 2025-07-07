@@ -1,4 +1,8 @@
 **What Pochettino and USMNT players learned about each other at the Gold Cup**\
+`The Gold Cup was Mauricio Pochettino's first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
+https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
+
+**What Pochettino and USMNT players learned about each other at the Gold Cup**\
 `The Gold Cup was Mauricio Pochettino first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
 https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
 
