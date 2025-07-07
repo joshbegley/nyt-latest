@@ -1,3 +1,15 @@
+**Laurie Metcalf to Star in ‘Little Bear Ridge Road’ on Broadway**\
+`The production, of a Samuel D. Hunter play that got strong reviews in Chicago, will be the first produced by Scott Rudin since news reports of his bullying behavior in 2021.`\
+https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
+
+**MLB’s latest gambling probe, explained**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6477509/2025/07/07/mlb-gambling-investigation-luis-ortiz-the-windup/
+
+**Flavio Cobolli is a rising Italian tennis talent — who could have played for Roma**\
+`The 23-year-old had an inconsistent start to 2025, but the biggest title of his career to date was a spur to the Wimbledon quarterfinals.`\
+https://nytimes.com/athletic/6381211/2025/07/07/tennis-flavio-cobolli-italy-footballer-as-roma/
+
 **Red Light: Decoding the NHL's dog days. Plus: Mitch Marner's weirdest league record**\
 `Let’s just say we’re officially into the NHL’s slow period. Here's what's still unsettled.`\
 https://nytimes.com/athletic/6477945/2025/07/07/red-light-newsletter-nhl-offseason-snoozefest/
