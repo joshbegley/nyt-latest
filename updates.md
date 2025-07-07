@@ -1,3 +1,7 @@
+**A Day Before Trial, Alleged Accomplice of Alexander Brothers Is Cleared**\
+`Ohad Fisherman had been charged with sexual battery along with Oren and Alon Alexander stemming from an alleged 2016 assault.`\
+https://nytimes.com/2025/07/07/realestate/ohad-fisherman-alexander-brothers-case.html
+
 **Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
 `Rescue efforts in Central Texas grew more desperate as the chance of finding survivors faded.`\
 https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
