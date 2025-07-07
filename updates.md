@@ -1,3 +1,11 @@
+**Man Utd end talks over access-all-areas Amazon documentary**\
+`The decision was made to a significant extent because head coach Ruben Amorim made clear he was not comfortable with the proposal.`\
+https://nytimes.com/athletic/6477559/2025/07/07/manchester-united-amazon-documentary/
+
+**Trump Administration Acknowledges Lack of Evidence From Epstein Documents**\
+`After Attorney General Pam Bondi promised big revelations for months, the Justice Department noted a lack of evidence for conspiracy theories, including a “client list” and a jailhouse murder.`\
+https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html
+
 **Barcelona Women announce Rolfo, Roebuck contract terminations**\
 `The club said it had reached agreements with both players to terminate their deals one year early.`\
 https://nytimes.com/athletic/6478780/2025/07/07/barcelona-rolfo-roebuck-exit/
