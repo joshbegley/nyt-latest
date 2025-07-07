@@ -1,3 +1,7 @@
+**Sounders goalkeeper Stefan Frei taken in ambulance after head collision**\
+`Frei jumped forward to make a play on a free kick, and as he came down, his head collided with the knee of a Crew player.`\
+https://nytimes.com/athletic/6477377/2025/07/07/sounders-stefan-frei-goalkeeper-knee-collision-head-ambulance/
+
 **Matthew Boyd earns All-Star nod before dominating Cardinals as Cubs keep shining**\
 `Chicago had three players selected to the All-Star team, but the argument could be made that other Cubs deserved some love as well.`\
 https://nytimes.com/athletic/6477404/2025/07/07/cubs-matthew-boyd-all-star-dominates-cardinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6473891/2025/07/07/number-two-assistant-manager-lij
 **Juan Mata interview: 'I love Marcus Rashford - him staying would be a win-win'**\
 `The former United player talks about witnessing his ex-team-mate's first training session, the direction of the club and his love of art`\
 https://nytimes.com/athletic/6473133/2025/07/07/juan-mata-interview-rashford-manchester-united/
-
-**The steepest of stands, a faith room and 747 toilets: Behind the scenes at Everton's new £800m stadium**\
-`Everton's new home on the banks of the River Mersey is almost complete - The Athletic has been for a guided tour`\
-https://nytimes.com/athletic/6473568/2025/07/07/evertons-new-800m-stadium-behind-scenes/
 

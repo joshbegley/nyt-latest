@@ -1,3 +1,15 @@
+**Matthew Boyd earns All-Star nod before dominating Cardinals as Cubs keep shining**\
+`Chicago had three players selected to the All-Star team, but the argument could be made that other Cubs deserved some love as well.`\
+https://nytimes.com/athletic/6477404/2025/07/07/cubs-matthew-boyd-all-star-dominates-cardinals/
+
+**West Ham fan survey results: 89% feel despondent for 2025-26 season**\
+`The results of our West Ham fan survey show a lack of optimism for new season and there is not much love for the ownership`\
+https://nytimes.com/athletic/6473194/2025/07/07/fan-survey-west-ham-results/
+
+**Leeds United's goalkeeper search: Perri and Zentner interest but net cast far and wide**\
+`Daniel Farke is on the hunt for a new No 1 - there is interest in goalkeepers in France and Germany `\
+https://nytimes.com/athletic/6475032/2025/07/07/leeds-united-goalkeeper-transfer-perri-zentner/
+
 **Australian Woman Is Convicted of Murder in Mushroom Poisoning Case**\
 `Three people died in 2023 after eating beef Wellington made by Erin Patterson, whose subsequent trial gripped the country.`\
 https://nytimes.com/2025/07/07/world/australia/mushroom-poisoning-trial-verdict.html
