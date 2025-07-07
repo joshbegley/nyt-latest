@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: U.S. Trading Partners Are on Edge as Tariff Deadline Nears**\
+``\
+https://nytimes.com/live/2025/07/07/us/trump-news
+
 **‘Hallmarks of Institutional Racism’ Found in Police Killing of Aboriginal Man**\
 `A coroner said that she could not exclude the possibility that an officer’s racist attitudes contributed to the death of Kumanjayi Walker in 2019.`\
 https://nytimes.com/2025/07/07/world/australia/kumanjayi-walker-racist-attitudes.html

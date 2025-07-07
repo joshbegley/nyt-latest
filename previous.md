@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6472412/2025/07/07/senators-yakemchuk-hensler-devel
 `What I'm watching for from Knicks players at the Las Vegas Summer League.`\
 https://nytimes.com/athletic/6476055/2025/07/07/nba-summer-league-preview-knicks/
 
-**Trump Administration Live Updates: Trading Partners on Edge as Tariff Deadline Nears**\
+**Trump Administration Live Updates: U.S. Trading Partners Are on Edge as Tariff Deadline Nears**\
 ``\
 https://nytimes.com/live/2025/07/07/us/trump-news
 
