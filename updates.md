@@ -1,3 +1,7 @@
+**OL Lyonnes sign USWNT’s Yohannes from Ajax**\
+`The 18-year-old has signed a three-year contract with the French club until 2028.`\
+https://nytimes.com/athletic/6477635/2025/07/07/ol-lyonnes-lily-yohannes-transfer/
+
 **Submit your questions for Pete Sampson's Notre Dame football mailbag**\
 `With power conference media days starting up and preseason camp around the corner, it's starting to feel like college football season.`\
 https://nytimes.com/athletic/6478392/2025/07/07/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag/
