@@ -1,3 +1,15 @@
+**Where every international NWSL player is competing this summer and how to watch**\
+`Every NWSL player competing in the three major continental tournaments this summer`\
+https://nytimes.com/athletic/6476934/2025/07/07/nwsl-players-euros-wafcon-copa-america/
+
+**Bears mailbag: Did they finally get it right with Ben Johnson, Caleb Williams?**\
+`Heading into training camp, what's on the minds of Bears fans? Did they finally get it right at coach and QB? Will Cole Kmet be traded?`\
+https://nytimes.com/athletic/6469553/2025/07/07/bears-mailbag-ben-johnson-caleb-williams-cole-kmet/
+
+**What's the best college football rivalry? We ranked the top 100**\
+`Rivalries form the backbone of college football. After months of research and debate, here's how the top 100 stack up.`\
+https://nytimes.com/athletic/6469306/2025/07/07/best-college-football-rivalries-rankings-100/
+
 **Hot-streak heroics, Kirk’s All-Star turnaround, Toronto’s draft plans: Blue Jays takeaways**\
 `Toronto sits two victories away from the franchise record for wins before the All-Star break, with six games to go.`\
 https://nytimes.com/athletic/6477018/2025/07/07/blue-jays-takeaways-alejandro-kirk-all-star-mlb-draft-plans/
