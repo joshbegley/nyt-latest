@@ -1,3 +1,11 @@
+**Tropical Storm Chantal Floods Parts of North Carolina**\
+`The storm, which made landfall on Sunday, caused significant flooding that closed roads and stranded drivers. It is heading northeast.`\
+https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-parts-of-north-carolina.html
+
+**What We Know About the Floods in Central Texas**\
+`At least 81 people, including more than two dozen children, died in the torrential downpour. Dozens more were still missing three days later.`\
+https://nytimes.com/2025/07/07/us/texas-floods-kerr-county.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/07/crosswords/spelling-bee-forum.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/07/todays-new-york-times
 **Britain’s Prime Minister Is Fading Away Before Our Eyes**\
 `After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
 https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
-
-**‘Too Much,’ Plus 7 Things on TV this Week**\
-`Lena Dunham’s new rom-com comes to Netflix, and two reality shows air.`\
-https://nytimes.com/2025/07/07/arts/television/too-much-plus-7-things-on-tv-this-week.html
-
-**USMNT's Gold Cup final defeat to Mexico a microcosm of its summer**\
-`A U.S. group missing some big names beat who it was supposed to, got exposed by a side with better quality and reset the program's standard`\
-https://nytimes.com/athletic/6477448/2025/07/07/usmnt-mexico-gold-cup-final-pochettino/
 

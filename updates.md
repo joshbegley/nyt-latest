@@ -1,3 +1,11 @@
+**Tropical Storm Chantal Floods Parts of North Carolina**\
+`The storm, which made landfall on Sunday, caused significant flooding that closed roads and stranded drivers. It is heading northeast.`\
+https://nytimes.com/2025/07/07/weather/tropical-storm-chantal-floods-parts-of-north-carolina.html
+
+**What We Know About the Floods in Central Texas**\
+`At least 81 people, including more than two dozen children, died in the torrential downpour. Dozens more were still missing three days later.`\
+https://nytimes.com/2025/07/07/us/texas-floods-kerr-county.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/07/crosswords/spelling-bee-forum.html
