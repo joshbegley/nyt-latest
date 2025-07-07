@@ -1,3 +1,7 @@
+**‘Hallmarks of Institutional Racism’ Found in Police Killing of Aboriginal Man**\
+`A coroner said that she could not exclude the possibility that an officer’s racist attitudes contributed to the death of Kumanjayi Walker in 2019.`\
+https://nytimes.com/2025/07/07/world/australia/kumanjayi-walker-racist-attitudes.html
+
 **New Deadlines, New Letters — Same Tariff Uncertainty**\
 `The Trump administration is keen to strike deals as it dangles an extension to trading partners. But it’s also issuing threats to some of them.`\
 https://nytimes.com/2025/07/07/business/dealbook/trump-tariff-deadline-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010270351/indonesia-volcano-ash-mount
 **The Athletic FC: USMNT fail again – what now? Plus: Arsenal eye Gyokeres, and Jimenez's touching Jota tribute**\
 `Today in TAFC: USMNT fall at final hurdle in Gold Cup, Arsenal transfers hot up with Gyokeres at top of list, and poignant farewell for Jota`\
 https://nytimes.com/athletic/6477625/2025/07/07/usmnt-mexico-gold-cup-arsenal-gyokeres/
-
-**Wilson to leave Newcastle after five seasons**\
-`The 33-year-old joined Newcastle in the summer of 2020 and scored 49 goals across in 130 appearances for the club.`\
-https://nytimes.com/athletic/6477731/2025/07/07/callum-wilson-leaves-newcastle/
 
