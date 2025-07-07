@@ -1,3 +1,7 @@
+**Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
+`Rescue efforts in Central Texas grew more desperate as the chance of finding survivors faded.`\
+https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
+
 **Planned Parenthood Wins a Temporary Injunction Over Medicaid Funding**\
 `The nonprofit is challenging a new law that bars its clinics from receiving federal money for any treatment, including birth control and checkups.`\
 https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html

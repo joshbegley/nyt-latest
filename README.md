@@ -1,3 +1,7 @@
+**A Day Before Trial, Alleged Accomplice of Alexander Brothers Is Cleared**\
+`Ohad Fisherman had been charged with sexual battery along with Oren and Alon Alexander stemming from an alleged 2016 assault.`\
+https://nytimes.com/2025/07/07/realestate/ohad-fisherman-alexander-brothers-case.html
+
 **Planned Parenthood Wins a Temporary Injunction Over Medicaid Funding**\
 `The nonprofit is challenging a new law that bars its clinics from receiving federal money for any treatment, including birth control and checkups.`\
 https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6479008/2025/07/07/tennis-sinner-dimitrov-wimbledon
 **Texas Floods Killed at Least 95 People**\
 `Also, Trump revived his tariff threats against close U.S. allies. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/07/07/briefing/texas-floods-death-toll-trump-tariffs.html
-
-**Leeds pushing to sign Newcastle midfielder Longstaff**\
-`Leeds have submitted an offer to their Premier League counterparts worth £10million plus £2million in add-ons for Longstaff.`\
-https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
 
