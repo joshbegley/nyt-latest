@@ -1,3 +1,7 @@
+**Laurie Metcalf to Star in ‘Little Bear Ridge Road’ on Broadway**\
+`The production, of a Samuel D. Hunter play that got strong reviews in Chicago, will be the first produced by Scott Rudin since news reports of his bullying behavior in 2021.`\
+https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
+
 **MLB’s latest gambling probe, explained**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6477509/2025/07/07/mlb-gambling-investigation-luis-ortiz-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/world/australia/kumanjayi-walker-racist-attitudes
 **New Deadlines, New Letters — Same Tariff Uncertainty**\
 `The Trump administration is keen to strike deals as it dangles an extension to trading partners. But it’s also issuing threats to some of them.`\
 https://nytimes.com/2025/07/07/business/dealbook/trump-tariff-deadline-trade.html
-
-**How hard is it to rank college football's best rivalries? These were the toughest calls**\
-`Separating college football's best rivalries is no easy task. Who got left out of our top 100 and how was the top 10 built?`\
-https://nytimes.com/athletic/6465585/2025/07/07/college-football-best-rivalries-debate-rankings/
 
