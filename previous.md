@@ -1,3 +1,11 @@
+**Here Are Trump’s New Tariff Threats**\
+`President Trump has told seven countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
+https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
+
+**Zohran Mamdani’s Foes Go to Unusual Lengths to Derail His Mayoral Hopes**\
+`After Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
+https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
+
 **Document Casts Doubt on White House’s Claims About Deported Venezuelans**\
 `The document from El Salvador seems to undermine a position that lawyers for the Justice Department and top Trump officials have taken time and again in front of a judge in Washington.`\
 https://nytimes.com/2025/07/07/us/politics/trump-venezuelans-un-el-salvador-cecot.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/us/caltech-simplilearn-settlement-bootcamp.html
 **Man Utd end talks over access-all-areas Amazon documentary**\
 `The decision was made to a significant extent because head coach Ruben Amorim made clear he was not comfortable with the proposal.`\
 https://nytimes.com/athletic/6477559/2025/07/07/manchester-united-amazon-documentary/
-
-**Barcelona Women announce Rolfo, Roebuck contract terminations**\
-`The club said it had reached agreements with both players to terminate their deals one year early.`\
-https://nytimes.com/athletic/6478780/2025/07/07/barcelona-rolfo-roebuck-exit/
-
-**European Commission’s Leader Faces No-Confidence Vote in Far-Right Challenge**\
-`Ahead of the vote on Thursday, Ursula von der Leyen, president of the commission, appeared before the European Parliament to defend herself against complaints about transparency.`\
-https://nytimes.com/2025/07/07/world/europe/von-der-leyen-no-confidence-vote.html
 

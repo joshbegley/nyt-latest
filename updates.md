@@ -1,3 +1,11 @@
+**Here Are Trump’s New Tariff Threats**\
+`President Trump has told seven countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
+https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
+
+**Zohran Mamdani’s Foes Go to Unusual Lengths to Derail His Mayoral Hopes**\
+`After Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
+https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
+
 **Document Casts Doubt on White House’s Claims About Deported Venezuelans**\
 `The document from El Salvador seems to undermine a position that lawyers for the Justice Department and top Trump officials have taken time and again in front of a judge in Washington.`\
 https://nytimes.com/2025/07/07/us/politics/trump-venezuelans-un-el-salvador-cecot.html
