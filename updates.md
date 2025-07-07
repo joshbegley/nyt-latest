@@ -1,3 +1,7 @@
+**Twins takeaways: With trade deadline looming, this team is in a tough spot**\
+`The Twins say they remain confident they can fix their self-made mess in time to avoid a roster teardown at the July 31 trade deadline.`\
+https://nytimes.com/athletic/6477104/2025/07/06/twins-takeaways-with-trade-deadline-looming-this-team-is-in-a-tough-spot/
+
 **Raul Jimenez delivers Diogo Jota tribute after scoring for Mexico vs USMNT**\
 `The pair were teammates at Wolves and remained close friends.`\
 https://nytimes.com/athletic/6477192/2025/07/06/jimenez-jota-usmnt-mexico-gold-cup/
