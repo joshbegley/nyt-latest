@@ -1,3 +1,7 @@
+**Quote of the Day: How Carroll Is Aging So Gracefully**\
+`Quotation of the Day for Monday, July 7, 2025.`\
+https://nytimes.com/2025/07/06/pageoneplus/quote-of-the-day-how-carroll-is-aging-so-gracefully.html
+
 **USMNT's Pochettino blasts Gold Cup final refereeing after Mexico handball controversy**\
 `The USMNT coach praised his players' performance and felt they suffered at the hands of the officials.`\
 https://nytimes.com/athletic/6477368/2025/07/06/pochettino-referee-usmnt-mexico-gold-cup-final-handball/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a
 **Trump Says Musk Is ‘Off the Rails’ With His Third-Party Effort**\
 `The tech billionaire’s effort to create a new political party, called the America Party, comes amid a ramped-up feud with the president over his new domestic policy law.`\
 https://nytimes.com/2025/07/06/us/politics/trump-musk-america-party.html
-
-**Raul Jimenez delivers Diogo Jota tribute after scoring for Mexico vs USMNT**\
-`The pair were teammates at Wolves and remained close friends.`\
-https://nytimes.com/athletic/6477192/2025/07/06/jimenez-jota-usmnt-mexico-gold-cup/
 
