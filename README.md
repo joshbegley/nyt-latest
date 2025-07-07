@@ -1,3 +1,15 @@
+**Matthew Boyd earns All-Star nod before dominating Cardinals as Cubs keep shining**\
+`Chicago had three players selected to the All-Star team, but the argument could be made that other Cubs deserved some love as well.`\
+https://nytimes.com/athletic/6477404/2025/07/07/cubs-matthew-boyd-all-star-dominates-cardinals/
+
+**West Ham fan survey results: 89% feel despondent for 2025-26 season**\
+`The results of our West Ham fan survey show a lack of optimism for new season and there is not much love for the ownership`\
+https://nytimes.com/athletic/6473194/2025/07/07/fan-survey-west-ham-results/
+
+**Leeds United's goalkeeper search: Perri and Zentner interest but net cast far and wide**\
+`Daniel Farke is on the hunt for a new No 1 - there is interest in goalkeepers in France and Germany `\
+https://nytimes.com/athletic/6475032/2025/07/07/leeds-united-goalkeeper-transfer-perri-zentner/
+
 **Australian Woman Is Convicted of Murder in Mushroom Poisoning Case**\
 `Three people died in 2023 after eating beef Wellington made by Erin Patterson, whose subsequent trial gripped the country.`\
 https://nytimes.com/2025/07/07/world/australia/mushroom-poisoning-trial-verdict.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6473133/2025/07/07/juan-mata-interview-rashford-man
 **The steepest of stands, a faith room and 747 toilets: Behind the scenes at Everton's new £800m stadium**\
 `Everton's new home on the banks of the River Mersey is almost complete - The Athletic has been for a guided tour`\
 https://nytimes.com/athletic/6473568/2025/07/07/evertons-new-800m-stadium-behind-scenes/
-
-**At what cost? Saudi Arabia and soccer**\
-`A podcast special from The Athletic exploring Saudi Arabia's influence on two key tournaments in the U.S. this summer — on and off the pitch`\
-https://nytimes.com/athletic/6468517/2025/07/07/at-what-cost-saudi-arabia-and-soccer/
-
-**What can the Club World Cup tell us about the strength of leagues around the world?**\
-`Just how good is the Brazilian top flight? Is the Saudi domestic game improving or is there still a huge gulf in quality between its clubs?`\
-https://nytimes.com/athletic/6474034/2025/07/07/what-can-club-world-cup-tell-us-leagues-strength/
-
-**Can Taiwan Really Disconnect Its Economy From China?**\
-`Momentum is building in Taiwan to lessen its business dependency on China, its biggest trading partner. Doing so will not be easy.`\
-https://nytimes.com/2025/07/07/business/china-taiwan-chips.html
 

@@ -1,3 +1,15 @@
+**Australian Woman Is Convicted of Murder in Mushroom Poisoning Case**\
+`Three people died in 2023 after eating beef Wellington made by Erin Patterson, whose subsequent trial gripped the country.`\
+https://nytimes.com/2025/07/07/world/australia/mushroom-poisoning-trial-verdict.html
+
+**Real Madrid are using Valverde to protect Alexander-Arnold - how will that go against PSG?**\
+`Madrid have been solid throughout the Club World Cup but face Kvaratskhelia, Doue and co next. It's poised to be a tactical battle`\
+https://nytimes.com/athletic/6476803/2025/07/07/alexander-arnold-valverde-real-madrid-psg/
+
+**Viktor Gyokeres is a battering ram of a striker with an absurd scoring record. Is he what Arsenal need?**\
+`With Arsenal in advanced talks to sign Gyokeres, we analyse his strengths and style, and how it might work out for him in the Premier League`\
+https://nytimes.com/athletic/6423793/2025/07/07/gyokeres-arsenal-transfer-style-analysis/
+
 **Liverpool are a club in mourning. How can they think about football again?**\
 `Arne Slot faces an onerous task in managing a squad still struggling to process the death of their team-mate Diogo Jota`\
 https://nytimes.com/athletic/6474815/2025/07/07/liverpool-diogo-jota-football/
