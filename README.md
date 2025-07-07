@@ -1,3 +1,11 @@
+**MLB’s latest gambling probe, explained**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6477509/2025/07/07/mlb-gambling-investigation-luis-ortiz-the-windup/
+
+**Flavio Cobolli is a rising Italian tennis talent — who could have played for Roma**\
+`The 23-year-old had an inconsistent start to 2025, but the biggest title of his career to date was a spur to the Wimbledon quarterfinals.`\
+https://nytimes.com/athletic/6381211/2025/07/07/tennis-flavio-cobolli-italy-footballer-as-roma/
+
 **Red Light: Decoding the NHL's dog days. Plus: Mitch Marner's weirdest league record**\
 `Let’s just say we’re officially into the NHL’s slow period. Here's what's still unsettled.`\
 https://nytimes.com/athletic/6477945/2025/07/07/red-light-newsletter-nhl-offseason-snoozefest/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/business/dealbook/trump-tariff-deadline-trade.htm
 **How hard is it to rank college football's best rivalries? These were the toughest calls**\
 `Separating college football's best rivalries is no easy task. Who got left out of our top 100 and how was the top 10 built?`\
 https://nytimes.com/athletic/6465585/2025/07/07/college-football-best-rivalries-debate-rankings/
-
-**Projecting the Blackhawks' 2025-26 lineup, line by line and pair by pair**\
-`There are plenty of young prospects ready to earn NHL ice time, but where does everyone fit best based on what we know now?`\
-https://nytimes.com/athletic/6472882/2025/07/07/chicago-blackhawks-lineup-projection-frondell-rinzel/
-
-**How much better does the Senators' pipeline look after the 2025 NHL draft?**\
-`The Athletic caught up with Senators prospects and scouting staff during last week's development camp.`\
-https://nytimes.com/athletic/6472412/2025/07/07/senators-yakemchuk-hensler-development-camp/
 
