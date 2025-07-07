@@ -1,3 +1,11 @@
+**N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
+`Saniyah Cheatham is said to have hanged herself early Saturday morning after she was arrested. Friends said she had been in good spirits a day earlier.`\
+https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
+
+**A Hotel Made Famous by Graham Greene Is a Victim of Haiti’s Violence**\
+`Haiti’s famed Oloffson Hotel, a cultural landmark and celebrity haven, was incinerated amid rising violence by gangs that control most of the country’s capital.`\
+https://nytimes.com/2025/07/07/world/americas/haiti-oloffson-hotel-fire-port-au-prince.html
+
 **Franklin W. Stahl, 95, Dies; Helped Create a ‘Beautiful’ DNA Experiment**\
 `He and a colleague proved a theory advanced by the Nobel Prize winners James Watson and Francis Crick, who discovered DNA’s helical structure.`\
 https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schli
 **Here Are Trump’s New Tariff Threats**\
 `President Trump has told 14 countries that they will face tariffs of at least 25 percent on Aug. 1 if they don’t reach agreements by then.`\
 https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
-
-**After Mamdani’s Win, Some Democrats Are Determined to Stop Him**\
-`Though Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
-https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
-
-**Document Casts Doubt on White House’s Claims About Deported Venezuelans**\
-`The document from El Salvador seems to undermine a position that lawyers for the Justice Department and top Trump officials have taken time and again in front of a judge in Washington.`\
-https://nytimes.com/2025/07/07/us/politics/trump-venezuelans-un-el-salvador-cecot.html
 

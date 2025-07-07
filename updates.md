@@ -1,3 +1,19 @@
+**Franklin W. Stahl, 95, Dies; Helped Create a ‘Beautiful’ DNA Experiment**\
+`He and a colleague proved a theory advanced by the Nobel Prize winners James Watson and Francis Crick, who discovered DNA’s helical structure.`\
+https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
+
+**U.S. Will Try to Deport Abrego Garcia Before He Faces Trial, Justice Dept. Says**\
+`The plan directly contradicted the White House, which last month described as “fake news” reports of plans to re-deport Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/07/07/us/politics/kilmar-abrego-garcia-trump-deport.html
+
+**As Renewed U.S. Tariffs Loom, Emerging Economies Turn to One Another**\
+`As President Trump prepares to revive tariffs this week, some of the world’s biggest exporters are planning a future less dependent on trade with the United States.`\
+https://nytimes.com/2025/07/07/world/trump-tariffs-global-trade-economy.html
+
+**Wimbledon day 8: Unexpected injury retirements all over the All England Club**\
+`A body shot in tennis usually comes from an opponent, but one Wimbledon competitor had to retire injured because of their partner.`\
+https://nytimes.com/athletic/6477884/2025/07/07/wimbledon-recap-tennis-results-news-day-8/
+
 **Wimbledon day 8 Unexpected injury retirements all over the All England Club**\
 `A body shot in tennis usually comes from an opponent, but one Wimbledon competitor had to retire injured because of their partner.`\
 https://nytimes.com/athletic/6477884/2025/07/07/wimbledon-recap-tennis-results-news-day-8/
