@@ -1,3 +1,7 @@
+**Wimbledon day 8 Unexpected injury retirements all over the All England Club**\
+`A body shot in tennis usually comes from an opponent, but one Wimbledon competitor had to retire injured because of their partner.`\
+https://nytimes.com/athletic/6477884/2025/07/07/wimbledon-recap-tennis-results-news-day-8/
+
 **Tuesday Briefing: Trump’s New Tariff Threats**\
 `Plus, the beautiful chaos of Rio’s beaches.`\
 https://nytimes.com/2025/07/07/briefing/tariffs-japan-south-korea-texas-floods-israel-gaza-iran.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6478769/2025/07/07/mlb-prospects-scouting-cam-schli
 https://nytimes.com/2025/07/07/business/trump-tariffs-trade-deals-august-1.html
 
 **After Mamdani’s Win, Some Democrats Are Determined to Stop Him**\
-`After Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
+`Though Mr. Mamdani scored a resounding victory in New York City’s Democratic primary, some in his own party are strategizing about how to defeat him in November.`\
 https://nytimes.com/2025/07/07/nyregion/mamdani-cuomo-adams-democrats.html
 
 **Document Casts Doubt on White House’s Claims About Deported Venezuelans**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/us/politics/elon-musk-third-party.html
 **After Cam York contract, are the Flyers done for the offseason?**\
 `If GM Daniel Briere is done for the summer, he's seemingly accomplished what he consistently said he set out to do.`\
 https://nytimes.com/athletic/6478598/2025/07/07/cam-york-flyers-contract-offseason/
-
-**Newcastle reach agreement with Nottingham Forest for Elanga signing**\
-`A deal consisting of an initial fee of £52million ($70.7m) plus bonuses that are considered difficult to reach has been agreed`\
-https://nytimes.com/athletic/6473040/2025/07/07/newcastle-anthony-elanga-nottingham-forest-transfer/
 
