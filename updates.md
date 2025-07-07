@@ -1,3 +1,7 @@
+**Britain’s Prime Minister Is Fading Away Before Our Eyes**\
+`After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
+https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
+
 **Word of the Day: whimsical**\
 `This word has appeared in 243 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/07/learning/word-of-the-day-whimsical.html

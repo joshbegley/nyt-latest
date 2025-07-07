@@ -18,13 +18,13 @@ https://nytimes.com/2025/07/07/briefing/texas-floods-israel-washington-dalai-lam
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/07/todays-new-york-times
 
+**Britain’s Prime Minister Is Fading Away Before Our Eyes**\
+`After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
+https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
+
 **‘Too Much,’ Plus 7 Things on TV this Week**\
 `Lena Dunham’s new rom-com comes to Netflix, and two reality shows air.`\
 https://nytimes.com/2025/07/07/arts/television/too-much-plus-7-things-on-tv-this-week.html
-
-**Britain’s Prime Minister Is Fading Away**\
-`After a year in power, Keir Starmer appears to be losing not just political weight but material substance, too.`\
-https://nytimes.com/2025/07/07/opinion/keir-starmer-britain-government.html
 
 **USMNT's Gold Cup final defeat to Mexico a microcosm of its summer**\
 `A U.S. group missing some big names beat who it was supposed to, got exposed by a side with better quality and reset the program's standard`\
