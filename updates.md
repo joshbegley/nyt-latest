@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/07/crosswords/spelling-bee-forum.html
+
 **Tropical Storm Chantal Soaks North Carolina**\
 `Heavy rains from Tropical Storm Chantal flooded homes and streets as it pushed into central North Carolina.`\
 https://nytimes.com/video/us/100000010270201/tropical-storm-chantal-floods-parts-of-north-carolina.html
