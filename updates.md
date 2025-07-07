@@ -1,3 +1,11 @@
+**Erick Fedde falters again in 'ugly' loss to Cubs as Cardinals debate rotation changes**\
+`St. Louis posted its sixth shutout defeat in its last 11 games and fell to 6 1/2 games back in the division`\
+https://nytimes.com/athletic/6477257/2025/07/07/erick-fedde-cardinals-cubs/
+
+**The Future Looks Dark, but Familiar, in Gary Shteyngart’s New Book**\
+`“Vera, or Faith” follows a 10-year-old girl navigating family drama and a dystopian America.`\
+https://nytimes.com/2025/07/07/books/review/gary-shteyngart-vera-or-faith.html
+
 **Man Who Opened Fire on Border Patrol Building in Texas Is Fatally Shot**\
 `The man, who was armed with an assault rifle, opened fire on the building in McAllen, Texas, on Monday and was shot dead by federal officers, the police said.`\
 https://nytimes.com/2025/07/07/us/mcallen-airport-shooter-border-patrol.html
