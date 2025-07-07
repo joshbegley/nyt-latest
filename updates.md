@@ -1,3 +1,15 @@
+**Newcastle reach agreement with Nottingham Forest for Elanga signing**\
+`A deal consisting of an initial fee of £52million plus bonuses that are considered difficult to reach has been agreed`\
+https://nytimes.com/athletic/6473040/2025/07/07/newcastle-anthony-elanga-nottingham-forest-transfer/
+
+**Trump and Netanyahu Expected to Discuss Prospects of Gaza Cease-Fire**\
+`The private dinner between the two leaders on Monday marks Prime Minister Benjamin Netanyahu’s third visit to Washington this year.`\
+https://nytimes.com/2025/07/07/us/politics/trump-netanyahu-dinner-gaza-cease-fire.html
+
+**Caltech Agrees to Settle Lawsuit Accusing It of Misleading Students**\
+`A student who paid thousands for a tech boot camp said it was “a Caltech program in name only.”`\
+https://nytimes.com/2025/07/07/us/caltech-simplilearn-settlement-bootcamp.html
+
 **Man Utd end talks over access-all-areas Amazon documentary**\
 `The decision was made to a significant extent because head coach Ruben Amorim made clear he was not comfortable with the proposal.`\
 https://nytimes.com/athletic/6477559/2025/07/07/manchester-united-amazon-documentary/

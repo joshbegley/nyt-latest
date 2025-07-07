@@ -1,5 +1,21 @@
+**Document Casts Doubt on White House’s Claims About Deported Venezuelans**\
+`The document from El Salvador seems to undermine a position that lawyers for the Justice Department and top Trump officials have taken time and again in front of a judge in Washington.`\
+https://nytimes.com/2025/07/07/us/politics/trump-venezuelans-un-el-salvador-cecot.html
+
+**Grigor Dimitrov forced to retire hurt one set from beating Jannik Sinner at Wimbledon**\
+`Dimitrov led by two sets to love when he injured his right pectoral muscle hitting a serve.`\
+https://nytimes.com/athletic/6478940/2025/07/07/tennis-wimbledon-dimitrov-injured-sinner-result/
+
+**It’s Hard to Create a Third Party, Even for Elon Musk**\
+`Building a viable new political party to rival the Democrats and Republicans is enormously difficult and expensive. Small wonder it hasn’t been done.`\
+https://nytimes.com/2025/07/07/us/politics/elon-musk-third-party.html
+
+**After Cam York contract, are the Flyers done for the offseason?**\
+`If GM Daniel Briere is done for the summer, he's seemingly accomplished what he consistently said he set out to do.`\
+https://nytimes.com/athletic/6478598/2025/07/07/cam-york-flyers-contract-offseason/
+
 **Newcastle reach agreement with Nottingham Forest for Elanga signing**\
-`A deal consisting of an initial fee of £52million plus bonuses that are considered difficult to reach has been agreed`\
+`A deal consisting of an initial fee of £52million ($70.7m) plus bonuses that are considered difficult to reach has been agreed`\
 https://nytimes.com/athletic/6473040/2025/07/07/newcastle-anthony-elanga-nottingham-forest-transfer/
 
 **Trump and Netanyahu Expected to Discuss Prospects of Gaza Cease-Fire**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6478780/2025/07/07/barcelona-rolfo-roebuck-exit/
 **European Commission’s Leader Faces No-Confidence Vote in Far-Right Challenge**\
 `Ahead of the vote on Thursday, Ursula von der Leyen, president of the commission, appeared before the European Parliament to defend herself against complaints about transparency.`\
 https://nytimes.com/2025/07/07/world/europe/von-der-leyen-no-confidence-vote.html
-
-**This is Spain 2.0: More purposeful, more direct and simply better than two years ago**\
-`At Euro 2025 the world champions are producing a cohesive and sophisticated style that was unthinkable in the women's game a decade ago`\
-https://nytimes.com/athletic/6478777/2025/07/07/spain-euros-direct-belgium/
-
-**Russian Maestro, Shunned in West Over Putin Support, Will Conduct in Italy**\
-`Valery Gergiev, an ally of Vladimir V. Putin, is set to conduct in Western Europe for the first time since institutions there cut ties over Russia’s invasion of Ukraine.`\
-https://nytimes.com/2025/07/07/arts/music/valery-gergiev-italy-festival.html
-
-**Trump Administration Acknowledges Lack of Evidence From Epstein Documents**\
-`After Attorney General Pam Bondi promised big revelations for months, the Justice Department noted a lack of evidence for conspiracy theories, including a “client list” and a jailhouse murder.`\
-https://nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html
-
-**Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
-`Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
-https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
 
