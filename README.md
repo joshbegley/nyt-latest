@@ -1,3 +1,15 @@
+**Why is Everyone Watching ‘Love Island USA?’**\
+`It’s the pop culture obsession of the summer. The show draws viewers in with steamy drama and over-the-top challenges. But what’s more surprising is how it’s bringing viewers together.`\
+https://nytimes.com/2025/07/07/style/why-is-everyone-watching-love-island-usa.html
+
+**Gueye signs new Everton contract**\
+`Gueye, 35, played a key role as Everton escaped the relegation zone and secured a 13th-placed Premier League finish under David Moyes.`\
+https://nytimes.com/athletic/6473374/2025/07/07/everton-gueye-contract-new/
+
+**As Avignon Festival Turns to Dance, It Trips Up Some Onlookers**\
+`The festival opener “Nôt,” from Marlene Monteiro Freitas, drew both boos and applause. Elsewhere, for Anne Teresa De Keersmaeker, the spectacle was kept to the stage.`\
+https://nytimes.com/2025/07/07/arts/avignon-festival-dance-freitas-de-keersmaeker.html
+
 **At a Small School in the Bronx, Classical Music Thrives**\
 `Students receive free lessons and instruments — and a serious introduction to musical traditions of all sorts. `\
 https://nytimes.com/card/2025/07/07/nyregion/upstartnyc
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6477257/2025/07/07/erick-fedde-cardinals-cubs/
 **The Future Looks Dark, but Familiar, in Gary Shteyngart’s New Book**\
 `“Vera, or Faith” follows a 10-year-old girl navigating family drama and a dystopian America.`\
 https://nytimes.com/2025/07/07/books/review/gary-shteyngart-vera-or-faith.html
-
-**Man Who Opened Fire on Border Patrol Building in Texas Is Fatally Shot**\
-`The man, who was armed with an assault rifle, opened fire on the building in McAllen, Texas, on Monday and was shot dead by federal officers, the police said.`\
-https://nytimes.com/2025/07/07/us/mcallen-airport-shooter-border-patrol.html
-
-**Tesla Stock Dives as Elon Musk Plans New Political Party**\
-`Mr. Musk’s involvement in politics was once seen by investors as a benefit to Tesla. Not anymore.`\
-https://nytimes.com/2025/07/07/business/tesla-stock-elon-musk-america-party.html
 
