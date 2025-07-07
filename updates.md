@@ -1,3 +1,15 @@
+**Scoop City: 2025 NFC South preview**\
+`Key questions, breakout players and positions to watch in the AFC East, plus expected win totals for each team.`\
+https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
+
+**Nationals name Miguel Cairo interim manager**\
+`A day after the Nationals fired their manager and GM, they named Cairo as the interim manager.`\
+https://nytimes.com/athletic/6478652/2025/07/07/washington-nationals-miguel-cairo-interim-manager/
+
+**Trade grades: Norman Powell bolsters Heat offense as Clippers take new path**\
+`With Norman Powell in the fold, the Heat upgrade their offense. The Clippers try something new while Utah further leans into tanking`\
+https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-clippers-nba-free-agency/
+
 **Trade grades: Norman Powell bolsters Heat offense as Clippers take new path**\
 `With Norman Powell in the fold, the Heat upgrade their offense. The Clippers try something new while Utah further leans into tanking`\
 https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-john-collins-clippers-kevin-love-jazz-kyle-anderson-nba-free-agency/

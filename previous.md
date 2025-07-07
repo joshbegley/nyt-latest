@@ -1,6 +1,14 @@
+**Scoop City: 2025 NFC South preview**\
+`Key questions, breakout players and positions to watch in the AFC East, plus expected win totals for each team.`\
+https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
+
+**Nationals name Miguel Cairo interim manager**\
+`A day after the Nationals fired their manager and GM, they named Cairo as the interim manager.`\
+https://nytimes.com/athletic/6478652/2025/07/07/washington-nationals-miguel-cairo-interim-manager/
+
 **Trade grades: Norman Powell bolsters Heat offense as Clippers take new path**\
 `With Norman Powell in the fold, the Heat upgrade their offense. The Clippers try something new while Utah further leans into tanking`\
-https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-john-collins-clippers-kevin-love-jazz-kyle-anderson-nba-free-agency/
+https://nytimes.com/athletic/6478253/2025/07/07/norman-powell-heat-clippers-nba-free-agency/
 
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Hope everyone is having a great summer and playing as much golf as Hugh Freeze.</p>
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6477933/2025/07/07/fantasy-baseball-the-bat-x-shota
 **Read Trump’s letter to the president of South Korea.**\
 `(No description)`\
 https://nytimes.com/live/2025/07/07/us/trump-news/read-trumps-letter-to-the-president-of-south-korea
-
-**In Texas, Another Tragic Warning on Climate Change**\
-`Readers react to the unfolding flooding disaster in Texas. Also: Empathy for immigrants; anticipating the 250th anniversary of the United States.`\
-https://nytimes.com/2025/07/07/opinion/texas-floods-climate-change.html
-
-**Tour de France stage three: Tim Merlier victorious on crash-marred day as green jersey Philipsen abandons**\
-`Analysis of the third stage of the 2025 Tour de France, which took the riders from Valenciennes to Dunkerque`\
-https://nytimes.com/athletic/6477870/2025/07/07/tour-de-france-stage-three-analysis/
 

@@ -1,3 +1,19 @@
+**Shane van Gisbergen shows Trackhouse made the right call with Daniel Suárez**\
+`Suárez is great for NASCAR. But with van Gisbergen close to a lock on road courses — and a playoff spot — Trackhouse had to move on.`\
+https://nytimes.com/athletic/6478255/2025/07/07/shane-van-gisbergen-trackhouse-racing-daniel-suarez-2026/
+
+**At Essence Fest, Fashion Didn’t Miss a Beat**\
+`In tiaras, cowboy boots and thrifted T-shirts, festivalgoers used style to celebrate identity, joy and community.`\
+https://nytimes.com/2025/07/07/style/essence-fest-new-orleans-fashion.html
+
+**A Bradley Beal buyout is looming: What I'm hearing about the Suns guard's future**\
+`As he considers his next steps, the list of teams Beal has thought about includes the Clippers, Lakers, Warriors and Bucks.`\
+https://nytimes.com/athletic/6478558/2025/07/07/bradley-beal-buyout-suns-nba/
+
+**Increasingly Acidic Seas Threaten Oyster Farming**\
+`Researchers and hatcheries are exploring new ways to protect shellfish in the Pacific Northwest, although Trump budget cuts may thwart their efforts.`\
+https://nytimes.com/2025/07/07/science/oysters-farming-acidic-ocean-climate-change.html
+
 **Scoop City: 2025 NFC South preview**\
 `Key questions, breakout players and positions to watch in the AFC East, plus expected win totals for each team.`\
 https://nytimes.com/athletic/6478575/2025/07/07/nfl-preview-2025-nfc-south-panthers-buccaneers-saints-falcons-scoop-city/
@@ -23,20 +39,4 @@ https://nytimes.com/interactive/2025/07/07/us/texas-flooding-map-guadalupe-river
 **Former PSG midfielder Verratti joins Al-Duhail from Al-Arabi**\
 `Verratti followed Lionel Messi, Neymar and Sergio Ramos by exiting Paris Saint-Germain in 2023, joining Qatari side Al-Arabi.`\
 https://nytimes.com/athletic/6302488/2025/07/07/former-psg-midfielder-marco-verratti-joins-al-duhail-from-qatari-rivals-al-arabi/
-
-**Iran Carries Out Mass Expulsion of Afghan Refugees**\
-`About 800,000 people have been deported to Afghanistan, a desperately poor country, under an Iranian campaign that accelerated sharply in June.`\
-https://nytimes.com/2025/07/07/world/middleeast/iran-afghan-refugees-deportations.html
-
-**What Pochettino and USMNT players learned about each other at the Gold Cup**\
-`The Gold Cup was Mauricio Pochettino's first and only tournament dress rehearsal before the World Cup. So how did he grade out?`\
-https://nytimes.com/athletic/6478129/2025/07/07/mauricio-pochettino-gold-cup-first-tournament-usmnt-players/
-
-**Fantasy baseball cheat sheet: Bench Shota Imanaga vs. Yankees and more THE BAT X insights**\
-`THE BAT X thinks Mike Trout's value will improve in the second half of the season and highlights reliever Bryan King as a streamer. `\
-https://nytimes.com/athletic/6477933/2025/07/07/fantasy-baseball-the-bat-x-shota-imanaga/
-
-**Read Trump’s letter to the president of South Korea.**\
-`(No description)`\
-https://nytimes.com/live/2025/07/07/us/trump-news/read-trumps-letter-to-the-president-of-south-korea
 
