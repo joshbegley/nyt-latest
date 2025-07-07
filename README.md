@@ -1,3 +1,11 @@
+**Fantasy baseball cheat sheet: Bench Shota Imanaga vs. Yankees and more THE BAT X insights**\
+`THE BAT X thinks Mike Trout's value will improve in the second half of the season and highlights reliever Bryan King as a streamer. `\
+https://nytimes.com/athletic/6477933/2025/07/07/fantasy-baseball-the-bat-x-shota-imanaga/
+
+**Read Trump’s letter to the president of South Korea.**\
+`(No description)`\
+https://nytimes.com/live/2025/07/07/us/trump-news/read-trumps-letter-to-the-president-of-south-korea
+
 **In Texas, Another Tragic Warning on Climate Change**\
 `Readers react to the unfolding flooding disaster in Texas. Also: Empathy for immigrants; anticipating the 250th anniversary of the United States.`\
 https://nytimes.com/2025/07/07/opinion/texas-floods-climate-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477635/2025/07/07/ol-lyonnes-lily-yohannes-transfe
 **Submit your questions for Pete Sampson's Notre Dame football mailbag**\
 `With power conference media days starting up and preseason camp around the corner, it's starting to feel like college football season.`\
 https://nytimes.com/athletic/6478392/2025/07/07/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag/
-
-**Nottingham Forest confirm Edu as new global head of football**\
-`The club said the newly-established role will see Edu oversee all football activity at the City Ground.`\
-https://nytimes.com/athletic/5897169/2025/07/07/edu-nottingham-forest-global-head-of-football-arsenal/
-
-**Live Q&A with Yankees writer Brendan Kuty on Wednesday: Submit questions**\
-`Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
-https://nytimes.com/athletic/6478364/2025/07/07/yankees-live-qa-submit-questions/
 
