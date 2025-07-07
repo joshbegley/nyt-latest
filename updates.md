@@ -1,3 +1,11 @@
+**What I'm hearing about the Penguins' Bryan Rust, Rickard Rakell trade considerations**\
+`Teams around the NHL continue to show heavy interest in Rust and Rakell. `\
+https://nytimes.com/athletic/6478036/2025/07/07/penguins-bryan-rust-rickard-rakell-trade-rumors/
+
+**Can You Match These Snarky Lines to Their Books?**\
+`Literature is full of bold observations. See if you can match these five quotations to their sources.`\
+https://nytimes.com/interactive/2025/07/07/books/review/snarky-book-quotes.html
+
 **Transfers TLDR: Martin Zubimendi to Arsenal - all you need to know**\
 `The Spanish midfielder's move to the Emirates Stadium from Real Sociedad has been confirmed – this is everything you need to know...`\
 https://nytimes.com/athletic/6439985/2025/07/07/martin-zubimendi-to-arsenal-transfers-tldr/
