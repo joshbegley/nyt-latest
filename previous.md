@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6476970/2025/07/07/vancouver-canucks-mailbag-drance
 `The case challenges the Trump administration’s targeting of noncitizen student activists for arrest and deportation on First Amendment grounds.`\
 https://nytimes.com/2025/07/07/us/politics/trump-trial-free-speech-student-crackdowns.html
 
-**Laurie Metcalf to Star in ‘Little Bear Ridge Road’ on Broadway**\
-`The production, of a Samuel D. Hunter play that got strong reviews in Chicago, will be the first produced by Scott Rudin since news reports of his bullying behavior in 2021.`\
+**Laurie Metcalf to Star in Broadway Play Produced by Scott Rudin**\
+`The production, of the Samuel D. Hunter play “Little Bear Ridge Road” that got strong reviews in Chicago will be the first produced by Rudin since news reports of his bullying behavior in 2021.`\
 https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
 
 **MLB’s latest gambling probe, explained**\

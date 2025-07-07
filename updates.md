@@ -1,3 +1,7 @@
+**Laurie Metcalf to Star in Broadway Play Produced by Scott Rudin**\
+`The production, of the Samuel D. Hunter play “Little Bear Ridge Road” that got strong reviews in Chicago will be the first produced by Rudin since news reports of his bullying behavior in 2021.`\
+https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
+
 **Sudan soccer league returns despite ongoing Civil War**\
 `The eight-team, month-long Sudan Elite League will take place to determine the Sudanese clubs playing continental football in 2025-26.`\
 https://nytimes.com/athletic/6478044/2025/07/07/sudan-civil-war-football-league-africa/
