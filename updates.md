@@ -1,3 +1,15 @@
+**Likelihood of Finding Texas Flood Survivors Fades as Death Toll Passes 100**\
+`The surging waters began tearing through Central Texas four days ago. A rescue expert said that people who survive a violent flood are usually found rapidly.`\
+https://nytimes.com/2025/07/07/us/texas-floods-search-rescue-survivors.html
+
+**Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\
+`Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
+https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html
+
+**Giants All-Star Randy Rodríguez is a development success. What that means for the organization**\
+`Rodríguez's improvement with his command has vaulted him into All-Star status. Can his improvement be replicated with others in the org.?`\
+https://nytimes.com/athletic/6478577/2025/07/07/randy-rodriguez-giants-pitching-development/
+
 **Three Big Questions After the Texas Floods**\
 `The Trump administration and its predecessors will face scrutiny over the disaster that has killed more than 100 people.`\
 https://nytimes.com/2025/07/07/us/politics/texas-floods-trump-administration.html
