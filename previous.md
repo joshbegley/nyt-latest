@@ -35,6 +35,6 @@ https://nytimes.com/2025/07/07/science/franklin-w-stahl-dead.html
 https://nytimes.com/2025/07/07/us/politics/kilmar-abrego-garcia-trump-deport.html
 
 **As Renewed U.S. Tariffs Loom, Emerging Economies Turn to One Another**\
-`As President Trump prepares to revive tariffs this week, some of the world’s biggest exporters are planning a future less dependent on trade with the United States.`\
-https://nytimes.com/2025/07/07/world/trump-tariffs-global-trade-economy.html
+`With President Trump preparing to revive tariffs this week, some of the world’s biggest exporters are planning a future less dependent on trade with the United States.`\
+https://nytimes.com/2025/07/07/world/americas/trump-tariffs-global-trade-economy.html
 
