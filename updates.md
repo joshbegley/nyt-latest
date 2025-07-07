@@ -1,3 +1,11 @@
+**Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\
+`Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
+https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html
+
+**Tropical Depression Chantal Floods Central North Carolina**\
+`Authorities said that there was at least one storm-related death in North Carolina.`\
+https://nytimes.com/video/weather/100000010271901/tropical-depression-chantal-floods-central-north-carolina.html
+
 **N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
 `Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested in an assault case. Friends said she had been in good spirits a day before.`\
 https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
