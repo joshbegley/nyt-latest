@@ -1,3 +1,7 @@
+**Trial Over Free Speech on Campus, and Trump’s Student Crackdown, Begins**\
+`The case challenges the Trump administration’s targeting of noncitizen student activists for arrest and deportation on First Amendment grounds.`\
+https://nytimes.com/2025/07/07/us/politics/trump-trial-free-speech-student-crackdowns.html
+
 **Laurie Metcalf to Star in ‘Little Bear Ridge Road’ on Broadway**\
 `The production, of a Samuel D. Hunter play that got strong reviews in Chicago, will be the first produced by Scott Rudin since news reports of his bullying behavior in 2021.`\
 https://nytimes.com/2025/07/07/theater/laurie-metcalf-broadway-little-bear-ridge-road.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/pageoneplus/no-corrections-july-7-2025.html
 **‘Hallmarks of Institutional Racism’ Found in Police Killing of Aboriginal Man**\
 `A coroner said that she could not exclude the possibility that an officer’s racist attitudes contributed to the death of Kumanjayi Walker in 2019.`\
 https://nytimes.com/2025/07/07/world/australia/kumanjayi-walker-racist-attitudes.html
-
-**New Deadlines, New Letters — Same Tariff Uncertainty**\
-`The Trump administration is keen to strike deals as it dangles an extension to trading partners. But it’s also issuing threats to some of them.`\
-https://nytimes.com/2025/07/07/business/dealbook/trump-tariff-deadline-trade.html
 
