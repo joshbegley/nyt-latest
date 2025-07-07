@@ -1,3 +1,11 @@
+**Stanway: England loss to France 'like a bad night out you want to forget'**\
+`The midfielder added that England are looking to 'put things right' against the Netherlands in their second Euro 2025 match on Wednesday.`\
+https://nytimes.com/athletic/6478147/2025/07/07/euro-2025-england-france-netherlands-stanway/
+
+**Why is Everyone Watching ‘Love Island USA?’**\
+`It’s the pop culture obsession of the summer. The show draws viewers in with steamy drama and over-the-top challenges. But what’s more surprising is how it’s bringing viewers together.`\
+https://nytimes.com/2025/07/07/style/love-island-usa.html
+
 **Why is Everyone Watching ‘Love Island USA?’**\
 `It’s the pop culture obsession of the summer. The show draws viewers in with steamy drama and over-the-top challenges. But what’s more surprising is how it’s bringing viewers together.`\
 https://nytimes.com/2025/07/07/style/why-is-everyone-watching-love-island-usa.html
