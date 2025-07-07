@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Trading Partners on Edge as Tariff Deadline Nears**\
+``\
+https://nytimes.com/live/2025/07/07/us/trump-news
+
+**Typhoon Danas Strikes Taiwan**\
+`The storm left hundreds of thousands of homes without power and crushed the gate of a well-known temple in southwest Taiwan.`\
+https://nytimes.com/video/world/asia/100000010270274/typhoon-danas-strikes-taiwan.html
+
 **Southampton set to sign USMNT striker Downs from Koln**\
 `The move is subject to a medical for the 21-year old, who was a second-half substitute in USMNT's Gold Cup final loss to Mexico on Sunday.`\
 https://nytimes.com/athletic/6473084/2025/07/07/usmnts-damion-downs-set-to-join-southampton-in-e8m-transfer-from-koln/
