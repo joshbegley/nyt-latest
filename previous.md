@@ -1,3 +1,7 @@
+**AJ Dybantsa, potential No. 1 NBA pick in 2026, leads U.S. to gold: Takeaways**\
+`Incoming BYU star shines at the FIBA U19 World Cup, but tournament shows that his draft class is stacked.`\
+https://nytimes.com/athletic/6477044/2025/07/06/aj-dybantsa-mvp-fiba-u19-world-cup/
+
 **Dallas church draws 600 to a service for the Texas flooding victims.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
@@ -22,8 +26,8 @@ https://nytimes.com/2025/07/06/podcasts/my-summer-self-this-american-life-nyt-au
 `The Twins say they remain confident they can fix their self-made mess in time to avoid a roster teardown at the July 31 trade deadline.`\
 https://nytimes.com/athletic/6477104/2025/07/06/twins-takeaways-with-trade-deadline-looming-this-team-is-in-a-tough-spot/
 
-**Yankees earn reset after splitting Subway Series against Mets, snap six-game losing streak**\
-`After a week in the wilderness, the Yankees found their way to the clearing of Monday’s off day.`\
+**In Subway Series finale, bruised but breathing Yankees earn reset after week in the wilderness**\
+`The Yankees ended a six-game losing streak by doing what they do best on Sunday against the Mets.`\
 https://nytimes.com/athletic/6477143/2025/07/06/ny-yankees-mets-subway-series-analysis/
 
 **Yankees, Mets stunned by Bellinger's game-saving double play: 'Play of the year'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6477128/2025/07/06/yankees-cody-bellinger-play-of-t
 **Days later, the search for loved ones and their pets continues.**\
 `Robert and Joni Blake, both in their 70s, remain missing after their RV camp flooded.`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/days-later-the-search-for-loved-ones-and-their-pets-continues
-
-**Tarik Skubal, Tigers keep finding new ways to dazzle in a charmed season**\
-`Detroit's ace pitched seven scoreless innings against Cleveland and got plenty of help from his teammates along the way.`\
-https://nytimes.com/athletic/6477083/2025/07/06/tarik-skubal-tigers-charmed-season/
 

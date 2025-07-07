@@ -1,3 +1,11 @@
+**AJ Dybantsa, potential No. 1 NBA pick in 2026, leads U.S. to gold: Takeaways**\
+`Incoming BYU star shines at the FIBA U19 World Cup, but tournament shows that his draft class is stacked.`\
+https://nytimes.com/athletic/6477044/2025/07/06/aj-dybantsa-mvp-fiba-u19-world-cup/
+
+**In Subway Series finale, bruised but breathing Yankees earn reset after week in the wilderness**\
+`The Yankees ended a six-game losing streak by doing what they do best on Sunday against the Mets.`\
+https://nytimes.com/athletic/6477143/2025/07/06/ny-yankees-mets-subway-series-analysis/
+
 **Dallas church draws 600 to a service for the Texas flooding victims.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2025/07/06/us/texas-floods/dallas-church-draws-600-to-a-service-for-the-texas-flooding-victims
