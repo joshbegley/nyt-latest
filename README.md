@@ -1,3 +1,7 @@
+**Man Who Opened Fire on Border Patrol Building in Texas Is Fatally Shot**\
+`The man, who was armed with an assault rifle, opened fire on the building in McAllen, Texas, on Monday and was shot dead by federal officers, the police said.`\
+https://nytimes.com/2025/07/07/us/mcallen-airport-shooter-border-patrol.html
+
 **Tesla Stock Dives as Elon Musk Plans New Political Party**\
 `Mr. Musk’s involvement in politics was once seen by investors as a benefit to Tesla. Not anymore.`\
 https://nytimes.com/2025/07/07/business/tesla-stock-elon-musk-america-party.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/07/07/business/ai-job-cuts.html
 `You thought artificial intelligence was coming for your job? First, it’s coming for your job interviewer.`\
 https://nytimes.com/2025/07/07/technology/ai-job-interviews.html
 
-**Clippers, Heat, Jazz agree to four-player trade, Miami lands Norman Powell**\
+**Clippers, Heat, Jazz agree to four-player trade; Miami lands Norman Powell**\
 `The Clippers and Heat have committed to a major shift in their franchises following Monday's trade.`\
 https://nytimes.com/athletic/6478124/2025/07/07/clippers-heat-jazz-agree-to-four-player-trade-miami-acquires-norman-powell/
 
@@ -29,12 +33,4 @@ https://nytimes.com/interactive/2025/07/07/books/review/snarky-book-quotes.html
 **Transfers TLDR: Martin Zubimendi to Arsenal - all you need to know**\
 `The Spanish midfielder's move to the Emirates Stadium from Real Sociedad has been confirmed – this is everything you need to know...`\
 https://nytimes.com/athletic/6439985/2025/07/07/martin-zubimendi-to-arsenal-transfers-tldr/
-
-**A Smart, Quick Curry for Sluggish Days**\
-`Keema palak is just the thing for the Monday after a long weekend (or Mondays in general).`\
-https://nytimes.com/2025/07/07/dining/healthy-keema-palak-recipe-for-ground-chicken-and-spinach.html
-
-**Sudan soccer league returns despite ongoing Civil War**\
-`The eight-team, month-long Sudan Elite League will take place to determine the Sudanese clubs playing continental football in 2025-26.`\
-https://nytimes.com/athletic/6478044/2025/07/07/sudan-civil-war-football-league-africa/
 
