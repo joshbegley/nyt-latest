@@ -1,3 +1,11 @@
+**Sudan soccer league returns despite ongoing Civil War**\
+`The eight-team, month-long Sudan Elite League will take place to determine the Sudanese clubs playing continental football in 2025-26.`\
+https://nytimes.com/athletic/6478044/2025/07/07/sudan-civil-war-football-league-africa/
+
+**3 Killed and 9 Injured in South Philadelphia Shooting**\
+`The shooting was one of several episodes of gun and knife violence in the city over the Fourth of July weekend.`\
+https://nytimes.com/2025/07/07/us/philadelphia-mass-shooting-july-4.html
+
 **Pet Theory**\
 `Emily Anthes explores the science and health of our creature companions.`\
 https://nytimes.com/column/pet-theory

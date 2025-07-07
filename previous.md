@@ -1,3 +1,11 @@
+**Sudan soccer league returns despite ongoing Civil War**\
+`The eight-team, month-long Sudan Elite League will take place to determine the Sudanese clubs playing continental football in 2025-26.`\
+https://nytimes.com/athletic/6478044/2025/07/07/sudan-civil-war-football-league-africa/
+
+**3 Killed and 9 Injured in South Philadelphia Shooting**\
+`The shooting was one of several episodes of gun and knife violence in the city over the Fourth of July weekend.`\
+https://nytimes.com/2025/07/07/us/philadelphia-mass-shooting-july-4.html
+
 **Pet Theory**\
 `Emily Anthes explores the science and health of our creature companions.`\
 https://nytimes.com/column/pet-theory
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6381211/2025/07/07/tennis-flavio-cobolli-italy-foot
 **Red Light: Decoding the NHL's dog days. Plus: Mitch Marner's weirdest league record**\
 `Let’s just say we’re officially into the NHL’s slow period. Here's what's still unsettled.`\
 https://nytimes.com/athletic/6477945/2025/07/07/red-light-newsletter-nhl-offseason-snoozefest/
-
-**Milan head coach Allegri says Modric 'will be here in August'**\
-`Modric is currently playing for Madrid at the Club World Cup and will become a free agent once Madrid's tournament ends.`\
-https://nytimes.com/athletic/6477908/2025/07/07/luka-modric-will-be-here-in-august-milan-head-coach-max-allegri/
-
-**How to Help the Texas Flood Victims**\
-`Flash flooding killed at least 80 people in Central Texas, and dozens are still missing. Here’s how you can help.`\
-https://nytimes.com/2025/07/07/us/texas-flooding-victims-rescue-donate-help.html
 
