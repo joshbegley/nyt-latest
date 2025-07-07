@@ -1,3 +1,7 @@
+**Word of the Day: whimsical**\
+`This word has appeared in 243 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/07/learning/word-of-the-day-whimsical.html
+
 **Randy Rodríguez, the Giants' quietest All-Star, is a sweeping success**\
 `Rodríguez is quiet and unassuming and likes to read classic novels. He also might be the best relief pitcher in baseball.`\
 https://nytimes.com/athletic/6477467/2025/07/07/randy-rodriguez-giants-all-star-sweeping-success/

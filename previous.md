@@ -1,3 +1,7 @@
+**Word of the Day: whimsical**\
+`This word has appeared in 243 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/07/learning/word-of-the-day-whimsical.html
+
 **Randy Rodríguez, the Giants' quietest All-Star, is a sweeping success**\
 `Rodríguez is quiet and unassuming and likes to read classic novels. He also might be the best relief pitcher in baseball.`\
 https://nytimes.com/athletic/6477467/2025/07/07/randy-rodriguez-giants-all-star-sweeping-success/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6477377/2025/07/07/sounders-stefan-frei-goalkeeper-
 **Matthew Boyd earns All-Star nod before dominating Cardinals as Cubs keep shining**\
 `Chicago had three players selected to the All-Star team, but the argument could be made that other Cubs deserved some love as well.`\
 https://nytimes.com/athletic/6477404/2025/07/07/cubs-matthew-boyd-all-star-dominates-cardinals/
-
-**West Ham fan survey results: 89% feel despondent for 2025-26 season**\
-`The results of our West Ham fan survey show a lack of optimism for new season and there is not much love for the ownership`\
-https://nytimes.com/athletic/6473194/2025/07/07/fan-survey-west-ham-results/
 
