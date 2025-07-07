@@ -7,7 +7,7 @@ https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html
 https://nytimes.com/athletic/6460638/2025/07/07/paolo-banchero-magic-extension-max/
 
 **Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
-`Rescue efforts in central Texas grew more desperate as the chance of finding survivors faded since the flooding on July 4 devastated the area. Dozens of people are still missing, authorities said.`\
+`Rescue efforts in Central Texas grew more desperate as the chance of finding survivors faded.`\
 https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
 
 **Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\

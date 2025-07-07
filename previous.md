@@ -1,3 +1,11 @@
+**Planned Parenthood Wins a Temporary Injunction Over Medicaid Funding**\
+`The nonprofit is challenging a new law that bars its clinics from receiving federal money for any treatment, including birth control and checkups.`\
+https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html
+
+**Paolo Banchero, Magic agree to 5-year, $239 million max extension: Source**\
+`The contract extension will begin with the 2026-27 season and will run through 2030-31, including a player option.`\
+https://nytimes.com/athletic/6460638/2025/07/07/paolo-banchero-magic-extension-max/
+
 **Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
 `Rescue efforts in central Texas grew more desperate as the chance of finding survivors faded since the flooding on July 4 devastated the area. Dozens of people are still missing, authorities said.`\
 https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/07/briefing/texas-floods-death-toll-trump-tariffs.ht
 **Leeds pushing to sign Newcastle midfielder Longstaff**\
 `Leeds have submitted an offer to their Premier League counterparts worth £10million plus £2million in add-ons for Longstaff.`\
 https://nytimes.com/athletic/6479124/2025/07/07/newcastle-leeds-longstaff-transfer-news/
-
-**N.Y.P.D. Investigates the Death of an 18-Year-Old in a Bronx Precinct**\
-`Saniyah Cheatham is said to have hanged herself early Saturday after she was arrested in an assault case. Friends said she had been in good spirits a day before.`\
-https://nytimes.com/2025/07/07/nyregion/nypd-bronx-custody-death-saniyah-cheatham.html
-
-**A Hotel Made Famous by Graham Greene Is a Victim of Haiti’s Violence**\
-`Haiti’s famed Oloffson Hotel, a cultural landmark and celebrity haven, was incinerated amid rising violence by gangs that control most of the country’s capital.`\
-https://nytimes.com/2025/07/07/world/americas/haiti-oloffson-hotel-fire-port-au-prince.html
 

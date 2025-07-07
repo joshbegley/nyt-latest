@@ -1,3 +1,11 @@
+**Planned Parenthood Wins a Temporary Injunction Over Medicaid Funding**\
+`The nonprofit is challenging a new law that bars its clinics from receiving federal money for any treatment, including birth control and checkups.`\
+https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html
+
+**Paolo Banchero, Magic agree to 5-year, $239 million max extension: Source**\
+`The contract extension will begin with the 2026-27 season and will run through 2030-31, including a player option.`\
+https://nytimes.com/athletic/6460638/2025/07/07/paolo-banchero-magic-extension-max/
+
 **Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
 `Rescue efforts in central Texas grew more desperate as the chance of finding survivors faded since the flooding on July 4 devastated the area. Dozens of people are still missing, authorities said.`\
 https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
