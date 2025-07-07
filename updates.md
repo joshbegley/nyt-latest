@@ -1,3 +1,11 @@
+**Byron Buxton chosen as Twins' lone All-Star, Joe Ryan and Jhoan Duran snubbed**\
+`Buxton, a Georgia native, will be heading home for his second All-Star Game, but the Twins' top pitchers were passed over for the AL team.`\
+https://nytimes.com/athletic/6476597/2025/07/06/byron-buxton-twins-all-star-joe-ryan-jhoan-duran-snubbed/
+
+**Mexico repeats as Gold Cup winner, beats USMNT on Alvarez's late header**\
+`The USMNT scored less than four minutes in, but Mexico stormed back to reclaim Concacaf's championship in a thriller in Houston.`\
+https://nytimes.com/athletic/6477194/2025/07/06/usmnt-mexico-gold-cup-final-alvarez-handball-jimenez/
+
 **AJ Dybantsa, potential No. 1 NBA pick in 2026, leads U.S. to gold: Takeaways**\
 `Incoming BYU star shines at the FIBA U19 World Cup, but tournament shows that his draft class is stacked.`\
 https://nytimes.com/athletic/6477044/2025/07/06/aj-dybantsa-mvp-fiba-u19-world-cup/
