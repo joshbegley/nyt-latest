@@ -1,3 +1,11 @@
+**Trump Threatens Extra Tariffs on BRICS-Aligned Countries**\
+`President Trump said nations that support the group’s “Anti-American policies” would face an additional 10 percent tariff. He did not elaborate.`\
+https://nytimes.com/2025/07/07/us/politics/trump-brics-nations-tariffs.html
+
+**Your Questions, Answered**\
+`We address your queries about the news.`\
+https://nytimes.com/2025/07/07/briefing/your-questions-answered.html
+
 **A high school right-hander has never gone 1-1 in the MLB Draft. Why it may never happen**\
 `In 59 MLB Draft classes, a high school right-hander has never gone 1-1. Seth Hernandez is a top talent but is unlikely to be the first.`\
 https://nytimes.com/athletic/6476445/2025/07/07/mlb-draft-top-pick-high-school-right-handed-pitcher/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477074/2025/07/07/reds-andrew-abbott-all-star-snub
 **Transfers TLDR: Jamie Gittens to Chelsea – all you need to know**\
 `Jamie Gittens has moved to Chelsea from Dortmund – here are the details behind the deal`\
 https://nytimes.com/athletic/6461153/2025/07/07/jamie-gittens-to-chelsea-transfers-tldr/
-
-**Flood risk persists in Central Texas as rainfall continues.**\
-`Flood watches remain in effect as forecasters warn of more rain and possible river rises through Monday.`\
-https://nytimes.com/live/2025/07/07/us/texas-floods/flood-risk-persists-in-central-texas-as-rainfall-continues
-
-**WNBA power rankings: Dallas' young cast looks like a strong support for Paige Bueckers**\
-`Will Caitlin Clark return and provide a showdown this weekend against Bueckers?`\
-https://nytimes.com/athletic/6477439/2025/07/07/wnba-power-rankings-paige-bueckers-dallas-wings/
 
