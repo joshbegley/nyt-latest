@@ -1,6 +1,10 @@
+**Stanway: England loss to France 'like a bad night out you want to forget'**\
+`The midfielder added that England are looking to 'put things right' against the Netherlands in their second Euro 2025 match on Wednesday.`\
+https://nytimes.com/athletic/6478147/2025/07/07/euro-2025-england-france-netherlands-stanway/
+
 **Why is Everyone Watching ‘Love Island USA?’**\
 `It’s the pop culture obsession of the summer. The show draws viewers in with steamy drama and over-the-top challenges. But what’s more surprising is how it’s bringing viewers together.`\
-https://nytimes.com/2025/07/07/style/why-is-everyone-watching-love-island-usa.html
+https://nytimes.com/2025/07/07/style/love-island-usa.html
 
 **Gueye signs new Everton contract**\
 `Gueye, 35, played a key role as Everton escaped the relegation zone and secured a 13th-placed Premier League finish under David Moyes.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478133/2025/07/07/olympics-fencing-ysaora-thibus-d
 **Erick Fedde falters again in 'ugly' loss to Cubs as Cardinals debate rotation changes**\
 `St. Louis posted its sixth shutout defeat in its last 11 games and fell to 6 1/2 games back in the division`\
 https://nytimes.com/athletic/6477257/2025/07/07/erick-fedde-cardinals-cubs/
-
-**The Future Looks Dark, but Familiar, in Gary Shteyngart’s New Book**\
-`“Vera, or Faith” follows a 10-year-old girl navigating family drama and a dystopian America.`\
-https://nytimes.com/2025/07/07/books/review/gary-shteyngart-vera-or-faith.html
 
