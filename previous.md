@@ -1,3 +1,31 @@
+**How one NBA trade can lead to another, which leads to another, which leads to another...**\
+`Because of new rules regarding trade exceptions and other factors, we can expect deals like this to happen much more often.`\
+https://nytimes.com/athletic/6479434/2025/07/08/nba-seven-team-trade-rockets-suns/
+
+**Are Boye Mafe, Derick Hall in Seahawks' long-term plans? This season could decide**\
+`Mafe and Hall have each shown flashes, and the former is eligible for an extension, but the Seahawks might want to let things play out.`\
+https://nytimes.com/athletic/6436859/2025/07/08/seahawks-boye-mafe-contract-derick-hall/
+
+**Answering all your Rossi, Kaprizov questions: Ask Russo and Smith, part 1**\
+`Contracts for Rossi and Kaprizov are among the Wild's biggest to-do list items this offseason. When should you worry? We explain.`\
+https://nytimes.com/athletic/6478580/2025/07/08/marco-rossi-kirill-kaprizov-wild-mailbag/
+
+**Trump Administration Live Updates: President Revives Trade War Threat**\
+``\
+https://nytimes.com/live/2025/07/08/us/trump-news
+
+**One year into SEC reunion, Texas is thriving — and A&M is still chasing**\
+`In their first year back as conference rivals in the SEC, Texas pulled ahead while A&M is still building toward contention.`\
+https://nytimes.com/athletic/6466658/2025/07/08/texas-am-sec-rivalry-reunion/
+
+**Canadiens roster analysis: Talent upgrade leads to lineup imperfections**\
+`The Canadiens have exciting new players to fit into their lineup, but how does it all fit and how do all the important roles get filled?`\
+https://nytimes.com/athletic/6478892/2025/07/08/canadiens-2025-2026-roster-analysis/
+
+**Spurs overhaul medical team for second summer running**\
+`Adam Brett and Nick Davies have left the club after just a year in their roles.`\
+https://nytimes.com/athletic/6479755/2025/07/08/tottenham-overhaul-medical-team-brett-davies-staff/
+
 **Private drones are obstructing search efforts, Texas officials say.**\
 `A helicopter involved in rescue efforts`\
 https://nytimes.com/live/2025/07/08/us/texas-floods/private-drones-are-obstructing-search-efforts-texas-officials-say
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6479638/2025/07/08/gyokeres-arsenal-transfers-messi
 **What we're hearing about Quentin Grimes and VJ Edgecombe observations: 76ers notes**\
 `The restricted free agency of shooting guard Grimes is the Sixers' elephant in the room and has, as yet, yielded almost no movement.`\
 https://nytimes.com/athletic/6479497/2025/07/08/quentin-grimes-vj-edgecombe-76ers/
-
-**Rosenthal: As Rockies spiral towards historic losing season, front office shakeup could be looming**\
-`The idea of Colorado moving on from GM Bill Schmidt is generating chatter and drawing public acknowledgment from ownership.`\
-https://nytimes.com/athletic/6479400/2025/07/08/colorado-rockies-bill-schmidt-general-manager/
-
-**Phillies, silenced by an opponent and an umpire, are still waiting for Bryce Harper to power them**\
-`The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
-https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
-
-**A Lost Summer Idyll**\
-`We explore the particular horror of a disaster at a summer camp.`\
-https://nytimes.com/2025/07/08/briefing/camp-mystic-texas-floods.html
-
-**The East is the ultimate reflection of the NBA's parity era**\
-`Injuries and the second apron have created a power vacuum in the East not seen since the turn of the centry. `\
-https://nytimes.com/athletic/6478942/2025/07/08/nba-standings-eastern-conference-parity/
-
-**Where do Jeremiah Smith, Drew Allar rank? The 25 best players in the Big Ten in 2025**\
-`Four players who followed Curt Cignetti from James Madison to Indiana made the list. `\
-https://nytimes.com/athletic/6477875/2025/07/08/big-ten-best-players-top-25-jeremiah-smith-drew-allar/
-
-**NHL 2026 RFA watch: An early look at what some of next year’s contracts could be worth**\
-`GMs are already looking at next summer's restricted free agents. Here's what eight pending RFAs could be in line for next summer, or sooner.`\
-https://nytimes.com/athletic/6478627/2025/07/08/2026-nhl-rfa-watch/
-
-**AFC North Whiparound: Offseason priorities, position battles and players on the bubble**\
-`Lamar Jackson is one of several Ravens who could sign a new deal soon, while the Bengals and Steelers both have standoffs in progress.`\
-https://nytimes.com/athletic/6471096/2025/07/08/steelers-ravens-bengals-browns-afc-north-2/
 
