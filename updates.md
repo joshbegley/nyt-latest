@@ -1,3 +1,11 @@
+**Putellas is back on song and banishing her worst Euros memories**\
+`Putellas missed the last Euros with an ACL injury. Now, she is making up for lost time`\
+https://nytimes.com/athletic/6480322/2025/07/08/alexia-putellas-euros-spain-return/
+
+**Federal Agents March Through MacArthur Park in Los Angeles**\
+`Residents were outraged after dozens of federal agents marched through MacArthur Park, in one of the city’s most immigrant-heavy neighborhoods. Homeland Security officials said it was an immigration enforcement operation.`\
+https://nytimes.com/video/us/100000010272693/federal-agents-park-protests-los-angeles.html
+
 **Wildfires Rage in Parts of Spain and France Following Recent Heat Wave**\
 `French and Spanish firefighters battled blazes that burned through thousands of acres for a second day. The fires followed a heat wave that dried out the terrain, creating fuel for wildfires, according to weather agencies and experts.`\
 https://nytimes.com/video/world/europe/100000010272799/wildfires-spain-france-heat-wave.html

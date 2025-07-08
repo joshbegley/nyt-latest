@@ -1,3 +1,11 @@
+**Putellas is back on song and banishing her worst Euros memories**\
+`Putellas missed the last Euros with an ACL injury. Now, she is making up for lost time`\
+https://nytimes.com/athletic/6480322/2025/07/08/alexia-putellas-euros-spain-return/
+
+**Federal Agents March Through MacArthur Park in Los Angeles**\
+`Residents were outraged after dozens of federal agents marched through MacArthur Park, in one of the city’s most immigrant-heavy neighborhoods. Homeland Security officials said it was an immigration enforcement operation.`\
+https://nytimes.com/video/us/100000010272693/federal-agents-park-protests-los-angeles.html
+
 **Wildfires Rage in Parts of Spain and France Following Recent Heat Wave**\
 `French and Spanish firefighters battled blazes that burned through thousands of acres for a second day. The fires followed a heat wave that dried out the terrain, creating fuel for wildfires, according to weather agencies and experts.`\
 https://nytimes.com/video/world/europe/100000010272799/wildfires-spain-france-heat-wave.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/08/opinion/trump-bill.html
 **‘Playing the Man’: Global Diplomacy in the Trump Era Is All About Flattery**\
 `Prime Minister Benjamin Netanyahu of Israel handed a letter to President Trump nominating him for the Nobel Peace Prize. But it’s not clear whether stroking the president’s ego has long-lasting effects.`\
 https://nytimes.com/2025/07/08/world/europe/trump-diplomacy-flattery-world-leaders.html
-
-**Aryna Sabalenka escapes Laura Siegemund upset at Wimbledon**\
-`The world No. 1 was thrown off by Siegemund's changes in pace and rhythm, but came through in three tight, tense sets.`\
-https://nytimes.com/athletic/6480202/2025/07/08/tennis-wimbledon-sabalenka-siegemund-result-analysis/
-
-**Taylor Fritz battles blisters, Karen Khachanov to reach first Wimbledon semifinal**\
-`The American survived 6-3, 6-4, 1-6, 7-6(4) to make the final four at the world’s most important tennis tournament for the first time.`\
-https://nytimes.com/athletic/6480464/2025/07/08/tennis-wimbledon-taylor-fritz-khachanov/
 
