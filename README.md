@@ -1,4 +1,8 @@
-**Should You Be ‘Fibermaxxing’?**\
+**Mike Brown on coaching Knicks: 'Nobody has bigger expectations than I do'**\
+`Mike Brown spoke to the media for the first time as the Knicks head coach.`\
+https://nytimes.com/athletic/6476058/2025/07/08/mike-brown-knicks-head-coach/
+
+**Should You Be âFibermaxxingâ?**\
 `A familiar concept gets some Gen Z branding, and unlike other trends, experts are encouraging it.`\
 https://nytimes.com/2025/07/08/style/fibermaxxing-tiktok-trend.html
 
@@ -14,19 +18,15 @@ https://nytimes.com/athletic/6481196/2025/07/08/germany-denmark-euro-2025-unconv
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/london-cockney-pie-mash
 
-**Richard Greenberg, Playwright Whose ‘Take Me Out’ Won a Tony, Dies at 67**\
-`More than 30 of his plays were produced on Broadway and off. Many of them dealt with the manners and mores of New York’s upper middle class.`\
+**Richard Greenberg, Playwright Whose âTake Me Outâ Won a Tony, Dies at 67**\
+`More than 30 of his plays were produced on Broadway and off. Many of them dealt with the manners and mores of New Yorkâs upper middle class.`\
 https://nytimes.com/2025/07/08/theater/richard-greenberg-dead.html
 
 **Supreme Court Clears Way for Mass Firings at Federal Agencies**\
-`The Trump administration had asked the justices to block a lower court’s ruling that paused the largest phase of the president’s efforts to downsize the government.`\
+`The Trump administration had asked the justices to block a lower courtâs ruling that paused the largest phase of the presidentâs efforts to downsize the government.`\
 https://nytimes.com/2025/07/08/us/politics/supreme-court-federal-workers-layoffs.html
 
 **Celtics might be done with offseason moves, Al Horford's return 'unlikely'**\
 `"We're very comfortable with this group heading into next season," Brad Stevens said of the Celtics roster.`\
 https://nytimes.com/athletic/6481094/2025/07/08/celtics-al-horford-brad-stevens-nba-free-agency/
-
-**Let Us Help You Find Your Next Book: Science Fiction**\
-`Whether you're looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/science-fiction-books.html
 
