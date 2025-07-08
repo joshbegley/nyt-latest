@@ -1,3 +1,15 @@
+**Tuesday Briefing: Trump’s New Tariff Threats**\
+`Plus, the beautiful chaos of Rio’s beaches.`\
+https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
+
+**This Is BYD, the Chinese Car That’s Taking Over the World**\
+`China’s national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
+https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
+
+**The New York Times in Print for Tuesday, July 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/08/todays-new-york-times
+
 **England vs India discussed: Gill's glorious batting, series predictions – and can Archer bounce back?**\
 `The England v India series is two matches in and has packed plenty of drama in already – The Athletic debate the action and what is to come`\
 https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
