@@ -1,3 +1,7 @@
+**The Bounce: Early Summer League storylines**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/
+
 **Ted Cruz Was Vacationing in Greece as Floods Devastated Texas**\
 `The Republican senator, who was on a preplanned family vacation, did not return to his state until 72 hours after the deadly disaster, which his office said was as quickly as possible.`\
 https://nytimes.com/2025/07/08/us/ted-cruz-texas-floods-vacation-greece.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/07/08/us/ted-cruz-texas-floods-vacation-greece.html
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6479544/2025/07/08/manny-machado-3000-hits-the-windup/
 
-**How Do You Self-Identify? For Many Americans, Checking a Box Wonât Do.**\
-`The New York mayoral candidate Zohran Mamdani said that his background doesnât fit neatly into simple categories. Others say theyâve struggled with the same issue.`\
+**How Do You Self-Identify? For Many Americans, Checking a Box Won’t Do.**\
+`The New York mayoral candidate Zohran Mamdani said that his background doesn’t fit neatly into simple categories. Others say they’ve struggled with the same issue.`\
 https://nytimes.com/2025/07/08/us/race-ethnicity-identity-americans.html
 
 **How Do Israel and Hamas Negotiate in Qatar?**\
@@ -15,10 +19,10 @@ https://nytimes.com/2025/07/08/us/race-ethnicity-identity-americans.html
 https://nytimes.com/2025/07/08/world/middleeast/how-do-israel-and-hamas-negotiate-in-qatar.html
 
 **Stocks Shake Off Tariff Threat After Trump Extends Deadline**\
-`The president noted that U.S. negotiators remained open to offers from trading partners, suggesting that tariffs could be reduced by â or even after â the deadline on Aug. 1.`\
+`The president noted that U.S. negotiators remained open to offers from trading partners, suggesting that tariffs could be reduced by — or even after — the deadline on Aug. 1.`\
 https://nytimes.com/2025/07/08/business/trump-tariffs-stock-markets-sp500.html
 
-**How to Experience Operaâs Most Interesting Festival From Afar**\
+**How to Experience Opera’s Most Interesting Festival From Afar**\
 `Many of the offerings at the Aix-en-Provence Festival in France are broadcast, or they travel to other theaters. Here are some highlights.`\
 https://nytimes.com/2025/07/08/arts/music/aix-festival-opera-highlights-2025.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/world/europe/france-spain-wildfires-heat-wave.htm
 **Tottenham's Alejo Veliz returns to former club Rosario Central**\
 `The deal does not include an option or obligation to make the move permanent next summer.`\
 https://nytimes.com/athletic/6479770/2025/07/08/alejo-veliz-loan-deal-tottenham-rosario-central/
-
-**Actors Dressing the Part of Tourists**\
-`A duoâs charisma drew attention to their outfits on the streets of Hong Kong.`\
-https://nytimes.com/2025/07/08/style/street-style-look-casual-travel-clothes.html
 
