@@ -1,3 +1,11 @@
+**If Orioles, Pirates sell at MLB trade deadline, which players have potential to step up?**\
+`Andrea Arcadipane looks at potential sellers, the Orioles and Pirates, ahead of the MLB trade deadline. `\
+https://nytimes.com/athletic/6478334/2025/07/08/mlb-trade-deadline-2025-orioles-pirates/
+
+**Carlos Alcaraz hits his stride at Wimbledon, right on time for a title defense**\
+`Alcaraz is establishing a Grand Slam pattern which spells danger for the rest of the field: get him early, or risk not getting him at all.`\
+https://nytimes.com/athletic/6481023/2025/07/08/tennis-wimbledon-carlos-alcaraz-record-form/
+
 **Listening Back to When Janet Jackson Was for lovers**\
 `Hear six sensual songs by the pop great.`\
 https://nytimes.com/2025/07/08/arts/music/amplifier-newsletter-janet-jackson-love-songs.html
