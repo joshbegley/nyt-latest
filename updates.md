@@ -1,3 +1,11 @@
+**What We Saw in the Texas Flood Zone**\
+`Search-and-rescue teams have been hoping against hope to find signs of life after the Texas floods. Nicholas Bogel-Burroughs, an investigative reporter at The New York Times, describes what he has seen in Texas.`\
+https://nytimes.com/video/us/100000010271441/what-we-saw-in-the-texas-flood-zone.html
+
+**T.S.A. to Let Travelers Keep Their Shoes On, Ending Hated Rule**\
+`Most passengers had been required to remove their footwear at checkpoints since 2006, a policy later eased only for members of trusted traveler programs.`\
+https://nytimes.com/2025/07/07/travel/tsa-shoes-removal-airport-security.html
+
 **Federal Agents March Through L.A. Park, Spurring Local Outrage**\
 `Federal officials said it was an immigration enforcement operation, though it was unclear if anyone had been arrested. “It’s the way a city looks before a coup,” Mayor Karen Bass said as she condemned the action.`\
 https://nytimes.com/2025/07/07/us/la-macarthur-park-immigration.html
