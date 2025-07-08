@@ -1,40 +1,40 @@
-**Tottenham complete signing of Japan international defender Kota Takai**\
-`Takei is the first signing under new head coach Thomas Frank who was not on loan at the club last season.`\
-https://nytimes.com/athletic/6447636/2025/07/08/tottenham-complete-signing-of-japan-international-defender-kota-takai/
+**Why a Third-Party Bid Is Unlikely but Not Impossible**\
+`Answering reader questions about the obstacles and opportunities for new parties like the one formed by Elon Musk.`\
+https://nytimes.com/2025/07/08/upshot/third-party-elon-musk.html
 
-**South Korea Keeps Its Chin Up as Trump Wields Tariff Threat**\
-`The country’s new president, in office for a little over a month, had just dispatched his senior deputies to Washington to try to work out a trade deal.`\
-https://nytimes.com/2025/07/08/business/trump-tariffs-south-korea.html
+**See When Federal and Local Officials Issued Warnings About the Texas Floods**\
+`The National Weather Service began sending flash flood warnings that should have triggered cellphone alerts a little after 1 a.m., while local officials began posting on Facebook about four hours later.`\
+https://nytimes.com/interactive/2025/07/08/weather/texas-floods-timeline-weather-alerts.html
 
-**Why Moise Kean is a completely different player now to the one who struggled at Everton**\
-`Manchester United are keeping tabs on the former Everton striker, who shone in Serie A last season at Fiorentina `\
-https://nytimes.com/athletic/6479235/2025/07/08/moise-kean-striker-fiorentina-manchester-united/
+**The Gender Gap That Ate the Democrats**\
+`If men had supported Kamala Harris at the same level as women, Harris would have won the popular vote, and possibly the Electoral College.`\
+https://nytimes.com/2025/07/08/opinion/men-women-voters-democrats-republicans.html
 
-**The last British man in the Wimbledon singles is at home under the radar**\
-`Norrie's Wimbledon record should make him a folk hero, but he remains under the radar ahead of a date with Carlos Alcaraz.`\
-https://nytimes.com/athletic/6477727/2025/07/08/tennis-wimbledon-cameron-norrie-british/
+**How the Attention Economy Is Devouring Gen Z — and the Rest of Us**\
+`The economics writer Kyla Scanlon on how attention has come to shape politics, our economy, Gen Z and more.`\
+https://nytimes.com/2025/07/08/opinion/ezra-klein-podcast-kyla-scanlon.html
 
-**Jon Stewart Thinks Congress Is Basically Pro Wrestling Without the Fun**\
-`The “Daily Show” host said the drama around President Trump’s big policy bill was about as authentic as a World Wrestling Entertainment match.`\
-https://nytimes.com/2025/07/08/arts/television/jon-stewart-trump-bill-wrestling.html
+**How the Attention Economy Is Devouring Gen Z — and the Rest of Us**\
+`The economics writer Kyla Scanlon on how attention has come to shape politics, our economy, Gen Z and more.`\
+https://nytimes.com/video/opinion/100000010271558/how-the-attention-economy-is-devouring-gen-z-and-the-rest-of-us.html
 
-**Thierno Barry travelling to Everton to complete €32.5m move from Villarreal**\
-`Barry has been given permission to travel to Merseyside for a medical following a holiday in Miami.`\
-https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
+**Is Gary Shteyngart One of the Last Novelists to Make Real Money From the Craft?**\
+`Mr. Shteyngart was once told he might be. With his sixth novel, “Vera, or Faith,” out now, he’s spent the last few years spending it well.`\
+https://nytimes.com/2025/07/08/style/gary-shteyngart-book-vera-or-faith.html
 
-**5 Israeli Soldiers Killed in Gaza, Military Says**\
-`Officials said the troops were killed during combat in northern Gaza, but offered few other details.`\
-https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
+**What to Know About the Collapse of the F.D.A.**\
+`The regulatory agency confronts a future determined by a health secretary hostile to its mission.`\
+https://nytimes.com/2025/07/08/magazine/fda-collapse-rfk-takeaways.html
 
-**Lung Cancer Screening on Wheels**\
-`On the road with a 68,000-pound tractor-trailer that crisscrosses West Virginia, saving lives.`\
-https://nytimes.com/2025/07/08/science/lung-cancer-screening-appalachia.html
+**The dark arts of tennis: 'I know that I have some very controversial habits'**\
+`Like every sport, tennis has its grey areas — and players who will exploit them more than others.`\
+https://nytimes.com/athletic/6478578/2025/07/08/tennis-dark-arts-gamesmanship-mto-bathroom-break/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/08/crosswords/spelling-bee-forum.html
+**Lorna Simpson’s Brooklyn Art Studio Is On the Market**\
+`The four-story modern house in Fort Greene, which the artist had built two decades ago, is asking $6.5 million.`\
+https://nytimes.com/2025/07/08/realestate/lorna-simpson-brooklyn-art-studio-sale.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`This is your weekly guide to what is happening across the summer transfer window`\
-https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/
+**Lawrence Summers: This Law Made Me Ashamed of My Country**\
+`A focus on economics misses the human brutality that is the most problematic aspect of this legislation`\
+https://nytimes.com/2025/07/08/opinion/trump-bill-medicaid-cuts.html
 
