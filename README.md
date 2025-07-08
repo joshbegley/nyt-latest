@@ -1,3 +1,7 @@
+**Sweden’s Secret to Well-Being? Tiny Urban Gardens.**\
+`Known as koloniträdgårdar, they provide city dwellers access to nature, fresh produce and community.`\
+https://nytimes.com/2025/07/08/well/swedens-secret-to-well-being-tiny-urban-gardens.html
+
 **Why a Third-Party Bid Is Unlikely but Not Impossible**\
 `Answering reader questions about the obstacles and opportunities for new parties like the one formed by Elon Musk.`\
 https://nytimes.com/2025/07/08/upshot/third-party-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478578/2025/07/08/tennis-dark-arts-gamesmanship-mt
 **Lorna Simpson’s Brooklyn Art Studio Is On the Market**\
 `The four-story modern house in Fort Greene, which the artist had built two decades ago, is asking $6.5 million.`\
 https://nytimes.com/2025/07/08/realestate/lorna-simpson-brooklyn-art-studio-sale.html
-
-**Lawrence Summers: This Law Made Me Ashamed of My Country**\
-`A focus on economics misses the human brutality that is the most problematic aspect of this legislation`\
-https://nytimes.com/2025/07/08/opinion/trump-bill-medicaid-cuts.html
 
