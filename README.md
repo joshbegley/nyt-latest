@@ -1,3 +1,11 @@
+**Man Dies at Milan Airport After Being Sucked Into Jet Engine, Official Says**\
+`The man was neither an airport employee nor a passenger. Milan Bergamo Airport did not say how he had accessed the runway where the plane was.`\
+https://nytimes.com/2025/07/08/world/europe/milan-bergamo-airport-death-engine.html
+
+**Amanda Anisimova listens to her body at Wimbledon, with her physio that leads the way**\
+`Anisimova's talent has never been in doubt, but it's a physiotherapist who she credits for her deepest Grand Slam run in three years.`\
+https://nytimes.com/athletic/6479614/2025/07/08/tennis-amanda-anisimova-team-injuries-history/
+
 **The Mamdani Debate Moves to Silicon Valley**\
 `A partner at Sequoia, the venture capital giant drew criticism for calling the Democratic mayoral candidate for New York an “Islamist.”`\
 https://nytimes.com/2025/07/08/business/dealbook/mamdani-sequoia-maguire.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/08/us/trump-news
 **One year into SEC reunion, Texas is thriving — and A&M is still chasing**\
 `In their first year back as conference rivals in the SEC, Texas pulled ahead while A&M is still building toward contention.`\
 https://nytimes.com/athletic/6466658/2025/07/08/texas-am-sec-rivalry-reunion/
-
-**Canadiens roster analysis: Talent upgrade leads to lineup imperfections**\
-`The Canadiens have exciting new players to fit into their lineup, but how does it all fit and how do all the important roles get filled?`\
-https://nytimes.com/athletic/6478892/2025/07/08/canadiens-2025-2026-roster-analysis/
-
-**Spurs overhaul medical team for second summer running**\
-`Adam Brett and Nick Davies have left the club after just a year in their roles.`\
-https://nytimes.com/athletic/6479755/2025/07/08/tottenham-overhaul-medical-team-brett-davies-staff/
 

@@ -1,3 +1,15 @@
+**The Mamdani Debate Moves to Silicon Valley**\
+`A partner at Sequoia, the venture capital giant drew criticism for calling the Democratic mayoral candidate for New York an “Islamist.”`\
+https://nytimes.com/2025/07/08/business/dealbook/mamdani-sequoia-maguire.html
+
+**‘He Replied With a Single Thumbs-Up’: The Week 3 Winner of Our Summer Reading Contest**\
+`“Asian parents don’t text their kids like they do in Western movies,” writes Ellena Lee, 15 — but a father’s love can show up in other ways.`\
+https://nytimes.com/2025/07/08/learning/he-replied-with-a-single-thumbs-up-the-week-3-winner-of-our-summer-reading-contest.html
+
+**Central Texas faces less rain Tuesday, though flood risks persist.**\
+`Forecasters warned that even smaller downpours could spark more flooding in areas that are already saturated.`\
+https://nytimes.com/live/2025/07/08/us/texas-floods/central-texas-faces-less-rain-tuesday-though-flood-risks-persist
+
 **How one NBA trade can lead to another, which leads to another, which leads to another...**\
 `Because of new rules regarding trade exceptions and other factors, we can expect deals like this to happen much more often.`\
 https://nytimes.com/athletic/6479434/2025/07/08/nba-seven-team-trade-rockets-suns/

@@ -1,3 +1,15 @@
+**The Mamdani Debate Moves to Silicon Valley**\
+`A partner at Sequoia, the venture capital giant drew criticism for calling the Democratic mayoral candidate for New York an “Islamist.”`\
+https://nytimes.com/2025/07/08/business/dealbook/mamdani-sequoia-maguire.html
+
+**‘He Replied With a Single Thumbs-Up’: The Week 3 Winner of Our Summer Reading Contest**\
+`“Asian parents don’t text their kids like they do in Western movies,” writes Ellena Lee, 15 — but a father’s love can show up in other ways.`\
+https://nytimes.com/2025/07/08/learning/he-replied-with-a-single-thumbs-up-the-week-3-winner-of-our-summer-reading-contest.html
+
+**Central Texas faces less rain Tuesday, though flood risks persist.**\
+`Forecasters warned that even smaller downpours could spark more flooding in areas that are already saturated.`\
+https://nytimes.com/live/2025/07/08/us/texas-floods/central-texas-faces-less-rain-tuesday-though-flood-risks-persist
+
 **How one NBA trade can lead to another, which leads to another, which leads to another...**\
 `Because of new rules regarding trade exceptions and other factors, we can expect deals like this to happen much more often.`\
 https://nytimes.com/athletic/6479434/2025/07/08/nba-seven-team-trade-rockets-suns/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6478892/2025/07/08/canadiens-2025-2026-roster-analy
 **Spurs overhaul medical team for second summer running**\
 `Adam Brett and Nick Davies have left the club after just a year in their roles.`\
 https://nytimes.com/athletic/6479755/2025/07/08/tottenham-overhaul-medical-team-brett-davies-staff/
-
-**Private drones are obstructing search efforts, Texas officials say.**\
-`A helicopter involved in rescue efforts`\
-https://nytimes.com/live/2025/07/08/us/texas-floods/private-drones-are-obstructing-search-efforts-texas-officials-say
-
-**TAFC: Is Gyokeres right for Arsenal? Plus: Saudi club keen on Messi, FIFA office in Trump Tower**\
-`Today in TAFC: Is Gyokeres a better choice than Sesko for Arsenal? Plus: Interest from Saudi for Messi, Man Utd reject Amazon series.`\
-https://nytimes.com/athletic/6479638/2025/07/08/gyokeres-arsenal-transfers-messi-saudi-al-ahli/
-
-**What we're hearing about Quentin Grimes and VJ Edgecombe observations: 76ers notes**\
-`The restricted free agency of shooting guard Grimes is the Sixers' elephant in the room and has, as yet, yielded almost no movement.`\
-https://nytimes.com/athletic/6479497/2025/07/08/quentin-grimes-vj-edgecombe-76ers/
 
