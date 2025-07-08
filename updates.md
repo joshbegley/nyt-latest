@@ -1,3 +1,7 @@
+**Trump Administration, Reversing Itself, Won’t Rewrite a Ban on Asbestos**\
+`The about-face came after a public outcry over plans to reconsider Biden-era restrictions on the carcinogenic material.`\
+https://nytimes.com/2025/07/07/climate/asbestos-ban-trump.html
+
 **Veterans Affairs Dept. Scales Back Plans for Vast Job Cuts**\
 `The department abandoned its previous plan to cut 80,000 workers, saying it expected a reduction of around 30,000 jobs by the end of September.`\
 https://nytimes.com/2025/07/07/us/politics/veterans-affairs-layoffs-jobs.html
