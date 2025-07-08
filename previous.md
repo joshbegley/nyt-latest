@@ -1,3 +1,7 @@
+**FIFA open New York office in US president's Trump Tower**\
+`FIFA boss Gianni Infantino has forged strong links with Trump as the US is hosting this summer's Club World Cup.`\
+https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
+
 **Mets prospect Dylan Ross still hitting 100 mph after 2 elbow operations**\
 `The right-hander has a 2.54 ERA over three levels and an opportunity to reach the big leagues this season as a late-inning power reliever.`\
 https://nytimes.com/athletic/6479347/2025/07/08/mets-prospect-dylan-ross-100-mph-elbow-operations/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/podcasts/the-daily/camp-mystic-texas-flood.html
 **MLB 2025 Mock Draft 3.0: Kade Anderson jumps to No. 1; Aiva Arquette stays in the Northwest**\
 `The MLB Draft begins on Sunday. How is the first round shaping up at the moment? Will the Nationals change course at 1-1 with a new GM?`\
 https://nytimes.com/athletic/6478448/2025/07/08/mlb-mock-draft-2025-kade-anderson-nationals-lsu/
-
-**Wordle Review No. 1,481**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 9, 2025.`\
-https://nytimes.com/2025/07/08/crosswords/wordle-review-1481.html
 
