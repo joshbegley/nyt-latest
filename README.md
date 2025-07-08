@@ -19,7 +19,7 @@ https://nytimes.com/2025/07/08/arts/television/jon-stewart-trump-bill-wrestling.
 https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
 
 **5 Israeli Soldiers Killed in Gaza, Military Says**\
-`Officials said the he troops were killed during combat in northern Gaza, but offered few other details.`\
+`Officials said the troops were killed during combat in northern Gaza, but offered few other details.`\
 https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
 
 **Lung Cancer Screening on Wheels**\
