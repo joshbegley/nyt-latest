@@ -1,3 +1,11 @@
+**How USMNT's World Cup roster outlook changes after Gold Cup standouts emerge**\
+`Plenty of the U.S.'s first-choice players were absent this summer. When they return, which Gold Cup standouts will join them?`\
+https://nytimes.com/athletic/6480238/2025/07/08/usmnt-gold-cup-roster-world-cup-pochettino-tillman-luna-richards/
+
+**Two Found, Two Missing: An Agonizing Search After the Texas Floods**\
+`Four friends, all 21, planned to spend the weekend in the Hill Country. Then the rains came.`\
+https://nytimes.com/2025/07/08/us/texas-flood-hill-country-search.html
+
 **Why the Texas Floods Were So Deadly**\
 `Scientists say a hotter planet is driving more intense storms. But experts say the U.S. is also not doing enough to adapt to increasingly intense floods.`\
 https://nytimes.com/2025/07/08/climate/why-the-texas-floods-were-so-deadly.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/07/08/us/politics/trump-transgender-athletes-california
 **Musk’s Third Party Starts With a Good Idea**\
 `Is there a way to elect an independent bloc of senators?`\
 https://nytimes.com/2025/07/08/opinion/elon-musk-america-party.html
-
-**We Just Updated Our List of the Best Restaurants in L.A.**\
-`Casual yet extravagant Korean feasts, high-end comfort food without the fuss and another reason to love masa.`\
-https://nytimes.com/2025/07/08/dining/where-to-eat-in-los-angeles.html
-
-**‘Superman’ Review: It’s a Bird, It’s a Plane, It’s a Reboot!**\
-`Beginning again with Man of Steel, this time in the hands of James Gunn.`\
-https://nytimes.com/2025/07/08/movies/superman-review.html
 
