@@ -1,3 +1,15 @@
+**The Bounce: Early Summer League storylines**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/
+
+**Ted Cruz Was Vacationing in Greece as Floods Devastated Texas**\
+`The Republican senator, who was on a preplanned family vacation, did not return to his state until 72 hours after the deadly disaster, which his office said was as quickly as possible.`\
+https://nytimes.com/2025/07/08/us/ted-cruz-texas-floods-vacation-greece.html
+
+**The Windup: Manny Machado on the path to 3,000 hits**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6479544/2025/07/08/manny-machado-3000-hits-the-windup/
+
 **How Do You Self-Identify? For Many Americans, Checking a Box Won’t Do.**\
 `The New York mayoral candidate Zohran Mamdani said that his background doesn’t fit neatly into simple categories. Others say they’ve struggled with the same issue.`\
 https://nytimes.com/2025/07/08/us/race-ethnicity-identity-americans.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/08/world/europe/france-spain-wildfires-heat-wave.htm
 **Tottenham's Alejo Veliz returns to former club Rosario Central**\
 `The deal does not include an option or obligation to make the move permanent next summer.`\
 https://nytimes.com/athletic/6479770/2025/07/08/alejo-veliz-loan-deal-tottenham-rosario-central/
-
-**Actors Dressing the Part of Tourists**\
-`A duo’s charisma drew attention to their outfits on the streets of Hong Kong.`\
-https://nytimes.com/2025/07/08/style/street-style-look-casual-travel-clothes.html
-
-**Netanyahu Releases Letter Nominating Trump for Nobel Peace Prize**\
-`Prime Minister Benjamin Netanyahu of Israel praised President Trump’s role in his country’s establishment of diplomatic relations with some Arab states. But Mr. Trump has supported Israeli actions that have strained those ties.`\
-https://nytimes.com/2025/07/08/us/politics/netanyahu-trump-nobel-peace-prize.html
-
-**Man Dies at Milan Airport After Being Sucked Into Jet Engine, Official Says**\
-`The man was neither an airport employee nor a passenger. Milan Bergamo Airport did not say how he had accessed the runway where the plane was.`\
-https://nytimes.com/2025/07/08/world/europe/milan-bergamo-airport-death-engine.html
 

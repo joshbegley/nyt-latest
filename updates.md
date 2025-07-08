@@ -1,3 +1,15 @@
+**The Bounce: Early Summer League storylines**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/
+
+**Ted Cruz Was Vacationing in Greece as Floods Devastated Texas**\
+`The Republican senator, who was on a preplanned family vacation, did not return to his state until 72 hours after the deadly disaster, which his office said was as quickly as possible.`\
+https://nytimes.com/2025/07/08/us/ted-cruz-texas-floods-vacation-greece.html
+
+**The Windup: Manny Machado on the path to 3,000 hits**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6479544/2025/07/08/manny-machado-3000-hits-the-windup/
+
 **How Do You Self-Identify? For Many Americans, Checking a Box Won’t Do.**\
 `The New York mayoral candidate Zohran Mamdani said that his background doesn’t fit neatly into simple categories. Others say they’ve struggled with the same issue.`\
 https://nytimes.com/2025/07/08/us/race-ethnicity-identity-americans.html
