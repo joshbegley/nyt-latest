@@ -1,3 +1,11 @@
+**Tour de France stage four: Tadej Pogacar wins sensational finale in Rouen to bring up 100 career victories**\
+`Analysis of the fourth stage of the 2025 Tour de France, which took the riders from Amiens to Rouen`\
+https://nytimes.com/athletic/6479780/2025/07/08/tour-de-france-stage-four-analysis/
+
+**gws-jacinda-ardern-book-new-zealand**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jacinda-ardern-book-new-zealand
+
 **'Healthy' Dak Prescott expects to be full-go for start of Cowboys training camp**\
 `Dak Prescott is obviously excited about the potential of the offense with CeeDee Lamb and the recently acquired George Pickens.`\
 https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-quarterback-george-pickens/
