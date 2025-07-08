@@ -1,3 +1,7 @@
+**Private drones are obstructing search efforts, Texas officials say.**\
+`A helicopter involved in rescue efforts`\
+https://nytimes.com/live/2025/07/08/us/texas-floods/private-drones-are-obstructing-search-efforts-texas-officials-say
+
 **TAFC: Is Gyokeres right for Arsenal? Plus: Saudi club keen on Messi, FIFA office in Trump Tower**\
 `Today in TAFC: Is Gyokeres a better choice than Sesko for Arsenal? Plus: Interest from Saudi for Messi, Man Utd reject Amazon series.`\
 https://nytimes.com/athletic/6479638/2025/07/08/gyokeres-arsenal-transfers-messi-saudi-al-ahli/
