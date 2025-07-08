@@ -1,3 +1,7 @@
+**Four Men Charged in Plot to Seize Land Near Quebec City**\
+`The police seized a large cache of guns and explosives and said that the ‘ideologically motivated’ group included members of Canada’s military.`\
+https://nytimes.com/2025/07/08/world/canada/terrorist-plot-charges-canada-quebec.html
+
 **The Wild Russian Plot to Burn a London Restaurant and Kidnap Its Owner**\
 `Court proceedings revealed how a criminal gang in Britain were directed to target Yevgeny Chichvarkin, a dissident Russian who owns Hide, a Michelin-starred restaurant in Mayfair.`\
 https://nytimes.com/2025/07/08/world/europe/hide-wagner-plot-kidnap-uk.html

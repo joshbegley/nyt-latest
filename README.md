@@ -1,3 +1,15 @@
+**Canucks mailbag, part 2: Centre trade options? Quinn Hughes vs. Gavin McKenna?**\
+`Let's move beyond the free-agent frenzy and start looking ahead to the Canucks' future.`\
+https://nytimes.com/athletic/6477500/2025/07/08/canucks-mailbag-hughes-mckenna/
+
+**What to expect from Martin Ho, Tottenham Women's new head coach**\
+`After almost a month of searching for the right candidate following a grim season, the Spurs women's team have a new leader`\
+https://nytimes.com/athletic/6479764/2025/07/08/martin-ho-tottenham-women/
+
+**I Can’t — and Won’t — Stop Making These Recipes**\
+`Dak bulgogi (Korean BBQ chicken), crunchy queso wraps and corn and miso pasta salad are on repeat all summer.`\
+https://nytimes.com/2025/07/08/dining/i-cant-and-wont-stop-making-these-recipes.html
+
 **Four Men Charged in Plot to Seize Land Near Quebec City**\
 `The police seized a large cache of guns and explosives and said that the ‘ideologically motivated’ group included members of Canada’s military.`\
 https://nytimes.com/2025/07/08/world/canada/terrorist-plot-charges-canada-quebec.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/08/books/review/bring-the-house-down-charlotte-runci
 **Trump Hires Scientists Who Doubt the Consensus on Climate Change**\
 `The three scientists joined the administration after it dismissed hundreds of experts who were assessing how global warming is affecting the country.`\
 https://nytimes.com/2025/07/08/climate/trump-climate-energy-department.html
-
-**Sunderland sign left-back Reinildo following Atletico departure**\
-`Reinildo left the Metropolitano on a free transfer after making 103 appearances over four seasons for Atletico.`\
-https://nytimes.com/athletic/6462137/2025/07/08/sunderland-sign-left-back-reinildo-following-atletico-madrid-departure/
-
-**The Bounce: Early Summer League storylines**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/
-
-**Ted Cruz Was Vacationing in Greece as Floods Devastated Texas**\
-`The Republican senator, who was on a preplanned family vacation, did not return to his state until 72 hours after the deadly disaster, which his office said was as quickly as possible.`\
-https://nytimes.com/2025/07/08/us/ted-cruz-texas-floods-vacation-greece.html
 
