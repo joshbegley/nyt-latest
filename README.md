@@ -1,3 +1,7 @@
+**Should You Be ‘Fibermaxxing’?**\
+`A familiar concept gets some Gen Z branding, and unlike other trends, experts are encouraging it.`\
+https://nytimes.com/2025/07/08/style/fibermaxxing-tiktok-trend.html
+
 **Caitlin Clark plans to return from injury Wednesday vs. Valkyries**\
 `Clark has missed 10 games so far this season, first with a left quad strain and then a groin injury.`\
 https://nytimes.com/athletic/6481223/2025/07/08/caitlin-clark-fever-groin-injury/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6481094/2025/07/08/celtics-al-horford-brad-stevens-
 **Let Us Help You Find Your Next Book: Science Fiction**\
 `Whether you're looking for a classic or the latest and greatest, start here.`\
 https://nytimes.com/interactive/2025/books/science-fiction-books.html
-
-**Our Best S’mores Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/smores-recipes
 
