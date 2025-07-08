@@ -1,3 +1,7 @@
+**Trump Hires Scientists Who Doubt the Consensus on Climate Change**\
+`The three scientists joined the administration after it dismissed hundreds of experts who were assessing how global warming is affecting the country.`\
+https://nytimes.com/2025/07/08/climate/trump-climate-energy-department.html
+
 **Sunderland sign left-back Reinildo following Atletico departure**\
 `Reinildo left the Metropolitano on a free transfer after making 103 appearances over four seasons for Atletico.`\
 https://nytimes.com/athletic/6462137/2025/07/08/sunderland-sign-left-back-reinildo-following-atletico-madrid-departure/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/arts/music/aix-festival-opera-highlights-2025.htm
 **Spanish authorities release initial findings into car crash that killed Diogo Jota**\
 `Liverpool forward Jota and his brother Andre Silva were killed in a car accident in Spain in the early hours of Thursday morning.`\
 https://nytimes.com/athletic/6480020/2025/07/08/diogo-jota-car-crash-spain-police/
-
-**Wildfires Burn in Spain and France After Blistering Heat Wave**\
-`Weather agencies issued warnings for other parts of Europe where temperatures were expected to climb this week.`\
-https://nytimes.com/2025/07/08/world/europe/france-spain-wildfires-heat-wave.html
 
