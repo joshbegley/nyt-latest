@@ -1,3 +1,7 @@
+**How Do You Self-Identify? For Many Americans, Checking a Box Won’t Do.**\
+`The New York mayoral candidate Zohran Mamdani said that his background doesn’t fit neatly into simple categories. Others say they’ve struggled with the same issue.`\
+https://nytimes.com/2025/07/08/us/race-ethnicity-identity-americans.html
+
 **How Do Israel and Hamas Negotiate in Qatar?**\
 `The ongoing presence of negotiators from Hamas and Israel in the Qatari capital, Doha, suggests that both sides are serious about clinching a deal.`\
 https://nytimes.com/2025/07/08/world/middleeast/how-do-israel-and-hamas-negotiate-in-qatar.html
