@@ -1,3 +1,15 @@
+**The New York Times International Edition in Print for Wednesday, July 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/08/todays-new-york-times-international-edition
+
+**7 Rounds of Talks and No Deal: Japan Girds for New Era of U.S. Relations**\
+`Tokyo had expected smooth tariff negotiations but is experiencing whiplash, becoming a central target of President Trump’s trade frustrations.`\
+https://nytimes.com/2025/07/08/business/trump-tariffs-japan-trade-talks.html
+
+**Trump’s New Trade Threats Set Off Global Scramble to Avoid Tariffs**\
+`Many countries thought they were negotiating in good faith. The White House renewed its “reciprocal” tariff plan anyway, giving countries until Aug. 1 to make offers.`\
+https://nytimes.com/2025/07/08/business/economy/trump-tariffs-talks.html
+
 **Sweden’s Secret to Well-Being? Tiny Urban Gardens.**\
 `Known as koloniträdgårdar, they provide city dwellers access to nature, fresh produce and community.`\
 https://nytimes.com/2025/07/08/well/swedens-secret-to-well-being-tiny-urban-gardens.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010271558/how-the-attention-economy-is-d
 **Is Gary Shteyngart One of the Last Novelists to Make Real Money From the Craft?**\
 `Mr. Shteyngart was once told he might be. With his sixth novel, “Vera, or Faith,” out now, he’s spent the last few years spending it well.`\
 https://nytimes.com/2025/07/08/style/gary-shteyngart-book-vera-or-faith.html
-
-**What to Know About the Collapse of the F.D.A.**\
-`The regulatory agency confronts a future determined by a health secretary hostile to its mission.`\
-https://nytimes.com/2025/07/08/magazine/fda-collapse-rfk-takeaways.html
-
-**The dark arts of tennis: 'I know that I have some very controversial habits'**\
-`Like every sport, tennis has its grey areas — and players who will exploit them more than others.`\
-https://nytimes.com/athletic/6478578/2025/07/08/tennis-dark-arts-gamesmanship-mto-bathroom-break/
-
-**Lorna Simpson’s Brooklyn Art Studio Is On the Market**\
-`The four-story modern house in Fort Greene, which the artist had built two decades ago, is asking $6.5 million.`\
-https://nytimes.com/2025/07/08/realestate/lorna-simpson-brooklyn-art-studio-sale.html
 
