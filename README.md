@@ -1,3 +1,15 @@
+**Tuesday Briefing: Trump’s New Tariff Threats**\
+`Plus, the beautiful chaos of Rio’s beaches.`\
+https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
+
+**This Is BYD, the Chinese Car That’s Taking Over the World**\
+`China’s national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
+https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
+
+**The New York Times in Print for Tuesday, July 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/08/todays-new-york-times
+
 **England vs India discussed: Gill's glorious batting, series predictions – and can Archer bounce back?**\
 `The England v India series is two matches in and has packed plenty of drama in already – The Athletic debate the action and what is to come`\
 https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6468756/2025/07/08/barcelona-camp-nou-stadium-retur
 **Why the coaching refresh at Manchester City demonstrates a real appetite for change**\
 `City's Club World Cup campaign has given new staff time to bed in and provide an energy that was lacking for much of last season`\
 https://nytimes.com/athletic/6477588/2025/07/08/manchester-city-coaching-changes/
-
-**Chelsea, Estevao and the race for Brazil's best: 'Stockpiling', smart or both?**\
-`The way Europe's top clubs recruit from South America has changed, but for every Vinicius Junior there are plenty who do not make the grade`\
-https://nytimes.com/athletic/6478999/2025/07/08/chelsea-estevao-brazilians-transfers/
-
-**Analysing Gilberto Mora, Mexico's 16-year-old wonderkid who broke a Lamine Yamal record on Sunday**\
-`'The kid, Mora' played a key role in the knockout stages as Mexico won the Gold Cup — and he is a player to watch a year out from World Cup`\
-https://nytimes.com/athletic/6477947/2025/07/08/gilberto-mora-mexico-yamal-record-gold-cup/
-
-**The Hampton story: Meet the player tasked with replacing Lionesses icon Earps**\
-`Mary Earps became recognised as the world's best goalkeeper and was one of the faces of this England team but now it is Hampton's time`\
-https://nytimes.com/athletic/6451210/2025/07/08/hannah-hampton-lionesses-england-earps/
 
