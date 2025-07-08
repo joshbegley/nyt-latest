@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6478471/2025/07/08/the-mlb-trade-deadline-a-dud-plu
 `The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
 https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
 
-**FIFA open New York office in US president's Trump Tower**\
+**FIFA opens New York office in US president's Trump Tower**\
 `FIFA boss Gianni Infantino has forged strong links with Trump as the US is hosting this summer's Club World Cup.`\
 https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
 
