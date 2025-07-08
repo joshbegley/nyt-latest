@@ -1,3 +1,15 @@
+**Spanish authorities release initial findings into car crash that killed Diogo Jota**\
+`Liverpool forward Jota and his brother Andre Silva were killed in a car accident in Spain in the early hours of Thursday morning.`\
+https://nytimes.com/athletic/6480020/2025/07/08/diogo-jota-car-crash-spain-police/
+
+**Wildfires Burn in Spain and France After Blistering Heat Wave**\
+`Weather agencies issued warnings for other parts of Europe where temperatures were expected to climb this week.`\
+https://nytimes.com/2025/07/08/world/europe/france-spain-wildfires-heat-wave.html
+
+**Tottenham's Alejo Veliz returns to former club Rosario Central**\
+`The deal does not include an option or obligation to make the move permanent next summer.`\
+https://nytimes.com/athletic/6479770/2025/07/08/alejo-veliz-loan-deal-tottenham-rosario-central/
+
 **Actors Dressing the Part of Tourists**\
 `A duo’s charisma drew attention to their outfits on the streets of Hong Kong.`\
 https://nytimes.com/2025/07/08/style/street-style-look-casual-travel-clothes.html
