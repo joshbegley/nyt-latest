@@ -1,3 +1,7 @@
+**Trump’s Frustration with Putin Preceded Resumption of U.S. Weapons to Ukraine**\
+`President Trump lashed out at the Russian leader on Tuesday, signaling an change in his posture toward the conflict.`\
+https://nytimes.com/2025/07/08/us/politics/trumps-putin-ukraine.html
+
 **T.S.A. Officially Tells Fliers They Can Keep Their Shoes On**\
 `Pointing to “layered screening,” Kristi Noem, the homeland security secretary, ended two decades of socks and bare feet at U.S. airport checkpoints.`\
 https://nytimes.com/2025/07/08/travel/tsa-airports-security-shoes.html
@@ -25,8 +29,4 @@ https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
 **Confronted Over Epstein Files, Trump and Bondi Tell Supporters to Move On**\
 `A small but influential cohort of the president’s far-right political coalition spared him their ire but turned with a vengeance on the attorney general and the top officials at the F.B.I.`\
 https://nytimes.com/2025/07/08/us/politics/trump-epstein.html
-
-**Cooper Flagg vs. Bronny James tickets at NBA Summer League hitting record prices**\
-`Day 1's slate also features a matchup between No. 2 pick Dylan Harper and No. 3 pick VJ Edgecombe.`\
-https://nytimes.com/athletic/6481576/2025/07/08/cooper-flagg-bronny-james-nba-summer-league/
 
