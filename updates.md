@@ -1,3 +1,11 @@
+**Leeds confident of signing Lille left-back Gudmundsson**\
+`The Sweden international will be the club’s fourth acquisition of the summer, following Lukas Nmecha, Jaka Bijol and Sebastiaan Bornauw.`\
+https://nytimes.com/athletic/6479081/2025/07/08/leeds-transfer-gudmundsson-lille-news/
+
+**Roebuck joins Villa after Barcelona exit**\
+`Roebuck previously enjoyed a successful spell in English football with Manchester City winning the WSL title and the FA Cup three times.`\
+https://nytimes.com/athletic/6479674/2025/07/08/aston-villa-women-ellie-roebuck-barcelona/
+
 **The New York Times International Edition in Print for Wednesday, July 9, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/08/todays-new-york-times-international-edition
