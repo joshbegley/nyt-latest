@@ -1,3 +1,11 @@
+**How Insularity Defined the Last Stages of Biden’s Career**\
+`The effort by Joseph R. Biden Jr.’s inner circle to limit access to him helps explain why it took him more than three weeks to drop his re-election bid after his disastrous debate performance.`\
+https://nytimes.com/2025/07/08/us/politics/biden-aides-election-age.html
+
+**What are the Health Benefits of Sunshine?**\
+`We’ve been taught to avoid the sun at all costs. Is that right?`\
+https://nytimes.com/2025/07/08/well/health-benefits-sun-exposure.html
+
 **Team Clark or Team Collier? Our experts draft their WNBA All-Star squads**\
 `The WNBA All-Star Game draft takes place Tuesday night. Who should Clark and Collier choose as teammates? `\
 https://nytimes.com/athletic/6480368/2025/07/08/wnba-all-star-draft-picks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/08/world/europe/hide-wagner-plot-kidnap-uk.html
 **Why Kirk Cousins felt 'misled' by the Falcons and played through injury in Netflix series**\
 `Cousins says "it would have affected my decision" to sign with the Falcons if he knew they were planning to draft a quarterback early.`\
 https://nytimes.com/athletic/6479842/2025/07/08/falcons-quarterback-kirk-cousins-penix-jr-netflix/
-
-**Wales team bus involved in road collision, Euro 2025 training cancelled**\
-`Wales have cancelled their training for this evening ahead of their match against France due to the collision.`\
-https://nytimes.com/athletic/6480253/2025/07/08/wales-women-team-bus-road-collision/
-
-**Trump’s U-Turn on Weapons Leaves Ukrainians Hopeful but Cautious**\
-`After President Trump’s announcement that the United States would send more military aid, some were grateful, others were skeptical, mindful of his seesawing policy.`\
-https://nytimes.com/2025/07/08/world/europe/ukraine-russia-us-weapons-trump.html
 
