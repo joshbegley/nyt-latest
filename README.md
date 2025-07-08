@@ -1,3 +1,7 @@
+**Gavin McKenna, projected 2026 NHL Draft No. 1 pick, commits to Penn State**\
+`McKenna, who has dominated the WHL over the last two years, will play his draft season in the NCAA.`\
+https://nytimes.com/athletic/6478468/2025/07/08/gavin-mckenna-penn-state-2026-nhl-draft/
+
 **Jeff Williams, Apple’s Chief Operating Officer, to Retire After 27 Years**\
 `Mr. Williams was long considered a leading candidate to replace Tim Cook as the company’s next chief executive.`\
 https://nytimes.com/2025/07/08/technology/jeff-williams-apple-retiring.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6481510/2025/07/08/mets-francisco-alvarez-free-agen
 **Clippers likely to sign Bradley Beal if Suns buy out contract: Sources**\
 `If he goes to the Clippers, Beal would be part of a potential lineup including James Harden, Kawhi Leonard, John Collins and Ivica Zubac.`\
 https://nytimes.com/athletic/6481521/2025/07/08/bradley-beal-buyout-suns-clippers-nba-free-agency/
-
-**The Supreme Court Cleared the Way for Mass Federal Firings**\
-`Also, Trump accused Putin of duplicity. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/07/08/briefing/supreme-court-mass-firings-trump-putin-ukraine.html
 
