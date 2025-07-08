@@ -1,3 +1,11 @@
+**Should New York City Ditch Its Party Primaries in Favor of Open Races?**\
+`A panel created by Mayor Eric Adams wants to consider using an âopen primaryâ system for elections in New York City. Hereâs how the plan would work.`\
+https://nytimes.com/2025/07/08/nyregion/open-primary-elections-nyc.html
+
+**What Is a Trade Deal? Trump Takes an Expansive View**\
+`The president is deploying the word âdealâ liberally, using the term to describe all kinds of trade arrangements, some very limited or one-sided.`\
+https://nytimes.com/2025/07/08/us/politics/trump-trade-deal.html
+
 **Mike Brown on coaching Knicks: 'Nobody has bigger expectations than I do'**\
 `Mike Brown spoke to the media for the first time as the Knicks head coach.`\
 https://nytimes.com/athletic/6476058/2025/07/08/mike-brown-knicks-head-coach/
@@ -21,12 +29,4 @@ https://nytimes.com/newsgraphics/card-story/london-cockney-pie-mash
 **Richard Greenberg, Playwright Whose âTake Me Outâ Won a Tony, Dies at 67**\
 `More than 30 of his plays were produced on Broadway and off. Many of them dealt with the manners and mores of New Yorkâs upper middle class.`\
 https://nytimes.com/2025/07/08/theater/richard-greenberg-dead.html
-
-**Supreme Court Clears Way for Mass Firings at Federal Agencies**\
-`The Trump administration had asked the justices to block a lower courtâs ruling that paused the largest phase of the presidentâs efforts to downsize the government.`\
-https://nytimes.com/2025/07/08/us/politics/supreme-court-federal-workers-layoffs.html
-
-**Celtics might be done with offseason moves, Al Horford's return 'unlikely'**\
-`"We're very comfortable with this group heading into next season," Brad Stevens said of the Celtics roster.`\
-https://nytimes.com/athletic/6481094/2025/07/08/celtics-al-horford-brad-stevens-nba-free-agency/
 

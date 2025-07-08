@@ -1,3 +1,11 @@
+**Should New York City Ditch Its Party Primaries in Favor of Open Races?**\
+`A panel created by Mayor Eric Adams wants to consider using an âopen primaryâ system for elections in New York City. Hereâs how the plan would work.`\
+https://nytimes.com/2025/07/08/nyregion/open-primary-elections-nyc.html
+
+**What Is a Trade Deal? Trump Takes an Expansive View**\
+`The president is deploying the word âdealâ liberally, using the term to describe all kinds of trade arrangements, some very limited or one-sided.`\
+https://nytimes.com/2025/07/08/us/politics/trump-trade-deal.html
+
 **Mike Brown on coaching Knicks: 'Nobody has bigger expectations than I do'**\
 `Mike Brown spoke to the media for the first time as the Knicks head coach.`\
 https://nytimes.com/athletic/6476058/2025/07/08/mike-brown-knicks-head-coach/
