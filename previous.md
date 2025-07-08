@@ -1,3 +1,15 @@
+**Attack on Cargo Ship in the Red Sea Kills 2 Crew Members**\
+`The incident occurred a day after Houthi militants in Yemen targeted another vessel, their first assault on shipping since President Trump announced a truce with them.`\
+https://nytimes.com/2025/07/08/world/middleeast/red-sea-ship-attack.html
+
+**‘Memnon’ Review: To Fight or Not to Fight?**\
+`In Will Power’s play for the Classical Theater of Harlem, Eric Berryman stars as an Ethiopian king drawn into the Trojan War.`\
+https://nytimes.com/2025/07/08/theater/memnon-review-harlem-classical.html
+
+**Trump’s Big Bill Is Now Law. What Was Learned?**\
+`Readers see varying lessons in President Trump’s domestic policy bill. Also: Cuts that hurt community health.`\
+https://nytimes.com/2025/07/08/opinion/trump-bill.html
+
 **‘Playing the Man’: Global Diplomacy in the Trump Era Is All About Flattery**\
 `Prime Minister Benjamin Netanyahu of Israel handed a letter to President Trump nominating him for the Nobel Peace Prize. But it’s not clear whether stroking the president’s ego has long-lasting effects.`\
 https://nytimes.com/2025/07/08/world/europe/trump-diplomacy-flattery-world-leaders.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6480352/2025/07/08/angel-reese-wnba-officiating-fou
 **Why Real Madrid want to postpone their first La Liga game of the new season**\
 `The Spanish side's progress at the Club World Cup means their window for holiday and pre-season has got smaller and smaller.`\
 https://nytimes.com/athletic/6477707/2025/07/08/real-madrid-osasuna-la-liga-club-world-cup/
-
-**How Insularity Defined the Last Stages of Biden’s Career**\
-`The effort by Joseph R. Biden Jr.’s inner circle to limit access to him helps explain why it took him more than three weeks to drop his re-election bid after his disastrous debate performance.`\
-https://nytimes.com/2025/07/08/us/politics/biden-aides-election-age.html
-
-**What are the Health Benefits of Sunshine?**\
-`We’ve been taught to avoid the sun at all costs. Is that right?`\
-https://nytimes.com/2025/07/08/well/health-benefits-sun-exposure.html
-
-**Team Clark or Team Collier? Our experts draft their WNBA All-Star squads**\
-`The WNBA All-Star Game draft takes place Tuesday night. Who should Clark and Collier choose as teammates? `\
-https://nytimes.com/athletic/6480368/2025/07/08/wnba-all-star-draft-picks/
-
-**Trump’s Budget Would Clip Bird Banding. Hunters Are Not Happy.**\
-`The Bird Banding Laboratory has turned duck hunters into citizen scientists. What happens if it is defunded?`\
-https://nytimes.com/2025/07/08/science/trump-budget-birds-banding-hunters.html
 

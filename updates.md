@@ -1,3 +1,15 @@
+**Attack on Cargo Ship in the Red Sea Kills 2 Crew Members**\
+`The incident occurred a day after Houthi militants in Yemen targeted another vessel, their first assault on shipping since President Trump announced a truce with them.`\
+https://nytimes.com/2025/07/08/world/middleeast/red-sea-ship-attack.html
+
+**‘Memnon’ Review: To Fight or Not to Fight?**\
+`In Will Power’s play for the Classical Theater of Harlem, Eric Berryman stars as an Ethiopian king drawn into the Trojan War.`\
+https://nytimes.com/2025/07/08/theater/memnon-review-harlem-classical.html
+
+**Trump’s Big Bill Is Now Law. What Was Learned?**\
+`Readers see varying lessons in President Trump’s domestic policy bill. Also: Cuts that hurt community health.`\
+https://nytimes.com/2025/07/08/opinion/trump-bill.html
+
 **‘Playing the Man’: Global Diplomacy in the Trump Era Is All About Flattery**\
 `Prime Minister Benjamin Netanyahu of Israel handed a letter to President Trump nominating him for the Nobel Peace Prize. But it’s not clear whether stroking the president’s ego has long-lasting effects.`\
 https://nytimes.com/2025/07/08/world/europe/trump-diplomacy-flattery-world-leaders.html
