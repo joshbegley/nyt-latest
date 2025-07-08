@@ -1,3 +1,7 @@
+**Why Americans Can’t Buy the World’s Best Electric Car**\
+`China’s national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
+https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
+
 **Word of the Day: taqueria**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html

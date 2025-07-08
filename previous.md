@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html
 `Plus, the beautiful chaos of Rio’s beaches.`\
 https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
 
-**This Is BYD, the Chinese Car That’s Taking Over the World**\
+**Why Americans Can’t Buy the World’s Best Electric Car**\
 `China’s national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
 https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
 
