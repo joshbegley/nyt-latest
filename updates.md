@@ -1,3 +1,7 @@
+**5 Israeli Soldiers Killed in Gaza, Military Says**\
+`Officials said the he troops were killed during combat in northern Gaza, but offered few other details.`\
+https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
+
 **Jon Stewart Thinks Congress Is Basically Pro Wrestling Without the Fun**\
 `The “Daily Show” host said the drama around President Trump’s big policy bill was about as authentic as a World Wrestling Entertainment match.`\
 https://nytimes.com/2025/07/08/arts/television/jon-stewart-trump-bill-wrestling.html
