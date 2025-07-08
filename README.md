@@ -1,3 +1,7 @@
+**Dozens Are Killed as Antigovernment Protests Erupt Across Kenya**\
+`Simmering anger against President William Ruto’s government has boiled over into clashes between protesters and the police, who have deployed live rounds, tear gas and water cannons.`\
+https://nytimes.com/2025/07/08/world/africa/kenya-antigovernment-protests-ruto.html
+
 **Minor-league stint could delay free agency for Mets' Francisco Alvarez**\
 `Unless Alvarez is recalled to the majors by Saturday, he wouldn't be a free agent until after the 2029 season, a year later than expected.`\
 https://nytimes.com/athletic/6481510/2025/07/08/mets-francisco-alvarez-free-agency/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/nyregion/nypd-corruption-lawsuits-adams.html
 **Scott Frost admits that leaving UCF for Nebraska 'wasn’t a good move'**\
 `Now back at UCF and in the Big 12, Frost opens up about his decision to leave for his alma mater in 2017.`\
 https://nytimes.com/athletic/6481439/2025/07/08/scott-frost-regret-leaving-ucf-nebraska/
-
-**Wimbledon day 9 recap: Dark arts on Centre Court and Amanda Anisimova reintroduces herself**\
-`On the first quarterfinal day, a very difficult opponent tested world No. 1 Aryna Sabalenka and Carlos Alcaraz also hit his stride.`\
-https://nytimes.com/athletic/6481349/2025/07/08/tennis-wimbledon-recap-results-analysis-day-9/
 
