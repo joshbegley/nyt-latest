@@ -1,12 +1,16 @@
+**Tottenham complete signing of Japan international defender Kota Takai**\
+`Takei is the first signing under new head coach Thomas Frank who was not on loan at the club last season.`\
+https://nytimes.com/athletic/6447636/2025/07/08/tottenham-complete-signing-of-japan-international-defender-kota-takai/
+
 **South Korea Holds Its Chin Up as Trump Wields Tariff Threat**\
 `The country’s new president, in office for a little over a month, had just dispatched his senior deputies to Washington to try to work out a trade deal.`\
 https://nytimes.com/2025/07/08/business/trump-tariffs-south-korea.html
 
-**What Moise Kean could bring to Manchester United: Off-the-shoulder runs and penalty-box prowess**\
+**Why Moise Kean is a completely different player now to the one who struggled at Everton**\
 `Manchester United are keeping tabs on the former Everton striker, who shone in Serie A last season at Fiorentina `\
 https://nytimes.com/athletic/6479235/2025/07/08/moise-kean-striker-fiorentina-manchester-united/
 
-**The last British man in the Wimbledon singles who is at home under the radar**\
+**The last British man in the Wimbledon singles is at home under the radar**\
 `Norrie's Wimbledon record should make him a folk hero, but he remains under the radar ahead of a date with Carlos Alcaraz.`\
 https://nytimes.com/athletic/6477727/2025/07/08/tennis-wimbledon-cameron-norrie-british/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/crosswords/spelling-bee-forum.html
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `This is your weekly guide to what is happening across the summer transfer window`\
 https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/
-
-**Word of the Day: taqueria**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html
 
