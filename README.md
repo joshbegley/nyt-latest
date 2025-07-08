@@ -1,3 +1,15 @@
+**5 Israeli Soldiers Killed in Gaza, Military Says**\
+`The Israeli military said the soldiers were killed during combat in northern Gaza, but offered few other details.`\
+https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
+
+**Lung Cancer Screening on Wheels**\
+`On the road with a 68,000-pound tractor-trailer that crisscrosses West Virginia, saving lives.`\
+https://nytimes.com/2025/07/08/science/lung-cancer-screening-appalachia.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/08/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `This is your weekly guide to what is happening across the summer transfer window`\
 https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
 **How has France’s relationship with the Tour de France changed after 40 years without overall victory?**\
 `It is sometimes taken as a given that a lack of success has inhibited the nation's enthusiasm for its home race. Not a bit of it`\
 https://nytimes.com/athletic/6476954/2025/07/08/tour-de-france-40-years-no-french-win-impact/
-
-**Selling Kudus to Tottenham: A necessary evil for West Ham?**\
-`As unpalatable as the move may be for West Ham fans, the club doesn't have many other options right now`\
-https://nytimes.com/athletic/6477680/2025/07/08/kudus-west-ham-tottenham/
-
-**Brighton will need to trim their squad - so who should make way?**\
-`Up to now, Brighton's business has been dominated by additions to Fabian Hurzeler's squad - now it's time to trim back...`\
-https://nytimes.com/athletic/6465012/2025/07/08/brighton-will-need-to-trim-their-squad-so-who-should-make-way/
-
-**Donyell Malen's curious start at Aston Villa. What comes next?**\
-`Malen signed for Villa in January and was promptly left out of their Champions League squad - now is his time to make his mark`\
-https://nytimes.com/athletic/6049403/2025/07/08/donyell-malen-aston-villa-curious-start/
 
