@@ -1,3 +1,19 @@
+**Let Us Help You Find Your Next Book: Science Fiction**\
+`Whether you're looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/science-fiction-books.html
+
+**Our Best S’mores Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/smores-recipes
+
+**gws-cass-elliot-mamas-and-the-papas-death**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-cass-elliot-mamas-and-the-papas-death
+
+**Judge Fines Lawyers for MyPillow Founder for Error-Filled Court Filing**\
+`The judge said the lawyers had not explained how such errors could have been filed “absent the use of generative artificial intelligence or gross carelessness by counsel.”`\
+https://nytimes.com/2025/07/08/us/judge-fines-lawyers-mypillow-ai.html
+
 **Trump Accuses Putin of Being a Roadblock to Peace Deal**\
 `President Trump did not answer questions about a pause in arms shipments to Ukraine last week during a cabinet meeting on Tuesday, and instead repeatedly criticized President Vladimir Putin of Russia, blaming him for impeding peace deals with Ukraine.`\
 https://nytimes.com/video/us/politics/100000010273678/trump-criticises-putin.html
