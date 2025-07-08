@@ -1,3 +1,7 @@
+**Word of the Day: taqueria**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html
+
 **Tuesday Briefing: Trump’s New Tariff Threats**\
 `Plus, the beautiful chaos of Rio’s beaches.`\
 https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6049403/2025/07/08/donyell-malen-aston-villa-curiou
 **Can Barcelona really return to the Camp Nou next month?**\
 `The reconstruction of Barca's iconic stadium is already nine months behind schedule. Will this latest deadline slip?`\
 https://nytimes.com/athletic/6468756/2025/07/08/barcelona-camp-nou-stadium-return-joan-gamper/
-
-**Why the coaching refresh at Manchester City demonstrates a real appetite for change**\
-`City's Club World Cup campaign has given new staff time to bed in and provide an energy that was lacking for much of last season`\
-https://nytimes.com/athletic/6477588/2025/07/08/manchester-city-coaching-changes/
 
