@@ -1,3 +1,7 @@
+**Phillies, silenced by an opponent and an umpire, are still waiting for Bryce Harper to power them**\
+`The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
+https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
+
 **Rosenthal: As Rockies spiral towards historic losing season, front office shakeup could be looming**\
 `The idea of Colorado moving on from GM Bill Schmidt is generating chatter and drawing public acknowledgment from ownership.`\
 https://nytimes.com/athletic/6479400/2025/07/08/colorado-rockies-bill-schmidt-general-manager/
