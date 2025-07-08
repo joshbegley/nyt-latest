@@ -1,3 +1,7 @@
+**Beating Real Madrid will prove beyond doubt that PSG are Europe's elite team**\
+`Madrid might have been a diminshed force during 2024-25 but they remain the ultimate test of a team's knockout credentials`\
+https://nytimes.com/athletic/6478371/2025/07/08/psg-real-madrid-club-world-cup/
+
 **Macron’s U.K. State Visit: A Carriage Ride, a Royal Banquet and a Power Lunch**\
 `President Emmanuel Macron’s state visit to Britain, which begins Tuesday, will be heavy on pageantry. But both he and Prime Minister Keir Starmer hope for practical results.`\
 https://nytimes.com/2025/07/08/world/europe/macron-starmer-france-uk-state-visit.html
