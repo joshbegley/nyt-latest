@@ -1,3 +1,7 @@
+**Padres' Manny Machado joins historic group with 2,000th hit**\
+`After lining a first-inning single for his 1,999th hit, he produced a 109 mph ground ball in the fourth to capture a piece of history.`\
+https://nytimes.com/athletic/6446906/2025/07/07/sd-padres-manny-machado-2000-hits/
+
 **Long Looks**\
 `Jesse Guzman makes the grade.`\
 https://nytimes.com/2025/07/07/crosswords/daily-puzzle-2025-07-08.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/07/07/us/politics/irs-churches-politics-endorse-candida
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-mandels-college-football-mailbag-305/
-
-**Trump Looks to Avoid Casting Blame in Texas Flood as Democrats Question Cuts**\
-`The White House rebuked critics for raising questions about the administration’s efforts to shrink federal agencies that deal with disaster preparedness and response.`\
-https://nytimes.com/2025/07/07/us/politics/trump-texas-floods.html
 
