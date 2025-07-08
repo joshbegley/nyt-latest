@@ -1,3 +1,7 @@
+**Detroit Pistons roster reset: Who can they target with their trade exception?**\
+`Just over a week into offseason free agency, Trajan Langdon has kept his word. Can they now make a trade without any long-term commitments?`\
+https://nytimes.com/athletic/6479979/2025/07/08/detroit-pistons-offseason-transactions/
+
 **Ivar Giaever, Nobel Winner in Quantum Physics, Dies at 96**\
 `A former “D” student from Norway, he made his mark at G.E.’s Research Lab in the U.S., in part by confirming a pivotal theory about superconductivity.`\
 https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6478192/2025/07/08/myles-turner-damian-lillard-buck
 **Attack on Cargo Ship in the Red Sea Kills 2 Crew Members**\
 `The incident occurred a day after Houthi militants in Yemen targeted another vessel, their first assault on shipping since President Trump announced a truce with them.`\
 https://nytimes.com/2025/07/08/world/middleeast/red-sea-ship-attack.html
-
-**‘Memnon’ Review: To Fight or Not to Fight?**\
-`In Will Power’s play for the Classical Theater of Harlem, Eric Berryman stars as an Ethiopian king drawn into the Trojan War.`\
-https://nytimes.com/2025/07/08/theater/memnon-review-harlem-classical.html
 

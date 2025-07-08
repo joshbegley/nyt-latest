@@ -1,3 +1,7 @@
+**Detroit Pistons roster reset: Who can they target with their trade exception?**\
+`Just over a week into offseason free agency, Trajan Langdon has kept his word. Can they now make a trade without any long-term commitments?`\
+https://nytimes.com/athletic/6479979/2025/07/08/detroit-pistons-offseason-transactions/
+
 **Ivar Giaever, Nobel Winner in Quantum Physics, Dies at 96**\
 `A former “D” student from Norway, he made his mark at G.E.’s Research Lab in the U.S., in part by confirming a pivotal theory about superconductivity.`\
 https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
