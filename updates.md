@@ -1,3 +1,11 @@
+**Long Looks**\
+`Jesse Guzman makes the grade.`\
+https://nytimes.com/2025/07/07/crosswords/daily-puzzle-2025-07-08.html
+
+**Mercury expected to sign 6-time All-Star DeWanna Bonner: Source**\
+`Bonner signed with the Indiana Fever this past offseason, but the team waived her on June 25 after nine games.`\
+https://nytimes.com/athletic/6479355/2025/07/07/phoenix-mercury-dewanna-bonner-sign-all-star/
+
 **Trump Administration, Reversing Itself, Won’t Rewrite a Ban on Asbestos**\
 `The about-face came after a public outcry over plans to reconsider Biden-era restrictions on the carcinogenic material.`\
 https://nytimes.com/2025/07/07/climate/asbestos-ban-trump.html

@@ -1,3 +1,11 @@
+**Long Looks**\
+`Jesse Guzman makes the grade.`\
+https://nytimes.com/2025/07/07/crosswords/daily-puzzle-2025-07-08.html
+
+**Mercury expected to sign 6-time All-Star DeWanna Bonner: Source**\
+`Bonner signed with the Indiana Fever this past offseason, but the team waived her on June 25 after nine games.`\
+https://nytimes.com/athletic/6479355/2025/07/07/phoenix-mercury-dewanna-bonner-sign-all-star/
+
 **Trump Administration, Reversing Itself, Won’t Rewrite a Ban on Asbestos**\
 `The about-face came after a public outcry over plans to reconsider Biden-era restrictions on the carcinogenic material.`\
 https://nytimes.com/2025/07/07/climate/asbestos-ban-trump.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-ma
 **Trump Looks to Avoid Casting Blame in Texas Flood as Democrats Question Cuts**\
 `The White House rebuked critics for raising questions about the administration’s efforts to shrink federal agencies that deal with disaster preparedness and response.`\
 https://nytimes.com/2025/07/07/us/politics/trump-texas-floods.html
-
-**Likelihood of Finding Texas Flood Survivors Fades as Death Toll Passes 100**\
-`The surging waters began tearing through Central Texas four days ago. A rescue expert said that people who survive a violent flood are usually found rapidly.`\
-https://nytimes.com/2025/07/07/us/texas-floods-search-rescue-survivors.html
-
-**Three Big Questions After the Texas Floods**\
-`The Trump administration and its predecessors will face scrutiny over the disaster that has killed more than 100 people.`\
-https://nytimes.com/2025/07/07/us/politics/texas-floods-trump-administration.html
 
