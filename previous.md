@@ -1,3 +1,7 @@
+**Why the Texas Floods Were So Deadly**\
+`Scientists say a hotter planet is driving more intense storms. But experts say the U.S. is also not doing enough to adapt to increasingly intense floods.`\
+https://nytimes.com/2025/07/08/climate/why-the-texas-floods-were-so-deadly.html
+
 **Rashford reports back to Man Utd despite club giving him time off to look for move**\
 `Rashford worked on an individual basis and did not take part in team training with the rest of Ruben Amorim’s squad.`\
 https://nytimes.com/athletic/6481154/2025/07/08/manchester-united-marcus-rashford-preseason/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/dining/where-to-eat-in-los-angeles.html
 **‘Superman’ Review: It’s a Bird, It’s a Plane, It’s a Reboot!**\
 `Beginning again with Man of Steel, this time in the hands of James Gunn.`\
 https://nytimes.com/2025/07/08/movies/superman-review.html
-
-**Photos of Macron’s U.K. State Visit, From a Carriage Ride to a Polite Kiss**\
-`President Emmanuel Macron is on a state visit to Britain, the first of a French leader since 2008. His hosts are drenching him in pomp, pizazz and protocol.`\
-https://nytimes.com/2025/07/08/world/europe/macron-uk-state-visit-royal-family-photos.html
 

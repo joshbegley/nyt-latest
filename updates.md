@@ -1,3 +1,7 @@
+**Why the Texas Floods Were So Deadly**\
+`Scientists say a hotter planet is driving more intense storms. But experts say the U.S. is also not doing enough to adapt to increasingly intense floods.`\
+https://nytimes.com/2025/07/08/climate/why-the-texas-floods-were-so-deadly.html
+
 **Rashford reports back to Man Utd despite club giving him time off to look for move**\
 `Rashford worked on an individual basis and did not take part in team training with the rest of Ruben Amorim’s squad.`\
 https://nytimes.com/athletic/6481154/2025/07/08/manchester-united-marcus-rashford-preseason/
