@@ -1,3 +1,15 @@
+**Wildfires Rage in Parts of Spain and France Following Recent Heat Wave**\
+`French and Spanish firefighters battled blazes that burned through thousands of acres for a second day. The fires followed a heat wave that dried out the terrain, creating fuel for wildfires, according to weather agencies and experts.`\
+https://nytimes.com/video/world/europe/100000010272799/wildfires-spain-france-heat-wave.html
+
+**For Family Reunions, Just Walk Down the Hall**\
+`Living in the same apartment building as a family member has provided the right balance of privacy and comfort to some New Yorkers.`\
+https://nytimes.com/2025/07/08/realestate/family-same-apartment-building.html
+
+**After signing Myles Turner and waiving Damian Lillard, where does the Bucks roster stand?**\
+`Many of the Bucks' big offseason personnel moves became official over the last two days. What else do they need to fill out their roster?`\
+https://nytimes.com/athletic/6478192/2025/07/08/myles-turner-damian-lillard-bucks/
+
 **Attack on Cargo Ship in the Red Sea Kills 2 Crew Members**\
 `The incident occurred a day after Houthi militants in Yemen targeted another vessel, their first assault on shipping since President Trump announced a truce with them.`\
 https://nytimes.com/2025/07/08/world/middleeast/red-sea-ship-attack.html

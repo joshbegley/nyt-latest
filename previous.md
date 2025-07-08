@@ -1,3 +1,15 @@
+**Wildfires Rage in Parts of Spain and France Following Recent Heat Wave**\
+`French and Spanish firefighters battled blazes that burned through thousands of acres for a second day. The fires followed a heat wave that dried out the terrain, creating fuel for wildfires, according to weather agencies and experts.`\
+https://nytimes.com/video/world/europe/100000010272799/wildfires-spain-france-heat-wave.html
+
+**For Family Reunions, Just Walk Down the Hall**\
+`Living in the same apartment building as a family member has provided the right balance of privacy and comfort to some New Yorkers.`\
+https://nytimes.com/2025/07/08/realestate/family-same-apartment-building.html
+
+**After signing Myles Turner and waiving Damian Lillard, where does the Bucks roster stand?**\
+`Many of the Bucks' big offseason personnel moves became official over the last two days. What else do they need to fill out their roster?`\
+https://nytimes.com/athletic/6478192/2025/07/08/myles-turner-damian-lillard-bucks/
+
 **Attack on Cargo Ship in the Red Sea Kills 2 Crew Members**\
 `The incident occurred a day after Houthi militants in Yemen targeted another vessel, their first assault on shipping since President Trump announced a truce with them.`\
 https://nytimes.com/2025/07/08/world/middleeast/red-sea-ship-attack.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6480202/2025/07/08/tennis-wimbledon-sabalenka-siege
 **Taylor Fritz battles blisters, Karen Khachanov to reach first Wimbledon semifinal**\
 `The American survived 6-3, 6-4, 1-6, 7-6(4) to make the final four at the world’s most important tennis tournament for the first time.`\
 https://nytimes.com/athletic/6480464/2025/07/08/tennis-wimbledon-taylor-fritz-khachanov/
-
-**Arsenal appoint Gabriel Heinze to join Mikel Arteta's coaching staff**\
-`Heinze joins Albert Stuivenberg, set-piece coach Nico Jover, and goalkeeping coach Inaki Cana in Arteta's coaching team.`\
-https://nytimes.com/athletic/6478034/2025/07/08/arsenal-heinze-coach-appointment/
-
-**Angel Reese fed up with WNBA officiating: 'I'm tired of this'**\
-`Angel Reese aired her grievances with WNBA officiating following the Chicago Sky's road loss at Minnesota on Sunday.`\
-https://nytimes.com/athletic/6480352/2025/07/08/angel-reese-wnba-officiating-fouls/
-
-**Why Real Madrid want to postpone their first La Liga game of the new season**\
-`The Spanish side's progress at the Club World Cup means their window for holiday and pre-season has got smaller and smaller.`\
-https://nytimes.com/athletic/6477707/2025/07/08/real-madrid-osasuna-la-liga-club-world-cup/
 
