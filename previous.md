@@ -1,3 +1,19 @@
+**California Rejects Trump Demand to Remove Trans Athletes From Women’s Sports**\
+`The Trump administration signaled that it would pursue enforcement actions against the state and previously threatened to cut federal education funds.`\
+https://nytimes.com/2025/07/08/us/politics/trump-transgender-athletes-california.html
+
+**Musk’s Third Party Starts With a Good Idea**\
+`Is there a way to elect an independent bloc of senators?`\
+https://nytimes.com/2025/07/08/opinion/elon-musk-america-party.html
+
+**We Just Updated Our List of the Best Restaurants in L.A.**\
+`Casual yet extravagant Korean feasts, high-end comfort food without the fuss and another reason to love masa.`\
+https://nytimes.com/2025/07/08/dining/where-to-eat-in-los-angeles.html
+
+**‘Superman’ Review: It’s a Bird, It’s a Plane, It’s a Reboot!**\
+`Beginning again with Man of Steel, this time in the hands of James Gunn.`\
+https://nytimes.com/2025/07/08/movies/superman-review.html
+
 **Photos of Macron’s U.K. State Visit, From a Carriage Ride to a Polite Kiss**\
 `President Emmanuel Macron is on a state visit to Britain, the first of a French leader since 2008. His hosts are drenching him in pomp, pizazz and protocol.`\
 https://nytimes.com/2025/07/08/world/europe/macron-uk-state-visit-royal-family-photos.html
@@ -13,20 +29,4 @@ https://nytimes.com/2025/07/08/arts/music/sean-combs-diddy-sentencing-date.html
 **Agriculture Dept. to Crack Down on Chinese Ownership of American Farmland**\
 `The agriculture secretary announced a plan to limit Chinese and foreign purchases of farmland as part of its national security strategy.`\
 https://nytimes.com/2025/07/08/us/politics/chinese-ownership-american-farmland.html
-
-**Rescue Efforts Underway After Flash Flooding in Nepal**\
-`At least seven people have been killed in the flooding, which also swept away the main bridge connecting Nepal to China.`\
-https://nytimes.com/video/weather/100000010273617/nepal-bridge-flooding-river.html
-
-**10 Charged With Attempted Murder in Officer Shooting at ICE Detention Center**\
-`One police officer was wounded after at least two people shot at officers outside an immigration detention center in Texas, according to a criminal complaint in federal court.`\
-https://nytimes.com/2025/07/08/us/ice-detention-facility-shooting-texas.html
-
-**Laura Loomer, Trump’s Blunt Instrument**\
-`The right-wing provocateur and Islamophobe has few friends in the West Wing but a big fan in the Oval Office.`\
-https://nytimes.com/2025/07/08/us/politics/laura-loomer-trump.html
-
-**If Orioles, Pirates sell at MLB trade deadline, which players have potential to step up?**\
-`Andrea Arcadipane looks at potential sellers, the Orioles and Pirates, ahead of the MLB trade deadline. `\
-https://nytimes.com/athletic/6478334/2025/07/08/mlb-trade-deadline-2025-orioles-pirates/
 
