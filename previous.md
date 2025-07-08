@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`This is your weekly guide to what is happening across the summer transfer window`\
+https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/
+
 **Word of the Day: taqueria**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6465012/2025/07/08/brighton-will-need-to-trim-their
 **Donyell Malen's curious start at Aston Villa. What comes next?**\
 `Malen signed for Villa in January and was promptly left out of their Champions League squad - now is his time to make his mark`\
 https://nytimes.com/athletic/6049403/2025/07/08/donyell-malen-aston-villa-curious-start/
-
-**Can Barcelona really return to the Camp Nou next month?**\
-`The reconstruction of Barca's iconic stadium is already nine months behind schedule. Will this latest deadline slip?`\
-https://nytimes.com/athletic/6468756/2025/07/08/barcelona-camp-nou-stadium-return-joan-gamper/
 

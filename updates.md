@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`This is your weekly guide to what is happening across the summer transfer window`\
+https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/
+
 **Why Americans Can’t Buy the World’s Best Electric Car**\
 `China’s national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
 https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
