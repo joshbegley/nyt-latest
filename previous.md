@@ -1,3 +1,11 @@
+**The Supreme Court Cleared the Way for Mass Federal Firings**\
+`Also, Trump accused Putin of duplicity. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/07/08/briefing/supreme-court-mass-firings-trump-putin-ukraine.html
+
+**Yankees bench DJ LeMahieu, move Jazz Chisholm Jr. back to second base**\
+`Aaron Boone announced that LeMahieu is no longer viewed as an everyday player. The veteran was not pleased about the change. `\
+https://nytimes.com/athletic/6481370/2025/07/08/dj-lemahieu-yankees-bench-jazz-chisholm/
+
 **Independent English football regulator given green light by MPs**\
 `The bill passed by a majority of 415 votes in favour to 98 against, making its passage into law this summer a formality.`\
 https://nytimes.com/athletic/6481479/2025/07/08/independent-football-regulator-passed/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/07/08/world/europe/bayeux-tapestry-england-france-briti
 **The conman, the Champions League final, and how the king jibber was brought down**\
 `Stephen Carruthers avoided jail but received a fine and will do community service after 'jibbing' his way into the Champions League final`\
 https://nytimes.com/athletic/6467321/2025/07/08/stephen-carruthers-blagger-champions-league-final/
-
-**Fluminense 0 Chelsea 2: Two Joao Pedro wondergoals seal final spot, but should Brazilians have had a penalty?**\
-`Chelsea will play PSG or Real Madrid in the Club World Cup final after beating Fluminense at MetLife Stadium`\
-https://nytimes.com/athletic/6477515/2025/07/08/chelsea-fluminense-neto-club-world-cup/
-
-**Dueling U.S. Efforts Botched a Deal to Swap Venezuelans Held in El Salvador for Americans**\
-`Secretary of State Marco Rubio and the U.S. envoy to Venezuela were both working on different deals and ended up at cross purposes.`\
-https://nytimes.com/2025/07/08/world/americas/trump-venezuelan-migrants-us-prisoner-swap.html
 

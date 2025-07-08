@@ -1,3 +1,11 @@
+**Minor-league stint could delay free agency for Mets' Francisco Alvarez**\
+`Unless Alvarez is recalled to the majors by Saturday, he wouldn't be a free agent until after the 2029 season, a year later than expected.`\
+https://nytimes.com/athletic/6481510/2025/07/08/mets-francisco-alvarez-free-agency/
+
+**Clippers likely to sign Bradley Beal if Suns buy out contract: Sources**\
+`If he goes to the Clippers, Beal would be part of a potential lineup including James Harden, Kawhi Leonard, John Collins and Ivica Zubac.`\
+https://nytimes.com/athletic/6481521/2025/07/08/bradley-beal-buyout-suns-clippers-nba-free-agency/
+
 **The Supreme Court Cleared the Way for Mass Federal Firings**\
 `Also, Trump accused Putin of duplicity. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/07/08/briefing/supreme-court-mass-firings-trump-putin-ukraine.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6481439/2025/07/08/scott-frost-regret-leaving-ucf-n
 **Wimbledon day 9 recap: Dark arts on Centre Court and Amanda Anisimova reintroduces herself**\
 `On the first quarterfinal day, a very difficult opponent tested world No. 1 Aryna Sabalenka and Carlos Alcaraz also hit his stride.`\
 https://nytimes.com/athletic/6481349/2025/07/08/tennis-wimbledon-recap-results-analysis-day-9/
-
-**The Bayeux Tapestry, a British Masterpiece, Returns to England After 900 Years**\
-`The embroidered work, depicting the Norman Conquest of England in 1066, is a loan from France. For the first time, it will be on exhibit in London.`\
-https://nytimes.com/2025/07/08/world/europe/bayeux-tapestry-england-france-british-museum.html
-
-**The conman, the Champions League final, and how the king jibber was brought down**\
-`Stephen Carruthers avoided jail but received a fine and will do community service after 'jibbing' his way into the Champions League final`\
-https://nytimes.com/athletic/6467321/2025/07/08/stephen-carruthers-blagger-champions-league-final/
 
