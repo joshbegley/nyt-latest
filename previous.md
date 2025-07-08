@@ -1,3 +1,31 @@
+**Aryna Sabalenka escapes Laura Siegemund upset at Wimbledon**\
+`The world No. 1 was thrown off by Siegemund's changes in pace and rhythm, but came through in three tight, tense sets.`\
+https://nytimes.com/athletic/6480202/2025/07/08/tennis-wimbledon-sabalenka-siegemund-result-analysis/
+
+**Taylor Fritz battles blisters, Karen Khachanov to reach first Wimbledon semifinal**\
+`The American survived 6-3, 6-4, 1-6, 7-6(4) to make the final four at the world’s most important tennis tournament for the first time.`\
+https://nytimes.com/athletic/6480464/2025/07/08/tennis-wimbledon-taylor-fritz-khachanov/
+
+**Arsenal appoint Gabriel Heinze to join Mikel Arteta's coaching staff**\
+`Heinze joins Albert Stuivenberg, set-piece coach Nico Jover, and goalkeeping coach Inaki Cana in Arteta's coaching team.`\
+https://nytimes.com/athletic/6478034/2025/07/08/arsenal-heinze-coach-appointment/
+
+**Angel Reese fed up with WNBA officiating: 'I'm tired of this'**\
+`Angel Reese aired her grievances with WNBA officiating following the Chicago Sky's road loss at Minnesota on Sunday.`\
+https://nytimes.com/athletic/6480352/2025/07/08/angel-reese-wnba-officiating-fouls/
+
+**Why Real Madrid want to postpone their first La Liga game of the new season**\
+`The Spanish side's progress at the Club World Cup means their window for holiday and pre-season has got smaller and smaller.`\
+https://nytimes.com/athletic/6477707/2025/07/08/real-madrid-osasuna-la-liga-club-world-cup/
+
+**How Insularity Defined the Last Stages of Biden’s Career**\
+`The effort by Joseph R. Biden Jr.’s inner circle to limit access to him helps explain why it took him more than three weeks to drop his re-election bid after his disastrous debate performance.`\
+https://nytimes.com/2025/07/08/us/politics/biden-aides-election-age.html
+
+**What are the Health Benefits of Sunshine?**\
+`We’ve been taught to avoid the sun at all costs. Is that right?`\
+https://nytimes.com/2025/07/08/well/health-benefits-sun-exposure.html
+
 **Team Clark or Team Collier? Our experts draft their WNBA All-Star squads**\
 `The WNBA All-Star Game draft takes place Tuesday night. Who should Clark and Collier choose as teammates? `\
 https://nytimes.com/athletic/6480368/2025/07/08/wnba-all-star-draft-picks/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/07/08/science/trump-budget-birds-banding-hunters.html
 **Canucks mailbag, part 2: Centre trade options? Quinn Hughes vs. Gavin McKenna?**\
 `Let's move beyond the free-agent frenzy and start looking ahead to the Canucks' future.`\
 https://nytimes.com/athletic/6477500/2025/07/08/canucks-mailbag-hughes-mckenna/
-
-**What to expect from Martin Ho, Tottenham Women's new head coach**\
-`After almost a month of searching for the right candidate following a grim season, the Spurs women's team have a new leader`\
-https://nytimes.com/athletic/6479764/2025/07/08/martin-ho-tottenham-women/
-
-**I Can’t — and Won’t — Stop Making These Recipes**\
-`Dak bulgogi (Korean BBQ chicken), crunchy queso wraps and corn and miso pasta salad are on repeat all summer.`\
-https://nytimes.com/2025/07/08/dining/i-cant-and-wont-stop-making-these-recipes.html
-
-**Four Men Charged in Plot to Seize Land Near Quebec City**\
-`The police seized a large cache of guns and explosives and said that the ‘ideologically motivated’ group included members of Canada’s military.`\
-https://nytimes.com/2025/07/08/world/canada/terrorist-plot-charges-canada-quebec.html
-
-**The Wild Russian Plot to Burn a London Restaurant and Kidnap Its Owner**\
-`Court proceedings revealed how a criminal gang in Britain were directed to target Yevgeny Chichvarkin, a dissident Russian who owns Hide, a Michelin-starred restaurant in Mayfair.`\
-https://nytimes.com/2025/07/08/world/europe/hide-wagner-plot-kidnap-uk.html
-
-**Why Kirk Cousins felt 'misled' by the Falcons and played through injury in Netflix series**\
-`Cousins says "it would have affected my decision" to sign with the Falcons if he knew they were planning to draft a quarterback early.`\
-https://nytimes.com/athletic/6479842/2025/07/08/falcons-quarterback-kirk-cousins-penix-jr-netflix/
-
-**Wales team bus involved in road collision, Euro 2025 training cancelled**\
-`Wales have cancelled their training for this evening ahead of their match against France due to the collision.`\
-https://nytimes.com/athletic/6480253/2025/07/08/wales-women-team-bus-road-collision/
-
-**Trump’s U-Turn on Weapons Leaves Ukrainians Hopeful but Cautious**\
-`After President Trump’s announcement that the United States would send more military aid, some were grateful, others were skeptical, mindful of his seesawing policy.`\
-https://nytimes.com/2025/07/08/world/europe/ukraine-russia-us-weapons-trump.html
 

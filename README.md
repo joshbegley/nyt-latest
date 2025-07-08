@@ -1,3 +1,7 @@
+**‘Playing the Man’: Global Diplomacy in the Trump Era Is All About Flattery**\
+`Prime Minister Benjamin Netanyahu of Israel handed a letter to President Trump nominating him for the Nobel Peace Prize. But it’s not clear whether stroking the president’s ego has long-lasting effects.`\
+https://nytimes.com/2025/07/08/world/europe/trump-diplomacy-flattery-world-leaders.html
+
 **Aryna Sabalenka escapes Laura Siegemund upset at Wimbledon**\
 `The world No. 1 was thrown off by Siegemund's changes in pace and rhythm, but came through in three tight, tense sets.`\
 https://nytimes.com/athletic/6480202/2025/07/08/tennis-wimbledon-sabalenka-siegemund-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6480368/2025/07/08/wnba-all-star-draft-picks/
 **Trump’s Budget Would Clip Bird Banding. Hunters Are Not Happy.**\
 `The Bird Banding Laboratory has turned duck hunters into citizen scientists. What happens if it is defunded?`\
 https://nytimes.com/2025/07/08/science/trump-budget-birds-banding-hunters.html
-
-**Canucks mailbag, part 2: Centre trade options? Quinn Hughes vs. Gavin McKenna?**\
-`Let's move beyond the free-agent frenzy and start looking ahead to the Canucks' future.`\
-https://nytimes.com/athletic/6477500/2025/07/08/canucks-mailbag-hughes-mckenna/
 
