@@ -1,3 +1,11 @@
+**Francisco Alvarez blocks out frustration, commits to new path: 'Baseball never stops'**\
+`The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
+https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/
+
+**Trump’s Frustration with Putin Preceded Resumption of U.S. Weapons to Ukraine**\
+`President Trump lashed out at the Russian leader on Tuesday, signaling an change in his posture toward the conflict.`\
+https://nytimes.com/2025/07/08/us/politics/trumps-putin-ukraine.html
+
 **T.S.A. Officially Tells Fliers They Can Keep Their Shoes On**\
 `Pointing to “layered screening,” Kristi Noem, the homeland security secretary, ended two decades of socks and bare feet at U.S. airport checkpoints.`\
 https://nytimes.com/2025/07/08/travel/tsa-airports-security-shoes.html
