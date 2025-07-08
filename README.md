@@ -1,3 +1,7 @@
+**Trump Accuses Putin of Being a Roadblock to Peace Deal**\
+`President Trump did not answer questions about a pause in arms shipments to Ukraine last week during a cabinet meeting on Tuesday, and instead repeatedly criticized President Vladimir Putin of Russia, blaming him for impeding peace deals with Ukraine.`\
+https://nytimes.com/video/us/politics/100000010273678/trump-criticises-putin.html
+
 **How USMNT's World Cup roster outlook changes after Gold Cup standouts emerge**\
 `Plenty of the U.S.'s first-choice players were absent this summer. When they return, which Gold Cup standouts will join them?`\
 https://nytimes.com/athletic/6480238/2025/07/08/usmnt-gold-cup-roster-world-cup-pochettino-tillman-luna-richards/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/travel/national-parks-trump-staffing-cuts-checkup
 **California Rejects Trump Demand to Remove Trans Athletes From Women’s Sports**\
 `The Trump administration signaled that it would pursue enforcement actions against the state and previously threatened to cut federal education funds.`\
 https://nytimes.com/2025/07/08/us/politics/trump-transgender-athletes-california.html
-
-**Musk’s Third Party Starts With a Good Idea**\
-`Is there a way to elect an independent bloc of senators?`\
-https://nytimes.com/2025/07/08/opinion/elon-musk-america-party.html
 
