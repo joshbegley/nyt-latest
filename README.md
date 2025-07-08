@@ -1,3 +1,7 @@
+**Trump’s Big Bill Is Now Law. What Was Learned?**\
+`Readers see varying lessons in President Trump’s domestic policy bill. Also: Cuts that hurt community health.`\
+https://nytimes.com/2025/07/08/opinion/trump-bill.html
+
 **‘Playing the Man’: Global Diplomacy in the Trump Era Is All About Flattery**\
 `Prime Minister Benjamin Netanyahu of Israel handed a letter to President Trump nominating him for the Nobel Peace Prize. But it’s not clear whether stroking the president’s ego has long-lasting effects.`\
 https://nytimes.com/2025/07/08/world/europe/trump-diplomacy-flattery-world-leaders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/well/health-benefits-sun-exposure.html
 **Team Clark or Team Collier? Our experts draft their WNBA All-Star squads**\
 `The WNBA All-Star Game draft takes place Tuesday night. Who should Clark and Collier choose as teammates? `\
 https://nytimes.com/athletic/6480368/2025/07/08/wnba-all-star-draft-picks/
-
-**Trump’s Budget Would Clip Bird Banding. Hunters Are Not Happy.**\
-`The Bird Banding Laboratory has turned duck hunters into citizen scientists. What happens if it is defunded?`\
-https://nytimes.com/2025/07/08/science/trump-budget-birds-banding-hunters.html
 
