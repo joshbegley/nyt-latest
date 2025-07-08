@@ -1,40 +1,40 @@
-**Leeds confident of signing Lille left-back Gudmundsson**\
-`The Sweden international will be the club’s fourth acquisition of the summer, following Lukas Nmecha, Jaka Bijol and Sebastiaan Bornauw.`\
-https://nytimes.com/athletic/6479081/2025/07/08/leeds-transfer-gudmundsson-lille-news/
+**Ranking the 25 best college football rivalry names**\
+`Unique names are a big part of college football rivalry lore. Let's rank the 25 best, led by the mighty Brawl of the Wild.`\
+https://nytimes.com/athletic/6478167/2025/07/08/college-football-rivalry-best-names-rankings/
 
-**Roebuck joins Villa after Barcelona exit**\
-`Roebuck previously enjoyed a successful spell in English football with Manchester City winning the WSL title and the FA Cup three times.`\
-https://nytimes.com/athletic/6479674/2025/07/08/aston-villa-women-ellie-roebuck-barcelona/
+**How NIL and the transfer portal have changed the way college basketball coaches lead**\
+`“You feel like you can skip steps when you really can't,” Duke coach Jon Scheyer said. “You have to start from ground zero every summer.”`\
+https://nytimes.com/athletic/6478033/2025/07/08/college-basketball-coaches-nil-leadership-transfer-portal/
 
-**The New York Times International Edition in Print for Wednesday, July 9, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/08/todays-new-york-times-international-edition
+**Why Mike McDaniel's Dolphins offense could benefit from being a little boring**\
+`The head coach could be on the hot seat if his high-octane scheme isn't balanced with some smash mouth football to keep defenses honest.`\
+https://nytimes.com/athletic/6470842/2025/07/08/miami-dolphins-offense-mike-mcdaniel-film/
 
-**7 Rounds of Talks and No Deal: Japan Girds for New Era of U.S. Relations**\
-`Tokyo had expected smooth tariff negotiations but is experiencing whiplash, becoming a central target of President Trump’s trade frustrations.`\
-https://nytimes.com/2025/07/08/business/trump-tariffs-japan-trade-talks.html
+**Extreme heat is disrupting athletic events nationwide. Is sports ready?**\
+`In recent weeks, no matter the sport or setting, one constant has connected competitions around the globe: scorching temperatures.`\
+https://nytimes.com/athletic/6478749/2025/07/08/extreme-heat-sports-climate-change/
 
-**Trump’s New Trade Threats Set Off Global Scramble to Avoid Tariffs**\
-`Many countries thought they were negotiating in good faith. The White House renewed its “reciprocal” tariff plan anyway, giving countries until Aug. 1 to make offers.`\
-https://nytimes.com/2025/07/08/business/economy/trump-tariffs-talks.html
+**Hunter Greene's setback shows why there's never too much pitching**\
+`The Reds pitcher won't be back in the rotation as soon as the team had hoped. `\
+https://nytimes.com/athletic/6479494/2025/07/08/reds-lose-marlins-hunter-greene-setback-pitching/
 
-**Sweden’s Secret to Well-Being? Tiny Urban Gardens.**\
-`Known as koloniträdgårdar, they provide city dwellers access to nature, fresh produce and community.`\
-https://nytimes.com/2025/07/08/well/swedens-secret-to-well-being-tiny-urban-gardens.html
+**Should Tigers have more representation in the All-Star Game?**\
+`A look at the All-Star cases for and against Zach McKinstry, Spencer Torkelson and more Tigers in consideration for reserve spots.`\
+https://nytimes.com/athletic/6479319/2025/07/08/tigers-more-representation-all-star-game/
 
-**Why a Third-Party Bid Is Unlikely but Not Impossible**\
-`Answering reader questions about the obstacles and opportunities for new parties like the one formed by Elon Musk.`\
-https://nytimes.com/2025/07/08/upshot/third-party-elon-musk.html
+**A Love Letter to Camp Mystic**\
+`At least 27 of the people killed in the Texas floods were at a century-old summer camp. One former attendee explains what the camp meant to generations of girls.`\
+https://nytimes.com/2025/07/08/podcasts/the-daily/camp-mystic-texas-flood.html
 
-**See When Federal and Local Officials Issued Warnings About the Texas Floods**\
-`The National Weather Service began sending flash flood warnings that should have triggered cellphone alerts a little after 1 a.m., while local officials began posting on Facebook about four hours later.`\
-https://nytimes.com/interactive/2025/07/08/weather/texas-floods-timeline-weather-alerts.html
+**MLB 2025 Mock Draft 3.0: Kade Anderson jumps to No. 1; Aiva Arquette stays in the Northwest**\
+`The MLB Draft begins on Sunday. How is the first round shaping up at the moment? Will the Nationals change course at 1-1 with a new GM?`\
+https://nytimes.com/athletic/6478448/2025/07/08/mlb-mock-draft-2025-kade-anderson-nationals-lsu/
 
-**The Gender Gap That Ate the Democrats**\
-`If men had supported Kamala Harris at the same level as women, Harris would have won the popular vote, and possibly the Electoral College.`\
-https://nytimes.com/2025/07/08/opinion/men-women-voters-democrats-republicans.html
+**Wordle Review No. 1,481**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 9, 2025.`\
+https://nytimes.com/2025/07/08/crosswords/wordle-review-1481.html
 
-**How the Attention Economy Is Devouring Gen Z — and the Rest of Us**\
-`The economics writer Kyla Scanlon on how attention has come to shape politics, our economy, Gen Z and more.`\
-https://nytimes.com/2025/07/08/opinion/ezra-klein-podcast-kyla-scanlon.html
+**Williams: First recruiting splash of college football's new era felt a lot like the NFL**\
+`The truth is, college football has been on this NFL trajectory for a while. The recent recruiting headline was just a brand-new reminder.`\
+https://nytimes.com/athletic/6479102/2025/07/08/college-football-recruiting-revenue-share-nfl/
 
