@@ -1,3 +1,7 @@
+**Trump’s Frustration With Putin Preceded Resumption of U.S. Weapons to Ukraine**\
+`President Trump lashed out at the Russian leader on Tuesday, signaling an change in his posture toward the conflict.`\
+https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine.html
+
 **Search-and-rescue teams from other states pour into Central Texas.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from-other-states-pour-into-central-texas
