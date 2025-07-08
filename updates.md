@@ -1,3 +1,43 @@
+**Ranking the 25 best college football rivalry names**\
+`Unique names are a big part of college football rivalry lore. Let's rank the 25 best, led by the mighty Brawl of the Wild.`\
+https://nytimes.com/athletic/6478167/2025/07/08/college-football-rivalry-best-names-rankings/
+
+**How NIL and the transfer portal have changed the way college basketball coaches lead**\
+`“You feel like you can skip steps when you really can't,” Duke coach Jon Scheyer said. “You have to start from ground zero every summer.”`\
+https://nytimes.com/athletic/6478033/2025/07/08/college-basketball-coaches-nil-leadership-transfer-portal/
+
+**Why Mike McDaniel's Dolphins offense could benefit from being a little boring**\
+`The head coach could be on the hot seat if his high-octane scheme isn't balanced with some smash mouth football to keep defenses honest.`\
+https://nytimes.com/athletic/6470842/2025/07/08/miami-dolphins-offense-mike-mcdaniel-film/
+
+**Extreme heat is disrupting athletic events nationwide. Is sports ready?**\
+`In recent weeks, no matter the sport or setting, one constant has connected competitions around the globe: scorching temperatures.`\
+https://nytimes.com/athletic/6478749/2025/07/08/extreme-heat-sports-climate-change/
+
+**Hunter Greene's setback shows why there's never too much pitching**\
+`The Reds pitcher won't be back in the rotation as soon as the team had hoped. `\
+https://nytimes.com/athletic/6479494/2025/07/08/reds-lose-marlins-hunter-greene-setback-pitching/
+
+**Should Tigers have more representation in the All-Star Game?**\
+`A look at the All-Star cases for and against Zach McKinstry, Spencer Torkelson and more Tigers in consideration for reserve spots.`\
+https://nytimes.com/athletic/6479319/2025/07/08/tigers-more-representation-all-star-game/
+
+**A Love Letter to Camp Mystic**\
+`At least 27 of the people killed in the Texas floods were at a century-old summer camp. One former attendee explains what the camp meant to generations of girls.`\
+https://nytimes.com/2025/07/08/podcasts/the-daily/camp-mystic-texas-flood.html
+
+**MLB 2025 Mock Draft 3.0: Kade Anderson jumps to No. 1; Aiva Arquette stays in the Northwest**\
+`The MLB Draft begins on Sunday. How is the first round shaping up at the moment? Will the Nationals change course at 1-1 with a new GM?`\
+https://nytimes.com/athletic/6478448/2025/07/08/mlb-mock-draft-2025-kade-anderson-nationals-lsu/
+
+**Wordle Review No. 1,481**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 9, 2025.`\
+https://nytimes.com/2025/07/08/crosswords/wordle-review-1481.html
+
+**Williams: First recruiting splash of college football's new era felt a lot like the NFL**\
+`The truth is, college football has been on this NFL trajectory for a while. The recent recruiting headline was just a brand-new reminder.`\
+https://nytimes.com/athletic/6479102/2025/07/08/college-football-recruiting-revenue-share-nfl/
+
 **Leeds confident of signing Lille left-back Gudmundsson**\
 `The Sweden international will be the club’s fourth acquisition of the summer, following Lukas Nmecha, Jaka Bijol and Sebastiaan Bornauw.`\
 https://nytimes.com/athletic/6479081/2025/07/08/leeds-transfer-gudmundsson-lille-news/
