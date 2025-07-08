@@ -1,3 +1,11 @@
+**England vs India discussed: Gill's glorious batting, series predictions – and can Archer bounce back?**\
+`The England v India series is two matches in and has packed plenty of drama in already – The Athletic debate the action and what is to come`\
+https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
+
+**How has France’s relationship with the Tour de France changed after 40 years without overall victory?**\
+`It is sometimes taken as a given that a lack of success has inhibited the nation's enthusiasm for its home race. Not a bit of it`\
+https://nytimes.com/athletic/6476954/2025/07/08/tour-de-france-40-years-no-french-win-impact/
+
 **Selling Kudus to Tottenham: A necessary evil for West Ham?**\
 `As unpalatable as the move may be for West Ham fans, the club doesn't have many other options right now`\
 https://nytimes.com/athletic/6477680/2025/07/08/kudus-west-ham-tottenham/
