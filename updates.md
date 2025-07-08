@@ -1,3 +1,7 @@
+**Cooper Flagg vs. Bronny James tickets at NBA Summer League hitting record prices**\
+`Day 1's slate also features a matchup between No. 2 pick Dylan Harper vs. No. 3 pick VJ Edgecombe`\
+https://nytimes.com/athletic/6481576/2025/07/08/cooper-flagg-bronny-james-nba-summer-league/
+
 **Dozens Are Killed as Antigovernment Protests Erupt Across Kenya**\
 `Simmering anger against President William Ruto’s government has boiled over into clashes between protesters and the police, who have deployed live rounds, tear gas and water cannons.`\
 https://nytimes.com/2025/07/08/world/africa/kenya-antigovernment-protests-ruto.html

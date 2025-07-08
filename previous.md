@@ -1,3 +1,7 @@
+**Cooper Flagg vs. Bronny James tickets at NBA Summer League hitting record prices**\
+`Day 1's slate also features a matchup between No. 2 pick Dylan Harper vs. No. 3 pick VJ Edgecombe`\
+https://nytimes.com/athletic/6481576/2025/07/08/cooper-flagg-bronny-james-nba-summer-league/
+
 **Dozens Are Killed as Antigovernment Protests Erupt Across Kenya**\
 `Simmering anger against President William Ruto’s government has boiled over into clashes between protesters and the police, who have deployed live rounds, tear gas and water cannons.`\
 https://nytimes.com/2025/07/08/world/africa/kenya-antigovernment-protests-ruto.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6481479/2025/07/08/independent-football-regulator-p
 **Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge**\
 `The lawsuits, by four former police officers, claim that a culture of cronyism ruled the department. James Essig, who was chief of detectives, said that promotions were sold for $15,000.`\
 https://nytimes.com/2025/07/08/nyregion/nypd-corruption-lawsuits-adams.html
-
-**Scott Frost admits that leaving UCF for Nebraska 'wasn’t a good move'**\
-`Now back at UCF and in the Big 12, Frost opens up about his decision to leave for his alma mater in 2017.`\
-https://nytimes.com/athletic/6481439/2025/07/08/scott-frost-regret-leaving-ucf-nebraska/
 

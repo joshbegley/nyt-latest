@@ -1,5 +1,13 @@
+**Map: 5.6-Magnitude Earthquake Strikes Guatemala**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
+
+**Confronted Over Epstein Files, Trump and Bondi Tell Supporters to Move On**\
+`A small but influential cohort of the president’s far-right political coalition spared him their ire but turned with a vengeance on the attorney general and the top officials at the F.B.I.`\
+https://nytimes.com/2025/07/08/us/politics/trump-epstein.html
+
 **Cooper Flagg vs. Bronny James tickets at NBA Summer League hitting record prices**\
-`Day 1's slate also features a matchup between No. 2 pick Dylan Harper vs. No. 3 pick VJ Edgecombe`\
+`Day 1's slate also features a matchup between No. 2 pick Dylan Harper and No. 3 pick VJ Edgecombe.`\
 https://nytimes.com/athletic/6481576/2025/07/08/cooper-flagg-bronny-james-nba-summer-league/
 
 **Dozens Are Killed as Antigovernment Protests Erupt Across Kenya**\
@@ -21,12 +29,4 @@ https://nytimes.com/2025/07/08/briefing/supreme-court-mass-firings-trump-putin-u
 **Yankees bench DJ LeMahieu, move Jazz Chisholm Jr. back to second base**\
 `Aaron Boone announced that LeMahieu is no longer viewed as an everyday player. The veteran was not pleased about the change. `\
 https://nytimes.com/athletic/6481370/2025/07/08/dj-lemahieu-yankees-bench-jazz-chisholm/
-
-**Independent English football regulator given green light by MPs**\
-`The bill passed by a majority of 415 votes in favour to 98 against, making its passage into law this summer a formality.`\
-https://nytimes.com/athletic/6481479/2025/07/08/independent-football-regulator-passed/
-
-**Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge**\
-`The lawsuits, by four former police officers, claim that a culture of cronyism ruled the department. James Essig, who was chief of detectives, said that promotions were sold for $15,000.`\
-https://nytimes.com/2025/07/08/nyregion/nypd-corruption-lawsuits-adams.html
 
