@@ -1,3 +1,15 @@
+**The New York Times International Edition in Print for Wednesday, July 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/08/todays-new-york-times-international-edition
+
+**7 Rounds of Talks and No Deal: Japan Girds for New Era of U.S. Relations**\
+`Tokyo had expected smooth tariff negotiations but is experiencing whiplash, becoming a central target of President Trump’s trade frustrations.`\
+https://nytimes.com/2025/07/08/business/trump-tariffs-japan-trade-talks.html
+
+**Trump’s New Trade Threats Set Off Global Scramble to Avoid Tariffs**\
+`Many countries thought they were negotiating in good faith. The White House renewed its “reciprocal” tariff plan anyway, giving countries until Aug. 1 to make offers.`\
+https://nytimes.com/2025/07/08/business/economy/trump-tariffs-talks.html
+
 **Sweden’s Secret to Well-Being? Tiny Urban Gardens.**\
 `Known as koloniträdgårdar, they provide city dwellers access to nature, fresh produce and community.`\
 https://nytimes.com/2025/07/08/well/swedens-secret-to-well-being-tiny-urban-gardens.html
