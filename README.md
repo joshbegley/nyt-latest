@@ -1,3 +1,7 @@
+**Trump Administration, Reversing Itself, Won’t Rewrite a Ban on Asbestos**\
+`The about-face came after a public outcry over plans to reconsider Biden-era restrictions on the carcinogenic material.`\
+https://nytimes.com/2025/07/07/climate/asbestos-ban-trump.html
+
 **Veterans Affairs Dept. Scales Back Plans for Vast Job Cuts**\
 `The department abandoned its previous plan to cut 80,000 workers, saying it expected a reduction of around 30,000 jobs by the end of September.`\
 https://nytimes.com/2025/07/07/us/politics/veterans-affairs-layoffs-jobs.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/07/07/us/texas-floods-search-rescue-survivors.html
 **Three Big Questions After the Texas Floods**\
 `The Trump administration and its predecessors will face scrutiny over the disaster that has killed more than 100 people.`\
 https://nytimes.com/2025/07/07/us/politics/texas-floods-trump-administration.html
-
-**A Day Before Trial, Alleged Accomplice of Alexander Brothers Is Cleared**\
-`Ohad Fisherman had been charged with sexual battery along with Oren and Alon Alexander stemming from an alleged 2016 assault.`\
-https://nytimes.com/2025/07/07/realestate/ohad-fisherman-alexander-brothers-case.html
 
