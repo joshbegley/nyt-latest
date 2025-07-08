@@ -1,3 +1,7 @@
+**Listening Back to When Janet Jackson Was for lovers**\
+`Hear six sensual songs by the pop great.`\
+https://nytimes.com/2025/07/08/arts/music/amplifier-newsletter-janet-jackson-love-songs.html
+
 **NWSL investigation clears Albertin Montoya but recommends changes for Bay FC**\
 `Investigators provided recommendations to Bay FC, Montoya and the league but did not propose any sanctions or punitive measures`\
 https://nytimes.com/athletic/6480645/2025/07/08/nwsl-investigation-albertin-montoya-bay-fc/

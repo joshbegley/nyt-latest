@@ -1,3 +1,11 @@
+**If Orioles, Pirates sell at MLB trade deadline, which players have potential to step up?**\
+`Andrea Arcadipane looks at potential sellers, the Orioles and Pirates, ahead of the MLB trade deadline. `\
+https://nytimes.com/athletic/6478334/2025/07/08/mlb-trade-deadline-2025-orioles-pirates/
+
+**Carlos Alcaraz hits his stride at Wimbledon, right on time for a title defense**\
+`Alcaraz is establishing a Grand Slam pattern which spells danger for the rest of the field: get him early, or risk not getting him at all.`\
+https://nytimes.com/athletic/6481023/2025/07/08/tennis-wimbledon-carlos-alcaraz-record-form/
+
 **NWSL investigation clears Albertin Montoya but recommends changes for Bay FC**\
 `Investigators provided recommendations to Bay FC, Montoya and the league but did not propose any sanctions or punitive measures`\
 https://nytimes.com/athletic/6480645/2025/07/08/nwsl-investigation-albertin-montoya-bay-fc/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6480981/2025/07/08/davide-ancelotti-botafogo-brazil
 **State Dept. Is Investigating Messages Impersonating Rubio, Official Says**\
 `A person or people imitating the secretary of state used artificial intelligence to send text and voice messages to foreign diplomats and U.S. officials, the department said in a cable to employees.`\
 https://nytimes.com/2025/07/08/us/politics/rubio-ai-impersonation-investigation.html
-
-**NHL players, owners vote to ratify CBA extension, extend labor peace through 2030**\
-`With the new deal, the league will avoid a work stoppage for at least the next five seasons.`\
-https://nytimes.com/athletic/6480856/2025/07/08/nhl-nhlpa-cba-deal-owners-union/
-
-**Liberal Fund-Raising Drive Seeks $250 Million to Aid Pushback Against Trump**\
-`Donors hope to raise huge sums of money to help those fighting what they see as a drift toward authoritarianism, but without attracting unwanted White House attention.`\
-https://nytimes.com/2025/07/08/us/politics/freedom-together-deepak-bhargava.html
 
