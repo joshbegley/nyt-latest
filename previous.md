@@ -1,3 +1,19 @@
+**gws-london-cockney-pie-mash**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/london-cockney-pie-mash
+
+**Richard Greenberg, Playwright Whose ‘Take Me Out’ Won a Tony, Dies at 67**\
+`More than 30 of his plays were produced on Broadway and off. Many of them dealt with the manners and mores of New York’s upper middle class.`\
+https://nytimes.com/2025/07/08/theater/richard-greenberg-dead.html
+
+**Supreme Court Clears Way for Mass Firings at Federal Agencies**\
+`The Trump administration had asked the justices to block a lower court’s ruling that paused the largest phase of the president’s efforts to downsize the government.`\
+https://nytimes.com/2025/07/08/us/politics/supreme-court-federal-workers-layoffs.html
+
+**Celtics might be done with offseason moves, Al Horford's return 'unlikely'**\
+`"We're very comfortable with this group heading into next season," Brad Stevens said of the Celtics roster.`\
+https://nytimes.com/athletic/6481094/2025/07/08/celtics-al-horford-brad-stevens-nba-free-agency/
+
 **Let Us Help You Find Your Next Book: Science Fiction**\
 `Whether you're looking for a classic or the latest and greatest, start here.`\
 https://nytimes.com/interactive/2025/books/science-fiction-books.html
@@ -13,20 +29,4 @@ https://nytimes.com/newsgraphics/card-story/gws-cass-elliot-mamas-and-the-papas-
 **Judge Fines Lawyers for MyPillow Founder for Error-Filled Court Filing**\
 `The judge said the lawyers had not explained how such errors could have been filed “absent the use of generative artificial intelligence or gross carelessness by counsel.”`\
 https://nytimes.com/2025/07/08/us/judge-fines-lawyers-mypillow-ai.html
-
-**Trump Accuses Putin of Being a Roadblock to Peace Deal**\
-`President Trump did not answer questions about a pause in arms shipments to Ukraine last week during a cabinet meeting on Tuesday, and instead repeatedly criticized President Vladimir Putin of Russia, blaming him for impeding peace deals with Ukraine.`\
-https://nytimes.com/video/us/politics/100000010273678/trump-criticises-putin.html
-
-**How USMNT's World Cup roster outlook changes after Gold Cup standouts emerge**\
-`Plenty of the U.S.'s first-choice players were absent this summer. When they return, which Gold Cup standouts will join them?`\
-https://nytimes.com/athletic/6480238/2025/07/08/usmnt-gold-cup-roster-world-cup-pochettino-tillman-luna-richards/
-
-**Two Found, Two Missing: An Agonizing Search After the Texas Floods**\
-`Four friends, all 21, planned to spend the weekend in the Hill Country. Then the rains came.`\
-https://nytimes.com/2025/07/08/us/texas-flood-hill-country-search.html
-
-**Why the Texas Floods Were So Deadly**\
-`Scientists say a hotter planet is driving more intense storms. But experts say the U.S. is also not doing enough to adapt to increasingly intense floods.`\
-https://nytimes.com/2025/07/08/climate/why-the-texas-floods-were-so-deadly.html
 
