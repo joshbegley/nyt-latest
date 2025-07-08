@@ -1,3 +1,11 @@
+**Tour de France stage four: Tadej Pogacar wins sensational finale in Rouen to bring up 100 career victories**\
+`Analysis of the fourth stage of the 2025 Tour de France, which took the riders from Amiens to Rouen`\
+https://nytimes.com/athletic/6479780/2025/07/08/tour-de-france-stage-four-analysis/
+
+**gws-jacinda-ardern-book-new-zealand**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jacinda-ardern-book-new-zealand
+
 **'Healthy' Dak Prescott expects to be full-go for start of Cowboys training camp**\
 `Dak Prescott is obviously excited about the potential of the offense with CeeDee Lamb and the recently acquired George Pickens.`\
 https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-quarterback-george-pickens/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6480547/2025/07/08/jake-retzlaff-byu-status-transfe
 **Detroit Pistons roster reset: Who can they target with their trade exception?**\
 `Just over a week into offseason free agency, Trajan Langdon has kept his word. Can they now make a trade without any long-term commitments?`\
 https://nytimes.com/athletic/6479979/2025/07/08/detroit-pistons-offseason-transactions/
-
-**Ivar Giaever, Nobel Winner in Quantum Physics, Dies at 96**\
-`A former “D” student from Norway, he made his mark at G.E.’s Research Lab in the U.S., in part by confirming a pivotal theory about superconductivity.`\
-https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
-
-**Brighton winger Osman joins Auxerre on season-long loan**\
-`The 20-year-old has joined the Ligue 1 side after spending the 2024/25 season on loan at Feyernoord.`\
-https://nytimes.com/athletic/6480724/2025/07/08/brighton-osman-auxerre-loan-transfer-news/
 
