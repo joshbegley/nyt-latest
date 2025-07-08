@@ -1,3 +1,19 @@
+**NHL players, owners vote to ratify CBA extension, extend labor peace through 2030**\
+`With the new deal, the league will avoid a work stoppage for at least the next five seasons.`\
+https://nytimes.com/athletic/6480856/2025/07/08/nhl-nhlpa-cba-deal-owners-union/
+
+**Liberal Fund-Raising Drive Seeks $250 Million to Aid Pushback Against Trump**\
+`Donors hope to raise huge sums of money to help those fighting what they see as a drift toward authoritarianism, but without attracting unwanted White House attention.`\
+https://nytimes.com/2025/07/08/us/politics/freedom-together-deepak-bhargava.html
+
+**I.C.C. Seeks Arrests of Taliban Leaders Over Persecution of Women**\
+`The arrest warrants, for Afghanistan’s leader and its top justice official, say the restrictions on women and girls are evidence of crimes against humanity.`\
+https://nytimes.com/2025/07/08/world/asia/icc-arrest-warrant-taliban.html
+
+**Miedema 'will not be friends' with partner Mead during England vs Netherlands**\
+`The Lionesses will exit the tournament if the Netherlands beat them.`\
+https://nytimes.com/athletic/6480858/2025/07/08/england-netherlands-miedema-beth-mead/
+
 **Trump Escalates Criticism of Putin After Restoring Arms Shipments to Ukraine**\
 `President Trump is increasingly suggesting that he believes his Russian counterpart had become an impediment to the peace deal he aims to make.`\
 https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine-weapons.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-qua
 **Trading Norman Powell for John Collins changes Clippers roster geometry, adds size**\
 `The Clippers addition of John Collins should help, but team president Lawrence Frank says they're not done yet. `\
 https://nytimes.com/athletic/6479501/2025/07/08/clippers-trade-norman-powell-john-collins/
-
-**In Koreatown, Musaek’s Menu Looks to the Sea**\
-`Comal showcases the Mexican larder, Asano brings a cafe to Sandro’s and more restaurant news.`\
-https://nytimes.com/2025/07/08/dining/nyc-restaurant-news.html
-
-**Until Saturday: CFB 26 is so real, it hurts**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6480852/2025/07/08/college-football-26-review-until-saturday/
-
-**Where else will Verstappen threaten McLaren? Plus, F1 reacts to incredible Hülkenberg**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6478400/2025/07/08/max-verstappen-british-gp-spin/
-
-**BYU coach on Retzlaff’s status, potential suspension: ‘Prep for everything’**\
-`The quarterback could face a seven-game suspension if he returns to the Cougars in 2025, according to multiple reports.`\
-https://nytimes.com/athletic/6480547/2025/07/08/jake-retzlaff-byu-status-transfer-suspension/
 
