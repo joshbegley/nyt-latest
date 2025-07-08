@@ -1,3 +1,19 @@
+**Jeff Williams, Appleâs Chief Operating Officer, to Retire After 27 Years**\
+`Mr. Williams was long considered a leading candidate to replace Tim Cook as the companyâs next chief executive.`\
+https://nytimes.com/2025/07/08/technology/jeff-williams-apple-retiring.html
+
+**Map: 5.6-Magnitude Earthquake Strikes Guatemala**\
+`View the location of the quakeâs epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
+
+**Confronted Over Epstein Files, Trump and Bondi Tell Supporters to Move On**\
+`A small but influential cohort of the presidentâs far-right political coalition spared him their ire but turned with a vengeance on the attorney general and the top officials at the F.B.I.`\
+https://nytimes.com/2025/07/08/us/politics/trump-epstein.html
+
+**Dozens Are Killed as Antigovernment Protests Erupt Across Kenya**\
+`Simmering anger against President William Rutoâs government has boiled over into clashes between protesters and the police, who have deployed live rounds, tear gas and water cannons.`\
+https://nytimes.com/2025/07/08/world/africa/kenya-antigovernment-protests-ruto.html
+
 **Gavin McKenna, projected 2026 NHL Draft No. 1 pick, commits to Penn State**\
 `McKenna, who has dominated the WHL over the last two years, will play his draft season in the NCAA.`\
 https://nytimes.com/athletic/6478468/2025/07/08/gavin-mckenna-penn-state-2026-nhl-draft/
