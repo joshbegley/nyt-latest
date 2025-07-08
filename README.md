@@ -1,3 +1,7 @@
+**Jeff Williams, Apple’s Chief Operating Officer, to Retire After 27 Years**\
+`Mr. Williams was long considered a leading candidate to replace Tim Cook as the company’s next chief executive.`\
+https://nytimes.com/2025/07/08/technology/jeff-williams-apple-retiring.html
+
 **Map: 5.6-Magnitude Earthquake Strikes Guatemala**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6481521/2025/07/08/bradley-beal-buyout-suns-clipper
 **The Supreme Court Cleared the Way for Mass Federal Firings**\
 `Also, Trump accused Putin of duplicity. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/07/08/briefing/supreme-court-mass-firings-trump-putin-ukraine.html
-
-**Yankees bench DJ LeMahieu, move Jazz Chisholm Jr. back to second base**\
-`Aaron Boone announced that LeMahieu is no longer viewed as an everyday player. The veteran was not pleased about the change. `\
-https://nytimes.com/athletic/6481370/2025/07/08/dj-lemahieu-yankees-bench-jazz-chisholm/
 
