@@ -1,3 +1,7 @@
+**Thierno Barry travelling to Everton to complete €32.5m move from Villarreal**\
+`Barry has been given permission to travel to Merseyside for a medical following a holiday in Miami.`\
+https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
+
 **5 Israeli Soldiers Killed in Gaza, Military Says**\
 `The Israeli military said the soldiers were killed during combat in northern Gaza, but offered few other details.`\
 https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
