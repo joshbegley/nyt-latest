@@ -2,16 +2,16 @@
 `McKenna, who has dominated the WHL over the last two years, will play his draft season in the NCAA.`\
 https://nytimes.com/athletic/6478468/2025/07/08/gavin-mckenna-penn-state-2026-nhl-draft/
 
-**Jeff Williams, Appleâs Chief Operating Officer, to Retire After 27 Years**\
-`Mr. Williams was long considered a leading candidate to replace Tim Cook as the companyâs next chief executive.`\
+**Jeff Williams, Apple’s Chief Operating Officer, Is Retiring After 27 Years**\
+`Mr. Williams was long considered a leading candidate to replace Tim Cook as the company’s next chief executive.`\
 https://nytimes.com/2025/07/08/technology/jeff-williams-apple-retiring.html
 
 **Map: 5.6-Magnitude Earthquake Strikes Guatemala**\
-`View the location of the quakeâs epicenter and shake area.`\
+`View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
 
 **Confronted Over Epstein Files, Trump and Bondi Tell Supporters to Move On**\
-`A small but influential cohort of the presidentâs far-right political coalition spared him their ire but turned with a vengeance on the attorney general and the top officials at the F.B.I.`\
+`A small but influential cohort of the president’s far-right political coalition spared him their ire but turned with a vengeance on the attorney general and the top officials at the F.B.I.`\
 https://nytimes.com/2025/07/08/us/politics/trump-epstein.html
 
 **Cooper Flagg vs. Bronny James tickets at NBA Summer League hitting record prices**\
@@ -19,7 +19,7 @@ https://nytimes.com/2025/07/08/us/politics/trump-epstein.html
 https://nytimes.com/athletic/6481576/2025/07/08/cooper-flagg-bronny-james-nba-summer-league/
 
 **Dozens Are Killed as Antigovernment Protests Erupt Across Kenya**\
-`Simmering anger against President William Rutoâs government has boiled over into clashes between protesters and the police, who have deployed live rounds, tear gas and water cannons.`\
+`Simmering anger against President William Ruto’s government has boiled over into clashes between protesters and the police, who have deployed live rounds, tear gas and water cannons.`\
 https://nytimes.com/2025/07/08/world/africa/kenya-antigovernment-protests-ruto.html
 
 **Minor-league stint could delay free agency for Mets' Francisco Alvarez**\
