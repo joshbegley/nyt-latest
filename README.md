@@ -1,3 +1,7 @@
+**How Do You Self-Identify? For Many Americans, Checking a Box Won’t Do.**\
+`The New York mayoral candidate Zohran Mamdani said that his background doesn’t fit neatly into simple categories. Others say they’ve struggled with the same issue.`\
+https://nytimes.com/2025/07/08/us/race-ethnicity-identity-americans.html
+
 **How Do Israel and Hamas Negotiate in Qatar?**\
 `The ongoing presence of negotiators from Hamas and Israel in the Qatari capital, Doha, suggests that both sides are serious about clinching a deal.`\
 https://nytimes.com/2025/07/08/world/middleeast/how-do-israel-and-hamas-negotiate-in-qatar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/us/politics/netanyahu-trump-nobel-peace-prize.htm
 **Man Dies at Milan Airport After Being Sucked Into Jet Engine, Official Says**\
 `The man was neither an airport employee nor a passenger. Milan Bergamo Airport did not say how he had accessed the runway where the plane was.`\
 https://nytimes.com/2025/07/08/world/europe/milan-bergamo-airport-death-engine.html
-
-**Amanda Anisimova listens to her body at Wimbledon, with her physio that leads the way**\
-`Anisimova's talent has never been in doubt, but it's a physiotherapist who she credits for her deepest Grand Slam run in three years.`\
-https://nytimes.com/athletic/6479614/2025/07/08/tennis-amanda-anisimova-team-injuries-history/
 
