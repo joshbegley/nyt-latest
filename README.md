@@ -1,3 +1,7 @@
+**'Healthy' Dak Prescott expects to be full-go for start of Cowboys training camp**\
+`Dak Prescott is obviously excited about the potential of the offense with CeeDee Lamb and the recently acquired George Pickens.`\
+https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-quarterback-george-pickens/
+
 **Trading Norman Powell for John Collins changes Clippers roster geometry, adds size**\
 `The Clippers addition of John Collins should help, but team president Lawrence Frank says they're not done yet. `\
 https://nytimes.com/athletic/6479501/2025/07/08/clippers-trade-norman-powell-john-collins/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
 **Brighton winger Osman joins Auxerre on season-long loan**\
 `The 20-year-old has joined the Ligue 1 side after spending the 2024/25 season on loan at Feyernoord.`\
 https://nytimes.com/athletic/6480724/2025/07/08/brighton-osman-auxerre-loan-transfer-news/
-
-**Putellas is back on song and banishing her worst Euros memories**\
-`Putellas missed the last Euros with an ACL injury. Now, she is making up for lost time`\
-https://nytimes.com/athletic/6480322/2025/07/08/alexia-putellas-euros-spain-return/
 
