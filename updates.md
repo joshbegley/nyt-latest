@@ -1,3 +1,7 @@
+**Word of the Day: taqueria**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html
+
 **Tuesday Briefing: Trump’s New Tariff Threats**\
 `Plus, the beautiful chaos of Rio’s beaches.`\
 https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
