@@ -1,3 +1,7 @@
+**Trump Accuses Putin of Being a Roadblock to Peace Deal**\
+`President Trump did not answer questions about a pause in arms shipments to Ukraine last week during a cabinet meeting on Tuesday, and instead repeatedly criticized President Vladimir Putin of Russia, blaming him for impeding peace deals with Ukraine.`\
+https://nytimes.com/video/us/politics/100000010273678/trump-criticises-putin.html
+
 **How USMNT's World Cup roster outlook changes after Gold Cup standouts emerge**\
 `Plenty of the U.S.'s first-choice players were absent this summer. When they return, which Gold Cup standouts will join them?`\
 https://nytimes.com/athletic/6480238/2025/07/08/usmnt-gold-cup-roster-world-cup-pochettino-tillman-luna-richards/
