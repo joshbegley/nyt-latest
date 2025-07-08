@@ -1,3 +1,7 @@
+**FIFA opens New York office in U.S. president's Trump Tower**\
+`FIFA boss Gianni Infantino has forged strong links with Trump as the U.S. is hosting this summer's Club World Cup.`\
+https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
+
 **Norman Tebbit, Former U.K. Minister and Close Thatcher Ally, Dies at 94**\
 `Lord Tebbit held a series of roles in Margaret Thatcher’s cabinet, but left high office after his wife was seriously hurt in a bombing by the Irish Republican Army.`\
 https://nytimes.com/2025/07/08/obituaries/norman-tebbit-dead.html

@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6478471/2025/07/08/the-mlb-trade-deadline-a-dud-plu
 https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
 
 **FIFA opens New York office in U.S. president's Trump Tower**\
-`FIFA boss Gianni Infantino has forged strong links with Trump as the US is hosting this summer's Club World Cup.`\
+`FIFA boss Gianni Infantino has forged strong links with Trump as the U.S. is hosting this summer's Club World Cup.`\
 https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
 
 **Mets prospect Dylan Ross still hitting 100 mph after 2 elbow operations**\
