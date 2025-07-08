@@ -1,3 +1,7 @@
+**Trump Hires Scientists Who Doubt the Consensus on Climate Change**\
+`The three scientists joined the administration after it dismissed hundreds of experts who were assessing how global warming is affecting the country.`\
+https://nytimes.com/2025/07/08/climate/trump-climate-energy-department.html
+
 **Sunderland sign left-back Reinildo following Atletico departure**\
 `Reinildo left the Metropolitano on a free transfer after making 103 appearances over four seasons for Atletico.`\
 https://nytimes.com/athletic/6462137/2025/07/08/sunderland-sign-left-back-reinildo-following-atletico-madrid-departure/
