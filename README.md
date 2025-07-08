@@ -1,3 +1,7 @@
+**Francisco Alvarez blocks out frustration, commits to new path: 'Baseball never stops'**\
+`The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
+https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/
+
 **Trump’s Frustration with Putin Preceded Resumption of U.S. Weapons to Ukraine**\
 `President Trump lashed out at the Russian leader on Tuesday, signaling an change in his posture toward the conflict.`\
 https://nytimes.com/2025/07/08/us/politics/trumps-putin-ukraine.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/technology/jeff-williams-apple-retiring.html
 **Map: 5.6-Magnitude Earthquake Strikes Guatemala**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
-
-**Confronted Over Epstein Files, Trump and Bondi Tell Supporters to Move On**\
-`A small but influential cohort of the president’s far-right political coalition spared him their ire but turned with a vengeance on the attorney general and the top officials at the F.B.I.`\
-https://nytimes.com/2025/07/08/us/politics/trump-epstein.html
 
