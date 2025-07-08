@@ -1,3 +1,11 @@
+**England vs India discussed: Gill's glorious batting, series predictions – and can Archer bounce back?**\
+`The England v India series is two matches in and has packed plenty of drama in already – The Athletic debate the action and what is to come`\
+https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
+
+**How has France’s relationship with the Tour de France changed after 40 years without overall victory?**\
+`It is sometimes taken as a given that a lack of success has inhibited the nation's enthusiasm for its home race. Not a bit of it`\
+https://nytimes.com/athletic/6476954/2025/07/08/tour-de-france-40-years-no-french-win-impact/
+
 **Selling Kudus to Tottenham: A necessary evil for West Ham?**\
 `As unpalatable as the move may be for West Ham fans, the club doesn't have many other options right now`\
 https://nytimes.com/athletic/6477680/2025/07/08/kudus-west-ham-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477947/2025/07/08/gilberto-mora-mexico-yamal-recor
 **The Hampton story: Meet the player tasked with replacing Lionesses icon Earps**\
 `Mary Earps became recognised as the world's best goalkeeper and was one of the faces of this England team but now it is Hampton's time`\
 https://nytimes.com/athletic/6451210/2025/07/08/hannah-hampton-lionesses-england-earps/
-
-**'I turned around and Angus burst into tears'. The stories that explain how much the Club World Cup can mean**\
-`The non-European teams competing at the tournament have had a once-in-a-generation chance to prove themselves. They have loved every minute `\
-https://nytimes.com/athletic/6459245/2025/07/08/the-stories-that-explain-what-the-club-world-cup-means/
-
-**Beating Real Madrid will prove beyond doubt that PSG are Europe's elite team**\
-`Madrid might have been a diminshed force during 2024-25 but they remain the ultimate test of a team's knockout credentials`\
-https://nytimes.com/athletic/6478371/2025/07/08/psg-real-madrid-club-world-cup/
 
