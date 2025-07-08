@@ -1,3 +1,11 @@
+**Federal Agents March Through L.A. Park, Spurring Local Outrage**\
+`Federal officials said it was an immigration enforcement operation, though it was unclear if anyone had been arrested. “It’s the way a city looks before a coup,” Mayor Karen Bass said as she condemned the action.`\
+https://nytimes.com/2025/07/07/us/la-macarthur-park-immigration.html
+
+**I.R.S. Says Churches Can Endorse Candidates From the Pulpit**\
+`In a court filing, the tax agency said a decades-old ban on campaigning by tax-exempt groups should not apply to houses of worship speaking to their own members.`\
+https://nytimes.com/2025/07/07/us/politics/irs-churches-politics-endorse-candidates.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Hope everyone is having a great summer and playing as much golf as Hugh Freeze.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6460638/2025/07/07/paolo-banchero-magic-extension-m
 **Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
 `Rescue efforts in Central Texas grew more desperate as the chance of finding survivors faded.`\
 https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
-
-**Barnard College Pledges ‘Zero Tolerance’ for Antisemitism in Settlement**\
-`Jewish and Israeli students had sued the school, saying they faced severe and pervasive discrimination on campus.`\
-https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.html
-
-**Tropical Depression Chantal Floods Central North Carolina**\
-`Authorities said that there was at least one storm-related death in North Carolina.`\
-https://nytimes.com/video/weather/100000010271901/tropical-depression-chantal-floods-central-north-carolina.html
 

@@ -1,3 +1,11 @@
+**What We Saw in the Texas Flood Zone**\
+`Search-and-rescue teams have been hoping against hope to find signs of life after the Texas floods. Nicholas Bogel-Burroughs, an investigative reporter at The New York Times, describes what he has seen in Texas.`\
+https://nytimes.com/video/us/100000010271441/what-we-saw-in-the-texas-flood-zone.html
+
+**T.S.A. to Let Travelers Keep Their Shoes On, Ending Hated Rule**\
+`Most passengers had been required to remove their footwear at checkpoints since 2006, a policy later eased only for members of trusted traveler programs.`\
+https://nytimes.com/2025/07/07/travel/tsa-shoes-removal-airport-security.html
+
 **Federal Agents March Through L.A. Park, Spurring Local Outrage**\
 `Federal officials said it was an immigration enforcement operation, though it was unclear if anyone had been arrested. “It’s the way a city looks before a coup,” Mayor Karen Bass said as she condemned the action.`\
 https://nytimes.com/2025/07/07/us/la-macarthur-park-immigration.html
@@ -31,12 +39,4 @@ https://nytimes.com/2025/07/07/realestate/ohad-fisherman-alexander-brothers-case
 **Planned Parenthood Wins a Temporary Injunction Over Medicaid Funding**\
 `The nonprofit is challenging a new law that bars its clinics from receiving federal money for any treatment, including birth control and checkups.`\
 https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html
-
-**Paolo Banchero, Magic agree to 5-year, $239 million max extension: Source**\
-`The contract extension will begin with the 2026-27 season and will run through 2030-31, including a player option.`\
-https://nytimes.com/athletic/6460638/2025/07/07/paolo-banchero-magic-extension-max/
-
-**Rescue Efforts Continue as Death Toll From Texas Flooding Tops 100**\
-`Rescue efforts in Central Texas grew more desperate as the chance of finding survivors faded.`\
-https://nytimes.com/video/us/100000010271549/texas-floods-search-rescue.html
 
