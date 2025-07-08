@@ -1,3 +1,7 @@
+**California Offers Spirited Defense of Bullet Train Project**\
+`In a blistering response to the Trump administration’s proposal to pull $4 billion in federal funding, state officials said the move was illegal, predetermined and based on flawed analysis.`\
+https://nytimes.com/2025/07/07/us/california-high-speed-rail-funding.html
+
 **Padres' Manny Machado joins historic group with 2,000th hit**\
 `After lining a first-inning single for his 1,999th hit, he produced a 109 mph ground ball in the fourth to capture a piece of history.`\
 https://nytimes.com/athletic/6446906/2025/07/07/sd-padres-manny-machado-2000-hits/

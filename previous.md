@@ -1,3 +1,7 @@
+**California Offers Spirited Defense of Bullet Train Project**\
+`In a blistering response to the Trump administration’s proposal to pull $4 billion in federal funding, state officials said the move was illegal, predetermined and based on flawed analysis.`\
+https://nytimes.com/2025/07/07/us/california-high-speed-rail-funding.html
+
 **Padres' Manny Machado joins historic group with 2,000th hit**\
 `After lining a first-inning single for his 1,999th hit, he produced a 109 mph ground ball in the fourth to capture a piece of history.`\
 https://nytimes.com/athletic/6446906/2025/07/07/sd-padres-manny-machado-2000-hits/
@@ -33,10 +37,4 @@ https://nytimes.com/2025/07/07/us/la-macarthur-park-immigration.html
 **I.R.S. Says Churches Can Endorse Candidates From the Pulpit**\
 `In a court filing, the tax agency said a decades-old ban on campaigning by tax-exempt groups should not apply to houses of worship speaking to their own members.`\
 https://nytimes.com/2025/07/07/us/politics/irs-churches-politics-endorse-candidates.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Hope everyone is having a great summer and playing as much golf as Hugh Freeze.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-mandels-college-football-mailbag-305/
 
