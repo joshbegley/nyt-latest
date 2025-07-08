@@ -1,3 +1,7 @@
+**Sunderland sign left-back Reinildo following Atletico departure**\
+`Reinildo left the Metropolitano on a free transfer after making 103 appearances over four seasons for Atletico.`\
+https://nytimes.com/athletic/6462137/2025/07/08/sunderland-sign-left-back-reinildo-following-atletico-madrid-departure/
+
 **The Bounce: Early Summer League storylines**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/

@@ -1,3 +1,7 @@
+**Sunderland sign left-back Reinildo following Atletico departure**\
+`Reinildo left the Metropolitano on a free transfer after making 103 appearances over four seasons for Atletico.`\
+https://nytimes.com/athletic/6462137/2025/07/08/sunderland-sign-left-back-reinildo-following-atletico-madrid-departure/
+
 **The Bounce: Early Summer League storylines**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6480020/2025/07/08/diogo-jota-car-crash-spain-polic
 **Wildfires Burn in Spain and France After Blistering Heat Wave**\
 `Weather agencies issued warnings for other parts of Europe where temperatures were expected to climb this week.`\
 https://nytimes.com/2025/07/08/world/europe/france-spain-wildfires-heat-wave.html
-
-**Tottenham's Alejo Veliz returns to former club Rosario Central**\
-`The deal does not include an option or obligation to make the move permanent next summer.`\
-https://nytimes.com/athletic/6479770/2025/07/08/alejo-veliz-loan-deal-tottenham-rosario-central/
 
