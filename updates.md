@@ -1,3 +1,7 @@
+**Jon Stewart Thinks Congress Is Basically Pro Wrestling Without the Fun**\
+`The “Daily Show” host said the drama around President Trump’s big policy bill was about as authentic as a World Wrestling Entertainment match.`\
+https://nytimes.com/2025/07/08/arts/television/jon-stewart-trump-bill-wrestling.html
+
 **Thierno Barry travelling to Everton to complete €32.5m move from Villarreal**\
 `Barry has been given permission to travel to Merseyside for a medical following a holiday in Miami.`\
 https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
