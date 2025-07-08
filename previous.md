@@ -1,3 +1,11 @@
+**Trump’s U-Turn on Weapons Leaves Ukrainians Hopeful but Cautious**\
+`After President Trump’s announcement that the United States would send more military aid, some were grateful, others were skeptical, mindful of his seesawing policy.`\
+https://nytimes.com/2025/07/08/world/europe/ukraine-russia-us-weapons-trump.html
+
+**In ‘Bring the House Down,’ It’s the Critic’s Turn to Get Panned**\
+`Drawing on her own experience as an arts journalist, Charlotte Runcie comically skewers bad men, bad faith and (unforgivably) bad theater.`\
+https://nytimes.com/2025/07/08/books/review/bring-the-house-down-charlotte-runcie.html
+
 **Trump Hires Scientists Who Doubt the Consensus on Climate Change**\
 `The three scientists joined the administration after it dismissed hundreds of experts who were assessing how global warming is affecting the country.`\
 https://nytimes.com/2025/07/08/climate/trump-climate-energy-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/08/world/middleeast/how-do-israel-and-hamas-negotiat
 **Stocks Shake Off Tariff Threat After Trump Extends Deadline**\
 `The president noted that U.S. negotiators remained open to offers from trading partners, suggesting that tariffs could be reduced by — or even after — the deadline on Aug. 1.`\
 https://nytimes.com/2025/07/08/business/trump-tariffs-stock-markets-sp500.html
-
-**How to Experience Opera’s Most Interesting Festival From Afar**\
-`Many of the offerings at the Aix-en-Provence Festival in France are broadcast, or they travel to other theaters. Here are some highlights.`\
-https://nytimes.com/2025/07/08/arts/music/aix-festival-opera-highlights-2025.html
-
-**Spanish authorities release initial findings into car crash that killed Diogo Jota**\
-`Liverpool forward Jota and his brother Andre Silva were killed in a car accident in Spain in the early hours of Thursday morning.`\
-https://nytimes.com/athletic/6480020/2025/07/08/diogo-jota-car-crash-spain-police/
 

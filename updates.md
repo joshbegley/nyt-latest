@@ -1,3 +1,11 @@
+**Trump’s U-Turn on Weapons Leaves Ukrainians Hopeful but Cautious**\
+`After President Trump’s announcement that the United States would send more military aid, some were grateful, others were skeptical, mindful of his seesawing policy.`\
+https://nytimes.com/2025/07/08/world/europe/ukraine-russia-us-weapons-trump.html
+
+**In ‘Bring the House Down,’ It’s the Critic’s Turn to Get Panned**\
+`Drawing on her own experience as an arts journalist, Charlotte Runcie comically skewers bad men, bad faith and (unforgivably) bad theater.`\
+https://nytimes.com/2025/07/08/books/review/bring-the-house-down-charlotte-runcie.html
+
 **Trump Hires Scientists Who Doubt the Consensus on Climate Change**\
 `The three scientists joined the administration after it dismissed hundreds of experts who were assessing how global warming is affecting the country.`\
 https://nytimes.com/2025/07/08/climate/trump-climate-energy-department.html
