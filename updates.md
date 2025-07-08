@@ -1,3 +1,23 @@
+**Thierno Barry travelling to Everton to complete â¬32.5m move from Villarreal**\
+`Barry has been given permission to travel to Merseyside for a medical following a holiday in Miami.`\
+https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
+
+**Spelling Bee Forum**\
+`Feeling stuck on todayâs puzzle? We can help.`\
+https://nytimes.com/2025/07/08/crosswords/spelling-bee-forum.html
+
+**Tuesday Briefing: Trumpâs New Tariff Threats**\
+`Plus, the beautiful chaos of Rioâs beaches.`\
+https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
+
+**Why Americans Canât Buy the Worldâs Best Electric Car**\
+`Chinaâs national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
+https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
+
+**England vs India discussed: Gill's glorious batting, series predictions â and can Archer bounce back?**\
+`The England v India series is two matches in and has packed plenty of drama in already â The Athletic debate the action and what is to come`\
+https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
+
 **Thierno Barry travelling to Everton to complete €32.5m move from Villarreal**\
 `Barry has been given permission to travel to Merseyside for a medical following a holiday in Miami.`\
 https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
