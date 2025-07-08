@@ -1,3 +1,23 @@
+**Selling Kudus to Tottenham: A necessary evil for West Ham?**\
+`As unpalatable as the move may be for West Ham fans, the club doesn't have many other options right now`\
+https://nytimes.com/athletic/6477680/2025/07/08/kudus-west-ham-tottenham/
+
+**Brighton will need to trim their squad - so who should make way?**\
+`Up to now, Brighton's business has been dominated by additions to Fabian Hurzeler's squad - now it's time to trim back...`\
+https://nytimes.com/athletic/6465012/2025/07/08/brighton-will-need-to-trim-their-squad-so-who-should-make-way/
+
+**Donyell Malen's curious start at Aston Villa. What comes next?**\
+`Malen signed for Villa in January and was promptly left out of their Champions League squad - now is his time to make his mark`\
+https://nytimes.com/athletic/6049403/2025/07/08/donyell-malen-aston-villa-curious-start/
+
+**Can Barcelona really return to the Camp Nou next month?**\
+`The reconstruction of Barca's iconic stadium is already nine months behind schedule. Will this latest deadline slip?`\
+https://nytimes.com/athletic/6468756/2025/07/08/barcelona-camp-nou-stadium-return-joan-gamper/
+
+**Why the coaching refresh at Manchester City demonstrates a real appetite for change**\
+`City's Club World Cup campaign has given new staff time to bed in and provide an energy that was lacking for much of last season`\
+https://nytimes.com/athletic/6477588/2025/07/08/manchester-city-coaching-changes/
+
 **Chelsea, Estevao and the race for Brazil's best: 'Stockpiling', smart or both?**\
 `The way Europe's top clubs recruit from South America has changed, but for every Vinicius Junior there are plenty who do not make the grade`\
 https://nytimes.com/athletic/6478999/2025/07/08/chelsea-estevao-brazilians-transfers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6459245/2025/07/08/the-stories-that-explain-what-th
 **Beating Real Madrid will prove beyond doubt that PSG are Europe's elite team**\
 `Madrid might have been a diminshed force during 2024-25 but they remain the ultimate test of a team's knockout credentials`\
 https://nytimes.com/athletic/6478371/2025/07/08/psg-real-madrid-club-world-cup/
-
-**Macron’s U.K. State Visit: A Carriage Ride, a Royal Banquet and a Power Lunch**\
-`President Emmanuel Macron’s state visit to Britain, which begins Tuesday, will be heavy on pageantry. But both he and Prime Minister Keir Starmer hope for practical results.`\
-https://nytimes.com/2025/07/08/world/europe/macron-starmer-france-uk-state-visit.html
-
-**Quote of the Day: A Hard-Shelled Foe Emerges for Kennedy on Synthetic Dye**\
-`Quotation of the Day for Tuesday, July 8, 2025.`\
-https://nytimes.com/2025/07/08/pageoneplus/quote-of-the-day-a-hard-shelled-foe-emerges-for-kennedy-on-synthetic-dye.html
-
-**The Curious Animals of Amsterdam’s Art Zoo**\
-`A new museum in a 17th-century canal house brings together fantastical taxidermy and natural history objects in an eclectic and eccentric mix.`\
-https://nytimes.com/2025/07/08/arts/design/art-zoo-amsterdam.html
-
-**Two Brothers Come Face to Face in a Ruinous Civil War**\
-`Bloody conflict has splintered many families in Myanmar over the past four years. But for one set of siblings, a surprise reunion was joyful, if bittersweet.`\
-https://nytimes.com/2025/07/08/world/asia/myanmar-civil-war-brothers.html
-
-**What to Know About P.O.W.s in Myanmar’s Brutal Civil War**\
-`As the rebels have gained ground, they have detained thousands of prisoners of war. Their enemy, the junta, keeps few captives.`\
-https://nytimes.com/2025/07/08/world/asia/myanmar-pows-rebels.html
 
