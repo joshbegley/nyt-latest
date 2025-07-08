@@ -1,3 +1,7 @@
+**Netanyahu Releases Letter Nominating Trump for Nobel Peace Prize**\
+`Prime Minister Benjamin Netanyahu of Israel praised President Trump’s role in his country’s establishment of diplomatic relations with some Arab states. But Mr. Trump has supported Israeli actions that have strained those ties.`\
+https://nytimes.com/2025/07/08/us/politics/netanyahu-trump-nobel-peace-prize.html
+
 **Man Dies at Milan Airport After Being Sucked Into Jet Engine, Official Says**\
 `The man was neither an airport employee nor a passenger. Milan Bergamo Airport did not say how he had accessed the runway where the plane was.`\
 https://nytimes.com/2025/07/08/world/europe/milan-bergamo-airport-death-engine.html
