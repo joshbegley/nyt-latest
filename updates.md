@@ -1,3 +1,7 @@
+**How Do Israel and Hamas Negotiate in Qatar?**\
+`The ongoing presence of negotiators from Hamas and Israel in the Qatari capital, Doha, suggests that both sides are serious about clinching a deal.`\
+https://nytimes.com/2025/07/08/world/middleeast/how-do-israel-and-hamas-negotiate-in-qatar.html
+
 **Stocks Shake Off Tariff Threat After Trump Extends Deadline**\
 `The president noted that U.S. negotiators remained open to offers from trading partners, suggesting that tariffs could be reduced by — or even after — the deadline on Aug. 1.`\
 https://nytimes.com/2025/07/08/business/trump-tariffs-stock-markets-sp500.html
