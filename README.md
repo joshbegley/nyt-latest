@@ -1,3 +1,7 @@
+**Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge**\
+`The lawsuits, by four former police officers, claim that a culture of cronyism ruled the department. James Essig, who was chief of detectives, said that promotions were sold for $15,000.`\
+https://nytimes.com/2025/07/08/nyregion/nypd-corruption-lawsuits-adams.html
+
 **Scott Frost admits that leaving UCF for Nebraska 'wasn’t a good move'**\
 `Now back at UCF and in the Big 12, Frost opens up about his decision to leave for his alma mater in 2017.`\
 https://nytimes.com/athletic/6481439/2025/07/08/scott-frost-regret-leaving-ucf-nebraska/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/07/08/world/europe/bayeux-tapestry-england-france-briti
 https://nytimes.com/athletic/6467321/2025/07/08/stephen-carruthers-blagger-champions-league-final/
 
 **Fluminense 0 Chelsea 2: Two Joao Pedro wondergoals seal final spot, but should Brazilians have had a penalty?**\
-`Chelsea will play PSG or Real Madrid in the Club World Cup final after beating Fluminense at MetLife Stadium.`\
+`Chelsea will play PSG or Real Madrid in the Club World Cup final after beating Fluminense at MetLife Stadium`\
 https://nytimes.com/athletic/6477515/2025/07/08/chelsea-fluminense-neto-club-world-cup/
 
 **Dueling U.S. Efforts Botched a Deal to Swap Venezuelans Held in El Salvador for Americans**\
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/world/americas/trump-venezuelan-migrants-us-priso
 **For Israel, It Pays to Be a Winner**\
 `Diplomatic breakthroughs in the Middle East are the result of military victories.`\
 https://nytimes.com/2025/07/08/opinion/israel-gaza-iran-netanyahu.html
-
-**Wednesday Briefing: Rare Earths, Made in Europe?**\
-`Plus, Sweden’s secret to well-being.`\
-https://nytimes.com/2025/07/08/briefing/rare-earths-china-europe-ukraine.html
 
