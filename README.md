@@ -1,3 +1,7 @@
+**Independent English football regulator given green light by MPs**\
+`The bill passed by a majority of 415 votes in favour to 98 against, making its passage into law this summer a formality.`\
+https://nytimes.com/athletic/6481479/2025/07/08/independent-football-regulator-passed/
+
 **Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge**\
 `The lawsuits, by four former police officers, claim that a culture of cronyism ruled the department. James Essig, who was chief of detectives, said that promotions were sold for $15,000.`\
 https://nytimes.com/2025/07/08/nyregion/nypd-corruption-lawsuits-adams.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6477515/2025/07/08/chelsea-fluminense-neto-club-wor
 **Dueling U.S. Efforts Botched a Deal to Swap Venezuelans Held in El Salvador for Americans**\
 `Secretary of State Marco Rubio and the U.S. envoy to Venezuela were both working on different deals and ended up at cross purposes.`\
 https://nytimes.com/2025/07/08/world/americas/trump-venezuelan-migrants-us-prisoner-swap.html
-
-**For Israel, It Pays to Be a Winner**\
-`Diplomatic breakthroughs in the Middle East are the result of military victories.`\
-https://nytimes.com/2025/07/08/opinion/israel-gaza-iran-netanyahu.html
 
