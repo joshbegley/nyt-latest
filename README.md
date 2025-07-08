@@ -1,3 +1,7 @@
+**Trump Escalates Criticism of Putin After Restoring Arms Shipments to Ukraine**\
+`President Trump is increasingly suggesting that he believes his Russian counterpart had become an impediment to the peace deal he aims to make.`\
+https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine-weapons.html
+
 **Tour de France stage four: Tadej Pogacar wins sensational finale in Rouen to bring up 100 career victories**\
 `Analysis of the fourth stage of the 2025 Tour de France, which took the riders from Amiens to Rouen`\
 https://nytimes.com/athletic/6479780/2025/07/08/tour-de-france-stage-four-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6478400/2025/07/08/max-verstappen-british-gp-spin/
 **BYU coach on Retzlaff’s status, potential suspension: ‘Prep for everything’**\
 `The quarterback could face a seven-game suspension if he returns to the Cougars in 2025, according to multiple reports.`\
 https://nytimes.com/athletic/6480547/2025/07/08/jake-retzlaff-byu-status-transfer-suspension/
-
-**Detroit Pistons roster reset: Who can they target with their trade exception?**\
-`Just over a week into offseason free agency, Trajan Langdon has kept his word. Can they now make a trade without any long-term commitments?`\
-https://nytimes.com/athletic/6479979/2025/07/08/detroit-pistons-offseason-transactions/
 
