@@ -1,3 +1,7 @@
+**Rosenthal: As Rockies spiral towards historic losing season, front office shakeup could be looming**\
+`The idea of Colorado moving on from GM Bill Schmidt is generating chatter and drawing public acknowledgment from ownership.`\
+https://nytimes.com/athletic/6479400/2025/07/08/colorado-rockies-bill-schmidt-general-manager/
+
 **A Lost Summer Idyll**\
 `We explore the particular horror of a disaster at a summer camp.`\
 https://nytimes.com/2025/07/08/briefing/camp-mystic-texas-floods.html
