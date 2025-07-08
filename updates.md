@@ -1,3 +1,7 @@
+**Independent English football regulator given green light by MPs**\
+`The bill passed by a majority of 415 votes in favour to 98 against, making its passage into law this summer a formality.`\
+https://nytimes.com/athletic/6481479/2025/07/08/independent-football-regulator-passed/
+
 **Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge**\
 `The lawsuits, by four former police officers, claim that a culture of cronyism ruled the department. James Essig, who was chief of detectives, said that promotions were sold for $15,000.`\
 https://nytimes.com/2025/07/08/nyregion/nypd-corruption-lawsuits-adams.html
