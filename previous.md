@@ -1,3 +1,7 @@
+**Trump Pledges to Send More Weapons to Ukraine**\
+`“They have to be able to defend themselves,” the president said, appearing to signal a reversal after his administration paused some weapons transfers just last week.`\
+https://nytimes.com/2025/07/07/us/politics/trump-ukraine-weapons.html
+
 **California Offers Spirited Defense of Bullet Train Project**\
 `In a blistering response to the Trump administration’s proposal to pull $4 billion in federal funding, state officials said the move was illegal, predetermined and based on flawed analysis.`\
 https://nytimes.com/2025/07/07/us/california-high-speed-rail-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/07/travel/tsa-shoes-removal-airport-security.html
 **Federal Agents March Through L.A. Park, Spurring Local Outrage**\
 `Federal officials said it was an immigration enforcement operation, though it was unclear if anyone had been arrested. “It’s the way a city looks before a coup,” Mayor Karen Bass said as she condemned the action.`\
 https://nytimes.com/2025/07/07/us/la-macarthur-park-immigration.html
-
-**I.R.S. Says Churches Can Endorse Candidates From the Pulpit**\
-`In a court filing, the tax agency said a decades-old ban on campaigning by tax-exempt groups should not apply to houses of worship speaking to their own members.`\
-https://nytimes.com/2025/07/07/us/politics/irs-churches-politics-endorse-candidates.html
 

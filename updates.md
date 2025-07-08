@@ -1,3 +1,7 @@
+**Trump Pledges to Send More Weapons to Ukraine**\
+`“They have to be able to defend themselves,” the president said, appearing to signal a reversal after his administration paused some weapons transfers just last week.`\
+https://nytimes.com/2025/07/07/us/politics/trump-ukraine-weapons.html
+
 **California Offers Spirited Defense of Bullet Train Project**\
 `In a blistering response to the Trump administration’s proposal to pull $4 billion in federal funding, state officials said the move was illegal, predetermined and based on flawed analysis.`\
 https://nytimes.com/2025/07/07/us/california-high-speed-rail-funding.html
