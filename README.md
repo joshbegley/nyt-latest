@@ -6,9 +6,9 @@ https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from
 `The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
 https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/
 
-**Trump’s Frustration with Putin Preceded Resumption of U.S. Weapons to Ukraine**\
+**Trump’s Frustration With Putin Preceded Resumption of U.S. Weapons to Ukraine**\
 `President Trump lashed out at the Russian leader on Tuesday, signaling an change in his posture toward the conflict.`\
-https://nytimes.com/2025/07/08/us/politics/trumps-putin-ukraine.html
+https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine.html
 
 **T.S.A. Officially Tells Fliers They Can Keep Their Shoes On**\
 `Pointing to “layered screening,” Kristi Noem, the homeland security secretary, ended two decades of socks and bare feet at U.S. airport checkpoints.`\

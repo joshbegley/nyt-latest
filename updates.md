@@ -1,3 +1,7 @@
+**Search-and-rescue teams from other states pour into Central Texas.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from-other-states-pour-into-central-texas
+
 **Francisco Alvarez blocks out frustration, commits to new path: 'Baseball never stops'**\
 `The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
 https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/

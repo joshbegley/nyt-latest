@@ -1,3 +1,7 @@
+**Search-and-rescue teams from other states pour into Central Texas.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from-other-states-pour-into-central-texas
+
 **Francisco Alvarez blocks out frustration, commits to new path: 'Baseball never stops'**\
 `The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
 https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6478468/2025/07/08/gavin-mckenna-penn-state-2026-nh
 **Jeff Williams, Apple’s Chief Operating Officer, Is Retiring After 27 Years**\
 `Mr. Williams was long considered a leading candidate to replace Tim Cook as the company’s next chief executive.`\
 https://nytimes.com/2025/07/08/technology/jeff-williams-apple-retiring.html
-
-**Map: 5.6-Magnitude Earthquake Strikes Guatemala**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/07/08/world/guatemala-quake-tracker.html
 
