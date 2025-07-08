@@ -1,3 +1,7 @@
+**Sweden’s Secret to Well-Being? Tiny Urban Gardens.**\
+`Known as koloniträdgårdar, they provide city dwellers access to nature, fresh produce and community.`\
+https://nytimes.com/2025/07/08/well/swedens-secret-to-well-being-tiny-urban-gardens.html
+
 **Why a Third-Party Bid Is Unlikely but Not Impossible**\
 `Answering reader questions about the obstacles and opportunities for new parties like the one formed by Elon Musk.`\
 https://nytimes.com/2025/07/08/upshot/third-party-elon-musk.html
