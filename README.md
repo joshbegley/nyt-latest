@@ -1,3 +1,7 @@
+**Rosenthal: As Rockies spiral towards historic losing season, front office shakeup could be looming**\
+`The idea of Colorado moving on from GM Bill Schmidt is generating chatter and drawing public acknowledgment from ownership.`\
+https://nytimes.com/athletic/6479400/2025/07/08/colorado-rockies-bill-schmidt-general-manager/
+
 **A Lost Summer Idyll**\
 `We explore the particular horror of a disaster at a summer camp.`\
 https://nytimes.com/2025/07/08/briefing/camp-mystic-texas-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6479062/2025/07/08/nhl-offseason-offer-sheets-holdo
 **MLBPA investigating agent following allegations of financial misconduct**\
 `Phillies outfielder Johan Rojas alleges that agent Yasser Mendez persuaded him to invest more than $450,000 in baseball academy he owned.`\
 https://nytimes.com/athletic/6478358/2025/07/08/mlbpa-investigation-agent-financial-misconduct-allegations/
-
-**Eno Sarris' fantasy baseball starting pitching ranks for the second half**\
-`Several exciting young pitchers make their debuts in this ranking, including Jacob Misiorowski.`\
-https://nytimes.com/athletic/6466635/2025/07/08/fantasy-baseball-starting-pitching-ranks-second-half-2025/
 

@@ -1,40 +1,40 @@
-**Norman Tebbit, Former U.K. Minister and Close Thatcher Ally, Dies at 94**\
-`Lord Tebbit held a series of roles in Margaret Thatcher’s cabinet, but left high office after his wife was seriously hurt in a bombing by the Irish Republican Army.`\
-https://nytimes.com/2025/07/08/obituaries/norman-tebbit-dead.html
+**A Lost Summer Idyll**\
+`We explore the particular horror of a disaster at a summer camp.`\
+https://nytimes.com/2025/07/08/briefing/camp-mystic-texas-floods.html
 
-**The Pulse: Why this MLB trade deadline could be a dud**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6478471/2025/07/08/the-mlb-trade-deadline-a-dud-plus-ranking-college-footballs-rivalries/
+**The East is the ultimate reflection of the NBA's parity era**\
+`Injuries and the second apron have created a power vacuum in the East not seen since the turn of the centry. `\
+https://nytimes.com/athletic/6478942/2025/07/08/nba-standings-eastern-conference-parity/
 
-**Phillies, silenced by an opponent and an umpire, are still waiting for Bryce Harper to power them**\
-`The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
-https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
+**Where do Jeremiah Smith, Drew Allar rank? The 25 best players in the Big Ten in 2025**\
+`Four players who followed Curt Cignetti from James Madison to Indiana made the list. `\
+https://nytimes.com/athletic/6477875/2025/07/08/big-ten-best-players-top-25-jeremiah-smith-drew-allar/
 
-**FIFA opens New York office in U.S. president's Trump Tower**\
-`FIFA boss Gianni Infantino has forged strong links with Trump as the U.S. is hosting this summer's Club World Cup.`\
-https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
+**NHL 2026 RFA watch: An early look at what some of next year’s contracts could be worth**\
+`GMs are already looking at next summer's restricted free agents. Here's what eight pending RFAs could be in line for next summer, or sooner.`\
+https://nytimes.com/athletic/6478627/2025/07/08/2026-nhl-rfa-watch/
 
-**Mets prospect Dylan Ross still hitting 100 mph after 2 elbow operations**\
-`The right-hander has a 2.54 ERA over three levels and an opportunity to reach the big leagues this season as a late-inning power reliever.`\
-https://nytimes.com/athletic/6479347/2025/07/08/mets-prospect-dylan-ross-100-mph-elbow-operations/
+**AFC North Whiparound: Offseason priorities, position battles and players on the bubble**\
+`Lamar Jackson is one of several Ravens who could sign a new deal soon, while the Bengals and Steelers both have standoffs in progress.`\
+https://nytimes.com/athletic/6471096/2025/07/08/steelers-ravens-bengals-browns-afc-north-2/
 
-**Ranking the 25 best college football rivalry names**\
-`Unique names are a big part of college football rivalry lore. Let's rank the 25 best, led by the mighty Brawl of the Wild.`\
-https://nytimes.com/athletic/6478167/2025/07/08/college-football-rivalry-best-names-rankings/
+**The MLB All-Quarter Century 'Never Been an All-Star' Team**\
+`Tim Salmon, Pat Burrell, Juan Pierre and Eric Chavez are among players whose stellar resumes lack an All-Star appearance in the 2000s.`\
+https://nytimes.com/athletic/6475374/2025/07/08/mlb-all-quarter-century-never-all-star-team/
 
-**How NIL and the transfer portal have changed the way college basketball coaches lead**\
-`“You feel like you can skip steps when you really can't,” Duke coach Jon Scheyer said. “You have to start from ground zero every summer.”`\
-https://nytimes.com/athletic/6478033/2025/07/08/college-basketball-coaches-nil-leadership-transfer-portal/
+**Toughness defines Daniel Dickinson's unlikely journey from walk-on to MLB Draft pick**\
+`Dickinson arrived at Utah Valley in the fall of 2022 without a guaranteed roster spot. Soon, he will hear his name called in the MLB Draft.`\
+https://nytimes.com/athletic/6476189/2025/07/08/daniel-dickinson-mlb-draft-lsu-baseball/
 
-**Why Mike McDaniel's Dolphins offense could benefit from being a little boring**\
-`The head coach could be on the hot seat if his high-octane scheme isn't balanced with some smash mouth football to keep defenses honest.`\
-https://nytimes.com/athletic/6470842/2025/07/08/miami-dolphins-offense-mike-mcdaniel-film/
+**Let's get old: 5 NHL offseason things I miss from days of yore**\
+`Salaries and signing older players used to be simpler, and offer sheets and holdouts used to be a lot more complicated. Let's reminisce.`\
+https://nytimes.com/athletic/6479062/2025/07/08/nhl-offseason-offer-sheets-holdouts/
 
-**Extreme heat is disrupting athletic events worldwide. Is sports ready?**\
-`In recent weeks, no matter the sport or setting, one constant has connected competitions around the globe: scorching temperatures.`\
-https://nytimes.com/athletic/6478749/2025/07/08/extreme-heat-sports-climate-change/
+**MLBPA investigating agent following allegations of financial misconduct**\
+`Phillies outfielder Johan Rojas alleges that agent Yasser Mendez persuaded him to invest more than $450,000 in baseball academy he owned.`\
+https://nytimes.com/athletic/6478358/2025/07/08/mlbpa-investigation-agent-financial-misconduct-allegations/
 
-**Hunter Greene's setback shows why there's never too much pitching**\
-`The Reds pitcher won't be back in the rotation as soon as the team had hoped. `\
-https://nytimes.com/athletic/6479494/2025/07/08/reds-lose-marlins-hunter-greene-setback-pitching/
+**Eno Sarris' fantasy baseball starting pitching ranks for the second half**\
+`Several exciting young pitchers make their debuts in this ranking, including Jacob Misiorowski.`\
+https://nytimes.com/athletic/6466635/2025/07/08/fantasy-baseball-starting-pitching-ranks-second-half-2025/
 
