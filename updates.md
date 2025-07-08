@@ -1,3 +1,11 @@
+**TAFC: Is Gyokeres right for Arsenal? Plus: Saudi club keen on Messi, FIFA office in Trump Tower**\
+`Today in TAFC: Is Gyokeres a better choice than Sesko for Arsenal? Plus: Interest from Saudi for Messi, Man Utd reject Amazon series.`\
+https://nytimes.com/athletic/6479638/2025/07/08/gyokeres-arsenal-transfers-messi-saudi-al-ahli/
+
+**What we're hearing about Quentin Grimes and VJ Edgecombe observations: 76ers notes**\
+`The restricted free agency of shooting guard Grimes is the Sixers' elephant in the room and has, as yet, yielded almost no movement.`\
+https://nytimes.com/athletic/6479497/2025/07/08/quentin-grimes-vj-edgecombe-76ers/
+
 **Phillies, silenced by an opponent and an umpire, are still waiting for Bryce Harper to power them**\
 `The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
 https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/

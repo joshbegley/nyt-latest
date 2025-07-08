@@ -1,3 +1,11 @@
+**TAFC: Is Gyokeres right for Arsenal? Plus: Saudi club keen on Messi, FIFA office in Trump Tower**\
+`Today in TAFC: Is Gyokeres a better choice than Sesko for Arsenal? Plus: Interest from Saudi for Messi, Man Utd reject Amazon series.`\
+https://nytimes.com/athletic/6479638/2025/07/08/gyokeres-arsenal-transfers-messi-saudi-al-ahli/
+
+**What we're hearing about Quentin Grimes and VJ Edgecombe observations: 76ers notes**\
+`The restricted free agency of shooting guard Grimes is the Sixers' elephant in the room and has, as yet, yielded almost no movement.`\
+https://nytimes.com/athletic/6479497/2025/07/08/quentin-grimes-vj-edgecombe-76ers/
+
 **Rosenthal: As Rockies spiral towards historic losing season, front office shakeup could be looming**\
 `The idea of Colorado moving on from GM Bill Schmidt is generating chatter and drawing public acknowledgment from ownership.`\
 https://nytimes.com/athletic/6479400/2025/07/08/colorado-rockies-bill-schmidt-general-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6471096/2025/07/08/steelers-ravens-bengals-browns-a
 **The MLB All-Quarter Century 'Never Been an All-Star' Team**\
 `Tim Salmon, Pat Burrell, Juan Pierre and Eric Chavez are among players whose stellar resumes lack an All-Star appearance in the 2000s.`\
 https://nytimes.com/athletic/6475374/2025/07/08/mlb-all-quarter-century-never-all-star-team/
-
-**Toughness defines Daniel Dickinson's unlikely journey from walk-on to MLB Draft pick**\
-`Dickinson arrived at Utah Valley in the fall of 2022 without a guaranteed roster spot. Soon, he will hear his name called in the MLB Draft.`\
-https://nytimes.com/athletic/6476189/2025/07/08/daniel-dickinson-mlb-draft-lsu-baseball/
-
-**Let's get old: 5 NHL offseason things I miss from days of yore**\
-`Salaries and signing older players used to be simpler, and offer sheets and holdouts used to be a lot more complicated. Let's reminisce.`\
-https://nytimes.com/athletic/6479062/2025/07/08/nhl-offseason-offer-sheets-holdouts/
 
