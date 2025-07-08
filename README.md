@@ -1,3 +1,15 @@
+**Photos of Macron’s U.K. State Visit, From a Carriage Ride to a Polite Kiss**\
+`President Emmanuel Macron is on a state visit to Britain, the first of a French leader since 2008. His hosts are drenching him in pomp, pizazz and protocol.`\
+https://nytimes.com/2025/07/08/world/europe/macron-uk-state-visit-royal-family-photos.html
+
+**North Carolina Family of 4 Killed in Small Plane Crash**\
+`The Buchanans, who ran a sprawling farm and store about 40 miles outside Raleigh, died on Monday.`\
+https://nytimes.com/2025/07/08/us/plane-crash-north-carolina.html
+
+**Sean Combs Will Be Sentenced in October**\
+`The music mogul was convicted last week on two counts of transportation to engage in prostitution, which each carries a maximum of 10 years in prison.`\
+https://nytimes.com/2025/07/08/arts/music/sean-combs-diddy-sentencing-date.html
+
 **Agriculture Dept. to Crack Down on Chinese Ownership of American Farmland**\
 `The agriculture secretary announced a plan to limit Chinese and foreign purchases of farmland as part of its national security strategy.`\
 https://nytimes.com/2025/07/08/us/politics/chinese-ownership-american-farmland.html
@@ -17,16 +29,4 @@ https://nytimes.com/2025/07/08/us/politics/laura-loomer-trump.html
 **If Orioles, Pirates sell at MLB trade deadline, which players have potential to step up?**\
 `Andrea Arcadipane looks at potential sellers, the Orioles and Pirates, ahead of the MLB trade deadline. `\
 https://nytimes.com/athletic/6478334/2025/07/08/mlb-trade-deadline-2025-orioles-pirates/
-
-**Carlos Alcaraz hits his stride at Wimbledon, right on time for a title defense**\
-`Alcaraz is establishing a Grand Slam pattern which spells danger for the rest of the field: get him early, or risk not getting him at all.`\
-https://nytimes.com/athletic/6481023/2025/07/08/tennis-wimbledon-carlos-alcaraz-record-form/
-
-**NWSL investigation clears Albertin Montoya but recommends changes for Bay FC**\
-`Investigators provided recommendations to Bay FC, Montoya and the league but did not propose any sanctions or punitive measures`\
-https://nytimes.com/athletic/6480645/2025/07/08/nwsl-investigation-albertin-montoya-bay-fc/
-
-**Listening Back to When Janet Jackson Was for Lovers**\
-`Hear six sensual songs by the pop great.`\
-https://nytimes.com/2025/07/08/arts/music/amplifier-newsletter-janet-jackson-love-songs.html
 
