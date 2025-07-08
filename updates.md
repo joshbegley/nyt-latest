@@ -1,3 +1,7 @@
+**South Korea Keeps Its Chin Up as Trump Wields Tariff Threat**\
+`The country’s new president, in office for a little over a month, had just dispatched his senior deputies to Washington to try to work out a trade deal.`\
+https://nytimes.com/2025/07/08/business/trump-tariffs-south-korea.html
+
 **Tottenham complete signing of Japan international defender Kota Takai**\
 `Takei is the first signing under new head coach Thomas Frank who was not on loan at the club last season.`\
 https://nytimes.com/athletic/6447636/2025/07/08/tottenham-complete-signing-of-japan-international-defender-kota-takai/

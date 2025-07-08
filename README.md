@@ -1,3 +1,7 @@
+**Crying Glacier**\
+`What does a melting glacier sound like? Artist Ludwig Berger attempts to record a disappearing environment.`\
+https://nytimes.com/video/opinion/100000010222666/crying-glacier.html
+
 **Tottenham complete signing of Japan international defender Kota Takai**\
 `Takei is the first signing under new head coach Thomas Frank who was not on loan at the club last season.`\
 https://nytimes.com/athletic/6447636/2025/07/08/tottenham-complete-signing-of-japan-international-defender-kota-takai/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/science/lung-cancer-screening-appalachia.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/08/crosswords/spelling-bee-forum.html
-
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`This is your weekly guide to what is happening across the summer transfer window`\
-https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/
 
