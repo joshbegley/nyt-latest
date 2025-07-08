@@ -1,3 +1,15 @@
+**5 Israeli Soldiers Killed in Gaza, Military Says**\
+`The Israeli military said the soldiers were killed during combat in northern Gaza, but offered few other details.`\
+https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
+
+**Lung Cancer Screening on Wheels**\
+`On the road with a 68,000-pound tractor-trailer that crisscrosses West Virginia, saving lives.`\
+https://nytimes.com/2025/07/08/science/lung-cancer-screening-appalachia.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/08/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `This is your weekly guide to what is happening across the summer transfer window`\
 https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-manchester-united-lionel-messi-real-madrid/

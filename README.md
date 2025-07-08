@@ -1,3 +1,7 @@
+**Thierno Barry travelling to Everton to complete €32.5m move from Villarreal**\
+`Barry has been given permission to travel to Merseyside for a medical following a holiday in Miami.`\
+https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
+
 **5 Israeli Soldiers Killed in Gaza, Military Says**\
 `The Israeli military said the soldiers were killed during combat in northern Gaza, but offered few other details.`\
 https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/08/todays-new-york-times
 **England vs India discussed: Gill's glorious batting, series predictions – and can Archer bounce back?**\
 `The England v India series is two matches in and has packed plenty of drama in already – The Athletic debate the action and what is to come`\
 https://nytimes.com/athletic/6477974/2025/07/08/england-india-cricket-series/
-
-**How has France’s relationship with the Tour de France changed after 40 years without overall victory?**\
-`It is sometimes taken as a given that a lack of success has inhibited the nation's enthusiasm for its home race. Not a bit of it`\
-https://nytimes.com/athletic/6476954/2025/07/08/tour-de-france-40-years-no-french-win-impact/
 
