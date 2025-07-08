@@ -1,3 +1,15 @@
+**Canucks mailbag, part 2: Centre trade options? Quinn Hughes vs. Gavin McKenna?**\
+`Let's move beyond the free-agent frenzy and start looking ahead to the Canucks' future.`\
+https://nytimes.com/athletic/6477500/2025/07/08/canucks-mailbag-hughes-mckenna/
+
+**What to expect from Martin Ho, Tottenham Women's new head coach**\
+`After almost a month of searching for the right candidate following a grim season, the Spurs women's team have a new leader`\
+https://nytimes.com/athletic/6479764/2025/07/08/martin-ho-tottenham-women/
+
+**I Can’t — and Won’t — Stop Making These Recipes**\
+`Dak bulgogi (Korean BBQ chicken), crunchy queso wraps and corn and miso pasta salad are on repeat all summer.`\
+https://nytimes.com/2025/07/08/dining/i-cant-and-wont-stop-making-these-recipes.html
+
 **Four Men Charged in Plot to Seize Land Near Quebec City**\
 `The police seized a large cache of guns and explosives and said that the ‘ideologically motivated’ group included members of Canada’s military.`\
 https://nytimes.com/2025/07/08/world/canada/terrorist-plot-charges-canada-quebec.html
