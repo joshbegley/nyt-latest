@@ -1,3 +1,7 @@
+**Fluminense 0 Chelsea 2: Two Joao Pedro wondergoals seal final spot, but should Flu have had penalty?**\
+`Chelsea will play PSG or Real Madrid in the Club World Cup final after beating Fluminense at MetLife Stadium.`\
+https://nytimes.com/athletic/6477515/2025/07/08/chelsea-fluminense-neto-club-world-cup/
+
 **Dueling U.S. Efforts Botched a Deal to Swap Venezuelans Held in El Salvador for Americans**\
 `Secretary of State Marco Rubio and the U.S. envoy to Venezuela were both working on different deals and ended up at cross purposes.`\
 https://nytimes.com/2025/07/08/world/americas/trump-venezuelan-migrants-us-prisoner-swap.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6476058/2025/07/08/mike-brown-knicks-head-coach/
 **Should You Be ‘Fibermaxxing’?**\
 `A familiar concept gets some Gen Z branding, and unlike other trends, experts are encouraging it.`\
 https://nytimes.com/2025/07/08/style/fibermaxxing-tiktok-trend.html
-
-**Caitlin Clark plans to return from injury Wednesday vs. Valkyries**\
-`Clark has missed 10 games so far this season, first with a left quad strain and then a groin injury.`\
-https://nytimes.com/athletic/6481223/2025/07/08/caitlin-clark-fever-groin-injury/
 
