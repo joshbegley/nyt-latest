@@ -1,3 +1,7 @@
+**Veterans Affairs Dept. Scales Back Plans for Vast Job Cuts**\
+`The department abandoned its previous plan to cut 80,000 workers, saying it expected a reduction of around 30,000 jobs by the end of September.`\
+https://nytimes.com/2025/07/07/us/politics/veterans-affairs-layoffs-jobs.html
+
 **What We Saw in the Texas Flood Zone**\
 `Search-and-rescue teams have been hoping against hope to find signs of life after the Texas floods. Nicholas Bogel-Burroughs, an investigative reporter at The New York Times, describes what he has seen in Texas.`\
 https://nytimes.com/video/us/100000010271441/what-we-saw-in-the-texas-flood-zone.html

@@ -1,3 +1,7 @@
+**Veterans Affairs Dept. Scales Back Plans for Vast Job Cuts**\
+`The department abandoned its previous plan to cut 80,000 workers, saying it expected a reduction of around 30,000 jobs by the end of September.`\
+https://nytimes.com/2025/07/07/us/politics/veterans-affairs-layoffs-jobs.html
+
 **What We Saw in the Texas Flood Zone**\
 `Search-and-rescue teams have been hoping against hope to find signs of life after the Texas floods. Nicholas Bogel-Burroughs, an investigative reporter at The New York Times, describes what he has seen in Texas.`\
 https://nytimes.com/video/us/100000010271441/what-we-saw-in-the-texas-flood-zone.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/07/07/us/politics/texas-floods-trump-administration.htm
 **A Day Before Trial, Alleged Accomplice of Alexander Brothers Is Cleared**\
 `Ohad Fisherman had been charged with sexual battery along with Oren and Alon Alexander stemming from an alleged 2016 assault.`\
 https://nytimes.com/2025/07/07/realestate/ohad-fisherman-alexander-brothers-case.html
-
-**Planned Parenthood Wins a Temporary Injunction Over Medicaid Funding**\
-`The nonprofit is challenging a new law that bars its clinics from receiving federal money for any treatment, including birth control and checkups.`\
-https://nytimes.com/2025/07/07/us/planned-parenthood-medicaid-funding.html
 
