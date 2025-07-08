@@ -1,3 +1,11 @@
+**Team Clark or Team Collier? Our experts draft their WNBA All-Star squads**\
+`The WNBA All-Star Game draft takes place Tuesday night. Who should Clark and Collier choose as teammates? `\
+https://nytimes.com/athletic/6480368/2025/07/08/wnba-all-star-draft-picks/
+
+**Trump’s Budget Would Clip Bird Banding. Hunters Are Not Happy.**\
+`The Bird Banding Laboratory has turned duck hunters into citizen scientists. What happens if it is defunded?`\
+https://nytimes.com/2025/07/08/science/trump-budget-birds-banding-hunters.html
+
 **Canucks mailbag, part 2: Centre trade options? Quinn Hughes vs. Gavin McKenna?**\
 `Let's move beyond the free-agent frenzy and start looking ahead to the Canucks' future.`\
 https://nytimes.com/athletic/6477500/2025/07/08/canucks-mailbag-hughes-mckenna/
