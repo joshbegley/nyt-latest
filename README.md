@@ -2,6 +2,10 @@
 `The idea of Colorado moving on from GM Bill Schmidt is generating chatter and drawing public acknowledgment from ownership.`\
 https://nytimes.com/athletic/6479400/2025/07/08/colorado-rockies-bill-schmidt-general-manager/
 
+**Phillies, silenced by an opponent and an umpire, are still waiting for Bryce Harper to power them**\
+`The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
+https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
+
 **A Lost Summer Idyll**\
 `We explore the particular horror of a disaster at a summer camp.`\
 https://nytimes.com/2025/07/08/briefing/camp-mystic-texas-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6476189/2025/07/08/daniel-dickinson-mlb-draft-lsu-b
 **Let's get old: 5 NHL offseason things I miss from days of yore**\
 `Salaries and signing older players used to be simpler, and offer sheets and holdouts used to be a lot more complicated. Let's reminisce.`\
 https://nytimes.com/athletic/6479062/2025/07/08/nhl-offseason-offer-sheets-holdouts/
-
-**MLBPA investigating agent following allegations of financial misconduct**\
-`Phillies outfielder Johan Rojas alleges that agent Yasser Mendez persuaded him to invest more than $450,000 in baseball academy he owned.`\
-https://nytimes.com/athletic/6478358/2025/07/08/mlbpa-investigation-agent-financial-misconduct-allegations/
 
