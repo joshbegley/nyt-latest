@@ -1,3 +1,15 @@
+**Spanish authorities release initial findings into car crash that killed Diogo Jota**\
+`Liverpool forward Jota and his brother Andre Silva were killed in a car accident in Spain in the early hours of Thursday morning.`\
+https://nytimes.com/athletic/6480020/2025/07/08/diogo-jota-car-crash-spain-police/
+
+**Wildfires Burn in Spain and France After Blistering Heat Wave**\
+`Weather agencies issued warnings for other parts of Europe where temperatures were expected to climb this week.`\
+https://nytimes.com/2025/07/08/world/europe/france-spain-wildfires-heat-wave.html
+
+**Tottenham's Alejo Veliz returns to former club Rosario Central**\
+`The deal does not include an option or obligation to make the move permanent next summer.`\
+https://nytimes.com/athletic/6479770/2025/07/08/alejo-veliz-loan-deal-tottenham-rosario-central/
+
 **Actors Dressing the Part of Tourists**\
 `A duo’s charisma drew attention to their outfits on the streets of Hong Kong.`\
 https://nytimes.com/2025/07/08/style/street-style-look-casual-travel-clothes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/08/learning/he-replied-with-a-single-thumbs-up-the-w
 **Central Texas faces less rain Tuesday, though flood risks persist.**\
 `Forecasters warned that even smaller downpours could spark more flooding in areas that are already saturated.`\
 https://nytimes.com/live/2025/07/08/us/texas-floods/central-texas-faces-less-rain-tuesday-though-flood-risks-persist
-
-**How one NBA trade can lead to another, which leads to another, which leads to another...**\
-`Because of new rules regarding trade exceptions and other factors, we can expect deals like this to happen much more often.`\
-https://nytimes.com/athletic/6479434/2025/07/08/nba-seven-team-trade-rockets-suns/
-
-**Are Boye Mafe, Derick Hall in Seahawks' long-term plans? This season could decide**\
-`Mafe and Hall have each shown flashes, and the former is eligible for an extension, but the Seahawks might want to let things play out.`\
-https://nytimes.com/athletic/6436859/2025/07/08/seahawks-boye-mafe-contract-derick-hall/
-
-**Answering all your Rossi, Kaprizov questions: Ask Russo and Smith, part 1**\
-`Contracts for Rossi and Kaprizov are among the Wild's biggest to-do list items this offseason. When should you worry? We explain.`\
-https://nytimes.com/athletic/6478580/2025/07/08/marco-rossi-kirill-kaprizov-wild-mailbag/
 

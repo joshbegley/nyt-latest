@@ -1,3 +1,7 @@
+**Actors Dressing the Part of Tourists**\
+`A duo’s charisma drew attention to their outfits on the streets of Hong Kong.`\
+https://nytimes.com/2025/07/08/style/street-style-look-casual-travel-clothes.html
+
 **Netanyahu Releases Letter Nominating Trump for Nobel Peace Prize**\
 `Prime Minister Benjamin Netanyahu of Israel praised President Trump’s role in his country’s establishment of diplomatic relations with some Arab states. But Mr. Trump has supported Israeli actions that have strained those ties.`\
 https://nytimes.com/2025/07/08/us/politics/netanyahu-trump-nobel-peace-prize.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6436859/2025/07/08/seahawks-boye-mafe-contract-deri
 **Answering all your Rossi, Kaprizov questions: Ask Russo and Smith, part 1**\
 `Contracts for Rossi and Kaprizov are among the Wild's biggest to-do list items this offseason. When should you worry? We explain.`\
 https://nytimes.com/athletic/6478580/2025/07/08/marco-rossi-kirill-kaprizov-wild-mailbag/
-
-**Trump Administration Live Updates: President Revives Trade War Threat**\
-``\
-https://nytimes.com/live/2025/07/08/us/trump-news
 

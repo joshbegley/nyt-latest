@@ -1,3 +1,7 @@
+**Actors Dressing the Part of Tourists**\
+`A duo’s charisma drew attention to their outfits on the streets of Hong Kong.`\
+https://nytimes.com/2025/07/08/style/street-style-look-casual-travel-clothes.html
+
 **Netanyahu Releases Letter Nominating Trump for Nobel Peace Prize**\
 `Prime Minister Benjamin Netanyahu of Israel praised President Trump’s role in his country’s establishment of diplomatic relations with some Arab states. But Mr. Trump has supported Israeli actions that have strained those ties.`\
 https://nytimes.com/2025/07/08/us/politics/netanyahu-trump-nobel-peace-prize.html
