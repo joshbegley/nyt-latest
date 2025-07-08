@@ -1,5 +1,21 @@
+**'Healthy' Dak Prescott expects to be full-go for start of Cowboys training camp**\
+`Dak Prescott is obviously excited about the potential of the offense with CeeDee Lamb and the recently acquired George Pickens.`\
+https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-quarterback-george-pickens/
+
+**Trading Norman Powell for John Collins changes Clippers roster geometry, adds size**\
+`The Clippers addition of John Collins should help, but team president Lawrence Frank says they're not done yet. `\
+https://nytimes.com/athletic/6479501/2025/07/08/clippers-trade-norman-powell-john-collins/
+
+**In Koreatown, Musaek’s Menu Looks to the Sea**\
+`Comal showcases the Mexican larder, Asano brings a cafe to Sandro’s and more restaurant news.`\
+https://nytimes.com/2025/07/08/dining/nyc-restaurant-news.html
+
+**Until Saturday: CFB 26 is so real, it hurts**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6480852/2025/07/08/college-football-26-review-until-saturday/
+
 **Where else will Verstappen threaten McLaren? Plus, F1 reacts to incredible Hülkenberg**\
-`Prime Tire Newsletter | This is The Athletic’s twice-weekly F1 newsletter.`\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6478400/2025/07/08/max-verstappen-british-gp-spin/
 
 **BYU coach on Retzlaff’s status, potential suspension: ‘Prep for everything’**\
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
 **Brighton winger Osman joins Auxerre on season-long loan**\
 `The 20-year-old has joined the Ligue 1 side after spending the 2024/25 season on loan at Feyernoord.`\
 https://nytimes.com/athletic/6480724/2025/07/08/brighton-osman-auxerre-loan-transfer-news/
-
-**Putellas is back on song and banishing her worst Euros memories**\
-`Putellas missed the last Euros with an ACL injury. Now, she is making up for lost time`\
-https://nytimes.com/athletic/6480322/2025/07/08/alexia-putellas-euros-spain-return/
-
-**Federal Agents March Through MacArthur Park in Los Angeles**\
-`Residents were outraged after dozens of federal agents marched through MacArthur Park, in one of the city’s most immigrant-heavy neighborhoods. Homeland Security officials said it was an immigration enforcement operation.`\
-https://nytimes.com/video/us/100000010272693/federal-agents-park-protests-los-angeles.html
-
-**Wildfires Rage in Parts of Spain and France After Recent Heat Wave**\
-`French and Spanish firefighters battled blazes that burned through thousands of acres for a second day. The fires followed a heat wave that dried out the terrain, creating fuel for wildfires, according to weather agencies and experts.`\
-https://nytimes.com/video/world/europe/100000010272799/wildfires-spain-france-heat-wave.html
-
-**For Family Reunions, Just Walk Down the Hall**\
-`Living in the same apartment building as a family member has provided the right balance of privacy and comfort to some New Yorkers.`\
-https://nytimes.com/2025/07/08/realestate/family-same-apartment-building.html
 

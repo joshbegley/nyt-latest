@@ -1,3 +1,23 @@
+**'Healthy' Dak Prescott expects to be full-go for start of Cowboys training camp**\
+`Dak Prescott is obviously excited about the potential of the offense with CeeDee Lamb and the recently acquired George Pickens.`\
+https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-quarterback-george-pickens/
+
+**Trading Norman Powell for John Collins changes Clippers roster geometry, adds size**\
+`The Clippers addition of John Collins should help, but team president Lawrence Frank says they're not done yet. `\
+https://nytimes.com/athletic/6479501/2025/07/08/clippers-trade-norman-powell-john-collins/
+
+**In Koreatown, Musaek’s Menu Looks to the Sea**\
+`Comal showcases the Mexican larder, Asano brings a cafe to Sandro’s and more restaurant news.`\
+https://nytimes.com/2025/07/08/dining/nyc-restaurant-news.html
+
+**Until Saturday: CFB 26 is so real, it hurts**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6480852/2025/07/08/college-football-26-review-until-saturday/
+
+**Where else will Verstappen threaten McLaren? Plus, F1 reacts to incredible Hülkenberg**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6478400/2025/07/08/max-verstappen-british-gp-spin/
+
 **Where else will Verstappen threaten McLaren? Plus, F1 reacts to incredible Hülkenberg**\
 `Prime Tire Newsletter | This is The Athletic’s twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/6478400/2025/07/08/max-verstappen-british-gp-spin/
