@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Hope everyone is having a great summer and playing as much golf as Hugh Freeze.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6478634/2025/07/07/submit-a-question-for-stewart-mandels-college-football-mailbag-305/
+
 **Trump Looks to Avoid Casting Blame in Texas Flood as Democrats Question Cuts**\
 `The White House rebuked critics for raising questions about the administration’s efforts to shrink federal agencies that deal with disaster preparedness and response.`\
 https://nytimes.com/2025/07/07/us/politics/trump-texas-floods.html
@@ -33,8 +39,4 @@ https://nytimes.com/2025/07/07/nyregion/barnard-college-antisemitism-lawsuit.htm
 **Tropical Depression Chantal Floods Central North Carolina**\
 `Authorities said that there was at least one storm-related death in North Carolina.`\
 https://nytimes.com/video/weather/100000010271901/tropical-depression-chantal-floods-central-north-carolina.html
-
-**Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
-`Kevin Pritchard says he was negotiating in good faith but found out big man was signing with Bucks over social media.`\
-https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
 
