@@ -1,3 +1,7 @@
+**Four Men Charged in Plot to Seize Land Near Quebec City**\
+`The police seized a large cache of guns and explosives and said that the ‘ideologically motivated’ group included members of Canada’s military.`\
+https://nytimes.com/2025/07/08/world/canada/terrorist-plot-charges-canada-quebec.html
+
 **The Wild Russian Plot to Burn a London Restaurant and Kidnap Its Owner**\
 `Court proceedings revealed how a criminal gang in Britain were directed to target Yevgeny Chichvarkin, a dissident Russian who owns Hide, a Michelin-starred restaurant in Mayfair.`\
 https://nytimes.com/2025/07/08/world/europe/hide-wagner-plot-kidnap-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6479650/2025/07/08/nba-summer-league-the-bounce/
 **Ted Cruz Was Vacationing in Greece as Floods Devastated Texas**\
 `The Republican senator, who was on a preplanned family vacation, did not return to his state until 72 hours after the deadly disaster, which his office said was as quickly as possible.`\
 https://nytimes.com/2025/07/08/us/ted-cruz-texas-floods-vacation-greece.html
-
-**The Windup: Manny Machado on the path to 3,000 hits**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6479544/2025/07/08/manny-machado-3000-hits-the-windup/
 

@@ -1,3 +1,15 @@
+**The Wild Russian Plot to Burn a London Restaurant and Kidnap Its Owner**\
+`Court proceedings revealed how a criminal gang in Britain were directed to target Yevgeny Chichvarkin, a dissident Russian who owns Hide, a Michelin-starred restaurant in Mayfair.`\
+https://nytimes.com/2025/07/08/world/europe/hide-wagner-plot-kidnap-uk.html
+
+**Why Kirk Cousins felt 'misled' by the Falcons and played through injury in Netflix series**\
+`Cousins says "it would have affected my decision" to sign with the Falcons if he knew they were planning to draft a quarterback early.`\
+https://nytimes.com/athletic/6479842/2025/07/08/falcons-quarterback-kirk-cousins-penix-jr-netflix/
+
+**Wales team bus involved in road collision, Euro 2025 training cancelled**\
+`Wales have cancelled their training for this evening ahead of their match against France due to the collision.`\
+https://nytimes.com/athletic/6480253/2025/07/08/wales-women-team-bus-road-collision/
+
 **Trump’s U-Turn on Weapons Leaves Ukrainians Hopeful but Cautious**\
 `After President Trump’s announcement that the United States would send more military aid, some were grateful, others were skeptical, mindful of his seesawing policy.`\
 https://nytimes.com/2025/07/08/world/europe/ukraine-russia-us-weapons-trump.html
