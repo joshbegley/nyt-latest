@@ -1,3 +1,7 @@
+**Laura Loomer, Trump’s Blunt Instrument**\
+`The right-wing provocateur and Islamophobe has few friends in the West Wing but a big fan in the Oval Office.`\
+https://nytimes.com/2025/07/08/us/politics/laura-loomer-trump.html
+
 **If Orioles, Pirates sell at MLB trade deadline, which players have potential to step up?**\
 `Andrea Arcadipane looks at potential sellers, the Orioles and Pirates, ahead of the MLB trade deadline. `\
 https://nytimes.com/athletic/6478334/2025/07/08/mlb-trade-deadline-2025-orioles-pirates/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/arts/dance/doris-duke-theater-jacobs-pillow-danci
 **Davide Ancelotti appointed Botafogo coach, will return to Brazil for World Cup**\
 `The Italian joins the Brazilian champions on a contract until the end of the 2026 season.`\
 https://nytimes.com/athletic/6480981/2025/07/08/davide-ancelotti-botafogo-brazil-world-cup/
-
-**State Dept. Is Investigating Messages Impersonating Rubio, Official Says**\
-`A person or people imitating the secretary of state used artificial intelligence to send text and voice messages to foreign diplomats and U.S. officials, the department said in a cable to employees.`\
-https://nytimes.com/2025/07/08/us/politics/rubio-ai-impersonation-investigation.html
 

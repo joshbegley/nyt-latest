@@ -1,3 +1,7 @@
+**Laura Loomer, Trump’s Blunt Instrument**\
+`The right-wing provocateur and Islamophobe has few friends in the West Wing but a big fan in the Oval Office.`\
+https://nytimes.com/2025/07/08/us/politics/laura-loomer-trump.html
+
 **If Orioles, Pirates sell at MLB trade deadline, which players have potential to step up?**\
 `Andrea Arcadipane looks at potential sellers, the Orioles and Pirates, ahead of the MLB trade deadline. `\
 https://nytimes.com/athletic/6478334/2025/07/08/mlb-trade-deadline-2025-orioles-pirates/
