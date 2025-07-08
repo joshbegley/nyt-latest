@@ -1,3 +1,11 @@
+**Mets prospect Dylan Ross still hitting 100 mph after 2 elbow operations**\
+`The right-hander has a 2.54 ERA over three levels and an opportunity to reach the big leagues this season as a late-inning power reliever.`\
+https://nytimes.com/athletic/6479347/2025/07/08/mets-prospect-dylan-ross-100-mph-elbow-operations/
+
+**Extreme heat is disrupting athletic events worldwide. Is sports ready?**\
+`In recent weeks, no matter the sport or setting, one constant has connected competitions around the globe: scorching temperatures.`\
+https://nytimes.com/athletic/6478749/2025/07/08/extreme-heat-sports-climate-change/
+
 **Ranking the 25 best college football rivalry names**\
 `Unique names are a big part of college football rivalry lore. Let's rank the 25 best, led by the mighty Brawl of the Wild.`\
 https://nytimes.com/athletic/6478167/2025/07/08/college-football-rivalry-best-names-rankings/
