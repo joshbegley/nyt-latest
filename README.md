@@ -1,3 +1,7 @@
+**Agriculture Dept. to Crack Down on Chinese Ownership of American Farmland**\
+`The agriculture secretary announced a plan to limit Chinese and foreign purchases of farmland as part of its national security strategy.`\
+https://nytimes.com/2025/07/08/us/politics/chinese-ownership-american-farmland.html
+
 **Rescue Efforts Underway After Flash Flooding in Nepal**\
 `At least seven people have been killed in the flooding, which also swept away the main bridge connecting Nepal to China.`\
 https://nytimes.com/video/weather/100000010273617/nepal-bridge-flooding-river.html
@@ -22,11 +26,7 @@ https://nytimes.com/athletic/6481023/2025/07/08/tennis-wimbledon-carlos-alcaraz-
 `Investigators provided recommendations to Bay FC, Montoya and the league but did not propose any sanctions or punitive measures`\
 https://nytimes.com/athletic/6480645/2025/07/08/nwsl-investigation-albertin-montoya-bay-fc/
 
-**Listening Back to When Janet Jackson Was for lovers**\
+**Listening Back to When Janet Jackson Was for Lovers**\
 `Hear six sensual songs by the pop great.`\
 https://nytimes.com/2025/07/08/arts/music/amplifier-newsletter-janet-jackson-love-songs.html
-
-**‘Such Brave Girls’ Is an Audacious and Hilarious British Comedy**\
-`For fans of “Peep Show” and Sharon Horgan, this warped series about a dysfunctional family is in some ways a satire of the trauma comedy.`\
-https://nytimes.com/2025/07/08/arts/television/such-brave-girls-hulu.html
 

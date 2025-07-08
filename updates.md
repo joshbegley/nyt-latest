@@ -1,3 +1,11 @@
+**Rescue Efforts Underway After Flash Flooding in Nepal**\
+`At least seven people have been killed in the flooding, which also swept away the main bridge connecting Nepal to China.`\
+https://nytimes.com/video/weather/100000010273617/nepal-bridge-flooding-river.html
+
+**10 Charged With Attempted Murder in Officer Shooting at ICE Detention Center**\
+`One police officer was wounded after at least two people shot at officers outside an immigration detention center in Texas, according to a criminal complaint in federal court.`\
+https://nytimes.com/2025/07/08/us/ice-detention-facility-shooting-texas.html
+
 **Laura Loomer, Trump’s Blunt Instrument**\
 `The right-wing provocateur and Islamophobe has few friends in the West Wing but a big fan in the Oval Office.`\
 https://nytimes.com/2025/07/08/us/politics/laura-loomer-trump.html
