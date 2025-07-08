@@ -1,3 +1,11 @@
+**Ivar Giaever, Nobel Winner in Quantum Physics, Dies at 96**\
+`A former “D” student from Norway, he made his mark at G.E.’s Research Lab in the U.S., in part by confirming a pivotal theory about superconductivity.`\
+https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
+
+**Brighton winger Osman joins Auxerre on season-long loan**\
+`The 20-year-old has joined the Ligue 1 side after spending the 2024/25 season on loan at Feyernoord.`\
+https://nytimes.com/athletic/6480724/2025/07/08/brighton-osman-auxerre-loan-transfer-news/
+
 **Putellas is back on song and banishing her worst Euros memories**\
 `Putellas missed the last Euros with an ACL injury. Now, she is making up for lost time`\
 https://nytimes.com/athletic/6480322/2025/07/08/alexia-putellas-euros-spain-return/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/08/world/middleeast/red-sea-ship-attack.html
 **‘Memnon’ Review: To Fight or Not to Fight?**\
 `In Will Power’s play for the Classical Theater of Harlem, Eric Berryman stars as an Ethiopian king drawn into the Trojan War.`\
 https://nytimes.com/2025/07/08/theater/memnon-review-harlem-classical.html
-
-**Trump’s Big Bill Is Now Law. What Was Learned?**\
-`Readers see varying lessons in President Trump’s domestic policy bill. Also: Cuts that hurt community health.`\
-https://nytimes.com/2025/07/08/opinion/trump-bill.html
-
-**‘Playing the Man’: Global Diplomacy in the Trump Era Is All About Flattery**\
-`Prime Minister Benjamin Netanyahu of Israel handed a letter to President Trump nominating him for the Nobel Peace Prize. But it’s not clear whether stroking the president’s ego has long-lasting effects.`\
-https://nytimes.com/2025/07/08/world/europe/trump-diplomacy-flattery-world-leaders.html
 

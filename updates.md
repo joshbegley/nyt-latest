@@ -1,3 +1,11 @@
+**Ivar Giaever, Nobel Winner in Quantum Physics, Dies at 96**\
+`A former “D” student from Norway, he made his mark at G.E.’s Research Lab in the U.S., in part by confirming a pivotal theory about superconductivity.`\
+https://nytimes.com/2025/07/08/science/ivar-giaever-dead.html
+
+**Brighton winger Osman joins Auxerre on season-long loan**\
+`The 20-year-old has joined the Ligue 1 side after spending the 2024/25 season on loan at Feyernoord.`\
+https://nytimes.com/athletic/6480724/2025/07/08/brighton-osman-auxerre-loan-transfer-news/
+
 **Putellas is back on song and banishing her worst Euros memories**\
 `Putellas missed the last Euros with an ACL injury. Now, she is making up for lost time`\
 https://nytimes.com/athletic/6480322/2025/07/08/alexia-putellas-euros-spain-return/
