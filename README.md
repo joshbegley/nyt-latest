@@ -1,3 +1,7 @@
+**Private drones are obstructing search efforts, Texas officials say.**\
+`A helicopter involved in rescue efforts`\
+https://nytimes.com/live/2025/07/08/us/texas-floods/private-drones-are-obstructing-search-efforts-texas-officials-say
+
 **TAFC: Is Gyokeres right for Arsenal? Plus: Saudi club keen on Messi, FIFA office in Trump Tower**\
 `Today in TAFC: Is Gyokeres a better choice than Sesko for Arsenal? Plus: Interest from Saudi for Messi, Man Utd reject Amazon series.`\
 https://nytimes.com/athletic/6479638/2025/07/08/gyokeres-arsenal-transfers-messi-saudi-al-ahli/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478627/2025/07/08/2026-nhl-rfa-watch/
 **AFC North Whiparound: Offseason priorities, position battles and players on the bubble**\
 `Lamar Jackson is one of several Ravens who could sign a new deal soon, while the Bengals and Steelers both have standoffs in progress.`\
 https://nytimes.com/athletic/6471096/2025/07/08/steelers-ravens-bengals-browns-afc-north-2/
-
-**The MLB All-Quarter Century 'Never Been an All-Star' Team**\
-`Tim Salmon, Pat Burrell, Juan Pierre and Eric Chavez are among players whose stellar resumes lack an All-Star appearance in the 2000s.`\
-https://nytimes.com/athletic/6475374/2025/07/08/mlb-all-quarter-century-never-all-star-team/
 
