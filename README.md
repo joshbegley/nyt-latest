@@ -1,3 +1,11 @@
+**Rescue Efforts Underway After Flash Flooding in Nepal**\
+`At least seven people have been killed in the flooding, which also swept away the main bridge connecting Nepal to China.`\
+https://nytimes.com/video/weather/100000010273617/nepal-bridge-flooding-river.html
+
+**10 Charged With Attempted Murder in Officer Shooting at ICE Detention Center**\
+`One police officer was wounded after at least two people shot at officers outside an immigration detention center in Texas, according to a criminal complaint in federal court.`\
+https://nytimes.com/2025/07/08/us/ice-detention-facility-shooting-texas.html
+
 **Laura Loomer, Trump’s Blunt Instrument**\
 `The right-wing provocateur and Islamophobe has few friends in the West Wing but a big fan in the Oval Office.`\
 https://nytimes.com/2025/07/08/us/politics/laura-loomer-trump.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/07/08/arts/music/amplifier-newsletter-janet-jackson-lov
 **‘Such Brave Girls’ Is an Audacious and Hilarious British Comedy**\
 `For fans of “Peep Show” and Sharon Horgan, this warped series about a dysfunctional family is in some ways a satire of the trauma comedy.`\
 https://nytimes.com/2025/07/08/arts/television/such-brave-girls-hulu.html
-
-**At Jacob’s Pillow, a High-Tech Theater Rises From the Ashes**\
-`The Doris Duke Theater, which burned down in 2020, has been rebuilt as a hub for dance and technology.`\
-https://nytimes.com/2025/07/08/arts/dance/doris-duke-theater-jacobs-pillow-dancing-the-algorithm.html
-
-**Davide Ancelotti appointed Botafogo coach, will return to Brazil for World Cup**\
-`The Italian joins the Brazilian champions on a contract until the end of the 2026 season.`\
-https://nytimes.com/athletic/6480981/2025/07/08/davide-ancelotti-botafogo-brazil-world-cup/
 
