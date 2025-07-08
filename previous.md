@@ -30,7 +30,3 @@ https://nytimes.com/newsgraphics/card-story/jacinda-ardern-book-new-zealand
 `Dak Prescott is obviously excited about the potential of the offense with CeeDee Lamb and the recently acquired George Pickens.`\
 https://nytimes.com/athletic/6480710/2025/07/08/dak-prescott-cowboys-healthy-quarterback-george-pickens/
 
-**Trading Norman Powell for John Collins changes Clippers roster geometry, adds size**\
-`The Clippers addition of John Collins should help, but team president Lawrence Frank says they're not done yet. `\
-https://nytimes.com/athletic/6479501/2025/07/08/clippers-trade-norman-powell-john-collins/
-
