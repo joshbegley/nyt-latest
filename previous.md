@@ -1,3 +1,7 @@
+**Trump Looks to Avoid Casting Blame in Texas Flood as Democrats Question Cuts**\
+`The White House rebuked critics for raising questions about the administration’s efforts to shrink federal agencies that deal with disaster preparedness and response.`\
+https://nytimes.com/2025/07/07/us/politics/trump-texas-floods.html
+
 **Likelihood of Finding Texas Flood Survivors Fades as Death Toll Passes 100**\
 `The surging waters began tearing through Central Texas four days ago. A rescue expert said that people who survive a violent flood are usually found rapidly.`\
 https://nytimes.com/2025/07/07/us/texas-floods-search-rescue-survivors.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010271901/tropical-depression-chantal-fl
 **Pacers president blindsided by Myles Turner's departure: 'I was shocked'**\
 `Kevin Pritchard says he was negotiating in good faith but found out big man was signing with Bucks over social media.`\
 https://nytimes.com/athletic/6479057/2025/07/07/pacers-myles-turner-departure-kevin-pritchard/
-
-**Giants All-Star Randy Rodríguez is a development success. What that means for the organization**\
-`Rodríguez's improvement with his command has vaulted him into All-Star status. Can his improvement be replicated with others in the org.?`\
-https://nytimes.com/athletic/6478577/2025/07/07/randy-rodriguez-giants-pitching-development/
 
