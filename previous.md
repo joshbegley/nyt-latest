@@ -1,3 +1,11 @@
+**Stocks Shake Off Tariff Threat After Trump Extends Deadline**\
+`The president noted that U.S. negotiators remained open to offers from trading partners, suggesting that tariffs could be reduced by — or even after — the deadline on Aug. 1.`\
+https://nytimes.com/2025/07/08/business/trump-tariffs-stock-markets-sp500.html
+
+**How to Experience Opera’s Most Interesting Festival From Afar**\
+`Many of the offerings at the Aix-en-Provence Festival in France are broadcast, or they travel to other theaters. Here are some highlights.`\
+https://nytimes.com/2025/07/08/arts/music/aix-festival-opera-highlights-2025.html
+
 **Spanish authorities release initial findings into car crash that killed Diogo Jota**\
 `Liverpool forward Jota and his brother Andre Silva were killed in a car accident in Spain in the early hours of Thursday morning.`\
 https://nytimes.com/athletic/6480020/2025/07/08/diogo-jota-car-crash-spain-police/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6479614/2025/07/08/tennis-amanda-anisimova-team-inj
 **The Mamdani Debate Moves to Silicon Valley**\
 `A partner at Sequoia, the venture capital giant drew criticism for calling the Democratic mayoral candidate for New York an “Islamist.”`\
 https://nytimes.com/2025/07/08/business/dealbook/mamdani-sequoia-maguire.html
-
-**‘He Replied With a Single Thumbs-Up’: The Week 3 Winner of Our Summer Reading Contest**\
-`“Asian parents don’t text their kids like they do in Western movies,” writes Ellena Lee, 15 — but a father’s love can show up in other ways.`\
-https://nytimes.com/2025/07/08/learning/he-replied-with-a-single-thumbs-up-the-week-3-winner-of-our-summer-reading-contest.html
-
-**Central Texas faces less rain Tuesday, though flood risks persist.**\
-`Forecasters warned that even smaller downpours could spark more flooding in areas that are already saturated.`\
-https://nytimes.com/live/2025/07/08/us/texas-floods/central-texas-faces-less-rain-tuesday-though-flood-risks-persist
 

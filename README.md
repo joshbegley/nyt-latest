@@ -1,3 +1,7 @@
+**How Do Israel and Hamas Negotiate in Qatar?**\
+`The ongoing presence of negotiators from Hamas and Israel in the Qatari capital, Doha, suggests that both sides are serious about clinching a deal.`\
+https://nytimes.com/2025/07/08/world/middleeast/how-do-israel-and-hamas-negotiate-in-qatar.html
+
 **Stocks Shake Off Tariff Threat After Trump Extends Deadline**\
 `The president noted that U.S. negotiators remained open to offers from trading partners, suggesting that tariffs could be reduced by — or even after — the deadline on Aug. 1.`\
 https://nytimes.com/2025/07/08/business/trump-tariffs-stock-markets-sp500.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/08/world/europe/milan-bergamo-airport-death-engine.h
 **Amanda Anisimova listens to her body at Wimbledon, with her physio that leads the way**\
 `Anisimova's talent has never been in doubt, but it's a physiotherapist who she credits for her deepest Grand Slam run in three years.`\
 https://nytimes.com/athletic/6479614/2025/07/08/tennis-amanda-anisimova-team-injuries-history/
-
-**The Mamdani Debate Moves to Silicon Valley**\
-`A partner at Sequoia, the venture capital giant drew criticism for calling the Democratic mayoral candidate for New York an “Islamist.”`\
-https://nytimes.com/2025/07/08/business/dealbook/mamdani-sequoia-maguire.html
 
