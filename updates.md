@@ -1,3 +1,19 @@
+**South Korea Holds Its Chin Up as Trump Wields Tariff Threat**\
+`The country’s new president, in office for a little over a month, had just dispatched his senior deputies to Washington to try to work out a trade deal.`\
+https://nytimes.com/2025/07/08/business/trump-tariffs-south-korea.html
+
+**What Moise Kean could bring to Manchester United: Off-the-shoulder runs and penalty-box prowess**\
+`Manchester United are keeping tabs on the former Everton striker, who shone in Serie A last season at Fiorentina `\
+https://nytimes.com/athletic/6479235/2025/07/08/moise-kean-striker-fiorentina-manchester-united/
+
+**The last British man in the Wimbledon singles who is at home under the radar**\
+`Norrie's Wimbledon record should make him a folk hero, but he remains under the radar ahead of a date with Carlos Alcaraz.`\
+https://nytimes.com/athletic/6477727/2025/07/08/tennis-wimbledon-cameron-norrie-british/
+
+**5 Israeli Soldiers Killed in Gaza, Military Says**\
+`Officials said the troops were killed during combat in northern Gaza, but offered few other details.`\
+https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
+
 **5 Israeli Soldiers Killed in Gaza, Military Says**\
 `Officials said the he troops were killed during combat in northern Gaza, but offered few other details.`\
 https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html

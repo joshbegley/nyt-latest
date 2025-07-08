@@ -1,3 +1,15 @@
+**South Korea Holds Its Chin Up as Trump Wields Tariff Threat**\
+`The country’s new president, in office for a little over a month, had just dispatched his senior deputies to Washington to try to work out a trade deal.`\
+https://nytimes.com/2025/07/08/business/trump-tariffs-south-korea.html
+
+**What Moise Kean could bring to Manchester United: Off-the-shoulder runs and penalty-box prowess**\
+`Manchester United are keeping tabs on the former Everton striker, who shone in Serie A last season at Fiorentina `\
+https://nytimes.com/athletic/6479235/2025/07/08/moise-kean-striker-fiorentina-manchester-united/
+
+**The last British man in the Wimbledon singles who is at home under the radar**\
+`Norrie's Wimbledon record should make him a folk hero, but he remains under the radar ahead of a date with Carlos Alcaraz.`\
+https://nytimes.com/athletic/6477727/2025/07/08/tennis-wimbledon-cameron-norrie-british/
+
 **Jon Stewart Thinks Congress Is Basically Pro Wrestling Without the Fun**\
 `The “Daily Show” host said the drama around President Trump’s big policy bill was about as authentic as a World Wrestling Entertainment match.`\
 https://nytimes.com/2025/07/08/arts/television/jon-stewart-trump-bill-wrestling.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/07/08/arts/television/jon-stewart-trump-bill-wrestling.
 https://nytimes.com/athletic/6476425/2025/07/08/thierno-barry-everton-transfer-villarreal-medical/
 
 **5 Israeli Soldiers Killed in Gaza, Military Says**\
-`Officials said the he troops were killed during combat in northern Gaza, but offered few other details.`\
+`Officials said the troops were killed during combat in northern Gaza, but offered few other details.`\
 https://nytimes.com/2025/07/08/world/middleeast/israel-gaza-soldiers-killed.html
 
 **Lung Cancer Screening on Wheels**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6477734/2025/07/08/transfer-news-latest-arsenal-man
 **Word of the Day: taqueria**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/08/learning/word-of-the-day-taqueria.html
-
-**Tuesday Briefing: Trump’s New Tariff Threats**\
-`Plus, the beautiful chaos of Rio’s beaches.`\
-https://nytimes.com/2025/07/08/briefing/trump-tariff-texas-flood-israel-gaza.html
-
-**Why Americans Can’t Buy the World’s Best Electric Car**\
-`China’s national champion carmaker BYD embodies a state-led industrial model that America may no longer be able to compete with.`\
-https://nytimes.com/2025/07/08/opinion/byd-china-car-ev.html
-
-**The New York Times in Print for Tuesday, July 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/08/todays-new-york-times
 
