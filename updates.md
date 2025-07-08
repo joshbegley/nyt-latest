@@ -1,3 +1,31 @@
+**Rashford reports back to Man Utd despite club giving him time off to look for move**\
+`Rashford worked on an individual basis and did not take part in team training with the rest of Ruben Amorimâs squad.`\
+https://nytimes.com/athletic/6481154/2025/07/08/manchester-united-marcus-rashford-preseason/
+
+**Brentford contacted Postecoglou about replacing Frank after Spurs exit**\
+`Brentford eventually promoted Keith Andrews to replace Thomas Frank, who left to join Tottenham on a three-year deal.`\
+https://nytimes.com/athletic/6481142/2025/07/08/brentford-postecoglou-tottenham-frank/
+
+**Did You Visit a National Park This Summer? Tell Us What You Saw.**\
+`Budget and staffing cuts have left some national park sites struggling with routine maintenance and other challenges during their busiest season. Share your experience.`\
+https://nytimes.com/2025/07/08/travel/national-parks-trump-staffing-cuts-checkup.html
+
+**California Rejects Trump Demand to Remove Trans Athletes From Womenâs Sports**\
+`The Trump administration signaled that it would pursue enforcement actions against the state and previously threatened to cut federal education funds.`\
+https://nytimes.com/2025/07/08/us/politics/trump-transgender-athletes-california.html
+
+**Muskâs Third Party Starts With a Good Idea**\
+`Is there a way to elect an independent bloc of senators?`\
+https://nytimes.com/2025/07/08/opinion/elon-musk-america-party.html
+
+**âSupermanâ Review: Itâs a Bird, Itâs a Plane, Itâs a Reboot!**\
+`Beginning again with Man of Steel, this time in the hands of James Gunn.`\
+https://nytimes.com/2025/07/08/movies/superman-review.html
+
+**Photos of Macronâs U.K. State Visit, From a Carriage Ride to a Polite Kiss**\
+`President Emmanuel Macron is on a state visit to Britain, the first of a French leader since 2008. His hosts are drenching him in pomp, pizazz and protocol.`\
+https://nytimes.com/2025/07/08/world/europe/macron-uk-state-visit-royal-family-photos.html
+
 **California Rejects Trump Demand to Remove Trans Athletes From Women’s Sports**\
 `The Trump administration signaled that it would pursue enforcement actions against the state and previously threatened to cut federal education funds.`\
 https://nytimes.com/2025/07/08/us/politics/trump-transgender-athletes-california.html
