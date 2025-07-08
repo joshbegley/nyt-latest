@@ -1,3 +1,11 @@
+**Norman Tebbit, Former U.K. Minister and Close Thatcher Ally, Dies at 94**\
+`Lord Tebbit held a series of roles in Margaret Thatcher’s cabinet, but left high office after his wife was seriously hurt in a bombing by the Irish Republican Army.`\
+https://nytimes.com/2025/07/08/obituaries/norman-tebbit-dead.html
+
+**FIFA opens New York office in U.S. president's Trump Tower**\
+`FIFA boss Gianni Infantino has forged strong links with Trump as the US is hosting this summer's Club World Cup.`\
+https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
+
 **The Pulse: Why this MLB trade deadline could be a dud**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6478471/2025/07/08/the-mlb-trade-deadline-a-dud-plus-ranking-college-footballs-rivalries/

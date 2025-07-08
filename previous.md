@@ -1,3 +1,7 @@
+**Norman Tebbit, Former U.K. Minister and Close Thatcher Ally, Dies at 94**\
+`Lord Tebbit held a series of roles in Margaret Thatcher’s cabinet, but left high office after his wife was seriously hurt in a bombing by the Irish Republican Army.`\
+https://nytimes.com/2025/07/08/obituaries/norman-tebbit-dead.html
+
 **The Pulse: Why this MLB trade deadline could be a dud**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6478471/2025/07/08/the-mlb-trade-deadline-a-dud-plus-ranking-college-footballs-rivalries/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6478471/2025/07/08/the-mlb-trade-deadline-a-dud-plu
 `The Phillies are first in the NL East without much from Harper. Monday, despite another loss at Oracle Park, offered some positive signs.`\
 https://nytimes.com/athletic/6479535/2025/07/08/phillies-giants-bryce-harper-umpire/
 
-**FIFA opens New York office in US president's Trump Tower**\
+**FIFA opens New York office in U.S. president's Trump Tower**\
 `FIFA boss Gianni Infantino has forged strong links with Trump as the US is hosting this summer's Club World Cup.`\
 https://nytimes.com/athletic/6479639/2025/07/08/fifa-trump-tower-new-york-club-world-cup/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478749/2025/07/08/extreme-heat-sports-climate-chan
 **Hunter Greene's setback shows why there's never too much pitching**\
 `The Reds pitcher won't be back in the rotation as soon as the team had hoped. `\
 https://nytimes.com/athletic/6479494/2025/07/08/reds-lose-marlins-hunter-greene-setback-pitching/
-
-**Should Tigers have more representation in the All-Star Game?**\
-`A look at the All-Star cases for and against Zach McKinstry, Spencer Torkelson and more Tigers in consideration for reserve spots.`\
-https://nytimes.com/athletic/6479319/2025/07/08/tigers-more-representation-all-star-game/
 
