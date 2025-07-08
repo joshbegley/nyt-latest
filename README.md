@@ -1,3 +1,11 @@
+**Leeds confident of signing Lille left-back Gudmundsson**\
+`The Sweden international will be the club’s fourth acquisition of the summer, following Lukas Nmecha, Jaka Bijol and Sebastiaan Bornauw.`\
+https://nytimes.com/athletic/6479081/2025/07/08/leeds-transfer-gudmundsson-lille-news/
+
+**Roebuck joins Villa after Barcelona exit**\
+`Roebuck previously enjoyed a successful spell in English football with Manchester City winning the WSL title and the FA Cup three times.`\
+https://nytimes.com/athletic/6479674/2025/07/08/aston-villa-women-ellie-roebuck-barcelona/
+
 **The New York Times International Edition in Print for Wednesday, July 9, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/08/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/08/opinion/men-women-voters-democrats-republicans.ht
 **How the Attention Economy Is Devouring Gen Z — and the Rest of Us**\
 `The economics writer Kyla Scanlon on how attention has come to shape politics, our economy, Gen Z and more.`\
 https://nytimes.com/2025/07/08/opinion/ezra-klein-podcast-kyla-scanlon.html
-
-**How the Attention Economy Is Devouring Gen Z — and the Rest of Us**\
-`The economics writer Kyla Scanlon on how attention has come to shape politics, our economy, Gen Z and more.`\
-https://nytimes.com/video/opinion/100000010271558/how-the-attention-economy-is-devouring-gen-z-and-the-rest-of-us.html
-
-**Is Gary Shteyngart One of the Last Novelists to Make Real Money From the Craft?**\
-`Mr. Shteyngart was once told he might be. With his sixth novel, “Vera, or Faith,” out now, he’s spent the last few years spending it well.`\
-https://nytimes.com/2025/07/08/style/gary-shteyngart-book-vera-or-faith.html
 
