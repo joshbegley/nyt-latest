@@ -1,3 +1,15 @@
+**PSG 4 Real Madrid 0: European champions humiliate Mbappe and Alonso to reach Club World Cup final**\
+`Two dreadful Madrid mistakes gifted PSG early goals but Luis Enrique's side were dominant in New York as they set up a final against Chelsea`\
+https://nytimes.com/athletic/6477516/2025/07/09/psg-club-world-cup-final-real-madrid-dembele-mbappe/
+
+**Sergio Ramos, James Rodriguez headline Liga MX All-Stars to face MLS**\
+`The two ex-Real Madrid stars and a slew of Gold Cup winners headline a strong Liga MX squad that will appear at Austin FC's Q2 Stadium.`\
+https://nytimes.com/athletic/6484112/2025/07/09/liga-mx-all-star-team-mls-sergio-ramos-james-gilberto-mora/
+
+**Thursday Briefing: Russia’s Record Drone Attack**\
+`Plus, the Bayeux Tapestry’s homecoming.`\
+https://nytimes.com/2025/07/09/briefing/ukraine-russia-trump-trade-south-korea-yoon.html
+
 **Yankees designate DJ LeMahieu for assignment, still owe him $15 million in 2026**\
 `The club will owe LeMahieu about $22 million, which includes the rest of his $15 million salary this season, along with $15 million in 2026.`\
 https://nytimes.com/athletic/6481539/2025/07/09/dj-lemahieu-yankees-designate-for-assignment/
