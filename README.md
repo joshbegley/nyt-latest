@@ -1,3 +1,7 @@
+**Aces' A'ja Wilson exits game in first half vs. Liberty with wrist injury**\
+`Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
+https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
+
 **Caitlin Clark, Napheesa Collier draft WNBA All-Star rosters, trade coaches**\
 `The WNBA All-Star Game draft included a little bit of light trash talk, some clear loyalties in the picks and a coach swap.`\
 https://nytimes.com/athletic/6481839/2025/07/08/caitlin-clark-napheesa-collier-wnba-all-star-draft/
