@@ -1,3 +1,11 @@
+**Abbott Asks Lawmakers to Redraw Texas’ Congressional Maps in Special Session**\
+`Democrats criticized Gov. Greg Abbott for seeking a redistricting, favored by President Trump’s political team, just days after devastating floods in Texas.`\
+https://nytimes.com/2025/07/09/us/texas-congressional-resdistricting-maps.html
+
+**Blue Jays hope to buck franchise history after win streak ends at 10 games**\
+`Toronto became the team it had previously watched from afar — the streaking squad building breathing room.`\
+https://nytimes.com/athletic/6484503/2025/07/09/blue-jays-win-streak-ends-buck-history/
+
 **Maine Paddleboarder’s Death Is Investigated as a Homicide, Police Say**\
 `Sunshine Stewart, 48, disappeared on the night of July 2 during an outing on Crawford Pond in Union, Maine. Her body was found hours later near an island preserve.`\
 https://nytimes.com/2025/07/09/us/maine-paddleboarder-homicide.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6484230/2025/07/09/ben-mclemore-prison-sentence-rap
 **Parsing the Dodgers' six-game losing streak, their worst since 2019**\
 `Very little has gone well for the Dodgers over the last week, leading to something that hasn’t been seen in years.`\
 https://nytimes.com/athletic/6484279/2025/07/09/dodgers-losing-streak-worst-since-2019/
-
-**Trump Says He’s Making America More Competitive. Is He?**\
-`Experts fear that the president’s economic policies could increase costs and stifle innovation.`\
-https://nytimes.com/2025/07/09/us/politics/trump-tariffs-taxes-economy.html
-
-**Mexico Sentences 10 Men Arrested at Cartel Ranch to 140 Years Each in Prison**\
-`The men were convicted of killing one person and disappearing two others at a ranch in Jalisco state, where the authorities found piles of shoes, clothing and hundreds of personal items.`\
-https://nytimes.com/2025/07/09/world/americas/mexico-izaguirre-ranch-cartel.html
 
