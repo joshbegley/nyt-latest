@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6481514/2025/07/09/valkyries-fever-wnba-caitlin-clark-return-how-to-watch/
 
 **Fire Rages Near Marseille**\
-`Flames burned on the outskirts of the French city, injuring over 100 people and prompting evacuations.`\
+`Flames burned on the outskirts of the French city on Tuesday, injuring over 100 people and prompting evacuations.`\
 https://nytimes.com/video/world/europe/100000010274922/marseille-wildfires-france.html
 
 **It’s Alive!**\
