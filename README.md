@@ -1,3 +1,11 @@
+**Measles Cases Hit Record High, 25 Years After U.S. Eliminated the Disease**\
+`Experts worry that if vaccination rates do not improve, deadly outbreaks will become the new normal.`\
+https://nytimes.com/2025/07/09/well/us-measles-record-outbreaks.html
+
+**X Chief Says She Is Leaving the Social Media Platform**\
+`Linda Yaccarino, whom Elon Musk hired to run X in 2023, grappled with the challenges the company faced after Mr. Musk took over.`\
+https://nytimes.com/2025/07/09/technology/linda-yaccarino-x-steps-down.html
+
 **The Windup: Twin draft prospects’ remarkable upbringing**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6482321/2025/07/09/mlb-draft-twins-dad-the-windup/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6449082/2025/07/09/lyon-relegation-decision-ligue-1
 **The L.P.G.A. Is Getting a New Commissioner. He’s Got Some Work to Do.**\
 `Craig Kessler starts in a few days and knows what he must do to help the tour grow.`\
 https://nytimes.com/2025/07/09/sports/golf/lpga-new-commissioner-craig-kessler.html
-
-**Thunder, Chet Holmgren agree to 5-year max rookie contract extension**\
-`Holmgren, 23, averaged 15 points and eight rebounds in the regular season with the Thunder in 2024-25, but missed 50 games due to injury.`\
-https://nytimes.com/athletic/6482971/2025/07/09/chet-holmgren-contract-extension-rookie-thunder/
-
-**Shai Gilgeous-Alexander, Angel Reese, Carmelo Anthony chosen for NBA 2K26 covers**\
-`The trio will share a cover for NBA 2K26’s “Leave No Doubt” Edition, a special release, in addition to having their own individual covers.`\
-https://nytimes.com/athletic/6475357/2025/07/09/shai-gilgeous-alexander-angel-reese-nba-2k26/
 

@@ -1,3 +1,7 @@
+**The Windup: Twin draft prospects’ remarkable upbringing**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6482321/2025/07/09/mlb-draft-twins-dad-the-windup/
+
 **What happens when college football enters its own Moneyball era?**\
 `In this week's sports business cheat sheet, digging into Texas Tech, Ben Shelton and readers' favorite 21st century sports movies.`\
 https://nytimes.com/athletic/6483008/2025/07/09/texas-tech-christian-horner-ben-shelton-moneycall/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6482971/2025/07/09/chet-holmgren-contract-extension
 **Shai Gilgeous-Alexander, Angel Reese, Carmelo Anthony chosen for NBA 2K26 covers**\
 `The trio will share a cover for NBA 2K26’s “Leave No Doubt” Edition, a special release, in addition to having their own individual covers.`\
 https://nytimes.com/athletic/6475357/2025/07/09/shai-gilgeous-alexander-angel-reese-nba-2k26/
-
-**How Chelsea's clever out-of-possession approach blunted Fluminense's attack**\
-`Enzo Maresca's side reached the Club World Cup final after their effective pressing in a 4-3-3 shape left their opponents with no answer`\
-https://nytimes.com/athletic/6482386/2025/07/09/how-chelseas-out-of-possession-approach-blunted-fluminenses-attack/
 

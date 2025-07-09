@@ -1,3 +1,7 @@
+**The Windup: Twin draft prospects’ remarkable upbringing**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6482321/2025/07/09/mlb-draft-twins-dad-the-windup/
+
 **What happens when college football enters its own Moneyball era?**\
 `In this week's sports business cheat sheet, digging into Texas Tech, Ben Shelton and readers' favorite 21st century sports movies.`\
 https://nytimes.com/athletic/6483008/2025/07/09/texas-tech-christian-horner-ben-shelton-moneycall/
