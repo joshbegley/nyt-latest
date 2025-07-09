@@ -1,3 +1,15 @@
+**At Least 173 People Remain Missing After Texas Floods**\
+`Officials said the search for remains would continue until all the victims have been accounted for. In the hardest-hit county, no survivors have been found since Friday.`\
+https://nytimes.com/2025/07/09/us/texas-floods-missing-search.html
+
+**Oviedo confident on renewing Cazorla new deal for new La Liga season**\
+`Last season, Cazorla helped his hometown club return to the top flight of Spanish football for the first time since 2001.`\
+https://nytimes.com/athletic/6482513/2025/07/09/santi-cazorla-oviedo-la-liga/
+
+**Trump’s Trade War Roils the Copper Market**\
+`Futures contracts hit a record price after the president announced plans for a 50 percent tariff on the metal, driving up costs for businesses.`\
+https://nytimes.com/2025/07/09/business/dealbook/trump-trade-war-copper.html
+
 **Musiala says 'nobody is to blame' for fractured fibula injury**\
 `The 22-year-old suffered the injury during a collision with PSG goalkeeper Gianluigi Donnarumma on Saturday.`\
 https://nytimes.com/athletic/6482598/2025/07/09/jamal-musiala-injury-donnarumma-bayern/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6435510/2025/07/09/blues-power-rankings-logo-carbon
 **Chargers mailbag: Big training camp for Quentin Johnston? More moves on the way?**\
 `Receiver figures to be one of the hottest competitions when the Chargers open training camp on July 17. `\
 https://nytimes.com/athletic/6481518/2025/07/09/chargers-mailbag-training-camp-quentin-johnston/
-
-**Bills training camp 2025 quarterback preview: Can Josh Allen have another MVP-caliber season?**\
-`Josh Allen proved last season that he could elevate his teammates with his talent.`\
-https://nytimes.com/athletic/6403376/2025/07/09/buffalo-bills-training-camp-2025-preview-quarterback-josh-allen/
-
-**Cowboys fan survey: Can the most underrated player also be the most overrated?**\
-`How many games will the Cowboys win? Are they any closer to winning a Super Bowl again? Here's what you told us. `\
-https://nytimes.com/athletic/6476998/2025/07/09/dallas-cowboys-fan-survey-results-dak-prescott/
-
-**Ahead of training camp, 46 thoughts on the Minnesota Vikings’ defensive players**\
-`A look at how position battles are shaping up to make an impact on Brian Flores' defense.`\
-https://nytimes.com/athletic/6478565/2025/07/09/minnesota-vikings-defensive-pace-greenard-metellus/
 
