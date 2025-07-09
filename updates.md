@@ -1,3 +1,7 @@
+**Ronny Chieng on Trump’s Nobel Nomination: Consider the Source**\
+`An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like “a Husband of the Year nomination from O.J. Simpson,” the “Daily Show” host said.`\
+https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
+
 **Uruguay resumes training for Copa América after players protest conditions**\
 `The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
 https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
