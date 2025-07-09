@@ -1,3 +1,7 @@
+**Europe Waits, and Hopes, for a Trade Deal**\
+`The European Union is still hoping for a rough outline of a deal, even after President Trump talked about sending the bloc a letter outlining tariffs that would be imposed Aug. 1.`\
+https://nytimes.com/2025/07/09/us/politics/eu-trade-deal-trump-tariffs.html
+
 **Live Q&A with Yankees writer Brendan Kuty on Wednesday**\
 `Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
 https://nytimes.com/athletic/6478364/2025/07/09/yankees-live-qa-submit-questions/
