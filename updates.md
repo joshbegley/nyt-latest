@@ -1,3 +1,15 @@
+**Women's Euro 2025: Who will advance out of the group stage?**\
+`Here's where things stand at Euro 2025 after two rounds of group stage matches`\
+https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
+
+**Zohran Mamdani Expands Campaign Team, Hiring Veteran Democrat**\
+`Mr. Mamdani, a state assemblyman and the Democratic nominee for mayor of New York City, is taking on a small handful of more experienced campaign hands.`\
+https://nytimes.com/2025/07/09/nyregion/mamdani-communications-jeffrey-lerner.html
+
+**Deion Sanders wants a salary cap for college football**\
+`Colorado will open up the season at home against Georgia Tech August 29th.`\
+https://nytimes.com/athletic/6484203/2025/07/09/deion-sanders-salary-cap-college-football/
+
 **Putin Is Undeterred by Trump’s Public Anger**\
 `Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
