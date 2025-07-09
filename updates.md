@@ -1,3 +1,7 @@
+**Trump Got the Green Light to Fire Federal Workers. Now, They Wait.**\
+`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trump’s directive for mass layoffs. The Supreme Court said the administration could proceed.`\
+https://nytimes.com/2025/07/08/us/politics/trump-federal-workers-firings.html
+
 **Los Angeles Moves to Join Suit Against Immigration Raids**\
 `The legal move came the day after federal agents and National Guard troops converged on a Los Angeles park in an extraordinary show of force.`\
 https://nytimes.com/2025/07/08/us/politics/la-immigration-raids-trump-lawsuit.html

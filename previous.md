@@ -1,3 +1,7 @@
+**Trump Got the Green Light to Fire Federal Workers. Now, They Wait.**\
+`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trump’s directive for mass layoffs. The Supreme Court said the administration could proceed.`\
+https://nytimes.com/2025/07/08/us/politics/trump-federal-workers-firings.html
+
 **Los Angeles Moves to Join Suit Against Immigration Raids**\
 `The legal move came the day after federal agents and National Guard troops converged on a Los Angeles park in an extraordinary show of force.`\
 https://nytimes.com/2025/07/08/us/politics/la-immigration-raids-trump-lawsuit.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/us/flooding-ruidoso-new-mexico.html
 **Abbott Calls Seeking Blame for Floods ‘the Word Choice of Losers’**\
 `As both the death toll and number of questions about official preparedness increased, the Texas governor invoked football metaphors, saying “every team makes mistakes.”`\
 https://nytimes.com/2025/07/08/us/abbott-blame-floods-losers-football.html
-
-**Search-and-rescue teams from other states pour into Central Texas.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from-other-states-pour-into-central-texas
 
