@@ -1,3 +1,15 @@
+**Trump Compliments Liberian President for ‘Beautiful English’**\
+`English is the official language of the West African country, which was founded in part by freed American slaves.`\
+https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
+
+**8 Million Federal Student Loan Borrowers Will Soon See Interest Restart**\
+`It will kick back in on Aug. 1 for people in the SAVE repayment program, whose payments have been on hold since last summer.`\
+https://nytimes.com/2025/07/09/your-money/student-loans-save-plan-interest.html
+
+**Ex-NBA guard Ben McLemore sentenced to prison in 2021 rape: Reports**\
+`A jury found McLemore guilty of first-degree rape, first-degree unlawful sexual penetration and second-degree sexual abuse one week prior.`\
+https://nytimes.com/athletic/6484230/2025/07/09/ben-mclemore-prison-sentence-rape-conviction/
+
 **Parsing the Dodgers' six-game losing streak, their worst since 2019**\
 `Very little has gone well for the Dodgers over the last week, leading to something that hasn’t been seen in years.`\
 https://nytimes.com/athletic/6484279/2025/07/09/dodgers-losing-streak-worst-since-2019/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
 **Zohran Mamdani Expands Campaign Team, Hiring Veteran Democrat**\
 `Mr. Mamdani, a state assemblyman and the Democratic nominee for mayor of New York City, is taking on a small handful of more experienced campaign hands.`\
 https://nytimes.com/2025/07/09/nyregion/mamdani-communications-jeffrey-lerner.html
-
-**Deion Sanders wants a salary cap for college football**\
-`Colorado will open up the season at home against Georgia Tech August 29th.`\
-https://nytimes.com/athletic/6484203/2025/07/09/deion-sanders-salary-cap-college-football/
-
-**Putin Is Undeterred by Trump’s Public Anger**\
-`Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
-
-**Tensions Escalate in San Francisco Over Immigration Enforcement**\
-`Videos captured a scuffle between protesters and immigration agents outside a courthouse. No injuries were immediately reported, the police said.`\
-https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
 
