@@ -1,3 +1,11 @@
+**Clippers summer league preview: Which players to watch, Jordan Miller waived**\
+`Law Murray takes a look at the Clippers summer league roster and what they need to improve in Las Vegas. `\
+https://nytimes.com/athletic/6482181/2025/07/09/clippers-summer-league-jordan-miller-kobe-brown-sanders/
+
+**Lyon confirm successful appeal of Ligue 1 relegation**\
+`The DNCG relegated Lyon on June 24, with the club immediately stating its intention to appeal the decision.`\
+https://nytimes.com/athletic/6449082/2025/07/09/lyon-relegation-decision-ligue-1/
+
 **The L.P.G.A. Is Getting a New Commissioner. He’s Got Some Work to Do.**\
 `Craig Kessler starts in a few days and knows what he must do to help the tour grow.`\
 https://nytimes.com/2025/07/09/sports/golf/lpga-new-commissioner-craig-kessler.html

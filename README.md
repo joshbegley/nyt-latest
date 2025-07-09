@@ -1,3 +1,7 @@
+**Iga Swiatek reaches first Wimbledon semifinal with win over Liudmila Samsonova**\
+`The five-time Grand Slam champion reached her first Wimbledon semifinal with a controlled and ultimately comprehensive straight-sets win.`\
+https://nytimes.com/athletic/6483032/2025/07/09/tennis-wimbledon-swiatek-result-analysis-samsonova/
+
 **Clippers summer league preview: Which players to watch, Jordan Miller waived**\
 `Law Murray takes a look at the Clippers summer league roster and what they need to improve in Las Vegas. `\
 https://nytimes.com/athletic/6482181/2025/07/09/clippers-summer-league-jordan-miller-kobe-brown-sanders/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/movies/danielle-deadwyler-40-acres.html
 **Fabio Fognini retires from tennis after 'perfect' Wimbledon farewell**\
 `The nine-time ATP Tour winner bowed out of his final Wimbledon after losing in five sets to Carlos Alcaraz in a "perfect" farewell`\
 https://nytimes.com/athletic/6482870/2025/07/09/fabio-fognini-retirement-2025/
-
-**Henderson leaving Ajax, considering options in England and in Europe**\
-`The 35-year-old becomes a free agent after opting against triggering a contract extension option at Ajax.`\
-https://nytimes.com/athletic/6482945/2025/07/09/jordan-henderson-ajax-transfer-exit/
 
