@@ -1,3 +1,7 @@
+**Searching for the Truth About Autism**\
+`Readers respond to a guest essay by Dr. Allen Frances. Also: A Supreme Court decision on firing federal workers.`\
+https://nytimes.com/2025/07/09/opinion/autism.html
+
 **Ex-White House Doctor Refuses Questions in G.O.P. Inquiry on Biden’s Mental Acuity**\
 `Kevin O’Connor cited both physician-patient privilege and his Fifth Amendment right against self-incrimination in refusing to answer questions from the House Oversight Committee.`\
 https://nytimes.com/2025/07/09/us/politics/kevin-oconnor-biden-doctor.html

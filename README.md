@@ -1,3 +1,7 @@
+**Why 1.5 Million New Yorkers Could Lose Health Insurance Under Trump Bill**\
+`As in other states, Medicaid will be affected. But so will another health insurance program that plays a bigger role in New York than elsewhere.`\
+https://nytimes.com/2025/07/09/nyregion/trump-domestic-policy-bill-new-york-health-care.html
+
 **Searching for the Truth About Autism**\
 `Readers respond to a guest essay by Dr. Allen Frances. Also: A Supreme Court decision on firing federal workers.`\
 https://nytimes.com/2025/07/09/opinion/autism.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6482930/2025/07/09/brighton-sunderland-adingra-tran
 **England vs France at Euro 2025 set U.S. TV group stage record**\
 `The marquee matchup, which France won 2-1, drew 690,000 viewers, a 329% spike from the previous group stage average.`\
 https://nytimes.com/athletic/6483509/2025/07/09/euro-2025-england-france-us-tv-fox/
-
-**Man Utd searching for head of senior recruitment as part of overhaul**\
-`United will also have regional heads of emerging talent across the main talent pools globally.`\
-https://nytimes.com/athletic/6483255/2025/07/09/man-utd-recruitment-transfers/
 
