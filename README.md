@@ -1,3 +1,11 @@
+**Texas Officials Defer Questions About Flood Disaster Preparation**\
+`During a news conference on Wednesday, Kerr County officials recounted their response to the devastating flood in central Texas on July 4.`\
+https://nytimes.com/video/weather/100000010275637/kerr-county-dodge-flood-preparation-questions.html
+
+**A Surgeon on the Desperation in Gaza: ‘They’re Prepared to Die for a Bagful of Rice’**\
+`Dr. Victoria Rose spent 21 days in the territory in May, treating people who were shot trying to get food and children with life-changing injuries from Israeli bombs.`\
+https://nytimes.com/2025/07/09/world/middleeast/gaza-hospitals-uk-surgeon-israel-attacks.html
+
 **Supporter who verbally abused Wrexham's McClean fined in landmark case**\
 `McClean has described himself as the subject of “more abuse than any other player in England”.`\
 https://nytimes.com/athletic/6483597/2025/07/09/james-mcclean-wrexham-abuse-fine/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/science/elephants-gesturing-trunk.html
 **Why 1.5 Million New Yorkers Could Lose Health Insurance Under Trump Bill**\
 `As in other states, Medicaid will be affected. But so will another health insurance program that plays a bigger role in New York than elsewhere.`\
 https://nytimes.com/2025/07/09/nyregion/trump-domestic-policy-bill-new-york-health-care.html
-
-**Searching for the Truth About Autism**\
-`Readers respond to a guest essay by Dr. Allen Frances. Also: A Supreme Court decision on firing federal workers.`\
-https://nytimes.com/2025/07/09/opinion/autism.html
-
-**Ex-White House Doctor Refuses Questions in G.O.P. Inquiry on Biden’s Mental Acuity**\
-`Kevin O’Connor cited both physician-patient privilege and his Fifth Amendment right against self-incrimination in refusing to answer questions from the House Oversight Committee.`\
-https://nytimes.com/2025/07/09/us/politics/kevin-oconnor-biden-doctor.html
 

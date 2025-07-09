@@ -1,3 +1,7 @@
+**Supporter who verbally abused Wrexham's McClean fined in landmark case**\
+`McClean has described himself as the subject of “more abuse than any other player in England”.`\
+https://nytimes.com/athletic/6483597/2025/07/09/james-mcclean-wrexham-abuse-fine/
+
 **Thune Says Russia Sanctions Vote Could Come as Soon as This Month**\
 `Momentum has been building behind a bipartisan bill to impose sanctions on countries that purchase Russian oil, as Republicans work behind the scenes to win President Trump’s support.`\
 https://nytimes.com/2025/07/09/us/politics/russia-sanctions-senate-thune-trump.html
