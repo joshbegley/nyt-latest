@@ -1,3 +1,7 @@
+**Los Angeles Moves to Join Suit Against Immigration Raids**\
+`The legal move came the day after federal agents and National Guard troops converged on a Los Angeles park in an extraordinary show of force.`\
+https://nytimes.com/2025/07/08/us/politics/la-immigration-raids-trump-lawsuit.html
+
 **In Flooded Texas, Questions About FEMA’s Role and Fate**\
 `President Trump wants to shutter the agency and shift responsibility and costs of emergency management to the states. In Texas, that process appears to already be underway.`\
 https://nytimes.com/2025/07/08/climate/texas-flood-fema-trump.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/08/us/abbott-blame-floods-losers-football.html
 **Search-and-rescue teams from other states pour into Central Texas.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from-other-states-pour-into-central-texas
-
-**Francisco Alvarez blocks out frustration, commits to new path: 'Baseball never stops'**\
-`The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
-https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/
 

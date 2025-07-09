@@ -1,3 +1,7 @@
+**Los Angeles Moves to Join Suit Against Immigration Raids**\
+`The legal move came the day after federal agents and National Guard troops converged on a Los Angeles park in an extraordinary show of force.`\
+https://nytimes.com/2025/07/08/us/politics/la-immigration-raids-trump-lawsuit.html
+
 **In Flooded Texas, Questions About FEMA’s Role and Fate**\
 `President Trump wants to shutter the agency and shift responsibility and costs of emergency management to the states. In Texas, that process appears to already be underway.`\
 https://nytimes.com/2025/07/08/climate/texas-flood-fema-trump.html
