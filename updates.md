@@ -1,3 +1,11 @@
+**In a Good-Will Gesture, South Korea Returns Stranded Fishermen to the North**\
+`The fishermen’s boats had drifted into South Korean waters, officials said. The South’s new president has been trying to improve ties with North Korea.`\
+https://nytimes.com/2025/07/09/world/asia/south-korea-returns-north-korean-fishermen.html
+
+**Even in Absence, Armani Is in Control**\
+`Giorgio Armani had to miss his Privé show. But he still got the last word.`\
+https://nytimes.com/2025/07/09/style/armani-prive-couture.html
+
 **With Taxes and Tariffs in Place, Trump Takes Reins of U.S. Economy**\
 `President Trump has achieved much of his agenda, leaving the fate of the economy squarely in his hands.`\
 https://nytimes.com/2025/07/09/us/politics/trump-bill-tariffs-economy.html
