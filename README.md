@@ -1,3 +1,7 @@
+**Ronny Chieng on Trump’s Nobel Nomination: Consider the Source**\
+`An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like “a Husband of the Year nomination from O.J. Simpson,” the “Daily Show” host said.`\
+https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
+
 **Word of the Day: humility**\
 `This word has appeared in 553 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/09/learning/word-of-the-day-humility.html
@@ -29,8 +33,4 @@ https://nytimes.com/issue/todayspaper/2025/07/09/todays-new-york-times
 **A diary of confusion: Mets' wild win complicates trade deadline picture**\
 `The Mets showcased why they need to add significant pieces and why they don't require any of those things in their 7-6 win over the Orioles.`\
 https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-deadline/
-
-**Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
-`Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
-https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
 
