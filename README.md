@@ -18,7 +18,7 @@ https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
 `The Rancho, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
 https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
 
-**Isaac Paredes will replace José Ramírez on the AL's All-Star roster**\
+**Isaac Paredes, Zach McKinstry join AL's All-Star roster, replacing José Ramírez, Jeremy Peña**\
 `Ramírez will miss the All-Star Game to recover from what has been a painful first half, while Paredes gets his second All-Star nod.`\
 https://nytimes.com/athletic/6484163/2025/07/09/mlb-all-star-isaac-paredes-jose-ramirez/
 
