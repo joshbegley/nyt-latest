@@ -1,3 +1,15 @@
+**Wednesday Briefing: Rare Earths, Made in Europe?**\
+`Plus, Sweden’s secret to well-being.`\
+https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
+
+**Bibi’s Empty Victory Lap**\
+`The 12-day war is over. But there’s no peace in sight.`\
+https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
+
+**The New York Times in Print for Wednesday, July 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/09/todays-new-york-times
+
 **A diary of confusion: Mets' wild win complicates trade deadline picture**\
 `The Mets showcased why they need to add significant pieces and why they don't require any of those things in their 7-6 win over the Orioles.`\
 https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-deadline/
