@@ -1,3 +1,7 @@
+**Henderson leaving Ajax, considering options in England and in Europe**\
+`The 35-year-old becomes a free agent after opting against triggering a contract extension option at Ajax.`\
+https://nytimes.com/athletic/6482945/2025/07/09/jordan-henderson-ajax-transfer-exit/
+
 **Putin, Undeterred by Trump’s Words, Escalates His War Against Ukraine**\
 `The Russian leader is convinced that Moscow’s battlefield superiority is growing, and that Ukraine’s defenses may collapse in the coming months, according to people close to the Kremlin.`\
 https://nytimes.com/2025/07/09/world/europe/russia-ukraine-putin-trump.html
