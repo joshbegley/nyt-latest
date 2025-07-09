@@ -1,3 +1,11 @@
+**Crews in Ukraine Extinguish Flames From Russian Attacks**\
+`The overnight strikes were mostly in central and western Ukraine, where the attacks seemed to target military sites.`\
+https://nytimes.com/video/world/europe/100000010275972/ukraine-crews-extinguish-russian-attack.html
+
+**MLB to use Automated Ball-Strike system during All-Star Game: Sources**\
+`As was the case in spring training, teams will be given two challenges, with retention if their challenge is upheld.`\
+https://nytimes.com/athletic/6483715/2025/07/09/mlb-all-star-game-automated-ball-strike-system/
+
 **The Surprising Presence in ‘The Gospel at Colonus’**\
 `In this revival at Little Island, the singer and pastor Kim Burrell shares the stage with a team of queer artists.`\
 https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
@@ -15,7 +23,7 @@ https://nytimes.com/2025/07/09/business/federal-reserve-meeting-minutes.html
 https://nytimes.com/2025/07/09/business/economy/trump-tariffs-global-trade.html
 
 **Texas Officials Defer Questions About Flood Disaster Preparation**\
-`During a news conference on Wednesday, Kerr County officials recounted their response to the devastating flood in central Texas on July 4.`\
+`During a news conference on Wednesday, Kerr County officials recounted their response to the devastating flood in Central Texas on July 4.`\
 https://nytimes.com/video/weather/100000010275637/kerr-county-dodge-flood-preparation-questions.html
 
 **A Surgeon on the Desperation in Gaza: ‘They’re Prepared to Die for a Bagful of Rice’**\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/world/middleeast/gaza-hospitals-uk-surgeon-israel
 **Supporter who verbally abused Wrexham's McClean fined in landmark case**\
 `McClean has described himself as the subject of “more abuse than any other player in England”.`\
 https://nytimes.com/athletic/6483597/2025/07/09/james-mcclean-wrexham-abuse-fine/
-
-**Thune Says Russia Sanctions Vote Could Come as Soon as This Month**\
-`Momentum has been building behind a bipartisan bill to impose sanctions on countries that purchase Russian oil, as Republicans work behind the scenes to win President Trump’s support.`\
-https://nytimes.com/2025/07/09/us/politics/russia-sanctions-senate-thune-trump.html
-
-**The Briefing: England 4 Netherlands 0 - James' magic moment, Stanway's stunner and Lionesses back on track**\
-`Analysis of the major talking points as England beat Netherlands to breathe new life into their Euro 2025 campaign`\
-https://nytimes.com/athletic/6482567/2025/07/09/england-netherlands-euros-analysis-james/
 
