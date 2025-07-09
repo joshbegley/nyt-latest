@@ -1,3 +1,11 @@
+**Clippers summer league preview: Which players to watch, Jordan Miller waived**\
+`Law Murray takes a look at the Clippers summer league roster and what they need to improve in Las Vegas. `\
+https://nytimes.com/athletic/6482181/2025/07/09/clippers-summer-league-jordan-miller-kobe-brown-sanders/
+
+**Lyon confirm successful appeal of Ligue 1 relegation**\
+`The DNCG relegated Lyon on June 24, with the club immediately stating its intention to appeal the decision.`\
+https://nytimes.com/athletic/6449082/2025/07/09/lyon-relegation-decision-ligue-1/
+
 **The L.P.G.A. Is Getting a New Commissioner. He’s Got Some Work to Do.**\
 `Craig Kessler starts in a few days and knows what he must do to help the tour grow.`\
 https://nytimes.com/2025/07/09/sports/golf/lpga-new-commissioner-craig-kessler.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6482870/2025/07/09/fabio-fognini-retirement-2025/
 **Henderson leaving Ajax, considering options in England and in Europe**\
 `The 35-year-old becomes a free agent after opting against triggering a contract extension option at Ajax.`\
 https://nytimes.com/athletic/6482945/2025/07/09/jordan-henderson-ajax-transfer-exit/
-
-**Putin, Undeterred by Trump’s Words, Escalates His War Against Ukraine**\
-`The Russian leader is convinced that Moscow’s battlefield superiority is growing, and that Ukraine’s defenses may collapse in the coming months, according to people close to the Kremlin.`\
-https://nytimes.com/2025/07/09/world/europe/russia-ukraine-putin-trump.html
-
-**Did the Texas Flood Warnings Come in Time?**\
-`When deadly floods swept through Texas, the National Weather Service issued a series of warnings that should have automatically triggered alerts to be sent to cellphones as the Guadalupe River began to rise.`\
-https://nytimes.com/video/us/100000010273289/tracking-texas-flood-warning-system.html
 
