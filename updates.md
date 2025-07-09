@@ -1,3 +1,11 @@
+**The L.P.G.A. Is Getting a New Commissioner. He’s Got Some Work to Do.**\
+`Craig Kessler starts in a few days and knows what he must do to help the tour grow.`\
+https://nytimes.com/2025/07/09/sports/golf/lpga-new-commissioner-craig-kessler.html
+
+**Thunder, Chet Holmgren agree to 5-year max rookie contract extension**\
+`Holmgren, 23, averaged 15 points and eight rebounds in the regular season with the Thunder in 2024-25, but missed 50 games due to injury.`\
+https://nytimes.com/athletic/6482971/2025/07/09/chet-holmgren-contract-extension-rookie-thunder/
+
 **Shai Gilgeous-Alexander, Angel Reese, Carmelo Anthony chosen for NBA 2K26 covers**\
 `The trio will share a cover for NBA 2K26’s “Leave No Doubt” Edition, a special release, in addition to having their own individual covers.`\
 https://nytimes.com/athletic/6475357/2025/07/09/shai-gilgeous-alexander-angel-reese-nba-2k26/
