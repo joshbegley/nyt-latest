@@ -1,3 +1,19 @@
+**Putin Is Undeterred by Trumpâs Public Anger**\
+`Also, measles cases hit a 25-year high. Hereâs the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
+
+**NASCAR teams 23XI, Front Row could lose charters next week: Here's what it means**\
+`A court decision Wednesday means 23XI Racing and Front Row Motorsports could lose their charters â and possibly more â as soon as next week.`\
+https://nytimes.com/athletic/6484018/2025/07/09/nascar-23xi-front-row-lawsuit-charters-tyler-reddick/
+
+**Wimbledon recap: Ben Shelton's Grand Slam roadblock and Novak Djokovic's slip**\
+`The Wimbledon quarterfinals wrapped up today â here's what happened.`\
+https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-results-analysis/
+
+**Court Overturns Conviction for Memes That Sought to Trick Clinton Voters**\
+`Douglass Mackeyâs posts in 2016 falsely advertised text voting for Hillary Clinton. Appeals court judges said prosecutors had not shown that his actions were part of a conspiracy.`\
+https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
+
 **Women's Euro 2025: Who will advance out of the group stage?**\
 `Here's where things stand at Euro 2025 after two rounds of group stage matches`\
 https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
