@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000010274804/trash-philadelphia-strike.html
 
 **New Mexico House Swept Away in Floodwaters**\
-`Heavy rain and severe flooding hit Ruidoso, N.M. on Tuesday, prompting rescues.`\
+`Heavy rain and severe flooding hit Ruidoso, N.M., on Tuesday, prompting rescues.`\
 https://nytimes.com/video/us/100000010274796/flooding-ruidoso-new-mexico.html
 
 **Oilers trade for Hobey Baker winner Isaac Howard, send Sam O'Reilly to Lightning**\
