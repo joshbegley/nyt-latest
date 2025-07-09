@@ -1,3 +1,19 @@
+**Tottenham reach transfer agreement for Kudus**\
+`A medical is scheduled to take place on Thursday ahead of Kudus signing a six-year contract at the north London club.`\
+https://nytimes.com/athletic/6475432/2025/07/09/tottenham-transfers-mohammed-kudus-west-ham/
+
+**Elon Musk Consulted Curtis Yarvin, Right-Wing Thinker, on Third Party**\
+`The two men spoke about Mr. Musk’s push to create the America Party before the midterm elections. Mr. Yarvin has expressed support for a monarchy, along with provocative ideas about race.`\
+https://nytimes.com/2025/07/09/us/politics/elon-musk-curtis-yarvin-third-party.html
+
+**The Lives Lost to the Texas Floods**\
+`Eight-year-old girls at sleep-away camp, families crammed into recreational vehicles, local residents traveling to or from work. These are some of the victims of the July 4 floods.`\
+https://nytimes.com/interactive/2025/07/09/us/texas-floods-victims.html
+
+**A New Barbie Wears Blue Polka-Dots, and a Glucose Monitor**\
+`The doll pairs a blue polka-dot outfit with an insulin pump and continuous glucose monitor.`\
+https://nytimes.com/2025/07/09/business/barbie-diabetes-doll-type-1.html
+
 **Trump to Discuss Economic Investment With African Leaders at White House Meeting**\
 `The administration is aiming to strike deals to expand the United States’ access to critical minerals and to counter China’s rising influence in Africa.`\
 https://nytimes.com/2025/07/09/us/politics/trump-african-leaders-china.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6483189/2025/07/09/cam-schlittler-yankees-promoted-
 **U.S. Copper Prices Surge on Trump’s Threat of 50% Tariff**\
 `Prices for the metal hit a record high after the president suggested a higher rate than many analysts were expecting.`\
 https://nytimes.com/2025/07/09/us/politics/trump-copper-tariffs.html
-
-**Life Expectancy in California Has Not Rebounded After Covid**\
-`The state’s life expectancy was lower in 2024 than in 2019, according to an analysis, but primarily as a result of causes of death other than Covid.`\
-https://nytimes.com/2025/07/09/health/life-expectancy-california.html
-
-**The View From The Lane: Live at Soho Theatre, Walthamstow**\
-`Host Danny Kelly and the team return for another live edition of The Athletic's multi-award-winning Tottenham Hotspur podcast`\
-https://nytimes.com/athletic/6482996/2025/07/09/view-from-the-lane-live-tickets/
-
-**Brazil boss Ancelotti sentenced to one year in prison over tax offence**\
-`Ancelotti, who left Real Madrid at the end of 2024-25, failed to pay tax on his image rights revenues in the 2014 financial year.`\
-https://nytimes.com/athletic/6320182/2025/07/09/carlo-ancelotti-tax-real-madrid/
-
-**Pace, potential and the promise of chaos – why Everton have signed Thierno Barry**\
-`Patience will be needed with David Moyes' new striker, but the club believe they have signed one of Europe's top prospects`\
-https://nytimes.com/athletic/6480554/2025/07/09/thierno-barry-everton-transfer-villarreal/
 
