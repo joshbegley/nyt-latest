@@ -1,3 +1,7 @@
+**Trump to Discuss Economic Investment With African Leaders at White House Meeting**\
+`The administration is aiming to strike deals to expand the United States’ access to critical minerals and to counter China’s rising influence in Africa.`\
+https://nytimes.com/2025/07/09/us/politics/trump-african-leaders-china.html
+
 **Bucs All-Pro LT Wirfs likely to miss start of season after knee surgery**\
 `Wirfs dealt with a knee injury last season, which caused him to miss one regular-season game.`\
 https://nytimes.com/athletic/6483186/2025/07/09/tristan-wirfs-knee-surgery-buccaneers/

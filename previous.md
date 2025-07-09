@@ -1,3 +1,7 @@
+**Trump to Discuss Economic Investment With African Leaders at White House Meeting**\
+`The administration is aiming to strike deals to expand the United States’ access to critical minerals and to counter China’s rising influence in Africa.`\
+https://nytimes.com/2025/07/09/us/politics/trump-african-leaders-china.html
+
 **Bucs All-Pro LT Wirfs likely to miss start of season after knee surgery**\
 `Wirfs dealt with a knee injury last season, which caused him to miss one regular-season game.`\
 https://nytimes.com/athletic/6483186/2025/07/09/tristan-wirfs-knee-surgery-buccaneers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6320182/2025/07/09/carlo-ancelotti-tax-real-madrid/
 **Pace, potential and the promise of chaos – why Everton have signed Thierno Barry**\
 `Patience will be needed with David Moyes' new striker, but the club believe they have signed one of Europe's top prospects`\
 https://nytimes.com/athletic/6480554/2025/07/09/thierno-barry-everton-transfer-villarreal/
-
-**BYU's AJ Dybantsa signs exclusive deal with Fanatics that will extend beyond college**\
-`Dybantsa explains how he's preparing for the NBA and who he's modeled his game after`\
-https://nytimes.com/athletic/6482180/2025/07/09/aj-dybantsa-fanatics-byu/
 
