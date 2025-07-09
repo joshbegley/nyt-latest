@@ -1,3 +1,11 @@
+**The L.P.G.A. Is Getting a New Commissioner. He’s Got Some Work to Do.**\
+`Craig Kessler starts in a few days and knows what he must do to help the tour grow.`\
+https://nytimes.com/2025/07/09/sports/golf/lpga-new-commissioner-craig-kessler.html
+
+**Thunder, Chet Holmgren agree to 5-year max rookie contract extension**\
+`Holmgren, 23, averaged 15 points and eight rebounds in the regular season with the Thunder in 2024-25, but missed 50 games due to injury.`\
+https://nytimes.com/athletic/6482971/2025/07/09/chet-holmgren-contract-extension-rookie-thunder/
+
 **Shai Gilgeous-Alexander, Angel Reese, Carmelo Anthony chosen for NBA 2K26 covers**\
 `The trio will share a cover for NBA 2K26’s “Leave No Doubt” Edition, a special release, in addition to having their own individual covers.`\
 https://nytimes.com/athletic/6475357/2025/07/09/shai-gilgeous-alexander-angel-reese-nba-2k26/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/world/europe/russia-ukraine-putin-trump.html
 **Did the Texas Flood Warnings Come in Time?**\
 `When deadly floods swept through Texas, the National Weather Service issued a series of warnings that should have automatically triggered alerts to be sent to cellphones as the Guadalupe River began to rise.`\
 https://nytimes.com/video/us/100000010273289/tracking-texas-flood-warning-system.html
-
-**No Fashion Show Invite? No Problem.**\
-`Denied a seat at Jonathan Anderson’s Dior debut, a fashion critic invited all of Paris to watch it with him at a bar. Hundreds took him up on the offer.`\
-https://nytimes.com/2025/07/09/style/dior-watch-party-paris-elias-medini-lyas.html
-
-**Roma working on deal to sign Brighton's Evan Ferguson on loan**\
-`While no agreement has been reached, Roma are hopeful of landing the 20-year-old Republic of Ireland international.`\
-https://nytimes.com/athletic/6482727/2025/07/09/roma-loan-deal-brighton-evan-ferguson/
 
