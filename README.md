@@ -1,3 +1,7 @@
+**Henderson leaving Ajax, considering options in England and in Europe**\
+`The 35-year-old becomes a free agent after opting against triggering a contract extension option at Ajax.`\
+https://nytimes.com/athletic/6482945/2025/07/09/jordan-henderson-ajax-transfer-exit/
+
 **Putin, Undeterred by Trump’s Words, Escalates His War Against Ukraine**\
 `The Russian leader is convinced that Moscow’s battlefield superiority is growing, and that Ukraine’s defenses may collapse in the coming months, according to people close to the Kremlin.`\
 https://nytimes.com/2025/07/09/world/europe/russia-ukraine-putin-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6482651/2025/07/09/man-city-sydney-lohmann-bayern-m
 **Sunderland complete signing of Talbi from Club Brugge**\
 `The two sides have completed a deal worth around £19.5million ($26.5m) for the 20-year-old.`\
 https://nytimes.com/athletic/6482822/2025/07/09/sunderland-chemsdine-talbi-transfer-news/
-
-**143 Picture Prompts to Inspire Student Writing**\
-`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
-https://nytimes.com/2025/07/09/learning/143-picture-prompts-to-inspire-student-writing.html
 
