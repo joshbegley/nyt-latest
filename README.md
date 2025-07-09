@@ -1,3 +1,7 @@
+**Women's Euro 2025: Who will advance out of the group stage?**\
+`Here's where things stand at Euro 2025 after two rounds of group stage matches`\
+https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
+
 **Zohran Mamdani Expands Campaign Team, Hiring Veteran Democrat**\
 `Mr. Mamdani, a state assemblyman and the Democratic nominee for mayor of New York City, is taking on a small handful of more experienced campaign hands.`\
 https://nytimes.com/2025/07/09/nyregion/mamdani-communications-jeffrey-lerner.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-r
 **Court Overturns Conviction for Memes That Sought to Trick Clinton Voters**\
 `Douglass Mackey’s posts in 2016 falsely advertised text voting for Hillary Clinton. Appeals court judges said prosecutors had not shown that his actions were part of a conspiracy.`\
 https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
-
-**Boy, 13, Started California Wildfire With Illegal Fireworks, Police Say**\
-`The Rancho fire, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
-https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
 
