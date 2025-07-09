@@ -1,3 +1,19 @@
+**After Rafael Devers deal, Giants focus on pitching depth at trade deadline**\
+`"Look, I don't think you can ever have enough pitching," Posey said. "So we'll just keep our options open for what might present itself."`\
+https://nytimes.com/athletic/6484397/2025/07/09/buster-posey-giants-trade-deadline/
+
+**Trump Compliments Liberian President for ‘Beautiful English’**\
+`English is the official language of the West African country, which was founded in part by freed American slaves.`\
+https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
+
+**8 Million Federal Student Loan Borrowers Will Soon See Interest Restart**\
+`It will kick back in on Aug. 1 for people in the SAVE repayment program, whose payments have been on hold since last summer.`\
+https://nytimes.com/2025/07/09/your-money/student-loans-save-plan-interest.html
+
+**Ex-NBA guard Ben McLemore sentenced to prison in 2021 rape: Reports**\
+`A jury found McLemore guilty of first-degree rape, first-degree unlawful sexual penetration and second-degree sexual abuse one week prior.`\
+https://nytimes.com/athletic/6484230/2025/07/09/ben-mclemore-prison-sentence-rape-conviction/
+
 **Parsing the Dodgers' six-game losing streak, their worst since 2019**\
 `Very little has gone well for the Dodgers over the last week, leading to something that hasn’t been seen in years.`\
 https://nytimes.com/athletic/6484279/2025/07/09/dodgers-losing-streak-worst-since-2019/
