@@ -1,4 +1,20 @@
-**Tottenham reach transfer agreement for Kudus**\
+**Nine Canucks offseason thoughts: The risk in Demko's extension, and what comes next?**\
+`Has this quietly been a summer that marks a new direction for the Canucks? It certainly feels that way.`\
+https://nytimes.com/athletic/6481473/2025/07/09/canucks-thatcher-demko-brock-boeser-contract/
+
+**2026 World Cup set to be the most polluting ever**\
+`The 48-team tournament will produce around nine million tons of greenhouse gas emissions, according to a report.`\
+https://nytimes.com/athletic/6483216/2025/07/09/we-couldnt-be-more-worried-2026-world-cup-will-be-the-most-polluting-ever-say-scientists/
+
+**Mets reliever Brooks Raley bet on himself after surgery — now he's almost back**\
+`Mets reliever Brooks Raley, currently on a rehab assignment, said his goal is to work his way back into a high-leverage role with New York.`\
+https://nytimes.com/athletic/6482892/2025/07/09/mets-reliever-brooks-raley-bet-on-himself-after-surgery-now-hes-almost-back/
+
+**My In-Laws Are Hoarders. Should I Secretly Call the Authorities?**\
+`They refuse to get help to clean it out or even discuss it.`\
+https://nytimes.com/2025/07/09/magazine/hoarders-in-laws-ethics.html
+
+**Tottenham reach agreement for Kudus**\
 `A medical is scheduled to take place on Thursday ahead of Kudus signing a six-year contract at the north London club.`\
 https://nytimes.com/athletic/6475432/2025/07/09/tottenham-transfers-mohammed-kudus-west-ham/
 
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/09/business/barbie-diabetes-doll-type-1.html
 **Trump to Discuss Economic Investment With African Leaders at White House Meeting**\
 `The administration is aiming to strike deals to expand the United States’ access to critical minerals and to counter China’s rising influence in Africa.`\
 https://nytimes.com/2025/07/09/us/politics/trump-african-leaders-china.html
-
-**Bucs All-Pro LT Wirfs likely to miss start of season after knee surgery**\
-`Wirfs dealt with a knee injury last season, which caused him to miss one regular-season game.`\
-https://nytimes.com/athletic/6483186/2025/07/09/tristan-wirfs-knee-surgery-buccaneers/
-
-**Submit questions for Jeff Zrebiec's Ravens mailbag**\
-`Zrebiec will consider your questions for his upcoming mailbag with Baltimore's training camp set to begin. `\
-https://nytimes.com/athletic/6483242/2025/07/09/ravens-mailbag-2025-training-camp/
-
-**Yankees promote prospect Cam Schlittler: Can the RHP seize a starting rotation job?**\
-`Schlittler will get his first chance to state his case for a rotation spot when he makes his MLB debut versus the Mariners on Wednesday.`\
-https://nytimes.com/athletic/6483189/2025/07/09/cam-schlittler-yankees-promoted-mlb-debut-mariners/
-
-**U.S. Copper Prices Surge on Trump’s Threat of 50% Tariff**\
-`Prices for the metal hit a record high after the president suggested a higher rate than many analysts were expecting.`\
-https://nytimes.com/2025/07/09/us/politics/trump-copper-tariffs.html
 
