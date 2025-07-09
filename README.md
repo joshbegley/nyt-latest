@@ -1,4 +1,4 @@
-**Trump Administration Renews Attacks On Harvard With Negotiations Uncertain**\
+**Trump Administration Renews Attacks on Harvard With Negotiations Uncertain**\
 `The Department of Homeland Security issued administrative subpoenas seeking data about the university’s international students, while two federal agencies challenged Harvard’s accreditation.`\
 https://nytimes.com/2025/07/09/us/politics/trump-harvard-data-accreditation.html
 
