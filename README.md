@@ -1,5 +1,5 @@
-**Uruguay resumes training for Copa AmÃ©rica after players protest conditions**\
-`The national teamâs players union told The Athletic that the national team's protest was a result of âsome differences in negotiations."`\
+**Uruguay resumes training for Copa América after players protest conditions**\
+`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
 https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
 
 **A three-day search for the letter that led to the creation of Wales' women's national team**\
@@ -7,11 +7,11 @@ https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-amer
 https://nytimes.com/athletic/6465022/2025/07/09/wales-euro-2025-letter-aberystywth/
 
 **Wednesday Briefing: Rare Earths, Made in Europe?**\
-`Plus, Swedenâs secret to well-being.`\
+`Plus, Sweden’s secret to well-being.`\
 https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
 
-**Bibiâs Empty Victory Lap**\
-`The 12-day war is over. But thereâs no peace in sight.`\
+**Bibi’s Empty Victory Lap**\
+`The 12-day war is over. But there’s no peace in sight.`\
 https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
 
 **The New York Times in Print for Wednesday, July 9, 2025**\
@@ -23,14 +23,14 @@ https://nytimes.com/issue/todayspaper/2025/07/09/todays-new-york-times
 https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-deadline/
 
 **Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
-`Firefighters worked to prevent the blaze from entering Franceâs second-biggest city, where ash and smoke had spread overnight.`\
+`Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
 https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
 
 **How Liverpool can help nurse players through their grief**\
 `Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
 https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/
 
-**Confessions of a cricket groundsman: The secrets of the sportâs most thankless task**\
+**Confessions of a cricket groundsman: The secrets of the sport’s most thankless task**\
 `John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
 https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
 
