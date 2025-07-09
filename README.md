@@ -18,7 +18,7 @@ https://nytimes.com/video/world/europe/100000010275972/ukraine-crews-extinguish-
 `As was the case in spring training, teams will be given two challenges, with retention if their challenge is upheld.`\
 https://nytimes.com/athletic/6483715/2025/07/09/mlb-all-star-game-automated-ball-strike-system/
 
-**The Surprising Presence in ‘The Gospel at Colonus’**\
+**The Surprising Presence in âThe Gospel at Colonusâ**\
 `In this revival at Little Island, the singer and pastor Kim Burrell shares the stage with a team of queer artists.`\
 https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
 
@@ -27,10 +27,10 @@ https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
 https://nytimes.com/athletic/6483760/2025/07/09/tennis-wimbledon-novak-djokovic-cobolli-jannik-sinner-semifinal/
 
 **Latest Fed Minutes Underscore Divisions Over Pace of Interest Rate Cuts**\
-`The U.S. central bank’s decision to hold interest rates steady in June was unanimously supported, but officials were starting to splinter over the path forward.`\
+`The U.S. central bankâs decision to hold interest rates steady in June was unanimously supported, but officials were starting to splinter over the path forward.`\
 https://nytimes.com/2025/07/09/business/federal-reserve-meeting-minutes.html
 
 **Trump Tariffs Aim to Settle Scores With Countries, No Matter How Small**\
-`The president’s tariff announcements suggest he has not backed away from his initial strategy, where even minor trading partners will face tariffs.`\
+`The presidentâs tariff announcements suggest he has not backed away from his initial strategy, where even minor trading partners will face tariffs.`\
 https://nytimes.com/2025/07/09/business/economy/trump-tariffs-global-trade.html
 
