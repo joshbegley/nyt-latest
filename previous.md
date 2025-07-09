@@ -1,3 +1,7 @@
+**In Flooded Texas, Questions About FEMA’s Role and Fate**\
+`President Trump wants to shutter the agency and shift responsibility and costs of emergency management to the states. In Texas, that process appears to already be underway.`\
+https://nytimes.com/2025/07/08/climate/texas-flood-fema-trump.html
+
 **After Mike Rizzo, Davey Martinez firings, Nationals interim GM eyes major changes**\
 `"The fans are frustrated. We're all frustrated," DeBartolo said. "We have a lot of interesting, exciting young pieces to build on."`\
 https://nytimes.com/athletic/6481562/2025/07/08/mike-debartolo-nationals-interim-general-manager/
@@ -25,8 +29,4 @@ https://nytimes.com/live/2025/07/08/us/texas-floods/search-and-rescue-teams-from
 **Francisco Alvarez blocks out frustration, commits to new path: 'Baseball never stops'**\
 `The Mets catcher keeps making strides in the minors as he searches to regain his power: "All I’ve seen him do is work his tail off."`\
 https://nytimes.com/athletic/6481720/2025/07/08/francisco-alvarez-blocks-out-frustration-commits-to-new-path-baseball-never-stops/
-
-**Trump’s Frustration With Putin Preceded Resumption of U.S. Weapons to Ukraine**\
-`President Trump lashed out at the Russian leader on Tuesday, signaling a change in his posture toward the conflict.`\
-https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine.html
 

@@ -1,3 +1,7 @@
+**In Flooded Texas, Questions About FEMA’s Role and Fate**\
+`President Trump wants to shutter the agency and shift responsibility and costs of emergency management to the states. In Texas, that process appears to already be underway.`\
+https://nytimes.com/2025/07/08/climate/texas-flood-fema-trump.html
+
 **Trump’s Frustration With Putin Preceded Resumption of U.S. Weapons to Ukraine**\
 `President Trump lashed out at the Russian leader on Tuesday, signaling a change in his posture toward the conflict.`\
 https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine.html
