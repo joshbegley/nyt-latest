@@ -1,5 +1,5 @@
 **Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
-`It’s the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
+`Itâs the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
 https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
 
 **Women's Euro 2025: Who will advance out of the group stage?**\
@@ -14,8 +14,8 @@ https://nytimes.com/2025/07/09/nyregion/mamdani-communications-jeffrey-lerner.ht
 `Colorado will open up the season at home against Georgia Tech August 29th.`\
 https://nytimes.com/athletic/6484203/2025/07/09/deion-sanders-salary-cap-college-football/
 
-**Putin Is Undeterred by Trump’s Public Anger**\
-`Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
+**Putin Is Undeterred by Trumpâs Public Anger**\
+`Also, measles cases hit a 25-year high. Hereâs the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
 
 **Tensions Escalate in San Francisco Over Immigration Enforcement**\
@@ -27,10 +27,10 @@ https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
 https://nytimes.com/2025/07/09/world/middleeast/houthis-red-sea-hostages.html
 
 **NASCAR teams 23XI, Front Row could lose charters next week: Here's what it means**\
-`A court decision Wednesday means 23XI Racing and Front Row Motorsports could lose their charters — and possibly more — as soon as next week.`\
+`A court decision Wednesday means 23XI Racing and Front Row Motorsports could lose their charters â and possibly more â as soon as next week.`\
 https://nytimes.com/athletic/6484018/2025/07/09/nascar-23xi-front-row-lawsuit-charters-tyler-reddick/
 
 **Wimbledon recap: Ben Shelton's Grand Slam roadblock and Novak Djokovic's slip**\
-`The Wimbledon quarterfinals wrapped up today — here's what happened.`\
+`The Wimbledon quarterfinals wrapped up today â here's what happened.`\
 https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-results-analysis/
 
