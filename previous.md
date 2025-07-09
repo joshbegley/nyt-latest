@@ -1,3 +1,15 @@
+**How Liverpool can help nurse players through their grief**\
+`Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
+https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/
+
+**Confessions of a cricket groundsman: The secrets of the sportâs most thankless task**\
+`John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
+https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
+
+**Why are Forest set to sell Anthony Elanga?**\
+`Elanga was one of Forest's best players last season so why, with European football on the agenda, are Forest set to sell him?`\
+https://nytimes.com/athletic/6479128/2025/07/09/why-are-nottingham-forest-set-to-sell-anthony-elanga/
+
 **Experienced, superb shot stopper and good in the air: Why Palace have signed Walter Benitez**\
 `The Argentina international is a solid goalkeeper and should prove an excellent back-up to Dean Henderson`\
 https://nytimes.com/athletic/6462444/2025/07/09/why-crystal-palace-signed-walter-benitez/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6480178/2025/07/09/manchester-united-john-victor-tr
 **Wiegman, her assistant and the job offer that could have a big impact on England and the Netherlands**\
 `Arjan Veurink will be in the England dugout on Wednesday for the game against the Netherlands, the team he will manage after the Euros`\
 https://nytimes.com/athletic/6479704/2025/07/09/arjan-veurink-sarina-wiegman-england-netherlands/
-
-**Attacking versatility, relentless take-ons and penetrative dribbling: Why Tottenham want Kudus**\
-`The West Ham player is fearless on the ball and has several attributes that Thomas Frank's side are missing right now`\
-https://nytimes.com/athletic/6478040/2025/07/09/why-tottenham-want-kudus/
-
-**Alex Iwobi: Music-maker, Snapchat joker and a Premier League performer from Arsenal to Fulham**\
-`The Fulham midfielder talks freedom on and off the pitch, and a blossoming career that is approaching 300 Premier League appearances`\
-https://nytimes.com/athletic/6471141/2025/07/09/alex-iwobi-arsenal-fulham-everton-music-snapchat/
-
-**Luka Modric, Gareth Bale and Deadpool: This is the changing face of Welsh football**\
-`The landscape is shifting in football in Wales, with celebrity owners sprinkling their stardust as the natural balance of power changes`\
-https://nytimes.com/athletic/6456165/2025/07/09/bale-modric-wrexham-swansea-cardiff-wales/
 

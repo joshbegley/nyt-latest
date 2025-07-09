@@ -1,3 +1,15 @@
+**How Liverpool can help nurse players through their grief**\
+`Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
+https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/
+
+**Confessions of a cricket groundsman: The secrets of the sportâs most thankless task**\
+`John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
+https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
+
+**Why are Forest set to sell Anthony Elanga?**\
+`Elanga was one of Forest's best players last season so why, with European football on the agenda, are Forest set to sell him?`\
+https://nytimes.com/athletic/6479128/2025/07/09/why-are-nottingham-forest-set-to-sell-anthony-elanga/
+
 **Experienced, superb shot stopper and good in the air: Why Palace have signed Walter Benitez**\
 `The Argentina international is a solid goalkeeper and should prove an excellent back-up to Dean Henderson`\
 https://nytimes.com/athletic/6462444/2025/07/09/why-crystal-palace-signed-walter-benitez/
