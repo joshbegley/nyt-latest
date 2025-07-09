@@ -1,3 +1,11 @@
+**Measles Cases Have Hit a Record High. What Went Wrong?**\
+`There have now been more measles cases in 2025 than in any other year since the contagious virus was declared eliminated in the United States in 2000, according to new data from the Centers for Disease Control and Prevention.`\
+https://nytimes.com/video/well/100000010273332/measles-cases-have-hit-a-record-high-what-went-wrong.html
+
+**Belinda Bencic reaches Wimbledon semifinals nine months into tennis comeback**\
+`Bencic edged out the rising star in two fascinating, high-quality and edgy sets on Centre Court.`\
+https://nytimes.com/athletic/6483082/2025/07/09/bencic-andreeva-wimbledon-result-analysis/
+
 **Measles Cases Hit Record High, 25 Years After U.S. Eliminated the Disease**\
 `Experts worry that if vaccination rates do not improve, deadly outbreaks will become the new normal.`\
 https://nytimes.com/2025/07/09/well/us-measles-record-outbreaks.html
