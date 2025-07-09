@@ -1,3 +1,11 @@
+**Fire Rages Near Marseille**\
+`Flames burned on the outskirts of the French city, injuring over 100 people and prompting evacuations.`\
+https://nytimes.com/video/world/europe/100000010274922/marseille-wildfires-france.html
+
+**It’s Alive!**\
+`In an electric show, Iris van Herpen breaks the fabric barrier. She even grew a dress.`\
+https://nytimes.com/2025/07/09/style/iris-van-herpen-living-dress.html
+
 **In a Good-Will Gesture, South Korea Returns Stranded Fishermen to the North**\
 `The fishermen’s boats had drifted into South Korean waters, officials said. The South’s new president has been trying to improve ties with North Korea.`\
 https://nytimes.com/2025/07/09/world/asia/south-korea-returns-north-korean-fishermen.html

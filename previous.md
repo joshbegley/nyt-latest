@@ -1,3 +1,11 @@
+**Fire Rages Near Marseille**\
+`Flames burned on the outskirts of the French city, injuring over 100 people and prompting evacuations.`\
+https://nytimes.com/video/world/europe/100000010274922/marseille-wildfires-france.html
+
+**It’s Alive!**\
+`In an electric show, Iris van Herpen breaks the fabric barrier. She even grew a dress.`\
+https://nytimes.com/2025/07/09/style/iris-van-herpen-living-dress.html
+
 **In a Good-Will Gesture, South Korea Returns Stranded Fishermen to the North**\
 `The fishermen’s boats had drifted into South Korean waters, officials said. The South’s new president has been trying to improve ties with North Korea.`\
 https://nytimes.com/2025/07/09/world/asia/south-korea-returns-north-korean-fishermen.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6480925/2025/07/09/psg-real-madrid-club-world-cup-o
 **What It Means to Lead an Investigative Team of Many**\
 `How do six reporters share an article? Their editor explains.`\
 https://nytimes.com/2025/07/09/insider/investigative-reporting.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/09/crosswords/spelling-bee-forum.html
-
-**Over 200 Children Hospitalized in China After School Serves Lead-Tainted Food**\
-`The kindergarten’s cooks used inedible pigments to decorate buns and cakes, the authorities said. Eight school officials and employees were detained.`\
-https://nytimes.com/2025/07/09/world/asia/china-children-lead-poisoning.html
 
