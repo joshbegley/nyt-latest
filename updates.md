@@ -1,3 +1,7 @@
+**New Mexico House Swept Away in Floodwaters**\
+`Heavy rain and severe flooding hit Ruidoso, N.M., on Tuesday, prompting rescues.`\
+https://nytimes.com/video/us/100000010274796/flooding-ruidoso-new-mexico.html
+
 **Trash Mounts in Philadelphia as City Workers Strike**\
 `Garbage collection was halted in the nation’s sixth most populous city as a strike by the city’s largest public sector union entered its second week.`\
 https://nytimes.com/video/us/100000010274804/trash-philadelphia-strike.html
