@@ -1,3 +1,31 @@
+**Wildfires Add to Syria’s Scars**\
+`The country is experiencing its worst drought in decades, which has set the conditions for the blazes to scorch an area the size of Washington, D.C.`\
+https://nytimes.com/2025/07/09/world/middleeast/syria-wildfires-photos-videos.html
+
+**Quote of the Day: Latest Trade Tempest Sets OffGlobal Scramble to Avoid Tariffs**\
+`Quotation of the Day for Wednesday, July 9, 2025.`\
+https://nytimes.com/2025/07/09/pageoneplus/quote-of-the-day-latest-trade-tempest-sets-offglobal-scramble-to-avoid-tariffs.html
+
+**Britain’s Economic Bind: Face Public Disapproval or Investor Wrath**\
+`The Labour Party is starting its second year in control of the government with difficult choices over whether to curb spending or raise taxes.`\
+https://nytimes.com/2025/07/09/business/uk-economy-reeves-starmer.html
+
+**Connections: Sports Edition Coach: Hints for July 9, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6479166/2025/07/09/connections-sports-edition-hints-for-july-9-2025/
+
+**England vs Netherlands Euro 2025 odds, prediction: Lionesses under pressure**\
+`England have their backs up against the wall after dropping their Euro 2025 opener. Can the Lionesses bounce back against the Netherlands?`\
+https://nytimes.com/athletic/6480699/2025/07/09/england-netherlands-odds-prediction-euro-2025/
+
+**Research Suggests Climate Change Added Excess Deaths in European Heat Wave**\
+`The rapid analysis by World Weather Attribution calculated that climate change might have tripled the death toll from the event.`\
+https://nytimes.com/2025/07/09/climate/europe-heat-waves-deaths.html
+
+**Corrections: July 9, 2025**\
+`Corrections that appeared in print on Wednesday, July 9, 2025.`\
+https://nytimes.com/2025/07/09/pageoneplus/corrections-july-9-2025.html
+
 **Trash Mounts in Philadelphia as City Workers Strike**\
 `Garbage collection was halted in the nation’s sixth most populous city as a strike by the city’s largest public sector union entered its second week.`\
 https://nytimes.com/video/us/100000010274804/trash-philadelphia-strike.html
@@ -5,32 +33,4 @@ https://nytimes.com/video/us/100000010274804/trash-philadelphia-strike.html
 **New Mexico House Swept Away in Floodwaters**\
 `Heavy rain and severe flooding hit Ruidoso, N.M., on Tuesday, prompting rescues.`\
 https://nytimes.com/video/us/100000010274796/flooding-ruidoso-new-mexico.html
-
-**Oilers trade for Hobey Baker winner Isaac Howard, send Sam O'Reilly to Lightning**\
-`The Oilers have also signed Howard to a three-year, entry-level contract, negating a potential return to college.`\
-https://nytimes.com/athletic/6482026/2025/07/08/oilers-trade-isaac-howard-sam-oreilly-lightning/
-
-**President Trump says he'll attend Club World Cup final at MetLife Stadium**\
-`The U.S. president has forged a strong bond with his FIFA counterpart and will be present for Sunday's Club World Cup finale.`\
-https://nytimes.com/athletic/6481998/2025/07/08/club-world-cup-final-president-trump-infantino/
-
-**NHL trade grades: Oilers, Lightning pull off top prospects swap**\
-`Isaac Howard could play in the NHL next season, whereas Sam O'Reilly is likely several seasons away.`\
-https://nytimes.com/athletic/6481990/2025/07/08/nhl-trade-grades-oilers-isaac-howard-lightning-sam-oreilly/
-
-**Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
-`It's Suarez's second consecutive All-Star selection and the first for Abbott and Caminero.`\
-https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
-
-**Luke Keaschall, Zebby Matthews look for inside track as they return from injury**\
-`Manager Rocco Baldelli liked what he saw as two players who could immediately help the club demonstrated how close to ready they were.`\
-https://nytimes.com/athletic/6481918/2025/07/08/twins-luke-keaschall-zebby-matthews-injury-return/
-
-**Many Moons**\
-`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
-https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
-
-**Real Madrid's Club World Cup semi-final plans disrupted by flight delay**\
-`The Spanish side had its travel plans disrupted by inclement weather`\
-https://nytimes.com/athletic/6481872/2025/07/08/real-madrid-flight-delay-club-world-cup-semifinal/
 
