@@ -1,3 +1,7 @@
+**After Rafael Devers deal, Giants focus on pitching depth at trade deadline**\
+`"Look, I don't think you can ever have enough pitching," Posey said. "So we'll just keep our options open for what might present itself."`\
+https://nytimes.com/athletic/6484397/2025/07/09/buster-posey-giants-trade-deadline/
+
 **Trump Compliments Liberian President for ‘Beautiful English’**\
 `English is the official language of the West African country, which was founded in part by freed American slaves.`\
 https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surge
 **Women's Euro 2025: Who will advance out of the group stage?**\
 `Here's where things stand at Euro 2025 after two rounds of group stage matches`\
 https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
-
-**Zohran Mamdani Expands Campaign Team, Hiring Veteran Democrat**\
-`Mr. Mamdani, a state assemblyman and the Democratic nominee for mayor of New York City, is taking on a small handful of more experienced campaign hands.`\
-https://nytimes.com/2025/07/09/nyregion/mamdani-communications-jeffrey-lerner.html
 
