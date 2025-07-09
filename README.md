@@ -1,36 +1,36 @@
-**TAFC: Mbappe's bitter PSG divorce, Chelsea profit from final spot in Club World Cup**\
-`Today in TAFC: The dispute that lingers from Mbappe's acrimonious PSG exit, Chelsea reach the Club World Cup final after stars align`\
-https://nytimes.com/athletic/6482410/2025/07/09/kylian-mbappes-psg-real-madrid-chelsea-pedro/
+**Rio Ferdinand's son signs first professional contract with Brighton**\
+`The goalkeeper, 18, has steadily progressed since joining Brighton as an under-13 player.`\
+https://nytimes.com/athletic/6482536/2025/07/09/rio-ferdinand-son-lorenz-contract-brighton/
 
-**That guy was an All-Star? Every MLB team's most forgotten selection from the past quarter-century**\
-`Daniel Vogelbach, Hung-Chi Kuo, Bryan LaHair and Junior Spivey are among the All-Stars that you may not recall from the past 25 years.`\
-https://nytimes.com/athletic/6478653/2025/07/09/mlb-all-star-forgotten-selection-quarter-century/
+**A Classroom Experiment**\
+`We explain how schools are using artificial intelligence.`\
+https://nytimes.com/2025/07/09/briefing/artificial-intelligence-education-students.html
 
-**The Pulse: How politics could threaten Bills’ ambitions**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6481324/2025/07/09/bills-trump-canada-the-pulse/
+**Unanswered questions from Steelers' Minkah Fitzpatrick, Jalen Ramsey, Jonnu Smith trade**\
+`How many hats will Ramsey wear? Who plays safety in Fitzpatrick's absence? How will they employ the tight ends with Smith in the fold?`\
+https://nytimes.com/athletic/6480149/2025/07/09/steelers-trade-jalen-ramsey-jonnu-smith/
 
-**In Rare Video, Jailed Kurdish Leader Declares an End to Armed Struggle**\
-`In the first footage of him to be released publicly in 25 years, Abdullah Ocalan said the P.K.K. insurgency against Turkey would be replaced by politics.`\
-https://nytimes.com/2025/07/09/world/middleeast/turkey-pkk-kurdish-leader-ocalan-armed-struggle.html
+**Liverpool Women in talks to appoint Taylor as head coach**\
+`The former Manchester City boss in talks to become the permanent Liverpool head coach.`\
+https://nytimes.com/athletic/6430666/2025/07/09/liverpool-women-manager-gareth-taylor/
 
-**French Police Raid National Rally Offices Over Campaign Finances**\
-`The authorities said they are investigating whether the nationalist, anti-immigrant party ran afoul of France’s campaign finance rules.`\
-https://nytimes.com/2025/07/09/world/europe/france-national-rally-raid.html
+**The Big Ten had a different Big 2 until rivalry turncoats changed everything**\
+`Michigan once tried to keep Michigan State out of the Big Ten. Years later, MSU's AD delivered the vote that kept U-M out of the Rose Bowl.`\
+https://nytimes.com/athletic/6478043/2025/07/09/ohio-state-michigan-michigan-state-college-football-rivalry/
 
-**Answering 25 MLB trade deadline questions with 3 weeks to go**\
-`With the All-Star break almost here, answering a big batch of deadline questions on the buyers, likely sellers, top trade targets and more. `\
-https://nytimes.com/athletic/6481991/2025/07/09/mlb-trade-deadline-tigers-phillies-braves-red-sox/
+**Davis Schneider among Blue Jays earning bigger roles as win streak hits 10 games**\
+`Schneider launched a home run in Toronto's rain-shortened 6-1 victory over the Chicago White Sox.`\
+https://nytimes.com/athletic/6482221/2025/07/09/davis-schneider-blue-jays-win-streak-10-games/
 
-**Chiellini joins LAFC ownership group**\
-`Chiellini spent the final 18 months of his playing career at MLS outfit LAFC, where he won both the MLS Cup and Supporters' Shield in 2022.`\
-https://nytimes.com/athletic/6482465/2025/07/09/giorgio-chiellini-lafc-ownership-group/
+**As training camp approaches, where do things stand with the Giants offense?**\
+`While the Giants returned most of their starters on offense, there are lots of new faces looking to make a name for themselves this summer.`\
+https://nytimes.com/athletic/6469683/2025/07/09/ny-giants-roster-jaxson-dart-russell-wilson/
 
-**Why England are pinning their hopes on Jofra Archer**\
-`The fast bowler is back in the England team after four years away – why are cricket fans so thrilled to see him back?`\
-https://nytimes.com/athletic/6480608/2025/07/09/jofra-archer-england-fast-lords/
+**WNBA teams failed in Cleveland and Detroit before. Will it be different this time?**\
+`Ownership groups for the expansion teams cite the league's more stable footing and greater investment as reasons for optimism.`\
+https://nytimes.com/athletic/6482134/2025/07/09/cleveland-detroit-wnba-expansion/
 
-**How to watch the 2025 Genesis Scottish Open: Wind, weather and real stakes**\
-`The Scottish Open isn’t about birdie runs. It’s about bounce control, bad breaks and keeping calm when the wind shifts mid-swing.`\
-https://nytimes.com/athletic/6481827/2025/07/09/scottish-open-weather-pga-golf-how-to-watch-2025/
+**Michigan recruiting is surging. Here are 10 thoughts on the Wolverines' run**\
+`After a slow start, Michigan's football recruiting Class of 2026 is now in the top 10. Here's what to know.`\
+https://nytimes.com/athletic/6481342/2025/07/09/michigan-recruiting-surge-2026-class-targets-commits/
 
