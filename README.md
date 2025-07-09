@@ -1,3 +1,7 @@
+**Caitlin Clark returns from injury as Fever fall to Valkyries**\
+`After missing the previous five games with the left groin injury, Clark was back in uniform as the Fever lost to the Valkyries, 80-61.`\
+https://nytimes.com/athletic/6483907/2025/07/09/caitlin-clark-injury-fever-valkyries/
+
 **Eric Adams Asked Top Donors to Vet Campaign Manager Before Hiring Him**\
 `Two hedge fund titans, Bill Ackman and Daniel S. Loeb, interviewed a potential campaign hire for Mayor Adams, who is courting their financial support.`\
 https://nytimes.com/2025/07/09/nyregion/eric-adams-eugene-noh-bill-ackman.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6478759/2025/07/09/bronny-james-leave-worst-sports-
 **Senate Confirms Bryan Bedford to Lead F.A.A.**\
 `The agency is under pressure to modernize outdated air traffic control systems that have contributed to a series of outages, near-misses, and deadly accidents in recent months.`\
 https://nytimes.com/2025/07/09/us/politics/bedford-faa-senate-confirmation.html
-
-**How Lyon's successful relegation appeal impacts three USMNT players**\
-`The decision regarding Lyon's place in Ligue 1 has a domino effect on a few U.S. players and their club outlooks.`\
-https://nytimes.com/athletic/6483697/2025/07/09/lyon-crystal-palace-europa-league-turner-tessmann-ricahrds-usmnt/
 
