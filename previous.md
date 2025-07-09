@@ -1,3 +1,19 @@
+**Shai Gilgeous-Alexander, Angel Reese, Carmelo Anthony chosen for NBA 2K26 covers**\
+`The trio will share a cover for NBA 2K26’s “Leave No Doubt” Edition, a special release, in addition to having their own individual covers.`\
+https://nytimes.com/athletic/6475357/2025/07/09/shai-gilgeous-alexander-angel-reese-nba-2k26/
+
+**How Chelsea's clever out-of-possession approach blunted Fluminense's attack**\
+`Enzo Maresca's side reached the Club World Cup final after their effective pressing in a 4-3-3 shape left their opponents with no answer`\
+https://nytimes.com/athletic/6482386/2025/07/09/how-chelseas-out-of-possession-approach-blunted-fluminenses-attack/
+
+**Danielle Deadwyler on Balancing Brutality and Family in ‘40 Acres’**\
+`The star plays a stoic matriarch raising a militant brood to protect their land and each other against cannibals in R.T. Thorne’s new horror indie.`\
+https://nytimes.com/2025/07/09/movies/danielle-deadwyler-40-acres.html
+
+**Fabio Fognini retires from tennis after 'perfect' Wimbledon farewell**\
+`The nine-time ATP Tour winner bowed out of his final Wimbledon after losing in five sets to Carlos Alcaraz in a "perfect" farewell`\
+https://nytimes.com/athletic/6482870/2025/07/09/fabio-fognini-retirement-2025/
+
 **Henderson leaving Ajax, considering options in England and in Europe**\
 `The 35-year-old becomes a free agent after opting against triggering a contract extension option at Ajax.`\
 https://nytimes.com/athletic/6482945/2025/07/09/jordan-henderson-ajax-transfer-exit/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/09/style/dior-watch-party-paris-elias-medini-lyas.ht
 **Roma working on deal to sign Brighton's Evan Ferguson on loan**\
 `While no agreement has been reached, Roma are hopeful of landing the 20-year-old Republic of Ireland international.`\
 https://nytimes.com/athletic/6482727/2025/07/09/roma-loan-deal-brighton-evan-ferguson/
-
-**Arsenal make contact with Chelsea over Madueke deal**\
-`Personal terms are in place over a proposed five-year contract for Madueke at the north London side.`\
-https://nytimes.com/athletic/6475127/2025/07/09/noni-madueke-arsenal-transfer-chelsea/
-
-**Inside-the-park walk-off HR! Catcher Patrick Bailey makes history in Giants' wild win**\
-`Bailey is the first major-league catcher in 99 years to end a game with an inside-the-park home run. He entered the game hitting .188.`\
-https://nytimes.com/athletic/6482357/2025/07/09/patrick-bailey-walk-off-home-run-giants-phillies/
-
-**Man City Women sign midfielder Sydney Lohmann from Bayern**\
-`Lohmann, 25, has signed a three-year deal and will arrive after the European Championship.`\
-https://nytimes.com/athletic/6482651/2025/07/09/man-city-sydney-lohmann-bayern-munich/
-
-**Sunderland complete signing of Talbi from Club Brugge**\
-`The two sides have completed a deal worth around £19.5million ($26.5m) for the 20-year-old.`\
-https://nytimes.com/athletic/6482822/2025/07/09/sunderland-chemsdine-talbi-transfer-news/
 
