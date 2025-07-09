@@ -1,3 +1,11 @@
+**The Pulse: How politics could threaten Bills’ ambitions**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6481324/2025/07/09/bills-trump-canada-the-pulse/
+
+**In Rare Video, Jailed Kurdish Leader Declares an End to Armed Struggle**\
+`In the first footage of him to be released publicly in 25 years, Abdullah Ocalan said the P.K.K. insurgency against Turkey would be replaced by politics.`\
+https://nytimes.com/2025/07/09/world/middleeast/turkey-pkk-kurdish-leader-ocalan-armed-struggle.html
+
 **French Police Raid National Rally Offices Over Campaign Finances**\
 `The authorities said they are investigating whether the nationalist, anti-immigrant party ran afoul of France’s campaign finance rules.`\
 https://nytimes.com/2025/07/09/world/europe/france-national-rally-raid.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6480740/2025/07/09/sabres-live-questions-july-2025/
 **Bears fan survey 2025: Ben Johnson's arrival, Caleb Williams' next step**\
 `Our annual survey includes questions about the stadium saga, offseason acquisitions and how many games the Bears will win.`\
 https://nytimes.com/athletic/6480971/2025/07/09/bears-fan-survey-2025-ben-johnson-caleb-williams/
-
-**Can the NFL overcome Trump’s anti-Canada rhetoric? The Bills are banking on it**\
-`For the Bills, growing their fan base and corporate foundation in Southern Ontario can keep them viable long after Josh Allen retires.`\
-https://nytimes.com/athletic/6479455/2025/07/09/nfl-trump-buffalo-bills-canada/
-
-**MLB trade deadline Big Board 2.0: Top 40 players on market as July 31 approaches**\
-`The landscape has shifted since our first Big Board of this trade season. Teams like the Braves and Red Sox could alter it even further. `\
-https://nytimes.com/athletic/5591079/2025/07/09/mlb-trade-deadline-big-board-players-postseason-2/
 
