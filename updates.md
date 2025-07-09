@@ -1,3 +1,23 @@
+**How Joao Pedro made a 'dream' start at Chelsea - and not just with his goals**\
+`The club's new signing scored twice against Fluminense but there was much more to admire about his game on Tuesday`\
+https://nytimes.com/athletic/6482005/2025/07/09/chelsea-joao-pedro-club-world-cup/
+
+**Uruguay resumes training for Copa AmÃ©rica after players protest conditions**\
+`The national teamâs players union told The Athletic that the national team's protest was a result of âsome differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**Wednesday Briefing: Rare Earths, Made in Europe?**\
+`Plus, Swedenâs secret to well-being.`\
+https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
+
+**Bibiâs Empty Victory Lap**\
+`The 12-day war is over. But thereâs no peace in sight.`\
+https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
+
+**Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
+`Firefighters worked to prevent the blaze from entering Franceâs second-biggest city, where ash and smoke had spread overnight.`\
+https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
+
 **Uruguay resumes training for Copa América after players protest conditions**\
 `The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
 https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
