@@ -1,6 +1,10 @@
+**Trump Accuses Brazil of ‘Witch Hunt’ Against Bolsonaro, Pledges Tariffs**\
+`Tensions between the United States and Brazil have suddenly burst open. Responding to criticism from President Trump, Brazil’s president said: “We don’t want an emperor.”`\
+https://nytimes.com/2025/07/09/world/americas/brazil-trump-bolsonaro-lula-coup-tariff.html
+
 **Head of S.E.C.’s Crypto Task Force Says ‘Tokenized’ Stocks Are Securities**\
 `Hester M. Peirce said in a statement Wednesday that digital versions of stocks are still subject to federal securities laws.`\
-https://nytimes.com/2025/07/09/business/head-of-secs-crypto-task-force-says-tokenized-stocks-are-securities.html
+https://nytimes.com/2025/07/09/business/sec-crypto-ttokenized-securities.html
 
 **Why Forecasting Thunderstorms Is Still So Hard**\
 `Even with advances in technology, it’s difficult to pinpoint exactly where and when some of the most severe weather will occur until just before it happens.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/business/ford-battery-plant-tax-break-evs.html
 **South Korea Arrests Impeached Ex-Leader for a Second Time**\
 `Former President Yoon Suk Yeol, already ​accused of insurrection, faced additional ​criminal charges after a special counsel expanded the investigation into his ill-fated declaration of martial law.`\
 https://nytimes.com/2025/07/09/world/asia/south-korea-arrest-yoon-suk-yeol.html
-
-**A Zero SP fantasy baseball strategy prioritizes hitters. What's the advantage?**\
-`Michael Salfino details why it pays to invest heavily in offense early in fantasy baseball drafts, especially the top 30 hitters by ADP.`\
-https://nytimes.com/athletic/6483327/2025/07/09/zero-sp-fantasy-baseball-strategy-prioritizes-hitters/
 
