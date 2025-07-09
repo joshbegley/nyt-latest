@@ -1,3 +1,11 @@
+**Boy, 13, Started California Wildfire With Illegal Fireworks, Police Say**\
+`The Rancho, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
+https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
+
+**Isaac Paredes will replace José Ramírez on the AL's All-Star roster**\
+`Ramírez will miss the All-Star Game to recover from what has been a painful first half, while Paredes gets his second All-Star nod.`\
+https://nytimes.com/athletic/6484163/2025/07/09/mlb-all-star-isaac-paredes-jose-ramirez/
+
 **2025 Club World Cup final: All you need to know**\
 `Chelsea will take on PSG in Sunday's final.`\
 https://nytimes.com/athletic/6483230/2025/07/09/club-world-cup-final-chelsea-psg/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6484112/2025/07/09/liga-mx-all-star-team-mls-sergio
 **Thursday Briefing: Russia’s Record Drone Attack**\
 `Plus, the Bayeux Tapestry’s homecoming.`\
 https://nytimes.com/2025/07/09/briefing/ukraine-russia-trump-trade-south-korea-yoon.html
-
-**New U.S. Army Shaving Rule Could Affect Many Black Soldiers**\
-`Soldiers with skin conditions like razor bumps will no longer be granted permanent medical waivers that allow them to grow beards and could be kicked out of the Army if they are not clean shaven.`\
-https://nytimes.com/2025/07/09/us/army-facial-hair-policy-requirements-shaving.html
-
-**Henry Mount Charles, Whose Castle Was a Mecca for Rock, Dies at 74**\
-`To preserve his Irish manor, he staged concerts on its grounds, drawing the likes of U2, Bob Dylan, Madonna and the Rolling Stones as well as tens of thousands of fans.`\
-https://nytimes.com/2025/07/09/world/europe/henry-mount-charles-dead.html
 

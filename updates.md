@@ -1,3 +1,23 @@
+**2025 Club World Cup final: All you need to know**\
+`Chelsea will take on PSG in Sunday's final.`\
+https://nytimes.com/athletic/6483230/2025/07/09/club-world-cup-final-chelsea-psg/
+
+**Read the document**\
+`The Supreme Court lifted a lower court’s ruling that had blocked mass layoffs in the federal work force.`\
+https://nytimes.com/interactive/2025/07/09/us/politics/scotus-layoffs-order.html
+
+**Mexican Firefighters Join Search for the Missing in Texas**\
+`The day after a deadly flood killed more than 100 people in Central Texas, firefighters from the Mexican nonprofit Fundación 911 crossed the border to help search for survivors. They described the difficulty of the mission and what it means to them.`\
+https://nytimes.com/video/us/100000010273048/texas-flooding-search-mexican-firefighters.html
+
+**Discovery of 178-Year-Old Baptist Antislavery Document Elates Faith Leaders**\
+`The handwritten resolution, signed by 116 Baptist ministers from Massachusetts who called slavery “repugnant,” was thought to have been lost.`\
+https://nytimes.com/2025/07/09/us/massachusetts-baptist-archive-slavery-abolition.html
+
+**PSG 4 Real Madrid 0: European champions humiliate Mbappe and Alonso to reach Club World Cup final**\
+`Two dreadful Madrid mistakes gifted PSG early goals but Luis Enrique's side were dominant in New Jersey as they set up a final with Chelse`\
+https://nytimes.com/athletic/6477516/2025/07/09/psg-club-world-cup-final-real-madrid-dembele-mbappe/
+
 **PSG 4 Real Madrid 0: European champions humiliate Mbappe and Alonso to reach Club World Cup final**\
 `Two dreadful Madrid mistakes gifted PSG early goals but Luis Enrique's side were dominant in New York as they set up a final against Chelsea`\
 https://nytimes.com/athletic/6477516/2025/07/09/psg-club-world-cup-final-real-madrid-dembele-mbappe/
