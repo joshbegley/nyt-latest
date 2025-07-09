@@ -1,3 +1,11 @@
+**Liverpool's pre-season friendly against Preston to go ahead on Sunday**\
+`Discussions between the clubs took place following the tragic deaths of Diogo Jota and his brother Andre Silva last Thursday.`\
+https://nytimes.com/athletic/6482713/2025/07/09/liverpool-preston-friendly-news-update/
+
+**'It’s been a rough go for him': Braves prospect Didier Fuentes rocked in 10-1 loss**\
+`In injury news, Ronald Acuña Jr. was scratched before the series opener due to lower back tightness but said he expects to play Wednesday.`\
+https://nytimes.com/athletic/6482303/2025/07/09/braves-prospect-didier-fuentes-loss-athletics/
+
 **'It’s been a rough go for him': Braves prospect Didier Fuentes rocked in 10-1 loss**\
 `In injury news, Ronald Acuña Jr. was scratched before the series opener due to lower back tightness but said he expects to play Wednesday.`\
 https://nytimes.com/athletic/6482303/2025/07/09/braves-prospect-didier-fuentes-rocked-in-10-1-loss-to-as-its-been-a-rough-go/
