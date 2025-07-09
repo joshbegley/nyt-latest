@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6481998/2025/07/08/club-world-cup-final-president-t
 https://nytimes.com/athletic/6481990/2025/07/08/nhl-trade-grades-oilers-isaac-howard-lightning-sam-oreilly/
 
 **Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
-`It's Suarez’s second consecutive All-Star selection and the first for both Abbott and Caminero.`\
+`It's Suarez's second consecutive All-Star selection and the first for Abbott and Caminero.`\
 https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
 
 **Luke Keaschall, Zebby Matthews look for inside track as they return from injury**\

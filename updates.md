@@ -1,3 +1,7 @@
+**Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
+`It's Suarez's second consecutive All-Star selection and the first for Abbott and Caminero.`\
+https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
+
 **Aces' A'ja Wilson exits game with right wrist injury during loss to Liberty**\
 `Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
 https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
