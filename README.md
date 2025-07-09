@@ -1,3 +1,15 @@
+**Bronny James and the most unflattering sports cards of all time, ranked**\
+`Where Bronny James and his dad land in a ranking of the 17 most unflattering sports cards of all time`\
+https://nytimes.com/athletic/6478759/2025/07/09/bronny-james-leave-worst-sports-cards/
+
+**Senate Confirms Bryan Bedford to Lead F.A.A.**\
+`The agency is under pressure to modernize outdated air traffic control systems that have contributed to a series of outages, near-misses, and deadly accidents in recent months.`\
+https://nytimes.com/2025/07/09/us/politics/bedford-faa-senate-confirmation.html
+
+**How Lyon's successful relegation appeal impacts three USMNT players**\
+`The decision regarding Lyon's place in Ligue 1 has a domino effect on a few U.S. players and their club outlooks.`\
+https://nytimes.com/athletic/6483697/2025/07/09/lyon-crystal-palace-europa-league-turner-tessmann-ricahrds-usmnt/
+
 **Crews in Ukraine Extinguish Flames From Russian Attacks**\
 `The overnight strikes were mostly in central and western Ukraine, where the attacks seemed to target military sites.`\
 https://nytimes.com/video/world/europe/100000010275972/ukraine-crews-extinguish-russian-attack.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/09/business/federal-reserve-meeting-minutes.html
 **Trump Tariffs Aim to Settle Scores With Countries, No Matter How Small**\
 `The president’s tariff announcements suggest he has not backed away from his initial strategy, where even minor trading partners will face tariffs.`\
 https://nytimes.com/2025/07/09/business/economy/trump-tariffs-global-trade.html
-
-**Texas Officials Defer Questions About Flood Disaster Preparation**\
-`During a news conference on Wednesday, Kerr County officials recounted their response to the devastating flood in Central Texas on July 4.`\
-https://nytimes.com/video/weather/100000010275637/kerr-county-dodge-flood-preparation-questions.html
-
-**A Surgeon on the Desperation in Gaza: ‘They’re Prepared to Die for a Bagful of Rice’**\
-`Dr. Victoria Rose spent 21 days in the territory in May, treating people who were shot trying to get food and children with life-changing injuries from Israeli bombs.`\
-https://nytimes.com/2025/07/09/world/middleeast/gaza-hospitals-uk-surgeon-israel-attacks.html
-
-**Supporter who verbally abused Wrexham's McClean fined in landmark case**\
-`McClean has described himself as the subject of “more abuse than any other player in England”.`\
-https://nytimes.com/athletic/6483597/2025/07/09/james-mcclean-wrexham-abuse-fine/
 
