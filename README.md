@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6481872/2025/07/08/real-madrid-flight-delay-club-wo
 `Veteran pitcher allowed three runs in 3 2/3 innings in his rehab start, but says the key is that he feels good.`\
 https://nytimes.com/athletic/6481868/2025/07/08/mets-sean-manaea-final-rehab-start/
 
-**Aces' A'ja Wilson exits game in first half vs. Liberty with wrist injury**\
+**Aces' A'ja Wilson exits game with right wrist injury during loss to Liberty**\
 `Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
 https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
 
