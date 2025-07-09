@@ -1,3 +1,11 @@
+**Uruguay resumes training for Copa América after players protest conditions**\
+`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**A three-day search for the letter that led to the creation of Wales' women's national team**\
+`The Athletic went to the town of Aberystwyth in search of a letter which was integral to the creation of Wales' women's national team`\
+https://nytimes.com/athletic/6465022/2025/07/09/wales-euro-2025-letter-aberystywth/
+
 **Wednesday Briefing: Rare Earths, Made in Europe?**\
 `Plus, Sweden’s secret to well-being.`\
 https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-gri
 **Confessions of a cricket groundsman: The secrets of the sport’s most thankless task**\
 `John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
 https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
-
-**Why are Forest set to sell Anthony Elanga?**\
-`Elanga was one of Forest's best players last season so why, with European football on the agenda, are Forest set to sell him?`\
-https://nytimes.com/athletic/6479128/2025/07/09/why-are-nottingham-forest-set-to-sell-anthony-elanga/
-
-**Experienced, superb shot stopper and good in the air: Why Palace have signed Walter Benitez**\
-`The Argentina international is a solid goalkeeper and should prove an excellent back-up to Dean Henderson`\
-https://nytimes.com/athletic/6462444/2025/07/09/why-crystal-palace-signed-walter-benitez/
 

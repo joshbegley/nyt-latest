@@ -1,3 +1,11 @@
+**Uruguay resumes training for Copa América after players protest conditions**\
+`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**A three-day search for the letter that led to the creation of Wales' women's national team**\
+`The Athletic went to the town of Aberystwyth in search of a letter which was integral to the creation of Wales' women's national team`\
+https://nytimes.com/athletic/6465022/2025/07/09/wales-euro-2025-letter-aberystywth/
+
 **Wednesday Briefing: Rare Earths, Made in Europe?**\
 `Plus, Sweden’s secret to well-being.`\
 https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
