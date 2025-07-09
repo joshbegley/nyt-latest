@@ -1,4 +1,8 @@
-**Trump Says He’s Making America More Competitive. Is he?**\
+**Parsing the Dodgers' six-game losing streak, their worst since 2019**\
+`Very little has gone well for the Dodgers over the last week, leading to something that hasn’t been seen in years.`\
+https://nytimes.com/athletic/6484279/2025/07/09/dodgers-losing-streak-worst-since-2019/
+
+**Trump Says He’s Making America More Competitive. Is He?**\
 `Experts fear that the president’s economic policies could increase costs and stifle innovation.`\
 https://nytimes.com/2025/07/09/us/politics/trump-tariffs-taxes-economy.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
 **Tensions Escalate in San Francisco Over Immigration Enforcement**\
 `Videos captured a scuffle between protesters and immigration agents outside a courthouse. No injuries were immediately reported, the police said.`\
 https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
-
-**Houthis Took Sailors Hostage After Attacking Ship, U.S. Says**\
-`The Yemeni militia, backed by Iran, said it had sunk a Liberian-flagged cargo ship in the Red Sea. Liberia said the attack killed two crew members.`\
-https://nytimes.com/2025/07/09/world/middleeast/houthis-red-sea-hostages.html
 
