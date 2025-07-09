@@ -1,3 +1,7 @@
+**Word of the Day: humility**\
+`This word has appeared in 553 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/09/learning/word-of-the-day-humility.html
+
 **How Joao Pedro made a 'dream' start at Chelsea - and not just with his goals**\
 `The club's new signing scored twice against Fluminense but there was much more to admire about his game on Tuesday`\
 https://nytimes.com/athletic/6482005/2025/07/09/chelsea-joao-pedro-club-world-cup/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-
 **Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
 `Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
 https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
-
-**How Liverpool can help nurse players through their grief**\
-`Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
-https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/
 
