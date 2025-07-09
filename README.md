@@ -1,3 +1,7 @@
+**Experienced, superb shot stopper and good in the air: Why Palace have signed Walter Benitez**\
+`The Argentina international is a solid goalkeeper and should prove an excellent back-up to Dean Henderson`\
+https://nytimes.com/athletic/6462444/2025/07/09/why-crystal-palace-signed-walter-benitez/
+
 **How Real Madrid conquered the United States: Galacticos, trophies and... the Goal movie?**\
 `Madrid have been comfortably the biggest draw at the Club World Cup and their huge popularity in the States has been decades in the making`\
 https://nytimes.com/athletic/6480919/2025/07/09/real-madrid-united-states-support-fans/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6471141/2025/07/09/alex-iwobi-arsenal-fulham-everto
 **Luka Modric, Gareth Bale and Deadpool: This is the changing face of Welsh football**\
 `The landscape is shifting in football in Wales, with celebrity owners sprinkling their stardust as the natural balance of power changes`\
 https://nytimes.com/athletic/6456165/2025/07/09/bale-modric-wrexham-swansea-cardiff-wales/
-
-**Wildfires Add to Syriaâs Scars**\
-`The country is experiencing its worst drought in decades, which has set the conditions for the blazes to scorch an area the size of Washington, D.C.`\
-https://nytimes.com/2025/07/09/world/middleeast/syria-wildfires-photos-videos.html
 
