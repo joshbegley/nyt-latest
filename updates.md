@@ -1,3 +1,11 @@
+**Attack on Ukraine Comes as Trump Castigates Putin**\
+`The number of Russian drones and missiles in the barrage set a single-night record and underscored Ukraine’s need for weapons.`\
+https://nytimes.com/2025/07/09/world/europe/russia-ukraine-attack-weapons-trump-putin.html
+
+**At Least 173 People Are Still Missing After Texas Floods**\
+`Officials said the search for remains would continue until all the victims have been accounted for. In the hardest-hit county, no survivors have been found since Friday.`\
+https://nytimes.com/2025/07/09/us/texas-floods-missing-search.html
+
 **At Least 173 People Remain Missing After Texas Floods**\
 `Officials said the search for remains would continue until all the victims have been accounted for. In the hardest-hit county, no survivors have been found since Friday.`\
 https://nytimes.com/2025/07/09/us/texas-floods-missing-search.html
