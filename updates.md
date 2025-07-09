@@ -1,3 +1,11 @@
+**Administration Takes Steps to Target 2 Officials Who Investigated Trump**\
+`It is unclear whether the moves will lead to charges, but they suggest that President Trump’s appointees intend to follow through on his campaign to exact retribution against his perceived enemies.`\
+https://nytimes.com/2025/07/09/us/politics/ratcliffe-brennan-cia.html
+
+**MLB to use Automated Ball-Strike system during All-Star Game**\
+`As was the case in spring training, teams will be given two challenges, with retention if their challenge is upheld.`\
+https://nytimes.com/athletic/6483715/2025/07/09/mlb-all-star-game-automated-ball-strike-system/
+
 **Dave Maloney named Rangers TV analyst, replaces retiring Joe Micheletti**\
 `Maloney will call games with play-by-play announcer Kenny Albert, who is also entering his first year working Rangers games full-time on TV.`\
 https://nytimes.com/athletic/6482964/2025/07/09/rangers-msg-network-tv-broadcast-analyst-dave-maloney/
