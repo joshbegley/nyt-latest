@@ -1,3 +1,11 @@
+**What happens when college football enters its own Moneyball era?**\
+`In this week's sports business cheat sheet, digging into Texas Tech, Ben Shelton and readers' favorite 21st century sports movies.`\
+https://nytimes.com/athletic/6483008/2025/07/09/texas-tech-christian-horner-ben-shelton-moneycall/
+
+**Mel Robbins Unpacks Her ‘Let Me’ Theory**\
+`The best-selling author and motivational podcast host Mel Robbins is known for her blunt advice and viral wisdom, including her “Let Me” theory, which she explains to the “Modern Love” host, Anna Martin.`\
+https://nytimes.com/video/podcasts/100000010273341/mel-robbins-unpacks-her-let-me-theory.html
+
 **Iga Swiatek reaches first Wimbledon semifinal with win over Liudmila Samsonova**\
 `The five-time Grand Slam champion reached her first Wimbledon semifinal with a controlled and ultimately comprehensive straight-sets win.`\
 https://nytimes.com/athletic/6483032/2025/07/09/tennis-wimbledon-swiatek-result-analysis-samsonova/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6475357/2025/07/09/shai-gilgeous-alexander-angel-re
 **How Chelsea's clever out-of-possession approach blunted Fluminense's attack**\
 `Enzo Maresca's side reached the Club World Cup final after their effective pressing in a 4-3-3 shape left their opponents with no answer`\
 https://nytimes.com/athletic/6482386/2025/07/09/how-chelseas-out-of-possession-approach-blunted-fluminenses-attack/
-
-**Danielle Deadwyler on Balancing Brutality and Family in ‘40 Acres’**\
-`The star plays a stoic matriarch raising a militant brood to protect their land and each other against cannibals in R.T. Thorne’s new horror indie.`\
-https://nytimes.com/2025/07/09/movies/danielle-deadwyler-40-acres.html
-
-**Fabio Fognini retires from tennis after 'perfect' Wimbledon farewell**\
-`The nine-time ATP Tour winner bowed out of his final Wimbledon after losing in five sets to Carlos Alcaraz in a "perfect" farewell`\
-https://nytimes.com/athletic/6482870/2025/07/09/fabio-fognini-retirement-2025/
 
