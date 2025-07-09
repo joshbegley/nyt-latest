@@ -1,3 +1,7 @@
+**Recipients of a U.S. Climate Science Fellowship Are Put on Unpaid Leave**\
+`Researchers in the NOAA program were furloughed because funds to pay them were not available.`\
+https://nytimes.com/2025/07/09/climate/noaa-fellows-unpaid-leave.html
+
 **Nine Canucks offseason thoughts: The risk in Demko's extension, and what comes next?**\
 `Has this quietly been a summer that marks a new direction for the Canucks? It certainly feels that way.`\
 https://nytimes.com/athletic/6481473/2025/07/09/canucks-thatcher-demko-brock-boeser-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/07/09/us/texas-floods-victims.html
 **A New Barbie Wears Blue Polka-Dots, and a Glucose Monitor**\
 `The doll pairs a blue polka-dot outfit with an insulin pump and continuous glucose monitor.`\
 https://nytimes.com/2025/07/09/business/barbie-diabetes-doll-type-1.html
-
-**Trump to Discuss Economic Investment With African Leaders at White House Meeting**\
-`The administration is aiming to strike deals to expand the United States’ access to critical minerals and to counter China’s rising influence in Africa.`\
-https://nytimes.com/2025/07/09/us/politics/trump-african-leaders-china.html
 
