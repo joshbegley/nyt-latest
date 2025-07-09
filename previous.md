@@ -1,3 +1,27 @@
+**Christian Horner's surprising firing by Red Bull F1 raises many questions**\
+`As shocking as Christian Horner’s exit is, the biggest question it has raised is: what does this mean for Max Verstappen's future?`\
+https://nytimes.com/athletic/6482773/2025/07/09/f1-red-bull-christian-horner-fired-sacked/
+
+**Trump Administration Sues California Over Transgender Athletes**\
+`The Justice Department filed a lawsuit against two California agencies, accusing them of violating Title IX by allowing transgender athletes to compete in girls’ sports.`\
+https://nytimes.com/2025/07/09/us/politics/trump-administration-sues-california-over-transgender-athletes.html
+
+**Joao Felix, Chilwell among Chelsea fringe players to report back for training**\
+`The number of players who attended the club’s training base on Monday was well into double figures.`\
+https://nytimes.com/athletic/6481247/2025/07/09/chelsea-preseason-training-cobham/
+
+**Leeds looking at other midfield options with Longstaff deal in doubt**\
+`Leeds had made a third bid for the 27-year-old on July 7`\
+https://nytimes.com/athletic/6483355/2025/07/09/leeds-sean-longstaff-transfer-doubt/
+
+**Tiny Love Stories: ‘I Was Less Than Half Her Age’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/07/09/style/tiny-modern-love-stories-i-was-less-than-half-her-age.html
+
+**Microsoft Pledges $4 Billion Toward A.I. Education**\
+`Microsoft said it would provide cash, artificial intelligence tools and computing services to schools, colleges and nonprofit groups.`\
+https://nytimes.com/2025/07/09/business/microsoft-ai-education.html
+
 **Europe Waits, and Hopes, for a Trade Deal**\
 `The European Union is still hoping for a rough outline of a deal, even after President Trump talked about sending the bloc a letter outlining tariffs that would be imposed Aug. 1.`\
 https://nytimes.com/2025/07/09/us/politics/eu-trade-deal-trump-tariffs.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6478364/2025/07/09/yankees-live-qa-submit-questions
 **Recipients of a U.S. Climate Science Fellowship Are Put on Unpaid Leave**\
 `Researchers in the NOAA program were furloughed because funds to pay them were not available.`\
 https://nytimes.com/2025/07/09/climate/noaa-fellows-unpaid-leave.html
-
-**Nine Canucks offseason thoughts: The risk in Demko's extension, and what comes next?**\
-`Has this quietly been a summer that marks a new direction for the Canucks? It certainly feels that way.`\
-https://nytimes.com/athletic/6481473/2025/07/09/canucks-thatcher-demko-brock-boeser-contract/
-
-**2026 World Cup set to be the most polluting ever**\
-`The 48-team tournament will produce around nine million tons of greenhouse gas emissions, according to a report.`\
-https://nytimes.com/athletic/6483216/2025/07/09/we-couldnt-be-more-worried-2026-world-cup-will-be-the-most-polluting-ever-say-scientists/
-
-**Mets reliever Brooks Raley bet on himself after surgery — now he's almost back**\
-`Mets reliever Brooks Raley, currently on a rehab assignment, said his goal is to work his way back into a high-leverage role with New York.`\
-https://nytimes.com/athletic/6482892/2025/07/09/mets-reliever-brooks-raley-bet-on-himself-after-surgery-now-hes-almost-back/
-
-**My In-Laws Are Hoarders. Should I Secretly Call the Authorities?**\
-`They refuse to get help to clean it out or even discuss it.`\
-https://nytimes.com/2025/07/09/magazine/hoarders-in-laws-ethics.html
-
-**Tottenham reach agreement for Kudus**\
-`A medical is scheduled to take place on Thursday ahead of Kudus signing a six-year contract at the north London club.`\
-https://nytimes.com/athletic/6475432/2025/07/09/tottenham-transfers-mohammed-kudus-west-ham/
-
-**Elon Musk Consulted Curtis Yarvin, Right-Wing Thinker, on Third Party**\
-`The two men spoke about Mr. Musk’s push to create the America Party before the midterm elections. Mr. Yarvin has expressed support for a monarchy, along with provocative ideas about race.`\
-https://nytimes.com/2025/07/09/us/politics/elon-musk-curtis-yarvin-third-party.html
 
