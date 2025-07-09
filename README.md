@@ -1,3 +1,7 @@
+**Europe Waits, and Hopes, for a Trade Deal**\
+`The European Union is still hoping for a rough outline of a deal, even after President Trump talked about sending the bloc a letter outlining tariffs that would be imposed Aug. 1.`\
+https://nytimes.com/2025/07/09/us/politics/eu-trade-deal-trump-tariffs.html
+
 **Live Q&A with Yankees writer Brendan Kuty on Wednesday**\
 `Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
 https://nytimes.com/athletic/6478364/2025/07/09/yankees-live-qa-submit-questions/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6475432/2025/07/09/tottenham-transfers-mohammed-kud
 **Elon Musk Consulted Curtis Yarvin, Right-Wing Thinker, on Third Party**\
 `The two men spoke about Mr. Musk’s push to create the America Party before the midterm elections. Mr. Yarvin has expressed support for a monarchy, along with provocative ideas about race.`\
 https://nytimes.com/2025/07/09/us/politics/elon-musk-curtis-yarvin-third-party.html
-
-**The Lives Lost to the Texas Floods**\
-`Eight-year-old girls at sleep-away camp, families crammed into recreational vehicles, local residents traveling to or from work. These are some of the victims of the July 4 floods.`\
-https://nytimes.com/interactive/2025/07/09/us/texas-floods-victims.html
 

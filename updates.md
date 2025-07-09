@@ -1,3 +1,7 @@
+**Live Q&A with Yankees writer Brendan Kuty on Wednesday**\
+`Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
+https://nytimes.com/athletic/6478364/2025/07/09/yankees-live-qa-submit-questions/
+
 **Recipients of a U.S. Climate Science Fellowship Are Put on Unpaid Leave**\
 `Researchers in the NOAA program were furloughed because funds to pay them were not available.`\
 https://nytimes.com/2025/07/09/climate/noaa-fellows-unpaid-leave.html
