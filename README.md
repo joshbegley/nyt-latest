@@ -1,3 +1,11 @@
+**143 Picture Prompts to Inspire Student Writing**\
+`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
+https://nytimes.com/2025/07/09/learning/143-picture-prompts-to-inspire-student-writing.html
+
+**Besiktas working on deal to sign free agent Walker-Peters**\
+`An agreement between the Turkish club and the 28-year-old is yet to be reached but talks are continuing.`\
+https://nytimes.com/athletic/6301499/2025/07/09/besiktas-walker-peters-transfer-news/
+
 **Israel Launches New Ground Operations in Lebanon Despite Truce**\
 `For months, Israel has conducted near-daily strikes against what it says are Hezbollah targets. Hezbollah has not responded militarily since a November truce.`\
 https://nytimes.com/2025/07/09/world/europe/israel-lebanon.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6481836/2025/07/09/anaheim-ducks-depth-chart-2025/
 **Pregnancy Is Going to Be Even More Dangerous in America**\
 `The most vulnerable mothers have the most to lose from Medicaid cuts.`\
 https://nytimes.com/2025/07/09/opinion/medicaid-pregnancy-danger.html
-
-**If I Don’t Invite My Difficult Sister to Visit, Can I Invite the One Who’s Less Trouble?**\
-`A reader doesn’t have the energy to host a sister whose young children caused a ruckus during their last visit. Does that mean she can’t see the other?`\
-https://nytimes.com/2025/07/09/style/hosting-family-members.html
-
-**Canada Thinks Its Trade Talks With Trump Are Unique. Does That Matter?**\
-`Tariff negotiations between the two top trading partners are on a different track from those the U.S. is pursuing with other nations. But Canada may not get a better outcome.`\
-https://nytimes.com/2025/07/09/world/canada/tariffs-trump-trade-us.html
 
