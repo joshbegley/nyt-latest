@@ -1,3 +1,7 @@
+**A diary of confusion: Mets' wild win complicates trade deadline picture**\
+`The Mets showcased why they need to add significant pieces and why they don't require any of those things in their 7-6 win over the Orioles.`\
+https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-deadline/
+
 **Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
 `Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
 https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
