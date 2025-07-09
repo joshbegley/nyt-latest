@@ -1,3 +1,7 @@
+**Lawmakers in Liberal States Want ICE Agents to Show Their Faces**\
+`Elected officials in New York and California are trying to upend President Trump’s deportation campaign by banning law enforcement officers from wearing masks in public.`\
+https://nytimes.com/2025/07/09/nyregion/ice-agents-masks-lawmakers-ban.html
+
 **After Rafael Devers deal, Giants focus on pitching depth at trade deadline**\
 `"Look, I don't think you can ever have enough pitching," Posey said. "So we'll just keep our options open for what might present itself."`\
 https://nytimes.com/athletic/6484397/2025/07/09/buster-posey-giants-trade-deadline/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/world/americas/mexico-izaguirre-ranch-cartel.html
 **Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
 `It’s the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
 https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
-
-**Women's Euro 2025: Who will advance out of the group stage?**\
-`Here's where things stand at Euro 2025 after two rounds of group stage matches`\
-https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
 
