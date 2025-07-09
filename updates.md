@@ -1,3 +1,15 @@
+**Philadelphia Public Workers Reach Deal to End Strike**\
+`The city’s largest public sector union and the mayor reached a tentative deal, ending a work stoppage that led to piles of trash on the streets.`\
+https://nytimes.com/2025/07/09/world/americas/philadelphia-strike-trash.html
+
+**The New York Times International Edition in Print for Thursday, July 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/09/todays-new-york-times-international-edition
+
+**After Decades of Hostility, Israeli-Syrian Relations Begin to Thaw**\
+`The longtime enemies have opened contacts, reflecting a power shift across a Middle East in which they have newfound common ground: antipathy for Iran.`\
+https://nytimes.com/2025/07/09/world/middleeast/syria-israel-talks.html
+
 **In a server's paradise at Wimbledon, the return is king**\
 `Grass is more hospitable to servers than any other surface. Winning on it requires being able to get those serves back with interest.`\
 https://nytimes.com/athletic/6476716/2025/07/09/tennis-serve-return-most-important-shot-grass-wimbledon/

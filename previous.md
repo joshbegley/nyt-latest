@@ -1,3 +1,15 @@
+**Philadelphia Public Workers Reach Deal to End Strike**\
+`The city’s largest public sector union and the mayor reached a tentative deal, ending a work stoppage that led to piles of trash on the streets.`\
+https://nytimes.com/2025/07/09/world/americas/philadelphia-strike-trash.html
+
+**The New York Times International Edition in Print for Thursday, July 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/09/todays-new-york-times-international-edition
+
+**After Decades of Hostility, Israeli-Syrian Relations Begin to Thaw**\
+`The longtime enemies have opened contacts, reflecting a power shift across a Middle East in which they have newfound common ground: antipathy for Iran.`\
+https://nytimes.com/2025/07/09/world/middleeast/syria-israel-talks.html
+
 **In a server's paradise at Wimbledon, the return is king**\
 `Grass is more hospitable to servers than any other surface. Winning on it requires being able to get those serves back with interest.`\
 https://nytimes.com/athletic/6476716/2025/07/09/tennis-serve-return-most-important-shot-grass-wimbledon/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/09/us/politics/trump-tariffs-trade-policy.html
 **These Americans Went Looking for a Romanticized Britain. They Found a Different Story.**\
 `Like the lead character of “Too Much,” they moved across the Atlantic with visions of Jane Austen and Merchant Ivory. The reality was a little less dreamy.`\
 https://nytimes.com/2025/07/09/style/americans-england-romance-tv-movies.html
-
-**Biden’s Chief Economist: The Chart That Convinced Me Our Debt Is a Serious Problem**\
-`I’m no longer sanguine about the threats posed by the nation’s deficits.`\
-https://nytimes.com/2025/07/09/opinion/debt-deficit-economy-shock.html
-
-**A Primer on Primaries for New Yorkers**\
-`Should they be open or closed? In even years or odd? The mayor’s charter revision panel is considering shaking up the city’s voting system.`\
-https://nytimes.com/2025/07/09/nyregion/a-primer-on-primaries-for-new-yorkers.html
-
-**Let Mel Robbins Share Her 5 Tips for a Healthy Relationship**\
-`The author and podcast host reveals how to let go of control.`\
-https://nytimes.com/2025/07/09/podcasts/mel-robbins-relationship-tips-let-them-theory.html
 
