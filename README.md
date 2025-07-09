@@ -1,3 +1,7 @@
+**Many Moons**\
+`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
+https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
+
 **Real Madrid's Club World Cup semi-final plans disrupted by flight delay**\
 `The Spanish side had its travel plans disrupted by inclement weather`\
 https://nytimes.com/athletic/6481872/2025/07/08/real-madrid-flight-delay-club-world-cup-semifinal/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/08/climate/texas-flood-fema-trump.html
 **After Mike Rizzo, Davey Martinez firings, Nationals interim GM eyes major changes**\
 `"The fans are frustrated. We're all frustrated," DeBartolo said. "We have a lot of interesting, exciting young pieces to build on."`\
 https://nytimes.com/athletic/6481562/2025/07/08/mike-debartolo-nationals-interim-general-manager/
-
-**Elon Musk’s Grok Chatbot Shares Antisemitic Posts on X**\
-`The artificial intelligence chatbot, which has a dedicated account on X, praised Hitler after fielding a query about a user’s comments on the Texas flood.`\
-https://nytimes.com/2025/07/08/technology/grok-antisemitism-ai-x.html
 
