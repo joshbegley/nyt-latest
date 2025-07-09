@@ -1,3 +1,15 @@
+**Putin, Undeterred by Trump’s Words, Escalates His War Against Ukraine**\
+`The Russian leader is convinced that Moscow’s battlefield superiority is growing, and that Ukraine’s defenses may collapse in the coming months, according to people close to the Kremlin.`\
+https://nytimes.com/2025/07/09/world/europe/russia-ukraine-putin-trump.html
+
+**Did the Texas Flood Warnings Come in Time?**\
+`When deadly floods swept through Texas, the National Weather Service issued a series of warnings that should have automatically triggered alerts to be sent to cellphones as the Guadalupe River began to rise.`\
+https://nytimes.com/video/us/100000010273289/tracking-texas-flood-warning-system.html
+
+**No Fashion Show Invite? No Problem.**\
+`Denied a seat at Jonathan Anderson’s Dior debut, a fashion critic invited all of Paris to watch it with him at a bar. Hundreds took him up on the offer.`\
+https://nytimes.com/2025/07/09/style/dior-watch-party-paris-elias-medini-lyas.html
+
 **Roma working on deal to sign Brighton's Evan Ferguson on loan**\
 `While no agreement has been reached, Roma are hopeful of landing the 20-year-old Republic of Ireland international.`\
 https://nytimes.com/athletic/6482727/2025/07/09/roma-loan-deal-brighton-evan-ferguson/
