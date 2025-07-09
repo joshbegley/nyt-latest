@@ -1,3 +1,19 @@
+**Uruguay resumes training for Copa América after players protest conditions**\
+`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**Wednesday Briefing: Rare Earths, Made in Europe?**\
+`Plus, Sweden’s secret to well-being.`\
+https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
+
+**Bibi’s Empty Victory Lap**\
+`The 12-day war is over. But there’s no peace in sight.`\
+https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
+
+**Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
+`Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
+https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
+
 **Uruguay resumes training for Copa AmÃ©rica after players protest conditions**\
 `The national teamâs players union told The Athletic that the national team's protest was a result of âsome differences in negotiations."`\
 https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
