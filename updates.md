@@ -1,3 +1,7 @@
+**Mayhem at the River Inn Crossing: A Dark-of-Night Flood Escape**\
+`Along the Guadalupe River, a 60-room inn and nearby homes were quickly filling with water. Confusion, desperation and heroism ensued.`\
+https://nytimes.com/2025/07/09/us/texas-floods-river-inn.html
+
 **Christian Horner's surprising firing by Red Bull F1 raises many questions**\
 `As shocking as Christian Horner’s exit is, the biggest question it has raised is: what does this mean for Max Verstappen's future?`\
 https://nytimes.com/athletic/6482773/2025/07/09/f1-red-bull-christian-horner-fired-sacked/
