@@ -1,3 +1,7 @@
+**Bucs All-Pro LT Wirfs likely to miss start of season after knee surgery**\
+`Wirfs dealt with a knee injury last season, which caused him to miss one regular-season game.`\
+https://nytimes.com/athletic/6483186/2025/07/09/tristan-wirfs-knee-surgery-buccaneers/
+
 **Submit questions for Jeff Zrebiec's Ravens mailbag**\
 `Zrebiec will consider your questions for his upcoming mailbag with Baltimore's training camp set to begin. `\
 https://nytimes.com/athletic/6483242/2025/07/09/ravens-mailbag-2025-training-camp/

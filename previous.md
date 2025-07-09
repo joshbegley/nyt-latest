@@ -1,3 +1,7 @@
+**Bucs All-Pro LT Wirfs likely to miss start of season after knee surgery**\
+`Wirfs dealt with a knee injury last season, which caused him to miss one regular-season game.`\
+https://nytimes.com/athletic/6483186/2025/07/09/tristan-wirfs-knee-surgery-buccaneers/
+
 **Submit questions for Jeff Zrebiec's Ravens mailbag**\
 `Zrebiec will consider your questions for his upcoming mailbag with Baltimore's training camp set to begin. `\
 https://nytimes.com/athletic/6483242/2025/07/09/ravens-mailbag-2025-training-camp/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6480554/2025/07/09/thierno-barry-everton-transfer-v
 **BYU's AJ Dybantsa signs exclusive deal with Fanatics that will extend beyond college**\
 `Dybantsa explains how he's preparing for the NBA and who he's modeled his game after`\
 https://nytimes.com/athletic/6482180/2025/07/09/aj-dybantsa-fanatics-byu/
-
-**A.I. Is Making Sure You Pay for That Ding on Your Rental Car**\
-`Hertz and other agencies are increasingly relying on scanners that use high-res imaging and A.I. to flag even tiny blemishes, and customers aren’t happy.`\
-https://nytimes.com/2025/07/09/travel/rental-car-ai-scanner-hertz.html
 
