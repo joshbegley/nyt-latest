@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6483697/2025/07/09/lyon-crystal-palace-europa-leagu
 `The overnight strikes were mostly in central and western Ukraine, where the attacks seemed to target military sites.`\
 https://nytimes.com/video/world/europe/100000010275972/ukraine-crews-extinguish-russian-attack.html
 
-**MLB to use Automated Ball-Strike system during All-Star Game: Sources**\
+**MLB to use Automated Ball-Strike system during All-Star Game**\
 `As was the case in spring training, teams will be given two challenges, with retention if their challenge is upheld.`\
 https://nytimes.com/athletic/6483715/2025/07/09/mlb-all-star-game-automated-ball-strike-system/
 

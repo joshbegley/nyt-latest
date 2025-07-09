@@ -1,3 +1,15 @@
+**Dave Maloney named Rangers TV analyst, replaces retiring Joe Micheletti**\
+`Maloney will call games with play-by-play announcer Kenny Albert, who is also entering his first year working Rangers games full-time on TV.`\
+https://nytimes.com/athletic/6482964/2025/07/09/rangers-msg-network-tv-broadcast-analyst-dave-maloney/
+
+**We Can Adapt and Prepare for Floods. But Will We?**\
+`The flooding in Texas reveals just how unprepared we are.`\
+https://nytimes.com/2025/07/09/opinion/texas-floods-adaptation.html
+
+**The Surprising Presence in ‘The Gospel at Colonus’**\
+`In this revival at Little Island, the singer and pastor Kim Burrell shares the stage with a team of queer artists.`\
+https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
+
 **The Surprising Presence in âThe Gospel at Colonusâ**\
 `In this revival at Little Island, the singer and pastor Kim Burrell shares the stage with a team of queer artists.`\
 https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
