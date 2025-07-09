@@ -1,3 +1,11 @@
+**Man Utd searching for head of senior recruitment as part of overhaul**\
+`United will also have regional heads of emerging talent across the main talent pools globally.`\
+https://nytimes.com/athletic/6483255/2025/07/09/man-utd-recruitment-transfers/
+
+**Ramon Sosa leaves Forest for Brazilian club Palmeiras**\
+`The Paraguay international winger joined Forest in August 2024 in an £11million move from Argentine side CA Talleres.`\
+https://nytimes.com/athletic/6483497/2025/07/09/ramon-sosa-transfer-nottingham-forest-brazilian-club-palmeiras/
+
 **Mayhem at the River Inn Crossing: A Dark-of-Night Flood Escape**\
 `Along the Guadalupe River, a 60-room inn and nearby homes were quickly filling with water. Confusion, desperation and heroism ensued.`\
 https://nytimes.com/2025/07/09/us/texas-floods-river-inn.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/style/tiny-modern-love-stories-i-was-less-than-ha
 **Microsoft Pledges $4 Billion Toward A.I. Education**\
 `Microsoft said it would provide cash, artificial intelligence tools and computing services to schools, colleges and nonprofit groups.`\
 https://nytimes.com/2025/07/09/business/microsoft-ai-education.html
-
-**Europe Waits, and Hopes, for a Trade Deal**\
-`The European Union is still hoping for a rough outline of a deal, even after President Trump talked about sending the bloc a letter outlining tariffs that would be imposed Aug. 1.`\
-https://nytimes.com/2025/07/09/us/politics/eu-trade-deal-trump-tariffs.html
-
-**Live Q&A with Yankees writer Brendan Kuty on Wednesday**\
-`Yankees beat writer Brendan Kuty will answer subscribers' questions during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
-https://nytimes.com/athletic/6478364/2025/07/09/yankees-live-qa-submit-questions/
 

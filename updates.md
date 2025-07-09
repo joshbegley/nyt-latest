@@ -1,3 +1,11 @@
+**Man Utd searching for head of senior recruitment as part of overhaul**\
+`United will also have regional heads of emerging talent across the main talent pools globally.`\
+https://nytimes.com/athletic/6483255/2025/07/09/man-utd-recruitment-transfers/
+
+**Ramon Sosa leaves Forest for Brazilian club Palmeiras**\
+`The Paraguay international winger joined Forest in August 2024 in an £11million move from Argentine side CA Talleres.`\
+https://nytimes.com/athletic/6483497/2025/07/09/ramon-sosa-transfer-nottingham-forest-brazilian-club-palmeiras/
+
 **Mayhem at the River Inn Crossing: A Dark-of-Night Flood Escape**\
 `Along the Guadalupe River, a 60-room inn and nearby homes were quickly filling with water. Confusion, desperation and heroism ensued.`\
 https://nytimes.com/2025/07/09/us/texas-floods-river-inn.html
