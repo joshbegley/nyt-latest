@@ -1,3 +1,11 @@
+**Trash Mounts in Philadelphia as City Workers Strike**\
+`Garbage collection was halted in the nation’s sixth most populous city as a strike by the city’s largest public sector union entered its second week.`\
+https://nytimes.com/video/us/100000010274804/trash-philadelphia-strike.html
+
+**New Mexico House Swept Away in Floodwaters**\
+`Heavy rain and severe flooding hit Ruidoso, N.M. on Tuesday, prompting rescues.`\
+https://nytimes.com/video/us/100000010274796/flooding-ruidoso-new-mexico.html
+
 **Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
 `It's Suarez's second consecutive All-Star selection and the first for Abbott and Caminero.`\
 https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
