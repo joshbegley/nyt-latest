@@ -23,7 +23,7 @@ https://nytimes.com/video/us/100000010273048/texas-flooding-search-mexican-firef
 https://nytimes.com/2025/07/09/us/massachusetts-baptist-archive-slavery-abolition.html
 
 **PSG 4 Real Madrid 0: European champions humiliate Mbappe and Alonso to reach Club World Cup final**\
-`Two dreadful Madrid mistakes gifted PSG early goals but Luis Enrique's side were dominant in New Jersey as they set up a final with Chelse`\
+`Two dreadful Madrid mistakes gifted PSG early goals but Luis Enrique's side were dominant in New Jersey as they set up a final with Chelsea`\
 https://nytimes.com/athletic/6477516/2025/07/09/psg-club-world-cup-final-real-madrid-dembele-mbappe/
 
 **Sergio Ramos, James Rodriguez headline Liga MX All-Stars to face MLS**\
