@@ -1,3 +1,31 @@
+**With Taxes and Tariffs in Place, Trump Takes Reins of U.S. Economy**\
+`President Trump has achieved much of his agenda, leaving the fate of the economy squarely in his hands.`\
+https://nytimes.com/2025/07/09/us/politics/trump-bill-tariffs-economy.html
+
+**How One Overdose Unraveled an Empire of Heroin**\
+`A man’s death after using “Flow” in a small Vermont city exposed a drug operation that spanned continents and sent a New York prosecutor on a heartbreaking journey.`\
+https://nytimes.com/2025/07/09/nyregion/heroin-flow-rutland-vermont-bronx.html
+
+**Locomotive 4207, on the Rails for 60 Years and Still Hauling Commuters**\
+`New Jersey Transit relies on more than 20 old-school diesel engines, including the United States’ oldest locomotive in regular passenger service.`\
+https://nytimes.com/2025/07/09/nyregion/new-jersey-transit-old-train.html
+
+**PSG vs Real Madrid Club World Cup odds, prediction: Which power will advance to final?**\
+`PSG and Real Madrid is a meeting worthy of a final, but the two powers meet in a semi-final of the Club World Cup.`\
+https://nytimes.com/athletic/6480925/2025/07/09/psg-real-madrid-club-world-cup-odds-prediction/
+
+**What It Means to Lead an Investigative Team of Many**\
+`How do six reporters share an article? Their editor explains.`\
+https://nytimes.com/2025/07/09/insider/investigative-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/09/crosswords/spelling-bee-forum.html
+
+**Over 200 Children Hospitalized in China After School Serves Lead-Tainted Food**\
+`The kindergarten’s cooks used inedible pigments to decorate buns and cakes, the authorities said. Eight school officials and employees were detained.`\
+https://nytimes.com/2025/07/09/world/asia/china-children-lead-poisoning.html
+
 **Guatemala Closes Schools in Capital After Earthquakes**\
 `A 5.7-magnitude earthquake and its aftershocks near Guatemala City led to landslides that were reported to have killed at least two people.`\
 https://nytimes.com/2025/07/09/world/americas/guatemala-earthquake-landslide.html
@@ -5,32 +33,4 @@ https://nytimes.com/2025/07/09/world/americas/guatemala-earthquake-landslide.htm
 **Ronny Chieng on Trump’s Nobel Nomination: Consider the Source**\
 `An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like “a Husband of the Year nomination from O.J. Simpson,” the “Daily Show” host said.`\
 https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
-
-**Word of the Day: humility**\
-`This word has appeared in 553 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/09/learning/word-of-the-day-humility.html
-
-**How Joao Pedro made a 'dream' start at Chelsea - and not just with his goals**\
-`The club's new signing scored twice against Fluminense but there was much more to admire about his game on Tuesday`\
-https://nytimes.com/athletic/6482005/2025/07/09/chelsea-joao-pedro-club-world-cup/
-
-**Uruguay resumes training for Copa América after players protest conditions**\
-`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
-https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
-
-**A three-day search for the letter that led to the creation of Wales' women's national team**\
-`The Athletic went to the town of Aberystwyth in search of a letter which was integral to the creation of Wales' women's national team`\
-https://nytimes.com/athletic/6465022/2025/07/09/wales-euro-2025-letter-aberystywth/
-
-**Wednesday Briefing: Rare Earths, Made in Europe?**\
-`Plus, Sweden’s secret to well-being.`\
-https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
-
-**Bibi’s Empty Victory Lap**\
-`The 12-day war is over. But there’s no peace in sight.`\
-https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
-
-**The New York Times in Print for Wednesday, July 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/09/todays-new-york-times
 
