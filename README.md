@@ -1,4 +1,4 @@
-**Man Uutd hope new stadium will host 2035 World Cup final, aim to finish project in 5 to 6 years**\
+**Man Utd hope new stadium will host 2035 World Cup final, aim to finish project in 5 to 6 years**\
 `United announced plans in March to build a new 100,000 capacity stadium, replacing their Old Trafford home.`\
 https://nytimes.com/athletic/6483786/2025/07/09/manchester-united-new-stadium-world-cup/
 
@@ -12,7 +12,7 @@ https://nytimes.com/2025/07/09/world/americas/brazil-trump-bolsonaro-lula-coup-t
 
 **Head of S.E.C.’s Crypto Task Force Says ‘Tokenized’ Stocks Are Securities**\
 `Hester M. Peirce said in a statement Wednesday that digital versions of stocks are still subject to federal securities laws.`\
-https://nytimes.com/2025/07/09/business/sec-crypto-ttokenized-securities.html
+https://nytimes.com/2025/07/09/business/sec-crypto-tokenized-securities.html
 
 **Why Forecasting Thunderstorms Is Still So Hard**\
 `Even with advances in technology, it’s difficult to pinpoint exactly where and when some of the most severe weather will occur until just before it happens.`\
