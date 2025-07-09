@@ -1,3 +1,7 @@
+**Isaac Paredes, Zach McKinstry join AL's All-Star roster, replacing José Ramírez, Jeremy Peña**\
+`Ramírez will miss the All-Star Game to recover from what has been a painful first half, while Paredes gets his second All-Star nod.`\
+https://nytimes.com/athletic/6484163/2025/07/09/mlb-all-star-isaac-paredes-jose-ramirez/
+
 **Houthis Took Sailors Hostage After Attacking Ship, U.S. Says**\
 `The Yemeni militia, backed by Iran, said it had sunk a Liberian-flagged cargo ship in the Red Sea. Liberia said the attack killed two crew members.`\
 https://nytimes.com/2025/07/09/world/middleeast/houthis-red-sea-hostages.html

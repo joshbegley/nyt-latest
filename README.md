@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-r
 https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
 
 **Boy, 13, Started California Wildfire With Illegal Fireworks, Police Say**\
-`The Rancho, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
+`The Rancho fire, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
 https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
 
 **Isaac Paredes, Zach McKinstry join AL's All-Star roster, replacing José Ramírez, Jeremy Peña**\
