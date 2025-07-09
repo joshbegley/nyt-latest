@@ -1,3 +1,11 @@
+**Zohran Mamdani Expands Campaign Team, Hiring Veteran Democrat**\
+`Mr. Mamdani, a state assemblyman and the Democratic nominee for mayor of New York City, is taking on a small handful of more experienced campaign hands.`\
+https://nytimes.com/2025/07/09/nyregion/mamdani-communications-jeffrey-lerner.html
+
+**Deion Sanders wants a salary cap for college football**\
+`Colorado will open up the season at home against Georgia Tech August 29th.`\
+https://nytimes.com/athletic/6484203/2025/07/09/deion-sanders-salary-cap-college-football/
+
 **Putin Is Undeterred by Trump’s Public Anger**\
 `Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
 **Boy, 13, Started California Wildfire With Illegal Fireworks, Police Say**\
 `The Rancho fire, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
 https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
-
-**Isaac Paredes, Zach McKinstry join AL's All-Star roster, replacing José Ramírez, Jeremy Peña**\
-`Ramírez will miss the All-Star Game to recover from what has been a painful first half, while Paredes gets his second All-Star nod.`\
-https://nytimes.com/athletic/6484163/2025/07/09/mlb-all-star-isaac-paredes-jose-ramirez/
-
-**2025 Club World Cup final: All you need to know**\
-`Chelsea will take on PSG in Sunday's final.`\
-https://nytimes.com/athletic/6483230/2025/07/09/club-world-cup-final-chelsea-psg/
 
