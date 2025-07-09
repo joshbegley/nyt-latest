@@ -1,3 +1,7 @@
+**Maine Paddleboarder’s Death Is Investigated as a Homicide, Police Say**\
+`Sunshine Stewart, 48, disappeared on the night of July 2 during an outing on Crawford Pond in Union, Maine. Her body was found hours later near an island preserve.`\
+https://nytimes.com/2025/07/09/us/maine-paddleboarder-homicide.html
+
 **Lawmakers in Liberal States Want ICE Agents to Show Their Faces**\
 `Elected officials in New York and California are trying to upend President Trump’s deportation campaign by banning law enforcement officers from wearing masks in public.`\
 https://nytimes.com/2025/07/09/nyregion/ice-agents-masks-lawmakers-ban.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
 `It will kick back in on Aug. 1 for people in the SAVE repayment program, whose payments have been on hold since last summer.`\
 https://nytimes.com/2025/07/09/your-money/student-loans-save-plan-interest.html
 
-**Ex-NBA guard Ben McLemore sentenced to prison in 2021 rape: Reports**\
+**Ex-NBA guard Ben McLemore sentenced to prison in 2021 rape**\
 `A jury found McLemore guilty of first-degree rape, first-degree unlawful sexual penetration and second-degree sexual abuse one week prior.`\
 https://nytimes.com/athletic/6484230/2025/07/09/ben-mclemore-prison-sentence-rape-conviction/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/us/politics/trump-tariffs-taxes-economy.html
 **Mexico Sentences 10 Men Arrested at Cartel Ranch to 140 Years Each in Prison**\
 `The men were convicted of killing one person and disappearing two others at a ranch in Jalisco state, where the authorities found piles of shoes, clothing and hundreds of personal items.`\
 https://nytimes.com/2025/07/09/world/americas/mexico-izaguirre-ranch-cartel.html
-
-**Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
-`It’s the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
-https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
 

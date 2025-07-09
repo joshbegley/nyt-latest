@@ -1,3 +1,7 @@
+**Lawmakers in Liberal States Want ICE Agents to Show Their Faces**\
+`Elected officials in New York and California are trying to upend President Trump’s deportation campaign by banning law enforcement officers from wearing masks in public.`\
+https://nytimes.com/2025/07/09/nyregion/ice-agents-masks-lawmakers-ban.html
+
 **After Rafael Devers deal, Giants focus on pitching depth at trade deadline**\
 `"Look, I don't think you can ever have enough pitching," Posey said. "So we'll just keep our options open for what might present itself."`\
 https://nytimes.com/athletic/6484397/2025/07/09/buster-posey-giants-trade-deadline/
