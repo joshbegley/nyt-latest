@@ -1,3 +1,7 @@
+**Putin Is Undeterred by Trump’s Public Anger**\
+`Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
+
 **Tensions Escalate in San Francisco Over Immigration Enforcement**\
 `Videos captured a scuffle between protesters and immigration agents outside a courthouse. No injuries were immediately reported, the police said.`\
 https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484163/2025/07/09/mlb-all-star-isaac-paredes-jose-
 **2025 Club World Cup final: All you need to know**\
 `Chelsea will take on PSG in Sunday's final.`\
 https://nytimes.com/athletic/6483230/2025/07/09/club-world-cup-final-chelsea-psg/
-
-**Read the document**\
-`The Supreme Court lifted a lower court’s ruling that had blocked mass layoffs in the federal work force.`\
-https://nytimes.com/interactive/2025/07/09/us/politics/scotus-layoffs-order.html
 

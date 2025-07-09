@@ -1,3 +1,7 @@
+**Putin Is Undeterred by Trump’s Public Anger**\
+`Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
+
 **Tensions Escalate in San Francisco Over Immigration Enforcement**\
 `Videos captured a scuffle between protesters and immigration agents outside a courthouse. No injuries were immediately reported, the police said.`\
 https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
