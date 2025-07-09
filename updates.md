@@ -1,3 +1,7 @@
+**Thune Says Russia Sanctions Vote Could Come as Soon as This Month**\
+`Momentum has been building behind a bipartisan bill to impose sanctions on countries that purchase Russian oil, as Republicans work behind the scenes to win President Trump’s support.`\
+https://nytimes.com/2025/07/09/us/politics/russia-sanctions-senate-thune-trump.html
+
 **The Briefing: England 4 Netherlands 0 - James' magic moment, Stanway's stunner and Lionesses back on track**\
 `Analysis of the major talking points as England beat Netherlands to breathe new life into their Euro 2025 campaign`\
 https://nytimes.com/athletic/6482567/2025/07/09/england-netherlands-euros-analysis-james/
