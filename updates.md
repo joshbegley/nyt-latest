@@ -1,3 +1,7 @@
+**Many Moons**\
+`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
+https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
+
 **Real Madrid's Club World Cup semi-final plans disrupted by flight delay**\
 `The Spanish side had its travel plans disrupted by inclement weather`\
 https://nytimes.com/athletic/6481872/2025/07/08/real-madrid-flight-delay-club-world-cup-semifinal/
