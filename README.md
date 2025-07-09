@@ -1,3 +1,7 @@
+**Arsenal make contact with Chelsea over Madueke deal**\
+`Personal terms are in place over a proposed five-year contract for Madueke at the north London side.`\
+https://nytimes.com/athletic/6475127/2025/07/09/noni-madueke-arsenal-transfer-chelsea/
+
 **Inside-the-park walk-off HR! Catcher Patrick Bailey makes history in Giants' wild win**\
 `Bailey is the first major-league catcher in 99 years to end a game with an inside-the-park home run. He entered the game hitting .188.`\
 https://nytimes.com/athletic/6482357/2025/07/09/patrick-bailey-walk-off-home-run-giants-phillies/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/world/europe/european-court-human-rights-russia-m
 **What will Gudmundsson bring to Leeds? And is he the right left-back for Farke?**\
 `Leeds have completed their fourth signing of the summer — does he provide what they need?`\
 https://nytimes.com/athletic/6482666/2025/07/09/gabriel-gudmundsson-leeds-analysis-transfer/
-
-**Gabriel Heinze is an 'inspiration' to Mikel Arteta - what will he bring to Arsenal's coaching team?**\
-`Arteta has gone back to an old team-mate for his Carlos Cuesta replacement - but how will the ex-Man United defender fare at the Emirates?`\
-https://nytimes.com/athletic/6482471/2025/07/09/gabriel-heinze-arsenal-mikel-arteta/
 
