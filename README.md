@@ -1,3 +1,11 @@
+**In a Good-Will Gesture, South Korea Returns Stranded Fishermen to the North**\
+`The fishermen’s boats had drifted into South Korean waters, officials said. The South’s new president has been trying to improve ties with North Korea.`\
+https://nytimes.com/2025/07/09/world/asia/south-korea-returns-north-korean-fishermen.html
+
+**Even in Absence, Armani Is in Control**\
+`Giorgio Armani had to miss his Privé show. But he still got the last word.`\
+https://nytimes.com/2025/07/09/style/armani-prive-couture.html
+
 **With Taxes and Tariffs in Place, Trump Takes Reins of U.S. Economy**\
 `President Trump has achieved much of his agenda, leaving the fate of the economy squarely in his hands.`\
 https://nytimes.com/2025/07/09/us/politics/trump-bill-tariffs-economy.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/crosswords/spelling-bee-forum.html
 **Over 200 Children Hospitalized in China After School Serves Lead-Tainted Food**\
 `The kindergarten’s cooks used inedible pigments to decorate buns and cakes, the authorities said. Eight school officials and employees were detained.`\
 https://nytimes.com/2025/07/09/world/asia/china-children-lead-poisoning.html
-
-**Guatemala Closes Schools in Capital After Earthquakes**\
-`A 5.7-magnitude earthquake and its aftershocks near Guatemala City led to landslides that were reported to have killed at least two people.`\
-https://nytimes.com/2025/07/09/world/americas/guatemala-earthquake-landslide.html
-
-**Ronny Chieng on Trump’s Nobel Nomination: Consider the Source**\
-`An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like “a Husband of the Year nomination from O.J. Simpson,” the “Daily Show” host said.`\
-https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
 
