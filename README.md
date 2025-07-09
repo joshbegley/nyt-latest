@@ -1,3 +1,11 @@
+**Trump Says He’s Making America More Competitive. Is he?**\
+`Experts fear that the president’s economic policies could increase costs and stifle innovation.`\
+https://nytimes.com/2025/07/09/us/politics/trump-tariffs-taxes-economy.html
+
+**Mexico Sentences 10 Men Arrested at Cartel Ranch to 140 Years Each in Prison**\
+`The men were convicted of killing one person and disappearing two others at a ranch in Jalisco state, where the authorities found piles of shoes, clothing and hundreds of personal items.`\
+https://nytimes.com/2025/07/09/world/americas/mexico-izaguirre-ranch-cartel.html
+
 **Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
 `It’s the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
 https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
 **Houthis Took Sailors Hostage After Attacking Ship, U.S. Says**\
 `The Yemeni militia, backed by Iran, said it had sunk a Liberian-flagged cargo ship in the Red Sea. Liberia said the attack killed two crew members.`\
 https://nytimes.com/2025/07/09/world/middleeast/houthis-red-sea-hostages.html
-
-**NASCAR teams 23XI, Front Row could lose charters next week: Here's what it means**\
-`A court decision Wednesday means 23XI Racing and Front Row Motorsports could lose their charters — and possibly more — as soon as next week.`\
-https://nytimes.com/athletic/6484018/2025/07/09/nascar-23xi-front-row-lawsuit-charters-tyler-reddick/
-
-**Wimbledon recap: Ben Shelton's Grand Slam roadblock and Novak Djokovic's slip**\
-`The Wimbledon quarterfinals wrapped up today — here's what happened.`\
-https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-results-analysis/
 
