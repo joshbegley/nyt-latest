@@ -1,3 +1,7 @@
+**U.S. Copper Prices Surge on Trump’s Threat of 50% Tariff**\
+`Prices for the metal hit a record high after the president suggested a higher rate than many analysts were expecting.`\
+https://nytimes.com/2025/07/09/us/politics/trump-copper-tariffs.html
+
 **Life Expectancy in California Has Not Rebounded After Covid**\
 `The state’s life expectancy was lower in 2024 than in 2019, according to an analysis, but primarily as a result of causes of death other than Covid.`\
 https://nytimes.com/2025/07/09/health/life-expectancy-california.html

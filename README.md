@@ -1,3 +1,11 @@
+**Submit questions for Jeff Zrebiec's Ravens mailbag**\
+`Zrebiec will consider your questions for his upcoming mailbag with Baltimore's training camp set to begin. `\
+https://nytimes.com/athletic/6483242/2025/07/09/ravens-mailbag-2025-training-camp/
+
+**Yankees promote prospect Cam Schlittler: Can the RHP seize a starting rotation job?**\
+`Schlittler will get his first chance to state his case for a rotation spot when he makes his MLB debut versus the Mariners on Wednesday.`\
+https://nytimes.com/athletic/6483189/2025/07/09/cam-schlittler-yankees-promoted-mlb-debut-mariners/
+
 **U.S. Copper Prices Surge on Trump’s Threat of 50% Tariff**\
 `Prices for the metal hit a record high after the president suggested a higher rate than many analysts were expecting.`\
 https://nytimes.com/2025/07/09/us/politics/trump-copper-tariffs.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6482180/2025/07/09/aj-dybantsa-fanatics-byu/
 **A.I. Is Making Sure You Pay for That Ding on Your Rental Car**\
 `Hertz and other agencies are increasingly relying on scanners that use high-res imaging and A.I. to flag even tiny blemishes, and customers aren’t happy.`\
 https://nytimes.com/2025/07/09/travel/rental-car-ai-scanner-hertz.html
-
-**‘A Nourishing and Satisfying One-Pot Meal’**\
-`Kay Chun’s chicken arroz rojo combines summer’s corn, jalapeños and early tomatoes with boneless thighs and rice for an effortless and filling weeknight dinner.`\
-https://nytimes.com/2025/07/09/dining/easy-chicken-arroz-rojo-recipe.html
-
-**New Research Questions Severity of Withdrawal From Antidepressants**\
-`Warnings about withdrawal from antidepressants have rippled through society in recent years. A new study claims they are overblown.`\
-https://nytimes.com/2025/07/09/health/antidepressants-withdrawal-symptoms.html
 

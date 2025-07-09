@@ -1,3 +1,7 @@
+**U.S. Copper Prices Surge on Trump’s Threat of 50% Tariff**\
+`Prices for the metal hit a record high after the president suggested a higher rate than many analysts were expecting.`\
+https://nytimes.com/2025/07/09/us/politics/trump-copper-tariffs.html
+
 **Life Expectancy in California Has Not Rebounded After Covid**\
 `The state’s life expectancy was lower in 2024 than in 2019, according to an analysis, but primarily as a result of causes of death other than Covid.`\
 https://nytimes.com/2025/07/09/health/life-expectancy-california.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/dining/easy-chicken-arroz-rojo-recipe.html
 **New Research Questions Severity of Withdrawal From Antidepressants**\
 `Warnings about withdrawal from antidepressants have rippled through society in recent years. A new study claims they are overblown.`\
 https://nytimes.com/2025/07/09/health/antidepressants-withdrawal-symptoms.html
-
-**Everton sign Barry from Villarreal**\
-`Barry has signed an four-year contract on Merseyside and is Everton's second signing of the summer.`\
-https://nytimes.com/athletic/6479747/2025/07/09/thierno-barry-everton-transfer/
 
