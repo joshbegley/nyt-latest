@@ -1,3 +1,7 @@
+**Searching for the Truth About Autism**\
+`Readers respond to a guest essay by Dr. Allen Frances. Also: A Supreme Court decision on firing federal workers.`\
+https://nytimes.com/2025/07/09/opinion/autism.html
+
 **Ex-White House Doctor Refuses Questions in G.O.P. Inquiry on Biden’s Mental Acuity**\
 `Kevin O’Connor cited both physician-patient privilege and his Fifth Amendment right against self-incrimination in refusing to answer questions from the House Oversight Committee.`\
 https://nytimes.com/2025/07/09/us/politics/kevin-oconnor-biden-doctor.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483509/2025/07/09/euro-2025-england-france-us-tv-f
 **Man Utd searching for head of senior recruitment as part of overhaul**\
 `United will also have regional heads of emerging talent across the main talent pools globally.`\
 https://nytimes.com/athletic/6483255/2025/07/09/man-utd-recruitment-transfers/
-
-**Ramon Sosa leaves Forest for Brazilian club Palmeiras**\
-`The Paraguay international winger joined Forest in August 2024 in an £11million move from Argentine side CA Talleres.`\
-https://nytimes.com/athletic/6483497/2025/07/09/ramon-sosa-transfer-nottingham-forest-brazilian-club-palmeiras/
 
