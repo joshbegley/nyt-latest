@@ -1,3 +1,11 @@
+**Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
+`Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
+https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
+
+**Confessions of a cricket groundsman: The secrets of the sport’s most thankless task**\
+`John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
+https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
+
 **How Liverpool can help nurse players through their grief**\
 `Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
 https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/

@@ -1,8 +1,12 @@
+**Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
+`Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
+https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
+
 **How Liverpool can help nurse players through their grief**\
 `Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
 https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/
 
-**Confessions of a cricket groundsman: The secrets of the sportâs most thankless task**\
+**Confessions of a cricket groundsman: The secrets of the sport’s most thankless task**\
 `John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
 https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6479910/2025/07/09/sell-best-player-transfer-premie
 **Aerial dominance, accurate passing, smart shot-stopping: Why Man Utd like John**\
 `The Botafogo goalkeeper showed at the Club World Cup that he is ready for a Premier League move`\
 https://nytimes.com/athletic/6480178/2025/07/09/manchester-united-john-victor-transfer-botafogo/
-
-**Wiegman, her assistant and the job offer that could have a big impact on England and the Netherlands**\
-`Arjan Veurink will be in the England dugout on Wednesday for the game against the Netherlands, the team he will manage after the Euros`\
-https://nytimes.com/athletic/6479704/2025/07/09/arjan-veurink-sarina-wiegman-england-netherlands/
 

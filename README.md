@@ -1,3 +1,7 @@
+**A diary of confusion: Mets' wild win complicates trade deadline picture**\
+`The Mets showcased why they need to add significant pieces and why they don't require any of those things in their 7-6 win over the Orioles.`\
+https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-deadline/
+
 **Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
 `Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
 https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6479213/2025/07/09/kylian-mbappe-psg-reunion/
 **The art of selling your best player: 'It is all about being proactive rather than reactive'**\
 `Plenty of Premier League clubs have made a success of selling their best players. Others have struggled`\
 https://nytimes.com/athletic/6479910/2025/07/09/sell-best-player-transfer-premier-league/
-
-**Aerial dominance, accurate passing, smart shot-stopping: Why Man Utd like John**\
-`The Botafogo goalkeeper showed at the Club World Cup that he is ready for a Premier League move`\
-https://nytimes.com/athletic/6480178/2025/07/09/manchester-united-john-victor-transfer-botafogo/
 
