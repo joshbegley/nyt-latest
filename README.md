@@ -1,3 +1,11 @@
+**Measles Cases Have Hit a Record High. What Went Wrong?**\
+`There have now been more measles cases in 2025 than in any other year since the contagious virus was declared eliminated in the United States in 2000, according to new data from the Centers for Disease Control and Prevention.`\
+https://nytimes.com/video/well/100000010273332/measles-cases-have-hit-a-record-high-what-went-wrong.html
+
+**Belinda Bencic reaches Wimbledon semifinals nine months into tennis comeback**\
+`Bencic edged out the rising star in two fascinating, high-quality and edgy sets on Centre Court.`\
+https://nytimes.com/athletic/6483082/2025/07/09/bencic-andreeva-wimbledon-result-analysis/
+
 **Measles Cases Hit Record High, 25 Years After U.S. Eliminated the Disease**\
 `Experts worry that if vaccination rates do not improve, deadly outbreaks will become the new normal.`\
 https://nytimes.com/2025/07/09/well/us-measles-record-outbreaks.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6483032/2025/07/09/tennis-wimbledon-swiatek-result-
 **Clippers summer league preview: Which players to watch, Jordan Miller waived**\
 `Law Murray takes a look at the Clippers summer league roster and what they need to improve in Las Vegas. `\
 https://nytimes.com/athletic/6482181/2025/07/09/clippers-summer-league-jordan-miller-kobe-brown-sanders/
-
-**Lyon confirm successful appeal of Ligue 1 relegation**\
-`The DNCG relegated Lyon on June 24, with the club immediately stating its intention to appeal the decision.`\
-https://nytimes.com/athletic/6449082/2025/07/09/lyon-relegation-decision-ligue-1/
-
-**The L.P.G.A. Is Getting a New Commissioner. He’s Got Some Work to Do.**\
-`Craig Kessler starts in a few days and knows what he must do to help the tour grow.`\
-https://nytimes.com/2025/07/09/sports/golf/lpga-new-commissioner-craig-kessler.html
 

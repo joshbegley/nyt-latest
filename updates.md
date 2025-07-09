@@ -1,3 +1,11 @@
+**Measles Cases Hit Record High, 25 Years After U.S. Eliminated the Disease**\
+`Experts worry that if vaccination rates do not improve, deadly outbreaks will become the new normal.`\
+https://nytimes.com/2025/07/09/well/us-measles-record-outbreaks.html
+
+**X Chief Says She Is Leaving the Social Media Platform**\
+`Linda Yaccarino, whom Elon Musk hired to run X in 2023, grappled with the challenges the company faced after Mr. Musk took over.`\
+https://nytimes.com/2025/07/09/technology/linda-yaccarino-x-steps-down.html
+
 **The Windup: Twin draft prospects’ remarkable upbringing**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6482321/2025/07/09/mlb-draft-twins-dad-the-windup/
