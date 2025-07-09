@@ -1,3 +1,7 @@
+**Houthis Took Sailors Hostage After Attacking Ship, U.S. Says**\
+`The Yemeni militia, backed by Iran, said it had sunk a Liberian-flagged cargo ship in the Red Sea. Liberia said the attack killed two crew members.`\
+https://nytimes.com/2025/07/09/world/middleeast/houthis-red-sea-hostages.html
+
 **NASCAR teams 23XI, Front Row could lose charters next week: Here's what it means**\
 `A court decision Wednesday means 23XI Racing and Front Row Motorsports could lose their charters — and possibly more — as soon as next week.`\
 https://nytimes.com/athletic/6484018/2025/07/09/nascar-23xi-front-row-lawsuit-charters-tyler-reddick/
