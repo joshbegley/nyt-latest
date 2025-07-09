@@ -1,36 +1,36 @@
-**Measles Cases Have Hit a Record High. What Went Wrong?**\
-`There have now been more measles cases in 2025 than in any other year since the contagious virus was declared eliminated in the United States in 2000, according to new data from the Centers for Disease Control and Prevention.`\
-https://nytimes.com/video/well/100000010273332/measles-cases-have-hit-a-record-high-what-went-wrong.html
+**Life Expectancy in California Has Not Rebounded After Covid**\
+`The state’s life expectancy was lower in 2024 than in 2019, according to an analysis, but primarily as a result of causes of death other than Covid.`\
+https://nytimes.com/2025/07/09/health/life-expectancy-california.html
 
-**Belinda Bencic reaches Wimbledon semifinals nine months into tennis comeback**\
-`Bencic edged out the rising star in two fascinating, high-quality and edgy sets on Centre Court.`\
-https://nytimes.com/athletic/6483082/2025/07/09/bencic-andreeva-wimbledon-result-analysis/
+**The View From The Lane: Live at Soho Theatre, Walthamstow**\
+`Host Danny Kelly and the team return for another live edition of The Athletic's multi-award-winning Tottenham Hotspur podcast`\
+https://nytimes.com/athletic/6482996/2025/07/09/view-from-the-lane-live-tickets/
 
-**Measles Cases Hit Record High, 25 Years After U.S. Eliminated the Disease**\
-`Experts worry that if vaccination rates do not improve, deadly outbreaks will become the new normal.`\
-https://nytimes.com/2025/07/09/well/us-measles-record-outbreaks.html
+**Brazil boss Ancelotti sentenced to one year in prison over tax offence**\
+`Ancelotti, who left Real Madrid at the end of 2024-25, failed to pay tax on his image rights revenues in the 2014 financial year.`\
+https://nytimes.com/athletic/6320182/2025/07/09/carlo-ancelotti-tax-real-madrid/
 
-**X Chief Says She Is Leaving the Social Media Platform**\
-`Linda Yaccarino, whom Elon Musk hired to run X in 2023, grappled with the challenges the company faced after Mr. Musk took over.`\
-https://nytimes.com/2025/07/09/technology/linda-yaccarino-x-steps-down.html
+**Pace, potential and the promise of chaos – why Everton have signed Thierno Barry**\
+`Patience will be needed with David Moyes' new striker, but the club believe they have signed one of Europe's top prospects`\
+https://nytimes.com/athletic/6480554/2025/07/09/thierno-barry-everton-transfer-villarreal/
 
-**The Windup: Twin draft prospects’ remarkable upbringing**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6482321/2025/07/09/mlb-draft-twins-dad-the-windup/
+**BYU's AJ Dybantsa signs exclusive deal with Fanatics that will extend beyond college**\
+`Dybantsa explains how he's preparing for the NBA and who he's modeled his game after`\
+https://nytimes.com/athletic/6482180/2025/07/09/aj-dybantsa-fanatics-byu/
 
-**What happens when college football enters its own Moneyball era?**\
-`In this week's sports business cheat sheet, digging into Texas Tech, Ben Shelton and readers' favorite 21st century sports movies.`\
-https://nytimes.com/athletic/6483008/2025/07/09/texas-tech-christian-horner-ben-shelton-moneycall/
+**A.I. Is Making Sure You Pay for That Ding on Your Rental Car**\
+`Hertz and other agencies are increasingly relying on scanners that use high-res imaging and A.I. to flag even tiny blemishes, and customers aren’t happy.`\
+https://nytimes.com/2025/07/09/travel/rental-car-ai-scanner-hertz.html
 
-**Mel Robbins Unpacks Her ‘Let Me’ Theory**\
-`The best-selling author and motivational podcast host Mel Robbins is known for her blunt advice and viral wisdom, including her “Let Me” theory, which she explains to the “Modern Love” host, Anna Martin.`\
-https://nytimes.com/video/podcasts/100000010273341/mel-robbins-unpacks-her-let-me-theory.html
+**‘A Nourishing and Satisfying One-Pot Meal’**\
+`Kay Chun’s chicken arroz rojo combines summer’s corn, jalapeños and early tomatoes with boneless thighs and rice for an effortless and filling weeknight dinner.`\
+https://nytimes.com/2025/07/09/dining/easy-chicken-arroz-rojo-recipe.html
 
-**Iga Swiatek reaches first Wimbledon semifinal with win over Liudmila Samsonova**\
-`The five-time Grand Slam champion reached her first Wimbledon semifinal with a controlled and ultimately comprehensive straight-sets win.`\
-https://nytimes.com/athletic/6483032/2025/07/09/tennis-wimbledon-swiatek-result-analysis-samsonova/
+**New Research Questions Severity of Withdrawal From Antidepressants**\
+`Warnings about withdrawal from antidepressants have rippled through society in recent years. A new study claims they are overblown.`\
+https://nytimes.com/2025/07/09/health/antidepressants-withdrawal-symptoms.html
 
-**Clippers summer league preview: Which players to watch, Jordan Miller waived**\
-`Law Murray takes a look at the Clippers summer league roster and what they need to improve in Las Vegas. `\
-https://nytimes.com/athletic/6482181/2025/07/09/clippers-summer-league-jordan-miller-kobe-brown-sanders/
+**Everton sign Barry from Villarreal**\
+`Barry has signed an four-year contract on Merseyside and is Everton's second signing of the summer.`\
+https://nytimes.com/athletic/6479747/2025/07/09/thierno-barry-everton-transfer/
 
