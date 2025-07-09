@@ -1,3 +1,7 @@
+**Phillies endure a new Oracle Park nightmare, bounced on a walk-off inside-the-park home run**\
+`This ballpark is hell for the Phillies, but this was a fresh nightmare. They lost in one of the craziest endings to a game in club history.`\
+https://nytimes.com/athletic/6482326/2025/07/09/phillies-jordan-romano-giants-walk-off-home-run/
+
 **Rio Ferdinand's son signs first professional contract with Brighton**\
 `The goalkeeper, 18, has steadily progressed since joining Brighton as an under-13 player.`\
 https://nytimes.com/athletic/6482536/2025/07/09/rio-ferdinand-son-lorenz-contract-brighton/

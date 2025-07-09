@@ -1,3 +1,7 @@
+**Xavier Neyens and other 2025 MLB Draft names of interest for the Giants**\
+`The Giants have the 13th pick. Here are some names of players the Giants could consider at that spot to address concerns about their system.`\
+https://nytimes.com/athletic/6481328/2025/07/09/sf-giants-preview-xavier-neyens-gavin-kilen-kyson-witherspoon/
+
 **Phillies endure a new Oracle Park nightmare, bounced on a walk-off inside-the-park home run**\
 `This ballpark is hell for the Phillies, but this was a fresh nightmare. They lost in one of the craziest endings to a game in club history.`\
 https://nytimes.com/athletic/6482326/2025/07/09/phillies-jordan-romano-giants-walk-off-home-run/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6482221/2025/07/09/davis-schneider-blue-jays-win-st
 **As training camp approaches, where do things stand with the Giants offense?**\
 `While the Giants returned most of their starters on offense, there are lots of new faces looking to make a name for themselves this summer.`\
 https://nytimes.com/athletic/6469683/2025/07/09/ny-giants-roster-jaxson-dart-russell-wilson/
-
-**WNBA teams failed in Cleveland and Detroit before. Will it be different this time?**\
-`Ownership groups for the expansion teams cite the league's more stable footing and greater investment as reasons for optimism.`\
-https://nytimes.com/athletic/6482134/2025/07/09/cleveland-detroit-wnba-expansion/
 

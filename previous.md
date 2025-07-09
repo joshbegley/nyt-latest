@@ -1,3 +1,7 @@
+**Phillies endure a new Oracle Park nightmare, bounced on a walk-off inside-the-park home run**\
+`This ballpark is hell for the Phillies, but this was a fresh nightmare. They lost in one of the craziest endings to a game in club history.`\
+https://nytimes.com/athletic/6482326/2025/07/09/phillies-jordan-romano-giants-walk-off-home-run/
+
 **Rio Ferdinand's son signs first professional contract with Brighton**\
 `The goalkeeper, 18, has steadily progressed since joining Brighton as an under-13 player.`\
 https://nytimes.com/athletic/6482536/2025/07/09/rio-ferdinand-son-lorenz-contract-brighton/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6469683/2025/07/09/ny-giants-roster-jaxson-dart-rus
 **WNBA teams failed in Cleveland and Detroit before. Will it be different this time?**\
 `Ownership groups for the expansion teams cite the league's more stable footing and greater investment as reasons for optimism.`\
 https://nytimes.com/athletic/6482134/2025/07/09/cleveland-detroit-wnba-expansion/
-
-**Michigan recruiting is surging. Here are 10 thoughts on the Wolverines' run**\
-`After a slow start, Michigan's football recruiting Class of 2026 is now in the top 10. Here's what to know.`\
-https://nytimes.com/athletic/6481342/2025/07/09/michigan-recruiting-surge-2026-class-targets-commits/
 
