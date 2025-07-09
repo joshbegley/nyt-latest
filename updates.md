@@ -1,3 +1,19 @@
+**Uruguay resumes training for Copa AmÃ©rica after players protest conditions**\
+`The national teamâs players union told The Athletic that the national team's protest was a result of âsome differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**Wednesday Briefing: Rare Earths, Made in Europe?**\
+`Plus, Swedenâs secret to well-being.`\
+https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
+
+**Bibiâs Empty Victory Lap**\
+`The 12-day war is over. But thereâs no peace in sight.`\
+https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
+
+**Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
+`Firefighters worked to prevent the blaze from entering Franceâs second-biggest city, where ash and smoke had spread overnight.`\
+https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
+
 **Word of the Day: humility**\
 `This word has appeared in 553 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/09/learning/word-of-the-day-humility.html

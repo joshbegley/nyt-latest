@@ -6,8 +6,8 @@ https://nytimes.com/2025/07/09/learning/word-of-the-day-humility.html
 `The club's new signing scored twice against Fluminense but there was much more to admire about his game on Tuesday`\
 https://nytimes.com/athletic/6482005/2025/07/09/chelsea-joao-pedro-club-world-cup/
 
-**Uruguay resumes training for Copa América after players protest conditions**\
-`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
+**Uruguay resumes training for Copa AmÃ©rica after players protest conditions**\
+`The national teamâs players union told The Athletic that the national team's protest was a result of âsome differences in negotiations."`\
 https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
 
 **A three-day search for the letter that led to the creation of Wales' women's national team**\
@@ -15,11 +15,11 @@ https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-amer
 https://nytimes.com/athletic/6465022/2025/07/09/wales-euro-2025-letter-aberystywth/
 
 **Wednesday Briefing: Rare Earths, Made in Europe?**\
-`Plus, Sweden’s secret to well-being.`\
+`Plus, Swedenâs secret to well-being.`\
 https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
 
-**Bibi’s Empty Victory Lap**\
-`The 12-day war is over. But there’s no peace in sight.`\
+**Bibiâs Empty Victory Lap**\
+`The 12-day war is over. But thereâs no peace in sight.`\
 https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
 
 **The New York Times in Print for Wednesday, July 9, 2025**\
@@ -31,6 +31,6 @@ https://nytimes.com/issue/todayspaper/2025/07/09/todays-new-york-times
 https://nytimes.com/athletic/6482166/2025/07/09/mets-comeback-win-orioles-trade-deadline/
 
 **Wildfire on Edge of Marseille Injures More Than 100, Officials Say**\
-`Firefighters worked to prevent the blaze from entering France’s second-biggest city, where ash and smoke had spread overnight.`\
+`Firefighters worked to prevent the blaze from entering Franceâs second-biggest city, where ash and smoke had spread overnight.`\
 https://nytimes.com/2025/07/09/world/europe/marseille-wildfires-france.html
 
