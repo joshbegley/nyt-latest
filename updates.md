@@ -1,3 +1,15 @@
+**Experienced, superb shot stopper and good in the air: Why Palace have signed Walter Benitez**\
+`The Argentina international is a solid goalkeeper and should prove an excellent back-up to Dean Henderson`\
+https://nytimes.com/athletic/6462444/2025/07/09/why-crystal-palace-signed-walter-benitez/
+
+**How Real Madrid conquered the United States: Galacticos, trophies and... the Goal movie?**\
+`Madrid have been comfortably the biggest draw at the Club World Cup and their huge popularity in the States has been decades in the making`\
+https://nytimes.com/athletic/6480919/2025/07/09/real-madrid-united-states-support-fans/
+
+**Aerial dominance, accurate passing, smart shot-stopping: Why Man Utd like John**\
+`The Botafogo goalkeeper showed at the Club World Cup that he is ready for a Premier League move`\
+https://nytimes.com/athletic/6480178/2025/07/09/manchester-united-john-victor-transfer-botafogo/
+
 **Kylian Mbappe vs PSG: The president's plea, the bitter divorce and the disputed millions**\
 `Kylian Mbappe will face on the pitch the team he is fighting off it, a year on from his acrimonious move from PSG to Real Madrid`\
 https://nytimes.com/athletic/6479213/2025/07/09/kylian-mbappe-psg-reunion/
