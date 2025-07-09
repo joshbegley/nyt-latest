@@ -1,3 +1,11 @@
+**Scott Frost's Nebraska regrets show lack of accountability for failed tenure: Sherman**\
+`Frost said Tuesday that Nebraska was the "wrong job" for him. Fans of the Huskers, in retrospect, agree.`\
+https://nytimes.com/athletic/6483152/2025/07/09/scott-frost-nebraska-ucf-big-12-media-days/
+
+**How Elephants Say They Like Them Apples**\
+`Researchers found that the animals are capable of using their trunks to make a range of gestures that express their intentions and wants.`\
+https://nytimes.com/2025/07/09/science/elephants-gesturing-trunk.html
+
 **Why 1.5 Million New Yorkers Could Lose Health Insurance Under Trump Bill**\
 `As in other states, Medicaid will be affected. But so will another health insurance program that plays a bigger role in New York than elsewhere.`\
 https://nytimes.com/2025/07/09/nyregion/trump-domestic-policy-bill-new-york-health-care.html

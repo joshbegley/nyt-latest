@@ -1,4 +1,8 @@
-**Scott Frost's Nebraska regrets show lack of accountability for failed tenure: Sherman**\
+**Tour de France stage five: Evenepoel's exhibition, Pogacar into yellow, nightmare day for Vingegaard**\
+`Analysis of the fifth stage of the 2025 Tour de France, a 33km time trial starting and finishing in the city of Caen`\
+https://nytimes.com/athletic/6482799/2025/07/09/tour-de-france-stage-five-analysis/
+
+**Sherman: Scott Frost's Nebraska regrets show lack of accountability for failed tenure**\
 `Frost said Tuesday that Nebraska was the "wrong job" for him. Fans of the Huskers, in retrospect, agree.`\
 https://nytimes.com/athletic/6483152/2025/07/09/scott-frost-nebraska-ucf-big-12-media-days/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/climate/nanoplastics-ocean-pollution.html
 **Trump Administration Renews Attacks On Harvard With Negotiations Uncertain**\
 `The Department of Homeland Security issued administrative subpoenas seeking data about the university’s international students, while two federal agencies challenged Harvard’s accreditation.`\
 https://nytimes.com/2025/07/09/us/politics/trump-harvard-data-accreditation.html
-
-**Jannik Sinner beats Ben Shelton at Wimbledon on Grand Slam groundhog day for the American**\
-`The American has lost to one of Sinner or Carlos Alcaraz in the past three Grand Slams.`\
-https://nytimes.com/athletic/6483546/2025/07/09/tennis-wimbledon-ben-shelton-jannik-sinner-result-analysis/
 
