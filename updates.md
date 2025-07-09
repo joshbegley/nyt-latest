@@ -1,3 +1,15 @@
+**The Surprising Presence in âThe Gospel at Colonusâ**\
+`In this revival at Little Island, the singer and pastor Kim Burrell shares the stage with a team of queer artists.`\
+https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
+
+**Latest Fed Minutes Underscore Divisions Over Pace of Interest Rate Cuts**\
+`The U.S. central bankâs decision to hold interest rates steady in June was unanimously supported, but officials were starting to splinter over the path forward.`\
+https://nytimes.com/2025/07/09/business/federal-reserve-meeting-minutes.html
+
+**Trump Tariffs Aim to Settle Scores With Countries, No Matter How Small**\
+`The presidentâs tariff announcements suggest he has not backed away from his initial strategy, where even minor trading partners will face tariffs.`\
+https://nytimes.com/2025/07/09/business/economy/trump-tariffs-global-trade.html
+
 **Bronny James and the most unflattering sports cards of all time, ranked**\
 `Where Bronny James and his dad land in a ranking of the 17 most unflattering sports cards of all time`\
 https://nytimes.com/athletic/6478759/2025/07/09/bronny-james-leave-worst-sports-cards/
