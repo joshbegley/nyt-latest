@@ -1,3 +1,7 @@
+**'It’s been a rough go for him': Braves prospect Didier Fuentes rocked in 10-1 loss**\
+`In injury news, Ronald Acuña Jr. was scratched before the series opener due to lower back tightness but said he expects to play Wednesday.`\
+https://nytimes.com/athletic/6482303/2025/07/09/braves-prospect-didier-fuentes-rocked-in-10-1-loss-to-as-its-been-a-rough-go/
+
 **Attack on Ukraine Comes as Trump Castigates Putin**\
 `The number of Russian drones and missiles in the barrage set a single-night record and underscored Ukraine’s need for weapons.`\
 https://nytimes.com/2025/07/09/world/europe/russia-ukraine-attack-weapons-trump-putin.html
