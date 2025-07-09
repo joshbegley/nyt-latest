@@ -1,3 +1,11 @@
+**TAFC: Mbappe's bitter PSG divorce, Chelsea profit from final spot in Club World Cup**\
+`Today in TAFC: The dispute that lingers from Mbappe's acrimonious PSG exit, Chelsea reach the Club World Cup final after stars align`\
+https://nytimes.com/athletic/6482410/2025/07/09/kylian-mbappes-psg-real-madrid-chelsea-pedro/
+
+**That guy was an All-Star? Every MLB team's most forgotten selection from the past quarter-century**\
+`Daniel Vogelbach, Hung-Chi Kuo, Bryan LaHair and Junior Spivey are among the All-Stars that you may not recall from the past 25 years.`\
+https://nytimes.com/athletic/6478653/2025/07/09/mlb-all-star-forgotten-selection-quarter-century/
+
 **The Pulse: How politics could threaten Bills’ ambitions**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6481324/2025/07/09/bills-trump-canada-the-pulse/
