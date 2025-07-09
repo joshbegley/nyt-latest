@@ -1,3 +1,19 @@
+**Ex-White House Doctor Refuses Questions in G.O.P. Inquiry on Biden’s Mental Acuity**\
+`Kevin O’Connor cited both physician-patient privilege and his Fifth Amendment right against self-incrimination in refusing to answer questions from the House Oversight Committee.`\
+https://nytimes.com/2025/07/09/us/politics/kevin-oconnor-biden-doctor.html
+
+**‘Ne Zha 2,’ Blockbuster Chinese Animated Film, Will Get English Version**\
+`The English-language version will feature the voice of Michelle Yeoh and be released in the United States in August.`\
+https://nytimes.com/2025/07/09/movies/ne-zha-2-english-us-theaters.html
+
+**Tons of Invisible Plastic Pieces Lurk in Ocean Water**\
+`A new study offers the first estimate of nanoplastic pollution in the ocean. There’s a lot.`\
+https://nytimes.com/2025/07/09/climate/nanoplastics-ocean-pollution.html
+
+**Trump Administration Renews Attacks On Harvard With Negotiations Uncertain**\
+`The Department of Homeland Security issued administrative subpoenas seeking data about the university’s international students, while two federal agencies challenged Harvard’s accreditation.`\
+https://nytimes.com/2025/07/09/us/politics/trump-harvard-data-accreditation.html
+
 **Trump Administration Renews Attacks on Harvard With Negotiations Uncertain**\
 `The Department of Homeland Security issued administrative subpoenas seeking data about the university’s international students, while two federal agencies challenged Harvard’s accreditation.`\
 https://nytimes.com/2025/07/09/us/politics/trump-harvard-data-accreditation.html

@@ -1,4 +1,16 @@
-**Trump Administration Renews Attacks on Harvard With Negotiations Uncertain**\
+**Ex-White House Doctor Refuses Questions in G.O.P. Inquiry on Biden’s Mental Acuity**\
+`Kevin O’Connor cited both physician-patient privilege and his Fifth Amendment right against self-incrimination in refusing to answer questions from the House Oversight Committee.`\
+https://nytimes.com/2025/07/09/us/politics/kevin-oconnor-biden-doctor.html
+
+**‘Ne Zha 2,’ Blockbuster Chinese Animated Film, Will Get English Version**\
+`The English-language version will feature the voice of Michelle Yeoh and be released in the United States in August.`\
+https://nytimes.com/2025/07/09/movies/ne-zha-2-english-us-theaters.html
+
+**Tons of Invisible Plastic Pieces Lurk in Ocean Water**\
+`A new study offers the first estimate of nanoplastic pollution in the ocean. There’s a lot.`\
+https://nytimes.com/2025/07/09/climate/nanoplastics-ocean-pollution.html
+
+**Trump Administration Renews Attacks On Harvard With Negotiations Uncertain**\
 `The Department of Homeland Security issued administrative subpoenas seeking data about the university’s international students, while two federal agencies challenged Harvard’s accreditation.`\
 https://nytimes.com/2025/07/09/us/politics/trump-harvard-data-accreditation.html
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6483255/2025/07/09/man-utd-recruitment-transfers/
 **Ramon Sosa leaves Forest for Brazilian club Palmeiras**\
 `The Paraguay international winger joined Forest in August 2024 in an £11million move from Argentine side CA Talleres.`\
 https://nytimes.com/athletic/6483497/2025/07/09/ramon-sosa-transfer-nottingham-forest-brazilian-club-palmeiras/
-
-**Mayhem at the River Inn Crossing: A Dark-of-Night Flood Escape**\
-`Along the Guadalupe River, a 60-room inn and nearby homes were quickly filling with water. Confusion, desperation and heroism ensued.`\
-https://nytimes.com/2025/07/09/us/texas-floods-river-inn.html
-
-**Christian Horner's surprising firing by Red Bull F1 raises many questions**\
-`As shocking as Christian Horner’s exit is, the biggest question it has raised is: what does this mean for Max Verstappen's future?`\
-https://nytimes.com/athletic/6482773/2025/07/09/f1-red-bull-christian-horner-fired-sacked/
-
-**Trump Administration Sues California Over Transgender Athletes**\
-`The Justice Department filed a lawsuit against two California agencies, accusing them of violating Title IX by allowing transgender athletes to compete in girls’ sports.`\
-https://nytimes.com/2025/07/09/us/politics/trump-administration-sues-california-over-transgender-athletes.html
 
