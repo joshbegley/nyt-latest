@@ -1,3 +1,19 @@
+**Ronny Chieng on Trump’s Nobel Nomination: Consider the Source**\
+`An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like “a Husband of the Year nomination from O.J. Simpson,” the “Daily Show” host said.`\
+https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
+
+**Uruguay resumes training for Copa América after players protest conditions**\
+`The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**Wednesday Briefing: Rare Earths, Made in Europe?**\
+`Plus, Sweden’s secret to well-being.`\
+https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
+
+**Bibi’s Empty Victory Lap**\
+`The 12-day war is over. But there’s no peace in sight.`\
+https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
+
 **Guatemala Closes Schools in Capital After Earthquakes**\
 `A 5.7-magnitude earthquake and its aftershocks near Guatemala City led to landslides that were reported to have killed at least two people.`\
 https://nytimes.com/2025/07/09/world/americas/guatemala-earthquake-landslide.html
