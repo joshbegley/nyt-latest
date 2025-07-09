@@ -2,7 +2,7 @@
 `Sports psychologist Lee Richardson is one of several experts the club can turn to in the wake of Diogo Jota's tragic death `\
 https://nytimes.com/athletic/6477747/2025/07/09/liverpool-diogo-jota-players-grief/
 
-**Confessions of a cricket groundsman: The secrets of the sport’s most thankless task**\
+**Confessions of a cricket groundsman: The secrets of the sportâs most thankless task**\
 `John Dodds has tended the wicket at Scarborough's North Marine Road ground since 2011 - how difficult is it to maintain?`\
 https://nytimes.com/athletic/6407655/2025/07/09/england-india-groundsman-cricket-square/
 
