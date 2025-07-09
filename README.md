@@ -1,3 +1,15 @@
+**Head of S.E.C.’s Crypto Task Force Says ‘Tokenized’ Stocks Are Securities**\
+`Hester M. Peirce said in a statement Wednesday that digital versions of stocks are still subject to federal securities laws.`\
+https://nytimes.com/2025/07/09/business/head-of-secs-crypto-task-force-says-tokenized-stocks-are-securities.html
+
+**Why Forecasting Thunderstorms Is Still So Hard**\
+`Even with advances in technology, it’s difficult to pinpoint exactly where and when some of the most severe weather will occur until just before it happens.`\
+https://nytimes.com/2025/07/09/weather/thunderstorms-forecast-how.html
+
+**Harlem Middle School Aide Accused of Sexually Abusing 3 Students**\
+`Saneel Boodram was removed from the school after officials heard of the allegations. Manhattan prosecutors are seeking parents who think their children might have been harmed.`\
+https://nytimes.com/2025/07/09/nyregion/harlem-middle-school-sexual-abuse-charges.html
+
 **Deion Sanders expected to return to Colorado 'in a week or 2'**\
 `Sanders refused to discuss his health issue at Wednesday's Big 12 media days, his first public appearance since April.`\
 https://nytimes.com/athletic/6483915/2025/07/09/deion-sanders-health-colorado-return/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/09/world/asia/south-korea-arrest-yoon-suk-yeol.html
 **A Zero SP fantasy baseball strategy prioritizes hitters. What's the advantage?**\
 `Michael Salfino details why it pays to invest heavily in offense early in fantasy baseball drafts, especially the top 30 hitters by ADP.`\
 https://nytimes.com/athletic/6483327/2025/07/09/zero-sp-fantasy-baseball-strategy-prioritizes-hitters/
-
-**Wiegman's England thrive in pressure moments but rarely have they played better than this**\
-`The Lionesses knew defeat would likely end their Euros hopes but they produced arguably their best display under Wiegman`\
-https://nytimes.com/athletic/6483883/2025/07/09/england-netherlands-wiegman-euros/
-
-**What’s in Our Queue? ‘Schitt’s Creek’ and More **\
-`Text by Alan Blinder`\
-https://nytimes.com/card/2025/07/09/arts/editors-recommendations-schittscreek
-
-**Supreme Court Won’t Revive Aggressive Florida Immigration Law**\
-`The law, enacted this year, made it a crime for unauthorized migrants to enter the state. Challengers say immigration is a federal matter.`\
-https://nytimes.com/2025/07/09/us/politics/supreme-court-florida-immigration-law.html
 
