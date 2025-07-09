@@ -1,3 +1,7 @@
+**Administration Takes Steps to Target 2 Officials Who Investigated Trump**\
+`It is unclear whether the moves will lead to charges, but they suggest that President Trump’s appointees intend to follow through on his campaign to exact retribution against his perceived enemies.`\
+https://nytimes.com/2025/07/09/us/politics/ratcliffe-brennan-cia.html
+
 **Dave Maloney named Rangers TV analyst, replaces retiring Joe Micheletti**\
 `Maloney will call games with play-by-play announcer Kenny Albert, who is also entering his first year working Rangers games full-time on TV.`\
 https://nytimes.com/athletic/6482964/2025/07/09/rangers-msg-network-tv-broadcast-analyst-dave-maloney/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483715/2025/07/09/mlb-all-star-game-automated-ball
 **The Surprising Presence in ‘The Gospel at Colonus’**\
 `In this revival at Little Island, the singer and pastor Kim Burrell shares the stage with a team of queer artists.`\
 https://nytimes.com/2025/07/09/theater/kim-burrell-the-gospel-at-colonus.html
-
-**Novak Djokovic sets up Wimbledon semifinal against Jannik Sinner with Flavio Cobolli win**\
-`Djokovic beat the Italian in four sets to set up another Grand Slam meeting with his recent nemesis.`\
-https://nytimes.com/athletic/6483760/2025/07/09/tennis-wimbledon-novak-djokovic-cobolli-jannik-sinner-semifinal/
 
