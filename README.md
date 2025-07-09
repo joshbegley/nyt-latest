@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Schitt’s Creek’ and More **\
+`Text by Alan Blinder`\
+https://nytimes.com/card/2025/07/09/arts/editors-recommendations-schittscreek
+
+**Supreme Court Won’t Revive Aggressive Florida Immigration Law**\
+`The law, enacted this year, made it a crime for unauthorized migrants to enter the state. Challengers say immigration is a federal matter.`\
+https://nytimes.com/2025/07/09/us/politics/supreme-court-florida-immigration-law.html
+
 **Caitlin Clark returns from injury as Fever fall to Valkyries**\
 `After missing the previous five games with the left groin injury, Clark was back in uniform as the Fever lost to the Valkyries, 80-61.`\
 https://nytimes.com/athletic/6483907/2025/07/09/caitlin-clark-injury-fever-valkyries/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6482964/2025/07/09/rangers-msg-network-tv-broadcast
 **We Can Adapt and Prepare for Floods. But Will We?**\
 `The flooding in Texas reveals just how unprepared we are.`\
 https://nytimes.com/2025/07/09/opinion/texas-floods-adaptation.html
-
-**Bronny James and the most unflattering sports cards of all time, ranked**\
-`Where Bronny James and his dad land in a ranking of the 17 most unflattering sports cards of all time`\
-https://nytimes.com/athletic/6478759/2025/07/09/bronny-james-leave-worst-sports-cards/
-
-**Senate Confirms Bryan Bedford to Lead F.A.A.**\
-`The agency is under pressure to modernize outdated air traffic control systems that have contributed to a series of outages, near-misses, and deadly accidents in recent months.`\
-https://nytimes.com/2025/07/09/us/politics/bedford-faa-senate-confirmation.html
 
