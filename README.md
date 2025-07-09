@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/09/world/europe/henry-mount-charles-dead.html
 `United announced plans in March to build a new 100,000 capacity stadium, replacing their Old Trafford home.`\
 https://nytimes.com/athletic/6483786/2025/07/09/manchester-united-new-stadium-world-cup/
 
-**Yankees designate DJ LeMahieu for assignment, still owed $15 million in 2026**\
+**Yankees designate DJ LeMahieu for assignment, still owe him $15 million in 2026**\
 `The club will owe LeMahieu about $22 million, which includes the rest of his $15 million salary this season, along with $15 million in 2026.`\
 https://nytimes.com/athletic/6481539/2025/07/09/dj-lemahieu-yankees-designate-for-assignment/
 
