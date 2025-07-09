@@ -1,3 +1,11 @@
+**The Pulse: How politics could threaten Bills’ ambitions**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6481324/2025/07/09/bills-trump-canada-the-pulse/
+
+**In Rare Video, Jailed Kurdish Leader Declares an End to Armed Struggle**\
+`In the first footage of him to be released publicly in 25 years, Abdullah Ocalan said the P.K.K. insurgency against Turkey would be replaced by politics.`\
+https://nytimes.com/2025/07/09/world/middleeast/turkey-pkk-kurdish-leader-ocalan-armed-struggle.html
+
 **French Police Raid National Rally Offices Over Campaign Finances**\
 `The authorities said they are investigating whether the nationalist, anti-immigrant party ran afoul of France’s campaign finance rules.`\
 https://nytimes.com/2025/07/09/world/europe/france-national-rally-raid.html
