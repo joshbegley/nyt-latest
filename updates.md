@@ -1,3 +1,7 @@
+**Aces' A'ja Wilson exits game with right wrist injury during loss to Liberty**\
+`Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
+https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
+
 **Oilers trade for Hobey Baker winner Isaac Howard, send Sam O'Reilly to Lightning**\
 `The Oilers have also signed Howard to a three-year, entry-level contract, negating a potential return to college.`\
 https://nytimes.com/athletic/6482026/2025/07/08/oilers-trade-isaac-howard-sam-oreilly-lightning/
