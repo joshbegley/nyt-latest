@@ -1,3 +1,19 @@
+**South Korea Arrests Impeached Ex-Leader for a Second Time**\
+`Former President Yoon Suk Yeol, already ​accused of insurrection, faced additional ​criminal charges after a special counsel expanded the investigation into his ill-fated declaration of martial law.`\
+https://nytimes.com/2025/07/09/world/asia/south-korea-arrest-yoon-suk-yeol.html
+
+**A Zero SP fantasy baseball strategy prioritizes hitters. What's the advantage?**\
+`Michael Salfino details why it pays to invest heavily in offense early in fantasy baseball drafts, especially the top 30 hitters by ADP.`\
+https://nytimes.com/athletic/6483327/2025/07/09/zero-sp-fantasy-baseball-strategy-prioritizes-hitters/
+
+**Wiegman's England thrive in pressure moments but rarely have they played better than this**\
+`The Lionesses knew defeat would likely end their Euros hopes but they produced arguably their best display under Wiegman`\
+https://nytimes.com/athletic/6483883/2025/07/09/england-netherlands-wiegman-euros/
+
+**Eric Adams Asked Bill Ackman to Vet Campaign Manager Before Hiring Him**\
+`Mr. Ackman and another hedge fund titan, Daniel S. Loeb, interviewed a potential campaign hire for Mayor Adams, who is courting their financial support.`\
+https://nytimes.com/2025/07/09/nyregion/eric-adams-eugene-noh-bill-ackman.html
+
 **What’s in Our Queue? ‘Schitt’s Creek’ and More **\
 `Text by Alan Blinder`\
 https://nytimes.com/card/2025/07/09/arts/editors-recommendations-schittscreek
