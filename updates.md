@@ -1,3 +1,7 @@
+**Caitlin Clark is expected back for the Fever. Here's how to watch them vs. Valkyries**\
+`Caitlin Clark is expected to make her much-anticipated return Wednesday afternoon as the Indiana Fever host the Golden State Valkyries.`\
+https://nytimes.com/athletic/6481514/2025/07/09/valkyries-fever-wnba-caitlin-clark-return-how-to-watch/
+
 **Fire Rages Near Marseille**\
 `Flames burned on the outskirts of the French city, injuring over 100 people and prompting evacuations.`\
 https://nytimes.com/video/world/europe/100000010274922/marseille-wildfires-france.html

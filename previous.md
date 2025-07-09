@@ -1,3 +1,7 @@
+**Caitlin Clark is expected back for the Fever. Here's how to watch them vs. Valkyries**\
+`Caitlin Clark is expected to make her much-anticipated return Wednesday afternoon as the Indiana Fever host the Golden State Valkyries.`\
+https://nytimes.com/athletic/6481514/2025/07/09/valkyries-fever-wnba-caitlin-clark-return-how-to-watch/
+
 **Fire Rages Near Marseille**\
 `Flames burned on the outskirts of the French city, injuring over 100 people and prompting evacuations.`\
 https://nytimes.com/video/world/europe/100000010274922/marseille-wildfires-france.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/nyregion/new-jersey-transit-old-train.html
 **PSG vs Real Madrid Club World Cup odds, prediction: Which power will advance to final?**\
 `PSG and Real Madrid is a meeting worthy of a final, but the two powers meet in a semi-final of the Club World Cup.`\
 https://nytimes.com/athletic/6480925/2025/07/09/psg-real-madrid-club-world-cup-odds-prediction/
-
-**What It Means to Lead an Investigative Team of Many**\
-`How do six reporters share an article? Their editor explains.`\
-https://nytimes.com/2025/07/09/insider/investigative-reporting.html
 
