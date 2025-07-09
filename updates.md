@@ -1,3 +1,23 @@
+**Guatemala Closes Schools in Capital After Earthquakes**\
+`A 5.7-magnitude earthquake and its aftershocks near Guatemala City led to landslides that were reported to have killed at least two people.`\
+https://nytimes.com/2025/07/09/world/americas/guatemala-earthquake-landslide.html
+
+**Ronny Chieng on Trumpâs Nobel Nomination: Consider the Source**\
+`An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like âa Husband of the Year nomination from O.J. Simpson,â the âDaily Showâ host said.`\
+https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
+
+**Uruguay resumes training for Copa AmÃ©rica after players protest conditions**\
+`The national teamâs players union told The Athletic that the national team's protest was a result of âsome differences in negotiations."`\
+https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
+
+**Wednesday Briefing: Rare Earths, Made in Europe?**\
+`Plus, Swedenâs secret to well-being.`\
+https://nytimes.com/2025/07/09/briefing/china-france-rare-earth-metals-ukraine.html
+
+**Bibiâs Empty Victory Lap**\
+`The 12-day war is over. But thereâs no peace in sight.`\
+https://nytimes.com/2025/07/09/opinion/netanyahu-israel-war.html
+
 **Ronny Chieng on Trump’s Nobel Nomination: Consider the Source**\
 `An endorsement from Benjamin Netanyahu for the Nobel Peace Prize is like “a Husband of the Year nomination from O.J. Simpson,” the “Daily Show” host said.`\
 https://nytimes.com/2025/07/09/arts/television/ronny-chieng-trump-nobel-netanyahu.html
