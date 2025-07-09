@@ -1,3 +1,15 @@
+**What happens when college football enters its own Moneyball era?**\
+`In this week's sports business cheat sheet, digging into Texas Tech, Ben Shelton and readers' favorite 21st century sports movies.`\
+https://nytimes.com/athletic/6483008/2025/07/09/texas-tech-christian-horner-ben-shelton-moneycall/
+
+**Mel Robbins Unpacks Her ‘Let Me’ Theory**\
+`The best-selling author and motivational podcast host Mel Robbins is known for her blunt advice and viral wisdom, including her “Let Me” theory, which she explains to the “Modern Love” host, Anna Martin.`\
+https://nytimes.com/video/podcasts/100000010273341/mel-robbins-unpacks-her-let-me-theory.html
+
+**Iga Swiatek reaches first Wimbledon semifinal with win over Liudmila Samsonova**\
+`The five-time Grand Slam champion reached her first Wimbledon semifinal with a controlled and ultimately comprehensive straight-sets win.`\
+https://nytimes.com/athletic/6483032/2025/07/09/tennis-wimbledon-swiatek-result-analysis-samsonova/
+
 **Clippers summer league preview: Which players to watch, Jordan Miller waived**\
 `Law Murray takes a look at the Clippers summer league roster and what they need to improve in Las Vegas. `\
 https://nytimes.com/athletic/6482181/2025/07/09/clippers-summer-league-jordan-miller-kobe-brown-sanders/
