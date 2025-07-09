@@ -1,3 +1,11 @@
+**Tensions Escalate in San Francisco Over Immigration Enforcement**\
+`Videos captured a scuffle between protesters and immigration agents outside a courthouse. No injuries were immediately reported, the police said.`\
+https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
+
+**Boy, 13, Started California Wildfire With Illegal Fireworks, Police Say**\
+`The Rancho fire, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
+https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
+
 **Isaac Paredes, Zach McKinstry join AL's All-Star roster, replacing José Ramírez, Jeremy Peña**\
 `Ramírez will miss the All-Star Game to recover from what has been a painful first half, while Paredes gets his second All-Star nod.`\
 https://nytimes.com/athletic/6484163/2025/07/09/mlb-all-star-isaac-paredes-jose-ramirez/

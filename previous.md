@@ -1,3 +1,7 @@
+**Tensions Escalate in San Francisco Over Immigration Enforcement**\
+`Videos captured a scuffle between protesters and immigration agents outside a courthouse. No injuries were immediately reported, the police said.`\
+https://nytimes.com/2025/07/09/us/ice-immigration-protest-san-francisco.html
+
 **Houthis Took Sailors Hostage After Attacking Ship, U.S. Says**\
 `The Yemeni militia, backed by Iran, said it had sunk a Liberian-flagged cargo ship in the Red Sea. Liberia said the attack killed two crew members.`\
 https://nytimes.com/2025/07/09/world/middleeast/houthis-red-sea-hostages.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-r
 https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
 
 **Boy, 13, Started California Wildfire With Illegal Fireworks, Police Say**\
-`The Rancho, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
+`The Rancho fire, which burned nearly five acres in Laguna Beach, prompted evacuations and caused power outages.`\
 https://nytimes.com/2025/07/09/us/aguna-beach-rancho-fire-arrest-california.html
 
 **Isaac Paredes, Zach McKinstry join AL's All-Star roster, replacing José Ramírez, Jeremy Peña**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483230/2025/07/09/club-world-cup-final-chelsea-psg
 **Read the document**\
 `The Supreme Court lifted a lower court’s ruling that had blocked mass layoffs in the federal work force.`\
 https://nytimes.com/interactive/2025/07/09/us/politics/scotus-layoffs-order.html
-
-**Mexican Firefighters Join Search for the Missing in Texas**\
-`The day after a deadly flood killed more than 100 people in Central Texas, firefighters from the Mexican nonprofit Fundación 911 crossed the border to help search for survivors. They described the difficulty of the mission and what it means to them.`\
-https://nytimes.com/video/us/100000010273048/texas-flooding-search-mexican-firefighters.html
 
