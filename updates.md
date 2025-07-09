@@ -1,3 +1,15 @@
+**At Least 173 People Remain Missing After Texas Floods**\
+`Officials said the search for remains would continue until all the victims have been accounted for. In the hardest-hit county, no survivors have been found since Friday.`\
+https://nytimes.com/2025/07/09/us/texas-floods-missing-search.html
+
+**Oviedo confident on renewing Cazorla new deal for new La Liga season**\
+`Last season, Cazorla helped his hometown club return to the top flight of Spanish football for the first time since 2001.`\
+https://nytimes.com/athletic/6482513/2025/07/09/santi-cazorla-oviedo-la-liga/
+
+**Trump’s Trade War Roils the Copper Market**\
+`Futures contracts hit a record price after the president announced plans for a 50 percent tariff on the metal, driving up costs for businesses.`\
+https://nytimes.com/2025/07/09/business/dealbook/trump-trade-war-copper.html
+
 **Musiala says 'nobody is to blame' for fractured fibula injury**\
 `The 22-year-old suffered the injury during a collision with PSG goalkeeper Gianluigi Donnarumma on Saturday.`\
 https://nytimes.com/athletic/6482598/2025/07/09/jamal-musiala-injury-donnarumma-bayern/
