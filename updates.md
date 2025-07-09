@@ -1,3 +1,23 @@
+**NHL trade grades: Oilers, Lightning pull off top prospects swap**\
+`Isaac Howard could play in the NHL next season, whereas Sam O'Reilly is likely several seasons away.`\
+https://nytimes.com/athletic/6481990/2025/07/08/nhl-trade-grades-oilers-isaac-howard-lightning-sam-oreilly/
+
+**Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
+`It's Suarez’s second consecutive All-Star selection and the first for both Abbott and Caminero.`\
+https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
+
+**Luke Keaschall, Zebby Matthews look for inside track as they return from injury**\
+`Manager Rocco Baldelli liked what he saw as two players who could immediately help the club demonstrated how close to ready they were.`\
+https://nytimes.com/athletic/6481918/2025/07/08/twins-luke-keaschall-zebby-matthews-injury-return/
+
+**Many Moons**\
+`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
+https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
+
+**Trump Got the Green Light to Fire Federal Workers. Now, They Wait.**\
+`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trump’s directive for mass layoffs. The Supreme Court said the administration could proceed.`\
+https://nytimes.com/2025/07/08/us/politics/trump-federal-workers-firings.html
+
 **Many Moons**\
 `DesirÃ©e Penner and Jeff Sinnockâs crossword borders on genius.`\
 https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
