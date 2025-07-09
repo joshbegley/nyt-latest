@@ -1,3 +1,11 @@
+**Aces' A'ja Wilson exits game in first half vs. Liberty with wrist injury**\
+`Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
+https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
+
+**Caitlin Clark, Napheesa Collier draft WNBA All-Star rosters, trade coaches**\
+`The WNBA All-Star Game draft included a little bit of light trash talk, some clear loyalties in the picks and a coach swap.`\
+https://nytimes.com/athletic/6481839/2025/07/08/caitlin-clark-napheesa-collier-wnba-all-star-draft/
+
 **Trump Got the Green Light to Fire Federal Workers. Now, They Wait.**\
 `A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trump’s directive for mass layoffs. The Supreme Court said the administration could proceed.`\
 https://nytimes.com/2025/07/08/us/politics/trump-federal-workers-firings.html
