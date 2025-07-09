@@ -1,3 +1,7 @@
+**Christian Horner sacked as Red Bull F1 team principal**\
+`The Englishman leaves after 20 years in the role.`\
+https://nytimes.com/athletic/6482419/2025/07/09/christian-horner-red-bull-sacked-f1/
+
 **Philadelphia Public Workers Reach Deal to End Strike**\
 `The city’s largest public sector union and the mayor reached a tentative deal, ending a work stoppage that led to piles of trash on the streets.`\
 https://nytimes.com/2025/07/09/world/americas/philadelphia-strike-trash.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/us/rivers-are-the-soul-of-the-texas-hill-country-
 **Trump Didn’t Always Tout Tariffs. Now He Sees Them as a Way to Flex Power.**\
 `Instead of treating tariffs as part of a broader trade policy, President Trump views them as a valuable weapon he can wield on the world stage.`\
 https://nytimes.com/2025/07/09/us/politics/trump-tariffs-trade-policy.html
-
-**These Americans Went Looking for a Romanticized Britain. They Found a Different Story.**\
-`Like the lead character of “Too Much,” they moved across the Atlantic with visions of Jane Austen and Merchant Ivory. The reality was a little less dreamy.`\
-https://nytimes.com/2025/07/09/style/americans-england-romance-tv-movies.html
 

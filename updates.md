@@ -1,3 +1,7 @@
+**Christian Horner sacked as Red Bull F1 team principal**\
+`The Englishman leaves after 20 years in the role.`\
+https://nytimes.com/athletic/6482419/2025/07/09/christian-horner-red-bull-sacked-f1/
+
 **Philadelphia Public Workers Reach Deal to End Strike**\
 `The city’s largest public sector union and the mayor reached a tentative deal, ending a work stoppage that led to piles of trash on the streets.`\
 https://nytimes.com/2025/07/09/world/americas/philadelphia-strike-trash.html
