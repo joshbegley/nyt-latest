@@ -1,3 +1,7 @@
+**Trump Tariffs Aim to Settle Scores With Countries, No Matter How Small**\
+`The president’s tariff announcements suggest he has not backed away from his initial strategy, where even minor trading partners will face tariffs.`\
+https://nytimes.com/2025/07/09/business/economy/trump-tariffs-global-trade.html
+
 **Texas Officials Defer Questions About Flood Disaster Preparation**\
 `During a news conference on Wednesday, Kerr County officials recounted their response to the devastating flood in central Texas on July 4.`\
 https://nytimes.com/video/weather/100000010275637/kerr-county-dodge-flood-preparation-questions.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483152/2025/07/09/scott-frost-nebraska-ucf-big-12-
 **How Elephants Say They Like Them Apples**\
 `Researchers found that the animals are capable of using their trunks to make a range of gestures that express their intentions and wants.`\
 https://nytimes.com/2025/07/09/science/elephants-gesturing-trunk.html
-
-**Why 1.5 Million New Yorkers Could Lose Health Insurance Under Trump Bill**\
-`As in other states, Medicaid will be affected. But so will another health insurance program that plays a bigger role in New York than elsewhere.`\
-https://nytimes.com/2025/07/09/nyregion/trump-domestic-policy-bill-new-york-health-care.html
 
