@@ -1,3 +1,15 @@
+**The Briefing: England 4 Netherlands 0 - James' magic moment, Stanway's stunner and Lionesses back on track**\
+`Analysis of the major talking points as England beat Netherlands to breathe new life into their Euro 2025 campaign`\
+https://nytimes.com/athletic/6482567/2025/07/09/england-netherlands-euros-analysis-james/
+
+**Tour de France stage five: Evenepoel's exhibition, Pogacar into yellow, nightmare day for Vingegaard**\
+`Analysis of the fifth stage of the 2025 Tour de France, a 33km time trial starting and finishing in the city of Caen`\
+https://nytimes.com/athletic/6482799/2025/07/09/tour-de-france-stage-five-analysis/
+
+**Sherman: Scott Frost's Nebraska regrets show lack of accountability for failed tenure**\
+`Frost said Tuesday that Nebraska was the "wrong job" for him. Fans of the Huskers, in retrospect, agree.`\
+https://nytimes.com/athletic/6483152/2025/07/09/scott-frost-nebraska-ucf-big-12-media-days/
+
 **Scott Frost's Nebraska regrets show lack of accountability for failed tenure: Sherman**\
 `Frost said Tuesday that Nebraska was the "wrong job" for him. Fans of the Huskers, in retrospect, agree.`\
 https://nytimes.com/athletic/6483152/2025/07/09/scott-frost-nebraska-ucf-big-12-media-days/
