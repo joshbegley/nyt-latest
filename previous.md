@@ -1,3 +1,7 @@
+**Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
+`Itâs the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
+https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
+
 **Women's Euro 2025: Who will advance out of the group stage?**\
 `Here's where things stand at Euro 2025 after two rounds of group stage matches`\
 https://nytimes.com/athletic/6483371/2025/07/09/womens-euro-2025-permutations/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484018/2025/07/09/nascar-23xi-front-row-lawsuit-ch
 **Wimbledon recap: Ben Shelton's Grand Slam roadblock and Novak Djokovic's slip**\
 `The Wimbledon quarterfinals wrapped up today â here's what happened.`\
 https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-results-analysis/
-
-**Court Overturns Conviction for Memes That Sought to Trick Clinton Voters**\
-`Douglass Mackeyâs posts in 2016 falsely advertised text voting for Hillary Clinton. Appeals court judges said prosecutors had not shown that his actions were part of a conspiracy.`\
-https://nytimes.com/2025/07/09/nyregion/meme-conviction-overturned.html
 

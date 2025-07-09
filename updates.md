@@ -1,3 +1,7 @@
+**Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
+`Itâs the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
+https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
+
 **Putin Is Undeterred by Trumpâs Public Anger**\
 `Also, measles cases hit a 25-year high. Hereâs the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
