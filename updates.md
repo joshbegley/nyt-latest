@@ -1,3 +1,7 @@
+**Trump’s Frustration With Putin Preceded Resumption of U.S. Weapons to Ukraine**\
+`President Trump lashed out at the Russian leader on Tuesday, signaling a change in his posture toward the conflict.`\
+https://nytimes.com/2025/07/08/us/politics/trump-putin-ukraine.html
+
 **After Mike Rizzo, Davey Martinez firings, Nationals interim GM eyes major changes**\
 `"The fans are frustrated. We're all frustrated," DeBartolo said. "We have a lot of interesting, exciting young pieces to build on."`\
 https://nytimes.com/athletic/6481562/2025/07/08/mike-debartolo-nationals-interim-general-manager/
