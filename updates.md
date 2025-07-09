@@ -1,4 +1,20 @@
 **Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
+`It’s the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
+https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
+
+**Putin Is Undeterred by Trump’s Public Anger**\
+`Also, measles cases hit a 25-year high. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/09/briefing/putin-trump-ukraine-war-comey-fbi.html
+
+**NASCAR teams 23XI, Front Row could lose charters next week: Here's what it means**\
+`A court decision Wednesday means 23XI Racing and Front Row Motorsports could lose their charters — and possibly more — as soon as next week.`\
+https://nytimes.com/athletic/6484018/2025/07/09/nascar-23xi-front-row-lawsuit-charters-tyler-reddick/
+
+**Wimbledon recap: Ben Shelton's Grand Slam roadblock and Novak Djokovic's slip**\
+`The Wimbledon quarterfinals wrapped up today — here's what happened.`\
+https://nytimes.com/athletic/6484175/2025/07/09/tennis-wimbledon-quarterfinals-results-analysis/
+
+**Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
 `Itâs the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
 https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
 
