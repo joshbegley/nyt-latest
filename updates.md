@@ -1,3 +1,11 @@
+**Canada Thinks Its Trade Talks With Trump Are Unique. Does That Matter?**\
+`Tariff negotiations between the two top trading partners are on a different track from those the U.S. is pursuing with other nations. But Canada may not get a better outcome.`\
+https://nytimes.com/2025/07/09/world/canada/tariffs-trump-trade-us.html
+
+**NASCAR's season-opening Clash race will return to Bowman Gray Stadium in 2026**\
+`NASCAR's exhibition Clash race to kick off the season will return to the Winston-Salem short track in 2026, the league announced Wednesday.`\
+https://nytimes.com/athletic/6481649/2025/07/09/nascar-clash-bowman-gray-stadium-2026-race/
+
 **Liverpool's pre-season friendly against Preston to go ahead on Sunday**\
 `Discussions between the clubs took place following the tragic deaths of Diogo Jota and his brother Andre Silva last Thursday.`\
 https://nytimes.com/athletic/6482713/2025/07/09/liverpool-preston-friendly-news-update/
