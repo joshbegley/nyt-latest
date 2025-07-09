@@ -1,36 +1,36 @@
-**Caitlin Clark is expected back for the Fever. Here's how to watch them vs. Valkyries**\
-`Caitlin Clark is expected to make her much-anticipated return Wednesday afternoon as the Indiana Fever host the Golden State Valkyries.`\
-https://nytimes.com/athletic/6481514/2025/07/09/valkyries-fever-wnba-caitlin-clark-return-how-to-watch/
+**In a server's paradise at Wimbledon, the return is king**\
+`Grass is more hospitable to servers than any other surface. Winning on it requires being able to get those serves back with interest.`\
+https://nytimes.com/athletic/6476716/2025/07/09/tennis-serve-return-most-important-shot-grass-wimbledon/
 
-**Fire Rages Near Marseille**\
-`Flames burned on the outskirts of the French city on Tuesday, injuring over 100 people and prompting evacuations.`\
-https://nytimes.com/video/world/europe/100000010274922/marseille-wildfires-france.html
+**A Fact About the Floods the Government Doesn’t Seem Eager to Discuss**\
+`The National Weather Service put out good forecasts. But a vital employee was missing.`\
+https://nytimes.com/2025/07/09/opinion/texas-floods-nws.html
 
-**It’s Alive!**\
-`In an electric show, Iris van Herpen breaks the fabric barrier. She even grew a dress.`\
-https://nytimes.com/2025/07/09/style/iris-van-herpen-living-dress.html
+**Bessent Steps Up Criticism of Fed as Auditions for Chair Intensify**\
+`The Treasury secretary is breaking with tradition in publicly assailing the central bank’s policies as President Trump looks for its next leader.`\
+https://nytimes.com/2025/07/09/us/politics/bessent-federal-reserve-chair.html
 
-**In a Good-Will Gesture, South Korea Returns Stranded Fishermen to the North**\
-`The fishermen’s boats had drifted into South Korean waters, officials said. The South’s new president has been trying to improve ties with North Korea.`\
-https://nytimes.com/2025/07/09/world/asia/south-korea-returns-north-korean-fishermen.html
+**Rivers Are the Soul of the Texas Hill Country, and a Source of Heartache**\
+`The rivers etching the terrain are a beloved feature of the rapidly growing region. But last week’s flooding was an agonizing reminder of the dangers they pose.`\
+https://nytimes.com/2025/07/09/us/rivers-are-the-soul-of-the-texas-hill-country-and-a-source-of-heartache.html
 
-**Even in Absence, Armani Is in Control**\
-`Giorgio Armani had to miss his Privé show. But he still got the last word.`\
-https://nytimes.com/2025/07/09/style/armani-prive-couture.html
+**Trump Didn’t Always Tout Tariffs. Now He Sees Them as a Way to Flex Power.**\
+`Instead of treating tariffs as part of a broader trade policy, President Trump views them as a valuable weapon he can wield on the world stage.`\
+https://nytimes.com/2025/07/09/us/politics/trump-tariffs-trade-policy.html
 
-**With Taxes and Tariffs in Place, Trump Takes Reins of U.S. Economy**\
-`President Trump has achieved much of his agenda, leaving the fate of the economy squarely in his hands.`\
-https://nytimes.com/2025/07/09/us/politics/trump-bill-tariffs-economy.html
+**These Americans Went Looking for a Romanticized Britain. They Found a Different Story.**\
+`Like the lead character of “Too Much,” they moved across the Atlantic with visions of Jane Austen and Merchant Ivory. The reality was a little less dreamy.`\
+https://nytimes.com/2025/07/09/style/americans-england-romance-tv-movies.html
 
-**How One Overdose Unraveled an Empire of Heroin**\
-`A man’s death after using “Flow” in a small Vermont city exposed a drug operation that spanned continents and sent a New York prosecutor on a heartbreaking journey.`\
-https://nytimes.com/2025/07/09/nyregion/heroin-flow-rutland-vermont-bronx.html
+**Biden’s Chief Economist: The Chart That Convinced Me Our Debt Is a Serious Problem**\
+`I’m no longer sanguine about the threats posed by the nation’s deficits.`\
+https://nytimes.com/2025/07/09/opinion/debt-deficit-economy-shock.html
 
-**Locomotive 4207, on the Rails for 60 Years and Still Hauling Commuters**\
-`New Jersey Transit relies on more than 20 old-school diesel engines, including the United States’ oldest locomotive in regular passenger service.`\
-https://nytimes.com/2025/07/09/nyregion/new-jersey-transit-old-train.html
+**A Primer on Primaries for New Yorkers**\
+`Should they be open or closed? In even years or odd? The mayor’s charter revision panel is considering shaking up the city’s voting system.`\
+https://nytimes.com/2025/07/09/nyregion/a-primer-on-primaries-for-new-yorkers.html
 
-**PSG vs Real Madrid Club World Cup odds, prediction: Which power will advance to final?**\
-`PSG and Real Madrid is a meeting worthy of a final, but the two powers meet in a semi-final of the Club World Cup.`\
-https://nytimes.com/athletic/6480925/2025/07/09/psg-real-madrid-club-world-cup-odds-prediction/
+**Let Mel Robbins Share Her 5 Tips for a Healthy Relationship**\
+`The author and podcast host reveals how to let go of control.`\
+https://nytimes.com/2025/07/09/podcasts/mel-robbins-relationship-tips-let-them-theory.html
 
