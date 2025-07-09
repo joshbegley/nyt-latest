@@ -1,3 +1,15 @@
+**Parsing the Dodgers' six-game losing streak, their worst since 2019**\
+`Very little has gone well for the Dodgers over the last week, leading to something that hasn’t been seen in years.`\
+https://nytimes.com/athletic/6484279/2025/07/09/dodgers-losing-streak-worst-since-2019/
+
+**Trump Says He’s Making America More Competitive. Is He?**\
+`Experts fear that the president’s economic policies could increase costs and stifle innovation.`\
+https://nytimes.com/2025/07/09/us/politics/trump-tariffs-taxes-economy.html
+
+**Mexico Sentences 10 Men Arrested at Cartel Ranch to 140 Years Each in Prison**\
+`The men were convicted of killing one person and disappearing two others at a ranch in Jalisco state, where the authorities found piles of shoes, clothing and hundreds of personal items.`\
+https://nytimes.com/2025/07/09/world/americas/mexico-izaguirre-ranch-cartel.html
+
 **Dodgers' Michael Kopech has surgery to repair a torn meniscus: Source**\
 `It’s the second major absence already this season for Kopech, who dealt with shoulder and forearm trouble this spring.`\
 https://nytimes.com/athletic/6484362/2025/07/09/dodgers-michael-kopech-has-surgery-to-repair-a-torn-meniscus-source/
