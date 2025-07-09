@@ -1,3 +1,15 @@
+**Trump Tariffs Aim to Settle Scores With Countries, No Matter How Small**\
+`The president’s tariff announcements suggest he has not backed away from his initial strategy, where even minor trading partners will face tariffs.`\
+https://nytimes.com/2025/07/09/business/economy/trump-tariffs-global-trade.html
+
+**Texas Officials Defer Questions About Flood Disaster Preparation**\
+`During a news conference on Wednesday, Kerr County officials recounted their response to the devastating flood in central Texas on July 4.`\
+https://nytimes.com/video/weather/100000010275637/kerr-county-dodge-flood-preparation-questions.html
+
+**A Surgeon on the Desperation in Gaza: ‘They’re Prepared to Die for a Bagful of Rice’**\
+`Dr. Victoria Rose spent 21 days in the territory in May, treating people who were shot trying to get food and children with life-changing injuries from Israeli bombs.`\
+https://nytimes.com/2025/07/09/world/middleeast/gaza-hospitals-uk-surgeon-israel-attacks.html
+
 **Supporter who verbally abused Wrexham's McClean fined in landmark case**\
 `McClean has described himself as the subject of “more abuse than any other player in England”.`\
 https://nytimes.com/athletic/6483597/2025/07/09/james-mcclean-wrexham-abuse-fine/
