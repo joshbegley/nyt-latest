@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Schitt’s Creek’ and More **\
+`Text by Alan Blinder`\
+https://nytimes.com/card/2025/07/09/arts/editors-recommendations-schittscreek
+
+**Supreme Court Won’t Revive Aggressive Florida Immigration Law**\
+`The law, enacted this year, made it a crime for unauthorized migrants to enter the state. Challengers say immigration is a federal matter.`\
+https://nytimes.com/2025/07/09/us/politics/supreme-court-florida-immigration-law.html
+
 **Caitlin Clark returns from injury as Fever fall to Valkyries**\
 `After missing the previous five games with the left groin injury, Clark was back in uniform as the Fever lost to the Valkyries, 80-61.`\
 https://nytimes.com/athletic/6483907/2025/07/09/caitlin-clark-injury-fever-valkyries/
