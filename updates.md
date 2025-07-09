@@ -1,3 +1,7 @@
+**How to watch the 2025 Genesis Scottish Open: Wind, weather and real stakes**\
+`The Scottish Open isn’t about birdie runs. It’s about bounce control, bad breaks and keeping calm when the wind shifts mid-swing.`\
+https://nytimes.com/athletic/6481827/2025/07/09/scottish-open-weather-pga-golf-how-to-watch-2025/
+
 **Live Q&A with Sabres reporter Matthew Fairburn on Wednesday at noon ET**\
 `Matthew Fairburn will answer subscribers’ questions about the Sabres during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
 https://nytimes.com/athletic/6480740/2025/07/09/sabres-live-questions-july-2025/

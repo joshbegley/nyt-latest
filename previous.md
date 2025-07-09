@@ -1,3 +1,7 @@
+**How to watch the 2025 Genesis Scottish Open: Wind, weather and real stakes**\
+`The Scottish Open isn’t about birdie runs. It’s about bounce control, bad breaks and keeping calm when the wind shifts mid-swing.`\
+https://nytimes.com/athletic/6481827/2025/07/09/scottish-open-weather-pga-golf-how-to-watch-2025/
+
 **Live Q&A with Sabres reporter Matthew Fairburn on Wednesday at noon ET**\
 `Matthew Fairburn will answer subscribers’ questions about the Sabres during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
 https://nytimes.com/athletic/6480740/2025/07/09/sabres-live-questions-july-2025/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/podcasts/the-daily/trump-epstein-conspiracy.html
 **A Green Light to Fire Federal Workers, and Trump’s Problem With Putin**\
 `Plus, the big business of youth sports.`\
 https://nytimes.com/2025/07/09/podcasts/the-headlines/trump-mass-layoffs-putin.html
-
-**How Tigers' Colt Keith stopped shaving and tapped into his potential**\
-`As his beard grows and his hot streak continues, Keith is finally tapping into his pull-side power.`\
-https://nytimes.com/athletic/6482053/2025/07/09/tigers-colt-keith-tapped-into-potential/
 

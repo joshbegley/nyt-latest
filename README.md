@@ -1,16 +1,24 @@
+**Chiellini joins LAFC ownership group**\
+`Chiellini spent the final 18 months of his playing career at MLS outfit LAFC, where he won both the MLS Cup and Supporters' Shield in 2022.`\
+https://nytimes.com/athletic/6482465/2025/07/09/giorgio-chiellini-lafc-ownership-group/
+
+**Why England are pinning their hopes on Jofra Archer**\
+`The fast bowler is back in the England team after four years away â why are cricket fans so thrilled to see him back?`\
+https://nytimes.com/athletic/6480608/2025/07/09/jofra-archer-england-fast-lords/
+
 **How to watch the 2025 Genesis Scottish Open: Wind, weather and real stakes**\
-`The Scottish Open isn’t about birdie runs. It’s about bounce control, bad breaks and keeping calm when the wind shifts mid-swing.`\
+`The Scottish Open isnât about birdie runs. Itâs about bounce control, bad breaks and keeping calm when the wind shifts mid-swing.`\
 https://nytimes.com/athletic/6481827/2025/07/09/scottish-open-weather-pga-golf-how-to-watch-2025/
 
 **Live Q&A with Sabres reporter Matthew Fairburn on Wednesday at noon ET**\
-`Matthew Fairburn will answer subscribers’ questions about the Sabres during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
+`Matthew Fairburn will answer subscribersâ questions about the Sabres during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
 https://nytimes.com/athletic/6480740/2025/07/09/sabres-live-questions-july-2025/
 
 **Bears fan survey 2025: Ben Johnson's arrival, Caleb Williams' next step**\
 `Our annual survey includes questions about the stadium saga, offseason acquisitions and how many games the Bears will win.`\
 https://nytimes.com/athletic/6480971/2025/07/09/bears-fan-survey-2025-ben-johnson-caleb-williams/
 
-**Can the NFL overcome Trump’s anti-Canada rhetoric? The Bills are banking on it**\
+**Can the NFL overcome Trumpâs anti-Canada rhetoric? The Bills are banking on it**\
 `For the Bills, growing their fan base and corporate foundation in Southern Ontario can keep them viable long after Josh Allen retires.`\
 https://nytimes.com/athletic/6479455/2025/07/09/nfl-trump-buffalo-bills-canada/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6480484/2025/07/09/shane-van-gisbergen-nascar-chica
 **Why Clemson and Notre Dame believe they have the recipe for a new rivalry**\
 `When does a new rivalry begin in college football? Notre Dame and Clemson may have already planted the seeds ahead of a 12-game series.`\
 https://nytimes.com/athletic/6481059/2025/07/09/notre-dame-clemson-rivalry-schedule-football/
-
-**Trump’s Top Aides Spread the Epstein Conspiracy. Now They Are Trying to Kill It.**\
-`The Justice Department noted a lack of evidence in the Epstein documents.`\
-https://nytimes.com/2025/07/09/podcasts/the-daily/trump-epstein-conspiracy.html
-
-**A Green Light to Fire Federal Workers, and Trump’s Problem With Putin**\
-`Plus, the big business of youth sports.`\
-https://nytimes.com/2025/07/09/podcasts/the-headlines/trump-mass-layoffs-putin.html
 
