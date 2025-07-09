@@ -1,3 +1,7 @@
+**Yankees designate DJ LeMahieu for assignment, still owe him $15 million in 2026**\
+`The club will owe LeMahieu about $22 million, which includes the rest of his $15 million salary this season, along with $15 million in 2026.`\
+https://nytimes.com/athletic/6481539/2025/07/09/dj-lemahieu-yankees-designate-for-assignment/
+
 **New U.S. Army Shaving Rule Could Affect Many Black Soldiers**\
 `Soldiers with skin conditions like razor bumps will no longer be granted permanent medical waivers that allow them to grow beards and could be kicked out of the Army if they are not clean shaven.`\
 https://nytimes.com/2025/07/09/us/army-facial-hair-policy-requirements-shaving.html
