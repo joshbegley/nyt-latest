@@ -1,3 +1,11 @@
+**Roma working on deal to sign Brighton's Evan Ferguson on loan**\
+`While no agreement has been reached, Roma are hopeful of landing the 20-year-old Republic of Ireland international.`\
+https://nytimes.com/athletic/6482727/2025/07/09/roma-loan-deal-brighton-evan-ferguson/
+
+**Arsenal make contact with Chelsea over Madueke deal**\
+`Personal terms are in place over a proposed five-year contract for Madueke at the north London side.`\
+https://nytimes.com/athletic/6475127/2025/07/09/noni-madueke-arsenal-transfer-chelsea/
+
 **Inside-the-park walk-off HR! Catcher Patrick Bailey makes history in Giants' wild win**\
 `Bailey is the first major-league catcher in 99 years to end a game with an inside-the-park home run. He entered the game hitting .188.`\
 https://nytimes.com/athletic/6482357/2025/07/09/patrick-bailey-walk-off-home-run-giants-phillies/

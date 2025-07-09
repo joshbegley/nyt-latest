@@ -1,3 +1,7 @@
+**No Fashion Show Invite? No Problem.**\
+`Denied a seat at Jonathan Anderson’s Dior debut, a fashion critic invited all of Paris to watch it with him at a bar. Hundreds took him up on the offer.`\
+https://nytimes.com/2025/07/09/style/dior-watch-party-paris-elias-medini-lyas.html
+
 **Roma working on deal to sign Brighton's Evan Ferguson on loan**\
 `While no agreement has been reached, Roma are hopeful of landing the 20-year-old Republic of Ireland international.`\
 https://nytimes.com/athletic/6482727/2025/07/09/roma-loan-deal-brighton-evan-ferguson/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6301499/2025/07/09/besiktas-walker-peters-transfer-
 **Israel Launches New Ground Operations in Lebanon Despite Truce**\
 `For months, Israel has conducted near-daily strikes against what it says are Hezbollah targets. Hezbollah has not responded militarily since a November truce.`\
 https://nytimes.com/2025/07/09/world/europe/israel-lebanon.html
-
-**European Court Holds Russia Responsible for ‘Widespread’ Rights Violations in Ukraine**\
-`In symbolic rulings, Moscow was again blamed for the downing of Flight MH17 in 2014 and for an array of war-related human rights violations, including the transfer of Ukrainian children to Russia.`\
-https://nytimes.com/2025/07/09/world/europe/european-court-human-rights-russia-mh17-ukraine.html
 
