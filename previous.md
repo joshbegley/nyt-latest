@@ -1,5 +1,5 @@
 **Many Moons**\
-`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
+`DesirÃ©e Penner and Jeff Sinnockâs crossword borders on genius.`\
 https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
 
 **Real Madrid's Club World Cup semi-final plans disrupted by flight delay**\
@@ -19,14 +19,14 @@ https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-i
 https://nytimes.com/athletic/6481839/2025/07/08/caitlin-clark-napheesa-collier-wnba-all-star-draft/
 
 **Trump Got the Green Light to Fire Federal Workers. Now, They Wait.**\
-`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trump’s directive for mass layoffs. The Supreme Court said the administration could proceed.`\
+`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trumpâs directive for mass layoffs. The Supreme Court said the administration could proceed.`\
 https://nytimes.com/2025/07/08/us/politics/trump-federal-workers-firings.html
 
 **Los Angeles Moves to Join Suit Against Immigration Raids**\
 `The legal move came the day after federal agents and National Guard troops converged on a Los Angeles park in an extraordinary show of force.`\
 https://nytimes.com/2025/07/08/us/politics/la-immigration-raids-trump-lawsuit.html
 
-**In Flooded Texas, Questions About FEMA’s Role and Fate**\
+**In Flooded Texas, Questions About FEMAâs Role and Fate**\
 `President Trump wants to shutter the agency and shift responsibility and costs of emergency management to the states. In Texas, that process appears to already be underway.`\
 https://nytimes.com/2025/07/08/climate/texas-flood-fema-trump.html
 
