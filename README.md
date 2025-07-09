@@ -1,3 +1,7 @@
+**Roma working on deal to sign Brighton's Evan Ferguson on loan**\
+`While no agreement has been reached, Roma are hopeful of landing the 20-year-old Republic of Ireland international.`\
+https://nytimes.com/athletic/6482727/2025/07/09/roma-loan-deal-brighton-evan-ferguson/
+
 **Arsenal make contact with Chelsea over Madueke deal**\
 `Personal terms are in place over a proposed five-year contract for Madueke at the north London side.`\
 https://nytimes.com/athletic/6475127/2025/07/09/noni-madueke-arsenal-transfer-chelsea/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/world/europe/israel-lebanon.html
 **European Court Holds Russia Responsible for ‘Widespread’ Rights Violations in Ukraine**\
 `In symbolic rulings, Moscow was again blamed for the downing of Flight MH17 in 2014 and for an array of war-related human rights violations, including the transfer of Ukrainian children to Russia.`\
 https://nytimes.com/2025/07/09/world/europe/european-court-human-rights-russia-mh17-ukraine.html
-
-**What will Gudmundsson bring to Leeds? And is he the right left-back for Farke?**\
-`Leeds have completed their fourth signing of the summer — does he provide what they need?`\
-https://nytimes.com/athletic/6482666/2025/07/09/gabriel-gudmundsson-leeds-analysis-transfer/
 
