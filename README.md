@@ -1,3 +1,11 @@
+**Trash Mounts in Philadelphia as City Workers Strike**\
+`Garbage collection was halted in the nation’s sixth most populous city as a strike by the city’s largest public sector union entered its second week.`\
+https://nytimes.com/video/us/100000010274804/trash-philadelphia-strike.html
+
+**New Mexico House Swept Away in Floodwaters**\
+`Heavy rain and severe flooding hit Ruidoso, N.M. on Tuesday, prompting rescues.`\
+https://nytimes.com/video/us/100000010274796/flooding-ruidoso-new-mexico.html
+
 **Oilers trade for Hobey Baker winner Isaac Howard, send Sam O'Reilly to Lightning**\
 `The Oilers have also signed Howard to a three-year, entry-level contract, negating a potential return to college.`\
 https://nytimes.com/athletic/6482026/2025/07/08/oilers-trade-isaac-howard-sam-oreilly-lightning/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
 **Real Madrid's Club World Cup semi-final plans disrupted by flight delay**\
 `The Spanish side had its travel plans disrupted by inclement weather`\
 https://nytimes.com/athletic/6481872/2025/07/08/real-madrid-flight-delay-club-world-cup-semifinal/
-
-**Sean Manaea eager to re-join Mets after final rehab start: 'I just felt healthy'**\
-`Veteran pitcher allowed three runs in 3 2/3 innings in his rehab start, but says the key is that he feels good.`\
-https://nytimes.com/athletic/6481868/2025/07/08/mets-sean-manaea-final-rehab-start/
-
-**Aces' A'ja Wilson exits game with right wrist injury during loss to Liberty**\
-`Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
-https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
 
