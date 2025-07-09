@@ -1,3 +1,7 @@
+**Oilers trade for Hobey Baker winner Isaac Howard, send Sam O'Reilly to Lightning**\
+`The Oilers have also signed Howard to a three-year, entry-level contract, negating a potential return to college.`\
+https://nytimes.com/athletic/6482026/2025/07/08/oilers-trade-isaac-howard-sam-oreilly-lightning/
+
 **President Trump says he'll attend Club World Cup final at MetLife Stadium**\
 `The U.S. president has forged a strong bond with his FIFA counterpart and will be present for Sunday's Club World Cup finale.`\
 https://nytimes.com/athletic/6481998/2025/07/08/club-world-cup-final-president-trump-infantino/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6481868/2025/07/08/mets-sean-manaea-final-rehab-sta
 **Aces' A'ja Wilson exits game in first half vs. Liberty with wrist injury**\
 `Wilson sustained the injury on a drive to the basket with 4:13 to play in the second quarter.`\
 https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-injury/
-
-**Caitlin Clark, Napheesa Collier draft WNBA All-Star rosters, trade coaches**\
-`The WNBA All-Star Game draft included a little bit of light trash talk, some clear loyalties in the picks and a coach swap.`\
-https://nytimes.com/athletic/6481839/2025/07/08/caitlin-clark-napheesa-collier-wnba-all-star-draft/
 

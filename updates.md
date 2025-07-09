@@ -1,3 +1,15 @@
+**President Trump says he'll attend Club World Cup final at MetLife Stadium**\
+`The U.S. president has forged a strong bond with his FIFA counterpart and will be present for Sunday's Club World Cup finale.`\
+https://nytimes.com/athletic/6481998/2025/07/08/club-world-cup-final-president-trump-infantino/
+
+**Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
+`It's Suarez’s second consecutive All-Star selection and the first for both Abbott and Caminero.`\
+https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
+
+**Many Moons**\
+`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
+https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
+
 **Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
 `It's Suarezâs second consecutive All-Star selection and the first for both Abbott and Caminero.`\
 https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
