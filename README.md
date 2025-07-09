@@ -1,3 +1,11 @@
+**TAFC: Mbappe's bitter PSG divorce, Chelsea profit from final spot in Club World Cup**\
+`Today in TAFC: The dispute that lingers from Mbappe's acrimonious PSG exit, Chelsea reach the Club World Cup final after stars align`\
+https://nytimes.com/athletic/6482410/2025/07/09/kylian-mbappes-psg-real-madrid-chelsea-pedro/
+
+**That guy was an All-Star? Every MLB team's most forgotten selection from the past quarter-century**\
+`Daniel Vogelbach, Hung-Chi Kuo, Bryan LaHair and Junior Spivey are among the All-Stars that you may not recall from the past 25 years.`\
+https://nytimes.com/athletic/6478653/2025/07/09/mlb-all-star-forgotten-selection-quarter-century/
+
 **The Pulse: How politics could threaten Bills’ ambitions**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6481324/2025/07/09/bills-trump-canada-the-pulse/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6480608/2025/07/09/jofra-archer-england-fast-lords/
 **How to watch the 2025 Genesis Scottish Open: Wind, weather and real stakes**\
 `The Scottish Open isn’t about birdie runs. It’s about bounce control, bad breaks and keeping calm when the wind shifts mid-swing.`\
 https://nytimes.com/athletic/6481827/2025/07/09/scottish-open-weather-pga-golf-how-to-watch-2025/
-
-**Live Q&A with Sabres reporter Matthew Fairburn on Wednesday at noon ET**\
-`Matthew Fairburn will answer subscribers’ questions about the Sabres during a live Q&A from noon to 1 p.m. ET on Wednesday.`\
-https://nytimes.com/athletic/6480740/2025/07/09/sabres-live-questions-july-2025/
-
-**Bears fan survey 2025: Ben Johnson's arrival, Caleb Williams' next step**\
-`Our annual survey includes questions about the stadium saga, offseason acquisitions and how many games the Bears will win.`\
-https://nytimes.com/athletic/6480971/2025/07/09/bears-fan-survey-2025-ben-johnson-caleb-williams/
 
