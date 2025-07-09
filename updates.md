@@ -1,3 +1,7 @@
+**Why 1.5 Million New Yorkers Could Lose Health Insurance Under Trump Bill**\
+`As in other states, Medicaid will be affected. But so will another health insurance program that plays a bigger role in New York than elsewhere.`\
+https://nytimes.com/2025/07/09/nyregion/trump-domestic-policy-bill-new-york-health-care.html
+
 **Searching for the Truth About Autism**\
 `Readers respond to a guest essay by Dr. Allen Frances. Also: A Supreme Court decision on firing federal workers.`\
 https://nytimes.com/2025/07/09/opinion/autism.html
