@@ -1,3 +1,11 @@
+**Submit questions for Jeff Zrebiec's Ravens mailbag**\
+`Zrebiec will consider your questions for his upcoming mailbag with Baltimore's training camp set to begin. `\
+https://nytimes.com/athletic/6483242/2025/07/09/ravens-mailbag-2025-training-camp/
+
+**Yankees promote prospect Cam Schlittler: Can the RHP seize a starting rotation job?**\
+`Schlittler will get his first chance to state his case for a rotation spot when he makes his MLB debut versus the Mariners on Wednesday.`\
+https://nytimes.com/athletic/6483189/2025/07/09/cam-schlittler-yankees-promoted-mlb-debut-mariners/
+
 **U.S. Copper Prices Surge on Trump’s Threat of 50% Tariff**\
 `Prices for the metal hit a record high after the president suggested a higher rate than many analysts were expecting.`\
 https://nytimes.com/2025/07/09/us/politics/trump-copper-tariffs.html
