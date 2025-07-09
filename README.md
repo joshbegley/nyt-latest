@@ -1,3 +1,19 @@
+**Life Expectancy in California Has Not Rebounded After Covid**\
+`The state’s life expectancy was lower in 2024 than in 2019, according to an analysis, but primarily as a result of causes of death other than Covid.`\
+https://nytimes.com/2025/07/09/health/life-expectancy-california.html
+
+**The View From The Lane: Live at Soho Theatre, Walthamstow**\
+`Host Danny Kelly and the team return for another live edition of The Athletic's multi-award-winning Tottenham Hotspur podcast`\
+https://nytimes.com/athletic/6482996/2025/07/09/view-from-the-lane-live-tickets/
+
+**Brazil boss Ancelotti sentenced to one year in prison over tax offence**\
+`Ancelotti, who left Real Madrid at the end of 2024-25, failed to pay tax on his image rights revenues in the 2014 financial year.`\
+https://nytimes.com/athletic/6320182/2025/07/09/carlo-ancelotti-tax-real-madrid/
+
+**Pace, potential and the promise of chaos – why Everton have signed Thierno Barry**\
+`Patience will be needed with David Moyes' new striker, but the club believe they have signed one of Europe's top prospects`\
+https://nytimes.com/athletic/6480554/2025/07/09/thierno-barry-everton-transfer-villarreal/
+
 **BYU's AJ Dybantsa signs exclusive deal with Fanatics that will extend beyond college**\
 `Dybantsa explains how he's preparing for the NBA and who he's modeled his game after`\
 https://nytimes.com/athletic/6482180/2025/07/09/aj-dybantsa-fanatics-byu/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/09/health/antidepressants-withdrawal-symptoms.html
 **Everton sign Barry from Villarreal**\
 `Barry has signed an four-year contract on Merseyside and is Everton's second signing of the summer.`\
 https://nytimes.com/athletic/6479747/2025/07/09/thierno-barry-everton-transfer/
-
-**‘The Gilded Age’ Enriches Its Portrait of Black High Society**\
-`This week, Phylicia Rashad joins the cast as an aristocratic matriarch. In an interview, she, Audra McDonald and Denée Benton discuss the show’s depiction of Black families.`\
-https://nytimes.com/2025/07/09/arts/television/the-gilded-age.html
-
-**A 37,000-Year Chronicle of What Once Ailed Us**\
-`In a new genetic study, scientists have charted the rise of 214 human diseases across ancient Europe and Asia.`\
-https://nytimes.com/2025/07/09/science/archaeology-diseases-pathogens.html
-
-**Measles Cases Have Hit a Record High. What Went Wrong?**\
-`There have now been more measles cases in 2025 than in any other year since the contagious virus was declared eliminated in the United States in 2000, according to new data from the Centers for Disease Control and Prevention.`\
-https://nytimes.com/video/well/100000010273332/measles-cases-have-hit-a-record-high-what-went-wrong.html
-
-**Belinda Bencic reaches Wimbledon semifinals nine months into tennis comeback**\
-`Bencic edged out the rising star in two fascinating, high-quality and edgy sets on Centre Court.`\
-https://nytimes.com/athletic/6483082/2025/07/09/bencic-andreeva-wimbledon-result-analysis/
 
