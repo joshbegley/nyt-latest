@@ -1,3 +1,7 @@
+**Word of the Day: humility**\
+`This word has appeared in 553 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/09/learning/word-of-the-day-humility.html
+
 **Uruguay resumes training for Copa América after players protest conditions**\
 `The national team’s players union told The Athletic that the national team's protest was a result of “some differences in negotiations."`\
 https://nytimes.com/athletic/6482204/2025/07/09/uruguay-player-protest-copa-america-femenina/
