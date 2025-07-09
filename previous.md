@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6481990/2025/07/08/nhl-trade-grades-oilers-isaac-howard-lightning-sam-oreilly/
 
 **Andrew Abbott, Robert Suarez, Junior Caminero named MLB All-Stars in first wave of replacements**\
-`It's Suarez’s second consecutive All-Star selection and the first for both Abbott and Caminero.`\
+`It's Suarezâs second consecutive All-Star selection and the first for both Abbott and Caminero.`\
 https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replacements/
 
 **Luke Keaschall, Zebby Matthews look for inside track as they return from injury**\
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6481992/2025/07/08/mlb-2025-all-star-game-replaceme
 https://nytimes.com/athletic/6481918/2025/07/08/twins-luke-keaschall-zebby-matthews-injury-return/
 
 **Many Moons**\
-`Desirée Penner and Jeff Sinnock’s crossword borders on genius.`\
+`DesirÃ©e Penner and Jeff Sinnockâs crossword borders on genius.`\
 https://nytimes.com/2025/07/08/crosswords/daily-puzzle-2025-07-09.html
 
 **Real Madrid's Club World Cup semi-final plans disrupted by flight delay**\
@@ -31,6 +31,6 @@ https://nytimes.com/athletic/6481927/2025/07/08/aja-wilson-la-vegas-aces-wrist-i
 https://nytimes.com/athletic/6481839/2025/07/08/caitlin-clark-napheesa-collier-wnba-all-star-draft/
 
 **Trump Got the Green Light to Fire Federal Workers. Now, They Wait.**\
-`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trump’s directive for mass layoffs. The Supreme Court said the administration could proceed.`\
+`A court-ordered pause in May covered nearly two dozen federal agencies at different stages of executing President Trumpâs directive for mass layoffs. The Supreme Court said the administration could proceed.`\
 https://nytimes.com/2025/07/08/us/politics/trump-federal-workers-firings.html
 
