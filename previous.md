@@ -1,3 +1,15 @@
+**Man Utd sign teenage forward Enzo Kana-Biyik, will go on loan**\
+`The French youth international will spend next season on loan to INEOS-owned Swiss side Lausanne-Sport`\
+https://nytimes.com/athletic/6485081/2025/07/10/manchester-united-teenage-forward-kana-biyik-transfer/
+
+**Why So Many Women Feel Pain During Their C-Sections**\
+`Susan Burton, reporter and host of the podcast “The Retrievals,” talks about the alarming number of patients who report feeling significant pain during their C-sections.`\
+https://nytimes.com/video/health/100000010277388/why-so-many-women-feel-pain-during-their-c-sections.html
+
+**Moo Deng, the Celebrity Pygmy Hippo, Turns 1**\
+`The young star celebrated her first birthday with a special fruit platter at the Khao Kheow Open Zoo in Thailand.`\
+https://nytimes.com/video/world/asia/100000010277382/moo-deng-birthday-pygmy-hippo-thailand.html
+
 **The Retrievals, Season 2, Episode 4: The Solutions**\
 `From Serial Productions: Stories are also a kind of evidence.`\
 https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/10/podcasts/the-retrievals-c-section-women-health.ht
 **Tunnel Collapses in Los Angeles**\
 `Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
 https://nytimes.com/video/us/100000010277341/tunnel-collapse-los-angeles-trapped.html
-
-**Russia Bombards Ukraine as U.S. Frustration Mounts**\
-`Kyiv was the main target of an hourslong assault that killed at least two people, officials said. The barrage came hours before the top American and Russian diplomats were expected to meet.`\
-https://nytimes.com/2025/07/10/world/europe/ukraine-russia-lavrov-rubio.html
-
-**Jordan Peterson and I Had a Chat**\
-`We had different ideas about what’s making men’s lives hard.`\
-https://nytimes.com/2025/07/10/opinion/jordan-peterson-men-boys.html
-
-**Espaillat Endorses Mamdani for Mayor, After Backing Cuomo and Adams**\
-`Representative Adriano Espaillat, the most powerful Latino leader in New York City, will back Zohran Mamdani, the Democratic candidate for mayor.`\
-https://nytimes.com/2025/07/10/nyregion/espaillat-endorse-mamdani.html
 
