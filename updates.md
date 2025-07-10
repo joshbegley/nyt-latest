@@ -1,3 +1,19 @@
+**Friday Briefing: Israel Says Iran Has Some Uranium Left**\
+`Plus, toads with psychedelic powers.`\
+https://nytimes.com/2025/07/10/briefing/iran-nuclear-program-ukraine-intelligence-killing-france-britain.html
+
+**Stars trade Matt Dumba, draft pick to Penguins for Vladislav Kolyachonok**\
+`Dumba recorded one goal and nine assists in 63 regular-season games last year, but did not play in the playoffs.`\
+https://nytimes.com/athletic/6486762/2025/07/10/penguins-matt-dumba-trade-stars-vladislav-kolyachonok/
+
+**Secret Service Suspends Six Agents Over Trump Assassination Attempt**\
+`The announcement comes near the anniversary of the shooting at Donald J. Trump’s campaign rally in Butler, Pa.`\
+https://nytimes.com/2025/07/10/us/politics/trump-secret-service.html
+
+**Wife of Ken Paxton Files for Divorce, Citing ‘Recent Discoveries’**\
+`The announcement could have a significant impact on the race for U.S. Senate in Texas. Mr. Paxton is challenging Senator John Cornyn in the Republican primary.`\
+https://nytimes.com/2025/07/10/us/ken-paxton-wife-divorce.html
+
 **PSG's Marco Asensio progressing in talks over Fenerbahce move**\
 `The Spanish midfielder, 29, wants to play for his country in next summer's World Cup.`\
 https://nytimes.com/athletic/6301539/2025/07/10/marco-asensio-psg-fenerbahce-transfer-spain-world-cup/

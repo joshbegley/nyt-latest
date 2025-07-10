@@ -1,3 +1,15 @@
+**Friday Briefing: Israel Says Iran Has Some Uranium Left**\
+`Plus, toads with psychedelic powers.`\
+https://nytimes.com/2025/07/10/briefing/iran-nuclear-program-ukraine-intelligence-killing-france-britain.html
+
+**Stars trade Matt Dumba, draft pick to Penguins for Vladislav Kolyachonok**\
+`Dumba recorded one goal and nine assists in 63 regular-season games last year, but did not play in the playoffs.`\
+https://nytimes.com/athletic/6486762/2025/07/10/penguins-matt-dumba-trade-stars-vladislav-kolyachonok/
+
+**Secret Service Suspends Six Agents Over Trump Assassination Attempt**\
+`The announcement comes near the anniversary of the shooting at Donald J. Trump’s campaign rally in Butler, Pa.`\
+https://nytimes.com/2025/07/10/us/politics/trump-secret-service.html
+
 **PSG's Marco Asensio progressing in talks over Fenerbahce move**\
 `The Spanish midfielder, 29, wants to play for his country in next summer's World Cup.`\
 https://nytimes.com/athletic/6301539/2025/07/10/marco-asensio-psg-fenerbahce-transfer-spain-world-cup/
@@ -16,21 +28,9 @@ https://nytimes.com/2025/07/10/world/canada/canada-parliament-cat-colony-dead.ht
 
 **Wife of Ken Paxton Files for Divorce, Citing ‘Recent Discoveries’**\
 `The announcement could have a significant impact on the race for U.S. Senate in Texas. Mr. Paxton is challenging Senator John Cornyn in the Republican primary.`\
-https://nytimes.com/2025/07/10/us/ken-paxton-fdivorce.html
+https://nytimes.com/2025/07/10/us/ken-paxton-wife-divorce.html
 
 **More Than a Dozen Killed in Israeli Airstrike Near Gaza Clinic**\
 `Civilians, including children, were waiting outside a health clinic to receive nutritional supplements in central Gaza on Thursday, when an Israeli strike hit.`\
 https://nytimes.com/video/world/middleeast/100000010277930/israeli-airstrike-near-gaza-clinic.html
-
-**Nvidia Becomes First Public Company Worth $4 Trillion**\
-`The A.I. chip maker reached the landmark before Apple and Microsoft, as its value rose more than 10-fold following ChatGPT’s release in late 2022.`\
-https://nytimes.com/2025/07/10/technology/nvidia-4-trillion-market-value.html
-
-**The F.B.I. Is Using Polygraphs to Test Officials’ Loyalty**\
-`Some senior officials who have taken the test have been asked whether they said anything negative about the F.B.I. director, Kash Patel, in a highly unusual use of the tool.`\
-https://nytimes.com/2025/07/10/us/politics/fbi-polygraph-kash-patel.html
-
-**Targeting Brazil, Trump Tests Legal Limit of His Tariff Powers**\
-`The president signaled he would seek to use the threat of steep levies to reorient trade and protect his political allies.`\
-https://nytimes.com/2025/07/10/us/politics/trump-brazil-tariffs-legal-limit.html
 
