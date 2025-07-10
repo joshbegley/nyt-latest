@@ -1,6 +1,22 @@
+**U.K. and France Announce New Nuclear Defense Deal**\
+`Prime Minister Keir Starmer of Britain and President Emmanuel Macron of France strengthened the defense relationship between their two countries and announced a new agreement to address illegal migration.`\
+https://nytimes.com/video/world/europe/100000010278274/starmer-macron-nuclear-migrants.html
+
+**What Is ‘Aura Farming’? This Tween Will Show You.**\
+`Thanks to his dance moves on the front of a boat, a young Indonesian boy has become an internet sensation, and is now a “tourism ambassador.”`\
+https://nytimes.com/2025/07/10/style/aura-farming-indonensia-boat-kid.html
+
+**New NIL enforcement arm issues crackdown on collectives**\
+`The goal is to prevent schools from utilizing booster-driven entities to funnel payments to recruits and transfers.`\
+https://nytimes.com/athletic/6486575/2025/07/10/name-image-likeness-collective-deals/
+
+**Real Madrid reach agreement to re-sign Carreras from Benfica**\
+`The left-back originally represented Madrid's academy before joining Manchester United as a youth-team player.`\
+https://nytimes.com/athletic/6372377/2025/07/10/real-madrid-transfers-alvaro-carreras/
+
 **And Just Like That … New York City Has Great Tacos**\
 `We couldn’t help but wonder: When did the city become an epicenter of regional specialties?`\
-https://nytimes.com/2025/07/10/dining/and-just-like-that-new-york-city-has-great-tacos.html
+https://nytimes.com/2025/07/10/dining/tacos-nyc.html
 
 **Justice Jackson Says ‘the State of Our Democracy’ Keeps Her Up at Night**\
 `At a bar association event in Indiana, the justice told those gathered that she is focused on drawing attention to what is happening to the government.`\
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/10/podcasts/serial-newsletter-retrievals-season-2.ht
 **New From Serial: The Retrievals, Season 2**\
 `A message from Sarah Koenig about our upcoming show.`\
 https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
-
-**Thunder, Jalen Williams agree to 5-year max rookie extension worth up to $287 million**\
-`The Thunder locked up another young star after giving extensions to Shai Gilgeous-Alexander and Chet Holmgren this month.`\
-https://nytimes.com/athletic/6486607/2025/07/10/jalen-williams-thunder-contract-extension/
-
-**How Los Angeles Learned to Save Water**\
-`And why the metropolis still has a lot of room to improve water usage.`\
-https://nytimes.com/2025/07/10/headway/los-angeles-water.html
-
-**Trump May Not Be Done Overhauling Renewable Energy**\
-`Days after the passage of a sprawling domestic policy bill, the Trump administration announced moves that could further hamstring renewable energy.`\
-https://nytimes.com/2025/07/10/climate/trump-renewable-energy-solar.html
-
-**Zak Crawley: England's untouchable or a man legitimately under pressure?**\
-`The much-maligned England opener has struggled against India with the clamour from the outside for him to be replaced growing ever louder`\
-https://nytimes.com/athletic/6485782/2025/07/10/zak-crawley-england-bazball-butcher-ramprakash/
 

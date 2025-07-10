@@ -1,3 +1,15 @@
+**And Just Like That … New York City Has Great Tacos**\
+`We couldn’t help but wonder: When did the city become an epicenter of regional specialties?`\
+https://nytimes.com/2025/07/10/dining/and-just-like-that-new-york-city-has-great-tacos.html
+
+**Justice Jackson Says ‘the State of Our Democracy’ Keeps Her Up at Night**\
+`At a bar association event in Indiana, the justice told those gathered that she is focused on drawing attention to what is happening to the government.`\
+https://nytimes.com/2025/07/10/us/ketanji-brown-jackson-democracy.html
+
+**Schumer Sees Boost for Democrats’ Midterm Hopes in G.O.P. Tax and Spending Cut Law**\
+`The top Senate Democrat said the law would lead to widespread pain for voters, imperiling Republicans who supported it and allowing his party more openings to contest control of the Senate.`\
+https://nytimes.com/2025/07/10/us/politics/schumer-democrats-midterms-trump-bill.html
+
 **‘The Retrievals’ Season 2 Is Out Now**\
 `Read the emails that led to Susan Burton’s investigation on C-sections.`\
 https://nytimes.com/2025/07/10/podcasts/serial-newsletter-retrievals-season-2.html
