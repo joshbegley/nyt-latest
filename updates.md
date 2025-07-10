@@ -1,3 +1,7 @@
+**Q&A: There are millions of ways to make a lineup. How does Carlos Mendoza choose?**\
+`Mendoza explained what factors go into the batting order, and lefty/righty matchups are merely a part of a wide-ranging equation. `\
+https://nytimes.com/athletic/6484558/2025/07/10/mets-carlos-mendoza-lineups-decisions/
+
 **Southern China and Hong Kong Brace for Floods and Fierce Winds from Danas**\
 `The authorities warned of possible flash flooding as the remnants of Typhoon Danas passed through the region. Hong Kong suspended schools for Friday.`\
 https://nytimes.com/2025/07/10/world/asia/typhoon-danas-rain-flooding-china-hong-kong.html
