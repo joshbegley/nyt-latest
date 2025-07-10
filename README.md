@@ -1,3 +1,7 @@
+**China Surveys Seabeds Where Naval Rivals May One Day Clash**\
+`Chinese research ships are studying the seas for science and resources, but the data they gather could also be useful in a conflict with Taiwan or the United States.`\
+https://nytimes.com/2025/07/10/world/asia/china-ships-taiwan-guam.html
+
 **U.S. Imposes Sanctions on U.N. Expert Who Has Criticized Israel’s Gaza War**\
 `Secretary of State Marco Rubio denounced Francesca Albanese, a special rapporteur, for investigating Americans and Israelis over the war in the enclave.`\
 https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6479807/2025/07/10/ayden-heaven-mum-manchester-unit
 **Euro 2025 roundup: Sweden stays solid, a lack of draws and a team of standouts**\
 `The key moments you may have missed for each round of Euro 2025`\
 https://nytimes.com/athletic/6484247/2025/07/10/euro-2025-roundup-sweden-draws/
-
-**Word of the Day: kitschy**\
-`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/10/learning/word-of-the-day-kitschy.html
 
