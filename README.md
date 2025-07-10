@@ -1,3 +1,7 @@
+**A Tiny Chef Inspires an Outsize Outpouring**\
+`When Nickelodeon canceled “The Tiny Chef Show,” fans rallied around the wee gourmand. But his TV future remains uncertain.`\
+https://nytimes.com/2025/07/10/arts/television/tiny-chef-show-nickelodeon.html
+
 **Rangers mailbag callout: Submit your offseason questions**\
 `What do you want to know about where the team stands?`\
 https://nytimes.com/athletic/6485579/2025/07/10/rangers-mailbag-nhl-free-agency-offseason/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6485859/2025/07/10/england-bazball-dot-pope-root-si
 **Al Hilal complete signing of Hernandez from Milan**\
 `The France international, 27, has joined the Saudi Pro League club on a three-year contract.`\
 https://nytimes.com/athletic/6353964/2025/07/10/theo-hernandez-al-hilal-transfer/
-
-**Bournemouth in advanced talks to sign Chelsea's Petrovic**\
-`The south-coast side are looking for a new No 1 after the departure of Kepa Arrizabalaga.`\
-https://nytimes.com/athletic/6431488/2025/07/10/djordje-petrovic-chelsea-bournemouth/
 
