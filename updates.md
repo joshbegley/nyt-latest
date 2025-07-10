@@ -1,3 +1,8 @@
+**Mirtle: What should the Leafs do with all their remaining salary-cap space?**\
+`Toronto's roughly $6 million in cap space gives the team flexibility and opportunity, which could be fascinating for next season.
+`\
+https://nytimes.com/athletic/6483731/2025/07/10/maple-leafs-salary-cap-space-nhl-offseason/
+
 **Palace co-owner Textor believes club will compete in Europa League**\
 `Palace qualified for the Europa League by winning the FA Cup in May but have been in limbo since.`\
 https://nytimes.com/athletic/6485346/2025/07/10/crystal-palace-europe-john-textor/
