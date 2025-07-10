@@ -1,3 +1,7 @@
+**Atlanta United president Garth Lagerwey takes leave after cancer diagnosis**\
+`Lagerwey is one of the most successful and influential sporting executives in MLS history`\
+https://nytimes.com/athletic/6486434/2025/07/10/garth-lagerwey-atlanta-united-leave-cancer/
+
 **The old Justin Verlander is still in there somewhere**\
 `The Verlander the Giants thought they were signing this offseason showed up on Wednesday. That could mean a lot in October.`\
 https://nytimes.com/athletic/6483999/2025/07/10/sf-giants-justin-verlander-pitch-breakdown/
@@ -29,8 +33,4 @@ https://nytimes.com/video/weather/100000010278217/massachusetts-flash-floods-rai
 **Michael Jordan's former Illinois mansion listed on Airbnb**\
 `Basketball fans can be like Mike and rent the seven-bedroom, 17 1/2-bathroom property in Highland Park, Ill.`\
 https://nytimes.com/athletic/6486178/2025/07/10/michael-jordan-mansion-airbnb-rent/
-
-**U.K. Faces Rising Threat From Iranian Plots, Intelligence Committee Says**\
-`An official report warned that Iran was targeting dissidents and gathering intelligence on Jewish and Israeli targets in Britain.`\
-https://nytimes.com/2025/07/10/world/europe/uk-iran-espionage-threats.html
 
