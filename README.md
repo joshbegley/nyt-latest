@@ -1,3 +1,15 @@
+**More Than a Dozen Killed in Israeli Airstrike Near Gaza Clinic**\
+`Civilians, including children, were waiting outside a health clinic to receive nutritional supplements in central Gaza on Thursday, when an Israeli strike hit.`\
+https://nytimes.com/video/world/middleeast/100000010277930/israeli-airstrike-near-gaza-clinic.html
+
+**Nvidia Becomes First Public Company Worth $4 Trillion**\
+`The A.I. chip maker reached the landmark before Apple and Microsoft, as its value rose more than 10-fold following ChatGPT’s release in late 2022.`\
+https://nytimes.com/2025/07/10/technology/nvidia-4-trillion-market-value.html
+
+**The F.B.I. Is Using Polygraphs to Test Officials’ Loyalty**\
+`Some senior officials who have taken the test have been asked whether they said anything negative about the F.B.I. director, Kash Patel, in a highly unusual use of the tool.`\
+https://nytimes.com/2025/07/10/us/politics/fbi-polygraph-kash-patel.html
+
 **Targeting Brazil, Trump Tests Legal Limit of His Tariff Powers**\
 `The president signaled he would seek to use the threat of steep levies to reorient trade and protect his political allies.`\
 https://nytimes.com/2025/07/10/us/politics/trump-brazil-tariffs-legal-limit.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6372377/2025/07/10/real-madrid-transfers-alvaro-car
 **And Just Like That … New York City Has Great Tacos**\
 `We couldn’t help but wonder: When did the city become an epicenter of regional specialties?`\
 https://nytimes.com/2025/07/10/dining/tacos-nyc.html
-
-**Justice Jackson Says ‘the State of Our Democracy’ Keeps Her Up at Night**\
-`At a bar association event in Indiana, the justice told those gathered that she is focused on drawing attention to what is happening to the government.`\
-https://nytimes.com/2025/07/10/us/ketanji-brown-jackson-democracy.html
-
-**Schumer Sees Boost for Democrats’ Midterm Hopes in G.O.P. Tax and Spending Cut Law**\
-`The top Senate Democrat said the law would lead to widespread pain for voters, imperiling Republicans who supported it and allowing his party more openings to contest control of the Senate.`\
-https://nytimes.com/2025/07/10/us/politics/schumer-democrats-midterms-trump-bill.html
-
-**‘The Retrievals’ Season 2 Is Out Now**\
-`Read the emails that led to Susan Burton’s investigation on C-sections.`\
-https://nytimes.com/2025/07/10/podcasts/serial-newsletter-retrievals-season-2.html
 
