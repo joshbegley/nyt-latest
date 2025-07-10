@@ -1,5 +1,5 @@
 **New From Serial: The Retrievals, Season 2**\
-`Listen to the trailer for our upcoming show.`\
+`A message from Sarah Koenig about our upcoming show.`\
 https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
 
 **Thunder, Jalen Williams agree to 5-year max rookie extension worth up to $287 million**\
@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6485782/2025/07/10/zak-crawley-england-bazball-butc
 `Some places have had rainfall amounts that are 600 percent of normal in the last week.`\
 https://nytimes.com/2025/07/10/weather/north-carolina-rain-flood-risk.html
 
-**It’s Time to Let Go of ‘African American’**\
+**Itâs Time to Let Go of âAfrican Americanâ**\
 `Why not just say what we mean?`\
 https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
 
@@ -30,7 +30,7 @@ https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.h
 `The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
 https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html
 
-**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Is Dead at 83**\
-`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+**Dave âBabyâ Cortez, Hitmaker Who Seemed to Vanish, Is Dead at 83**\
+`His âThe Happy Organâ reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
 https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
 
