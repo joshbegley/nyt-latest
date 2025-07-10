@@ -1,3 +1,7 @@
+**Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
+`The 23-year-old shortstop will join the team for its weekend series against the Texas Rangers.`\
+https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
+
 **State Department to Soon Begin Mass Layoffs**\
 `Secretary of State Marco Rubio’s plan to downsize a “bloated” department had been on hold after a court ruling.`\
 https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
