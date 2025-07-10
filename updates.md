@@ -1,3 +1,15 @@
+**Devin Booker, with a two-year max extension, faces his biggest challenge with the Suns**\
+`Booker likes the idea of finishing his career in one place. But the relationship has to stretch beyond money and comfort.`\
+https://nytimes.com/athletic/6484808/2025/07/10/devin-booker-phoenix-suns-contract-extension-challenge/
+
+**What are the Euro 2025 yellow card suspension rules? Which players are at risk?**\
+`A selection of players are on the cusp of being suspended for the quarter-finals if they're booked in their last match of the group stages.`\
+https://nytimes.com/athletic/6485227/2025/07/10/euro-2025-yellow-card-suspensions-bans/
+
+**Delta’s Stock Soars on Signs of ‘Stabilized’ Travel Demand**\
+`The airline reported better earnings than expected for its latest quarter, and restored its forecast for the rest of the year.`\
+https://nytimes.com/2025/07/10/business/delta-earnings-travel-demand.html
+
 **Human rights court says Caster Semenya did not get fair hearing in sex eligibility rules fight**\
 `Semenya, 34, has been banned from racing since 2019 and has since moved into coaching.`\
 https://nytimes.com/athletic/6485335/2025/07/10/caster-semenya-trial-athletics/
