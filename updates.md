@@ -1,3 +1,23 @@
+**France took the opportunity to rest and rotate against Wales - and it worked**\
+`This remains a team in transition but Bonadei is ensuring that transition is working`\
+https://nytimes.com/athletic/6484449/2025/07/10/france-rotations-wales-euro-2025/
+
+**Late Night Is All Over Grok’s Antisemitic Posts**\
+`“Do you know how racist and antisemitic you have to be for Elon Musk to step in?” Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
+https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
+
+**Thursday Briefing: Russia’s Record Drone Attack**\
+`Plus, the Bayeux Tapestry’s homecoming.`\
+https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
+
+**This ‘Trial of the Century’ Is 100. Its Lessons Could Save the Democrats.**\
+`A hundred years later, many religious Americans in rural areas still feel that the cosmopolitan leaders of the Democratic Party look down on them.`\
+https://nytimes.com/2025/07/10/opinion/scopes-monkey-trial-democrats.html
+
+**Lord's: The cricket ground where the playing field has never been level**\
+`Lord's is more than 200 years old and has had many different guises. But one thing remains a constant — its slope, all eight feet of it`\
+https://nytimes.com/athletic/6482874/2025/07/10/lords-cricket-ground-slope-england-india/
+
 **It is now blindingly obvious that PSG are the world's best football team**\
 `Yes, there is still a Club World Cup final against Chelsea to come but Luis Enrique's side look untouchable `\
 https://nytimes.com/athletic/6484880/2025/07/10/psg-best-team-in-world/
