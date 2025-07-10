@@ -1,3 +1,7 @@
+**LSU beats out Texas A&M, Texas, Miami for local 5-star D-lineman Lamar Brown**\
+`With Brown in the fold, LSU now has six of the top seven in-state prospects committed in the 2026 class. `\
+https://nytimes.com/athletic/6485843/2025/07/10/lsu-football-recruiting-lamar-brown/
+
 **Sarah Fillier signs 2-year contract with New York Sirens, becoming PWHL's highest-paid player**\
 `Fillier's decision to sign a one-year deal after being selected No. 1 at the PWHL draft last year now looks like a savvy bet.`\
 https://nytimes.com/athletic/6486245/2025/07/10/sarah-fillier-pwhl-new-york-sirens-contract/
