@@ -1,3 +1,19 @@
+**Late Night Is All Over Grok’s Antisemitic Posts**\
+`“Do you know how racist and antisemitic you have to be for Elon Musk to step in?” Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
+https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
+
+**Thursday Briefing: Russia’s Record Drone Attack**\
+`Plus, the Bayeux Tapestry’s homecoming.`\
+https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
+
+**The New York Times in Print for Thursday, July 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/10/todays-new-york-times
+
+**This ‘Trial of the Century’ Is 100. Its Lessons Could Save the Democrats.**\
+`A hundred years later, many religious Americans in rural areas still feel that the cosmopolitan leaders of the Democratic Party look down on them.`\
+https://nytimes.com/2025/07/10/opinion/scopes-monkey-trial-democrats.html
+
 **31 Workers Rescued From Tunnel That Collapsed in Los Angeles**\
 `Authorities sent more than 100 first responders to the site in the city’s Wilmington neighborhood. Officials said there were no significant injuries.`\
 https://nytimes.com/2025/07/10/us/tunnel-collapse-los-angeles-trapped.html
