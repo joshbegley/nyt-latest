@@ -1,3 +1,11 @@
+**The Conscience of Justice Ketanji Brown Jackson**\
+`Readers discuss Justice Jackson’s role on the Supreme Court. Also: Church endorsements of candidates; Voice of America, silenced.`\
+https://nytimes.com/2025/07/10/opinion/justice-ketanji-brown-jackson.html
+
+**Texas City Racked by Floods Becomes a Hub for Search and Recovery**\
+`Most summers, Kerrville, Texas, draws crowds for its July 4 celebration. This year, the streets are filled with emergency responders.`\
+https://nytimes.com/2025/07/10/us/kerrville-flood-texas-recovery.html
+
 **England’s Sycamore Gap Tree, Felled by Vandals, Stands Again as Art**\
 `A nearly seven-foot piece of trunk will be featured in an art exhibit to honor the beloved tree. Hugging it is encouraged.`\
 https://nytimes.com/2025/07/10/world/europe/sycamore-gap-tree-memorial.html
