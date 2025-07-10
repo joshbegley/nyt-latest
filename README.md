@@ -1,3 +1,7 @@
+**State Department to Soon Begin Mass Layoffs**\
+`Secretary of State Marco Rubio’s plan to downsize a “bloated” department had been on hold after a court ruling.`\
+https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
+
 **Justice Dept. Promised to Prosecute Abrego Garcia. Now It’s Not So Clear.**\
 `In the case of Kilmar Armando Abrego Garcia, the administration appears primarily concerned with ensuring that a man it has described as a “dangerous illegal alien” never walks free on U.S. soil.`\
 https://nytimes.com/2025/07/10/us/politics/abrego-garcia-doj-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/nyregion/housing-voucher-nyc.html
 **Four Ex-Jail Officers Are Sentenced in Death of West Virginia Inmate**\
 `The former officers, who brutally beat a 37-year-old man, received prison terms ranging from three years to more than two decades.`\
 https://nytimes.com/2025/07/10/us/west-virginia-jail-beating-officers-sentenced.html
-
-**Congress to propose NIL guidelines in new college sports compensation bill**\
-`If the bill passes, it would override current state NIL laws, which vary from border to border.`\
-https://nytimes.com/athletic/6486795/2025/07/10/congress-nil-bill-college-sports-compensation-rules-guidelines/
 
