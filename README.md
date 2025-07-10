@@ -1,3 +1,11 @@
+**New From Serial: The Retrievals, Season 2**\
+`Listen to the trailer for our upcoming show.`\
+https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
+
+**Thunder, Jalen Williams agree to 5-year max rookie extension worth up to $287 million**\
+`The Oklahoma City Thunder have locked up another young star with a maximum rookie extension.`\
+https://nytimes.com/athletic/6486607/2025/07/10/jalen-williams-thunder-contract-extension/
+
 **How Los Angeles Learned to Save Water**\
 `And why the metropolis still has a lot of room to improve water usage.`\
 https://nytimes.com/2025/07/10/headway/los-angeles-water.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6485782/2025/07/10/zak-crawley-england-bazball-butc
 `Some places have had rainfall amounts that are 600 percent of normal in the last week.`\
 https://nytimes.com/2025/07/10/weather/north-carolina-rain-flood-risk.html
 
-**Itâs Time to Let Go of âAfrican Americanâ**\
+**It’s Time to Let Go of ‘African American’**\
 `Why not just say what we mean?`\
 https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
 
@@ -22,15 +30,7 @@ https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.h
 `The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
 https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html
 
-**Dave âBabyâ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
-`His âThe Happy Organâ reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Is Dead at 83**\
+`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
 https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
-
-**Chelsea's Mathis Amougou to join Strasbourg in permanent deal**\
-`The 19-year-old midfielder is returning to France just five months after joining the west London club.`\
-https://nytimes.com/athletic/6486450/2025/07/10/chelseas-mathis-amougou-to-join-sister-club-strasbourg-in-permanent-deal/
-
-**Four More Rescued in Red Sea, as Houthis Vow to Keep Up Attacks**\
-`A total of 10 crew members have been rescued so far after Yemeni militants sank a Greek-owned cargo ship in the Red Sea.`\
-https://nytimes.com/2025/07/10/world/middleeast/houthis-attack-crew-rescued.html
 
