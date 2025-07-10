@@ -1,3 +1,7 @@
+**Frank Layden, beloved Jazz coach and franchise-changing architect, dies at 93**\
+`As coach and general manager, Layden laid the seeds for the Jazz's greatest stretch in franchise history.`\
+https://nytimes.com/athletic/6485343/2025/07/10/frank-layden-jazz-coach-gm-obituary/
+
 **A Lethal Israeli Airstrike Hits Near a Gaza Aid Clinic**\
 `The attack struck near a facility run by an American aid organization as negotiators from Hamas and Israel wrangle over a potential new cease-fire agreement.`\
 https://nytimes.com/2025/07/10/world/middleeast/israel-strike-gaza-clinic.html
