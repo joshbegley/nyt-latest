@@ -1,3 +1,7 @@
+**Blue Jays trade scenarios: Jim Bowden assesses 4 proposals to fill Toronto's deadline needs**\
+`With three weeks to go until the deadline, the former GM weighs in on four hypothetical trades to fill the Blue Jays' key needs. `\
+https://nytimes.com/athletic/6485183/2025/07/10/blue-jays-trade-scenarios-needs/
+
 **Denmark Aims to Use Copyright Law to Protect People From Deepfakes**\
 `A pioneering bill would give citizens the right to demand that social media platforms remove digital forgeries of themselves.`\
 https://nytimes.com/2025/07/10/world/europe/denmark-deepfake-copyright-ai-law.html
