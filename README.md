@@ -1,3 +1,7 @@
+**Brighton offer new contract to goalkeeper Rushworth**\
+`The club want to stretch his six-year stay amid interest in the 23-year-old from sides in England and Scotland.`\
+https://nytimes.com/athletic/6485976/2025/07/10/brighton-transfers-carl-rushworth-contract/
+
 **Bazball, England's 28-ball scoreless sequence and the art of the leave**\
 `The passage of play at Lord's demonstrated that, in Test match cricket, sometimes nothing happening can still be compelling`\
 https://nytimes.com/athletic/6485859/2025/07/10/england-bazball-dot-pope-root-siraj-bumrah/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6485770/2025/07/10/orioles-rays-trade-bryan-baker-m
 **What Might a Billionaire Lose at? Turns Out, Tennis.**\
 `Bill Ackman, an outspoken 59-year-old financier, tried competing in a professional tournament.`\
 https://nytimes.com/2025/07/10/style/bill-ackman-tennis-hall-of-fame-open.html
-
-**Amanda Anisimova stuns Wimbledon favorite Aryna Sabalenka to reach first Grand Slam final**\
-`The American No. 13 seed did not shrink from her duel with Sabalenka on Centre Court, going after her shots at all times.`\
-https://nytimes.com/athletic/6485485/2025/07/10/tennis-wimbledon-anisimova-sabalenka-semifinal-result-analysis/
 
