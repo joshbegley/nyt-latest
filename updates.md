@@ -1,3 +1,23 @@
+**Suns, Devin Booker agree on two-year, $145 million max extension: Source**\
+`Owner Mat Ishbia made it clear that Phoenix planned to build around Booker, a four-time All-Star who remains in his prime.`\
+https://nytimes.com/athletic/6484706/2025/07/09/suns-devin-booker-max-extension/
+
+**Yankees’ Brian Cashman sheds (some) light on trade deadline plans**\
+`"We’re going to town,” Cashman said. “We’re going to do everything we possibly can to improve ourselves and try to match up."`\
+https://nytimes.com/athletic/6484646/2025/07/09/yankees-brian-cashman-trade-deadline-plans/
+
+**Rob Manfred is pushing for salary cap, and players are skeptical, union official says**\
+`Commissioner has been meeting directly with players to push his ideas, but the association says members aren't buying in. `\
+https://nytimes.com/athletic/6484590/2025/07/09/mlbpa-bruce-meyer-rob-manfred-salary-cap/
+
+**DuPont Agrees to $27 Million Payout in Hoosick Falls Water Contamination**\
+`The chemical company was one of four businesses that contaminated the water supply in the upstate New York community. Residents have fought for nearly a decade for a settlement.`\
+https://nytimes.com/2025/07/09/nyregion/hoosick-dupont-class-action-settlement.html
+
+**Bryce Harper is having fun again as 4-extra-base-hit day shows Phillies star feels just fine**\
+`There is a certain energy when Harper is right — truly right — and the Phillies have not felt it all season. This felt different.`\
+https://nytimes.com/athletic/6484604/2025/07/09/phillies-bryce-harper-four-extra-base-hits/
+
 **Bryce Harper is having fun again. 4-extra-base-hit day shows Phillies star feels just fine**\
 `There is a certain energy when Harper is right — truly right — and the Phillies have not felt it all season. This felt different.`\
 https://nytimes.com/athletic/6484604/2025/07/09/phillies-bryce-harper-four-extra-base-hits/
