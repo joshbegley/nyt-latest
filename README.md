@@ -1,3 +1,7 @@
+**Moo Deng, the Celebrity Pygmy Hippo, Turns 1**\
+`The young star celebrated her first birthday with a special fruit platter at the Khao Kheow Open Zoo in Thailand.`\
+https://nytimes.com/video/world/asia/100000010277382/moo-deng-birthday-pygmy-hippo-thailand.html
+
 **The Retrievals, Season 2, Episode 4: The Solutions**\
 `From Serial Productions: Stories are also a kind of evidence.`\
 https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals.html
@@ -27,10 +31,6 @@ https://nytimes.com/video/us/100000010277341/tunnel-collapse-los-angeles-trapped
 https://nytimes.com/2025/07/10/world/europe/ukraine-russia-lavrov-rubio.html
 
 **Jordan Peterson and I Had a Chat**\
-`We had different ideas about what’s making men’s lives hard.`\
+`We had different ideas about whatâs making menâs lives hard.`\
 https://nytimes.com/2025/07/10/opinion/jordan-peterson-men-boys.html
-
-**Espaillat Endorses Mamdani for Mayor, After Backing Cuomo and Adams**\
-`Representative Adriano Espaillat, the most powerful Latino leader in New York City, will back Zohran Mamdani, the Democratic candidate for mayor.`\
-https://nytimes.com/2025/07/10/nyregion/espaillat-endorse-mamdani.html
 

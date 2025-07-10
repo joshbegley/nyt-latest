@@ -1,3 +1,11 @@
+**The Retrievals, Season 2, Episode 4: The Solutions**\
+`From Serial Productions: Stories are also a kind of evidence.`\
+https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals.html
+
+**The New York Times International Edition in Print for Friday, July 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/10/todays-new-york-times-international-edition
+
 **The Retrievals, Season 2, Episode 3: The Guidelines**\
 `From Serial Productions: Ask the patients about their pain.`\
 https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals-women.html
