@@ -1,4 +1,12 @@
-**Suns, Devin Booker agree on 2-year extension estimated at $145M: Source**\
+**Camp Mystic Cabins Stood in an ‘Extremely Hazardous’ Floodway**\
+`An analysis of flood maps shows that several buildings, including those where children were sleeping, were in known hazard zones. A $5 million expansion in 2019 did nothing to alleviate the problem.`\
+https://nytimes.com/interactive/2025/07/09/us/camp-mystic-texas-cabins.html
+
+**Lionel Messi becomes first MLS player with four straight multi-goal games**\
+`Inter Miami FC's star has eight goals and four assists across his last four MLS games.`\
+https://nytimes.com/athletic/6484686/2025/07/09/lionel-messi-mls-history-multiple-goals/
+
+**Devin Booker, Suns agree on 2-year extension estimated at $145M: Source**\
 `Owner Mat Ishbia made it clear that Phoenix planned to build around Booker, a four-time All-Star who remains in his prime.`\
 https://nytimes.com/athletic/6484706/2025/07/09/suns-devin-booker-max-extension/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6484608/2025/07/09/houston-astros-jake-meyers-injur
 **Immigration Officials Used Shadowy Pro-Israel Group to Target Student Activists**\
 `A senior Homeland Security official testified in court on Wednesday that his department had relied in part on an anonymously compiled list to identify foreign academics for investigation.`\
 https://nytimes.com/2025/07/09/us/politics/ice-canary-mission-student-deportations.html
-
-**Rubio Visits Asia as Trump Raises Trade-War Tensions**\
-`Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created friction with U.S. partners.`\
-https://nytimes.com/2025/07/09/world/asia/rubio-asia-diplomacy-tariffs.html
-
-**Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
-`The North Carolina senator, who recently said he did not plan to run for re-election, said the defense secretary’s decisions have been amateurish and show he is unfit to lead a large organization.`\
-https://nytimes.com/2025/07/09/us/politics/tillis-hegseth-vote-unfit.html
 
