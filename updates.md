@@ -1,3 +1,11 @@
+**Southern China and Hong Kong Brace for Floods and Fierce Winds from Danas**\
+`The authorities warned of possible flash flooding as the remnants of Typhoon Danas passed through the region. Hong Kong suspended schools for Friday.`\
+https://nytimes.com/2025/07/10/world/asia/typhoon-danas-rain-flooding-china-hong-kong.html
+
+**Breaking down the pass of the Euros so far (and, by the way, it was by a goalkeeper)**\
+`It was described as ‘really special’, ‘unreal’ and ‘remarkable’ - we break down goalkeeper Hannah Hampton’s wonder pass for England`\
+https://nytimes.com/athletic/6485044/2025/07/10/hannah-hampton-pass-england-euros/
+
 **What Caitlin Clark learned from Michael Jordan and Phil Jackson on the path to stardom**\
 `Iowa's Lisa Bluder found parallels between the experiences of her superstar, Caitlin Clark, and another generational talent: Michael Jordan.`\
 https://nytimes.com/athletic/6482891/2025/07/10/caitlin-clark-michael-jordan-phil-jackson-leadership/
