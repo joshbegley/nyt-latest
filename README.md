@@ -1,3 +1,7 @@
+**Real Madrid's Club World Cup: Alonso settles in, Gonzalo and Guler make a mark, but stars struggle**\
+`Madrid's tournament ended in the semi-final with some of their most high-profile players misfiring even if the youngsters took their chance`\
+https://nytimes.com/athletic/6484925/2025/07/10/real-madrid-alonso-fifa-club-world-cup/
+
 **Demna Says a Star-Studded Goodbye to Balenciaga**\
 `The designer’s farewell show came complete with Kim Kardashian, Nicole Kidman, Lauren Sanchez Bezos — and other greatest hits.`\
 https://nytimes.com/2025/07/10/style/demna-final-balenciaga-kim-kardashian.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6479994/2025/07/10/how-to-watch-wimbeldon-2025-wome
 **FEMA Is Holding Up $2.4 Billion in Grants to Fight Terrorism, States Say**\
 `FEMA officials are two months behind in posting grant application guidelines, which are expected to reflect President Trump’s demand for cooperation on his priorities.`\
 https://nytimes.com/2025/07/10/nyregion/fema-funds-trump-noem.html
-
-**As MetroCard Phases Out, Riders Gripe About Its Replacement**\
-`A survey of transit riders found that a majority have had issues with New York’s new tap-and-go system, months before its predecessor is expected to be retired.`\
-https://nytimes.com/2025/07/10/nyregion/metrocard-omni-nyc-rider-issues.html
 
