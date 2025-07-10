@@ -1,3 +1,11 @@
+**England’s Sycamore Gap Tree, Felled by Vandals, Stands Again as Art**\
+`A nearly seven-foot piece of trunk will be featured in an art exhibit to honor the beloved tree. Hugging it is encouraged.`\
+https://nytimes.com/2025/07/10/world/europe/sycamore-gap-tree-memorial.html
+
+**N.Y.P.D. Fires Dozens of Officers It Says Should Never Have Been Hired**\
+`About 30 officers were being dismissed on Thursday. An inspector who led the unit that vetted recruits was transferred in May after officials said he had ignored failures on psychological tests.`\
+https://nytimes.com/2025/07/10/nyregion/nypd-fired-psychological-exams.html
+
 **A Tiny Chef Inspires an Outsize Outpouring**\
 `When Nickelodeon canceled “The Tiny Chef Show,” fans rallied around the wee gourmand. But his TV future remains uncertain.`\
 https://nytimes.com/2025/07/10/arts/television/tiny-chef-show-nickelodeon.html

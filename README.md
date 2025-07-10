@@ -1,3 +1,7 @@
+**Texas City Racked by Floods Becomes a Hub for Search and Recovery**\
+`Most summers, Kerrville, Texas, draws crowds for its July 4 celebration. This year, the streets are filled with emergency responders.`\
+https://nytimes.com/2025/07/10/us/kerrville-flood-texas-recovery.html
+
 **England’s Sycamore Gap Tree, Felled by Vandals, Stands Again as Art**\
 `A nearly seven-foot piece of trunk will be featured in an art exhibit to honor the beloved tree. Hugging it is encouraged.`\
 https://nytimes.com/2025/07/10/world/europe/sycamore-gap-tree-memorial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/us/bruno-bloodhound-murder-sausages-italy.html
 **James Jones leaving Suns for NBA executive VP role, replacing Joe Dumars**\
 `As part of a Suns front-office revamp, Ishbia in May shifted Jones to a senior advisory role and promoted Brian Gregory to general manager.`\
 https://nytimes.com/athletic/6485899/2025/07/10/james-jones-nba-front-office-suns/
-
-**Brighton offer new contract to goalkeeper Rushworth**\
-`The club want to stretch his six-year stay amid interest in the 23-year-old from sides in England and Scotland.`\
-https://nytimes.com/athletic/6485976/2025/07/10/brighton-transfers-carl-rushworth-contract/
 
