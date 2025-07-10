@@ -1,3 +1,11 @@
+**Twins' Joe Ryan to replace Hunter Brown on AL All-Star Game roster**\
+`While multiple position players have been named replacements this week, Ryan was the first AL pitcher to be added.`\
+https://nytimes.com/athletic/6484436/2025/07/09/minnesota-twins-al-all-star-roster-joe-ryan/
+
+**Caitlin Clark rookie card likely to break all-time sales record heads to auction**\
+`The prized rookie card came from a box containing just two cards that cost thousands`\
+https://nytimes.com/athletic/6484508/2025/07/09/caitlin-clark-flawless-rookie-card-auction/
+
 **Abbott Asks Lawmakers to Redraw Texas’ Congressional Maps in Special Session**\
 `Democrats criticized Gov. Greg Abbott for seeking a redistricting, favored by President Trump’s political team, just days after devastating floods in Texas.`\
 https://nytimes.com/2025/07/09/us/texas-congressional-resdistricting-maps.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
 **8 Million Federal Student Loan Borrowers Will Soon See Interest Restart**\
 `It will kick back in on Aug. 1 for people in the SAVE repayment program, whose payments have been on hold since last summer.`\
 https://nytimes.com/2025/07/09/your-money/student-loans-save-plan-interest.html
-
-**Ex-NBA guard Ben McLemore sentenced to prison in 2021 rape**\
-`A jury found McLemore guilty of first-degree rape, first-degree unlawful sexual penetration and second-degree sexual abuse one week prior.`\
-https://nytimes.com/athletic/6484230/2025/07/09/ben-mclemore-prison-sentence-rape-conviction/
-
-**Parsing the Dodgers' six-game losing streak, their worst since 2019**\
-`Very little has gone well for the Dodgers over the last week, leading to something that hasn’t been seen in years.`\
-https://nytimes.com/athletic/6484279/2025/07/09/dodgers-losing-streak-worst-since-2019/
 
