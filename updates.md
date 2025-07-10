@@ -1,3 +1,11 @@
+**Late Night Is All Over Grokâs Antisemitic Posts**\
+`âDo you know how racist and antisemitic you have to be for Elon Musk to step in?â Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
+https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
+
+**Thursday Briefing: Russiaâs Record Drone Attack**\
+`Plus, the Bayeux Tapestryâs homecoming.`\
+https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
+
 **Meet Ayden Heaven and his agent mum, Lisa - 'I had a lot of setbacks, but it helped me as a person to this day'**\
 `Ayden Heaven and his mum Lisa discuss the defender joining Manchester United, his journey to the top and reaching his "maximum potential"`\
 https://nytimes.com/athletic/6479807/2025/07/10/ayden-heaven-mum-manchester-united/
