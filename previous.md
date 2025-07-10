@@ -1,36 +1,36 @@
-**The Conscience of Justice Ketanji Brown Jackson**\
-`Readers discuss Justice Jackson’s role on the Supreme Court. Also: Church endorsements of candidates; Voice of America, silenced.`\
-https://nytimes.com/2025/07/10/opinion/justice-ketanji-brown-jackson.html
+**Talking Yankees trade deadline — and more: Which prospects could they part with?**\
+`During a live Q&A, Brendan Kuty discussed a variety of Yankees topics, including the deadline, Anthony Volpe and the team's summer swoons. `\
+https://nytimes.com/athletic/6486083/2025/07/10/yankees-prospects-mlb-trade-deadline/
 
-**Texas City Racked by Floods Becomes a Hub for Search and Recovery**\
-`Most summers, Kerrville, Texas, draws crowds for its July 4 celebration. This year, the streets are filled with emergency responders.`\
-https://nytimes.com/2025/07/10/us/kerrville-flood-texas-recovery.html
+**The Fast and the Filling**\
+`Crispy potato quesadillas and broccoli soba salad come together in no time at all (and don’t leave you hungry).`\
+https://nytimes.com/2025/07/10/dining/6-fast-and-easy-vegetarian-recipes.html
 
-**England’s Sycamore Gap Tree, Felled by Vandals, Stands Again as Art**\
-`A nearly seven-foot piece of trunk will be featured in an art exhibit to honor the beloved tree. Hugging it is encouraged.`\
-https://nytimes.com/2025/07/10/world/europe/sycamore-gap-tree-memorial.html
+**Mia Fishel signs with Seattle Reign through 2029: ‘I want to put some stakes in the ground’**\
+`Part of Fishel's motivation to move to Seattle was coach Laura Harvey and the chance to get more minutes on the field`\
+https://nytimes.com/athletic/6486032/2025/07/10/nwsl-uswnt-mia-fishel-seattle-reign-chelsea/
 
-**N.Y.P.D. Fires Dozens of Officers It Says Should Never Have Been Hired**\
-`About 30 officers were being dismissed on Thursday. An inspector who led the unit that vetted recruits was transferred in May after officials said he had ignored failures on psychological tests.`\
-https://nytimes.com/2025/07/10/nyregion/nypd-fired-psychological-exams.html
+**Bronx Museum Picks New Leader**\
+`Shamim Momin, who started her curatorial career at the Whitney Museum of American Art, returns to New York to take the helm of the Bronx Museum of the Arts.`\
+https://nytimes.com/2025/07/10/arts/design/bronx-museum-of-the-arts-momin.html
 
-**A Tiny Chef Inspires an Outsize Outpouring**\
-`When Nickelodeon canceled “The Tiny Chef Show,” fans rallied around the wee gourmand. But his TV future remains uncertain.`\
-https://nytimes.com/2025/07/10/arts/television/tiny-chef-show-nickelodeon.html
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/07/10/books/review/new-book-recommendations.html
 
-**Rangers mailbag callout: Submit your offseason questions**\
-`What do you want to know about where the team stands?`\
-https://nytimes.com/athletic/6485579/2025/07/10/rangers-mailbag-nhl-free-agency-offseason/
+**Forest have fresh offer for Wissa rejected by Brentford**\
+`Brentford value Wissa, who scored 19 goals in 35 Premier League appearances last season, at more than £50m.`\
+https://nytimes.com/athletic/6423688/2025/07/10/yoane-wissa-nottingham-forest-transfer/
 
-**Former USWNT midfielder Tobin Heath reflects on soccer career: 'Nothing will ever fill that void'**\
-`The two-time World Cup winner and Olympic gold medalist reflects on a decade-long career`\
-https://nytimes.com/athletic/6485509/2025/07/10/uswnt-nwsl-tobin-heath-retires/
+**Tour de France stage six: Solo masterclass from Healy, Americans in the break, Van der Poel back in yellow by a second**\
+`Analysis of the sixth stage of the 2025 Tour de France, which took the peloton from Bayeux to Vire Normandie`\
+https://nytimes.com/athletic/6485560/2025/07/10/tour-de-france-stage-six-analysis/
 
-**Israel Will Allow More Aid Into Gaza, Officials Say**\
-`The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
-https://nytimes.com/2025/07/10/world/middleeast/israel-gaza-aid.html
+**Video Game Actors End Contract Dispute Over A.I.**\
+`The actors went on an 11-month strike against the studios behind Call of Duty and other games because of concerns that visual and voice replicas would reduce their work.`\
+https://nytimes.com/2025/07/10/arts/video-game-actors-contract-ai.html
 
-**A Beloved Bloodhound, a Fatal Treat: A Gruesome Murder Mystery in Italy**\
-`The killing of Bruno, a decorated sniffer dog who ingested sausages stuffed with nails, has set off an outpouring of grief in Italy.`\
-https://nytimes.com/2025/07/10/us/bruno-bloodhound-murder-sausages-italy.html
+**This Summer’s Salacious Dance Anthem**\
+`A remix of “Shake It to the Max” by the Ghanaian singer Moliy and the Jamaican producer Silent Addy is a global smash. Our critic explains from his car.`\
+https://nytimes.com/video/podcasts/100000010276675/moliy-shake-it-song-of-the-week.html
 
