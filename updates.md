@@ -1,4 +1,16 @@
 **New From Serial: The Retrievals, Season 2**\
+`A message from Sarah Koenig about our upcoming show.`\
+https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
+
+**Itâs Time to Let Go of âAfrican Americanâ**\
+`Why not just say what we mean?`\
+https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
+
+**Dave âBabyâ Cortez, Hitmaker Who Seemed to Vanish, Is Dead at 83**\
+`His âThe Happy Organâ reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
+
+**New From Serial: The Retrievals, Season 2**\
 `Listen to the trailer for our upcoming show.`\
 https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
 
