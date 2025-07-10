@@ -1,3 +1,7 @@
+**Iga Swiatek moves forward on grass, with the tennis that she finds in looking backward**\
+`Świątek has all the gifts required to be a great grass-court player. She needs to win a battle between her two tennis selves to use them.`\
+https://nytimes.com/athletic/6474056/2025/07/10/tennis-iga-swiatek-game-style-wimbledon-evolution/
+
 **China Surveys Seabeds Where Naval Rivals May One Day Clash**\
 `Chinese research ships are studying the seas for science and resources, but the data they gather could also be useful in a conflict with Taiwan or the United States.`\
 https://nytimes.com/2025/07/10/world/asia/china-ships-taiwan-guam.html

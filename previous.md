@@ -2,6 +2,10 @@
 `Chinese research ships are studying the seas for science and resources, but the data they gather could also be useful in a conflict with Taiwan or the United States.`\
 https://nytimes.com/2025/07/10/world/asia/china-ships-taiwan-guam.html
 
+**Iga Swiatek moves forward on grass, with the tennis that she finds in looking backward**\
+`Świątek has all the gifts required to be a great grass-court player. She needs to win a battle between her two tennis selves to use them.`\
+https://nytimes.com/athletic/6474056/2025/07/10/tennis-iga-swiatek-game-style-wimbledon-evolution/
+
 **U.S. Imposes Sanctions on U.N. Expert Who Has Criticized Israel’s Gaza War**\
 `Secretary of State Marco Rubio denounced Francesca Albanese, a special rapporteur, for investigating Americans and Israelis over the war in the enclave.`\
 https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/crosswords/spelling-bee-forum.html
 **Meet Ayden Heaven and his agent mum, Lisa - 'I had a lot of setbacks, but it helped me as a person to this day'**\
 `Ayden Heaven and his mum Lisa discuss the defender joining Manchester United, his journey to the top and reaching his "maximum potential"`\
 https://nytimes.com/athletic/6479807/2025/07/10/ayden-heaven-mum-manchester-united/
-
-**Euro 2025 roundup: Sweden stays solid, a lack of draws and a team of standouts**\
-`The key moments you may have missed for each round of Euro 2025`\
-https://nytimes.com/athletic/6484247/2025/07/10/euro-2025-roundup-sweden-draws/
 
