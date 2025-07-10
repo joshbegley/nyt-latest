@@ -1,3 +1,27 @@
+**It is now blindingly obvious that PSG are the world's best football team**\
+`Yes, there is still a Club World Cup final against Chelsea to come but Luis Enrique's side look untouchable `\
+https://nytimes.com/athletic/6484880/2025/07/10/psg-best-team-in-world/
+
+**Late Night Is All Over Grokâs Antisemitic Posts**\
+`âDo you know how racist and antisemitic you have to be for Elon Musk to step in?â Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
+https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
+
+**Thursday Briefing: Russiaâs Record Drone Attack**\
+`Plus, the Bayeux Tapestryâs homecoming.`\
+https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
+
+**This âTrial of the Centuryâ Is 100. Its Lessons Could Save the Democrats.**\
+`A hundred years later, many religious Americans in rural areas still feel that the cosmopolitan leaders of the Democratic Party look down on them.`\
+https://nytimes.com/2025/07/10/opinion/scopes-monkey-trial-democrats.html
+
+**Lord's: The cricket ground where the playing field has never been level**\
+`Lord's is more than 200 years old and has had many different guises. But one thing remains a constant â its slope, all eight feet of it`\
+https://nytimes.com/athletic/6482874/2025/07/10/lords-cricket-ground-slope-england-india/
+
+**Thierno Barry to Everton: Transfers TLDR**\
+`David Moyes has completed the signing of the 22-year-old French striker from Villarreal for a fee of just under Â£28m`\
+https://nytimes.com/athletic/6480735/2025/07/10/thierno-barry-everton-transfer-latest-tldr/
+
 **Late Night Is All Over Grok’s Antisemitic Posts**\
 `“Do you know how racist and antisemitic you have to be for Elon Musk to step in?” Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
 https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
