@@ -1,3 +1,7 @@
+**China Surveys Seabeds Where Naval Rivals May One Day Clash**\
+`Chinese research ships are studying the seas for science and resources, but the data they gather could also be useful in a conflict with Taiwan or the United States.`\
+https://nytimes.com/2025/07/10/world/asia/china-ships-taiwan-guam.html
+
 **U.S. Imposes Sanctions on U.N. Expert Who Has Criticized Israel’s Gaza War**\
 `Secretary of State Marco Rubio denounced Francesca Albanese, a special rapporteur, for investigating Americans and Israelis over the war in the enclave.`\
 https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.html
