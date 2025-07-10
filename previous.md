@@ -1,6 +1,14 @@
+**Trump May Not Be Done Overhauling Renewable Energy**\
+`Days after the passage of a sprawling domestic policy bill, the Trump administration announced moves that could further hamstring renewable energy.`\
+https://nytimes.com/2025/07/10/climate/trump-renewable-energy-solar.html
+
+**Zak Crawley: England's untouchable or a man legitimately under pressure?**\
+`The much-maligned England opener has struggled against India with the clamour from the outside for him to be replaced growing ever louder`\
+https://nytimes.com/athletic/6485782/2025/07/10/zak-crawley-england-bazball-butcher-ramprakash/
+
 **North Carolina Braces for More Heavy Rain and a Continued Risk of Flooding**\
 `Some places have had rainfall amounts that are 600 percent of normal in the last week.`\
-https://nytimes.com/2025/07/10/weather/north-carolina-braces-for-more-heavy-rain-and-a-continued-risk-of-flooding.html
+https://nytimes.com/2025/07/10/weather/north-carolina-rain-flood-risk.html
 
 **It’s Time to Let Go of ‘African American’**\
 `Why not just say what we mean?`\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/10/world/middleeast/houthis-attack-crew-rescued.html
 **Scoop City: 2025 AFC South preview**\
 `Key questions, breakout players and positions to watch in the AFC South, a division that C.J. Stroud has won in each of his pro seasons`\
 https://nytimes.com/athletic/6486333/2025/07/10/nfl-afc-south-preview-colts-texans-jaguars-titans-2025/
-
-**Forest mailbag: Edu's new role, Wissa top transfer target, how could Gibbs-White be replaced?**\
-`Paul Taylor answers your questions on all things Nottingham Forest, including Edu's new role, transfer targets and shirt sponsors...`\
-https://nytimes.com/athletic/6483107/2025/07/10/nottingham-forest-mailbag-edus-new-role-wissa-tops-transfer-targets-reasons-for-sosa-sale/
-
-**Critters stop the cricket: How play was halted at Lord's by a loveliness of ladybugs**\
-`Play was held up in the evening session as the insects descended upon the pitch, leaving Ben Stokes particularly vexed`\
-https://nytimes.com/athletic/6486354/2025/07/10/ladybugs-england-india-cricket-lords/
 
