@@ -1,3 +1,11 @@
+**Atlanta United president Garth Lagerwey takes leave after cancer diagnosis**\
+`Lagerwey is one of the most successful and influential sporting executives in MLS history`\
+https://nytimes.com/athletic/6486434/2025/07/10/garth-lagerwey-atlanta-united-leave-cancer/
+
+**The old Justin Verlander is still in there somewhere**\
+`The Verlander the Giants thought they were signing this offseason showed up on Wednesday. That could mean a lot in October.`\
+https://nytimes.com/athletic/6483999/2025/07/10/sf-giants-justin-verlander-pitch-breakdown/
+
 **Texas Tech built 'best team money can buy.' And Big 12 coaches have thoughts**\
 `Texas Tech’s NIL splurge has Big 12 coaches responding with envy, concern and pressure to win with the team it built.`\
 https://nytimes.com/athletic/6486058/2025/07/10/big-12-coaches-texas-tech-nil/
