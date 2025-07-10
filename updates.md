@@ -1,3 +1,7 @@
+**A Tiny Chef Inspires an Outsize Outpouring**\
+`When Nickelodeon canceled “The Tiny Chef Show,” fans rallied around the wee gourmand. But his TV future remains uncertain.`\
+https://nytimes.com/2025/07/10/arts/television/tiny-chef-show-nickelodeon.html
+
 **Rangers mailbag callout: Submit your offseason questions**\
 `What do you want to know about where the team stands?`\
 https://nytimes.com/athletic/6485579/2025/07/10/rangers-mailbag-nhl-free-agency-offseason/
