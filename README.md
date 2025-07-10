@@ -1,3 +1,15 @@
+**Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
+`Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
+https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/
+
+**Gareth Bale says his consortium has made a new offer for Cardiff**\
+`"We're very happy. We think it's very fair, if not more than fair," said the former Wales winger.`\
+https://nytimes.com/athletic/6468838/2025/07/10/gareth-bale-cardiff-takeover-new-bid/
+
+**A Judge Reignited the Standoff Over Birthright Citizenship**\
+`Also, Israel concluded that some of Iran’s nuclear material survived. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/10/briefing/judge-trump-birthright-citizenship-iran-israel.html
+
 **Missouri Governor Signs Bill Rolling Back Voter-Approved Minimum Wage and Sick Leave**\
 `The reversal reflected a growing struggle over the use of ballot measures to answer policy questions in Republican-led states.`\
 https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6486868/2025/07/10/endrick-setback-recovery-hamstri
 **NFLPA's Lloyd Howell Jr. not advised to resign from firm seeking NFL ownership**\
 `Howell joined The Carlyle Group in March 2023, months before the NFLPA hired him in June of that year, sources confirmed.`\
 https://nytimes.com/athletic/6486656/2025/07/10/nflpa-lloyd-howell-jr-carlyle-group/
-
-**How Literature Lost Its Mojo**\
-`It plays a much smaller role in our national life, and this has a dehumanizing effect on our culture.`\
-https://nytimes.com/2025/07/10/opinion/literature-books-novelists.html
-
-**Friday Briefing: Israel Says Iran Has Some Uranium Left**\
-`Plus, toads with psychedelic powers.`\
-https://nytimes.com/2025/07/10/briefing/iran-nuclear-program-ukraine-intelligence-killing-france-britain.html
-
-**Stars trade Matt Dumba, draft pick to Penguins for Vladislav Kolyachonok**\
-`Dumba recorded one goal and nine assists in 63 regular-season games last year, but did not play in the playoffs.`\
-https://nytimes.com/athletic/6486762/2025/07/10/penguins-matt-dumba-trade-stars-vladislav-kolyachonok/
 

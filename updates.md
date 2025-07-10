@@ -1,3 +1,7 @@
+**Missouri Governor Signs Bill Rolling Back Voter-Approved Minimum Wage and Sick Leave**\
+`The reversal reflected a growing struggle over the use of ballot measures to answer policy questions in Republican-led states.`\
+https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
+
 **The Serial Newsletter**\
 ``\
 https://nytimes.com/column/serial-newsletter
