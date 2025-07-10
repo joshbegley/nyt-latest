@@ -1,3 +1,19 @@
+**Arsenal close to full agreement with Chelsea for Noni Madueke**\
+`The 23-year-old has already agreed personal terms with Arsenal over a proposed five-year deal and is prioritising the north London side.`\
+https://nytimes.com/athletic/6483265/2025/07/10/arsenal-close-to-full-agreement-with-chelsea-for-noni-madueke/
+
+**Looming Copper Tariffs Leave Companies Scrambling: âPrices Will Go Upâ**\
+`President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
+https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
+
+**Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
+`He spent a lifetime patiently excavating the problems and possibilities of the painted surface â in terms of color, texture, process and space.`\
+https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
+
+**A Judge Reignited the Standoff Over Birthright Citizenship**\
+`Also, Israel concluded that some of Iranâs nuclear material survived. Hereâs the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/10/briefing/judge-trump-birthright-citizenship-iran-israel.html
+
 **Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
 `President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
 https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
