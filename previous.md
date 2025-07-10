@@ -1,3 +1,7 @@
+**At Least 13 People Died by Suicide Amid U.K. Post Office Scandal, Report Says**\
+`A public inquiry into the wrongful prosecutions of about 1,000 postal workers has uncovered more victims than previously known, according to a report.`\
+https://nytimes.com/2025/07/10/world/europe/uk-post-office-scandal-report.html
+
 **Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
 `The 23-year-old shortstop will join the team for its weekend series against the Texas Rangers.`\
 https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.ht
 https://nytimes.com/athletic/6476494/2025/07/10/switzerland-finland-euro-2025/
 
 **49ers' George Kittle is enjoying his golf debut, eagerly awaiting training camp**\
-`Kittle chugged beers and drained a birdie putt while getting off to a strong start at the American Century Championship golf tournament.`\
+`Kittle chugged a beer and made a birdie during a strong start in the scramble preceding the American Century Championship tournament.`\
 https://nytimes.com/athletic/6486442/2025/07/10/george-kittle-49ers-celebrity-golf/
 
 **Kennedy Cancels Meeting of Key Preventive Health Panel**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
 **Wimbledon recap: A doubles star wins yet another Grand Slam as Amanda Anisimova arrives**\
 `Kateřina Siniaková, the women's world No. 1 in doubles, is already a great of the discipline.`\
 https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-semifinals-results/
-
-**New York Must Move Forward With Housing Voucher Expansion, Court Rules**\
-`The decision by a New York appeals court was a win for the City Council and a loss for Mayor Eric Adams, who had opposed the expansion, citing budget concerns.`\
-https://nytimes.com/2025/07/10/nyregion/housing-voucher-nyc.html
 
