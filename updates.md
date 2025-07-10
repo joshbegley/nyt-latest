@@ -1,3 +1,11 @@
+**Israel’s Moral Balance Beam**\
+`The columnist Bret Stephens on what’s at stake for the Middle East and American Jews.`\
+https://nytimes.com/video/opinion/100000010271081/israels-moral-balance-beam.html
+
+**Real Madrid's Club World Cup: Alonso settles in, Gonzalo and Guler make a mark, but stars struggle**\
+`Madrid's tournament ended in the semi-final with some of their most high-profile players misfiring even if the youngsters took their chance`\
+https://nytimes.com/athletic/6484925/2025/07/10/real-madrid-alonso-fifa-club-world-cup/
+
 **Demna Says a Star-Studded Goodbye to Balenciaga**\
 `The designer’s farewell show came complete with Kim Kardashian, Nicole Kidman, Lauren Sanchez Bezos — and other greatest hits.`\
 https://nytimes.com/2025/07/10/style/demna-final-balenciaga-kim-kardashian.html
