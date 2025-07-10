@@ -1,36 +1,36 @@
-**Red Sox sweep Rockies as Masataka Yoshida collects 3 hits in season debut**\
-`Yoshida strengthens the lineup at a time when Boston has been rolling, scoring 10 or more runs in six of its last 11 games.`\
-https://nytimes.com/athletic/6484789/2025/07/09/red-sox-sweep-rockies-masataka-yoshida-debut/
+**Tunnel Collapses in Los Angeles, Trapping Workers**\
+`An industrial tunnel in the city’s Wilmington neighborhood collapsed, leaving workers trapped inside.`\
+https://nytimes.com/2025/07/10/us/tunnel-collapse-los-angeles-trapped.html
 
-**Wrestler, fighter Ben Askren 'died 4 times' before double lung transplant**\
-`In his first update since his life-saving surgery, Askren said he had no memories from May 28 through July 2 but is starting to recover.`\
-https://nytimes.com/athletic/6484722/2025/07/09/ben-askren-wrestler-mma-lung-transplant-recovery/
+**Does the football season ever really end?**\
+`The 2024-25 season hasn't finished but the 2025-26 season has already begun. Yep, you read that right. `\
+https://nytimes.com/athletic/6482795/2025/07/10/club-world-cup-champions-league-season-player-welfare/
 
-**Heckelphone Relative**\
-`Your successful solving of today’s puzzle is in the cards, according to Emily Biegas and Sala Wanetick.`\
-https://nytimes.com/2025/07/09/crosswords/daily-puzzle-2025-07-10.html
+**Wrexham's Down Under tour diary, part 1: Phil Parkinson on transfers, temperatures and training**\
+`In the first part of the club's tour diary, Wrexham's manager reveals how he has prepared for the visit to Australia and New Zealand`\
+https://nytimes.com/athletic/6476051/2025/07/10/wrexham-australia-tour-diary-phil-parkinson/
 
-**Camp Mystic Cabins Stood in an ‘Extremely Hazardous’ Floodway**\
-`An analysis of flood maps shows that several buildings, including those where children were sleeping, were in known hazard zones. A $5 million expansion in 2019 did nothing to alleviate the problem.`\
-https://nytimes.com/interactive/2025/07/09/us/camp-mystic-texas-cabins.html
+**Inside Jamie Gittens' transfer to Chelsea: Talks last summer, Bayern interest, friends reunited**\
+`The 20-year-old is returning to England - this is why he chose Chelsea, where he fits into their plans and how the deal was done`\
+https://nytimes.com/athletic/6479998/2025/07/10/jamie-gittens-chelsea-dortmund-transfer/
 
-**Lionel Messi becomes first MLS player with 4 straight multi-goal games**\
-`Inter Miami FC's star has eight goals and four assists across his last four MLS games.`\
-https://nytimes.com/athletic/6484686/2025/07/09/lionel-messi-mls-history-multiple-goals/
+**Starmer and Macron Agree to Nuclear Deterrence Pact to Fend Off Threat to Europe**\
+`The two leaders are set to confirm details of a strengthened defense relationship at a summit Thursday. An agreement on tackling unauthorized migration may also be announced.`\
+https://nytimes.com/2025/07/10/world/europe/starmer-macron-nuclear-agreement.html
 
-**Devin Booker, Suns agree on 2-year extension estimated at $145M: Source**\
-`Owner Mat Ishbia made it clear that Phoenix planned to build around Booker, a four-time All-Star who remains in his prime.`\
-https://nytimes.com/athletic/6484706/2025/07/09/suns-devin-booker-max-extension/
+**Quote of the Day: Youth Sports Industry Captures the Attention of Wall Street Investors**\
+`Quotation of the Day for Thursday, July 10, 2025.`\
+https://nytimes.com/2025/07/10/pageoneplus/quote-of-the-day-youth-sports-industry-captures-the-attention-of-wall-street-investors.html
 
-**Yankees’ Brian Cashman sheds (some) light on trade deadline plans**\
-`"We’re going to town,” Cashman said. “We’re going to do everything we possibly can to improve ourselves and try to match up."`\
-https://nytimes.com/athletic/6484646/2025/07/09/yankees-brian-cashman-trade-deadline-plans/
+**Connections: Sports Edition Coach: Hints for July 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6484256/2025/07/10/connections-sports-edition-hints-for-july-10-2025/
 
-**Rob Manfred is pushing for salary cap, and players are skeptical, union official says**\
-`Commissioner has been meeting directly with players to push his ideas, but the association says members aren't buying in. `\
-https://nytimes.com/athletic/6484590/2025/07/09/mlbpa-bruce-meyer-rob-manfred-salary-cap/
+**His Start-Up May Not Survive Chaotic Rollout of Trump’s Tariffs**\
+`A sourdough baker turned entrepreneur in North Carolina has delayed his new product as he contemplates the prospect that higher costs will doom his company.`\
+https://nytimes.com/2025/07/10/business/trump-tariffs-china.html
 
-**DuPont Agrees to $27 Million Payout in Hoosick Falls Water Contamination**\
-`The chemical company was one of four businesses that contaminated the water supply in the upstate New York community. Residents have fought for nearly a decade for a settlement.`\
-https://nytimes.com/2025/07/09/nyregion/hoosick-dupont-class-action-settlement.html
+**Corrections: July 10, 2025**\
+`Corrections that appeared in print on Thursday, July 10, 2025.`\
+https://nytimes.com/2025/07/10/pageoneplus/corrections-july-10-2025.html
 
