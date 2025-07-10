@@ -1,3 +1,15 @@
+**North Carolina Braces for More Heavy Rain and a Continued Risk of Flooding**\
+`Some places have had rainfall amounts that are 600 percent of normal in the last week.`\
+https://nytimes.com/2025/07/10/weather/north-carolina-braces-for-more-heavy-rain-and-a-continued-risk-of-flooding.html
+
+**It’s Time to Let Go of ‘African American’**\
+`Why not just say what we mean?`\
+https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
+
+**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
+`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
+
 **Itâs Time to Let Go of âAfrican Americanâ**\
 `Why not just say what we mean?`\
 https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
