@@ -1,3 +1,7 @@
+**gws-does-ketchup-need-to-be-refrigerated**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-does-ketchup-need-to-be-refrigerated
+
 **Adams asks USMNT fans to paint World Cup stadiums 'red, white and blue'**\
 `Mexico beat the USMNT for the Concacaf Gold Cup in front of 70,295 fans at Houston's NRG Stadium. Most of them were supporting the visitors.`\
 https://nytimes.com/athletic/6481419/2025/07/10/tyler-adams-usmnt-fans-pochettino-captaincy/

@@ -1,3 +1,7 @@
+**gws-does-ketchup-need-to-be-refrigerated**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-does-ketchup-need-to-be-refrigerated
+
 **Adams asks USMNT fans to paint World Cup stadiums 'red, white and blue'**\
 `Mexico beat the USMNT for the Concacaf Gold Cup in front of 70,295 fans at Houston's NRG Stadium. Most of them were supporting the visitors.`\
 https://nytimes.com/athletic/6481419/2025/07/10/tyler-adams-usmnt-fans-pochettino-captaincy/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484808/2025/07/10/devin-booker-phoenix-suns-contra
 **What are the Euro 2025 yellow card suspension rules? Which players are at risk?**\
 `A selection of players are on the cusp of being suspended for the quarter-finals if they're booked in their last match of the group stages.`\
 https://nytimes.com/athletic/6485227/2025/07/10/euro-2025-yellow-card-suspensions-bans/
-
-**Human rights court says Caster Semenya did not get fair hearing in sex eligibility rules fight**\
-`Semenya, 34, has been banned from racing since 2019 and has since moved into coaching.`\
-https://nytimes.com/athletic/6485335/2025/07/10/caster-semenya-trial-athletics/
 
