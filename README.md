@@ -1,3 +1,11 @@
+**K-Pop Singer Sentenced to 3½-Years in Rape of Chinese Tourist**\
+`Taeil, a former member of the popular boy band NCT, and two acquaintances were jailed in a case that has provoked anger in South Korea.`\
+https://nytimes.com/2025/07/10/world/asia/kpop-taeil-sentenced-sex-crime.html
+
+**Trump Compliments President of Liberia on His ‘Beautiful English’**\
+`During a lunch at the State Dining Room with five leaders of African nations, President Trump complimented the president of Liberia, where English is the official language, for his command of the language.`\
+https://nytimes.com/video/us/100000010277391/trump-liberia-president-english.html
+
 **Blue Jays trade scenarios: Jim Bowden assesses 4 proposals to fill Toronto's deadline needs**\
 `With three weeks to go until the deadline, the former GM weighs in on four hypothetical trades to fill the Blue Jays' key needs. `\
 https://nytimes.com/athletic/6485183/2025/07/10/blue-jays-trade-scenarios-needs/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6484737/2025/07/10/anthony-volpe-yankees-year-3-bri
 **Tigers' Zach McKinstry is an unlikely, but also well-deserved, All-Star**\
 `Tigers utilityman McKinstry was named as a replacement on the American League All-Star team Wednesday. `\
 https://nytimes.com/athletic/6484663/2025/07/10/tigers-zach-mckinstry-unlikely-all-star/
-
-**MLB Draft 2025: Names to know beyond the top 100 prospects**\
-`Scouting notes on 50 prospects who didn’t make the top 100 but could still hear their names called on draft day.`\
-https://nytimes.com/athletic/6467377/2025/07/10/mlb-draft-2025-beyond-top-100-prospects/
-
-**Nikola Topić, Bronny James and more non-rookies to watch at summer league**\
-`The league shines a light on first-year players in Vegas, but a few second- and third-year guys are worth keeping an eye on, too.`\
-https://nytimes.com/athletic/6483920/2025/07/10/nba-summer-league-vegas-bronny-james-nikola-topic/
 
