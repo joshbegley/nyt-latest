@@ -1,3 +1,7 @@
+**Texas Tech built 'best team money can buy.' And Big 12 coaches have thoughts**\
+`Texas Tech’s NIL splurge has Big 12 coaches responding with envy, concern and pressure to win with the team it built.`\
+https://nytimes.com/athletic/6486058/2025/07/10/big-12-coaches-texas-tech-nil/
+
 **Jane Lazarre, Who Wrote About Motherhood and Race, Dies at 81**\
 `With books like “The Mother Knot” and “Beyond the Whiteness of Whiteness,” she challenged liberal orthodoxies about feminism and the Black experience in America.`\
 https://nytimes.com/2025/07/10/books/jane-lazarre-dead.html
