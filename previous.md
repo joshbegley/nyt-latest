@@ -1,6 +1,10 @@
+**Rubio Visits Asia as Trump Raises Trade-War Tensions**\
+`Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created tension with U.S. partners.`\
+https://nytimes.com/2025/07/09/world/asia/rubio-asia-diplomacy-tariffs.html
+
 **Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
 `The North Carolina senator, who recently said he did not plan to run for re-election, said the defense secretary’s decisions have been amateurish and show he is unfit to lead a large organization.`\
-https://nytimes.com/2025/07/09/us/politics/tillis-suggests-he-regrets-vote-to-confirm-hegseth-calling-him-out-of-his-depth.html
+https://nytimes.com/2025/07/09/us/politics/tillis-hegseth-vote-unfit.html
 
 **Twins' Joe Ryan to replace Hunter Brown on AL All-Star Game roster**\
 `While multiple position players have been named replacements this week, Ryan was the first AL pitcher to be added.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/nyregion/ice-agents-masks-lawmakers-ban.html
 **After Rafael Devers deal, Giants focus on pitching depth at trade deadline**\
 `"Look, I don't think you can ever have enough pitching," Posey said. "So we'll just keep our options open for what might present itself."`\
 https://nytimes.com/athletic/6484397/2025/07/09/buster-posey-giants-trade-deadline/
-
-**Trump Compliments Liberian President for ‘Beautiful English’**\
-`English is the official language of the West African country, which was founded in part by freed American slaves.`\
-https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
 

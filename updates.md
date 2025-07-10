@@ -1,3 +1,11 @@
+**Rubio Visits Asia as Trump Raises Trade-War Tensions**\
+`Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created tension with U.S. partners.`\
+https://nytimes.com/2025/07/09/world/asia/rubio-asia-diplomacy-tariffs.html
+
+**Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
+`The North Carolina senator, who recently said he did not plan to run for re-election, said the defense secretary’s decisions have been amateurish and show he is unfit to lead a large organization.`\
+https://nytimes.com/2025/07/09/us/politics/tillis-hegseth-vote-unfit.html
+
 **Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
 `The North Carolina senator, who recently said he did not plan to run for re-election, said the defense secretary’s decisions have been amateurish and show he is unfit to lead a large organization.`\
 https://nytimes.com/2025/07/09/us/politics/tillis-suggests-he-regrets-vote-to-confirm-hegseth-calling-him-out-of-his-depth.html
