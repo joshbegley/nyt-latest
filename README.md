@@ -1,3 +1,11 @@
+**England’s Sycamore Gap Tree, Felled by Vandals, Stands Again as Art**\
+`A nearly seven-foot piece of trunk will be featured in an art exhibit to honor the beloved tree. Hugging it is encouraged.`\
+https://nytimes.com/2025/07/10/world/europe/sycamore-gap-tree-memorial.html
+
+**N.Y.P.D. Fires Dozens of Officers It Says Should Never Have Been Hired**\
+`About 30 officers were being dismissed on Thursday. An inspector who led the unit that vetted recruits was transferred in May after officials said he had ignored failures on psychological tests.`\
+https://nytimes.com/2025/07/10/nyregion/nypd-fired-psychological-exams.html
+
 **A Tiny Chef Inspires an Outsize Outpouring**\
 `When Nickelodeon canceled “The Tiny Chef Show,” fans rallied around the wee gourmand. But his TV future remains uncertain.`\
 https://nytimes.com/2025/07/10/arts/television/tiny-chef-show-nickelodeon.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6485899/2025/07/10/james-jones-nba-front-office-sun
 **Brighton offer new contract to goalkeeper Rushworth**\
 `The club want to stretch his six-year stay amid interest in the 23-year-old from sides in England and Scotland.`\
 https://nytimes.com/athletic/6485976/2025/07/10/brighton-transfers-carl-rushworth-contract/
-
-**Bazball, England's 28-ball scoreless sequence and the art of the leave**\
-`The passage of play at Lord's demonstrated that, in Test match cricket, sometimes nothing happening can still be compelling`\
-https://nytimes.com/athletic/6485859/2025/07/10/england-bazball-dot-pope-root-siraj-bumrah/
-
-**Al Hilal complete signing of Hernandez from Milan**\
-`The France international, 27, has joined the Saudi Pro League club on a three-year contract.`\
-https://nytimes.com/athletic/6353964/2025/07/10/theo-hernandez-al-hilal-transfer/
 
