@@ -1,3 +1,19 @@
+**Four More Rescued in Red Sea, as Houthis Vow to Keep Up Attacks**\
+`A total of 10 crew members have been rescued so far after Yemeni militants sank a Greek-owned cargo ship in the Red Sea.`\
+https://nytimes.com/2025/07/10/world/middleeast/houthis-attack-crew-rescued.html
+
+**Scoop City: 2025 AFC South preview**\
+`Key questions, breakout players and positions to watch in the AFC South, a division that C.J. Stroud has won in each of his pro seasons`\
+https://nytimes.com/athletic/6486333/2025/07/10/nfl-afc-south-preview-colts-texans-jaguars-titans-2025/
+
+**Forest mailbag: Edu's new role, Wissa top transfer target, how could Gibbs-White be replaced?**\
+`Paul Taylor answers your questions on all things Nottingham Forest, including Edu's new role, transfer targets and shirt sponsors...`\
+https://nytimes.com/athletic/6483107/2025/07/10/nottingham-forest-mailbag-edus-new-role-wissa-tops-transfer-targets-reasons-for-sosa-sale/
+
+**Critters stop the cricket: How play was halted at Lord's by a loveliness of ladybugs**\
+`Play was held up in the evening session as the insects descended upon the pitch, leaving Ben Stokes particularly vexed`\
+https://nytimes.com/athletic/6486354/2025/07/10/ladybugs-england-india-cricket-lords/
+
 **Atlanta United president Garth Lagerwey takes leave after cancer diagnosis**\
 `Lagerwey is one of the most successful and influential sporting executives in MLS history`\
 https://nytimes.com/athletic/6486434/2025/07/10/garth-lagerwey-atlanta-united-leave-cancer/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/10/books/jane-lazarre-dead.html
 **This Jungle Plant Is a Good Landlord to Its Tenant Ants**\
 `While plants often have mutually beneficial relationships with insects, a tuber in Fiji grows separate compartments for multiple ant species.`\
 https://nytimes.com/2025/07/10/science/ants-plant-fiji.html
-
-**No, Chemtrails Are Not Real or Causing Floods, E.P.A. Says**\
-`The agency took the unusual step of creating websites debunking the conspiracy theory that chemicals are being sprayed in the sky to control the weather or do other things.`\
-https://nytimes.com/2025/07/10/climate/epa-debunks-chemtrails-conspiracy-theory.html
-
-**Some of Iran’s Enriched Uranium Survived Attacks, Israeli Official Says**\
-`The assessment came as experts are trying to determine how long it would take Iran to rebuild its nuclear program in the aftermath of U.S. and Israeli strikes.`\
-https://nytimes.com/2025/07/10/us/politics/iran-attacks-damage.html
-
-**Torrential Rain Floods Boston-Area Roads**\
-`The heavy rain caused parts of a major highway to be shut down on Thursday. The state’s emergency management agency warned drivers to stay off of flooded roads, where vehicles can be swept away in less than two feet of moving water.`\
-https://nytimes.com/video/weather/100000010278217/massachusetts-flash-floods-rains.html
-
-**Michael Jordan's former Illinois mansion listed on Airbnb**\
-`Basketball fans can be like Mike and rent the seven-bedroom, 17 1/2-bathroom property in Highland Park, Ill.`\
-https://nytimes.com/athletic/6486178/2025/07/10/michael-jordan-mansion-airbnb-rent/
 

@@ -1,3 +1,7 @@
+**Chelsea's Mathis Amougou to join Strasbourg in permanent deal**\
+`The 19-year-old midfielder is returning to France just five months after joining the west London club.`\
+https://nytimes.com/athletic/6486450/2025/07/10/chelseas-mathis-amougou-to-join-sister-club-strasbourg-in-permanent-deal/
+
 **Four More Rescued in Red Sea, as Houthis Vow to Keep Up Attacks**\
 `A total of 10 crew members have been rescued so far after Yemeni militants sank a Greek-owned cargo ship in the Red Sea.`\
 https://nytimes.com/2025/07/10/world/middleeast/houthis-attack-crew-rescued.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6486058/2025/07/10/big-12-coaches-texas-tech-nil/
 **Jane Lazarre, Who Wrote About Motherhood and Race, Dies at 81**\
 `With books like “The Mother Knot” and “Beyond the Whiteness of Whiteness,” she challenged liberal orthodoxies about feminism and the Black experience in America.`\
 https://nytimes.com/2025/07/10/books/jane-lazarre-dead.html
-
-**This Jungle Plant Is a Good Landlord to Its Tenant Ants**\
-`While plants often have mutually beneficial relationships with insects, a tuber in Fiji grows separate compartments for multiple ant species.`\
-https://nytimes.com/2025/07/10/science/ants-plant-fiji.html
 
