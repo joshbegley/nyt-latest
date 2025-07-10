@@ -1,3 +1,11 @@
+**Wrestler, fighter Ben Askren 'died 4 times' before double lung transplant**\
+`In his first update since his life-saving surgery, Askren said he had no memories from May 28 through July 2 but is starting to recover.`\
+https://nytimes.com/athletic/6484722/2025/07/09/ben-askren-wrestler-mma-lung-transplant-recovery/
+
+**Lionel Messi becomes first MLS player with 4 straight multi-goal games**\
+`Inter Miami FC's star has eight goals and four assists across his last four MLS games.`\
+https://nytimes.com/athletic/6484686/2025/07/09/lionel-messi-mls-history-multiple-goals/
+
 **Heckelphone Relative**\
 `Your successful solving of today’s puzzle is in the cards, according to Emily Biegas and Sala Wanetick.`\
 https://nytimes.com/2025/07/09/crosswords/daily-puzzle-2025-07-10.html

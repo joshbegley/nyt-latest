@@ -1,3 +1,7 @@
+**Wrestler, fighter Ben Askren 'died 4 times' before double lung transplant**\
+`In his first update since his life-saving surgery, Askren said he had no memories from May 28 through July 2 but is starting to recover.`\
+https://nytimes.com/athletic/6484722/2025/07/09/ben-askren-wrestler-mma-lung-transplant-recovery/
+
 **Heckelphone Relative**\
 `Your successful solving of today’s puzzle is in the cards, according to Emily Biegas and Sala Wanetick.`\
 https://nytimes.com/2025/07/09/crosswords/daily-puzzle-2025-07-10.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/09/crosswords/daily-puzzle-2025-07-10.html
 `An analysis of flood maps shows that several buildings, including those where children were sleeping, were in known hazard zones. A $5 million expansion in 2019 did nothing to alleviate the problem.`\
 https://nytimes.com/interactive/2025/07/09/us/camp-mystic-texas-cabins.html
 
-**Lionel Messi becomes first MLS player with four straight multi-goal games**\
+**Lionel Messi becomes first MLS player with 4 straight multi-goal games**\
 `Inter Miami FC's star has eight goals and four assists across his last four MLS games.`\
 https://nytimes.com/athletic/6484686/2025/07/09/lionel-messi-mls-history-multiple-goals/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/nyregion/hoosick-dupont-class-action-settlement.h
 **Bryce Harper is having fun again as 4-extra-base-hit day shows Phillies star feels just fine**\
 `There is a certain energy when Harper is right — truly right — and the Phillies have not felt it all season. This felt different.`\
 https://nytimes.com/athletic/6484604/2025/07/09/phillies-bryce-harper-four-extra-base-hits/
-
-**Astros' Jake Meyers exits game with apparent injury before first pitch**\
-`Meyers had dealt with a a right calf issue for the past two days. `\
-https://nytimes.com/athletic/6484608/2025/07/09/houston-astros-jake-meyers-injury/
 
