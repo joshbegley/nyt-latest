@@ -1,3 +1,7 @@
+**gws-hmong-minnesota-food**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/hmong-minnesota-food
+
 **Devin Booker, with a two-year max extension, faces his biggest challenge with the Suns**\
 `Booker likes the idea of finishing his career in one place. But the relationship has to stretch beyond money and comfort.`\
 https://nytimes.com/athletic/6484808/2025/07/10/devin-booker-phoenix-suns-contract-extension-challenge/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6434923/2025/07/10/chris-eubank-jr-weight-fine/
 **Palace co-owner Textor believes club will compete in Europa League**\
 `Palace qualified for the Europa League by winning the FA Cup in May but have been in limbo since.`\
 https://nytimes.com/athletic/6485346/2025/07/10/crystal-palace-europe-john-textor/
-
-**Delta’s Stock Soars on Signs of ‘Stabilized’ Travel Demand**\
-`The airline reported better earnings than expected for its latest quarter, and restored its forecast for the rest of the year.`\
-https://nytimes.com/2025/07/10/business/delta-earnings-travel-demand.html
 
