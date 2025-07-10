@@ -1,8 +1,20 @@
-**Judge Blocks Trump’s Birthright Citizenship Order in Class-Action Challenge**\
-`The federal judge reignited the legal standoff over President Trump’s efforts to deny citizenship to children born to undocumented parents.`\
+**Orioles trade reliever Bryan Baker to Rays for No. 37 pick in MLB draft**\
+`The move could signal a sweeping series of sell moves by the O's, who now have seven picks in the top 100 on Sunday. `\
+https://nytimes.com/athletic/6485770/2025/07/10/orioles-trade-reliever-bryan-baker-to-rays-for-no-37-pick-in-mlb-draft/
+
+**What Might a Billionaire Lose at? Turns Out, Tennis.**\
+`Bill Ackman, an outspoken 59-year-old financier, tried competing in a professional tournament.`\
+https://nytimes.com/2025/07/10/style/bill-ackman-tennis-hall-of-fame-open.html
+
+**Amanda Anisimova stuns Wimbledon favorite Aryna Sabalenka to reach first Grand Slam final**\
+`The American No. 13 seed did not shrink from her duel with Sabalenka on Centre Court, going after her shots at all times.`\
+https://nytimes.com/athletic/6485485/2025/07/10/tennis-wimbledon-anisimova-sabalenka-semifinal-result-analysis/
+
+**Judge Blocks Trumpâs Birthright Citizenship Order in Class-Action Challenge**\
+`The federal judge reignited the legal standoff over President Trumpâs efforts to deny citizenship to children born to undocumented parents.`\
 https://nytimes.com/2025/07/10/us/politics/trump-birthright-citizenship-lawsuit.html
 
-**Review: ‘Too Much’ Is Not Nervy Enough**\
+**Review: âToo Muchâ Is Not Nervy Enough**\
 `This new Netflix comedy by Lena Dunham is the surprisingly mild tale of a young woman fleeing New York after a catastrophic breakup.`\
 https://nytimes.com/2025/07/10/arts/television/review-too-much-lena-dunham-netflix.html
 
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/10/weather/flash-flood-warning-massachusetts.html
 **Eli Manning not pursuing Giants ownership stake: 'It's too expensive for me'**\
 `Manning also cited conflicts of interest with his broadcasting gigs and the Manning Passing Academy as reasons to pull out of the bid.`\
 https://nytimes.com/athletic/6485652/2025/07/10/eli-manning-giants-ownership-stake-cost/
-
-**La Scala Warns Opera Patrons: No Flip-Flops or Tank Tops Allowed**\
-`Milan’s famed opera house is cracking down on the underdressed, even as it and other European opera companies try to attract a wider audience.`\
-https://nytimes.com/2025/07/10/arts/la-scala-opera-dress-code.html
-
-**What’s Your Sign to Keep Swiping?**\
-`Some frustrated singles found dating-app inspiration in an unlikely place: Zohran Mamdani’s success on Hinge.`\
-https://nytimes.com/2025/07/10/style/dating-apps-zohran-mamdani-hinge.html
-
-**James B. Maas, Academic Guru of Slumber, Dies at 86**\
-`He taught an immensely popular and entertaining introduction to psychology course at Cornell University that featured a focus on the importance of sleep.`\
-https://nytimes.com/2025/07/10/science/james-b-maas-dead.html
 
