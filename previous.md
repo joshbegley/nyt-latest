@@ -1,3 +1,11 @@
+**Rangers mailbag callout: Submit your offseason questions**\
+`What do you want to know about where the team stands?`\
+https://nytimes.com/athletic/6485579/2025/07/10/rangers-mailbag-nhl-free-agency-offseason/
+
+**Former USWNT midfielder Tobin Heath reflects on soccer career: 'Nothing will ever fill that void'**\
+`The two-time World Cup winner and Olympic gold medalist reflects on a decade-long career`\
+https://nytimes.com/athletic/6485509/2025/07/10/uswnt-nwsl-tobin-heath-retires/
+
 **Israel Will Allow More Aid Into Gaza, Officials Say**\
 `The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
 https://nytimes.com/2025/07/10/world/middleeast/israel-gaza-aid.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6353964/2025/07/10/theo-hernandez-al-hilal-transfer
 **Bournemouth in advanced talks to sign Chelsea's Petrovic**\
 `The south-coast side are looking for a new No 1 after the departure of Kepa Arrizabalaga.`\
 https://nytimes.com/athletic/6431488/2025/07/10/djordje-petrovic-chelsea-bournemouth/
-
-**Trump’s Push for Influence Over Fed Decisions May Hobble Next Chair**\
-`The president hasn’t named a successor to Jerome H. Powell, but his insistence on someone who will lower interest rates has already raised doubts about their credibility.`\
-https://nytimes.com/2025/07/10/business/trump-fed-chair-independence.html
-
-**Fiorentina sign Edin Dzeko from Fenerbahce**\
-`Dzeko, 39, has signed a one-year deal, with potential for a further 12 months, and will play in the Conference League next season.`\
-https://nytimes.com/athletic/6429012/2025/07/10/edin-dzeko-fiorentina-transfer/
 

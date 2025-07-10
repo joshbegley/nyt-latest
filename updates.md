@@ -1,3 +1,11 @@
+**Rangers mailbag callout: Submit your offseason questions**\
+`What do you want to know about where the team stands?`\
+https://nytimes.com/athletic/6485579/2025/07/10/rangers-mailbag-nhl-free-agency-offseason/
+
+**Former USWNT midfielder Tobin Heath reflects on soccer career: 'Nothing will ever fill that void'**\
+`The two-time World Cup winner and Olympic gold medalist reflects on a decade-long career`\
+https://nytimes.com/athletic/6485509/2025/07/10/uswnt-nwsl-tobin-heath-retires/
+
 **Israel Will Allow More Aid Into Gaza, Officials Say**\
 `The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
 https://nytimes.com/2025/07/10/world/middleeast/israel-gaza-aid.html
