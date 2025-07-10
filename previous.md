@@ -1,9 +1,13 @@
+**Itâs Time to Let Go of âAfrican Americanâ**\
+`Why not just say what we mean?`\
+https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
+
 **What to Know About the New U.S.-Brazil Trade War**\
 `The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
 https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html
 
-**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
-`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+**Dave âBabyâ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
+`His âThe Happy Organâ reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
 https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
 
 **Chelsea's Mathis Amougou to join Strasbourg in permanent deal**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6486354/2025/07/10/ladybugs-england-india-cricket-l
 **Atlanta United president Garth Lagerwey takes leave after cancer diagnosis**\
 `Lagerwey is one of the most successful and influential sporting executives in MLS history`\
 https://nytimes.com/athletic/6486434/2025/07/10/garth-lagerwey-atlanta-united-leave-cancer/
-
-**The old Justin Verlander is still in there somewhere**\
-`The Verlander the Giants thought they were signing this offseason showed up Wednesday. That could mean a lot in October.`\
-https://nytimes.com/athletic/6483999/2025/07/10/sf-giants-justin-verlander-pitch-breakdown/
 

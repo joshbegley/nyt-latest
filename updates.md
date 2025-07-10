@@ -1,3 +1,11 @@
+**Itâs Time to Let Go of âAfrican Americanâ**\
+`Why not just say what we mean?`\
+https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
+
+**Dave âBabyâ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
+`His âThe Happy Organâ reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
+
 **What to Know About the New U.S.-Brazil Trade War**\
 `The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
 https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html

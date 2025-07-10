@@ -1,4 +1,8 @@
-**Itâs Time to Let Go of âAfrican Americanâ**\
+**North Carolina Braces for More Heavy Rain and a Continued Risk of Flooding**\
+`Some places have had rainfall amounts that are 600 percent of normal in the last week.`\
+https://nytimes.com/2025/07/10/weather/north-carolina-braces-for-more-heavy-rain-and-a-continued-risk-of-flooding.html
+
+**It’s Time to Let Go of ‘African American’**\
 `Why not just say what we mean?`\
 https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
 
@@ -6,8 +10,8 @@ https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.h
 `The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
 https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html
 
-**Dave âBabyâ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
-`His âThe Happy Organâ reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
+`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
 https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
 
 **Chelsea's Mathis Amougou to join Strasbourg in permanent deal**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483107/2025/07/10/nottingham-forest-mailbag-edus-n
 **Critters stop the cricket: How play was halted at Lord's by a loveliness of ladybugs**\
 `Play was held up in the evening session as the insects descended upon the pitch, leaving Ben Stokes particularly vexed`\
 https://nytimes.com/athletic/6486354/2025/07/10/ladybugs-england-india-cricket-lords/
-
-**Atlanta United president Garth Lagerwey takes leave after cancer diagnosis**\
-`Lagerwey is one of the most successful and influential sporting executives in MLS history`\
-https://nytimes.com/athletic/6486434/2025/07/10/garth-lagerwey-atlanta-united-leave-cancer/
 
