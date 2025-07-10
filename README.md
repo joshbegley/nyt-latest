@@ -1,3 +1,11 @@
+**Texas County Flagged Need for Flood Alarm Months Before Tragedy**\
+`Kerr County repeatedly failed to secure a warning system, even as local officials remained aware of the risks and as billions of dollars were available for similar projects.`\
+https://nytimes.com/2025/07/10/us/politics/texas-flood-alarm-system.html
+
+**Read the document**\
+`In a 220-page report to FEMA last year, Kerr County said a flood was likely within a year, and could exceed historical records.`\
+https://nytimes.com/interactive/2025/07/10/us/10-2024-kerrcountyhazardmitigationactionplan.html
+
 **At Least 13 People Died by Suicide Amid U.K. Post Office Scandal, Report Says**\
 `A public inquiry into the wrongful prosecutions of about 1,000 postal workers has uncovered more victims than previously known, according to a report.`\
 https://nytimes.com/2025/07/10/world/europe/uk-post-office-scandal-report.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6476494/2025/07/10/switzerland-finland-euro-2025/
 **49ers' George Kittle is enjoying his golf debut, eagerly awaiting training camp**\
 `Kittle chugged a beer and made a birdie during a strong start in the scramble preceding the American Century Championship tournament.`\
 https://nytimes.com/athletic/6486442/2025/07/10/george-kittle-49ers-celebrity-golf/
-
-**Kennedy Cancels Meeting of Key Preventive Health Panel**\
-`The task force recommends which screenings and other preventive health measures must be covered by insurance.`\
-https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
-
-**Wimbledon recap: A doubles star wins yet another Grand Slam as Amanda Anisimova arrives**\
-`Kateřina Siniaková, the women's world No. 1 in doubles, is already a great of the discipline.`\
-https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-semifinals-results/
 
