@@ -1,3 +1,27 @@
+**U.S. Imposes Sanctions on U.N. Expert Who Has Criticized Israel’s Gaza War**\
+`Secretary of State Marco Rubio denounced Francesca Albanese, a special rapporteur, for investigating Americans and Israelis over the war in the enclave.`\
+https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.html
+
+**How to watch Wimbledon 2025 women's semifinals: Can US' Anisimova overcome Sabalenka?**\
+`Wimbledon 2025 women's semifinals features No. 1 Sabalenka vs. No. 13 Anisimova and No. 8 Swiatek vs. Bencic. `\
+https://nytimes.com/athletic/6479994/2025/07/10/how-to-watch-wimbeldon-2025-womens-semifinals-aryna-sabalenka-amanda-anisimova/
+
+**FEMA Is Holding Up $2.4 Billion in Grants to Fight Terrorism, States Say**\
+`FEMA officials are two months behind in posting grant application guidelines, which are expected to reflect President Trump’s demand for cooperation on his priorities.`\
+https://nytimes.com/2025/07/10/nyregion/fema-funds-trump-noem.html
+
+**As MetroCard Phases Out, Riders Gripe About Its Replacement**\
+`A survey of transit riders found that a majority have had issues with New York’s new tap-and-go system, months before its predecessor is expected to be retired.`\
+https://nytimes.com/2025/07/10/nyregion/metrocard-omni-nyc-rider-issues.html
+
+**A Reporter’s Trail From a Bush-Era Cyberattack to Trump’s Strike on Iran**\
+`During the Obama administration, a Times reporter revealed details of a cyberattack on a nuclear enrichment center in Iran. He followed the story to the White House, and learned lessons critical to covering the recent bombing of Fordo and Natanz.`\
+https://nytimes.com/2025/07/10/insider/cyberattack-iran.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/10/crosswords/spelling-bee-forum.html
+
 **Meet Ayden Heaven and his agent mum, Lisa - 'I had a lot of setbacks, but it helped me as a person to this day'**\
 `Ayden Heaven and his mum Lisa discuss the defender joining Manchester United, his journey to the top and reaching his "maximum potential"`\
 https://nytimes.com/athletic/6479807/2025/07/10/ayden-heaven-mum-manchester-united/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6484247/2025/07/10/euro-2025-roundup-sweden-draws/
 **Word of the Day: kitschy**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/10/learning/word-of-the-day-kitschy.html
-
-**Tunnel Collapses in Los Angeles**\
-`Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
-https://nytimes.com/video/us/100000010277145/tunnel-collapses-in-los-angeles.html
-
-**Lauren James: The player who strikes a ball like no one else in the women's game**\
-`The Athletic analyses the Chelsea forward's 'unique' technique following her stunning performance against the Netherlands`\
-https://nytimes.com/athletic/6484408/2025/07/10/lauren-james-shooting-technique-analysed-england/
-
-**France took the opportunity to rest and rotate against Wales - and it worked**\
-`This remains a team in transition but Bonadei is ensuring that transition is working`\
-https://nytimes.com/athletic/6484449/2025/07/10/france-rotations-wales-euro-2025/
-
-**It is now blindingly obvious that PSG are the world's best football team**\
-`Yes, there is still a Club World Cup final against Chelsea to come but Luis Enrique's side look untouchable `\
-https://nytimes.com/athletic/6484880/2025/07/10/psg-best-team-in-world/
-
-**Late Night Is All Over Grok’s Antisemitic Posts**\
-`“Do you know how racist and antisemitic you have to be for Elon Musk to step in?” Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
-https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
-
-**Thursday Briefing: Russia’s Record Drone Attack**\
-`Plus, the Bayeux Tapestry’s homecoming.`\
-https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
 
