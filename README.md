@@ -1,5 +1,9 @@
+**Kennedy Cancels Meeting of Key Preventive Health Panel**\
+`The task force recommends which screenings and other preventive health measures must be covered by insurance.`\
+https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
+
 **Wimbledon recap: A doubles star wins yet another Grand Slam as Amanda Anisimova arrives**\
-`Kateřina Siniaková, the women's world No. 1 in doubles, is already a great of the discipline.`\
+`KateÅina SiniakovÃ¡, the women's world No. 1 in doubles, is already a great of the discipline.`\
 https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-semifinals-results/
 
 **New York Must Move Forward With Housing Voucher Expansion, Court Rules**\
@@ -22,15 +26,11 @@ https://nytimes.com/athletic/6486976/2025/07/10/mets-david-peterson-nl-all-star-
 `The 23-year-old has already agreed personal terms with Arsenal over a proposed five-year deal and is prioritising the north London side.`\
 https://nytimes.com/athletic/6483265/2025/07/10/arsenal-close-to-full-agreement-with-chelsea-for-noni-madueke/
 
-**Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
+**Looming Copper Tariffs Leave Companies Scrambling: âPrices Will Go Upâ**\
 `President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
 https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
 
 **Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
-`He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
+`He spent a lifetime patiently excavating the problems and possibilities of the painted surface â in terms of color, texture, process and space.`\
 https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
-
-**F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
-`The letters, many of which were already available online, detail why the regulators initially declined to approve some drugs. All eventually passed muster.`\
-https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
 
