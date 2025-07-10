@@ -1,3 +1,19 @@
+**Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
+`Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
+https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/
+
+**Gareth Bale says his consortium has made a new offer for Cardiff**\
+`"We're very happy. We think it's very fair, if not more than fair," said the former Wales winger.`\
+https://nytimes.com/athletic/6468838/2025/07/10/gareth-bale-cardiff-takeover-new-bid/
+
+**A Judge Reignited the Standoff Over Birthright Citizenship**\
+`Also, Israel concluded that some of Iran’s nuclear material survived. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/10/briefing/judge-trump-birthright-citizenship-iran-israel.html
+
+**The Serial Newsletter**\
+`Be the first to know about our new podcasts, and get an exclusive look into how they come together. <a href="https://www.nytimes.com/newsletters/serial" target=" _blank">Sign up</a> for the Serial newsletter.`\
+https://nytimes.com/column/serial-newsletter
+
 **Missouri Governor Signs Bill Rolling Back Voter-Approved Minimum Wage and Sick Leave**\
 `The reversal reflected a growing struggle over the use of ballot measures to answer policy questions in Republican-led states.`\
 https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
