@@ -1,3 +1,7 @@
+**Denmark Aims to Use Copyright Law to Protect People From Deepfakes**\
+`A pioneering bill would give citizens the right to demand that social media platforms remove digital forgeries of themselves.`\
+https://nytimes.com/2025/07/10/world/europe/denmark-deepfake-copyright-ai-law.html
+
 **Christian Norgaard to Arsenal: Transfers TLDR**\
 `Arsenal have brought in experienced midfielder Christian Norgaard from Brentford – here's a breakdown of the move`\
 https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-arsenal-transfer-tldr/

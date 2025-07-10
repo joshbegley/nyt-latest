@@ -1,3 +1,7 @@
+**Denmark Aims to Use Copyright Law to Protect People From Deepfakes**\
+`A pioneering bill would give citizens the right to demand that social media platforms remove digital forgeries of themselves.`\
+https://nytimes.com/2025/07/10/world/europe/denmark-deepfake-copyright-ai-law.html
+
 **Christian Norgaard to Arsenal: Transfers TLDR**\
 `Arsenal have brought in experienced midfielder Christian Norgaard from Brentford – here's a breakdown of the move`\
 https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-arsenal-transfer-tldr/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483920/2025/07/10/nba-summer-league-vegas-bronny-j
 **Looking back at the Reds' last 10 first-round picks in the MLB Draft**\
 `Before looking ahead to this year's draft, here’s a review of the team’s first-round picks over the last decade.`\
 https://nytimes.com/athletic/6469602/2025/07/10/reds-mlb-draft-picks-2025/
-
-**Vannini: Brett Yormark is all in on CFP model with 11 at-large berths. Big 12 has to be**\
-`To codify the Big Ten's auto-bid model would be waving the white flag and accepting a lower status. It's not up to Yormark, though.`\
-https://nytimes.com/athletic/6484352/2025/07/10/big-12-brett-yormark-cfp-format/
 
