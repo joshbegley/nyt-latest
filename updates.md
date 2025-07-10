@@ -1,3 +1,15 @@
+**Heckelphone Relative**\
+`Your successful solving of today’s puzzle is in the cards, according to Emily Biegas and Sala Wanetick.`\
+https://nytimes.com/2025/07/09/crosswords/daily-puzzle-2025-07-10.html
+
+**Camp Mystic Cabins Stood in an ‘Extremely Hazardous’ Floodway**\
+`An analysis of flood maps shows that several buildings, including those where children were sleeping, were in known hazard zones. A $5 million expansion in 2019 did nothing to alleviate the problem.`\
+https://nytimes.com/interactive/2025/07/09/us/camp-mystic-texas-cabins.html
+
+**Yankees’ Brian Cashman sheds (some) light on trade deadline plans**\
+`"We’re going to town,” Cashman said. “We’re going to do everything we possibly can to improve ourselves and try to match up."`\
+https://nytimes.com/athletic/6484646/2025/07/09/yankees-brian-cashman-trade-deadline-plans/
+
 **Red Sox sweep Rockies as Masataka Yoshida collects 3 hits in season debut**\
 `Yoshida strengthens the lineup at a time when Boston has been rolling, scoring 10 or more runs in six of its last 11 games.`\
 https://nytimes.com/athletic/6484789/2025/07/09/red-sox-sweep-rockies-masataka-yoshida-debut/
