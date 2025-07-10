@@ -1,3 +1,7 @@
+**31 Workers Rescued From Tunnel That Collapsed in Los Angeles**\
+`Authorities sent more than 100 first responders to the site in the city’s Wilmington neighborhood. Officials said there were no significant injuries.`\
+https://nytimes.com/2025/07/10/us/tunnel-collapse-los-angeles-trapped.html
+
 **Trump Names Sean Duffy as Interim Head of NASA**\
 `President Trump had pulled the nomination of a close associate of Elon Musk to lead the agency in May. The decision fueled a public breakdown of their alliance.`\
 https://nytimes.com/2025/07/10/us/politics/trump-nasa-sean-duffy.html

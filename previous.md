@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6482895/2025/07/10/hansi-flick-barcelona-ter-stegen
 `The death of a player sends shockwaves through a team – so how do clubs deal with the huge impact?`\
 https://nytimes.com/athletic/6483510/2025/07/10/what-happens-at-a-football-club-player-death/
 
-**Tunnel Collapses in Los Angeles, Trapping Workers**\
-`An industrial tunnel in the city’s Wilmington neighborhood collapsed, leaving workers trapped inside.`\
+**31 Workers Rescued From Tunnel That Collapsed in Los Angeles**\
+`Authorities sent more than 100 first responders to the site in the city’s Wilmington neighborhood. Officials said there were no significant injuries.`\
 https://nytimes.com/2025/07/10/us/tunnel-collapse-los-angeles-trapped.html
 
