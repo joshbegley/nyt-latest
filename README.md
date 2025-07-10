@@ -1,3 +1,7 @@
+**It is now blindingly obvious that PSG are the world's best football team**\
+`Yes, there is still a Club World Cup final against Chelsea to come but Luis Enrique's side look untouchable `\
+https://nytimes.com/athletic/6484880/2025/07/10/psg-best-team-in-world/
+
 **Late Night Is All Over Grok’s Antisemitic Posts**\
 `“Do you know how racist and antisemitic you have to be for Elon Musk to step in?” Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
 https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6482874/2025/07/10/lords-cricket-ground-slope-engla
 **Thierno Barry to Everton: Transfers TLDR**\
 `David Moyes has completed the signing of the 22-year-old French striker from Villarreal for a fee of just under £28m`\
 https://nytimes.com/athletic/6480735/2025/07/10/thierno-barry-everton-transfer-latest-tldr/
-
-**How does Anthony Elanga compare to the Premier League's fastest players?**\
-`There is one attribute that stands out above all others with Elanga - his raw, defence-terrorising speed`\
-https://nytimes.com/athletic/6482807/2025/07/10/anthony-elanga-newcastle-sprinting-fastest/
 
