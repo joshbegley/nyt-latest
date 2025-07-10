@@ -1,3 +1,7 @@
+**Wimbledon recap: A doubles star wins yet another Grand Slam as Amanda Anisimova arrives**\
+`Kateřina Siniaková, the women's world No. 1 in doubles, is already a great of the discipline.`\
+https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-semifinals-results/
+
 **New York Must Move Forward With Housing Voucher Expansion, Court Rules**\
 `The decision by a New York appeals court was a win for the City Council and a loss for Mayor Eric Adams, who had opposed the expansion, citing budget concerns.`\
 https://nytimes.com/2025/07/10/nyregion/housing-voucher-nyc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
 **F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
 `The letters, many of which were already available online, detail why the regulators initially declined to approve some drugs. All eventually passed muster.`\
 https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
-
-**Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
-`Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
-https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/
 
