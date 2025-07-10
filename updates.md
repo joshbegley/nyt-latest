@@ -1,3 +1,15 @@
+**Sarah Fillier signs 2-year contract with New York Sirens, becoming PWHL's highest-paid player**\
+`Fillier's decision to sign a one-year deal after being selected No. 1 at the PWHL draft last year now looks like a savvy bet.`\
+https://nytimes.com/athletic/6486245/2025/07/10/sarah-fillier-pwhl-new-york-sirens-contract/
+
+**The Original Birkin Sells for $10 Million**\
+`A lively bidding war led to the Hermès prototype, which was created for the actress Jane Birkin, selling for far more than expected.`\
+https://nytimes.com/2025/07/10/style/original-birkin-bag-auction-sold.html
+
+**Iga Swiatek puts on tennis masterclass against Belinda Bencic to reach Wimbledon final**\
+`Świątek eased into her first Wimbledon final with the controlled, directed aggressiveness that has defined her play this fortnight.`\
+https://nytimes.com/athletic/6486061/2025/07/10/tennis-wimbledon-swiatek-bencic-semifinal-result-analysis/
+
 **Talking Yankees trade deadline — and more: Which prospects could they part with?**\
 `During a live Q&A, Brendan Kuty discussed a variety of Yankees topics, including the deadline, Anthony Volpe and the team's summer swoons. `\
 https://nytimes.com/athletic/6486083/2025/07/10/yankees-prospects-mlb-trade-deadline/

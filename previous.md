@@ -1,3 +1,15 @@
+**Sarah Fillier signs 2-year contract with New York Sirens, becoming PWHL's highest-paid player**\
+`Fillier's decision to sign a one-year deal after being selected No. 1 at the PWHL draft last year now looks like a savvy bet.`\
+https://nytimes.com/athletic/6486245/2025/07/10/sarah-fillier-pwhl-new-york-sirens-contract/
+
+**The Original Birkin Sells for $10 Million**\
+`A lively bidding war led to the Hermès prototype, which was created for the actress Jane Birkin, selling for far more than expected.`\
+https://nytimes.com/2025/07/10/style/original-birkin-bag-auction-sold.html
+
+**Iga Swiatek puts on tennis masterclass against Belinda Bencic to reach Wimbledon final**\
+`Świątek eased into her first Wimbledon final with the controlled, directed aggressiveness that has defined her play this fortnight.`\
+https://nytimes.com/athletic/6486061/2025/07/10/tennis-wimbledon-swiatek-bencic-semifinal-result-analysis/
+
 **Talking Yankees trade deadline — and more: Which prospects could they part with?**\
 `During a live Q&A, Brendan Kuty discussed a variety of Yankees topics, including the deadline, Anthony Volpe and the team's summer swoons. `\
 https://nytimes.com/athletic/6486083/2025/07/10/yankees-prospects-mlb-trade-deadline/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/10/books/review/new-book-recommendations.html
 **Forest have fresh offer for Wissa rejected by Brentford**\
 `Brentford value Wissa, who scored 19 goals in 35 Premier League appearances last season, at more than £50m.`\
 https://nytimes.com/athletic/6423688/2025/07/10/yoane-wissa-nottingham-forest-transfer/
-
-**Tour de France stage six: Solo masterclass from Healy, Americans in the break, Van der Poel back in yellow by a second**\
-`Analysis of the sixth stage of the 2025 Tour de France, which took the peloton from Bayeux to Vire Normandie`\
-https://nytimes.com/athletic/6485560/2025/07/10/tour-de-france-stage-six-analysis/
-
-**Video Game Actors End Contract Dispute Over A.I.**\
-`The actors went on an 11-month strike against the studios behind Call of Duty and other games because of concerns that visual and voice replicas would reduce their work.`\
-https://nytimes.com/2025/07/10/arts/video-game-actors-contract-ai.html
-
-**This Summer’s Salacious Dance Anthem**\
-`A remix of “Shake It to the Max” by the Ghanaian singer Moliy and the Jamaican producer Silent Addy is a global smash. Our critic explains from his car.`\
-https://nytimes.com/video/podcasts/100000010276675/moliy-shake-it-song-of-the-week.html
 
