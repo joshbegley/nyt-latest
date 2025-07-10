@@ -1,3 +1,19 @@
+**Bazball, England's 28-ball scoreless sequence and the art of the leave**\
+`The passage of play at Lord's demonstrated that, in Test match cricket, sometimes nothing happening can still be compelling`\
+https://nytimes.com/athletic/6485859/2025/07/10/england-bazball-dot-pope-root-siraj-bumrah/
+
+**Al Hilal complete signing of Hernandez from Milan**\
+`The France international, 27, has joined the Saudi Pro League club on a three-year contract.`\
+https://nytimes.com/athletic/6353964/2025/07/10/theo-hernandez-al-hilal-transfer/
+
+**Bournemouth in advanced talks to sign Chelsea's Petrovic**\
+`The south-coast side are looking for a new No 1 after the departure of Kepa Arrizabalaga.`\
+https://nytimes.com/athletic/6431488/2025/07/10/djordje-petrovic-chelsea-bournemouth/
+
+**Trump’s Push for Influence Over Fed Decisions May Hobble Next Chair**\
+`The president hasn’t named a successor to Jerome H. Powell, but his insistence on someone who will lower interest rates has already raised doubts about their credibility.`\
+https://nytimes.com/2025/07/10/business/trump-fed-chair-independence.html
+
 **Fiorentina sign Edin Dzeko from Fenerbahce**\
 `Dzeko, 39, has signed a one-year deal, with potential for a further 12 months, and will play in the Conference League next season.`\
 https://nytimes.com/athletic/6429012/2025/07/10/edin-dzeko-fiorentina-transfer/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/10/style/bill-ackman-tennis-hall-of-fame-open.html
 **Amanda Anisimova stuns Wimbledon favorite Aryna Sabalenka to reach first Grand Slam final**\
 `The American No. 13 seed did not shrink from her duel with Sabalenka on Centre Court, going after her shots at all times.`\
 https://nytimes.com/athletic/6485485/2025/07/10/tennis-wimbledon-anisimova-sabalenka-semifinal-result-analysis/
-
-**Judge Blocks Trump’s Birthright Citizenship Order in Class-Action Challenge**\
-`The federal judge reignited the legal standoff over President Trump’s efforts to deny citizenship to children born to undocumented parents.`\
-https://nytimes.com/2025/07/10/us/politics/trump-birthright-citizenship-lawsuit.html
-
-**Review: ‘Too Much’ Is Not Nervy Enough**\
-`This new Netflix comedy by Lena Dunham is the surprisingly mild tale of a young woman fleeing New York after a catastrophic breakup.`\
-https://nytimes.com/2025/07/10/arts/television/review-too-much-lena-dunham-netflix.html
-
-**Everton interested in Bournemouth goalkeeper Travers as backup for Pickford**\
-`The 26-year-old would become Everton's third signing of the summer after Carlos Alcaraz and Thierno Barry if he joins.`\
-https://nytimes.com/athletic/6480590/2025/07/10/mark-travers-everton-goalkeeper-backup/
-
-**A 5-Ingredient Salmon Recipe for Chile Crisp Lovers**\
-`This simple Naz Deravian recipe, with a pot of rice and cold cucumber salad, is a dream summer dinner.`\
-https://nytimes.com/2025/07/10/dining/a-5-ingredient-salmon-recipe-for-chile-crisp-lovers.html
 
