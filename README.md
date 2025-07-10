@@ -1,3 +1,7 @@
+**Justice Dept. Promised to Prosecute Abrego Garcia. Now It’s Not So Clear.**\
+`In the case of Kilmar Armando Abrego Garcia, the administration appears primarily concerned with ensuring that a man it has described as a “dangerous illegal alien” never walks free on U.S. soil.`\
+https://nytimes.com/2025/07/10/us/politics/abrego-garcia-doj-trump.html
+
 **Livvy Dunne Wanted Babe Ruth’s Old Apartment. The Co-op Board Said No.**\
 `The influencer and former collegiate gymnast tried to buy the Manhattan two-bedroom, but instead joined the ranks of high-profile rejects like Madonna and Calvin Klein.`\
 https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/us/west-virginia-jail-beating-officers-sentenced.
 **Congress to propose NIL guidelines in new college sports compensation bill**\
 `If the bill passes, it would override current state NIL laws, which vary from border to border.`\
 https://nytimes.com/athletic/6486795/2025/07/10/congress-nil-bill-college-sports-compensation-rules-guidelines/
-
-**Mets' David Peterson to replace Robbie Ray on NL All-Star Game roster**\
-`Peterson becomes the Mets' fourth All-Star. He lowered his ERA to 3.06 after allowing one earned run over seven innings in Thursday's loss.`\
-https://nytimes.com/athletic/6486976/2025/07/10/mets-david-peterson-nl-all-star-game-roster-robbie-ray-sf-giants/
 
