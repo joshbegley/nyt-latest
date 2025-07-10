@@ -1,3 +1,11 @@
+**Devin Booker, with a two-year max extension, faces his biggest challenge with the Suns**\
+`Booker likes the idea of finishing his career in one place. But the relationship has to stretch beyond money and comfort.`\
+https://nytimes.com/athletic/6484808/2025/07/10/devin-booker-phoenix-suns-contract-extension-challenge/
+
+**What are the Euro 2025 yellow card suspension rules? Which players are at risk?**\
+`A selection of players are on the cusp of being suspended for the quarter-finals if they're booked in their last match of the group stages.`\
+https://nytimes.com/athletic/6485227/2025/07/10/euro-2025-yellow-card-suspensions-bans/
+
 **Human rights court says Caster Semenya did not get fair hearing in sex eligibility rules fight**\
 `Semenya, 34, has been banned from racing since 2019 and has since moved into coaching.`\
 https://nytimes.com/athletic/6485335/2025/07/10/caster-semenya-trial-athletics/
@@ -22,15 +30,7 @@ https://nytimes.com/athletic/6434923/2025/07/10/chris-eubank-jr-weight-fine/
 `Palace qualified for the Europa League by winning the FA Cup in May but have been in limbo since.`\
 https://nytimes.com/athletic/6485346/2025/07/10/crystal-palace-europe-john-textor/
 
-**Delta’s Stock Soars on Signs of ‘Stabilized’ Demand**\
+**Delta’s Stock Soars on Signs of ‘Stabilized’ Travel Demand**\
 `The airline reported better earnings than expected for its latest quarter, and restored its forecast for the rest of the year.`\
 https://nytimes.com/2025/07/10/business/delta-earnings-travel-demand.html
-
-**Russia Launches Massive Attack on Kyiv**\
-`The local authorities said that at least two people were killed and 16 others wounded during the aerial assault, which also sparked fires in a half-dozen neighborhoods.`\
-https://nytimes.com/video/world/europe/100000010277273/russia-launches-massive-attack-on-kyiv.html
-
-**The Pulse: The best part of ‘College Football 26’**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6483756/2025/07/10/ea-sports-college-football-26-the-pulse/
 

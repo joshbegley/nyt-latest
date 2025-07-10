@@ -1,3 +1,19 @@
+**Human rights court says Caster Semenya did not get fair hearing in sex eligibility rules fight**\
+`Semenya, 34, has been banned from racing since 2019 and has since moved into coaching.`\
+https://nytimes.com/athletic/6485335/2025/07/10/caster-semenya-trial-athletics/
+
+**Ethan Holliday could go No. 1 in the MLB Draft. It would be a pick 4 generations in the making**\
+`Ethan and Jackson Holliday have the chance to be the first brothers picked No. 1 overall. The reasons go back to their great grandfather. `\
+https://nytimes.com/athletic/6484375/2025/07/10/ethan-jackson-matt-holliday-mlb-draft-oklahoma-state/
+
+**Trump Administration Live Updates: Rubio Meets Russia’s Foreign Minister During Asia Trip**\
+``\
+https://nytimes.com/live/2025/07/10/us/trump-news
+
+**A Silicon Valley Giant Calls for a Delaware Exodus**\
+`The investment firm Andreessen Horowitz is moving its incorporation out of the First State, and urging others to follow, as backlash to its courts grows.`\
+https://nytimes.com/2025/07/10/business/dealbook/andreessen-horowitz-delaware.html
+
 **How social media and sauna suits cost Eubank Jr £10,000**\
 `The issue centred around Eubank Jr's preparations for his fight against Conor Benn in April.`\
 https://nytimes.com/athletic/6434923/2025/07/10/chris-eubank-jr-weight-fine/
