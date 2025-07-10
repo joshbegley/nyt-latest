@@ -1,3 +1,7 @@
+**TAFC: PSG - the best club team in the world, USMNT's home fans problem**\
+`Today in TAFC: PSG show their dominance of the club game with demolition of Real Madrid, USMNT's home fan problem, Hampton wonder pass.`\
+https://nytimes.com/athletic/6485046/2025/07/10/tafc-psg-usmnt-hampton-euro-2025/
+
 **Trump Seems to Be Warming to What Europe Wants for Ukraine: New Russia Sanctions**\
 `Flattery and pressure — coupled with President Trump’s growing dissatisfaction with President Vladimir V. Putin — have helped build momentum for new economic punishments.`\
 https://nytimes.com/2025/07/10/world/europe/trump-ukraine-russia-europe.html

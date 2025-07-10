@@ -1,36 +1,36 @@
-**TAFC: PSG - the best club team in the world, USMNT's home fans problem**\
-`Today in TAFC: PSG show their dominance of the club game with demolition of Real Madrid, USMNT's home fan problem, Hampton wonder pass.`\
-https://nytimes.com/athletic/6485046/2025/07/10/tafc-psg-usmnt-hampton-euro-2025/
+**Christian Norgaard to Arsenal: Transfers TLDR**\
+`Arsenal have brought in experienced midfielder Christian Norgaard from Brentford – here's a breakdown of the move`\
+https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-to-arsenal-everything-you-need-to-know-about-the-transfer-tldr/
 
-**Trump Seems to Be Warming to What Europe Wants for Ukraine: New Russia Sanctions**\
-`Flattery and pressure — coupled with President Trump’s growing dissatisfaction with President Vladimir V. Putin — have helped build momentum for new economic punishments.`\
-https://nytimes.com/2025/07/10/world/europe/trump-ukraine-russia-europe.html
+**Vladimir Putin Messed Up**\
+`We explain President Trump and Putin’s changing relationship.`\
+https://nytimes.com/2025/07/10/briefing/vladimir-putin-messed-up.html
 
-**Q&A: There are millions of ways to make a lineup. How does Carlos Mendoza choose?**\
-`Mendoza explained what factors go into the batting order, and lefty/righty matchups are merely a part of a wide-ranging equation. `\
-https://nytimes.com/athletic/6484558/2025/07/10/mets-carlos-mendoza-lineups-decisions/
+**European Union Unveils Rules for Powerful A.I. Systems**\
+`Makers of the most advanced artificial intelligence systems will face new obligations for transparency, copyright protection and public safety. The rules are voluntary to start.`\
+https://nytimes.com/2025/07/10/business/ai-rules-europe.html
 
-**Southern China and Hong Kong Brace for Floods and Fierce Winds from Danas**\
-`The authorities warned of possible flash flooding as the remnants of Typhoon Danas passed through the region. Hong Kong suspended schools for Friday.`\
-https://nytimes.com/2025/07/10/world/asia/typhoon-danas-rain-flooding-china-hong-kong.html
+**Yankees' Brian Cashman vouches for Anthony Volpe. But a closer look shows reason for concern**\
+`What is Volpe in Year 3 with the Yankees? A complicated player to evaluate whose value is likely overstated internally.`\
+https://nytimes.com/athletic/6484737/2025/07/10/anthony-volpe-yankees-year-3-brian-cashman/
 
-**Breaking down the pass of the Euros so far (and, by the way, it was by a goalkeeper)**\
-`It was described as ‘really special’, ‘unreal’ and ‘remarkable’ - we break down goalkeeper Hannah Hampton’s wonder pass for England`\
-https://nytimes.com/athletic/6485044/2025/07/10/hannah-hampton-pass-england-euros/
+**Tigers' Zach McKinstry is an unlikely, but also well-deserved, All-Star**\
+`Tigers utilityman McKinstry was named as a replacement on the American League All-Star team Wednesday. `\
+https://nytimes.com/athletic/6484663/2025/07/10/tigers-zach-mckinstry-unlikely-all-star/
 
-**What Caitlin Clark learned from Michael Jordan and Phil Jackson on the path to stardom**\
-`Iowa's Lisa Bluder found parallels between the experiences of her superstar, Caitlin Clark, and another generational talent: Michael Jordan.`\
-https://nytimes.com/athletic/6482891/2025/07/10/caitlin-clark-michael-jordan-phil-jackson-leadership/
+**MLB Draft 2025: Names to know beyond the top 100 prospects**\
+`Scouting notes on 50 prospects who didn’t make the top 100 but could still hear their names called on draft day.`\
+https://nytimes.com/athletic/6467377/2025/07/10/mlb-draft-2025-beyond-top-100-prospects/
 
-**How Jared Verse and Braden Fiske became the Rams' Fearsome Twosome**\
-`Everything in Tallahassee and Los Angeles has been a competition between Verse and Fiske, who have built a brotherly bond along the way.`\
-https://nytimes.com/athletic/6471226/2025/07/10/rams-defense-jared-verse-braden-fiske/
+**Nikola Topić, Bronny James and more non-rookies to watch at summer league**\
+`The league shines a light on first-year players in Vegas, but a few second- and third-year guys are worth keeping an eye on, too.`\
+https://nytimes.com/athletic/6483920/2025/07/10/nba-summer-league-vegas-bronny-james-nikola-topic/
 
-**SEC's 'It Just Means More' means different things to fans. But it's ubiquitous with league**\
-`The slogan, which debuted in 2016, has defined the conference's "unapologetic" culture and passion while irking the likes of others. `\
-https://nytimes.com/athletic/6483140/2025/07/10/college-football-sec-slogan-it-just-means-more/
+**Looking back at the Reds' last 10 first-round picks in the MLB Draft**\
+`Before looking ahead to this year's draft, here’s a review of the team’s first-round picks over the last decade.`\
+https://nytimes.com/athletic/6469602/2025/07/10/reds-mlb-draft-picks-2025/
 
-**Bronny James enters second Las Vegas Summer League free of the hype — and in his element**\
-`One year after Bronny was the Day 1 centerpiece of his first summer league, he returns a more confident and evolved player. `\
-https://nytimes.com/athletic/6483464/2025/07/10/nba-summer-league-2025-bronny-james-lakers/
+**Vannini: Brett Yormark is all in on CFP model with 11 at-large berths. Big 12 has to be**\
+`To codify the Big Ten's auto-bid model would be waving the white flag and accepting a lower status. It's not up to Yormark, though.`\
+https://nytimes.com/athletic/6484352/2025/07/10/big-12-brett-yormark-cfp-format/
 
