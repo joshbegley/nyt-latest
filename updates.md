@@ -1,3 +1,7 @@
+**Brighton offer new contract to goalkeeper Rushworth**\
+`The club want to stretch his six-year stay amid interest in the 23-year-old from sides in England and Scotland.`\
+https://nytimes.com/athletic/6485976/2025/07/10/brighton-transfers-carl-rushworth-contract/
+
 **Bazball, England's 28-ball scoreless sequence and the art of the leave**\
 `The passage of play at Lord's demonstrated that, in Test match cricket, sometimes nothing happening can still be compelling`\
 https://nytimes.com/athletic/6485859/2025/07/10/england-bazball-dot-pope-root-siraj-bumrah/
