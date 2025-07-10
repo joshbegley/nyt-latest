@@ -1,3 +1,11 @@
+**Astros' Jake Meyers exits game with apparent injury before first pitch**\
+`Meyers had dealt with a a right calf issue for the past two days. `\
+https://nytimes.com/athletic/6484608/2025/07/09/houston-astros-jake-meyers-injury/
+
+**Rubio Visits Asia as Trump Raises Trade-War Tensions**\
+`Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created friction with U.S. partners.`\
+https://nytimes.com/2025/07/09/world/asia/rubio-asia-diplomacy-tariffs.html
+
 **Immigration Officials Used Shadowy Pro-Israel Group to Target Student Activists**\
 `A senior Homeland Security official testified in court on Wednesday that his department had relied in part on an anonymously compiled list to identify foreign academics for investigation.`\
 https://nytimes.com/2025/07/09/us/politics/ice-canary-mission-student-deportations.html

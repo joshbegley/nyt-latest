@@ -1,9 +1,13 @@
+**Astros' Jake Meyers exits game with apparent injury before first pitch**\
+`Meyers had dealt with a a right calf issue for the past two days. `\
+https://nytimes.com/athletic/6484608/2025/07/09/houston-astros-jake-meyers-injury/
+
 **Immigration Officials Used Shadowy Pro-Israel Group to Target Student Activists**\
 `A senior Homeland Security official testified in court on Wednesday that his department had relied in part on an anonymously compiled list to identify foreign academics for investigation.`\
 https://nytimes.com/2025/07/09/us/politics/ice-canary-mission-student-deportations.html
 
 **Rubio Visits Asia as Trump Raises Trade-War Tensions**\
-`Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created tension with U.S. partners.`\
+`Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created friction with U.S. partners.`\
 https://nytimes.com/2025/07/09/world/asia/rubio-asia-diplomacy-tariffs.html
 
 **Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484503/2025/07/09/blue-jays-win-streak-ends-buck-h
 **Maine Paddleboarder’s Death Is Investigated as a Homicide, Police Say**\
 `Sunshine Stewart, 48, disappeared on the night of July 2 during an outing on Crawford Pond in Union, Maine. Her body was found hours later near an island preserve.`\
 https://nytimes.com/2025/07/09/us/maine-paddleboarder-homicide.html
-
-**Lawmakers in Liberal States Want ICE Agents to Show Their Faces**\
-`Elected officials in New York and California are trying to upend President Trump’s deportation campaign by banning law enforcement officers from wearing masks in public.`\
-https://nytimes.com/2025/07/09/nyregion/ice-agents-masks-lawmakers-ban.html
 
