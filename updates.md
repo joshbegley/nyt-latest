@@ -1,3 +1,11 @@
+**Tunnel Collapses in Los Angeles**\
+`Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
+https://nytimes.com/video/us/100000010277145/tunnel-collapses-in-los-angeles.html
+
+**Lauren James: The player who strikes a ball like no one else in the women's game**\
+`The Athletic analyses the Chelsea forward's 'unique' technique following her stunning performance against the Netherlands`\
+https://nytimes.com/athletic/6484408/2025/07/10/lauren-james-shooting-technique-analysed-england/
+
 **France took the opportunity to rest and rotate against Wales - and it worked**\
 `This remains a team in transition but Bonadei is ensuring that transition is working`\
 https://nytimes.com/athletic/6484449/2025/07/10/france-rotations-wales-euro-2025/

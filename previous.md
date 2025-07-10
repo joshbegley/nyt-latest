@@ -1,3 +1,11 @@
+**Tunnel Collapses in Los Angeles**\
+`Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
+https://nytimes.com/video/us/100000010277145/tunnel-collapses-in-los-angeles.html
+
+**Lauren James: The player who strikes a ball like no one else in the women's game**\
+`The Athletic analyses the Chelsea forward's 'unique' technique following her stunning performance against the Netherlands`\
+https://nytimes.com/athletic/6484408/2025/07/10/lauren-james-shooting-technique-analysed-england/
+
 **France took the opportunity to rest and rotate against Wales - and it worked**\
 `This remains a team in transition but Bonadei is ensuring that transition is working`\
 https://nytimes.com/athletic/6484449/2025/07/10/france-rotations-wales-euro-2025/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/10/opinion/scopes-monkey-trial-democrats.html
 **Trump Names Sean Duffy as Interim Head of NASA**\
 `President Trump had pulled the nomination of a close associate of Elon Musk to lead the agency in May. The decision fueled a public breakdown of their alliance.`\
 https://nytimes.com/2025/07/10/us/politics/trump-nasa-sean-duffy.html
-
-**Diogo Jota and The Athletic's Liverpool coverage: A message to our subscribers**\
-`Explaining why we will be starting to restore our usual coverage of the club after the tragic death of Diogo Jota`\
-https://nytimes.com/athletic/6478551/2025/07/10/diogo-jota-liverpool-the-athletic-coverage/
-
-**Lord's: The cricket ground where the playing field has never been level**\
-`Lord's is more than 200 years old and has had many different guises. But one thing remains a constant — its slope, all eight feet of it`\
-https://nytimes.com/athletic/6482874/2025/07/10/lords-cricket-ground-slope-england-india/
 
