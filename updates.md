@@ -1,3 +1,15 @@
+**Michael Jordan's former Illinois mansion listed on Airbnb**\
+`Basketball fans can be like Mike and rent the seven-bedroom, 17 1/2-bathroom property in Highland Park, Ill.`\
+https://nytimes.com/athletic/6486178/2025/07/10/michael-jordan-mansion-airbnb-rent/
+
+**U.K. Faces Rising Threat From Iranian Plots, Intelligence Committee Says**\
+`An official report warned that Iran was targeting dissidents and gathering intelligence on Jewish and Israeli targets in Britain.`\
+https://nytimes.com/2025/07/10/world/europe/uk-iran-espionage-threats.html
+
+**Sarah Fillier signs 2-year contract with New York Sirens, becoming PWHL's highest-paid player**\
+`Fillier's decision to sign a one-year deal after being selected No. 1 at the 2024 PWHL Draft now looks like a savvy bet.`\
+https://nytimes.com/athletic/6486245/2025/07/10/sarah-fillier-pwhl-new-york-sirens-contract/
+
 **LSU beats out Texas A&M, Texas, Miami for local 5-star D-lineman Lamar Brown**\
 `With Brown in the fold, LSU now has six of the top seven in-state prospects committed in the 2026 class. `\
 https://nytimes.com/athletic/6485843/2025/07/10/lsu-football-recruiting-lamar-brown/
