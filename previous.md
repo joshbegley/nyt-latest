@@ -1,36 +1,37 @@
-**K-Pop Singer Sentenced to 3½-Years in Rape of Chinese Tourist**\
-`Taeil, a former member of the popular boy band NCT, and two acquaintances were jailed in a case that has provoked anger in South Korea.`\
-https://nytimes.com/2025/07/10/world/asia/kpop-taeil-sentenced-sex-crime.html
+**Palace co-owner Textor believes club will compete in Europa League**\
+`Palace qualified for the Europa League by winning the FA Cup in May but have been in limbo since.`\
+https://nytimes.com/athletic/6485346/2025/07/10/crystal-palace-europe-john-textor/
 
-**Trump Compliments President of Liberia on His ‘Beautiful English’**\
-`During a lunch at the State Dining Room with five leaders of African nations, President Trump complimented the president of Liberia, where English is the official language, for his command of the language.`\
-https://nytimes.com/video/us/100000010277391/trump-liberia-president-english.html
+**Deltaâs Stock Soars on Signs of âStabilizedâ Demand**\
+`The airline reported better earnings than expected for its latest quarter, and restored its forecast for the rest of the year.`\
+https://nytimes.com/2025/07/10/business/delta-earnings-travel-demand.html
 
-**Blue Jays trade scenarios: Jim Bowden assesses 4 proposals to fill Toronto's deadline needs**\
-`With three weeks to go until the deadline, the former GM weighs in on four hypothetical trades to fill the Blue Jays' key needs. `\
-https://nytimes.com/athletic/6485183/2025/07/10/blue-jays-trade-scenarios-needs/
+**Russia Launches Massive Attack on Kyiv**\
+`The local authorities said that at least two people were killed and 16 others wounded during the aerial assault, which also sparked fires in a half-dozen neighborhoods.`\
+https://nytimes.com/video/world/europe/100000010277273/russia-launches-massive-attack-on-kyiv.html
 
-**Denmark Aims to Use Copyright Law to Protect People From Deepfakes**\
-`A pioneering bill would give citizens the right to demand that social media platforms remove digital forgeries of themselves.`\
-https://nytimes.com/2025/07/10/world/europe/denmark-deepfake-copyright-ai-law.html
+**The Pulse: The best part of âCollege Football 26â**\
+`The Pulse Newsletter ð£ | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6483756/2025/07/10/ea-sports-college-football-26-the-pulse/
 
-**Christian Norgaard to Arsenal: Transfers TLDR**\
-`Arsenal have brought in experienced midfielder Christian Norgaard from Brentford – here's a breakdown of the move`\
-https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-arsenal-transfer-tldr/
+**College Football 26 review: Do new features make it worth upgrading from CFB25?**\
+`The new game is loaded across the board with minor upgrades that add up to a lot, along with a few actual big changes.`\
+https://nytimes.com/athletic/6485281/2025/07/10/college-football-26-video-game-review-ea/
 
-**Vladimir Putin Messed Up**\
-`We explain President Trump and Putin’s changing relationship.`\
-https://nytimes.com/2025/07/10/briefing/vladimir-putin-messed-up.html
+**What does the Sabres' signing of Alex Lyon mean for Devon Levi?**\
+`The Sabres' goaltending needs to be better if they have any hope of competing in 2025-26.`\
+https://nytimes.com/athletic/6484573/2025/07/10/buffalo-sabres-alex-lyon-devon-levi/
 
-**European Union Unveils Rules for Powerful A.I. Systems**\
-`Makers of the most advanced artificial intelligence systems will face new obligations for transparency, copyright protection and public safety. The rules are voluntary to start.`\
-https://nytimes.com/2025/07/10/business/ai-rules-europe.html
+**Ronald AcuÃ±a Jr. homers twice in return to lineup, confirms he's participating in HR Derby**\
+`AcuÃ±a helped lead the Braves to a 9-2 win over the A's and end their 0-for California skid.`\
+https://nytimes.com/athletic/6484930/2025/07/10/braves-ronald-acuna-jr-home-runs/
 
-**Yankees' Brian Cashman vouches for Anthony Volpe. But a closer look shows reason for concern**\
-`What is Volpe in Year 3 with the Yankees? A complicated player to evaluate whose value is likely overstated internally.`\
-https://nytimes.com/athletic/6484737/2025/07/10/anthony-volpe-yankees-year-3-brian-cashman/
+**Will internal growth be enough to push Red Wings into the playoffs?**\
+`After a quiet offseason, the Red Wings may be banking largely on internal improvement to make the playoffs. What could that look like?`\
+https://nytimes.com/athletic/6483799/2025/07/10/red-wings-nhl-playoffs-prospects-kasper-edvinsson/
 
-**Tigers' Zach McKinstry is an unlikely, but also well-deserved, All-Star**\
-`Tigers utilityman McKinstry was named as a replacement on the American League All-Star team Wednesday. `\
-https://nytimes.com/athletic/6484663/2025/07/10/tigers-zach-mckinstry-unlikely-all-star/
+**Mirtle: What should the Leafs do with all their remaining salary-cap space?**\
+`Toronto's roughly $6 million in cap space gives the team flexibility and opportunity, which could be fascinating for next season.
+`\
+https://nytimes.com/athletic/6483731/2025/07/10/maple-leafs-salary-cap-space-nhl-offseason/
 
