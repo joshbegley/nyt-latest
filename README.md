@@ -1,10 +1,14 @@
+**Targeting Brazil, Trump Tests Legal Limit of His Tariff Powers**\
+`The president signaled he would seek to use the threat of steep levies to reorient trade and protect his political allies.`\
+https://nytimes.com/2025/07/10/us/politics/trump-brazil-tariffs-legal-limit.html
+
 **U.K. and France Announce New Nuclear Defense Deal**\
 `Prime Minister Keir Starmer of Britain and President Emmanuel Macron of France strengthened the defense relationship between their two countries and announced a new agreement to address illegal migration.`\
 https://nytimes.com/video/world/europe/100000010278274/starmer-macron-nuclear-migrants.html
 
 **What Is ‘Aura Farming’? This Tween Will Show You.**\
 `Thanks to his dance moves on the front of a boat, a young Indonesian boy has become an internet sensation, and is now a “tourism ambassador.”`\
-https://nytimes.com/2025/07/10/style/aura-farming-indonensia-boat-kid.html
+https://nytimes.com/2025/07/10/style/aura-farming-indonesia-boat-kid.html
 
 **New NIL enforcement arm issues crackdown on collectives**\
 `The goal is to prevent schools from utilizing booster-driven entities to funnel payments to recruits and transfers.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/us/politics/schumer-democrats-midterms-trump-bill
 **‘The Retrievals’ Season 2 Is Out Now**\
 `Read the emails that led to Susan Burton’s investigation on C-sections.`\
 https://nytimes.com/2025/07/10/podcasts/serial-newsletter-retrievals-season-2.html
-
-**New From Serial: The Retrievals, Season 2**\
-`A message from Sarah Koenig about our upcoming show.`\
-https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
 
