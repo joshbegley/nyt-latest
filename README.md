@@ -1,3 +1,15 @@
+**Can a ‘Cortisol Cocktail’ Help Relieve Stress?**\
+`Influencers say that the concoction can boost energy and help you relax. We asked experts whether that’s true.`\
+https://nytimes.com/2025/07/10/well/eat/health-benefits-cortisol-cocktails.html
+
+**Trump Says Bolsonaro, Like Other Allies Under Pressure, Faces a ‘Witch Hunt’**\
+`President Trump’s defense of the former president of Brazil was the latest example of him invoking a term he has frequently used while describing himself as a victim.`\
+https://nytimes.com/2025/07/10/us/politics/trump-bolsonaro-witch-hunt.html
+
+**What we're hearing about the the Phillies' trade deadline plans: Will they take a bigger swing?**\
+`The Phillies sound more willing to trade bigger prospect chips for controllable big leaguers, according to officials from rival clubs. `\
+https://nytimes.com/athletic/6484865/2025/07/10/phillies-mlb-trade-deadline-news/
+
 **As Drone Warfare Evolves, Pentagon Sees Its Own Vulnerabilities**\
 `Israel and Ukraine have used drones against their adversaries in audacious ways that have helped the Pentagon see the need for new technology.`\
 https://nytimes.com/2025/07/10/us/politics/us-military-drone-technology.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/10/science/trump-science-budget-cuts.html
 **First Wimbledon women's semifinal halted twice due to unwell spectators in stands**\
 `Sabalenka immediately responded by bringing a bottle of water and an ice pack to the section of the crowd in the East Stand.`\
 https://nytimes.com/athletic/6485544/2025/07/10/wimbledon-centre-court-sabalenka-anisimova/
-
-**3 Teenagers Arrested Over Cyberattacks That Cost U.K. Retailers Millions**\
-`Four people total were arrested in connection with an April cyberattack that disrupted operations at Marks & Spencer, Harrods and Co-op.`\
-https://nytimes.com/2025/07/10/business/cyber-attack-arrests-marks-spencers-harrods-coop.html
-
-**Frank Layden, beloved Jazz coach and franchise-changing architect, dies at 93**\
-`As coach and general manager, Layden laid the seeds for the Jazz's greatest stretch in franchise history.`\
-https://nytimes.com/athletic/6485343/2025/07/10/frank-layden-jazz-coach-gm-obituary/
-
-**A Lethal Israeli Airstrike Hits Near a Gaza Aid Clinic**\
-`The attack struck near a facility run by an American aid organization as negotiators from Hamas and Israel wrangle over a potential new cease-fire agreement.`\
-https://nytimes.com/2025/07/10/world/middleeast/israel-strike-gaza-clinic.html
 
