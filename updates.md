@@ -1,3 +1,15 @@
+**‘The Retrievals’ Season 2 Is Out Now**\
+`Read the emails that led to Susan Burton’s investigation on C-sections.`\
+https://nytimes.com/2025/07/10/podcasts/serial-newsletter-retrievals-season-2.html
+
+**Thunder, Jalen Williams agree to 5-year max rookie extension worth up to $287 million**\
+`The Thunder locked up another young star after giving extensions to Shai Gilgeous-Alexander and Chet Holmgren this month.`\
+https://nytimes.com/athletic/6486607/2025/07/10/jalen-williams-thunder-contract-extension/
+
+**It’s Time to Let Go of ‘African American’**\
+`Why not just say what we mean?`\
+https://nytimes.com/2025/07/10/opinion/african-american-language-label-mamdani.html
+
 **New From Serial: The Retrievals, Season 2**\
 `A message from Sarah Koenig about our upcoming show.`\
 https://nytimes.com/2025/07/10/podcasts/serial-retrievals-season-2-trailer.html
