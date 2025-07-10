@@ -1,3 +1,15 @@
+**What to Know About the New U.S.-Brazil Trade War**\
+`The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
+https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html
+
+**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
+`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
+
+**Chelsea's Mathis Amougou to join Strasbourg in permanent deal**\
+`The 19-year-old midfielder is returning to France just five months after joining the west London club.`\
+https://nytimes.com/athletic/6486450/2025/07/10/chelseas-mathis-amougou-to-join-sister-club-strasbourg-in-permanent-deal/
+
 **Four More Rescued in Red Sea, as Houthis Vow to Keep Up Attacks**\
 `A total of 10 crew members have been rescued so far after Yemeni militants sank a Greek-owned cargo ship in the Red Sea.`\
 https://nytimes.com/2025/07/10/world/middleeast/houthis-attack-crew-rescued.html
@@ -19,18 +31,6 @@ https://nytimes.com/athletic/6486354/2025/07/10/ladybugs-england-india-cricket-l
 https://nytimes.com/athletic/6486434/2025/07/10/garth-lagerwey-atlanta-united-leave-cancer/
 
 **The old Justin Verlander is still in there somewhere**\
-`The Verlander the Giants thought they were signing this offseason showed up on Wednesday. That could mean a lot in October.`\
+`The Verlander the Giants thought they were signing this offseason showed up Wednesday. That could mean a lot in October.`\
 https://nytimes.com/athletic/6483999/2025/07/10/sf-giants-justin-verlander-pitch-breakdown/
-
-**Texas Tech built 'best team money can buy.' And Big 12 coaches have thoughts**\
-`Texas Tech’s NIL splurge has Big 12 coaches responding with envy, concern and pressure to win with the team it built.`\
-https://nytimes.com/athletic/6486058/2025/07/10/big-12-coaches-texas-tech-nil/
-
-**Jane Lazarre, Who Wrote About Motherhood and Race, Dies at 81**\
-`With books like “The Mother Knot” and “Beyond the Whiteness of Whiteness,” she challenged liberal orthodoxies about feminism and the Black experience in America.`\
-https://nytimes.com/2025/07/10/books/jane-lazarre-dead.html
-
-**This Jungle Plant Is a Good Landlord to Its Tenant Ants**\
-`While plants often have mutually beneficial relationships with insects, a tuber in Fiji grows separate compartments for multiple ant species.`\
-https://nytimes.com/2025/07/10/science/ants-plant-fiji.html
 

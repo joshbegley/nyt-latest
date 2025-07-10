@@ -1,3 +1,19 @@
+**What to Know About the New U.S.-Brazil Trade War**\
+`The fight is rooted in years of political history between President Trump and the last two presidents of Brazil.`\
+https://nytimes.com/2025/07/10/world/americas/trump-bolsonaro-brazil-tariffs.html
+
+**Dave ‘Baby’ Cortez, Hitmaker Who Seemed to Vanish, Dies at 83**\
+`His “The Happy Organ” reached No. 1 in 1959, but his pop stardom was short-lived, and his death in 2022, with an anonymous burial, remains a source of mystery.`\
+https://nytimes.com/2025/07/10/arts/music/dave-baby-cortez-dead.html
+
+**Chelsea's Mathis Amougou to join Strasbourg in permanent deal**\
+`The 19-year-old midfielder is returning to France just five months after joining the west London club.`\
+https://nytimes.com/athletic/6486450/2025/07/10/chelseas-mathis-amougou-to-join-sister-club-strasbourg-in-permanent-deal/
+
+**The old Justin Verlander is still in there somewhere**\
+`The Verlander the Giants thought they were signing this offseason showed up Wednesday. That could mean a lot in October.`\
+https://nytimes.com/athletic/6483999/2025/07/10/sf-giants-justin-verlander-pitch-breakdown/
+
 **Four More Rescued in Red Sea, as Houthis Vow to Keep Up Attacks**\
 `A total of 10 crew members have been rescued so far after Yemeni militants sank a Greek-owned cargo ship in the Red Sea.`\
 https://nytimes.com/2025/07/10/world/middleeast/houthis-attack-crew-rescued.html
