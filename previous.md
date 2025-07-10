@@ -1,3 +1,7 @@
+**Test Headline**\
+`Test Headline`\
+https://nytimes.com/paidpost/cooking/client-name/test-headline.html
+
 **Man Utd sign teenage forward Enzo Kana-Biyik, will go on loan**\
 `The French youth international will spend next season on loan to INEOS-owned Swiss side Lausanne-Sport`\
 https://nytimes.com/athletic/6485081/2025/07/10/manchester-united-teenage-forward-kana-biyik-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals-women-health.
 **The Retrievals, Season 2, Episode 1: The Case**\
 `From Serial Productions: At a Chicago hospital, a C-section goes wrong.`\
 https://nytimes.com/2025/07/10/podcasts/the-retrievals-c-section-women-health.html
-
-**Tunnel Collapses in Los Angeles**\
-`Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
-https://nytimes.com/video/us/100000010277341/tunnel-collapse-los-angeles-trapped.html
 

@@ -1,3 +1,7 @@
+**Test Headline**\
+`Test Headline`\
+https://nytimes.com/paidpost/cooking/client-name/test-headline.html
+
 **Man Utd sign teenage forward Enzo Kana-Biyik, will go on loan**\
 `The French youth international will spend next season on loan to INEOS-owned Swiss side Lausanne-Sport`\
 https://nytimes.com/athletic/6485081/2025/07/10/manchester-united-teenage-forward-kana-biyik-transfer/
