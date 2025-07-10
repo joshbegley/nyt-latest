@@ -1,3 +1,7 @@
+**Torrential Rain Floods Boston-Area Roads**\
+`The heavy rain caused parts of a major highway to be shut down on Thursday. The state’s emergency management agency warned drivers to stay off of flooded roads, where vehicles can be swept away in less than two feet of moving water.`\
+https://nytimes.com/video/weather/100000010278217/massachusetts-flash-floods-rains.html
+
 **Michael Jordan's former Illinois mansion listed on Airbnb**\
 `Basketball fans can be like Mike and rent the seven-bedroom, 17 1/2-bathroom property in Highland Park, Ill.`\
 https://nytimes.com/athletic/6486178/2025/07/10/michael-jordan-mansion-airbnb-rent/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6486083/2025/07/10/yankees-prospects-mlb-trade-dead
 **The Fast and the Filling**\
 `Crispy potato quesadillas and broccoli soba salad come together in no time at all (and don’t leave you hungry).`\
 https://nytimes.com/2025/07/10/dining/6-fast-and-easy-vegetarian-recipes.html
-
-**Mia Fishel signs with Seattle Reign through 2029: ‘I want to put some stakes in the ground’**\
-`Part of Fishel's motivation to move to Seattle was coach Laura Harvey and the chance to get more minutes on the field`\
-https://nytimes.com/athletic/6486032/2025/07/10/nwsl-uswnt-mia-fishel-seattle-reign-chelsea/
 

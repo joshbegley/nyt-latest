@@ -1,3 +1,7 @@
+**Torrential Rain Floods Boston-Area Roads**\
+`The heavy rain caused parts of a major highway to be shut down on Thursday. The state’s emergency management agency warned drivers to stay off of flooded roads, where vehicles can be swept away in less than two feet of moving water.`\
+https://nytimes.com/video/weather/100000010278217/massachusetts-flash-floods-rains.html
+
 **Michael Jordan's former Illinois mansion listed on Airbnb**\
 `Basketball fans can be like Mike and rent the seven-bedroom, 17 1/2-bathroom property in Highland Park, Ill.`\
 https://nytimes.com/athletic/6486178/2025/07/10/michael-jordan-mansion-airbnb-rent/

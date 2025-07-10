@@ -1,3 +1,19 @@
+**Jane Lazarre, Who Wrote About Motherhood and Race, Dies at 81**\
+`With books like “The Mother Knot” and “Beyond the Whiteness of Whiteness,” she challenged liberal orthodoxies about feminism and the Black experience in America.`\
+https://nytimes.com/2025/07/10/books/jane-lazarre-dead.html
+
+**This Jungle Plant Is a Good Landlord to Its Tenant Ants**\
+`While plants often have mutually beneficial relationships with insects, a tuber in Fiji grows separate compartments for multiple ant species.`\
+https://nytimes.com/2025/07/10/science/ants-plant-fiji.html
+
+**No, Chemtrails Are Not Real or Causing Floods, E.P.A. Says**\
+`The agency took the unusual step of creating websites debunking the conspiracy theory that chemicals are being sprayed in the sky to control the weather or do other things.`\
+https://nytimes.com/2025/07/10/climate/epa-debunks-chemtrails-conspiracy-theory.html
+
+**Some of Iran’s Enriched Uranium Survived Attacks, Israeli Official Says**\
+`The assessment came as experts are trying to determine how long it would take Iran to rebuild its nuclear program in the aftermath of U.S. and Israeli strikes.`\
+https://nytimes.com/2025/07/10/us/politics/iran-attacks-damage.html
+
 **Torrential Rain Floods Boston-Area Roads**\
 `The heavy rain caused parts of a major highway to be shut down on Thursday. The state’s emergency management agency warned drivers to stay off of flooded roads, where vehicles can be swept away in less than two feet of moving water.`\
 https://nytimes.com/video/weather/100000010278217/massachusetts-flash-floods-rains.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6485843/2025/07/10/lsu-football-recruiting-lamar-br
 **Sarah Fillier signs 2-year contract with New York Sirens, becoming PWHL's highest-paid player**\
 `Fillier's decision to sign a one-year deal after being selected No. 1 at the 2024 PWHL Draft now looks like a savvy bet.`\
 https://nytimes.com/athletic/6486245/2025/07/10/sarah-fillier-pwhl-new-york-sirens-contract/
-
-**The Original Birkin Sells for $10 Million**\
-`A lively bidding war led to the Hermès prototype, which was created for the actress Jane Birkin, selling for far more than expected.`\
-https://nytimes.com/2025/07/10/style/original-birkin-bag-auction-sold.html
-
-**Iga Swiatek puts on tennis masterclass against Belinda Bencic to reach Wimbledon final**\
-`Świątek eased into her first Wimbledon final with the controlled, directed aggressiveness that has defined her play this fortnight.`\
-https://nytimes.com/athletic/6486061/2025/07/10/tennis-wimbledon-swiatek-bencic-semifinal-result-analysis/
-
-**Talking Yankees trade deadline — and more: Which prospects could they part with?**\
-`During a live Q&A, Brendan Kuty discussed a variety of Yankees topics, including the deadline, Anthony Volpe and the team's summer swoons. `\
-https://nytimes.com/athletic/6486083/2025/07/10/yankees-prospects-mlb-trade-deadline/
-
-**The Fast and the Filling**\
-`Crispy potato quesadillas and broccoli soba salad come together in no time at all (and don’t leave you hungry).`\
-https://nytimes.com/2025/07/10/dining/6-fast-and-easy-vegetarian-recipes.html
 
