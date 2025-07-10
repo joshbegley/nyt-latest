@@ -1,6 +1,6 @@
 **Christian Norgaard to Arsenal: Transfers TLDR**\
 `Arsenal have brought in experienced midfielder Christian Norgaard from Brentford – here's a breakdown of the move`\
-https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-to-arsenal-everything-you-need-to-know-about-the-transfer-tldr/
+https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-arsenal-transfer-tldr/
 
 **Vladimir Putin Messed Up**\
 `We explain President Trump and Putin’s changing relationship.`\
