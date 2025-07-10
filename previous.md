@@ -1,36 +1,36 @@
-**Test Headline**\
-`Test Headline`\
-https://nytimes.com/paidpost/cooking/client-name/test-headline.html
+**What Caitlin Clark learned from Michael Jordan and Phil Jackson on the path to stardom**\
+`Iowa's Lisa Bluder found parallels between the experiences of her superstar, Caitlin Clark, and another generational talent: Michael Jordan.`\
+https://nytimes.com/athletic/6482891/2025/07/10/caitlin-clark-michael-jordan-phil-jackson-leadership/
 
-**Man Utd sign teenage forward Enzo Kana-Biyik, will go on loan**\
-`The French youth international will spend next season on loan to INEOS-owned Swiss side Lausanne-Sport`\
-https://nytimes.com/athletic/6485081/2025/07/10/manchester-united-teenage-forward-kana-biyik-transfer/
+**How Jared Verse and Braden Fiske became the Rams' Fearsome Twosome**\
+`Everything in Tallahassee and Los Angeles has been a competition between Verse and Fiske, who have built a brotherly bond along the way.`\
+https://nytimes.com/athletic/6471226/2025/07/10/rams-defense-jared-verse-braden-fiske/
 
-**Why So Many Women Feel Pain During Their C-Sections**\
-`Susan Burton, reporter and host of the podcast “The Retrievals,” talks about the alarming number of patients who report feeling significant pain during their C-sections.`\
-https://nytimes.com/video/health/100000010277388/why-so-many-women-feel-pain-during-their-c-sections.html
+**SEC's 'It Just Means More' means different things to fans. But it's ubiquitous with league**\
+`The slogan, which debuted in 2016, has defined the conference's "unapologetic" culture and passion while irking the likes of others. `\
+https://nytimes.com/athletic/6483140/2025/07/10/college-football-sec-slogan-it-just-means-more/
 
-**Moo Deng, the Celebrity Pygmy Hippo, Turns 1**\
-`The young star celebrated her first birthday with a special fruit platter at the Khao Kheow Open Zoo in Thailand.`\
-https://nytimes.com/video/world/asia/100000010277382/moo-deng-birthday-pygmy-hippo-thailand.html
+**Bronny James enters second Las Vegas Summer League free of the hype — and in his element**\
+`One year after Bronny was the Day 1 centerpiece of his first summer league, he returns a more confident and evolved player. `\
+https://nytimes.com/athletic/6483464/2025/07/10/nba-summer-league-2025-bronny-james-lakers/
 
-**The Retrievals, Season 2, Episode 4: The Solutions**\
-`From Serial Productions: Stories are also a kind of evidence.`\
-https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals.html
+**What to Expect From Trump’s New Trade Drama**\
+`After months of delay, the president is threatening to revive the most aggressive version of his global tariff war.`\
+https://nytimes.com/2025/07/10/podcasts/the-daily/trump-trade-tariff.html
 
-**The New York Times International Edition in Print for Friday, July 11, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/10/todays-new-york-times-international-edition
+**New Details on Camp Mystic, and Trump’s Retribution Campaign**\
+`Plus, where curry meets quesadillas.`\
+https://nytimes.com/2025/07/10/podcasts/the-headlines/camp-mystic-trump-retribution.html
 
-**The Retrievals, Season 2, Episode 3: The Guidelines**\
-`From Serial Productions: Ask the patients about their pain.`\
-https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals-women.html
+**How Trump’s D.E.I. Cuts Are Hurting Rural, White Americans Too**\
+`The N.I.H. has terminated hundreds of diversity grants awarded to young scientists, many of whom come from the very places that supported Trump.`\
+https://nytimes.com/2025/07/10/us/trump-science-nih-grants-dei-cuts.html
 
-**The Retrievals, Season 2, Episode 2: The Speech**\
-`From Serial Productions: The first step to solving the problem of pain during C-sections is to talk about the problem.`\
-https://nytimes.com/2025/07/10/podcasts/c-sections-pain-retrievals-women-health.html
+**Wordle Review No. 1,483**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 11, 2025.`\
+https://nytimes.com/2025/07/10/crosswords/wordle-review-1483.html
 
-**The Retrievals, Season 2, Episode 1: The Case**\
-`From Serial Productions: At a Chicago hospital, a C-section goes wrong.`\
-https://nytimes.com/2025/07/10/podcasts/the-retrievals-c-section-women-health.html
+**Connections Companion No. 761**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 11, 2025.`\
+https://nytimes.com/2025/07/10/crosswords/connections-companion-761.html
 
