@@ -1,3 +1,7 @@
+**Trump Names Sean Duffy as Interim Head of NASA**\
+`President Trump had pulled the nomination of a close associate of Elon Musk to lead the agency in May. The decision fueled a public breakdown of their alliance.`\
+https://nytimes.com/2025/07/10/us/politics/trump-nasa-sean-duffy.html
+
 **Diogo Jota and The Athletic's Liverpool coverage: A message to our subscribers**\
 `Explaining why we will be starting to restore our usual coverage of the club after the tragic death of Diogo Jota`\
 https://nytimes.com/athletic/6478551/2025/07/10/diogo-jota-liverpool-the-athletic-coverage/
