@@ -1,13 +1,29 @@
+**New York Must Move Forward With Housing Voucher Expansion, Court Rules**\
+`The decision by a New York appeals court was a win for the City Council and a loss for Mayor Eric Adams, who had opposed the expansion, citing budget concerns.`\
+https://nytimes.com/2025/07/10/nyregion/housing-voucher-nyc.html
+
+**Four Ex-Jail Officers Are Sentenced in Death of West Virginia Inmate**\
+`The former officers, who brutally beat a 37-year-old man, received prison terms ranging from three years to more than two decades.`\
+https://nytimes.com/2025/07/10/us/west-virginia-jail-beating-officers-sentenced.html
+
+**Congress to propose NIL guidelines in new college sports compensation bill**\
+`If the bill passes, it would override current state NIL laws, which vary from border to border.`\
+https://nytimes.com/athletic/6486795/2025/07/10/congress-nil-bill-college-sports-compensation-rules-guidelines/
+
+**Mets' David Peterson to replace Robbie Ray on NL All-Star Game roster**\
+`Peterson becomes the Mets' fourth All-Star. He lowered his ERA to 3.06 after allowing one earned run over seven innings in Thursday's loss.`\
+https://nytimes.com/athletic/6486976/2025/07/10/mets-david-peterson-nl-all-star-game-roster-robbie-ray-sf-giants/
+
 **Arsenal close to full agreement with Chelsea for Noni Madueke**\
 `The 23-year-old has already agreed personal terms with Arsenal over a proposed five-year deal and is prioritising the north London side.`\
 https://nytimes.com/athletic/6483265/2025/07/10/arsenal-close-to-full-agreement-with-chelsea-for-noni-madueke/
 
-**Looming Copper Tariffs Leave Companies Scrambling: âPrices Will Go Upâ**\
+**Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
 `President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
 https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
 
 **Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
-`He spent a lifetime patiently excavating the problems and possibilities of the painted surface â in terms of color, texture, process and space.`\
+`He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
 https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
 
 **F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
 **Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
 `Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
 https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/
-
-**Gareth Bale says his consortium has made a new offer for Cardiff**\
-`"We're very happy. We think it's very fair, if not more than fair," said the former Wales winger.`\
-https://nytimes.com/athletic/6468838/2025/07/10/gareth-bale-cardiff-takeover-new-bid/
-
-**A Judge Reignited the Standoff Over Birthright Citizenship**\
-`Also, Israel concluded that some of Iranâs nuclear material survived. Hereâs the latest at the end of Thursday.`\
-https://nytimes.com/2025/07/10/briefing/judge-trump-birthright-citizenship-iran-israel.html
-
-**Missouri Governor Signs Bill Rolling Back Voter-Approved Minimum Wage and Sick Leave**\
-`The reversal reflected a growing struggle over the use of ballot measures to answer policy questions in Republican-led states.`\
-https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
-
-**The Serial Newsletter**\
-`Be the first to know about our new podcasts, and get an exclusive look into how they come together. <a href="https://www.nytimes.com/newsletters/serial" target=" _blank">Sign up</a> for the Serial newsletter.`\
-https://nytimes.com/column/serial-newsletter
 
