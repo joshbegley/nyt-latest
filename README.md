@@ -1,4 +1,4 @@
-**Suns, Devin Booker agree on two-year extension estimated at $145M: Source**\
+**Suns, Devin Booker agree on 2-year extension estimated at $145M: Source**\
 `Owner Mat Ishbia made it clear that Phoenix planned to build around Booker, a four-time All-Star who remains in his prime.`\
 https://nytimes.com/athletic/6484706/2025/07/09/suns-devin-booker-max-extension/
 
