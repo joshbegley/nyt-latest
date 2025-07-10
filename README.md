@@ -1,3 +1,7 @@
+**Trump Names Sean Duffy as Interim Head of NASA**\
+`President Trump had pulled the nomination of a close associate of Elon Musk to lead the agency in May. The decision fueled a public breakdown of their alliance.`\
+https://nytimes.com/2025/07/10/us/politics/trump-nasa-sean-duffy.html
+
 **Diogo Jota and The Athletic's Liverpool coverage: A message to our subscribers**\
 `Explaining why we will be starting to restore our usual coverage of the club after the tragic death of Diogo Jota`\
 https://nytimes.com/athletic/6478551/2025/07/10/diogo-jota-liverpool-the-athletic-coverage/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6483510/2025/07/10/what-happens-at-a-football-club-
 **Tunnel Collapses in Los Angeles, Trapping Workers**\
 `An industrial tunnel in the city’s Wilmington neighborhood collapsed, leaving workers trapped inside.`\
 https://nytimes.com/2025/07/10/us/tunnel-collapse-los-angeles-trapped.html
-
-**Football Architects: Double-diamonds and late developers - inside the rise of Belgium’s golden generation**\
-`How Belgium executed a transformative project that took them from 71st to first place in the FIFA world rankings in eight years`\
-https://nytimes.com/athletic/6445749/2025/07/10/football-architects-inside-belgium-rise-world-number-one/
 
