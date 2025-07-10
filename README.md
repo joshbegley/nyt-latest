@@ -1,3 +1,15 @@
+**Eli Manning not pursuing Giants ownership stake: 'It's too expensive for me'**\
+`Manning also cited conflicts of interest with his broadcasting gigs and the Manning Passing Academy as reasons to pull out of the bid.`\
+https://nytimes.com/athletic/6485652/2025/07/10/eli-manning-giants-ownership-stake-cost/
+
+**La Scala Warns Opera Patrons: No Flip-Flops or Tank Tops Allowed**\
+`Milan’s famed opera house is cracking down on the underdressed, even as it and other European opera companies try to attract a wider audience.`\
+https://nytimes.com/2025/07/10/arts/la-scala-opera-dress-code.html
+
+**What’s Your Sign to Keep Swiping?**\
+`Some frustrated singles found dating-app inspiration in an unlikely place: Zohran Mamdani’s success on Hinge.`\
+https://nytimes.com/2025/07/10/style/dating-apps-zohran-mamdani-hinge.html
+
 **James B. Maas, Academic Guru of Slumber, Dies at 86**\
 `He taught an immensely popular and entertaining introduction to psychology course at Cornell University that featured a focus on the importance of sleep.`\
 https://nytimes.com/2025/07/10/science/james-b-maas-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6483614/2025/07/10/nascar-chicago-street-course-bui
 **The Windup: Yankees dustup escalates quickly**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6485716/2025/07/10/dj-lemahieu-yankees-the-windup/
-
-**L.A. Area Bishop Excuses Faithful From Mass Over Fear of Immigration Raids**\
-`San Bernardino Bishop Alberto Rojas lifted the obligation for members of the diocese to celebrate Mass if they had a “genuine fear of immigration enforcement actions.”`\
-https://nytimes.com/2025/07/10/us/california-san-bernardino-bishop-mass-church-ice-raids.html
-
-**Can a ‘Cortisol Cocktail’ Help Relieve Stress?**\
-`Influencers say that the concoction can boost energy and help you relax. We asked experts whether that’s true.`\
-https://nytimes.com/2025/07/10/well/eat/health-benefits-cortisol-cocktails.html
-
-**Trump Says Bolsonaro, Like Other Allies Under Pressure, Faces a ‘Witch Hunt’**\
-`President Trump’s defense of the former president of Brazil was the latest example of him invoking a term he has frequently used while describing himself as a victim.`\
-https://nytimes.com/2025/07/10/us/politics/trump-bolsonaro-witch-hunt.html
 

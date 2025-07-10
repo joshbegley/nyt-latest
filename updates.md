@@ -1,3 +1,15 @@
+**James B. Maas, Academic Guru of Slumber, Dies at 86**\
+`He taught an immensely popular and entertaining introduction to psychology course at Cornell University that featured a focus on the importance of sleep.`\
+https://nytimes.com/2025/07/10/science/james-b-maas-dead.html
+
+**Angel City bets on future, signing U.S. midfield youth standout Evelyn Shores**\
+`The 20-year-old's decision to leave college soccer for the NWSL six months early shows belief in herself and the team she's joining`\
+https://nytimes.com/athletic/6484336/2025/07/10/angel-city-signs-evelyn-shores-uswnt-future/
+
+**Ukrainian Intelligence Officer Is Shot to Death in Kyiv Parking Lot**\
+`The victim’s unit played a key role in Ukraine’s surprise attack inside Russian territory last summer.`\
+https://nytimes.com/2025/07/10/world/europe/ukraine-intelligence-officer-shooting-sbu.html
+
 **Justice Dept. Whistle-Blower Warns of Trump Administration’s Assault on the Law**\
 `In an interview with The New York Times, a former Justice Department lawyer, Erez Reuveni, said officials pressed subordinates to mislead judges, and dared the courts to stop it.`\
 https://nytimes.com/2025/07/10/us/politics/trump-bove-reuveni-whistleblower-doj-deportations.html
