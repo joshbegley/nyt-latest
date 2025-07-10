@@ -1,3 +1,11 @@
+**Diogo Jota and The Athletic's Liverpool coverage: A message to our subscribers**\
+`Explaining why we will be starting to restore our usual coverage of the club after the tragic death of Diogo Jota`\
+https://nytimes.com/athletic/6478551/2025/07/10/diogo-jota-liverpool-the-athletic-coverage/
+
+**Lord's: The cricket ground where the playing field has never been level**\
+`Lord's is more than 200 years old and has had many different guises. But one thing remains a constant — its slope, all eight feet of it`\
+https://nytimes.com/athletic/6482874/2025/07/10/lords-cricket-ground-slope-england-india/
+
 **Thierno Barry to Everton: Transfers TLDR**\
 `David Moyes has completed the signing of the 22-year-old French striker from Villarreal for a fee of just under £28m`\
 https://nytimes.com/athletic/6480735/2025/07/10/thierno-barry-everton-transfer-latest-tldr/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/10/us/tunnel-collapse-los-angeles-trapped.html
 **Football Architects: Double-diamonds and late developers - inside the rise of Belgium’s golden generation**\
 `How Belgium executed a transformative project that took them from 71st to first place in the FIFA world rankings in eight years`\
 https://nytimes.com/athletic/6445749/2025/07/10/football-architects-inside-belgium-rise-world-number-one/
-
-**Does the football season ever really end?**\
-`The 2024-25 season hasn't finished but the 2025-26 season has already begun. Yep, you read that right. `\
-https://nytimes.com/athletic/6482795/2025/07/10/club-world-cup-champions-league-season-player-welfare/
-
-**Wrexham's Down Under tour diary, part 1: Phil Parkinson on transfers, temperatures and training**\
-`In the first part of the club's tour diary, Wrexham's manager reveals how he has prepared for the visit to Australia and New Zealand`\
-https://nytimes.com/athletic/6476051/2025/07/10/wrexham-australia-tour-diary-phil-parkinson/
 
