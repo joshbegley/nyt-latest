@@ -1,3 +1,7 @@
+**State Department to Soon Begin Mass Layoffs**\
+`Secretary of State Marco Rubio’s plan to downsize a “bloated” department had been on hold after a court ruling.`\
+https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
+
 **Justice Dept. Promised to Prosecute Abrego Garcia. Now It’s Not So Clear.**\
 `In the case of Kilmar Armando Abrego Garcia, the administration appears primarily concerned with ensuring that a man it has described as a “dangerous illegal alien” never walks free on U.S. soil.`\
 https://nytimes.com/2025/07/10/us/politics/abrego-garcia-doj-trump.html
