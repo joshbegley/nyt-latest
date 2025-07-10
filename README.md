@@ -1,3 +1,7 @@
+**Israel’s Moral Balance Beam**\
+`The columnist Bret Stephens on what’s at stake for the Middle East and American Jews.`\
+https://nytimes.com/video/opinion/100000010271081/israels-moral-balance-beam.html
+
 **Real Madrid's Club World Cup: Alonso settles in, Gonzalo and Guler make a mark, but stars struggle**\
 `Madrid's tournament ended in the semi-final with some of their most high-profile players misfiring even if the youngsters took their chance`\
 https://nytimes.com/athletic/6484925/2025/07/10/real-madrid-alonso-fifa-club-world-cup/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.htm
 **How to watch Wimbledon 2025 women's semifinals: Can US' Anisimova overcome Sabalenka?**\
 `Wimbledon 2025 women's semifinals features No. 1 Sabalenka vs. No. 13 Anisimova and No. 8 Swiatek vs. Bencic. `\
 https://nytimes.com/athletic/6479994/2025/07/10/how-to-watch-wimbeldon-2025-womens-semifinals-aryna-sabalenka-amanda-anisimova/
-
-**FEMA Is Holding Up $2.4 Billion in Grants to Fight Terrorism, States Say**\
-`FEMA officials are two months behind in posting grant application guidelines, which are expected to reflect President Trump’s demand for cooperation on his priorities.`\
-https://nytimes.com/2025/07/10/nyregion/fema-funds-trump-noem.html
 
