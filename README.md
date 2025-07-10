@@ -1,3 +1,7 @@
+**Meet Ayden Heaven and his agent mum, Lisa - 'I had a lot of setbacks, but it helped me as a person to this day'**\
+`Ayden Heaven and his mum Lisa discuss the defender joining Manchester United, his journey to the top and reaching his "maximum potential"`\
+https://nytimes.com/athletic/6479807/2025/07/10/ayden-heaven-mum-manchester-united/
+
 **Euro 2025 roundup: Sweden stays solid, a lack of draws and a team of standouts**\
 `The key moments you may have missed for each round of Euro 2025`\
 https://nytimes.com/athletic/6484247/2025/07/10/euro-2025-roundup-sweden-draws/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts
 **Thursday Briefing: Russia’s Record Drone Attack**\
 `Plus, the Bayeux Tapestry’s homecoming.`\
 https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
-
-**The New York Times in Print for Thursday, July 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/10/todays-new-york-times
 
