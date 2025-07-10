@@ -1,3 +1,15 @@
+**Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
+`President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
+https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
+
+**Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
+`He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
+https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
+
+**F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
+`The letters, many of which were already available online, detail why the regulators initially declined to approve some drugs. All eventually passed muster.`\
+https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
+
 **Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
 `Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
 https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/

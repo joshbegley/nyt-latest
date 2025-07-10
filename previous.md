@@ -1,3 +1,15 @@
+**Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
+`President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
+https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
+
+**Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
+`He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
+https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
+
+**F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
+`The letters, many of which were already available online, detail why the regulators initially declined to approve some drugs. All eventually passed muster.`\
+https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
+
 **Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
 `Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
 https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/
@@ -21,16 +33,4 @@ https://nytimes.com/column/serial-newsletter
 **NCAA basketball leaders leave summer meetings without tournament expansion decision**\
 `With the 2026 tournaments a little more than eight months out, the chance anything changes next year seems small.`\
 https://nytimes.com/athletic/6485469/2025/07/10/ncaa-basketball-tournament-expansion-march-madness-teams/
-
-**Justice Dept. Demands Patient Details From Trans Medicine Providers**\
-`Doctors and hospitals were subpoenaed for private information on gender-related care for minors, the latest move by the Trump administration to stop the treatments.`\
-https://nytimes.com/2025/07/10/health/transgender-medicine-minors-trump-subpoena.html
-
-**Real Madrid forward Endrick suffers injury setback**\
-`The Brazilian initially suffered an injury to his right hamstring injury in the final league game of last season.`\
-https://nytimes.com/athletic/6486868/2025/07/10/endrick-setback-recovery-hamstring-injury-real-madrid/
-
-**NFLPA's Lloyd Howell Jr. not advised to resign from firm seeking NFL ownership**\
-`Howell joined The Carlyle Group in March 2023, months before the NFLPA hired him in June of that year, sources confirmed.`\
-https://nytimes.com/athletic/6486656/2025/07/10/nflpa-lloyd-howell-jr-carlyle-group/
 
