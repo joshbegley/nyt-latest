@@ -1,3 +1,15 @@
+**Israel Will Allow More Aid Into Gaza, Officials Say**\
+`The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
+https://nytimes.com/2025/07/10/world/middleeast/israel-will-allow-more-aid-into-gaza-officials-say.html
+
+**A Beloved Bloodhound, a Fatal Treat: A Gruesome Murder Mystery in Italy**\
+`The killing of Bruno, a decorated sniffer dog who ingested sausages stuffed with nails, has set off an outpouring of grief in Italy.`\
+https://nytimes.com/2025/07/10/us/bruno-bloodhound-murder-sausages-italy.html
+
+**James Jones leaving Suns for NBA executive VP role, replacing Joe Dumars**\
+`As part of a Suns front-office revamp, Ishbia in May shifted Jones to a senior advisory role and promoted Brian Gregory to general manager.`\
+https://nytimes.com/athletic/6485899/2025/07/10/james-jones-nba-front-office-suns/
+
 **Brighton offer new contract to goalkeeper Rushworth**\
 `The club want to stretch his six-year stay amid interest in the 23-year-old from sides in England and Scotland.`\
 https://nytimes.com/athletic/6485976/2025/07/10/brighton-transfers-carl-rushworth-contract/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/10/business/trump-fed-chair-independence.html
 **Fiorentina sign Edin Dzeko from Fenerbahce**\
 `Dzeko, 39, has signed a one-year deal, with potential for a further 12 months, and will play in the Conference League next season.`\
 https://nytimes.com/athletic/6429012/2025/07/10/edin-dzeko-fiorentina-transfer/
-
-**Tesla Sets Date for Shareholders Meeting After Protests**\
-`The annual meeting will be in November, nearly four months after what is required under Texas law.`\
-https://nytimes.com/2025/07/10/business/tesla-shareholders-meeting.html
-
-**Orioles trade reliever Bryan Baker to Rays for No. 37 pick in MLB draft**\
-`The move could signal a sweeping series of sell moves by the O's, who now have seven picks in the top 100 on Sunday. `\
-https://nytimes.com/athletic/6485770/2025/07/10/orioles-rays-trade-bryan-baker-mlb-draft/
-
-**What Might a Billionaire Lose at? Turns Out, Tennis.**\
-`Bill Ackman, an outspoken 59-year-old financier, tried competing in a professional tournament.`\
-https://nytimes.com/2025/07/10/style/bill-ackman-tennis-hall-of-fame-open.html
 
