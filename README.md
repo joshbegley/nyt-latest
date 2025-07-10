@@ -1,3 +1,7 @@
+**Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
+`The 23-year-old shortstop will join the team for its weekend series against the Texas Rangers.`\
+https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
+
 **State Department to Soon Begin Mass Layoffs**\
 `Secretary of State Marco Rubio’s plan to downsize a “bloated” department had been on hold after a court ruling.`\
 https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-sem
 **New York Must Move Forward With Housing Voucher Expansion, Court Rules**\
 `The decision by a New York appeals court was a win for the City Council and a loss for Mayor Eric Adams, who had opposed the expansion, citing budget concerns.`\
 https://nytimes.com/2025/07/10/nyregion/housing-voucher-nyc.html
-
-**Four Ex-Jail Officers Are Sentenced in Death of West Virginia Inmate**\
-`The former officers, who brutally beat a 37-year-old man, received prison terms ranging from three years to more than two decades.`\
-https://nytimes.com/2025/07/10/us/west-virginia-jail-beating-officers-sentenced.html
 
