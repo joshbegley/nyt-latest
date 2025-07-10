@@ -1,3 +1,15 @@
+**Demna Says a Star-Studded Goodbye to Balenciaga**\
+`The designer’s farewell show came complete with Kim Kardashian, Nicole Kidman, Lauren Sanchez Bezos — and other greatest hits.`\
+https://nytimes.com/2025/07/10/style/demna-final-balenciaga-kim-kardashian.html
+
+**People come to Wimbledon for tennis. Local businesses want them to stay for the art.**\
+`While 256 of the best tennis players in the world battle on a beautiful canvas, local businesses in Wimbledon stage their own competition.`\
+https://nytimes.com/athletic/6460219/2025/07/10/tennis-wimbledon-culture-village-art-competition/
+
+**This Is What Fashion Needs Now**\
+`Glenn Martens has a brilliant, no holds barred, debut at Maison Margiela.`\
+https://nytimes.com/2025/07/10/style/glenn-martens-maison-margiela-artisanal.html
+
 **China Surveys Seabeds Where Naval Rivals May One Day Clash**\
 `Chinese research ships are studying the seas for science and resources, but the data they gather could also be useful in a conflict with Taiwan or the United States.`\
 https://nytimes.com/2025/07/10/world/asia/china-ships-taiwan-guam.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/10/nyregion/fema-funds-trump-noem.html
 **As MetroCard Phases Out, Riders Gripe About Its Replacement**\
 `A survey of transit riders found that a majority have had issues with New York’s new tap-and-go system, months before its predecessor is expected to be retired.`\
 https://nytimes.com/2025/07/10/nyregion/metrocard-omni-nyc-rider-issues.html
-
-**A Reporter’s Trail From a Bush-Era Cyberattack to Trump’s Strike on Iran**\
-`During the Obama administration, a Times reporter revealed details of a cyberattack on a nuclear enrichment center in Iran. He followed the story to the White House, and learned lessons critical to covering the recent bombing of Fordo and Natanz.`\
-https://nytimes.com/2025/07/10/insider/cyberattack-iran.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/10/crosswords/spelling-bee-forum.html
-
-**Meet Ayden Heaven and his agent mum, Lisa - 'I had a lot of setbacks, but it helped me as a person to this day'**\
-`Ayden Heaven and his mum Lisa discuss the defender joining Manchester United, his journey to the top and reaching his "maximum potential"`\
-https://nytimes.com/athletic/6479807/2025/07/10/ayden-heaven-mum-manchester-united/
 
