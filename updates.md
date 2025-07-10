@@ -1,3 +1,11 @@
+**PSG's Marco Asensio progressing in talks over Fenerbahce move**\
+`The Spanish midfielder, 29, wants to play for his country in next summer's World Cup.`\
+https://nytimes.com/athletic/6301539/2025/07/10/marco-asensio-psg-fenerbahce-transfer-spain-world-cup/
+
+**Coal, the Lone Survivor of Canada’s Parliamentary Cat Colony, Dies**\
+`For decades, a semiofficial feline assembly outside Parliament was a major tourist attraction.`\
+https://nytimes.com/2025/07/10/world/canada/canada-parliament-cat-colony-dead.html
+
 **Tottenham complete signing of Kudus from West Ham**\
 `The Athletic reported on Wednesday that a deal worth around £55million ($74.7m) had been agreed between the two clubs.`\
 https://nytimes.com/athletic/6483767/2025/07/10/mohammed-kudus-tottenham-west-ham-transfer/

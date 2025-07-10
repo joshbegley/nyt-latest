@@ -1,3 +1,7 @@
+**PSG's Marco Asensio progressing in talks over Fenerbahce move**\
+`The Spanish midfielder, 29, wants to play for his country in next summer's World Cup.`\
+https://nytimes.com/athletic/6301539/2025/07/10/marco-asensio-psg-fenerbahce-transfer-spain-world-cup/
+
 **Tottenham complete signing of Kudus from West Ham**\
 `The Athletic reported on Wednesday that a deal worth around £55million ($74.7m) had been agreed between the two clubs.`\
 https://nytimes.com/athletic/6483767/2025/07/10/mohammed-kudus-tottenham-west-ham-transfer/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6483767/2025/07/10/mohammed-kudus-tottenham-west-ha
 https://nytimes.com/2025/07/10/books/john-martin-dead.html
 
 **Coal, the Lone Survivor of Canada’s Parliamentary Cat Colony, Dies**\
-`For decades, a semiofficial feline assembly was a major tourist attraction outside Parliament.`\
+`For decades, a semiofficial feline assembly outside Parliament was a major tourist attraction.`\
 https://nytimes.com/2025/07/10/world/canada/canada-parliament-cat-colony-dead.html
 
 **Wife of Ken Paxton Files for Divorce, Citing ‘Recent Discoveries’**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/us/politics/fbi-polygraph-kash-patel.html
 **Targeting Brazil, Trump Tests Legal Limit of His Tariff Powers**\
 `The president signaled he would seek to use the threat of steep levies to reorient trade and protect his political allies.`\
 https://nytimes.com/2025/07/10/us/politics/trump-brazil-tariffs-legal-limit.html
-
-**U.K. and France Announce New Nuclear Defense Deal**\
-`Prime Minister Keir Starmer of Britain and President Emmanuel Macron of France strengthened the defense relationship between their two countries and announced a new agreement to address illegal migration.`\
-https://nytimes.com/video/world/europe/100000010278274/starmer-macron-nuclear-migrants.html
 
