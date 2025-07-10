@@ -1,3 +1,7 @@
+**Kennedy Cancels Meeting of Key Preventive Health Panel**\
+`The task force recommends which screenings and other preventive health measures must be covered by insurance.`\
+https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
+
 **Wimbledon recap: A doubles star wins yet another Grand Slam as Amanda Anisimova arrives**\
 `Kateřina Siniaková, the women's world No. 1 in doubles, is already a great of the discipline.`\
 https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-semifinals-results/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
 **Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
 `He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
 https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
-
-**F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
-`The letters, many of which were already available online, detail why the regulators initially declined to approve some drugs. All eventually passed muster.`\
-https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
 

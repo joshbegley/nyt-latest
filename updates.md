@@ -1,3 +1,7 @@
+**Kennedy Cancels Meeting of Key Preventive Health Panel**\
+`The task force recommends which screenings and other preventive health measures must be covered by insurance.`\
+https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
+
 **Wimbledon recap: A doubles star wins yet another Grand Slam as Amanda Anisimova arrives**\
 `Kateřina Siniaková, the women's world No. 1 in doubles, is already a great of the discipline.`\
 https://nytimes.com/athletic/6468439/2025/07/10/tennis-wimbledon-recap-women-semifinals-results/
