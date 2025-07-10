@@ -1,3 +1,7 @@
+**Bryce Harper is having fun again. 4-extra-base-hit day shows Phillies star feels just fine**\
+`There is a certain energy when Harper is right — truly right — and the Phillies have not felt it all season. This felt different.`\
+https://nytimes.com/athletic/6484604/2025/07/09/phillies-bryce-harper-four-extra-base-hits/
+
 **Astros' Jake Meyers exits game with apparent injury before first pitch**\
 `Meyers had dealt with a a right calf issue for the past two days. `\
 https://nytimes.com/athletic/6484608/2025/07/09/houston-astros-jake-meyers-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/09/us/texas-congressional-resdistricting-maps.html
 **Blue Jays hope to buck franchise history after win streak ends at 10 games**\
 `Toronto became the team it had previously watched from afar — the streaking squad building breathing room.`\
 https://nytimes.com/athletic/6484503/2025/07/09/blue-jays-win-streak-ends-buck-history/
-
-**Maine Paddleboarder’s Death Is Investigated as a Homicide, Police Say**\
-`Sunshine Stewart, 48, disappeared on the night of July 2 during an outing on Crawford Pond in Union, Maine. Her body was found hours later near an island preserve.`\
-https://nytimes.com/2025/07/09/us/maine-paddleboarder-homicide.html
 
