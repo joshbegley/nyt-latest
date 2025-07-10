@@ -1,3 +1,19 @@
+**Tottenham complete signing of Kudus from West Ham**\
+`The Athletic reported on Wednesday that a deal worth around £55million ($74.7m) had been agreed between the two clubs.`\
+https://nytimes.com/athletic/6483767/2025/07/10/mohammed-kudus-tottenham-west-ham-transfer/
+
+**John Martin, Devoted Publisher of Literary Rebels, Dies at 94**\
+`Black Sparrow Press, a shoestring operation he ran out of his home, became one of the highest-profile small publishers in the U.S., championing writers like Charles Bukowski.`\
+https://nytimes.com/2025/07/10/books/john-martin-dead.html
+
+**Coal, the Lone Survivor of Canada’s Parliamentary Cat Colony, Dies**\
+`For decades, a semiofficial feline assembly was a major tourist attraction outside Parliament.`\
+https://nytimes.com/2025/07/10/world/canada/canada-parliament-cat-colony-dead.html
+
+**Wife of Ken Paxton Files for Divorce, Citing ‘Recent Discoveries’**\
+`The announcement could have a significant impact on the race for U.S. Senate in Texas. Mr. Paxton is challenging Senator John Cornyn in the Republican primary.`\
+https://nytimes.com/2025/07/10/us/ken-paxton-fdivorce.html
+
 **More Than a Dozen Killed in Israeli Airstrike Near Gaza Clinic**\
 `Civilians, including children, were waiting outside a health clinic to receive nutritional supplements in central Gaza on Thursday, when an Israeli strike hit.`\
 https://nytimes.com/video/world/middleeast/100000010277930/israeli-airstrike-near-gaza-clinic.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/10/us/politics/trump-brazil-tariffs-legal-limit.html
 **U.K. and France Announce New Nuclear Defense Deal**\
 `Prime Minister Keir Starmer of Britain and President Emmanuel Macron of France strengthened the defense relationship between their two countries and announced a new agreement to address illegal migration.`\
 https://nytimes.com/video/world/europe/100000010278274/starmer-macron-nuclear-migrants.html
-
-**What Is ‘Aura Farming’? This Tween Will Show You.**\
-`Thanks to his dance moves on the front of a boat, a young Indonesian boy has become an internet sensation, and is now a “tourism ambassador.”`\
-https://nytimes.com/2025/07/10/style/aura-farming-indonesia-boat-kid.html
-
-**New NIL enforcement arm issues crackdown on collectives**\
-`The goal is to prevent schools from utilizing booster-driven entities to funnel payments to recruits and transfers.`\
-https://nytimes.com/athletic/6486575/2025/07/10/name-image-likeness-collective-deals/
-
-**Real Madrid reach agreement to re-sign Carreras from Benfica**\
-`The left-back originally represented Madrid's academy before joining Manchester United as a youth-team player.`\
-https://nytimes.com/athletic/6372377/2025/07/10/real-madrid-transfers-alvaro-carreras/
-
-**And Just Like That … New York City Has Great Tacos**\
-`We couldn’t help but wonder: When did the city become an epicenter of regional specialties?`\
-https://nytimes.com/2025/07/10/dining/tacos-nyc.html
 

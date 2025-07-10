@@ -1,16 +1,16 @@
 **Tottenham complete signing of Kudus from West Ham**\
-`The Athletic reported on Wednesday that a deal worth around £55million ($74.7m) had been agreed between the two clubs.`\
+`The AthleticÂ reported on Wednesday that a deal worth around Â£55million ($74.7m) had been agreed between the two clubs.`\
 https://nytimes.com/athletic/6483767/2025/07/10/mohammed-kudus-tottenham-west-ham-transfer/
 
 **John Martin, Devoted Publisher of Literary Rebels, Dies at 94**\
 `Black Sparrow Press, a shoestring operation he ran out of his home, became one of the highest-profile small publishers in the U.S., championing writers like Charles Bukowski.`\
 https://nytimes.com/2025/07/10/books/john-martin-dead.html
 
-**Coal, the Lone Survivor of Canada’s Parliamentary Cat Colony, Dies**\
-`For decades, a semiofficial feline assembly was a major tourist attraction outside Parliament.`\
+**Coal, the Lone Survivor of Canadaâs Parliamentary Cat Colony, Dies**\
+`For decades, a semiofficial feline assembly outside Parliament was a major tourist attraction.`\
 https://nytimes.com/2025/07/10/world/canada/canada-parliament-cat-colony-dead.html
 
-**Wife of Ken Paxton Files for Divorce, Citing ‘Recent Discoveries’**\
+**Wife of Ken Paxton Files for Divorce, Citing âRecent Discoveriesâ**\
 `The announcement could have a significant impact on the race for U.S. Senate in Texas. Mr. Paxton is challenging Senator John Cornyn in the Republican primary.`\
 https://nytimes.com/2025/07/10/us/ken-paxton-fdivorce.html
 
@@ -19,10 +19,10 @@ https://nytimes.com/2025/07/10/us/ken-paxton-fdivorce.html
 https://nytimes.com/video/world/middleeast/100000010277930/israeli-airstrike-near-gaza-clinic.html
 
 **Nvidia Becomes First Public Company Worth $4 Trillion**\
-`The A.I. chip maker reached the landmark before Apple and Microsoft, as its value rose more than 10-fold following ChatGPT’s release in late 2022.`\
+`The A.I. chip maker reached the landmark before Apple and Microsoft, as its value rose more than 10-fold following ChatGPTâs release in late 2022.`\
 https://nytimes.com/2025/07/10/technology/nvidia-4-trillion-market-value.html
 
-**The F.B.I. Is Using Polygraphs to Test Officials’ Loyalty**\
+**The F.B.I. Is Using Polygraphs to Test Officialsâ Loyalty**\
 `Some senior officials who have taken the test have been asked whether they said anything negative about the F.B.I. director, Kash Patel, in a highly unusual use of the tool.`\
 https://nytimes.com/2025/07/10/us/politics/fbi-polygraph-kash-patel.html
 
