@@ -1,3 +1,11 @@
+**Euro 2025 roundup: Sweden stays solid, a lack of draws and a team of standouts**\
+`The key moments you may have missed for each round of Euro 2025`\
+https://nytimes.com/athletic/6484247/2025/07/10/euro-2025-roundup-sweden-draws/
+
+**Word of the Day: kitschy**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/10/learning/word-of-the-day-kitschy.html
+
 **Tunnel Collapses in Los Angeles**\
 `Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
 https://nytimes.com/video/us/100000010277145/tunnel-collapses-in-los-angeles.html

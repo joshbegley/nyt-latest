@@ -1,3 +1,11 @@
+**Euro 2025 roundup: Sweden stays solid, a lack of draws and a team of standouts**\
+`The key moments you may have missed for each round of Euro 2025`\
+https://nytimes.com/athletic/6484247/2025/07/10/euro-2025-roundup-sweden-draws/
+
+**Word of the Day: kitschy**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/10/learning/word-of-the-day-kitschy.html
+
 **Tunnel Collapses in Los Angeles**\
 `Emergency responders rescued 27 workers who were trapped in an industrial tunnel that collapsed in Los Angeles on Wednesday.`\
 https://nytimes.com/video/us/100000010277145/tunnel-collapses-in-los-angeles.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-
 **The New York Times in Print for Thursday, July 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/10/todays-new-york-times
-
-**This ‘Trial of the Century’ Is 100. Its Lessons Could Save the Democrats.**\
-`A hundred years later, many religious Americans in rural areas still feel that the cosmopolitan leaders of the Democratic Party look down on them.`\
-https://nytimes.com/2025/07/10/opinion/scopes-monkey-trial-democrats.html
-
-**Trump Names Sean Duffy as Interim Head of NASA**\
-`President Trump had pulled the nomination of a close associate of Elon Musk to lead the agency in May. The decision fueled a public breakdown of their alliance.`\
-https://nytimes.com/2025/07/10/us/politics/trump-nasa-sean-duffy.html
 
