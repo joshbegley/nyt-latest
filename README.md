@@ -15,7 +15,7 @@ https://nytimes.com/2025/07/10/briefing/judge-trump-birthright-citizenship-iran-
 https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
 
 **The Serial Newsletter**\
-``\
+`Be the first to know about our new podcasts, and get an exclusive look into how they come together. <a href="https://www.nytimes.com/newsletters/serial" target=" _blank">Sign up</a> for the Serial newsletter.`\
 https://nytimes.com/column/serial-newsletter
 
 **NCAA basketball leaders leave summer meetings without tournament expansion decision**\
