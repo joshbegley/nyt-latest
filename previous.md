@@ -1,3 +1,15 @@
+**Livvy Dunne Wanted Babe Ruth’s Old Apartment. The Co-op Board Said No.**\
+`The influencer and former collegiate gymnast tried to buy the Manhattan two-bedroom, but instead joined the ranks of high-profile rejects like Madonna and Calvin Klein.`\
+https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.html
+
+**Hosts Switzerland avoid Euro 2025 group exit with late equaliser: 'We never stopped dreaming'**\
+`Substitute Riola Xhemaili levelled the scores in the 92nd minute at Stade de Geneve to send Switzerland through at Finland's expense.`\
+https://nytimes.com/athletic/6476494/2025/07/10/switzerland-finland-euro-2025/
+
+**49ers' George Kittle is enjoying his golf debut, eagerly awaiting training camp**\
+`Kittle chugged beers and drained a birdie putt while getting off to a strong start at the American Century Championship golf tournament.`\
+https://nytimes.com/athletic/6486442/2025/07/10/george-kittle-49ers-celebrity-golf/
+
 **Kennedy Cancels Meeting of Key Preventive Health Panel**\
 `The task force recommends which screenings and other preventive health measures must be covered by insurance.`\
 https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6486795/2025/07/10/congress-nil-bill-college-sports
 **Mets' David Peterson to replace Robbie Ray on NL All-Star Game roster**\
 `Peterson becomes the Mets' fourth All-Star. He lowered his ERA to 3.06 after allowing one earned run over seven innings in Thursday's loss.`\
 https://nytimes.com/athletic/6486976/2025/07/10/mets-david-peterson-nl-all-star-game-roster-robbie-ray-sf-giants/
-
-**Arsenal close to full agreement with Chelsea for Noni Madueke**\
-`The 23-year-old has already agreed personal terms with Arsenal over a proposed five-year deal and is prioritising the north London side.`\
-https://nytimes.com/athletic/6483265/2025/07/10/arsenal-close-to-full-agreement-with-chelsea-for-noni-madueke/
-
-**Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
-`President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
-https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
-
-**Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
-`He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
-https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
 

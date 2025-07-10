@@ -1,3 +1,15 @@
+**Livvy Dunne Wanted Babe Ruth’s Old Apartment. The Co-op Board Said No.**\
+`The influencer and former collegiate gymnast tried to buy the Manhattan two-bedroom, but instead joined the ranks of high-profile rejects like Madonna and Calvin Klein.`\
+https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.html
+
+**Hosts Switzerland avoid Euro 2025 group exit with late equaliser: 'We never stopped dreaming'**\
+`Substitute Riola Xhemaili levelled the scores in the 92nd minute at Stade de Geneve to send Switzerland through at Finland's expense.`\
+https://nytimes.com/athletic/6476494/2025/07/10/switzerland-finland-euro-2025/
+
+**49ers' George Kittle is enjoying his golf debut, eagerly awaiting training camp**\
+`Kittle chugged beers and drained a birdie putt while getting off to a strong start at the American Century Championship golf tournament.`\
+https://nytimes.com/athletic/6486442/2025/07/10/george-kittle-49ers-celebrity-golf/
+
 **Kennedy Cancels Meeting of Key Preventive Health Panel**\
 `The task force recommends which screenings and other preventive health measures must be covered by insurance.`\
 https://nytimes.com/2025/07/10/health/kennedy-preventative-services-panel.html
