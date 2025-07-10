@@ -1,3 +1,15 @@
+**Can a ‘Cortisol Cocktail’ Help Relieve Stress?**\
+`Influencers say that the concoction can boost energy and help you relax. We asked experts whether that’s true.`\
+https://nytimes.com/2025/07/10/well/eat/health-benefits-cortisol-cocktails.html
+
+**Trump Says Bolsonaro, Like Other Allies Under Pressure, Faces a ‘Witch Hunt’**\
+`President Trump’s defense of the former president of Brazil was the latest example of him invoking a term he has frequently used while describing himself as a victim.`\
+https://nytimes.com/2025/07/10/us/politics/trump-bolsonaro-witch-hunt.html
+
+**What we're hearing about the the Phillies' trade deadline plans: Will they take a bigger swing?**\
+`The Phillies sound more willing to trade bigger prospect chips for controllable big leaguers, according to officials from rival clubs. `\
+https://nytimes.com/athletic/6484865/2025/07/10/phillies-mlb-trade-deadline-news/
+
 **As Drone Warfare Evolves, Pentagon Sees Its Own Vulnerabilities**\
 `Israel and Ukraine have used drones against their adversaries in audacious ways that have helped the Pentagon see the need for new technology.`\
 https://nytimes.com/2025/07/10/us/politics/us-military-drone-technology.html
