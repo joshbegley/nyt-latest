@@ -1,3 +1,19 @@
+**How social media and sauna suits cost Eubank Jr £10,000**\
+`The issue centred around Eubank Jr's preparations for his fight against Conor Benn in April.`\
+https://nytimes.com/athletic/6434923/2025/07/10/chris-eubank-jr-weight-fine/
+
+**Delta’s Stock Soars on Signs of ‘Stabilized’ Demand**\
+`The airline reported better earnings than expected for its latest quarter, and restored its forecast for the rest of the year.`\
+https://nytimes.com/2025/07/10/business/delta-earnings-travel-demand.html
+
+**The Pulse: The best part of ‘College Football 26’**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6483756/2025/07/10/ea-sports-college-football-26-the-pulse/
+
+**Ronald Acuña Jr. homers twice in return to lineup, confirms he's participating in HR Derby**\
+`Acuña helped lead the Braves to a 9-2 win over the A's and end their 0-for California skid.`\
+https://nytimes.com/athletic/6484930/2025/07/10/braves-ronald-acuna-jr-home-runs/
+
 **Mirtle: What should the Leafs do with all their remaining salary-cap space?**\
 `Toronto's roughly $6 million in cap space gives the team flexibility and opportunity, which could be fascinating for next season.
 `\
