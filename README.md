@@ -1,36 +1,36 @@
+**New York Must Move Forward With Housing Voucher Expansion, Court Rules**\
+`The decision by a New York appeals court was a win for the City Council and a loss for Mayor Eric Adams, who had opposed the expansion, citing budget concerns.`\
+https://nytimes.com/2025/07/10/nyregion/housing-voucher-nyc.html
+
+**Four Ex-Jail Officers Are Sentenced in Death of West Virginia Inmate**\
+`The former officers, who brutally beat a 37-year-old man, received prison terms ranging from three years to more than two decades.`\
+https://nytimes.com/2025/07/10/us/west-virginia-jail-beating-officers-sentenced.html
+
+**Congress to propose NIL guidelines in new college sports compensation bill**\
+`If the bill passes, it would override current state NIL laws, which vary from border to border.`\
+https://nytimes.com/athletic/6486795/2025/07/10/congress-nil-bill-college-sports-compensation-rules-guidelines/
+
+**Mets' David Peterson to replace Robbie Ray on NL All-Star Game roster**\
+`Peterson becomes the Mets' fourth All-Star. He lowered his ERA to 3.06 after allowing one earned run over seven innings in Thursday's loss.`\
+https://nytimes.com/athletic/6486976/2025/07/10/mets-david-peterson-nl-all-star-game-roster-robbie-ray-sf-giants/
+
+**Arsenal close to full agreement with Chelsea for Noni Madueke**\
+`The 23-year-old has already agreed personal terms with Arsenal over a proposed five-year deal and is prioritising the north London side.`\
+https://nytimes.com/athletic/6483265/2025/07/10/arsenal-close-to-full-agreement-with-chelsea-for-noni-madueke/
+
+**Looming Copper Tariffs Leave Companies Scrambling: ‘Prices Will Go Up’**\
+`President Trump wants America to produce more of the much-needed mineral, but a 50 percent tariff could undermine his aim of a manufacturing renaissance.`\
+https://nytimes.com/2025/07/10/business/trump-copper-tariffs-prices.html
+
+**Thornton Willis, Who Brought Emotion to Geometric Painting, Dies at 89**\
+`He spent a lifetime patiently excavating the problems and possibilities of the painted surface — in terms of color, texture, process and space.`\
+https://nytimes.com/2025/07/10/arts/thornton-willis-dead.html
+
+**F.D.A. Posts Collection of Letters Outlining Concerns About New Drugs**\
+`The letters, many of which were already available online, detail why the regulators initially declined to approve some drugs. All eventually passed muster.`\
+https://nytimes.com/2025/07/10/health/fda-drugs-letters.html
+
 **Lee Elia, whose rant as Cubs manager is still remembered fondly, dies at 87**\
 `Elia spent a half-century in professional baseball as a player, coach and scout. His rant while managing the Cubs is still legendary.`\
 https://nytimes.com/athletic/6486807/2025/07/10/lee-elia-obituary-cubs-phillies/
-
-**Gareth Bale says his consortium has made a new offer for Cardiff**\
-`"We're very happy. We think it's very fair, if not more than fair," said the former Wales winger.`\
-https://nytimes.com/athletic/6468838/2025/07/10/gareth-bale-cardiff-takeover-new-bid/
-
-**A Judge Reignited the Standoff Over Birthright Citizenship**\
-`Also, Israel concluded that some of Iranâs nuclear material survived. Hereâs the latest at the end of Thursday.`\
-https://nytimes.com/2025/07/10/briefing/judge-trump-birthright-citizenship-iran-israel.html
-
-**Missouri Governor Signs Bill Rolling Back Voter-Approved Minimum Wage and Sick Leave**\
-`The reversal reflected a growing struggle over the use of ballot measures to answer policy questions in Republican-led states.`\
-https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
-
-**The Serial Newsletter**\
-``\
-https://nytimes.com/column/serial-newsletter
-
-**NCAA basketball leaders leave summer meetings without tournament expansion decision**\
-`With the 2026 tournaments a little more than eight months out, the chance anything changes next year seems small.`\
-https://nytimes.com/athletic/6485469/2025/07/10/ncaa-basketball-tournament-expansion-march-madness-teams/
-
-**Justice Dept. Demands Patient Details From Trans Medicine Providers**\
-`Doctors and hospitals were subpoenaed for private information on gender-related care for minors, the latest move by the Trump administration to stop the treatments.`\
-https://nytimes.com/2025/07/10/health/transgender-medicine-minors-trump-subpoena.html
-
-**Real Madrid forward Endrick suffers injury setback**\
-`The Brazilian initially suffered an injury to his right hamstring injury in the final league game of last season.`\
-https://nytimes.com/athletic/6486868/2025/07/10/endrick-setback-recovery-hamstring-injury-real-madrid/
-
-**NFLPA's Lloyd Howell Jr. not advised to resign from firm seeking NFL ownership**\
-`Howell joined The Carlyle Group in March 2023, months before the NFLPA hired him in June of that year, sources confirmed.`\
-https://nytimes.com/athletic/6486656/2025/07/10/nflpa-lloyd-howell-jr-carlyle-group/
 
