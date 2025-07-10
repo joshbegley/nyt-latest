@@ -1,3 +1,19 @@
+**Heckelphone Relative**\
+`Your successful solving of todayâs puzzle is in the cards, according to Emily Biegas and Sala Wanetick.`\
+https://nytimes.com/2025/07/09/crosswords/daily-puzzle-2025-07-10.html
+
+**Camp Mystic Cabins Stood in an âExtremely Hazardousâ Floodway**\
+`An analysis of flood maps shows that several buildings, including those where children were sleeping, were in known hazard zones. A $5 million expansion in 2019 did nothing to alleviate the problem.`\
+https://nytimes.com/interactive/2025/07/09/us/camp-mystic-texas-cabins.html
+
+**Yankeesâ Brian Cashman sheds (some) light on trade deadline plans**\
+`"Weâre going to town,â Cashman said. âWeâre going to do everything we possibly can to improve ourselves and try to match up."`\
+https://nytimes.com/athletic/6484646/2025/07/09/yankees-brian-cashman-trade-deadline-plans/
+
+**Bryce Harper is having fun again as 4-extra-base-hit day shows Phillies star feels just fine**\
+`There is a certain energy when Harper is right â truly right â and the Phillies have not felt it all season. This felt different.`\
+https://nytimes.com/athletic/6484604/2025/07/09/phillies-bryce-harper-four-extra-base-hits/
+
 **Wrestler, fighter Ben Askren 'died 4 times' before double lung transplant**\
 `In his first update since his life-saving surgery, Askren said he had no memories from May 28 through July 2 but is starting to recover.`\
 https://nytimes.com/athletic/6484722/2025/07/09/ben-askren-wrestler-mma-lung-transplant-recovery/
