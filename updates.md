@@ -1,3 +1,7 @@
+**Justice Dept. Promised to Prosecute Abrego Garcia. Now It’s Not So Clear.**\
+`In the case of Kilmar Armando Abrego Garcia, the administration appears primarily concerned with ensuring that a man it has described as a “dangerous illegal alien” never walks free on U.S. soil.`\
+https://nytimes.com/2025/07/10/us/politics/abrego-garcia-doj-trump.html
+
 **Livvy Dunne Wanted Babe Ruth’s Old Apartment. The Co-op Board Said No.**\
 `The influencer and former collegiate gymnast tried to buy the Manhattan two-bedroom, but instead joined the ranks of high-profile rejects like Madonna and Calvin Klein.`\
 https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.html
