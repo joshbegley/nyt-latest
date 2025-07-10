@@ -1,3 +1,11 @@
+**Late Night Is All Over Grok’s Antisemitic Posts**\
+`“Do you know how racist and antisemitic you have to be for Elon Musk to step in?” Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
+https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
+
+**Thursday Briefing: Russia’s Record Drone Attack**\
+`Plus, the Bayeux Tapestry’s homecoming.`\
+https://nytimes.com/2025/07/10/briefing/russia-ukraine-trade-trump-brazil-south-korea-yoon.html
+
 **Late Night Is All Over Grokâs Antisemitic Posts**\
 `âDo you know how racist and antisemitic you have to be for Elon Musk to step in?â Anthony Anderson, sitting in for Jimmy Kimmel, asked rhetorically.`\
 https://nytimes.com/2025/07/10/arts/television/late-night-grok-antisemitic-posts.html
