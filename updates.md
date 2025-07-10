@@ -1,3 +1,11 @@
+**Trump Seeks to Cut Basic Scientific Research by Roughly One-Third, Report Shows**\
+`An analysis by the American Association for the Advancement of Science shows the impact of the administration’s budget plan on the kind of studies that produce the most breakthroughs.`\
+https://nytimes.com/2025/07/10/science/trump-science-budget-cuts.html
+
+**First Wimbledon women's semifinal halted twice due to unwell spectators in stands**\
+`Sabalenka immediately responded by bringing a bottle of water and an ice pack to the section of the crowd in the East Stand.`\
+https://nytimes.com/athletic/6485544/2025/07/10/wimbledon-centre-court-sabalenka-anisimova/
+
 **3 Teenagers Arrested Over Cyberattacks That Cost U.K. Retailers Millions**\
 `Four people total were arrested in connection with an April cyberattack that disrupted operations at Marks & Spencer, Harrods and Co-op.`\
 https://nytimes.com/2025/07/10/business/cyber-attack-arrests-marks-spencers-harrods-coop.html

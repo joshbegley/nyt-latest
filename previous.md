@@ -1,3 +1,11 @@
+**Trump Seeks to Cut Basic Scientific Research by Roughly One-Third, Report Shows**\
+`An analysis by the American Association for the Advancement of Science shows the impact of the administration’s budget plan on the kind of studies that produce the most breakthroughs.`\
+https://nytimes.com/2025/07/10/science/trump-science-budget-cuts.html
+
+**First Wimbledon women's semifinal halted twice due to unwell spectators in stands**\
+`Sabalenka immediately responded by bringing a bottle of water and an ice pack to the section of the crowd in the East Stand.`\
+https://nytimes.com/athletic/6485544/2025/07/10/wimbledon-centre-court-sabalenka-anisimova/
+
 **3 Teenagers Arrested Over Cyberattacks That Cost U.K. Retailers Millions**\
 `Four people total were arrested in connection with an April cyberattack that disrupted operations at Marks & Spencer, Harrods and Co-op.`\
 https://nytimes.com/2025/07/10/business/cyber-attack-arrests-marks-spencers-harrods-coop.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6483750/2025/07/10/kevin-harlan-amazon-nba/
 **gws-tom-hiddleston-dance-life-of-chuc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/tom-hiddleston-dance-life-of-chuc
-
-**From Girl Boss to No Boss**\
-`They reached the heights of corporate success. Now some women are trying to redefine what ambition looks like.`\
-https://nytimes.com/2025/07/10/style/from-girl-boss-to-no-boss.html
-
-**New York Cosmos revived as USL expansion club in New Jersey**\
-`The Cosmos brand is being brought back to life in conjunction with a new USL League One club.`\
-https://nytimes.com/athletic/6480713/2025/07/10/new-york-cosmos-usl-new-jersey-expansion-giuseppe-rossi/
 
