@@ -1,5 +1,9 @@
 **Israel Will Allow More Aid Into Gaza, Officials Say**\
 `The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
+https://nytimes.com/2025/07/10/world/middleeast/israel-gaza-aid.html
+
+**Israel Will Allow More Aid Into Gaza, Officials Say**\
+`The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
 https://nytimes.com/2025/07/10/world/middleeast/israel-will-allow-more-aid-into-gaza-officials-say.html
 
 **A Beloved Bloodhound, a Fatal Treat: A Gruesome Murder Mystery in Italy**\

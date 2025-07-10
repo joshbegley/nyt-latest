@@ -1,6 +1,6 @@
 **Israel Will Allow More Aid Into Gaza, Officials Say**\
 `The decision followed discussions with the European Union, which has pressed Israel to ease the dire humanitarian conditions for Palestinians in the territory.`\
-https://nytimes.com/2025/07/10/world/middleeast/israel-will-allow-more-aid-into-gaza-officials-say.html
+https://nytimes.com/2025/07/10/world/middleeast/israel-gaza-aid.html
 
 **A Beloved Bloodhound, a Fatal Treat: A Gruesome Murder Mystery in Italy**\
 `The killing of Bruno, a decorated sniffer dog who ingested sausages stuffed with nails, has set off an outpouring of grief in Italy.`\
