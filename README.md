@@ -1,3 +1,7 @@
+**LSU beats out Texas A&M, Texas, Miami for local 5-star D-lineman Lamar Brown**\
+`With Brown in the fold, LSU now has six of the top seven in-state prospects committed in the 2026 class. `\
+https://nytimes.com/athletic/6485843/2025/07/10/lsu-football-recruiting-lamar-brown/
+
 **Sarah Fillier signs 2-year contract with New York Sirens, becoming PWHL's highest-paid player**\
 `Fillier's decision to sign a one-year deal after being selected No. 1 at the PWHL draft last year now looks like a savvy bet.`\
 https://nytimes.com/athletic/6486245/2025/07/10/sarah-fillier-pwhl-new-york-sirens-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/arts/design/bronx-museum-of-the-arts-momin.html
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/07/10/books/review/new-book-recommendations.html
-
-**Forest have fresh offer for Wissa rejected by Brentford**\
-`Brentford value Wissa, who scored 19 goals in 35 Premier League appearances last season, at more than £50m.`\
-https://nytimes.com/athletic/6423688/2025/07/10/yoane-wissa-nottingham-forest-transfer/
 
