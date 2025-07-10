@@ -1,9 +1,13 @@
+**Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
+`The North Carolina senator, who recently said he did not plan to run for re-election, said the defense secretary’s decisions have been amateurish and show he is unfit to lead a large organization.`\
+https://nytimes.com/2025/07/09/us/politics/tillis-suggests-he-regrets-vote-to-confirm-hegseth-calling-him-out-of-his-depth.html
+
 **Twins' Joe Ryan to replace Hunter Brown on AL All-Star Game roster**\
 `While multiple position players have been named replacements this week, Ryan was the first AL pitcher to be added.`\
 https://nytimes.com/athletic/6484436/2025/07/09/minnesota-twins-al-all-star-roster-joe-ryan/
 
-**Caitlin Clark rookie card likely to break all-time sales record heads to auction**\
-`The prized rookie card came from a box containing just two cards that cost thousands`\
+**Caitlin Clark rookie cards likely to break all-time sales record head to auction**\
+`The prized rookie cards came from boxes containing just two cards that cost thousands`\
 https://nytimes.com/athletic/6484508/2025/07/09/caitlin-clark-flawless-rookie-card-auction/
 
 **Abbott Asks Lawmakers to Redraw Texas’ Congressional Maps in Special Session**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6484397/2025/07/09/buster-posey-giants-trade-deadli
 **Trump Compliments Liberian President for ‘Beautiful English’**\
 `English is the official language of the West African country, which was founded in part by freed American slaves.`\
 https://nytimes.com/2025/07/09/us/politics/trump-liberia-president-english.html
-
-**8 Million Federal Student Loan Borrowers Will Soon See Interest Restart**\
-`It will kick back in on Aug. 1 for people in the SAVE repayment program, whose payments have been on hold since last summer.`\
-https://nytimes.com/2025/07/09/your-money/student-loans-save-plan-interest.html
 

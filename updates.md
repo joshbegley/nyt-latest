@@ -1,3 +1,11 @@
+**Tillis Suggests He Regrets Vote to Confirm Hegseth, Calling Him ‘Out of His Depth’**\
+`The North Carolina senator, who recently said he did not plan to run for re-election, said the defense secretary’s decisions have been amateurish and show he is unfit to lead a large organization.`\
+https://nytimes.com/2025/07/09/us/politics/tillis-suggests-he-regrets-vote-to-confirm-hegseth-calling-him-out-of-his-depth.html
+
+**Caitlin Clark rookie cards likely to break all-time sales record head to auction**\
+`The prized rookie cards came from boxes containing just two cards that cost thousands`\
+https://nytimes.com/athletic/6484508/2025/07/09/caitlin-clark-flawless-rookie-card-auction/
+
 **Twins' Joe Ryan to replace Hunter Brown on AL All-Star Game roster**\
 `While multiple position players have been named replacements this week, Ryan was the first AL pitcher to be added.`\
 https://nytimes.com/athletic/6484436/2025/07/09/minnesota-twins-al-all-star-roster-joe-ryan/
