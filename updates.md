@@ -1,3 +1,7 @@
+**Trump Seems to Be Warming to What Europe Wants for Ukraine: New Russia Sanctions**\
+`Flattery and pressure — coupled with President Trump’s growing dissatisfaction with President Vladimir V. Putin — have helped build momentum for new economic punishments.`\
+https://nytimes.com/2025/07/10/world/europe/trump-ukraine-russia-europe.html
+
 **Q&A: There are millions of ways to make a lineup. How does Carlos Mendoza choose?**\
 `Mendoza explained what factors go into the batting order, and lefty/righty matchups are merely a part of a wide-ranging equation. `\
 https://nytimes.com/athletic/6484558/2025/07/10/mets-carlos-mendoza-lineups-decisions/
