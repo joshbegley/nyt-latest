@@ -1,3 +1,7 @@
+**Immigration Officials Used Shadowy Pro-Israel Group to Target Student Activists**\
+`A senior Homeland Security official testified in court on Wednesday that his department had relied in part on an anonymously compiled list to identify foreign academics for investigation.`\
+https://nytimes.com/2025/07/09/us/politics/ice-canary-mission-student-deportations.html
+
 **Rubio Visits Asia as Trump Raises Trade-War Tensions**\
 `Secretary of State Marco Rubio talks about countering China as it expands its global influence. But President Trump’s tariff threats have created tension with U.S. partners.`\
 https://nytimes.com/2025/07/09/world/asia/rubio-asia-diplomacy-tariffs.html
