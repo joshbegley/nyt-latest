@@ -1,3 +1,23 @@
+**U.S. Imposes Sanctions on U.N. Expert Who Has Criticized Israelâs Gaza War**\
+`Secretary of State Marco Rubio denounced Francesca Albanese, a special rapporteur, for investigating Americans and Israelis over the war in the enclave.`\
+https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.html
+
+**FEMA Is Holding Up $2.4 Billion in Grants to Fight Terrorism, States Say**\
+`FEMA officials are two months behind in posting grant application guidelines, which are expected to reflect President Trumpâs demand for cooperation on his priorities.`\
+https://nytimes.com/2025/07/10/nyregion/fema-funds-trump-noem.html
+
+**As MetroCard Phases Out, Riders Gripe About Its Replacement**\
+`A survey of transit riders found that a majority have had issues with New Yorkâs new tap-and-go system, months before its predecessor is expected to be retired.`\
+https://nytimes.com/2025/07/10/nyregion/metrocard-omni-nyc-rider-issues.html
+
+**A Reporterâs Trail From a Bush-Era Cyberattack to Trumpâs Strike on Iran**\
+`During the Obama administration, a Times reporter revealed details of a cyberattack on a nuclear enrichment center in Iran. He followed the story to the White House, and learned lessons critical to covering the recent bombing of Fordo and Natanz.`\
+https://nytimes.com/2025/07/10/insider/cyberattack-iran.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on todayâs puzzle? We can help.`\
+https://nytimes.com/2025/07/10/crosswords/spelling-bee-forum.html
+
 **U.S. Imposes Sanctions on U.N. Expert Who Has Criticized Israel’s Gaza War**\
 `Secretary of State Marco Rubio denounced Francesca Albanese, a special rapporteur, for investigating Americans and Israelis over the war in the enclave.`\
 https://nytimes.com/2025/07/10/us/politics/gaza-francesca-albanese-sanctions.html
