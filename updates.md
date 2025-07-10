@@ -1,3 +1,7 @@
+**Bryce Harper is having fun again. 4-extra-base-hit day shows Phillies star feels just fine**\
+`There is a certain energy when Harper is right — truly right — and the Phillies have not felt it all season. This felt different.`\
+https://nytimes.com/athletic/6484604/2025/07/09/phillies-bryce-harper-four-extra-base-hits/
+
 **Astros' Jake Meyers exits game with apparent injury before first pitch**\
 `Meyers had dealt with a a right calf issue for the past two days. `\
 https://nytimes.com/athletic/6484608/2025/07/09/houston-astros-jake-meyers-injury/
