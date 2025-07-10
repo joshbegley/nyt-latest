@@ -1,3 +1,7 @@
+**A Lethal Israeli Airstrike Hits Near a Gaza Aid Clinic**\
+`The attack struck near a facility run by an American aid organization as negotiators from Hamas and Israel wrangle over a potential new cease-fire agreement.`\
+https://nytimes.com/2025/07/10/world/middleeast/israel-strike-gaza-clinic.html
+
 **gws-does-ketchup-need-to-be-refrigerated**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/gws-does-ketchup-need-to-be-refrigerated
@@ -29,8 +33,4 @@ https://nytimes.com/newsgraphics/card-story/hmong-minnesota-food
 **Devin Booker, with a two-year max extension, faces his biggest challenge with the Suns**\
 `Booker likes the idea of finishing his career in one place. However, the relationship has to stretch beyond money and comfort.`\
 https://nytimes.com/athletic/6484808/2025/07/10/devin-booker-phoenix-suns-contract-extension-challenge/
-
-**What are the Euro 2025 yellow card suspension rules? Which players are at risk?**\
-`A selection of players are on the cusp of being suspended for the quarter-finals if they're booked in their last match of the group stages.`\
-https://nytimes.com/athletic/6485227/2025/07/10/euro-2025-yellow-card-suspensions-bans/
 

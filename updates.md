@@ -1,3 +1,7 @@
+**A Lethal Israeli Airstrike Hits Near a Gaza Aid Clinic**\
+`The attack struck near a facility run by an American aid organization as negotiators from Hamas and Israel wrangle over a potential new cease-fire agreement.`\
+https://nytimes.com/2025/07/10/world/middleeast/israel-strike-gaza-clinic.html
+
 **gws-does-ketchup-need-to-be-refrigerated**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/gws-does-ketchup-need-to-be-refrigerated
