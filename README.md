@@ -1,36 +1,37 @@
-**K-Pop Singer Sentenced to 3½-Years in Rape of Chinese Tourist**\
-`Taeil, a former member of the popular boy band NCT, and two acquaintances were jailed in a case that has provoked anger in South Korea.`\
-https://nytimes.com/2025/07/10/world/asia/kpop-taeil-sentenced-sex-crime.html
+**College Football 26 review: Do new features make it worth upgrading from CFB25?**\
+`The new game is loaded across the board with minor upgrades that add up to a lot, along with a few actual big changes.`\
+https://nytimes.com/athletic/6485281/2025/07/10/college-football-26-video-game-review-ea/
 
-**Trump Compliments President of Liberia on His ‘Beautiful English’**\
-`During a lunch at the State Dining Room with five leaders of African nations, President Trump complimented the president of Liberia, where English is the official language, for his command of the language.`\
-https://nytimes.com/video/us/100000010277391/trump-liberia-president-english.html
+**What does the Sabres' signing of Alex Lyon mean for Devon Levi?**\
+`The Sabres' goaltending needs to be better if they have any hope of competing in 2025-26.`\
+https://nytimes.com/athletic/6484573/2025/07/10/buffalo-sabres-alex-lyon-devon-levi/
 
-**Blue Jays trade scenarios: Jim Bowden assesses 4 proposals to fill Toronto's deadline needs**\
-`With three weeks to go until the deadline, the former GM weighs in on four hypothetical trades to fill the Blue Jays' key needs. `\
-https://nytimes.com/athletic/6485183/2025/07/10/blue-jays-trade-scenarios-needs/
+**Ronald Acuña Jr. homers twice in return to lineup, confirms he's participating in HR Derby**\
+`Acuña helped lead the Braves to a 9-2 win over the A's and end their 0-for California skid.`\
+https://nytimes.com/athletic/6484930/2025/07/10/braves-ronald-acuna-jr-home-runs/
 
-**Denmark Aims to Use Copyright Law to Protect People From Deepfakes**\
-`A pioneering bill would give citizens the right to demand that social media platforms remove digital forgeries of themselves.`\
-https://nytimes.com/2025/07/10/world/europe/denmark-deepfake-copyright-ai-law.html
+**Will internal growth be enough to push Red Wings into the playoffs?**\
+`After a quiet offseason, the Red Wings may be banking largely on internal improvement to make the playoffs. What could that look like?`\
+https://nytimes.com/athletic/6483799/2025/07/10/red-wings-nhl-playoffs-prospects-kasper-edvinsson/
 
-**Christian Norgaard to Arsenal: Transfers TLDR**\
-`Arsenal have brought in experienced midfielder Christian Norgaard from Brentford – here's a breakdown of the move`\
-https://nytimes.com/athletic/6460562/2025/07/10/christian-norgaard-arsenal-transfer-tldr/
+**Mirtle: What should the Leafs do with all their remaining salary-cap space?**\
+`Toronto's roughly $6 million in cap space gives the team flexibility and opportunity, which could be fascinating for next season.
+`\
+https://nytimes.com/athletic/6483731/2025/07/10/maple-leafs-salary-cap-space-nhl-offseason/
 
-**Vladimir Putin Messed Up**\
-`We explain President Trump and Putin’s changing relationship.`\
-https://nytimes.com/2025/07/10/briefing/vladimir-putin-messed-up.html
+**Inter Miami in talks to sign De Paul from Atletico**\
+`De Paul's potential arrival would raise questions over Sergio Busquets' long-term future.`\
+https://nytimes.com/athletic/6477886/2025/07/10/inter-miami-rodrigo-de-paul-transfer/
 
-**European Union Unveils Rules for Powerful A.I. Systems**\
-`Makers of the most advanced artificial intelligence systems will face new obligations for transparency, copyright protection and public safety. The rules are voluntary to start.`\
-https://nytimes.com/2025/07/10/business/ai-rules-europe.html
+**Trade deadline Q&A with Cubs president Jed Hoyer: Where things stand and lessons from the past**\
+`In a few months, Kyle Tucker will become a free agent. The Cubs don’t want to waste their limited time with the All-Star.`\
+https://nytimes.com/athletic/6484793/2025/07/10/cubs-jed-hoyer-trade-deadline-qa/
 
-**Yankees' Brian Cashman vouches for Anthony Volpe. But a closer look shows reason for concern**\
-`What is Volpe in Year 3 with the Yankees? A complicated player to evaluate whose value is likely overstated internally.`\
-https://nytimes.com/athletic/6484737/2025/07/10/anthony-volpe-yankees-year-3-brian-cashman/
+**Why did Wild trade Declan Chisholm? Acquire Vladimir Tarasenko? Ask Russo and Smith, part 2**\
+`Plus, can Nico Sturm fill Freddy Gaudreau's shoes? And who will be the team's next captain after Jared Spurgeon?`\
+https://nytimes.com/athletic/6478881/2025/07/10/wild-trade-declan-chisholm-vladimir-tarasenko/
 
-**Tigers' Zach McKinstry is an unlikely, but also well-deserved, All-Star**\
-`Tigers utilityman McKinstry was named as a replacement on the American League All-Star team Wednesday. `\
-https://nytimes.com/athletic/6484663/2025/07/10/tigers-zach-mckinstry-unlikely-all-star/
+**If Twins sell at deadline, getting value for impending free agents is key**\
+`Willi Castro, Harrison Bader, Chris Paddack and others could leave for nothing this offseason, so why not cash them in for future value?`\
+https://nytimes.com/athletic/6471130/2025/07/10/twins-trade-deadline-impending-free-agents-willi-castro/
 
