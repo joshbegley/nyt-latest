@@ -1,3 +1,7 @@
+**Missouri Governor Signs Bill Rolling Back Voter-Approved Minimum Wage and Sick Leave**\
+`The reversal reflected a growing struggle over the use of ballot measures to answer policy questions in Republican-led states.`\
+https://nytimes.com/2025/07/10/us/missouri-minimum-wage-leave.html
+
 **The Serial Newsletter**\
 ``\
 https://nytimes.com/column/serial-newsletter
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/briefing/iran-nuclear-program-ukraine-intelligenc
 **Stars trade Matt Dumba, draft pick to Penguins for Vladislav Kolyachonok**\
 `Dumba recorded one goal and nine assists in 63 regular-season games last year, but did not play in the playoffs.`\
 https://nytimes.com/athletic/6486762/2025/07/10/penguins-matt-dumba-trade-stars-vladislav-kolyachonok/
-
-**Secret Service Suspends Six Agents Over Trump Assassination Attempt**\
-`The announcement comes near the anniversary of the shooting at Donald J. Trump’s campaign rally in Butler, Pa.`\
-https://nytimes.com/2025/07/10/us/politics/trump-secret-service.html
 

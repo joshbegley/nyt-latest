@@ -1,3 +1,11 @@
+**The Serial Newsletter**\
+``\
+https://nytimes.com/column/serial-newsletter
+
+**NCAA basketball leaders leave summer meetings without tournament expansion decision**\
+`With the 2026 tournaments a little more than eight months out, the chance anything changes next year seems small.`\
+https://nytimes.com/athletic/6485469/2025/07/10/ncaa-basketball-tournament-expansion-march-madness-teams/
+
 **Justice Dept. Demands Patient Details From Trans Medicine Providers**\
 `Doctors and hospitals were subpoenaed for private information on gender-related care for minors, the latest move by the Trump administration to stop the treatments.`\
 https://nytimes.com/2025/07/10/health/transgender-medicine-minors-trump-subpoena.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6486762/2025/07/10/penguins-matt-dumba-trade-stars-
 **Secret Service Suspends Six Agents Over Trump Assassination Attempt**\
 `The announcement comes near the anniversary of the shooting at Donald J. Trump’s campaign rally in Butler, Pa.`\
 https://nytimes.com/2025/07/10/us/politics/trump-secret-service.html
-
-**PSG's Marco Asensio progressing in talks over Fenerbahce move**\
-`The Spanish midfielder, 29, wants to play for his country in next summer's World Cup.`\
-https://nytimes.com/athletic/6301539/2025/07/10/marco-asensio-psg-fenerbahce-transfer-spain-world-cup/
-
-**Tottenham complete signing of Kudus from West Ham**\
-`The Athletic reported on Wednesday that a deal worth around £55million ($74.7m) had been agreed between the two clubs.`\
-https://nytimes.com/athletic/6483767/2025/07/10/mohammed-kudus-tottenham-west-ham-transfer/
 

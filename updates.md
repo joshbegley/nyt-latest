@@ -1,3 +1,11 @@
+**The Serial Newsletter**\
+``\
+https://nytimes.com/column/serial-newsletter
+
+**NCAA basketball leaders leave summer meetings without tournament expansion decision**\
+`With the 2026 tournaments a little more than eight months out, the chance anything changes next year seems small.`\
+https://nytimes.com/athletic/6485469/2025/07/10/ncaa-basketball-tournament-expansion-march-madness-teams/
+
 **Justice Dept. Demands Patient Details From Trans Medicine Providers**\
 `Doctors and hospitals were subpoenaed for private information on gender-related care for minors, the latest move by the Trump administration to stop the treatments.`\
 https://nytimes.com/2025/07/10/health/transgender-medicine-minors-trump-subpoena.html
