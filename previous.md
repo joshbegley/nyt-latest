@@ -1,3 +1,7 @@
+**3 Teenagers Arrested Over Cyberattacks That Cost U.K. Retailers Millions**\
+`Four people total were arrested in connection with an April cyberattack that disrupted operations at Marks & Spencer, Harrods and Co-op.`\
+https://nytimes.com/2025/07/10/business/cyber-attack-arrests-marks-spencers-harrods-coop.html
+
 **Frank Layden, beloved Jazz coach and franchise-changing architect, dies at 93**\
 `As coach and general manager, Layden laid the seeds for the Jazz's greatest stretch in franchise history.`\
 https://nytimes.com/athletic/6485343/2025/07/10/frank-layden-jazz-coach-gm-obituary/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/style/from-girl-boss-to-no-boss.html
 **New York Cosmos revived as USL expansion club in New Jersey**\
 `The Cosmos brand is being brought back to life in conjunction with a new USL League One club.`\
 https://nytimes.com/athletic/6480713/2025/07/10/new-york-cosmos-usl-new-jersey-expansion-giuseppe-rossi/
-
-**gws-hmong-minnesota-food**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/hmong-minnesota-food
 
