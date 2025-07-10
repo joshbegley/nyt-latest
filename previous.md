@@ -1,3 +1,7 @@
+**L.A. Area Bishop Excuses Faithful From Mass Over Fear of Immigration Raids**\
+`San Bernardino Bishop Alberto Rojas lifted the obligation for members of the diocese to celebrate Mass if they had a “genuine fear of immigration enforcement actions.”`\
+https://nytimes.com/2025/07/10/us/california-san-bernardino-bishop-mass-church-ice-raids.html
+
 **Can a ‘Cortisol Cocktail’ Help Relieve Stress?**\
 `Influencers say that the concoction can boost energy and help you relax. We asked experts whether that’s true.`\
 https://nytimes.com/2025/07/10/well/eat/health-benefits-cortisol-cocktails.html
@@ -21,10 +25,6 @@ https://nytimes.com/athletic/6485577/2025/07/10/morgan-gibbs-white-tottenham-tra
 **Ferrero to Buy WK Kellogg in Candy-Meets-Cereal Deal**\
 `The $3.1 billion acquisition would combine Ferrero, which makes Tic Tacs and Nutella, with the producer of Frosted Flakes and Froot Loops.`\
 https://nytimes.com/2025/07/10/business/kellogg-ferrero-takeover.html
-
-**L.A. Area Bishop Excuses Faithful From Mass Over Fear of Immigration Raids**\
-`San Bernardino Bishop Alberto Rojas lifted the obligation for members of the diocese to celebrate Mass if they had a “genuine fear of immigration enforcement actions.”`\
-https://nytimes.com/2025/07/10/us/california-san-bernardino-bishop-mass-church-ice-raids.html
 
 **Trump Seeks to Cut Basic Scientific Research by Roughly One-Third, Report Shows**\
 `An analysis by the American Association for the Advancement of Science shows the impact of the administration’s budget plan on the kind of studies that produce the most breakthroughs.`\
