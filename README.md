@@ -1,3 +1,7 @@
+**Jannik Sinner sets up Wimbledon final against Carlos Alcaraz by dispatching Novak Djokovic**\
+`The world No. 1 rolled past a compromised version of the seven-time champion as the shadows fell over Centre Court`\
+https://nytimes.com/athletic/6488586/2025/07/11/tennis-wimbledon-alcaraz-sinner-final-djokovic/
+
 **Judge Signals She Will Protect Abrego Garcia From Hasty Second Deportation**\
 `The judge, Paula Xinis, said some legal safeguard was needed because the Trump administration had already shown in this and other deportation cases that it could not be trusted.`\
 https://nytimes.com/2025/07/11/us/politics/abrego-garcia-deportation-judge-protection-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488637/2025/07/11/college-football-independents-pa
 **N.Y. County Settles With Woman Who Says the Police Removed Her Hijab**\
 `Suffolk County’s $225,000 settlement provides a striking counterpoint to the anti-sanctuary policies that have recently taken shape across Long Island.`\
 https://nytimes.com/2025/07/11/nyregion/suffolk-county-head-scarf-settlement.html
-
-**Tour de France stage seven: Routine brilliance from Tadej Pogacar, several riders crash in finale, Costiou’s big day**\
-`Analysis of the seventh stage of the 2025 Tour de France, which took the peloton through Brittany from Saint-Malo to Mur-de-Bretagne`\
-https://nytimes.com/athletic/6487866/2025/07/11/tour-de-france-stage-seven-analysis/
 
