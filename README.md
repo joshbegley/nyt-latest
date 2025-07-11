@@ -1,3 +1,7 @@
+**Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
+`A minute’s silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
+https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
+
 **Palace sign Sosa from Ajax**\
 `The 27-year-old left-back has joined Palace in a £2million move after undergoing his medical on Monday.`\
 https://nytimes.com/athletic/6477572/2025/07/11/crystal-palace-sign-left-back-borna-sosa-from-ajax/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487362/2025/07/11/zambian-nwsl-racheal-kundananji-
 **How Will Vest went from Rule 5 castoff to lifeblood of the Tigers' bullpen**\
 `Once a college shortstop, Will Vest was demoted at some point in each of his pro seasons until last year. `\
 https://nytimes.com/athletic/6486008/2025/07/11/tigers-will-vest-bullpen/
-
-**College football's top 10 rivalries and favorite moments, chosen by our readers**\
-`We asked. You answered. Here are readers' picks for the best college football rivalries — and their favorite moments of rivalry drama.`\
-https://nytimes.com/athletic/6486724/2025/07/11/college-football-best-rivalries-fan-vote/
 
