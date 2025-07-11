@@ -1,3 +1,7 @@
+**Good Vibes in Trump Trade Talks Haven’t Shielded Canada From Chaos**\
+`The country’s new prime minister, Mark Carney, has been called the “Trump whisperer,” and negotiations have been cordial and professional. But it’s been a wild ride.`\
+https://nytimes.com/2025/07/11/world/canada/canada-trump-tariffs-trade-talks.html
+
 **Gyokeres not intending to report for Sporting training, pursuing Arsenal transfer**\
 `Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching a compromise.`\
 https://nytimes.com/athletic/6487877/2025/07/11/arsenal-gyokeres-transfer-sporting-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/world/middleeast/egypt-fire-cairo-telecom.html
 **Yankees turned this catcher into a pitcher last month. He's already touched 100 mph**\
 `In his fourth bullpen session, Gomez asked his coaches if, one time, he could just let it rip. The radar gun stunned everyone.`\
 https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-prospect-pitcher/
-
-**High-upside high schoolers: Why the Phillies lean into drafting, developing prep prospects**\
-`The Phillies have selected high schoolers in the first round 12 times since 2010, including the past five drafts. What drives their process?`\
-https://nytimes.com/athletic/6486742/2025/07/11/phillies-mlb-draft-develop-high-school-prospects/
 

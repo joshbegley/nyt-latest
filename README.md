@@ -1,3 +1,7 @@
+**The Pulse: Some hot July takes about the NFL season**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6485700/2025/07/11/nfl-summer-hot-takes-the-pulse/
+
 **Good Vibes in Trump Trade Talks Haven’t Shielded Canada From Chaos**\
 `The country’s new prime minister, Mark Carney, has been called the “Trump whisperer,” and negotiations have been cordial and professional. But it’s been a wild ride.`\
 https://nytimes.com/2025/07/11/world/canada/canada-trump-tariffs-trade-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/briefing/benjamin-netanyahu-israel.html
 **Cairo Telecommunications Building Hit With 2nd Fire in a Week**\
 `A blaze on Thursday at one of Egypt’s main telecommunications hubs was extinguished, days after a larger fire there killed four people and disrupted internet, transport and banking services.`\
 https://nytimes.com/2025/07/11/world/middleeast/egypt-fire-cairo-telecom.html
-
-**Yankees turned this catcher into a pitcher last month. He's already touched 100 mph**\
-`In his fourth bullpen session, Gomez asked his coaches if, one time, he could just let it rip. The radar gun stunned everyone.`\
-https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-prospect-pitcher/
 

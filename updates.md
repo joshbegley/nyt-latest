@@ -1,3 +1,7 @@
+**Good Vibes in Trump Trade Talks Haven’t Shielded Canada From Chaos**\
+`The country’s new prime minister, Mark Carney, has been called the “Trump whisperer,” and negotiations have been cordial and professional. But it’s been a wild ride.`\
+https://nytimes.com/2025/07/11/world/canada/canada-trump-tariffs-trade-talks.html
+
 **Gyokeres not intending to report for Sporting training, pursuing Arsenal transfer**\
 `Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching a compromise.`\
 https://nytimes.com/athletic/6487877/2025/07/11/arsenal-gyokeres-transfer-sporting-training/
