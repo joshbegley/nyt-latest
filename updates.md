@@ -1,3 +1,7 @@
+**Clashes After Immigration Raid at California Cannabis Farm**\
+`Federal agents fired crowd control munitions at protesters who blocked a road outside of the farm. Some demonstrators threw objects at the agents’ vehicles.`\
+https://nytimes.com/video/us/100000010279458/ice-raid-california-cannabis-farm.html
+
 **Ronny Chieng Ponders Iran’s Threat to Kill a Sunbathing Trump**\
 `“The Daily Show” host called the threat from an Iranian official “an attack on all of America, because now we all have to picture him with his bare belly glistening in the sun.”`\
 https://nytimes.com/2025/07/11/arts/television/ronny-chieng-iran-trump-threat.html
