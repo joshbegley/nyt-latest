@@ -1,3 +1,7 @@
+**Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
+`The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
+https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/
+
 **Can ‘Superman’ Fly Above Today’s Polarized Politics?**\
 `The director of the reboot, James Gunn, called the superhero from the planet Krypton “an immigrant,” thrusting the summer popcorn movie into an Earthbound culture war.`\
 https://nytimes.com/2025/07/11/movies/superman-politics-backlash.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/11/us/politics/trump-administration-mult
 **Burnley close to permanent signing of Stuttgart's Larsen**\
 `The 26-year-old will be returning to Turf Moor after spending the 2023-24 season on loan at Burnley, where he made 32 Premier League outings`\
 https://nytimes.com/athletic/6488785/2025/07/11/burnley-transfers-larsen-stuttgart/
-
-**Amanda Anisimova Tried a Normal Life. Now She’s in the Wimbledon Final.**\
-`The 23-year-old star could be the first American woman to win the Grand Slam since 2016. A self-imposed sabbatical may have helped her get there.`\
-https://nytimes.com/2025/07/11/style/amanda-anisimova-wimbledon.html
 

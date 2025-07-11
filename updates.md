@@ -1,3 +1,7 @@
+**Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
+`The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
+https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/
+
 **Can ‘Superman’ Fly Above Today’s Polarized Politics?**\
 `The director of the reboot, James Gunn, called the superhero from the planet Krypton “an immigrant,” thrusting the summer popcorn movie into an Earthbound culture war.`\
 https://nytimes.com/2025/07/11/movies/superman-politics-backlash.html

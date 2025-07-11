@@ -1,3 +1,7 @@
+**2 Arkansas Prison Workers Are Fired in Wake of Convicted Murderer’s Escape**\
+`The employees unwittingly helped Grant Hardin, a former police chief, walk out of a prison in May, dressed in a fake law enforcement uniform, officials said.`\
+https://nytimes.com/2025/07/11/us/arkansas-prison-escape-grant-hardin.html
+
 **Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
 `The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
 https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/arts/music/rebekah-del-rio-dead.html
 **A Half Dozen Trump Officials Hold More Than One Big Job**\
 `President Trump has put top administration officials in charge of multiple federal agencies and offices — an approach that has little precedent.`\
 https://nytimes.com/interactive/2025/07/11/us/politics/trump-administration-multiple-jobs.html
-
-**Burnley close to permanent signing of Stuttgart's Larsen**\
-`The 26-year-old will be returning to Turf Moor after spending the 2023-24 season on loan at Burnley, where he made 32 Premier League outings`\
-https://nytimes.com/athletic/6488785/2025/07/11/burnley-transfers-larsen-stuttgart/
 
