@@ -1,3 +1,7 @@
+**Chargers RB Najee Harris suffers eye injury in fireworks accident**\
+`Harris' agent said the 2021 first-round pick "is fully expected to be ready for the upcoming NFL season."`\
+https://nytimes.com/athletic/6487158/2025/07/10/najee-harris-accident-injury-fireworks-chargers/
+
 **Texas County Flagged Need for Flood Alarm Months Before Tragedy**\
 `Kerr County repeatedly failed to secure a warning system, even as local officials remained aware of the risks and as billions of dollars were available for similar projects.`\
 https://nytimes.com/2025/07/10/us/politics/texas-flood-alarm-system.html
