@@ -1,3 +1,7 @@
+**Read the Air India Crash Report**\
+`A preliminary assessment by the Indian authorities said fuel was cut off to both engines shortly before Air India Flight 171 crashed last month, appearing to rule out mechanical failure or design flaws.`\
+https://nytimes.com/interactive/2025/07/11/us/air-india-crash-report.html
+
 **Brian Clarke, Stained-Glass Innovator, Is Dead at 71**\
 `Believing that the art form had to move from religious to secular settings, he designed installations in airports, corporate buildings, a country club and a marketplace.`\
 https://nytimes.com/2025/07/11/arts/design/brian-clarke-dead.html
