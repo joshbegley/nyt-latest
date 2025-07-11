@@ -1,3 +1,16 @@
+**Wimbledon women's final odds, how to watch: Swiatek favored for her first grass win**\
+`Iga Świątek is the clear favorite to win Wimbledon against American Amanda Anisimova in a meeting of two first-time finalists.`\
+https://nytimes.com/athletic/6486653/2025/07/11/wimbledon-womens-final-anisimova-swiatek-odds-how-to-watch/
+
+**Bournemouth agree Petrovic transfer from Chelsea in £25m deal**\
+`The Serbia international was voted Strasbourg's supporters' player of the season after spending the 2024-25 campaign on loan in France.`\
+https://nytimes.com/athletic/6486339/2025/07/11/djordje-petrovic-transfer-bournemouth-chelsea/
+
+**Forest fans: How do you feel about possible Europa League promotion and a crazy 24 hours?**\
+`Has there ever been a more chaotic 24 hours in the modern history of Nottingham Forest?
+From discovering that Tottenham Hotspur had made a bid for Morgan Gibbs-White on Thursday, utilising a release clause that nobody knew about, within the hour it emerged Forest had revived their interest in Brentford’s Yoane Wissa.`\
+https://nytimes.com/athletic/6488502/2025/07/11/forest-fans-europa-league-promotion-gibbs-white-wissa-elanga/
+
 **Mets prospect Brandon Sproat back on track with 18-inning scoreless streak**\
 `After deciding to throw everything as hard as he could, the Mets' former top-rated prospect put some sizzle back in his performance.`\
 https://nytimes.com/athletic/6488469/2025/07/11/mets-prospect-brandon-sproat-rotation/
@@ -25,16 +38,4 @@ https://nytimes.com/2025/07/11/sports/autoracing/sebastien-buemi-driver.html
 **S.E.C. Accuses Prominent Georgia Republican of Running Ponzi Scheme**\
 `Edwin Brant Frost IV, a well-known Republican, is accused of defrauding 300 investors of $140 million, and using some funds for political donations. He said he took “full responsibility.”`\
 https://nytimes.com/2025/07/11/us/politics/brant-frost-first-liberty-ponzi-scheme.html
-
-**With Better Cars and Drivers, the World Endurance Championship Turns a Corner**\
-`After many manufacturers had bolted from the series, the W.E.C. made changes, and they came pouring back.`\
-https://nytimes.com/2025/07/11/sports/autoracing/world-endurance-championship.html
-
-**Trump’s Purge of Foreign Workers Arrives at Amazon’s Warehouses**\
-`The tech giant has quietly shed warehouse employees whose work authorizations were revoked after the Trump administration ended a Biden-era immigration program.`\
-https://nytimes.com/2025/07/11/technology/trump-immigration-amazon-warehouses.html
-
-**How an old-school workout paved the way for Joan Beringer's arrival in Minnesota**\
-`"It wasn't 16 coaches and four trainers and ball boys and Gatorade bottles," Joe Connelly said. "It was a hot-ass gym."`\
-https://nytimes.com/athletic/6486683/2025/07/11/nba-timberwolves-joan-beringer-summer-league-workout/
 
