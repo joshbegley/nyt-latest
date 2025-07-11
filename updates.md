@@ -1,3 +1,7 @@
+**Madueke given permission by Chelsea to undergo Arsenal medical**\
+`An agreement has been reached on a £52million deal while personal terms were previously agreed on a five-year contract.`\
+https://nytimes.com/athletic/6487723/2025/07/11/arsenal-noni-madueke-transfer-chelsea/
+
 **The art and science of tennis rackets and strings at Wimbledon**\
 `Over 6,000 restrings, tiny variances in string tension and customized logos: How Wimbledon gets its stars' rackets ready for play.`\
 https://nytimes.com/athletic/6485255/2025/07/11/tennis-rackets-pro-set-ups-grand-slams-wimbledon/
