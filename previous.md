@@ -1,3 +1,7 @@
+**Cristian Romero is back at Tottenham... but for how long?**\
+`The defender's future has been cause for concern among Spurs fans, but having returned to training, could he be sticking around after all?`\
+https://nytimes.com/athletic/6482950/2025/07/11/cristian-romero-tottenham-atletico/
+
 **Federal Agents Clash With Protesters During Immigration Raid at California Farm**\
 `Officers appeared to use crowd control munitions and tear gas against protesters. The F.B.I. said it was searching for a person who appeared to fire a pistol at officers.`\
 https://nytimes.com/2025/07/11/us/ice-raid-california-cannabis-farm.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/11/todays-new-york-times
 **The Dollar’s in Trouble, but Not for the Reason You Think**\
 `New payment systems allow users and banks to bypass the U.S. currency and sanctions.`\
 https://nytimes.com/2025/07/11/opinion/dollar-money-currency-payment.html
-
-**The Law Is Not Enough to Stop War Crimes**\
-`Prosecutions for atrocities are not always enough to stop hatred. Societies must also acknowledge what happened.`\
-https://nytimes.com/2025/07/11/opinion/srebrenica-genocide-serbia-bosnia-justice.html
 

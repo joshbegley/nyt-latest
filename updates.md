@@ -1,3 +1,7 @@
+**Cristian Romero is back at Tottenham... but for how long?**\
+`The defender's future has been cause for concern among Spurs fans, but having returned to training, could he be sticking around after all?`\
+https://nytimes.com/athletic/6482950/2025/07/11/cristian-romero-tottenham-atletico/
+
 **Clashes After Immigration Raid at California Cannabis Farm**\
 `Federal agents fired crowd control munitions at protesters who blocked a road outside of the farm. Some demonstrators threw objects at the agents’ vehicles.`\
 https://nytimes.com/video/us/100000010279458/ice-raid-california-cannabis-farm.html
