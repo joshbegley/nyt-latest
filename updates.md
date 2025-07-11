@@ -1,3 +1,27 @@
+**Bears, Ryan Poles agree to contract extension: Source**\
+`Poles, who was hired in 2022, is under contract through 2029, according to ESPN, lining him up with new head coach Ben Johnson.`\
+https://nytimes.com/athletic/6488952/2025/07/11/bears-ryan-poles-contract-extension/
+
+**Son of El Chapo Pleads Guilty to Sweeping Drug Charges**\
+`The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio GuzmÃ¡n LÃ³pezâs father helped found.`\
+https://nytimes.com/2025/07/11/us/politics/el-chapo-son-pleads-guilty.html
+
+**Rubioâs Cuts at State Department Demote Longtime U.S. Values**\
+`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to Americaâs standing and influence could be high.`\
+https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
+
+**Evidence Supports War Crimes Allegations in Darfur, I.C.C. Prosecutor Says**\
+`The International Criminal Court has âreasonable grounds to believeâ war crimes and crimes against humanity were committed, the courtâs deputy prosecutor said.`\
+https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
+
+**Fear, relief and why Howe wanted him â Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
+`What Eddie Howe likes most about Anthony Elanga, how close the deal came to collapsing and what Newcastle and Forest plan to do next`\
+https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-inside-read/
+
+**Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
+`In her new book, âA Marriage at Sea,â the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
+https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
+
 **Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
 `Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
 `\
