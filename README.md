@@ -1,3 +1,11 @@
+**Jannik Sinner, Novak Djokovic and Riccardo Piatti, the coach who knows them both**\
+`Djokovic and Sinner's similarities make their matches especially compelling. For the coach who taught them both, it is no surprise.`\
+https://nytimes.com/athletic/6486451/2025/07/11/novak-djokovic-jannik-sinner-riccardo-piatti-coach-interview/
+
+**Henderson set to join Brentford on free transfer**\
+`The 35-year-old midfielder had interest from across Europe but making a comeback to England was his priority.`\
+https://nytimes.com/athletic/6484959/2025/07/11/jordan-henderson-brentford-transfer/
+
 **Villa finalising agreement to sign goalkeeper Bizot from Brest**\
 `The 34-year-old will join Villa for a low-cost fee and will serve as the club's No. 2 behind Emi Martinez, replacing Robin Olsen.`\
 https://nytimes.com/athletic/6487712/2025/07/11/aston-villa-transfers-marco-bizot-goalkeeper/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6482950/2025/07/11/cristian-romero-tottenham-atleti
 **Federal Agents Clash With Protesters During Immigration Raid at California Farm**\
 `Officers appeared to use crowd control munitions and tear gas against protesters. The F.B.I. said it was searching for a person who appeared to fire a pistol at officers.`\
 https://nytimes.com/2025/07/11/us/ice-raid-california-cannabis-farm.html
-
-**Word of the Day: vexatious**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/11/learning/word-of-the-day-vexatious.html
-
-**Clashes After Immigration Raid at California Cannabis Farm**\
-`Federal agents fired crowd control munitions at protesters who blocked a road outside of the farm. Some demonstrators threw objects at the agents’ vehicles.`\
-https://nytimes.com/video/us/100000010279458/ice-raid-california-cannabis-farm.html
 
