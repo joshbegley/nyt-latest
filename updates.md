@@ -1,3 +1,16 @@
+**Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
+`In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
+https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
+
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
+**2 Arkansas Prison Workers Are Fired in Wake of Convicted Murderer’s Escape**\
+`The employees unwittingly helped Grant Hardin, a former police chief, walk out of a prison in May, dressed in a fake law enforcement uniform, officials said.`\
+https://nytimes.com/2025/07/11/us/arkansas-prison-escape-grant-hardin.html
+
 **Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
 `The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
 https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/

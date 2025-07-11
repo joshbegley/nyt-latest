@@ -1,3 +1,16 @@
+**Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
+`In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
+https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
+
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
+**2 Arkansas Prison Workers Are Fired in Wake of Convicted Murderer’s Escape**\
+`The employees unwittingly helped Grant Hardin, a former police chief, walk out of a prison in May, dressed in a fake law enforcement uniform, officials said.`\
+https://nytimes.com/2025/07/11/us/arkansas-prison-escape-grant-hardin.html
+
 **Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
 `The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
 https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/
@@ -25,16 +38,4 @@ https://nytimes.com/2025/07/11/opinion/djokovic-wimbledon-tennis.html
 **Trump Says NATO Countries Will Buy Weapons to Give to Ukraine**\
 `If the plan is finalized, it would allow critical aid to flow to Ukraine as it endures one of Russia’s heaviest assaults of the war.`\
 https://nytimes.com/2025/07/11/world/europe/trump-nato-weapons-ukraine.html
-
-**Rebekah Del Rio, Mournful Singer of ‘Mulholland Drive’ Fame, Dies at 57**\
-`Her pivotal role performing a Spanish-language cover of Roy Orbison’s “Crying” in the 2001 David Lynch movie raised her profile, but her career was marked by misfortune.`\
-https://nytimes.com/2025/07/11/arts/music/rebekah-del-rio-dead.html
-
-**A Half Dozen Trump Officials Hold More Than One Big Job**\
-`President Trump has put top administration officials in charge of multiple federal agencies and offices — an approach that has little precedent.`\
-https://nytimes.com/interactive/2025/07/11/us/politics/trump-administration-multiple-jobs.html
-
-**Burnley close to permanent signing of Stuttgart's Larsen**\
-`The 26-year-old will be returning to Turf Moor after spending the 2023-24 season on loan at Burnley, where he made 32 Premier League outings`\
-https://nytimes.com/athletic/6488785/2025/07/11/burnley-transfers-larsen-stuttgart/
 
