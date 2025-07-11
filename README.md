@@ -1,3 +1,7 @@
+**Test Your Math Knowledge**\
+`Our series reveals the math hidden in familiar places. How much do you know about taxicab geometry, triangular numbers, the golden ratio and more?`\
+https://nytimes.com/2025/07/11/science/test-your-math-knowledge.html
+
 **Myriad Red Sox, Cameron Schlittler and more top fantasy baseball waiver wire options**\
 `Owen Poindexter runs through the best available options on this week's fantasy baseball waiver wire, including several Red Sox options.`\
 https://nytimes.com/athletic/6486831/2025/07/11/fantasy-baseball-top-waiver-wire-adds-pickups-red-sox/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
 `Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
 https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
 
-**Cooper Flagg's uneven NBA debut brought out stars and fans in Las Vegas**\
+**Uneven performance aside, Cooper Flagg's NBA debut showed he has the 'it' factor**\
 `There hasn't been an American player with so much hype in more than a decade, at least since Flagg's new teammate Anthony Davis.`\
 https://nytimes.com/athletic/6486753/2025/07/11/cooper-flagg-nba-summer-league-debut/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morg
 **As Southern France Swelters, the Avignon Festival Tries to Adapt**\
 `Rising temperatures pose an existential threat to the theater extravaganza, where extreme heat is making it tough for the audience.`\
 https://nytimes.com/2025/07/11/theater/avignon-festival-heat-climate-change.html
-
-**The 7.13.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/07/11/the-7132025-issue
 
