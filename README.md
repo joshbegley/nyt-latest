@@ -1,3 +1,7 @@
+**Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
+`The 25-year-old midfielder has a a £60million release clause in his contract at the City Ground.`\
+https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
+
 **As Southern France Swelters, the Avignon Festival Tries to Adapt**\
 `Rising temperatures pose an existential threat to the theater extravaganza, where extreme heat is making it tough for the audience.`\
 https://nytimes.com/2025/07/11/theater/avignon-festival-heat-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6485255/2025/07/11/tennis-rackets-pro-set-ups-grand
 **Germany Takes an Unassuming Approach to Tax Cuts, in Contrast to Trump**\
 `Chancellor Friedrich Merz will pass an early plank of his domestic agenda into law on Friday, grounded in classical economic arguments.`\
 https://nytimes.com/2025/07/11/world/europe/germany-economy-tax-cuts.html
-
-**Trump Administration Live Updates: President to Visit Flood-Hit Texas**\
-``\
-https://nytimes.com/live/2025/07/11/us/trump-texas-news
 
