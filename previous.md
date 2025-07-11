@@ -1,4 +1,8 @@
-**FEMA Dropped Thousands of Calls From Flood Survivors, Documents Show**\
+**Man Had 14 Toucans Stashed in His Volkswagen Dashboard, U.S. Says**\
+`Carlos Abundez, 35, is facing federal smuggling charges after U.S. Customs and Border Protection officers made the discovery. The birds, a threatened species, were in stable condition.`\
+https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
+
+**FEMA Didn’t Answer Thousands of Calls From Flood Survivors, Documents Show**\
 `Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
 https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/us/immigration-poll-trump.html
 **Read the Air India Crash Report**\
 `A preliminary assessment by the Indian authorities said fuel was cut off to both engines shortly before Air India Flight 171 crashed last month, appearing to rule out mechanical failure or design flaws.`\
 https://nytimes.com/interactive/2025/07/11/us/air-india-crash-report.html
-
-**Brian Clarke, Stained-Glass Innovator, Is Dead at 71**\
-`Believing that the art form had to move from religious to secular settings, he designed installations in airports, corporate buildings, a country club and a marketplace.`\
-https://nytimes.com/2025/07/11/arts/design/brian-clarke-dead.html
 

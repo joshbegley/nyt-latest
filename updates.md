@@ -1,3 +1,11 @@
+**Man Had 14 Toucans Stashed in His Volkswagen Dashboard, U.S. Says**\
+`Carlos Abundez, 35, is facing federal smuggling charges after U.S. Customs and Border Protection officers made the discovery. The birds, a threatened species, were in stable condition.`\
+https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
+
+**FEMA Didn’t Answer Thousands of Calls From Flood Survivors, Documents Show**\
+`Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
+https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
+
 **FEMA Dropped Thousands of Calls From Flood Survivors, Documents Show**\
 `Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
 https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
