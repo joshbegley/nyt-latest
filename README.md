@@ -1,3 +1,19 @@
+**Will Brazil win a ninth Copa América Femenina title in Ecuador?**\
+`Everything you need to know ahead of South America's biggest tournament and what it means for the 2027 Women's World Cup in Brazil`\
+https://nytimes.com/athletic/6487313/2025/07/11/copa-america-femenina-2025-how-to-watch/
+
+**Rosenthal: Why trading Alex Bregman makes no sense for the Red Sox, plus more MLB notes**\
+`Bregman's contract, relationship with his teammates and the Red Sox's current playoff position make it very unlikely he'll be dealt in July.`\
+https://nytimes.com/athletic/6487388/2025/07/11/alex-bregman-red-sox-trade-mlb-notes/
+
+**Netanyahu’s War**\
+`We spoke to the Jerusalem bureau chief about his investigative profile about the Israeli prime minister.`\
+https://nytimes.com/2025/07/11/briefing/benjamin-netanyahu-israel.html
+
+**Cairo Telecommunications Building Hit With 2nd Fire in a Week**\
+`A blaze on Thursday at one of Egypt’s main telecommunications hubs was extinguished, days after a larger fire there killed four people and disrupted internet, transport and banking services.`\
+https://nytimes.com/2025/07/11/world/middleeast/egypt-fire-cairo-telecom.html
+
 **High-upside high schoolers: Why the Phillies lean into drafting, developing prep prospects**\
 `The Phillies have selected high schoolers in the first round 12 times since 2010, including the past five drafts. What drives their process?`\
 https://nytimes.com/athletic/6486742/2025/07/11/phillies-mlb-draft-develop-high-school-prospects/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6481309/2025/07/11/nhl-team-best-lineup-players-off
 **Forward thinking but with defensive bite: What Morgan Gibbs-White would bring to Tottenham**\
 `Moving for Gibbs-White from Forest signals that Thomas Frank is planning to lean into the counter-attacking potential in his new side`\
 https://nytimes.com/athletic/6485742/2025/07/11/morgan-gibbs-white-tottenham-analysis/
-
-**The 10 wildest college football rivalry origin stories**\
-`Rivalries are the lifeblood of college football. But their history is often inextricably intertwined with the history of our nation.`\
-https://nytimes.com/athletic/6487050/2025/07/11/college-football-rivalry-origins-kansas-missouri-ohio-state-michigan/
-
-**Sliders: ‘Once in a generation’ – The All-Star throw that rocketed Dave Parker to Cooperstown**\
-`Plus Mets pitcher David Peterson's tips on throwing a shutout and more timely and timeless elements of baseball.`\
-https://nytimes.com/athletic/6483567/2025/07/11/dave-parker-all-star-game-throw-sliders/
-
-**Twins' all-player broadcast brings clubhouse humor to TV booth**\
-`"Our goal is like the three of us are sitting on a couch in the clubhouse watching the game," Justin Morneau said of the broadcast.`\
-https://nytimes.com/athletic/6487088/2025/07/11/twins-all-player-broadcast/
-
-**From collegiate disappointment to promising NBA player: How Justin Edwards found his niche**\
-`A year ago, Edwards was undrafted and wondering what his pro basketball career might hold. Now, he's filled with promise for the Sixers.`\
-https://nytimes.com/athletic/6486951/2025/07/11/justin-edwards-philadelphia-76ers-niche/
 
