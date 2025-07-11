@@ -1,3 +1,7 @@
+**Madueke given permission by Chelsea to undergo Arsenal medical**\
+`An agreement has been reached on a £52million deal while personal terms were previously agreed on a five-year contract.`\
+https://nytimes.com/athletic/6487723/2025/07/11/arsenal-noni-madueke-transfer-chelsea/
+
 **The art and science of tennis rackets and strings at Wimbledon**\
 `Over 6,000 restrings, tiny variances in string tension and customized logos: How Wimbledon gets its stars' rackets ready for play.`\
 https://nytimes.com/athletic/6485255/2025/07/11/tennis-rackets-pro-set-ups-grand-slams-wimbledon/
@@ -15,7 +19,7 @@ https://nytimes.com/live/2025/07/11/us/trump-texas-news
 https://nytimes.com/athletic/6398142/2025/07/11/buffalo-bills-training-camp-2025-preview-linebackers/
 
 **Padres takeaways: An untenable catching situation, Ethan Salas update, trade factors**\
-`Kyle Higashiokaâs return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
+`Kyle Higashioka’s return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
 https://nytimes.com/athletic/6487542/2025/07/11/padres-takeaways-catchers-ethan-salas-update/
 
 **Canucks offseason moves: Where are they better? Where are they worse?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487874/2025/07/11/yeray-athletic-club-suspension/
 **How to win in College Football 26: Our expert's best strategies, tips and tricks**\
 `An expert's guide to what video game players of all skill levels need to do to win in EA Sports College Football 26.`\
 https://nytimes.com/athletic/6486611/2025/07/11/ea-sports-college-football-26-strategy-tips-tricks/
-
-**A day at Lord's: Cricketing heritage, egg and bacon ties, and salmanazars of Champagne**\
-`What sets Lord's apart is its history, its grandeur and it's beauty â a classic, picturesque cricket venue with a gorgeous old pavilion`\
-https://nytimes.com/athletic/6477693/2025/07/11/lords-mcc-england-india-history/
 
