@@ -1,3 +1,15 @@
+**Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison**\
+`Justin Mohn, 33, of Levittown, Pa., was convicted on murder and terrorism charges in the 2024 killing of his father, Michael.`\
+https://nytimes.com/2025/07/11/us/justin-mohn-pennsylvania-beheading-guilty.html
+
+**‘They Kept Coming’: Hundreds of Packages Pile Up Outside Woman’s Home**\
+`A year ago, misdirected Amazon returns began arriving at Karen Holton’s house in California. Eventually, she said, they were stacked so high that she could not easily use her door.`\
+https://nytimes.com/2025/07/11/us/amazon-packages-returns-california-woman.html
+
+**Energy Department to Gut Funding for Solar and Wind Projects**\
+`Stripping hundreds of millions of dollars from renewable energy and efficiency initiatives is part of a broader move to undo efforts to wean the United States off fossil fuels.`\
+https://nytimes.com/2025/07/11/business/energy-environment/energy-department-renewable-funding-cuts.html
+
 **Schumer Urges Kennedy to Declare Public Health Emergency Over Measles**\
 `Senator Chuck Schumer urged the health secretary to declare an emergency to keep other regions from experiencing the “nightmare” seen in Texas.`\
 https://nytimes.com/2025/07/11/us/politics/measles-public-health-emergency-rfk-jr.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/11/world/asia/air-india-crash-report.html
 **Finding Beauty in My Sun-Baked Car**\
 `The heat is so clean and alive.`\
 https://nytimes.com/interactive/2025/07/10/opinion/car-driving-desert-hot.html
-
-**Russia Sees France as Its Main Enemy in Europe, French General Says**\
-`During a rare news conference on Friday, the head of the French military, Thierry Burkhard, said Russia remains a “lasting, close” threat.`\
-https://nytimes.com/2025/07/11/europe-france-general-russia-enemy.html
-
-**Casey Mize to replace Garrett Crochet in the All-Star Game as Tigers' contingent grows**\
-`Mize is the sixth Tigers player to be named to the All-Star Game, giving Detroit the most players of any MLB team in the Midsummer Classic.`\
-https://nytimes.com/athletic/6489136/2025/07/11/casey-mize-all-star-detroit-tigers/
-
-**Walmart Recalls Water Bottles After Lids ‘Forcefully Ejected’ and Impaired Vision**\
-`The lids on the 64-ounce stainless steel bottles can eject and strike consumers, two of whom reported permanent vision loss as a result, safety regulators said.`\
-https://nytimes.com/2025/07/11/us/walmart-water-bottles-recall-vision-loss.html
 

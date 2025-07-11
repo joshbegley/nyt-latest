@@ -1,3 +1,15 @@
+**Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison**\
+`Justin Mohn, 33, of Levittown, Pa., was convicted on murder and terrorism charges in the 2024 killing of his father, Michael.`\
+https://nytimes.com/2025/07/11/us/justin-mohn-pennsylvania-beheading-guilty.html
+
+**‘They Kept Coming’: Hundreds of Packages Pile Up Outside Woman’s Home**\
+`A year ago, misdirected Amazon returns began arriving at Karen Holton’s house in California. Eventually, she said, they were stacked so high that she could not easily use her door.`\
+https://nytimes.com/2025/07/11/us/amazon-packages-returns-california-woman.html
+
+**Energy Department to Gut Funding for Solar and Wind Projects**\
+`Stripping hundreds of millions of dollars from renewable energy and efficiency initiatives is part of a broader move to undo efforts to wean the United States off fossil fuels.`\
+https://nytimes.com/2025/07/11/business/energy-environment/energy-department-renewable-funding-cuts.html
+
 **Schumer Urges Kennedy to Declare Public Health Emergency Over Measles**\
 `Senator Chuck Schumer urged the health secretary to declare an emergency to keep other regions from experiencing the “nightmare” seen in Texas.`\
 https://nytimes.com/2025/07/11/us/politics/measles-public-health-emergency-rfk-jr.html
