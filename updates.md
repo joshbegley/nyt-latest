@@ -1,3 +1,7 @@
+**Two Dozen Hospitalized in Mass Drug Overdose in Baltimore**\
+`An unusually large number of overdoses sent crews searching alleys and homes for victims. Officials have not said what type of drug was involved.`\
+https://nytimes.com/2025/07/11/us/baltimore-drug-overdoses.html
+
 **300,000 New Yorkers Could Lose Food-Stamp Benefits After Trump’s Cuts**\
 `The president’s sweeping new law includes work requirements for more people and less coverage for some noncitizens. Republicans argue the cuts are needed to tackle waste and fraud.`\
 https://nytimes.com/2025/07/11/nyregion/nyc-snap-food-stamps-trump.html
