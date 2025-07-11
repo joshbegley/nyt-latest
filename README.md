@@ -1,5 +1,5 @@
 **MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
-`It’s time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
+`Itâs time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
 https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
 
 **MLB trade deadline watch: Bubble teams have execs prepared for slow-developing market**\
@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6487362/2025/07/11/zambian-nwsl-racheal-kundananji-
 https://nytimes.com/athletic/6486008/2025/07/11/tigers-will-vest-bullpen/
 
 **College football's top 10 rivalries and favorite moments, chosen by our readers**\
-`We asked. You answered. Here are readers' picks for the best college football rivalries — and their favorite moments of rivalry drama.`\
+`We asked. You answered. Here are readers' picks for the best college football rivalries â and their favorite moments of rivalry drama.`\
 https://nytimes.com/athletic/6486724/2025/07/11/college-football-best-rivalries-fan-vote/
 
 **How Shane van Gisbergen has quickly become NASCAR's best road racer**\
