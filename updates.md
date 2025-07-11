@@ -1,3 +1,19 @@
+**Skydance Is in Early Talks to Acquire The Free Press**\
+`David Ellison, the founder of Skydance, and Bari Weiss, the co-founder of The Free Press, are attending the annual Allen & Co. conference in Sun Valley this week.`\
+https://nytimes.com/2025/07/11/business/free-press-skydance-acquisition-talks.html
+
+**Until Saturday: The first time since 1869**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6488637/2025/07/11/college-football-independents-pac-12-until-saturday/
+
+**N.Y. County Settles With Woman Who Says the Police Removed Her Hijab**\
+`Suffolk County’s $225,000 settlement provides a striking counterpoint to the anti-sanctuary policies that have recently taken shape across Long Island.`\
+https://nytimes.com/2025/07/11/nyregion/suffolk-county-head-scarf-settlement.html
+
+**Tour de France stage seven: Routine brilliance from Tadej Pogacar, several riders crash in finale, Costiou’s big day**\
+`Analysis of the seventh stage of the 2025 Tour de France, which took the peloton through Brittany from Saint-Malo to Mur-de-Bretagne`\
+https://nytimes.com/athletic/6487866/2025/07/11/tour-de-france-stage-seven-analysis/
+
 **After Texas Flooding, Two Brothers Search for Their Missing Parents**\
 `Luke and Robert Leroy Brake Jr. haven’t seen their parents since a deadly flood swept through their camp site on July 4. They spoke to The New York Times about what happened that day.`\
 https://nytimes.com/video/us/100000010277025/texas-flooding-missing-parents-search.html
