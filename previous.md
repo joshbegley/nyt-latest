@@ -1,3 +1,7 @@
+**Buying a Home and Building a Future**\
+`Creating memories, wealth and legacy.`\
+https://nytimes.com/paidpost/progressive-insurance/buying-a-home-and-building-a-future.html
+
 **Answer 4 Questions. Leave With Your Next Elin Hilderbrand Beach Read.**\
 `Whether you want a romance or family drama, she's written a book for you.`\
 https://nytimes.com/interactive/2025/07/11/books/what-to-read-hilderbrand-summer-books-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488490/2025/07/11/former-nationals-gm-mike-rizzo-t
 **Fantasy bullpen report featuring first-half all-stars and rising star Grant Taylor**\
 `Greg Jewett names his first-half relief pitching all-stars and also shares his desire for rising star Grant Taylor to see more save chances.`\
 https://nytimes.com/athletic/6486118/2025/07/11/fantasy-bullpen-report-first-half-all-stars-grant-taylor/
-
-**Skydance Is in Early Talks to Acquire The Free Press**\
-`David Ellison, the founder of Skydance, and Bari Weiss, the co-founder of The Free Press, are attending the annual Allen & Co. conference in Sun Valley this week.`\
-https://nytimes.com/2025/07/11/business/free-press-skydance-acquisition-talks.html
 

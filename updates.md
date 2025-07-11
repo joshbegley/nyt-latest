@@ -1,3 +1,7 @@
+**Buying a Home and Building a Future**\
+`Creating memories, wealth and legacy.`\
+https://nytimes.com/paidpost/progressive-insurance/buying-a-home-and-building-a-future.html
+
 **Answer 4 Questions. Leave With Your Next Elin Hilderbrand Beach Read.**\
 `Whether you want a romance or family drama, she's written a book for you.`\
 https://nytimes.com/interactive/2025/07/11/books/what-to-read-hilderbrand-summer-books-quiz.html
