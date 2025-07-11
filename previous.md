@@ -1,3 +1,19 @@
+**Former Astros exec Jeff Luhnow says teams reached out about potential roles**\
+`Luhnow hasn't held a role in MLB since being fired by Astros owner Jim Crane in 2020 following the 2017 sign-stealing scandal.`\
+https://nytimes.com/athletic/6488861/2025/07/11/astros-jeff-luhnow-potential-mlb-return/
+
+**Novak Djokovic plans to return to Wimbledon 'for sure' after semifinal loss to Jannik Sinner**\
+`Djokovic looked a step slow in Friday’s 6-3, 6-3, 6-4 defeat to Sinner after a painful fall in his quarterfinal win over Flavio Cobolli.`\
+https://nytimes.com/athletic/6488985/2025/07/11/novak-djokovic-jannik-sinner-wimbledon/
+
+**David Gergen, Washington Veteran Who Advised Four Presidents, Dies at 83**\
+`After serving in the government, he became a prominent political commentator. “Centrism doesn’t mean splitting the difference,” he said in 2020.`\
+https://nytimes.com/2025/07/11/us/politics/david-gergen-dead.html
+
+**Immigration Arrests in Los Angeles Spike Amid Aggressive Enforcement**\
+`Nearly 3,000 people have been arrested since the beginning of June, more than three times the number in previous months this year.`\
+https://nytimes.com/2025/07/11/us/politics/los-angeles-immigration-enforcement.html
+
 **Plaintiffs' lawyers in House v. NCAA settlement to get roughly $750 million in fees**\
 `The landmark agreement will result in a new financial model that allows schools to directly share revenue with college athletes.`\
 https://nytimes.com/athletic/6489014/2025/07/11/ncaa-house-settlement-legal-fees/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
 **Fallout Over Handling of Epstein Case Erupts Into the Open**\
 `An irate attorney general is said to have confronted the deputy director of the F.B.I. at a tense White House meeting earlier in the week.`\
 https://nytimes.com/2025/07/11/us/politics/jeffrey-epstein-pam-bondi-dan-bongino-clash.html
-
-**The Best Ways to Maximize a Tiny Bedroom **\
-`(No description)`\
-https://nytimes.com/card/2025/07/11/smarter-living/wirecutter/the-best-ways-to-maximize-a-tiny-bedroom
-
-**Liverpool retire No 20 shirt in memory of Diogo Jota**\
-`The club took the decision to retire the shirt number after consultation this week with Jota's wife Rute and other family members.`\
-https://nytimes.com/athletic/6475885/2025/07/11/diogo-jota-liverpool-20-shirt-retired/
-
-**Fear, relief and why Howe wanted him – Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
-`What Eddie Howe likes most about Anthony Elanga, how close the deal came to collapsing and what Newcastle and Forest plan to do next`\
-https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-inside-read/
-
-**Elanga completes move from Forest to Newcastle**\
-`The Swede scored six goals and provided 11 assists for Forest in 38 Premier League games last season.`\
-https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
 
