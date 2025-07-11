@@ -1,3 +1,11 @@
+**Schumer Urges Kennedy to Declare Public Health Emergency Over Measles**\
+`Senator Chuck Schumer urged the health secretary to declare an emergency to keep other regions from experiencing the “nightmare” seen in Texas.`\
+https://nytimes.com/2025/07/11/us/politics/measles-public-health-emergency-rfk-jr.html
+
+**Trump Visited Flood Sites in Texas**\
+`Also, Earth is spinning a bit faster. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/07/11/briefing/trump-texas-flood-sites-earth-spinning.html
+
 **Sierra Club’s Executive Director Is on Leave After a Rocky Tenure**\
 `Ben Jealous, who joined the environmental group in 2023, has clashed with some employees and the organization’s union.`\
 https://nytimes.com/2025/07/11/climate/ben-jealous-sierra-club.html
