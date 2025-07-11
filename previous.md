@@ -1,3 +1,11 @@
+**Rubio’s Cuts at State Department Demote Longtime U.S. Values**\
+`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to America’s standing and influence could be high.`\
+https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
+
+**Evidence Supports War Crimes Allegations in Darfur, I.C.C. Prosecutor Says**\
+`The International Criminal Court has “reasonable grounds to believe” war crimes and crimes against humanity were committed, the court’s deputy prosecutor said.`\
+https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
+
 **Fallout Over Handling of Epstein Case Erupts Into the Open**\
 `An irate attorney general is said to have confronted the deputy director of the F.B.I. at a tense White House meeting earlier in the week.`\
 https://nytimes.com/2025/07/11/us/politics/jeffrey-epstein-pam-bondi-dan-bongino-clash.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-sim
 **2 Arkansas Prison Workers Are Fired in Wake of Convicted Murderer’s Escape**\
 `The employees unwittingly helped Grant Hardin, a former police chief, walk out of a prison in May, dressed in a fake law enforcement uniform, officials said.`\
 https://nytimes.com/2025/07/11/us/arkansas-prison-escape-grant-hardin.html
-
-**Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
-`The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
-https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/
-
-**Can ‘Superman’ Fly Above Today’s Polarized Politics?**\
-`The director of the reboot, James Gunn, called the superhero from the planet Krypton “an immigrant,” thrusting the summer popcorn movie into an Earthbound culture war.`\
-https://nytimes.com/2025/07/11/movies/superman-politics-backlash.html
 

@@ -1,3 +1,16 @@
+**Rubio’s Cuts at State Department Demote Longtime U.S. Values**\
+`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to America’s standing and influence could be high.`\
+https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
+
+**Evidence Supports War Crimes Allegations in Darfur, I.C.C. Prosecutor Says**\
+`The International Criminal Court has “reasonable grounds to believe” war crimes and crimes against humanity were committed, the court’s deputy prosecutor said.`\
+https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
+
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
 **Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
 `Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
 `\
