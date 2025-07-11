@@ -3,15 +3,15 @@
 https://nytimes.com/athletic/6488952/2025/07/11/bears-ryan-poles-contract-extension/
 
 **Son of El Chapo Pleads Guilty to Sweeping Drug Charges**\
-`The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio GuzmÃ¡n LÃ³pezâs father helped found.`\
+`The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio Guzmán López’s father helped found.`\
 https://nytimes.com/2025/07/11/us/politics/el-chapo-son-pleads-guilty.html
 
-**Rubioâs Cuts at State Department Demote Longtime U.S. Values**\
-`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to Americaâs standing and influence could be high.`\
+**Rubio’s Cuts at State Department Demote Longtime U.S. Values**\
+`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to America’s standing and influence could be high.`\
 https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
 
 **Evidence Supports War Crimes Allegations in Darfur, I.C.C. Prosecutor Says**\
-`The International Criminal Court has âreasonable grounds to believeâ war crimes and crimes against humanity were committed, the courtâs deputy prosecutor said.`\
+`The International Criminal Court has “reasonable grounds to believe” war crimes and crimes against humanity were committed, the court’s deputy prosecutor said.`\
 https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
 
 **Fallout Over Handling of Epstein Case Erupts Into the Open**\
@@ -26,7 +26,7 @@ https://nytimes.com/card/2025/07/11/smarter-living/wirecutter/the-best-ways-to-m
 `The club took the decision to retire the shirt number after consultation this week with Jota's wife Rute and other family members.`\
 https://nytimes.com/athletic/6475885/2025/07/11/diogo-jota-liverpool-20-shirt-retired/
 
-**Fear, relief and why Howe wanted him â Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
+**Fear, relief and why Howe wanted him – Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
 `What Eddie Howe likes most about Anthony Elanga, how close the deal came to collapsing and what Newcastle and Forest plan to do next`\
 https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-inside-read/
 
@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-i
 https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
 
 **Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
-`In her new book, âA Marriage at Sea,â the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
+`In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
 https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
 
