@@ -1,3 +1,7 @@
+**Ronny Chieng Ponders Iran’s Threat to Kill a Sunbathing Trump**\
+`“The Daily Show” host called the threat from an Iranian official “an attack on all of America, because now we all have to picture him with his bare belly glistening in the sun.”`\
+https://nytimes.com/2025/07/11/arts/television/ronny-chieng-iran-trump-threat.html
+
 **What to Know About the Rush for Rare Earth Metals in War-Torn Myanmar**\
 `In the chaos of war, there’s nothing to stop Chinese firms from ravaging the landscape and extracting the minerals, which end up in China.`\
 https://nytimes.com/2025/07/11/world/asia/rare-earths-boom-myanmar.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/07/11/briefing/iran-enriched-uranium-israel-ukraine-spy
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/11/todays-new-york-times
 
-**This Is How the Future of the Dollar Will Be Decided**\
+**The Dollar’s in Trouble, but Not for the Reason You Think**\
 `New payment systems allow users and banks to bypass the U.S. currency and sanctions.`\
 https://nytimes.com/2025/07/11/opinion/dollar-money-currency-payment.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/us/politics/china-us-asia-tariffs.html
 **'If you have legs left then use them': Behind the scenes at a Tour de France time trial**\
 `On Wednesday Decathlon-AG2R-La Mondial produced their best Tour de France time trial result for more than a decade — this is how they did it`\
 https://nytimes.com/athletic/6485419/2025/07/11/tour-de-france-time-trial-day-what-happens/
-
-**Mohammed Kudus is gone but Crysencio Summerville's West Ham career might be about to start in earnest**\
-`As one winger exits the London Stadium, another is beginning his bid to make up for lost time in claret and blue`\
-https://nytimes.com/athletic/6482360/2025/07/11/crysencio-summerville-west-ham-mohammed-kudus/
 
