@@ -1,3 +1,11 @@
+**Judge Signals She Will Protect Abrego Garcia From Hasty Second Deportation**\
+`The judge, Paula Xinis, said some legal safeguard was needed because the Trump administration had already shown in this and other deportation cases that it could not be trusted.`\
+https://nytimes.com/2025/07/11/us/politics/abrego-garcia-deportation-judge-protection-trump.html
+
+**Venus Williams accepts D.C. Open wildcard to play first WTA tournament in over a year**\
+`Williams' last appearance came in a straight-set defeat to Diana Shnaider in the first round of the Miami Open in March 2024.`\
+https://nytimes.com/athletic/6488615/2025/07/11/tennis-venus-williams-wild-card-dc-open/
+
 **Dan Vladar should improve Flyers' goaltending — and could make Sam Ersson better, too**\
 `The 27-year-old signed a two-year, $6.7 million contract on July 1 and is a much-needed upgrade in net for the Flyers.`\
 https://nytimes.com/athletic/6488512/2025/07/11/flyers-goaltending-dan-vladar-sam-ersson/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/nyregion/suffolk-county-head-scarf-settlement.htm
 **Tour de France stage seven: Routine brilliance from Tadej Pogacar, several riders crash in finale, Costiou’s big day**\
 `Analysis of the seventh stage of the 2025 Tour de France, which took the peloton through Brittany from Saint-Malo to Mur-de-Bretagne`\
 https://nytimes.com/athletic/6487866/2025/07/11/tour-de-france-stage-seven-analysis/
-
-**After Texas Flooding, Two Brothers Search for Their Missing Parents**\
-`Luke and Robert Leroy Brake Jr. haven’t seen their parents since a deadly flood swept through their camp site on July 4. They spoke to The New York Times about what happened that day.`\
-https://nytimes.com/video/us/100000010277025/texas-flooding-missing-parents-search.html
-
-**Wimbledon women's final odds, how to watch: Swiatek favored for her first grass win**\
-`Iga Świątek is the clear favorite to win Wimbledon against American Amanda Anisimova in a meeting of two first-time finalists.`\
-https://nytimes.com/athletic/6486653/2025/07/11/wimbledon-womens-final-anisimova-swiatek-odds-how-to-watch/
 
