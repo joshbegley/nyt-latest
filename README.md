@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2025/07/10/us/10-2024-kerrcountyhazardmitigation
 https://nytimes.com/2025/07/10/world/europe/uk-post-office-scandal-report.html
 
 **Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
-`The 23-year-old shortstop will join the team for its weekend series against the Texas Rangers.`\
+`The 23-year-old infielder will join the team for its weekend series against the Texas Rangers.`\
 https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
 
 **State Department to Soon Begin Mass Layoffs**\
