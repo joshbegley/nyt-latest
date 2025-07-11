@@ -1,3 +1,15 @@
+**Want to Understand Russia? Visit Dubai.**\
+`It’s a key refuge for Moscow’s wealthy, including the record producer Iosif Prigozhin. He insists he still loves President Vladimir V. Putin, no matter what you’ve heard.`\
+https://nytimes.com/2025/07/11/world/europe/russia-dubai-iosif-prigozhin-putin.html
+
+**Lowetide: Why Ike Howard trade could be a defining moment for Oilers**\
+`Howard may have a chance to earn playing time with Connor McDavid or Leon Draisaitl next season.`\
+https://nytimes.com/athletic/6485892/2025/07/11/oilers-isaac-howard-nhl-trade/
+
+**In the Stock Market Rebound, the ‘Buy the Dip’ Mantra Wins Again**\
+`Individual investors were the ones who piled into stocks when they plunged in early April, while big Wall Street institutions missed out on the gains.`\
+https://nytimes.com/2025/07/11/business/stocks-buy-the-dip.html
+
 **Cold Noodles (Ahh) With Zucchini (Thank Goodness)**\
 `Because it’s hot outside, and you have a lot of zucchini to get through.`\
 https://nytimes.com/2025/07/11/dining/cold-noodles-with-zucchini-and-more-summer-recipes.html
