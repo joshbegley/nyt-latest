@@ -1,3 +1,11 @@
+**Yankees' Jazz Chisholm Jr. rounds out Home Run Derby field as final member**\
+`Chisholm joins a field that will also have Ronald Acuña Jr., Cal Raleigh, James Wood and Byron Buxton, among others.`\
+https://nytimes.com/athletic/6487188/2025/07/10/2025-home-run-derby-jazz-chisholm-jr/
+
+**Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
+`The 23-year-old infielder will join the team for its weekend series against the Texas Rangers.`\
+https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
+
 **Chargers RB Najee Harris suffers eye injury in fireworks accident**\
 `Harris' agent said the 2021 first-round pick "is fully expected to be ready for the upcoming NFL season."`\
 https://nytimes.com/athletic/6487158/2025/07/10/najee-harris-accident-injury-fireworks-chargers/

@@ -1,3 +1,7 @@
+**Trump Nominates ‘Alpha Male’ Influencer to Be Ambassador to Malaysia**\
+`Nick Adams rose to prominence with a hypermasculine identity and crass jokes about Hooters. President Trump named him ambassador to a country of 35 million people.`\
+https://nytimes.com/2025/07/10/us/politics/nick-adams-ambassador-malaysia-trump.html
+
 **Yankees' Jazz Chisholm Jr. rounds out Home Run Derby field as final member**\
 `Chisholm joins a field that will also have Ronald Acuña Jr., Cal Raleigh, James Wood and Byron Buxton, among others.`\
 https://nytimes.com/athletic/6487188/2025/07/10/2025-home-run-derby-jazz-chisholm-jr/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
 **Justice Dept. Promised to Prosecute Abrego Garcia. Now It’s Not So Clear.**\
 `In the case of Kilmar Armando Abrego Garcia, the administration appears primarily concerned with ensuring that a man it has described as a “dangerous illegal alien” never walks free on U.S. soil.`\
 https://nytimes.com/2025/07/10/us/politics/abrego-garcia-doj-trump.html
-
-**Livvy Dunne Wanted Babe Ruth’s Old Apartment. The Co-op Board Said No.**\
-`The influencer and former collegiate gymnast tried to buy the Manhattan two-bedroom, but instead joined the ranks of high-profile rejects like Madonna and Calvin Klein.`\
-https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.html
 
