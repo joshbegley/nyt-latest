@@ -1,3 +1,15 @@
+**Walmart Recalls Water Bottles After Lids ‘Forcefully Ejected’ and Impaired Vision**\
+`The lids on the 64-ounce stainless steel bottles can eject and strike consumers, two of whom reported permanent vision loss as a result, safety regulators said.`\
+https://nytimes.com/2025/07/11/us/walmart-water-bottles-recall-vision-loss.html
+
+**Wimbledon men's semifinals recap: Carlos Alcaraz and Jannik Sinner are in another final**\
+`The 'Sinnercaraz' rivalry gets its second Grand Slam final, just five weeks after its first.`\
+https://nytimes.com/athletic/6488461/2025/07/11/tennis-wimbledon-semifinals-men-alcaraz-sinner-final/
+
+**Risk of Flooding Returns to Texas County Hit by Deadly Storms**\
+`The threat of heavy rain is “slight” for this weekend, but with the ground fully saturated in Kerr County even small amounts of rainfall could cause flooding.`\
+https://nytimes.com/2025/07/11/weather/flooding-risk-texas-county.html
+
 **Risk of Flooding Returns to Texas County Hit by Deadly Storms**\
 `The threat of heavy rain is “slight” for this weekend, but with the ground fully saturated in Kerr County even small amounts of rainfall could cause flooding.`\
 https://nytimes.com/2025/07/11/weather/risk-of-flooding-returns-to-texas-county-hit-by-deadly-storms.html
