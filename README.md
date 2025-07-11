@@ -1,17 +1,21 @@
+**As Southern France Swelters, the Avignon Festival Tries to Adapt**\
+`Rising temperatures pose an existential threat to the theater extravaganza, where extreme heat is making it tough for the audience.`\
+https://nytimes.com/2025/07/11/theater/avignon-festival-heat-climate-change.html
+
 **The 7.13.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/11/the-7132025-issue
 
 **Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 18 at 9 a.m. Eastern. This weekâs winners will be announced by July 29.`\
+`To participate, submit your response here by July 18 at 9 a.m. Eastern. This week’s winners will be announced by July 29.`\
 https://nytimes.com/2025/07/11/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
 
-**How the $1,000 âTrump Accountsâ for Newborns Will Work**\
+**How the $1,000 ‘Trump Accounts’ for Newborns Will Work**\
 `The payments, part of the new domestic policy law, are for U.S. citizens born this year through 2028. The idea is that the money in the accounts will have many years to grow.`\
 https://nytimes.com/2025/07/11/your-money/trump-accounts-newborns.html
 
 **The Danger of a Market Melt-Up**\
-`Traders have repeatedly shrugged off President Trumpâs disruptive tariff wars and fiscal policy, pushing U.S. stock prices back into expensive territory, our columnist says.`\
+`Traders have repeatedly shrugged off President Trump’s disruptive tariff wars and fiscal policy, pushing U.S. stock prices back into expensive territory, our columnist says.`\
 https://nytimes.com/2025/07/11/business/stock-market-melt-up-downturn.html
 
 **What Should Happen When You Spill Blueberries at the Store?**\
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/11/business/stock-market-melt-up-downturn.html
 https://nytimes.com/interactive/2025/07/11/magazine/spilled-groceries-hodgman-quiz.html
 
 **Madueke given permission by Chelsea to undergo Arsenal medical**\
-`An agreement has been reached on a Â£52million deal while personal terms were previously agreed on a five-year contract.`\
+`An agreement has been reached on a £52million deal while personal terms were previously agreed on a five-year contract.`\
 https://nytimes.com/athletic/6487723/2025/07/11/arsenal-noni-madueke-transfer-chelsea/
 
 **The art and science of tennis rackets and strings at Wimbledon**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/world/europe/germany-economy-tax-cuts.html
 **Trump Administration Live Updates: President to Visit Flood-Hit Texas**\
 ``\
 https://nytimes.com/live/2025/07/11/us/trump-texas-news
-
-**Bills training camp 2025 linebacker preview: A familiar group, but questions remain**\
-`The six linebackers the Bills had under contract last season are back this season.`\
-https://nytimes.com/athletic/6398142/2025/07/11/buffalo-bills-training-camp-2025-preview-linebackers/
 
