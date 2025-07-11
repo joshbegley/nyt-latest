@@ -1,7 +1,3 @@
-**Chargers RB Najee Harris suffers eye injury in fireworks accident**\
-`Harris' agent said the 2021 first-round pick "is fully expected to be ready for the upcoming NFL season."`\
-https://nytimes.com/athletic/6487158/2025/07/10/najee-harris-accident-injury-fireworks-chargers/
-
 **Texas County Flagged Need for Flood Alarm Months Before Tragedy**\
 `Kerr County repeatedly failed to secure a warning system, even as local officials remained aware of the risks and as billions of dollars were available for similar projects.`\
 https://nytimes.com/2025/07/10/us/politics/texas-flood-alarm-system.html
@@ -33,4 +29,8 @@ https://nytimes.com/2025/07/10/realestate/livvy-dunne-babe-ruth-apartment-nyc.ht
 **Hosts Switzerland avoid Euro 2025 group exit with late equaliser: 'We never stopped dreaming'**\
 `Substitute Riola Xhemaili levelled the scores in the 92nd minute at Stade de Geneve to send Switzerland through at Finland's expense.`\
 https://nytimes.com/athletic/6476494/2025/07/10/switzerland-finland-euro-2025/
+
+**49ers' George Kittle is enjoying his golf debut, eagerly awaiting training camp**\
+`Kittle chugged a beer and made a birdie during a strong start in the scramble preceding the American Century Championship tournament.`\
+https://nytimes.com/athletic/6486442/2025/07/10/george-kittle-49ers-celebrity-golf/
 
