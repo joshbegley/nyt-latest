@@ -1,3 +1,23 @@
+**Police Investigate Burning of Migrant-Boat Effigy in Northern Ireland as a Hate Crime**\
+`An effigy of a boat containing mannequins of migrants was set alight in the village of Moygashel on Thursday, in an incident condemned by political and religious leaders as racist and threatening.`\
+https://nytimes.com/2025/07/11/world/europe/northern-ireland-bonfire-moygashel-migrant-boat.html
+
+**The Bounce: Cooper Flagg’s poster moment, almost**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6487679/2025/07/11/cooper-flagg-summer-league-the-bounce/
+
+**Palace denied entry to Europa League after UEFA ruling**\
+`The south London club are now set compete in the third-tier Conference League but intend to lodge an appeal.`\
+https://nytimes.com/athletic/6402071/2025/07/11/crystal-palace-europe-europa-league-uefa/
+
+**Carlos Alcaraz keeps Taylor Fritz at bay to reach third Wimbledon final**\
+`The two-time defending champion beat the American No. 5 seed in four sets on a sweltering afternoon on Centre Court.`\
+https://nytimes.com/athletic/6488062/2025/07/11/tennis-alcaraz-fritz-wimbledon-semifinal-result-analysis/
+
+**Survivors Recount a Night of Terror at Waterfront Campgrounds**\
+`The half-mile stretch occupied by two campgrounds appears to have been one of the deadliest spots along the Guadalupe River in Central Texas during last week’s flash floods.`\
+https://nytimes.com/2025/07/11/us/texas-flood-survivors-waterfront-campgrounds.html
+
 **Justin Bieber Surprises With ‘Swag,’ and 10 More New Songs**\
 `Hear tracks by Tyla, Kassa Overall, Syd, Jay Som and others.`\
 https://nytimes.com/2025/07/11/arts/music/playlist-justin-bieber-tyla-syd.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/11/business/stocks-buy-the-dip.html
 **Cold Noodles (Ahh) With Zucchini (Thank Goodness)**\
 `Because it’s hot outside, and you have a lot of zucchini to get through.`\
 https://nytimes.com/2025/07/11/dining/cold-noodles-with-zucchini-and-more-summer-recipes.html
-
-**Was Murderbot Smiling in the Finale? Only the Creators Know for Sure.**\
-`Chris and Paul Weitz talked about Season 1 of the acclaimed Apple TV+ series and the challenges of being a responsible human being — or cyborg.`\
-https://nytimes.com/2025/07/11/arts/television/murderbot-season-finale-chris-paul-weitz.html
-
-**From the Land of K-Pop Come the Joys of K-Swing**\
-`Swing and Lindy Hop, dance forms created by Black Americans in the 1920s and ’30s, are flowering in Korea. New York will get a taste in a mini festival.`\
-https://nytimes.com/2025/07/11/arts/dance/korean-swing-dance-lincoln-center.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include desperate fathers, a remorseful MMA fighter and more.`\
-https://nytimes.com/2025/07/11/movies/five-action-movies-to-stream-now.html
-
-**Odyssey selling Happy Gilmore 2 hockey stick putter for $500**\
-`The long-awaited sequel to Happy Gilmore comes out later this month`\
-https://nytimes.com/athletic/6488111/2025/07/11/happy-gilmore-putter-odyssey/
-
-**Celebrating Humanity, Stubbornly, at Europe’s Photography Mecca**\
-`Since the 1970s, the Rencontres d’Arles has been the place to debut the art form’s latest developments. This year’s edition had a more retro feel.`\
-https://nytimes.com/2025/07/11/arts/design/arles-france-rencontres-de-la-photographie.html
 
