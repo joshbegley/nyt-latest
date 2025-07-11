@@ -1,3 +1,7 @@
+**James Carter Cathcart, Voice Behind Memorable ‘Pokémon’ Characters, Dies at 71**\
+`Mr. Cathcart was known for playing the characters Professor Oak and Meowth in the long-running franchise. He also made appearances in other popular animated series such as “Yu-Gi-Oh!” and “One Piece.”`\
+https://nytimes.com/2025/07/10/arts/television/james-carter-cathcart-dead-voice-actor-pokemon.html
+
 **Why the Texas Flood Site Didn’t Have Warning Sirens**\
 `Officials in Kerr County made several attempts over the past decade to get funds for a flood warning system, but those applications were rejected. Christopher Flavelle, a reporter for The New York Times, breaks down what went wrong.`\
 https://nytimes.com/video/us/100000010277667/why-the-texas-flood-site-didnt-have-warning-sirens.html
