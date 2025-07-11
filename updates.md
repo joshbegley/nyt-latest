@@ -1,3 +1,20 @@
+**Fallout Over Handling of Epstein Case Erupts Into the Open**\
+`An irate attorney general is said to have confronted the deputy director of the F.B.I. at a tense White House meeting earlier in the week.`\
+https://nytimes.com/2025/07/11/us/politics/jeffrey-epstein-pam-bondi-dan-bongino-clash.html
+
+**The Best Ways to Maximize a Tiny Bedroom **\
+`(No description)`\
+https://nytimes.com/card/2025/07/11/smarter-living/wirecutter/the-best-ways-to-maximize-a-tiny-bedroom
+
+**Liverpool retire No 20 shirt in memory of Diogo Jota**\
+`The club took the decision to retire the shirt number after consultation this week with Jota's wife Rute and other family members.`\
+https://nytimes.com/athletic/6475885/2025/07/11/diogo-jota-liverpool-20-shirt-retired/
+
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
 **Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
 `Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
 `\
