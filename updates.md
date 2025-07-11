@@ -1,3 +1,7 @@
+**Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
+`The 25-year-old midfielder has a a £60million release clause in his contract at the City Ground.`\
+https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
+
 **As Southern France Swelters, the Avignon Festival Tries to Adapt**\
 `Rising temperatures pose an existential threat to the theater extravaganza, where extreme heat is making it tough for the audience.`\
 https://nytimes.com/2025/07/11/theater/avignon-festival-heat-climate-change.html
