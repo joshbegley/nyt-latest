@@ -1,3 +1,11 @@
+**In South Carolina, Newsom Tests the Presidential Waters (Without Saying So)**\
+`Gov. Gavin Newsom of California met with Democratic voters in an early primary state that has become pivotal in presidential races.`\
+https://nytimes.com/2025/07/10/us/politics/in-south-carolina-newsom-tests-the-presidential-waters-without-saying-so.html
+
+**Trump administration expands crackdown on undocumented immigrants’ access to federal benefits.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federal-benefits
+
 **Map: 3.7-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6487158/2025/07/10/najee-harris-accident-injury-fir
 **Texas County Flagged Need for Flood Alarm Months Before Tragedy**\
 `Kerr County repeatedly failed to secure a warning system, even as local officials remained aware of the risks and as billions of dollars were available for similar projects.`\
 https://nytimes.com/2025/07/10/us/politics/texas-flood-alarm-system.html
-
-**Read the document**\
-`In a 220-page report to FEMA last year, Kerr County said a flood was likely within a year, and could exceed historical records.`\
-https://nytimes.com/interactive/2025/07/10/us/10-2024-kerrcountyhazardmitigationactionplan.html
-
-**At Least 13 People Died by Suicide Amid U.K. Post Office Scandal, Report Says**\
-`A public inquiry into the wrongful prosecutions of about 1,000 postal workers has uncovered more victims than previously known, according to a report.`\
-https://nytimes.com/2025/07/10/world/europe/uk-post-office-scandal-report.html
 

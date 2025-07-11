@@ -1,3 +1,11 @@
+**In South Carolina, Newsom Tests the Presidential Waters (Without Saying So)**\
+`Gov. Gavin Newsom of California met with Democratic voters in an early primary state that has become pivotal in presidential races.`\
+https://nytimes.com/2025/07/10/us/politics/in-south-carolina-newsom-tests-the-presidential-waters-without-saying-so.html
+
+**Trump administration expands crackdown on undocumented immigrants’ access to federal benefits.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federal-benefits
+
 **Map: 3.7-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
