@@ -1,3 +1,7 @@
+**Mark Snow, Who Conjured the ‘X-Files’ Theme, Is Dead at 78**\
+`It took a misplaced elbow, a quirk of Los Angeles geography and some whistling from his wife to produce one of television’s most memorable melodies.`\
+https://nytimes.com/2025/07/11/arts/music/mark-snow-dead.html
+
 **Noah Lyles is back — with a win, not a bang**\
 `The American ran 19.88sec in Monaco to beat rival Letsile Tebogo.`\
 https://nytimes.com/athletic/6489174/2025/07/11/noah-lyles-monaco-200m-back/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/business/energy-environment/energy-department-ren
 **Schumer Urges Kennedy to Declare Public Health Emergency Over Measles**\
 `Senator Chuck Schumer urged the health secretary to declare an emergency to keep other regions from experiencing the “nightmare” seen in Texas.`\
 https://nytimes.com/2025/07/11/us/politics/measles-public-health-emergency-rfk-jr.html
-
-**Trump Visited Flood Sites in Texas**\
-`Also, Earth is spinning a bit faster. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/07/11/briefing/trump-texas-flood-sites-earth-spinning.html
 

@@ -1,3 +1,11 @@
+**Noah Lyles is back — with a win, not a bang**\
+`The American ran 19.88sec in Monaco to beat rival Letsile Tebogo.`\
+https://nytimes.com/athletic/6489174/2025/07/11/noah-lyles-monaco-200m-back/
+
+**Support for Immigration Rebounds as Trump Cracks Down on It, Poll Finds**\
+`In a marked reversal from a year ago, more Americans now have positive views about immigration, and a record high believes it is good for the nation.`\
+https://nytimes.com/2025/07/11/us/immigration-poll-trump.html
+
 **Read the Air India Crash Report**\
 `A preliminary assessment by the Indian authorities said fuel was cut off to both engines shortly before Air India Flight 171 crashed last month, appearing to rule out mechanical failure or design flaws.`\
 https://nytimes.com/interactive/2025/07/11/us/air-india-crash-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/us/politics/measles-public-health-emergency-rfk-j
 **Trump Visited Flood Sites in Texas**\
 `Also, Earth is spinning a bit faster. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/07/11/briefing/trump-texas-flood-sites-earth-spinning.html
-
-**Sierra Club’s Executive Director Is on Leave After a Rocky Tenure**\
-`Ben Jealous, who joined the environmental group in 2023, has clashed with some employees and the organization’s union.`\
-https://nytimes.com/2025/07/11/climate/ben-jealous-sierra-club.html
-
-**Physical Therapist Dies Inside Hyperbaric Chamber After It Catches Fire**\
-`Emergency personnel found the 43-year-old physical therapist dead inside the chamber at his Arizona health clinic, which offered oxygen therapy.`\
-https://nytimes.com/2025/07/11/us/physical-therapist-dead-hyperbaric-chamber-fire-arizona.html
 

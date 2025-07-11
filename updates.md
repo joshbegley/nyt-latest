@@ -1,3 +1,11 @@
+**Noah Lyles is back — with a win, not a bang**\
+`The American ran 19.88sec in Monaco to beat rival Letsile Tebogo.`\
+https://nytimes.com/athletic/6489174/2025/07/11/noah-lyles-monaco-200m-back/
+
+**Support for Immigration Rebounds as Trump Cracks Down on It, Poll Finds**\
+`In a marked reversal from a year ago, more Americans now have positive views about immigration, and a record high believes it is good for the nation.`\
+https://nytimes.com/2025/07/11/us/immigration-poll-trump.html
+
 **Read the Air India Crash Report**\
 `A preliminary assessment by the Indian authorities said fuel was cut off to both engines shortly before Air India Flight 171 crashed last month, appearing to rule out mechanical failure or design flaws.`\
 https://nytimes.com/interactive/2025/07/11/us/air-india-crash-report.html
