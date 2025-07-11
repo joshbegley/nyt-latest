@@ -1,10 +1,14 @@
+**Jake Retzlaff, facing possible suspension, announces departure from BYU**\
+`Retzlaff's departure follows a civil lawsuit in May — which was later withdrawn — accusing the quarterback of sexual assault and battery.`\
+https://nytimes.com/athletic/6489073/2025/07/11/jake-retzlaff-byu-departure-potential-suspension/
+
 **Fuel to Air India Plane That Crashed Was Cut Off After Takeoff, Report Says**\
 `The focus on the fuel switches on Air India Flight 171 raised questions about the pilots’ actions.`\
 https://nytimes.com/2025/07/11/world/asia/air-india-crash-report.html
 
 **Finding Beauty in My Sun-Baked Car**\
 `The heat is so clean and alive.`\
-https://nytimes.com/interactive/2025/07/11/opinion/car-driving-desert-hot.html
+https://nytimes.com/interactive/2025/07/10/opinion/car-driving-desert-hot.html
 
 **Russia Sees France as Its Main Enemy in Europe, French General Says**\
 `During a rare news conference on Friday, the head of the French military, Thierry Burkhard, said Russia remains a “lasting, close” threat.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488510/2025/07/11/jay-emmanuel-thomas-released-on-
 **Camp Mystic Owners’ Legacy: ‘If You’re a Camper, You Know Who They Are’**\
 `For decades, Dick and Tweety Eastland presided over Camp Mystic with a kind of magisterial benevolence that alumni well past childhood still describe with awe.`\
 https://nytimes.com/2025/07/11/us/camp-mystic-texas-floods.html
-
-**Former Astros exec Jeff Luhnow says teams reached out about potential roles**\
-`Luhnow hasn't held a role in MLB since being fired by Astros owner Jim Crane in 2020 following the 2017 sign-stealing scandal.`\
-https://nytimes.com/athletic/6488861/2025/07/11/astros-jeff-luhnow-potential-mlb-return/
 
