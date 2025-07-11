@@ -1,3 +1,15 @@
+**Sébastien Buemi, the Renaissance Man of Motorsports**\
+`He races in the World Endurance Championship, Formula E and is a development driver for Red Bull’s Formula 1 team.`\
+https://nytimes.com/2025/07/11/sports/autoracing/sebastien-buemi-driver.html
+
+**S.E.C. Accuses Prominent Georgia Republican of Running Ponzi Scheme**\
+`Edwin Brant Frost IV, a well-known Republican, is accused of defrauding 300 investors of $140 million, and using some funds for political donations. He said he took “full responsibility.”`\
+https://nytimes.com/2025/07/11/us/politics/brant-frost-first-liberty-ponzi-scheme.html
+
+**With Better Cars and Drivers, the World Endurance Championship Turns a Corner**\
+`After many manufacturers had bolted from the series, the W.E.C. made changes, and they came pouring back.`\
+https://nytimes.com/2025/07/11/sports/autoracing/world-endurance-championship.html
+
 **Trump’s Purge of Foreign Workers Arrives at Amazon’s Warehouses**\
 `The tech giant has quietly shed warehouse employees whose work authorizations were revoked after the Trump administration ended a Biden-era immigration program.`\
 https://nytimes.com/2025/07/11/technology/trump-immigration-amazon-warehouses.html
