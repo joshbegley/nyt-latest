@@ -1,3 +1,7 @@
+**What Should Happen When You Spill Blueberries at the Store?**\
+`A ruling on a moral dilemma at the supermarket.`\
+https://nytimes.com/interactive/2025/07/11/magazine/spilled-groceries-hodgman-quiz.html
+
 **Madueke given permission by Chelsea to undergo Arsenal medical**\
 `An agreement has been reached on a £52million deal while personal terms were previously agreed on a five-year contract.`\
 https://nytimes.com/athletic/6487723/2025/07/11/arsenal-noni-madueke-transfer-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6486842/2025/07/11/nebraska-cincinnati-college-foot
 **Athletic Club's Yeray blames alopecia medicine for positive doping test result**\
 `The 30-year-old said he had received a positive result in a doping test following Athletic Club's 3-0 defeat to Manchester United on May 1.`\
 https://nytimes.com/athletic/6487874/2025/07/11/yeray-athletic-club-suspension/
-
-**How to win in College Football 26: Our expert's best strategies, tips and tricks**\
-`An expert's guide to what video game players of all skill levels need to do to win in EA Sports College Football 26.`\
-https://nytimes.com/athletic/6486611/2025/07/11/ea-sports-college-football-26-strategy-tips-tricks/
 
