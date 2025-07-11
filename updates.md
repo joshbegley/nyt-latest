@@ -1,3 +1,7 @@
+**The art and science of tennis rackets and strings at Wimbledon**\
+`Over 6,000 restrings, tiny variances in string tension and customized logos: How Wimbledon gets its stars' rackets ready for play.`\
+https://nytimes.com/athletic/6485255/2025/07/11/tennis-rackets-pro-set-ups-grand-slams-wimbledon/
+
 **Padres takeaways: An untenable catching situation, Ethan Salas update, trade factors**\
 `Kyle Higashioka’s return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
 https://nytimes.com/athletic/6487542/2025/07/11/padres-takeaways-catchers-ethan-salas-update/

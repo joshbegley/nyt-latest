@@ -1,3 +1,7 @@
+**The art and science of tennis rackets and strings at Wimbledon**\
+`Over 6,000 restrings, tiny variances in string tension and customized logos: How Wimbledon gets its stars' rackets ready for play.`\
+https://nytimes.com/athletic/6485255/2025/07/11/tennis-rackets-pro-set-ups-grand-slams-wimbledon/
+
 **Germany Takes an Unassuming Approach to Tax Cuts, in Contrast to Trump**\
 `Chancellor Friedrich Merz will pass an early plank of his domestic agenda into law on Friday, grounded in classical economic arguments.`\
 https://nytimes.com/2025/07/11/world/europe/germany-economy-tax-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6486611/2025/07/11/ea-sports-college-football-26-st
 **A day at Lord's: Cricketing heritage, egg and bacon ties, and salmanazars of Champagne**\
 `What sets Lord's apart is its history, its grandeur and it's beauty – a classic, picturesque cricket venue with a gorgeous old pavilion`\
 https://nytimes.com/athletic/6477693/2025/07/11/lords-mcc-england-india-history/
-
-**Kyle Juszczyk reflects on 'worst 3 days of my life' after 49ers release**\
-`The 49ers released Juszczyk in March, but he was unemployed for just three days before agreeing to a new deal with the team.`\
-https://nytimes.com/athletic/6487070/2025/07/11/kyle-juszczyk-49ers-release-celebrity-golf/
 
