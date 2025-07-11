@@ -1,5 +1,9 @@
+**Rubio’s Cuts at State Department Demote Longtime U.S. Values**\
+`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to America’s standing and influence could be high.`\
+https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
+
 **Evidence Supports War Crimes Allegations in Darfur, I.C.C. Prosecutor Says**\
-`The International Criminal Court has âreasonable grounds to believeâ war crimes and crimes against humanity were committed, the courtâs deputy prosecutor said.`\
+`The International Criminal Court has “reasonable grounds to believe” war crimes and crimes against humanity were committed, the court’s deputy prosecutor said.`\
 https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
 
 **Fallout Over Handling of Epstein Case Erupts Into the Open**\
@@ -14,7 +18,7 @@ https://nytimes.com/card/2025/07/11/smarter-living/wirecutter/the-best-ways-to-m
 `The club took the decision to retire the shirt number after consultation this week with Jota's wife Rute and other family members.`\
 https://nytimes.com/athletic/6475885/2025/07/11/diogo-jota-liverpool-20-shirt-retired/
 
-**Fear, relief and why Howe wanted him â Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
+**Fear, relief and why Howe wanted him – Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
 `What Eddie Howe likes most about Anthony Elanga, how close the deal came to collapsing and what Newcastle and Forest plan to do next`\
 https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-inside-read/
 
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-i
 https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
 
 **Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
-`In her new book, âA Marriage at Sea,â the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
+`In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
 https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
 
 **Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
@@ -31,11 +35,7 @@ https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-
 `\
 https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
 
-**2 Arkansas Prison Workers Are Fired in Wake of Convicted Murdererâs Escape**\
+**2 Arkansas Prison Workers Are Fired in Wake of Convicted Murderer’s Escape**\
 `The employees unwittingly helped Grant Hardin, a former police chief, walk out of a prison in May, dressed in a fake law enforcement uniform, officials said.`\
 https://nytimes.com/2025/07/11/us/arkansas-prison-escape-grant-hardin.html
-
-**Jofra Archer's England comeback: 93.3mph, a wicket with his third ball and a celebration to savour**\
-`The fast bowler made an instant impact on his return to Test cricket after over four years, giving the English attack some much-needed bite`\
-https://nytimes.com/athletic/6488202/2025/07/11/jofra-archer-england-comeback-wicket/
 

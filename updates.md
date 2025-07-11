@@ -1,3 +1,8 @@
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
 **Fallout Over Handling of Epstein Case Erupts Into the Open**\
 `An irate attorney general is said to have confronted the deputy director of the F.B.I. at a tense White House meeting earlier in the week.`\
 https://nytimes.com/2025/07/11/us/politics/jeffrey-epstein-pam-bondi-dan-bongino-clash.html
