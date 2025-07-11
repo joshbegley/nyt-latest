@@ -1,3 +1,7 @@
+**Celebrating Humanity, Stubbornly, at Europe’s Photography Mecca**\
+`Since the 1970s, the Rencontres d’Arles has been the place to debut the art form’s latest developments. This year’s edition had a more retro feel.`\
+https://nytimes.com/2025/07/11/arts/arles-france-rencontres-de-la-photographie.html
+
 **Refined, Freaky, Fabulous: 20 Unforgettable Looks at Couture Week**\
 `They included glittery blood, metallic masks and a beating heart.`\
 https://nytimes.com/2025/07/11/style/paris-couture-week-best-looks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6486831/2025/07/11/fantasy-baseball-top-waiver-wire
 **Pierre Audi’s Last Act: A Dreamer’s Ambition on the Opera Stage**\
 `This year’s edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
 https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
-
-**Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
-`Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
-https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
 
