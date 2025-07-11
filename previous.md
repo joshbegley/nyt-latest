@@ -1,3 +1,7 @@
+**Fear, relief and why Howe wanted him – Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
+`What Eddie Howe likes most about Anthony Elanga, how close the deal came to collapsing and what Newcastle and Forest plan to do next`\
+https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-inside-read/
+
 **Elanga completes move from Forest to Newcastle**\
 `The Swede scored six goals and provided 11 assists for Forest in 38 Premier League games last season.`\
 https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6488590/2025/07/11/manchester-united-transfer-news-
 **Appeals Court Overturns Plea Deal in 9/11 Case**\
 `The court found that Defense Secretary Lloyd J. Austin III had the authority to invalidate a contract reached between the accused mastermind and a Pentagon official.`\
 https://nytimes.com/2025/07/11/us/politics/appeals-court-overturns-9-11-plea-deal.html
-
-**Novak Djokovic, I Was Wrong About You**\
-`We never really gave him his due. Maybe the problem was us.`\
-https://nytimes.com/2025/07/11/opinion/djokovic-wimbledon-tennis.html
 

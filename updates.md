@@ -1,3 +1,12 @@
+**Fear, relief and why Howe wanted him – Inside Anthony Elanga's Newcastle transfer they feared might never happen**\
+`What Eddie Howe likes most about Anthony Elanga, how close the deal came to collapsing and what Newcastle and Forest plan to do next`\
+https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-inside-read/
+
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
 **Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
 `Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
 `\
