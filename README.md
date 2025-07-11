@@ -1,3 +1,7 @@
+**Walmart Recalls Water Bottles After Lids ‘Forcefully Ejected’ and Impaired Vision**\
+`The lids on the 64-ounce stainless steel bottles can eject and strike consumers, two of whom reported permanent vision loss as a result, safety regulators said.`\
+https://nytimes.com/2025/07/11/us/walmart-water-bottles-recall-vision-loss.html
+
 **Wimbledon men's semifinals recap: Carlos Alcaraz and Jannik Sinner are in another final**\
 `The 'Sinnercaraz' rivalry gets its second Grand Slam final, just five weeks after its first.`\
 https://nytimes.com/athletic/6488461/2025/07/11/tennis-wimbledon-semifinals-men-alcaraz-sinner-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/us/politics/los-angeles-immigration-enforcement.h
 **Plaintiffs' lawyers in House v. NCAA settlement to get roughly $750 million in fees**\
 `The landmark agreement will result in a new financial model that allows schools to directly share revenue with college athletes.`\
 https://nytimes.com/athletic/6489014/2025/07/11/ncaa-house-settlement-legal-fees/
-
-**Bears, Ryan Poles agree to contract extension: Source**\
-`Poles, who was hired in 2022, is under contract through 2029, according to ESPN, lining him up with new head coach Ben Johnson.`\
-https://nytimes.com/athletic/6488952/2025/07/11/bears-ryan-poles-contract-extension/
 
