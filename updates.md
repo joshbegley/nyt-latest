@@ -1,3 +1,7 @@
+**FEMA Dropped Thousands of Calls From Flood Survivors, Documents Show**\
+`Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
+https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
+
 **Evacuations and Lost Cabins: A Century of Floods at Camp Mystic**\
 `Within six years of opening, Camp Mystic was inundated with floodwaters. It was the first of many times.`\
 https://nytimes.com/2025/07/11/us/camp-mystic-flood-history.html

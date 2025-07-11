@@ -1,3 +1,7 @@
+**FEMA Dropped Thousands of Calls From Flood Survivors, Documents Show**\
+`Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
+https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
+
 **Evacuations and Lost Cabins: A Century of Floods at Camp Mystic**\
 `Within six years of opening, Camp Mystic was inundated with floodwaters. It was the first of many times.`\
 https://nytimes.com/2025/07/11/us/camp-mystic-flood-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/11/us/air-india-crash-report.html
 **Brian Clarke, Stained-Glass Innovator, Is Dead at 71**\
 `Believing that the art form had to move from religious to secular settings, he designed installations in airports, corporate buildings, a country club and a marketplace.`\
 https://nytimes.com/2025/07/11/arts/design/brian-clarke-dead.html
-
-**Man Falls to His Death Descending Mountain in Glacier National Park**\
-`The man fell from a steep, off-trail climbing route on the west side of Mount Gould, the authorities said.`\
-https://nytimes.com/2025/07/11/us/glacier-park-hiker-death-montana.html
 
