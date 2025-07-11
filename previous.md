@@ -1,3 +1,11 @@
+**How to watch Dream at Fever: Can Caitlin Clark, Indiana get back on track?**\
+`The Fever are sliding as we approach the WNBA season's halfway point. Can Caitlin Clark help turn things around against the Atlanta Dream?`\
+https://nytimes.com/athletic/6486990/2025/07/11/wnba-caitlin-clark-dream-vs-fever-how-to-watch/
+
+**Why Does My Mind Keep Thinking That?**\
+`The psychiatrist Mark Epstein shares his insights about the mind after decades of working with patients and practicing Buddhism.`\
+https://nytimes.com/2025/07/11/opinion/ezra-klein-podcast-mark-epstein.html
+
 **Trumps to Visit Texas Flood Sites, Where Search for Missing and Dead Continues**\
 `The president and the first lady were set to tour areas devastated by flooding in Central Texas, as the Trump administration has faced scrutiny over its level of preparedness and its disaster response.`\
 https://nytimes.com/2025/07/11/us/politics/trump-texas-flood-sites.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/technology/personaltech/ai-internet-browser-dia.h
 **Another Day, Another Chatbot’s Nazi Meltdown**\
 `The folks at X say don’t worry; they’re on it.`\
 https://nytimes.com/2025/07/11/opinion/ai-grok-x-llm.html
-
-**He Built a House With No Doors and Windows You Can’t Close**\
-`Inspired by homes open to their natural settings, an architect designed a house on the Greek island of Corfu with minimal barriers from the “wild landscape.”`\
-https://nytimes.com/2025/07/11/realestate/corfu-greece-minimalist-concrete-house.html
-
-**From a Chaotic Childhood to the Control of a Michelin-Starred Kitchen**\
-`At his Chicago restaurant Ever, which played a supporting role in “The Bear,” the chef Curtis Duffy refines his story.`\
-https://nytimes.com/2025/07/11/dining/curtis-duffy-ever-chicago.html
 
