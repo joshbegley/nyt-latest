@@ -1,3 +1,7 @@
+**Cooper Flagg, Bronny James face off in Summer League as Mavericks take win**\
+`A packed-out Thomas & Mack Center got what it wanted in the second quarter of Thursday's Summer League game.`\
+https://nytimes.com/athletic/6487324/2025/07/10/cooper-flagg-bronny-james-summer-league/
+
 **‘And Just Like That …’ Season 3, Episode 7 Recap: Double Standards**\
 `Guiseppe’s mother has opinions about her son’s new relationship with Anthony. Carrie gets defensive about seeming to flirt with her neighbor.`\
 https://nytimes.com/2025/07/10/arts/television/and-just-like-that-recap-season-3-episode-7.html
