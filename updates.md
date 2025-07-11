@@ -1,3 +1,7 @@
+**As a Driver, Eduardo Barrichello Took a Long Route to the World Endurance Championship**\
+`He is the son of the former F1 racer Rubens Barrichello, who bought his son a go-kart at 9. Eduardo will now be driving an Aston Martin at São Paulo.`\
+https://nytimes.com/2025/07/11/sports/autoracing/eduardo-barrichello-wec.html
+
 **Sébastien Buemi, the Renaissance Man of Motorsports**\
 `He races in the World Endurance Championship, Formula E and is a development driver for Red Bull’s Formula 1 team.`\
 https://nytimes.com/2025/07/11/sports/autoracing/sebastien-buemi-driver.html
