@@ -1,3 +1,11 @@
+**He Didn’t Find Love on ‘Love Island.’ He Founded a Book Club Instead.**\
+`Jeremiah Brown asked his 2 million TikTok followers what to do after being voted off the hit series. The answer has him, and his fans, reading “The Song of Achilles.”`\
+https://nytimes.com/2025/07/11/books/jeremiah-brown-love-island-book-club.html
+
+**What Conservative Women Really Want**\
+`Three women write about careers, marriage and motherhood. Also: Laura Loomer’s clout with President Trump; learning from Zohran Mamdani.`\
+https://nytimes.com/2025/07/11/opinion/conservative-women.html
+
 **As a Driver, Eduardo Barrichello Took a Long Route to the World Endurance Championship**\
 `He is the son of the former F1 racer Rubens Barrichello, who bought his son a go-kart at 9. Eduardo will now be driving an Aston Martin at São Paulo.`\
 https://nytimes.com/2025/07/11/sports/autoracing/eduardo-barrichello-wec.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/science/earth-speeding-up-summer-days-shorter.htm
 **Netanyahu Ends Washington Trip Without a Gaza Truce**\
 `Benjamin Netanyahu, the Israeli prime minister, met several times with President Trump, amid rising hopes of a cease-fire in Gaza, but there are still obstacles to a truce with Hamas.`\
 https://nytimes.com/2025/07/11/world/middleeast/netanyahu-washington-gaza-talks.html
-
-**How bold tactics and an old-fashioned kick-off routine made Paris Saint-Germain fast starters**\
-`The European champions are an incredibly dangerous side early on in games - this is how it works`\
-https://nytimes.com/athletic/6487653/2025/07/11/psg-fast-starts-unusual-kick-off/
-
-**In Flash Flood Hotspots, Many Federal Meteorologist Positions Remain Unfilled**\
-`An analysis of National Weather Service job vacancies found that in more than a third of offices overseeing flash flood hotspots, one or more of three senior leadership roles are open.`\
-https://nytimes.com/interactive/2025/07/11/climate/flash-floods-nws-office-vacancies.html
 
