@@ -2,7 +2,7 @@
 `Retzlaff's departure follows a civil lawsuit in May — which was later withdrawn — accusing the quarterback of sexual assault and battery.`\
 https://nytimes.com/athletic/6489073/2025/07/11/jake-retzlaff-byu-departure-potential-suspension/
 
-**Fuel to Air India Plane That Crashed Was Cut Off After Takeoff, Report Says**\
+**Fuel to Air India Plane Was Cut Off Before Crash, Report Says**\
 `The focus on the fuel switches on Air India Flight 171 raised questions about the pilots’ actions.`\
 https://nytimes.com/2025/07/11/world/asia/air-india-crash-report.html
 
