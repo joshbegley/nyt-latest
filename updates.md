@@ -1,3 +1,15 @@
+**Palace sign Sosa from Ajax**\
+`The 27-year-old left-back has joined Palace in a £2million move after undergoing his medical on Monday.`\
+https://nytimes.com/athletic/6477572/2025/07/11/crystal-palace-sign-left-back-borna-sosa-from-ajax/
+
+**MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
+`It’s time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
+https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
+
+**College football's top 10 rivalries and favorite moments, chosen by our readers**\
+`We asked. You answered. Here are readers' picks for the best college football rivalries — and their favorite moments of rivalry drama.`\
+https://nytimes.com/athletic/6486724/2025/07/11/college-football-best-rivalries-fan-vote/
+
 **MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
 `Itâs time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
 https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
