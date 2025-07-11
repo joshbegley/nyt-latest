@@ -1,3 +1,7 @@
+**Plaintiffs' lawyers in House v. NCAA settlement to get roughly $750 million in fees**\
+`The landmark agreement will result in a new financial model that allows schools to directly share revenue with college athletes.`\
+https://nytimes.com/athletic/6489014/2025/07/11/ncaa-house-settlement-legal-fees/
+
 **Son of El Chapo Pleads Guilty to Sweeping Drug Charges**\
 `The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio Guzmán López’s father helped found.`\
 https://nytimes.com/2025/07/11/us/politics/el-chapo-son-pleads-guilty.html
