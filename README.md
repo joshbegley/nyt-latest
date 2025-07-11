@@ -1,3 +1,7 @@
+**As a Driver, Eduardo Barrichello Took a Long Route to the World Endurance Championship**\
+`He is the son of the former F1 racer Rubens Barrichello, who bought his son a go-kart at 9. Eduardo will now be driving an Aston Martin at São Paulo.`\
+https://nytimes.com/2025/07/11/sports/autoracing/eduardo-barrichello-wec.html
+
 **Sébastien Buemi, the Renaissance Man of Motorsports**\
 `He races in the World Endurance Championship, Formula E and is a development driver for Red Bull’s Formula 1 team.`\
 https://nytimes.com/2025/07/11/sports/autoracing/sebastien-buemi-driver.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487653/2025/07/11/psg-fast-starts-unusual-kick-off
 **In Flash Flood Hotspots, Many Federal Meteorologist Positions Remain Unfilled**\
 `An analysis of National Weather Service job vacancies found that in more than a third of offices overseeing flash flood hotspots, one or more of three senior leadership roles are open.`\
 https://nytimes.com/interactive/2025/07/11/climate/flash-floods-nws-office-vacancies.html
-
-**Police Investigate Burning of Migrant-Boat Effigy in Northern Ireland as a Hate Crime**\
-`An effigy of a boat containing mannequins of migrants was set alight in the village of Moygashel on Thursday, in an incident condemned by political and religious leaders as racist and threatening.`\
-https://nytimes.com/2025/07/11/world/europe/northern-ireland-bonfire-moygashel-migrant-boat.html
 
