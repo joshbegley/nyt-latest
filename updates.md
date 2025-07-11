@@ -1,3 +1,11 @@
+**Sierra Club’s Executive Director Is on Leave After a Rocky Tenure**\
+`Ben Jealous, who joined the environmental group in 2023, has clashed with some employees and the organization’s union.`\
+https://nytimes.com/2025/07/11/climate/ben-jealous-sierra-club.html
+
+**Physical Therapist Dies Inside Hyperbaric Chamber After It Catches Fire**\
+`Emergency personnel found the 43-year-old physical therapist dead inside the chamber at his Arizona health clinic, which offered oxygen therapy.`\
+https://nytimes.com/2025/07/11/us/physical-therapist-dead-hyperbaric-chamber-fire-arizona.html
+
 **Jake Retzlaff, facing possible suspension, announces departure from BYU**\
 `Retzlaff's departure follows a civil lawsuit in May — which was later withdrawn — accusing the quarterback of sexual assault and battery.`\
 https://nytimes.com/athletic/6489073/2025/07/11/jake-retzlaff-byu-departure-potential-suspension/
