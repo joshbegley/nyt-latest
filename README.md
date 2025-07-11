@@ -1,3 +1,11 @@
+**Dan Vladar should improve Flyers' goaltending — and could make Sam Ersson better, too**\
+`The 27-year-old signed a two-year, $6.7 million contract on July 1 and is a much-needed upgrade in net for the Flyers.`\
+https://nytimes.com/athletic/6488512/2025/07/11/flyers-goaltending-dan-vladar-sam-ersson/
+
+**Flashback: Your Weekly History Quiz, July 12, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/07/11/upshot/flashback.html
+
 **Former Nationals GM Mike Rizzo treating fans to drinks with a ‘Round on Riz’**\
 `To thank fans for his 19 seasons with the Washington Nationals, Mike Rizzo is treating locals to a "Round on Riz" on Monday.`\
 https://nytimes.com/athletic/6488490/2025/07/11/former-nationals-gm-mike-rizzo-treating-fans-to-drinks-with-a-round-on-riz/
@@ -29,13 +37,4 @@ https://nytimes.com/video/us/100000010277025/texas-flooding-missing-parents-sear
 **Wimbledon women's final odds, how to watch: Swiatek favored for her first grass win**\
 `Iga Świątek is the clear favorite to win Wimbledon against American Amanda Anisimova in a meeting of two first-time finalists.`\
 https://nytimes.com/athletic/6486653/2025/07/11/wimbledon-womens-final-anisimova-swiatek-odds-how-to-watch/
-
-**Bournemouth agree Petrovic transfer from Chelsea in £25m deal**\
-`The Serbia international was voted Strasbourg's supporters' player of the season after spending the 2024-25 campaign on loan in France.`\
-https://nytimes.com/athletic/6486339/2025/07/11/djordje-petrovic-transfer-bournemouth-chelsea/
-
-**Forest fans: How do you feel about possible Europa League promotion and a crazy 24 hours?**\
-`Has there ever been a more chaotic 24 hours in the modern history of Nottingham Forest?
-From discovering that Tottenham Hotspur had made a bid for Morgan Gibbs-White on Thursday, utilising a release clause that nobody knew about, within the hour it emerged Forest had revived their interest in Brentford’s Yoane Wissa.`\
-https://nytimes.com/athletic/6488502/2025/07/11/forest-fans-europa-league-promotion-gibbs-white-wissa-elanga/
 
