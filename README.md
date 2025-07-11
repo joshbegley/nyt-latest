@@ -1,10 +1,14 @@
+**Wimbledon semifinal halted in another incident of crowd member falling ill**\
+`There have been several incidents of play being stopped at this year’s Wimbledon championships due to spectators being taken ill.`\
+https://nytimes.com/athletic/6488175/2025/07/11/wimbledon-semifinal-between-carlos-alcaraz-and-taylor-fritz-stopped-twice-due-to-unwell-spectators/
+
 **Bodyguards Using Fitness App Revealed Locations of Swedish Leaders**\
 `Secret meetings and private holidays of the royal family and prime minister were inadvertently made public on Strava, which has raised security concerns in other instances.`\
 https://nytimes.com/2025/07/11/world/europe/strava-sweden-bodyguards-prime-minister.html
 
-**âRageâ Is a Wild Spanish Dramedy About Women Who Are Pushed Too Far**\
-`The behaviors are extreme and exciting, but the show itself isnât bleak. It is bright and funny, colorful and surprising.`\
-https://nytimes.com/2025/07/11/arts/television/rage-is-a-wild-spanish-dramedy-about-women-who-are-pushed-too-far.html
+**‘Rage’ Is a Wild Spanish Dramedy About Women Who Are Pushed Too Far**\
+`The behaviors are extreme and exciting, but the show itself isn’t bleak. It is bright and funny, colorful and surprising.`\
+https://nytimes.com/2025/07/11/arts/television/rage-hbo-max.html
 
 **Test Your Math Knowledge**\
 `Our series reveals the math hidden in familiar places. How much do you know about taxicab geometry, triangular numbers, the golden ratio and more?`\
@@ -14,11 +18,11 @@ https://nytimes.com/2025/07/11/science/test-your-math-knowledge.html
 `Owen Poindexter runs through the best available options on this week's fantasy baseball waiver wire, including several Red Sox options.`\
 https://nytimes.com/athletic/6486831/2025/07/11/fantasy-baseball-top-waiver-wire-adds-pickups-red-sox/
 
-**Pierre Audiâs Last Act: A Dreamerâs Ambition on the Opera Stage**\
-`This yearâs edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
+**Pierre Audi’s Last Act: A Dreamer’s Ambition on the Opera Stage**\
+`This year’s edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
 https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
 
-**Republicans Blame Canada for Wildfire Smoke âSuffocatingâ the U.S.**\
+**Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
 `Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
 https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-
 **Florida charges ex-Jags employee with 6 counts of state grand theft**\
 `Patel is currently serving a 6 1/2 year sentence after pleading guilty to federal charges of wire fraud and an illegal monetary transaction.`\
 https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-charges/
-
-**Our Best Halloumi Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/halloumi-recipes
 
