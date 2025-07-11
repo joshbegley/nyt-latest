@@ -1,3 +1,7 @@
+**Mark Snow, Who Conjured the ‘X-Files’ Theme, Is Dead at 78**\
+`It took a misplaced elbow, a quirk of Los Angeles geography and some whistling from his wife to produce one of television’s most memorable melodies.`\
+https://nytimes.com/2025/07/11/arts/music/mark-snow-dead.html
+
 **Noah Lyles is back — with a win, not a bang**\
 `The American ran 19.88sec in Monaco to beat rival Letsile Tebogo.`\
 https://nytimes.com/athletic/6489174/2025/07/11/noah-lyles-monaco-200m-back/
