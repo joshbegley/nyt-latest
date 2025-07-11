@@ -1,3 +1,27 @@
+**Camp Mystic Owners’ Legacy: ‘If You’re a Camper, You Know Who They Are’**\
+`For decades, Dick and Tweety Eastland presided over Camp Mystic with a kind of magisterial benevolence that alumni well past childhood still describe with awe.`\
+https://nytimes.com/2025/07/11/us/camp-mystic-texas-floods.html
+
+**Novak Djokovic plans to return to Wimbledon 'for sure' after semifinal loss to Jannik Sinner**\
+`Djokovic looked a step slow in Friday’s 6-3, 6-3, 6-4 defeat to Sinner after a painful fall in his quarterfinal win over Flavio Cobolli.`\
+https://nytimes.com/athletic/6488985/2025/07/11/novak-djokovic-jannik-sinner-wimbledon/
+
+**David Gergen, Washington Veteran Who Advised Four Presidents, Dies at 83**\
+`After serving in the government, he became a prominent political commentator. “Centrism doesn’t mean splitting the difference,” he said in 2020.`\
+https://nytimes.com/2025/07/11/us/politics/david-gergen-dead.html
+
+**Son of El Chapo Pleads Guilty to Sweeping Drug Charges**\
+`The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio Guzmán López’s father helped found.`\
+https://nytimes.com/2025/07/11/us/politics/el-chapo-son-pleads-guilty.html
+
+**Rubio’s Cuts at State Department Demote Longtime U.S. Values**\
+`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to America’s standing and influence could be high.`\
+https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
+
+**Evidence Supports War Crimes Allegations in Darfur, I.C.C. Prosecutor Says**\
+`The International Criminal Court has “reasonable grounds to believe” war crimes and crimes against humanity were committed, the court’s deputy prosecutor said.`\
+https://nytimes.com/2025/07/11/world/africa/sudan-darfur-war-crimes.html
+
 **Camp Mystic Ownersâ Legacy: âIf Youâre a Camper, You Know Who They Areâ**\
 `For decades, Dick and Tweety Eastland presided over Camp Mystic with a kind of magisterial benevolence that alumni well past childhood still describe with awe.`\
 https://nytimes.com/2025/07/11/us/camp-mystic-texas-floods.html
