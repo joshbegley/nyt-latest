@@ -1,3 +1,7 @@
+**Trump Says NATO Countries Will Buy Weapons to Give to Ukraine**\
+`If the plan is finalized, it would allow critical aid to flow to Ukraine as it endures one of Russia’s heaviest assaults of the war.`\
+https://nytimes.com/2025/07/11/world/europe/trump-nato-weapons-ukraine.html
+
 **Rebekah Del Rio, Mournful Singer of ‘Mulholland Drive’ Fame, Dies at 57**\
 `Her pivotal role performing a Spanish-language cover of Roy Orbison’s “Crying” in the 2001 David Lynch movie raised her profile, but her career was marked by misfortune.`\
 https://nytimes.com/2025/07/11/arts/music/rebekah-del-rio-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488218/2025/07/11/mlb-futures-game-2025-hitters/
 **Jannik Sinner sets up Wimbledon final against Carlos Alcaraz by dispatching Novak Djokovic**\
 `The world No. 1 rolled past a compromised version of the seven-time champion as the shadows fell over Centre Court`\
 https://nytimes.com/athletic/6488586/2025/07/11/tennis-wimbledon-alcaraz-sinner-final-djokovic/
-
-**Judge Signals She Will Protect Abrego Garcia From Hasty Second Deportation**\
-`The judge, Paula Xinis, said some legal safeguard was needed because the Trump administration had already shown in this and other deportation cases that it could not be trusted.`\
-https://nytimes.com/2025/07/11/us/politics/abrego-garcia-deportation-judge-protection-trump.html
 
