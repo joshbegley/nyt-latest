@@ -1,3 +1,19 @@
+**Myriad Red Sox, Cameron Schlittler and more top fantasy baseball waiver wire options**\
+`Owen Poindexter runs through the best available options on this week's fantasy baseball waiver wire, including several Red Sox options.`\
+https://nytimes.com/athletic/6486831/2025/07/11/fantasy-baseball-top-waiver-wire-adds-pickups-red-sox/
+
+**Pierre Audi’s Last Act: A Dreamer’s Ambition on the Opera Stage**\
+`This year’s edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
+https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
+
+**Cooper Flagg's uneven NBA debut brought out stars and fans in Las Vegas**\
+`There hasn't been an American player with so much hype in more than a decade, at least since Flagg's new teammate Anthony Davis.`\
+https://nytimes.com/athletic/6486753/2025/07/11/cooper-flagg-nba-summer-league-debut/
+
+**Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
+`The 25-year-old midfielder has a £60million release clause in his contract at the City Ground.`\
+https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
+
 **Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
 `Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
 https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
