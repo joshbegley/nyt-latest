@@ -1,3 +1,11 @@
+**The Athletic FC: From pro player to £28m drugs conspirator, Spurs turn to £60m Gibbs-White**\
+`Today in TAFC: The former pro who became a drugs conspirator and all the transfer latest as Spurs look to spend £115m.`\
+https://nytimes.com/athletic/6487725/2025/07/11/cassidy-drugs-conspirator-tottenham-transfers-gibbs-white/
+
+**What UEFA’s decision could mean for finances of Crystal Palace and Nottingham Forest**\
+`Lyon's successful appeal of their relegation means UEFA must now decide whether to admit Palace to the Europa League.`\
+https://nytimes.com/athletic/6486211/2025/07/11/palace-forest-europa-league-uefa/
+
 **Will Brazil win a ninth Copa América Femenina title in Ecuador?**\
 `Everything you need to know ahead of South America's biggest tournament and what it means for the 2027 Women's World Cup in Brazil`\
 https://nytimes.com/athletic/6487313/2025/07/11/copa-america-femenina-2025-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6486067/2025/07/11/fridolina-rolfo-barcelona-transf
 **How the return of college football’s video game sparked a YouTube cottage industry**\
 `Since the return of the EA Sports College Football video game series, a wave of YouTubers have found success creating content for new fans.`\
 https://nytimes.com/athletic/6479456/2025/07/11/college-football-video-game-youtube/
-
-**Which NHL team can make the best lineup with no repeated initials?**\
-`Slow-news summer is here, so let's make the best six-man starting lineup possible for your favorite team without repeating any initials.`\
-https://nytimes.com/athletic/6481309/2025/07/11/nhl-team-best-lineup-players-offseason-initials/
-
-**Forward thinking but with defensive bite: What Morgan Gibbs-White would bring to Tottenham**\
-`Moving for Gibbs-White from Forest signals that Thomas Frank is planning to lean into the counter-attacking potential in his new side`\
-https://nytimes.com/athletic/6485742/2025/07/11/morgan-gibbs-white-tottenham-analysis/
 
