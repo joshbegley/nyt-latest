@@ -1,3 +1,11 @@
+**Judge Orders Los Angeles Police to Stop Shooting Projectiles at Journalists**\
+`Los Angeles Police Department officers fired foam projectiles and flash-bang devices at reporters and photographers who were covering the immigration protests in June.`\
+https://nytimes.com/2025/07/11/us/judge-orders-los-angeles-police-to-stop-shooting-projectiles-at-journalists.html
+
+**Why Yankees’ Max Fried won't pitch in the All-Star Game**\
+`Fried taking the mound in the first inning at Truist Park in Atlanta would have been a made-for-TV moment. Alas, it won't happen.`\
+https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all-star-game/
+
 **Man Had 14 Toucans Stashed in His Volkswagen Dashboard, U.S. Says**\
 `Carlos Abundez, 35, is facing federal smuggling charges after U.S. Customs and Border Protection officers made the discovery. The birds, a threatened species, were in stable condition.`\
 https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
