@@ -1,3 +1,7 @@
+**Two Dozen Hospitalized in Mass Drug Overdose in Baltimore**\
+`An unusually large number of overdoses sent crews searching alleys and homes for victims. Officials have not said what type of drug was involved.`\
+https://nytimes.com/2025/07/11/us/baltimore-drug-overdoses.html
+
 **300,000 New Yorkers Could Lose Food-Stamp Benefits After Trump’s Cuts**\
 `The president’s sweeping new law includes work requirements for more people and less coverage for some noncitizens. Republicans argue the cuts are needed to tackle waste and fraud.`\
 https://nytimes.com/2025/07/11/nyregion/nyc-snap-food-stamps-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010279458/ice-raid-california-cannabis-farm.h
 **Ronny Chieng Ponders Iran’s Threat to Kill a Sunbathing Trump**\
 `The “Daily Show” host called the threat “an attack on all of America, because now we all have to picture him with his bare belly glistening in the sun.”`\
 https://nytimes.com/2025/07/11/arts/television/ronny-chieng-iran-trump-threat.html
-
-**What to Know About the Rush for Rare Earth Metals in War-Torn Myanmar**\
-`In the chaos of war, there’s nothing to stop Chinese firms from ravaging the landscape and extracting the minerals, which end up in China.`\
-https://nytimes.com/2025/07/11/world/asia/rare-earths-boom-myanmar.html
 

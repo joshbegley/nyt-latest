@@ -1,3 +1,19 @@
+**300,000 New Yorkers Could Lose Food-Stamp Benefits After Trump’s Cuts**\
+`The president’s sweeping new law includes work requirements for more people and less coverage for some noncitizens. Republicans argue the cuts are needed to tackle waste and fraud.`\
+https://nytimes.com/2025/07/11/nyregion/nyc-snap-food-stamps-trump.html
+
+**Does Brooklyn Need a New Waterfront Neighborhood?**\
+`The risks and opportunities of turning 122 industrial acres over to developers.`\
+https://nytimes.com/2025/07/11/nyregion/brooklyn-marine-terminal-development.html
+
+**‘Madea’s Destination Wedding’ Review: Hellur, Bahamas**\
+`Tyler Perry returns as a series of characters, and this time, the real struggle for the family is boarding a plane.`\
+https://nytimes.com/2025/07/11/movies/madeas-destination-wedding-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/11/crosswords/spelling-bee-forum.html
+
 **Cristian Romero is back at Tottenham... but for how long?**\
 `The defender's future has been cause for concern among Spurs fans, but having returned to training, could he be sticking around after all?`\
 https://nytimes.com/athletic/6482950/2025/07/11/cristian-romero-tottenham-atletico/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/11/arts/television/ronny-chieng-iran-trump-threat.ht
 **What to Know About the Rush for Rare Earth Metals in War-Torn Myanmar**\
 `In the chaos of war, there’s nothing to stop Chinese firms from ravaging the landscape and extracting the minerals, which end up in China.`\
 https://nytimes.com/2025/07/11/world/asia/rare-earths-boom-myanmar.html
-
-**The Wartime Mining Boom Exporting Rare Earths, and Toxins**\
-`Unregulated activity led by Chinese enterprises in conflict-ravaged Myanmar is creating an environmental calamity in neighboring Thailand.`\
-https://nytimes.com/2025/07/11/world/asia/myanmar-mining-thailand-china.html
-
-**Friday Briefing: Iran Has Some Uranium Left, Israel Says**\
-`Plus, toads with psychedelic powers.`\
-https://nytimes.com/2025/07/11/briefing/iran-enriched-uranium-israel-ukraine-spy-france-britain-defense.html
-
-**The New York Times in Print for Friday, July 11, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/11/todays-new-york-times
-
-**The Dollar’s in Trouble, but Not for the Reason You Think**\
-`New payment systems allow users and banks to bypass the U.S. currency and sanctions.`\
-https://nytimes.com/2025/07/11/opinion/dollar-money-currency-payment.html
 

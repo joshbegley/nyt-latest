@@ -1,3 +1,19 @@
+**300,000 New Yorkers Could Lose Food-Stamp Benefits After Trump’s Cuts**\
+`The president’s sweeping new law includes work requirements for more people and less coverage for some noncitizens. Republicans argue the cuts are needed to tackle waste and fraud.`\
+https://nytimes.com/2025/07/11/nyregion/nyc-snap-food-stamps-trump.html
+
+**Does Brooklyn Need a New Waterfront Neighborhood?**\
+`The risks and opportunities of turning 122 industrial acres over to developers.`\
+https://nytimes.com/2025/07/11/nyregion/brooklyn-marine-terminal-development.html
+
+**‘Madea’s Destination Wedding’ Review: Hellur, Bahamas**\
+`Tyler Perry returns as a series of characters, and this time, the real struggle for the family is boarding a plane.`\
+https://nytimes.com/2025/07/11/movies/madeas-destination-wedding-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/11/crosswords/spelling-bee-forum.html
+
 **Cristian Romero is back at Tottenham... but for how long?**\
 `The defender's future has been cause for concern among Spurs fans, but having returned to training, could he be sticking around after all?`\
 https://nytimes.com/athletic/6482950/2025/07/11/cristian-romero-tottenham-atletico/
