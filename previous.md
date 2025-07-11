@@ -1,5 +1,5 @@
 **Meet the French Game Show Contestant Who Won 646 Times in a Row (and 23 Cars)**\
-`He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. âItâs a lot,â he acknowledged.`\
+`He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. “It’s a lot,” he acknowledged.`\
 https://nytimes.com/2025/07/11/arts/television/france-game-show.html
 
 **How to watch Sukup IndyCar Race Weekend, the only doubleheader of the 2025 season**\
@@ -26,12 +26,12 @@ https://nytimes.com/2025/07/11/us/politics/trump-texas-flood-sites.html
 `We asked, and over 800 of you answered.`\
 https://nytimes.com/2025/07/11/well/grief-grieving-rituals.html
 
-**What Supermanâs Pet Owes to a Badly Behaved Rescue Dog**\
-`For the furry sidekick, Krypto, in âSuperman,â the director James Gunn found inspiration â and a physical model â in his own unruly pet.`\
+**What Superman’s Pet Owes to a Badly Behaved Rescue Dog**\
+`For the furry sidekick, Krypto, in “Superman,” the director James Gunn found inspiration — and a physical model — in his own unruly pet.`\
 https://nytimes.com/2025/07/11/movies/superman-krypto-dog-james-gunn.html
 
-**Behind Trumpâs Decision to Tax Brazil to Save Bolsonaro**\
-`Right-wing Brazilians wanted sanctions against the judge prosecuting Brazilâs former president. President Trump opted for something far bigger â tariffs.`\
+**Behind Trump’s Decision to Tax Brazil to Save Bolsonaro**\
+`Right-wing Brazilians wanted sanctions against the judge prosecuting Brazil’s former president. President Trump opted for something far bigger — tariffs.`\
 https://nytimes.com/2025/07/11/world/americas/brazil-trump-tariffs.html
 
 **The New York Times News Quiz, July 11, 2024**\

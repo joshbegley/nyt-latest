@@ -1,4 +1,16 @@
 **Meet the French Game Show Contestant Who Won 646 Times in a Row (and 23 Cars)**\
+`He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. “It’s a lot,” he acknowledged.`\
+https://nytimes.com/2025/07/11/arts/television/france-game-show.html
+
+**What Superman’s Pet Owes to a Badly Behaved Rescue Dog**\
+`For the furry sidekick, Krypto, in “Superman,” the director James Gunn found inspiration — and a physical model — in his own unruly pet.`\
+https://nytimes.com/2025/07/11/movies/superman-krypto-dog-james-gunn.html
+
+**Behind Trump’s Decision to Tax Brazil to Save Bolsonaro**\
+`Right-wing Brazilians wanted sanctions against the judge prosecuting Brazil’s former president. President Trump opted for something far bigger — tariffs.`\
+https://nytimes.com/2025/07/11/world/americas/brazil-trump-tariffs.html
+
+**Meet the French Game Show Contestant Who Won 646 Times in a Row (and 23 Cars)**\
 `He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. âItâs a lot,â he acknowledged.`\
 https://nytimes.com/2025/07/11/arts/television/france-game-show.html
 
