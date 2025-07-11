@@ -1,3 +1,7 @@
+**Trump Nominates ‘Alpha Male’ Influencer to Be Ambassador to Malaysia**\
+`Nick Adams rose to prominence with a hypermasculine identity and crass jokes about Hooters. President Trump named him ambassador to a country of 35 million people.`\
+https://nytimes.com/2025/07/10/us/politics/nick-adams-ambassador-malaysia-trump.html
+
 **Yankees' Jazz Chisholm Jr. rounds out Home Run Derby field as final member**\
 `Chisholm joins a field that will also have Ronald Acuña Jr., Cal Raleigh, James Wood and Byron Buxton, among others.`\
 https://nytimes.com/athletic/6487188/2025/07/10/2025-home-run-derby-jazz-chisholm-jr/

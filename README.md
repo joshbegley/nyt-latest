@@ -1,3 +1,7 @@
+**Pelicans, Herb Jones agree to 3-year extension for an estimated $68M: Source**\
+`The former second-round pick has a new contract that includes a player option for the 2029-30 season.`\
+https://nytimes.com/athletic/6487241/2025/07/10/pelicans-herb-jones-extension/
+
 **Trump Nominates ‘Alpha Male’ Influencer to Be Ambassador to Malaysia**\
 `Nick Adams rose to prominence with a hypermasculine identity and crass jokes about Hooters. President Trump named him ambassador to a country of 35 million people.`\
 https://nytimes.com/2025/07/10/us/politics/nick-adams-ambassador-malaysia-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-ca
 **State Department to Soon Begin Mass Layoffs**\
 `Secretary of State Marco Rubio’s plan to downsize a “bloated” department had been on hold after a court ruling.`\
 https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
-
-**Justice Dept. Promised to Prosecute Abrego Garcia. Now It’s Not So Clear.**\
-`In the case of Kilmar Armando Abrego Garcia, the administration appears primarily concerned with ensuring that a man it has described as a “dangerous illegal alien” never walks free on U.S. soil.`\
-https://nytimes.com/2025/07/10/us/politics/abrego-garcia-doj-trump.html
 
