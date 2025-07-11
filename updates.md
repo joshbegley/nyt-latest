@@ -1,3 +1,7 @@
+**Odyssey selling Happy Gilmore 2 hockey stick putter for $500**\
+`The long-awaited sequel to Happy Gilmore comes out later this month`\
+https://nytimes.com/athletic/6488111/2025/07/11/happy-gilmore-putter-odyssey/
+
 **Celebrating Humanity, Stubbornly, at Europe’s Photography Mecca**\
 `Since the 1970s, the Rencontres d’Arles has been the place to debut the art form’s latest developments. This year’s edition had a more retro feel.`\
 https://nytimes.com/2025/07/11/arts/arles-france-rencontres-de-la-photographie.html
