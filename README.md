@@ -1,3 +1,11 @@
+**What to Know About the Rush for Rare Earth Metals in War-Torn Myanmar**\
+`In the chaos of war, there’s nothing to stop Chinese firms from ravaging the landscape and extracting the minerals, which end up in China.`\
+https://nytimes.com/2025/07/11/world/asia/rare-earths-boom-myanmar.html
+
+**The Wartime Mining Boom Exporting Rare Earths, and Toxins**\
+`Unregulated activity led by Chinese enterprises in conflict-ravaged Myanmar is creating an environmental calamity in neighboring Thailand.`\
+https://nytimes.com/2025/07/11/world/asia/myanmar-mining-thailand-china.html
+
 **Friday Briefing: Iran Has Some Uranium Left, Israel Says**\
 `Plus, toads with psychedelic powers.`\
 https://nytimes.com/2025/07/11/briefing/iran-enriched-uranium-israel-ukraine-spy-france-britain-defense.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6485419/2025/07/11/tour-de-france-time-trial-day-wh
 **Mohammed Kudus is gone but Crysencio Summerville's West Ham career might be about to start in earnest**\
 `As one winger exits the London Stadium, another is beginning his bid to make up for lost time in claret and blue`\
 https://nytimes.com/athletic/6482360/2025/07/11/crysencio-summerville-west-ham-mohammed-kudus/
-
-**Maxim De Cuyper gives Brighton three quality left-backs - and a headache**\
-`The Belgian summer signing joins Pervis Estupinan and Ferdi Kadioglu in a packed left-back department at Brighton`\
-https://nytimes.com/athletic/6477567/2025/07/11/maxim-de-cuyper-estupinan-kadioglu-brighton/
-
-**Brentford's Mikkel Damsgaard: 'In the Premier League, people are beasts'**\
-`The Brentford playmaker tells The Athletic how he has adapted to life in English football`\
-https://nytimes.com/athletic/6485202/2025/07/11/brentfords-mikkel-damsgaard-in-the-premier-league-people-are-beasts/
 
