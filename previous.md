@@ -1,6 +1,6 @@
 **In South Carolina, Newsom Tests the Presidential Waters (Without Saying So)**\
 `Gov. Gavin Newsom of California met with Democratic voters in an early primary state that has become pivotal in presidential races.`\
-https://nytimes.com/2025/07/10/us/politics/in-south-carolina-newsom-tests-the-presidential-waters-without-saying-so.html
+https://nytimes.com/2025/07/10/us/politics/newsom-south-carolina-presidential.html
 
 **Trump administration expands crackdown on undocumented immigrants’ access to federal benefits.**\
 `By Madeleine Ngo`\
