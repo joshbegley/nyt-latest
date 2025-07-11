@@ -1,3 +1,7 @@
+**Myriad Red Sox, Cameron Schlittler and more top fantasy baseball waiver wire options**\
+`Owen Poindexter runs through the best available options on this week's fantasy baseball waiver wire, including several Red Sox options.`\
+https://nytimes.com/athletic/6486831/2025/07/11/fantasy-baseball-top-waiver-wire-adds-pickups-red-sox/
+
 **Pierre Audi’s Last Act: A Dreamer’s Ambition on the Opera Stage**\
 `This year’s edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
 https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
@@ -5,6 +9,10 @@ https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
 **Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
 `Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
 https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
+
+**Cooper Flagg's uneven NBA debut brought out stars and fans in Las Vegas**\
+`There hasn't been an American player with so much hype in more than a decade, at least since Flagg's new teammate Anthony Davis.`\
+https://nytimes.com/athletic/6486753/2025/07/11/cooper-flagg-nba-summer-league-debut/
 
 **Forest sign Cunha from Botafogo**\
 `The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/theater/avignon-festival-heat-climate-change.html
 **The 7.13.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/11/the-7132025-issue
-
-**Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 18 at 9 a.m. Eastern. This week’s winners will be announced by July 29.`\
-https://nytimes.com/2025/07/11/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
-
-**How the $1,000 ‘Trump Accounts’ for Newborns Will Work**\
-`The payments, part of the new domestic policy law, are for U.S. citizens born this year through 2028. The idea is that the money in the accounts will have many years to grow.`\
-https://nytimes.com/2025/07/11/your-money/trump-accounts-newborns.html
 
