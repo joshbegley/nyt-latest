@@ -1,3 +1,7 @@
+**Fantasy bullpen report featuring first-half all-stars and rising star Grant Taylor**\
+`Greg Jewett names his first-half relief pitching all-stars and also shares his desire for rising star Grant Taylor to see more save chances.`\
+https://nytimes.com/athletic/6486118/2025/07/11/fantasy-bullpen-report-first-half-all-stars-grant-taylor/
+
 **Skydance Is in Early Talks to Acquire The Free Press**\
 `David Ellison, the founder of Skydance, and Bari Weiss, the co-founder of The Free Press, are attending the annual Allen & Co. conference in Sun Valley this week.`\
 https://nytimes.com/2025/07/11/business/free-press-skydance-acquisition-talks.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6488502/2025/07/11/forest-fans-europa-league-promot
 **Mets prospect Brandon Sproat back on track with 18-inning scoreless streak**\
 `After deciding to throw everything as hard as he could, the Mets' former top-rated prospect put some sizzle back in his performance.`\
 https://nytimes.com/athletic/6488469/2025/07/11/mets-prospect-brandon-sproat-rotation/
-
-**Chelsea's Fernandez says heat at CWC games 'very dangerous'**\
-`Fernandez has joined the voices who have called on FIFA to consider changes ahead of next summer's men's World Cup.`\
-https://nytimes.com/athletic/6488289/2025/07/11/club-world-cup-heat-chelsea-fernandez/
 
