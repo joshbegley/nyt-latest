@@ -1,3 +1,7 @@
+**Vast Wildfires Force Manitoba to Declare Second Emergency This Year**\
+`The amount of land burned this year is on pace to be the most since 1994, as 100 blazes burned on Friday across the central Canadian province.`\
+https://nytimes.com/2025/07/11/world/americas/manitoba-wildfires-2025.html
+
 **Jannik Sinner, Novak Djokovic and Riccardo Piatti, the coach who knows them both**\
 `Djokovic and Sinner's similarities make their matches especially compelling. For the coach who taught them both, it is no surprise.`\
 https://nytimes.com/athletic/6486451/2025/07/11/novak-djokovic-jannik-sinner-riccardo-piatti-coach-interview/
