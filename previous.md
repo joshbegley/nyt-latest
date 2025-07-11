@@ -1,40 +1,40 @@
-**Meet the French Game Show Contestant Who Won 646 Times in a Row (and 23 Cars)**\
-`He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. “It’s a lot,” he acknowledged.`\
-https://nytimes.com/2025/07/11/arts/television/france-game-show.html
+**MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
+`It’s time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
+https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
 
-**How to watch Sukup IndyCar Race Weekend, the only doubleheader of the 2025 season**\
-`The "fastest short track on the planet" will host the Synk 275 and the Farm to Finish 275, offering Josef Newgarden a chance to bounce back.`\
-https://nytimes.com/athletic/6487366/2025/07/11/indycar-iowa-speedway-doubleheader-how-to-watch-picks-2025/
+**MLB trade deadline watch: Bubble teams have execs prepared for slow-developing market**\
+`The amount of teams hovering near contention will make for a slow-developing market, multiple executives said.`\
+https://nytimes.com/athletic/6487055/2025/07/11/mlb-trade-deadline-watch-bubble-teams-slow-developing-market/
 
-**The New York Times International Edition in Print for Saturday, July 12, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/11/todays-new-york-times-international-edition
+**From aspiring F1 driver to a life in the spotlight. The rise and fall of Christian Horner**\
+`Christian Horner has been left to digest his shock departure after 20 years at the helm of Red Bull Racing`\
+https://nytimes.com/athletic/6485684/2025/07/11/christian-horner-profile-red-bull-exit-f1/
 
-**How to watch Dream at Fever: Can Caitlin Clark, Indiana get back on track?**\
-`The Fever are sliding as we approach the WNBA season's halfway point. Can Caitlin Clark help turn things around against the Atlanta Dream?`\
-https://nytimes.com/athletic/6486990/2025/07/11/wnba-caitlin-clark-dream-vs-fever-how-to-watch/
+**Carlos Alcaraz's juggling routine is more than a novelty. It's an ideal warmup**\
+`What may seem like a basic exercise is actually helping us plan our next motor function.`\
+https://nytimes.com/athletic/6485883/2025/07/11/carlos-alcaraz-juggling-wimbledon-tennis/
 
-**Why Does My Mind Keep Thinking That?**\
-`The psychiatrist Mark Epstein shares his insights about the mind after decades of working with patients and practicing Buddhism.`\
-https://nytimes.com/2025/07/11/opinion/ezra-klein-podcast-mark-epstein.html
+**Braves takeaways: Trade whispers, offensive woes, Spencer Strider progressing but not pleased**\
+`Strider has allowed three or fewer earned runs in his past seven starts, posting a 3.16 ERA in that stretch after opening the season 0-5.`\
+https://nytimes.com/athletic/6487595/2025/07/11/braves-athletics-takeaways-spencer-strider/
 
-**Trumps to Visit Texas Flood Sites, Where Search for Missing and Dead Continues**\
-`The president and the first lady were set to tour areas devastated by flooding in Central Texas. The administration has faced scrutiny over its level of preparedness and its disaster response.`\
-https://nytimes.com/2025/07/11/us/politics/trump-texas-flood-sites.html
+**Yankees turned this catcher into a pitcher last month. He's already touched 100 mph**\
+`In his fourth bullpen session, Gomez asked his coaches if, one time, he could just let it rip. The radar gun stunned everyone.`\
+https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-prospect-pitcher/
 
-**Readers Share the Unconventional Ways They Grieve**\
-`We asked, and over 800 of you answered.`\
-https://nytimes.com/2025/07/11/well/grief-grieving-rituals.html
+**NWSL stars Racheal Kundananji, Barbra Banda supercharge Zambia's attack at women's AFCON**\
+`The 25-year-old pair has combined to score every Zambia goal at WAFCON 2025`\
+https://nytimes.com/athletic/6487362/2025/07/11/zambian-nwsl-racheal-kundananji-barbra-banda-wafcon/
 
-**What Superman’s Pet Owes to a Badly Behaved Rescue Dog**\
-`For the furry sidekick, Krypto, in “Superman,” the director James Gunn found inspiration — and a physical model — in his own unruly pet.`\
-https://nytimes.com/2025/07/11/movies/superman-krypto-dog-james-gunn.html
+**How Will Vest went from Rule 5 castoff to lifeblood of the Tigers' bullpen**\
+`Once a college shortstop, Will Vest was demoted at some point in each of his pro seasons until last year. `\
+https://nytimes.com/athletic/6486008/2025/07/11/tigers-will-vest-bullpen/
 
-**Behind Trump’s Decision to Tax Brazil to Save Bolsonaro**\
-`Right-wing Brazilians wanted sanctions against the judge prosecuting Brazil’s former president. President Trump opted for something far bigger — tariffs.`\
-https://nytimes.com/2025/07/11/world/americas/brazil-trump-tariffs.html
+**College football's top 10 rivalries and favorite moments, chosen by our readers**\
+`We asked. You answered. Here are readers' picks for the best college football rivalries — and their favorite moments of rivalry drama.`\
+https://nytimes.com/athletic/6486724/2025/07/11/college-football-best-rivalries-fan-vote/
 
-**The New York Times News Quiz, July 11, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/07/11/briefing/trump-tariffs-texas-flooding-news-quiz.html
+**How Shane van Gisbergen has quickly become NASCAR's best road racer**\
+`The New Zealand native in his rookie NASCAR season is on another level on road courses than any other driver. Here's how he does it.`\
+https://nytimes.com/athletic/6483441/2025/07/11/shane-van-gisbergen-nascar-road-courses/
 
