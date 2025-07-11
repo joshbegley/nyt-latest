@@ -1,3 +1,7 @@
+**Emmanuel-Thomas released on parole after serving just ten months of four-year jail sentence**\
+`The former Arsenal player had been jailed for his involvement in an attempt to smuggle 60 kilograms of cannabis into the United Kingdom.`\
+https://nytimes.com/athletic/6488510/2025/07/11/jay-emmanuel-thomas-released-on-parole/
+
 **Camp Mystic Owners’ Legacy: ‘If You’re a Camper, You Know Who They Are’**\
 `For decades, Dick and Tweety Eastland presided over Camp Mystic with a kind of magisterial benevolence that alumni well past childhood still describe with awe.`\
 https://nytimes.com/2025/07/11/us/camp-mystic-texas-floods.html
