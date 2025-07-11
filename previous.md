@@ -1,3 +1,15 @@
+**Forest sign Cunha from Botafogo**\
+`The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
+https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-jair-cunha-from-botafogo/
+
+**Florida charges ex-Jaguars employee Amit Patel with 6 counts of state grand theft**\
+`Patel is currently serving a 6 1/2 year sentence after pleading guilty to federal charges of wire fraud and an illegal monetary transaction.`\
+https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-charges/
+
+**Our Best Halloumi Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/halloumi-recipes
+
 **Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
 `The 25-year-old midfielder has a a £60million release clause in his contract at the City Ground.`\
 https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/11/business/stock-market-melt-up-downturn.html
 **What Should Happen When You Spill Blueberries at the Store?**\
 `A ruling on a moral dilemma at the supermarket.`\
 https://nytimes.com/interactive/2025/07/11/magazine/spilled-groceries-hodgman-quiz.html
-
-**Madueke given permission by Chelsea to undergo Arsenal medical**\
-`An agreement has been reached on a £52million deal while personal terms were previously agreed on a five-year contract.`\
-https://nytimes.com/athletic/6487723/2025/07/11/arsenal-noni-madueke-transfer-chelsea/
-
-**The art and science of tennis rackets and strings at Wimbledon**\
-`Over 6,000 restrings, tiny variances in string tension and customized logos: How Wimbledon gets its stars' rackets ready for play.`\
-https://nytimes.com/athletic/6485255/2025/07/11/tennis-rackets-pro-set-ups-grand-slams-wimbledon/
-
-**Germany Takes an Unassuming Approach to Tax Cuts, in Contrast to Trump**\
-`Chancellor Friedrich Merz will pass an early plank of his domestic agenda into law on Friday, grounded in classical economic arguments.`\
-https://nytimes.com/2025/07/11/world/europe/germany-economy-tax-cuts.html
 

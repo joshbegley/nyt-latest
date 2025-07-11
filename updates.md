@@ -1,3 +1,15 @@
+**Forest sign Cunha from Botafogo**\
+`The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
+https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-jair-cunha-from-botafogo/
+
+**Florida charges ex-Jaguars employee Amit Patel with 6 counts of state grand theft**\
+`Patel is currently serving a 6 1/2 year sentence after pleading guilty to federal charges of wire fraud and an illegal monetary transaction.`\
+https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-charges/
+
+**Our Best Halloumi Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/halloumi-recipes
+
 **Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
 `The 25-year-old midfielder has a a £60million release clause in his contract at the City Ground.`\
 https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
