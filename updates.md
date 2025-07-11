@@ -1,3 +1,11 @@
+**Why the Texas Flood Site Didn’t Have Warning Sirens**\
+`Officials in Kerr County made several attempts over the past decade to get funds for a flood warning system, but those applications were rejected. Christopher Flavelle, a reporter for The New York Times, breaks down what went wrong.`\
+https://nytimes.com/video/us/100000010277667/why-the-texas-flood-site-didnt-have-warning-sirens.html
+
+**The Trump administration expands its crackdown on undocumented immigrants’ access to federal benefits.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federal-benefits
+
 **In South Carolina, Newsom Tests the Presidential Waters (Without Saying So)**\
 `Gov. Gavin Newsom of California met with Democratic voters in an early primary state that has become pivotal in presidential races.`\
 https://nytimes.com/2025/07/10/us/politics/newsom-south-carolina-presidential.html

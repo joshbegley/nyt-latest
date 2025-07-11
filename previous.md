@@ -1,8 +1,12 @@
+**Why the Texas Flood Site Didn’t Have Warning Sirens**\
+`Officials in Kerr County made several attempts over the past decade to get funds for a flood warning system, but those applications were rejected. Christopher Flavelle, a reporter for The New York Times, breaks down what went wrong.`\
+https://nytimes.com/video/us/100000010277667/why-the-texas-flood-site-didnt-have-warning-sirens.html
+
 **In South Carolina, Newsom Tests the Presidential Waters (Without Saying So)**\
 `Gov. Gavin Newsom of California met with Democratic voters in an early primary state that has become pivotal in presidential races.`\
 https://nytimes.com/2025/07/10/us/politics/newsom-south-carolina-presidential.html
 
-**Trump administration expands crackdown on undocumented immigrants’ access to federal benefits.**\
+**The Trump administration expands its crackdown on undocumented immigrants’ access to federal benefits.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federal-benefits
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6487188/2025/07/10/2025-home-run-derby-jazz-chishol
 **Chargers RB Najee Harris suffers eye injury in fireworks accident**\
 `Harris' agent said the 2021 first-round pick "is fully expected to be ready for the upcoming NFL season."`\
 https://nytimes.com/athletic/6487158/2025/07/10/najee-harris-accident-injury-fireworks-chargers/
-
-**Texas County Flagged Need for Flood Alarm Months Before Tragedy**\
-`Kerr County repeatedly failed to secure a warning system, even as local officials remained aware of the risks and as billions of dollars were available for similar projects.`\
-https://nytimes.com/2025/07/10/us/politics/texas-flood-alarm-system.html
 
