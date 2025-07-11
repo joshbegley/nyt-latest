@@ -1,3 +1,15 @@
+**Refined, Freaky, Fabulous: 20 Unforgettable Looks at Couture Week**\
+`They included glittery blood, metallic masks and a beating heart.`\
+https://nytimes.com/2025/07/11/style/paris-couture-week-best-looks.html
+
+**Why was Lord's, the home of cricket, decked in red for day two of the Test?**\
+`Players from both sides wore red before play on day two to mark Red For Ruth Day in aid of the Ruth Strauss Foundation`\
+https://nytimes.com/athletic/6487941/2025/07/11/ruth-strauss-cricket-lords-england-india/
+
+**The Windup: Fresh lineup for Home Run Derby**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6488226/2025/07/11/home-run-derby-field-the-windup/
+
 **Wimbledon semifinal halted in another incident of crowd member falling ill**\
 `There have been several incidents of play being stopped at this year’s Wimbledon championships due to spectators being taken ill.`\
 https://nytimes.com/athletic/6488175/2025/07/11/tennis-wimbledon-semifinal-stopped-hot-weather/
