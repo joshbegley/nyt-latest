@@ -1,3 +1,11 @@
+**Padres takeaways: An untenable catching situation, Ethan Salas update, trade factors**\
+`Kyle Higashioka’s return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
+https://nytimes.com/athletic/6487542/2025/07/11/padres-takeaways-catchers-ethan-salas-update/
+
+**A day at Lord's: Cricketing heritage, egg and bacon ties, and salmanazars of Champagne**\
+`What sets Lord's apart is its history, its grandeur and it's beauty – a classic, picturesque cricket venue with a gorgeous old pavilion`\
+https://nytimes.com/athletic/6477693/2025/07/11/lords-mcc-england-india-history/
+
 **Germany Takes an Unassuming Approach to Tax Cuts, in Contrast to Trump**\
 `Chancellor Friedrich Merz will pass an early plank of his domestic agenda into law on Friday, grounded in classical economic arguments.`\
 https://nytimes.com/2025/07/11/world/europe/germany-economy-tax-cuts.html
