@@ -1,3 +1,19 @@
+**'If you have legs left then use them': Behind the scenes at a Tour de France time trial**\
+`On Wednesday Decathlon-AG2R-La Mondial produced their best Tour de France time trial result for more than a decade — this is how they did it`\
+https://nytimes.com/athletic/6485419/2025/07/11/tour-de-france-time-trial-day-what-happens/
+
+**Mohammed Kudus is gone but Crysencio Summerville's West Ham career might be about to start in earnest**\
+`As one winger exits the London Stadium, another is beginning his bid to make up for lost time in claret and blue`\
+https://nytimes.com/athletic/6482360/2025/07/11/crysencio-summerville-west-ham-mohammed-kudus/
+
+**Maxim De Cuyper gives Brighton three quality left-backs - and a headache**\
+`The Belgian summer signing joins Pervis Estupinan and Ferdi Kadioglu in a packed left-back department at Brighton`\
+https://nytimes.com/athletic/6477567/2025/07/11/maxim-de-cuyper-estupinan-kadioglu-brighton/
+
+**Brentford's Mikkel Damsgaard: 'In the Premier League, people are beasts'**\
+`The Brentford playmaker tells The Athletic how he has adapted to life in English football`\
+https://nytimes.com/athletic/6485202/2025/07/11/brentfords-mikkel-damsgaard-in-the-premier-league-people-are-beasts/
+
 **Manchester City's Ilkay Gundogan dilemma**\
 `Gundogan is trusted by Guardiola but will he fit as part of the newly-shaped Manchester City squad?`\
 https://nytimes.com/athletic/6485409/2025/07/11/manchester-citys-ilkay-gundogan-dilemma/
