@@ -1,3 +1,27 @@
+**âAnd Just Like That â¦â Season 3, Episode 7 Recap: Double Standards**\
+`Guiseppeâs mother has opinions about her sonâs new relationship with Anthony. Carrie gets defensive about seeming to flirt with her neighbor.`\
+https://nytimes.com/2025/07/10/arts/television/and-just-like-that-recap-season-3-episode-7.html
+
+**James Carter Cathcart, Voice Behind Memorable âPokÃ©monâ Characters, Dies at 71**\
+`Mr. Cathcart was known for playing the characters Professor Oak and Meowth in the long-running franchise. He also made appearances in other popular animated series such as âYu-Gi-Oh!â and âOne Piece.â`\
+https://nytimes.com/2025/07/10/arts/television/james-carter-cathcart-dead-voice-actor-pokemon.html
+
+**Why the Texas Flood Site Didnât Have Warning Sirens**\
+`Officials in Kerr County made several attempts over the past decade to get funds for a flood warning system, but those applications were rejected. Christopher Flavelle, a reporter for The New York Times, breaks down what went wrong.`\
+https://nytimes.com/video/us/100000010277667/why-the-texas-flood-site-didnt-have-warning-sirens.html
+
+**The Trump administration expands its crackdown on undocumented immigrantsâ access to federal benefits.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federal-benefits
+
+**Map: 3.7-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quakeâs epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
+
+**Trump Nominates âAlpha Maleâ Influencer to Be Ambassador to Malaysia**\
+`Nick Adams rose to prominence with a hypermasculine identity and crass jokes about Hooters. President Trump named him ambassador to a country of 35 million people.`\
+https://nytimes.com/2025/07/10/us/politics/nick-adams-ambassador-malaysia-trump.html
+
 **On the Fast Track**\
 `James McCarron opens our solving weekend.`\
 https://nytimes.com/2025/07/10/crosswords/daily-puzzle-2025-07-11.html
