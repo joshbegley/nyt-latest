@@ -1,3 +1,27 @@
+**In Flash Flood Hotspots, Many Federal Meteorologist Positions Remain Unfilled**\
+`An analysis of National Weather Service job vacancies found that in more than a third of offices overseeing flash flood hotspots, one or more of three senior leadership roles are open.`\
+https://nytimes.com/interactive/2025/07/11/climate/flash-floods-nws-office-vacancies.html
+
+**The Bounce: Cooper Flagg’s poster moment, almost**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6487679/2025/07/11/cooper-flagg-summer-league-the-bounce/
+
+**Survivors Recount a Night of Terror at Waterfront Campgrounds**\
+`The half-mile stretch occupied by two campgrounds appears to have been one of the deadliest spots along the Guadalupe River in Central Texas during last week’s flash floods.`\
+https://nytimes.com/2025/07/11/us/texas-flood-survivors-waterfront-campgrounds.html
+
+**Justin Bieber Surprises With ‘Swag,’ and 10 More New Songs**\
+`Hear tracks by Tyla, Kassa Overall, Syd, Jay Som and others.`\
+https://nytimes.com/2025/07/11/arts/music/playlist-justin-bieber-tyla-syd.html
+
+**Want to Understand Russia? Visit Dubai.**\
+`It’s a key refuge for Moscow’s wealthy, including the record producer Iosif Prigozhin. He insists he still loves President Vladimir V. Putin, no matter what you’ve heard.`\
+https://nytimes.com/2025/07/11/world/europe/russia-dubai-iosif-prigozhin-putin.html
+
+**In the Stock Market Rebound, the ‘Buy the Dip’ Mantra Wins Again**\
+`Individual investors were the ones who piled into stocks when they plunged in early April, while big Wall Street institutions missed out on the gains.`\
+https://nytimes.com/2025/07/11/business/stocks-buy-the-dip.html
+
 **The Bounce: Cooper Flaggâs poster moment, almost**\
 `The Bounce NewsletterÂ Â | This is The Athleticâs daily NBA newsletter.`\
 https://nytimes.com/athletic/6487679/2025/07/11/cooper-flagg-summer-league-the-bounce/
