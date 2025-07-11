@@ -1,6 +1,10 @@
+**Wimbledon men's semifinals recap: Carlos Alcaraz and Jannik Sinner are in another final**\
+`The 'Sinnercaraz' rivalry gets its second Grand Slam final, just five weeks after its first.`\
+https://nytimes.com/athletic/6488461/2025/07/11/tennis-wimbledon-semifinals-men-alcaraz-sinner-final/
+
 **Risk of Flooding Returns to Texas County Hit by Deadly Storms**\
 `The threat of heavy rain is “slight” for this weekend, but with the ground fully saturated in Kerr County even small amounts of rainfall could cause flooding.`\
-https://nytimes.com/2025/07/11/weather/risk-of-flooding-returns-to-texas-county-hit-by-deadly-storms.html
+https://nytimes.com/2025/07/11/weather/flooding-risk-texas-county.html
 
 **Emmanuel-Thomas released on parole after serving just ten months of four-year jail sentence**\
 `The former Arsenal player had been jailed for his involvement in an attempt to smuggle 60 kilograms of cannabis into the United Kingdom.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489014/2025/07/11/ncaa-house-settlement-legal-fees
 **Bears, Ryan Poles agree to contract extension: Source**\
 `Poles, who was hired in 2022, is under contract through 2029, according to ESPN, lining him up with new head coach Ben Johnson.`\
 https://nytimes.com/athletic/6488952/2025/07/11/bears-ryan-poles-contract-extension/
-
-**Son of El Chapo Pleads Guilty to Sweeping Drug Charges**\
-`The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio Guzmán López’s father helped found.`\
-https://nytimes.com/2025/07/11/us/politics/el-chapo-son-pleads-guilty.html
 

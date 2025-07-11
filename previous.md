@@ -1,3 +1,7 @@
+**Risk of Flooding Returns to Texas County Hit by Deadly Storms**\
+`The threat of heavy rain is “slight” for this weekend, but with the ground fully saturated in Kerr County even small amounts of rainfall could cause flooding.`\
+https://nytimes.com/2025/07/11/weather/risk-of-flooding-returns-to-texas-county-hit-by-deadly-storms.html
+
 **Emmanuel-Thomas released on parole after serving just ten months of four-year jail sentence**\
 `The former Arsenal player had been jailed for his involvement in an attempt to smuggle 60 kilograms of cannabis into the United Kingdom.`\
 https://nytimes.com/athletic/6488510/2025/07/11/jay-emmanuel-thomas-released-on-parole/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488952/2025/07/11/bears-ryan-poles-contract-extens
 **Son of El Chapo Pleads Guilty to Sweeping Drug Charges**\
 `The plea came at a vulnerable moment for the Sinaloa drug cartel, the organization Ovidio Guzmán López’s father helped found.`\
 https://nytimes.com/2025/07/11/us/politics/el-chapo-son-pleads-guilty.html
-
-**Rubio’s Cuts at State Department Demote Longtime U.S. Values**\
-`Secretary of State Marco Rubio insists he is streamlining a bloated department, but critics warn the cost to America’s standing and influence could be high.`\
-https://nytimes.com/2025/07/11/us/politics/trump-state-department-layoffs.html
 
