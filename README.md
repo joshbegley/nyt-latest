@@ -1,40 +1,40 @@
-**The Pulse: Some hot July takes about the NFL season**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6485700/2025/07/11/nfl-summer-hot-takes-the-pulse/
+**Germany Takes an Unassuming Approach to Tax Cuts, in Contrast to Trump**\
+`Chancellor Friedrich Merz will pass an early plank of his domestic agenda into law on Friday, grounded in classical economic arguments.`\
+https://nytimes.com/2025/07/11/world/europe/germany-economy-tax-cuts.html
 
-**Good Vibes in Trump Trade Talks Haven’t Shielded Canada From Chaos**\
-`The country’s new prime minister, Mark Carney, has been called the “Trump whisperer,” and negotiations have been cordial and professional. But it’s been a wild ride.`\
-https://nytimes.com/2025/07/11/world/canada/canada-trump-tariffs-trade-talks.html
+**Trump Administration Live Updates: President to Visit Flood-Hit Texas**\
+``\
+https://nytimes.com/live/2025/07/11/us/trump-texas-news
 
-**Gyokeres not intending to report for Sporting training, pursuing Arsenal transfer**\
-`Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching a compromise.`\
-https://nytimes.com/athletic/6487877/2025/07/11/arsenal-gyokeres-transfer-sporting-training/
+**Bills training camp 2025 linebacker preview: A familiar group, but questions remain**\
+`The six linebackers the Bills had under contract last season are back this season.`\
+https://nytimes.com/athletic/6398142/2025/07/11/buffalo-bills-training-camp-2025-preview-linebackers/
 
-**Kurdish Fighters Burn Weapons in Step Toward Peace With Turkey**\
-`The disarmament of the P.K.K., a group that has battled since the 1980s for Kurdish independence, could end a conflict that has killed more than 40,000 people.`\
-https://nytimes.com/2025/07/11/world/middleeast/pkk-turkey-conflict-arms-peace.html
+**Padres takeaways: An untenable catching situation, Ethan Salas update, trade factors**\
+`Kyle Higashiokaâs return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
+https://nytimes.com/athletic/6487542/2025/07/11/padres-takeaways-catchers-ethan-salas-update/
 
-**The Athletic FC: From pro player to £28m drugs conspirator, Spurs turn to £60m Gibbs-White**\
-`Today in TAFC: The former pro who became a drugs conspirator and all the transfer latest as Spurs look to spend £115m.`\
-https://nytimes.com/athletic/6487725/2025/07/11/cassidy-drugs-conspirator-tottenham-transfers-gibbs-white/
+**Canucks offseason moves: Where are they better? Where are they worse?**\
+`The Canucks entered this offseason with significant needs up front, and those needs remain.`\
+https://nytimes.com/athletic/6484051/2025/07/11/canucks-trades-transactions-roster-2025/
 
-**What UEFA’s decision could mean for finances of Crystal Palace and Nottingham Forest**\
-`Lyon's successful appeal of their relegation means UEFA must now decide whether to admit Palace to the Europa League.`\
-https://nytimes.com/athletic/6486211/2025/07/11/palace-forest-europa-league-uefa/
+**Nebraska's opener presents a big opportunity. Can Huskers meet the moment?**\
+`Prognosticators favor Nebraska over Cincinnati in the season opener, but the Cornhuskers have longstanding demons to exorcise.`\
+https://nytimes.com/athletic/6486842/2025/07/11/nebraska-cincinnati-college-football-season-opener/
 
-**Will Brazil win a ninth Copa América Femenina title in Ecuador?**\
-`Everything you need to know ahead of South America's biggest tournament and what it means for the 2027 Women's World Cup in Brazil`\
-https://nytimes.com/athletic/6487313/2025/07/11/copa-america-femenina-2025-how-to-watch/
+**Athletic Club's Yeray blames alopecia medicine for positive doping test result**\
+`The 30-year-old said he had received a positive result in a doping test following Athletic Club's 3-0 defeat to Manchester United on May 1.`\
+https://nytimes.com/athletic/6487874/2025/07/11/yeray-athletic-club-suspension/
 
-**Rosenthal: Why trading Alex Bregman makes no sense for the Red Sox, plus more MLB notes**\
-`Bregman's contract, relationship with his teammates and the Red Sox's current playoff position make it very unlikely he'll be dealt in July.`\
-https://nytimes.com/athletic/6487388/2025/07/11/alex-bregman-red-sox-trade-mlb-notes/
+**How to win in College Football 26: Our expert's best strategies, tips and tricks**\
+`An expert's guide to what video game players of all skill levels need to do to win in EA Sports College Football 26.`\
+https://nytimes.com/athletic/6486611/2025/07/11/ea-sports-college-football-26-strategy-tips-tricks/
 
-**Netanyahu’s War**\
-`We spoke to the Jerusalem bureau chief about his investigative profile about the Israeli prime minister.`\
-https://nytimes.com/2025/07/11/briefing/benjamin-netanyahu-israel.html
+**A day at Lord's: Cricketing heritage, egg and bacon ties, and salmanazars of Champagne**\
+`What sets Lord's apart is its history, its grandeur and it's beauty â a classic, picturesque cricket venue with a gorgeous old pavilion`\
+https://nytimes.com/athletic/6477693/2025/07/11/lords-mcc-england-india-history/
 
-**Cairo Telecommunications Building Hit With 2nd Fire in a Week**\
-`A blaze on Thursday at one of Egypt’s main telecommunications hubs was extinguished, days after a larger fire there killed four people and disrupted internet, transport and banking services.`\
-https://nytimes.com/2025/07/11/world/middleeast/egypt-fire-cairo-telecom.html
+**Kyle Juszczyk reflects on 'worst 3 days of my life' after 49ers release**\
+`The 49ers released Juszczyk in March, but he was unemployed for just three days before agreeing to a new deal with the team.`\
+https://nytimes.com/athletic/6487070/2025/07/11/kyle-juszczyk-49ers-release-celebrity-golf/
 
