@@ -1,3 +1,7 @@
+**Map: 3.6-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
+
 **Mets miss a late-game lefty, lose another DH in doubleheader: 3 takeaways**\
 `The Mets' uncertainty at designated hitter should make adding another established bat a consideration at the trade deadline.`\
 https://nytimes.com/athletic/6487176/2025/07/10/mets-doubleheader-takeaways-jesse-winker-mark-vientos/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/07/10/us/10-2024-kerrcountyhazardmitigation
 **At Least 13 People Died by Suicide Amid U.K. Post Office Scandal, Report Says**\
 `A public inquiry into the wrongful prosecutions of about 1,000 postal workers has uncovered more victims than previously known, according to a report.`\
 https://nytimes.com/2025/07/10/world/europe/uk-post-office-scandal-report.html
-
-**Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
-`The 23-year-old infielder will join the team for its weekend series against the Texas Rangers.`\
-https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
 
