@@ -1,3 +1,7 @@
+**Mets miss a late-game lefty, lose another DH in doubleheader: 3 takeaways**\
+`The Mets' uncertainty at designated hitter should make adding another established bat a consideration at the trade deadline.`\
+https://nytimes.com/athletic/6487176/2025/07/10/mets-doubleheader-takeaways-jesse-winker-mark-vientos/
+
 **Pelicans, Herb Jones agree to 3-year extension for an estimated $68M: Source**\
 `The former second-round pick has a new contract that includes a player option for the 2029-30 season.`\
 https://nytimes.com/athletic/6487241/2025/07/10/pelicans-herb-jones-extension/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/10/world/europe/uk-post-office-scandal-report.html
 **Astros set to call-up No. 3-ranked prospect Brice Matthews: Sources**\
 `The 23-year-old infielder will join the team for its weekend series against the Texas Rangers.`\
 https://nytimes.com/athletic/6487142/2025/07/10/houston-astros-brice-matthews-call-up/
-
-**State Department to Soon Begin Mass Layoffs**\
-`Secretary of State Marco Rubio’s plan to downsize a “bloated” department had been on hold after a court ruling.`\
-https://nytimes.com/2025/07/10/us/politics/state-department-mass-layoffs.html
 

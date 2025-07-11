@@ -1,3 +1,7 @@
+**Pelicans, Herb Jones agree to 3-year extension for an estimated $68M: Source**\
+`The former second-round pick has a new contract that includes a player option for the 2029-30 season.`\
+https://nytimes.com/athletic/6487241/2025/07/10/pelicans-herb-jones-extension/
+
 **Trump Nominates ‘Alpha Male’ Influencer to Be Ambassador to Malaysia**\
 `Nick Adams rose to prominence with a hypermasculine identity and crass jokes about Hooters. President Trump named him ambassador to a country of 35 million people.`\
 https://nytimes.com/2025/07/10/us/politics/nick-adams-ambassador-malaysia-trump.html
