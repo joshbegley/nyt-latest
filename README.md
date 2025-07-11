@@ -1,3 +1,19 @@
+**'If you have legs left then use them': Behind the scenes at a Tour de France time trial**\
+`On Wednesday Decathlon-AG2R-La Mondial produced their best Tour de France time trial result for more than a decade — this is how they did it`\
+https://nytimes.com/athletic/6485419/2025/07/11/tour-de-france-time-trial-day-what-happens/
+
+**Mohammed Kudus is gone but Crysencio Summerville's West Ham career might be about to start in earnest**\
+`As one winger exits the London Stadium, another is beginning his bid to make up for lost time in claret and blue`\
+https://nytimes.com/athletic/6482360/2025/07/11/crysencio-summerville-west-ham-mohammed-kudus/
+
+**Maxim De Cuyper gives Brighton three quality left-backs - and a headache**\
+`The Belgian summer signing joins Pervis Estupinan and Ferdi Kadioglu in a packed left-back department at Brighton`\
+https://nytimes.com/athletic/6477567/2025/07/11/maxim-de-cuyper-estupinan-kadioglu-brighton/
+
+**Brentford's Mikkel Damsgaard: 'In the Premier League, people are beasts'**\
+`The Brentford playmaker tells The Athletic how he has adapted to life in English football`\
+https://nytimes.com/athletic/6485202/2025/07/11/brentfords-mikkel-damsgaard-in-the-premier-league-people-are-beasts/
+
 **Manchester City's Ilkay Gundogan dilemma**\
 `Gundogan is trusted by Guardiola but will he fit as part of the newly-shaped Manchester City squad?`\
 https://nytimes.com/athletic/6485409/2025/07/11/manchester-citys-ilkay-gundogan-dilemma/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6485525/2025/07/11/arsenal-thomas-partey-allegation
 **'In jail, some say you either want to be a footballer or a drug dealer. I’ve been both'**\
 `Exclusive: Liverpool's former academy prodigy reveals how he went from budding football star to convicted cocaine conspirator`\
 https://nytimes.com/athletic/6482578/2025/07/11/jamie-cassidy-the-liverpool-starlet-turned-drugs-conspirator-in-jail-some-say-lads-want-to-be-a-footballer-or-a-dealer-ive-been-both/
-
-**Inside Hull's crisis: Missed payments, the 'Brain Team', and an uncertain future**\
-`Hull and their colourful owner Acun Ilicali have issues to deal with. What happens next?`\
-https://nytimes.com/athletic/6482673/2025/07/11/inside-hull-city-crisis-missed-payments-the-brain-team-and-an-uncertain-future/
-
-**What Carreras will bring to Real Madrid: Flexibility and impact for Alonso's new era**\
-`Multifaceted, young and dynamic, Carreras is exactly the type of player to usher in a new era at Real Madrid`\
-https://nytimes.com/athletic/6408182/2025/07/11/real-madrid-alvaro-carreras-alonso/
-
-**The strange career path of Jhon Duran, aged 21 and a half**\
-`Why is such a talented striker about to play football in a fifth different country in the space of four years?`\
-https://nytimes.com/athletic/6482346/2025/07/11/jhon-duran-career-path-fenerbahce/
-
-**Each Premier League club's pre-season plans – and what to look out for**\
-`New signings bedding in? Head coach's tactical tweaks? Promoted teams preparing for the step up? What to look out for in pre-season`\
-https://nytimes.com/athletic/6485199/2025/07/11/premier-league-pre-season-fixtures/
 
