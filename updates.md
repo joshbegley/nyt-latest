@@ -1,4 +1,16 @@
 **Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
+`A minuteâs silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
+https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
+
+**Palace sign Sosa from Ajax**\
+`The 27-year-old left-back has joined Palace in a Â£2million move after undergoing his medical on Monday.`\
+https://nytimes.com/athletic/6477572/2025/07/11/crystal-palace-sign-left-back-borna-sosa-from-ajax/
+
+**MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
+`Itâs time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
+https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
+
+**Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
 `A minute’s silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
 https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
 

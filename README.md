@@ -1,13 +1,17 @@
+**Trump’s Seesawing on Tariffs Gives the World Whiplash**\
+`Blunt letters dictating terms posted to social media and changes late in negotiations have left trading partners wondering what President Trump will do next.`\
+https://nytimes.com/2025/07/11/world/europe/trump-tariffs-global-trade-deals.html
+
 **Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
-`A minuteâs silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
+`A minute’s silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
 https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
 
 **Palace sign Sosa from Ajax**\
-`The 27-year-old left-back has joined Palace in a Â£2million move after undergoing his medical on Monday.`\
+`The 27-year-old left-back has joined Palace in a £2million move after undergoing his medical on Monday.`\
 https://nytimes.com/athletic/6477572/2025/07/11/crystal-palace-sign-left-back-borna-sosa-from-ajax/
 
 **MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
-`Itâs time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
+`It’s time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
 https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
 
 **MLB trade deadline watch: Bubble teams have execs prepared for slow-developing market**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-p
 **NWSL stars Racheal Kundananji, Barbra Banda supercharge Zambia's attack at women's AFCON**\
 `The 25-year-old pair has combined to score every Zambia goal at WAFCON 2025`\
 https://nytimes.com/athletic/6487362/2025/07/11/zambian-nwsl-racheal-kundananji-barbra-banda-wafcon/
-
-**How Will Vest went from Rule 5 castoff to lifeblood of the Tigers' bullpen**\
-`Once a college shortstop, Will Vest was demoted at some point in each of his pro seasons until last year. `\
-https://nytimes.com/athletic/6486008/2025/07/11/tigers-will-vest-bullpen/
 
