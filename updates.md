@@ -1,3 +1,8 @@
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
 **Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
 `In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
 https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
