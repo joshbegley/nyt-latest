@@ -1,40 +1,40 @@
-**Trump’s Seesawing on Tariffs Gives the World Whiplash**\
-`Blunt letters dictating terms posted to social media and changes late in negotiations have left trading partners wondering what President Trump will do next.`\
-https://nytimes.com/2025/07/11/world/europe/trump-tariffs-global-trade-deals.html
+**High-upside high schoolers: Why the Phillies lean into drafting, developing prep prospects**\
+`The Phillies have selected high schoolers in the first round 12 times since 2010, including the past five drafts. What drives their process?`\
+https://nytimes.com/athletic/6486742/2025/07/11/phillies-mlb-draft-develop-high-school-prospects/
 
-**Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
-`A minute’s silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
-https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
+**Course jesters: Top comedians weigh in on golf, hecklers and beating Charles Barkley**\
+`It's the laughs, not their play, that get comedians invited to events like the American Century Championship, which begins Friday in Nevada.`\
+https://nytimes.com/athletic/6481507/2025/07/11/golf-comedians-american-century-championship/
 
-**Palace sign Sosa from Ajax**\
-`The 27-year-old left-back has joined Palace in a £2million move after undergoing his medical on Monday.`\
-https://nytimes.com/athletic/6477572/2025/07/11/crystal-palace-sign-left-back-borna-sosa-from-ajax/
+**What Fridolina Rolfo's Barcelona exit says about the club's financial situation**\
+`There was more to the Sweden international's early Barca departure than meets the eye`\
+https://nytimes.com/athletic/6486067/2025/07/11/fridolina-rolfo-barcelona-transfer-exit/
 
-**MLB midseason awards: MVP and LVP, Cy Young and Cy Yuk, top rookies and more**\
-`It’s time to dole out my prestigious MLB midseason awards, from the MVPs, Cy Youngs and Rookies of the Year to the LVPs, Cy Yuks and more.`\
-https://nytimes.com/athletic/6487364/2025/07/11/mlb-awards-races-2025-midseason-judge-ohtani-skubal/
+**How the return of college football’s video game sparked a YouTube cottage industry**\
+`Since the return of the EA Sports College Football video game series, a wave of YouTubers have found success creating content for new fans.`\
+https://nytimes.com/athletic/6479456/2025/07/11/college-football-video-game-youtube/
 
-**MLB trade deadline watch: Bubble teams have execs prepared for slow-developing market**\
-`The amount of teams hovering near contention will make for a slow-developing market, multiple executives said.`\
-https://nytimes.com/athletic/6487055/2025/07/11/mlb-trade-deadline-watch-bubble-teams-slow-developing-market/
+**Which NHL team can make the best lineup with no repeated initials?**\
+`Slow-news summer is here, so let's make the best six-man starting lineup possible for your favorite team without repeating any initials.`\
+https://nytimes.com/athletic/6481309/2025/07/11/nhl-team-best-lineup-players-offseason-initials/
 
-**From aspiring F1 driver to a life in the spotlight. The rise and fall of Christian Horner**\
-`Christian Horner has been left to digest his shock departure after 20 years at the helm of Red Bull Racing`\
-https://nytimes.com/athletic/6485684/2025/07/11/christian-horner-profile-red-bull-exit-f1/
+**Forward thinking but with defensive bite: What Morgan Gibbs-White would bring to Tottenham**\
+`Moving for Gibbs-White from Forest signals that Thomas Frank is planning to lean into the counter-attacking potential in his new side`\
+https://nytimes.com/athletic/6485742/2025/07/11/morgan-gibbs-white-tottenham-analysis/
 
-**Carlos Alcaraz's juggling routine is more than a novelty. It's an ideal warmup**\
-`What may seem like a basic exercise is actually helping us plan our next motor function.`\
-https://nytimes.com/athletic/6485883/2025/07/11/carlos-alcaraz-juggling-wimbledon-tennis/
+**The 10 wildest college football rivalry origin stories**\
+`Rivalries are the lifeblood of college football. But their history is often inextricably intertwined with the history of our nation.`\
+https://nytimes.com/athletic/6487050/2025/07/11/college-football-rivalry-origins-kansas-missouri-ohio-state-michigan/
 
-**Braves takeaways: Trade whispers, offensive woes, Spencer Strider progressing but not pleased**\
-`Strider has allowed three or fewer earned runs in his past seven starts, posting a 3.16 ERA in that stretch after opening the season 0-5.`\
-https://nytimes.com/athletic/6487595/2025/07/11/braves-athletics-takeaways-spencer-strider/
+**Sliders: ‘Once in a generation’ – The All-Star throw that rocketed Dave Parker to Cooperstown**\
+`Plus Mets pitcher David Peterson's tips on throwing a shutout and more timely and timeless elements of baseball.`\
+https://nytimes.com/athletic/6483567/2025/07/11/dave-parker-all-star-game-throw-sliders/
 
-**Yankees turned this catcher into a pitcher last month. He's already touched 100 mph**\
-`In his fourth bullpen session, Gomez asked his coaches if, one time, he could just let it rip. The radar gun stunned everyone.`\
-https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-prospect-pitcher/
+**Twins' all-player broadcast brings clubhouse humor to TV booth**\
+`"Our goal is like the three of us are sitting on a couch in the clubhouse watching the game," Justin Morneau said of the broadcast.`\
+https://nytimes.com/athletic/6487088/2025/07/11/twins-all-player-broadcast/
 
-**NWSL stars Racheal Kundananji, Barbra Banda supercharge Zambia's attack at women's AFCON**\
-`The 25-year-old pair has combined to score every Zambia goal at WAFCON 2025`\
-https://nytimes.com/athletic/6487362/2025/07/11/zambian-nwsl-racheal-kundananji-barbra-banda-wafcon/
+**From collegiate disappointment to promising NBA player: How Justin Edwards found his niche**\
+`A year ago, Edwards was undrafted and wondering what his pro basketball career might hold. Now, he's filled with promise for the Sixers.`\
+https://nytimes.com/athletic/6486951/2025/07/11/justin-edwards-philadelphia-76ers-niche/
 
