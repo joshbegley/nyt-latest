@@ -1,3 +1,7 @@
+**Federal Agents Clash with Protesters During Immigration Raid at California Farm**\
+`Officers appeared to use crowd control munitions and tear gas against protesters. The F.B.I. said it was searching for a person who appeared to fire a pistol at officers.`\
+https://nytimes.com/2025/07/11/us/ice-raid-california-cannabis-farm.html
+
 **Word of the Day: vexatious**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/11/learning/word-of-the-day-vexatious.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/opinion/dollar-money-currency-payment.html
 **The Law Is Not Enough to Stop War Crimes**\
 `Prosecutions for atrocities are not always enough to stop hatred. Societies must also acknowledge what happened.`\
 https://nytimes.com/2025/07/11/opinion/srebrenica-genocide-serbia-bosnia-justice.html
-
-**Miles Mikolas bounces back in pivotal series win over Nationals: Cardinals takeaways**\
-`The adjustment? Mikolas was tipping his pitches in his last start, manager Oli Marmol revealed.`\
-https://nytimes.com/athletic/6487377/2025/07/11/cardinals-takeaways-miles-mikolas-bounces-back/
 
