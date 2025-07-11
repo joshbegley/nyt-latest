@@ -1,3 +1,19 @@
+**Wimbledon semifinal halted in another incident of crowd member falling ill**\
+`There have been several incidents of play being stopped at this year’s Wimbledon championships due to spectators being taken ill.`\
+https://nytimes.com/athletic/6488175/2025/07/11/wimbledon-semifinal-between-carlos-alcaraz-and-taylor-fritz-stopped-twice-due-to-unwell-spectators/
+
+**Bodyguards Using Fitness App Revealed Locations of Swedish Leaders**\
+`Secret meetings and private holidays of the royal family and prime minister were inadvertently made public on Strava, which has raised security concerns in other instances.`\
+https://nytimes.com/2025/07/11/world/europe/strava-sweden-bodyguards-prime-minister.html
+
+**‘Rage’ Is a Wild Spanish Dramedy About Women Who Are Pushed Too Far**\
+`The behaviors are extreme and exciting, but the show itself isn’t bleak. It is bright and funny, colorful and surprising.`\
+https://nytimes.com/2025/07/11/arts/television/rage-hbo-max.html
+
+**Florida charges ex-Jags employee with 6 counts of state grand theft**\
+`Patel is currently serving a 6 1/2 year sentence after pleading guilty to federal charges of wire fraud and an illegal monetary transaction.`\
+https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-charges/
+
 **Test Your Math Knowledge**\
 `Our series reveals the math hidden in familiar places. How much do you know about taxicab geometry, triangular numbers, the golden ratio and more?`\
 https://nytimes.com/2025/07/11/science/test-your-math-knowledge.html

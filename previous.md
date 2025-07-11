@@ -1,3 +1,15 @@
+**Wimbledon semifinal halted in another incident of crowd member falling ill**\
+`There have been several incidents of play being stopped at this year’s Wimbledon championships due to spectators being taken ill.`\
+https://nytimes.com/athletic/6488175/2025/07/11/wimbledon-semifinal-between-carlos-alcaraz-and-taylor-fritz-stopped-twice-due-to-unwell-spectators/
+
+**Bodyguards Using Fitness App Revealed Locations of Swedish Leaders**\
+`Secret meetings and private holidays of the royal family and prime minister were inadvertently made public on Strava, which has raised security concerns in other instances.`\
+https://nytimes.com/2025/07/11/world/europe/strava-sweden-bodyguards-prime-minister.html
+
+**‘Rage’ Is a Wild Spanish Dramedy About Women Who Are Pushed Too Far**\
+`The behaviors are extreme and exciting, but the show itself isn’t bleak. It is bright and funny, colorful and surprising.`\
+https://nytimes.com/2025/07/11/arts/television/rage-hbo-max.html
+
 **Test Your Math Knowledge**\
 `Our series reveals the math hidden in familiar places. How much do you know about taxicab geometry, triangular numbers, the golden ratio and more?`\
 https://nytimes.com/2025/07/11/science/test-your-math-knowledge.html
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6486753/2025/07/11/cooper-flagg-nba-summer-league-d
 `The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
 https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-jair-cunha-from-botafogo/
 
-**Florida charges ex-Jaguars employee Amit Patel with 6 counts of state grand theft**\
+**Florida charges ex-Jags employee with 6 counts of state grand theft**\
 `Patel is currently serving a 6 1/2 year sentence after pleading guilty to federal charges of wire fraud and an illegal monetary transaction.`\
 https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-charges/
-
-**Our Best Halloumi Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/halloumi-recipes
-
-**Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
-`The 25-year-old midfielder has a £60million release clause in his contract at the City Ground.`\
-https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
-
-**As Southern France Swelters, the Avignon Festival Tries to Adapt**\
-`Rising temperatures pose an existential threat to the theater extravaganza, where extreme heat is making it tough for the audience.`\
-https://nytimes.com/2025/07/11/theater/avignon-festival-heat-climate-change.html
 
