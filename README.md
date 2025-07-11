@@ -1,40 +1,40 @@
-**Mariners' Cal Raleigh says Yankees were not being 'discreet' about picking up Andrés Munõz tipping**\
-`The Yankees walked it off in the 10th inning after Aaron Judge hit a sac fly. `\
-https://nytimes.com/athletic/6487444/2025/07/10/mariners-yankees-pitch-tipping-discussion/
+**Kudus has done it. Madueke could be the next player to transfer to a rival. Does it work?**\
+`When star players move between fierce rivals, it adds an extra layer of spice to the deals — how do they tend to pan out?`\
+https://nytimes.com/athletic/6485527/2025/07/11/madueke-kudus-rivals-arsenal-tottenham-transfer-man-utd/
 
-**Trump Threatens Higher Tariffs on Canada in the Middle of Trade Talks**\
-`The president revived his discredited claims about fentanyl entering the U.S. from Canada to justify his latest proposed rate of 35 percent.`\
-https://nytimes.com/2025/07/10/us/politics/trump-canada-tariffs.html
+**How to watch Wimbledon 2025 men's semifinals: Can Taylor Fritz outlast Carlos Alcaraz?**\
+`The men's semifinal round features two must-watch matches: Taylor Fritz vs. Carlos Alcaraz, followed by Jannik Sinner vs. Novak Djokovic.`\
+https://nytimes.com/athletic/6483311/2025/07/11/wimbledon-mens-semifinals-how-to-watch-fritz-alcaraz/
 
-**Cooper Flagg, Bronny James face off in summer league as Mavericks take win**\
-`A packed-out Thomas & Mack Center got what it wanted in the second quarter of Thursday's NBA Summer League game.`\
-https://nytimes.com/athletic/6487324/2025/07/10/cooper-flagg-bronny-james-summer-league/
+**Quote of the Day: Trump’s Push for Influence May Hurt Fed’s Credibility**\
+`Quotation of the Day for Friday, July 11, 2025.`\
+https://nytimes.com/2025/07/11/pageoneplus/quote-of-the-day-trumps-push-for-influence-may-hurt-feds-credibility.html
 
-**On the Fast Track**\
-`James McCarron opens our solving weekend.`\
-https://nytimes.com/2025/07/10/crosswords/daily-puzzle-2025-07-11.html
+**Corrections: July 11, 2025**\
+`Corrections that appeared in print on Friday, July 11, 2025.`\
+https://nytimes.com/2025/07/11/pageoneplus/corrections-july-11-2025.html
 
-**‘And Just Like That …’ Season 3, Episode 7 Recap: Double Standards**\
-`Guiseppe’s mother has opinions about her son’s new relationship with Anthony. Carrie gets defensive about seeming to flirt with her neighbor.`\
-https://nytimes.com/2025/07/10/arts/television/and-just-like-that-recap-season-3-episode-7.html
+**How a Luggage Manufacturer in Colorado Has Survived Trump’s Trade War. So Far.**\
+`Eagle Creek’s experience underscores how President Trump’s chaotic approach to tariffs is having a real impact, even before the toughest levies take effect.`\
+https://nytimes.com/2025/07/11/business/trump-tariffs-eagle-creek.html
 
-**James Carter Cathcart, Voice Behind Memorable ‘Pokémon’ Characters, Dies at 71**\
-`Mr. Cathcart was known for playing the characters Professor Oak and Meowth in the long-running franchise. He also made appearances in other popular animated series such as “Yu-Gi-Oh!” and “One Piece.”`\
-https://nytimes.com/2025/07/10/arts/television/james-carter-cathcart-dead-voice-actor-pokemon.html
+**The Mystery of Trump’s 25% Tariff Threat on Kazakhstan**\
+`The Central Asian nation, rich in critical minerals, is deepening its ties to China but does relatively little trade with the United States.`\
+https://nytimes.com/2025/07/11/business/trump-tariffs-kazakhstan.html
 
-**Why the Texas Flood Site Didn’t Have Warning Sirens**\
-`Officials in Kerr County made several attempts over the past decade to get funds for a flood warning system, but those applications were rejected. Christopher Flavelle, a reporter for The New York Times, breaks down what went wrong.`\
-https://nytimes.com/video/us/100000010277667/why-the-texas-flood-site-didnt-have-warning-sirens.html
+**The Phone Call That Led to Love**\
+`Katherine Doyle, an NBC White House reporter, and Alex deGrasse, a political strategist and adviser, unexpectedly found love on a work-related call.`\
+https://nytimes.com/2025/07/11/style/katherine-doyle-alex-degrasse-wedding.html
 
-**In South Carolina, Newsom Tests the Presidential Waters (Without Saying So)**\
-`Gov. Gavin Newsom of California met with Democratic voters in an early primary state that has become pivotal in presidential races.`\
-https://nytimes.com/2025/07/10/us/politics/newsom-south-carolina-presidential.html
+**Art Led the Way to a Very Hot, and Spicy First Date**\
+`David Harris, an artist, made spicy curry chicken with Indian chili powder that Heather Phillips, who loved his artwork, tolerated, while he was too nervous to eat.`\
+https://nytimes.com/2025/07/11/style/heather-phillips-david-harris-wedding.html
 
-**The Trump administration expands its crackdown on undocumented immigrants’ access to federal benefits.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federal-benefits
+**‘I Intend to Keep My Baby’**\
+`The diagnosis was dire, but the choice was ours to make.`\
+https://nytimes.com/2025/07/11/style/modern-love-i-intend-to-keep-my-baby.html
 
-**Map: 3.7-Magnitude Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
+**After Years of Friendship, a First Date Wasn’t Necessary**\
+`Janet Mercel and Daniel Wisner’s relationship slowly turned romantic after years of “being best friends,” Mr. Wisner said. “And always wanting the best for one another.”`\
+https://nytimes.com/2025/07/11/style/janet-mercel-daniel-wisner-wedding.html
 
