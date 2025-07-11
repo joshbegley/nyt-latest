@@ -1,3 +1,7 @@
+**Want to Understand Russia? Visit Dubai.**\
+`It’s a key refuge for Moscow’s wealthy, including the record producer Iosif Prigozhin. He insists he still loves President Vladimir V. Putin, no matter what you’ve heard.`\
+https://nytimes.com/2025/07/11/world/europe/russia-dubai-iosif-prigozhin-putin.html
+
 **Lowetide: Why Ike Howard trade could be a defining moment for Oilers**\
 `Howard may have a chance to earn playing time with Connor McDavid or Leon Draisaitl next season.`\
 https://nytimes.com/athletic/6485892/2025/07/11/oilers-isaac-howard-nhl-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/arts/design/arles-france-rencontres-de-la-photogr
 **Refined, Freaky, Fabulous: 20 Unforgettable Looks at Couture Week**\
 `They included glittery blood, metallic masks and a beating heart.`\
 https://nytimes.com/2025/07/11/style/paris-couture-week-best-looks.html
-
-**Why was Lord's, the home of cricket, decked in red for day two of the Test?**\
-`Players from both sides wore red before play on day two to mark Red For Ruth Day in aid of the Ruth Strauss Foundation`\
-https://nytimes.com/athletic/6487941/2025/07/11/ruth-strauss-cricket-lords-england-india/
 
