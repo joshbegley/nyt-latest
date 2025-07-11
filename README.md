@@ -1,3 +1,7 @@
+**Villa finalising agreement sign goalkeeper Bizot from Brest**\
+`The 34-year-old will join Villa for a low-cost fee and will serve as the club's No. 2, replacing Robin Olsen.`\
+https://nytimes.com/athletic/6487712/2025/07/11/aston-villa-transfers-marco-bizot-goalkeeper/
+
 **Two Dozen Hospitalized in Mass Drug Overdose in Baltimore**\
 `An unusually large number of overdoses sent crews searching alleys and homes for victims. Officials have not said what type of drug was involved.`\
 https://nytimes.com/2025/07/11/us/baltimore-drug-overdoses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/learning/word-of-the-day-vexatious.html
 **Clashes After Immigration Raid at California Cannabis Farm**\
 `Federal agents fired crowd control munitions at protesters who blocked a road outside of the farm. Some demonstrators threw objects at the agents’ vehicles.`\
 https://nytimes.com/video/us/100000010279458/ice-raid-california-cannabis-farm.html
-
-**Ronny Chieng Ponders Iran’s Threat to Kill a Sunbathing Trump**\
-`The “Daily Show” host called the threat “an attack on all of America, because now we all have to picture him with his bare belly glistening in the sun.”`\
-https://nytimes.com/2025/07/11/arts/television/ronny-chieng-iran-trump-threat.html
 
