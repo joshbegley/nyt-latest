@@ -30,11 +30,11 @@ https://nytimes.com/2025/07/11/briefing/benjamin-netanyahu-israel.html
 `A blaze on Thursday at one of Egypt’s main telecommunications hubs was extinguished, days after a larger fire there killed four people and disrupted internet, transport and banking services.`\
 https://nytimes.com/2025/07/11/world/middleeast/egypt-fire-cairo-telecom.html
 
+**Yankees turned this catcher into a pitcher last month. He's already touched 100 mph**\
+`In his fourth bullpen session, Gomez asked his coaches if, one time, he could just let it rip. The radar gun stunned everyone.`\
+https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-prospect-pitcher/
+
 **High-upside high schoolers: Why the Phillies lean into drafting, developing prep prospects**\
 `The Phillies have selected high schoolers in the first round 12 times since 2010, including the past five drafts. What drives their process?`\
 https://nytimes.com/athletic/6486742/2025/07/11/phillies-mlb-draft-develop-high-school-prospects/
-
-**Course jesters: Top comedians weigh in on golf, hecklers and beating Charles Barkley**\
-`It's the laughs, not their play, that get comedians invited to events like the American Century Championship, which begins Friday in Nevada.`\
-https://nytimes.com/athletic/6481507/2025/07/11/golf-comedians-american-century-championship/
 
