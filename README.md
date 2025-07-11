@@ -1,3 +1,7 @@
+**Word of the Day: vexatious**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/11/learning/word-of-the-day-vexatious.html
+
 **Clashes After Immigration Raid at California Cannabis Farm**\
 `Federal agents fired crowd control munitions at protesters who blocked a road outside of the farm. Some demonstrators threw objects at the agents’ vehicles.`\
 https://nytimes.com/video/us/100000010279458/ice-raid-california-cannabis-farm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/opinion/srebrenica-genocide-serbia-bosnia-justice
 **Miles Mikolas bounces back in pivotal series win over Nationals: Cardinals takeaways**\
 `The adjustment? Mikolas was tipping his pitches in his last start, manager Oli Marmol revealed.`\
 https://nytimes.com/athletic/6487377/2025/07/11/cardinals-takeaways-miles-mikolas-bounces-back/
-
-**Rubio and Chinese Diplomat Vie for Influence in Asia Over Trump’s Tariffs**\
-`Marco Rubio wants to bolster ties with Asia to counter China’s sway, but President Trump’s tariff threats have nations asking why they should align with Washington.`\
-https://nytimes.com/2025/07/11/us/politics/china-us-asia-tariffs.html
 
