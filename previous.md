@@ -1,3 +1,7 @@
+**Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
+`Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
+https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
+
 **Forest sign Cunha from Botafogo**\
 `The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
 https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-jair-cunha-from-botafogo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/your-money/trump-accounts-newborns.html
 **The Danger of a Market Melt-Up**\
 `Traders have repeatedly shrugged off President Trump’s disruptive tariff wars and fiscal policy, pushing U.S. stock prices back into expensive territory, our columnist says.`\
 https://nytimes.com/2025/07/11/business/stock-market-melt-up-downturn.html
-
-**What Should Happen When You Spill Blueberries at the Store?**\
-`A ruling on a moral dilemma at the supermarket.`\
-https://nytimes.com/interactive/2025/07/11/magazine/spilled-groceries-hodgman-quiz.html
 

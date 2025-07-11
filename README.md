@@ -1,3 +1,7 @@
+**Pierre Audi’s Last Act: A Dreamer’s Ambition on the Opera Stage**\
+`This year’s edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
+https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
+
 **Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
 `Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
 https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-c
 https://nytimes.com/newsgraphics/card-story/halloumi-recipes
 
 **Forest consider reporting Spurs to Premier League over Gibbs-White approach**\
-`The 25-year-old midfielder has a a £60million release clause in his contract at the City Ground.`\
+`The 25-year-old midfielder has a £60million release clause in his contract at the City Ground.`\
 https://nytimes.com/athletic/6488077/2025/07/11/nottingham-forest-tottenham-morgan-gibbs-white/
 
 **As Southern France Swelters, the Avignon Festival Tries to Adapt**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/learning/summer-reading-contest-week-6-what-got-y
 **How the $1,000 ‘Trump Accounts’ for Newborns Will Work**\
 `The payments, part of the new domestic policy law, are for U.S. citizens born this year through 2028. The idea is that the money in the accounts will have many years to grow.`\
 https://nytimes.com/2025/07/11/your-money/trump-accounts-newborns.html
-
-**The Danger of a Market Melt-Up**\
-`Traders have repeatedly shrugged off President Trump’s disruptive tariff wars and fiscal policy, pushing U.S. stock prices back into expensive territory, our columnist says.`\
-https://nytimes.com/2025/07/11/business/stock-market-melt-up-downturn.html
 
