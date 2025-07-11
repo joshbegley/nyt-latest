@@ -1,3 +1,7 @@
+**Justin Bieber Surprises With ‘Swag,’ and 10 More New Songs**\
+`Hear tracks by Tyla, Kassa Overall, Syd, Jay Som and others.`\
+https://nytimes.com/2025/07/11/arts/music/playlist-justin-bieber-tyla-syd.html
+
 **Want to Understand Russia? Visit Dubai.**\
 `It’s a key refuge for Moscow’s wealthy, including the record producer Iosif Prigozhin. He insists he still loves President Vladimir V. Putin, no matter what you’ve heard.`\
 https://nytimes.com/2025/07/11/world/europe/russia-dubai-iosif-prigozhin-putin.html

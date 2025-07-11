@@ -1,3 +1,7 @@
+**Justin Bieber Surprises With ‘Swag,’ and 10 More New Songs**\
+`Hear tracks by Tyla, Kassa Overall, Syd, Jay Som and others.`\
+https://nytimes.com/2025/07/11/arts/music/playlist-justin-bieber-tyla-syd.html
+
 **Want to Understand Russia? Visit Dubai.**\
 `It’s a key refuge for Moscow’s wealthy, including the record producer Iosif Prigozhin. He insists he still loves President Vladimir V. Putin, no matter what you’ve heard.`\
 https://nytimes.com/2025/07/11/world/europe/russia-dubai-iosif-prigozhin-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488111/2025/07/11/happy-gilmore-putter-odyssey/
 **Celebrating Humanity, Stubbornly, at Europe’s Photography Mecca**\
 `Since the 1970s, the Rencontres d’Arles has been the place to debut the art form’s latest developments. This year’s edition had a more retro feel.`\
 https://nytimes.com/2025/07/11/arts/design/arles-france-rencontres-de-la-photographie.html
-
-**Refined, Freaky, Fabulous: 20 Unforgettable Looks at Couture Week**\
-`They included glittery blood, metallic masks and a beating heart.`\
-https://nytimes.com/2025/07/11/style/paris-couture-week-best-looks.html
 
