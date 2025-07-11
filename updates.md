@@ -1,3 +1,15 @@
+**Can ‘Superman’ Fly Above Today’s Polarized Politics?**\
+`The director of the reboot, James Gunn, called the superhero from the planet Krypton “an immigrant,” thrusting the summer popcorn movie into an Earthbound culture war.`\
+https://nytimes.com/2025/07/11/movies/superman-politics-backlash.html
+
+**The F.C.C. Is Pressuring Companies to Drop D.E.I. It’s Succeeding, Too.**\
+`T-Mobile, seeking federal approval for two deals, is the latest company to drop its diversity programs amid scrutiny by the Federal Communications Commission.`\
+https://nytimes.com/2025/07/11/business/tmobile-fcc-dei-corporate-america.html
+
+**Man Utd in talks to sign teenage midfielders Ridgeon and Noubissie**\
+`The approaches have been spearheaded by United’s head of academy recruitment Luke Fedorenko and director of academy Nick Cox.`\
+https://nytimes.com/athletic/6488590/2025/07/11/manchester-united-transfer-news-ridgeon-noubissie/
+
 **Appeals Court Overturns Plea Deal in 9/11 Case**\
 `The court found that Defense Secretary Lloyd J. Austin III had the authority to invalidate a contract reached between the accused mastermind and a Pentagon official.`\
 https://nytimes.com/2025/07/11/us/politics/appeals-court-overturns-9-11-plea-deal.html
