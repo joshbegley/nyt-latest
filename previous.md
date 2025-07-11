@@ -1,3 +1,15 @@
+**Appeals Court Overturns Plea Deal in 9/11 Case**\
+`The court found that Defense Secretary Lloyd J. Austin III had the authority to invalidate a contract reached between the accused mastermind and a Pentagon official.`\
+https://nytimes.com/2025/07/11/us/politics/appeals-court-overturns-9-11-plea-deal.html
+
+**Novak Djokovic, I Was Wrong About You**\
+`We never really gave him his due. Maybe the problem was us.`\
+https://nytimes.com/2025/07/11/opinion/djokovic-wimbledon-tennis.html
+
+**Trump Says NATO Countries Will Buy Weapons to Give to Ukraine**\
+`If the plan is finalized, it would allow critical aid to flow to Ukraine as it endures one of Russia’s heaviest assaults of the war.`\
+https://nytimes.com/2025/07/11/world/europe/trump-nato-weapons-ukraine.html
+
 **Rebekah Del Rio, Mournful Singer of ‘Mulholland Drive’ Fame, Dies at 57**\
 `Her pivotal role performing a Spanish-language cover of Roy Orbison’s “Crying” in the 2001 David Lynch movie raised her profile, but her career was marked by misfortune.`\
 https://nytimes.com/2025/07/11/arts/music/rebekah-del-rio-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/progressive-insurance/buying-a-home-and-building-a-
 **Answer 4 Questions. Leave With Your Next Elin Hilderbrand Beach Read.**\
 `Whether you want a romance or family drama, she's written a book for you.`\
 https://nytimes.com/interactive/2025/07/11/books/what-to-read-hilderbrand-summer-books-quiz.html
-
-**MLB Futures Game primer: The top hitters Jim Bowden can’t wait to watch**\
-`The Futures Game is a great opportunity to evaluate and compare some of the top hitting prospects. Here's who — and what — I'll be watching.`\
-https://nytimes.com/athletic/6488218/2025/07/11/mlb-futures-game-2025-hitters/
-
-**Jannik Sinner sets up Wimbledon final against Carlos Alcaraz by dispatching Novak Djokovic**\
-`The world No. 1 rolled past a compromised version of the seven-time champion as the shadows fell over Centre Court`\
-https://nytimes.com/athletic/6488586/2025/07/11/tennis-wimbledon-alcaraz-sinner-final-djokovic/
-
-**Judge Signals She Will Protect Abrego Garcia From Hasty Second Deportation**\
-`The judge, Paula Xinis, said some legal safeguard was needed because the Trump administration had already shown in this and other deportation cases that it could not be trusted.`\
-https://nytimes.com/2025/07/11/us/politics/abrego-garcia-deportation-judge-protection-trump.html
 

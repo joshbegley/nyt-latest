@@ -1,3 +1,15 @@
+**Can ‘Superman’ Fly Above Today’s Polarized Politics?**\
+`The director of the reboot, James Gunn, called the superhero from the planet Krypton “an immigrant,” thrusting the summer popcorn movie into an Earthbound culture war.`\
+https://nytimes.com/2025/07/11/movies/superman-politics-backlash.html
+
+**The F.C.C. Is Pressuring Companies to Drop D.E.I. It’s Succeeding, Too.**\
+`T-Mobile, seeking federal approval for two deals, is the latest company to drop its diversity programs amid scrutiny by the Federal Communications Commission.`\
+https://nytimes.com/2025/07/11/business/tmobile-fcc-dei-corporate-america.html
+
+**Man Utd in talks to sign teenage midfielders Ridgeon and Noubissie**\
+`The approaches have been spearheaded by United’s head of academy recruitment Luke Fedorenko and director of academy Nick Cox.`\
+https://nytimes.com/athletic/6488590/2025/07/11/manchester-united-transfer-news-ridgeon-noubissie/
+
 **Appeals Court Overturns Plea Deal in 9/11 Case**\
 `The court found that Defense Secretary Lloyd J. Austin III had the authority to invalidate a contract reached between the accused mastermind and a Pentagon official.`\
 https://nytimes.com/2025/07/11/us/politics/appeals-court-overturns-9-11-plea-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6488785/2025/07/11/burnley-transfers-larsen-stuttga
 **Amanda Anisimova Tried a Normal Life. Now She’s in the Wimbledon Final.**\
 `The 23-year-old star could be the first American woman to win the Grand Slam since 2016. A self-imposed sabbatical may have helped her get there.`\
 https://nytimes.com/2025/07/11/style/amanda-anisimova-wimbledon.html
-
-**Fantasy football draft steals include ADP afterthoughts Trevor Lawrence, Jaylen Warren**\
-`Michael Salfino identifies the players who are sure to beat their consensus draft price, starting with the ideally-situated Jaguars QB.`\
-https://nytimes.com/athletic/6488332/2025/07/11/fantasy-football-early-adp-targets/
-
-**Buying a Home and Building a Future**\
-`Creating memories, wealth and legacy.`\
-https://nytimes.com/paidpost/progressive-insurance/buying-a-home-and-building-a-future.html
-
-**Answer 4 Questions. Leave With Your Next Elin Hilderbrand Beach Read.**\
-`Whether you want a romance or family drama, she's written a book for you.`\
-https://nytimes.com/interactive/2025/07/11/books/what-to-read-hilderbrand-summer-books-quiz.html
 

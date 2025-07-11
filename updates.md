@@ -1,3 +1,15 @@
+**Appeals Court Overturns Plea Deal in 9/11 Case**\
+`The court found that Defense Secretary Lloyd J. Austin III had the authority to invalidate a contract reached between the accused mastermind and a Pentagon official.`\
+https://nytimes.com/2025/07/11/us/politics/appeals-court-overturns-9-11-plea-deal.html
+
+**Novak Djokovic, I Was Wrong About You**\
+`We never really gave him his due. Maybe the problem was us.`\
+https://nytimes.com/2025/07/11/opinion/djokovic-wimbledon-tennis.html
+
+**Trump Says NATO Countries Will Buy Weapons to Give to Ukraine**\
+`If the plan is finalized, it would allow critical aid to flow to Ukraine as it endures one of Russia’s heaviest assaults of the war.`\
+https://nytimes.com/2025/07/11/world/europe/trump-nato-weapons-ukraine.html
+
 **Rebekah Del Rio, Mournful Singer of ‘Mulholland Drive’ Fame, Dies at 57**\
 `Her pivotal role performing a Spanish-language cover of Roy Orbison’s “Crying” in the 2001 David Lynch movie raised her profile, but her career was marked by misfortune.`\
 https://nytimes.com/2025/07/11/arts/music/rebekah-del-rio-dead.html
