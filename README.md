@@ -1,5 +1,5 @@
-**Villa finalising agreement sign goalkeeper Bizot from Brest**\
-`The 34-year-old will join Villa for a low-cost fee and will serve as the club's No. 2, replacing Robin Olsen.`\
+**Villa finalising agreement to sign goalkeeper Bizot from Brest**\
+`The 34-year-old will join Villa for a low-cost fee and will serve as the club's No. 2 behind Emi Martinez, replacing Robin Olsen.`\
 https://nytimes.com/athletic/6487712/2025/07/11/aston-villa-transfers-marco-bizot-goalkeeper/
 
 **Two Dozen Hospitalized in Mass Drug Overdose in Baltimore**\
