@@ -1,3 +1,7 @@
+**Man Falls to His Death Descending Mountain in Glacier National Park**\
+`The man fell from a steep, off-trail climbing route on the west side of Mount Gould, the authorities said.`\
+https://nytimes.com/2025/07/11/us/glacier-park-hiker-death-montana.html
+
 **Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison**\
 `Justin Mohn, 33, of Levittown, Pa., was convicted on murder and terrorism charges in the 2024 killing of his father, Michael.`\
 https://nytimes.com/2025/07/11/us/justin-mohn-pennsylvania-beheading-guilty.html
