@@ -1,3 +1,7 @@
+**Mariners' Cal Raleigh says Yankees were not being 'discreet' about picking up Andrés Munõz tipping**\
+`The Yankees walked it off in the 10th inning after Aaron Judge hit a sac fly. `\
+https://nytimes.com/athletic/6487444/2025/07/10/mariners-yankees-pitch-tipping-discussion/
+
 **Trump Threatens Higher Tariffs on Canada in the Middle of Trade Talks**\
 `The president revived his discredited claims about fentanyl entering the U.S. from Canada to justify his latest proposed rate of 35 percent.`\
 https://nytimes.com/2025/07/10/us/politics/trump-canada-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/10/us/trump-news/undocumented-immigrants-federa
 **Map: 3.7-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
-
-**Mets miss a late-game lefty, lose another DH in doubleheader: 3 takeaways**\
-`The Mets' uncertainty at designated hitter should make adding another established bat a consideration at the trade deadline.`\
-https://nytimes.com/athletic/6487176/2025/07/10/mets-doubleheader-takeaways-jesse-winker-mark-vientos/
 
