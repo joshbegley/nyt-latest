@@ -1,3 +1,19 @@
+**Evacuations and Lost Cabins: A Century of Floods at Camp Mystic**\
+`Within six years of opening, Camp Mystic was inundated with floodwaters. It was the first of many times.`\
+https://nytimes.com/2025/07/11/us/camp-mystic-flood-history.html
+
+**When Silence Speaks Volumes**\
+`A New York Times investigative reporter explains how a problem he encountered while reporting reveals something important about the second Trump era.`\
+https://nytimes.com/2025/07/11/us/politics/trump-retribution.html
+
+**F1 leaning toward Apple for U.S. TV rights as bid tops ESPN offer: Sources**\
+`ESPN has remained in the mix for retaining U.S. rights, but sources say Apple's offer greatly eclipses the sports media giant's bid`\
+https://nytimes.com/athletic/6489201/2025/07/11/f1-tv-rights-apple-espn/
+
+**2 Men Killed in Hit-and-Run on Brooklyn Street Known for Deadly Crashes**\
+`A Staten Island man was being held on charges that included manslaughter after speeding through a red light and mowing down the victims, the police said.`\
+https://nytimes.com/2025/07/11/nyregion/brooklyn-third-avenue-crash.html
+
 **Mark Snow, Who Conjured the ‘X-Files’ Theme, Is Dead at 78**\
 `It took a misplaced elbow, a quirk of Los Angeles geography and some whistling from his wife to produce one of television’s most memorable melodies.`\
 https://nytimes.com/2025/07/11/arts/music/mark-snow-dead.html

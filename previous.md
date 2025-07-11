@@ -1,3 +1,19 @@
+**Evacuations and Lost Cabins: A Century of Floods at Camp Mystic**\
+`Within six years of opening, Camp Mystic was inundated with floodwaters. It was the first of many times.`\
+https://nytimes.com/2025/07/11/us/camp-mystic-flood-history.html
+
+**When Silence Speaks Volumes**\
+`A New York Times investigative reporter explains how a problem he encountered while reporting reveals something important about the second Trump era.`\
+https://nytimes.com/2025/07/11/us/politics/trump-retribution.html
+
+**F1 leaning toward Apple for U.S. TV rights as bid tops ESPN offer: Sources**\
+`ESPN has remained in the mix for retaining U.S. rights, but sources say Apple's offer greatly eclipses the sports media giant's bid`\
+https://nytimes.com/athletic/6489201/2025/07/11/f1-tv-rights-apple-espn/
+
+**2 Men Killed in Hit-and-Run on Brooklyn Street Known for Deadly Crashes**\
+`A Staten Island man was being held on charges that included manslaughter after speeding through a red light and mowing down the victims, the police said.`\
+https://nytimes.com/2025/07/11/nyregion/brooklyn-third-avenue-crash.html
+
 **Mark Snow, Who Conjured the ‘X-Files’ Theme, Is Dead at 78**\
 `It took a misplaced elbow, a quirk of Los Angeles geography and some whistling from his wife to produce one of television’s most memorable melodies.`\
 https://nytimes.com/2025/07/11/arts/music/mark-snow-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/11/arts/design/brian-clarke-dead.html
 **Man Falls to His Death Descending Mountain in Glacier National Park**\
 `The man fell from a steep, off-trail climbing route on the west side of Mount Gould, the authorities said.`\
 https://nytimes.com/2025/07/11/us/glacier-park-hiker-death-montana.html
-
-**Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison**\
-`Justin Mohn, 33, of Levittown, Pa., was convicted on murder and terrorism charges in the 2024 killing of his father, Michael.`\
-https://nytimes.com/2025/07/11/us/justin-mohn-pennsylvania-beheading-guilty.html
-
-**‘They Kept Coming’: Hundreds of Packages Pile Up Outside Woman’s Home**\
-`A year ago, misdirected Amazon returns began arriving at Karen Holton’s house in California. Eventually, she said, they were stacked so high that she could not easily use her door.`\
-https://nytimes.com/2025/07/11/us/amazon-packages-returns-california-woman.html
-
-**Energy Department to Gut Funding for Solar and Wind Projects**\
-`Stripping hundreds of millions of dollars from renewable energy and efficiency initiatives is part of a broader move to undo efforts to wean the United States off fossil fuels.`\
-https://nytimes.com/2025/07/11/business/energy-environment/energy-department-renewable-funding-cuts.html
-
-**Schumer Urges Kennedy to Declare Public Health Emergency Over Measles**\
-`Senator Chuck Schumer urged the health secretary to declare an emergency to keep other regions from experiencing the “nightmare” seen in Texas.`\
-https://nytimes.com/2025/07/11/us/politics/measles-public-health-emergency-rfk-jr.html
 
