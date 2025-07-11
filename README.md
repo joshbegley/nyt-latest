@@ -1,3 +1,7 @@
+**Plaintiffs' lawyers in House v. NCAA settlement to get roughly $750 million in fees**\
+`The landmark agreement will result in a new financial model that allows schools to directly share revenue with college athletes.`\
+https://nytimes.com/athletic/6489014/2025/07/11/ncaa-house-settlement-legal-fees/
+
 **Bears, Ryan Poles agree to contract extension: Source**\
 `Poles, who was hired in 2022, is under contract through 2029, according to ESPN, lining him up with new head coach Ben Johnson.`\
 https://nytimes.com/athletic/6488952/2025/07/11/bears-ryan-poles-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6480920/2025/07/11/newcastle-transfer-elanga-howe-i
 **Elanga completes move from Forest to Newcastle**\
 `The Swede scored six goals and provided 11 assists for Forest in 38 Premier League games last season.`\
 https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
-
-**Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
-`In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
-https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
 
