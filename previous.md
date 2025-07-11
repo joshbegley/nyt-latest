@@ -1,3 +1,7 @@
+**Novak Djokovic 3.0 lives on precise serves and short points. Now he faces their apex predator**\
+`Djokovic's late career lives on impeccable serving and first-strike tennis. In Sinner, he faces the apex predator of that guise of the sport`\
+https://nytimes.com/athletic/6486649/2025/07/11/tennis-wimbledon-novak-djokovic-jannik-sinner-head-to-head-style/
+
 **Vast Wildfires Force Manitoba to Declare Second Emergency This Year**\
 `The amount of land burned this year is on pace to be the most since 1994, as 100 blazes burned on Friday across the central Canadian province.`\
 https://nytimes.com/2025/07/11/world/americas/manitoba-wildfires-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/movies/madeas-destination-wedding-review.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/11/crosswords/spelling-bee-forum.html
-
-**Cristian Romero is back at Tottenham... but for how long?**\
-`The defender's future has been cause for concern among Spurs fans, but having returned to training, could he be sticking around after all?`\
-https://nytimes.com/athletic/6482950/2025/07/11/cristian-romero-tottenham-atletico/
 
