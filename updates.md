@@ -1,3 +1,7 @@
+**Mariners' Cal Raleigh says Yankees were not being 'discreet' about picking up Andrés Munõz tipping**\
+`The Yankees walked it off in the 10th inning after Aaron Judge hit a sac fly. `\
+https://nytimes.com/athletic/6487444/2025/07/10/mariners-yankees-pitch-tipping-discussion/
+
 **‘And Just Like That …’ Season 3, Episode 7 Recap: Double Standards**\
 `Guiseppe’s mother has opinions about her son’s new relationship with Anthony. Carrie gets defensive about seeming to flirt with her neighbor.`\
 https://nytimes.com/2025/07/10/arts/television/and-just-like-that-recap-season-3-episode-7.html
