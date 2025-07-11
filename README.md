@@ -1,3 +1,7 @@
+**Read the Air India Crash Report**\
+`A preliminary assessment by the Indian authorities said fuel was cut off to both engines shortly before Air India Flight 171 crashed last month, appearing to rule out mechanical failure or design flaws.`\
+https://nytimes.com/interactive/2025/07/11/us/air-india-crash-report.html
+
 **Brian Clarke, Stained-Glass Innovator, Is Dead at 71**\
 `Believing that the art form had to move from religious to secular settings, he designed installations in airports, corporate buildings, a country club and a marketplace.`\
 https://nytimes.com/2025/07/11/arts/design/brian-clarke-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/climate/ben-jealous-sierra-club.html
 **Physical Therapist Dies Inside Hyperbaric Chamber After It Catches Fire**\
 `Emergency personnel found the 43-year-old physical therapist dead inside the chamber at his Arizona health clinic, which offered oxygen therapy.`\
 https://nytimes.com/2025/07/11/us/physical-therapist-dead-hyperbaric-chamber-fire-arizona.html
-
-**Jake Retzlaff, facing possible suspension, announces departure from BYU**\
-`Retzlaff's departure follows a civil lawsuit in May — which was later withdrawn — accusing the quarterback of sexual assault and battery.`\
-https://nytimes.com/athletic/6489073/2025/07/11/jake-retzlaff-byu-departure-potential-suspension/
 
