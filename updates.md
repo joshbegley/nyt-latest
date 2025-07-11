@@ -1,3 +1,11 @@
+**How to watch Sukup IndyCar Race Weekend, the only doubleheader of the 2025 season**\
+`The "fastest short track on the planet" will host the Synk 275 and the Farm to Finish 275, offering Josef Newgarden a chance to bounce back.`\
+https://nytimes.com/athletic/6487366/2025/07/11/indycar-iowa-speedway-doubleheader-how-to-watch-picks-2025/
+
+**The New York Times International Edition in Print for Saturday, July 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/11/todays-new-york-times-international-edition
+
 **How to watch Dream at Fever: Can Caitlin Clark, Indiana get back on track?**\
 `The Fever are sliding as we approach the WNBA season's halfway point. Can Caitlin Clark help turn things around against the Atlanta Dream?`\
 https://nytimes.com/athletic/6486990/2025/07/11/wnba-caitlin-clark-dream-vs-fever-how-to-watch/
