@@ -1,3 +1,19 @@
+**Fuel to Air India Plane That Crashed Was Cut Off After Takeoff, Report Says**\
+`The focus on the fuel switches on Air India Flight 171 raised questions about the pilots’ actions.`\
+https://nytimes.com/2025/07/11/world/asia/air-india-crash-report.html
+
+**Finding Beauty in My Sun-Baked Car**\
+`The heat is so clean and alive.`\
+https://nytimes.com/interactive/2025/07/11/opinion/car-driving-desert-hot.html
+
+**Russia Sees France as Its Main Enemy in Europe, French General Says**\
+`During a rare news conference on Friday, the head of the French military, Thierry Burkhard, said Russia remains a “lasting, close” threat.`\
+https://nytimes.com/2025/07/11/europe-france-general-russia-enemy.html
+
+**Casey Mize to replace Garrett Crochet in the All-Star Game as Tigers' contingent grows**\
+`Mize is the sixth Tigers player to be named to the All-Star Game, giving Detroit the most players of any MLB team in the Midsummer Classic.`\
+https://nytimes.com/athletic/6489136/2025/07/11/casey-mize-all-star-detroit-tigers/
+
 **Walmart Recalls Water Bottles After Lids ‘Forcefully Ejected’ and Impaired Vision**\
 `The lids on the 64-ounce stainless steel bottles can eject and strike consumers, two of whom reported permanent vision loss as a result, safety regulators said.`\
 https://nytimes.com/2025/07/11/us/walmart-water-bottles-recall-vision-loss.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/11/us/camp-mystic-texas-floods.html
 **Former Astros exec Jeff Luhnow says teams reached out about potential roles**\
 `Luhnow hasn't held a role in MLB since being fired by Astros owner Jim Crane in 2020 following the 2017 sign-stealing scandal.`\
 https://nytimes.com/athletic/6488861/2025/07/11/astros-jeff-luhnow-potential-mlb-return/
-
-**Novak Djokovic plans to return to Wimbledon 'for sure' after semifinal loss to Jannik Sinner**\
-`Djokovic looked a step slow in Friday’s 6-3, 6-3, 6-4 defeat to Sinner after a painful fall in his quarterfinal win over Flavio Cobolli.`\
-https://nytimes.com/athletic/6488985/2025/07/11/novak-djokovic-jannik-sinner-wimbledon/
-
-**David Gergen, Washington Veteran Who Advised Four Presidents, Dies at 83**\
-`After serving in the government, he became a prominent political commentator. “Centrism doesn’t mean splitting the difference,” he said in 2020.`\
-https://nytimes.com/2025/07/11/us/politics/david-gergen-dead.html
-
-**Immigration Arrests in Los Angeles Spike Amid Aggressive Enforcement**\
-`Nearly 3,000 people have been arrested since the beginning of June, more than three times the number in previous months this year.`\
-https://nytimes.com/2025/07/11/us/politics/los-angeles-immigration-enforcement.html
-
-**Plaintiffs' lawyers in House v. NCAA settlement to get roughly $750 million in fees**\
-`The landmark agreement will result in a new financial model that allows schools to directly share revenue with college athletes.`\
-https://nytimes.com/athletic/6489014/2025/07/11/ncaa-house-settlement-legal-fees/
 
