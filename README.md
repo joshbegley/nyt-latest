@@ -31,7 +31,7 @@ https://nytimes.com/2025/07/11/world/europe/northern-ireland-bonfire-moygashel-m
 https://nytimes.com/athletic/6487679/2025/07/11/cooper-flagg-summer-league-the-bounce/
 
 **Palace denied entry to Europa League after UEFA ruling**\
-`The south London club are now set compete in the third-tier Conference League but intend to lodge an appeal.`\
+`The south London club are now set to compete in the third-tier Conference League but intend to lodge an appeal.`\
 https://nytimes.com/athletic/6402071/2025/07/11/crystal-palace-europe-europa-league-uefa/
 
 **Carlos Alcaraz keeps Taylor Fritz at bay to reach third Wimbledon final**\
