@@ -1,3 +1,7 @@
+**Meet the French Game Show Contestant Who Won 646 Times in a Row (and 23 Cars)**\
+`He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. “It’s a lot,” he acknowledged.`\
+https://nytimes.com/2025/07/11/arts/television/france-game-show.html
+
 **How to watch Sukup IndyCar Race Weekend, the only doubleheader of the 2025 season**\
 `The "fastest short track on the planet" will host the Synk 275 and the Farm to Finish 275, offering Josef Newgarden a chance to bounce back.`\
 https://nytimes.com/athletic/6487366/2025/07/11/indycar-iowa-speedway-doubleheader-how-to-watch-picks-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/world/americas/brazil-trump-tariffs.html
 **The New York Times News Quiz, July 11, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/07/11/briefing/trump-tariffs-texas-flooding-news-quiz.html
-
-**Why Does My Mind Keep Thinking That?**\
-`The psychiatrist Mark Epstein shares his insights about the mind after decades of working with patients and practicing Buddhism.`\
-https://nytimes.com/video/opinion/100000010278163/why-does-my-mind-keep-thinking-that.html
 

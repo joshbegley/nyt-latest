@@ -1,3 +1,7 @@
+**Trumps to Visit Texas Flood Sites, Where Search for Missing and Dead Continues**\
+`The president and the first lady were set to tour areas devastated by flooding in Central Texas. The administration has faced scrutiny over its level of preparedness and its disaster response.`\
+https://nytimes.com/2025/07/11/us/politics/trump-texas-flood-sites.html
+
 **How to watch Sukup IndyCar Race Weekend, the only doubleheader of the 2025 season**\
 `The "fastest short track on the planet" will host the Synk 275 and the Farm to Finish 275, offering Josef Newgarden a chance to bounce back.`\
 https://nytimes.com/athletic/6487366/2025/07/11/indycar-iowa-speedway-doubleheader-how-to-watch-picks-2025/
