@@ -1,3 +1,7 @@
+**After Texas Flooding, Two Brothers Search for Their Missing Parents**\
+`Luke and Robert Leroy Brake Jr. haven’t seen their parents since a deadly flood swept through their camp site on July 4. They spoke to The New York Times about what happened that day.`\
+https://nytimes.com/video/us/100000010277025/texas-flooding-missing-parents-search.html
+
 **Wimbledon women's final odds, how to watch: Swiatek favored for her first grass win**\
 `Iga Świątek is the clear favorite to win Wimbledon against American Amanda Anisimova in a meeting of two first-time finalists.`\
 https://nytimes.com/athletic/6486653/2025/07/11/wimbledon-womens-final-anisimova-swiatek-odds-how-to-watch/

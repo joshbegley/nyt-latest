@@ -1,3 +1,7 @@
+**After Texas Flooding, Two Brothers Search for Their Missing Parents**\
+`Luke and Robert Leroy Brake Jr. haven’t seen their parents since a deadly flood swept through their camp site on July 4. They spoke to The New York Times about what happened that day.`\
+https://nytimes.com/video/us/100000010277025/texas-flooding-missing-parents-search.html
+
 **Wimbledon women's final odds, how to watch: Swiatek favored for her first grass win**\
 `Iga Świątek is the clear favorite to win Wimbledon against American Amanda Anisimova in a meeting of two first-time finalists.`\
 https://nytimes.com/athletic/6486653/2025/07/11/wimbledon-womens-final-anisimova-swiatek-odds-how-to-watch/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/11/sports/autoracing/eduardo-barrichello-wec.html
 **Sébastien Buemi, the Renaissance Man of Motorsports**\
 `He races in the World Endurance Championship, Formula E and is a development driver for Red Bull’s Formula 1 team.`\
 https://nytimes.com/2025/07/11/sports/autoracing/sebastien-buemi-driver.html
-
-**S.E.C. Accuses Prominent Georgia Republican of Running Ponzi Scheme**\
-`Edwin Brant Frost IV, a well-known Republican, is accused of defrauding 300 investors of $140 million, and using some funds for political donations. He said he took “full responsibility.”`\
-https://nytimes.com/2025/07/11/us/politics/brant-frost-first-liberty-ponzi-scheme.html
 
