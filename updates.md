@@ -1,3 +1,7 @@
+**Map: 3.7-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
+
 **Map: 3.6-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/10/us/southern-california-earthquake-tracker.html
