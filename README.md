@@ -1,3 +1,11 @@
+**Refined, Freaky, Fabulous: 20 Unforgettable Looks at Couture Week**\
+`They included glittery blood, metallic masks and a beating heart.`\
+https://nytimes.com/2025/07/11/style/paris-couture-week-best-looks.html
+
+**Why was Lord's, the home of cricket, decked in red for day two of the Test?**\
+`Players from both sides wore red before play on day two to mark Red For Ruth Day in aid of the Ruth Strauss Foundation`\
+https://nytimes.com/athletic/6487941/2025/07/11/ruth-strauss-cricket-lords-england-india/
+
 **The Windup: Fresh lineup for Home Run Derby**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6488226/2025/07/11/home-run-derby-field-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
 **Republicans Blame Canada for Wildfire Smoke ‘Suffocating’ the U.S.**\
 `Six members of Congress from Wisconsin and Minnesota have asked Canada to say how it plans to tackle the blazes and reduce the haze billowing south.`\
 https://nytimes.com/2025/07/11/world/canada/canada-wildfire-smoke-manitoba-us-congress.html
-
-**Uneven performance aside, Cooper Flagg's NBA debut showed he has the 'it' factor**\
-`There hasn't been an American player with so much hype in more than a decade, at least since Flagg's new teammate Anthony Davis.`\
-https://nytimes.com/athletic/6486753/2025/07/11/cooper-flagg-nba-summer-league-debut/
-
-**Forest sign Cunha from Botafogo**\
-`The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
-https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-jair-cunha-from-botafogo/
 
