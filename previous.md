@@ -1,3 +1,11 @@
+**Miles Mikolas bounces back in pivotal series win over Nationals: Cardinals takeaways**\
+`The adjustment? Mikolas was tipping his pitches in his last start, manager Oli Marmol revealed.`\
+https://nytimes.com/athletic/6487377/2025/07/11/cardinals-takeaways-miles-mikolas-bounces-back/
+
+**Rubio and Chinese Diplomat Vie for Influence in Asia Over Trump’s Tariffs**\
+`Marco Rubio wants to bolster ties with Asia to counter China’s sway, but President Trump’s tariff threats have nations asking why they should align with Washington.`\
+https://nytimes.com/2025/07/11/us/politics/china-us-asia-tariffs.html
+
 **'If you have legs left then use them': Behind the scenes at a Tour de France time trial**\
 `On Wednesday Decathlon-AG2R-La Mondial produced their best Tour de France time trial result for more than a decade — this is how they did it`\
 https://nytimes.com/athletic/6485419/2025/07/11/tour-de-france-time-trial-day-what-happens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6480325/2025/07/11/real-madrid-xabi-alonso-club-wor
 **Should Manchester United continue their pursuit of Bryan Mbeumo? Carl Anka debates himself**\
 `Manchester United's pursuit of Bryan Mbeumo is yet to reach a conclusion. Carl Anka debates himself on whether the club should change tack`\
 https://nytimes.com/athletic/6480033/2025/07/11/bryan-mbeumo-manchester-united-transfer-brentford/
-
-**'It's Arsenal. They won't just ignore it' - Thomas Partey, the allegations and what the club knew**\
-`Arsenal have been aware of complaints about Partey, all of which he denies, for more than three years. Questions are now being asked`\
-https://nytimes.com/athletic/6485525/2025/07/11/arsenal-thomas-partey-allegations/
-
-**'In jail, some say you either want to be a footballer or a drug dealer. I’ve been both'**\
-`Exclusive: Liverpool's former academy prodigy reveals how he went from budding football star to convicted cocaine conspirator`\
-https://nytimes.com/athletic/6482578/2025/07/11/jamie-cassidy-the-liverpool-starlet-turned-drugs-conspirator-in-jail-some-say-lads-want-to-be-a-footballer-or-a-dealer-ive-been-both/
 
