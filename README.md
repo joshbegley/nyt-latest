@@ -1,3 +1,7 @@
+**Sébastien Buemi, the Renaissance Man of Motorsports**\
+`He races in the World Endurance Championship, Formula E and is a development driver for Red Bull’s Formula 1 team.`\
+https://nytimes.com/2025/07/11/sports/autoracing/sebastien-buemi-driver.html
+
 **S.E.C. Accuses Prominent Georgia Republican of Running Ponzi Scheme**\
 `Edwin Brant Frost IV, a well-known Republican, is accused of defrauding 300 investors of $140 million, and using some funds for political donations. He said he took “full responsibility.”`\
 https://nytimes.com/2025/07/11/us/politics/brant-frost-first-liberty-ponzi-scheme.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/11/climate/flash-floods-nws-office-vacan
 **Police Investigate Burning of Migrant-Boat Effigy in Northern Ireland as a Hate Crime**\
 `An effigy of a boat containing mannequins of migrants was set alight in the village of Moygashel on Thursday, in an incident condemned by political and religious leaders as racist and threatening.`\
 https://nytimes.com/2025/07/11/world/europe/northern-ireland-bonfire-moygashel-migrant-boat.html
-
-**The Bounce: Cooper Flagg’s poster moment, almost**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6487679/2025/07/11/cooper-flagg-summer-league-the-bounce/
 
