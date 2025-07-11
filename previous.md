@@ -1,6 +1,6 @@
 **Wimbledon semifinal halted in another incident of crowd member falling ill**\
 `There have been several incidents of play being stopped at this year’s Wimbledon championships due to spectators being taken ill.`\
-https://nytimes.com/athletic/6488175/2025/07/11/wimbledon-semifinal-between-carlos-alcaraz-and-taylor-fritz-stopped-twice-due-to-unwell-spectators/
+https://nytimes.com/athletic/6488175/2025/07/11/tennis-wimbledon-semifinal-stopped-hot-weather/
 
 **Bodyguards Using Fitness App Revealed Locations of Swedish Leaders**\
 `Secret meetings and private holidays of the royal family and prime minister were inadvertently made public on Strava, which has raised security concerns in other instances.`\

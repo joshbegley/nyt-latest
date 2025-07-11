@@ -1,3 +1,7 @@
+**The Windup: Fresh lineup for Home Run Derby**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6488226/2025/07/11/home-run-derby-field-the-windup/
+
 **Wimbledon semifinal halted in another incident of crowd member falling ill**\
 `There have been several incidents of play being stopped at this year’s Wimbledon championships due to spectators being taken ill.`\
 https://nytimes.com/athletic/6488175/2025/07/11/tennis-wimbledon-semifinal-stopped-hot-weather/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6486753/2025/07/11/cooper-flagg-nba-summer-league-d
 **Forest sign Cunha from Botafogo**\
 `The 20-year-old has signed a five-year contract at the City Ground, where he will be reunited with former teammate Igor Jesus.`\
 https://nytimes.com/athletic/6488125/2025/07/11/nottingham-forest-sign-defender-jair-cunha-from-botafogo/
-
-**Florida charges ex-Jags employee with 6 counts of state grand theft**\
-`Patel is currently serving a 6 1/2 year sentence after pleading guilty to federal charges of wire fraud and an illegal monetary transaction.`\
-https://nytimes.com/athletic/6488045/2025/07/11/jaguars-amit-patel-grand-theft-charges/
 
