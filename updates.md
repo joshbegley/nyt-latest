@@ -1,3 +1,7 @@
+**Meet the French Game Show Contestant Who Won 646 Times in a Row (and 23 Cars)**\
+`He also won TVs, musical instruments, a parachuting session, makeup, household appliances and much, much more. “It’s a lot,” he acknowledged.`\
+https://nytimes.com/2025/07/11/arts/television/france-game-show.html
+
 **Trumps to Visit Texas Flood Sites, Where Search for Missing and Dead Continues**\
 `The president and the first lady were set to tour areas devastated by flooding in Central Texas. The administration has faced scrutiny over its level of preparedness and its disaster response.`\
 https://nytimes.com/2025/07/11/us/politics/trump-texas-flood-sites.html
