@@ -1,3 +1,7 @@
+**Trumpâs Seesawing on Tariffs Gives the World Whiplash**\
+`Blunt letters dictating terms posted to social media and changes late in negotiations have left trading partners wondering what President Trump will do next.`\
+https://nytimes.com/2025/07/11/world/europe/trump-tariffs-global-trade-deals.html
+
 **Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
 `A minuteâs silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
 https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487184/2025/07/11/yankees-antonio-gomez-catching-p
 **NWSL stars Racheal Kundananji, Barbra Banda supercharge Zambia's attack at women's AFCON**\
 `The 25-year-old pair has combined to score every Zambia goal at WAFCON 2025`\
 https://nytimes.com/athletic/6487362/2025/07/11/zambian-nwsl-racheal-kundananji-barbra-banda-wafcon/
-
-**How Will Vest went from Rule 5 castoff to lifeblood of the Tigers' bullpen**\
-`Once a college shortstop, Will Vest was demoted at some point in each of his pro seasons until last year. `\
-https://nytimes.com/athletic/6486008/2025/07/11/tigers-will-vest-bullpen/
 

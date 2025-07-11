@@ -1,3 +1,7 @@
+**Trumpâs Seesawing on Tariffs Gives the World Whiplash**\
+`Blunt letters dictating terms posted to social media and changes late in negotiations have left trading partners wondering what President Trump will do next.`\
+https://nytimes.com/2025/07/11/world/europe/trump-tariffs-global-trade-deals.html
+
 **Liverpool to pay tribute to Jota, Silva at Preston preseason friendly**\
 `A minuteâs silence will be observed and digital tributes will be displayed. Both sets of players will wear black armbands`\
 https://nytimes.com/athletic/6487847/2025/07/11/liverpool-preston-diogo-jota-tributes/
