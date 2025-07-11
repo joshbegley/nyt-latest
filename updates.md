@@ -1,3 +1,12 @@
+**Elanga completes move from Forest to Newcastle**\
+`The Swede scored six goals and provided 11 assists for Forest in 38 Premier League games last season.`\
+https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
+
+**Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
+`Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
+`\
+https://nytimes.com/athletic/6488849/2025/07/11/blues-john-kelly-broadcaster-simulcast-tv-radio/
+
 **Longtime broadcaster John Kelly will not return as Blues move to simulcast model**\
 `Kelly joined the Blues' TV broadcast booth in 2005 after play-by-play stints with the Tampa Bay Lightning and Colorado Avalanche.
 `\

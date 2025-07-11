@@ -1,3 +1,7 @@
+**Elanga completes move from Forest to Newcastle**\
+`The Swede scored six goals and provided 11 assists for Forest in 38 Premier League games last season.`\
+https://nytimes.com/athletic/6479606/2025/07/11/anthony-elanga-completed-transfer-latest-newcastle-nottingham-forest/
+
 **Sophie Elmhirst on the True Story of a Shipwrecked Couple**\
 `In her new book, “A Marriage at Sea,” the British journalist revisits an amazing account of disaster and survival from the early 1970s.`\
 https://nytimes.com/2025/07/11/books/review/podcast-sophie-elmhirst-marriage-at-sea.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/11/us/politics/appeals-court-overturns-9-11-plea-dea
 **Novak Djokovic, I Was Wrong About You**\
 `We never really gave him his due. Maybe the problem was us.`\
 https://nytimes.com/2025/07/11/opinion/djokovic-wimbledon-tennis.html
-
-**Trump Says NATO Countries Will Buy Weapons to Give to Ukraine**\
-`If the plan is finalized, it would allow critical aid to flow to Ukraine as it endures one of Russia’s heaviest assaults of the war.`\
-https://nytimes.com/2025/07/11/world/europe/trump-nato-weapons-ukraine.html
 
