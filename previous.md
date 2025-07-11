@@ -1,3 +1,7 @@
+**On the Fast Track**\
+`James McCarron opens our solving weekend.`\
+https://nytimes.com/2025/07/10/crosswords/daily-puzzle-2025-07-11.html
+
 **‘And Just Like That …’ Season 3, Episode 7 Recap: Double Standards**\
 `Guiseppe’s mother has opinions about her son’s new relationship with Anthony. Carrie gets defensive about seeming to flirt with her neighbor.`\
 https://nytimes.com/2025/07/10/arts/television/and-just-like-that-recap-season-3-episode-7.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487241/2025/07/10/pelicans-herb-jones-extension/
 **Trump Nominates ‘Alpha Male’ Influencer to Be Ambassador to Malaysia**\
 `Nick Adams rose to prominence with a hypermasculine identity and crass jokes about Hooters. President Trump named him ambassador to a country of 35 million people.`\
 https://nytimes.com/2025/07/10/us/politics/nick-adams-ambassador-malaysia-trump.html
-
-**Yankees' Jazz Chisholm Jr. rounds out Home Run Derby field as final member**\
-`Chisholm joins a field that will also have Ronald Acuña Jr., Cal Raleigh, James Wood and Byron Buxton, among others.`\
-https://nytimes.com/athletic/6487188/2025/07/10/2025-home-run-derby-jazz-chisholm-jr/
 
