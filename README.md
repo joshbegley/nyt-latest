@@ -15,7 +15,7 @@ https://nytimes.com/live/2025/07/11/us/trump-texas-news
 https://nytimes.com/athletic/6398142/2025/07/11/buffalo-bills-training-camp-2025-preview-linebackers/
 
 **Padres takeaways: An untenable catching situation, Ethan Salas update, trade factors**\
-`Kyle Higashioka’s return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
+`Kyle Higashiokaâs return to Petco Park last weekend highlighted an undeniable reality for the Padres.`\
 https://nytimes.com/athletic/6487542/2025/07/11/padres-takeaways-catchers-ethan-salas-update/
 
 **Canucks offseason moves: Where are they better? Where are they worse?**\
@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6487874/2025/07/11/yeray-athletic-club-suspension/
 https://nytimes.com/athletic/6486611/2025/07/11/ea-sports-college-football-26-strategy-tips-tricks/
 
 **A day at Lord's: Cricketing heritage, egg and bacon ties, and salmanazars of Champagne**\
-`What sets Lord's apart is its history, its grandeur and it's beauty – a classic, picturesque cricket venue with a gorgeous old pavilion`\
+`What sets Lord's apart is its history, its grandeur and it's beauty â a classic, picturesque cricket venue with a gorgeous old pavilion`\
 https://nytimes.com/athletic/6477693/2025/07/11/lords-mcc-england-india-history/
 
