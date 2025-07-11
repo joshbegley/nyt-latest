@@ -1,3 +1,7 @@
+**Odyssey selling Happy Gilmore 2 hockey stick putter for $500**\
+`The long-awaited sequel to Happy Gilmore comes out later this month`\
+https://nytimes.com/athletic/6488111/2025/07/11/happy-gilmore-putter-odyssey/
+
 **Celebrating Humanity, Stubbornly, at Europe’s Photography Mecca**\
 `Since the 1970s, the Rencontres d’Arles has been the place to debut the art form’s latest developments. This year’s edition had a more retro feel.`\
 https://nytimes.com/2025/07/11/arts/arles-france-rencontres-de-la-photographie.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/science/test-your-math-knowledge.html
 **Myriad Red Sox, Cameron Schlittler and more top fantasy baseball waiver wire options**\
 `Owen Poindexter runs through the best available options on this week's fantasy baseball waiver wire, including several Red Sox options.`\
 https://nytimes.com/athletic/6486831/2025/07/11/fantasy-baseball-top-waiver-wire-adds-pickups-red-sox/
-
-**Pierre Audi’s Last Act: A Dreamer’s Ambition on the Opera Stage**\
-`This year’s edition of the Aix-en-Provence Festival was planned by Audi but opened without him, following his death in May.`\
-https://nytimes.com/2025/07/11/arts/music/pierre-audi-aix-festival.html
 
