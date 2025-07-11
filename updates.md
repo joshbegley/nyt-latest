@@ -1,3 +1,11 @@
+**Jannik Sinner, Novak Djokovic and Riccardo Piatti, the coach who knows them both**\
+`Djokovic and Sinner's similarities make their matches especially compelling. For the coach who taught them both, it is no surprise.`\
+https://nytimes.com/athletic/6486451/2025/07/11/novak-djokovic-jannik-sinner-riccardo-piatti-coach-interview/
+
+**Henderson set to join Brentford on free transfer**\
+`The 35-year-old midfielder had interest from across Europe but making a comeback to England was his priority.`\
+https://nytimes.com/athletic/6484959/2025/07/11/jordan-henderson-brentford-transfer/
+
 **Villa finalising agreement to sign goalkeeper Bizot from Brest**\
 `The 34-year-old will join Villa for a low-cost fee and will serve as the club's No. 2 behind Emi Martinez, replacing Robin Olsen.`\
 https://nytimes.com/athletic/6487712/2025/07/11/aston-villa-transfers-marco-bizot-goalkeeper/
