@@ -1,3 +1,7 @@
+**A Week of Searching for Texas Flood Victims**\
+`Text by Christopher Maag`\
+https://nytimes.com/card/2025/07/12/us/texas-floods-search
+
 **They Fled War in Ethiopia. Then American Bombs Found Them.**\
 `In April, U.S.-made bombs destroyed a detention facility that held Ethiopian migrants in Yemen, crushing bodies and shredding limbs. Amid official silence, the survivors are left wondering why.`\
 https://nytimes.com/2025/07/12/world/middleeast/ethiopia-yemen-american-bombs.html
