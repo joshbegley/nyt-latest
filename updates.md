@@ -1,3 +1,7 @@
+**Tunnel Vision**\
+`You’ll need all of your powers of perception to get through Brandon Koppy’s latest Sunday puzzle.`\
+https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
+
 **Of course Iga Swiatek won Wimbledon, the tournament where the greats rise**\
 `The Pole's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
 https://nytimes.com/athletic/6490272/2025/07/12/tennis-iga-swiatek-grand-slam-titles-wimbledon/
