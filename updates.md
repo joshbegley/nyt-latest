@@ -1,3 +1,11 @@
+**Gianni Infantino talks up the Club World Cup at Trump Tower - 'We will make it better'**\
+`"We may have received some justified criticism," said Infantino as he declared that "the golden era of global club football has started"`\
+https://nytimes.com/athletic/6490200/2025/07/12/gianni-infantino-club-world-cup-trump-tower/
+
+**Cazorla, 40, signs new Oviedo contract to make La Liga return**\
+`The former Arsenal playmaker will enter his third season with Oviedo, marking his return to La Liga after leaving Villarreal five years ago.`\
+https://nytimes.com/athletic/6490234/2025/07/12/santi-cazorla-oviedo-la-liga-return/
+
 **Gyokeres to be fined, apologise to team-mates after missing Sporting return - president**\
 `Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching an agreement over a fee.`\
 https://nytimes.com/athletic/6490278/2025/07/12/viktor-gyokeres-arsenal-transfer-sporting-training/
