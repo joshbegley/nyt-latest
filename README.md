@@ -1,3 +1,7 @@
+**Mike Brown's philosophy, other Knicks thoughts after first summer league game**\
+`Brown's philosophy, young players struggle and more.`\
+https://nytimes.com/athletic/6489382/2025/07/11/mike-brown-philosophy-knicks-summer-league/
+
 **Convention Challenger**\
 `You’ll need to put on your thinking cap to get through Katie Hoody’s stumper-filled puzzle.`\
 https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump
 **MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
 `Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
 https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
-
-**Farmworker Dies After Fleeing a Federal Raid in Southern California**\
-`During a chaotic raid in Ventura County on Thursday, the worker fell from a greenhouse at a cannabis farm, suffered spinal and skull injuries, and died on Friday.`\
-https://nytimes.com/2025/07/11/us/immigration-raids-farmworker-death.html
 
