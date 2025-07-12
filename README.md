@@ -1,17 +1,21 @@
+**Fed Defends Renovations as White House Widens Attacks on Central Bank**\
+`President Trump and his allies have accused the Federal Reserve chair, Jerome Powell, of misleading Congress in what some legal scholars worry is a prelude to seeking his removal.`\
+https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
+
 **MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
-`Max Fried, Garrett Crochet, Jacob deGrom and Julio RodrÃ­guez were among several players who had their spots filled by others.`\
+`Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
 https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
 
 **Farmworker Dies After Fleeing a Federal Raid in Southern California**\
 `During a chaotic raid in Ventura County on Thursday, the worker fell from a greenhouse at a cannabis farm, suffered spinal and skull injuries, and died on Friday.`\
 https://nytimes.com/2025/07/11/us/immigration-raids-farmworker-death.html
 
-**Matt Olson replaces Ronald AcuÃ±a Jr. in Home Run Derby**\
-`AcuÃ±a still plans to start in Tuesday's All-Star Game, which the Atlanta Braves are hosting.`\
+**Matt Olson replaces Ronald Acuña Jr. in Home Run Derby**\
+`Acuña still plans to start in Tuesday's All-Star Game, which the Atlanta Braves are hosting.`\
 https://nytimes.com/athletic/6489315/2025/07/11/home-run-derby-matt-olson-ronald-acuna-replacement/
 
 **After Texas Disaster, Trump Shifts His Tone on FEMA**\
-`Earlier this year, President Trump suggested he wanted to shutter the agency. Now, he says his aides âfixed it up in no time.â`\
+`Earlier this year, President Trump suggested he wanted to shutter the agency. Now, he says his aides “fixed it up in no time.”`\
 https://nytimes.com/2025/07/11/us/politics/trump-fema-texas-flood.html
 
 **House attorneys argue plan to vet NIL collective deals violates settlement**\
@@ -30,11 +34,7 @@ https://nytimes.com/2025/07/11/nyregion/philip-murphy-new-jersey-alina-habba-inv
 `Los Angeles Police Department officers fired foam projectiles and flash-bang devices at reporters and photographers who were covering the immigration protests in June.`\
 https://nytimes.com/2025/07/11/us/judge-orders-los-angeles-police-to-stop-shooting-projectiles-at-journalists.html
 
-**Why Yankeesâ Max Fried won't pitch in the All-Star Game**\
+**Why Yankees’ Max Fried won't pitch in the All-Star Game**\
 `Fried taking the mound in the first inning at Truist Park in Atlanta would have been a made-for-TV moment. Alas, it won't happen.`\
 https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all-star-game/
-
-**Man Had 14 Toucans Stashed in His Volkswagen Dashboard, U.S. Says**\
-`Carlos Abundez, 35, is facing federal smuggling charges after U.S. Customs and Border Protection officers made the discovery. The birds, a threatened species, were in stable condition.`\
-https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
 
