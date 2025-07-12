@@ -1,13 +1,21 @@
-**Nordstrom’s Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
-`Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
+**Nordstromâs Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
+`Nordstromâs Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that donât see discounts often.`\
 https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
+
+**Trump Threatens 30% Tariff on Goods From E.U., Dashing Hopes for a Deal**\
+`European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
+https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
+
+**Trump Administration Live Updates: President Announces 30% Tariffs on E.U. and Mexico**\
+``\
+https://nytimes.com/live/2025/07/12/us/trump-news
 
 **The Pulse: College football starts ... next month!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
 
-**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
-`"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
+**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesnât have nerves'**\
+`"Heâs only going to get better from here," says summer league teammate Kyshawn George.`\
 https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
 
 **How Lionel Messi's favorite goal became immortalized in art**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer
 **Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
 `The Phillies criticized MLB after two of their pitchers weren't named replacements but Jacob Misiorowski, who has 5 starts, made the team.`\
 https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
-
-**Raised around stars, Dino Ebel's sons now chase own MLB dreams**\
-`Dino Ebel has spent his life in professional baseball. His sons could be joining him in the pro ranks soon.`\
-https://nytimes.com/athletic/6489424/2025/07/12/ebel-family-mlb-draft-all-star-weekend/
-
-**What the ‘Exhausted Majority’ Really Wants**\
-`It’s probably not Elon Musk’s new party.`\
-https://nytimes.com/2025/07/12/opinion/third-party-elon-musk.html
 
