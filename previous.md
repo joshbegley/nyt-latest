@@ -1,3 +1,31 @@
+**Stanway's long road to recovery: 'Low' moments, mentor chats and tattooing**\
+`Charting the England midfielder's return to fitness, with insight from her fitness coach and her footballing mentor`\
+https://nytimes.com/athletic/6488056/2025/07/12/georgia-stanway-euros-recovery/
+
+**FIFA x fashion: 'More than just a wardrobe'?**\
+`Football's world governing body has launched a fashion line. But is it any good?`\
+https://nytimes.com/athletic/6488057/2025/07/12/fifa-fashion-club-world-cup/
+
+**Ranking the Ballon d’Or 2025 favourites: Has the Club World Cup changed things?**\
+`A look at the state of play as the world's best players jostle to win the sport's most prestigious individual award`\
+https://nytimes.com/athletic/6486812/2025/07/12/ranking-the-ballon-dor-2025-favourites-club-world-cup/
+
+**Giorgio Russo's Love Island presence and what it says about women's football**\
+`Including the brother of high-profile women’s player Alessia on the reality show is another big cultural moment around England's Lionesses`\
+https://nytimes.com/athletic/6480055/2025/07/12/giorgio-russos-love-island-alessia/
+
+**What Jordan Henderson can offer Brentford - a midfield metronome who can fill leadership void**\
+`The England international left Ajax and is set to join Brentford on a two-year deal. Here's how his role has changed since leaving Liverpool`\
+https://nytimes.com/athletic/6488633/2025/07/12/henderson-brentford-transfer-analysis/
+
+**The quintessential Paris Saint-Germain goal and why opposing teams still don't know how to stop it**\
+`The new European champions are capable of building devastating passing sequences their rivals are left searching in vain for answers to`\
+https://nytimes.com/athletic/6485715/2025/07/12/psg-quintessential-goal-opposition-teams/
+
+**Why Bend It Like Beckham's director has swapped football for cricket**\
+`The football film made a big impact nearly 25 years ago and now its director has made a trailer for the England-India women's cricket series`\
+https://nytimes.com/athletic/6485711/2025/07/12/bend-it-like-beckham-cricket-england-india/
+
 **When It’s This Hot, ‘We Are Enduring, Not Living’**\
 `How one man gets by in the unbearable and inescapable heat of Pakistan’s biggest and most unlivable city.`\
 https://nytimes.com/2025/07/12/world/asia/when-its-this-hot-we-are-enduring-not-living.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/07/12/world/europe/espresso-italy-coffee-prices.html
 **Brewers phenom Jacob Misiorowski named to NL All-Star team after 5 starts**\
 `Misiorowski will replace Chicago Cubs starter Matthew Boyd after pitching just 25 2/3 innings.`\
 https://nytimes.com/athletic/6489455/2025/07/12/jacob-misiorowski-all-star-brewers/
-
-**Connections: Sports Edition Coach: Hints for July 12, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6489208/2025/07/12/connections-sports-edition-hints-for-july-12-2025/
-
-**Corrections: July 12, 2025**\
-`Corrections that appeared in print on Saturday, July 12, 2025.`\
-https://nytimes.com/2025/07/12/pageoneplus/corrections-july-12-2025.html
-
-**Quote of the Day: No, Chef! Cancellation Rallies Fans.**\
-`Quotation of the Day for Saturday, July 12, 2025.`\
-https://nytimes.com/2025/07/11/pageoneplus/quote-of-the-day-no-chef-cancellation-rallies-fans.html
-
-**Twins' Carlos Correa helped off field with ankle injury from Tommy Pham slide**\
-`The Twins say Correa exited with a mild right ankle sprain.`\
-https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury-tommy-pham/
-
-**Pistons' Ron Holland shows growth with 28-point performance in Vegas**\
-`Nearly half of Ron Holland's 28 points came by way of his 3-point shooting, an area of improvement for him entering the offseason.`\
-https://nytimes.com/athletic/6489404/2025/07/11/pistons-ron-holland-28-point-summer-league/
-
-**Mike Brown's philosophy, other Knicks thoughts after first summer league game**\
-`Thoughts and observations after the Knicks' 104-86 loss to the Pistons in their first game of summer league action.`\
-https://nytimes.com/athletic/6489382/2025/07/11/mike-brown-philosophy-knicks-summer-league/
-
-**Convention Challenger**\
-`You’ll need to put on your thinking cap to get through Katie Hoody’s stumper-filled puzzle.`\
-https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html
 
