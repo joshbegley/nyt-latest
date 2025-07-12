@@ -1,3 +1,7 @@
+**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
+`"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
+https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
+
 **How Lionel Messi's favorite goal became immortalized in art**\
 `One of the Argentine superstar's greatest goals has been reimagined as an "immersive gateway that collapses time"`\
 https://nytimes.com/athletic/6489379/2025/07/12/messi-greatest-goal-art-header-manchester-united-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/opinion/trump-russia-china-iran.html
 **‘Egregious.’ Brazen.’ ‘Lawless.’ How 48 Judges Describe Trump’s Actions, in Their Own Words**\
 `Dozens of judges, appointed by presidents of both parties, have stood up to the administration’s lawlessness.`\
 https://nytimes.com/interactive/2025/07/12/opinion/editorials/federal-judges-quotes-trump-administration.html
-
-**Floods Are Inevitable. Catastrophe Is Not.**\
-`The floods will come no matter what kind of solutions we put forth.`\
-https://nytimes.com/2025/07/12/opinion/texas-floods.html
 
