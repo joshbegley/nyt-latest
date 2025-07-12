@@ -1,40 +1,40 @@
-**Farewell to Portugal's incredible fans. They deserved better at Euro 2025**\
-`Portugal lost 2-1 to Belgium on Friday night to exit Euro 2025. Their fans still kept singing`\
-https://nytimes.com/athletic/6489233/2025/07/12/portugal-fans-euro-2025-belgium/
+**How to watch AEW All In: Going big in Texas**\
+`AEW’s boldest U.S. pay-per-view yet storms into Arlington with stadium-sized stakes and a full-throttle Saturday card.`\
+https://nytimes.com/athletic/6489276/2025/07/12/aew-all-in-texas-wrestling-how-to-watch-2025/
 
-**Spain are the best side in the Euro 2025 group stage. But that doesn't mean they'll win it**\
-`Spain’s 3-1 win over Italy in Bern confirmed their position as Group B winners and maintained their 100 per cent record at Euro 2025`\
-https://nytimes.com/athletic/6489282/2025/07/12/spain-euro-2025-group-stage-winners-italy/
+**A Mother of Five Survived the Flood to Return to a Cabin in Ruins**\
+`Jaque White and her five children escaped the rising waters of the Guadalupe River just in time. Now they have to rebuild.`\
+https://nytimes.com/2025/07/12/us/politics/texas-flood-survivor-damage.html
 
-**Crystal Palace, UEFA and multi-club ownership: How a Europa League dream died**\
-`Crystal Palace have been demoted from the Europa League to the Conference League. This is how it happened...`\
-https://nytimes.com/athletic/6447823/2025/07/12/crystal-palace-uefa-europa-parish-textor/
+**An Army of Searchers Combs the Banks of the Guadalupe for the Missing**\
+`Volunteers and professionals from around the country and Mexico are still searching the challenging terrain for victims of the Texas flood.`\
+https://nytimes.com/2025/07/12/nyregion/an-army-of-searchers-combs-the-banks-of-the-guadalupe-for-the-missing.html
 
-**Spend an Hour in the Dark With Bats, Cats and Naked Mole Rats**\
-`The Bronx Zoo has reopened its World of Darkness exhibit after a 16-year hiatus.`\
-https://nytimes.com/2025/07/12/nyregion/spend-an-hour-in-the-dark-with-bats-cats-and-naked-mole-rats.html
+**Around the World, Flash Flood Disasters Are the ‘Hardest Kind to Prevent’**\
+`Scholars and designers of early warning systems say that there are still huge gaps in our ability to predict flash floods and warn those at risk.`\
+https://nytimes.com/2025/07/12/climate/flash-floods-disaster-prevention.html
 
-**How the Entrepreneur Behind Mini Croissant Cereal Juggles 2 Bakeries**\
-`Ashley Coiffard, who co-owns L’Appartement 4F, stays busy with long walks, staff meetings and FaceTime with friends.`\
-https://nytimes.com/2025/07/12/nyregion/ashley-coiffard-croissant-l-appartement-4f.html
+**Denver Museum Finds a Dinosaur Fossil Under Its Parking Lot**\
+`The fossil, estimated to be about 70 million years old, was found during a drilling project.`\
+https://nytimes.com/2025/07/12/science/denver-museum-nature-science-dinosaur-fossil.html
 
-**Tracking Devices Were Removed From N.Y.P.D. Vehicles at Chief’s Request**\
-`Federal prosecutors investigating Jeffrey Maddrey, who resigned over sexual abuse accusations, learned of the request during an investigation into overtime misuse in his office.`\
-https://nytimes.com/2025/07/12/nyregion/maddrey-nypd-car-trackers-removed.html
+**Trump’s Birthright Citizenship Ban Faces New Peril: Class Actions**\
+`In last month’s decision limiting one judicial tool, universal injunctions, the court seemed to invite lower courts to use class actions as an alternative.`\
+https://nytimes.com/2025/07/12/us/politics/birthright-citizenship-class-action.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/12/crosswords/spelling-bee-forum.html
+**Tariffs or Deals? Trump Seems Content With Punishing Levies.**\
+`The president’s supporters portray him as a top dealmaker. But, at least for now, far more trading partners have gotten stiff tariffs than trade deals.`\
+https://nytimes.com/2025/07/12/business/economy/trump-tariffs-deals.html
 
-**The New York Times in Print for Saturday, July 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/12/todays-new-york-times
+**Parents and Graduate Students Have New Loan Limits. Who Will Fill the Gap?**\
+`The federal cap on the amounts people can borrow means some of them will fall short. That’s especially true for students in professional schools.`\
+https://nytimes.com/2025/07/12/your-money/student-loan-limits.html
 
-**Taylor beats Serrano in trilogy, but women's boxing was the ultimate victor**\
-`"I just know I can't fight Amanda Serrano again. She punches too hard," Taylor said as the women shared a laugh and a handshake.`\
-https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
+**Is This a Talk Show or a Job Interview?**\
+`Plus, managing people twice your age.`\
+https://nytimes.com/2025/07/12/business/interviewer-skills-advice.html
 
-**Ceddanne Rafaela crushes walk-off homer to continue Red Sox's hot streak**\
-`"I've been waiting for this moment since I was watching games with my mom in 2004, 2005, 2006, 2007," Rafaela said.`\
-https://nytimes.com/athletic/6489495/2025/07/12/red-sox-ceddanne-rafaela-walk-off-alex-bregman/
+**David Corenswet Wants to Be a Superman You Can Count On**\
+`The actor has a man-out-of-time quality that makes him surprisingly like his character. But he is hyperaware of the present expectations riding on his performance.`\
+https://nytimes.com/2025/07/12/movies/david-corenswet-superman.html
 
