@@ -2,6 +2,10 @@
 `Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
 https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
 
+**Trump Administration Live Updates: President Announces Tariffs on E.U. and Mexico**\
+``\
+https://nytimes.com/live/2025/07/12/us/trump-news
+
 **The Pulse: College football starts ... next month!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-mi
 **Raised around stars, Dino Ebel's sons now chase own MLB dreams**\
 `Dino Ebel has spent his life in professional baseball. His sons could be joining him in the pro ranks soon.`\
 https://nytimes.com/athletic/6489424/2025/07/12/ebel-family-mlb-draft-all-star-weekend/
-
-**What the ‘Exhausted Majority’ Really Wants**\
-`It’s probably not Elon Musk’s new party.`\
-https://nytimes.com/2025/07/12/opinion/third-party-elon-musk.html
 
