@@ -1,3 +1,7 @@
+**With prominent summer league role, Reed Sheppard 'getting better and better every day'**\
+`The Rockets' push to fast-track Reed Sheppard's growth stems from internal confidence in his potential.`\
+https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
+
 **Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
 `The Phillies criticized MLB after two of their pitchers weren't named replacements but the Brewers rookie with five starts made the NL team.`\
 https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
