@@ -1,3 +1,7 @@
+**6,252 calories and 1,245 grams of carbs: What it takes to fuel a winning ride at the Tour de France**\
+`The Athletic spent stage six of this year's race with the EF Education-Easypost team — this is how they fuelled Ben Healy's solo win `\
+https://nytimes.com/athletic/6488731/2025/07/12/how-to-fuel-tour-de-france-winning-ride-ben-healy/
+
 **Greenberg: From Mark Buehrle to late Bobby Jenks, 2005 White Sox return to Chicago's spotlight**\
 `For a guy who loved being on the mound, Buehrle kind of hates attention. "I was literally nervous as can be all day today."`\
 https://nytimes.com/athletic/6489456/2025/07/12/mark-buehrle-statue-bobby-jenks-2005-white-sox/
