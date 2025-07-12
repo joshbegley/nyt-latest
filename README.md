@@ -3,7 +3,7 @@
 https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html
 
 **Why Myles Turner is confident the Bucks are a perfect new home**\
-`The Bucks left no doubt about their eagerness to compete next season in their pursuit of Turner.`\
+`In their pursuit of Turner, the Bucks left no doubt about their eagerness to compete next season.`\
 https://nytimes.com/athletic/6489253/2025/07/11/myles-turner-bucks-introductory-press-conference/
 
 **Cody Bellinger gets revenge with 3 homers against Cubs in first game against former team**\
