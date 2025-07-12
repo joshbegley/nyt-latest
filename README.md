@@ -1,3 +1,7 @@
+**Heat Warnings Issued for Parts of Eastern Canada**\
+`Warnings were issued for southern Ontario and southwest Quebec as hot and humid weather is expected to linger through Thursday.`\
+https://nytimes.com/2025/07/11/weather/canada-heat-warnings.html
+
 **U.S. Subpoenas Governor Who Said He Would House Migrant at His Home**\
 `Federal prosecutors in New Jersey are investigating remarks that Gov. Philip D. Murphy, a Democrat, made in February.`\
 https://nytimes.com/2025/07/11/nyregion/philip-murphy-new-jersey-alina-habba-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489201/2025/07/11/f1-tv-rights-apple-espn/
 **2 Men Killed in Hit-and-Run on Brooklyn Street Known for Deadly Crashes**\
 `A Staten Island man was being held on charges that included manslaughter after speeding through a red light and mowing down the victims, the police said.`\
 https://nytimes.com/2025/07/11/nyregion/brooklyn-third-avenue-crash.html
-
-**Mark Snow, Who Conjured the ‘X-Files’ Theme, Is Dead at 78**\
-`It took a misplaced elbow, a quirk of Los Angeles geography and some whistling from his wife to produce one of television’s most memorable melodies.`\
-https://nytimes.com/2025/07/11/arts/music/mark-snow-dead.html
 
