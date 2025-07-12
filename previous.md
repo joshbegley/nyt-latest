@@ -1,3 +1,7 @@
+**Rubio Visits Asia in Shadow of Trump’s Tariffs**\
+`Marco Rubio made his first visit to Asia as secretary of state. Edward Wong, a diplomatic correspondent for The New York Times, reports from Kuala Lumpur, Malaysia, to explain how President Trump’s tariffs have upset U.S. trading partners.`\
+https://nytimes.com/video/world/asia/100000010277461/rubio-visits-asia-in-shadow-of-trumps-tariffs.html
+
 **Gianni Infantino talks up the Club World Cup at Trump Tower - 'We will make it better'**\
 `"We may have received some justified criticism," said Infantino as he declared that "the golden era of global club football has started"`\
 https://nytimes.com/athletic/6490200/2025/07/12/gianni-infantino-club-world-cup-trump-tower/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490180/2025/07/12/danielle-van-de-donk-netherlands
 **This England-India Test isn't Bazball as we know it but is no less intriguing for that**\
 `The home side have departed from their usual aggressive approach but this slow-burner of a match is captivating for different reasons`\
 https://nytimes.com/athletic/6490175/2025/07/12/england-india-lords-stokes-mccullum/
-
-**Trump Administration Fires More D.O.J. Employees Who Worked for Special Counsel**\
-`The latest round of firings targets not just prosecutors but also support staff members who played a smaller role.`\
-https://nytimes.com/2025/07/12/us/politics/justice-dept-jack-smith-firings.html
 

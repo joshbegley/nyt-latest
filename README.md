@@ -1,3 +1,7 @@
+**Andrew Kassoy, 55, Dies; Saw Capitalism as a Force for Social Good**\
+`He was a founder of B Lab, a nonprofit network whose lofty mission is “transforming the global economy to benefit all people, communities and the planet.”`\
+https://nytimes.com/2025/07/12/business/andrew-kassoy-dead.html
+
 **Rubio Visits Asia in Shadow of Trump’s Tariffs**\
 `Marco Rubio made his first visit to Asia as secretary of state. Edward Wong, a diplomatic correspondent for The New York Times, reports from Kuala Lumpur, Malaysia, to explain how President Trump’s tariffs have upset U.S. trading partners.`\
 https://nytimes.com/video/world/asia/100000010277461/rubio-visits-asia-in-shadow-of-trumps-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490195/2025/07/12/max-fried-injury-blister-yankees
 **Van de Donk to consider Netherlands retirement after Euro 2025**\
 `The 33-year-old confirmed Euro 2025 would be her last major tournament with the national side.`\
 https://nytimes.com/athletic/6490180/2025/07/12/danielle-van-de-donk-netherlands-international-future/
-
-**This England-India Test isn't Bazball as we know it but is no less intriguing for that**\
-`The home side have departed from their usual aggressive approach but this slow-burner of a match is captivating for different reasons`\
-https://nytimes.com/athletic/6490175/2025/07/12/england-india-lords-stokes-mccullum/
 

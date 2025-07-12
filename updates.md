@@ -1,3 +1,7 @@
+**Rubio Visits Asia in Shadow of Trump’s Tariffs**\
+`Marco Rubio made his first visit to Asia as secretary of state. Edward Wong, a diplomatic correspondent for The New York Times, reports from Kuala Lumpur, Malaysia, to explain how President Trump’s tariffs have upset U.S. trading partners.`\
+https://nytimes.com/video/world/asia/100000010277461/rubio-visits-asia-in-shadow-of-trumps-tariffs.html
+
 **Gianni Infantino talks up the Club World Cup at Trump Tower - 'We will make it better'**\
 `"We may have received some justified criticism," said Infantino as he declared that "the golden era of global club football has started"`\
 https://nytimes.com/athletic/6490200/2025/07/12/gianni-infantino-club-world-cup-trump-tower/
