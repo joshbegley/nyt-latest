@@ -1,3 +1,11 @@
+**Mexico has taken steps to curb drug trade and illegal migration. Trump says it’s not enough.**\
+`By Annie Correal and Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2025/07/12/us/trump-news/mexico-has-taken-steps-to-curb-drug-trade-and-illegal-migration-trump-says-its-not-enough
+
+**Of course Iga Swiatek won Wimbledon, the tournament where the greats rise**\
+`Świątek's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
+https://nytimes.com/athletic/6490272/2025/07/12/tennis-iga-swiatek-grand-slam-titles-wimbledon/
+
 **Andrew Kassoy, 55, Dies; Saw Capitalism as a Force for Social Good**\
 `He was a founder of B Lab, a nonprofit network whose lofty mission is “transforming the global economy to benefit all people, communities and the planet.”`\
 https://nytimes.com/2025/07/12/business/andrew-kassoy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6490165/2025/07/12/tennis-wimbledon-final-anisimova
 **FEMA Approved Removal of Many Camp Mystic Buildings From Flood Zones**\
 `Camp Mystic owners successfully appealed to the Federal Emergency Management Agency to redesignate some buildings that had been considered part of a flood-hazard zone.`\
 https://nytimes.com/2025/07/12/us/texas-camp-mystic-flood-plain-maps.html
-
-**Yankees' Max Fried leaves game after 3 innings with blister**\
-`The lefty went on the injured list at the end of the 2023 season due to a recurring blister issue on his left index finger.`\
-https://nytimes.com/athletic/6490195/2025/07/12/max-fried-injury-blister-yankees/
-
-**Van de Donk to consider Netherlands retirement after Euro 2025**\
-`The 33-year-old confirmed Euro 2025 would be her last major tournament with the national side.`\
-https://nytimes.com/athletic/6490180/2025/07/12/danielle-van-de-donk-netherlands-international-future/
 

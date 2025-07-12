@@ -1,3 +1,11 @@
+**Mexico has taken steps to curb drug trade and illegal migration. Trump says it’s not enough.**\
+`By Annie Correal and Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2025/07/12/us/trump-news/mexico-has-taken-steps-to-curb-drug-trade-and-illegal-migration-trump-says-its-not-enough
+
+**Of course Iga Swiatek won Wimbledon, the tournament where the greats rise**\
+`Świątek's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
+https://nytimes.com/athletic/6490272/2025/07/12/tennis-iga-swiatek-grand-slam-titles-wimbledon/
+
 **Andrew Kassoy, 55, Dies; Saw Capitalism as a Force for Social Good**\
 `He was a founder of B Lab, a nonprofit network whose lofty mission is “transforming the global economy to benefit all people, communities and the planet.”`\
 https://nytimes.com/2025/07/12/business/andrew-kassoy-dead.html
