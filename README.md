@@ -1,5 +1,5 @@
-**From Mark Buehrle to late Bobby Jenks, 2005 White Sox return to Chicago's spotlight: Greenberg**\
-`For a guy who loved being on the mound, Buehrle kind of hates attention. “I was literally nervous as can be all day today."`\
+**Greenberg: From Mark Buehrle to late Bobby Jenks, 2005 White Sox return to Chicago's spotlight**\
+`For a guy who loved being on the mound, Buehrle kind of hates attention. "I was literally nervous as can be all day today."`\
 https://nytimes.com/athletic/6489456/2025/07/12/mark-buehrle-statue-bobby-jenks-2005-white-sox/
 
 **Donald Trump, the Club World Cup final, and how security protect VIPs at major sporting events**\
