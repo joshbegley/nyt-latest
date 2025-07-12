@@ -1,3 +1,23 @@
+**Crystal Palace, UEFA and multi-club ownership: How a Europa League dream died**\
+`Crystal Palace have been demoted from the Europa League to the Conference League. This is how it happened`\
+https://nytimes.com/athletic/6447823/2025/07/12/crystal-palace-uefa-europa-parish-textor/
+
+**Spend an Hour in the Dark With Bats, Cats and Naked Mole Rats**\
+`The Bronx Zoo has reopened its World of Darkness exhibit after a 16-year hiatus.`\
+https://nytimes.com/2025/07/12/nyregion/spend-an-hour-in-the-dark-with-bats-cats-and-naked-mole-rats.html
+
+**How the Entrepreneur Behind Mini Croissant Cereal Juggles 2 Bakeries**\
+`Ashley Coiffard, who co-owns L’Appartement 4F, stays busy with long walks, staff meetings and FaceTime with friends.`\
+https://nytimes.com/2025/07/12/nyregion/ashley-coiffard-croissant-l-appartement-4f.html
+
+**Tracking Devices Were Removed From N.Y.P.D. Vehicles at Chief’s Request**\
+`Federal prosecutors investigating Jeffrey Maddrey, who resigned over sexual abuse accusations, learned of the request during an investigation into overtime misuse in his office.`\
+https://nytimes.com/2025/07/12/nyregion/maddrey-nypd-car-trackers-removed.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/12/crosswords/spelling-bee-forum.html
+
 **Taylor beats Serrano in trilogy, but women's boxing was the ultimate victor**\
 `"I just know I can't fight Amanda Serrano again. She punches too hard," Taylor said as the women shared a laugh and a handshake.`\
 https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
