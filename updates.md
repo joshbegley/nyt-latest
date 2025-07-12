@@ -1,3 +1,11 @@
+**Heat Warnings Issued for Parts of Eastern Canada**\
+`Warnings were issued for southern Ontario and southwest Quebec as hot and humid weather is expected to linger through Thursday.`\
+https://nytimes.com/2025/07/11/weather/canada-heat-warnings.html
+
+**U.S. Subpoenas Governor Who Said He Would House Migrant at His Home**\
+`Federal prosecutors in New Jersey are investigating remarks that Gov. Philip D. Murphy, a Democrat, made in February.`\
+https://nytimes.com/2025/07/11/nyregion/philip-murphy-new-jersey-alina-habba-investigation.html
+
 **Judge Orders Los Angeles Police to Stop Shooting Projectiles at Journalists**\
 `Los Angeles Police Department officers fired foam projectiles and flash-bang devices at reporters and photographers who were covering the immigration protests in June.`\
 https://nytimes.com/2025/07/11/us/judge-orders-los-angeles-police-to-stop-shooting-projectiles-at-journalists.html
