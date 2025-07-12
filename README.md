@@ -1,3 +1,11 @@
+**Sepp Blatter: 'Football has been lost to Saudi Arabia'**\
+`Blatter has criticised his former employer's role in offering "no opposition" to the Middle East nation.`\
+https://nytimes.com/athletic/6490390/2025/07/12/saudi-arabia-fifa-sepp-blatter/
+
+**Twins’ Byron Buxton hits for the cycle with homer in final at-bat of 5-for-5 game**\
+`Buxton completed the feat on his bobblehead day. It's the first cycle at Target Field, which opened in 2010.`\
+https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobblehead-day/
+
 **Mexico has taken steps to curb drug trade and illegal migration. Trump says it’s not enough.**\
 `By Annie Correal and Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2025/07/12/us/trump-news/mexico-has-taken-steps-to-curb-drug-trade-and-illegal-migration-trump-says-its-not-enough
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6490234/2025/07/12/santi-cazorla-oviedo-la-liga-ret
 **Cucurella interview: Chelsea adaptation, a year of non-stop football and Club World Cup reflections**\
 `The defender discusses the pros and cons of this summer's tournament and looks back at his difficult early months at Stamford Bridge`\
 https://nytimes.com/athletic/6490211/2025/07/12/marc-cucurella-chelsea-interview/
-
-**Amanda Anisimova's Wimbledon final, and the agony and ecstasy of tennis**\
-`The American's crushing defeat to Iga Świątek was rendered more painful by the way tennis works, but it also allows her to rebound.`\
-https://nytimes.com/athletic/6490165/2025/07/12/tennis-wimbledon-final-anisimova-swiatek-bagel/
-
-**FEMA Approved Removal of Many Camp Mystic Buildings From Flood Zones**\
-`Camp Mystic owners successfully appealed to the Federal Emergency Management Agency to redesignate some buildings that had been considered part of a flood-hazard zone.`\
-https://nytimes.com/2025/07/12/us/texas-camp-mystic-flood-plain-maps.html
 
