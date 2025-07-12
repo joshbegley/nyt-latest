@@ -1,3 +1,11 @@
+**They Fled War in Ethiopia. Then American Bombs Found Them.**\
+`In April, U.S.-made bombs destroyed a detention facility that held Ethiopian migrants in Yemen, crushing bodies and shredding limbs. Amid official silence, the survivors are left wondering why.`\
+https://nytimes.com/2025/07/12/world/middleeast/ethiopia-yemen-american-bombs.html
+
+**Tennis wants Grand Slam finals to be epics. So why is women's tennis not given the space?**\
+`Twenty years on from one of the greatest Wimbledon finals in history, the format gap in women's and men's tennis remains a complex issue.`\
+https://nytimes.com/athletic/6488554/2025/07/12/tennis-best-finals-womens-grand-slams-equity/
+
 **The Grody-Patinkin Family Is a Mess. People Love It.**\
 `The couple, successful artists married for 45 years, reflect on their newfound TikTok fame.`\
 https://nytimes.com/2025/07/12/magazine/mandy-patinkin-kathryn-grody-gideon-interview.html

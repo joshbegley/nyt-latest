@@ -1,3 +1,11 @@
+**They Fled War in Ethiopia. Then American Bombs Found Them.**\
+`In April, U.S.-made bombs destroyed a detention facility that held Ethiopian migrants in Yemen, crushing bodies and shredding limbs. Amid official silence, the survivors are left wondering why.`\
+https://nytimes.com/2025/07/12/world/middleeast/ethiopia-yemen-american-bombs.html
+
+**Tennis wants Grand Slam finals to be epics. So why is women's tennis not given the space?**\
+`Twenty years on from one of the greatest Wimbledon finals in history, the format gap in women's and men's tennis remains a complex issue.`\
+https://nytimes.com/athletic/6488554/2025/07/12/tennis-best-finals-womens-grand-slams-equity/
+
 **The Grody-Patinkin Family Is a Mess. People Love It.**\
 `The couple, successful artists married for 45 years, reflect on their newfound TikTok fame.`\
 https://nytimes.com/2025/07/12/magazine/mandy-patinkin-kathryn-grody-gideon-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/12/science/denver-museum-nature-science-dinosaur-fos
 **Trump’s Birthright Citizenship Ban Faces New Peril: Class Actions**\
 `In last month’s decision limiting one judicial tool, universal injunctions, the court seemed to invite lower courts to use class actions as an alternative.`\
 https://nytimes.com/2025/07/12/us/politics/birthright-citizenship-class-action.html
-
-**Tariffs or Deals? Trump Seems Content With Punishing Levies.**\
-`The president’s supporters portray him as a top dealmaker. But, at least for now, far more trading partners have gotten stiff tariffs than trade deals.`\
-https://nytimes.com/2025/07/12/business/economy/trump-tariffs-deals.html
-
-**Parents and Graduate Students Have New Loan Limits. Who Will Fill the Gap?**\
-`The federal cap on the amounts people can borrow means some of them will fall short. That’s especially true for students in professional schools.`\
-https://nytimes.com/2025/07/12/your-money/student-loan-limits.html
 
