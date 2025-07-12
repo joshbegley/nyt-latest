@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury
 https://nytimes.com/athletic/6489404/2025/07/11/pistons-ron-holland-28-point-summer-league/
 
 **Mike Brown's philosophy, other Knicks thoughts after first summer league game**\
-`Brown's philosophy, young players struggle and more.`\
+`Thoughts and observations after the Knicks' 104-86 loss to the Pistons in their first game of summer league action.`\
 https://nytimes.com/athletic/6489382/2025/07/11/mike-brown-philosophy-knicks-summer-league/
 
 **Convention Challenger**\
