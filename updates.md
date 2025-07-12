@@ -1,3 +1,11 @@
+**Trump Threatens to Strip Rosie O’Donnell of U.S. Citizenship**\
+`President Trump called Ms. O’Donnell, who has feuded with him since before he became president, a “threat to humanity.”`\
+https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
+
+**FIFA to stage Club World Cup final halftime show, Robbie Williams and Laura Pausini to perform pre-game**\
+`The musical act at halftime of Chelsea vs Paris Saint-Germain will be performed far away from the field of play`\
+https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-stadium-stage-halftime-show/
+
 **Arizona Resident Dies From Plague, Officials Say**\
 `The resident died from pneumonic plague, the first such death in Coconino County, Ariz., since 2007, the county said.`\
 https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html

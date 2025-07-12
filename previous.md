@@ -6,8 +6,8 @@ https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
 `Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
 https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
 
-**Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
-`By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
+**Trump Threatens to Strip Rosie O’Donnell of U.S. Citizenship**\
+`President Trump called Ms. O’Donnell, who has feuded with him since before he became president, a “threat to humanity.”`\
 https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
 
 **ICE Set to Vastly Expand Its Reach With New Funds**\
@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6489999/2025/07/12/hunter-dobbins-acl-tear-red-sox/
 https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
 
 **FIFA to stage Club World Cup final halftime show, Robbie Williams and Laura Pausini to perform pre-game**\
-`The musical act at halftime of PSG vs. Chelsea will take place far away from the field of play`\
+`The musical act at halftime of Chelsea vs Paris Saint-Germain will be performed far away from the field of play`\
 https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-stadium-stage-halftime-show/
 
 **Wales relishing chance to end England's Euro 2025: 'We get to spoil the party'**\
