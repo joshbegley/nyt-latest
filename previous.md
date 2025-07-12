@@ -1,3 +1,7 @@
+**Nordstrom’s Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
+`Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
+https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
+
 **The Pulse: College football starts ... next month!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489424/2025/07/12/ebel-family-mlb-draft-all-star-w
 **What the ‘Exhausted Majority’ Really Wants**\
 `It’s probably not Elon Musk’s new party.`\
 https://nytimes.com/2025/07/12/opinion/third-party-elon-musk.html
-
-**Who Is Winning the World War?**\
-`American foreign policy needs both a better long-term strategy and a lot of short-term Trumpian flexibility.`\
-https://nytimes.com/2025/07/12/opinion/trump-russia-china-iran.html
 

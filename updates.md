@@ -1,3 +1,7 @@
+**Nordstrom’s Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
+`Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
+https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
+
 **The Pulse: College football starts ... next month!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
