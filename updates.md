@@ -1,3 +1,19 @@
+**MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
+`Max Fried, Garrett Crochet, Jacob deGrom and Julio RodrÃ­guez were among several players who had their spots filled by others.`\
+https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
+
+**Matt Olson replaces Ronald AcuÃ±a Jr. in Home Run Derby**\
+`AcuÃ±a still plans to start in Tuesday's All-Star Game, which the Atlanta Braves are hosting.`\
+https://nytimes.com/athletic/6489315/2025/07/11/home-run-derby-matt-olson-ronald-acuna-replacement/
+
+**After Texas Disaster, Trump Shifts His Tone on FEMA**\
+`Earlier this year, President Trump suggested he wanted to shutter the agency. Now, he says his aides âfixed it up in no time.â`\
+https://nytimes.com/2025/07/11/us/politics/trump-fema-texas-flood.html
+
+**Why Yankeesâ Max Fried won't pitch in the All-Star Game**\
+`Fried taking the mound in the first inning at Truist Park in Atlanta would have been a made-for-TV moment. Alas, it won't happen.`\
+https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all-star-game/
+
 **Fed Defends Renovations as White House Widens Attacks on Central Bank**\
 `President Trump and his allies have accused the Federal Reserve chair, Jerome Powell, of misleading Congress in what some legal scholars worry is a prelude to seeking his removal.`\
 https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
