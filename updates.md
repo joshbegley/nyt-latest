@@ -1,7 +1,3 @@
-**U.S. Subpoenas Governor Who Said He Would House Migrant at His Home**\
-`Federal prosecutors in New Jersey are investigating remarks that Gov. Philip D. Murphy, a Democrat, made in February.`\
-https://nytimes.com/2025/07/11/nyregion/philip-murphy-new-jersey-alina-habba-investigation.html
-
 **Judge Orders Los Angeles Police to Stop Shooting Projectiles at Journalists**\
 `Los Angeles Police Department officers fired foam projectiles and flash-bang devices at reporters and photographers who were covering the immigration protests in June.`\
 https://nytimes.com/2025/07/11/us/judge-orders-los-angeles-police-to-stop-shooting-projectiles-at-journalists.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/07/11/nyregion/brooklyn-third-avenue-crash.html
 **Mark Snow, Who Conjured the ‘X-Files’ Theme, Is Dead at 78**\
 `It took a misplaced elbow, a quirk of Los Angeles geography and some whistling from his wife to produce one of television’s most memorable melodies.`\
 https://nytimes.com/2025/07/11/arts/music/mark-snow-dead.html
+
+**Noah Lyles is back — with a win, not a bang**\
+`The American ran 19.88sec in Monaco to beat rival Letsile Tebogo.`\
+https://nytimes.com/athletic/6489174/2025/07/11/noah-lyles-monaco-200m-back/
 
