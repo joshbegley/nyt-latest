@@ -1,5 +1,5 @@
 **Twins' Carlos Correa helped off field with ankle injury from Tommy Pham slide**\
-`Correa’s right leg was the focal point of much controversy during his second trip through free agency ahead of the 2023 season.`\
+`The Twins say Correa exited with a mild right ankle sprain.`\
 https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury-tommy-pham/
 
 **Pistons' Ron Holland shows growth with 28-point performance in Vegas**\
@@ -34,7 +34,7 @@ https://nytimes.com/2025/07/11/technology/google-windsurf-openai.html
 `A federal judge temporarily halted the administration from making indiscriminate arrests based on race and denying detainees access to lawyers, in a lawsuit that could have national repercussions.`\
 https://nytimes.com/2025/07/11/us/immigration-raids-judge-injunction.html
 
-**A New York County to Allow Officers to Wear Masks When Working With ICE**\
-`Nassau County, which recently barred residents from wearing masks in many circumstances, will permit police officers to wear them during immigration enforcement and other actions.`\
+**A New York County Will Let Officers Wear Masks When Working With ICE**\
+`Nassau County, which recently barred residents from wearing masks in many circumstances, will allow police officers to wear them during immigration enforcement and other actions.`\
 https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
 
