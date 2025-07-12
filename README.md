@@ -1,40 +1,40 @@
-**Nordstrom’s Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
-`Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
-https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
+**Grok Chatbot Mirrored X Users’ ‘Extremist Views’ in Antisemitic Posts, xAI Says**\
+`Elon Musk’s artificial intelligence company said its Grok chatbot had also undergone a code update that caused it to share antisemitic messages this week.`\
+https://nytimes.com/2025/07/12/technology/x-ai-grok-antisemitism.html
+
+**Texas Court Seals Records in Ken Paxton’s Divorce Case**\
+`The order meant details in the case, which involves allegations of adultery, would not be public as the Texas attorney general challenges Senator John Cornyn in the 2026 primary.`\
+https://nytimes.com/2025/07/12/us/texas-ag-paxton-divorce-records.html
+
+**La Liga's Tebas says Madrid request to postpone opening 25-26 league game denied**\
+`Madrid's 4-0 defeat to PSG in the Club World Cup semi-final meant they have 40 days to rest and prepare for their La Liga opener.`\
+https://nytimes.com/athletic/6489722/2025/07/12/real-madrid-osasuna-la-liga-first/
+
+**Giants hold on in wild game, send Dodgers to seventh straight loss**\
+`The juice is coming back to the Giants-Dodgers rivalry after San Francisco's 8-7 win proved it can compete with L.A. after all.`\
+https://nytimes.com/athletic/6489482/2025/07/12/giants-dodgers-score-result-rivalry/
+
+**Two-Ingredient Mango Soft Serve**\
+`Everyone say, “Thank you, Hetty Lui McKinnon.”`\
+https://nytimes.com/2025/07/12/dining/two-ingredient-mango-soft-serve.html
+
+**Cash and Glasspool win Wimbledon doubles final to break 89-year record**\
+`Cash and Glasspool became the first men's doubles team to take the title at the All England Club since Pat Hughes and Raymond Tuckey.`\
+https://nytimes.com/athletic/6489801/2025/07/12/julian-cash-and-lloyd-glasspool-become-first-all-british-wimbledon-mens-doubles-champions-in-89-years/
+
+**Timeline Details Final Seconds of Crashed Air India Flight**\
+`Investigators released a preliminary account of the crash, describing how the plane struggled after its fuel supply was cut.`\
+https://nytimes.com/2025/07/12/world/asia/air-india-crash-report-timeline.html
+
+**Man Utd's Onana set to miss pre-season with hamstring injury**\
+`Onana will now work towards returning to fitness for United's Premier League season-opener against Arsenal at Old Trafford on August 17,`\
+https://nytimes.com/athletic/6489786/2025/07/12/andre-onana-injury-manchester-united-pre-season/
 
 **Mark Vientos finds his confidence with go-ahead double to power Mets past Royalst**\
-`Vientos socked a slider to right field for a three-run double in the eighth inning, sparking a late rally in the Mets' 8-3 win Friday night`\
+`Vientos socked a slider to right field for a three-run double in the eighth inning, sparking a late rally in the Mets' 8-3 win Friday night.`\
 https://nytimes.com/athletic/6489589/2025/07/12/mark-vientos-offense-mets-royals/
 
 **Our Investigation of UnitedHealth Started With a Tip**\
 `A reporter was familiar with the insurance giant under scrutiny and the law firm known for its attack stance. Then one hired the other.`\
 https://nytimes.com/2025/07/12/insider/unitedhealth-tip.html
-
-**Bill Dilworth, Caretaker of ‘The New York Earth Room,’ Is Dead at 70**\
-`For decades, he tended a SoHo loft filled with dirt, made by the conceptual artist Walter De Maria. People made pilgrimages to see it — and Mr. Dilworth, its magnetic steward.`\
-https://nytimes.com/2025/07/12/arts/bill-dilworth-dead.html
-
-**‘Is It Safe?’ As Parents Weigh Risks of Summer Camps, Owners Review Safety Measures.**\
-`Camp officials across the country said they had heard from worried parents after the Texas floods. As they try to reassure them, some camps are adding more safety procedures.`\
-https://nytimes.com/2025/07/12/us/summer-camps-safety.html
-
-**Two Palestinians Killed in West Bank Clash With Israeli Settlers**\
-`Palestinian authorities and family members said Israeli settlers beat and killed a Palestinian-American man. Israel said the violence began when Palestinians threw stones at Israeli civilians.`\
-https://nytimes.com/2025/07/12/world/middleeast/palestinians-killed-by-israelis-in-west-bank.html
-
-**Trump Threatens Steep Tariffs on Goods From E.U. and Mexico**\
-`European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
-https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
-
-**Trump Administration Live Updates: President Announces 30% Tariffs on E.U. and Mexico**\
-``\
-https://nytimes.com/live/2025/07/12/us/trump-news
-
-**The Pulse: College football starts ... next month!**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
-
-**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
-`"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
-https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
 
