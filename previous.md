@@ -1,3 +1,7 @@
+**Hunter Dobbins suffers right ACL tear in another blow to Red Sox rotation depth**\
+`Dobbins was injured covering first base in the second inning of the Red Sox's win over the Rays on Friday night.`\
+https://nytimes.com/athletic/6489999/2025/07/12/hunter-dobbins-acl-tear-red-sox/
+
 **Dodgers drop seventh game in a row, longest streak since 2017**\
 `The Dodgers' National League West division lead has shrunk from nine games to four in a week as their lineup has slumped.`\
 https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489699/2025/07/12/wimbledon-final-swiatek-anisimov
 **Grok Chatbot Mirrored X Users’ ‘Extremist Views’ in Antisemitic Posts, xAI Says**\
 `Elon Musk’s artificial intelligence company said its Grok chatbot had also undergone a code update that caused it to share antisemitic messages this week.`\
 https://nytimes.com/2025/07/12/technology/x-ai-grok-antisemitism.html
-
-**Texas Court Seals Records in Ken Paxton’s Divorce Case**\
-`The order meant details in the case, which involves allegations of adultery, would not be public as the Texas attorney general challenges Senator John Cornyn in the 2026 primary.`\
-https://nytimes.com/2025/07/12/us/texas-ag-paxton-divorce-records.html
 

@@ -1,3 +1,7 @@
+**Hunter Dobbins suffers right ACL tear in another blow to Red Sox rotation depth**\
+`Dobbins was injured covering first base in the second inning of the Red Sox's win over the Rays on Friday night.`\
+https://nytimes.com/athletic/6489999/2025/07/12/hunter-dobbins-acl-tear-red-sox/
+
 **Dodgers drop seventh game in a row, longest streak since 2017**\
 `The Dodgers' National League West division lead has shrunk from nine games to four in a week as their lineup has slumped.`\
 https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
