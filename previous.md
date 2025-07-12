@@ -1,3 +1,7 @@
+**Farewell to Portugal's incredible fans. They deserved better at Euro 2025**\
+`Portugal lost 2-1 to Belgium on Friday night to exit Euro 2025. Their fans still kept singing`\
+https://nytimes.com/athletic/6489233/2025/07/12/portugal-fans-euro-2025-belgium/
+
 **Spain are the best side in the Euro 2025 group stage. But that doesn't mean they'll win it**\
 `Spain’s 3-1 win over Italy in Bern confirmed their position as Group B winners and maintained their 100 per cent record at Euro 2025`\
 https://nytimes.com/athletic/6489282/2025/07/12/spain-euro-2025-group-stage-winners-italy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-resu
 **Ceddanne Rafaela crushes walk-off homer to continue Red Sox's hot streak**\
 `"I've been waiting for this moment since I was watching games with my mom in 2004, 2005, 2006, 2007," Rafaela said.`\
 https://nytimes.com/athletic/6489495/2025/07/12/red-sox-ceddanne-rafaela-walk-off-alex-bregman/
-
-**6,252 calories and 1,245 grams of carbs: What it takes to fuel a winning ride at the Tour de France**\
-`The Athletic spent stage six of this year's race with the EF Education-Easypost team — this is how they fuelled Ben Healy's solo win `\
-https://nytimes.com/athletic/6488731/2025/07/12/how-to-fuel-tour-de-france-winning-ride-ben-healy/
 
