@@ -1,3 +1,7 @@
+**Greenberg: From Mark Buehrle to late Bobby Jenks, 2005 White Sox return to Chicago's spotlight**\
+`For a guy who loved being on the mound, Buehrle kind of hates attention. "I was literally nervous as can be all day today."`\
+https://nytimes.com/athletic/6489456/2025/07/12/mark-buehrle-statue-bobby-jenks-2005-white-sox/
+
 **Donald Trump, the Club World Cup final, and how security protect VIPs at major sporting events**\
 `The U.S. president will attend the game between Chelsea and PSG on Sunday - here's how the planning to keep high-profile people safe works`\
 https://nytimes.com/athletic/6488112/2025/07/12/trump-club-world-cup-final-vip-safe-bodyguard-sport/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6485711/2025/07/12/bend-it-like-beckham-cricket-eng
 **When It’s This Hot, ‘We Are Enduring, Not Living’**\
 `How one man gets by in the unbearable and inescapable heat of Pakistan’s biggest and most unlivable city.`\
 https://nytimes.com/2025/07/12/world/asia/when-its-this-hot-we-are-enduring-not-living.html
-
-**How to Panic Italians? Jack Up the Price of Espresso.**\
-`Prices for coffee beans have risen, but in a country where coffee drinking is a ritual, customers demand cheap espresso. That has left coffee bars in a bind.`\
-https://nytimes.com/2025/07/12/world/europe/espresso-italy-coffee-prices.html
 
