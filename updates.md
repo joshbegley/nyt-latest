@@ -1,3 +1,15 @@
+**Bill Dilworth, Caretaker of ‘The New York Earth Room,’ Is Dead at 70**\
+`For decades, he tended a SoHo loft filled with dirt, made by the conceptual artist Walter De Maria. People made pilgrimages to see it — and Mr. Dilworth, its magnetic steward.`\
+https://nytimes.com/2025/07/12/arts/bill-dilworth-dead.html
+
+**‘Is It Safe?’ As Parents Weigh Risks of Summer Camps, Owners Review Safety Measures.**\
+`Camp officials across the country said they had heard from worried parents after the Texas floods. As they try to reassure them, some camps are adding more safety procedures.`\
+https://nytimes.com/2025/07/12/us/summer-camps-safety.html
+
+**Two Palestinians Killed in West Bank Clash With Israeli Settlers**\
+`Palestinian authorities and family members said Israeli settlers beat and killed a Palestinian-American man. Israel said the violence began when Palestinians threw stones at Israeli civilians.`\
+https://nytimes.com/2025/07/12/world/middleeast/palestinians-killed-by-israelis-in-west-bank.html
+
 **Nordstrom’s Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
 `Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
 https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/

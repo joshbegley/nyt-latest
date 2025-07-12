@@ -2,6 +2,18 @@
 `Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
 https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
 
+**Bill Dilworth, Caretaker of ‘The New York Earth Room,’ Is Dead at 70**\
+`For decades, he tended a SoHo loft filled with dirt, made by the conceptual artist Walter De Maria. People made pilgrimages to see it — and Mr. Dilworth, its magnetic steward.`\
+https://nytimes.com/2025/07/12/arts/bill-dilworth-dead.html
+
+**‘Is It Safe?’ As Parents Weigh Risks of Summer Camps, Owners Review Safety Measures.**\
+`Camp officials across the country said they had heard from worried parents after the Texas floods. As they try to reassure them, some camps are adding more safety procedures.`\
+https://nytimes.com/2025/07/12/us/summer-camps-safety.html
+
+**Two Palestinians Killed in West Bank Clash With Israeli Settlers**\
+`Palestinian authorities and family members said Israeli settlers beat and killed a Palestinian-American man. Israel said the violence began when Palestinians threw stones at Israeli civilians.`\
+https://nytimes.com/2025/07/12/world/middleeast/palestinians-killed-by-israelis-in-west-bank.html
+
 **Trump Threatens 30% Tariff on Goods From E.U., Dashing Hopes for a Deal**\
 `European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
 https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6489379/2025/07/12/messi-greatest-goal-art-header-m
 **Break Even at the Casino? You May Still Owe Taxes.**\
 `The new domestic policy law rewrites tax rules for the hundreds of billions of dollars Americans legally wager each year. A Nevada lawmaker has introduced a bill to overturn that provision.`\
 https://nytimes.com/2025/07/12/business/dealbook/gambling-tax-rules.html
-
-**2 Books for a Hot, Languid Summer**\
-`A classic coming-of-age novel; a cultural history of early America.`\
-https://nytimes.com/2025/07/12/books/read-like-wind-recommendations.html
-
-**With prominent summer league role, Reed Sheppard 'getting better and better every day'**\
-`The Rockets' push to fast-track Reed Sheppard's growth stems from internal confidence in his potential.`\
-https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
-
-**Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
-`The Phillies criticized MLB after two of their pitchers weren't named replacements but Jacob Misiorowski, who has 5 starts, made the team.`\
-https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
 
