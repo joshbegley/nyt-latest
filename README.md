@@ -1,3 +1,7 @@
+**A Week of Searching for Texas Flood Victims**\
+`Text by Christopher Maag`\
+https://nytimes.com/card/2025/07/12/us/texas-floods-search
+
 **They Fled War in Ethiopia. Then American Bombs Found Them.**\
 `In April, U.S.-made bombs destroyed a detention facility that held Ethiopian migrants in Yemen, crushing bodies and shredding limbs. Amid official silence, the survivors are left wondering why.`\
 https://nytimes.com/2025/07/12/world/middleeast/ethiopia-yemen-american-bombs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/climate/flash-floods-disaster-prevention.html
 **Denver Museum Finds a Dinosaur Fossil Under Its Parking Lot**\
 `The fossil, estimated to be about 70 million years old, was found during a drilling project.`\
 https://nytimes.com/2025/07/12/science/denver-museum-nature-science-dinosaur-fossil.html
-
-**Trump’s Birthright Citizenship Ban Faces New Peril: Class Actions**\
-`In last month’s decision limiting one judicial tool, universal injunctions, the court seemed to invite lower courts to use class actions as an alternative.`\
-https://nytimes.com/2025/07/12/us/politics/birthright-citizenship-class-action.html
 
