@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobbleh
 https://nytimes.com/live/2025/07/12/us/trump-news/mexico-has-taken-steps-to-curb-drug-trade-and-illegal-migration-trump-says-its-not-enough
 
 **Of course Iga Swiatek won Wimbledon, the tournament where the greats rise**\
-`Świątek's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
+`The Pole's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
 https://nytimes.com/athletic/6490272/2025/07/12/tennis-iga-swiatek-grand-slam-titles-wimbledon/
 

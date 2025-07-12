@@ -1,3 +1,7 @@
+**Of course Iga Swiatek won Wimbledon, the tournament where the greats rise**\
+`The Pole's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
+https://nytimes.com/athletic/6490272/2025/07/12/tennis-iga-swiatek-grand-slam-titles-wimbledon/
+
 **A Grand Canyon Access Point Is Closed as 19,000 Acres Burn Nearby**\
 `Access via the North Rim, a lesser-used gateway to the national park, was closed as the White Sage fire continued to burn on Saturday.`\
 https://nytimes.com/2025/07/12/us/wildfires-grand-canyon-north-rim-closed.html
