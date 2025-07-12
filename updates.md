@@ -1,3 +1,7 @@
+**Donald Trump, the Club World Cup final, and how security protect VIPs at major sporting events**\
+`The U.S. president will attend the game between Chelsea and PSG on Sunday - here's how the planning to keep high-profile people safe works`\
+https://nytimes.com/athletic/6488112/2025/07/12/trump-club-world-cup-final-vip-safe-bodyguard-sport/
+
 **Stanway's long road to recovery: 'Low' moments, mentor chats and tattooing**\
 `Charting the England midfielder's return to fitness, with insight from her fitness coach and her footballing mentor`\
 https://nytimes.com/athletic/6488056/2025/07/12/georgia-stanway-euros-recovery/

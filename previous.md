@@ -1,3 +1,7 @@
+**Donald Trump, the Club World Cup final, and how security protect VIPs at major sporting events**\
+`The U.S. president will attend the game between Chelsea and PSG on Sunday - here's how the planning to keep high-profile people safe works`\
+https://nytimes.com/athletic/6488112/2025/07/12/trump-club-world-cup-final-vip-safe-bodyguard-sport/
+
 **Stanway's long road to recovery: 'Low' moments, mentor chats and tattooing**\
 `Charting the England midfielder's return to fitness, with insight from her fitness coach and her footballing mentor`\
 https://nytimes.com/athletic/6488056/2025/07/12/georgia-stanway-euros-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/world/asia/when-its-this-hot-we-are-enduring-not-
 **How to Panic Italians? Jack Up the Price of Espresso.**\
 `Prices for coffee beans have risen, but in a country where coffee drinking is a ritual, customers demand cheap espresso. That has left coffee bars in a bind.`\
 https://nytimes.com/2025/07/12/world/europe/espresso-italy-coffee-prices.html
-
-**Brewers phenom Jacob Misiorowski named to NL All-Star team after 5 starts**\
-`Misiorowski will replace Chicago Cubs starter Matthew Boyd after pitching just 25 2/3 innings.`\
-https://nytimes.com/athletic/6489455/2025/07/12/jacob-misiorowski-all-star-brewers/
 
