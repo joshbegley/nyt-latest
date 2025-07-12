@@ -1,3 +1,7 @@
+**Trump Threatens 30% Tariff on Goods From E.U. and Mexico**\
+`European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
+https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
+
 **Bill Dilworth, Caretaker of ‘The New York Earth Room,’ Is Dead at 70**\
 `For decades, he tended a SoHo loft filled with dirt, made by the conceptual artist Walter De Maria. People made pilgrimages to see it — and Mr. Dilworth, its magnetic steward.`\
 https://nytimes.com/2025/07/12/arts/bill-dilworth-dead.html
