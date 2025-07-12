@@ -1,3 +1,7 @@
+**Comfort Viewing**\
+`Rewatching old shows may seem like a waste of time, but a repeat viewing is rewarding in its own way.`\
+https://nytimes.com/2025/07/12/briefing/comfort-viewing.html
+
 **The WWE rising star who has the NCAA’s NIL era to thank**\
 `WWE’s pivot to sign college athletes a few years ago is quickly paying off, with a former Alabama shot putter the first star pupil.`\
 https://nytimes.com/athletic/6488400/2025/07/12/oba-femi-wwe-ncaa-nil-shot-put/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/crosswords/connections-companion-763.html
 **A Week of Searching for Texas Flood Victims**\
 `Text by Christopher Maag`\
 https://nytimes.com/card/2025/07/12/us/texas-floods-search
-
-**They Fled War in Ethiopia. Then American Bombs Found Them.**\
-`In April, U.S.-made bombs destroyed a detention facility that held Ethiopian migrants in Yemen, crushing bodies and shredding limbs. Amid official silence, the survivors are left wondering why.`\
-https://nytimes.com/2025/07/12/world/middleeast/ethiopia-yemen-american-bombs.html
 
