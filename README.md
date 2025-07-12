@@ -1,5 +1,5 @@
 **Convention Challenger**\
-`You’ll need to put on your thinking cap to get through Katie Hoody’s stumper-filled puzzle.`\
+`Youâll need to put on your thinking cap to get through Katie Hoodyâs stumper-filled puzzle.`\
 https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html
 
 **Why Myles Turner is confident the Bucks are a perfect new home**\
@@ -31,7 +31,7 @@ https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.
 https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
 
 **MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
-`Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
+`Max Fried, Garrett Crochet, Jacob deGrom and Julio RodrÃ­guez were among several players who had their spots filled by others.`\
 https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
 
 **Farmworker Dies After Fleeing a Federal Raid in Southern California**\

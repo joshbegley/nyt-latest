@@ -1,3 +1,7 @@
+**Columbia and Trump Near a Deal, With School Possibly Paying Millions**\
+`In return, the White House would restore some of the more than $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
+https://nytimes.com/2025/07/11/nyregion/columbia-university-trump-deal-antisemitism.html
+
 **Convention Challenger**\
 `You’ll need to put on your thinking cap to get through Katie Hoody’s stumper-filled puzzle.`\
 https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html

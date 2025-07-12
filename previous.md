@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6489253/2025/07/11/myles-turner-bucks-introductory-
 https://nytimes.com/athletic/6489395/2025/07/11/cody-bellinger-three-home-runs-yankees-cubs/
 
 **Columbia and Trump Near a Deal, With School Possibly Paying Millions**\
-`In return, the White House would restore some of the $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
+`In return, the White House would restore some of the more than $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
 https://nytimes.com/2025/07/11/nyregion/columbia-university-trump-deal-antisemitism.html
 
 **Google Hires A.I. Leaders From a Start-Up Courted by OpenAI**\
