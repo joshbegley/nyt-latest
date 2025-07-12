@@ -1,3 +1,19 @@
+**Trump Administration Fires More D.O.J. Employees Who Worked for Special Counsel**\
+`The latest round of firings targets not just prosecutors but also support staff members who played a smaller role.`\
+https://nytimes.com/2025/07/12/us/politics/justice-dept-jack-smith-firings.html
+
+**How to watch 2025 Wimbledon menâs final: Alcaraz, Sinner get a rematch**\
+`Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
+https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
+
+**Trump Threatens to Strip Rosie OâDonnell of U.S. Citizenship**\
+`President Trump called Ms. OâDonnell, who has feuded with him since before he became president, a âthreat to humanity.â`\
+https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
+
+**ICE Set to Vastly Expand Its Reach With New Funds**\
+`After the passage of President Trumpâs domestic policy law, the Department of Homeland Security is poised to hire thousands of new immigration agents and double detention space.`\
+https://nytimes.com/2025/07/12/us/politics/ice-expansion-concerns.html
+
 **Carmakers brace for new tariffs in major manufacturing hubs.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2025/07/12/us/trump-news/carmakers-brace-for-new-tariffs-in-major-manufacturing-hubs
