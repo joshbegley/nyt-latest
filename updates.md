@@ -1,3 +1,7 @@
+**Andrew Kassoy, 55, Dies; Saw Capitalism as a Force for Social Good**\
+`He was a founder of B Lab, a nonprofit network whose lofty mission is “transforming the global economy to benefit all people, communities and the planet.”`\
+https://nytimes.com/2025/07/12/business/andrew-kassoy-dead.html
+
 **Rubio Visits Asia in Shadow of Trump’s Tariffs**\
 `Marco Rubio made his first visit to Asia as secretary of state. Edward Wong, a diplomatic correspondent for The New York Times, reports from Kuala Lumpur, Malaysia, to explain how President Trump’s tariffs have upset U.S. trading partners.`\
 https://nytimes.com/video/world/asia/100000010277461/rubio-visits-asia-in-shadow-of-trumps-tariffs.html
