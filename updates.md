@@ -1,3 +1,15 @@
+**Yankees' Max Fried leaves game after 3 innings with blister**\
+`The lefty went on the IL at the end of the 2023 season due to a recurring blister issue on his left index finger.`\
+https://nytimes.com/athletic/6490195/2025/07/12/max-fried-injury-blister-yankees/
+
+**Van de Donk to consider Netherlands retirement after Euro 2025**\
+`The 33-year-old confirmed Euro 2025 would be her last major tournament with the national side.`\
+https://nytimes.com/athletic/6490180/2025/07/12/danielle-van-de-donk-netherlands-international-future/
+
+**This England-India Test isn't Bazball as we know it but is no less intriguing for that**\
+`The home side have departed from their usual aggressive approach but this slow-burner of a match is captivating for different reasons`\
+https://nytimes.com/athletic/6490175/2025/07/12/england-india-lords-stokes-mccullum/
+
 **This England-India Test is not Bazball as we know it but is no less intriguing for it**\
 `The home side have departed from their usual aggressive approach but this slow-burner of a match is captivating for different reasons`\
 https://nytimes.com/athletic/6490175/2025/07/12/england-india-lords-stokes-mccullum/
