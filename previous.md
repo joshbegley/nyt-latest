@@ -1,3 +1,7 @@
+**MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
+`Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
+https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
+
 **Farmworker Dies After Fleeing a Federal Raid in Southern California**\
 `During a chaotic raid in Ventura County on Thursday, the worker fell from a greenhouse at a cannabis farm, suffered spinal and skull injuries, and died on Friday.`\
 https://nytimes.com/2025/07/11/us/immigration-raids-farmworker-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all
 **Man Had 14 Toucans Stashed in His Volkswagen Dashboard, U.S. Says**\
 `Carlos Abundez, 35, is facing federal smuggling charges after U.S. Customs and Border Protection officers made the discovery. The birds, a threatened species, were in stable condition.`\
 https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
-
-**FEMA Didn’t Answer Thousands of Calls From Flood Survivors, Documents Show**\
-`Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
-https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
 
