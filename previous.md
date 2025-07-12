@@ -1,3 +1,27 @@
+**When It’s This Hot, ‘We Are Enduring, Not Living’**\
+`How one man gets by in the unbearable and inescapable heat of Pakistan’s biggest and most unlivable city.`\
+https://nytimes.com/2025/07/12/world/asia/when-its-this-hot-we-are-enduring-not-living.html
+
+**How to Panic Italians? Jack Up the Price of Espresso.**\
+`Prices for coffee beans have risen, but in a country where coffee drinking is a ritual, customers demand cheap espresso. That has left coffee bars in a bind.`\
+https://nytimes.com/2025/07/12/world/europe/espresso-italy-coffee-prices.html
+
+**Brewers phenom Jacob Misiorowski named to NL All-Star team after 5 starts**\
+`Misiorowski will replace Chicago Cubs starter Matthew Boyd after pitching just 25 2/3 innings.`\
+https://nytimes.com/athletic/6489455/2025/07/12/jacob-misiorowski-all-star-brewers/
+
+**Connections: Sports Edition Coach: Hints for July 12, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6489208/2025/07/12/connections-sports-edition-hints-for-july-12-2025/
+
+**Corrections: July 12, 2025**\
+`Corrections that appeared in print on Saturday, July 12, 2025.`\
+https://nytimes.com/2025/07/12/pageoneplus/corrections-july-12-2025.html
+
+**Quote of the Day: No, Chef! Cancellation Rallies Fans.**\
+`Quotation of the Day for Saturday, July 12, 2025.`\
+https://nytimes.com/2025/07/11/pageoneplus/quote-of-the-day-no-chef-cancellation-rallies-fans.html
+
 **Twins' Carlos Correa helped off field with ankle injury from Tommy Pham slide**\
 `The Twins say Correa exited with a mild right ankle sprain.`\
 https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury-tommy-pham/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6489382/2025/07/11/mike-brown-philosophy-knicks-sum
 **Convention Challenger**\
 `You’ll need to put on your thinking cap to get through Katie Hoody’s stumper-filled puzzle.`\
 https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html
-
-**Why Myles Turner is confident the Bucks are a perfect new home**\
-`In their pursuit of Turner, the Bucks left no doubt about their eagerness to compete next season.`\
-https://nytimes.com/athletic/6489253/2025/07/11/myles-turner-bucks-introductory-press-conference/
-
-**Cody Bellinger gets revenge with 3 homers against Cubs in first game against former team**\
-`The Cubs sent Bellinger and cash to the Yankees for right-hander Cody Poteet in December.`\
-https://nytimes.com/athletic/6489395/2025/07/11/cody-bellinger-three-home-runs-yankees-cubs/
-
-**Columbia and Trump Near a Deal, With School Possibly Paying Millions**\
-`In return, the White House would restore some of the more than $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
-https://nytimes.com/2025/07/11/nyregion/columbia-university-trump-deal-antisemitism.html
-
-**Google Hires A.I. Leaders From a Start-Up Courted by OpenAI**\
-`In a $2.4 billion deal, Google recruited the chief executive and a co-founder of Windsurf, which OpenAI had been in talks to buy, as the battle to dominate artificial intelligence escalates.`\
-https://nytimes.com/2025/07/11/technology/google-windsurf-openai.html
-
-**Judge Blocks Trump Administration Tactics in L.A. Immigration Raids**\
-`A federal judge temporarily halted the administration from making indiscriminate arrests based on race and denying detainees access to lawyers, in a lawsuit that could have national repercussions.`\
-https://nytimes.com/2025/07/11/us/immigration-raids-judge-injunction.html
-
-**A New York County Will Let Officers Wear Masks When Working With ICE**\
-`Nassau County, which recently barred residents from wearing masks in many circumstances, will allow police officers to wear them during immigration enforcement and other actions.`\
-https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
 
