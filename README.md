@@ -1,3 +1,11 @@
+**Taylor beats Serrano in trilogy, but women's boxing is the ultimate victor**\
+`“I just know I can’t fight Amanda Serrano again, she punches too hard,” Taylor said after as the women shared a laugh and a handshake.`\
+https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
+
+**Ceddanne Rafaela crushes walk-off homer to continue Red Sox's hot streak**\
+`"I've been waiting for this moment since I was watching games with my mom in 2004, 2005, 2006, 2007," Rafaela said after his walk-off homer.`\
+https://nytimes.com/athletic/6489495/2025/07/12/red-sox-ceddanne-rafaela-walk-off-alex-bregman/
+
 **6,252 calories and 1,245 grams of carbs: What it takes to fuel a winning ride at the Tour de France**\
 `The Athletic spent stage six of this year's race with the EF Education-Easypost team — this is how they fuelled Ben Healy's solo win `\
 https://nytimes.com/athletic/6488731/2025/07/12/how-to-fuel-tour-de-france-winning-ride-ben-healy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6480055/2025/07/12/giorgio-russos-love-island-aless
 **What Jordan Henderson can offer Brentford - a midfield metronome who can fill leadership void**\
 `The England international left Ajax and is set to join Brentford on a two-year deal. Here's how his role has changed since leaving Liverpool`\
 https://nytimes.com/athletic/6488633/2025/07/12/henderson-brentford-transfer-analysis/
-
-**The quintessential Paris Saint-Germain goal and why opposing teams still don't know how to stop it**\
-`The new European champions are capable of building devastating passing sequences their rivals are left searching in vain for answers to`\
-https://nytimes.com/athletic/6485715/2025/07/12/psg-quintessential-goal-opposition-teams/
-
-**Why Bend It Like Beckham's director has swapped football for cricket**\
-`The football film made a big impact nearly 25 years ago and now its director has made a trailer for the England-India women's cricket series`\
-https://nytimes.com/athletic/6485711/2025/07/12/bend-it-like-beckham-cricket-england-india/
 
