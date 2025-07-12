@@ -1,3 +1,11 @@
+**Gyokeres to be fined, apologise to team-mates after missing Sporting return - president**\
+`Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching an agreement over a fee.`\
+https://nytimes.com/athletic/6490278/2025/07/12/viktor-gyokeres-arsenal-transfer-sporting-training/
+
+**Cucurella interview: Chelsea adaptation, a year of non-stop football and Club World Cup reflections**\
+`The defender discusses the pros and cons of this summer's tournament and looks back at his difficult early months at Stamford Bridge`\
+https://nytimes.com/athletic/6490211/2025/07/12/marc-cucurella-chelsea-interview/
+
 **Amanda Anisimova's Wimbledon final, and the agony and ecstasy of tennis**\
 `The American's crushing defeat to Iga Świątek was rendered more painful by the way tennis works, but it also allows her to rebound.`\
 https://nytimes.com/athletic/6490165/2025/07/12/tennis-wimbledon-final-anisimova-swiatek-bagel/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/12/us/trump-news/carmakers-brace-for-new-tariff
 **Arizona Resident Dies From Plague, Officials Say**\
 `The resident died from pneumonic plague, the first such death in Coconino County, Ariz., since 2007, the county said.`\
 https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
-
-**How to watch 2025 Wimbledon men’s final: Alcaraz, Sinner get a rematch**\
-`Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
-https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
-
-**Trump Threatens to Strip Rosie O’Donnell of U.S. Citizenship**\
-`President Trump called Ms. O’Donnell, who has feuded with him since before he became president, a “threat to humanity.”`\
-https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
 
