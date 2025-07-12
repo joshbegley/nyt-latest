@@ -1,3 +1,7 @@
+**Mike Brown's philosophy, other Knicks thoughts after first summer league game**\
+`Brown's philosophy, young players struggle and more.`\
+https://nytimes.com/athletic/6489382/2025/07/11/mike-brown-philosophy-knicks-summer-league/
+
 **Columbia and Trump Near a Deal, With School Possibly Paying Millions**\
 `In return, the White House would restore some of the more than $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
 https://nytimes.com/2025/07/11/nyregion/columbia-university-trump-deal-antisemitism.html
