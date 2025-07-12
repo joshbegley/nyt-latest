@@ -2,12 +2,12 @@
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/12/todays-new-york-times
 
-**Taylor beats Serrano in trilogy, but women's boxing is the ultimate victor**\
+**Taylor beats Serrano in trilogy, but women's boxing was the ultimate victor**\
 `“I just know I can’t fight Amanda Serrano again, she punches too hard,” Taylor said after as the women shared a laugh and a handshake.`\
 https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
 
 **Ceddanne Rafaela crushes walk-off homer to continue Red Sox's hot streak**\
-`"I've been waiting for this moment since I was watching games with my mom in 2004, 2005, 2006, 2007," Rafaela said after his walk-off homer.`\
+`"I've been waiting for this moment since I was watching games with my mom in 2004, 2005, 2006, 2007," Rafaela said.`\
 https://nytimes.com/athletic/6489495/2025/07/12/red-sox-ceddanne-rafaela-walk-off-alex-bregman/
 
 **6,252 calories and 1,245 grams of carbs: What it takes to fuel a winning ride at the Tour de France**\
