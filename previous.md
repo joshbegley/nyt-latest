@@ -1,5 +1,13 @@
+**Twins' Carlos Correa helped off field with ankle injury from Tommy Pham slide**\
+`Correa’s right leg was the focal point of much controversy during his second trip through free agency ahead of the 2023 season.`\
+https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury-tommy-pham/
+
+**Pistons' Ron Holland shows growth with 28-point performance in Vegas**\
+`Nearly half of Ron Holland's 28 points came by way of his 3-point shooting, an area of improvement for Holland entering the offseason.`\
+https://nytimes.com/athletic/6489404/2025/07/11/pistons-ron-holland-28-point-summer-league/
+
 **Mike Brown's philosophy, other Knicks thoughts after first summer league game**\
-`Brown's philosophy, young players struggle and more.`\
+`Thoughts and observations after the Knicks' 104-86 loss to the Pistons in their first game of summer league action.`\
 https://nytimes.com/athletic/6489382/2025/07/11/mike-brown-philosophy-knicks-summer-league/
 
 **Convention Challenger**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/11/us/immigration-raids-judge-injunction.html
 **A New York County to Allow Officers to Wear Masks When Working With ICE**\
 `Nassau County, which recently barred residents from wearing masks in many circumstances, will permit police officers to wear them during immigration enforcement and other actions.`\
 https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
-
-**Fed Defends Renovations as White House Widens Attacks on Central Bank**\
-`President Trump and his allies have accused the Federal Reserve chair, Jerome Powell, of misleading Congress in what some legal scholars worry is a prelude to seeking his removal.`\
-https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
-
-**MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
-`Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
-https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
 
