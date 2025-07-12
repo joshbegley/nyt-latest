@@ -1,6 +1,14 @@
+**Gianni Infantino talks up the Club World Cup at Trump Tower - 'We will make it better'**\
+`"We may have received some justified criticism," said Infantino as he declared that "the golden era of global club football has started"`\
+https://nytimes.com/athletic/6490200/2025/07/12/gianni-infantino-club-world-cup-trump-tower/
+
 **Gyokeres to be fined, apologise to team-mates after missing Sporting return - president**\
 `Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching an agreement over a fee.`\
 https://nytimes.com/athletic/6490278/2025/07/12/viktor-gyokeres-arsenal-transfer-sporting-training/
+
+**Cazorla, 40, signs new Oviedo contract to make La Liga return**\
+`The former Arsenal playmaker will enter his third season with Oviedo, marking his return to La Liga after leaving Villarreal five years ago.`\
+https://nytimes.com/athletic/6490234/2025/07/12/santi-cazorla-oviedo-la-liga-return/
 
 **Cucurella interview: Chelsea adaptation, a year of non-stop football and Club World Cup reflections**\
 `The defender discusses the pros and cons of this summer's tournament and looks back at his difficult early months at Stamford Bridge`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6490175/2025/07/12/england-india-lords-stokes-mccul
 **Trump Administration Fires More D.O.J. Employees Who Worked for Special Counsel**\
 `The latest round of firings targets not just prosecutors but also support staff members who played a smaller role.`\
 https://nytimes.com/2025/07/12/us/politics/justice-dept-jack-smith-firings.html
-
-**Carmakers brace for new tariffs in major manufacturing hubs.**\
-`By Jack Ewing`\
-https://nytimes.com/live/2025/07/12/us/trump-news/carmakers-brace-for-new-tariffs-in-major-manufacturing-hubs
-
-**Arizona Resident Dies From Plague, Officials Say**\
-`The resident died from pneumonic plague, the first such death in Coconino County, Ariz., since 2007, the county said.`\
-https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
 
