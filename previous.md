@@ -1,3 +1,7 @@
+**FEMA Approved Removal of Many Camp Mystic Buildings From Flood Zones**\
+`Camp Mystic owners successfully appealed to the Federal Emergency Management Agency to redesignate some buildings that had been considered part of a flood-hazard zone.`\
+https://nytimes.com/2025/07/12/us/texas-camp-mystic-flood-plain-maps.html
+
 **Yankees' Max Fried leaves game after 3 innings with blister**\
 `The lefty went on the IL at the end of the 2023 season due to a recurring blister issue on his left index finger.`\
 https://nytimes.com/athletic/6490195/2025/07/12/max-fried-injury-blister-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
 **ICE Set to Vastly Expand Its Reach With New Funds**\
 `After the passage of President Trump’s domestic policy law, the Department of Homeland Security is poised to hire thousands of new immigration agents and double detention space.`\
 https://nytimes.com/2025/07/12/us/politics/ice-expansion-concerns.html
-
-**Tour de France stage eight: Jonathan Milan takes first stage win, and increasing tension between UAE and Visma**\
-`Analysis of the eighth stage of the 2025 Tour de France, which took the peloton from Saint-Meen-le-Grand to Laval`\
-https://nytimes.com/athletic/6489771/2025/07/12/tour-de-france-stage-eight-analysis/
 
