@@ -1,3 +1,11 @@
+**Twins' Carlos Correa helped off field with ankle injury from Tommy Pham slide**\
+`The Twins say Correa exited with a mild right ankle sprain.`\
+https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury-tommy-pham/
+
+**A New York County Will Let Officers Wear Masks When Working With ICE**\
+`Nassau County, which recently barred residents from wearing masks in many circumstances, will allow police officers to wear them during immigration enforcement and other actions.`\
+https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
+
 **Pistons' Ron Holland shows growth with 28-point performance in Vegas**\
 `Nearly half of Ron Holland's 28 points came by way of his 3-point shooting, an area of improvement for him entering the offseason.`\
 https://nytimes.com/athletic/6489404/2025/07/11/pistons-ron-holland-28-point-summer-league/
