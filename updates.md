@@ -1,3 +1,7 @@
+**Pistons' Ron Holland shows growth with 28-point performance in Vegas**\
+`Nearly half of Ron Holland's 28 points came by way of his 3-point shooting, an area of improvement for him entering the offseason.`\
+https://nytimes.com/athletic/6489404/2025/07/11/pistons-ron-holland-28-point-summer-league/
+
 **Twins' Carlos Correa helped off field with ankle injury from Tommy Pham slide**\
 `Correa’s right leg was the focal point of much controversy during his second trip through free agency ahead of the 2023 season.`\
 https://nytimes.com/athletic/6489430/2025/07/11/twins-carlos-correa-ankle-injury-tommy-pham/
