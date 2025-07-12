@@ -1,3 +1,7 @@
+**Trump Threatens Steep Tariffs on Goods From E.U. and Mexico**\
+`European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
+https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
+
 **Trump Threatens 30% Tariff on Goods From E.U. and Mexico**\
 `European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
 https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html

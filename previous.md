@@ -14,7 +14,7 @@ https://nytimes.com/2025/07/12/us/summer-camps-safety.html
 `Palestinian authorities and family members said Israeli settlers beat and killed a Palestinian-American man. Israel said the violence began when Palestinians threw stones at Israeli civilians.`\
 https://nytimes.com/2025/07/12/world/middleeast/palestinians-killed-by-israelis-in-west-bank.html
 
-**Trump Threatens 30% Tariff on Goods From E.U. and Mexico**\
+**Trump Threatens Steep Tariffs on Goods From E.U. and Mexico**\
 `European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
 https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
 
