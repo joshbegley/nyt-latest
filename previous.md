@@ -1,7 +1,3 @@
-**With prominent summer league role, Reed Sheppard 'getting better and better every day'**\
-`The Rockets' push to fast-track Reed Sheppard's growth stems from internal confidence in his potential.`\
-https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
-
 **Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
 `The Phillies criticized MLB after two of their pitchers weren't named replacements but the Brewers rookie with five starts made the NL team.`\
 https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6489098/2025/07/12/athenea-del-castillo-spain-italy
 **Trump’s Cabinet of Incompetents**\
 `Putting talking heads in charge — not the best idea.`\
 https://nytimes.com/2025/07/12/opinion/trump-cabinet-hegseth-bondi.html
+
+**Our way-too-early predictions for the 2025-26 NHL season**\
+`With offseason fully upon us and most of the big free-agent signings in the books, The Athletic asked its NHL staff for their 2025-26 picks.`\
+https://nytimes.com/athletic/6487503/2025/07/12/nhl-2025-26-season-predictions-stanley-cup-awards/
 

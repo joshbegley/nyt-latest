@@ -1,3 +1,7 @@
+**Our way-too-early predictions for the 2025-26 NHL season**\
+`With offseason fully upon us and most of the big free-agent signings in the books, The Athletic asked its NHL staff for their 2025-26 picks.`\
+https://nytimes.com/athletic/6487503/2025/07/12/nhl-2025-26-season-predictions-stanley-cup-awards/
+
 **With prominent summer league role, Reed Sheppard 'getting better and better every day'**\
 `The Rockets' push to fast-track Reed Sheppard's growth stems from internal confidence in his potential.`\
 https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
