@@ -1,3 +1,11 @@
+**Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
+`By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trump-roie-odonnell-citizenship
+
+**ICE Set to Vastly Expand Its Reach With New Funds**\
+`After the passage of President Trump’s domestic policy law, the Department of Homeland Security is poised to hire thousands of new immigration agents and double detention space.`\
+https://nytimes.com/2025/07/12/us/politics/ice-expansion-concerns.html
+
 **Tour de France stage eight: Jonathan Milan takes first stage win, and increasing tension between UAE and Visma**\
 `Analysis of the eighth stage of the 2025 Tour de France, which took the peloton from Saint-Meen-le-Grand to Laval`\
 https://nytimes.com/athletic/6489771/2025/07/12/tour-de-france-stage-eight-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6489892/2025/07/12/ndamukong-suh-retirement-nfl-lio
 **Trump Cites Flow of Fentanyl to Justify New Tariffs on Mexico**\
 `The tariffs are likely to inflame tensions with one of the largest U.S. trading partners.`\
 https://nytimes.com/2025/07/12/business/trump-tariffs-mexico.html
-
-**Louis van Gaal 'no longer bothered by cancer'**\
-`Van Gaal previously announced he was undergoing treatment for prostate cancer while in his third term as head coach of the Netherlands.`\
-https://nytimes.com/athletic/6489974/2025/07/12/louis-van-gaal-cancer-netherlands/
-
-**Daniel Kleppner, Physicist Who Brought Precision to GPS, Dies at 92**\
-`He worked to develop an atomic clock that is essential to global positioning systems and helped confirm a rare state of matter predicted by Albert Einstein.`\
-https://nytimes.com/2025/07/12/science/daniel-kleppner-dead.html
 

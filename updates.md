@@ -1,3 +1,11 @@
+**Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
+`By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trump-roie-odonnell-citizenship
+
+**ICE Set to Vastly Expand Its Reach With New Funds**\
+`After the passage of President Trump’s domestic policy law, the Department of Homeland Security is poised to hire thousands of new immigration agents and double detention space.`\
+https://nytimes.com/2025/07/12/us/politics/ice-expansion-concerns.html
+
 **Tour de France stage eight: Jonathan Milan takes first stage win, and increasing tension between UAE and Visma**\
 `Analysis of the eighth stage of the 2025 Tour de France, which took the peloton from Saint-Meen-le-Grand to Laval`\
 https://nytimes.com/athletic/6489771/2025/07/12/tour-de-france-stage-eight-analysis/
