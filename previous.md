@@ -1,3 +1,15 @@
+**A Grand Canyon Access Point Is Closed as 19,000 Acres Burn Nearby**\
+`Access via the North Rim, a lesser-used gateway to the national park, was closed as the White Sage fire continued to burn on Saturday.`\
+https://nytimes.com/2025/07/12/us/wildfires-grand-canyon-north-rim-closed.html
+
+**Trump’s percent tariff threat provokes anger and frustration in Europe.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
+
+**Forest players trust Marinakis to reinvest in squad - Yates**\
+`The Forest captain was speaking after Anthony Elanga completed his Newcastle move while Morgan Gibbs-White.is subject to a Tottenham offer.`\
+https://nytimes.com/athletic/6490048/2025/07/12/nottingham-forest-transfer-news-marinakis/
+
 **Andy Carroll joins sixth-tier Dagenham & Redbridge**\
 `Dagenham & Redbridge also announced on Saturday that the club had been bought by a consortium of prominent Qatari private investors.`\
 https://nytimes.com/athletic/6490443/2025/07/12/andy-carroll-transfer-dagenham-and-redbridge/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/07/12/us/trump-news/mexico-has-taken-steps-to-curb
 **Of course Iga Swiatek won Wimbledon, the tournament where the greats rise**\
 `Świątek's sixth Grand Slam title is a vindication of the tennis she has been seeking since the end of last season.`\
 https://nytimes.com/athletic/6490272/2025/07/12/tennis-iga-swiatek-grand-slam-titles-wimbledon/
-
-**Andrew Kassoy, 55, Dies; Saw Capitalism as a Force for Social Good**\
-`He was a founder of B Lab, a nonprofit network whose lofty mission is “transforming the global economy to benefit all people, communities and the planet.”`\
-https://nytimes.com/2025/07/12/business/andrew-kassoy-dead.html
-
-**Rubio Visits Asia in Shadow of Trump’s Tariffs**\
-`Marco Rubio made his first visit to Asia as secretary of state. Edward Wong, a diplomatic correspondent for The New York Times, reports from Kuala Lumpur, Malaysia, to explain how President Trump’s tariffs have upset U.S. trading partners.`\
-https://nytimes.com/video/world/asia/100000010277461/rubio-visits-asia-in-shadow-of-trumps-tariffs.html
-
-**Gianni Infantino talks up the Club World Cup at Trump Tower - 'We will make it better'**\
-`"We may have received some justified criticism" said FIFA's president as he declared "the golden era of global club football has started"`\
-https://nytimes.com/athletic/6490200/2025/07/12/gianni-infantino-club-world-cup-trump-tower/
 

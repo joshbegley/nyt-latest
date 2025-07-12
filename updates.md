@@ -1,3 +1,15 @@
+**A Grand Canyon Access Point Is Closed as 19,000 Acres Burn Nearby**\
+`Access via the North Rim, a lesser-used gateway to the national park, was closed as the White Sage fire continued to burn on Saturday.`\
+https://nytimes.com/2025/07/12/us/wildfires-grand-canyon-north-rim-closed.html
+
+**Trump’s percent tariff threat provokes anger and frustration in Europe.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
+
+**Forest players trust Marinakis to reinvest in squad - Yates**\
+`The Forest captain was speaking after Anthony Elanga completed his Newcastle move while Morgan Gibbs-White.is subject to a Tottenham offer.`\
+https://nytimes.com/athletic/6490048/2025/07/12/nottingham-forest-transfer-news-marinakis/
+
 **Andy Carroll joins sixth-tier Dagenham & Redbridge**\
 `Dagenham & Redbridge also announced on Saturday that the club had been bought by a consortium of prominent Qatari private investors.`\
 https://nytimes.com/athletic/6490443/2025/07/12/andy-carroll-transfer-dagenham-and-redbridge/
