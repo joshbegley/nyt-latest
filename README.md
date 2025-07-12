@@ -1,3 +1,7 @@
+**Farmworker Dies After Fleeing a Federal Raid in Southern California**\
+`During a chaotic raid in Ventura County on Thursday, the worker fell from a greenhouse at a cannabis farm, suffered spinal and skull injuries, and died on Friday.`\
+https://nytimes.com/2025/07/11/us/immigration-raids-farmworker-death.html
+
 **Matt Olson replaces Ronald Acuña Jr. in Home Run Derby**\
 `Acuña still plans to start in Tuesday's All-Star Game, which the Atlanta Braves are hosting.`\
 https://nytimes.com/athletic/6489315/2025/07/11/home-run-derby-matt-olson-ronald-acuna-replacement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
 **FEMA Didn’t Answer Thousands of Calls From Flood Survivors, Documents Show**\
 `Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that weren’t extended.`\
 https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
-
-**Evacuations and Lost Cabins: A Century of Floods at Camp Mystic**\
-`Within six years of opening, Camp Mystic was inundated with floodwaters. It was the first of many times.`\
-https://nytimes.com/2025/07/11/us/camp-mystic-flood-history.html
 
