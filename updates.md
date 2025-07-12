@@ -1,3 +1,11 @@
+**Mark Vientos finds his confidence with go-ahead double to power Mets past Royalst**\
+`Vientos socked a slider to right field for a three-run double in the eighth inning, sparking a late rally in the Mets' 8-3 win Friday night`\
+https://nytimes.com/athletic/6489589/2025/07/12/mark-vientos-offense-mets-royals/
+
+**Our Investigation of UnitedHealth Started With a Tip**\
+`A reporter was familiar with the insurance giant under scrutiny and the law firm known for its attack stance. Then one hired the other.`\
+https://nytimes.com/2025/07/12/insider/unitedhealth-tip.html
+
 **Trump Threatens Steep Tariffs on Goods From E.U. and Mexico**\
 `European leaders had been trying to negotiate more favorable terms for months. They may retaliate with tariffs of their own.`\
 https://nytimes.com/2025/07/12/us/politics/europe-eu-tariffs-trade.html
