@@ -1,3 +1,11 @@
+**Tour de France stage eight: Jonathan Milan takes first stage win, and increasing tension between UAE and Visma**\
+`Analysis of the eighth stage of the 2025 Tour de France, which took the peloton from Saint-Meen-le-Grand to Laval`\
+https://nytimes.com/athletic/6489771/2025/07/12/tour-de-france-stage-eight-analysis/
+
+**NHL teams vote in favor of decentralized 2026 NHL Draft: Source**\
+`Aside from the pandemic-affected 2020 and 2021 drafts, this was the first year the league went to a decentralized model.`\
+https://nytimes.com/athletic/6490026/2025/07/12/nhl-draft-decentralized-vote/
+
 **Hunter Dobbins suffers right ACL tear in another blow to Red Sox rotation depth**\
 `Dobbins was injured covering first base in the second inning of the Red Sox's win over the Rays on Friday night.`\
 https://nytimes.com/athletic/6489999/2025/07/12/hunter-dobbins-acl-tear-red-sox/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6489974/2025/07/12/louis-van-gaal-cancer-netherland
 **Daniel Kleppner, Physicist Who Brought Precision to GPS, Dies at 92**\
 `He worked to develop an atomic clock that is essential to global positioning systems and helped confirm a rare state of matter predicted by Albert Einstein.`\
 https://nytimes.com/2025/07/12/science/daniel-kleppner-dead.html
-
-**Game, Set, Match: Iga Swiatek routs Amanda Anisimova to win first Wimbledon title**\
-`Świątek dispatched a nervous Anisimova to confirm her status as the best women's tennis player since Serena Williams.`\
-https://nytimes.com/athletic/6489699/2025/07/12/wimbledon-final-swiatek-anisimova-result-analysis/
-
-**Grok Chatbot Mirrored X Users’ ‘Extremist Views’ in Antisemitic Posts, xAI Says**\
-`Elon Musk’s artificial intelligence company said its Grok chatbot had also undergone a code update that caused it to share antisemitic messages this week.`\
-https://nytimes.com/2025/07/12/technology/x-ai-grok-antisemitism.html
 

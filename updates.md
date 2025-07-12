@@ -1,3 +1,11 @@
+**Tour de France stage eight: Jonathan Milan takes first stage win, and increasing tension between UAE and Visma**\
+`Analysis of the eighth stage of the 2025 Tour de France, which took the peloton from Saint-Meen-le-Grand to Laval`\
+https://nytimes.com/athletic/6489771/2025/07/12/tour-de-france-stage-eight-analysis/
+
+**NHL teams vote in favor of decentralized 2026 NHL Draft: Source**\
+`Aside from the pandemic-affected 2020 and 2021 drafts, this was the first year the league went to a decentralized model.`\
+https://nytimes.com/athletic/6490026/2025/07/12/nhl-draft-decentralized-vote/
+
 **Hunter Dobbins suffers right ACL tear in another blow to Red Sox rotation depth**\
 `Dobbins was injured covering first base in the second inning of the Red Sox's win over the Rays on Friday night.`\
 https://nytimes.com/athletic/6489999/2025/07/12/hunter-dobbins-acl-tear-red-sox/
