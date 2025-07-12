@@ -1,3 +1,11 @@
+**Nordstrom’s Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
+`Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
+https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
+
+**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
+`"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
+https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
+
 **Nordstromâs Anniversary Sale Is Full of Wirecutter Picks. And the Prices Are Very Good.**\
 `Nordstromâs Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that donât see discounts often.`\
 https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
