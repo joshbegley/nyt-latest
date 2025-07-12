@@ -1,3 +1,23 @@
+**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
+`"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
+https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
+
+**How Lionel Messi's favorite goal became immortalized in art**\
+`One of the Argentine superstar's greatest goals has been reimagined as an "immersive gateway that collapses time"`\
+https://nytimes.com/athletic/6489379/2025/07/12/messi-greatest-goal-art-header-manchester-united-barcelona/
+
+**Break Even at the Casino? You May Still Owe Taxes.**\
+`The new domestic policy law rewrites tax rules for the hundreds of billions of dollars Americans legally wager each year. A Nevada lawmaker has introduced a bill to overturn that provision.`\
+https://nytimes.com/2025/07/12/business/dealbook/gambling-tax-rules.html
+
+**2 Books for a Hot, Languid Summer**\
+`A classic coming-of-age novel; a cultural history of early America.`\
+https://nytimes.com/2025/07/12/books/read-like-wind-recommendations.html
+
+**With prominent summer league role, Reed Sheppard 'getting better and better every day'**\
+`The Rockets' push to fast-track Reed Sheppard's growth stems from internal confidence in his potential.`\
+https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
+
 **Our way-too-early predictions for the 2025-26 NHL season**\
 `With offseason fully upon us and most of the big free-agent signings in the books, The Athletic asked its NHL staff for their 2025-26 picks.`\
 https://nytimes.com/athletic/6487503/2025/07/12/nhl-2025-26-season-predictions-stanley-cup-awards/

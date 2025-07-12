@@ -1,3 +1,23 @@
+**Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
+`"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
+https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
+
+**How Lionel Messi's favorite goal became immortalized in art**\
+`One of the Argentine superstar's greatest goals has been reimagined as an "immersive gateway that collapses time"`\
+https://nytimes.com/athletic/6489379/2025/07/12/messi-greatest-goal-art-header-manchester-united-barcelona/
+
+**Break Even at the Casino? You May Still Owe Taxes.**\
+`The new domestic policy law rewrites tax rules for the hundreds of billions of dollars Americans legally wager each year. A Nevada lawmaker has introduced a bill to overturn that provision.`\
+https://nytimes.com/2025/07/12/business/dealbook/gambling-tax-rules.html
+
+**2 Books for a Hot, Languid Summer**\
+`A classic coming-of-age novel; a cultural history of early America.`\
+https://nytimes.com/2025/07/12/books/read-like-wind-recommendations.html
+
+**With prominent summer league role, Reed Sheppard 'getting better and better every day'**\
+`The Rockets' push to fast-track Reed Sheppard's growth stems from internal confidence in his potential.`\
+https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
+
 **Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
 `The Phillies criticized MLB after two of their pitchers weren't named replacements but the Brewers rookie with five starts made the NL team.`\
 https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/12/opinion/trump-russia-china-iran.html
 **‘Egregious.’ Brazen.’ ‘Lawless.’ How 48 Judges Describe Trump’s Actions, in Their Own Words**\
 `Dozens of judges, appointed by presidents of both parties, have stood up to the administration’s lawlessness.`\
 https://nytimes.com/interactive/2025/07/12/opinion/editorials/federal-judges-quotes-trump-administration.html
-
-**Floods Are Inevitable. Catastrophe Is Not.**\
-`The floods will come no matter what kind of solutions we put forth.`\
-https://nytimes.com/2025/07/12/opinion/texas-floods.html
-
-**Democrats Can Finally Stop Pandering to Farmers**\
-`There’s a silver lining to the so-called big, beautiful bill for Democrats.`\
-https://nytimes.com/2025/07/12/opinion/democrats-farmers.html
-
-**Was Del Castillo's equaliser for Spain the best goal of the Women's Euros so far?**\
-`The Real Madrid striker equalised against Italy on Friday night with what will surely prove one of the top finishes of the tournament`\
-https://nytimes.com/athletic/6489098/2025/07/12/athenea-del-castillo-spain-italy-analysis/
-
-**Trump’s Cabinet of Incompetents**\
-`Putting talking heads in charge — not the best idea.`\
-https://nytimes.com/2025/07/12/opinion/trump-cabinet-hegseth-bondi.html
-
-**Our way-too-early predictions for the 2025-26 NHL season**\
-`With offseason fully upon us and most of the big free-agent signings in the books, The Athletic asked its NHL staff for their 2025-26 picks.`\
-https://nytimes.com/athletic/6487503/2025/07/12/nhl-2025-26-season-predictions-stanley-cup-awards/
 
