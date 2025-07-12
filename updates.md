@@ -1,3 +1,11 @@
+**Andy Carroll joins sixth-tier Dagenham & Redbridge**\
+`Dagenham & Redbridge also announced on Saturday that the club had been bought by a consortium of prominent Qatari private investors.`\
+https://nytimes.com/athletic/6490443/2025/07/12/andy-carroll-transfer-dagenham-and-redbridge/
+
+**Latest tariffs apparently do not apply to cars.**\
+`Cars and trucks a`\
+https://nytimes.com/live/2025/07/12/us/trump-news/latest-tariffs-apparently-do-not-apply-to-cars
+
 **Flores Jr.: MLB’s All-Star week means everything to me, so let's celebrate together**\
 `For as long as I can remember, Major League Baseball’s annual All-Star week has been my favorite part of the year.`\
 https://nytimes.com/athletic/6489572/2025/07/12/mlb-2025-all-star-week-trip-atlanta/
