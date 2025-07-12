@@ -1,40 +1,40 @@
-**Malik Tillman and why Bayer Leverkusen have signed the USMNT midfielder**\
-`From Bayern's youth team to maturing at Rangers to winning titles at PSV - the 23-year-old American's rise has been rapid`\
-https://nytimes.com/athletic/6486104/2025/07/12/malik-tillman-leverkusen-transfer-usmnt/
+**Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
+`The Phillies criticized MLB after two of their pitchers weren't named replacements but the Brewers rookie with five starts made the NL team.`\
+https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
 
-**Leverkusen complete deal to sign USMNT's Malik Tillman**\
-`Leverkusen were in the market for more creativity after the sale of Florian Wirtz to Liverpool in a club-record deal.`\
-https://nytimes.com/athletic/6445200/2025/07/12/malik-tillman-transfer-leverkusen/
+**Raised around stars, Dino Ebel's sons now chase own MLB dreams**\
+`Dino Ebel has spent his life in professional baseball. His sons could be joining him in the pro ranks soon.`\
+https://nytimes.com/athletic/6489424/2025/07/12/ebel-family-mlb-draft-all-star-weekend/
 
-**Comfort Viewing**\
-`Rewatching old shows may seem like a waste of time, but a repeat viewing is rewarding in its own way.`\
-https://nytimes.com/2025/07/12/briefing/comfort-viewing.html
+**What the ‘Exhausted Majority’ Really Wants**\
+`It’s probably not Elon Musk’s new party.`\
+https://nytimes.com/2025/07/12/opinion/third-party-elon-musk.html
 
-**The WWE rising star who has the NCAA’s NIL era to thank**\
-`WWE’s pivot to sign college athletes a few years ago is quickly paying off, with a former Alabama shot putter the first star pupil.`\
-https://nytimes.com/athletic/6488400/2025/07/12/oba-femi-wwe-ncaa-nil-shot-put/
+**Who Is Winning the World War?**\
+`American foreign policy needs both a better long-term strategy and a lot of short-term Trumpian flexibility.`\
+https://nytimes.com/2025/07/12/opinion/trump-russia-china-iran.html
 
-**Final MLB Mock Draft 2025: Kade Anderson still at 1; where will Ethan Holliday land?**\
-`In our final MLB mock draft ahead of Sunday's Day 1, the Baltimore Orioles and their massive bonus pool could impact who goes in Round 1.`\
-https://nytimes.com/athletic/6483516/2025/07/12/mlb-mock-draft-2025-final-kade-anderson/
+**‘Egregious.’ Brazen.’ ‘Lawless.’ How 48 Judges Describe Trump’s Actions, in Their Own Words**\
+`Dozens of judges, appointed by presidents of both parties, have stood up to the administration’s lawlessness.`\
+https://nytimes.com/interactive/2025/07/12/opinion/editorials/federal-judges-quotes-trump-administration.html
 
-**Celtics' Hugo González upset about free throws, but happy with win in summer league debut**\
-`“It was hard to catch up with the pace and everything,” says Hugo González of his first taste of NBA action. `\
-https://nytimes.com/athletic/6489327/2025/07/12/celtics-hugo-gonzalez-summer-league-debut/
+**Floods Are Inevitable. Catastrophe Is Not.**\
+`The floods will come no matter what kind of solutions we put forth.`\
+https://nytimes.com/2025/07/12/opinion/texas-floods.html
 
-**A Beloved Canadian Chocolate Bar Disappears From the Market**\
-`Neilson Jersey Milk may be the latest victim of multinational food companies’ strategy of promoting their global brands over domestic ones.`\
-https://nytimes.com/2025/07/12/world/canada/neilson-jersey-milk-discontinued.html
+**Democrats Can Finally Stop Pandering to Farmers**\
+`There’s a silver lining to the so-called big, beautiful bill for Democrats.`\
+https://nytimes.com/2025/07/12/opinion/democrats-farmers.html
 
-**Wordle Review No. 1,485**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 13, 2025.`\
-https://nytimes.com/2025/07/12/crosswords/wordle-review-1485.html
+**Was Del Castillo's equaliser for Spain the best goal of the Women's Euros so far?**\
+`The Real Madrid striker equalised against Italy on Friday night with what will surely prove one of the top finishes of the tournament`\
+https://nytimes.com/athletic/6489098/2025/07/12/athenea-del-castillo-spain-italy-analysis/
 
-**The Guy I’m Dating Wants Us to Be Exclusive. Do I Have to Agree?**\
-`Pressure and trust issues made me skeptical of monogamy.`\
-https://nytimes.com/2025/07/12/magazine/exclusive-dating-monogamy-ethics.html
+**Trump’s Cabinet of Incompetents**\
+`Putting talking heads in charge — not the best idea.`\
+https://nytimes.com/2025/07/12/opinion/trump-cabinet-hegseth-bondi.html
 
-**Strands Sidekick No. 497**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 13, 2025.`\
-https://nytimes.com/2025/07/12/crosswords/strands-sidekick-497.html
+**Our way-too-early predictions for the 2025-26 NHL season**\
+`With offseason fully upon us and most of the big free-agent signings in the books, The Athletic asked its NHL staff for their 2025-26 picks.`\
+https://nytimes.com/athletic/6487503/2025/07/12/nhl-2025-26-season-predictions-stanley-cup-awards/
 
