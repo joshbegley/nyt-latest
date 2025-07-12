@@ -1,3 +1,7 @@
+**How to watch 2025 Wimbledon men’s final: Alcaraz, Sinner get a rematch**\
+`Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
+https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
+
 **Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
 `By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
 https://nytimes.com/live/2025/07/12/us/trump-news/trump-roie-odonnell-citizenship
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489971/2025/07/12/wales-england-euro-2025/
 **Ndamukong Suh formally announces NFL retirement in emotional farewell**\
 `Suh last played with the Eagles in 2022 during his 13-year NFL career as one of the league’s most physically imposing defenders.`\
 https://nytimes.com/athletic/6489892/2025/07/12/ndamukong-suh-retirement-nfl-lions/
-
-**Trump Cites Flow of Fentanyl to Justify New Tariffs on Mexico**\
-`The tariffs are likely to inflame tensions with one of the largest U.S. trading partners.`\
-https://nytimes.com/2025/07/12/business/trump-tariffs-mexico.html
 

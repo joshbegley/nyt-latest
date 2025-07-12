@@ -1,3 +1,7 @@
+**How to watch 2025 Wimbledon men’s final: Alcaraz, Sinner get a rematch**\
+`Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
+https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
+
 **Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
 `By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
 https://nytimes.com/live/2025/07/12/us/trump-news/trump-roie-odonnell-citizenship
