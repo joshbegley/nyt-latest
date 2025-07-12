@@ -1,3 +1,11 @@
+**Dodgers drop seventh game in a row, longest streak since 2017**\
+`The Dodgers' National League West division lead has shrunk from nine games to four in a week as their lineup has slumped.`\
+https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
+
+**FIFA to stage Club World Cup final halftime show, Robbie Williams and Laura Pausini to perform pre-game**\
+`The musical act at halftime of PSG vs. Chelsea will take place far away from the field of play`\
+https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-stadium-stage-halftime-show/
+
 **Wales relishing chance to end England's Euro 2025: 'We get to spoil the party'**\
 `Wales can prevent England from reaching the knockout stages should they take at least a draw from Sunday's final group stage fixture.`\
 https://nytimes.com/athletic/6489971/2025/07/12/wales-england-euro-2025/

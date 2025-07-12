@@ -1,3 +1,11 @@
+**Dodgers drop seventh game in a row, longest streak since 2017**\
+`The Dodgers' National League West division lead has shrunk from nine games to four in a week as their lineup has slumped.`\
+https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
+
+**FIFA to stage Club World Cup final halftime show, Robbie Williams and Laura Pausini to perform pre-game**\
+`The musical act at halftime of PSG vs. Chelsea will take place far away from the field of play`\
+https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-stadium-stage-halftime-show/
+
 **Wales relishing chance to end England's Euro 2025: 'We get to spoil the party'**\
 `Wales can prevent England from reaching the knockout stages should they take at least a draw from Sunday's final group stage fixture.`\
 https://nytimes.com/athletic/6489971/2025/07/12/wales-england-euro-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/12/technology/x-ai-grok-antisemitism.html
 **Texas Court Seals Records in Ken Paxton’s Divorce Case**\
 `The order meant details in the case, which involves allegations of adultery, would not be public as the Texas attorney general challenges Senator John Cornyn in the 2026 primary.`\
 https://nytimes.com/2025/07/12/us/texas-ag-paxton-divorce-records.html
-
-**La Liga's Tebas says Madrid request to postpone opening 25-26 league game denied**\
-`Madrid's 4-0 defeat to PSG in the Club World Cup semi-final meant they have 40 days to rest and prepare for their La Liga opener.`\
-https://nytimes.com/athletic/6489722/2025/07/12/real-madrid-osasuna-la-liga-first/
-
-**Giants hold on in wild game, send Dodgers to seventh straight loss**\
-`The juice is coming back to the Giants-Dodgers rivalry after San Francisco's 8-7 win proved it can compete with L.A. after all.`\
-https://nytimes.com/athletic/6489482/2025/07/12/giants-dodgers-score-result-rivalry/
 
