@@ -1,3 +1,11 @@
+**Leverkusen complete deal to sign USMNT's Malik Tillman**\
+`Leverkusen were in the market for more creativity after the sale of Florian Wirtz to Liverpool in a club-record deal.`\
+https://nytimes.com/athletic/6445200/2025/07/12/malik-tillman-transfer-leverkusen/
+
+**Comfort Viewing**\
+`Rewatching old shows may seem like a waste of time, but a repeat viewing is rewarding in its own way.`\
+https://nytimes.com/2025/07/12/briefing/comfort-viewing.html
+
 **The WWE rising star who has the NCAA’s NIL era to thank**\
 `WWE’s pivot to sign college athletes a few years ago is quickly paying off, with a former Alabama shot putter the first star pupil.`\
 https://nytimes.com/athletic/6488400/2025/07/12/oba-femi-wwe-ncaa-nil-shot-put/
