@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, July 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/12/todays-new-york-times
+
 **Taylor beats Serrano in trilogy, but women's boxing is the ultimate victor**\
 `“I just know I can’t fight Amanda Serrano again, she punches too hard,” Taylor said after as the women shared a laugh and a handshake.`\
 https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6486812/2025/07/12/ranking-the-ballon-dor-2025-favo
 **Giorgio Russo's Love Island presence and what it says about women's football**\
 `Including the brother of high-profile women’s player Alessia on the reality show is another big cultural moment around England's Lionesses`\
 https://nytimes.com/athletic/6480055/2025/07/12/giorgio-russos-love-island-alessia/
-
-**What Jordan Henderson can offer Brentford - a midfield metronome who can fill leadership void**\
-`The England international left Ajax and is set to join Brentford on a two-year deal. Here's how his role has changed since leaving Liverpool`\
-https://nytimes.com/athletic/6488633/2025/07/12/henderson-brentford-transfer-analysis/
 
