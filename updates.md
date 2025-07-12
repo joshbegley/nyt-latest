@@ -1,3 +1,7 @@
+**Carmakers brace for new tariffs in major manufacturing hubs.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/07/12/us/trump-news/carmakers-brace-for-new-tariffs-in-major-manufacturing-hubs
+
 **Trump Threatens to Strip Rosie O’Donnell of U.S. Citizenship**\
 `President Trump called Ms. O’Donnell, who has feuded with him since before he became president, a “threat to humanity.”`\
 https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
