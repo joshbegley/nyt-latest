@@ -1,3 +1,23 @@
+**Tunnel Vision**\
+`Youâll need all of your powers of perception to get through Brandon Koppyâs latest Sunday puzzle.`\
+https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
+
+**Trumpâs 30 percent tariff threat provokes anger and frustration in Europe.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
+
+**Flores Jr.: MLBâs All-Star week means everything to me, so let's celebrate together**\
+`For as long as I can remember, Major League Baseballâs annual All-Star week has been my favorite part of the year.`\
+https://nytimes.com/athletic/6489572/2025/07/12/mlb-2025-all-star-week-trip-atlanta/
+
+**Twinsâ Byron Buxton homers in final at-bat to complete cycle on bobblehead day**\
+`The All-Star put on a show with the Twins' first cycle since 2019 and the first-ever cycle at Target Field, which opened in 2010.`\
+https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobblehead-day/
+
+**Mexico has taken steps to curb drug trade and illegal migration. Trump says itâs not enough.**\
+`By Annie Correal and Emiliano RodrÃ­guez Mega`\
+https://nytimes.com/live/2025/07/12/us/trump-news/mexico-has-taken-steps-to-curb-drug-trade-and-illegal-migration-trump-says-its-not-enough
+
 **Twins’ Byron Buxton homers in final at-bat to complete cycle on bobblehead day**\
 `The All-Star put on a show with the Twins' first cycle since 2019 and the first-ever cycle at Target Field, which opened in 2010.`\
 https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobblehead-day/
