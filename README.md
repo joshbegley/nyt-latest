@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6489572/2025/07/12/mlb-2025-all-star-week-trip-atla
 https://nytimes.com/athletic/6490390/2025/07/12/saudi-arabia-fifa-sepp-blatter/
 
 **Twins’ Byron Buxton homers in final at-bat to complete cycle on bobblehead day**\
-`Buxton completed the feat on his bobblehead day. It's the first cycle at Target Field, which opened in 2010.`\
+`The All-Star put on a show with the Twins' first cycle since 2019 and the first-ever cycle at Target Field, which opened in 2010.`\
 https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobblehead-day/
 
 **Mexico has taken steps to curb drug trade and illegal migration. Trump says it’s not enough.**\
