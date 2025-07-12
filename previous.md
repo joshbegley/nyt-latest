@@ -1,3 +1,7 @@
+**The Pulse: College football starts ... next month!**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
+
 **Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
 `"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
 https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/12/books/read-like-wind-recommendations.html
 https://nytimes.com/athletic/6489551/2025/07/12/reed-sheppard-rockets-nba-summer-league-year-2/
 
 **Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
-`The Phillies criticized MLB after two of their pitchers weren't named replacements but the Brewers rookie with five starts made the NL team.`\
+`The Phillies criticized MLB after two of their pitchers weren't named replacements but Jacob Misiorowski, who has 5 starts, made the team.`\
 https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
 
 **Raised around stars, Dino Ebel's sons now chase own MLB dreams**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/opinion/third-party-elon-musk.html
 **Who Is Winning the World War?**\
 `American foreign policy needs both a better long-term strategy and a lot of short-term Trumpian flexibility.`\
 https://nytimes.com/2025/07/12/opinion/trump-russia-china-iran.html
-
-**‘Egregious.’ Brazen.’ ‘Lawless.’ How 48 Judges Describe Trump’s Actions, in Their Own Words**\
-`Dozens of judges, appointed by presidents of both parties, have stood up to the administration’s lawlessness.`\
-https://nytimes.com/interactive/2025/07/12/opinion/editorials/federal-judges-quotes-trump-administration.html
 

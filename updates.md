@@ -1,3 +1,11 @@
+**The Pulse: College football starts ... next month!**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse/
+
+**Phillies slam MLB for pitchers' All-Star snubs after Brewers rookie makes team: 'What a joke'**\
+`The Phillies criticized MLB after two of their pitchers weren't named replacements but Jacob Misiorowski, who has 5 starts, made the team.`\
+https://nytimes.com/athletic/6489580/2025/07/12/phillies-all-star-snubs-jacob-misiorowski-brewers/
+
 **Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
 `"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
 https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
