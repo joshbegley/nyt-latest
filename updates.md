@@ -1,3 +1,11 @@
+**Google Hires A.I. Leaders From a Start-Up That OpenAI Was Courting**\
+`Google recruited the chief executive and a co-founder of Windsurf, which OpenAI had been in talks to buy, as the battle to dominate artificial intelligence escalates.`\
+https://nytimes.com/2025/07/11/technology/google-windsurf-openai.html
+
+**Judge Blocks Trump Administration Tactics in L.A. Immigration Raids**\
+`A federal judge temporarily halted the administration from making indiscriminate arrests based on race and denying detainees access to lawyers, in a lawsuit that could have national repercussions.`\
+https://nytimes.com/2025/07/11/us/immigration-raids-judge-injunction.html
+
 **New York County to Allow Officers to Wear Masks When Working With ICE**\
 `Nassau County, which recently barred residents from wearing masks in many circumstances, will permit police officers to wear them during immigration enforcement and other actions.`\
 https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
