@@ -2,6 +2,14 @@
 `Nordstrom’s Anniversary Sale happens only once a year, with shoppers heading online and into stores to save on trendier brands and products that don’t see discounts often.`\
 https://nytimes.com/wirecutter/money/nordstrom-anniversary-sale-deals-20250712/
 
+**Mark Vientos finds his confidence with go-ahead double to power Mets past Royalst**\
+`Vientos socked a slider to right field for a three-run double in the eighth inning, sparking a late rally in the Mets' 8-3 win Friday night`\
+https://nytimes.com/athletic/6489589/2025/07/12/mark-vientos-offense-mets-royals/
+
+**Our Investigation of UnitedHealth Started With a Tip**\
+`A reporter was familiar with the insurance giant under scrutiny and the law firm known for its attack stance. Then one hired the other.`\
+https://nytimes.com/2025/07/12/insider/unitedhealth-tip.html
+
 **Bill Dilworth, Caretaker of ‘The New York Earth Room,’ Is Dead at 70**\
 `For decades, he tended a SoHo loft filled with dirt, made by the conceptual artist Walter De Maria. People made pilgrimages to see it — and Mr. Dilworth, its magnetic steward.`\
 https://nytimes.com/2025/07/12/arts/bill-dilworth-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6489594/2025/07/12/college-football-teams-the-pulse
 **Wizards' Tre Johnson impresses in his NBA Summer League debut: 'He doesn’t have nerves'**\
 `"He’s only going to get better from here," says summer league teammate Kyshawn George.`\
 https://nytimes.com/athletic/6489643/2025/07/12/tre-johnson-wizards-summer-league-debut/
-
-**How Lionel Messi's favorite goal became immortalized in art**\
-`One of the Argentine superstar's greatest goals has been reimagined as an "immersive gateway that collapses time"`\
-https://nytimes.com/athletic/6489379/2025/07/12/messi-greatest-goal-art-header-manchester-united-barcelona/
-
-**Break Even at the Casino? You May Still Owe Taxes.**\
-`The new domestic policy law rewrites tax rules for the hundreds of billions of dollars Americans legally wager each year. A Nevada lawmaker has introduced a bill to overturn that provision.`\
-https://nytimes.com/2025/07/12/business/dealbook/gambling-tax-rules.html
 
