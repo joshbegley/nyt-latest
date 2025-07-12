@@ -1,4 +1,8 @@
-**Google Hires A.I. Leaders From a Start-Up That OpenAI Was Courting**\
+**Columbia and Trump Near a Deal, With School Possibly Paying Millions**\
+`In return, the White House would restore some of the $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
+https://nytimes.com/2025/07/11/nyregion/columbia-university-trump-deal-antisemitism.html
+
+**Google Hires A.I. Leaders From a Start-Up Courted by OpenAI**\
 `Google recruited the chief executive and a co-founder of Windsurf, which OpenAI had been in talks to buy, as the battle to dominate artificial intelligence escalates.`\
 https://nytimes.com/2025/07/11/technology/google-windsurf-openai.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/us/politics/trump-fema-texas-flood.html
 **House attorneys argue plan to vet NIL collective deals violates settlement**\
 `A new letter from the attorneys argues the power conferences' NIL oversight group should treat collectives the same as any other business.`\
 https://nytimes.com/athletic/6489243/2025/07/11/ncaa-house-settlement-nil-collective-deal-denial/
-
-**Heat Warnings Issued for Parts of Eastern Canada**\
-`Warnings were issued for southern Ontario and southwest Quebec as hot and humid weather is expected to linger through Thursday.`\
-https://nytimes.com/2025/07/11/weather/canada-heat-warnings.html
 
