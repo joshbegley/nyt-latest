@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6489999/2025/07/12/hunter-dobbins-acl-tear-red-sox/
 https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
 
 **FIFA to stage Club World Cup final halftime show, Robbie Williams and Laura Pausini to perform pre-game**\
-`The musical act at halftime of PSG vs. Chelsea will take place far away from the field of play`\
+`The musical act at halftime of Chelsea vs Paris Saint-Germain will be performed far away from the field of play`\
 https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-stadium-stage-halftime-show/
 
 **Wales relishing chance to end England's Euro 2025: 'We get to spoil the party'**\
