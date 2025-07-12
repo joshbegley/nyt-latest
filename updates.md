@@ -1,3 +1,7 @@
+**Fed Defends Renovations as White House Widens Attacks on Central Bank**\
+`President Trump and his allies have accused the Federal Reserve chair, Jerome Powell, of misleading Congress in what some legal scholars worry is a prelude to seeking his removal.`\
+https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
+
 **MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
 `Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
 https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/

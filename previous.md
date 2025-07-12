@@ -1,3 +1,7 @@
+**Fed Defends Renovations as White House Widens Attacks on Central Bank**\
+`President Trump and his allies have accused the Federal Reserve chair, Jerome Powell, of misleading Congress in what some legal scholars worry is a prelude to seeking his removal.`\
+https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
+
 **MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
 `Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
 https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/us/judge-orders-los-angeles-police-to-stop-shooti
 **Why Yankees’ Max Fried won't pitch in the All-Star Game**\
 `Fried taking the mound in the first inning at Truist Park in Atlanta would have been a made-for-TV moment. Alas, it won't happen.`\
 https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all-star-game/
-
-**Man Had 14 Toucans Stashed in His Volkswagen Dashboard, U.S. Says**\
-`Carlos Abundez, 35, is facing federal smuggling charges after U.S. Customs and Border Protection officers made the discovery. The birds, a threatened species, were in stable condition.`\
-https://nytimes.com/2025/07/11/us/california-man-charged-toucan-smuggling.html
 
