@@ -1,3 +1,7 @@
+**Trump’s 30 percent tariff threat provokes anger and frustration in Europe.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
+
 **Tunnel Vision**\
 `You’ll need all of your powers of perception to get through Brandon Koppy’s latest Sunday puzzle.`\
 https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html

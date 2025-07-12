@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
 `Access via the North Rim, a lesser-used gateway to the national park, was closed as the White Sage fire continued to burn on Saturday.`\
 https://nytimes.com/2025/07/12/us/wildfires-grand-canyon-north-rim-closed.html
 
-**Trump’s percent tariff threat provokes anger and frustration in Europe.**\
+**Trump’s 30 percent tariff threat provokes anger and frustration in Europe.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
 
