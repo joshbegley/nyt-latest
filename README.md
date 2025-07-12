@@ -1,3 +1,11 @@
+**Andy Carroll joins sixth-tier Dagenham & Redbridge**\
+`Dagenham & Redbridge also announced on Saturday that the club had been bought by a consortium of prominent Qatari private investors.`\
+https://nytimes.com/athletic/6490443/2025/07/12/andy-carroll-transfer-dagenham-and-redbridge/
+
+**Latest tariffs apparently do not apply to cars.**\
+`Cars and trucks a`\
+https://nytimes.com/live/2025/07/12/us/trump-news/latest-tariffs-apparently-do-not-apply-to-cars
+
 **Flores Jr.: MLB’s All-Star week means everything to me, so let's celebrate together**\
 `For as long as I can remember, Major League Baseball’s annual All-Star week has been my favorite part of the year.`\
 https://nytimes.com/athletic/6489572/2025/07/12/mlb-2025-all-star-week-trip-atlanta/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010277461/rubio-visits-asia-in-shadow
 **Gianni Infantino talks up the Club World Cup at Trump Tower - 'We will make it better'**\
 `"We may have received some justified criticism" said FIFA's president as he declared "the golden era of global club football has started"`\
 https://nytimes.com/athletic/6490200/2025/07/12/gianni-infantino-club-world-cup-trump-tower/
-
-**Gyokeres to be fined, apologise to team-mates after missing Sporting return - president**\
-`Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching an agreement over a fee.`\
-https://nytimes.com/athletic/6490278/2025/07/12/viktor-gyokeres-arsenal-transfer-sporting-training/
-
-**Cazorla, 40, signs new Oviedo contract to make La Liga return**\
-`The former Arsenal playmaker will enter his third season with Oviedo, marking his return to La Liga after leaving Villarreal five years ago.`\
-https://nytimes.com/athletic/6490234/2025/07/12/santi-cazorla-oviedo-la-liga-return/
 
