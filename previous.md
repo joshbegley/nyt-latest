@@ -1,5 +1,5 @@
 **Crystal Palace, UEFA and multi-club ownership: How a Europa League dream died**\
-`Crystal Palace have been demoted from the Europa League to the Conference League. This is how it happened`\
+`Crystal Palace have been demoted from the Europa League to the Conference League. This is how it happened...`\
 https://nytimes.com/athletic/6447823/2025/07/12/crystal-palace-uefa-europa-parish-textor/
 
 **Spend an Hour in the Dark With Bats, Cats and Naked Mole Rats**\
