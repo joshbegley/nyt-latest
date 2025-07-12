@@ -3,7 +3,7 @@
 https://nytimes.com/2025/07/12/us/texas-camp-mystic-flood-plain-maps.html
 
 **Yankees' Max Fried leaves game after 3 innings with blister**\
-`The lefty went on the IL at the end of the 2023 season due to a recurring blister issue on his left index finger.`\
+`The lefty went on the injured list at the end of the 2023 season due to a recurring blister issue on his left index finger.`\
 https://nytimes.com/athletic/6490195/2025/07/12/max-fried-injury-blister-yankees/
 
 **Van de Donk to consider Netherlands retirement after Euro 2025**\
