@@ -1,5 +1,5 @@
 **This England-India Test is not Bazball as we know it but is no less intriguing for it**\
-`England have departed from their usual aggressive approach but this slow-burner of a match is captivating for different reasons`\
+`The home side have departed from their usual aggressive approach but this slow-burner of a match is captivating for different reasons`\
 https://nytimes.com/athletic/6490175/2025/07/12/england-india-lords-stokes-mccullum/
 
 **Trump Administration Fires More D.O.J. Employees Who Worked for Special Counsel**\
