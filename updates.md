@@ -1,3 +1,11 @@
+**Gyokeres to be fined, apologise to team-mates after missing Sporting return - president**\
+`Arsenal are working to land Gyokeres and have a five-year deal prepared, subject to the clubs reaching an agreement over a fee.`\
+https://nytimes.com/athletic/6490278/2025/07/12/viktor-gyokeres-arsenal-transfer-sporting-training/
+
+**Cucurella interview: Chelsea adaptation, a year of non-stop football and Club World Cup reflections**\
+`The defender discusses the pros and cons of this summer's tournament and looks back at his difficult early months at Stamford Bridge`\
+https://nytimes.com/athletic/6490211/2025/07/12/marc-cucurella-chelsea-interview/
+
 **Amanda Anisimova's Wimbledon final, and the agony and ecstasy of tennis**\
 `The American's crushing defeat to Iga Świątek was rendered more painful by the way tennis works, but it also allows her to rebound.`\
 https://nytimes.com/athletic/6490165/2025/07/12/tennis-wimbledon-final-anisimova-swiatek-bagel/
