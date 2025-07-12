@@ -1,3 +1,23 @@
+**Matt Olson replaces Ronald AcuÃ±a Jr. in Home Run Derby**\
+`AcuÃ±a still plans to start in Tuesday's All-Star Game, which the Atlanta Braves are hosting.`\
+https://nytimes.com/athletic/6489315/2025/07/11/home-run-derby-matt-olson-ronald-acuna-replacement/
+
+**After Texas Disaster, Trump Shifts His Tone on FEMA**\
+`Earlier this year, President Trump suggested he wanted to shutter the agency. Now, he says his aides âfixed it up in no time.â`\
+https://nytimes.com/2025/07/11/us/politics/trump-fema-texas-flood.html
+
+**House attorneys argue plan to vet NIL collective deals violates settlement**\
+`A new letter from the attorneys argues the power conferences' NIL oversight group should treat collectives the same as any other business.`\
+https://nytimes.com/athletic/6489243/2025/07/11/ncaa-house-settlement-nil-collective-deal-denial/
+
+**Why Yankeesâ Max Fried won't pitch in the All-Star Game**\
+`Fried taking the mound in the first inning at Truist Park in Atlanta would have been a made-for-TV moment. Alas, it won't happen.`\
+https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all-star-game/
+
+**FEMA Didnât Answer Thousands of Calls From Flood Survivors, Documents Show**\
+`Two days after deadly Texas floods, the agency struggled to answer calls from survivors because of call center contracts that werenât extended.`\
+https://nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html
+
 **Heat Warnings Issued for Parts of Eastern Canada**\
 `Warnings were issued for southern Ontario and southwest Quebec as hot and humid weather is expected to linger through Thursday.`\
 https://nytimes.com/2025/07/11/weather/canada-heat-warnings.html
