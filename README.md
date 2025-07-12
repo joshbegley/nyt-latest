@@ -2,7 +2,7 @@
 `Blatter has criticised his former employer's role in offering "no opposition" to the Middle East nation.`\
 https://nytimes.com/athletic/6490390/2025/07/12/saudi-arabia-fifa-sepp-blatter/
 
-**Twins’ Byron Buxton hits for the cycle with homer in final at-bat of 5-for-5 game**\
+**Twins’ Byron Buxton homers in final at-bat to complete cycle on bobblehead day**\
 `Buxton completed the feat on his bobblehead day. It's the first cycle at Target Field, which opened in 2010.`\
 https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobblehead-day/
 
