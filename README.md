@@ -1,3 +1,7 @@
+**Game, Set, Match: Iga Swiatek routs Amanda Anisimova to win first Wimbledon title**\
+`Świątek dispatched a nervous Anisimova to confirm her status as the best women's tennis player since Serena Williams.`\
+https://nytimes.com/athletic/6489699/2025/07/12/wimbledon-final-swiatek-anisimova-result-analysis/
+
 **Grok Chatbot Mirrored X Users’ ‘Extremist Views’ in Antisemitic Posts, xAI Says**\
 `Elon Musk’s artificial intelligence company said its Grok chatbot had also undergone a code update that caused it to share antisemitic messages this week.`\
 https://nytimes.com/2025/07/12/technology/x-ai-grok-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489786/2025/07/12/andre-onana-injury-manchester-un
 **Mark Vientos finds his confidence with go-ahead double to power Mets past Royalst**\
 `Vientos socked a slider to right field for a three-run double in the eighth inning, sparking a late rally in the Mets' 8-3 win Friday night.`\
 https://nytimes.com/athletic/6489589/2025/07/12/mark-vientos-offense-mets-royals/
-
-**Our Investigation of UnitedHealth Started With a Tip**\
-`A reporter was familiar with the insurance giant under scrutiny and the law firm known for its attack stance. Then one hired the other.`\
-https://nytimes.com/2025/07/12/insider/unitedhealth-tip.html
 
