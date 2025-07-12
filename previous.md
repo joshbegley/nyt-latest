@@ -1,3 +1,7 @@
+**How to watch Shohei Ohtani pitch for Dodgers on Saturday vs. rival Giants**\
+`Ohtani will make his final pitching appearance before the All-Star break and first-ever start on the mound against the Giants as a Dodger.`\
+https://nytimes.com/athletic/6489374/2025/07/12/dodgers-giants-ohtani-pitch-how-to-watch/
+
 **How to watch AEW All In: Going big in Texas**\
 `AEW’s boldest U.S. pay-per-view yet storms into Arlington with stadium-sized stakes and a full-throttle Saturday card.`\
 https://nytimes.com/athletic/6489276/2025/07/12/aew-all-in-texas-wrestling-how-to-watch-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/your-money/student-loan-limits.html
 **Is This a Talk Show or a Job Interview?**\
 `Plus, managing people twice your age.`\
 https://nytimes.com/2025/07/12/business/interviewer-skills-advice.html
-
-**David Corenswet Wants to Be a Superman You Can Count On**\
-`The actor has a man-out-of-time quality that makes him surprisingly like his character. But he is hyperaware of the present expectations riding on his performance.`\
-https://nytimes.com/2025/07/12/movies/david-corenswet-superman.html
 

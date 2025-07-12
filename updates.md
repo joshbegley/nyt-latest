@@ -1,3 +1,7 @@
+**How to watch Shohei Ohtani pitch for Dodgers on Saturday vs. rival Giants**\
+`Ohtani will make his final pitching appearance before the All-Star break and first-ever start on the mound against the Giants as a Dodger.`\
+https://nytimes.com/athletic/6489374/2025/07/12/dodgers-giants-ohtani-pitch-how-to-watch/
+
 **How to watch AEW All In: Going big in Texas**\
 `AEW’s boldest U.S. pay-per-view yet storms into Arlington with stadium-sized stakes and a full-throttle Saturday card.`\
 https://nytimes.com/athletic/6489276/2025/07/12/aew-all-in-texas-wrestling-how-to-watch-2025/

@@ -1,3 +1,7 @@
+**The Grody-Patinkin Family Is a Mess. People Love It.**\
+`The couple, successful artists married for 45 years, reflect on their newfound TikTok fame.`\
+https://nytimes.com/2025/07/12/magazine/mandy-patinkin-kathryn-grody-gideon-interview.html
+
 **How to watch Shohei Ohtani pitch for Dodgers on Saturday vs. rival Giants**\
 `Ohtani will make his final pitching appearance before the All-Star break and first-ever start on the mound against the Giants as a Dodger.`\
 https://nytimes.com/athletic/6489374/2025/07/12/dodgers-giants-ohtani-pitch-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/business/economy/trump-tariffs-deals.html
 **Parents and Graduate Students Have New Loan Limits. Who Will Fill the Gap?**\
 `The federal cap on the amounts people can borrow means some of them will fall short. That’s especially true for students in professional schools.`\
 https://nytimes.com/2025/07/12/your-money/student-loan-limits.html
-
-**Is This a Talk Show or a Job Interview?**\
-`Plus, managing people twice your age.`\
-https://nytimes.com/2025/07/12/business/interviewer-skills-advice.html
 
