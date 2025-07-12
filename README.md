@@ -1,3 +1,7 @@
+**Leverkusen complete deal to sign USMNT's Malik Tillman**\
+`Leverkusen were in the market for more creativity after the sale of Florian Wirtz to Liverpool in a club-record deal.`\
+https://nytimes.com/athletic/6445200/2025/07/12/malik-tillman-transfer-leverkusen/
+
 **Comfort Viewing**\
 `Rewatching old shows may seem like a waste of time, but a repeat viewing is rewarding in its own way.`\
 https://nytimes.com/2025/07/12/briefing/comfort-viewing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/crosswords/strands-sidekick-497.html
 **Connections Companion No. 763**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 13, 2025.`\
 https://nytimes.com/2025/07/12/crosswords/connections-companion-763.html
-
-**A Week of Searching for Texas Flood Victims**\
-`Text by Christopher Maag`\
-https://nytimes.com/card/2025/07/12/us/texas-floods-search
 
