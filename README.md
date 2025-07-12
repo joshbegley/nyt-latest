@@ -1,3 +1,7 @@
+**Carmakers brace for new tariffs in major manufacturing hubs.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/07/12/us/trump-news/carmakers-brace-for-new-tariffs-in-major-manufacturing-hubs
+
 **Arizona Resident Dies From Plague, Officials Say**\
 `The resident died from pneumonic plague, the first such death in Coconino County, Ariz., since 2007, the county said.`\
 https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489575/2025/07/12/dodgers-losing-streak-giants/
 **FIFA to stage Club World Cup final halftime show, Robbie Williams and Laura Pausini to perform pre-game**\
 `The musical act at halftime of Chelsea vs Paris Saint-Germain will be performed far away from the field of play`\
 https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-stadium-stage-halftime-show/
-
-**Wales relishing chance to end England's Euro 2025: 'We get to spoil the party'**\
-`Wales can prevent England from reaching the knockout stages should they take at least a draw from Sunday's final group stage fixture.`\
-https://nytimes.com/athletic/6489971/2025/07/12/wales-england-euro-2025/
 
