@@ -1,3 +1,7 @@
+**Spain are the best side in the Euro 2025 group stage. But that doesn't mean they'll win it**\
+`Spain’s 3-1 win over Italy in Bern confirmed their position as Group B winners and maintained their 100 per cent record at Euro 2025`\
+https://nytimes.com/athletic/6489282/2025/07/12/spain-euro-2025-group-stage-winners-italy/
+
 **Crystal Palace, UEFA and multi-club ownership: How a Europa League dream died**\
 `Crystal Palace have been demoted from the Europa League to the Conference League. This is how it happened...`\
 https://nytimes.com/athletic/6447823/2025/07/12/crystal-palace-uefa-europa-parish-textor/
