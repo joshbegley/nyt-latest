@@ -1,3 +1,7 @@
+**Twins’ Byron Buxton homers in final at-bat to complete cycle on bobblehead day**\
+`The All-Star put on a show with the Twins' first cycle since 2019 and the first-ever cycle at Target Field, which opened in 2010.`\
+https://nytimes.com/athletic/6490433/2025/07/12/byron-buxton-cycle-twins-bobblehead-day/
+
 **Trump’s 30 percent tariff threat provokes anger and frustration in Europe.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
