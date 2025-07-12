@@ -1,10 +1,14 @@
+**Arizona Resident Dies From Plague, Officials Say**\
+`The resident died from pneumonic plague, the first such death in Coconino County, Ariz., since 2007, the county said.`\
+https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
+
 **How to watch 2025 Wimbledon men’s final: Alcaraz, Sinner get a rematch**\
 `Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
 https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
 
 **Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
 `By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
-https://nytimes.com/live/2025/07/12/us/trump-news/trump-roie-odonnell-citizenship
+https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
 
 **ICE Set to Vastly Expand Its Reach With New Funds**\
 `After the passage of President Trump’s domestic policy law, the Department of Homeland Security is poised to hire thousands of new immigration agents and double detention space.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489381/2025/07/12/club-world-cup-final-metlife-sta
 **Wales relishing chance to end England's Euro 2025: 'We get to spoil the party'**\
 `Wales can prevent England from reaching the knockout stages should they take at least a draw from Sunday's final group stage fixture.`\
 https://nytimes.com/athletic/6489971/2025/07/12/wales-england-euro-2025/
-
-**Ndamukong Suh formally announces NFL retirement in emotional farewell**\
-`Suh last played with the Eagles in 2022 during his 13-year NFL career as one of the league’s most physically imposing defenders.`\
-https://nytimes.com/athletic/6489892/2025/07/12/ndamukong-suh-retirement-nfl-lions/
 

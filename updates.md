@@ -1,3 +1,11 @@
+**Arizona Resident Dies From Plague, Officials Say**\
+`The resident died from pneumonic plague, the first such death in Coconino County, Ariz., since 2007, the county said.`\
+https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
+
+**Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
+`By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
+https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
+
 **How to watch 2025 Wimbledon men’s final: Alcaraz, Sinner get a rematch**\
 `Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
 https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/

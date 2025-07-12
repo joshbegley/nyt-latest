@@ -6,8 +6,8 @@ https://nytimes.com/2025/07/12/us/pneumonic-plague-arizona-death.html
 `Carlos Alcaraz is slightly favored against Jannik Sinner in the Wimbledon final, a rematch from an epic French Open final just a month ago.`\
 https://nytimes.com/athletic/6489015/2025/07/12/wimbledon-mens-final-alcaraz-sinner-how-to-watch-odds/
 
-**Trump threatens to strip Rosie O’Donnell of U.S. citizenship.**\
-`By Ashley Ahn, Shawn McCreesh and Hamed Aleaziz`\
+**Trump Threatens to Strip Rosie O’Donnell of U.S. Citizenship**\
+`President Trump called Ms. O’Donnell, who has feuded with him since before he became president, a “threat to humanity.”`\
 https://nytimes.com/2025/07/12/us/politics/trump-rosie-odonnell-citizenship.html
 
 **ICE Set to Vastly Expand Its Reach With New Funds**\
