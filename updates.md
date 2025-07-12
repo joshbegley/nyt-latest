@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, July 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/12/todays-new-york-times
+
 **Taylor beats Serrano in trilogy, but women's boxing is the ultimate victor**\
 `“I just know I can’t fight Amanda Serrano again, she punches too hard,” Taylor said after as the women shared a laugh and a handshake.`\
 https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
