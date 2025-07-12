@@ -1,3 +1,23 @@
+**Convention Challenger**\
+`You’ll need to put on your thinking cap to get through Katie Hoody’s stumper-filled puzzle.`\
+https://nytimes.com/2025/07/11/crosswords/daily-puzzle-2025-07-12.html
+
+**Why Myles Turner is confident the Bucks are a perfect new home**\
+`In their pursuit of Turner, the Bucks left no doubt about their eagerness to compete next season.`\
+https://nytimes.com/athletic/6489253/2025/07/11/myles-turner-bucks-introductory-press-conference/
+
+**Cody Bellinger gets revenge with 3 homers against Cubs in first game against former team**\
+`The Cubs sent Bellinger and cash to the Yankees for right-hander Cody Poteet in December.`\
+https://nytimes.com/athletic/6489395/2025/07/11/cody-bellinger-three-home-runs-yankees-cubs/
+
+**Google Hires A.I. Leaders From a Start-Up Courted by OpenAI**\
+`In a $2.4 billion deal, Google recruited the chief executive and a co-founder of Windsurf, which OpenAI had been in talks to buy, as the battle to dominate artificial intelligence escalates.`\
+https://nytimes.com/2025/07/11/technology/google-windsurf-openai.html
+
+**A New York County to Allow Officers to Wear Masks When Working With ICE**\
+`Nassau County, which recently barred residents from wearing masks in many circumstances, will permit police officers to wear them during immigration enforcement and other actions.`\
+https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
+
 **Columbia and Trump Near a Deal, With School Possibly Paying Millions**\
 `In return, the White House would restore some of the $400 million in federal research funding it canceled, according to people familiar with ongoing discussions.`\
 https://nytimes.com/2025/07/11/nyregion/columbia-university-trump-deal-antisemitism.html
