@@ -1,3 +1,7 @@
+**Malik Tillman and why Bayer Leverkusen have signed the USMNT midfielder**\
+`From Bayern's youth team to maturing at Rangers to winning titles at PSV - the 23-year-old American's rise has been rapid`\
+https://nytimes.com/athletic/6486104/2025/07/12/malik-tillman-leverkusen-transfer-usmnt/
+
 **Leverkusen complete deal to sign USMNT's Malik Tillman**\
 `Leverkusen were in the market for more creativity after the sale of Florian Wirtz to Liverpool in a club-record deal.`\
 https://nytimes.com/athletic/6445200/2025/07/12/malik-tillman-transfer-leverkusen/
