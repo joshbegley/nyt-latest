@@ -3,7 +3,7 @@
 https://nytimes.com/issue/todayspaper/2025/07/12/todays-new-york-times
 
 **Taylor beats Serrano in trilogy, but women's boxing was the ultimate victor**\
-`“I just know I can’t fight Amanda Serrano again, she punches too hard,” Taylor said after as the women shared a laugh and a handshake.`\
+`"I just know I can't fight Amanda Serrano again. She punches too hard," Taylor said as the women shared a laugh and a handshake.`\
 https://nytimes.com/athletic/6489506/2025/07/12/katie-taylor-amanda-serrano-result-womens-boxing/
 
 **Ceddanne Rafaela crushes walk-off homer to continue Red Sox's hot streak**\
