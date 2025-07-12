@@ -1,3 +1,7 @@
+**New York County to Allow Officers to Wear Masks When Working With ICE**\
+`Nassau County, which recently barred residents from wearing masks in many circumstances, will permit police officers to wear them during immigration enforcement and other actions.`\
+https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
+
 **MLB All-Star Game rosters get several replacements as Zack Wheeler and other aces bow out**\
 `Max Fried, Garrett Crochet, Jacob deGrom and Julio Rodríguez were among several players who had their spots filled by others.`\
 https://nytimes.com/athletic/6489270/2025/07/11/mlb-all-star-game-roster-replacements/

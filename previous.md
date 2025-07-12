@@ -1,3 +1,7 @@
+**New York County to Allow Officers to Wear Masks When Working With ICE**\
+`Nassau County, which recently barred residents from wearing masks in many circumstances, will permit police officers to wear them during immigration enforcement and other actions.`\
+https://nytimes.com/2025/07/11/nyregion/nassau-county-police-officers-ice-masks.html
+
 **Fed Defends Renovations as White House Widens Attacks on Central Bank**\
 `President Trump and his allies have accused the Federal Reserve chair, Jerome Powell, of misleading Congress in what some legal scholars worry is a prelude to seeking his removal.`\
 https://nytimes.com/2025/07/11/business/federal-reserve-renovations-powell-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/11/nyregion/philip-murphy-new-jersey-alina-habba-inv
 **Judge Orders Los Angeles Police to Stop Shooting Projectiles at Journalists**\
 `Los Angeles Police Department officers fired foam projectiles and flash-bang devices at reporters and photographers who were covering the immigration protests in June.`\
 https://nytimes.com/2025/07/11/us/judge-orders-los-angeles-police-to-stop-shooting-projectiles-at-journalists.html
-
-**Why Yankees’ Max Fried won't pitch in the All-Star Game**\
-`Fried taking the mound in the first inning at Truist Park in Atlanta would have been a made-for-TV moment. Alas, it won't happen.`\
-https://nytimes.com/athletic/6489292/2025/07/11/yankees-max-fried-wont-pitch-all-star-game/
 
