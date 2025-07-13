@@ -1,5 +1,9 @@
+**Browns rookie RB Quinshon Judkins arrested on domestic violence, battery charge**\
+`This is the second straight year a Browns second-round draft pick has been arrested in connection with domestic violence before the season.`\
+https://nytimes.com/athletic/6490608/2025/07/12/browns-quinshon-judkins-arrested-domestic-violence-charge/
+
 **Lionel Messi extends MLS record with fifth straight multi-goal game**\
-`Lionel Messi scored both of Inter Miami's goals in a 2-1 victory over Nashville SC, extending a record that he set Wednesday.`\
+`Star scored both of Inter Miami's goals in a 2-1 victory over Nashville SC, extending a record that he set Wednesday.`\
 https://nytimes.com/athletic/6490666/2025/07/12/lionel-messi-mls-record-5-straight-multi-goal-games/
 
 **Cole Anthony to accept buyout from Grizzlies, plans to sign with Bucks: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489972/2025/07/12/paul-skenes-tarik-skubal-mlb-all
 **Tunnel Vision**\
 `You’ll need all of your powers of perception to get through Brandon Koppy’s latest Sunday puzzle.`\
 https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
-
-**A Grand Canyon Access Point Is Closed as 19,000 Acres Burn Nearby**\
-`Access via the North Rim, a lesser-used gateway to the national park, was closed as the White Sage fire continued to burn on Saturday.`\
-https://nytimes.com/2025/07/12/us/wildfires-grand-canyon-north-rim-closed.html
 
