@@ -1,3 +1,7 @@
+**Heavy Rain Pounds Texas Region Devastated by Floods, Bringing New Threat**\
+`Several flood warnings and watches were issued across Central Texas on Sunday, including in the areas inundated by deadly flooding last week.`\
+https://nytimes.com/2025/07/13/weather/texas-rain-flooding.html
+
 **Israeli Strike in Gaza City Kills at Least 11 People, Officials Say**\
 `Gaza’s Civil Defense, an emergency rescue group, said that dozens were also wounded when Israel’s military struck a crowded downtown junction.`\
 https://nytimes.com/2025/07/13/world/middleeast/gaza-israel-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488157/2025/07/13/deion-sanders-ucf-college-report
 **American teenager Quincy Wilson breaks under-18 400m record for fourth time**\
 `The 17-year-old became the youngest male track and field Olympic gold medallist in history after competing in the 4x400m in Paris last year`\
 https://nytimes.com/athletic/6490805/2025/07/13/teenager-quincy-wilson-under-18-400m-worlds-best/
-
-**France Announces Agreement to Give New Caledonia More Autonomy**\
-`There were violent protests against French rule in the semiautonomous Pacific territory last year. The agreement would create a new state within the French Republic.`\
-https://nytimes.com/2025/07/13/world/asia/france-new-caledonia-agreement.html
 
