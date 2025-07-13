@@ -1,3 +1,7 @@
+**Texans Offer a Hand and Open Their Hearts as Flood Death Toll Grows**\
+`Mourners paid tribute at funerals and memorial services on Saturday as the number of fatalities rose to nearly 130.`\
+https://nytimes.com/2025/07/12/us/texas-flood-victims-funerals.html
+
 **Scouting notes on the Futures Game standouts and underperformers**\
 `Notes on the players who stood out in Saturday's annual All-Star Futures Game.`\
 https://nytimes.com/athletic/6490692/2025/07/12/futures-game-josue-de-paula-scouting/
