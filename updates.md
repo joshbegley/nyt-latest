@@ -1,3 +1,15 @@
+**Penguins acquire Arturs Silovs from Canucks for Chase Stillman, draft pick**\
+`Silovs recently backstopped AHL Abbotsford to a 2025 Calder Cup championship.`\
+https://nytimes.com/athletic/6491503/2025/07/13/penguins-canucks-arturs-silovs-trade/
+
+**Monday Briefing: America’s Brain Drain and the World**\
+`Plus, Jannik Sinner wins Wimbledon.`\
+https://nytimes.com/2025/07/13/briefing/harvard-science-brain-drain-us-rare-earths-eu-trade.html
+
+**The Briefing: England 6 Wales 1: Lionesses into knockouts, Sweden await and debutants go home**\
+`Analysis of the key talking points as England thrash Wales to reach the Euro 2025 quarter-finals`\
+https://nytimes.com/athletic/6482568/2025/07/13/england-wales-euros-analysis/
+
 **NFLPA leadership backs Lloyd Howell amid concerns of conflict of interest**\
 `Howell joined The Carlyle Group in March 2023 to work in the firm’s aerospace and defense divisions, sources told The Athletic.`\
 https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group/
