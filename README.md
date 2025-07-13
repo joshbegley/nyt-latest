@@ -1,3 +1,19 @@
+**Angels, closer Kenley Jansen on 'mission' to avoid trade deadline sell-off, but is that prudent?**\
+`If it's in the mix, even just a little bit, this team, and its decision-makers, might be inclined to go for it.`\
+https://nytimes.com/athletic/6490680/2025/07/13/angels-kenley-jansen-trade-deadline/
+
+**Trump Administration Live Updates: President Backs Bondi and Tells Supporters Not to ‘Waste Time’ on Epstein**\
+``\
+https://nytimes.com/live/2025/07/13/us/trump-news
+
+**Is It Time to Stop Snubbing Your Right-Wing Family?**\
+`Ostracism might just hurt the ostracizer more than the ostracizee.`\
+https://nytimes.com/2025/07/13/opinion/family-politics-arguments-right-wing.html
+
+**The Arguments for More (or Fewer) People**\
+`Readers discuss a guest essay about birthrates and the world’s population. Also: A citizens’ celebration for America’s 250th anniversary.`\
+https://nytimes.com/2025/07/13/opinion/population-birthrates.html
+
 **Heavy Rain Pounds Texas Region Devastated by Floods, Bringing New Threat**\
 `Several flood warnings and watches were issued across Central Texas on Sunday, including in the areas inundated by deadly flooding last week.`\
 https://nytimes.com/2025/07/13/weather/texas-rain-flooding.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6490643/2025/07/13/mets-playoff-chase-ronny-maurici
 **A free-agent-to-be, Kyle Tucker is making the most of his year with the Cubs**\
 `In giving up 14 potential years of club control, the Cubs got one season to maximize Tucker’s talents and make their pitch. `\
 https://nytimes.com/athletic/6490495/2025/07/13/chicago-cubs-kyle-tucker-2025-all-star-game/
-
-**'We're making the playoffs': Brandon Ingram is eager to remind the league of his skills**\
-`After a lengthy absence caused by an ankle injury, the All-Star can finally get to know his Raptors teammates on the court.`\
-https://nytimes.com/athletic/6490525/2025/07/13/brandon-ingram-raptors-injury-return-nba/
-
-**Clockwatching: Why Wimbledon changed one of its final traditions this year**\
-`Iga Świątek's 6-0 6-0 dismantling of Amanda Anisimova in Saturday's women's final began after 4 p.m. local time.`\
-https://nytimes.com/athletic/6490799/2025/07/13/wimbledon-final-time-start-why/
-
-**With one question, Deion Sanders gave a student reporter a ‘life-changing moment’**\
-`How inspirational words from Sanders helped inspire a student reporter to continue pursuing his dreams, despite the challenges he's faced.`\
-https://nytimes.com/athletic/6488157/2025/07/13/deion-sanders-ucf-college-reporter-colorado/
-
-**American teenager Quincy Wilson breaks under-18 400m record for fourth time**\
-`The 17-year-old became the youngest male track and field Olympic gold medallist in history after competing in the 4x400m in Paris last year`\
-https://nytimes.com/athletic/6490805/2025/07/13/teenager-quincy-wilson-under-18-400m-worlds-best/
 
