@@ -1,3 +1,7 @@
+**Garrett Crochet's complete-game shutout caps terrific first half for 'potential Cy Young'**\
+`The 26-year-old ace left-hander dazzled Saturday, pitching on a tightrope as he completed a 1-0 shutout of Tampa Bay Rays in 100 pitches.`\
+https://nytimes.com/athletic/6490587/2025/07/12/red-sox-garrett-crochet-complete-game-shutout/
+
 **Trump Pleads With Followers to Back Bondi in Dispute Over Epstein Inquiry**\
 `In a long social media post, President Trump said that Attorney General Pam Bondi was doing a “FANTASTIC JOB,” and told his followers to “not waste Time and Energy” on the Jeffrey Epstein case.`\
 https://nytimes.com/2025/07/12/us/politics/trump-bondi-epstein-bongino.html
