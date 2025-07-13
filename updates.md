@@ -1,3 +1,23 @@
+**Red Sox's top first-half contributors as they ride 10-game winning streak into break**\
+`Boston is only the fourth team to enter the All-Star break on a winning streak of 10-plus games. Here's who got them here.`\
+https://nytimes.com/athletic/6491618/2025/07/13/red-sox-top-contributors-first-half-all-star-break/
+
+**Chelsea 3 PSG 0 - Palmer’s brilliance, President Trump, $100m prize money - and Luis Enrique strikes Joao Pedro**\
+`Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
+https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
+
+**Monday Briefing: America’s Brain Drain and the World**\
+`Plus, Jannik Sinner wins Wimbledon.`\
+https://nytimes.com/2025/07/13/briefing/harvard-science-brain-drain-us-rare-earths-eu-trade.html
+
+**NFLPA leadership backs Lloyd Howell amid concerns of conflict of interest**\
+`Howell joined The Carlyle Group in March 2023 to work in the firm’s aerospace and defense divisions, sources told The Athletic.`\
+https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group/
+
+**Noem Defends FEMA Response to Texas Floods**\
+`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
+https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
+
 **Carlos Alcaraz achieves yet another tennis first: Losing a Grand Slam final**\
 `Alcaraz had never lost a Grand Slam final before Sinner's Wimbledon triumph. It is a test of the short memory that defines elite athletes.`\
 https://nytimes.com/athletic/6491628/2025/07/13/tennis-carlos-alcaraz-grand-slam-final-defeat/
