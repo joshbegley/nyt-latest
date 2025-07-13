@@ -1,3 +1,7 @@
+**‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
+`German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
+https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
+
 **Tour de France stage nine: Van der Poel's epic breakaway, Merlier takes second win, will Almeida abandon impact Pogacar?**\
 `Analysis of the ninth stage of the 2025 Tour de France, which took the peloton from Chinon to Chateauroux`\
 https://nytimes.com/athletic/6490897/2025/07/13/tour-de-france-stage-nine-analysis/
