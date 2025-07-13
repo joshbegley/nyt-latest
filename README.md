@@ -1,3 +1,7 @@
+**Tour de France stage nine: Van der Poel's epic breakaway, Merlier takes second win, will Almeida abandon impact Pogacar?**\
+`Analysis of the ninth stage of the 2025 Tour de France, which took the peloton from Chinon to Chateauroux`\
+https://nytimes.com/athletic/6490897/2025/07/13/tour-de-france-stage-nine-analysis/
+
 **Blue Jackets Sunday Gathering: Search for goaltending depth pieces is on**\
 `The Blue Jackets are looking for a goaltender who has AHL experience but also doesn't look out of place in the NHL.`\
 https://nytimes.com/athletic/6489375/2025/07/13/blue-jackets-goaltending-depth/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/dining/halloumi-recipes-for-summer.html
 **Evian Championship: Grace Kim shocks, beating Jeeno Thitikul in playoff**\
 `Kim, 24, eagled the final hole to force a playoff then hit a miracle shot on the first playoff hole.`\
 https://nytimes.com/athletic/6490987/2025/07/13/evian-championship-grace-kim-jeeno-thitikul-playoff/
-
-**Elisa Longo Borghini wins Giro D'Italia for the second year in a row**\
-`The UAE Team ADQ rider took the overall race lead on the penultimate stage to defend her GC title`\
-https://nytimes.com/athletic/6490974/2025/07/13/elisa-longo-borghini-wins-giro-ditalia-for-the-second-year-in-a-row/
 
