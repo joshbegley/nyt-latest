@@ -1,8 +1,12 @@
+**The NATO leader will meet with Trump and other top officials in Washington this week.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/07/13/us/trump-news/the-nato-leader-will-meet-with-trump-and-other-top-officials-in-washington-this-week
+
 **Arsenal in process of completing deal for Gyokeres**\
 `The 27-year-old is in-demand after scoring 54 goals in 52 games last season for Sporting.`\
 https://nytimes.com/athletic/6476054/2025/07/13/arsenal-viktor-gyokeres-transfer/
 
-**‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
+**âNazi Creekâ in Alaska Gets a New Name After More Than 70 Years**\
 `German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
 https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
 
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6489375/2025/07/13/blue-jackets-goaltending-depth/
 `While all other confederations have been represented at some stage by their presidents, Ceferin has stayed away from the competition.`\
 https://nytimes.com/athletic/6490913/2025/07/13/club-world-cup-uefa-ceferin/
 
-**With $217 Million in Ticket Sales, ‘Superman’ Helps Save Warner Bros., Too**\
+**With $217 Million in Ticket Sales, âSupermanâ Helps Save Warner Bros., Too**\
 `The film is the latest part of a startling turnaround for the studio, which has now released five consecutive hits.`\
 https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.html
 
@@ -26,15 +30,11 @@ https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.ht
 `Attorney General Pam Bondi said she had ordered the dismissal of charges against a Utah plastic surgeon accused of selling bogus vaccination cards for $50 each.`\
 https://nytimes.com/2025/07/13/us/politics/utah-doctor-covid-vaccines.html
 
-**How Trump’s Latest Tariff Threat Risks Deeper Damage to Europe’s Economy**\
+**How Trumpâs Latest Tariff Threat Risks Deeper Damage to Europeâs Economy**\
 `Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
 https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
 
 **Charles Reinhart, Who Helped Mainstream Modern Dance, Dies at 94**\
 `As the director of the American Dance Festival, he oversaw the growth of diverse dance traditions, both in the United States and abroad.`\
 https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
-
-**Why do so many footballers covet the No 10 shirt?**\
-`Being a team's No 10 clearly means something in branding terms, but in football ones it is even more important`\
-https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-10-shirt/
 
