@@ -1,3 +1,7 @@
+**Cole Anthony to accept buyout from Grizzlies, plans to sign with Bucks: Source**\
+`Anthony can help fill a roster need in Milwaukee following the Achilles injury to Damian Lillard, who was later waived.`\
+https://nytimes.com/athletic/6490632/2025/07/12/cole-anthony-grizzlies-buyout-bucks-free-agency/
+
 **Garrett Crochet's complete-game shutout caps terrific first half for 'potential Cy Young'**\
 `The 26-year-old ace left-hander dazzled Saturday, pitching on a tightrope as he completed a 1-0 shutout of the Rays in 100 pitches.`\
 https://nytimes.com/athletic/6490587/2025/07/12/red-sox-garrett-crochet-complete-game-shutout/
