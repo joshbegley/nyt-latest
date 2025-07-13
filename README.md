@@ -1,3 +1,11 @@
+**Why do so many footballers covet the No 10 shirt?**\
+`Being a team's No 10 clearly means something in branding terms, but in football ones it is even more important`\
+https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-10-shirt/
+
+**Get Some Halloumi and Get Griddlin’**\
+`The cheese gets crisp and browned (and deeply melty within), and plays beautifully with the corn and tomatoes in this five-star Melissa Clark recipe.`\
+https://nytimes.com/2025/07/13/dining/halloumi-recipes-for-summer.html
+
 **Evian Championship: Grace Kim shocks, beating Jeeno Thitikul in playoff**\
 `Kim, 24, eagled the final hole to force a playoff then hit a miracle shot on the first playoff hole.`\
 https://nytimes.com/athletic/6490987/2025/07/13/evian-championship-grace-kim-jeeno-thitikul-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6490751/2025/07/13/wimbledon-queue-guide-rules/
 **Angels, closer Kenley Jansen on 'mission' to avoid trade deadline sell-off, but is that prudent?**\
 `If it's in the mix, even just a little bit, this team, and its decision-makers, might be inclined to go for it.`\
 https://nytimes.com/athletic/6490680/2025/07/13/angels-kenley-jansen-trade-deadline/
-
-**Trump Administration Live Updates: President Backs Bondi and Tells Supporters Not to ‘Waste Time’ on Epstein**\
-``\
-https://nytimes.com/live/2025/07/13/us/trump-news
-
-**Is It Time to Stop Snubbing Your Right-Wing Family?**\
-`Ostracism might just hurt the ostracizer more than the ostracizee.`\
-https://nytimes.com/2025/07/13/opinion/family-politics-arguments-right-wing.html
 
