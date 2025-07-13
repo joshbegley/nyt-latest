@@ -1,3 +1,15 @@
+**‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
+`German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
+https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
+
+**With $217 Million in Ticket Sales, ‘Superman’ Helps Save Warner Bros., Too**\
+`The film is the latest part of a startling turnaround for the studio, which has now released five consecutive hits.`\
+https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.html
+
+**How Trump’s Latest Tariff Threat Risks Deeper Damage to Europe’s Economy**\
+`Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
+https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
+
 **The NATO leader will meet with Trump and other top officials in Washington this week.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/07/13/us/trump-news/the-nato-leader-will-meet-with-trump-and-other-top-officials-in-washington-this-week
