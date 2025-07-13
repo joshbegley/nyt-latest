@@ -1,40 +1,40 @@
-**Club World Cup final odds and prediction: PSG heavily favoured against Chelsea**\
-`PSG have cruised through much of the Club World Cup and are heavily favoured to beat Chelsea in Sunday's final.`\
-https://nytimes.com/athletic/6486422/2025/07/13/psg-chelsea-club-world-cup-final-odds-prediction/
+**American Allies Want to Redraw the World’s Trade Map, Minus the U.S.**\
+`Facing growing chaos, the European Union and numerous other countries are seeking to forge a global trading nexus that is less vulnerable to American tariffs.`\
+https://nytimes.com/2025/07/13/world/europe/trump-tariffs-trade-europe-us.html
 
-**For Families of Air India Crash Victims, Report Brings No Closure**\
-`A preliminary assessment in last monthâs disaster focusing on fuel being cut to both engines only deepened the mystery for people grieving loved ones.`\
-https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
+**What to Know About the Secret Service, a Year After It Failed to Protect Trump**\
+`The agency withstood criticism and a reckoning after a lone assassin grazed Donald J. Trump on the campaign trail. Today, recruiting is up.`\
+https://nytimes.com/2025/07/13/us/politics/secret-service-trump-shooting.html
 
-**England vs Wales Euro 2025 odds, prediction: Lionesses in position to advance**\
-`England's Euro 2025 group finale is against neighbouring Wales. The Lionesses are heavily favoured to win and advance.`\
-https://nytimes.com/athletic/6489140/2025/07/13/england-wales-euro-2025-odds-prediction/
+**Tariffs on Brazil Could Leave Coffee Drinkers With a Headache**\
+`Trump’s pledge to place a 50 percent tariff on all imports from the South American nation will drive up the prices of coffee — and orange juice.`\
+https://nytimes.com/2025/07/13/business/brazil-tariffs-coffee-prices.html
 
-**New York City Set to Expand Minimum Pay Law for Delivery Workers**\
-`The City Council is expected to pass a package of bills to include nearly 20,000 grocery delivery workers in legislation that improved working conditions for food delivery workers.`\
-https://nytimes.com/2025/07/13/nyregion/instacart-doordash-shipt-minimum-pay.html
+**‘We’re Going to Rebuild.’ A Hard-Hit Texas Town Looks to the Future.**\
+`Hunt, Texas, a small town where the north and south forks of the Guadalupe River meet, is grieving the July 4 flood. But even as the search for the missing continues, rebuilding has begun.`\
+https://nytimes.com/2025/07/13/us/hunt-texas-flood.html
 
-**Climate Law Could Shape the Race for New York Cityâs Next Mayor**\
-`Zohran Mamdani, the Democratic nominee, has vowed to strictly enforce the measure, Local Law 97, which calls for potentially expensive upgrades to buildings to curb greenhouse emissions.`\
-https://nytimes.com/2025/07/13/nyregion/zohran-mamdani-climate-law-97.html
+**Under Attack by Trump’s Tariffs, Asian Countries Seek Out Better Friends**\
+`Most nations are still negotiating in hopes of avoiding punitive import taxes. At the same time, they’re looking for trading partners as a way around the United States.`\
+https://nytimes.com/2025/07/13/business/economy/trump-tariffs-trade-deals.html
 
-**âI Noticed a Building Handyman Washing Down the Sidewalkâ**\
-`Cleaning up on the go, spotting dropped cash in Brooklyn and more reader tales of New York City in this weekâs Metropolitan Diary.`\
-https://nytimes.com/2025/07/13/nyregion/metropolitan-diary.html
+**Trump Administration Poised to Ramp Up Deportations to Distant Countries**\
+`Eight men sent by the United States to South Sudan could presage a new approach to Trump-era deportations, even as critics say the practice could amount to “enforced disappearance.”`\
+https://nytimes.com/2025/07/13/us/south-sudan-third-country-deportations.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on todayâs puzzle? We can help.`\
-https://nytimes.com/2025/07/13/crosswords/spelling-bee-forum.html
+**How Trump’s crackdown on universities is affecting the world**\
+`Mr. Trump’s ideological war on universities is putting students, professors and scientists under pressure. That could undermine the global dominance that American science has enjoyed for decades.`\
+https://nytimes.com/interactive/2025/07/13/us/2025-06-06-int-science-reaction-index.html
 
-**Jose Altuve embraces the culture he has cultivated, watches as Astros beat Rangers**\
-`Saturday was the 11th time Espada removed Altuve from left field in the ninth inning with a lead. "You have to rely on everybody."`\
-https://nytimes.com/athletic/6490738/2025/07/13/astros-rangers-jose-altuve-watches/
+**Trump Is Gutting Weather Science and Reducing Disaster Response**\
+`As a warming planet delivers more extreme weather, experts warn that the Trump administration is dismantling the government’s disaster capabilities.`\
+https://nytimes.com/2025/07/13/climate/floods-trump-cuts-disaster-preparedness-fema.html
 
-**The New York Times in Print for Sunday, July 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
+**Why Trump’s Abraham Accords Have Not Meant Mideast Peace**\
+`The 2020 agreements addressed diplomacy and commerce, not conflicts or the Palestinians. Predictions that the deals would produce regional peace were baseless, analysts say.`\
+https://nytimes.com/2025/07/13/world/middleeast/abraham-accords-peace-trump-israel-netanyahu.html
 
-**âHeâs Nuts, Your Trump.â Canada Unites Against America.**\
-`Americaâs growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United Statesâ standing in the world.`\
-https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
+**How the Democrats Lost on Transgender Issues**\
+`Charles Homans, a New York Times reporter who covers national politics, describes how the Democrats’ dilemma with transgender issues reflects their broader struggles after losses in 2024.`\
+https://nytimes.com/video/us/politics/100000010272916/how-the-democrats-lost-on-transgender-issues.html
 
