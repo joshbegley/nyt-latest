@@ -1,3 +1,7 @@
+**Jose Altuve embraces the culture he has cultivated, watches as Astros beat Rangers**\
+`Saturday was the 11th time Espada removed Altuve from left field in the ninth inning with a lead. "You have to rely on everybody."`\
+https://nytimes.com/athletic/6490738/2025/07/13/astros-rangers-jose-altuve-watches/
+
 **The New York Times in Print for Sunday, July 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490179/2025/07/13/nottingham-forest-elanga-gibbs-w
 **How Brazil won the 1962 World Cup: With Garrincha coming to the fore after Pele injury**\
 `The 1962 tournament, hosted in Chile, is up there with the least fabled editions of the tournament - but why?`\
 https://nytimes.com/athletic/6470922/2025/07/13/how-brazil-won-the-1962-world-cup-with-garrincha-coming-to-the-fore-after-pele-injury/
-
-**Leeds are building a team of giants to battle relegation. Can it work?**\
-`Three of Daniel Farke's four new arrivals so far are six-footers, the other is tall for his position. The promoted club clearly have a plan`\
-https://nytimes.com/athletic/6489373/2025/07/13/leeds-united-giant-transfer-analysis-premier-league/
 

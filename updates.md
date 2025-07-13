@@ -1,3 +1,7 @@
+**Jose Altuve embraces the culture he has cultivated, watches as Astros beat Rangers**\
+`Saturday was the 11th time Espada removed Altuve from left field in the ninth inning with a lead. "You have to rely on everybody."`\
+https://nytimes.com/athletic/6490738/2025/07/13/astros-rangers-jose-altuve-watches/
+
 **The New York Times in Print for Sunday, July 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
