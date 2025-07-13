@@ -15,11 +15,11 @@ https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
 
 **South African President Opens Corruption Inquiry of Police Leader**\
-`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the countryâs embattled government.`\
+`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the country’s embattled government.`\
 https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
 
 **Children Killed in Israeli Strike on Water Point in Gaza, Officials Say**\
-`The Israeli military said that a âtechnical errorâ had caused a munition â intended for an Islamic Jihad militant â to land dozens of meters from its target.`\
+`The Israeli military said that a “technical error” had caused a munition — intended for an Islamic Jihad militant — to land dozens of meters from its target.`\
 https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza-war.html
 
 **State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say**\

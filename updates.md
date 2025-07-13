@@ -1,3 +1,11 @@
+**South African President Opens Corruption Inquiry of Police Leader**\
+`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the countryâs embattled government.`\
+https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
+
+**Children Killed in Israeli Strike on Water Point in Gaza, Officials Say**\
+`The Israeli military said that a âtechnical errorâ had caused a munition â intended for an Islamic Jihad militant â to land dozens of meters from its target.`\
+https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza-war.html
+
 **Tracking Tropical Storm Nari**\
 `See the likely path and wind arrival times for Nari`\
 https://nytimes.com/interactive/2025/07/13/weather/nari-map-path-tracker.html
