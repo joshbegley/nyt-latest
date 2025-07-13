@@ -1,3 +1,7 @@
+**Lionel Messi extends MLS record with fifth straight multi-goal game**\
+`Lionel Messi scored both of Inter Miami's goals in a 2-1 victory over Nashville SC, extending a record that he set Wednesday.`\
+https://nytimes.com/athletic/6490666/2025/07/12/lionel-messi-mls-record-5-straight-multi-goal-games/
+
 **Trump Pleads With Followers to Back Bondi in Dispute Over Epstein Inquiry**\
 `In a long social media post, President Trump praised Attorney General Pam Bondi and told his followers to “not waste Time and Energy” on the Jeffrey Epstein case.`\
 https://nytimes.com/2025/07/12/us/politics/trump-bondi-epstein-bongino.html
