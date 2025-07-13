@@ -1,3 +1,7 @@
+**Lionel Messi extends MLS record with fifth straight multi-goal game**\
+`Lionel Messi scored both of Inter Miami's goals in a 2-1 victory over Nashville SC, extending a record that he set Wednesday.`\
+https://nytimes.com/athletic/6490666/2025/07/12/lionel-messi-mls-record-5-straight-multi-goal-games/
+
 **Cole Anthony to accept buyout from Grizzlies, plans to sign with Bucks: Source**\
 `Anthony can help fill a roster need in Milwaukee after the Achilles injury to Damian Lillard, who was later waived.`\
 https://nytimes.com/athletic/6490632/2025/07/12/cole-anthony-grizzlies-buyout-bucks-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
 **A Grand Canyon Access Point Is Closed as 19,000 Acres Burn Nearby**\
 `Access via the North Rim, a lesser-used gateway to the national park, was closed as the White Sage fire continued to burn on Saturday.`\
 https://nytimes.com/2025/07/12/us/wildfires-grand-canyon-north-rim-closed.html
-
-**Trump’s 30 percent tariff threat provokes anger and frustration in Europe.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
 
