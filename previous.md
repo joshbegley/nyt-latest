@@ -1,6 +1,6 @@
 **Scouting notes on the Futures Game standouts and under-performers**\
 `Notes on the players who stood out in Saturday's annual All-Star Futures Game.`\
-https://nytimes.com/athletic/6490692/2025/07/12/future-game-scouting-josue-de-paula/
+https://nytimes.com/athletic/6490692/2025/07/12/futures-game-josue-de-paula-scouting/
 
 **Browns rookie RB Quinshon Judkins arrested on domestic violence, battery charge**\
 `This is the second straight year a Browns second-round draft pick has been arrested in connection with domestic violence before the season.`\
