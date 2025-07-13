@@ -1,3 +1,7 @@
+**With one question, Deion Sanders gave a student reporter a ‘life-changing moment’**\
+`How inspirational words from Sanders helped inspire a student reporter to continue pursuing his dreams, despite the challenges he's faced.`\
+https://nytimes.com/athletic/6488157/2025/07/13/deion-sanders-ucf-college-reporter-colorado/
+
 **American teenager Quincy Wilson breaks under-18 400m record for fourth time**\
 `The 17-year-old became the youngest male track and field Olympic gold medallist in history after competing in the 4x400m in Paris last year`\
 https://nytimes.com/athletic/6490805/2025/07/13/teenager-quincy-wilson-under-18-400m-worlds-best/
