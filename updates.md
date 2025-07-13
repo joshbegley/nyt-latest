@@ -1,3 +1,15 @@
+**NFLPA leadership backs Lloyd Howell amid concerns of conflict of interest**\
+`Howell joined The Carlyle Group in March 2023 to work in the firm’s aerospace and defense divisions, sources told The Athletic.`\
+https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group/
+
+**Noem Defends FEMA Response to Texas Floods**\
+`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
+https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
+
+**Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
+`“You have to be feared in this world,” President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
+https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
+
 **Noem Defends FEMA Response to Texas Floods**\
 `The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was âfalse.â`\
 https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
