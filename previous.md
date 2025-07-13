@@ -1,6 +1,22 @@
+**White Sox first-rounder Billy Carlson is used to playing in the spotlight**\
+`Carlson and his Corona teammates came into the year with high expectations. He thrived under pressure and will look to do the same as a pro.`\
+https://nytimes.com/athletic/6481586/2025/07/13/chicago-white-sox-first-rounder-billy-carlson-is-used-to-playing-in-the-spotlight/
+
+**King Charles III Will Host Trump for U.K. State Visit in September**\
+`Buckingham Palace confirmed the dates of President Trump’s trip to Britain, which will be his second state visit.`\
+https://nytimes.com/2025/07/13/world/europe/king-charles-trump-uk-state-visit.html
+
+**Excerpts From The Times’s Interview With Biden on Clemency Decisions**\
+`The former president said he “made every single one of those” decisions and that Republicans were questioning them because “they’ve done so badly” and wanted to shift the focus.`\
+https://nytimes.com/2025/07/13/us/politics/biden-clemency-interview.html
+
+**Biden Says He Made the Clemency Decisions That Were Recorded With Autopen**\
+`Donald J. Trump and his allies have begun investigations to support their claims that Joseph R. Biden Jr. was incapacitated and his staff conspired to take presidential actions in his name.`\
+https://nytimes.com/2025/07/13/us/politics/biden-pardon-autopen-trump.html
+
 **Grief and Prayer at Texas Churches: ‘Lord, Turn Off the Floodgates’**\
 `At services in the stricken Hill Country and elsewhere, ministers spoke Sunday morning about sorrow and solace, community and hope, as more rain beat down.`\
-https://nytimes.com/2025/07/13/us/texas-churches-grief.html
+https://nytimes.com/2025/07/13/us/texas-floods-churches-grief.html
 
 **A brief guide to the Club World Cup final VIPs, from presidents to Super Bowl winners**\
 `All you need to know about the high-profile attendees at Sunday's showpiece soccer final in New Jersey`\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/13/obituaries/muhammadu-buhari-nigeria-obituary.html
 **Why Jannik Sinner's Wimbledon title takes Carlos Alcaraz rivalry somewhere new**\
 `Sinner's Wimbledon title is the ultimate vindication of an unflappable mindset paying dividends in the biggest moments, even after defeats.`\
 https://nytimes.com/athletic/6491623/2025/07/13/tennis-sinner-wimbledon-alcaraz-rivalry-head-to-head/
-
-**Nationals pick Eli Willits with the No. 1 selection of the 2025 MLB Draft**\
-`Willits, 17, is the son of former Angels outfielder Reggie and is the youngest in his draft class.`\
-https://nytimes.com/athletic/6491745/2025/07/13/eli-willits-number-one-pick-mlb-draft-nationals/
-
-**How Chelsea won the Club World Cup: Big bonuses, training-ground deals and 'scary' Palmer**\
-`The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
-https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
-
-**‘Goodness, I Can’t Do That’**\
-`If you are just starting to solve crosswords, don’t be dis-tressed. Christina Iverson’s puzzle is a great grid to start with.`\
-https://nytimes.com/2025/07/13/crosswords/daily-puzzle-2025-07-14.html
-
-**Carlos Alcaraz achieves yet another tennis first: Losing a Grand Slam final**\
-`Alcaraz had never lost a Grand Slam final before Sinner's Wimbledon triumph. It is a test of the short memory that defines elite athletes.`\
-https://nytimes.com/athletic/6491628/2025/07/13/tennis-carlos-alcaraz-grand-slam-final-defeat/
 

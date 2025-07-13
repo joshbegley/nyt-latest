@@ -1,3 +1,7 @@
+**A's first-round pick Jamie Arnold relishes the Chris Sale comps, ready for next step**\
+`Arnold, 21, struck out 278 batters with a 2.98 ERA in 190 1/3 innings for Florida State over the past two seasons.`\
+https://nytimes.com/athletic/6466773/2025/07/13/jamie-arnold-mlb-draft-athletics-first-round/
+
 **White Sox first-rounder Billy Carlson is used to playing in the spotlight**\
 `Carlson and his Corona teammates came into the year with high expectations. He thrived under pressure and will look to do the same as a pro.`\
 https://nytimes.com/athletic/6481586/2025/07/13/chicago-white-sox-first-rounder-billy-carlson-is-used-to-playing-in-the-spotlight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491476/2025/07/13/mlb-draft-ethan-holliday-rockies
 **Muhammadu Buhari, Nigeria’s Former President, Dies at 82**\
 `A former military strongman, he won one democratic election in 2015, and another in 2019, but struggled to make good on promises to tackle corruption and terrorism.`\
 https://nytimes.com/2025/07/13/obituaries/muhammadu-buhari-nigeria-obituary.html
-
-**Why Jannik Sinner's Wimbledon title takes Carlos Alcaraz rivalry somewhere new**\
-`Sinner's Wimbledon title is the ultimate vindication of an unflappable mindset paying dividends in the biggest moments, even after defeats.`\
-https://nytimes.com/athletic/6491623/2025/07/13/tennis-sinner-wimbledon-alcaraz-rivalry-head-to-head/
 
