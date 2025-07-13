@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6470922/2025/07/13/how-brazil-won-the-1962-world-cu
 `Three of Daniel Farke's four new arrivals so far are six-footers, the other is tall for his position. The promoted club clearly have a plan`\
 https://nytimes.com/athletic/6489373/2025/07/13/leeds-united-giant-transfer-analysis-premier-league/
 
-**Modi Wants More Indians to Speak Hindi. Some States Are Shouting âNo.â**\
+**Modi Wants More Indians to Speak Hindi. Some States Are Shouting ‘No.’**\
 `States worry that the imposition of Hindi, the main language of northern India, would wipe out their cultural heritage.`\
 https://nytimes.com/2025/07/13/world/asia/india-modi-hindi.html
 

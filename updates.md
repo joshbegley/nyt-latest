@@ -1,3 +1,7 @@
+**Modi Wants More Indians to Speak Hindi. Some States Are Shouting ‘No.’**\
+`States worry that the imposition of Hindi, the main language of northern India, would wipe out their cultural heritage.`\
+https://nytimes.com/2025/07/13/world/asia/india-modi-hindi.html
+
 **Modi Wants More Indians to Speak Hindi. Some States Are Shouting âNo.â**\
 `States worry that the imposition of Hindi, the main language of northern India, would wipe out their cultural heritage.`\
 https://nytimes.com/2025/07/13/world/asia/india-modi-hindi.html
