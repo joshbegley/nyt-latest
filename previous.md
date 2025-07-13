@@ -1,4 +1,4 @@
-**Scouting notes on the Futures Game standouts and under-performers**\
+**Scouting notes on the Futures Game standouts and underperformers**\
 `Notes on the players who stood out in Saturday's annual All-Star Futures Game.`\
 https://nytimes.com/athletic/6490692/2025/07/12/futures-game-josue-de-paula-scouting/
 

@@ -1,3 +1,7 @@
+**Texans Offer a Hand and Open Their Hearts as Flood Death Toll Grows**\
+`Mourners paid tribute at funerals and memorial services on Saturday as the number of fatalities rose to nearly 130.`\
+https://nytimes.com/2025/07/12/us/texas-flood-victims-funerals.html
+
 **Scouting notes on the Futures Game standouts and underperformers**\
 `Notes on the players who stood out in Saturday's annual All-Star Futures Game.`\
 https://nytimes.com/athletic/6490692/2025/07/12/futures-game-josue-de-paula-scouting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489988/2025/07/12/paul-skenes-tarik-skubal-all-sta
 **Shohei Ohtani is bullying hitters and trusting his fastball. The Dodgers needed it**\
 `"You could see it … that different demeanor that he carries on days that he pitches," Dodgers manager Dave Roberts said.`\
 https://nytimes.com/athletic/6490560/2025/07/12/dodgers-win-giants-shohei-ohtani-hitters-fastball/
-
-**Paul Skenes, Tarik Skubal named as MLB All-Star Game starting pitchers**\
-`Skenes, 23, will be the youngest pitcher to start back-to-back All-Star Games.`\
-https://nytimes.com/athletic/6489972/2025/07/12/paul-skenes-tarik-skubal-mlb-all-star-game-pitchers/
 
