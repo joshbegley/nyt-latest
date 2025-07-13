@@ -1,3 +1,7 @@
+**Arsenal in process of completing deal for Gyokeres**\
+`The 27-year-old is in-demand after scoring 54 goals in 52 games last season for Sporting.`\
+https://nytimes.com/athletic/6476054/2025/07/13/arsenal-viktor-gyokeres-transfer/
+
 **‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
 `German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
 https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
 **Why do so many footballers covet the No 10 shirt?**\
 `Being a team's No 10 clearly means something in branding terms, but in football ones it is even more important`\
 https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-10-shirt/
-
-**Get Some Halloumi and Get Griddlin’**\
-`The cheese gets crisp and browned (and deeply melty within), and plays beautifully with the corn and tomatoes in this five-star Melissa Clark recipe.`\
-https://nytimes.com/2025/07/13/dining/halloumi-recipes-for-summer.html
 
