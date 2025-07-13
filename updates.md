@@ -1,3 +1,7 @@
+**Israeli Strike in Gaza City Kills at Least 11 People**\
+`Gaza’s Civil Defense, an emergency rescue group, said that dozens were also wounded when Israel’s military struck a crowded downtown junction.`\
+https://nytimes.com/2025/07/13/world/middleeast/gaza-israel-market.html
+
 **40 Years After Live Aid, It’s Still Personal for Bob Geldof**\
 `The rock star-turned-activist reflects on the 1985 benefit concert and why it could not happen now.`\
 https://nytimes.com/2025/07/13/arts/music/live-aid-bob-geldof-anniversary.html

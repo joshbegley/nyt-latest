@@ -1,3 +1,7 @@
+**Israeli Strike in Gaza City Kills at Least 11 People**\
+`Gaza’s Civil Defense, an emergency rescue group, said that dozens were also wounded when Israel’s military struck a crowded downtown junction.`\
+https://nytimes.com/2025/07/13/world/middleeast/gaza-israel-market.html
+
 **40 Years After Live Aid, It’s Still Personal for Bob Geldof**\
 `The rock star-turned-activist reflects on the 1985 benefit concert and why it could not happen now.`\
 https://nytimes.com/2025/07/13/arts/music/live-aid-bob-geldof-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490805/2025/07/13/teenager-quincy-wilson-under-18-
 **France Announces Agreement to Give New Caledonia More Autonomy**\
 `There were violent protests against French rule in the semiautonomous Pacific territory last year. The agreement would create a new state within the French Republic.`\
 https://nytimes.com/2025/07/13/world/asia/france-new-caledonia-agreement.html
-
-**A twisted ankle and a trophy: Boris Becker's 40 complicated years at Wimbledon**\
-`Four decades after he shocked the world and started a Hall of Fame career, Boris Becker is nowhere to be seen at Wimbledon.`\
-https://nytimes.com/athletic/6449444/2025/07/13/tennis-boris-becker-wimbledon-history/
 
