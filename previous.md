@@ -1,3 +1,7 @@
+**Chelsea 3 PSG 0 - Palmer's brilliance, total prize money, President Trump and MetLife's dress rehearsal**\
+`Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
+https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
+
 **Penguins acquire Arturs Silovs from Canucks for Chase Stillman, draft pick**\
 `Silovs recently backstopped AHL Abbotsford to a 2025 Calder Cup championship.`\
 https://nytimes.com/athletic/6491503/2025/07/13/penguins-canucks-arturs-silovs-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
 **Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
 `The players last met when Clark's Iowa beat Bueckers' UConn in the 2024 Final Four.`\
 https://nytimes.com/athletic/6491400/2025/07/13/clark-bueckers-fever-wings-wnba/
-
-**Tracking Tropical Storm Nari**\
-`See the likely path and wind arrival times for Nari`\
-https://nytimes.com/interactive/2025/07/13/weather/nari-map-path-tracker.html
 
