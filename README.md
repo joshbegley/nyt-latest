@@ -1,4 +1,8 @@
-**How controversial gamesmanship help ignited the series between England and India**\
+**Samuel Abt, Tour de France Writer for 30 Years, Dies at 91**\
+`He wrote about the elite cycling race for The New York Times and The International Herald Tribune. He said he was smitten by the Tour from the first day.`\
+https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
+
+**How controversial gamesmanship ignited the series between England and India**\
 `Controversy and provocation at Lord's has ignited the series between India and England which had been played in the most amicable spirit`\
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/us/pokemon-cards-stolen-massachusetts.html
 **The NATO leader will meet with Trump and other top officials in Washington this week.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/07/13/us/trump-news/the-nato-leader-will-meet-with-trump-and-other-top-officials-in-washington-this-week
-
-**Arsenal in process of completing deal for Gyokeres**\
-`The 27-year-old is in-demand after scoring 54 goals in 52 games last season for Sporting.`\
-https://nytimes.com/athletic/6476054/2025/07/13/arsenal-viktor-gyokeres-transfer/
 
