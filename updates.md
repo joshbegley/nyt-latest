@@ -1,3 +1,7 @@
+**Paul Skenes, Tarik Skubal share mutual respect despite different paths to stardom**\
+`The starting pitchers in Tuesday's All-Star Game found different paths to becoming old-school aces for the Tigers and Pirates.`\
+https://nytimes.com/athletic/6489988/2025/07/12/paul-skenes-tarik-skubal-all-star-game-starters-mutual-respect/
+
 **Shohei Ohtani is bullying hitters and trusting his fastball. The Dodgers needed it**\
 `"You could see it … that different demeanor that he carries on days that he pitches," Dodgers manager Dave Roberts said.`\
 https://nytimes.com/athletic/6490560/2025/07/12/dodgers-win-giants-shohei-ohtani-hitters-fastball/
