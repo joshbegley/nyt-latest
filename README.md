@@ -1,3 +1,7 @@
+**Elisa Longo Borghini wins Giro D'Italia for the second year in a row**\
+`The UAE Team ADQ rider took the overall race lead on the penultimate stage to defend her GC title`\
+https://nytimes.com/athletic/6490974/2025/07/13/elisa-longo-borghini-wins-giro-ditalia-for-the-second-year-in-a-row/
+
 **West Ham reach agreement with Slavia Prague to sign Diouf**\
 `The 20-year-old Senegal international made 41 appearances in all competitions for Slavia Prague last season and scored seven times`\
 https://nytimes.com/athletic/6490894/2025/07/13/west-ham-el-hadji-malick-diouf-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/opinion/family-politics-arguments-right-wing.html
 **The Arguments for More (or Fewer) People**\
 `Readers discuss a guest essay about birthrates and the world’s population. Also: A citizens’ celebration for America’s 250th anniversary.`\
 https://nytimes.com/2025/07/13/opinion/population-birthrates.html
-
-**Heavy Rain Pounds Texas Region Devastated by Floods, Bringing New Threat**\
-`A slow-moving storm dumped heavy precipitation across Central Texas on Sunday, including in the areas inundated by deadly flooding on July 4.`\
-https://nytimes.com/2025/07/13/weather/texas-rain-flooding.html
 
