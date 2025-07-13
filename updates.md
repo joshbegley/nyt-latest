@@ -1,3 +1,11 @@
+**Browns rookie RB Quinshon Judkins arrested on domestic violence, battery charge**\
+`This is the second straight year a Browns second-round draft pick has been arrested in connection with domestic violence before the season.`\
+https://nytimes.com/athletic/6490608/2025/07/12/browns-quinshon-judkins-arrested-domestic-violence-charge/
+
+**Lionel Messi extends MLS record with fifth straight multi-goal game**\
+`Star scored both of Inter Miami's goals in a 2-1 victory over Nashville SC, extending a record that he set Wednesday.`\
+https://nytimes.com/athletic/6490666/2025/07/12/lionel-messi-mls-record-5-straight-multi-goal-games/
+
 **Lionel Messi extends MLS record with fifth straight multi-goal game**\
 `Lionel Messi scored both of Inter Miami's goals in a 2-1 victory over Nashville SC, extending a record that he set Wednesday.`\
 https://nytimes.com/athletic/6490666/2025/07/12/lionel-messi-mls-record-5-straight-multi-goal-games/
