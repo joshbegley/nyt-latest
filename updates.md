@@ -1,3 +1,7 @@
+**Charles Reinhart, Who Helped Mainstream Modern Dance, Dies at 94**\
+`As the director of the American Dance Festival, he oversaw the growth of diverse dance traditions, both in the United States and abroad.`\
+https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
+
 **Charles Reinhart, a Force in Mainstreaming Modern Dance, Dies at 94**\
 `As the director of the American Dance Festival, he oversaw the growth of diverse dance traditions, both in the United States and abroad.`\
 https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
