@@ -1,4 +1,8 @@
 **Garrett Crochet's complete-game shutout caps terrific first half for 'potential Cy Young'**\
+`The 26-year-old ace left-hander dazzled Saturday, pitching on a tightrope as he completed a 1-0 shutout of the Rays in 100 pitches.`\
+https://nytimes.com/athletic/6490587/2025/07/12/red-sox-garrett-crochet-complete-game-shutout/
+
+**Garrett Crochet's complete-game shutout caps terrific first half for 'potential Cy Young'**\
 `The 26-year-old ace left-hander dazzled Saturday, pitching on a tightrope as he completed a 1-0 shutout of Tampa Bay Rays in 100 pitches.`\
 https://nytimes.com/athletic/6490587/2025/07/12/red-sox-garrett-crochet-complete-game-shutout/
 
