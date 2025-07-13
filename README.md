@@ -1,4 +1,4 @@
-**âSupermanâ Helps Save Warner Bros., Too**\
+**‘Superman’ Helps Save Warner Bros., Too**\
 `The film took in $217 million this weekend and is the latest part of a startling turnaround for the studio, which has now released five consecutive hits.`\
 https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.html
 
@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.ht
 `Attorney General Pam Bondi said she had ordered the dismissal of charges against a Utah plastic surgeon accused of selling bogus vaccination cards for $50 each.`\
 https://nytimes.com/2025/07/13/us/politics/utah-doctor-covid-vaccines.html
 
-**How Trumpâs Latest Tariff Threat Risks Deeper Damage to Europeâs Economy**\
+**How Trump’s Latest Tariff Threat Risks Deeper Damage to Europe’s Economy**\
 `Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
 https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
 
@@ -18,7 +18,7 @@ https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
 `Being a team's No 10 clearly means something in branding terms, but in football ones it is even more important`\
 https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-10-shirt/
 
-**Get Some Halloumi and Get Griddlinâ**\
+**Get Some Halloumi and Get Griddlin’**\
 `The cheese gets crisp and browned (and deeply melty within), and plays beautifully with the corn and tomatoes in this five-star Melissa Clark recipe.`\
 https://nytimes.com/2025/07/13/dining/halloumi-recipes-for-summer.html
 
