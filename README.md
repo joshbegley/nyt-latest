@@ -1,4 +1,4 @@
-**How Chelsea won the Club World Cup: Big bonuses, training ground deals and 'scary' Palmer**\
+**How Chelsea won the Club World Cup: Big bonuses, training-ground deals and 'scary' Palmer**\
 `The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
 https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
 

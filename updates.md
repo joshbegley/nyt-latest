@@ -1,3 +1,11 @@
+**How Chelsea won the Club World Cup: Big bonuses, training ground deals and 'scary' Palmer**\
+`The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
+https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
+
+**‘Goodness, I Can’t Do That’**\
+`If you are just starting to solve crosswords, don’t be dis-tressed. Christina Iverson’s puzzle is a great grid to start with.`\
+https://nytimes.com/2025/07/13/crosswords/daily-puzzle-2025-07-14.html
+
 **Red Sox's top first-half contributors as they ride 10-game winning streak into break**\
 `Boston is only the fourth team to enter the All-Star break on a winning streak of 10-plus games. Here's who got them here.`\
 https://nytimes.com/athletic/6491618/2025/07/13/red-sox-top-contributors-first-half-all-star-break/

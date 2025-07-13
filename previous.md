@@ -1,3 +1,11 @@
+**How Chelsea won the Club World Cup: Big bonuses, training ground deals and 'scary' Palmer**\
+`The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
+https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
+
+**‘Goodness, I Can’t Do That’**\
+`If you are just starting to solve crosswords, don’t be dis-tressed. Christina Iverson’s puzzle is a great grid to start with.`\
+https://nytimes.com/2025/07/13/crosswords/daily-puzzle-2025-07-14.html
+
 **Carlos Alcaraz achieves yet another tennis first: Losing a Grand Slam final**\
 `Alcaraz had never lost a Grand Slam final before Sinner's Wimbledon triumph. It is a test of the short memory that defines elite athletes.`\
 https://nytimes.com/athletic/6491628/2025/07/13/tennis-carlos-alcaraz-grand-slam-final-defeat/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group
 **Noem Defends FEMA Response to Texas Floods**\
 `The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
 https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
-
-**Marta says desire to become a mother may threaten her 2027 World Cup**\
-`Brazil hosts the women's competition for the first time in its history in 2027, by which point Marta will be aged 41.`\
-https://nytimes.com/athletic/6491375/2025/07/13/marta-brazil-world-cup-2027/
-
-**Ex-Secret Service Director Denies She Failed to Send Agents to Protect Trump**\
-`Kimberly A. Cheatle, who resigned after Donald J. Trump was grazed by a bullet as a candidate a year ago, pushed back against findings in a Senate report released on Sunday.`\
-https://nytimes.com/2025/07/13/us/politics/ex-secret-service-director-senate-report.html
 
