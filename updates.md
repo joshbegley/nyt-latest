@@ -1,3 +1,15 @@
+**MLB All-Star week 2025: The Athletic takes you through the Midsummer Classic**\
+`Want to know what it's like to cover the All-Star Game or have a burning question for an All-Star? The Athletic has you covered.`\
+https://nytimes.com/athletic/6490346/2025/07/13/mlb-all-star-week-2025-live-updates-atlanta/
+
+**Samuel Abt, Tour de France Writer for 30 Years, Dies at 91**\
+`He wrote about the elite cycling race for The New York Times and The International Herald Tribune. He said he was smitten by the Tour from the first day.`\
+https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
+
+**How controversial gamesmanship ignited the series between England and India**\
+`Controversy and provocation at Lord's has ignited the series between India and England which had been played in the most amicable spirit`\
+https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
+
 **How controversial gamesmanship help ignited the series between England and India**\
 `Controversy and provocation at Lord's has ignited the series between India and England which had been played in the most amicable spirit`\
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
