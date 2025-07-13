@@ -1,3 +1,7 @@
+**Charles Reinhart, a Force in Mainstreaming Modern Dance, Dies at 94**\
+`As the director of the American Dance Festival, he oversaw the growth of diverse dance traditions, both in the United States and abroad.`\
+https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
+
 **Why do so many footballers covet the No 10 shirt?**\
 `Being a team's No 10 clearly means something in branding terms, but in football ones it is even more important`\
 https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-10-shirt/
