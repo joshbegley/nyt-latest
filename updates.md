@@ -1,3 +1,11 @@
+**FIFA claims consensus over rest periods; FIFPRO criticise 'authoritarian' decisions**\
+`The issue of increased player workload has been a key discussion point around the expanded Club World Cup.`\
+https://nytimes.com/athletic/6490908/2025/07/13/fifa-fifpro-player-workload-rest-meeting/
+
+**Game, Set, Match: Jannik Sinner beats Carlos Alcaraz to win first Wimbledon title**\
+`Five weeks after their French Open classic, Sinner outplayed Alcaraz from the baseline to win his first Wimbledon title.`\
+https://nytimes.com/athletic/6490930/2025/07/13/sinner-alcaraz-wimbledon-final-result-analysis/
+
 **Rare Pokémon Cards Worth More Than $100,000 Stolen From Shop**\
 `A burglar used a hammer to smash open the door of a Massachusetts shop and stole rare Pokémon cards and vintage box sets, a store owner said.`\
 https://nytimes.com/2025/07/13/us/pokemon-cards-stolen-massachusetts.html
