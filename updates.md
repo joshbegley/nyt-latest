@@ -1,3 +1,7 @@
+**Rockies pick Ethan Holliday, son of Matt, with No. 4 selection in MLB Draft**\
+`Holliday was rated as the top prospect in the draft by The Athletic's Keith Law.`\
+https://nytimes.com/athletic/6491476/2025/07/13/mlb-draft-ethan-holliday-rockies/
+
 **Muhammadu Buhari, Nigeria’s Former President, Dies at 82**\
 `A former military strongman, he won one democratic election in 2015, and another in 2019, but struggled to make good on promises to tackle corruption and terrorism.`\
 https://nytimes.com/2025/07/13/obituaries/muhammadu-buhari-nigeria-obituary.html
