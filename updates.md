@@ -1,3 +1,7 @@
+**Club World Cup final odds and prediction: PSG heavily favoured against Chelsea**\
+`PSG have cruised through much of the Club World Cup and are heavily favoured to beat Chelsea in Sunday's final.`\
+https://nytimes.com/athletic/6486422/2025/07/13/psg-chelsea-club-world-cup-final-odds-prediction/
+
 **For Families of Air India Crash Victims, Report Brings No Closure**\
 `A preliminary assessment in last month’s disaster focusing on fuel being cut to both engines only deepened the mystery for people grieving loved ones.`\
 https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
