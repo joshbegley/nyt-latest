@@ -1,3 +1,7 @@
+**Justice Department Drops Case Against Plastic Surgeon Over Fake Covid-19 Cards**\
+`Attorney General Pam Bondi said she had ordered the dismissal of charges against a Utah plastic surgeon accused of selling bogus vaccination cards for $50 each.`\
+https://nytimes.com/2025/07/13/us/politics/utah-doctor-covid-vaccines.html
+
 **How Trump’s Latest Tariff Threat Risks Deeper Damage to Europe’s Economy**\
 `Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
 https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489976/2025/07/13/edmonton-oilers-david-tomasek-fr
 **Mohammed Kudus to Tottenham: Everything you need to know – TLDR**\
 `Spurs have signed the 24-year-old forward from London rivals West Ham - here, we break down the deal`\
 https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfer/
-
-**Pulse: Awkward hosting and Flagg pops**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6490755/2025/07/13/baseballs-most-disappointing-team-is-forced-to-host/
 
