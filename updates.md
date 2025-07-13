@@ -1,3 +1,7 @@
+**40 Years After Live Aid, It’s Still Personal for Bob Geldof**\
+`The rock star-turned-activist reflects on the 1985 benefit concert and why it could not happen now.`\
+https://nytimes.com/2025/07/13/arts/music/live-aid-bob-geldof-anniversary.html
+
 **A free-agent-to-be, Kyle Tucker is making the most of his year with the Cubs**\
 `In giving up 14 potential years of club control, the Cubs got one season to maximize Tucker’s talents and make their pitch. `\
 https://nytimes.com/athletic/6490495/2025/07/13/chicago-cubs-kyle-tucker-2025-all-star-game/
