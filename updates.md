@@ -1,3 +1,7 @@
+**âHeâs Nuts, Your Trump.â Canada Unites Against America.**\
+`Americaâs growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United Statesâ standing in the world.`\
+https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
+
 **Jose Altuve embraces the culture he has cultivated, watches as Astros beat Rangers**\
 `Saturday was the 11th time Espada removed Altuve from left field in the ninth inning with a lead. "You have to rely on everybody."`\
 https://nytimes.com/athletic/6490738/2025/07/13/astros-rangers-jose-altuve-watches/
