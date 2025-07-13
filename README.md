@@ -1,3 +1,7 @@
+**Ex-Secret Service Director Denies She Failed to Send Agents to Protect Trump**\
+`Kimberly A. Cheatle, who resigned after Donald J. Trump was grazed by a bullet as a candidate a year ago, pushed back against findings in a Senate report released on Sunday.`\
+https://nytimes.com/2025/07/13/us/politics/ex-secret-service-director-senate-report.html
+
 **Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
 `“You have to be feared in this world,” President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
 https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza
 **State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say**\
 `The episode, which left the shooter dead, ended at a church on Sunday in Lexington, Ky., the authorities said.`\
 https://nytimes.com/2025/07/13/us/kentucky-shooting-church-state-trooper.html
-
-**Chris Gotterup bests Rory McIlroy at Scottish Open for second PGA tour win**\
-`The duo was tied entering the back nine, but McIlroy failed to convert a birdie putt as Gotterup finished with three birdies and a bogey.`\
-https://nytimes.com/athletic/6491283/2025/07/13/chris-gotterup-rory-mcilroy-scottish-open/
 
