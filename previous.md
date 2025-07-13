@@ -1,4 +1,24 @@
-**With one question, Deion Sanders gave a student reporter a ‘life-changing moment’**\
+**What Is a D.O.?**\
+`We explain how to pick a doctor.`\
+https://nytimes.com/2025/07/13/briefing/what-is-a-do.html
+
+**Ronny Mauricio's bat and voice emerging for playoff-chasing Mets**\
+`Through 28 games after his June 3 call-up, Mauricio owns a .696 OPS with four home runs, and he has a .797 OPS over his past 15 games.`\
+https://nytimes.com/athletic/6490643/2025/07/13/mets-playoff-chase-ronny-mauricio/
+
+**A free-agent-to-be, Kyle Tucker is making the most of his year with the Cubs**\
+`In giving up 14 potential years of club control, the Cubs got one season to maximize Tuckerâs talents and make their pitch. `\
+https://nytimes.com/athletic/6490495/2025/07/13/chicago-cubs-kyle-tucker-2025-all-star-game/
+
+**'We're making the playoffs': Brandon Ingram is eager to remind the league of his skills**\
+`After a lengthy absence caused by an ankle injury, the All-Star can finally get to know his Raptors teammates on the court.`\
+https://nytimes.com/athletic/6490525/2025/07/13/brandon-ingram-raptors-injury-return-nba/
+
+**Clockwatching: Why Wimbledon changed one of its final traditions this year**\
+`Iga ÅwiÄtek's 6-0 6-0 dismantling of Amanda Anisimova in Saturday's women's final began after 4 p.m. local time.`\
+https://nytimes.com/athletic/6490799/2025/07/13/wimbledon-final-time-start-why/
+
+**With one question, Deion Sanders gave a student reporter a âlife-changing momentâ**\
 `How inspirational words from Sanders helped inspire a student reporter to continue pursuing his dreams, despite the challenges he's faced.`\
 https://nytimes.com/athletic/6488157/2025/07/13/deion-sanders-ucf-college-reporter-colorado/
 
@@ -15,26 +35,6 @@ https://nytimes.com/2025/07/13/world/asia/france-new-caledonia-agreement.html
 https://nytimes.com/athletic/6449444/2025/07/13/tennis-boris-becker-wimbledon-history/
 
 **MAGA Is Tearing Itself Apart Over Jeffrey Epstein**\
-`What happens when Trump becomes the “deep state”?`\
+`What happens when Trump becomes the âdeep stateâ?`\
 https://nytimes.com/2025/07/13/opinion/epstein-files-trump-maga.html
-
-**Wordle Review No. 1,486**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 14, 2025.`\
-https://nytimes.com/2025/07/13/crosswords/wordle-review-1486.html
-
-**Connections Companion No. 764**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 14, 2025.`\
-https://nytimes.com/2025/07/13/crosswords/connections-companion-764.html
-
-**My Friends Are Immortal to Me**\
-`Immortality is easier to achieve than we might think.`\
-https://nytimes.com/2025/07/13/opinion/immortality-death-love.html
-
-**Strands Sidekick No. 498**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 14, 2025.`\
-https://nytimes.com/2025/07/13/crosswords/strands-sidekick-498.html
-
-**Why Carlos Alcaraz and Jannik Sinner's Wimbledon final closes some Grand Slam Sliding Doors**\
-`Alcaraz and Sinner's second major final entrenches them as world No. 1 and world No. 2. It wasn't this way more recently than people think.`\
-https://nytimes.com/athletic/6490794/2025/07/13/alcaraz-sinner-wimbledon-final/
 
