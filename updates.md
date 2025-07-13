@@ -1,3 +1,7 @@
+**For Families of Air India Crash Victims, Report Brings No Closure**\
+`A preliminary assessment in last month’s disaster pointing to pilot action only deepened the mystery for people grieving loved ones.`\
+https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
+
 **England vs Wales Euro 2025 odds, prediction: Lionesses in position to advance**\
 `England's Euro 2025 group finale is against neighbouring Wales. The Lionesses are heavily favoured to win and advance.`\
 https://nytimes.com/athletic/6489140/2025/07/13/england-wales-euro-2025-odds-prediction/
