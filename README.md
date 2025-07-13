@@ -1,3 +1,7 @@
+**For Families of Air India Crash Victims, Report Brings No Closure**\
+`A preliminary assessment in last month’s disaster pointing to pilot action only deepened the mystery for people grieving loved ones.`\
+https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
+
 **England vs Wales Euro 2025 odds, prediction: Lionesses in position to advance**\
 `England's Euro 2025 group finale is against neighbouring Wales. The Lionesses are heavily favoured to win and advance.`\
 https://nytimes.com/athletic/6489140/2025/07/13/england-wales-euro-2025-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
 **A Club World Cup final between PSG and Chelsea? This is the state of the game in 2025**\
 `The tournament is bankrolled by American and Middle Eastern investment; as is football globally. Where it goes from here is anyone's guess.`\
 https://nytimes.com/athletic/6490554/2025/07/13/psg-chelsea-fifa-club-world-cup-final-trump/
-
-**Revealing the clubs who have missed out most on future transfer fees - and what that really shows**\
-`See where your club ranks in our searchable table of 'lost' future earnings on transfer deals`\
-https://nytimes.com/athletic/6487753/2025/07/13/premier-league-lost-transfer-fees/
 
