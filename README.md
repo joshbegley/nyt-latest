@@ -1,3 +1,7 @@
+**Scouting notes on the Futures Game standouts and under-performers**\
+`Notes on the players who stood out in Saturday's annual All-Star Futures Game.`\
+https://nytimes.com/athletic/6490692/2025/07/12/future-game-scouting-josue-de-paula/
+
 **Browns rookie RB Quinshon Judkins arrested on domestic violence, battery charge**\
 `This is the second straight year a Browns second-round draft pick has been arrested in connection with domestic violence before the season.`\
 https://nytimes.com/athletic/6490608/2025/07/12/browns-quinshon-judkins-arrested-domestic-violence-charge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490560/2025/07/12/dodgers-win-giants-shohei-ohtani
 **Paul Skenes, Tarik Skubal named as MLB All-Star Game starting pitchers**\
 `Skenes, 23, will be the youngest pitcher to start back-to-back All-Star Games.`\
 https://nytimes.com/athletic/6489972/2025/07/12/paul-skenes-tarik-skubal-mlb-all-star-game-pitchers/
-
-**Tunnel Vision**\
-`You’ll need all of your powers of perception to get through Brandon Koppy’s latest Sunday puzzle.`\
-https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
 
