@@ -1,3 +1,7 @@
+**Evian Championship: Grace Kim shocks, beating Jeeno Thitikul in playoff**\
+`Kim, 24, eagled the final hole to force a playoff then hit a miracle shot on the first playoff hole.`\
+https://nytimes.com/athletic/6490987/2025/07/13/evian-championship-grace-kim-jeeno-thitikul-playoff/
+
 **Elisa Longo Borghini wins Giro D'Italia for the second year in a row**\
 `The UAE Team ADQ rider took the overall race lead on the penultimate stage to defend her GC title`\
 https://nytimes.com/athletic/6490974/2025/07/13/elisa-longo-borghini-wins-giro-ditalia-for-the-second-year-in-a-row/
