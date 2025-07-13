@@ -1,3 +1,7 @@
+**American teenager Quincy Wilson breaks under-18 400m record for fourth time**\
+`The 17-year-old became the youngest male track and field Olympic gold medallist in history after competing in the 4x400m in Paris last year`\
+https://nytimes.com/athletic/6490805/2025/07/13/teenager-quincy-wilson-under-18-400m-worlds-best/
+
 **France Announces Agreement to Give New Caledonia More Autonomy**\
 `There were violent protests against French rule in the semiautonomous Pacific territory last year. The agreement would create a new state within the French Republic.`\
 https://nytimes.com/2025/07/13/world/asia/france-new-caledonia-agreement.html
