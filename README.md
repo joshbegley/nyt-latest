@@ -1,3 +1,7 @@
+**40 Years After Live Aid, It’s Still Personal for Bob Geldof**\
+`The rock star-turned-activist reflects on the 1985 benefit concert and why it could not happen now.`\
+https://nytimes.com/2025/07/13/arts/music/live-aid-bob-geldof-anniversary.html
+
 **What Is a D.O.?**\
 `We explain how to pick a doctor.`\
 https://nytimes.com/2025/07/13/briefing/what-is-a-do.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/world/asia/france-new-caledonia-agreement.html
 **A twisted ankle and a trophy: Boris Becker's 40 complicated years at Wimbledon**\
 `Four decades after he shocked the world and started a Hall of Fame career, Boris Becker is nowhere to be seen at Wimbledon.`\
 https://nytimes.com/athletic/6449444/2025/07/13/tennis-boris-becker-wimbledon-history/
-
-**MAGA Is Tearing Itself Apart Over Jeffrey Epstein**\
-`What happens when Trump becomes the “deep state”?`\
-https://nytimes.com/2025/07/13/opinion/epstein-files-trump-maga.html
 
