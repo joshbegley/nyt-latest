@@ -1,3 +1,11 @@
+**Cooper Flagg, Mavericks fall to Dylan Harper, Spurs at NBA Summer League**\
+`There were a few moments when the two players squared off and a series of physical possessions were highlighted.`\
+https://nytimes.com/athletic/6490527/2025/07/12/cooper-flagg-dylan-harper-mavericks-spurs-summer-league/
+
+**Paul Skenes, Tarik Skubal named as MLB All-Star Game starting pitchers**\
+`Skenes, 23, will be the youngest pitcher to start back-to-back All-Star Games.`\
+https://nytimes.com/athletic/6489972/2025/07/12/paul-skenes-tarik-skubal-mlb-all-star-game-pitchers/
+
 **Paul Skenes, Tarik Skubal share mutual respect despite different paths to stardom**\
 `The starting pitchers in Tuesday's All-Star Game found different paths to becoming old-school aces for the Tigers and Pirates.`\
 https://nytimes.com/athletic/6489988/2025/07/12/paul-skenes-tarik-skubal-all-star-game-starters-mutual-respect/

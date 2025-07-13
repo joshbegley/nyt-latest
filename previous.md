@@ -1,3 +1,7 @@
+**Cooper Flagg, Mavericks fall to Dylan Harper, Spurs at NBA Summer League**\
+`There were a few moments when the two players squared off and a series of physical possessions were highlighted.`\
+https://nytimes.com/athletic/6490527/2025/07/12/cooper-flagg-dylan-harper-mavericks-spurs-summer-league/
+
 **Paul Skenes, Tarik Skubal share mutual respect despite different paths to stardom**\
 `The starting pitchers in Tuesday's All-Star Game found different paths to becoming old-school aces for the Tigers and Pirates.`\
 https://nytimes.com/athletic/6489988/2025/07/12/paul-skenes-tarik-skubal-all-star-game-starters-mutual-respect/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6489988/2025/07/12/paul-skenes-tarik-skubal-all-sta
 https://nytimes.com/athletic/6490560/2025/07/12/dodgers-win-giants-shohei-ohtani-hitters-fastball/
 
 **Paul Skenes, Tarik Skubal named as MLB All-Star Game starting pitchers**\
-`Skenes becomes the youngest pitcher to start back-to-back All-Star games in more than 70 years.`\
+`Skenes, 23, will be the youngest pitcher to start back-to-back All-Star Games.`\
 https://nytimes.com/athletic/6489972/2025/07/12/paul-skenes-tarik-skubal-mlb-all-star-game-pitchers/
 
 **Tunnel Vision**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490443/2025/07/12/andy-carroll-transfer-dagenham-a
 **Latest tariffs apparently do not apply to cars.**\
 `Cars and trucks a`\
 https://nytimes.com/live/2025/07/12/us/trump-news/latest-tariffs-apparently-do-not-apply-to-cars
-
-**Flores Jr.: MLB’s All-Star week means everything to me, so let's celebrate together**\
-`For as long as I can remember, Major League Baseball’s annual All-Star week has been my favorite part of the year.`\
-https://nytimes.com/athletic/6489572/2025/07/12/mlb-2025-all-star-week-trip-atlanta/
 
