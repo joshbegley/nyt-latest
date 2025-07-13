@@ -1,3 +1,7 @@
+**Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
+`Cincinnati manager emotional after reaching milestone. “It’s not often I get a little choked up, and that hit me pretty hard,” he said.`\
+https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
+
 **Yankees takeaways from the first half: Trades for pitching, Anthony Volpe's struggles**\
 `How, specifically, could the Yankees get better in the second half of their season?`\
 https://nytimes.com/athletic/6491832/2025/07/13/yankees-first-half-trade-deadline-anthony-volpe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/us/politics/biden-pardon-autopen-trump.html
 **Grief and Prayer at Texas Churches: ‘Lord, Turn Off the Floodgates’**\
 `At services in the stricken Hill Country and elsewhere, ministers spoke Sunday morning about sorrow and solace, community and hope, as more rain beat down.`\
 https://nytimes.com/2025/07/13/us/texas-floods-churches-grief.html
-
-**A brief guide to the Club World Cup final VIPs, from presidents to Super Bowl winners**\
-`All you need to know about the high-profile attendees at Sunday's showpiece soccer final in New Jersey`\
-https://nytimes.com/athletic/6491517/2025/07/13/club-world-cup-vip-trump-guide/
 
