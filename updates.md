@@ -1,3 +1,11 @@
+**Grief and Prayer at Texas Churches: ‘Lord, Turn Off the Floodgates’**\
+`At services in the stricken Hill Country and elsewhere, ministers spoke Sunday morning about sorrow and solace, community and hope, as more rain beat down.`\
+https://nytimes.com/2025/07/13/us/texas-churches-grief.html
+
+**A brief guide to the Club World Cup final VIPs, from presidents to Super Bowl winners**\
+`All you need to know about the high-profile attendees at Sunday's showpiece soccer final in New Jersey`\
+https://nytimes.com/athletic/6491517/2025/07/13/club-world-cup-vip-trump-guide/
+
 **Mariners pick LSU lefty Kade Anderson with the No. 3 selection of the 2025 MLB Draft**\
 `Anderson, 21, led the LSU Tigers to an NCAA title as a draft-eligible sophomore and he led all NCAA pitchers in strikeouts.`\
 https://nytimes.com/athletic/6491658/2025/07/13/kade-anderson-mlb-draft-number-3-pick-mariners/
