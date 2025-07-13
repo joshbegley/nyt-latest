@@ -1,3 +1,11 @@
+**Yankees takeaways from the first half: Trades for pitching, Anthony Volpe's struggles**\
+`How, specifically, could the Yankees get better in the second half of their season?`\
+https://nytimes.com/athletic/6491832/2025/07/13/yankees-first-half-trade-deadline-anthony-volpe/
+
+**Red Sox first-round pick Kyson Witherspoon ready to chart his own path in pro ball**\
+`Witherspoon was lightly recruited in high school and not invited to the Combine. Three years later, he's one of the draft's top arms.`\
+https://nytimes.com/athletic/6470042/2025/07/13/kyson-witherspoon-red-sox-first-round-pick/
+
 **If first Caitlin Clark-Paige Bueckers matchup was any indication, WNBA's future is in great hands**\
 `"We don't take this for granted," Bueckers said, "so it's an honor to be on the floor and compete against each other."`\
 https://nytimes.com/athletic/6491747/2025/07/13/caitlin-clark-paige-bueckers-first-matchup-wnba-future/
