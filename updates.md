@@ -1,4 +1,8 @@
 **Cole Anthony to accept buyout from Grizzlies, plans to sign with Bucks: Source**\
+`Anthony can help fill a roster need in Milwaukee after the Achilles injury to Damian Lillard, who was later waived.`\
+https://nytimes.com/athletic/6490632/2025/07/12/cole-anthony-grizzlies-buyout-bucks-free-agency/
+
+**Cole Anthony to accept buyout from Grizzlies, plans to sign with Bucks: Source**\
 `Anthony can help fill a roster need in Milwaukee following the Achilles injury to Damian Lillard, who was later waived.`\
 https://nytimes.com/athletic/6490632/2025/07/12/cole-anthony-grizzlies-buyout-bucks-free-agency/
 
