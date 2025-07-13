@@ -1,3 +1,7 @@
+**Elisa Longo Borghini wins Giro D'Italia for the second year in a row**\
+`The UAE Team ADQ rider took the overall race lead on the penultimate stage to defend her GC title`\
+https://nytimes.com/athletic/6490974/2025/07/13/elisa-longo-borghini-wins-giro-ditalia-for-the-second-year-in-a-row/
+
 **West Ham reach agreement with Slavia Prague to sign Diouf**\
 `The 20-year-old Senegal international made 41 appearances in all competitions for Slavia Prague last season and scored seven times`\
 https://nytimes.com/athletic/6490894/2025/07/13/west-ham-el-hadji-malick-diouf-transfer/
