@@ -1,3 +1,7 @@
+**Grief and Prayer at Texas Churches: ‘Lord, Turn Off the Floodgates’**\
+`At services in the stricken Hill Country and elsewhere, ministers spoke Sunday morning about sorrow and solace, community and hope, as more rain beat down.`\
+https://nytimes.com/2025/07/13/us/texas-churches-grief.html
+
 **A brief guide to the Club World Cup final VIPs, from presidents to Super Bowl winners**\
 `All you need to know about the high-profile attendees at Sunday's showpiece soccer final in New Jersey`\
 https://nytimes.com/athletic/6491517/2025/07/13/club-world-cup-vip-trump-guide/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/crosswords/daily-puzzle-2025-07-14.html
 **Carlos Alcaraz achieves yet another tennis first: Losing a Grand Slam final**\
 `Alcaraz had never lost a Grand Slam final before Sinner's Wimbledon triumph. It is a test of the short memory that defines elite athletes.`\
 https://nytimes.com/athletic/6491628/2025/07/13/tennis-carlos-alcaraz-grand-slam-final-defeat/
-
-**Red Sox's top first-half contributors as they ride 10-game winning streak into break**\
-`Boston is only the fourth team to enter the All-Star break on a winning streak of 10-plus games. Here's who got them here.`\
-https://nytimes.com/athletic/6491618/2025/07/13/red-sox-top-contributors-first-half-all-star-break/
 
