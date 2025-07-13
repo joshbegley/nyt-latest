@@ -1,3 +1,7 @@
+**The NATO leader will meet with Trump and other top officials in Washington this week.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/07/13/us/trump-news/the-nato-leader-will-meet-with-trump-and-other-top-officials-in-washington-this-week
+
 **Arsenal in process of completing deal for Gyokeres**\
 `The 27-year-old is in-demand after scoring 54 goals in 52 games last season for Sporting.`\
 https://nytimes.com/athletic/6476054/2025/07/13/arsenal-viktor-gyokeres-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
 **Charles Reinhart, Who Helped Mainstream Modern Dance, Dies at 94**\
 `As the director of the American Dance Festival, he oversaw the growth of diverse dance traditions, both in the United States and abroad.`\
 https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
-
-**Why do so many footballers covet the No 10 shirt?**\
-`Being a team's No 10 clearly means something in branding terms, but in football ones it is even more important`\
-https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-10-shirt/
 
