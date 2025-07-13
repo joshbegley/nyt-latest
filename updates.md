@@ -1,3 +1,7 @@
+**If first Caitlin Clark-Paige Bueckers matchup was any indication, WNBA's future is in great hands**\
+`"We don't take this for granted," Bueckers said, "so it's an honor to be on the floor and compete against each other."`\
+https://nytimes.com/athletic/6491747/2025/07/13/caitlin-clark-paige-bueckers-first-matchup-wnba-future/
+
 **A's first-round pick Jamie Arnold relishes the Chris Sale comps, ready for next step**\
 `Arnold, 21, struck out 278 batters with a 2.98 ERA in 190 1/3 innings for Florida State over the past two seasons.`\
 https://nytimes.com/athletic/6466773/2025/07/13/jamie-arnold-mlb-draft-athletics-first-round/
