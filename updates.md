@@ -1,3 +1,7 @@
+**Justice Department Drops Case Against Plastic Surgeon Over Fake Covid-19 Cards**\
+`Attorney General Pam Bondi said she had ordered the dismissal of charges against a Utah plastic surgeon accused of selling bogus vaccination cards for $50 each.`\
+https://nytimes.com/2025/07/13/us/politics/utah-doctor-covid-vaccines.html
+
 **How Trump’s Latest Tariff Threat Risks Deeper Damage to Europe’s Economy**\
 `Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
 https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
