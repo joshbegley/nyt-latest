@@ -1,3 +1,7 @@
+**Lowetide: What can Oilers expect from 2025 European free-agent signings?**\
+`European players may not make a dent on the NHL roster, but they are definitely worth the risk.`\
+https://nytimes.com/athletic/6489976/2025/07/13/edmonton-oilers-david-tomasek-free-agents/
+
 **Mohammed Kudus to Tottenham: Everything you need to know – TLDR**\
 `Spurs have signed the 24-year-old forward from London rivals West Ham - here, we break down the deal`\
 https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfer/

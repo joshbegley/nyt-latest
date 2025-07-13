@@ -1,3 +1,7 @@
+**Lowetide: What can Oilers expect from 2025 European free-agent signings?**\
+`European players may not make a dent on the NHL roster, but they are definitely worth the risk.`\
+https://nytimes.com/athletic/6489976/2025/07/13/edmonton-oilers-david-tomasek-free-agents/
+
 **Mohammed Kudus to Tottenham: Everything you need to know – TLDR**\
 `Spurs have signed the 24-year-old forward from London rivals West Ham - here, we break down the deal`\
 https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/weather/texas-rain-flooding.html
 **Israeli Strike in Gaza City Kills at Least 11 People, Officials Say**\
 `Gaza’s Civil Defense, an emergency rescue group, said that dozens were also wounded when Israel’s military struck a crowded downtown junction.`\
 https://nytimes.com/2025/07/13/world/middleeast/gaza-israel-market.html
-
-**40 Years After Live Aid, It’s Still Personal for Bob Geldof**\
-`The rock star-turned-activist reflects on the 1985 benefit concert and why it could not happen now.`\
-https://nytimes.com/2025/07/13/arts/music/live-aid-bob-geldof-anniversary.html
 
