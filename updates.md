@@ -1,3 +1,7 @@
+**Arsenal in process of completing deal for Gyokeres**\
+`The 27-year-old is in-demand after scoring 54 goals in 52 games last season for Sporting.`\
+https://nytimes.com/athletic/6476054/2025/07/13/arsenal-viktor-gyokeres-transfer/
+
 **‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
 `German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
 https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
