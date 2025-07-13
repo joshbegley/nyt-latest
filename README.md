@@ -1,3 +1,11 @@
+**Children Killed in Israeli Strike on Water Point in Gaza, Officials Say**\
+`The Israeli military said that a “technical error” had caused a munition — intended for an Islamic Jihad militant — to land dozens of meters from its target.`\
+https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza-war.html
+
+**State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say**\
+`The episode, which left the shooter dead, ended at a church on Sunday in Lexington, Ky., the authorities said.`\
+https://nytimes.com/2025/07/13/us/kentucky-shooting-church-state-trooper.html
+
 **Chris Gotterup bests Rory McIlroy at Scottish Open for second PGA tour win**\
 `The duo was tied entering the back nine, but McIlroy failed to convert a birdie putt as Gotterup finished with three birdies and a bogey.`\
 https://nytimes.com/athletic/6491283/2025/07/13/chris-gotterup-rory-mcilroy-scottish-open/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
 **Tour de France stage nine: Van der Poel's epic breakaway, Merlier takes second win, will Almeida abandon impact Pogacar?**\
 `Analysis of the ninth stage of the 2025 Tour de France, which took the peloton from Chinon to Chateauroux`\
 https://nytimes.com/athletic/6490897/2025/07/13/tour-de-france-stage-nine-analysis/
-
-**Blue Jackets Sunday Gathering: Search for goaltending depth pieces is on**\
-`The Blue Jackets are looking for a goaltender who has AHL experience but also doesn't look out of place in the NHL.`\
-https://nytimes.com/athletic/6489375/2025/07/13/blue-jackets-goaltending-depth/
-
-**UEFA president Ceferin snubs Club World Cup amid ongoing FIFA tensions**\
-`While all other confederations have been represented at some stage by their presidents, Ceferin has stayed away from the competition.`\
-https://nytimes.com/athletic/6490913/2025/07/13/club-world-cup-uefa-ceferin/
 
