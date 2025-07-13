@@ -1,3 +1,7 @@
+**Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
+`The players last met when Clark's Iowa beat Bueckers' UConn in the 2024 Final Four.`\
+https://nytimes.com/athletic/6491400/2025/07/13/clark-bueckers-fever-wings-wnba/
+
 **Tracking Tropical Storm Nari**\
 `See the likely path and wind arrival times for Nari`\
 https://nytimes.com/interactive/2025/07/13/weather/nari-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491283/2025/07/13/chris-gotterup-rory-mcilroy-scot
 **FIFA claims consensus over rest periods; FIFPRO criticise 'authoritarian' decisions**\
 `The issue of increased player workload has been a key discussion point around the expanded Club World Cup.`\
 https://nytimes.com/athletic/6490908/2025/07/13/fifa-fifpro-player-workload-rest-meeting/
-
-**Game, Set, Match: Jannik Sinner beats Carlos Alcaraz to win first Wimbledon title**\
-`Five weeks after their French Open classic, Sinner outplayed Alcaraz from the baseline to win his first Wimbledon title.`\
-https://nytimes.com/athletic/6490930/2025/07/13/sinner-alcaraz-wimbledon-final-result-analysis/
 
