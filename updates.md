@@ -1,3 +1,5 @@
+
+
 **FIFA claims consensus over rest periods; FIFPRO criticise 'authoritarian' decisions**\
 `The issue of increased player workload has been a key discussion point around the expanded Club World Cup.`\
 https://nytimes.com/athletic/6490908/2025/07/13/fifa-fifpro-player-workload-rest-meeting/
