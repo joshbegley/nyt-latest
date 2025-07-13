@@ -1,3 +1,7 @@
+**How Trump’s Latest Tariff Threat Risks Deeper Damage to Europe’s Economy**\
+`Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
+https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
+
 **Charles Reinhart, Who Helped Mainstream Modern Dance, Dies at 94**\
 `As the director of the American Dance Festival, he oversaw the growth of diverse dance traditions, both in the United States and abroad.`\
 https://nytimes.com/2025/07/13/arts/dance/charles-reinhart-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfe
 **Pulse: Awkward hosting and Flagg pops**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6490755/2025/07/13/baseballs-most-disappointing-team-is-forced-to-host/
-
-**The first and last night of the Wimbledon queue: 'We are all watching out for each other'**\
-`The queue for grounds passes is one of Wimbledon's institutions, from the opening night to the close.`\
-https://nytimes.com/athletic/6490751/2025/07/13/wimbledon-queue-guide-rules/
 
