@@ -1,3 +1,11 @@
+**Mariners pick LSU lefty Kade Anderson with the No. 3 selection of the 2025 MLB Draft**\
+`Anderson, 21, led the LSU Tigers to an NCAA title as a draft-eligible sophomore and he led all NCAA pitchers in strikeouts.`\
+https://nytimes.com/athletic/6491658/2025/07/13/kade-anderson-mlb-draft-number-3-pick-mariners/
+
+**Why Jannik Sinner's Wimbledon title takes Carlos Alcaraz rivalry somewhere new**\
+`Sinner's Wimbledon title is the ultimate vindication of an unflappable mindset paying dividends in the biggest moments, even after defeats.`\
+https://nytimes.com/athletic/6491623/2025/07/13/tennis-sinner-wimbledon-alcaraz-rivalry-head-to-head/
+
 **Rockies pick Ethan Holliday, son of Matt, with No. 4 selection in MLB Draft**\
 `Holliday was rated as the top prospect in the draft by The Athletic's Keith Law.`\
 https://nytimes.com/athletic/6491476/2025/07/13/mlb-draft-ethan-holliday-rockies/

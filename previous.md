@@ -1,3 +1,7 @@
+**Mariners pick LSU lefty Kade Anderson with the No. 3 selection of the 2025 MLB Draft**\
+`Anderson, 21, led the LSU Tigers to an NCAA title as a draft-eligible sophomore and he led all NCAA pitchers in strikeouts.`\
+https://nytimes.com/athletic/6491658/2025/07/13/kade-anderson-mlb-draft-number-3-pick-mariners/
+
 **Rockies pick Ethan Holliday, son of Matt, with No. 4 selection in MLB Draft**\
 `Holliday was rated as the top prospect in the draft by The Athletic's Keith Law.`\
 https://nytimes.com/athletic/6491476/2025/07/13/mlb-draft-ethan-holliday-rockies/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6491476/2025/07/13/mlb-draft-ethan-holliday-rockies
 `A former military strongman, he won one democratic election in 2015, and another in 2019, but struggled to make good on promises to tackle corruption and terrorism.`\
 https://nytimes.com/2025/07/13/obituaries/muhammadu-buhari-nigeria-obituary.html
 
-**Why Jannik Sinner's Wimbledon title takes his Carlos Alcaraz rivalry somewhere new**\
+**Why Jannik Sinner's Wimbledon title takes Carlos Alcaraz rivalry somewhere new**\
 `Sinner's Wimbledon title is the ultimate vindication of an unflappable mindset paying dividends in the biggest moments, even after defeats.`\
 https://nytimes.com/athletic/6491623/2025/07/13/tennis-sinner-wimbledon-alcaraz-rivalry-head-to-head/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491618/2025/07/13/red-sox-top-contributors-first-h
 **Chelsea 3 PSG 0 - Palmer’s brilliance, President Trump, $100m prize money - and Luis Enrique strikes Joao Pedro**\
 `Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
 https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
-
-**Penguins acquire Arturs Silovs from Canucks for Chase Stillman, draft pick**\
-`Silovs recently backstopped AHL Abbotsford to a 2025 Calder Cup championship.`\
-https://nytimes.com/athletic/6491503/2025/07/13/penguins-canucks-arturs-silovs-trade/
 
