@@ -1,3 +1,11 @@
+**Carlos Alcaraz achieves yet another tennis first: Losing a Grand Slam final**\
+`Alcaraz had never lost a Grand Slam final before Sinner's Wimbledon triumph. It is a test of the short memory that defines elite athletes.`\
+https://nytimes.com/athletic/6491628/2025/07/13/tennis-carlos-alcaraz-grand-slam-final-defeat/
+
+**Highlighting Red Sox's top first-half contributors as they streak into break**\
+`Boston is only the fourth team to enter the All-Star break on a 10-plus-game winning streak. Here's who got them here.`\
+https://nytimes.com/athletic/6491618/2025/07/13/red-sox-top-contributors-first-half-all-star-break/
+
 **Chelsea 3 PSG 0 - Palmer's brilliance, $100m prize money, President Trump and MetLife's dress rehearsal**\
 `Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
 https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6491375/2025/07/13/marta-brazil-world-cup-2027/
 **Ex-Secret Service Director Denies She Failed to Send Agents to Protect Trump**\
 `Kimberly A. Cheatle, who resigned after Donald J. Trump was grazed by a bullet as a candidate a year ago, pushed back against findings in a Senate report released on Sunday.`\
 https://nytimes.com/2025/07/13/us/politics/ex-secret-service-director-senate-report.html
-
-**Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
-`“You have to be feared in this world,” President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
-https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
-
-**Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
-`The players last met when Clark's Iowa beat Bueckers' UConn in the 2024 Final Four.`\
-https://nytimes.com/athletic/6491400/2025/07/13/clark-bueckers-fever-wings-wnba/
 

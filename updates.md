@@ -1,3 +1,7 @@
+**Chelsea 3 PSG 0 - Palmer's brilliance, $100m prize money, President Trump and MetLife's dress rehearsal**\
+`Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
+https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
+
 **Chelsea 3 PSG 0 - Palmer's brilliance, total prize money, President Trump and MetLife's dress rehearsal**\
 `Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
 https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
