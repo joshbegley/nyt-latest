@@ -1,3 +1,11 @@
+**West Ham reach agreement with Slavia Prague to sign Diouf**\
+`The 20-year-old Senegal international made 41 appearances in all competitions for Slavia Prague last season and scored seven times`\
+https://nytimes.com/athletic/6490894/2025/07/13/west-ham-el-hadji-malick-diouf-transfer/
+
+**Heavy Rain Pounds Texas Region Devastated by Floods, Bringing New Threat**\
+`A slow-moving storm dumped heavy precipitation across Central Texas on Sunday, including in the areas inundated by deadly flooding on July 4.`\
+https://nytimes.com/2025/07/13/weather/texas-rain-flooding.html
+
 **Lowetide: What can Oilers expect from 2025 European free-agent signings?**\
 `European players may not make a dent on the NHL roster, but they are definitely worth the risk.`\
 https://nytimes.com/athletic/6489976/2025/07/13/edmonton-oilers-david-tomasek-free-agents/
