@@ -1,3 +1,7 @@
+**‘He’s Nuts, Your Trump.’ Canada Unites Against America.**\
+`America’s growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United States’ standing in the world.`\
+https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
+
 **âHeâs Nuts, Your Trump.â Canada Unites Against America.**\
 `Americaâs growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United Statesâ standing in the world.`\
 https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
