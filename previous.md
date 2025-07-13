@@ -1,3 +1,23 @@
+**England vs Wales Euro 2025 odds, prediction: Lionesses in position to advance**\
+`England's Euro 2025 group finale is against neighbouring Wales. The Lionesses are heavily favoured to win and advance.`\
+https://nytimes.com/athletic/6489140/2025/07/13/england-wales-euro-2025-odds-prediction/
+
+**New York City Set to Expand Minimum Pay Law for Delivery Workers**\
+`The City Council is expected to pass a package of bills to include nearly 20,000 grocery delivery workers in legislation that improved working conditions for food delivery workers.`\
+https://nytimes.com/2025/07/13/nyregion/instacart-doordash-shipt-minimum-pay.html
+
+**Climate Law Could Shape the Race for New York City’s Next Mayor**\
+`Zohran Mamdani, the Democratic nominee, has vowed to strictly enforce the measure, Local Law 97, which calls for potentially expensive upgrades to buildings to curb greenhouse emissions.`\
+https://nytimes.com/2025/07/13/nyregion/zohran-mamdani-climate-law-97.html
+
+**‘I Noticed a Building Handyman Washing Down the Sidewalk’**\
+`Cleaning up on the go, spotting dropped cash in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/07/13/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/13/crosswords/spelling-bee-forum.html
+
 **Jose Altuve embraces the culture he has cultivated, watches as Astros beat Rangers**\
 `Saturday was the 11th time Espada removed Altuve from left field in the ninth inning with a lead. "You have to rely on everybody."`\
 https://nytimes.com/athletic/6490738/2025/07/13/astros-rangers-jose-altuve-watches/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6490554/2025/07/13/psg-chelsea-fifa-club-world-cup-
 **Revealing the clubs who have missed out most on future transfer fees - and what that really shows**\
 `See where your club ranks in our searchable table of 'lost' future earnings on transfer deals`\
 https://nytimes.com/athletic/6487753/2025/07/13/premier-league-lost-transfer-fees/
-
-**Club World Cup final guide: Will Chelsea or PSG be crowned the best on Earth?**\
-`Sunday's match between the English and French sides promises to be a fascinating tactical battle`\
-https://nytimes.com/athletic/6488501/2025/07/13/club-world-cup-final-preview-guide/
-
-**LeBron supports Lakers courtside at summer league amid offseason uncertainty**\
-`James sat near L.A. assistant Greg St. Jean for most of the third quarter and spoke with other members of the coaching staff in attendance.`\
-https://nytimes.com/athletic/6490659/2025/07/13/lebron-lakers-summer-league-nba-offseason/
-
-**Sweden are functional, harmonious with no-frills on and off the pitch - it could take them far**\
-`The perennial semi-finalists set out their stall with their accommodation choice in Switzerland and their low-key approach is working so far`\
-https://nytimes.com/athletic/6490519/2025/07/13/sweden-euro-2025-germany/
-
-**Elanga gone and Gibbs-White going? Nottingham Forest are ready to fight after transfer shock**\
-`Nuno Espirito Santo's side returned to action on Saturday but it is off-field events that are dominating thoughts at the City Ground`\
-https://nytimes.com/athletic/6490179/2025/07/13/nottingham-forest-elanga-gibbs-white/
-
-**How Brazil won the 1962 World Cup: With Garrincha coming to the fore after Pele injury**\
-`The 1962 tournament, hosted in Chile, is up there with the least fabled editions of the tournament - but why?`\
-https://nytimes.com/athletic/6470922/2025/07/13/how-brazil-won-the-1962-world-cup-with-garrincha-coming-to-the-fore-after-pele-injury/
 

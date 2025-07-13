@@ -1,3 +1,23 @@
+**England vs Wales Euro 2025 odds, prediction: Lionesses in position to advance**\
+`England's Euro 2025 group finale is against neighbouring Wales. The Lionesses are heavily favoured to win and advance.`\
+https://nytimes.com/athletic/6489140/2025/07/13/england-wales-euro-2025-odds-prediction/
+
+**New York City Set to Expand Minimum Pay Law for Delivery Workers**\
+`The City Council is expected to pass a package of bills to include nearly 20,000 grocery delivery workers in legislation that improved working conditions for food delivery workers.`\
+https://nytimes.com/2025/07/13/nyregion/instacart-doordash-shipt-minimum-pay.html
+
+**Climate Law Could Shape the Race for New York City’s Next Mayor**\
+`Zohran Mamdani, the Democratic nominee, has vowed to strictly enforce the measure, Local Law 97, which calls for potentially expensive upgrades to buildings to curb greenhouse emissions.`\
+https://nytimes.com/2025/07/13/nyregion/zohran-mamdani-climate-law-97.html
+
+**‘I Noticed a Building Handyman Washing Down the Sidewalk’**\
+`Cleaning up on the go, spotting dropped cash in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/07/13/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/13/crosswords/spelling-bee-forum.html
+
 **‘He’s Nuts, Your Trump.’ Canada Unites Against America.**\
 `America’s growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United States’ standing in the world.`\
 https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
