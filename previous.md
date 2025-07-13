@@ -1,3 +1,11 @@
+**Mohammed Kudus to Tottenham: Everything you need to know – TLDR**\
+`Spurs have signed Mohammed Kudus from London rivals West Ham - here, we break down the deal.`\
+https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfer/
+
+**Pulse: Awkward hosting and Flagg pops**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6490755/2025/07/13/baseballs-most-disappointing-team-is-forced-to-host/
+
 **The first and last night of the Wimbledon queue: 'We are all watching out for each other'**\
 `The queue for grounds passes is one of Wimbledon's institutions, from the opening night to the close.`\
 https://nytimes.com/athletic/6490751/2025/07/13/wimbledon-queue-guide-rules/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/13/world/middleeast/gaza-israel-market.html
 **40 Years After Live Aid, It’s Still Personal for Bob Geldof**\
 `The rock star-turned-activist reflects on the 1985 benefit concert and why it could not happen now.`\
 https://nytimes.com/2025/07/13/arts/music/live-aid-bob-geldof-anniversary.html
-
-**What Is a D.O.?**\
-`We explain how to pick a doctor.`\
-https://nytimes.com/2025/07/13/briefing/what-is-a-do.html
-
-**Ronny Mauricio's bat and voice emerging for playoff-chasing Mets**\
-`Through 28 games after his June 3 call-up, Mauricio owns a .696 OPS with four home runs, and he has a .797 OPS over his past 15 games.`\
-https://nytimes.com/athletic/6490643/2025/07/13/mets-playoff-chase-ronny-mauricio/
 

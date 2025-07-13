@@ -1,3 +1,11 @@
+**Mohammed Kudus to Tottenham: Everything you need to know – TLDR**\
+`Spurs have signed Mohammed Kudus from London rivals West Ham - here, we break down the deal.`\
+https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfer/
+
+**Pulse: Awkward hosting and Flagg pops**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6490755/2025/07/13/baseballs-most-disappointing-team-is-forced-to-host/
+
 **The first and last night of the Wimbledon queue: 'We are all watching out for each other'**\
 `The queue for grounds passes is one of Wimbledon's institutions, from the opening night to the close.`\
 https://nytimes.com/athletic/6490751/2025/07/13/wimbledon-queue-guide-rules/
