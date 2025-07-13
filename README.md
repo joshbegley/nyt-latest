@@ -1,3 +1,7 @@
+**Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
+`âYou have to be feared in this world,â President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
+https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
+
 **Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
 `The players last met when Clark's Iowa beat Bueckers' UConn in the 2024 Final Four.`\
 https://nytimes.com/athletic/6491400/2025/07/13/clark-bueckers-fever-wings-wnba/
@@ -19,11 +23,11 @@ https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
 
 **South African President Opens Corruption Inquiry of Police Leader**\
-`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the country’s embattled government.`\
+`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the countryâs embattled government.`\
 https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
 
 **Children Killed in Israeli Strike on Water Point in Gaza, Officials Say**\
-`The Israeli military said that a “technical error” had caused a munition — intended for an Islamic Jihad militant — to land dozens of meters from its target.`\
+`The Israeli military said that a âtechnical errorâ had caused a munition â intended for an Islamic Jihad militant â to land dozens of meters from its target.`\
 https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza-war.html
 
 **State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/us/kentucky-shooting-church-state-trooper.html
 **Chris Gotterup bests Rory McIlroy at Scottish Open for second PGA tour win**\
 `The duo was tied entering the back nine, but McIlroy failed to convert a birdie putt as Gotterup finished with three birdies and a bogey.`\
 https://nytimes.com/athletic/6491283/2025/07/13/chris-gotterup-rory-mcilroy-scottish-open/
-
-**FIFA claims consensus over rest periods; FIFPRO criticise 'authoritarian' decisions**\
-`The issue of increased player workload has been a key discussion point around the expanded Club World Cup.`\
-https://nytimes.com/athletic/6490908/2025/07/13/fifa-fifpro-player-workload-rest-meeting/
 
