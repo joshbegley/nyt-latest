@@ -1,4 +1,8 @@
 **For Families of Air India Crash Victims, Report Brings No Closure**\
+`A preliminary assessment in last month’s disaster focusing on fuel being cut to both engines only deepened the mystery for people grieving loved ones.`\
+https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
+
+**For Families of Air India Crash Victims, Report Brings No Closure**\
 `A preliminary assessment in last month’s disaster pointing to pilot action only deepened the mystery for people grieving loved ones.`\
 https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
 
