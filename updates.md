@@ -1,3 +1,11 @@
+**Nationals pick Eli Willits with the No. 1 selection of the 2025 MLB Draft**\
+`Willits, 17, is the son of former Angels outfielder Reggie and is the youngest in his draft class.`\
+https://nytimes.com/athletic/6491745/2025/07/13/eli-willits-number-one-pick-mlb-draft-nationals/
+
+**How Chelsea won the Club World Cup: Big bonuses, training-ground deals and 'scary' Palmer**\
+`The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
+https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
+
 **How Chelsea won the Club World Cup: Big bonuses, training ground deals and 'scary' Palmer**\
 `The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
 https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
