@@ -1,3 +1,11 @@
+**Muhammadu Buhari, Nigeria’s Former President, Dies at 82**\
+`A former military strongman, he won one democratic election in 2015, and another in 2019, but struggled to make good on promises to tackle corruption and terrorism.`\
+https://nytimes.com/2025/07/13/obituaries/muhammadu-buhari-nigeria-obituary.html
+
+**Why Jannik Sinner's Wimbledon title takes his Carlos Alcaraz rivalry somewhere new**\
+`Sinner's Wimbledon title is the ultimate vindication of an unflappable mindset paying dividends in the biggest moments, even after defeats.`\
+https://nytimes.com/athletic/6491623/2025/07/13/tennis-sinner-wimbledon-alcaraz-rivalry-head-to-head/
+
 **Nationals pick Eli Willits with the No. 1 selection of the 2025 MLB Draft**\
 `Willits, 17, is the son of former Angels outfielder Reggie and is the youngest in his draft class.`\
 https://nytimes.com/athletic/6491745/2025/07/13/eli-willits-number-one-pick-mlb-draft-nationals/

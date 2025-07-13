@@ -1,3 +1,7 @@
+**Rockies pick Ethan Holliday, son of Matt, with No. 4 selection in MLB Draft**\
+`Holliday was rated as the top prospect in the draft by The Athletic's Keith Law.`\
+https://nytimes.com/athletic/6491476/2025/07/13/mlb-draft-ethan-holliday-rockies/
+
 **Muhammadu Buhari, Nigeria’s Former President, Dies at 82**\
 `A former military strongman, he won one democratic election in 2015, and another in 2019, but struggled to make good on promises to tackle corruption and terrorism.`\
 https://nytimes.com/2025/07/13/obituaries/muhammadu-buhari-nigeria-obituary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-wor
 **Penguins acquire Arturs Silovs from Canucks for Chase Stillman, draft pick**\
 `Silovs recently backstopped AHL Abbotsford to a 2025 Calder Cup championship.`\
 https://nytimes.com/athletic/6491503/2025/07/13/penguins-canucks-arturs-silovs-trade/
-
-**Monday Briefing: America’s Brain Drain and the World**\
-`Plus, Jannik Sinner wins Wimbledon.`\
-https://nytimes.com/2025/07/13/briefing/harvard-science-brain-drain-us-rare-earths-eu-trade.html
 
