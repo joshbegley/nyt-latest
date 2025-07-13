@@ -1,3 +1,7 @@
+**Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
+`“You have to be feared in this world,” President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
+https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
+
 **Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
 `The players last met when Clark's Iowa beat Bueckers' UConn in the 2024 Final Four.`\
 https://nytimes.com/athletic/6491400/2025/07/13/clark-bueckers-fever-wings-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/us/kentucky-shooting-church-state-trooper.html
 **Chris Gotterup bests Rory McIlroy at Scottish Open for second PGA tour win**\
 `The duo was tied entering the back nine, but McIlroy failed to convert a birdie putt as Gotterup finished with three birdies and a bogey.`\
 https://nytimes.com/athletic/6491283/2025/07/13/chris-gotterup-rory-mcilroy-scottish-open/
-
-**FIFA claims consensus over rest periods; FIFPRO criticise 'authoritarian' decisions**\
-`The issue of increased player workload has been a key discussion point around the expanded Club World Cup.`\
-https://nytimes.com/athletic/6490908/2025/07/13/fifa-fifpro-player-workload-rest-meeting/
 
