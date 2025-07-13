@@ -1,3 +1,7 @@
+**The first and last night of the Wimbledon queue: 'We are all watching out for each other'**\
+`The queue for grounds passes is one of Wimbledon's institutions, from the opening night to the close.`\
+https://nytimes.com/athletic/6490751/2025/07/13/wimbledon-queue-guide-rules/
+
 **Angels, closer Kenley Jansen on 'mission' to avoid trade deadline sell-off, but is that prudent?**\
 `If it's in the mix, even just a little bit, this team, and its decision-makers, might be inclined to go for it.`\
 https://nytimes.com/athletic/6490680/2025/07/13/angels-kenley-jansen-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/briefing/what-is-a-do.html
 **Ronny Mauricio's bat and voice emerging for playoff-chasing Mets**\
 `Through 28 games after his June 3 call-up, Mauricio owns a .696 OPS with four home runs, and he has a .797 OPS over his past 15 games.`\
 https://nytimes.com/athletic/6490643/2025/07/13/mets-playoff-chase-ronny-mauricio/
-
-**A free-agent-to-be, Kyle Tucker is making the most of his year with the Cubs**\
-`In giving up 14 potential years of club control, the Cubs got one season to maximize Tucker’s talents and make their pitch. `\
-https://nytimes.com/athletic/6490495/2025/07/13/chicago-cubs-kyle-tucker-2025-all-star-game/
 
