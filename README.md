@@ -1,5 +1,5 @@
 **Noem Defends FEMA Response to Texas Floods**\
-`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was âfalse.â`\
+`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
 https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
 
 **Marta says desire to become a mother may threaten her 2027 World Cup**\
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6491375/2025/07/13/marta-brazil-world-cup-2027/
 https://nytimes.com/2025/07/13/us/politics/ex-secret-service-director-senate-report.html
 
 **Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
-`âYou have to be feared in this world,â President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
+`“You have to be feared in this world,” President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
 https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
 
 **Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
@@ -35,6 +35,6 @@ https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
 
 **South African President Opens Corruption Inquiry of Police Leader**\
-`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the countryâs embattled government.`\
+`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the country’s embattled government.`\
 https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
 

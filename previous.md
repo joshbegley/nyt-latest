@@ -1,5 +1,17 @@
+**Noem Defends FEMA Response to Texas Floods**\
+`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was âfalse.â`\
+https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
+
+**Marta says desire to become a mother may threaten her 2027 World Cup**\
+`Brazil hosts the women's competition for the first time in its history in 2027, by which point Marta will be aged 41.`\
+https://nytimes.com/athletic/6491375/2025/07/13/marta-brazil-world-cup-2027/
+
+**Ex-Secret Service Director Denies She Failed to Send Agents to Protect Trump**\
+`Kimberly A. Cheatle, who resigned after Donald J. Trump was grazed by a bullet as a candidate a year ago, pushed back against findings in a Senate report released on Sunday.`\
+https://nytimes.com/2025/07/13/us/politics/ex-secret-service-director-senate-report.html
+
 **Macron, Saying Freedom Has Never Been So Threatened, Boosts Military Spending**\
-`“You have to be feared in this world,” President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
+`âYou have to be feared in this world,â President Emmanuel Macron said, preparing France for an era in which it may no longer be able to count on the U.S.`\
 https://nytimes.com/2025/07/13/world/europe/macron-france-military-spending.html
 
 **Fever defeat Wings in first pro meeting between Caitlin Clark, Paige Bueckers**\
@@ -23,18 +35,6 @@ https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
 
 **South African President Opens Corruption Inquiry of Police Leader**\
-`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the country’s embattled government.`\
+`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the countryâs embattled government.`\
 https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
-
-**Children Killed in Israeli Strike on Water Point in Gaza, Officials Say**\
-`The Israeli military said that a “technical error” had caused a munition — intended for an Islamic Jihad militant — to land dozens of meters from its target.`\
-https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza-war.html
-
-**State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say**\
-`The episode, which left the shooter dead, ended at a church on Sunday in Lexington, Ky., the authorities said.`\
-https://nytimes.com/2025/07/13/us/kentucky-shooting-church-state-trooper.html
-
-**Chris Gotterup bests Rory McIlroy at Scottish Open for second PGA tour win**\
-`The duo was tied entering the back nine, but McIlroy failed to convert a birdie putt as Gotterup finished with three birdies and a bogey.`\
-https://nytimes.com/athletic/6491283/2025/07/13/chris-gotterup-rory-mcilroy-scottish-open/
 
