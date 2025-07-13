@@ -1,3 +1,7 @@
+**Nationals pick Eli Willits with the No. 1 selection of the 2025 MLB Draft**\
+`Willits, 17, is the son of former Angels outfielder Reggie and is the youngest in his draft class.`\
+https://nytimes.com/athletic/6491745/2025/07/13/eli-willits-number-one-pick-mlb-draft-nationals/
+
 **How Chelsea won the Club World Cup: Big bonuses, training-ground deals and 'scary' Palmer**\
 `The inside story of Chelsea's unlikely triumph in New Jersey that was 329 days in the making`\
 https://nytimes.com/athletic/6490171/2025/07/13/chelsea-club-world-cup-win-story/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6482568/2025/07/13/england-wales-euros-analysis/
 **NFLPA leadership backs Lloyd Howell amid concerns of conflict of interest**\
 `Howell joined The Carlyle Group in March 2023 to work in the firm’s aerospace and defense divisions, sources told The Athletic.`\
 https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group/
-
-**Noem Defends FEMA Response to Texas Floods**\
-`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
-https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
 
