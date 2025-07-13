@@ -1,3 +1,7 @@
+**Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
+`Cincinnati manager emotional after reaching milestone. “It’s not often I get a little choked up, and that hit me pretty hard,” he said.`\
+https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
+
 **Yankees takeaways from the first half: Trades for pitching, Anthony Volpe's struggles**\
 `How, specifically, could the Yankees get better in the second half of their season?`\
 https://nytimes.com/athletic/6491832/2025/07/13/yankees-first-half-trade-deadline-anthony-volpe/
