@@ -1,3 +1,7 @@
+**Tour de France stage nine: Van der Poel's epic breakaway, Merlier takes second win, will Almeida abandon impact Pogacar?**\
+`Analysis of the ninth stage of the 2025 Tour de France, which took the peloton from Chinon to Chateauroux`\
+https://nytimes.com/athletic/6490897/2025/07/13/tour-de-france-stage-nine-analysis/
+
 **With $217 Million in Ticket Sales, ‘Superman’ Helps Save Warner Bros., Too**\
 `The film is the latest part of a startling turnaround for the studio, which has now released five consecutive hits.`\
 https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.html

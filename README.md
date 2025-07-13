@@ -1,3 +1,7 @@
+**‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
+`German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
+https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
+
 **Tour de France stage nine: Van der Poel's epic breakaway, Merlier takes second win, will Almeida abandon impact Pogacar?**\
 `Analysis of the ninth stage of the 2025 Tour de France, which took the peloton from Chinon to Chateauroux`\
 https://nytimes.com/athletic/6490897/2025/07/13/tour-de-france-stage-nine-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6487782/2025/07/13/kitted-out-footballers-covet-no-
 **Get Some Halloumi and Get Griddlin’**\
 `The cheese gets crisp and browned (and deeply melty within), and plays beautifully with the corn and tomatoes in this five-star Melissa Clark recipe.`\
 https://nytimes.com/2025/07/13/dining/halloumi-recipes-for-summer.html
-
-**Evian Championship: Grace Kim shocks, beating Jeeno Thitikul in playoff**\
-`Kim, 24, eagled the final hole to force a playoff then hit a miracle shot on the first playoff hole.`\
-https://nytimes.com/athletic/6490987/2025/07/13/evian-championship-grace-kim-jeeno-thitikul-playoff/
 
