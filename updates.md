@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
+
+**‘He’s Nuts, Your Trump.’ Canada Unites Against America.**\
+`America’s growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United States’ standing in the world.`\
+https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
+
 **Modi Wants More Indians to Speak Hindi. Some States Are Shouting ‘No.’**\
 `States worry that the imposition of Hindi, the main language of northern India, would wipe out their cultural heritage.`\
 https://nytimes.com/2025/07/13/world/asia/india-modi-hindi.html

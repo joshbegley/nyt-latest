@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
+
+**‘He’s Nuts, Your Trump.’ Canada Unites Against America.**\
+`America’s growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United States’ standing in the world.`\
+https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
+
 **A Club World Cup final between PSG and Chelsea? This is the state of the game in 2025**\
 `The tournament is bankrolled by American and Middle Eastern investment; as is football globally. Where it goes from here is anyone's guess.`\
 https://nytimes.com/athletic/6490554/2025/07/13/psg-chelsea-fifa-club-world-cup-final-trump/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6470922/2025/07/13/how-brazil-won-the-1962-world-cu
 **Leeds are building a team of giants to battle relegation. Can it work?**\
 `Three of Daniel Farke's four new arrivals so far are six-footers, the other is tall for his position. The promoted club clearly have a plan`\
 https://nytimes.com/athletic/6489373/2025/07/13/leeds-united-giant-transfer-analysis-premier-league/
-
-**Modi Wants More Indians to Speak Hindi. Some States Are Shouting ‘No.’**\
-`States worry that the imposition of Hindi, the main language of northern India, would wipe out their cultural heritage.`\
-https://nytimes.com/2025/07/13/world/asia/india-modi-hindi.html
-
-**Quote of the Day: Corpses and Carcasses in the Fields of Kursk**\
-`Quotation of the Day for Sunday, July 13, 2025`\
-https://nytimes.com/2025/07/13/pageoneplus/quote-of-the-day-corpses-and-carcasses-in-the-fields-of-kursk.html
 
