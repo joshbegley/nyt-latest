@@ -1,3 +1,7 @@
+**American teenager Quincy Wilson breaks under-18 400m record for fourth time**\
+`The 17-year-old became the youngest male track and field Olympic gold medallist in history after competing in the 4x400m in Paris last year`\
+https://nytimes.com/athletic/6490805/2025/07/13/teenager-quincy-wilson-under-18-400m-worlds-best/
+
 **France Announces Agreement to Give New Caledonia More Autonomy**\
 `There were violent protests against French rule in the semiautonomous Pacific territory last year. The agreement would create a new state within the French Republic.`\
 https://nytimes.com/2025/07/13/world/asia/france-new-caledonia-agreement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490794/2025/07/13/alcaraz-sinner-wimbledon-final/
 **The New York Times International Edition in Print for Monday, July 14, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/13/todays-new-york-times-international-edition
-
-**American Allies Want to Redraw the World’s Trade Map, Minus the U.S.**\
-`Facing growing chaos, the European Union and numerous other countries are seeking to forge a global trading nexus that is less vulnerable to American tariffs.`\
-https://nytimes.com/2025/07/13/world/europe/trump-tariffs-trade-europe-us.html
 
