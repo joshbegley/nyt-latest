@@ -1,5 +1,5 @@
 **Mohammed Kudus to Tottenham: Everything you need to know – TLDR**\
-`Spurs have signed Mohammed Kudus from London rivals West Ham - here, we break down the deal.`\
+`Spurs have signed the 24-year-old forward from London rivals West Ham - here, we break down the deal`\
 https://nytimes.com/athletic/6483754/2025/07/13/mohammed-kudus-tottenham-transfer/
 
 **Pulse: Awkward hosting and Flagg pops**\
