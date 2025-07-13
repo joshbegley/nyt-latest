@@ -1,3 +1,23 @@
+**For Families of Air India Crash Victims, Report Brings No Closure**\
+`A preliminary assessment in last monthâs disaster focusing on fuel being cut to both engines only deepened the mystery for people grieving loved ones.`\
+https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
+
+**Climate Law Could Shape the Race for New York Cityâs Next Mayor**\
+`Zohran Mamdani, the Democratic nominee, has vowed to strictly enforce the measure, Local Law 97, which calls for potentially expensive upgrades to buildings to curb greenhouse emissions.`\
+https://nytimes.com/2025/07/13/nyregion/zohran-mamdani-climate-law-97.html
+
+**âI Noticed a Building Handyman Washing Down the Sidewalkâ**\
+`Cleaning up on the go, spotting dropped cash in Brooklyn and more reader tales of New York City in this weekâs Metropolitan Diary.`\
+https://nytimes.com/2025/07/13/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on todayâs puzzle? We can help.`\
+https://nytimes.com/2025/07/13/crosswords/spelling-bee-forum.html
+
+**âHeâs Nuts, Your Trump.â Canada Unites Against America.**\
+`Americaâs growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United Statesâ standing in the world.`\
+https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
+
 **Club World Cup final odds and prediction: PSG heavily favoured against Chelsea**\
 `PSG have cruised through much of the Club World Cup and are heavily favoured to beat Chelsea in Sunday's final.`\
 https://nytimes.com/athletic/6486422/2025/07/13/psg-chelsea-club-world-cup-final-odds-prediction/
