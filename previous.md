@@ -1,4 +1,4 @@
-**Israeli Strike in Gaza City Kills at Least 11 People**\
+**Israeli Strike in Gaza City Kills at Least 11 People, Officials Say**\
 `Gaza’s Civil Defense, an emergency rescue group, said that dozens were also wounded when Israel’s military struck a crowded downtown junction.`\
 https://nytimes.com/2025/07/13/world/middleeast/gaza-israel-market.html
 
