@@ -1,3 +1,7 @@
+**NFLPA leadership backs Lloyd Howell amid concerns of conflict of interest**\
+`Howell joined The Carlyle Group in March 2023 to work in the firm’s aerospace and defense divisions, sources told The Athletic.`\
+https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group/
+
 **Noem Defends FEMA Response to Texas Floods**\
 `The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
 https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/sports/cycling/samuel-abt-dead.html
 **How controversial gamesmanship ignited the series between England and India**\
 `Controversy and provocation at Lord's has ignited the series between India and England which had been played in the most amicable spirit`\
 https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
-
-**South African President Opens Corruption Inquiry of Police Leader**\
-`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the country’s embattled government.`\
-https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
 
