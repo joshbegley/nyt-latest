@@ -1,3 +1,7 @@
+**Modi Wants More Indians to Speak Hindi. Some States Are Shouting âNo.â**\
+`States worry that the imposition of Hindi, the main language of northern India, would wipe out their cultural heritage.`\
+https://nytimes.com/2025/07/13/world/asia/india-modi-hindi.html
+
 **A Club World Cup final between PSG and Chelsea? This is the state of the game in 2025**\
 `The tournament is bankrolled by American and Middle Eastern investment; as is football globally. Where it goes from here is anyone's guess.`\
 https://nytimes.com/athletic/6490554/2025/07/13/psg-chelsea-fifa-club-world-cup-final-trump/
