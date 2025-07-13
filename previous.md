@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, July 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/13/todays-new-york-times-international-edition
+
 **American Allies Want to Redraw the World’s Trade Map, Minus the U.S.**\
 `Facing growing chaos, the European Union and numerous other countries are seeking to forge a global trading nexus that is less vulnerable to American tariffs.`\
 https://nytimes.com/2025/07/13/world/europe/trump-tariffs-trade-europe-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/climate/floods-trump-cuts-disaster-preparedness-f
 **Why Trump’s Abraham Accords Have Not Meant Mideast Peace**\
 `The 2020 agreements addressed diplomacy and commerce, not conflicts or the Palestinians. Predictions that the deals would produce regional peace were baseless, analysts say.`\
 https://nytimes.com/2025/07/13/world/middleeast/abraham-accords-peace-trump-israel-netanyahu.html
-
-**How the Democrats Lost on Transgender Issues**\
-`Charles Homans, a New York Times reporter who covers national politics, describes how the Democrats’ dilemma with transgender issues reflects their broader struggles after losses in 2024.`\
-https://nytimes.com/video/us/politics/100000010272916/how-the-democrats-lost-on-transgender-issues.html
 

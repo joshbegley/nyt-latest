@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, July 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/13/todays-new-york-times-international-edition
+
 **American Allies Want to Redraw the World’s Trade Map, Minus the U.S.**\
 `Facing growing chaos, the European Union and numerous other countries are seeking to forge a global trading nexus that is less vulnerable to American tariffs.`\
 https://nytimes.com/2025/07/13/world/europe/trump-tariffs-trade-europe-us.html
