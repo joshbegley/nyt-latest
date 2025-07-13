@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6490738/2025/07/13/astros-rangers-jose-altuve-watch
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
 
-**‘He’s Nuts, Your Trump.’ Canada Unites Against America.**\
-`America’s growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United States’ standing in the world.`\
+**âHeâs Nuts, Your Trump.â Canada Unites Against America.**\
+`Americaâs growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United Statesâ standing in the world.`\
 https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
 
 **A Club World Cup final between PSG and Chelsea? This is the state of the game in 2025**\
