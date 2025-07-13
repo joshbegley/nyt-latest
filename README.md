@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6491628/2025/07/13/tennis-carlos-alcaraz-grand-slam
 `Boston is only the fourth team to enter the All-Star break on a 10-plus-game winning streak. Here's who got them here.`\
 https://nytimes.com/athletic/6491618/2025/07/13/red-sox-top-contributors-first-half-all-star-break/
 
-**Chelsea 3 PSG 0 - Palmer's brilliance, $100m prize money, President Trump and MetLife's dress rehearsal**\
+**Chelsea 3 PSG 0 - Palmerâs brilliance, President Trump, $100m prize money - and Luis Enrique strikes Joao Pedro**\
 `Chelsea caused an upset in the Club World Cup final, dispatching PSG at the MetLife Stadium - here we break down the action.`\
 https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-world-cup/
 
@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6488185/2025/07/13/chelsea-psg-cole-palmer-club-wor
 `Silovs recently backstopped AHL Abbotsford to a 2025 Calder Cup championship.`\
 https://nytimes.com/athletic/6491503/2025/07/13/penguins-canucks-arturs-silovs-trade/
 
-**Monday Briefing: America’s Brain Drain and the World**\
+**Monday Briefing: Americaâs Brain Drain and the World**\
 `Plus, Jannik Sinner wins Wimbledon.`\
 https://nytimes.com/2025/07/13/briefing/harvard-science-brain-drain-us-rare-earths-eu-trade.html
 
@@ -23,11 +23,11 @@ https://nytimes.com/2025/07/13/briefing/harvard-science-brain-drain-us-rare-eart
 https://nytimes.com/athletic/6482568/2025/07/13/england-wales-euros-analysis/
 
 **NFLPA leadership backs Lloyd Howell amid concerns of conflict of interest**\
-`Howell joined The Carlyle Group in March 2023 to work in the firm’s aerospace and defense divisions, sources told The Athletic.`\
+`Howell joined The Carlyle Group in March 2023 to work in the firmâs aerospace and defense divisions, sources told The Athletic.`\
 https://nytimes.com/athletic/6491352/2025/07/13/lloyd-howell-nflpa-carlyle-group/
 
 **Noem Defends FEMA Response to Texas Floods**\
-`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was “false.”`\
+`The homeland security secretary said a report that thousands of calls to a disaster hotline went unanswered because of staffing cuts was âfalse.â`\
 https://nytimes.com/2025/07/13/us/politics/kristi-noem-trump-texas-floods-fema.html
 
 **Marta says desire to become a mother may threaten her 2027 World Cup**\
