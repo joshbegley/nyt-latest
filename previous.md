@@ -1,3 +1,7 @@
+**Trump Pleads With Followers to Back Bondi in Dispute Over Epstein Inquiry**\
+`In a long social media post, President Trump said that Attorney General Pam Bondi was doing a “FANTASTIC JOB,” and told his followers to “not waste Time and Energy” on the Jeffrey Epstein case.`\
+https://nytimes.com/2025/07/12/us/politics/trump-bondi-epstein-bongino.html
+
 **Cooper Flagg, Mavericks fall to Dylan Harper, Spurs at NBA Summer League**\
 `There were a few moments when the two players squared off and a series of physical possessions were highlighted.`\
 https://nytimes.com/athletic/6490527/2025/07/12/cooper-flagg-dylan-harper-mavericks-spurs-summer-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490048/2025/07/12/nottingham-forest-transfer-news-
 **Andy Carroll joins sixth-tier Dagenham & Redbridge**\
 `Dagenham & Redbridge also announced on Saturday that the club had been bought by a consortium of prominent Qatari private investors.`\
 https://nytimes.com/athletic/6490443/2025/07/12/andy-carroll-transfer-dagenham-and-redbridge/
-
-**Latest tariffs apparently do not apply to cars.**\
-`Cars and trucks a`\
-https://nytimes.com/live/2025/07/12/us/trump-news/latest-tariffs-apparently-do-not-apply-to-cars
 
