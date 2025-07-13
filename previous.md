@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Nari**\
+`See the likely path and wind arrival times for Nari`\
+https://nytimes.com/interactive/2025/07/13/weather/nari-map-path-tracker.html
+
 **MLB All-Star week 2025: The Athletic takes you through the Midsummer Classic**\
 `Want to know what it's like to cover the All-Star Game or have a burning question for an All-Star? The Athletic has you covered.`\
 https://nytimes.com/athletic/6490346/2025/07/13/mlb-all-star-week-2025-live-updates-atlanta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490908/2025/07/13/fifa-fifpro-player-workload-rest
 **Game, Set, Match: Jannik Sinner beats Carlos Alcaraz to win first Wimbledon title**\
 `Five weeks after their French Open classic, Sinner outplayed Alcaraz from the baseline to win his first Wimbledon title.`\
 https://nytimes.com/athletic/6490930/2025/07/13/sinner-alcaraz-wimbledon-final-result-analysis/
-
-**Rare Pokémon Cards Worth More Than $100,000 Stolen From Shop**\
-`A burglar used a hammer to smash open the door of a Massachusetts shop and stole rare Pokémon cards and vintage box sets, a store owner said.`\
-https://nytimes.com/2025/07/13/us/pokemon-cards-stolen-massachusetts.html
 

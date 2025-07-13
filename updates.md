@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Nari**\
+`See the likely path and wind arrival times for Nari`\
+https://nytimes.com/interactive/2025/07/13/weather/nari-map-path-tracker.html
+
 **MLB All-Star week 2025: The Athletic takes you through the Midsummer Classic**\
 `Want to know what it's like to cover the All-Star Game or have a burning question for an All-Star? The Athletic has you covered.`\
 https://nytimes.com/athletic/6490346/2025/07/13/mlb-all-star-week-2025-live-updates-atlanta/
