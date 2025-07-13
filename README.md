@@ -1,3 +1,7 @@
+**Club World Cup final odds and prediction: PSG heavily favoured against Chelsea**\
+`PSG have cruised through much of the Club World Cup and are heavily favoured to beat Chelsea in Sunday's final.`\
+https://nytimes.com/athletic/6486422/2025/07/13/psg-chelsea-club-world-cup-final-odds-prediction/
+
 **For Families of Air India Crash Victims, Report Brings No Closure**\
 `A preliminary assessment in last month’s disaster focusing on fuel being cut to both engines only deepened the mystery for people grieving loved ones.`\
 https://nytimes.com/2025/07/13/world/asia/air-india-crash-report-victim-families.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/13/todays-new-york-times
 **‘He’s Nuts, Your Trump.’ Canada Unites Against America.**\
 `America’s growing discord with Canada exemplifies the extraordinary damage President Trump is wreaking on the United States’ standing in the world.`\
 https://nytimes.com/2025/07/13/opinion/canada-america-trump.html
-
-**A Club World Cup final between PSG and Chelsea? This is the state of the game in 2025**\
-`The tournament is bankrolled by American and Middle Eastern investment; as is football globally. Where it goes from here is anyone's guess.`\
-https://nytimes.com/athletic/6490554/2025/07/13/psg-chelsea-fifa-club-world-cup-final-trump/
 
