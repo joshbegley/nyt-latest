@@ -1,3 +1,19 @@
+**Rare PokÃ©mon Cards Worth More Than $100,000 Stolen From Shop**\
+`A burglar used a hammer to smash open the door of a Massachusetts shop and stole rare PokÃ©mon cards and vintage box sets, a store owner said.`\
+https://nytimes.com/2025/07/13/us/pokemon-cards-stolen-massachusetts.html
+
+**âNazi Creekâ in Alaska Gets a New Name After More Than 70 Years**\
+`German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
+https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
+
+**With $217 Million in Ticket Sales, âSupermanâ Helps Save Warner Bros., Too**\
+`The film is the latest part of a startling turnaround for the studio, which has now released five consecutive hits.`\
+https://nytimes.com/2025/07/13/business/media/superman-warner-bros-box-office.html
+
+**How Trumpâs Latest Tariff Threat Risks Deeper Damage to Europeâs Economy**\
+`Economists had already downgraded growth for the European Union, and the new duties would hit industries there especially hard. Companies are looking for ways to blunt the impact.`\
+https://nytimes.com/2025/07/13/business/trump-tariffs-europe-economy.html
+
 **‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
 `German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
 https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
