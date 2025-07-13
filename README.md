@@ -1,3 +1,11 @@
+**How controversial gamesmanship help ignited the series between England and India**\
+`Controversy and provocation at Lord's has ignited the series between India and England which had been played in the most amicable spirit`\
+https://nytimes.com/athletic/6491191/2025/07/13/england-india-series-lords-day-four/
+
+**South African President Opens Corruption Inquiry of Police Leader**\
+`The police minister was suspended amid allegations that he had protected figures with ties to a criminal syndicate, adding pressure on the country’s embattled government.`\
+https://nytimes.com/2025/07/13/world/africa/south-africa-police-corruption-ramaphosa.html
+
 **Children Killed in Israeli Strike on Water Point in Gaza, Officials Say**\
 `The Israeli military said that a “technical error” had caused a munition — intended for an Islamic Jihad militant — to land dozens of meters from its target.`\
 https://nytimes.com/video/world/middleeast/100000010282391/nuseirat-strikes-gaza-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/13/us/trump-news/the-nato-leader-will-meet-with
 **Arsenal in process of completing deal for Gyokeres**\
 `The 27-year-old is in-demand after scoring 54 goals in 52 games last season for Sporting.`\
 https://nytimes.com/athletic/6476054/2025/07/13/arsenal-viktor-gyokeres-transfer/
-
-**‘Nazi Creek’ in Alaska Gets a New Name After More Than 70 Years**\
-`German soldiers never stepped foot on the speck of land at the far end of the Aleutian Islands during World War II, but the name persisted.`\
-https://nytimes.com/2025/07/13/us/alaska-nazi-creek-name-change.html
-
-**Tour de France stage nine: Van der Poel's epic breakaway, Merlier takes second win, will Almeida abandon impact Pogacar?**\
-`Analysis of the ninth stage of the 2025 Tour de France, which took the peloton from Chinon to Chateauroux`\
-https://nytimes.com/athletic/6490897/2025/07/13/tour-de-france-stage-nine-analysis/
 
