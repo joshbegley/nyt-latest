@@ -1,4 +1,20 @@
 **Trump Pleads With Followers to Back Bondi in Dispute Over Epstein Inquiry**\
+`In a long social media post, President Trump said that Attorney General Pam Bondi was doing a “FANTASTIC JOB,” and told his followers to “not waste Time and Energy” on the Jeffrey Epstein case.`\
+https://nytimes.com/2025/07/12/us/politics/trump-bondi-epstein-bongino.html
+
+**Shohei Ohtani is bullying hitters and trusting his fastball. The Dodgers needed it**\
+`"You could see it … that different demeanor that he carries on days that he pitches," Dodgers manager Dave Roberts said.`\
+https://nytimes.com/athletic/6490560/2025/07/12/dodgers-win-giants-shohei-ohtani-hitters-fastball/
+
+**Tunnel Vision**\
+`You’ll need all of your powers of perception to get through Brandon Koppy’s latest Sunday puzzle.`\
+https://nytimes.com/2025/07/12/crosswords/daily-puzzle-2025-07-13.html
+
+**Trump’s 30 percent tariff threat provokes anger and frustration in Europe.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/07/12/us/trump-news/trumps-percent-tariff-threat-provokes-anger-and-frustration-in-europe
+
+**Trump Pleads With Followers to Back Bondi in Dispute Over Epstein Inquiry**\
 `In a long social media post, President Trump said that Attorney General Pam Bondi was doing a âFANTASTIC JOB,â and told his followers to ânot waste Time and Energyâ on the Jeffrey Epstein case.`\
 https://nytimes.com/2025/07/12/us/politics/trump-bondi-epstein-bongino.html
 
