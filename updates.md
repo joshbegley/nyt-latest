@@ -1,3 +1,23 @@
+**A Club World Cup final between PSG and Chelsea? This is the state of the game in 2025**\
+`The tournament is bankrolled by American and Middle Eastern investment; as is football globally. Where it goes from here is anyone's guess.`\
+https://nytimes.com/athletic/6490554/2025/07/13/psg-chelsea-fifa-club-world-cup-final-trump/
+
+**Revealing the clubs who have missed out most on future transfer fees - and what that really shows**\
+`See where your club ranks in our searchable table of 'lost' future earnings on transfer deals`\
+https://nytimes.com/athletic/6487753/2025/07/13/premier-league-lost-transfer-fees/
+
+**Club World Cup final guide: Will Chelsea or PSG be crowned the best on Earth?**\
+`Sunday's match between the English and French sides promises to be a fascinating tactical battle`\
+https://nytimes.com/athletic/6488501/2025/07/13/club-world-cup-final-preview-guide/
+
+**LeBron supports Lakers courtside at summer league amid offseason uncertainty**\
+`James sat near L.A. assistant Greg St. Jean for most of the third quarter and spoke with other members of the coaching staff in attendance.`\
+https://nytimes.com/athletic/6490659/2025/07/13/lebron-lakers-summer-league-nba-offseason/
+
+**Sweden are functional, harmonious with no-frills on and off the pitch - it could take them far**\
+`The perennial semi-finalists set out their stall with their accommodation choice in Switzerland and their low-key approach is working so far`\
+https://nytimes.com/athletic/6490519/2025/07/13/sweden-euro-2025-germany/
+
 **Elanga gone and Gibbs-White going? Nottingham Forest are ready to fight after transfer shock**\
 `Nuno Espirito Santo's side returned to action on Saturday but it is off-field events that are dominating thoughts at the City Ground`\
 https://nytimes.com/athletic/6490179/2025/07/13/nottingham-forest-elanga-gibbs-white/
