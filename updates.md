@@ -1,3 +1,7 @@
+**NASCAR clears Ty Gibbs, No. 54 team after pit road incident at Sonoma**\
+`NASCAR said Ty Gibbs broke no rules when he clipped a tire being held by the RFK Racing No. 6 team's tire carrier during Sunday's race.`\
+https://nytimes.com/athletic/6492251/2025/07/14/nascar-ty-gibbs-brad-keselowski-pit-road-incident-sonoma/
+
 **Sabres mailbag: Next contracts for Benson, Kesselring? Remaining free agents?**\
 `The NHL offseason is slowing down, and the Sabres are in a holding pattern with some work still to do.`\
 https://nytimes.com/athletic/6488385/2025/07/14/sabres-benson-kesselring-contracts/
