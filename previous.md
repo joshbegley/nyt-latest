@@ -1,3 +1,19 @@
+**The Windup: Draft stunners and All-Star week**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6492550/2025/07/14/all-star-guide-mlb-draft-the-windup/
+
+**Democrats Accuse Trump of Ceding Global Influence to China**\
+`The minority members of the Senate Foreign Relations Committee say the White House is undercutting American soft power and letting China fill the void.`\
+https://nytimes.com/2025/07/14/us/politics/democrats-china-report-trump.html
+
+**Indiana Fever All-Star Aliyah Boston joins Boston Legacy FC investor group**\
+`Aliyah Boston's investment came from a desire to give back to a place that supporter her through high school`\
+https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-boston-legacy-fc-investor-group/
+
+**After their veteran additions, here is the Sharks' projected depth chart**\
+`San Jose has added several veterans who might be able to help guide the young emerging core.`\
+https://nytimes.com/athletic/6487384/2025/07/14/sharks-depth-chart-2025/
+
 **USMNT forward Sargent in talks over potential Wolfsburg move**\
 `The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
 https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6488385/2025/07/14/sabres-benson-kesselring-contrac
 **Who is Roony Bardghji and what are Barcelona's plans for him?**\
 `Roony is a Football Manager wonderkid who wants to be "the best player in the world". This is what you need to know about him`\
 https://nytimes.com/athletic/6465558/2025/07/14/barcelona-roony-bardghji-transfer/
-
-**Chargers training camp storylines, Part 1: Evaluating Zion Johnson; Najee Harris' status**\
-`The Chargers have invested a lot of time this offseason experimenting with Johnson at center. Will it work out? `\
-https://nytimes.com/athletic/6489059/2025/07/14/chargers-training-camp-zion-johnson-najee-harris/
-
-**The Giants drafted Gavin Kilen, a crowd-pleaser and analyst favorite**\
-`Teams almost never draft for need, but Kilen just happens to be exactly the kind of player the Giants need right now.`\
-https://nytimes.com/athletic/6492335/2025/07/14/giants-gavin-kilen-mlb-draft/
-
-**Tre Johnson, Alex Sarr and the Wizards found good vibes in summer-league win**\
-`Washington won its second summer-league game, erasing the taste of its lackluster opener. `\
-https://nytimes.com/athletic/6492494/2025/07/14/tre-johnson-alex-sarr-summer-league/
-
-**Sixers' roster being built to absorb the inevitable absence of superstar center Joel Embiid**\
-`"We have to figure out our rotations. We have to make sure that we're all healthy…and that we're all out there to play," Tyrese Maxey said.`\
-https://nytimes.com/athletic/6492482/2025/07/14/sixers-roster-trendon-watford-joel-embiid/
 

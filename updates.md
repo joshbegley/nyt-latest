@@ -1,3 +1,19 @@
+**The Windup: Draft stunners and All-Star week**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6492550/2025/07/14/all-star-guide-mlb-draft-the-windup/
+
+**Democrats Accuse Trump of Ceding Global Influence to China**\
+`The minority members of the Senate Foreign Relations Committee say the White House is undercutting American soft power and letting China fill the void.`\
+https://nytimes.com/2025/07/14/us/politics/democrats-china-report-trump.html
+
+**Indiana Fever All-Star Aliyah Boston joins Boston Legacy FC investor group**\
+`Aliyah Boston's investment came from a desire to give back to a place that supporter her through high school`\
+https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-boston-legacy-fc-investor-group/
+
+**After their veteran additions, here is the Sharks' projected depth chart**\
+`San Jose has added several veterans who might be able to help guide the young emerging core.`\
+https://nytimes.com/athletic/6487384/2025/07/14/sharks-depth-chart-2025/
+
 **USMNT forward Sargent in talks over potential Wolfsburg move**\
 `The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
 https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/

@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6492550/2025/07/14/all-star-guide-mlb-draft-the-win
 https://nytimes.com/2025/07/14/us/politics/democrats-china-report-trump.html
 
 **Indiana Fever All-Star Aliyah Boston joins Boston Legacy FC investor group**\
-`Aliyah Boston's investment came from a desire to give back to a place that supporter her through high school`\
+`Aliyah Boston's investment came from a desire to give back to a place that supported her through high school, she said.`\
 https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-boston-legacy-fc-investor-group/
 
 **After their veteran additions, here is the Sharks' projected depth chart**\
