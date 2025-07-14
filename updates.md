@@ -1,3 +1,23 @@
+**Something Only I Can See**\
+`A woman with muscular dystrophy who believes she has the same condition as an Olympic athlete, and more stories.`\
+https://nytimes.com/2025/07/13/podcasts/something-only-i-can-see-this-american-life-nyt-audio.html
+
+**Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
+`Cincinnati manager emotional after reaching milestone. âItâs not often I get a little choked up, and that hit me pretty hard,â he said.`\
+https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
+
+**Yankees takeaways from first half: Pitching help, Volpe's struggles, more**\
+`How, specifically, could the Yankees get better in the second half of their season?`\
+https://nytimes.com/athletic/6491832/2025/07/13/yankees-first-half-trade-deadline-anthony-volpe/
+
+**King Charles III Will Host Trump for U.K. State Visit in September**\
+`Buckingham Palace confirmed the dates of President Trumpâs trip to Britain, which will be his second state visit.`\
+https://nytimes.com/2025/07/13/world/europe/king-charles-trump-uk-state-visit.html
+
+**Excerpts From The Timesâs Interview With Biden on Clemency Decisions**\
+`The former president said he âmade every single one of thoseâ decisions and that Republicans were questioning them because âtheyâve done so badlyâ and wanted to shift the focus.`\
+https://nytimes.com/2025/07/13/us/politics/biden-clemency-interview.html
+
 **Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
 `Cincinnati manager emotional after reaching milestone. “It’s not often I get a little choked up, and that hit me pretty hard,” he said.`\
 https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
