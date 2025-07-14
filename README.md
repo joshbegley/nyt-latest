@@ -1,3 +1,7 @@
+**Snakes Use Smelly Musk to Keep Ants Out of Their Pants**\
+`Forget fangs full of venom — the backsides of serpents pack secretions volatile enough to kill insect invaders.`\
+https://nytimes.com/2025/07/14/science/snakes-fire-ants-musk.html
+
 **Watching the Men’s Final at Wimbledon With the Fashion Set**\
 `Text by Desiree Ibekwe and Ayesha Kazim`\
 https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
@@ -6,7 +10,7 @@ https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
 `Members of the lab, including the new chief A.I. officer, Alexandr Wang, have talked about abandoning Meta’s most powerful open source A.I. model in favor of developing a closed one.`\
 https://nytimes.com/2025/07/14/technology/meta-superintelligence-lab-ai.html
 
-**24 States Sue Trump Over $6.8 Billion Withheld from Education**\
+**24 States Sue Trump Over $6.8 Billion Withheld From Education**\
 `Providers say after-school programs and other services for the coming school year are threatened without the federal money, which was abruptly withheld.`\
 https://nytimes.com/2025/07/14/us/states-sue-trump-education-funds-afterschool.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383048/2025/07/14/hugo-ekitike-transfer-newcastle-
 **Officials in Flooded Texas Defend Response Amid Threats**\
 `A commissioner in Kerr County, where the worst flooding occurred, said people were “cursing us for our decisions.” Official evacuations did not occur for hours after the first Weather Service warning.`\
 https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
-
-**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
-`Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
-https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
 

@@ -1,3 +1,15 @@
+**Watching the Men’s Final at Wimbledon With the Fashion Set**\
+`Text by Desiree Ibekwe and Ayesha Kazim`\
+https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
+
+**Meta’s New Superintelligence Lab Is Discussing Major A.I. Strategy Changes**\
+`Members of the lab, including the new chief A.I. officer, Alexandr Wang, have talked about abandoning Meta’s most powerful open source A.I. model in favor of developing a closed one.`\
+https://nytimes.com/2025/07/14/technology/meta-superintelligence-lab-ai.html
+
+**24 States Sue Trump Over $6.8 Billion Withheld from Education**\
+`Providers say after-school programs and other services for the coming school year are threatened without the federal money, which was abruptly withheld.`\
+https://nytimes.com/2025/07/14/us/states-sue-trump-education-funds-afterschool.html
+
 **Cuomo to Fight On in Mayor’s Race After Bruising Primary Loss to Mamdani**\
 `Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary for New York City mayor.`\
 https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html

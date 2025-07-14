@@ -1,3 +1,15 @@
+**Watching the Men’s Final at Wimbledon With the Fashion Set**\
+`Text by Desiree Ibekwe and Ayesha Kazim`\
+https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
+
+**Meta’s New Superintelligence Lab Is Discussing Major A.I. Strategy Changes**\
+`Members of the lab, including the new chief A.I. officer, Alexandr Wang, have talked about abandoning Meta’s most powerful open source A.I. model in favor of developing a closed one.`\
+https://nytimes.com/2025/07/14/technology/meta-superintelligence-lab-ai.html
+
+**24 States Sue Trump Over $6.8 Billion Withheld from Education**\
+`Providers say after-school programs and other services for the coming school year are threatened without the federal money, which was abruptly withheld.`\
+https://nytimes.com/2025/07/14/us/states-sue-trump-education-funds-afterschool.html
+
 **Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
 `The deal follows Google’s $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
 https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
 **The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
-
-**Cuomo to Fight On in Mayor’s Race After Bruising Primary Loss to Mamdani**\
-`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary for New York City mayor.`\
-https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
-
-**Real Madrid complete signing of Carreras from Benfica**\
-`The Spain youth international has spent time at Manchester United, Preston North End, Grenada and Benfica since he was last at Madrid.`\
-https://nytimes.com/athletic/6487745/2025/07/14/real-madrid-complete-signing-of-alvaro-carreras-from-benfica/
-
-**Barcelona's Yamal facing investigation for presence of dwarves at party**\
-`Yamal celebrated turning 18 at a private party at a residence in Olivella, a small town 50 kilometres north west of Barcelona.`\
-https://nytimes.com/athletic/6493470/2025/07/14/lamine-yamal-dwarves-barcelona/
 
