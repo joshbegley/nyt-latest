@@ -1,3 +1,11 @@
+**Fire Breaks Out at Assisted Living Center in Massachusetts**\
+`Firefighters responding to a deadly fire at Gabriel House, an assisted living facility in Fall River, Mass., on Sunday night.`\
+https://nytimes.com/video/us/100000010282936/fire-gabriel-house-fall-river-massachusetts.html
+
+**Several Killed in Fire at Massachusetts Assisted Living Facility**\
+`The fire broke out on Sunday in the city of Fall River, a state official said. The exact number of victims was unclear.`\
+https://nytimes.com/2025/07/14/us/fire-gabriel-house-fall-river-massachusetts.html
+
 **The Tooth Fairy Is Real. She’s a Dentist in Seattle.**\
 `For 20 years, Dr. Purva Merchant has been answering letters from gaptoothed children and their parents — roughly 6,000 in all. “Happy growing up,” she typically replies.`\
 https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html
