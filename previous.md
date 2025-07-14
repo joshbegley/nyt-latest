@@ -1,3 +1,15 @@
+**Real Madrid complete signing of Carreras from Benfica**\
+`The Spain youth international has spent time at Manchester United, Preston North End, Grenada and Benfica since he was last at Madrid.`\
+https://nytimes.com/athletic/6487745/2025/07/14/real-madrid-complete-signing-of-alvaro-carreras-from-benfica/
+
+**Barcelona's Yamal facing investigation for presence of dwarves at party**\
+`Yamal celebrated turning 18 at a private party at a residence in Olivella, a small town 50 kilometres north west of Barcelona.`\
+https://nytimes.com/athletic/6493470/2025/07/14/lamine-yamal-dwarves-barcelona/
+
+**England match-winner Shoaib Bashir out of rest of India series with broken finger**\
+`Spin bowler took the last wicket as England went 2-1 up in the five-match series at Lord's, but will play no further part`\
+https://nytimes.com/athletic/6493533/2025/07/14/england-india-bashir-broken-finger/
+
 **Trump Promises to Help Europe Speed Weapons to Ukraine**\
 `“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
 https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6493116/2025/07/14/cal-raleigh-todd-father-home-run
 **The Importance of Vaccines for Children**\
 `Readers respond to articles about childhood vaccinations and a rise in measles cases. Also: Justice Amy Coney Barrett’s independent path.`\
 https://nytimes.com/2025/07/14/opinion/vaccines-children.html
-
-**More Woody Guthrie Songs? Yes, From a Trove of Homemade Recordings.**\
-`A new, intimate album will include 13 previously unheard songs and a rewrite of “This Land Is Your Land.”`\
-https://nytimes.com/2025/07/14/arts/music/woody-guthrie-tapes-woody-at-home.html
-
-**Could You Have Landed a Job at Vogue in the ’90s?**\
-`To work for Anna Wintour in Vogue's glory days, you had to know a little bit of everything. Take the quiz to find out if you would have made the grade.`\
-https://nytimes.com/interactive/2025/07/14/style/vogue-quiz-90s.html
-
-**The Economy Has Been Resilient. The New Round of Tariffs May Hit Harder.**\
-`The economy’s resilience so far to President Trump’s global trade war risks emboldening him and unleashing the sort of economic devastation that economists have long feared.`\
-https://nytimes.com/2025/07/14/us/politics/tariff-threats-us-economy.html
 

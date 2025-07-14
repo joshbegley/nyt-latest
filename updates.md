@@ -1,3 +1,15 @@
+**Real Madrid complete signing of Carreras from Benfica**\
+`The Spain youth international has spent time at Manchester United, Preston North End, Grenada and Benfica since he was last at Madrid.`\
+https://nytimes.com/athletic/6487745/2025/07/14/real-madrid-complete-signing-of-alvaro-carreras-from-benfica/
+
+**Barcelona's Yamal facing investigation for presence of dwarves at party**\
+`Yamal celebrated turning 18 at a private party at a residence in Olivella, a small town 50 kilometres north west of Barcelona.`\
+https://nytimes.com/athletic/6493470/2025/07/14/lamine-yamal-dwarves-barcelona/
+
+**England match-winner Shoaib Bashir out of rest of India series with broken finger**\
+`Spin bowler took the last wicket as England went 2-1 up in the five-match series at Lord's, but will play no further part`\
+https://nytimes.com/athletic/6493533/2025/07/14/england-india-bashir-broken-finger/
+
 **Trump Promises to Help Europe Speed Weapons to Ukraine**\
 `“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
 https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
