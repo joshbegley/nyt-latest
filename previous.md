@@ -1,3 +1,7 @@
+**Astros buck precedent and draft prep infielder Xavier Neyens with No. 21 pick**\
+`Neyens, 18, "has some of the best raw power of anyone in the high school class this year," The Athletic's Keith Law wrote.`\
+https://nytimes.com/athletic/6492187/2025/07/13/astros-draft-prep-infielder-xavier-neyens/
+
 **Padres draft Kruz Schoolcraft, again picking a high schooler in first round**\
 `Schoolcraft, 18, starred as a pitcher and first baseman for Sunset (Ore.) High.`\
 https://nytimes.com/athletic/6489303/2025/07/13/padres-draft-kruz-schoolcraft-no-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/13/podcasts/something-only-i-can-see-this-american-l
 **Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
 `Cincinnati manager emotional after reaching milestone. "It's not often I get a little choked up, and that hit me pretty hard," he said.`\
 https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
-
-**Yankees takeaways from first half: Pitching help, Volpe's struggles, more**\
-`How, specifically, could the Yankees get better in the second half of their season?`\
-https://nytimes.com/athletic/6491832/2025/07/13/yankees-first-half-trade-deadline-anthony-volpe/
 
