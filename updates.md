@@ -1,3 +1,11 @@
+**Trump Promises to Help Europe Speed Weapons to Ukraine**\
+`“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
+https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
+
+**How to Swim-Proof Your Hair**\
+`Expert advice from a surfer, a hairstylist and a model.`\
+https://nytimes.com/2025/07/14/t-magazine/swimming-hair-protection-tips.html
+
 **Atletico close to signing USMNT midfielder Cardoso from Real Betis**\
 `Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
 https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/

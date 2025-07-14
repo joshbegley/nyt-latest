@@ -1,3 +1,11 @@
+**Trump Promises to Help Europe Speed Weapons to Ukraine**\
+`“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
+https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
+
+**How to Swim-Proof Your Hair**\
+`Expert advice from a surfer, a hairstylist and a model.`\
+https://nytimes.com/2025/07/14/t-magazine/swimming-hair-protection-tips.html
+
 **Atletico close to signing USMNT midfielder Cardoso from Real Betis**\
 `Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
 https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/07/14/style/vogue-quiz-90s.html
 **The Economy Has Been Resilient. The New Round of Tariffs May Hit Harder.**\
 `The economy’s resilience so far to President Trump’s global trade war risks emboldening him and unleashing the sort of economic devastation that economists have long feared.`\
 https://nytimes.com/2025/07/14/us/politics/tariff-threats-us-economy.html
-
-**Dig for Children’s Remains Begins at Irish Home for Unwed Mothers**\
-`Experts are searching for the remains of hundreds of children who died at the institution run by Catholic nuns until 1961, including bodies disposed of in septic tanks.`\
-https://nytimes.com/2025/07/14/world/europe/ireland-excavation-children-tuam.html
-
-**Catherine, Princess of Wales, Dresses for a New (Life) Stage**\
-`Appearances at Wimbledon and a French state visit symbolize a new kind of style.`\
-https://nytimes.com/2025/07/14/style/catherine-princess-of-wales-fashion.html
 
