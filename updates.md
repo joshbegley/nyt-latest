@@ -1,3 +1,23 @@
+**Wolves confident of completing Arias transfer from Fluminense**\
+`The 27-year-old is nearing a deal to join the Premier League club for a deal worth around Â£17.3million ($23.3m).`\
+https://nytimes.com/athletic/6492873/2025/07/14/wolves-transfer-news-arias-fluminense/
+
+**Plan to Permanently Displace Palestinians Threatens to Derail Gaza Truce**\
+`An Israeli proposal to force much of Gazaâs population into a small enclave is now overshadowing negotiations over a truce.`\
+https://nytimes.com/2025/07/14/world/middleeast/israel-hamas-gaza-cease-fire.html
+
+**MLB Draft Day 1 takeaways: Bowden on the biggest winners and losers â teams, players and more**\
+`From teams to players to positions to the venue, here are my biggest winners and losers after the first three rounds on Sunday.`\
+https://nytimes.com/athletic/6492762/2025/07/14/mlb-draft-2025-winners-losers-day-1/
+
+**Trump Says Putin âTalks Nice and Then He Bombs Everybodyâ**\
+`Speaking to reporters at Joint Base Andrews, President Trump also told reporters he would send more advanced Patriot missile defense batteries to Ukraine, which NATO member countries would pay for.`\
+https://nytimes.com/video/us/politics/100000010283026/trump-says-putin-talks-nice-and-then-he-bombs-everybody.html
+
+**Protests in Kenya**\
+`How the unrest began â and what may happen next.`\
+https://nytimes.com/2025/07/14/briefing/kenya-protests-ruto.html
+
 **Out-of-favour Man Utd players asked to report for training after 5pm**\
 `Marcus Rashford, Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia are not part of Ruben Amorim's plans.`\
 https://nytimes.com/athletic/6492846/2025/07/14/manchester-united-rashford-sancho-garnacho-training/
