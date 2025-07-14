@@ -1,3 +1,7 @@
+**Trump’s Willingness to Arm Ukraine Puts Him Closer to Biden Approach**\
+`President Trump is expected this week to formalize a new plan to sell American weapons to European allies, who would pass them onto Kyiv.`\
+https://nytimes.com/2025/07/14/us/politics/trump-ukraine-biden.html
+
 **Bluffs and Bluster Aside, Trump’s Tariffs Are Here to Stay**\
 `The president has earned a reputation for bluffing on tariffs. But he has steadily and dramatically raised U.S. tariffs, transforming global trade.`\
 https://nytimes.com/2025/07/14/us/politics/trump-tariffs.html
