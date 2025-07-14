@@ -1,3 +1,7 @@
+**Do You Know These French Books Adapted for Stage and Screen?**\
+`France has produced many novels and stories that have gone on to become internationally popular musicals and movies. Try this short quiz to see how many you know.`\
+https://nytimes.com/interactive/2025/07/14/books/review/french-book-movies.html
+
 **Zelensky Announces Plan for Major Government Shake-Up in Ukraine**\
 `An announcement by the Ukrainian president that he will seek to replace the prime minister with a loyalist came as the country faces battlefield setbacks and a souring mood.`\
 https://nytimes.com/2025/07/14/world/europe/ukraine-zelensky-government-shakeup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492982/2025/07/14/jeff-sperbeck-death-investigatio
 **Mavericks shut down Cooper Flagg after two games in NBA Summer League**\
 `Flagg scored 31 points against the Spurs in his second game with Dallas on Saturday.`\
 https://nytimes.com/athletic/6492985/2025/07/14/mavericks-cooper-flagg-nba-summer-league/
-
-**A Handshake in Orbit 50 Years Ago Transformed the Space Race**\
-`The Apollo-Soyuz Test Project brought Soviet cosmonauts and NASA astronauts together in the first international human spaceflight.`\
-https://nytimes.com/2025/07/14/science/apollo-soyuz-test-project-1975-anniversary.html
 
