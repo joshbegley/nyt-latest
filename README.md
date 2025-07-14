@@ -1,3 +1,15 @@
+**Death of John Elway’s former agent and business partner ruled an accident**\
+`Authorities closed their investigation into Sperbeck's death, a result of injuries he sustained after falling off the back of a golf cart.`\
+https://nytimes.com/athletic/6492982/2025/07/14/jeff-sperbeck-death-investigation-john-elway/
+
+**Mavericks shut down Cooper Flagg after two games in NBA Summer League**\
+`Flagg scored 31 points against the Spurs in his second game with Dallas on Saturday.`\
+https://nytimes.com/athletic/6492985/2025/07/14/mavericks-cooper-flagg-nba-summer-league/
+
+**A Handshake in Orbit 50 Years Ago Transformed the Space Race**\
+`The Apollo-Soyuz Test Project brought Soviet cosmonauts and NASA astronauts together in the first international human spaceflight.`\
+https://nytimes.com/2025/07/14/science/apollo-soyuz-test-project-1975-anniversary.html
+
 **The Windup: Draft stunners and All-Star week**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6492550/2025/07/14/all-star-guide-mlb-draft-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/14/business/tariffs-trump-europe-companies-impact.ht
 **Bitcoin Soars Past $120,000 as House Takes Up Crypto Bills**\
 `The cryptocurrency has extended its rally as lawmakers consider legislation that would bring digital tokens further into the mainstream.`\
 https://nytimes.com/2025/07/14/business/dealbook/bitcoin-price-btc-record-crypto-week.html
-
-**NASCAR clears Ty Gibbs, No. 54 team after pit road incident at Sonoma**\
-`NASCAR said Ty Gibbs broke no rules when he clipped a tire being held by the RFK Racing No. 6 team's tire carrier during Sunday's race.`\
-https://nytimes.com/athletic/6492251/2025/07/14/nascar-ty-gibbs-brad-keselowski-pit-road-incident-sonoma/
-
-**Sabres mailbag: Next contracts for Benson, Kesselring? Remaining free agents?**\
-`The NHL offseason is slowing down, and the Sabres are in a holding pattern with some work still to do.`\
-https://nytimes.com/athletic/6488385/2025/07/14/sabres-benson-kesselring-contracts/
-
-**Who is Roony Bardghji and what are Barcelona's plans for him?**\
-`Roony is a Football Manager wonderkid who wants to be "the best player in the world". This is what you need to know about him`\
-https://nytimes.com/athletic/6465558/2025/07/14/barcelona-roony-bardghji-transfer/
 
