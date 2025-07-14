@@ -1,3 +1,19 @@
+**Protests in Kenya**\
+`How the unrest began — and what may happen next.`\
+https://nytimes.com/2025/07/14/briefing/kenya-protests-ruto.html
+
+**Red Bull must reset after Horner. Why concern runs deeper than just Max Verstappen’s future**\
+`By sacking Christian Horner, Red Bull has made a big change to try to return to F1 winning ways. But there are other steps it must take, too`\
+https://nytimes.com/athletic/6489961/2025/07/14/red-bull-christian-horner-f1-max-verstappen/
+
+**Leave a question for James Mirtle’s next NHL mailbag**\
+`Have a burning question about how something works in the league? Want to sound off on something happening in the hockey world?`\
+https://nytimes.com/athletic/6483633/2025/07/14/nhl-offseason-free-agency-mailbag-mirtle/
+
+**Think Red Sox fans would cheer Aaron Judge the way Revs fans cheer Messi? Didn’t think so**\
+`It’s a long-standing tradition for U.S. fans to bestow Beatles-like devotion on visiting soccer superstar. Messi is getting it in Boston.`\
+https://nytimes.com/athletic/6491835/2025/07/14/lionel-messi-boston-revolution-superstar-attendance/
+
 **How coaching his son 'brought that spark back' to Home Run Derby contender Byron Buxton**\
 `Buxton, finally healthy last winter, coached his son's 11U team and rediscovered his love for baseball. Now he's an All-Star again.`\
 https://nytimes.com/athletic/6490532/2025/07/14/mlb-home-run-derby-byron-buxton-twins/
