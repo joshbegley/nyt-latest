@@ -1,3 +1,7 @@
+**Arsenal working to complete deal for Valencia's Mosquera**\
+`Personal terms are in place with the 21-year-old and the two clubs are close to reaching an agreement.`\
+https://nytimes.com/athletic/6453599/2025/07/14/arsenal-transfers-mosquera-valencia/
+
 **Footage of Inmate Suicide Captures Dysfunction on Rikers Island**\
 `The New York Times has obtained video of the 2022 death of Michael Nieves, a mentally ill detainee who mortally wounded himself on Rikers Island.`\
 https://nytimes.com/2025/07/14/nyregion/rikers-island-inmate-suicide-deaths-federal-takeover.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/learning/word-of-the-day-sublimity.html
 **Ella Toone 'celebrates to the sky' after delivering again at the Euros for England**\
 `England will have stiffer tests ahead at the Euros but Toone is thriving in this set-up in her first tournament since losing her dad, Nick`\
 https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
-
-**Hacker Impersonating Elmo Makes Antisemitic X Posts**\
-`The owner of “Sesame Street” said it was working to restore control of Elmo’s social media account after the cyberattack on the fuzzy red monster, a beloved character on the children’s show.`\
-https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
 
