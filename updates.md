@@ -1,3 +1,15 @@
+**More Woody Guthrie Songs? Yes, From a Trove of Homemade Recordings.**\
+`A new, intimate album will include 13 previously unheard songs and a rewrite of “This Land Is Your Land.”`\
+https://nytimes.com/2025/07/14/arts/music/woody-guthrie-tapes-woody-at-home.html
+
+**Could You Have Landed a Job at Vogue in the ’90s?**\
+`To work for Anna Wintour in Vogue's glory days, you had to know a little bit of everything. Take the quiz to find out if you would have made the grade.`\
+https://nytimes.com/interactive/2025/07/14/style/vogue-quiz-90s.html
+
+**New Tariff Threats Risk Big Blow to U.S. Economy**\
+`The economy’s resilience so far to President Trump’s global trade war risks emboldening him and unleashing the sort of economic devastation that economists have long feared.`\
+https://nytimes.com/2025/07/14/us/politics/tariff-threats-us-economy.html
+
 **Dig for Children’s Remains Begins at Irish Home for Unwed Mothers**\
 `Experts are searching for the remains of hundreds of children who died at the institution run by Catholic nuns until 1961, including bodies disposed of in septic tanks.`\
 https://nytimes.com/2025/07/14/world/europe/ireland-excavation-children-tuam.html
