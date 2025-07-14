@@ -1,3 +1,7 @@
+**Red Sox select 3 college pitchers with first 4 picks on Day 1 of MLB Draft**\
+`Not since Tanner Houck in 2017 had Boston selected a first-round pitcher, but it bucked that trend Sunday with Kyson Witherspoon at No. 15.`\
+https://nytimes.com/athletic/6492331/2025/07/14/red-sox-mlb-draft-pitchers-kyson-witherspoon/
+
 **Power versus weight: Are the Tour de France's top climbers getting heavier?**\
 `Jonas Vingegaard has added muscle mass to improve his explosivity this year — and the Dane is not alone `\
 https://nytimes.com/athletic/6491251/2025/07/14/cyclist-weight-power-climbers-tour-de-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6483319/2025/07/14/manchester-united-shirt-numbers/
 **The biggest squad issue for your Premier League club to resolve as pre-season begins**\
 `Every team in the division has matters concerning potential exits and new contracts to sort out now the players are back in training`\
 https://nytimes.com/athletic/6489696/2025/07/14/premier-league-clubs-transfer-pre-season/
-
-**It’s Paradise Lost as Climate Change Remakes Europe’s Summers**\
-`In peak vacation season, many of the continent’s most desirable getaways are becoming places to get away from.`\
-https://nytimes.com/2025/07/14/world/europe/spain-italy-greece-heat.html
 
