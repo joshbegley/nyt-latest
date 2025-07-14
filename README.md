@@ -2,8 +2,8 @@
 `England will have stiffer tests ahead at the Euros but Toone is thriving in this set-up in her first tournament since losing her dad, Nick`\
 https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
 
-**Hacker Impersonating Elmo Made Antisemitic X Posts**\
-`The owner of “Sesame Street” said it was working to restore control of Elmo’s social media account after the cyberattack on the fuzzy red monster, a beloved character on the children’s show.`\
+**Hacker Impersonating Elmo Makes Antisemitic X Posts**\
+`The owner of âSesame Streetâ said it was working to restore control of Elmoâs social media account after the cyberattack on the fuzzy red monster, a beloved character on the childrenâs show.`\
 https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
 
 **Twins draft slick-fielding shortstop Marek Houston, then focus on high-upside picks**\
@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6491946/2025/07/14/twins-mlb-draft-marek-houston-hi
 `With Yost and Michael Oliveto, the Tigers selected under-the-radar left-handed hitters with their first picks in Sunday's MLB Draft.`\
 https://nytimes.com/athletic/6492404/2025/07/14/tigers-mlb-draft-jordan-yost-michael-oliveto/
 
-**Monday Briefing: America’s Brain Drain and the World**\
+**Monday Briefing: Americaâs Brain Drain and the World**\
 `Plus, Jannik Sinner wins Wimbledon.`\
 https://nytimes.com/2025/07/14/briefing/harvard-science-trump-rare-earths-gaza.html
 
@@ -26,8 +26,8 @@ https://nytimes.com/issue/todayspaper/2025/07/14/todays-new-york-times
 `Caving to a right-wing chorus, they are reining in their green agenda.`\
 https://nytimes.com/2025/07/14/opinion/europe-heat-wave-climate.html
 
-**‘The Summer I Turned Pretty,’ Plus 6 Things to Watch on TV This Week**\
-`The Prime Video show returns with its third and final season — and maybe an answer for Lola’s love triangle.`\
+**âThe Summer I Turned Pretty,â Plus 6 Things to Watch on TV This Week**\
+`The Prime Video show returns with its third and final season â and maybe an answer for Lolaâs love triangle.`\
 https://nytimes.com/2025/07/14/arts/television/the-summer-i-turned-pretty.html
 
 **Dodgers draft prospects Zach Root, Charles Davalan in first round of 2025 MLB Draft**\
