@@ -1,3 +1,7 @@
+**Blue Jays set for 'fun' but wild second half after chaotic loss to Athletics**\
+`The 6-3 loss Sunday featured a minor-league ballpark, a heated ejection and a starting pitcher in the bullpen.`\
+https://nytimes.com/athletic/6492004/2025/07/13/blue-jays-loss-athletics-second-half/
+
 **Cardinals select left-hander Liam Doyle with No. 5 pick in MLB draft**\
 `Doyle, a 21-year-old out of the University of Tennessee, projects to ascend quickly through the minor leagues`\
 https://nytimes.com/athletic/6492049/2025/07/13/cardinals-mlb-draft-liam-doyle-pitcher/

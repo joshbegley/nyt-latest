@@ -1,3 +1,7 @@
+**Blue Jays set for 'fun' but wild second half after chaotic loss to Athletics**\
+`The 6-3 loss Sunday featured a minor-league ballpark, a heated ejection and a starting pitcher in the bullpen.`\
+https://nytimes.com/athletic/6492004/2025/07/13/blue-jays-loss-athletics-second-half/
+
 **Cardinals select left-hander Liam Doyle with No. 5 pick in MLB draft**\
 `Doyle, a 21-year-old out of the University of Tennessee, projects to ascend quickly through the minor leagues`\
 https://nytimes.com/athletic/6492049/2025/07/13/cardinals-mlb-draft-liam-doyle-pitcher/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6481586/2025/07/13/chicago-white-sox-first-rounder-
 **King Charles III Will Host Trump for U.K. State Visit in September**\
 `Buckingham Palace confirmed the dates of President Trump’s trip to Britain, which will be his second state visit.`\
 https://nytimes.com/2025/07/13/world/europe/king-charles-trump-uk-state-visit.html
-
-**Excerpts From The Times’s Interview With Biden on Clemency Decisions**\
-`The former president said he “made every single one of those” decisions and that Republicans were questioning them because “they’ve done so badly” and wanted to shift the focus.`\
-https://nytimes.com/2025/07/13/us/politics/biden-clemency-interview.html
 
