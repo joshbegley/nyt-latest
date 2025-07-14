@@ -1,3 +1,15 @@
+**Fanny Howe, Poet of Unsettled Dreams, Is Dead at 84**\
+`Her heritage, as a scion of Boston Brahmins and the mother of biracial children, shaped a discursive verse style that veiled sharp edges and melancholy resolutions.`\
+https://nytimes.com/2025/07/14/books/fanny-howe-dead.html
+
+**Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
+`The violence underscores the government’s challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
+https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
+
+**What’s Going on With Trump Media’s Streaming Service?**\
+`The service, which promises “non-woke” news and entertainment, recently said it had expanded globally.`\
+https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.html
+
 **Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
 `The violence underscores the governmentâs challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
 https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
