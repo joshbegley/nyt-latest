@@ -1,3 +1,11 @@
+**The Pulse: Who had the best day yesterday?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6492144/2025/07/14/sinner-alcaraz-mlb-draft-the-pulse/
+
+**Barcelona complete signing of Bardghji from Copenhagen**\
+`The 19-year-old winger returned from an ACL injury in March after 10 months out.`\
+https://nytimes.com/athletic/6445120/2025/07/14/roony-bardghji-barcelona-transfer/
+
 **Analysing Arsenal target Cristhian Mosquera: Versatility, taking on Mbappe and room to improve**\
 `At 21, Mosquera is far from the finished article, but the right-footed defender fills a gap in Mikel Arteta's squad`\
 https://nytimes.com/athletic/6462116/2025/07/14/arsenal-cristhian-mosquera-analysis/
