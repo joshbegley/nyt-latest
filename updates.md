@@ -1,3 +1,11 @@
+**Braves second-rounder Alex Lodise went from barely recruited to college baseball's 'Heisman'**\
+`Lodise had one college offer coming out of high school. This season, he won the Dick Howser award as the top college baseball player.`\
+https://nytimes.com/athletic/6487229/2025/07/13/braves-alex-lodise-mlb-draft-florida-state/
+
+**Why the Angels shocked MLB by drafting Tyler Bremner with the No. 2 pick**\
+`The question for the Angels coming into the draft was if they’d use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
+https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
+
 **Dodgers expected to be in first at the break. The path was a little different**\
 `L.A. has limped its way to first place, knows it has much to work on in the second half.`\
 https://nytimes.com/athletic/6492050/2025/07/13/dodgers-first-at-all-star-break-different-path/
