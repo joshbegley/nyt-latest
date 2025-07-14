@@ -1,4 +1,20 @@
 **Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
+`The deal follows Google’s $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
+https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
+
+**Newcastle working on deal worth around €75million for Hugo Ekitike**\
+`While an agreement is not yet close, talks between the clubs are ongoing.`\
+https://nytimes.com/athletic/6383048/2025/07/14/hugo-ekitike-transfer-newcastle-75m-eintracht-frankfurt/
+
+**Officials in Flooded Texas Defend Response Amid Threats**\
+`A commissioner in Kerr County, where the worst flooding occurred, said people were “cursing us for our decisions.” Official evacuations did not occur for hours after the first Weather Service warning.`\
+https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
+
+**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
+`Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
+https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
+
+**Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
 `The deal follows Googleâs $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
 https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
 
