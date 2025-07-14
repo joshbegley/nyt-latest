@@ -1,3 +1,15 @@
+**What we learned from Liverpool's first pre-season friendly**\
+`What we learned from Liverpool's opening pre-season friendly at Preston on Sunday `\
+https://nytimes.com/athletic/6493165/2025/07/14/liverpool-are-playing-football-again-so-what-did-we-learn/
+
+**Chelsea's Colwill says Club World Cup will be bigger than Champions League**\
+`Colwill started the inaugural Club World Cup final as Chelsea won their second trophy of the season.`\
+https://nytimes.com/athletic/6492839/2025/07/14/colwill-chelsea-club-world-cup/
+
+**NFL, Sony set to debut new headsets for coaches**\
+`Sony's custom-built headsets aim to improve sound quality and sideline communication for NFL coaches and staffers.`\
+https://nytimes.com/athletic/6490291/2025/07/14/nfl-sony-coaches-new-headsets/
+
 **gws-canada-national-parks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/canada-national-parks
