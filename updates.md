@@ -1,3 +1,11 @@
+**Sun Belt votes to add Louisiana Tech after losing Texas State to Pac-12**\
+`Louisiana Tech's addition will keep the Sun Belt at 14 football schools next year and give it three full members in the state.`\
+https://nytimes.com/athletic/6492950/2025/07/14/louisiana-tech-sun-belt-pac-12-realignment/
+
+**Ashton’s ‘Sylvia’ Is a Test of a Ballerina’s Versatility**\
+`In American Ballet Theater’s production, four principal dancers made their debuts in the role, which carries the ballet.`\
+https://nytimes.com/2025/07/14/arts/dance/ashton-sylvia-american-ballet-theater.html
+
 **Lowetide: What role will Jake Walman play for Oilers next season?**\
 `Acquiring Walman was an underrated move, as he was a strong plug-and-play option for the Oilers.`\
 https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contract/

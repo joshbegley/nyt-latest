@@ -1,3 +1,11 @@
+**Sun Belt votes to add Louisiana Tech after losing Texas State to Pac-12**\
+`Louisiana Tech's addition will keep the Sun Belt at 14 football schools next year and give it three full members in the state.`\
+https://nytimes.com/athletic/6492950/2025/07/14/louisiana-tech-sun-belt-pac-12-realignment/
+
+**Ashton’s ‘Sylvia’ Is a Test of a Ballerina’s Versatility**\
+`In American Ballet Theater’s production, four principal dancers made their debuts in the role, which carries the ballet.`\
+https://nytimes.com/2025/07/14/arts/dance/ashton-sylvia-american-ballet-theater.html
+
 **Lowetide: What role will Jake Walman play for Oilers next season?**\
 `Acquiring Walman was an underrated move, as he was a strong plug-and-play option for the Oilers.`\
 https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/science/apollo-soyuz-test-project-1975-anniversar
 **The Windup: Draft stunners and All-Star week**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6492550/2025/07/14/all-star-guide-mlb-draft-the-windup/
-
-**Democrats Accuse Trump of Ceding Global Influence to China**\
-`The minority members of the Senate Foreign Relations Committee say the White House is undercutting American soft power and letting China fill the void.`\
-https://nytimes.com/2025/07/14/us/politics/democrats-china-report-trump.html
-
-**Indiana Fever All-Star Aliyah Boston joins Boston Legacy FC investor group**\
-`Aliyah Boston's investment came from a desire to give back to a place that supported her through high school, she said.`\
-https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-boston-legacy-fc-investor-group/
 
