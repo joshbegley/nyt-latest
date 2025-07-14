@@ -1,3 +1,11 @@
+**Dozens Killed in Sectarian Clashes in Syria**\
+`The sectarian violence between Bedouin groups and militias from the Druse religious minority killed more than 50 people, according to a local health official and a monitoring group.`\
+https://nytimes.com/video/world/middleeast/100000010284109/syria-sectarian-violence.html
+
+**Shane van Gisbergen's disruptor-level NASCAR success is opening the door to more**\
+`Trackhouse Racing owner Justin Marks wanted to be a "disruptor." With Shane van Gisbergen's sparkling rookie year, he's accomplished that.`\
+https://nytimes.com/athletic/6493133/2025/07/14/shane-van-gisbergen-nascar-sonoma-takeaways/
+
 **Brazil’s Attorney General: Brazil and the United States Can Do Better**\
 `Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
 https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
