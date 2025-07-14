@@ -1,17 +1,17 @@
-**Senate Approves First Judge of Trumpâs Second Term**\
-`The pace of judicial confirmations is lagging compared with the presidentâs first stint in office, but more are in the pipeline.`\
+**Senate Approves First Judge of Trump’s Second Term**\
+`The pace of judicial confirmations is lagging compared with the president’s first stint in office, but more are in the pipeline.`\
 https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-second-term.html
 
 **West Indies subside to 27 all out as Mitchell Starc and Australia run riot**\
 `Scott Boland also claimed a hat-trick as the home side, set 204 to win, capitulated to the lowest Test score in 70 years`\
 https://nytimes.com/athletic/6494075/2025/07/14/australia-west-indies-starc-boland-27/
 
-**Marjorie Taylor Greene Criticizes Trumpâs Plan to Speed Weapons to Ukraine**\
-`The right-wing congresswoman from Georgia suggested that the presidentâs new proposal to help speed weapons to Ukraine betrays the promise to voters to end U.S. involvement in foreign conflicts.`\
+**Marjorie Taylor Greene Criticizes Trump’s Plan to Speed Weapons to Ukraine**\
+`The right-wing congresswoman from Georgia suggested that the president’s new proposal to help speed weapons to Ukraine betrays the promise to voters to end U.S. involvement in foreign conflicts.`\
 https://nytimes.com/2025/07/14/us/politics/marjorie-taylor-greene-trump-ukraine.html
 
 **Supreme Court Allowed Trump to Slash the Education Dept.**\
-`Also, Trump promised to help secure weapons for Ukraine. Hereâs the latest at the end of Monday.`\
+`Also, Trump promised to help secure weapons for Ukraine. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/07/14/briefing/supreme-court-trump-education-ukraine-russia.html
 
 **Will the Conspiracists Cultivated by Trump Turn on Him Over Epstein?**\
@@ -19,11 +19,11 @@ https://nytimes.com/2025/07/14/briefing/supreme-court-trump-education-ukraine-ru
 https://nytimes.com/2025/07/14/us/politics/trump-epstein-conspiracy-theories.html
 
 **Yes, Gen Z Is Staring at You. The Question Is Why.**\
-`A generational debate has started over Gen Zâs tendency to respond to various social situations with a long and intentional stare.`\
+`A generational debate has started over Gen Z’s tendency to respond to various social situations with a long and intentional stare.`\
 https://nytimes.com/2025/07/14/style/gen-z-stare-tiktok.html
 
-**Ukraine Greets Trumpâs Decision to Help Provide Patriot Systems With Cautious Optimism**\
-`American fatigue with the war and the fickleness of the Trump administration remain concerns for Ukraineâs leaders.`\
+**Ukraine Greets Trump’s Decision to Help Provide Patriot Systems With Cautious Optimism**\
+`American fatigue with the war and the fickleness of the Trump administration remain concerns for Ukraine’s leaders.`\
 https://nytimes.com/2025/07/14/us/politics/trump-ukraine-weapons-patriot-missiles.html
 
 **Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
