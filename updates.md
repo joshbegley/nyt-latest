@@ -1,3 +1,7 @@
+**Cardinals select left-hander Liam Doyle with No. 5 pick in MLB draft**\
+`Doyle, a 21-year-old out of the University of Tennessee, projects to ascend quickly through the minor leagues`\
+https://nytimes.com/athletic/6492049/2025/07/13/cardinals-mlb-draft-liam-doyle-pitcher/
+
 **Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
 `Cincinnati manager emotional after reaching milestone. "It's not often I get a little choked up, and that hit me pretty hard," he said.`\
 https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
