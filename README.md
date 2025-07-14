@@ -1,3 +1,11 @@
+**Chelsea's Colwill says Club World Cup will be bigger than Champions League**\
+`Colwill started the inaugural Club World Cup final as Chelsea won their second trophy of the season.`\
+https://nytimes.com/athletic/6492839/2025/07/14/colwill-chelsea-club-world-cup/
+
+**NFL, Sony set to debut new headsets for coaches**\
+`Sony's custom-built headsets aim to improve sound quality and sideline communication for NFL coaches and staffers.`\
+https://nytimes.com/athletic/6490291/2025/07/14/nfl-sony-coaches-new-headsets/
+
 **gws-canada-national-parks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/canada-national-parks
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/books/fanny-howe-dead.html
 **Embrace the Joy of Diving**\
 `Next time you go to the pool this summer, here are four ways to have fun on the diving board.`\
 https://nytimes.com/2025/07/14/well/move/how-to-dive-explainer.html
-
-**How Joao Pedro's clever movement set Palmer free and helped Chelsea beat PSG**\
-`Joao Pedro did a lot of unseen movement off the ball that helped Chelsea attack PSG's left side. Ahmed Walid explains how it worked so well`\
-https://nytimes.com/athletic/6492615/2025/07/14/joao-pedro-chelsea-club-world-cup-psg/
-
-**My Five-Ingredient Frenchy Fish**\
-`Roasted white fish with lemony almondine comes together in 20 minutes, a beautiful dinner for Bastille Day (or any day, really).`\
-https://nytimes.com/2025/07/14/dining/easy-roasted-fish-with-almondine-for-basille-day.html
 

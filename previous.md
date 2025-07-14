@@ -1,3 +1,7 @@
+**gws-canada-national-parks**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/canada-national-parks
+
 **49ers' Jauan Jennings seeking new deal or trade, expected at camp: Source**\
 `Jennings led all 49ers receivers with a career-high 77 catches, 975 yards and six touchdowns last season.`\
 https://nytimes.com/athletic/6493187/2025/07/14/jauan-jennings-49ers-contract-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492615/2025/07/14/joao-pedro-chelsea-club-world-cu
 **My Five-Ingredient Frenchy Fish**\
 `Roasted white fish with lemony almondine comes together in 20 minutes, a beautiful dinner for Bastille Day (or any day, really).`\
 https://nytimes.com/2025/07/14/dining/easy-roasted-fish-with-almondine-for-basille-day.html
-
-**Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
-`The violence underscores the government’s challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
-https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
 

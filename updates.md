@@ -1,3 +1,7 @@
+**gws-canada-national-parks**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/canada-national-parks
+
 **49ers' Jauan Jennings seeking new deal or trade, expected at camp: Source**\
 `Jennings led all 49ers receivers with a career-high 77 catches, 975 yards and six touchdowns last season.`\
 https://nytimes.com/athletic/6493187/2025/07/14/jauan-jennings-49ers-contract-trade/
