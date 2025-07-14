@@ -1,3 +1,11 @@
+**Lowetide: What role will Jake Walman play for Oilers next season?**\
+`Acquiring Walman was an underrated move, as he was a strong plug-and-play option for the Oilers.`\
+https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contract/
+
+**The Best Summer Reads, as Recommended by the Book Review**\
+`To survive the dog days of summer, try reading one (or all) of these suggestions by writers, critics and editors at The Times.`\
+https://nytimes.com/2025/07/14/insider/the-best-summer-reads-as-recommended-by-the-book-review.html
+
 **BBC Ends Ties With ‘MasterChef’ Host Gregg Wallace After Investigation**\
 `The BBC said it would stop working with Mr. Wallace after dozens of sexual misconduct allegations were upheld.`\
 https://nytimes.com/2025/07/14/world/europe/gregg-wallace-masterchef-bbc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/democrats-china-report-trump.html
 **Indiana Fever All-Star Aliyah Boston joins Boston Legacy FC investor group**\
 `Aliyah Boston's investment came from a desire to give back to a place that supported her through high school, she said.`\
 https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-boston-legacy-fc-investor-group/
-
-**After their veteran additions, here is the Sharks' projected depth chart**\
-`San Jose has added several veterans who might be able to help guide the young emerging core.`\
-https://nytimes.com/athletic/6487384/2025/07/14/sharks-depth-chart-2025/
-
-**USMNT forward Sargent in talks over potential Wolfsburg move**\
-`The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
-https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/
 

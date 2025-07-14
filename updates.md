@@ -1,3 +1,11 @@
+**BBC Ends Ties With ‘MasterChef’ Host Gregg Wallace After Investigation**\
+`The BBC said it would stop working with Mr. Wallace after dozens of sexual misconduct allegations were upheld.`\
+https://nytimes.com/2025/07/14/world/europe/gregg-wallace-masterchef-bbc.html
+
+**He Helped Big Companies Dodge Taxes. Now He’s Writing the Rules.**\
+`Ken Kies, a longtime tax lobbyist who worked for some of the world’s largest businesses, is now running the Treasury Department’s office that will administer Trump’s tax law.`\
+https://nytimes.com/2025/07/14/business/economy/ken-kies-tax-lobbyist-treasury.html
+
 **Death of John Elway’s former agent and business partner ruled an accident**\
 `Authorities closed their investigation into Sperbeck's death, a result of injuries he sustained after falling off the back of a golf cart.`\
 https://nytimes.com/athletic/6492982/2025/07/14/jeff-sperbeck-death-investigation-john-elway/

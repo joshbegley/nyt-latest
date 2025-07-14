@@ -1,3 +1,11 @@
+**BBC Ends Ties With ‘MasterChef’ Host Gregg Wallace After Investigation**\
+`The BBC said it would stop working with Mr. Wallace after dozens of sexual misconduct allegations were upheld.`\
+https://nytimes.com/2025/07/14/world/europe/gregg-wallace-masterchef-bbc.html
+
+**He Helped Big Companies Dodge Taxes. Now He’s Writing the Rules.**\
+`Ken Kies, a longtime tax lobbyist who worked for some of the world’s largest businesses, is now running the Treasury Department’s office that will administer Trump’s tax law.`\
+https://nytimes.com/2025/07/14/business/economy/ken-kies-tax-lobbyist-treasury.html
+
 **Death of John Elway’s former agent and business partner ruled an accident**\
 `Authorities closed their investigation into Sperbeck's death, a result of injuries he sustained after falling off the back of a golf cart.`\
 https://nytimes.com/athletic/6492982/2025/07/14/jeff-sperbeck-death-investigation-john-elway/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6487384/2025/07/14/sharks-depth-chart-2025/
 **USMNT forward Sargent in talks over potential Wolfsburg move**\
 `The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
 https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/
-
-**Companies in Europe Are Frozen as Tariff Uncertainty Drags On**\
-`After European Union leaders said they would keep negotiating instead of immediately retaliating against President Trump’s latest threat, businesses remain unable to develop long-term plans.`\
-https://nytimes.com/2025/07/14/business/tariffs-trump-europe-companies-impact.html
-
-**Bitcoin Soars Past $120,000 as House Takes Up Crypto Bills**\
-`The cryptocurrency has extended its rally as lawmakers consider legislation that would bring digital tokens further into the mainstream.`\
-https://nytimes.com/2025/07/14/business/dealbook/bitcoin-price-btc-record-crypto-week.html
 
