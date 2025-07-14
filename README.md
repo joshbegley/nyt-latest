@@ -1,3 +1,19 @@
+**Footage of Inmate Suicide Captures Dysfunction on Rikers Island**\
+`The New York Times has obtained video of the 2022 death of Michael Nieves, a mentally ill detainee who mortally wounded himself on Rikers Island.`\
+https://nytimes.com/2025/07/14/nyregion/rikers-island-inmate-suicide-deaths-federal-takeover.html
+
+**Inside Rikers Island: A Suicide Attempt as Guards Stand By**\
+`Michael Nieves, 40, was awaiting trial on Rikers Island when he tried to kill himself in 2022. The staff response to his suicide drew a harsh rebuke from the New York State attorney general and watchdog groups.`\
+https://nytimes.com/video/nyregion/100000010183512/rikers-island-suicide-nieves-jail-response.html
+
+**The Tooth Fairy Is Real. She’s a Dentist in Seattle.**\
+`For 20 years, Dr. Purva Merchant has been answering letters from gaptoothed children and their parents — roughly 6,000 in all. “Happy growing up,” she typically replies.`\
+https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/14/crosswords/spelling-bee-forum.html
+
 **Why Jonker left out Miedema - and why it was the right call**\
 `A 5-2 defeat looks embarrassing - but the departing Netherlands coach's decision should be judged by more than just the scoreline.`\
 https://nytimes.com/athletic/6491859/2025/07/14/vivianne-miedema-netherlands-lineth-beerensteyn/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
 **Hacker Impersonating Elmo Makes Antisemitic X Posts**\
 `The owner of “Sesame Street” said it was working to restore control of Elmo’s social media account after the cyberattack on the fuzzy red monster, a beloved character on the children’s show.`\
 https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
-
-**Twins draft slick-fielding shortstop Marek Houston, then focus on high-upside picks**\
-`Day 1 also saw the Twins pick Delmon Young's power-hitting nephew and two big, hard-throwing college right-handers.`\
-https://nytimes.com/athletic/6491946/2025/07/14/twins-mlb-draft-marek-houston-high-upside-picks/
-
-**Jordan Yost was a surprising first-round pick, but he's exactly the Tigers' type**\
-`With Yost and Michael Oliveto, the Tigers selected under-the-radar left-handed hitters with their first picks in Sunday's MLB Draft.`\
-https://nytimes.com/athletic/6492404/2025/07/14/tigers-mlb-draft-jordan-yost-michael-oliveto/
-
-**Monday Briefing: America’s Brain Drain and the World**\
-`Plus, Jannik Sinner wins Wimbledon.`\
-https://nytimes.com/2025/07/14/briefing/harvard-science-trump-rare-earths-gaza.html
-
-**The New York Times in Print for Monday, July 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/14/todays-new-york-times
 
