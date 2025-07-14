@@ -1,3 +1,11 @@
+**Twins draft slick-fielding shortstop Marek Houston, then focus on high-upside picks**\
+`Day 1 also saw the Twins pick Delmon Young's power-hitting nephew and two big, hard-throwing college right-handers.`\
+https://nytimes.com/athletic/6491946/2025/07/14/twins-mlb-draft-marek-houston-high-upside-picks/
+
+**Guardians stockpile college bats in 2025 MLB Draft, take Jace LaViolette in first round**\
+`He's a 6-foot-6, 240-pound outfielder with power and athleticism to make scouts salivate. `\
+https://nytimes.com/athletic/6492277/2025/07/14/guardians-jace-laviolette-mlb-draft-pick/
+
 **Jordan Yost was a surprising first-round pick, but he's exactly the Tigers' type**\
 `With Yost and Michael Oliveto, the Tigers selected under-the-radar left-handed hitters with their first picks in Sunday's MLB Draft.`\
 https://nytimes.com/athletic/6492404/2025/07/14/tigers-mlb-draft-jordan-yost-michael-oliveto/

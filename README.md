@@ -1,3 +1,11 @@
+**Ella Toone 'celebrates to the sky' after delivering again at the Euros for England**\
+`England will have stiffer tests ahead at the Euros but Toone is thriving in this set-up in her first tournament since losing her dad, Nick`\
+https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
+
+**Hacker Impersonating Elmo Made Antisemitic X Posts**\
+`The owner of “Sesame Street” said it was working to restore control of Elmo’s social media account after the cyberattack on the fuzzy red monster, a beloved character on the children’s show.`\
+https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
+
 **Twins draft slick-fielding shortstop Marek Houston, then focus on high-upside picks**\
 `Day 1 also saw the Twins pick Delmon Young's power-hitting nephew and two big, hard-throwing college right-handers.`\
 https://nytimes.com/athletic/6491946/2025/07/14/twins-mlb-draft-marek-houston-high-upside-picks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6492418/2025/07/14/dodgers-zach-root-charles-davala
 **Braves draft 3 shortstops on Day 1, led by Las Vegas high schooler Tate Southisene**\
 `After using their top draft selections on pitchers for five consecutive years, the Braves went for a trio of shortstops on Sunday.`\
 https://nytimes.com/athletic/6492377/2025/07/14/braves-draft-3-shortstops-roundup/
-
-**Guardians stockpile college bats in 2025 MLB Draft, take Jace LaViolette in first round**\
-`He's a 6-foot-6, 240-pound outfielder with power and athleticism to make scouts salivate. `\
-https://nytimes.com/athletic/6492277/2025/07/14/guardians-jace-laviolette-mlb-draft-pick/
-
-**Red Sox select 3 college pitchers with first 4 picks on Day 1 of MLB Draft**\
-`Not since Tanner Houck in 2017 had Boston selected a first-round pitcher, but it bucked that trend Sunday with Kyson Witherspoon at No. 15.`\
-https://nytimes.com/athletic/6492331/2025/07/14/red-sox-mlb-draft-pitchers-kyson-witherspoon/
 

@@ -1,3 +1,7 @@
+**Twins draft slick-fielding shortstop Marek Houston, then focus on high-upside picks**\
+`Day 1 also saw the Twins pick Delmon Young's power-hitting nephew and two big, hard-throwing college right-handers.`\
+https://nytimes.com/athletic/6491946/2025/07/14/twins-mlb-draft-marek-houston-high-upside-picks/
+
 **Jordan Yost was a surprising first-round pick, but he's exactly the Tigers' type**\
 `With Yost and Michael Oliveto, the Tigers selected under-the-radar left-handed hitters with their first picks in Sunday's MLB Draft.`\
 https://nytimes.com/athletic/6492404/2025/07/14/tigers-mlb-draft-jordan-yost-michael-oliveto/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6492418/2025/07/14/dodgers-zach-root-charles-davala
 `After using their top draft selections on pitchers for five consecutive years, the Braves went for a trio of shortstops on Sunday.`\
 https://nytimes.com/athletic/6492377/2025/07/14/braves-draft-3-shortstops-roundup/
 
-**Guardians stockpile college bats in 2025 MLB Draft, take Jace LaViolette with first-round pick**\
+**Guardians stockpile college bats in 2025 MLB Draft, take Jace LaViolette in first round**\
 `He's a 6-foot-6, 240-pound outfielder with power and athleticism to make scouts salivate. `\
 https://nytimes.com/athletic/6492277/2025/07/14/guardians-jace-laviolette-mlb-draft-pick/
 
 **Red Sox select 3 college pitchers with first 4 picks on Day 1 of MLB Draft**\
 `Not since Tanner Houck in 2017 had Boston selected a first-round pitcher, but it bucked that trend Sunday with Kyson Witherspoon at No. 15.`\
 https://nytimes.com/athletic/6492331/2025/07/14/red-sox-mlb-draft-pitchers-kyson-witherspoon/
-
-**Power versus weight: Are the Tour de France's top climbers getting heavier?**\
-`Jonas Vingegaard has added muscle mass to improve his explosivity this year — and the Dane is not alone `\
-https://nytimes.com/athletic/6491251/2025/07/14/cyclist-weight-power-climbers-tour-de-france/
 
