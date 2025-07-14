@@ -1,3 +1,7 @@
+**Phillies draft Gage Wood, other college pitchers on Day 1 of 2025 MLB Draft**\
+`Gage Wood delivered one of the College World Series&#8217; strongest pitching performances ever when he threw a 119-pitch no-hitter on June 16.`\
+https://nytimes.com/athletic/6492490/2025/07/14/phillies-draft-gage-wood-other-college-pitchers-on-day-1-of-2025-mlb-draft/
+
 **Cubs select a trio of college talent on first day of MLB Draft, including CF Ethan Conrad**\
 `In the first round with the 17th pick, the Cubs selected Conrad, a center fielder out of Wake Forest.`\
 https://nytimes.com/athletic/6492470/2025/07/14/cubs-mlb-draft-day-1-ethan-conrad/
