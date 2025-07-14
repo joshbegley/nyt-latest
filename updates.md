@@ -1,3 +1,12 @@
+**Senate Approves First Judge of Trump’s Second Term**\
+`The pace of judicial confirmations is lagging compared with the president’s first stint in office, but more are in the pipeline.`\
+https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-second-term.html
+
+**Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
+`The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
+`\
+https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
+
 **Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
 `The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
 `\

@@ -1,3 +1,7 @@
+**Senate Approves First Judge of Trump’s Second Term**\
+`The pace of judicial confirmations is lagging compared with the president’s first stint in office, but more are in the pipeline.`\
+https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-second-term.html
+
 **West Indies subside to 27 all out as Mitchell Starc and Australia run riot**\
 `Scott Boland also claimed a hat-trick as the home side, set 204 to win, capitulated to the lowest Test score in 70 years`\
 https://nytimes.com/athletic/6494075/2025/07/14/australia-west-indies-starc-boland-27/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/14/us/sam-haskell-dead-murder-charges.html
 **Jets, Garrett Wilson agree to 4-year, $130 million extension: Source**\
 `The contract includes $90 million in guarantees and locks Wilson down through to the 2030 season.`\
 https://nytimes.com/athletic/6493992/2025/07/14/garrett-wilson-jets-contract-extension-nfl/
-
-**Tuesday Briefing: More Weapons for Ukraine**\
-`Plus, why Hitchcock still scares us`\
-https://nytimes.com/2025/07/14/briefing/ukraine-trump-russia-putin-gaza-relocation-syria.html
 
