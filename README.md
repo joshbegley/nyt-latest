@@ -1,3 +1,7 @@
+**What a Smaller Education Department Is Doing Under Trump**\
+`Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and dispersing federal funding.`\
+https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
+
 **Sixers' Paul George undergoes successful surgery to treat left knee injury**\
 `The Philadelphia 76ers will re-evaulate George before the start of training camp, the team said Monday.`\
 https://nytimes.com/athletic/6494239/2025/07/14/paul-george-left-knee-injury-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-seco
 **West Indies subside to 27 all out as Mitchell Starc and Australia run riot**\
 `Scott Boland also claimed a hat-trick as the home side, set 204 to win, capitulated to the lowest Test score in 70 years`\
 https://nytimes.com/athletic/6494075/2025/07/14/australia-west-indies-starc-boland-27/
-
-**Marjorie Taylor Greene Criticizes Trump’s Plan to Speed Weapons to Ukraine**\
-`The right-wing congresswoman from Georgia suggested that the president’s new proposal to help speed weapons to Ukraine betrays the promise to voters to end U.S. involvement in foreign conflicts.`\
-https://nytimes.com/2025/07/14/us/politics/marjorie-taylor-greene-trump-ukraine.html
 
