@@ -1,3 +1,24 @@
+**Marjorie Taylor Greene Criticizes Trumpâs Plan to Speed Weapons to Ukraine**\
+`The right-wing congresswoman from Georgia suggested that the presidentâs new proposal to help speed weapons to Ukraine betrays the promise to voters to end U.S. involvement in foreign conflicts.`\
+https://nytimes.com/2025/07/14/us/politics/marjorie-taylor-greene-trump-ukraine.html
+
+**Supreme Court Allowed Trump to Slash the Education Dept.**\
+`Also, Trump promised to help secure weapons for Ukraine. Hereâs the latest at the end of Monday.`\
+https://nytimes.com/2025/07/14/briefing/supreme-court-trump-education-ukraine-russia.html
+
+**Yes, Gen Z Is Staring at You. The Question Is Why.**\
+`A generational debate has started over Gen Zâs tendency to respond to various social situations with a long and intentional stare.`\
+https://nytimes.com/2025/07/14/style/gen-z-stare-tiktok.html
+
+**Ukraine Greets Trumpâs Decision to Help Provide Patriot Systems With Cautious Optimism**\
+`American fatigue with the war and the fickleness of the Trump administration remain concerns for Ukraineâs leaders.`\
+https://nytimes.com/2025/07/14/us/politics/trump-ukraine-weapons-patriot-missiles.html
+
+**Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
+`The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
+`\
+https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
+
 **Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
 `The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
 `\
