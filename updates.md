@@ -1,3 +1,15 @@
+**Newcastle working on deal worth around €75million for Hugo Ekitike**\
+`While an agreement is not yet close, talks between the clubs are ongoing.`\
+https://nytimes.com/athletic/6383048/2025/07/14/hugo-ekitike-transfer-newcastle-75m-eintracht-frankfurt/
+
+**Officials in Flooded Texas Defend Response Amid Threats**\
+`A commissioner in Kerr County, where the worst flooding occurred, said people were “cursing us for our decisions.” Official evacuations did not occur for hours after the first Weather Service warning.`\
+https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
+
+**Cuomo Will Stay in the Race for N.Y.C. Mayor to Challenge Mamdani**\
+`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary.`\
+https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
+
 **The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
