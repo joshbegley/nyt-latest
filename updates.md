@@ -1,3 +1,7 @@
+**Manchester United teenager Godwill Kukonki set to sign first professional contract**\
+`The 17-year-old has appeared for England at U17 level and can be versatile across the back line`\
+https://nytimes.com/athletic/6492638/2025/07/14/manchester-united-godwill-kukonki-first-professional-contract/
+
 **Bluffs and Bluster Aside, Trump’s Tariffs Are Here to Stay**\
 `The president has earned a reputation for bluffing on tariffs. But he has steadily and dramatically raised U.S. tariffs, transforming global trade.`\
 https://nytimes.com/2025/07/14/us/politics/trump-tariffs.html
