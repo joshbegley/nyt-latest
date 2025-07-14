@@ -1,3 +1,11 @@
+**MLB Draft Day 1 takeaways: Bowden on the biggest winners and losers — teams, players and more**\
+`From teams to players to positions to the venue, here are my biggest winners and losers after the first three rounds on Sunday.`\
+https://nytimes.com/athletic/6492762/2025/07/14/mlb-draft-2025-winners-losers-day-1/
+
+**Trump Says Putin ‘Talks Nice and Then He Bombs Everybody’**\
+`Speaking to reporters at Joint Base Andrews, President Trump also told reporters he would send more advanced Patriot missile defense batteries to Ukraine, which NATO member countries would pay for.`\
+https://nytimes.com/video/us/politics/100000010283026/trump-says-putin-talks-nice-and-then-he-bombs-everybody.html
+
 **Protests in Kenya**\
 `How the unrest began — and what may happen next.`\
 https://nytimes.com/2025/07/14/briefing/kenya-protests-ruto.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6483633/2025/07/14/nhl-offseason-free-agency-mailba
 **Can Stefon Diggs be the No. 1 WR the Patriots desperately need?**\
 `What can New England actually expect from a 31-year-old receiver who is coming off an ACL tear?`\
 https://nytimes.com/athletic/6479007/2025/07/14/patriots-stefon-diggs-drake-maye/
-
-**Think Red Sox fans would cheer Aaron Judge the way Revs fans cheer Messi? Didn’t think so**\
-`It’s a long-standing tradition for U.S. fans to bestow Beatles-like devotion on visiting soccer superstar. Messi is getting it in Boston.`\
-https://nytimes.com/athletic/6491835/2025/07/14/lionel-messi-boston-revolution-superstar-attendance/
-
-**WNBA power rankings: What's got the Phoenix Mercury rolling?**\
-`Which teams are gaining an edge heading into the All-Star break? Sabreena Merchant breaks down the league.`\
-https://nytimes.com/athletic/6492496/2025/07/14/wnba-power-rankings-phoenix-mercury-2/
 
