@@ -1,3 +1,11 @@
+**West Indies subside to 27 all out as Mitchell Starc and Australia run riot**\
+`Scott Boland also claimed a hat-trick as the home side, set 204 to win, capitulated to the lowest Test score in 70 years`\
+https://nytimes.com/athletic/6494075/2025/07/14/australia-west-indies-starc-boland-27/
+
+**Marjorie Taylor Greene Criticizes Trump’s Plan to Speed Weapons to Ukraine**\
+`The right-wing congresswoman from Georgia suggested that the president’s new proposal to help speed weapons to Ukraine betrays the promise to voters to end U.S. involvement in foreign conflicts.`\
+https://nytimes.com/2025/07/14/us/politics/marjorie-taylor-greene-trump-ukraine.html
+
 **Supreme Court Allowed Trump to Slash the Education Dept.**\
 `Also, Trump promised to help secure weapons for Ukraine. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/07/14/briefing/supreme-court-trump-education-ukraine-russia.html
@@ -30,14 +38,4 @@ https://nytimes.com/athletic/6493992/2025/07/14/garrett-wilson-jets-contract-ext
 **Tuesday Briefing: More Weapons for Ukraine**\
 `Plus, why Hitchcock still scares us`\
 https://nytimes.com/2025/07/14/briefing/ukraine-trump-russia-putin-gaza-relocation-syria.html
-
-**Submit your Flyers questions for Kevin Kurz’s mailbag**\
-`The Flyers have (likely) made their most significant moves of the offseason. What do you want to know about where they stand?`\
-https://nytimes.com/athletic/6494005/2025/07/14/philadelphia-flyers-mailbag-nhl-offseason/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>College football season must be near if it&#8217;s SEC Media Days week.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6493970/2025/07/14/submit-a-question-for-stewart-mandels-college-football-mailbag-306/
 
