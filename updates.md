@@ -1,3 +1,8 @@
+**Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
+`The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
+`\
+https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
+
 **West Indies subside to 27 all out as Mitchell Starc and Australia run riot**\
 `Scott Boland also claimed a hat-trick as the home side, set 204 to win, capitulated to the lowest Test score in 70 years`\
 https://nytimes.com/athletic/6494075/2025/07/14/australia-west-indies-starc-boland-27/
