@@ -1,3 +1,7 @@
+**USMNT forward Sargent in talks over potential Wolfsburg move**\
+`The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
+https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/
+
 **Companies in Europe Are Frozen as Tariff Uncertainty Drags On**\
 `After European Union leaders said they would keep negotiating instead of immediately retaliating against President Trump’s latest threat, businesses remain unable to develop long-term plans.`\
 https://nytimes.com/2025/07/14/business/tariffs-trump-europe-companies-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492494/2025/07/14/tre-johnson-alex-sarr-summer-lea
 **Sixers' roster being built to absorb the inevitable absence of superstar center Joel Embiid**\
 `"We have to figure out our rotations. We have to make sure that we're all healthy…and that we're all out there to play," Tyrese Maxey said.`\
 https://nytimes.com/athletic/6492482/2025/07/14/sixers-roster-trendon-watford-joel-embiid/
-
-**Ahead of Denver Broncos training camp, 44 thoughts on the team's offensive players**\
-`Where quarterback Bo Nix can show early signs of growth as he begins his second training camp?`\
-https://nytimes.com/athletic/6488430/2025/07/14/broncos-training-camp-nix-sutton-dobbins/
 
