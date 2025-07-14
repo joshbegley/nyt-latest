@@ -1,3 +1,11 @@
+**Reds gamble on 17-year-old shortstop Steele Hall with first-round pick**\
+`In addition to Steele, the Reds drafted a pair of pitchers on the first day of the draft.`\
+https://nytimes.com/athletic/6492281/2025/07/13/reds-steele-hall-mlb-draft-roundup-analysis/
+
+**Padres enter All-Star break with all signs pointing to an aggressive trade deadline**\
+`The Padres found themselves in a familiar place Sunday after a 2-1 loss to the Phillies. They had not gained ground. They had not lost any.`\
+https://nytimes.com/athletic/6491799/2025/07/13/padres-all-star-break-aggressive-trade-deadline/
+
 **Astros buck precedent and draft prep infielder Xavier Neyens with No. 21 pick**\
 `Neyens, 18, "has some of the best raw power of anyone in the high school class this year," The Athletic's Keith Law wrote.`\
 https://nytimes.com/athletic/6492187/2025/07/13/astros-draft-prep-infielder-xavier-neyens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6492004/2025/07/13/blue-jays-loss-athletics-second-
 **Cardinals select left-hander Liam Doyle with No. 5 pick in MLB draft**\
 `Doyle, a 21-year-old out of the University of Tennessee, projects to ascend quickly through the minor leagues`\
 https://nytimes.com/athletic/6492049/2025/07/13/cardinals-mlb-draft-liam-doyle-pitcher/
-
-**Something Only I Can See**\
-`A woman with muscular dystrophy who believes she has the same condition as an Olympic athlete, and more stories.`\
-https://nytimes.com/2025/07/13/podcasts/something-only-i-can-see-this-american-life-nyt-audio.html
-
-**Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
-`Cincinnati manager emotional after reaching milestone. "It's not often I get a little choked up, and that hit me pretty hard," he said.`\
-https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
 

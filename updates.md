@@ -1,3 +1,11 @@
+**Reds gamble on 17-year-old shortstop Steele Hall with first-round pick**\
+`In addition to Steele, the Reds drafted a pair of pitchers on the first day of the draft.`\
+https://nytimes.com/athletic/6492281/2025/07/13/reds-steele-hall-mlb-draft-roundup-analysis/
+
+**Padres enter All-Star break with all signs pointing to an aggressive trade deadline**\
+`The Padres found themselves in a familiar place Sunday after a 2-1 loss to the Phillies. They had not gained ground. They had not lost any.`\
+https://nytimes.com/athletic/6491799/2025/07/13/padres-all-star-break-aggressive-trade-deadline/
+
 **Why the Angels shocked MLB by drafting Tyler Bremner with the No. 2 pick**\
 `The question for the Angels coming into the draft was if they’d use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
 https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
