@@ -1,3 +1,15 @@
+**gws-trump-winery-virginia**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/trump-winery-virginia
+
+**Cavaliers extend president Koby Altman through 2029-30: Source**\
+`Owner Dan Gilbert also extended general manager Mike Gansey and assistant general manager Brandon Weems.`\
+https://nytimes.com/athletic/6493220/2025/07/14/koby-altman-cavaliers-extension/
+
+**Submit your Michigan Wolverines mailbag questions here**\
+`What's on your mind about Michigan as the 2025 football season rapidly approaches?`\
+https://nytimes.com/athletic/6493270/2025/07/14/michigan-wolverines-football-mailbag-questions/
+
 **Fanny Howe, Poet of Unsettled Dreams, Is Dead at 84**\
 `Her heritage, as a scion of Boston Brahmins and the mother of biracial children, shaped a discursive verse style that veiled sharp edges and melancholy resolutions.`\
 https://nytimes.com/2025/07/14/books/fanny-howe-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.h
 **SEC commish Sankey says CFP could stay at 12 'if we can't agree' on expanded format**\
 `Sankey said Playoff expansion is not a done deal, and it appears the SEC and Big Ten disagree on a preferred 16-team format.`\
 https://nytimes.com/athletic/6492938/2025/07/14/greg-sankey-sec-media-days-cfp-expansion/
-
-**Their Water Taps Ran Dry When Meta Built Next Door**\
-`In the race to develop artificial intelligence, tech giants are building data centers that guzzle up water. That has led to problems for people who live nearby.`\
-https://nytimes.com/2025/07/14/technology/meta-data-center-water.html
-
-**Do You Know These French Books Adapted for Stage and Screen?**\
-`France has produced many novels and stories that have gone on to become internationally popular musicals and movies. Try this short quiz to see how many you know.`\
-https://nytimes.com/interactive/2025/07/14/books/review/french-book-movies.html
-
-**Zelensky Announces Plan for Major Government Shake-Up in Ukraine**\
-`An announcement by the Ukrainian president that he will seek to replace the prime minister with a loyalist came as the country faces battlefield setbacks and a souring mood.`\
-https://nytimes.com/2025/07/14/world/europe/ukraine-zelensky-government-shakeup.html
 
