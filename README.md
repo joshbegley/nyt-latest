@@ -1,4 +1,8 @@
-**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
+**Officials in Flooded Texas Defend Response Amid Threats**\
+`A commissioner in Kerr County, where the worst flooding occurred, said people were âcursing us for our decisions.â Official evacuations did not occur for hours after the first Weather Service warning.`\
+https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
+
+**The story of Carreras, the Real Madrid left-back who left for free... and has returned for â¬50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
 
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6493470/2025/07/14/lamine-yamal-dwarves-barcelona/
 https://nytimes.com/athletic/6493533/2025/07/14/england-india-bashir-broken-finger/
 
 **Trump Promises to Help Europe Speed Weapons to Ukraine**\
-`“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
+`âIâm disappointed in President Putin, because I thought we would have had a deal two months ago,â President Trump said.`\
 https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
 
 **How to Swim-Proof Your Hair**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-
 **Mamardashvili learning from Alisson, embracing Liverpool goalkeeping 'challenge'**\
 `The Georgia international officially joined the Premier League champions at the start of July.`\
 https://nytimes.com/athletic/6493401/2025/07/14/liverpool-goalkeepers-mamardashvili-alisson/
-
-**Scoop City: Primer on the chaos around NFL contract guarantees**\
-`Could one 45-minute meeting cost the NFL over $600 million? That, plus why your favorite team's second-round pick might be absent.`\
-https://nytimes.com/athletic/6493415/2025/07/14/nfl-collusion-nflpa-lamar-jackson-ruling-second-round-pick-holdout/
 
