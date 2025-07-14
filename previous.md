@@ -26,8 +26,8 @@ https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/14/crosswords/spelling-bee-forum.html
 
-**Why Jonker left out Miedema - and why it was the right call**\
-`A 5-2 defeat looks embarrassing - but the departing Netherlands coach's decision should be judged by more than just the scoreline.`\
+**Why Jonker left out Miedema – and why it was the right call**\
+`A 5-2 defeat looks embarrassing, but the departing Netherlands coach's decision should be judged by more than just the scoreline`\
 https://nytimes.com/athletic/6491859/2025/07/14/vivianne-miedema-netherlands-lineth-beerensteyn/
 
 **Phillies draft Gage Wood, other college pitchers on Day 1 of 2025 MLB Draft**\

@@ -1,3 +1,7 @@
+**Why Jonker left out Miedema – and why it was the right call**\
+`A 5-2 defeat looks embarrassing, but the departing Netherlands coach's decision should be judged by more than just the scoreline`\
+https://nytimes.com/athletic/6491859/2025/07/14/vivianne-miedema-netherlands-lineth-beerensteyn/
+
 **Fire Breaks Out at Assisted Living Center in Massachusetts**\
 `Firefighters responding to a deadly fire at Gabriel House, an assisted living facility in Fall River, Mass., on Sunday night.`\
 https://nytimes.com/video/us/100000010282936/fire-gabriel-house-fall-river-massachusetts.html
