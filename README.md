@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6487229/2025/07/13/braves-alex-lodise-mlb-draft-flo
 https://nytimes.com/athletic/6492050/2025/07/13/dodgers-first-at-all-star-break-different-path/
 
 **Why the Angels shocked MLB by drafting Tyler Bremner with the No. 2 pick**\
-`The question for the Angels coming into the draft was if they’d use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
+`The question for the Angels coming into the draft was if theyâd use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
 https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
 
 **Yankees take high school shortstop Dax Kilby with their first pick of MLB Draft**\
