@@ -1,40 +1,40 @@
-**Wolves confident of completing Arias transfer from Fluminense**\
-`The 27-year-old is nearing a deal to join the Premier League club for a deal worth around £17.3million ($23.3m).`\
-https://nytimes.com/athletic/6492873/2025/07/14/wolves-transfer-news-arias-fluminense/
+**Sabres mailbag: Next contracts for Benson, Kesselring? Remaining free agents?**\
+`The NHL offseason is slowing down, and the Sabres are in a holding pattern with some work still to do.`\
+https://nytimes.com/athletic/6488385/2025/07/14/sabres-benson-kesselring-contracts/
 
-**Out-of-favour Man Utd players asked to report for training after 5pm**\
-`Marcus Rashford, Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia are not part of Ruben Amorim's plans.`\
-https://nytimes.com/athletic/6492846/2025/07/14/manchester-united-rashford-sancho-garnacho-training/
+**Who is Roony Bardghji and what are Barcelona's plans for him?**\
+`Roony is a Football Manager wonderkid who wants to be "the best player in the world". This is what you need to know about him`\
+https://nytimes.com/athletic/6465558/2025/07/14/barcelona-roony-bardghji-transfer/
 
-**Plan to Permanently Displace Palestinians Threatens to Derail Gaza Truce**\
-`An Israeli proposal to force much of Gaza’s population into a small enclave is now overshadowing negotiations over a truce.`\
-https://nytimes.com/2025/07/14/world/middleeast/israel-hamas-gaza-cease-fire.html
+**Chargers training camp storylines, Part 1: Evaluating Zion Johnson; Najee Harris' status**\
+`The Chargers have invested a lot of time this offseason experimenting with Johnson at center. Will it work out? `\
+https://nytimes.com/athletic/6489059/2025/07/14/chargers-training-camp-zion-johnson-najee-harris/
 
-**MLB Draft Day 1 takeaways: Bowden on the biggest winners and losers — teams, players and more**\
-`From teams to players to positions to the venue, here are my biggest winners and losers after the first three rounds on Sunday.`\
-https://nytimes.com/athletic/6492762/2025/07/14/mlb-draft-2025-winners-losers-day-1/
+**The Giants drafted Gavin Kilen, a crowd-pleaser and analyst favorite**\
+`Teams almost never draft for need, but Kilen just happens to be exactly the kind of player the Giants need right now.`\
+https://nytimes.com/athletic/6492335/2025/07/14/giants-gavin-kilen-mlb-draft/
 
-**Trump Says Putin ‘Talks Nice and Then He Bombs Everybody’**\
-`Speaking to reporters at Joint Base Andrews, President Trump also told reporters he would send more advanced Patriot missile defense batteries to Ukraine, which NATO member countries would pay for.`\
-https://nytimes.com/video/us/politics/100000010283026/trump-says-putin-talks-nice-and-then-he-bombs-everybody.html
+**Tre Johnson, Alex Sarr and the Wizards found good vibes in summer-league win**\
+`Washington won its second summer-league game, erasing the taste of its lackluster opener. `\
+https://nytimes.com/athletic/6492494/2025/07/14/tre-johnson-alex-sarr-summer-league/
 
-**Protests in Kenya**\
-`How the unrest began — and what may happen next.`\
-https://nytimes.com/2025/07/14/briefing/kenya-protests-ruto.html
+**Sixers' roster being built to absorb the inevitable absence of superstar center Joel Embiid**\
+`"We have to figure out our rotations. We have to make sure that we're all healthy…and that we're all out there to play," Tyrese Maxey said.`\
+https://nytimes.com/athletic/6492482/2025/07/14/sixers-roster-trendon-watford-joel-embiid/
 
-**How coaching his son 'brought that spark back' to Home Run Derby contender Byron Buxton**\
-`Buxton, finally healthy last winter, coached his son's 11U team and rediscovered his love for baseball. Now he's an All-Star again.`\
-https://nytimes.com/athletic/6490532/2025/07/14/mlb-home-run-derby-byron-buxton-twins/
+**Ahead of Denver Broncos training camp, 44 thoughts on the team's offensive players**\
+`Where quarterback Bo Nix can show early signs of growth as he begins his second training camp?`\
+https://nytimes.com/athletic/6488430/2025/07/14/broncos-training-camp-nix-sutton-dobbins/
 
-**Phillies hitters have made adjustments, but need a power boost. Can they achieve a balance?**\
-`Did the team-wide hitting adjustments come at the expense of power? They have ideas to consider as they recharge over the All-Star break. `\
-https://nytimes.com/athletic/6492138/2025/07/14/phillies-hitters-missing-power-homers/
+**Blackhawks prospect Roman Kantserov seeking to be consistently dominant**\
+`All indications remain that Kanterov, the Blackhawks’ 2023 second-round pick, will sign an NHL contract after next season.`\
+https://nytimes.com/athletic/6488693/2025/07/14/blackhawks-prospect-roman-kantserov/
 
-**'The Prince of New York': How Yankees' Jazz Chisholm Jr. transformed into an All-Star**\
-`Chisholm's rise to becoming an All-Star in his first full season with New York is tied to several big gains, from his weight to his hitting.`\
-https://nytimes.com/athletic/6464254/2025/07/14/jazz-chisholm-yankees-all-star/
+**How the Guardians can climb back into contention in the American League**\
+`The Guardians have the 11th-best playoff odds among the 15 teams in the messy, crowded AL. Here's how they can beat those odds.`\
+https://nytimes.com/athletic/6490990/2025/07/14/guardians-mlb-playoff-contention/
 
-**Wales fans sing through the night but Euro 2025 elimination is a reality check**\
-`The yawning gap in quality between Wales and Europe's best was harshly exposed at Euro 2025`\
-https://nytimes.com/athletic/6492073/2025/07/14/wales-euro-2025-elimination-analysis/
+**Bills training camp 2025 safety preview: Will Cole Bishop step into a leadership role?**\
+`The Bills had a longtime outstanding duo at safety but had to move on last season.`\
+https://nytimes.com/athletic/6435808/2025/07/14/buffalo-bills-training-camp-2025-preview-safety/
 
