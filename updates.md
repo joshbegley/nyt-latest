@@ -1,3 +1,7 @@
+**Cubs select a trio of college talent on first day of MLB Draft, including CF Ethan Conrad**\
+`In the first round with the 17th pick, the Cubs selected Conrad, a center fielder out of Wake Forest.`\
+https://nytimes.com/athletic/6492470/2025/07/14/cubs-mlb-draft-day-1-ethan-conrad/
+
 **Word of the Day: sublimity**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/14/learning/word-of-the-day-sublimity.html
