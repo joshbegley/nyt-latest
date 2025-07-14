@@ -1,3 +1,11 @@
+**Snakes Use Smelly Musk to Keep Ants Out of Their Pants**\
+`Forget fangs full of venom — the backsides of serpents pack secretions volatile enough to kill insect invaders.`\
+https://nytimes.com/2025/07/14/science/snakes-fire-ants-musk.html
+
+**24 States Sue Trump Over $6.8 Billion Withheld From Education**\
+`Providers say after-school programs and other services for the coming school year are threatened without the federal money, which was abruptly withheld.`\
+https://nytimes.com/2025/07/14/us/states-sue-trump-education-funds-afterschool.html
+
 **Watching the Men’s Final at Wimbledon With the Fashion Set**\
 `Text by Desiree Ibekwe and Ayesha Kazim`\
 https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
