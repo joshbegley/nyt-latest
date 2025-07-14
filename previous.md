@@ -11,7 +11,7 @@ https://nytimes.com/2025/07/14/us/politics/pentagon-military-aspen-forum.html
 https://nytimes.com/athletic/6493774/2025/07/14/tampa-bay-rays-sale-zalupski-mlb/
 
 **Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
-`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
+`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. âI run while talking to God,â he said in explaining his endurance.`\
 https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
 
 **In Rare Move, Judges Reject a Trump Pick for U.S. Attorney**\
@@ -30,7 +30,7 @@ https://nytimes.com/video/world/middleeast/100000010284109/syria-sectarian-viole
 `Trackhouse Racing owner Justin Marks wanted to be a "disruptor." With Shane van Gisbergen's sparkling rookie year, he's accomplished that.`\
 https://nytimes.com/athletic/6493133/2025/07/14/shane-van-gisbergen-nascar-sonoma-takeaways/
 
-**Brazil’s Attorney General: Brazil and the United States Can Do Better**\
+**Brazilâs Attorney General: Brazil and the United States Can Do Better**\
 `Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
 https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
 

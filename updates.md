@@ -1,3 +1,11 @@
+**Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
+`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. âI run while talking to God,â he said in explaining his endurance.`\
+https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
+
+**Brazilâs Attorney General: Brazil and the United States Can Do Better**\
+`Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
+https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
+
 **Homeless Population Declines in Los Angeles for a Second Straight Year**\
 `A key survey of homelessness in Los Angeles determined that the number of people sleeping without shelter fell again. More than 72,000 people remain homeless in Los Angeles County.`\
 https://nytimes.com/2025/07/14/us/los-angeles-homeless.html
