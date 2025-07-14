@@ -31,7 +31,7 @@ https://nytimes.com/2025/07/14/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6491859/2025/07/14/vivianne-miedema-netherlands-lineth-beerensteyn/
 
 **Phillies draft Gage Wood, other college pitchers on Day 1 of 2025 MLB Draft**\
-`Gage Wood delivered one of the College World Series&#8217; strongest pitching performances ever when he threw a 119-pitch no-hitter on June 16.`\
+`The Phillies selected Wood with the 26th pick on Sunday — the first of three pitchers the club took.`\
 https://nytimes.com/athletic/6492490/2025/07/14/phillies-draft-gage-wood-other-college-pitchers-on-day-1-of-2025-mlb-draft/
 
 **Cubs select a trio of college talent on first day of MLB Draft, including CF Ethan Conrad**\
