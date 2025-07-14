@@ -1,3 +1,7 @@
+**Do You Know These French Books Adapted for Stage and Screen?**\
+`France has produced many novels and stories that have gone on to become internationally popular musicals and movies. Try this short quiz to see how many you know.`\
+https://nytimes.com/interactive/2025/07/14/books/review/french-book-movies.html
+
 **Zelensky Announces Plan for Major Government Shake-Up in Ukraine**\
 `An announcement by the Ukrainian president that he will seek to replace the prime minister with a loyalist came as the country faces battlefield setbacks and a souring mood.`\
 https://nytimes.com/2025/07/14/world/europe/ukraine-zelensky-government-shakeup.html
