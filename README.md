@@ -1,3 +1,11 @@
+**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
+`Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
+https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
+
+**Cuomo Will Stay in the Race for N.Y.C. Mayor to Challenge Mamdani**\
+`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Zohran Mamdani, who soundly defeated him in the Democratic primary.`\
+https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
+
 **Real Madrid complete signing of Carreras from Benfica**\
 `The Spain youth international has spent time at Manchester United, Preston North End, Grenada and Benfica since he was last at Madrid.`\
 https://nytimes.com/athletic/6487745/2025/07/14/real-madrid-complete-signing-of-alvaro-carreras-from-benfica/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493401/2025/07/14/liverpool-goalkeepers-mamardashv
 **Scoop City: Primer on the chaos around NFL contract guarantees**\
 `Could one 45-minute meeting cost the NFL over $600 million? That, plus why your favorite team's second-round pick might be absent.`\
 https://nytimes.com/athletic/6493415/2025/07/14/nfl-collusion-nflpa-lamar-jackson-ruling-second-round-pick-holdout/
-
-**Cal Raleigh's family-style Home Run Derby appearance stems from a choice his dad made in 2011**\
-`Todd Raleigh's time coaching at Tennessee was ending. He could have pursued more coaching opportunities. Instead he went home to his family.`\
-https://nytimes.com/athletic/6493116/2025/07/14/cal-raleigh-todd-father-home-run-derby/
-
-**The Importance of Vaccines for Children**\
-`Readers respond to articles about childhood vaccinations and a rise in measles cases. Also: Justice Amy Coney Barrett’s independent path.`\
-https://nytimes.com/2025/07/14/opinion/vaccines-children.html
 
