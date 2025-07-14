@@ -1,3 +1,7 @@
+**Cubs select a trio of college talent on first day of MLB Draft, including CF Ethan Conrad**\
+`In the first round with the 17th pick, the Cubs selected Conrad, a center fielder out of Wake Forest.`\
+https://nytimes.com/athletic/6492470/2025/07/14/cubs-mlb-draft-day-1-ethan-conrad/
+
 **Word of the Day: sublimity**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/14/learning/word-of-the-day-sublimity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/opinion/europe-heat-wave-climate.html
 **‘The Summer I Turned Pretty,’ Plus 6 Things to Watch on TV This Week**\
 `The Prime Video show returns with its third and final season — and maybe an answer for Lola’s love triangle.`\
 https://nytimes.com/2025/07/14/arts/television/the-summer-i-turned-pretty.html
-
-**Dodgers draft prospects Zach Root, Charles Davalan in first round of 2025 MLB Draft**\
-`After leaning heavily into high school talents in the last two drafts, LA went not just with a pair of college players, but teammates.`\
-https://nytimes.com/athletic/6492418/2025/07/14/dodgers-zach-root-charles-davalan-mlb-draft-arkansas/
 
