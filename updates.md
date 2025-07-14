@@ -1,3 +1,7 @@
+**Zelensky Announces Plan for Major Government Shake-Up in Ukraine**\
+`An announcement by the Ukrainian president that he will seek to replace the prime minister with a loyalist came as the country faces battlefield setbacks and a souring mood.`\
+https://nytimes.com/2025/07/14/world/europe/ukraine-zelensky-government-shakeup.html
+
 **Sun Belt votes to add Louisiana Tech after losing Texas State to Pac-12**\
 `Louisiana Tech's addition will keep the Sun Belt at 14 football schools next year and give it three full members in the state.`\
 https://nytimes.com/athletic/6492950/2025/07/14/louisiana-tech-sun-belt-pac-12-realignment/
