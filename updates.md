@@ -1,3 +1,15 @@
+**Homeless Population Declines in Los Angeles for a Second Straight Year**\
+`A key survey of homelessness in Los Angeles determined that the number of people sleeping without shelter fell again. More than 72,000 people remain homeless in Los Angeles County.`\
+https://nytimes.com/2025/07/14/us/los-angeles-homeless.html
+
+**Pentagon Abruptly Pulls Out of Annual Aspen Conference**\
+`For years, Republican and Democratic administrations have dispatched civilian Pentagon officials and military commanders to the Aspen Security Forum in Colorado.`\
+https://nytimes.com/2025/07/14/us/politics/pentagon-military-aspen-forum.html
+
+**Sale of Rays expected to be final by September: Source**\
+`The team has agreed to a deal in principle with Jacksonville developer Patrick Zalupski for roughly $1.7 billion. `\
+https://nytimes.com/athletic/6493774/2025/07/14/tampa-bay-rays-sale-zalupski-mlb/
+
 **Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
 `Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
 https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html

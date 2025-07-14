@@ -1,3 +1,15 @@
+**Homeless Population Declines in Los Angeles for a Second Straight Year**\
+`A key survey of homelessness in Los Angeles determined that the number of people sleeping without shelter fell again. More than 72,000 people remain homeless in Los Angeles County.`\
+https://nytimes.com/2025/07/14/us/los-angeles-homeless.html
+
+**Pentagon Abruptly Pulls Out of Annual Aspen Conference**\
+`For years, Republican and Democratic administrations have dispatched civilian Pentagon officials and military commanders to the Aspen Security Forum in Colorado.`\
+https://nytimes.com/2025/07/14/us/politics/pentagon-military-aspen-forum.html
+
+**Sale of Rays expected to be final by September: Source**\
+`The team has agreed to a deal in principle with Jacksonville developer Patrick Zalupski for roughly $1.7 billion. `\
+https://nytimes.com/athletic/6493774/2025/07/14/tampa-bay-rays-sale-zalupski-mlb/
+
 **Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
 `Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
 https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-
 **The Club World Cup entertainment sideshow: Doja Cat, Robbie Williams and a foretaste of 2026**\
 `So was the Club World Cup pre-match and halftime entertainment a success?`\
 https://nytimes.com/athletic/6492684/2025/07/14/the-club-world-cup-final-entertainment/
-
-**Oklahoma Farmer Killed by Water Buffaloes He Had Just Bought, Police Say**\
-`The two aggressive animals delayed help from reaching the farmer, the police said.`\
-https://nytimes.com/2025/07/14/us/water-buffalo-attack-oklahoma.html
-
-**Supreme Court Clears the Way for Trump’s Cuts to the Education Department**\
-`Lawyers for the Trump administration had asked the justices to block a lower court order that directed officials to reinstate thousands of fired employees.`\
-https://nytimes.com/2025/07/14/us/politics/supreme-court-education-department.html
-
-**Democrats Must ‘Toughen Up’ Against Trump, Obama Tells Donors**\
-`Frustrated that prominent Democrats have not fought harder, former President Barack Obama said in a speech that his party’s leaders needed to step up.`\
-https://nytimes.com/2025/07/14/us/politics/barack-obama-trump-democrats.html
 
