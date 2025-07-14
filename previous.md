@@ -1,3 +1,15 @@
+**‘The Gospel at Colonus’ Review: Singing Hallelujah on the Hudson**\
+`In an open-air revival on Little Island in Manhattan, Lee Breuer and Bob Telson’s musically sumptuous play follows Oedipus at the end of his life.`\
+https://nytimes.com/2025/07/14/theater/the-gospel-at-colonus-review-little-island.html
+
+**Dream star Rhyne Howard to miss rest of July with left knee injury**\
+`The 25-year-old is expected to make a full recovery, though the Dream did not provide a specific date for when she will return.`\
+https://nytimes.com/athletic/6494167/2025/07/14/atlanta-dream-rhyne-howard-knee-injury/
+
+**Trump Adds Tariff to Mexican Tomatoes**\
+`The increase to the price of a grocery store staple comes after the Trump administration withdrew from a nearly 30-year old trade agreement with Mexico.`\
+https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html
+
 **Trump’s Fans Forgive Him Everything. Why Not Epstein?**\
 `Having nurtured conspiracy theories for his entire political career, he suddenly seems in danger of being consumed by one.`\
 https://nytimes.com/2025/07/14/opinion/trump-jeffrey-epstein-files.html
@@ -25,17 +37,4 @@ https://nytimes.com/2025/07/14/briefing/supreme-court-trump-education-ukraine-ru
 **Will the Conspiracists Cultivated by Trump Turn on Him Over Epstein?**\
 `The fallout of the Epstein case is testing the power the president holds over his most loyal followers, many of whom have broken into open revolt against him.`\
 https://nytimes.com/2025/07/14/us/politics/trump-epstein-conspiracy-theories.html
-
-**Yes, Gen Z Is Staring at You. The Question Is Why.**\
-`A generational debate has started over Gen Z’s tendency to respond to various social situations with a long and intentional stare.`\
-https://nytimes.com/2025/07/14/style/gen-z-stare-tiktok.html
-
-**Ukraine Greets Trump’s Decision to Help Provide Patriot Systems With Cautious Optimism**\
-`American fatigue with the war and the fickleness of the Trump administration remain concerns for Ukraine’s leaders.`\
-https://nytimes.com/2025/07/14/us/politics/trump-ukraine-weapons-patriot-missiles.html
-
-**Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
-`The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
-`\
-https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
 

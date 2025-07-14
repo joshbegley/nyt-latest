@@ -1,3 +1,15 @@
+**‘The Gospel at Colonus’ Review: Singing Hallelujah on the Hudson**\
+`In an open-air revival on Little Island in Manhattan, Lee Breuer and Bob Telson’s musically sumptuous play follows Oedipus at the end of his life.`\
+https://nytimes.com/2025/07/14/theater/the-gospel-at-colonus-review-little-island.html
+
+**Dream star Rhyne Howard to miss rest of July with left knee injury**\
+`The 25-year-old is expected to make a full recovery, though the Dream did not provide a specific date for when she will return.`\
+https://nytimes.com/athletic/6494167/2025/07/14/atlanta-dream-rhyne-howard-knee-injury/
+
+**Trump Adds Tariff to Mexican Tomatoes**\
+`The increase to the price of a grocery store staple comes after the Trump administration withdrew from a nearly 30-year old trade agreement with Mexico.`\
+https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html
+
 **Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
 `The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
 `\
