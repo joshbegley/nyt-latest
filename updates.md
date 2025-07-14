@@ -1,3 +1,7 @@
+**Their Water Taps Ran Dry When Meta Built Next Door**\
+`In the race to develop artificial intelligence, tech giants are building data centers that guzzle up water. That has led to problems for people who live nearby.`\
+https://nytimes.com/2025/07/14/technology/meta-data-center-water.html
+
 **Do You Know These French Books Adapted for Stage and Screen?**\
 `France has produced many novels and stories that have gone on to become internationally popular musicals and movies. Try this short quiz to see how many you know.`\
 https://nytimes.com/interactive/2025/07/14/books/review/french-book-movies.html
