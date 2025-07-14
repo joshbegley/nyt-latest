@@ -20,7 +20,7 @@ https://nytimes.com/2025/07/14/opinion/college-soul-ai-education.html
 
 **Trump’s Willingness to Arm Ukraine Puts Him Closer to Biden Approach**\
 `President Trump is expected this week to formalize a new plan to sell American weapons to European allies, who would pass them onto Kyiv.`\
-https://nytimes.com/2025/07/14/us/politics/trumps-ukraine-biden.html
+https://nytimes.com/2025/07/14/us/politics/trump-ukraine-biden.html
 
 **Are Two-Piece Matching Sets Still Trendy?**\
 `A reader wonders if the co-ord set is past its prime. Our critic explains the history of the style, and why coordination is timeless.`\

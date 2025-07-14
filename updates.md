@@ -1,3 +1,23 @@
+**Bluffs and Bluster Aside, Trump’s Tariffs Are Here to Stay**\
+`The president has earned a reputation for bluffing on tariffs. But he has steadily and dramatically raised U.S. tariffs, transforming global trade.`\
+https://nytimes.com/2025/07/14/us/politics/trump-tariffs.html
+
+**I’m Watching the Sacrifice of College’s Soul**\
+`The highest ideals of higher ed are under mortal threat.`\
+https://nytimes.com/2025/07/14/opinion/college-soul-ai-education.html
+
+**Trump’s Willingness to Arm Ukraine Puts Him Closer to Biden Approach**\
+`President Trump is expected this week to formalize a new plan to sell American weapons to European allies, who would pass them onto Kyiv.`\
+https://nytimes.com/2025/07/14/us/politics/trumps-ukraine-biden.html
+
+**A Peacock’s-Eye View of the Waldorf Remade**\
+`Waldorf Astoria New York, one of the city’s grandest hotels, closed for renovations in 2017. After almost eight years and billions of dollars, it returns, reborn for the 21st century.`\
+https://nytimes.com/interactive/2025/07/14/travel/waldorf-astoria-hotel-new-york-reopening.html
+
+**Nothing Good Happens When People Become ‘the Other’**\
+`We will regret not standing up to this venomous cruelty.`\
+https://nytimes.com/2025/07/14/opinion/immigration-trump-ice-raids.html
+
 **Bluffs and Bluster Aside, Trumpâs Tariffs Are Here to Stay**\
 `The president has earned a reputation for bluffing on tariffs. But he has steadily and dramatically raised U.S. tariffs, transforming global trade.`\
 https://nytimes.com/2025/07/14/us/politics/trump-tariffs.html
