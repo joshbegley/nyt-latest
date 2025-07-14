@@ -1,5 +1,9 @@
+**Why the Angels shocked MLB by selecting Tyler Bremner with the No. 2 pick in MLB Draft**\
+`The question for the Angels coming into the draft was if they’d use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
+https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
+
 **Yankees take high school shortstop Dax Kilby with their first pick of MLB Draft**\
-`The New Yankees took Newnan (Ga.) High School shortstop Dax Kilby with the No. 39 pick of the MLB draft.`\
+`New York took Kilby, 19, of Newnan, Ga., with the No. 39 pick.`\
 https://nytimes.com/athletic/6491843/2025/07/13/dax-kilby-yankees-2025-mlb-draft/
 
 **Blue Jays set for 'fun' but wild second half after chaotic loss to Athletics**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491747/2025/07/13/caitlin-clark-paige-bueckers-fir
 **A's first-round pick Jamie Arnold relishes the Chris Sale comps, ready for next step**\
 `Arnold, 21, struck out 278 batters with a 2.98 ERA in 190 1/3 innings for Florida State over the past two seasons.`\
 https://nytimes.com/athletic/6466773/2025/07/13/jamie-arnold-mlb-draft-athletics-first-round/
-
-**White Sox first-rounder Billy Carlson is used to playing in the spotlight**\
-`Carlson and his Corona teammates came into the year with high expectations. He thrived under pressure and will look to do the same as a pro.`\
-https://nytimes.com/athletic/6481586/2025/07/13/chicago-white-sox-first-rounder-billy-carlson-is-used-to-playing-in-the-spotlight/
 
