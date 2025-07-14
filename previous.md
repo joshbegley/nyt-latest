@@ -1,3 +1,11 @@
+**Dig for Children’s Remains Begins at Irish Home for Unwed Mothers**\
+`Experts are searching for the remains of hundreds of children who died at the institution run by Catholic nuns until 1961, including bodies disposed of in septic tanks.`\
+https://nytimes.com/2025/07/14/world/europe/ireland-excavation-children-tuam.html
+
+**Catherine, Princess of Wales, Dresses for a New (Life) Stage**\
+`Appearances at Wimbledon and a French state visit symbolize a new kind of style.`\
+https://nytimes.com/2025/07/14/style/catherine-princess-of-wales-fashion.html
+
 **What we learned from Liverpool's first pre-season friendly**\
 `What we learned from Liverpool's opening pre-season friendly at Preston on Sunday `\
 https://nytimes.com/athletic/6493165/2025/07/14/liverpool-are-playing-football-again-so-what-did-we-learn/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/trump-winery-virginia
 **Cavaliers extend president Koby Altman through 2029-30: Source**\
 `Owner Dan Gilbert also extended general manager Mike Gansey and assistant general manager Brandon Weems.`\
 https://nytimes.com/athletic/6493220/2025/07/14/koby-altman-cavaliers-extension/
-
-**Submit your Michigan Wolverines mailbag questions here**\
-`What's on your mind about Michigan as the 2025 football season rapidly approaches?`\
-https://nytimes.com/athletic/6493270/2025/07/14/michigan-wolverines-football-mailbag-questions/
-
-**Fanny Howe, Poet of Unsettled Dreams, Is Dead at 84**\
-`Her heritage, as a scion of Boston Brahmins and the mother of biracial children, shaped a discursive verse style that veiled sharp edges and melancholy resolutions.`\
-https://nytimes.com/2025/07/14/books/fanny-howe-dead.html
 

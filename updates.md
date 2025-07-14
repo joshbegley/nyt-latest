@@ -1,3 +1,11 @@
+**Dig for Children’s Remains Begins at Irish Home for Unwed Mothers**\
+`Experts are searching for the remains of hundreds of children who died at the institution run by Catholic nuns until 1961, including bodies disposed of in septic tanks.`\
+https://nytimes.com/2025/07/14/world/europe/ireland-excavation-children-tuam.html
+
+**Catherine, Princess of Wales, Dresses for a New (Life) Stage**\
+`Appearances at Wimbledon and a French state visit symbolize a new kind of style.`\
+https://nytimes.com/2025/07/14/style/catherine-princess-of-wales-fashion.html
+
 **What we learned from Liverpool's first pre-season friendly**\
 `What we learned from Liverpool's opening pre-season friendly at Preston on Sunday `\
 https://nytimes.com/athletic/6493165/2025/07/14/liverpool-are-playing-football-again-so-what-did-we-learn/
