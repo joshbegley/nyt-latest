@@ -1,3 +1,7 @@
+**Yankees take high school shortstop Dax Kilby with their first pick of MLB Draft**\
+`The New Yankees took Newnan (Ga.) High School shortstop Dax Kilby with the No. 39 pick of the MLB draft.`\
+https://nytimes.com/athletic/6491843/2025/07/13/dax-kilby-yankees-2025-mlb-draft/
+
 **Blue Jays set for 'fun' but wild second half after chaotic loss to Athletics**\
 `The 6-3 loss Sunday featured a minor-league ballpark, a heated ejection and a starting pitcher in the bullpen.`\
 https://nytimes.com/athletic/6492004/2025/07/13/blue-jays-loss-athletics-second-half/

@@ -1,3 +1,7 @@
+**Yankees take high school shortstop Dax Kilby with their first pick of MLB Draft**\
+`The New Yankees took Newnan (Ga.) High School shortstop Dax Kilby with the No. 39 pick of the MLB draft.`\
+https://nytimes.com/athletic/6491843/2025/07/13/dax-kilby-yankees-2025-mlb-draft/
+
 **Blue Jays set for 'fun' but wild second half after chaotic loss to Athletics**\
 `The 6-3 loss Sunday featured a minor-league ballpark, a heated ejection and a starting pitcher in the bullpen.`\
 https://nytimes.com/athletic/6492004/2025/07/13/blue-jays-loss-athletics-second-half/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466773/2025/07/13/jamie-arnold-mlb-draft-athletics
 **White Sox first-rounder Billy Carlson is used to playing in the spotlight**\
 `Carlson and his Corona teammates came into the year with high expectations. He thrived under pressure and will look to do the same as a pro.`\
 https://nytimes.com/athletic/6481586/2025/07/13/chicago-white-sox-first-rounder-billy-carlson-is-used-to-playing-in-the-spotlight/
-
-**King Charles III Will Host Trump for U.K. State Visit in September**\
-`Buckingham Palace confirmed the dates of President Trump’s trip to Britain, which will be his second state visit.`\
-https://nytimes.com/2025/07/13/world/europe/king-charles-trump-uk-state-visit.html
 
