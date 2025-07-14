@@ -1,3 +1,7 @@
+**Why the Angels shocked MLB by drafting Tyler Bremner with the No. 2 pick**\
+`The question for the Angels coming into the draft was if theyâd use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
+https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
+
 **Padres draft Kruz Schoolcraft, again picking a high schooler in first round**\
 `Schoolcraft, 18, starred as a pitcher and first baseman for Sunset (Ore.) High.`\
 https://nytimes.com/athletic/6489303/2025/07/13/padres-draft-kruz-schoolcraft-no-1/
