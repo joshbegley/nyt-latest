@@ -1,3 +1,7 @@
+**Padres draft Kruz Schoolcraft, taking a high schooler No. 1 for ninth year**\
+`Schoolcraft, 18, starred as a pitcher and first baseman for Sunset (Ore.) High.`\
+https://nytimes.com/athletic/6489303/2025/07/13/padres-draft-kruz-schoolcraft-no-1/
+
 **Braves second-rounder Alex Lodise went from barely recruited to college baseball's 'Heisman'**\
 `Lodise had one college offer coming out of high school. This season, he won the Dick Howser award as the top college baseball player.`\
 https://nytimes.com/athletic/6487229/2025/07/13/braves-alex-lodise-mlb-draft-florida-state/

@@ -1,3 +1,7 @@
+**Padres draft Kruz Schoolcraft, taking a high schooler No. 1 for ninth year**\
+`Schoolcraft, 18, starred as a pitcher and first baseman for Sunset (Ore.) High.`\
+https://nytimes.com/athletic/6489303/2025/07/13/padres-draft-kruz-schoolcraft-no-1/
+
 **Braves second-rounder Alex Lodise went from barely recruited to college baseball's 'Heisman'**\
 `Lodise had one college offer coming out of high school. This season, he won the Dick Howser award as the top college baseball player.`\
 https://nytimes.com/athletic/6487229/2025/07/13/braves-alex-lodise-mlb-draft-florida-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseba
 **Yankees takeaways from first half: Pitching help, Volpe's struggles, more**\
 `How, specifically, could the Yankees get better in the second half of their season?`\
 https://nytimes.com/athletic/6491832/2025/07/13/yankees-first-half-trade-deadline-anthony-volpe/
-
-**Red Sox first-round pick Kyson Witherspoon ready to chart his own path in pro ball**\
-`Witherspoon was lightly recruited in high school and not invited to the Combine. Three years later, he's one of the draft's top arms.`\
-https://nytimes.com/athletic/6470042/2025/07/13/kyson-witherspoon-red-sox-first-round-pick/
 
