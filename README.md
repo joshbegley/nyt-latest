@@ -1,3 +1,15 @@
+**More Woody Guthrie Songs? Yes, From a Trove of Homemade Recordings.**\
+`A new, intimate album will include 13 previously unheard songs and a rewrite of “This Land Is Your Land.”`\
+https://nytimes.com/2025/07/14/arts/music/woody-guthrie-tapes-woody-at-home.html
+
+**Could You Have Landed a Job at Vogue in the ’90s?**\
+`To work for Anna Wintour in Vogue's glory days, you had to know a little bit of everything. Take the quiz to find out if you would have made the grade.`\
+https://nytimes.com/interactive/2025/07/14/style/vogue-quiz-90s.html
+
+**New Tariff Threats Risk Big Blow to U.S. Economy**\
+`The economy’s resilience so far to President Trump’s global trade war risks emboldening him and unleashing the sort of economic devastation that economists have long feared.`\
+https://nytimes.com/2025/07/14/us/politics/tariff-threats-us-economy.html
+
 **Dig for Children’s Remains Begins at Irish Home for Unwed Mothers**\
 `Experts are searching for the remains of hundreds of children who died at the institution run by Catholic nuns until 1961, including bodies disposed of in septic tanks.`\
 https://nytimes.com/2025/07/14/world/europe/ireland-excavation-children-tuam.html
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/canada-national-parks
 **49ers' Jauan Jennings seeking new deal or trade, expected at camp: Source**\
 `Jennings led all 49ers receivers with a career-high 77 catches, 975 yards and six touchdowns last season.`\
 https://nytimes.com/athletic/6493187/2025/07/14/jauan-jennings-49ers-contract-trade/
-
-**gws-kei-trucks-cars-japan**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/kei-trucks-cars-japan
-
-**gws-trump-winery-virginia**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/trump-winery-virginia
-
-**Cavaliers extend president Koby Altman through 2029-30: Source**\
-`Owner Dan Gilbert also extended general manager Mike Gansey and assistant general manager Brandon Weems.`\
-https://nytimes.com/athletic/6493220/2025/07/14/koby-altman-cavaliers-extension/
 
