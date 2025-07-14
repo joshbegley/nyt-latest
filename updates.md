@@ -1,3 +1,7 @@
+**Upsets everywhere, the best shots and the funniest moments: Wimbledon takeaways**\
+`The best stories, surprises and shots of Wimbledon 2025, with Iga Świątek and Jannik Sinner crowned champions,`\
+https://nytimes.com/athletic/6490955/2025/07/14/tennis-wimbledon-best-matches-best-shots-2025/
+
 **The Pulse: Who had the best day yesterday?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6492144/2025/07/14/sinner-alcaraz-mlb-draft-the-pulse/
