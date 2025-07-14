@@ -1,3 +1,11 @@
+**Ella Toone 'celebrates to the sky' after delivering again at the Euros for England**\
+`England will have stiffer tests ahead at the Euros but Toone is thriving in this set-up in her first tournament since losing her dad, Nick`\
+https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
+
+**Hacker Impersonating Elmo Made Antisemitic X Posts**\
+`The owner of “Sesame Street” said it was working to restore control of Elmo’s social media account after the cyberattack on the fuzzy red monster, a beloved character on the children’s show.`\
+https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
+
 **Twins draft slick-fielding shortstop Marek Houston, then focus on high-upside picks**\
 `Day 1 also saw the Twins pick Delmon Young's power-hitting nephew and two big, hard-throwing college right-handers.`\
 https://nytimes.com/athletic/6491946/2025/07/14/twins-mlb-draft-marek-houston-high-upside-picks/
