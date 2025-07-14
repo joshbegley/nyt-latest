@@ -1,3 +1,11 @@
+**The Pulse: Who had the best day yesterday?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6492144/2025/07/14/sinner-alcaraz-mlb-draft-the-pulse/
+
+**Barcelona complete signing of Bardghji from Copenhagen**\
+`The 19-year-old winger returned from an ACL injury in March after 10 months out.`\
+https://nytimes.com/athletic/6445120/2025/07/14/roony-bardghji-barcelona-transfer/
+
 **Marchand's Plan: The Home Run Derby and how MLB should present its game in the future**\
 `To maximize its revenue and its reach, MLB needs to approach its media future with a focus on simplicity, scarcity and scale.`\
 https://nytimes.com/athletic/6488940/2025/07/14/mlb-media-deals-espn-fox-nbc-netflix-rob-manfred/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6491729/2025/07/14/detroit-tigers-second-half-pitch
 **Top 100 drafted NHL prospects ranking: Scott Wheeler’s summer 2025 list**\
 `Welcome to the summer 2025 edition of Scott Wheeler ranking of the NHL’s best prospects at The Athletic.`\
 https://nytimes.com/athletic/6469634/2025/07/14/nhl-top-prospects-ranking-2025-schaefer/
-
-**One Rural Doctor on the Real Cost of Medicaid Changes**\
-`A family physician in western North Carolina explains what she thinks will happen to her patients as a result of Republicans’ domestic policy bill.`\
-https://nytimes.com/2025/07/14/podcasts/the-daily/medicaid-republican-cuts-doctor.html
-
-**Ranking men's college basketball's top 25 players of the 2000s: Carmelo Anthony takes No. 1**\
-`Weighing one-and-done stardom against four years of sustained success is tough. How a player elevated his team's success mattered plenty.`\
-https://nytimes.com/athletic/6488102/2025/07/14/mens-college-basketball-best-25-players-rankings-2000s/
 
