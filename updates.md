@@ -1,3 +1,19 @@
+**Word of the Day: sublimity**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/14/learning/word-of-the-day-sublimity.html
+
+**Hacker Impersonating Elmo Makes Antisemitic X Posts**\
+`The owner of “Sesame Street” said it was working to restore control of Elmo’s social media account after the cyberattack on the fuzzy red monster, a beloved character on the children’s show.`\
+https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
+
+**Monday Briefing: America’s Brain Drain and the World**\
+`Plus, Jannik Sinner wins Wimbledon.`\
+https://nytimes.com/2025/07/14/briefing/harvard-science-trump-rare-earths-gaza.html
+
+**‘The Summer I Turned Pretty,’ Plus 6 Things to Watch on TV This Week**\
+`The Prime Video show returns with its third and final season — and maybe an answer for Lola’s love triangle.`\
+https://nytimes.com/2025/07/14/arts/television/the-summer-i-turned-pretty.html
+
 **Hacker Impersonating Elmo Makes Antisemitic X Posts**\
 `The owner of âSesame Streetâ said it was working to restore control of Elmoâs social media account after the cyberattack on the fuzzy red monster, a beloved character on the childrenâs show.`\
 https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
