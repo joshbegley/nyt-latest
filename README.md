@@ -1,3 +1,7 @@
+**The Club World Cup entertainment sideshow: Doja Cat, Robbie Williams and a foretaste of 2026**\
+`So was the Club World Cup pre-match and halftime entertainment a success?`\
+https://nytimes.com/athletic/6492684/2025/07/14/the-club-world-cup-final-entertainment/
+
 **Oklahoma Farmer Killed by Water Buffaloes He Had Just Bought, Police Say**\
 `The two aggressive animals delayed help from reaching the farmer, the police said.`\
 https://nytimes.com/2025/07/14/us/water-buffalo-attack-oklahoma.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489485/2025/07/14/mlb-2025-home-run-derby-guide/
 **Canadian Wildfire Smoke Sets Off Air Quality Alerts in Toronto and U.S.**\
 `Smoke from wildfires in Manitoba, a Western province facing its worst fire season in 30 years, has created hazardous air quality conditions across Eastern Canada and the United States.`\
 https://nytimes.com/2025/07/14/world/canada/canada-wildfire-smoke-manitoba-toronto-us.html
-
-**This is why Test cricket delivers the best sporting drama in the world**\
-`This was a throwback of a last day when every wicket and run was eked out in front of a near full-house and the tension became unbearable`\
-https://nytimes.com/athletic/6493142/2025/07/14/england-india-test-cricket-lords-drama/
 
