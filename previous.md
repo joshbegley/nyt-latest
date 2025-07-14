@@ -26,8 +26,8 @@ https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
 
-**Cuomo Will Stay in the Race for N.Y.C. Mayor to Challenge Mamdani**\
-`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary.`\
+**Cuomo to Fight On in Mayor’s Race After Bruising Primary Loss to Mamdani**\
+`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary for New York City mayor.`\
 https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
 
 **Real Madrid complete signing of Carreras from Benfica**\

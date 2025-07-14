@@ -1,3 +1,7 @@
+**Cuomo to Fight On in Mayor’s Race After Bruising Primary Loss to Mamdani**\
+`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary for New York City mayor.`\
+https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
+
 **Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
 `The deal follows Google’s $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
 https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
