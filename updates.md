@@ -1,3 +1,23 @@
+**MLB Home Run Derby primer — everything you need to know about the slugfest**\
+`If you’ve never watched the Home Run Derby, or are looking for a quick refresher on how things work, The Athletic has you covered.`\
+https://nytimes.com/athletic/6489485/2025/07/14/mlb-2025-home-run-derby-guide/
+
+**Snakes Use Smelly Musk to Keep Ants Out of Their Pants**\
+`Forget fangs full of venom — the backsides of serpents pack secretions volatile enough to kill insect invaders.`\
+https://nytimes.com/2025/07/14/science/snakes-fire-ants-musk.html
+
+**Watching the Men’s Final at Wimbledon With the Fashion Set**\
+`Text by Desiree Ibekwe and Ayesha Kazim`\
+https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
+
+**Meta’s New Superintelligence Lab Is Discussing Major A.I. Strategy Changes**\
+`Members of the lab, including the new chief A.I. officer, Alexandr Wang, have talked about abandoning Meta’s most powerful open source A.I. model in favor of developing a closed one.`\
+https://nytimes.com/2025/07/14/technology/meta-superintelligence-lab-ai.html
+
+**Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
+`The deal follows Google’s $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
+https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
+
 **Canadian Wildfire Smoke Sets Off Air Quality Alerts in Toronto and U.S.**\
 `Smoke from wildfires in Manitoba, a Western province facing its worst fire season in 30 years, has created hazardous air quality conditions across Eastern Canada and the United States.`\
 https://nytimes.com/2025/07/14/world/canada/canada-wildfire-smoke-manitoba-toronto-us.html
