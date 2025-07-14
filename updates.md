@@ -1,3 +1,19 @@
+**Red Sox select 3 college pitchers with first 4 picks on Day 1 of MLB Draft**\
+`Not since Tanner Houck in 2017 had Boston selected a first-round pitcher, but it bucked that trend Sunday with Kyson Witherspoon at No. 15.`\
+https://nytimes.com/athletic/6492331/2025/07/14/red-sox-mlb-draft-pitchers-kyson-witherspoon/
+
+**Power versus weight: Are the Tour de France's top climbers getting heavier?**\
+`Jonas Vingegaard has added muscle mass to improve his explosivity this year âÂ and the Dane is not alone `\
+https://nytimes.com/athletic/6491251/2025/07/14/cyclist-weight-power-climbers-tour-de-france/
+
+**Longstaff, Leeds' Â£10m bid and Newcastle's decisions over player sales**\
+`Newcastle head coach Eddie Howe wants to add players but selling will be a key component of his transfer business this summer`\
+https://nytimes.com/athletic/6473096/2025/07/14/sean-longstaff-newcastle-player-sales/
+
+**Do Manchester United shirt numbers matter? Ask Cunha, Rashfordâ¦ or Carrick**\
+`Player jerseys can have iconic status at Old Trafford - and are also big business`\
+https://nytimes.com/athletic/6483319/2025/07/14/manchester-united-shirt-numbers/
+
 **Power versus weight: Are the Tour de France's top climbers getting heavier?**\
 `Jonas Vingegaard has added muscle mass to improve his explosivity this year — and the Dane is not alone `\
 https://nytimes.com/athletic/6491251/2025/07/14/cyclist-weight-power-climbers-tour-de-france/
