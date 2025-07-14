@@ -1,3 +1,7 @@
+**Marchand's Plan: The Home Run Derby and how MLB should present its game in the future**\
+`To maximize its revenue and its reach, MLB needs to approach its media future with a focus on simplicity, scarcity and scale.`\
+https://nytimes.com/athletic/6488940/2025/07/14/mlb-media-deals-espn-fox-nbc-netflix-rob-manfred/
+
 **Stocks Wobble on Trump’s Latest Tariff Threats**\
 `Analysts said the muted market response was because many investors expected the levies to settle at lower levels after negotiations.`\
 https://nytimes.com/2025/07/14/business/stocks-tariffs-eu-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488102/2025/07/14/mens-college-basketball-best-25-
 **Biden Hits Back on Autopen Claims, and Public Media Braces for Cuts**\
 `Plus, a very Wimbledon disruption.`\
 https://nytimes.com/2025/07/14/podcasts/the-headlines/biden-hits-back-on-autopen-claims-and-public-media-braces-for-cuts.html
-
-**Mets draft two-way Michigan star Mitch Voit, Antonio Jimenez in 2025 MLB Draft**\
-`The Mets’ first pick was docked 10 spots from No. 28 to 38 because they exceeded the luxury tax threshold by more than $40 million last year`\
-https://nytimes.com/athletic/6492474/2025/07/14/mets-mitch-voit-mlb-draft-antonio-jimenez/
 
