@@ -1,3 +1,7 @@
+**Why Jonker left out Miedema - and why it was the right call**\
+`A 5-2 defeat looks embarrassing - but the departing Netherlands coach's decision should be judged by more than just the scoreline.`\
+https://nytimes.com/athletic/6491859/2025/07/14/vivianne-miedema-netherlands-lineth-beerensteyn/
+
 **Phillies draft Gage Wood, other college pitchers on Day 1 of 2025 MLB Draft**\
 `Gage Wood delivered one of the College World Series&#8217; strongest pitching performances ever when he threw a 119-pitch no-hitter on June 16.`\
 https://nytimes.com/athletic/6492490/2025/07/14/phillies-draft-gage-wood-other-college-pitchers-on-day-1-of-2025-mlb-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/briefing/harvard-science-trump-rare-earths-gaza.h
 **The New York Times in Print for Monday, July 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/14/todays-new-york-times
-
-**Europe Is Terrifyingly Hot, and Its Leaders Are Doing Worse Than Nothing**\
-`Caving to a right-wing chorus, they are reining in their green agenda.`\
-https://nytimes.com/2025/07/14/opinion/europe-heat-wave-climate.html
 
