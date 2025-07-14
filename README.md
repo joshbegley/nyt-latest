@@ -15,11 +15,11 @@ https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-bost
 https://nytimes.com/athletic/6487384/2025/07/14/sharks-depth-chart-2025/
 
 **USMNT forward Sargent in talks over potential Wolfsburg move**\
-`The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga.Â `\
+`The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
 https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/
 
 **Companies in Europe Are Frozen as Tariff Uncertainty Drags On**\
-`After European Union leaders said they would keep negotiating instead of immediately retaliating against President Trumpâs latest threat, businesses remain unable to develop long-term plans.`\
+`After European Union leaders said they would keep negotiating instead of immediately retaliating against President Trump’s latest threat, businesses remain unable to develop long-term plans.`\
 https://nytimes.com/2025/07/14/business/tariffs-trump-europe-companies-impact.html
 
 **Bitcoin Soars Past $120,000 as House Takes Up Crypto Bills**\
