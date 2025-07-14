@@ -1,3 +1,15 @@
+**Death of John Elway’s former agent and business partner ruled an accident**\
+`Authorities closed their investigation into Sperbeck's death, a result of injuries he sustained after falling off the back of a golf cart.`\
+https://nytimes.com/athletic/6492982/2025/07/14/jeff-sperbeck-death-investigation-john-elway/
+
+**Mavericks shut down Cooper Flagg after two games in NBA Summer League**\
+`Flagg scored 31 points against the Spurs in his second game with Dallas on Saturday.`\
+https://nytimes.com/athletic/6492985/2025/07/14/mavericks-cooper-flagg-nba-summer-league/
+
+**A Handshake in Orbit 50 Years Ago Transformed the Space Race**\
+`The Apollo-Soyuz Test Project brought Soviet cosmonauts and NASA astronauts together in the first international human spaceflight.`\
+https://nytimes.com/2025/07/14/science/apollo-soyuz-test-project-1975-anniversary.html
+
 **Indiana Fever All-Star Aliyah Boston joins Boston Legacy FC investor group**\
 `Aliyah Boston's investment came from a desire to give back to a place that supported her through high school, she said.`\
 https://nytimes.com/athletic/6492665/2025/07/14/indiana-fever-aliyah-boston-boston-legacy-fc-investor-group/
