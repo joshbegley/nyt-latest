@@ -1,3 +1,7 @@
+**Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
+`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
+https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
+
 **In Rare Move, Judges Reject a Trump Pick for U.S. Attorney**\
 `While serving as interim U.S. attorney in Albany, John A. Sarcone III claimed that the judges had appointed him to the office permanently. They had not.`\
 https://nytimes.com/2025/07/14/nyregion/sarcone-us-attorney-ndny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/supreme-court-education-department.ht
 **Democrats Must ‘Toughen Up’ Against Trump, Obama Tells Donors**\
 `Frustrated that prominent Democrats have not fought harder, former President Barack Obama said in a speech that his party’s leaders needed to step up.`\
 https://nytimes.com/2025/07/14/us/politics/barack-obama-trump-democrats.html
-
-**To Browse or To Buy: A.I. Is the Answer**\
-`Visa mobilizes the power of agentic A.I. to drive a new era of online shopping.`\
-https://nytimes.com/paidpost/visa/to-browse-or-to-buy-ai-is-the-answer.html
 
