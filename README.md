@@ -1,3 +1,7 @@
+**Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
+`The violence underscores the government’s challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
+https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
+
 **What’s Going on With Trump Media’s Streaming Service?**\
 `The service, which promises “non-woke” news and entertainment, recently said it had expanded globally.`\
 https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contrac
 **The Best Summer Reads, as Recommended by the Book Review**\
 `To survive the dog days of summer, try reading one (or all) of these suggestions by writers, critics and editors at The Times.`\
 https://nytimes.com/2025/07/14/insider/the-best-summer-reads-as-recommended-by-the-book-review.html
-
-**BBC Ends Ties With ‘MasterChef’ Host Gregg Wallace After Investigation**\
-`The BBC said it would stop working with Mr. Wallace after dozens of sexual misconduct allegations were upheld.`\
-https://nytimes.com/2025/07/14/world/europe/gregg-wallace-masterchef-bbc.html
 
