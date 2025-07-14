@@ -1,3 +1,19 @@
+**The Tooth Fairy Is Real. She’s a Dentist in Seattle.**\
+`For 20 years, Dr. Purva Merchant has been answering letters from gaptoothed children and their parents — roughly 6,000 in all. “Happy growing up,” she typically replies.`\
+https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/14/crosswords/spelling-bee-forum.html
+
+**Why Jonker left out Miedema – and why it was the right call**\
+`A 5-2 defeat looks embarrassing, but the departing Netherlands coach's decision should be judged by more than just the scoreline`\
+https://nytimes.com/athletic/6491859/2025/07/14/vivianne-miedema-netherlands-lineth-beerensteyn/
+
+**Phillies draft Gage Wood, other college pitchers on Day 1 of 2025 MLB Draft**\
+`The Phillies selected Wood with the 26th pick on Sunday — the first of three pitchers the club took.`\
+https://nytimes.com/athletic/6492490/2025/07/14/phillies-draft-gage-wood-other-college-pitchers-on-day-1-of-2025-mlb-draft/
+
 **The Tooth Fairy Is Real. Sheâs a Dentist in Seattle.**\
 `For 20 years, Dr. Purva Merchant has been answering letters from gaptoothed children and their parents â roughly 6,000 in all. âHappy growing up,â she typically replies.`\
 https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html
