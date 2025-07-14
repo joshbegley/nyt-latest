@@ -1,3 +1,11 @@
+**Trump’s Fans Forgive Him Everything. Why Not Epstein?**\
+`Having nurtured conspiracy theories for his entire political career, he suddenly seems in danger of being consumed by one.`\
+https://nytimes.com/2025/07/14/opinion/trump-jeffrey-epstein-files.html
+
+**How Do You Silence a Conspiracy Theory?**\
+`President Trump is finding it hard to put the Epstein files behind him.`\
+https://nytimes.com/2025/07/14/us/politics/conspiracy-epstein-files-trump.html
+
 **Senate Approves First Judge of Trump’s Second Term**\
 `The pace of judicial confirmations is lagging compared with the president’s first stint in office, but more are in the pipeline.`\
 https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-second-term.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/07/14/us/politics/trump-ukraine-weapons-patriot-missile
 `The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
 `\
 https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
-
-**Son of Ex-Hollywood Agent, Jailed in 3 Murders, Dies by Suicide, D.A. Says**\
-`Samuel Haskell, 37, was accused of dismembering his wife and his in-laws. He was the son of Sam Haskell III, an Emmy-winning film producer and veteran talent agent.`\
-https://nytimes.com/2025/07/14/us/sam-haskell-dead-murder-charges.html
-
-**Jets, Garrett Wilson agree to 4-year, $130 million extension: Source**\
-`The contract includes $90 million in guarantees and locks Wilson down through to the 2030 season.`\
-https://nytimes.com/athletic/6493992/2025/07/14/garrett-wilson-jets-contract-extension-nfl/
 
