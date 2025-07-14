@@ -1,3 +1,7 @@
+**Upsets everywhere, the best shots and the funniest moments: Wimbledon takeaways**\
+`The best stories, surprises and shots of Wimbledon 2025, with Iga Świątek and Jannik Sinner crowned champions,`\
+https://nytimes.com/athletic/6490955/2025/07/14/tennis-wimbledon-best-matches-best-shots-2025/
+
 **The Pulse: Who had the best day yesterday?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6492144/2025/07/14/sinner-alcaraz-mlb-draft-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6491305/2025/07/14/wnba-anonymous-player-poll-trash
 **In the second half, the Tigers will go as far as their pitching takes them**\
 `The Tigers entered Sunday with a 5.03 bullpen ERA since June 1. Good as they are, they need to recapture some of last year's pitching magic.`\
 https://nytimes.com/athletic/6491729/2025/07/14/detroit-tigers-second-half-pitching/
-
-**Top 100 drafted NHL prospects ranking: Scott Wheeler’s summer 2025 list**\
-`Welcome to the summer 2025 edition of Scott Wheeler ranking of the NHL’s best prospects at The Athletic.`\
-https://nytimes.com/athletic/6469634/2025/07/14/nhl-top-prospects-ranking-2025-schaefer/
 
