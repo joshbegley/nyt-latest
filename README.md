@@ -1,3 +1,15 @@
+**Supreme Court Allowed Trump to Slash the Education Dept.**\
+`Also, Trump promised to help secure weapons for Ukraine. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/14/briefing/supreme-court-trump-education-ukraine-russia.html
+
+**Will the Conspiracists Cultivated by Trump Turn on Him Over Epstein?**\
+`The fallout of the Epstein case is testing the power the president holds over his most loyal followers, many of whom have broken into open revolt against him.`\
+https://nytimes.com/2025/07/14/us/politics/trump-epstein-conspiracy-theories.html
+
+**Yes, Gen Z Is Staring at You. The Question Is Why.**\
+`A generational debate has started over Gen Z’s tendency to respond to various social situations with a long and intentional stare.`\
+https://nytimes.com/2025/07/14/style/gen-z-stare-tiktok.html
+
 **Ukraine Greets Trump’s Decision to Help Provide Patriot Systems With Cautious Optimism**\
 `American fatigue with the war and the fickleness of the Trump administration remain concerns for Ukraine’s leaders.`\
 https://nytimes.com/2025/07/14/us/politics/trump-ukraine-weapons-patriot-missiles.html
@@ -28,16 +40,4 @@ https://nytimes.com/athletic/6494005/2025/07/14/philadelphia-flyers-mailbag-nhl-
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6493970/2025/07/14/submit-a-question-for-stewart-mandels-college-football-mailbag-306/
-
-**Homeless Population Declines in Los Angeles for a Second Straight Year**\
-`A key survey of homelessness in Los Angeles determined that the number of people sleeping without shelter fell again. More than 72,000 people remain homeless in Los Angeles County.`\
-https://nytimes.com/2025/07/14/us/los-angeles-homeless.html
-
-**Pentagon Abruptly Pulls Out of Annual Aspen Conference**\
-`For years, Republican and Democratic administrations have dispatched civilian Pentagon officials and military commanders to the Aspen Security Forum in Colorado.`\
-https://nytimes.com/2025/07/14/us/politics/pentagon-military-aspen-forum.html
-
-**Sale of Rays expected to be final by September: Source**\
-`The team has agreed to a deal in principle with Jacksonville developer Patrick Zalupski for roughly $1.7 billion. `\
-https://nytimes.com/athletic/6493774/2025/07/14/tampa-bay-rays-sale-zalupski-mlb/
 
