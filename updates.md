@@ -1,3 +1,11 @@
+**Cal Raleigh is having a historic season. What will it take to snatch AL MVP from Aaron Judge?**\
+`Cal Raleigh is having a generational season for a catcher, but Aaron Judge is still the best hitter in the AL. Can Raleigh win MVP?`\
+https://nytimes.com/athletic/6481048/2025/07/14/cal-raleigh-al-mvp-aaron-judge/
+
+**Rosenthal: Questions about ‘The Miz’s’ All-Star spot are fair, but he’s there because others won't be pitching**\
+`While Jacob Misiorowski made the NL roster after only five starts, MLB needed to replace six of the league's selected starting pitchers.`\
+https://nytimes.com/athletic/6492094/2025/07/14/mlb-all-star-pitchers-jacob-misiorowski/
+
 **Upsets everywhere, the best shots and the funniest moments: Wimbledon takeaways**\
 `The best stories, surprises and shots of Wimbledon 2025, with Iga Świątek and Jannik Sinner crowned champions,`\
 https://nytimes.com/athletic/6490955/2025/07/14/tennis-wimbledon-best-matches-best-shots-2025/

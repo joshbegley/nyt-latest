@@ -1,3 +1,11 @@
+**Cal Raleigh is having a historic season. What will it take to snatch AL MVP from Aaron Judge?**\
+`Cal Raleigh is having a generational season for a catcher, but Aaron Judge is still the best hitter in the AL. Can Raleigh win MVP?`\
+https://nytimes.com/athletic/6481048/2025/07/14/cal-raleigh-al-mvp-aaron-judge/
+
+**Rosenthal: Questions about ‘The Miz’s’ All-Star spot are fair, but he’s there because others won't be pitching**\
+`While Jacob Misiorowski made the NL roster after only five starts, MLB needed to replace six of the league's selected starting pitchers.`\
+https://nytimes.com/athletic/6492094/2025/07/14/mlb-all-star-pitchers-jacob-misiorowski/
+
 **Upsets everywhere, the best shots and the funniest moments: Wimbledon takeaways**\
 `The best stories, surprises and shots of Wimbledon 2025, with Iga Świątek and Jannik Sinner crowned champions,`\
 https://nytimes.com/athletic/6490955/2025/07/14/tennis-wimbledon-best-matches-best-shots-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6488778/2025/07/14/nfl-breakout-players-2025-season
 **How to watch Cal Raleigh, Oneil Cruz and the rest in the MLB Home Run Derby**\
 `Blending power and stamina, the 2025 MLB Home Run Derby features rising stars and first-time mashers hungry to wear the chain.`\
 https://nytimes.com/athletic/6489176/2025/07/14/mlb-home-run-derby-how-to-watch-2025-rules-players/
-
-**Who's the WNBA's biggest trash-talker? Top player? Players dished in our anonymous poll**\
-`One player ran away with votes: "I don't even guard her and she talks (trash) to me." `\
-https://nytimes.com/athletic/6491305/2025/07/14/wnba-anonymous-player-poll-trash-talker/
-
-**In the second half, the Tigers will go as far as their pitching takes them**\
-`The Tigers entered Sunday with a 5.03 bullpen ERA since June 1. Good as they are, they need to recapture some of last year's pitching magic.`\
-https://nytimes.com/athletic/6491729/2025/07/14/detroit-tigers-second-half-pitching/
 
