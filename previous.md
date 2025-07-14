@@ -1,3 +1,7 @@
+**Plan to Permanently Displace Palestinians Threatens to Derail Gaza Truce**\
+`An Israeli proposal to force much of Gaza’s population into a small enclave is now overshadowing negotiations over a truce.`\
+https://nytimes.com/2025/07/14/world/middleeast/israel-hamas-gaza-cease-fire.html
+
 **MLB Draft Day 1 takeaways: Bowden on the biggest winners and losers — teams, players and more**\
 `From teams to players to positions to the venue, here are my biggest winners and losers after the first three rounds on Sunday.`\
 https://nytimes.com/athletic/6492762/2025/07/14/mlb-draft-2025-winners-losers-day-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489961/2025/07/14/red-bull-christian-horner-f1-max
 **Leave a question for James Mirtle’s next NHL mailbag**\
 `Have a burning question about how something works in the league? Want to sound off on something happening in the hockey world?`\
 https://nytimes.com/athletic/6483633/2025/07/14/nhl-offseason-free-agency-mailbag-mirtle/
-
-**Can Stefon Diggs be the No. 1 WR the Patriots desperately need?**\
-`What can New England actually expect from a 31-year-old receiver who is coming off an ACL tear?`\
-https://nytimes.com/athletic/6479007/2025/07/14/patriots-stefon-diggs-drake-maye/
 

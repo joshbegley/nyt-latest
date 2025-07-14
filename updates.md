@@ -1,3 +1,7 @@
+**Plan to Permanently Displace Palestinians Threatens to Derail Gaza Truce**\
+`An Israeli proposal to force much of Gaza’s population into a small enclave is now overshadowing negotiations over a truce.`\
+https://nytimes.com/2025/07/14/world/middleeast/israel-hamas-gaza-cease-fire.html
+
 **MLB Draft Day 1 takeaways: Bowden on the biggest winners and losers — teams, players and more**\
 `From teams to players to positions to the venue, here are my biggest winners and losers after the first three rounds on Sunday.`\
 https://nytimes.com/athletic/6492762/2025/07/14/mlb-draft-2025-winners-losers-day-1/
