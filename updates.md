@@ -1,3 +1,7 @@
+**Son of Ex-Hollywood Agent, Jailed in 3 Murders, Dies by Suicide, D.A. Says**\
+`Samuel Haskell, 37, was accused of dismembering his wife and his in-laws. He was the son of Sam Haskell III, an Emmy-winning film producer and veteran talent agent.`\
+https://nytimes.com/2025/07/14/us/sam-haskell-dead-murder-charges.html
+
 **Jets, Garrett Wilson agree to 4-year, $130 million extension: Source**\
 `The contract includes $90 million in guarantees and locks Wilson down through to the 2030 season.`\
 https://nytimes.com/athletic/6493992/2025/07/14/garrett-wilson-jets-contract-extension-nfl/
