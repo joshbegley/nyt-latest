@@ -1,3 +1,7 @@
+**Analysing Arsenal target Cristhian Mosquera: Versatility, taking on Mbappe and room to improve**\
+`At 21, Mosquera is far from the finished article, but the right-footed defender fills a gap in Mikel Arteta's squad`\
+https://nytimes.com/athletic/6462116/2025/07/14/arsenal-cristhian-mosquera-analysis/
+
 **Marchand's Plan: The Home Run Derby and how MLB should present its game in the future**\
 `To maximize its revenue and its reach, MLB needs to approach its media future with a focus on simplicity, scarcity and scale.`\
 https://nytimes.com/athletic/6488940/2025/07/14/mlb-media-deals-espn-fox-nbc-netflix-rob-manfred/
