@@ -1,3 +1,7 @@
+**The Importance of Vaccines for Children**\
+`Readers respond to articles about childhood vaccinations and a rise in measles cases. Also: Justice Amy Coney Barrett’s independent path.`\
+https://nytimes.com/2025/07/14/opinion/vaccines-children.html
+
 **More Woody Guthrie Songs? Yes, From a Trove of Homemade Recordings.**\
 `A new, intimate album will include 13 previously unheard songs and a rewrite of “This Land Is Your Land.”`\
 https://nytimes.com/2025/07/14/arts/music/woody-guthrie-tapes-woody-at-home.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/14/arts/music/woody-guthrie-tapes-woody-at-home.html
 `To work for Anna Wintour in Vogue's glory days, you had to know a little bit of everything. Take the quiz to find out if you would have made the grade.`\
 https://nytimes.com/interactive/2025/07/14/style/vogue-quiz-90s.html
 
-**New Tariff Threats Risk Big Blow to U.S. Economy**\
+**The Economy Has Been Resilient. The New Round of Tariffs May Hit Harder.**\
 `The economy’s resilience so far to President Trump’s global trade war risks emboldening him and unleashing the sort of economic devastation that economists have long feared.`\
 https://nytimes.com/2025/07/14/us/politics/tariff-threats-us-economy.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490291/2025/07/14/nfl-sony-coaches-new-headsets/
 **gws-canada-national-parks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/canada-national-parks
-
-**49ers' Jauan Jennings seeking new deal or trade, expected at camp: Source**\
-`Jennings led all 49ers receivers with a career-high 77 catches, 975 yards and six touchdowns last season.`\
-https://nytimes.com/athletic/6493187/2025/07/14/jauan-jennings-49ers-contract-trade/
 

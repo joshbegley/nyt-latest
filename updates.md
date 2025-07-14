@@ -1,3 +1,11 @@
+**The Importance of Vaccines for Children**\
+`Readers respond to articles about childhood vaccinations and a rise in measles cases. Also: Justice Amy Coney Barrett’s independent path.`\
+https://nytimes.com/2025/07/14/opinion/vaccines-children.html
+
+**The Economy Has Been Resilient. The New Round of Tariffs May Hit Harder.**\
+`The economy’s resilience so far to President Trump’s global trade war risks emboldening him and unleashing the sort of economic devastation that economists have long feared.`\
+https://nytimes.com/2025/07/14/us/politics/tariff-threats-us-economy.html
+
 **More Woody Guthrie Songs? Yes, From a Trove of Homemade Recordings.**\
 `A new, intimate album will include 13 previously unheard songs and a rewrite of “This Land Is Your Land.”`\
 https://nytimes.com/2025/07/14/arts/music/woody-guthrie-tapes-woody-at-home.html
