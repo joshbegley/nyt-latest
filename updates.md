@@ -1,3 +1,5 @@
+
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>College football season must be near if it&#8217;s SEC Media Days week.</p>
 <p>Leave your questions here. Please include your city.</p>
