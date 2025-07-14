@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>College football season must be near if it&#8217;s SEC Media Days week.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6493970/2025/07/14/submit-a-question-for-stewart-mandels-college-football-mailbag-306/
+
 **Homeless Population Declines in Los Angeles for a Second Straight Year**\
 `A key survey of homelessness in Los Angeles determined that the number of people sleeping without shelter fell again. More than 72,000 people remain homeless in Los Angeles County.`\
 https://nytimes.com/2025/07/14/us/los-angeles-homeless.html
@@ -11,7 +17,7 @@ https://nytimes.com/2025/07/14/us/politics/pentagon-military-aspen-forum.html
 https://nytimes.com/athletic/6493774/2025/07/14/tampa-bay-rays-sale-zalupski-mlb/
 
 **Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
-`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. âI run while talking to God,â he said in explaining his endurance.`\
+`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
 https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
 
 **In Rare Move, Judges Reject a Trump Pick for U.S. Attorney**\
@@ -30,11 +36,7 @@ https://nytimes.com/video/world/middleeast/100000010284109/syria-sectarian-viole
 `Trackhouse Racing owner Justin Marks wanted to be a "disruptor." With Shane van Gisbergen's sparkling rookie year, he's accomplished that.`\
 https://nytimes.com/athletic/6493133/2025/07/14/shane-van-gisbergen-nascar-sonoma-takeaways/
 
-**Brazilâs Attorney General: Brazil and the United States Can Do Better**\
+**Brazil’s Attorney General: Brazil and the United States Can Do Better**\
 `Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
 https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
-
-**The Club World Cup entertainment sideshow: Doja Cat, Robbie Williams and a foretaste of 2026**\
-`So was the Club World Cup pre-match and halftime entertainment a success?`\
-https://nytimes.com/athletic/6492684/2025/07/14/the-club-world-cup-final-entertainment/
 

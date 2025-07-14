@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>College football season must be near if it&#8217;s SEC Media Days week.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6493970/2025/07/14/submit-a-question-for-stewart-mandels-college-football-mailbag-306/
+
+**Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
+`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
+https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
+
+**Brazil’s Attorney General: Brazil and the United States Can Do Better**\
+`Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
+https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
+
 **Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
 `Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. âI run while talking to God,â he said in explaining his endurance.`\
 https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
