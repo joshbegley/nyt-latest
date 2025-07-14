@@ -1,3 +1,11 @@
+**In Rare Move, Judges Reject a Trump Pick for U.S. Attorney**\
+`While serving as interim U.S. attorney in Albany, John A. Sarcone III claimed that the judges had appointed him to the office permanently. They had not.`\
+https://nytimes.com/2025/07/14/nyregion/sarcone-us-attorney-ndny.html
+
+**USMNT to face Ecuador, Australia in October World Cup tune-ups**\
+`The USMNT's next four opponents have all already qualified for the 2026 World Cup.`\
+https://nytimes.com/athletic/6493796/2025/07/14/usmnt-october-friendlies-ecuador-australia-world-cup/
+
 **Dozens Killed in Sectarian Clashes in Syria**\
 `The sectarian violence between Bedouin groups and militias from the Druse religious minority killed more than 50 people, according to a local health official and a monitoring group.`\
 https://nytimes.com/video/world/middleeast/100000010284109/syria-sectarian-violence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/barack-obama-trump-democrats.html
 **To Browse or To Buy: A.I. Is the Answer**\
 `Visa mobilizes the power of agentic A.I. to drive a new era of online shopping.`\
 https://nytimes.com/paidpost/visa/to-browse-or-to-buy-ai-is-the-answer.html
-
-**Teddy Bridgewater suspended by Miami Northwestern**\
-`Bridgewater acknowledged he'd been suspended by Northwestern in a Facebook post.`\
-https://nytimes.com/athletic/6493525/2025/07/14/teddy-bridgewater-miami-northwestern-investigation/
-
-**Arizona Governor Wants Investigation of Federal Handling of Grand Canyon Fire**\
-`Gov. Katie Hobbs questioned why the U.S. government decided to manage the Dragon Bravo fire, which started with a lightning strike, as a “controlled burn” during the height of the summer.`\
-https://nytimes.com/2025/07/14/us/arizona-grand-canyon-wildfire-controlled-burn.html
 
