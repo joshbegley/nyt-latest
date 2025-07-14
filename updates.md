@@ -1,3 +1,45 @@
+**Jets, Garrett Wilson agree to 4-year, $130 million extension: Source**\
+`The contract includes $90 million in guarantees and locks Wilson down through to the 2030 season.`\
+https://nytimes.com/athletic/6493992/2025/07/14/garrett-wilson-jets-contract-extension-nfl/
+
+**Tuesday Briefing: More Weapons for Ukraine**\
+`Plus, why Hitchcock still scares us`\
+https://nytimes.com/2025/07/14/briefing/ukraine-trump-russia-putin-gaza-relocation-syria.html
+
+**Submit your Flyers questions for Kevin Kurz’s mailbag**\
+`The Flyers have (likely) made their most significant moves of the offseason. What do you want to know about where they stand?`\
+https://nytimes.com/athletic/6494005/2025/07/14/philadelphia-flyers-mailbag-nhl-offseason/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>College football season must be near if it&#8217;s SEC Media Days week.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6493970/2025/07/14/submit-a-question-for-stewart-mandels-college-football-mailbag-306/
+
+**Homeless Population Declines in Los Angeles for a Second Straight Year**\
+`A key survey of homelessness in Los Angeles determined that the number of people sleeping without shelter fell again. More than 72,000 people remain homeless in Los Angeles County.`\
+https://nytimes.com/2025/07/14/us/los-angeles-homeless.html
+
+**Pentagon Abruptly Pulls Out of Annual Aspen Conference**\
+`For years, Republican and Democratic administrations have dispatched civilian Pentagon officials and military commanders to the Aspen Security Forum in Colorado.`\
+https://nytimes.com/2025/07/14/us/politics/pentagon-military-aspen-forum.html
+
+**Sale of Rays expected to be final by September: Source**\
+`The team has agreed to a deal in principle with Jacksonville developer Patrick Zalupski for roughly $1.7 billion. `\
+https://nytimes.com/athletic/6493774/2025/07/14/tampa-bay-rays-sale-zalupski-mlb/
+
+**Fauja Singh, Master Runner at an Advanced Age, Is Dead**\
+`Competing in a marathon in 2011, he claimed to be 100, though his exact age remained a mystery. “I run while talking to God,” he said in explaining his endurance.`\
+https://nytimes.com/2025/07/14/sports/fauja-singh-dead.html
+
+**In Rare Move, Judges Reject a Trump Pick for U.S. Attorney**\
+`While serving as interim U.S. attorney in Albany, John A. Sarcone III claimed that the judges had appointed him to the office permanently. They had not.`\
+https://nytimes.com/2025/07/14/nyregion/sarcone-us-attorney-ndny.html
+
+**USMNT to face Ecuador, Australia in October World Cup tune-ups**\
+`The USMNT's next four opponents have all already qualified for the 2026 World Cup.`\
+https://nytimes.com/athletic/6493796/2025/07/14/usmnt-october-friendlies-ecuador-australia-world-cup/
+
 
 
 **Submit a question for Stewart Mandel's College Football Mailbag**\
