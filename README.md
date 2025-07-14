@@ -3,7 +3,7 @@
 https://nytimes.com/2025/07/13/podcasts/something-only-i-can-see-this-american-life-nyt-audio.html
 
 **Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
-`Cincinnati manager emotional after reaching milestone. “It’s not often I get a little choked up, and that hit me pretty hard,” he said.`\
+`Cincinnati manager emotional after reaching milestone. "It's not often I get a little choked up, and that hit me pretty hard," he said.`\
 https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
 
 **Yankees takeaways from first half: Pitching help, Volpe's struggles, more**\
