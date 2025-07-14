@@ -1,3 +1,7 @@
+**Atletico close to signing USMNT midfielder Cardoso from Real Betis**\
+`Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
+https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
+
 **Mamardashvili learning from Alisson, embracing Liverpool goalkeeping 'challenge'**\
 `The Georgia international officially joined the Premier League champions at the start of July.`\
 https://nytimes.com/athletic/6493401/2025/07/14/liverpool-goalkeepers-mamardashvili-alisson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/world/europe/ireland-excavation-children-tuam.htm
 **Catherine, Princess of Wales, Dresses for a New (Life) Stage**\
 `Appearances at Wimbledon and a French state visit symbolize a new kind of style.`\
 https://nytimes.com/2025/07/14/style/catherine-princess-of-wales-fashion.html
-
-**What we learned from Liverpool's first pre-season friendly**\
-`What we learned from Liverpool's opening pre-season friendly at Preston on Sunday `\
-https://nytimes.com/athletic/6493165/2025/07/14/liverpool-are-playing-football-again-so-what-did-we-learn/
 

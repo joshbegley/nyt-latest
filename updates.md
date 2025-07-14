@@ -1,3 +1,7 @@
+**Atletico close to signing USMNT midfielder Cardoso from Real Betis**\
+`Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
+https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
+
 **Mamardashvili learning from Alisson, embracing Liverpool goalkeeping 'challenge'**\
 `The Georgia international officially joined the Premier League champions at the start of July.`\
 https://nytimes.com/athletic/6493401/2025/07/14/liverpool-goalkeepers-mamardashvili-alisson/
