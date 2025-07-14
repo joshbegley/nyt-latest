@@ -1,3 +1,7 @@
+**Companies in Europe Are Frozen as Tariff Uncertainty Drags On**\
+`After European Union leaders said they would keep negotiating instead of immediately retaliating against President Trump’s latest threat, businesses remain unable to develop long-term plans.`\
+https://nytimes.com/2025/07/14/business/tariffs-trump-europe-companies-impact.html
+
 **Bitcoin Soars Past $120,000 as House Takes Up Crypto Bills**\
 `The cryptocurrency has extended its rally as lawmakers consider legislation that would bring digital tokens further into the mainstream.`\
 https://nytimes.com/2025/07/14/business/dealbook/bitcoin-price-btc-record-crypto-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492482/2025/07/14/sixers-roster-trendon-watford-jo
 **Ahead of Denver Broncos training camp, 44 thoughts on the team's offensive players**\
 `Where quarterback Bo Nix can show early signs of growth as he begins his second training camp?`\
 https://nytimes.com/athletic/6488430/2025/07/14/broncos-training-camp-nix-sutton-dobbins/
-
-**Blackhawks prospect Roman Kantserov seeking to be consistently dominant**\
-`All indications remain that Kanterov, the Blackhawks’ 2023 second-round pick, will sign an NHL contract after next season.`\
-https://nytimes.com/athletic/6488693/2025/07/14/blackhawks-prospect-roman-kantserov/
 
