@@ -1,3 +1,15 @@
+**Hacker Impersonating Elmo Makes Antisemitic X Posts**\
+`The owner of âSesame Streetâ said it was working to restore control of Elmoâs social media account after the cyberattack on the fuzzy red monster, a beloved character on the childrenâs show.`\
+https://nytimes.com/2025/07/14/us/elmo-x-hack-antisemitism.html
+
+**Monday Briefing: Americaâs Brain Drain and the World**\
+`Plus, Jannik Sinner wins Wimbledon.`\
+https://nytimes.com/2025/07/14/briefing/harvard-science-trump-rare-earths-gaza.html
+
+**âThe Summer I Turned Pretty,â Plus 6 Things to Watch on TV This Week**\
+`The Prime Video show returns with its third and final season â and maybe an answer for Lolaâs love triangle.`\
+https://nytimes.com/2025/07/14/arts/television/the-summer-i-turned-pretty.html
+
 **Ella Toone 'celebrates to the sky' after delivering again at the Euros for England**\
 `England will have stiffer tests ahead at the Euros but Toone is thriving in this set-up in her first tournament since losing her dad, Nick`\
 https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
