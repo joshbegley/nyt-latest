@@ -1,3 +1,11 @@
+**Why the Angels shocked MLB by selecting Tyler Bremner with the No. 2 pick in MLB Draft**\
+`The question for the Angels coming into the draft was if they’d use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
+https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
+
+**Yankees take high school shortstop Dax Kilby with their first pick of MLB Draft**\
+`New York took Kilby, 19, of Newnan, Ga., with the No. 39 pick.`\
+https://nytimes.com/athletic/6491843/2025/07/13/dax-kilby-yankees-2025-mlb-draft/
+
 **Yankees take high school shortstop Dax Kilby with their first pick of MLB Draft**\
 `The New Yankees took Newnan (Ga.) High School shortstop Dax Kilby with the No. 39 pick of the MLB draft.`\
 https://nytimes.com/athletic/6491843/2025/07/13/dax-kilby-yankees-2025-mlb-draft/
