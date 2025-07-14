@@ -1,3 +1,15 @@
+**The Club World Cup entertainment sideshow: Doja Cat, Robbie Williams and a foretaste of 2026**\
+`So was the Club World Cup pre-match and halftime entertainment a success?`\
+https://nytimes.com/athletic/6492684/2025/07/14/the-club-world-cup-final-entertainment/
+
+**Oklahoma Farmer Killed by Water Buffaloes He Had Just Bought, Police Say**\
+`The two aggressive animals delayed help from reaching the farmer, the police said.`\
+https://nytimes.com/2025/07/14/us/water-buffalo-attack-oklahoma.html
+
+**Supreme Court Clears the Way for Trump’s Cuts to the Education Department**\
+`Lawyers for the Trump administration had asked the justices to block a lower court order that directed officials to reinstate thousands of fired employees.`\
+https://nytimes.com/2025/07/14/us/politics/supreme-court-education-department.html
+
 **Democrats Must ‘Toughen Up’ Against Trump, Obama Tells Donors**\
 `Frustrated that prominent Democrats have not fought harder, former President Barack Obama said in a speech that his party’s leaders needed to step up.`\
 https://nytimes.com/2025/07/14/us/politics/barack-obama-trump-democrats.html
