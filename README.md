@@ -1,3 +1,7 @@
+**Cardinals select left-hander Liam Doyle with No. 5 pick in MLB draft**\
+`Doyle, a 21-year-old out of the University of Tennessee, projects to ascend quickly through the minor leagues`\
+https://nytimes.com/athletic/6492049/2025/07/13/cardinals-mlb-draft-liam-doyle-pitcher/
+
 **Something Only I Can See**\
 `A woman with muscular dystrophy who believes she has the same condition as an Olympic athlete, and more stories.`\
 https://nytimes.com/2025/07/13/podcasts/something-only-i-can-see-this-american-life-nyt-audio.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6466773/2025/07/13/jamie-arnold-mlb-draft-athletics
 https://nytimes.com/athletic/6481586/2025/07/13/chicago-white-sox-first-rounder-billy-carlson-is-used-to-playing-in-the-spotlight/
 
 **King Charles III Will Host Trump for U.K. State Visit in September**\
-`Buckingham Palace confirmed the dates of President Trumpâs trip to Britain, which will be his second state visit.`\
+`Buckingham Palace confirmed the dates of President Trump’s trip to Britain, which will be his second state visit.`\
 https://nytimes.com/2025/07/13/world/europe/king-charles-trump-uk-state-visit.html
 
-**Excerpts From The Timesâs Interview With Biden on Clemency Decisions**\
-`The former president said he âmade every single one of thoseâ decisions and that Republicans were questioning them because âtheyâve done so badlyâ and wanted to shift the focus.`\
+**Excerpts From The Times’s Interview With Biden on Clemency Decisions**\
+`The former president said he “made every single one of those” decisions and that Republicans were questioning them because “they’ve done so badly” and wanted to shift the focus.`\
 https://nytimes.com/2025/07/13/us/politics/biden-clemency-interview.html
-
-**Biden Says He Made the Clemency Decisions That Were Recorded With Autopen**\
-`Donald J. Trump and his allies have begun investigations to support their claims that Joseph R. Biden Jr. was incapacitated and his staff conspired to take presidential actions in his name.`\
-https://nytimes.com/2025/07/13/us/politics/biden-pardon-autopen-trump.html
 
