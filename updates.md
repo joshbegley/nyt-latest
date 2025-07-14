@@ -1,3 +1,7 @@
+**To Browse or To Buy: A.I. Is the Answer**\
+`Visa mobilizes the power of agentic A.I. to drive a new era of online shopping.`\
+https://nytimes.com/paidpost/visa/to-browse-or-to-buy-ai-is-the-answer.html
+
 **Teddy Bridgewater suspended by Miami Northwestern**\
 `Bridgewater acknowledged he'd been suspended by Northwestern in a Facebook post.`\
 https://nytimes.com/athletic/6493525/2025/07/14/teddy-bridgewater-miami-northwestern-investigation/
