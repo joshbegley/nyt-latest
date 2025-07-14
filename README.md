@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6488940/2025/07/14/mlb-media-deals-espn-fox-nbc-net
 `At 21, Mosquera is far from the finished article, but the right-footed defender fills a gap in Mikel Arteta's squad`\
 https://nytimes.com/athletic/6462116/2025/07/14/arsenal-cristhian-mosquera-analysis/
 
-**Stocks Wobble on Trumpâs Latest Tariff Threats**\
+**Stocks Wobble on Trump’s Latest Tariff Threats**\
 `Analysts said the muted market response was because many investors expected the levies to settle at lower levels after negotiations.`\
 https://nytimes.com/2025/07/14/business/stocks-tariffs-eu-mexico.html
 
@@ -26,12 +26,12 @@ https://nytimes.com/athletic/6491305/2025/07/14/wnba-anonymous-player-poll-trash
 `The Tigers entered Sunday with a 5.03 bullpen ERA since June 1. Good as they are, they need to recapture some of last year's pitching magic.`\
 https://nytimes.com/athletic/6491729/2025/07/14/detroit-tigers-second-half-pitching/
 
-**Top 100 drafted NHL prospects ranking: Scott Wheelerâs summer 2025 list**\
-`Welcome to the summer 2025 edition of Scott Wheeler ranking of the NHLâs best prospects at The Athletic.`\
+**Top 100 drafted NHL prospects ranking: Scott Wheeler’s summer 2025 list**\
+`Welcome to the summer 2025 edition of Scott Wheeler ranking of the NHL’s best prospects at The Athletic.`\
 https://nytimes.com/athletic/6469634/2025/07/14/nhl-top-prospects-ranking-2025-schaefer/
 
 **One Rural Doctor on the Real Cost of Medicaid Changes**\
-`A family physician in western North Carolina explains what she thinks will happen to her patients as a result of Republicansâ domestic policy bill.`\
+`A family physician in western North Carolina explains what she thinks will happen to her patients as a result of Republicans’ domestic policy bill.`\
 https://nytimes.com/2025/07/14/podcasts/the-daily/medicaid-republican-cuts-doctor.html
 
 **Ranking men's college basketball's top 25 players of the 2000s: Carmelo Anthony takes No. 1**\
