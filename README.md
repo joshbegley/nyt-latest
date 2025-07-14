@@ -1,13 +1,17 @@
+**Newcastle working on deal worth around €75million for Hugo Ekitike**\
+`While an agreement is not yet close, talks between the clubs are ongoing.`\
+https://nytimes.com/athletic/6383048/2025/07/14/hugo-ekitike-transfer-newcastle-75m-eintracht-frankfurt/
+
 **Officials in Flooded Texas Defend Response Amid Threats**\
-`A commissioner in Kerr County, where the worst flooding occurred, said people were âcursing us for our decisions.â Official evacuations did not occur for hours after the first Weather Service warning.`\
+`A commissioner in Kerr County, where the worst flooding occurred, said people were “cursing us for our decisions.” Official evacuations did not occur for hours after the first Weather Service warning.`\
 https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
 
-**The story of Carreras, the Real Madrid left-back who left for free... and has returned for â¬50m**\
+**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
 
 **Cuomo Will Stay in the Race for N.Y.C. Mayor to Challenge Mamdani**\
-`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Zohran Mamdani, who soundly defeated him in the Democratic primary.`\
+`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary.`\
 https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
 
 **Real Madrid complete signing of Carreras from Benfica**\
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6493470/2025/07/14/lamine-yamal-dwarves-barcelona/
 https://nytimes.com/athletic/6493533/2025/07/14/england-india-bashir-broken-finger/
 
 **Trump Promises to Help Europe Speed Weapons to Ukraine**\
-`âIâm disappointed in President Putin, because I thought we would have had a deal two months ago,â President Trump said.`\
+`“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
 https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
 
 **How to Swim-Proof Your Hair**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/t-magazine/swimming-hair-protection-tips.html
 **Atletico close to signing USMNT midfielder Cardoso from Real Betis**\
 `Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
 https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
-
-**Mamardashvili learning from Alisson, embracing Liverpool goalkeeping 'challenge'**\
-`The Georgia international officially joined the Premier League champions at the start of July.`\
-https://nytimes.com/athletic/6493401/2025/07/14/liverpool-goalkeepers-mamardashvili-alisson/
 
