@@ -1,3 +1,7 @@
+**Bitcoin Soars Past $120,000 as House Takes Up Crypto Bills**\
+`The cryptocurrency has extended its rally as lawmakers consider legislation that would bring digital tokens further into the mainstream.`\
+https://nytimes.com/2025/07/14/business/dealbook/bitcoin-price-btc-record-crypto-week.html
+
 **NASCAR clears Ty Gibbs, No. 54 team after pit road incident at Sonoma**\
 `NASCAR said Ty Gibbs broke no rules when he clipped a tire being held by the RFK Racing No. 6 team's tire carrier during Sunday's race.`\
 https://nytimes.com/athletic/6492251/2025/07/14/nascar-ty-gibbs-brad-keselowski-pit-road-incident-sonoma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488430/2025/07/14/broncos-training-camp-nix-sutton
 **Blackhawks prospect Roman Kantserov seeking to be consistently dominant**\
 `All indications remain that Kanterov, the Blackhawks’ 2023 second-round pick, will sign an NHL contract after next season.`\
 https://nytimes.com/athletic/6488693/2025/07/14/blackhawks-prospect-roman-kantserov/
-
-**How the Guardians can climb back into contention in the American League**\
-`The Guardians have the 11th-best playoff odds among the 15 teams in the messy, crowded AL. Here's how they can beat those odds.`\
-https://nytimes.com/athletic/6490990/2025/07/14/guardians-mlb-playoff-contention/
 
