@@ -1,5 +1,5 @@
 **Jordan Yost was a surprising first-round pick, but he's exactly the Tigers' type**\
-`With SS Yost and C Michael Oliveto, the Tigers selected under-the-radar left-handed hitters with their first picks in Sunday's MLB Draft.`\
+`With Yost and Michael Oliveto, the Tigers selected under-the-radar left-handed hitters with their first picks in Sunday's MLB Draft.`\
 https://nytimes.com/athletic/6492404/2025/07/14/tigers-mlb-draft-jordan-yost-michael-oliveto/
 
 **Monday Briefing: America’s Brain Drain and the World**\
