@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6492331/2025/07/14/red-sox-mlb-draft-pitchers-kyson-witherspoon/
 
 **Power versus weight: Are the Tour de France's top climbers getting heavier?**\
-`Jonas Vingegaard has added muscle mass to improve his explosivity this year — and the Dane is not alone `\
+`Jonas Vingegaard has added muscle mass to improve his explosivity this year âÂ and the Dane is not alone `\
 https://nytimes.com/athletic/6491251/2025/07/14/cyclist-weight-power-climbers-tour-de-france/
 
 **Training, baseball and the Costa del Sol: Fabian Hurzeler on plotting Brighton's pre-season**\
@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6478003/2025/07/14/aston-villas-stadium-naming-righ
 `The French newcomer's floated balls into crowded penalty areas will aid Pep Guardiola's team as they try to break down stubborn low blocks`\
 https://nytimes.com/athletic/6482499/2025/07/14/cherkis-lofted-passes-can-help-man-city-fill-de-bruyne-shaped-hole/
 
-**Longstaff, Leeds' £10m bid and Newcastle's decisions over player sales**\
+**Longstaff, Leeds' Â£10m bid and Newcastle's decisions over player sales**\
 `Newcastle head coach Eddie Howe wants to add players but selling will be a key component of his transfer business this summer`\
 https://nytimes.com/athletic/6473096/2025/07/14/sean-longstaff-newcastle-player-sales/
 
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6473096/2025/07/14/sean-longstaff-newcastle-player-
 `The friendly victory over Preston was a fitting tribute to the late striker, both on and off the field`\
 https://nytimes.com/athletic/6490916/2025/07/14/liverpool-diogo-jota-preston-tribute/
 
-**Do Manchester United shirt numbers matter? Ask Cunha, Rashford… or Carrick**\
+**Do Manchester United shirt numbers matter? Ask Cunha, Rashfordâ¦ or Carrick**\
 `Player jerseys can have iconic status at Old Trafford - and are also big business`\
 https://nytimes.com/athletic/6483319/2025/07/14/manchester-united-shirt-numbers/
 
