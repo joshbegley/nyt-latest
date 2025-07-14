@@ -18,7 +18,7 @@ https://nytimes.com/2025/07/14/theater/the-gospel-at-colonus-review-little-islan
 `The 25-year-old is expected to make a full recovery, though the Dream did not provide a specific date for when she will return.`\
 https://nytimes.com/athletic/6494167/2025/07/14/atlanta-dream-rhyne-howard-knee-injury/
 
-**Another Casualty in the Tariffs Wars: The Always-in-Season Tomato**\
+**Another Casualty in the Tariff Wars: The Always-in-Season Tomato**\
 `The Trump administration is adding a 17 percent tariff to a year-round grocery store staple, while funneling more business to domestic tomato growers, largely in Florida.`\
 https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html
 
