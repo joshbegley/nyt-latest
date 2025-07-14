@@ -1,3 +1,11 @@
+**Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
+`The violence underscores the governmentâs challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
+https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
+
+**Whatâs Going on With Trump Mediaâs Streaming Service?**\
+`The service, which promises ânon-wokeâ news and entertainment, recently said it had expanded globally.`\
+https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.html
+
 **How Joao Pedro's clever movement set Palmer free and helped Chelsea beat PSG**\
 `Joao Pedro did a lot of unseen movement off the ball that helped Chelsea attack PSG's left side. Ahmed Walid explains how it worked so well`\
 https://nytimes.com/athletic/6492615/2025/07/14/joao-pedro-chelsea-club-world-cup-psg/

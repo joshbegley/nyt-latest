@@ -11,11 +11,11 @@ https://nytimes.com/athletic/6492615/2025/07/14/joao-pedro-chelsea-club-world-cu
 https://nytimes.com/2025/07/14/dining/easy-roasted-fish-with-almondine-for-basille-day.html
 
 **Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
-`The violence underscores the government’s challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
+`The violence underscores the governmentâs challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
 https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
 
-**What’s Going on With Trump Media’s Streaming Service?**\
-`The service, which promises “non-woke” news and entertainment, recently said it had expanded globally.`\
+**Whatâs Going on With Trump Mediaâs Streaming Service?**\
+`The service, which promises ânon-wokeâ news and entertainment, recently said it had expanded globally.`\
 https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.html
 
 **SEC commish Sankey says CFP could stay at 12 'if we can't agree' on expanded format**\
