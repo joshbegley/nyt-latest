@@ -1,3 +1,7 @@
+**Out-of-favour Man Utd players asked to report for training after 5pm**\
+`Marcus Rashford, Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia are not part of Ruben Amorim's plans.`\
+https://nytimes.com/athletic/6492846/2025/07/14/manchester-united-rashford-sancho-garnacho-training/
+
 **Plan to Permanently Displace Palestinians Threatens to Derail Gaza Truce**\
 `An Israeli proposal to force much of Gaza’s population into a small enclave is now overshadowing negotiations over a truce.`\
 https://nytimes.com/2025/07/14/world/middleeast/israel-hamas-gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492073/2025/07/14/wales-euro-2025-elimination-anal
 **Red Bull must reset after Horner. Why concern runs deeper than just Max Verstappen’s future**\
 `By sacking Christian Horner, Red Bull has made a big change to try to return to F1 winning ways. But there are other steps it must take, too`\
 https://nytimes.com/athletic/6489961/2025/07/14/red-bull-christian-horner-f1-max-verstappen/
-
-**Leave a question for James Mirtle’s next NHL mailbag**\
-`Have a burning question about how something works in the league? Want to sound off on something happening in the hockey world?`\
-https://nytimes.com/athletic/6483633/2025/07/14/nhl-offseason-free-agency-mailbag-mirtle/
 

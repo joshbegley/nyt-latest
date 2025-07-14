@@ -1,3 +1,7 @@
+**Out-of-favour Man Utd players asked to report for training after 5pm**\
+`Marcus Rashford, Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia are not part of Ruben Amorim's plans.`\
+https://nytimes.com/athletic/6492846/2025/07/14/manchester-united-rashford-sancho-garnacho-training/
+
 **Plan to Permanently Displace Palestinians Threatens to Derail Gaza Truce**\
 `An Israeli proposal to force much of Gaza’s population into a small enclave is now overshadowing negotiations over a truce.`\
 https://nytimes.com/2025/07/14/world/middleeast/israel-hamas-gaza-cease-fire.html
