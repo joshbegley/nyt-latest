@@ -1,3 +1,11 @@
+**The Tooth Fairy Is Real. She’s a Dentist in Seattle.**\
+`For 20 years, Dr. Purva Merchant has been answering letters from gaptoothed children and their parents — roughly 6,000 in all. “Happy growing up,” she typically replies.`\
+https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/14/crosswords/spelling-bee-forum.html
+
 **The Tooth Fairy Is Real. Sheâs a Dentist in Seattle.**\
 `For 20 years, Dr. Purva Merchant has been answering letters from gaptoothed children and their parents â roughly 6,000 in all. âHappy growing up,â she typically replies.`\
 https://nytimes.com/2025/07/14/parenting/tooth-fairy-dentist-letters.html

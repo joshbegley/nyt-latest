@@ -1,3 +1,11 @@
+**Fire Breaks Out at Assisted Living Center in Massachusetts**\
+`Firefighters responding to a deadly fire at Gabriel House, an assisted living facility in Fall River, Mass., on Sunday night.`\
+https://nytimes.com/video/us/100000010282936/fire-gabriel-house-fall-river-massachusetts.html
+
+**Several Killed in Fire at Massachusetts Assisted Living Facility**\
+`The fire broke out on Sunday in the city of Fall River, a state official said. The exact number of victims was unclear.`\
+https://nytimes.com/2025/07/14/us/fire-gabriel-house-fall-river-massachusetts.html
+
 **Arsenal working to complete deal for Valencia's Mosquera**\
 `Personal terms are in place with the 21-year-old and the two clubs are close to reaching an agreement.`\
 https://nytimes.com/athletic/6453599/2025/07/14/arsenal-transfers-mosquera-valencia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6492490/2025/07/14/phillies-draft-gage-wood-other-c
 **Cubs select a trio of college talent on first day of MLB Draft, including CF Ethan Conrad**\
 `In the first round with the 17th pick, the Cubs selected Conrad, a center fielder out of Wake Forest.`\
 https://nytimes.com/athletic/6492470/2025/07/14/cubs-mlb-draft-day-1-ethan-conrad/
-
-**Word of the Day: sublimity**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/14/learning/word-of-the-day-sublimity.html
-
-**Ella Toone 'celebrates to the sky' after delivering again at the Euros for England**\
-`England will have stiffer tests ahead at the Euros but Toone is thriving in this set-up in her first tournament since losing her dad, Nick`\
-https://nytimes.com/athletic/6492101/2025/07/14/england-euros-ella-toone-wales/
 
