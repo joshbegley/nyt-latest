@@ -1,3 +1,7 @@
+**Democrats Must ‘Toughen Up’ Against Trump, Obama Tells Donors**\
+`Frustrated that prominent Democrats have not fought harder, former President Barack Obama said in a speech that his party’s leaders needed to step up.`\
+https://nytimes.com/2025/07/14/us/politics/barack-obama-trump-democrats.html
+
 **Arizona Governor Wants Investigation of Federal Handling of Grand Canyon Fire**\
 `Gov. Katie Hobbs questioned why the U.S. government decided to manage the Dragon Bravo fire, which started with a lightning strike, as a “controlled burn” during the height of the summer.`\
 https://nytimes.com/2025/07/14/us/arizona-grand-canyon-wildfire-controlled-burn.html
