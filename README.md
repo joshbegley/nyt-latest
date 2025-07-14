@@ -1,3 +1,7 @@
+**Watching the Men’s Final at Wimbledon With the Fashion Set**\
+`Text by Desiree Ibekwe and Ayesha Kazim`\
+https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
+
 **Meta’s New Superintelligence Lab Is Discussing Major A.I. Strategy Changes**\
 `Members of the lab, including the new chief A.I. officer, Alexandr Wang, have talked about abandoning Meta’s most powerful open source A.I. model in favor of developing a closed one.`\
 https://nytimes.com/2025/07/14/technology/meta-superintelligence-lab-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
 **The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
-
-**Cuomo to Fight On in Mayor’s Race After Bruising Primary Loss to Mamdani**\
-`Former Gov. Andrew M. Cuomo is expected to announce his commitment to a third-party run against Assemblyman Zohran Mamdani, who soundly defeated him in the Democratic primary for New York City mayor.`\
-https://nytimes.com/2025/07/14/nyregion/andrew-cuomo-mamdani-nyc-mayor.html
 
