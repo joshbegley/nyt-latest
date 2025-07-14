@@ -1,5 +1,5 @@
 **Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
-`The deal follows Googleâs $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
+`The deal follows Google’s $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
 https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
 
 **Tour de France stage 10: Ben Healy takes yellow jersey, Simon Yates victorious for re-energized Visma team**\
@@ -14,15 +14,15 @@ https://nytimes.com/athletic/6493469/2025/07/14/joy-taylor-fox-sports-cancelled-
 `While baseball fans will be huddled around their televisions watching the Home Run Derby, the Live Design team will be getting to work. `\
 https://nytimes.com/athletic/6489549/2025/07/14/mlb-the-show-live-all-star-game-content/
 
-**Newcastle working on deal worth around â¬75million for Hugo Ekitike**\
+**Newcastle working on deal worth around €75million for Hugo Ekitike**\
 `While an agreement is not yet close, talks between the clubs are ongoing.`\
 https://nytimes.com/athletic/6383048/2025/07/14/hugo-ekitike-transfer-newcastle-75m-eintracht-frankfurt/
 
 **Officials in Flooded Texas Defend Response Amid Threats**\
-`A commissioner in Kerr County, where the worst flooding occurred, said people were âcursing us for our decisions.â Official evacuations did not occur for hours after the first Weather Service warning.`\
+`A commissioner in Kerr County, where the worst flooding occurred, said people were “cursing us for our decisions.” Official evacuations did not occur for hours after the first Weather Service warning.`\
 https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
 
-**The story of Carreras, the Real Madrid left-back who left for free... and has returned for â¬50m**\
+**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
 

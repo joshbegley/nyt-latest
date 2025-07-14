@@ -1,12 +1,28 @@
-**Newcastle working on deal worth around €75million for Hugo Ekitike**\
+**Cognition AI Buys Windsurf as A.I. Frenzy Escalates**\
+`The deal follows Googleâs $2.4 billion investment in Windsurf, an A.I. start-up, as companies race to gain technological talent and provide A.I. tools.`\
+https://nytimes.com/2025/07/14/technology/cognition-ai-windsurf.html
+
+**Tour de France stage 10: Ben Healy takes yellow jersey, Simon Yates victorious for re-energized Visma team**\
+`Analysis of the 10th stage of the 2025 Tour de France, which took the peloton from Ennezat to Le Mont-Dore Puy de Sancy`\
+https://nytimes.com/athletic/6492843/2025/07/14/tour-de-france-stage-10-analysis/
+
+**Joy Taylor out at Fox Sports as network cancels 3 shows: Sources**\
+`Fox Sports has canceled "Speak," co-hosted by Taylor, "Breakfast Ball" and "The Facility" after they failed to find huge audiences.`\
+https://nytimes.com/athletic/6493469/2025/07/14/joy-taylor-fox-sports-cancelled-shows/
+
+**From concept to console: how 'MLB: The Show' creates live All-Star Game content**\
+`While baseball fans will be huddled around their televisions watching the Home Run Derby, the Live Design team will be getting to work. `\
+https://nytimes.com/athletic/6489549/2025/07/14/mlb-the-show-live-all-star-game-content/
+
+**Newcastle working on deal worth around â¬75million for Hugo Ekitike**\
 `While an agreement is not yet close, talks between the clubs are ongoing.`\
 https://nytimes.com/athletic/6383048/2025/07/14/hugo-ekitike-transfer-newcastle-75m-eintracht-frankfurt/
 
 **Officials in Flooded Texas Defend Response Amid Threats**\
-`A commissioner in Kerr County, where the worst flooding occurred, said people were “cursing us for our decisions.” Official evacuations did not occur for hours after the first Weather Service warning.`\
+`A commissioner in Kerr County, where the worst flooding occurred, said people were âcursing us for our decisions.â Official evacuations did not occur for hours after the first Weather Service warning.`\
 https://nytimes.com/2025/07/14/us/texas-kerr-county-flood-response.html
 
-**The story of Carreras, the Real Madrid left-back who left for free... and has returned for €50m**\
+**The story of Carreras, the Real Madrid left-back who left for free... and has returned for â¬50m**\
 `Carreras has taken a winding route via Manchester United, the Championship and Benfica to get back to the Spanish capital`\
 https://nytimes.com/athletic/6405823/2025/07/14/alvaro-carreras-real-madrid-man-united-profile/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6487745/2025/07/14/real-madrid-complete-signing-of-
 **Barcelona's Yamal facing investigation for presence of dwarves at party**\
 `Yamal celebrated turning 18 at a private party at a residence in Olivella, a small town 50 kilometres north west of Barcelona.`\
 https://nytimes.com/athletic/6493470/2025/07/14/lamine-yamal-dwarves-barcelona/
-
-**England match-winner Shoaib Bashir out of rest of India series with broken finger**\
-`Spin bowler took the last wicket as England went 2-1 up in the five-match series at Lord's, but will play no further part`\
-https://nytimes.com/athletic/6493533/2025/07/14/england-india-bashir-broken-finger/
-
-**Trump Promises to Help Europe Speed Weapons to Ukraine**\
-`“I’m disappointed in President Putin, because I thought we would have had a deal two months ago,” President Trump said.`\
-https://nytimes.com/2025/07/14/us/politics/trump-putin-russia-ukraine.html
-
-**How to Swim-Proof Your Hair**\
-`Expert advice from a surfer, a hairstylist and a model.`\
-https://nytimes.com/2025/07/14/t-magazine/swimming-hair-protection-tips.html
-
-**Atletico close to signing USMNT midfielder Cardoso from Real Betis**\
-`Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
-https://nytimes.com/athletic/6450833/2025/07/14/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
 
