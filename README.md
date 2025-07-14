@@ -1,3 +1,7 @@
+**Democrats Must ‘Toughen Up’ Against Trump, Obama Tells Donors**\
+`Frustrated that prominent Democrats have not fought harder, former President Barack Obama said in a speech that his party’s leaders needed to step up.`\
+https://nytimes.com/2025/07/14/us/politics/barack-obama-trump-democrats.html
+
 **To Browse or To Buy: A.I. Is the Answer**\
 `Visa mobilizes the power of agentic A.I. to drive a new era of online shopping.`\
 https://nytimes.com/paidpost/visa/to-browse-or-to-buy-ai-is-the-answer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/science/snakes-fire-ants-musk.html
 **Watching the Men’s Final at Wimbledon With the Fashion Set**\
 `Text by Desiree Ibekwe and Ayesha Kazim`\
 https://nytimes.com/card/2025/07/14/style/wimbledon-ralph-lauren
-
-**Meta’s New Superintelligence Lab Is Discussing Major A.I. Strategy Changes**\
-`Members of the lab, including the new chief A.I. officer, Alexandr Wang, have talked about abandoning Meta’s most powerful open source A.I. model in favor of developing a closed one.`\
-https://nytimes.com/2025/07/14/technology/meta-superintelligence-lab-ai.html
 
