@@ -1,3 +1,15 @@
+**Reds' Terry Francona joins 'baseball royalty' with 2,000th win: C. Notes**\
+`Cincinnati manager emotional after reaching milestone. “It’s not often I get a little choked up, and that hit me pretty hard,” he said.`\
+https://nytimes.com/athletic/6491815/2025/07/13/reds-terry-francona-joins-baseball-royalty-as-13th-manager-with-2000-wins-c-notes/
+
+**King Charles III Will Host Trump for U.K. State Visit in September**\
+`Buckingham Palace confirmed the dates of President Trump’s trip to Britain, which will be his second state visit.`\
+https://nytimes.com/2025/07/13/world/europe/king-charles-trump-uk-state-visit.html
+
+**Excerpts From The Times’s Interview With Biden on Clemency Decisions**\
+`The former president said he “made every single one of those” decisions and that Republicans were questioning them because “they’ve done so badly” and wanted to shift the focus.`\
+https://nytimes.com/2025/07/13/us/politics/biden-clemency-interview.html
+
 **Something Only I Can See**\
 `A woman with muscular dystrophy who believes she has the same condition as an Olympic athlete, and more stories.`\
 https://nytimes.com/2025/07/13/podcasts/something-only-i-can-see-this-american-life-nyt-audio.html
