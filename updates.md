@@ -1,3 +1,15 @@
+**Mamardashvili learning from Alisson, embracing Liverpool goalkeeping 'challenge'**\
+`The Georgia international officially joined the Premier League champions at the start of July.`\
+https://nytimes.com/athletic/6493401/2025/07/14/liverpool-goalkeepers-mamardashvili-alisson/
+
+**Scoop City: Primer on the chaos around NFL contract guarantees**\
+`Could one 45-minute meeting cost the NFL over $600 million? That, plus why your favorite team's second-round pick might be absent.`\
+https://nytimes.com/athletic/6493415/2025/07/14/nfl-collusion-nflpa-lamar-jackson-ruling-second-round-pick-holdout/
+
+**Cal Raleigh's family-style Home Run Derby appearance stems from a choice his dad made in 2011**\
+`Todd Raleigh's time coaching at Tennessee was ending. He could have pursued more coaching opportunities. Instead he went home to his family.`\
+https://nytimes.com/athletic/6493116/2025/07/14/cal-raleigh-todd-father-home-run-derby/
+
 **The Importance of Vaccines for Children**\
 `Readers respond to articles about childhood vaccinations and a rise in measles cases. Also: Justice Amy Coney Barrett’s independent path.`\
 https://nytimes.com/2025/07/14/opinion/vaccines-children.html
