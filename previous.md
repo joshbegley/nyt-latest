@@ -1,4 +1,4 @@
-**Padres draft Kruz Schoolcraft, taking a high schooler No. 1 for ninth year**\
+**Padres draft Kruz Schoolcraft, again picking a high schooler in first round**\
 `Schoolcraft, 18, starred as a pitcher and first baseman for Sunset (Ore.) High.`\
 https://nytimes.com/athletic/6489303/2025/07/13/padres-draft-kruz-schoolcraft-no-1/
 
