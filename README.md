@@ -1,3 +1,7 @@
+**Power versus weight: Are the Tour de France's top climbers getting heavier?**\
+`Jonas Vingegaard has added muscle mass to improve his explosivity this year — and the Dane is not alone `\
+https://nytimes.com/athletic/6491251/2025/07/14/cyclist-weight-power-climbers-tour-de-france/
+
 **Training, baseball and the Costa del Sol: Fabian Hurzeler on plotting Brighton's pre-season**\
 `The German head coach is looking to improve his squad's injury record and welcome back some stars from this summer's Under-21 Euros`\
 https://nytimes.com/athletic/6471301/2025/07/14/fabian-hurzeler-brighton-pre-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6489696/2025/07/14/premier-league-clubs-transfer-pr
 **It’s Paradise Lost as Climate Change Remakes Europe’s Summers**\
 `In peak vacation season, many of the continent’s most desirable getaways are becoming places to get away from.`\
 https://nytimes.com/2025/07/14/world/europe/spain-italy-greece-heat.html
-
-**Quote of the Day: Help in Grim Task of Finding the Missing Comes From All Over the United States**\
-`Quote of the Day for Monday, July 14, 2025`\
-https://nytimes.com/2025/07/14/pageoneplus/quote-of-the-day-help-in-grim-task-of-finding-the-missing-comes-from-all-over-the-united-states.html
 
