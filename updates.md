@@ -1,3 +1,7 @@
+**Another Casualty in the Tariffs Wars: The Always-in-Season Tomato**\
+`The Trump administration is adding a 17 percent tariff to a year-round grocery store staple, while funneling more business to domestic tomato growers, largely in Florida.`\
+https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html
+
 **What a Smaller Education Department Is Doing Under Trump**\
 `Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and dispersing federal funding.`\
 https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
