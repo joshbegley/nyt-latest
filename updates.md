@@ -1,3 +1,11 @@
+**USMNT forward Sargent in talks over potential Wolfsburg move**\
+`The two sides are yet to reach an agreement, but talks are ongoing over the 25-year-old's potential return to the Bundesliga. `\
+https://nytimes.com/athletic/6492949/2025/07/14/usmnt-sargent-transfer-norwich-wolfsburg/
+
+**Companies in Europe Are Frozen as Tariff Uncertainty Drags On**\
+`After European Union leaders said they would keep negotiating instead of immediately retaliating against President Trump’s latest threat, businesses remain unable to develop long-term plans.`\
+https://nytimes.com/2025/07/14/business/tariffs-trump-europe-companies-impact.html
+
 **Bitcoin Soars Past $120,000 as House Takes Up Crypto Bills**\
 `The cryptocurrency has extended its rally as lawmakers consider legislation that would bring digital tokens further into the mainstream.`\
 https://nytimes.com/2025/07/14/business/dealbook/bitcoin-price-btc-record-crypto-week.html
