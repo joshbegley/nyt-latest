@@ -1,9 +1,17 @@
+**Embrace the Joy of Diving**\
+`Next time you go to the pool this summer, here are four ways to have fun on the diving board.`\
+https://nytimes.com/2025/07/14/well/move/how-to-dive-explainer.html
+
+**My Five-Ingredient Frenchy Fish**\
+`Roasted white fish with lemony almondine comes together in 20 minutes, a beautiful dinner for Bastille Day (or any day, really).`\
+https://nytimes.com/2025/07/14/dining/easy-roasted-fish-with-almondine-for-basille-day.html
+
 **Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
-`The violence underscores the government’s challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
+`The violence underscores the governmentâs challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
 https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
 
-**What’s Going on With Trump Media’s Streaming Service?**\
-`The service, which promises “non-woke” news and entertainment, recently said it had expanded globally.`\
+**Whatâs Going on With Trump Mediaâs Streaming Service?**\
+`The service, which promises ânon-wokeâ news and entertainment, recently said it had expanded globally.`\
 https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.html
 
 **SEC commish Sankey says CFP could stay at 12 'if we can't agree' on expanded format**\
@@ -26,15 +34,7 @@ https://nytimes.com/2025/07/14/world/europe/ukraine-zelensky-government-shakeup.
 `Louisiana Tech's addition will keep the Sun Belt at 14 football schools next year and give it three full members in the state.`\
 https://nytimes.com/athletic/6492950/2025/07/14/louisiana-tech-sun-belt-pac-12-realignment/
 
-**Ashton’s ‘Sylvia’ Is a Test of a Ballerina’s Versatility**\
-`In American Ballet Theater’s production, four principal dancers made their debuts in the role, which carries the ballet.`\
+**Ashtonâs âSylviaâ Is a Test of a Ballerinaâs Versatility**\
+`In American Ballet Theaterâs production, four principal dancers made their debuts in the role, which carries the ballet.`\
 https://nytimes.com/2025/07/14/arts/dance/ashton-sylvia-american-ballet-theater.html
-
-**Lowetide: What role will Jake Walman play for Oilers next season?**\
-`Acquiring Walman was an underrated move, as he was a strong plug-and-play option for the Oilers.`\
-https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contract/
-
-**The Best Summer Reads, as Recommended by the Book Review**\
-`To survive the dog days of summer, try reading one (or all) of these suggestions by writers, critics and editors at The Times.`\
-https://nytimes.com/2025/07/14/insider/the-best-summer-reads-as-recommended-by-the-book-review.html
 

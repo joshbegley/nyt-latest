@@ -1,3 +1,15 @@
+**Sectarian Clashes in Syria Kill More Than 50, Health Official and Rights Group Say**\
+`The violence underscores the government’s challenge to assert nationwide control as ethnic and religious tensions simmer after the end of the civil war.`\
+https://nytimes.com/2025/07/14/world/middleeast/syria-clashes-deaths-bedouin-druse.html
+
+**What’s Going on With Trump Media’s Streaming Service?**\
+`The service, which promises “non-woke” news and entertainment, recently said it had expanded globally.`\
+https://nytimes.com/2025/07/14/business/media/trump-media-truth-plus-streaming.html
+
+**SEC commish Sankey says CFP could stay at 12 'if we can't agree' on expanded format**\
+`Sankey said Playoff expansion is not a done deal, and it appears the SEC and Big Ten disagree on a preferred 16-team format.`\
+https://nytimes.com/athletic/6492938/2025/07/14/greg-sankey-sec-media-days-cfp-expansion/
+
 **Their Water Taps Ran Dry When Meta Built Next Door**\
 `In the race to develop artificial intelligence, tech giants are building data centers that guzzle up water. That has led to problems for people who live nearby.`\
 https://nytimes.com/2025/07/14/technology/meta-data-center-water.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contrac
 **The Best Summer Reads, as Recommended by the Book Review**\
 `To survive the dog days of summer, try reading one (or all) of these suggestions by writers, critics and editors at The Times.`\
 https://nytimes.com/2025/07/14/insider/the-best-summer-reads-as-recommended-by-the-book-review.html
-
-**BBC Ends Ties With ‘MasterChef’ Host Gregg Wallace After Investigation**\
-`The BBC said it would stop working with Mr. Wallace after dozens of sexual misconduct allegations were upheld.`\
-https://nytimes.com/2025/07/14/world/europe/gregg-wallace-masterchef-bbc.html
-
-**He Helped Big Companies Dodge Taxes. Now He’s Writing the Rules.**\
-`Ken Kies, a longtime tax lobbyist who worked for some of the world’s largest businesses, is now running the Treasury Department’s office that will administer Trump’s tax law.`\
-https://nytimes.com/2025/07/14/business/economy/ken-kies-tax-lobbyist-treasury.html
-
-**Death of John Elway’s former agent and business partner ruled an accident**\
-`Authorities closed their investigation into Sperbeck's death, a result of injuries he sustained after falling off the back of a golf cart.`\
-https://nytimes.com/athletic/6492982/2025/07/14/jeff-sperbeck-death-investigation-john-elway/
 
