@@ -1,3 +1,7 @@
+**Why the Angels shocked MLB by drafting Tyler Bremner with the No. 2 pick**\
+`The question for the Angels coming into the draft was if theyâd use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
+https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
+
 **Astros buck precedent and draft prep infielder Xavier Neyens with No. 21 pick**\
 `Neyens, 18, "has some of the best raw power of anyone in the high school class this year," The Athletic's Keith Law wrote.`\
 https://nytimes.com/athletic/6492187/2025/07/13/astros-draft-prep-infielder-xavier-neyens/
