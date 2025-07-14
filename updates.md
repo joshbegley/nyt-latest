@@ -1,3 +1,7 @@
+**Dodgers expected to be in first at the break. The path was a little different**\
+`L.A. has limped its way to first place, knows it has much to work on in the second half.`\
+https://nytimes.com/athletic/6492050/2025/07/13/dodgers-first-at-all-star-break-different-path/
+
 **Why the Angels shocked MLB by selecting Tyler Bremner with the No. 2 pick in MLB Draft**\
 `The question for the Angels coming into the draft was if they’d use the No. 2 pick to continue their strategy under GM Perry Minasian.`\
 https://nytimes.com/athletic/6492061/2025/07/13/angels-tyler-bremner-mlb-draft-pick-explained/
