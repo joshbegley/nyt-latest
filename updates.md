@@ -1,3 +1,8 @@
+**Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
+`The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
+`\
+https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
+
 **Marjorie Taylor Greene Criticizes Trumpâs Plan to Speed Weapons to Ukraine**\
 `The right-wing congresswoman from Georgia suggested that the presidentâs new proposal to help speed weapons to Ukraine betrays the promise to voters to end U.S. involvement in foreign conflicts.`\
 https://nytimes.com/2025/07/14/us/politics/marjorie-taylor-greene-trump-ukraine.html
