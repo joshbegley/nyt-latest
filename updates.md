@@ -1,3 +1,11 @@
+**Lowetide: What role will Jake Walman play for Oilers next season?**\
+`Acquiring Walman was an underrated move, as he was a strong plug-and-play option for the Oilers.`\
+https://nytimes.com/athletic/6491075/2025/07/14/oilers-jake-walman-stats-contract/
+
+**The Best Summer Reads, as Recommended by the Book Review**\
+`To survive the dog days of summer, try reading one (or all) of these suggestions by writers, critics and editors at The Times.`\
+https://nytimes.com/2025/07/14/insider/the-best-summer-reads-as-recommended-by-the-book-review.html
+
 **BBC Ends Ties With ‘MasterChef’ Host Gregg Wallace After Investigation**\
 `The BBC said it would stop working with Mr. Wallace after dozens of sexual misconduct allegations were upheld.`\
 https://nytimes.com/2025/07/14/world/europe/gregg-wallace-masterchef-bbc.html
