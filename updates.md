@@ -1,3 +1,23 @@
+**Bluffs and Bluster Aside, Trumpâs Tariffs Are Here to Stay**\
+`The president has earned a reputation for bluffing on tariffs. But he has steadily and dramatically raised U.S. tariffs, transforming global trade.`\
+https://nytimes.com/2025/07/14/us/politics/trump-tariffs.html
+
+**Iâm Watching the Sacrifice of Collegeâs Soul**\
+`The highest ideals of higher ed are under mortal threat.`\
+https://nytimes.com/2025/07/14/opinion/college-soul-ai-education.html
+
+**Trumpâs Willingness to Arm Ukraine Puts Him Closer to Biden Approach**\
+`President Trump is expected this week to formalize a new plan to sell American weapons to European allies, who would pass them onto Kyiv.`\
+https://nytimes.com/2025/07/14/us/politics/trumps-ukraine-biden.html
+
+**A Peacockâs-Eye View of the Waldorf Remade**\
+`Waldorf Astoria New York, one of the cityâs grandest hotels, closed for renovations in 2017. After almost eight years and billions of dollars, it returns, reborn for the 21st century.`\
+https://nytimes.com/interactive/2025/07/14/travel/waldorf-astoria-hotel-new-york-reopening.html
+
+**Nothing Good Happens When People Become âthe Otherâ**\
+`We will regret not standing up to this venomous cruelty.`\
+https://nytimes.com/2025/07/14/opinion/immigration-trump-ice-raids.html
+
 **Manchester United teenager Godwill Kukonki set to sign first professional contract**\
 `The 17-year-old has appeared for England at U17 level and can be versatile across the back line`\
 https://nytimes.com/athletic/6492638/2025/07/14/manchester-united-godwill-kukonki-first-professional-contract/
