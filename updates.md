@@ -1,3 +1,12 @@
+**Ukraine Greets Trump’s Decision to Help Provide Patriot Systems With Cautious Optimism**\
+`American fatigue with the war and the fickleness of the Trump administration remain concerns for Ukraine’s leaders.`\
+https://nytimes.com/2025/07/14/us/politics/trump-ukraine-weapons-patriot-missiles.html
+
+**Mario Lemieux-led ownership group 'very interested' in buying back Penguins**\
+`The interest in reacquiring the team comes nearly four years after it was sold in 2021 to Fenway Sports Group for $900 million.
+`\
+https://nytimes.com/athletic/6494081/2025/07/14/penguins-mario-lemieux-ownership-ron-burkle-david-morehouse/
+
 **Son of Ex-Hollywood Agent, Jailed in 3 Murders, Dies by Suicide, D.A. Says**\
 `Samuel Haskell, 37, was accused of dismembering his wife and his in-laws. He was the son of Sam Haskell III, an Emmy-winning film producer and veteran talent agent.`\
 https://nytimes.com/2025/07/14/us/sam-haskell-dead-murder-charges.html
