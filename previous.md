@@ -1,3 +1,7 @@
+**Brazil’s Attorney General: Brazil and the United States Can Do Better**\
+`Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
+https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
+
 **The Club World Cup entertainment sideshow: Doja Cat, Robbie Williams and a foretaste of 2026**\
 `So was the Club World Cup pre-match and halftime entertainment a success?`\
 https://nytimes.com/athletic/6492684/2025/07/14/the-club-world-cup-final-entertainment/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010283805/trump-russia-tariffs-ukra
 **MLB Home Run Derby primer — everything you need to know about the slugfest**\
 `If you’ve never watched the Home Run Derby, or are looking for a quick refresher on how things work, The Athletic has you covered.`\
 https://nytimes.com/athletic/6489485/2025/07/14/mlb-2025-home-run-derby-guide/
-
-**Canadian Wildfire Smoke Sets Off Air Quality Alerts in Toronto and U.S.**\
-`Smoke from wildfires in Manitoba, a Western province facing its worst fire season in 30 years, has created hazardous air quality conditions across Eastern Canada and the United States.`\
-https://nytimes.com/2025/07/14/world/canada/canada-wildfire-smoke-manitoba-toronto-us.html
 

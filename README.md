@@ -1,3 +1,11 @@
+**Dozens Killed in Sectarian Clashes in Syria**\
+`The sectarian violence between Bedouin groups and militias from the Druse religious minority killed more than 50 people, according to a local health official and a monitoring group.`\
+https://nytimes.com/video/world/middleeast/100000010284109/syria-sectarian-violence.html
+
+**Shane van Gisbergen's disruptor-level NASCAR success is opening the door to more**\
+`Trackhouse Racing owner Justin Marks wanted to be a "disruptor." With Shane van Gisbergen's sparkling rookie year, he's accomplished that.`\
+https://nytimes.com/athletic/6493133/2025/07/14/shane-van-gisbergen-nascar-sonoma-takeaways/
+
 **Brazil’s Attorney General: Brazil and the United States Can Do Better**\
 `Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
 https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493525/2025/07/14/teddy-bridgewater-miami-northwes
 **Arizona Governor Wants Investigation of Federal Handling of Grand Canyon Fire**\
 `Gov. Katie Hobbs questioned why the U.S. government decided to manage the Dragon Bravo fire, which started with a lightning strike, as a “controlled burn” during the height of the summer.`\
 https://nytimes.com/2025/07/14/us/arizona-grand-canyon-wildfire-controlled-burn.html
-
-**Trump Gives Russia 50 Days to Make Peace With Ukraine**\
-`President Trump, expressing frustration over feeling dragged along by President Vladimir V. Putin in peace talks, threatened Russia with “very severe tariffs” unless a deal is reached with Ukraine in 50 days.`\
-https://nytimes.com/video/world/europe/100000010283805/trump-russia-tariffs-ukraine.html
-
-**MLB Home Run Derby primer — everything you need to know about the slugfest**\
-`If you’ve never watched the Home Run Derby, or are looking for a quick refresher on how things work, The Athletic has you covered.`\
-https://nytimes.com/athletic/6489485/2025/07/14/mlb-2025-home-run-derby-guide/
 

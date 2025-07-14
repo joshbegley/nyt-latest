@@ -1,3 +1,7 @@
+**Brazil’s Attorney General: Brazil and the United States Can Do Better**\
+`Differences between the United States and Brazil must be addressed through negotiation and mutual respect, not punitive measures.`\
+https://nytimes.com/2025/07/14/opinion/international-world/brazil-america-trump-tariffs.html
+
 **The Club World Cup entertainment sideshow: Doja Cat, Robbie Williams and a foretaste of 2026**\
 `So was the Club World Cup pre-match and halftime entertainment a success?`\
 https://nytimes.com/athletic/6492684/2025/07/14/the-club-world-cup-final-entertainment/
