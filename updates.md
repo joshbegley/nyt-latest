@@ -1,3 +1,16 @@
+**Videos From the Amazon Reveal an Unexpected Animal Friendship**\
+`Scientists are trying to understand footage that showed ocelots and opossums, usually predator and prey, hanging out together.`\
+https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
+
+**Pistons summer league notebook: Holland shows promise, Robinson ready to lead**\
+`Last year's No. 5 overall pick Ron Holland II is showing off a smooth 3-point shot for the Pistons at NBA Summer League.`\
+https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
+
+**Liverpool make Isak approach to Newcastle**\
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
+`\
+https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
+
 **Subway Floods as Storms Lash New York and Suburbs**\
 `A slow-moving storm drenched large swaths of the Mid-Atlantic on Monday, flooding parts of the New York subway system, inundating major roads and causing long flight delays.`\
 https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
