@@ -1,3 +1,8 @@
+**Liverpool make Isak approach to Newcastle**\
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
+`\
+https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
+
 **College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
 `Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing

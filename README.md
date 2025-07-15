@@ -1,9 +1,13 @@
+**Dismissals at Justice Dept. Seek to Bypass Civil Service and Whistle-Blower Laws**\
+`In court filings and dismissal letters, the Justice Department’s political leadership claims sweeping authority to fire career law enforcement officials without cause.`\
+https://nytimes.com/2025/07/15/us/politics/justice-department-dismissals-civil-service-laws.html
+
 **Georgia coach Kirby Smart: 'Just don't see' Nick Saban coaching again**\
-`"I don't think Nick's coming back. I think he's too happy where he is,â Smart said.`\
+`"I don't think Nick's coming back. I think he's too happy where he is,” Smart said.`\
 https://nytimes.com/athletic/6495142/2025/07/15/kirby-smart-nick-saban-coaching-sec-media-days/
 
 **College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
-`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakersâ questions about accusations of campus antisemitism.`\
+`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
 
 **gws-taco-bell-crunchwrap-supreme**\
@@ -27,15 +31,11 @@ https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
 https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
 
 **Liverpool make Isak approach to Newcastle**\
-`The Premier League champions have communicated their interest to do a deal in the region of Â£120m.
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
 `\
 https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
 
 **Subway Floods as Storms Lash New York and Suburbs**\
 `A slow-moving storm drenched large swaths of the Mid-Atlantic on Monday, flooding parts of the New York subway system, inundating major roads and causing long flight delays.`\
 https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
-
-**What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
-`Hereâs what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
-https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
 
