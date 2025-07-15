@@ -1,3 +1,23 @@
+**The Epstein Saga**\
+`We explore the MAGA baseâs attachment to Jeffrey Epstein conspiracy theories.`\
+https://nytimes.com/2025/07/15/briefing/maga-bondi-epstein-files.html
+
+**Liverpool reject Bayern bid for Diaz, winger makes clear he wants to leave**\
+`The â¬67.5million (Â£58.6m) proposal was immediately rejected by the Premier League champions.`\
+https://nytimes.com/athletic/6330146/2025/07/15/liverpool-luis-diaz-bayern-munich-offer/
+
+**Everton complete Travers signing from Bournemouth**\
+`The 26-year-old goalkeeper arrives for Â£4m and has signed a four-year contract.`\
+https://nytimes.com/athletic/6492650/2025/07/15/mark-travers-everton-bournemouth/
+
+**Matthew Boydâs winding All-Star journey: 'One of the best human beings youâre ever going to be around'**\
+`Boyd was out of baseball 13 months ago. Since signing with Cleveland midway through 2024, he's been a certified ace. Now, he's an All-Star.`\
+https://nytimes.com/athletic/6494048/2025/07/15/matthew-boyd-all-star-cubs/
+
+**Q&A with Alan Millar, the new â and first â GM of Hockey Canada's Program of Excellence**\
+`In his role, Millar will be the top voice and roster-builder for Canada's World Junior teams.`\
+https://nytimes.com/athletic/6493491/2025/07/15/hockey-canada-alan-millar-world-juniors/
+
 **Liverpool reject Bayern bid for Diaz, winger makes clear he wants to leave**\
 `The 28-year-old Colombia international has made clear to the Merseyside club he wants to leave.`\
 https://nytimes.com/athletic/6330146/2025/07/15/liverpool-luis-diaz-bayern-munich-offer/
