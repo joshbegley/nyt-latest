@@ -1,3 +1,11 @@
+**Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
+`Portuguese coach Jesus, 70, has replaced Stefano Pioli as Al Nassr coach following last season's third-place Saudi Pro League (SPL) finish.`\
+https://nytimes.com/athletic/6495374/2025/07/15/jorge-jesus-al-nassr-cristiano-ronaldo/
+
+**Bryson DeChambeau has ideas for how LIV Golf can change to get OWGR points**\
+`The 54-hole team-format league formerly applied for OWGR recognition under CEO Greg Norman but their application was rejected in 2023.`\
+https://nytimes.com/athletic/6495327/2025/07/15/liv-golf-bryson-dechambeau-owgr/
+
 **Forest interested in Villa's Ramsey**\
 `Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
 https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/

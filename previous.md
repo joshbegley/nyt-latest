@@ -1,3 +1,11 @@
+**Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
+`Portuguese coach Jesus, 70, has replaced Stefano Pioli as Al Nassr coach following last season's third-place Saudi Pro League (SPL) finish.`\
+https://nytimes.com/athletic/6495374/2025/07/15/jorge-jesus-al-nassr-cristiano-ronaldo/
+
+**Bryson DeChambeau has ideas for how LIV Golf can change to get OWGR points**\
+`The 54-hole team-format league formerly applied for OWGR recognition under CEO Greg Norman but their application was rejected in 2023.`\
+https://nytimes.com/athletic/6495327/2025/07/15/liv-golf-bryson-dechambeau-owgr/
+
 **Forest interested in Villa's Ramsey**\
 `Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
 https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/15/arts/music/opera-salzburg-festival-chekhov.html
 **A Soprano Who’s Ready for Tragedy and Comedy at the Salzburg Festival**\
 `Asmik Grigorian will return to the role of Lady Macbeth in Verdi’s “Macbeth” and present her pop-infused comic recital “A Diva Is Born.”`\
 https://nytimes.com/2025/07/15/arts/music/opera-soprano-asmik-grigorian.html
-
-**Men Who Felled Sycamore Gap Tree Are Given Prison Sentences in U.K.**\
-`The tree, a beloved landmark that stood by Hadrian’s Wall in northern England, was found illegally cut down in 2023.`\
-https://nytimes.com/2025/07/15/world/europe/sycamore-gap-tree-sentencing-prison.html
-
-**Submit your Ohio State questions for Cameron Teague Robinson’s mailbag**\
-`The 2025 Ohio State football season is rapidly approaching, with less than 50 days until Texas visits Columbus. What's on your mind?`\
-https://nytimes.com/athletic/6495303/2025/07/15/ohio-state-football-mailbag-questions-9/
 
