@@ -1,3 +1,19 @@
+**Men's college basketball's best of the quarter-century: Make your picks**\
+`As we make our picks for the best of the quarter-century in men's college basketball, we want to hear yours, too.`\
+https://nytimes.com/athletic/6495230/2025/07/15/best-college-basketball-players-coaches-teams-survey/
+
+**At Salzburg, a Modern Opera About Timeless Dreams and Realities**\
+`Peter Eotvos’s “Three Sisters,” based on the 1900 play by Anton Chekhov, is at the festival this year for the first time.`\
+https://nytimes.com/2025/07/15/arts/music/opera-salzburg-festival-chekhov.html
+
+**A Soprano Who’s Ready for Tragedy and Comedy at the Salzburg Festival**\
+`Asmik Grigorian will return to the role of Lady Macbeth in Verdi’s “Macbeth” and present her pop-infused comic recital “A Diva Is Born.”`\
+https://nytimes.com/2025/07/15/arts/music/opera-soprano-asmik-grigorian.html
+
+**Men Who Felled Sycamore Gap Tree Are Given Prison Sentences in U.K.**\
+`The tree, a beloved landmark that stood by Hadrian’s Wall in northern England, was found illegally cut down in 2023.`\
+https://nytimes.com/2025/07/15/world/europe/sycamore-gap-tree-sentencing-prison.html
+
 **Submit your Ohio State questions for Cameron Teague Robinson’s mailbag**\
 `The 2025 Ohio State football season is rapidly approaching, with less than 50 days until Texas visits Columbus. What's on your mind?`\
 https://nytimes.com/athletic/6495303/2025/07/15/ohio-state-football-mailbag-questions-9/
