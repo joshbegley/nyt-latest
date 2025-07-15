@@ -1,3 +1,11 @@
+**La Liga 25/26 winner odds: Real Madrid favoured ahead of reigning champions Barcelona**\
+`Real Madrid and Barcelona remain the two teams at the top of the La Liga pile. Which one has the edge in the betting odds this season?`\
+https://nytimes.com/athletic/6493433/2025/07/15/la-liga-2026-winner-odds-barcelona-real-madrid/
+
+**Aston Villa close to selling Enzo Barrenechea to Benfica**\
+`Barrenechea is set to leave Villa without making a competitive appearance.`\
+https://nytimes.com/athletic/6494688/2025/07/15/aston-villa-enzo-barrenechea-benfica-15m-deal/
+
 **Seth Meyers Is Amused by MAGA’s Epstein Infighting**\
 `President Trump’s most conspiracy-minded supporters can’t believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
 https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
