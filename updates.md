@@ -1,3 +1,7 @@
+**College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
+`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, are the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
+
 **Potluck Desserts You Can Make in a Baking Pan**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-potluck-desserts

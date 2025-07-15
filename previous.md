@@ -27,7 +27,7 @@ https://nytimes.com/2025/07/15/us/politics/justice-department-dismissals-civil-s
 https://nytimes.com/athletic/6495142/2025/07/15/kirby-smart-nick-saban-coaching-sec-media-days/
 
 **College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
-`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
+`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, are the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
 
 **gws-taco-bell-crunchwrap-supreme**\
