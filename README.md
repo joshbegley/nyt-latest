@@ -2,12 +2,12 @@
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/david-corenswet-superman
 
-**It’s a Great Time to Be a Toe**\
+**Itâs a Great Time to Be a Toe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
 
-**Trump’s Zigzags on Ukraine and Russia**\
-`Readers respond to the president’s latest turn in the war. Also: President Trump and Rosie O’Donnell; New Yorkers’ health; travel medical kits.`\
+**Trumpâs Zigzags on Ukraine and Russia**\
+`Readers respond to the presidentâs latest turn in the war. Also: President Trump and Rosie OâDonnell; New Yorkersâ health; travel medical kits.`\
 https://nytimes.com/2025/07/15/opinion/trump-ukraine-russia.html
 
 **gws-colorado-comanche-national-grassland**\
@@ -26,15 +26,15 @@ https://nytimes.com/athletic/6455766/2025/07/15/leicester-manager-next-marti-cif
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/t-magazine-best-pool-designs
 
-**‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
+**âAsk a Correspondentâ Starts Today With The Timesâs Moscow Bureau Chief**\
 `Have questions about Russia? Anton Troianovski has answers.`\
 https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
 
 **Think you understand Scottie Scheffler? Think again.**\
-`"I love getting to live out my dreams. But at the end of the day, sometimes I just don't understand the point.”`\
+`"I love getting to live out my dreams. But at the end of the day, sometimes I just don't understand the point.â`\
 https://nytimes.com/athletic/6495632/2025/07/15/scottie-scheffler-open-championship/
 
-**Pop’s New Weepy Take on Hookup Culture**\
-`The young singer Sombr currently has two Top 40 hits, including “Back to Friends,” which continues to confound our critic.`\
+**Popâs New Weepy Take on Hookup Culture**\
+`The young singer Sombr currently has two Top 40 hits, including âBack to Friends,â which continues to confound our critic.`\
 https://nytimes.com/video/podcasts/100000010284265/pops-new-weepy-take-on-hookup-culture.html
 
