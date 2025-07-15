@@ -1,5 +1,5 @@
 **Blackhawks sign Anton Frondell to entry-level contract: Where will he play?**\
-`Will the No. 3 draft pick in 2025 play in the NHL next season? Or will he return to Sweden to play for Djurgården in the SHL?`\
+`Will the No. 3 draft pick in 2025 play in the NHL next season? Or will he return to Sweden to play for DjurgÃ¥rden in the SHL?`\
 https://nytimes.com/athletic/6496239/2025/07/15/blackhawks-anton-frondell-contract-2025-nhl-draft/
 
 **Arizona Seventh Congressional District Special Primary Election Results**\
@@ -7,10 +7,10 @@ https://nytimes.com/athletic/6496239/2025/07/15/blackhawks-anton-frondell-contra
 https://nytimes.com/interactive/2025/07/15/us/elections/results-arizona-us-house-7-special.html
 
 **Palace fans march on Selhurst to protest UEL exclusion**\
-`The protest was organised by Palace’s ultras fan group the Holmesdale Fanatics who called the decision “a terrible injustice" for the club.`\
+`The protest was organised by Palaceâs ultras fan group the Holmesdale Fanatics who called the decision âa terrible injustice" for the club.`\
 https://nytimes.com/athletic/6496398/2025/07/15/crystal-palace-protest-europa-league/
 
-**The LA Olympics baseball schedule is out — and it’s not perfect for MLB**\
+**The LA Olympics baseball schedule is out â and itâs not perfect for MLB**\
 `The 2028 Olympics baseball tournament will take place in LA from July 15-20. MLB would like it to be played sooner.`\
 https://nytimes.com/athletic/6496416/2025/07/15/mlb-la-olympics-baseball/
 
@@ -19,10 +19,10 @@ https://nytimes.com/athletic/6496416/2025/07/15/mlb-la-olympics-baseball/
 https://nytimes.com/paidpost/cooking/pepsi/summer-sizzzle.html
 
 **Women's Euros viewership nearly doubles from 2022, Fox Sports says**\
-`An average of 306,000 viewers tuned in to the tournament’s 24 group stage matches.`\
+`An average of 306,000 viewers tuned in to the tournamentâs 24 group stage matches.`\
 https://nytimes.com/athletic/6496182/2025/07/15/womens-euro-2025-viewership-numbers-increase/
 
-**Republicans in Congress Shift to Backing Ukraine, Matching Trump’s Reversal**\
+**Republicans in Congress Shift to Backing Ukraine, Matching Trumpâs Reversal**\
 `After years pressing to end U.S. aid to Ukraine, many Republicans have abandoned that position now that President Trump is supporting the country against Russian aggression.`\
 https://nytimes.com/2025/07/15/us/politics/ukraine-republicans-trump.html
 
