@@ -1,3 +1,7 @@
+**TAFC: The art of selling your best player and Newcastle's Hugo Ekitike move**\
+`Today in TAFC: The subtle art of selling your best player plus the goalkeeper shining despite having almost no depth perception`\
+https://nytimes.com/athletic/6494886/2025/07/15/athletic-fc-newsletter-ekitike-yamal-hampton/
+
 **The Epstein Saga**\
 `We explore the MAGA base’s attachment to Jeffrey Epstein conspiracy theories.`\
 https://nytimes.com/2025/07/15/briefing/maga-bondi-epstein-files.html

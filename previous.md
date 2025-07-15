@@ -1,3 +1,7 @@
+**TAFC: The art of selling your best player and Newcastle's Hugo Ekitike move**\
+`Today in TAFC: The subtle art of selling your best player plus the goalkeeper shining despite having almost no depth perception`\
+https://nytimes.com/athletic/6494886/2025/07/15/athletic-fc-newsletter-ekitike-yamal-hampton/
+
 **The Epstein Saga**\
 `We explore the MAGA base’s attachment to Jeffrey Epstein conspiracy theories.`\
 https://nytimes.com/2025/07/15/briefing/maga-bondi-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6493446/2025/07/15/boston-red-sox-2025-draftees/
 **Q&A with Alan Millar, the new — and first — GM of Hockey Canada's Program of Excellence**\
 `In his role, Millar will be the top voice and roster-builder for Canada's World Junior teams.`\
 https://nytimes.com/athletic/6493491/2025/07/15/hockey-canada-alan-millar-world-juniors/
-
-**NFL's underrated and overrated teams in 2025: Bills, 49ers could tumble; Chargers looking up**\
-`The Bills defense will need to offer Josh Allen better support while the Chargers look poised for a Year 2 leap under Jim Harbaugh.`\
-https://nytimes.com/athletic/6438492/2025/07/15/nfl-2025-overrated-underrated-teams-bills-49ers-chargers/
 
