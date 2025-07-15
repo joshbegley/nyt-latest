@@ -1,3 +1,7 @@
+**State Dept. Layoffs Hit Russia and Ukraine Analysts**\
+`A former senior U.S. official said it was “shortsighted” to consolidate the department’s well-respected intelligence arm.`\
+https://nytimes.com/2025/07/15/us/politics/state-department-layoffs-russia-ukraine.html
+
 **Trump Administration Investigates U. of Michigan Over Foreign Funding**\
 `The University of Michigan was the latest school accused of failing to report large foreign donations amid a wider pressure campaign from the Trump administration.`\
 https://nytimes.com/2025/07/15/us/politics/trump-michigan-university-foreign-funding.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6496611/2025/07/15/garrett-wilson-sauce-gardner-con
 `The United States began sending weapons to Ukraine years before Russia invaded in 2022.`\
 https://nytimes.com/2025/07/15/us/politics/trump-military-aid-explainer.html
 
-**Trump Releases Nearly Half of the National Guard Troops in Los Angeles**\
+**Trump Releases About Half of the National Guard Troops in Los Angeles**\
 `President Trump mobilized the troops on June 7 in the wake of chaotic protests. They have remained in Southern California several weeks after most of the demonstrations had ended.`\
 https://nytimes.com/2025/07/15/us/national-guard-los-angeles-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syr
 **Andrew Cuomo Test Drives a Warmer, Friendlier Version of Himself**\
 `Mr. Cuomo, the former governor of New York, has vowed to run a more energetic campaign than he did in the mayoral primary, and aimed to demonstrate that on Tuesday.`\
 https://nytimes.com/2025/07/15/nyregion/andrew-cuomo-mayor-campaign.html
-
-**The Arch Manning era is underway, and the show arrives at SEC media days**\
-`The pressure may now be on Manning. But it may be that the wait to play has Manning feeling less pressure and more relief to be playing.`\
-https://nytimes.com/athletic/6496401/2025/07/15/arch-manning-texas-sec-media-days/
 
