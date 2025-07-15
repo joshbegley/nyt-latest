@@ -1,3 +1,15 @@
+**Federal Grand Jury Indicts Suspect in Killing of Minnesota Lawmaker**\
+`The suspect also faces state charges in the shooting deaths of State Representative Melissa Hortman and her husband.`\
+https://nytimes.com/2025/07/15/us/minnesota-assassination-vance-boelter-charges.html
+
+**Washington, D.C. City Council Ward 8 Special Election Results**\
+`Get live results from the 2025 Washington, D.C. special election.`\
+https://nytimes.com/interactive/2025/07/15/us/elections/results-washington-dc-city-council-ward-8-special.html
+
+**Arizona Seventh Congressional District Special Primary Election Results**\
+`Get live results and maps from the 2025 Arizona special primary election.`\
+https://nytimes.com/interactive/2025/07/15/us/elections/results-arizona-us-house-7-special.html
+
 **House Democrats Call for Hearing on Epstein, Capitalizing on G.O.P. Rift**\
 `Democrats urged the Republican majority to call Justice Department officials, including the attorney general and F.B.I. leaders, to Capitol Hill to discuss how they handled the Jeffrey Epstein case.`\
 https://nytimes.com/2025/07/15/us/politics/house-democrats-jeffrey-epstein-hearing.html
@@ -23,18 +35,6 @@ https://nytimes.com/2025/07/15/weather/tropical-gulf-coast-rain-florida-louisian
 https://nytimes.com/athletic/6496060/2025/07/15/twins-sale-progress-rob-manfred/
 
 **Arsenal in final stages of Nwaneri talks over new contract**\
-`The England Under-21 internationalâs priority was always to stay at the club he joined aged eight, despite major interest from others.`\
+`The England Under-21 international’s priority was always to stay at the club he joined aged eight, despite major interest from others.`\
 https://nytimes.com/athletic/6495843/2025/07/15/ethan-nwaneri-arsenal-contract-new/
-
-**Atletico Madrid to sign Thiago Almada**\
-`The 24-year-old spent the second half of the 2024-25 season on loan at Ligue 1 club Lyon from Botafogo.`\
-https://nytimes.com/athletic/6496144/2025/07/15/atletico-madrid-transfers-thiago-almada/
-
-**Federal Prosecutors Close Inquiry Into Polymarket Betting Website**\
-`The site became prominent last year when people bet on the outcome of the 2024 presidential election.`\
-https://nytimes.com/2025/07/15/technology/polymarket-betting-investigation-dropped.html
-
-**Waltz, in U.N. Ambassador Hearing, Defends Signal Group Chat**\
-`Michael Waltz, the former national security adviser, doubled down on the Trump administrationâs defense of a Signal group chat where senior officials discussed war plans.`\
-https://nytimes.com/2025/07/15/us/politics/michael-waltz-un-ambassador-testimony-signal-chat.html
 
