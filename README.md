@@ -1,3 +1,11 @@
+**We Just Updated Our List of the Best Restaurants in San Francisco**\
+`An old favorite that’s still got it, brothy noodles you can slurp year-round and a tasting menu you won’t want to miss in Japantown.`\
+https://nytimes.com/2025/07/15/dining/where-to-eat-san-francisco.html
+
+**H.H.S. Finalizes Thousands of Layoffs After Supreme Court Decision**\
+`Staff members who were first notified of terminations in April were finally let go late Monday.`\
+https://nytimes.com/2025/07/15/us/politics/hhs-layoffs.html
+
 **Police Arrest Far-Right Leader After Anti-Immigrant Riots in Spanish Town**\
 `Prosecutors said the local head of Deport Them Now, an anti-immigrant group, helped incite four days of violence that have rattled a town with a large North African community.`\
 https://nytimes.com/2025/07/15/world/europe/torre-pacheco-spain-anti-immigrant-riots-arrest.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6479621/2025/07/15/sean-longstaff-leeds-transfer-ne
 https://nytimes.com/2025/07/15/business/france-debt-deficit-spending-taxes.html
 
 **Billy Jones, Impresario of New York’s Indie Music Scene, Dies at 45**\
-`He opened Baby’s All Right and three other nightclubs, a restaurant and a record store in a dozen years, offering hope that the city had not lost its cultural verve.`\
+`He opened Baby’s All Right and three other nightclubs, a restaurant and a record store in a dozen years, helping the city maintain its cultural verve.`\
 https://nytimes.com/2025/07/15/arts/music/billy-jones-dead.html
 
 **Jamie Dimon Backs Jerome Powell Over Trump in Fed Fight**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/15/business/jamie-dimon-jerome-powell-trump.html
 **Manfred: Rays will remain at Steinbrenner Field if they host playoff games**\
 `The commissioner acknowledged that the team will not move to a larger, neutral site should they host postseason games in 2025.`\
 https://nytimes.com/athletic/6495951/2025/07/15/tampa-bay-rays-steinbrenner-field-playoffs/
-
-**‘Adolescence’ Leads Limited Series Category With 13 Emmy Nods**\
-`The show, about a teenager suspected of killing a schoolmate, won three Gotham Television Awards last month and was a hot topic in the weeks after it was released.`\
-https://nytimes.com/2025/07/15/arts/television/adolescence-netflix-emmy-nominations.html
-
-**In Shifting Winds, Central Oregon Wildfire Grows to Almost 30,000 Acres**\
-`The Cram wildfire grew rapidly over the weekend, threatening small communities and ranch land.`\
-https://nytimes.com/2025/07/15/us/cram-fire-central-oregon.html
 
