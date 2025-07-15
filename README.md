@@ -1,5 +1,5 @@
 **Liverpool reject Bayern bid for Diaz, winger makes clear he wants to leave**\
-`The 28-year-old Colombia international has made clear to the Merseyside club he wants to leave.`\
+`The €67.5million (£58.6m) proposal was immediately rejected by the Premier League champions.`\
 https://nytimes.com/athletic/6330146/2025/07/15/liverpool-luis-diaz-bayern-munich-offer/
 
 **Everton complete Travers signing from Bournemouth**\
