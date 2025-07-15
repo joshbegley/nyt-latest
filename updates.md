@@ -1,3 +1,7 @@
+**Australian Leader’s Bonhomie in China Belies Delicate Balancing Act**\
+`Prime Minister Anthony Albanese is trying to deepen ties with China, his country’s biggest trading partner, while being under pressure from the United States.`\
+https://nytimes.com/2025/07/15/world/asia/china-australia-trade-security.html
+
 **Word of the Day: pungent**\
 `This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/15/learning/word-of-the-day-pungent.html

@@ -1,3 +1,11 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to your weekly guide to everything that you need to know from the summer transfer window`\
+https://nytimes.com/athletic/6492733/2025/07/15/transfer-news-latest-liverpool-manchester-united-arsenal-real-madrid-analysis/
+
+**Luka Modric completes move to AC Milan**\
+`The Croatia international played 597 times for Madrid and won 26 trophies.`\
+https://nytimes.com/athletic/6420987/2025/07/15/luka-modric-completes-move-to-ac-milan-after-leaving-real-madrid/
+
 **Australian Leader’s Bonhomie in China Belies Delicate Balancing Act**\
 `Prime Minister Anthony Albanese is trying to deepen ties with China, his country’s biggest trading partner, while being under pressure from the United States.`\
 https://nytimes.com/2025/07/15/world/asia/china-australia-trade-security.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6439742/2025/07/15/stokes-jadeja-cricket-all-rounde
 **Tuesday Briefing: More Weapons for Ukraine**\
 `Plus, why Hitchcock still scares us`\
 https://nytimes.com/2025/07/15/briefing/ukraine-trump-russia-gaza-palestinians-syria.html
-
-**Nelson Semedo is still a free agent - what will his Wolves legacy be?**\
-`Wolves have been preparing for life without the right-back for some time - after a difficult start he became a popular player`\
-https://nytimes.com/athletic/6493128/2025/07/15/nelson-semedo-wolves-legacy-free-agent/
-
-**John MacArthur, Firebrand Preacher and Culture Warrior, Dies at 86**\
-`He was a theologically uncompromising pastor in Southern California who influenced generations of evangelical preachers.`\
-https://nytimes.com/2025/07/15/us/john-macarthur-dead.html
 
