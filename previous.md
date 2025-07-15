@@ -1,3 +1,11 @@
+**‘Let’s Talk “The Ick”’: The Week 4 Winner of Our Summer Reading Contest**\
+`In her winning video, Chesapeake Woods, 17, offers relationship advice aimed at our human tendency toward “uncontrollable judginess.”`\
+https://nytimes.com/2025/07/15/learning/lets-talk-the-ick-the-week-4-winner-of-our-summer-reading-contest.html
+
+**Trump’s Shift on Ukraine Is Good News for Europe, for Now**\
+`After European leaders stepped up military spending, President Trump aligned himself more closely with them on the war. But his tariffs threats have left bruises.`\
+https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-europe-trump.html
+
 **Nvidia and AMD Soar as Chip Trade Curbs Fall**\
 `The tech giants said they can resume selling high-end semiconductors to China, in what appears to be a major about-face for the Trump administration.`\
 https://nytimes.com/2025/07/15/business/dealbook/nvidia-amd-chips-trump-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493943/2025/07/15/magnus-carlsen-interview-freesty
 **TAFC: The art of selling your best player and Newcastle's Hugo Ekitike move**\
 `Today in TAFC: The subtle art of selling your best player plus the goalkeeper shining despite having almost no depth perception`\
 https://nytimes.com/athletic/6494886/2025/07/15/athletic-fc-newsletter-ekitike-yamal-hampton/
-
-**The Epstein Saga**\
-`We explore the MAGA base’s attachment to Jeffrey Epstein conspiracy theories.`\
-https://nytimes.com/2025/07/15/briefing/maga-bondi-epstein-files.html
-
-**Liverpool reject Bayern bid for Diaz, winger makes clear he wants to leave**\
-`The €67.5million (£58.6m) proposal was immediately rejected by the Premier League champions.`\
-https://nytimes.com/athletic/6330146/2025/07/15/liverpool-luis-diaz-bayern-munich-offer/
 
