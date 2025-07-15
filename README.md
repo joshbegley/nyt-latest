@@ -1,4 +1,8 @@
-**Israel Attacks Syriaâs Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
+**Pelicans will fully guarantee Zion Williamson's salary for 2025-26: Source**\
+`New Orleans included stipulations to Williamson’s contract that gave the team salary protection in the event of injuries.`\
+https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zion-williamsons-salary-for-2025-26-source/
+
+**Israel Attacks Syria’s Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
 `Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
 https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
 
@@ -14,12 +18,12 @@ https://nytimes.com/athletic/6496401/2025/07/15/arch-manning-texas-sec-media-day
 `Trump administration officials say winning the artificial intelligence race with China is a top priority.`\
 https://nytimes.com/2025/07/15/us/politics/trump-ai-pittsburgh-speech.html
 
-**Whatâs Next for Trumpâs Plans to Dismantle the Education Department**\
+**What’s Next for Trump’s Plans to Dismantle the Education Department**\
 `Administration officials have already begun the process of transferring certain functions to other agencies.`\
 https://nytimes.com/2025/07/15/us/politics/trump-education-department-next-steps.html
 
 **Tariffs Begin to Leave an Imprint on the Economy**\
-`Also, Republicans in Congress followed Trumpâs shift on Ukraine. Hereâs the latest at the end of Tuesday.`\
+`Also, Republicans in Congress followed Trump’s shift on Ukraine. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/07/15/briefing/tariffs-inflation-report-republicans-ukraine.html
 
 **What to Know About the Fighting in Southern Syria**\
@@ -30,11 +34,7 @@ https://nytimes.com/2025/07/15/world/asia/druse-syria-bedouin-israel-fighting.ht
 `Agyemang, whose five international goals have all come in 2025, has signed a four-year contract at Pride Park.`\
 https://nytimes.com/athletic/6496491/2025/07/15/usmnt-patrick-agyemang-derby-transfer/
 
-**Wednesday Briefing: Chinaâs Economy Grows Despite Tariffs**\
-`Plus, âSeveranceâ picks up top Emmy nominations.`\
+**Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
+`Plus, “Severance” picks up top Emmy nominations.`\
 https://nytimes.com/2025/07/15/briefing/china-economy-ukraine-weapons-trump-europe-britain-afghanistan.html
-
-**Mamdani for Mayor (if You Want a Foil for Republicans)**\
-`Get ready for the G.O.P. to run against âMamdani Democratsâ for several election cycles to come.`\
-https://nytimes.com/2025/07/15/opinion/mamdani-mayor-republicans.html
 
