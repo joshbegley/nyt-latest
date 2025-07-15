@@ -1,5 +1,5 @@
 **China’s Economy Grows Steadily Despite Trump’s Tariffs**\
-`Companies redirected exports through other countries to avoid U.S. tariffs and policymakers turned up investment in manufacturing and infrastructure.`\
+`Companies redirected exports through other countries to avoid U.S. tariffs, and policymakers turned up investment in manufacturing and infrastructure.`\
 https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
 
 **Blowout Game**\
