@@ -1,4 +1,4 @@
-**Hereâs the latest.**\
+**Here’s the latest.**\
 `By Francesca Regalado, Livia Albeck-Ripka, Alexandra E. Petri and Mark Walker`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods/heres-the-latest
 
@@ -27,7 +27,7 @@ https://nytimes.com/2025/07/15/us/john-macarthur-dead.html
 https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the-open/
 
 **Gianni Infantino has won**\
-`You donât have to salute FIFA's president for pulling off the Club World Cup, but it wasnât cancelled, and nor did it fail`\
+`You don’t have to salute FIFA's president for pulling off the Club World Cup, but it wasn’t cancelled, and nor did it fail`\
 https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
 
 **How can a goalkeeper with almost no depth perception play at the top level?**\
