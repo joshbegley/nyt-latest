@@ -1,3 +1,7 @@
+**Canada’s Leader Says There’s Little Hope of Avoiding U.S. Tariffs**\
+`After long insisting that Canada could avoid Trump tariffs through talks, Mark Carney now says that is unlikely for any nation.`\
+https://nytimes.com/2025/07/15/us/politics/canada-tariffs-mark-carney-trump.html
+
 **A 900-Year-Old Typo May Unravel a Chaucer Mystery**\
 `The Tale of Wade, twice referred to in Geoffrey Chaucer’s poems, survives only in a tiny fragment. Two academics argue a scribe’s error deepened the confusion around it.`\
 https://nytimes.com/2025/07/15/world/europe/chaucer-wade-mystery.html

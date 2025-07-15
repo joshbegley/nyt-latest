@@ -1,3 +1,7 @@
+**Canada’s Leader Says There’s Little Hope of Avoiding U.S. Tariffs**\
+`After long insisting that Canada could avoid Trump tariffs through talks, Mark Carney now says that is unlikely for any nation.`\
+https://nytimes.com/2025/07/15/us/politics/canada-tariffs-mark-carney-trump.html
+
 **A 900-Year-Old Typo May Unravel a Chaucer Mystery**\
 `The Tale of Wade, twice referred to in Geoffrey Chaucer’s poems, survives only in a tiny fragment. Two academics argue a scribe’s error deepened the confusion around it.`\
 https://nytimes.com/2025/07/15/world/europe/chaucer-wade-mystery.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/us/dan-serafini-baseball-pitcher-guilty-murder.ht
 **Pelicans will fully guarantee Zion Williamson's salary for 2025-26: Sources**\
 `New Orleans included stipulations to Williamson’s contract that gave the team salary protection in the event of injuries.`\
 https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zion-williamsons-salary-for-2025-26-source/
-
-**Israel Attacks Syria’s Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
-`Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
-https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
 
