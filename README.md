@@ -15,7 +15,7 @@ https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
 https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
 
 **What a Smaller Education Department Is Doing Under Trump**\
-`Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and dispersing federal funding.`\
+`Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and disbursing federal funding.`\
 https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
 
 **Sixers' Paul George undergoes successful surgery to treat left knee injury**\

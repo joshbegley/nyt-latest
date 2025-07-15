@@ -1,3 +1,7 @@
+**Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
+`“My work is the same as it’s always been,” Clark said on Monday, in some of his first comments regarding the federal probe.`\
+https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/
+
 **MLB All-Stars speak on the ‘gray area’ of sports betting, social media threats**\
 `The Athletic asked about the effects of gambling during media availabilities at this year's All-Star Game. `\
 https://nytimes.com/athletic/6494316/2025/07/14/mlb-all-star-game-2025-sports-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6494167/2025/07/14/atlanta-dream-rhyne-howard-knee-
 **Another Casualty in the Tariff Wars: The Always-in-Season Tomato**\
 `The Trump administration is adding a 17 percent tariff to a year-round grocery store staple, while funneling more business to domestic tomato growers, largely in Florida.`\
 https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html
-
-**Trump’s Fans Forgive Him Everything. Why Not Epstein?**\
-`Having nurtured conspiracy theories for his entire political career, he suddenly seems in danger of being consumed by one.`\
-https://nytimes.com/2025/07/14/opinion/trump-jeffrey-epstein-files.html
 

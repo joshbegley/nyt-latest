@@ -1,3 +1,7 @@
+**Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
+`“My work is the same as it’s always been,” Clark said on Monday, in some of his first comments regarding the federal probe.`\
+https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/
+
 **MLB All-Stars speak on the ‘gray area’ of sports betting, social media threats**\
 `The Athletic asked about the effects of gambling during media availabilities at this year's All-Star Game. `\
 https://nytimes.com/athletic/6494316/2025/07/14/mlb-all-star-game-2025-sports-betting/
