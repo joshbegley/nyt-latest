@@ -1,3 +1,27 @@
+**Heâs Bringing Rossini to Philadelphia and âWest Side Storyâ to Rome**\
+`The Italian director Damiano Michieletto has engaged, and sometimes enraged, European audiences. Now heâs preparing for his debut at a major U.S. opera company.`\
+https://nytimes.com/2025/07/15/arts/music/damiano-michieletto-opera.html
+
+**McTavish an offer sheet candidate, Canes should let Ehlers cook: NHL offseason notebook**\
+`There are still a few offer sheet-eligible players worth keeping an eye on this summer; checking in on more potential roster moves/`\
+https://nytimes.com/athletic/6493853/2025/07/15/nhl-offseason-notebook/
+
+**Where to Be Female, Bohemian and Free in 1890s Paris?**\
+`In âThe Club,â Jennifer Dasal investigates a refuge for (some) expat artists in the City of Light.`\
+https://nytimes.com/2025/07/15/books/review/the-club-jennifer-dasal.html
+
+**Defining âantisemitismâ is the subject of bitter debate.**\
+`By Vimal Patel`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/defining-antisemitism-is-the-subject-of-bitter-debate
+
+**China Puts New Restrictions on E.V. Battery Manufacturing Technology**\
+`Beijing will now require government licenses for any effort to transfer abroad the technologies crucial for producing inexpensive electric cars.`\
+https://nytimes.com/2025/07/15/business/china-electric-vehicle-battery-manufacturing.html
+
+**Can you put a price on Alexander Isak? âMaybe you have Haaland, you have Mbappe, but after thatâ¦â**\
+`Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
+https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really-cost/
+
 **College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
 `Leaders from Georgetown, the City University of New York and the University of California, Berkeley, are the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
