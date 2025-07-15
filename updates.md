@@ -1,3 +1,19 @@
+**Free agent David Robertson could be option for teams seeking bullpen help**\
+`Several teams, including the New York Mets and New York Yankees, have recently looked into the 40-year-old reliever.`\
+https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
+
+**2025 Open Championship long shots, sleepers and prop picks: Jordan Spieth comeback?**\
+`Spieth and Cameron Young lead Dennis Esser's lineup of long shots and props at the Open.`\
+https://nytimes.com/athletic/6493319/2025/07/15/open-championship-long-shots-sleepers-prop-bet-picks/
+
+**Nick Sirianni rips criticism of Eagles carrying Jalen Hurts**\
+`"One of the reasons I love football so much is that it takes everybody to accomplish your goals," Sirianni said.`\
+https://nytimes.com/athletic/6495203/2025/07/15/nick-sirianni-jalen-hurts-eagles/
+
+**Sources: MLS, players reached new Club World Cup bonus agreement**\
+`The league and its Club World Cup participants ultimately reached a deal after a frosty standoff prior to the competition`\
+https://nytimes.com/athletic/6493304/2025/07/15/mls-players-club-world-cup-bonus-deal/
+
 **Men's college basketball's best of the quarter-century: Make your picks**\
 `As we make our picks for the best of the quarter-century in men's college basketball, we want to hear yours, too.`\
 https://nytimes.com/athletic/6495230/2025/07/15/best-college-basketball-players-coaches-teams-survey/
