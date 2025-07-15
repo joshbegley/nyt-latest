@@ -1,3 +1,7 @@
+**Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
+`Portuguese coach Jesus, 70, has replaced Stefano Pioli as Al Nassr coach following last season's third-place Saudi Pro League (SPL) finish.`\
+https://nytimes.com/athletic/6495374/2025/07/15/jorge-jesus-al-nassr-cristiano-ronaldo/
+
 **Bryson DeChambeau has ideas for how LIV Golf can change to get OWGR points**\
 `The 54-hole team-format league formerly applied for OWGR recognition under CEO Greg Norman but their application was rejected in 2023.`\
 https://nytimes.com/athletic/6495327/2025/07/15/liv-golf-bryson-dechambeau-owgr/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6493304/2025/07/15/mls-players-club-world-cup-bonus
 https://nytimes.com/athletic/6495230/2025/07/15/best-college-basketball-players-coaches-teams-survey/
 
 **At Salzburg, a Modern Opera About Timeless Dreams and Realities**\
-`Peter Eotvosâs âThree Sisters,â based on the 1900 play by Anton Chekhov, is at the festival this year for the first time.`\
+`Peter Eotvos’s “Three Sisters,” based on the 1900 play by Anton Chekhov, is at the festival this year for the first time.`\
 https://nytimes.com/2025/07/15/arts/music/opera-salzburg-festival-chekhov.html
 
-**A Soprano Whoâs Ready for Tragedy and Comedy at the Salzburg Festival**\
-`Asmik Grigorian will return to the role of Lady Macbeth in Verdiâs âMacbethâ and present her pop-infused comic recital âA Diva Is Born.â`\
+**A Soprano Who’s Ready for Tragedy and Comedy at the Salzburg Festival**\
+`Asmik Grigorian will return to the role of Lady Macbeth in Verdi’s “Macbeth” and present her pop-infused comic recital “A Diva Is Born.”`\
 https://nytimes.com/2025/07/15/arts/music/opera-soprano-asmik-grigorian.html
-
-**Men Who Felled Sycamore Gap Tree Are Given Prison Sentences in U.K.**\
-`The tree, a beloved landmark that stood by Hadrianâs Wall in northern England, was found illegally cut down in 2023.`\
-https://nytimes.com/2025/07/15/world/europe/sycamore-gap-tree-sentencing-prison.html
 
