@@ -1,3 +1,35 @@
+**Sabres, Byram agree to 2-year extension with $6.25 million cap hit**\
+`The Sabres have avoided arbitration with defenseman Bowen Byram, who was a restricted free agent.`\
+https://nytimes.com/athletic/6494448/2025/07/14/sabres-bowen-byram-contract-extension/
+
+**Players' associations unite to oppose bill granting NCAA antitrust exemption**\
+`Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
+https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
+
+**China’s Economy Grows Steadily Despite Trump’s Tariffs**\
+`Companies redirected exports through other countries to avoid U.S. tariffs, and policymakers turned up investment in manufacturing and infrastructure.`\
+https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
+
+**Appeals Court Keeps Afghans’ Deportation Protections in Place for Now**\
+`A short, unsigned order by the Fourth Circuit Court of Appeals in Virginia blocked the Trump administration’s move to terminate deportation protections until next week.`\
+https://nytimes.com/2025/07/14/us/politics/afghanistan-tps-migrants-deportation.html
+
+**Judge Orders Release of Iranian Arrested in Louisiana After U.S. Bombed Iran**\
+`Pouria Pourhosseinhendabad, a doctoral student studying mechanical engineering at Louisiana State University, was arrested along with his wife, in what his lawyers call “an unconstitutional ruse.”`\
+https://nytimes.com/2025/07/14/us/politics/iran-student-released-louisiana.html
+
+**Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
+`“My work is the same as it’s always been,” Clark said on Monday, in some of his first comments regarding the federal probe.`\
+https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/
+
+**MLB All-Stars speak on the ‘gray area’ of sports betting, social media threats**\
+`The Athletic asked about the effects of gambling during media availabilities at this year's All-Star Game. `\
+https://nytimes.com/athletic/6494316/2025/07/14/mlb-all-star-game-2025-sports-betting/
+
+**Behind Trump’s Tough Russia Talk, Doubts and Missing Details**\
+`Pentagon officials said details were still being worked out, and experts doubted Mr. Trump’s threat of huge tariffs for Russian trading partners.`\
+https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
+
 **Players' associations unite to oppose bill granting NCAA antitrust exemption**\
 `Five major U.S. playersâ associations warned an antitrust exemption would permit the NCAA and its members to âcollude to harm athletes.â`\
 https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
