@@ -1,3 +1,11 @@
+**Waltz, in U.N. Ambassador Hearing, Defends Signal Group Chat**\
+`Michael Waltz, the former national security adviser, doubled down on the Trump administration’s defense of a Signal group chat where senior officials discussed war plans.`\
+https://nytimes.com/2025/07/15/us/politics/michael-waltz-un-ambassador-testimony-signal-chat.html
+
+**For Hard-Right Lawmakers, Trump’s Shift on Epstein Is Just the Latest Breach**\
+`Right-wing Republicans have also criticized the president’s stances on Iran and Ukraine, hinting at a broader fraying of his political coalition.`\
+https://nytimes.com/2025/07/15/us/politics/republicans-congress-trump-epstein.html
+
 **Trump’s Pivot on Ukraine**\
 `President Trump’s approach to the war in Ukraine has changed substantially since the start of his presidential term. Maggie Haberman, a White House correspondent for The New York Times, explains the pivot.`\
 https://nytimes.com/video/us/politics/100000010284016/trumps-pivot-on-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6479621/2025/07/15/sean-longstaff-leeds-transfer-ne
 **France Proposes Cutting Two Public Holidays to Avert Budget Crisis**\
 `Drastic measures are necessary “before we are crushed by the debt,” the country’s prime minister warned.`\
 https://nytimes.com/2025/07/15/business/france-debt-deficit-spending-taxes.html
-
-**Billy Jones, Impresario of New York’s Indie Music Scene, Dies at 45**\
-`He opened Baby’s All Right and three other nightclubs, a restaurant and a record store in a dozen years, helping the city maintain its cultural verve.`\
-https://nytimes.com/2025/07/15/arts/music/billy-jones-dead.html
-
-**Jamie Dimon Backs Jerome Powell Over Trump in Fed Fight**\
-`The C.E.O. of JPMorgan Chase, who has rarely taken on President Trump during his second term, wades into the argument over the Federal Reserve chair.`\
-https://nytimes.com/2025/07/15/business/jamie-dimon-jerome-powell-trump.html
 
