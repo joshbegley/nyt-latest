@@ -1,5 +1,9 @@
-**Emmy Nomination Snubs and Surprises: âSquid Game,â âThe Handmaidâs Taleâ and John Mulaney (Again)**\
-`Some big names (Alfonso CuarÃ³n, Elisabeth Moss) were left off the Emmy nomination list while some underdogs (Jeff Hiller, âCommon Side Effectsâ) sneaked on.`\
+**Terry McLaurin undecided on Commanders training camp amid contract standoff**\
+`McLaurin posted 1,096 yards and 13 touchdowns last season, his first paired with Jayden Daniels at QB.`\
+https://nytimes.com/athletic/6495802/2025/07/15/terry-mclaurin-commanders-contract-training-camp-comments/
+
+**Emmy Nomination Snubs and Surprises: ‘Squid Game,’ ‘The Handmaid’s Tale’ and John Mulaney (Again)**\
+`Some big names (Alfonso Cuarón, Elisabeth Moss) were left off the Emmy nomination list while some underdogs (Jeff Hiller, “Common Side Effects”) sneaked on.`\
 https://nytimes.com/2025/07/15/arts/television/emmy-nominations-snubs-surprises.html
 
 **What is CAIR, the group that Stefanik attacked?**\
@@ -14,12 +18,12 @@ https://nytimes.com/athletic/6495746/2025/07/15/jordan-nobbs-wsl-record-newcastl
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/david-corenswet-superman
 
-**Itâs a Great Time to Be a Toe**\
+**It’s a Great Time to Be a Toe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
 
-**Trumpâs Zigzags on Ukraine and Russia**\
-`Readers respond to the presidentâs latest turn in the war. Also: President Trump and Rosie OâDonnell; New Yorkersâ health; travel medical kits.`\
+**Trump’s Zigzags on Ukraine and Russia**\
+`Readers respond to the president’s latest turn in the war. Also: President Trump and Rosie O’Donnell; New Yorkers’ health; travel medical kits.`\
 https://nytimes.com/2025/07/15/opinion/trump-ukraine-russia.html
 
 **gws-colorado-comanche-national-grassland**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495213/2025/07/15/newcastle-united-transfer-alexan
 **Leicester appoint Cifuentes to replace Van Nistelrooy**\
 `Van Nistelrooy won just four of his 24 matches in charge as Leicester were relegated in April with five games to spare.`\
 https://nytimes.com/athletic/6455766/2025/07/15/leicester-manager-next-marti-cifuentes/
-
-**Our Favorite Pools**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/t-magazine-best-pool-designs
 
