@@ -1,3 +1,23 @@
+**Would Europe Actually Retaliate Against Trumpâs Tariffs?**\
+`European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
+https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
+
+**2025 Emmy Nominations to Be Announced**\
+`The nominees will be announced at the Television Academyâs Los Angeles headquarters.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
+
+**Are the Courts Checking Trump â or Enabling Him?**\
+`A former federal judge weighs in.`\
+https://nytimes.com/2025/07/15/opinion/judge-mcconnell-trump-court-power.html
+
+**PBS and NPRâs Last-Ditch Fight to Save Funding**\
+`As a vote to cut more than $500 million per year in federal funding nears, stations are making their pitches to lawmakers, listeners and âViewers Like You.â`\
+https://nytimes.com/2025/07/15/business/media/npr-pbs-funding-fight.html
+
+**Adorning a Manhattan Loft With Hand-Crafted Inspirations**\
+`The designers George Yabu and Glenn Pushelberg collect an âinventory of ideas and thoughts,â including miniature Japanese vessels, handmade glasses and a vintage bar cabinet.`\
+https://nytimes.com/2025/07/15/realestate/home-design-inspirations-yabu-pushelberg.html
+
 **Would Europe Actually Retaliate Against Trump’s Tariffs?**\
 `European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
 https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
