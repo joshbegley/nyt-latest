@@ -1,3 +1,7 @@
+**Fan steals HR from Junior Caminero at derby: 'I wasn't aware of where I was'**\
+`Scorers counted the homer robbed by Sam Musterer, 17, who was on the field because his father is a scorer at Braves games.`\
+https://nytimes.com/athletic/6494514/2025/07/14/mlb-home-run-derby-junior-caminero-robbery/
+
 **China’s Economy Grows Steadily Despite Trump’s Tariffs**\
 `Official figures showed modest growth in the second quarter as exports shifted to other countries and Beijing invested in manufacturing and infrastructure.`\
 https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html

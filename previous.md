@@ -1,3 +1,7 @@
+**Fan steals HR from Junior Caminero at derby: 'I wasn't aware of where I was'**\
+`Scorers counted the homer robbed by Sam Musterer, 17, who was on the field because his father is a scorer at Braves games.`\
+https://nytimes.com/athletic/6494514/2025/07/14/mlb-home-run-derby-junior-caminero-robbery/
+
 **Nvidia Says U.S. Has Lifted Restrictions on A.I. Chip Sales to China**\
 `The Silicon Valley chip giant said the Trump administration, which had shut down its sales to China three months ago, had assured it that licenses for the sales would now be granted.`\
 https://nytimes.com/2025/07/14/technology/nvidia-ai-chip-sales-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/afghanistan-tps-migrants-deportation.
 **Judge Orders Release of Iranian Arrested in Louisiana After U.S. Bombed Iran**\
 `Pouria Pourhosseinhendabad, a doctoral student studying mechanical engineering at Louisiana State University, was arrested along with his wife, in what his lawyers call “an unconstitutional ruse.”`\
 https://nytimes.com/2025/07/14/us/politics/iran-student-released-louisiana.html
-
-**NASA Website Will Not Provide Previous National Climate Reports**\
-`An agency spokeswoman had initially stated that NASA would retain earlier assessments online for continuity.`\
-https://nytimes.com/2025/07/14/climate/nasa-website-climate-report.html
 
