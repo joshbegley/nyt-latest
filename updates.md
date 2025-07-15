@@ -1,3 +1,7 @@
+**Would Europe Actually Retaliate Against Trump’s Tariffs?**\
+`European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
+https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
+
 **A Summer Camp Reopens in the Texas Hill Country**\
 `Barely a week after devastating floods destroyed Camp Mystic and killed at least 132, Camp CAMP, which serves disabled youth, reopened Monday, thanks to a herculean cleanup led by a volunteer army.`\
 https://nytimes.com/2025/07/15/us/texas-flood-camp-reopens.html

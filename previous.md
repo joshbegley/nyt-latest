@@ -1,3 +1,7 @@
+**Would Europe Actually Retaliate Against Trump’s Tariffs?**\
+`European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
+https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
+
 **A Summer Camp Reopens in the Texas Hill Country**\
 `Barely a week after devastating floods destroyed Camp Mystic and killed at least 132, Camp CAMP, which serves disabled youth, reopened Monday, thanks to a herculean cleanup led by a volunteer army.`\
 https://nytimes.com/2025/07/15/us/texas-flood-camp-reopens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/business/media/npr-pbs-funding-fight.html
 **Adorning a Manhattan Loft With Hand-Crafted Inspirations**\
 `The designers George Yabu and Glenn Pushelberg collect an “inventory of ideas and thoughts,” including miniature Japanese vessels, handmade glasses and a vintage bar cabinet.`\
 https://nytimes.com/2025/07/15/realestate/home-design-inspirations-yabu-pushelberg.html
-
-**To Afford Montauk, He Went on ‘Jeopardy’**\
-`Stevie Ruiz, a restaurant server who also runs small businesses, has used his game show winnings to stay afloat in the expensive Long Island hamlet.`\
-https://nytimes.com/2025/07/15/realestate/renters-montauk-long-island-jeopardy.html
 
