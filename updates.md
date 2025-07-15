@@ -1,3 +1,23 @@
+**Nvidia and AMD Soar as Chip Trade Curbs Fall**\
+`The tech giants said they can resume selling high-end semiconductors to China, in what appears to be a major about-face for the Trump administration.`\
+https://nytimes.com/2025/07/15/business/dealbook/nvidia-amd-chips-trump-china.html
+
+**Israel Targets Syria and Lebanon in Wave of Airstrikes**\
+`In Syria, Israel launched rare attacks on forces of the new government, while in Lebanon it took aim at the Iran-backed militant group Hezbollah.`\
+https://nytimes.com/2025/07/15/world/middleeast/airstrikes-israel-syria-lebanon.html
+
+**How do the Red Wings stack up to the Atlantic field? Mailbag**\
+`Red Wings beat writer Max Bultman answers subscriber questions as the offseason slows down.`\
+https://nytimes.com/athletic/6488733/2025/07/15/red-wings-nhl-offseason-atlantic-division/
+
+**Chargers training camp storylines, Part 2: Battle at CB, huge opportunity for Tuli Tuipulotu**\
+`Also worth watching: How does Justin Herbert respond to his career-worst game in the Chargers' 2024 playoff loss to the Texans? `\
+https://nytimes.com/athletic/6494067/2025/07/15/chargers-training-camp-tuli-tuipulotu/
+
+**Trump Administration Live Updates: President to Attend A.I. Summit in Pennsylvania**\
+``\
+https://nytimes.com/live/2025/07/15/us/trump-news
+
 **For Big Banks, the Trump Era Is Proving Profitable Thus Far**\
 `JPMorgan’s Jamie Dimon lauded the “resilient” U.S. economy as his bank reported bumper quarterly earnings.`\
 https://nytimes.com/2025/07/15/business/jpmorgan-wells-fargo-citi-banks-economy.html
