@@ -1,3 +1,7 @@
+**Brentford sign Henderson on free transfer**\
+`The England international was identified as a top target for Brentford following the exit of captain Christian Norgaard to Arsenal.`\
+https://nytimes.com/athletic/6487875/2025/07/15/brentford-jordan-henderson-free-transfer/
+
 **Seth Meyers Is Amused by MAGAâs Epstein Infighting**\
 `President Trumpâs most conspiracy-minded supporters canât believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
 https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html

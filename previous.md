@@ -1,3 +1,7 @@
+**Brentford sign Henderson on free transfer**\
+`The England international was identified as a top target for Brentford following the exit of captain Christian Norgaard to Arsenal.`\
+https://nytimes.com/athletic/6487875/2025/07/15/brentford-jordan-henderson-free-transfer/
+
 **Flash Floods Pour Into New York City Subway Station**\
 `Passengers on an uptown No. 1 train saw floodwaters swamping the station at 28th Street and Seventh Avenue in Manhattan.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-subway-flood-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/crosswords/spelling-bee-forum.html
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to your weekly guide to everything that you need to know from the summer transfer window`\
 https://nytimes.com/athletic/6492733/2025/07/15/transfer-news-latest-liverpool-manchester-united-arsenal-real-madrid-analysis/
-
-**Luka Modric completes move to AC Milan**\
-`The Croatia international played 597 times for Madrid and won 26 trophies.`\
-https://nytimes.com/athletic/6420987/2025/07/15/luka-modric-completes-move-to-ac-milan-after-leaving-real-madrid/
 
