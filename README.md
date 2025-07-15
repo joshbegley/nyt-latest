@@ -1,3 +1,7 @@
+**Nvidia Says U.S. Has Lifted Restrictions on A.I. Chip Sales to China**\
+`The Silicon Valley chip giant said the Trump administration, which had shut down its sales to China three months ago, had assured it that licenses for the sales would now be granted.`\
+https://nytimes.com/2025/07/14/technology/nvidia-ai-chip-sales-china.html
+
 **Full Time: Can there be too much soccer?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6494473/2025/07/14/womens-euros-wafcon-copa-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/iran-student-released-louisiana.html
 **NASA Website Will Not Provide Previous National Climate Reports**\
 `An agency spokeswoman had initially stated that NASA would retain earlier assessments online for continuity.`\
 https://nytimes.com/2025/07/14/climate/nasa-website-climate-report.html
-
-**Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
-`“My work is the same as it’s always been,” Clark said on Monday, in some of his first comments regarding the federal probe.`\
-https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/
 
