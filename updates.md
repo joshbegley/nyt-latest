@@ -1,3 +1,15 @@
+**West Ham sign Diouf from Slavia Prague**\
+`The 20-year-old defender becomes the club's first signing of the summer transfer window.`\
+https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/
+
+**Mayor Adams Loses Another Round in Bid to Receive Public Matching Funds**\
+`The New York City Campaign Finance Board rejected Mayor Eric Adams’s request for millions of dollars from the city’s generous matching-funds program.`\
+https://nytimes.com/2025/07/15/nyregion/eric-adams-nyc-mayor-matching-funds.html
+
+**Three Aid Workers Were ‘Intentionally Killed’ in Ethiopia, M.S.F. Says**\
+`The aid group accused Ethiopia’s government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
+https://nytimes.com/2025/07/15/world/africa/ethiopia-tigray-msf.html
+
 **Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
 `Portuguese coach Jesus, 70, has replaced Stefano Pioli as Al Nassr coach following last season's third-place Saudi Pro League (SPL) finish.`\
 https://nytimes.com/athletic/6495374/2025/07/15/jorge-jesus-al-nassr-cristiano-ronaldo/

@@ -1,3 +1,15 @@
+**West Ham sign Diouf from Slavia Prague**\
+`The 20-year-old defender becomes the club's first signing of the summer transfer window.`\
+https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/
+
+**Mayor Adams Loses Another Round in Bid to Receive Public Matching Funds**\
+`The New York City Campaign Finance Board rejected Mayor Eric Adams’s request for millions of dollars from the city’s generous matching-funds program.`\
+https://nytimes.com/2025/07/15/nyregion/eric-adams-nyc-mayor-matching-funds.html
+
+**Three Aid Workers Were ‘Intentionally Killed’ in Ethiopia, M.S.F. Says**\
+`The aid group accused Ethiopia’s government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
+https://nytimes.com/2025/07/15/world/africa/ethiopia-tigray-msf.html
+
 **Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
 `Portuguese coach Jesus, 70, has replaced Stefano Pioli as Al Nassr coach following last season's third-place Saudi Pro League (SPL) finish.`\
 https://nytimes.com/athletic/6495374/2025/07/15/jorge-jesus-al-nassr-cristiano-ronaldo/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6495203/2025/07/15/nick-sirianni-jalen-hurts-eagles
 **Sources: MLS, players reached new Club World Cup bonus agreement**\
 `The league and its Club World Cup participants ultimately reached a deal after a frosty standoff prior to the competition`\
 https://nytimes.com/athletic/6493304/2025/07/15/mls-players-club-world-cup-bonus-deal/
-
-**Men's college basketball's best of the quarter-century: Make your picks**\
-`As we make our picks for the best of the quarter-century in men's college basketball, we want to hear yours, too.`\
-https://nytimes.com/athletic/6495230/2025/07/15/best-college-basketball-players-coaches-teams-survey/
-
-**At Salzburg, a Modern Opera About Timeless Dreams and Realities**\
-`Peter Eotvos’s “Three Sisters,” based on the 1900 play by Anton Chekhov, is at the festival this year for the first time.`\
-https://nytimes.com/2025/07/15/arts/music/opera-salzburg-festival-chekhov.html
-
-**A Soprano Who’s Ready for Tragedy and Comedy at the Salzburg Festival**\
-`Asmik Grigorian will return to the role of Lady Macbeth in Verdi’s “Macbeth” and present her pop-infused comic recital “A Diva Is Born.”`\
-https://nytimes.com/2025/07/15/arts/music/opera-soprano-asmik-grigorian.html
 
