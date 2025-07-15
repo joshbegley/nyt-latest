@@ -1,3 +1,15 @@
+**gws-taco-bell-crunchwrap-supreme**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/taco-bell-crunchwrap-supreme
+
+**gws-trail-running-beginner-tips**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/trail-running-beginner-tips
+
+**gws-superman-warner-bros-box-office**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/superman-warner-bros-box-office
+
 **Videos From the Amazon Reveal an Unexpected Animal Friendship**\
 `Scientists are trying to understand footage that showed ocelots and opossums, usually predator and prey, hanging out together.`\
 https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
 https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
 
 **Liverpool make Isak approach to Newcastle**\
-`The Premier League champions have communicated their interest to do a deal in the region of £120m.
+`The Premier League champions have communicated their interest to do a deal in the region of Â£120m.
 `\
 https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
 
@@ -16,26 +28,14 @@ https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfe
 https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
 
 **What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
-`Here’s what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
+`Hereâs what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
 https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
 
 **Man City announce Toure as assistant coach after impressing at Club World Cup**\
-`The Ivorian defender was promoted in June after working with the club’s under-18 group.`\
+`The Ivorian defender was promoted in June after working with the clubâs under-18 group.`\
 https://nytimes.com/athletic/6495042/2025/07/15/kolo-toure-man-city-assistant-pep-guardiola/
 
 **Emmy Nominees 2025: The Updating List**\
 `Nominations for the 77th Emmy Awards will be announced on Tuesday at 11:30 a.m. ET. See below for a live list of nominees.`\
 https://nytimes.com/2025/07/15/arts/television/emmy-nominees-list-2025.html
-
-**Men’s Wear That Melds Colors, Patterns and Proportions**\
-`Visual contrasts made a suit look both fresh and nostalgic.`\
-https://nytimes.com/2025/07/15/style/street-style-look-bespoke-suit.html
-
-**The Windup: So close to a great Home Run Derby format**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6494655/2025/07/15/cal-raleigh-hr-derby-format-the-windup/
-
-**Where Have Men Gone? We’re Right Here.**\
-`Readers respond to a Modern Love essay that asks why so many men have retreated from dating and relationships.`\
-https://nytimes.com/2025/07/15/style/modern-love-where-have-men-gone-were-right-here.html
 

@@ -1,3 +1,8 @@
+**Liverpool make Isak approach to Newcastle**\
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
+`\
+https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
+
 **Videos From the Amazon Reveal an Unexpected Animal Friendship**\
 `Scientists are trying to understand footage that showed ocelots and opossums, usually predator and prey, hanging out together.`\
 https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
