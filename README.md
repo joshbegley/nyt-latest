@@ -1,4 +1,16 @@
-**Trump Hails $90 Billion in AI Infrastructure Investments at Pennsylvania Summit**\
+**Israel Attacks Syria’s Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
+`Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
+https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
+
+**Andrew Cuomo Test Drives a Warmer, Friendlier Version of Himself**\
+`Mr. Cuomo, the former governor of New York, has vowed to run a more energetic campaign than he did in the mayoral primary, and aimed to demonstrate that on Tuesday.`\
+https://nytimes.com/2025/07/15/nyregion/andrew-cuomo-test-drives-a-warmer-friendlier-version-of-himself.html
+
+**The Arch Manning era is underway, and the show arrives at SEC media days**\
+`The pressure may now be on Manning. But it may be that the wait to play has Manning feeling less pressure and more relief to be playing.`\
+https://nytimes.com/athletic/6496401/2025/07/15/arch-manning-texas-sec-media-days/
+
+**Trump Hails $90 Billion in A.I. Infrastructure Investments at Pennsylvania Summit**\
 `Trump administration officials say winning the artificial intelligence race with China is a top priority.`\
 https://nytimes.com/2025/07/15/us/politics/trump-ai-pittsburgh-speech.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/15/briefing/china-economy-ukraine-weapons-trump-euro
 **Mamdani for Mayor (if You Want a Foil for Republicans)**\
 `Get ready for the G.O.P. to run against “Mamdani Democrats” for several election cycles to come.`\
 https://nytimes.com/2025/07/15/opinion/mamdani-mayor-republicans.html
-
-**What Do Conservatives Offer Universities?**\
-`Contrarianism and neutrality can’t overcome progressive groupthink.`\
-https://nytimes.com/2025/07/15/opinion/conservative-professors-viewpoint-diversity.html
-
-**Blackhawks sign Anton Frondell to entry-level contract: Where will he play?**\
-`Will the No. 3 draft pick in 2025 play in the NHL next season? Or will he return to Sweden to play for Djurgården in the SHL?`\
-https://nytimes.com/athletic/6496239/2025/07/15/blackhawks-anton-frondell-contract-2025-nhl-draft/
-
-**Arizona Seventh Congressional District Special Primary Election Results**\
-`Get live results and maps from the 2025 Arizona special primary election.`\
-https://nytimes.com/interactive/2025/07/15/us/elections/results-arizona-us-house-7-special.html
 
