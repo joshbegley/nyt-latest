@@ -1,3 +1,7 @@
+**Videos From the Amazon Reveal an Unexpected Animal Friendship**\
+`Scientists are trying to understand footage that showed ocelots and opossums, usually predator and prey, hanging out together.`\
+https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
+
 **Pistons summer league notebook: Holland shows promise, Robinson ready to lead**\
 `Last year's No. 5 overall pick Ron Holland II is showing off a smooth 3-point shot for the Pistons at NBA Summer League.`\
 https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6494655/2025/07/15/cal-raleigh-hr-derby-format-the-
 **Where Have Men Gone? We’re Right Here.**\
 `Readers respond to a Modern Love essay that asks why so many men have retreated from dating and relationships.`\
 https://nytimes.com/2025/07/15/style/modern-love-where-have-men-gone-were-right-here.html
-
-**U.S. Inflation Accelerated in June as Trump’s Tariffs Pushed Up Prices**\
-`The Consumer Price Index rose 2.7 percent from a year ago, as the global trade war started to bite.`\
-https://nytimes.com/2025/07/15/business/cpi-report-inflation-june.html
 
