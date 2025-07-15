@@ -1,3 +1,11 @@
+**Terry McLaurin undecided on Commanders training camp amid contract standoff**\
+`McLaurin posted 1,096 yards and 13 touchdowns last season, his first paired with Jayden Daniels at QB.`\
+https://nytimes.com/athletic/6495802/2025/07/15/terry-mclaurin-commanders-contract-training-camp-comments/
+
+**Emmy Nomination Snubs and Surprises: ‘Squid Game,’ ‘The Handmaid’s Tale’ and John Mulaney (Again)**\
+`Some big names (Alfonso Cuarón, Elisabeth Moss) were left off the Emmy nomination list while some underdogs (Jeff Hiller, “Common Side Effects”) sneaked on.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominations-snubs-surprises.html
+
 **What is CAIR, the group that Stefanik attacked?**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-cair-the-group-that-stefanik-attacked
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6495213/2025/07/15/newcastle-united-transfer-alexan
 **Leicester appoint Cifuentes to replace Van Nistelrooy**\
 `Van Nistelrooy won just four of his 24 matches in charge as Leicester were relegated in April with five games to spare.`\
 https://nytimes.com/athletic/6455766/2025/07/15/leicester-manager-next-marti-cifuentes/
-
-**Our Favorite Pools**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/t-magazine-best-pool-designs
-
-**‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
-`Have questions about Russia? Anton Troianovski has answers.`\
-https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
 
