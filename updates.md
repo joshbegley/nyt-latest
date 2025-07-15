@@ -1,3 +1,11 @@
+**Mamdani Prepares to Meet With the City’s Wary Business Leaders**\
+`On Tuesday, Zohran Mamdani, a democratic socialist running for mayor, will meet with the who’s who of the corporate world as he prepares for the general election.`\
+https://nytimes.com/2025/07/15/business/mamdani-nyc-business-leaders.html
+
+**Defining ‘Antisemitism’ Is the Subject of Bitter Debate**\
+`There’s no consensus about what, precisely, constitutes antisemitism.`\
+https://nytimes.com/2025/07/15/us/defining-antisemitism.html
+
 **The Bounce: Cooper Flagg, Dylan Harper and NBA's next big thing highlight Vegas Summer League notes**\
 `What are the best parts of this year's Vegas Summer League action? Zach Harper narrows the list down to 15 key observations`\
 https://nytimes.com/athletic/6494950/2025/07/15/cooper-flagg-mavericks-dylan-harper-spurs-yang-hansen-trail-blazers-nba-draft-the-bounce/
