@@ -1,3 +1,11 @@
+**Think you understand Scottie Scheffler? Think again.**\
+`"I love getting to live out my dreams. But at the end of the day, sometimes I just don't understand the point.”`\
+https://nytimes.com/athletic/6495632/2025/07/15/scottie-scheffler-open-championship/
+
+**Pop’s New Weepy Take on Hookup Culture**\
+`The young singer Sombr currently has two Top 40 hits, including “Back to Friends,” which continues to confound our critic.`\
+https://nytimes.com/video/podcasts/100000010284265/pops-new-weepy-take-on-hookup-culture.html
+
 **Why the New York Subway System Keeps Flooding**\
 `The century-old system faces infrastructure and climate challenges that are making its water problem worse.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-subway-flooding-why.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493071/2025/07/15/fantasy-football-draft-strategy-
 **The fantasy football quarterbacks to draft ... and those to avoid**\
 `Jake Ciely illustrates his fantasy football strategy to maximize value at QB in 2025.`\
 https://nytimes.com/athletic/6484015/2025/07/15/fantasy-football-draft-best-qb-rankings-values-adp/
-
-**West Ham sign Diouf from Slavia Prague**\
-`The 20-year-old defender becomes the club's first signing of the summer transfer window.`\
-https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/
-
-**Mayor Adams Loses Another Round in Bid to Receive Public Matching Funds**\
-`The New York City Campaign Finance Board rejected Mayor Eric Adams’s request for millions of dollars from the city’s generous matching-funds program.`\
-https://nytimes.com/2025/07/15/nyregion/eric-adams-nyc-mayor-matching-funds.html
 
