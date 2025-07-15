@@ -1,3 +1,19 @@
+**What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
+`Here’s what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
+https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
+
+**Man City announce Toure as assistant coach after impressing at Club World Cup**\
+`The Ivorian defender was promoted in June after working with the club’s under-18 group.`\
+https://nytimes.com/athletic/6495042/2025/07/15/kolo-toure-man-city-assistant-pep-guardiola/
+
+**Emmy Nominees 2025: The Updating List**\
+`Nominations for the 77th Emmy Awards will be announced on Tuesday at 11:30 a.m. ET. See below for a live list of nominees.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominees-list-2025.html
+
+**Men’s Wear That Melds Colors, Patterns and Proportions**\
+`Visual contrasts made a suit look both fresh and nostalgic.`\
+https://nytimes.com/2025/07/15/style/street-style-look-bespoke-suit.html
+
 **Where Have Men Gone? We’re Right Here.**\
 `Readers respond to a Modern Love essay that asks why so many men have retreated from dating and relationships.`\
 https://nytimes.com/2025/07/15/style/modern-love-where-have-men-gone-were-right-here.html

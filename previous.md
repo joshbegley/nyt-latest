@@ -1,3 +1,19 @@
+**What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
+`Here’s what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
+https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
+
+**Man City announce Toure as assistant coach after impressing at Club World Cup**\
+`The Ivorian defender was promoted in June after working with the club’s under-18 group.`\
+https://nytimes.com/athletic/6495042/2025/07/15/kolo-toure-man-city-assistant-pep-guardiola/
+
+**Emmy Nominees 2025: The Updating List**\
+`Nominations for the 77th Emmy Awards will be announced on Tuesday at 11:30 a.m. ET. See below for a live list of nominees.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominees-list-2025.html
+
+**Men’s Wear That Melds Colors, Patterns and Proportions**\
+`Visual contrasts made a suit look both fresh and nostalgic.`\
+https://nytimes.com/2025/07/15/style/street-style-look-bespoke-suit.html
+
 **The Windup: So close to a great Home Run Derby format**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6494655/2025/07/15/cal-raleigh-hr-derby-format-the-windup/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-europe-trump.html
 **Nvidia and AMD Soar as Chip Trade Curbs Fall**\
 `The tech giants said they can resume selling high-end semiconductors to China, in what appears to be a major about-face for the Trump administration.`\
 https://nytimes.com/2025/07/15/business/dealbook/nvidia-amd-chips-trump-china.html
-
-**Israel Targets Syria and Lebanon in Wave of Airstrikes**\
-`In Syria, Israel launched rare attacks on forces of the new government, while in Lebanon it took aim at the Iran-backed militant group Hezbollah.`\
-https://nytimes.com/2025/07/15/world/middleeast/airstrikes-israel-syria-lebanon.html
-
-**How do the Red Wings stack up to the Atlantic field? Mailbag**\
-`Red Wings beat writer Max Bultman answers subscriber questions as the offseason slows down.`\
-https://nytimes.com/athletic/6488733/2025/07/15/red-wings-nhl-offseason-atlantic-division/
-
-**Chargers training camp storylines, Part 2: Battle at CB, huge opportunity for Tuli Tuipulotu**\
-`Also worth watching: How does Justin Herbert respond to his career-worst game in the Chargers' 2024 playoff loss to the Texans? `\
-https://nytimes.com/athletic/6494067/2025/07/15/chargers-training-camp-tuli-tuipulotu/
-
-**Trump Administration Live Updates: President to Attend A.I. Summit in Pennsylvania**\
-``\
-https://nytimes.com/live/2025/07/15/us/trump-news
 
