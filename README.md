@@ -1,3 +1,7 @@
+**In Northern Ireland, Fire Has Long Been Used as a Weapon of Fear**\
+`A bonfire topped with an effigy of a migrant boat. Homes set alight. During the Troubles, similar tactics were used to target Irish Catholics in the territory.`\
+https://nytimes.com/2025/07/15/world/europe/northern-ireland-bonfire-arson-ballymena-riots.html
+
 **The New York Times International Edition in Print for Wednesday, July 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/15/todays-new-york-times-international-edition
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6488279/2025/07/15/mets-francisco-lindor-mlb-all-st
 `Their victories at the All England Club have reopened debate in tennis and the wider sporting world about their cases. Is it valid?`\
 https://nytimes.com/athletic/6493153/2025/07/15/tennis-sinner-swiatek-doping-cases-wimbledon/
 
-**Would Europe Actually Retaliate Against Trumpâs Tariffs?**\
+**Would Europe Actually Retaliate Against Trump’s Tariffs?**\
 `European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
 https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
 
@@ -23,7 +27,7 @@ https://nytimes.com/2025/07/15/us/texas-flood-camp-reopens.html
 https://nytimes.com/2025/07/15/opinion/trump-authoritarianism-republican-party-democracy.html
 
 **2025 Emmy Nominations to Be Announced**\
-`The nominees will be announced at the Television Academyâs Los Angeles headquarters.`\
+`The nominees will be announced at the Television Academy’s Los Angeles headquarters.`\
 https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
 
 **Democrats Are Workshopping New Tactics After Losses of 2024**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/us/politics/democrats-voters-ads-campaigns.html
 **If You Like 35 Percent Inflation, Go Ahead, Fire the Fed Chair**\
 `Comparisons to what happened in Turkey and Hungary are not far-fetched.`\
 https://nytimes.com/2025/07/15/opinion/fed-trump-fire-powell.html
-
-**Are the Courts Checking Trump â or Enabling Him?**\
-`A former federal judge weighs in.`\
-https://nytimes.com/2025/07/15/opinion/judge-mcconnell-trump-court-power.html
 
