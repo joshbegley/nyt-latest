@@ -1,3 +1,7 @@
+**Trump Administration Investigates U. of Michigan Over Foreign Funding**\
+`The University of Michigan was the latest school accused of failing to report large foreign donations amid a wider pressure campaign from the Trump administration.`\
+https://nytimes.com/2025/07/15/us/politics/trump-michigan-university-foreign-funding.html
+
 **Andrea Gibson, a Poet of Love, Hope and Gender Identity, Dies at 49**\
 `A master of spoken-word performance, Gibson insisted that poetry, especially when read aloud to an audience, was a political act.`\
 https://nytimes.com/2025/07/15/arts/andrea-gibson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/nyregion/andrew-cuomo-mayor-campaign.html
 **The Arch Manning era is underway, and the show arrives at SEC media days**\
 `The pressure may now be on Manning. But it may be that the wait to play has Manning feeling less pressure and more relief to be playing.`\
 https://nytimes.com/athletic/6496401/2025/07/15/arch-manning-texas-sec-media-days/
-
-**Trump Hails $90 Billion in A.I. Infrastructure Investments at Pennsylvania Summit**\
-`Trump administration officials say winning the artificial intelligence race with China is a top priority.`\
-https://nytimes.com/2025/07/15/us/politics/trump-ai-pittsburgh-speech.html
 

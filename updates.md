@@ -1,3 +1,7 @@
+**Trump Administration Investigates U. of Michigan Over Foreign Funding**\
+`The University of Michigan was the latest school accused of failing to report large foreign donations amid a wider pressure campaign from the Trump administration.`\
+https://nytimes.com/2025/07/15/us/politics/trump-michigan-university-foreign-funding.html
+
 **Garrett Wilson, Sauce Gardner are a reminder of what has gone — and what can go — right for Jets**\
 `This week the Jets signed their two young stars to lucrative contract extensions, locking them in as the new faces of the franchise.`\
 https://nytimes.com/athletic/6496611/2025/07/15/garrett-wilson-sauce-gardner-contract-extensions-jets-future/
