@@ -1,3 +1,7 @@
+**Emmy Nomination Snubs and Surprises: âSquid Game,â âThe Handmaidâs Taleâ and John Mulaney (Again)**\
+`Some big names (Alfonso CuarÃ³n, Elisabeth Moss) were left off the Emmy nomination list while some underdogs (Jeff Hiller, âCommon Side Effectsâ) sneaked on.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominations-snubs-surprises.html
+
 **What is CAIR, the group that Stefanik attacked?**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-cair-the-group-that-stefanik-attacked
@@ -10,12 +14,12 @@ https://nytimes.com/athletic/6495746/2025/07/15/jordan-nobbs-wsl-record-newcastl
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/david-corenswet-superman
 
-**It’s a Great Time to Be a Toe**\
+**Itâs a Great Time to Be a Toe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
 
-**Trump’s Zigzags on Ukraine and Russia**\
-`Readers respond to the president’s latest turn in the war. Also: President Trump and Rosie O’Donnell; New Yorkers’ health; travel medical kits.`\
+**Trumpâs Zigzags on Ukraine and Russia**\
+`Readers respond to the presidentâs latest turn in the war. Also: President Trump and Rosie OâDonnell; New Yorkersâ health; travel medical kits.`\
 https://nytimes.com/2025/07/15/opinion/trump-ukraine-russia.html
 
 **gws-colorado-comanche-national-grassland**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6455766/2025/07/15/leicester-manager-next-marti-cif
 **Our Favorite Pools**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/t-magazine-best-pool-designs
-
-**‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
-`Have questions about Russia? Anton Troianovski has answers.`\
-https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
 

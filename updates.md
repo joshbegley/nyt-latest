@@ -1,3 +1,11 @@
+**What is CAIR, the group that Stefanik attacked?**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-cair-the-group-that-stefanik-attacked
+
+**Newcastle sign record WSL appearance-holder Nobbs from Villa**\
+`The midfielder spent 15 seasons in the WSL, making 208 league appearances across spells at Arsenal and Aston Villa.`\
+https://nytimes.com/athletic/6495746/2025/07/15/jordan-nobbs-wsl-record-newcastle-transfers/
+
 **It’s a Great Time to Be a Toe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
