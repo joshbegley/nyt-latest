@@ -1,3 +1,11 @@
+**Trump Administration Initiates Trade Investigation of Brazil**\
+`The United States has begun investigating Brazil’s trade practices and “anti-corruption interference,” after the president’s criticisms of Brazil’s treatment of Jair Bolsonaro, a Trump ally.`\
+https://nytimes.com/2025/07/15/us/politics/trump-brazil-trade-investigation.html
+
+**Washington, D.C. City Council Ward 8 Special Election Results**\
+`Get live results from the 2025 Washington, D.C. special election.`\
+https://nytimes.com/interactive/2025/07/15/us/elections/results-washington-dc-city-council-ward-8-special.html
+
 **Canada’s Leader Says There’s Little Hope of Avoiding U.S. Tariffs**\
 `After long insisting that Canada could avoid Trump tariffs through talks, Mark Carney now says that is unlikely for any nation.`\
 https://nytimes.com/2025/07/15/us/politics/canada-tariffs-mark-carney-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/15/us/politics/trump-military-aid-explainer.html
 **Trump Releases About Half of the National Guard Troops in Los Angeles**\
 `President Trump mobilized the troops on June 7 in the wake of chaotic protests. They have remained in Southern California several weeks after most of the demonstrations had ended.`\
 https://nytimes.com/2025/07/15/us/national-guard-los-angeles-trump.html
-
-**Dan Serafini, Former Baseball Pitcher, Is Convicted of Murder**\
-`The 51-year-old faces life in prison without parole for killing his father-in-law and gravely wounding his mother-in-law in execution-style shootings in 2021.`\
-https://nytimes.com/2025/07/15/us/dan-serafini-baseball-pitcher-guilty-murder.html
-
-**Pelicans will fully guarantee Zion Williamson's salary for 2025-26: Sources**\
-`New Orleans included stipulations to Williamson’s contract that gave the team salary protection in the event of injuries.`\
-https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zion-williamsons-salary-for-2025-26-source/
 

@@ -1,3 +1,11 @@
+**Trump Administration Initiates Trade Investigation of Brazil**\
+`The United States has begun investigating Brazil’s trade practices and “anti-corruption interference,” after the president’s criticisms of Brazil’s treatment of Jair Bolsonaro, a Trump ally.`\
+https://nytimes.com/2025/07/15/us/politics/trump-brazil-trade-investigation.html
+
+**Washington, D.C. City Council Ward 8 Special Election Results**\
+`Get live results from the 2025 Washington, D.C. special election.`\
+https://nytimes.com/interactive/2025/07/15/us/elections/results-washington-dc-city-council-ward-8-special.html
+
 **Canada’s Leader Says There’s Little Hope of Avoiding U.S. Tariffs**\
 `After long insisting that Canada could avoid Trump tariffs through talks, Mark Carney now says that is unlikely for any nation.`\
 https://nytimes.com/2025/07/15/us/politics/canada-tariffs-mark-carney-trump.html
