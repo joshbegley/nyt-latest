@@ -1,40 +1,40 @@
-**Man City sign new Puma deal: Analysing the £100m per season kit partnership**\
-`The sportswear manufacturer has been making City’s shirts since the 2019-20 season.`\
-https://nytimes.com/athletic/6494730/2025/07/15/manchester-city-puma-kit/
+**A Summer Camp Reopens in the Texas Hill Country**\
+`Barely a week after devastating floods destroyed Camp Mystic and killed at least 132, Camp CAMP, which serves disabled youth, reopened Monday, thanks to a herculean cleanup led by a volunteer army.`\
+https://nytimes.com/2025/07/15/us/texas-flood-camp-reopens.html
 
-**Ekitike to Newcastle - the key questions answered**\
-`Can they afford him? What would the deal mean for Isak? Our reporters dissect the news Newcastle are in talks to sign the French forward`\
-https://nytimes.com/athletic/6494725/2025/07/15/hugo-ekitike-newcastle-key-questions-answered/
+**When It Comes to Undermining America, We Have a Winner**\
+`Trump may be winning the battle to weaken our democracy, but he has not won the war.`\
+https://nytimes.com/2025/07/15/opinion/trump-authoritarianism-republican-party-democracy.html
 
-**Brentford sign Henderson on free transfer**\
-`The England international was identified as a top target for Brentford following the exit of captain Christian Norgaard to Arsenal.`\
-https://nytimes.com/athletic/6487875/2025/07/15/brentford-jordan-henderson-free-transfer/
+**2025 Emmy Nominations to Be Announced**\
+`The nominees will be announced at the Television Academy’s Los Angeles headquarters.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
 
-**Flash Floods Pour Into New York City Subway Station**\
-`Passengers on an uptown No. 1 train saw floodwaters swamping the station at 28th Street and Seventh Avenue in Manhattan.`\
-https://nytimes.com/2025/07/15/nyregion/nyc-subway-flood-storm.html
+**Democrats Are Workshopping New Tactics After Losses of 2024**\
+`Among the ideas being promoted: knocking on every single door in a House district and awarding cash prizes for the most effective new ways to reach voters.`\
+https://nytimes.com/2025/07/15/us/politics/democrats-voters-ads-campaigns.html
 
-**La Liga 25/26 winner odds: Real Madrid favoured ahead of reigning champions Barcelona**\
-`Real Madrid and Barcelona remain the two teams at the top of the La Liga pile. Which one has the edge in the betting odds this season?`\
-https://nytimes.com/athletic/6493433/2025/07/15/la-liga-2026-winner-odds-barcelona-real-madrid/
+**If You Like 35 Percent Inflation, Go Ahead, Fire the Fed Chair**\
+`Comparisons to what happened in Turkey and Hungary are not far-fetched.`\
+https://nytimes.com/2025/07/15/opinion/fed-trump-fire-powell.html
 
-**Aston Villa close to selling Enzo Barrenechea to Benfica**\
-`Barrenechea is set to leave Villa without making a competitive appearance.`\
-https://nytimes.com/athletic/6494688/2025/07/15/aston-villa-enzo-barrenechea-benfica-15m-deal/
+**Are the Courts Checking Trump — or Enabling Him?**\
+`A former federal judge weighs in.`\
+https://nytimes.com/2025/07/15/opinion/judge-mcconnell-trump-court-power.html
 
-**Seth Meyers Is Amused by MAGA’s Epstein Infighting**\
-`President Trump’s most conspiracy-minded supporters can’t believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
-https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
+**Appeals Court Delays Decision on Contempt Plan in Deportation Case**\
+`The three-judge panel has allowed the case to languish in a kind of legal limbo, catching the eye of some legal experts.`\
+https://nytimes.com/2025/07/15/us/politics/appeals-court-trump-contempt-el-salvador-deportation.html
 
-**Diaz, Rashford and Nkunku: An incisive dribbler, a driving winger and a poacher. Who should Barcelona sign?**\
-`With Nico Williams off the table, which of the three men on the Catalan club's new shortlist is best suited to Hansi Flick's style of play?`\
-https://nytimes.com/athletic/6492782/2025/07/15/diaz-rashford-nkunku-who-should-barcelona-sign/
+**PBS and NPR’s Last-Ditch Fight to Save Funding**\
+`As a vote to cut more than $500 million per year in federal funding nears, stations are making their pitches to lawmakers, listeners and “Viewers Like You.”`\
+https://nytimes.com/2025/07/15/business/media/npr-pbs-funding-fight.html
 
-**Lingering Moose Shuts Down Popular Adirondack Trail for a Month**\
-`Sickness, not stubbornness, is the most likely explanation for the animal’s “unusual behaviors,” which prompted the unusually long closure, officials said.`\
-https://nytimes.com/2025/07/15/nyregion/moose-goodman-mountain-trail.html
+**Adorning a Manhattan Loft With Hand-Crafted Inspirations**\
+`The designers George Yabu and Glenn Pushelberg collect an “inventory of ideas and thoughts,” including miniature Japanese vessels, handmade glasses and a vintage bar cabinet.`\
+https://nytimes.com/2025/07/15/realestate/home-design-inspirations-yabu-pushelberg.html
 
-**21 Questions About the N.Y.C. Mayor’s Race, Answered**\
-`Readers from around the world asked about Assemblyman Zohran Mamdani’s surprising primary win, its effect on national politics and how The Times covers elections.`\
-https://nytimes.com/2025/07/15/nyregion/nyc-mayor-mamdani-questions.html
+**To Afford Montauk, He Went on ‘Jeopardy’**\
+`Stevie Ruiz, a restaurant server who also runs small businesses, has used his game show winnings to stay afloat in the expensive Long Island hamlet.`\
+https://nytimes.com/2025/07/15/realestate/renters-montauk-long-island-jeopardy.html
 
