@@ -1,3 +1,7 @@
+**In Northern Ireland, Fire Has Long Been Used as a Weapon of Fear**\
+`A bonfire topped with an effigy of a migrant boat. Homes set alight. During the Troubles, similar tactics were used to target Irish Catholics in the territory.`\
+https://nytimes.com/2025/07/15/world/europe/northern-ireland-bonfire-arson-ballymena-riots.html
+
 **The New York Times International Edition in Print for Wednesday, July 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/15/todays-new-york-times-international-edition

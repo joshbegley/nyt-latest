@@ -1,3 +1,7 @@
+**In Northern Ireland, Fire Has Long Been Used as a Weapon of Fear**\
+`A bonfire topped with an effigy of a migrant boat. Homes set alight. During the Troubles, similar tactics were used to target Irish Catholics in the territory.`\
+https://nytimes.com/2025/07/15/world/europe/northern-ireland-bonfire-arson-ballymena-riots.html
+
 **The New York Times International Edition in Print for Wednesday, July 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/15/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/us/politics/democrats-voters-ads-campaigns.html
 **If You Like 35 Percent Inflation, Go Ahead, Fire the Fed Chair**\
 `Comparisons to what happened in Turkey and Hungary are not far-fetched.`\
 https://nytimes.com/2025/07/15/opinion/fed-trump-fire-powell.html
-
-**Are the Courts Checking Trump â or Enabling Him?**\
-`A former federal judge weighs in.`\
-https://nytimes.com/2025/07/15/opinion/judge-mcconnell-trump-court-power.html
 
