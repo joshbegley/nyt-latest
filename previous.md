@@ -1,3 +1,12 @@
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
+**‘American Idol’ Music Supervisor and Her Husband Are Found Slain**\
+`The music supervisor was found shot to death in a home in Los Angeles with her husband, Thomas Deluca, the police said. A 22-year-old was arrested in connection with the case.`\
+https://nytimes.com/2025/07/15/arts/american-idol-music-supervisor-killed.html
+
 **Trump Administration Initiates Trade Investigation of Brazil**\
 `The United States has begun investigating Brazil’s trade practices and “anti-corruption interference,” after the president’s criticisms of Brazil’s treatment of Jair Bolsonaro, a Trump ally.`\
 https://nytimes.com/2025/07/15/us/politics/trump-brazil-trade-investigation.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/07/15/arts/andrea-gibson-dead.html
 **Garrett Wilson, Sauce Gardner are a reminder of what has gone — and what can go — right for Jets**\
 `This week the Jets signed their two young stars to lucrative contract extensions, locking them in as the new faces of the franchise.`\
 https://nytimes.com/athletic/6496611/2025/07/15/garrett-wilson-sauce-gardner-contract-extensions-jets-future/
-
-**How Much Military Aid Has the U.S. Given to Ukraine? Here’s What to Know.**\
-`The United States began sending weapons to Ukraine years before Russia invaded in 2022.`\
-https://nytimes.com/2025/07/15/us/politics/trump-military-aid-explainer.html
-
-**Trump Releases About Half of the National Guard Troops in Los Angeles**\
-`President Trump mobilized the troops on June 7 in the wake of chaotic protests. They have remained in Southern California several weeks after most of the demonstrations had ended.`\
-https://nytimes.com/2025/07/15/us/national-guard-los-angeles-trump.html
 

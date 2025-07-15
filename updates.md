@@ -1,3 +1,12 @@
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
+**‘American Idol’ Music Supervisor and Her Husband Are Found Slain**\
+`The music supervisor was found shot to death in a home in Los Angeles with her husband, Thomas Deluca, the police said. A 22-year-old was arrested in connection with the case.`\
+https://nytimes.com/2025/07/15/arts/american-idol-music-supervisor-killed.html
+
 **Trump Administration Initiates Trade Investigation of Brazil**\
 `The United States has begun investigating Brazil’s trade practices and “anti-corruption interference,” after the president’s criticisms of Brazil’s treatment of Jair Bolsonaro, a Trump ally.`\
 https://nytimes.com/2025/07/15/us/politics/trump-brazil-trade-investigation.html
