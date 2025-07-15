@@ -1,3 +1,23 @@
+**How can a goalkeeper with almost no depth perception play at the top level?**\
+`England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
+https://nytimes.com/athletic/6480358/2025/07/15/hannah-hampton-eyesight-vision-depth-perception/
+
+**Club World Cup prize money: Where did the $1billion prize pot go?**\
+`The Club World Cup was supposed to have redistributive potential but $623.1m of the prize pot has wound up in the hands of 12 European clubs`\
+https://nytimes.com/athletic/6492867/2025/07/15/club-world-cup-prize-money-chelsea-psg/
+
+**Club World Cup: The best and worst moments, standout players, fans, games and what should change**\
+`What we learnt from the Club World Cup and what clues it offers about the 2026 World Cup`\
+https://nytimes.com/athletic/6493120/2025/07/15/club-world-cup-review/
+
+**Why Newcastle want Hugo Ekitike and how he would fit in alongside Alexander Isak**\
+`The 6ft 3in forward is one of the quickest players in the Bundesliga, surprisingly effective in the air and could work in tandem with Isak`\
+https://nytimes.com/athletic/6493741/2025/07/15/ekitike-newcastle-isak-eintracht-frankfurt/
+
+**Why do world champions Spain have so little Euros pedigree?**\
+`The Spanish are favourites to win this tournament but it is 28 years since they made its semis, and even that came in an eight-team finals`\
+https://nytimes.com/athletic/6488328/2025/07/15/spain-womens-euros-history/
+
 **Live Updates: Storm Drenches New York City, Flooding Subway and Highways**\
 `A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/14/pageoneplus/quote-of-the-day-ever-hotter-southern
 **Fan steals HR from Junior Caminero at derby: 'I wasn't aware of where I was'**\
 `Scorers counted the homer robbed by Sam Musterer, 17, who was on the field because his father is a scorer at Braves games.`\
 https://nytimes.com/athletic/6494514/2025/07/14/mlb-home-run-derby-junior-caminero-robbery/
-
-**Nvidia Says U.S. Has Lifted Restrictions on A.I. Chip Sales to China**\
-`The Silicon Valley chip giant said the Trump administration, which had shut down its sales to China three months ago, had assured it that licenses for the sales would now be granted.`\
-https://nytimes.com/2025/07/14/technology/nvidia-ai-chip-sales-china.html
-
-**Full Time: Can there be too much soccer?**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6494473/2025/07/14/womens-euros-wafcon-copa-full-time/
-
-**Flanked by his family, Mariners' Cal Raleigh wins 2025 MLB Home Run Derby**\
-`With a final round total of 18, Cal Raleigh won this year's competition, taking home the $1 million prize and a custom Home Run Derby chain.`\
-https://nytimes.com/athletic/6493548/2025/07/14/mlb-2025-home-run-derby-winner/
-
-**Sabres, Byram agree to 2-year extension with $6.25 million cap hit**\
-`The Sabres have avoided arbitration with defenseman Bowen Byram, who was a restricted free agent.`\
-https://nytimes.com/athletic/6494448/2025/07/14/sabres-bowen-byram-contract-extension/
-
-**Players' associations unite to oppose bill granting NCAA antitrust exemption**\
-`Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
-https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
 
