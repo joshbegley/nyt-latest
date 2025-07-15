@@ -1,3 +1,19 @@
+**Rob Manfred confident Twins sale will be completed: 'There will be a transaction'**\
+`The Twins sale process has moved slowly with Justin Ishbia dropping out, but Manfred insists that it is still on track to be completed.`\
+https://nytimes.com/athletic/6496060/2025/07/15/twins-sale-progress-rob-manfred/
+
+**Arsenal in final stages of Nwaneri talks over new contract**\
+`The England Under-21 international’s priority was always to stay at the club he joined aged eight, despite major interest from others.`\
+https://nytimes.com/athletic/6495843/2025/07/15/ethan-nwaneri-arsenal-contract-new/
+
+**Atletico Madrid to sign Thiago Almada**\
+`The 24-year-old spent the second half of the 2024-25 season on loan at Ligue 1 club Lyon from Botafogo.`\
+https://nytimes.com/athletic/6496144/2025/07/15/atletico-madrid-transfers-thiago-almada/
+
+**Federal Prosecutors Close Inquiry Into Polymarket Betting Website**\
+`The site became prominent last year when people bet on the outcome of the 2024 presidential election.`\
+https://nytimes.com/2025/07/15/technology/polymarket-betting-investigation-dropped.html
+
 **Waltz, in U.N. Ambassador Hearing, Defends Signal Group Chat**\
 `Michael Waltz, the former national security adviser, doubled down on the Trump administration’s defense of a Signal group chat where senior officials discussed war plans.`\
 https://nytimes.com/2025/07/15/us/politics/michael-waltz-un-ambassador-testimony-signal-chat.html
