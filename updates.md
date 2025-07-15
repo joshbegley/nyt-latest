@@ -1,3 +1,11 @@
+**gws-waterloo-reenactment-american-napoleon**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/waterloo-reenactment-american-napoleon
+
+**U.K. Secretly Resettled 4,500 Afghans in Britain After Huge Data Exposure**\
+`The government said that the personal details of 18,000 Afghans were accidentally revealed in 2022. The previous government had secured a legal order to prevent any reporting on the subject.`\
+https://nytimes.com/2025/07/15/world/europe/uk-data-email-afghans-taliban.html
+
 **Dismissals at Justice Dept. Seek to Bypass Civil Service and Whistle-Blower Laws**\
 `In court filings and dismissal letters, the Justice Department’s political leadership claims sweeping authority to fire career law enforcement officials without cause.`\
 https://nytimes.com/2025/07/15/us/politics/justice-department-dismissals-civil-service-laws.html
