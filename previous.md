@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Livia Albeck-Ripka, Alexandra E. Petri and Mark Walker`\
+https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods/heres-the-latest
+
+**The New York Times International Edition in Print for Tuesday, July 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/14/todays-new-york-times-international-edition
+
 **Ben Stokes, Ravindra Jadeja and the psychology of the all-rounder, one of sport's toughest jobs**\
 `Bat, bowl, field, the cricket all-rounder has a demanding job - one that baseball star Shohei Ohtani would understand. How difficult is it?`\
 https://nytimes.com/athletic/6439742/2025/07/15/stokes-jadeja-cricket-all-rounder-psychology/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6480358/2025/07/15/hannah-hampton-eyesight-vision-d
 **Club World Cup prize money: Where did the $1billion prize pot go?**\
 `The Club World Cup was supposed to have redistributive potential but $623.1m of the prize pot has wound up in the hands of 12 European clubs`\
 https://nytimes.com/athletic/6492867/2025/07/15/club-world-cup-prize-money-chelsea-psg/
-
-**Club World Cup: The best and worst moments, standout players, fans, games and what should change**\
-`What we learnt from the Club World Cup and what clues it offers about the 2026 World Cup`\
-https://nytimes.com/athletic/6493120/2025/07/15/club-world-cup-review/
-
-**Why Newcastle want Hugo Ekitike and how he would fit in alongside Alexander Isak**\
-`The 6ft 3in forward is one of the quickest players in the Bundesliga, surprisingly effective in the air and could work in tandem with Isak`\
-https://nytimes.com/athletic/6493741/2025/07/15/ekitike-newcastle-isak-eintracht-frankfurt/
 

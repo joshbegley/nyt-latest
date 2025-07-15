@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Livia Albeck-Ripka, Alexandra E. Petri and Mark Walker`\
+https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods/heres-the-latest
+
+**The New York Times International Edition in Print for Tuesday, July 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/14/todays-new-york-times-international-edition
+
 **Ben Stokes, Ravindra Jadeja and the psychology of the all-rounder, one of sport's toughest jobs**\
 `Bat, bowl, field, the cricket all-rounder has a demanding job - one that baseball star Shohei Ohtani would understand. How difficult is it?`\
 https://nytimes.com/athletic/6439742/2025/07/15/stokes-jadeja-cricket-all-rounder-psychology/
