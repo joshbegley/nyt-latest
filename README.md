@@ -1,3 +1,7 @@
+**gws-david-corenswet-superman**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/david-corenswet-superman
+
 **It’s a Great Time to Be a Toe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495632/2025/07/15/scottie-scheffler-open-champions
 **Pop’s New Weepy Take on Hookup Culture**\
 `The young singer Sombr currently has two Top 40 hits, including “Back to Friends,” which continues to confound our critic.`\
 https://nytimes.com/video/podcasts/100000010284265/pops-new-weepy-take-on-hookup-culture.html
-
-**Why the New York Subway System Keeps Flooding**\
-`The century-old system faces infrastructure and climate challenges that are making its water problem worse.`\
-https://nytimes.com/2025/07/15/nyregion/nyc-subway-flooding-why.html
 
