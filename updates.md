@@ -1,3 +1,11 @@
+**State Dept. Layoffs Hit Russia and Ukraine Analysts**\
+`A former senior U.S. official said it was “shortsighted” to consolidate the department’s well-respected intelligence arm.`\
+https://nytimes.com/2025/07/15/us/politics/state-department-layoffs-russia-ukraine.html
+
+**Trump Releases About Half of the National Guard Troops in Los Angeles**\
+`President Trump mobilized the troops on June 7 in the wake of chaotic protests. They have remained in Southern California several weeks after most of the demonstrations had ended.`\
+https://nytimes.com/2025/07/15/us/national-guard-los-angeles-trump.html
+
 **Trump Administration Investigates U. of Michigan Over Foreign Funding**\
 `The University of Michigan was the latest school accused of failing to report large foreign donations amid a wider pressure campaign from the Trump administration.`\
 https://nytimes.com/2025/07/15/us/politics/trump-michigan-university-foreign-funding.html
