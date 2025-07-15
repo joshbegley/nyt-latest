@@ -1,3 +1,7 @@
+**Ekitike to Newcastle - the key questions answered**\
+`Can they afford him? What would the deal mean for Isak? Our reporters dissect the news Newcastle are in talks to sign the French forward`\
+https://nytimes.com/athletic/6494725/2025/07/15/hugo-ekitike-newcastle-key-questions-answered/
+
 **Brentford sign Henderson on free transfer**\
 `The England international was identified as a top target for Brentford following the exit of captain Christian Norgaard to Arsenal.`\
 https://nytimes.com/athletic/6487875/2025/07/15/brentford-jordan-henderson-free-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/nyregion/nyc-mayor-mamdani-questions.html
 **Spelling Bee Forum**\
 `Feeling stuck on todayâs puzzle? We can help.`\
 https://nytimes.com/2025/07/15/crosswords/spelling-bee-forum.html
-
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to your weekly guide to everything that you need to know from the summer transfer window`\
-https://nytimes.com/athletic/6492733/2025/07/15/transfer-news-latest-liverpool-manchester-united-arsenal-real-madrid-analysis/
 

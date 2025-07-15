@@ -1,3 +1,7 @@
+**Ekitike to Newcastle - the key questions answered**\
+`Can they afford him? What would the deal mean for Isak? Our reporters dissect the news Newcastle are in talks to sign the French forward`\
+https://nytimes.com/athletic/6494725/2025/07/15/hugo-ekitike-newcastle-key-questions-answered/
+
 **Brentford sign Henderson on free transfer**\
 `The England international was identified as a top target for Brentford following the exit of captain Christian Norgaard to Arsenal.`\
 https://nytimes.com/athletic/6487875/2025/07/15/brentford-jordan-henderson-free-transfer/
