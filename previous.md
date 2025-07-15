@@ -1,40 +1,40 @@
-**‘Let’s Talk “The Ick”’: The Week 4 Winner of Our Summer Reading Contest**\
-`In her winning video, Chesapeake Woods, 17, offers relationship advice aimed at our human tendency toward “uncontrollable judginess.”`\
-https://nytimes.com/2025/07/15/learning/lets-talk-the-ick-the-week-4-winner-of-our-summer-reading-contest.html
+**What We Know About the U.S. Deal for a Weapons Pipeline to Ukraine**\
+`NATO allies will buy arms, then give them to Ukraine, President Trump said.`\
+https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-us-nato.html
 
-**Trump’s Shift on Ukraine Is Good News for Europe, for Now**\
-`After European leaders stepped up military spending, President Trump aligned himself more closely with them on the war. But his tariffs threats have left bruises.`\
-https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-europe-trump.html
+**Top 20 drafted NHL goalie prospects ranking: Scott Wheelerâs summer 2025 list**\
+`Yaroslav Askarov and Jacob Fowler top Wheeler's latest ranking of the NHL's top goalie prospects.`\
+https://nytimes.com/athletic/6469707/2025/07/15/nhl-goalie-prospects-rankings-summer-2025/
 
-**Nvidia and AMD Soar as Chip Trade Curbs Fall**\
-`The tech giants said they can resume selling high-end semiconductors to China, in what appears to be a major about-face for the Trump administration.`\
-https://nytimes.com/2025/07/15/business/dealbook/nvidia-amd-chips-trump-china.html
+**MLB's Home Run Derby showcases the once-viral torpedo bats â but has their moment passed?**\
+`The fabled torpedo bats were again on center stage at Monday nightâs Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
+https://nytimes.com/athletic/6494560/2025/07/15/mlb-home-run-derby-torpedo-bats-fad/
 
-**Israel Targets Syria and Lebanon in Wave of Airstrikes**\
-`In Syria, Israel launched rare attacks on forces of the new government, while in Lebanon it took aim at the Iran-backed militant group Hezbollah.`\
-https://nytimes.com/2025/07/15/world/middleeast/airstrikes-israel-syria-lebanon.html
+**How Wild's Navy SEAL 'big brother' teaches players to overcome adversity**\
+`Aaron Bogosian draws on experience as a former pro hockey player as well as his military experience to assess and develop Wild prospects`\
+https://nytimes.com/athletic/6471625/2025/07/15/minnesota-wild-nhl-players-navy-seal-aaron-bogosian/
 
-**How do the Red Wings stack up to the Atlantic field? Mailbag**\
-`Red Wings beat writer Max Bultman answers subscriber questions as the offseason slows down.`\
-https://nytimes.com/athletic/6488733/2025/07/15/red-wings-nhl-offseason-atlantic-division/
+**LSU has lost 5 straight season openers. Brian Kelly and the Tigers are embracing the pressure**\
+`Opening-game problems have become a symbol for LSU falling short. The 2025 opener against Clemson is a chance to "change the narrative."`\
+https://nytimes.com/athletic/6493959/2025/07/15/lsu-brian-kelly-clemson-opener-sec-media-days/
 
-**Chargers training camp storylines, Part 2: Battle at CB, huge opportunity for Tuli Tuipulotu**\
-`Also worth watching: How does Justin Herbert respond to his career-worst game in the Chargers' 2024 playoff loss to the Texans? `\
-https://nytimes.com/athletic/6494067/2025/07/15/chargers-training-camp-tuli-tuipulotu/
+**Welcome to Portrush and a distinctly Irish Open Championship**\
+`"Look, it is a big event for all us Irish people here this week. It's huge," Shane Lowry said.`\
+https://nytimes.com/athletic/6493978/2025/07/15/open-championship-portrush-northern-ireland/
 
-**Trump Administration Live Updates: President to Attend A.I. Summit in Pennsylvania**\
-``\
-https://nytimes.com/live/2025/07/15/us/trump-news
+**How to watch the MLB All-Star Game: AL is a slight favorite in Atlanta**\
+`The 95th edition of the MLB All-Star Game will feature a new twist, and bring back an old tradition, on Tuesday night in Atlanta. `\
+https://nytimes.com/athletic/6493920/2025/07/15/mlb-all-star-game-how-to-watch-odds-mvp/
 
-**For Big Banks, the Trump Era Is Proving Profitable Thus Far**\
-`JPMorgan’s Jamie Dimon lauded the “resilient” U.S. economy as his bank reported bumper quarterly earnings.`\
-https://nytimes.com/2025/07/15/business/jpmorgan-wells-fargo-citi-banks-economy.html
+**As NBA's board of governors meets Tuesday, is it ready to move forward on expansion?**\
+`The appetite for adding new NBA teams might not be as strong as previously believed.`\
+https://nytimes.com/athletic/6494171/2025/07/15/nba-expansion-board-of-governors-meeting/
 
-**Magnus Carlsen is chess' powerful disruptor and he wants to go mainstream: 'Change is needed'**\
-`Magnus Carlsen says the furore around him wearing jeans at a chess tournament was 'pure insanity'`\
-https://nytimes.com/athletic/6493943/2025/07/15/magnus-carlsen-interview-freestyle-chess-grand-slam-tour/
+**Finally, Another Woman Designer Gets a Big Brand**\
+`Meryll Rogge takes over at Marni, halting a backward trend.`\
+https://nytimes.com/2025/07/15/style/meryll-rogge-marni.html
 
-**TAFC: The art of selling your best player and Newcastle's Hugo Ekitike move**\
-`Today in TAFC: The subtle art of selling your best player plus the goalkeeper shining despite having almost no depth perception`\
-https://nytimes.com/athletic/6494886/2025/07/15/athletic-fc-newsletter-ekitike-yamal-hampton/
+**Meet the artist who created Bernie Williams' 'most cherished' possession**\
+`Charles Fazzino creates custom art for baseball's biggest players and events, including Pete Alonso, Bernie Williams and the All-Star Game.`\
+https://nytimes.com/athletic/6490550/2025/07/15/mlb-all-star-game-artist-charles-fazzino/
 
