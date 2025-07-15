@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-
 `\
 https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
 
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **‘American Idol’ Music Supervisor and Her Husband Are Found Slain**\
 `The music supervisor was found shot to death in a home in Los Angeles with her husband, Thomas Deluca, the police said. A 22-year-old was arrested in connection with the case.`\
 https://nytimes.com/2025/07/15/arts/american-idol-music-supervisor-killed.html
