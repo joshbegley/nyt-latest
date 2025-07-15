@@ -1,3 +1,12 @@
+**Pistons summer league notebook: Holland shows promise, Robinson ready to lead**\
+`Last year's No. 5 overall pick Ron Holland II is showing off a smooth 3-point shot for the Pistons at NBA Summer League.`\
+https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
+
+**Liverpool make Isak approach to Newcastle**\
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
+`\
+https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
+
 **Subway Floods as Storms Lash New York and Suburbs**\
 `A slow-moving storm drenched large swaths of the Mid-Atlantic on Monday, flooding parts of the New York subway system, inundating major roads and causing long flight delays.`\
 https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/07/15/style/modern-love-where-have-men-gone-were-right-
 **U.S. Inflation Accelerated in June as Trump’s Tariffs Pushed Up Prices**\
 `The Consumer Price Index rose 2.7 percent from a year ago, as the global trade war started to bite.`\
 https://nytimes.com/2025/07/15/business/cpi-report-inflation-june.html
-
-**‘Let’s Talk “The Ick”’: The Week 4 Winner of Our Summer Reading Contest**\
-`In her winning video, Chesapeake Woods, 17, offers relationship advice aimed at our human tendency toward “uncontrollable judginess.”`\
-https://nytimes.com/2025/07/15/learning/lets-talk-the-ick-the-week-4-winner-of-our-summer-reading-contest.html
-
-**Trump’s Shift on Ukraine Is Good News for Europe, for Now**\
-`After European leaders stepped up military spending, President Trump aligned himself more closely with them on the war. But his tariffs threats have left bruises.`\
-https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-europe-trump.html
 

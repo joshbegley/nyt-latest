@@ -1,3 +1,7 @@
+**Subway Floods as Storms Lash New York and Suburbs**\
+`A slow-moving storm drenched large swaths of the Mid-Atlantic on Monday, flooding parts of the New York subway system, inundating major roads and causing long flight delays.`\
+https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
+
 **What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
 `Here’s what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
 https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/learning/lets-talk-the-ick-the-week-4-winner-of-o
 **Trump’s Shift on Ukraine Is Good News for Europe, for Now**\
 `After European leaders stepped up military spending, President Trump aligned himself more closely with them on the war. But his tariffs threats have left bruises.`\
 https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-europe-trump.html
-
-**Nvidia and AMD Soar as Chip Trade Curbs Fall**\
-`The tech giants said they can resume selling high-end semiconductors to China, in what appears to be a major about-face for the Trump administration.`\
-https://nytimes.com/2025/07/15/business/dealbook/nvidia-amd-chips-trump-china.html
 

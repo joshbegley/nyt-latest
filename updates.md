@@ -1,3 +1,7 @@
+**Subway Floods as Storms Lash New York and Suburbs**\
+`A slow-moving storm drenched large swaths of the Mid-Atlantic on Monday, flooding parts of the New York subway system, inundating major roads and causing long flight delays.`\
+https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
+
 **What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
 `Here’s what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
 https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
