@@ -1,3 +1,19 @@
+**Seth Meyers Is Amused by MAGAâs Epstein Infighting**\
+`President Trumpâs most conspiracy-minded supporters canât believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
+https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
+
+**Lingering Moose Shuts Down Popular Adirondack Trail for a Month**\
+`Sickness, not stubbornness, is the most likely explanation for the animalâs âunusual behaviors,â which prompted the unusually long closure, officials said.`\
+https://nytimes.com/2025/07/15/nyregion/moose-goodman-mountain-trail.html
+
+**21 Questions About the N.Y.C. Mayorâs Race, Answered**\
+`Readers from around the world asked about Assemblyman Zohran Mamdaniâs surprising primary win, its effect on national politics and how The Times covers elections.`\
+https://nytimes.com/2025/07/15/nyregion/nyc-mayor-mamdani-questions.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on todayâs puzzle? We can help.`\
+https://nytimes.com/2025/07/15/crosswords/spelling-bee-forum.html
+
 **Flash Floods Pour Into New York City Subway Station**\
 `Passengers on an uptown No. 1 train saw floodwaters swamping the station at 28th Street and Seventh Avenue in Manhattan.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-subway-flood-storm.html
