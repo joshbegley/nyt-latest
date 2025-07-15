@@ -1,3 +1,15 @@
+**Waltz, in U.N. Ambassador Hearing, Defends Signal Group Chat**\
+`Michael Waltz, the former national security adviser, doubled down on the Trump administration’s defense of a Signal group chat where senior officials discussed war plans.`\
+https://nytimes.com/2025/07/15/us/politics/michael-waltz-un-ambassador-testimony-signal-chat.html
+
+**For Hard-Right Lawmakers, Trump’s Shift on Epstein Is Just the Latest Breach**\
+`Right-wing Republicans have also criticized the president’s stances on Iran and Ukraine, hinting at a broader fraying of his political coalition.`\
+https://nytimes.com/2025/07/15/us/politics/republicans-congress-trump-epstein.html
+
+**Trump’s Pivot on Ukraine**\
+`President Trump’s approach to the war in Ukraine has changed substantially since the start of his presidential term. Maggie Haberman, a White House correspondent for The New York Times, explains the pivot.`\
+https://nytimes.com/video/us/politics/100000010284016/trumps-pivot-on-ukraine.html
+
 **We Just Updated Our List of the Best Restaurants in San Francisco**\
 `An old favorite that’s still got it, brothy noodles you can slurp year-round and a tasting menu you won’t want to miss in Japantown.`\
 https://nytimes.com/2025/07/15/dining/where-to-eat-san-francisco.html
