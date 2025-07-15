@@ -1,5 +1,9 @@
+**Padraig Harrington: Champion golfer. Open veteran. YouTube sensation.**\
+`The Irishman is a two-time winner of The Open - and believes it is bigger and better than ever after matching the U.S. majors`\
+https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the-open/
+
 **Gianni Infantino has won**\
-`You donât have to salute FIFA's president for pulling off the Club World Cup, but it wasnât cancelled, and nor did it fail`\
+`You don’t have to salute FIFA's president for pulling off the Club World Cup, but it wasn’t cancelled, and nor did it fail`\
 https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
 
 **How can a goalkeeper with almost no depth perception play at the top level?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/technology/israel-iran-psychological-warfare.html
 **Corrections: July 15, 2025**\
 `Corrections that appeared in print on Tuesday, July 15, 2025.`\
 https://nytimes.com/2025/07/14/pageoneplus/corrections-july-15-2025.html
-
-**Quote of the Day: Ever Hotter, Southern Europe Dreams of Fjords**\
-`Quotation of the Day for Tuesday, July 15, 2025.`\
-https://nytimes.com/2025/07/14/pageoneplus/quote-of-the-day-ever-hotter-southern-europe-dreams-of-fjords.html
 

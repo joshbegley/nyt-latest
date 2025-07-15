@@ -1,3 +1,7 @@
+**Gianni Infantino has won**\
+`You donât have to salute FIFA's president for pulling off the Club World Cup, but it wasnât cancelled, and nor did it fail`\
+https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
+
 **How can a goalkeeper with almost no depth perception play at the top level?**\
 `England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
 https://nytimes.com/athletic/6480358/2025/07/15/hannah-hampton-eyesight-vision-depth-perception/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6493741/2025/07/15/ekitike-newcastle-isak-eintracht
 `The Spanish are favourites to win this tournament but it is 28 years since they made its semis, and even that came in an eight-team finals`\
 https://nytimes.com/athletic/6488328/2025/07/15/spain-womens-euros-history/
 
-**Live Updates: Storm Drenches New York City, Flooding Subway and Highways**\
+**Live Updates: Flash Flooding from Storm Swamps N.Y.C. Subways and Delays Flights**\
 `A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/pageoneplus/corrections-july-15-2025.html
 **Quote of the Day: Ever Hotter, Southern Europe Dreams of Fjords**\
 `Quotation of the Day for Tuesday, July 15, 2025.`\
 https://nytimes.com/2025/07/14/pageoneplus/quote-of-the-day-ever-hotter-southern-europe-dreams-of-fjords.html
-
-**Fan steals HR from Junior Caminero at derby: 'I wasn't aware of where I was'**\
-`Scorers counted the homer robbed by Sam Musterer, 17, who was on the field because his father is a scorer at Braves games.`\
-https://nytimes.com/athletic/6494514/2025/07/14/mlb-home-run-derby-junior-caminero-robbery/
 

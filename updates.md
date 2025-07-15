@@ -1,3 +1,11 @@
+**Gianni Infantino has won**\
+`You donât have to salute FIFA's president for pulling off the Club World Cup, but it wasnât cancelled, and nor did it fail`\
+https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
+
+**Live Updates: Flash Flooding from Storm Swamps N.Y.C. Subways and Delays Flights**\
+`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
+https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
+
 **How can a goalkeeper with almost no depth perception play at the top level?**\
 `England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
 https://nytimes.com/athletic/6480358/2025/07/15/hannah-hampton-eyesight-vision-depth-perception/
