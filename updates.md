@@ -1,3 +1,7 @@
+**Full Time: Can there be too much soccer?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6494473/2025/07/14/womens-euros-wafcon-copa-full-time/
+
 **Flanked by his family, Mariners' Cal Raleigh wins 2025 MLB Home Run Derby**\
 `With a final round total of 18, Cal Raleigh won this year's competition, taking home the $1 million prize and a custom Home Run Derby chain.`\
 https://nytimes.com/athletic/6493548/2025/07/14/mlb-2025-home-run-derby-winner/

@@ -1,3 +1,7 @@
+**Full Time: Can there be too much soccer?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6494473/2025/07/14/womens-euros-wafcon-copa-full-time/
+
 **Flanked by his family, Mariners' Cal Raleigh wins 2025 MLB Home Run Derby**\
 `With a final round total of 18, Cal Raleigh won this year's competition, taking home the $1 million prize and a custom Home Run Derby chain.`\
 https://nytimes.com/athletic/6493548/2025/07/14/mlb-2025-home-run-derby-winner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/climate/nasa-website-climate-report.html
 **Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
 `âMy work is the same as itâs always been,â Clark said on Monday, in some of his first comments regarding the federal probe.`\
 https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/
-
-**MLB All-Stars speak on the âgray areaâ of sports betting, social media threats**\
-`The Athletic asked about the effects of gambling during media availabilities at this year's All-Star Game. `\
-https://nytimes.com/athletic/6494316/2025/07/14/mlb-all-star-game-2025-sports-betting/
 
