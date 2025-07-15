@@ -1,3 +1,7 @@
+**Meet El Hadji Malick Diouf, West Ham's first signing of the summer**\
+`The young, attack-minded Senegalese full-back, signed from Slavia Prague, is expected to add dynamism on the left flank`\
+https://nytimes.com/athletic/6492978/2025/07/15/el-hadji-malick-diouf-west-ham-transfer/
+
 **The Waldorf Astoria Reopens With Lex Yard, Yoshoku and Peacock Alley**\
 `The newly renovated hotel sports three new restaurants, including a flagship brasserie named after the train line that runs under the hotel.`\
 https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
@@ -15,11 +19,11 @@ https://nytimes.com/athletic/6484015/2025/07/15/fantasy-football-draft-best-qb-r
 https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/
 
 **Mayor Adams Loses Another Round in Bid to Receive Public Matching Funds**\
-`The New York City Campaign Finance Board rejected Mayor Eric Adamsâs request for millions of dollars from the cityâs generous matching-funds program.`\
+`The New York City Campaign Finance Board rejected Mayor Eric Adams’s request for millions of dollars from the city’s generous matching-funds program.`\
 https://nytimes.com/2025/07/15/nyregion/eric-adams-nyc-mayor-matching-funds.html
 
-**Three Aid Workers Were âIntentionally Killedâ in Ethiopia, M.S.F. Says**\
-`The aid group accused Ethiopiaâs government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
+**Three Aid Workers Were ‘Intentionally Killed’ in Ethiopia, M.S.F. Says**\
+`The aid group accused Ethiopia’s government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
 https://nytimes.com/2025/07/15/world/africa/ethiopia-tigray-msf.html
 
 **Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495327/2025/07/15/liv-golf-bryson-dechambeau-owgr/
 **Forest interested in Villa's Ramsey**\
 `Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
 https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/
-
-**Free agent David Robertson could be option for teams seeking bullpen help**\
-`Several teams, including the Mets and Yankees, have recently looked into the 40-year-old reliever.`\
-https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
 
