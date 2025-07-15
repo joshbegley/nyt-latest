@@ -1,3 +1,15 @@
+**Blackhawks sign Anton Frondell to entry-level contract: Where will he play?**\
+`Will the No. 3 draft pick in 2025 play in the NHL next season? Or will he return to Sweden to play for DjurgÃ¥rden in the SHL?`\
+https://nytimes.com/athletic/6496239/2025/07/15/blackhawks-anton-frondell-contract-2025-nhl-draft/
+
+**Arizona Seventh Congressional District Special Primary Election Results**\
+`Get live results and maps from the 2025 Arizona special primary election.`\
+https://nytimes.com/interactive/2025/07/15/us/elections/results-arizona-us-house-7-special.html
+
+**Palace fans march on Selhurst to protest UEL exclusion**\
+`The protest was organised by Palaceâs ultras fan group the Holmesdale Fanatics who called the decision âa terrible injustice" for the club.`\
+https://nytimes.com/athletic/6496398/2025/07/15/crystal-palace-protest-europa-league/
+
 **The LA Olympics baseball schedule is out â and itâs not perfect for MLB**\
 `The 2028 Olympics baseball tournament will take place in LA from July 15-20. MLB would like it to be played sooner.`\
 https://nytimes.com/athletic/6496416/2025/07/15/mlb-la-olympics-baseball/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6496265/2025/07/15/caitlin-clark-wnba-3-point-conte
 **Federal Grand Jury Indicts Suspect in Killing of Minnesota Lawmaker**\
 `The suspect also faces state charges in the shooting deaths of State Representative Melissa Hortman and her husband.`\
 https://nytimes.com/2025/07/15/us/minnesota-assassination-vance-boelter-charges.html
-
-**Washington, D.C. City Council Ward 8 Special Election Results**\
-`Get live results from the 2025 Washington, D.C. special election.`\
-https://nytimes.com/interactive/2025/07/15/us/elections/results-washington-dc-city-council-ward-8-special.html
-
-**Arizona Seventh Congressional District Special Primary Election Results**\
-`Get live results and maps from the 2025 Arizona special primary election.`\
-https://nytimes.com/interactive/2025/07/15/us/elections/results-arizona-us-house-7-special.html
-
-**House Democrats Call for Hearing on Epstein, Capitalizing on G.O.P. Rift**\
-`Democrats urged the Republican majority to call Justice Department officials, including the attorney general and F.B.I. leaders, to Capitol Hill to discuss how they handled the Jeffrey Epstein case.`\
-https://nytimes.com/2025/07/15/us/politics/house-democrats-jeffrey-epstein-hearing.html
 

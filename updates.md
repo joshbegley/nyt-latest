@@ -1,3 +1,11 @@
+**Blackhawks sign Anton Frondell to entry-level contract: Where will he play?**\
+`Will the No. 3 draft pick in 2025 play in the NHL next season? Or will he return to Sweden to play for DjurgÃ¥rden in the SHL?`\
+https://nytimes.com/athletic/6496239/2025/07/15/blackhawks-anton-frondell-contract-2025-nhl-draft/
+
+**Palace fans march on Selhurst to protest UEL exclusion**\
+`The protest was organised by Palaceâs ultras fan group the Holmesdale Fanatics who called the decision âa terrible injustice" for the club.`\
+https://nytimes.com/athletic/6496398/2025/07/15/crystal-palace-protest-europa-league/
+
 **The LA Olympics baseball schedule is out â and itâs not perfect for MLB**\
 `The 2028 Olympics baseball tournament will take place in LA from July 15-20. MLB would like it to be played sooner.`\
 https://nytimes.com/athletic/6496416/2025/07/15/mlb-la-olympics-baseball/
