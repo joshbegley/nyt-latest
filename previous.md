@@ -1,3 +1,7 @@
+**Bellingham targeting October return following shoulder surgery**\
+`Bellingham dislocated his left shoulder in November 2023 in Madrid's La Liga match against Rayo Vallecano.`\
+https://nytimes.com/athletic/6484232/2025/07/15/jude-bellingham-shoulder-surgery-october-return/
+
 **gws-waterloo-reenactment-american-napoleon**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/waterloo-reenactment-american-napoleon
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/superman-warner-bros-box-office
 **Videos From the Amazon Reveal an Unexpected Animal Friendship**\
 `Scientists are trying to understand footage that showed ocelots and opossums, usually predator and prey, hanging out together.`\
 https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
-
-**Pistons summer league notebook: Holland shows promise, Robinson ready to lead**\
-`Last year's No. 5 overall pick Ron Holland II is showing off a smooth 3-point shot for the Pistons at NBA Summer League.`\
-https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
 

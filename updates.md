@@ -1,3 +1,7 @@
+**Bellingham targeting October return following shoulder surgery**\
+`Bellingham dislocated his left shoulder in November 2023 in Madrid's La Liga match against Rayo Vallecano.`\
+https://nytimes.com/athletic/6484232/2025/07/15/jude-bellingham-shoulder-surgery-october-return/
+
 **gws-waterloo-reenactment-american-napoleon**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/waterloo-reenactment-american-napoleon
