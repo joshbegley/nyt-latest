@@ -1,3 +1,11 @@
+**Democrats Broach Potential Walkout to Block Texas Redistricting**\
+`Hakeem Jeffries, the House Democratic leader, told Texas Democrats on a call on Tuesday that the moment required everyone “to do extraordinary things.”`\
+https://nytimes.com/2025/07/15/us/politics/texas-redistricting-trump.html
+
+**Caitlin Clark will compete in WNBA 3-point contest Friday**\
+`This season, Clark is averaging 16.7 points, 4.8 rebounds, 9.0 assists and 1.7 steals.`\
+https://nytimes.com/athletic/6496265/2025/07/15/caitlin-clark-wnba-3-point-contest/
+
 **Federal Grand Jury Indicts Suspect in Killing of Minnesota Lawmaker**\
 `The suspect also faces state charges in the shooting deaths of State Representative Melissa Hortman and her husband.`\
 https://nytimes.com/2025/07/15/us/minnesota-assassination-vance-boelter-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/15/climate/how-to-know-your-flood-risk.html
 **Tropical Disturbance Threatens Days of Heavy Rain Along the Gulf Coast**\
 `In one worst-case scenario, New Orleans could receive up to 10 inches of rain by the end of the weekend.`\
 https://nytimes.com/2025/07/15/weather/tropical-gulf-coast-rain-florida-louisiana-new-orleans.html
-
-**Rob Manfred confident Twins sale will be completed: 'There will be a transaction'**\
-`The Twins sale process has moved slowly with Justin Ishbia dropping out, but Manfred insists that it is still on track to be completed.`\
-https://nytimes.com/athletic/6496060/2025/07/15/twins-sale-progress-rob-manfred/
-
-**Arsenal in final stages of Nwaneri talks over new contract**\
-`The England Under-21 international’s priority was always to stay at the club he joined aged eight, despite major interest from others.`\
-https://nytimes.com/athletic/6495843/2025/07/15/ethan-nwaneri-arsenal-contract-new/
 
