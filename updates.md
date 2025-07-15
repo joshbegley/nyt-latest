@@ -1,3 +1,7 @@
+**Seth Meyers Is Amused by MAGA’s Epstein Infighting**\
+`President Trump’s most conspiracy-minded supporters can’t believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
+https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
+
 **Diaz, Rashford and Nkunku: An incisive dribbler, a driving winger and a poacher. Who should Barcelona sign?**\
 `With Nico Williams off the table, which of the three men on the Catalan club's new shortlist is best suited to Hansi Flick's style of play?`\
 https://nytimes.com/athletic/6492782/2025/07/15/diaz-rashford-nkunku-who-should-barcelona-sign/
