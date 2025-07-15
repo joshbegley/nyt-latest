@@ -1,3 +1,7 @@
+**Players' associations unite to oppose bill granting NCAA antitrust exemption**\
+`Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
+https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
+
 **China’s Economy Grows Steadily Despite Trump’s Tariffs**\
 `Companies redirected exports through other countries to avoid U.S. tariffs, and policymakers turned up investment in manufacturing and infrastructure.`\
 https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
 **Unreleased Beyoncé Music Stolen During Cowboy Carter Tour in Atlanta, Police Say**\
 `Two members of Beyoncé’s team said that their S.U.V. was broken into  on July 8, just before a series of concerts in Atlanta, the authorities said. The police said a suspect had emerged.`\
 https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
-
-**What a Smaller Education Department Is Doing Under Trump**\
-`Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and disbursing federal funding.`\
-https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
 
