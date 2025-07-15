@@ -1,3 +1,7 @@
+**Trump’s Pivot on Ukraine**\
+`President Trump’s approach to the war in Ukraine has changed substantially since the start of his presidential term. Maggie Haberman, a White House correspondent for The New York Times, explains the pivot.`\
+https://nytimes.com/video/us/politics/100000010284016/trumps-pivot-on-ukraine.html
+
 **We Just Updated Our List of the Best Restaurants in San Francisco**\
 `An old favorite that’s still got it, brothy noodles you can slurp year-round and a tasting menu you won’t want to miss in Japantown.`\
 https://nytimes.com/2025/07/15/dining/where-to-eat-san-francisco.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/arts/music/billy-jones-dead.html
 **Jamie Dimon Backs Jerome Powell Over Trump in Fed Fight**\
 `The C.E.O. of JPMorgan Chase, who has rarely taken on President Trump during his second term, wades into the argument over the Federal Reserve chair.`\
 https://nytimes.com/2025/07/15/business/jamie-dimon-jerome-powell-trump.html
-
-**Manfred: Rays will remain at Steinbrenner Field if they host playoff games**\
-`The commissioner acknowledged that the team will not move to a larger, neutral site should they host postseason games in 2025.`\
-https://nytimes.com/athletic/6495951/2025/07/15/tampa-bay-rays-steinbrenner-field-playoffs/
 

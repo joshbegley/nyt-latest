@@ -1,3 +1,15 @@
+**We Just Updated Our List of the Best Restaurants in San Francisco**\
+`An old favorite that’s still got it, brothy noodles you can slurp year-round and a tasting menu you won’t want to miss in Japantown.`\
+https://nytimes.com/2025/07/15/dining/where-to-eat-san-francisco.html
+
+**H.H.S. Finalizes Thousands of Layoffs After Supreme Court Decision**\
+`Staff members who were first notified of terminations in April were finally let go late Monday.`\
+https://nytimes.com/2025/07/15/us/politics/hhs-layoffs.html
+
+**Billy Jones, Impresario of New York’s Indie Music Scene, Dies at 45**\
+`He opened Baby’s All Right and three other nightclubs, a restaurant and a record store in a dozen years, helping the city maintain its cultural verve.`\
+https://nytimes.com/2025/07/15/arts/music/billy-jones-dead.html
+
 **Police Arrest Far-Right Leader After Anti-Immigrant Riots in Spanish Town**\
 `Prosecutors said the local head of Deport Them Now, an anti-immigrant group, helped incite four days of violence that have rattled a town with a large North African community.`\
 https://nytimes.com/2025/07/15/world/europe/torre-pacheco-spain-anti-immigrant-riots-arrest.html
