@@ -1,3 +1,11 @@
+**Andrea Gibson, a Poet of Love, Hope and Gender Identity, Dies at 49**\
+`A master of spoken-word performance, Gibson insisted that poetry, especially when read aloud to an audience, was a political act.`\
+https://nytimes.com/2025/07/15/arts/andrea-gibson-dead.html
+
+**Garrett Wilson, Sauce Gardner are a reminder of what has gone — and what can go — right for Jets**\
+`This week the Jets signed their two young stars to lucrative contract extensions, locking them in as the new faces of the franchise.`\
+https://nytimes.com/athletic/6496611/2025/07/15/garrett-wilson-sauce-gardner-contract-extensions-jets-future/
+
 **How Much Military Aid Has the U.S. Given to Ukraine? Here’s What to Know.**\
 `The United States began sending weapons to Ukraine years before Russia invaded in 2022.`\
 https://nytimes.com/2025/07/15/us/politics/trump-military-aid-explainer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6496401/2025/07/15/arch-manning-texas-sec-media-day
 **Trump Hails $90 Billion in A.I. Infrastructure Investments at Pennsylvania Summit**\
 `Trump administration officials say winning the artificial intelligence race with China is a top priority.`\
 https://nytimes.com/2025/07/15/us/politics/trump-ai-pittsburgh-speech.html
-
-**What’s Next for Trump’s Plans to Dismantle the Education Department**\
-`Administration officials have already begun the process of transferring certain functions to other agencies.`\
-https://nytimes.com/2025/07/15/us/politics/trump-education-department-next-steps.html
-
-**Tariffs Begin to Leave an Imprint on the Economy**\
-`Also, Republicans in Congress followed Trump’s shift on Ukraine. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/07/15/briefing/tariffs-inflation-report-republicans-ukraine.html
 
