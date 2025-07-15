@@ -1,3 +1,7 @@
+**Australian Leader’s Bonhomie in China Belies Delicate Balancing Act**\
+`Prime Minister Anthony Albanese is trying to deepen ties with China, his country’s biggest trading partner, while being under pressure from the United States.`\
+https://nytimes.com/2025/07/15/world/asia/china-australia-trade-security.html
+
 **Word of the Day: pungent**\
 `This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/15/learning/word-of-the-day-pungent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6493128/2025/07/15/nelson-semedo-wolves-legacy-free
 **John MacArthur, Firebrand Preacher and Culture Warrior, Dies at 86**\
 `He was a theologically uncompromising pastor in Southern California who influenced generations of evangelical preachers.`\
 https://nytimes.com/2025/07/15/us/john-macarthur-dead.html
-
-**Padraig Harrington: Champion golfer. Open veteran. YouTube sensation.**\
-`The Irishman is a two-time winner of The Open - and believes it is bigger and better than ever after matching the U.S. majors`\
-https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the-open/
 
