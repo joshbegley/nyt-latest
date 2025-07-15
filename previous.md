@@ -1,8 +1,12 @@
+**What to Know About the Fighting in Southern Syria**\
+`Druse militiamen have been fighting with Bedouins in the Sweida Province, and Syrian government forces and the Israeli military are getting involved.`\
+https://nytimes.com/2025/07/15/world/asia/druse-syria-bedouin-israel-fighting.html
+
 **USMNT's Agyemang completes Derby transfer**\
 `Agyemang, whose five international goals have all come in 2025, has signed a four-year contract at Pride Park.`\
 https://nytimes.com/athletic/6496491/2025/07/15/usmnt-patrick-agyemang-derby-transfer/
 
-**Wednesday Briefing: China Grows Despite Tariffs**\
+**Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
 `Plus, “Severance” picks up top Emmy nominations.`\
 https://nytimes.com/2025/07/15/briefing/china-economy-ukraine-weapons-trump-europe-britain-afghanistan.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6496416/2025/07/15/mlb-la-olympics-baseball/
 **Summer Sizzzle**\
 `A guide to making your next grilling party the most delicious yet.`\
 https://nytimes.com/paidpost/cooking/pepsi/summer-sizzzle.html
-
-**Women's Euros viewership nearly doubles from 2022, Fox Sports says**\
-`An average of 306,000 viewers tuned in to the tournament’s 24 group stage matches.`\
-https://nytimes.com/athletic/6496182/2025/07/15/womens-euro-2025-viewership-numbers-increase/
 

@@ -1,3 +1,11 @@
+**What to Know About the Fighting in Southern Syria**\
+`Druse militiamen have been fighting with Bedouins in the Sweida Province, and Syrian government forces and the Israeli military are getting involved.`\
+https://nytimes.com/2025/07/15/world/asia/druse-syria-bedouin-israel-fighting.html
+
+**Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
+`Plus, “Severance” picks up top Emmy nominations.`\
+https://nytimes.com/2025/07/15/briefing/china-economy-ukraine-weapons-trump-europe-britain-afghanistan.html
+
 **USMNT's Agyemang completes Derby transfer**\
 `Agyemang, whose five international goals have all come in 2025, has signed a four-year contract at Pride Park.`\
 https://nytimes.com/athletic/6496491/2025/07/15/usmnt-patrick-agyemang-derby-transfer/
