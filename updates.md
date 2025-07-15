@@ -1,3 +1,7 @@
+**Word of the Day: pungent**\
+`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/15/learning/word-of-the-day-pungent.html
+
 **I’m a Genocide Scholar. I Know It When I See It.**\
 `A scholar of genocide comes to a painful conclusion about Israel’s actions in Gaza.`\
 https://nytimes.com/2025/07/15/opinion/israel-gaza-holocaust-genocide-palestinians.html
