@@ -1,3 +1,19 @@
+**The LA Olympics baseball schedule is out â and itâs not perfect for MLB**\
+`The 2028 Olympics baseball tournament will take place in LA from July 15-20. MLB would like it to be played sooner.`\
+https://nytimes.com/athletic/6496416/2025/07/15/mlb-la-olympics-baseball/
+
+**Women's Euros viewership nearly doubles from 2022, Fox Sports says**\
+`An average of 306,000 viewers tuned in to the tournamentâs 24 group stage matches.`\
+https://nytimes.com/athletic/6496182/2025/07/15/womens-euro-2025-viewership-numbers-increase/
+
+**Republicans in Congress Shift to Backing Ukraine, Matching Trumpâs Reversal**\
+`After years pressing to end U.S. aid to Ukraine, many Republicans have abandoned that position now that President Trump is supporting the country against Russian aggression.`\
+https://nytimes.com/2025/07/15/us/politics/ukraine-republicans-trump.html
+
+**Democrats Broach Potential Walkout to Block Texas Redistricting**\
+`Hakeem Jeffries, the House Democratic leader, told Texas Democrats on a call on Tuesday that the moment required everyone to take extraordinary actions.`\
+https://nytimes.com/2025/07/15/us/politics/texas-redistricting-trump.html
+
 **Summer Sizzzle**\
 `A guide to making your next grilling party the most delicious yet.`\
 https://nytimes.com/paidpost/cooking/pepsi/summer-sizzzle.html
