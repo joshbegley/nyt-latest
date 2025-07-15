@@ -1,7 +1,3 @@
-**Flash Floods Pour Into New York City Subway Station**\
-`Passengers on an uptown No. 1 train saw floodwaters swamping the station at 28th Street and Seventh Avenue in Manhattan.`\
-https://nytimes.com/2025/07/15/nyregion/nyc-subway-flood-storm.html
-
 **La Liga 25/26 winner odds: Real Madrid favoured ahead of reigning champions Barcelona**\
 `Real Madrid and Barcelona remain the two teams at the top of the La Liga pile. Which one has the edge in the betting odds this season?`\
 https://nytimes.com/athletic/6493433/2025/07/15/la-liga-2026-winner-odds-barcelona-real-madrid/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6492733/2025/07/15/transfer-news-latest-liverpool-m
 **Luka Modric completes move to AC Milan**\
 `The Croatia international played 597 times for Madrid and won 26 trophies.`\
 https://nytimes.com/athletic/6420987/2025/07/15/luka-modric-completes-move-to-ac-milan-after-leaving-real-madrid/
+
+**Australian Leader’s Bonhomie in China Belies Delicate Balancing Act**\
+`Prime Minister Anthony Albanese is trying to deepen ties with China, his country’s biggest trading partner, while being under pressure from the United States.`\
+https://nytimes.com/2025/07/15/world/asia/china-australia-trade-security.html
 
