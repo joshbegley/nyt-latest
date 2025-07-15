@@ -1,3 +1,19 @@
+**After Major Flooding in N.Y. Region, the Morning Commute May Look Pretty Normal**\
+`Transit agencies in the New York area said they were running on or close to schedule.`\
+https://nytimes.com/2025/07/15/nyregion/nyc-commute-subways-flooding.html
+
+**The Pulse: The year of the Dumper continues**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6493617/2025/07/15/cal-raleigh-home-run-derby-the-pulse/
+
+**Indian Police Discover a Russian Woman Living in a Cave With Two Daughters**\
+`Officials said she had spent years in the country seeking spirituality and living among nature. But she faces deportation after overstaying her visa.`\
+https://nytimes.com/2025/07/15/world/asia/india-russian-woman-cave.html
+
+**England recall Dawson after eight-year absence for fourth Test at Old Trafford**\
+`The 35-year-old played the most recent of his three Tests against South Africa in 2017 but comes in for the injured Shoaib Bashir.`\
+https://nytimes.com/athletic/6494810/2025/07/15/england-dawson-bashir-old-trafford/
+
 **Jannik Sinner and Iga Swiatek's doping cases hang over Wimbledon champions. Is that fair?**\
 `Their victories at the All England Club have reopened debate in tennis and the wider sporting world about their cases. Is it valid?`\
 https://nytimes.com/athletic/6493153/2025/07/15/tennis-sinner-swiatek-doping-cases-wimbledon/
