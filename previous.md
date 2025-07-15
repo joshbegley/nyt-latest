@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6495072/2025/07/15/victor-wembanyama-return-spurs/
 `New data showing price increases last month could foreshadow even higher costs if the president imposes steep tariffs on Aug. 1.`\
 https://nytimes.com/2025/07/15/us/politics/trump-tariffs-inflation.html
 
-**Yankees are gushing over Dax Kilby, their top MLB Draft pick: 'We were holding our breath'**\
+**Yankees are gushing over Dax Kilby, their top draft pick: 'We were holding our breath'**\
 `“We were holding our breath (hoping) it was going to be Dax on our board,” said Damon Oppenheimer, their VP of domestic amateur scouting.`\
 https://nytimes.com/athletic/6495817/2025/07/15/yankees-prospect-dax-kilby-mlb-draft/
 

@@ -1,3 +1,7 @@
+**Yankees are gushing over Dax Kilby, their top draft pick: 'We were holding our breath'**\
+`“We were holding our breath (hoping) it was going to be Dax on our board,” said Damon Oppenheimer, their VP of domestic amateur scouting.`\
+https://nytimes.com/athletic/6495817/2025/07/15/yankees-prospect-dax-kilby-mlb-draft/
+
 **Jamie Dimon Backs Jerome Powell Over Trump in Fed Fight**\
 `The C.E.O. of JPMorgan Chase, who has rarely taken on President Trump during his second term, wades into the argument over the Federal Reserve chair.`\
 https://nytimes.com/2025/07/15/business/jamie-dimon-jerome-powell-trump.html
