@@ -1,40 +1,40 @@
-**Mamdani Prepares to Meet With the City’s Wary Business Leaders**\
-`On Tuesday, Zohran Mamdani, a democratic socialist running for mayor, will meet with the who’s who of the corporate world as he prepares for the general election.`\
-https://nytimes.com/2025/07/15/business/mamdani-nyc-business-leaders.html
-
-**The Bounce: Cooper Flagg, Dylan Harper and NBA's next big thing highlight Vegas Summer League notes**\
-`What are the best parts of this year's Vegas Summer League action? Zach Harper narrows the list down to 15 key observations`\
-https://nytimes.com/athletic/6494950/2025/07/15/cooper-flagg-mavericks-dylan-harper-spurs-yang-hansen-trail-blazers-nba-draft-the-bounce/
-
-**He’s Bringing Rossini to Philadelphia and ‘West Side Story’ to Rome**\
-`The Italian director Damiano Michieletto has engaged, and sometimes enraged, European audiences. Now he’s preparing for his debut at a major U.S. opera company.`\
-https://nytimes.com/2025/07/15/arts/music/damiano-michieletto-opera.html
-
-**McTavish an offer sheet candidate, Canes should let Ehlers cook: NHL offseason notebook**\
-`There are still a few offer sheet-eligible players worth keeping an eye on this summer; checking in on more potential roster moves/`\
-https://nytimes.com/athletic/6493853/2025/07/15/nhl-offseason-notebook/
-
-**Where to Be Female, Bohemian and Free in 1890s Paris?**\
-`In “The Club,” Jennifer Dasal investigates a refuge for (some) expat artists in the City of Light.`\
-https://nytimes.com/2025/07/15/books/review/the-club-jennifer-dasal.html
-
-**Defining ‘Antisemitism’ Is the Subject of Bitter Debate**\
-`There’s no consensus about what, precisely, constitutes antisemitism.`\
-https://nytimes.com/2025/07/15/us/defining-antisemitism.html
-
-**China Puts New Restrictions on E.V. Battery Manufacturing Technology**\
-`Beijing will now require government licenses for any effort to transfer abroad the technologies crucial for producing inexpensive electric cars.`\
-https://nytimes.com/2025/07/15/business/china-electric-vehicle-battery-manufacturing.html
-
-**Potluck Desserts You Can Make in a Baking Pan**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-potluck-desserts
-
-**Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
+**Can you put a price on Alexander Isak? âMaybe you have Haaland, you have Mbappe, but after thatâ¦â**\
 `Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
 https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really-cost/
 
 **Bellingham targeting October return following shoulder surgery**\
 `Bellingham dislocated his left shoulder in November 2023 in Madrid's La Liga match against Rayo Vallecano.`\
 https://nytimes.com/athletic/6484232/2025/07/15/jude-bellingham-shoulder-surgery-october-return/
+
+**gws-waterloo-reenactment-american-napoleon**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/waterloo-reenactment-american-napoleon
+
+**U.K. Secretly Resettled 4,500 Afghans in Britain After Huge Data Exposure**\
+`The government said that the personal details of 18,000 Afghans were accidentally revealed in 2022. The previous government had secured a legal order to prevent any reporting on the subject.`\
+https://nytimes.com/2025/07/15/world/europe/uk-data-email-afghans-taliban.html
+
+**Dismissals at Justice Dept. Seek to Bypass Civil Service and Whistle-Blower Laws**\
+`In court filings and dismissal letters, the Justice Departmentâs political leadership claims sweeping authority to fire career law enforcement officials without cause.`\
+https://nytimes.com/2025/07/15/us/politics/justice-department-dismissals-civil-service-laws.html
+
+**Georgia coach Kirby Smart: 'Just don't see' Nick Saban coaching again**\
+`"I don't think Nick's coming back. I think he's too happy where he is,â Smart said.`\
+https://nytimes.com/athletic/6495142/2025/07/15/kirby-smart-nick-saban-coaching-sec-media-days/
+
+**College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
+`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakersâ questions about accusations of campus antisemitism.`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
+
+**gws-taco-bell-crunchwrap-supreme**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/taco-bell-crunchwrap-supreme
+
+**gws-trail-running-beginner-tips**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/trail-running-beginner-tips
+
+**gws-superman-warner-bros-box-office**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/superman-warner-bros-box-office
 
