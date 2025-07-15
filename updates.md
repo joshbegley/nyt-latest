@@ -1,3 +1,11 @@
+**MLB All-Stars speak on the ‘gray area’ of sports betting, social media threats**\
+`The Athletic asked about the effects of gambling during media availabilities at this year's All-Star Game. `\
+https://nytimes.com/athletic/6494316/2025/07/14/mlb-all-star-game-2025-sports-betting/
+
+**Unreleased Beyoncé Music Stolen During Cowboy Carter Tour in Atlanta, Police Say**\
+`Two members of Beyoncé’s team said that their S.U.V. was broken into during a tour stop on July 8, the authorities said. The police said a suspect had emerged.`\
+https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
+
 **Behind Trump’s Tough Russia Talk, Doubts and Missing Details**\
 `Pentagon officials said details were still being worked out, and experts doubted Mr. Trump’s threat of huge tariffs for Russian trading partners.`\
 https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
