@@ -1,3 +1,11 @@
+**Live Updates: Storm Drenches New York City, Flooding Subway and Highways**\
+`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
+https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
+
+**Israel and Iran Usher In New Era of Psychological Warfare**\
+`The 12-day conflict was marked by a flurry of propaganda, disinformation and covert operations aided by artificial intelligence and spread by social media.`\
+https://nytimes.com/2025/07/15/technology/israel-iran-psychological-warfare.html
+
 **Corrections: July 15, 2025**\
 `Corrections that appeared in print on Tuesday, July 15, 2025.`\
 https://nytimes.com/2025/07/14/pageoneplus/corrections-july-15-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6494448/2025/07/14/sabres-bowen-byram-contract-exte
 **Players' associations unite to oppose bill granting NCAA antitrust exemption**\
 `Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
 https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
-
-**China’s Economy Grows Steadily Despite Trump’s Tariffs**\
-`Official figures showed modest growth in the second quarter as exports shifted to other countries and Beijing invested in manufacturing and infrastructure.`\
-https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
-
-**Blowout Game**\
-`Daniel Britt makes a fantastic debut.`\
-https://nytimes.com/2025/07/14/crosswords/daily-puzzle-2025-07-15.html
 

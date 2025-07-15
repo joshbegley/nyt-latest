@@ -1,3 +1,11 @@
+**Corrections: July 15, 2025**\
+`Corrections that appeared in print on Tuesday, July 15, 2025.`\
+https://nytimes.com/2025/07/14/pageoneplus/corrections-july-15-2025.html
+
+**Quote of the Day: Ever Hotter, Southern Europe Dreams of Fjords**\
+`Quotation of the Day for Tuesday, July 15, 2025.`\
+https://nytimes.com/2025/07/14/pageoneplus/quote-of-the-day-ever-hotter-southern-europe-dreams-of-fjords.html
+
 **Fan steals HR from Junior Caminero at derby: 'I wasn't aware of where I was'**\
 `Scorers counted the homer robbed by Sam Musterer, 17, who was on the field because his father is a scorer at Braves games.`\
 https://nytimes.com/athletic/6494514/2025/07/14/mlb-home-run-derby-junior-caminero-robbery/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
 **Blowout Game**\
 `Daniel Britt makes a fantastic debut.`\
 https://nytimes.com/2025/07/14/crosswords/daily-puzzle-2025-07-15.html
-
-**Appeals Court Keeps Afghans’ Deportation Protections in Place for Now**\
-`A short, unsigned order by the Fourth Circuit Court of Appeals in Virginia blocked the Trump administration’s move to terminate deportation protections until next week.`\
-https://nytimes.com/2025/07/14/us/politics/afghanistan-tps-migrants-deportation.html
-
-**Judge Orders Release of Iranian Arrested in Louisiana After U.S. Bombed Iran**\
-`Pouria Pourhosseinhendabad, a doctoral student studying mechanical engineering at Louisiana State University, was arrested along with his wife, in what his lawyers call “an unconstitutional ruse.”`\
-https://nytimes.com/2025/07/14/us/politics/iran-student-released-louisiana.html
 
