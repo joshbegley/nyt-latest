@@ -1,3 +1,27 @@
+**Police Arrest Far-Right Leader After Anti-Immigrant Riots in Spanish Town**\
+`Prosecutors said the local head of Deport Them Now, an anti-immigrant group, helped incite four days of violence that have rattled a town with a large North African community.`\
+https://nytimes.com/2025/07/15/world/europe/torre-pacheco-spain-anti-immigrant-riots-arrest.html
+
+**Sauce Gardner, Jets agree to deal making him NFL’s highest-paid CB**\
+`The four-year deal is worth $120.4 million in total, according to league sources.`\
+https://nytimes.com/athletic/6496100/2025/07/15/sauce-gardner-jets-contract-highest-paid/
+
+**Manfred says Blue Jays near ‘top of the list’ to host future MLB All-Star Game**\
+`Toronto hasn't hosted the All-Star Game since 1991 but has recently completed $400 million in Rogers Centre renovations.`\
+https://nytimes.com/athletic/6495960/2025/07/15/mlb-all-star-game-toronto-future/
+
+**Leeds reach agreement in principle to sign Newcastle's Longstaff**\
+`As an academy graduate, Longstaff wanted his boyhood team to be compensated rather than face losing him as a free agent next summer.`\
+https://nytimes.com/athletic/6479621/2025/07/15/sean-longstaff-leeds-transfer-newcastle/
+
+**France Proposes Cutting Two Public Holidays to Avert Budget Crisis**\
+`Drastic measures are necessary “before we are crushed by the debt,” the country’s prime minister warned.`\
+https://nytimes.com/2025/07/15/business/france-debt-deficit-spending-taxes.html
+
+**Billy Jones, Impresario of New York’s Indie Music Scene, Dies at 45**\
+`He opened Baby’s All Right and three other nightclubs, a restaurant and a record store in a dozen years, offering hope that the city had not lost its cultural verve.`\
+https://nytimes.com/2025/07/15/arts/music/billy-jones-dead.html
+
 **Yankees are gushing over Dax Kilby, their top draft pick: 'We were holding our breath'**\
 `“We were holding our breath (hoping) it was going to be Dax on our board,” said Damon Oppenheimer, their VP of domestic amateur scouting.`\
 https://nytimes.com/athletic/6495817/2025/07/15/yankees-prospect-dax-kilby-mlb-draft/
