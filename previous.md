@@ -1,3 +1,7 @@
+**Meet El Hadji Malick Diouf, West Ham's first signing of the summer**\
+`The young, attack-minded Senegalese full-back, signed from Slavia Prague, is expected to add dynamism on the left flank`\
+https://nytimes.com/athletic/6492978/2025/07/15/el-hadji-malick-diouf-west-ham-transfer/
+
 **The Waldorf Astoria Reopens With Lex Yard, Yoshoku and Peacock Alley**\
 `The newly renovated hotel sports three new restaurants, including a flagship brasserie named after the train line that runs under the hotel.`\
 https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495327/2025/07/15/liv-golf-bryson-dechambeau-owgr/
 **Forest interested in Villa's Ramsey**\
 `Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
 https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/
-
-**Free agent David Robertson could be option for teams seeking bullpen help**\
-`Several teams, including the Mets and Yankees, have recently looked into the 40-year-old reliever.`\
-https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
 

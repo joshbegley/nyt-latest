@@ -1,3 +1,7 @@
+**Meet El Hadji Malick Diouf, West Ham's first signing of the summer**\
+`The young, attack-minded Senegalese full-back, signed from Slavia Prague, is expected to add dynamism on the left flank`\
+https://nytimes.com/athletic/6492978/2025/07/15/el-hadji-malick-diouf-west-ham-transfer/
+
 **The Waldorf Astoria Reopens With Lex Yard, Yoshoku and Peacock Alley**\
 `The newly renovated hotel sports three new restaurants, including a flagship brasserie named after the train line that runs under the hotel.`\
 https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
