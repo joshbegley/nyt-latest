@@ -1,3 +1,7 @@
+**Brentford sign Henderson on free transfer**\
+`The England international was identified as a top target for Brentford following the exit of captain Christian Norgaard to Arsenal.`\
+https://nytimes.com/athletic/6487875/2025/07/15/brentford-jordan-henderson-free-transfer/
+
 **Flash Floods Pour Into New York City Subway Station**\
 `Passengers on an uptown No. 1 train saw floodwaters swamping the station at 28th Street and Seventh Avenue in Manhattan.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-subway-flood-storm.html
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6493433/2025/07/15/la-liga-2026-winner-odds-barcelo
 `Barrenechea is set to leave Villa without making a competitive appearance.`\
 https://nytimes.com/athletic/6494688/2025/07/15/aston-villa-enzo-barrenechea-benfica-15m-deal/
 
-**Seth Meyers Is Amused by MAGA’s Epstein Infighting**\
-`President Trump’s most conspiracy-minded supporters can’t believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
+**Seth Meyers Is Amused by MAGAâs Epstein Infighting**\
+`President Trumpâs most conspiracy-minded supporters canât believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
 https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
 
 **Diaz, Rashford and Nkunku: An incisive dribbler, a driving winger and a poacher. Who should Barcelona sign?**\
@@ -19,22 +23,18 @@ https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump
 https://nytimes.com/athletic/6492782/2025/07/15/diaz-rashford-nkunku-who-should-barcelona-sign/
 
 **Lingering Moose Shuts Down Popular Adirondack Trail for a Month**\
-`Sickness, not stubbornness, is the most likely explanation for the animal’s “unusual behaviors,” which prompted the unusually long closure, officials said.`\
+`Sickness, not stubbornness, is the most likely explanation for the animalâs âunusual behaviors,â which prompted the unusually long closure, officials said.`\
 https://nytimes.com/2025/07/15/nyregion/moose-goodman-mountain-trail.html
 
-**21 Questions About the N.Y.C. Mayor’s Race, Answered**\
-`Readers from around the world asked about Assemblyman Zohran Mamdani’s surprising primary win, its effect on national politics and how The Times covers elections.`\
+**21 Questions About the N.Y.C. Mayorâs Race, Answered**\
+`Readers from around the world asked about Assemblyman Zohran Mamdaniâs surprising primary win, its effect on national politics and how The Times covers elections.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-mayor-mamdani-questions.html
 
 **Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
+`Feeling stuck on todayâs puzzle? We can help.`\
 https://nytimes.com/2025/07/15/crosswords/spelling-bee-forum.html
 
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to your weekly guide to everything that you need to know from the summer transfer window`\
 https://nytimes.com/athletic/6492733/2025/07/15/transfer-news-latest-liverpool-manchester-united-arsenal-real-madrid-analysis/
-
-**Luka Modric completes move to AC Milan**\
-`The Croatia international played 597 times for Madrid and won 26 trophies.`\
-https://nytimes.com/athletic/6420987/2025/07/15/luka-modric-completes-move-to-ac-milan-after-leaving-real-madrid/
 
