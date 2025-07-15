@@ -1,3 +1,5 @@
+
+
 **Blackhawks sign Anton Frondell to entry-level contract: Where will he play?**\
 `Will the No. 3 draft pick in 2025 play in the NHL next season? Or will he return to Sweden to play for DjurgÃ¥rden in the SHL?`\
 https://nytimes.com/athletic/6496239/2025/07/15/blackhawks-anton-frondell-contract-2025-nhl-draft/
