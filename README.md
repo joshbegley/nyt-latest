@@ -1,3 +1,7 @@
+**Air India Crash Findings Prompt Inspections of Boeing Fuel Switches**\
+`Airlines in India, Singapore and South Korea were inspecting fuel control switches on their Boeing jets.`\
+https://nytimes.com/2025/07/15/world/asia/air-india-plane-crash-fuel-switch-boeing.html
+
 **A Horror Star Returns With a Sweeping, Witchy Mystery**\
 `In Silvia Moreno-Garcia’s “The Bewitching,” a graduate student stumbles into a haunting conspiracy while researching a cult writer.`\
 https://nytimes.com/2025/07/15/books/review/the-bewitching-silvia-moreno-garcia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/opinion/trump-authoritarianism-republican-party-d
 **2025 Emmy Nominations to Be Announced**\
 `The nominees will be announced at the Television Academy’s Los Angeles headquarters.`\
 https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
-
-**Democrats Are Workshopping New Tactics After Losses of 2024**\
-`Among the ideas being promoted: knocking on every single door in a House district and awarding cash prizes for the most effective new ways to reach voters.`\
-https://nytimes.com/2025/07/15/us/politics/democrats-voters-ads-campaigns.html
 
