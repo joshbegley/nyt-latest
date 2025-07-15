@@ -1,3 +1,15 @@
+**The Waldorf Astoria Reopens With Lex Yard, Yoshoku and Peacock Alley**\
+`The newly renovated hotel sports three new restaurants, including a flagship brasserie named after the train line that runs under the hotel.`\
+https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
+
+**How to avoid dooming your roster with bad fantasy football draft picks**\
+`Avoid critical draft missteps with the help of Indiana Jones. Sort of.`\
+https://nytimes.com/athletic/6493071/2025/07/15/fantasy-football-draft-strategy-player-value-adp-projections/
+
+**The fantasy football quarterbacks to draft ... and those to avoid**\
+`Jake Ciely illustrates his fantasy football strategy to maximize value at QB in 2025.`\
+https://nytimes.com/athletic/6484015/2025/07/15/fantasy-football-draft-best-qb-rankings-values-adp/
+
 **West Ham sign Diouf from Slavia Prague**\
 `The 20-year-old defender becomes the club's first signing of the summer transfer window.`\
 https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-v
 **Free agent David Robertson could be option for teams seeking bullpen help**\
 `Several teams, including the Mets and Yankees, have recently looked into the 40-year-old reliever.`\
 https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
-
-**2025 Open Championship long shots, sleepers and prop picks: Jordan Spieth comeback?**\
-`Spieth and Cameron Young lead Dennis Esser's lineup of long shots and props at the Open.`\
-https://nytimes.com/athletic/6493319/2025/07/15/open-championship-long-shots-sleepers-prop-bet-picks/
-
-**Nick Sirianni rips criticism of Eagles carrying Jalen Hurts**\
-`"One of the reasons I love football so much is that it takes everybody to accomplish your goals," Sirianni said.`\
-https://nytimes.com/athletic/6495203/2025/07/15/nick-sirianni-jalen-hurts-eagles/
-
-**Sources: MLS, players reached new Club World Cup bonus agreement**\
-`The league and its Club World Cup participants ultimately reached a deal after a frosty standoff prior to the competition`\
-https://nytimes.com/athletic/6493304/2025/07/15/mls-players-club-world-cup-bonus-deal/
 
