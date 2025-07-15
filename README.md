@@ -1,3 +1,15 @@
+**Yankees are gushing over Dax Kilby, their top MLB Draft pick: 'We were holding our breath'**\
+`âWe were holding our breath (hoping) it was going to be Dax on our board,â said Damon Oppenheimer, their VP of domestic amateur scouting.`\
+https://nytimes.com/athletic/6495817/2025/07/15/yankees-prospect-dax-kilby-mlb-draft/
+
+**Guinness-inspired golf shoes, putters and more released to coincide with Open Championship**\
+`With the Open Championship in Northern Ireland, everyone in golf seems to have Guinness on the mind`\
+https://nytimes.com/athletic/6493031/2025/07/15/guinness-golf-shoes-travismathew/
+
+**Trey Smith agrees to 4-year, $94 million extension with Chiefs: Sources**\
+`Ahead of the franchise tag deadline, the Pro Bowl guard agreed to a four-year extension that guarantees him $70 million.`\
+https://nytimes.com/athletic/6495891/2025/07/15/trey-smith-kansas-city-chiefs-extension/
+
 **âSeveranceâ and âThe White Lotusâ Dominate the Emmy Acting Nominations**\
 `The buzzy series are the early favorites in the drama category.`\
 https://nytimes.com/2025/07/15/arts/television/severance-white-lotus-emmy-nominations-drama.html
@@ -21,20 +33,4 @@ https://nytimes.com/2025/07/15/arts/television/the-studio-emmy-nominations-comed
 **Songs for the Heat of Peak Summer: Welcome to Lizard Season**\
 `Hear 10 songs from yeule, Momma, Four Tet and more.`\
 https://nytimes.com/2025/07/15/arts/music/amplifier-newsletter-summer-songs-lizard-season.html
-
-**Euro 2025 odds: Spain remain clear favourite, England are ahead of France**\
-`Spain remain favoured to win Euro 2025 after a dominant display in group play. England and France are top contenders in the odds.`\
-https://nytimes.com/athletic/6495672/2025/07/15/euro-2025-odds-spain-england-france/
-
-**Terry McLaurin undecided on Commanders training camp amid contract standoff**\
-`McLaurin posted 1,096 yards and 13 touchdowns last season, his first paired with Jayden Daniels at QB.`\
-https://nytimes.com/athletic/6495802/2025/07/15/terry-mclaurin-commanders-contract-training-camp-comments/
-
-**Emmy Nomination Snubs and Surprises: âSquid Game,â âThe Handmaidâs Taleâ and John Mulaney (Again)**\
-`Some big names (Alfonso CuarÃ³n, Elisabeth Moss) were left off the Emmy nomination list while some underdogs (Jeff Hiller, âCommon Side Effectsâ) sneaked on.`\
-https://nytimes.com/2025/07/15/arts/television/emmy-nominations-snubs-surprises.html
-
-**What is CAIR, the group that Stefanik attacked?**\
-`By Anushka Patil`\
-https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-cair-the-group-that-stefanik-attacked
 
