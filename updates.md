@@ -1,3 +1,11 @@
+**I’m a Genocide Scholar. I Know It When I See It.**\
+`A scholar of genocide comes to a painful conclusion about Israel’s actions in Gaza.`\
+https://nytimes.com/2025/07/15/opinion/israel-gaza-holocaust-genocide-palestinians.html
+
+**The New York Times in Print for Tuesday, July 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/15/todays-new-york-times
+
 **Here’s the latest.**\
 `By Francesca Regalado, Livia Albeck-Ripka, Alexandra E. Petri and Mark Walker`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods/heres-the-latest

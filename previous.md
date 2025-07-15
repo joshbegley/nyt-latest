@@ -1,3 +1,11 @@
+**I’m a Genocide Scholar. I Know It When I See It.**\
+`A scholar of genocide comes to a painful conclusion about Israel’s actions in Gaza.`\
+https://nytimes.com/2025/07/15/opinion/israel-gaza-holocaust-genocide-palestinians.html
+
+**The New York Times in Print for Tuesday, July 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/15/todays-new-york-times
+
 **Here’s the latest.**\
 `By Francesca Regalado, Livia Albeck-Ripka, Alexandra E. Petri and Mark Walker`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the
 **Gianni Infantino has won**\
 `You don’t have to salute FIFA's president for pulling off the Club World Cup, but it wasn’t cancelled, and nor did it fail`\
 https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
-
-**How can a goalkeeper with almost no depth perception play at the top level?**\
-`England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
-https://nytimes.com/athletic/6480358/2025/07/15/hannah-hampton-eyesight-vision-depth-perception/
-
-**Club World Cup prize money: Where did the $1billion prize pot go?**\
-`The Club World Cup was supposed to have redistributive potential but $623.1m of the prize pot has wound up in the hands of 12 European clubs`\
-https://nytimes.com/athletic/6492867/2025/07/15/club-world-cup-prize-money-chelsea-psg/
 
