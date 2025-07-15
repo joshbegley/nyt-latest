@@ -1,3 +1,19 @@
+**Why the New York Subway System Keeps Flooding**\
+`The century-old system faces infrastructure and climate challenges that are making its water problem worse.`\
+https://nytimes.com/2025/07/15/nyregion/nyc-subway-flooding-why.html
+
+**Commanders to retire Hall of Famer Art Monk's No. 81 in November**\
+`Art Monk is Washington's all-time leader in receptions and receiving yards and no one has worn his No. 81 since his final season there.`\
+https://nytimes.com/athletic/6495317/2025/07/15/art-monk-commanders-jersey-number-retired/
+
+**What is the House committee that is questioning college leaders?**\
+`By Michael Gold`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-the-house-committee-that-is-questioning-college-leaders
+
+**Texas beats Georgia for 5-star LB Tyler Atkinson, top-ranked player in Peach State**\
+`The commitment is a two-fold win for Texas, who lands the top linebacker in the country while beating Georgia for its top in-state player.`\
+https://nytimes.com/athletic/6495560/2025/07/15/texas-tyler-atkinson-commitment/
+
 **Meet El Hadji Malick Diouf, West Ham's first signing of the summer**\
 `The young, attack-minded Senegalese full-back, signed from Slavia Prague, is expected to add dynamism on the left flank`\
 https://nytimes.com/athletic/6492978/2025/07/15/el-hadji-malick-diouf-west-ham-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-mali
 **Mayor Adams Loses Another Round in Bid to Receive Public Matching Funds**\
 `The New York City Campaign Finance Board rejected Mayor Eric Adams’s request for millions of dollars from the city’s generous matching-funds program.`\
 https://nytimes.com/2025/07/15/nyregion/eric-adams-nyc-mayor-matching-funds.html
-
-**Three Aid Workers Were ‘Intentionally Killed’ in Ethiopia, M.S.F. Says**\
-`The aid group accused Ethiopia’s government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
-https://nytimes.com/2025/07/15/world/africa/ethiopia-tigray-msf.html
-
-**Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
-`Portuguese coach Jesus, 70, has replaced Stefano Pioli as Al Nassr coach following last season's third-place Saudi Pro League (SPL) finish.`\
-https://nytimes.com/athletic/6495374/2025/07/15/jorge-jesus-al-nassr-cristiano-ronaldo/
-
-**Bryson DeChambeau has ideas for how LIV Golf can change to get OWGR points**\
-`The 54-hole team-format league formerly applied for OWGR recognition under CEO Greg Norman but their application was rejected in 2023.`\
-https://nytimes.com/athletic/6495327/2025/07/15/liv-golf-bryson-dechambeau-owgr/
-
-**Forest interested in Villa's Ramsey**\
-`Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
-https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/
 
