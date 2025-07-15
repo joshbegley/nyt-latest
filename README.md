@@ -1,3 +1,27 @@
+**It’s a Great Time to Be a Toe**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
+
+**Trump’s Zigzags on Ukraine and Russia**\
+`Readers respond to the president’s latest turn in the war. Also: President Trump and Rosie O’Donnell; New Yorkers’ health; travel medical kits.`\
+https://nytimes.com/2025/07/15/opinion/trump-ukraine-russia.html
+
+**gws-colorado-comanche-national-grassland**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/colorado-comanche-national-grassland
+
+**Newcastle's Isak dilemma: Does it make any sense to sell him as they try to sign Ekitike?**\
+`Newcastle want Hugo Ekitike. Liverpool want Alexander Isak. Is there a world in which selling Isak and bringing in Ekitike makes sense?`\
+https://nytimes.com/athletic/6495213/2025/07/15/newcastle-united-transfer-alexander-isak-hugo-ekitike-analysis/
+
+**Leicester appoint Cifuentes to replace Van Nistelrooy**\
+`Van Nistelrooy won just four of his 24 matches in charge as Leicester were relegated in April with five games to spare.`\
+https://nytimes.com/athletic/6455766/2025/07/15/leicester-manager-next-marti-cifuentes/
+
+**Our Favorite Pools**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/t-magazine-best-pool-designs
+
 **‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
 `Have questions about Russia? Anton Troianovski has answers.`\
 https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/podcasts/100000010284265/pops-new-weepy-take-on-hookup
 **Why the New York Subway System Keeps Flooding**\
 `The century-old system faces infrastructure and climate challenges that are making its water problem worse.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-subway-flooding-why.html
-
-**Commanders to retire Hall of Famer Art Monk's No. 81 in November**\
-`Art Monk is Washington's all-time leader in receptions and receiving yards and no one has worn his No. 81 since his final season there.`\
-https://nytimes.com/athletic/6495317/2025/07/15/art-monk-commanders-jersey-number-retired/
-
-**What is the House committee that is questioning college leaders?**\
-`By Michael Gold`\
-https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-the-house-committee-that-is-questioning-college-leaders
-
-**Texas beats Georgia for 5-star LB Tyler Atkinson, top-ranked player in Peach State**\
-`The commitment is a two-fold win for Texas, who lands the top linebacker in the country while beating Georgia for its top in-state player.`\
-https://nytimes.com/athletic/6495560/2025/07/15/texas-tyler-atkinson-commitment/
-
-**Meet El Hadji Malick Diouf, West Ham's first signing of the summer**\
-`The young, attack-minded Senegalese full-back, signed from Slavia Prague, is expected to add dynamism on the left flank`\
-https://nytimes.com/athletic/6492978/2025/07/15/el-hadji-malick-diouf-west-ham-transfer/
-
-**The Waldorf Astoria Reopens With Lex Yard, Yoshoku and Peacock Alley**\
-`The newly renovated hotel sports three new restaurants, including a flagship brasserie named after the train line that runs under the hotel.`\
-https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
-
-**How to avoid dooming your roster with bad fantasy football draft picks**\
-`Avoid critical draft missteps with the help of Indiana Jones. Sort of.`\
-https://nytimes.com/athletic/6493071/2025/07/15/fantasy-football-draft-strategy-player-value-adp-projections/
 
