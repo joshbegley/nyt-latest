@@ -1,3 +1,19 @@
+**Air India Crash Findings Prompt Inspections of Boeing Fuel Switches**\
+`Airlines in India, Singapore and South Korea were inspecting fuel control switches on their Boeing jets.`\
+https://nytimes.com/2025/07/15/world/asia/air-india-plane-crash-fuel-switch-boeing.html
+
+**A Horror Star Returns With a Sweeping, Witchy Mystery**\
+`In Silvia Moreno-Garcia’s “The Bewitching,” a graduate student stumbles into a haunting conspiracy while researching a cult writer.`\
+https://nytimes.com/2025/07/15/books/review/the-bewitching-silvia-moreno-garcia.html
+
+**Would Europe Actually Retaliate Against Trump’s Tariffs?**\
+`European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
+https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
+
+**2025 Emmy Nominations to Be Announced**\
+`The nominees will be announced at the Television Academy’s Los Angeles headquarters.`\
+https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
+
 **In Northern Ireland, Fire Has Long Been Used as a Weapon of Fear**\
 `A bonfire topped with an effigy of a migrant boat. Homes set alight. During the Troubles, similar tactics were used to target Irish Catholics in the territory.`\
 https://nytimes.com/2025/07/15/world/europe/northern-ireland-bonfire-arson-ballymena-riots.html
