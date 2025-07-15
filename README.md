@@ -1,3 +1,7 @@
+**Mamdani Prepares to Meet With the City’s Wary Business Leaders**\
+`On Tuesday, Zohran Mamdani, a democratic socialist running for mayor, will meet with the who’s who of the corporate world as he prepares for the general election.`\
+https://nytimes.com/2025/07/15/business/mamdani-nyc-business-leaders.html
+
 **The Bounce: Cooper Flagg, Dylan Harper and NBA's next big thing highlight Vegas Summer League notes**\
 `What are the best parts of this year's Vegas Summer League action? Zach Harper narrows the list down to 15 key observations`\
 https://nytimes.com/athletic/6494950/2025/07/15/cooper-flagg-mavericks-dylan-harper-spurs-yang-hansen-trail-blazers-nba-draft-the-bounce/
@@ -14,9 +18,9 @@ https://nytimes.com/athletic/6493853/2025/07/15/nhl-offseason-notebook/
 `In “The Club,” Jennifer Dasal investigates a refuge for (some) expat artists in the City of Light.`\
 https://nytimes.com/2025/07/15/books/review/the-club-jennifer-dasal.html
 
-**Defining ‘antisemitism’ is the subject of bitter debate.**\
-`By Vimal Patel`\
-https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/defining-antisemitism-is-the-subject-of-bitter-debate
+**Defining ‘Antisemitism’ Is the Subject of Bitter Debate**\
+`There’s no consensus about what, precisely, constitutes antisemitism.`\
+https://nytimes.com/2025/07/15/us/defining-antisemitism.html
 
 **China Puts New Restrictions on E.V. Battery Manufacturing Technology**\
 `Beijing will now require government licenses for any effort to transfer abroad the technologies crucial for producing inexpensive electric cars.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really
 **Bellingham targeting October return following shoulder surgery**\
 `Bellingham dislocated his left shoulder in November 2023 in Madrid's La Liga match against Rayo Vallecano.`\
 https://nytimes.com/athletic/6484232/2025/07/15/jude-bellingham-shoulder-surgery-october-return/
-
-**gws-waterloo-reenactment-american-napoleon**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/waterloo-reenactment-american-napoleon
 
