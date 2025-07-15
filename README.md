@@ -1,3 +1,7 @@
+**Behind Trump’s Tough Russia Talk, Doubts and Missing Details**\
+`Pentagon officials said details were still being worked out, and experts doubted Mr. Trump’s threat of huge tariffs for Russian trading partners.`\
+https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
+
 **Thief Makes Off With Unreleased Beyoncé Tracks and Set Lists, Police Say**\
 `Two members of Beyoncé’s team said that their S.U.V. was broken into on July 8 while on tour in Atlanta, the authorities said. The police said a suspect had emerged.`\
 https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/opinion/trump-jeffrey-epstein-files.html
 **How Do You Silence a Conspiracy Theory?**\
 `President Trump is finding it hard to put the Epstein files behind him.`\
 https://nytimes.com/2025/07/14/us/politics/conspiracy-epstein-files-trump.html
-
-**Senate Approves First Judge of Trump’s Second Term**\
-`The pace of judicial confirmations is lagging compared with the president’s first stint in office, but more are in the pipeline.`\
-https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-second-term.html
 
