@@ -1,3 +1,23 @@
+**The Bounce: Cooper Flagg, Dylan Harper and NBA's next big thing highlight Vegas Summer League notes**\
+`What are the best parts of this year's Vegas Summer League action? Zach Harper narrows the list down to 15 key observations`\
+https://nytimes.com/athletic/6494950/2025/07/15/cooper-flagg-mavericks-dylan-harper-spurs-yang-hansen-trail-blazers-nba-draft-the-bounce/
+
+**He’s Bringing Rossini to Philadelphia and ‘West Side Story’ to Rome**\
+`The Italian director Damiano Michieletto has engaged, and sometimes enraged, European audiences. Now he’s preparing for his debut at a major U.S. opera company.`\
+https://nytimes.com/2025/07/15/arts/music/damiano-michieletto-opera.html
+
+**Where to Be Female, Bohemian and Free in 1890s Paris?**\
+`In “The Club,” Jennifer Dasal investigates a refuge for (some) expat artists in the City of Light.`\
+https://nytimes.com/2025/07/15/books/review/the-club-jennifer-dasal.html
+
+**Defining ‘antisemitism’ is the subject of bitter debate.**\
+`By Vimal Patel`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/defining-antisemitism-is-the-subject-of-bitter-debate
+
+**Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
+`Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
+https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really-cost/
+
 **Heâs Bringing Rossini to Philadelphia and âWest Side Storyâ to Rome**\
 `The Italian director Damiano Michieletto has engaged, and sometimes enraged, European audiences. Now heâs preparing for his debut at a major U.S. opera company.`\
 https://nytimes.com/2025/07/15/arts/music/damiano-michieletto-opera.html
