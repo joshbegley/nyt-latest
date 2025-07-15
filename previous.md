@@ -1,3 +1,7 @@
+**Clearer Skies Expected in Northeast as Storms Move Southward**\
+`Lingering showers were forecast in the New York City area, but heavy rain and flash flooding threats were predicted to shift south on Tuesday.`\
+https://nytimes.com/2025/07/15/nyregion/rain-storms-northeast-forecast.html
+
 **After Major Flooding in N.Y. Region, the Morning Commute May Look Pretty Normal**\
 `Transit agencies in the New York area said they were running on or close to schedule.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-commute-subways-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6494560/2025/07/15/mlb-home-run-derby-torpedo-bats-
 **How Wild's Navy SEAL 'big brother' teaches players to overcome adversity**\
 `Aaron Bogosian draws on experience as a former pro hockey player as well as his military experience to assess and develop Wild prospects`\
 https://nytimes.com/athletic/6471625/2025/07/15/minnesota-wild-nhl-players-navy-seal-aaron-bogosian/
-
-**LSU has lost 5 straight season openers. Brian Kelly and the Tigers are embracing the pressure**\
-`Opening-game problems have become a symbol for LSU falling short. The 2025 opener against Clemson is a chance to "change the narrative."`\
-https://nytimes.com/athletic/6493959/2025/07/15/lsu-brian-kelly-clemson-opener-sec-media-days/
 

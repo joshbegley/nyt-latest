@@ -1,3 +1,7 @@
+**Clearer Skies Expected in Northeast as Storms Move Southward**\
+`Lingering showers were forecast in the New York City area, but heavy rain and flash flooding threats were predicted to shift south on Tuesday.`\
+https://nytimes.com/2025/07/15/nyregion/rain-storms-northeast-forecast.html
+
 **After Major Flooding in N.Y. Region, the Morning Commute May Look Pretty Normal**\
 `Transit agencies in the New York area said they were running on or close to schedule.`\
 https://nytimes.com/2025/07/15/nyregion/nyc-commute-subways-flooding.html
