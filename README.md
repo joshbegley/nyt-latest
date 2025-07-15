@@ -1,3 +1,7 @@
+**The Windup: So close to a great Home Run Derby format**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6494655/2025/07/15/cal-raleigh-hr-derby-format-the-windup/
+
 **Where Have Men Gone? Weâre Right Here.**\
 `Readers respond to a Modern Love essay that asks why so many men have retreated from dating and relationships.`\
 https://nytimes.com/2025/07/15/style/modern-love-where-have-men-gone-were-right-here.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6494067/2025/07/15/chargers-training-camp-tuli-tuip
 **Trump Administration Live Updates: President to Attend A.I. Summit in Pennsylvania**\
 ``\
 https://nytimes.com/live/2025/07/15/us/trump-news
-
-**For Big Banks, the Trump Era Is Proving Profitable Thus Far**\
-`JPMorganâs Jamie Dimon lauded the âresilientâ U.S. economy as his bank reported bumper quarterly earnings.`\
-https://nytimes.com/2025/07/15/business/jpmorgan-wells-fargo-citi-banks-economy.html
 
