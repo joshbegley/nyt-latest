@@ -1,3 +1,11 @@
+**Ben Stokes, Ravindra Jadeja and the psychology of the all-rounder, one of sport's toughest jobs**\
+`Bat, bowl, field, the cricket all-rounder has a demanding job - one that baseball star Shohei Ohtani would understand. How difficult is it?`\
+https://nytimes.com/athletic/6439742/2025/07/15/stokes-jadeja-cricket-all-rounder-psychology/
+
+**Tuesday Briefing: More Weapons for Ukraine**\
+`Plus, why Hitchcock still scares us`\
+https://nytimes.com/2025/07/15/briefing/ukraine-trump-russia-gaza-palestinians-syria.html
+
 **Nelson Semedo is still a free agent - what will his Wolves legacy be?**\
 `Wolves have been preparing for life without the right-back for some time - after a difficult start he became a popular player`\
 https://nytimes.com/athletic/6493128/2025/07/15/nelson-semedo-wolves-legacy-free-agent/
