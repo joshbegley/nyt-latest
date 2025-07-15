@@ -1,3 +1,19 @@
+**Diaz, Rashford and Nkunku: An incisive dribbler, a driving winger and a poacher. Who should Barcelona sign?**\
+`With Nico Williams off the table, which of the three men on the Catalan club's new shortlist is best suited to Hansi Flick's style of play?`\
+https://nytimes.com/athletic/6492782/2025/07/15/diaz-rashford-nkunku-who-should-barcelona-sign/
+
+**Lingering Moose Shuts Down Popular Adirondack Trail for a Month**\
+`Sickness, not stubbornness, is the most likely explanation for the animal’s “unusual behaviors,” which prompted the unusually long closure, officials said.`\
+https://nytimes.com/2025/07/15/nyregion/moose-goodman-mountain-trail.html
+
+**21 Questions About the N.Y.C. Mayor’s Race, Answered**\
+`Readers from around the world asked about Assemblyman Zohran Mamdani’s surprising primary win, its effect on national politics and how The Times covers elections.`\
+https://nytimes.com/2025/07/15/nyregion/nyc-mayor-mamdani-questions.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/15/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to your weekly guide to everything that you need to know from the summer transfer window`\
 https://nytimes.com/athletic/6492733/2025/07/15/transfer-news-latest-liverpool-manchester-united-arsenal-real-madrid-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/15/opinion/israel-gaza-holocaust-genocide-palestinia
 **The New York Times in Print for Tuesday, July 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/15/todays-new-york-times
-
-**Here’s the latest.**\
-`By Francesca Regalado, Livia Albeck-Ripka, Alexandra E. Petri and Mark Walker`\
-https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods/heres-the-latest
-
-**The New York Times International Edition in Print for Tuesday, July 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/14/todays-new-york-times-international-edition
-
-**Ben Stokes, Ravindra Jadeja and the psychology of the all-rounder, one of sport's toughest jobs**\
-`Bat, bowl, field, the cricket all-rounder has a demanding job - one that baseball star Shohei Ohtani would understand. How difficult is it?`\
-https://nytimes.com/athletic/6439742/2025/07/15/stokes-jadeja-cricket-all-rounder-psychology/
-
-**Tuesday Briefing: More Weapons for Ukraine**\
-`Plus, why Hitchcock still scares us`\
-https://nytimes.com/2025/07/15/briefing/ukraine-trump-russia-gaza-palestinians-syria.html
 
