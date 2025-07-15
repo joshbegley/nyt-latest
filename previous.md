@@ -1,3 +1,7 @@
+**‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
+`Have questions about Russia? Anton Troianovski has answers.`\
+https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
+
 **Think you understand Scottie Scheffler? Think again.**\
 `"I love getting to live out my dreams. But at the end of the day, sometimes I just don't understand the point.”`\
 https://nytimes.com/athletic/6495632/2025/07/15/scottie-scheffler-open-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
 **How to avoid dooming your roster with bad fantasy football draft picks**\
 `Avoid critical draft missteps with the help of Indiana Jones. Sort of.`\
 https://nytimes.com/athletic/6493071/2025/07/15/fantasy-football-draft-strategy-player-value-adp-projections/
-
-**The fantasy football quarterbacks to draft ... and those to avoid**\
-`Jake Ciely illustrates his fantasy football strategy to maximize value at QB in 2025.`\
-https://nytimes.com/athletic/6484015/2025/07/15/fantasy-football-draft-best-qb-rankings-values-adp/
 

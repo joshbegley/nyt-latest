@@ -1,3 +1,7 @@
+**‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
+`Have questions about Russia? Anton Troianovski has answers.`\
+https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
+
 **Think you understand Scottie Scheffler? Think again.**\
 `"I love getting to live out my dreams. But at the end of the day, sometimes I just don't understand the point.”`\
 https://nytimes.com/athletic/6495632/2025/07/15/scottie-scheffler-open-championship/
