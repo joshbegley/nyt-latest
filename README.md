@@ -1,3 +1,11 @@
+**What is CAIR, the group that Stefanik attacked?**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing/what-is-cair-the-group-that-stefanik-attacked
+
+**Newcastle sign record WSL appearance-holder Nobbs from Villa**\
+`The midfielder spent 15 seasons in the WSL, making 208 league appearances across spells at Arsenal and Aston Villa.`\
+https://nytimes.com/athletic/6495746/2025/07/15/jordan-nobbs-wsl-record-newcastle-transfers/
+
 **gws-david-corenswet-superman**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/david-corenswet-superman
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/t-magazine-best-pool-designs
 **‘Ask a Correspondent’ Starts Today With The Times’s Moscow Bureau Chief**\
 `Have questions about Russia? Anton Troianovski has answers.`\
 https://nytimes.com/2025/07/15/briefing/reader-callout-aac-moscow.html
-
-**Think you understand Scottie Scheffler? Think again.**\
-`"I love getting to live out my dreams. But at the end of the day, sometimes I just don't understand the point.”`\
-https://nytimes.com/athletic/6495632/2025/07/15/scottie-scheffler-open-championship/
-
-**Pop’s New Weepy Take on Hookup Culture**\
-`The young singer Sombr currently has two Top 40 hits, including “Back to Friends,” which continues to confound our critic.`\
-https://nytimes.com/video/podcasts/100000010284265/pops-new-weepy-take-on-hookup-culture.html
 
