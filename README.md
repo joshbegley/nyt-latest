@@ -1,3 +1,11 @@
+**In Shifting Winds, Central Oregon Wildfire Grows to Almost 30,000 Acres**\
+`The Cram wildfire grew rapidly over the weekend, threatening small communities and ranch land.`\
+https://nytimes.com/2025/07/15/us/cram-fire-central-oregon.html
+
+**Victor Wembanyama cleared to return to Spurs after blood clot**\
+`San Antonio went 21-25 in the games Wembanyama played and 13-23 in their games without him last season.`\
+https://nytimes.com/athletic/6495072/2025/07/15/victor-wembanyama-return-spurs/
+
 **Rising Inflation Underscores Risks in Trump’s New Tariff Threats**\
 `New data showing price increases last month could foreshadow even higher costs if the president imposes steep tariffs on Aug. 1.`\
 https://nytimes.com/2025/07/15/us/politics/trump-tariffs-inflation.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/15/health/trump-official-pepfar-funding-abortions-ru
 **Trump Administration Will Limit Medicare Spending on Pricey Bandages**\
 `In an about-face, the administration is cracking down on so-called skin substitutes, overused treatments that cost Medicare more than $10 billion last year.`\
 https://nytimes.com/2025/07/15/health/medicare-skin-substitutes-prices.html
-
-**‘The Pitt’ Receives 13 Emmy Nominations**\
-`The breakout medical hit received nods for outstanding drama series, lead actor, supporting actress, writing and directing for its first season.`\
-https://nytimes.com/2025/07/15/arts/television/the-pitt-emmy-nominations-noah-wyle.html
-
-**‘The Studio’ Ties Emmys Record for Most Comedy Nods in a Season**\
-`Past winners like “Hacks” and “The Bear” lost some ground this year, making Apple TV+’s Hollywood satire starring Seth Rogen the one to beat.`\
-https://nytimes.com/2025/07/15/arts/television/the-studio-emmy-nominations-comedy.html
 
