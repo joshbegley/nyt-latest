@@ -1,9 +1,9 @@
 **A 900-Year-Old Typo May Unravel a Chaucer Mystery**\
-`The Tale of Wade, twice referred to in Geoffrey Chaucer’s poems, survives only in a tiny fragment. Two academics argue a scribe’s error deepened the confusion around it.`\
+`The Tale of Wade, twice referred to in Geoffrey Chaucerâs poems, survives only in a tiny fragment. Two academics argue a scribeâs error deepened the confusion around it.`\
 https://nytimes.com/2025/07/15/world/europe/chaucer-wade-mystery.html
 
 **State Dept. Layoffs Hit Russia and Ukraine Analysts**\
-`A former senior U.S. official said it was “shortsighted” to consolidate the department’s well-respected intelligence arm.`\
+`A former senior U.S. official said it was âshortsightedâ to consolidate the departmentâs well-respected intelligence arm.`\
 https://nytimes.com/2025/07/15/us/politics/state-department-layoffs-russia-ukraine.html
 
 **Trump Administration Investigates U. of Michigan Over Foreign Funding**\
@@ -14,11 +14,11 @@ https://nytimes.com/2025/07/15/us/politics/trump-michigan-university-foreign-fun
 `A master of spoken-word performance, Gibson insisted that poetry, especially when read aloud to an audience, was a political act.`\
 https://nytimes.com/2025/07/15/arts/andrea-gibson-dead.html
 
-**Garrett Wilson, Sauce Gardner are a reminder of what has gone — and what can go — right for Jets**\
+**Garrett Wilson, Sauce Gardner are a reminder of what has gone â and what can go â right for Jets**\
 `This week the Jets signed their two young stars to lucrative contract extensions, locking them in as the new faces of the franchise.`\
 https://nytimes.com/athletic/6496611/2025/07/15/garrett-wilson-sauce-gardner-contract-extensions-jets-future/
 
-**How Much Military Aid Has the U.S. Given to Ukraine? Here’s What to Know.**\
+**How Much Military Aid Has the U.S. Given to Ukraine? Hereâs What to Know.**\
 `The United States began sending weapons to Ukraine years before Russia invaded in 2022.`\
 https://nytimes.com/2025/07/15/us/politics/trump-military-aid-explainer.html
 
@@ -31,10 +31,10 @@ https://nytimes.com/2025/07/15/us/national-guard-los-angeles-trump.html
 https://nytimes.com/2025/07/15/us/dan-serafini-baseball-pitcher-guilty-murder.html
 
 **Pelicans will fully guarantee Zion Williamson's salary for 2025-26: Sources**\
-`New Orleans included stipulations to Williamson’s contract that gave the team salary protection in the event of injuries.`\
+`New Orleans included stipulations to Williamsonâs contract that gave the team salary protection in the event of injuries.`\
 https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zion-williamsons-salary-for-2025-26-source/
 
-**Israel Attacks Syria’s Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
+**Israel Attacks Syriaâs Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
 `Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
 https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
 

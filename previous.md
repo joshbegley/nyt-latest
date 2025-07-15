@@ -1,3 +1,7 @@
+**A 900-Year-Old Typo May Unravel a Chaucer Mystery**\
+`The Tale of Wade, twice referred to in Geoffrey Chaucer’s poems, survives only in a tiny fragment. Two academics argue a scribe’s error deepened the confusion around it.`\
+https://nytimes.com/2025/07/15/world/europe/chaucer-wade-mystery.html
+
 **State Dept. Layoffs Hit Russia and Ukraine Analysts**\
 `A former senior U.S. official said it was “shortsighted” to consolidate the department’s well-respected intelligence arm.`\
 https://nytimes.com/2025/07/15/us/politics/state-department-layoffs-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zi
 **Israel Attacks Syria’s Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
 `Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
 https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
-
-**Andrew Cuomo Test Drives a Warmer, Friendlier Version of Himself**\
-`Mr. Cuomo, the former governor of New York, has vowed to run a more energetic campaign than he did in the mayoral primary, and aimed to demonstrate that on Tuesday.`\
-https://nytimes.com/2025/07/15/nyregion/andrew-cuomo-mayor-campaign.html
 
