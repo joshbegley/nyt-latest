@@ -1,3 +1,19 @@
+**‘The Pitt’ Receives 13 Emmy Nominations**\
+`The breakout medical hit received nods for outstanding drama series, lead actor, supporting actress, writing and directing for its first season.`\
+https://nytimes.com/2025/07/15/arts/television/the-pitt-emmy-nominations-noah-wyle.html
+
+**‘The Studio’ Ties Emmys Record for Most Comedy Nods in a Season**\
+`Past winners like “Hacks” and “The Bear” lost some ground this year, making Apple TV+’s Hollywood satire starring Seth Rogen the one to beat.`\
+https://nytimes.com/2025/07/15/arts/television/the-studio-emmy-nominations-comedy.html
+
+**Songs for the Heat of Peak Summer: Welcome to Lizard Season**\
+`Hear 10 songs from yeule, Momma, Four Tet and more.`\
+https://nytimes.com/2025/07/15/arts/music/amplifier-newsletter-summer-songs-lizard-season.html
+
+**Euro 2025 odds: Spain remain clear favourite, England are ahead of France**\
+`Spain remain favoured to win Euro 2025 after a dominant display in group play. England and France are top contenders in the odds.`\
+https://nytimes.com/athletic/6495672/2025/07/15/euro-2025-odds-spain-england-france/
+
 **Terry McLaurin undecided on Commanders training camp amid contract standoff**\
 `McLaurin posted 1,096 yards and 13 touchdowns last season, his first paired with Jayden Daniels at QB.`\
 https://nytimes.com/athletic/6495802/2025/07/15/terry-mclaurin-commanders-contract-training-camp-comments/
@@ -21,20 +37,4 @@ https://nytimes.com/newsgraphics/card-story/david-corenswet-superman
 **It’s a Great Time to Be a Toe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/summer-2025-fashion-trends-shoes-flip-flop
-
-**Trump’s Zigzags on Ukraine and Russia**\
-`Readers respond to the president’s latest turn in the war. Also: President Trump and Rosie O’Donnell; New Yorkers’ health; travel medical kits.`\
-https://nytimes.com/2025/07/15/opinion/trump-ukraine-russia.html
-
-**gws-colorado-comanche-national-grassland**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/colorado-comanche-national-grassland
-
-**Newcastle's Isak dilemma: Does it make any sense to sell him as they try to sign Ekitike?**\
-`Newcastle want Hugo Ekitike. Liverpool want Alexander Isak. Is there a world in which selling Isak and bringing in Ekitike makes sense?`\
-https://nytimes.com/athletic/6495213/2025/07/15/newcastle-united-transfer-alexander-isak-hugo-ekitike-analysis/
-
-**Leicester appoint Cifuentes to replace Van Nistelrooy**\
-`Van Nistelrooy won just four of his 24 matches in charge as Leicester were relegated in April with five games to spare.`\
-https://nytimes.com/athletic/6455766/2025/07/15/leicester-manager-next-marti-cifuentes/
 
