@@ -1,3 +1,7 @@
+**Potluck Desserts You Can Make in a Baking Pan**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-potluck-desserts
+
 **Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
 `Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
 https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really-cost/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/taco-bell-crunchwrap-supreme
 **gws-trail-running-beginner-tips**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/trail-running-beginner-tips
-
-**gws-superman-warner-bros-box-office**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/superman-warner-bros-box-office
 
