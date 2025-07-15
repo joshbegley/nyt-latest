@@ -2,19 +2,19 @@
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6494655/2025/07/15/cal-raleigh-hr-derby-format-the-windup/
 
-**Where Have Men Gone? Weâre Right Here.**\
+**Where Have Men Gone? We’re Right Here.**\
 `Readers respond to a Modern Love essay that asks why so many men have retreated from dating and relationships.`\
 https://nytimes.com/2025/07/15/style/modern-love-where-have-men-gone-were-right-here.html
 
-**U.S. Inflation Accelerated in June as Trumpâs Tariffs Pushed Up Prices**\
+**U.S. Inflation Accelerated in June as Trump’s Tariffs Pushed Up Prices**\
 `The Consumer Price Index rose 2.7 percent from a year ago, as the global trade war started to bite.`\
 https://nytimes.com/2025/07/15/business/cpi-report-inflation-june.html
 
-**âLetâs Talk âThe Ickââ: The Week 4 Winner of Our Summer Reading Contest**\
-`In her winning video, Chesapeake Woods, 17, offers relationship advice aimed at our human tendency toward âuncontrollable judginess.â`\
+**‘Let’s Talk “The Ick”’: The Week 4 Winner of Our Summer Reading Contest**\
+`In her winning video, Chesapeake Woods, 17, offers relationship advice aimed at our human tendency toward “uncontrollable judginess.”`\
 https://nytimes.com/2025/07/15/learning/lets-talk-the-ick-the-week-4-winner-of-our-summer-reading-contest.html
 
-**Trumpâs Shift on Ukraine Is Good News for Europe, for Now**\
+**Trump’s Shift on Ukraine Is Good News for Europe, for Now**\
 `After European leaders stepped up military spending, President Trump aligned himself more closely with them on the war. But his tariffs threats have left bruises.`\
 https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-europe-trump.html
 
