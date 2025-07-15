@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6494448/2025/07/14/sabres-bowen-byram-contract-exte
 https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
 
 **China’s Economy Grows Steadily Despite Trump’s Tariffs**\
-`Companies redirected exports through other countries to avoid U.S. tariffs, and policymakers turned up investment in manufacturing and infrastructure.`\
+`Official figures showed modest growth in the second quarter as exports shifted to other countries and Beijing invested in manufacturing and infrastructure.`\
 https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
 
 **Blowout Game**\

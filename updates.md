@@ -1,3 +1,7 @@
+**China’s Economy Grows Steadily Despite Trump’s Tariffs**\
+`Official figures showed modest growth in the second quarter as exports shifted to other countries and Beijing invested in manufacturing and infrastructure.`\
+https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
+
 **Nvidia Says U.S. Has Lifted Restrictions on A.I. Chip Sales to China**\
 `The Silicon Valley chip giant said the Trump administration, which had shut down its sales to China three months ago, had assured it that licenses for the sales would now be granted.`\
 https://nytimes.com/2025/07/14/technology/nvidia-ai-chip-sales-china.html
