@@ -1,9 +1,13 @@
+**MLB All-Stars speak on the ‘gray area’ of sports betting, social media threats**\
+`The Athletic asked about the effects of gambling during media availabilities at this year's All-Star Game. `\
+https://nytimes.com/athletic/6494316/2025/07/14/mlb-all-star-game-2025-sports-betting/
+
 **Behind Trump’s Tough Russia Talk, Doubts and Missing Details**\
 `Pentagon officials said details were still being worked out, and experts doubted Mr. Trump’s threat of huge tariffs for Russian trading partners.`\
 https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
 
-**Thief Makes Off With Unreleased Beyoncé Tracks and Set Lists, Police Say**\
-`Two members of Beyoncé’s team said that their S.U.V. was broken into on July 8 while on tour in Atlanta, the authorities said. The police said a suspect had emerged.`\
+**Unreleased Beyoncé Music Stolen During Cowboy Carter Tour in Atlanta, Police Say**\
+`Two members of Beyoncé’s team said that their S.U.V. was broken into during a tour stop on July 8, the authorities said. The police said a suspect had emerged.`\
 https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
 
 **What a Smaller Education Department Is Doing Under Trump**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.ht
 **Trump’s Fans Forgive Him Everything. Why Not Epstein?**\
 `Having nurtured conspiracy theories for his entire political career, he suddenly seems in danger of being consumed by one.`\
 https://nytimes.com/2025/07/14/opinion/trump-jeffrey-epstein-files.html
-
-**How Do You Silence a Conspiracy Theory?**\
-`President Trump is finding it hard to put the Epstein files behind him.`\
-https://nytimes.com/2025/07/14/us/politics/conspiracy-epstein-files-trump.html
 

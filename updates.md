@@ -1,3 +1,11 @@
+**Behind Trump’s Tough Russia Talk, Doubts and Missing Details**\
+`Pentagon officials said details were still being worked out, and experts doubted Mr. Trump’s threat of huge tariffs for Russian trading partners.`\
+https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
+
+**Thief Makes Off With Unreleased Beyoncé Tracks and Set Lists, Police Say**\
+`Two members of Beyoncé’s team said that their S.U.V. was broken into on July 8 while on tour in Atlanta, the authorities said. The police said a suspect had emerged.`\
+https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
+
 **Another Casualty in the Tariff Wars: The Always-in-Season Tomato**\
 `The Trump administration is adding a 17 percent tariff to a year-round grocery store staple, while funneling more business to domestic tomato growers, largely in Florida.`\
 https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html

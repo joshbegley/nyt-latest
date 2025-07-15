@@ -1,3 +1,11 @@
+**Behind Trump’s Tough Russia Talk, Doubts and Missing Details**\
+`Pentagon officials said details were still being worked out, and experts doubted Mr. Trump’s threat of huge tariffs for Russian trading partners.`\
+https://nytimes.com/2025/07/14/us/politics/trump-russia-ukraine-nato.html
+
+**Thief Makes Off With Unreleased Beyoncé Tracks and Set Lists, Police Say**\
+`Two members of Beyoncé’s team said that their S.U.V. was broken into on July 8 while on tour in Atlanta, the authorities said. The police said a suspect had emerged.`\
+https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
+
 **What a Smaller Education Department Is Doing Under Trump**\
 `Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and dispersing federal funding.`\
 https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/opinion/trump-jeffrey-epstein-files.html
 **How Do You Silence a Conspiracy Theory?**\
 `President Trump is finding it hard to put the Epstein files behind him.`\
 https://nytimes.com/2025/07/14/us/politics/conspiracy-epstein-files-trump.html
-
-**Senate Approves First Judge of Trump’s Second Term**\
-`The pace of judicial confirmations is lagging compared with the president’s first stint in office, but more are in the pipeline.`\
-https://nytimes.com/2025/07/14/us/politics/senate-first-federal-judge-trump-second-term.html
-
-**West Indies subside to 27 all out as Mitchell Starc and Australia run riot**\
-`Scott Boland also claimed a hat-trick as the home side, set 204 to win, capitulated to the lowest Test score in 70 years`\
-https://nytimes.com/athletic/6494075/2025/07/14/australia-west-indies-starc-boland-27/
 
