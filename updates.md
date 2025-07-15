@@ -1,3 +1,28 @@
+**gws-taco-bell-crunchwrap-supreme**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/taco-bell-crunchwrap-supreme
+
+**gws-trail-running-beginner-tips**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/trail-running-beginner-tips
+
+**gws-superman-warner-bros-box-office**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/superman-warner-bros-box-office
+
+**Liverpool make Isak approach to Newcastle**\
+`The Premier League champions have communicated their interest to do a deal in the region of Â£120m.
+`\
+https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
+
+**What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
+`Hereâs what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
+https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
+
+**Man City announce Toure as assistant coach after impressing at Club World Cup**\
+`The Ivorian defender was promoted in June after working with the clubâs under-18 group.`\
+https://nytimes.com/athletic/6495042/2025/07/15/kolo-toure-man-city-assistant-pep-guardiola/
+
 **Liverpool make Isak approach to Newcastle**\
 `The Premier League champions have communicated their interest to do a deal in the region of £120m.
 `\

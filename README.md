@@ -1,3 +1,7 @@
+**College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
+`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
+https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
+
 **gws-taco-bell-crunchwrap-supreme**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/taco-bell-crunchwrap-supreme
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/15/science/ocelots-opossums-friends-video.html
 https://nytimes.com/athletic/6494591/2025/07/15/pistons-summer-league-robinson-holland/
 
 **Liverpool make Isak approach to Newcastle**\
-`The Premier League champions have communicated their interest to do a deal in the region of Â£120m.
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
 `\
 https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
 
@@ -28,14 +32,10 @@ https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfe
 https://nytimes.com/video/us/100000010285497/new-york-subway-floods.html
 
 **What to Know About the Epstein Files, a Perfect Recipe for Conspiracy Theories**\
-`Hereâs what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
+`Here’s what to know about the disturbing facts and unsubstantiated suspicions that make Jeffrey Epstein, a registered sex offender, a politically potent obsession.`\
 https://nytimes.com/2025/07/15/us/politics/jeffrey-epstein-files-trump.html
 
 **Man City announce Toure as assistant coach after impressing at Club World Cup**\
-`The Ivorian defender was promoted in June after working with the clubâs under-18 group.`\
+`The Ivorian defender was promoted in June after working with the club’s under-18 group.`\
 https://nytimes.com/athletic/6495042/2025/07/15/kolo-toure-man-city-assistant-pep-guardiola/
-
-**Emmy Nominees 2025: The Updating List**\
-`Nominations for the 77th Emmy Awards will be announced on Tuesday at 11:30 a.m. ET. See below for a live list of nominees.`\
-https://nytimes.com/2025/07/15/arts/television/emmy-nominees-list-2025.html
 
