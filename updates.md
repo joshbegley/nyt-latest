@@ -1,3 +1,15 @@
+**Jannik Sinner and Iga Swiatek's doping cases hang over Wimbledon champions. Is that fair?**\
+`Their victories at the All England Club have reopened debate in tennis and the wider sporting world about their cases. Is it valid?`\
+https://nytimes.com/athletic/6493153/2025/07/15/tennis-sinner-swiatek-doping-cases-wimbledon/
+
+**Top 20 drafted NHL goalie prospects ranking: Scott Wheeler’s summer 2025 list**\
+`Yaroslav Askarov and Jacob Fowler top Wheeler's latest ranking of the NHL's top goalie prospects.`\
+https://nytimes.com/athletic/6469707/2025/07/15/nhl-goalie-prospects-rankings-summer-2025/
+
+**MLB's Home Run Derby showcases the once-viral torpedo bats — but has their moment passed?**\
+`The fabled torpedo bats were again on center stage at Monday night’s Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
+https://nytimes.com/athletic/6494560/2025/07/15/mlb-home-run-derby-torpedo-bats-fad/
+
 **What We Know About the U.S. Deal for a Weapons Pipeline to Ukraine**\
 `NATO allies will buy arms, then give them to Ukraine, President Trump said.`\
 https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-us-nato.html

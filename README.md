@@ -1,3 +1,15 @@
+**The Pulse: The year of the Dumper continues**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6493617/2025/07/15/cal-raleigh-home-run-derby-the-pulse/
+
+**Indian Police Discover a Russian Woman Living in a Cave With Two Daughters**\
+`Officials said she had spent years in the country seeking spirituality and living among nature. But she faces deportation after overstaying her visa.`\
+https://nytimes.com/2025/07/15/world/asia/india-russian-woman-cave.html
+
+**England recall Dawson after eight-year absence for fourth Test at Old Trafford**\
+`The 35-year-old played the most recent of his three Tests against South Africa in 2017 but comes in for the injured Shoaib Bashir`\
+https://nytimes.com/athletic/6494810/2025/07/15/england-dawson-bashir-old-trafford/
+
 **What We Know About the U.S. Deal for a Weapons Pipeline to Ukraine**\
 `NATO allies will buy arms, then give them to Ukraine, President Trump said.`\
 https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-us-nato.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6493959/2025/07/15/lsu-brian-kelly-clemson-opener-s
 **Welcome to Portrush and a distinctly Irish Open Championship**\
 `"Look, it is a big event for all us Irish people here this week. It's huge," Shane Lowry said.`\
 https://nytimes.com/athletic/6493978/2025/07/15/open-championship-portrush-northern-ireland/
-
-**How to watch the MLB All-Star Game: AL is a slight favorite in Atlanta**\
-`The 95th edition of the MLB All-Star Game will feature a new twist, and bring back an old tradition, on Tuesday night in Atlanta. `\
-https://nytimes.com/athletic/6493920/2025/07/15/mlb-all-star-game-how-to-watch-odds-mvp/
-
-**As NBA's board of governors meets Tuesday, is it ready to move forward on expansion?**\
-`The appetite for adding new NBA teams might not be as strong as previously believed.`\
-https://nytimes.com/athletic/6494171/2025/07/15/nba-expansion-board-of-governors-meeting/
-
-**Finally, Another Woman Designer Gets a Big Brand**\
-`Meryll Rogge takes over at Marni, halting a backward trend.`\
-https://nytimes.com/2025/07/15/style/meryll-rogge-marni.html
 
