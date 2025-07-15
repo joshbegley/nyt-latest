@@ -1,3 +1,11 @@
+**China’s Economy Grows Steadily Despite Trump’s Tariffs**\
+`Companies redirected exports through other countries to avoid U.S. tariffs and policymakers turned up investment in manufacturing and infrastructure.`\
+https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
+
+**Blowout Game**\
+`Daniel Britt makes a fantastic debut.`\
+https://nytimes.com/2025/07/14/crosswords/daily-puzzle-2025-07-15.html
+
 **Appeals Court Keeps Afghans’ Deportation Protections in Place for Now**\
 `A short, unsigned order by the Fourth Circuit Court of Appeals in Virginia blocked the Trump administration’s move to terminate deportation protections until next week.`\
 https://nytimes.com/2025/07/14/us/politics/afghanistan-tps-migrants-deportation.html

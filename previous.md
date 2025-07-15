@@ -1,3 +1,11 @@
+**China’s Economy Grows Steadily Despite Trump’s Tariffs**\
+`Companies redirected exports through other countries to avoid U.S. tariffs and policymakers turned up investment in manufacturing and infrastructure.`\
+https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
+
+**Blowout Game**\
+`Daniel Britt makes a fantastic debut.`\
+https://nytimes.com/2025/07/14/crosswords/daily-puzzle-2025-07-15.html
+
 **Appeals Court Keeps Afghans’ Deportation Protections in Place for Now**\
 `A short, unsigned order by the Fourth Circuit Court of Appeals in Virginia blocked the Trump administration’s move to terminate deportation protections until next week.`\
 https://nytimes.com/2025/07/14/us/politics/afghanistan-tps-migrants-deportation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/14/us/beyonce-unreleased-music-stolen-atlanta.html
 **What a Smaller Education Department Is Doing Under Trump**\
 `Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and disbursing federal funding.`\
 https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
-
-**Sixers' Paul George undergoes successful surgery to treat left knee injury**\
-`The Philadelphia 76ers will re-evaulate George before the start of training camp, the team said Monday.`\
-https://nytimes.com/athletic/6494239/2025/07/14/paul-george-left-knee-injury-surgery/
-
-**'They're not happy': Jacob Misiorowski discusses Phillies' pushback on All-Star Game nod**\
-`“So, for this young kid to be named an All-Star, I couldn't be more excited for him," Los Angeles Dodgers manager Dave Roberts said.`\
-https://nytimes.com/athletic/6494156/2025/07/14/brewers-jacob-misiorowski-all-star-pushback-phillies-dodgers/
 
