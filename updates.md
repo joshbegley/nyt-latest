@@ -1,3 +1,19 @@
+**Man City sign new Puma deal: Analysing the £100m per season kit partnership**\
+`The sportswear manufacturer has been making City’s shirts since the 2019-20 season.`\
+https://nytimes.com/athletic/6494730/2025/07/15/manchester-city-puma-kit/
+
+**Seth Meyers Is Amused by MAGA’s Epstein Infighting**\
+`President Trump’s most conspiracy-minded supporters can’t believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
+https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
+
+**Lingering Moose Shuts Down Popular Adirondack Trail for a Month**\
+`Sickness, not stubbornness, is the most likely explanation for the animal’s “unusual behaviors,” which prompted the unusually long closure, officials said.`\
+https://nytimes.com/2025/07/15/nyregion/moose-goodman-mountain-trail.html
+
+**21 Questions About the N.Y.C. Mayor’s Race, Answered**\
+`Readers from around the world asked about Assemblyman Zohran Mamdani’s surprising primary win, its effect on national politics and how The Times covers elections.`\
+https://nytimes.com/2025/07/15/nyregion/nyc-mayor-mamdani-questions.html
+
 **Ekitike to Newcastle - the key questions answered**\
 `Can they afford him? What would the deal mean for Isak? Our reporters dissect the news Newcastle are in talks to sign the French forward`\
 https://nytimes.com/athletic/6494725/2025/07/15/hugo-ekitike-newcastle-key-questions-answered/
