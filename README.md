@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6488279/2025/07/15/mets-francisco-lindor-mlb-all-st
 `Their victories at the All England Club have reopened debate in tennis and the wider sporting world about their cases. Is it valid?`\
 https://nytimes.com/athletic/6493153/2025/07/15/tennis-sinner-swiatek-doping-cases-wimbledon/
 
-**Would Europe Actually Retaliate Against Trump’s Tariffs?**\
+**Would Europe Actually Retaliate Against Trumpâs Tariffs?**\
 `European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
 https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
 
@@ -27,7 +27,7 @@ https://nytimes.com/2025/07/15/us/texas-flood-camp-reopens.html
 https://nytimes.com/2025/07/15/opinion/trump-authoritarianism-republican-party-democracy.html
 
 **2025 Emmy Nominations to Be Announced**\
-`The nominees will be announced at the Television Academy’s Los Angeles headquarters.`\
+`The nominees will be announced at the Television Academyâs Los Angeles headquarters.`\
 https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
 
 **Democrats Are Workshopping New Tactics After Losses of 2024**\
