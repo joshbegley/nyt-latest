@@ -1,3 +1,16 @@
+**Dismissals at Justice Dept. Seek to Bypass Civil Service and Whistle-Blower Laws**\
+`In court filings and dismissal letters, the Justice Department’s political leadership claims sweeping authority to fire career law enforcement officials without cause.`\
+https://nytimes.com/2025/07/15/us/politics/justice-department-dismissals-civil-service-laws.html
+
+**Georgia coach Kirby Smart: 'Just don't see' Nick Saban coaching again**\
+`"I don't think Nick's coming back. I think he's too happy where he is,” Smart said.`\
+https://nytimes.com/athletic/6495142/2025/07/15/kirby-smart-nick-saban-coaching-sec-media-days/
+
+**Liverpool make Isak approach to Newcastle**\
+`The Premier League champions have communicated their interest to do a deal in the region of £120m.
+`\
+https://nytimes.com/athletic/6495057/2025/07/15/alexander-isak-liverpool-transfer-newcastle/
+
 **Liverpool make Isak approach to Newcastle**\
 `The Premier League champions have communicated their interest to do a deal in the region of £120m.
 `\
