@@ -1,3 +1,11 @@
+**Why Newcastle want Hugo Ekitike and how he would fit in alongside Alexander Isak**\
+`The 6ft 3in forward is one of the quickest players in the Bundesliga, surprisingly effective in the air and could work in tandem with Isak`\
+https://nytimes.com/athletic/6493741/2025/07/15/ekitike-newcastle-isak-eintracht-frankfurt/
+
+**Why do world champions Spain have so little Euros pedigree?**\
+`The Spanish are favourites to win this tournament but it is 28 years since they made its semis, and even that came in an eight-team finals`\
+https://nytimes.com/athletic/6488328/2025/07/15/spain-womens-euros-history/
+
 **Live Updates: Storm Drenches New York City, Flooding Subway and Highways**\
 `A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6494473/2025/07/14/womens-euros-wafcon-copa-full-ti
 **Flanked by his family, Mariners' Cal Raleigh wins 2025 MLB Home Run Derby**\
 `With a final round total of 18, Cal Raleigh won this year's competition, taking home the $1 million prize and a custom Home Run Derby chain.`\
 https://nytimes.com/athletic/6493548/2025/07/14/mlb-2025-home-run-derby-winner/
-
-**Sabres, Byram agree to 2-year extension with $6.25 million cap hit**\
-`The Sabres have avoided arbitration with defenseman Bowen Byram, who was a restricted free agent.`\
-https://nytimes.com/athletic/6494448/2025/07/14/sabres-bowen-byram-contract-extension/
-
-**Players' associations unite to oppose bill granting NCAA antitrust exemption**\
-`Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
-https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
 

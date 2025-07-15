@@ -1,3 +1,11 @@
+**Live Updates: Storm Drenches New York City, Flooding Subway and Highways**\
+`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
+https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
+
+**Israel and Iran Usher In New Era of Psychological Warfare**\
+`The 12-day conflict was marked by a flurry of propaganda, disinformation and covert operations aided by artificial intelligence and spread by social media.`\
+https://nytimes.com/2025/07/15/technology/israel-iran-psychological-warfare.html
+
 **Corrections: July 15, 2025**\
 `Corrections that appeared in print on Tuesday, July 15, 2025.`\
 https://nytimes.com/2025/07/14/pageoneplus/corrections-july-15-2025.html
