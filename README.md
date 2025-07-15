@@ -1,3 +1,19 @@
+**Men's college basketball's best of the quarter-century: Make your picks**\
+`As we make our picks for the best of the quarter-century in men's college basketball, we want to hear yours, too.`\
+https://nytimes.com/athletic/6495230/2025/07/15/best-college-basketball-players-coaches-teams-survey/
+
+**At Salzburg, a Modern Opera About Timeless Dreams and Realities**\
+`Peter Eotvos’s “Three Sisters,” based on the 1900 play by Anton Chekhov, is at the festival this year for the first time.`\
+https://nytimes.com/2025/07/15/arts/music/opera-salzburg-festival-chekhov.html
+
+**A Soprano Who’s Ready for Tragedy and Comedy at the Salzburg Festival**\
+`Asmik Grigorian will return to the role of Lady Macbeth in Verdi’s “Macbeth” and present her pop-infused comic recital “A Diva Is Born.”`\
+https://nytimes.com/2025/07/15/arts/music/opera-soprano-asmik-grigorian.html
+
+**Men Who Felled Sycamore Gap Tree Are Given Prison Sentences in U.K.**\
+`The tree, a beloved landmark that stood by Hadrian’s Wall in northern England, was found illegally cut down in 2023.`\
+https://nytimes.com/2025/07/15/world/europe/sycamore-gap-tree-sentencing-prison.html
+
 **Submit your Ohio State questions for Cameron Teague Robinson’s mailbag**\
 `The 2025 Ohio State football season is rapidly approaching, with less than 50 days until Texas visits Columbus. What's on your mind?`\
 https://nytimes.com/athletic/6495303/2025/07/15/ohio-state-football-mailbag-questions-9/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/15/world/middleeast/netanyahu-ultra-orthodox-draft.h
 **Kennedy Claims Doctors Profit Off Vaccines. In Fact, Many Lose Money on Them.**\
 `Experts said the health secretary’s remarks send a dangerous message: Don’t trust your physician.`\
 https://nytimes.com/2025/07/15/well/rfk-jr-doctors-vaccines-profit-fact-check.html
-
-**Mamdani Prepares to Meet With the City’s Wary Business Leaders**\
-`On Tuesday, Zohran Mamdani, a democratic socialist running for mayor, will meet with the who’s who of the corporate world as he prepares for the general election.`\
-https://nytimes.com/2025/07/15/business/mamdani-nyc-business-leaders.html
-
-**The Bounce: Cooper Flagg, Dylan Harper and NBA's next big thing highlight Vegas Summer League notes**\
-`What are the best parts of this year's Vegas Summer League action? Zach Harper narrows the list down to 15 key observations`\
-https://nytimes.com/athletic/6494950/2025/07/15/cooper-flagg-mavericks-dylan-harper-spurs-yang-hansen-trail-blazers-nba-draft-the-bounce/
-
-**He’s Bringing Rossini to Philadelphia and ‘West Side Story’ to Rome**\
-`The Italian director Damiano Michieletto has engaged, and sometimes enraged, European audiences. Now he’s preparing for his debut at a major U.S. opera company.`\
-https://nytimes.com/2025/07/15/arts/music/damiano-michieletto-opera.html
-
-**McTavish an offer sheet candidate, Canes should let Ehlers cook: NHL offseason notebook**\
-`There are still a few offer sheet-eligible players worth keeping an eye on this summer; checking in on more potential roster moves/`\
-https://nytimes.com/athletic/6493853/2025/07/15/nhl-offseason-notebook/
 
