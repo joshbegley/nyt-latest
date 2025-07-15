@@ -1,3 +1,7 @@
+**Players' associations unite to oppose bill granting NCAA antitrust exemption**\
+`Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
+https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
+
 **China’s Economy Grows Steadily Despite Trump’s Tariffs**\
 `Companies redirected exports through other countries to avoid U.S. tariffs, and policymakers turned up investment in manufacturing and infrastructure.`\
 https://nytimes.com/2025/07/14/business/china-economy-gdp-q2.html
