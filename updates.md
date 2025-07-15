@@ -1,3 +1,15 @@
+**The Waldorf Astoria Reopens With Lex Yard, Yoshoku and Peacock Alley**\
+`The newly renovated hotel sports three new restaurants, including a flagship brasserie named after the train line that runs under the hotel.`\
+https://nytimes.com/2025/07/15/dining/nyc-restaurant-news.html
+
+**How to avoid dooming your roster with bad fantasy football draft picks**\
+`Avoid critical draft missteps with the help of Indiana Jones. Sort of.`\
+https://nytimes.com/athletic/6493071/2025/07/15/fantasy-football-draft-strategy-player-value-adp-projections/
+
+**The fantasy football quarterbacks to draft ... and those to avoid**\
+`Jake Ciely illustrates his fantasy football strategy to maximize value at QB in 2025.`\
+https://nytimes.com/athletic/6484015/2025/07/15/fantasy-football-draft-best-qb-rankings-values-adp/
+
 **West Ham sign Diouf from Slavia Prague**\
 `The 20-year-old defender becomes the club's first signing of the summer transfer window.`\
 https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/

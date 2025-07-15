@@ -15,11 +15,11 @@ https://nytimes.com/athletic/6484015/2025/07/15/fantasy-football-draft-best-qb-r
 https://nytimes.com/athletic/6491193/2025/07/15/west-ham-transfers-el-hadji-malick-diouf/
 
 **Mayor Adams Loses Another Round in Bid to Receive Public Matching Funds**\
-`The New York City Campaign Finance Board rejected Mayor Eric Adams’s request for millions of dollars from the city’s generous matching-funds program.`\
+`The New York City Campaign Finance Board rejected Mayor Eric Adamsâs request for millions of dollars from the cityâs generous matching-funds program.`\
 https://nytimes.com/2025/07/15/nyregion/eric-adams-nyc-mayor-matching-funds.html
 
-**Three Aid Workers Were ‘Intentionally Killed’ in Ethiopia, M.S.F. Says**\
-`The aid group accused Ethiopia’s government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
+**Three Aid Workers Were âIntentionally Killedâ in Ethiopia, M.S.F. Says**\
+`The aid group accused Ethiopiaâs government of failing to properly investigate the slayings, which took place in the Tigray region in 2021. A New York Times investigation found that Ethiopian soldiers were responsible.`\
 https://nytimes.com/2025/07/15/world/africa/ethiopia-tigray-msf.html
 
 **Jorge Jesus says Ronaldo invitation key in Al Nassr appointment**\
