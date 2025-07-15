@@ -1,3 +1,7 @@
+**Seth Meyers Is Amused by MAGA’s Epstein Infighting**\
+`President Trump’s most conspiracy-minded supporters can’t believe he wants them to forget about the Jeffrey Epstein conspiracy theories.`\
+https://nytimes.com/2025/07/15/arts/television/seth-meyers-jeffrey-epstein-trump.html
+
 **Diaz, Rashford and Nkunku: An incisive dribbler, a driving winger and a poacher. Who should Barcelona sign?**\
 `With Nico Williams off the table, which of the three men on the Catalan club's new shortlist is best suited to Hansi Flick's style of play?`\
 https://nytimes.com/athletic/6492782/2025/07/15/diaz-rashford-nkunku-who-should-barcelona-sign/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/learning/word-of-the-day-pungent.html
 **I’m a Genocide Scholar. I Know It When I See It.**\
 `A scholar of genocide comes to a painful conclusion about Israel’s actions in Gaza.`\
 https://nytimes.com/2025/07/15/opinion/israel-gaza-holocaust-genocide-palestinians.html
-
-**The New York Times in Print for Tuesday, July 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/15/todays-new-york-times
 
