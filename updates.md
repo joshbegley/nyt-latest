@@ -1,3 +1,7 @@
+**Nvidia Says U.S. Has Lifted Restrictions on A.I. Chip Sales to China**\
+`The Silicon Valley chip giant said the Trump administration, which had shut down its sales to China three months ago, had assured it that licenses for the sales would now be granted.`\
+https://nytimes.com/2025/07/14/technology/nvidia-ai-chip-sales-china.html
+
 **Players' associations unite to oppose bill granting NCAA antitrust exemption**\
 `Five major U.S. players’ associations warned an antitrust exemption would permit the NCAA and its members to “collude to harm athletes.”`\
 https://nytimes.com/athletic/6494331/2025/07/14/score-act-nil-players-associations-opposition-letter/
