@@ -1,3 +1,11 @@
+**Judge Orders Release of Iranian Arrested in Louisiana After U.S. Bombed Iran**\
+`Pouria Pourhosseinhendabad, a doctoral student studying mechanical engineering at Louisiana State University, was arrested along with his wife, in what his lawyers call “an unconstitutional ruse.”`\
+https://nytimes.com/2025/07/14/us/politics/iran-student-released-louisiana.html
+
+**NASA Website Will Not Provide Previous National Climate Reports**\
+`An agency spokeswoman had initially stated that NASA would retain earlier assessments online for continuity.`\
+https://nytimes.com/2025/07/14/climate/nasa-website-climate-report.html
+
 **What a Smaller Education Department Is Doing Under Trump**\
 `Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and disbursing federal funding.`\
 https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
