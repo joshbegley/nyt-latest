@@ -1,3 +1,11 @@
+**For Big Banks, the Trump Era Is Proving Profitable Thus Far**\
+`JPMorgan’s Jamie Dimon lauded the “resilient” U.S. economy as his bank reported bumper quarterly earnings.`\
+https://nytimes.com/2025/07/15/business/jpmorgan-wells-fargo-citi-banks-economy.html
+
+**Magnus Carlsen is chess' powerful disruptor and he wants to go mainstream: 'Change is needed'**\
+`Magnus Carlsen says the furore around him wearing jeans at a chess tournament was 'pure insanity'`\
+https://nytimes.com/athletic/6493943/2025/07/15/magnus-carlsen-interview-freestyle-chess-grand-slam-tour/
+
 **TAFC: The art of selling your best player and Newcastle's Hugo Ekitike move**\
 `Today in TAFC: The subtle art of selling your best player plus the goalkeeper shining despite having almost no depth perception`\
 https://nytimes.com/athletic/6494886/2025/07/15/athletic-fc-newsletter-ekitike-yamal-hampton/

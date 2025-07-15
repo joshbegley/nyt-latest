@@ -1,3 +1,11 @@
+**For Big Banks, the Trump Era Is Proving Profitable Thus Far**\
+`JPMorgan’s Jamie Dimon lauded the “resilient” U.S. economy as his bank reported bumper quarterly earnings.`\
+https://nytimes.com/2025/07/15/business/jpmorgan-wells-fargo-citi-banks-economy.html
+
+**Magnus Carlsen is chess' powerful disruptor and he wants to go mainstream: 'Change is needed'**\
+`Magnus Carlsen says the furore around him wearing jeans at a chess tournament was 'pure insanity'`\
+https://nytimes.com/athletic/6493943/2025/07/15/magnus-carlsen-interview-freestyle-chess-grand-slam-tour/
+
 **TAFC: The art of selling your best player and Newcastle's Hugo Ekitike move**\
 `Today in TAFC: The subtle art of selling your best player plus the goalkeeper shining despite having almost no depth perception`\
 https://nytimes.com/athletic/6494886/2025/07/15/athletic-fc-newsletter-ekitike-yamal-hampton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6494048/2025/07/15/matthew-boyd-all-star-cubs/
 **Ten Ravens storylines entering training camp: When will Lamar Jackson get extended?**\
 `Ranking the storylines that will dominate discussions ahead of Baltimore's regular-season opener against Buffalo. `\
 https://nytimes.com/athletic/6488073/2025/07/15/ravens-biggest-storylines-training-camp/
-
-**Meet the Red Sox's 2025 draftees: Breaking down the 21 players selected**\
-`Of 21 draftees, Boston selected 15 pitchers, all collegiate arms, and only one high school player across the board.`\
-https://nytimes.com/athletic/6493446/2025/07/15/boston-red-sox-2025-draftees/
-
-**Q&A with Alan Millar, the new — and first — GM of Hockey Canada's Program of Excellence**\
-`In his role, Millar will be the top voice and roster-builder for Canada's World Junior teams.`\
-https://nytimes.com/athletic/6493491/2025/07/15/hockey-canada-alan-millar-world-juniors/
 
