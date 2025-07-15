@@ -1,9 +1,13 @@
-**Top 20 drafted NHL goalie prospects ranking: Scott Wheeler’s summer 2025 list**\
+**What We Know About the U.S. Deal for a Weapons Pipeline to Ukraine**\
+`NATO allies will buy arms, then give them to Ukraine, President Trump said.`\
+https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-us-nato.html
+
+**Top 20 drafted NHL goalie prospects ranking: Scott Wheelerâs summer 2025 list**\
 `Yaroslav Askarov and Jacob Fowler top Wheeler's latest ranking of the NHL's top goalie prospects.`\
 https://nytimes.com/athletic/6469707/2025/07/15/nhl-goalie-prospects-rankings-summer-2025/
 
-**MLB's Home Run Derby showcases the once-viral torpedo bats — but has their moment passed?**\
-`The fabled torpedo bats were again on center stage at Monday night’s Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
+**MLB's Home Run Derby showcases the once-viral torpedo bats â but has their moment passed?**\
+`The fabled torpedo bats were again on center stage at Monday nightâs Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
 https://nytimes.com/athletic/6494560/2025/07/15/mlb-home-run-derby-torpedo-bats-fad/
 
 **How Wild's Navy SEAL 'big brother' teaches players to overcome adversity**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/style/meryll-rogge-marni.html
 **Meet the artist who created Bernie Williams' 'most cherished' possession**\
 `Charles Fazzino creates custom art for baseball's biggest players and events, including Pete Alonso, Bernie Williams and the All-Star Game.`\
 https://nytimes.com/athletic/6490550/2025/07/15/mlb-all-star-game-artist-charles-fazzino/
-
-**Did the Texas Floods Have to Be This Deadly?**\
-`Questions have mounted about the handling of the critical hours before and during the devastating storm. Here’s what we know.`\
-https://nytimes.com/2025/07/15/podcasts/the-daily/texas-floods-camp-mystic.html
 

@@ -2,12 +2,16 @@
 `NATO allies will buy arms, then give them to Ukraine, President Trump said.`\
 https://nytimes.com/2025/07/15/world/europe/ukraine-weapons-us-nato.html
 
-**Top 20 drafted NHL goalie prospects ranking: Scott Wheelerâs summer 2025 list**\
+**Jannik Sinner and Iga Swiatek's doping cases hang over Wimbledon champions. Is that fair?**\
+`Their victories at the All England Club have reopened debate in tennis and the wider sporting world about their cases. Is it valid?`\
+https://nytimes.com/athletic/6493153/2025/07/15/tennis-sinner-swiatek-doping-cases-wimbledon/
+
+**Top 20 drafted NHL goalie prospects ranking: Scott Wheeler’s summer 2025 list**\
 `Yaroslav Askarov and Jacob Fowler top Wheeler's latest ranking of the NHL's top goalie prospects.`\
 https://nytimes.com/athletic/6469707/2025/07/15/nhl-goalie-prospects-rankings-summer-2025/
 
-**MLB's Home Run Derby showcases the once-viral torpedo bats â but has their moment passed?**\
-`The fabled torpedo bats were again on center stage at Monday nightâs Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
+**MLB's Home Run Derby showcases the once-viral torpedo bats — but has their moment passed?**\
+`The fabled torpedo bats were again on center stage at Monday night’s Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
 https://nytimes.com/athletic/6494560/2025/07/15/mlb-home-run-derby-torpedo-bats-fad/
 
 **How Wild's Navy SEAL 'big brother' teaches players to overcome adversity**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6494171/2025/07/15/nba-expansion-board-of-governors
 **Finally, Another Woman Designer Gets a Big Brand**\
 `Meryll Rogge takes over at Marni, halting a backward trend.`\
 https://nytimes.com/2025/07/15/style/meryll-rogge-marni.html
-
-**Meet the artist who created Bernie Williams' 'most cherished' possession**\
-`Charles Fazzino creates custom art for baseball's biggest players and events, including Pete Alonso, Bernie Williams and the All-Star Game.`\
-https://nytimes.com/athletic/6490550/2025/07/15/mlb-all-star-game-artist-charles-fazzino/
 
