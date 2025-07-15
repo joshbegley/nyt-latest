@@ -1,5 +1,17 @@
+**Nelson Semedo is still a free agent - what will his Wolves legacy be?**\
+`Wolves have been preparing for life without the right-back for some time - after a difficult start he became a popular player`\
+https://nytimes.com/athletic/6493128/2025/07/15/nelson-semedo-wolves-legacy-free-agent/
+
+**John MacArthur, Firebrand Preacher and Culture Warrior, Dies at 86**\
+`He was a theologically uncompromising pastor in Southern California who influenced generations of evangelical preachers.`\
+https://nytimes.com/2025/07/15/us/john-macarthur-dead.html
+
+**Padraig Harrington: Champion golfer. Open veteran. YouTube sensation.**\
+`The Irishman is a two-time winner of The Open - and believes it is bigger and better than ever after matching the U.S. majors`\
+https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the-open/
+
 **Gianni Infantino has won**\
-`You donât have to salute FIFA's president for pulling off the Club World Cup, but it wasnât cancelled, and nor did it fail`\
+`You don’t have to salute FIFA's president for pulling off the Club World Cup, but it wasn’t cancelled, and nor did it fail`\
 https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
 
 **How can a goalkeeper with almost no depth perception play at the top level?**\
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6493741/2025/07/15/ekitike-newcastle-isak-eintracht
 `The Spanish are favourites to win this tournament but it is 28 years since they made its semis, and even that came in an eight-team finals`\
 https://nytimes.com/athletic/6488328/2025/07/15/spain-womens-euros-history/
 
-**Live Updates: Flash Flooding from Storm Swamps N.Y.C. Subways and Delays Flights**\
-`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the northeast.`\
+**Live Updates: Flash Flooding From Storm Swamps N.Y.C. Subway and Delays Flights**\
+`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the Northeast.`\
 https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
-
-**Israel and Iran Usher In New Era of Psychological Warfare**\
-`The 12-day conflict was marked by a flurry of propaganda, disinformation and covert operations aided by artificial intelligence and spread by social media.`\
-https://nytimes.com/2025/07/15/technology/israel-iran-psychological-warfare.html
-
-**Corrections: July 15, 2025**\
-`Corrections that appeared in print on Tuesday, July 15, 2025.`\
-https://nytimes.com/2025/07/14/pageoneplus/corrections-july-15-2025.html
-
-**Quote of the Day: Ever Hotter, Southern Europe Dreams of Fjords**\
-`Quotation of the Day for Tuesday, July 15, 2025.`\
-https://nytimes.com/2025/07/14/pageoneplus/quote-of-the-day-ever-hotter-southern-europe-dreams-of-fjords.html
 

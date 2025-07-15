@@ -1,3 +1,11 @@
+**Ben Stokes, Ravindra Jadeja and the psychology of the all-rounder, one of sport's toughest jobs**\
+`Bat, bowl, field, the cricket all-rounder has a demanding job - one that baseball star Shohei Ohtani would understand. How difficult is it?`\
+https://nytimes.com/athletic/6439742/2025/07/15/stokes-jadeja-cricket-all-rounder-psychology/
+
+**Tuesday Briefing: More Weapons for Ukraine**\
+`Plus, why Hitchcock still scares us`\
+https://nytimes.com/2025/07/15/briefing/ukraine-trump-russia-gaza-palestinians-syria.html
+
 **Nelson Semedo is still a free agent - what will his Wolves legacy be?**\
 `Wolves have been preparing for life without the right-back for some time - after a difficult start he became a popular player`\
 https://nytimes.com/athletic/6493128/2025/07/15/nelson-semedo-wolves-legacy-free-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493120/2025/07/15/club-world-cup-review/
 **Why Newcastle want Hugo Ekitike and how he would fit in alongside Alexander Isak**\
 `The 6ft 3in forward is one of the quickest players in the Bundesliga, surprisingly effective in the air and could work in tandem with Isak`\
 https://nytimes.com/athletic/6493741/2025/07/15/ekitike-newcastle-isak-eintracht-frankfurt/
-
-**Why do world champions Spain have so little Euros pedigree?**\
-`The Spanish are favourites to win this tournament but it is 28 years since they made its semis, and even that came in an eight-team finals`\
-https://nytimes.com/athletic/6488328/2025/07/15/spain-womens-euros-history/
-
-**Live Updates: Flash Flooding From Storm Swamps N.Y.C. Subway and Delays Flights**\
-`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the Northeast.`\
-https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
 

@@ -1,3 +1,23 @@
+**Nelson Semedo is still a free agent - what will his Wolves legacy be?**\
+`Wolves have been preparing for life without the right-back for some time - after a difficult start he became a popular player`\
+https://nytimes.com/athletic/6493128/2025/07/15/nelson-semedo-wolves-legacy-free-agent/
+
+**John MacArthur, Firebrand Preacher and Culture Warrior, Dies at 86**\
+`He was a theologically uncompromising pastor in Southern California who influenced generations of evangelical preachers.`\
+https://nytimes.com/2025/07/15/us/john-macarthur-dead.html
+
+**Padraig Harrington: Champion golfer. Open veteran. YouTube sensation.**\
+`The Irishman is a two-time winner of The Open - and believes it is bigger and better than ever after matching the U.S. majors`\
+https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the-open/
+
+**Gianni Infantino has won**\
+`You don’t have to salute FIFA's president for pulling off the Club World Cup, but it wasn’t cancelled, and nor did it fail`\
+https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
+
+**Live Updates: Flash Flooding From Storm Swamps N.Y.C. Subway and Delays Flights**\
+`A storm system was bringing heavy rain to New Jersey and New York, with flash flood warnings across the Northeast.`\
+https://nytimes.com/live/2025/07/15/nyregion/new-york-jersey-floods
+
 **Gianni Infantino has won**\
 `You donât have to salute FIFA's president for pulling off the Club World Cup, but it wasnât cancelled, and nor did it fail`\
 https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
