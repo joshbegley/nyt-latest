@@ -1,40 +1,40 @@
-**Air India Crash Findings Prompt Inspections of Boeing Fuel Switches**\
-`Airlines in India, Singapore and South Korea were inspecting fuel control switches on their Boeing jets.`\
-https://nytimes.com/2025/07/15/world/asia/air-india-plane-crash-fuel-switch-boeing.html
+**Top 20 drafted NHL goalie prospects ranking: Scott Wheeler’s summer 2025 list**\
+`Yaroslav Askarov and Jacob Fowler top Wheeler's latest ranking of the NHL's top goalie prospects.`\
+https://nytimes.com/athletic/6469707/2025/07/15/nhl-goalie-prospects-rankings-summer-2025/
 
-**A Horror Star Returns With a Sweeping, Witchy Mystery**\
-`In Silvia Moreno-Garcia’s “The Bewitching,” a graduate student stumbles into a haunting conspiracy while researching a cult writer.`\
-https://nytimes.com/2025/07/15/books/review/the-bewitching-silvia-moreno-garcia.html
+**MLB's Home Run Derby showcases the once-viral torpedo bats — but has their moment passed?**\
+`The fabled torpedo bats were again on center stage at Monday night’s Home Run Derby, as the Mariners' Cal Raleigh took home the title.`\
+https://nytimes.com/athletic/6494560/2025/07/15/mlb-home-run-derby-torpedo-bats-fad/
 
-**In Northern Ireland, Fire Has Long Been Used as a Weapon of Fear**\
-`A bonfire topped with an effigy of a migrant boat. Homes set alight. During the Troubles, similar tactics were used to target Irish Catholics in the territory.`\
-https://nytimes.com/2025/07/15/world/europe/northern-ireland-bonfire-arson-ballymena-riots.html
+**How Wild's Navy SEAL 'big brother' teaches players to overcome adversity**\
+`Aaron Bogosian draws on experience as a former pro hockey player as well as his military experience to assess and develop Wild prospects`\
+https://nytimes.com/athletic/6471625/2025/07/15/minnesota-wild-nhl-players-navy-seal-aaron-bogosian/
 
-**The New York Times International Edition in Print for Wednesday, July 16, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/15/todays-new-york-times-international-edition
+**LSU has lost 5 straight season openers. Brian Kelly and the Tigers are embracing the pressure**\
+`Opening-game problems have become a symbol for LSU falling short. The 2025 opener against Clemson is a chance to "change the narrative."`\
+https://nytimes.com/athletic/6493959/2025/07/15/lsu-brian-kelly-clemson-opener-sec-media-days/
 
-**Why did it take this long for Francisco Lindor to make the All-Star Game with the Mets?**\
-`Lindor ranks among the best shortstops in the game, so explaining his recent All-Star snubs requires some digging. `\
-https://nytimes.com/athletic/6488279/2025/07/15/mets-francisco-lindor-mlb-all-star/
+**Welcome to Portrush and a distinctly Irish Open Championship**\
+`"Look, it is a big event for all us Irish people here this week. It's huge," Shane Lowry said.`\
+https://nytimes.com/athletic/6493978/2025/07/15/open-championship-portrush-northern-ireland/
 
-**Jannik Sinner and Iga Swiatek's doping cases hang over Wimbledon champions. Is that fair?**\
-`Their victories at the All England Club have reopened debate in tennis and the wider sporting world about their cases. Is it valid?`\
-https://nytimes.com/athletic/6493153/2025/07/15/tennis-sinner-swiatek-doping-cases-wimbledon/
+**How to watch the MLB All-Star Game: AL is a slight favorite in Atlanta**\
+`The 95th edition of the MLB All-Star Game will feature a new twist, and bring back an old tradition, on Tuesday night in Atlanta. `\
+https://nytimes.com/athletic/6493920/2025/07/15/mlb-all-star-game-how-to-watch-odds-mvp/
 
-**Would Europe Actually Retaliate Against Trump’s Tariffs?**\
-`European Union officials have drawn up plans to impose levies on American imports, but questions abound about whether they would go through with them.`\
-https://nytimes.com/2025/07/15/world/europe/eu-tariffs-trump-us-retaliate.html
+**As NBA's board of governors meets Tuesday, is it ready to move forward on expansion?**\
+`The appetite for adding new NBA teams might not be as strong as previously believed.`\
+https://nytimes.com/athletic/6494171/2025/07/15/nba-expansion-board-of-governors-meeting/
 
-**A Summer Camp Reopens in the Texas Hill Country**\
-`Barely a week after devastating floods destroyed Camp Mystic and killed at least 132, Camp CAMP, which serves disabled youth, reopened Monday, thanks to a herculean cleanup led by a volunteer army.`\
-https://nytimes.com/2025/07/15/us/texas-flood-camp-reopens.html
+**Finally, Another Woman Designer Gets a Big Brand**\
+`Meryll Rogge takes over at Marni, halting a backward trend.`\
+https://nytimes.com/2025/07/15/style/meryll-rogge-marni.html
 
-**When It Comes to Undermining America, We Have a Winner**\
-`Trump may be winning the battle to weaken our democracy, but he has not won the war.`\
-https://nytimes.com/2025/07/15/opinion/trump-authoritarianism-republican-party-democracy.html
+**Meet the artist who created Bernie Williams' 'most cherished' possession**\
+`Charles Fazzino creates custom art for baseball's biggest players and events, including Pete Alonso, Bernie Williams and the All-Star Game.`\
+https://nytimes.com/athletic/6490550/2025/07/15/mlb-all-star-game-artist-charles-fazzino/
 
-**2025 Emmy Nominations to Be Announced**\
-`The nominees will be announced at the Television Academy’s Los Angeles headquarters.`\
-https://nytimes.com/2025/07/15/arts/television/emmy-nominations-2025.html
+**Did the Texas Floods Have to Be This Deadly?**\
+`Questions have mounted about the handling of the critical hours before and during the devastating storm. Here’s what we know.`\
+https://nytimes.com/2025/07/15/podcasts/the-daily/texas-floods-camp-mystic.html
 
