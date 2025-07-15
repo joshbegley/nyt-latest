@@ -1,3 +1,7 @@
+**What a Smaller Education Department Is Doing Under Trump**\
+`Cuts have hit most of the department’s main functions, which include investigating civil rights complaints, providing financial aid, researching what works in education, testing students and disbursing federal funding.`\
+https://nytimes.com/2025/07/14/us/trump-administration-education-department-dismantle.html
+
 **Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
 `“My work is the same as it’s always been,” Clark said on Monday, in some of his first comments regarding the federal probe.`\
 https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/

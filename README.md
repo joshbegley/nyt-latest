@@ -1,3 +1,11 @@
+**Judge Orders Release of Iranian Arrested in Louisiana After U.S. Bombed Iran**\
+`Pouria Pourhosseinhendabad, a doctoral student studying mechanical engineering at Louisiana State University, was arrested along with his wife, in what his lawyers call “an unconstitutional ruse.”`\
+https://nytimes.com/2025/07/14/us/politics/iran-student-released-louisiana.html
+
+**NASA Website Will Not Provide Previous National Climate Reports**\
+`An agency spokeswoman had initially stated that NASA would retain earlier assessments online for continuity.`\
+https://nytimes.com/2025/07/14/climate/nasa-website-climate-report.html
+
 **Tony Clark says FBI investigation hasn't changed his job leading MLB players' union**\
 `“My work is the same as it’s always been,” Clark said on Monday, in some of his first comments regarding the federal probe.`\
 https://nytimes.com/athletic/6494344/2025/07/14/tony-clark-fbi-investigation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6494156/2025/07/14/brewers-jacob-misiorowski-all-st
 **‘The Gospel at Colonus’ Review: Singing Hallelujah on the Hudson**\
 `In an open-air revival on Little Island in Manhattan, Lee Breuer and Bob Telson’s musically sumptuous play follows Oedipus at the end of his life.`\
 https://nytimes.com/2025/07/14/theater/the-gospel-at-colonus-review-little-island.html
-
-**Dream star Rhyne Howard to miss rest of July with left knee injury**\
-`The 25-year-old is expected to make a full recovery, though the Dream did not provide a specific date for when she will return.`\
-https://nytimes.com/athletic/6494167/2025/07/14/atlanta-dream-rhyne-howard-knee-injury/
-
-**Another Casualty in the Tariff Wars: The Always-in-Season Tomato**\
-`The Trump administration is adding a 17 percent tariff to a year-round grocery store staple, while funneling more business to domestic tomato growers, largely in Florida.`\
-https://nytimes.com/2025/07/14/business/economy/trump-tariff-mexican-tomatoes.html
 
