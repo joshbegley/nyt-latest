@@ -2,7 +2,7 @@
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-potluck-desserts
 
-**Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
+**Can you put a price on Alexander Isak? âMaybe you have Haaland, you have Mbappe, but after thatâ¦â**\
 `Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
 https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really-cost/
 
@@ -19,15 +19,15 @@ https://nytimes.com/newsgraphics/card-story/waterloo-reenactment-american-napole
 https://nytimes.com/2025/07/15/world/europe/uk-data-email-afghans-taliban.html
 
 **Dismissals at Justice Dept. Seek to Bypass Civil Service and Whistle-Blower Laws**\
-`In court filings and dismissal letters, the Justice Department’s political leadership claims sweeping authority to fire career law enforcement officials without cause.`\
+`In court filings and dismissal letters, the Justice Departmentâs political leadership claims sweeping authority to fire career law enforcement officials without cause.`\
 https://nytimes.com/2025/07/15/us/politics/justice-department-dismissals-civil-service-laws.html
 
 **Georgia coach Kirby Smart: 'Just don't see' Nick Saban coaching again**\
-`"I don't think Nick's coming back. I think he's too happy where he is,” Smart said.`\
+`"I don't think Nick's coming back. I think he's too happy where he is,â Smart said.`\
 https://nytimes.com/athletic/6495142/2025/07/15/kirby-smart-nick-saban-coaching-sec-media-days/
 
 **College Antisemitism Hearing Live Updates: 3 University Presidents Testify**\
-`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakers’ questions about accusations of campus antisemitism.`\
+`Leaders from Georgetown, the City University of New York and the University of California, Berkeley, will be the latest to answer lawmakersâ questions about accusations of campus antisemitism.`\
 https://nytimes.com/live/2025/07/15/us/college-antisemitism-hearing
 
 **gws-taco-bell-crunchwrap-supreme**\

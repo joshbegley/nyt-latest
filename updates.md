@@ -1,3 +1,11 @@
+**Potluck Desserts You Can Make in a Baking Pan**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-potluck-desserts
+
+**Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
+`Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
+https://nytimes.com/athletic/6254763/2025/07/15/what-would-alexander-isak-really-cost/
+
 **Bellingham targeting October return following shoulder surgery**\
 `Bellingham dislocated his left shoulder in November 2023 in Madrid's La Liga match against Rayo Vallecano.`\
 https://nytimes.com/athletic/6484232/2025/07/15/jude-bellingham-shoulder-surgery-october-return/
