@@ -1,3 +1,11 @@
+**Dan Serafini, Former Baseball Pitcher, Is Convicted of Murder**\
+`The 51-year-old faces life in prison without parole for killing his father-in-law and gravely wounding his mother-in-law in execution-style shootings in 2021.`\
+https://nytimes.com/2025/07/15/us/dan-serafini-baseball-pitcher-guilty-murder.html
+
+**Pelicans will fully guarantee Zion Williamson's salary for 2025-26: Source**\
+`New Orleans included stipulations to Williamsonâs contract that gave the team salary protection in the event of injuries.`\
+https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zion-williamsons-salary-for-2025-26-source/
+
 **Israel Attacks Syriaâs Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
 `Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
 https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/15/world/asia/druse-syria-bedouin-israel-fighting.ht
 **USMNT's Agyemang completes Derby transfer**\
 `Agyemang, whose five international goals have all come in 2025, has signed a four-year contract at Pride Park.`\
 https://nytimes.com/athletic/6496491/2025/07/15/usmnt-patrick-agyemang-derby-transfer/
-
-**Wednesday Briefing: Chinaâs Economy Grows Despite Tariffs**\
-`Plus, âSeveranceâ picks up top Emmy nominations.`\
-https://nytimes.com/2025/07/15/briefing/china-economy-ukraine-weapons-trump-europe-britain-afghanistan.html
-
-**Mamdani for Mayor (if You Want a Foil for Republicans)**\
-`Get ready for the G.O.P. to run against âMamdani Democratsâ for several election cycles to come.`\
-https://nytimes.com/2025/07/15/opinion/mamdani-mayor-republicans.html
 

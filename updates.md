@@ -1,3 +1,11 @@
+**Dan Serafini, Former Baseball Pitcher, Is Convicted of Murder**\
+`The 51-year-old faces life in prison without parole for killing his father-in-law and gravely wounding his mother-in-law in execution-style shootings in 2021.`\
+https://nytimes.com/2025/07/15/us/dan-serafini-baseball-pitcher-guilty-murder.html
+
+**Pelicans will fully guarantee Zion Williamson's salary for 2025-26: Source**\
+`New Orleans included stipulations to Williamsonâs contract that gave the team salary protection in the event of injuries.`\
+https://nytimes.com/athletic/6496572/2025/07/15/pelicans-will-fully-guarantee-zion-williamsons-salary-for-2025-26-source/
+
 **Israel Attacks Syriaâs Military Amid Sectarian Clashes Between Druse and Bedouin Tribes**\
 `Israel launched several deadly airstrikes that targeted Syrian government forces in Sweida. The attack came as sectarian violence flared between Druse fighters and Bedouin tribal groups.`\
 https://nytimes.com/video/world/middleeast/100000010285855/airstrikes-israel-syria-lebanon.html
