@@ -1,3 +1,7 @@
+**Word of the Day: pungent**\
+`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/15/learning/word-of-the-day-pungent.html
+
 **I’m a Genocide Scholar. I Know It When I See It.**\
 `A scholar of genocide comes to a painful conclusion about Israel’s actions in Gaza.`\
 https://nytimes.com/2025/07/15/opinion/israel-gaza-holocaust-genocide-palestinians.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/us/john-macarthur-dead.html
 **Padraig Harrington: Champion golfer. Open veteran. YouTube sensation.**\
 `The Irishman is a two-time winner of The Open - and believes it is bigger and better than ever after matching the U.S. majors`\
 https://nytimes.com/athletic/6477780/2025/07/15/padraig-harrington-interview-the-open/
-
-**Gianni Infantino has won**\
-`You don’t have to salute FIFA's president for pulling off the Club World Cup, but it wasn’t cancelled, and nor did it fail`\
-https://nytimes.com/athletic/6493505/2025/07/15/fifa-gianni-infantino-trump-cwc/
 
