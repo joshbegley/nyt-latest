@@ -1,5 +1,9 @@
+**Forest interested in Villa's Ramsey**\
+`Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
+https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/
+
 **Free agent David Robertson could be option for teams seeking bullpen help**\
-`Several teams, including the New York Mets and New York Yankees, have recently looked into the 40-year-old reliever.`\
+`Several teams, including the Mets and Yankees, have recently looked into the 40-year-old reliever.`\
 https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
 
 **2025 Open Championship long shots, sleepers and prop picks: Jordan Spieth comeback?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/world/europe/sycamore-gap-tree-sentencing-prison.
 **Submit your Ohio State questions for Cameron Teague Robinson’s mailbag**\
 `The 2025 Ohio State football season is rapidly approaching, with less than 50 days until Texas visits Columbus. What's on your mind?`\
 https://nytimes.com/athletic/6495303/2025/07/15/ohio-state-football-mailbag-questions-9/
-
-**What I'm hearing about the Canucks' free-agent bargain bin plans and more**\
-`The Canucks are motivated to try to sign one of the remaining available free agents but need to clear cap space to do so.`\
-https://nytimes.com/athletic/6492426/2025/07/15/canucks-silovs-free-agents-2025/
 

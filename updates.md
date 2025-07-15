@@ -1,3 +1,11 @@
+**Forest interested in Villa's Ramsey**\
+`Forest's interest in Ramsey comes with Tottenham Hotspur bidding for their attacking midfielder Morgan Gibbs-White.`\
+https://nytimes.com/athletic/6494851/2025/07/15/jacob-ramsey-nottingham-forest-villa/
+
+**Free agent David Robertson could be option for teams seeking bullpen help**\
+`Several teams, including the Mets and Yankees, have recently looked into the 40-year-old reliever.`\
+https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
+
 **Free agent David Robertson could be option for teams seeking bullpen help**\
 `Several teams, including the New York Mets and New York Yankees, have recently looked into the 40-year-old reliever.`\
 https://nytimes.com/athletic/6493924/2025/07/15/david-robertson-free-agent-workouts/
