@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6489333/2025/07/16/cardinals-second-half-storylines
 https://nytimes.com/athletic/6495197/2025/07/16/was-the-club-world-cup-really-worth-1bn-to-dazn-and-what-happens-now/
 
 **ABS challenge system quickly makes an impact in All-Star Game debut**\
-`The automated ball-strike system, which had only been seen in spring training games at the major-league level, was used four times.`\
+`The Automated Ball-Strike system, which had only been seen in spring training games at the major-league level, was used four times.`\
 https://nytimes.com/athletic/6497391/2025/07/16/automated-ball-strike-system-all-star-game/
 
 **West Indies' cricketing decline feels terminal - and that should worry everyone**\

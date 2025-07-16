@@ -1,3 +1,15 @@
+**Cardinals second-half storylines to watch, starting with the trade deadline**\
+`Masyn Winn and other strong performers powered the Cardinals' flying start, but the team could be sellers by the end of the month. `\
+https://nytimes.com/athletic/6489333/2025/07/16/cardinals-second-half-storylines/
+
+**Was the Club World Cup really worth $1bn to DAZN - and what happens now?**\
+`For all the claims by the streaming service and FIFA, there is scepticism that the CWC has convinced other broadcasters of its merits`\
+https://nytimes.com/athletic/6495197/2025/07/16/was-the-club-world-cup-really-worth-1bn-to-dazn-and-what-happens-now/
+
+**ABS challenge system quickly makes an impact in All-Star Game debut**\
+`The automated ball-strike system, which had only been seen in spring training games at the major-league level, was used four times.`\
+https://nytimes.com/athletic/6497391/2025/07/16/automated-ball-strike-system-all-star-game/
+
 **Trump Announces ‘Great Deal’ on Trade With Indonesia**\
 `Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
 https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
