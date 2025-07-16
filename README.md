@@ -1,4 +1,4 @@
-**Europe Rushes to Negotiate a Trade Deal as Trump’s Team Voices Indifference**\
+**Europe Rushes to Negotiate a Trade Deal as Trumpâs Team Voices Indifference**\
 `The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
 https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
 
@@ -10,12 +10,12 @@ https://nytimes.com/athletic/6433067/2025/07/16/buffalo-bills-training-camp-2025
 `There were conflicting accounts from aid officials and Palestinian officials over what happened at the food distribution hub run by the Israeli-backed Gaza Humanitarian Foundation.`\
 https://nytimes.com/2025/07/16/world/middleeast/gaza-aid-site-stampede-ghf.html
 
-**Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
+**Trump Administration Live Updates: President to Host Qatarâs Prime Minister Amid Gaza Talks**\
 ``\
 https://nytimes.com/live/2025/07/16/us/trump-news
 
 **Europeans Threaten to Reimpose Tough U.N. Nuclear Sanctions on Iran**\
-`“Snapback” sanctions will be triggered by the end of August if Tehran fails to make concrete progress to limit its nuclear program.`\
+`âSnapbackâ sanctions will be triggered by the end of August if Tehran fails to make concrete progress to limit its nuclear program.`\
 https://nytimes.com/2025/07/16/world/middleeast/iran-nuclear-program-sanctions.html
 
 **'There are no words' - Lionel Messi and his record-breaking scoring for Inter Miami**\
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6492472/2025/07/16/penguins-2025-26-roster-projecti
 `Will Smith looked like an MVP candidate in the first half, but the Dodgers need some of their other big names to get going. `\
 https://nytimes.com/athletic/6493791/2025/07/16/dodgers-second-half-storylines/
 
-**Kalinauckas: Norris has finally matched Piastri for one thing all F1 champions need **\
+**Kalinauckas: Norris has finally matched Piastri for one thing all F1 champions needÂ **\
 `Lando Norris' British GP win had much to do with Oscar Piastri's penalty. But it was still significant in the McLaren title fight`\
 https://nytimes.com/athletic/6488172/2025/07/16/lando-norris-mclaren-form-f1-2025/
 
