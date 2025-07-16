@@ -1,3 +1,11 @@
+**Club Drugs Strain Health System on Ibiza, Spainâs Party Island**\
+`Drug-related calls from nightclubs are driving Ibizaâs ambulance services to collapse, health workers say. Itâs the latest example of tensions in Europe over tourism.`\
+https://nytimes.com/2025/07/16/world/europe/ibiza-spain-tourism-drug-crisis.html
+
+**The New York Times in Print for Wednesday, July 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/16/todays-new-york-times
+
 **Wednesday Briefing: Chinaâs Economy Grows Despite Tariffs**\
 `Plus, âSeveranceâ picks up top Emmy nominations.`\
 https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
