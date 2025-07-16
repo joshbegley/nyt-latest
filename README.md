@@ -1,3 +1,7 @@
+**Ex-Commissioner Sues, Saying Adams Ran N.Y.P.D. as a Criminal Enterprise**\
+`Thomas G. Donlon, who served only weeks, said in a lawsuit that New York’s mayor and top department officials had manipulated the system for personal and political gain.`\
+https://nytimes.com/2025/07/16/nyregion/nypd-lawsuit-rico-donlon-eric-adams.html
+
 **'Big logistical issues' to fix before Open returns to Trump Turnberry, says R&A chief**\
 `Mark Darbon added that he had a "good discussion" with Eric Trump and other executives over a potential return of the Open to Turnberry.`\
 https://nytimes.com/athletic/6497720/2025/07/16/open-championship-turnberry-trump/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429792/2025/07/16/sunderland-granit-xhaka-transfer
 **Goldman Sachs Sets Series of Records on Tariff Swings**\
 `Goldman and other investment banks are feeding off a Trump boom.`\
 https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-stanley.html
-
-**Israel Sends Warning to Syria’s Government With Strikes on Capital**\
-`Israel threatened to escalate attacks on Syrian government forces unless they withdraw from the southern province of Sweida, which is dominated by the country’s Druse minority.`\
-https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
 
