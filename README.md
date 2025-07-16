@@ -1,3 +1,7 @@
+**Caitlin Clark leaves Fever victory with groin injury ahead of All-Star Game**\
+`Clark recently missed four games with a groin strain to her left leg. Her availability for All-Star weekend is unclear.`\
+https://nytimes.com/athletic/6496986/2025/07/15/caitlin-clark-groin-injury-fever-sun/
+
 **Trump Administration Resumes Third-Country Deportation Flights**\
 `The five migrants on the latest flight, all from different countries, were sent to Eswatini, a small nation in southern Africa.`\
 https://nytimes.com/2025/07/15/us/politics/trump-deportation-flights-eswatini.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/15/us/politics/medicaid-hawley-trump-policy-bill.htm
 **Huckabee Calls Death of Palestinian-American in West Bank âTerrorismâ**\
 `Mike Huckabee, the U.S. ambassador to Israel, demanded âaccountability for this criminal and terrorist act,â referring to the killing last week of Sayfollah Musallet in the occupied territories.`\
 https://nytimes.com/2025/07/15/world/middleeast/huckabee-west-bank-musallet-killing.html
-
-**Columbia Expands Efforts to Fight Antisemitism as Trump Deal Seems Near**\
-`The university plans to offer additional anti-discrimination training in partnership with Jewish organizations. Some other measures could prove controversial.`\
-https://nytimes.com/2025/07/15/nyregion/columbia-plan-to-fight-antisemitism.html
 
