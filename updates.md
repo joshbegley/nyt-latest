@@ -1,3 +1,15 @@
+**Jamal Musiala exclusive: 'Ronaldinho, Messi, Neymar, Cristiano Ronaldo were untouchable in my eyes'**\
+`The Athletic sat down with the Bayern Munich midfielder, a cover star for EA SPORTS FC 26 alongside Real Madrid's Jude Bellingham`\
+https://nytimes.com/athletic/6472130/2025/07/16/jamal-musiala-bayern-ea-fc26-interview/
+
+**Why We Mistake the Wholesomeness of Gen Z for Conservatism**\
+`Their moderation has been misread.`\
+https://nytimes.com/2025/07/16/opinion/gen-z-wholesome-conservative.html
+
+**Do We Have to Thank My Brother-in-Law for His Gifts if We Hate His Politics?**\
+`A coupleâs passive efforts to keep a relative at armâs length, like quietly donating his gifts to charity, are not being received as intended.`\
+https://nytimes.com/2025/07/16/style/unwanted-gifts.html
+
 **Alex Bowman on snake removal, 'The Terminator' vs. 'Her,' and more: 12 Questions**\
 `Alex Bowman talks about the time a snake got in his house, his bubbly personality, making races longer and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6493663/2025/07/16/alex-bowman-nascar-12-questions-snakes-terminator/
