@@ -1,3 +1,7 @@
+**For Trump, Domestic Adversaries Are Not Just Wrong, They Are âEvilâ**\
+`The presidentâs vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
+https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html
+
 **Nvidia C.E.O. Treads Carefully in Beijing**\
 `Jensen Huang, the chipmakerâs chief executive, is trying to balance his companyâs interests as the United States and China compete for supremacy in artificial intelligence.`\
 https://nytimes.com/2025/07/16/business/nvidia-jensen-huang-beijing.html
