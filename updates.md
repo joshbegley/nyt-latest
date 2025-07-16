@@ -1,3 +1,7 @@
+**The Bills That Could Change Crypto in The U.S.**\
+`There are multiple bills before the House that could redefine the way crypto is regulated in the U.`\
+https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change-crypto-in-the-us.html
+
 **Scandal-Ridden Fyre Festival Is Sold for $245,000 on eBay**\
 `Billy McFarland, who served nearly four years in prison for fraud, said in April that he would put the beleaguered brand that he founded up for sale.`\
 https://nytimes.com/2025/07/16/us/fyre-fesival-sold-ebay.html

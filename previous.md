@@ -1,3 +1,7 @@
+**The Bills That Could Change Crypto in The U.S.**\
+`There are multiple bills before the House that could redefine the way crypto is regulated in the U.`\
+https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change-crypto-in-the-us.html
+
 **Scandal-Ridden Fyre Festival Is Sold for $245,000 on eBay**\
 `Billy McFarland, who served nearly four years in prison for fraud, said in April that he would put the beleaguered brand that he founded up for sale.`\
 https://nytimes.com/2025/07/16/us/fyre-fesival-sold-ebay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/senate-state-department-firings.html
 **Documenting L.A.’s Surge in Immigration Arrests**\
 `Jennifer Medina, a political reporter at The New York Times who is based in Los Angeles, speaks with a witness who recorded an immigration raid near a Home Depot.`\
 https://nytimes.com/video/us/politics/100000010259953/documenting-las-surge-in-immigration-arrests.html
-
-**Former radio host Harry Teinowitz, a Chicago original and 'man of the people,' dies at 64**\
-`Teinowitz was an actor, comedian, media personality and playwright. He knew sports, courted laughs and even had a part in “Risky Business."`\
-https://nytimes.com/athletic/6496944/2025/07/16/harry-teinowitz-chicago-radio-host-dies/
 
