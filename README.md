@@ -1,3 +1,7 @@
+**Trump Has Promised More Tariffs on Mexico. What Happens Next?**\
+`President Trump has threatened to increase Mexico’s tariff rate to 30 percent starting Aug. 1, claiming the country hasn’t sufficiently tackled drug cartels.`\
+https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
+
 **JD Vance’s Big, Beautiful Task**\
 `The vice president is selling Trump’s domestic policy bill amid signs Democratic attacks are breaking through.`\
 https://nytimes.com/2025/07/16/us/politics/jd-vance-trump-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
 **The Bills That Could Change Crypto in The U.S.**\
 `There are multiple bills before the House that could redefine the way crypto is regulated in the U.`\
 https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change-crypto-in-the-us.html
-
-**Scandal-Ridden Fyre Festival Is Sold for $245,000 on eBay**\
-`Billy McFarland, who served nearly four years in prison for fraud, said in April that he would put the beleaguered brand that he founded up for sale.`\
-https://nytimes.com/2025/07/16/us/fyre-fesival-sold-ebay.html
 
