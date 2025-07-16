@@ -1,3 +1,11 @@
+**U.S. Ambassador to Israel Visits Netanyahu’s Corruption Trial**\
+`A highly unusual appearance from Mike Huckabee comes as President Trump has called for the long-running legal case to be suspended.`\
+https://nytimes.com/2025/07/16/world/middleeast/mike-huckabee-ambassador-netanyahu-trial-israel.html
+
+**Which NHL teams improved the most this offseason?**\
+`From most value added to least, here’s how each team has changed this summer.`\
+https://nytimes.com/athletic/6496153/2025/07/16/nhl-most-improved-2025/
+
 **Pelicans rookies Derik Queen and Jeremiah Fears show room for growth during summer league**\
 `New Orleans' pair of lottery picks have struggled at times during the team's sloppy play. Is there reason for concern?`\
 https://nytimes.com/athletic/6497280/2025/07/16/jeremiah-fears-derik-queen-pelicans-summer-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493663/2025/07/16/alex-bowman-nascar-12-questions-
 **Iceland Volcano System Erupts for 12th Time in 4 Years**\
 `The Icelandic Meteorological Office said that the eruptive fissure was about half a mile long but did not pose a threat to people or infrastructure.`\
 https://nytimes.com/video/world/europe/100000010287657/iceland-volcano-system-erupts-for-12th-time-in-4-years.html
-
-**Has Private Credit Peaked? Dimon Warns It May Have.**\
-`The JPMorgan Chase chief has long been skeptical of the nontraditional, and less regulated, lending business. Now he thinks its best days may be over.`\
-https://nytimes.com/2025/07/16/business/dealbook/jpmorgan-dimon-private-credit.html
-
-**Europe Rushes to Negotiate a Trade Deal as Trump’s Team Voices Indifference**\
-`The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
-https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
 
