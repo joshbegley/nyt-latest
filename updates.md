@@ -1,4 +1,24 @@
 **Jimmy Fallon Fans the Flames of Burning MAGA Hats**\
+`People torched the hats in videos, apparently upset about the Jeffrey Epstein case. “People in China were like, ‘Oh, come on, we worked so hard making them,’” Fallon said.`\
+https://nytimes.com/2025/07/16/arts/television/jimmy-fallon-jeffrey-epstein.html
+
+**Club Drugs Strain Health System on Ibiza, Spain’s Party Island**\
+`Drug-related calls from nightclubs are driving Ibiza’s ambulance services to collapse, health workers say. It’s the latest example of tensions in Europe over tourism.`\
+https://nytimes.com/2025/07/16/world/europe/ibiza-spain-tourism-drug-crisis.html
+
+**Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
+`Plus, “Severance” picks up top Emmy nominations.`\
+https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
+
+**Why Forest shouldn't feel bad about taking Crystal Palace's Europa League place**\
+`It’s tough not to feel enormous sympathy for the Palace fans but it's not Forest's problem that their club can't keep up with their admin`\
+https://nytimes.com/athletic/6494011/2025/07/16/nottingham-forest-europa-league-crystal-palace/
+
+**Tottenham's transfer policy will please Danny Rose, but will it get results?**\
+`The ex-Spurs defender once quipped he wanted them to sign players he did not “have to Google” - is that the path to success...?`\
+https://nytimes.com/athletic/6485756/2025/07/16/tottenham-transfer-policy-google-players/
+
+**Jimmy Fallon Fans the Flames of Burning MAGA Hats**\
 `People torched the hats in videos, apparently upset about the Jeffrey Epstein case. âPeople in China were like, âOh, come on, we worked so hard making them,ââ Fallon said.`\
 https://nytimes.com/2025/07/16/arts/television/jimmy-fallon-jeffrey-epstein.html
 
