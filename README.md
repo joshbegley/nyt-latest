@@ -1,4 +1,4 @@
-**Martin Cruz Smith, Best-Selling Author of âGorky Park,â Dies at 82**\
+**Martin Cruz Smith, Best-Selling Author of ‘Gorky Park,’ Dies at 82**\
 `He startled critics, readers and the book industry in 1981 with a novel set in the Soviet Union that had a flawed detective as its antihero.`\
 https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
 
@@ -15,7 +15,7 @@ https://nytimes.com/2025/07/16/business/media/steve-benson-dead.html
 https://nytimes.com/2025/07/16/us/politics/tribal-media-south-dakota.html
 
 **Where Have All the Novel-Reading Men Gone?**\
-`Readers respond to a Styles article about the reading habits of men. Also: Womenâs choices; chatbots in toys; conservative professors.`\
+`Readers respond to a Styles article about the reading habits of men. Also: Women’s choices; chatbots in toys; conservative professors.`\
 https://nytimes.com/2025/07/16/opinion/novels-men-reading.html
 
 **Oakmont suspends Wyndham Clark for damaging lockers**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6493037/2025/07/16/minnesota-wild-schedule-2025-26-
 `The Kentucky Republican, a frequent critic of President Trump, teamed with a Democrat in a maneuver that could force G.O.P. leaders to hold a vote on the matter within weeks.`\
 https://nytimes.com/2025/07/16/us/politics/massie-house-vote-epstein-files-release.html
 
-**I Found My Daughterâs Pregnancy Test. Should I Have Told My Wife?**\
-`I wanted to honor my daughterâs privacy about her sex life.`\
+**I Found My Daughter’s Pregnancy Test. Should I Have Told My Wife?**\
+`I wanted to honor my daughter’s privacy about her sex life.`\
 https://nytimes.com/2025/07/16/magazine/daughter-wife-pregnancy-test-ethics.html
 

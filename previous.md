@@ -1,3 +1,19 @@
+**Martin Cruz Smith, Best-Selling Author of âGorky Park,â Dies at 82**\
+`He startled critics, readers and the book industry in 1981 with a novel set in the Soviet Union that had a flawed detective as its antihero.`\
+https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
+
+**Tour de France stage 11: Pogacar crashes but peloton waits, Abrahamsen wins from breakaway, Healy defends yellow**\
+`Analysis of the 11th stage of the 2025 Tour de France, a 157km loop around Toulouse `\
+https://nytimes.com/athletic/6497477/2025/07/16/tour-de-france-stage-11-analysis/
+
+**Steve Benson, Provocative Editorial Cartoonist, Dies at 71**\
+`He won a Pulitzer Prize in 1993, and was a finalist four times while at The Arizona Republic. Some of his work rankled his own Mormon community.`\
+https://nytimes.com/2025/07/16/business/media/steve-benson-dead.html
+
+**Tribal Media Leader Implores Senator to Reject Public Broadcasting Clawback**\
+`In a letter to Senator Mike Rounds, Republican of South Dakota, the head of a network of Native radio and television stations said a deal to ostensibly protect tribal stations was unworkable.`\
+https://nytimes.com/2025/07/16/us/politics/tribal-media-south-dakota.html
+
 **Where Have All the Novel-Reading Men Gone?**\
 `Readers respond to a Styles article about the reading habits of men. Also: Womenâs choices; chatbots in toys; conservative professors.`\
 https://nytimes.com/2025/07/16/opinion/novels-men-reading.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/massie-house-vote-epstein-files-relea
 **I Found My Daughterâs Pregnancy Test. Should I Have Told My Wife?**\
 `I wanted to honor my daughterâs privacy about her sex life.`\
 https://nytimes.com/2025/07/16/magazine/daughter-wife-pregnancy-test-ethics.html
-
-**Justice Dept. to Move Ahead With Bribery Case Against Cuellar**\
-`The decision to sustain the prosecution of the Texas Democrat stands in contrast to the departmentâs decisions to drop or downgrade investigations of Trump allies or those he deems politically useful.`\
-https://nytimes.com/2025/07/16/us/politics/henry-cuellar-bribery-case-justice-department.html
-
-**Kennedy Fires Two Top Aides in Health Department Shake-Up**\
-`The health secretary ousted his chief of staff and a deputy chief of staff, both of whom were seen as practical and effective government veterans.`\
-https://nytimes.com/2025/07/16/us/politics/rfk-fires-aides-hhs.html
-
-**Nicknames, Notes and a Waddle: How Colorado Fought a Bank Robbery Surge**\
-`Colorado led the country in bank robberies, per capita, for three years starting in 2021. Law enforcement officials found innovative ways to crack the crime wave.`\
-https://nytimes.com/2025/07/16/us/bank-robberies-nicknames-colorado.html
-
-**Thereâs a Lot to Dig in Donkey Kong Bananza**\
-`A Dante-like descent brims with valuable fossils and gold, but also sharp thorns, burning lava and icy water.`\
-https://nytimes.com/2025/07/16/arts/donkey-kong-bananza-review.html
 
