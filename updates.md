@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
 
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility**\
 `A former employee said she never saw the staff perform fire drills. The local fire chief pushed back at claims that dispatching more firefighters would’ve saved more lives.`\
 https://nytimes.com/2025/07/15/us/fire-gabriel-house-fall-river-massachusetts.html
