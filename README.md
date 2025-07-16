@@ -1,3 +1,7 @@
+**Damage From Fire Shuts Down North Rim of Grand Canyon**\
+`The Dragon Bravo blaze destroyed the historic Grand Canyon Lodge and dozens of other buildings used for summer tourism on the Arizona-Utah border.`\
+https://nytimes.com/video/us/100000010288163/grand-canyon-north-rim-fire.html
+
 **A Royal Course Prepares to Star at the British Open Again**\
 `The town of Portrush in Northern Ireland will host the event for the first time since 2019.`\
 https://nytimes.com/2025/07/16/sports/golf/british-open-royal-portrush.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010287721/stampede-aid-gaza-hum
 **Memphis hoops put on probation by NCAA over academic integrity violations**\
 `The NCAA said an academic counselor paid two softball players a combined $550 for the coursework.`\
 https://nytimes.com/athletic/6498274/2025/07/16/memphis-basketball-ncaa-probation/
-
-**The Epstein Story Is Both Conspiracy Theory and Genuine Scandal**\
-`More than a client list, MAGA is looking for meaning.`\
-https://nytimes.com/2025/07/16/opinion/epstein-trump-scandal.html
 

@@ -1,3 +1,11 @@
+**A Royal Course Prepares to Star at the British Open Again**\
+`The town of Portrush in Northern Ireland will host the event for the first time since 2019.`\
+https://nytimes.com/2025/07/16/sports/golf/british-open-royal-portrush.html
+
+**The Epstein Story Is Both Conspiracy Theory and Genuine Scandal**\
+`More than a client list, MAGA is looking for meaning.`\
+https://nytimes.com/2025/07/16/opinion/epstein-trump-scandal.html
+
 **Canada Moves to Block Chinese Steel Now Shut Out of the U.S.**\
 `Canada’s steel industry fears that Chinese steel facing steep tariffs in the United States will be sent north and overwhelm the Canadian market.`\
 https://nytimes.com/2025/07/16/world/canada/carney-trump-us-canada-steel-tariffs.html
