@@ -1,3 +1,7 @@
+**Has Private Credit Peaked? Dimon Warns It May Have.**\
+`The JPMorgan Chase chief has long been skeptical of the nontraditional, and less regulated, lending business. Now he thinks its best days may be over.`\
+https://nytimes.com/2025/07/16/business/dealbook/jpmorgan-dimon-private-credit.html
+
 **Europe Rushes to Negotiate a Trade Deal as Trumpâs Team Voices Indifference**\
 `The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
 https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6493791/2025/07/16/dodgers-second-half-storylines/
 **Kalinauckas: Norris has finally matched Piastri for one thing all F1 champions needÂ **\
 `Lando Norris' British GP win had much to do with Oscar Piastri's penalty. But it was still significant in the McLaren title fight`\
 https://nytimes.com/athletic/6488172/2025/07/16/lando-norris-mclaren-form-f1-2025/
-
-**The fantasy football running backs to draft ... and those to avoid**\
-`Jake Ciely suggests a Hero RB approach as he illustrates his fantasy football strategy to maximize value at the position in 2025.`\
-https://nytimes.com/athletic/6495703/2025/07/16/fantasy-football-draft-best-rb-rankings-values-adp/
 
