@@ -1,3 +1,7 @@
+**Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility**\
+`A former employee said she never saw the staff perform fire drills. The local fire chief pushed back at claims that dispatching more firefighters would’ve saved more lives.`\
+https://nytimes.com/2025/07/15/us/fire-gabriel-house-fall-river-massachusetts.html
+
 **Hawley Aims to Roll Back Medicaid Cuts He Voted for Just Two Weeks Ago**\
 `The Republican senator introduced a bill Tuesday that would block restrictions on key strategies that states rely on to finance Medicaid and double a rural hospital fund.`\
 https://nytimes.com/2025/07/15/us/politics/medicaid-hawley-trump-policy-bill.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/15/us/politics/canada-tariffs-mark-carney-trump.html
 **A 900-Year-Old Typo May Unravel a Chaucer Mystery**\
 `The Tale of Wade, twice referred to in Geoffrey Chaucer’s poems, survives only in a tiny fragment. Two academics argue a scribe’s error deepened the confusion around it.`\
 https://nytimes.com/2025/07/15/world/europe/chaucer-wade-mystery.html
-
-**State Dept. Layoffs Hit Russia and Ukraine Analysts**\
-`A former senior U.S. official said it was “shortsighted” to consolidate the department’s well-respected intelligence arm.`\
-https://nytimes.com/2025/07/15/us/politics/state-department-layoffs-russia-ukraine.html
 
