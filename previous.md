@@ -1,40 +1,40 @@
-**Sheffield United in advanced talks to sign Barry on loan from Villa**\
-`A proposed agreement for Barry to join Hull City on a permanent basis collapsed earlier this month.`\
-https://nytimes.com/athletic/6497144/2025/07/16/louie-barry-sheffield-united-aston-villa/
+**Falcons 2025 preview: Can revamped defense improve enough to help playoff cause?**\
+`The Falcons made big defensive changes in the offseason. How much can they improve on last year's dismal statistical finish?`\
+https://nytimes.com/athletic/6488211/2025/07/16/falcons-2025-preview-defense/
 
-**Iceland Volcano Erupts Again but Doesn’t Threaten Towns**\
-`An official said the eruption near Reykjavik, the 12th in four years from the same volcanic system, posed no threat to people or infrastructure.`\
-https://nytimes.com/2025/07/16/world/europe/iceland-volcano-eruption.html
+**Will Patriots QB Drake Maye take a major Year 2 leap?**\
+`Maye's numbers were only so-so as a rookie, but there's plenty of reason to be optimistic about what he can do under Mike Vrabel.`\
+https://nytimes.com/athletic/6494342/2025/07/16/drake-maye-patriots-qb-year-2/
 
-**Bally’s Bronx Casino Plan Appears Dead After Council Rejects Rezoning**\
-`The City Council vote all but dooms the company’s chances of obtaining one of up to three casino licenses that New York State is expected to award this year.`\
-https://nytimes.com/2025/07/16/nyregion/ballys-casino-bronx.html
+**Supreme Court Keeps Ruling in Trumpâs Favor, but Doesnât Say Why**\
+`In a series of terse, unsigned orders, the court has often been giving the green light to President Trumpâs agenda without a murmur of explanation.`\
+https://nytimes.com/2025/07/16/us/politics/supreme-courts-shadow-docket.html
 
-**A Reporter’s Methodical Quest to Find New York’s Best Croissants**\
-`A food writer scouted more than 100 bakeries in search of flaky, buttery perfection.`\
-https://nytimes.com/2025/07/16/insider/croissant-nyc-best.html
+**Public Media Can Be a Lifeline. Gutting It Hurts Everyone.**\
+`Abandoning local public radio and TV would accelerate a dangerous trend straining civic health.`\
+https://nytimes.com/2025/07/16/opinion/pbs-npr-cuts-funding.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/16/crosswords/spelling-bee-forum.html
+**Condo Conversion in Former Brooklyn Church Offers âPiece of Historyâ**\
+`The 19th-century building, in a historic district in Fort Greene, has 12 condos, starting at $1.195 million, each with touches from the siteâs former use.`\
+https://nytimes.com/2025/07/16/realestate/brooklyn-fort-greene-condo-the-abbey.html
 
-**Jimmy Fallon Fans the Flames of Burning MAGA Hats**\
-`People torched the hats in videos, apparently upset about the Jeffrey Epstein case. “People in China were like, ‘Oh, come on, we worked so hard making them,’” Fallon said.`\
-https://nytimes.com/2025/07/16/arts/television/jimmy-fallon-jeffrey-epstein.html
+**âJeopardy!â Is a Reminder That Facts Are Fun â and Essential**\
+`According to the host Ken Jennings, trivia is overlooked as a âgreat social force.â`\
+https://nytimes.com/2025/07/16/opinion/ken-jennings-trivia-facts-matter.html
 
-**Word of the Day: waggish**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/16/learning/word-of-the-day-waggish.html
+**Your Questions About the New York City Mayorâs Race**\
+`Readers wanted to know more about Zohran Mamdani, how he won the Democratic primary (and how Andrew Cuomo lost), and what it all means. We have answers.`\
+https://nytimes.com/2025/07/16/nyregion/your-questions-about-the-new-york-city-mayors-race.html
 
-**Club Drugs Strain Health System on Ibiza, Spain’s Party Island**\
-`Drug-related calls from nightclubs are driving Ibiza’s ambulance services to collapse, health workers say. It’s the latest example of tensions in Europe over tourism.`\
-https://nytimes.com/2025/07/16/world/europe/ibiza-spain-tourism-drug-crisis.html
+**Despite Dire Warnings, the Economy Is Holding Up. Can That Last?**\
+`Economists say it will take time for the effects of trade policies to show up in economic data â but acknowledge they arenât sure how long.`\
+https://nytimes.com/2025/07/16/business/tariffs-recession-economists.html
 
-**The New York Times in Print for Wednesday, July 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/16/todays-new-york-times
+**Migration Fears Turn Europeâs Borderless Dreams Into Traffic Nightmares**\
+`Germanyâs new government imposed border checks to demonstrate toughness on migration, though crossings started slowing years ago.`\
+https://nytimes.com/2025/07/16/world/europe/europe-border-checks-immigration.html
 
-**Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
-`Plus, “Severance” picks up top Emmy nominations.`\
-https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
+**Five unresolved questions for the Detroit Lions as training camp nears**\
+`Who are the breakout candidates? Who starts at center? There is plenty for the Lions to answer heading into camp.`\
+https://nytimes.com/athletic/6496138/2025/07/16/detroit-lions-training-camp-preview/
 
