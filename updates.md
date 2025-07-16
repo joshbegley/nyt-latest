@@ -1,3 +1,11 @@
+**Scandal-Ridden Fyre Festival Is Sold for $245,000 on eBay**\
+`Billy McFarland, who served nearly four years in prison for fraud, said in April that he would put the beleaguered brand that he founded up for sale.`\
+https://nytimes.com/2025/07/16/us/fyre-fesival-sold-ebay.html
+
+**Can Trump Fire Powell? He Likely Lacks a Case, Legal Experts Say.**\
+`The Trump administration is toying with removing Jerome H. Powell as chair of the Federal Reserve, accusing him of mismanaging a multibillion-dollar update to its Washington headquarters.`\
+https://nytimes.com/2025/07/16/us/politics/trump-powell-fed-renovations.html
+
 **Spurned U.S. Attorney Clings to Job by Being Appointed His Own Assistant**\
 `District judges recently denied John Sarcone, who was interim U.S. attorney, the permanent position. The Justice Department then gave him a special appointment so he could continue in the role.`\
 https://nytimes.com/2025/07/16/nyregion/sarcone-albany-us-attorney.html
