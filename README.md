@@ -8,7 +8,7 @@ https://nytimes.com/issue/todaysinyt/2025/07/16/todays-new-york-times-internatio
 
 **As Iran Deports a Million Afghans, ‘Where Do We Even Go?’**\
 `Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
-https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
+https://nytimes.com/2025/07/16/world/middleeast/iran-deportations-afghanistan.html
 
 **Tigers second-half storylines: Does Detroit have what it takes to win it all?**\
 `The Tigers had MLB's best record in the first half, but can their surprise performers keep going? And can the Tigers fix their bullpen?`\
