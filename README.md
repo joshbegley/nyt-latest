@@ -1,3 +1,11 @@
+**Former Olympic medallist Groenvold dies at 49 after being struck by lightning**\
+`The Norwegian Olympian competed in ski cross and alpine skiing before becoming a national team coach.`\
+https://nytimes.com/athletic/6498221/2025/07/16/audun-groenvold-norway-olympic-skiier-death-lightning/
+
+**Tiny Love Stories: âI Thought I Was Straightâ**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words`\
+https://nytimes.com/2025/07/16/style/tiny-modern-love-stories-i-thought-i-was-straight.html
+
 **Longtime Sharks executive, former NHL goalie Wayne Thomas dies at 77**\
 `Thomas ran the Sharksâ various American Hockey League affiliates until 2012-13 and retired from the organization after the 2014-15 season.`\
 https://nytimes.com/athletic/6498148/2025/07/16/wayne-thomas-obituary-sharks-nhl/
@@ -12,7 +20,7 @@ https://nytimes.com/2025/07/16/world/europe/pompeii-mosaic-stolen-nazi-returned.
 
 **Thereâs a Flash Flood Season, and This Is It**\
 `Julyâs hot temperatures and moist air are the perfect ingredients for rain.`\
-https://nytimes.com/interactive/2025/07/16/weather/2025-07-16-flood-month.html
+https://nytimes.com/interactive/2025/07/16/weather/flash-floods.html
 
 **Whatâs in Our Queue? The Brooklyn Botanical Garden and More**\
 `Text by Aliza Aufrichtig`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
 **Tour de France stage 11: Pogacar crashes but peloton waits, Abrahamsen wins from breakaway, Healy defends yellow**\
 `Analysis of the latest day's action in the 2025 race - a 157km loop around the southern city of Toulouse `\
 https://nytimes.com/athletic/6497477/2025/07/16/tour-de-france-stage-11-analysis/
-
-**Steve Benson, Provocative Editorial Cartoonist, Dies at 71**\
-`He won a Pulitzer Prize in 1993, and was a finalist four times while at The Arizona Republic. Some of his work rankled his own Mormon community.`\
-https://nytimes.com/2025/07/16/business/media/steve-benson-dead.html
-
-**Tribal Media Leader Implores Senator to Reject Public Broadcasting Clawback**\
-`In a letter to Senator Mike Rounds, Republican of South Dakota, the head of a network of Native radio and television stations said a deal to ostensibly protect tribal stations was unworkable.`\
-https://nytimes.com/2025/07/16/us/politics/tribal-media-south-dakota.html
 
