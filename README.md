@@ -11,23 +11,23 @@ https://nytimes.com/athletic/6495197/2025/07/16/was-the-club-world-cup-really-wo
 https://nytimes.com/athletic/6497391/2025/07/16/automated-ball-strike-system-all-star-game/
 
 **West Indies' cricketing decline feels terminal - and that should worry everyone**\
-`It will take far more than a legends-led review to cure the country's problems`\
+`It will take far more than a legends-led review to cure the problems affecting the sport in the Caribbean`\
 https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
 
 **Rosenthal: Historic All-Star swing-off proved impossible to resist for players, fans**\
 `There was good reason to be skeptical of MLB's new format to end an All-Star Game tie, until it happened for the first time.`\
 https://nytimes.com/athletic/6497335/2025/07/16/mlb-all-star-game-swing-off/
 
-**Trump Announces ‘Great Deal’ on Trade With Indonesia**\
+**Trump Announces âGreat Dealâ on Trade With Indonesia**\
 `Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
 https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
 
 **Flood Season**\
-`We look at recent flooding — and explain what you can do to stay safe.`\
+`We look at recent flooding â and explain what you can do to stay safe.`\
 https://nytimes.com/2025/07/16/briefing/flooding-northeast-risk.html
 
 **Phillies second-half storylines to watch, starting with the trade deadline**\
-`They will head into the second half prepared to shake up the same groups as during last year’s trade deadline and the offseason. `\
+`They will head into the second half prepared to shake up the same groups as during last yearâs trade deadline and the offseason. `\
 https://nytimes.com/athletic/6496683/2025/07/16/phillies-storylines-trade-deadline-second-half/
 
 **Yankees second-half storylines to watch, starting with the trade deadline**\
