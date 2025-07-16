@@ -1,3 +1,8 @@
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **File Menu Option**\
 `Jasin Cekinmez makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/07/15/crosswords/daily-puzzle-2025-07-16.html
