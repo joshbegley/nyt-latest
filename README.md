@@ -1,4 +1,8 @@
-**Pirates trade Adam Frazier to Royals for infielder Cam Devanney: Source**\
+**Five free agents for the Canucks to consider as value signings**\
+`These players could add some depth to Vancouver's forward group as value adds in the second wave of unrestricted free agency.`\
+https://nytimes.com/athletic/6492554/2025/07/16/canucks-jack-roslovic-victor-olofsson-free-agents/
+
+**Pirates trade Adam Frazier to Royals for infielder Cam Devanney**\
 `Frazier now returns to Kansas City, where he spent the entire 2024 season. `\
 https://nytimes.com/athletic/6497785/2025/07/16/adam-frazier-cam-devanney-pirates-royals-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/science/antimatter-lhcb-baryons.html
 **Shaq threatens to punch RGIII over Angel Reese posts**\
 `Shaq called out Griffin after the former quarterback reposted a racist edit of Reese's "NBA 2K26" cover while denouncing it.`\
 https://nytimes.com/athletic/6497592/2025/07/16/shaq-robert-griffin-iii-angle-reese-posts/
-
-**Read Thomas Donlonâs Lawsuit**\
-`The suit accuses police officials and Mayor Eric Adams of various federal crimes and calls for an independent authority to oversee key decisions at the Police Department.`\
-https://nytimes.com/interactive/2025/07/16/nyregion/donlon-nypd-lawsuit.html
 
