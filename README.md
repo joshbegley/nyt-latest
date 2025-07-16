@@ -1,3 +1,19 @@
+**Nvidia C.E.O. Treads Carefully in Beijing**\
+`Jensen Huang, the chipmakerâs chief executive, is trying to balance his companyâs interests as the United States and China compete for supremacy in artificial intelligence.`\
+https://nytimes.com/2025/07/16/business/nvidia-jensen-huang-beijing.html
+
+**Giants second-half storylines to watch, starting with the trade deadline**\
+`Three storylines to track, starting with the trade deadline at the end of the month.`\
+https://nytimes.com/athletic/6496822/2025/07/16/giants-trade-deadline-second-half-storylines/
+
+**Padres second-half storylines to watch, starting with the 2025 trade deadline**\
+`As the second half approaches, the Padres again loom as one of the sportâs least predictable teams.`\
+https://nytimes.com/athletic/6489408/2025/07/16/padres-second-half-storylines-2025-trade-deadline/
+
+**A Father Braces for Life After a Plane Crash Took His âEverythingâ**\
+`His son and daughter-in-law brought love to his home and represented the familyâs hope for a better life.`\
+https://nytimes.com/2025/07/16/world/asia/air-india-crash-father-grief.html
+
 **Sunderland hold interest in signing Leverkusen's Xhaka**\
 `Xhaka missed just one match for Xabi Alonso's side in the 2024-25 campaign as Leverkusen finished second in the Bundesliga.`\
 https://nytimes.com/athletic/6429792/2025/07/16/sunderland-granit-xhaka-transfer/
@@ -6,12 +22,12 @@ https://nytimes.com/athletic/6429792/2025/07/16/sunderland-granit-xhaka-transfer
 `Goldman and other investment banks are feeding off a Trump boom.`\
 https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-stanley.html
 
-**Israel Targets Government Buildings in Syria’s Capital**\
-`Israel warned Syria’s government that it was monitoring the actions of its military forces against the country’s Druse minority.`\
+**Israel Targets Government Buildings in Syriaâs Capital**\
+`Israel warned Syriaâs government that it was monitoring the actions of its military forces against the countryâs Druse minority.`\
 https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
 
 **Liverpool make contact with Eintracht over Ekitike**\
-`Newcastle remain interested in Ekitike, having seen a €75m bid for the forward turned down.`\
+`Newcastle remain interested in Ekitike, having seen a â¬75m bid for the forward turned down.`\
 https://nytimes.com/athletic/6493702/2025/07/16/hugo-ekitike-liverpool-transfer-eintracht-frankfurt/
 
 **Beyond the 'Swing-Off,' an innovative yet simple plan to solve MLB's TV problems: MoneyCall**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6497652/2025/07/16/mlb-swing-off-rob-manfred-tv-mon
 **The Windup: A couple of All-Star Game firsts**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6497141/2025/07/16/mlb-all-star-swing-off-the-windup/
-
-**Russia Isn’t Sounding Rattled by Trump’s Ultimatum**\
-`Russian officials and commentators have shown little indication that Moscow is about to change course under new pressure.`\
-https://nytimes.com/2025/07/16/world/europe/russia-trump-ultimatum.html
-
-**Liverpool in advanced talks to hire Man Utd's Simon Wiles to lead Under-18**\
-`The former Blackpool midfielder is set to replace Marc Bridge-Wilkinson, who left Liverpool after 10 years of service at the end of last sea`\
-https://nytimes.com/athletic/6497599/2025/07/16/liverpool-simon-wiles-manchester-united/
-
-**Is This Restaurant the Only Thing Democrats and Republicans Agree On?**\
-`In polarized Washington, Ama is drawing leaders from both camps with an anti-additive menu and a vow to bar all manner of toxicity.`\
-https://nytimes.com/2025/07/16/dining/ama-restaurant-washington-dc-maha.html
-
-**U.S. Ambassador to Israel Visits Netanyahu’s Corruption Trial**\
-`A highly unusual appearance from Mike Huckabee comes as President Trump has called for the long-running legal case to be suspended.`\
-https://nytimes.com/2025/07/16/world/middleeast/mike-huckabee-ambassador-netanyahu-trial-israel.html
 
