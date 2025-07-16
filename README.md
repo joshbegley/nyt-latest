@@ -1,3 +1,7 @@
+**Spurned U.S. Attorney Clings to Job by Being Appointed His Own Assistant**\
+`District judges recently denied John Sarcone, who was interim U.S. attorney, the permanent position. The Justice Department then gave him a special appointment so he could continue in the role.`\
+https://nytimes.com/2025/07/16/nyregion/sarcone-albany-us-attorney.html
+
 **Caitlin Clark ruled out of Fever's game vs. Liberty with groin injury**\
 `Clark has now missed 11 games this season after picking up the injury late in Tuesday's win over the Connecticut Sun.`\
 https://nytimes.com/athletic/6498813/2025/07/16/caitlin-clark-groin-injury-fever-liberty/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/nyregion/mamdani-adams-donors-money.html
 **Chargers' Najee Harris likely to start camp on NFI after fireworks-related eye injury**\
 `Harris suffered what his agent termed a "superficial" eye injury in a Fourth of July fireworks accident in his Bay Area hometown.`\
 https://nytimes.com/athletic/6498672/2025/07/16/najee-harris-chargers-fireworks-injury-nfi/
-
-**Trump Discussed Firing the Fed Chair**\
-`Also, Israel bombarded Syria’s capital. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/07/16/briefing/trump-discussed-firing-the-fed-chair.html
 
