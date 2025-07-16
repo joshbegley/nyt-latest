@@ -19,13 +19,13 @@ https://nytimes.com/athletic/6496449/2025/07/16/open-championship-2025-big-board
 `\
 https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
 
-**Rising Inflation, and the Supreme Court’s ‘Shadow Docket’**\
-`Plus, why that e-book cost your library $50.`\
-https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
-
 **Meet the women fueling NFL weight rooms and breaking coaching barriers**\
 `Ten years ago, the NFL had one full-time female coach. Today, there are 15, including six who work in strength and conditioning.`\
 https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
+
+**Rising Inflation, and the Supreme Court’s ‘Shadow Docket’**\
+`Plus, why that e-book cost your library $50.`\
+https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
 
 **Braves second-half storylines: Aggressive trades unlikely, Sean Murphy's status, IL updates**\
 `The Braves are not about to go into another rebuild. But they won't be making big moves for a postseason push this year, either.`\
