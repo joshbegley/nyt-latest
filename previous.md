@@ -1,3 +1,7 @@
+**Alex Bowman on snake removal, 'The Terminator' vs. 'Her,' and more: 12 Questions**\
+`Alex Bowman talks about the time a snake got in his house, his bubbly personality, making races longer and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6493663/2025/07/16/alex-bowman-nascar-12-questions-snakes-terminator/
+
 **Iceland Volcano System Erupts for 12th Time in 4 Years**\
 `The Icelandic Meteorological Office said that the eruptive fissure was about half a mile long but did not pose a threat to people or infrastructure.`\
 https://nytimes.com/video/world/europe/100000010287657/iceland-volcano-system-erupts-for-12th-time-in-4-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495756/2025/07/16/lionel-messi-scoring-record-mls-
 **Projecting the new-look Penguins' 2025-26 roster**\
 `Two weeks into the start of free agency, the Penguins look a little different on paper after a couple of trades and signings.`\
 https://nytimes.com/athletic/6492472/2025/07/16/penguins-2025-26-roster-projection-trades-signings-offseason/
-
-**Dodgers second-half storylines: What to watch for from the defending champions**\
-`Will Smith looked like an MVP candidate in the first half, but the Dodgers need some of their other big names to get going. `\
-https://nytimes.com/athletic/6493791/2025/07/16/dodgers-second-half-storylines/
 

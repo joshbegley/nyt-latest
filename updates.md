@@ -1,3 +1,7 @@
+**Alex Bowman on snake removal, 'The Terminator' vs. 'Her,' and more: 12 Questions**\
+`Alex Bowman talks about the time a snake got in his house, his bubbly personality, making races longer and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6493663/2025/07/16/alex-bowman-nascar-12-questions-snakes-terminator/
+
 **Iceland Volcano System Erupts for 12th Time in 4 Years**\
 `The Icelandic Meteorological Office said that the eruptive fissure was about half a mile long but did not pose a threat to people or infrastructure.`\
 https://nytimes.com/video/world/europe/100000010287657/iceland-volcano-system-erupts-for-12th-time-in-4-years.html

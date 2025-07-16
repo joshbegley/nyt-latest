@@ -10,7 +10,7 @@ https://nytimes.com/video/world/europe/100000010287657/iceland-volcano-system-er
 `The JPMorgan Chase chief has long been skeptical of the nontraditional, and less regulated, lending business. Now he thinks its best days may be over.`\
 https://nytimes.com/2025/07/16/business/dealbook/jpmorgan-dimon-private-credit.html
 
-**Europe Rushes to Negotiate a Trade Deal as Trumpâs Team Voices Indifference**\
+**Europe Rushes to Negotiate a Trade Deal as Trump’s Team Voices Indifference**\
 `The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
 https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
 
@@ -22,12 +22,12 @@ https://nytimes.com/athletic/6433067/2025/07/16/buffalo-bills-training-camp-2025
 `There were conflicting accounts from aid officials and Palestinian officials over what happened at the food distribution hub run by the Israeli-backed Gaza Humanitarian Foundation.`\
 https://nytimes.com/2025/07/16/world/middleeast/gaza-aid-site-stampede-ghf.html
 
-**Trump Administration Live Updates: President to Host Qatarâs Prime Minister Amid Gaza Talks**\
+**Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
 ``\
 https://nytimes.com/live/2025/07/16/us/trump-news
 
 **Europeans Threaten to Reimpose Tough U.N. Nuclear Sanctions on Iran**\
-`âSnapbackâ sanctions will be triggered by the end of August if Tehran fails to make concrete progress to limit its nuclear program.`\
+`“Snapback” sanctions will be triggered by the end of August if Tehran fails to make concrete progress to limit its nuclear program.`\
 https://nytimes.com/2025/07/16/world/middleeast/iran-nuclear-program-sanctions.html
 
 **'There are no words' - Lionel Messi and his record-breaking scoring for Inter Miami**\
