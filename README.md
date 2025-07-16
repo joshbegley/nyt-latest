@@ -1,3 +1,7 @@
+**Iceland Volcano System Erupts for 12th Time in 4 Years**\
+`The Icelandic Meteorological Office said that the eruptive fissure was about half a mile long but did not pose a threat to people or infrastructure.`\
+https://nytimes.com/video/world/europe/100000010287657/iceland-volcano-system-erupts-for-12th-time-in-4-years.html
+
 **Has Private Credit Peaked? Dimon Warns It May Have.**\
 `The JPMorgan Chase chief has long been skeptical of the nontraditional, and less regulated, lending business. Now he thinks its best days may be over.`\
 https://nytimes.com/2025/07/16/business/dealbook/jpmorgan-dimon-private-credit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492472/2025/07/16/penguins-2025-26-roster-projecti
 **Dodgers second-half storylines: What to watch for from the defending champions**\
 `Will Smith looked like an MVP candidate in the first half, but the Dodgers need some of their other big names to get going. `\
 https://nytimes.com/athletic/6493791/2025/07/16/dodgers-second-half-storylines/
-
-**Kalinauckas: Norris has finally matched Piastri for one thing all F1 champions needÂ **\
-`Lando Norris' British GP win had much to do with Oscar Piastri's penalty. But it was still significant in the McLaren title fight`\
-https://nytimes.com/athletic/6488172/2025/07/16/lando-norris-mclaren-form-f1-2025/
 
