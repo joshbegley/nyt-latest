@@ -1,4 +1,12 @@
-**Martin Cruz Smith, Best-Selling Author of ‘Gorky Park,’ Dies at 82**\
+**Whatâs in Our Queue? The Brooklyn Botanical Garden and More**\
+`Text by Aliza Aufrichtig`\
+https://nytimes.com/card/2025/07/16/arts/editors-recommendations-botanicalgarden
+
+**How Republicans Supersized Silicon Valleyâs Favorite Tax Break**\
+`Tucked into the huge set of tax cuts that Republicans passed into law this month was the expansion of an unusually valuable tax break for start-up investors.`\
+https://nytimes.com/2025/07/16/us/politics/startup-tax-trump-bill-qsbs.html
+
+**Martin Cruz Smith, Best-Selling Author of âGorky Park,â Dies at 82**\
 `He startled critics, readers and the book industry in 1981 with a novel set in the Soviet Union that had a flawed detective as its antihero.`\
 https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
 
@@ -15,7 +23,7 @@ https://nytimes.com/2025/07/16/business/media/steve-benson-dead.html
 https://nytimes.com/2025/07/16/us/politics/tribal-media-south-dakota.html
 
 **Where Have All the Novel-Reading Men Gone?**\
-`Readers respond to a Styles article about the reading habits of men. Also: Women’s choices; chatbots in toys; conservative professors.`\
+`Readers respond to a Styles article about the reading habits of men. Also: Womenâs choices; chatbots in toys; conservative professors.`\
 https://nytimes.com/2025/07/16/opinion/novels-men-reading.html
 
 **Oakmont suspends Wyndham Clark for damaging lockers**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6462296/2025/07/16/lamine-yamal-lionel-messi-ansu-f
 **Wild release 2025-26 schedule: Key dates, matchups and more**\
 `During Minnesota's 25th anniversary season, the team will navigate the challenges that come with hosting the 2026 World Junior Championship.`\
 https://nytimes.com/athletic/6493037/2025/07/16/minnesota-wild-schedule-2025-26-nhl-key-matchups/
-
-**Massie Moves to Force House Vote on Epstein Files Release**\
-`The Kentucky Republican, a frequent critic of President Trump, teamed with a Democrat in a maneuver that could force G.O.P. leaders to hold a vote on the matter within weeks.`\
-https://nytimes.com/2025/07/16/us/politics/massie-house-vote-epstein-files-release.html
-
-**I Found My Daughter’s Pregnancy Test. Should I Have Told My Wife?**\
-`I wanted to honor my daughter’s privacy about her sex life.`\
-https://nytimes.com/2025/07/16/magazine/daughter-wife-pregnancy-test-ethics.html
 
