@@ -1,3 +1,7 @@
+**Belichick says he took 'big risk' in coaching Pats, not Kraft for hiring him**\
+`"As I told Robert multiple times through the years, I took a big risk by taking the New England Patriots head-coaching job," Belichick said.`\
+https://nytimes.com/athletic/6497850/2025/07/16/bill-belichick-robert-kraft-patriots-risk/
+
 **Palace chairman suggests Forest played significant role in club's Europa League denial**\
 `Palace are set to appeal UEFA's decision at the Court of Arbitration for Sport (CAS) and are considering other avenues.`\
 https://nytimes.com/athletic/6497856/2025/07/16/crystal-palace-europa-league-nottingham-forest/
