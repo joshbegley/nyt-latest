@@ -1,3 +1,7 @@
+**Tsunami Warning Issued for Parts of Alaska Coast**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://nytimes.com/interactive/2025/07/16/weather/alaska-earthquake-tsunami.html
+
 **Louisiana Police Chiefs Accused of Fabricating Robberies in Immigrant Visa Scheme**\
 `Prosecutors said the chiefs and other officials exploited a program that offers immigrant victims of violent crime a pathway to residency and citizenship.`\
 https://nytimes.com/2025/07/16/us/louisiana-police-immigrant-visa-fraud.html
