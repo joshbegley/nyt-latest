@@ -1,3 +1,15 @@
+**Former Olympic medallist Groenvold dies at 49 after being struck by lightning**\
+`The Norwegian Olympian competed in ski cross and alpine skiing before becoming a national team coach.`\
+https://nytimes.com/athletic/6498221/2025/07/16/audun-groenvold-norway-olympic-skiier-death-lightning/
+
+**Tiny Love Stories: âI Thought I Was Straightâ**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words`\
+https://nytimes.com/2025/07/16/style/tiny-modern-love-stories-i-thought-i-was-straight.html
+
+**Thereâs a Flash Flood Season, and This Is It**\
+`Julyâs hot temperatures and moist air are the perfect ingredients for rain.`\
+https://nytimes.com/interactive/2025/07/16/weather/flash-floods.html
+
 **Longtime Sharks executive, former NHL goalie Wayne Thomas dies at 77**\
 `Thomas ran the Sharksâ various American Hockey League affiliates until 2012-13 and retired from the organization after the 2014-15 season.`\
 https://nytimes.com/athletic/6498148/2025/07/16/wayne-thomas-obituary-sharks-nhl/
