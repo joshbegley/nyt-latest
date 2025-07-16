@@ -1,3 +1,7 @@
+**A Royal Course Prepares to Star at the British Open Again**\
+`The town of Portrush in Northern Ireland will host the event for the first time since 2019.`\
+https://nytimes.com/2025/07/16/sports/golf/british-open-royal-portrush.html
+
 **Canada Moves to Block Chinese Steel Now Shut Out of the U.S.**\
 `Canada’s steel industry fears that Chinese steel facing steep tariffs in the United States will be sent north and overwhelm the Canadian market.`\
 https://nytimes.com/2025/07/16/world/canada/carney-trump-us-canada-steel-tariffs.html
@@ -30,11 +34,7 @@ https://nytimes.com/video/world/middleeast/100000010287721/stampede-aid-gaza-hum
 `The NCAA said an academic counselor paid two softball players a combined $550 for the coursework.`\
 https://nytimes.com/athletic/6498274/2025/07/16/memphis-basketball-ncaa-probation/
 
-**The Epstein Story is Both Conspiracy Theory and Genuine Scandal**\
+**The Epstein Story Is Both Conspiracy Theory and Genuine Scandal**\
 `More than a client list, MAGA is looking for meaning.`\
 https://nytimes.com/2025/07/16/opinion/epstein-trump-scandal.html
-
-**Public Views of the Fed Chair Are Polarized as Trump Mulls His Firing**\
-`Few Americans have confidence in the chairman, Jerome Powell, to do the right thing on the economy, though attitudes are deeply partisan.`\
-https://nytimes.com/2025/07/16/us/politics/trump-powell-firing-poll.html
 
