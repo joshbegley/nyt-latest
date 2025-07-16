@@ -1,5 +1,5 @@
 **Ex-Commissioner Sues, Saying Adams Ran N.Y.P.D. as a Criminal Enterprise**\
-`Thomas G. Donlon, who served only weeks, said in a lawsuit that New York’s mayor and top department officials had manipulated the system for personal and political gain.`\
+`Thomas G. Donlon, who served only weeks, said in a lawsuit that New Yorkâs mayor and top department officials had manipulated the system for personal and political gain.`\
 https://nytimes.com/2025/07/16/nyregion/nypd-lawsuit-rico-donlon-eric-adams.html
 
 **'Big logistical issues' to fix before Open returns to Trump Turnberry, says R&A chief**\
@@ -10,12 +10,12 @@ https://nytimes.com/athletic/6497720/2025/07/16/open-championship-turnberry-trum
 `Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
 https://nytimes.com/athletic/6450833/2025/07/16/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
 
-**For Trump, Domestic Adversaries Are Not Just Wrong, They Are ‘Evil’**\
-`The president’s vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
+**For Trump, Domestic Adversaries Are Not Just Wrong, They Are âEvilâ**\
+`The presidentâs vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
 https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html
 
 **Nvidia C.E.O. Treads Carefully in Beijing**\
-`Jensen Huang, the chipmaker’s chief executive, is trying to balance his company’s interests as the United States and China compete for supremacy in artificial intelligence.`\
+`Jensen Huang, the chipmakerâs chief executive, is trying to balance his companyâs interests as the United States and China compete for supremacy in artificial intelligence.`\
 https://nytimes.com/2025/07/16/business/nvidia-jensen-huang-beijing.html
 
 **Giants second-half storylines to watch, starting with the trade deadline**\
@@ -23,11 +23,11 @@ https://nytimes.com/2025/07/16/business/nvidia-jensen-huang-beijing.html
 https://nytimes.com/athletic/6496822/2025/07/16/giants-trade-deadline-second-half-storylines/
 
 **Padres second-half storylines to watch, starting with the 2025 trade deadline**\
-`As the second half approaches, the Padres again loom as one of the sport’s least predictable teams.`\
+`As the second half approaches, the Padres again loom as one of the sportâs least predictable teams.`\
 https://nytimes.com/athletic/6489408/2025/07/16/padres-second-half-storylines-2025-trade-deadline/
 
-**A Father Braces for Life After a Plane Crash Took His ‘Everything’**\
-`His son and daughter-in-law brought love to his home and represented the family’s hope for a better life.`\
+**A Father Braces for Life After a Plane Crash Took His âEverythingâ**\
+`His son and daughter-in-law brought love to his home and represented the familyâs hope for a better life.`\
 https://nytimes.com/2025/07/16/world/asia/air-india-crash-father-grief.html
 
 **Sunderland hold interest in signing Leverkusen's Xhaka**\
