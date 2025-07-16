@@ -1,3 +1,27 @@
+**Nicknames, Notes and a Waddle: How Colorado Fought a Bank Robbery Surge**\
+`Colorado led the country in bank robberies, per capita, for three years starting in 2021. Law enforcement officials found innovative ways to crack the crime wave.`\
+https://nytimes.com/2025/07/16/us/bank-robberies-nicknames-colorado.html
+
+**There’s a Lot to Dig in Donkey Kong Bananza**\
+`A Dante-like descent brims with valuable fossils and gold, but also sharp thorns, burning lava and icy water.`\
+https://nytimes.com/2025/07/16/arts/donkey-kong-bananza-review.html
+
+**Sweden among 'best teams in the world', says captain Asllani**\
+`England’s quarter-final opponents in the 2025 European Championships have reached the semi-finals of the last four major tournaments.`\
+https://nytimes.com/athletic/6497960/2025/07/16/sweden-best-world-england-euro-2025-asllani/
+
+**Montenegrin soccer club banned by UEFA for 10 years for match-fixing**\
+`The Montenegrin club were playing in a Conference League match that was flagged to UEFA for suspicious betting patterns in 2023.`\
+https://nytimes.com/athletic/6497902/2025/07/16/arsenal-tivat-ban-match-fixing-uefa/
+
+**The swing-off stole the show at the All-Star Game. Should MLB go further than that?**\
+`We want to know what The Athletic's readers think about the swing-off after witnessing the finale of Tuesday's Midsummer Classic. `\
+https://nytimes.com/athletic/6497881/2025/07/16/mlb-all-star-game-swing-off-poll/
+
+**With Bowen Byram signed, has Kevyn Adams done enough to improve Sabres?**\
+`It appears the bulk of Buffalo's offseason work is done, but Adams still has a chance to do more to this roster.`\
+https://nytimes.com/athletic/6496984/2025/07/16/sabres-bowen-byram-kevyn-adams/
+
 **Belichick says he took 'big risk' in coaching Pats, not Kraft for hiring him**\
 `"As I told Robert multiple times through the years, I took a big risk by taking the New England Patriots head-coaching job," Belichick said.`\
 https://nytimes.com/athletic/6497850/2025/07/16/bill-belichick-robert-kraft-patriots-risk/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/winners-in-trumps-policy-bill.html
 **Trump Attacks ‘Past’ Supporters Upset Over Epstein Case**\
 `Trump asserted that outrage over the Justice Department’s decision to not release additional information and close the investigation was just the latest “scam” cooked up by Democrats.`\
 https://nytimes.com/2025/07/16/us/politics/trump-epstein-attacks-supporters.html
-
-**Israeli Airstrikes Target Syrian Defense Ministry**\
-`Multiple videos show the moment an Israeli missle hit the Defense Ministry and the surrounding area near the presidential palace in Syria’s capital, Damascus, on Wednesday.`\
-https://nytimes.com/video/world/middleeast/100000010287878/israeli-airstrikes-target-syrian-defense-ministry.html
-
-**Trump Has Drafted Letter to Fire Fed Chair and Asked Republicans if He Should**\
-`The president waved a copy of a draft letter firing Jerome H. Powell at a meeting in the Oval Office with House Republicans. It remains to be seen whether he follows through with his threat.`\
-https://nytimes.com/2025/07/16/us/politics/trump-powell-firing-letter.html
-
-**Battle for Isak and Ekitike is a true test of Newcastle and their owners' ambition**\
-`Three little words - "not for sale" - have been repeated countless times in response to Isak interest. Only now is that going to be tested`\
-https://nytimes.com/athletic/6497273/2025/07/16/isak-ekitike-newcastle-liverpool-transfer-owners/
-
-**Five free agents for the Canucks to consider as value signings**\
-`These players could add some depth to Vancouver's forward group as value adds in the second wave of unrestricted free agency.`\
-https://nytimes.com/athletic/6492554/2025/07/16/canucks-jack-roslovic-victor-olofsson-free-agents/
-
-**Pirates trade Adam Frazier to Royals for infielder Cam Devanney**\
-`Frazier now returns to Kansas City, where he spent the entire 2024 season. `\
-https://nytimes.com/athletic/6497785/2025/07/16/adam-frazier-cam-devanney-pirates-royals-trade/
-
-**Drake Returns Robustly, With Reinforcements**\
-`The Canadian superstar headlined all three nights of London’s Wireless Festival, showing off his range, reach and a glimpse of how he intends to leave his Kendrick Lamar beef in the past.`\
-https://nytimes.com/2025/07/16/arts/music/drake-wireless-festival-london.html
 
