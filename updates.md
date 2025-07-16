@@ -1,3 +1,27 @@
+**Palace chairman suggests Forest played significant role in club's Europa League denial**\
+`Palace are set to appeal UEFA's decision at the Court of Arbitration for Sport (CAS) and are considering other avenues.`\
+https://nytimes.com/athletic/6497856/2025/07/16/crystal-palace-europa-league-nottingham-forest/
+
+**Rum, Fisheries and a Sculpture Garden: The Quiet Winners in Trump’s Big Bill**\
+`The president’s marquee policy legislation is best known for slashing taxes and cutting social safety net programs. But the sweeping measure also included many little-noticed goodies and add-ons.`\
+https://nytimes.com/2025/07/16/us/politics/winners-in-trumps-policy-bill.html
+
+**Trump Attacks ‘Past’ Supporters Upset Over Epstein Case**\
+`Trump asserted that outrage over the Justice Department’s decision to not release additional information and close the investigation was just the latest “scam” cooked up by Democrats.`\
+https://nytimes.com/2025/07/16/us/politics/trump-epstein-attacks-supporters.html
+
+**Israeli Airstrikes Target Syrian Defense Ministry**\
+`Multiple videos show the moment an Israeli missle hit the Defense Ministry and the surrounding area near the presidential palace in Syria’s capital, Damascus, on Wednesday.`\
+https://nytimes.com/video/world/middleeast/100000010287878/israeli-airstrikes-target-syrian-defense-ministry.html
+
+**Drake Returns Robustly, With Reinforcements**\
+`The Canadian superstar headlined all three nights of London’s Wireless Festival, showing off his range, reach and a glimpse of how he intends to leave his Kendrick Lamar beef in the past.`\
+https://nytimes.com/2025/07/16/arts/music/drake-wireless-festival-london.html
+
+**I Took 58 Walks in My 58th Year**\
+`With friends new and old, I figured out what I really value — one step at a time.`\
+https://nytimes.com/2025/07/16/well/mind/walking-ritual.html
+
 **Rum, Fisheries and a Sculpture Garden: The Quiet Winners in Trumpâs Big Bill**\
 `The presidentâs marquee policy legislation is best known for slashing taxes and cutting social safety net programs. But the sweeping measure also included many little-noticed goodies and add-ons.`\
 https://nytimes.com/2025/07/16/us/politics/winners-in-trumps-policy-bill.html
