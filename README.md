@@ -1,3 +1,7 @@
+**NHL schedule release: Analyzing the biggest games and dates of the 2025-26 season**\
+`Homecomings for Marner, Marchand and Toews. Rematches of the back-to-back Stanley Cup finalists. Check out next season's biggest games.`\
+https://nytimes.com/athletic/6497981/2025/07/16/nhl-schedule-release-season-games-matchups/
+
 **Stampede Near Aid Site in Southern Gaza Kills at Least 20 Palestinians**\
 `Gaza’s health ministry and the Israeli-backed Gaza Humanitarian Foundation, the organization that operates the aid distribution site, reported that at least 20 aid seekers were killed as they waited for food on the outskirts of Khan Younis.`\
 https://nytimes.com/video/world/middleeast/100000010287721/stampede-aid-gaza-humanitarian-foundation-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/business/media/henry-raymont-dead.html
 **Eugenie Bouchard to retire from tennis at home tournament in Montreal**\
 `Bouchard, who reached the 2014 Wimbledon final in her breakout year on the WTA Tour, will formally retire at the 2025 Canadian Open. `\
 https://nytimes.com/athletic/6498263/2025/07/16/tennis-eugenie-bouchard-retire-canadian-open/
-
-**A Founding Father of NPR Worries About Its Fate**\
-`Bill Siemering, 91, says potential funding cuts put a “unique, invaluable cultural resource” at risk.`\
-https://nytimes.com/2025/07/16/business/media/npr-funding-bill-siemering.html
 
