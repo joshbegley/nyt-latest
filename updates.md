@@ -1,3 +1,19 @@
+**Justice Dept. to Move Ahead With Bribery Case Against Cuellar**\
+`The decision to sustain the prosecution of the Texas Democrat stands in contrast to the department’s decisions to drop or downgrade investigations of Trump allies or those he deems politically useful.`\
+https://nytimes.com/2025/07/16/us/politics/henry-cuellar-bribery-case-justice-department.html
+
+**Kennedy Fires Two Top Aides in Health Department Shake-Up**\
+`The health secretary ousted his chief of staff and a deputy chief of staff, both of whom were seen as practical and effective government veterans.`\
+https://nytimes.com/2025/07/16/us/politics/rfk-fires-aides-hhs.html
+
+**There’s a Lot to Dig in Donkey Kong Bananza**\
+`A Dante-like descent brims with valuable fossils and gold, but also sharp thorns, burning lava and icy water.`\
+https://nytimes.com/2025/07/16/arts/donkey-kong-bananza-review.html
+
+**Sweden among 'best teams in the world', says captain Asllani**\
+`England’s quarter-final opponents in the 2025 European Championships have reached the semi-finals of the last four major tournaments.`\
+https://nytimes.com/athletic/6497960/2025/07/16/sweden-best-world-england-euro-2025-asllani/
+
 **Thereâs a Lot to Dig in Donkey Kong Bananza**\
 `A Dante-like descent brims with valuable fossils and gold, but also sharp thorns, burning lava and icy water.`\
 https://nytimes.com/2025/07/16/arts/donkey-kong-bananza-review.html
