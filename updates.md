@@ -1,3 +1,15 @@
+**Central Oregon Wildfire Grows to More Than 60,000 Acres**\
+`Gov. Tina Kotek of Oregon issued an emergency declaration on Wednesday as the Cram fire threatened about 430 structures, including nearly 300 homes.`\
+https://nytimes.com/2025/07/16/us/cam-wildfire-oregon-emergency.html
+
+**Vance Tries to Sell the Benefits of Trump’s Megabill but Ignores the Costs**\
+`In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump votes rely on.`\
+https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.html
+
+**Manhattan Prosecutor Who Handled Epstein Cases Is Fired**\
+`Maurene Comey, who is the daughter of the former F.B.I. director James Comey, worked on the criminal cases against Jeffrey Epstein and his associate Ghislaine Maxwell.`\
+https://nytimes.com/2025/07/16/nyregion/maurene-comey-prosecutor-fired-jeffrey-epstein.html
+
 **Trump’s National Guard Troops Are Questioning Their Mission in L.A.**\
 `Thousands of National Guard members have served in the L.A. region since last month. Six soldiers spoke in interviews about low morale over the deployment.`\
 https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
