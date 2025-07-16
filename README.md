@@ -1,9 +1,17 @@
+**Caitlin Clark ruled out of Fever's game vs. Liberty with groin injury**\
+`Clark has now missed 11 games this season after picking up the injury late in Tuesday's win over the Connecticut Sun.`\
+https://nytimes.com/athletic/6498813/2025/07/16/caitlin-clark-groin-injury-fever-liberty/
+
+**Your Morning Coffee, in a Bucket**\
+`Across the United States, cafes are serving jumbo-size coffee drinks in plastic buckets. The gimmick is working.`\
+https://nytimes.com/2025/07/16/style/coffee-buckets-latte.html
+
 **Ceratosaur Fossil Auctioned for $30.5 Million by Sotheby’s**\
 `The price paid for the juvenile specimen of the 150-million-year old predatory dinosaur is the third-highest on record.`\
 https://nytimes.com/2025/07/16/science/sothebys-dinosaur-auction-ceratosaurus.html
 
-**Paulette Jiles, Novelist Who Evoked the American Frontier, Dies at 82**\
-`A poet and memoirist as well, she drew a wide readership with her historical fiction, notably with “News of the World,” which was adapted for a movie.`\
+**Paulette Jiles, 82, Dies; Novelist Evoked the West in ‘News of the World’**\
+`A poet and memoirist as well, she drew a wide readership with her historical fiction, notably with a Civil War-era tale that was adapted for a movie.`\
 https://nytimes.com/2025/07/16/books/paulette-jiles-dead.html
 
 **Senate Democrats Rail at ‘Sloppy, Rushed’ State Dept. Firings**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6498672/2025/07/16/najee-harris-chargers-fireworks-
 **Trump Discussed Firing the Fed Chair**\
 `Also, Israel bombarded Syria’s capital. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/16/briefing/trump-discussed-firing-the-fed-chair.html
-
-**African Nation Says It Will Repatriate Migrants Deported by U.S.**\
-`The Trump administration sent five deportees to Eswatini, an African kingdom, saying that their own countries would not take them. But Eswatini says it will send them home.`\
-https://nytimes.com/2025/07/16/world/africa/eswatini-trump-migrants-deportation.html
-
-**Saturday is for the buzz? Fox Sports finalizing TV deal with Barstool Sports, Dave Portnoy**\
-`Fox deal with Barstool would set up Dave Portnoy-Pat McAfee college football Saturday morning slugfests.`\
-https://nytimes.com/athletic/6498572/2025/07/16/dave-portnoy-fox-sports-barstool-sports-dave-portnoy-dan-big-cat-katz/
 
