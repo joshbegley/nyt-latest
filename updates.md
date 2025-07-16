@@ -1,3 +1,19 @@
+**This Golden Fungus Is Spreading Wildly in North America’s Forests**\
+`The golden oyster mushroom, a tasty species native to Asia, has proliferated in states around the Great Lakes and may crowd out native species, a new study shows.`\
+https://nytimes.com/2025/07/16/science/golden-oyster-mushrooms-invasive-fungus.html
+
+**Readers Really, Really Love This Spicy, Creamy Weeknight Bolognese**\
+`And more of our most popular recipes of 2025 (so far).`\
+https://nytimes.com/2025/07/16/dining/weeknight-bolognese-and-more-popular-nytcooking-recipes.html
+
+**How Exercise Fights Anxiety and Depression**\
+`Decades of research have established that movement has a positive effect on mental health.`\
+https://nytimes.com/2025/07/16/well/move/exercise-mental-health-depression.html
+
+**New Clue to How Matter Outlasted Antimatter at the Big Bang Is Found**\
+`Physicists working at the CERN particle physics lab said they detected a slight but significant difference in how particles of matter and antimatter decay.`\
+https://nytimes.com/2025/07/16/science/antimatter-lhcb-baryons.html
+
 **Shaq threatens to punch RGIII over Angel Reese posts**\
 `Shaq called out Griffin after the former quarterback reposted a racist edit of Reese's "NBA 2K26" cover while denouncing it.`\
 https://nytimes.com/athletic/6497592/2025/07/16/shaq-robert-griffin-iii-angle-reese-posts/

@@ -1,3 +1,19 @@
+**This Golden Fungus Is Spreading Wildly in North America’s Forests**\
+`The golden oyster mushroom, a tasty species native to Asia, has proliferated in states around the Great Lakes and may crowd out native species, a new study shows.`\
+https://nytimes.com/2025/07/16/science/golden-oyster-mushrooms-invasive-fungus.html
+
+**Readers Really, Really Love This Spicy, Creamy Weeknight Bolognese**\
+`And more of our most popular recipes of 2025 (so far).`\
+https://nytimes.com/2025/07/16/dining/weeknight-bolognese-and-more-popular-nytcooking-recipes.html
+
+**How Exercise Fights Anxiety and Depression**\
+`Decades of research have established that movement has a positive effect on mental health.`\
+https://nytimes.com/2025/07/16/well/move/exercise-mental-health-depression.html
+
+**New Clue to How Matter Outlasted Antimatter at the Big Bang Is Found**\
+`Physicists working at the CERN particle physics lab said they detected a slight but significant difference in how particles of matter and antimatter decay.`\
+https://nytimes.com/2025/07/16/science/antimatter-lhcb-baryons.html
+
 **Shaq threatens to punch RGIII over Angel Reese posts**\
 `Shaq called out Griffin after the former quarterback reposted a racist edit of Reese's "NBA 2K26" cover while denouncing it.`\
 https://nytimes.com/athletic/6497592/2025/07/16/shaq-robert-griffin-iii-angle-reese-posts/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6497720/2025/07/16/open-championship-turnberry-trum
 **Atletico complete signing of USMNT's Cardoso from Betis**\
 `Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
 https://nytimes.com/athletic/6450833/2025/07/16/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
-
-**For Trump, Domestic Adversaries Are Not Just Wrong, They Are ‘Evil’**\
-`The president’s vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
-https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html
-
-**Nvidia C.E.O. Treads Carefully in Beijing**\
-`Jensen Huang, the chipmaker’s chief executive, is trying to balance his company’s interests as the United States and China compete for supremacy in artificial intelligence.`\
-https://nytimes.com/2025/07/16/business/nvidia-jensen-huang-beijing.html
-
-**Giants second-half storylines to watch, starting with the trade deadline**\
-`Three storylines to track, starting with the trade deadline at the end of the month.`\
-https://nytimes.com/athletic/6496822/2025/07/16/giants-trade-deadline-second-half-storylines/
-
-**Padres second-half storylines to watch, starting with the 2025 trade deadline**\
-`As the second half approaches, the Padres again loom as one of the sport’s least predictable teams.`\
-https://nytimes.com/athletic/6489408/2025/07/16/padres-second-half-storylines-2025-trade-deadline/
 
