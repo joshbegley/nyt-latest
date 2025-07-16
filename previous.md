@@ -1,3 +1,19 @@
+**Beyond the 'Swing-Off,' an innovative yet simple plan to solve MLB's TV problems: MoneyCall**\
+`More in our weekly sports business cheat sheet: Cal Raleigh, Rob Manfred, Caitlin Clark, Red Bull F1, Club World Cup lessons and more.`\
+https://nytimes.com/athletic/6497652/2025/07/16/mlb-swing-off-rob-manfred-tv-moneycall/
+
+**The Windup: A couple of All-Star Game firsts**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6497141/2025/07/16/mlb-all-star-swing-off-the-windup/
+
+**Russia Isnât Sounding Rattled by Trumpâs Ultimatum**\
+`Russian officials and commentators have shown little indication that Moscow is about to change course under new pressure.`\
+https://nytimes.com/2025/07/16/world/europe/russia-trump-ultimatum.html
+
+**Liverpool in advanced talks to hire Man Utd's Simon Wiles to lead Under-18**\
+`The former Blackpool midfielder is set to replace Marc Bridge-Wilkinson, who left Liverpool after 10 years of service at the end of last sea`\
+https://nytimes.com/athletic/6497599/2025/07/16/liverpool-simon-wiles-manchester-united/
+
 **Is This Restaurant the Only Thing Democrats and Republicans Agree On?**\
 `In polarized Washington, Ama is drawing leaders from both camps with an anti-additive menu and a vow to bar all manner of toxicity.`\
 https://nytimes.com/2025/07/16/dining/ama-restaurant-washington-dc-maha.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6497376/2025/07/16/nwsl-summer-cup-international-to
 **Bournemouth sign Djordje Petrovic from Chelsea on five-year contract**\
 `Petrovic made 31 appearances for Chelsea after signing for the Premier League club from MLS side New England Revolution in 2023.`\
 https://nytimes.com/athletic/6488728/2025/07/16/bournemouth-djordje-petrovic-chelsea-transfer/
-
-**Jamal Musiala exclusive: 'Ronaldinho, Messi, Neymar, Cristiano Ronaldo were untouchable in my eyes'**\
-`The Athletic sat down with the Bayern Munich midfielder, a cover star for EA SPORTS FC 26 alongside Real Madrid's Jude Bellingham`\
-https://nytimes.com/athletic/6472130/2025/07/16/jamal-musiala-bayern-ea-fc26-interview/
-
-**Why We Mistake the Wholesomeness of Gen Z for Conservatism**\
-`Their moderation has been misread.`\
-https://nytimes.com/2025/07/16/opinion/gen-z-wholesome-conservative.html
-
-**Do We Have to Thank My Brother-in-Law for His Gifts if We Hate His Politics?**\
-`A coupleâs passive efforts to keep a relative at armâs length, like quietly donating his gifts to charity, are not being received as intended.`\
-https://nytimes.com/2025/07/16/style/unwanted-gifts.html
-
-**Alex Bowman on snake removal, 'The Terminator' vs. 'Her,' and more: 12 Questions**\
-`Alex Bowman talks about the time a snake got in his house, his bubbly personality, making races longer and more in the latest 12 Questions.`\
-https://nytimes.com/athletic/6493663/2025/07/16/alex-bowman-nascar-12-questions-snakes-terminator/
 
