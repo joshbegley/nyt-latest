@@ -1,3 +1,7 @@
+**Nadler and Duffy in Tense Exchange Over N.Y.C. Subway Safety**\
+`Representative Jerrold Nadler of New York, a member of the House transportation committee, and Transportation Secretary Sean Duffy argued over subway safety statistics during a hearing on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010288537/sean-duffy-jerrold-nadler-nyc-subway.html
+
 **Trump Has Promised More Tariffs on Mexico. What Happens Next?**\
 `President Trump has threatened to increase Mexico’s tariff rate to 30 percent starting Aug. 1, claiming the country hasn’t sufficiently tackled drug cartels.`\
 https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/nyregion/maurene-comey-prosecutor-fired-jeffrey-e
 **Trump’s National Guard Troops Are Questioning Their Mission in L.A.**\
 `Thousands of National Guard members have served in the L.A. region since last month. Six soldiers spoke in interviews about low morale over the deployment.`\
 https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
-
-**The Bills That Could Change Crypto in The U.S.**\
-`There are multiple bills before the House that could redefine the way crypto is regulated in the U.`\
-https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change-crypto-in-the-us.html
 

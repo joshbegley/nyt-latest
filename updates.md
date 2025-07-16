@@ -1,3 +1,7 @@
+**Nadler and Duffy in Tense Exchange Over N.Y.C. Subway Safety**\
+`Representative Jerrold Nadler of New York, a member of the House transportation committee, and Transportation Secretary Sean Duffy argued over subway safety statistics during a hearing on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010288537/sean-duffy-jerrold-nadler-nyc-subway.html
+
 **Trump Has Promised More Tariffs on Mexico. What Happens Next?**\
 `President Trump has threatened to increase Mexico’s tariff rate to 30 percent starting Aug. 1, claiming the country hasn’t sufficiently tackled drug cartels.`\
 https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
