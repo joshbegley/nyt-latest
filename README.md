@@ -1,3 +1,11 @@
+**Justice Dept. to Move Ahead With Bribery Case Against Cuellar**\
+`The decision to sustain the prosecution of the Texas Democrat stands in contrast to the departmentâs decisions to drop or downgrade investigations of Trump allies or those he deems politically useful.`\
+https://nytimes.com/2025/07/16/us/politics/henry-cuellar-bribery-case-justice-department.html
+
+**Kennedy Fires Two Top Aides in Health Department Shake-Up**\
+`The health secretary ousted his chief of staff and a deputy chief of staff, both of whom were seen as practical and effective government veterans.`\
+https://nytimes.com/2025/07/16/us/politics/rfk-fires-aides-hhs.html
+
 **Nicknames, Notes and a Waddle: How Colorado Fought a Bank Robbery Surge**\
 `Colorado led the country in bank robberies, per capita, for three years starting in 2021. Law enforcement officials found innovative ways to crack the crime wave.`\
 https://nytimes.com/2025/07/16/us/bank-robberies-nicknames-colorado.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6497850/2025/07/16/bill-belichick-robert-kraft-patr
 **Palace chairman suggests Forest played significant role in club's Europa League denial**\
 `Palace are set to appeal UEFA's decision at the Court of Arbitration for Sport (CAS) and are considering other avenues.`\
 https://nytimes.com/athletic/6497856/2025/07/16/crystal-palace-europa-league-nottingham-forest/
-
-**Rum, Fisheries and a Sculpture Garden: The Quiet Winners in Trumpâs Big Bill**\
-`The presidentâs marquee policy legislation is best known for slashing taxes and cutting social safety net programs. But the sweeping measure also included many little-noticed goodies and add-ons.`\
-https://nytimes.com/2025/07/16/us/politics/winners-in-trumps-policy-bill.html
-
-**Trump Attacks âPastâ Supporters Upset Over Epstein Case**\
-`Trump asserted that outrage over the Justice Departmentâs decision to not release additional information and close the investigation was just the latest âscamâ cooked up by Democrats.`\
-https://nytimes.com/2025/07/16/us/politics/trump-epstein-attacks-supporters.html
 
