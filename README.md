@@ -1,3 +1,7 @@
+**Pac-12, Mountain West fail to resolve poaching fees case in mediation**\
+`On Tuesday, the Pac-12 and Mountain West acknowledged they had not made progress and requested that the court hold a hearing on Sept. 9.`\
+https://nytimes.com/athletic/6496813/2025/07/15/pac-12-mountain-west-court-case-mediation-failure/
+
 **Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility**\
 `A former employee said she never saw the staff perform fire drills. The local fire chief pushed back at claims that dispatching more firefighters would’ve saved more lives.`\
 https://nytimes.com/2025/07/15/us/fire-gabriel-house-fall-river-massachusetts.html
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/07/15/us/elections/results-washington-dc-ci
 **Canada’s Leader Says There’s Little Hope of Avoiding U.S. Tariffs**\
 `After long insisting that Canada could avoid Trump tariffs through talks, Mark Carney now says that is unlikely for any nation.`\
 https://nytimes.com/2025/07/15/us/politics/canada-tariffs-mark-carney-trump.html
-
-**A 900-Year-Old Typo May Unravel a Chaucer Mystery**\
-`The Tale of Wade, twice referred to in Geoffrey Chaucer’s poems, survives only in a tiny fragment. Two academics argue a scribe’s error deepened the confusion around it.`\
-https://nytimes.com/2025/07/15/world/europe/chaucer-wade-mystery.html
 
