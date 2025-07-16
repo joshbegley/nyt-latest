@@ -1,3 +1,8 @@
+**Guardians second-half storylines: Trades, prospects and JosÃ© RamÃ­rez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
+
 **Should Twins be buyers or sellers? Which pitchers, hitters need to step up in second half?**\
 `With the July 31 trade deadline nearing, the Twins must figure out quickly how they fit into the playoff picture.`\
 https://nytimes.com/athletic/6495763/2025/07/16/twins-three-questions-second-half-mlb/
