@@ -1,3 +1,11 @@
+**Whatâs in Our Queue? The Brooklyn Botanical Garden and More**\
+`Text by Aliza Aufrichtig`\
+https://nytimes.com/card/2025/07/16/arts/editors-recommendations-botanicalgarden
+
+**How Republicans Supersized Silicon Valleyâs Favorite Tax Break**\
+`Tucked into the huge set of tax cuts that Republicans passed into law this month was the expansion of an unusually valuable tax break for start-up investors.`\
+https://nytimes.com/2025/07/16/us/politics/startup-tax-trump-bill-qsbs.html
+
 **Martin Cruz Smith, Best-Selling Author of âGorky Park,â Dies at 82**\
 `He startled critics, readers and the book industry in 1981 with a novel set in the Soviet Union that had a flawed detective as its antihero.`\
 https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
