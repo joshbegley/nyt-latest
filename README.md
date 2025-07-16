@@ -1,40 +1,41 @@
-**Royal Portrush returns: How to watch the 2025 Open Championship**\
-`The 153rd Open returns to the pastoral coast of Northern Ireland. Few venues in golf look like this. Fewer play like it.`\
-https://nytimes.com/athletic/6496885/2025/07/16/open-championship-2025-how-to-watch-weather-picks/
+**TAFC: Isak, Liverpool and a £120m transfer poker game, why Diaz suits Barca, Palmer 'brand' in U.S.**\
+`Today in TAFC: The Isak-Ekitike transfer dilemma for Newcastle and Liverpool, why Barca want Luis Diaz and 'Brand Palmer' in America.`\
+https://nytimes.com/athletic/6497169/2025/07/16/isak-liverpool-newcastle-transfer-diaz-barcelona/
 
-**The New York Times International Edition in Print for Thursday, July 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/16/todays-new-york-times-international-edition
+**The Pulse: That All-Star Game was electric. No, really.**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6496963/2025/07/16/mlb-all-star-game-swing-off-the-pulse/
 
-**As Iran Deports a Million Afghans, âWhere Do We Even Go?â**\
-`Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
-https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
+**Mets' second-half storylines to watch, starting with the trade deadline**\
+`Will the returns of Sean Manaea, Kodai Senga and Frankie Montas be enough to revitalize the Mets' slumping rotation?`\
+https://nytimes.com/athletic/6493419/2025/07/16/mets-second-half-trade-deadline/
 
-**Tigers second-half storylines: Does Detroit have what it takes to win it all?**\
-`The Tigers had MLB's best record in the first half, but can their surprise performers keep going? And can the Tigers fix their bullpen?`\
-https://nytimes.com/athletic/6496061/2025/07/16/tigers-second-half-storylines-mlb/
+**Should Twins be buyers or sellers? Which pitchers, hitters need to step up in second half?**\
+`With the July 31 trade deadline nearing, the Twins must figure out quickly how they fit into the playoff picture.`\
+https://nytimes.com/athletic/6495763/2025/07/16/twins-three-questions-second-half-mlb/
 
-**Afghan Women and Girls Deported From Iran Fear âComing Back to a Cageâ**\
-`âGet ready to copeâ was the message from an aid worker to women returning to Taliban rule in Afghanistan after their expulsion from Iran.`\
-https://nytimes.com/2025/07/16/world/asia/afghanistan-women-refugees.html
+**Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
+`How do you feel about the team’s direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
+https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
 
-**Second-half Red Sox storylines to watch, starting with the trade deadline**\
-`The Red Sox will be riding a 10-game winning streak with 12 games to go before the trade deadline.`\
-https://nytimes.com/athletic/6493693/2025/07/16/red-sox-second-half-storylines-to-watch-starting-with-trade-deadline/
+**What cities did WNBA players think would suit expansion? Not where the league picked**\
+`In our anonymous player poll, athletes also expressed whether they should make at least $1 million in maximum salaries.`\
+https://nytimes.com/athletic/6497013/2025/07/16/wnba-expansion-cities-player-poll/
 
-**Falcons 2025 preview: Can revamped defense improve enough to help playoff cause?**\
-`The Falcons made big defensive changes in the offseason. How much can they improve on last year's dismal statistical finish?`\
-https://nytimes.com/athletic/6488211/2025/07/16/falcons-2025-preview-defense/
+**College football quarterback tiers: Ranking all 136 projected starters entering 2025**\
+`We surveyed more than 40 coaches and staffers from across college football to support our assessments of the nation's best QBs.`\
+https://nytimes.com/athletic/6483745/2025/07/16/college-football-quarterback-tiers-rankings/
 
-**Will Patriots QB Drake Maye take a major Year 2 leap?**\
-`Maye's numbers were only so-so as a rookie, but there's plenty of reason to be optimistic about what he can do under Mike Vrabel.`\
-https://nytimes.com/athletic/6494342/2025/07/16/drake-maye-patriots-qb-year-2/
+**Open Championship Big Board: McIlroy, Fleetwood and other favorites, ranked**\
+`A classic links test is the site for the final major championship of the 2025 men's professional golf season.`\
+https://nytimes.com/athletic/6496449/2025/07/16/open-championship-2025-big-board-mcilroy-fleetwood/
 
-**Supreme Court Keeps Ruling in Trumpâs Favor, but Doesnât Say Why**\
-`In a series of terse, unsigned orders, the court has often been giving the green light to President Trumpâs agenda without a murmur of explanation.`\
-https://nytimes.com/2025/07/16/us/politics/supreme-courts-shadow-docket.html
+**Guardians second-half storylines: Trades, prospects and José Ramírez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
 
-**Public Media Can Be a Lifeline. Gutting It Hurts Everyone.**\
-`Abandoning local public radio and TV would accelerate a dangerous trend straining civic health.`\
-https://nytimes.com/2025/07/16/opinion/pbs-npr-cuts-funding.html
+**Meet the women fueling NFL weight rooms and breaking coaching barriers**\
+`Ten years ago, the NFL had one full-time female coach. Today, there are 15, including six who work in strength and conditioning.`\
+https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
 
