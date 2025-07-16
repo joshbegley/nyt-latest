@@ -1,3 +1,7 @@
+**Maps: Tsunami Warning Issued for Parts of Alaska Coast**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://nytimes.com/interactive/2025/07/16/weather/alaska-earthquake-tsunami.html
+
 **Louisiana Police Chiefs Accused of Fabricating Robberies in Immigrant Visa Scheme**\
 `Prosecutors said the chiefs and other officials exploited a program that offers immigrant victims of violent crime a pathway to residency and citizenship.`\
 https://nytimes.com/2025/07/16/us/louisiana-police-immigrant-visa-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498591/2025/07/16/mathieu-choiniere-lafc-grasshopp
 **Who is Olivia Smith? The 20-year-old Canadian phenom joining Arsenal for £1m**\
 `Liverpool forward Olivia Smith and her father tell the story of her journey to becoming one of the WSL's brightest young prospects`\
 https://nytimes.com/athletic/5921195/2025/07/16/olivia-smith-interview-liverpool-canada/
-
-**Blues 2025-26 schedule takeaways: Revenge date with Winnipeg, reunions and more**\
-`The Blues will have a rematch against the Jets, who knocked them out of the NHL playoffs last season, on Dec. 17.`\
-https://nytimes.com/athletic/6498006/2025/07/16/blues-2025-26-schedule-dates-nhl-jets/
 

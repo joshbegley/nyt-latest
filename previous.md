@@ -1,3 +1,11 @@
+**Louisiana Police Chiefs Accused of Fabricating Robberies in Immigrant Visa Scheme**\
+`Prosecutors said the chiefs and other officials exploited a program that offers immigrant victims of violent crime a pathway to residency and citizenship.`\
+https://nytimes.com/2025/07/16/us/louisiana-police-immigrant-visa-fraud.html
+
+**Thursday Briefing: Israel Strikes Damascus**\
+`Plus, the many takes on Superman.`\
+https://nytimes.com/2025/07/16/briefing/israel-syria-afghanistan-iran-trump-powell.html
+
 **Judge Chastises U.S. Over Secrecy in Moving to Drop Charges Against MS-13 Leader**\
 `The judge on Long Island chided the Trump administration over its effort to “avoid public scrutiny.”`\
 https://nytimes.com/2025/07/16/us/politics/judge-secrecy-ms-13.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5921195/2025/07/16/olivia-smith-interview-liverpool
 **Blues 2025-26 schedule takeaways: Revenge date with Winnipeg, reunions and more**\
 `The Blues will have a rematch against the Jets, who knocked them out of the NHL playoffs last season, on Dec. 17.`\
 https://nytimes.com/athletic/6498006/2025/07/16/blues-2025-26-schedule-dates-nhl-jets/
-
-**London’s Kew Gardens Will Renovate Iconic Glasshouses**\
-`The Palm House and the Waterlily House, two hulking greenhouses built in the Victorian Era, will close in 2027 for four years of major renovations.`\
-https://nytimes.com/2025/07/16/world/europe/kew-london-renovate-glasshouse-palm-water-lily.html
-
-**Syria Agrees to Cease-Fire in Sweida After Israeli Attack on Damascus**\
-`Israel launched deadly airstrikes on Syria’s capital on Wednesday, and threatened to escalate unless Syrian government forces withdrew from Sweida, a southern province dominated by the country’s Druse minority.`\
-https://nytimes.com/video/world/middleeast/100000010288192/syria-israel-airstrike.html
 

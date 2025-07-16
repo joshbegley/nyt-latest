@@ -1,3 +1,11 @@
+**Louisiana Police Chiefs Accused of Fabricating Robberies in Immigrant Visa Scheme**\
+`Prosecutors said the chiefs and other officials exploited a program that offers immigrant victims of violent crime a pathway to residency and citizenship.`\
+https://nytimes.com/2025/07/16/us/louisiana-police-immigrant-visa-fraud.html
+
+**Thursday Briefing: Israel Strikes Damascus**\
+`Plus, the many takes on Superman.`\
+https://nytimes.com/2025/07/16/briefing/israel-syria-afghanistan-iran-trump-powell.html
+
 **Judge Chastises U.S. Over Secrecy in Moving to Drop Charges Against MS-13 Leader**\
 `The judge on Long Island chided the Trump administration over its effort to “avoid public scrutiny.”`\
 https://nytimes.com/2025/07/16/us/politics/judge-secrecy-ms-13.html
