@@ -1,3 +1,23 @@
+**There’s a Flash Flood Season, and This Is It**\
+`July’s hot temperatures and moist air are the perfect ingredients for rain.`\
+https://nytimes.com/interactive/2025/07/16/weather/2025-07-16-flood-month.html
+
+**What’s in Our Queue? The Brooklyn Botanical Garden and More**\
+`Text by Aliza Aufrichtig`\
+https://nytimes.com/card/2025/07/16/arts/editors-recommendations-botanicalgarden
+
+**How Republicans Supersized Silicon Valley’s Favorite Tax Break**\
+`Tucked into the huge set of tax cuts that Republicans passed into law this month was the expansion of an unusually valuable tax break for start-up investors.`\
+https://nytimes.com/2025/07/16/us/politics/startup-tax-trump-bill-qsbs.html
+
+**Martin Cruz Smith, Best-Selling Author of ‘Gorky Park,’ Dies at 82**\
+`He startled critics, readers and the book industry in 1981 with a novel set in the Soviet Union that had a flawed detective as its antihero.`\
+https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
+
+**Where Have All the Novel-Reading Men Gone?**\
+`Readers respond to a Styles article about the reading habits of men. Also: Women’s choices; chatbots in toys; conservative professors.`\
+https://nytimes.com/2025/07/16/opinion/novels-men-reading.html
+
 **Thereâs a Flash Flood Season, and This Is It**\
 `Julyâs hot temperatures and moist air are the perfect ingredients for rain.`\
 https://nytimes.com/interactive/2025/07/16/weather/2025-07-16-flood-month.html
