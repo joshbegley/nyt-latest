@@ -1,3 +1,8 @@
+**Guardians second-half storylines: Trades, prospects and JosÃ© RamÃ­rez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
+
 **TAFC: Isak, Liverpool and a Â£120m transfer poker game, why Diaz suits Barca, Palmer 'brand' in U.S.**\
 `Today in TAFC: The Isak-Ekitike transfer dilemma for Newcastle and Liverpool, why Barca want Luis Diaz and 'Brand Palmer' in America.`\
 https://nytimes.com/athletic/6497169/2025/07/16/isak-liverpool-newcastle-transfer-diaz-barcelona/
