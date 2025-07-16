@@ -1,3 +1,23 @@
+**ABS challenge system quickly makes an impact in All-Star Game debut**\
+`The Automated Ball-Strike system, which had only been seen in spring training games at the major-league level, was used four times.`\
+https://nytimes.com/athletic/6497391/2025/07/16/automated-ball-strike-system-all-star-game/
+
+**West Indies' cricketing decline feels terminal - and that should worry everyone**\
+`It will take far more than a legends-led review to cure the problems affecting the sport in the Caribbean`\
+https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
+
+**Trump Announces âGreat Dealâ on Trade With Indonesia**\
+`Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
+https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
+
+**Flood Season**\
+`We look at recent flooding â and explain what you can do to stay safe.`\
+https://nytimes.com/2025/07/16/briefing/flooding-northeast-risk.html
+
+**Phillies second-half storylines to watch, starting with the trade deadline**\
+`They will head into the second half prepared to shake up the same groups as during last yearâs trade deadline and the offseason. `\
+https://nytimes.com/athletic/6496683/2025/07/16/phillies-storylines-trade-deadline-second-half/
+
 **Cardinals second-half storylines to watch, starting with the trade deadline**\
 `Masyn Winn and other strong performers powered the Cardinals' flying start, but the team could be sellers by the end of the month. `\
 https://nytimes.com/athletic/6489333/2025/07/16/cardinals-second-half-storylines/

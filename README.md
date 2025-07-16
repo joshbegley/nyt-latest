@@ -1,3 +1,11 @@
+**Amid nonstop rumors, signs point to LeBron James' future sticking with Lakers**\
+`LAS VEGAS — LeBron James shook hands with Rob Pelinka, joked with JJ Redick, talked golf with Austin Reaves and posed for pictures with his team’s newest players, Jake LaRavia and Deandre Ayton.`\
+https://nytimes.com/athletic/6497098/2025/07/16/lebron-james-lakers-buyout-trade/
+
+**Exclusive: Bucks GM Jon Horst on team's bold summer moves: 'Now matters more than anything'**\
+`In Part 1 of an exclusive discussion, Horst delves into his faith in Doc Rivers, Giannis as point forward and the team's big-picture vision.`\
+https://nytimes.com/athletic/6496242/2025/07/16/bucks-jon-horst-myles-turner-giannis-offseason-interview/
+
 **Cardinals second-half storylines to watch, starting with the trade deadline**\
 `Masyn Winn and other strong performers powered the Cardinals' flying start, but the team could be sellers by the end of the month. `\
 https://nytimes.com/athletic/6489333/2025/07/16/cardinals-second-half-storylines/
@@ -18,23 +26,15 @@ https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
 `There was good reason to be skeptical of MLB's new format to end an All-Star Game tie, until it happened for the first time.`\
 https://nytimes.com/athletic/6497335/2025/07/16/mlb-all-star-game-swing-off/
 
-**Trump Announces âGreat Dealâ on Trade With Indonesia**\
-`Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
+**Indonesia Confirms U.S. Trade Agreement, but Details Remain Scarce**\
+`President Trump said the agreement would partly walk back some of the steep tariffs he threatened on the country last week. Indonesia’s president called Mr. Trump a “tough negotiator.”`\
 https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
 
 **Flood Season**\
-`We look at recent flooding â and explain what you can do to stay safe.`\
+`We look at recent flooding — and explain what you can do to stay safe.`\
 https://nytimes.com/2025/07/16/briefing/flooding-northeast-risk.html
 
 **Phillies second-half storylines to watch, starting with the trade deadline**\
-`They will head into the second half prepared to shake up the same groups as during last yearâs trade deadline and the offseason. `\
+`They will head into the second half prepared to shake up the same groups as during last year’s trade deadline and the offseason. `\
 https://nytimes.com/athletic/6496683/2025/07/16/phillies-storylines-trade-deadline-second-half/
-
-**Yankees second-half storylines to watch, starting with the trade deadline**\
-`Even though the Yankees are 10 games over .500, it's hard not to feel like they've been underachieving. Here are three storylines to watch. `\
-https://nytimes.com/athletic/6495507/2025/07/16/yankees-trade-deadline-second-half-storylines/
-
-**Who won the 2025 'Dollars and sense' Chicago sports media survey?**\
-`It had been three years since we did a local sports media survey, and voters were ready. More than twice as many responded this time around.`\
-https://nytimes.com/athletic/6495285/2025/07/16/chicago-sports-media-survey-2025-dollars-and-sense/
 
