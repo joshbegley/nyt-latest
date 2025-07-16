@@ -1,3 +1,11 @@
+**The Epstein Story is Both Conspiracy Theory and Genuine Scandal**\
+`More than a client list, MAGA is looking for meaning.`\
+https://nytimes.com/2025/07/16/opinion/epstein-trump-scandal.html
+
+**Public Views of the Fed Chair Are Polarized as Trump Mulls His Firing**\
+`Few Americans have confidence in the chairman, Jerome Powell, to do the right thing on the economy, though attitudes are deeply partisan.`\
+https://nytimes.com/2025/07/16/us/politics/trump-powell-firing-poll.html
+
 **Wisconsin's Fourqurean potentially ineligible for 2025 after lawsuit ruling overturned**\
 `Fourqurean is a fifth-year senior who played his first two seasons at Division II Grand Valley State.`\
 https://nytimes.com/athletic/6498309/2025/07/16/wisconsin-nyzier-fourqurean-ineligible-ruling-overturn/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/style/are-you-watching-video-podcasts.html
 **20 States Sue Trump Administration Over Ending FEMA Funding for Disaster Mitigation**\
 `FEMA announced in April that it was ending the funding to eliminate “waste, fraud and abuse.” The program saved taxpayers more than $150 billion over 20 years, the plaintiffs said.`\
 https://nytimes.com/2025/07/16/us/politics/trump-lawsuit-fema-disaster-funding.html
-
-**Utah Man Drowns Trying to Rescue Girl in Reservoir**\
-`As a 12-year-old girl on a tube drifted away in a reservoir, her brother-in-law jumped in to save her. She survived.`\
-https://nytimes.com/2025/07/16/us/utah-lake-drowning-paddleboard.html
-
-**Bradley Beal, Suns agree to contract buyout; guard plans to join Clippers: Sources**\
-`Beal, 32, will give back $13.8 million of the $110.8 million the Suns previously owed him over the next two years, a league source said.`\
-https://nytimes.com/athletic/6495901/2025/07/16/bradley-beal-contract-buyout-suns-clippers-nba/
 
