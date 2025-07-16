@@ -1,3 +1,20 @@
+**TAFC: Isak, Liverpool and a Â£120m transfer poker game, why Diaz suits Barca, Palmer 'brand' in U.S.**\
+`Today in TAFC: The Isak-Ekitike transfer dilemma for Newcastle and Liverpool, why Barca want Luis Diaz and 'Brand Palmer' in America.`\
+https://nytimes.com/athletic/6497169/2025/07/16/isak-liverpool-newcastle-transfer-diaz-barcelona/
+
+**The Pulse: That All-Star Game was electric. No, really.**\
+`The Pulse Newsletter ð£ | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6496963/2025/07/16/mlb-all-star-game-swing-off-the-pulse/
+
+**Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
+`How do you feel about the teamâs direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
+https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
+
+**Guardians second-half storylines: Trades, prospects and JosÃ© RamÃ­rez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
+
 **TAFC: Isak, Liverpool and a £120m transfer poker game, why Diaz suits Barca, Palmer 'brand' in U.S.**\
 `Today in TAFC: The Isak-Ekitike transfer dilemma for Newcastle and Liverpool, why Barca want Luis Diaz and 'Brand Palmer' in America.`\
 https://nytimes.com/athletic/6497169/2025/07/16/isak-liverpool-newcastle-transfer-diaz-barcelona/
