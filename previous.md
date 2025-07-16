@@ -1,3 +1,7 @@
+**Who is Olivia Smith? The 20-year-old Canadian phenom joining Arsenal for £1m**\
+`Liverpool forward Olivia Smith and her father tell the story of her journey to becoming one of the WSL's brightest young prospects`\
+https://nytimes.com/athletic/5921195/2025/07/16/olivia-smith-interview-liverpool-canada/
+
 **Blues 2025-26 schedule takeaways: Revenge date with Winnipeg, reunions and more**\
 `The Blues will have a rematch against the Jets, who knocked them out of the NHL playoffs last season, on Dec. 17.`\
 https://nytimes.com/athletic/6498006/2025/07/16/blues-2025-26-schedule-dates-nhl-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498010/2025/07/16/bill-belichick-robert-kraft-feud
 **The British Open Is Special to Tom Watson. He Won It Five Times.**\
 `He talks about landing his first major at the event 50 years ago.`\
 https://nytimes.com/2025/07/16/sports/golf/british-open-tom-watson.html
-
-**The Players to Watch at the British Open**\
-`There is Rory McIlroy and Scottie Scheffler, of course, but here are five other players to keep an eye on.`\
-https://nytimes.com/2025/07/16/sports/golf/british-open-players-watch.html
 
