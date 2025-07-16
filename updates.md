@@ -1,3 +1,23 @@
+**Trump Administration Resumes Third-Country Deportation Flights**\
+`The five migrants on the latest flight, all from different countries, were sent to Eswatini, a small nation in southern Africa.`\
+https://nytimes.com/2025/07/15/us/politics/trump-deportation-flights-eswatini.html
+
+**Mamdani Says He Will ‘Discourage’ the Term ‘Globalize the Intifada’**\
+`Zohran Mamdani, the Democratic nominee in the race for mayor of New York City, moved to distance himself from comments that sparked outrage during the primary.`\
+https://nytimes.com/2025/07/15/business/mamdani-globalize-intafada-business-leaders.html
+
+**Senate Advances Trump Clawback of Foreign Aid and Public Broadcast Funds**\
+`The vote to take up legislation to rescind $9 billion in funds Congress has already approved suggested that Republicans would bow to the president’s wishes in the simmering fight over spending powers.`\
+https://nytimes.com/2025/07/15/us/politics/senate-rescission-foreign-aid-public-broadcasting.html
+
+**Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility**\
+`A former employee said she never saw the staff perform fire drills. The local fire chief pushed back at claims that dispatching more firefighters would’ve saved more lives.`\
+https://nytimes.com/2025/07/15/us/fire-gabriel-house-fall-river-massachusetts.html
+
+**Huckabee Calls Death of Palestinian-American in West Bank ‘Terrorism’**\
+`Mike Huckabee, the U.S. ambassador to Israel, demanded “accountability for this criminal and terrorist act,” referring to the killing last week of Sayfollah Musallet in the occupied territories.`\
+https://nytimes.com/2025/07/15/world/middleeast/huckabee-west-bank-musallet-killing.html
+
 **How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
 `The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
 `\
