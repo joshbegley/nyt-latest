@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6497960/2025/07/16/sweden-best-world-england-euro-2
 https://nytimes.com/athletic/6497902/2025/07/16/arsenal-tivat-ban-match-fixing-uefa/
 
 **The swing-off stole the show at the All-Star Game. Should MLB go further than that?**\
-`We want to know what The Athletic's readers think about the swing-off after witnessing the finale of Tuesday's Midsummer Classic. `\
+`We want to know what The Athletic's readers think about the swing-off after seeing the finale of Tuesday's Midsummer Classic. `\
 https://nytimes.com/athletic/6497881/2025/07/16/mlb-all-star-game-swing-off-poll/
 
 **With Bowen Byram signed, has Kevyn Adams done enough to improve Sabres?**\
