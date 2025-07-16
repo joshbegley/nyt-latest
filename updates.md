@@ -1,3 +1,23 @@
+**Royal Portrush returns: How to watch the 2025 Open Championship**\
+`The 153rd Open returns to the pastoral coast of Northern Ireland. Few venues in golf look like this. Fewer play like it.`\
+https://nytimes.com/athletic/6496885/2025/07/16/open-championship-2025-how-to-watch-weather-picks/
+
+**The New York Times International Edition in Print for Thursday, July 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/16/todays-new-york-times-international-edition
+
+**As Iran Deports a Million Afghans, âWhere Do We Even Go?â**\
+`Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
+https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
+
+**Afghan Women and Girls Deported From Iran Fear âComing Back to a Cageâ**\
+`âGet ready to copeâ was the message from an aid worker to women returning to Taliban rule in Afghanistan after their expulsion from Iran.`\
+https://nytimes.com/2025/07/16/world/asia/afghanistan-women-refugees.html
+
+**Supreme Court Keeps Ruling in Trumpâs Favor, but Doesnât Say Why**\
+`In a series of terse, unsigned orders, the court has often been giving the green light to President Trumpâs agenda without a murmur of explanation.`\
+https://nytimes.com/2025/07/16/us/politics/supreme-courts-shadow-docket.html
+
 **As Iran Deports a Million Afghans, ‘Where Do We Even Go?’**\
 `Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
 https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
