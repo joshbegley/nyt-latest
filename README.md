@@ -4,7 +4,7 @@ https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-sta
 
 **Israel Targets Government Buildings in Syriaâs Capital**\
 `Israel warned Syriaâs government that it was monitoring the actions of its military forces against the countryâs Druse minority.`\
-https://nytimes.com/2025/07/16/world/europe/israel-syria-damascus-strikes.html
+https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
 
 **Liverpool make contact with Eintracht over Ekitike**\
 `Newcastle remain interested in Ekitike, having seen a â¬75m bid for the forward turned down.`\

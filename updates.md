@@ -1,3 +1,15 @@
+**Goldman Sachs Sets Series of Records on Tariff Swings**\
+`Goldman and other investment banks are feeding off a Trump boom.`\
+https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-stanley.html
+
+**Israel Targets Government Buildings in Syriaâs Capital**\
+`Israel warned Syriaâs government that it was monitoring the actions of its military forces against the countryâs Druse minority.`\
+https://nytimes.com/2025/07/16/world/europe/israel-syria-damascus-strikes.html
+
+**Liverpool make contact with Eintracht over Ekitike**\
+`Newcastle remain interested in Ekitike, having seen a â¬75m bid for the forward turned down.`\
+https://nytimes.com/athletic/6493702/2025/07/16/hugo-ekitike-liverpool-transfer-eintracht-frankfurt/
+
 **Beyond the 'Swing-Off,' an innovative yet simple plan to solve MLB's TV problems: MoneyCall**\
 `More in our weekly sports business cheat sheet: Cal Raleigh, Rob Manfred, Caitlin Clark, Red Bull F1, Club World Cup lessons and more.`\
 https://nytimes.com/athletic/6497652/2025/07/16/mlb-swing-off-rob-manfred-tv-moneycall/
