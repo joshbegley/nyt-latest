@@ -1,3 +1,15 @@
+**Canada Moves to Block Chinese Steel Now Shut Out of the U.S.**\
+`Canada’s steel industry fears that Chinese steel facing steep tariffs in the United States will be sent north and overwhelm the Canadian market.`\
+https://nytimes.com/2025/07/16/world/canada/carney-trump-us-canada-steel-tariffs.html
+
+**Yamal says Barcelona is the ‘club of his life’ after becoming new No 10**\
+`Barcelona have announced that Yamal, who turned 18 on Sunday, will now don the iconic No 10 shirt.`\
+https://nytimes.com/athletic/6498454/2025/07/16/barcelona-lamine-yamal-no-10-shirt/
+
+**With petty remarks, Bill Belichick again stokes feud with Patriots owner Robert Kraft**\
+`Belichick and Kraft's public spat continued with the coach taking offense at the idea that the Patriots owner took a risk in hiring him.`\
+https://nytimes.com/athletic/6498010/2025/07/16/bill-belichick-robert-kraft-feud-patriots/
+
 **The British Open Is Special to Tom Watson. He Won It Five Times.**\
 `He talks about landing his first major at the event 50 years ago.`\
 https://nytimes.com/2025/07/16/sports/golf/british-open-tom-watson.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/16/opinion/epstein-trump-scandal.html
 **Public Views of the Fed Chair Are Polarized as Trump Mulls His Firing**\
 `Few Americans have confidence in the chairman, Jerome Powell, to do the right thing on the economy, though attitudes are deeply partisan.`\
 https://nytimes.com/2025/07/16/us/politics/trump-powell-firing-poll.html
-
-**Wisconsin's Fourqurean potentially ineligible for 2025 after lawsuit ruling overturned**\
-`Fourqurean is a fifth-year senior who played his first two seasons at Division II Grand Valley State.`\
-https://nytimes.com/athletic/6498309/2025/07/16/wisconsin-nyzier-fourqurean-ineligible-ruling-overturn/
-
-**Sabres 2025-26 schedule: Opportunity for a hot start at home, plus more takeaways**\
-`Here’s a full look at the schedule with notes on some highlights of the Sabres’ slate this season.`\
-https://nytimes.com/athletic/6498316/2025/07/16/buffalo-sabres-2025-26-schedule-analysis/
-
-**Arsenal Women set to sign Liverpool striker Olivia Smith in world-record £1m deal**\
-`The 20-year-old was Liverpool Women’s top scorer last season with seven goals in a campaign where the club finished seventh.`\
-https://nytimes.com/athletic/6408481/2025/07/16/arsenal-liverpool-olivia-smith-transfer-news/
 
