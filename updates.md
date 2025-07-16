@@ -1,3 +1,7 @@
+**At Least 20 Killed in Stampede Outside a Gaza Food Site, Aid Organization Says**\
+`There were conflicting accounts from aid officials and Palestinian officials over what happened at the food distribution hub run by the Israeli-backed Gaza Humanitarian Foundation.`\
+https://nytimes.com/2025/07/16/world/middleeast/gaza-aid-site-stampede-ghf.html
+
 **Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
 ``\
 https://nytimes.com/live/2025/07/16/us/trump-news

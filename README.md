@@ -1,3 +1,11 @@
+**Europe Rushes to Negotiate a Trade Deal as Trump’s Team Voices Indifference**\
+`The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
+https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
+
+**Bills training camp 2025 defensive tackle preview: How will struggling position look after changes?**\
+`The Bills made several additions at defensive tackle to try to improve.`\
+https://nytimes.com/athletic/6433067/2025/07/16/buffalo-bills-training-camp-2025-preview-defensive-tackle/
+
 **At Least 20 Killed in Stampede Outside a Gaza Food Site, Aid Organization Says**\
 `There were conflicting accounts from aid officials and Palestinian officials over what happened at the food distribution hub run by the Israeli-backed Gaza Humanitarian Foundation.`\
 https://nytimes.com/2025/07/16/world/middleeast/gaza-aid-site-stampede-ghf.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6488172/2025/07/16/lando-norris-mclaren-form-f1-202
 **The fantasy football running backs to draft ... and those to avoid**\
 `Jake Ciely suggests a Hero RB approach as he illustrates his fantasy football strategy to maximize value at the position in 2025.`\
 https://nytimes.com/athletic/6495703/2025/07/16/fantasy-football-draft-best-rb-rankings-values-adp/
-
-**Clippers need rookie Yanic Konan Niederhäuser to keep channeling his 'barbarian' side**\
-`As the 22-year-old center develops, he can look to a couple of teammates as examples of how continued improvement can pay off.`\
-https://nytimes.com/athletic/6495005/2025/07/16/yanic-konan-niederhauser-clippers-centers-nba/
-
-**Rangers mailbag: Alexis Lafrenière's production, depth concerns and prospect competitions**\
-`"Will Juuso Pärssinen get a fair shot at third-line center?" asks one reader in the Rangers mailbag.`\
-https://nytimes.com/athletic/6496255/2025/07/16/rangers-alexis-lafreniere-mailbag/
 

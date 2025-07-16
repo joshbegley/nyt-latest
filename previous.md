@@ -1,3 +1,7 @@
+**At Least 20 Killed in Stampede Outside a Gaza Food Site, Aid Organization Says**\
+`There were conflicting accounts from aid officials and Palestinian officials over what happened at the food distribution hub run by the Israeli-backed Gaza Humanitarian Foundation.`\
+https://nytimes.com/2025/07/16/world/middleeast/gaza-aid-site-stampede-ghf.html
+
 **Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
 ``\
 https://nytimes.com/live/2025/07/16/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495005/2025/07/16/yanic-konan-niederhauser-clipper
 **Rangers mailbag: Alexis Lafrenière's production, depth concerns and prospect competitions**\
 `"Will Juuso Pärssinen get a fair shot at third-line center?" asks one reader in the Rangers mailbag.`\
 https://nytimes.com/athletic/6496255/2025/07/16/rangers-alexis-lafreniere-mailbag/
-
-**Lowetide: What else can the Oilers get done this offseason?**\
-`Here are a few things to watch for over the rest of the summer for Oilers fans.`\
-https://nytimes.com/athletic/6496619/2025/07/16/edmonton-oilers-news-offseason-2025/
 
