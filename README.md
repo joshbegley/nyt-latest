@@ -1,3 +1,11 @@
+**Wisconsin's Fourqurean potentially ineligible for 2025 after lawsuit ruling overturned**\
+`Fourqurean is a fifth-year senior who played his first two seasons at Division II Grand Valley State.`\
+https://nytimes.com/athletic/6498309/2025/07/16/wisconsin-nyzier-fourqurean-ineligible-ruling-overturn/
+
+**Sabres 2025-26 schedule: Opportunity for a hot start at home, plus more takeaways**\
+`Here’s a full look at the schedule with notes on some highlights of the Sabres’ slate this season.`\
+https://nytimes.com/athletic/6498316/2025/07/16/buffalo-sabres-2025-26-schedule-analysis/
+
 **Arsenal Women set to sign Liverpool striker Olivia Smith in world-record deal**\
 `The 20-year-old was Liverpool Women’s top scorer last season with seven goals in a campaign where the club finished seventh.`\
 https://nytimes.com/athletic/6408481/2025/07/16/arsenal-liverpool-olivia-smith-transfer-news/
@@ -23,18 +31,10 @@ https://nytimes.com/2025/07/16/style/are-you-watching-video-podcasts.html
 https://nytimes.com/2025/07/16/us/politics/trump-lawsuit-fema-disaster-funding.html
 
 **Utah Man Drowns Trying to Rescue Girl in Reservoir**\
-`As a 12-year-old girl on a tube drifted away in a reservoir, a family member jumped in to save her. She survived.`\
+`As a 12-year-old girl on a tube drifted away in a reservoir, her brother-in-law jumped in to save her. She survived.`\
 https://nytimes.com/2025/07/16/us/utah-lake-drowning-paddleboard.html
 
 **Bradley Beal, Suns agree to contract buyout; guard plans to join Clippers: Sources**\
 `Beal, 32, will give back $13.8 million of the $110.8 million the Suns previously owed him over the next two years, a league source said.`\
 https://nytimes.com/athletic/6495901/2025/07/16/bradley-beal-contract-buyout-suns-clippers-nba/
-
-**Barcelona reach agreement for transfer of defender Martina Fernandez to Everton**\
-`England forward Katie Robinson has also joined on loan from Aston Villa with an option to buy.`\
-https://nytimes.com/athletic/6483945/2025/07/16/everton-barcelona-martina-fernandez/
-
-**Mamdani, Be a Convener, Not a Commentator**\
-`Mamdani is pulled between his supporters and his critics on the phrase “globalize the intifada.”`\
-https://nytimes.com/2025/07/16/opinion/zohran-mamdani-globalize-intifada-israel.html
 
