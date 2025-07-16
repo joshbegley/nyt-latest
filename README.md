@@ -1,3 +1,11 @@
+**It Was Supposed to Be ‘Crypto Week’ in Congress. Then It Unraveled.**\
+`The crypto industry was headed for a landmark moment in the House with three bills that it helped push going to a vote. But a coalition of ultraconservative House Republicans staged a mutiny.`\
+https://nytimes.com/2025/07/16/technology/crypto-week-congress-bills.html
+
+**900 Ex-Justice Dept. Lawyers Urge Senate Not to Confirm Bove as Federal Appeals Judge**\
+`The lawyers wrote that Emil Bove III, the face of some controversial moves by President Trump’s Justice Department, had disgraced the department.`\
+https://nytimes.com/2025/07/16/us/politics/justice-dept-lawyers-emil-bove-federal-judge.html
+
 **Blue Jackets' schedule challenges them to play better on the road and in back-to-backs**\
 `Better performances in uncomfortable settings and when the legs are weary are going to be key for Columbus to succeed in 2025-26.`\
 https://nytimes.com/athletic/6498320/2025/07/16/blue-jackets-2025-26-schedule-dates-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010288163/grand-canyon-north-rim-fire.html
 **A Royal Course Prepares to Star at the British Open Again**\
 `The town of Portrush in Northern Ireland will host the event for the first time since 2019.`\
 https://nytimes.com/2025/07/16/sports/golf/british-open-royal-portrush.html
-
-**Canada Moves to Block Chinese Steel Now Shut Out of the U.S.**\
-`Canada’s steel industry fears that Chinese steel facing steep tariffs in the United States will be sent north and overwhelm the Canadian market.`\
-https://nytimes.com/2025/07/16/world/canada/carney-trump-us-canada-steel-tariffs.html
-
-**Yamal says Barcelona is the ‘club of his life’ after becoming new No 10**\
-`Barcelona have announced that Yamal, who turned 18 on Sunday, will now don the iconic No 10 shirt.`\
-https://nytimes.com/athletic/6498454/2025/07/16/barcelona-lamine-yamal-no-10-shirt/
 
