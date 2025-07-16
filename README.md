@@ -1,3 +1,15 @@
+**Ballyâs Bronx Casino Plan Appears Dead After Council Rejects Rezoning**\
+`The City Council vote all but dooms the companyâs chances of obtaining one of up to three casino licenses that New York State is expected to award this year.`\
+https://nytimes.com/2025/07/16/nyregion/ballys-casino-bronx.html
+
+**A Reporterâs Methodical Quest to Find New Yorkâs Best Croissants**\
+`A food writer scouted more than 100 bakeries in search of flaky, buttery perfection.`\
+https://nytimes.com/2025/07/16/insider/croissant-nyc-best.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on todayâs puzzle? We can help.`\
+https://nytimes.com/2025/07/16/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Fans the Flames of Burning MAGA Hats**\
 `People torched the hats in videos, apparently upset about the Jeffrey Epstein case. âPeople in China were like, âOh, come on, we worked so hard making them,ââ Fallon said.`\
 https://nytimes.com/2025/07/16/arts/television/jimmy-fallon-jeffrey-epstein.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6495133/2025/07/16/inside-tour-de-france-team-car-2
 **Why Forest shouldn't feel bad about taking Crystal Palace's Europa League place**\
 `Itâs tough not to feel enormous sympathy for the Palace fans but it's not Forest's problem that their club can't keep up with their admin`\
 https://nytimes.com/athletic/6494011/2025/07/16/nottingham-forest-europa-league-crystal-palace/
-
-**Aston Villa's rebirth - and what I learned from writing a book about it**\
-`Executives past and present, players and staff revealed how an ailing giant was resurrected, and much more besides`\
-https://nytimes.com/athletic/6492613/2025/07/16/aston-villa-rebirth-book/
-
-**Tottenham's transfer policy will please Danny Rose, but will it get results?**\
-`The ex-Spurs defender once quipped he wanted them to sign players he did not âhave to Googleâ - is that the path to success...?`\
-https://nytimes.com/athletic/6485756/2025/07/16/tottenham-transfer-policy-google-players/
-
-**Welcome, Marti Cifuentes - now here's what needs sorting at Leicester**\
-`Breaking down the biggest challenges facing the new man in charge at the relegated former Premier League champions`\
-https://nytimes.com/athletic/6490830/2025/07/16/leicester-marti-cifuentes-manager-head-coach/
 
