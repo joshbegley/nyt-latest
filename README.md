@@ -1,5 +1,5 @@
 **Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
-`How do you feel about the teamâs direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
+`How do you feel about the team’s direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
 https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
 
 **What cities did WNBA players think would suit expansion? Not where the league picked**\
@@ -14,12 +14,12 @@ https://nytimes.com/athletic/6483745/2025/07/16/college-football-quarterback-tie
 `A classic links test is the site for the final major championship of the 2025 men's professional golf season.`\
 https://nytimes.com/athletic/6496449/2025/07/16/open-championship-2025-big-board-mcilroy-fleetwood/
 
-**Guardians second-half storylines: Trades, prospects and JosÃ© RamÃ­rez**\
+**Guardians second-half storylines: Trades, prospects and José Ramírez**\
 `The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
 `\
 https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
 
-**Rising Inflation, and the Supreme Courtâs âShadow Docketâ**\
+**Rising Inflation, and the Supreme Court’s ‘Shadow Docket’**\
 `Plus, why that e-book cost your library $50.`\
 https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
 
@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
 `The Braves are not about to go into another rebuild. But they won't be making big moves for a postseason push this year, either.`\
 https://nytimes.com/athletic/6493485/2025/07/16/braves-second-half-storylines-trade-deadline/
 
-**Project 2025âs Other Project**\
+**Project 2025’s Other Project**\
 `Inside the plan from the Heritage Foundation to rapidly dismantle the pro-Palestinian movement in the U.S.`\
 https://nytimes.com/2025/07/16/podcasts/the-daily/project-esther-antisemitism-heritage-foundation.html
 
