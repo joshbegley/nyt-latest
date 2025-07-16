@@ -1,3 +1,7 @@
+**TAFC: Isak, Liverpool and a £120m transfer poker game, why Diaz suits Barca, Palmer 'brand' in U.S.**\
+`Today in TAFC: The Isak-Ekitike transfer dilemma for Newcastle and Liverpool, why Barca want Luis Diaz and 'Brand Palmer' in America.`\
+https://nytimes.com/athletic/6497169/2025/07/16/isak-liverpool-newcastle-transfer-diaz-barcelona/
+
 **The Pulse: That All-Star Game was electric. No, really.**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6496963/2025/07/16/mlb-all-star-game-swing-off-the-pulse/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-pro
 **Meet the women fueling NFL weight rooms and breaking coaching barriers**\
 `Ten years ago, the NFL had one full-time female coach. Today, there are 15, including six who work in strength and conditioning.`\
 https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
-
-**Rising Inflation, and the Supreme Court’s ‘Shadow Docket’**\
-`Plus, why that e-book cost your library $50.`\
-https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
 
