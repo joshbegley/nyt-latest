@@ -6,16 +6,16 @@ https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
 `There was good reason to be skeptical of MLB's new format to end an All-Star Game tie, until it happened for the first time.`\
 https://nytimes.com/athletic/6497335/2025/07/16/mlb-all-star-game-swing-off/
 
-**Trump Announces âGreat Dealâ on Trade With Indonesia**\
+**Trump Announces ‘Great Deal’ on Trade With Indonesia**\
 `Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
 https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
 
 **Flood Season**\
-`We look at recent flooding â and explain what you can do to stay safe.`\
+`We look at recent flooding — and explain what you can do to stay safe.`\
 https://nytimes.com/2025/07/16/briefing/flooding-northeast-risk.html
 
 **Phillies second-half storylines to watch, starting with the trade deadline**\
-`They will head into the second half prepared to shake up the same groups as during last yearâs trade deadline and the offseason. `\
+`They will head into the second half prepared to shake up the same groups as during last year’s trade deadline and the offseason. `\
 https://nytimes.com/athletic/6496683/2025/07/16/phillies-storylines-trade-deadline-second-half/
 
 **Yankees second-half storylines to watch, starting with the trade deadline**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6484758/2025/07/16/chiefs-offense-more-explosives-m
 `Even if the Cubs aggressively bolster their roster, they'll need to depend on their stars and manager to hold off the Brewers.`\
 https://nytimes.com/athletic/6494275/2025/07/16/cubs-second-half-storylines-mlb-trade-deadline/
 
-**How to watch the Womenâs Euro quarterfinals: Spain, England among favorites**\
+**How to watch the Women’s Euro quarterfinals: Spain, England among favorites**\
 `The UEFA Women's Euro bracket is balanced. The margins are thin. Every side left believes it can win. By Sunday, half of them will be wrong.`\
 https://nytimes.com/athletic/6496586/2025/07/16/euro-2025-womens-quarterfinals-how-to-watch/
 
