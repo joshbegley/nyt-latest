@@ -1,3 +1,15 @@
+**Goldman Sachs Sets Series of Records on Tariff Swings**\
+`Goldman and other investment banks are feeding off a Trump boom.`\
+https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-stanley.html
+
+**Israel Targets Government Buildings in Syriaâs Capital**\
+`Israel warned Syriaâs government that it was monitoring the actions of its military forces against the countryâs Druse minority.`\
+https://nytimes.com/2025/07/16/world/europe/israel-syria-damascus-strikes.html
+
+**Liverpool make contact with Eintracht over Ekitike**\
+`Newcastle remain interested in Ekitike, having seen a â¬75m bid for the forward turned down.`\
+https://nytimes.com/athletic/6493702/2025/07/16/hugo-ekitike-liverpool-transfer-eintracht-frankfurt/
+
 **Beyond the 'Swing-Off,' an innovative yet simple plan to solve MLB's TV problems: MoneyCall**\
 `More in our weekly sports business cheat sheet: Cal Raleigh, Rob Manfred, Caitlin Clark, Red Bull F1, Club World Cup lessons and more.`\
 https://nytimes.com/athletic/6497652/2025/07/16/mlb-swing-off-rob-manfred-tv-moneycall/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/16/world/middleeast/mike-huckabee-ambassador-netanya
 **Which NHL teams improved the most this offseason?**\
 `From most value added to least, hereâs how each team has changed this summer.`\
 https://nytimes.com/athletic/6496153/2025/07/16/nhl-most-improved-2025/
-
-**Pelicans rookies Derik Queen and Jeremiah Fears show room for growth during summer league**\
-`New Orleans' pair of lottery picks have struggled at times during the team's sloppy play. Is there reason for concern?`\
-https://nytimes.com/athletic/6497280/2025/07/16/jeremiah-fears-derik-queen-pelicans-summer-league/
-
-**Down to Business: NWSL lost $4m with its Summer Cup. What's next?**\
-`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/6497376/2025/07/16/nwsl-summer-cup-international-tournaments/
-
-**Bournemouth sign Djordje Petrovic from Chelsea on five-year contract**\
-`Petrovic made 31 appearances for Chelsea after signing for the Premier League club from MLS side New England Revolution in 2023.`\
-https://nytimes.com/athletic/6488728/2025/07/16/bournemouth-djordje-petrovic-chelsea-transfer/
 
