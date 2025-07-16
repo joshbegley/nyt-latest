@@ -1,3 +1,7 @@
+**Word of the Day: waggish**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/16/learning/word-of-the-day-waggish.html
+
 **Club Drugs Strain Health System on Ibiza, Spain’s Party Island**\
 `Drug-related calls from nightclubs are driving Ibiza’s ambulance services to collapse, health workers say. It’s the latest example of tensions in Europe over tourism.`\
 https://nytimes.com/2025/07/16/world/europe/ibiza-spain-tourism-drug-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6490830/2025/07/16/leicester-marti-cifuentes-manage
 **Transfers TLDR: Charalampos Kostoulas to Brighton – all you need to know**\
 `Brighton have signed Charalampos Kostoulas from Olympiacos - here's all you need to know about the deal.`\
 https://nytimes.com/athletic/6468222/2025/07/16/charalampos-kostoulas-to-brighton-transfers-tldr/
-
-**Competition for Pickford and an impressive shot stopper: Why Everton signed Travers**\
-`The 26-year-old has been brought in as a No 2, but he has the ability and hunger to have a sizeable impact for David Moyes' team`\
-https://nytimes.com/athletic/6494838/2025/07/16/why-everton-signed-travers/
 
