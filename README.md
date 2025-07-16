@@ -1,3 +1,7 @@
+**Thereâs a Flash Flood Season, and This Is It**\
+`Julyâs hot temperatures and moist air are the perfect ingredients for rain.`\
+https://nytimes.com/interactive/2025/07/16/weather/2025-07-16-flood-month.html
+
 **Whatâs in Our Queue? The Brooklyn Botanical Garden and More**\
 `Text by Aliza Aufrichtig`\
 https://nytimes.com/card/2025/07/16/arts/editors-recommendations-botanicalgarden
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498078/2025/07/16/wyndham-clark-oakmont-suspension
 **Lamine Yamal and Barcelona's No 10 shirt: A blessing and a curse he is more than ready for**\
 `The iconic shirt worn by Lionel Messi, Maradona and Ronaldinho now has a new bearer in teenage prodigy Lamine Yamal`\
 https://nytimes.com/athletic/6462296/2025/07/16/lamine-yamal-lionel-messi-ansu-fati-no-10/
-
-**Wild release 2025-26 schedule: Key dates, matchups and more**\
-`During Minnesota's 25th anniversary season, the team will navigate the challenges that come with hosting the 2026 World Junior Championship.`\
-https://nytimes.com/athletic/6493037/2025/07/16/minnesota-wild-schedule-2025-26-nhl-key-matchups/
 
