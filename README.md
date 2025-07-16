@@ -1,3 +1,11 @@
+**NBA takes 'significant' step toward potential expansion, commissioner says**\
+`The league last expanded when it added the Charlotte Bobcats, now called the Hornets, to begin play with the 2004-05 season.`\
+https://nytimes.com/athletic/6496810/2025/07/15/nba-board-of-governors-expansion/
+
+**A Scion of Democratic Politics Defeats the Upstarts in an Arizona Primary**\
+`Adelita Grijalva beat back charges of “legacy” and embraced the memory of her father, Raúl Grijalva, to win the Democratic primary for the House seat opened by his death.`\
+https://nytimes.com/2025/07/15/us/politics/grijalva-arizona-primary.html
+
 **Caitlin Clark leaves Fever victory with groin injury ahead of All-Star Game**\
 `Clark recently missed four games with a groin strain to her left leg. Her availability for All-Star weekend is unclear.`\
 https://nytimes.com/athletic/6496986/2025/07/15/caitlin-clark-groin-injury-fever-sun/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6496813/2025/07/15/pac-12-mountain-west-court-case-
 **Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility**\
 `A former employee said she never saw the staff perform fire drills. The local fire chief pushed back at claims that dispatching more firefighters would’ve saved more lives.`\
 https://nytimes.com/2025/07/15/us/fire-gabriel-house-fall-river-massachusetts.html
-
-**Hawley Aims to Roll Back Medicaid Cuts He Voted for Just Two Weeks Ago**\
-`The Republican senator introduced a bill Tuesday that would block restrictions on key strategies that states rely on to finance Medicaid and double a rural hospital fund.`\
-https://nytimes.com/2025/07/15/us/politics/medicaid-hawley-trump-policy-bill.html
-
-**Huckabee Calls Death of Palestinian-American in West Bank ‘Terrorism’**\
-`Mike Huckabee, the U.S. ambassador to Israel, demanded “accountability for this criminal and terrorist act,” referring to the killing last week of Sayfollah Musallet in the occupied territories.`\
-https://nytimes.com/2025/07/15/world/middleeast/huckabee-west-bank-musallet-killing.html
 
