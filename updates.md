@@ -1,3 +1,23 @@
+**As Iran Deports a Million Afghans, ‘Where Do We Even Go?’**\
+`Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
+https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
+
+**Afghan Women and Girls Deported From Iran Fear ‘Coming Back to a Cage’**\
+`“Get ready to cope” was the message from an aid worker to women returning to Taliban rule in Afghanistan after their expulsion from Iran.`\
+https://nytimes.com/2025/07/16/world/asia/afghanistan-women-refugees.html
+
+**Supreme Court Keeps Ruling in Trump’s Favor, but Doesn’t Say Why**\
+`In a series of terse, unsigned orders, the court has often been giving the green light to President Trump’s agenda without a murmur of explanation.`\
+https://nytimes.com/2025/07/16/us/politics/supreme-courts-shadow-docket.html
+
+**Condo Conversion in Former Brooklyn Church Offers ‘Piece of History’**\
+`The 19th-century building, in a historic district in Fort Greene, has 12 condos, starting at $1.195 million, each with touches from the site’s former use.`\
+https://nytimes.com/2025/07/16/realestate/brooklyn-fort-greene-condo-the-abbey.html
+
+**‘Jeopardy!’ Is a Reminder That Facts Are Fun — and Essential**\
+`According to the host Ken Jennings, trivia is overlooked as a “great social force.”`\
+https://nytimes.com/2025/07/16/opinion/ken-jennings-trivia-facts-matter.html
+
 **As Iran Deports a Million Afghans, âWhere Do We Even Go?â**\
 `Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
 https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
