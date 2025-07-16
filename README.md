@@ -1,13 +1,13 @@
-**Club Drugs Strain Health System on Ibiza, Spain’s Party Island**\
-`Drug-related calls from nightclubs are driving Ibiza’s ambulance services to collapse, health workers say. It’s the latest example of tensions in Europe over tourism.`\
+**Club Drugs Strain Health System on Ibiza, Spainâs Party Island**\
+`Drug-related calls from nightclubs are driving Ibizaâs ambulance services to collapse, health workers say. Itâs the latest example of tensions in Europe over tourism.`\
 https://nytimes.com/2025/07/16/world/europe/ibiza-spain-tourism-drug-crisis.html
 
 **The New York Times in Print for Wednesday, July 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/16/todays-new-york-times
 
-**Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
-`Plus, “Severance” picks up top Emmy nominations.`\
+**Wednesday Briefing: Chinaâs Economy Grows Despite Tariffs**\
+`Plus, âSeveranceâ picks up top Emmy nominations.`\
 https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
 
 **'Not every story is a fairytale' - Inside the Cofidis team car on France's national holiday**\
@@ -15,7 +15,7 @@ https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-af
 https://nytimes.com/athletic/6495133/2025/07/16/inside-tour-de-france-team-car-2025-cofidis/
 
 **Why Forest shouldn't feel bad about taking Crystal Palace's Europa League place**\
-`It’s tough not to feel enormous sympathy for the Palace fans but it's not Forest's problem that their club can't keep up with their admin`\
+`Itâs tough not to feel enormous sympathy for the Palace fans but it's not Forest's problem that their club can't keep up with their admin`\
 https://nytimes.com/athletic/6494011/2025/07/16/nottingham-forest-europa-league-crystal-palace/
 
 **Aston Villa's rebirth - and what I learned from writing a book about it**\
@@ -23,14 +23,14 @@ https://nytimes.com/athletic/6494011/2025/07/16/nottingham-forest-europa-league-
 https://nytimes.com/athletic/6492613/2025/07/16/aston-villa-rebirth-book/
 
 **Tottenham's transfer policy will please Danny Rose, but will it get results?**\
-`The ex-Spurs defender once quipped he wanted them to sign players he did not “have to Google” - is that the path to success...?`\
+`The ex-Spurs defender once quipped he wanted them to sign players he did not âhave to Googleâ - is that the path to success...?`\
 https://nytimes.com/athletic/6485756/2025/07/16/tottenham-transfer-policy-google-players/
 
 **Welcome, Marti Cifuentes - now here's what needs sorting at Leicester**\
 `Breaking down the biggest challenges facing the new man in charge at the relegated former Premier League champions`\
 https://nytimes.com/athletic/6490830/2025/07/16/leicester-marti-cifuentes-manager-head-coach/
 
-**Transfers TLDR: Charalampos Kostoulas to Brighton – all you need to know**\
+**Transfers TLDR: Charalampos Kostoulas to Brighton â all you need to know**\
 `Brighton have signed Charalampos Kostoulas from Olympiacos - here's all you need to know about the deal.`\
 https://nytimes.com/athletic/6468222/2025/07/16/charalampos-kostoulas-to-brighton-transfers-tldr/
 
