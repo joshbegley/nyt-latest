@@ -1,3 +1,15 @@
+**Caitlin Clark ruled out of Fever's game vs. Liberty with groin injury**\
+`Clark has now missed 11 games this season after picking up the injury late in Tuesday's win over the Connecticut Sun.`\
+https://nytimes.com/athletic/6498813/2025/07/16/caitlin-clark-groin-injury-fever-liberty/
+
+**Your Morning Coffee, in a Bucket**\
+`Across the United States, cafes are serving jumbo-size coffee drinks in plastic buckets. The gimmick is working.`\
+https://nytimes.com/2025/07/16/style/coffee-buckets-latte.html
+
+**Paulette Jiles, 82, Dies; Novelist Evoked the West in ‘News of the World’**\
+`A poet and memoirist as well, she drew a wide readership with her historical fiction, notably with a Civil War-era tale that was adapted for a movie.`\
+https://nytimes.com/2025/07/16/books/paulette-jiles-dead.html
+
 **Ceratosaur Fossil Auctioned for $30.5 Million by Sotheby’s**\
 `The price paid for the juvenile specimen of the 150-million-year old predatory dinosaur is the third-highest on record.`\
 https://nytimes.com/2025/07/16/science/sothebys-dinosaur-auction-ceratosaurus.html
