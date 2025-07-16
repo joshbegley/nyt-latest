@@ -1,3 +1,7 @@
+**Syria Agrees To Cease-Fire in Sweida After Israeli Attack on Damascus**\
+`Israel launched deadly airstrikes on Syria’s capital on Wednesday, and threatened to escalate unless Syrian government forces withdrew from Sweida, a southern province dominated by the country’s Druse minority.`\
+https://nytimes.com/video/world/middleeast/100000010288192/syria-israel-airstrike.html
+
 **Damage From Fire Shuts Down North Rim of Grand Canyon**\
 `The Dragon Bravo blaze destroyed the historic Grand Canyon Lodge and dozens of other buildings used for summer tourism on the Arizona-Utah border.`\
 https://nytimes.com/video/us/100000010288163/grand-canyon-north-rim-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6497981/2025/07/16/nhl-schedule-release-season-game
 **Stampede Near Aid Site in Southern Gaza Kills at Least 20 Palestinians**\
 `Gaza’s health ministry and the Israeli-backed Gaza Humanitarian Foundation, the organization that operates the aid distribution site, reported that at least 20 aid seekers were killed as they waited for food on the outskirts of Khan Younis.`\
 https://nytimes.com/video/world/middleeast/100000010287721/stampede-aid-gaza-humanitarian-foundation-killed.html
-
-**Memphis hoops put on probation by NCAA over academic integrity violations**\
-`The NCAA said an academic counselor paid two softball players a combined $550 for the coursework.`\
-https://nytimes.com/athletic/6498274/2025/07/16/memphis-basketball-ncaa-probation/
 
