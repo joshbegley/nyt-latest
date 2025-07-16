@@ -1,3 +1,11 @@
+**Read Thomas Donlon’s Lawsuit**\
+`The suit accuses police officials and Mayor Eric Adams of various federal crimes and calls for an independent authority to oversee key decisions at the Police Department.`\
+https://nytimes.com/interactive/2025/07/16/nyregion/donlon-nypd-lawsuit.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/07/16/opinion/thepoint
+
 **Ex-Commissioner Sues, Saying Adams Ran N.Y.P.D. as a Criminal Enterprise**\
 `Thomas G. Donlon, who served only weeks, said in a lawsuit that New York’s mayor and top department officials had manipulated the system for personal and political gain.`\
 https://nytimes.com/2025/07/16/nyregion/nypd-lawsuit-rico-donlon-eric-adams.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6489408/2025/07/16/padres-second-half-storylines-20
 **A Father Braces for Life After a Plane Crash Took His ‘Everything’**\
 `His son and daughter-in-law brought love to his home and represented the family’s hope for a better life.`\
 https://nytimes.com/2025/07/16/world/asia/air-india-crash-father-grief.html
-
-**Sunderland hold interest in signing Leverkusen's Xhaka**\
-`Xhaka missed just one match for Xabi Alonso's side in the 2024-25 campaign as Leverkusen finished second in the Bundesliga.`\
-https://nytimes.com/athletic/6429792/2025/07/16/sunderland-granit-xhaka-transfer/
-
-**Goldman Sachs Sets Series of Records on Tariff Swings**\
-`Goldman and other investment banks are feeding off a Trump boom.`\
-https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-stanley.html
 
