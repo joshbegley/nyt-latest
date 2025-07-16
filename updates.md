@@ -1,3 +1,7 @@
+**Kyle Schwarber named MVP as NL wins All-Star Game on the first HR swing-off**\
+`The NL blew a huge lead in the All-Star Game, but Kyle Schwarber's heroics in a dramatic home run swing-off saved the day.`\
+https://nytimes.com/athletic/6497056/2025/07/16/kyle-schwarber-all-star-mvp-nl-home-run-swing-off/
+
 **Liverpool are right to test Newcastle's resolve - Isak would be a dream signing**\
 `Newcastle's Sweden international is the complete centre-forward and would make a fine squad even more formidable`\
 https://nytimes.com/athletic/6495165/2025/07/16/liverpool-alexander-isak-signing-dream/

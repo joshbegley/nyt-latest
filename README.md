@@ -1,3 +1,19 @@
+**Tottenham's transfer policy will please Danny Rose, but will it get results?**\
+`The ex-Spurs defender once quipped he wanted them to sign players he did not âhave to Googleâ - is that the path to success...?`\
+https://nytimes.com/athletic/6485756/2025/07/16/tottenham-transfer-policy-google-players/
+
+**Welcome, Marti Cifuentes - now here's what needs sorting at Leicester**\
+`Breaking down the biggest challenges facing the new man in charge at the relegated former Premier League champions`\
+https://nytimes.com/athletic/6490830/2025/07/16/leicester-marti-cifuentes-manager-head-coach/
+
+**Transfers TLDR: Charalampos Kostoulas to Brighton â all you need to know**\
+`Brighton have signed Charalampos Kostoulas from Olympiacos - here's all you need to know about the deal.`\
+https://nytimes.com/athletic/6468222/2025/07/16/charalampos-kostoulas-to-brighton-transfers-tldr/
+
+**Competition for Pickford and an impressive shot stopper: Why Everton signed Travers**\
+`The 26-year-old has been brought in as a No 2, but he has the ability and hunger to have a sizeable impact for David Moyes' team`\
+https://nytimes.com/athletic/6494838/2025/07/16/why-everton-signed-travers/
+
 **Kyle Schwarber named MVP as NL wins All-Star Game on the first HR swing-off**\
 `The NL blew a huge lead in the All-Star Game, but Kyle Schwarber's heroics in a dramatic home run swing-off saved the day.`\
 https://nytimes.com/athletic/6497056/2025/07/16/kyle-schwarber-all-star-mvp-nl-home-run-swing-off/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6494615/2025/07/16/spain-barcelona-euro-2025/
 **Why do Real Madrid coaches often favour stars over style?**\
 `Xabi Alonso has brought his methods to Madrid. But what does history tell us about those who have gone before him?`\
 https://nytimes.com/athletic/6487892/2025/07/16/real-madrid-tactics-individuals-style/
-
-**'Brand Palmer', Chelsea and how they can use Club World Cup to build U.S. popularity**\
-`Cole Palmer was the poster boy of Chelsea's Club World Cup, even before his final heroics - where does he and the club go from here?`\
-https://nytimes.com/athletic/6494813/2025/07/16/chelsea-cole-palmer-club-world-cup/
-
-**Premier League predictions: Take on an Athletic writer in our new weekly game**\
-`We're launching a new predictions game for each Premier League matchday and need a subscriber each week to take part in the coming season`\
-https://nytimes.com/athletic/6431664/2025/07/16/premier-league-predictions-game/
-
-**From making Olympic history to trying to break into SailGP: 'The stakes are very different'**\
-`Olympic champion Ellie Aldridge has mastered the fear of crashing at speeds. Now she's turning her attention to SailGP`\
-https://nytimes.com/athletic/6492724/2025/07/16/sailgp-portsmouth-ellie-aldridge-interview-paris-2024/
-
-**Connections: Sports Edition Coach: Hints for July 16, 2025**\
-`Welcome to Connections: Sports Edition Coach â a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6496964/2025/07/16/connections-sports-edition-hints-for-july-16-2025-puzzle-no-296/
 

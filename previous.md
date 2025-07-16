@@ -1,3 +1,7 @@
+**Kyle Schwarber named MVP as NL wins All-Star Game on the first HR swing-off**\
+`The NL blew a huge lead in the All-Star Game, but Kyle Schwarber's heroics in a dramatic home run swing-off saved the day.`\
+https://nytimes.com/athletic/6497056/2025/07/16/kyle-schwarber-all-star-mvp-nl-home-run-swing-off/
+
 **Liverpool are right to test Newcastle's resolve - Isak would be a dream signing**\
 `Newcastle's Sweden international is the complete centre-forward and would make a fine squad even more formidable`\
 https://nytimes.com/athletic/6495165/2025/07/16/liverpool-alexander-isak-signing-dream/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6492724/2025/07/16/sailgp-portsmouth-ellie-aldridge
 **Connections: Sports Edition Coach: Hints for July 16, 2025**\
 `Welcome to Connections: Sports Edition Coach â a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6496964/2025/07/16/connections-sports-edition-hints-for-july-16-2025-puzzle-no-296/
-
-**China Is Spending Billions to Become an A.I. Superpower**\
-`Beijing is taking an industrial policy approach to help its A.I. companies close the gap with those in the United States.`\
-https://nytimes.com/2025/07/16/technology/china-ai.html
 
