@@ -1,4 +1,4 @@
-**Maps: Tsunami Warning Issued for Parts of Alaska Coast**\
+**Tsunami Warning Issued for Parts of Alaska Coast**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/07/16/weather/alaska-earthquake-tsunami.html
 
