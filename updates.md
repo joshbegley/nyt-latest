@@ -1,3 +1,11 @@
+**Atletico complete signing of USMNT's Cardoso from Betis**\
+`Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
+https://nytimes.com/athletic/6450833/2025/07/16/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
+
+**Israel Sends Warning to Syria’s Government With Strikes on Capital**\
+`Israel threatened to escalate attacks on Syrian government forces unless they withdraw from the southern province of Sweida, which is dominated by the country’s Druse minority.`\
+https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
+
 **For Trump, Domestic Adversaries Are Not Just Wrong, They Are ‘Evil’**\
 `The president’s vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
 https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html

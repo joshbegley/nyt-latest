@@ -1,3 +1,7 @@
+**'Big logistical issues' to fix before Open returns to Trump Turnberry, says R&A chief**\
+`Mark Darbon added that he had a "good discussion" with Eric Trump and other executives over a potential return of the Open to Turnberry.`\
+https://nytimes.com/athletic/6497720/2025/07/16/open-championship-turnberry-trump/
+
 **Atletico complete signing of USMNT's Cardoso from Betis**\
 `Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
 https://nytimes.com/athletic/6450833/2025/07/16/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-sta
 **Israel Sends Warning to Syria’s Government With Strikes on Capital**\
 `Israel threatened to escalate attacks on Syrian government forces unless they withdraw from the southern province of Sweida, which is dominated by the country’s Druse minority.`\
 https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
-
-**Liverpool make contact with Eintracht over Ekitike**\
-`Newcastle remain interested in Ekitike, having seen a €75m bid for the forward turned down.`\
-https://nytimes.com/athletic/6493702/2025/07/16/hugo-ekitike-liverpool-transfer-eintracht-frankfurt/
 
