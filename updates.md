@@ -1,3 +1,15 @@
+**The British Open Is Special to Tom Watson. He Won It Five Times.**\
+`He talks about landing his first major at the event 50 years ago.`\
+https://nytimes.com/2025/07/16/sports/golf/british-open-tom-watson.html
+
+**The Players to Watch at the British Open**\
+`There is Rory McIlroy and Scottie Scheffler, of course, but here are five other players to keep an eye on.`\
+https://nytimes.com/2025/07/16/sports/golf/british-open-players-watch.html
+
+**Arsenal Women set to sign Liverpool striker Olivia Smith in world-record £1m deal**\
+`The 20-year-old was Liverpool Women’s top scorer last season with seven goals in a campaign where the club finished seventh.`\
+https://nytimes.com/athletic/6408481/2025/07/16/arsenal-liverpool-olivia-smith-transfer-news/
+
 **NHL schedule release: Analyzing the biggest games and dates of the 2025-26 season**\
 `Homecomings for Marner, Marchand and Toews. Rematches of the back-to-back Stanley Cup finalists. Check out next season's biggest games.`\
 https://nytimes.com/athletic/6497981/2025/07/16/nhl-schedule-release-season-games-matchups/

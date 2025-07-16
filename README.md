@@ -1,3 +1,7 @@
+**With petty remarks, Bill Belichick again stokes feud with Patriots owner Robert Kraft**\
+`Belichick and Kraft's public spat continued with the coach taking offense at the idea that the Patriots owner took a risk in hiring him.`\
+https://nytimes.com/athletic/6498010/2025/07/16/bill-belichick-robert-kraft-feud-patriots/
+
 **The British Open Is Special to Tom Watson. He Won It Five Times.**\
 `He talks about landing his first major at the event 50 years ago.`\
 https://nytimes.com/2025/07/16/sports/golf/british-open-tom-watson.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498309/2025/07/16/wisconsin-nyzier-fourqurean-inel
 **Sabres 2025-26 schedule: Opportunity for a hot start at home, plus more takeaways**\
 `Here’s a full look at the schedule with notes on some highlights of the Sabres’ slate this season.`\
 https://nytimes.com/athletic/6498316/2025/07/16/buffalo-sabres-2025-26-schedule-analysis/
-
-**Arsenal Women set to sign Liverpool striker Olivia Smith in world-record £1m deal**\
-`The 20-year-old was Liverpool Women’s top scorer last season with seven goals in a campaign where the club finished seventh.`\
-https://nytimes.com/athletic/6408481/2025/07/16/arsenal-liverpool-olivia-smith-transfer-news/
 
