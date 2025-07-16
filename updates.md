@@ -1,3 +1,7 @@
+**Thereâs a Flash Flood Season, and This Is It**\
+`Julyâs hot temperatures and moist air are the perfect ingredients for rain.`\
+https://nytimes.com/interactive/2025/07/16/weather/2025-07-16-flood-month.html
+
 **Whatâs in Our Queue? The Brooklyn Botanical Garden and More**\
 `Text by Aliza Aufrichtig`\
 https://nytimes.com/card/2025/07/16/arts/editors-recommendations-botanicalgarden
