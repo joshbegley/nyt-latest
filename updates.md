@@ -1,3 +1,16 @@
+**Mamdani Says He Will âDiscourageâ the Term âGlobalize the Intifadaâ**\
+`Zohran Mamdani, the Democratic nominee in the race for mayor of New York City, moved to distance himself from comments that sparked outrage during the primary.`\
+https://nytimes.com/2025/07/15/business/mamdani-globalize-intafada-business-leaders.html
+
+**MLB union tells international players to carry immigration docs at all times**\
+`Commissioner Rob Manfred also said that the Trump administration assured them there would be protections for professional athletes.`\
+https://nytimes.com/athletic/6496918/2025/07/15/mlbpa-international-players-immigration-documents/
+
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
 `The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
 `\

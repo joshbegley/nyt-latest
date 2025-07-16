@@ -1,3 +1,11 @@
+**Mamdani Says He Will âDiscourageâ the Term âGlobalize the Intifadaâ**\
+`Zohran Mamdani, the Democratic nominee in the race for mayor of New York City, moved to distance himself from comments that sparked outrage during the primary.`\
+https://nytimes.com/2025/07/15/business/mamdani-globalize-intafada-business-leaders.html
+
+**MLB union tells international players to carry immigration docs at all times**\
+`Commissioner Rob Manfred also said that the Trump administration assured them there would be protections for professional athletes.`\
+https://nytimes.com/athletic/6496918/2025/07/15/mlbpa-international-players-immigration-documents/
+
 **File Menu Option**\
 `Jasin Cekinmez makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/07/15/crosswords/daily-puzzle-2025-07-16.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/07/15/nyregion/columbia-plan-to-fight-antisemitism.html
 `The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
 `\
 https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
-
-**âAmerican Idolâ Music Supervisor and Her Husband Are Found Slain**\
-`Robin Kaye was found shot to death inside her home in Los Angeles with her husband, Thomas Deluca, the police said. A 22-year-old was arrested in connection with the case.`\
-https://nytimes.com/2025/07/15/arts/american-idol-music-supervisor-killed.html
-
-**Trump Administration Initiates Trade Investigation of Brazil**\
-`The United States has begun investigating Brazilâs trade practices and âanti-corruption interference,â after the presidentâs criticisms of Brazilâs treatment of Jair Bolsonaro, a Trump ally.`\
-https://nytimes.com/2025/07/15/us/politics/trump-brazil-trade-investigation.html
 
