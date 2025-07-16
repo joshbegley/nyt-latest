@@ -1,3 +1,11 @@
+**The Pulse: That All-Star Game was electric. No, really.**\
+`The Pulse Newsletter ð£ | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6496963/2025/07/16/mlb-all-star-game-swing-off-the-pulse/
+
+**Mets' second-half storylines to watch, starting with the trade deadline**\
+`Will the returns of Sean Manaea, Kodai Senga and Frankie Montas be enough to revitalize the Mets' slumping rotation?`\
+https://nytimes.com/athletic/6493419/2025/07/16/mets-second-half-trade-deadline/
+
 **Should Twins be buyers or sellers? Which pitchers, hitters need to step up in second half?**\
 `With the July 31 trade deadline nearing, the Twins must figure out quickly how they fit into the playoff picture.`\
 https://nytimes.com/athletic/6495763/2025/07/16/twins-three-questions-second-half-mlb/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
 **Rising Inflation, and the Supreme Courtâs âShadow Docketâ**\
 `Plus, why that e-book cost your library $50.`\
 https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
-
-**Braves second-half storylines: Aggressive trades unlikely, Sean Murphy's status, IL updates**\
-`The Braves are not about to go into another rebuild. But they won't be making big moves for a postseason push this year, either.`\
-https://nytimes.com/athletic/6493485/2025/07/16/braves-second-half-storylines-trade-deadline/
-
-**Project 2025âs Other Project**\
-`Inside the plan from the Heritage Foundation to rapidly dismantle the pro-Palestinian movement in the U.S.`\
-https://nytimes.com/2025/07/16/podcasts/the-daily/project-esther-antisemitism-heritage-foundation.html
 
