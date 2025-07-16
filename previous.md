@@ -1,40 +1,40 @@
-**Former Olympic medallist Groenvold dies at 49 after being struck by lightning**\
-`The Norwegian Olympian competed in ski cross and alpine skiing before becoming a national team coach.`\
-https://nytimes.com/athletic/6498221/2025/07/16/audun-groenvold-norway-olympic-skiier-death-lightning/
+**Are You Watching Video Podcasts?**\
+`The New York Times wants to know how people are consuming this relatively new kind of content.`\
+https://nytimes.com/2025/07/16/style/are-you-watching-video-podcasts.html
 
-**Tiny Love Stories: ‘I Thought I Was Straight’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words`\
-https://nytimes.com/2025/07/16/style/tiny-modern-love-stories-i-thought-i-was-straight.html
+**20 States Sue Trump Administration Over Ending FEMA Funding for Disaster Mitigation**\
+`FEMA announced in April that it was ending the funding to eliminate “waste, fraud and abuse.” The program saved taxpayers more than $150 billion over 20 years, the plaintiffs said.`\
+https://nytimes.com/2025/07/16/us/politics/trump-lawsuit-fema-disaster-funding.html
 
-**Longtime Sharks executive, former NHL goalie Wayne Thomas dies at 77**\
-`Thomas ran the Sharks’ various American Hockey League affiliates until 2012-13 and retired from the organization after the 2014-15 season.`\
-https://nytimes.com/athletic/6498148/2025/07/16/wayne-thomas-obituary-sharks-nhl/
+**Utah Man Drowns Trying to Rescue Girl in Reservoir**\
+`As a 12-year-old girl on a tube drifted away in a reservoir, a family member jumped in to save her. She survived.`\
+https://nytimes.com/2025/07/16/us/utah-lake-drowning-paddleboard.html
 
-**Why you need to make 'shooting for the stars' your go-to fantasy football draft strategy**\
-`When it comes to fantasy football draft strategy, Michael Salfino is all about targeting players with tier-busting upside.`\
-https://nytimes.com/athletic/6498113/2025/07/16/fantasy-football-draft-strategy-adp-shoot-for-stars/
+**Bradley Beal, Suns agree to contract buyout; guard plans to join Clippers: Sources**\
+`Beal, 32, will give back $13.8 million of the $110.8 million the Suns previously owed him over the next two years, a league source said.`\
+https://nytimes.com/athletic/6495901/2025/07/16/bradley-beal-contract-buyout-suns-clippers-nba/
 
-**A Pompeii Mosaic, Taken by a Nazi Captain, Is Returned**\
-`The mosaic, which depicts a couple in an intimate bedroom scene, is among thousands of artifacts stolen from the ancient Roman city.`\
-https://nytimes.com/2025/07/16/world/europe/pompeii-mosaic-stolen-nazi-returned.html
+**Barcelona reach agreement for transfer of defender Martina Fernandez to Everton**\
+`England forward Katie Robinson has also joined on loan from Aston Villa with an option to buy.`\
+https://nytimes.com/athletic/6483945/2025/07/16/everton-barcelona-martina-fernandez/
 
-**There’s a Flash Flood Season, and This Is It**\
-`July’s hot temperatures and moist air are the perfect ingredients for rain.`\
-https://nytimes.com/interactive/2025/07/16/weather/flash-floods.html
+**Mamdani, Be a Convener, Not a Commentator**\
+`Mamdani is pulled between his supporters and his critics on the phrase “globalize the intifada.”`\
+https://nytimes.com/2025/07/16/opinion/zohran-mamdani-globalize-intifada-israel.html
 
-**What’s in Our Queue? The Brooklyn Botanical Garden and More**\
-`Text by Aliza Aufrichtig`\
-https://nytimes.com/card/2025/07/16/arts/editors-recommendations-botanicalgarden
+**Republican Tax Bill Is a Losing Deal for Gamblers**\
+`The law is creating backlash from the gambling industry and bettors who could owe taxes even if they break even.`\
+https://nytimes.com/2025/07/16/us/politics/republican-tax-bill-gambling-industry.html
 
-**How Republicans Supersized Silicon Valley’s Favorite Tax Break**\
-`Tucked into the huge set of tax cuts that Republicans passed into law this month was the expansion of an unusually valuable tax break for start-up investors.`\
-https://nytimes.com/2025/07/16/us/politics/startup-tax-trump-bill-qsbs.html
+**The Chaotic Early Days Inside Florida’s ‘Alligator Alcatraz’ Detention Center**\
+`Several immigrant detainees described high tension and anxiety at the remote, hastily constructed facility over a lack of information, recreation and access to medication.`\
+https://nytimes.com/2025/07/16/us/the-chaotic-early-days-inside-floridas-alligator-alcatraz-detention-center.html
 
-**Martin Cruz Smith, Best-Selling Author of ‘Gorky Park,’ Dies at 82**\
-`He startled critics, readers and the book industry in 1981 with a novel set in the Soviet Union that had a flawed detective as its antihero.`\
-https://nytimes.com/2025/07/16/books/martin-cruz-smith-dead.html
+**Florida QB DJ Lagway says he's 'ready to go' after injury concerns in spring**\
+`Lagway, appearing Wednesday at SEC media days, used humor to downplay the worries.`\
+https://nytimes.com/athletic/6498213/2025/07/16/dj-lagway-injury-update-florida/
 
-**Tour de France stage 11: Pogacar crashes but peloton waits, Abrahamsen wins from breakaway, Healy defends yellow**\
-`Analysis of the latest day's action in the 2025 race - a 157km loop around the southern city of Toulouse `\
-https://nytimes.com/athletic/6497477/2025/07/16/tour-de-france-stage-11-analysis/
+**Norwegian Olympic Skier Dies After Lightning Strike**\
+`Audun Groenvold, 49, won a bronze medal at the 2010 Olympics in Vancouver.`\
+https://nytimes.com/2025/07/16/sports/auden-groenvold-dead-lightning.html
 
