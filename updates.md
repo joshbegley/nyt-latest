@@ -1,3 +1,27 @@
+**For Trump, Domestic Adversaries Are Not Just Wrong, They Are ‘Evil’**\
+`The president’s vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
+https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html
+
+**Nvidia C.E.O. Treads Carefully in Beijing**\
+`Jensen Huang, the chipmaker’s chief executive, is trying to balance his company’s interests as the United States and China compete for supremacy in artificial intelligence.`\
+https://nytimes.com/2025/07/16/business/nvidia-jensen-huang-beijing.html
+
+**Padres second-half storylines to watch, starting with the 2025 trade deadline**\
+`As the second half approaches, the Padres again loom as one of the sport’s least predictable teams.`\
+https://nytimes.com/athletic/6489408/2025/07/16/padres-second-half-storylines-2025-trade-deadline/
+
+**A Father Braces for Life After a Plane Crash Took His ‘Everything’**\
+`His son and daughter-in-law brought love to his home and represented the family’s hope for a better life.`\
+https://nytimes.com/2025/07/16/world/asia/air-india-crash-father-grief.html
+
+**Israel Targets Government Buildings in Syria’s Capital**\
+`Israel warned Syria’s government that it was monitoring the actions of its military forces against the country’s Druse minority.`\
+https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
+
+**Liverpool make contact with Eintracht over Ekitike**\
+`Newcastle remain interested in Ekitike, having seen a €75m bid for the forward turned down.`\
+https://nytimes.com/athletic/6493702/2025/07/16/hugo-ekitike-liverpool-transfer-eintracht-frankfurt/
+
 **For Trump, Domestic Adversaries Are Not Just Wrong, They Are âEvilâ**\
 `The presidentâs vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
 https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html

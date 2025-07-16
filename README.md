@@ -1,3 +1,7 @@
+**Atletico complete signing of USMNT's Cardoso from Betis**\
+`Cardoso played a key role in Betis' run to the 2024-25 Conference League final, missing just two matches in the European campaign.`\
+https://nytimes.com/athletic/6450833/2025/07/16/atletico-madrid-finalising-deal-for-usmnt-midfielder-johnny-cardoso-from-real-betis/
+
 **For Trump, Domestic Adversaries Are Not Just Wrong, They Are ‘Evil’**\
 `The president’s vilification of political opponents and journalists seeds the ground for threats of prosecution, imprisonment and deportation unlike any modern president has made.`\
 https://nytimes.com/2025/07/16/us/politics/trump-political-enemies-evil.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6429792/2025/07/16/sunderland-granit-xhaka-transfer
 `Goldman and other investment banks are feeding off a Trump boom.`\
 https://nytimes.com/2025/07/16/business/goldman-sachs-bank-of-america-morgan-stanley.html
 
-**Israel Targets Government Buildings in Syria’s Capital**\
-`Israel warned Syria’s government that it was monitoring the actions of its military forces against the country’s Druse minority.`\
+**Israel Sends Warning to Syria’s Government With Strikes on Capital**\
+`Israel threatened to escalate attacks on Syrian government forces unless they withdraw from the southern province of Sweida, which is dominated by the country’s Druse minority.`\
 https://nytimes.com/2025/07/16/world/middleeast/israel-syria-damascus-strikes.html
 
 **Liverpool make contact with Eintracht over Ekitike**\
 `Newcastle remain interested in Ekitike, having seen a €75m bid for the forward turned down.`\
 https://nytimes.com/athletic/6493702/2025/07/16/hugo-ekitike-liverpool-transfer-eintracht-frankfurt/
-
-**Beyond the 'Swing-Off,' an innovative yet simple plan to solve MLB's TV problems: MoneyCall**\
-`More in our weekly sports business cheat sheet: Cal Raleigh, Rob Manfred, Caitlin Clark, Red Bull F1, Club World Cup lessons and more.`\
-https://nytimes.com/athletic/6497652/2025/07/16/mlb-swing-off-rob-manfred-tv-moneycall/
 
