@@ -1,3 +1,15 @@
+**Cardinals second-half storylines to watch, starting with the trade deadline**\
+`Masyn Winn and other strong performers powered the Cardinals' flying start, but the team could be sellers by the end of the month. `\
+https://nytimes.com/athletic/6489333/2025/07/16/cardinals-second-half-storylines/
+
+**Was the Club World Cup really worth $1bn to DAZN - and what happens now?**\
+`For all the claims by the streaming service and FIFA, there is scepticism that the CWC has convinced other broadcasters of its merits`\
+https://nytimes.com/athletic/6495197/2025/07/16/was-the-club-world-cup-really-worth-1bn-to-dazn-and-what-happens-now/
+
+**ABS challenge system quickly makes an impact in All-Star Game debut**\
+`The automated ball-strike system, which had only been seen in spring training games at the major-league level, was used four times.`\
+https://nytimes.com/athletic/6497391/2025/07/16/automated-ball-strike-system-all-star-game/
+
 **West Indies' cricketing decline feels terminal - and that should worry everyone**\
 `It will take far more than a legends-led review to cure the country's problems`\
 https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6495507/2025/07/16/yankees-trade-deadline-second-ha
 **Who won the 2025 'Dollars and sense' Chicago sports media survey?**\
 `It had been three years since we did a local sports media survey, and voters were ready. More than twice as many responded this time around.`\
 https://nytimes.com/athletic/6495285/2025/07/16/chicago-sports-media-survey-2025-dollars-and-sense/
-
-**Can Andy Reid and Patrick Mahomes make the Chiefs explosive again?**\
-`Kansas City won by narrow margins last season and its conservative offense was exposed in the Super Bowl.`\
-https://nytimes.com/athletic/6484758/2025/07/16/chiefs-offense-more-explosives-mahomes/
-
-**Cubs second-half storylines to watch, starting with trade deadline priorities**\
-`Even if the Cubs aggressively bolster their roster, they'll need to depend on their stars and manager to hold off the Brewers.`\
-https://nytimes.com/athletic/6494275/2025/07/16/cubs-second-half-storylines-mlb-trade-deadline/
-
-**How to watch the Women’s Euro quarterfinals: Spain, England among favorites**\
-`The UEFA Women's Euro bracket is balanced. The margins are thin. Every side left believes it can win. By Sunday, half of them will be wrong.`\
-https://nytimes.com/athletic/6496586/2025/07/16/euro-2025-womens-quarterfinals-how-to-watch/
 

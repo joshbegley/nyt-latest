@@ -1,3 +1,19 @@
+**Trump Announces ‘Great Deal’ on Trade With Indonesia**\
+`Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
+https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
+
+**Flood Season**\
+`We look at recent flooding — and explain what you can do to stay safe.`\
+https://nytimes.com/2025/07/16/briefing/flooding-northeast-risk.html
+
+**Phillies second-half storylines to watch, starting with the trade deadline**\
+`They will head into the second half prepared to shake up the same groups as during last year’s trade deadline and the offseason. `\
+https://nytimes.com/athletic/6496683/2025/07/16/phillies-storylines-trade-deadline-second-half/
+
+**How to watch the Women’s Euro quarterfinals: Spain, England among favorites**\
+`The UEFA Women's Euro bracket is balanced. The margins are thin. Every side left believes it can win. By Sunday, half of them will be wrong.`\
+https://nytimes.com/athletic/6496586/2025/07/16/euro-2025-womens-quarterfinals-how-to-watch/
+
 **Trump Announces âGreat Dealâ on Trade With Indonesia**\
 `Details are still scarce on the agreement, which the president said will partly walk back some of the steep tariffs he threatened on the country last week.`\
 https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
