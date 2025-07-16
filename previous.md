@@ -1,3 +1,11 @@
+**Massie Moves to Force House Vote on Epstein Files Release**\
+`The Kentucky Republican, a frequent critic of President Trump, teamed with a Democrat in a maneuver that could force G.O.P. leaders to hold a vote on the matter within weeks.`\
+https://nytimes.com/2025/07/16/us/politics/massie-house-vote-epstein-files-release.html
+
+**I Found My Daughter’s Pregnancy Test. Should I Have Told My Wife?**\
+`I wanted to honor my daughter’s privacy about her sex life.`\
+https://nytimes.com/2025/07/16/magazine/daughter-wife-pregnancy-test-ethics.html
+
 **Justice Dept. to Move Ahead With Bribery Case Against Cuellar**\
 `The decision to sustain the prosecution of the Texas Democrat stands in contrast to the department’s decisions to drop or downgrade investigations of Trump allies or those he deems politically useful.`\
 https://nytimes.com/2025/07/16/us/politics/henry-cuellar-bribery-case-justice-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6497881/2025/07/16/mlb-all-star-game-swing-off-poll
 **With Bowen Byram signed, has Kevyn Adams done enough to improve Sabres?**\
 `It appears the bulk of Buffalo's offseason work is done, but Adams still has a chance to do more to this roster.`\
 https://nytimes.com/athletic/6496984/2025/07/16/sabres-bowen-byram-kevyn-adams/
-
-**Belichick says he took 'big risk' in coaching Pats, not Kraft for hiring him**\
-`"As I told Robert multiple times through the years, I took a big risk by taking the New England Patriots head-coaching job," Belichick said.`\
-https://nytimes.com/athletic/6497850/2025/07/16/bill-belichick-robert-kraft-patriots-risk/
-
-**Palace chairman suggests Forest played significant role in club's Europa League denial**\
-`Palace are set to appeal UEFA's decision at the Court of Arbitration for Sport (CAS) and are considering other avenues.`\
-https://nytimes.com/athletic/6497856/2025/07/16/crystal-palace-europa-league-nottingham-forest/
 

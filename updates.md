@@ -1,3 +1,11 @@
+**Massie Moves to Force House Vote on Epstein Files Release**\
+`The Kentucky Republican, a frequent critic of President Trump, teamed with a Democrat in a maneuver that could force G.O.P. leaders to hold a vote on the matter within weeks.`\
+https://nytimes.com/2025/07/16/us/politics/massie-house-vote-epstein-files-release.html
+
+**I Found My Daughter’s Pregnancy Test. Should I Have Told My Wife?**\
+`I wanted to honor my daughter’s privacy about her sex life.`\
+https://nytimes.com/2025/07/16/magazine/daughter-wife-pregnancy-test-ethics.html
+
 **Justice Dept. to Move Ahead With Bribery Case Against Cuellar**\
 `The decision to sustain the prosecution of the Texas Democrat stands in contrast to the department’s decisions to drop or downgrade investigations of Trump allies or those he deems politically useful.`\
 https://nytimes.com/2025/07/16/us/politics/henry-cuellar-bribery-case-justice-department.html
