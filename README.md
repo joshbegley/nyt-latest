@@ -1,3 +1,11 @@
+**Club Drugs Strain Health System on Ibiza, Spainâs Party Island**\
+`Drug-related calls from nightclubs are driving Ibizaâs ambulance services to collapse, health workers say. Itâs the latest example of tensions in Europe over tourism.`\
+https://nytimes.com/2025/07/16/world/europe/ibiza-spain-tourism-drug-crisis.html
+
+**The New York Times in Print for Wednesday, July 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/16/todays-new-york-times
+
 **Wednesday Briefing: Chinaâs Economy Grows Despite Tariffs**\
 `Plus, âSeveranceâ picks up top Emmy nominations.`\
 https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6468222/2025/07/16/charalampos-kostoulas-to-brighto
 **Competition for Pickford and an impressive shot stopper: Why Everton signed Travers**\
 `The 26-year-old has been brought in as a No 2, but he has the ability and hunger to have a sizeable impact for David Moyes' team`\
 https://nytimes.com/athletic/6494838/2025/07/16/why-everton-signed-travers/
-
-**Kyle Schwarber named MVP as NL wins All-Star Game on the first HR swing-off**\
-`The NL blew a huge lead in the All-Star Game, but Kyle Schwarber's heroics in a dramatic home run swing-off saved the day.`\
-https://nytimes.com/athletic/6497056/2025/07/16/kyle-schwarber-all-star-mvp-nl-home-run-swing-off/
-
-**Liverpool are right to test Newcastle's resolve - Isak would be a dream signing**\
-`Newcastle's Sweden international is the complete centre-forward and would make a fine squad even more formidable`\
-https://nytimes.com/athletic/6495165/2025/07/16/liverpool-alexander-isak-signing-dream/
 
