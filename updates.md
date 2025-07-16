@@ -1,3 +1,15 @@
+**Do We Have to Thank My Brother-in-Law for His Gifts if We Hate His Politics?**\
+`A couple’s passive efforts to keep a relative at arm’s length, like quietly donating his gifts to charity, are not being received as intended.`\
+https://nytimes.com/2025/07/16/style/unwanted-gifts.html
+
+**Europe Rushes to Negotiate a Trade Deal as Trump’s Team Voices Indifference**\
+`The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
+https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
+
+**Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
+``\
+https://nytimes.com/live/2025/07/16/us/trump-news
+
 **Jamal Musiala exclusive: 'Ronaldinho, Messi, Neymar, Cristiano Ronaldo were untouchable in my eyes'**\
 `The Athletic sat down with the Bayern Munich midfielder, a cover star for EA SPORTS FC 26 alongside Real Madrid's Jude Bellingham`\
 https://nytimes.com/athletic/6472130/2025/07/16/jamal-musiala-bayern-ea-fc26-interview/

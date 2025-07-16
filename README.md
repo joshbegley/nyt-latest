@@ -1,3 +1,15 @@
+**Pelicans rookies Derik Queen and Jeremiah Fears show room for growth during summer league**\
+`New Orleans' pair of lottery picks have struggled at times during the team's sloppy play. Is there reason for concern?`\
+https://nytimes.com/athletic/6497280/2025/07/16/jeremiah-fears-derik-queen-pelicans-summer-league/
+
+**Down to Business: NWSL lost $4m with its Summer Cup. What's next?**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6497376/2025/07/16/nwsl-summer-cup-international-tournaments/
+
+**Bournemouth sign Djordje Petrovic from Chelsea on five-year contract**\
+`Petrovic made 31 appearances for Chelsea after signing for the Premier League club from MLS side New England Revolution in 2023.`\
+https://nytimes.com/athletic/6488728/2025/07/16/bournemouth-djordje-petrovic-chelsea-transfer/
+
 **Jamal Musiala exclusive: 'Ronaldinho, Messi, Neymar, Cristiano Ronaldo were untouchable in my eyes'**\
 `The Athletic sat down with the Bayern Munich midfielder, a cover star for EA SPORTS FC 26 alongside Real Madrid's Jude Bellingham`\
 https://nytimes.com/athletic/6472130/2025/07/16/jamal-musiala-bayern-ea-fc26-interview/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/16/business/dealbook/jpmorgan-dimon-private-credit.h
 **Europe Rushes to Negotiate a Trade Deal as Trump’s Team Voices Indifference**\
 `The European Union is racing to clinch an agreement with the Americans before tariffs kick in on Aug. 1, even as President Trump has signaled he is in no rush.`\
 https://nytimes.com/2025/07/16/us/politics/european-union-trump-tariffs.html
-
-**Bills training camp 2025 defensive tackle preview: How will struggling position look after changes?**\
-`The Bills made several additions at defensive tackle to try to improve.`\
-https://nytimes.com/athletic/6433067/2025/07/16/buffalo-bills-training-camp-2025-preview-defensive-tackle/
-
-**At Least 20 Killed in Stampede Outside a Gaza Food Site, Aid Organization Says**\
-`There were conflicting accounts from aid officials and Palestinian officials over what happened at the food distribution hub run by the Israeli-backed Gaza Humanitarian Foundation.`\
-https://nytimes.com/2025/07/16/world/middleeast/gaza-aid-site-stampede-ghf.html
-
-**Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
-``\
-https://nytimes.com/live/2025/07/16/us/trump-news
 
