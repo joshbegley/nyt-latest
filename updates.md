@@ -1,3 +1,19 @@
+**Wednesday Briefing: Chinaâs Economy Grows Despite Tariffs**\
+`Plus, âSeveranceâ picks up top Emmy nominations.`\
+https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
+
+**Why Forest shouldn't feel bad about taking Crystal Palace's Europa League place**\
+`Itâs tough not to feel enormous sympathy for the Palace fans but it's not Forest's problem that their club can't keep up with their admin`\
+https://nytimes.com/athletic/6494011/2025/07/16/nottingham-forest-europa-league-crystal-palace/
+
+**Tottenham's transfer policy will please Danny Rose, but will it get results?**\
+`The ex-Spurs defender once quipped he wanted them to sign players he did not âhave to Googleâ - is that the path to success...?`\
+https://nytimes.com/athletic/6485756/2025/07/16/tottenham-transfer-policy-google-players/
+
+**Transfers TLDR: Charalampos Kostoulas to Brighton â all you need to know**\
+`Brighton have signed Charalampos Kostoulas from Olympiacos - here's all you need to know about the deal.`\
+https://nytimes.com/athletic/6468222/2025/07/16/charalampos-kostoulas-to-brighton-transfers-tldr/
+
 **Wednesday Briefing: China’s Economy Grows Despite Tariffs**\
 `Plus, “Severance” picks up top Emmy nominations.`\
 https://nytimes.com/2025/07/16/briefing/china-economy-ukraine-weapons-britain-afghanistan.html
