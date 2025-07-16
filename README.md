@@ -1,40 +1,41 @@
-**Royal Portrush returns: How to watch the 2025 Open Championship**\
-`The 153rd Open returns to the pastoral coast of Northern Ireland. Few venues in golf look like this. Fewer play like it.`\
-https://nytimes.com/athletic/6496885/2025/07/16/open-championship-2025-how-to-watch-weather-picks/
+**Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
+`How do you feel about the teamâs direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
+https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
 
-**The New York Times International Edition in Print for Thursday, July 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/16/todays-new-york-times-international-edition
+**What cities did WNBA players think would suit expansion? Not where the league picked**\
+`In our anonymous player poll, athletes also expressed whether they should make at least $1 million in maximum salaries.`\
+https://nytimes.com/athletic/6497013/2025/07/16/wnba-expansion-cities-player-poll/
 
-**As Iran Deports a Million Afghans, âWhere Do We Even Go?â**\
-`Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
-https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
+**College football quarterback tiers: Ranking all 136 projected starters entering 2025**\
+`We surveyed more than 40 coaches and staffers from across college football to support our assessments of the nation's best QBs.`\
+https://nytimes.com/athletic/6483745/2025/07/16/college-football-quarterback-tiers-rankings/
 
-**Tigers second-half storylines: Does Detroit have what it takes to win it all?**\
-`The Tigers had MLB's best record in the first half, but can their surprise performers keep going? And can the Tigers fix their bullpen?`\
-https://nytimes.com/athletic/6496061/2025/07/16/tigers-second-half-storylines-mlb/
+**Open Championship Big Board: McIlroy, Fleetwood and other favorites, ranked**\
+`A classic links test is the site for the final major championship of the 2025 men's professional golf season.`\
+https://nytimes.com/athletic/6496449/2025/07/16/open-championship-2025-big-board-mcilroy-fleetwood/
 
-**Afghan Women and Girls Deported From Iran Fear âComing Back to a Cageâ**\
-`âGet ready to copeâ was the message from an aid worker to women returning to Taliban rule in Afghanistan after their expulsion from Iran.`\
-https://nytimes.com/2025/07/16/world/asia/afghanistan-women-refugees.html
+**Guardians second-half storylines: Trades, prospects and JosÃ© RamÃ­rez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
 
-**Second-half Red Sox storylines to watch, starting with the trade deadline**\
-`The Red Sox will be riding a 10-game winning streak with 12 games to go before the trade deadline.`\
-https://nytimes.com/athletic/6493693/2025/07/16/red-sox-second-half-storylines-to-watch-starting-with-trade-deadline/
+**Rising Inflation, and the Supreme Courtâs âShadow Docketâ**\
+`Plus, why that e-book cost your library $50.`\
+https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
 
-**Falcons 2025 preview: Can revamped defense improve enough to help playoff cause?**\
-`The Falcons made big defensive changes in the offseason. How much can they improve on last year's dismal statistical finish?`\
-https://nytimes.com/athletic/6488211/2025/07/16/falcons-2025-preview-defense/
+**Meet the women fueling NFL weight rooms and breaking coaching barriers**\
+`Ten years ago, the NFL had one full-time female coach. Today, there are 15, including six who work in strength and conditioning.`\
+https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
 
-**Will Patriots QB Drake Maye take a major Year 2 leap?**\
-`Maye's numbers were only so-so as a rookie, but there's plenty of reason to be optimistic about what he can do under Mike Vrabel.`\
-https://nytimes.com/athletic/6494342/2025/07/16/drake-maye-patriots-qb-year-2/
+**Braves second-half storylines: Aggressive trades unlikely, Sean Murphy's status, IL updates**\
+`The Braves are not about to go into another rebuild. But they won't be making big moves for a postseason push this year, either.`\
+https://nytimes.com/athletic/6493485/2025/07/16/braves-second-half-storylines-trade-deadline/
 
-**Supreme Court Keeps Ruling in Trumpâs Favor, but Doesnât Say Why**\
-`In a series of terse, unsigned orders, the court has often been giving the green light to President Trumpâs agenda without a murmur of explanation.`\
-https://nytimes.com/2025/07/16/us/politics/supreme-courts-shadow-docket.html
+**Project 2025âs Other Project**\
+`Inside the plan from the Heritage Foundation to rapidly dismantle the pro-Palestinian movement in the U.S.`\
+https://nytimes.com/2025/07/16/podcasts/the-daily/project-esther-antisemitism-heritage-foundation.html
 
-**Public Media Can Be a Lifeline. Gutting It Hurts Everyone.**\
-`Abandoning local public radio and TV would accelerate a dangerous trend straining civic health.`\
-https://nytimes.com/2025/07/16/opinion/pbs-npr-cuts-funding.html
+**With an assist from The Big Ticket, a film festival adds layers to NBA Summer League**\
+`Kevin Garnett wants to use his production company to give current NBA players a "script" for telling their own stories.`\
+https://nytimes.com/athletic/6485704/2025/07/16/nba-summer-league-kevin-garnett-film-festival/
 

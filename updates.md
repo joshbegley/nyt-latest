@@ -1,5 +1,9 @@
 **As Iran Deports a Million Afghans, âWhere Do We Even Go?â**\
 `Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
+https://nytimes.com/2025/07/16/world/africa/iran-deportations-afghanistan.html
+
+**As Iran Deports a Million Afghans, âWhere Do We Even Go?â**\
+`Afghans being forced out of Iran are grappling with an uncertain future in Afghanistan, where widespread poverty and severe restrictions on women and girls await.`\
 https://nytimes.com/2025/07/16/world/middleeast/iran-deportations-afghanistan.html
 
 **Afghan Women and Girls Deported From Iran Fear âComing Back to a Cageâ**\
