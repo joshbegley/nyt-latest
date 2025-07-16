@@ -1,3 +1,7 @@
+**Trump’s National Guard Troops Are Questioning Their Mission in L.A.**\
+`Thousands of National Guard members have served in the L.A. region since last month. Six soldiers spoke in interviews about low morale over the deployment.`\
+https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
+
 **The Bills That Could Change Crypto in The U.S.**\
 `There are multiple bills before the House that could redefine the way crypto is regulated in the U.`\
 https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change-crypto-in-the-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/books/paulette-jiles-dead.html
 **Senate Democrats Rail at ‘Sloppy, Rushed’ State Dept. Firings**\
 `Republicans on the Senate Foreign Relations Committee said the changes were needed and called the outrage overblown.`\
 https://nytimes.com/2025/07/16/us/politics/senate-state-department-firings.html
-
-**Documenting L.A.’s Surge in Immigration Arrests**\
-`Jennifer Medina, a political reporter at The New York Times who is based in Los Angeles, speaks with a witness who recorded an immigration raid near a Home Depot.`\
-https://nytimes.com/video/us/politics/100000010259953/documenting-las-surge-in-immigration-arrests.html
 

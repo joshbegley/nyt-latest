@@ -1,3 +1,7 @@
+**Trump’s National Guard Troops Are Questioning Their Mission in L.A.**\
+`Thousands of National Guard members have served in the L.A. region since last month. Six soldiers spoke in interviews about low morale over the deployment.`\
+https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
+
 **The Bills That Could Change Crypto in The U.S.**\
 `There are multiple bills before the House that could redefine the way crypto is regulated in the U.`\
 https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change-crypto-in-the-us.html

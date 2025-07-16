@@ -1,3 +1,11 @@
+**Vance Tries to Sell the Benefits of Trump’s Megabill but Ignores the Costs**\
+`In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump votes rely on.`\
+https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.html
+
+**Manhattan Prosecutor Who Handled Epstein Cases Is Fired**\
+`Maurene Comey, who is the daughter of the former F.B.I. director James Comey, worked on the criminal cases against Jeffrey Epstein and his associate Ghislaine Maxwell.`\
+https://nytimes.com/2025/07/16/nyregion/maurene-comey-prosecutor-fired-jeffrey-epstein.html
+
 **Trump’s National Guard Troops Are Questioning Their Mission in L.A.**\
 `Thousands of National Guard members have served in the L.A. region since last month. Six soldiers spoke in interviews about low morale over the deployment.`\
 https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/style/coffee-buckets-latte.html
 **Ceratosaur Fossil Auctioned for $30.5 Million by Sotheby’s**\
 `The price paid for the juvenile specimen of the 150-million-year old predatory dinosaur is the third-highest on record.`\
 https://nytimes.com/2025/07/16/science/sothebys-dinosaur-auction-ceratosaurus.html
-
-**Paulette Jiles, 82, Dies; Novelist Evoked the West in ‘News of the World’**\
-`A poet and memoirist as well, she drew a wide readership with her historical fiction, notably with a Civil War-era tale that was adapted for a movie.`\
-https://nytimes.com/2025/07/16/books/paulette-jiles-dead.html
-
-**Senate Democrats Rail at ‘Sloppy, Rushed’ State Dept. Firings**\
-`Republicans on the Senate Foreign Relations Committee said the changes were needed and called the outrage overblown.`\
-https://nytimes.com/2025/07/16/us/politics/senate-state-department-firings.html
 
