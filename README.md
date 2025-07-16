@@ -1,3 +1,11 @@
+**Arsenal Women set to sign Liverpool striker Olivia Smith in world-record deal**\
+`The 20-year-old was Liverpool Women’s top scorer last season with seven goals in a campaign where the club finished seventh.`\
+https://nytimes.com/athletic/6408481/2025/07/16/arsenal-liverpool-olivia-smith-transfer-news/
+
+**Henry Raymont, First to Report Bay of Pigs Invasion, Dies at 98**\
+`On assignment for U.P.I. in Cuba, he learned of the U.S.- backed effort to overthrow Fidel Castro and was imprisoned. He later worked for The New York Times.`\
+https://nytimes.com/2025/07/16/business/media/henry-raymont-dead.html
+
 **Eugenie Bouchard to retire from tennis at home tournament in Montreal**\
 `Bouchard, who reached the 2014 Wimbledon final in her breakout year on the WTA Tour, will formally retire at the 2025 Canadian Open. `\
 https://nytimes.com/athletic/6498263/2025/07/16/tennis-eugenie-bouchard-retire-canadian-open/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6483945/2025/07/16/everton-barcelona-martina-fernan
 **Mamdani, Be a Convener, Not a Commentator**\
 `Mamdani is pulled between his supporters and his critics on the phrase “globalize the intifada.”`\
 https://nytimes.com/2025/07/16/opinion/zohran-mamdani-globalize-intifada-israel.html
-
-**Republican Tax Bill Is a Losing Deal for Gamblers**\
-`The law is creating backlash from the gambling industry and bettors who could owe taxes even if they break even.`\
-https://nytimes.com/2025/07/16/us/politics/republican-tax-bill-gambling-industry.html
-
-**The Chaotic Early Days Inside Florida’s ‘Alligator Alcatraz’ Detention Center**\
-`Several immigrant detainees described high tension and anxiety at the remote, hastily constructed facility over a lack of information, recreation and access to medication.`\
-https://nytimes.com/2025/07/16/us/the-chaotic-early-days-inside-floridas-alligator-alcatraz-detention-center.html
 

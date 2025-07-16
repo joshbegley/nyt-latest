@@ -1,3 +1,11 @@
+**Eugenie Bouchard to retire from tennis at home tournament in Montreal**\
+`Bouchard, who reached the 2014 Wimbledon final in her breakout year on the WTA Tour, will formally retire at the 2025 Canadian Open. `\
+https://nytimes.com/athletic/6498263/2025/07/16/tennis-eugenie-bouchard-retire-canadian-open/
+
+**A Founding Father of NPR Worries About Its Fate**\
+`Bill Siemering, 91, says potential funding cuts put a “unique, invaluable cultural resource” at risk.`\
+https://nytimes.com/2025/07/16/business/media/npr-funding-bill-siemering.html
+
 **Are You Watching Video Podcasts?**\
 `The New York Times wants to know how people are consuming this relatively new kind of content.`\
 https://nytimes.com/2025/07/16/style/are-you-watching-video-podcasts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/republican-tax-bill-gambling-industry
 **The Chaotic Early Days Inside Florida’s ‘Alligator Alcatraz’ Detention Center**\
 `Several immigrant detainees described high tension and anxiety at the remote, hastily constructed facility over a lack of information, recreation and access to medication.`\
 https://nytimes.com/2025/07/16/us/the-chaotic-early-days-inside-floridas-alligator-alcatraz-detention-center.html
-
-**Florida QB DJ Lagway says he's 'ready to go' after injury concerns in spring**\
-`Lagway, appearing Wednesday at SEC media days, used humor to downplay the worries.`\
-https://nytimes.com/athletic/6498213/2025/07/16/dj-lagway-injury-update-florida/
-
-**Norwegian Olympic Skier Dies After Lightning Strike**\
-`Audun Groenvold, 49, won a bronze medal at the 2010 Olympics in Vancouver.`\
-https://nytimes.com/2025/07/16/sports/auden-groenvold-dead-lightning.html
 

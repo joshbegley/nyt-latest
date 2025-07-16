@@ -1,3 +1,11 @@
+**Eugenie Bouchard to retire from tennis at home tournament in Montreal**\
+`Bouchard, who reached the 2014 Wimbledon final in her breakout year on the WTA Tour, will formally retire at the 2025 Canadian Open. `\
+https://nytimes.com/athletic/6498263/2025/07/16/tennis-eugenie-bouchard-retire-canadian-open/
+
+**A Founding Father of NPR Worries About Its Fate**\
+`Bill Siemering, 91, says potential funding cuts put a “unique, invaluable cultural resource” at risk.`\
+https://nytimes.com/2025/07/16/business/media/npr-funding-bill-siemering.html
+
 **Are You Watching Video Podcasts?**\
 `The New York Times wants to know how people are consuming this relatively new kind of content.`\
 https://nytimes.com/2025/07/16/style/are-you-watching-video-podcasts.html
