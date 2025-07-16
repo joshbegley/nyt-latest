@@ -1,3 +1,11 @@
+**Judge Chastises U.S. Over Secrecy in Moving to Drop Charges Against MS-13 Leader**\
+`The judge on Long Island chided the Trump administration over its effort to “avoid public scrutiny.”`\
+https://nytimes.com/2025/07/16/us/politics/judge-secrecy-ms-13.html
+
+**RB Leipzig complete signing of winger Bakayoko from PSV**\
+`The Belgium international has signed a five-year deal with the German club, which will keep him at the Red Bull Arena until 2030.`\
+https://nytimes.com/athletic/6498640/2025/07/16/johan-bakayoko-rb-leipzig-transfer/
+
 **It Was Supposed to Be ‘Crypto Week’ in Congress. Then It Unraveled.**\
 `The crypto industry was headed for a landmark moment in the House with three bills that it helped push going to a vote. But a coalition of ultraconservative House Republicans staged a mutiny.`\
 https://nytimes.com/2025/07/16/technology/crypto-week-congress-bills.html
