@@ -1,3 +1,11 @@
+**Why Forest shouldn't feel bad about taking Crystal Palace's Europa League place**\
+`Itâs tough not to feel enormous sympathy for the Palace fans but it's not Forest's problem that their club can't keep up with their admin`\
+https://nytimes.com/athletic/6494011/2025/07/16/nottingham-forest-europa-league-crystal-palace/
+
+**Aston Villa's rebirth - and what I learned from writing a book about it**\
+`Executives past and present, players and staff revealed how an ailing giant was resurrected, and much more besides`\
+https://nytimes.com/athletic/6492613/2025/07/16/aston-villa-rebirth-book/
+
 **Tottenham's transfer policy will please Danny Rose, but will it get results?**\
 `The ex-Spurs defender once quipped he wanted them to sign players he did not âhave to Googleâ - is that the path to success...?`\
 https://nytimes.com/athletic/6485756/2025/07/16/tottenham-transfer-policy-google-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6495281/2025/07/16/proper-england-euro-2025/
 **What lessons can be learned from the Club World Cup for the 2026 World Cup?**\
 `Ticket pricing, adverse weather, pitches, travel problems - there is much to be worked on before next summer's international tournament`\
 https://nytimes.com/athletic/6495469/2025/07/16/club-world-cup-lessons-world-cup/
-
-**The Barcelona effect on Spain: The pros and cons of a club dominating the national side**\
-`Thirteen of Spain's 23-player squad either play for Barcelona or have done previously`\
-https://nytimes.com/athletic/6494615/2025/07/16/spain-barcelona-euro-2025/
-
-**Why do Real Madrid coaches often favour stars over style?**\
-`Xabi Alonso has brought his methods to Madrid. But what does history tell us about those who have gone before him?`\
-https://nytimes.com/athletic/6487892/2025/07/16/real-madrid-tactics-individuals-style/
 
