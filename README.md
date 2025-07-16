@@ -1,3 +1,7 @@
+**Where Have All the Novel-Reading Men Gone?**\
+`Readers respond to a Styles article about the reading habits of men. Also: Womenâs choices; chatbots in toys; conservative professors.`\
+https://nytimes.com/2025/07/16/opinion/novels-men-reading.html
+
 **Oakmont suspends Wyndham Clark for damaging lockers**\
 `Clark damaged Oakmont Country Club's 121-year-old locker room in a fit of rage after missing the cut at the U.S. Open last month.`\
 https://nytimes.com/athletic/6498078/2025/07/16/wyndham-clark-oakmont-suspension-locker/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/bank-robberies-nicknames-colorado.html
 **Thereâs a Lot to Dig in Donkey Kong Bananza**\
 `A Dante-like descent brims with valuable fossils and gold, but also sharp thorns, burning lava and icy water.`\
 https://nytimes.com/2025/07/16/arts/donkey-kong-bananza-review.html
-
-**Sweden among 'best teams in the world', says captain Asllani**\
-`Englandâs quarter-final opponents in the 2025 European Championships have reached the semi-finals of the last four major tournaments.`\
-https://nytimes.com/athletic/6497960/2025/07/16/sweden-best-world-england-euro-2025-asllani/
 
