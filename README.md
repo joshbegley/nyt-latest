@@ -1,41 +1,40 @@
-**Should Twins be buyers or sellers? Which pitchers, hitters need to step up in second half?**\
-`With the July 31 trade deadline nearing, the Twins must figure out quickly how they fit into the playoff picture.`\
-https://nytimes.com/athletic/6495763/2025/07/16/twins-three-questions-second-half-mlb/
+**Is This Restaurant the Only Thing Democrats and Republicans Agree On?**\
+`In polarized Washington, Ama is drawing leaders from both camps with an anti-additive menu and a vow to bar all manner of toxicity.`\
+https://nytimes.com/2025/07/16/dining/ama-restaurant-washington-dc-maha.html
 
-**Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
-`How do you feel about the team’s direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
-https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
+**U.S. Ambassador to Israel Visits Netanyahuâs Corruption Trial**\
+`A highly unusual appearance from Mike Huckabee comes as President Trump has called for the long-running legal case to be suspended.`\
+https://nytimes.com/2025/07/16/world/middleeast/mike-huckabee-ambassador-netanyahu-trial-israel.html
 
-**What cities did WNBA players think would suit expansion? Not where the league picked**\
-`In our anonymous player poll, athletes also expressed whether they should make at least $1 million in maximum salaries.`\
-https://nytimes.com/athletic/6497013/2025/07/16/wnba-expansion-cities-player-poll/
+**Which NHL teams improved the most this offseason?**\
+`From most value added to least, hereâs how each team has changed this summer.`\
+https://nytimes.com/athletic/6496153/2025/07/16/nhl-most-improved-2025/
 
-**College football quarterback tiers: Ranking all 136 projected starters entering 2025**\
-`We surveyed more than 40 coaches and staffers from across college football to support our assessments of the nation's best QBs.`\
-https://nytimes.com/athletic/6483745/2025/07/16/college-football-quarterback-tiers-rankings/
+**Pelicans rookies Derik Queen and Jeremiah Fears show room for growth during summer league**\
+`New Orleans' pair of lottery picks have struggled at times during the team's sloppy play. Is there reason for concern?`\
+https://nytimes.com/athletic/6497280/2025/07/16/jeremiah-fears-derik-queen-pelicans-summer-league/
 
-**Open Championship Big Board: McIlroy, Fleetwood and other favorites, ranked**\
-`A classic links test is the site for the final major championship of the 2025 men's professional golf season.`\
-https://nytimes.com/athletic/6496449/2025/07/16/open-championship-2025-big-board-mcilroy-fleetwood/
+**Down to Business: NWSL lost $4m with its Summer Cup. What's next?**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6497376/2025/07/16/nwsl-summer-cup-international-tournaments/
 
-**Guardians second-half storylines: Trades, prospects and José Ramírez**\
-`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
-`\
-https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
+**Bournemouth sign Djordje Petrovic from Chelsea on five-year contract**\
+`Petrovic made 31 appearances for Chelsea after signing for the Premier League club from MLS side New England Revolution in 2023.`\
+https://nytimes.com/athletic/6488728/2025/07/16/bournemouth-djordje-petrovic-chelsea-transfer/
 
-**Meet the women fueling NFL weight rooms and breaking coaching barriers**\
-`Ten years ago, the NFL had one full-time female coach. Today, there are 15, including six who work in strength and conditioning.`\
-https://nytimes.com/athletic/6472602/2025/07/16/nfl-women-coaches-hiring-trends/
+**Jamal Musiala exclusive: 'Ronaldinho, Messi, Neymar, Cristiano Ronaldo were untouchable in my eyes'**\
+`The Athletic sat down with the Bayern Munich midfielder, a cover star for EA SPORTS FC 26 alongside Real Madrid's Jude Bellingham`\
+https://nytimes.com/athletic/6472130/2025/07/16/jamal-musiala-bayern-ea-fc26-interview/
 
-**Rising Inflation, and the Supreme Court’s ‘Shadow Docket’**\
-`Plus, why that e-book cost your library $50.`\
-https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
+**Why We Mistake the Wholesomeness of Gen Z for Conservatism**\
+`Their moderation has been misread.`\
+https://nytimes.com/2025/07/16/opinion/gen-z-wholesome-conservative.html
 
-**Braves second-half storylines: Aggressive trades unlikely, Sean Murphy's status, IL updates**\
-`The Braves are not about to go into another rebuild. But they won't be making big moves for a postseason push this year, either.`\
-https://nytimes.com/athletic/6493485/2025/07/16/braves-second-half-storylines-trade-deadline/
+**Do We Have to Thank My Brother-in-Law for His Gifts if We Hate His Politics?**\
+`A coupleâs passive efforts to keep a relative at armâs length, like quietly donating his gifts to charity, are not being received as intended.`\
+https://nytimes.com/2025/07/16/style/unwanted-gifts.html
 
-**Project 2025’s Other Project**\
-`Inside the plan from the Heritage Foundation to rapidly dismantle the pro-Palestinian movement in the U.S.`\
-https://nytimes.com/2025/07/16/podcasts/the-daily/project-esther-antisemitism-heritage-foundation.html
+**Alex Bowman on snake removal, 'The Terminator' vs. 'Her,' and more: 12 Questions**\
+`Alex Bowman talks about the time a snake got in his house, his bubbly personality, making races longer and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6493663/2025/07/16/alex-bowman-nascar-12-questions-snakes-terminator/
 
