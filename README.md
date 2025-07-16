@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6498309/2025/07/16/wisconsin-nyzier-fourqurean-inel
 `Here’s a full look at the schedule with notes on some highlights of the Sabres’ slate this season.`\
 https://nytimes.com/athletic/6498316/2025/07/16/buffalo-sabres-2025-26-schedule-analysis/
 
-**Arsenal Women set to sign Liverpool striker Olivia Smith in world-record deal**\
+**Arsenal Women set to sign Liverpool striker Olivia Smith in world-record £1m deal**\
 `The 20-year-old was Liverpool Women’s top scorer last season with seven goals in a campaign where the club finished seventh.`\
 https://nytimes.com/athletic/6408481/2025/07/16/arsenal-liverpool-olivia-smith-transfer-news/
 
