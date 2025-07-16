@@ -1,3 +1,7 @@
+**Central Oregon Wildfire Grows to More Than 60,000 Acres**\
+`Gov. Tina Kotek of Oregon issued an emergency declaration on Wednesday as the Cram fire threatened about 430 structures, including nearly 300 homes.`\
+https://nytimes.com/2025/07/16/us/cam-wildfire-oregon-emergency.html
+
 **Vance Tries to Sell the Benefits of Trump’s Megabill but Ignores the Costs**\
 `In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump votes rely on.`\
 https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498813/2025/07/16/caitlin-clark-groin-injury-fever
 **Your Morning Coffee, in a Bucket**\
 `Across the United States, cafes are serving jumbo-size coffee drinks in plastic buckets. The gimmick is working.`\
 https://nytimes.com/2025/07/16/style/coffee-buckets-latte.html
-
-**Ceratosaur Fossil Auctioned for $30.5 Million by Sotheby’s**\
-`The price paid for the juvenile specimen of the 150-million-year old predatory dinosaur is the third-highest on record.`\
-https://nytimes.com/2025/07/16/science/sothebys-dinosaur-auction-ceratosaurus.html
 
