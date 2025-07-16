@@ -1,3 +1,23 @@
+**Senate Democrats Rail at ‘Sloppy, Rushed’ State Dept. Firings**\
+`Republicans on the Senate Foreign Relations Committee said the changes were needed and called the outrage overblown.`\
+https://nytimes.com/2025/07/16/us/politics/senate-state-department-firings.html
+
+**Documenting L.A.’s Surge in Immigration Arrests**\
+`Jennifer Medina, a political reporter at The New York Times who is based in Los Angeles, speaks with a witness who recorded an immigration raid near a Home Depot.`\
+https://nytimes.com/video/us/politics/100000010259953/documenting-las-surge-in-immigration-arrests.html
+
+**Former radio host Harry Teinowitz, a Chicago original and 'man of the people,' dies at 64**\
+`Teinowitz was an actor, comedian, media personality and playwright. He knew sports, courted laughs and even had a part in “Risky Business."`\
+https://nytimes.com/athletic/6496944/2025/07/16/harry-teinowitz-chicago-radio-host-dies/
+
+**Adams Eclipses Mamdani in Recent Fund-Raising, as Cuomo Lags Behind**\
+`Mayor Eric Adams reported raising $1.5 million over the last month, but his inability to qualify for matching funds may hamper his re-election bid.`\
+https://nytimes.com/2025/07/16/nyregion/mamdani-adams-donors-money.html
+
+**The Briefing: Norway 1 Italy 2 - Cristiana Girelli’s brace lifts Italy to first Euros semi-final in decades**\
+`Italy make their first semi-final Euros appearance since 1997`\
+https://nytimes.com/athletic/6497369/2025/07/16/norway-italy-euros-brace-cristiana-girelli/
+
 **Chargers' Najee Harris likely to start camp on NFI after fireworks-related eye injury**\
 `Harris suffered what his agent termed a "superficial" eye injury in a Fourth of July fireworks accident in his Bay Area hometown.`\
 https://nytimes.com/athletic/6498672/2025/07/16/najee-harris-chargers-fireworks-injury-nfi/
