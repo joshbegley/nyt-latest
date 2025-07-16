@@ -1,3 +1,7 @@
+**Trump Has Promised More Tariffs on Mexico. What Happens Next?**\
+`President Trump has threatened to increase Mexico’s tariff rate to 30 percent starting Aug. 1, claiming the country hasn’t sufficiently tackled drug cartels.`\
+https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
+
 **JD Vance’s Big, Beautiful Task**\
 `The vice president is selling Trump’s domestic policy bill amid signs Democratic attacks are breaking through.`\
 https://nytimes.com/2025/07/16/us/politics/jd-vance-trump-bill.html
