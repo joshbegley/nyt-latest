@@ -1,3 +1,7 @@
+**Damage From Fire Shuts Down North Rim of Grand Canyon**\
+`The Dragon Bravo blaze destroyed the historic Grand Canyon Lodge and dozens of other buildings used for summer tourism on the Arizona-Utah border.`\
+https://nytimes.com/video/us/100000010288163/grand-canyon-north-rim-fire.html
+
 **A Royal Course Prepares to Star at the British Open Again**\
 `The town of Portrush in Northern Ireland will host the event for the first time since 2019.`\
 https://nytimes.com/2025/07/16/sports/golf/british-open-royal-portrush.html
