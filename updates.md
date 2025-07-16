@@ -1,3 +1,8 @@
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **Pac-12, Mountain West fail to resolve poaching fees case in mediation**\
 `On Tuesday, the Pac-12 and Mountain West acknowledged they had not made progress and requested that the court hold a hearing on Sept. 9.`\
 https://nytimes.com/athletic/6496813/2025/07/15/pac-12-mountain-west-court-case-mediation-failure/
