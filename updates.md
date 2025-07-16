@@ -1,3 +1,8 @@
+**Guardians second-half storylines: Trades, prospects and José Ramírez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
+
 **Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
 `How do you feel about the team’s direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
 https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
