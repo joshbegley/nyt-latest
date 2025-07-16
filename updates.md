@@ -1,3 +1,19 @@
+**Is This Restaurant the Only Thing Democrats and Republicans Agree On?**\
+`In polarized Washington, Ama is drawing leaders from both camps with an anti-additive menu and a vow to bar all manner of toxicity.`\
+https://nytimes.com/2025/07/16/dining/ama-restaurant-washington-dc-maha.html
+
+**U.S. Ambassador to Israel Visits Netanyahuâs Corruption Trial**\
+`A highly unusual appearance from Mike Huckabee comes as President Trump has called for the long-running legal case to be suspended.`\
+https://nytimes.com/2025/07/16/world/middleeast/mike-huckabee-ambassador-netanyahu-trial-israel.html
+
+**Which NHL teams improved the most this offseason?**\
+`From most value added to least, hereâs how each team has changed this summer.`\
+https://nytimes.com/athletic/6496153/2025/07/16/nhl-most-improved-2025/
+
+**Do We Have to Thank My Brother-in-Law for His Gifts if We Hate His Politics?**\
+`A coupleâs passive efforts to keep a relative at armâs length, like quietly donating his gifts to charity, are not being received as intended.`\
+https://nytimes.com/2025/07/16/style/unwanted-gifts.html
+
 **U.S. Ambassador to Israel Visits Netanyahu’s Corruption Trial**\
 `A highly unusual appearance from Mike Huckabee comes as President Trump has called for the long-running legal case to be suspended.`\
 https://nytimes.com/2025/07/16/world/middleeast/mike-huckabee-ambassador-netanyahu-trial-israel.html
