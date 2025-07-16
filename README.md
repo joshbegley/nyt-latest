@@ -1,3 +1,7 @@
+**West Indies' cricketing decline feels terminal - and that should worry everyone**\
+`It will take far more than a legends-led review to cure the country's problems`\
+https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
+
 **Rosenthal: Historic All-Star swing-off proved impossible to resist for players, fans**\
 `There was good reason to be skeptical of MLB's new format to end an All-Star Game tie, until it happened for the first time.`\
 https://nytimes.com/athletic/6497335/2025/07/16/mlb-all-star-game-swing-off/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6494275/2025/07/16/cubs-second-half-storylines-mlb-
 **How to watch the Women’s Euro quarterfinals: Spain, England among favorites**\
 `The UEFA Women's Euro bracket is balanced. The margins are thin. Every side left believes it can win. By Sunday, half of them will be wrong.`\
 https://nytimes.com/athletic/6496586/2025/07/16/euro-2025-womens-quarterfinals-how-to-watch/
-
-**These are the 6 players the Colts can't live without in 2025**\
-`We picked three Colts on each side of the ball that the team would struggle to replace. And no, a QB didn't make the list. `\
-https://nytimes.com/athletic/6496315/2025/07/16/colts-indispensable-quenton-nelson-deforest-buckner-bernhard-raimann/
 
