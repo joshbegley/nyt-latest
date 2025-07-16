@@ -1,3 +1,8 @@
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **Hawley Aims to Roll Back Medicaid Cuts He Voted for Just Two Weeks Ago**\
 `The Republican senator introduced a bill Tuesday that would block restrictions on key strategies that states rely on to finance Medicaid and double a rural hospital fund.`\
 https://nytimes.com/2025/07/15/us/politics/medicaid-hawley-trump-policy-bill.html
