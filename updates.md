@@ -1,3 +1,11 @@
+**I Took 58 Walks in My 58th Year**\
+`With friends new and old, I figured out what I really value — one step at a time.`\
+https://nytimes.com/2025/07/16/well/mind/walking-ritual.html
+
+**Barca's return to the Camp Nou for Joan Gamper Trophy in serious doubt**\
+`The club is struggling to complete the necessary work to be allowed 62,000 people in the stands.`\
+https://nytimes.com/athletic/6497277/2025/07/16/barcelonas-return-camp-nou-doubt-council-permit/
+
 **This Golden Fungus Is Spreading Wildly in North America’s Forests**\
 `The golden oyster mushroom, a tasty species native to Asia, has proliferated in states around the Great Lakes and may crowd out native species, a new study shows.`\
 https://nytimes.com/2025/07/16/science/golden-oyster-mushrooms-invasive-fungus.html
