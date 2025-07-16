@@ -1,3 +1,24 @@
+**The Pulse: That All-Star Game was electric. No, really.**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6496963/2025/07/16/mlb-all-star-game-swing-off-the-pulse/
+
+**Mets' second-half storylines to watch, starting with the trade deadline**\
+`Will the returns of Sean Manaea, Kodai Senga and Frankie Montas be enough to revitalize the Mets' slumping rotation?`\
+https://nytimes.com/athletic/6493419/2025/07/16/mets-second-half-trade-deadline/
+
+**Vikings fan survey: Gauging expectations for J.J. McCarthy, Minnesota's leadership**\
+`How do you feel about the team’s direction heading into training camp and the 2025 season? Can McCarthy be a difference-maker at QB?`\
+https://nytimes.com/athletic/6496555/2025/07/16/minnesota-vikings-fan-survey-jj-mccarthy/
+
+**Guardians second-half storylines: Trades, prospects and José Ramírez**\
+`The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
+`\
+https://nytimes.com/athletic/6494030/2025/07/16/guardians-second-half-trades-prospects-jose-ramirez/
+
+**Rising Inflation, and the Supreme Court’s ‘Shadow Docket’**\
+`Plus, why that e-book cost your library $50.`\
+https://nytimes.com/2025/07/16/podcasts/the-headlines/rising-inflation-supreme-courts-shadow-docket.html
+
 **Guardians second-half storylines: Trades, prospects and JosÃ© RamÃ­rez**\
 `The All-Star break grants almost everyone a chance to catch their breath, to ruminate on the first half and to ponder what's to come.
 `\
