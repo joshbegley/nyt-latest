@@ -1,3 +1,8 @@
+**How Sidney Crosby helped the Blue Jackets land their new head equipment manager**\
+`The superstar placed a phone call to endorse Paul DeFazio, who was hired by Columbus after 25-plus years in the Penguins organization.
+`\
+https://nytimes.com/athletic/6496678/2025/07/15/sidney-crosby-blue-jackets-paul-defazio-equipment-manager/
+
 **Senate Advances Trump Clawback of Foreign Aid and Public Broadcast Funds**\
 `The vote to take up legislation to rescind $9 billion in funds Congress has already approved suggested that Republicans would bow to the president’s wishes in the simmering fight over spending powers.`\
 https://nytimes.com/2025/07/15/us/politics/senate-rescission-foreign-aid-public-broadcasting.html
