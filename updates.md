@@ -1,3 +1,23 @@
+**Five free agents for the Canucks to consider as value signings**\
+`These players could add some depth to Vancouver's forward group as value adds in the second wave of unrestricted free agency.`\
+https://nytimes.com/athletic/6492554/2025/07/16/canucks-jack-roslovic-victor-olofsson-free-agents/
+
+**Pirates trade Adam Frazier to Royals for infielder Cam Devanney**\
+`Frazier now returns to Kansas City, where he spent the entire 2024 season. `\
+https://nytimes.com/athletic/6497785/2025/07/16/adam-frazier-cam-devanney-pirates-royals-trade/
+
+**Drake Returns Robustly, With Reinforcements**\
+`The Canadian superstar headlined all three nights of Londonâs Wireless Festival, showing off his range, reach and a glimpse of how he intends to leave his Kendrick Lamar beef in the past.`\
+https://nytimes.com/2025/07/16/arts/music/drake-wireless-festival-london.html
+
+**I Took 58 Walks in My 58th Year**\
+`With friends new and old, I figured out what I really value â one step at a time.`\
+https://nytimes.com/2025/07/16/well/mind/walking-ritual.html
+
+**This Golden Fungus Is Spreading Wildly in North Americaâs Forests**\
+`The golden oyster mushroom, a tasty species native to Asia, has proliferated in states around the Great Lakes and may crowd out native species, a new study shows.`\
+https://nytimes.com/2025/07/16/science/golden-oyster-mushrooms-invasive-fungus.html
+
 **I Took 58 Walks in My 58th Year**\
 `With friends new and old, I figured out what I really value — one step at a time.`\
 https://nytimes.com/2025/07/16/well/mind/walking-ritual.html
