@@ -1,40 +1,40 @@
-**Amid nonstop rumors, signs point to LeBron James' future sticking with Lakers**\
-`LAS VEGAS — LeBron James shook hands with Rob Pelinka, joked with JJ Redick, talked golf with Austin Reaves and posed for pictures with his team’s newest players, Jake LaRavia and Deandre Ayton.`\
-https://nytimes.com/athletic/6497098/2025/07/16/lebron-james-lakers-buyout-trade/
+**Trump Administration Live Updates: President to Host Qatar’s Prime Minister Amid Gaza Talks**\
+``\
+https://nytimes.com/live/2025/07/16/us/trump-news
 
-**Exclusive: Bucks GM Jon Horst on team's bold summer moves: 'Now matters more than anything'**\
-`In Part 1 of an exclusive discussion, Horst delves into his faith in Doc Rivers, Giannis as point forward and the team's big-picture vision.`\
-https://nytimes.com/athletic/6496242/2025/07/16/bucks-jon-horst-myles-turner-giannis-offseason-interview/
+**Europeans Threaten to Reimpose Tough U.N. Nuclear Sanctions on Iran**\
+`“Snapback” sanctions will be triggered by the end of August if Tehran fails to make concrete progress to limit its nuclear program.`\
+https://nytimes.com/2025/07/16/world/middleeast/iran-nuclear-program-sanctions.html
 
-**Cardinals second-half storylines to watch, starting with the trade deadline**\
-`Masyn Winn and other strong performers powered the Cardinals' flying start, but the team could be sellers by the end of the month. `\
-https://nytimes.com/athletic/6489333/2025/07/16/cardinals-second-half-storylines/
+**'There are no words' - Lionel Messi and his record-breaking scoring for Inter Miami**\
+`Messi has scored twice in each of Miami's last five MLS games, setting a league record and propelling Mascherano's team up the table`\
+https://nytimes.com/athletic/6495756/2025/07/16/lionel-messi-scoring-record-mls-miami/
 
-**Was the Club World Cup really worth $1bn to DAZN - and what happens now?**\
-`For all the claims by the streaming service and FIFA, there is scepticism that the CWC has convinced other broadcasters of its merits`\
-https://nytimes.com/athletic/6495197/2025/07/16/was-the-club-world-cup-really-worth-1bn-to-dazn-and-what-happens-now/
+**Projecting the new-look Penguins' 2025-26 roster**\
+`Two weeks into the start of free agency, the Penguins look a little different on paper after a couple of trades and signings.`\
+https://nytimes.com/athletic/6492472/2025/07/16/penguins-2025-26-roster-projection-trades-signings-offseason/
 
-**ABS challenge system quickly makes an impact in All-Star Game debut**\
-`The Automated Ball-Strike system, which had only been seen in spring training games at the major-league level, was used four times.`\
-https://nytimes.com/athletic/6497391/2025/07/16/automated-ball-strike-system-all-star-game/
+**Dodgers second-half storylines: What to watch for from the defending champions**\
+`Will Smith looked like an MVP candidate in the first half, but the Dodgers need some of their other big names to get going. `\
+https://nytimes.com/athletic/6493791/2025/07/16/dodgers-second-half-storylines/
 
-**West Indies' cricketing decline feels terminal - and that should worry everyone**\
-`It will take far more than a legends-led review to cure the problems affecting the sport in the Caribbean`\
-https://nytimes.com/athletic/6497278/2025/07/16/west-indies-cricket-crisis/
+**Kalinauckas: Norris has finally matched Piastri for one thing all F1 champions need **\
+`Lando Norris' British GP win had much to do with Oscar Piastri's penalty. But it was still significant in the McLaren title fight`\
+https://nytimes.com/athletic/6488172/2025/07/16/lando-norris-mclaren-form-f1-2025/
 
-**Rosenthal: Historic All-Star swing-off proved impossible to resist for players, fans**\
-`There was good reason to be skeptical of MLB's new format to end an All-Star Game tie, until it happened for the first time.`\
-https://nytimes.com/athletic/6497335/2025/07/16/mlb-all-star-game-swing-off/
+**The fantasy football running backs to draft ... and those to avoid**\
+`Jake Ciely suggests a Hero RB approach as he illustrates his fantasy football strategy to maximize value at the position in 2025.`\
+https://nytimes.com/athletic/6495703/2025/07/16/fantasy-football-draft-best-rb-rankings-values-adp/
 
-**Indonesia Confirms U.S. Trade Agreement, but Details Remain Scarce**\
-`President Trump said the agreement would partly walk back some of the steep tariffs he threatened on the country last week. Indonesia’s president called Mr. Trump a “tough negotiator.”`\
-https://nytimes.com/2025/07/16/business/economy/indonesia-trump-tariff-trade-agreement.html
+**Clippers need rookie Yanic Konan Niederhäuser to keep channeling his 'barbarian' side**\
+`As the 22-year-old center develops, he can look to a couple of teammates as examples of how continued improvement can pay off.`\
+https://nytimes.com/athletic/6495005/2025/07/16/yanic-konan-niederhauser-clippers-centers-nba/
 
-**Flood Season**\
-`We look at recent flooding — and explain what you can do to stay safe.`\
-https://nytimes.com/2025/07/16/briefing/flooding-northeast-risk.html
+**Rangers mailbag: Alexis Lafrenière's production, depth concerns and prospect competitions**\
+`"Will Juuso Pärssinen get a fair shot at third-line center?" asks one reader in the Rangers mailbag.`\
+https://nytimes.com/athletic/6496255/2025/07/16/rangers-alexis-lafreniere-mailbag/
 
-**Phillies second-half storylines to watch, starting with the trade deadline**\
-`They will head into the second half prepared to shake up the same groups as during last year’s trade deadline and the offseason. `\
-https://nytimes.com/athletic/6496683/2025/07/16/phillies-storylines-trade-deadline-second-half/
+**Lowetide: What else can the Oilers get done this offseason?**\
+`Here are a few things to watch for over the rest of the summer for Oilers fans.`\
+https://nytimes.com/athletic/6496619/2025/07/16/edmonton-oilers-news-offseason-2025/
 
