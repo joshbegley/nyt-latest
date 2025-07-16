@@ -1,3 +1,7 @@
+**JD Vance’s Big, Beautiful Task**\
+`The vice president is selling Trump’s domestic policy bill amid signs Democratic attacks are breaking through.`\
+https://nytimes.com/2025/07/16/us/politics/jd-vance-trump-bill.html
+
 **The Grand Canyon Fire Has North Rim Residents Wary of the Future**\
 `Fire crews allowed a fire to burn through brush on the Grand Canyon’s North Rim. Then they lost control.`\
 https://nytimes.com/2025/07/16/us/politics/grand-canyon-fire-north-rim-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/technology/100000010285812/the-bills-that-could-change
 **Scandal-Ridden Fyre Festival Is Sold for $245,000 on eBay**\
 `Billy McFarland, who served nearly four years in prison for fraud, said in April that he would put the beleaguered brand that he founded up for sale.`\
 https://nytimes.com/2025/07/16/us/fyre-fesival-sold-ebay.html
-
-**Can Trump Fire Powell? He Likely Lacks a Case, Legal Experts Say.**\
-`The Trump administration is toying with removing Jerome H. Powell as chair of the Federal Reserve, accusing him of mismanaging a multibillion-dollar update to its Washington headquarters.`\
-https://nytimes.com/2025/07/16/us/politics/trump-powell-fed-renovations.html
 
