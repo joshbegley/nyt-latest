@@ -1,3 +1,11 @@
+**Ceratosaur Fossil Auctioned for $30.5 Million by Sotheby’s**\
+`The price paid for the juvenile specimen of the 150-million-year old predatory dinosaur is the third-highest on record.`\
+https://nytimes.com/2025/07/16/science/sothebys-dinosaur-auction-ceratosaurus.html
+
+**Paulette Jiles, Novelist Who Evoked the American Frontier, Dies at 82**\
+`A poet and memoirist as well, she drew a wide readership with her historical fiction, notably with “News of the World,” which was adapted for a movie.`\
+https://nytimes.com/2025/07/16/books/paulette-jiles-dead.html
+
 **Senate Democrats Rail at ‘Sloppy, Rushed’ State Dept. Firings**\
 `Republicans on the Senate Foreign Relations Committee said the changes were needed and called the outrage overblown.`\
 https://nytimes.com/2025/07/16/us/politics/senate-state-department-firings.html
