@@ -1,3 +1,11 @@
+**Judge Chastises U.S. Over Secrecy in Moving to Drop Charges Against MS-13 Leader**\
+`The judge on Long Island chided the Trump administration over its effort to “avoid public scrutiny.”`\
+https://nytimes.com/2025/07/16/us/politics/judge-secrecy-ms-13.html
+
+**RB Leipzig complete signing of winger Bakayoko from PSV**\
+`The Belgium international has signed a five-year deal with the German club, which will keep him at the Red Bull Arena until 2030.`\
+https://nytimes.com/athletic/6498640/2025/07/16/johan-bakayoko-rb-leipzig-transfer/
+
 **It Was Supposed to Be ‘Crypto Week’ in Congress. Then It Unraveled.**\
 `The crypto industry was headed for a landmark moment in the House with three bills that it helped push going to a vote. But a coalition of ultraconservative House Republicans staged a mutiny.`\
 https://nytimes.com/2025/07/16/technology/crypto-week-congress-bills.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/world/europe/kew-london-renovate-glasshouse-palm-
 **Syria Agrees to Cease-Fire in Sweida After Israeli Attack on Damascus**\
 `Israel launched deadly airstrikes on Syria’s capital on Wednesday, and threatened to escalate unless Syrian government forces withdrew from Sweida, a southern province dominated by the country’s Druse minority.`\
 https://nytimes.com/video/world/middleeast/100000010288192/syria-israel-airstrike.html
-
-**Damage From Fire Shuts Down North Rim of Grand Canyon**\
-`The Dragon Bravo blaze destroyed the historic Grand Canyon Lodge and dozens of other buildings used for summer tourism on the Arizona-Utah border.`\
-https://nytimes.com/video/us/100000010288163/grand-canyon-north-rim-fire.html
-
-**A Royal Course Prepares to Star at the British Open Again**\
-`The town of Portrush in Northern Ireland will host the event for the first time since 2019.`\
-https://nytimes.com/2025/07/16/sports/golf/british-open-royal-portrush.html
 
