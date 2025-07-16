@@ -1,3 +1,7 @@
+**Blues 2025-26 schedule takeaways: Revenge date with Winnipeg, reunions and more**\
+`The Blues will have a rematch against the Jets, who knocked them out of the NHL playoffs last season, on Dec. 17.`\
+https://nytimes.com/athletic/6498006/2025/07/16/blues-2025-26-schedule-dates-nhl-jets/
+
 **London’s Kew Gardens Will Renovate Iconic Glasshouses**\
 `The Palm House and the Waterlily House, two hulking greenhouses built in the Victorian Era, will close in 2027 for four years of major renovations.`\
 https://nytimes.com/2025/07/16/world/europe/kew-london-renovate-glasshouse-palm-water-lily.html
