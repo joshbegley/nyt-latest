@@ -1,3 +1,11 @@
+**Blue Jackets' schedule challenges them to play better on the road and in back-to-backs**\
+`Better performances in uncomfortable settings and when the legs are weary are going to be key for Columbus to succeed in 2025-26.`\
+https://nytimes.com/athletic/6498320/2025/07/16/blue-jackets-2025-26-schedule-dates-nhl/
+
+**Sources: LAFC to sign Canada's Mathieu Choinière**\
+`The Canadian international was an MLS All-Star in 2023 and 2024 before departing for Switzerland`\
+https://nytimes.com/athletic/6498591/2025/07/16/mathieu-choiniere-lafc-grasshopper-canada/
+
 **Who is Olivia Smith? The 20-year-old Canadian phenom joining Arsenal for £1m**\
 `Liverpool forward Olivia Smith and her father tell the story of her journey to becoming one of the WSL's brightest young prospects`\
 https://nytimes.com/athletic/5921195/2025/07/16/olivia-smith-interview-liverpool-canada/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/world/canada/carney-trump-us-canada-steel-tariffs
 **Yamal says Barcelona is the ‘club of his life’ after becoming new No 10**\
 `Barcelona have announced that Yamal, who turned 18 on Sunday, will now don the iconic No 10 shirt.`\
 https://nytimes.com/athletic/6498454/2025/07/16/barcelona-lamine-yamal-no-10-shirt/
-
-**With petty remarks, Bill Belichick again stokes feud with Patriots owner Robert Kraft**\
-`Belichick and Kraft's public spat continued with the coach taking offense at the idea that the Patriots owner took a risk in hiring him.`\
-https://nytimes.com/athletic/6498010/2025/07/16/bill-belichick-robert-kraft-feud-patriots/
-
-**The British Open Is Special to Tom Watson. He Won It Five Times.**\
-`He talks about landing his first major at the event 50 years ago.`\
-https://nytimes.com/2025/07/16/sports/golf/british-open-tom-watson.html
 
