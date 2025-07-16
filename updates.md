@@ -1,3 +1,7 @@
+**Syria Agrees To Cease-Fire in Sweida After Israeli Attack on Damascus**\
+`Israel launched deadly airstrikes on Syria’s capital on Wednesday, and threatened to escalate unless Syrian government forces withdrew from Sweida, a southern province dominated by the country’s Druse minority.`\
+https://nytimes.com/video/world/middleeast/100000010288192/syria-israel-airstrike.html
+
 **Damage From Fire Shuts Down North Rim of Grand Canyon**\
 `The Dragon Bravo blaze destroyed the historic Grand Canyon Lodge and dozens of other buildings used for summer tourism on the Arizona-Utah border.`\
 https://nytimes.com/video/us/100000010288163/grand-canyon-north-rim-fire.html
