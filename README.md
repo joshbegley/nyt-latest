@@ -1,3 +1,11 @@
+**Stampede Near Aid Site in Southern Gaza Kills at Least 20 Palestinians**\
+`Gaza’s health ministry and the Israeli-backed Gaza Humanitarian Foundation, the organization that operates the aid distribution site, reported that at least 20 aid seekers were killed as they waited for food on the outskirts of Khan Younis.`\
+https://nytimes.com/video/world/middleeast/100000010287721/stampede-aid-gaza-humanitarian-foundation-killed.html
+
+**Memphis hoops put on probation by NCAA over academic integrity violations**\
+`The NCAA said an academic counselor paid two softball players a combined $550 for the coursework.`\
+https://nytimes.com/athletic/6498274/2025/07/16/memphis-basketball-ncaa-probation/
+
 **The Epstein Story is Both Conspiracy Theory and Genuine Scandal**\
 `More than a client list, MAGA is looking for meaning.`\
 https://nytimes.com/2025/07/16/opinion/epstein-trump-scandal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6498263/2025/07/16/tennis-eugenie-bouchard-retire-c
 **A Founding Father of NPR Worries About Its Fate**\
 `Bill Siemering, 91, says potential funding cuts put a “unique, invaluable cultural resource” at risk.`\
 https://nytimes.com/2025/07/16/business/media/npr-funding-bill-siemering.html
-
-**Are You Watching Video Podcasts?**\
-`The New York Times wants to know how people are consuming this relatively new kind of content.`\
-https://nytimes.com/2025/07/16/style/are-you-watching-video-podcasts.html
-
-**20 States Sue Trump Administration Over Ending FEMA Funding for Disaster Mitigation**\
-`FEMA announced in April that it was ending the funding to eliminate “waste, fraud and abuse.” The program saved taxpayers more than $150 billion over 20 years, the plaintiffs said.`\
-https://nytimes.com/2025/07/16/us/politics/trump-lawsuit-fema-disaster-funding.html
 
