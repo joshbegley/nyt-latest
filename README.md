@@ -1,9 +1,21 @@
+**The Grand Canyon Fire Has North Rim Residents Wary of the Future**\
+`Fire crews allowed a fire to burn through brush on the Grand Canyon’s North Rim. Then they lost control.`\
+https://nytimes.com/2025/07/16/us/politics/grand-canyon-fire-north-rim-arizona.html
+
+**Immigrants File Class-Action Lawsuit to Stop ICE Courthouse Arrests**\
+`The detentions have become a relatively easy way for Immigration and Customs Enforcement agents to detain immigrants who are appearing for court dates.`\
+https://nytimes.com/2025/07/16/nyregion/trump-ice-arrests-lawsuit-immigrants.html
+
+**Abrego Garcia Lawyers Question Evidence From Key Witness in Criminal Case**\
+`The exchanges unfolded at a hearing in Federal District Court in Nashville intended to determine whether Kilmar Armando Abrego Garcia should be freed from criminal custody as he awaits trial.`\
+https://nytimes.com/2025/07/16/us/politics/kilmar-abrego-garcia-trump-deportations.html
+
 **Central Oregon Wildfire Grows to More Than 60,000 Acres**\
 `Gov. Tina Kotek of Oregon issued an emergency declaration on Wednesday as the Cram fire threatened about 430 structures, including nearly 300 homes.`\
 https://nytimes.com/2025/07/16/us/cam-wildfire-oregon-emergency.html
 
 **Vance Tries to Sell the Benefits of Trump’s Megabill but Ignores the Costs**\
-`In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump votes rely on.`\
+`In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump voters rely on.`\
 https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.html
 
 **Manhattan Prosecutor Who Handled Epstein Cases Is Fired**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/16/us/fyre-fesival-sold-ebay.html
 **Can Trump Fire Powell? He Likely Lacks a Case, Legal Experts Say.**\
 `The Trump administration is toying with removing Jerome H. Powell as chair of the Federal Reserve, accusing him of mismanaging a multibillion-dollar update to its Washington headquarters.`\
 https://nytimes.com/2025/07/16/us/politics/trump-powell-fed-renovations.html
-
-**Spurned U.S. Attorney Clings to Job by Being Appointed His Own Assistant**\
-`District judges recently denied John Sarcone, who was interim U.S. attorney, the permanent position. The Justice Department then gave him a special appointment so he could continue in the role.`\
-https://nytimes.com/2025/07/16/nyregion/sarcone-albany-us-attorney.html
-
-**Caitlin Clark ruled out of Fever's game vs. Liberty with groin injury**\
-`Clark has now missed 11 games this season after picking up the injury late in Tuesday's win over the Connecticut Sun.`\
-https://nytimes.com/athletic/6498813/2025/07/16/caitlin-clark-groin-injury-fever-liberty/
-
-**Your Morning Coffee, in a Bucket**\
-`Across the United States, cafes are serving jumbo-size coffee drinks in plastic buckets. The gimmick is working.`\
-https://nytimes.com/2025/07/16/style/coffee-buckets-latte.html
 
