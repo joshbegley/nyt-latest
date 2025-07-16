@@ -1,3 +1,7 @@
+**Shaq threatens to punch RGIII over Angel Reese posts**\
+`Shaq called out Griffin after the former quarterback reposted a racist edit of Reese's "NBA 2K26" cover while denouncing it.`\
+https://nytimes.com/athletic/6497592/2025/07/16/shaq-robert-griffin-iii-angle-reese-posts/
+
 **Read Thomas Donlon’s Lawsuit**\
 `The suit accuses police officials and Mayor Eric Adams of various federal crimes and calls for an independent authority to oversee key decisions at the Police Department.`\
 https://nytimes.com/interactive/2025/07/16/nyregion/donlon-nypd-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6496822/2025/07/16/giants-trade-deadline-second-hal
 **Padres second-half storylines to watch, starting with the 2025 trade deadline**\
 `As the second half approaches, the Padres again loom as one of the sport’s least predictable teams.`\
 https://nytimes.com/athletic/6489408/2025/07/16/padres-second-half-storylines-2025-trade-deadline/
-
-**A Father Braces for Life After a Plane Crash Took His ‘Everything’**\
-`His son and daughter-in-law brought love to his home and represented the family’s hope for a better life.`\
-https://nytimes.com/2025/07/16/world/asia/air-india-crash-father-grief.html
 
