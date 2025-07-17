@@ -1,3 +1,7 @@
+**Dozens of People Are Killed in Iraq Shopping Mall Fire**\
+`The local governor announced three days of mourning for those killed, who include children.`\
+https://nytimes.com/2025/07/17/world/middleeast/iraq-shopping-mall-fire.html
+
 **England vs Sweden Euro 2025 quarter-final odds, prediction: Can Lionesses repeat 2022?**\
 `England enters the knockout stage of Euro 2025 against a Sweden team that won all three group matches.`\
 https://nytimes.com/athletic/6495874/2025/07/17/england-sweden-euro-2025-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/senate-vote-trump-bill-pbs-npr-foreig
 **Has Japan’s ‘Rice Minister’ Brought Down Prices Enough to Save His Party?**\
 `Shinjiro Koizumi has scrambled to cut soaring rice prices ahead of a high-stakes election this weekend. Will it be enough to buoy support for the Liberal Democratic Party?`\
 https://nytimes.com/2025/07/17/business/japan-election-rice-koizumi.html
-
-**Word of the Day: rapscallion**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/17/learning/word-of-the-day-rapscallion.html
 

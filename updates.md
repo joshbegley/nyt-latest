@@ -1,3 +1,7 @@
+**Dozens of People Are Killed in Iraq Shopping Mall Fire**\
+`The local governor announced three days of mourning for those killed, who include children.`\
+https://nytimes.com/2025/07/17/world/middleeast/iraq-shopping-mall-fire.html
+
 **England vs Sweden Euro 2025 quarter-final odds, prediction: Can Lionesses repeat 2022?**\
 `England enters the knockout stage of Euro 2025 against a Sweden team that won all three group matches.`\
 https://nytimes.com/athletic/6495874/2025/07/17/england-sweden-euro-2025-odds-prediction/
