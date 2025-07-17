@@ -1,3 +1,7 @@
+**How Every Senator Voted on Bid to Cancel Foreign Aid and Public Media Funding**\
+`The Senate voted 51 to 48 to reclaim spending previously approved by Congress.`\
+https://nytimes.com/interactive/2025/07/17/us/senate-rescissions-vote.html
+
 **Faith Leaders Can Now Endorse. Will That Swing the N.Y.C. Mayor’s Race?**\
 `The I.R.S. has cleared faith leaders to endorse political candidates to their congregations. New York clergy are wrestling with the choice to use their newfound influence.`\
 https://nytimes.com/2025/07/17/nyregion/religious-leaders-endorsement-mayor-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/learning/word-of-the-day-rapscallion.html
 **Diamondbacks' Ketel Marte's home burglarized during MLB All-Star Game**\
 `There were signs of forced entry, and numerous personal items and jewelry pieces were missing, police said.`\
 https://nytimes.com/athletic/6499226/2025/07/17/ketel-marte-home-burglarized-investigation-arizona-diamondbacks/
-
-**Norway have world class attacking talent - but yet again they have underwhelmed**\
-`After their exit from Euro 2025, we’re reaching a point where we can definitively say that Norway have wasted a genuine golden generation`\
-https://nytimes.com/athletic/6498821/2025/07/17/norway-euro-2025-underwhelming-exit/
 

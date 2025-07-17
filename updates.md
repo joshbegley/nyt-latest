@@ -1,3 +1,7 @@
+**How Every Senator Voted on Bid to Cancel Foreign Aid and Public Media Funding**\
+`The Senate voted 51 to 48 to reclaim spending previously approved by Congress.`\
+https://nytimes.com/interactive/2025/07/17/us/senate-rescissions-vote.html
+
 **Faith Leaders Can Now Endorse. Will That Swing the N.Y.C. Mayor’s Race?**\
 `The I.R.S. has cleared faith leaders to endorse political candidates to their congregations. New York clergy are wrestling with the choice to use their newfound influence.`\
 https://nytimes.com/2025/07/17/nyregion/religious-leaders-endorsement-mayor-nyc.html
