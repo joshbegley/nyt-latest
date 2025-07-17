@@ -1,3 +1,19 @@
+**Sol Stern, Lapsed Liberal and Conservative Heretic, Dies at 89**\
+`He broke with the left over its criticism of Israel and what he saw as its anti-Americanism. But he also became a critic of Donald Trump.`\
+https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
+
+**‘The Porter’ Is a Rich Period Drama About Labor and Dignity**\
+`The series is substantive, well crafted and a little melancholy, centered on a group of Black train porters in Canada in the 1920s.`\
+https://nytimes.com/2025/07/17/arts/television/the-porter-bet-cbc.html
+
+**Heat Season Is Off to a Roaring Start**\
+`Temperatures are scorching, and they probably haven’t peaked yet.`\
+https://nytimes.com/2025/07/17/climate/climate-forward-extreme-heat.html
+
+**Crypto Industry Reaches Milestone With Passage of First Major Bill**\
+`After a week of squabbling in Washington, the cryptocurrency industry secured one of its primary legislative objectives and made progress toward a second one.`\
+https://nytimes.com/2025/07/17/technology/crypto-industry-milestone-legislation.html
+
 **Netflix’s Net Income Leaps to $3.1 Billion**\
 `It was another strong quarter for the streaming giant, which generated $11.1 billion in revenue.`\
 https://nytimes.com/2025/07/17/business/media/netflix-earnings-streaming-live-tv.html
