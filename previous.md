@@ -1,3 +1,7 @@
+**Friendship: Teen Writing and Art That Celebrates Connection**\
+`Photos, videos, essays, stories and podcasts made by young people that explore the nuances of what it means to have and to be a friend.`\
+https://nytimes.com/2025/07/17/learning/friendship-teen-writing-and-art-that-celebrates-connection.html
+
 **Prince Harry Follows in Diana’s Footsteps as Specter of Land Mines Returns**\
 `Harry walked through a minefield in Angola, retracing a journey by his mother, Diana, Princess of Wales, in 1997. Several countries plan to revive use of the weapons.`\
 https://nytimes.com/2025/07/17/world/europe/prince-harry-diana-land-mines-angola.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6496017/2025/07/17/nl-east-draft-grades-picks-mlb-2
 **Casey Mize's long road from doubt to his first All-Star Game**\
 `In the darkness and in the quiet, Mize battled doubt, negative self-talk and times when it all ate at his psyche.`\
 https://nytimes.com/athletic/6498954/2025/07/17/detroit-tigers-casey-mize-new-path/
-
-**Craig Counsell’s Cubs arrive as World Series contenders, but those pesky Brewers won’t go away**\
-`For all that's gone right for the Cubs so far, Counsell's former team, the Brewers, are still breathing down their necks.`\
-https://nytimes.com/athletic/6498988/2025/07/17/craig-counsell-cubs-world-series-contenders-pesky-brewers/
 

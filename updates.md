@@ -1,3 +1,7 @@
+**Friendship: Teen Writing and Art That Celebrates Connection**\
+`Photos, videos, essays, stories and podcasts made by young people that explore the nuances of what it means to have and to be a friend.`\
+https://nytimes.com/2025/07/17/learning/friendship-teen-writing-and-art-that-celebrates-connection.html
+
 **Prince Harry Follows in Diana’s Footsteps as Specter of Land Mines Returns**\
 `Harry walked through a minefield in Angola, retracing a journey by his mother, Diana, Princess of Wales, in 1997. Several countries plan to revive use of the weapons.`\
 https://nytimes.com/2025/07/17/world/europe/prince-harry-diana-land-mines-angola.html
