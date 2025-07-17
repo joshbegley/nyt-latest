@@ -24,7 +24,7 @@ https://nytimes.com/2025/07/17/world/europe/prince-harry-diana-land-mines-angola
 
 **Connie Francis, Whose Ballads Dominated ’60s Pop Music, Dies at 87**\
 `Ms. Francis, who had a natural way with a wide variety of material, ruled the charts with songs like “Who’s Sorry Now?” and “Don’t Break the Heart that Loves You.”`\
-https://nytimes.com/2025/07/17/obituaries/connie-francis-dead.html
+https://nytimes.com/2025/07/17/arts/music/connie-francis-dead.html
 
 **Rosenthal: What I'm hearing about the MLB trade deadline with two weeks to go**\
 `The dinged-up Dodgers may look to add bullpen help while the O's, White Sox and Rays consider various courses of action. `\

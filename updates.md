@@ -1,3 +1,7 @@
+**Connie Francis, Whose Ballads Dominated ’60s Pop Music, Dies at 87**\
+`Ms. Francis, who had a natural way with a wide variety of material, ruled the charts with songs like “Who’s Sorry Now?” and “Don’t Break the Heart that Loves You.”`\
+https://nytimes.com/2025/07/17/arts/music/connie-francis-dead.html
+
 **In Hong Kong, Inventive Ice Cream Is Everywhere**\
 `Plus: artist-made birdhouses in Maine, easy summer knits and more recommendations from T Magazine.`\
 https://nytimes.com/2025/07/17/t-magazine/hong-kong-ice-cream-gelato.html
