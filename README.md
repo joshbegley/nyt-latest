@@ -1,3 +1,11 @@
+**Fired D.E.I. Administrator Sues the University of Michigan**\
+`In her lawsuit, Rachel Dawson denies making antisemitic remarks and accuses the school of racial bias in its investigation and decision-making.`\
+https://nytimes.com/2025/07/17/us/university-michigan-lawsuit-dei-firing-rachel-dawson.html
+
+**Caitlin Clark's absence from All-Star Game will cast a shadow over Indiana's showcase event**\
+`Clark was set to hold court in Indianapolis. Another injury has marred a special moment for the Indiana Fever guard. `\
+https://nytimes.com/athletic/6500426/2025/07/17/caitlin-clark-injury-all-star-game-absence/
+
 **Snoop Dogg becomes co-owner of Welsh soccer club Swansea City**\
 `The Welsh club confirmed the 53-year-old rapper's investment on Thursday.`\
 https://nytimes.com/athletic/6500102/2025/07/17/snoop-dogg-swansea-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6499571/2025/07/17/tour-de-france-stage-12-analysis
 **Judge Scraps Rule Eliminating Medical Debt on Credit Reports**\
 `The Trump administration joined with trade groups to ask a court to overturn a Biden-era rule that aimed to limit the impact of unpaid medical bills on consumers’ credit history.`\
 https://nytimes.com/2025/07/17/business/medical-debt-credit-reports-ruling.html
-
-**Caitlin Clark to miss WNBA All-Star Game due to groin injury**\
-`Clark sustained the injury after making a bounce pass to Kelsey Mitchell late in Tuesday's 85-77 road win over the Sun.`\
-https://nytimes.com/athletic/6500245/2025/07/17/caitlin-clark-out-wnba-all-star-game/
-
-**‘Bonjour’ Sets Off a Linguistic Dispute on a Belgian Train**\
-`The rules can get complicated in a country with French, Dutch and German as official languages.`\
-https://nytimes.com/2025/07/17/world/europe/bonjour-belgian-train.html
 
