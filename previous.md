@@ -1,3 +1,7 @@
+**Kyle Gibson, longtime starter who won 112 games, announces retirement**\
+`Gibson spent his first seven seasons with the Twins and made the All-Star team as a member of the Rangers in 2021.`\
+https://nytimes.com/athletic/6500848/2025/07/17/kyle-gibson-retirement-mlb/
+
 **Archery Club Used to ‘Nasty Storms’ Reels From Fatal Lightning Strike**\
 `The bolt struck local archers and a boy scout troop in New Jersey, killing one man and injuring at least 13 other people. Friends of the victims said the strike had come out of nowhere.`\
 https://nytimes.com/2025/07/17/nyregion/lightning-strike-jackson-nj-archery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500778/2025/07/17/tj-watt-steelers-contract-extens
 **Sol Stern, Lapsed Liberal and Conservative Heretic, Dies at 89**\
 `He broke with the left over its criticism of Israel and what he saw as its anti-Americanism. But he also became a critic of Donald Trump.`\
 https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
-
-**‘The Porter’ Is a Rich Period Drama About Labor and Dignity**\
-`The series is substantive, well crafted and a little melancholy, centered on a group of Black train porters in Canada in the 1920s.`\
-https://nytimes.com/2025/07/17/arts/television/the-porter-bet-cbc.html
 

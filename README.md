@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in July**\
+`This week in Newly Reviewed, Max Lakin covers Nancy Dwyer’s big words and a summer group show with some thrilling collisions.`\
+https://nytimes.com/2025/07/17/arts/what-to-see-in-nyc-galleries-in-july.html
+
 **Kyle Gibson, longtime starter who won 112 games, announces retirement**\
 `Gibson spent his first seven seasons with the Twins and made the All-Star team as a member of the Rangers in 2021.`\
 https://nytimes.com/athletic/6500848/2025/07/17/kyle-gibson-retirement-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/dining/food-prices-jubilee-marketplace.html
 **T.J. Watt, Steelers agree to 3-year, $123 million extension: Sources**\
 `Seven-time Pro Bowl linebacker has become the NFL's highest-paid non-quarterback.`\
 https://nytimes.com/athletic/6500778/2025/07/17/tj-watt-steelers-contract-extension/
-
-**Sol Stern, Lapsed Liberal and Conservative Heretic, Dies at 89**\
-`He broke with the left over its criticism of Israel and what he saw as its anti-Americanism. But he also became a critic of Donald Trump.`\
-https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
 
