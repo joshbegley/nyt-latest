@@ -1,3 +1,11 @@
+**Inside Olivia Smith's £1m Arsenal transfer: A record fee meant to be kept secret**\
+`The young Canadian forward joins the 2024-25 Champions League winners for a milestone sum nobody was supposed to know`\
+https://nytimes.com/athletic/6499383/2025/07/17/olivia-smith-behind-the-deal-record-liverpool-arsenal/
+
+**The Windup: Your takes on the ASG swing-off**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6499277/2025/07/17/all-star-swing-off-poll-the-windup/
+
 **Besiktas withdraw offer to Kyle Walker-Peters**\
 `The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
 https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6488880/2025/07/17/red-wings-prospects-marco-kasper
 **Why the Canadiens signed Joe Veleno: Context, role, positional need and speed**\
 `Signing Montreal-native Veleno fills a need for the Canadiens as a left-shot centre, but there are other reasons this makes sense.`\
 https://nytimes.com/athletic/6499210/2025/07/17/canadiens-joe-veleno-why-signed/
-
-**Flyers mailbag: Goaltending, Matvei Michkov extension, next trade deadline and more**\
-`What could the 2026 trade deadline look like for Philadelphia? Plus, John Tortorella's quiet exit as head coach.`\
-https://nytimes.com/athletic/6498556/2025/07/17/flyers-matvei-michkov-goalie-nhl-trade-deadline/
-
-**Rescuers Seek American Hiker Missing for Days in the Pyrenees**\
-`Cole Henderson, 27, was last heard from on July 9, when he told friends he was putting his phone into airplane mode ahead of a mountain hike in Spain.`\
-https://nytimes.com/2025/07/17/world/europe/missing-american-hiker-spain-pyrenees.html
 
