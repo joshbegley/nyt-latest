@@ -1,3 +1,11 @@
+**Senate Approves Trump’s Cuts to Foreign Aid and Public Broadcasting**\
+`The 51-to-48 vote came over the objections of two Republicans. The House is expected to give final approval to the package later this week, sending it to Mr. Trump for his signature.`\
+https://nytimes.com/video/us/politics/100000010290207/senate-approves-trumps-cuts-to-foreign-aid-and-public-broadcasting.html
+
+**Who will run the W? Why the Fever lead our first-ever future franchise ranking**\
+`Our experts assess which franchises are built for future success ... and which have trouble ahead. `\
+https://nytimes.com/athletic/6498649/2025/07/17/wnba-franchises-brighest-futures-ranked/
+
 **Liverpool advancing in talks with Frankfurt over Ekitike transfer**\
 `The proposed package to sign the 23-year-old striker is in excess of €80million (£69.2m; $92.7m).`\
 https://nytimes.com/athletic/6498763/2025/07/17/ekitike-liverpool-transfer/

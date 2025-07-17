@@ -1,3 +1,7 @@
+**Acquittals Bring Samsung Chairman’s Decade of Legal Woes to an End**\
+`​The South Korean Supreme Court’s ruling dispels uncertainty​ over Lee Jae-yong’s leadership as the tech giant faces challenges from tariffs and chip making rivals.`\
+https://nytimes.com/2025/07/17/world/asia/samsung-lee-jaeyong-acquitted.html
+
 **Senate Approves Trump’s Cuts to Foreign Aid and Public Broadcasting**\
 `The 51-to-48 vote came over the objections of two Republicans. The House is expected to give final approval to the package later this week, sending it to Mr. Trump for his signature.`\
 https://nytimes.com/video/us/politics/100000010290207/senate-approves-trumps-cuts-to-foreign-aid-and-public-broadcasting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498641/2025/07/17/this-week-in-sports-trivia-july-
 **Ranking college hoops' 25 best teams since 2000 that didn't win a national title**\
 `Great college basketball teams often see their dreams denied in the volatile environment that is March Madness.`\
 https://nytimes.com/athletic/6496158/2025/07/17/college-basketball-rankings-best-teams-without-title/
-
-**An interview with Jesus Vallejo, Real Madrid's forgotten footballer ready to start again**\
-`Madrid had an injury crisis in 2024-25 but Vallejo only played 10 minutes before mid-May. Now he has a fresh start at Albacete`\
-https://nytimes.com/athletic/6499322/2025/07/17/jesus-vallejo-interview-real-madrid-minutes-albacete-transfer/
 
