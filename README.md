@@ -1,3 +1,11 @@
+**Senate Approves Trump’s Cuts to Foreign Aid and Public Broadcasting**\
+`The 51-to-48 vote came over the objections of two Republicans. The House is expected to give final approval to the package later this week, sending it to Mr. Trump for his signature.`\
+https://nytimes.com/video/us/politics/100000010290207/senate-approves-trumps-cuts-to-foreign-aid-and-public-broadcasting.html
+
+**Who will run the W? Why the Fever lead our first-ever future franchise ranking**\
+`Our experts assess which franchises are built for future success ... and which have trouble ahead. `\
+https://nytimes.com/athletic/6498649/2025/07/17/wnba-franchises-brighest-futures-ranked/
+
 **Liverpool advancing in talks with Frankfurt over Ekitike transfer**\
 `The proposed package to sign the 23-year-old striker is in excess of €80million (£69.2m; $92.7m).`\
 https://nytimes.com/athletic/6498763/2025/07/17/ekitike-liverpool-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6496158/2025/07/17/college-basketball-rankings-best
 **An interview with Jesus Vallejo, Real Madrid's forgotten footballer ready to start again**\
 `Madrid had an injury crisis in 2024-25 but Vallejo only played 10 minutes before mid-May. Now he has a fresh start at Albacete`\
 https://nytimes.com/athletic/6499322/2025/07/17/jesus-vallejo-interview-real-madrid-minutes-albacete-transfer/
-
-**Bears fan survey results: Ben Johnson, Caleb Williams have many believers in Chicago**\
-`How many games will the Bears win? How did readers grade the brass? Which position concerns them most? Check out our sixth annual survey.`\
-https://nytimes.com/athletic/6497657/2025/07/17/bears-fan-survey-results-ben-johnson-caleb-williams/
-
-**Dance helped Lynn Swann become a Hall of Famer. A researcher thinks all athletes could benefit**\
-`Dr. Alycia Fong Yan thinks dancing can help team-sport athletes improve their body control and prevent injuries.`\
-https://nytimes.com/athletic/6498127/2025/07/17/dance-helped-lynn-swann-become-a-hall-of-famer-a-researcher-thinks-all-athletes-could-benefit/
 

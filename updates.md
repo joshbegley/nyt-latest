@@ -1,3 +1,15 @@
+**Liverpool advancing in talks with Frankfurt over Ekitike transfer**\
+`The proposed package to sign the 23-year-old striker is in excess of €80million (£69.2m; $92.7m).`\
+https://nytimes.com/athletic/6498763/2025/07/17/ekitike-liverpool-transfer/
+
+**'It's a pretty cool atmosphere right now': Inside the Blue Jays' improbable revival**\
+`"Since I've been here, this is one of the best years that I've been in the clubhouse," Vladimir Guerrero Jr. says.`\
+https://nytimes.com/athletic/6499125/2025/07/17/toronto-blue-jays-culture-change/
+
+**An interview with Jesus Vallejo, Real Madrid's forgotten footballer ready to start again**\
+`Madrid had an injury crisis in 2024-25 but Vallejo only played 10 minutes before mid-May. Now he has a fresh start at Albacete`\
+https://nytimes.com/athletic/6499322/2025/07/17/jesus-vallejo-interview-real-madrid-minutes-albacete-transfer/
+
 **Israel, Mixing Force With Diplomacy, Takes ‘Discordant’ Approach to Syria**\
 `For weeks, Israel has engaged in back-channel talks over a diplomatic agreement with the Syrian government. Its strikes on Damascus this week highlight a lack of strategic clarity.`\
 https://nytimes.com/2025/07/17/world/israel-syria-druse-diplomacy.html
