@@ -1,3 +1,15 @@
+**Junior Firpo rejoins Betis after Leeds exit**\
+`Firpo was a regular feature in Daniel Farke's side that earned automatic promotion back to the Premier League.`\
+https://nytimes.com/athletic/6317512/2025/07/17/junior-firpo-betis-leeds-transfer/
+
+**TAFC: First £1m women's player; Liverpool's Ekitike talks; language of a transfer 'saga'**\
+`Today in TAFC: What Smith's move means for the women's game, Liverpool's Ekitike approach, and the language of a football transfer 'saga'`\
+https://nytimes.com/athletic/6499338/2025/07/17/olivia-smith-1m-womens-player-ekitike-liverpool-transfers/
+
+**Arsenal working on deal for Salford City forward Will Wright**\
+`The pursuit of Wright is part of academy manager Per Mertesacker’s drive to recruit elite talent.`\
+https://nytimes.com/athletic/6499436/2025/07/17/arsenal-transfer-salford-city-will-wright/
+
 **Friendship: Teen Writing and Art That Celebrates Connection**\
 `Photos, videos, essays, stories and podcasts made by young people that explore the nuances of what it means to have and to be a friend.`\
 https://nytimes.com/2025/07/17/learning/friendship-teen-writing-and-art-that-celebrates-connection.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6496816/2025/07/17/nebraska-hs-football-recruiting-
 **NFL 2025 over/unders: Why we like Lions and Texans, plus Brock Purdy as MVP longshot**\
 `The Lions lost both of their coordinators and saw their Pro Bowl center retire. Which is exactly what happened to the Eagles last offseason.`\
 https://nytimes.com/athletic/6491260/2025/07/17/nfl-win-totals-bets-predictions-2025/
-
-**Ravens mailbag: O-line questions, Lamar Jackson's contract, John Harbaugh's strengths**\
-`Plus, will there be any coaching or personnel changes if Baltimore again falls short of reaching the Super Bowl this season?`\
-https://nytimes.com/athletic/6492190/2025/07/17/ravens-mailbag-lamar-jackson-john-harbaugh/
-
-**NL East 2025 draft report cards: Nats do well despite leadership shakeup; Phillies change course**\
-`The Marlins had an all-college draft, while Atlanta reached at pick 21 and the Mets found good value at 38.`\
-https://nytimes.com/athletic/6496017/2025/07/17/nl-east-draft-grades-picks-mlb-2025/
-
-**Casey Mize's long road from doubt to his first All-Star Game**\
-`In the darkness and in the quiet, Mize battled doubt, negative self-talk and times when it all ate at his psyche.`\
-https://nytimes.com/athletic/6498954/2025/07/17/detroit-tigers-casey-mize-new-path/
 
