@@ -1,3 +1,15 @@
+**Snoop Dogg becomes co-owner of Welsh soccer club Swansea City**\
+`The Welsh club confirmed the 53-year-old rapper's investment on Thursday.`\
+https://nytimes.com/athletic/6500102/2025/07/17/snoop-dogg-swansea-investment/
+
+**Matt Fitzpatrick's career hit rock bottom. Now he's co-leading the Open Championship**\
+`The former U.S. Open champion felt like he hit rock bottom 122 days ago. But he has found a new coach, a new caddie and a groove.`\
+https://nytimes.com/athletic/6500250/2025/07/17/open-championship-matt-fitzpatrick/
+
+**Tour de France, stage 12: Pogacar cracks his rivals on Hautacam to move back into the yellow jersey**\
+`Analysis of the latest day's action in the 2025 race - a 180km route from Auch to Hautacam in the Pyrenees`\
+https://nytimes.com/athletic/6499571/2025/07/17/tour-de-france-stage-12-analysis/
+
 **Rashee Rice likely facing suspension after pleading guilty to 2024 crash charges**\
 `Rice pleaded guilty to two third-degree felony charges, including collision involving serious bodily injury and racing on a highway. `\
 https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-suspension/
