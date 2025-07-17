@@ -1,3 +1,15 @@
+**Tour de France roundtable: Best riders and most memorable moments of the race so far**\
+`The Athletic's writers discuss the first 11 stages of an enthralling edition of the Tour de France`\
+https://nytimes.com/athletic/6497458/2025/07/17/tour-de-france-first-half-roundtable/
+
+**Leon, Amass, Collyer, Kukonki and more - United's plans for their young players**\
+`A run-through of the leading youth prospects at Carrington and what the club intend to do with them for the new season`\
+https://nytimes.com/athletic/6495984/2025/07/17/manchester-united-young-player-plans/
+
+**Thursday Briefing: Israel Strikes Damascus**\
+`Plus, the many takes on Superman.`\
+https://nytimes.com/2025/07/17/briefing/israel-syria-afghanistan-iran-trump-federal-reserve.html
+
 **More Ball Games? Can changing a prohibitive signs help make the UK more active?**\
 `The charity London Sport is calling on UK policymakers to remove the 'No Ball Games' signs and to reimagine public spaces`\
 https://nytimes.com/athletic/6359289/2025/07/17/more-ball-games-london-sport-campaign/
