@@ -1,3 +1,7 @@
+**With T.S.A.’s Shoes Rule Gone, Can Liquids Really Be Next?**\
+`Kristi Noem, the homeland security secretary, has said that the next major airport security screening announcement could target limits on liquids. How likely is that?`\
+https://nytimes.com/2025/07/17/travel/tsa-liquids-sizes.html
+
 **Man Wearing Neck Chain Is Sucked Into M.R.I. Machine, Police Say**\
 `The man, 61, was in critical condition after entering an exam room in Westbury, N.Y., on Long Island, without authorization while a scan was in progress, the authorities said.`\
 https://nytimes.com/2025/07/17/nyregion/mri-chain-injury-long-island.html
@@ -18,11 +22,7 @@ https://nytimes.com/video/podcasts/100000010289226/can-fine-dining-save-the-bear
 `A clearer picture begins to emerge of what the Israeli and U.S. attacks on Iran’s nuclear sites achieved.`\
 https://nytimes.com/2025/07/17/us/politics/iran-nuclear-sites.html
 
-**Damian Lillard finalizing deal to return to Trail Blazers: Source**\
+**Damian Lillard agrees to deal to return to Trail Blazers: Source**\
 `The nine-time All-Star, who was waived by the Milwaukee Bucks earlier this month, is closing on a 3-year, $45 million deal.`\
 https://nytimes.com/athletic/6500915/2025/07/17/damian-lillard-contract-blazers-nba/
-
-**From Hawaii to Royal Portrush, everyone is listening to The Open Radio**\
-`"It's like you're telling stories over a beer, reflecting on the day at the pub. There's an intimacy and loyalty."`\
-https://nytimes.com/athletic/6500831/2025/07/17/the-open-championship-radio-broadcast/
 
