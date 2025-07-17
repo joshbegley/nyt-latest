@@ -1,3 +1,7 @@
+**In Hong Kong, Inventive Ice Cream Is Everywhere**\
+`Plus: artist-made birdhouses in Maine, easy summer knits and more recommendations from T Magazine.`\
+https://nytimes.com/2025/07/17/t-magazine/hong-kong-ice-cream-gelato.html
+
 **Junior Firpo rejoins Betis after Leeds exit**\
 `Firpo was a regular feature in Daniel Farke's side that earned automatic promotion back to the Premier League.`\
 https://nytimes.com/athletic/6317512/2025/07/17/junior-firpo-betis-leeds-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498825/2025/07/17/gage-wood-phillies-draft-arkansa
 **The Nebraska school producing an unusual number of FBS commits — including a future Alabama QB**\
 `Millard South’s roster is arguably the most loaded in Nebraska history and the team has a title mindset coming into next season.`\
 https://nytimes.com/athletic/6496816/2025/07/17/nebraska-hs-football-recruiting-millard-south/
-
-**NFL 2025 over/unders: Why we like Lions and Texans, plus Brock Purdy as MVP longshot**\
-`The Lions lost both of their coordinators and saw their Pro Bowl center retire. Which is exactly what happened to the Eagles last offseason.`\
-https://nytimes.com/athletic/6491260/2025/07/17/nfl-win-totals-bets-predictions-2025/
 

@@ -1,3 +1,7 @@
+**In Hong Kong, Inventive Ice Cream Is Everywhere**\
+`Plus: artist-made birdhouses in Maine, easy summer knits and more recommendations from T Magazine.`\
+https://nytimes.com/2025/07/17/t-magazine/hong-kong-ice-cream-gelato.html
+
 **Junior Firpo rejoins Betis after Leeds exit**\
 `Firpo was a regular feature in Daniel Farke's side that earned automatic promotion back to the Premier League.`\
 https://nytimes.com/athletic/6317512/2025/07/17/junior-firpo-betis-leeds-transfer/
