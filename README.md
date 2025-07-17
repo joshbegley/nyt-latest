@@ -1,3 +1,7 @@
+**A Supreme Court Mystery**\
+`We explain a curious type of court case.`\
+https://nytimes.com/2025/07/17/briefing/a-supreme-court-mystery.html
+
 **Brighton's Enciso out for up to three months with knee injury that requires surgery**\
 `The Paraguay international is not part of head coach Fabian Hurzeler's plans for the coming season.`\
 https://nytimes.com/athletic/6499482/2025/07/17/brighton-news-enciso-injury-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498763/2025/07/17/ekitike-liverpool-transfer/
 **'It's a pretty cool atmosphere right now': Inside the Blue Jays' improbable revival**\
 `"Since I've been here, this is one of the best years that I've been in the clubhouse," Vladimir Guerrero Jr. says.`\
 https://nytimes.com/athletic/6499125/2025/07/17/toronto-blue-jays-culture-change/
-
-**Israel, Mixing Force With Diplomacy, Takes ‘Discordant’ Approach to Syria**\
-`For weeks, Israel has engaged in back-channel talks over a diplomatic agreement with the Syrian government. Its strikes on Damascus this week highlight a lack of strategic clarity.`\
-https://nytimes.com/2025/07/17/world/israel-syria-druse-diplomacy.html
 

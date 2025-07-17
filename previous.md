@@ -1,3 +1,7 @@
+**Brighton's Enciso out for up to three months with knee injury that requires surgery**\
+`The Paraguay international is not part of head coach Fabian Hurzeler's plans for the coming season.`\
+https://nytimes.com/athletic/6499482/2025/07/17/brighton-news-enciso-injury-surgery/
+
 **What is 'true' name, image and likeness? The courts might end up deciding**\
 `Schools are ready to embrace "normal" NIL: no pay-for-play deals. Even after the House settlement, challenges await. `\
 https://nytimes.com/athletic/6495752/2025/07/17/nil-college-sports-house-settlement-enforcement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499125/2025/07/17/toronto-blue-jays-culture-change
 **Israel, Mixing Force With Diplomacy, Takes ‘Discordant’ Approach to Syria**\
 `For weeks, Israel has engaged in back-channel talks over a diplomatic agreement with the Syrian government. Its strikes on Damascus this week highlight a lack of strategic clarity.`\
 https://nytimes.com/2025/07/17/world/israel-syria-druse-diplomacy.html
-
-**Preseason SEC hot seat index: Plenty of coaches enter 2025 with varying levels of heat**\
-`One year after no SEC coaches were fired, the hot seat is full.`\
-https://nytimes.com/athletic/6498962/2025/07/17/sec-coaches-hot-seat-2025/
 
