@@ -1,3 +1,7 @@
+**What is 'true' name, image and likeness? The courts might end up deciding**\
+`Schools are ready to embrace "normal" NIL: no pay-for-play deals. Even after the House settlement, challenges await. `\
+https://nytimes.com/athletic/6495752/2025/07/17/nil-college-sports-house-settlement-enforcement/
+
 **They Grew Up on Mexican Coke. Trump’s Cane Sugar Plan Makes Them Uneasy.**\
 `After President Trump announced that Coke will be made with cane sugar in the U.S., as it is in Mexico, foodies of Mexican heritage said in interviews that they weren’t excited.`\
 https://nytimes.com/2025/07/17/us/coca-cola-trump-mexican-coke.html
