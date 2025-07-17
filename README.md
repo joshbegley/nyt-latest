@@ -19,7 +19,7 @@ https://nytimes.com/2025/07/17/arts/design/stan-douglas-bard-film-photography-gh
 https://nytimes.com/2025/07/17/us/politics/emil-bove-judge-nomination-democrats.html
 
 **Yegor Chinakhov requests trade from Blue Jackets, cites 'misunderstandings' with coach**\
-`Columbus GM Don Waddell said he was already aware of the trade request, but was surprised Chinakhov's agent, Shumi Babaev, went public.`\
+`Columbus GM Don Waddell said he was already aware of the trade request, but he was surprised Chinakhov's agent, Shumi Babaev, went public.`\
 https://nytimes.com/athletic/6500013/2025/07/17/yegor-chinakhov-blue-jackets-trade-request/
 
 **A Brooklyn Brownstone That Channels ‘The Garden of Earthly Delights’**\
