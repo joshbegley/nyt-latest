@@ -1,3 +1,11 @@
+**Inside Olivia Smith's £1m Arsenal transfer: A record fee meant to be kept secret**\
+`The young Canadian forward joins the 2024-25 Champions League winners for a milestone sum nobody was supposed to know`\
+https://nytimes.com/athletic/6499383/2025/07/17/olivia-smith-behind-the-deal-record-liverpool-arsenal/
+
+**The Windup: Your takes on the ASG swing-off**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6499277/2025/07/17/all-star-swing-off-poll-the-windup/
+
 **Besiktas withdraw offer to Kyle Walker-Peters**\
 `The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
 https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
