@@ -1,3 +1,7 @@
+**‘Bonjour’ Sets Off a Linguistic Dispute on a Belgian Train**\
+`The rules can get complicated in a country with French, Dutch and German as official languages.`\
+https://nytimes.com/2025/07/17/world/europe/bonjour-belgian-train.html
+
 **Drew Brees to be game analyst for Netflix's Christmas Day game: Sources**\
 `Brees will be on the domestic broadcast for either the Cowboys-Commanders or Lions-Vikings games.`\
 https://nytimes.com/athletic/6500186/2025/07/17/drew-brees-analyst-netflix-christmas-game-nfl/

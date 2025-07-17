@@ -1,3 +1,11 @@
+**Judge Scraps Rule Eliminating Medical Debt on Credit Reports**\
+`The Trump administration joined with trade groups to ask a court to overturn a Biden-era rule that aimed to limit the impact of unpaid medical bills on consumers’ credit history.`\
+https://nytimes.com/2025/07/17/business/medical-debt-credit-reports-ruling.html
+
+**Caitlin Clark to miss WNBA All-Star Game due to groin injury**\
+`Clark sustained the injury after making a bounce pass to Kelsey Mitchell late in Tuesday's 85-77 road win over the Sun.`\
+https://nytimes.com/athletic/6500245/2025/07/17/caitlin-clark-out-wnba-all-star-game/
+
 **‘Bonjour’ Sets Off a Linguistic Dispute on a Belgian Train**\
 `The rules can get complicated in a country with French, Dutch and German as official languages.`\
 https://nytimes.com/2025/07/17/world/europe/bonjour-belgian-train.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/justice-department-brett-hankison-sen
 **After 7 Decades of Measurements From a Peak in Hawaii, Trump’s Budget Would End Them**\
 `Closing Mauna Loa and three other U.S. sites that track greenhouse gases would disrupt a decades-long record of the planet’s changing atmosphere.`\
 https://nytimes.com/2025/07/17/climate/budget-cuts-climate-observatories.html
-
-**PepsiCo Reaches for Protein and Fiber to Boost Sales**\
-`The food giant said its Frito-Lay snack division planned to make a line of Cheetos and Doritos with no artificial colors or flavors, as demand falters.`\
-https://nytimes.com/2025/07/17/business/pepsico-frito-lay-protein-fiber.html
-
-**Amid Flood Response, Texas Republicans Pivot to Political Maps**\
-`A special session of the Texas Legislature will address the deadly floods in Hill Country, but the fireworks will come from President Trump’s demand for a newly gerrymandered House map.`\
-https://nytimes.com/2025/07/17/us/texas-flood-redistricting.html
 
