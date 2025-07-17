@@ -1,3 +1,23 @@
+**Shelbourne, Linfield and a tale of two Irish champions in the Champions League**\
+`The best teams north and south of the Irish border met in the first qualifying round - a draw that had provoked some anxiety`\
+https://nytimes.com/athletic/6499340/2025/07/17/shelbourne-linfield-champions-league-cross-border-ireland/
+
+**Which prospects could make the Red Wings? Mailbag, Part 2**\
+`In Part 2 of our Red Wings mailbag, we explore which prospects could push for time early in the season.`\
+https://nytimes.com/athletic/6488880/2025/07/17/red-wings-prospects-marco-kasper-nate-danielson/
+
+**Why the Canadiens signed Joe Veleno: Context, role, positional need and speed**\
+`Signing Montreal-native Veleno fills a need for the Canadiens as a left-shot centre, but there are other reasons this makes sense.`\
+https://nytimes.com/athletic/6499210/2025/07/17/canadiens-joe-veleno-why-signed/
+
+**Flyers mailbag: Goaltending, Matvei Michkov extension, next trade deadline and more**\
+`What could the 2026 trade deadline look like for Philadelphia? Plus, John Tortorella's quiet exit as head coach.`\
+https://nytimes.com/athletic/6498556/2025/07/17/flyers-matvei-michkov-goalie-nhl-trade-deadline/
+
+**Rescuers Seek American Hiker Missing for Days in the Pyrenees**\
+`Cole Henderson, 27, was last heard from on July 9, when he told friends he was putting his phone into airplane mode ahead of a mountain hike in Spain.`\
+https://nytimes.com/2025/07/17/world/europe/missing-american-hiker-spain-pyrenees.html
+
 **Connie Francis, Whose Ballads Dominated ’60s Pop Music, Dies at 87**\
 `Ms. Francis, who had a natural way with a wide variety of material, ruled the charts with songs like “Who’s Sorry Now?” and “Don’t Break the Heart that Loves You.”`\
 https://nytimes.com/2025/07/17/arts/music/connie-francis-dead.html

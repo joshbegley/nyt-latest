@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Appeals Court Nominee at Center of Immigration Crackdown Is Set to Face Vote**\
+``\
+https://nytimes.com/live/2025/07/17/us/trump-news-updates
+
 **Shelbourne, Linfield and a tale of two Irish champions in the Champions League**\
 `The best teams north and south of the Irish border met in the first qualifying round - a draw that had provoked some anxiety`\
 https://nytimes.com/athletic/6499340/2025/07/17/shelbourne-linfield-champions-league-cross-border-ireland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499338/2025/07/17/olivia-smith-1m-womens-player-ek
 **Arsenal working on deal for Salford City forward Will Wright**\
 `The pursuit of Wright is part of academy manager Per Mertesacker’s drive to recruit elite talent.`\
 https://nytimes.com/athletic/6499436/2025/07/17/arsenal-transfer-salford-city-will-wright/
-
-**Friendship: Teen Writing and Art That Celebrates Connection**\
-`Photos, videos, essays, stories and podcasts made by young people that explore the nuances of what it means to have and to be a friend.`\
-https://nytimes.com/2025/07/17/learning/friendship-teen-writing-and-art-that-celebrates-connection.html
 
