@@ -1,3 +1,7 @@
+**Late Night Fact-Checks Trump on His Uncle and the Unabomber**\
+`Jordan Klepper and other hosts poked holes in the president’s claim that his uncle had been the future terrorist’s professor at M.I.T.`\
+https://nytimes.com/2025/07/17/arts/television/late-night-trump-unabomber.html
+
 **Senate Approves Trump’s Bid to Cancel Foreign Aid and Public Broadcast Funds**\
 `The bill to claw back $9 billion in congressionally approved spending passed over the objections of Republicans who said it abdicated the legislative branch’s power of the purse.`\
 https://nytimes.com/2025/07/17/us/politics/senate-vote-trump-bill-pbs-npr-foreign-aid.html
