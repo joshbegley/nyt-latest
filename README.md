@@ -3,10 +3,10 @@
 https://nytimes.com/2025/07/16/business/7-eleven-japan-couche-tard.html
 
 **Why most 2025 NFL second-round picks are unsigned: Who's involved, did first domino just fall?**\
-`Thirty of the NFL's 32 second-round picks remain unsigned as training camps begin to open. How will it get resolved? `\
+`The 49ers' Alfred Collins on Wednesday became the first second-round pick this year to sign for less than 100 percent guaranteed.`\
 https://nytimes.com/athletic/6498455/2025/07/16/nfl-draft-second-round-picks-unsigned-explained/
 
-**Von Miller, Washington Commanders finalizing 1-year deal: Reports**\
+**Von Miller, Washington Commanders finalizing 1-year deal**\
 `The Buffalo Bills released Miller in March after signing him to a six-year, $120 million deal ahead of the 2022-23 season.`\
 https://nytimes.com/athletic/6499101/2025/07/16/von-miller-washington-commanders-signing-reports/
 
