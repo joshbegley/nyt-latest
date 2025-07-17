@@ -1,3 +1,15 @@
+**After 7 Decades of Measurements From a Peak in Hawaii, Trump’s Budget Would End Them**\
+`Closing Mauna Loa and three other U.S. sites that track greenhouse gases would disrupt a decades-long record of the planet’s changing atmosphere.`\
+https://nytimes.com/2025/07/17/climate/budget-cuts-climate-observatories.html
+
+**PepsiCo Reaches for Protein and Fiber to Boost Sales**\
+`The food giant said its Frito-Lay snack division planned to make a line of Cheetos and Doritos with no artificial colors or flavors, as demand falters.`\
+https://nytimes.com/2025/07/17/business/pepsico-frito-lay-protein-fiber.html
+
+**Amid Flood Response, Texas Republicans Pivot to Political Maps**\
+`A special session of the Texas Legislature will address the deadly floods in Hill Country, but the fireworks will come from President Trump’s demand for a newly gerrymandered House map.`\
+https://nytimes.com/2025/07/17/us/texas-flood-redistricting.html
+
 **New Scripts for a Democratic Comeback**\
 `Readers offer advice to the Democrats. Also: Senator Josh Hawley’s reversal; a backlash at the E.P.A.; President Trump and the absurd.`\
 https://nytimes.com/2025/07/17/opinion/democrats.html

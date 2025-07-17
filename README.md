@@ -1,3 +1,7 @@
+**Justice Dept. Asks for 1-Day Sentence for Ex-Officer Convicted in Breonna Taylor Raid**\
+`The move was a stunning reversal of Biden-era efforts to address racial disparities in local law enforcement.`\
+https://nytimes.com/2025/07/17/us/politics/breonna-taylor-hankison-sentence.html
+
 **After 7 Decades of Measurements From a Peak in Hawaii, Trump’s Budget Would End Them**\
 `Closing Mauna Loa and three other U.S. sites that track greenhouse gases would disrupt a decades-long record of the planet’s changing atmosphere.`\
 https://nytimes.com/2025/07/17/climate/budget-cuts-climate-observatories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/white-house-seeks-to-inspect-fed-reno
 **N.Y.P.D. Officer Accused of Theft to Pay for ‘Booty’ Exercises and BMW**\
 `Yeison Rodriguez Acosta used data he had obtained as a Wells Fargo employee to spend customers’ money on luxury car payments and a body-shaping program, among other expenses, prosecutors said.`\
 https://nytimes.com/2025/07/17/nyregion/nypd-officer-wells-fargo-theft-bmw-glutes.html
-
-**Thunderstorms Nearby? How to Stay Safe When Lightning Strikes**\
-`Summer is a busy time for lighting strikes, which kill about 20 people and injure many others across the United States each year, officials said.`\
-https://nytimes.com/2025/07/17/us/lightning-safety-tips.html
 
