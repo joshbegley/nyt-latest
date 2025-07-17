@@ -1,3 +1,7 @@
+**Drew Brees to be game analyst for Netflix's Christmas Day game: Sources**\
+`Brees will be on the domestic broadcast for either the Cowboys-Commanders or Lions-Vikings games.`\
+https://nytimes.com/athletic/6500186/2025/07/17/drew-brees-analyst-netflix-christmas-game-nfl/
+
 **Smell of Death Lingers in Syrian City After Spasm of Violence**\
 `Blood in the streets, smashed windows and the smell of corpses in the air: A resident of the southern city of Sweida describes the aftermath of a wave of sectarian violence.`\
 https://nytimes.com/2025/07/17/world/middleeast/syria-sweida-druse-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/texas-flood-redistricting.html
 **New Scripts for a Democratic Comeback**\
 `Readers offer advice to the Democrats. Also: Senator Josh Hawley’s reversal; a backlash at the E.P.A.; President Trump and the absurd.`\
 https://nytimes.com/2025/07/17/opinion/democrats.html
-
-**One defining stat for all 30 MLB teams to help you get caught up for the second half**\
-`Before the second half gets rolling, let’s zoom in on one stat that defines each team’s season so far, for better or worse.`\
-https://nytimes.com/athletic/6499094/2025/07/17/mlb-team-stat-second-half-2025/
 
