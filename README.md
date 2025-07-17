@@ -1,3 +1,7 @@
+**Norway have world class attacking talent - but yet again they have underwhelmed**\
+`After their exit from Euro 2025, we’re reaching a point where we can definitively say that Norway have wasted a genuine golden generation`\
+https://nytimes.com/athletic/6498821/2025/07/17/norway-euro-2025-underwhelming-exit/
+
 **The New York Times in Print for Thursday, July 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6497519/2025/07/17/tottenham-frank-throw-ins/
 **What Yoane Wissa would offer Nottingham Forest - on and off the pitch**\
 `The Brentford forward would add an experienced head and versatility to Nuno's squad if a deal can be done`\
 https://nytimes.com/athletic/6495187/2025/07/17/nottingham-forest-yoane-wissa-analysis/
-
-**James McAtee's Manchester City career is symptomatic of modern academy football**\
-`McAtee is likely to leave but City won't be making the mistake they did with Cole Palmer. PSR has changed approaches to academy products`\
-https://nytimes.com/athletic/6497600/2025/07/17/james-mcatees-manchester-city-career-is-symptomatic-of-modern-academy-football/
 
