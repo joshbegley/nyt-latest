@@ -1,3 +1,11 @@
+**Liverpool advancing in talks with Frankfurt over Ekitike transfer**\
+`The proposed package to sign the 23-year-old striker is in excess of €80million (£69.2m; $92.7m).`\
+https://nytimes.com/athletic/6498763/2025/07/17/ekitike-liverpool-transfer/
+
+**'It's a pretty cool atmosphere right now': Inside the Blue Jays' improbable revival**\
+`"Since I've been here, this is one of the best years that I've been in the clubhouse," Vladimir Guerrero Jr. says.`\
+https://nytimes.com/athletic/6499125/2025/07/17/toronto-blue-jays-culture-change/
+
 **Israel, Mixing Force With Diplomacy, Takes ‘Discordant’ Approach to Syria**\
 `For weeks, Israel has engaged in back-channel talks over a diplomatic agreement with the Syrian government. Its strikes on Damascus this week highlight a lack of strategic clarity.`\
 https://nytimes.com/2025/07/17/world/israel-syria-druse-diplomacy.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6498641/2025/07/17/this-week-in-sports-trivia-july-
 `Great college basketball teams often see their dreams denied in the volatile environment that is March Madness.`\
 https://nytimes.com/athletic/6496158/2025/07/17/college-basketball-rankings-best-teams-without-title/
 
-**An interview with Jesus Vallejo, Real Madrid's forgotten footballer who is ready to start again**\
+**An interview with Jesus Vallejo, Real Madrid's forgotten footballer ready to start again**\
 `Madrid had an injury crisis in 2024-25 but Vallejo only played 10 minutes before mid-May. Now he has a fresh start at Albacete`\
 https://nytimes.com/athletic/6499322/2025/07/17/jesus-vallejo-interview-real-madrid-minutes-albacete-transfer/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6497657/2025/07/17/bears-fan-survey-results-ben-joh
 **Dance helped Lynn Swann become a Hall of Famer. A researcher thinks all athletes could benefit**\
 `Dr. Alycia Fong Yan thinks dancing can help team-sport athletes improve their body control and prevent injuries.`\
 https://nytimes.com/athletic/6498127/2025/07/17/dance-helped-lynn-swann-become-a-hall-of-famer-a-researcher-thinks-all-athletes-could-benefit/
-
-**Dane Brugler's 2026 NFL Draft summer positional rankings: Running backs**\
-`Nick Singleton and Makhi Hughes could push Love at the top of the class, but there's a gap heading into the fall.`\
-https://nytimes.com/athletic/6488083/2025/07/17/nfl-draft-2026-summer-rankings-running-backs/
-
-**MLB trade deadline tiers 2.0: Sorting through the buyers, sellers and ‘tailors’**\
-`So what should each of the 30 teams be planning on doing at the deadline? We've broken it all down.`\
-https://nytimes.com/athletic/6494667/2025/07/17/mlb-trade-deadline-2025-tiers/
 
