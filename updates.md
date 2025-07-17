@@ -1,3 +1,7 @@
+**Man Utd make improved offer for Mbeumo**\
+`The latest proposal is awaiting a response from the London club.`\
+https://nytimes.com/athletic/6456945/2025/07/17/manchester-united-bryan-mbeumo-bid/
+
 **Harvard Creates New Public Service Program, as Trump Slashes Federal Jobs**\
 `The Kennedy School will award scholarships to at least 50 students, in hopes of fostering careers in government service.`\
 https://nytimes.com/2025/07/17/us/harvard-public-service-scholarships-american-service-fellowship.html
