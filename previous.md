@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6501098/2025/07/17/wnba-union-cba-negotiations/
 `Christopher Waller, a potential contender to be the next chair of the central bank, said the Federal Reserve should not wait for the labor market to weaken to reduce interest rates.`\
 https://nytimes.com/2025/07/17/business/fed-rate-cut-waller-powell-trump.html
 
-**Chargers training camp report, Day 1: Mike Williams retires, what now?**\
+**Chargers training camp report, Day 1: Mike Williams retired, what now?**\
 `Shortly after announcing Williams' retirement, the Chargers agreed to terms with second-round WR Tre Harris, ending his brief camp absence.`\
 https://nytimes.com/athletic/6501015/2025/07/17/chargers-training-camp-mike-williams-retires/
 

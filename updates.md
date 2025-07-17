@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 1: Mike Williams retired, what now?**\
+`Shortly after announcing Williams' retirement, the Chargers agreed to terms with second-round WR Tre Harris, ending his brief camp absence.`\
+https://nytimes.com/athletic/6501015/2025/07/17/chargers-training-camp-mike-williams-retires/
+
 **WNBA, players' union have 'spirited conversations' in next step toward CBA**\
 `A record number of players attended Thursday’s meeting between the WNBA and WNBPA, with further negotiations coming soon.`\
 https://nytimes.com/athletic/6501098/2025/07/17/wnba-union-cba-negotiations/
