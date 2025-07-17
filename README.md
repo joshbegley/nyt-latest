@@ -1,3 +1,7 @@
+**Would a Trump executive order fix college sports' issues? Here's what a draft calls for**\
+`It is unclear if or when such an executive order will be formalized, but Trump has considered executive action on college sports for months.`\
+https://nytimes.com/athletic/6500773/2025/07/17/president-trump-executive-order-college-sports/
+
 **Trump’s Plan to Reopen Alcatraz Appears to Move Forward With Officials’ Visit**\
 `Attorney General Pam Bondi and Interior Secretary Doug Burgum visited the site on Thursday to study whether reopening it as a federal prison could work.`\
 https://nytimes.com/2025/07/17/us/alcatraz-prison-trump-bondi-burgum-visit.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/07/17/travel/tsa-liquids-sizes.html
 **Man Wearing Neck Chain Is Sucked Into M.R.I. Machine, Police Say**\
 `The man, 61, was in critical condition after entering an exam room in Westbury, N.Y., on Long Island, without authorization while a scan was in progress, the authorities said.`\
 https://nytimes.com/2025/07/17/nyregion/mri-chain-injury-long-island.html
-
-**The Briefing: Sweden 2 England 2 (2-3 on pens) – Lionesses outlast Sweden in dramatic penalty shootout**\
-`How England won a dramatic penalty shootout to keep title defence hopes alive`\
-https://nytimes.com/athletic/6497370/2025/07/17/england-sweden-dramatic-euros-quarter-final/
 
