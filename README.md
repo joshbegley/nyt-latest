@@ -1,3 +1,7 @@
+**Canucks trade Dakota Joshua to Maple Leafs for fourth-round pick**\
+`The forward was originally drafted by Toronto in 2014 and has three years remaining on his contract with a $3.25 million cap hit.`\
+https://nytimes.com/athletic/6500803/2025/07/17/canucks-dakota-joshua-maple-leafs-trade/
+
 **Customers Griped About High Grocery Prices. The Grocer Agreed.**\
 `After hearing complaints about his prices, a store owner in Brooklyn has apologized, and begun the laborious task of lowering thousands of them.`\
 https://nytimes.com/2025/07/17/dining/food-prices-jubilee-marketplace.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/trump-chronic-venous-insufficiency.ht
 **U.S. Proposes Steep Tariffs on Critical E.V. Battery Material**\
 `The Commerce Department plans to impose a 93.5 percent levy on Chinese graphite, an essential ingredient in the batteries that power electric vehicles.`\
 https://nytimes.com/2025/07/17/business/trump-graphite-tariff-electric-vehicles.html
-
-**13 Law Enforcement Unions Endorse Eric Adams in N.Y.C. Mayor’s Race**\
-`Mr. Adams, who was elected on a law-and-order campaign message, is seeking to portray Zohran Mamdani, this year’s Democratic nominee, as weak on crime.`\
-https://nytimes.com/2025/07/17/nyregion/eric-adams-police-unions.html
 

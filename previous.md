@@ -1,3 +1,7 @@
+**Customers Griped About High Grocery Prices. The Grocer Agreed.**\
+`After hearing complaints about his prices, a store owner in Brooklyn has apologized, and begun the laborious task of lowering thousands of them.`\
+https://nytimes.com/2025/07/17/dining/food-prices-jubilee-marketplace.html
+
 **T.J. Watt, Steelers agree to 3-year, $123 million extension: Sources**\
 `Seven-time Pro Bowl linebacker has become the NFL's highest-paid non-quarterback.`\
 https://nytimes.com/athletic/6500778/2025/07/17/tj-watt-steelers-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/business/trump-graphite-tariff-electric-vehicles.
 **13 Law Enforcement Unions Endorse Eric Adams in N.Y.C. Mayor’s Race**\
 `Mr. Adams, who was elected on a law-and-order campaign message, is seeking to portray Zohran Mamdani, this year’s Democratic nominee, as weak on crime.`\
 https://nytimes.com/2025/07/17/nyregion/eric-adams-police-unions.html
-
-**Read the Letter From President Trump’s Doctor**\
-`Karoline Leavitt, the White House press secretary, released a letter from President Trump’s physician stating that the president has chronic venous insufficiency, which he called a benign and common condition in older people.`\
-https://nytimes.com/interactive/2025/07/17/us/trump-doctor-letter.html
 

@@ -1,3 +1,7 @@
+**Customers Griped About High Grocery Prices. The Grocer Agreed.**\
+`After hearing complaints about his prices, a store owner in Brooklyn has apologized, and begun the laborious task of lowering thousands of them.`\
+https://nytimes.com/2025/07/17/dining/food-prices-jubilee-marketplace.html
+
 **T.J. Watt, Steelers agree to 3-year, $123 million extension: Sources**\
 `Seven-time Pro Bowl linebacker has become the NFL's highest-paid non-quarterback.`\
 https://nytimes.com/athletic/6500778/2025/07/17/tj-watt-steelers-contract-extension/
