@@ -1,40 +1,40 @@
-**What are Wrexham's odds of getting promoted to the Premier League this season?**\
-`Wrexham have been promoted three seasons in a row, but can they make it four and reach the Premier League? Bettors are giving them a chance.`\
-https://nytimes.com/athletic/6486269/2025/07/17/wrexham-odds-promotion-championship-premier-league/
+**World No. 1 Aryna Sabalenka withdraws from Canadian Open, citing fatigue**\
+`Sabalenka reached the quarterfinals at last year's tournament.`\
+https://nytimes.com/athletic/6499357/2025/07/17/tennis-sabalenka-canadian-open-out/
 
-**Dozens of People Are Killed in Iraq Shopping Mall Fire**\
-`The local governor announced three days of mourning for the victims, who he said included children.`\
-https://nytimes.com/2025/07/17/world/middleeast/iraq-shopping-mall-fire.html
+**‘Superman’ Is MAGA Kryptonite**\
+`Clark Kent’s real superpower is the gift of adoption.`\
+https://nytimes.com/2025/07/17/opinion/superman-adoption-maga-kindness.html
 
-**England vs Sweden Euro 2025 quarter-final odds, prediction: Can Lionesses repeat 2022?**\
-`England enters the knockout stage of Euro 2025 against a Sweden team that won all three group matches.`\
-https://nytimes.com/athletic/6495874/2025/07/17/england-sweden-euro-2025-odds-prediction/
+**What Are Trump and His Supporters Saying About the Epstein Case?**\
+`Their actions range from pressuring the administration to release more information to spinning additional conspiracy theories about the case of Jeffrey Epstein, the convicted sex offender.`\
+https://nytimes.com/interactive/2025/07/17/us/politics/trump-epstein-files-maga.html
 
-**How Every Senator Voted on Bid to Cancel Foreign Aid and Public Media Funding**\
-`The Senate voted 51 to 48 to reclaim spending previously approved by Congress.`\
-https://nytimes.com/interactive/2025/07/17/us/senate-rescissions-vote.html
+**The Safeguard and the Danger if Trump Fires Powell**\
+`The Federal Reserve was designed to resist short-run political pressure, but it may be defenseless against patient efforts to undermine its independence.`\
+https://nytimes.com/live/2025/07/16/opinion/thepoint/jerome-powell-donald-trump-fed-independence
 
-**Faith Leaders Can Now Endorse. Will That Swing the N.Y.C. Mayor’s Race?**\
-`The I.R.S. has cleared faith leaders to endorse political candidates to their congregations. New York clergy are wrestling with the choice to use their newfound influence.`\
-https://nytimes.com/2025/07/17/nyregion/religious-leaders-endorsement-mayor-nyc.html
+**Finding a Gem in the Woods of Central Connecticut**\
+`Two California transplants ventured east in search of midcentury design, lots of sunlight and space for guests.`\
+https://nytimes.com/interactive/2025/07/17/realestate/connecticut-home-sale-prices.html
 
-**Squabble Over Safety in N.Y.C. Subway Erupts at Congressional Hearing**\
-`Government officials from opposite sides of the aisle clashed in Washington over just how dangerous the New York City subway system is.`\
-https://nytimes.com/2025/07/17/nyregion/nyc-subway-safety-nadler-duffy-hearing.html
+**Trump Wants Lower Rates. Firing Powell Could Push Them Higher.**\
+`Investors, not the Fed, control the interest rates that matter most to businesses and consumers. They might demand higher returns if the central bank’s independence comes into question.`\
+https://nytimes.com/2025/07/17/business/trump-powell-federal-reserve-higher-rates.html
 
-**‘Rematch’ Recreates a Cultural Touchstone**\
-`A series dramatizes the 1997 chess match between a world champion and an IBM computer, a precursor of modern anxieties about artificial intelligence.`\
-https://nytimes.com/2025/07/17/arts/television/rematch-kasparov-disney-plus.html
+**Has Dining Gotten Too Fine on ‘The Bear’?**\
+`Wesley and Samin Nosrat on the fancy food, big egos and new season of the show.`\
+https://nytimes.com/2025/07/17/podcasts/has-dining-gotten-too-fine-on-the-bear.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/17/crosswords/spelling-bee-forum.html
+**Even After Bondi Gains Trump’s Backing, Her Survival Remains an Open Question**\
+`The sustained backlash has exposed the hazards of the attorney general’s focus on courting President Trump, with the assumption that he maintains the total backing of his base.`\
+https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-bongino.html
 
-**Late Night Fact-Checks Trump on His Uncle and the Unabomber**\
-`Jordan Klepper and other hosts poked holes in the president’s claim that his uncle had been the future terrorist’s professor at M.I.T.`\
-https://nytimes.com/2025/07/17/arts/television/late-night-trump-unabomber.html
+**Elissa Slotkin Wants Democrats to Reclaim Their ‘Alpha Energy’**\
+`In a wide-ranging interview, the junior senator from Michigan took stock of her party’s deep-seated woes, warning Democrats not to be “so damn scared.”`\
+https://nytimes.com/2025/07/17/us/politics/elissa-slotkin-democrats-trump.html
 
-**Senate Approves Trump’s Bid to Cancel Foreign Aid and Public Broadcast Funds**\
-`The bill to claw back $9 billion in congressionally approved spending passed over the objections of Republicans who said it abdicated the legislative branch’s power of the purse.`\
-https://nytimes.com/2025/07/17/us/politics/senate-vote-trump-bill-pbs-npr-foreign-aid.html
+**F.D.A. Panel to Reassess Hormone Therapy Warnings**\
+`Dr. Marty Makary, the agency’s commissioner, has said too many women avoid menopause treatments because the risks have been overstated.`\
+https://nytimes.com/2025/07/17/health/hormone-therapy-menopause-fda.html
 
