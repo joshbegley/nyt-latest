@@ -1,3 +1,11 @@
+**Here’s How Congress Is Wading Into Crypto Regulation**\
+`The House this week took up a trio of bills that would establish a federal framework for regulating the cryptocurrency industry. One of the measures is about to clear Congress and become law.`\
+https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html
+
+**Matt Fitzpatrick's career hit rock bottom. Now he's co-leading the Open Championship**\
+`The former U.S. Open champion felt like he hit bottom 122 days ago. But he has found a new coach, a new caddie and a groove.`\
+https://nytimes.com/athletic/6500250/2025/07/17/open-championship-matt-fitzpatrick/
+
 **Scoop City: Jets make quiet strides, Buccaneers look like Super Bowl contenders**\
 `The new-look (and quiet) Jets reinforced their foundation, plus why the Buccaneers are a darkhorse contender. `\
 https://nytimes.com/athletic/6500348/2025/07/17/jets-offseason-recap-buccaneers-2025-preview-nfl-scoop-city/

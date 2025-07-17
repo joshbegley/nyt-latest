@@ -1,3 +1,11 @@
+**Here’s How Congress Is Wading Into Crypto Regulation**\
+`The House this week took up a trio of bills that would establish a federal framework for regulating the cryptocurrency industry. One of the measures is about to clear Congress and become law.`\
+https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html
+
+**Matt Fitzpatrick's career hit rock bottom. Now he's co-leading the Open Championship**\
+`The former U.S. Open champion felt like he hit bottom 122 days ago. But he has found a new coach, a new caddie and a groove.`\
+https://nytimes.com/athletic/6500250/2025/07/17/open-championship-matt-fitzpatrick/
+
 **Scoop City: Jets make quiet strides, Buccaneers look like Super Bowl contenders**\
 `The new-look (and quiet) Jets reinforced their foundation, plus why the Buccaneers are a darkhorse contender. `\
 https://nytimes.com/athletic/6500348/2025/07/17/jets-offseason-recap-buccaneers-2025-preview-nfl-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6500186/2025/07/17/drew-brees-analyst-netflix-chris
 **Smell of Death Lingers in Syrian City After Spasm of Violence**\
 `Blood in the streets, smashed windows and the smell of corpses in the air: A resident of the southern city of Sweida describes the aftermath of a wave of sectarian violence.`\
 https://nytimes.com/2025/07/17/world/middleeast/syria-sweida-druse-violence.html
-
-**7 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/07/17/books/review/new-book-recommendations.html
-
-**Cherry Tomato Bonanza**\
-`Whether you’re growing them yourself or picking them up from a market, the best cherry tomatoes are abundant right now. Here’s what to make with them.`\
-https://nytimes.com/2025/07/17/dining/cherry-tomato-recipes.html
 

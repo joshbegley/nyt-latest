@@ -1,3 +1,7 @@
+**Rashee Rice likely facing suspension after pleading guilty to 2024 crash charges**\
+`Rice pleaded guilty to two third-degree felony charges, including collision involving serious bodily injury and racing on a highway. `\
+https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-suspension/
+
 **Here’s How Congress Is Wading Into Crypto Regulation**\
 `The House this week took up a trio of bills that would establish a federal framework for regulating the cryptocurrency industry. One of the measures is about to clear Congress and become law.`\
 https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/world/europe/bonjour-belgian-train.html
 **Drew Brees to be game analyst for Netflix's Christmas Day game: Sources**\
 `Brees will be on the domestic broadcast for either the Cowboys-Commanders or Lions-Vikings games.`\
 https://nytimes.com/athletic/6500186/2025/07/17/drew-brees-analyst-netflix-christmas-game-nfl/
-
-**Smell of Death Lingers in Syrian City After Spasm of Violence**\
-`Blood in the streets, smashed windows and the smell of corpses in the air: A resident of the southern city of Sweida describes the aftermath of a wave of sectarian violence.`\
-https://nytimes.com/2025/07/17/world/middleeast/syria-sweida-druse-violence.html
 
