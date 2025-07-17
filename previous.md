@@ -1,3 +1,11 @@
+**‘The Retrievals’ is not meant to scare you**\
+`What patients can do.`\
+https://nytimes.com/2025/07/17/podcasts/the-retrievals-newsletter.html
+
+**Vazquez on Real Madrid farewell: 'I have fulfilled the dream of my life'**\
+`The 33-year-old spent 18 years at Madrid having joined as a 16-year-old in 2007.`\
+https://nytimes.com/athletic/6232543/2025/07/17/lucas-vazquez-real-madrid/
+
 **Will Investors Ever Believe Trump’s Threats Against Powell?**\
 `President Trump has become more hostile to the Federal Reserve’s chair. Markets aren’t worried yet, but some on Wall Street are getting more concerned.`\
 https://nytimes.com/2025/07/17/business/dealbook/trump-powell-fed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/17/world/europe/missing-american-hiker-spain-pyrenee
 **In Hong Kong, Inventive Ice Cream Is Everywhere**\
 `Plus: artist-made birdhouses in Maine, easy summer knits and more recommendations from T Magazine.`\
 https://nytimes.com/2025/07/17/t-magazine/hong-kong-ice-cream-gelato.html
-
-**Junior Firpo rejoins Betis after Leeds exit**\
-`Firpo was a regular feature in Daniel Farke's side that earned automatic promotion back to the Premier League.`\
-https://nytimes.com/athletic/6317512/2025/07/17/junior-firpo-betis-leeds-transfer/
-
-**TAFC: First £1m women's player; Liverpool's Ekitike talks; language of a transfer 'saga'**\
-`Today in TAFC: What Smith's move means for the women's game, Liverpool's Ekitike approach, and the language of a football transfer 'saga'`\
-https://nytimes.com/athletic/6499338/2025/07/17/olivia-smith-1m-womens-player-ekitike-liverpool-transfers/
 

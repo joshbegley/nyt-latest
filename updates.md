@@ -1,3 +1,11 @@
+**‘The Retrievals’ is not meant to scare you**\
+`What patients can do.`\
+https://nytimes.com/2025/07/17/podcasts/the-retrievals-newsletter.html
+
+**Vazquez on Real Madrid farewell: 'I have fulfilled the dream of my life'**\
+`The 33-year-old spent 18 years at Madrid having joined as a 16-year-old in 2007.`\
+https://nytimes.com/athletic/6232543/2025/07/17/lucas-vazquez-real-madrid/
+
 **Will Investors Ever Believe Trump’s Threats Against Powell?**\
 `President Trump has become more hostile to the Federal Reserve’s chair. Markets aren’t worried yet, but some on Wall Street are getting more concerned.`\
 https://nytimes.com/2025/07/17/business/dealbook/trump-powell-fed.html
