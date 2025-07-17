@@ -1,5 +1,9 @@
+**What are Wrexham's odds of getting promoted to the Premier League this season?**\
+`Wrexham have been promoted three seasons in a row, but can they make it four and reach the Premier League? Bettors are giving them a chance.`\
+https://nytimes.com/athletic/6486269/2025/07/17/wrexham-odds-promotion-championship-premier-league/
+
 **Dozens of People Are Killed in Iraq Shopping Mall Fire**\
-`The local governor announced three days of mourning for those killed, who include children.`\
+`The local governor announced three days of mourning for the victims, who he said included children.`\
 https://nytimes.com/2025/07/17/world/middleeast/iraq-shopping-mall-fire.html
 
 **England vs Sweden Euro 2025 quarter-final odds, prediction: Can Lionesses repeat 2022?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/arts/television/late-night-trump-unabomber.html
 **Senate Approves Trump’s Bid to Cancel Foreign Aid and Public Broadcast Funds**\
 `The bill to claw back $9 billion in congressionally approved spending passed over the objections of Republicans who said it abdicated the legislative branch’s power of the purse.`\
 https://nytimes.com/2025/07/17/us/politics/senate-vote-trump-bill-pbs-npr-foreign-aid.html
-
-**Has Japan’s ‘Rice Minister’ Brought Down Prices Enough to Save His Party?**\
-`Shinjiro Koizumi has scrambled to cut soaring rice prices ahead of a high-stakes election this weekend. Will it be enough to buoy support for the Liberal Democratic Party?`\
-https://nytimes.com/2025/07/17/business/japan-election-rice-koizumi.html
 
