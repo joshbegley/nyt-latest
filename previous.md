@@ -1,3 +1,11 @@
+**New Scripts for a Democratic Comeback**\
+`Readers offer advice to the Democrats. Also: Senator Josh Hawley’s reversal; a backlash at the E.P.A.; President Trump and the absurd.`\
+https://nytimes.com/2025/07/17/opinion/democrats.html
+
+**One defining stat for all 30 MLB teams to help you get you caught up for the second half**\
+`Before the second half gets rolling, let’s zoom in on one stat that defines each team’s season so far, for better or worse.`\
+https://nytimes.com/athletic/6499094/2025/07/17/mlb-team-stat-second-half-2025/
+
 **The fantasy football wide receivers to draft ... and those to avoid**\
 `Jake Ciely discusses his fantasy football strategy to maximize draft value at WR in 2025. `\
 https://nytimes.com/athletic/6497700/2025/07/17/fantasy-football-draft-wr-rankings-values-adp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/emil-bove-judge-nomination-democrats.
 **Yegor Chinakhov requests trade from Blue Jackets, cites 'misunderstandings' with coach**\
 `Columbus GM Don Waddell said he was already aware of the trade request, but he was surprised Chinakhov's agent, Shumi Babaev, went public.`\
 https://nytimes.com/athletic/6500013/2025/07/17/yegor-chinakhov-blue-jackets-trade-request/
-
-**A Brooklyn Brownstone That Channels ‘The Garden of Earthly Delights’**\
-`The interior designer Nick Spain added jewel-toned colors and botanical prints to a Cobble Hill home with literary history.`\
-https://nytimes.com/2025/07/17/t-magazine/paula-fox-brooklyn-home.html
-
-**Israeli Strike on a Gaza Church Kills Three**\
-`As cease-fire talks stalled, a deadly strike on a Catholic church in Gaza City prompted Pope Leo XIV to call for an immediate end to the fighting.`\
-https://nytimes.com/2025/07/17/world/middleeast/gaza-church-strike-israel.html
 

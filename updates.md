@@ -1,3 +1,11 @@
+**New Scripts for a Democratic Comeback**\
+`Readers offer advice to the Democrats. Also: Senator Josh Hawley’s reversal; a backlash at the E.P.A.; President Trump and the absurd.`\
+https://nytimes.com/2025/07/17/opinion/democrats.html
+
+**One defining stat for all 30 MLB teams to help you get you caught up for the second half**\
+`Before the second half gets rolling, let’s zoom in on one stat that defines each team’s season so far, for better or worse.`\
+https://nytimes.com/athletic/6499094/2025/07/17/mlb-team-stat-second-half-2025/
+
 **The fantasy football wide receivers to draft ... and those to avoid**\
 `Jake Ciely discusses his fantasy football strategy to maximize draft value at WR in 2025. `\
 https://nytimes.com/athletic/6497700/2025/07/17/fantasy-football-draft-wr-rankings-values-adp/

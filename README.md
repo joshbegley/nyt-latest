@@ -1,3 +1,15 @@
+**After 7 Decades of Measurements From a Peak in Hawaii, Trump’s Budget Would End Them**\
+`Closing Mauna Loa and three other U.S. sites that track greenhouse gases would disrupt a decades-long record of the planet’s changing atmosphere.`\
+https://nytimes.com/2025/07/17/climate/budget-cuts-climate-observatories.html
+
+**PepsiCo Reaches for Protein and Fiber to Boost Sales**\
+`The food giant said its Frito-Lay snack division planned to make a line of Cheetos and Doritos with no artificial colors or flavors, as demand falters.`\
+https://nytimes.com/2025/07/17/business/pepsico-frito-lay-protein-fiber.html
+
+**Amid Flood Response, Texas Republicans Pivot to Political Maps**\
+`A special session of the Texas Legislature will address the deadly floods in Hill Country, but the fireworks will come from President Trump’s demand for a newly gerrymandered House map.`\
+https://nytimes.com/2025/07/17/us/texas-flood-redistricting.html
+
 **New Scripts for a Democratic Comeback**\
 `Readers offer advice to the Democrats. Also: Senator Josh Hawley’s reversal; a backlash at the E.P.A.; President Trump and the absurd.`\
 https://nytimes.com/2025/07/17/opinion/democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/17/nyregion/nypd-officer-wells-fargo-theft-bmw-glute
 **Thunderstorms Nearby? How to Stay Safe When Lightning Strikes**\
 `Summer is a busy time for lighting strikes, which kill about 20 people and injure many others across the United States each year, officials said.`\
 https://nytimes.com/2025/07/17/us/lightning-safety-tips.html
-
-**Stan Douglas and the Double Life of Images**\
-`One of the most intelligent artists in North America finally gets the retrospective he deserves.`\
-https://nytimes.com/2025/07/17/arts/design/stan-douglas-bard-film-photography-ghostlight.html
-
-**Republicans on Senate Panel Vote to Advance Bove’s Nomination After Democrats Storm Out**\
-`An even more intense battle is expected on the Senate floor over the nomination of a Trump immigration policy enforcer to a lifetime judicial post.`\
-https://nytimes.com/2025/07/17/us/politics/emil-bove-judge-nomination-democrats.html
-
-**Yegor Chinakhov requests trade from Blue Jackets, cites 'misunderstandings' with coach**\
-`Columbus GM Don Waddell said he was already aware of the trade request, but he was surprised Chinakhov's agent, Shumi Babaev, went public.`\
-https://nytimes.com/athletic/6500013/2025/07/17/yegor-chinakhov-blue-jackets-trade-request/
 
