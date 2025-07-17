@@ -1,3 +1,11 @@
+**Why most 2025 NFL second-round picks are unsigned: Who's involved, did first domino just fall?**\
+`Thirty of the NFL's 32 second-round picks remain unsigned as training camps begin to open. How will it get resolved? `\
+https://nytimes.com/athletic/6498455/2025/07/16/nfl-draft-second-round-picks-unsigned-explained/
+
+**Von Miller, Washington Commanders finalizing 1-year deal: Reports**\
+`The Buffalo Bills released Miller in March after signing him to a six-year, $120 million deal ahead of the 2022-23 season.`\
+https://nytimes.com/athletic/6499101/2025/07/16/von-miller-washington-commanders-signing-reports/
+
 **Fire Ravages Tomorrowland Music Festival’s Main Stage**\
 `Organizers of the major electronic festival in Belgium said that they were focused on finding solutions after the stage was severely damaged.`\
 https://nytimes.com/2025/07/16/us/tomorrowland-festival-fire-main-stage-belgium.html
@@ -18,7 +26,7 @@ https://nytimes.com/2025/07/16/us/politics/trump-coca-cola-cane-sugar.html
 `The panel, created by Mayor Eric Adams, said it would introduce other ballot initiatives, but not a proposal that would allow all voters to participate in primaries regardless of party.`\
 https://nytimes.com/2025/07/16/nyregion/new-york-open-primary-elections.html
 
-**Lightning Kills 1 and Injures 13 on Archery Range in New Jersey, Police Say**\
+**Lightning Kills 1 and Injures 13 on Archery Range in New Jersey**\
 `The victims range in age from 7 to 61, according to the authorities.`\
 https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.htm
 **Nadler and Duffy in Tense Exchange Over N.Y.C. Subway Safety**\
 `Representative Jerrold Nadler of New York, a member of the House transportation committee, and Transportation Secretary Sean Duffy argued over subway safety statistics during a hearing on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010288537/sean-duffy-jerrold-nadler-nyc-subway.html
-
-**Trump Has Promised More Tariffs on Mexico. What Happens Next?**\
-`President Trump has threatened to increase Mexico’s tariff rate to 30 percent starting Aug. 1, claiming the country hasn’t sufficiently tackled drug cartels.`\
-https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
-
-**JD Vance’s Big, Beautiful Task**\
-`The vice president is selling Trump’s domestic policy bill amid signs Democratic attacks are breaking through.`\
-https://nytimes.com/2025/07/16/us/politics/jd-vance-trump-bill.html
 
