@@ -1,3 +1,7 @@
+**Diamondbacks' Ketel Marte's home burglarized during MLB All-Star Game**\
+`There were signs of forced entry, and numerous personal items and jewelry pieces were missing, police said.`\
+https://nytimes.com/athletic/6499226/2025/07/17/ketel-marte-home-burglarized-investigation-arizona-diamondbacks/
+
 **Norway have world class attacking talent - but yet again they have underwhelmed**\
 `After their exit from Euro 2025, we’re reaching a point where we can definitively say that Norway have wasted a genuine golden generation`\
 https://nytimes.com/athletic/6498821/2025/07/17/norway-euro-2025-underwhelming-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359289/2025/07/17/more-ball-games-london-sport-cam
 **Why long throws are so important to Thomas Frank, and how he may use them at Spurs**\
 `Destiny Udogie inadvertently revealed that Tottenham's players had been put through a long-throw 'audition'. It set tongues wagging...`\
 https://nytimes.com/athletic/6497519/2025/07/17/tottenham-frank-throw-ins/
-
-**What Yoane Wissa would offer Nottingham Forest - on and off the pitch**\
-`The Brentford forward would add an experienced head and versatility to Nuno's squad if a deal can be done`\
-https://nytimes.com/athletic/6495187/2025/07/17/nottingham-forest-yoane-wissa-analysis/
 

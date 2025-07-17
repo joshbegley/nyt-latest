@@ -1,3 +1,7 @@
+**Norway have world class attacking talent - but yet again they have underwhelmed**\
+`After their exit from Euro 2025, we’re reaching a point where we can definitively say that Norway have wasted a genuine golden generation`\
+https://nytimes.com/athletic/6498821/2025/07/17/norway-euro-2025-underwhelming-exit/
+
 **The New York Times in Print for Thursday, July 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/17/todays-new-york-times
