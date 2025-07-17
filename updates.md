@@ -1,3 +1,7 @@
+**Archery Club Used to ‘Nasty Storms’ Reels From Fatal Lightning Strike**\
+`The bolt struck local archers and a boy scout troop in New Jersey, killing one man and injuring at least 13 other people. Friends of the victims said the strike had come out of nowhere.`\
+https://nytimes.com/2025/07/17/nyregion/lightning-strike-jackson-nj-archery.html
+
 **Friday Briefing: Bloodshed in a Syrian City**\
 `Plus, panic-buying Korean beauty products`\
 https://nytimes.com/2025/07/17/briefing/syria-israel-uk-voting-us-aid.html
