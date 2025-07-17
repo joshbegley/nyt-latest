@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, July 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/17/todays-new-york-times-international-edition
+
 **World No. 1 Aryna Sabalenka withdraws from Canadian Open, citing fatigue**\
 `Sabalenka reached the quarterfinals at last year's tournament.`\
 https://nytimes.com/athletic/6499357/2025/07/17/tennis-sabalenka-canadian-open-out/
