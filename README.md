@@ -1,3 +1,7 @@
+**This Democrat Won’t Let Go of the Jeffrey Epstein Case, Either**\
+`Senator Ron Wyden has found that four banks waited until Mr. Epstein’s arrest on federal charges to flag $1.5 billion in suspicious transactions. Mr. Wyden wants the documents made public.`\
+https://nytimes.com/2025/07/17/business/epstein-banks-wyden-trump.html
+
 **Shopping Mall Fire Kills at Least 61 in Iraq**\
 `Local officials said that the scale of the tragedy was worsened by shoddy construction and a lack of preparedness.`\
 https://nytimes.com/video/world/middleeast/100000010290389/deadly-shopping-mall-fire-iraq.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010290292/syria-israel-damascus
 **The U.K. Plans to Lower the Voting Age to 16. Here’s What to Know.**\
 `The plan has been described as the largest expansion of voting rights in Britain in decades.`\
 https://nytimes.com/2025/07/17/world/europe/uk-voting-age-16.html
-
-**Prominent Human Rights Group Flees El Salvador**\
-`The group, Cristosal, has investigated prison deaths and torture under President Nayib Bukele. Its employees were threatened and surveilled, its director said.`\
-https://nytimes.com/2025/07/17/world/americas/el-salvador-cristosal-closes.html
 
