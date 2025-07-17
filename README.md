@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, July 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/17/todays-new-york-times
+
+**Lauren Southern, Former Right-Wing Commentator, Says Andrew Tate Assaulted Her**\
+`Ms. Southern’s account of a 2018 encounter, made in a self-published memoir, adds to the allegations against Mr. Tate, the online influencer. “She is lying through her teeth,” Mr. Tate’s lawyer said.`\
+https://nytimes.com/2025/07/17/world/europe/lauren-southern-andrew-tate-sexual-assault.html
+
+**Trump Is Doing Something No One Wants**\
+`In his commitment to domination, he is missing an opportunity to shape a new multipolar order that protects America’s interests.`\
+https://nytimes.com/2025/07/17/opinion/trump-lula-brazil-brics.html
+
 **Tour de France roundtable: Best riders and most memorable moments of the race so far**\
 `The Athletic's writers discuss the first 11 stages of an enthralling edition of the Tour de France`\
 https://nytimes.com/athletic/6497458/2025/07/17/tour-de-france-first-half-roundtable/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6495187/2025/07/17/nottingham-forest-yoane-wissa-an
 **James McAtee's Manchester City career is symptomatic of modern academy football**\
 `McAtee is likely to leave but City won't be making the mistake they did with Cole Palmer. PSR has changed approaches to academy products`\
 https://nytimes.com/athletic/6497600/2025/07/17/james-mcatees-manchester-city-career-is-symptomatic-of-modern-academy-football/
-
-**Chelsea are champions of the world. So what happens next?**\
-`The success at the summer tournament in the United States has filled the coffers and raised expectations for the new Premier League campaign`\
-https://nytimes.com/athletic/6497531/2025/07/17/chelsea-cwc-title-transfers-stadium-ownership/
-
-**'I was depressed. I never thought I'd retire at 22. If I can go through that, I can go through anything'**\
-`The former Villa youngster is starting again after three serious injuries forced his retirement`\
-https://nytimes.com/athletic/6493166/2025/07/17/myles-sohna-had-a-bright-aston-villa-future-then-he-didnt-now-hes-plotting-a-coaching-career/
-
-**Who is Borna Sosa and why have Crystal Palace signed him?**\
-`The Croatia left wing-back signed from Ajax for a bargain fee as the club finally secured cover for Tyrick Mitchell on that flank`\
-https://nytimes.com/athletic/6494885/2025/07/17/borna-sosa-crystal-palace-ajax/
 
