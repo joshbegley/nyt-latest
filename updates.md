@@ -1,3 +1,19 @@
+**Teen Arrested in Killing of Paddleboarder in Maine**\
+`Sunshine Stewart, 48, was found dead near 100 Acre Island after disappearing while paddle boarding in Union, Maine.`\
+https://nytimes.com/2025/07/17/us/maine-arrest-paddleboarder-homicide.html
+
+**With One Call, Trump Alters the Fate of a Contested Power Project**\
+`Grain Belt Express, a transmission line that would cross 800 miles of the Midwest, is at the center of a number of disputes.`\
+https://nytimes.com/2025/07/17/climate/hawley-grain-belt-express-invenergy-trump.html
+
+**Colts QB Anthony Richardson has resumed throwing: Source**\
+`Richardson has resumed throwing and could be ready for the start of Colts' training camp ahead of a crucial 2025 campaign. `\
+https://nytimes.com/athletic/6500378/2025/07/17/colts-anthony-richardson-shoulder-daniel-jones/
+
+**Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
+`The sides avoided salary arbitration after Dostál was one of 11 players in the league to file for the process on July 5.`\
+https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
+
 **F.D.A. Approves Juul Vapes After Yearslong Delay**\
 `The company was accused of marketing its products to teenagers, causing a surge in use.`\
 https://nytimes.com/2025/07/17/health/fda-juul.html
