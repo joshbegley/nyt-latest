@@ -1,3 +1,11 @@
+**Top Fed Official Backs July Rate Cut as Trump Ramps Up Pressure**\
+`Christopher Waller, a potential contender to be the next chair of the central bank, said the Federal Reserve should not wait for the labor market to weaken to reduce interest rates.`\
+https://nytimes.com/2025/07/17/business/fed-rate-cut-waller-powell-trump.html
+
+**Chargers training camp report, Day 1: Mike Williams retires, what now?**\
+`Shortly after announcing Williams' retirement, the Chargers agreed to terms with second-round WR Tre Harris, ending his brief camp absence.`\
+https://nytimes.com/athletic/6501015/2025/07/17/chargers-training-camp-mike-williams-retires/
+
 **Open Championship 2025 Round 1: What to know about the 5 leaders at Portrush**\
 `It is the first time in major championship history that five or more men, each playing under different flags, were tied for the lead.`\
 https://nytimes.com/athletic/6501075/2025/07/17/open-championship-2025-round-1-what-to-know/
@@ -17,12 +25,4 @@ https://nytimes.com/2025/07/17/us/beware-of-swiper-a-fox-at-grand-teton-park-wit
 **Republicans Fretted Over Ceding Spending Power to Trump. Then They Voted to Do It.**\
 `In voting for President Trump’s cancellation of $9 billion in spending they had already approved, Republicans in Congress showed they were willing to cede their power of the purse.`\
 https://nytimes.com/2025/07/17/us/politics/republicans-congress-spending-power.html
-
-**Michelle Agyemang: The teenager who saved England at Euro 2025**\
-`The Arsenal forward rescued England against Sweden, showing her clinical finishing and ability to disrupt defences`\
-https://nytimes.com/athletic/6471327/2025/07/17/agyemang-england-arsenal-euro-2025/
-
-**With T.S.A.’s Shoes Rule Gone, Can Liquids Really Be Next?**\
-`Kristi Noem, the homeland security secretary, has said that the next major airport security screening announcement could target limits on liquids. How likely is that?`\
-https://nytimes.com/2025/07/17/travel/tsa-liquids-sizes.html
 
