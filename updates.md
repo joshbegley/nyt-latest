@@ -1,3 +1,7 @@
+**WNBA, players' union have 'spirited conversations' in next step toward CBA**\
+`A record number of players attended Thursday’s meeting between the WNBA and WNBPA, with further negotiations coming soon.`\
+https://nytimes.com/athletic/6501098/2025/07/17/wnba-union-cba-negotiations/
+
 **Top Fed Official Backs July Rate Cut as Trump Ramps Up Pressure**\
 `Christopher Waller, a potential contender to be the next chair of the central bank, said the Federal Reserve should not wait for the labor market to weaken to reduce interest rates.`\
 https://nytimes.com/2025/07/17/business/fed-rate-cut-waller-powell-trump.html
