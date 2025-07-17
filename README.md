@@ -1,3 +1,7 @@
+**Late Night Fact-Checks Trump on His Uncle and the Unabomber**\
+`Jordan Klepper and other hosts poked holes in the president’s claim that his uncle had been the future terrorist’s professor at M.I.T.`\
+https://nytimes.com/2025/07/17/arts/television/late-night-trump-unabomber.html
+
 **Senate Approves Trump’s Bid to Cancel Foreign Aid and Public Broadcast Funds**\
 `The bill to claw back $9 billion in congressionally approved spending passed over the objections of Republicans who said it abdicated the legislative branch’s power of the purse.`\
 https://nytimes.com/2025/07/17/us/politics/senate-vote-trump-bill-pbs-npr-foreign-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/opinion/trump-lula-brazil-brics.html
 **Tour de France roundtable: Best riders and most memorable moments of the race so far**\
 `The Athletic's writers discuss the first 11 stages of an enthralling edition of the Tour de France`\
 https://nytimes.com/athletic/6497458/2025/07/17/tour-de-france-first-half-roundtable/
-
-**Leon, Amass, Collyer, Kukonki and more - United's plans for their young players**\
-`A run-through of the leading youth prospects at Carrington and what the club intend to do with them for the new season`\
-https://nytimes.com/athletic/6495984/2025/07/17/manchester-united-young-player-plans/
 
