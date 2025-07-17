@@ -1,3 +1,15 @@
+**A Brooklyn Brownstone That Channels ‘The Garden of Earthly Delights’**\
+`The interior designer Nick Spain added jewel-toned colors and botanical prints to a Cobble Hill home with literary history.`\
+https://nytimes.com/2025/07/17/t-magazine/paula-fox-brooklyn-home.html
+
+**Israeli Strike on a Gaza Church Kills Three**\
+`As cease-fire talks stalled, a deadly strike on a Catholic church in Gaza City prompted Pope Leo XIV to call for an immediate end to the fighting.`\
+https://nytimes.com/2025/07/17/world/middleeast/gaza-church-strike-israel.html
+
+**Heavy Rain Floods Kansas City Area, Prompting Overnight Rescues**\
+`Firefighters waded through waist-deep water to rescue people from nearly two dozen cars, officials said.`\
+https://nytimes.com/2025/07/17/weather/kansas-city-missouri-flooding.html
+
 **Ons Jabeur steps back from tennis to 'rediscover the joy of simply living'**\
 `The Tunisian reached the Wimbledon final in 2022 and 2023 but retired in the first round of this year's tournament.`\
 https://nytimes.com/athletic/6499942/2025/07/17/tennis-ons-jabeur-step-back/
