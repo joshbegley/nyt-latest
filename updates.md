@@ -1,3 +1,11 @@
+**What are Wrexham's odds of getting promoted to the Premier League this season?**\
+`Wrexham have been promoted three seasons in a row, but can they make it four and reach the Premier League? Bettors are giving them a chance.`\
+https://nytimes.com/athletic/6486269/2025/07/17/wrexham-odds-promotion-championship-premier-league/
+
+**Dozens of People Are Killed in Iraq Shopping Mall Fire**\
+`The local governor announced three days of mourning for the victims, who he said included children.`\
+https://nytimes.com/2025/07/17/world/middleeast/iraq-shopping-mall-fire.html
+
 **Dozens of People Are Killed in Iraq Shopping Mall Fire**\
 `The local governor announced three days of mourning for those killed, who include children.`\
 https://nytimes.com/2025/07/17/world/middleeast/iraq-shopping-mall-fire.html
