@@ -1,3 +1,7 @@
+**Has Japan’s ‘Rice Minister’ Brought Down Prices Enough to Save His Party?**\
+`Shinjiro Koizumi has scrambled to cut soaring rice prices ahead of a high-stakes election this weekend. Will it be enough to buoy support for the Liberal Democratic Party?`\
+https://nytimes.com/2025/07/17/business/japan-election-rice-koizumi.html
+
 **Word of the Day: rapscallion**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/17/learning/word-of-the-day-rapscallion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495984/2025/07/17/manchester-united-young-player-p
 **Thursday Briefing: Israel Strikes Damascus**\
 `Plus, the many takes on Superman.`\
 https://nytimes.com/2025/07/17/briefing/israel-syria-afghanistan-iran-trump-federal-reserve.html
-
-**More Ball Games? Can changing a prohibitive signs help make the UK more active?**\
-`The charity London Sport is calling on UK policymakers to remove the 'No Ball Games' signs and to reimagine public spaces`\
-https://nytimes.com/athletic/6359289/2025/07/17/more-ball-games-london-sport-campaign/
 

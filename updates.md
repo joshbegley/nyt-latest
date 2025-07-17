@@ -1,3 +1,7 @@
+**Has Japan’s ‘Rice Minister’ Brought Down Prices Enough to Save His Party?**\
+`Shinjiro Koizumi has scrambled to cut soaring rice prices ahead of a high-stakes election this weekend. Will it be enough to buoy support for the Liberal Democratic Party?`\
+https://nytimes.com/2025/07/17/business/japan-election-rice-koizumi.html
+
 **Word of the Day: rapscallion**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/17/learning/word-of-the-day-rapscallion.html
