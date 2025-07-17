@@ -1,3 +1,7 @@
+**Rashee Rice likely facing suspension after pleading guilty to 2024 crash charges**\
+`Rice pleaded guilty to two third-degree felony charges, including collision involving serious bodily injury and racing on a highway. `\
+https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-suspension/
+
 **Here’s How Congress Is Wading Into Crypto Regulation**\
 `The House this week took up a trio of bills that would establish a federal framework for regulating the cryptocurrency industry. One of the measures is about to clear Congress and become law.`\
 https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html

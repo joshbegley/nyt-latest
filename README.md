@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-susp
 https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html
 
 **Matt Fitzpatrick's career hit rock bottom. Now he's co-leading the Open Championship**\
-`The former U.S. Open champion felt like he hit bottom 122 days ago. But he has found a new coach, a new caddie and a groove.`\
+`The former U.S. Open champion felt like he hit rock bottom 122 days ago. But he has found a new coach, a new caddie and a groove.`\
 https://nytimes.com/athletic/6500250/2025/07/17/open-championship-matt-fitzpatrick/
 
 **Scoop City: Jets make quiet strides, Buccaneers look like Super Bowl contenders**\
@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6500348/2025/07/17/jets-offseason-recap-buccaneers-
 `The British government said it wants to lower the voting age to 16 as part of a plan that has been described as the country’s largest expansion of voting rights in decades.`\
 https://nytimes.com/video/world/europe/100000010290686/uk-voting-age-16.html
 
-**Tour de France stage 12: Tadej Pogacar cracks rivals on Hautacam to move back into yellow jersey**\
+**Tour de France, stage 12: Pogacar cracks his rivals on Hautacam to move back into the yellow jersey**\
 `Analysis of the latest day's action in the 2025 race - a 180km route from Auch to Hautacam in the Pyrenees`\
 https://nytimes.com/athletic/6499571/2025/07/17/tour-de-france-stage-12-analysis/
 
