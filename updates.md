@@ -1,3 +1,11 @@
+**Top Fed Official Backs July Rate Cut as Trump Ramps Up Pressure**\
+`Christopher Waller, a potential contender to be the next chair of the central bank, said the Federal Reserve should not wait for the labor market to weaken to reduce interest rates.`\
+https://nytimes.com/2025/07/17/business/fed-rate-cut-waller-powell-trump.html
+
+**Chargers training camp report, Day 1: Mike Williams retires, what now?**\
+`Shortly after announcing Williams' retirement, the Chargers agreed to terms with second-round WR Tre Harris, ending his brief camp absence.`\
+https://nytimes.com/athletic/6501015/2025/07/17/chargers-training-camp-mike-williams-retires/
+
 **Open Championship 2025 Round 1: What to know about the 5 leaders at Portrush**\
 `It is the first time in major championship history that five or more men, each playing under different flags, were tied for the lead.`\
 https://nytimes.com/athletic/6501075/2025/07/17/open-championship-2025-round-1-what-to-know/

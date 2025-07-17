@@ -1,3 +1,7 @@
+**WNBA, players' union have 'spirited conversations' in next step toward CBA**\
+`A record number of players attended Thursday’s meeting between the WNBA and WNBPA, with further negotiations coming soon.`\
+https://nytimes.com/athletic/6501098/2025/07/17/wnba-union-cba-negotiations/
+
 **Top Fed Official Backs July Rate Cut as Trump Ramps Up Pressure**\
 `Christopher Waller, a potential contender to be the next chair of the central bank, said the Federal Reserve should not wait for the labor market to weaken to reduce interest rates.`\
 https://nytimes.com/2025/07/17/business/fed-rate-cut-waller-powell-trump.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/07/17/us/alcatraz-prison-trump-bondi-burgum-visit.html
 **Beware of ‘Swiper,’ a Fox at Grand Teton Park With a Penchant for Footwear**\
 `One or more foxes have stolen at least 32 shoes, according to park officials, who warned campers to guard their belongings.`\
 https://nytimes.com/2025/07/17/us/beware-of-swiper-a-fox-at-grand-teton-park-with-a-penchant-for-footwear.html
-
-**Republicans Fretted Over Ceding Spending Power to Trump. Then They Voted to Do It.**\
-`In voting for President Trump’s cancellation of $9 billion in spending they had already approved, Republicans in Congress showed they were willing to cede their power of the purse.`\
-https://nytimes.com/2025/07/17/us/politics/republicans-congress-spending-power.html
 
