@@ -1,3 +1,15 @@
+**Tour de France roundtable: Best riders and most memorable moments of the race so far**\
+`The Athletic's writers discuss the first 11 stages of an enthralling edition of the Tour de France`\
+https://nytimes.com/athletic/6497458/2025/07/17/tour-de-france-first-half-roundtable/
+
+**Leon, Amass, Collyer, Kukonki and more - United's plans for their young players**\
+`A run-through of the leading youth prospects at Carrington and what the club intend to do with them for the new season`\
+https://nytimes.com/athletic/6495984/2025/07/17/manchester-united-young-player-plans/
+
+**Thursday Briefing: Israel Strikes Damascus**\
+`Plus, the many takes on Superman.`\
+https://nytimes.com/2025/07/17/briefing/israel-syria-afghanistan-iran-trump-federal-reserve.html
+
 **More Ball Games? Can changing a prohibitive signs help make the UK more active?**\
 `The charity London Sport is calling on UK policymakers to remove the 'No Ball Games' signs and to reimagine public spaces`\
 https://nytimes.com/athletic/6359289/2025/07/17/more-ball-games-london-sport-campaign/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6493166/2025/07/17/myles-sohna-had-a-bright-aston-v
 **Who is Borna Sosa and why have Crystal Palace signed him?**\
 `The Croatia left wing-back signed from Ajax for a bargain fee as the club finally secured cover for Tyrick Mitchell on that flank`\
 https://nytimes.com/athletic/6494885/2025/07/17/borna-sosa-crystal-palace-ajax/
-
-**Scrapbooks, broken lasers and bees: Sweden's Peter Gerhardsson is the Euros most eccentric manager**\
-`Sweden face England in a Euro 2025 quarter-final on Thursday`\
-https://nytimes.com/athletic/6497808/2025/07/17/sweden-peter-gerhardsson-england-euro-2025/
-
-**Philipp Lahm: The Club World Cup and what happens next**\
-`From squad demands to changing global temperatures, the tournament opened up different thoughts on the future of football`\
-https://nytimes.com/athletic/6494865/2025/07/17/philipp-lahm-club-world-cup-next/
-
-**Football Architects: How Croatia became world football’s great overperformers**\
-`Exploring the philosophy that does enabled a small European nation to punch way above their weight`\
-https://nytimes.com/athletic/6445372/2025/07/17/football-architects-croatia-football-overperformers/
 
