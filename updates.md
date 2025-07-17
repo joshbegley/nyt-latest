@@ -1,3 +1,15 @@
+**Ketanji Brown Jackson Knows How to Get People’s Attention**\
+`Purists are freaking out over her informal locutions, but at least they’re taking notice.`\
+https://nytimes.com/2025/07/17/opinion/ketanji-brown-jackson-dissent-scotus.html
+
+**Elanga backs 'best in the world' Isak to block out 'noise' about his future**\
+`Isak has attracted interest from Liverpool but Elanga did not want to be drawn into where his friend's future may lie.`\
+https://nytimes.com/athletic/6499947/2025/07/17/newcastle-anthony-elanga-isak/
+
+**Chargers' Mike Williams retires after 8 seasons**\
+`Williams retires after spending seven seasons with the Chargers and returning to the team on a one-year deal this June.`\
+https://nytimes.com/athletic/6500422/2025/07/17/chargers-receiver-mike-williams-retires/
+
 **Fired D.E.I. Administrator Sues the University of Michigan**\
 `In her lawsuit, Rachel Dawson denies making antisemitic remarks and accuses the school of racial bias in its investigation and decision-making.`\
 https://nytimes.com/2025/07/17/us/university-michigan-lawsuit-dei-firing-rachel-dawson.html
