@@ -1,3 +1,7 @@
+**Besiktas withdraw offer to free agent Walker-Peters**\
+`The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
+https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
+
 **Prominent Human Rights Group Flees El Salvador**\
 `The group, Cristosal, has investigated prison deaths and torture under President Nayib Bukele. Its employees were threatened and surveilled, its director said.`\
 https://nytimes.com/2025/07/17/world/americas/el-salvador-cristosal-closes.html

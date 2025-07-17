@@ -1,3 +1,7 @@
+**The U.K. Plans to Lower the Voting Age to 16. Here’s What to Know.**\
+`A guide to what’s being described as Britain’s largest expansion of voting rights in decades.`\
+https://nytimes.com/2025/07/17/world/europe/uk-voting-age-16.html
+
 **Prominent Human Rights Group Flees El Salvador**\
 `The group, Cristosal, has investigated prison deaths and torture under President Nayib Bukele. Its employees were threatened and surveilled, its director said.`\
 https://nytimes.com/2025/07/17/world/americas/el-salvador-cristosal-closes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besi
 **‘The Retrievals’ is not meant to scare you**\
 `What patients can do.`\
 https://nytimes.com/2025/07/17/podcasts/the-retrievals-newsletter.html
-
-**Vazquez on Real Madrid farewell: 'I have fulfilled the dream of my life'**\
-`The 33-year-old spent 18 years at Madrid having joined as a 16-year-old in 2007.`\
-https://nytimes.com/athletic/6232543/2025/07/17/lucas-vazquez-real-madrid/
 

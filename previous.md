@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6499383/2025/07/17/olivia-smith-behind-the-deal-rec
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6499277/2025/07/17/all-star-swing-off-poll-the-windup/
 
-**Besiktas withdraw offer to Kyle Walker-Peters**\
+**Besiktas withdraw offer to free agent Walker-Peters**\
 `The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
 https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
 
