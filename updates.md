@@ -1,3 +1,15 @@
+**Junior Firpo rejoins Betis after Leeds exit**\
+`Firpo was a regular feature in Daniel Farke's side that earned automatic promotion back to the Premier League.`\
+https://nytimes.com/athletic/6317512/2025/07/17/junior-firpo-betis-leeds-transfer/
+
+**TAFC: First £1m women's player; Liverpool's Ekitike talks; language of a transfer 'saga'**\
+`Today in TAFC: What Smith's move means for the women's game, Liverpool's Ekitike approach, and the language of a football transfer 'saga'`\
+https://nytimes.com/athletic/6499338/2025/07/17/olivia-smith-1m-womens-player-ekitike-liverpool-transfers/
+
+**Arsenal working on deal for Salford City forward Will Wright**\
+`The pursuit of Wright is part of academy manager Per Mertesacker’s drive to recruit elite talent.`\
+https://nytimes.com/athletic/6499436/2025/07/17/arsenal-transfer-salford-city-will-wright/
+
 **Friendship: Teen Writing and Art That Celebrates Connection**\
 `Photos, videos, essays, stories and podcasts made by young people that explore the nuances of what it means to have and to be a friend.`\
 https://nytimes.com/2025/07/17/learning/friendship-teen-writing-and-art-that-celebrates-connection.html
