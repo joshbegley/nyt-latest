@@ -1,3 +1,7 @@
+**Justice Dept. Asks California Sheriffs for Names of Inmates Who Aren’t Citizens**\
+`An A.C.L.U. lawyer said it was possible that any sheriff who complied with the request could be in violation of California’s so-called sanctuary state law.`\
+https://nytimes.com/2025/07/17/us/politics/doj-sheriffs-california-inmates-ice.html
+
 **John Conklin, Designer of Fantastical Opera Sets, Dies at 88**\
 `Realizing a childhood dream, he created scenery that was highly conceptual yet playful for the Glimmerglass Festival, New York City Opera and other companies.`\
 https://nytimes.com/2025/07/17/arts/design/john-conklin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/opinion/trump-america-china.html
 **Canucks trade Dakota Joshua to Maple Leafs for fourth-round pick**\
 `The forward was originally drafted by Toronto in 2014 and has three years remaining on his contract with a $3.25 million cap hit.`\
 https://nytimes.com/athletic/6500803/2025/07/17/canucks-dakota-joshua-maple-leafs-trade/
-
-**Customers Griped About High Grocery Prices. The Grocer Agreed.**\
-`After hearing complaints about his prices, a store owner in Brooklyn has apologized, and begun the laborious task of lowering thousands of them.`\
-https://nytimes.com/2025/07/17/dining/food-prices-jubilee-marketplace.html
 

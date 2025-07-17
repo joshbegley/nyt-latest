@@ -1,3 +1,7 @@
+**Justice Dept. Asks California Sheriffs for Names of Inmates Who Aren’t Citizens**\
+`An A.C.L.U. lawyer said it was possible that any sheriff who complied with the request could be in violation of California’s so-called sanctuary state law.`\
+https://nytimes.com/2025/07/17/us/politics/doj-sheriffs-california-inmates-ice.html
+
 **John Conklin, Designer of Fantastical Opera Sets, Dies at 88**\
 `Realizing a childhood dream, he created scenery that was highly conceptual yet playful for the Glimmerglass Festival, New York City Opera and other companies.`\
 https://nytimes.com/2025/07/17/arts/design/john-conklin-dead.html
