@@ -1,3 +1,7 @@
+**Fire Ravages Tomorrowland Music Festival’s Main Stage**\
+`Organizers of the major electronic festival in Belgium said that they were focused on finding solutions after the stage was severely damaged.`\
+https://nytimes.com/2025/07/16/us/tomorrowland-festival-fire-main-stage-belgium.html
+
 **Messi’s 5-game multi-goal streak snapped in 3-0 loss to Cincinnati**\
 `Lionel Messi's record-breaking streak ended abruptly, but it underscored the 38-year-old legend's unmatched brilliance.`\
 https://nytimes.com/athletic/6498973/2025/07/16/messi-multi-goal-streak-ends-mls-inter-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
 **JD Vance’s Big, Beautiful Task**\
 `The vice president is selling Trump’s domestic policy bill amid signs Democratic attacks are breaking through.`\
 https://nytimes.com/2025/07/16/us/politics/jd-vance-trump-bill.html
-
-**The Grand Canyon Fire Has North Rim Residents Wary of the Future**\
-`Fire crews allowed a fire to burn through brush on the Grand Canyon’s North Rim. Then they lost control.`\
-https://nytimes.com/2025/07/16/us/politics/grand-canyon-fire-north-rim-arizona.html
 

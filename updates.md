@@ -1,3 +1,7 @@
+**Messi’s 5-game multi-goal streak snapped in 3-0 loss to Cincinnati**\
+`Lionel Messi's record-breaking streak ended abruptly, but it underscored the 38-year-old legend's unmatched brilliance.`\
+https://nytimes.com/athletic/6498973/2025/07/16/messi-multi-goal-streak-ends-mls-inter-miami/
+
 **‘Here’s Hoping …’**\
 `Sam Brody asks us to untangle his theme.`\
 https://nytimes.com/2025/07/16/crosswords/daily-puzzle-2025-07-17.html
