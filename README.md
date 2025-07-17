@@ -1,3 +1,7 @@
+**Lightning Kills 1 and Injures 13 on Archery Range in New Jersey, Police Say**\
+`The victims range in age from 7 to 61, according to the authorities.`\
+https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
+
 **Broadway’s ‘Gypsy’ Revival, Starring Audra McDonald, Will Close**\
 `The show is the sixth musical to announce a closing date since last month’s Tony Awards, reflecting financial challenges facing producers.`\
 https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/cam-wildfire-oregon-emergency.html
 **Vance Tries to Sell the Benefits of Trump’s Megabill but Ignores the Costs**\
 `In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump voters rely on.`\
 https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.html
-
-**Manhattan Prosecutor Who Handled Epstein Cases Is Fired**\
-`Maurene Comey, who is the daughter of the former F.B.I. director James Comey, worked on the criminal cases against Jeffrey Epstein and his associate Ghislaine Maxwell.`\
-https://nytimes.com/2025/07/16/nyregion/maurene-comey-prosecutor-fired-jeffrey-epstein.html
 
