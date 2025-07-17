@@ -1,3 +1,11 @@
+**Prominent Human Rights Group Flees El Salvador**\
+`The group, Cristosal, has investigated prison deaths and torture under President Nayib Bukele. Its employees were threatened and surveilled, its director said.`\
+https://nytimes.com/2025/07/17/world/americas/el-salvador-cristosal-closes.html
+
+**Man Utd fans top football-related arrests for 2024-25**\
+`The overall figure for football-related arrests, meanwhile, decreased by 11 per cent compared to the 2023-24 season.`\
+https://nytimes.com/athletic/6499498/2025/07/17/manchester-united-supporters-arrest-2024-25/
+
 **What I'm hearing about NASCAR's 2026 schedule: Mexico City, Chicago and more**\
 `Mexico City might have to wait until 2027 for a return, Chicago and San Diego could both be on the calendar, and more schedule nuggets.`\
 https://nytimes.com/athletic/6498899/2025/07/17/nascars-2026-schedule-mexico-city-chicago-san-diego/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/17/podcasts/the-retrievals-newsletter.html
 **Vazquez on Real Madrid farewell: 'I have fulfilled the dream of my life'**\
 `The 33-year-old spent 18 years at Madrid having joined as a 16-year-old in 2007.`\
 https://nytimes.com/athletic/6232543/2025/07/17/lucas-vazquez-real-madrid/
-
-**Will Investors Ever Believe Trump’s Threats Against Powell?**\
-`President Trump has become more hostile to the Federal Reserve’s chair. Markets aren’t worried yet, but some on Wall Street are getting more concerned.`\
-https://nytimes.com/2025/07/17/business/dealbook/trump-powell-fed.html
-
-**Trump Administration Live Updates: Appeals Court Pick at Center of Immigration Crackdown to Face Committee Vote**\
-``\
-https://nytimes.com/live/2025/07/17/us/trump-news-updates
 
