@@ -1,3 +1,19 @@
+**Shopping Mall Fire Kills at Least 61 in Iraq**\
+`Local officials said that the scale of the tragedy was worsened by shoddy construction and a lack of preparedness.`\
+https://nytimes.com/video/world/middleeast/100000010290389/deadly-shopping-mall-fire-iraq.html
+
+**All Aboard a Steam Train to See ‘The Railway Children’**\
+`The smells and sounds of locomotive travel get the audience in the mood for a theatrical adaptation of the beloved children’s book.`\
+https://nytimes.com/2025/07/17/theater/the-railway-children-steam-train-keighley.html
+
+**An Opera House’s New Era Begins With an Unlikely First: Strauss**\
+`Christian Thielemann’s inaugural new production as the general music director of the Berlin State Opera is the rarity “Die Schweigsame Frau.”`\
+https://nytimes.com/2025/07/17/arts/music/berlin-state-opera-die-schweigsame-frau.html
+
+**The U.K. Plans to Lower the Voting Age to 16. Here’s What to Know.**\
+`The plan has been described as the largest expansion of voting rights in Britain in decades.`\
+https://nytimes.com/2025/07/17/world/europe/uk-voting-age-16.html
+
 **‘Crypto Week’ Is Back on Track After House G.O.P. Quells Conservative Revolt**\
 `The House is set to vote on a series of high-stakes bills backed by the cryptocurrency industry, after top Republicans brokered a deal with a group of dissenters in their ranks.`\
 https://nytimes.com/2025/07/17/technology/crypto-week-house-republicans-trump.html
