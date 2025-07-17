@@ -1,3 +1,15 @@
+**In the Trump Administration, Watchdogs Are Watching Their Backs**\
+`The president has fired or demoted over 20 inspectors general since he took office. Employees say they are demoralized and reluctant to pursue investigations that could prompt political blowback.`\
+https://nytimes.com/2025/07/17/us/politics/inspectors-general-trump.html
+
+**Sverre Nypan to Manchester City: Everything you need to know – TLDR**\
+`Pep Guardiola and City have won the race for Rosenborg's 18-year-old midfielder – here, we break down the deal`\
+https://nytimes.com/athletic/6428972/2025/07/17/sverre-nypan-to-manchester-city-details/
+
+**Israel Strike Destroys Catholic Church in Gaza**\
+`According to church officials, at least three people were killed and six others were injured when an Israeli strike hit the Holy Family Catholic Church compound in Gaza City on Thursday. The Israeli military is examining the incident.`\
+https://nytimes.com/video/world/middleeast/100000010290581/pope-calls-for-cease-fire-gaza-church-attack.html
+
 **Teen Arrested in Killing of Paddleboarder in Maine**\
 `Sunshine Stewart, 48, was found dead near 100 Acre Island after disappearing while paddle boarding in Union, Maine.`\
 https://nytimes.com/2025/07/17/us/maine-arrest-paddleboarder-homicide.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6500378/2025/07/17/colts-anthony-richardson-shoulde
 **Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
 `The sides avoided salary arbitration after Dostál was one of 11 players in the league to file for the process on July 5.`\
 https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
-
-**NFL won grievance vs. NFLPA over fake injuries in February, denies it hid ruling**\
-`While the grievance decision had not been reported publicly before Thursday, the league says it informed teams at its March league meeting. `\
-https://nytimes.com/athletic/6500152/2025/07/17/nfl-grievance-nflpa-fake-injuries/
-
-**Ketanji Brown Jackson Knows How to Get People’s Attention**\
-`Purists are freaking out over her informal locutions, but at least they’re taking notice.`\
-https://nytimes.com/2025/07/17/opinion/ketanji-brown-jackson-dissent-scotus.html
-
-**Elanga backs 'best in the world' Isak to block out 'noise' about his future**\
-`Isak has attracted interest from Liverpool but Elanga did not want to be drawn into where his friend's future may lie.`\
-https://nytimes.com/athletic/6499947/2025/07/17/newcastle-anthony-elanga-isak/
 

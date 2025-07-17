@@ -1,3 +1,15 @@
+**In the Trump Administration, Watchdogs Are Watching Their Backs**\
+`The president has fired or demoted over 20 inspectors general since he took office. Employees say they are demoralized and reluctant to pursue investigations that could prompt political blowback.`\
+https://nytimes.com/2025/07/17/us/politics/inspectors-general-trump.html
+
+**Sverre Nypan to Manchester City: Everything you need to know – TLDR**\
+`Pep Guardiola and City have won the race for Rosenborg's 18-year-old midfielder – here, we break down the deal`\
+https://nytimes.com/athletic/6428972/2025/07/17/sverre-nypan-to-manchester-city-details/
+
+**Israel Strike Destroys Catholic Church in Gaza**\
+`According to church officials, at least three people were killed and six others were injured when an Israeli strike hit the Holy Family Catholic Church compound in Gaza City on Thursday. The Israeli military is examining the incident.`\
+https://nytimes.com/video/world/middleeast/100000010290581/pope-calls-for-cease-fire-gaza-church-attack.html
+
 **Teen Arrested in Killing of Paddleboarder in Maine**\
 `Sunshine Stewart, 48, was found dead near 100 Acre Island after disappearing while paddle boarding in Union, Maine.`\
 https://nytimes.com/2025/07/17/us/maine-arrest-paddleboarder-homicide.html
