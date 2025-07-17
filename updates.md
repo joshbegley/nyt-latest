@@ -1,3 +1,7 @@
+**England vs Sweden Euro 2025 quarter-final odds, prediction: Can Lionesses repeat 2022?**\
+`England enters the knockout stage of Euro 2025 against a Sweden team that won all three group matches.`\
+https://nytimes.com/athletic/6495874/2025/07/17/england-sweden-euro-2025-odds-prediction/
+
 **How Every Senator Voted on Bid to Cancel Foreign Aid and Public Media Funding**\
 `The Senate voted 51 to 48 to reclaim spending previously approved by Congress.`\
 https://nytimes.com/interactive/2025/07/17/us/senate-rescissions-vote.html
