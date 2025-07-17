@@ -1,3 +1,43 @@
+**How Phillies first-rounder Gage Wood became an Arkansas baseball legend**\
+`Wood will be remembered for delivering one of the College World Series’ most dominant performances, elevating his home state in the process.`\
+https://nytimes.com/athletic/6498825/2025/07/17/gage-wood-phillies-draft-arkansas-baseball/
+
+**The Nebraska school producing an unusual number of FBS commits — including a future Alabama QB**\
+`Millard South’s roster is arguably the most loaded in Nebraska history and the team has a title mindset coming into next season.`\
+https://nytimes.com/athletic/6496816/2025/07/17/nebraska-hs-football-recruiting-millard-south/
+
+**NFL 2025 over/unders: Why we like Lions and Texans, plus Brock Purdy as MVP longshot**\
+`The Lions lost both of their coordinators and saw their Pro Bowl center retire. Which is exactly what happened to the Eagles last offseason.`\
+https://nytimes.com/athletic/6491260/2025/07/17/nfl-win-totals-bets-predictions-2025/
+
+**Ravens mailbag: O-line questions, Lamar Jackson's contract, John Harbaugh's strengths**\
+`Plus, will there be any coaching or personnel changes if Baltimore again falls short of reaching the Super Bowl this season?`\
+https://nytimes.com/athletic/6492190/2025/07/17/ravens-mailbag-lamar-jackson-john-harbaugh/
+
+**NL East 2025 draft report cards: Nats do well despite leadership shakeup; Phillies change course**\
+`The Marlins had an all-college draft, while Atlanta reached at pick 21 and the Mets found good value at 38.`\
+https://nytimes.com/athletic/6496017/2025/07/17/nl-east-draft-grades-picks-mlb-2025/
+
+**Casey Mize's long road from doubt to his first All-Star Game**\
+`In the darkness and in the quiet, Mize battled doubt, negative self-talk and times when it all ate at his psyche.`\
+https://nytimes.com/athletic/6498954/2025/07/17/detroit-tigers-casey-mize-new-path/
+
+**Craig Counsell’s Cubs arrive as World Series contenders, but those pesky Brewers won’t go away**\
+`For all that's gone right for the Cubs so far, Counsell's former team, the Brewers, are still breathing down their necks.`\
+https://nytimes.com/athletic/6498988/2025/07/17/craig-counsell-cubs-world-series-contenders-pesky-brewers/
+
+**AL West 2025 draft report cards: Top collegiate pitching dominates the division's classes**\
+`The Angels, A's and Mariners all took top college arms, while the Astros and Rangers picked up promising high school infielders.`\
+https://nytimes.com/athletic/6498639/2025/07/17/al-west-draft-grades-picks-2025-mlb/
+
+**Scylla and Charybdis? SchaefDaddy? NHL Nickname Court is in session**\
+`Modern hockey nicknames are terrible. Let’s see if your ideas are any better.`\
+https://nytimes.com/athletic/6495561/2025/07/17/nhl-nickname-court/
+
+**Should MLB's automated ball-strike system have a built-in buffer zone, union head wonders?**\
+`The ABS system was widely seen during the All-Star Game; also, updates on the number of minor league teams, and on Sunday Night Baseball. `\
+https://nytimes.com/athletic/6498492/2025/07/17/automated-ball-strike-buffer-zone-union/
+
 **Brighton's Enciso out for up to three months with knee injury that requires surgery**\
 `The Paraguay international is not part of head coach Fabian Hurzeler's plans for the coming season.`\
 https://nytimes.com/athletic/6499482/2025/07/17/brighton-news-enciso-injury-surgery/

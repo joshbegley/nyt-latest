@@ -1,3 +1,11 @@
+**Connie Francis, Whose Ballads Dominated ’60s Pop Music, Dies at 87**\
+`Ms. Francis, who had a natural way with a wide variety of material, ruled the charts with songs like “Who’s Sorry Now?” and “Don’t Break the Heart that Loves You.”`\
+https://nytimes.com/2025/07/17/obituaries/connie-francis-dead.html
+
+**Rosenthal: What I'm hearing about the MLB trade deadline with two weeks to go**\
+`The dinged-up Dodgers may look to add bullpen help while the O's, White Sox and Rays consider various courses of action. `\
+https://nytimes.com/athletic/6498964/2025/07/17/mlb-trade-deadline-dodgers-orioles-white-sox/
+
 **How Phillies first-rounder Gage Wood became an Arkansas baseball legend**\
 `Wood will be remembered for delivering one of the College World Series’ most dominant performances, elevating his home state in the process.`\
 https://nytimes.com/athletic/6498825/2025/07/17/gage-wood-phillies-draft-arkansas-baseball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6498988/2025/07/17/craig-counsell-cubs-world-series
 **AL West 2025 draft report cards: Top collegiate pitching dominates the division's classes**\
 `The Angels, A's and Mariners all took top college arms, while the Astros and Rangers picked up promising high school infielders.`\
 https://nytimes.com/athletic/6498639/2025/07/17/al-west-draft-grades-picks-2025-mlb/
-
-**Scylla and Charybdis? SchaefDaddy? NHL Nickname Court is in session**\
-`Modern hockey nicknames are terrible. Let’s see if your ideas are any better.`\
-https://nytimes.com/athletic/6495561/2025/07/17/nhl-nickname-court/
-
-**Should MLB's automated ball-strike system have a built-in buffer zone, union head wonders?**\
-`The ABS system was widely seen during the All-Star Game; also, updates on the number of minor league teams, and on Sunday Night Baseball. `\
-https://nytimes.com/athletic/6498492/2025/07/17/automated-ball-strike-buffer-zone-union/
 

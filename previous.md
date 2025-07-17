@@ -1,40 +1,40 @@
-**Brighton's Enciso out for up to three months with knee injury that requires surgery**\
-`The Paraguay international is not part of head coach Fabian Hurzeler's plans for the coming season.`\
-https://nytimes.com/athletic/6499482/2025/07/17/brighton-news-enciso-injury-surgery/
+**How Phillies first-rounder Gage Wood became an Arkansas baseball legend**\
+`Wood will be remembered for delivering one of the College World Series’ most dominant performances, elevating his home state in the process.`\
+https://nytimes.com/athletic/6498825/2025/07/17/gage-wood-phillies-draft-arkansas-baseball/
 
-**What is 'true' name, image and likeness? The courts might end up deciding**\
-`Schools are ready to embrace "normal" NIL: no pay-for-play deals. Even after the House settlement, challenges await. `\
-https://nytimes.com/athletic/6495752/2025/07/17/nil-college-sports-house-settlement-enforcement/
+**The Nebraska school producing an unusual number of FBS commits — including a future Alabama QB**\
+`Millard South’s roster is arguably the most loaded in Nebraska history and the team has a title mindset coming into next season.`\
+https://nytimes.com/athletic/6496816/2025/07/17/nebraska-hs-football-recruiting-millard-south/
 
-**They Grew Up on Mexican Coke. Trump’s Cane Sugar Plan Makes Them Uneasy.**\
-`After President Trump announced that Coke will be made with cane sugar in the U.S., as it is in Mexico, foodies of Mexican heritage said in interviews that they weren’t excited.`\
-https://nytimes.com/2025/07/17/us/coca-cola-trump-mexican-coke.html
+**NFL 2025 over/unders: Why we like Lions and Texans, plus Brock Purdy as MVP longshot**\
+`The Lions lost both of their coordinators and saw their Pro Bowl center retire. Which is exactly what happened to the Eagles last offseason.`\
+https://nytimes.com/athletic/6491260/2025/07/17/nfl-win-totals-bets-predictions-2025/
 
-**The Pulse: The most interesting player in college football**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6498102/2025/07/17/arch-manning-texas-the-pulse/
+**Ravens mailbag: O-line questions, Lamar Jackson's contract, John Harbaugh's strengths**\
+`Plus, will there be any coaching or personnel changes if Baltimore again falls short of reaching the Super Bowl this season?`\
+https://nytimes.com/athletic/6492190/2025/07/17/ravens-mailbag-lamar-jackson-john-harbaugh/
 
-**Acquittals Bring Samsung Chairman’s Decade of Legal Woes to an End**\
-`​The South Korean Supreme Court’s ruling dispels uncertainty​ over Lee Jae-yong’s leadership as the tech giant faces challenges from tariffs and chip making rivals.`\
-https://nytimes.com/2025/07/17/world/asia/samsung-lee-jaeyong-acquitted.html
+**NL East 2025 draft report cards: Nats do well despite leadership shakeup; Phillies change course**\
+`The Marlins had an all-college draft, while Atlanta reached at pick 21 and the Mets found good value at 38.`\
+https://nytimes.com/athletic/6496017/2025/07/17/nl-east-draft-grades-picks-mlb-2025/
 
-**Senate Approves Trump’s Cuts to Foreign Aid and Public Broadcasting**\
-`The 51-to-48 vote came over the objections of two Republicans. The House is expected to give final approval to the package later this week, sending it to Mr. Trump for his signature.`\
-https://nytimes.com/video/us/politics/100000010290207/senate-approves-trumps-cuts-to-foreign-aid-and-public-broadcasting.html
+**Casey Mize's long road from doubt to his first All-Star Game**\
+`In the darkness and in the quiet, Mize battled doubt, negative self-talk and times when it all ate at his psyche.`\
+https://nytimes.com/athletic/6498954/2025/07/17/detroit-tigers-casey-mize-new-path/
 
-**Who will run the W? Why the Fever lead our first-ever future franchise ranking**\
-`Our experts assess which franchises are built for future success ... and which have trouble ahead. `\
-https://nytimes.com/athletic/6498649/2025/07/17/wnba-franchises-brighest-futures-ranked/
+**Craig Counsell’s Cubs arrive as World Series contenders, but those pesky Brewers won’t go away**\
+`For all that's gone right for the Cubs so far, Counsell's former team, the Brewers, are still breathing down their necks.`\
+https://nytimes.com/athletic/6498988/2025/07/17/craig-counsell-cubs-world-series-contenders-pesky-brewers/
 
-**Liverpool advancing in talks with Frankfurt over Ekitike transfer**\
-`The proposed package to sign the 23-year-old striker is in excess of €80million (£69.2m; $92.7m).`\
-https://nytimes.com/athletic/6498763/2025/07/17/ekitike-liverpool-transfer/
+**AL West 2025 draft report cards: Top collegiate pitching dominates the division's classes**\
+`The Angels, A's and Mariners all took top college arms, while the Astros and Rangers picked up promising high school infielders.`\
+https://nytimes.com/athletic/6498639/2025/07/17/al-west-draft-grades-picks-2025-mlb/
 
-**'It's a pretty cool atmosphere right now': Inside the Blue Jays' improbable revival**\
-`"Since I've been here, this is one of the best years that I've been in the clubhouse," Vladimir Guerrero Jr. says.`\
-https://nytimes.com/athletic/6499125/2025/07/17/toronto-blue-jays-culture-change/
+**Scylla and Charybdis? SchaefDaddy? NHL Nickname Court is in session**\
+`Modern hockey nicknames are terrible. Let’s see if your ideas are any better.`\
+https://nytimes.com/athletic/6495561/2025/07/17/nhl-nickname-court/
 
-**Israel, Mixing Force With Diplomacy, Takes ‘Discordant’ Approach to Syria**\
-`For weeks, Israel has engaged in back-channel talks over a diplomatic agreement with the Syrian government. Its strikes on Damascus this week highlight a lack of strategic clarity.`\
-https://nytimes.com/2025/07/17/world/israel-syria-druse-diplomacy.html
+**Should MLB's automated ball-strike system have a built-in buffer zone, union head wonders?**\
+`The ABS system was widely seen during the All-Star Game; also, updates on the number of minor league teams, and on Sunday Night Baseball. `\
+https://nytimes.com/athletic/6498492/2025/07/17/automated-ball-strike-buffer-zone-union/
 
