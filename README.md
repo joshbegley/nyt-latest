@@ -1,3 +1,19 @@
+**F.D.A. Approves Juul Vapes After Yearslong Delay**\
+`The company was accused of marketing its products to teenagers, causing a surge in use.`\
+https://nytimes.com/2025/07/17/health/fda-juul.html
+
+**Jane’s Addiction Members Sue One Another After Onstage Fight**\
+`The rock band’s singer confronted its guitarist during a show last year, leading to the cancellation of its reunion tour.`\
+https://nytimes.com/2025/07/17/arts/music/janes-addiction-lawsuit-perry-farrell-dave-navarro.html
+
+**Heavy Rain in Kansas City Area Leads to Road Rescues**\
+`More than eight inches of rain fell in some parts of the Kansas City area overnight, meteorologists said.`\
+https://nytimes.com/video/weather/100000010291091/flash-flooding-kansas-city-missouri.html
+
+**Colts QB Anthony Richardson has resumed throwing: Source**\
+`Indianapolis Colts quarterback Anthony Richardson has resumed throwing, a league source told The Athletic on Thursday.`\
+https://nytimes.com/athletic/6500378/2025/07/17/colts-anthony-richardson-shoulder-daniel-jones/
+
 **Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
 `The two sides avoided salary arbitration after the 25-year-old Dostál was one of 11 players in the league to file for the process on July 5.`\
 https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6500422/2025/07/17/chargers-receiver-mike-williams-
 **Fired D.E.I. Administrator Sues the University of Michigan**\
 `In her lawsuit, Rachel Dawson denies making antisemitic remarks and accuses the school of racial bias in its investigation and decision-making.`\
 https://nytimes.com/2025/07/17/us/university-michigan-lawsuit-dei-firing-rachel-dawson.html
-
-**Caitlin Clark's absence from All-Star Game will cast a shadow over Indiana's showcase event**\
-`Clark was set to hold court in Indianapolis. Another injury has marred a special moment for the Indiana Fever guard. `\
-https://nytimes.com/athletic/6500426/2025/07/17/caitlin-clark-injury-all-star-game-absence/
-
-**Snoop Dogg becomes co-owner of Welsh soccer club Swansea City**\
-`The Welsh club confirmed the 53-year-old rapper's investment on Thursday.`\
-https://nytimes.com/athletic/6500102/2025/07/17/snoop-dogg-swansea-investment/
-
-**Rashee Rice likely facing suspension after pleading guilty to 2024 crash charges**\
-`Rice pleaded guilty to two third-degree felony charges, including collision involving serious bodily injury and racing on a highway. `\
-https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-suspension/
-
-**Here’s How Congress Is Wading Into Crypto Regulation**\
-`The House this week took up a trio of bills that would establish a federal framework for regulating the cryptocurrency industry. One of the measures is about to clear Congress and become law.`\
-https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html
 
