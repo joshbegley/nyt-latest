@@ -1,3 +1,7 @@
+**Why most 2025 NFL second-round picks are unsigned: Who's involved, did first domino just fall?**\
+`Thirty of the NFL's 32 second-round picks remain unsigned as training camps begin to open. How will it get resolved? `\
+https://nytimes.com/athletic/6498455/2025/07/16/nfl-draft-second-round-picks-unsigned-explained/
+
 **Von Miller, Washington Commanders finalizing 1-year deal: Reports**\
 `The Buffalo Bills released Miller in March after signing him to a six-year, $120 million deal ahead of the 2022-23 season.`\
 https://nytimes.com/athletic/6499101/2025/07/16/von-miller-washington-commanders-signing-reports/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.htm
 **Nadler and Duffy in Tense Exchange Over N.Y.C. Subway Safety**\
 `Representative Jerrold Nadler of New York, a member of the House transportation committee, and Transportation Secretary Sean Duffy argued over subway safety statistics during a hearing on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010288537/sean-duffy-jerrold-nadler-nyc-subway.html
-
-**Trump Has Promised More Tariffs on Mexico. What Happens Next?**\
-`President Trump has threatened to increase Mexico’s tariff rate to 30 percent starting Aug. 1, claiming the country hasn’t sufficiently tackled drug cartels.`\
-https://nytimes.com/2025/07/16/world/americas/trump-tariffs-mexico-cartels.html
 
