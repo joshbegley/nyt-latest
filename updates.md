@@ -1,3 +1,19 @@
+**‘Crypto Week’ Is Back on Track After House G.O.P. Quells Conservative Revolt**\
+`The House is set to vote on a series of high-stakes bills backed by the cryptocurrency industry, after top Republicans brokered a deal with a group of dissenters in their ranks.`\
+https://nytimes.com/2025/07/17/technology/crypto-week-is-back-on-track-after-house-gop-quells-conservative-revolt.html
+
+**Substack Raises $100 Million, Betting on Subscriptions but Coming Around to Ads**\
+`Substack, originally a newsletter service, says its app now has millions of users interacting with its creators.`\
+https://nytimes.com/2025/07/17/business/substack-fundraising-social-network.html
+
+**Hennessey joins Forest coaching staff after retiring**\
+`The former Wales international will form part of the club’s goalkeeping department, working under Rui Barbosa.`\
+https://nytimes.com/athletic/6499810/2025/07/17/wayne-hennessey-nottingham-forest-coach/
+
+**Syria’s President Condemns Israel After It Struck the Country’s Capital**\
+`Israel launched airstrikes against targets in Syria in Wednesday, following days of sectarian violence in the southern region of Sweida that has killed more than 500.`\
+https://nytimes.com/video/world/middleeast/100000010290292/syria-israel-damascus-druse-sweida.html
+
 **The U.K. Plans to Lower the Voting Age to 16. Here’s What to Know.**\
 `A guide to what’s being described as Britain’s largest expansion of voting rights in decades.`\
 https://nytimes.com/2025/07/17/world/europe/uk-voting-age-16.html

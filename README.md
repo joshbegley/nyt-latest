@@ -1,3 +1,7 @@
+**Villa agree deal to sign defender Cisse from LASK**\
+`The 19-year-old will return to the Austrian club on loan for the upcoming season. `\
+https://nytimes.com/athletic/6499809/2025/07/17/aston-villa-transfers-modou-keba-cisse/
+
 **‘Crypto Week’ Is Back on Track After House G.O.P. Quells Conservative Revolt**\
 `The House is set to vote on a series of high-stakes bills backed by the cryptocurrency industry, after top Republicans brokered a deal with a group of dissenters in their ranks.`\
 https://nytimes.com/2025/07/17/technology/crypto-week-is-back-on-track-after-house-gop-quells-conservative-revolt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498899/2025/07/17/nascars-2026-schedule-mexico-cit
 **Man Utd make improved offer for Mbeumo**\
 `The latest proposal is awaiting a response from the London club.`\
 https://nytimes.com/athletic/6456945/2025/07/17/manchester-united-bryan-mbeumo-bid/
-
-**Harvard Creates New Public Service Program, as Trump Slashes Federal Jobs**\
-`The Kennedy School will award scholarships to at least 50 students, in hopes of fostering careers in government service.`\
-https://nytimes.com/2025/07/17/us/harvard-public-service-scholarships-american-service-fellowship.html
 
