@@ -1,3 +1,7 @@
+**The Pulse: The most interesting player in college football**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6498102/2025/07/17/arch-manning-texas-the-pulse/
+
 **Acquittals Bring Samsung Chairman’s Decade of Legal Woes to an End**\
 `​The South Korean Supreme Court’s ruling dispels uncertainty​ over Lee Jae-yong’s leadership as the tech giant faces challenges from tariffs and chip making rivals.`\
 https://nytimes.com/2025/07/17/world/asia/samsung-lee-jaeyong-acquitted.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6497494/2025/07/17/jules-bianchi-anniversary/
 **This Week in Sports Trivia: July 17, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6498641/2025/07/17/this-week-in-sports-trivia-july-17-2025/
-
-**Ranking college hoops' 25 best teams since 2000 that didn't win a national title**\
-`Great college basketball teams often see their dreams denied in the volatile environment that is March Madness.`\
-https://nytimes.com/athletic/6496158/2025/07/17/college-basketball-rankings-best-teams-without-title/
 
