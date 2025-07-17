@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Appeals Court Nominee at Center of Immigration Crackdown Is Set to Face Vote**\
+``\
+https://nytimes.com/live/2025/07/17/us/trump-news-updates
+
 **Shelbourne, Linfield and a tale of two Irish champions in the Champions League**\
 `The best teams north and south of the Irish border met in the first qualifying round - a draw that had provoked some anxiety`\
 https://nytimes.com/athletic/6499340/2025/07/17/shelbourne-linfield-champions-league-cross-border-ireland/
