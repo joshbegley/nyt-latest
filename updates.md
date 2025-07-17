@@ -1,3 +1,11 @@
+**Corrections: July 17, 2025**\
+`Corrections that appeared in print on Thursday, July 17, 2025.`\
+https://nytimes.com/2025/07/16/pageoneplus/corrections-july-17-2025.html
+
+**Quote of the Day: Uncertainty Confronts Afghans Ousted in a Crackdown by Iran**\
+`Quotation of the Day for Thursday, July 17, 2025.`\
+https://nytimes.com/2025/07/16/pageoneplus/quote-of-the-day-uncertainty-confronts-afghans-ousted-in-a-crackdown-by-iran.html
+
 **Von Miller, Washington Commanders finalizing 1-year deal: Source**\
 `The Buffalo Bills released Miller in March after signing him to a six-year, $120 million deal ahead of the 2022-23 season.`\
 https://nytimes.com/athletic/6499101/2025/07/16/von-miller-washington-commanders-signing-reports/

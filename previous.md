@@ -1,3 +1,11 @@
+**Corrections: July 17, 2025**\
+`Corrections that appeared in print on Thursday, July 17, 2025.`\
+https://nytimes.com/2025/07/16/pageoneplus/corrections-july-17-2025.html
+
+**Quote of the Day: Uncertainty Confronts Afghans Ousted in a Crackdown by Iran**\
+`Quotation of the Day for Thursday, July 17, 2025.`\
+https://nytimes.com/2025/07/16/pageoneplus/quote-of-the-day-uncertainty-confronts-afghans-ousted-in-a-crackdown-by-iran.html
+
 **Canadian Retailer Abandons Its Quest for 7-Eleven**\
 `Alimentation Couche-Tard’s $47 billion bid spurred changes at the chain’s Japanese owner. Now, the question is whether that momentum will carry forward.`\
 https://nytimes.com/2025/07/16/business/7-eleven-japan-couche-tard.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/trump-coca-cola-cane-sugar.html
 **N.Y.C. Panel Withdraws Proposal to Switch to Open Primaries**\
 `The panel, created by Mayor Eric Adams, said it would introduce other ballot initiatives, but not a proposal that would allow all voters to participate in primaries regardless of party.`\
 https://nytimes.com/2025/07/16/nyregion/new-york-open-primary-elections.html
-
-**Lightning Kills 1 and Injures 13 on Archery Range in New Jersey**\
-`The victims range in age from 7 to 61, according to the authorities.`\
-https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
-
-**Broadway’s ‘Gypsy’ Revival, Starring Audra McDonald, Will Close**\
-`The show is the sixth musical to announce a closing date since last month’s Tony Awards, reflecting financial challenges facing producers.`\
-https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.html
 
