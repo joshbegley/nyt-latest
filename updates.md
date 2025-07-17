@@ -1,3 +1,7 @@
+**Lightning Kills 1 and Injures 13 on Archery Range in New Jersey, Police Say**\
+`The victims range in age from 7 to 61, according to the authorities.`\
+https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
+
 **Broadway’s ‘Gypsy’ Revival, Starring Audra McDonald, Will Close**\
 `The show is the sixth musical to announce a closing date since last month’s Tony Awards, reflecting financial challenges facing producers.`\
 https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.html
