@@ -1,3 +1,7 @@
+**Snoop Dogg becomes co-owner of Welsh soccer club Swansea City**\
+`The Welsh club confirmed the 53-year-old rapper's investment on Thursday.`\
+https://nytimes.com/athletic/6500102/2025/07/17/snoop-dogg-swansea-investment/
+
 **Rashee Rice likely facing suspension after pleading guilty to 2024 crash charges**\
 `Rice pleaded guilty to two third-degree felony charges, including collision involving serious bodily injury and racing on a highway. `\
 https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-suspension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500245/2025/07/17/caitlin-clark-out-wnba-all-star-
 **‘Bonjour’ Sets Off a Linguistic Dispute on a Belgian Train**\
 `The rules can get complicated in a country with French, Dutch and German as official languages.`\
 https://nytimes.com/2025/07/17/world/europe/bonjour-belgian-train.html
-
-**Drew Brees to be game analyst for Netflix's Christmas Day game: Sources**\
-`Brees will be on the domestic broadcast for either the Cowboys-Commanders or Lions-Vikings games.`\
-https://nytimes.com/athletic/6500186/2025/07/17/drew-brees-analyst-netflix-christmas-game-nfl/
 
