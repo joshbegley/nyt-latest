@@ -1,3 +1,11 @@
+**Ons Jabeur steps back from tennis to 'rediscover the joy of simply living'**\
+`The Tunisian reached the Wimbledon final in 2022 and 2023 but retired in the first round of this year's tournament.`\
+https://nytimes.com/athletic/6499942/2025/07/17/tennis-ons-jabeur-step-back/
+
+**Prosecutor Fired by Trump Calls Fear the ‘Tool of the Tyrant’**\
+`Maurene Comey, who helped prosecute Jeffrey Epstein and Sean Combs, was dismissed without a detailed explanation. She is the daughter of James B. Comey, a longtime adversary of President Trump.`\
+https://nytimes.com/2025/07/17/nyregion/maurene-comey-fired-trump.html
+
 **Heavy Rain Floods Kansas City Area, Prompting Overnight Rescues**\
 `Firefighters waded through waist-deep water to rescue people from nearly two dozen cars, officials said.`\
 https://nytimes.com/2025/07/17/us/kansas-city-missouri-flooding.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/17/dining/charlie-bird-farro-salad-recipe-and-more-s
 **This Democrat Won’t Let Go of the Jeffrey Epstein Case, Either**\
 `Senator Ron Wyden has found that four banks waited until Mr. Epstein’s arrest on federal charges to flag $1.5 billion in suspicious transactions. Mr. Wyden wants the documents made public.`\
 https://nytimes.com/2025/07/17/business/epstein-banks-wyden-trump.html
-
-**Shopping Mall Fire Kills at Least 61 in Iraq**\
-`Local officials said that the scale of the tragedy was worsened by shoddy construction and a lack of preparedness.`\
-https://nytimes.com/video/world/middleeast/100000010290389/deadly-shopping-mall-fire-iraq.html
-
-**All Aboard a Steam Train to See ‘The Railway Children’**\
-`The smells and sounds of locomotive travel get the audience in the mood for a theatrical adaptation of the beloved children’s book.`\
-https://nytimes.com/2025/07/17/theater/the-railway-children-steam-train-keighley.html
 
