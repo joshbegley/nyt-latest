@@ -1,3 +1,7 @@
+**Sol Stern, Lapsed Liberal and Conservative Heretic, Dies at 89**\
+`He broke with the left over its criticism of Israel and what he saw as its anti-Americanism. But he also became a critic of Donald Trump.`\
+https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
+
 **‘The Porter’ Is a Rich Period Drama About Labor and Dignity**\
 `The series is substantive, well crafted and a little melancholy, centered on a group of Black train porters in Canada in the 1920s.`\
 https://nytimes.com/2025/07/17/arts/television/the-porter-bet-cbc.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/17/us/trump-doctor-letter.html
 **Storms Crawling Along the Gulf Coast Are Raising the Risk of Flooding**\
 `A tropical disturbance is bringing heavy rain as it moves west through Louisiana and Mississippi.`\
 https://nytimes.com/2025/07/17/weather/new-orleans-flooding-forecast-louisiana.html
-
-**Spain team news: Bonmati says she is '100 per cent physically' after meningitis diagnosis**\
-`The Ballon d'Or winner was diagnosed with viral meningitis before the Euros but has played in every match so far.`\
-https://nytimes.com/athletic/6500677/2025/07/17/spain-team-news-euro-2025-bonmati-injury/
 
