@@ -34,7 +34,3 @@ https://nytimes.com/2025/07/17/climate/epa-toxic-coal-ash-cleanup.html
 `China has been displaying intellectual and innovative vitality for decades and the United States has scarcely mobilized.`\
 https://nytimes.com/2025/07/17/opinion/trump-america-china.html
 
-**Canucks trade Dakota Joshua to Maple Leafs for fourth-round pick**\
-`The forward was originally drafted by Toronto in 2014 and has three years remaining on his contract with a $3.25 million cap hit.`\
-https://nytimes.com/athletic/6500803/2025/07/17/canucks-dakota-joshua-maple-leafs-trade/
-
