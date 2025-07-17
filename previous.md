@@ -1,3 +1,7 @@
+**Will Investors Ever Believe Trump’s Threats Against Powell?**\
+`President Trump has become more hostile to the Federal Reserve’s chair. Markets aren’t worried yet, but some on Wall Street are getting more concerned.`\
+https://nytimes.com/2025/07/17/business/dealbook/trump-powell-fed.html
+
 **Trump Administration Live Updates: Appeals Court Pick at Center of Immigration Crackdown to Face Committee Vote**\
 ``\
 https://nytimes.com/live/2025/07/17/us/trump-news-updates
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317512/2025/07/17/junior-firpo-betis-leeds-transfe
 **TAFC: First £1m women's player; Liverpool's Ekitike talks; language of a transfer 'saga'**\
 `Today in TAFC: What Smith's move means for the women's game, Liverpool's Ekitike approach, and the language of a football transfer 'saga'`\
 https://nytimes.com/athletic/6499338/2025/07/17/olivia-smith-1m-womens-player-ekitike-liverpool-transfers/
-
-**Arsenal working on deal for Salford City forward Will Wright**\
-`The pursuit of Wright is part of academy manager Per Mertesacker’s drive to recruit elite talent.`\
-https://nytimes.com/athletic/6499436/2025/07/17/arsenal-transfer-salford-city-will-wright/
 

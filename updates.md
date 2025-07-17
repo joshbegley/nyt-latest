@@ -1,3 +1,7 @@
+**Will Investors Ever Believe Trump’s Threats Against Powell?**\
+`President Trump has become more hostile to the Federal Reserve’s chair. Markets aren’t worried yet, but some on Wall Street are getting more concerned.`\
+https://nytimes.com/2025/07/17/business/dealbook/trump-powell-fed.html
+
 **Trump Administration Live Updates: Appeals Court Pick at Center of Immigration Crackdown to Face Committee Vote**\
 ``\
 https://nytimes.com/live/2025/07/17/us/trump-news-updates
