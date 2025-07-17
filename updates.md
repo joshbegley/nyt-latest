@@ -1,3 +1,7 @@
+**Canadian Retailer Abandons Its Quest for 7-Eleven**\
+`Alimentation Couche-Tard’s $47 billion bid spurred changes at the chain’s Japanese owner. Now, the question is whether that momentum will carry forward.`\
+https://nytimes.com/2025/07/16/business/7-eleven-japan-couche-tard.html
+
 **Why most 2025 NFL second-round picks are unsigned: Who's involved, did first domino just fall?**\
 `Thirty of the NFL's 32 second-round picks remain unsigned as training camps begin to open. How will it get resolved? `\
 https://nytimes.com/athletic/6498455/2025/07/16/nfl-draft-second-round-picks-unsigned-explained/

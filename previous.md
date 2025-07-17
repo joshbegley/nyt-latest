@@ -1,3 +1,7 @@
+**Canadian Retailer Abandons Its Quest for 7-Eleven**\
+`Alimentation Couche-Tard’s $47 billion bid spurred changes at the chain’s Japanese owner. Now, the question is whether that momentum will carry forward.`\
+https://nytimes.com/2025/07/16/business/7-eleven-japan-couche-tard.html
+
 **Why most 2025 NFL second-round picks are unsigned: Who's involved, did first domino just fall?**\
 `Thirty of the NFL's 32 second-round picks remain unsigned as training camps begin to open. How will it get resolved? `\
 https://nytimes.com/athletic/6498455/2025/07/16/nfl-draft-second-round-picks-unsigned-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
 **Broadway’s ‘Gypsy’ Revival, Starring Audra McDonald, Will Close**\
 `The show is the sixth musical to announce a closing date since last month’s Tony Awards, reflecting financial challenges facing producers.`\
 https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.html
-
-**Nadler and Duffy in Tense Exchange Over N.Y.C. Subway Safety**\
-`Representative Jerrold Nadler of New York, a member of the House transportation committee, and Transportation Secretary Sean Duffy argued over subway safety statistics during a hearing on Wednesday.`\
-https://nytimes.com/video/us/politics/100000010288537/sean-duffy-jerrold-nadler-nyc-subway.html
 
