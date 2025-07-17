@@ -1,3 +1,7 @@
+**Senate Approves Trump’s Bid to Cancel Foreign Aid and Public Broadcast Funds**\
+`The bill to claw back $9 billion in congressionally approved spending passed over the objections of Republicans who said it abdicated the legislative branch’s power of the purse.`\
+https://nytimes.com/2025/07/17/us/politics/senate-vote-trump-bill-pbs-npr-foreign-aid.html
+
 **Has Japan’s ‘Rice Minister’ Brought Down Prices Enough to Save His Party?**\
 `Shinjiro Koizumi has scrambled to cut soaring rice prices ahead of a high-stakes election this weekend. Will it be enough to buoy support for the Liberal Democratic Party?`\
 https://nytimes.com/2025/07/17/business/japan-election-rice-koizumi.html
