@@ -1,3 +1,11 @@
+**Republicans on Senate Panel Vote to Advance Bove’s Nomination After Democrats Storm Out**\
+`An even more intense battle is expected on the Senate floor over the nomination of a Trump immigration policy enforcer to a lifetime judicial post.`\
+https://nytimes.com/2025/07/17/us/politics/emil-bove-judge-nomination-democrats.html
+
+**Yegor Chinakhov requests trade from Blue Jackets, cites 'misunderstandings' with coach**\
+`Columbus GM Don Waddell said he was already aware of the trade request, but was surprised Chinakhov's agent, Shumi Babaev, went public.`\
+https://nytimes.com/athletic/6500013/2025/07/17/yegor-chinakhov-blue-jackets-trade-request/
+
 **A Brooklyn Brownstone That Channels ‘The Garden of Earthly Delights’**\
 `The interior designer Nick Spain added jewel-toned colors and botanical prints to a Cobble Hill home with literary history.`\
 https://nytimes.com/2025/07/17/t-magazine/paula-fox-brooklyn-home.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/weather/100000010290569/flash-flooding-kansas-city-mis
 **Leeds' Bijol suspended for Premier League opener**\
 `Bijol's ban leaves Daniel Farke with Joe Rodon, Pascal Struijk and Sebastiaan Bornauw as centre-back options for the visit of Everton.`\
 https://nytimes.com/athletic/6499946/2025/07/17/jaka-bijol-leeds-ban/
-
-**Trump’s Attack on the Fed Ripples Through the Global Economy**\
-`The independence of central banks, which allows policymakers to operate free from political meddling, is considered sacrosanct by investors and economists.`\
-https://nytimes.com/2025/07/17/business/trump-powell-fed-global-reaction.html
-
-**Aitana Bonmati interview: 'I found myself in a situation of suffering. You feel alone'**\
-`The Ballon d'Or winner talks in depth about the shock of being told she had meningitis shortly before the start of the Euros`\
-https://nytimes.com/athletic/6499795/2025/07/17/aitana-bonmati-interview-meningitis/
 

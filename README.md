@@ -1,3 +1,11 @@
+**Thunderstorms Nearby? How to Stay Safe When Lightning Strikes**\
+`Summer is a busy time for lighting strikes, which kill about 20 people and injure many others across the United States each year, officials said.`\
+https://nytimes.com/2025/07/17/us/lightning-safety-tips.html
+
+**Stan Douglas and the Double Life of Images**\
+`One of the most intelligent artists in North America finally gets the retrospective he deserves.`\
+https://nytimes.com/2025/07/17/arts/design/stan-douglas-bard-film-photography-ghostlight.html
+
 **Republicans on Senate Panel Vote to Advance Bove’s Nomination After Democrats Storm Out**\
 `An even more intense battle is expected on the Senate floor over the nomination of a Trump immigration policy enforcer to a lifetime judicial post.`\
 https://nytimes.com/2025/07/17/us/politics/emil-bove-judge-nomination-democrats.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/07/17/weather/kansas-city-missouri-flooding.html
 **Heavy Rain in Kansas Leads to Flash Flood Emergency Alerts**\
 `Floodwaters from heavy rains rushed down a residential street in Shawnee, Kan., a suburb of Kansas City.`\
 https://nytimes.com/video/weather/100000010290569/flash-flooding-kansas-city-missouri.html
-
-**Leeds' Bijol suspended for Premier League opener**\
-`Bijol's ban leaves Daniel Farke with Joe Rodon, Pascal Struijk and Sebastiaan Bornauw as centre-back options for the visit of Everton.`\
-https://nytimes.com/athletic/6499946/2025/07/17/jaka-bijol-leeds-ban/
 

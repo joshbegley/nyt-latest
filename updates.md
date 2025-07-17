@@ -1,3 +1,11 @@
+**Republicans on Senate Panel Vote to Advance Bove’s Nomination After Democrats Storm Out**\
+`An even more intense battle is expected on the Senate floor over the nomination of a Trump immigration policy enforcer to a lifetime judicial post.`\
+https://nytimes.com/2025/07/17/us/politics/emil-bove-judge-nomination-democrats.html
+
+**Yegor Chinakhov requests trade from Blue Jackets, cites 'misunderstandings' with coach**\
+`Columbus GM Don Waddell said he was already aware of the trade request, but was surprised Chinakhov's agent, Shumi Babaev, went public.`\
+https://nytimes.com/athletic/6500013/2025/07/17/yegor-chinakhov-blue-jackets-trade-request/
+
 **A Brooklyn Brownstone That Channels ‘The Garden of Earthly Delights’**\
 `The interior designer Nick Spain added jewel-toned colors and botanical prints to a Cobble Hill home with literary history.`\
 https://nytimes.com/2025/07/17/t-magazine/paula-fox-brooklyn-home.html
