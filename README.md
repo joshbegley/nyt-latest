@@ -1,3 +1,7 @@
+**Archery Club Used to ‘Nasty Storms’ Reels From Fatal Lightning Strike**\
+`The bolt struck local archers and a boy scout troop in New Jersey, killing one man and injuring at least 13 other people. Friends of the victims said the strike had come out of nowhere.`\
+https://nytimes.com/2025/07/17/nyregion/lightning-strike-jackson-nj-archery.html
+
 **Friday Briefing: Bloodshed in a Syrian City**\
 `Plus, panic-buying Korean beauty products`\
 https://nytimes.com/2025/07/17/briefing/syria-israel-uk-voting-us-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
 **‘The Porter’ Is a Rich Period Drama About Labor and Dignity**\
 `The series is substantive, well crafted and a little melancholy, centered on a group of Black train porters in Canada in the 1920s.`\
 https://nytimes.com/2025/07/17/arts/television/the-porter-bet-cbc.html
-
-**Heat Season Is Off to a Roaring Start**\
-`Temperatures are scorching, and they probably haven’t peaked yet.`\
-https://nytimes.com/2025/07/17/climate/climate-forward-extreme-heat.html
 
