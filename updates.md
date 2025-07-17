@@ -1,3 +1,7 @@
+**This Democrat Won’t Let Go of the Jeffrey Epstein Case, Either**\
+`Senator Ron Wyden has found that four banks waited until Mr. Epstein’s arrest on federal charges to flag $1.5 billion in suspicious transactions. Mr. Wyden wants the documents made public.`\
+https://nytimes.com/2025/07/17/business/epstein-banks-wyden-trump.html
+
 **Shopping Mall Fire Kills at Least 61 in Iraq**\
 `Local officials said that the scale of the tragedy was worsened by shoddy construction and a lack of preparedness.`\
 https://nytimes.com/video/world/middleeast/100000010290389/deadly-shopping-mall-fire-iraq.html
