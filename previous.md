@@ -1,3 +1,7 @@
+**N.Y.C. Panel Withdraws Proposal to Switch to Open Primaries**\
+`The panel, created by Mayor Eric Adams, said it would introduce other ballot initiatives, but not a proposal that would allow all voters to participate in primaries regardless of party.`\
+https://nytimes.com/2025/07/16/nyregion/new-york-open-primary-elections.html
+
 **Lightning Kills 1 and Injures 13 on Archery Range in New Jersey, Police Say**\
 `The victims range in age from 7 to 61, according to the authorities.`\
 https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/kilmar-abrego-garcia-trump-deportatio
 **Central Oregon Wildfire Grows to More Than 60,000 Acres**\
 `Gov. Tina Kotek of Oregon issued an emergency declaration on Wednesday as the Cram fire threatened about 430 structures, including nearly 300 homes.`\
 https://nytimes.com/2025/07/16/us/cam-wildfire-oregon-emergency.html
-
-**Vance Tries to Sell the Benefits of Trump’s Megabill but Ignores the Costs**\
-`In a visit to Pennsylvania, Vice President JD Vance stressed tax cuts and savings accounts for newborns, with no mention of trims to Medicaid and nutritional assistance programs many Trump voters rely on.`\
-https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.html
 

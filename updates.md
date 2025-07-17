@@ -1,3 +1,7 @@
+**N.Y.C. Panel Withdraws Proposal to Switch to Open Primaries**\
+`The panel, created by Mayor Eric Adams, said it would introduce other ballot initiatives, but not a proposal that would allow all voters to participate in primaries regardless of party.`\
+https://nytimes.com/2025/07/16/nyregion/new-york-open-primary-elections.html
+
 **Lightning Kills 1 and Injures 13 on Archery Range in New Jersey, Police Say**\
 `The victims range in age from 7 to 61, according to the authorities.`\
 https://nytimes.com/2025/07/16/us/lightning-strike-new-jersey.html
