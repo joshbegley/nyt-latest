@@ -1,3 +1,11 @@
+**Scrapbooks, broken lasers and bees: Sweden's Peter Gerhardsson is the Euros most eccentric manager**\
+`Sweden face England in a Euro 2025 quarter-final on Thursday`\
+https://nytimes.com/athletic/6497808/2025/07/17/sweden-peter-gerhardsson-england-euro-2025/
+
+**Philipp Lahm: The Club World Cup and what happens next**\
+`From squad demands to changing global temperatures, the tournament opened up different thoughts on the future of football`\
+https://nytimes.com/athletic/6494865/2025/07/17/philipp-lahm-club-world-cup-next/
+
 **Football Architects: How Croatia became world football’s great overperformers**\
 `Exploring the philosophy that does enabled a small European nation to punch way above their weight`\
 https://nytimes.com/athletic/6445372/2025/07/17/football-architects-croatia-football-overperformers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6497670/2025/07/17/leeds-germany-pre-season-tour-be
 **China’s Aircraft Carriers Push Into Waters Long Dominated by U.S.**\
 `Recent drills near Japan reflect China’s ambitions to extend its navy’s reach and exert greater influence, in the Pacific and beyond.`\
 https://nytimes.com/2025/07/17/world/asia/china-carriers-us-japan.html
-
-**German and U.K. Leaders Meet to Cement Ties as America Steps Back**\
-`Chancellor Friedrich Merz’s trip to London on Thursday is the latest sign of a new world order, in which European nations are uniting amid growing instability.`\
-https://nytimes.com/2025/07/17/world/europe/germany-uk-merz-starmer-meeting.html
-
-**A Year’s Worth of Mascara? Fans of Korean Beauty Stock Up as Tariffs Loom**\
-`American consumers of Korean cosmetics and skin-care products are bulk buying, as President Trump threatens 25 percent tariffs on imports.`\
-https://nytimes.com/2025/07/17/world/asia/kbeauty-korea-skincare-trump-tariffs.html
 
