@@ -1,3 +1,11 @@
+**Fired D.E.I. Administrator Sues the University of Michigan**\
+`In her lawsuit, Rachel Dawson denies making antisemitic remarks and accuses the school of racial bias in its investigation and decision-making.`\
+https://nytimes.com/2025/07/17/us/university-michigan-lawsuit-dei-firing-rachel-dawson.html
+
+**Caitlin Clark's absence from All-Star Game will cast a shadow over Indiana's showcase event**\
+`Clark was set to hold court in Indianapolis. Another injury has marred a special moment for the Indiana Fever guard. `\
+https://nytimes.com/athletic/6500426/2025/07/17/caitlin-clark-injury-all-star-game-absence/
+
 **Snoop Dogg becomes co-owner of Welsh soccer club Swansea City**\
 `The Welsh club confirmed the 53-year-old rapper's investment on Thursday.`\
 https://nytimes.com/athletic/6500102/2025/07/17/snoop-dogg-swansea-investment/
