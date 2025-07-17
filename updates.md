@@ -1,3 +1,7 @@
+**Von Miller, Washington Commanders finalizing 1-year deal: Source**\
+`The Buffalo Bills released Miller in March after signing him to a six-year, $120 million deal ahead of the 2022-23 season.`\
+https://nytimes.com/athletic/6499101/2025/07/16/von-miller-washington-commanders-signing-reports/
+
 **Why most 2025 NFL second-round picks are unsigned: Who's involved, did first domino just fall?**\
 `The 49ers' Alfred Collins on Wednesday became the first second-round pick this year to sign for less than 100 percent guaranteed.`\
 https://nytimes.com/athletic/6498455/2025/07/16/nfl-draft-second-round-picks-unsigned-explained/
