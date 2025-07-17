@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Appeals Court Pick at Center of Immigration Crackdown to Face Committee Vote**\
+``\
+https://nytimes.com/live/2025/07/17/us/trump-news-updates
+
 **Trump Administration Live Updates: Appeals Court Nominee at Center of Immigration Crackdown Is Set to Face Vote**\
 ``\
 https://nytimes.com/live/2025/07/17/us/trump-news-updates
