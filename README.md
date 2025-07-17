@@ -15,7 +15,7 @@ https://nytimes.com/video/weather/100000010291091/flash-flooding-kansas-city-mis
 https://nytimes.com/athletic/6500378/2025/07/17/colts-anthony-richardson-shoulder-daniel-jones/
 
 **Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
-`The two sides avoided salary arbitration after the 25-year-old Dostál was one of 11 players in the league to file for the process on July 5.`\
+`The sides avoided salary arbitration after Dostál was one of 11 players in the league to file for the process on July 5.`\
 https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
 
 **NFL won grievance vs. NFLPA over fake injuries in February, denies it hid ruling**\

@@ -1,3 +1,19 @@
+**F.D.A. Approves Juul Vapes After Yearslong Delay**\
+`The company was accused of marketing its products to teenagers, causing a surge in use.`\
+https://nytimes.com/2025/07/17/health/fda-juul.html
+
+**Jane’s Addiction Members Sue One Another After Onstage Fight**\
+`The rock band’s singer confronted its guitarist during a show last year, leading to the cancellation of its reunion tour.`\
+https://nytimes.com/2025/07/17/arts/music/janes-addiction-lawsuit-perry-farrell-dave-navarro.html
+
+**Heavy Rain in Kansas City Area Leads to Road Rescues**\
+`More than eight inches of rain fell in some parts of the Kansas City area overnight, meteorologists said.`\
+https://nytimes.com/video/weather/100000010291091/flash-flooding-kansas-city-missouri.html
+
+**Colts QB Anthony Richardson has resumed throwing: Source**\
+`Indianapolis Colts quarterback Anthony Richardson has resumed throwing, a league source told The Athletic on Thursday.`\
+https://nytimes.com/athletic/6500378/2025/07/17/colts-anthony-richardson-shoulder-daniel-jones/
+
 **Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
 `The two sides avoided salary arbitration after the 25-year-old Dostál was one of 11 players in the league to file for the process on July 5.`\
 https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
