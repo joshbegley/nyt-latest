@@ -1,3 +1,7 @@
+**Broadway’s ‘Gypsy’ Revival, Starring Audra McDonald, Will Close**\
+`The show is the sixth musical to announce a closing date since last month’s Tony Awards, reflecting financial challenges facing producers.`\
+https://nytimes.com/2025/07/16/theater/broadway-gypsy-audra-mcdonald-closing.html
+
 **Nadler and Duffy in Tense Exchange Over N.Y.C. Subway Safety**\
 `Representative Jerrold Nadler of New York, a member of the House transportation committee, and Transportation Secretary Sean Duffy argued over subway safety statistics during a hearing on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010288537/sean-duffy-jerrold-nadler-nyc-subway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/vance-trump-pennsylvania-legislation.
 **Manhattan Prosecutor Who Handled Epstein Cases Is Fired**\
 `Maurene Comey, who is the daughter of the former F.B.I. director James Comey, worked on the criminal cases against Jeffrey Epstein and his associate Ghislaine Maxwell.`\
 https://nytimes.com/2025/07/16/nyregion/maurene-comey-prosecutor-fired-jeffrey-epstein.html
-
-**Trump’s National Guard Troops Are Questioning Their Mission in L.A.**\
-`Thousands of National Guard members have served in the L.A. region since last month. Six soldiers spoke in interviews about low morale over the deployment.`\
-https://nytimes.com/2025/07/16/us/trump-national-guard-california.html
 
