@@ -1,3 +1,7 @@
+**Cyclist Samuele Privitera, 19, dies after crash at Giro della Valle d'Aosta**\
+`The 19-year-old died on Wednesday after being admitted to the Umberto Parini Hospital in Aosta.`\
+https://nytimes.com/athletic/6499336/2025/07/17/samuele-privitera-giro-death/
+
 **Newcastle exploring deal for Wissa, cool interest in Ekitike**\
 `The north east club are yet to contact Brentford but that is expected soon.`\
 https://nytimes.com/athletic/6499380/2025/07/17/newcastle-yoane-wissa-ekitike-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/business/trump-powell-federal-reserve-higher-rate
 **Has Dining Gotten Too Fine on ‘The Bear’?**\
 `Wesley and Samin Nosrat on the fancy food, big egos and new season of the show.`\
 https://nytimes.com/2025/07/17/podcasts/has-dining-gotten-too-fine-on-the-bear.html
-
-**Even After Bondi Gains Trump’s Backing, Her Survival Remains an Open Question**\
-`The sustained backlash has exposed the hazards of the attorney general’s focus on courting President Trump, with the assumption that he maintains the total backing of his base.`\
-https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-bongino.html
 

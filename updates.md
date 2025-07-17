@@ -1,3 +1,7 @@
+**Newcastle exploring deal for Wissa, cool interest in Ekitike**\
+`The north east club are yet to contact Brentford but that is expected soon.`\
+https://nytimes.com/athletic/6499380/2025/07/17/newcastle-yoane-wissa-ekitike-transfers/
+
 **The New York Times International Edition in Print for Friday, July 18, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/17/todays-new-york-times-international-edition

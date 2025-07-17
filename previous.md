@@ -1,3 +1,7 @@
+**Newcastle exploring deal for Wissa, cool interest in Ekitike**\
+`The north east club are yet to contact Brentford but that is expected soon.`\
+https://nytimes.com/athletic/6499380/2025/07/17/newcastle-yoane-wissa-ekitike-transfers/
+
 **The New York Times International Edition in Print for Friday, July 18, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/17/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/podcasts/has-dining-gotten-too-fine-on-the-bear.h
 **Even After Bondi Gains Trump’s Backing, Her Survival Remains an Open Question**\
 `The sustained backlash has exposed the hazards of the attorney general’s focus on courting President Trump, with the assumption that he maintains the total backing of his base.`\
 https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-bongino.html
-
-**Elissa Slotkin Wants Democrats to Reclaim Their ‘Alpha Energy’**\
-`In a wide-ranging interview, the junior senator from Michigan took stock of her party’s deep-seated woes, warning Democrats not to be “so damn scared.”`\
-https://nytimes.com/2025/07/17/us/politics/elissa-slotkin-democrats-trump.html
 
