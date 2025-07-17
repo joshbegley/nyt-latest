@@ -1,3 +1,15 @@
+**Scoop City: Jets make quiet strides, Buccaneers look like Super Bowl contenders**\
+`The new-look (and quiet) Jets reinforced their foundation, plus why the Buccaneers are a darkhorse contender. `\
+https://nytimes.com/athletic/6500348/2025/07/17/jets-offseason-recap-buccaneers-2025-preview-nfl-scoop-city/
+
+**U.K. Plans to Lower Voting Age in Major Electoral Reform**\
+`The British government said it wants to lower the voting age to 16 as part of a plan that has been described as the country’s largest expansion of voting rights in decades.`\
+https://nytimes.com/video/world/europe/100000010290686/uk-voting-age-16.html
+
+**Tour de France stage 12: Tadej Pogacar cracks rivals on Hautacam to move back into yellow jersey**\
+`Analysis of the latest day's action in the 2025 race - a 180km route from Auch to Hautacam in the Pyrenees`\
+https://nytimes.com/athletic/6499571/2025/07/17/tour-de-france-stage-12-analysis/
+
 **Judge Scraps Rule Eliminating Medical Debt on Credit Reports**\
 `The Trump administration joined with trade groups to ask a court to overturn a Biden-era rule that aimed to limit the impact of unpaid medical bills on consumers’ credit history.`\
 https://nytimes.com/2025/07/17/business/medical-debt-credit-reports-ruling.html
