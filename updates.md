@@ -1,3 +1,11 @@
+**Ons Jabeur steps back from tennis to 'rediscover the joy of simply living'**\
+`The Tunisian reached the Wimbledon final in 2022 and 2023 but retired in the first round of this year's tournament.`\
+https://nytimes.com/athletic/6499942/2025/07/17/tennis-ons-jabeur-step-back/
+
+**Prosecutor Fired by Trump Calls Fear the ‘Tool of the Tyrant’**\
+`Maurene Comey, who helped prosecute Jeffrey Epstein and Sean Combs, was dismissed without a detailed explanation. She is the daughter of James B. Comey, a longtime adversary of President Trump.`\
+https://nytimes.com/2025/07/17/nyregion/maurene-comey-fired-trump.html
+
 **Heavy Rain Floods Kansas City Area, Prompting Overnight Rescues**\
 `Firefighters waded through waist-deep water to rescue people from nearly two dozen cars, officials said.`\
 https://nytimes.com/2025/07/17/us/kansas-city-missouri-flooding.html
