@@ -1,3 +1,7 @@
+**Word of the Day: rapscallion**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/17/learning/word-of-the-day-rapscallion.html
+
 **Diamondbacks' Ketel Marte's home burglarized during MLB All-Star Game**\
 `There were signs of forced entry, and numerous personal items and jewelry pieces were missing, police said.`\
 https://nytimes.com/athletic/6499226/2025/07/17/ketel-marte-home-burglarized-investigation-arizona-diamondbacks/
