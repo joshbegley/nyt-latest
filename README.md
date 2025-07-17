@@ -1,3 +1,7 @@
+**‘Bonjour’ Sets Off a Linguistic Dispute on a Belgian Train**\
+`The rules can get complicated in a country with French, Dutch and German as official languages.`\
+https://nytimes.com/2025/07/17/world/europe/bonjour-belgian-train.html
+
 **Drew Brees to be game analyst for Netflix's Christmas Day game: Sources**\
 `Brees will be on the domestic broadcast for either the Cowboys-Commanders or Lions-Vikings games.`\
 https://nytimes.com/athletic/6500186/2025/07/17/drew-brees-analyst-netflix-christmas-game-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/business/pepsico-frito-lay-protein-fiber.html
 **Amid Flood Response, Texas Republicans Pivot to Political Maps**\
 `A special session of the Texas Legislature will address the deadly floods in Hill Country, but the fireworks will come from President Trump’s demand for a newly gerrymandered House map.`\
 https://nytimes.com/2025/07/17/us/texas-flood-redistricting.html
-
-**New Scripts for a Democratic Comeback**\
-`Readers offer advice to the Democrats. Also: Senator Josh Hawley’s reversal; a backlash at the E.P.A.; President Trump and the absurd.`\
-https://nytimes.com/2025/07/17/opinion/democrats.html
 
