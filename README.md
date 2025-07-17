@@ -1,3 +1,11 @@
+**The fantasy football wide receivers to draft ... and those to avoid**\
+`Jake Ciely discusses his fantasy football strategy to maximize draft value at WR in 2025. `\
+https://nytimes.com/athletic/6497700/2025/07/17/fantasy-football-draft-wr-rankings-values-adp/
+
+**Marathon world record-holder provisionally suspended over doping violation**\
+`The Kenyan became the first woman to clock a sub-two hour, 10 minute time in the 2024 Chicago Marathon.`\
+https://nytimes.com/athletic/6500079/2025/07/17/ruth-chepngetich-doping-suspension-marathon-world-record/
+
 **White House Seeks to Inspect Fed Renovation in Bid to Pressure Powell**\
 `Russell T. Vought, the head of the Office of Management and Budget, said he and other administration officials wanted access to the Fed’s building in Washington.`\
 https://nytimes.com/2025/07/17/us/politics/white-house-seeks-to-inspect-fed-renovation-in-bid-to-pressure-powell.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/17/t-magazine/paula-fox-brooklyn-home.html
 **Israeli Strike on a Gaza Church Kills Three**\
 `As cease-fire talks stalled, a deadly strike on a Catholic church in Gaza City prompted Pope Leo XIV to call for an immediate end to the fighting.`\
 https://nytimes.com/2025/07/17/world/middleeast/gaza-church-strike-israel.html
-
-**Ons Jabeur steps back from tennis to 'rediscover the joy of simply living'**\
-`The Tunisian reached the Wimbledon final in 2022 and 2023 but retired in the first round of this year's tournament.`\
-https://nytimes.com/athletic/6499942/2025/07/17/tennis-ons-jabeur-step-back/
-
-**Prosecutor Fired by Trump Calls Fear the ‘Tool of the Tyrant’**\
-`Maurene Comey, who helped prosecute Jeffrey Epstein and Sean Combs, was dismissed without a detailed explanation. She is the daughter of James B. Comey, a longtime adversary of President Trump.`\
-https://nytimes.com/2025/07/17/nyregion/maurene-comey-fired-trump.html
 
