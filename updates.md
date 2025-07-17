@@ -1,3 +1,7 @@
+**Prince Harry Follows in Diana’s Footsteps as Specter of Land Mines Returns**\
+`Harry walked through a minefield in Angola, retracing a journey by his mother, Diana, Princess of Wales, in 1997. Several countries plan to revive use of the weapons.`\
+https://nytimes.com/2025/07/17/world/europe/prince-harry-diana-land-mines-angola.html
+
 **Connie Francis, Whose Ballads Dominated ’60s Pop Music, Dies at 87**\
 `Ms. Francis, who had a natural way with a wide variety of material, ruled the charts with songs like “Who’s Sorry Now?” and “Don’t Break the Heart that Loves You.”`\
 https://nytimes.com/2025/07/17/obituaries/connie-francis-dead.html
