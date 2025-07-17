@@ -1,3 +1,11 @@
+**The Pulse: The most interesting player in college football**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6498102/2025/07/17/arch-manning-texas-the-pulse/
+
+**Acquittals Bring Samsung Chairman’s Decade of Legal Woes to an End**\
+`​The South Korean Supreme Court’s ruling dispels uncertainty​ over Lee Jae-yong’s leadership as the tech giant faces challenges from tariffs and chip making rivals.`\
+https://nytimes.com/2025/07/17/world/asia/samsung-lee-jaeyong-acquitted.html
+
 **Senate Approves Trump’s Cuts to Foreign Aid and Public Broadcasting**\
 `The 51-to-48 vote came over the objections of two Republicans. The House is expected to give final approval to the package later this week, sending it to Mr. Trump for his signature.`\
 https://nytimes.com/video/us/politics/100000010290207/senate-approves-trumps-cuts-to-foreign-aid-and-public-broadcasting.html
