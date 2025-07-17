@@ -1,3 +1,7 @@
+**They Grew Up on Mexican Coke. Trump’s Cane Sugar Plan Makes Them Uneasy.**\
+`After President Trump announced that Coke will be made with cane sugar in the U.S., as it is in Mexico, foodies of Mexican heritage said in interviews that they weren’t excited.`\
+https://nytimes.com/2025/07/17/us/coca-cola-trump-mexican-coke.html
+
 **The Pulse: The most interesting player in college football**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6498102/2025/07/17/arch-manning-texas-the-pulse/
