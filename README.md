@@ -1,3 +1,7 @@
+**Word of the Day: rapscallion**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/17/learning/word-of-the-day-rapscallion.html
+
 **Diamondbacks' Ketel Marte's home burglarized during MLB All-Star Game**\
 `There were signs of forced entry, and numerous personal items and jewelry pieces were missing, police said.`\
 https://nytimes.com/athletic/6499226/2025/07/17/ketel-marte-home-burglarized-investigation-arizona-diamondbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/briefing/israel-syria-afghanistan-iran-trump-fede
 **More Ball Games? Can changing a prohibitive signs help make the UK more active?**\
 `The charity London Sport is calling on UK policymakers to remove the 'No Ball Games' signs and to reimagine public spaces`\
 https://nytimes.com/athletic/6359289/2025/07/17/more-ball-games-london-sport-campaign/
-
-**Why long throws are so important to Thomas Frank, and how he may use them at Spurs**\
-`Destiny Udogie inadvertently revealed that Tottenham's players had been put through a long-throw 'audition'. It set tongues wagging...`\
-https://nytimes.com/athletic/6497519/2025/07/17/tottenham-frank-throw-ins/
 

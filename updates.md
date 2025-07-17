@@ -1,3 +1,7 @@
+**Diamondbacks' Ketel Marte's home burglarized during MLB All-Star Game**\
+`There were signs of forced entry, and numerous personal items and jewelry pieces were missing, police said.`\
+https://nytimes.com/athletic/6499226/2025/07/17/ketel-marte-home-burglarized-investigation-arizona-diamondbacks/
+
 **Norway have world class attacking talent - but yet again they have underwhelmed**\
 `After their exit from Euro 2025, we’re reaching a point where we can definitively say that Norway have wasted a genuine golden generation`\
 https://nytimes.com/athletic/6498821/2025/07/17/norway-euro-2025-underwhelming-exit/
