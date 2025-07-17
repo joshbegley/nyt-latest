@@ -1,3 +1,19 @@
+**Faith Leaders Can Now Endorse. Will That Swing the N.Y.C. Mayor’s Race?**\
+`The I.R.S. has cleared faith leaders to endorse political candidates to their congregations. New York clergy are wrestling with the choice to use their newfound influence.`\
+https://nytimes.com/2025/07/17/nyregion/religious-leaders-endorsement-mayor-nyc.html
+
+**Squabble Over Safety in N.Y.C. Subway Erupts at Congressional Hearing**\
+`Government officials from opposite sides of the aisle clashed in Washington over just how dangerous the New York City subway system is.`\
+https://nytimes.com/2025/07/17/nyregion/nyc-subway-safety-nadler-duffy-hearing.html
+
+**‘Rematch’ Recreates a Cultural Touchstone**\
+`A series dramatizes the 1997 chess match between a world champion and an IBM computer, a precursor of modern anxieties about artificial intelligence.`\
+https://nytimes.com/2025/07/17/arts/television/rematch-kasparov-disney-plus.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/17/crosswords/spelling-bee-forum.html
+
 **Late Night Fact-Checks Trump on His Uncle and the Unabomber**\
 `Jordan Klepper and other hosts poked holes in the president’s claim that his uncle had been the future terrorist’s professor at M.I.T.`\
 https://nytimes.com/2025/07/17/arts/television/late-night-trump-unabomber.html

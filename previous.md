@@ -1,3 +1,19 @@
+**Faith Leaders Can Now Endorse. Will That Swing the N.Y.C. Mayor’s Race?**\
+`The I.R.S. has cleared faith leaders to endorse political candidates to their congregations. New York clergy are wrestling with the choice to use their newfound influence.`\
+https://nytimes.com/2025/07/17/nyregion/religious-leaders-endorsement-mayor-nyc.html
+
+**Squabble Over Safety in N.Y.C. Subway Erupts at Congressional Hearing**\
+`Government officials from opposite sides of the aisle clashed in Washington over just how dangerous the New York City subway system is.`\
+https://nytimes.com/2025/07/17/nyregion/nyc-subway-safety-nadler-duffy-hearing.html
+
+**‘Rematch’ Recreates a Cultural Touchstone**\
+`A series dramatizes the 1997 chess match between a world champion and an IBM computer, a precursor of modern anxieties about artificial intelligence.`\
+https://nytimes.com/2025/07/17/arts/television/rematch-kasparov-disney-plus.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/17/crosswords/spelling-bee-forum.html
+
 **Late Night Fact-Checks Trump on His Uncle and the Unabomber**\
 `Jordan Klepper and other hosts poked holes in the president’s claim that his uncle had been the future terrorist’s professor at M.I.T.`\
 https://nytimes.com/2025/07/17/arts/television/late-night-trump-unabomber.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6499226/2025/07/17/ketel-marte-home-burglarized-inv
 **Norway have world class attacking talent - but yet again they have underwhelmed**\
 `After their exit from Euro 2025, we’re reaching a point where we can definitively say that Norway have wasted a genuine golden generation`\
 https://nytimes.com/athletic/6498821/2025/07/17/norway-euro-2025-underwhelming-exit/
-
-**The New York Times in Print for Thursday, July 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/17/todays-new-york-times
-
-**Lauren Southern, Former Right-Wing Commentator, Says Andrew Tate Assaulted Her**\
-`Ms. Southern’s account of a 2018 encounter, made in a self-published memoir, adds to the allegations against Mr. Tate, the online influencer. “She is lying through her teeth,” Mr. Tate’s lawyer said.`\
-https://nytimes.com/2025/07/17/world/europe/lauren-southern-andrew-tate-sexual-assault.html
-
-**Trump Is Doing Something No One Wants**\
-`In his commitment to domination, he is missing an opportunity to shape a new multipolar order that protects America’s interests.`\
-https://nytimes.com/2025/07/17/opinion/trump-lula-brazil-brics.html
-
-**Tour de France roundtable: Best riders and most memorable moments of the race so far**\
-`The Athletic's writers discuss the first 11 stages of an enthralling edition of the Tour de France`\
-https://nytimes.com/athletic/6497458/2025/07/17/tour-de-france-first-half-roundtable/
 
