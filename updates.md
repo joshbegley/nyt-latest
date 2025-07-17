@@ -1,3 +1,7 @@
+**Cyclist Samuele Privitera, 19, dies after crash at Giro della Valle d'Aosta**\
+`The 19-year-old died on Wednesday after being admitted to the Umberto Parini Hospital in Aosta.`\
+https://nytimes.com/athletic/6499336/2025/07/17/samuele-privitera-giro-death/
+
 **Newcastle exploring deal for Wissa, cool interest in Ekitike**\
 `The north east club are yet to contact Brentford but that is expected soon.`\
 https://nytimes.com/athletic/6499380/2025/07/17/newcastle-yoane-wissa-ekitike-transfers/
