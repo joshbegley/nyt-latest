@@ -1,3 +1,7 @@
+**Harvard Creates New Public Service Program, as Trump Slashes Federal Jobs**\
+`The Kennedy School will award scholarships to at least 50 students, in hopes of fostering careers in government service.`\
+https://nytimes.com/2025/07/17/us/harvard-public-service-scholarships-american-service-fellowship.html
+
 **Inside Olivia Smith's £1m Arsenal transfer: A record fee meant to be kept secret**\
 `The young Canadian forward joins the 2024-25 Champions League winners for a milestone sum nobody was supposed to know`\
 https://nytimes.com/athletic/6499383/2025/07/17/olivia-smith-behind-the-deal-record-liverpool-arsenal/

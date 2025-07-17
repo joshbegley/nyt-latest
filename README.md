@@ -1,3 +1,7 @@
+**Man Utd make improved offer for Mbeumo**\
+`The latest proposal is is awaiting a response from the London club.`\
+https://nytimes.com/athletic/6456945/2025/07/17/manchester-united-bryan-mbeumo-bid/
+
 **Harvard Creates New Public Service Program, as Trump Slashes Federal Jobs**\
 `The Kennedy School will award scholarships to at least 50 students, in hopes of fostering careers in government service.`\
 https://nytimes.com/2025/07/17/us/harvard-public-service-scholarships-american-service-fellowship.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/17/us/trump-news-updates
 **Shelbourne, Linfield and a tale of two Irish champions in the Champions League**\
 `The best teams north and south of the Irish border met in the first qualifying round - a draw that had provoked some anxiety`\
 https://nytimes.com/athletic/6499340/2025/07/17/shelbourne-linfield-champions-league-cross-border-ireland/
-
-**Which prospects could make the Red Wings? Mailbag, Part 2**\
-`In Part 2 of our Red Wings mailbag, we explore which prospects could push for time early in the season.`\
-https://nytimes.com/athletic/6488880/2025/07/17/red-wings-prospects-marco-kasper-nate-danielson/
 
