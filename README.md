@@ -1,3 +1,11 @@
+**Man Wearing Neck Chain Is Sucked Into M.R.I. Machine, Police Say**\
+`The man, 61, was in critical condition after entering an exam room in Westbury, N.Y., on Long Island, without authorization while a scan was in progress, the authorities said.`\
+https://nytimes.com/2025/07/17/nyregion/mri-chain-injury-long-island.html
+
+**The Briefing: Sweden 2 England 2 (2-3 on pens)  - Lionesses outlast Sweden in dramatic penalty shootout**\
+`How England outlasted Sweden in a dramatic penalty shootout`\
+https://nytimes.com/athletic/6497370/2025/07/17/england-sweden-dramatic-euros-quarter-final/
+
 **Justice Dept. Asked for 1-Day Sentence for Louisville Officer**\
 `Also, Britain is planning to lower the voting age. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/07/17/briefing/trump-justice-department-britain-voting-age.html
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/6500915/2025/07/17/damian-lillard-contract-blazers-
 **From Hawaii to Royal Portrush, everyone is listening to The Open Radio**\
 `"It's like you're telling stories over a beer, reflecting on the day at the pub. There's an intimacy and loyalty."`\
 https://nytimes.com/athletic/6500831/2025/07/17/the-open-championship-radio-broadcast/
-
-**5 Charged in U.C. Berkeley Professor’s Murder in Greece, Including His Ex-Wife**\
-`Przemyslaw Jeziorski, who taught quantitative marketing at the Haas School of Business, was shot several times on July 4 outside Athens, the authorities said.`\
-https://nytimes.com/2025/07/17/world/europe/cal-berkeley-professor-murder-suspects-arrested-greece.html
-
-**Justice Dept. Asks California Sheriffs for Names of Inmates Who Aren’t Citizens**\
-`An A.C.L.U. lawyer said it was possible that any sheriff who complied with the request could be in violation of California’s so-called sanctuary state law.`\
-https://nytimes.com/2025/07/17/us/politics/doj-sheriffs-california-inmates-ice.html
 
