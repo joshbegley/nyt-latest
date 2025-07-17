@@ -1,3 +1,7 @@
+**Trump Says Coca-Cola Agreed to Use Cane Sugar in Coke Made in U.S.**\
+`The company began using corn syrup in Coke in 1980, blending it with sugar to help defray the cost of rising sugar prices.`\
+https://nytimes.com/2025/07/16/us/politics/trump-coca-cola-cane-sugar.html
+
 **N.Y.C. Panel Withdraws Proposal to Switch to Open Primaries**\
 `The panel, created by Mayor Eric Adams, said it would introduce other ballot initiatives, but not a proposal that would allow all voters to participate in primaries regardless of party.`\
 https://nytimes.com/2025/07/16/nyregion/new-york-open-primary-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/nyregion/trump-ice-arrests-lawsuit-immigrants.htm
 **Abrego Garcia Lawyers Question Evidence From Key Witness in Criminal Case**\
 `The exchanges unfolded at a hearing in Federal District Court in Nashville intended to determine whether Kilmar Armando Abrego Garcia should be freed from criminal custody as he awaits trial.`\
 https://nytimes.com/2025/07/16/us/politics/kilmar-abrego-garcia-trump-deportations.html
-
-**Central Oregon Wildfire Grows to More Than 60,000 Acres**\
-`Gov. Tina Kotek of Oregon issued an emergency declaration on Wednesday as the Cram fire threatened about 430 structures, including nearly 300 homes.`\
-https://nytimes.com/2025/07/16/us/cam-wildfire-oregon-emergency.html
 

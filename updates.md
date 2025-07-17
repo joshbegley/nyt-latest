@@ -1,3 +1,7 @@
+**Trump Says Coca-Cola Agreed to Use Cane Sugar in Coke Made in U.S.**\
+`The company began using corn syrup in Coke in 1980, blending it with sugar to help defray the cost of rising sugar prices.`\
+https://nytimes.com/2025/07/16/us/politics/trump-coca-cola-cane-sugar.html
+
 **N.Y.C. Panel Withdraws Proposal to Switch to Open Primaries**\
 `The panel, created by Mayor Eric Adams, said it would introduce other ballot initiatives, but not a proposal that would allow all voters to participate in primaries regardless of party.`\
 https://nytimes.com/2025/07/16/nyregion/new-york-open-primary-elections.html
