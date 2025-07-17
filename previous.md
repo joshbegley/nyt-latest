@@ -1,3 +1,11 @@
+**Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
+`The two sides avoided salary arbitration after the 25-year-old Dostál was one of 11 players in the league to file for the process on July 5.`\
+https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
+
+**NFL won grievance vs. NFLPA over fake injuries in February, denies it hid ruling**\
+`While the grievance decision had not been reported publicly before Thursday, the league says it informed teams at its March league meeting. `\
+https://nytimes.com/athletic/6500152/2025/07/17/nfl-grievance-nflpa-fake-injuries/
+
 **Ketanji Brown Jackson Knows How to Get People’s Attention**\
 `Purists are freaking out over her informal locutions, but at least they’re taking notice.`\
 https://nytimes.com/2025/07/17/opinion/ketanji-brown-jackson-dissent-scotus.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6500108/2025/07/17/chiefs-rashee-rice-sentence-susp
 **Here’s How Congress Is Wading Into Crypto Regulation**\
 `The House this week took up a trio of bills that would establish a federal framework for regulating the cryptocurrency industry. One of the measures is about to clear Congress and become law.`\
 https://nytimes.com/2025/07/17/us/politics/crypto-regulation-bills-explainer.html
-
-**Matt Fitzpatrick's career hit rock bottom. Now he's co-leading the Open Championship**\
-`The former U.S. Open champion felt like he hit rock bottom 122 days ago. But he has found a new coach, a new caddie and a groove.`\
-https://nytimes.com/athletic/6500250/2025/07/17/open-championship-matt-fitzpatrick/
-
-**Scoop City: Jets make quiet strides, Buccaneers look like Super Bowl contenders**\
-`The new-look (and quiet) Jets reinforced their foundation, plus why the Buccaneers are a darkhorse contender. `\
-https://nytimes.com/athletic/6500348/2025/07/17/jets-offseason-recap-buccaneers-2025-preview-nfl-scoop-city/
 

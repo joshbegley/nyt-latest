@@ -1,3 +1,11 @@
+**Ducks sign Lukáš Dostál to 5-year contract extension, avoid arbitration**\
+`The two sides avoided salary arbitration after the 25-year-old Dostál was one of 11 players in the league to file for the process on July 5.`\
+https://nytimes.com/athletic/6500553/2025/07/17/lukas-dostal-ducks-contract-extension-arbitration/
+
+**NFL won grievance vs. NFLPA over fake injuries in February, denies it hid ruling**\
+`While the grievance decision had not been reported publicly before Thursday, the league says it informed teams at its March league meeting. `\
+https://nytimes.com/athletic/6500152/2025/07/17/nfl-grievance-nflpa-fake-injuries/
+
 **Ketanji Brown Jackson Knows How to Get People’s Attention**\
 `Purists are freaking out over her informal locutions, but at least they’re taking notice.`\
 https://nytimes.com/2025/07/17/opinion/ketanji-brown-jackson-dissent-scotus.html
