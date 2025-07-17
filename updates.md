@@ -1,3 +1,7 @@
+**Would a Trump executive order fix college sports' issues? Here's what a draft calls for**\
+`It is unclear if or when such an executive order will be formalized, but Trump has considered executive action on college sports for months.`\
+https://nytimes.com/athletic/6500773/2025/07/17/president-trump-executive-order-college-sports/
+
 **Trump’s Plan to Reopen Alcatraz Appears to Move Forward With Officials’ Visit**\
 `Attorney General Pam Bondi and Interior Secretary Doug Burgum visited the site on Thursday to study whether reopening it as a federal prison could work.`\
 https://nytimes.com/2025/07/17/us/alcatraz-prison-trump-bondi-burgum-visit.html
