@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, July 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/17/todays-new-york-times
+
+**Lauren Southern, Former Right-Wing Commentator, Says Andrew Tate Assaulted Her**\
+`Ms. Southern’s account of a 2018 encounter, made in a self-published memoir, adds to the allegations against Mr. Tate, the online influencer. “She is lying through her teeth,” Mr. Tate’s lawyer said.`\
+https://nytimes.com/2025/07/17/world/europe/lauren-southern-andrew-tate-sexual-assault.html
+
+**Trump Is Doing Something No One Wants**\
+`In his commitment to domination, he is missing an opportunity to shape a new multipolar order that protects America’s interests.`\
+https://nytimes.com/2025/07/17/opinion/trump-lula-brazil-brics.html
+
 **Tour de France roundtable: Best riders and most memorable moments of the race so far**\
 `The Athletic's writers discuss the first 11 stages of an enthralling edition of the Tour de France`\
 https://nytimes.com/athletic/6497458/2025/07/17/tour-de-france-first-half-roundtable/
