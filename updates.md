@@ -1,3 +1,7 @@
+**What I'm hearing about NASCAR's 2026 schedule: Mexico City, Chicago and more**\
+`Mexico City might have to wait until 2027 for a return, Chicago and San Diego could both be on the calendar, and more schedule nuggets.`\
+https://nytimes.com/athletic/6498899/2025/07/17/nascars-2026-schedule-mexico-city-chicago-san-diego/
+
 **Man Utd make improved offer for Mbeumo**\
 `The latest proposal is awaiting a response from the London club.`\
 https://nytimes.com/athletic/6456945/2025/07/17/manchester-united-bryan-mbeumo-bid/

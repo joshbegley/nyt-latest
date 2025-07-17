@@ -1,3 +1,7 @@
+**What I'm hearing about NASCAR's 2026 schedule: Mexico City, Chicago and more**\
+`Mexico City might have to wait until 2027 for a return, Chicago and San Diego could both be on the calendar, and more schedule nuggets.`\
+https://nytimes.com/athletic/6498899/2025/07/17/nascars-2026-schedule-mexico-city-chicago-san-diego/
+
 **Man Utd make improved offer for Mbeumo**\
 `The latest proposal is awaiting a response from the London club.`\
 https://nytimes.com/athletic/6456945/2025/07/17/manchester-united-bryan-mbeumo-bid/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/business/dealbook/trump-powell-fed.html
 **Trump Administration Live Updates: Appeals Court Pick at Center of Immigration Crackdown to Face Committee Vote**\
 ``\
 https://nytimes.com/live/2025/07/17/us/trump-news-updates
-
-**Shelbourne, Linfield and a tale of two Irish champions in the Champions League**\
-`The best teams north and south of the Irish border met in the first qualifying round - a draw that had provoked some anxiety`\
-https://nytimes.com/athletic/6499340/2025/07/17/shelbourne-linfield-champions-league-cross-border-ireland/
 
