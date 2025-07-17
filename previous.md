@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6499809/2025/07/17/aston-villa-transfers-modou-keba
 
 **‘Crypto Week’ Is Back on Track After House G.O.P. Quells Conservative Revolt**\
 `The House is set to vote on a series of high-stakes bills backed by the cryptocurrency industry, after top Republicans brokered a deal with a group of dissenters in their ranks.`\
-https://nytimes.com/2025/07/17/technology/crypto-week-is-back-on-track-after-house-gop-quells-conservative-revolt.html
+https://nytimes.com/2025/07/17/technology/crypto-week-house-republicans-trump.html
 
 **Substack Raises $100 Million, Betting on Subscriptions but Coming Around to Ads**\
 `Substack, originally a newsletter service, says its app now has millions of users interacting with its creators.`\

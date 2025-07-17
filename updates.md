@@ -1,3 +1,7 @@
+**‘Crypto Week’ Is Back on Track After House G.O.P. Quells Conservative Revolt**\
+`The House is set to vote on a series of high-stakes bills backed by the cryptocurrency industry, after top Republicans brokered a deal with a group of dissenters in their ranks.`\
+https://nytimes.com/2025/07/17/technology/crypto-week-house-republicans-trump.html
+
 **Villa agree deal to sign defender Cisse from LASK**\
 `The 19-year-old will return to the Austrian club on loan for the upcoming season. `\
 https://nytimes.com/athletic/6499809/2025/07/17/aston-villa-transfers-modou-keba-cisse/
