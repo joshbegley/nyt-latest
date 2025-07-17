@@ -1,3 +1,7 @@
+**‘Here’s Hoping …’**\
+`Sam Brody asks us to untangle his theme.`\
+https://nytimes.com/2025/07/16/crosswords/daily-puzzle-2025-07-17.html
+
 **Trump Says Coca-Cola Agreed to Use Cane Sugar in Coke Made in U.S.**\
 `The company began using corn syrup in Coke in 1980, blending it with sugar to help defray the cost of rising sugar prices.`\
 https://nytimes.com/2025/07/16/us/politics/trump-coca-cola-cane-sugar.html

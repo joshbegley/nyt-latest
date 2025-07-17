@@ -1,3 +1,7 @@
+**‘Here’s Hoping …’**\
+`Sam Brody asks us to untangle his theme.`\
+https://nytimes.com/2025/07/16/crosswords/daily-puzzle-2025-07-17.html
+
 **Trump Says Coca-Cola Agreed to Use Cane Sugar in Coke Made in U.S.**\
 `The company began using corn syrup in Coke in 1980, blending it with sugar to help defray the cost of rising sugar prices.`\
 https://nytimes.com/2025/07/16/us/politics/trump-coca-cola-cane-sugar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/16/us/politics/grand-canyon-fire-north-rim-arizona.h
 **Immigrants File Class-Action Lawsuit to Stop ICE Courthouse Arrests**\
 `The detentions have become a relatively easy way for Immigration and Customs Enforcement agents to detain immigrants who are appearing for court dates.`\
 https://nytimes.com/2025/07/16/nyregion/trump-ice-arrests-lawsuit-immigrants.html
-
-**Abrego Garcia Lawyers Question Evidence From Key Witness in Criminal Case**\
-`The exchanges unfolded at a hearing in Federal District Court in Nashville intended to determine whether Kilmar Armando Abrego Garcia should be freed from criminal custody as he awaits trial.`\
-https://nytimes.com/2025/07/16/us/politics/kilmar-abrego-garcia-trump-deportations.html
 
