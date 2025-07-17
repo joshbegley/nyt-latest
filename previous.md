@@ -1,3 +1,7 @@
+**Open Championship 2025 Round 1: What to know about the 5 leaders at Portrush**\
+`It is the first time in major championship history that five or more men, each playing under different flags, were tied for the lead.`\
+https://nytimes.com/athletic/6501075/2025/07/17/open-championship-2025-round-1-what-to-know/
+
 **Would a Trump executive order fix college sports' issues? Here's what a draft calls for**\
 `It is unclear if or when such an executive order will be formalized, but Trump has considered executive action on college sports for months.`\
 https://nytimes.com/athletic/6500773/2025/07/17/president-trump-executive-order-college-sports/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6500773/2025/07/17/president-trump-executive-order-
 https://nytimes.com/2025/07/17/us/alcatraz-prison-trump-bondi-burgum-visit.html
 
 **Beware of ‘Swiper,’ a Fox at Grand Teton Park With a Penchant for Footwear**\
-`The fox has stolen at least 32 shoes, according to park officials, which warned campers to guard their belongings.`\
+`One or more foxes have stolen at least 32 shoes, according to park officials, who warned campers to guard their belongings.`\
 https://nytimes.com/2025/07/17/us/beware-of-swiper-a-fox-at-grand-teton-park-with-a-penchant-for-footwear.html
 
 **Republicans Fretted Over Ceding Spending Power to Trump. Then They Voted to Do It.**\
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6471327/2025/07/17/agyemang-england-arsenal-euro-20
 **With T.S.A.’s Shoes Rule Gone, Can Liquids Really Be Next?**\
 `Kristi Noem, the homeland security secretary, has said that the next major airport security screening announcement could target limits on liquids. How likely is that?`\
 https://nytimes.com/2025/07/17/travel/tsa-liquids-sizes.html
-
-**Man Wearing Neck Chain Is Sucked Into M.R.I. Machine, Police Say**\
-`The man, 61, was in critical condition after entering an exam room in Westbury, N.Y., on Long Island, without authorization while a scan was in progress, the authorities said.`\
-https://nytimes.com/2025/07/17/nyregion/mri-chain-injury-long-island.html
 
