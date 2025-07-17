@@ -1,3 +1,7 @@
+**T.J. Watt, Steelers agree to 3-year, $123 million extension: Sources**\
+`Seven-time Pro Bowl linebacker has become the NFL's highest-paid non-quarterback.`\
+https://nytimes.com/athletic/6500778/2025/07/17/tj-watt-steelers-contract-extension/
+
 **Sol Stern, Lapsed Liberal and Conservative Heretic, Dies at 89**\
 `He broke with the left over its criticism of Israel and what he saw as its anti-Americanism. But he also became a critic of Donald Trump.`\
 https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/nyregion/eric-adams-police-unions.html
 **Read the Letter From President Trump’s Doctor**\
 `Karoline Leavitt, the White House press secretary, released a letter from President Trump’s physician stating that the president has chronic venous insufficiency, which he called a benign and common condition in older people.`\
 https://nytimes.com/interactive/2025/07/17/us/trump-doctor-letter.html
-
-**Storms Crawling Along the Gulf Coast Are Raising the Risk of Flooding**\
-`A tropical disturbance is bringing heavy rain as it moves west through Louisiana and Mississippi.`\
-https://nytimes.com/2025/07/17/weather/new-orleans-flooding-forecast-louisiana.html
 
