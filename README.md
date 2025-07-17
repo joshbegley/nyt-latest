@@ -1,3 +1,7 @@
+**World No. 1 Aryna Sabalenka withdraws from Canadian Open, citing fatigue**\
+`Sabalenka reached the quarterfinals at last year's tournament.`\
+https://nytimes.com/athletic/6499357/2025/07/17/tennis-sabalenka-canadian-open-out/
+
 **‘Superman’ Is MAGA Kryptonite**\
 `Clark Kent’s real superpower is the gift of adoption.`\
 https://nytimes.com/2025/07/17/opinion/superman-adoption-maga-kindness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/elissa-slotkin-democrats-trump.html
 **F.D.A. Panel to Reassess Hormone Therapy Warnings**\
 `Dr. Marty Makary, the agency’s commissioner, has said too many women avoid menopause treatments because the risks have been overstated.`\
 https://nytimes.com/2025/07/17/health/hormone-therapy-menopause-fda.html
-
-**How Nvidia’s Jensen Huang Persuaded Trump to Sell A.I. Chips to China**\
-`With help from a longtime Silicon Valley investor turned White House insider, Mr. Huang got the administration to reverse course on restrictions.`\
-https://nytimes.com/2025/07/17/technology/how-nvidias-jensen-huang-persuaded-trump-to-sell-ai-chips-to-china.html
 
