@@ -1,5 +1,17 @@
+**‘Crypto Week’ Is Back on Track After House G.O.P. Quells Conservative Revolt**\
+`The House is set to vote on a series of high-stakes bills backed by the cryptocurrency industry, after top Republicans brokered a deal with a group of dissenters in their ranks.`\
+https://nytimes.com/2025/07/17/technology/crypto-week-is-back-on-track-after-house-gop-quells-conservative-revolt.html
+
+**Substack Raises $100 Million, Betting on Subscriptions but Coming Around to Ads**\
+`Substack, originally a newsletter service, says its app now has millions of users interacting with its creators.`\
+https://nytimes.com/2025/07/17/business/substack-fundraising-social-network.html
+
+**Hennessey joins Forest coaching staff after retiring**\
+`The former Wales international will form part of the club’s goalkeeping department, working under Rui Barbosa.`\
+https://nytimes.com/athletic/6499810/2025/07/17/wayne-hennessey-nottingham-forest-coach/
+
 **Syria’s President Condemns Israel After It Struck the Country’s Capital**\
-`Unrest involving government forces, Druse militias and Bedouin factions around the southern Syrian city of Sweida had drawn in neighboring Israel, which struck both the Syrian capital and Sweida in support of the Druze.`\
+`Israel launched airstrikes against targets in Syria in Wednesday, following days of sectarian violence in the southern region of Sweida that has killed more than 500.`\
 https://nytimes.com/video/world/middleeast/100000010290292/syria-israel-damascus-druse-sweida.html
 
 **The U.K. Plans to Lower the Voting Age to 16. Here’s What to Know.**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6456945/2025/07/17/manchester-united-bryan-mbeumo-b
 **Harvard Creates New Public Service Program, as Trump Slashes Federal Jobs**\
 `The Kennedy School will award scholarships to at least 50 students, in hopes of fostering careers in government service.`\
 https://nytimes.com/2025/07/17/us/harvard-public-service-scholarships-american-service-fellowship.html
-
-**Inside Olivia Smith's £1m Arsenal transfer: A record fee meant to be kept secret**\
-`The young Canadian forward joins the 2024-25 Champions League winners for a milestone sum nobody was supposed to know`\
-https://nytimes.com/athletic/6499383/2025/07/17/olivia-smith-behind-the-deal-record-liverpool-arsenal/
-
-**The Windup: Your takes on the ASG swing-off**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6499277/2025/07/17/all-star-swing-off-poll-the-windup/
-
-**Besiktas withdraw offer to free agent Walker-Peters**\
-`The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
-https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
 
