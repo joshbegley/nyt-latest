@@ -1,3 +1,7 @@
+**T.J. Watt, Steelers agree to 3-year, $123 million extension: Sources**\
+`Seven-time Pro Bowl linebacker has become the NFL's highest-paid non-quarterback.`\
+https://nytimes.com/athletic/6500778/2025/07/17/tj-watt-steelers-contract-extension/
+
 **Sol Stern, Lapsed Liberal and Conservative Heretic, Dies at 89**\
 `He broke with the left over its criticism of Israel and what he saw as its anti-Americanism. But he also became a critic of Donald Trump.`\
 https://nytimes.com/2025/07/17/us/politics/sol-stern-dead.html
