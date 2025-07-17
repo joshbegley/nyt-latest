@@ -1,3 +1,7 @@
+**Besiktas withdraw offer to Kyle Walker-Peters**\
+`The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
+https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
+
 **‘The Retrievals’ is not meant to scare you**\
 `What patients can do.`\
 https://nytimes.com/2025/07/17/podcasts/the-retrievals-newsletter.html

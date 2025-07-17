@@ -1,3 +1,7 @@
+**Besiktas withdraw offer to Kyle Walker-Peters**\
+`The club say they had an agreement in principle with the two-cap England international but have now withdrawn their interest.`\
+https://nytimes.com/athletic/6499604/2025/07/17/kyle-walker-peters-transfer-besiktas/
+
 **‘The Retrievals’ is not meant to scare you**\
 `What patients can do.`\
 https://nytimes.com/2025/07/17/podcasts/the-retrievals-newsletter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498556/2025/07/17/flyers-matvei-michkov-goalie-nhl
 **Rescuers Seek American Hiker Missing for Days in the Pyrenees**\
 `Cole Henderson, 27, was last heard from on July 9, when he told friends he was putting his phone into airplane mode ahead of a mountain hike in Spain.`\
 https://nytimes.com/2025/07/17/world/europe/missing-american-hiker-spain-pyrenees.html
-
-**In Hong Kong, Inventive Ice Cream Is Everywhere**\
-`Plus: artist-made birdhouses in Maine, easy summer knits and more recommendations from T Magazine.`\
-https://nytimes.com/2025/07/17/t-magazine/hong-kong-ice-cream-gelato.html
 
