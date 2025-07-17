@@ -1,3 +1,7 @@
+**Prince Harry Follows in Diana’s Footsteps as Specter of Land Mines Returns**\
+`Harry walked through a minefield in Angola, retracing a journey by his mother, Diana, Princess of Wales, in 1997. Several countries plan to revive use of the weapons.`\
+https://nytimes.com/2025/07/17/world/europe/prince-harry-diana-land-mines-angola.html
+
 **Connie Francis, Whose Ballads Dominated ’60s Pop Music, Dies at 87**\
 `Ms. Francis, who had a natural way with a wide variety of material, ruled the charts with songs like “Who’s Sorry Now?” and “Don’t Break the Heart that Loves You.”`\
 https://nytimes.com/2025/07/17/obituaries/connie-francis-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498954/2025/07/17/detroit-tigers-casey-mize-new-pa
 **Craig Counsell’s Cubs arrive as World Series contenders, but those pesky Brewers won’t go away**\
 `For all that's gone right for the Cubs so far, Counsell's former team, the Brewers, are still breathing down their necks.`\
 https://nytimes.com/athletic/6498988/2025/07/17/craig-counsell-cubs-world-series-contenders-pesky-brewers/
-
-**AL West 2025 draft report cards: Top collegiate pitching dominates the division's classes**\
-`The Angels, A's and Mariners all took top college arms, while the Astros and Rangers picked up promising high school infielders.`\
-https://nytimes.com/athletic/6498639/2025/07/17/al-west-draft-grades-picks-2025-mlb/
 
