@@ -1,3 +1,7 @@
+**Harvard Creates New Public Service Program, as Trump Slashes Federal Jobs**\
+`The Kennedy School will award scholarships to at least 50 students, in hopes of fostering careers in government service.`\
+https://nytimes.com/2025/07/17/us/harvard-public-service-scholarships-american-service-fellowship.html
+
 **Inside Olivia Smith's £1m Arsenal transfer: A record fee meant to be kept secret**\
 `The young Canadian forward joins the 2024-25 Champions League winners for a milestone sum nobody was supposed to know`\
 https://nytimes.com/athletic/6499383/2025/07/17/olivia-smith-behind-the-deal-record-liverpool-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499340/2025/07/17/shelbourne-linfield-champions-le
 **Which prospects could make the Red Wings? Mailbag, Part 2**\
 `In Part 2 of our Red Wings mailbag, we explore which prospects could push for time early in the season.`\
 https://nytimes.com/athletic/6488880/2025/07/17/red-wings-prospects-marco-kasper-nate-danielson/
-
-**Why the Canadiens signed Joe Veleno: Context, role, positional need and speed**\
-`Signing Montreal-native Veleno fills a need for the Canadiens as a left-shot centre, but there are other reasons this makes sense.`\
-https://nytimes.com/athletic/6499210/2025/07/17/canadiens-joe-veleno-why-signed/
 
