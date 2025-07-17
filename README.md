@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, July 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/17/todays-new-york-times-international-edition
+
 **World No. 1 Aryna Sabalenka withdraws from Canadian Open, citing fatigue**\
 `Sabalenka reached the quarterfinals at last year's tournament.`\
 https://nytimes.com/athletic/6499357/2025/07/17/tennis-sabalenka-canadian-open-out/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-bongino.html
 **Elissa Slotkin Wants Democrats to Reclaim Their ‘Alpha Energy’**\
 `In a wide-ranging interview, the junior senator from Michigan took stock of her party’s deep-seated woes, warning Democrats not to be “so damn scared.”`\
 https://nytimes.com/2025/07/17/us/politics/elissa-slotkin-democrats-trump.html
-
-**F.D.A. Panel to Reassess Hormone Therapy Warnings**\
-`Dr. Marty Makary, the agency’s commissioner, has said too many women avoid menopause treatments because the risks have been overstated.`\
-https://nytimes.com/2025/07/17/health/hormone-therapy-menopause-fda.html
 
