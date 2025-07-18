@@ -1,3 +1,8 @@
+**No way Yegor Chinakhov can stay in Columbus after trade request, agent says: 'It's all about the coach'**\
+`Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
+`\
+https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-trade-request-agent/
+
 **The Best Sleep Trackers**\
 `(No description)`\
 https://nytimes.com/card/2025/07/18/smarter-living/wirecutter/the-best-sleep-trackers
