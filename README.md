@@ -1,3 +1,23 @@
+**Derrick Rose eager to shine light on NBA's secret obsession: Chess**\
+`"You start to see how important just one move is," says Rose about chess.  "And that one move is a choice in life.”`\
+https://nytimes.com/athletic/6499280/2025/07/18/nba-hobbies-derrick-rose-chess/
+
+**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 25 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
+https://nytimes.com/2025/07/18/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
+
+**Eighth-year seniors, FCS detours and SEC ghosts: This is your 2025 All-Geezer Team**\
+`The COVID-19 bonus year is almost gone — but not before one last salute to college football's sixth-, seventh- and eighth-year seniors.`\
+https://nytimes.com/athletic/6480931/2025/07/18/all-geezer-team-college-football/
+
+**Mortgage Lenders Can Use a Second Credit Score. Is That Good for Borrowers?**\
+`A top housing finance regulator announced that Fannie Mae and Freddie Mac would allow lenders to use the traditional FICO score or one from a rival, VantageScore.`\
+https://nytimes.com/2025/07/18/your-money/mortgage-credit-score-fico-vantagescore.html
+
+**Is the U.S. Riskier Than Emerging Markets?**\
+`While the U.S. stock market has rebounded, the combination of the Trump tariffs, a volatile dollar and an erratic bond market has begun to shake global investment thinking.`\
+https://nytimes.com/2025/07/18/business/stocks-emerging-markets-risk.html
+
 **Five Free Movies to Stream Now**\
 `Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
 https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/18/business/dealbook/crypto-genius-act-congress.html
 **As a Wild West realignment battle heads back to court, neither side is backing down**\
 `As other realigned leagues have gone through recently, the Mountain West has one awkward season ahead.`\
 https://nytimes.com/athletic/6501822/2025/07/18/mountain-west-pac-12-lawsuits-realignment/
-
-**What's next for Canucks after Joshua trade? Cap space, centres and UFA targets**\
-`Here's what we should expect the Canucks to do in the wake of trading Joshua to the Maple Leafs.`\
-https://nytimes.com/athletic/6501066/2025/07/18/canucks-dakota-joshua-trade-salary-cap/
-
-**Lowetide: How many points can Oilers' Matt Savoie produce in his rookie season?**\
-`What's a reasonable projection for Savoie offensively if he gets a top-six role with Edmonton?`\
-https://nytimes.com/athletic/6500955/2025/07/18/matt-savoie-oilers-stats-rookie/
-
-**Trump Administration Live Updates: Bondi to Seek Release of Some Epstein Material, but Faces Hurdles**\
-``\
-https://nytimes.com/live/2025/07/18/us/trump-news
-
-**Jets 2025-26 lineup projection, plus the biggest questions at every position**\
-`As the Jets roster crystallizes, here are the biggest questions facing Winnipeg's projected roster — up front, on defence and in net.`\
-https://nytimes.com/athletic/6500110/2025/07/18/winnipeg-jets-2025-26-lineup-projection-questions/
-
-**Why Dansby Swanson is confident the first-place Cubs will be a second-half team**\
-`Swanson understands the expectations, and he knows what it takes after winning the 2021 World Series with the Atlanta Braves.`\
-https://nytimes.com/athletic/6501202/2025/07/18/dansby-swanson-cubs-second-half-team/
 
