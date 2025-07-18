@@ -1,3 +1,7 @@
+**Watford confirm signing of Bayern teenager Irankunda**\
+`The Australia international has been on loan in Switzerland since January and appeared 15 times for Bayern's amateur side.`\
+https://nytimes.com/athletic/6502640/2025/07/18/watford-nestory-irankunda-bayern-munich-transfer/
+
 **After the Floods, a Pain So Vast It Makes Texas Feel Small**\
 `The Hill Country has a hold on the hearts of many Texans, meaning the suffering caused by the disaster is reaching as far as the region’s appeal.`\
 https://nytimes.com/2025/07/18/us/texas-hill-country-floods-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-cancele
 **Generative A.I. Destroys a Building in Its Netflix Debut**\
 `The streaming company said it used the technology onscreen for the first time in an Argentine science fiction show.`\
 https://nytimes.com/2025/07/18/arts/television/netflix-ai-eternaut.html
-
-**Tour de France stage 13: Back-to-back stage wins for Pogacar, some vintage Roglic - and what's wrong with Remco?**\
-`Analysis of the latest day's action in the 2025 race - a 10.9km mountain time trial from Loudenvielle to Peyragudes`\
-https://nytimes.com/athletic/6501877/2025/07/18/tour-de-france-stage-13-analysis/
 
