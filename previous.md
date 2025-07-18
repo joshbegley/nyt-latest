@@ -1,3 +1,7 @@
+**Shemar Stewart has 'no intentions' of making Texas A&M return, coach says**\
+`Stewart and the Bengals are still embroiled in a contract dispute over language the team included in his rookie deal.`\
+https://nytimes.com/athletic/6501293/2025/07/17/bengals-shemar-stewart-no-texas-am-return/
+
 **House Republicans Dangle Possible Vote on Epstein Files, After Voter Backlash**\
 `The House Rules Committee laid the groundwork for an eventual vote to call for release of the Epstein files, reflecting Republican uneasiness with the president’s refusal to divulge information from the investigation.`\
 https://nytimes.com/2025/07/17/us/politics/epstein-files-house-republicans-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-gree
 **A Timeline of What We Know About Trump and Epstein**\
 `Donald Trump was friendly for at least 15 years with Jeffrey Epstein, the multimillionaire financier and convicted sex offender who died in prison in 2019.`\
 https://nytimes.com/2025/07/17/us/politics/timeline-trump-epstein.html
-
-**Dr. David Altchek, esteemed Mets medical director, dies at 68**\
-`Dr. David Altchek was one of baseball’s pre-eminent elbow surgeons and the Mets’ medical director for the past 20 years.`\
-https://nytimes.com/athletic/6501196/2025/07/17/dr-david-altchek-mets-dies-68/
 
