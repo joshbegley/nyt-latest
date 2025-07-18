@@ -1,3 +1,7 @@
+**Trump’s Immigration Crackdown Hits Senior Care Work Force**\
+`Nursing homes and home care agencies have lost workers as the Trump administration has moved to end deportation protections for migrants with temporary legal status.`\
+https://nytimes.com/2025/07/18/us/politics/immigration-senior-caregivers.html
+
 **Health Cuts Would Result in Fewer Drugs for Americans, Budget Office Reports**\
 `The Trump administration’s proposed cuts to medical research and health agencies will curtail the development of promising medications, the Congressional Budget Office said on Friday.`\
 https://nytimes.com/2025/07/18/health/trump-nih-medical-research.html
