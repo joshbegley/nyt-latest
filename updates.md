@@ -1,3 +1,11 @@
+**Jets sign Gabriel Vilardi to 6-year contract extension, avoid arbitration**\
+`Vilardi scored 61 points in 71 games last season and plays an integral role on Winnipeg's top power-play unit.`\
+https://nytimes.com/athletic/6503000/2025/07/18/winnipeg-jets-gabriel-vilardi-contract-extension-arbitration/
+
+**A Brief History of CBS’s Late-Night Eras**\
+`With the hosts Merv Griffin, Pat Sajak, David Letterman and Stephen Colbert, CBS has taken many runs at late-night TV. Some were more successful than others.`\
+https://nytimes.com/2025/07/18/arts/television/cbs-late-night-shows-colbert-letterman.html
+
 **Major Prisoner Swap Frees Americans in Venezuela for Migrants in El Salvador**\
 `A deal freed 10 Americans and permanent residents detained in Venezuela for more than 200 Venezuelan migrants who were imprisoned in El Salvador after being expelled from the United States.`\
 https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html

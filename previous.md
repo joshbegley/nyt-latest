@@ -1,3 +1,11 @@
+**Jets sign Gabriel Vilardi to 6-year contract extension, avoid arbitration**\
+`Vilardi scored 61 points in 71 games last season and plays an integral role on Winnipeg's top power-play unit.`\
+https://nytimes.com/athletic/6503000/2025/07/18/winnipeg-jets-gabriel-vilardi-contract-extension-arbitration/
+
+**A Brief History of CBS’s Late-Night Eras**\
+`With the hosts Merv Griffin, Pat Sajak, David Letterman and Stephen Colbert, CBS has taken many runs at late-night TV. Some were more successful than others.`\
+https://nytimes.com/2025/07/18/arts/television/cbs-late-night-shows-colbert-letterman.html
+
 **Shannon Sharpe Settles Lawsuit Accusing Him of Rape**\
 `A lawyer for the woman, who had sought $50 million in damages, said both sides acknowledged a “consensual and tumultuous relationship.”`\
 https://nytimes.com/2025/07/18/arts/television/shannon-sharpe-settlement-rape-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-cont
 **Justin Bieber Awakens His Old Soul**\
 `“Swag,” a new album of dreamy beats and unexpected collaborations, eschews formulaic pop to lean into the singer’s R&B instincts.`\
 https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
-
-**Cuban Minister Ousted After Accusing Beggars of Faking Poverty**\
-`The labor and social security minister drew public outrage when she said “there are no beggars” in Cuba, where many people struggle to afford food.`\
-https://nytimes.com/2025/07/18/world/cuba-minister-resigns-beggars-poverty.html
-
-**Stephen Colbert Could Never Save Us From Trump**\
-`Mocking Donald Trump will not destroy him.`\
-https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
 
