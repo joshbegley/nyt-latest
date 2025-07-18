@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, July 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/18/todays-new-york-times-international-edition
+
 **Crystal Palace prospect Hindolo Mustapha suffers knee injury**\
 `Promising No 10 was due to travel with Oliver Glasner's team to Austria for a pre-season training camp but will now start rehabilitation`\
 https://nytimes.com/athletic/6501641/2025/07/18/crystal-palace-hindolo-mustapha-knee-injury/
