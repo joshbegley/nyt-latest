@@ -1,3 +1,11 @@
+**Yacht trips, equity, Apple TV income and sunbeds: How clubs convince players to sign for them**\
+`It’s not just about a few quid and a nice car anymore – there can be plenty of other options offered to a transfer target`\
+https://nytimes.com/athletic/6499780/2025/07/18/transfers-players-yachts-equity-how-clubs-convince/
+
+**The holiday is over. Now it's time to run. Welcome to football's pre-season running tests**\
+`With the help of some expert insight, The Athletic looks at six different ways footballers are made to run on their return to pre-season...`\
+https://nytimes.com/athletic/6491989/2025/07/18/pre-season-running-football-gacon-bronco/
+
 **'Usyk's willpower is stronger than any other boxer. We do things nobody else would do'**\
 `The Ukrainian's training partner explains what makes him such a force of nature ahead of rematch with Daniel Dubois this weekend`\
 https://nytimes.com/athletic/6499579/2025/07/18/oleksandr-usyk-daniel-dubois-boxing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/18/style/modern-love-he-took-my-story-so-i-made-a-ne
 **A Big, Adorable Reveal on the Second Date**\
 `Dayton Munson and Emily Orozco hit it off over Bumble, then over a series of restaurant dates.`\
 https://nytimes.com/2025/07/18/style/emily-orozco-dayton-munson-wedding.html
-
-**Seeking a Friend, Finding Much More**\
-`Ernie Apreza and Kyle Labarry were looking for community in a new city when they first met 10 years ago. Along the way, they found love.`\
-https://nytimes.com/2025/07/18/style/ernie-apreza-kyle-labarry-wedding.html
-
-**He Didn’t Know It Was an Audition. But He Got the Husband Role.**\
-`Aleksandra Dubov and Daniyel Berchenko were stargazing in the California desert when Ms. Dubov asked him a direct question.`\
-https://nytimes.com/2025/07/18/style/aleksandra-dubov-daniyel-berchenko-wedding.html
 
