@@ -1,3 +1,15 @@
+**His Old Books Look Great Beside New Clothes**\
+`Geoff Snack, a vintage and rare book dealer, is getting calls from small boutiques as well as mass retailers that want what he’s selling.`\
+https://nytimes.com/2025/07/18/style/geoff-snack-vintage-books-clothes.html
+
+**A Bright Baked Salmon, Satisfying Cold Tofu and Better Rice Krispies Treats**\
+`Smart and satisfying recipes for hot summer evenings.`\
+https://nytimes.com/2025/07/18/dining/baked-salmon-with-harissa-and-cherry-tomatoes-and-more-summer-recipes.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include menacing grandparents, famished vampires and pernicious cultists.`\
+https://nytimes.com/2025/07/18/movies/five-horror-movies-to-stream-now.html
+
 **Forest's Danilo set for Botafogo transfer**\
 `The clubs have already done business this summer, with Igor Jesus and Jair Cunha moving from Brazil to England.`\
 https://nytimes.com/athletic/6502174/2025/07/18/nottingham-forest-danilo-botafogo/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6502068/2025/07/18/george-campbell-west-brom-transf
 **The fantasy football tight ends to draft ... and those to avoid**\
 `Jake Ciely shares his fantasy football strategy to help you maximize the draft value at tight end in 2025. `\
 https://nytimes.com/athletic/6500330/2025/07/18/fantasy-football-draft-te-rankings-values-adp/
-
-**Felix Baumgartner, Professional Daredevil, Dies Paragliding at 56**\
-`Nicknamed “Fearless Felix,” Mr. Baumgartner jumped from the edge of space in 2012.`\
-https://nytimes.com/2025/07/18/world/europe/felix-baumgartner-dead.html
-
-**Alan Bergman, Half of a Prolific Lyric-Writing Team, Dies at 99**\
-`With his wife, Marilyn, he wrote the words to memorable TV theme songs and the Oscar-winning “The Way We Were” and “The Windmills of Your Mind.”`\
-https://nytimes.com/2025/07/18/arts/music/alan-bergman-dead.html
-
-**Bolsonaro Ordered to Wear Ankle Monitor, Escalating Brazil’s Feud With Trump**\
-`Brazil’s Supreme Court ordered Jair Bolsonaro, the former president, to stay home most hours, defying President Trump’s demands that charges against Mr. Bolsonaro be dropped.`\
-https://nytimes.com/2025/07/18/world/americas/brazil-president-bolsonaro-ankle-monitor.html
 
