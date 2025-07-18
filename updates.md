@@ -1,3 +1,7 @@
+**Perrone leaves Man City for Como in permanent transfer**\
+`The deal will include a 30 per cent sell-on clause and a buy-back option for the Premier League club.`\
+https://nytimes.com/athletic/6501590/2025/07/18/man-city-maximo-perrone-como-transfer/
+
 **Burnley and X: Explaining their new partnership, how it happened and why it may be controversial**\
 `Analysing the 'unique' deal between the promoted Premier League club and one of the world's biggest social media platforms`\
 https://nytimes.com/athletic/6499568/2025/07/18/burnley-x-partnership-controversy/

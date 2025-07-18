@@ -1,3 +1,7 @@
+**Perrone leaves Man City for Como in permanent transfer**\
+`The deal will include a 30 per cent sell-on clause and a buy-back option for the Premier League club.`\
+https://nytimes.com/athletic/6501590/2025/07/18/man-city-maximo-perrone-como-transfer/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/18/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-ending.
 **Word of the Day: pacify**\
 `This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/18/learning/word-of-the-day-pacify.html
-
-**England somehow beat Sweden in a genuine epic that had several chapters**\
-`England are through to the semi-finals of Euro 2025 after a quite ludicrous football match with Sweden. Not much of it made sense`\
-https://nytimes.com/athletic/6501178/2025/07/18/england-sweden-euros-epic-shootout/
 
