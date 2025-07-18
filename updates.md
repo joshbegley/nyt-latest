@@ -1,3 +1,7 @@
+**Leeds complete Longstaff transfer from Newcastle**\
+`The newly-promoted side will pay an upfront fee of £12million for the 27-year-old alongside a further £3m in achievable add-ons.`\
+https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
+
 **Villa optimistic Kamara will sign new contract**\
 `The France international's existing terms run out in June 2027.`\
 https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-contract/

@@ -1,3 +1,7 @@
+**Leeds complete Longstaff transfer from Newcastle**\
+`The newly-promoted side will pay an upfront fee of £12million for the 27-year-old alongside a further £3m in achievable add-ons.`\
+https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
+
 **Villa optimistic Kamara will sign new contract**\
 `The France international's existing terms run out in June 2027.`\
 https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502582/2025/07/18/mlb-nba-all-star-uniforms/
 **Trump Says He Doesn’t ‘Draw Pictures.’ But Many of His Sketches Sold at Auction.**\
 `The president disputes reporting from The Wall Street Journal that he drew a picture for Jeffrey Epstein, but as a real estate mogul, he often sketched for charity.`\
 https://nytimes.com/2025/07/18/us/politics/trump-drawings-epstein.html
-
-**White House to Release $1.3 Billion in Frozen Funds for After-School Programs**\
-`The money will allow federally funded after-school programs to open this school year, preserving a lifeline for working parents. But other federal dollars remain on hold.`\
-https://nytimes.com/2025/07/18/us/trump-after-school-funding.html
 
