@@ -1,3 +1,8 @@
+**Former goalie Jaroslav Halak retires after 17 NHL seasons**\
+`Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
+`\
+https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goalie/
+
 **How to Plan the Perfect Wellness Getaway**\
 `Taking some time away to reset, recharge and renew needn’t be complicated. With a little forethought and a small amount of planning, a truly mindful escape can feel like just that. `\
 https://nytimes.com/paidpost/capital-one/how-to-plan-the-perfect-wellness-getaway.html

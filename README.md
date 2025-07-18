@@ -1,3 +1,7 @@
+**Scottie Scheffler raised questions about happiness and fulfillment. This professor has answers**\
+`Harvard's Arthur Brooks has spent years thinking, writing and talking about the keys to a life of happiness and fulfillment. `\
+https://nytimes.com/athletic/6502755/2025/07/18/scottie-scheffler-arthur-brooks-happiness-fulfillment-open/
+
 **How to Plan the Perfect Wellness Getaway**\
 `Taking some time away to reset, recharge and renew needn’t be complicated. With a little forethought and a small amount of planning, a truly mindful escape can feel like just that. `\
 https://nytimes.com/paidpost/capital-one/how-to-plan-the-perfect-wellness-getaway.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6502659/2025/07/18/griedge-mbock-france-euro-2025-i
 **WATCH: Point Flagg? Why Mavs used their new phenom this way in NBA Summer League**\
 `A decade ago, Jason Kidd experimented with using a giant forward as a point guard. Now, he's doing the same with No. 1 pick Cooper Flagg.`\
 https://nytimes.com/athletic/6502363/2025/07/18/video-cooper-flagg-mavericks-summer-league-highlights/
-
-**Robert Alvarez, 76, Dies; Called Attention to Nuclear-Waste Safety**\
-`A self-taught expert, he spent decades working in both nonprofits and the government to expose problems in the production of atomic weapons.`\
-https://nytimes.com/2025/07/18/us/robert-alvarez-dead.html
 
