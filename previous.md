@@ -1,3 +1,11 @@
+**After the Floods, a Pain So Vast It Makes Texas Feel Small**\
+`The Hill Country has a hold on the hearts of many Texans, meaning the suffering caused by the disaster is reaching as far as the region’s appeal.`\
+https://nytimes.com/2025/07/18/us/texas-hill-country-floods-impact.html
+
+**State Dept. Official Says Criticism of Israel Can Lead to Visa Revocations**\
+`The head of the Bureau of Consular Affairs said his office regularly weighed criticism of Israel when determining whether to deny or revoke student visas.`\
+https://nytimes.com/2025/07/18/us/politics/us-visa-revocations-israel.html
+
 **Nine Inch Nails Revisits the ’80s, and 9 More New Songs**\
 `Hear tracks by Robert Plant, Amanda Shires, Blood Orange and more.`\
 https://nytimes.com/2025/07/18/arts/music/playlist-nine-inch-nails-robert-plant.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-cancele
 `The streaming company said it used the technology onscreen for the first time in an Argentine science fiction show.`\
 https://nytimes.com/2025/07/18/arts/television/netflix-ai-eternaut.html
 
-**Tour de France stage 13: Back-to-back stage wins for Pogacar, some vintage Roglic, and what's wrong with Remco?**\
+**Tour de France stage 13: Back-to-back stage wins for Pogacar, some vintage Roglic - and what's wrong with Remco?**\
 `Analysis of the latest day's action in the 2025 race - a 10.9km mountain time trial from Loudenvielle to Peyragudes`\
 https://nytimes.com/athletic/6501877/2025/07/18/tour-de-france-stage-13-analysis/
-
-**How John Calipari’s strong take on the transfer portal lets coaches off the hook**\
-`Calipari addressed the transfer portal and its potential for adverse effects on the mental health of the athletes who use it.`\
-https://nytimes.com/athletic/6502419/2025/07/18/john-calipari-transfer-portal-rules/
-
-**Heavy Monsoon Rains Kill Dozens in Pakistan**\
-`The relentless rain caused flooding across the country’s most populous province. Many of those killed have been children, officials said.`\
-https://nytimes.com/video/world/asia/100000010292800/heavy-monsoon-rains-kill-dozens-in-pakistan.html
 

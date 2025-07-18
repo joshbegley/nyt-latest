@@ -1,3 +1,15 @@
+**After the Floods, a Pain So Vast It Makes Texas Feel Small**\
+`The Hill Country has a hold on the hearts of many Texans, meaning the suffering caused by the disaster is reaching as far as the region’s appeal.`\
+https://nytimes.com/2025/07/18/us/texas-hill-country-floods-impact.html
+
+**State Dept. Official Says Criticism of Israel Can Lead to Visa Revocations**\
+`The head of the Bureau of Consular Affairs said his office regularly weighed criticism of Israel when determining whether to deny or revoke student visas.`\
+https://nytimes.com/2025/07/18/us/politics/us-visa-revocations-israel.html
+
+**Tour de France stage 13: Back-to-back stage wins for Pogacar, some vintage Roglic - and what's wrong with Remco?**\
+`Analysis of the latest day's action in the 2025 race - a 10.9km mountain time trial from Loudenvielle to Peyragudes`\
+https://nytimes.com/athletic/6501877/2025/07/18/tour-de-france-stage-13-analysis/
+
 **Tour de France stage 13: Back-to-back stage wins for Pogacar, some vintage Roglic, and what's wrong with Remco?**\
 `Analysis of the latest day's action in the 2025 race - a 10.9km mountain time trial from Loudenvielle to Peyragudes`\
 https://nytimes.com/athletic/6501877/2025/07/18/tour-de-france-stage-13-analysis/
