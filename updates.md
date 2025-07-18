@@ -1,3 +1,7 @@
+**The fantasy football tight ends to draft ... and those to avoid**\
+`Jake Ciely shares his fantasy football strategy to help you maximize the draft value at tight end in 2025. `\
+https://nytimes.com/athletic/6500330/2025/07/18/fantasy-football-draft-te-rankings-values-adp/
+
 **Felix Baumgartner, Professional Daredevil, Dies Paragliding at 56**\
 `Nicknamed “Fearless Felix,” Mr. Baumgartner jumped from the edge of space in 2012.`\
 https://nytimes.com/2025/07/18/world/europe/felix-baumgartner-dead.html
