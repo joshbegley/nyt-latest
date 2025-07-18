@@ -1,3 +1,11 @@
+**Felix Baumgartner, Professional Daredevil, Dies Paragliding at 56**\
+`Nicknamed “Fearless Felix,” Mr. Baumgartner jumped from the edge of space in 2012.`\
+https://nytimes.com/2025/07/18/world/europe/felix-baumgartner-dead.html
+
+**Alan Bergman, Half of a Prolific Lyric-Writing Team, Dies at 99**\
+`With his wife, Marilyn, he wrote the words to memorable TV theme songs and the Oscar-winning “The Way We Were” and “The Windmills of Your Mind.”`\
+https://nytimes.com/2025/07/18/arts/music/alan-bergman-dead.html
+
 **Bolsonaro Ordered to Wear Ankle Monitor Before Trial**\
 `Brazil’s Supreme Court ordered Jair Bolsonaro, the former president, to stay home most hours, defying President Trump’s demands that charges against Mr. Bolsonaro be dropped.`\
 https://nytimes.com/2025/07/18/world/americas/brazil-president-bolsonaro-ankle-monitor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/18/business/stocks-emerging-markets-risk.html
 **Five Free Movies to Stream Now**\
 `Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
 https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
-
-**The Windup: Debunking that viral home run**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6501545/2025/07/18/trevor-bauer-elehuris-montero-home-run-the-windup/
-
-**This Dinosaur Probably Tweeted More Than It Roared**\
-`The anatomy of a Chinese fossil offers a hint that birdsong may be as old as the dinosaurs themselves.`\
-https://nytimes.com/2025/07/18/science/dinosaur-fossil-voice-china.html
 

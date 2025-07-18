@@ -1,3 +1,11 @@
+**Felix Baumgartner, Professional Daredevil, Dies Paragliding at 56**\
+`Nicknamed “Fearless Felix,” Mr. Baumgartner jumped from the edge of space in 2012.`\
+https://nytimes.com/2025/07/18/world/europe/felix-baumgartner-dead.html
+
+**Alan Bergman, Half of a Prolific Lyric-Writing Team, Dies at 99**\
+`With his wife, Marilyn, he wrote the words to memorable TV theme songs and the Oscar-winning “The Way We Were” and “The Windmills of Your Mind.”`\
+https://nytimes.com/2025/07/18/arts/music/alan-bergman-dead.html
+
 **Bolsonaro Ordered to Wear Ankle Monitor Before Trial**\
 `Brazil’s Supreme Court ordered Jair Bolsonaro, the former president, to stay home most hours, defying President Trump’s demands that charges against Mr. Bolsonaro be dropped.`\
 https://nytimes.com/2025/07/18/world/americas/brazil-president-bolsonaro-ankle-monitor.html
