@@ -1,3 +1,15 @@
+**Trump Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
+`The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files into the disgraced financier.`\
+https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
+
+**Onto the weekend at the Open Championship, Dustin Johnson ponders his future**\
+`Since announcing his defection to LIV in 2022, Johnson’s slippage in the sport has been somewhat of an unspoken tragedy.`\
+https://nytimes.com/athletic/6502958/2025/07/18/dustin-johnson-open-championship-future/
+
+**NASCAR's Chicago Street Race is off for 2026, but 'our goal' is a 2027 return**\
+`NASCAR said it hopes to return in 2027, but noted the need to find a new potential date as part of the difficulties for next season.`\
+https://nytimes.com/athletic/6503013/2025/07/18/nascar-chicago-street-race-2026-schedule/
+
 **Finding Beauty in Maximum Discount**\
 `Big-box retail constructs its infinite aesthetic array out of hundreds of thousands of brush strokes.`\
 https://nytimes.com/interactive/2025/07/18/opinion/walmart-shopping-beauty.html

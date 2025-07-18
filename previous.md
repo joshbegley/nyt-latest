@@ -1,3 +1,15 @@
+**Trump Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
+`The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files into the disgraced financier.`\
+https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
+
+**Onto the weekend at the Open Championship, Dustin Johnson ponders his future**\
+`Since announcing his defection to LIV in 2022, Johnson’s slippage in the sport has been somewhat of an unspoken tragedy.`\
+https://nytimes.com/athletic/6502958/2025/07/18/dustin-johnson-open-championship-future/
+
+**NASCAR's Chicago Street Race is off for 2026, but 'our goal' is a 2027 return**\
+`NASCAR said it hopes to return in 2027, but noted the need to find a new potential date as part of the difficulties for next season.`\
+https://nytimes.com/athletic/6503013/2025/07/18/nascar-chicago-street-race-2026-schedule/
+
 **Finding Beauty in Maximum Discount**\
 `Big-box retail constructs its infinite aesthetic array out of hundreds of thousands of brush strokes.`\
 https://nytimes.com/interactive/2025/07/18/opinion/walmart-shopping-beauty.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/18/arts/television/shannon-sharpe-settlement-rape-la
 **Major Prisoner Swap Frees Americans in Venezuela for Migrants in El Salvador**\
 `A deal freed 10 Americans and permanent residents detained in Venezuela for more than 200 Venezuelan migrants who were imprisoned in El Salvador after being expelled from the United States.`\
 https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html
-
-**F.D.A. to Ask Biotech Company to Stop Shipping Treatment Linked to Patient Deaths**\
-`Three patients with a muscle-wasting disease died from liver failure after taking the therapy, Ele­vidys, or a similar treatment.`\
-https://nytimes.com/2025/07/18/health/fda-sarepta-elevidys-duchenne.html
-
-**Rory still has a chance at this Open. All of Northern Ireland is behind him**\
-`"I feel like my game's definitely good enough to make a run."`\
-https://nytimes.com/athletic/6502902/2025/07/18/rory-mcilroy-open-championship-northern-ireland/
-
-**Pelicans rookie Derik Queen sidelined at least 3 months after wrist surgery**\
-`Queen, the 13th pick in the 2025 draft, sustained the injury in a Las Vegas Summer League contest Tuesday.`\
-https://nytimes.com/athletic/6502868/2025/07/18/pelicans-derik-queen-sidelined-three-months-wrist-surgery/
 
