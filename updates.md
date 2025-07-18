@@ -1,3 +1,11 @@
+**Terrelle Pryor's lawsuit against Ohio State, NCAA and Big Ten dismissed**\
+`Pryor sued his alma mater in October after Heisman Trophy winner Reggie Bush filed a similar suit against USC and the NCAA.`\
+https://nytimes.com/athletic/6502677/2025/07/18/terrelle-pryor-nil-lawsuit-dismissed/
+
+**France captain Mbock available for Euro 2025 quarter-final, not seeking Germany 'revenge'**\
+`Mbock has been absent for all of France’s three group-stage wins with a right calf injury.`\
+https://nytimes.com/athletic/6502659/2025/07/18/griedge-mbock-france-euro-2025-injury-update/
+
 **Son's future, injuries and using a No 10: What we learned from Frank's press conference**\
 `The new head coach spoke to the media for the first time since joining Tottenham this summer`\
 https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
