@@ -1,3 +1,7 @@
+**Revealed: Mbeumo bid during Man Utd execs' Iceland summit, Ratcliffe’s fishing trip, ‘bomb squad’ fears**\
+`Club's Scandinavian meeting may be strangely timed but it did not stop transfer plans being pushed through`\
+https://nytimes.com/athletic/6499485/2025/07/18/manchester-united-iceland-ratcliffe/
+
 **Stephen Colbert Laments the Loss of ‘The Late Show’**\
 `CBS “will be ending ‘The Late Show’ in May,” Colbert told his audience on Thursday. He kept the announcement brief and light.`\
 https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-ending.html
