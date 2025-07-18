@@ -1,4 +1,8 @@
 **NFLPA’s interim executive director not expected to get full-time job: Source**\
+`According to an NFLPA source, the union’s legal team is meeting with the executive committee and board of player reps in the coming days.`\
+https://nytimes.com/athletic/6502014/2025/07/18/nflpa-executive-director-howell-tretter/
+
+**NFLPA’s interim executive director not expected to get full-time job: Source**\
 `According to an NFLPA source, the union’s legal team is meeting with the executive committee and board of player reps on Friday.`\
 https://nytimes.com/athletic/6502014/2025/07/18/nflpa-executive-director-howell-tretter/
 
