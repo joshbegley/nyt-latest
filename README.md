@@ -1,3 +1,7 @@
+**A Brief History of CBS’s Late-Night Eras**\
+`With the hosts Merv Griffin, Pat Sajak, David Letterman and Stephen Colbert, CBS has taken many runs at late-night TV. Some were more successful than others.`\
+https://nytimes.com/2025/07/18/arts/television/cbs-late-night-shows-colbert-letterman.html
+
 **Shannon Sharpe Settles Lawsuit Accusing Him of Rape**\
 `A lawyer for the woman, who had sought $50 million in damages, said both sides acknowledged a “consensual and tumultuous relationship.”`\
 https://nytimes.com/2025/07/18/arts/television/shannon-sharpe-settlement-rape-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
 **Cuban Minister Ousted After Accusing Beggars of Faking Poverty**\
 `The labor and social security minister drew public outrage when she said “there are no beggars” in Cuba, where many people struggle to afford food.`\
 https://nytimes.com/2025/07/18/world/cuba-minister-resigns-beggars-poverty.html
-
-**Stephen Colbert Could Never Save Us From Trump**\
-`Mocking Donald Trump will not destroy him.`\
-https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
 

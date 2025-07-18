@@ -1,3 +1,7 @@
+**Major Prisoner Swap Frees Americans in Venezuela for Migrants in El Salvador**\
+`A deal freed 10 Americans and permanent residents detained in Venezuela for more than 200 Venezuelan migrants who were imprisoned in El Salvador after being expelled from the United States.`\
+https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html
+
 **Shannon Sharpe Settles Lawsuit Accusing Him of Rape**\
 `A lawyer for the woman, who had sought $50 million in damages, said both sides acknowledged a “consensual and tumultuous relationship.”`\
 https://nytimes.com/2025/07/18/arts/television/shannon-sharpe-settlement-rape-lawsuit.html
