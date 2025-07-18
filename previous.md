@@ -1,3 +1,7 @@
+**To Staff Trump’s Immigration Crackdown, ICE Entices Its Retirees**\
+`The administration is offering financial incentives to lure back recently departed immigration officers as it works to fill 10,000 job openings.`\
+https://nytimes.com/2025/07/18/us/ice-recruit-retiree.html
+
 **Jets sign Gabriel Vilardi to 6-year contract extension, avoid arbitration**\
 `Vilardi scored 61 points in 71 games last season and plays an integral role on Winnipeg's top power-play unit.`\
 https://nytimes.com/athletic/6503000/2025/07/18/winnipeg-jets-gabriel-vilardi-contract-extension-arbitration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
 **Villa optimistic Kamara will sign new contract**\
 `The France international's existing terms run out in June 2027.`\
 https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-contract/
-
-**Justin Bieber Awakens His Old Soul**\
-`“Swag,” a new album of dreamy beats and unexpected collaborations, eschews formulaic pop to lean into the singer’s R&B instincts.`\
-https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
 
