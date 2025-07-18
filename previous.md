@@ -1,8 +1,16 @@
+**WATCH: Point Flagg? Why Mavs used their new phenom this way in NBA Summer League**\
+`A decade ago, Jason Kidd experimented with using a giant forward as a point guard. Now, he's doing the same with No. 1 pick Cooper Flagg.`\
+https://nytimes.com/athletic/6502363/2025/07/18/video-cooper-flagg-mavericks-summer-league-highlights/
+
+**Robert Alvarez, 76, Dies; Called Attention to Nuclear-Waste Safety**\
+`A self-taught expert, he spent decades working in both nonprofits and the government to expose problems in the production of atomic weapons.`\
+https://nytimes.com/2025/07/18/us/robert-alvarez-dead.html
+
 **Lawmakers Question Whether CBS Canceled Colbert’s Show for Political Reasons**\
 `Paramount, the network’s parent, recently agreed to pay President Trump $16 million to settle his lawsuit over the editing of an interview on the CBS News program “60 Minutes.”`\
 https://nytimes.com/2025/07/18/us/politics/stephen-colbert-canceled-trump-lawmakers.html
 
-**Son's future, injuries and using a No 10 - what we learned from Frank press conference**\
+**Son's future, injuries and using a No 10: What we learned from Frank press conference**\
 `The new head coach spoke to the media for the first time since joining Tottenham this summer`\
 https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6499804/2025/07/18/luis-ortiz-paid-leave-extended-m
 **An Uproar as CBS Cancels Stephen Colbert**\
 `Readers, many of them unhappy, react to the cancellation of Mr. Colbert’s show. Also: A rubber-stamp Congress; lessons from the Scopes trial.`\
 https://nytimes.com/2025/07/18/opinion/stephen-colbert-cbs-cancellation.html
-
-**How Hollywood’s Favorite Video Store Outlived Blockbuster**\
-`Vidiots, a holdover from the golden age of VHS, is staging a comeback as a community hub.`\
-https://nytimes.com/2025/07/18/t-magazine/vidiots-los-angeles.html
-
-**When It Comes to Jeffrey Epstein, Trump Says He Is Ready to Defer to the Courts**\
-`After months of pushing back against federal judges and the courts, the president has requested the release of Epstein-related grand jury testimony to be “subject to Court approval.”`\
-https://nytimes.com/2025/07/18/us/politics/trump-epstein-letter-birthday-courts.html
 

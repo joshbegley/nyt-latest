@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/18/us/robert-alvarez-dead.html
 `Paramount, the network’s parent, recently agreed to pay President Trump $16 million to settle his lawsuit over the editing of an interview on the CBS News program “60 Minutes.”`\
 https://nytimes.com/2025/07/18/us/politics/stephen-colbert-canceled-trump-lawmakers.html
 
-**Son's future, injuries and using a No 10: What we learned from Frank press conference**\
+**Son's future, injuries and using a No 10: What we learned from Frank's press conference**\
 `The new head coach spoke to the media for the first time since joining Tottenham this summer`\
 https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
 
