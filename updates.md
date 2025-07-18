@@ -1,3 +1,11 @@
+**Lawmakers Question Whether CBS Canceled Colbert’s Show for Political Reasons**\
+`Paramount, the network’s parent, recently agreed to pay President Trump $16 million to settle his lawsuit over the editing of an interview on the CBS News program “60 Minutes.”`\
+https://nytimes.com/2025/07/18/us/politics/stephen-colbert-canceled-trump-lawmakers.html
+
+**Son's future, injuries and using a No 10 - what we learned from Frank press conference**\
+`The new head coach spoke to the media for the first time since joining Tottenham this summer`\
+https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
+
 **Watford confirm signing of Bayern teenager Irankunda**\
 `The Australia international has been on loan in Switzerland since January and appeared 15 times for Bayern's amateur side.`\
 https://nytimes.com/athletic/6502640/2025/07/18/watford-nestory-irankunda-bayern-munich-transfer/
