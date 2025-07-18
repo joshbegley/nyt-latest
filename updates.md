@@ -1,3 +1,7 @@
+**Health Cuts Would Result in Fewer Drugs for Americans, Budget Office Reports**\
+`The Trump administration’s proposed cuts to medical research and health agencies will curtail the development of promising medications, the Congressional Budget Office said on Friday.`\
+https://nytimes.com/2025/07/18/health/trump-nih-medical-research.html
+
 **How a Video Studio Embraced A.I. and Stormed the Internet**\
 `The Dor Brothers are indie filmmakers whose viral videos are generated entirely by artificial intelligence.`\
 https://nytimes.com/2025/07/18/technology/dor-video-studio-ai.html
