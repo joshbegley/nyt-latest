@@ -1,3 +1,7 @@
+**Son's future, injuries and using a No 10: What we learned from Frank's press conference**\
+`The new head coach spoke to the media for the first time since joining Tottenham this summer`\
+https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
+
 **WATCH: Point Flagg? Why Mavs used their new phenom this way in NBA Summer League**\
 `A decade ago, Jason Kidd experimented with using a giant forward as a point guard. Now, he's doing the same with No. 1 pick Cooper Flagg.`\
 https://nytimes.com/athletic/6502363/2025/07/18/video-cooper-flagg-mavericks-summer-league-highlights/

@@ -1,3 +1,11 @@
+**Terrelle Pryor's lawsuit against Ohio State, NCAA and Big Ten dismissed**\
+`Pryor sued his alma mater in October after Heisman Trophy winner Reggie Bush filed a similar suit against USC and the NCAA.`\
+https://nytimes.com/athletic/6502677/2025/07/18/terrelle-pryor-nil-lawsuit-dismissed/
+
+**France captain Mbock available for Euro 2025 quarter-final, not seeking Germany 'revenge'**\
+`Mbock has been absent for all of France’s three group-stage wins with a right calf injury.`\
+https://nytimes.com/athletic/6502659/2025/07/18/griedge-mbock-france-euro-2025-injury-update/
+
 **WATCH: Point Flagg? Why Mavs used their new phenom this way in NBA Summer League**\
 `A decade ago, Jason Kidd experimented with using a giant forward as a point guard. Now, he's doing the same with No. 1 pick Cooper Flagg.`\
 https://nytimes.com/athletic/6502363/2025/07/18/video-cooper-flagg-mavericks-summer-league-highlights/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/us-visa-revocations-israel.html
 **Nine Inch Nails Revisits the ’80s, and 9 More New Songs**\
 `Hear tracks by Robert Plant, Amanda Shires, Blood Orange and more.`\
 https://nytimes.com/2025/07/18/arts/music/playlist-nine-inch-nails-robert-plant.html
-
-**MLB extends paid leave for Luis Ortiz amid gambling investigation**\
-`Ortiz’s leave was set to expire Friday before the extension.`\
-https://nytimes.com/athletic/6499804/2025/07/18/luis-ortiz-paid-leave-extended-mlb/
-
-**An Uproar as CBS Cancels Stephen Colbert**\
-`Readers, many of them unhappy, react to the cancellation of Mr. Colbert’s show. Also: A rubber-stamp Congress; lessons from the Scopes trial.`\
-https://nytimes.com/2025/07/18/opinion/stephen-colbert-cbs-cancellation.html
 
