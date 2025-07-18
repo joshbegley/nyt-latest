@@ -1,3 +1,7 @@
+**Newsom Wants California to Counter Texas on Redistricting**\
+`Gov. Gavin Newsom says California should redraw its own congressional districts if Texas tries to gerrymander its lines. His idea faces long odds.`\
+https://nytimes.com/2025/07/17/us/california-texas-redistricting-newsom.html
+
 **Ex-Voice of America Employee Arrested and Charged With Threatening Marjorie Taylor Greene**\
 `Federal prosecutors accused the man of threatening to kill Ms. Greene, her staff, and their families, months before President Trump sought to dismantle the news agency.`\
 https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-greene.html
