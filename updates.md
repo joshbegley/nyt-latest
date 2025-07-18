@@ -1,3 +1,7 @@
+**Five Free Movies to Stream Now**\
+`Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
+https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
+
 **The Windup: Debunking that viral home run**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6501545/2025/07/18/trevor-bauer-elehuris-montero-home-run-the-windup/

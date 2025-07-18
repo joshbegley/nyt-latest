@@ -1,3 +1,7 @@
+**Five Free Movies to Stream Now**\
+`Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
+https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
+
 **The Windup: Debunking that viral home run**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6501545/2025/07/18/trevor-bauer-elehuris-montero-home-run-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500110/2025/07/18/winnipeg-jets-2025-26-lineup-pro
 **Why Dansby Swanson is confident the first-place Cubs will be a second-half team**\
 `Swanson understands the expectations, and he knows what it takes after winning the 2021 World Series with the Atlanta Braves.`\
 https://nytimes.com/athletic/6501202/2025/07/18/dansby-swanson-cubs-second-half-team/
-
-**Man Utd agree fee worth up to £71m for Mbeumo**\
-`The deal comprises an initial £65m, to be paid in four instalments, plus a maximum of £6m in potential bonuses.`\
-https://nytimes.com/athletic/6499896/2025/07/18/bryan-mbeumo-man-utd-transfer/
 
