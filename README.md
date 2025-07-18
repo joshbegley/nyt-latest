@@ -1,3 +1,7 @@
+**Shannon Sharpe Settles Lawsuit Accusing Him of Rape**\
+`A lawyer for the woman, who had sought $50 million in damages, said both sides acknowledged a “consensual and tumultuous relationship.”`\
+https://nytimes.com/2025/07/18/arts/television/shannon-sharpe-settlement-rape-lawsuit.html
+
 **Prisoner Swap Frees Americans in Venezuela for Migrants Held in El Salvador**\
 `A deal freed Americans detained in Venezuela for Venezuelan migrants who were imprisoned in El Salvador after being expelled from the United States.`\
 https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/world/cuba-minister-resigns-beggars-poverty.html
 **Stephen Colbert Could Never Save Us From Trump**\
 `Mocking Donald Trump will not destroy him.`\
 https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
-
-**Flashback: Your Weekly History Quiz, July 19, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/07/18/upshot/flashback.html
 
