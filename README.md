@@ -1,3 +1,7 @@
+**NFLPA’s interim executive director not expected to get full-time job: Source**\
+`According to an NFLPA source, the union’s legal team is meeting with the executive committee and board of player reps on Friday.`\
+https://nytimes.com/athletic/6502014/2025/07/18/nflpa-executive-director-howell-tretter/
+
 **The Bounce: 3 key WNBA questions now that All-Star break is here. Plus, a new 3-point idea for the NBA**\
 `What is going on around the WNBA now that All-Star has arrived? Sabreena Merchant joins The Bounce to discuss`\
 https://nytimes.com/athletic/6501972/2025/07/18/wnba-all-star-break-nba-damian-lillard-trail-blazers-the-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6501935/2025/07/18/caitlin-clark-lexie-hull-3-point
 **Derrick Rose eager to shine light on NBA's secret obsession: Chess**\
 `"You start to see how important just one move is," says Rose about chess.  "And that one move is a choice in life.”`\
 https://nytimes.com/athletic/6499280/2025/07/18/nba-hobbies-derrick-rose-chess/
-
-**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 25 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
-https://nytimes.com/2025/07/18/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
 
