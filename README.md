@@ -1,3 +1,23 @@
+**What's next for Canucks after Joshua trade? Cap space, centres and UFA targets**\
+`Here's what we should expect the Canucks to do in the wake of trading Joshua to the Maple Leafs.`\
+https://nytimes.com/athletic/6501066/2025/07/18/canucks-dakota-joshua-trade-salary-cap/
+
+**Lowetide: How many points can Oilers' Matt Savoie produce in his rookie season?**\
+`What's a reasonable projection for Savoie offensively if he gets a top-six role with Edmonton?`\
+https://nytimes.com/athletic/6500955/2025/07/18/matt-savoie-oilers-stats-rookie/
+
+**Trump Administration Live Updates: Bondi to Seek Release of Some Epstein Material, but Faces Hurdles**\
+``\
+https://nytimes.com/live/2025/07/18/us/trump-news
+
+**Jets 2025-26 lineup projection, plus the biggest questions at every position**\
+`As the Jets roster crystallizes, here are the biggest questions facing Winnipeg's projected roster — up front, on defence and in net.`\
+https://nytimes.com/athletic/6500110/2025/07/18/winnipeg-jets-2025-26-lineup-projection-questions/
+
+**Why Dansby Swanson is confident the first-place Cubs will be a second-half team**\
+`Swanson understands the expectations, and he knows what it takes after winning the 2021 World Series with the Atlanta Braves.`\
+https://nytimes.com/athletic/6501202/2025/07/18/dansby-swanson-cubs-second-half-team/
+
 **Man Utd agree fee worth up to £71m for Mbeumo**\
 `The deal comprises an initial £65m, to be paid in four instalments, plus a maximum of £6m in potential bonuses.`\
 https://nytimes.com/athletic/6499896/2025/07/18/bryan-mbeumo-man-utd-transfer/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6494489/2025/07/18/otto-kemp-phillies-point-lomo-na
 **Wrexham close to club-record deal for left-back Cacace**\
 `The targeting of the 24-year-old represents a significant broadening in Wrexham’s recruitment.`\
 https://nytimes.com/athletic/6501752/2025/07/18/wrexham-transfers-liberato-cacace/
-
-**Who are the most fascinating college QBs to watch in our rankings of all 136?**\
-`After ranking all 136 projected FBS starting quarterbacks, let's examine the most fascinating player in each of our seven tiers.`\
-https://nytimes.com/athletic/6499651/2025/07/18/college-football-qb-rankings-most-intriguing-arch/
-
-**'A long time coming': NHL goalies see big benefits in changes to EBUG system**\
-`Netminding has become increasingly demanding in today's NHL. Full-time emergency replacements will soon be around to help lighten the load.`\
-https://nytimes.com/athletic/6500435/2025/07/18/nhl-goaltender-goalie-ebug-rules/
-
-**What to know about the 2025 WNBA All-Star Game, skills competition and 3-point contest**\
-`Who will step up in Caitlin Clark's absence? Who will win MVP? How do I watch the events?`\
-https://nytimes.com/athletic/6500601/2025/07/18/wnba-all-star-game-schedule/
-
-**Far from MLB, a former big-league slugger completes his quest for 500 home runs**\
-`Chris Carter hit 41 home runs in 2016, and two years later was out of the majors. But his desire to keep mashing remained. `\
-https://nytimes.com/athletic/6500914/2025/07/18/chris-carter-500-home-runs-mexico/
-
-**Pellegrino Matarazzo on the USMNT, Chelsea and a coaching return: 'I'm ready for the next step'**\
-`The former Hoffenheim coach addresses national team progress under Pochettino, the Club World Cup and his own unfinished business in Europe`\
-https://nytimes.com/athletic/6499423/2025/07/18/pellegrino-matarazzo-usmnt-chelsea-fifa-tillman-hoffenheim/
 
