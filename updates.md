@@ -1,3 +1,7 @@
+**Nine Inch Nails Revisits the ’80s, and 9 More New Songs**\
+`Hear tracks by Robert Plant, Amanda Shires, Blood Orange and more.`\
+https://nytimes.com/2025/07/18/arts/music/playlist-nine-inch-nails-robert-plant.html
+
 **MLB extends paid leave for Luis Ortiz amid gambling investigation**\
 `Ortiz’s leave was set to expire Friday before the extension.`\
 https://nytimes.com/athletic/6499804/2025/07/18/luis-ortiz-paid-leave-extended-mlb/
