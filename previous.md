@@ -1,3 +1,7 @@
+**Stephen Colbert Laments the Loss of ‘The Late Show’**\
+`CBS “will be ending ‘The Late Show’ in May,” Colbert told his audience on Thursday. He kept the announcement brief and light.`\
+https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-ending.html
+
 **Word of the Day: pacify**\
 `This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/18/learning/word-of-the-day-pacify.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499304/2025/07/18/jacob-ramsey-aston-villa-transfe
 **Where Congress’s Cuts Threaten Access to PBS and NPR**\
 `The loss of federal funding threatens scores of public TV and radio stations across the United States.`\
 https://nytimes.com/interactive/2025/07/18/business/media/house-rescission-vote-pbs-npr.html
-
-**Everton and the search for a long-term successor to Seamus Coleman**\
-`As Coleman enters his 17th season at the club, a new right-back was expected – has that changed in this transfer market?`\
-https://nytimes.com/athletic/6499595/2025/07/18/everton-right-back-transfers-coleman-patterson-obrien/
 

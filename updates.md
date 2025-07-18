@@ -1,3 +1,7 @@
+**Stephen Colbert Laments the Loss of ‘The Late Show’**\
+`CBS “will be ending ‘The Late Show’ in May,” Colbert told his audience on Thursday. He kept the announcement brief and light.`\
+https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-ending.html
+
 **Word of the Day: pacify**\
 `This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/18/learning/word-of-the-day-pacify.html
