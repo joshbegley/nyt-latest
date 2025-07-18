@@ -1,3 +1,7 @@
+**Man Who Was Pulled Into M.R.I. Machine Has Died, Police Say**\
+`The man, who, without authorization, entered the room wearing a metal necklace during a scan, died a day after he was critically injured, the authorities said.`\
+https://nytimes.com/2025/07/18/health/mri-death-long-island.html
+
 **Plane Is Diverted After Man Threatens to Kill Flight Attendant, Authorities Say**\
 `The jet, bound for Detroit from Omaha, made an emergency landing in Cedar Rapids, Iowa, after a man shoved a flight attendant and displayed unruly behavior, SkyWest Airlines said.`\
 https://nytimes.com/2025/07/18/us/flight-detroit-nebraska-iowa-man-arrested-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/nyregion/brittany-commisso-andrew-cuomo-settlemen
 **Blue Jays sign first-round pick JoJo Parker to under-slot deal: Source**\
 `The high school shortstop will receive a $6.2 million signing bonus, below his projected slot value of $6.81 million.`\
 https://nytimes.com/athletic/6503231/2025/07/18/blue-jays-sign-first-round-pick-jojo-parker/
-
-**Trump Asked a Court to Unseal Epstein Grand Jury Testimony**\
-`Also, Americans were released in a prisoner swap with Venezuela. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/07/18/briefing/trump-epstein-npr.html
 
