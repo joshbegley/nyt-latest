@@ -1,3 +1,7 @@
+**Felix Baumgartner, man who jumped from space, dies after paragliding accident**\
+`Baumgartner’s career-defining achievement came in 2012 when he broke eight world records with his freefall jump from outer space.`\
+https://nytimes.com/athletic/6501762/2025/07/18/felix-baumgartner-death-paragliding/
+
 **From 'America's Most Scenic Ballpark' to the majors, a baseball long shot admires the view**\
 `The Phillies' Otto Kemp, a former undrafted walk-on at Division II Point Loma Nazarene, returned to the special place where it all began.`\
 https://nytimes.com/athletic/6494489/2025/07/18/otto-kemp-phillies-point-lomo-nazarene-baseball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500452/2025/07/18/al-central-draft-grades-picks-ml
 **The Athletic’s Friday football quiz question #64**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6493657/2025/07/18/the-athletics-friday-football-quiz-question-64/
-
-**What I learned from SEC media days: Preseason tiers and a 30-team Playoff pitch**\
-`It's Texas, Georgia and everyone else entering the 2025 season, but a number of teams have realistic Playoff hopes.`\
-https://nytimes.com/athletic/6500769/2025/07/18/sec-football-media-days-playoff/
 

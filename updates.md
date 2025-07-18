@@ -1,3 +1,7 @@
+**Felix Baumgartner, man who jumped from space, dies after paragliding accident**\
+`Baumgartner’s career-defining achievement came in 2012 when he broke eight world records with his freefall jump from outer space.`\
+https://nytimes.com/athletic/6501762/2025/07/18/felix-baumgartner-death-paragliding/
+
 **From 'America's Most Scenic Ballpark' to the majors, a baseball long shot admires the view**\
 `The Phillies' Otto Kemp, a former undrafted walk-on at Division II Point Loma Nazarene, returned to the special place where it all began.`\
 https://nytimes.com/athletic/6494489/2025/07/18/otto-kemp-phillies-point-lomo-nazarene-baseball/
