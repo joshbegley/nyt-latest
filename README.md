@@ -1,3 +1,11 @@
+**MLB extends paid leave for Luis Ortiz amid gambling investigation**\
+`Ortiz’s leave was set to expire Friday before the extension.`\
+https://nytimes.com/athletic/6499804/2025/07/18/luis-ortiz-paid-leave-extended-mlb/
+
+**An Uproar as CBS Cancels Stephen Colbert**\
+`Readers, many of them unhappy, react to the cancellation of Mr. Colbert’s show. Also: A rubber-stamp Congress; lessons from the Scopes trial.`\
+https://nytimes.com/2025/07/18/opinion/stephen-colbert-cbs-cancellation.html
+
 **How Hollywood’s Favorite Video Store Outlived Blockbuster**\
 `Vidiots, a holdover from the golden age of VHS, is staging a comeback as a community hub.`\
 https://nytimes.com/2025/07/18/t-magazine/vidiots-los-angeles.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010292800/heavy-monsoon-rains-kill-do
 **Timeline of Lloyd Howell's NFLPA tenure from election to resignation**\
 `Howell resigned from his post late Thursday amid rising criticisms at the NFLPA and concerns about Howell's potential conflicts of interest.`\
 https://nytimes.com/athletic/6502042/2025/07/18/nfl-nflpa-lloyd-howell-executive-director-resigns/
-
-**Newcastle Women sign former Manchester United defender Mannion**\
-`Mannion follows Jordan Nobbs in dropping down from the Women's Super League to the WSL2 to join Newcastle.`\
-https://nytimes.com/athletic/6502502/2025/07/18/aoife-mannion-newcastle-transfer/
-
-**Sels signs new Nottingham Forest contract**\
-`The goalkeeper played every Premier League game for Forest last season as they secured European qualification.`\
-https://nytimes.com/athletic/6502483/2025/07/18/matz-sels-nottingham-forest-contract/
 
