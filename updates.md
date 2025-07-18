@@ -1,3 +1,7 @@
+**Crystal Palace prospect Hindolo Mustapha suffers knee injury**\
+`Promising No 10 was due to travel with Oliver Glasner's team to Austria for a pre-season training camp but will now start rehabilitation`\
+https://nytimes.com/athletic/6501641/2025/07/18/crystal-palace-hindolo-mustapha-knee-injury/
+
 **How to watch the 2025 Indy Toronto, as Álex Palou chases history**\
 `IndyCar hits the streets of Toronto, where Álex Palou will be looking for his eighth win of the season and first at Exhibition Place.`\
 https://nytimes.com/athletic/6500890/2025/07/18/indy-toronto-2025-alex-palou-how-to-watch-tv/
