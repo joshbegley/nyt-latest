@@ -1,3 +1,11 @@
+**Heavy Monsoon Rains Kill Dozens in Pakistan**\
+`The relentless rain caused flooding across the country’s most populous province. Many of those killed have been children, officials said.`\
+https://nytimes.com/video/world/asia/100000010292800/heavy-monsoon-rains-kill-dozens-in-pakistan.html
+
+**Timeline of Lloyd Howell's NFLPA tenure from election to resignation**\
+`Howell resigned from his post late Thursday amid rising criticisms at the NFLPA and concerns about Howell's potential conflicts of interest.`\
+https://nytimes.com/athletic/6502042/2025/07/18/nfl-nflpa-lloyd-howell-executive-director-resigns/
+
 **Newcastle Women sign former Manchester United defender Mannion**\
 `Mannion follows Jordan Nobbs in dropping down from the Women's Super League to the WSL2 to join Newcastle.`\
 https://nytimes.com/athletic/6502502/2025/07/18/aoife-mannion-newcastle-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6502234/2025/07/18/quinshon-judkins-browns-training
 **3 Deputies Are Killed in Explosion at Los Angeles Training Center**\
 `It was not immediately clear what caused the blast at the Los Angeles County Sheriff’s Department’s Biscailuz Training Academy center.`\
 https://nytimes.com/2025/07/18/us/los-angeles-sheriff-center-explosion-deaths.html
-
-**Martin Izquierdo, 83, Dies; Costume Designer Who Specialized in Wings**\
-`His work was seen in “Angels in America” and Victoria’s Secret runway shows. He also made outlandish ensembles for Heidi Klum and Marc Jacobs.`\
-https://nytimes.com/2025/07/18/arts/design/martin-izquierdo-dead.html
-
-**Inside Noni Madueke's transfer to Arsenal: Arteta's presentation, Chelsea's data, Berta's new dynamic**\
-`From Arteta's call with Madueke and his father to the role of agent Ali Barat and sporting director Berta, here's how the deal was done`\
-https://nytimes.com/athletic/6492803/2025/07/18/inside-noni-maduekes-transfer-to-arsenal-artetas-presentation-chelseas-data-bertas-new-dynamic/
 

@@ -1,3 +1,11 @@
+**Heavy Monsoon Rains Kill Dozens in Pakistan**\
+`The relentless rain caused flooding across the country’s most populous province. Many of those killed have been children, officials said.`\
+https://nytimes.com/video/world/asia/100000010292800/heavy-monsoon-rains-kill-dozens-in-pakistan.html
+
+**Timeline of Lloyd Howell's NFLPA tenure from election to resignation**\
+`Howell resigned from his post late Thursday amid rising criticisms at the NFLPA and concerns about Howell's potential conflicts of interest.`\
+https://nytimes.com/athletic/6502042/2025/07/18/nfl-nflpa-lloyd-howell-executive-director-resigns/
+
 **Newcastle Women sign former Manchester United defender Mannion**\
 `Mannion follows Jordan Nobbs in dropping down from the Women's Super League to the WSL2 to join Newcastle.`\
 https://nytimes.com/athletic/6502502/2025/07/18/aoife-mannion-newcastle-transfer/
