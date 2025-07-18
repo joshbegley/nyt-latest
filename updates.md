@@ -1,3 +1,23 @@
+**Is selling Jacob Ramsey the problem it once was at Aston Villa?**\
+`Ramsey knows this season's importance - but will that be at Villa or elsewhere? Nottingham Forest are interested in the homegrown midfielder`\
+https://nytimes.com/athletic/6499304/2025/07/18/jacob-ramsey-aston-villa-transfer-sale/
+
+**Where Congress’s Cuts Threaten Access to PBS and NPR**\
+`The loss of federal funding threatens scores of public TV and radio stations across the United States.`\
+https://nytimes.com/interactive/2025/07/18/business/media/house-rescission-vote-pbs-npr.html
+
+**Everton and the search for a long-term successor to Seamus Coleman**\
+`As Coleman enters his 17th season at the club, a new right-back was expected – has that changed in this transfer market?`\
+https://nytimes.com/athletic/6499595/2025/07/18/everton-right-back-transfers-coleman-patterson-obrien/
+
+**Wrexham tour diary, part 3: CEO Williamson on merchandise sales and sunsets**\
+`Wrexham's tour Down Under has moved on to New Zealand after nine days in Australia`\
+https://nytimes.com/athletic/6499245/2025/07/18/wrexham-tour-diary-3-australia-new-zealand/
+
+**Dunk's contribution to Brighton's rise is close to immeasurable - but it is time to upgrade him**\
+`The defender is one of the best players in the club's history, but his performance levels are no longer what they once were`\
+https://nytimes.com/athletic/6485244/2025/07/18/brighton-time-to-upgrade-lewis-dunk/
+
 **Yacht trips, equity, Apple TV income and sunbeds: How clubs convince players to sign for them**\
 `It’s not just about a few quid and a nice car anymore – there can be plenty of other options offered to a transfer target`\
 https://nytimes.com/athletic/6499780/2025/07/18/transfers-players-yachts-equity-how-clubs-convince/
