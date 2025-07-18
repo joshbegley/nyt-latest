@@ -1,3 +1,15 @@
+**Switzerland's fans are on the march. Can they ensure the game really is 'here to stay'?**\
+`The host nation may be out of the Euros but their fans have voted with their feet and shown there is a big appetite for the sport to grow`\
+https://nytimes.com/athletic/6503087/2025/07/18/switzerland-euros-here-to-stay-legacy/
+
+**Missouri lands 5-star Jason Crowe Jr., highest-rated commitment since Michael Porter Jr.**\
+`The story of Crowe's commitment to Missouri starts with a Los Angeles Clippers training camp held before he was born.`\
+https://nytimes.com/athletic/6502614/2025/07/18/missouri-jason-crowe-jr-commitment-college-basketball/
+
+**Read the Justice Department’s Jeffrey Epstein Filing**\
+`The Justice Department asked a Manhattan judge to unseal grand jury testimony about Jeffrey Epstein, the disgraced financier.`\
+https://nytimes.com/interactive/2025/07/18/nyregion/18met-epstein-motion.html
+
 **Not Even ‘The Late Show’ Could Defy Gravity**\
 `CBS could not figure out a path to profitability in an entertainment world increasingly dominated by streaming.`\
 https://nytimes.com/2025/07/18/business/media/stephen-colbert-late-show-cbs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6502958/2025/07/18/dustin-johnson-open-championship
 **NASCAR's Chicago Street Race is off for 2026, but 'our goal' is a 2027 return**\
 `NASCAR said it hopes to return in 2027, but noted the need to find a new potential date as part of the difficulties for next season.`\
 https://nytimes.com/athletic/6503013/2025/07/18/nascar-chicago-street-race-2026-schedule/
-
-**Finding Beauty in Maximum Discount**\
-`Big-box retail constructs its infinite aesthetic array out of hundreds of thousands of brush strokes.`\
-https://nytimes.com/interactive/2025/07/18/opinion/walmart-shopping-beauty.html
-
-**The Briefing: Spain 2 Switzerland 0 - Favourites into semis, Bonmati's magic, more missed penalties**\
-`Laia Cervello Herrero and Megan Feringa analyse the main talking points as Spain set up a semi-final with France or Germany`\
-https://nytimes.com/athletic/6498367/2025/07/18/spain-switzerland-euros-analysis/
-
-**To Staff Trump’s Immigration Crackdown, ICE Entices Its Retirees**\
-`The administration is offering financial incentives to lure back recently departed immigration officers as it works to fill 10,000 job openings.`\
-https://nytimes.com/2025/07/18/us/ice-recruit-retiree.html
 
