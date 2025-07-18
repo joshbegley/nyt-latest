@@ -1,3 +1,8 @@
+**Former goalie Jaroslav Halak retires after 17 NHL seasons**\
+`Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
+`\
+https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goalie/
+
 **Scottie Scheffler raised questions about happiness and fulfillment. This professor has answers**\
 `Harvard's Arthur Brooks has spent years thinking, writing and talking about the keys to a life of happiness and fulfillment. `\
 https://nytimes.com/athletic/6502755/2025/07/18/scottie-scheffler-arthur-brooks-happiness-fulfillment-open/
