@@ -1,3 +1,15 @@
+**USMNT defender Campbell leaves Montreal for West Brom**\
+`The 24-year-old centre-back moves to England from Major League Soccer for an undisclosed fee.`\
+https://nytimes.com/athletic/6502068/2025/07/18/george-campbell-west-brom-transfer/
+
+**The fantasy football tight ends to draft ... and those to avoid**\
+`Jake Ciely shares his fantasy football strategy to help you maximize the draft value at tight end in 2025. `\
+https://nytimes.com/athletic/6500330/2025/07/18/fantasy-football-draft-te-rankings-values-adp/
+
+**Bolsonaro Ordered to Wear Ankle Monitor, Escalating Brazil’s Feud With Trump**\
+`Brazil’s Supreme Court ordered Jair Bolsonaro, the former president, to stay home most hours, defying President Trump’s demands that charges against Mr. Bolsonaro be dropped.`\
+https://nytimes.com/2025/07/18/world/americas/brazil-president-bolsonaro-ankle-monitor.html
+
 **Five Free Movies to Stream Now**\
 `Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
 https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
