@@ -1,3 +1,11 @@
+**Browns' Quinshon Judkins missing start of camp after arrest**\
+`Judkins, who's yet to sign his rookie contract, was arrested last week on charges of battery and domestic violence.`\
+https://nytimes.com/athletic/6502234/2025/07/18/quinshon-judkins-browns-training-camp/
+
+**3 Deputies Are Killed in Explosion at Los Angeles Training Center**\
+`It was not immediately clear what caused the blast, at the Los Angeles County Sheriff’s Department’s Biscailuz Training center.`\
+https://nytimes.com/2025/07/18/us/los-angeles-sheriff-center-explosion-deaths.html
+
 **Martin Izquierdo, 83, Dies; Costume Designer Who Specialized in Wings**\
 `His work was seen in “Angels in America” and Victoria’s Secret runway shows. He also made outlandish ensembles for Heidi Klum and Marc Jacobs.`\
 https://nytimes.com/2025/07/18/arts/design/martin-izquierdo-dead.html

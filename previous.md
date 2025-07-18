@@ -1,3 +1,11 @@
+**Browns' Quinshon Judkins missing start of camp after arrest**\
+`Judkins, who's yet to sign his rookie contract, was arrested last week on charges of battery and domestic violence.`\
+https://nytimes.com/athletic/6502234/2025/07/18/quinshon-judkins-browns-training-camp/
+
+**3 Deputies Are Killed in Explosion at Los Angeles Training Center**\
+`It was not immediately clear what caused the blast, at the Los Angeles County Sheriff’s Department’s Biscailuz Training center.`\
+https://nytimes.com/2025/07/18/us/los-angeles-sheriff-center-explosion-deaths.html
+
 **Martin Izquierdo, 83, Dies; Costume Designer Who Specialized in Wings**\
 `His work was seen in “Angels in America” and Victoria’s Secret runway shows. He also made outlandish ensembles for Heidi Klum and Marc Jacobs.`\
 https://nytimes.com/2025/07/18/arts/design/martin-izquierdo-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/07/18/magazine/phone-silent-hodgman-quiz.ht
 **Arsenal complete signing of Madueke from Chelsea**\
 `Madueke flew back from the United States to complete his medical with Arsenal and sign a five-year contract.`\
 https://nytimes.com/athletic/6488094/2025/07/18/arsenal-noni-madueke-chelsea/
-
-**Trump’s War With Powell Throws a Little-Known Planning Board Into Scrutiny**\
-`The National Capital Planning Commission has become pivotal in the administration’s campaign to discredit Jerome H. Powell, the chairman of the Federal Reserve.`\
-https://nytimes.com/2025/07/18/us/politics/trump-powell-fed-renovation.html
-
-**Trump’s Immigration Crackdown Hits Senior Care Work Force**\
-`Nursing homes and home care agencies have lost workers as the Trump administration has moved to end deportation protections for migrants with temporary legal status.`\
-https://nytimes.com/2025/07/18/us/politics/immigration-senior-caregivers.html
 
