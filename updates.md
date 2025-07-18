@@ -1,3 +1,11 @@
+**Martin Izquierdo, 83, Dies; Costume Designer Who Specialized in Wings**\
+`His work was seen in “Angels in America” and Victoria’s Secret runway shows. He also made outlandish ensembles for Heidi Klum and Marc Jacobs.`\
+https://nytimes.com/2025/07/18/arts/design/martin-izquierdo-dead.html
+
+**Inside Noni Madueke's transfer to Arsenal: Arteta's presentation, Chelsea's data, Berta's new dynamic**\
+`From Arteta's call with Madueke and his father to the role of agent Ali Barat and sporting director Berta, here's how the deal was done`\
+https://nytimes.com/athletic/6492803/2025/07/18/inside-noni-maduekes-transfer-to-arsenal-artetas-presentation-chelseas-data-bertas-new-dynamic/
+
 **The 7.20.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/18/the-7202025-issue
