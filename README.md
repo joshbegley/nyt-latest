@@ -1,3 +1,7 @@
+**Bolsonaro Ordered to Wear Ankle Monitor Before Trial**\
+`Brazil’s Supreme Court ordered Jair Bolsonaro, the former president, to stay home most hours, defying President Trump’s demands that charges against Mr. Bolsonaro be dropped.`\
+https://nytimes.com/2025/07/18/world/americas/brazil-president-bolsonaro-ankle-monitor.html
+
 **Caitlin Clark replaced by teammate Lexie Hull in 3-point contest**\
 `Hull is shooting 46.8 percent on 3s this season, the fourth-highest mark in the WNBA.`\
 https://nytimes.com/athletic/6501935/2025/07/18/caitlin-clark-lexie-hull-3-point-contest-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501545/2025/07/18/trevor-bauer-elehuris-montero-ho
 **This Dinosaur Probably Tweeted More Than It Roared**\
 `The anatomy of a Chinese fossil offers a hint that birdsong may be as old as the dinosaurs themselves.`\
 https://nytimes.com/2025/07/18/science/dinosaur-fossil-voice-china.html
-
-**Crypto’s $4 Trillion Moment**\
-`A legislative win in Congress, and the promise of more to come, has helped lift the prospects and the wealth of the cryptocurrency industry.`\
-https://nytimes.com/2025/07/18/business/dealbook/crypto-genius-act-congress.html
 
