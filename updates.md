@@ -1,3 +1,7 @@
+**As a Wild West realignment battle heads back to court, neither side is backing down**\
+`As other realigned leagues have gone through recently, the Mountain West has one awkward season ahead.`\
+https://nytimes.com/athletic/6501822/2025/07/18/mountain-west-pac-12-lawsuits-realignment/
+
 **What's next for Canucks after Joshua trade? Cap space, centres and UFA targets**\
 `Here's what we should expect the Canucks to do in the wake of trading Joshua to the Maple Leafs.`\
 https://nytimes.com/athletic/6501066/2025/07/18/canucks-dakota-joshua-trade-salary-cap/

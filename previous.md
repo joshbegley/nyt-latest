@@ -1,3 +1,7 @@
+**As a Wild West realignment battle heads back to court, neither side is backing down**\
+`As other realigned leagues have gone through recently, the Mountain West has one awkward season ahead.`\
+https://nytimes.com/athletic/6501822/2025/07/18/mountain-west-pac-12-lawsuits-realignment/
+
 **What's next for Canucks after Joshua trade? Cap space, centres and UFA targets**\
 `Here's what we should expect the Canucks to do in the wake of trading Joshua to the Maple Leafs.`\
 https://nytimes.com/athletic/6501066/2025/07/18/canucks-dakota-joshua-trade-salary-cap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501762/2025/07/18/felix-baumgartner-death-paraglid
 **From 'America's Most Scenic Ballpark' to the majors, a baseball long shot admires the view**\
 `The Phillies' Otto Kemp, a former undrafted walk-on at Division II Point Loma Nazarene, returned to the special place where it all began.`\
 https://nytimes.com/athletic/6494489/2025/07/18/otto-kemp-phillies-point-lomo-nazarene-baseball/
-
-**Wrexham close to club-record deal for left-back Cacace**\
-`The targeting of the 24-year-old represents a significant broadening in Wrexham’s recruitment.`\
-https://nytimes.com/athletic/6501752/2025/07/18/wrexham-transfers-liberato-cacace/
 
