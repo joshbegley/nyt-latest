@@ -1,3 +1,7 @@
+**England somehow beat Sweden in a genuine epic that had several chapters**\
+`England are through to the semi-finals of Euro 2025 after a quite ludicrous football match with Sweden. Not much of it made sense`\
+https://nytimes.com/athletic/6501178/2025/07/18/england-sweden-euros-epic-shootout/
+
 **The New York Times in Print for Friday, July 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/18/todays-new-york-times
