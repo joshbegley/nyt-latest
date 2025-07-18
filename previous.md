@@ -1,3 +1,7 @@
+**Caitlin Clark replaced by teammate Lexie Hull in 3-point contest**\
+`Hull is shooting 46.8 percent on 3s this season, the fourth-highest mark in the WNBA.`\
+https://nytimes.com/athletic/6501935/2025/07/18/caitlin-clark-lexie-hull-3-point-contest-wnba/
+
 **Derrick Rose eager to shine light on NBA's secret obsession: Chess**\
 `"You start to see how important just one move is," says Rose about chess.  "And that one move is a choice in life.”`\
 https://nytimes.com/athletic/6499280/2025/07/18/nba-hobbies-derrick-rose-chess/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/science/dinosaur-fossil-voice-china.html
 **Crypto’s $4 Trillion Moment**\
 `A legislative win in Congress, and the promise of more to come, has helped lift the prospects and the wealth of the cryptocurrency industry.`\
 https://nytimes.com/2025/07/18/business/dealbook/crypto-genius-act-congress.html
-
-**As a Wild West realignment battle heads back to court, neither side is backing down**\
-`As other realigned leagues have gone through recently, the Mountain West has one awkward season ahead.`\
-https://nytimes.com/athletic/6501822/2025/07/18/mountain-west-pac-12-lawsuits-realignment/
 
