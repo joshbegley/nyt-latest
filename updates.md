@@ -1,3 +1,11 @@
+**Justin Bieber Awakens His Old Soul**\
+`“Swag,” a new album of dreamy beats and unexpected collaborations, eschews formulaic pop to lean into the singer’s R&B instincts.`\
+https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
+
+**Cuban Minister Ousted After Accusing Beggars of Faking Poverty**\
+`The labor and social security minister drew public outrage when she said “there are no beggars” in Cuba, where many people struggle to afford food.`\
+https://nytimes.com/2025/07/18/world/cuba-minister-resigns-beggars-poverty.html
+
 **Former goalie Jaroslav Halak retires after 17 NHL seasons**\
 `Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
 `\
