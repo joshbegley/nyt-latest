@@ -1,3 +1,15 @@
+**Bill Dellinger, Runner and Track Coach Who Mentored Stars, Dies at 91**\
+`After running the 5,000 meters in three Olympics, he coached the likes of Steve Prefontaine and Joaquim Cruz at his alma mater, the University of Oregon.`\
+https://nytimes.com/2025/07/18/sports/bill-dellinger-track-coach-who-mentored-stars-dies-at-91.html
+
+**Lloyd Howell, former NFLPA director, charged union for strip club visits: Report**\
+`According to the report, Howell charged $738.82 for a car service for one strip club visit.`\
+https://nytimes.com/athletic/6503167/2025/07/18/lloyd-howell-former-nflpa-director-charged-union-strip-club/
+
+**The Jeffrey Epstein Grand Jury Records: What Comes Next?**\
+`The records are at the center of President Trump’s effort to manage fallout from the Epstein case. But unsealing them is complex and requires a judge to sign off.`\
+https://nytimes.com/2025/07/18/us/politics/epstein-grand-jury-what-to-know.html
+
 **New York Agrees to Settle Ex-Cuomo Aide’s Harassment Claims for $450,000**\
 `The former executive aide, Brittany Commisso, accused Andrew M. Cuomo of groping her when he was governor. The state did not admit wrongdoing.`\
 https://nytimes.com/2025/07/18/nyregion/brittany-commisso-andrew-cuomo-settlement.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6503151/2025/07/18/ketel-marte-burglary-restricted-
 **Reds sign first-round pick Steele Hall, one of the youngest players in Sunday's draft**\
 `The shortstop, who had committed to the University of Tennessee, will turn 18 on July 24.`\
 https://nytimes.com/athletic/6503157/2025/07/18/reds-sign-first-round-pick-steele-hall/
-
-**The Best Sleep Trackers**\
-`(No description)`\
-https://nytimes.com/card/2025/07/18/smarter-living/wirecutter/the-best-sleep-trackers
-
-**Open Championship Round 2: What to know as Scottie Scheffler takes the lead**\
-`Scheffler is the first reigning world number one player since Tiger Woods to hold the 36-hole lead at this championship.`\
-https://nytimes.com/athletic/6503128/2025/07/18/open-championship-2025-round-2-what-to-know-scottie-scheffler/
-
-**As the deadline nears, Jed Hoyer is willing to be creative as he looks to improve the Cubs**\
-`"To me, it's just how do we focus on the Cubs winning as many games as possible?" Hoyer said.`\
-https://nytimes.com/athletic/6503080/2025/07/18/cubs-mlb-trade-deadline-jed-hoyer/
 
