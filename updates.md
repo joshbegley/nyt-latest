@@ -1,3 +1,7 @@
+**Columbia and White House Enter Final Stage of Talks to End Standoff**\
+`A deal to resolve allegations that the university failed to protect Jewish students from harassment is expected to include a fine of about $200 million.`\
+https://nytimes.com/2025/07/17/nyregion/columbia-trump-near-deal.html
+
 **Man Who Sent ‘I Raped You’ Message Pleads Guilty to Sexual Assault**\
 `Ian Cleary, 32, attacked a fellow Gettysburg College student in her dorm room more than a decade ago. A series of Facebook messages helped lead to his arrest.`\
 https://nytimes.com/2025/07/17/us/pennsylvania-college-rape-guilty.html
