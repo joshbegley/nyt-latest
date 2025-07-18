@@ -1,3 +1,7 @@
+**House Republicans Dangle Possible Vote on Epstein Files, After Voter Backlash**\
+`The House Rules Committee laid the groundwork for an eventual vote to call for release of the Epstein files, reflecting Republican uneasiness with the president’s refusal to divulge information from the investigation.`\
+https://nytimes.com/2025/07/17/us/politics/epstein-files-house-republicans-vote.html
+
 **Border Patrol Agents Raid a Home Depot in Northern California**\
 `The raid indicates a new strategy of going deeper into California after focusing on Southern California for several weeks.`\
 https://nytimes.com/2025/07/17/us/politics/sacramento-home-depot-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/politics/timeline-trump-epstein.html
 **Dr. David Altchek, esteemed Mets medical director, dies at 68**\
 `Dr. David Altchek was one of baseball’s pre-eminent elbow surgeons and the Mets’ medical director for the past 20 years.`\
 https://nytimes.com/athletic/6501196/2025/07/17/dr-david-altchek-mets-dies-68/
-
-**Court Rules Trump’s Firing of F.T.C. Commissioner Was Illegal**\
-`A federal judge said Rebecca Kelly Slaughter, whom President Trump fired from the Federal Trade Commission in March, was still a “rightful member” of the agency.`\
-https://nytimes.com/2025/07/17/technology/judge-trump-ftc-commissioner.html
 
