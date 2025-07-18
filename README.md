@@ -1,3 +1,7 @@
+**The Windup: Debunking that viral home run**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6501545/2025/07/18/trevor-bauer-elehuris-montero-home-run-the-windup/
+
 **This Dinosaur Probably Tweeted More Than It Roared**\
 `The anatomy of a Chinese fossil offers a hint that birdsong may be as old as the dinosaurs themselves.`\
 https://nytimes.com/2025/07/18/science/dinosaur-fossil-voice-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501202/2025/07/18/dansby-swanson-cubs-second-half-
 **Man Utd agree fee worth up to £71m for Mbeumo**\
 `The deal comprises an initial £65m, to be paid in four instalments, plus a maximum of £6m in potential bonuses.`\
 https://nytimes.com/athletic/6499896/2025/07/18/bryan-mbeumo-man-utd-transfer/
-
-**What would be a successful season for Ohio State and Julian Sayin? Buckeyes mailbag**\
-`Answering your Ohio State questions about Sayin and the quarterback battle, comparisons with Drew Allar and what needs to be done in 2025.`\
-https://nytimes.com/athletic/6501627/2025/07/18/ohio-state-predictions-expectations-julian-sayin/
 
