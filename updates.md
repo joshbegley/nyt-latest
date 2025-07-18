@@ -1,3 +1,7 @@
+**‘Superman’ | Anatomy of a Scene**\
+`James Gunn narrates a sequence from his film, in which Superman (David Corenswet) is interviewed by Lois Lane (Rachel Brosnahan).`\
+https://nytimes.com/video/movies/100000010291142/superman-scene.html
+
 **Perrone leaves Man City for Como in permanent transfer**\
 `The deal will include a 30 per cent sell-on clause and a buy-back option for the Premier League club.`\
 https://nytimes.com/athletic/6501590/2025/07/18/man-city-maximo-perrone-como-transfer/
