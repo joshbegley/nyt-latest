@@ -1,40 +1,40 @@
-**‘Superman’ | Anatomy of a Scene**\
-`James Gunn narrates a sequence from his film, in which Superman (David Corenswet) is interviewed by Lois Lane (Rachel Brosnahan).`\
-https://nytimes.com/video/movies/100000010291142/superman-scene.html
+**The Druse: An Insular Faith, Facing a Fractured Middle East**\
+`Spread across Syria, Lebanon and Israel, the secretive religious minority has long balanced integration and independence. Now, members are at the heart of the region’s shifting power struggles.`\
+https://nytimes.com/2025/07/18/world/middleeast/who-are-druse-syria-israel-clashes.html
 
-**Perrone leaves Man City for Como in permanent transfer**\
-`The deal will include a 30 per cent sell-on clause and a buy-back option for the Premier League club.`\
-https://nytimes.com/athletic/6501590/2025/07/18/man-city-maximo-perrone-como-transfer/
+**The New York Times News Quiz, July 18, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/07/18/briefing/news-quiz-trump-floods-emmys-wimbledon.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/18/crosswords/spelling-bee-forum.html
+**Is ‘Joyspan’ the Key to Aging Well?**\
+`A long life doesn’t matter much if you don’t enjoy it.`\
+https://nytimes.com/2025/07/18/well/is-joyspan-the-key-to-aging-well.html
 
-**Trump-Driven Chaos Comes to U.S. Attorney’s Offices in Waves**\
-`In Manhattan, Brooklyn, Albany and Newark, confusion has reigned as prosecutors are fired or walk out, and U.S. attorneys serve in limbo while awaiting confirmation.`\
-https://nytimes.com/2025/07/18/nyregion/new-york-area-us-attorneys-chaos.html
+**How Superman Handles a Lois Lane Interview**\
+`James Gunn, the screenwriter and director of “Superman,” narrates a sequence featuring David Corenswet and Rachel Brosnahan.`\
+https://nytimes.com/2025/07/18/movies/superman-clip.html
 
-**Burnley and X: Explaining their new partnership, how it happened and why it may be controversial**\
-`Analysing the 'unique' deal between the promoted Premier League club and one of the world's biggest social media platforms`\
-https://nytimes.com/athletic/6499568/2025/07/18/burnley-x-partnership-controversy/
+**At Netanyahu’s U.S. Alma Mater, a Push to Remove Him From the Wall of Fame**\
+`Recent comments by the Israeli prime minister and a Fox News commentator about their suburban Philadelphia high school have inflamed a debate.`\
+https://nytimes.com/2025/07/18/us/politics/netanyahu-alma-mater-cheltenham.html
 
-**When Politics Dominate the Education Beat**\
-`A Times reporter reflects on the Trump administration's efforts to dismantle the Department of Education.`\
-https://nytimes.com/2025/07/18/insider/education-department-changes.html
+**A Movie About the Year America Went Fully Berserk**\
+`From the director of “Midsommar,” a nightmare vision of our national descent. `\
+https://nytimes.com/2025/07/18/opinion/ari-aster-eddington.html
 
-**Who Gets to Wear a Mask?**\
-`The tension over masked federal immigration agents expanded on Long Island, where police officers are now permitted to mask up — but no one else is.`\
-https://nytimes.com/2025/07/18/nyregion/ice-police-masks-nassau-county.html
+**A New ‘Billy Budd’ Is a Pressure Cooker of Gay Desire**\
+`An adaptation of the Benjamin Britten opera, in turn based on Melville’s classic novella, joins a lineage of beautiful enigmas.`\
+https://nytimes.com/2025/07/18/arts/music/billy-budd-ted-huffman-oliver-leith-aix.html
 
-**A W.N.B.A. Star Loves These Sneakers. She Gets Fined for Wearing Them.**\
-`When an upstart women’s shoe brand made a sponsorship deal with Courtney Williams, a Minnesota Lynx all-star, it put the hugely popular league in an awkward position.`\
-https://nytimes.com/2025/07/18/nyregion/moolah-kicks-womens-basketball-sneakers-wnba.html
+**Conservatives Get the PBS and NPR Cuts They’ve Wanted for Decades**\
+`The cuts speak to President Trump’s grip on his party but also to the sweeping changes in media.`\
+https://nytimes.com/2025/07/18/business/media/npr-pbs-funding-cuts-republicans.html
 
-**Revealed: Mbeumo bid during Man Utd execs' Iceland summit, Ratcliffe’s fishing trip, ‘bomb squad’ fears**\
-`Club's Scandinavian meeting may be strangely timed but it did not stop transfer plans being pushed through`\
-https://nytimes.com/athletic/6499485/2025/07/18/manchester-united-iceland-ratcliffe/
+**Tariffs on Russia Could Hurt Wary U.S. Farmers**\
+`President Trump’s plan to impose a 100 percent tariff on Russian goods could raise the cost of urea, a key fertilizer in corn and other row crops.`\
+https://nytimes.com/2025/07/18/business/tariffs-on-russia-could-hurt-wary-us-farmers.html
 
-**Stephen Colbert Laments the Loss of ‘The Late Show’**\
-`CBS “will be ending ‘The Late Show’ in May,” Colbert told his audience on Thursday. He kept the announcement brief and light.`\
-https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-ending.html
+**Extra! Extra! Read All About Last Newspaper Hawker in Paris**\
+`Ali Akbar started selling papers on the streets in 1974. He is still at it, winning over Parisians and presidents with persistence, humor and his signature catchphrase: “Ça y est!”`\
+https://nytimes.com/2025/07/18/world/europe/france-newspaper-hawker.html
 

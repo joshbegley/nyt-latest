@@ -1,3 +1,7 @@
+**How to watch the 2025 Indy Toronto, as Álex Palou chases history**\
+`IndyCar hits the streets of Toronto, where Álex Palou will be looking for his eighth win of the season and first at Exhibition Place.`\
+https://nytimes.com/athletic/6500890/2025/07/18/indy-toronto-2025-alex-palou-how-to-watch-tv/
+
 **The Druse: An Insular Faith, Facing a Fractured Middle East**\
 `Spread across Syria, Lebanon and Israel, the secretive religious minority has long balanced integration and independence. Now, members are at the heart of the region’s shifting power struggles.`\
 https://nytimes.com/2025/07/18/world/middleeast/who-are-druse-syria-israel-clashes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/business/media/npr-pbs-funding-cuts-republicans.h
 **Tariffs on Russia Could Hurt Wary U.S. Farmers**\
 `President Trump’s plan to impose a 100 percent tariff on Russian goods could raise the cost of urea, a key fertilizer in corn and other row crops.`\
 https://nytimes.com/2025/07/18/business/tariffs-on-russia-could-hurt-wary-us-farmers.html
-
-**Extra! Extra! Read All About Last Newspaper Hawker in Paris**\
-`Ali Akbar started selling papers on the streets in 1974. He is still at it, winning over Parisians and presidents with persistence, humor and his signature catchphrase: “Ça y est!”`\
-https://nytimes.com/2025/07/18/world/europe/france-newspaper-hawker.html
 
