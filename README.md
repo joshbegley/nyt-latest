@@ -1,3 +1,7 @@
+**Revealed: Mbeumo bid during Man Utd execs' Iceland summit, Ratcliffe’s fishing trip, ‘bomb squad’ fears**\
+`Club's Scandinavian meeting may be strangely timed but it did not stop transfer plans being pushed through`\
+https://nytimes.com/athletic/6499485/2025/07/18/manchester-united-iceland-ratcliffe/
+
 **Stephen Colbert Laments the Loss of ‘The Late Show’**\
 `CBS “will be ending ‘The Late Show’ in May,” Colbert told his audience on Thursday. He kept the announcement brief and light.`\
 https://nytimes.com/2025/07/18/arts/television/stephen-colbert-late-show-ending.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/briefing/trump-epstein-syria-israel-britain-votin
 **Is selling Jacob Ramsey the problem it once was at Aston Villa?**\
 `Ramsey knows this season's importance - but will that be at Villa or elsewhere? Nottingham Forest are interested in the homegrown midfielder`\
 https://nytimes.com/athletic/6499304/2025/07/18/jacob-ramsey-aston-villa-transfer-sale/
-
-**Where Congress’s Cuts Threaten Access to PBS and NPR**\
-`The loss of federal funding threatens scores of public TV and radio stations across the United States.`\
-https://nytimes.com/interactive/2025/07/18/business/media/house-rescission-vote-pbs-npr.html
 
