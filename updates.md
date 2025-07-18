@@ -1,3 +1,7 @@
+**Fans React to Colbert ‘Late Show’ Cancellation With Puzzlement and Anger**\
+`Many questioned the timing of and motivation for the announcement, noting that Mr. Colbert hosted the most-watched show in late night television.`\
+https://nytimes.com/2025/07/17/arts/television/stephen-colbert-late-show-fans.html
+
 **Shemar Stewart has 'no intentions' of making Texas A&M return, coach says**\
 `Stewart and the Bengals are still embroiled in a contract dispute over language the team included in his rookie deal.`\
 https://nytimes.com/athletic/6501293/2025/07/17/bengals-shemar-stewart-no-texas-am-return/

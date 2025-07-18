@@ -1,3 +1,7 @@
+**Fans React to Colbert ‘Late Show’ Cancellation With Puzzlement and Anger**\
+`Many questioned the timing of and motivation for the announcement, noting that Mr. Colbert hosted the most-watched show in late night television.`\
+https://nytimes.com/2025/07/17/arts/television/stephen-colbert-late-show-fans.html
+
 **Shemar Stewart has 'no intentions' of making Texas A&M return, coach says**\
 `Stewart and the Bengals are still embroiled in a contract dispute over language the team included in his rookie deal.`\
 https://nytimes.com/athletic/6501293/2025/07/17/bengals-shemar-stewart-no-texas-am-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/us/california-texas-redistricting-newsom.html
 **Ex-Voice of America Employee Arrested and Charged With Threatening Marjorie Taylor Greene**\
 `Federal prosecutors accused the man of threatening to kill Ms. Greene, her staff, and their families, months before President Trump sought to dismantle the news agency.`\
 https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-greene.html
-
-**A Timeline of What We Know About Trump and Epstein**\
-`Donald Trump was friendly for at least 15 years with Jeffrey Epstein, the multimillionaire financier and convicted sex offender who died in prison in 2019.`\
-https://nytimes.com/2025/07/17/us/politics/timeline-trump-epstein.html
 

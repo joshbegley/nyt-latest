@@ -1,3 +1,7 @@
+**Why Trump Can’t Shake Jeffrey Epstein**\
+`The journalist Will Sommer examines the perfect storm of the Epstein files, Trump, QAnon and MAGA.`\
+https://nytimes.com/video/opinion/100000010283851/why-trump-cant-shake-jeffrey-epstein.html
+
 **Fans React to Colbert ‘Late Show’ Cancellation With Puzzlement and Anger**\
 `Many questioned the timing of and motivation for the announcement, noting that Mr. Colbert hosted the most-watched show in late night television.`\
 https://nytimes.com/2025/07/17/arts/television/stephen-colbert-late-show-fans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/17/arts/television/and-just-like-that-recap-season-3
 **Newsom Wants California to Counter Texas on Redistricting**\
 `Gov. Gavin Newsom says California should redraw its own congressional districts if Texas tries to gerrymander its lines. His idea faces long odds.`\
 https://nytimes.com/2025/07/17/us/california-texas-redistricting-newsom.html
-
-**Ex-Voice of America Employee Arrested and Charged With Threatening Marjorie Taylor Greene**\
-`Federal prosecutors accused the man of threatening to kill Ms. Greene, her staff, and their families, months before President Trump sought to dismantle the news agency.`\
-https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-greene.html
 
