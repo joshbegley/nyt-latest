@@ -1,3 +1,7 @@
+**Villa optimistic Kamara will sign new contract**\
+`The France international's existing terms run out in June 2027.`\
+https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-contract/
+
 **Justin Bieber Awakens His Old Soul**\
 `“Swag,” a new album of dreamy beats and unexpected collaborations, eschews formulaic pop to lean into the singer’s R&B instincts.`\
 https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/trump-drawings-epstein.html
 **White House to Release $1.3 Billion in Frozen Funds for After-School Programs**\
 `The money will allow federally funded after-school programs to open this school year, preserving a lifeline for working parents. But other federal dollars remain on hold.`\
 https://nytimes.com/2025/07/18/us/trump-after-school-funding.html
-
-**Trump Hosts I.R.S. Commissioner in Oval Office**\
-`The ceremonial swearing-in is the latest sign of the unusual relationship the president is cultivating with the tax agency.`\
-https://nytimes.com/2025/07/18/us/politics/trump-irs-commissioner.html
 

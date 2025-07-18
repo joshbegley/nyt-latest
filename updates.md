@@ -1,3 +1,7 @@
+**Villa optimistic Kamara will sign new contract**\
+`The France international's existing terms run out in June 2027.`\
+https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-contract/
+
 **Justin Bieber Awakens His Old Soul**\
 `“Swag,” a new album of dreamy beats and unexpected collaborations, eschews formulaic pop to lean into the singer’s R&B instincts.`\
 https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
