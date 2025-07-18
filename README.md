@@ -1,5 +1,5 @@
 **Army Special Operations Warns Retired Members of Terror Threat**\
-`The alert, issued to retired service members who served in Iraq or Syria and are living in Florida, did not specify what kind of threat or which terrorist group was involved.`\
+`The alert, issued to retired service members who served in Iraq or Syria and live in Florida, did not specify what kind of threat or which terrorist group was involved.`\
 https://nytimes.com/2025/07/17/us/politics/army-special-operations-terror-threat.html
 
 **NFLPA executive director Lloyd Howell steps down**\
