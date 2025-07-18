@@ -1,40 +1,40 @@
-**West Ham closing in on Walker-Peters on free transfer**\
-`The club have proposed a three-year deal to the full-back with an option of a further year.`\
-https://nytimes.com/athletic/6501630/2025/07/18/west-ham-transfers-walker-peters/
+**Floods and Heavy Rain Kill Dozens in Pakistan**\
+`Relentless rain began on Wednesday, causing flooding in several cities and across vast rural stretches in the province of Punjab.`\
+https://nytimes.com/2025/07/18/world/asia/pakistan-rains-flood-deaths.html
 
-**The New York Times International Edition in Print for Saturday, July 19, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/18/todays-new-york-times-international-edition
+**Bowden: Should MLB move the trade deadline? Why pushing it to mid-August makes sense**\
+`Here's why I would like to see the MLB trade deadline moved to Aug. 15, and what front office executives think on the topic. `\
+https://nytimes.com/athletic/6501113/2025/07/18/mlb-trade-deadline-move-to-august/
 
-**Crystal Palace prospect Hindolo Mustapha suffers knee injury**\
-`Promising No 10 was due to travel with Oliver Glasner's team to Austria for a pre-season training camp but will now start rehabilitation`\
-https://nytimes.com/athletic/6501641/2025/07/18/crystal-palace-hindolo-mustapha-knee-injury/
+**Who will win the 2025 WNBA championship? Players make their predictions**\
+`Players also vote for the league's best rivalry in our anonymous poll. `\
+https://nytimes.com/athletic/6500531/2025/07/18/wnba-player-poll-wnba-championship-predictions/
 
-**How to watch the 2025 Indy Toronto, as Álex Palou chases history**\
-`IndyCar hits the streets of Toronto, where Álex Palou will be looking for his eighth win of the season and first at Exhibition Place.`\
-https://nytimes.com/athletic/6500890/2025/07/18/indy-toronto-2025-alex-palou-how-to-watch-tv/
+**Move over Mantle and DiMaggio, Judge-ment Day is coming: O'Connor**\
+`If Judge stays relatively healthy over the rest of his career, he is going to blast past someone among the Core Four in Yankee mythology.`\
+https://nytimes.com/athletic/6499221/2025/07/18/aaron-judge-yankees-all-time-greats/
 
-**The Druse: An Insular Faith, Facing a Fractured Middle East**\
-`Spread across Syria, Lebanon and Israel, the secretive religious minority has long balanced integration and independence. Now, members are at the heart of the region’s shifting power struggles.`\
-https://nytimes.com/2025/07/18/world/middleeast/who-are-druse-syria-israel-clashes.html
+**How to watch the Tigers at Rangers series, with Skubal on 'Sunday Night Baseball'**\
+`This weekend's three-game set offers big-name pitchers with national intrigue, plus a pair of elite bullpens with unleaded gas.`\
+https://nytimes.com/athletic/6498416/2025/07/18/tigers-rangers-mlb-skubal-eovaldi-how-to-watch/
 
-**The New York Times News Quiz, July 18, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/07/18/briefing/news-quiz-trump-floods-emmys-wimbledon.html
+**Ranking the 25 best men's college basketball games of the 2000s: Chalmers' 3, 6 OTs and more**\
+`More than 100,000 games over the last 25 years were whittled down to the best of the best.`\
+https://nytimes.com/athletic/6501041/2025/07/18/mens-college-basketball-best-25-games-rankings-2000s/
 
-**Is ‘Joyspan’ the Key to Aging Well?**\
-`A long life doesn’t matter much if you don’t enjoy it.`\
-https://nytimes.com/2025/07/18/well/is-joyspan-the-key-to-aging-well.html
+**As he ponders signing Max Verstappen, junior rugby caps and Pep Guardiola inspire Toto Wolff**\
+`Toto Wolff is hoping the 2026 F1 rule changes can get Mercedes back to winning ways. But there's much more he must consider too`\
+https://nytimes.com/athletic/6499724/2025/07/18/toto-wolff-profile-mercedes-f1/
 
-**How Superman Handles a Lois Lane Interview**\
-`James Gunn, the screenwriter and director of “Superman,” narrates a sequence featuring David Corenswet and Rachel Brosnahan.`\
-https://nytimes.com/2025/07/18/movies/superman-clip.html
+**MLB All-30: One bold prediction for each team ahead of the MLB trade deadline**\
+`Some predictions are bolder than others. Here's what our writers are seeing ahead of the July 31 MLB trade deadline.`\
+https://nytimes.com/athletic/6494695/2025/07/18/mlb-trade-deadline-prediction-2025/
 
-**At Netanyahu’s U.S. Alma Mater, a Push to Remove Him From the Wall of Fame**\
-`Recent comments by the Israeli prime minister and a Fox News commentator about their suburban Philadelphia high school have inflamed a debate.`\
-https://nytimes.com/2025/07/18/us/politics/netanyahu-alma-mater-cheltenham.html
+**Watching the Knicks at summer league: Thoughts on Tyler Kolek, Pacôme Dadiet and more**\
+`James Edwards shares his thoughts as New York completes Las Vegas Summer League play.`\
+https://nytimes.com/athletic/6499610/2025/07/18/knicks-summer-league-tyler-kolek-pacome-dadiet/
 
-**A Movie About the Year America Went Fully Berserk**\
-`From the director of “Midsommar,” a nightmare vision of our national descent. `\
-https://nytimes.com/2025/07/18/opinion/ari-aster-eddington.html
+**Trump’s New Order on Epstein Files, and Colbert’s Canceled ‘Late Show’**\
+`Plus, your Friday news quiz.`\
+https://nytimes.com/2025/07/18/podcasts/the-headlines/trump-epstein-files-colbert-late-show-cancelled.html
 
