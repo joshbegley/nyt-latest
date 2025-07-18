@@ -1,40 +1,40 @@
-**TAFC: What now for Saudi sides? Plus: Man Utd's new Mbeumo bid, England penalty drama and more**\
-`Today in TAFC: How will Saudi sides capitalise on Club World Cup? Plus: Sweden 'keeper at centre of penalty drama, Snoop Dogg joins Swansea`\
-https://nytimes.com/athletic/6501609/2025/07/18/what-now-for-saudi-sides-plus-man-utds-new-mbeumo-bid-england-penalty-drama-and-more/
+**From 'America's Most Scenic Ballpark' to the majors, a baseball long shot admires the view**\
+`The Phillies' Otto Kemp, a former undrafted walk-on at Division II Point Loma Nazarene, returned to the special place where it all began.`\
+https://nytimes.com/athletic/6494489/2025/07/18/otto-kemp-phillies-point-lomo-nazarene-baseball/
 
-**Inside Newcastle live Q&A: Chris Waugh answers your questions**\
-`Post your questions and our Newcastle writer will endeavour to answer as many as possible`\
-https://nytimes.com/athletic/6501645/2025/07/18/newcastle-questions-answered-isak-ekitike-transfers/
+**Wrexham close to club-record deal for left-back Cacace**\
+`The targeting of the 24-year-old represents a significant broadening in Wrexham’s recruitment.`\
+https://nytimes.com/athletic/6501752/2025/07/18/wrexham-transfers-liberato-cacace/
 
-**Ravens mailbag, part 2: Kicker situation, defensive depth, starting battle at ILB?**\
-`Also, should Baltimore consider signing either Jadeveon Clowney or Za'Darius Smith to help bolster its pass rush heading into the season?`\
-https://nytimes.com/athletic/6492212/2025/07/18/ravens-mailbag-tyler-loop-john-hoyland/
+**Who are the most fascinating college QBs to watch in our rankings of all 136?**\
+`After ranking all 136 projected FBS starting quarterbacks, let's examine the most fascinating player in each of our seven tiers.`\
+https://nytimes.com/athletic/6499651/2025/07/18/college-football-qb-rankings-most-intriguing-arch/
 
-**The Pulse: The $1.3M 20-year-old soccer player**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6501366/2025/07/18/olivia-smith-liverpool-arsenal-the-pulse/
+**'A long time coming': NHL goalies see big benefits in changes to EBUG system**\
+`Netminding has become increasingly demanding in today's NHL. Full-time emergency replacements will soon be around to help lighten the load.`\
+https://nytimes.com/athletic/6500435/2025/07/18/nhl-goaltender-goalie-ebug-rules/
 
-**How a photo of Hank Aaron's widow went from personal snapshot to viral tearjerker**\
-`The Braves consultant who took the pic of Billye Aaron explains how he was in the right spot for a "pinch me" moment.`\
-https://nytimes.com/athletic/6501011/2025/07/18/hank-aaron-billye-all-star-photo/
+**What to know about the 2025 WNBA All-Star Game, skills competition and 3-point contest**\
+`Who will step up in Caitlin Clark's absence? Who will win MVP? How do I watch the events?`\
+https://nytimes.com/athletic/6500601/2025/07/18/wnba-all-star-game-schedule/
 
-**Can WNBA get even more eyes on Caitlin Clark? Yep, host a game at Lucas Oil or Wrigley Field**\
-`With explosive popularity, W franchises should push for these marquee events, columnist Richard Deitsch says.`\
-https://nytimes.com/athletic/6488838/2025/07/18/caitlin-clark-wnba-lucas-oil-stadium-wrigley/
+**Far from MLB, a former big-league slugger completes his quest for 500 home runs**\
+`Chris Carter hit 41 home runs in 2016, and two years later was out of the majors. But his desire to keep mashing remained. `\
+https://nytimes.com/athletic/6500914/2025/07/18/chris-carter-500-home-runs-mexico/
 
-**Bucks GM Jon Horst on assembling guard rotation, bringing back Bobby Portis**\
-`In Part 2 of an exclusive interview, the Bucks GM explains why he brought so many of last year's depth players back to Milwaukee. `\
-https://nytimes.com/athletic/6497810/2025/07/18/jon-horst-milwaukee-bucks-interview-exclusive-nba/
+**Pellegrino Matarazzo on the USMNT, Chelsea and a coaching return: 'I'm ready for the next step'**\
+`The former Hoffenheim coach addresses national team progress under Pochettino, the Club World Cup and his own unfinished business in Europe`\
+https://nytimes.com/athletic/6499423/2025/07/18/pellegrino-matarazzo-usmnt-chelsea-fifa-tillman-hoffenheim/
 
-**The World Series On Netflix, Apple TV+, YouTube or Amazon Prime Video? That's the future**\
-`The World Series exclusively on streaming? The industry experts The Athletic's Richard Deitsch spoke with think it's inevitable.`\
-https://nytimes.com/athletic/6475198/2025/07/18/mlb-world-series-netflix-apple-youtube-amazon-prime-video/
+**AL Central 2025 draft report cards: White Sox's high-upside class shines; Twins net sure shortstop**\
+`The Royals nailed their top three picks, while the Tigers reached in the first round and the Guardians loaded up on power bats.`\
+https://nytimes.com/athletic/6500452/2025/07/18/al-central-draft-grades-picks-mlb-2025/
 
-**Capturing David Wright: His 5 best moments as Mets retire No. 5**\
-`From clutch home runs to improbable defense plays, Wright thrilled Mets fans for 14 seasons. These were the highest of the highs. `\
-https://nytimes.com/athletic/6500365/2025/07/18/mets-david-wright-jersey-retirement/
+**The Athletic’s Friday football quiz question #64**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6493657/2025/07/18/the-athletics-friday-football-quiz-question-64/
 
-**Floods and Heavy Rain Kill Dozens in Pakistan**\
-`Relentless rain began on Wednesday, causing flooding in several cities and across vast rural stretches in the province of Punjab.`\
-https://nytimes.com/2025/07/18/world/asia/pakistan-rains-flood-deaths.html
+**What I learned from SEC media days: Preseason tiers and a 30-team Playoff pitch**\
+`It's Texas, Georgia and everyone else entering the 2025 season, but a number of teams have realistic Playoff hopes.`\
+https://nytimes.com/athletic/6500769/2025/07/18/sec-football-media-days-playoff/
 
