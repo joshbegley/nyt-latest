@@ -1,3 +1,15 @@
+**Army Special Operations Warns Retired Members of Terror Threat**\
+`The alert, issued to retired service members who served in Iraq or Syria and are living in Florida, did not specify what kind of threat or which terrorist group was involved.`\
+https://nytimes.com/2025/07/17/us/politics/army-special-operations-terror-threat.html
+
+**NFLPA executive director Lloyd Howell steps down**\
+`Decision comes after weeks of criticism facing the NFLPA, including concerns about a potential conflict of interest involving Howell.`\
+https://nytimes.com/athletic/6501428/2025/07/17/nfl-nflpa-union-lloyd-howell-steps-down/
+
+**Why Trump Can’t Shake Jeffrey Epstein**\
+`The journalist Will Sommer examines the perfect storm of the Epstein files, Trump, QAnon and MAGA.`\
+https://nytimes.com/video/opinion/100000010283851/why-trump-cant-shake-jeffrey-epstein.html
+
 **Fans React to Colbert ‘Late Show’ Cancellation With Puzzlement and Anger**\
 `Many questioned the timing of and motivation for the announcement, noting that Mr. Colbert hosted the most-watched show in late night television.`\
 https://nytimes.com/2025/07/17/arts/television/stephen-colbert-late-show-fans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6501219/2025/07/17/joel-lorenzi-joining-athletic-ch
 **Trump Tells Bondi to Seek Release of Epstein Grand Jury Testimony**\
 `The attorney general quickly signaled her intention to ask a court to release the papers.`\
 https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-grand-jury-testimony.html
-
-**‘And Just Like That …’ Season 3, Episode 8 Recap: Bringing Sexy Back**\
-`And just like that, a “Sex and the City” revival seemed to remember the first word in the franchise title.`\
-https://nytimes.com/2025/07/17/arts/television/and-just-like-that-recap-season-3-episode-8.html
-
-**Newsom Wants California to Counter Texas on Redistricting**\
-`Gov. Gavin Newsom says California should redraw its own congressional districts if Texas tries to gerrymander its lines. His idea faces long odds.`\
-https://nytimes.com/2025/07/17/us/california-texas-redistricting-newsom.html
-
-**Ex-Voice of America Employee Arrested and Charged With Threatening Marjorie Taylor Greene**\
-`Federal prosecutors accused the man of threatening to kill Ms. Greene, her staff, and their families, months before President Trump sought to dismantle the news agency.`\
-https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-greene.html
 

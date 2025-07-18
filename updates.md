@@ -1,3 +1,15 @@
+**Army Special Operations Warns Retired Members of Terror Threat**\
+`The alert, issued to retired service members who served in Iraq or Syria and are living in Florida, did not specify what kind of threat or which terrorist group was involved.`\
+https://nytimes.com/2025/07/17/us/politics/army-special-operations-terror-threat.html
+
+**NFLPA executive director Lloyd Howell steps down**\
+`Decision comes after weeks of criticism facing the NFLPA, including concerns about a potential conflict of interest involving Howell.`\
+https://nytimes.com/athletic/6501428/2025/07/17/nfl-nflpa-union-lloyd-howell-steps-down/
+
+**Why Trump Can’t Shake Jeffrey Epstein**\
+`The journalist Will Sommer examines the perfect storm of the Epstein files, Trump, QAnon and MAGA.`\
+https://nytimes.com/video/opinion/100000010283851/why-trump-cant-shake-jeffrey-epstein.html
+
 **Fans React to Colbert ‘Late Show’ Cancellation With Puzzlement and Anger**\
 `Many questioned the timing of and motivation for the announcement, noting that Mr. Colbert hosted the most-watched show in late night television.`\
 https://nytimes.com/2025/07/17/arts/television/stephen-colbert-late-show-fans.html
