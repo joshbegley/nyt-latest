@@ -1,3 +1,7 @@
+**West Ham closing in on Walker-Peters on free transfer**\
+`The club have proposed a three-year deal to the full-back with an option of a further year.`\
+https://nytimes.com/athletic/6501630/2025/07/18/west-ham-transfers-walker-peters/
+
 **The New York Times International Edition in Print for Saturday, July 19, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/18/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/netanyahu-alma-mater-cheltenham.html
 **A Movie About the Year America Went Fully Berserk**\
 `From the director of “Midsommar,” a nightmare vision of our national descent. `\
 https://nytimes.com/2025/07/18/opinion/ari-aster-eddington.html
-
-**A New ‘Billy Budd’ Is a Pressure Cooker of Gay Desire**\
-`An adaptation of the Benjamin Britten opera, in turn based on Melville’s classic novella, joins a lineage of beautiful enigmas.`\
-https://nytimes.com/2025/07/18/arts/music/billy-budd-ted-huffman-oliver-leith-aix.html
 

@@ -1,3 +1,7 @@
+**West Ham closing in on Walker-Peters on free transfer**\
+`The club have proposed a three-year deal to the full-back with an option of a further year.`\
+https://nytimes.com/athletic/6501630/2025/07/18/west-ham-transfers-walker-peters/
+
 **The New York Times International Edition in Print for Saturday, July 19, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/18/todays-new-york-times-international-edition
