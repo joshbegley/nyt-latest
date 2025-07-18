@@ -1,4 +1,4 @@
-**Man Utd agree £71m Mbeumo fee with Brentford**\
+**Man Utd agree fee worth up to £71m for Mbeumo**\
 `The deal comprises an initial £65m, to be paid in four instalments, plus a maximum of £6m in potential bonuses.`\
 https://nytimes.com/athletic/6499896/2025/07/18/bryan-mbeumo-man-utd-transfer/
 

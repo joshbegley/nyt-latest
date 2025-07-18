@@ -1,3 +1,11 @@
+**Man Utd agree £71m Mbeumo fee with Brentford**\
+`The deal comprises an initial £65m, to be paid in four instalments, plus a maximum of £6m in potential bonuses.`\
+https://nytimes.com/athletic/6499896/2025/07/18/bryan-mbeumo-man-utd-transfer/
+
+**What would be a successful season for Ohio State and Julian Sayin? Buckeyes mailbag**\
+`Answering your Ohio State questions about Sayin and the quarterback battle, comparisons with Drew Allar and what needs to be done in 2025.`\
+https://nytimes.com/athletic/6501627/2025/07/18/ohio-state-predictions-expectations-julian-sayin/
+
 **Felix Baumgartner, man who jumped from space, dies after paragliding accident**\
 `Baumgartner’s career-defining achievement came in 2012 when he broke eight world records with his freefall jump from outer space.`\
 https://nytimes.com/athletic/6501762/2025/07/18/felix-baumgartner-death-paragliding/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6500914/2025/07/18/chris-carter-500-home-runs-mexic
 **Pellegrino Matarazzo on the USMNT, Chelsea and a coaching return: 'I'm ready for the next step'**\
 `The former Hoffenheim coach addresses national team progress under Pochettino, the Club World Cup and his own unfinished business in Europe`\
 https://nytimes.com/athletic/6499423/2025/07/18/pellegrino-matarazzo-usmnt-chelsea-fifa-tillman-hoffenheim/
-
-**AL Central 2025 draft report cards: White Sox's high-upside class shines; Twins net sure shortstop**\
-`The Royals nailed their top three picks, while the Tigers reached in the first round and the Guardians loaded up on power bats.`\
-https://nytimes.com/athletic/6500452/2025/07/18/al-central-draft-grades-picks-mlb-2025/
-
-**The Athletic’s Friday football quiz question #64**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6493657/2025/07/18/the-athletics-friday-football-quiz-question-64/
 
