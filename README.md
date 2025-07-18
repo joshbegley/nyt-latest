@@ -30,7 +30,7 @@ https://nytimes.com/2025/07/18/climate/epa-firings-scientific-research.html
 `No endorsement emerged from the meeting between Zohran Mamdani and Representative Hakeem Jeffries, but both said the gathering had been productive.`\
 https://nytimes.com/2025/07/18/nyregion/zohran-mamdani-hakeem-jeffries.html
 
-**No way Yegor Chinakhov can stay in Columbus after trade request, agent says: 'It's all about the coach'**\
+**No way Yegor Chinakhov can stay in Columbus after trade request, agent says**\
 `Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
 `\
 https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-trade-request-agent/
