@@ -1,3 +1,11 @@
+**Stephen Colbert Was Never Going to Save Us**\
+`Mocking Donald Trump will not destroy him.`\
+https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
+
+**Flashback: Your Weekly History Quiz, July 19, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/07/18/upshot/flashback.html
+
 **Scottie Scheffler raised questions about happiness and fulfillment. This professor has answers**\
 `Harvard's Arthur Brooks has spent years thinking, writing and talking about the keys to a life of happiness and fulfillment. `\
 https://nytimes.com/athletic/6502755/2025/07/18/scottie-scheffler-arthur-brooks-happiness-fulfillment-open/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goali
 **Terrelle Pryor's lawsuit against Ohio State, NCAA and Big Ten dismissed**\
 `Pryor sued his alma mater in October after Heisman Trophy winner Reggie Bush filed a similar suit against USC and the NCAA.`\
 https://nytimes.com/athletic/6502677/2025/07/18/terrelle-pryor-nil-lawsuit-dismissed/
-
-**France captain Mbock available for Euro 2025 quarter-final, not seeking Germany 'revenge'**\
-`Mbock has been absent for all of France’s three group-stage wins with a right calf injury.`\
-https://nytimes.com/athletic/6502659/2025/07/18/griedge-mbock-france-euro-2025-injury-update/
-
-**WATCH: Point Flagg? Why Mavs used their new phenom this way in NBA Summer League**\
-`A decade ago, Jason Kidd experimented with using a giant forward as a point guard. Now, he's doing the same with No. 1 pick Cooper Flagg.`\
-https://nytimes.com/athletic/6502363/2025/07/18/video-cooper-flagg-mavericks-summer-league-highlights/
 
