@@ -1,3 +1,7 @@
+**Ex-Voice of America Employee Arrested and Charged With Threatening Marjorie Taylor Greene**\
+`Federal prosecutors accused the man of threatening to kill Ms. Greene, her staff, and their families, months before President Trump sought to dismantle the news agency.`\
+https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-greene.html
+
 **A Timeline of What We Know About Trump and Epstein**\
 `Donald Trump was friendly for at least 15 years with Jeffrey Epstein, the multimillionaire financier and convicted sex offender who died in prison in 2019.`\
 https://nytimes.com/2025/07/17/us/politics/timeline-trump-epstein.html
