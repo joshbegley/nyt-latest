@@ -1,3 +1,7 @@
+**Columbia and White House Enter Final Stage of Talks to End Standoff**\
+`A deal to resolve allegations that the university failed to protect Jewish students from harassment is expected to include a fine of about $200 million.`\
+https://nytimes.com/2025/07/17/nyregion/columbia-trump-near-deal.html
+
 **Man Who Sent ‘I Raped You’ Message Pleads Guilty to Sexual Assault**\
 `Ian Cleary, 32, attacked a fellow Gettysburg College student in her dorm room more than a decade ago. A series of Facebook messages helped lead to his arrest.`\
 https://nytimes.com/2025/07/17/us/pennsylvania-college-rape-guilty.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6501015/2025/07/17/chargers-training-camp-mike-will
 **Open Championship 2025 Round 1: What to know about the 5 leaders at Portrush**\
 `It is the first time in major championship history that five or more men, each playing under different flags, were tied for the lead.`\
 https://nytimes.com/athletic/6501075/2025/07/17/open-championship-2025-round-1-what-to-know/
-
-**Would a Trump executive order fix college sports' issues? Here's what a draft calls for**\
-`It is unclear if or when such an executive order will be formalized, but Trump has considered executive action on college sports for months.`\
-https://nytimes.com/athletic/6500773/2025/07/17/president-trump-executive-order-college-sports/
 
