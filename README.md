@@ -1,3 +1,15 @@
+**Rubio Restricts U.S. Criticism of Tainted Foreign Elections**\
+`A State Department cable telling officials to avoid comments on the “fairness or integrity” of most elections continues a U.S. turn away from promoting democratic values abroad.`\
+https://nytimes.com/2025/07/18/us/politics/rubio-foreign-elections-cable.html
+
+**Ketel Marte placed on restricted list after break-in at his home during All-Star break**\
+`Marte requested a few days off following the incident at his Phoenix-area home during the All-Star Game.`\
+https://nytimes.com/athletic/6503151/2025/07/18/ketel-marte-burglary-restricted-list-diamondbacks/
+
+**Reds sign first-round pick Steele Hall, one of the youngest players in Sunday's draft**\
+`The shortstop, who had committed to the University of Tennessee, will turn 18 on July 24.`\
+https://nytimes.com/athletic/6503157/2025/07/18/reds-sign-first-round-pick-steele-hall/
+
 **The Best Sleep Trackers**\
 `(No description)`\
 https://nytimes.com/card/2025/07/18/smarter-living/wirecutter/the-best-sleep-trackers
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-tra
 **Switzerland's fans are on the march. Can they ensure the game really is 'here to stay'?**\
 `The host nation may be out of the Euros but their fans have voted with their feet and shown there is a big appetite for the sport to grow`\
 https://nytimes.com/athletic/6503087/2025/07/18/switzerland-euros-here-to-stay-legacy/
-
-**Missouri lands 5-star Jason Crowe Jr., highest-rated commitment since Michael Porter Jr.**\
-`The story of Crowe's commitment to Missouri starts with a Los Angeles Clippers training camp held before he was born.`\
-https://nytimes.com/athletic/6502614/2025/07/18/missouri-jason-crowe-jr-commitment-college-basketball/
-
-**Read the Justice Department’s Jeffrey Epstein Filing**\
-`The Justice Department asked a Manhattan judge to unseal grand jury testimony about Jeffrey Epstein, the disgraced financier.`\
-https://nytimes.com/interactive/2025/07/18/nyregion/18met-epstein-motion.html
-
-**Not Even ‘The Late Show’ Could Defy Gravity**\
-`CBS could not figure out a path to profitability in an entertainment world increasingly dominated by streaming.`\
-https://nytimes.com/2025/07/18/business/media/stephen-colbert-late-show-cbs.html
 
