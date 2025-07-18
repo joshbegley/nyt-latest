@@ -1,3 +1,7 @@
+**Plane Is Diverted After Man Threatens to Kill Flight Attendant, Authorities Say**\
+`The jet, bound for Detroit from Omaha, made an emergency landing in Cedar Rapids, Iowa, after a man shoved a flight attendant and displayed unruly behavior, SkyWest Airlines said.`\
+https://nytimes.com/2025/07/18/us/flight-detroit-nebraska-iowa-man-arrested-assault.html
+
 **Gabbard Claims Obama Administration Tried to Undermine Trump in 2016**\
 `Democrats denounced a report issued by the Office of the Director of National Intelligence as politically motivated and error-ridden.`\
 https://nytimes.com/2025/07/18/us/politics/gabbard-obama-trump-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503231/2025/07/18/blue-jays-sign-first-round-pick-
 **Trump Asked a Court to Unseal Epstein Grand Jury Testimony**\
 `Also, Americans were released in a prisoner swap with Venezuela. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/07/18/briefing/trump-epstein-npr.html
-
-**When Getting Fired Is Only the Beginning for Federal Workers**\
-`One thing is clear from a reporter’s conversations with laid-off federal workers this year: The cuts have been anything but straightforward and efficient.`\
-https://nytimes.com/2025/07/18/us/politics/trump-federal-layoffs-workers.html
 
