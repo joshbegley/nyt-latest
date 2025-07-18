@@ -1,3 +1,15 @@
+**My mission in returning home, joining The Athletic to cover the Chicago Bulls**\
+`Chicago: I’ve walked these same streets. I hope you sense that when you read me.`\
+https://nytimes.com/athletic/6501219/2025/07/17/joel-lorenzi-joining-athletic-chicago-bulls/
+
+**Trump Tells Bondi to Seek Release of Epstein Grand Jury Testimony**\
+`The attorney general quickly signaled her intention to ask a court to release the papers.`\
+https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-grand-jury-testimony.html
+
+**‘And Just Like That …’ Season 3, Episode 8 Recap: Bringing Sexy Back**\
+`And just like that, a “Sex and the City” revival seemed to remember the first word in the franchise title.`\
+https://nytimes.com/2025/07/17/arts/television/and-just-like-that-recap-season-3-episode-8.html
+
 **Newsom Wants California to Counter Texas on Redistricting**\
 `Gov. Gavin Newsom says California should redraw its own congressional districts if Texas tries to gerrymander its lines. His idea faces long odds.`\
 https://nytimes.com/2025/07/17/us/california-texas-redistricting-newsom.html
