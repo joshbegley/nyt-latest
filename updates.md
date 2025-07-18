@@ -1,3 +1,7 @@
+**NFLPA’s interim executive director not expected to get full-time job: Source**\
+`According to an NFLPA source, the union’s legal team is meeting with the executive committee and board of player reps on Friday.`\
+https://nytimes.com/athletic/6502014/2025/07/18/nflpa-executive-director-howell-tretter/
+
 **The Bounce: 3 key WNBA questions now that All-Star break is here. Plus, a new 3-point idea for the NBA**\
 `What is going on around the WNBA now that All-Star has arrived? Sabreena Merchant joins The Bounce to discuss`\
 https://nytimes.com/athletic/6501972/2025/07/18/wnba-all-star-break-nba-damian-lillard-trail-blazers-the-bounce/
