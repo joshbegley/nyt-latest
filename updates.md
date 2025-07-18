@@ -1,3 +1,7 @@
+**Watford confirm signing of Bayern teenager Irankunda**\
+`The Australia international has been on loan in Switzerland since January and appeared 15 times for Bayern's amateur side.`\
+https://nytimes.com/athletic/6502640/2025/07/18/watford-nestory-irankunda-bayern-munich-transfer/
+
 **After the Floods, a Pain So Vast It Makes Texas Feel Small**\
 `The Hill Country has a hold on the hearts of many Texans, meaning the suffering caused by the disaster is reaching as far as the region’s appeal.`\
 https://nytimes.com/2025/07/18/us/texas-hill-country-floods-impact.html
