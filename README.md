@@ -1,3 +1,15 @@
+**Gabbard Claims Obama Administration Tried to Undermine Trump in 2016**\
+`Democrats denounced a report issued by the Office of the Director of National Intelligence as politically motivated and error-ridden.`\
+https://nytimes.com/2025/07/18/us/politics/gabbard-obama-trump-russia.html
+
+**Copa América Femenina alters practice rules following Brazil outcry**\
+`The tournament previously required players to warm up in a small, indoor area alongside their opponents, frustrating players and coaches.`\
+https://nytimes.com/athletic/6503214/2025/07/18/copa-america-femenina-practice-rule-changes-brazil/
+
+**'You can't just trade everyone': Phillies owner John Middleton talks trade deadline**\
+`Middleton noted that Dave Dombrowski is "always aggressive" and said the team would love to re-sign Kyle Schwarber.`\
+https://nytimes.com/athletic/6503211/2025/07/18/phillies-trade-deadline-john-middleton/
+
 **Bill Dellinger, Runner and Track Coach Who Mentored Stars, Dies at 91**\
 `After running the 5,000 meters in three Olympics, he coached the likes of Steve Prefontaine and Joaquim Cruz at his alma mater, the University of Oregon.`\
 https://nytimes.com/2025/07/18/sports/bill-dellinger-track-coach-who-mentored-stars-dies-at-91.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/18/briefing/trump-epstein-npr.html
 **When Getting Fired Is Only the Beginning for Federal Workers**\
 `One thing is clear from a reporter’s conversations with laid-off federal workers this year: The cuts have been anything but straightforward and efficient.`\
 https://nytimes.com/2025/07/18/us/politics/trump-federal-layoffs-workers.html
-
-**Rubio Restricts U.S. Criticism of Tainted Foreign Elections**\
-`A State Department cable telling officials to avoid comments on the “fairness or integrity” of most elections continues a U.S. turn away from promoting democratic values abroad.`\
-https://nytimes.com/2025/07/18/us/politics/rubio-foreign-elections-cable.html
-
-**Ketel Marte placed on restricted list after break-in at his home during All-Star break**\
-`Marte requested a few days off following the incident at his Phoenix-area home during the All-Star Game.`\
-https://nytimes.com/athletic/6503151/2025/07/18/ketel-marte-burglary-restricted-list-diamondbacks/
-
-**Reds sign first-round pick Steele Hall, one of the youngest players in Sunday's draft**\
-`The shortstop, who had committed to the University of Tennessee, will turn 18 on July 24.`\
-https://nytimes.com/athletic/6503157/2025/07/18/reds-sign-first-round-pick-steele-hall/
 
