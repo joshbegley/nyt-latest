@@ -1,3 +1,11 @@
+**Is selling Jacob Ramsey the problem it once was at Aston Villa?**\
+`Ramsey knows this season's importance - but will that be at Villa or elsewhere? Nottingham Forest are interested in the homegrown midfielder`\
+https://nytimes.com/athletic/6499304/2025/07/18/jacob-ramsey-aston-villa-transfer-sale/
+
+**Where Congress’s Cuts Threaten Access to PBS and NPR**\
+`The loss of federal funding threatens scores of public TV and radio stations across the United States.`\
+https://nytimes.com/interactive/2025/07/18/business/media/house-rescission-vote-pbs-npr.html
+
 **Everton and the search for a long-term successor to Seamus Coleman**\
 `As Coleman enters his 17th season at the club, a new right-back was expected – has that changed in this transfer market?`\
 https://nytimes.com/athletic/6499595/2025/07/18/everton-right-back-transfers-coleman-patterson-obrien/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6492795/2025/07/18/saudi-pro-league-foreign-investm
 **Chelsea's positional fluidity stifled PSG, providing Maresca with a blueprint for next season**\
 `The head coach's masterful game plan left the European champions floundering — something that does not happen very often`\
 https://nytimes.com/athletic/6492813/2025/07/18/how-chelsea-stifled-psg-maresca-blueprint-next-season/
-
-**Only 5 Fingers Playing Piano, but the Sound of So Many Hands**\
-`Nicholas McCarthy overcame rejection to make a professional career playing the surprisingly vast repertoire for left-hand piano.`\
-https://nytimes.com/2025/07/18/arts/music/nicholas-mccarthy-piano.html
-
-**Corrections: July 18, 2025**\
-`Corrections that appeared in print on Friday, July 18, 2025.`\
-https://nytimes.com/2025/07/18/pageoneplus/corrections-july-18-2025.html
 
