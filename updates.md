@@ -1,3 +1,23 @@
+**Not Even ‘The Late Show’ Could Defy Gravity**\
+`CBS could not figure out a path to profitability in an entertainment world increasingly dominated by streaming.`\
+https://nytimes.com/2025/07/18/business/media/stephen-colbert-late-show-cbs.html
+
+**Son's future, injuries and using a No 10: What we learned from Frank's press conference**\
+`The new head coach spoke to the media for the first time since joining Tottenham this summer`\
+https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
+
+**What Exactly Is a Jet2 Holiday and Why Are People Talking About It?**\
+`The voice-over and soundtrack from an ad released in January 2024 have gone viral on social media a year and a half later.`\
+https://nytimes.com/2025/07/18/travel/new-york-floods-tiktok-meme.html
+
+**Minnesota Lawmaker Convicted of Burglary, Leaving Democrats’ Majority in Question**\
+`Nicole Mitchell, a Democrat, was charged with felonies and accused of breaking into her stepmother’s home. Her party holds a slim majority in the Minnesota Senate.`\
+https://nytimes.com/2025/07/18/us/minnesota-lawmaker-burglary-conviction.html
+
+**Trump Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
+`The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files on the disgraced financier.`\
+https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
+
 **Trump Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
 `The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files into the disgraced financier.`\
 https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
