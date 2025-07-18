@@ -1,3 +1,19 @@
+**TAFC: What now for Saudi sides? Plus: Man Utd's new Mbeumo bid, England penalty drama and more**\
+`Today in TAFC: How will Saudi sides capitalise on Club World Cup? Plus: Sweden 'keeper at centre of penalty drama, Snoop Dogg joins Swansea`\
+https://nytimes.com/athletic/6501609/2025/07/18/what-now-for-saudi-sides-plus-man-utds-new-mbeumo-bid-england-penalty-drama-and-more/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions**\
+`Post your questions and our Newcastle writer will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6501645/2025/07/18/newcastle-questions-answered-isak-ekitike-transfers/
+
+**Ravens mailbag, part 2: Kicker situation, defensive depth, starting battle at ILB?**\
+`Also, should Baltimore consider signing either Jadeveon Clowney or Za'Darius Smith to help bolster its pass rush heading into the season?`\
+https://nytimes.com/athletic/6492212/2025/07/18/ravens-mailbag-tyler-loop-john-hoyland/
+
+**The Pulse: The $1.3M 20-year-old soccer player**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6501366/2025/07/18/olivia-smith-liverpool-arsenal-the-pulse/
+
 **How a photo of Hank Aaron's widow went from personal snapshot to viral tearjerker**\
 `The Braves consultant who took the pic of Billye Aaron explains how he was in the right spot for a "pinch me" moment.`\
 https://nytimes.com/athletic/6501011/2025/07/18/hank-aaron-billye-all-star-photo/
