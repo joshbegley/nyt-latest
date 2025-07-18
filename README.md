@@ -1,3 +1,11 @@
+**The Best Sleep Trackers**\
+`(No description)`\
+https://nytimes.com/card/2025/07/18/smarter-living/wirecutter/the-best-sleep-trackers
+
+**Open Championship Round 2: What to know as Scottie Scheffler takes the lead**\
+`Scheffler is the first reigning world number one player since Tiger Woods to hold the 36-hole lead at this championship.`\
+https://nytimes.com/athletic/6503128/2025/07/18/open-championship-2025-round-2-what-to-know-scottie-scheffler/
+
 **As the deadline nears, Jed Hoyer is willing to be creative as he looks to improve the Cubs**\
 `"To me, it's just how do we focus on the Cubs winning as many games as possible?" Hoyer said.`\
 https://nytimes.com/athletic/6503080/2025/07/18/cubs-mlb-trade-deadline-jed-hoyer/
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/2025/07/18/nyregion/18met-epstein-motion.html
 **Not Even ‘The Late Show’ Could Defy Gravity**\
 `CBS could not figure out a path to profitability in an entertainment world increasingly dominated by streaming.`\
 https://nytimes.com/2025/07/18/business/media/stephen-colbert-late-show-cbs.html
-
-**Son's future, injuries and using a No 10: What we learned from Frank's press conference**\
-`The new head coach spoke to the media for the first time since joining Tottenham this summer`\
-https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
-
-**What Exactly Is a Jet2 Holiday and Why Are People Talking About It?**\
-`The voice-over and soundtrack from an ad released in January 2024 have gone viral on social media a year and a half later.`\
-https://nytimes.com/2025/07/18/travel/new-york-floods-tiktok-meme.html
 
