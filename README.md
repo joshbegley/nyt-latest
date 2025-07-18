@@ -1,3 +1,7 @@
+**When Getting Fired Is Only the Beginning for Federal Workers**\
+`One thing is clear from a reporter’s conversations with laid-off federal workers this year: The cuts have been anything but straightforward and efficient.`\
+https://nytimes.com/2025/07/18/us/politics/trump-federal-layoffs-workers.html
+
 **Rubio Restricts U.S. Criticism of Tainted Foreign Elections**\
 `A State Department cable telling officials to avoid comments on the “fairness or integrity” of most elections continues a U.S. turn away from promoting democratic values abroad.`\
 https://nytimes.com/2025/07/18/us/politics/rubio-foreign-elections-cable.html
@@ -30,12 +34,8 @@ https://nytimes.com/2025/07/18/climate/epa-firings-scientific-research.html
 `No endorsement emerged from the meeting between Zohran Mamdani and Representative Hakeem Jeffries, but both said the gathering had been productive.`\
 https://nytimes.com/2025/07/18/nyregion/zohran-mamdani-hakeem-jeffries.html
 
-**No way Yegor Chinakhov can stay in Columbus after trade request, agent says**\
+**No way Yegor Chinakhov can stay in Columbus after trade request, agent says: 'It's all about the coach'**\
 `Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
 `\
 https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-trade-request-agent/
-
-**Switzerland's fans are on the march. Can they ensure the game really is 'here to stay'?**\
-`The host nation may be out of the Euros but their fans have voted with their feet and shown there is a big appetite for the sport to grow`\
-https://nytimes.com/athletic/6503087/2025/07/18/switzerland-euros-here-to-stay-legacy/
 

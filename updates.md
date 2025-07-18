@@ -1,3 +1,8 @@
+**No way Yegor Chinakhov can stay in Columbus after trade request, agent says**\
+`Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
+`\
+https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-trade-request-agent/
+
 **Rubio Restricts U.S. Criticism of Tainted Foreign Elections**\
 `A State Department cable telling officials to avoid comments on the “fairness or integrity” of most elections continues a U.S. turn away from promoting democratic values abroad.`\
 https://nytimes.com/2025/07/18/us/politics/rubio-foreign-elections-cable.html
