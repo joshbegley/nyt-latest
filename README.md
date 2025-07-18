@@ -1,40 +1,40 @@
-**Army Special Operations Warns Retired Members of Terror Threat**\
-`The alert, issued to retired service members who served in Iraq or Syria and live in Florida, did not specify what kind of threat or which terrorist group was involved.`\
-https://nytimes.com/2025/07/17/us/politics/army-special-operations-terror-threat.html
+**'Usyk's willpower is stronger than any other boxer. We do things nobody else would do'**\
+`The Ukrainian's training partner explains what makes him such a force of nature ahead of rematch with Daniel Dubois this weekend`\
+https://nytimes.com/athletic/6499579/2025/07/18/oleksandr-usyk-daniel-dubois-boxing/
 
-**NFLPA executive director Lloyd Howell steps down**\
-`Decision comes after weeks of criticism facing the NFLPA, including concerns about a potential conflict of interest involving Howell.`\
-https://nytimes.com/athletic/6501428/2025/07/17/nfl-nflpa-union-lloyd-howell-steps-down/
+**Saudi Pro League courting overseas investment in bid to compete with the best**\
+`How does the Gulf State ensure its teams continue to improve and compete with European sides, as Al Hilal just did in the Club World Cup?`\
+https://nytimes.com/athletic/6492795/2025/07/18/saudi-pro-league-foreign-investment/
 
-**Why Trump Can’t Shake Jeffrey Epstein**\
-`The journalist Will Sommer examines the perfect storm of the Epstein files, Trump, QAnon and MAGA.`\
-https://nytimes.com/video/opinion/100000010283851/why-trump-cant-shake-jeffrey-epstein.html
+**Chelsea's positional fluidity stifled PSG, providing Maresca with a blueprint for next season**\
+`The head coach's masterful game plan left the European champions floundering — something that does not happen very often`\
+https://nytimes.com/athletic/6492813/2025/07/18/how-chelsea-stifled-psg-maresca-blueprint-next-season/
 
-**Fans React to Colbert ‘Late Show’ Cancellation With Puzzlement and Anger**\
-`Many questioned the timing of and motivation for the announcement, noting that Mr. Colbert hosted the most-watched show in late night television.`\
-https://nytimes.com/2025/07/17/arts/television/stephen-colbert-late-show-fans.html
+**Only 5 Fingers Playing Piano, but the Sound of So Many Hands**\
+`Nicholas McCarthy overcame rejection to make a professional career playing the surprisingly vast repertoire for left-hand piano.`\
+https://nytimes.com/2025/07/18/arts/music/nicholas-mccarthy-piano.html
 
-**Shemar Stewart has 'no intentions' of making Texas A&M return, coach says**\
-`Stewart and the Bengals are still embroiled in a contract dispute over language the team included in his rookie deal.`\
-https://nytimes.com/athletic/6501293/2025/07/17/bengals-shemar-stewart-no-texas-am-return/
+**Corrections: July 18, 2025**\
+`Corrections that appeared in print on Friday, July 18, 2025.`\
+https://nytimes.com/2025/07/18/pageoneplus/corrections-july-18-2025.html
 
-**House Republicans Dangle Possible Vote on Epstein Files, After Voter Backlash**\
-`The House Rules Committee laid the groundwork for an eventual vote to call for release of the Epstein files, reflecting Republican uneasiness with the president’s refusal to divulge information from the investigation.`\
-https://nytimes.com/2025/07/17/us/politics/epstein-files-house-republicans-vote.html
+**Connections: Sports Edition Coach: Hints for July 18, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6499141/2025/07/18/connections-sports-edition-hints-for-july-18-2025/
 
-**Border Patrol Agents Raid a Home Depot in Northern California**\
-`The raid indicates a new strategy of going deeper into California after focusing on Southern California for several weeks.`\
-https://nytimes.com/2025/07/17/us/politics/sacramento-home-depot-raid.html
+**He Took My Story, So I Made a New One**\
+`When my 60-year-old husband suddenly left, I lost a sense of who I was, but not entirely.`\
+https://nytimes.com/2025/07/18/style/modern-love-he-took-my-story-so-i-made-a-new-one.html
 
-**Staff Notes**\
-`Kelly Morenus opens our solving weekend with some long, lively entries.`\
-https://nytimes.com/2025/07/17/crosswords/daily-puzzle-2025-07-18.html
+**A Big, Adorable Reveal on the Second Date**\
+`Dayton Munson and Emily Orozco hit it off over Bumble, then over a series of restaurant dates.`\
+https://nytimes.com/2025/07/18/style/emily-orozco-dayton-munson-wedding.html
 
-**My mission in returning home, joining The Athletic to cover the Chicago Bulls**\
-`Chicago: I’ve walked these same streets. I hope you sense that when you read me.`\
-https://nytimes.com/athletic/6501219/2025/07/17/joel-lorenzi-joining-athletic-chicago-bulls/
+**Seeking a Friend, Finding Much More**\
+`Ernie Apreza and Kyle Labarry were looking for community in a new city when they first met 10 years ago. Along the way, they found love.`\
+https://nytimes.com/2025/07/18/style/ernie-apreza-kyle-labarry-wedding.html
 
-**Trump Tells Bondi to Seek Release of Epstein Grand Jury Testimony**\
-`The attorney general quickly signaled her intention to ask a court to release the papers.`\
-https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-grand-jury-testimony.html
+**He Didn’t Know It Was an Audition. But He Got the Husband Role.**\
+`Aleksandra Dubov and Daniyel Berchenko were stargazing in the California desert when Ms. Dubov asked him a direct question.`\
+https://nytimes.com/2025/07/18/style/aleksandra-dubov-daniyel-berchenko-wedding.html
 

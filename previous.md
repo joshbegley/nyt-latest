@@ -2,7 +2,7 @@
 `The alert, issued to retired service members who served in Iraq or Syria and live in Florida, did not specify what kind of threat or which terrorist group was involved.`\
 https://nytimes.com/2025/07/17/us/politics/army-special-operations-terror-threat.html
 
-**NFLPA executive director Lloyd Howell steps down after weeks of criticism**\
+**NFLPA executive director Lloyd Howell steps down**\
 `Decision comes after weeks of criticism facing the NFLPA, including concerns about a potential conflict of interest involving Howell.`\
 https://nytimes.com/athletic/6501428/2025/07/17/nfl-nflpa-union-lloyd-howell-steps-down/
 
@@ -35,6 +35,6 @@ https://nytimes.com/2025/07/17/crosswords/daily-puzzle-2025-07-18.html
 https://nytimes.com/athletic/6501219/2025/07/17/joel-lorenzi-joining-athletic-chicago-bulls/
 
 **Trump Tells Bondi to Seek Release of Epstein Grand Jury Testimony**\
-`The attorney general plans to ask a court to release the papers. But even if the request succeeds, it would fall far short of critics’ demands to release all investigative materials.`\
+`The attorney general quickly signaled her intention to ask a court to release the papers.`\
 https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-grand-jury-testimony.html
 

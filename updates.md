@@ -1,3 +1,11 @@
+**NFLPA executive director Lloyd Howell steps down**\
+`Decision comes after weeks of criticism facing the NFLPA, including concerns about a potential conflict of interest involving Howell.`\
+https://nytimes.com/athletic/6501428/2025/07/17/nfl-nflpa-union-lloyd-howell-steps-down/
+
+**Trump Tells Bondi to Seek Release of Epstein Grand Jury Testimony**\
+`The attorney general quickly signaled her intention to ask a court to release the papers.`\
+https://nytimes.com/2025/07/17/us/politics/trump-epstein-bondi-grand-jury-testimony.html
+
 **NFLPA executive director Lloyd Howell steps down after weeks of criticism**\
 `Decision comes after weeks of criticism facing the NFLPA, including concerns about a potential conflict of interest involving Howell.`\
 https://nytimes.com/athletic/6501428/2025/07/17/nfl-nflpa-union-lloyd-howell-steps-down/
