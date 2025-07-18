@@ -1,3 +1,7 @@
+**Ex-Voice of America Employee Arrested and Charged With Threatening Marjorie Taylor Greene**\
+`Federal prosecutors accused the man of threatening to kill Ms. Greene, her staff, and their families, months before President Trump sought to dismantle the news agency.`\
+https://nytimes.com/2025/07/17/us/politics/voice-of-america-marjorie-taylor-greene.html
+
 **A Timeline of What We Know About Trump and Epstein**\
 `Donald Trump was friendly for at least 15 years with Jeffrey Epstein, the multimillionaire financier and convicted sex offender who died in prison in 2019.`\
 https://nytimes.com/2025/07/17/us/politics/timeline-trump-epstein.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/07/17/world/asia/tesla-starlink-india-elon-musk.html
 **Columbia and White House Enter Final Stage of Talks to End Standoff**\
 `A deal to resolve allegations that the university failed to protect Jewish students from harassment is expected to include a fine of about $200 million.`\
 https://nytimes.com/2025/07/17/nyregion/columbia-trump-near-deal.html
-
-**Man Who Sent ‘I Raped You’ Message Pleads Guilty to Sexual Assault**\
-`Ian Cleary, 32, attacked a fellow Gettysburg College student in her dorm room more than a decade ago. A series of Facebook messages helped lead to his arrest.`\
-https://nytimes.com/2025/07/17/us/pennsylvania-college-rape-guilty.html
 

@@ -1,3 +1,7 @@
+**A Timeline of What We Know About Trump and Epstein**\
+`Donald Trump was friendly for at least 15 years with Jeffrey Epstein, the multimillionaire financier and convicted sex offender who died in prison in 2019.`\
+https://nytimes.com/2025/07/17/us/politics/timeline-trump-epstein.html
+
 **Dr. David Altchek, esteemed Mets medical director, dies at 68**\
 `Dr. David Altchek was one of baseball’s pre-eminent elbow surgeons and the Mets’ medical director for the past 20 years.`\
 https://nytimes.com/athletic/6501196/2025/07/17/dr-david-altchek-mets-dies-68/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/07/17/nyregion/columbia-trump-near-deal.html
 **Man Who Sent ‘I Raped You’ Message Pleads Guilty to Sexual Assault**\
 `Ian Cleary, 32, attacked a fellow Gettysburg College student in her dorm room more than a decade ago. A series of Facebook messages helped lead to his arrest.`\
 https://nytimes.com/2025/07/17/us/pennsylvania-college-rape-guilty.html
-
-**CBS Canceling ‘Late Show With Stephen Colbert’ After Next Season**\
-`The show will end in May, the network said, calling it “a purely financial decision.”`\
-https://nytimes.com/2025/07/17/business/stephen-colbert-late-show-ending.html
 
