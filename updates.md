@@ -1,3 +1,7 @@
+**Five Free Movies to Stream Now**\
+`Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
+https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
+
 **The fantasy football tight ends to draft ... and those to avoid**\
 `Jake Ciely shares his fantasy football strategy to help you maximize the draft value at tight end in 2025. `\
 https://nytimes.com/athletic/6500330/2025/07/18/fantasy-football-draft-te-rankings-values-adp/
