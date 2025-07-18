@@ -1,3 +1,27 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/18/crosswords/spelling-bee-forum.html
+
+**Trump-Driven Chaos Comes to U.S. Attorney’s Offices in Waves**\
+`In Manhattan, Brooklyn, Albany and Newark, confusion has reigned as prosecutors are fired or walk out, and U.S. attorneys serve in limbo while awaiting confirmation.`\
+https://nytimes.com/2025/07/18/nyregion/new-york-area-us-attorneys-chaos.html
+
+**Burnley and X: Explaining their new partnership and why it may be controversial**\
+`Analysing the 'unique' deal between the promoted Premier League club and one of the world's biggest social media platforms`\
+https://nytimes.com/athletic/6499568/2025/07/18/burnley-x-partnership-controversy/
+
+**When Politics Dominate the Education Beat**\
+`A Times reporter reflects on the Trump administration's efforts to dismantle the Department of Education.`\
+https://nytimes.com/2025/07/18/insider/education-department-changes.html
+
+**Who Gets to Wear a Mask?**\
+`The tension over masked federal immigration agents expanded on Long Island, where police officers are now permitted to mask up — but no one else is.`\
+https://nytimes.com/2025/07/18/nyregion/ice-police-masks-nassau-county.html
+
+**A W.N.B.A. Star Loves These Sneakers. She Gets Fined for Wearing Them.**\
+`When an upstart women’s shoe brand made a sponsorship deal with Courtney Williams, a Minnesota Lynx all-star, it put the hugely popular league in an awkward position.`\
+https://nytimes.com/2025/07/18/nyregion/moolah-kicks-womens-basketball-sneakers-wnba.html
+
 **Revealed: Mbeumo bid during Man Utd execs' Iceland summit, Ratcliffe’s fishing trip, ‘bomb squad’ fears**\
 `Club's Scandinavian meeting may be strangely timed but it did not stop transfer plans being pushed through`\
 https://nytimes.com/athletic/6499485/2025/07/18/manchester-united-iceland-ratcliffe/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/18/learning/word-of-the-day-pacify.html
 **England somehow beat Sweden in a genuine epic that had several chapters**\
 `England are through to the semi-finals of Euro 2025 after a quite ludicrous football match with Sweden. Not much of it made sense`\
 https://nytimes.com/athletic/6501178/2025/07/18/england-sweden-euros-epic-shootout/
-
-**The New York Times in Print for Friday, July 18, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/18/todays-new-york-times
-
-**The Impact of Defunding NPR and PBS**\
-`Congress just voted to claw back $500 million in funding for public broadcasting. Benjamin Mullin, a media reporter for The New York Times, explains what will happen now to NPR, PBS and the many local stations that rely on the funding.`\
-https://nytimes.com/video/us/politics/100000010286088/the-impact-of-defunding-npr-and-pbs.html
-
-**The making of Tadej Pogacar, the Tour de France's laidback superstar**\
-`From riding a unicycle on a farm to winning almost all of professional cycling's major races, this is how a generational talent was nurtured`\
-https://nytimes.com/athletic/6499851/2025/07/18/the-making-of-tadej-pogacar-tour-de-france/
-
-**Liverpool return to the Far East: Who is going? How interested are the locals? Commercial value?**\
-`Arne Slot's side are playing a match each in Hong Kong and Japan and will be hoping the tour benefits the club in a whole host of areas`\
-https://nytimes.com/athletic/6497196/2025/07/18/liverpool-pre-season-tour-far-east-explained/
-
-**Friday Briefing: Trump’s Order on Epstein Records**\
-`Plus, panic-buying Korean beauty products`\
-https://nytimes.com/2025/07/18/briefing/trump-epstein-syria-israel-britain-voting-age.html
-
-**Is selling Jacob Ramsey the problem it once was at Aston Villa?**\
-`Ramsey knows this season's importance - but will that be at Villa or elsewhere? Nottingham Forest are interested in the homegrown midfielder`\
-https://nytimes.com/athletic/6499304/2025/07/18/jacob-ramsey-aston-villa-transfer-sale/
 
