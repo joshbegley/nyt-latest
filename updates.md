@@ -1,3 +1,7 @@
+**Beware of ‘Swiper,’ a Fox at Grand Teton Park With a Penchant for Footwear**\
+`One or more foxes have stolen at least 32 shoes, according to park officials, who warned campers to guard their belongings.`\
+https://nytimes.com/2025/07/17/us/beware-of-swiper-a-fox-at-grand-teton-park-with-a-penchant-for-footwear.html
+
 **CBS Canceling ‘Late Show With Stephen Colbert’ After Next Season**\
 `The show will end in May, the network said, calling it “a purely financial decision.”`\
 https://nytimes.com/2025/07/17/business/stephen-colbert-late-show-ending.html
