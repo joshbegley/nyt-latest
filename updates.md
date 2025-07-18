@@ -1,3 +1,19 @@
+**How a Video Studio Embraced A.I. and Stormed the Internet**\
+`The Dor Brothers are indie filmmakers whose viral videos are generated entirely by artificial intelligence.`\
+https://nytimes.com/2025/07/18/technology/dor-video-studio-ai.html
+
+**Trump’s Withering Criticism of Powell Puts Fed Decisions Under Microscope**\
+`The central bank is poised to hold interest rates steady this month, but there could be a path to cut as early as September.`\
+https://nytimes.com/2025/07/18/business/trump-fed-interest-rates-powell.html
+
+**Add Damian Lillard's Blazers return to NBA's list of notable homecomings**\
+`How could this unexpected reunion compare to others?`\
+https://nytimes.com/athletic/6502070/2025/07/18/damian-lillard-trail-blazers-nba-reunions/
+
+**Forest's Danilo completes Botafogo transfer**\
+`The clubs have already done business this summer, with Igor Jesus and Jair Cunha moving from Brazil to England.`\
+https://nytimes.com/athletic/6502174/2025/07/18/nottingham-forest-danilo-botafogo/
+
 **His Old Books Look Great Beside New Clothes**\
 `Geoff Snack, a vintage and rare book dealer, is getting calls from small boutiques as well as mass retailers that want what he’s selling.`\
 https://nytimes.com/2025/07/18/style/geoff-snack-vintage-books-clothes.html
