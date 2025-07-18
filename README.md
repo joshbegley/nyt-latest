@@ -1,3 +1,15 @@
+**Everton and the search for a long-term successor to Seamus Coleman**\
+`As Coleman enters his 17th season at the club, a new right-back was expected – has that changed in this transfer market?`\
+https://nytimes.com/athletic/6499595/2025/07/18/everton-right-back-transfers-coleman-patterson-obrien/
+
+**Wrexham tour diary, part 3: CEO Williamson on merchandise sales and sunsets**\
+`Wrexham's tour Down Under has moved on to New Zealand after nine days in Australia`\
+https://nytimes.com/athletic/6499245/2025/07/18/wrexham-tour-diary-3-australia-new-zealand/
+
+**Dunk's contribution to Brighton's rise is close to immeasurable - but it is time to upgrade him**\
+`The defender is one of the best players in the club's history, but his performance levels are no longer what they once were`\
+https://nytimes.com/athletic/6485244/2025/07/18/brighton-time-to-upgrade-lewis-dunk/
+
 **Yacht trips, equity, Apple TV income and sunbeds: How clubs convince players to sign for them**\
 `It’s not just about a few quid and a nice car anymore – there can be plenty of other options offered to a transfer target`\
 https://nytimes.com/athletic/6499780/2025/07/18/transfers-players-yachts-equity-how-clubs-convince/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/18/arts/music/nicholas-mccarthy-piano.html
 **Corrections: July 18, 2025**\
 `Corrections that appeared in print on Friday, July 18, 2025.`\
 https://nytimes.com/2025/07/18/pageoneplus/corrections-july-18-2025.html
-
-**Connections: Sports Edition Coach: Hints for July 18, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6499141/2025/07/18/connections-sports-edition-hints-for-july-18-2025/
-
-**He Took My Story, So I Made a New One**\
-`When my 60-year-old husband suddenly left, I lost a sense of who I was, but not entirely.`\
-https://nytimes.com/2025/07/18/style/modern-love-he-took-my-story-so-i-made-a-new-one.html
-
-**A Big, Adorable Reveal on the Second Date**\
-`Dayton Munson and Emily Orozco hit it off over Bumble, then over a series of restaurant dates.`\
-https://nytimes.com/2025/07/18/style/emily-orozco-dayton-munson-wedding.html
 
