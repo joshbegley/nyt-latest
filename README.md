@@ -1,3 +1,7 @@
+**England somehow beat Sweden in a genuine epic that had several chapters**\
+`England are through to the semi-finals of Euro 2025 after a quite ludicrous football match with Sweden. Not much of it made sense`\
+https://nytimes.com/athletic/6501178/2025/07/18/england-sweden-euros-epic-shootout/
+
 **The New York Times in Print for Friday, July 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/18/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499595/2025/07/18/everton-right-back-transfers-col
 **Wrexham tour diary, part 3: CEO Williamson on merchandise sales and sunsets**\
 `Wrexham's tour Down Under has moved on to New Zealand after nine days in Australia`\
 https://nytimes.com/athletic/6499245/2025/07/18/wrexham-tour-diary-3-australia-new-zealand/
-
-**Dunk's contribution to Brighton's rise is close to immeasurable - but it is time to upgrade him**\
-`The defender is one of the best players in the club's history, but his performance levels are no longer what they once were`\
-https://nytimes.com/athletic/6485244/2025/07/18/brighton-time-to-upgrade-lewis-dunk/
 
