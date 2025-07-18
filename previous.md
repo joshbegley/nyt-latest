@@ -1,3 +1,7 @@
+**The Briefing: Spain 2 Switzerland 0 - Favourites into semis, Bonmati's magic, more missed penalties**\
+`Laia Cervello Herrero and Megan Feringa analyse the main talking points as Spain set up a semi-final with France or Germany`\
+https://nytimes.com/athletic/6498367/2025/07/18/spain-switzerland-euros-analysis/
+
 **To Staff Trump’s Immigration Crackdown, ICE Entices Its Retirees**\
 `The administration is offering financial incentives to lure back recently departed immigration officers as it works to fill 10,000 job openings.`\
 https://nytimes.com/2025/07/18/us/ice-recruit-retiree.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502868/2025/07/18/pelicans-derik-queen-sidelined-t
 **Leeds complete Longstaff transfer from Newcastle**\
 `The newly-promoted side will pay an upfront fee of £12million for the 27-year-old alongside a further £3m in achievable add-ons.`\
 https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
-
-**Villa optimistic Kamara will sign new contract**\
-`The France international's existing terms run out in June 2027.`\
-https://nytimes.com/athletic/6434851/2025/07/18/boubacar-kamara-aston-villa-contract/
 
