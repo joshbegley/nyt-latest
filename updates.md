@@ -1,3 +1,7 @@
+**The Bounce: 3 key WNBA questions now that All-Star break is here. Plus, a new 3-point idea for the NBA**\
+`What is going on around the WNBA now that All-Star has arrived? Sabreena Merchant joins The Bounce to discuss`\
+https://nytimes.com/athletic/6501972/2025/07/18/wnba-all-star-break-nba-damian-lillard-trail-blazers-the-bounce/
+
 **USMNT defender Campbell leaves Montreal for West Brom**\
 `The 24-year-old centre-back moves to England from Major League Soccer for an undisclosed fee.`\
 https://nytimes.com/athletic/6502068/2025/07/18/george-campbell-west-brom-transfer/

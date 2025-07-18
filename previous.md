@@ -1,3 +1,7 @@
+**The Bounce: 3 key WNBA questions now that All-Star break is here. Plus, a new 3-point idea for the NBA**\
+`What is going on around the WNBA now that All-Star has arrived? Sabreena Merchant joins The Bounce to discuss`\
+https://nytimes.com/athletic/6501972/2025/07/18/wnba-all-star-break-nba-damian-lillard-trail-blazers-the-bounce/
+
 **USMNT defender Campbell leaves Montreal for West Brom**\
 `The 24-year-old centre-back moves to England from Major League Soccer for an undisclosed fee.`\
 https://nytimes.com/athletic/6502068/2025/07/18/george-campbell-west-brom-transfer/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6499280/2025/07/18/nba-hobbies-derrick-rose-chess/
 **Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 25 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
 https://nytimes.com/2025/07/18/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
-
-**Eighth-year seniors, FCS detours and SEC ghosts: This is your 2025 All-Geezer Team**\
-`The COVID-19 bonus year is almost gone — but not before one last salute to college football's sixth-, seventh- and eighth-year seniors.`\
-https://nytimes.com/athletic/6480931/2025/07/18/all-geezer-team-college-football/
-
-**Mortgage Lenders Can Use a Second Credit Score. Is That Good for Borrowers?**\
-`A top housing finance regulator announced that Fannie Mae and Freddie Mac would allow lenders to use the traditional FICO score or one from a rival, VantageScore.`\
-https://nytimes.com/2025/07/18/your-money/mortgage-credit-score-fico-vantagescore.html
 
