@@ -1,3 +1,11 @@
+**Dr. David Altchek, esteemed Mets medical director, dies at 68**\
+`Dr. David Altchek was one of baseball’s pre-eminent elbow surgeons and the Mets’ medical director for the past 20 years.`\
+https://nytimes.com/athletic/6501196/2025/07/17/dr-david-altchek-mets-dies-68/
+
+**Court Rules Trump’s Firing of F.T.C. Commissioner Was Illegal**\
+`A federal judge said Rebecca Kelly Slaughter, whom President Trump fired from the Federal Trade Commission in March, was still a “rightful member” of the agency.`\
+https://nytimes.com/2025/07/17/technology/judge-trump-ftc-commissioner.html
+
 **Marine General to Lead Naval Academy, a First**\
 `Lt. Gen. Michael J. Borgschulte, an aviator who deployed to Iraq and Afghanistan, will relieve Vice Adm. Yvette M. Davids, the academy’s first female superintendent.`\
 https://nytimes.com/2025/07/17/us/politics/naval-academy-borgschulte-marines.html
@@ -17,12 +25,4 @@ https://nytimes.com/2025/07/17/us/pennsylvania-college-rape-guilty.html
 **CBS Canceling ‘Late Show With Stephen Colbert’ After Next Season**\
 `The show will end in May, the network said, calling it “a purely financial decision.”`\
 https://nytimes.com/2025/07/17/business/stephen-colbert-late-show-ending.html
-
-**WNBA, players' union have 'spirited conversations' in next step toward CBA**\
-`A record number of players attended Thursday’s meeting between the WNBA and WNBPA, with further negotiations coming soon.`\
-https://nytimes.com/athletic/6501098/2025/07/17/wnba-union-cba-negotiations/
-
-**Top Fed Official Backs July Rate Cut as Trump Ramps Up Pressure**\
-`Christopher Waller, a potential contender to be the next chair of the central bank, said the Federal Reserve should not wait for the labor market to weaken to reduce interest rates.`\
-https://nytimes.com/2025/07/17/business/fed-rate-cut-waller-powell-trump.html
 
