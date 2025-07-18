@@ -1,3 +1,12 @@
+**Trump Hosts I.R.S. Commissioner in Oval Office**\
+`The ceremonial swearing-in is the latest sign of the unusual relationship the president is cultivating with the tax agency.`\
+https://nytimes.com/2025/07/18/us/politics/trump-irs-commissioner.html
+
+**Former goalie Jaroslav Halak retires after 17 NHL seasons**\
+`Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
+`\
+https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goalie/
+
 **Terrelle Pryor's lawsuit against Ohio State, NCAA and Big Ten dismissed**\
 `Pryor sued his alma mater in October after Heisman Trophy winner Reggie Bush filed a similar suit against USC and the NCAA.`\
 https://nytimes.com/athletic/6502677/2025/07/18/terrelle-pryor-nil-lawsuit-dismissed/

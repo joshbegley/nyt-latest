@@ -1,3 +1,19 @@
+**How to Plan the Perfect Wellness Getaway**\
+`Taking some time away to reset, recharge and renew needn’t be complicated. With a little forethought and a small amount of planning, a truly mindful escape can feel like just that. `\
+https://nytimes.com/paidpost/capital-one/how-to-plan-the-perfect-wellness-getaway.html
+
+**Team uniforms help make all-star games feel more special than one-off designs: Betancourt**\
+`MLB reverted to having players wear their individual team's uniforms for the all-star game this year, which was a welcomed change`\
+https://nytimes.com/athletic/6502582/2025/07/18/mlb-nba-all-star-uniforms/
+
+**Trump Says He Doesn’t ‘Draw Pictures.’ But Many of His Sketches Sold at Auction.**\
+`The president disputes reporting from The Wall Street Journal that he drew a picture for Jeffrey Epstein, but as a real estate mogul, he often sketched for charity.`\
+https://nytimes.com/2025/07/18/us/politics/trump-drawings-epstein.html
+
+**White House to Release $1.3 Billion in Frozen Funds for After-School Programs**\
+`The money will allow federally funded after-school programs to open this school year, preserving a lifeline for working parents. But other federal dollars remain on hold.`\
+https://nytimes.com/2025/07/18/us/trump-after-school-funding.html
+
 **Trump Hosts I.R.S. Commissioner in Oval Office**\
 `The ceremonial swearing-in is the latest sign of the unusual relationship the president is cultivating with the tax agency.`\
 https://nytimes.com/2025/07/18/us/politics/trump-irs-commissioner.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6502363/2025/07/18/video-cooper-flagg-mavericks-sum
 **Robert Alvarez, 76, Dies; Called Attention to Nuclear-Waste Safety**\
 `A self-taught expert, he spent decades working in both nonprofits and the government to expose problems in the production of atomic weapons.`\
 https://nytimes.com/2025/07/18/us/robert-alvarez-dead.html
-
-**Lawmakers Question Whether CBS Canceled Colbert’s Show for Political Reasons**\
-`Paramount, the network’s parent, recently agreed to pay President Trump $16 million to settle his lawsuit over the editing of an interview on the CBS News program “60 Minutes.”`\
-https://nytimes.com/2025/07/18/us/politics/stephen-colbert-canceled-trump-lawmakers.html
-
-**Son's future, injuries and using a No 10: What we learned from Frank's press conference**\
-`The new head coach spoke to the media for the first time since joining Tottenham this summer`\
-https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romero/
-
-**Watford confirm signing of Bayern teenager Irankunda**\
-`The Australia international has been on loan in Switzerland since January and appeared 15 times for Bayern's amateur side.`\
-https://nytimes.com/athletic/6502640/2025/07/18/watford-nestory-irankunda-bayern-munich-transfer/
-
-**After the Floods, a Pain So Vast It Makes Texas Feel Small**\
-`The Hill Country has a hold on the hearts of many Texans, meaning the suffering caused by the disaster is reaching as far as the region’s appeal.`\
-https://nytimes.com/2025/07/18/us/texas-hill-country-floods-impact.html
 

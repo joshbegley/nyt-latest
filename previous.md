@@ -1,3 +1,12 @@
+**Trump Hosts I.R.S. Commissioner in Oval Office**\
+`The ceremonial swearing-in is the latest sign of the unusual relationship the president is cultivating with the tax agency.`\
+https://nytimes.com/2025/07/18/us/politics/trump-irs-commissioner.html
+
+**Former goalie Jaroslav Halak retires after 17 NHL seasons**\
+`Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
+`\
+https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goalie/
+
 **Terrelle Pryor's lawsuit against Ohio State, NCAA and Big Ten dismissed**\
 `Pryor sued his alma mater in October after Heisman Trophy winner Reggie Bush filed a similar suit against USC and the NCAA.`\
 https://nytimes.com/athletic/6502677/2025/07/18/terrelle-pryor-nil-lawsuit-dismissed/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6502640/2025/07/18/watford-nestory-irankunda-bayern
 **After the Floods, a Pain So Vast It Makes Texas Feel Small**\
 `The Hill Country has a hold on the hearts of many Texans, meaning the suffering caused by the disaster is reaching as far as the region’s appeal.`\
 https://nytimes.com/2025/07/18/us/texas-hill-country-floods-impact.html
-
-**State Dept. Official Says Criticism of Israel Can Lead to Visa Revocations**\
-`The head of the Bureau of Consular Affairs said his office regularly weighed criticism of Israel when determining whether to deny or revoke student visas.`\
-https://nytimes.com/2025/07/18/us/politics/us-visa-revocations-israel.html
-
-**Nine Inch Nails Revisits the ’80s, and 9 More New Songs**\
-`Hear tracks by Robert Plant, Amanda Shires, Blood Orange and more.`\
-https://nytimes.com/2025/07/18/arts/music/playlist-nine-inch-nails-robert-plant.html
 
