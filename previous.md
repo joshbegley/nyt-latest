@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, July 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/18/todays-new-york-times
+
 **The Impact of Defunding NPR and PBS**\
 `Congress just voted to claw back $500 million in funding for public broadcasting. Benjamin Mullin, a media reporter for The New York Times, explains what will happen now to NPR, PBS and the many local stations that rely on the funding.`\
 https://nytimes.com/video/us/politics/100000010286088/the-impact-of-defunding-npr-and-pbs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499245/2025/07/18/wrexham-tour-diary-3-australia-n
 **Dunk's contribution to Brighton's rise is close to immeasurable - but it is time to upgrade him**\
 `The defender is one of the best players in the club's history, but his performance levels are no longer what they once were`\
 https://nytimes.com/athletic/6485244/2025/07/18/brighton-time-to-upgrade-lewis-dunk/
-
-**Yacht trips, equity, Apple TV income and sunbeds: How clubs convince players to sign for them**\
-`It’s not just about a few quid and a nice car anymore – there can be plenty of other options offered to a transfer target`\
-https://nytimes.com/athletic/6499780/2025/07/18/transfers-players-yachts-equity-how-clubs-convince/
 

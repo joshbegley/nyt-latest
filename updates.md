@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, July 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/18/todays-new-york-times
+
 **The Impact of Defunding NPR and PBS**\
 `Congress just voted to claw back $500 million in funding for public broadcasting. Benjamin Mullin, a media reporter for The New York Times, explains what will happen now to NPR, PBS and the many local stations that rely on the funding.`\
 https://nytimes.com/video/us/politics/100000010286088/the-impact-of-defunding-npr-and-pbs.html
