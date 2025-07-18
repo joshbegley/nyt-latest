@@ -1,3 +1,7 @@
+**Trump’s Immigration Crackdown Hits Senior Care Work Force**\
+`Nursing homes and home care agencies have lost workers as the Trump administration has moved to end deportation protections for migrants with temporary legal status.`\
+https://nytimes.com/2025/07/18/us/politics/immigration-senior-caregivers.html
+
 **Health Cuts Would Result in Fewer Drugs for Americans, Budget Office Reports**\
 `The Trump administration’s proposed cuts to medical research and health agencies will curtail the development of promising medications, the Congressional Budget Office said on Friday.`\
 https://nytimes.com/2025/07/18/health/trump-nih-medical-research.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502174/2025/07/18/nottingham-forest-danilo-botafog
 **Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
 `What’s on your mind as Notre Dame prepares to get to work this preseason?`\
 https://nytimes.com/athletic/6502193/2025/07/18/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag-2/
-
-**NFLPA’s interim executive director not expected to get full-time job: Source**\
-`According to an NFLPA source, the union’s legal team is meeting with the executive committee and board of player reps in the coming days.`\
-https://nytimes.com/athletic/6502014/2025/07/18/nflpa-executive-director-howell-tretter/
 
