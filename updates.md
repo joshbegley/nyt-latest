@@ -1,3 +1,19 @@
+**The Impact of Defunding NPR and PBS**\
+`Congress just voted to claw back $500 million in funding for public broadcasting. Benjamin Mullin, a media reporter for The New York Times, explains what will happen now to NPR, PBS and the many local stations that rely on the funding.`\
+https://nytimes.com/video/us/politics/100000010286088/the-impact-of-defunding-npr-and-pbs.html
+
+**The making of Tadej Pogacar, the Tour de France's laidback superstar**\
+`From riding a unicycle on a farm to winning almost all of professional cycling's major races, this is how a generational talent was nurtured`\
+https://nytimes.com/athletic/6499851/2025/07/18/the-making-of-tadej-pogacar-tour-de-france/
+
+**Liverpool return to the Far East: Who is going? How interested are the locals? Commercial value?**\
+`Arne Slot's side are playing a match each in Hong Kong and Japan and will be hoping the tour benefits the club in a whole host of areas`\
+https://nytimes.com/athletic/6497196/2025/07/18/liverpool-pre-season-tour-far-east-explained/
+
+**Friday Briefing: Trump’s Order on Epstein Records**\
+`Plus, panic-buying Korean beauty products`\
+https://nytimes.com/2025/07/18/briefing/trump-epstein-syria-israel-britain-voting-age.html
+
 **Is selling Jacob Ramsey the problem it once was at Aston Villa?**\
 `Ramsey knows this season's importance - but will that be at Villa or elsewhere? Nottingham Forest are interested in the homegrown midfielder`\
 https://nytimes.com/athletic/6499304/2025/07/18/jacob-ramsey-aston-villa-transfer-sale/
