@@ -1,3 +1,7 @@
+**3 Deputies Are Killed in Explosion at Los Angeles Training Center**\
+`It was not immediately clear what caused the blast at the Los Angeles County Sheriff’s Department’s Biscailuz Training Academy center.`\
+https://nytimes.com/2025/07/18/us/los-angeles-sheriff-center-explosion-deaths.html
+
 **Mamdani Wins Backing of Major Health Care Union That Had Endorsed Cuomo**\
 `Local 1199, which represents 200,000 health care workers in New York City, rescinded its support of Andrew Cuomo and is now endorsing Zohran Mamdani for mayor.`\
 https://nytimes.com/2025/07/18/nyregion/mamdani-union-1199-endorsement-nyc-mayor.html
