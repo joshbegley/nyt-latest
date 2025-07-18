@@ -1,3 +1,12 @@
+**No way Yegor Chinakhov can stay in Columbus after trade request, agent says: 'It's all about the coach'**\
+`Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
+`\
+https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-trade-request-agent/
+
+**Justice Dept. Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
+`The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files on the disgraced financier.`\
+https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
+
 **Switzerland's fans are on the march. Can they ensure the game really is 'here to stay'?**\
 `The host nation may be out of the Euros but their fans have voted with their feet and shown there is a big appetite for the sport to grow`\
 https://nytimes.com/athletic/6503087/2025/07/18/switzerland-euros-here-to-stay-legacy/
