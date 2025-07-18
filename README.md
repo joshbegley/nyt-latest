@@ -1,3 +1,7 @@
+**Crystal Palace prospect Hindolo Mustapha suffers knee injury**\
+`Promising No 10 was due to travel with Oliver Glasner's team to Austria for a pre-season training camp but will now start rehabilitation`\
+https://nytimes.com/athletic/6501641/2025/07/18/crystal-palace-hindolo-mustapha-knee-injury/
+
 **How to watch the 2025 Indy Toronto, as Álex Palou chases history**\
 `IndyCar hits the streets of Toronto, where Álex Palou will be looking for his eighth win of the season and first at Exhibition Place.`\
 https://nytimes.com/athletic/6500890/2025/07/18/indy-toronto-2025-alex-palou-how-to-watch-tv/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/arts/music/billy-budd-ted-huffman-oliver-leith-ai
 **Conservatives Get the PBS and NPR Cuts They’ve Wanted for Decades**\
 `The cuts speak to President Trump’s grip on his party but also to the sweeping changes in media.`\
 https://nytimes.com/2025/07/18/business/media/npr-pbs-funding-cuts-republicans.html
-
-**Tariffs on Russia Could Hurt Wary U.S. Farmers**\
-`President Trump’s plan to impose a 100 percent tariff on Russian goods could raise the cost of urea, a key fertilizer in corn and other row crops.`\
-https://nytimes.com/2025/07/18/business/tariffs-on-russia-could-hurt-wary-us-farmers.html
 
