@@ -1,3 +1,19 @@
+**Prisoner Swap Frees Americans in Venezuela for Migrants Held in El Salvador**\
+`A deal freed Americans detained in Venezuela for Venezuelan migrants who were imprisoned in El Salvador after being expelled from the United States.`\
+https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html
+
+**F.D.A. to Ask Biotech Company to Stop Shipping Treatment Linked to Patient Deaths**\
+`Three patients with a deadly muscle-wasting disease died from liver failure after taking the therapy, Ele­vidys, or a similar treatment.`\
+https://nytimes.com/2025/07/18/health/fda-sarepta-elevidys-duchenne.html
+
+**Rory still has a chance at this Open. All of Northern Ireland is behind him**\
+`“I feel like my game's definitely good enough to make a run.”`\
+https://nytimes.com/athletic/6502902/2025/07/18/rory-mcilroy-open-championship-northern-ireland/
+
+**Pelicans rookie Derik Queen sidelined three months after wrist surgery**\
+`Queen, the 13th pick in the 2025 draft, sustained the injury in a Las Vegas Summer League contest Tuesday.`\
+https://nytimes.com/athletic/6502868/2025/07/18/pelicans-derik-queen-sidelined-three-months-wrist-surgery/
+
 **Leeds complete Longstaff transfer from Newcastle**\
 `The newly-promoted side will pay an upfront fee of £12million for the 27-year-old alongside a further £3m in achievable add-ons.`\
 https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
 **Flashback: Your Weekly History Quiz, July 19, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/07/18/upshot/flashback.html
-
-**Scottie Scheffler raised questions about happiness and fulfillment. This professor has answers**\
-`Harvard's Arthur Brooks has spent years thinking, writing and talking about the keys to a life of happiness and fulfillment. `\
-https://nytimes.com/athletic/6502755/2025/07/18/scottie-scheffler-arthur-brooks-happiness-fulfillment-open/
-
-**How to Plan the Perfect Wellness Getaway**\
-`Taking some time away to reset, recharge and renew needn’t be complicated. With a little forethought and a small amount of planning, a truly mindful escape can feel like just that. `\
-https://nytimes.com/paidpost/capital-one/how-to-plan-the-perfect-wellness-getaway.html
-
-**Team uniforms help make all-star games feel more special than one-off designs: Betancourt**\
-`MLB reverted to having players wear their individual team's uniforms for the all-star game this year, which was a welcomed change`\
-https://nytimes.com/athletic/6502582/2025/07/18/mlb-nba-all-star-uniforms/
-
-**Trump Says He Doesn’t ‘Draw Pictures.’ But Many of His Sketches Sold at Auction.**\
-`The president disputes reporting from The Wall Street Journal that he drew a picture for Jeffrey Epstein, but as a real estate mogul, he often sketched for charity.`\
-https://nytimes.com/2025/07/18/us/politics/trump-drawings-epstein.html
 

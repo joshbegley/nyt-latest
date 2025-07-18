@@ -3,14 +3,14 @@
 https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html
 
 **F.D.A. to Ask Biotech Company to Stop Shipping Treatment Linked to Patient Deaths**\
-`Three patients with a deadly muscle-wasting disease died from liver failure after taking the therapy, Ele­vidys, or a similar treatment.`\
+`Three patients with a muscle-wasting disease died from liver failure after taking the therapy, Ele­vidys, or a similar treatment.`\
 https://nytimes.com/2025/07/18/health/fda-sarepta-elevidys-duchenne.html
 
 **Rory still has a chance at this Open. All of Northern Ireland is behind him**\
-`“I feel like my game's definitely good enough to make a run.”`\
+`"I feel like my game's definitely good enough to make a run."`\
 https://nytimes.com/athletic/6502902/2025/07/18/rory-mcilroy-open-championship-northern-ireland/
 
-**Pelicans rookie Derik Queen sidelined three months after wrist surgery**\
+**Pelicans rookie Derik Queen sidelined at least 3 months after wrist surgery**\
 `Queen, the 13th pick in the 2025 draft, sustained the injury in a Las Vegas Summer League contest Tuesday.`\
 https://nytimes.com/athletic/6502868/2025/07/18/pelicans-derik-queen-sidelined-three-months-wrist-surgery/
 
@@ -30,7 +30,7 @@ https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
 `The labor and social security minister drew public outrage when she said “there are no beggars” in Cuba, where many people struggle to afford food.`\
 https://nytimes.com/2025/07/18/world/cuba-minister-resigns-beggars-poverty.html
 
-**Stephen Colbert Was Never Going to Save Us**\
+**Stephen Colbert Could Never Save Us From Trump**\
 `Mocking Donald Trump will not destroy him.`\
 https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
 

@@ -1,3 +1,19 @@
+**Prisoner Swap Frees Americans in Venezuela for Migrants Held in El Salvador**\
+`A deal freed Americans detained in Venezuela for Venezuelan migrants who were imprisoned in El Salvador after being expelled from the United States.`\
+https://nytimes.com/2025/07/18/world/americas/venezuela-us-prisoner-swap-migrants-el-salvador.html
+
+**F.D.A. to Ask Biotech Company to Stop Shipping Treatment Linked to Patient Deaths**\
+`Three patients with a deadly muscle-wasting disease died from liver failure after taking the therapy, Ele­vidys, or a similar treatment.`\
+https://nytimes.com/2025/07/18/health/fda-sarepta-elevidys-duchenne.html
+
+**Rory still has a chance at this Open. All of Northern Ireland is behind him**\
+`“I feel like my game's definitely good enough to make a run.”`\
+https://nytimes.com/athletic/6502902/2025/07/18/rory-mcilroy-open-championship-northern-ireland/
+
+**Pelicans rookie Derik Queen sidelined three months after wrist surgery**\
+`Queen, the 13th pick in the 2025 draft, sustained the injury in a Las Vegas Summer League contest Tuesday.`\
+https://nytimes.com/athletic/6502868/2025/07/18/pelicans-derik-queen-sidelined-three-months-wrist-surgery/
+
 **Leeds complete Longstaff transfer from Newcastle**\
 `The newly-promoted side will pay an upfront fee of £12million for the 27-year-old alongside a further £3m in achievable add-ons.`\
 https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
