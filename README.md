@@ -1,3 +1,7 @@
+**The fantasy football tight ends to draft ... and those to avoid**\
+`Jake Ciely shares his fantasy football strategy to help you maximize the draft value at tight end in 2025. `\
+https://nytimes.com/athletic/6500330/2025/07/18/fantasy-football-draft-te-rankings-values-adp/
+
 **Felix Baumgartner, Professional Daredevil, Dies Paragliding at 56**\
 `Nicknamed “Fearless Felix,” Mr. Baumgartner jumped from the edge of space in 2012.`\
 https://nytimes.com/2025/07/18/world/europe/felix-baumgartner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/your-money/mortgage-credit-score-fico-vantagescor
 **Is the U.S. Riskier Than Emerging Markets?**\
 `While the U.S. stock market has rebounded, the combination of the Trump tariffs, a volatile dollar and an erratic bond market has begun to shake global investment thinking.`\
 https://nytimes.com/2025/07/18/business/stocks-emerging-markets-risk.html
-
-**Five Free Movies to Stream Now**\
-`Some counterprogramming to the summer’s blockbusters: “Titane,” “Coherence” and “Attack the Block.”`\
-https://nytimes.com/2025/07/18/movies/five-free-movies-to-stream-now.html
 
