@@ -1,3 +1,11 @@
+**Justin Bieber Awakens His Old Soul**\
+`“Swag,” a new album of dreamy beats and unexpected collaborations, eschews formulaic pop to lean into the singer’s R&B instincts.`\
+https://nytimes.com/2025/07/18/arts/music/justin-bieber-swag-review.html
+
+**Cuban Minister Ousted After Accusing Beggars of Faking Poverty**\
+`The labor and social security minister drew public outrage when she said “there are no beggars” in Cuba, where many people struggle to afford food.`\
+https://nytimes.com/2025/07/18/world/cuba-minister-resigns-beggars-poverty.html
+
 **Stephen Colbert Was Never Going to Save Us**\
 `Mocking Donald Trump will not destroy him.`\
 https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
@@ -29,13 +37,4 @@ https://nytimes.com/2025/07/18/us/trump-after-school-funding.html
 **Trump Hosts I.R.S. Commissioner in Oval Office**\
 `The ceremonial swearing-in is the latest sign of the unusual relationship the president is cultivating with the tax agency.`\
 https://nytimes.com/2025/07/18/us/politics/trump-irs-commissioner.html
-
-**Former goalie Jaroslav Halak retires after 17 NHL seasons**\
-`Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
-`\
-https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goalie/
-
-**Terrelle Pryor's lawsuit against Ohio State, NCAA and Big Ten dismissed**\
-`Pryor sued his alma mater in October after Heisman Trophy winner Reggie Bush filed a similar suit against USC and the NCAA.`\
-https://nytimes.com/athletic/6502677/2025/07/18/terrelle-pryor-nil-lawsuit-dismissed/
 

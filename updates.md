@@ -1,3 +1,8 @@
+**Former goalie Jaroslav Halak retires after 17 NHL seasons**\
+`Halak's playoff heroics helped define his career, specifically in 2010, when he led Montreal to the Eastern Conference final.
+`\
+https://nytimes.com/athletic/6502777/2025/07/18/jaroslav-halak-retires-nhl-goalie/
+
 **Stephen Colbert Was Never Going to Save Us**\
 `Mocking Donald Trump will not destroy him.`\
 https://nytimes.com/2025/07/18/opinion/colbert-late-show-cbs-trump.html
