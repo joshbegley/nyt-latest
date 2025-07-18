@@ -1,3 +1,7 @@
+**Jewel Thais-Williams, Whose Nightclub Celebrated ‘Queer Black Joy,’ Dies at 86**\
+`Catch One, which she opened in Los Angeles in 1973 in the face of local animosity, became a glittering sanctuary for a largely shunned community.`\
+https://nytimes.com/2025/07/18/us/jewel-thais-williams-dead.html
+
 **F1’s flourishing new coaching trees. Plus: Yuki Tsunoda’s tough luck**\
 `After Christian Horner's firing from Red Bull, the new group of F1 team principals can be divided into three distinct camps `\
 https://nytimes.com/athletic/6502314/2025/07/18/f1-team-principals-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502342/2025/07/18/christian-wilkins-raiders-pup-li
 **How to watch this weekend's Brewers at Dodgers series: NL playoff hopefuls meet in LA**\
 `The Brewers emerge from this week's All-Star break as the National League's hottest outfit. The Dodgers need to reverse their middling July.`\
 https://nytimes.com/athletic/6499190/2025/07/18/brewers-dodgers-ohtani-next-start-mlb-how-to-watch/
-
-**Submit your questions for Mark Lazerus' Blackhawks and NHL mailbag**\
-`Any questions about the Blackhawks or the NHL at large? Send them in, and Mark Lazerus may answer them in an upcoming mailbag.`\
-https://nytimes.com/athletic/6502359/2025/07/18/blackhawks-nhl-mailbag-mark-lazerus/
 

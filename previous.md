@@ -1,3 +1,7 @@
+**F1’s flourishing new coaching trees. Plus: Yuki Tsunoda’s tough luck**\
+`After Christian Horner's firing from Red Bull, the new group of F1 team principals can be divided into three distinct camps `\
+https://nytimes.com/athletic/6502314/2025/07/18/f1-team-principals-2025/
+
 **Mamdani Wins Backing of Major Health Care Union That Had Endorsed Cuomo**\
 `Local 1199, which represents 200,000 health care workers in New York City, rescinded its support of Andrew Cuomo and is now endorsing Zohran Mamdani for mayor.`\
 https://nytimes.com/2025/07/18/nyregion/mamdani-union-1199-endorsement-nyc-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499190/2025/07/18/brewers-dodgers-ohtani-next-star
 **Submit your questions for Mark Lazerus' Blackhawks and NHL mailbag**\
 `Any questions about the Blackhawks or the NHL at large? Send them in, and Mark Lazerus may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/6502359/2025/07/18/blackhawks-nhl-mailbag-mark-lazerus/
-
-**Should You Silence Your Phone Around Your Spouse?**\
-`A ruling on how to handle a notification-ding imbalance in a marriage.`\
-https://nytimes.com/interactive/2025/07/18/magazine/phone-silent-hodgman-quiz.html
 

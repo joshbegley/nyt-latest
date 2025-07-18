@@ -1,3 +1,7 @@
+**F1’s flourishing new coaching trees. Plus: Yuki Tsunoda’s tough luck**\
+`After Christian Horner's firing from Red Bull, the new group of F1 team principals can be divided into three distinct camps `\
+https://nytimes.com/athletic/6502314/2025/07/18/f1-team-principals-2025/
+
 **3 Deputies Are Killed in Explosion at Los Angeles Training Center**\
 `It was not immediately clear what caused the blast at the Los Angeles County Sheriff’s Department’s Biscailuz Training Academy center.`\
 https://nytimes.com/2025/07/18/us/los-angeles-sheriff-center-explosion-deaths.html
