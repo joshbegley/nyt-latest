@@ -1,3 +1,7 @@
+**Finding Beauty in Maximum Discount**\
+`Big-box retail constructs its infinite aesthetic array out of hundreds of thousands of brush strokes.`\
+https://nytimes.com/interactive/2025/07/18/opinion/walmart-shopping-beauty.html
+
 **The Briefing: Spain 2 Switzerland 0 - Favourites into semis, Bonmati's magic, more missed penalties**\
 `Laia Cervello Herrero and Megan Feringa analyse the main talking points as Spain set up a semi-final with France or Germany`\
 https://nytimes.com/athletic/6498367/2025/07/18/spain-switzerland-euros-analysis/

@@ -1,3 +1,7 @@
+**Finding Beauty in Maximum Discount**\
+`Big-box retail constructs its infinite aesthetic array out of hundreds of thousands of brush strokes.`\
+https://nytimes.com/interactive/2025/07/18/opinion/walmart-shopping-beauty.html
+
 **The Briefing: Spain 2 Switzerland 0 - Favourites into semis, Bonmati's magic, more missed penalties**\
 `Laia Cervello Herrero and Megan Feringa analyse the main talking points as Spain set up a semi-final with France or Germany`\
 https://nytimes.com/athletic/6498367/2025/07/18/spain-switzerland-euros-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502902/2025/07/18/rory-mcilroy-open-championship-n
 **Pelicans rookie Derik Queen sidelined at least 3 months after wrist surgery**\
 `Queen, the 13th pick in the 2025 draft, sustained the injury in a Las Vegas Summer League contest Tuesday.`\
 https://nytimes.com/athletic/6502868/2025/07/18/pelicans-derik-queen-sidelined-three-months-wrist-surgery/
-
-**Leeds complete Longstaff transfer from Newcastle**\
-`The newly-promoted side will pay an upfront fee of £12million for the 27-year-old alongside a further £3m in achievable add-ons.`\
-https://nytimes.com/athletic/6497252/2025/07/18/leeds-sean-longstaff-transfer/
 
