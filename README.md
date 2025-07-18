@@ -1,3 +1,11 @@
+**As the deadline nears, Jed Hoyer is willing to be creative as he looks to improve the Cubs**\
+`"To me, it's just how do we focus on the Cubs winning as many games as possible?" Hoyer said.`\
+https://nytimes.com/athletic/6503080/2025/07/18/cubs-mlb-trade-deadline-jed-hoyer/
+
+**E.P.A. Says It Will Eliminate Its Scientific Research Arm**\
+`The decision comes after a Supreme Court ruling allowing the Trump administration to slash the federal work force and dismantle agencies.`\
+https://nytimes.com/2025/07/18/climate/epa-firings-scientific-research.html
+
 **Mamdani Meets Jeffries in Brooklyn as He Seeks to Expand His Coalition**\
 `No endorsement emerged from the meeting between Zohran Mamdani and Representative Hakeem Jeffries, but both said the gathering had been productive.`\
 https://nytimes.com/2025/07/18/nyregion/zohran-mamdani-hakeem-jeffries.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6502510/2025/07/18/thomas-frank-tottenham-son-romer
 **What Exactly Is a Jet2 Holiday and Why Are People Talking About It?**\
 `The voice-over and soundtrack from an ad released in January 2024 have gone viral on social media a year and a half later.`\
 https://nytimes.com/2025/07/18/travel/new-york-floods-tiktok-meme.html
-
-**Minnesota Lawmaker Convicted of Burglary, Leaving Democrats’ Majority in Question**\
-`Nicole Mitchell, a Democrat, was charged with felonies and accused of breaking into her stepmother’s home. Her party holds a slim majority in the Minnesota Senate.`\
-https://nytimes.com/2025/07/18/us/minnesota-lawmaker-burglary-conviction.html
-
-**Justice Dept. Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
-`The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files on the disgraced financier.`\
-https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
 

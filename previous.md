@@ -1,3 +1,7 @@
+**Mamdani Meets Jeffries in Brooklyn as He Seeks to Expand His Coalition**\
+`No endorsement emerged from the meeting between Zohran Mamdani and Representative Hakeem Jeffries, but both said the gathering had been productive.`\
+https://nytimes.com/2025/07/18/nyregion/zohran-mamdani-hakeem-jeffries.html
+
 **No way Yegor Chinakhov can stay in Columbus after trade request, agent says: 'It's all about the coach'**\
 `Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/18/us/minnesota-lawmaker-burglary-conviction.html
 **Justice Dept. Asks Manhattan Court to Unseal Epstein Grand Jury Testimony**\
 `The president has been under intense political pressure from his base after Attorney General Pam Bondi withheld portions of investigative files on the disgraced financier.`\
 https://nytimes.com/2025/07/18/nyregion/trump-epstein-files-unsealing-request.html
-
-**Onto the weekend at the Open Championship, Dustin Johnson ponders his future**\
-`Since announcing his defection to LIV in 2022, Johnson’s slippage in the sport has been somewhat of an unspoken tragedy.`\
-https://nytimes.com/athletic/6502958/2025/07/18/dustin-johnson-open-championship-future/
 
