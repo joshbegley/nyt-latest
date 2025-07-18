@@ -1,3 +1,23 @@
+**How a photo of Hank Aaron's widow went from personal snapshot to viral tearjerker**\
+`The Braves consultant who took the pic of Billye Aaron explains how he was in the right spot for a "pinch me" moment.`\
+https://nytimes.com/athletic/6501011/2025/07/18/hank-aaron-billye-all-star-photo/
+
+**Can WNBA get even more eyes on Caitlin Clark? Yep, host a game at Lucas Oil or Wrigley Field**\
+`With explosive popularity, W franchises should push for these marquee events, columnist Richard Deitsch says.`\
+https://nytimes.com/athletic/6488838/2025/07/18/caitlin-clark-wnba-lucas-oil-stadium-wrigley/
+
+**Bucks GM Jon Horst on assembling guard rotation, bringing back Bobby Portis**\
+`In Part 2 of an exclusive interview, the Bucks GM explains why he brought so many of last year's depth players back to Milwaukee. `\
+https://nytimes.com/athletic/6497810/2025/07/18/jon-horst-milwaukee-bucks-interview-exclusive-nba/
+
+**The World Series On Netflix, Apple TV+, YouTube or Amazon Prime Video? That's the future**\
+`The World Series exclusively on streaming? The industry experts The Athletic's Richard Deitsch spoke with think it's inevitable.`\
+https://nytimes.com/athletic/6475198/2025/07/18/mlb-world-series-netflix-apple-youtube-amazon-prime-video/
+
+**Capturing David Wright: His 5 best moments as Mets retire No. 5**\
+`From clutch home runs to improbable defense plays, Wright thrilled Mets fans for 14 seasons. These were the highest of the highs. `\
+https://nytimes.com/athletic/6500365/2025/07/18/mets-david-wright-jersey-retirement/
+
 **Floods and Heavy Rain Kill Dozens in Pakistan**\
 `Relentless rain began on Wednesday, causing flooding in several cities and across vast rural stretches in the province of Punjab.`\
 https://nytimes.com/2025/07/18/world/asia/pakistan-rains-flood-deaths.html
