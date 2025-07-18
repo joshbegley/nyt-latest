@@ -1,3 +1,11 @@
+**Border Patrol Agents Raid a Home Depot in Northern California**\
+`The raid indicates a new strategy of going deeper into California after focusing on Southern California for several weeks.`\
+https://nytimes.com/2025/07/17/us/politics/sacramento-home-depot-raid.html
+
+**Staff Notes**\
+`Kelly Morenus opens our solving weekend with some long, lively entries.`\
+https://nytimes.com/2025/07/17/crosswords/daily-puzzle-2025-07-18.html
+
 **My mission in returning home, joining The Athletic to cover the Chicago Bulls**\
 `Chicago: I’ve walked these same streets. I hope you sense that when you read me.`\
 https://nytimes.com/athletic/6501219/2025/07/17/joel-lorenzi-joining-athletic-chicago-bulls/

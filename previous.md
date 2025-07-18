@@ -1,3 +1,11 @@
+**Border Patrol Agents Raid a Home Depot in Northern California**\
+`The raid indicates a new strategy of going deeper into California after focusing on Southern California for several weeks.`\
+https://nytimes.com/2025/07/17/us/politics/sacramento-home-depot-raid.html
+
+**Staff Notes**\
+`Kelly Morenus opens our solving weekend with some long, lively entries.`\
+https://nytimes.com/2025/07/17/crosswords/daily-puzzle-2025-07-18.html
+
 **My mission in returning home, joining The Athletic to cover the Chicago Bulls**\
 `Chicago: I’ve walked these same streets. I hope you sense that when you read me.`\
 https://nytimes.com/athletic/6501219/2025/07/17/joel-lorenzi-joining-athletic-chicago-bulls/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6501196/2025/07/17/dr-david-altchek-mets-dies-68/
 **Court Rules Trump’s Firing of F.T.C. Commissioner Was Illegal**\
 `A federal judge said Rebecca Kelly Slaughter, whom President Trump fired from the Federal Trade Commission in March, was still a “rightful member” of the agency.`\
 https://nytimes.com/2025/07/17/technology/judge-trump-ftc-commissioner.html
-
-**Marine General to Lead Naval Academy, a First**\
-`Lt. Gen. Michael J. Borgschulte, an aviator who deployed to Iraq and Afghanistan, will relieve Vice Adm. Yvette M. Davids, the academy’s first female superintendent.`\
-https://nytimes.com/2025/07/17/us/politics/naval-academy-borgschulte-marines.html
-
-**Musk Clears Final Hurdles for Tesla and Starlink in India**\
-`In the first tangible inroads Elon Musk has sought for years in India, Starlink passed a final regulatory hurdle and Tesla opened its first India store.`\
-https://nytimes.com/2025/07/17/world/asia/tesla-starlink-india-elon-musk.html
 
