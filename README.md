@@ -1,3 +1,7 @@
+**This Dinosaur Probably Tweeted More Than It Roared**\
+`The anatomy of a Chinese fossil offers a hint that birdsong may be as old as the dinosaurs themselves.`\
+https://nytimes.com/2025/07/18/science/dinosaur-fossil-voice-china.html
+
 **Crypto’s $4 Trillion Moment**\
 `A legislative win in Congress, and the promise of more to come, has helped lift the prospects and the wealth of the cryptocurrency industry.`\
 https://nytimes.com/2025/07/18/business/dealbook/crypto-genius-act-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499896/2025/07/18/bryan-mbeumo-man-utd-transfer/
 **What would be a successful season for Ohio State and Julian Sayin? Buckeyes mailbag**\
 `Answering your Ohio State questions about Sayin and the quarterback battle, comparisons with Drew Allar and what needs to be done in 2025.`\
 https://nytimes.com/athletic/6501627/2025/07/18/ohio-state-predictions-expectations-julian-sayin/
-
-**Felix Baumgartner, man who jumped from space, dies after paragliding accident**\
-`Baumgartner’s career-defining achievement came in 2012 when he broke eight world records with his freefall jump from outer space.`\
-https://nytimes.com/athletic/6501762/2025/07/18/felix-baumgartner-death-paragliding/
 
