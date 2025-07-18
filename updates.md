@@ -1,3 +1,7 @@
+**Tour de France stage 13: Back-to-back stage wins for Pogacar, some vintage Roglic, and what's wrong with Remco?**\
+`Analysis of the latest day's action in the 2025 race - a 10.9km mountain time trial from Loudenvielle to Peyragudes`\
+https://nytimes.com/athletic/6501877/2025/07/18/tour-de-france-stage-13-analysis/
+
 **Nine Inch Nails Revisits the ’80s, and 9 More New Songs**\
 `Hear tracks by Robert Plant, Amanda Shires, Blood Orange and more.`\
 https://nytimes.com/2025/07/18/arts/music/playlist-nine-inch-nails-robert-plant.html
