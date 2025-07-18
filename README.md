@@ -1,3 +1,7 @@
+**Nine Inch Nails Revisits the ’80s, and 9 More New Songs**\
+`Hear tracks by Robert Plant, Amanda Shires, Blood Orange and more.`\
+https://nytimes.com/2025/07/18/arts/music/playlist-nine-inch-nails-robert-plant.html
+
 **MLB extends paid leave for Luis Ortiz amid gambling investigation**\
 `Ortiz’s leave was set to expire Friday before the extension.`\
 https://nytimes.com/athletic/6499804/2025/07/18/luis-ortiz-paid-leave-extended-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502419/2025/07/18/john-calipari-transfer-portal-ru
 **Heavy Monsoon Rains Kill Dozens in Pakistan**\
 `The relentless rain caused flooding across the country’s most populous province. Many of those killed have been children, officials said.`\
 https://nytimes.com/video/world/asia/100000010292800/heavy-monsoon-rains-kill-dozens-in-pakistan.html
-
-**Timeline of Lloyd Howell's NFLPA tenure from election to resignation**\
-`Howell resigned from his post late Thursday amid rising criticisms at the NFLPA and concerns about Howell's potential conflicts of interest.`\
-https://nytimes.com/athletic/6502042/2025/07/18/nfl-nflpa-lloyd-howell-executive-director-resigns/
 
