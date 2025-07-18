@@ -1,3 +1,7 @@
+**Word of the Day: pacify**\
+`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/18/learning/word-of-the-day-pacify.html
+
 **England somehow beat Sweden in a genuine epic that had several chapters**\
 `England are through to the semi-finals of Euro 2025 after a quite ludicrous football match with Sweden. Not much of it made sense`\
 https://nytimes.com/athletic/6501178/2025/07/18/england-sweden-euros-epic-shootout/

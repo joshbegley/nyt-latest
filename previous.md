@@ -1,3 +1,7 @@
+**Word of the Day: pacify**\
+`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/18/learning/word-of-the-day-pacify.html
+
 **England somehow beat Sweden in a genuine epic that had several chapters**\
 `England are through to the semi-finals of Euro 2025 after a quite ludicrous football match with Sweden. Not much of it made sense`\
 https://nytimes.com/athletic/6501178/2025/07/18/england-sweden-euros-epic-shootout/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/18/business/media/house-rescission-vote-
 **Everton and the search for a long-term successor to Seamus Coleman**\
 `As Coleman enters his 17th season at the club, a new right-back was expected – has that changed in this transfer market?`\
 https://nytimes.com/athletic/6499595/2025/07/18/everton-right-back-transfers-coleman-patterson-obrien/
-
-**Wrexham tour diary, part 3: CEO Williamson on merchandise sales and sunsets**\
-`Wrexham's tour Down Under has moved on to New Zealand after nine days in Australia`\
-https://nytimes.com/athletic/6499245/2025/07/18/wrexham-tour-diary-3-australia-new-zealand/
 
