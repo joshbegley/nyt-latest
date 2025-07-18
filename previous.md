@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/18/crosswords/spelling-bee-forum.html
 `In Manhattan, Brooklyn, Albany and Newark, confusion has reigned as prosecutors are fired or walk out, and U.S. attorneys serve in limbo while awaiting confirmation.`\
 https://nytimes.com/2025/07/18/nyregion/new-york-area-us-attorneys-chaos.html
 
-**Burnley and X: Explaining their new partnership and why it may be controversial**\
+**Burnley and X: Explaining their new partnership, how it happened and why it may be controversial**\
 `Analysing the 'unique' deal between the promoted Premier League club and one of the world's biggest social media platforms`\
 https://nytimes.com/athletic/6499568/2025/07/18/burnley-x-partnership-controversy/
 

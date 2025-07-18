@@ -1,3 +1,7 @@
+**Burnley and X: Explaining their new partnership, how it happened and why it may be controversial**\
+`Analysing the 'unique' deal between the promoted Premier League club and one of the world's biggest social media platforms`\
+https://nytimes.com/athletic/6499568/2025/07/18/burnley-x-partnership-controversy/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/18/crosswords/spelling-bee-forum.html
