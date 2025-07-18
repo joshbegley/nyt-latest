@@ -1,3 +1,7 @@
+**Bolsonaro Ordered to Wear Ankle Monitor Before Trial**\
+`Brazil’s Supreme Court ordered Jair Bolsonaro, the former president, to stay home most hours, defying President Trump’s demands that charges against Mr. Bolsonaro be dropped.`\
+https://nytimes.com/2025/07/18/world/americas/brazil-president-bolsonaro-ankle-monitor.html
+
 **Caitlin Clark replaced by teammate Lexie Hull in 3-point contest**\
 `Hull is shooting 46.8 percent on 3s this season, the fourth-highest mark in the WNBA.`\
 https://nytimes.com/athletic/6501935/2025/07/18/caitlin-clark-lexie-hull-3-point-contest-wnba/
