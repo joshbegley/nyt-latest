@@ -1,3 +1,15 @@
+**Newcastle Women sign former Manchester United defender Mannion**\
+`Mannion follows Jordan Nobbs in dropping down from the Women's Super League to the WSL2 to join Newcastle.`\
+https://nytimes.com/athletic/6502502/2025/07/18/aoife-mannion-newcastle-transfer/
+
+**Sels signs new Nottingham Forest contract**\
+`The goalkeeper played every Premier League game for Forest last season as they secured European qualification.`\
+https://nytimes.com/athletic/6502483/2025/07/18/matz-sels-nottingham-forest-contract/
+
+**The Best Books of the Year (So Far)**\
+`2025 is more than halfway gone. On this week’s podcast, Gilbert Cruz and Joumana Khatib discuss some of the books that have stayed with them most this year.`\
+https://nytimes.com/2025/07/18/books/review/the-best-books-of-the-year-so-far.html
+
 **Jewel Thais-Williams, Whose Nightclub Celebrated ‘Queer Black Joy,’ Dies at 86**\
 `Catch One, which she opened in Los Angeles in 1973 in the face of local animosity, became a glittering sanctuary for a largely shunned community.`\
 https://nytimes.com/2025/07/18/us/jewel-thais-williams-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/18/arts/design/martin-izquierdo-dead.html
 **Inside Noni Madueke's transfer to Arsenal: Arteta's presentation, Chelsea's data, Berta's new dynamic**\
 `From Arteta's call with Madueke and his father to the role of agent Ali Barat and sporting director Berta, here's how the deal was done`\
 https://nytimes.com/athletic/6492803/2025/07/18/inside-noni-maduekes-transfer-to-arsenal-artetas-presentation-chelseas-data-bertas-new-dynamic/
-
-**The 7.20.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/07/18/the-7202025-issue
-
-**Raiders place DT Christian Wilkins on PUP list**\
-`Wilkins has been in and out of a walking boot throughout the offseason. A timeline for his return to action remains unclear.`\
-https://nytimes.com/athletic/6502342/2025/07/18/christian-wilkins-raiders-pup-list/
-
-**How to watch this weekend's Brewers at Dodgers series: NL playoff hopefuls meet in LA**\
-`The Brewers emerge from this week's All-Star break as the National League's hottest outfit. The Dodgers need to reverse their middling July.`\
-https://nytimes.com/athletic/6499190/2025/07/18/brewers-dodgers-ohtani-next-start-mlb-how-to-watch/
 
