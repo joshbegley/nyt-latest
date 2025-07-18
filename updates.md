@@ -1,3 +1,20 @@
+**Rubio Restricts U.S. Criticism of Tainted Foreign Elections**\
+`A State Department cable telling officials to avoid comments on the “fairness or integrity” of most elections continues a U.S. turn away from promoting democratic values abroad.`\
+https://nytimes.com/2025/07/18/us/politics/rubio-foreign-elections-cable.html
+
+**Ketel Marte placed on restricted list after break-in at his home during All-Star break**\
+`Marte requested a few days off following the incident at his Phoenix-area home during the All-Star Game.`\
+https://nytimes.com/athletic/6503151/2025/07/18/ketel-marte-burglary-restricted-list-diamondbacks/
+
+**Reds sign first-round pick Steele Hall, one of the youngest players in Sunday's draft**\
+`The shortstop, who had committed to the University of Tennessee, will turn 18 on July 24.`\
+https://nytimes.com/athletic/6503157/2025/07/18/reds-sign-first-round-pick-steele-hall/
+
+**No way Yegor Chinakhov can stay in Columbus after trade request, agent says**\
+`Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
+`\
+https://nytimes.com/athletic/6503131/2025/07/18/yegor-chinakhov-blue-jackets-trade-request-agent/
+
 **No way Yegor Chinakhov can stay in Columbus after trade request, agent says: 'It's all about the coach'**\
 `Agent Shumi Babaev said Blue Jackets coach Dean Evason did not communicate with Chinakhov at any point during last season.
 `\
