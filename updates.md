@@ -1,3 +1,11 @@
+**Mamdani Wins Backing of Major Health Care Union That Had Endorsed Cuomo**\
+`Local 1199, which represents 200,000 health care workers in New York City, rescinded its support of Andrew Cuomo and is now endorsing Zohran Mamdani for mayor.`\
+https://nytimes.com/2025/07/18/nyregion/mamdani-union-1199-endorsement-nyc-mayor.html
+
+**Browns' Quinshon Judkins to miss start of camp after arrest**\
+`Judkins, who's yet to sign his rookie contract, was arrested last week on charges of battery and domestic violence.`\
+https://nytimes.com/athletic/6502234/2025/07/18/quinshon-judkins-browns-training-camp/
+
 **Browns' Quinshon Judkins missing start of camp after arrest**\
 `Judkins, who's yet to sign his rookie contract, was arrested last week on charges of battery and domestic violence.`\
 https://nytimes.com/athletic/6502234/2025/07/18/quinshon-judkins-browns-training-camp/
