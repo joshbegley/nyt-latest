@@ -1,3 +1,19 @@
+**The Phillies, searching for power, found it Friday with 3 home runs. They still lost.**\
+`After Friday and a career day against the Giants before the All-Star break, it feels like Bryce Harper has found his groove again. `\
+https://nytimes.com/athletic/6503354/2025/07/19/phillies-searching-for-power-bryce-harper/
+
+**Newcastle Q&A: Isak latest, Wissa interest, Trafford delay, CEO search and more**\
+`Newcastle correspondent Chris Waugh answers readers' questions after an extremely busy week on Tyneside`\
+https://nytimes.com/athletic/6501639/2025/07/19/isak-wissa-trafford-newcastle-transfers/
+
+**Harry Kane's unusual sponsorship and what it tells us about the business of sport**\
+`The England captain's partnership with a relatively unknown brand is indicative of how sports stars' commercial priorities are changing`\
+https://nytimes.com/athletic/6494909/2025/07/19/harry-kane-sponsorship-brand-value/
+
+**What is Sir Dave Brailsford doing at the Tour de France?**\
+`After leaving Manchester United Brailsford is back with the INEOS Grenadiers, reportedly conducting an 'audit' of their processes`\
+https://nytimes.com/athletic/6501981/2025/07/19/dave-brailsford-ineos-tour-de-france/
+
 **'This is a project, on and off the pitch' - Why Andy Carroll has joined Dagenham & Redbridge**\
 `Having spent two years in France's lower leagues, the ex-England striker has returned to familiar pastures at 36 - relatively speaking...`\
 https://nytimes.com/athletic/6501670/2025/07/19/andy-carroll-dagenham-and-redbridge/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/19/world/asia/china-demolition-house.html
 **As Japan Votes, a Trump-Inspired Politician Grabs the Spotlight**\
 `With his calls to limit foreign workers, fight globalism and put “Japanese First,” Sohei Kamiya has brought a fiery right-wing populism to Japan’s election on Sunday.`\
 https://nytimes.com/2025/07/19/world/asia/japan-election-sohei-kamiya.html
-
-**Connections: Sports Edition Coach: Hints for July 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6501904/2025/07/19/connections-sports-edition-hints-for-july-19-2025-puzzle-no-299/
-
-**Katarina Johnson-Thompson interview: 'I just want to continue heptathlon for as long as I'm capable'**\
-`The double world champion speaks to The Athletic about her plans ahead of the London Diamond League meet on Saturday  `\
-https://nytimes.com/athletic/6502624/2025/07/19/katarina-johnson-thompson-interview/
-
-**Quote of the Day: ‘Superman’ Wasn’t In His Sights**\
-`Quotation of the Day for Saturday, July 19, 2025.`\
-https://nytimes.com/2025/07/18/pageoneplus/quote-of-the-day-superman-wasnt-in-his-sights.html
-
-**Mets' bullpen problems are connected to rotation needs. Can they fix it at the trade deadline?**\
-`The quality of the Mets' bullpen depth (or lack thereof) showed up in their 8-4 loss to the Cincinnati Reds.`\
-https://nytimes.com/athletic/6503347/2025/07/18/mets-bullpen-problems-rotation-needs-trade-deadline/
 

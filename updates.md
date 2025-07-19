@@ -1,3 +1,11 @@
+**'This is a project, on and off the pitch' - Why Andy Carroll has joined Dagenham & Redbridge**\
+`Having spent two years in France's lower leagues, the ex-England striker has returned to familiar pastures at 36 - relatively speaking...`\
+https://nytimes.com/athletic/6501670/2025/07/19/andy-carroll-dagenham-and-redbridge/
+
+**How Olivia Smith became a £1m player: 'You didn't have to be a soccer person to understand'**\
+`Former coaches and scouts of Smith reflect on her undeniable and irrepressible talent growing up, and why a big move was never in doubt`\
+https://nytimes.com/athletic/6501574/2025/07/19/olivia-smith-most-expensive-player-development-arsenal/
+
 **Playing Hide-and-Seek With Cézanne in His Hometown**\
 `Thousands of tourists are descending on Aix-en-Provence, France, with the aim of knowing the elusive painter better.`\
 https://nytimes.com/2025/07/19/arts/design/cezanne-2025-aix-en-provence.html
