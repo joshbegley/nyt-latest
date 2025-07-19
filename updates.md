@@ -1,3 +1,23 @@
+**France vs Germany Euro 2025 quarter-final odds, prediction: Clash of two powers**\
+`France is favoured against Germany in a Euro 2025 quarter-final that could be the best match of the round.`\
+https://nytimes.com/athletic/6496596/2025/07/19/france-germany-euro-2025-odds-prediction/
+
+**Scams and a Rent Spike Follow New York City’s New Broker Fee Law**\
+`The law mostly shifts fees from tenants to landlords. But since it took effect, some landlords have raised rents, and tenants say some brokers still try to make them pay fees.`\
+https://nytimes.com/2025/07/19/nyregion/nyc-broker-fee-fare-act.html
+
+**How a Floral Design Master Spends His Day With Roses and Rosé**\
+`Calvert Crary, the executive director of FlowerSchool New York, teaches students how to haggle, spruces up his apartment lobby and ends his day on the roof.`\
+https://nytimes.com/2025/07/19/nyregion/calvert-crary-flowerschool-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/19/crosswords/spelling-bee-forum.html
+
+**Why Fireflies Seem to Be Everywhere This Summer**\
+`Text by Taylor Robinson and Yuvraj Khanna`\
+https://nytimes.com/card/2025/07/19/nyregion/
+
 **The New York Times in Print for Saturday, July 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/19/todays-new-york-times

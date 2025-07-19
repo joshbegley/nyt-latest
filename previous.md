@@ -1,3 +1,23 @@
+**France vs Germany Euro 2025 quarter-final odds, prediction: Clash of two powers**\
+`France is favoured against Germany in a Euro 2025 quarter-final that could be the best match of the round.`\
+https://nytimes.com/athletic/6496596/2025/07/19/france-germany-euro-2025-odds-prediction/
+
+**Scams and a Rent Spike Follow New York City’s New Broker Fee Law**\
+`The law mostly shifts fees from tenants to landlords. But since it took effect, some landlords have raised rents, and tenants say some brokers still try to make them pay fees.`\
+https://nytimes.com/2025/07/19/nyregion/nyc-broker-fee-fare-act.html
+
+**How a Floral Design Master Spends His Day With Roses and Rosé**\
+`Calvert Crary, the executive director of FlowerSchool New York, teaches students how to haggle, spruces up his apartment lobby and ends his day on the roof.`\
+https://nytimes.com/2025/07/19/nyregion/calvert-crary-flowerschool-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/19/crosswords/spelling-bee-forum.html
+
+**Why Fireflies Seem to Be Everywhere This Summer**\
+`Text by Taylor Robinson and Yuvraj Khanna`\
+https://nytimes.com/card/2025/07/19/nyregion/
+
 **The New York Times in Print for Saturday, July 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/19/todays-new-york-times
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6503272/2025/07/19/yankees-trade-deadline-pitching-
 **Noni Madueke to Arsenal: Everything you need to know – TLDR**\
 `Arsenal have signed forward Noni Madueke from London rivals Chelsea - here, we break down the deal.`\
 https://nytimes.com/athletic/6483782/2025/07/19/noni-madueke-arsenal-transfer-details/
-
-**Wilfried Gnonto interview: 'I probably have something to prove in the Premier League'**\
-`Two years after relegation and an infamous stand-off, the Italian is back in the top flight - and determined to right some wrongs`\
-https://nytimes.com/athletic/6502079/2025/07/19/gnonto-interview-leeds/
-
-**The 15 United players who need a good pre-season**\
-`The countdown to 2025-26 begins in earnest this weekend with Ruben Amorim's men in Stockholm for a friendly against Leeds`\
-https://nytimes.com/athletic/6493251/2025/07/19/manchester-united-players-pre-season-analysis/
-
-**The Phillies, searching for power, found it Friday with 3 home runs. They still lost.**\
-`After Friday and a career day against the Giants before the All-Star break, it feels like Bryce Harper has found his groove again. `\
-https://nytimes.com/athletic/6503354/2025/07/19/phillies-searching-for-power-bryce-harper/
-
-**Newcastle Q&A: Isak latest, Wissa interest, Trafford delay, CEO search and more**\
-`Newcastle correspondent Chris Waugh answers readers' questions after an extremely busy week on Tyneside`\
-https://nytimes.com/athletic/6501639/2025/07/19/isak-wissa-trafford-newcastle-transfers/
-
-**Harry Kane's unusual sponsorship and what it tells us about the business of sport**\
-`The England captain's partnership with a relatively unknown brand is indicative of how sports stars' commercial priorities are changing`\
-https://nytimes.com/athletic/6494909/2025/07/19/harry-kane-sponsorship-brand-value/
 
