@@ -1,3 +1,7 @@
+**UK Government announces support for bid to host 2029 World Athletics and Para Athletics Championships**\
+`The championships were last held in London in 2017 — five years after the Olympics and Paralympics came to the capital.`\
+https://nytimes.com/athletic/6503507/2025/07/19/uk-government-world-athletics-championship-bid/
+
 **Gaza Health Ministry Says Israeli Military Killed 32 in Attack Near Aid Site**\
 `The latest deaths add to U.N. figures showing that more than 670 Palestinians have been killed since May near sites built under an Israel-backed aid system.`\
 https://nytimes.com/2025/07/19/world/middleeast/gaza-humanitarian-foundation-israel-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500543/2025/07/19/wnba-all-star-game-caitlin-clark
 **Every NHL team's best and worst jersey in franchise history**\
 `From jerseys that stood the test of time to duds that teams couldn't ditch soon enough, here's the best and worst for every team.`\
 https://nytimes.com/athletic/6498283/2025/07/19/nhl-best-worst-jerseys-franchise-history/
-
-**Is It Fair for a Doctor’s Mom to Get Faster Emergency-Room Care?**\
-`What would probably have been a five-hour ordeal for most took less than 70 minutes.`\
-https://nytimes.com/2025/07/19/magazine/doctor-parents-emergency-care-ethics.html
 
