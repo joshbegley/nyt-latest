@@ -1,3 +1,7 @@
+**The ‘Little Epstein Theory’ vs. ‘Big Epstein Theory’**\
+`“The Opinions” round table discusses Trump and MAGA’s very bad week.`\
+https://nytimes.com/video/opinion/100000010293739/the-little-epstein-theory-vs-big-epstein-theory.html
+
 **UK Government announces support for bid to host 2029 World Athletics and Para Athletics Championships**\
 `The championships were last held in London in 2017 — five years after the Olympics and Paralympics came to the capital.`\
 https://nytimes.com/athletic/6503507/2025/07/19/uk-government-world-athletics-championship-bid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503276/2025/07/19/card-show-buying-tips/
 **How to watch the WNBA All-Star Game: Napheesa Collier on the floor, GloRilla on the mic**\
 `Even with Caitlin Clark resting on the sidelines, Indianapolis will be packed out and hyped up for the WNBA All-Star Game.`\
 https://nytimes.com/athletic/6500543/2025/07/19/wnba-all-star-game-caitlin-clark-injury-odds-collier-glorilla-how-to-watch-2025/
-
-**Every NHL team's best and worst jersey in franchise history**\
-`From jerseys that stood the test of time to duds that teams couldn't ditch soon enough, here's the best and worst for every team.`\
-https://nytimes.com/athletic/6498283/2025/07/19/nhl-best-worst-jerseys-franchise-history/
 
