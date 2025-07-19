@@ -1,3 +1,7 @@
+**New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
+`He’s the type of player who can cause a championship to feel like it’s over simply by the way he approaches each new task in front of him.`\
+https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-championship-links-golf/
+
 **Ten Point Spread**\
 `You can always bet on a Michael Schlossberg puzzle to provide a good workout.`\
 https://nytimes.com/2025/07/19/crosswords/daily-puzzle-2025-07-20.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6503061/2025/07/19/washington-nationals-sign-first-
 **The Pelicot Trial Returns, This Time to the Stage**\
 `Many of those who attended the trial returned to see a new play based on the case of Gisèle Pelicot, who confronted her ex-husband and dozens of men accused of raping her.`\
 https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
-
-**The Pulse: Aew money battle emerges in the NFL**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6503441/2025/07/19/how-a-new-money-battle-emerged-in-the-nfl-plus-scottie-chases-history/
 
