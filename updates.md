@@ -1,3 +1,7 @@
+**Nationals sign No. 1 pick Eli Willits**\
+`Willits was the youngest player in the draft and the team's third No. 1 selection since moving to Washington D.C. in 2005.`\
+https://nytimes.com/athletic/6503061/2025/07/19/washington-nationals-sign-first-pick-eli-willits/
+
 **The Pelicot Trial Returns, This Time to the Stage**\
 `Many of those who attended the trial returned to see a new play based on the case of Gisèle Pelicot, who confronted her ex-husband and dozens of men accused of raping her.`\
 https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
