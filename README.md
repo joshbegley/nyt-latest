@@ -1,3 +1,7 @@
+**Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
+`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
+https://nytimes.com/athletic/6503289/2025/07/19/braves-dane-dunning-trade-austin-riley-injury-update/
+
 **Trump Order on International Criminal Court Likely Violates First Amendment, Judge Rules**\
 `The ruling’s scope is limited to two American activists, but it represents a striking, if tentative, blow to the president’s efforts to penalize and isolate the world’s highest criminal court.`\
 https://nytimes.com/2025/07/19/us/politics/trump-international-criminal-court-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6494909/2025/07/19/harry-kane-sponsorship-brand-val
 **What is Sir Dave Brailsford doing at the Tour de France?**\
 `After leaving Manchester United Brailsford is back with the INEOS Grenadiers, reportedly conducting an 'audit' of their processes`\
 https://nytimes.com/athletic/6501981/2025/07/19/dave-brailsford-ineos-tour-de-france/
-
-**'This is a project, on and off the pitch' - Why Andy Carroll has joined Dagenham & Redbridge**\
-`Having spent two years in France's lower leagues, the ex-England striker has returned to familiar pastures at 36 - relatively speaking...`\
-https://nytimes.com/athletic/6501670/2025/07/19/andy-carroll-dagenham-and-redbridge/
 
