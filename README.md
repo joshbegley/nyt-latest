@@ -1,40 +1,40 @@
+**England 'optimistic' Williamson will be available for Euros semi-final**\
+`Williamson was forced off at half-time of extra-time in England's dramatic penalty shootout win over Sweden after rolling her ankle.`\
+https://nytimes.com/athletic/6503514/2025/07/19/leah-williamson-england-euros-update/
+
+**Manny Pacquiao hears the concerns but is back in the boxing ring anyway**\
+`Pacquiao is back in the ring for the first time in four years. He says he's not in need of cash. “I just missed boxing," he says.`\
+https://nytimes.com/athletic/6500641/2025/07/19/manny-pacquiao-fight-mario-barrios/
+
+**Buxton and Castro homer, but its not enough for Twins as Rockies hit Paddack early**\
+`The Twins stumbled out of the All-Star break by losing to Colorado, a team on pace to finish with the most losses in modern MLB history.`\
+https://nytimes.com/athletic/6503396/2025/07/19/byron-buxton-willi-castro-home-runs-not-enough-for-twins/
+
+**She Exposed Epstein, and Shares MAGA’s Anger**\
+`The reporter who took down Jeffrey Epstein on what’s still hidden.`\
+https://nytimes.com/2025/07/19/opinion/interesting-times-julie-k-brown-epstein.html
+
+**O'Connor: NFL players need leader, not lightweight, to ferociously fight for their rights**\
+`NFL players must be protected like no other athlete, risking serious injury at video-game speed before the toll makes them expendable.`\
+https://nytimes.com/athletic/6503300/2025/07/19/nflpa-lloyd-howell-resignation-nfl-players-union/
+
+**MAGA’s New Target: Trump**\
+`The president is in a deep-state fugue.`\
+https://nytimes.com/2025/07/19/opinion/trump-maga-epstein-deep-state.html
+
+**A Pro-Trump Community Reckons With Losing a Beloved Immigrant Neighbor**\
+`Republicans had a point when they complained that Democrats overreached on immigration. But that’s what the G.O.P. is doing now.`\
+https://nytimes.com/2025/07/19/opinion/immigrants-ice-deportation.html
+
+**Sean Longstaff to Leeds: Everything you need to know - TLDR**\
+`The Elland Road club are back in the Premier League and have now signed the 27-year-old Newcastle midfielder. We break down the deal`\
+https://nytimes.com/athletic/6482380/2025/07/19/sean-longstaff-leeds-transfer-analysis/
+
 **The ‘Little Epstein Theory’ vs. ‘Big Epstein Theory’**\
 `“The Opinions” round table discusses Trump and MAGA’s very bad week.`\
-https://nytimes.com/video/opinion/100000010293739/the-little-epstein-theory-vs-big-epstein-theory.html
+https://nytimes.com/2025/07/19/opinion/epstein-investigation-trump-supreme-court.html
 
-**UK Government announces support for bid to host 2029 World Athletics and Para Athletics Championships**\
-`The championships were last held in London in 2017 — five years after the Olympics and Paralympics came to the capital.`\
-https://nytimes.com/athletic/6503507/2025/07/19/uk-government-world-athletics-championship-bid/
-
-**Gaza Health Ministry Says Israeli Military Killed 32 in Attack Near Aid Site**\
-`The latest deaths add to U.N. figures showing that more than 670 Palestinians have been killed since May near sites built under an Israel-backed aid system.`\
-https://nytimes.com/2025/07/19/world/middleeast/gaza-humanitarian-foundation-israel-attack.html
-
-**Everyone knows where Spain striker Claudia Pina will aim, still few can stop her**\
-`The Barcelona and Spain striker wasn't always a guaranteed starter, but patience and precision have made her crucial to both lineups`\
-https://nytimes.com/athletic/6503463/2025/07/19/claudia-pina-spain-euros-long-range-goal/
-
-**Open Season**\
-`The popular notions of summer fun and the things we actually feel like doing can sometimes be at odds with each other.`\
-https://nytimes.com/2025/07/19/briefing/open-season.html
-
-**More Than 20 Injured in Los Angeles as Vehicle Drives Into Crowd**\
-`At least four people were in critical condition, the Los Angeles Fire Department said early Saturday.`\
-https://nytimes.com/2025/07/19/us/los-angeles-vehicle-crowd.html
-
-**Caleb Williams, Rome Odunze, Joe Thuney give Bears' offense unusual hope for camp**\
-`Rookies Colston Loveland, Luther Burden and Ozzy Trapilo are three of the key players to watch during training camp in Lake Forest.`\
-https://nytimes.com/athletic/6500416/2025/07/19/bears-offense-training-camp-2025/
-
-**Austin Hays' going oppo, crushing tacos, leads to a Reds win to start the second half**\
-`Hays outdid himself in Friday's second-half opener with a pair of opposite-field homers in the Reds' 8-4 victory over the Mets.`\
-https://nytimes.com/athletic/6503369/2025/07/19/reds-austin-hays-opposite-field-homers-mets/
-
-**The smart way to buy at a sports card show**\
-`Want to avoid card show buyer's remorse? Here's what you need to remember. `\
-https://nytimes.com/athletic/6503276/2025/07/19/card-show-buying-tips/
-
-**How to watch the WNBA All-Star Game: Napheesa Collier on the floor, GloRilla on the mic**\
-`Even with Caitlin Clark resting on the sidelines, Indianapolis will be packed out and hyped up for the WNBA All-Star Game.`\
-https://nytimes.com/athletic/6500543/2025/07/19/wnba-all-star-game-caitlin-clark-injury-odds-collier-glorilla-how-to-watch-2025/
+**Has the Death of the Novel Been Greatly Exaggerated?**\
+`Readers respond to a column by David Brooks.`\
+https://nytimes.com/2025/07/19/opinion/novel-decline-publishing.html
 
