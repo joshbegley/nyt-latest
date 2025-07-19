@@ -1,3 +1,11 @@
+**Nigella Lawson’s Blueberry Polenta Upside-Down Cake**\
+`Upside-down cakes are the best cakes, and this simple, summery treat is a perfect example of the form.`\
+https://nytimes.com/2025/07/19/dining/nigella-lawsons-blueberry-polenta-upside-down-cake.html
+
+**Syria Declares Cease-Fire After a Week of Upheaval**\
+`Sectarian-tinged clashes left hundreds dead and attracted Israeli military intervention. A U.S. envoy said Israel and Syria had agreed to a truce.`\
+https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html
+
 **Leeds finalising deal to sign midfielder Stach from Hoffenheim**\
 `Stach has made 74 appearances for Hoffenheim since joining in 2023 from Bundesliga rivals Mainz, where he spent three seasons.`\
 https://nytimes.com/athletic/6497337/2025/07/19/leeds-transfers-anton-stach-hoffenheim/

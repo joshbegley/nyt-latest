@@ -1,3 +1,7 @@
+**Nigella Lawson’s Blueberry Polenta Upside-Down Cake**\
+`Upside-down cakes are the best cakes, and this simple, summery treat is a perfect example of the form.`\
+https://nytimes.com/2025/07/19/dining/nigella-lawsons-blueberry-polenta-upside-down-cake.html
+
 **Leeds finalising deal to sign midfielder Stach from Hoffenheim**\
 `Stach has made 74 appearances for Hoffenheim since joining in 2023 from Bundesliga rivals Mainz, where he spent three seasons.`\
 https://nytimes.com/athletic/6497337/2025/07/19/leeds-transfers-anton-stach-hoffenheim/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
 https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
 
 **Syria Declares Cease-Fire After a Week of Upheaval**\
-`Sectarian-tinged clashes left hundreds dead and drew in Israeli military intervention. A U.S. envoy said Israel and Syria had agreed to a truce.`\
+`Sectarian-tinged clashes left hundreds dead and attracted Israeli military intervention. A U.S. envoy said Israel and Syria had agreed to a truce.`\
 https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html
 
 **Bills training camp 2025 cornerback preview: Old and new faces arrive in position shakeup**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6387910/2025/07/19/buffalo-bills-training-camp-prev
 **Wall Street Wants to Make Private Markets a Little More Public**\
 `As value grows in private markets, fund managers, brokerage houses, and savvy start-ups are building products that aim to expand access to them.`\
 https://nytimes.com/2025/07/19/business/dealbook/private-market-boom.html
-
-**2 Books for Birthday Introspection**\
-`A novel of adolescent friendship; a brooding celebrity memoir.`\
-https://nytimes.com/2025/07/19/books/2-books-for-birthday-introspection.html
 
