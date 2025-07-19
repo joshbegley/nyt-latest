@@ -1,3 +1,7 @@
+**De Bruyne honoured to train in Maradona's No 10 at Napoli**\
+`De Bruyne joined Napoli as a free agent last month after a decade at Manchester City.`\
+https://nytimes.com/athletic/6503724/2025/07/19/kevin-de-bruyne-napoli-maradona/
+
 **Roger Norrington, Iconoclastic British Conductor, Dies at 91**\
 `His work, largely unknown outside Britain until late in his career, was often based on historical treatises. It was seen by many as refreshingly innovative.`\
 https://nytimes.com/2025/07/19/arts/music/roger-norrington-dead.html
