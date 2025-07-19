@@ -1,3 +1,11 @@
+**Ten Point Spread**\
+`You can always bet on a Michael Schlossberg puzzle to provide a good workout.`\
+https://nytimes.com/2025/07/19/crosswords/daily-puzzle-2025-07-20.html
+
+**Ruthless Usyk stops Dubois in fifth round to reclaim undisputed crown**\
+`All week Usyk has been telling reporters that at 38, he is not an “old guy” and on Saturday night he proved it.`\
+https://nytimes.com/athletic/6504037/2025/07/19/usyk-dubois-fight-heavyweight-boxing-undisputed/
+
 **Marcus Smart, Wizards near buyout, Lakers are likeliest destination: Source**\
 `The Wizards traded for Smart last season, and he, by all accounts, provided a positive example to the team’s younger players.`\
 https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lakers-destination/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
 **The Pulse: Aew money battle emerges in the NFL**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6503441/2025/07/19/how-a-new-money-battle-emerged-in-the-nfl-plus-scottie-chases-history/
-
-**Overlooked No More: Polina Gelman: Fearless ‘Night Witch’ Who Haunted Nazi Troops**\
-`She was a navigator with an all-female unit of Soviet aviators who attacked German troops at night, whooshing in wooden planes like witches on broomsticks.`\
-https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
-
-**Great Britain dominate SailGP leaderboard after day one of Portsmouth event**\
-`The British crew were the only team to get all their scores in the top three of each of today’s four short races`\
-https://nytimes.com/athletic/6503865/2025/07/19/sailgp-race-portsmouth-great-britain/
 
