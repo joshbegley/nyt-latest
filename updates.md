@@ -1,3 +1,7 @@
+**Barcelona advancing with move to sign Rashford from Man Utd**\
+`The idea has been agreed to by United and although it is not yet a done deal, talks between all parties are now at the final stages.`\
+https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
+
 **Syria Declares Cease-Fire After a Week of Upheaval**\
 `The government announcement came hours after a top U.S. envoy to the region said that the country and Israel had agreed to a truce after sectarian-tinged clashes had left hundreds dead.`\
 https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html

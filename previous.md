@@ -1,3 +1,7 @@
+**Barcelona advancing with move to sign Rashford from Man Utd**\
+`The idea has been agreed to by United and although it is not yet a done deal, talks between all parties are now at the final stages.`\
+https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
+
 **Syria Declares Cease-Fire After a Week of Upheaval**\
 `The government announcement came hours after a top U.S. envoy to the region said that the country and Israel had agreed to a truce after sectarian-tinged clashes had left hundreds dead.`\
 https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503396/2025/07/19/byron-buxton-willi-castro-home-r
 **She Exposed Epstein, and Shares MAGA’s Anger**\
 `The reporter who took down Jeffrey Epstein on what’s still hidden.`\
 https://nytimes.com/2025/07/19/opinion/interesting-times-julie-k-brown-epstein.html
-
-**O'Connor: NFL players need leader, not lightweight, to ferociously fight for their rights**\
-`NFL players must be protected like no other athlete, risking serious injury at video-game speed before the toll makes them expendable.`\
-https://nytimes.com/athletic/6503300/2025/07/19/nflpa-lloyd-howell-resignation-nfl-players-union/
 
