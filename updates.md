@@ -1,3 +1,7 @@
+**Braves start hopeful climb back to contention with win over Yankees**\
+`The Braves think they can make the postseason for the eighth consecutive time. It'll take a huge push, but Friday's win was a good start.`\
+https://nytimes.com/athletic/6503290/2025/07/18/atlanta-braves-postseason-contention-yankees/
+
 **Leader Before the King?**\
 `Erik Agard returns to the Saturday puzzle, in regal fashion.`\
 https://nytimes.com/2025/07/18/crosswords/daily-puzzle-2025-07-19.html

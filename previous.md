@@ -1,3 +1,7 @@
+**Braves start hopeful climb back to contention with win over Yankees**\
+`The Braves think they can make the postseason for the eighth consecutive time. It'll take a huge push, but Friday's win was a good start.`\
+https://nytimes.com/athletic/6503290/2025/07/18/atlanta-braves-postseason-contention-yankees/
+
 **Leader Before the King?**\
 `Erik Agard returns to the Saturday puzzle, in regal fashion.`\
 https://nytimes.com/2025/07/18/crosswords/daily-puzzle-2025-07-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/health/mri-death-long-island.html
 **Plane Is Diverted After Man Threatens to Kill Flight Attendant, Authorities Say**\
 `The jet, bound for Detroit from Omaha, made an emergency landing in Cedar Rapids, Iowa, after a man shoved a flight attendant and displayed unruly behavior, SkyWest Airlines said.`\
 https://nytimes.com/2025/07/18/us/flight-detroit-nebraska-iowa-man-arrested-assault.html
-
-**Gabbard Claims Obama Administration Tried to Undermine Trump in 2016**\
-`Democrats denounced a report issued by the Office of the Director of National Intelligence as politically motivated and error-ridden.`\
-https://nytimes.com/2025/07/18/us/politics/gabbard-obama-trump-russia.html
 
