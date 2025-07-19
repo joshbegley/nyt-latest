@@ -1,3 +1,7 @@
+**Liberty sweep: Natasha Cloud and Sabrina Ionescu dominate WNBA All-Star Friday**\
+`Ionescu’s final score of 30 tied Allie Quigley for the second-highest in the WNBA's 3-point shootout history.`\
+https://nytimes.com/athletic/6503307/2025/07/18/liberty-cloud-ionescu-sweep-wnba-all-star-friday/
+
 **Braves start hopeful climb back to contention with win over Yankees**\
 `The Braves think they can make the postseason for the eighth consecutive time. It'll take a huge push, but Friday's win was a good start.`\
 https://nytimes.com/athletic/6503290/2025/07/18/atlanta-braves-postseason-contention-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503186/2025/07/18/red-sox-end-10-game-win-streak-c
 **Man Who Was Pulled Into M.R.I. Machine Has Died, Police Say**\
 `The man, who, without authorization, entered the room wearing a metal necklace during a scan, died a day after he was critically injured, the authorities said.`\
 https://nytimes.com/2025/07/18/health/mri-death-long-island.html
-
-**Plane Is Diverted After Man Threatens to Kill Flight Attendant, Authorities Say**\
-`The jet, bound for Detroit from Omaha, made an emergency landing in Cedar Rapids, Iowa, after a man shoved a flight attendant and displayed unruly behavior, SkyWest Airlines said.`\
-https://nytimes.com/2025/07/18/us/flight-detroit-nebraska-iowa-man-arrested-assault.html
 
