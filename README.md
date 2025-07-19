@@ -1,3 +1,7 @@
+**Grading WNBA All-Star contests: Sabrina Ionescu's 3-point performance sets high bar**\
+`Ben Pickman grades every participant in Indianapolis' skills challenge and 3-point contest.`\
+https://nytimes.com/athletic/6503335/2025/07/18/wnba-all-star-3-point-contest-sabrina-ionescu-grades/
+
 **Liberty sweep: Natasha Cloud and Sabrina Ionescu dominate WNBA All-Star Friday**\
 `Ionescu’s final score of 30 tied Allie Quigley for the second-highest in the WNBA's 3-point shootout history.`\
 https://nytimes.com/athletic/6503307/2025/07/18/liberty-cloud-ionescu-sweep-wnba-all-star-friday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/business/media/trump-sues-wall-street-journal-eps
 **Red Sox snap 10-game win streak as 'bad decision' on bases squashes rally**\
 `"I have to put the blame on me," Abraham Toro said. "Being thrown out on a double play, that kills rallies."`\
 https://nytimes.com/athletic/6503186/2025/07/18/red-sox-end-10-game-win-streak-cubs/
-
-**Man Who Was Pulled Into M.R.I. Machine Has Died, Police Say**\
-`The man, who, without authorization, entered the room wearing a metal necklace during a scan, died a day after he was critically injured, the authorities said.`\
-https://nytimes.com/2025/07/18/health/mri-death-long-island.html
 
