@@ -1,40 +1,40 @@
-**Sandra Oh Knows What’s Great About Middle Age**\
-`The actress discusses discrimination in Hollywood, what she’s learned about herself in her 50s and her iconic role on “Grey’s Anatomy.”`\
-https://nytimes.com/2025/07/19/magazine/sandra-oh-interview.html
+**More Than 20 Injured in Los Angeles as Vehicle Drives Into Crowd**\
+`At least four people were in critical condition, the Los Angeles Fire Department said early Saturday.`\
+https://nytimes.com/2025/07/19/us/los-angeles-vehicle-crowd.html
 
-**Democrats’ 2024 Autopsy Is Described as Avoiding the Likeliest Cause of Death**\
-`An audit being conducted by the D.N.C. is not looking at Joe Biden’s decision to run or key decisions by Kamala Harris’s team, according to six people briefed on the report.`\
-https://nytimes.com/2025/07/19/us/politics/democrats-2024-autopsy-harris-biden.html
+**Caleb Williams, Rome Odunze, Joe Thuney give Bears' offense unusual hope for camp**\
+`Rookies Colston Loveland, Luther Burden and Ozzy Trapilo are three of the key players to watch during training camp in Lake Forest.`\
+https://nytimes.com/athletic/6500416/2025/07/19/bears-offense-training-camp-2025/
 
-**Why Are More Than 100 People Still Missing in Texas, 2 Weeks After the Floods?**\
-`The number of people unaccounted for dropped this week but remains stubbornly high as some searchers lose hope of finding them.`\
-https://nytimes.com/2025/07/19/us/politics/texas-floods-missing.html
+**Austin Hays' going oppo, crushing tacos, leads to a Reds win to start the second half**\
+`Hays outdid himself in Friday's second-half opener with a pair of opposite-field homers in the Reds' 8-4 victory over the Mets.`\
+https://nytimes.com/athletic/6503369/2025/07/19/reds-austin-hays-opposite-field-homers-mets/
 
-**How TV Trained Us to Be Conspiracy Theorists**\
-`Pop culture didn’t create the real-world mythologies roiling our politics, but it helped write the scripts`\
-https://nytimes.com/2025/07/19/arts/television/conspiracy-theory-tv-shows-the-x-files.html
+**The smart way to buy at a sports card show**\
+`Want to avoid card show buyer's remorse? Here's what you need to remember. `\
+https://nytimes.com/athletic/6503276/2025/07/19/card-show-buying-tips/
 
-**The Kurosawa You May Never Have Heard Of**\
-`The great Japanese genre director Kiyoshi Kurosawa, whose latest film is “Cloud,” has mastered the cinema of psychological fright. Here’s why you should watch his work.`\
-https://nytimes.com/2025/07/19/movies/kiyoshi-kurosawa-primer.html
+**How to watch the WNBA All-Star Game: Napheesa Collier on the floor, GloRilla on the mic**\
+`Even with Caitlin Clark resting on the sidelines, Indianapolis will be packed out and hyped up for the WNBA All-Star Game.`\
+https://nytimes.com/athletic/6500543/2025/07/19/wnba-all-star-game-caitlin-clark-injury-odds-collier-glorilla-how-to-watch-2025/
 
-**How the U.S. and Japan Got Stuck on Cars and Rice**\
-`The Trump administration has threatened Japan with 25 percent tariffs. River Akira Davis, our Tokyo correspondent, explains how automobiles and rice have become the two major sticking points in the negotiations.`\
-https://nytimes.com/video/world/asia/100000010287569/how-the-us-and-japan-got-stuck-on-cars-and-rice.html
+**Every NHL team's best and worst jersey in franchise history**\
+`From jerseys that stood the test of time to duds that teams couldn't ditch soon enough, here's the best and worst for every team.`\
+https://nytimes.com/athletic/6498283/2025/07/19/nhl-best-worst-jerseys-franchise-history/
 
-**The Secretive Shop That Keeps the Rare McLaren F1 on the Road**\
-`The company made only 106 of these supercars, and service can take weeks.`\
-https://nytimes.com/2025/07/19/automobiles/collectibles/mclaren-f1-secret-mechanic.html
+**Is It Fair for a Doctor’s Mom to Get Faster Emergency-Room Care?**\
+`What would probably have been a five-hour ordeal for most took less than 70 minutes.`\
+https://nytimes.com/2025/07/19/magazine/doctor-parents-emergency-care-ethics.html
 
-**Vance Boelter’s Life Before the Minnesota Shootings**\
-`Periods of religious zealotry and an unsettled professional career were intertwined for years before he was accused of murder.`\
-https://nytimes.com/2025/07/19/us/minnesota-shootings-vance-boelter.html
+**A Rescue Center for Small Wild Animals Looks to Place a Blind Moose Calf**\
+`There is an ambitious long-term plan for Cedar, who cannot be released back into the wild even after his leg injury mends.`\
+https://nytimes.com/2025/07/19/world/canada/a-rescue-center-for-small-wild-animals-looks-to-place-a-blind-moose-calf.html
 
-**This Groundbreaking Artist Vanished. A Decade of Sleuthing Reveals Her Greatness.**\
-`Mavis Pusey was a pioneer of Black abstraction before she was nearly forgotten. A new show in Philadelphia begins a journey of rediscovery.`\
-https://nytimes.com/2025/07/19/arts/design/mavis-pusey-pioneer-black-abstraction.html
+**Wordle Review No. 1,492**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 20, 2025.`\
+https://nytimes.com/2025/07/19/crosswords/wordle-review-1492.html
 
-**Who Wins When Neighbors Fight?**\
-`A co-op board may need to investigate so that it can protect every resident’s rights.`\
-https://nytimes.com/2025/07/19/realestate/neighbor-dispute-coop-laws.html
+**Strands Sidekick No. 504**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 20, 2025.`\
+https://nytimes.com/2025/07/19/crosswords/strands-sidekick-504.html
 
