@@ -27,7 +27,7 @@ https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
 https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
 
 **New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
-`He’s the type of player who can cause a championship to feel like it’s over simply by the way he approaches each new task in front of him.`\
+`He's the type of player who can cause a championship to feel like it's over simply by the way he approaches each new task in front of him.`\
 https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-championship-links-golf/
 
 **Ten Point Spread**\

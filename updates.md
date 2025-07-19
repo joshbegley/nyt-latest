@@ -1,3 +1,7 @@
+**New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
+`He's the type of player who can cause a championship to feel like it's over simply by the way he approaches each new task in front of him.`\
+https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-championship-links-golf/
+
 **How Anti-Immigrant Riots in Northern Ireland started**\
 `For weeks, there has been a drumbeat of anti-immigrant episodes in Northern Ireland. Ali Watkins, a reporter for The New York Times based in Belfast, describes what she’s seen covering these events to Katrin Bennhold, a senior writer on the international desk.`\
 https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-in-northern-ireland-started.html
