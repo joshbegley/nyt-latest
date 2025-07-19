@@ -1,3 +1,7 @@
+**‘Coldplaygate’ Is a Stark Reminder That Cameras Are Everywhere**\
+`A video from a concert dominated internet discourse as people joked about a man and woman who appeared very upset to be shown on camera.`\
+https://nytimes.com/2025/07/18/style/coldplay-andy-byron-astronomer-video.html
+
 **Grading WNBA All-Star contests: Sabrina Ionescu's 3-point performance sets high bar**\
 `Ben Pickman grades every participant in Indianapolis' skills challenge and 3-point contest.`\
 https://nytimes.com/athletic/6503335/2025/07/18/wnba-all-star-3-point-contest-sabrina-ionescu-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/judge-orders-trump-officials-to-resto
 **Trump Sues Wall Street Journal for Article on Note to Epstein**\
 `The lawsuit argues that The Journal falsely claimed President Trump “authored, drew and signed” a lewd birthday card to Jeffrey Epstein.`\
 https://nytimes.com/2025/07/18/business/media/trump-sues-wall-street-journal-epstein.html
-
-**Red Sox snap 10-game win streak as 'bad decision' on bases squashes rally**\
-`"I have to put the blame on me," Abraham Toro said. "Being thrown out on a double play, that kills rallies."`\
-https://nytimes.com/athletic/6503186/2025/07/18/red-sox-end-10-game-win-streak-cubs/
 
