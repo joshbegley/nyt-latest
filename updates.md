@@ -1,3 +1,15 @@
+**Leader Before the King?**\
+`Erik Agard returns to the Saturday puzzle, in regal fashion.`\
+https://nytimes.com/2025/07/18/crosswords/daily-puzzle-2025-07-19.html
+
+**Chargers training camp: Daiyan Henley shows why teammates believe he can be All-Pro**\
+`It took Henley 32 games to intercept his first NFL pass. It took him just two days to come away with his first pick of 2025 training camp.`\
+https://nytimes.com/athletic/6503277/2025/07/18/chargers-daiyan-henley-training-camp-report/
+
+**Shannon Sharpe settles rape lawsuit that sought $50 million in damages**\
+`Sharpe publicly denied the allegations immediately after his accuser filed the suit in April, calling the case a "shakedown" attempt.`\
+https://nytimes.com/athletic/6503264/2025/07/18/shannon-sharpe-settles-rape-lawsuit/
+
 **'You can't just trade everyone': Phillies owner John Middleton talks trade deadline**\
 `Middleton noted that Dave Dombrowski is "always aggressive" and said the team would love to re-sign Kyle Schwarber.`\
 https://nytimes.com/athletic/6503211/2025/07/18/phillies-trade-deadline-john-middleton/
