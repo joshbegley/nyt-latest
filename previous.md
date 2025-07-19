@@ -1,3 +1,7 @@
+**Mets' bullpen problems are connected to rotation needs. Can they fix it at the trade deadline?**\
+`The quality of the Mets' bullpen depth (or lack thereof) showed up in their 8-4 loss to the Cincinnati Reds.`\
+https://nytimes.com/athletic/6503347/2025/07/18/mets-bullpen-problems-rotation-needs-trade-deadline/
+
 **‘Coldplaygate’ Is a Stark Reminder That Cameras Are Everywhere**\
 `A video from a concert dominated internet discourse as people joked about a man and woman who appeared very upset to be shown on camera.`\
 https://nytimes.com/2025/07/18/style/coldplay-andy-byron-astronomer-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/under-trump-a-new-focus-for-a-birth-c
 **Judge Orders Trump Officials to Restore Funding for Radio Free Europe**\
 `In a stern ruling, the judge rebuked the Trump administration for refusing to disburse funding that Congress had already approved.`\
 https://nytimes.com/2025/07/18/us/politics/judge-orders-trump-officials-to-restore-funding-for-radio-free-europe.html
-
-**Trump Sues Wall Street Journal for Article on Note to Epstein**\
-`The lawsuit argues that The Journal falsely claimed President Trump “authored, drew and signed” a lewd birthday card to Jeffrey Epstein.`\
-https://nytimes.com/2025/07/18/business/media/trump-sues-wall-street-journal-epstein.html
 

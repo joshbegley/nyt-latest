@@ -1,3 +1,7 @@
+**Mets' bullpen problems are connected to rotation needs. Can they fix it at the trade deadline?**\
+`The quality of the Mets' bullpen depth (or lack thereof) showed up in their 8-4 loss to the Cincinnati Reds.`\
+https://nytimes.com/athletic/6503347/2025/07/18/mets-bullpen-problems-rotation-needs-trade-deadline/
+
 **‘Coldplaygate’ Is a Stark Reminder That Cameras Are Everywhere**\
 `A video from a concert dominated internet discourse as people joked about a man and woman who appeared very upset to be shown on camera.`\
 https://nytimes.com/2025/07/18/style/coldplay-andy-byron-astronomer-video.html
