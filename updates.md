@@ -1,3 +1,7 @@
+**Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
+`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
+https://nytimes.com/athletic/6503289/2025/07/19/braves-dane-dunning-trade-austin-riley-injury-update/
+
 **Trump Order on International Criminal Court Likely Violates First Amendment, Judge Rules**\
 `The ruling’s scope is limited to two American activists, but it represents a striking, if tentative, blow to the president’s efforts to penalize and isolate the world’s highest criminal court.`\
 https://nytimes.com/2025/07/19/us/politics/trump-international-criminal-court-ruling.html

@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, July 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/19/todays-new-york-times
+
 **Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
 `Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
 https://nytimes.com/athletic/6503289/2025/07/19/braves-dane-dunning-trade-austin-riley-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501639/2025/07/19/isak-wissa-trafford-newcastle-tr
 **Harry Kane's unusual sponsorship and what it tells us about the business of sport**\
 `The England captain's partnership with a relatively unknown brand is indicative of how sports stars' commercial priorities are changing`\
 https://nytimes.com/athletic/6494909/2025/07/19/harry-kane-sponsorship-brand-value/
-
-**What is Sir Dave Brailsford doing at the Tour de France?**\
-`After leaving Manchester United Brailsford is back with the INEOS Grenadiers, reportedly conducting an 'audit' of their processes`\
-https://nytimes.com/athletic/6501981/2025/07/19/dave-brailsford-ineos-tour-de-france/
 
