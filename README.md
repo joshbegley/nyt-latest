@@ -1,3 +1,11 @@
+**The Pelicot Trial Returns, This Time to the Stage**\
+`Many of those who attended the trial returned to see a new play based on the case of Gisèle Pelicot, who confronted her ex-husband and dozens of men accused of raping her.`\
+https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
+
+**The Pulse: Aew money battle emerges in the NFL**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6503441/2025/07/19/how-a-new-money-battle-emerged-in-the-nfl-plus-scottie-chases-history/
+
 **Overlooked No More: Polina Gelman: Fearless ‘Night Witch’ Who Haunted Nazi Troops**\
 `She was a navigator with an all-female unit of Soviet aviators who attacked German troops at night, whooshing in wooden planes like witches on broomsticks.`\
 https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
@@ -5,6 +13,10 @@ https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
 **Great Britain dominate SailGP leaderboard after day one of Portsmouth event**\
 `The British crew were the only team to get all their scores in the top three of each of today’s four short races`\
 https://nytimes.com/athletic/6503865/2025/07/19/sailgp-race-portsmouth-great-britain/
+
+**Celtic 4 Newcastle United 0: Where was Isak? How did Elanga play? How worrying was defeat?**\
+`Newcastle lost 4-0 to Scottish champions Celtic - but how bad was it? And where was Alexander Isak?`\
+https://nytimes.com/athletic/6503473/2025/07/19/celtic-newcastle-result-howe-isak-transfer/
 
 **Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set pieces**\
 `Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6503504/2025/07/19/tour-de-france-stage-14-analysis
 **Bamford told by Farke he is not part of Leeds plans for 2025-26**\
 `The England international was absent from Saturday’s friendly vs Manchester United in Stockholm and Farke revealed his decision post-match.`\
 https://nytimes.com/athletic/6503770/2025/07/19/patrick-bamford-leeds-future/
-
-**De Bruyne honoured to train in Maradona's No 10 at Napoli**\
-`De Bruyne joined Napoli as a free agent last month after a decade at Manchester City.`\
-https://nytimes.com/athletic/6503724/2025/07/19/kevin-de-bruyne-napoli-maradona/
-
-**Roger Norrington, Iconoclastic British Conductor, Dies at 91**\
-`His work, largely unknown outside Britain until late in his career, was often based on historical treatises. It was seen by many as refreshingly innovative.`\
-https://nytimes.com/2025/07/19/arts/music/roger-norrington-dead.html
-
-**At Least 34 Dead After Vietnam Tourist Boat Capsizes, State Media Says**\
-`The boat, carrying 48 passengers and five crew members, was on a sightseeing tour of Ha Long Bay when a sudden storm caused it to overturn, state media said. At least 10 people were rescued.`\
-https://nytimes.com/2025/07/19/world/asia/vietnam-tourist-boat-capsizes.html
 

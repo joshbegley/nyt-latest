@@ -1,3 +1,11 @@
+**Overlooked No More: Polina Gelman: Fearless ‘Night Witch’ Who Haunted Nazi Troops**\
+`She was a navigator with an all-female unit of Soviet aviators who attacked German troops at night, whooshing in wooden planes like witches on broomsticks.`\
+https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
+
+**Great Britain dominate SailGP leaderboard after day one of Portsmouth event**\
+`The British crew were the only team to get all their scores in the top three of each of today’s four short races`\
+https://nytimes.com/athletic/6503865/2025/07/19/sailgp-race-portsmouth-great-britain/
+
 **Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set pieces**\
 `Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
 https://nytimes.com/athletic/6503759/2025/07/19/reading-v-spurs-kudus-vuskovic-frank/
