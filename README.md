@@ -1,3 +1,7 @@
+**Why the Clippers are counting on a Bradley Beal bounce-back after Phoenix stint**\
+`With the addition of Beal, Lawrence Frank believes the Clippers have what it takes to win a playoff series for the first time in five years.`\
+https://nytimes.com/athletic/6504016/2025/07/19/clippers-counting-on-bradley-beal-bounce-back/
+
 **Can Scottie Scheffler lose this Open Championship?**\
 `Scheffler has been so unrepentant in his dominance that all involved are resigned to the inevitable.`\
 https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheffler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504037/2025/07/19/usyk-dubois-fight-heavyweight-bo
 **Marcus Smart, Wizards reach buyout, Lakers are likeliest destination: Source**\
 `The Wizards traded for Smart last season, and he, by all accounts, provided a positive example to the team’s younger players.`\
 https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lakers-destination/
-
-**Liverpool reach outline of agreement with Frankfurt over Ekitike transfer**\
-`The 23-year-old registered 22 goals and 12 assists last term for Eintracht and was named in the Bundesliga team of the season.`\
-https://nytimes.com/athletic/6499475/2025/07/19/hugo-ekitike-liverpool-transfer/
 

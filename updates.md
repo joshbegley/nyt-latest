@@ -1,3 +1,15 @@
+**Can Scottie Scheffler lose this Open Championship?**\
+`Scheffler has been so unrepentant in his dominance that all involved are resigned to the inevitable.`\
+https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheffler/
+
+**Fire at Massachusetts Assisted Living Facility Claims a 10th Life**\
+`Brenda Cropper, 66, died at a hospital after being in critical condition all week after the fire erupted on Sunday, officials said.`\
+https://nytimes.com/2025/07/19/us/10th-death-assisted-living.html
+
+**The Briefing: France 1 Germany 1 (5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
+`How Germany advanced to face Spain in the Euro 2025 semi-finals, led by Ann-Katrin Berger `\
+https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
+
 **Phillies place Alec Bohm on injured list with fractured left rib**\
 `Philadelphia's third baseman got hit by a pitch on July 12 against the Padres. He's the second Phillie to fracture a rib this season.`\
 https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
