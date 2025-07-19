@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
 https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
 
 **Syria Declares Cease-Fire After a Week of Upheaval**\
-`Sectarian-tinged clashes left hundreds dead and drew in Israeli military intervention. A U.S. envoy said Israel and Syria had agreed to a truce.`\
+`Sectarian-tinged clashes left hundreds dead and attracted Israeli military intervention. A U.S. envoy said Israel and Syria had agreed to a truce.`\
 https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html
 
 **Bills training camp 2025 cornerback preview: Old and new faces arrive in position shakeup**\
