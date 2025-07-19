@@ -1,3 +1,7 @@
+**Grading WNBA All-Star contests: Sabrina Ionescu's 3-point performance sets high bar**\
+`Ben Pickman grades every participant in Indianapolis' skills challenge and 3-point contest.`\
+https://nytimes.com/athletic/6503335/2025/07/18/wnba-all-star-3-point-contest-sabrina-ionescu-grades/
+
 **Liberty sweep: Natasha Cloud and Sabrina Ionescu dominate WNBA All-Star Friday**\
 `Ionescu’s final score of 30 tied Allie Quigley for the second-highest in the WNBA's 3-point shootout history.`\
 https://nytimes.com/athletic/6503307/2025/07/18/liberty-cloud-ionescu-sweep-wnba-all-star-friday/
