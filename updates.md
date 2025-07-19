@@ -1,3 +1,11 @@
+**Gaza Health Ministry Says Israeli Military Killed 32 in Attack Near Aid Site**\
+`The latest deaths add to U.N. figures showing that more than 670 Palestinians have been killed since May near sites built under an Israel-backed aid system.`\
+https://nytimes.com/2025/07/19/world/middleeast/gaza-humanitarian-foundation-israel-attack.html
+
+**Everyone knows where Spain striker Claudia Pina will aim, still few can stop her**\
+`The Barcelona and Spain striker wasn't always a guaranteed starter, but patience and precision have made her crucial to both lineups`\
+https://nytimes.com/athletic/6503463/2025/07/19/claudia-pina-spain-euros-long-range-goal/
+
 **Open Season**\
 `The popular notions of summer fun and the things we actually feel like doing can sometimes be at odds with each other.`\
 https://nytimes.com/2025/07/19/briefing/open-season.html

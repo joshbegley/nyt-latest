@@ -1,3 +1,11 @@
+**Gaza Health Ministry Says Israeli Military Killed 32 in Attack Near Aid Site**\
+`The latest deaths add to U.N. figures showing that more than 670 Palestinians have been killed since May near sites built under an Israel-backed aid system.`\
+https://nytimes.com/2025/07/19/world/middleeast/gaza-humanitarian-foundation-israel-attack.html
+
+**Everyone knows where Spain striker Claudia Pina will aim, still few can stop her**\
+`The Barcelona and Spain striker wasn't always a guaranteed starter, but patience and precision have made her crucial to both lineups`\
+https://nytimes.com/athletic/6503463/2025/07/19/claudia-pina-spain-euros-long-range-goal/
+
 **Open Season**\
 `The popular notions of summer fun and the things we actually feel like doing can sometimes be at odds with each other.`\
 https://nytimes.com/2025/07/19/briefing/open-season.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6498283/2025/07/19/nhl-best-worst-jerseys-franchise
 **Is It Fair for a Doctor’s Mom to Get Faster Emergency-Room Care?**\
 `What would probably have been a five-hour ordeal for most took less than 70 minutes.`\
 https://nytimes.com/2025/07/19/magazine/doctor-parents-emergency-care-ethics.html
-
-**A Rescue Center for Small Wild Animals Looks to Place a Blind Moose Calf**\
-`There is an ambitious long-term plan for Cedar, who cannot be released back into the wild even after his leg injury mends.`\
-https://nytimes.com/2025/07/19/world/canada/a-rescue-center-for-small-wild-animals-looks-to-place-a-blind-moose-calf.html
-
-**Wordle Review No. 1,492**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 20, 2025.`\
-https://nytimes.com/2025/07/19/crosswords/wordle-review-1492.html
 
