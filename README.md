@@ -1,3 +1,7 @@
+**W.N.B.A.’s All-Star Weekend Is Still Buzzing, Even Without Caitlin Clark**\
+`Despite an injury that sidelined the Fever star, thousands of fans descended on festivities across Indianapolis.`\
+https://nytimes.com/2025/07/19/style/wnba-all-star-indianapolis.html
+
 **Peter Phillips, Who Was at the British Pop Art Frontier, Dies at 86**\
 `Known as the tough guy in a scene that produced David Hockney and others, he filled his paintings with gleaming car parts and sex symbols. Some of them landed on album covers.`\
 https://nytimes.com/2025/07/19/arts/peter-phillips-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
 **Ronald Acuña Jr.'s jaw-dropping double play throw channels ‘Roberto Clemente’**\
 `Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
 https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
-
-**Barcelona advancing with move to sign Rashford from Man Utd**\
-`The idea has been agreed to by United and although it is not yet a done deal, talks between all parties are now at the final stages.`\
-https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
 
