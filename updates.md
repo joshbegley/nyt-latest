@@ -1,3 +1,7 @@
+**Cyclist and Pedestrian Killed After Vehicle Jumps Curb in Manhattan**\
+`The car had been traveling west on the Manhattan Bridge before it struck the victims at the base of the bridge in Chinatown early Saturday morning.`\
+https://nytimes.com/2025/07/19/nyregion/manhattan-bridge-crash.html
+
 **Why Fireflies Seem to Be Everywhere This Summer**\
 `Text by Taylor Robinson and Yuvraj Khanna`\
 https://nytimes.com/card/2025/07/19/nyregion/fireflies-summer
