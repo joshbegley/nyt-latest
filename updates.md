@@ -1,3 +1,7 @@
+**Open Championship 2025 Round 3: What to know as Scottie Scheffler nears a win**\
+`With a victory, Scheffler would be just the fourth player in golf history to win the Masters, PGA and Open all before age 30.`\
+https://nytimes.com/athletic/6503922/2025/07/19/open-championship-2025-round-3-what-to-know-scottie-scheffler/
+
 **Nationals sign No. 1 pick Eli Willits**\
 `Willits was the youngest player in the draft and the team's third No. 1 selection since moving to Washington D.C. in 2005.`\
 https://nytimes.com/athletic/6503061/2025/07/19/washington-nationals-sign-first-pick-eli-willits/
