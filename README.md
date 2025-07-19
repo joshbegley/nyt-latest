@@ -1,3 +1,11 @@
+**Overlooked No More: Polina Gelman: Fearless ‘Night Witch’ Who Haunted Nazi Troops**\
+`She was a navigator with an all-female unit of Soviet aviators who attacked German troops at night, whooshing in wooden planes like witches on broomsticks.`\
+https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
+
+**Great Britain dominate SailGP leaderboard after day one of Portsmouth event**\
+`The British crew were the only team to get all their scores in the top three of each of today’s four short races`\
+https://nytimes.com/athletic/6503865/2025/07/19/sailgp-race-portsmouth-great-britain/
+
 **Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set pieces**\
 `Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
 https://nytimes.com/athletic/6503759/2025/07/19/reading-v-spurs-kudus-vuskovic-frank/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/19/arts/music/roger-norrington-dead.html
 **At Least 34 Dead After Vietnam Tourist Boat Capsizes, State Media Says**\
 `The boat, carrying 48 passengers and five crew members, was on a sightseeing tour of Ha Long Bay when a sudden storm caused it to overturn, state media said. At least 10 people were rescued.`\
 https://nytimes.com/2025/07/19/world/asia/vietnam-tourist-boat-capsizes.html
-
-**Inside the Long Friendship Between Trump and Epstein**\
-`For nearly 15 years, the two men socialized together in Manhattan and Palm Beach, Fla., before a falling out that preceded Mr. Epstein’s first arrest.`\
-https://nytimes.com/2025/07/19/us/politics/inside-trump-epstein-friendship.html
-
-**Mike Johnson Would Like You to Know About His Subservience**\
-`The speaker comes in with a strong entry in the sycophancy sweepstakes.`\
-https://nytimes.com/2025/07/19/opinion/mike-johnson-trump-approval-rating.html
 

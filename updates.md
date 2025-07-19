@@ -1,3 +1,7 @@
+**Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set pieces**\
+`Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
+https://nytimes.com/athletic/6503759/2025/07/19/reading-v-spurs-kudus-vuskovic-frank/
+
 **Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set-pieces**\
 `Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
 https://nytimes.com/athletic/6503759/2025/07/19/reading-v-spurs-kudus-vuskovic-frank/
