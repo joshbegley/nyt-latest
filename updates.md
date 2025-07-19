@@ -1,3 +1,7 @@
+**A Kite Surfer, Navy SEAL and Makeup Artist: Freed in a U.S.-Venezuela Swap**\
+`Over 260 people were released from prisons in El Salvador and Venezuela. Now they face the challenge of coming home.`\
+https://nytimes.com/2025/07/19/world/americas/venezuela-us-prisoner-swap-families.html
+
 **Open Championship 2025 Round 3: What to know as Scottie Scheffler nears a win**\
 `With a victory, Scheffler would be just the fourth player in golf history to win the Masters, PGA and Open all before age 30.`\
 https://nytimes.com/athletic/6503922/2025/07/19/open-championship-2025-round-3-what-to-know-scottie-scheffler/
