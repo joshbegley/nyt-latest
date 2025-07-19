@@ -1,3 +1,11 @@
+**'You can't just trade everyone': Phillies owner John Middleton talks trade deadline**\
+`Middleton noted that Dave Dombrowski is "always aggressive" and said the team would love to re-sign Kyle Schwarber.`\
+https://nytimes.com/athletic/6503211/2025/07/18/phillies-trade-deadline-john-middleton/
+
+**Bill Dellinger, Runner and Track Coach Who Mentored Stars, Dies at 91**\
+`After running the 5,000 meters in three Olympics, he coached the likes of Steve Prefontaine and Joaquim Cruz at his alma mater, the University of Oregon.`\
+https://nytimes.com/2025/07/18/sports/bill-dellinger-dead.html
+
 **Chargers training camp: Daiyan Henley shows why teammates believe he can be All-Pro**\
 `It took Henley 32 games to intercept his first NFL pass. It took him just two days to come away with his first pick of 2025 training camp.`\
 https://nytimes.com/athletic/6503277/2025/07/18/chargers-daiyan-henley-training-camp-report/
