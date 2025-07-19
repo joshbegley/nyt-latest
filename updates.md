@@ -1,3 +1,11 @@
+**Inside the Long Friendship Between Trump and Epstein**\
+`For nearly 15 years, the two men socialized together in Manhattan and Palm Beach, Fla., before a falling out that preceded Mr. Epstein’s first arrest.`\
+https://nytimes.com/2025/07/19/us/politics/inside-trump-epstein-friendship.html
+
+**Mike Johnson Would Like You to Know About His Subservience**\
+`The speaker comes in with a strong entry in the sycophancy sweepstakes.`\
+https://nytimes.com/2025/07/19/opinion/mike-johnson-trump-approval-rating.html
+
 **Cyclist and Pedestrian Killed After Vehicle Jumps Curb in Manhattan**\
 `The car had been traveling west on the Manhattan Bridge before it struck the victims at the base of the bridge in Chinatown early Saturday morning.`\
 https://nytimes.com/2025/07/19/nyregion/manhattan-bridge-crash.html
