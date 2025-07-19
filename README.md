@@ -1,3 +1,7 @@
+**Thibaut Courtois signs new two-year Madrid contract**\
+`The 33-year-old's deal marks a significant departure from Madrid’s policy of giving players over 30 year-to-year deals.`\
+https://nytimes.com/athletic/6503501/2025/07/19/thibaut-courtois-real-madrid-contract/
+
 **England 'optimistic' Williamson will be available for Euros semi-final**\
 `Williamson was forced off at half-time of extra-time in England's dramatic penalty shootout win over Sweden after rolling her ankle.`\
 https://nytimes.com/athletic/6503514/2025/07/19/leah-williamson-england-euros-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6482380/2025/07/19/sean-longstaff-leeds-transfer-an
 **The ‘Little Epstein Theory’ vs. ‘Big Epstein Theory’**\
 `“The Opinions” round table discusses Trump and MAGA’s very bad week.`\
 https://nytimes.com/2025/07/19/opinion/epstein-investigation-trump-supreme-court.html
-
-**Has the Death of the Novel Been Greatly Exaggerated?**\
-`Readers respond to a column by David Brooks.`\
-https://nytimes.com/2025/07/19/opinion/novel-decline-publishing.html
 
