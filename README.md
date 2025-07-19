@@ -1,4 +1,28 @@
-**Marcus Smart, Wizards near buyout, Lakers are likeliest destination: Source**\
+**Phillies place Alec Bohm on injured list with fractured left rib**\
+`Philadelphia's third baseman got hit by a pitch on July 12 against the Padres. He's the second Phillie to fracture a rib this season.`\
+https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
+
+**Pet Owner Flooded With Puzzling Calls About a Lost Cat While Hers Is Safely at Home**\
+`Natasha Lavoie’s phone number appeared on a T-shirt sold online that advertised a fictitious missing cat. She can’t stop the calls from coming.`\
+https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
+
+**The Briefing: France 1 Germany 1 ( 5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
+`How Germany advanced to face Spain in the Euro 2025 semi-finals, led by Ann-Katrin Berger `\
+https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
+
+**New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
+`He’s the type of player who can cause a championship to feel like it’s over simply by the way he approaches each new task in front of him.`\
+https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-championship-links-golf/
+
+**Ten Point Spread**\
+`You can always bet on a Michael Schlossberg puzzle to provide a good workout.`\
+https://nytimes.com/2025/07/19/crosswords/daily-puzzle-2025-07-20.html
+
+**Ruthless Usyk stops Dubois in fifth round to reclaim undisputed crown**\
+`All week Usyk has been telling reporters that at 38, he is not an “old guy” and on Saturday night he proved it.`\
+https://nytimes.com/athletic/6504037/2025/07/19/usyk-dubois-fight-heavyweight-boxing-undisputed/
+
+**Marcus Smart, Wizards reach buyout, Lakers are likeliest destination: Source**\
 `The Wizards traded for Smart last season, and he, by all accounts, provided a positive example to the team’s younger players.`\
 https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lakers-destination/
 
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6499475/2025/07/19/hugo-ekitike-liverpool-transfer/
 **A Kite Surfer, Navy SEAL and Makeup Artist: Freed in a U.S.-Venezuela Swap**\
 `Over 260 people were released from prisons in El Salvador and Venezuela. Now they face the challenge of coming home.`\
 https://nytimes.com/2025/07/19/world/americas/venezuela-us-prisoner-swap-families.html
-
-**Open Championship 2025 Round 3: What to know as Scottie Scheffler nears a win**\
-`With a victory, Scheffler would be just the fourth player in golf history to win the Masters, PGA and Open all before age 30.`\
-https://nytimes.com/athletic/6503922/2025/07/19/open-championship-2025-round-3-what-to-know-scottie-scheffler/
-
-**Nationals sign No. 1 pick Eli Willits**\
-`Willits was the youngest player in the draft and the team's third No. 1 selection since moving to Washington D.C. in 2005.`\
-https://nytimes.com/athletic/6503061/2025/07/19/washington-nationals-sign-first-pick-eli-willits/
-
-**The Pelicot Trial Returns, This Time to the Stage**\
-`Many of those who attended the trial returned to see a new play based on the case of Gisèle Pelicot, who confronted her ex-husband and dozens of men accused of raping her.`\
-https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
-
-**The Pulse: Aew money battle emerges in the NFL**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6503441/2025/07/19/how-a-new-money-battle-emerged-in-the-nfl-plus-scottie-chases-history/
-
-**Overlooked No More: Polina Gelman: Fearless ‘Night Witch’ Who Haunted Nazi Troops**\
-`She was a navigator with an all-female unit of Soviet aviators who attacked German troops at night, whooshing in wooden planes like witches on broomsticks.`\
-https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
-
-**Great Britain dominate SailGP leaderboard after day one of Portsmouth event**\
-`The British crew were the only team to get all their scores in the top three of each of today’s four short races`\
-https://nytimes.com/athletic/6503865/2025/07/19/sailgp-race-portsmouth-great-britain/
 
