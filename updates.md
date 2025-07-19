@@ -1,3 +1,15 @@
+**The Pelicot Trial Returns, This Time to the Stage**\
+`Many of those who attended the trial returned to see a new play based on the case of Gisèle Pelicot, who confronted her ex-husband and dozens of men accused of raping her.`\
+https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
+
+**The Pulse: Aew money battle emerges in the NFL**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6503441/2025/07/19/how-a-new-money-battle-emerged-in-the-nfl-plus-scottie-chases-history/
+
+**Celtic 4 Newcastle United 0: Where was Isak? How did Elanga play? How worrying was defeat?**\
+`Newcastle lost 4-0 to Scottish champions Celtic - but how bad was it? And where was Alexander Isak?`\
+https://nytimes.com/athletic/6503473/2025/07/19/celtic-newcastle-result-howe-isak-transfer/
+
 **Overlooked No More: Polina Gelman: Fearless ‘Night Witch’ Who Haunted Nazi Troops**\
 `She was a navigator with an all-female unit of Soviet aviators who attacked German troops at night, whooshing in wooden planes like witches on broomsticks.`\
 https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
