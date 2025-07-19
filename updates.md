@@ -1,3 +1,15 @@
+**Bills training camp 2025 cornerback preview: Old and new faces arrive in position shakeup**\
+`The Bills put a lot into reshaping their cornerback room this offseason.`\
+https://nytimes.com/athletic/6387910/2025/07/19/buffalo-bills-training-camp-preview-2025-cornerback/
+
+**Wall Street Wants to Make Private Markets a Little More Public**\
+`As value grows in private markets, fund managers, brokerage houses, and savvy start-ups are building products that aim to expand access to them.`\
+https://nytimes.com/2025/07/19/business/dealbook/private-market-boom.html
+
+**2 Books for Birthday Introspection**\
+`A novel of adolescent friendship; a brooding celebrity memoir.`\
+https://nytimes.com/2025/07/19/books/2-books-for-birthday-introspection.html
+
 **Thibaut Courtois signs new two-year Madrid contract**\
 `The 33-year-old's deal marks a significant departure from Madrid’s policy of giving players over 30 year-to-year deals.`\
 https://nytimes.com/athletic/6503501/2025/07/19/thibaut-courtois-real-madrid-contract/
