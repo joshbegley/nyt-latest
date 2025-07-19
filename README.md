@@ -1,3 +1,7 @@
+**Luka Dončić has been recruiting for Lakers ahead of extension decision**\
+`Dončić helped secure commitments from Deandre Ayton and Marcus Smart after both unexpectedly hit free agency via contract buyouts.`\
+https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-extension-decision/
+
 **How Anti-Immigrant Riots in Northern Ireland started**\
 `For weeks, there has been a drumbeat of anti-immigrant episodes in Northern Ireland. Ali Watkins, a reporter for The New York Times based in Belfast, describes what she’s seen covering these events to Katrin Bennhold, a senior writer on the international desk.`\
 https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-in-northern-ireland-started.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-champions
 **Ten Point Spread**\
 `You can always bet on a Michael Schlossberg puzzle to provide a good workout.`\
 https://nytimes.com/2025/07/19/crosswords/daily-puzzle-2025-07-20.html
-
-**Ruthless Usyk stops Dubois in fifth round to reclaim undisputed crown**\
-`All week Usyk has been telling reporters that at 38, he is not an “old guy” and on Saturday night he proved it.`\
-https://nytimes.com/athletic/6504037/2025/07/19/usyk-dubois-fight-heavyweight-boxing-undisputed/
 
