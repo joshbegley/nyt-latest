@@ -1,3 +1,11 @@
+**Wilfried Gnonto interview: 'I probably have something to prove in the Premier League'**\
+`Two years after relegation and an infamous stand-off, the Italian is back in the top flight - and determined to right some wrongs`\
+https://nytimes.com/athletic/6502079/2025/07/19/gnonto-interview-leeds/
+
+**The 15 United players who need a good pre-season**\
+`The countdown to 2025-26 begins in earnest this weekend with Ruben Amorim's men in Stockholm for a friendly against Leeds`\
+https://nytimes.com/athletic/6493251/2025/07/19/manchester-united-players-pre-season-analysis/
+
 **The Phillies, searching for power, found it Friday with 3 home runs. They still lost.**\
 `After Friday and a career day against the Giants before the All-Star break, it feels like Bryce Harper has found his groove again. `\
 https://nytimes.com/athletic/6503354/2025/07/19/phillies-searching-for-power-bryce-harper/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/19/arts/design/cezanne-2025-aix-en-provence.html
 **Japan’s Prime Minister Faces Jeopardy in a National Election: What to Know**\
 `Shigeru Ishiba of the long-governing Liberal Democratic Party could face calls to resign if his party fares poorly in Sunday’s Upper House elections.`\
 https://nytimes.com/2025/07/19/world/asia/japan-election.html
-
-**Tear It Down, They Said. He Just Kept Building.**\
-`Defying demolition orders, a Chinese man turned his home into a rickety 11-story tower. Now tourists are coming.`\
-https://nytimes.com/2025/07/19/world/asia/china-demolition-house.html
-
-**As Japan Votes, a Trump-Inspired Politician Grabs the Spotlight**\
-`With his calls to limit foreign workers, fight globalism and put “Japanese First,” Sohei Kamiya has brought a fiery right-wing populism to Japan’s election on Sunday.`\
-https://nytimes.com/2025/07/19/world/asia/japan-election-sohei-kamiya.html
 
