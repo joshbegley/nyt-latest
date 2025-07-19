@@ -1,3 +1,7 @@
+**Chargers training camp: Daiyan Henley shows why teammates believe he can be All-Pro**\
+`It took Henley 32 games to intercept his first NFL pass. It took him just two days to come away with his first pick of 2025 training camp.`\
+https://nytimes.com/athletic/6503277/2025/07/18/chargers-daiyan-henley-training-camp-report/
+
 **Shannon Sharpe settles rape lawsuit that sought $50 million in damages**\
 `Sharpe publicly denied the allegations immediately after his accuser filed the suit in April, calling the case a "shakedown" attempt.`\
 https://nytimes.com/athletic/6503264/2025/07/18/shannon-sharpe-settles-rape-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/gabbard-obama-trump-russia.html
 **Copa América Femenina alters practice rules following Brazil outcry**\
 `The tournament previously required players to warm up in a small, indoor area alongside their opponents, frustrating players and coaches.`\
 https://nytimes.com/athletic/6503214/2025/07/18/copa-america-femenina-practice-rule-changes-brazil/
-
-**'You can't just trade everyone': Phillies owner John Middleton talks trade deadline**\
-`Middleton noted that Dave Dombrowski is "always aggressive" and said the team would love to re-sign Kyle Schwarber.`\
-https://nytimes.com/athletic/6503211/2025/07/18/phillies-trade-deadline-john-middleton/
 
