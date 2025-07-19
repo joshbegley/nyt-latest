@@ -1,3 +1,11 @@
+**Can Scottie Scheffler lose this Open Championship?**\
+`Scheffler has been so unrepentant in his dominance that all involved are resigned to the inevitable.`\
+https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheffler/
+
+**Fire at Massachusetts Assisted Living Facility Claims a 10th Life**\
+`Brenda Cropper, 66, died at a hospital after being in critical condition all week after the fire erupted on Sunday, officials said.`\
+https://nytimes.com/2025/07/19/us/10th-death-assisted-living.html
+
 **Phillies place Alec Bohm on injured list with fractured left rib**\
 `Philadelphia's third baseman got hit by a pitch on July 12 against the Padres. He's the second Phillie to fracture a rib this season.`\
 https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
 `Natasha Lavoie’s phone number appeared on a T-shirt sold online that advertised a fictitious missing cat. She can’t stop the calls from coming.`\
 https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
 
-**The Briefing: France 1 Germany 1 ( 5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
+**The Briefing: France 1 Germany 1 (5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
 `How Germany advanced to face Spain in the Euro 2025 semi-finals, led by Ann-Katrin Berger `\
 https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
 
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lake
 **Liverpool reach outline of agreement with Frankfurt over Ekitike transfer**\
 `The 23-year-old registered 22 goals and 12 assists last term for Eintracht and was named in the Bundesliga team of the season.`\
 https://nytimes.com/athletic/6499475/2025/07/19/hugo-ekitike-liverpool-transfer/
-
-**A Kite Surfer, Navy SEAL and Makeup Artist: Freed in a U.S.-Venezuela Swap**\
-`Over 260 people were released from prisons in El Salvador and Venezuela. Now they face the challenge of coming home.`\
-https://nytimes.com/2025/07/19/world/americas/venezuela-us-prisoner-swap-families.html
 
