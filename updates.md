@@ -1,3 +1,11 @@
+**Leeds finalising deal to sign midfielder Stach from Hoffenheim**\
+`Stach has made 74 appearances for Hoffenheim since joining in 2023 from Bundesliga rivals Mainz, where he spent three seasons.`\
+https://nytimes.com/athletic/6497337/2025/07/19/leeds-transfers-anton-stach-hoffenheim/
+
+**Ronald Acuña Jr.'s jaw-dropping double play throw channels ‘Roberto Clemente’**\
+`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
+https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
+
 **Ronald Acuña Jr. makes perfect play, Braves' Austin Riley gives rehab update**\
 `Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
 https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/

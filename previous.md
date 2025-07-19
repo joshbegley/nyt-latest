@@ -1,3 +1,7 @@
+**Leeds finalising deal to sign midfielder Stach from Hoffenheim**\
+`Stach has made 74 appearances for Hoffenheim since joining in 2023 from Bundesliga rivals Mainz, where he spent three seasons.`\
+https://nytimes.com/athletic/6497337/2025/07/19/leeds-transfers-anton-stach-hoffenheim/
+
 **Isak not in squad for Newcastle's first pre-season game, club insist minutes are being managed**\
 `The 25-year-old has been the subject of interest from Liverpool though Newcastle have repeatedly insisted that he is not for sale.`\
 https://nytimes.com/athletic/6503598/2025/07/19/alexander-isak-newcastle-pre-season-squad/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/19/opinion/benson-boone-crumbl-cookie-culture.html
 `Relatives of the Jeju Air disaster victims objected to the report in a stormy scene at a news conference, complaining that it blamed the pilots prematurely.`\
 https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
 
-**Ronald Acuña Jr. makes perfect play, Braves' Austin Riley gives rehab update**\
+**Ronald Acuña Jr.'s jaw-dropping double play throw channels ‘Roberto Clemente’**\
 `Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
 https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/business/dealbook/private-market-boom.html
 **2 Books for Birthday Introspection**\
 `A novel of adolescent friendship; a brooding celebrity memoir.`\
 https://nytimes.com/2025/07/19/books/2-books-for-birthday-introspection.html
-
-**Thibaut Courtois signs new two-year Madrid contract**\
-`The 33-year-old's deal marks a significant departure from Madrid’s policy of giving players over 30 year-to-year deals.`\
-https://nytimes.com/athletic/6503501/2025/07/19/thibaut-courtois-real-madrid-contract/
 
