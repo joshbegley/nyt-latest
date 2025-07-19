@@ -1,3 +1,7 @@
+**At Least 34 Dead After Vietnam Tourist Boat Capsizes, State Media Says**\
+`The boat, carrying 48 passengers and five crew members, was on a sightseeing tour of Ha Long Bay when a sudden storm caused it to overturn, state media said. At least 10 people were rescued.`\
+https://nytimes.com/2025/07/19/world/asia/vietnam-tourist-boat-capsizes.html
+
 **Inside the Long Friendship Between Trump and Epstein**\
 `For nearly 15 years, the two men socialized together in Manhattan and Palm Beach, Fla., before a falling out that preceded Mr. Epstein’s first arrest.`\
 https://nytimes.com/2025/07/19/us/politics/inside-trump-epstein-friendship.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503623/2025/07/19/leeds-united-0-manchester-united
 **Nigella Lawson’s Blueberry Polenta Upside-Down Cake**\
 `Upside-down cakes are the best cakes, and this simple, summery treat is a perfect example of the form.`\
 https://nytimes.com/2025/07/19/dining/nigella-lawsons-blueberry-polenta-upside-down-cake.html
-
-**Leeds finalising deal to sign midfielder Stach from Hoffenheim**\
-`Stach has made 74 appearances for Hoffenheim since joining in 2023 from Bundesliga rivals Mainz, where he spent three seasons.`\
-https://nytimes.com/athletic/6497337/2025/07/19/leeds-transfers-anton-stach-hoffenheim/
 
