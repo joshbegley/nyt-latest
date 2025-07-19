@@ -1,3 +1,7 @@
+**Red Sox snap 10-game win streak as 'bad decision' on bases squashes rally**\
+`"I have to put the blame on me," Abraham Toro said. "Being thrown out on a double play, that kills rallies."`\
+https://nytimes.com/athletic/6503186/2025/07/18/red-sox-end-10-game-win-streak-cubs/
+
 **Man Who Was Pulled Into M.R.I. Machine Has Died, Police Say**\
 `The man, who, without authorization, entered the room wearing a metal necklace during a scan, died a day after he was critically injured, the authorities said.`\
 https://nytimes.com/2025/07/18/health/mri-death-long-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/18/us/politics/epstein-grand-jury-what-to-know.html
 **New York Agrees to Settle Ex-Cuomo Aide’s Harassment Claims for $450,000**\
 `The former executive aide, Brittany Commisso, accused Andrew M. Cuomo of groping her when he was governor. The state did not admit wrongdoing.`\
 https://nytimes.com/2025/07/18/nyregion/brittany-commisso-andrew-cuomo-settlement.html
-
-**Blue Jays sign first-round pick JoJo Parker to under-slot deal: Source**\
-`The high school shortstop will receive a $6.2 million signing bonus, below his projected slot value of $6.81 million.`\
-https://nytimes.com/athletic/6503231/2025/07/18/blue-jays-sign-first-round-pick-jojo-parker/
 

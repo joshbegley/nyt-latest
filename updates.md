@@ -1,3 +1,7 @@
+**Man Who Was Pulled Into M.R.I. Machine Has Died, Police Say**\
+`The man, who, without authorization, entered the room wearing a metal necklace during a scan, died a day after he was critically injured, the authorities said.`\
+https://nytimes.com/2025/07/18/health/mri-death-long-island.html
+
 **Plane Is Diverted After Man Threatens to Kill Flight Attendant, Authorities Say**\
 `The jet, bound for Detroit from Omaha, made an emergency landing in Cedar Rapids, Iowa, after a man shoved a flight attendant and displayed unruly behavior, SkyWest Airlines said.`\
 https://nytimes.com/2025/07/18/us/flight-detroit-nebraska-iowa-man-arrested-assault.html
