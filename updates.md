@@ -1,3 +1,7 @@
+**Roger Norrington, Iconoclastic British Conductor, Dies at 91**\
+`His work, largely unknown outside Britain until late in his career, was often based on historical treatises. It was seen by many as refreshingly innovative.`\
+https://nytimes.com/2025/07/19/arts/music/roger-norrington-dead.html
+
 **At Least 34 Dead After Vietnam Tourist Boat Capsizes, State Media Says**\
 `The boat, carrying 48 passengers and five crew members, was on a sightseeing tour of Ha Long Bay when a sudden storm caused it to overturn, state media said. At least 10 people were rescued.`\
 https://nytimes.com/2025/07/19/world/asia/vietnam-tourist-boat-capsizes.html

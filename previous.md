@@ -1,3 +1,7 @@
+**Roger Norrington, Iconoclastic British Conductor, Dies at 91**\
+`His work, largely unknown outside Britain until late in his career, was often based on historical treatises. It was seen by many as refreshingly innovative.`\
+https://nytimes.com/2025/07/19/arts/music/roger-norrington-dead.html
+
 **At Least 34 Dead After Vietnam Tourist Boat Capsizes, State Media Says**\
 `The boat, carrying 48 passengers and five crew members, was on a sightseeing tour of Ha Long Bay when a sudden storm caused it to overturn, state media said. At least 10 people were rescued.`\
 https://nytimes.com/2025/07/19/world/asia/vietnam-tourist-boat-capsizes.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010294931/los-angles-club-car.html
 **Leeds United 0 Manchester United 0: How did Cunha fare? What did we learn about Amorim plans?**\
 `Manchester United drew 0-0 in their pre-season friendly with Leeds United. But what did we learn about the new signings and Amorim's team?`\
 https://nytimes.com/athletic/6503623/2025/07/19/leeds-united-0-manchester-united-0-how-did-cunha-fare-what-did-we-learn-about-amorim-plans/
-
-**Nigella Lawson’s Blueberry Polenta Upside-Down Cake**\
-`Upside-down cakes are the best cakes, and this simple, summery treat is a perfect example of the form.`\
-https://nytimes.com/2025/07/19/dining/nigella-lawsons-blueberry-polenta-upside-down-cake.html
 
