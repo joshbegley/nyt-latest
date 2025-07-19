@@ -1,3 +1,7 @@
+**Leeds United 0 Manchester United 0: How did Cunha fare? What did we learn about Amorim plans?**\
+`Manchester United drew 0-0 in their pre-season friendly with Leeds United. But what did we learn about the new signings and Amorim's team?`\
+https://nytimes.com/athletic/6503623/2025/07/19/leeds-united-0-manchester-united-0-how-did-cunha-fare-what-did-we-learn-about-amorim-plans/
+
 **Nigella Lawson’s Blueberry Polenta Upside-Down Cake**\
 `Upside-down cakes are the best cakes, and this simple, summery treat is a perfect example of the form.`\
 https://nytimes.com/2025/07/19/dining/nigella-lawsons-blueberry-polenta-upside-down-cake.html
