@@ -1,3 +1,7 @@
+**How Anti-Immigrant Riots in Northern Ireland started**\
+`For weeks, there has been a drumbeat of anti-immigrant episodes in Northern Ireland. Ali Watkins, a reporter for The New York Times based in Belfast, describes what she’s seen covering these events to Katrin Bennhold, a senior writer on the international desk.`\
+https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-in-northern-ireland-started.html
+
 **Why the Clippers are counting on a Bradley Beal bounce-back after Phoenix stint**\
 `With the addition of Beal, Lawrence Frank believes the Clippers have what it takes to win a playoff series for the first time in five years.`\
 https://nytimes.com/athletic/6504016/2025/07/19/clippers-counting-on-bradley-beal-bounce-back/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
 https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
 
 **The Briefing: France 1 Germany 1 (5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
-`How Germany advanced to face Spain in the Euro 2025 semi-finals, led by Ann-Katrin Berger `\
+`How Germany advanced to face Spain in the Euro 2025 semi-finals, led by goalkeeper Ann-Katrin Berger `\
 https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
 
 **New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/crosswords/daily-puzzle-2025-07-20.html
 **Ruthless Usyk stops Dubois in fifth round to reclaim undisputed crown**\
 `All week Usyk has been telling reporters that at 38, he is not an “old guy” and on Saturday night he proved it.`\
 https://nytimes.com/athletic/6504037/2025/07/19/usyk-dubois-fight-heavyweight-boxing-undisputed/
-
-**Marcus Smart, Wizards reach buyout, Lakers are likeliest destination: Source**\
-`The Wizards traded for Smart last season, and he, by all accounts, provided a positive example to the team’s younger players.`\
-https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lakers-destination/
 

@@ -1,3 +1,7 @@
+**Why the Clippers are counting on a Bradley Beal bounce-back after Phoenix stint**\
+`With the addition of Beal, Lawrence Frank believes the Clippers have what it takes to win a playoff series for the first time in five years.`\
+https://nytimes.com/athletic/6504016/2025/07/19/clippers-counting-on-bradley-beal-bounce-back/
+
 **Can Scottie Scheffler lose this Open Championship?**\
 `Scheffler has been so unrepentant in his dominance that all involved are resigned to the inevitable.`\
 https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheffler/
