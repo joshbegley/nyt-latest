@@ -1,3 +1,7 @@
+**Syria Declares Cease-Fire After a Week of Upheaval**\
+`The government announcement came hours after a top U.S. envoy to the region said that the country and Israel had agreed to a truce after sectarian-tinged clashes had left hundreds dead.`\
+https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html
+
 **Bills training camp 2025 cornerback preview: Old and new faces arrive in position shakeup**\
 `The Bills put a lot into reshaping their cornerback room this offseason.`\
 https://nytimes.com/athletic/6387910/2025/07/19/buffalo-bills-training-camp-preview-2025-cornerback/
