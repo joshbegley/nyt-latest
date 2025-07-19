@@ -1,3 +1,7 @@
+**Open Season**\
+`The popular notions of summer fun and the things we actually feel like doing can sometimes be at odds with each other.`\
+https://nytimes.com/2025/07/19/briefing/open-season.html
+
 **More Than 20 Injured in Los Angeles as Vehicle Drives Into Crowd**\
 `At least four people were in critical condition, the Los Angeles Fire Department said early Saturday.`\
 https://nytimes.com/2025/07/19/us/los-angeles-vehicle-crowd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/world/canada/a-rescue-center-for-small-wild-anima
 **Wordle Review No. 1,492**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 20, 2025.`\
 https://nytimes.com/2025/07/19/crosswords/wordle-review-1492.html
-
-**Strands Sidekick No. 504**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 20, 2025.`\
-https://nytimes.com/2025/07/19/crosswords/strands-sidekick-504.html
 

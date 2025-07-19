@@ -1,3 +1,7 @@
+**Open Season**\
+`The popular notions of summer fun and the things we actually feel like doing can sometimes be at odds with each other.`\
+https://nytimes.com/2025/07/19/briefing/open-season.html
+
 **More Than 20 Injured in Los Angeles as Vehicle Drives Into Crowd**\
 `At least four people were in critical condition, the Los Angeles Fire Department said early Saturday.`\
 https://nytimes.com/2025/07/19/us/los-angeles-vehicle-crowd.html
