@@ -1,3 +1,7 @@
+**‘Coldplaygate’ Is a Stark Reminder That Cameras Are Everywhere**\
+`A video from a concert dominated internet discourse as people joked about a man and woman who appeared very upset to be shown on camera.`\
+https://nytimes.com/2025/07/18/style/coldplay-andy-byron-astronomer-video.html
+
 **Grading WNBA All-Star contests: Sabrina Ionescu's 3-point performance sets high bar**\
 `Ben Pickman grades every participant in Indianapolis' skills challenge and 3-point contest.`\
 https://nytimes.com/athletic/6503335/2025/07/18/wnba-all-star-3-point-contest-sabrina-ionescu-grades/
