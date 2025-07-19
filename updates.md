@@ -1,3 +1,11 @@
+**Yankees' first game after All-Star break shows the severity of their trade deadline needs**\
+`The issues at third base were glaring in New York's first game after the break. Having to go with a bullpen game wasn't a good sign, either.`\
+https://nytimes.com/athletic/6503272/2025/07/19/yankees-trade-deadline-pitching-third-base/
+
+**Noni Madueke to Arsenal: Everything you need to know – TLDR**\
+`Arsenal have signed forward Noni Madueke from London rivals Chelsea - here, we break down the deal.`\
+https://nytimes.com/athletic/6483782/2025/07/19/noni-madueke-arsenal-transfer-details/
+
 **Wilfried Gnonto interview: 'I probably have something to prove in the Premier League'**\
 `Two years after relegation and an infamous stand-off, the Italian is back in the top flight - and determined to right some wrongs`\
 https://nytimes.com/athletic/6502079/2025/07/19/gnonto-interview-leeds/

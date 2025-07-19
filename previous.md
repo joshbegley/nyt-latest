@@ -1,3 +1,11 @@
+**Yankees' first game after All-Star break shows the severity of their trade deadline needs**\
+`The issues at third base were glaring in New York's first game after the break. Having to go with a bullpen game wasn't a good sign, either.`\
+https://nytimes.com/athletic/6503272/2025/07/19/yankees-trade-deadline-pitching-third-base/
+
+**Noni Madueke to Arsenal: Everything you need to know – TLDR**\
+`Arsenal have signed forward Noni Madueke from London rivals Chelsea - here, we break down the deal.`\
+https://nytimes.com/athletic/6483782/2025/07/19/noni-madueke-arsenal-transfer-details/
+
 **Wilfried Gnonto interview: 'I probably have something to prove in the Premier League'**\
 `Two years after relegation and an infamous stand-off, the Italian is back in the top flight - and determined to right some wrongs`\
 https://nytimes.com/athletic/6502079/2025/07/19/gnonto-interview-leeds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6501670/2025/07/19/andy-carroll-dagenham-and-redbri
 **How Olivia Smith became a £1m player: 'You didn't have to be a soccer person to understand'**\
 `Former coaches and scouts of Smith reflect on her undeniable and irrepressible talent growing up, and why a big move was never in doubt`\
 https://nytimes.com/athletic/6501574/2025/07/19/olivia-smith-most-expensive-player-development-arsenal/
-
-**Playing Hide-and-Seek With Cézanne in His Hometown**\
-`Thousands of tourists are descending on Aix-en-Provence, France, with the aim of knowing the elusive painter better.`\
-https://nytimes.com/2025/07/19/arts/design/cezanne-2025-aix-en-provence.html
-
-**Japan’s Prime Minister Faces Jeopardy in a National Election: What to Know**\
-`Shigeru Ishiba of the long-governing Liberal Democratic Party could face calls to resign if his party fares poorly in Sunday’s Upper House elections.`\
-https://nytimes.com/2025/07/19/world/asia/japan-election.html
 

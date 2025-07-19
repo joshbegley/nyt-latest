@@ -1,3 +1,7 @@
+**Trump Order on International Criminal Court Likely Violates First Amendment, Judge Rules**\
+`The ruling’s scope is limited to two American activists, but it represents a striking, if tentative, blow to the president’s efforts to penalize and isolate the world’s highest criminal court.`\
+https://nytimes.com/2025/07/19/us/politics/trump-international-criminal-court-ruling.html
+
 **Yankees' first game after All-Star break shows the severity of their trade deadline needs**\
 `The issues at third base were glaring in New York's first game after the break. Having to go with a bullpen game wasn't a good sign, either.`\
 https://nytimes.com/athletic/6503272/2025/07/19/yankees-trade-deadline-pitching-third-base/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501981/2025/07/19/dave-brailsford-ineos-tour-de-fr
 **'This is a project, on and off the pitch' - Why Andy Carroll has joined Dagenham & Redbridge**\
 `Having spent two years in France's lower leagues, the ex-England striker has returned to familiar pastures at 36 - relatively speaking...`\
 https://nytimes.com/athletic/6501670/2025/07/19/andy-carroll-dagenham-and-redbridge/
-
-**How Olivia Smith became a £1m player: 'You didn't have to be a soccer person to understand'**\
-`Former coaches and scouts of Smith reflect on her undeniable and irrepressible talent growing up, and why a big move was never in doubt`\
-https://nytimes.com/athletic/6501574/2025/07/19/olivia-smith-most-expensive-player-development-arsenal/
 
