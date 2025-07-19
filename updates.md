@@ -1,3 +1,15 @@
+**Trump Sues Wall Street Journal for Article on Note to Epstein**\
+`The lawsuit argues that The Journal falsely claimed President Trump “authored, drew and signed” a lewd birthday card to Jeffrey Epstein.`\
+https://nytimes.com/2025/07/18/business/media/trump-sues-wall-street-journal-epstein.html
+
+**Red Sox snap 10-game win streak as 'bad decision' on bases squashes rally**\
+`"I have to put the blame on me," Abraham Toro said. "Being thrown out on a double play, that kills rallies."`\
+https://nytimes.com/athletic/6503186/2025/07/18/red-sox-end-10-game-win-streak-cubs/
+
+**Bill Dellinger, Runner and Track Coach Who Mentored Stars, Dies at 91**\
+`After running the 5,000 meters in three Olympics, he coached the likes of Steve Prefontaine and Joaquim Cruz at his alma mater, the University of Oregon.`\
+https://nytimes.com/2025/07/18/sports/bill-dellinger-dead.html
+
 **Man Who Was Pulled Into M.R.I. Machine Has Died, Police Say**\
 `The man, who, without authorization, entered the room wearing a metal necklace during a scan, died a day after he was critically injured, the authorities said.`\
 https://nytimes.com/2025/07/18/health/mri-death-long-island.html
