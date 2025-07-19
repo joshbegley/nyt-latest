@@ -1,3 +1,7 @@
+**Shannon Sharpe settles rape lawsuit that sought $50 million in damages**\
+`Sharpe publicly denied the allegations immediately after his accuser filed the suit in April, calling the case a "shakedown" attempt.`\
+https://nytimes.com/athletic/6503264/2025/07/18/shannon-sharpe-settles-rape-lawsuit/
+
 **Under Trump, a New Focus for a Birth Control Program: Helping Women Get Pregnant**\
 `A little-noticed plan for an “infertility training center” signals that the administration intends to take a new approach with Title X, which has long helped low-income women access contraception.`\
 https://nytimes.com/2025/07/18/us/politics/under-trump-a-new-focus-for-a-birth-control-program-helping-women-get-pregnant.html
