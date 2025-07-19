@@ -1,3 +1,11 @@
+**Tour de France stage 14: Arensman ends INEOS drought, Evenepoel abandons, race for podium heats up**\
+`Analysis of the latest day's action in the 2025 race - a tough 183km route from Pau to Luchon-Superbagnères`\
+https://nytimes.com/athletic/6503504/2025/07/19/tour-de-france-stage-14-analysis/
+
+**Bamford told by Farke he is not part of Leeds plans for 2025-26**\
+`The England international was absent from Saturday’s friendly vs Manchester United in Stockholm and Farke revealed his decision post-match.`\
+https://nytimes.com/athletic/6503770/2025/07/19/patrick-bamford-leeds-future/
+
 **De Bruyne honoured to train in Maradona's No 10 at Napoli**\
 `De Bruyne joined Napoli as a free agent last month after a decade at Manchester City.`\
 https://nytimes.com/athletic/6503724/2025/07/19/kevin-de-bruyne-napoli-maradona/
