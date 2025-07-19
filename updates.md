@@ -1,3 +1,7 @@
+**Liberty sweep: Natasha Cloud and Sabrina Ionescu dominate WNBA All-Star Friday**\
+`Ionescu’s final score of 30 tied Allie Quigley for the second-highest in the WNBA's 3-point shootout history.`\
+https://nytimes.com/athletic/6503307/2025/07/18/liberty-cloud-ionescu-sweep-wnba-all-star-friday/
+
 **Braves start hopeful climb back to contention with win over Yankees**\
 `The Braves think they can make the postseason for the eighth consecutive time. It'll take a huge push, but Friday's win was a good start.`\
 https://nytimes.com/athletic/6503290/2025/07/18/atlanta-braves-postseason-contention-yankees/
