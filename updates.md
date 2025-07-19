@@ -1,3 +1,11 @@
+**Cram Fire Grows to Largest Wildfire in U.S. So Far This Year**\
+`The fire in Oregon ballooned to more than 95,000 acres amid shifting winds and dry air, but improved weather this weekend was expected to slow its expansion.`\
+https://nytimes.com/2025/07/19/weather/cram-fire-oregon.html
+
+**Eddie Howe 'confident' of keeping 'irreplaceable' Alexander Isak at Newcastle**\
+`Isak was left out of Newcastle's squad for their pre-season friendly defeat at Celtic on Saturday, despite being fit.`\
+https://nytimes.com/athletic/6503776/2025/07/19/eddie-howe-isak-desperate-irreplaceable/
+
 **Tour de France stage 14: Arensman ends INEOS drought, Evenepoel abandons, race for podium heats up**\
 `Analysis of the latest day's action in the 2025 race - a tough 183km route from Pau to Luchon-Superbagnères`\
 https://nytimes.com/athletic/6503504/2025/07/19/tour-de-france-stage-14-analysis/
