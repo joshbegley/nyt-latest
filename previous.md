@@ -1,3 +1,11 @@
+**Marcus Smart, Wizards near buyout, Lakers are likeliest destination: Source**\
+`The Wizards traded for Smart last season, and he, by all accounts, provided a positive example to the team’s younger players.`\
+https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lakers-destination/
+
+**Liverpool reach outline of agreement with Frankfurt over Ekitike transfer**\
+`The 23-year-old registered 22 goals and 12 assists last term for Eintracht and was named in the Bundesliga team of the season.`\
+https://nytimes.com/athletic/6499475/2025/07/19/hugo-ekitike-liverpool-transfer/
+
 **A Kite Surfer, Navy SEAL and Makeup Artist: Freed in a U.S.-Venezuela Swap**\
 `Over 260 people were released from prisons in El Salvador and Venezuela. Now they face the challenge of coming home.`\
 https://nytimes.com/2025/07/19/world/americas/venezuela-us-prisoner-swap-families.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/19/obituaries/polina-gelman-overlooked.html
 **Great Britain dominate SailGP leaderboard after day one of Portsmouth event**\
 `The British crew were the only team to get all their scores in the top three of each of today’s four short races`\
 https://nytimes.com/athletic/6503865/2025/07/19/sailgp-race-portsmouth-great-britain/
-
-**Celtic 4 Newcastle United 0: Where was Isak? How did Elanga play? How worrying was defeat?**\
-`Newcastle lost 4-0 to Scottish champions Celtic - but how bad was it? And where was Alexander Isak?`\
-https://nytimes.com/athletic/6503473/2025/07/19/celtic-newcastle-result-howe-isak-transfer/
-
-**Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set pieces**\
-`Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
-https://nytimes.com/athletic/6503759/2025/07/19/reading-v-spurs-kudus-vuskovic-frank/
 
