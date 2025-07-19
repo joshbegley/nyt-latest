@@ -1,3 +1,11 @@
+**Under Trump, a New Focus for a Birth Control Program: Helping Women Get Pregnant**\
+`A little-noticed plan for an “infertility training center” signals that the administration intends to take a new approach with Title X, which has long helped low-income women access contraception.`\
+https://nytimes.com/2025/07/18/us/politics/under-trump-a-new-focus-for-a-birth-control-program-helping-women-get-pregnant.html
+
+**Judge Orders Trump Officials to Restore Funding for Radio Free Europe**\
+`In a stern ruling, the judge rebuked the Trump administration for refusing to disburse funding that Congress had already approved.`\
+https://nytimes.com/2025/07/18/us/politics/judge-orders-trump-officials-to-restore-funding-for-radio-free-europe.html
+
 **Trump Sues Wall Street Journal for Article on Note to Epstein**\
 `The lawsuit argues that The Journal falsely claimed President Trump “authored, drew and signed” a lewd birthday card to Jeffrey Epstein.`\
 https://nytimes.com/2025/07/18/business/media/trump-sues-wall-street-journal-epstein.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6503211/2025/07/18/phillies-trade-deadline-john-mid
 **Bill Dellinger, Runner and Track Coach Who Mentored Stars, Dies at 91**\
 `After running the 5,000 meters in three Olympics, he coached the likes of Steve Prefontaine and Joaquim Cruz at his alma mater, the University of Oregon.`\
 https://nytimes.com/2025/07/18/sports/bill-dellinger-dead.html
-
-**Lloyd Howell, former NFLPA director, charged union for strip club visits: Report**\
-`According to the report, Howell charged $738.82 for a car service for one strip club visit.`\
-https://nytimes.com/athletic/6503167/2025/07/18/lloyd-howell-former-nflpa-director-charged-union-strip-club/
-
-**The Jeffrey Epstein Grand Jury Records: What Comes Next?**\
-`The records are at the center of President Trump’s effort to manage fallout from the Epstein case. But unsealing them is complex and requires a judge to sign off.`\
-https://nytimes.com/2025/07/18/us/politics/epstein-grand-jury-what-to-know.html
 
