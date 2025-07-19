@@ -1,3 +1,11 @@
+**Tour de France stage 14: Arensman ends INEOS drought, Evenepoel abandons, race for podium heats up**\
+`Analysis of the latest day's action in the 2025 race - a tough 183km route from Pau to Luchon-Superbagnères`\
+https://nytimes.com/athletic/6503504/2025/07/19/tour-de-france-stage-14-analysis/
+
+**Bamford told by Farke he is not part of Leeds plans for 2025-26**\
+`The England international was absent from Saturday’s friendly vs Manchester United in Stockholm and Farke revealed his decision post-match.`\
+https://nytimes.com/athletic/6503770/2025/07/19/patrick-bamford-leeds-future/
+
 **De Bruyne honoured to train in Maradona's No 10 at Napoli**\
 `De Bruyne joined Napoli as a free agent last month after a decade at Manchester City.`\
 https://nytimes.com/athletic/6503724/2025/07/19/kevin-de-bruyne-napoli-maradona/
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/07/19/nyregion/fireflies-summer
 **W.N.B.A.’s All-Star Weekend Is Still Buzzing, Even Without Caitlin Clark**\
 `Despite an injury that sidelined the Fever star, thousands of fans descended on festivities across Indianapolis.`\
 https://nytimes.com/2025/07/19/style/wnba-all-star-indianapolis.html
-
-**Peter Phillips, Who Was at the British Pop Art Frontier, Dies at 86**\
-`Known as the tough guy in a scene that produced David Hockney and others, he filled his paintings with gleaming car parts and sex symbols. Some of them landed on album covers.`\
-https://nytimes.com/2025/07/19/arts/peter-phillips-dead.html
-
-**Car Drives Into Crowd Outside Club in Los Angeles**\
-`At least 30 people were injured in Los Angeles after a vehicle drove into a crowd, the Los Angeles Fire Department said.`\
-https://nytimes.com/video/us/100000010294931/los-angles-club-car.html
 
