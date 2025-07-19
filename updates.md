@@ -1,3 +1,7 @@
+**FPL: Analysing the major rule changes to the game for the 2025-26 season**\
+`FPL has announced two major rule changes to the game for the upcoming season - Holly Shand and Abdul Rehman analyse what's new`\
+https://nytimes.com/athletic/6503430/2025/07/19/fantasy-premier-league-new-rules-chips-defensive/
+
 **France vs Germany Euro 2025 quarter-final odds, prediction: Clash of two powers**\
 `France is favoured against Germany in a Euro 2025 quarter-final that could be the best match of the round.`\
 https://nytimes.com/athletic/6496596/2025/07/19/france-germany-euro-2025-odds-prediction/
