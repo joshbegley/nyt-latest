@@ -1,3 +1,11 @@
+**Inside the Long Friendship Between Trump and Epstein**\
+`For nearly 15 years, the two men socialized together in Manhattan and Palm Beach, Fla., before a falling out that preceded Mr. Epstein’s first arrest.`\
+https://nytimes.com/2025/07/19/us/politics/inside-trump-epstein-friendship.html
+
+**Mike Johnson Would Like You to Know About His Subservience**\
+`The speaker comes in with a strong entry in the sycophancy sweepstakes.`\
+https://nytimes.com/2025/07/19/opinion/mike-johnson-trump-approval-rating.html
+
 **Cyclist and Pedestrian Killed After Vehicle Jumps Curb in Manhattan**\
 `The car had been traveling west on the Manhattan Bridge before it struck the victims at the base of the bridge in Chinatown early Saturday morning.`\
 https://nytimes.com/2025/07/19/nyregion/manhattan-bridge-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/19/dining/nigella-lawsons-blueberry-polenta-upside-d
 **Leeds finalising deal to sign midfielder Stach from Hoffenheim**\
 `Stach has made 74 appearances for Hoffenheim since joining in 2023 from Bundesliga rivals Mainz, where he spent three seasons.`\
 https://nytimes.com/athletic/6497337/2025/07/19/leeds-transfers-anton-stach-hoffenheim/
-
-**Isak not in squad for Newcastle's first pre-season game, club insist minutes are being managed**\
-`The 25-year-old has been the subject of interest from Liverpool though Newcastle have repeatedly insisted that he is not for sale.`\
-https://nytimes.com/athletic/6503598/2025/07/19/alexander-isak-newcastle-pre-season-squad/
-
-**The Benson Boone Crumbl Cookie and Our Ultraprocessed Culture**\
-`I want to make it stop, and my earnest admonitions about the emptiness of American materialism are not working.`\
-https://nytimes.com/2025/07/19/opinion/benson-boone-crumbl-cookie-culture.html
 
