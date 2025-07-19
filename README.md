@@ -1,3 +1,7 @@
+**Nationals sign No. 1 pick Eli Willits**\
+`Willits was the youngest player in the draft and the team's third No. 1 selection since moving to Washington D.C. in 2005.`\
+https://nytimes.com/athletic/6503061/2025/07/19/washington-nationals-sign-first-pick-eli-willits/
+
 **The Pelicot Trial Returns, This Time to the Stage**\
 `Many of those who attended the trial returned to see a new play based on the case of Gisèle Pelicot, who confronted her ex-husband and dozens of men accused of raping her.`\
 https://nytimes.com/2025/07/19/pelicot-trial-avignon-play.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503776/2025/07/19/eddie-howe-isak-desperate-irrepl
 **Tour de France stage 14: Arensman ends INEOS drought, Evenepoel abandons, race for podium heats up**\
 `Analysis of the latest day's action in the 2025 race - a tough 183km route from Pau to Luchon-Superbagnères`\
 https://nytimes.com/athletic/6503504/2025/07/19/tour-de-france-stage-14-analysis/
-
-**Bamford told by Farke he is not part of Leeds plans for 2025-26**\
-`The England international was absent from Saturday’s friendly vs Manchester United in Stockholm and Farke revealed his decision post-match.`\
-https://nytimes.com/athletic/6503770/2025/07/19/patrick-bamford-leeds-future/
 
