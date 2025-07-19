@@ -1,3 +1,19 @@
+**Phillies place Alec Bohm on injured list with fractured left rib**\
+`Philadelphia's third baseman got hit by a pitch on July 12 against the Padres. He's the second Phillie to fracture a rib this season.`\
+https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
+
+**Pet Owner Flooded With Puzzling Calls About a Lost Cat While Hers Is Safely at Home**\
+`Natasha Lavoie’s phone number appeared on a T-shirt sold online that advertised a fictitious missing cat. She can’t stop the calls from coming.`\
+https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
+
+**The Briefing: France 1 Germany 1 ( 5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
+`How Germany advanced to face Spain in the Euro 2025 semi-finals, led by Ann-Katrin Berger `\
+https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
+
+**Marcus Smart, Wizards reach buyout, Lakers are likeliest destination: Source**\
+`The Wizards traded for Smart last season, and he, by all accounts, provided a positive example to the team’s younger players.`\
+https://nytimes.com/athletic/6504004/2025/07/19/marcus-smart-wizards-buyout-lakers-destination/
+
 **New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
 `He’s the type of player who can cause a championship to feel like it’s over simply by the way he approaches each new task in front of him.`\
 https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-championship-links-golf/
