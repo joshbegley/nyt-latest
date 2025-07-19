@@ -1,40 +1,40 @@
-**FPL: Analysing the major rule changes to the game for the 2025-26 season**\
-`FPL has announced two major rule changes to the game for the upcoming season - Holly Shand and Abdul Rehman analyse what's new`\
-https://nytimes.com/athletic/6503430/2025/07/19/fantasy-premier-league-new-rules-chips-defensive/
+**Democrats’ 2024 Autopsy Is Described as Avoiding the Likeliest Cause of Death**\
+`An audit being conducted by the D.N.C. is not looking at Joe Biden’s decision to run or key decisions by Kamala Harris’s team, according to six people briefed on the report.`\
+https://nytimes.com/2025/07/19/us/politics/democrats-2024-autopsy-harris-biden.html
 
-**France vs Germany Euro 2025 quarter-final odds, prediction: Clash of two powers**\
-`France is favoured against Germany in a Euro 2025 quarter-final that could be the best match of the round.`\
-https://nytimes.com/athletic/6496596/2025/07/19/france-germany-euro-2025-odds-prediction/
+**Why Are More Than 100 People Still Missing in Texas, 2 Weeks After the Floods?**\
+`The number of people unaccounted for dropped this week but remains stubbornly high as some searchers lose hope of finding them.`\
+https://nytimes.com/2025/07/19/us/politics/texas-floods-missing.html
 
-**Scams and a Rent Spike Follow New York City’s New Broker Fee Law**\
-`The law mostly shifts fees from tenants to landlords. But since it took effect, some landlords have raised rents, and tenants say some brokers still try to make them pay fees.`\
-https://nytimes.com/2025/07/19/nyregion/nyc-broker-fee-fare-act.html
+**How TV Trained Us to Be Conspiracy Theorists**\
+`Pop culture didn’t create the real-world mythologies roiling our politics, but it helped write the scripts`\
+https://nytimes.com/2025/07/19/arts/television/conspiracy-theory-tv-shows-the-x-files.html
 
-**How a Floral Design Master Spends His Day With Roses and Rosé**\
-`Calvert Crary, the executive director of FlowerSchool New York, teaches students how to haggle, spruces up his apartment lobby and ends his day on the roof.`\
-https://nytimes.com/2025/07/19/nyregion/calvert-crary-flowerschool-new-york.html
+**The Kurosawa You May Never Have Heard Of**\
+`The great Japanese genre director Kiyoshi Kurosawa, whose latest film is “Cloud,” has mastered the cinema of psychological fright. Here’s why you should watch his work.`\
+https://nytimes.com/2025/07/19/movies/kiyoshi-kurosawa-primer.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/19/crosswords/spelling-bee-forum.html
+**How the U.S. and Japan Got Stuck on Cars and Rice**\
+`The Trump administration has threatened Japan with 25 percent tariffs. River Akira Davis, our Tokyo correspondent, explains how automobiles and rice have become the two major sticking points in the negotiations.`\
+https://nytimes.com/video/world/asia/100000010287569/how-the-us-and-japan-got-stuck-on-cars-and-rice.html
 
-**Why Fireflies Seem to Be Everywhere This Summer**\
-`Text by Taylor Robinson and Yuvraj Khanna`\
-https://nytimes.com/card/2025/07/19/nyregion/
+**The Secretive Shop That Keeps the Rare McLaren F1 on the Road**\
+`The company made only 106 of these supercars, and service can take weeks.`\
+https://nytimes.com/2025/07/19/automobiles/collectibles/mclaren-f1-secret-mechanic.html
 
-**The New York Times in Print for Saturday, July 19, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/19/todays-new-york-times
+**Vance Boelter’s Life Before the Minnesota Shootings**\
+`Periods of religious zealotry and an unsettled professional career were intertwined for years before he was accused of murder.`\
+https://nytimes.com/2025/07/19/us/minnesota-shootings-vance-boelter.html
 
-**Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
-`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
-https://nytimes.com/athletic/6503289/2025/07/19/braves-dane-dunning-trade-austin-riley-injury-update/
+**This Groundbreaking Artist Vanished. A Decade of Sleuthing Reveals Her Greatness.**\
+`Mavis Pusey was a pioneer of Black abstraction before she was nearly forgotten. A new show in Philadelphia begins a journey of rediscovery.`\
+https://nytimes.com/2025/07/19/arts/design/mavis-pusey-pioneer-black-abstraction.html
 
-**Trump Order on International Criminal Court Likely Violates First Amendment, Judge Rules**\
-`The ruling’s scope is limited to two American activists, but it represents a striking, if tentative, blow to the president’s efforts to penalize and isolate the world’s highest criminal court.`\
-https://nytimes.com/2025/07/19/us/politics/trump-international-criminal-court-ruling.html
+**Who Wins When Neighbors Fight?**\
+`A co-op board may need to investigate so that it can protect every resident’s rights.`\
+https://nytimes.com/2025/07/19/realestate/neighbor-dispute-coop-laws.html
 
-**Yankees' first game after All-Star break shows the severity of their trade deadline needs**\
-`The issues at third base were glaring in New York's first game after the break. Having to go with a bullpen game wasn't a good sign, either.`\
-https://nytimes.com/athletic/6503272/2025/07/19/yankees-trade-deadline-pitching-third-base/
+**Rétromobile Is Heading to New York**\
+`The event, a behemoth of a classic car show, has been held in France for almost 50 years and is coming to the Javits center in 2026.`\
+https://nytimes.com/2025/07/19/automobiles/collectibles/retromobile-new-york-cars.html
 
