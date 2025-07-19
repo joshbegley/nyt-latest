@@ -1,3 +1,7 @@
+**Reading 0-2 Tottenham: First looks at Kudus and Vuskovic, big changes at set-pieces**\
+`Spurs began the Thomas Frank era with a 2-0 pre-season win at Reading, and two debutants caught the eye...`\
+https://nytimes.com/athletic/6503759/2025/07/19/reading-v-spurs-kudus-vuskovic-frank/
+
 **Cram Fire Grows to Largest Wildfire in U.S. So Far This Year**\
 `The fire in Oregon ballooned to more than 95,000 acres amid shifting winds and dry air, but improved weather this weekend was expected to slow its expansion.`\
 https://nytimes.com/2025/07/19/weather/cram-fire-oregon.html
