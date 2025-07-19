@@ -1,3 +1,15 @@
+**W.N.B.A.’s All-Star Weekend Is Still Buzzing, Even Without Caitlin Clark**\
+`Despite an injury that sidelined the Fever star, thousands of fans descended on festivities across Indianapolis.`\
+https://nytimes.com/2025/07/19/style/wnba-all-star-indianapolis.html
+
+**Peter Phillips, Who Was at the British Pop Art Frontier, Dies at 86**\
+`Known as the tough guy in a scene that produced David Hockney and others, he filled his paintings with gleaming car parts and sex symbols. Some of them landed on album covers.`\
+https://nytimes.com/2025/07/19/arts/peter-phillips-dead.html
+
+**Car Drives Into Crowd Outside Club in Los Angeles**\
+`At least 30 people were injured in Los Angeles after a vehicle drove into a crowd, the Los Angeles Fire Department said.`\
+https://nytimes.com/video/us/100000010294931/los-angles-club-car.html
+
 **Leeds United 0 Manchester United 0: How did Cunha fare? What did we learn about Amorim plans?**\
 `Manchester United drew 0-0 in their pre-season friendly with Leeds United. But what did we learn about the new signings and Amorim's team?`\
 https://nytimes.com/athletic/6503623/2025/07/19/leeds-united-0-manchester-united-0-how-did-cunha-fare-what-did-we-learn-about-amorim-plans/
