@@ -1,3 +1,11 @@
+**Ronald Acuña Jr. makes perfect play, Braves' Austin Riley gives rehab update**\
+`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
+https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
+
+**Syria Declares Cease-Fire After a Week of Upheaval**\
+`Sectarian-tinged clashes left hundreds dead and drew in Israeli military intervention. A U.S. envoy said Israel and Syria had agreed to a truce.`\
+https://nytimes.com/2025/07/19/world/europe/syria-ceasefire-druse-israel.html
+
 **Isak not in squad for Newcastle's first pre-season game, club insist minutes are being managed**\
 `The 25-year-old has been the subject of interest from Liverpool though Newcastle have repeatedly insisted that he is not for sale.`\
 https://nytimes.com/athletic/6503598/2025/07/19/alexander-isak-newcastle-pre-season-squad/
