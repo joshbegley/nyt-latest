@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, July 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/19/todays-new-york-times
+
 **Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
 `Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
 https://nytimes.com/athletic/6503289/2025/07/19/braves-dane-dunning-trade-austin-riley-injury-update/
