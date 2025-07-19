@@ -1,3 +1,19 @@
+**Braves start hopeful climb back to contention with win over Yankees**\
+`The Braves think they can make the postseason for the eighth consecutive time. It'll take a huge push, but Friday's win was a good start.`\
+https://nytimes.com/athletic/6503290/2025/07/18/atlanta-braves-postseason-contention-yankees/
+
+**Leader Before the King?**\
+`Erik Agard returns to the Saturday puzzle, in regal fashion.`\
+https://nytimes.com/2025/07/18/crosswords/daily-puzzle-2025-07-19.html
+
+**Chargers training camp: Daiyan Henley shows why teammates believe he can be All-Pro**\
+`It took Henley 32 games to intercept his first NFL pass. It took him just two days to come away with his first pick of 2025 training camp.`\
+https://nytimes.com/athletic/6503277/2025/07/18/chargers-daiyan-henley-training-camp-report/
+
+**Shannon Sharpe settles rape lawsuit that sought $50 million in damages**\
+`Sharpe publicly denied the allegations immediately after his accuser filed the suit in April, calling the case a "shakedown" attempt.`\
+https://nytimes.com/athletic/6503264/2025/07/18/shannon-sharpe-settles-rape-lawsuit/
+
 **Under Trump, a New Focus for a Birth Control Program: Helping Women Get Pregnant**\
 `A little-noticed plan for an “infertility training center” signals that the administration intends to take a new approach with Title X, which has long helped low-income women access contraception.`\
 https://nytimes.com/2025/07/18/us/politics/under-trump-a-new-focus-for-a-birth-control-program-helping-women-get-pregnant.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/18/health/mri-death-long-island.html
 **Plane Is Diverted After Man Threatens to Kill Flight Attendant, Authorities Say**\
 `The jet, bound for Detroit from Omaha, made an emergency landing in Cedar Rapids, Iowa, after a man shoved a flight attendant and displayed unruly behavior, SkyWest Airlines said.`\
 https://nytimes.com/2025/07/18/us/flight-detroit-nebraska-iowa-man-arrested-assault.html
-
-**Gabbard Claims Obama Administration Tried to Undermine Trump in 2016**\
-`Democrats denounced a report issued by the Office of the Director of National Intelligence as politically motivated and error-ridden.`\
-https://nytimes.com/2025/07/18/us/politics/gabbard-obama-trump-russia.html
-
-**Copa América Femenina alters practice rules following Brazil outcry**\
-`The tournament previously required players to warm up in a small, indoor area alongside their opponents, frustrating players and coaches.`\
-https://nytimes.com/athletic/6503214/2025/07/18/copa-america-femenina-practice-rule-changes-brazil/
-
-**'You can't just trade everyone': Phillies owner John Middleton talks trade deadline**\
-`Middleton noted that Dave Dombrowski is "always aggressive" and said the team would love to re-sign Kyle Schwarber.`\
-https://nytimes.com/athletic/6503211/2025/07/18/phillies-trade-deadline-john-middleton/
-
-**Bill Dellinger, Runner and Track Coach Who Mentored Stars, Dies at 91**\
-`After running the 5,000 meters in three Olympics, he coached the likes of Steve Prefontaine and Joaquim Cruz at his alma mater, the University of Oregon.`\
-https://nytimes.com/2025/07/18/sports/bill-dellinger-dead.html
 
