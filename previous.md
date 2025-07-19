@@ -1,3 +1,7 @@
+**Why Fireflies Seem to Be Everywhere This Summer**\
+`Text by Taylor Robinson and Yuvraj Khanna`\
+https://nytimes.com/card/2025/07/19/nyregion/fireflies-summer
+
 **W.N.B.A.’s All-Star Weekend Is Still Buzzing, Even Without Caitlin Clark**\
 `Despite an injury that sidelined the Fever star, thousands of fans descended on festivities across Indianapolis.`\
 https://nytimes.com/2025/07/19/style/wnba-all-star-indianapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/opinion/benson-boone-crumbl-cookie-culture.html
 **South Korea Pulls Plane Crash Report After Victims’ Families Protest**\
 `Relatives of the Jeju Air disaster victims objected to the report in a stormy scene at a news conference, complaining that it blamed the pilots prematurely.`\
 https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
-
-**Ronald Acuña Jr.'s jaw-dropping double play throw channels ‘Roberto Clemente’**\
-`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
-https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
 

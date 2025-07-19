@@ -1,3 +1,7 @@
+**Why Fireflies Seem to Be Everywhere This Summer**\
+`Text by Taylor Robinson and Yuvraj Khanna`\
+https://nytimes.com/card/2025/07/19/nyregion/fireflies-summer
+
 **W.N.B.A.’s All-Star Weekend Is Still Buzzing, Even Without Caitlin Clark**\
 `Despite an injury that sidelined the Fever star, thousands of fans descended on festivities across Indianapolis.`\
 https://nytimes.com/2025/07/19/style/wnba-all-star-indianapolis.html

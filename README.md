@@ -1,3 +1,7 @@
+**Cyclist and Pedestrian Killed After Vehicle Jumps Curb in Manhattan**\
+`The car had been traveling west on the Manhattan Bridge before it struck the victims at the base of the bridge in Chinatown early Saturday morning.`\
+https://nytimes.com/2025/07/19/nyregion/manhattan-bridge-crash.html
+
 **Why Fireflies Seem to Be Everywhere This Summer**\
 `Text by Taylor Robinson and Yuvraj Khanna`\
 https://nytimes.com/card/2025/07/19/nyregion/fireflies-summer
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503598/2025/07/19/alexander-isak-newcastle-pre-sea
 **The Benson Boone Crumbl Cookie and Our Ultraprocessed Culture**\
 `I want to make it stop, and my earnest admonitions about the emptiness of American materialism are not working.`\
 https://nytimes.com/2025/07/19/opinion/benson-boone-crumbl-cookie-culture.html
-
-**South Korea Pulls Plane Crash Report After Victims’ Families Protest**\
-`Relatives of the Jeju Air disaster victims objected to the report in a stormy scene at a news conference, complaining that it blamed the pilots prematurely.`\
-https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
 
