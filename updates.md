@@ -1,3 +1,11 @@
+**Isak not in squad for Newcastle's first pre-season game, club insist minutes are being managed**\
+`The 25-year-old has been the subject of interest from Liverpool though Newcastle have repeatedly insisted that he is not for sale.`\
+https://nytimes.com/athletic/6503598/2025/07/19/alexander-isak-newcastle-pre-season-squad/
+
+**The Benson Boone Crumbl Cookie and Our Ultraprocessed Culture**\
+`I want to make it stop, and my earnest admonitions about the emptiness of American materialism are not working.`\
+https://nytimes.com/2025/07/19/opinion/benson-boone-crumbl-cookie-culture.html
+
 **South Korea Pulls Plane Crash Report After Victims’ Families Protest**\
 `Relatives of the Jeju Air disaster victims objected to the report in a stormy scene at a news conference, complaining that it blamed the pilots prematurely.`\
 https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
