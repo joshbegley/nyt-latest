@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6503354/2025/07/19/phillies-searching-for-power-bry
 `Newcastle correspondent Chris Waugh answers readers' questions after an extremely busy week on Tyneside`\
 https://nytimes.com/athletic/6501639/2025/07/19/isak-wissa-trafford-newcastle-transfers/
 
-**Harry Kane's unusual sponsorship and what it tells us about the business of sport**\
-`The England captain's partnership with a relatively unknown brand is indicative of how sports stars' commercial priorities are changing`\
-https://nytimes.com/athletic/6494909/2025/07/19/harry-kane-sponsorship-brand-value/
+**Can Bryan Mbeumo be the 'triple threat' that Manchester United's attack sorely needs?**\
+`Outside Anfield, you would be hard-pressed to find a forward who added more value to his team's attack than Mbeumo at Brentford last season`\
+https://nytimes.com/athletic/6502347/2025/07/19/mbeumo-manchester-united-transfer-analysis/
 
