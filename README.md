@@ -1,3 +1,7 @@
+**Sandra Oh Knows What’s Great About Middle Age**\
+`The actress discusses discrimination in Hollywood, what she’s learned about herself in her 50s and her iconic role on “Grey’s Anatomy.”`\
+https://nytimes.com/2025/07/19/magazine/sandra-oh-interview.html
+
 **Democrats’ 2024 Autopsy Is Described as Avoiding the Likeliest Cause of Death**\
 `An audit being conducted by the D.N.C. is not looking at Joe Biden’s decision to run or key decisions by Kamala Harris’s team, according to six people briefed on the report.`\
 https://nytimes.com/2025/07/19/us/politics/democrats-2024-autopsy-harris-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/arts/design/mavis-pusey-pioneer-black-abstraction
 **Who Wins When Neighbors Fight?**\
 `A co-op board may need to investigate so that it can protect every resident’s rights.`\
 https://nytimes.com/2025/07/19/realestate/neighbor-dispute-coop-laws.html
-
-**Rétromobile Is Heading to New York**\
-`The event, a behemoth of a classic car show, has been held in France for almost 50 years and is coming to the Javits center in 2026.`\
-https://nytimes.com/2025/07/19/automobiles/collectibles/retromobile-new-york-cars.html
 
