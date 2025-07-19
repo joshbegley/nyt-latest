@@ -1,3 +1,11 @@
+**South Korea Pulls Plane Crash Report After Victims’ Families Protest**\
+`Relatives of the Jeju Air disaster victims objected to the report in a stormy scene at a news conference, complaining that it blamed the pilots prematurely.`\
+https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
+
+**Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
+`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
+https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
+
 **Barcelona advancing with move to sign Rashford from Man Utd**\
 `The idea has been agreed to by United and although it is not yet a done deal, talks between all parties are now at the final stages.`\
 https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6503514/2025/07/19/leah-williamson-england-euros-up
 **Manny Pacquiao hears the concerns but is back in the boxing ring anyway**\
 `Pacquiao is back in the ring for the first time in four years. He says he's not in need of cash. “I just missed boxing," he says.`\
 https://nytimes.com/athletic/6500641/2025/07/19/manny-pacquiao-fight-mario-barrios/
-
-**Buxton and Castro homer, but its not enough for Twins as Rockies hit Paddack early**\
-`The Twins stumbled out of the All-Star break by losing to Colorado, a team on pace to finish with the most losses in modern MLB history.`\
-https://nytimes.com/athletic/6503396/2025/07/19/byron-buxton-willi-castro-home-runs-not-enough-for-twins/
-
-**She Exposed Epstein, and Shares MAGA’s Anger**\
-`The reporter who took down Jeffrey Epstein on what’s still hidden.`\
-https://nytimes.com/2025/07/19/opinion/interesting-times-julie-k-brown-epstein.html
 

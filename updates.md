@@ -1,3 +1,11 @@
+**South Korea Pulls Plane Crash Report After Victims’ Families Protest**\
+`Relatives of the Jeju Air disaster victims objected to the report in a stormy scene at a news conference, complaining that it blamed the pilots prematurely.`\
+https://nytimes.com/2025/07/19/world/asia/jeju-air-crash-report-canceled.html
+
+**Braves' Austin Riley gives rehab update, Ronald Acuña Jr. makes perfect play**\
+`Austin Riley taking batting practice Friday was a welcome sight for the Atlanta Braves, who hope to have him back by next week.`\
+https://nytimes.com/athletic/6503289/2025/07/19/acuna-throw/
+
 **Barcelona advancing with move to sign Rashford from Man Utd**\
 `The idea has been agreed to by United and although it is not yet a done deal, talks between all parties are now at the final stages.`\
 https://nytimes.com/athletic/6077622/2025/07/19/marcus-rashford-barcelona-transfer/
