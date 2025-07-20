@@ -1,8 +1,24 @@
+**Wightman and Brazier's tough comebacks show turbocharging of men's middle-distance running**\
+`Jake Wightman and Donavan Brazier's recent struggles show how middle-distance running has moved on so quickly...`\
+https://nytimes.com/athletic/6503789/2025/07/20/wightman-and-braziers-tough-comebacks-show-turbocharging-of-mens-middle-distance-running/
+
+**Thiago Almada's Atletico Madrid move sums up the transfer industry 2025**\
+`Former MLS star's switch to La Liga is full of sub-plots that epitomise the globe-spanning complexity of the modern football machine`\
+https://nytimes.com/athletic/6495548/2025/07/20/thiago-almada-atletico-madrid-transfer-connections/
+
+**Ranking the Giants' trade deadline needs**\
+`Let's assume the Giants will continue to be in the postseason chase, and when the trade deadline comes, they'll be buyers.`\
+https://nytimes.com/athletic/6502851/2025/07/20/giants-trade-deadline-needs-ranking/
+
+**Inside the world of sporting directors: What do they do? And what makes a good one?**\
+`The Athletic interviewed several sporting directors and collaborated with an analytics company to get a better understanding of what they do`\
+https://nytimes.com/athletic/6445002/2025/07/20/sporting-directors-football-career-role-analysis/
+
 **Arsenal's signings from Chelsea ranked: From Havertz to Willian via Gallas and David Luiz**\
 `Noni Madueke and Kepa Arrizabalaga are the latest to swap Stamford Bridge for the Emirates - their predecessors have been a mixed bag...`\
 https://nytimes.com/athletic/6499393/2025/07/20/arsenals-chelsea-transfers-madueke-kepa/
 
-**Cubs takeaways: Imanaga an ace, Busch comes out swinging and the players who used break wisely**\
+**Cubs takeaways: Imanaga an ace, Busch comes out swinging and who used break wisely**\
 `The impact of Shota Imanaga's return to the Cubs rotation can't be overstated.`\
 https://nytimes.com/athletic/6504282/2025/07/20/cubs-takeaways-shota-imanaga-ace-michael-busch-lead-off-homer/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
 **Houston Astros third baseman Isaac Paredes reinjures right hamstring**\
 `Paredes pulled up lame while running to first base after a third-inning single Saturday against the Mariners.`\
 https://nytimes.com/athletic/6504294/2025/07/19/isaac-paredes-reinjures-right-hamstring/
-
-**Napheesa Collier named All-Star Game MVP as Team Collier tops Team Clark**\
-`Atlanta Dream guard Allisha Gray and Los Angeles Sparks guard Kelsey Plum also had solid showings for Team Collier with 18 and 16 points.`\
-https://nytimes.com/athletic/6504281/2025/07/19/wnba-all-star-result-napheesa-collier-caitlin-clark/
-
-**Number of Missing in Kerr County, Texas, After Floods Drops to 3**\
-`The new figure was a significant decline from 97 just days ago. The death toll in the county remained the same, and officials said many of the missing were reported safe.`\
-https://nytimes.com/2025/07/19/us/texas-floods-kerr-county-missing.html
-
-**Heavy Rains in Washington Area Flood Roads and Prompt Water Rescues**\
-`More than five inches fell in some suburbs of the capital. The authorities in Maryland rescued dozens of people, including some who were stranded in their cars.`\
-https://nytimes.com/2025/07/19/us/maryland-washington-dc-flooding.html
-
-**The most unforgettable fashion at WNBA All-Star Weekend, from 'orange carpet' to tunnel walks**\
-`The most unforgettable looks and best style at WNBA All-Star Weekend.`\
-https://nytimes.com/athletic/6499932/2025/07/19/wnba-all-star-fashion-best-looks/
 

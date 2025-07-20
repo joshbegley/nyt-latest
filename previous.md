@@ -1,3 +1,7 @@
+**Arsenal's signings from Chelsea ranked: From Havertz to Willian via Gallas and David Luiz**\
+`Noni Madueke and Kepa Arrizabalaga are the latest to swap Stamford Bridge for the Emirates - their predecessors have been a mixed bag...`\
+https://nytimes.com/athletic/6499393/2025/07/20/arsenals-chelsea-transfers-madueke-kepa/
+
 **Cubs takeaways: Imanaga an ace, Busch comes out swinging and the players who used break wisely**\
 `The impact of Shota Imanaga's return to the Cubs rotation can't be overstated.`\
 https://nytimes.com/athletic/6504282/2025/07/20/cubs-takeaways-shota-imanaga-ace-michael-busch-lead-off-homer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/us/maryland-washington-dc-flooding.html
 **The most unforgettable fashion at WNBA All-Star Weekend, from 'orange carpet' to tunnel walks**\
 `The most unforgettable looks and best style at WNBA All-Star Weekend.`\
 https://nytimes.com/athletic/6499932/2025/07/19/wnba-all-star-fashion-best-looks/
-
-**WNBA commissioner confident CBA will be signed by deadline despite concerns**\
-`As commisioner Cathy Engelbert spoke, players took the floor wearing shirts that read “Pay Us What You Owe Us.”`\
-https://nytimes.com/athletic/6504249/2025/07/19/wnba-cba-commissioner-confident-player-concerns/
 

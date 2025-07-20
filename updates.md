@@ -1,3 +1,7 @@
+**Arsenal's signings from Chelsea ranked: From Havertz to Willian via Gallas and David Luiz**\
+`Noni Madueke and Kepa Arrizabalaga are the latest to swap Stamford Bridge for the Emirates - their predecessors have been a mixed bag...`\
+https://nytimes.com/athletic/6499393/2025/07/20/arsenals-chelsea-transfers-madueke-kepa/
+
 **Cubs takeaways: Imanaga an ace, Busch comes out swinging and the players who used break wisely**\
 `The impact of Shota Imanaga's return to the Cubs rotation can't be overstated.`\
 https://nytimes.com/athletic/6504282/2025/07/20/cubs-takeaways-shota-imanaga-ace-michael-busch-lead-off-homer/
