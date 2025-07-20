@@ -1,3 +1,7 @@
+**The Pulse: Caitlin Clark's painful season**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6504425/2025/07/20/scottie-hurtles-toward-history-while-caitlin-clarks-season-goes-sideways/
+
 **How We Live On, Long After We Are Gone**\
 `Readers respond to an essay by Roger Rosenblatt about death, memory and love. Also: How Medicaid cuts will hurt college students.`\
 https://nytimes.com/2025/07/20/opinion/death-dying-memory-love.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2025/07/20/us/trump-news
 `Justin Herbert had some nice throws Saturday, but for the most part, the offense did not find a rhythm at any point during practice.`\
 https://nytimes.com/athletic/6504338/2025/07/20/chargers-justin-herbert-offense-training-camp/
 
-**Tracking Typhoon Wipha**\
+**Tracking Tropical Storm Wipha**\
 `See the likely path and wind arrival times for Wipha`\
 https://nytimes.com/interactive/2025/07/18/weather/wipha-map-path-tracker.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424847/2025/07/20/buffalo-bills-training-camp-2025
 **Forest keen on move for Bologna winger Ndoye**\
 `Ndoye, 24, registered nine goals and six assists in 41 games for Bologna last season.`\
 https://nytimes.com/athletic/6504490/2025/07/20/dan-ndoye-nottingham-forest/
-
-**China’s Moves Against 2 Executives Stoke Anxiety in Foreign Businesses**\
-`A Wells Fargo banker was blocked from leaving and a Japanese pharmaceutical executive was imprisoned, even as Beijing tries to court overseas investors.`\
-https://nytimes.com/2025/07/20/business/china-exit-ban-business-anxiety.html
 
