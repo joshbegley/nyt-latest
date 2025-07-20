@@ -1,5 +1,5 @@
 **France tried to do it differently... but they cannot get lucky in major tournaments**\
-`France tried to do things differently this tournament. But, somehow, luck was still against them when they faced Germany...`\
+`The French changed their approach this summer after a run of tournament exits but somehow fate was still against them when they met Germany`\
 https://nytimes.com/athletic/6504245/2025/07/20/france-germany-result-euro-2025/
 
 **Mamdani Won Over N.Y.C. Democratic Voters. Can He Charm Washington?**\
