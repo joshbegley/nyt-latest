@@ -1,3 +1,7 @@
+**Tanner Houck setback a reminder Red Sox need rotation help entering trade deadline**\
+`Balancing Boston's desires with what it's willing to give up in a seller's market will be challenging.`\
+https://nytimes.com/athletic/6504293/2025/07/20/tanner-houck-red-sox-trade-deadline-rotation-help/
+
 **Wrexham Down Under: A tour that whets the appetite and underlines next season's spike in difficulty**\
 `Wrexham's trip to Australia and New Zealand excited fans and was a commercial success - but their squad requires a serious upgrade`\
 https://nytimes.com/athletic/6493064/2025/07/20/wrexham-wellington-sydney-melbourne-tour-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504282/2025/07/20/cubs-takeaways-shota-imanaga-ace
 **This K-Pop Band Is Making Waves With Sign Language**\
 `Big Ocean, a boy band whose members are deaf or hard of hearing, has found success with a mix of singing and signing.`\
 https://nytimes.com/2025/07/20/world/asia/k-pop-sign-language.html
-
-**Connections: Sports Edition Coach: Hints for July 20, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6504288/2025/07/20/connections-sports-edition-hints-for-july-20-2025/
 
