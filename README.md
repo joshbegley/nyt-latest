@@ -1,3 +1,7 @@
+**Gabriel interview: 'As Arteta said - Arsenal are ready to reach new heights this season'**\
+`The centre-back just signed a new deal and says everyone at the club believes they can win a trophy after three years of near-misses`\
+https://nytimes.com/athletic/6499580/2025/07/20/gabriel-interview-as-arteta-said-arsenal-are-ready-to-reach-new-heights-this-season/
+
 **Nunez scores hat-trick in Liverpool friendly win vs Stoke**\
 `The Uruguayan striker continued his impressive start to pre-season having also netted in last weekend’s 3-1 win at Preston.`\
 https://nytimes.com/athletic/6504774/2025/07/20/darwin-nunez-liverpool-pre-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504338/2025/07/20/chargers-justin-herbert-offense-
 **Tracking Tropical Storm Wipha**\
 `See the likely path and wind arrival times for Wipha`\
 https://nytimes.com/interactive/2025/07/18/weather/wipha-map-path-tracker.html
-
-**Sound and Vision**\
-`We take a look at the rise of video podcasts.`\
-https://nytimes.com/2025/07/20/briefing/video-podcasts-popularity.html
 
