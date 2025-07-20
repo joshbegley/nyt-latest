@@ -1,3 +1,11 @@
+**Faint Signs of Life Appear in Effort to Halt Ukraine War**\
+`Ukraine’s president proposed reviving talks brokered by the Trump administration, which seemed stalled a month ago.`\
+https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks.html
+
+**Mac Miller bobblehead night sets Pirates' 2025 attendance high mark**\
+`Pittsburgh came out to celebrate Miller's life and take home a keepsake on Saturday night`\
+https://nytimes.com/athletic/6505068/2025/07/20/mac-miller-bobblehead-pittsburgh-pirates/
+
 **Jean-Pierre Azéma, 87, Dies; Chronicled French Collaboration With Nazis**\
 `He was among the historians who challenged national myths about the compromises his country made after being occupied by Germany in World War II.`\
 https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/20/theater/dolly-parton-musical-nashville.html
 **Canceling ‘The Late Show’ Is Bad News for Late-Night TV, Not for Stephen Colbert**\
 `The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
 https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
-
-**Scottie Scheffler wins Open Championship, taking his place among golf's legends**\
-`Scheffler, 29, shot a 68 in the final round and is now three-quarters of the way to the career Grand Slam.`\
-https://nytimes.com/athletic/6505116/2025/07/20/scottie-scheffler-wins-open-championship-2025/
-
-**Kenneth Colley, 87, ‘Star Wars’ Actor With a Commanding Presence, Dies**\
-`A fixture onscreen and onstage, he became a fan favorite as Darth Vader’s ally, Admiral Piett, in “The Empire Strikes Back” and “Return of the Jedi.”`\
-https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html
 
