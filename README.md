@@ -1,5 +1,5 @@
 **One day after sitting Mookie Betts, Dodgers move him to leadoff spot**\
-`Betts didn't play on Saturday and the Dodgers hope putting him at the top of the order will help the struggling shortstop get back on track.`\
+`Betts didn't play Saturday and the Dodgers hope putting him at the top of the order will help the struggling shortstop get back on track.`\
 https://nytimes.com/athletic/6505257/2025/07/20/mookie-betts-leadoff-dodgers/
 
 **Mamdani Travels to Uganda in Break From Mayoral Campaign**\
