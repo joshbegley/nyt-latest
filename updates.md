@@ -1,3 +1,7 @@
+**Southern Fried Corn, a Summery Tomato Congee and a Lot of Limonada**\
+`Recipes for riding out July’s heat.`\
+https://nytimes.com/2025/07/20/dining/southern-fried-corn-and-more-summer-recipes.html
+
 **Another Top Aide to Hegseth Leaves the Pentagon**\
 `Justin Fulcher, an adviser to Defense Secretary Pete Hegseth, said in a statement that he had planned to work in the federal government for only six months.`\
 https://nytimes.com/2025/07/20/us/politics/hegseth-aide-resigns-pentagon-justin-fulcher.html

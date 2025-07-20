@@ -1,3 +1,7 @@
+**Southern Fried Corn, a Summery Tomato Congee and a Lot of Limonada**\
+`Recipes for riding out July’s heat.`\
+https://nytimes.com/2025/07/20/dining/southern-fried-corn-and-more-summer-recipes.html
+
 **Another Top Aide to Hegseth Leaves the Pentagon**\
 `Justin Fulcher, an adviser to Defense Secretary Pete Hegseth, said in a statement that he had planned to work in the federal government for only six months.`\
 https://nytimes.com/2025/07/20/us/politics/hegseth-aide-resigns-pentagon-justin-fulcher.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/opinion/jerry-garcia-politics.html
 **Trump Administration Live Updates: Hostility in Washington Raises Shutdown Worries**\
 ``\
 https://nytimes.com/live/2025/07/20/us/trump-news
-
-**Chargers training camp report, Day 3: Disjointed practice for the offense**\
-`Justin Herbert had some nice throws Saturday, but for the most part, the offense did not find a rhythm at any point during practice.`\
-https://nytimes.com/athletic/6504338/2025/07/20/chargers-justin-herbert-offense-training-camp/
 
