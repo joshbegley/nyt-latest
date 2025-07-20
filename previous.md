@@ -1,3 +1,15 @@
+**Out of lineup as Twins fall to Rockies again, Royce Lewis works to rediscover swing**\
+`"It doesn't look the same as a year ago, two years ago," Lewis said. "My body is compensating for something."`\
+https://nytimes.com/athletic/6504256/2025/07/20/twins-lose-rockies-royce-lewis-lineup-swing/
+
+**Wales, Poland, and bridging the gap from tournament debutants to regular qualifiers**\
+`Making a tournament is one thing - qualifying for the next one is a harder task. This is how less-established nations hope to change that...`\
+https://nytimes.com/athletic/6497505/2025/07/20/wales-poland-euro-2025-debutants/
+
+**Can college softball's hot streak extend all summer? The Northwoods League is finding out**\
+`With softball on the rise, the Northwoods League looks to offer college players another chance to shine in the summer.`\
+https://nytimes.com/athletic/6502236/2025/07/20/northwoods-league-college-softball-summer/
+
 **WNBA All-Star Game winners, losers: 'Pay Us' shirts, Napheesa Collier record, Indy as host**\
 `All-Star Weekend had its highs and lows, from Ionescu's 3-pointers to a lopsided victory.`\
 https://nytimes.com/athletic/6504368/2025/07/20/wnba-all-star-game-winners-losers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/20/crosswords/strands-sidekick-505.html
 **Why Dictionaries Still Define Us**\
 `A.I. and spell-check make choices for writers. With real, physical dictionaries, writers are empowered to decide how to express themselves.`\
 https://nytimes.com/2025/07/20/opinion/dictionary-ai-spelling-writing.html
-
-**Connections Companion No. 771**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 21, 2025.`\
-https://nytimes.com/2025/07/20/crosswords/connections-companion-771.html
-
-**Even in defeat, UFC legend Dustin Poirier retires with storybook fight**\
-`Arguably the most beloved and respected fighter in UFC history, Dustin Poirier thrilled fans to the very last second of his career.`\
-https://nytimes.com/athletic/6504373/2025/07/20/dustin-poirier-retirement-ufc-318-max-holloway/
-
-**The New York Times International Edition in Print for Monday, July 21, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/20/todays-new-york-times-international-edition
 
