@@ -1,3 +1,7 @@
+**Israel Issues Evacuation Order for New Area in Gaza**\
+`The military told Palestinians to leave an area where many have sought refuge during the 21-month war and warned that it may expand operations.`\
+https://nytimes.com/2025/07/20/world/middleeast/israel-gaza-military-evacuation.html
+
 **Out of lineup as Twins fall to Rockies again, Royce Lewis works to rediscover swing**\
 `"It doesn't look the same as a year ago, two years ago," Lewis said. "My body is compensating for something."`\
 https://nytimes.com/athletic/6504256/2025/07/20/twins-lose-rockies-royce-lewis-lineup-swing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/crosswords/wordle-review-1493.html
 **Strands Sidekick No. 505**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 21, 2025.`\
 https://nytimes.com/2025/07/20/crosswords/strands-sidekick-505.html
-
-**Why Dictionaries Still Define Us**\
-`A.I. and spell-check make choices for writers. With real, physical dictionaries, writers are empowered to decide how to express themselves.`\
-https://nytimes.com/2025/07/20/opinion/dictionary-ai-spelling-writing.html
 
