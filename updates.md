@@ -1,3 +1,7 @@
+**Israel Kills Dozens of Palestinians Seeking Aid, Gaza Officials Say**\
+`Israeli soldiers opened fire near the Zikim crossing between the Gaza Strip and Israel, where a convoy of 25 trucks from the United Nations was entering the enclave.`\
+https://nytimes.com/video/world/middleeast/100000010296045/israel-gaza-aid-shooting.html
+
 **JC Tretter, among favorites to lead NFLPA, resigns: Source**\
 `Executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
 https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
