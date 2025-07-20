@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6504293/2025/07/20/tanner-houck-red-sox-trade-deadl
 `Wrexham's trip to Australia and New Zealand excited fans and was a commercial success - but their squad requires a serious upgrade`\
 https://nytimes.com/athletic/6493064/2025/07/20/wrexham-wellington-sydney-melbourne-tour-championship/
 
-**Manchester United 0-0 Leeds United: A new formation, a new-look attack, goodbye Bamford?**\
+**Manchester United 0-0 Leeds: A new formation, a new-look attack, goodbye Bamford?**\
 `There were debuts for Leeds' five new arrivals, but the absence of Patrick Bamford was striking`\
 https://nytimes.com/athletic/6503976/2025/07/20/leeds-manchester-united-bamford-nmechea/
 
