@@ -1,3 +1,11 @@
+**Breaking down Ann-Katrin Berger gravity-defying save that sent Germany to Euros semi-finals**\
+`Berger is unflappable in goal for Germany`\
+https://nytimes.com/athletic/6504124/2025/07/19/ann-katrin-berger-germany-euros-save/
+
+**Dodgers give struggling Mookie Betts chance to reset but won't move him down in order**\
+`"Where I was and where I am now, it's so night-and-day different," Betts said.`\
+https://nytimes.com/athletic/6504148/2025/07/19/dodgers-mookie-betts-to-sit-batting-order/
+
 **Luka Dončić has been recruiting for Lakers ahead of extension decision**\
 `Dončić helped secure commitments from Deandre Ayton and Marcus Smart after both unexpectedly hit free agency via contract buyouts.`\
 https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-extension-decision/

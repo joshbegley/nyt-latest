@@ -1,3 +1,11 @@
+**Breaking down Ann-Katrin Berger gravity-defying save that sent Germany to Euros semi-finals**\
+`Berger is unflappable in goal for Germany`\
+https://nytimes.com/athletic/6504124/2025/07/19/ann-katrin-berger-germany-euros-save/
+
+**Dodgers give struggling Mookie Betts chance to reset but won't move him down in order**\
+`"Where I was and where I am now, it's so night-and-day different," Betts said.`\
+https://nytimes.com/athletic/6504148/2025/07/19/dodgers-mookie-betts-to-sit-batting-order/
+
 **Luka Dončić has been recruiting for Lakers ahead of extension decision**\
 `Dončić helped secure commitments from Deandre Ayton and Marcus Smart after both unexpectedly hit free agency via contract buyouts.`\
 https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-extension-decision/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
 **The Briefing: France 1 Germany 1 (5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
 `How Germany advanced to face Spain in the Euro 2025 semi-finals, led by goalkeeper Ann-Katrin Berger `\
 https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
-
-**New problems, creative solutions: How Scottie Scheffler is thinking his way around this Open**\
-`He's the type of player who can cause a championship to feel like it's over simply by the way he approaches each new task in front of him.`\
-https://nytimes.com/athletic/6504059/2025/07/19/scottie-scheffler-open-championship-links-golf/
-
-**Ten Point Spread**\
-`You can always bet on a Michael Schlossberg puzzle to provide a good workout.`\
-https://nytimes.com/2025/07/19/crosswords/daily-puzzle-2025-07-20.html
 
