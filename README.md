@@ -1,3 +1,7 @@
+**Heavy Rains in Washington Area Flood Roads and Prompt Water Rescues**\
+`More than five inches fell in some suburbs of the capital. The authorities in Maryland rescued dozens of people, including some who were stranded in their cars.`\
+https://nytimes.com/2025/07/19/us/maryland-washington-dc-flooding.html
+
 **The most unforgettable fashion at WNBA All-Star Weekend, from 'orange carpet' to tunnel walks**\
 `The most unforgettable looks and best style at WNBA All-Star Weekend.`\
 https://nytimes.com/athletic/6499932/2025/07/19/wnba-all-star-fashion-best-looks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504148/2025/07/19/dodgers-mookie-betts-to-sit-batt
 **Luka Dončić has been recruiting for Lakers ahead of extension decision**\
 `Dončić helped secure commitments from Deandre Ayton and Marcus Smart after both unexpectedly hit free agency via contract buyouts.`\
 https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-extension-decision/
-
-**How Anti-Immigrant Riots in Northern Ireland started**\
-`For weeks, there has been a drumbeat of anti-immigrant episodes in Northern Ireland. Ali Watkins, a reporter for The New York Times based in Belfast, describes what she’s seen covering these events to Katrin Bennhold, a senior writer on the international desk.`\
-https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-in-northern-ireland-started.html
 
