@@ -1,3 +1,11 @@
+**Trump calls for Commanders, Guardians to use original nicknames**\
+`Guardians team president Chris Antonetti said the club is focused on its future rather than talk of its past nickname.`\
+https://nytimes.com/athletic/6505025/2025/07/20/trump-washington-commanders-cleveland-guardians-names/
+
+**Germany's Linder out of Euro 2025 semi-final against Spain**\
+`Linder, 25, was forced off in the 20th minute of Germany’s dramatic quarter-final win over France on Saturday.`\
+https://nytimes.com/athletic/6505308/2025/07/20/sarai-linder-injury-germany-spain/
+
 **Faint Signs of Life Appear in Effort to Halt Ukraine War**\
 `Ukraine’s president proposed reviving talks brokered by the Trump administration, which seemed stalled a month ago.`\
 https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks.html
