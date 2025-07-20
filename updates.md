@@ -1,3 +1,7 @@
+**Heavy Rains and Flash Floods Threaten Midwest and Ohio Valley**\
+`Slow-moving storms could bring up to 11 inches of rain, raising the risk of flash floods on Sunday, particularly in Illinois and Indiana, forecasters said.`\
+https://nytimes.com/2025/07/20/weather/midwest-illinois-rains-flooding.html
+
 **The Pulse: Caitlin Clark's painful season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6504425/2025/07/20/scottie-hurtles-toward-history-while-caitlin-clarks-season-goes-sideways/

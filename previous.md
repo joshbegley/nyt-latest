@@ -1,3 +1,7 @@
+**Heavy Rains and Flash Floods Threaten Midwest and Ohio Valley**\
+`Slow-moving storms could bring up to 11 inches of rain, raising the risk of flash floods on Sunday, particularly in Illinois and Indiana, forecasters said.`\
+https://nytimes.com/2025/07/20/weather/midwest-illinois-rains-flooding.html
+
 **The Pulse: Caitlin Clark's painful season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6504425/2025/07/20/scottie-hurtles-toward-history-while-caitlin-clarks-season-goes-sideways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503746/2025/07/20/edmonton-oilers-signing-marc-and
 **Bills training camp 2025 defensive back preview: What to expect from Joey Bosa, overhauled group**\
 `The defensive ends have come up short when the Bills needed them most.`\
 https://nytimes.com/athletic/6424847/2025/07/20/buffalo-bills-training-camp-2025-preview-defensive-backs/
-
-**Forest keen on move for Bologna winger Ndoye**\
-`Ndoye, 24, registered nine goals and six assists in 41 games for Bologna last season.`\
-https://nytimes.com/athletic/6504490/2025/07/20/dan-ndoye-nottingham-forest/
 
