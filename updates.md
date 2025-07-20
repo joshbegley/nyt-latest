@@ -1,3 +1,11 @@
+**Canceling ‘The Late Show’ Is Bad News for Late-Night TV, not for Stephen Colbert**\
+`The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
+https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
+
+**Scottie Scheffler wins Open Championship, taking his place among golf's legends**\
+`Scheffler, 29, shot a 68 in the final round and is now three-quarters of the way to the career Grand Slam.`\
+https://nytimes.com/athletic/6505116/2025/07/20/scottie-scheffler-wins-open-championship-2025/
+
 **Kenneth Colley, 87, ‘Star Wars’ Actor With a Commanding Presence, Dies**\
 `A fixture onscreen and onstage, he became a fan favorite as Darth Vader’s ally, Admiral Piett, in “The Empire Strikes Back” and “Return of the Jedi.”`\
 https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html

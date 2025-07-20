@@ -1,3 +1,7 @@
+**In Nashville, a Homecoming for Dolly Parton and Her Musical**\
+`Parton’s life and career have always been rooted in Tennessee. For her fans, it was only fitting to see the debut of her biographical musical here, too.`\
+https://nytimes.com/2025/07/20/theater/dolly-parton-musical-nashville.html
+
 **Canceling ‘The Late Show’ Is Bad News for Late-Night TV, not for Stephen Colbert**\
 `The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
 https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504522/2025/07/20/tour-de-france-stage-15-analysis
 **British tennis player given four-year doping ban says system is 'broken'**\
 `“The anti-doping system is broken. I am proof of this. We need to fix it," Tara Moore said in a statement on Sunday.`\
 https://nytimes.com/athletic/6505049/2025/07/20/tennis-anti-doping-tara-moore/
-
-**Brighton's Ferguson traveling to Italy ahead of Roma loan**\
-`Ferguson spent the second half of last season on loan to West Ham after moving in February.`\
-https://nytimes.com/athletic/6408209/2025/07/20/evan-ferguson-roma-brighton/
 
