@@ -1,3 +1,7 @@
+**Canceling ‘The Late Show’ Is Bad News for Late-Night TV, not for Stephen Colbert**\
+`The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
+https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
+
 **Scottie Scheffler wins Open Championship, taking his place among golf's legends**\
 `Scheffler, 29, shot a 68 in the final round and is now three-quarters of the way to the career Grand Slam.`\
 https://nytimes.com/athletic/6505116/2025/07/20/scottie-scheffler-wins-open-championship-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505049/2025/07/20/tennis-anti-doping-tara-moore/
 **Brighton's Ferguson traveling to Italy ahead of Roma loan**\
 `Ferguson spent the second half of last season on loan to West Ham after moving in February.`\
 https://nytimes.com/athletic/6408209/2025/07/20/evan-ferguson-roma-brighton/
-
-**An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files**\
-`A former Jeffrey Epstein employee said that she told the F.B.I. in 1996 and 2006 about what she considered a troubling encounter with Donald J. Trump.`\
-https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.html
 
