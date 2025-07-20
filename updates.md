@@ -1,3 +1,7 @@
+**Mario Barrios retains welterweight title belt in controversial draw**\
+`Barrios was tentative and let Pacquiao get off first in exchanges and finish many rounds with a flourish to try to impress the judges.`\
+https://nytimes.com/athletic/6504370/2025/07/20/manny-pacquiao-mario-barrios-draw-welterweight-title/
+
 **The New York Times in Print for Sunday, July 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/20/todays-new-york-times
