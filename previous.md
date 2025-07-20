@@ -1,3 +1,15 @@
+**Tour de France stage 15: Wellens lands popular win, Pogacar's sportsmanship, and why did Alaphilippe celebrate on finish line?**\
+`Analysis of the latest day's action in the 2025 race - a 169km transitional stage from Muret to Carcassonne`\
+https://nytimes.com/athletic/6504522/2025/07/20/tour-de-france-stage-15-analysis/
+
+**British tennis player given four-year doping ban says system is 'broken'**\
+`“The anti-doping system is broken. I am proof of this. We need to fix it," Tara Moore said in a statement on Sunday.`\
+https://nytimes.com/athletic/6505049/2025/07/20/tennis-anti-doping-tara-moore/
+
+**Brighton's Ferguson traveling to Italy ahead of Roma loan**\
+`Ferguson spent the second half of last season on loan to West Ham after moving in February.`\
+https://nytimes.com/athletic/6408209/2025/07/20/evan-ferguson-roma-brighton/
+
 **An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files**\
 `A former Jeffrey Epstein employee said that she told the F.B.I. in 1996 and 2006 about what she considered a troubling encounter with Donald J. Trump.`\
 https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/20/style/maddie-on-things-dog-dead.html
 **Southern Fried Corn, a Summery Tomato Congee and a Lot of Limonada**\
 `Recipes for riding out July’s heat.`\
 https://nytimes.com/2025/07/20/dining/southern-fried-corn-and-more-summer-recipes.html
-
-**Another Top Aide to Hegseth Leaves the Pentagon**\
-`Justin Fulcher, an adviser to Defense Secretary Pete Hegseth, said in a statement that he had planned to work in the federal government for only six months.`\
-https://nytimes.com/2025/07/20/us/politics/hegseth-aide-resigns-pentagon-justin-fulcher.html
-
-**Gabriel interview: 'As Arteta said - Arsenal are ready to reach new heights this season'**\
-`The centre-back just signed a new deal and says everyone at the club believes they can win a trophy after three years of near-misses`\
-https://nytimes.com/athletic/6499580/2025/07/20/gabriel-interview-as-arteta-said-arsenal-are-ready-to-reach-new-heights-this-season/
-
-**Nunez scores hat-trick in Liverpool friendly win vs Stoke**\
-`The Uruguayan striker continued his impressive start to pre-season having also netted in last weekend’s 3-1 win at Preston.`\
-https://nytimes.com/athletic/6504774/2025/07/20/darwin-nunez-liverpool-pre-season/
 

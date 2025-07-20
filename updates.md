@@ -1,3 +1,15 @@
+**Tour de France stage 15: Wellens lands popular win, Pogacar's sportsmanship, and why did Alaphilippe celebrate on finish line?**\
+`Analysis of the latest day's action in the 2025 race - a 169km transitional stage from Muret to Carcassonne`\
+https://nytimes.com/athletic/6504522/2025/07/20/tour-de-france-stage-15-analysis/
+
+**British tennis player given four-year doping ban says system is 'broken'**\
+`“The anti-doping system is broken. I am proof of this. We need to fix it," Tara Moore said in a statement on Sunday.`\
+https://nytimes.com/athletic/6505049/2025/07/20/tennis-anti-doping-tara-moore/
+
+**Brighton's Ferguson traveling to Italy ahead of Roma loan**\
+`Ferguson spent the second half of last season on loan to West Ham after moving in February.`\
+https://nytimes.com/athletic/6408209/2025/07/20/evan-ferguson-roma-brighton/
+
 **An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files**\
 `A former Jeffrey Epstein employee said that she told the F.B.I. in 1996 and 2006 about what she considered a troubling encounter with Donald J. Trump.`\
 https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.html
