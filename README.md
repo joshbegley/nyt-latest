@@ -1,3 +1,7 @@
+**Great Britain Sail Grand Prix: New Zealand victorious, Australia’s penalty, and spectators invade**\
+`All 12 teams blasted around an incredibly tight course for the day's three fleet races, with hardly time for anyone to catch their breath`\
+https://nytimes.com/athletic/6505350/2025/07/20/great-britain-sail-grand-prix-portsmouth-results/
+
 **Monday Briefing: Dozens Killed in Gaza**\
 `Plus, a film takes us back to the pandemic.`\
 https://nytimes.com/2025/07/20/briefing/gaza-israel-japan-epstein-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks
 **Mac Miller bobblehead night sets Pirates' 2025 attendance high mark**\
 `Pittsburgh came out to celebrate Miller's life and take home a keepsake on Saturday night`\
 https://nytimes.com/athletic/6505068/2025/07/20/mac-miller-bobblehead-pittsburgh-pirates/
-
-**Jean-Pierre Azéma, 87, Dies; Chronicled French Collaboration With Nazis**\
-`He was among the historians who challenged national myths about the compromises his country made after being occupied by Germany in World War II.`\
-https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
 

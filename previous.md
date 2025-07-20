@@ -1,3 +1,7 @@
+**Monday Briefing: Dozens Killed in Gaza**\
+`Plus, a film takes us back to the pandemic.`\
+https://nytimes.com/2025/07/20/briefing/gaza-israel-japan-epstein-trump.html
+
 **Chiefs, George Karlaftis agree to 4-year, $93 million extension**\
 `Karlaftis was entering the final year of his rookie contract, and the Chiefs previously picked up his fifth-year option in April.`\
 https://nytimes.com/athletic/6505365/2025/07/20/george-karlaftis-chiefs-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505068/2025/07/20/mac-miller-bobblehead-pittsburgh
 **Jean-Pierre Azéma, 87, Dies; Chronicled French Collaboration With Nazis**\
 `He was among the historians who challenged national myths about the compromises his country made after being occupied by Germany in World War II.`\
 https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
-
-**Republicans and Democrats call for more information on the Epstein case.**\
-`By Michael Gold`\
-https://nytimes.com/live/2025/07/20/us/trump-news/republicans-and-democrats-call-for-more-information-on-the-epstein-case
 

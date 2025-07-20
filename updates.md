@@ -1,3 +1,7 @@
+**Monday Briefing: Dozens Killed in Gaza**\
+`Plus, a film takes us back to the pandemic.`\
+https://nytimes.com/2025/07/20/briefing/gaza-israel-japan-epstein-trump.html
+
 **Open Championship 2025: What to know about Scottie Scheffler's fourth major win**\
 `Scheffler has won each of his four major titles by at least three strokes, the only player in the modern era to accomplish that feat.`\
 https://nytimes.com/athletic/6505318/2025/07/20/open-championship-2025-what-to-know-scottie-scheffler-win/
