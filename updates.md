@@ -1,3 +1,7 @@
+**Great Britain Sail Grand Prix: New Zealand victorious on day spectator boat invades course**\
+`All 12 teams blasted around an incredibly tight course for the day's three fleet races, with hardly time for anyone to catch their breath`\
+https://nytimes.com/athletic/6505350/2025/07/20/great-britain-sail-grand-prix-portsmouth-results/
+
 **Monday Briefing: Dozens Killed in Gaza**\
 `Plus, a film takes us back to the pandemic.`\
 https://nytimes.com/2025/07/20/briefing/gaza-israel-japan-epstein-trump.html
