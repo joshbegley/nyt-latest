@@ -1,3 +1,7 @@
+**With its Olympic stars away, U.S. women's gymnastics' future takes the floor**\
+`At Saturday's U.S. Classic, Team USA's next generation took the stage as Simone Biles and others remain uncertain about a 2028 Olympic run.`\
+https://nytimes.com/athletic/6503941/2025/07/20/team-usa-womens-gymnastics-olympics-future-simone-biles/
+
 **Maddie, a Coonhound Who Awed Instagram by Balancing on Things, Dies at 14**\
 `In thousands of photos, Maddie stood tall and seemingly unbothered atop fences, cars, road signs and tires, garnering 1.2 million Instagram followers along the way.`\
 https://nytimes.com/2025/07/20/style/maddie-on-things-dog-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504425/2025/07/20/scottie-hurtles-toward-history-w
 **How We Live On, Long After We Are Gone**\
 `Readers respond to an essay by Roger Rosenblatt about death, memory and love. Also: How Medicaid cuts will hurt college students.`\
 https://nytimes.com/2025/07/20/opinion/death-dying-memory-love.html
-
-**The Political Legacy of Jerry Garcia**\
-`Garcia and the music he wrote aimed for something beyond politics, something deeper.`\
-https://nytimes.com/2025/07/20/opinion/jerry-garcia-politics.html
 
