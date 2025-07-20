@@ -1,3 +1,11 @@
+**The Pulse: Caitlin Clark's painful season**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6504425/2025/07/20/scottie-hurtles-toward-history-while-caitlin-clarks-season-goes-sideways/
+
+**Tracking Tropical Storm Wipha**\
+`See the likely path and wind arrival times for Wipha`\
+https://nytimes.com/interactive/2025/07/18/weather/wipha-map-path-tracker.html
+
 **China’s Moves Against 2 Executives Stoke Anxiety in Foreign Businesses**\
 `A Wells Fargo banker was blocked from leaving and a Japanese pharmaceutical executive was imprisoned, even as Beijing tries to court overseas investors.`\
 https://nytimes.com/2025/07/20/business/china-exit-ban-business-anxiety.html
