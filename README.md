@@ -1,3 +1,7 @@
+**Edwin Feulner, ‘Heritage Foundation’s George Washington,’ Dies at 83**\
+`As co-founder and longtime head of the Washington think tank, he picked policies and staffers for G.O.P. presidents from Ronald Reagan to Donald Trump.`\
+https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html
+
 **Driver Crashes Into San Jose Post Office, Igniting Fire**\
 `A man was arrested in connection with the crash on suspicion of arson, officials said. No injuries were reported.`\
 https://nytimes.com/2025/07/20/us/san-jose-post-office-crash.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/07/20/crosswords/daily-puzzle-2025-07-21.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6505528/2025/07/20/submit-a-question-for-stewart-mandels-college-football-mailbag-307/
-
-**Should ICE Agents Be Allowed to Wear Masks? It Depends Whom You Ask.**\
-`Los Angeles’s mayor said Sunday that masked immigration agents helped create a “reign of terror.” ICE’s director said agents could wear masks to “keep them and their families safe.”`\
-https://nytimes.com/2025/07/20/us/politics/ice-agents-masks.html
 
