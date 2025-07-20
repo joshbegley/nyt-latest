@@ -1,3 +1,7 @@
+**Maddie, a Coonhound Who Awed Instagram by Balancing on Things, Dies at 14**\
+`In thousands of photos, Maddie stood tall and seemingly unbothered atop fences, cars, road signs and tires, garnering 1.2 million Instagram followers along the way.`\
+https://nytimes.com/2025/07/20/style/maddie-on-things-dog-dead.html
+
 **Southern Fried Corn, a Summery Tomato Congee and a Lot of Limonada**\
 `Recipes for riding out July’s heat.`\
 https://nytimes.com/2025/07/20/dining/southern-fried-corn-and-more-summer-recipes.html
