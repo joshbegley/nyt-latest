@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Hostility in Washington Raises Shutdown Worries**\
+``\
+https://nytimes.com/live/2025/07/20/us/trump-news
+
 **Chargers training camp report, Day 3: Disjointed practice for the offense**\
 `Justin Herbert had some nice throws Saturday, but for the most part, the offense did not find a rhythm at any point during practice.`\
 https://nytimes.com/athletic/6504338/2025/07/20/chargers-justin-herbert-offense-training-camp/
