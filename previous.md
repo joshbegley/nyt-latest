@@ -1,3 +1,7 @@
+**Braves' bullpen meltdown, big nights for Joey Wentz and Ozzie Albies, Marcell Ozuna's status**\
+`The bullpen allowed 12 runs in Saturday's last five innings, spoiling Wentz's four-inning scoreless start and Albies' five-RBI night.`\
+https://nytimes.com/athletic/6504341/2025/07/20/braves-yankees-bullpen-joey-wentz-ozzie-albies/
+
 **Mario Barrios retains welterweight title belt in controversial draw**\
 `Barrios was tentative and let Pacquiao get off first in exchanges and finish many rounds with a flourish to try to impress the judges.`\
 https://nytimes.com/athletic/6504370/2025/07/20/manny-pacquiao-mario-barrios-draw-welterweight-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503789/2025/07/20/wightman-and-braziers-tough-come
 **Thiago Almada's Atletico Madrid move sums up the transfer industry 2025**\
 `Former MLS star's switch to La Liga is full of sub-plots that epitomise the globe-spanning complexity of the modern football machine`\
 https://nytimes.com/athletic/6495548/2025/07/20/thiago-almada-atletico-madrid-transfer-connections/
-
-**Ranking the Giants' trade deadline needs**\
-`Let's assume the Giants will continue to be in the postseason chase, and when the trade deadline comes, they'll be buyers.`\
-https://nytimes.com/athletic/6502851/2025/07/20/giants-trade-deadline-needs-ranking/
 

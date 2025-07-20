@@ -1,3 +1,7 @@
+**Braves' bullpen meltdown, big nights for Joey Wentz and Ozzie Albies, Marcell Ozuna's status**\
+`The bullpen allowed 12 runs in Saturday's last five innings, spoiling Wentz's four-inning scoreless start and Albies' five-RBI night.`\
+https://nytimes.com/athletic/6504341/2025/07/20/braves-yankees-bullpen-joey-wentz-ozzie-albies/
+
 **Mario Barrios retains welterweight title belt in controversial draw**\
 `Barrios was tentative and let Pacquiao get off first in exchanges and finish many rounds with a flourish to try to impress the judges.`\
 https://nytimes.com/athletic/6504370/2025/07/20/manny-pacquiao-mario-barrios-draw-welterweight-title/
