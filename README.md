@@ -1,3 +1,7 @@
+**Down to 10 players for over 100 minutes, Germany produced their best Euro 2025 performance**\
+`Germany put together one of the most impressive displays you will see from a side reduced to 10 players.`\
+https://nytimes.com/athletic/6504143/2025/07/19/germany-best-euros-performance-france/
+
 **David Wright, Mets celebrate 'unbreakable bond' with number retirement**\
 `"He was The Guy you wanted to be like," said Brandon Nimmo, the only active Met who played with Wright.`\
 https://nytimes.com/athletic/6504181/2025/07/19/mets-david-wright-number-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheff
 **Fire at Massachusetts Assisted Living Facility Claims a 10th Life**\
 `Brenda Cropper, 66, died at a hospital after being in critical condition all week after the fire erupted on Sunday, officials said.`\
 https://nytimes.com/2025/07/19/us/10th-death-assisted-living.html
-
-**Phillies place Alec Bohm on injured list with fractured left rib**\
-`Philadelphia's third baseman got hit by a pitch on July 12 against the Padres. He's the second Phillie to fracture a rib this season.`\
-https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
 

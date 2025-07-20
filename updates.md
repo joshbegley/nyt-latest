@@ -1,3 +1,7 @@
+**David Wright, Mets celebrate 'unbreakable bond' with number retirement**\
+`"He was The Guy you wanted to be like," said Brandon Nimmo, the only active Met who played with Wright.`\
+https://nytimes.com/athletic/6504181/2025/07/19/mets-david-wright-number-retirement/
+
 **Investigators in L.A. Explosion Examine Condo for Link to Explosives**\
 `Officials were looking into whether the explosion, which killed three sheriff’s deputies, was caused by devices seized from a condo in Santa Monica a day before the blast.`\
 https://nytimes.com/2025/07/19/us/los-angeles-explosion-santa-monica-devices.html
