@@ -1,3 +1,7 @@
+**An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files**\
+`A former Jeffrey Epstein employee said that she told the F.B.I. in 1996 and 2006 about what she considered a troubling encounter with Donald J. Trump.`\
+https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.html
+
 **Blue Jackets Sunday Gathering: What Yegor Chinakhov wants is in Columbus**\
 `Chinakhov said he wants to be a top-six winger in the NHL, and the Blue Jackets have a spot to be grabbed. Can the two sides work it out?`\
 https://nytimes.com/athletic/6503769/2025/07/20/blue-jackets-yegor-chinakhov-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499580/2025/07/20/gabriel-interview-as-arteta-said
 **Nunez scores hat-trick in Liverpool friendly win vs Stoke**\
 `The Uruguayan striker continued his impressive start to pre-season having also netted in last weekend’s 3-1 win at Preston.`\
 https://nytimes.com/athletic/6504774/2025/07/20/darwin-nunez-liverpool-pre-season/
-
-**England to stop taking the knee as Carter subjected to 'vile' racist abuse**\
-`“It is clear we and football need to find another way to tackle racism,” a statement from the Lionesses squad read.`\
-https://nytimes.com/athletic/6504724/2025/07/20/jess-carter-racism-england-knee-euro-2025/
 

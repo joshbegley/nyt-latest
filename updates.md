@@ -1,3 +1,7 @@
+**An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files**\
+`A former Jeffrey Epstein employee said that she told the F.B.I. in 1996 and 2006 about what she considered a troubling encounter with Donald J. Trump.`\
+https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.html
+
 **Blue Jackets Sunday Gathering: What Yegor Chinakhov wants is in Columbus**\
 `Chinakhov said he wants to be a top-six winger in the NHL, and the Blue Jackets have a spot to be grabbed. Can the two sides work it out?`\
 https://nytimes.com/athletic/6503769/2025/07/20/blue-jackets-yegor-chinakhov-trade/
