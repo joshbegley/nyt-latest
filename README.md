@@ -1,4 +1,4 @@
-**With its Olympic heroes away, U.S. women's gymnastics' future takes the floor**\
+**With its Olympic stars away, U.S. women's gymnastics' future takes the floor**\
 `At Saturday's U.S. Classic, Team USA's next generation took the stage as Simone Biles and others remain uncertain about a 2028 Olympic run.`\
 https://nytimes.com/athletic/6503941/2025/07/20/team-usa-womens-gymnastics-olympics-future-simone-biles/
 
