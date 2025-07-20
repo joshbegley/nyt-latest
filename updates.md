@@ -1,3 +1,7 @@
+**Tanner Houck setback a reminder Red Sox need rotation help entering trade deadline**\
+`Balancing Boston's desires with what it's willing to give up in a seller's market will be challenging.`\
+https://nytimes.com/athletic/6504293/2025/07/20/tanner-houck-red-sox-trade-deadline-rotation-help/
+
 **Wrexham Down Under: A tour that whets the appetite and underlines next season's spike in difficulty**\
 `Wrexham's trip to Australia and New Zealand excited fans and was a commercial success - but their squad requires a serious upgrade`\
 https://nytimes.com/athletic/6493064/2025/07/20/wrexham-wellington-sydney-melbourne-tour-championship/
