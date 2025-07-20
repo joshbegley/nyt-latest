@@ -15,7 +15,7 @@ https://nytimes.com/2025/07/20/nyregion/alina-habba-us-attorney-new-jersey.html
 https://nytimes.com/2025/07/20/insider/david-frankel.html
 
 **Morgan Gibbs-White is back in a Forest shirt - but the uncertainty is not over**\
-`Ten days on from Tottenham's shock bid for Gibbs-White, the midfield made his first appearance of pre-season against Monaco`\
+`Ten days on from Tottenham's shock bid for him, the midfielder made his first appearance of pre-season against Monaco`\
 https://nytimes.com/athletic/6503880/2025/07/20/morgan-gibbs-white-forest-monaco-tottenham/
 
 **How the Organ Donation System Let These Patients Down**\
