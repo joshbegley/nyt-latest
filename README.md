@@ -1,3 +1,11 @@
+**Mamdani Travels to Uganda in Break From Mayoral Campaign**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York, said that he and his wife were going to the African country where he was born to celebrate their recent marriage.`\
+https://nytimes.com/2025/07/20/nyregion/zohran-mamdani-uganda-trip.html
+
+**Open Championship 2025: What to know about Scottie Scheffler's fourth major win**\
+`Scottie has won each of his four major titles by at least three strokes, the only player in the modern era to accomplish that feat.`\
+https://nytimes.com/athletic/6505318/2025/07/20/open-championship-2025-what-to-know-scottie-scheffler-win/
+
 **Trump calls for Commanders, Guardians to use original nicknames**\
 `Guardians team president Chris Antonetti said the club is focused on its future rather than talk of its past nickname.`\
 https://nytimes.com/athletic/6505025/2025/07/20/trump-washington-commanders-cleveland-guardians-names/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/20/us/papa-jake-larson-dies-ww2.html
 **MLB investigating incident between Yankees' Jazz Chisholm Jr. and Braves coach**\
 `Eddie Pérez was upset that Chisholm was relaying signs from second base while shortstop Anthony Volpe was hitting in the sixth inning.`\
 https://nytimes.com/athletic/6505147/2025/07/20/yankees-jazz-chisholm-braves-eddie-perez-mlb-investigation/
-
-**Mets' Pete Alonso day to day with right hand contusion, 353-game streak in jeopardy**\
-`Sunday marked Alonso's first absence from the starting lineup since May 30, 2024.`\
-https://nytimes.com/athletic/6505158/2025/07/20/mets-pete-alonso-injury-2/
-
-**Passenger Ferry Fire Kills at Least 3 in Indonesia**\
-`At least three people were killed aboard a passenger ship after a fire broke out on Sunday morning, the authorities and local news outlets said.`\
-https://nytimes.com/video/world/asia/100000010295815/indonesia-passenger-ferry-fire.html
 
