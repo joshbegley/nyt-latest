@@ -1,3 +1,7 @@
+**Chiefs, George Karlaftis agree to 4-year, $93 million extension**\
+`Karlaftis was entering the final year of his rookie contract, and the Chiefs previously picked up his fifth-year option in April.`\
+https://nytimes.com/athletic/6505365/2025/07/20/george-karlaftis-chiefs-contract-extension/
+
 **One day after sitting Mookie Betts, Dodgers move him to leadoff spot**\
 `Betts didn't play Saturday and the Dodgers hope putting him at the top of the order will help the struggling shortstop get back on track.`\
 https://nytimes.com/athletic/6505257/2025/07/20/mookie-betts-leadoff-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
 **Republicans and Democrats call for more information on the Epstein case.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/07/20/us/trump-news/republicans-and-democrats-call-for-more-information-on-the-epstein-case
-
-**Jake Larson, D-Day Veteran and TikTok Star, Dies at 102**\
-`Mr. Larson, the last survivor of a unit that stormed Omaha Beach in 1944, shared his memories on social media where he amassed a wide following.`\
-https://nytimes.com/2025/07/20/us/papa-jake-larson-dies-ww2.html
 
