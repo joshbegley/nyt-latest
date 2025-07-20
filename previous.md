@@ -1,3 +1,7 @@
+**Driver Crashes Into San Jose Post Office, Igniting Fire**\
+`A man was arrested in connection with the crash on suspicion of arson, officials said. No injuries were reported.`\
+https://nytimes.com/2025/07/20/us/san-jose-post-office-crash.html
+
 **Body of 9-Year-Old Girl Reported Missing Is Found in Northern New York**\
 `Melina Galanis Frattolin was reported as the victim of a possible abduction on Saturday in Lake George, N.Y. The police found her body on Sunday over 35 miles away and said there was no indication a kidnapping had happened.`\
 https://nytimes.com/2025/07/20/nyregion/missing-girl-amber-alert-lake-george.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6505528/2025/07/20/submit-a-question-for-stewart-ma
 **Should ICE Agents Be Allowed to Wear Masks? It Depends Whom You Ask.**\
 `Los Angeles’s mayor said Sunday that masked immigration agents helped create a “reign of terror.” ICE’s director said agents could wear masks to “keep them and their families safe.”`\
 https://nytimes.com/2025/07/20/us/politics/ice-agents-masks.html
-
-**Phillies to sign veteran right-handed reliever David Robertson: Sources**\
-`Robertson, 40, owns a career 2.91 ERA over 16 years in the majors, including two with the Phillies.`\
-https://nytimes.com/athletic/6505483/2025/07/20/philadelphia-phillies-david-robertson-signing-source/
 

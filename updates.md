@@ -1,3 +1,7 @@
+**Driver Crashes Into San Jose Post Office, Igniting Fire**\
+`A man was arrested in connection with the crash on suspicion of arson, officials said. No injuries were reported.`\
+https://nytimes.com/2025/07/20/us/san-jose-post-office-crash.html
+
 **Body of 9-Year-Old Girl Reported Missing Is Found in Northern New York**\
 `Melina Galanis Frattolin was reported as the victim of a possible abduction on Saturday in Lake George, N.Y. The police found her body on Sunday over 35 miles away and said there was no indication a kidnapping had happened.`\
 https://nytimes.com/2025/07/20/nyregion/missing-girl-amber-alert-lake-george.html
