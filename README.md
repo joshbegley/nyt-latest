@@ -1,3 +1,7 @@
+**Forest keen on move for Bologna winger Ndoye**\
+`Ndoye, 24, registered nine goals and six assists in 41 games for Bologna last season.`\
+https://nytimes.com/athletic/6504490/2025/07/20/dan-ndoye-nottingham-forest/
+
 **China Exit Ban on Wells Fargo Executive Stokes Foreign Business Anxiety**\
 `The case comes around the same time a Japanese pharmaceutical executive was imprisoned, adding to growing unease even as Beijing tries to court overseas investors.`\
 https://nytimes.com/2025/07/20/business/china-exit-ban-business-anxiety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/opinion/andrea-gibson-poetry.html
 **Why American Jews No Longer Understand One Another**\
 `The consensus that held them together for generations is breaking down.`\
 https://nytimes.com/2025/07/20/opinion/antisemitism-american-jews-israel-mamdani.html
-
-**Wordle Review No. 1,493**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 21, 2025.`\
-https://nytimes.com/2025/07/20/crosswords/wordle-review-1493.html
 
