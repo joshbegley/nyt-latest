@@ -1,3 +1,7 @@
+**Investigators in L.A. Explosion Examine Condo for Link to Explosives**\
+`Officials were looking into whether the explosion, which killed three sheriff’s deputies, was caused by devices seized from a condo in Santa Monica a day before the blast.`\
+https://nytimes.com/2025/07/19/us/los-angeles-explosion-santa-monica-devices.html
+
 **Breaking down Ann-Katrin Berger save of the Euros, sending Germany to semi-finals**\
 `Berger is unflappable in goal for Germany`\
 https://nytimes.com/athletic/6504124/2025/07/19/ann-katrin-berger-germany-euros-save/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
 **Pet Owner Flooded With Puzzling Calls About a Lost Cat While Hers Is Safely at Home**\
 `Natasha Lavoie’s phone number appeared on a T-shirt sold online that advertised a fictitious missing cat. She can’t stop the calls from coming.`\
 https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
-
-**The Briefing: France 1 Germany 1 (5-6 on pens) - Gravity-defying saves, 10-player Germany prevails**\
-`How Germany advanced to face Spain in the Euro 2025 semi-finals, led by goalkeeper Ann-Katrin Berger `\
-https://nytimes.com/athletic/6498368/2025/07/19/france-germany-euro-2025-penalty-shootout/
 
