@@ -1,3 +1,7 @@
+**Jean-Pierre Azéma, 87, Dies; Chronicled French Collaboration With Nazis**\
+`He was among the historians who challenged national myths about the compromises his country made after being occupied by Germany in World War II.`\
+https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
+
 **Republicans and Democrats call for more information on the Epstein case.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/07/20/us/trump-news/republicans-and-democrats-call-for-more-information-on-the-epstein-case
