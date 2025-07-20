@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6505257/2025/07/20/mookie-betts-leadoff-dodgers/
 https://nytimes.com/2025/07/20/nyregion/zohran-mamdani-uganda-trip.html
 
 **Open Championship 2025: What to know about Scottie Scheffler's fourth major win**\
-`Scottie has won each of his four major titles by at least three strokes, the only player in the modern era to accomplish that feat.`\
+`Scheffler has won each of his four major titles by at least three strokes, the only player in the modern era to accomplish that feat.`\
 https://nytimes.com/athletic/6505318/2025/07/20/open-championship-2025-what-to-know-scottie-scheffler-win/
 
 **Trump calls for Commanders, Guardians to use original nicknames**\
