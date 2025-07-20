@@ -1,8 +1,20 @@
+**Should ICE Agents Be Allowed to Wear Masks? It Depends Whom You Ask.**\
+`Los Angeles’s mayor said Sunday that masked immigration agents helped create a “reign of terror.” ICE’s director said agents could wear masks to “keep them and their families safe.”`\
+https://nytimes.com/2025/07/20/us/politics/ice-agents-masks.html
+
+**Phillies to sign veteran right-handed reliever David Robertson: Source**\
+`Robertson, 40, owns a career 2.91 ERA over 16 years in the majors, including two with the Phillies.`\
+https://nytimes.com/athletic/6505483/2025/07/20/philadelphia-phillies-david-robertson-signing-source/
+
+**Lions training camp: Dan Campbell confident entering year 5 despite changes, plus news and notes**\
+`The Lions announced on Sunday that DT Levi Onwuzurike is out for the season.`\
+https://nytimes.com/athletic/6505088/2025/07/20/detroit-lions-training-camp-levi-onwuzurike-injury/
+
 **JC Tretter, among favorites to lead NFLPA, resigns: Source**\
 `NFLPA executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
 https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
 
-**Blue Jays Takeaways: A trade deadline priority emerges, strikeout evasion and more**\
+**Blue Jays Takeaways: Trade priority emerges, strikeout evasion and more**\
 `A rash of Blue Jays injury updates coming out of the All-Star break pushed a likely need into a glaring necessity.`\
 https://nytimes.com/athletic/6505402/2025/07/20/blue-jays-takeaways-deadline-priority/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6505365/2025/07/20/george-karlaftis-chiefs-contract
 **One day after sitting Mookie Betts, Dodgers move him to leadoff spot**\
 `Betts didn't play Saturday and the Dodgers hope putting him at the top of the order will help the struggling shortstop get back on track.`\
 https://nytimes.com/athletic/6505257/2025/07/20/mookie-betts-leadoff-dodgers/
-
-**Mamdani Travels to Uganda in Break From Mayoral Campaign**\
-`Zohran Mamdani, the Democratic nominee for mayor of New York, said that he and his wife were going to the African country where he was born to celebrate their recent marriage.`\
-https://nytimes.com/2025/07/20/nyregion/zohran-mamdani-uganda-trip.html
-
-**Open Championship 2025: What to know about Scottie Scheffler's fourth major win**\
-`Scheffler has won each of his four major titles by at least three strokes, the only player in the modern era to accomplish that feat.`\
-https://nytimes.com/athletic/6505318/2025/07/20/open-championship-2025-what-to-know-scottie-scheffler-win/
-
-**Trump calls for Commanders, Guardians to use original nicknames**\
-`Guardians team president Chris Antonetti said the club is focused on its future rather than talk of its past nickname.`\
-https://nytimes.com/athletic/6505025/2025/07/20/trump-washington-commanders-cleveland-guardians-names/
 
