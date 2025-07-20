@@ -1,3 +1,7 @@
+**Down to 10 players for over 100 minutes, Germany produced their best Euro 2025 performance**\
+`Germany put together one of the most impressive displays you will see from a side reduced to 10 players.`\
+https://nytimes.com/athletic/6504143/2025/07/19/germany-best-euros-performance-france/
+
 **David Wright, Mets celebrate 'unbreakable bond' with number retirement**\
 `"He was The Guy you wanted to be like," said Brandon Nimmo, the only active Met who played with Wright.`\
 https://nytimes.com/athletic/6504181/2025/07/19/mets-david-wright-number-retirement/
