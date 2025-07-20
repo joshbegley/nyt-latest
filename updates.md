@@ -1,3 +1,7 @@
+**In Nashville, a Homecoming for Dolly Parton and Her Musical**\
+`Parton’s life and career have always been rooted in Tennessee. For her fans, it was only fitting to see the debut of her biographical musical here, too.`\
+https://nytimes.com/2025/07/20/theater/dolly-parton-musical-nashville.html
+
 **Canceling ‘The Late Show’ Is Bad News for Late-Night TV, not for Stephen Colbert**\
 `The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
 https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
