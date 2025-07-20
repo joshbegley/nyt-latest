@@ -1,3 +1,7 @@
+**Yankees' potential for a World Series return could hinge on one key factor**\
+`A third baseman would help, but offense has not been the club's biggest issue this season.`\
+https://nytimes.com/athletic/6504287/2025/07/20/yankees-world-series-key-factor/
+
 **Tanner Houck setback a reminder Red Sox need rotation help entering trade deadline**\
 `Balancing Boston's desires with what it's willing to give up in a seller's market will be challenging.`\
 https://nytimes.com/athletic/6504293/2025/07/20/tanner-houck-red-sox-trade-deadline-rotation-help/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499393/2025/07/20/arsenals-chelsea-transfers-madue
 **Cubs takeaways: Imanaga an ace, Busch comes out swinging and who used break wisely**\
 `The impact of Shota Imanaga's return to the Cubs rotation can't be overstated.`\
 https://nytimes.com/athletic/6504282/2025/07/20/cubs-takeaways-shota-imanaga-ace-michael-busch-lead-off-homer/
-
-**This K-Pop Band Is Making Waves With Sign Language**\
-`Big Ocean, a boy band whose members are deaf or hard of hearing, has found success with a mix of singing and signing.`\
-https://nytimes.com/2025/07/20/world/asia/k-pop-sign-language.html
 

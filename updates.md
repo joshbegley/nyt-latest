@@ -1,3 +1,7 @@
+**Yankees' potential for a World Series return could hinge on one key factor**\
+`A third baseman would help, but offense has not been the club's biggest issue this season.`\
+https://nytimes.com/athletic/6504287/2025/07/20/yankees-world-series-key-factor/
+
 **Tanner Houck setback a reminder Red Sox need rotation help entering trade deadline**\
 `Balancing Boston's desires with what it's willing to give up in a seller's market will be challenging.`\
 https://nytimes.com/athletic/6504293/2025/07/20/tanner-houck-red-sox-trade-deadline-rotation-help/
