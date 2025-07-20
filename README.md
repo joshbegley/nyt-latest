@@ -1,4 +1,20 @@
-**Canceling ‘The Late Show’ Is Bad News for Late-Night TV, not for Stephen Colbert**\
+**MLB investigating incident between Yankees' Jazz Chisholm Jr. and Braves coach**\
+`Eddie Pérez was upset that Chisholm was relaying signs from second base while shortstop Anthony Volpe was hitting in the sixth inning.`\
+https://nytimes.com/athletic/6505147/2025/07/20/yankees-jazz-chisholm-braves-eddie-perez-mlb-investigation/
+
+**Mets' Pete Alonso day to day with right hand contusion, 353-game streak in jeopardy**\
+`Sunday marked Alonso's first absence from the starting lineup since May 30, 2024.`\
+https://nytimes.com/athletic/6505158/2025/07/20/mets-pete-alonso-injury-2/
+
+**Passenger Ferry Fire Kills at Least 3 in Indonesia**\
+`At least three people were killed aboard a passenger ship after a fire broke out on Sunday morning, the authorities and local news outlets said.`\
+https://nytimes.com/video/world/asia/100000010295815/indonesia-passenger-ferry-fire.html
+
+**In Nashville, a Homecoming for Dolly Parton and Her Musical**\
+`Parton’s life and career have always been rooted in Tennessee. For her fans, it was only fitting to see the debut of her biographical musical here, too.`\
+https://nytimes.com/2025/07/20/theater/dolly-parton-musical-nashville.html
+
+**Canceling ‘The Late Show’ Is Bad News for Late-Night TV, Not for Stephen Colbert**\
 `The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
 https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barce
 **Passenger Ship Fire Kills at Least 3 People in Indonesia**\
 `The fire happened aboard the KM Barcelona 5 in the waters of North Sulawesi Province in Indonesia on Sunday morning, officials said.`\
 https://nytimes.com/2025/07/20/world/asia/indonesia-ship-fire-dead.html
-
-**Rashford travelling to Barcelona after loan deal agreed with Man Utd**\
-`United have given Rashford permission to fly to Barcelona to start the next chapter of his career, with the deal including an option to buy.`\
-https://nytimes.com/athletic/6505085/2025/07/20/marcus-rashford-barcelona-transfer-latest/
-
-**Tour de France stage 15: Wellens lands popular win, Pogacar's sportsmanship, and why did Alaphilippe celebrate on finish line?**\
-`Analysis of the latest day's action in the 2025 race - a 169km transitional stage from Muret to Carcassonne`\
-https://nytimes.com/athletic/6504522/2025/07/20/tour-de-france-stage-15-analysis/
-
-**British tennis player given four-year doping ban says system is 'broken'**\
-`“The anti-doping system is broken. I am proof of this. We need to fix it," Tara Moore said in a statement on Sunday.`\
-https://nytimes.com/athletic/6505049/2025/07/20/tennis-anti-doping-tara-moore/
-
-**Brighton's Ferguson traveling to Italy ahead of Roma loan**\
-`Ferguson spent the second half of last season on loan to West Ham after moving in February.`\
-https://nytimes.com/athletic/6408209/2025/07/20/evan-ferguson-roma-brighton/
 
