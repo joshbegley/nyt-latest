@@ -1,3 +1,7 @@
+**Wrexham Down Under: A tour that whets the appetite and underlines next season's spike in difficulty**\
+`Wrexham's trip to Australia and New Zealand excited fans and was a commercial success - but their squad requires a serious upgrade`\
+https://nytimes.com/athletic/6493064/2025/07/20/wrexham-wellington-sydney-melbourne-tour-championship/
+
 **Manchester United 0-0 Leeds United: A new formation, a new-look attack, goodbye Bamford?**\
 `There were debuts for Leeds' five new arrivals, but the absence of Patrick Bamford was striking`\
 https://nytimes.com/athletic/6503976/2025/07/20/leeds-manchester-united-bamford-nmechea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/world/asia/k-pop-sign-language.html
 **Connections: Sports Edition Coach: Hints for July 20, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6504288/2025/07/20/connections-sports-edition-hints-for-july-20-2025/
-
-**Phillies notes: Alec Bohm's injury impact, Kyle Schwarber's slam, No. 5 spot in rotation**\
-`Bohm’s injury could complicate the club's approach to the trade deadline. The Phillies could use a mix of players at third in his absence. `\
-https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
 
