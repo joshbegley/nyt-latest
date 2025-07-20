@@ -1,3 +1,7 @@
+**Scottie Scheffler wins Open Championship, taking his place among golf's legends**\
+`Scheffler, 29, shot a 68 in the final round and is now three-quarters of the way to the career Grand Slam.`\
+https://nytimes.com/athletic/6505116/2025/07/20/scottie-scheffler-wins-open-championship-2025/
+
 **Kenneth Colley, 87, ‘Star Wars’ Actor With a Commanding Presence, Dies**\
 `A fixture onscreen and onstage, he became a fan favorite as Darth Vader’s ally, Admiral Piett, in “The Empire Strikes Back” and “Return of the Jedi.”`\
 https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408209/2025/07/20/evan-ferguson-roma-brighton/
 **An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files**\
 `A former Jeffrey Epstein employee said that she told the F.B.I. in 1996 and 2006 about what she considered a troubling encounter with Donald J. Trump.`\
 https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.html
-
-**Blue Jackets Sunday Gathering: What Yegor Chinakhov wants is in Columbus**\
-`Chinakhov said he wants to be a top-six winger in the NHL, and the Blue Jackets have a spot to be grabbed. Can the two sides work it out?`\
-https://nytimes.com/athletic/6503769/2025/07/20/blue-jackets-yegor-chinakhov-trade/
 
