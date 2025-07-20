@@ -1,3 +1,11 @@
+**Off-Duty Customs Officer Shot in Robbery Attempt in Park, N.Y.P.D. Says**\
+`The officer, 42, is expected to recover after being shot in the face and returning fire. There is no indication that he was targeted because of his job, police officials said.`\
+https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.html
+
+**Dodgers' Freddie Freeman leaves game after pitch hits left wrist**\
+`The Dodgers announced during Sunday's game that Freeman suffered a left wrist contusion. `\
+https://nytimes.com/athletic/6505572/2025/07/20/freddie-freeman-injury-hit-by-pitch-dodgers/
+
 **Broncos' Nik Bonitto aware of lucrative pass-rusher market, but focus is on 'upping the ante'**\
 `Bonitto said his camp and the Broncos are engaged in negotiations on a contract extension, but he isn't sweating the timeline.`\
 https://nytimes.com/athletic/6505409/2025/07/20/broncos-nik-bonitto-pass-rush-market-contract/
