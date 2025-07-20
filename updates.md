@@ -1,3 +1,11 @@
+**Faint Signs of Life Appear in Effort to Halt Ukraine War**\
+`Ukraine’s president proposed reviving talks brokered by the Trump administration, which seemed stalled a month ago.`\
+https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks.html
+
+**Mac Miller bobblehead night sets Pirates' 2025 attendance high mark**\
+`Pittsburgh came out to celebrate Miller's life and take home a keepsake on Saturday night`\
+https://nytimes.com/athletic/6505068/2025/07/20/mac-miller-bobblehead-pittsburgh-pirates/
+
 **Jean-Pierre Azéma, 87, Dies; Chronicled French Collaboration With Nazis**\
 `He was among the historians who challenged national myths about the compromises his country made after being occupied by Germany in World War II.`\
 https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
