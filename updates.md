@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, July 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/20/todays-new-york-times-international-edition
+
 **West Ham confirm Walker-Peters signing**\
 `The 28-year-old has signed a three-year contract with West Ham, after a proposed move to Besiktas fell through.`\
 https://nytimes.com/athletic/6504481/2025/07/20/walker-peters-west-ham-transfer/
