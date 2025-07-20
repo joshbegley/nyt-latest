@@ -1,3 +1,7 @@
+**Mets set to recall Francisco Alvarez from Triple A: Sources**\
+`The 23-year-old catcher to earn another chance in the majors after responding well to a demotion last month.`\
+https://nytimes.com/athletic/6505462/2025/07/20/ny-mets-francisco-alvarez-recall-sources/
+
 **Great Britain Sail Grand Prix: New Zealand victorious on day spectator boat invades course**\
 `All 12 teams blasted around an incredibly tight course for the day's three fleet races, with hardly time for anyone to catch their breath`\
 https://nytimes.com/athletic/6505350/2025/07/20/great-britain-sail-grand-prix-portsmouth-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505308/2025/07/20/sarai-linder-injury-germany-spai
 **Faint Signs of Life Appear in Effort to Halt Ukraine War**\
 `Ukraine’s president proposed reviving talks brokered by the Trump administration, which seemed stalled a month ago.`\
 https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks.html
-
-**Mac Miller bobblehead night sets Pirates' 2025 attendance high mark**\
-`Pittsburgh came out to celebrate Miller's life and take home a keepsake on Saturday night`\
-https://nytimes.com/athletic/6505068/2025/07/20/mac-miller-bobblehead-pittsburgh-pirates/
 
