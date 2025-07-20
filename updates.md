@@ -1,3 +1,7 @@
+**Morgan Gibbs-White is back in a Forest shirt - but the uncertainty is not over**\
+`Ten days on from Tottenham's shock bid for him, the midfielder made his first appearance of pre-season against Monaco`\
+https://nytimes.com/athletic/6503880/2025/07/20/morgan-gibbs-white-forest-monaco-tottenham/
+
 **France tried to do it differently... but they cannot get lucky in major tournaments**\
 `France tried to do things differently this tournament. But, somehow, luck was still against them when they faced Germany...`\
 https://nytimes.com/athletic/6504245/2025/07/20/france-germany-result-euro-2025/
