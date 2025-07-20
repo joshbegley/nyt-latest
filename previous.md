@@ -1,3 +1,7 @@
+**MLB investigating incident between Yankees' Jazz Chisholm Jr. and Braves coach**\
+`Eddie Pérez was upset that Chisholm was relaying signs from second base while shortstop Anthony Volpe was hitting in the sixth inning.`\
+https://nytimes.com/athletic/6505147/2025/07/20/yankees-jazz-chisholm-braves-eddie-perez-mlb-investigation/
+
 **Mets' Pete Alonso day to day with right hand contusion, 353-game streak in jeopardy**\
 `Sunday marked Alonso's first absence from the starting lineup since May 30, 2024.`\
 https://nytimes.com/athletic/6505158/2025/07/20/mets-pete-alonso-injury-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barce
 **Passenger Ship Fire Kills at Least 3 People in Indonesia**\
 `The fire happened aboard the KM Barcelona 5 in the waters of North Sulawesi Province in Indonesia on Sunday morning, officials said.`\
 https://nytimes.com/2025/07/20/world/asia/indonesia-ship-fire-dead.html
-
-**Rashford travelling to Barcelona after loan deal agreed with Man Utd**\
-`United have given Rashford permission to fly to Barcelona to start the next chapter of his career, with the deal including an option to buy.`\
-https://nytimes.com/athletic/6505085/2025/07/20/marcus-rashford-barcelona-transfer-latest/
 

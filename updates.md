@@ -1,3 +1,7 @@
+**MLB investigating incident between Yankees' Jazz Chisholm Jr. and Braves coach**\
+`Eddie Pérez was upset that Chisholm was relaying signs from second base while shortstop Anthony Volpe was hitting in the sixth inning.`\
+https://nytimes.com/athletic/6505147/2025/07/20/yankees-jazz-chisholm-braves-eddie-perez-mlb-investigation/
+
 **Mets' Pete Alonso day to day with right hand contusion, 353-game streak in jeopardy**\
 `Sunday marked Alonso's first absence from the starting lineup since May 30, 2024.`\
 https://nytimes.com/athletic/6505158/2025/07/20/mets-pete-alonso-injury-2/
