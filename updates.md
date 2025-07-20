@@ -1,3 +1,7 @@
+**Another Top Aide to Hegseth Leaves the Pentagon**\
+`Justin Fulcher, an adviser to Defense Secretary Pete Hegseth, said in a statement that he had planned to work in the federal government for only six months.`\
+https://nytimes.com/2025/07/20/us/politics/hegseth-aide-resigns-pentagon-justin-fulcher.html
+
 **Gabriel interview: 'As Arteta said - Arsenal are ready to reach new heights this season'**\
 `The centre-back just signed a new deal and says everyone at the club believes they can win a trophy after three years of near-misses`\
 https://nytimes.com/athletic/6499580/2025/07/20/gabriel-interview-as-arteta-said-arsenal-are-ready-to-reach-new-heights-this-season/
