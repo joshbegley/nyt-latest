@@ -1,3 +1,11 @@
+**Trump calls for Commanders, Guardians to use original nicknames**\
+`Guardians team president Chris Antonetti said the club is focused on its future rather than talk of its past nickname.`\
+https://nytimes.com/athletic/6505025/2025/07/20/trump-washington-commanders-cleveland-guardians-names/
+
+**Germany's Linder out of Euro 2025 semi-final against Spain**\
+`Linder, 25, was forced off in the 20th minute of Germany’s dramatic quarter-final win over France on Saturday.`\
+https://nytimes.com/athletic/6505308/2025/07/20/sarai-linder-injury-germany-spain/
+
 **Faint Signs of Life Appear in Effort to Halt Ukraine War**\
 `Ukraine’s president proposed reviving talks brokered by the Trump administration, which seemed stalled a month ago.`\
 https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6505158/2025/07/20/mets-pete-alonso-injury-2/
 **Passenger Ferry Fire Kills at Least 3 in Indonesia**\
 `At least three people were killed aboard a passenger ship after a fire broke out on Sunday morning, the authorities and local news outlets said.`\
 https://nytimes.com/video/world/asia/100000010295815/indonesia-passenger-ferry-fire.html
-
-**In Nashville, a Homecoming for Dolly Parton and Her Musical**\
-`Parton’s life and career have always been rooted in Tennessee. For her fans, it was only fitting to see the debut of her biographical musical here, too.`\
-https://nytimes.com/2025/07/20/theater/dolly-parton-musical-nashville.html
-
-**Canceling ‘The Late Show’ Is Bad News for Late-Night TV, Not for Stephen Colbert**\
-`The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
-https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
 
