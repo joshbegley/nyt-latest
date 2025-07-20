@@ -1,3 +1,7 @@
+**Israel Issues Evacuation Order for New Area in Gaza**\
+`The military told Palestinians to leave an area where many have sought refuge during the 21-month war and warned that it may expand operations.`\
+https://nytimes.com/2025/07/20/world/middleeast/israel-gaza-military-evacuation.html
+
 **Out of lineup as Twins fall to Rockies again, Royce Lewis works to rediscover swing**\
 `"It doesn't look the same as a year ago, two years ago," Lewis said. "My body is compensating for something."`\
 https://nytimes.com/athletic/6504256/2025/07/20/twins-lose-rockies-royce-lewis-lineup-swing/

@@ -1,3 +1,7 @@
+**China Exit Ban on Wells Fargo Executive Stokes Foreign Business Anxiety**\
+`The case comes around the same time a Japanese pharmaceutical executive was imprisoned, adding to growing unease even as Beijing tries to court overseas investors.`\
+https://nytimes.com/2025/07/20/business/china-exit-ban-business-anxiety.html
+
 **Israel Issues Evacuation Order for New Area in Gaza**\
 `The military told Palestinians to leave an area where many have sought refuge during the 21-month war and warned that it may expand operations.`\
 https://nytimes.com/2025/07/20/world/middleeast/israel-gaza-military-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/opinion/antisemitism-american-jews-israel-mamdani
 **Wordle Review No. 1,493**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 21, 2025.`\
 https://nytimes.com/2025/07/20/crosswords/wordle-review-1493.html
-
-**Strands Sidekick No. 505**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 21, 2025.`\
-https://nytimes.com/2025/07/20/crosswords/strands-sidekick-505.html
 
