@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, July 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/20/todays-new-york-times-international-edition
+
 **West Ham confirm Walker-Peters signing**\
 `The 28-year-old has signed a three-year contract with West Ham, after a proposed move to Besiktas fell through.`\
 https://nytimes.com/athletic/6504481/2025/07/20/walker-peters-west-ham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/books/review/if-you-love-it-let-it-kill-you-hanna
 **Amad says top-five finish would be 'good season' for Man Utd**\
 `United recorded a 15th-place league finish in 2024-25, their lowest since they were relegated from the top division in 1974.`\
 https://nytimes.com/athletic/6503814/2025/07/20/manchester-united-league-finish-amad/
-
-**​A Trump-Themed Beach House vs. ‘the Hamptons of the South’**\
-`Local officials spent years trying to force Marvin Peavy to remove the giant pro-Trump banners from his home in the Florida Panhandle. This summer, Mr. Peavy is basking in victory.`\
-https://nytimes.com/2025/07/20/us/trump-signs-florida.html
 
