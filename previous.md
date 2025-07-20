@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6424847/2025/07/20/buffalo-bills-training-camp-2025
 `Ndoye, 24, registered nine goals and six assists in 41 games for Bologna last season.`\
 https://nytimes.com/athletic/6504490/2025/07/20/dan-ndoye-nottingham-forest/
 
-**China Exit Ban on Wells Fargo Executive Stokes Foreign Business Anxiety**\
-`The case comes around the same time a Japanese pharmaceutical executive was imprisoned, adding to growing unease even as Beijing tries to court overseas investors.`\
+**China’s Moves Against 2 Executives Stoke Anxiety in Foreign Businesses**\
+`A Wells Fargo banker was blocked from leaving and a Japanese pharmaceutical executive was imprisoned, even as Beijing tries to court overseas investors.`\
 https://nytimes.com/2025/07/20/business/china-exit-ban-business-anxiety.html
 
