@@ -1,3 +1,11 @@
+**Broncos' Nik Bonitto aware of lucrative pass-rusher market, but focus is on 'upping the ante'**\
+`Bonitto said his camp and the Broncos are engaged in negotiations on a contract extension, but he isn't sweating the timeline.`\
+https://nytimes.com/athletic/6505409/2025/07/20/broncos-nik-bonitto-pass-rush-market-contract/
+
+**Phillies to sign veteran right-handed reliever David Robertson: Sources**\
+`Robertson, 40, owns a career 2.91 ERA over 16 years in the majors, including two with the Phillies.`\
+https://nytimes.com/athletic/6505483/2025/07/20/philadelphia-phillies-david-robertson-signing-source/
+
 **Flat-Bottomed Boat**\
 `Katy Steinmetz and Rich Katz make their collaboration debut in The New York Times.`\
 https://nytimes.com/2025/07/20/crosswords/daily-puzzle-2025-07-21.html
