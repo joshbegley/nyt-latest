@@ -1,3 +1,7 @@
+**Rashford travelling to Barcelona after loan deal agreed with Man Utd**\
+`United have given Rashford permission to fly to Barcelona to start the next chapter of his career, with the deal including an option to buy.`\
+https://nytimes.com/athletic/6505085/2025/07/20/marcus-rashford-barcelona-transfer-latest/
+
 **Tour de France stage 15: Wellens lands popular win, Pogacar's sportsmanship, and why did Alaphilippe celebrate on finish line?**\
 `Analysis of the latest day's action in the 2025 race - a 169km transitional stage from Muret to Carcassonne`\
 https://nytimes.com/athletic/6504522/2025/07/20/tour-de-france-stage-15-analysis/
