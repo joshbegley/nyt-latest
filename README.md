@@ -1,3 +1,11 @@
+**Off-Duty Customs Officer Shot in Robbery Attempt in Park, N.Y.P.D. Says**\
+`The officer, 42, is expected to recover after being shot in the face and returning fire. There is no indication that he was targeted because of his job, police officials said.`\
+https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.html
+
+**Dodgers' Freddie Freeman leaves game after pitch hits left wrist**\
+`The Dodgers announced during Sunday's game that Freeman suffered a left wrist contusion. `\
+https://nytimes.com/athletic/6505572/2025/07/20/freddie-freeman-injury-hit-by-pitch-dodgers/
+
 **Broncos' Nik Bonitto aware of lucrative pass-rusher market, but focus is on 'upping the ante'**\
 `Bonitto said his camp and the Broncos are engaged in negotiations on a contract extension, but he isn't sweating the timeline.`\
 https://nytimes.com/athletic/6505409/2025/07/20/broncos-nik-bonitto-pass-rush-market-contract/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
 **Blue Jays Takeaways: Trade priority emerges, strikeout evasion and more**\
 `A rash of Blue Jays injury updates coming out of the All-Star break pushed a likely need into a glaring necessity.`\
 https://nytimes.com/athletic/6505402/2025/07/20/blue-jays-takeaways-deadline-priority/
-
-**Mets set to recall Francisco Alvarez from Triple A: Sources**\
-`The 23-year-old catcher will get another chance in the majors after responding well to a demotion last month.`\
-https://nytimes.com/athletic/6505462/2025/07/20/ny-mets-francisco-alvarez-recall-sources/
-
-**Great Britain Sail Grand Prix: New Zealand victorious on day spectator boat invades course**\
-`All 12 teams blasted around an incredibly tight course for the day's three fleet races, with hardly time for anyone to catch their breath`\
-https://nytimes.com/athletic/6505350/2025/07/20/great-britain-sail-grand-prix-portsmouth-results/
 
