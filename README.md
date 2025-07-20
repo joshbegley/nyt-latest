@@ -1,3 +1,7 @@
+**Jean-Pierre Azéma, 87, Dies; Chronicled French Collaboration With Nazis**\
+`He was among the historians who challenged national myths about the compromises his country made after being occupied by Germany in World War II.`\
+https://nytimes.com/2025/07/20/world/europe/jean-pierre-azema-dead.html
+
 **Republicans and Democrats call for more information on the Epstein case.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/07/20/us/trump-news/republicans-and-democrats-call-for-more-information-on-the-epstein-case
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505116/2025/07/20/scottie-scheffler-wins-open-cham
 **Kenneth Colley, 87, ‘Star Wars’ Actor With a Commanding Presence, Dies**\
 `A fixture onscreen and onstage, he became a fan favorite as Darth Vader’s ally, Admiral Piett, in “The Empire Strikes Back” and “Return of the Jedi.”`\
 https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html
-
-**Calls for Japan’s Leader to Resign as His Party Faces Election Defeat**\
-`Exit polls suggest a major loss for the Liberal Democratic Party in parliamentary elections, but Prime Minister Shigeru Ishiba is vowing to stay on.`\
-https://nytimes.com/2025/07/20/world/asia/japan-parliamentary-elections-exit-polls.html
 
