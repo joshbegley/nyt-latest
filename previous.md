@@ -1,3 +1,7 @@
+**Number of Missing in Kerr County, Texas, After Floods Drops to 3**\
+`The new figure was a significant decline from 97 just days ago. The death toll in the county remained the same, and officials said many of the missing were reported safe.`\
+https://nytimes.com/2025/07/19/us/texas-floods-kerr-county-missing.html
+
 **Heavy Rains in Washington Area Flood Roads and Prompt Water Rescues**\
 `More than five inches fell in some suburbs of the capital. The authorities in Maryland rescued dozens of people, including some who were stranded in their cars.`\
 https://nytimes.com/2025/07/19/us/maryland-washington-dc-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504124/2025/07/19/ann-katrin-berger-germany-euros-
 **Dodgers give struggling Mookie Betts chance to reset but won't move him down in order**\
 `"Where I was and where I am now, it's so night-and-day different," Betts said.`\
 https://nytimes.com/athletic/6504148/2025/07/19/dodgers-mookie-betts-to-sit-batting-order/
-
-**Luka Dončić has been recruiting for Lakers ahead of extension decision**\
-`Dončić helped secure commitments from Deandre Ayton and Marcus Smart after both unexpectedly hit free agency via contract buyouts.`\
-https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-extension-decision/
 

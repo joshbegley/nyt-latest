@@ -1,3 +1,7 @@
+**Number of Missing in Kerr County, Texas, After Floods Drops to 3**\
+`The new figure was a significant decline from 97 just days ago. The death toll in the county remained the same, and officials said many of the missing were reported safe.`\
+https://nytimes.com/2025/07/19/us/texas-floods-kerr-county-missing.html
+
 **Heavy Rains in Washington Area Flood Roads and Prompt Water Rescues**\
 `More than five inches fell in some suburbs of the capital. The authorities in Maryland rescued dozens of people, including some who were stranded in their cars.`\
 https://nytimes.com/2025/07/19/us/maryland-washington-dc-flooding.html
