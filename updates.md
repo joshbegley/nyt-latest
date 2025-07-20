@@ -1,3 +1,7 @@
+**JC Tretter, among favorites to lead NFLPA, resigns: Source**\
+`Executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
+https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
+
 **How Did the Number of People Missing After Texas Floods Drop So Drastically?**\
 `Last week, officials said 97 people were missing in Kerr County. Now, it’s down to three. The drop is substantial, but such wild fluctuations can happen after disasters.`\
 https://nytimes.com/2025/07/20/us/texas-floods-missing.html

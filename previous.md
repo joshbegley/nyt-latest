@@ -37,6 +37,6 @@ https://nytimes.com/athletic/6505483/2025/07/20/philadelphia-phillies-david-robe
 https://nytimes.com/athletic/6505088/2025/07/20/detroit-lions-training-camp-levi-onwuzurike-injury/
 
 **JC Tretter, among favorites to lead NFLPA, resigns: Source**\
-`NFLPA executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
+`Executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
 https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
 

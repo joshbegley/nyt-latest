@@ -1,3 +1,7 @@
+**Israel Kills Dozens of Palestinians Seeking Aid, Gaza Officials Say**\
+`Israeli soldiers opened fire near the Zikim crossing between the Gaza Strip and Israel, where a convoy of 25 trucks from the United Nations was entering the enclave.`\
+https://nytimes.com/video/world/middleeast/100000010296045/israel-gaza-aid-shooting.html
+
 **How Did the Number of People Missing After Texas Floods Drop So Drastically?**\
 `Last week, officials said 97 people were missing in Kerr County. Now, it’s down to three. The drop is substantial, but such wild fluctuations can happen after disasters.`\
 https://nytimes.com/2025/07/20/us/texas-floods-missing.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6505483/2025/07/20/philadelphia-phillies-david-robe
 **Lions training camp: Dan Campbell confident entering year 5 despite changes, plus news and notes**\
 `The Lions announced on Sunday that DT Levi Onwuzurike is out for the season.`\
 https://nytimes.com/athletic/6505088/2025/07/20/detroit-lions-training-camp-levi-onwuzurike-injury/
-
-**JC Tretter, among favorites to lead NFLPA, resigns: Source**\
-`Executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
-https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
 
