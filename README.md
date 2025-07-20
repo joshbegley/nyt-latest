@@ -1,3 +1,7 @@
+**Broncos' Nik Bonitto aware of lucrative pass-rusher market, but focus is on 'upping the ante'**\
+`Bonitto said his camp and the Broncos are engaged in negotiations on a contract extension, but he isn't sweating the timeline.`\
+https://nytimes.com/athletic/6505409/2025/07/20/broncos-nik-bonitto-pass-rush-market-contract/
+
 **Flat-Bottomed Boat**\
 `Katy Steinmetz and Rich Katz make their collaboration debut in The New York Times.`\
 https://nytimes.com/2025/07/20/crosswords/daily-puzzle-2025-07-21.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6505528/2025/07/20/submit-a-question-for-stewart-ma
 `Los Angeles’s mayor said Sunday that masked immigration agents helped create a “reign of terror.” ICE’s director said agents could wear masks to “keep them and their families safe.”`\
 https://nytimes.com/2025/07/20/us/politics/ice-agents-masks.html
 
-**Phillies to sign veteran right-handed reliever David Robertson: Source**\
+**Phillies to sign veteran right-handed reliever David Robertson: Sources**\
 `Robertson, 40, owns a career 2.91 ERA over 16 years in the majors, including two with the Phillies.`\
 https://nytimes.com/athletic/6505483/2025/07/20/philadelphia-phillies-david-robertson-signing-source/
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6505462/2025/07/20/ny-mets-francisco-alvarez-recall
 **Great Britain Sail Grand Prix: New Zealand victorious on day spectator boat invades course**\
 `All 12 teams blasted around an incredibly tight course for the day's three fleet races, with hardly time for anyone to catch their breath`\
 https://nytimes.com/athletic/6505350/2025/07/20/great-britain-sail-grand-prix-portsmouth-results/
-
-**Monday Briefing: Dozens Killed in Gaza**\
-`Plus, a film takes us back to the pandemic.`\
-https://nytimes.com/2025/07/20/briefing/gaza-israel-japan-epstein-trump.html
 
