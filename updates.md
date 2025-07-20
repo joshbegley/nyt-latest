@@ -1,3 +1,19 @@
+**Breaking down Ann-Katrin Berger save of the Euros, sending Germany to semi-finals**\
+`Berger is unflappable in goal for Germany`\
+https://nytimes.com/athletic/6504124/2025/07/19/ann-katrin-berger-germany-euros-save/
+
+**Dodgers give struggling Mookie Betts chance to reset but won't move him down in order**\
+`"Where I was and where I am now, it's so night-and-day different," Betts said.`\
+https://nytimes.com/athletic/6504148/2025/07/19/dodgers-mookie-betts-to-sit-batting-order/
+
+**Luka Dončić has been recruiting for Lakers ahead of extension decision**\
+`Dončić helped secure commitments from Deandre Ayton and Marcus Smart after both unexpectedly hit free agency via contract buyouts.`\
+https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-extension-decision/
+
+**How Anti-Immigrant Riots in Northern Ireland started**\
+`For weeks, there has been a drumbeat of anti-immigrant episodes in Northern Ireland. Ali Watkins, a reporter for The New York Times based in Belfast, describes what she’s seen covering these events to Katrin Bennhold, a senior writer on the international desk.`\
+https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-in-northern-ireland-started.html
+
 **Houston Astros third baseman Isaac Paredes reinjures right hamstring**\
 `Paredes pulled up lame while running to first base after a third-inning single Saturday against the Mariners.`\
 https://nytimes.com/athletic/6504294/2025/07/19/isaac-paredes-reinjures-right-hamstring/
