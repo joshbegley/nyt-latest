@@ -1,6 +1,10 @@
-**WNBA commissioner confident CBA will be done by deadline despite concerns**\
+**The most unforgettable fashion at WNBA All-Star Weekend, from 'orange carpet' to tunnel walks**\
+`The most unforgettable looks and best style at WNBA All-Star Weekend.`\
+https://nytimes.com/athletic/6499932/2025/07/19/wnba-all-star-fashion-best-looks/
+
+**WNBA commissioner confident CBA will be signed by deadline despite concerns**\
 `As commisioner Cathy Engelbert spoke, players took the floor wearing shirts that read “Pay Us What You Owe Us.”`\
-https://nytimes.com/athletic/6504249/2025/07/19/wnba-commissioner-confident-cba-will-be-done-by-deadline-despite-player-concerns/
+https://nytimes.com/athletic/6504249/2025/07/19/wnba-cba-commissioner-confident-player-concerns/
 
 **Manhattan man pleads guilty to role in burglary at Joe Burrow's home**\
 `Dimitriy Nezhinskiy facex a maximum sentence of five years’ imprisonment and restitution of approximately $2.5 million.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504138/2025/07/19/luka-doncic-lakers-recruiting-ex
 **How Anti-Immigrant Riots in Northern Ireland started**\
 `For weeks, there has been a drumbeat of anti-immigrant episodes in Northern Ireland. Ali Watkins, a reporter for The New York Times based in Belfast, describes what she’s seen covering these events to Katrin Bennhold, a senior writer on the international desk.`\
 https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-in-northern-ireland-started.html
-
-**Why the Clippers are counting on a Bradley Beal bounce-back after Phoenix stint**\
-`With the addition of Beal, Lawrence Frank believes the Clippers have what it takes to win a playoff series for the first time in five years.`\
-https://nytimes.com/athletic/6504016/2025/07/19/clippers-counting-on-bradley-beal-bounce-back/
 

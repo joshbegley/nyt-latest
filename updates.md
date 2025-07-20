@@ -1,3 +1,11 @@
+**The most unforgettable fashion at WNBA All-Star Weekend, from 'orange carpet' to tunnel walks**\
+`The most unforgettable looks and best style at WNBA All-Star Weekend.`\
+https://nytimes.com/athletic/6499932/2025/07/19/wnba-all-star-fashion-best-looks/
+
+**WNBA commissioner confident CBA will be signed by deadline despite concerns**\
+`As commisioner Cathy Engelbert spoke, players took the floor wearing shirts that read “Pay Us What You Owe Us.”`\
+https://nytimes.com/athletic/6504249/2025/07/19/wnba-cba-commissioner-confident-player-concerns/
+
 **WNBA commissioner confident CBA will be done by deadline despite concerns**\
 `As commisioner Cathy Engelbert spoke, players took the floor wearing shirts that read “Pay Us What You Owe Us.”`\
 https://nytimes.com/athletic/6504249/2025/07/19/wnba-commissioner-confident-cba-will-be-done-by-deadline-despite-player-concerns/
