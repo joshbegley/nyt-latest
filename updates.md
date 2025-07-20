@@ -1,3 +1,7 @@
+**Mets set to recall Francisco Alvarez from Triple A: Sources**\
+`The 23-year-old catcher will get another chance in the majors after responding well to a demotion last month.`\
+https://nytimes.com/athletic/6505462/2025/07/20/ny-mets-francisco-alvarez-recall-sources/
+
 **JC Tretter, among favorites to lead NFLPA, resigns: Source**\
 `NFLPA executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
 https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/

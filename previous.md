@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
 https://nytimes.com/athletic/6505402/2025/07/20/blue-jays-takeaways-deadline-priority/
 
 **Mets set to recall Francisco Alvarez from Triple A: Sources**\
-`The 23-year-old catcher to earn another chance in the majors after responding well to a demotion last month.`\
+`The 23-year-old catcher will get another chance in the majors after responding well to a demotion last month.`\
 https://nytimes.com/athletic/6505462/2025/07/20/ny-mets-francisco-alvarez-recall-sources/
 
 **Great Britain Sail Grand Prix: New Zealand victorious on day spectator boat invades course**\
