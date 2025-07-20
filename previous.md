@@ -1,3 +1,11 @@
+**JC Tretter, among favorites to lead NFLPA, resigns: Source**\
+`NFLPA executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
+https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
+
+**Blue Jays Takeaways: A trade deadline priority emerges, strikeout evasion and more**\
+`A rash of Blue Jays injury updates coming out of the All-Star break pushed a likely need into a glaring necessity.`\
+https://nytimes.com/athletic/6505402/2025/07/20/blue-jays-takeaways-deadline-priority/
+
 **Mets set to recall Francisco Alvarez from Triple A: Sources**\
 `The 23-year-old catcher to earn another chance in the majors after responding well to a demotion last month.`\
 https://nytimes.com/athletic/6505462/2025/07/20/ny-mets-francisco-alvarez-recall-sources/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6505318/2025/07/20/open-championship-2025-what-to-k
 **Trump calls for Commanders, Guardians to use original nicknames**\
 `Guardians team president Chris Antonetti said the club is focused on its future rather than talk of its past nickname.`\
 https://nytimes.com/athletic/6505025/2025/07/20/trump-washington-commanders-cleveland-guardians-names/
-
-**Germany's Linder out of Euro 2025 semi-final against Spain**\
-`Linder, 25, was forced off in the 20th minute of Germany’s dramatic quarter-final win over France on Saturday.`\
-https://nytimes.com/athletic/6505308/2025/07/20/sarai-linder-injury-germany-spain/
-
-**Faint Signs of Life Appear in Effort to Halt Ukraine War**\
-`Ukraine’s president proposed reviving talks brokered by the Trump administration, which seemed stalled a month ago.`\
-https://nytimes.com/2025/07/20/world/europe/russia-ukraine-war-trump-peace-talks.html
 
