@@ -1,3 +1,11 @@
+**Tracking Typhoon Wipha**\
+`See the likely path and wind arrival times for Wipha.`\
+https://nytimes.com/interactive/2025/07/20/world/wipha-map-path-tracker.html
+
+**Typhoon Wipha Pounds Hong Kong and Macau with Rain and High Winds**\
+`The tropical cyclone was expected to make landfall in mainland China later on Sunday with winds equivalent to those of a Category 2 Atlantic hurricane.`\
+https://nytimes.com/2025/07/20/world/asia/typhoon-wipha-china-hong-kong-macau.html
+
 **Braves' bullpen meltdown, big nights for Joey Wentz and Ozzie Albies, Marcell Ozuna's status**\
 `The bullpen allowed 12 runs in Saturday's last five innings, spoiling Wentz's four-inning scoreless start and Albies' five-RBI night.`\
 https://nytimes.com/athletic/6504341/2025/07/20/braves-yankees-bullpen-joey-wentz-ozzie-albies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6493064/2025/07/20/wrexham-wellington-sydney-melbou
 **Manchester United 0-0 Leeds United: A new formation, a new-look attack, goodbye Bamford?**\
 `There were debuts for Leeds' five new arrivals, but the absence of Patrick Bamford was striking`\
 https://nytimes.com/athletic/6503976/2025/07/20/leeds-manchester-united-bamford-nmechea/
-
-**Wightman and Brazier's tough comebacks show turbocharging of men's middle-distance running**\
-`Jake Wightman and Donavan Brazier's recent struggles show how middle-distance running has moved on so quickly...`\
-https://nytimes.com/athletic/6503789/2025/07/20/wightman-and-braziers-tough-comebacks-show-turbocharging-of-mens-middle-distance-running/
-
-**Thiago Almada's Atletico Madrid move sums up the transfer industry 2025**\
-`Former MLS star's switch to La Liga is full of sub-plots that epitomise the globe-spanning complexity of the modern football machine`\
-https://nytimes.com/athletic/6495548/2025/07/20/thiago-almada-atletico-madrid-transfer-connections/
 
