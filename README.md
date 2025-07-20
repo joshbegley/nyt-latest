@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: What Yegor Chinakhov wants is in Columbus**\
+`Chinakhov said he wants to be a top-six winger in the NHL, and the Blue Jackets have a spot to be grabbed. Can the two sides work it out?`\
+https://nytimes.com/athletic/6503769/2025/07/20/blue-jackets-yegor-chinakhov-trade/
+
+**No ifs, buts or maybes: Oleksandr Usyk is undeniably one of boxing's greatest**\
+`The Ukrainian has proved himself not just a generational great but an all-time one. His name is now among that of legendary heavyweights`\
+https://nytimes.com/athletic/6504513/2025/07/20/oleksandr-usyk-greatness/
+
 **GB relay team savours 'really special' gold medal after 28-year wait**\
 `The 1997 Athens race had been won by the USA team, but they were later stripped of their gold medal due to an anti-doping violation.`\
 https://nytimes.com/athletic/6504846/2025/07/20/athletics-world-championships-relay-gold/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6504774/2025/07/20/darwin-nunez-liverpool-pre-seaso
 **England to stop taking the knee as Carter subjected to 'vile' racist abuse**\
 `“It is clear we and football need to find another way to tackle racism,” a statement from the Lionesses squad read.`\
 https://nytimes.com/athletic/6504724/2025/07/20/jess-carter-racism-england-knee-euro-2025/
-
-**Heavy Rains and Flash Floods Threaten Midwest and Ohio Valley**\
-`Slow-moving storms could bring up to 11 inches of rain, raising the risk of flash floods on Sunday, particularly in Illinois and Indiana, forecasters said.`\
-https://nytimes.com/2025/07/20/weather/midwest-illinois-rains-flooding.html
-
-**The Pulse: Caitlin Clark's painful season**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6504425/2025/07/20/scottie-hurtles-toward-history-while-caitlin-clarks-season-goes-sideways/
 
