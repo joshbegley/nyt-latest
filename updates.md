@@ -1,3 +1,11 @@
+**Why this should be Rashford's sad, but necessary, final farewell to United**\
+`The forward was meant to spend his whole career at the local club where it began but this loan move to Barcelona makes sense on many levels`\
+https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barcelona-transfer/
+
+**Passenger Ship Fire Kills at Least 3 People in Indonesia**\
+`The fire happened aboard the KM Barcelona 5 in the waters of North Sulawesi Province in Indonesia on Sunday morning, officials said.`\
+https://nytimes.com/2025/07/20/world/asia/indonesia-ship-fire-dead.html
+
 **Rashford travelling to Barcelona after loan deal agreed with Man Utd**\
 `United have given Rashford permission to fly to Barcelona to start the next chapter of his career, with the deal including an option to buy.`\
 https://nytimes.com/athletic/6505085/2025/07/20/marcus-rashford-barcelona-transfer-latest/
