@@ -1,3 +1,7 @@
+**Body of 9-Year-Old Girl Reported Missing Is Found in Northern New York**\
+`Melina Galanis Frattolin was reported as the victim of a possible abduction on Saturday in Lake George, N.Y. The police found her body on Sunday over 35 miles away and said there was no indication a kidnapping had happened.`\
+https://nytimes.com/2025/07/20/nyregion/missing-girl-amber-alert-lake-george.html
+
 **Israel Kills Dozens of Palestinians Seeking Aid, Gaza Officials Say**\
 `Israeli soldiers opened fire near the Zikim crossing between the Gaza Strip and Israel, where a convoy of 25 trucks from the United Nations was entering the enclave.`\
 https://nytimes.com/video/world/middleeast/100000010296045/israel-gaza-aid-shooting.html
