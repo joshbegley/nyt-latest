@@ -1,3 +1,15 @@
+**Mets' Pete Alonso day to day with right hand contusion, 353-game streak in jeopardy**\
+`Sunday marked Alonso's first absence from the starting lineup since May 30, 2024.`\
+https://nytimes.com/athletic/6505158/2025/07/20/mets-pete-alonso-injury-2/
+
+**Passenger Ferry Fire Kills at Least 3 in Indonesia**\
+`At least three people were killed aboard a passenger ship after a fire broke out on Sunday morning, the authorities and local news outlets said.`\
+https://nytimes.com/video/world/asia/100000010295815/indonesia-passenger-ferry-fire.html
+
+**Canceling ‘The Late Show’ Is Bad News for Late-Night TV, Not for Stephen Colbert**\
+`The art form was already in decline; this may hasten its demise. But don’t fret about the host. His talents are better showcased elsewhere.`\
+https://nytimes.com/2025/07/20/arts/television/stephen-colbert-the-late-show-canceled-comedy.html
+
 **In Nashville, a Homecoming for Dolly Parton and Her Musical**\
 `Parton’s life and career have always been rooted in Tennessee. For her fans, it was only fitting to see the debut of her biographical musical here, too.`\
 https://nytimes.com/2025/07/20/theater/dolly-parton-musical-nashville.html
