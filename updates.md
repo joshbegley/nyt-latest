@@ -1,3 +1,7 @@
+**England to stop taking the knee as Carter subjected to 'vile' racist abuse**\
+`“It is clear we and football need to find another way to tackle racism,” a statement from the Lionesses squad read.`\
+https://nytimes.com/athletic/6504724/2025/07/20/jess-carter-racism-england-knee-euro-2025/
+
 **Heavy Rains and Flash Floods Threaten Midwest and Ohio Valley**\
 `Slow-moving storms could bring up to 11 inches of rain, raising the risk of flash floods on Sunday, particularly in Illinois and Indiana, forecasters said.`\
 https://nytimes.com/2025/07/20/weather/midwest-illinois-rains-flooding.html
