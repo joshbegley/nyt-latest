@@ -1,3 +1,7 @@
+**Jake Larson, D-Day Veteran and TikTok Star, Dies at 102**\
+`Mr. Larson, the last survivor of a unit that stormed Omaha Beach in 1944, shared his memories on social media where he amassed a wide following.`\
+https://nytimes.com/2025/07/20/us/papa-jake-larson-dies-ww2.html
+
 **MLB investigating incident between Yankees' Jazz Chisholm Jr. and Braves coach**\
 `Eddie Pérez was upset that Chisholm was relaying signs from second base while shortstop Anthony Volpe was hitting in the sixth inning.`\
 https://nytimes.com/athletic/6505147/2025/07/20/yankees-jazz-chisholm-braves-eddie-perez-mlb-investigation/

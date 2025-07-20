@@ -1,3 +1,7 @@
+**Jake Larson, D-Day Veteran and TikTok Star, Dies at 102**\
+`Mr. Larson, the last survivor of a unit that stormed Omaha Beach in 1944, shared his memories on social media where he amassed a wide following.`\
+https://nytimes.com/2025/07/20/us/papa-jake-larson-dies-ww2.html
+
 **MLB investigating incident between Yankees' Jazz Chisholm Jr. and Braves coach**\
 `Eddie Pérez was upset that Chisholm was relaying signs from second base while shortstop Anthony Volpe was hitting in the sixth inning.`\
 https://nytimes.com/athletic/6505147/2025/07/20/yankees-jazz-chisholm-braves-eddie-perez-mlb-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/world/asia/japan-parliamentary-elections-exit-pol
 **Why this should be Rashford's sad, but necessary, final farewell to United**\
 `The forward was meant to spend his whole career at the local club where it began but this loan move to Barcelona makes sense on many levels`\
 https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barcelona-transfer/
-
-**Passenger Ship Fire Kills at Least 3 People in Indonesia**\
-`The fire happened aboard the KM Barcelona 5 in the waters of North Sulawesi Province in Indonesia on Sunday morning, officials said.`\
-https://nytimes.com/2025/07/20/world/asia/indonesia-ship-fire-dead.html
 
