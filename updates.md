@@ -1,3 +1,11 @@
+**Tracking Typhoon Wipha**\
+`See the likely path and wind arrival times for Wipha.`\
+https://nytimes.com/interactive/2025/07/20/world/wipha-map-path-tracker.html
+
+**Typhoon Wipha Pounds Hong Kong and Macau with Rain and High Winds**\
+`The tropical cyclone was expected to make landfall in mainland China later on Sunday with winds equivalent to those of a Category 2 Atlantic hurricane.`\
+https://nytimes.com/2025/07/20/world/asia/typhoon-wipha-china-hong-kong-macau.html
+
 **Braves' bullpen meltdown, big nights for Joey Wentz and Ozzie Albies, Marcell Ozuna's status**\
 `The bullpen allowed 12 runs in Saturday's last five innings, spoiling Wentz's four-inning scoreless start and Albies' five-RBI night.`\
 https://nytimes.com/athletic/6504341/2025/07/20/braves-yankees-bullpen-joey-wentz-ozzie-albies/
