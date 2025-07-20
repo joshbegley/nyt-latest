@@ -1,3 +1,7 @@
+**GB relay team savours 'really special' gold medal after 28-year wait**\
+`The 1997 Athens race had been won by the USA team, but they were later stripped of their gold medal due to an anti-doping violation.`\
+https://nytimes.com/athletic/6504846/2025/07/20/athletics-world-championships-relay-gold/
+
 **With its Olympic stars away, U.S. women's gymnastics' future takes the floor**\
 `At Saturday's U.S. Classic, Team USA's next generation took the stage as Simone Biles and others remain uncertain about a 2028 Olympic run.`\
 https://nytimes.com/athletic/6503941/2025/07/20/team-usa-womens-gymnastics-olympics-future-simone-biles/
