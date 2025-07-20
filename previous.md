@@ -1,3 +1,7 @@
+**Nunez scores hat-trick in Liverpool friendly win vs Stoke**\
+`The Uruguayan striker continued his impressive start to pre-season having also netted in last weekend’s 3-1 win at Preston.`\
+https://nytimes.com/athletic/6504774/2025/07/20/darwin-nunez-liverpool-pre-season/
+
 **England to stop taking the knee as Carter subjected to 'vile' racist abuse**\
 `“It is clear we and football need to find another way to tackle racism,” a statement from the Lionesses squad read.`\
 https://nytimes.com/athletic/6504724/2025/07/20/jess-carter-racism-england-knee-euro-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/18/weather/wipha-map-path-tracker.html
 **Sound and Vision**\
 `We take a look at the rise of video podcasts.`\
 https://nytimes.com/2025/07/20/briefing/video-podcasts-popularity.html
-
-**Lowetide: Could the Oilers pull off a surprise late-summer signing?**\
-`There's a perfect fit out there for Edmonton but it appears to be something of a lost cause.`\
-https://nytimes.com/athletic/6503746/2025/07/20/edmonton-oilers-signing-marc-andre-fleury/
 
