@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Hostility in Washington Raises Shutdown Worries**\
+``\
+https://nytimes.com/live/2025/07/20/us/trump-news
+
 **Chargers training camp report, Day 3: Disjointed practice for the offense**\
 `Justin Herbert had some nice throws Saturday, but for the most part, the offense did not find a rhythm at any point during practice.`\
 https://nytimes.com/athletic/6504338/2025/07/20/chargers-justin-herbert-offense-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/world/middleeast/israel-gaza-military-evacuation.
 **Out of lineup as Twins fall to Rockies again, Royce Lewis works to rediscover swing**\
 `"It doesn't look the same as a year ago, two years ago," Lewis said. "My body is compensating for something."`\
 https://nytimes.com/athletic/6504256/2025/07/20/twins-lose-rockies-royce-lewis-lineup-swing/
-
-**Wales, Poland, and bridging the gap from tournament debutants to regular qualifiers**\
-`Making a tournament is one thing - qualifying for the next one is a harder task. This is how less-established nations hope to change that...`\
-https://nytimes.com/athletic/6497505/2025/07/20/wales-poland-euro-2025-debutants/
 
