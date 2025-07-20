@@ -1,3 +1,7 @@
+**Mario Barrios retains welterweight title belt in controversial draw**\
+`Barrios was tentative and let Pacquiao get off first in exchanges and finish many rounds with a flourish to try to impress the judges.`\
+https://nytimes.com/athletic/6504370/2025/07/20/manny-pacquiao-mario-barrios-draw-welterweight-title/
+
 **The New York Times in Print for Sunday, July 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/20/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495548/2025/07/20/thiago-almada-atletico-madrid-tr
 **Ranking the Giants' trade deadline needs**\
 `Let's assume the Giants will continue to be in the postseason chase, and when the trade deadline comes, they'll be buyers.`\
 https://nytimes.com/athletic/6502851/2025/07/20/giants-trade-deadline-needs-ranking/
-
-**Inside the world of sporting directors: What do they do? And what makes a good one?**\
-`The Athletic interviewed several sporting directors and collaborated with an analytics company to get a better understanding of what they do`\
-https://nytimes.com/athletic/6445002/2025/07/20/sporting-directors-football-career-role-analysis/
 
