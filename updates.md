@@ -1,3 +1,7 @@
+**Houston Astros third baseman Isaac Paredes reinjures right hamstring**\
+`Paredes pulled up lame while running to first base after a third-inning single Saturday against the Mariners.`\
+https://nytimes.com/athletic/6504294/2025/07/19/isaac-paredes-reinjures-right-hamstring/
+
 **Napheesa Collier named All-Star Game MVP as Team Collier tops Team Clark**\
 `Atlanta Dream guard Allisha Gray and Los Angeles Sparks guard Kelsey Plum also had solid showings for Team Collier with 18 and 16 points.`\
 https://nytimes.com/athletic/6504281/2025/07/19/wnba-all-star-result-napheesa-collier-caitlin-clark/
