@@ -1,3 +1,7 @@
+**Republicans and Democrats call for more information on the Epstein case.**\
+`By Michael Gold`\
+https://nytimes.com/live/2025/07/20/us/trump-news/republicans-and-democrats-call-for-more-information-on-the-epstein-case
+
 **Jake Larson, D-Day Veteran and TikTok Star, Dies at 102**\
 `Mr. Larson, the last survivor of a unit that stormed Omaha Beach in 1944, shared his memories on social media where he amassed a wide following.`\
 https://nytimes.com/2025/07/20/us/papa-jake-larson-dies-ww2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html
 **Calls for Japan’s Leader to Resign as His Party Faces Election Defeat**\
 `Exit polls suggest a major loss for the Liberal Democratic Party in parliamentary elections, but Prime Minister Shigeru Ishiba is vowing to stay on.`\
 https://nytimes.com/2025/07/20/world/asia/japan-parliamentary-elections-exit-polls.html
-
-**Why this should be Rashford's sad, but necessary, final farewell to United**\
-`The forward was meant to spend his whole career at the local club where it began but this loan move to Barcelona makes sense on many levels`\
-https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barcelona-transfer/
 
