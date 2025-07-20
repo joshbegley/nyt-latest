@@ -1,3 +1,7 @@
+**Open Championship 2025: What to know about Scottie Scheffler's fourth major win**\
+`Scheffler has won each of his four major titles by at least three strokes, the only player in the modern era to accomplish that feat.`\
+https://nytimes.com/athletic/6505318/2025/07/20/open-championship-2025-what-to-know-scottie-scheffler-win/
+
 **Chiefs, George Karlaftis agree to 4-year, $93 million extension**\
 `Karlaftis was entering the final year of his rookie contract, and the Chiefs previously picked up his fifth-year option in April.`\
 https://nytimes.com/athletic/6505365/2025/07/20/george-karlaftis-chiefs-contract-extension/
