@@ -1,3 +1,11 @@
+**How We Live On, Long After We Are Gone**\
+`Readers respond to an essay by Roger Rosenblatt about death, memory and love. Also: How Medicaid cuts will hurt college students.`\
+https://nytimes.com/2025/07/20/opinion/death-dying-memory-love.html
+
+**The Political Legacy of Jerry Garcia**\
+`Garcia and the music he wrote aimed for something beyond politics, something deeper.`\
+https://nytimes.com/2025/07/20/opinion/jerry-garcia-politics.html
+
 **Trump Administration Live Updates: Hostility in Washington Raises Shutdown Worries**\
 ``\
 https://nytimes.com/live/2025/07/20/us/trump-news

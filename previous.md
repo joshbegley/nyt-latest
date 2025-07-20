@@ -1,3 +1,11 @@
+**How We Live On, Long After We Are Gone**\
+`Readers respond to an essay by Roger Rosenblatt about death, memory and love. Also: How Medicaid cuts will hurt college students.`\
+https://nytimes.com/2025/07/20/opinion/death-dying-memory-love.html
+
+**The Political Legacy of Jerry Garcia**\
+`Garcia and the music he wrote aimed for something beyond politics, something deeper.`\
+https://nytimes.com/2025/07/20/opinion/jerry-garcia-politics.html
+
 **Trump Administration Live Updates: Hostility in Washington Raises Shutdown Worries**\
 ``\
 https://nytimes.com/live/2025/07/20/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6504490/2025/07/20/dan-ndoye-nottingham-forest/
 **China Exit Ban on Wells Fargo Executive Stokes Foreign Business Anxiety**\
 `The case comes around the same time a Japanese pharmaceutical executive was imprisoned, adding to growing unease even as Beijing tries to court overseas investors.`\
 https://nytimes.com/2025/07/20/business/china-exit-ban-business-anxiety.html
-
-**Israel Issues Evacuation Order for New Area in Gaza**\
-`The military told Palestinians to leave an area where many have sought refuge during the 21-month war and warned that it may expand operations.`\
-https://nytimes.com/2025/07/20/world/middleeast/israel-gaza-military-evacuation.html
-
-**Out of lineup as Twins fall to Rockies again, Royce Lewis works to rediscover swing**\
-`"It doesn't look the same as a year ago, two years ago," Lewis said. "My body is compensating for something."`\
-https://nytimes.com/athletic/6504256/2025/07/20/twins-lose-rockies-royce-lewis-lineup-swing/
 
