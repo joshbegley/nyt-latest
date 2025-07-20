@@ -1,3 +1,7 @@
+**Flat-Bottomed Boat**\
+`Katy Steinmetz and Rich Katz make their collaboration debut in The New York Times.`\
+https://nytimes.com/2025/07/20/crosswords/daily-puzzle-2025-07-21.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>What do you say we start pivoting toward actual football?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6505350/2025/07/20/great-britain-sail-grand-prix-po
 **Monday Briefing: Dozens Killed in Gaza**\
 `Plus, a film takes us back to the pandemic.`\
 https://nytimes.com/2025/07/20/briefing/gaza-israel-japan-epstein-trump.html
-
-**Chiefs, George Karlaftis agree to 4-year, $93 million extension**\
-`Karlaftis was entering the final year of his rookie contract, and the Chiefs previously picked up his fifth-year option in April.`\
-https://nytimes.com/athletic/6505365/2025/07/20/george-karlaftis-chiefs-contract-extension/
 
