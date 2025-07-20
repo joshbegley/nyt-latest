@@ -1,3 +1,7 @@
+**Manhattan man pleads guilty to role in burglary at Joe Burrow's home**\
+`The proceeding concluded with Nezhinskiy facing a maximum sentence of five years’ imprisonment and restitution of approximately $2.5 million`\
+https://nytimes.com/athletic/6504216/2025/07/19/joe-burrow-home-burglary-guilty-dimitriy-nezhinskiy/
+
 **Down to 10 players for over 100 minutes, Germany produced their best Euro 2025 performance**\
 `Germany put together one of the most impressive displays you will see from a side reduced to 10 players.`\
 https://nytimes.com/athletic/6504143/2025/07/19/germany-best-euros-performance-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504016/2025/07/19/clippers-counting-on-bradley-bea
 **Can Scottie Scheffler lose this Open Championship?**\
 `Scheffler has been so unrepentant in his dominance that all involved are resigned to the inevitable.`\
 https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheffler/
-
-**Fire at Massachusetts Assisted Living Facility Claims a 10th Life**\
-`Brenda Cropper, 66, died at a hospital after being in critical condition all week after the fire erupted on Sunday, officials said.`\
-https://nytimes.com/2025/07/19/us/10th-death-assisted-living.html
 

@@ -1,3 +1,7 @@
+**WNBA commissioner confident CBA will be done by deadline despite concerns**\
+`As commisioner Cathy Engelbert spoke, players took the floor wearing shirts that read “Pay Us What You Owe Us.”`\
+https://nytimes.com/athletic/6504249/2025/07/19/wnba-commissioner-confident-cba-will-be-done-by-deadline-despite-player-concerns/
+
 **Manhattan man pleads guilty to role in burglary at Joe Burrow's home**\
 `The proceeding concluded with Nezhinskiy facing a maximum sentence of five years’ imprisonment and restitution of approximately $2.5 million`\
 https://nytimes.com/athletic/6504216/2025/07/19/joe-burrow-home-burglary-guilty-dimitriy-nezhinskiy/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010290827/how-anti-immigrant-riots-
 **Why the Clippers are counting on a Bradley Beal bounce-back after Phoenix stint**\
 `With the addition of Beal, Lawrence Frank believes the Clippers have what it takes to win a playoff series for the first time in five years.`\
 https://nytimes.com/athletic/6504016/2025/07/19/clippers-counting-on-bradley-beal-bounce-back/
-
-**Can Scottie Scheffler lose this Open Championship?**\
-`Scheffler has been so unrepentant in his dominance that all involved are resigned to the inevitable.`\
-https://nytimes.com/athletic/6503927/2025/07/19/open-championship-scottie-scheffler/
 
