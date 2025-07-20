@@ -1,4 +1,4 @@
-**Breaking down Ann-Katrin Berger gravity-defying save that sent Germany to Euros semi-finals**\
+**Breaking down Ann-Katrin Berger save of the Euros, sending Germany to semi-finals**\
 `Berger is unflappable in goal for Germany`\
 https://nytimes.com/athletic/6504124/2025/07/19/ann-katrin-berger-germany-euros-save/
 
