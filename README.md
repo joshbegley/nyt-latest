@@ -1,3 +1,11 @@
+**Chargers training camp report, Day 3: Disjointed practice for the offense**\
+`Justin Herbert had some nice throws Saturday, but for the most part, the offense did not find a rhythm at any point during practice.`\
+https://nytimes.com/athletic/6504338/2025/07/20/chargers-justin-herbert-offense-training-camp/
+
+**Tracking Typhoon Wipha**\
+`See the likely path and wind arrival times for Wipha`\
+https://nytimes.com/interactive/2025/07/18/weather/wipha-map-path-tracker.html
+
 **Sound and Vision**\
 `We take a look at the rise of video podcasts.`\
 https://nytimes.com/2025/07/20/briefing/video-podcasts-popularity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6504256/2025/07/20/twins-lose-rockies-royce-lewis-l
 **Wales, Poland, and bridging the gap from tournament debutants to regular qualifiers**\
 `Making a tournament is one thing - qualifying for the next one is a harder task. This is how less-established nations hope to change that...`\
 https://nytimes.com/athletic/6497505/2025/07/20/wales-poland-euro-2025-debutants/
-
-**Can college softball's hot streak extend all summer? The Northwoods League is finding out**\
-`With softball on the rise, the Northwoods League looks to offer college players another chance to shine in the summer.`\
-https://nytimes.com/athletic/6502236/2025/07/20/northwoods-league-college-softball-summer/
-
-**WNBA All-Star Game winners, losers: 'Pay Us' shirts, Napheesa Collier record, Indy as host**\
-`All-Star Weekend had its highs and lows, from Ionescu's 3-pointers to a lopsided victory.`\
-https://nytimes.com/athletic/6504368/2025/07/20/wnba-all-star-game-winners-losers/
 
