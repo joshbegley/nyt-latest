@@ -1,3 +1,7 @@
+**Napheesa Collier named All-Star Game MVP as Team Collier tops Team Clark**\
+`Atlanta Dream guard Allisha Gray and Los Angeles Sparks guard Kelsey Plum also had solid showings for Team Collier with 18 and 16 points.`\
+https://nytimes.com/athletic/6504281/2025/07/19/wnba-all-star-result-napheesa-collier-caitlin-clark/
+
 **Number of Missing in Kerr County, Texas, After Floods Drops to 3**\
 `The new figure was a significant decline from 97 just days ago. The death toll in the county remained the same, and officials said many of the missing were reported safe.`\
 https://nytimes.com/2025/07/19/us/texas-floods-kerr-county-missing.html
