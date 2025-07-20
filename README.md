@@ -1,3 +1,7 @@
+**Manchester United 0-0 Leeds United: A new formation, a new-look attack, goodbye Bamford?**\
+`There were debuts for Leeds' five new arrivals, but the absence of Patrick Bamford was striking`\
+https://nytimes.com/athletic/6503976/2025/07/20/leeds-manchester-united-bamford-nmechea/
+
 **Wightman and Brazier's tough comebacks show turbocharging of men's middle-distance running**\
 `Jake Wightman and Donavan Brazier's recent struggles show how middle-distance running has moved on so quickly...`\
 https://nytimes.com/athletic/6503789/2025/07/20/wightman-and-braziers-tough-comebacks-show-turbocharging-of-mens-middle-distance-running/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6504288/2025/07/20/connections-sports-edition-hints
 **Phillies notes: Alec Bohm's injury impact, Kyle Schwarber's slam, No. 5 spot in rotation**\
 `Bohm’s injury could complicate the club's approach to the trade deadline. The Phillies could use a mix of players at third in his absence. `\
 https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
-
-**Houston Astros third baseman Isaac Paredes reinjures right hamstring**\
-`Paredes pulled up lame while running to first base after a third-inning single Saturday against the Mariners.`\
-https://nytimes.com/athletic/6504294/2025/07/19/isaac-paredes-reinjures-right-hamstring/
 
