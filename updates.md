@@ -1,3 +1,7 @@
+**Manchester United 0-0 Leeds United: A new formation, a new-look attack, goodbye Bamford?**\
+`There were debuts for Leeds' five new arrivals, but the absence of Patrick Bamford was striking`\
+https://nytimes.com/athletic/6503976/2025/07/20/leeds-manchester-united-bamford-nmechea/
+
 **Wightman and Brazier's tough comebacks show turbocharging of men's middle-distance running**\
 `Jake Wightman and Donavan Brazier's recent struggles show how middle-distance running has moved on so quickly...`\
 https://nytimes.com/athletic/6503789/2025/07/20/wightman-and-braziers-tough-comebacks-show-turbocharging-of-mens-middle-distance-running/
