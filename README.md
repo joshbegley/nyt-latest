@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6504249/2025/07/19/wnba-commissioner-confident-cba-will-be-done-by-deadline-despite-player-concerns/
 
 **Manhattan man pleads guilty to role in burglary at Joe Burrow's home**\
-`The proceeding concluded with Nezhinskiy facing a maximum sentence of five years’ imprisonment and restitution of approximately $2.5 million`\
+`Dimitriy Nezhinskiy facex a maximum sentence of five years’ imprisonment and restitution of approximately $2.5 million.`\
 https://nytimes.com/athletic/6504216/2025/07/19/joe-burrow-home-burglary-guilty-dimitriy-nezhinskiy/
 
 **Down to 10 players for over 100 minutes, Germany produced their best Euro 2025 performance**\
