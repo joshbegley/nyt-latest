@@ -1,3 +1,7 @@
+**How Did the Number of People Missing After Texas Floods Drop So Drastically?**\
+`Last week, officials said 97 people were missing in Kerr County. Now, it’s down to three. The drop is substantial, but such wild fluctuations can happen after disasters.`\
+https://nytimes.com/2025/07/20/us/texas-floods-missing.html
+
 **Off-Duty Customs Officer Shot in Robbery Attempt in Park, N.Y.P.D. Says**\
 `The officer, 42, is expected to recover after being shot in the face and returning fire. There is no indication that he was targeted because of his job, police officials said.`\
 https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6505088/2025/07/20/detroit-lions-training-camp-levi
 **JC Tretter, among favorites to lead NFLPA, resigns: Source**\
 `NFLPA executive board still plans to meet in the coming days to determine a process for selecting an interim replacement for Lloyd Howell.`\
 https://nytimes.com/athletic/6505436/2025/07/20/nfl-jc-tretter-resigns-nflpa/
-
-**Blue Jays Takeaways: Trade priority emerges, strikeout evasion and more**\
-`A rash of Blue Jays injury updates coming out of the All-Star break pushed a likely need into a glaring necessity.`\
-https://nytimes.com/athletic/6505402/2025/07/20/blue-jays-takeaways-deadline-priority/
 
