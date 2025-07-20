@@ -1,3 +1,7 @@
+**One day after sitting Mookie Betts, Dodgers move him to leadoff spot**\
+`Betts didn't play on Saturday and the Dodgers hope putting him at the top of the order will help the struggling shortstop get back on track.`\
+https://nytimes.com/athletic/6505257/2025/07/20/mookie-betts-leadoff-dodgers/
+
 **Mamdani Travels to Uganda in Break From Mayoral Campaign**\
 `Zohran Mamdani, the Democratic nominee for mayor of New York, said that he and his wife were going to the African country where he was born to celebrate their recent marriage.`\
 https://nytimes.com/2025/07/20/nyregion/zohran-mamdani-uganda-trip.html
