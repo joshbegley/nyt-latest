@@ -1,3 +1,7 @@
+**West Ham confirm Walker-Peters signing**\
+`The 28-year-old has signed a three-year contract with West Ham, after a proposed move to Besiktas fell through.`\
+https://nytimes.com/athletic/6504481/2025/07/20/walker-peters-west-ham-transfer/
+
 **Renée Fleming, Star Soprano, Tries Out the Director’s Chair**\
 `Fleming is making her directorial debut in Colorado working with young artists on Mozart’s “Così Fan Tutte,” an opera in which she appeared early in her career.`\
 https://nytimes.com/2025/07/20/arts/music/renee-fleming-mozart-cosi-opera.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503814/2025/07/20/manchester-united-league-finish-
 **​A Trump-Themed Beach House vs. ‘the Hamptons of the South’**\
 `Local officials spent years trying to force Marvin Peavy to remove the giant pro-Trump banners from his home in the Florida Panhandle. This summer, Mr. Peavy is basking in victory.`\
 https://nytimes.com/2025/07/20/us/trump-signs-florida.html
-
-**What Would a Real Friendship With A.I. Look Like? Maybe Like Hers.**\
-`Chatbots can get scary if you suspend your disbelief. But MJ Cocking didn’t — and wound up in a relationship that was strangely, helpfully real.`\
-https://nytimes.com/2025/07/20/magazine/ai-chatbot-friendship-character.html
 
