@@ -1,40 +1,40 @@
-**Tracking Typhoon Wipha**\
-`See the likely path and wind arrival times for Wipha.`\
-https://nytimes.com/interactive/2025/07/20/world/wipha-map-path-tracker.html
+**France tried to do it differently... but they cannot get lucky in major tournaments**\
+`France tried to do things differently this tournament. But, somehow, luck was still against them when they faced Germany...`\
+https://nytimes.com/athletic/6504245/2025/07/20/france-germany-result-euro-2025/
 
-**Typhoon Wipha Pounds Hong Kong and Macau with Rain and High Winds**\
-`The tropical cyclone was expected to make landfall in mainland China later on Sunday with winds equivalent to those of a Category 2 Atlantic hurricane.`\
-https://nytimes.com/2025/07/20/world/asia/typhoon-wipha-china-hong-kong-macau.html
+**Mamdani Won Over N.Y.C. Democratic Voters. Can He Charm Washington?**\
+`National Democrats are grappling with how much to embrace Assemblyman Zohran Mamdani, a leftist who has become the party’s standard-bearer in America’s largest city.`\
+https://nytimes.com/2025/07/20/nyregion/mamdani-democratic-party.html
 
-**Braves' bullpen meltdown, big nights for Joey Wentz and Ozzie Albies, Marcell Ozuna's status**\
-`The bullpen allowed 12 runs in Saturday's last five innings, spoiling Wentz's four-inning scoreless start and Albies' five-RBI night.`\
-https://nytimes.com/athletic/6504341/2025/07/20/braves-yankees-bullpen-joey-wentz-ozzie-albies/
+**After a Chaotic Start, a U.S. Attorney’s Time May Be Running Out**\
+`Alina Habba, President Trump’s choice to run the U.S. attorney’s office in New Jersey, has pursued investigations against Democrats. Her tenure has damaged morale inside the office.`\
+https://nytimes.com/2025/07/20/nyregion/alina-habba-us-attorney-new-jersey.html
 
-**Mario Barrios retains welterweight title belt in controversial draw**\
-`Barrios was tentative and let Pacquiao get off first in exchanges and finish many rounds with a flourish to try to impress the judges.`\
-https://nytimes.com/athletic/6504370/2025/07/20/manny-pacquiao-mario-barrios-draw-welterweight-title/
+**A Dream for the Dead**\
+`The Lives They Lived, an annual issue in The Times Magazine, was the idea of the director David Frankel.`\
+https://nytimes.com/2025/07/20/insider/david-frankel.html
 
-**The New York Times in Print for Sunday, July 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/20/todays-new-york-times
+**Morgan Gibbs-White is back in a Forest shirt - but the uncertainty is not over**\
+`Ten days on from Tottenham's shock bid for Gibbs-White, the midfield made his first appearance of pre-season against Monaco`\
+https://nytimes.com/athletic/6503880/2025/07/20/morgan-gibbs-white-forest-monaco-tottenham/
 
-**Sorry, This Epstein Stuff Isn’t Going to Hurt Trump**\
-`His political demise has been greatly exaggerated.`\
-https://nytimes.com/2025/07/20/opinion/trump-epstein-list-suicide.html
+**How the Organ Donation System Let These Patients Down**\
+`Under pressure from the federal government to increase organ transplants, hospitals and organ procurement organizations across the country are rushing people toward donation, and some patients have been harmed. Brian M. Rosenthal explains how and where this is happening.`\
+https://nytimes.com/video/health/100000010290447/how-the-organ-donation-system-let-these-patients-down.html
 
-**Yankees' potential for a World Series return could hinge on one key factor**\
-`A third baseman would help, but offense has not been the club's biggest issue this season.`\
-https://nytimes.com/athletic/6504287/2025/07/20/yankees-world-series-key-factor/
+**You Said ‘Yes’ to Being an Organ Donor. What Exactly Does That Mean?**\
+`Organ donation saves lives and enjoys widespread public support. But many people are unsure what they agree to when they sign up.`\
+https://nytimes.com/2025/07/20/health/organ-donors-information.html
 
-**Tanner Houck setback a reminder Red Sox need rotation help entering trade deadline**\
-`Balancing Boston's desires with what it's willing to give up in a seller's market will be challenging.`\
-https://nytimes.com/athletic/6504293/2025/07/20/tanner-houck-red-sox-trade-deadline-rotation-help/
+**‘The Voice, It Turned Out, Belonged to a Small, Older Woman’**\
+`Commanded to admire the moon, popping a cork on the 2 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/07/20/nyregion/metropolitan-diary.html
 
-**Wrexham Down Under: A tour that whets the appetite and underlines next season's spike in difficulty**\
-`Wrexham's trip to Australia and New Zealand excited fans and was a commercial success - but their squad requires a serious upgrade`\
-https://nytimes.com/athletic/6493064/2025/07/20/wrexham-wellington-sydney-melbourne-tour-championship/
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/20/crosswords/spelling-bee-forum.html
 
-**Manchester United 0-0 Leeds: A new formation, a new-look attack, goodbye Bamford?**\
-`There were debuts for Leeds' five new arrivals, but the absence of Patrick Bamford was striking`\
-https://nytimes.com/athletic/6503976/2025/07/20/leeds-manchester-united-bamford-nmechea/
+**A Push for More Organ Transplants Is Putting Donors at Risk**\
+`People across the United States have endured rushed or premature attempts to remove their organs. Some were gasping, crying or showing other signs of life.`\
+https://nytimes.com/2025/07/20/us/organ-transplants-donors-alive.html
 
