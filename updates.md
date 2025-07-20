@@ -1,3 +1,11 @@
+**Kenneth Colley, 87, ‘Star Wars’ Actor With a Commanding Presence, Dies**\
+`A fixture onscreen and onstage, he became a fan favorite as Darth Vader’s ally, Admiral Piett, in “The Empire Strikes Back” and “Return of the Jedi.”`\
+https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html
+
+**Calls for Japan’s Leader to Resign as His Party Faces Election Defeat**\
+`Exit polls suggest a major loss for the Liberal Democratic Party in parliamentary elections, but Prime Minister Shigeru Ishiba is vowing to stay on.`\
+https://nytimes.com/2025/07/20/world/asia/japan-parliamentary-elections-exit-polls.html
+
 **Why this should be Rashford's sad, but necessary, final farewell to United**\
 `The forward was meant to spend his whole career at the local club where it began but this loan move to Barcelona makes sense on many levels`\
 https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barcelona-transfer/

@@ -1,3 +1,11 @@
+**Kenneth Colley, 87, ‘Star Wars’ Actor With a Commanding Presence, Dies**\
+`A fixture onscreen and onstage, he became a fan favorite as Darth Vader’s ally, Admiral Piett, in “The Empire Strikes Back” and “Return of the Jedi.”`\
+https://nytimes.com/2025/07/20/movies/kenneth-colley-dead.html
+
+**Calls for Japan’s Leader to Resign as His Party Faces Election Defeat**\
+`Exit polls suggest a major loss for the Liberal Democratic Party in parliamentary elections, but Prime Minister Shigeru Ishiba is vowing to stay on.`\
+https://nytimes.com/2025/07/20/world/asia/japan-parliamentary-elections-exit-polls.html
+
 **Why this should be Rashford's sad, but necessary, final farewell to United**\
 `The forward was meant to spend his whole career at the local club where it began but this loan move to Barcelona makes sense on many levels`\
 https://nytimes.com/athletic/6504446/2025/07/20/rashford-manchester-united-barcelona-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/20/us/politics/epstein-employee-trump-investigation.
 **Blue Jackets Sunday Gathering: What Yegor Chinakhov wants is in Columbus**\
 `Chinakhov said he wants to be a top-six winger in the NHL, and the Blue Jackets have a spot to be grabbed. Can the two sides work it out?`\
 https://nytimes.com/athletic/6503769/2025/07/20/blue-jackets-yegor-chinakhov-trade/
-
-**No ifs, buts or maybes: Oleksandr Usyk is undeniably one of boxing's greatest**\
-`The Ukrainian has proved himself not just a generational great but an all-time one. His name is now among that of legendary heavyweights`\
-https://nytimes.com/athletic/6504513/2025/07/20/oleksandr-usyk-greatness/
-
-**GB relay team savours 'really special' gold medal after 28-year wait**\
-`The 1997 Athens race had been won by the USA team, but they were later stripped of their gold medal due to an anti-doping violation.`\
-https://nytimes.com/athletic/6504846/2025/07/20/athletics-world-championships-relay-gold/
 
