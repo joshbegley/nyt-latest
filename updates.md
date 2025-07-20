@@ -1,3 +1,7 @@
+**Heavy Rains in Washington Area Flood Roads and Prompt Water Rescues**\
+`More than five inches fell in some suburbs of the capital. The authorities in Maryland rescued dozens of people, including some who were stranded in their cars.`\
+https://nytimes.com/2025/07/19/us/maryland-washington-dc-flooding.html
+
 **The most unforgettable fashion at WNBA All-Star Weekend, from 'orange carpet' to tunnel walks**\
 `The most unforgettable looks and best style at WNBA All-Star Weekend.`\
 https://nytimes.com/athletic/6499932/2025/07/19/wnba-all-star-fashion-best-looks/
