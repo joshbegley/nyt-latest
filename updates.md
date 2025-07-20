@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/20/todays-new-york-times
+
+**Sorry, This Epstein Stuff Isn’t Going to Hurt Trump**\
+`His political demise has been greatly exaggerated.`\
+https://nytimes.com/2025/07/20/opinion/trump-epstein-list-suicide.html
+
 **Yankees' potential for a World Series return could hinge on one key factor**\
 `A third baseman would help, but offense has not been the club's biggest issue this season.`\
 https://nytimes.com/athletic/6504287/2025/07/20/yankees-world-series-key-factor/

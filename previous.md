@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/20/todays-new-york-times
+
+**Sorry, This Epstein Stuff Isn’t Going to Hurt Trump**\
+`His political demise has been greatly exaggerated.`\
+https://nytimes.com/2025/07/20/opinion/trump-epstein-list-suicide.html
+
 **Yankees' potential for a World Series return could hinge on one key factor**\
 `A third baseman would help, but offense has not been the club's biggest issue this season.`\
 https://nytimes.com/athletic/6504287/2025/07/20/yankees-world-series-key-factor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6502851/2025/07/20/giants-trade-deadline-needs-rank
 **Inside the world of sporting directors: What do they do? And what makes a good one?**\
 `The Athletic interviewed several sporting directors and collaborated with an analytics company to get a better understanding of what they do`\
 https://nytimes.com/athletic/6445002/2025/07/20/sporting-directors-football-career-role-analysis/
-
-**Arsenal's signings from Chelsea ranked: From Havertz to Willian via Gallas and David Luiz**\
-`Noni Madueke and Kepa Arrizabalaga are the latest to swap Stamford Bridge for the Emirates - their predecessors have been a mixed bag...`\
-https://nytimes.com/athletic/6499393/2025/07/20/arsenals-chelsea-transfers-madueke-kepa/
-
-**Cubs takeaways: Imanaga an ace, Busch comes out swinging and who used break wisely**\
-`The impact of Shota Imanaga's return to the Cubs rotation can't be overstated.`\
-https://nytimes.com/athletic/6504282/2025/07/20/cubs-takeaways-shota-imanaga-ace-michael-busch-lead-off-homer/
 
