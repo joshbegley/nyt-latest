@@ -1,3 +1,7 @@
+**David Wright, Mets celebrate 'unbreakable bond' with number retirement**\
+`"He was The Guy you wanted to be like," said Brandon Nimmo, the only active Met who played with Wright.`\
+https://nytimes.com/athletic/6504181/2025/07/19/mets-david-wright-number-retirement/
+
 **Investigators in L.A. Explosion Examine Condo for Link to Explosives**\
 `Officials were looking into whether the explosion, which killed three sheriff’s deputies, was caused by devices seized from a condo in Santa Monica a day before the blast.`\
 https://nytimes.com/2025/07/19/us/los-angeles-explosion-santa-monica-devices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/19/us/10th-death-assisted-living.html
 **Phillies place Alec Bohm on injured list with fractured left rib**\
 `Philadelphia's third baseman got hit by a pitch on July 12 against the Padres. He's the second Phillie to fracture a rib this season.`\
 https://nytimes.com/athletic/6504021/2025/07/19/phillies-alec-bohm-injury/
-
-**Pet Owner Flooded With Puzzling Calls About a Lost Cat While Hers Is Safely at Home**\
-`Natasha Lavoie’s phone number appeared on a T-shirt sold online that advertised a fictitious missing cat. She can’t stop the calls from coming.`\
-https://nytimes.com/2025/07/19/world/canada/couple-missing-cat-shirt-calls.html
 
