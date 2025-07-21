@@ -1,3 +1,15 @@
+**Why do Tour de France cyclists ride their bikes on rest days?**\
+`It's a day to relax - but switching off during the Tour de France isn't really an option, for several reasons`\
+https://nytimes.com/athletic/6495215/2025/07/21/tour-de-france-rest-day-rides/
+
+**Monday Briefing: Dozens Killed in Gaza**\
+`Plus, a film takes us back to the pandemic.`\
+https://nytimes.com/2025/07/21/briefing/gaza-israel-japan-trump-epstein.html
+
+**Why do Test cricketers wear white?**\
+`While most sports mandate differing team colours to tell sides apart, cricketers have always played some form of the game wearing all white`\
+https://nytimes.com/athletic/6471911/2025/07/21/cricket-white-clothing-wsc-explained/
+
 **After Rashford exit, Man Utd's 'bomb squad' saga has one likely outcome: Compromise**\
 `There are few winners as the club look to sell Alejandro Garnacho, Antony, Tyrell Malacia and Jadon Sancho`\
 https://nytimes.com/athletic/6497954/2025/07/21/rashford-antony-garnacho-malacia-sancho-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6499756/2025/07/21/nicolas-jackson-transfers-chelse
 **Special report: Girls, boys, and the thorny issue of mixed junior teams**\
 `Attitudes are changing around the rights and wrongs of girls playing with and against boys in age-group football`\
 https://nytimes.com/athletic/6501283/2025/07/21/girls-boys-mixed-teams/
-
-**Cardinals face fork in the road after D-backs sweep them and trade deadline looms**\
-`St. Louis remains in contention by the definition of the word, but there are few signs it can string together a competitive second half.`\
-https://nytimes.com/athletic/6505723/2025/07/21/cardinals-lose-diamondbacks-sweep-trade-deadline/
-
-**How Trump Is Bringing Europe Together Again**\
-`The European Union has its problems, but the bloc is gaining public trust and making new friends. President Trump’s attacks are one reason why.`\
-https://nytimes.com/2025/07/21/world/europe/trump-europe-unity-eu-tariffs.html
-
-**China Stood Up to Trump, and It’s Not Giving Europe an Inch, Either**\
-`Beijing is betting that economic pressure and diplomatic defiance will force concessions, but its stance could put more strain on its ties with Europe at a crucial time.`\
-https://nytimes.com/2025/07/21/world/asia/china-europe-trade-war.html
 

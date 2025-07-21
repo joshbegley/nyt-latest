@@ -1,3 +1,15 @@
+**Why do Tour de France cyclists ride their bikes on rest days?**\
+`It's a day to relax - but switching off during the Tour de France isn't really an option, for several reasons`\
+https://nytimes.com/athletic/6495215/2025/07/21/tour-de-france-rest-day-rides/
+
+**Monday Briefing: Dozens Killed in Gaza**\
+`Plus, a film takes us back to the pandemic.`\
+https://nytimes.com/2025/07/21/briefing/gaza-israel-japan-trump-epstein.html
+
+**Why do Test cricketers wear white?**\
+`While most sports mandate differing team colours to tell sides apart, cricketers have always played some form of the game wearing all white`\
+https://nytimes.com/athletic/6471911/2025/07/21/cricket-white-clothing-wsc-explained/
+
 **After Rashford exit, Man Utd's 'bomb squad' saga has one likely outcome: Compromise**\
 `There are few winners as the club look to sell Alejandro Garnacho, Antony, Tyrell Malacia and Jadon Sancho`\
 https://nytimes.com/athletic/6497954/2025/07/21/rashford-antony-garnacho-malacia-sancho-manchester-united/
