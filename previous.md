@@ -1,3 +1,19 @@
+**How Trump Is Bringing Europe Together Again**\
+`The European Union has its problems, but the bloc is gaining public trust and making new friends. President Trump’s attacks are one reason why.`\
+https://nytimes.com/2025/07/21/world/europe/trump-europe-unity-eu-tariffs.html
+
+**China Stood Up to Trump, and It’s Not Giving Europe an Inch, Either**\
+`Beijing is betting that economic pressure and diplomatic defiance will force concessions, but its stance could put more strain on its ties with Europe at a crucial time.`\
+https://nytimes.com/2025/07/21/world/asia/china-europe-trade-war.html
+
+**Lessons from Everton's pre-season so far after defeat at Blackburn**\
+`Everton still have areas to work on ahead of the Premier League season's start next month. Patrick Boyland outlines the issues...`\
+https://nytimes.com/athletic/6504035/2025/07/21/everton-blackburn-result-pre-season/
+
+**Connections: Sports Edition Coach: Hints for July 21, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6504743/2025/07/21/connections-sports-edition-hints-for-july-21-2025/
+
 **Quote of the Day: Pain Deep in the Heart of Every Part of Texas**\
 `Quotation of the Day for Monday, July 21, 2025.`\
 https://nytimes.com/2025/07/20/pageoneplus/quote-of-the-day-pain-deep-in-the-heart-of-every-part-of-texas.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6505623/2025/07/20/twins-takeaways-joe-ryan-royce-l
 **Edwin Feulner, Heritage Foundation’s ‘George Washington,’ Dies at 83**\
 `As co-founder and longtime head of the conservative Washington think tank, he picked policies and staffers for G.O.P. presidents from Reagan to Trump.`\
 https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html
-
-**Driver Crashes Into San Jose Post Office, Igniting Fire**\
-`A man was arrested in connection with the crash on suspicion of arson, officials said. No injuries were reported.`\
-https://nytimes.com/2025/07/20/us/san-jose-post-office-crash.html
-
-**Body of 9-Year-Old Girl Reported Missing Is Found in Northern New York**\
-`Melina Galanis Frattolin was reported as the victim of a possible abduction on Saturday in Lake George, N.Y. The police found her body on Sunday over 35 miles away and said there was no indication a kidnapping had happened.`\
-https://nytimes.com/2025/07/20/nyregion/missing-girl-amber-alert-lake-george.html
-
-**Israel Kills Dozens of Palestinians Seeking Aid, Gaza Officials Say**\
-`Israeli soldiers opened fire near the Zikim crossing between the Gaza Strip and Israel, where a convoy of 25 trucks from the United Nations was entering the enclave.`\
-https://nytimes.com/video/world/middleeast/100000010296045/israel-gaza-aid-shooting.html
-
-**How Did the Number of People Missing After Texas Floods Drop So Drastically?**\
-`Last week, officials said 97 people were missing in Kerr County. Now, it’s down to three. The drop is substantial, but such wild fluctuations can happen after disasters.`\
-https://nytimes.com/2025/07/20/us/texas-floods-missing.html
 
