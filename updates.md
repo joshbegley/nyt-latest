@@ -1,3 +1,11 @@
+**Angel City extends Casey Phair, loans to Djurgårdens IF in Sweden**\
+`Since making her regular-season debut in mid-April, Phair has played in five matches for the club.`\
+https://nytimes.com/athletic/6506876/2025/07/21/casey-phair-angel-city-extension-djurgardens-sweden/
+
+**Former BYU QB Jake Retzlaff commits to Tulane: Sources**\
+`Sources with knowledge of the situation told The Athletic that Retzlaff was vetted by Tulane’s Title IX office.`\
+https://nytimes.com/athletic/6506680/2025/07/21/jake-retzlaff-byu-tulane/
+
 **Minnesota Lawmaker Convicted of Burglary Plans to Resign, Ending Democratic Majority**\
 `The resignation of State Senator Nicole Mitchell will leave the State Senate with even numbers of Democrats and Republicans. A special election will break the tie.`\
 https://nytimes.com/2025/07/21/us/nicole-mitchell-minnesota-senate-democrats.html
