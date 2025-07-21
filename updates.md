@@ -1,3 +1,7 @@
+**States Sue Over Unauthorized Immigrants’ Access to Federal Programs**\
+`The suit comes after several federal agencies said they would no longer allow unauthorized immigrants to benefit from more than a dozen health and education programs.`\
+https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.html
+
 **Bengals defend position on Shemar Stewart negotiation ‘silliness’**\
 `Duke Tobin questions the advice Stewart's gotten from his agent for keeping the first-round pick from signing.`\
 https://nytimes.com/athletic/6506735/2025/07/21/bengals-tobin-shemar-stewart-trey-hendickson/
