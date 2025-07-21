@@ -1,3 +1,15 @@
+**Tesla Driver Testifies Autopilot Failed to Prevent Fatal Crash**\
+`The driver gave testimony in a federal trial about Tesla’s role in a 2019 accident that killed a woman in Florida.`\
+https://nytimes.com/2025/07/21/business/tesla-trial-autopilot.html
+
+**Students Killed After Fighter Jet Crashes Into School in Bangladesh**\
+`The Bangladeshi military said that a mechanical error caused an Air Force training aircraft to crash onto a school campus for students ranging from elementary to high school.`\
+https://nytimes.com/video/world/asia/100000010297824/bangladesh-plane-crash-school.html
+
+**A Judge Questioned Trump’s Harvard Cuts**\
+`Also, Japan’s anti-establishment parties are resonating. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/21/briefing/trump-harvard-japan-election-medicaid.html
+
 **5 Million Pools Are Recalled After at Least 9 Children Drown**\
 `Children have been able to climb into the aboveground pools by using a compression strap on the outside as a foothold, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/07/21/business/pool-recall-drowning-deaths-bestway-intex-polygroup.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/mlk-jr-files-trump.html
 **Nikita Parris to join newly-promoted London City Lionesses from Brighton**\
 `Parris is set to become the latest signing to join London City in a busy summer since their promotion.`\
 https://nytimes.com/athletic/6507124/2025/07/21/nikita-parris-transfer-london-city-lionesses/
-
-**How Manchester United signed Bryan Mbeumo: Low-ball offer to top-end price - and why it took so long**\
-`Why Manchester United agreed to pay a premium for Mbeumo, how the negotiations played out and how they hope he will prove money well spent`\
-https://nytimes.com/athletic/6506126/2025/07/21/manchester-united-bryan-mbeumo-transfer-details/
-
-**Scoop City: Four scary stats that must change in 2025**\
-`Stats to fix in 2025, plus the league's highest-paid non-quarterback and the best football movies of all time, as voted by you.`\
-https://nytimes.com/athletic/6507320/2025/07/21/caleb-williams-sacks-2025-nfl-movies-scoop-city/
-
-**A Timeline of the Etan Patz Case**\
-`It has been 46 years since 6-year-old Etan Patz disappeared in SoHo. After a lawsuit and two criminal trials, questions remain about how he died.`\
-https://nytimes.com/2025/07/21/nyregion/etan-patz-timeline.html
 

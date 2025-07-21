@@ -1,3 +1,15 @@
+**Tesla Driver Testifies Autopilot Failed to Prevent Fatal Crash**\
+`The driver gave testimony in a federal trial about Tesla’s role in a 2019 accident that killed a woman in Florida.`\
+https://nytimes.com/2025/07/21/business/tesla-trial-autopilot.html
+
+**Students Killed After Fighter Jet Crashes Into School in Bangladesh**\
+`The Bangladeshi military said that a mechanical error caused an Air Force training aircraft to crash onto a school campus for students ranging from elementary to high school.`\
+https://nytimes.com/video/world/asia/100000010297824/bangladesh-plane-crash-school.html
+
+**A Judge Questioned Trump’s Harvard Cuts**\
+`Also, Japan’s anti-establishment parties are resonating. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/21/briefing/trump-harvard-japan-election-medicaid.html
+
 **5 Million Pools Are Recalled After at Least 9 Children Drown**\
 `Children have been able to climb into the aboveground pools by using a compression strap on the outside as a foothold, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/07/21/business/pool-recall-drowning-deaths-bestway-intex-polygroup.html
