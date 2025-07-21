@@ -1,3 +1,7 @@
+**The Bag of Summer Is a BAB**\
+`No longer written off for being “ludicrously capacious,” oversize bags are building up a fan base on social media.`\
+https://nytimes.com/2025/07/21/style/bab-bag-of-summer.html
+
 **Rich Hill to join Royals, pitch for his 14th major league team: Source**\
 `Hill would tie Edwin Jackson for the MLB record for most teams.`\
 https://nytimes.com/athletic/6507179/2025/07/21/rich-hill-royals-14-major-league-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/health/tb-tuberculosis-us-john-green.html
 **Lions' offensive line moves on after Frank Ragnow's retirement: Training camp news and notes**\
 `Plus, more details on injuries to Levi Onwuzurike and Ennis Rakestraw Jr.`\
 https://nytimes.com/athletic/6506940/2025/07/21/lions-training-camp-offensive-line/
-
-**Trump Talks About Anything but Epstein on His Social Media Account**\
-`On Truth Social, the president railed against Democrats and shared a wacky video.`\
-https://nytimes.com/2025/07/21/us/politics/trump-epstein-social-media.html
 
