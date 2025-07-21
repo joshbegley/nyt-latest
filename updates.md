@@ -1,3 +1,7 @@
+**Alaska Airlines Asks to Ground Its Fleet, F.A.A Says**\
+`The reason for the grounding, issued in an F.A.A advisory just after 9 p.m. on Sunday, was not immediately clear.`\
+https://nytimes.com/2025/07/20/business/alaska-airlines-grounds-plane-fleet.html
+
 **Edwin Feulner, Heritage Foundation’s ‘George Washington,’ Dies at 83**\
 `As co-founder and longtime head of the conservative Washington think tank, he picked policies and staffers for G.O.P. presidents from Reagan to Trump.`\
 https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html

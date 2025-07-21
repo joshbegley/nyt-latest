@@ -1,5 +1,5 @@
-**Alaska Airlines Asks to Ground Its Fleet, F.A.A Says**\
-`The reason for the grounding, issued in an F.A.A advisory just after 9 p.m. on Sunday, was not immediately clear.`\
+**Alaska Airlines Asks to Ground Its Fleet, F.A.A. Says**\
+`The reason for the grounding, issued in an F.A.A. advisory just after 9 p.m. on Sunday, was not immediately clear.`\
 https://nytimes.com/2025/07/20/business/alaska-airlines-grounds-plane-fleet.html
 
 **Trump Urges Washington and Cleveland Sports Teams to Revert to Native American Names**\
