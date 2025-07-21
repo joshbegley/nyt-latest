@@ -1,3 +1,11 @@
+**Israel Refuses to Renew Visa of Top U.N. Humanitarian Official for Gaza**\
+`The head of the agency that helps oversee aid deliveries to the territory had previously criticized the impact of Israeli military attacks on civilians.`\
+https://nytimes.com/2025/07/21/world/middleeast/israel-visa-un-gaza.html
+
+**Hugo Ekitike: Analysing how he fits into Liverpool's attacking structure**\
+`The 23-year-old French striker has all the attributes to be an elite No 9 - here's what he will offer in Arne Slot's side`\
+https://nytimes.com/athletic/6501701/2025/07/21/hugo-ekitike-liverpool-tactical-fit/
+
 **Italian Festival Cancels Appearance by Russian Conductor With Ties to Putin**\
 `Some lawmakers in Italy had argued that Valery Gergiev’s planned appearance sent the wrong message as Europe strives to remain united in its support for Ukraine.`\
 https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6479840/2025/07/21/minnesota-twins-trade-deadline-b
 `How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
 `\
 https://nytimes.com/athletic/6492558/2025/07/21/nhl-broadcast-rankings-tv-2025-commentator/
-
-**The longevity of Lucy Bronze: Challenging Wiegman, Cole Palmer's cousin and playing through pain**\
-`Now in her seventh major tournament with England, the defender has seen it all - so how does she keep going, mentally and physically?`\
-https://nytimes.com/athletic/6505222/2025/07/21/lucy-bronze-england-euros/
-
-**NHL prospects I was wrong about, 2025 edition: Lian Bichsel, Brad Lambert and more**\
-`Here are five more players Scott Wheeler was either too high or too low on when evaluating their NHL prospects.`\
-https://nytimes.com/athletic/6480500/2025/07/21/nhl-prospects-lian-bichsel-brad-lambert/
 
