@@ -1,3 +1,11 @@
+**Manchester United confirm signing of forward Bryan Mbeumo from Brentford**\
+`Mbeumo has signed a five-year deal to June 2030 at Old Trafford, with the option of a further 12 months.`\
+https://nytimes.com/athletic/6502455/2025/07/21/bryan-mbuemo-manchester-united-brentford-signing/
+
+**Climate Change Is Making Fire Weather Worse for World’s Forests**\
+`Forest fires are on the rise globally. An increase in severe fire weather is largely responsible.`\
+https://nytimes.com/2025/07/21/climate/extreme-fire-weather-forests.html
+
 **Racist abuse of Jess Carter 'ridiculous' and 'disgusting', says Wiegman**\
 `Carter revealed on social media that from the start of the tournament, she has “experienced a lot of racial abuse”.`\
 https://nytimes.com/athletic/6507059/2025/07/21/racist-abuse-of-jess-carter-ridiculous-and-disgusting-says-england-coach-wiegman/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/china-exit-ban-us-government-employee
 **Cassidy, Tocchet, DeBoer announced to Canada coaching staff for 2026 Olympics**\
 `Bruce Cassidy, Pete DeBoer and Rick Tocchet lead a support staff rich in NHL head coaching experience behind bench boss Jon Cooper.`\
 https://nytimes.com/athletic/6506802/2025/07/21/olympics-2026-hockey-canada-coaching-staff/
-
-**William L. Clay, Missouri’s First Black Congressman, Dies at 94**\
-`A co-founder of the Congressional Black Caucus, he represented St. Louis in the House as an uncompromising liberal Democrat and a forceful advocate for the poor.`\
-https://nytimes.com/2025/07/21/us/william-l-clay-dead.html
-
-**Measures Aimed at N.Y.C. Housing Crisis Will Be on November Ballot**\
-`Voters will have a chance to reshape the city’s approach to development and limit the power of the City Council to stop new affordable housing projects.`\
-https://nytimes.com/2025/07/21/nyregion/charter-revision-commission-vote.html
 

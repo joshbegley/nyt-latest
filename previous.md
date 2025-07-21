@@ -1,3 +1,27 @@
+**Racist abuse of Jess Carter 'ridiculous' and 'disgusting', says Wiegman**\
+`Carter revealed on social media that from the start of the tournament, she has “experienced a lot of racial abuse”.`\
+https://nytimes.com/athletic/6507059/2025/07/21/racist-abuse-of-jess-carter-ridiculous-and-disgusting-says-england-coach-wiegman/
+
+**Malcolm-Jamal Warner, Theo Huxtable on ‘The Cosby Show,’ Dies at 54**\
+`Warner, who played the only son of Bill Cosby’s character on the beloved 1980s sitcom, drowned in Costa Rica.`\
+https://nytimes.com/2025/07/21/arts/television/malcolm-jamal-warner-dead.html
+
+**Emma Meesseman to join New York Liberty in WNBA return: Source**\
+`The 6-foot-4 forward last played for the Chicago Sky in 2022 where she was named a WNBA All-Star. `\
+https://nytimes.com/athletic/6506954/2025/07/21/emma-meesseman-new-york-liberty-wnba-news/
+
+**Micah Parsons attending Cowboys training camp while awaiting new deal**\
+`Parsons said June 10 that he'd be present for the start of camp, but didn't clarify if he’ll practice. Dallas' first practice is Tuesday.`\
+https://nytimes.com/athletic/6500624/2025/07/21/micah-parsons-cowboys-attending-training-camp/
+
+**Big 12 not interested in Memphis' pitch of $200 million in sponsorships for league invite**\
+`Memphis’ pitch is an attempt to make this a no-risk situation for the Big 12.`\
+https://nytimes.com/athletic/6505665/2025/07/21/memphis-big-12-realignment/
+
+**Richard Jefferson agrees to return to ESPN; Doris Burke's spot still in question**\
+`Jefferson will return to ABC/ESPN after Amazon Prime Video, which begins its NBA coverage in the fall, was interested in him.`\
+https://nytimes.com/athletic/6506950/2025/07/21/richard-jefferson-espn-deal-doris-burke/
+
 **Chinese Officers Questioned U.S. Government Employee About His Army Service**\
 `The man, a U.S. citizen, is barred from leaving China by the Ministry of State Security, the country’s main intelligence and counterintelligence agency.`\
 https://nytimes.com/2025/07/21/us/politics/china-exit-ban-us-government-employee.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/21/us/william-l-clay-dead.html
 **Measures Aimed at N.Y.C. Housing Crisis Will Be on November Ballot**\
 `Voters will have a chance to reshape the city’s approach to development and limit the power of the City Council to stop new affordable housing projects.`\
 https://nytimes.com/2025/07/21/nyregion/charter-revision-commission-vote.html
-
-**Jess Carter's statement is a reminder that Black footballers should not have to solve racism**\
-`England enter their semi-final against Italy with a heightened sense of purpose and, as is often the way in women’s sport, a dual mission`\
-https://nytimes.com/athletic/6506420/2025/07/21/jess-carter-racism-in-football-england/
-
-**Marines Will Begin Withdrawing From Los Angeles**\
-`The departure of the Marines follows the removal of hundreds of other National Guard soldiers who were part of President Trump’s deployment to Los Angeles.`\
-https://nytimes.com/2025/07/21/us/marines-los-angeles-withdraw-trump.html
-
-**Angel City extends Casey Phair, loans to Djurgårdens IF in Sweden**\
-`Since making her regular-season debut in mid-April, Phair has played in five matches for the club.`\
-https://nytimes.com/athletic/6506876/2025/07/21/casey-phair-angel-city-extension-djurgardens-sweden/
-
-**Minnesota Lawmaker Convicted of Burglary Plans to Resign, Ending Democratic Majority**\
-`The resignation of State Senator Nicole Mitchell will leave the State Senate with even numbers of Democrats and Republicans. A special election will break the tie.`\
-https://nytimes.com/2025/07/21/us/nicole-mitchell-minnesota-senate-democrats.html
-
-**Leader of Ecuador’s Most Powerful Gang to Face Drug Charges in New York**\
-`José Adolfo Macías, known as Fito, escaped twice before authorities in the South American country apprehended him. He appeared in a music video from prison.`\
-https://nytimes.com/2025/07/21/nyregion/ecuador-gang-fito-arraignment.html
-
-**Former BYU QB Jake Retzlaff commits to Tulane: Sources**\
-`Sources with knowledge of the situation told The Athletic that Retzlaff was vetted by Tulane’s Title IX office.`\
-https://nytimes.com/athletic/6506680/2025/07/21/jake-retzlaff-byu-tulane/
 
