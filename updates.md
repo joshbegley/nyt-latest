@@ -1,3 +1,7 @@
+**Court Orders New Trial for Man Convicted in Killing of Etan Patz**\
+`Pedro Hernandez, a former bodega stock clerk, had confessed years after the 1979 crime to luring Etan Patz, 6, into a basement in SoHo. The case shook New York City.`\
+https://nytimes.com/2025/07/21/nyregion/etan-patz-conviction-overturned.html
+
 **Mondays are rough, so let's watch Shohei Ohtani hurl heaters. Here's how to tune in**\
 `Shohei Ohtani is taking the mound once again. It's his first pitching performance since the All-Star break. Here's how to watch it go down.`\
 https://nytimes.com/athletic/6502882/2025/07/21/shohei-ohtani-next-start-dodgers-twins-how-to-watch/
