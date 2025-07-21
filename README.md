@@ -1,3 +1,7 @@
+**Trump Sharpens Attacks on a Favorite Foe: The News Media**\
+`How the president is using the levers of government power against the news industry.`\
+https://nytimes.com/2025/07/21/us/politics/trump-news-media.html
+
 **Judge Sentences Ex-Officer in Breonna Taylor Raid to Nearly 3 Years in Prison**\
 `The sentence was a sharp rebuke to the Trump administration, which had requested he serve only one day behind bars.`\
 https://nytimes.com/2025/07/21/us/politics/breonna-taylor-brett-hankison-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/us/missouri-man-dam-dead.html
 **Tesla Driver Testifies Autopilot Failed to Prevent Fatal Crash**\
 `The driver gave testimony in a federal trial about Tesla’s role in a 2019 accident that killed a woman in Florida.`\
 https://nytimes.com/2025/07/21/business/tesla-trial-autopilot.html
-
-**Students Killed After Fighter Jet Crashes Into School in Bangladesh**\
-`The Bangladeshi military said that a mechanical error caused an Air Force training aircraft to crash onto a school campus for students ranging from elementary to high school.`\
-https://nytimes.com/video/world/asia/100000010297824/bangladesh-plane-crash-school.html
 

@@ -1,3 +1,19 @@
+**Judge Sentences Ex-Officer in Breonna Taylor Raid to Nearly 3 Years in Prison**\
+`The sentence was a sharp rebuke to the Trump administration, which had requested he serve only one day behind bars.`\
+https://nytimes.com/2025/07/21/us/politics/breonna-taylor-brett-hankison-prison.html
+
+**Chargers training camp report, Day 4: Quentin Johnston is seizing his opportunity**\
+`The Chargers tried upgrading at outside receiver this offseason. Can Johnson finally realize his first-round potential? `\
+https://nytimes.com/athletic/6507491/2025/07/21/chargers-training-camp-quentin-johnston/
+
+**U.S.-Based Orange Juice Importer Sues Over Trump’s 50% Tariff on Brazilian Goods**\
+`Orange juice prices in the U.S. are already high. The suit argues that the tariff would lead to retail price hikes of up to 25 percent.`\
+https://nytimes.com/2025/07/21/us/politics/orange-juice-trump-brazil-tariffs.html
+
+**State of the Phillies as trade deadline nears: David Robertson, Justin Crawford, another reliever?**\
+`Ideally, Robertson could help the Phillies in the later innings in August and September, then slot in the middle of the 'pen come October.`\
+https://nytimes.com/athletic/6507467/2025/07/21/phillies-trade-deadine-david-robertson-justin-crawford/
+
 **F.D.A. Panel Debates ‘Black Box’ Warning for Antidepressants in Pregnancy**\
 `An agency-sponsored forum included critics of psychiatry who believe the drugs can harm a developing fetus. Other experts said antidepressants were safe and necessary.`\
 https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html

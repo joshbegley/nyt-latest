@@ -1,3 +1,19 @@
+**Judge Sentences Ex-Officer in Breonna Taylor Raid to Nearly 3 Years in Prison**\
+`The sentence was a sharp rebuke to the Trump administration, which had requested he serve only one day behind bars.`\
+https://nytimes.com/2025/07/21/us/politics/breonna-taylor-brett-hankison-prison.html
+
+**Chargers training camp report, Day 4: Quentin Johnston is seizing his opportunity**\
+`The Chargers tried upgrading at outside receiver this offseason. Can Johnson finally realize his first-round potential? `\
+https://nytimes.com/athletic/6507491/2025/07/21/chargers-training-camp-quentin-johnston/
+
+**U.S.-Based Orange Juice Importer Sues Over Trump’s 50% Tariff on Brazilian Goods**\
+`Orange juice prices in the U.S. are already high. The suit argues that the tariff would lead to retail price hikes of up to 25 percent.`\
+https://nytimes.com/2025/07/21/us/politics/orange-juice-trump-brazil-tariffs.html
+
+**State of the Phillies as trade deadline nears: David Robertson, Justin Crawford, another reliever?**\
+`Ideally, Robertson could help the Phillies in the later innings in August and September, then slot in the middle of the 'pen come October.`\
+https://nytimes.com/athletic/6507467/2025/07/21/phillies-trade-deadine-david-robertson-justin-crawford/
+
 **F.D.A. Panel Debates ‘Black Box’ Warning for Antidepressants in Pregnancy**\
 `An agency-sponsored forum included critics of psychiatry who believe the drugs can harm a developing fetus. Other experts said antidepressants were safe and necessary.`\
 https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/21/business/tesla-trial-autopilot.html
 **Students Killed After Fighter Jet Crashes Into School in Bangladesh**\
 `The Bangladeshi military said that a mechanical error caused an Air Force training aircraft to crash onto a school campus for students ranging from elementary to high school.`\
 https://nytimes.com/video/world/asia/100000010297824/bangladesh-plane-crash-school.html
-
-**A Judge Questioned Trump’s Harvard Cuts**\
-`Also, Japan’s anti-establishment parties are resonating. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/07/21/briefing/trump-harvard-japan-election-medicaid.html
-
-**5 Million Pools Are Recalled After at Least 9 Children Drown**\
-`Children have been able to climb into the aboveground pools by using a compression strap on the outside as a foothold, the U.S. Consumer Product Safety Commission said.`\
-https://nytimes.com/2025/07/21/business/pool-recall-drowning-deaths-bestway-intex-polygroup.html
-
-**Big Law Firms Bowed to Trump. A Corps of ‘Little Guys’ Jumped in to Fight Him.**\
-`Solo practitioners, former government litigators and small law offices stepped up to help challenge the Trump administration’s agenda in court after the White House sought to punish many big firms.`\
-https://nytimes.com/2025/07/21/us/politics/trump-big-law-firms-fight.html
-
-**Johnson Retreats on Demand for Epstein Disclosures, Saying Trump Needs ‘Space’**\
-`The Republican speaker of the House had said last week that the government should release “everything” in the Jeffrey Epstein files, in a rare break with the president that turned out to be short-lived.`\
-https://nytimes.com/2025/07/21/us/politics/mike-johnson-epstein-files-trump.html
 
