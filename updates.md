@@ -1,3 +1,11 @@
+**Thanks to That Kiss-Cam, Shame Is Back**\
+`In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
+https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
+
+**Sanitariums and Stigma: When TB Was Common in the U.S.**\
+`After The Times published an interview with John Green about his new book on tuberculosis, many readers wrote to share their families’ history with the disease.`\
+https://nytimes.com/2025/07/21/health/tb-tuberculosis-us-john-green.html
+
 **Lions' offensive line moves on after Frank Ragnow's retirement: Training camp news and notes**\
 `Plus, more details on injuries to Levi Onwuzurike and Ennis Rakestraw Jr.`\
 https://nytimes.com/athletic/6506940/2025/07/21/lions-training-camp-offensive-line/
