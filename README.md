@@ -1,3 +1,7 @@
+**Alaska Airlines Asks to Ground Its Fleet, F.A.A Says**\
+`The reason for the grounding, issued in an F.A.A advisory just after 9 p.m. on Sunday, was not immediately clear.`\
+https://nytimes.com/2025/07/20/business/alaska-airlines-grounds-plane-fleet.html
+
 **Trump Urges Washington and Cleveland Sports Teams to Revert to Native American Names**\
 `The president threatened to block a deal for the Washington Commanders’ new stadium if the team did not bow to his demand.`\
 https://nytimes.com/2025/07/20/us/politics/trump-urges-washington-and-cleveland-sports-teams-to-revert-to-native-american-names.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/us/texas-floods-missing.html
 **Off-Duty Customs Officer Shot in Robbery Attempt in Park, N.Y.P.D. Says**\
 `The officer, 42, is expected to recover after being shot in the face and returning fire. There is no indication that he was targeted because of his job, police officials said.`\
 https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.html
-
-**Dodgers' Freddie Freeman exits game after pitch hits left wrist, X-rays negative**\
-`The Dodgers announced during Sunday's game that Freeman suffered a left wrist contusion. `\
-https://nytimes.com/athletic/6505572/2025/07/20/freddie-freeman-injury-hit-by-pitch-dodgers/
 
