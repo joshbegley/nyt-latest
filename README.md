@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6505599/2025/07/20/braves-yankees-takeaways-marcell
 `Joe Ryan, carrying confidence from All-Star Game experience, dominates Rockies.`\
 https://nytimes.com/athletic/6505623/2025/07/20/twins-takeaways-joe-ryan-royce-lewis-rocco-baldelli/
 
-**Edwin Feulner, ‘Heritage Foundation’s George Washington,’ Dies at 83**\
-`As co-founder and longtime head of the Washington think tank, he picked policies and staffers for G.O.P. presidents from Ronald Reagan to Donald Trump.`\
+**Edwin Feulner, Heritage Foundation’s ‘George Washington,’ Dies at 83**\
+`As co-founder and longtime head of the conservative Washington think tank, he picked policies and staffers for G.O.P. presidents from Reagan to Trump.`\
 https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html
 
 **Driver Crashes Into San Jose Post Office, Igniting Fire**\
