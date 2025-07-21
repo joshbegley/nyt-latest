@@ -1,3 +1,7 @@
+**Arteta says ‘100%’ when asked if Arsenal followed correct process over Partey**\
+`Partey has been charged with five counts of rape and one count of sexual assault.`\
+https://nytimes.com/athletic/6505982/2025/07/21/thomas-partey-mikel-arteta-arsenal/
+
 **Russia Strikes Ukraine With Missiles and Drones**\
 `The strikes appear to have been the most intense since President Trump announced a new plan last week to send weapons to Ukraine.`\
 https://nytimes.com/2025/07/21/world/europe/russia-ukraine-missile-drone-strikes.html
