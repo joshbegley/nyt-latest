@@ -1,3 +1,7 @@
+**MLB trade deadline intel: Where all 30 teams stand with 10 days to go**\
+`Here is the latest intel I’ve received in conversations and texts with front office executives from all 30 teams and others in the game.`\
+https://nytimes.com/athletic/6505920/2025/07/21/mlb-trade-deadline-needs-targets-rumors/
+
 **Phillies takeaways: Ranger Suárez's velocity dip, David Robertson's return, Otto Kemp at 3B**\
 `Suárez’s velocity has, broadly, fallen across his repertoire since May. Manager Rob Thomson and the lefty say they are not concerned. `\
 https://nytimes.com/athletic/6505498/2025/07/21/phillies-ranger-suarez-velocity-david-robertson-signs/
