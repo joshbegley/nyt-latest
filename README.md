@@ -1,3 +1,7 @@
+**States Sue Over Unauthorized Immigrants’ Access to Federal Programs**\
+`The suit comes after several federal agencies said they would no longer allow unauthorized immigrants to benefit from more than a dozen health and education programs.`\
+https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.html
+
 **Bengals defend position on Shemar Stewart negotiation ‘silliness’**\
 `Duke Tobin questions the advice Stewart's gotten from his agent for keeping the first-round pick from signing.`\
 https://nytimes.com/athletic/6506735/2025/07/21/bengals-tobin-shemar-stewart-trey-hendickson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505665/2025/07/21/memphis-big-12-realignment/
 **Richard Jefferson agrees to return to ESPN; Doris Burke's spot still in question**\
 `Jefferson will return to ABC/ESPN after Amazon Prime Video, which begins its NBA coverage in the fall, was interested in him.`\
 https://nytimes.com/athletic/6506950/2025/07/21/richard-jefferson-espn-deal-doris-burke/
-
-**Chinese Officers Questioned U.S. Government Employee About His Army Service**\
-`The man, a U.S. citizen, is barred from leaving China by the Ministry of State Security, the country’s main intelligence and counterintelligence agency.`\
-https://nytimes.com/2025/07/21/us/politics/china-exit-ban-us-government-employee.html
 
