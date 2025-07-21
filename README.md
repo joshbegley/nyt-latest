@@ -1,3 +1,7 @@
+**Dover takeaways: The Denny Hamlin question is back, Chase Elliott's rough ending, and more**\
+`Is it finally Denny Hamlin's year? A tough pit call ends Chase Elliott's chances. It's Ty vs. Ty for $1 million. And more from Dover.`\
+https://nytimes.com/athletic/6506608/2025/07/21/nascar-dover-takeaways-denny-hamlin-chase-elliott-ty-gibbs-dillon/
+
 **N.Y.C. Carriage Driver Cleared of Animal Cruelty After Horse’s Death**\
 `A carriage horse named Ryder collapsed after a full day of work in the summer heat in Central Park. Three years later, his driver, Ian McKeever, was found not guilty.`\
 https://nytimes.com/2025/07/21/nyregion/central-park-carriage-driver-not-guilty-animal-cruelty.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506454/2025/07/21/michigan-wolverines-football-ton
 **Men's college basketball's best of the last 25 years: Readers share their picks, favorite games**\
 `The reader vote for the best men's college basketball player of the last 25 years was decided by one vote.`\
 https://nytimes.com/athletic/6506244/2025/07/21/mens-college-basketball-best-of-vote/
-
-**In Japan, Anti-Establishment Parties Resonate With Young Voters**\
-`The success of new political parties focused on wages, immigration and an unresponsive political elite highlights the frustrations of many working-age people in Japan.`\
-https://nytimes.com/2025/07/21/world/asia/japan-election-analysis.html
 
