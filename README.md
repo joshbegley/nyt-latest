@@ -1,3 +1,7 @@
+**Bengals defend position on Shemar Stewart negotiation ‘silliness’**\
+`Duke Tobin questions the advice Stewart's gotten from his agent for keeping the first-round pick from signing.`\
+https://nytimes.com/athletic/6506735/2025/07/21/bengals-tobin-shemar-stewart-trey-hendickson/
+
 **Manchester United confirm signing of forward Bryan Mbeumo from Brentford**\
 `Mbeumo has signed a five-year deal to June 2030 at Old Trafford, with the option of a further 12 months.`\
 https://nytimes.com/athletic/6502455/2025/07/21/bryan-mbuemo-manchester-united-brentford-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506950/2025/07/21/richard-jefferson-espn-deal-dori
 **Chinese Officers Questioned U.S. Government Employee About His Army Service**\
 `The man, a U.S. citizen, is barred from leaving China by the Ministry of State Security, the country’s main intelligence and counterintelligence agency.`\
 https://nytimes.com/2025/07/21/us/politics/china-exit-ban-us-government-employee.html
-
-**Cassidy, Tocchet, DeBoer announced to Canada coaching staff for 2026 Olympics**\
-`Bruce Cassidy, Pete DeBoer and Rick Tocchet lead a support staff rich in NHL head coaching experience behind bench boss Jon Cooper.`\
-https://nytimes.com/athletic/6506802/2025/07/21/olympics-2026-hockey-canada-coaching-staff/
 
