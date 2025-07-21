@@ -1,3 +1,15 @@
+**Rich Hill to join Royals, pitch for his 14th major league team: Source**\
+`Hill would tie Edwin Jackson for the MLB record for most teams.`\
+https://nytimes.com/athletic/6507179/2025/07/21/rich-hill-royals-14-major-league-teams/
+
+**Texas Republicans Look to Jam Democrats With Vote on Redistricting**\
+`By taking up new congressional maps pushed by President Trump first, Republicans hope to discourage Democrats from walking out of a special session before they vote on flood relief.`\
+https://nytimes.com/2025/07/21/us/politics/texas-redistricting-floods.html
+
+**The Coldplay Concert Shame Is Something to Celebrate**\
+`In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
+https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
+
 **White House Bans Wall Street Journal From Press Pool on Trump’s Scotland Trip**\
 `The president sued the publication last week, accusing it of defamation for an article about his ties to the disgraced former financier Jeffrey Epstein.`\
 https://nytimes.com/2025/07/21/business/media/trump-scotland-wsj-press-pool.html
