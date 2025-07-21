@@ -1,3 +1,7 @@
+**White House Bans Wall Street Journal From Press Pool on Trump’s Scotland Trip**\
+`The president sued the publication last week, accusing it of defamation for an article about his ties to the disgraced former financier Jeffrey Epstein.`\
+https://nytimes.com/2025/07/21/business/media/trump-scotland-wsj-press-pool.html
+
 **Hegseth Attends Meeting on Ukraine After Skipping Last Session**\
 `The defense secretary’s attendance may signal a turnaround as President Trump’s tone shifts on his willingness to support Kyiv against Moscow.`\
 https://nytimes.com/2025/07/21/us/politics/ukraine-trump-hegseth-weapons.html

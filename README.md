@@ -1,3 +1,11 @@
+**Rich Hill to join Royals, pitch for his 14th major league team: Source**\
+`Hill would tie Edwin Jackson for the MLB record for most teams.`\
+https://nytimes.com/athletic/6507179/2025/07/21/rich-hill-royals-14-major-league-teams/
+
+**Texas Republicans Look to Jam Democrats With Vote on Redistricting**\
+`By taking up new congressional maps pushed by President Trump first, Republicans hope to discourage Democrats from walking out of a special session before they vote on flood relief.`\
+https://nytimes.com/2025/07/21/us/politics/texas-redistricting-floods.html
+
 **White House Bans Wall Street Journal From Press Pool on Trump’s Scotland Trip**\
 `The president sued the publication last week, accusing it of defamation for an article about his ties to the disgraced former financier Jeffrey Epstein.`\
 https://nytimes.com/2025/07/21/business/media/trump-scotland-wsj-press-pool.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6497159/2025/07/21/pervis-estupinan-brighton-ac-mil
 `The former interim police commissioner, Thomas Donlon, says the mayor and one of his close allies defamed him by questioning his cognitive abilities.`\
 https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html
 
-**Thanks to That Kiss-Cam, Shame Is Back**\
+**The Coldplay Concert Shame Is Something to Celebrate**\
 `In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
 https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6506940/2025/07/21/lions-training-camp-offensive-li
 **Trump Talks About Anything but Epstein on His Social Media Account**\
 `On Truth Social, the president railed against Democrats and shared a wacky video.`\
 https://nytimes.com/2025/07/21/us/politics/trump-epstein-social-media.html
-
-**Trump Officials Blame Sanctuary Laws in Customs Officer’s Shooting**\
-`The officials also faulted Mayor Eric Adams of New York, where the shooting occurred, and promised to flood the city with federal agents who would search for undocumented migrants.`\
-https://nytimes.com/2025/07/21/nyregion/kristi-noem-eric-adams-customs-officer-shooting.html
-
-**States Sue Over Unauthorized Immigrants’ Access to Federal Programs**\
-`The suit comes after several federal agencies said they would no longer allow unauthorized immigrants to benefit from more than a dozen health and education programs.`\
-https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.html
 

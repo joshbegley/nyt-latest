@@ -1,3 +1,7 @@
+**White House Bans Wall Street Journal From Press Pool on Trump’s Scotland Trip**\
+`The president sued the publication last week, accusing it of defamation for an article about his ties to the disgraced former financier Jeffrey Epstein.`\
+https://nytimes.com/2025/07/21/business/media/trump-scotland-wsj-press-pool.html
+
 **Hegseth Attends Meeting on Ukraine After Skipping Last Session**\
 `The defense secretary’s attendance may signal a turnaround as President Trump’s tone shifts on his willingness to support Kyiv against Moscow.`\
 https://nytimes.com/2025/07/21/us/politics/ukraine-trump-hegseth-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/nyregion/kristi-noem-eric-adams-customs-officer-s
 **States Sue Over Unauthorized Immigrants’ Access to Federal Programs**\
 `The suit comes after several federal agencies said they would no longer allow unauthorized immigrants to benefit from more than a dozen health and education programs.`\
 https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.html
-
-**Bengals defend position on Shemar Stewart negotiation ‘silliness’**\
-`Duke Tobin questions the advice Stewart's gotten from his agent for keeping the first-round pick from signing.`\
-https://nytimes.com/athletic/6506735/2025/07/21/bengals-tobin-shemar-stewart-trey-hendickson/
 
