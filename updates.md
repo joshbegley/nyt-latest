@@ -1,3 +1,15 @@
+**Russia Strikes Ukraine With Missiles and Drones**\
+`The strikes appear to have been the most intense since President Trump announced a new plan last week to send weapons to Ukraine.`\
+https://nytimes.com/2025/07/21/world/europe/russia-ukraine-missile-drone-strikes.html
+
+**A Path to Peace in the Middle East**\
+`The big, beautiful blueprint to a new Middle East.`\
+https://nytimes.com/video/opinion/100000010279884/a-path-to-peace-in-the-middle-east.html
+
+**Arsenal need more summer signings, says Arteta**\
+`Arteta spoke of his 'excitement' at the four signings Arsenal have made during pre-season but says more additions are needed.`\
+https://nytimes.com/athletic/6505965/2025/07/21/mikel-arteta-arsenal-summer-transfers/
+
 **Arteta says ‘100 percent’ when asked if Arsenal followed correct process over Partey**\
 `Partey has been charged with five counts of rape and one count of sexual assault.`\
 https://nytimes.com/athletic/6505982/2025/07/21/thomas-partey-mikel-arteta-arsenal/

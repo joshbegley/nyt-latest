@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/21/world/europe/russia-ukraine-missile-drone-strikes
 `The big, beautiful blueprint to a new Middle East.`\
 https://nytimes.com/video/opinion/100000010279884/a-path-to-peace-in-the-middle-east.html
 
-**Arteta says ‘100 percent’ when asked if Arsenal followed correct process over Partey**\
+**Arteta says ‘100%’ when asked if Arsenal followed correct process over Partey**\
 `Partey has been charged with five counts of rape and one count of sexual assault.`\
 https://nytimes.com/athletic/6505982/2025/07/21/thomas-partey-mikel-arteta-arsenal/
 
