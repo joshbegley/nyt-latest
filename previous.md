@@ -1,3 +1,7 @@
+**Former N.Y.P.D. Commissioner Says He Will Sue Eric Adams for Defamation**\
+`The former interim police commissioner, Thomas Donlon, says the mayor and one of his close allies defamed him by questioning his cognitive abilities.`\
+https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html
+
 **Thanks to That Kiss-Cam, Shame Is Back**\
 `In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
 https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502455/2025/07/21/bryan-mbuemo-manchester-united-b
 **Climate Change Is Making Fire Weather Worse for World’s Forests**\
 `Forest fires are on the rise globally. An increase in severe fire weather is largely responsible.`\
 https://nytimes.com/2025/07/21/climate/extreme-fire-weather-forests.html
-
-**Racist abuse of Jess Carter 'ridiculous' and 'disgusting', says Wiegman**\
-`Carter revealed on social media that from the start of the tournament, she has “experienced a lot of racial abuse”.`\
-https://nytimes.com/athletic/6507059/2025/07/21/racist-abuse-of-jess-carter-ridiculous-and-disgusting-says-england-coach-wiegman/
 

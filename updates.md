@@ -1,3 +1,7 @@
+**Former N.Y.P.D. Commissioner Says He Will Sue Eric Adams for Defamation**\
+`The former interim police commissioner, Thomas Donlon, says the mayor and one of his close allies defamed him by questioning his cognitive abilities.`\
+https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html
+
 **Thanks to That Kiss-Cam, Shame Is Back**\
 `In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
 https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
