@@ -1,3 +1,15 @@
+**Lions' offensive line moves on after Frank Ragnow's retirement: Training camp news and notes**\
+`Plus, more details on injuries to Levi Onwuzurike and Ennis Rakestraw Jr.`\
+https://nytimes.com/athletic/6506940/2025/07/21/lions-training-camp-offensive-line/
+
+**Trump Talks About Anything but Epstein on His Social Media Account**\
+`On Truth Social, the president railed against Democrats and shared a wacky video.`\
+https://nytimes.com/2025/07/21/us/politics/trump-epstein-social-media.html
+
+**Trump Officials Blame Sanctuary Laws in Customs Officer’s Shooting**\
+`The officials also faulted Mayor Eric Adams of New York, where the shooting occurred, and promised to flood the city with federal agents who would search for undocumented migrants.`\
+https://nytimes.com/2025/07/21/nyregion/kristi-noem-eric-adams-customs-officer-shooting.html
+
 **States Sue Over Unauthorized Immigrants’ Access to Federal Programs**\
 `The suit comes after several federal agencies said they would no longer allow unauthorized immigrants to benefit from more than a dozen health and education programs.`\
 https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.html
