@@ -1,40 +1,40 @@
-**Chinese Officials Helped Cover Up Lead Poisoning of Children, Report Says**\
-`Health officials tampered with blood tests of some of the more than 200 children who were sickened by food tainted with lead, an investigation found.`\
-https://nytimes.com/2025/07/21/world/asia/china-lead-poisoning-scandal.html
+**Explaining the Patriots' 6 best moves of the offseason**\
+`It’s easy to forget all that has happened in the blur of a crazy offseason for the Patriots. Here we explain their biggest moves.`\
+https://nytimes.com/athletic/6498304/2025/07/21/patriots-moves-nfl-offseason-mike-vrabel/
 
-**Iran to Hold Nuclear Talks With European Governments**\
-`Iranian representatives will meet with negotiators from Britain, France and Germany on Friday, days after they threatened to restore sanctions.`\
-https://nytimes.com/2025/07/21/world/middleeast/iran-nuclear-talks-europe.html
+**What we learned from Celtics at summer league: Defensive pressure a new emphasis?**\
+`How did the Celtics look at summer league? There's a new emphasis on being more aggressive and forcing turnovers for starters. `\
+https://nytimes.com/athletic/6505686/2025/07/21/celtics-summer-league-observations/
 
-**The New York Times International Edition in Print for Tuesday, July 22, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/21/todays-new-york-times-international-edition
+**TAFC: The best save you've ever seen? Plus: A transfer chain reaction and when 'siu' celebrations go wrong**\
+`The story behind the goalkeeper who made the stop of Euro 2025 and the latest transfer news from the world of football`\
+https://nytimes.com/athletic/6506060/2025/07/21/berger-best-save-rashford-transfer/
 
-**The Ultimate Swan Song: Gillian Murphy’s Thrilling Last Dance**\
-`In a tremendous performance, this American Ballet Theater principal danced her final “Swan Lake” to end her glittering 29-year career.`\
-https://nytimes.com/2025/07/21/arts/dance/gillian-murphy-swan-song-abt.html
+**J.J. McCarthy’s moment begins: What he’s thinking as Vikings camp opens**\
+`Is McCarthy, 22, nervous about his chance to be the Vikings starter? “I don’t think it feels like weight to him,” his former QB coach says.`\
+https://nytimes.com/athletic/6502245/2025/07/21/jj-mccarthy-vikings-training-camp-2025/
 
-**How Trump Deflected MAGA’s Wrath Over Epstein, at Least for Now**\
-`By tapping into other grievances, President Trump managed to turn one of the most fractious moments for his base into a unifying one.`\
-https://nytimes.com/2025/07/21/us/politics/trump-epstein-maga-base.html
+**Scottie Scheffler doesn’t need to explain himself. The answer is in the beginning**\
+`“Even as a kid, I don’t think he ever dreamed these things."`\
+https://nytimes.com/athletic/6505708/2025/07/21/open-championship-scottie-scheffler-family/
 
-**Ben Bernanke and Janet Yellen: The Fed Must Be Independent**\
-`Political pressure interferes with a mandate to work for stable prices and maximum employment.`\
-https://nytimes.com/2025/07/21/opinion/federal-reserve-independence-trump.html
+**NFL training camp storylines: Browns, Colts QB competitions, rookie debuts and more**\
+`At least four starting quarterback jobs could be up for grabs while five first-time head coaches will kick off their initial training camp.`\
+https://nytimes.com/athletic/6483632/2025/07/21/nfl-training-camp-storylines-2025/
 
-**‘KPop Demon Hunters’ Took 7 Years to Make but a Lifetime of Experience**\
-`Maggie Kang, a director of the hit along with Chris Appelhans, was “just trying to make something that I wanted to see: a movie that celebrated Korean culture.”`\
-https://nytimes.com/2025/07/21/movies/kpop-demon-hunters-directors.html
+**Rob Manfred recruited a star-studded group of retired players. The union sees trouble**\
+`The players' union believes that Manfred's group of former players is working to help sell current players on instituting a salary cap.`\
+https://nytimes.com/athletic/6505095/2025/07/21/rob-manfred-former-players-mlb-salary-cap/
 
-**Regret, Thy Name Is Hawley. And Murkowski. And Musk.**\
-`The price of pleasing Trump grows steeper.`\
-https://nytimes.com/2025/07/21/opinion/trump-hawley-murkowski-musk-regret.html
+**Jaylon Johnson, Montez Sweat, Grady Jarrett lead experienced Bears defense into camp**\
+`Jaquan Brisker, Tyrique Stevenson and Tremaine Edmunds are some of the players to watch during camp at Halas Hall.`\
+https://nytimes.com/athletic/6500124/2025/07/21/bears-defense-training-camp-2025/
 
-**What’s the Perfect Capsule Wardrobe for Traveling?**\
-`Consolidating a fabulous wardrobe into a tiny carry-on is a daunting task. Luckily, our critic breaks it down into simple math.`\
-https://nytimes.com/2025/07/21/fashion/travel-packing-capsule-wardrobe.html
+**The best — and most underrated — players we saw at Peach Jam**\
+`From the top players in the 2026 class to three unranked players we loved, here's what jumped out to us at the preeminent grassroots event.`\
+https://nytimes.com/athletic/6505252/2025/07/21/peach-jam-best-players-tyran-stokes-jordan-smith/
 
-**For Once, Some Good News About a Fragile Ecosystem**\
-`What has happened to the Okefenokee makes me think that all is not yet lost.`\
-https://nytimes.com/2025/07/21/opinion/okefenokee-wildlife-refuge-georgia.html
+**Why F1 team principal sackings now resemble football managers' revolving doors**\
+`More than ever before, F1 teams prioritize results over patience — and it's changing the face of one of the sport's most visible jobs`\
+https://nytimes.com/athletic/6502865/2025/07/21/f1-team-principal-changes-christian-horner/
 
