@@ -1,3 +1,11 @@
+**Trump Administration Releases Documents on Martin Luther King Jr.**\
+`The release is in keeping with an executive order by President Trump in making public the files, despite the fierce opposition of Dr. King’s family.`\
+https://nytimes.com/2025/07/21/us/politics/mlk-jr-files-trump.html
+
+**Nikita Parris to join newly-promoted London City Lionesses from Brighton**\
+`Parris is set to become the latest signing to join London City in a busy summer since their promotion.`\
+https://nytimes.com/athletic/6507124/2025/07/21/nikita-parris-transfer-london-city-lionesses/
+
 **How Manchester United signed Bryan Mbeumo: Low-ball offer to top-end price - and why it took so long**\
 `Why Manchester United agreed to pay a premium for Mbeumo, how the negotiations played out and how they hope he will prove money well spent`\
 https://nytimes.com/athletic/6506126/2025/07/21/manchester-united-bryan-mbeumo-transfer-details/
