@@ -1,3 +1,7 @@
+**Tennis Briefing: Venus Williams returns and Canadian Open withdrawals**\
+`Alexander Bublik secures his first title on clay, while all eyes will be on Venus Williams this week in Washington, D.C.`\
+https://nytimes.com/athletic/6498119/2025/07/21/tennis-briefing-venus-williams-return-canadian-open-withdrawals/
+
 **Trump Administration Live Updates: Republicans and Democrats Call For Release of More Epstein Files**\
 ``\
 https://nytimes.com/live/2025/07/21/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501701/2025/07/21/hugo-ekitike-liverpool-tactical-
 **Italian Festival Cancels Appearance by Russian Conductor With Ties to Putin**\
 `Some lawmakers in Italy had argued that Valery Gergiev’s planned appearance sent the wrong message as Europe strives to remain united in its support for Ukraine.`\
 https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
-
-**Bangladesh Military Plane Crashes Into School, Killing at Least 19**\
-`Dozens were injured after the aircraft crashed in Dhaka, Bangladesh’s capital, according to national fire officials.`\
-https://nytimes.com/2025/07/21/world/asia/bangladesh-military-plane-crash.html
 
