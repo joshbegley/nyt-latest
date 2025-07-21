@@ -1,3 +1,7 @@
+**Chinese Officials Helped Cover Up Lead Poisoning of Children, Report Says**\
+`Health officials tampered with blood tests of some of the more than 200 children who were sickened by food tainted with lead, an investigation found.`\
+https://nytimes.com/2025/07/21/world/asia/china-lead-poisoning-scandal.html
+
 **Iran to Hold Nuclear Talks With European Governments**\
 `Iranian representatives will meet with negotiators from Britain, France and Germany on Friday, days after they threatened to restore sanctions.`\
 https://nytimes.com/2025/07/21/world/middleeast/iran-nuclear-talks-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/fashion/travel-packing-capsule-wardrobe.html
 **For Once, Some Good News About a Fragile Ecosystem**\
 `What has happened to the Okefenokee makes me think that all is not yet lost.`\
 https://nytimes.com/2025/07/21/opinion/okefenokee-wildlife-refuge-georgia.html
-
-**What Does Your Mailman Know About You? More Than Your Address.**\
-`Your burning questions about the postal service are answered in Stephen Starring Grant’s lively memoir.`\
-https://nytimes.com/2025/07/21/books/review/stephen-starring-grant-mailman.html
 

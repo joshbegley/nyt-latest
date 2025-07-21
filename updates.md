@@ -1,3 +1,7 @@
+**Chinese Officials Helped Cover Up Lead Poisoning of Children, Report Says**\
+`Health officials tampered with blood tests of some of the more than 200 children who were sickened by food tainted with lead, an investigation found.`\
+https://nytimes.com/2025/07/21/world/asia/china-lead-poisoning-scandal.html
+
 **Iran to Hold Nuclear Talks With European Governments**\
 `Iranian representatives will meet with negotiators from Britain, France and Germany on Friday, days after they threatened to restore sanctions.`\
 https://nytimes.com/2025/07/21/world/middleeast/iran-nuclear-talks-europe.html
