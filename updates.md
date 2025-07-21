@@ -1,3 +1,7 @@
+**Edwin Feulner, Heritage Foundation’s ‘George Washington,’ Dies at 83**\
+`As co-founder and longtime head of the conservative Washington think tank, he picked policies and staffers for G.O.P. presidents from Reagan to Trump.`\
+https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html
+
 **Trump Urges Washington and Cleveland Sports Teams to Revert to Native American Names**\
 `The president threatened to block a deal for the Washington Commanders’ new stadium if the team did not bow to his demand.`\
 https://nytimes.com/2025/07/20/us/politics/trump-urges-washington-and-cleveland-sports-teams-to-revert-to-native-american-names.html
