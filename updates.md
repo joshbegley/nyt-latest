@@ -1,3 +1,7 @@
+**Conviction of Man in Killing of Etan Patz Is Overturned**\
+`Pedro Hernandez, a former bodega stock clerk, had confessed years after the 1979 crime to luring Etan Patz, 6, into a basement in SoHo. The case shook New York City.`\
+https://nytimes.com/2025/07/21/nyregion/etan-patz-conviction-overturned.html
+
 **Court Orders New Trial for Man Convicted in Killing of Etan Patz**\
 `Pedro Hernandez, a former bodega stock clerk, had confessed years after the 1979 crime to luring Etan Patz, 6, into a basement in SoHo. The case shook New York City.`\
 https://nytimes.com/2025/07/21/nyregion/etan-patz-conviction-overturned.html
