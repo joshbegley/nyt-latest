@@ -1,3 +1,7 @@
+**Arteta says ‘100 percent’ when asked if Arsenal followed correct process over Partey**\
+`Partey has been charged with five counts of rape and one count of sexual assault.`\
+https://nytimes.com/athletic/6505982/2025/07/21/thomas-partey-mikel-arteta-arsenal/
+
 **Deadly Landslides and Floods Hit South Korea**\
 `Thousands of people were evacuated and some airlifted by helicopter, as a torrential storm tore through buildings in the nation’s southern and western provinces.`\
 https://nytimes.com/video/world/asia/100000010296340/south-korea-floods-death-toll.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495215/2025/07/21/tour-de-france-rest-day-rides/
 **Monday Briefing: Dozens Killed in Gaza**\
 `Plus, a film takes us back to the pandemic.`\
 https://nytimes.com/2025/07/21/briefing/gaza-israel-japan-trump-epstein.html
-
-**Why do Test cricketers wear white?**\
-`While most sports mandate differing team colours to tell sides apart, cricketers have always played some form of the game wearing all white`\
-https://nytimes.com/athletic/6471911/2025/07/21/cricket-white-clothing-wsc-explained/
 
