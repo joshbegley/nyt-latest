@@ -1,3 +1,11 @@
+**Russia Strikes Kyiv Subway Station Sheltering Residents**\
+`Videos showed people in the subway as the tunnel filled with smoke. Russian attacks in Ukraine have steadily escalated even as cease-fire talks began in the spring.`\
+https://nytimes.com/video/world/europe/100000010296439/russia-strikes-kyiv-subway-station.html
+
+**A Mill Town Lost Its Mill. What Is It Now?**\
+`Locals in Canton, N.C., are trying to figure out what’s next after losing the thing that gave them an identity: their beloved, stinky paper mill.`\
+https://nytimes.com/2025/07/21/us/mill-town-canton-north-carolina.html
+
 **Trump Posts Fake Video Showing Obama Arrest**\
 `President Trump shared what appeared to be an A.I.-generated video of former President Barack Obama being detained in the Oval Office.`\
 https://nytimes.com/2025/07/21/us/politics/trump-fake-video-obama-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-sta
 **Justin Bieber’s Experimental ‘Swag’ Resurgence**\
 `Discussing the era-defining pop singer’s most idiosyncratic and musically adventurous release to date.`\
 https://nytimes.com/2025/07/21/arts/music/justin-bieber-swag-popcast.html
-
-**The Windup: One bat to watch at the deadline**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6505963/2025/07/21/eugenio-suarez-trade-deadline-the-windup/
-
-**SkyWest Flight Aborts Landing to Avoid Midair Collision Near Military Base**\
-`After the passenger jet landed safely in North Dakota, the pilot told passengers that he had made an “aggressive maneuver” to avoid hitting a military aircraft.`\
-https://nytimes.com/2025/07/21/us/skywest-flight-collision-b52-north-dakota.html
 
