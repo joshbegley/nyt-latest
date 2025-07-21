@@ -1,3 +1,8 @@
+**Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
+`How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
+`\
+https://nytimes.com/athletic/6492558/2025/07/21/nhl-broadcast-rankings-tv-2025-commentator/
+
 **Israel Refuses to Renew Visa of Top U.N. Humanitarian Official for Gaza**\
 `The head of the agency that helps oversee aid deliveries to the territory had previously criticized the impact of Israeli military attacks on civilians.`\
 https://nytimes.com/2025/07/21/world/middleeast/israel-visa-un-gaza.html

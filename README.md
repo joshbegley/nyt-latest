@@ -1,3 +1,7 @@
+**England captain Williamson trains ahead of Euro 2025 semi-final**\
+`Williamson, 28, was forced off at half time of extra time during Thursday's penalty shootout win over Sweden.`\
+https://nytimes.com/athletic/6501901/2025/07/21/leah-williamson-england-update-injury/
+
 **Israel Refuses to Renew Visa of Top U.N. Humanitarian Official for Gaza**\
 `The head of the agency that helps oversee aid deliveries to the territory had previously criticized the impact of Israeli military attacks on civilians.`\
 https://nytimes.com/2025/07/21/world/middleeast/israel-visa-un-gaza.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6505649/2025/07/21/chicago-cubs-trade-deadline-upda
 **Twins trade deadline big board: Most and least likely to be moved? Highest value?**\
 `If the Twins sell, they have plenty of marketable players to shop, from impending free agents to core pieces under years of team control.`\
 https://nytimes.com/athletic/6479840/2025/07/21/minnesota-twins-trade-deadline-big-board/
-
-**Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
-`How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
-`\
-https://nytimes.com/athletic/6492558/2025/07/21/nhl-broadcast-rankings-tv-2025-commentator/
 
