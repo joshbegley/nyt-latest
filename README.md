@@ -1,3 +1,7 @@
+**Quote of the Day: Pain Deep in the Heart of Every Part of Texas**\
+`Quotation of the Day for Monday, July 21, 2025.`\
+https://nytimes.com/2025/07/20/pageoneplus/quote-of-the-day-pain-deep-in-the-heart-of-every-part-of-texas.html
+
 **Alaska Airlines Asks to Ground Its Fleet, F.A.A. Says**\
 `The reason for the grounding, issued in an F.A.A. advisory just after 9 p.m. on Sunday, was not immediately clear.`\
 https://nytimes.com/2025/07/20/business/alaska-airlines-grounds-plane-fleet.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010296045/israel-gaza-aid-shoot
 **How Did the Number of People Missing After Texas Floods Drop So Drastically?**\
 `Last week, officials said 97 people were missing in Kerr County. Now, it’s down to three. The drop is substantial, but such wild fluctuations can happen after disasters.`\
 https://nytimes.com/2025/07/20/us/texas-floods-missing.html
-
-**Off-Duty Customs Officer Shot in Robbery Attempt in Park, N.Y.P.D. Says**\
-`The officer, 42, is expected to recover after being shot in the face and returning fire. There is no indication that he was targeted because of his job, police officials said.`\
-https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.html
 
