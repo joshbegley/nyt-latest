@@ -1,3 +1,7 @@
+**Google A.I. System Wins Gold Medal in International Math Olympiad**\
+`OpenAI said it, too, had built a system that achieved similar results.`\
+https://nytimes.com/2025/07/21/technology/google-ai-international-mathematics-olympiad.html
+
 **Venus Williams and Reilly Opelka among pairs hoping to compete in US Open mixed doubles**\
 `The United States Tennis Association has released an updated list of teams hoping to compete for the $1million in prize money.`\
 https://nytimes.com/athletic/6507218/2025/07/21/us-open-mixed-doubles-venus-williams-reilly-opelka/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html
 **The Coldplay Concert Shame Is Something to Celebrate**\
 `In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
 https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
-
-**Sanitariums and Stigma: When TB Was Common in the U.S.**\
-`After The Times published an interview with John Green about his new book on tuberculosis, many readers wrote to share their families’ history with the disease.`\
-https://nytimes.com/2025/07/21/health/tb-tuberculosis-us-john-green.html
 

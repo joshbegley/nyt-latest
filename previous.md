@@ -1,9 +1,13 @@
+**Venus Williams and Reilly Opelka among pairs hoping to compete in US Open mixed doubles**\
+`The United States Tennis Association has released an updated list of teams hoping to compete for the $1million in prize money.`\
+https://nytimes.com/athletic/6507218/2025/07/21/us-open-mixed-doubles-venus-williams-reilly-opelka/
+
 **The Bag of Summer Is a BAB**\
 `No longer written off for being “ludicrously capacious,” oversize bags are building up a fan base on social media.`\
 https://nytimes.com/2025/07/21/style/bab-bag-of-summer.html
 
 **Rich Hill to join Royals, pitch for his 14th major league team: Source**\
-`Hill would tie Edwin Jackson for the MLB record for most teams.`\
+`Hill would tie Edwin Jackson for the MLB record for most teams played for.`\
 https://nytimes.com/athletic/6507179/2025/07/21/rich-hill-royals-14-major-league-teams/
 
 **Texas Republicans Look to Jam Democrats With Vote on Redistricting**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
 **Sanitariums and Stigma: When TB Was Common in the U.S.**\
 `After The Times published an interview with John Green about his new book on tuberculosis, many readers wrote to share their families’ history with the disease.`\
 https://nytimes.com/2025/07/21/health/tb-tuberculosis-us-john-green.html
-
-**Lions' offensive line moves on after Frank Ragnow's retirement: Training camp news and notes**\
-`Plus, more details on injuries to Levi Onwuzurike and Ennis Rakestraw Jr.`\
-https://nytimes.com/athletic/6506940/2025/07/21/lions-training-camp-offensive-line/
 
