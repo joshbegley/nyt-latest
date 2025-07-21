@@ -1,3 +1,11 @@
+**Mondays are rough, so let's watch Shohei Ohtani hurl heaters. Here's how to tune in**\
+`Shohei Ohtani is taking the mound once again. It's his first pitching performance since the All-Star break. Here's how to watch it go down.`\
+https://nytimes.com/athletic/6502882/2025/07/21/shohei-ohtani-next-start-dodgers-twins-how-to-watch/
+
+**Seabed-Mining Firm Faces Legal Questions Over Controversial Trump Policy**\
+`After Trump pledged to open international waters to mining, The Metals Company sought U.S. permits. But other countries are raising legal concerns.`\
+https://nytimes.com/2025/07/21/climate/metals-company-seabed-mining-trump.html
+
 **With Posts on Sports Team Names, Trump Wades Into a Decades-Old Dispute**\
 `Two new names, the Washington Commanders and Cleveland Guardians, had replaced names offensive to many Native Americans.`\
 https://nytimes.com/2025/07/21/sports/football/washington-commanders-cleveland-guardians-name-history-trump.html
