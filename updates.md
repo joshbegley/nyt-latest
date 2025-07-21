@@ -1,3 +1,7 @@
+**Trump Posts Fake Video Showing Obama Arrest**\
+`President Trump shared what appeared to be an A.I.-generated video of former President Barack Obama being detained in the Oval Office.`\
+https://nytimes.com/2025/07/21/us/politics/trump-fake-video-obama-arrest.html
+
 **Stellantis Says Profit Plunged as Tariffs Began to Bite**\
 `The company, which owns Jeep, Peugeot, Fiat and other brands, said it might soon have to begin raising prices.`\
 https://nytimes.com/2025/07/21/business/stellantis-profit-trump-tariffs.html
