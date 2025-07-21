@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: Republicans and Democrats Call For Release of More Epstein Files**\
+``\
+https://nytimes.com/live/2025/07/21/us/trump-news
+
+**Jed Hoyer praises 'conviction' of Craig Breslow's Rafael Devers trade**\
+`Though Breslow was criticized by many for the trade, one former colleague has been impressed with what he has done so far.`\
+https://nytimes.com/athletic/6505515/2025/07/21/jed-hoyer-cubs-craig-breslow-rafael-devers-red-sox/
+
+**What it would look like if the Giants were sellers at the trade deadline**\
+`The Giants wouldn't want to move a lot of their best players — but they would certainly have some to offer if the season goes south.`\
+https://nytimes.com/athletic/6505927/2025/07/21/giants-mlb-trade-deadline-sellers/
+
+**Blackhawks fan survey: Are you as confident in the rebuild as Kyle Davidson is?**\
+`Davidson is all in on a youth movement, essentially sitting out of free agency. How do you feel the rebuild is progressing?`\
+https://nytimes.com/athletic/6502293/2025/07/21/blackhawks-kyle-davidson-rebuild-nhl-offseason/
+
 **2 Deadly Shootings in 2 Days Highlight Dangers of Aid Distribution in Gaza**\
 `On Saturday, Israeli soldiers shot Palestinians near an Israel-backed food site. On Sunday, they fired at people gathering near a U.N. convoy. Both incidents were symptoms of broader problems.`\
 https://nytimes.com/2025/07/21/world/middleeast/shootings-aid-gaza-analysis.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
 **Bangladesh Military Plane Crashes Into School, Killing at Least 19**\
 `Dozens were injured after the aircraft crashed in Dhaka, Bangladesh’s capital, according to national fire officials.`\
 https://nytimes.com/2025/07/21/world/asia/bangladesh-military-plane-crash.html
-
-**Yankees trade deadline big board: 9 hitters the club could acquire**\
-`The Yankees figure to be one of the most aggressive teams at the trade deadline. Here are nine names to watch over the next 10 days.`\
-https://nytimes.com/athletic/6505052/2025/07/21/yankees-trade-deadline-targets-hitters/
-
-**Phillies takeaways: Ranger Suárez's velocity dip, David Robertson's return, Otto Kemp at 3B**\
-`Suárez’s velocity has, broadly, fallen across his repertoire since May. Manager Rob Thomson and the lefty say they are not concerned. `\
-https://nytimes.com/athletic/6505498/2025/07/21/phillies-ranger-suarez-velocity-david-robertson-signs/
-
-**Can Anthony Richardson reclaim QB1? Five big questions facing the Colts at camp**\
-`Other questions looming over the Colts: How hot is GM Chris Ballard's seat, and will the O-line be OK after losing two key starters? `\
-https://nytimes.com/athletic/6498906/2025/07/21/colts-anthony-richardson-training-camp-chris-ballard/
-
-**What we’re hearing about the Cubs’ plans for the trade deadline**\
-`Every team can get better and should be prepared to work on its flaws, and the Cubs are no exception.`\
-https://nytimes.com/athletic/6505649/2025/07/21/chicago-cubs-trade-deadline-updates/
 
