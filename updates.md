@@ -1,3 +1,11 @@
+**Miami Can’t Delay Its Election by a Year, Judge Rules**\
+`City commissioners said the move was meant to save money and improve turnout. Critics noted that it would give some city officials an extra year in office.`\
+https://nytimes.com/2025/07/21/us/miami-election-constitution-violation.html
+
+**Trump Administration Releases Documents on Martin Luther King Jr.**\
+`The release is in keeping with an executive order by President Trump in making public the files, despite the opposition of Dr. King’s family.`\
+https://nytimes.com/2025/07/21/us/politics/mlk-jr-files-trump.html
+
 **Trump Administration Releases Documents on Martin Luther King Jr.**\
 `The release is in keeping with an executive order by President Trump in making public the files, despite the fierce opposition of Dr. King’s family.`\
 https://nytimes.com/2025/07/21/us/politics/mlk-jr-files-trump.html
