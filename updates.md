@@ -1,3 +1,15 @@
+**Bengals defend position on Shemar Stewart negotiation ‘silliness’**\
+`Duke Tobin questions the advice Stewart's gotten from his agent for keeping the first-round pick from signing.`\
+https://nytimes.com/athletic/6506735/2025/07/21/bengals-tobin-shemar-stewart-trey-hendickson/
+
+**Manchester United confirm signing of forward Bryan Mbeumo from Brentford**\
+`Mbeumo has signed a five-year deal to June 2030 at Old Trafford, with the option of a further 12 months.`\
+https://nytimes.com/athletic/6502455/2025/07/21/bryan-mbuemo-manchester-united-brentford-signing/
+
+**Climate Change Is Making Fire Weather Worse for World’s Forests**\
+`Forest fires are on the rise globally. An increase in severe fire weather is largely responsible.`\
+https://nytimes.com/2025/07/21/climate/extreme-fire-weather-forests.html
+
 **Racist abuse of Jess Carter 'ridiculous' and 'disgusting', says Wiegman**\
 `Carter revealed on social media that from the start of the tournament, she has “experienced a lot of racial abuse”.`\
 https://nytimes.com/athletic/6507059/2025/07/21/racist-abuse-of-jess-carter-ridiculous-and-disgusting-says-england-coach-wiegman/
