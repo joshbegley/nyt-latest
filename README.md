@@ -1,3 +1,11 @@
+**‘Joy’ Review: A Rags-to-QVC-Riches Story**\
+`Betsy Wolfe shines as the inventor of the Miracle Mop in a largely dull Off Broadway show.`\
+https://nytimes.com/2025/07/21/theater/joy-review-musical-miracle-mop.html
+
+**Tuesday Briefing: A Deadly Jet Crash in Bangladesh**\
+`Plus, New Zealand wines with something extra.`\
+https://nytimes.com/2025/07/21/briefing/bangladesh-plane-crash-gaza-israel-hamas-ukraine-russia.html
+
 **Google A.I. System Wins Gold Medal in International Math Olympiad**\
 `OpenAI said it, too, had built a system that achieved similar results.`\
 https://nytimes.com/2025/07/21/technology/google-ai-international-mathematics-olympiad.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/ukraine-trump-hegseth-weapons.html
 **AC Milan close to agreement with Brighton for Pervis Estupinan**\
 `Estupinan sat out Brighton's 2-0 win over Las Palmas in a behind-closed-doors friendly in Marbella on Monday night.`\
 https://nytimes.com/athletic/6497159/2025/07/21/pervis-estupinan-brighton-ac-milan-transfer/
-
-**Former N.Y.P.D. Commissioner Says He Will Sue Eric Adams for Defamation**\
-`The former interim police commissioner, Thomas Donlon, says the mayor and one of his close allies defamed him by questioning his cognitive abilities.`\
-https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html
-
-**The Coldplay Concert Shame Is Something to Celebrate**\
-`In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
-https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
 

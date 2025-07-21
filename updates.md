@@ -1,3 +1,7 @@
+**Google A.I. System Wins Gold Medal in International Math Olympiad**\
+`OpenAI said it, too, had built a system that achieved similar results.`\
+https://nytimes.com/2025/07/21/technology/google-ai-international-mathematics-olympiad.html
+
 **Venus Williams and Reilly Opelka among pairs hoping to compete in US Open mixed doubles**\
 `The United States Tennis Association has released an updated list of teams hoping to compete for the $1million in prize money.`\
 https://nytimes.com/athletic/6507218/2025/07/21/us-open-mixed-doubles-venus-williams-reilly-opelka/
