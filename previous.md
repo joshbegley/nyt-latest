@@ -1,3 +1,7 @@
+**2 Deadly Shootings in 2 Days Highlight Dangers of Aid Distribution in Gaza**\
+`On Saturday, Israeli soldiers shot Palestinians near an Israel-backed food site. On Sunday, they fired at people gathering near a U.N. convoy. Both incidents were symptoms of broader problems.`\
+https://nytimes.com/2025/07/21/world/middleeast/shootings-aid-gaza-analysis.html
+
 **England captain Williamson trains ahead of Euro 2025 semi-final**\
 `Williamson, 28, was forced off at half time of extra time during Thursday's penalty shootout win over Sweden.`\
 https://nytimes.com/athletic/6501901/2025/07/21/leah-williamson-england-update-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498906/2025/07/21/colts-anthony-richardson-trainin
 **What we’re hearing about the Cubs’ plans for the trade deadline**\
 `Every team can get better and should be prepared to work on its flaws, and the Cubs are no exception.`\
 https://nytimes.com/athletic/6505649/2025/07/21/chicago-cubs-trade-deadline-updates/
-
-**Twins trade deadline big board: Most and least likely to be moved? Highest value?**\
-`If the Twins sell, they have plenty of marketable players to shop, from impending free agents to core pieces under years of team control.`\
-https://nytimes.com/athletic/6479840/2025/07/21/minnesota-twins-trade-deadline-big-board/
 

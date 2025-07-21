@@ -1,3 +1,7 @@
+**2 Deadly Shootings in 2 Days Highlight Dangers of Aid Distribution in Gaza**\
+`On Saturday, Israeli soldiers shot Palestinians near an Israel-backed food site. On Sunday, they fired at people gathering near a U.N. convoy. Both incidents were symptoms of broader problems.`\
+https://nytimes.com/2025/07/21/world/middleeast/shootings-aid-gaza-analysis.html
+
 **England captain Williamson trains ahead of Euro 2025 semi-final**\
 `Williamson, 28, was forced off at half time of extra time during Thursday's penalty shootout win over Sweden.`\
 https://nytimes.com/athletic/6501901/2025/07/21/leah-williamson-england-update-injury/
