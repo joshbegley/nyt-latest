@@ -1,3 +1,11 @@
+**Russia Strikes Ukraine With Missiles and Drones**\
+`The strikes appear to have been the most intense since President Trump announced a new plan last week to send weapons to Ukraine.`\
+https://nytimes.com/2025/07/21/world/europe/russia-ukraine-missile-drone-strikes.html
+
+**A Path to Peace in the Middle East**\
+`The big, beautiful blueprint to a new Middle East.`\
+https://nytimes.com/video/opinion/100000010279884/a-path-to-peace-in-the-middle-east.html
+
 **Arteta says ‘100 percent’ when asked if Arsenal followed correct process over Partey**\
 `Partey has been charged with five counts of rape and one count of sexual assault.`\
 https://nytimes.com/athletic/6505982/2025/07/21/thomas-partey-mikel-arteta-arsenal/
@@ -14,7 +22,7 @@ https://nytimes.com/2025/07/21/world/asia/south-korea-floods-death-toll.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/21/crosswords/spelling-bee-forum.html
 
-**Arteta says more Arsenal summer signings needed: 'We have to improve depth, quality'**\
+**Arsenal need more summer signings, says Arteta**\
 `Arteta spoke of his 'excitement' at the four signings Arsenal have made during pre-season but says more additions are needed.`\
 https://nytimes.com/athletic/6505965/2025/07/21/mikel-arteta-arsenal-summer-transfers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/21/arts/television/washington-black.html
 **The New York Times in Print for Monday, July 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/21/todays-new-york-times
-
-**Why do Tour de France cyclists ride their bikes on rest days?**\
-`It's a day to relax - but switching off during the Tour de France isn't really an option, for several reasons`\
-https://nytimes.com/athletic/6495215/2025/07/21/tour-de-france-rest-day-rides/
-
-**Monday Briefing: Dozens Killed in Gaza**\
-`Plus, a film takes us back to the pandemic.`\
-https://nytimes.com/2025/07/21/briefing/gaza-israel-japan-trump-epstein.html
 
