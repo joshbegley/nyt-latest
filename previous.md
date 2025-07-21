@@ -1,3 +1,7 @@
+**A ‘Tosca’ Shows the Boston Symphony’s Conductor at His Best**\
+`Andris Nelsons led a concert performance of Puccini’s opera at Tanglewood. It was a high point of the season.`\
+https://nytimes.com/2025/07/21/arts/music/andris-nelsons-boston-symphony-tanglewood.html
+
 **Fed Takes Fresh Steps to Defend Renovations as White House Intensifies Attacks**\
 `The Trump administration has seized on the Federal Reserve’s renovation of its building in what legal experts say could be pretext to fire Jerome H. Powell, the central bank chair.`\
 https://nytimes.com/2025/07/21/us/politics/federal-reserve-renovations-trump-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/world/middleeast/syria-clashes-druse-bedouin-evac
 **Do You Know the Places That Inspired These Authors?**\
 `Try this literary geography quiz about places around England that influenced some of the country’s most famous authors.`\
 https://nytimes.com/interactive/2025/07/21/books/review/english-author-places.html
-
-**Bedouin Families Evacuate Syrian Province Hit by Violence**\
-`The cease-fire came after days of deadly violence between Bedouin tribes and local Druse militias. The government evacuated hundreds of Bedouin families from the southern Syrian province of Sweida.`\
-https://nytimes.com/video/world/middleeast/100000010296483/bedouin-families-sweida-cease-fire-.html
 

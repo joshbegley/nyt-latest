@@ -1,3 +1,7 @@
+**A ‘Tosca’ Shows the Boston Symphony’s Conductor at His Best**\
+`Andris Nelsons led a concert performance of Puccini’s opera at Tanglewood. It was a high point of the season.`\
+https://nytimes.com/2025/07/21/arts/music/andris-nelsons-boston-symphony-tanglewood.html
+
 **Fed Takes Fresh Steps to Defend Renovations as White House Intensifies Attacks**\
 `The Trump administration has seized on the Federal Reserve’s renovation of its building in what legal experts say could be pretext to fire Jerome H. Powell, the central bank chair.`\
 https://nytimes.com/2025/07/21/us/politics/federal-reserve-renovations-trump-attacks.html
