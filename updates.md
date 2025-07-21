@@ -1,3 +1,11 @@
+**The Pulse: Are the Scottie-Tiger comparisons fair?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6505552/2025/07/21/scottie-scheffler-tiger-woods-the-pulse/
+
+**Liverpool agree Ekitike deal with Frankfurt**\
+`The outline of an agreement was reached between the clubs on Saturday, with personal terms not expected to be an issue.`\
+https://nytimes.com/athletic/6504128/2025/07/21/hugo-ekitike-liverpool-transfer-latest/
+
 **Explaining the Patriots' 6 best moves of the offseason**\
 `It’s easy to forget all that has happened in the blur of a crazy offseason for the Patriots. Here we explain their biggest moves.`\
 https://nytimes.com/athletic/6498304/2025/07/21/patriots-moves-nfl-offseason-mike-vrabel/
