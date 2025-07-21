@@ -1,3 +1,7 @@
+**Mondays are rough, so let's watch Shohei Ohtani hurl heaters. Here's how to tune in**\
+`Shohei Ohtani is taking the mound once again. It's his first pitching performance since the All-Star break. Here's how to watch it go down.`\
+https://nytimes.com/athletic/6502882/2025/07/21/shohei-ohtani-next-start-dodgers-twins-how-to-watch/
+
 **Seabed-Mining Firm Faces Legal Questions Over Controversial Trump Policy**\
 `After Trump pledged to open international waters to mining, The Metals Company sought U.S. permits. But other countries are raising legal concerns.`\
 https://nytimes.com/2025/07/21/climate/metals-company-seabed-mining-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/arts/music/andris-nelsons-boston-symphony-tanglew
 **Fed Takes Fresh Steps to Defend Renovations as White House Intensifies Attacks**\
 `The Trump administration has seized on the Federal Reserve’s renovation of its building in what legal experts say could be pretext to fire Jerome H. Powell, the central bank chair.`\
 https://nytimes.com/2025/07/21/us/politics/federal-reserve-renovations-trump-attacks.html
-
-**What I'm hearing on Mets trade deadline: How others expect New York to fill pitching needs**\
-`The Mets want to improve their bullpen, but will they deal from a position of strength to do so?`\
-https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-needs/
 
