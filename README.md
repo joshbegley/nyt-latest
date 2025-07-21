@@ -1,3 +1,7 @@
+**5 Million Pools Are Recalled After at Least 9 Children Drown**\
+`Children have been able to climb into the aboveground pools by using a compression strap on the outside as a foothold, the U.S. Consumer Product Safety Commission said.`\
+https://nytimes.com/2025/07/21/business/pool-recall-drowning-deaths-bestway-intex-polygroup.html
+
 **Big Law Firms Bowed to Trump. A Corps of ‘Little Guys’ Jumped in to Fight Him.**\
 `Solo practitioners, former government litigators and small law offices stepped up to help challenge the Trump administration’s agenda in court after the White House sought to punish many big firms.`\
 https://nytimes.com/2025/07/21/us/politics/trump-big-law-firms-fight.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6507320/2025/07/21/caleb-williams-sacks-2025-nfl-mo
 **A Timeline of the Etan Patz Case**\
 `It has been 46 years since 6-year-old Etan Patz disappeared in SoHo. After a lawsuit and two criminal trials, questions remain about how he died.`\
 https://nytimes.com/2025/07/21/nyregion/etan-patz-timeline.html
-
-**‘Joy’ Review: A Rags-to-QVC-Riches Story**\
-`Betsy Wolfe shines as the inventor of the Miracle Mop in a largely dull Off Broadway show.`\
-https://nytimes.com/2025/07/21/theater/joy-review-musical-miracle-mop.html
 
