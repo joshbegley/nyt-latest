@@ -1,3 +1,15 @@
+**With Posts on Sports Team Names, Trump Wades Into a Decades-Old Dispute**\
+`Two new names, the Washington Commanders and Cleveland Guardians, had replaced names offensive to many Native Americans.`\
+https://nytimes.com/2025/07/21/sports/football/washington-commanders-cleveland-guardians-name-history-trump.html
+
+**Israel and Gaza: Is It Genocide?**\
+`Readers offer sharply differing reactions to a guest essay by a genocide scholar.`\
+https://nytimes.com/2025/07/21/opinion/letters/israel-gaza-hamas-genocide.html
+
+**Newcastle appoint Sudarshan Gopaladesikan as new technical director**\
+`Gopaladesikan will report into a new sporting director following Paul Mitchell's exit from the club last month.`\
+https://nytimes.com/athletic/6243820/2025/07/21/newcastle-technical-director-new-atalanta/
+
 **Dover takeaways: The Denny Hamlin question is back, Chase Elliott's rough ending, and more**\
 `Is it finally Denny Hamlin's year? A tough pit call ends Chase Elliott's chances. It's Ty vs. Ty for $1 million. And more from Dover.`\
 https://nytimes.com/athletic/6506608/2025/07/21/nascar-dover-takeaways-denny-hamlin-chase-elliott-ty-gibbs-dillon/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-nee
 **England vs India team news: Dawson returns as Woakes keeps place**\
 `Dawson, 35, comes in for the injured Shoab Bashir and will play his first Test match in eight years.`\
 https://nytimes.com/athletic/6506585/2025/07/21/england-india-cricket-dawson-woakes/
-
-**Chris Paul agrees to 1-year deal, reunites with Clippers for 21st NBA season**\
-`Paul previously spent six seasons (2011-17) with the Clippers and made an All-NBA team in each of those seasons.`\
-https://nytimes.com/athletic/6506573/2025/07/21/clippers-chris-paul-signs-deal/
-
-**Big Ten commissioner Tony Petitti says Michigan penalties should end**\
-`The Big Ten and Michigan are ready to put their differences in the past. The NCAA, however, has the final say.`\
-https://nytimes.com/athletic/6506454/2025/07/21/michigan-wolverines-football-tony-petitti-big-ten-ncaa/
-
-**Men's college basketball's best of the last 25 years: Readers share their picks, favorite games**\
-`The reader vote for the best men's college basketball player of the last 25 years was decided by one vote.`\
-https://nytimes.com/athletic/6506244/2025/07/21/mens-college-basketball-best-of-vote/
 
