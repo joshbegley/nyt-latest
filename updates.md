@@ -1,3 +1,7 @@
+**The Markets Advance Despite Trump’s Attacks on the Fed and Trade Partners**\
+`Investors continue to shrug off the president’s threats, sending stocks to new highs. That calm could be tested going into a packed week for corporate earnings.`\
+https://nytimes.com/2025/07/21/business/dealbook/markets-trump-fed-tariffs.html
+
 **Tennis Briefing: Venus Williams returns and Canadian Open withdrawals**\
 `Alexander Bublik secures his first title on clay, while all eyes will be on Venus Williams this week in Washington, D.C.`\
 https://nytimes.com/athletic/6498119/2025/07/21/tennis-briefing-venus-williams-return-canadian-open-withdrawals/
