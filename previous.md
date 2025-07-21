@@ -1,4 +1,4 @@
-**New York City’s Housing Crisis Will Be on the November Ballot**\
+**Measures Aimed at N.Y.C. Housing Crisis Will Be on November Ballot**\
 `Voters will have a chance to reshape the city’s approach to development and limit the power of the City Council to stop new affordable housing projects.`\
 https://nytimes.com/2025/07/21/nyregion/charter-revision-commission-vote.html
 
