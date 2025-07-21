@@ -1,3 +1,11 @@
+**Thanks to That Kiss-Cam, Shame Is Back**\
+`In the age of Trump, it’s a strange relief to see two fellow citizens seem to realize that they have done something reckless and inappropriate.`\
+https://nytimes.com/2025/07/21/opinion/coldplay-affair-trump.html
+
+**Sanitariums and Stigma: When TB Was Common in the U.S.**\
+`After The Times published an interview with John Green about his new book on tuberculosis, many readers wrote to share their families’ history with the disease.`\
+https://nytimes.com/2025/07/21/health/tb-tuberculosis-us-john-green.html
+
 **Lions' offensive line moves on after Frank Ragnow's retirement: Training camp news and notes**\
 `Plus, more details on injuries to Levi Onwuzurike and Ennis Rakestraw Jr.`\
 https://nytimes.com/athletic/6506940/2025/07/21/lions-training-camp-offensive-line/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/21/climate/extreme-fire-weather-forests.html
 **Racist abuse of Jess Carter 'ridiculous' and 'disgusting', says Wiegman**\
 `Carter revealed on social media that from the start of the tournament, she has “experienced a lot of racial abuse”.`\
 https://nytimes.com/athletic/6507059/2025/07/21/racist-abuse-of-jess-carter-ridiculous-and-disgusting-says-england-coach-wiegman/
-
-**Malcolm-Jamal Warner, Theo Huxtable on ‘The Cosby Show,’ Dies at 54**\
-`Warner, who played the only son of Bill Cosby’s character on the beloved 1980s sitcom, drowned in Costa Rica.`\
-https://nytimes.com/2025/07/21/arts/television/malcolm-jamal-warner-dead.html
-
-**Emma Meesseman to join New York Liberty in WNBA return: Source**\
-`The 6-foot-4 forward last played for the Chicago Sky in 2022 where she was named a WNBA All-Star. `\
-https://nytimes.com/athletic/6506954/2025/07/21/emma-meesseman-new-york-liberty-wnba-news/
 
