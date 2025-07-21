@@ -1,3 +1,7 @@
+**Trump Sharpens Attacks on a Favorite Foe: The News Media**\
+`How the president is using the levers of government power against the news industry.`\
+https://nytimes.com/2025/07/21/us/politics/trump-news-media.html
+
 **Judge Sentences Ex-Officer in Breonna Taylor Raid to Nearly 3 Years in Prison**\
 `The sentence was a sharp rebuke to the Trump administration, which had requested he serve only one day behind bars.`\
 https://nytimes.com/2025/07/21/us/politics/breonna-taylor-brett-hankison-prison.html
