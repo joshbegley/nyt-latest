@@ -1,3 +1,11 @@
+**‘Joy’ Review: A Rags-to-QVC-Riches Story**\
+`Betsy Wolfe shines as the inventor of the Miracle Mop in a largely dull Off Broadway show.`\
+https://nytimes.com/2025/07/21/theater/joy-review-musical-miracle-mop.html
+
+**Tuesday Briefing: A Deadly Jet Crash in Bangladesh**\
+`Plus, New Zealand wines with something extra.`\
+https://nytimes.com/2025/07/21/briefing/bangladesh-plane-crash-gaza-israel-hamas-ukraine-russia.html
+
 **Google A.I. System Wins Gold Medal in International Math Olympiad**\
 `OpenAI said it, too, had built a system that achieved similar results.`\
 https://nytimes.com/2025/07/21/technology/google-ai-international-mathematics-olympiad.html

@@ -1,3 +1,15 @@
+**How Manchester United signed Bryan Mbeumo: Low-ball offer to top-end price - and why it took so long**\
+`Why Manchester United agreed to pay a premium for Mbeumo, how the negotiations played out and how they hope he will prove money well spent`\
+https://nytimes.com/athletic/6506126/2025/07/21/manchester-united-bryan-mbeumo-transfer-details/
+
+**Scoop City: Four scary stats that must change in 2025**\
+`Stats to fix in 2025, plus the league's highest-paid non-quarterback and the best football movies of all time, as voted by you.`\
+https://nytimes.com/athletic/6507320/2025/07/21/caleb-williams-sacks-2025-nfl-movies-scoop-city/
+
+**A Timeline of the Etan Patz Case**\
+`It has been 46 years since 6-year-old Etan Patz disappeared in SoHo. After a lawsuit and two criminal trials, questions remain about how he died.`\
+https://nytimes.com/2025/07/21/nyregion/etan-patz-timeline.html
+
 **‘Joy’ Review: A Rags-to-QVC-Riches Story**\
 `Betsy Wolfe shines as the inventor of the Miracle Mop in a largely dull Off Broadway show.`\
 https://nytimes.com/2025/07/21/theater/joy-review-musical-miracle-mop.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6507179/2025/07/21/rich-hill-royals-14-major-league
 **Texas Republicans Look to Jam Democrats With Vote on Redistricting**\
 `By taking up new congressional maps pushed by President Trump first, Republicans hope to discourage Democrats from walking out of a special session before they vote on flood relief.`\
 https://nytimes.com/2025/07/21/us/politics/texas-redistricting-floods.html
-
-**White House Bans Wall Street Journal From Press Pool on Trump’s Scotland Trip**\
-`The president sued the publication last week, accusing it of defamation for an article about his ties to the disgraced former financier Jeffrey Epstein.`\
-https://nytimes.com/2025/07/21/business/media/trump-scotland-wsj-press-pool.html
-
-**Hegseth Attends Meeting on Ukraine After Skipping Last Session**\
-`The defense secretary’s attendance may signal a turnaround as President Trump’s tone shifts on his willingness to support Kyiv against Moscow.`\
-https://nytimes.com/2025/07/21/us/politics/ukraine-trump-hegseth-weapons.html
-
-**AC Milan close to agreement with Brighton for Pervis Estupinan**\
-`Estupinan sat out Brighton's 2-0 win over Las Palmas in a behind-closed-doors friendly in Marbella on Monday night.`\
-https://nytimes.com/athletic/6497159/2025/07/21/pervis-estupinan-brighton-ac-milan-transfer/
 
