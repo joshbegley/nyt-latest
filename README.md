@@ -1,3 +1,7 @@
+**The Markets Advance Despite Trump’s Attacks on the Fed and Trade Partners**\
+`Investors continue to shrug off the president’s threats, sending stocks to new highs. That calm could be tested going into a packed week for corporate earnings.`\
+https://nytimes.com/2025/07/21/business/dealbook/markets-trump-fed-tariffs.html
+
 **Tennis Briefing: Venus Williams returns and Canadian Open withdrawals**\
 `Alexander Bublik secures his first title on clay, while all eyes will be on Venus Williams this week in Washington, D.C.`\
 https://nytimes.com/athletic/6498119/2025/07/21/tennis-briefing-venus-williams-return-canadian-open-withdrawals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/world/middleeast/israel-visa-un-gaza.html
 **Hugo Ekitike: Analysing how he fits into Liverpool's attacking structure**\
 `The 23-year-old French striker has all the attributes to be an elite No 9 - here's what he will offer in Arne Slot's side`\
 https://nytimes.com/athletic/6501701/2025/07/21/hugo-ekitike-liverpool-tactical-fit/
-
-**Italian Festival Cancels Appearance by Russian Conductor With Ties to Putin**\
-`Some lawmakers in Italy had argued that Valery Gergiev’s planned appearance sent the wrong message as Europe strives to remain united in its support for Ukraine.`\
-https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
 
