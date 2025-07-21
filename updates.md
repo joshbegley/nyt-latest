@@ -1,3 +1,12 @@
+**Phillies takeaways: Ranger Suárez's velocity dip, David Robertson's return, Otto Kemp at 3B**\
+`Suárez’s velocity has, broadly, fallen across his repertoire since May. Manager Rob Thomson and the lefty say they are not concerned. `\
+https://nytimes.com/athletic/6505498/2025/07/21/phillies-ranger-suarez-velocity-david-robertson-signs/
+
+**Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
+`How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
+`\
+https://nytimes.com/athletic/6492558/2025/07/21/nhl-broadcast-rankings-tv-2025-commentator/
+
 **Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
 `How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
 `\

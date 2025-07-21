@@ -2,6 +2,10 @@
 `The Yankees figure to be one of the most aggressive teams at the trade deadline. Here are nine names to watch over the next 10 days.`\
 https://nytimes.com/athletic/6505052/2025/07/21/yankees-trade-deadline-targets-hitters/
 
+**Phillies takeaways: Ranger Suárez's velocity dip, David Robertson's return, Otto Kemp at 3B**\
+`Suárez’s velocity has, broadly, fallen across his repertoire since May. Manager Rob Thomson and the lefty say they are not concerned. `\
+https://nytimes.com/athletic/6505498/2025/07/21/phillies-ranger-suarez-velocity-david-robertson-signs/
+
 **Can Anthony Richardson reclaim QB1? Five big questions facing the Colts at camp**\
 `Other questions looming over the Colts: How hot is GM Chris Ballard's seat, and will the O-line be OK after losing two key starters? `\
 https://nytimes.com/athletic/6498906/2025/07/21/colts-anthony-richardson-training-camp-chris-ballard/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6505659/2025/07/21/cubs-red-sox-brewers-division-ch
 **With trade deadline looming, Twins players grapple with potential roster breakup**\
 `"We understand the reality there's a real chance we have a different locker room in 10 days," Ryan Jeffers said.`\
 https://nytimes.com/athletic/6505738/2025/07/21/twins-trade-deadline-roster-breakup/
-
-**Bryce Young's next step, Derrick Brown's health: Top 10 Panthers' camp storylines**\
-`Can Bryce Young be good enough to help the Panthers end their seven-year playoff drought?`\
-https://nytimes.com/athletic/6502990/2025/07/21/carolina-panthers-storylines-training-camp-bryce-young/
 

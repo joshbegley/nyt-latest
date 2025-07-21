@@ -1,3 +1,11 @@
+**Italian Festival Cancels Appearance by Russian Conductor With Ties to Putin**\
+`Some lawmakers in Italy had argued that Valery Gergiev’s planned appearance sent the wrong message as Europe strives to remain united in its support for Ukraine.`\
+https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
+
+**Bangladesh Military Plane Crashes Into School, Killing at Least 19**\
+`Dozens were injured after the aircraft crashed in Dhaka, Bangladesh’s capital, according to national fire officials.`\
+https://nytimes.com/2025/07/21/world/europe/bangladesh-military-plane-crash.html
+
 **Yankees trade deadline big board: 9 hitters the club could acquire**\
 `The Yankees figure to be one of the most aggressive teams at the trade deadline. Here are nine names to watch over the next 10 days.`\
 https://nytimes.com/athletic/6505052/2025/07/21/yankees-trade-deadline-targets-hitters/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6505222/2025/07/21/lucy-bronze-england-euros/
 **NHL prospects I was wrong about, 2025 edition: Lian Bichsel, Brad Lambert and more**\
 `Here are five more players Scott Wheeler was either too high or too low on when evaluating their NHL prospects.`\
 https://nytimes.com/athletic/6480500/2025/07/21/nhl-prospects-lian-bichsel-brad-lambert/
-
-**Greenberg: Are the Cubs worried about the Brewers? Not yet**\
-`Chicago, which had led the NL Central since April 12, is now tied with Milwaukee. But it just needs to do what it has done all season. `\
-https://nytimes.com/athletic/6505659/2025/07/21/cubs-red-sox-brewers-division-chase-trade-deadline/
-
-**With trade deadline looming, Twins players grapple with potential roster breakup**\
-`"We understand the reality there's a real chance we have a different locker room in 10 days," Ryan Jeffers said.`\
-https://nytimes.com/athletic/6505738/2025/07/21/twins-trade-deadline-roster-breakup/
 
