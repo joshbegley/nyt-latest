@@ -1,3 +1,11 @@
+**The Pulse: Are the Scottie-Tiger comparisons fair?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6505552/2025/07/21/scottie-scheffler-tiger-woods-the-pulse/
+
+**Liverpool agree Ekitike deal with Frankfurt**\
+`The outline of an agreement was reached between the clubs on Saturday, with personal terms not expected to be an issue.`\
+https://nytimes.com/athletic/6504128/2025/07/21/hugo-ekitike-liverpool-transfer-latest/
+
 **Explaining the Patriots' 6 best moves of the offseason**\
 `It’s easy to forget all that has happened in the blur of a crazy offseason for the Patriots. Here we explain their biggest moves.`\
 https://nytimes.com/athletic/6498304/2025/07/21/patriots-moves-nfl-offseason-mike-vrabel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6505095/2025/07/21/rob-manfred-former-players-mlb-s
 **Jaylon Johnson, Montez Sweat, Grady Jarrett lead experienced Bears defense into camp**\
 `Jaquan Brisker, Tyrique Stevenson and Tremaine Edmunds are some of the players to watch during camp at Halas Hall.`\
 https://nytimes.com/athletic/6500124/2025/07/21/bears-defense-training-camp-2025/
-
-**The best — and most underrated — players we saw at Peach Jam**\
-`From the top players in the 2026 class to three unranked players we loved, here's what jumped out to us at the preeminent grassroots event.`\
-https://nytimes.com/athletic/6505252/2025/07/21/peach-jam-best-players-tyran-stokes-jordan-smith/
-
-**Why F1 team principal sackings now resemble football managers' revolving doors**\
-`More than ever before, F1 teams prioritize results over patience — and it's changing the face of one of the sport's most visible jobs`\
-https://nytimes.com/athletic/6502865/2025/07/21/f1-team-principal-changes-christian-horner/
 
