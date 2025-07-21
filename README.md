@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, July 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/21/todays-new-york-times-international-edition
+
 **The Ultimate Swan Song: Gillian Murphy’s Thrilling Last Dance**\
 `In a tremendous performance, this American Ballet Theater principal danced her final “Swan Lake” to end her glittering 29-year career.`\
 https://nytimes.com/2025/07/21/arts/dance/gillian-murphy-swan-song-abt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/books/review/stephen-starring-grant-mailman.html
 **The Solution to $10 Eggs Lies Within New York City Limits**\
 `How the Big Apple could take on Big Egg.`\
 https://nytimes.com/2025/07/21/opinion/nyc-grocery-prices.html
-
-**Obesity Prediction Could Be Guided by Genetic Risk Scores**\
-`Researchers hope that a better understanding of which genes contribute to excess weight could help with prevention starting in childhood.`\
-https://nytimes.com/2025/07/21/health/obesity-genetic-risk-score.html
 
