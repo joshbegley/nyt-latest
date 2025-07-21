@@ -1,3 +1,15 @@
+**How Manchester United signed Bryan Mbeumo: Low-ball offer to top-end price - and why it took so long**\
+`Why Manchester United agreed to pay a premium for Mbeumo, how the negotiations played out and how they hope he will prove money well spent`\
+https://nytimes.com/athletic/6506126/2025/07/21/manchester-united-bryan-mbeumo-transfer-details/
+
+**Scoop City: Four scary stats that must change in 2025**\
+`Stats to fix in 2025, plus the league's highest-paid non-quarterback and the best football movies of all time, as voted by you.`\
+https://nytimes.com/athletic/6507320/2025/07/21/caleb-williams-sacks-2025-nfl-movies-scoop-city/
+
+**A Timeline of the Etan Patz Case**\
+`It has been 46 years since 6-year-old Etan Patz disappeared in SoHo. After a lawsuit and two criminal trials, questions remain about how he died.`\
+https://nytimes.com/2025/07/21/nyregion/etan-patz-timeline.html
+
 **‘Joy’ Review: A Rags-to-QVC-Riches Story**\
 `Betsy Wolfe shines as the inventor of the Miracle Mop in a largely dull Off Broadway show.`\
 https://nytimes.com/2025/07/21/theater/joy-review-musical-miracle-mop.html
