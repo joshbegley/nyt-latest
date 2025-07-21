@@ -1,3 +1,11 @@
+**Justin Bieber’s Experimental ‘Swag’ Resurgence**\
+`Discussing the era-defining pop singer’s most idiosyncratic and musically adventurous release to date.`\
+https://nytimes.com/2025/07/21/arts/music/justin-bieber-swag-popcast.html
+
+**The Windup: One bat to watch at the deadline**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6505963/2025/07/21/eugenio-suarez-trade-deadline-the-windup/
+
 **SkyWest Flight Aborts Landing to Avoid Midair Collision Near Military Base**\
 `After the passenger jet landed safely in North Dakota, the pilot told passengers that he had made an “aggressive maneuver” to avoid hitting a military aircraft.`\
 https://nytimes.com/2025/07/21/us/skywest-flight-collision-b52-north-dakota.html

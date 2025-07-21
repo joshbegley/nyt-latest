@@ -1,3 +1,11 @@
+**Justin Bieber’s Experimental ‘Swag’ Resurgence**\
+`Discussing the era-defining pop singer’s most idiosyncratic and musically adventurous release to date.`\
+https://nytimes.com/2025/07/21/arts/music/justin-bieber-swag-popcast.html
+
+**The Windup: One bat to watch at the deadline**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6505963/2025/07/21/eugenio-suarez-trade-deadline-the-windup/
+
 **SkyWest Flight Aborts Landing to Avoid Midair Collision Near Military Base**\
 `After the passenger jet landed safely in North Dakota, the pilot told passengers that he had made an “aggressive maneuver” to avoid hitting a military aircraft.`\
 https://nytimes.com/2025/07/21/us/skywest-flight-collision-b52-north-dakota.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6505653/2025/07/21/sydney-colson-fever-funniest-wnb
 **Hundreds of NASA Employees, Past and Present, Sign Letter of Formal Dissent**\
 `The signatories of the “Voyager Declaration” warned the space agency’s leadership about the consequences of major budget cuts that would halt many science missions.`\
 https://nytimes.com/2025/07/21/science/nasa-formal-dissent-letter-trump.html
-
-**Read the NASA ‘Voyager Declaration’ Letter of Dissent**\
-`Hundreds of current and ex-employees of NASA signed a formal dissent letter protesting the Trump administration’s proposed cuts to the agency.`\
-https://nytimes.com/interactive/2025/07/21/science/nasa-voyager-declaration.html
-
-**No Corrections: July 20, 2025**\
-`No corrections appeared in print on Sunday, July 20, 2025.`\
-https://nytimes.com/2025/07/21/pageoneplus/no-corrections-july-20-2025.html
 
