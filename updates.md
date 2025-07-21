@@ -1,3 +1,7 @@
+**Word of the Day: piquancy**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/21/learning/word-of-the-day-piquancy.html
+
 **‘Washington Black,’ Plus 7 Things to Watch on TV This Week**\
 `The screen adaptation of the popular historical novel premieres, and a Billy Joel documentary airs.`\
 https://nytimes.com/2025/07/21/arts/television/washington-black.html

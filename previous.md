@@ -1,3 +1,7 @@
+**Word of the Day: piquancy**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/21/learning/word-of-the-day-piquancy.html
+
 **‘Washington Black,’ Plus 7 Things to Watch on TV This Week**\
 `The screen adaptation of the popular historical novel premieres, and a Billy Joel documentary airs.`\
 https://nytimes.com/2025/07/21/arts/television/washington-black.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212666/2025/07/21/footballers-bankrupt-money/
 **How the Premier League's homegrown player rule is affecting the summer transfer window**\
 `Premier League rules mean that clubs need to be wary of how many non-homegrown players they sign - even if they're an England international`\
 https://nytimes.com/athletic/6499474/2025/07/21/homegrown-players-madueke-premier-leauge-rules/
-
-**Martin Zubimendi: The coach's midfielder and a 'complete' player**\
-`From a junior chess champion at 11 to the darling of Spanish coaches, this is the Basque's road to the Emirates`\
-https://nytimes.com/athletic/6429219/2025/07/21/martin-zubimendi-arsenal-transfer-background/
 
