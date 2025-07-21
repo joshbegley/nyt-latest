@@ -1,3 +1,11 @@
+**Russia Strikes Kyiv Subway Station Sheltering Residents**\
+`Videos showed people in the subway as the tunnel filled with smoke. Russian attacks in Ukraine have steadily escalated even as cease-fire talks began in the spring.`\
+https://nytimes.com/video/world/europe/100000010296439/russia-strikes-kyiv-subway-station.html
+
+**A Mill Town Lost Its Mill. What Is It Now?**\
+`Locals in Canton, N.C., are trying to figure out what’s next after losing the thing that gave them an identity: their beloved, stinky paper mill.`\
+https://nytimes.com/2025/07/21/us/mill-town-canton-north-carolina.html
+
 **Trump Posts Fake Video Showing Obama Arrest**\
 `President Trump shared what appeared to be an A.I.-generated video of former President Barack Obama being detained in the Oval Office.`\
 https://nytimes.com/2025/07/21/us/politics/trump-fake-video-obama-arrest.html
