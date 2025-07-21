@@ -1,3 +1,7 @@
+**Pete Crow-Armstrong's injury serves as trade deadline reminder for Cubs**\
+`In his place, the Cubs penciled in Seiya Suzuki as the starting center fielder in Monday's lineup.`\
+https://nytimes.com/athletic/6507589/2025/07/21/chicago-cubs-pete-crow-armstrong-injury-trade-deadline/
+
 **Trump Sharpens Attacks on a Favorite Foe: The News Media**\
 `How the president is using the levers of government power against the news industry.`\
 https://nytimes.com/2025/07/21/us/politics/trump-news-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6507378/2025/07/21/nflpa-lloyd-howell-resigns-carly
 **Missouri Man Dies in Dam’s Hydraulics While Trying to Save Trapped Boater**\
 `The man jumped into the water to help a boater who had become trapped in the powerful, washing machine-like waters at the base of the dam.`\
 https://nytimes.com/2025/07/21/us/missouri-man-dam-dead.html
-
-**Tesla Driver Testifies Autopilot Failed to Prevent Fatal Crash**\
-`The driver gave testimony in a federal trial about Tesla’s role in a 2019 accident that killed a woman in Florida.`\
-https://nytimes.com/2025/07/21/business/tesla-trial-autopilot.html
 

@@ -1,3 +1,7 @@
+**Pete Crow-Armstrong's injury serves as trade deadline reminder for Cubs**\
+`In his place, the Cubs penciled in Seiya Suzuki as the starting center fielder in Monday's lineup.`\
+https://nytimes.com/athletic/6507589/2025/07/21/chicago-cubs-pete-crow-armstrong-injury-trade-deadline/
+
 **Trump Sharpens Attacks on a Favorite Foe: The News Media**\
 `How the president is using the levers of government power against the news industry.`\
 https://nytimes.com/2025/07/21/us/politics/trump-news-media.html
