@@ -1,3 +1,7 @@
+**William L. Clay, Missouri’s First Black Congressman, Dies at 94**\
+`A co-founder of the Congressional Black Caucus, he represented St. Louis in the House as an uncompromising liberal Democrat and a forceful advocate for the poor.`\
+https://nytimes.com/2025/07/21/us/william-l-clay-dead.html
+
 **Cassidy, Tocchet, DeBoer announced to Canada coaching staff for 2026 Olympics**\
 `Bruce Cassidy, Pete DeBoer and Rick Tocchet lead a support staff rich in NHL head coaching experience behind bench boss Jon Cooper.`\
 https://nytimes.com/athletic/6506802/2025/07/21/olympics-2026-hockey-canada-coaching-staff/

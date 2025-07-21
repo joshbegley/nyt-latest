@@ -1,3 +1,7 @@
+**Chinese Officers Questioned U.S. Government Employee About His Army Service**\
+`The man, a U.S. citizen, is barred from leaving China by the Ministry of State Security, the country’s main intelligence and counterintelligence agency.`\
+https://nytimes.com/2025/07/21/us/politics/china-exit-ban-us-government-employee.html
+
 **Cassidy, Tocchet, DeBoer announced to Canada coaching staff for 2026 Olympics**\
 `Bruce Cassidy, Pete DeBoer and Rick Tocchet lead a support staff rich in NHL head coaching experience behind bench boss Jon Cooper.`\
 https://nytimes.com/athletic/6506802/2025/07/21/olympics-2026-hockey-canada-coaching-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/nyregion/ecuador-gang-fito-arraignment.html
 **Former BYU QB Jake Retzlaff commits to Tulane: Sources**\
 `Sources with knowledge of the situation told The Athletic that Retzlaff was vetted by Tulane’s Title IX office.`\
 https://nytimes.com/athletic/6506680/2025/07/21/jake-retzlaff-byu-tulane/
-
-**Conviction of Man in Killing of Etan Patz Is Overturned**\
-`Pedro Hernandez, a former bodega stock clerk, had confessed years after the 1979 crime to luring Etan Patz, 6, into a basement in SoHo. The case shook New York City.`\
-https://nytimes.com/2025/07/21/nyregion/etan-patz-conviction-overturned.html
 
