@@ -1,3 +1,7 @@
+**New York City’s Housing Crisis Will Be on the November Ballot**\
+`Voters will have a chance to reshape the city’s approach to development and limit the power of the City Council to stop new affordable housing projects.`\
+https://nytimes.com/2025/07/21/nyregion/charter-revision-commission-vote.html
+
 **Jess Carter's statement is a reminder that Black footballers should not have to solve racism**\
 `England enter their semi-final against Italy with a heightened sense of purpose and, as is often the way in women’s sport, a dual mission`\
 https://nytimes.com/athletic/6506420/2025/07/21/jess-carter-racism-in-football-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502882/2025/07/21/shohei-ohtani-next-start-dodgers
 **Seabed-Mining Firm Faces Legal Questions Over Controversial Trump Policy**\
 `After Trump pledged to open international waters to mining, The Metals Company sought U.S. permits. But other countries are raising legal concerns.`\
 https://nytimes.com/2025/07/21/climate/metals-company-seabed-mining-trump.html
-
-**With Posts on Sports Team Names, Trump Wades Into a Decades-Old Dispute**\
-`Two new names, the Washington Commanders and Cleveland Guardians, had replaced names offensive to many Native Americans.`\
-https://nytimes.com/2025/07/21/sports/football/washington-commanders-cleveland-guardians-name-history-trump.html
 
