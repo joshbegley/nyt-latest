@@ -1,3 +1,11 @@
+**What I'm hearing on Mets trade deadline: How others expect New York to fill pitching needs**\
+`The Mets' want to improve their bullpen, but will they deal from a position of strength to do so?`\
+https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-needs/
+
+**Chris Paul agrees to 1-year deal, reunites with Clippers for 21st NBA season**\
+`Paul previously spent six seasons (2011-17) with the Clippers and made an All-NBA team in each of those seasons.`\
+https://nytimes.com/athletic/6506573/2025/07/21/clippers-chris-paul-signs-deal/
+
 **England vs India team news: Dawson returns as Woakes keeps place**\
 `Dawson, 35, comes in for the injured Shoab Bashir and will play his first Test match in eight years.`\
 https://nytimes.com/athletic/6506585/2025/07/21/england-india-cricket-dawson-woakes/

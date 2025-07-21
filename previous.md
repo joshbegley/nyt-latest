@@ -1,8 +1,12 @@
+**What I'm hearing on Mets trade deadline: How others expect New York to fill pitching needs**\
+`The Mets' want to improve their bullpen, but will they deal from a position of strength to do so?`\
+https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-needs/
+
 **England vs India team news: Dawson returns as Woakes keeps place**\
 `Dawson, 35, comes in for the injured Shoab Bashir and will play his first Test match in eight years.`\
 https://nytimes.com/athletic/6506585/2025/07/21/england-india-cricket-dawson-woakes/
 
-**Chris Paul agrees to 1-year deal with Clippers for his 21st NBA season**\
+**Chris Paul agrees to 1-year deal, reunites with Clippers for 21st NBA season**\
 `Paul previously spent six seasons (2011-17) with the Clippers and made an All-NBA team in each of those seasons.`\
 https://nytimes.com/athletic/6506573/2025/07/21/clippers-chris-paul-signs-deal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010296483/bedouin-families-swei
 **Suya Spice Has Entered the Chicken Chat**\
 `Yewande Komolafe pairs smoky, complex suya spice with poultry and juicy stone fruit for an easy summer meal that’s filled with tangy-sweet flavors.`\
 https://nytimes.com/2025/07/21/dining/easy-suya-spice-grilled-chicken-recipe.html
-
-**Did Pilots Shut Down Wrong Engine Before Deadly Korean Plane Crash?**\
-`Investigators found the Jeju Air flight crash-landed with only its badly damaged right engine on, but experts warned against drawing early conclusions.`\
-https://nytimes.com/2025/07/21/world/asia/jeju-air-crash-engine-report.html
 
