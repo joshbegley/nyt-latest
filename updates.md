@@ -1,3 +1,11 @@
+**Quote of the Day: Pain Deep in the Heart of Every Part of Texas**\
+`Quotation of the Day for Monday, July 21, 2025.`\
+https://nytimes.com/2025/07/20/pageoneplus/quote-of-the-day-pain-deep-in-the-heart-of-every-part-of-texas.html
+
+**Alaska Airlines Asks to Ground Its Fleet, F.A.A. Says**\
+`The reason for the grounding, issued in an F.A.A. advisory just after 9 p.m. on Sunday, was not immediately clear.`\
+https://nytimes.com/2025/07/20/business/alaska-airlines-grounds-plane-fleet.html
+
 **Alaska Airlines Asks to Ground Its Fleet, F.A.A Says**\
 `The reason for the grounding, issued in an F.A.A advisory just after 9 p.m. on Sunday, was not immediately clear.`\
 https://nytimes.com/2025/07/20/business/alaska-airlines-grounds-plane-fleet.html
