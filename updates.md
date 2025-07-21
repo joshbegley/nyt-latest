@@ -1,3 +1,11 @@
+**Jess Carter's statement is a reminder that Black footballers should not have to solve racism**\
+`England enter their semi-final against Italy with a heightened sense of purpose and, as is often the way in women’s sport, a dual mission`\
+https://nytimes.com/athletic/6506420/2025/07/21/jess-carter-racism-in-football-england/
+
+**Marines Will Begin Withdrawing From Los Angeles**\
+`The departure of the Marines follows the removal of hundreds of other National Guard soldiers who were part of President Trump’s deployment to Los Angeles.`\
+https://nytimes.com/2025/07/21/us/marines-los-angeles-withdraw-trump.html
+
 **Angel City extends Casey Phair, loans to Djurgårdens IF in Sweden**\
 `Since making her regular-season debut in mid-April, Phair has played in five matches for the club.`\
 https://nytimes.com/athletic/6506876/2025/07/21/casey-phair-angel-city-extension-djurgardens-sweden/
