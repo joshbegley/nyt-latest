@@ -1,3 +1,15 @@
+**Big Law Firms Bowed to Trump. A Corps of ‘Little Guys’ Jumped in to Fight Him.**\
+`Solo practitioners, former government litigators and small law offices stepped up to help challenge the Trump administration’s agenda in court after the White House sought to punish many big firms.`\
+https://nytimes.com/2025/07/21/us/politics/trump-big-law-firms-fight.html
+
+**Johnson Retreats on Demand for Epstein Disclosures, Saying Trump Needs ‘Space’**\
+`The Republican speaker of the House had said last week that the government should release “everything” in the Jeffrey Epstein files, in a rare break with the president that turned out to be short-lived.`\
+https://nytimes.com/2025/07/21/us/politics/mike-johnson-epstein-files-trump.html
+
+**Packers agree to 4-year, $88 million extension with OT Zach Tom: Source**\
+`The deal includes a $30.2 million signing bonus, the largest ever given to an NFL offensive lineman.`\
+https://nytimes.com/athletic/6507399/2025/07/21/packers-nfl-zach-tom-extension/
+
 **Miami Can’t Delay Its Election by a Year, Judge Rules**\
 `City commissioners said the move was meant to save money and improve turnout. Critics noted that it would give some city officials an extra year in office.`\
 https://nytimes.com/2025/07/21/us/miami-election-constitution-violation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/21/nyregion/etan-patz-timeline.html
 **‘Joy’ Review: A Rags-to-QVC-Riches Story**\
 `Betsy Wolfe shines as the inventor of the Miracle Mop in a largely dull Off Broadway show.`\
 https://nytimes.com/2025/07/21/theater/joy-review-musical-miracle-mop.html
-
-**Tuesday Briefing: A Deadly Jet Crash in Bangladesh**\
-`Plus, New Zealand wines with something extra.`\
-https://nytimes.com/2025/07/21/briefing/bangladesh-plane-crash-gaza-israel-hamas-ukraine-russia.html
-
-**Google A.I. System Wins Gold Medal in International Math Olympiad**\
-`OpenAI said it, too, had built a system that achieved similar results.`\
-https://nytimes.com/2025/07/21/technology/google-ai-international-mathematics-olympiad.html
-
-**Venus Williams and Reilly Opelka among pairs hoping to compete in US Open mixed doubles**\
-`The United States Tennis Association has released an updated list of teams hoping to compete for the $1million in prize money.`\
-https://nytimes.com/athletic/6507218/2025/07/21/us-open-mixed-doubles-venus-williams-reilly-opelka/
 
