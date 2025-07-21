@@ -1,3 +1,7 @@
+**Chinese Officers Questioned U.S. Government Employee About His Army Service**\
+`The man, a U.S. citizen, is barred from leaving China by the Ministry of State Security, the country’s main intelligence and counterintelligence agency.`\
+https://nytimes.com/2025/07/21/us/politics/china-exit-ban-us-government-employee.html
+
 **William L. Clay, Missouri’s First Black Congressman, Dies at 94**\
 `A co-founder of the Congressional Black Caucus, he represented St. Louis in the House as an uncompromising liberal Democrat and a forceful advocate for the poor.`\
 https://nytimes.com/2025/07/21/us/william-l-clay-dead.html
