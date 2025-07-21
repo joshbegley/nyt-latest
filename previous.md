@@ -1,3 +1,7 @@
+**Many Killed After Bangladesh Air Force Plane Crashes Into School**\
+`Emergency workers searched burning rubble at the Milestone School and College in Dhaka, Bangladesh, after an Air Force plane crashed into the building.`\
+https://nytimes.com/video/world/asia/100000010296490/dhaka-plane-crash-college.html
+
 **Lowetide: 5 ways Oilers can extend contention window around McDavid**\
 `Here are five fixes that can help Edmonton reach the ultimate goal of winning the Stanley Cup again.`\
 https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505676/2025/07/21/american-athletic-conference-aac
 **No Corrections: July 21, 2025**\
 `No corrections appeared in print on Monday, July 21, 2025.`\
 https://nytimes.com/2025/07/21/pageoneplus/no-corrections-july-21-2025.html
-
-**Knock, knock. Who's there? Fever veteran Sydney Colson, the funniest player in the WNBA**\
-`Colson delivered a stand-up act at a WNBA All-Star Weekend festival, a preview of her post-playing career ambitions. `\
-https://nytimes.com/athletic/6505653/2025/07/21/sydney-colson-fever-funniest-wnba-player/
 

@@ -1,3 +1,7 @@
+**Many Killed After Bangladesh Air Force Plane Crashes Into School**\
+`Emergency workers searched burning rubble at the Milestone School and College in Dhaka, Bangladesh, after an Air Force plane crashed into the building.`\
+https://nytimes.com/video/world/asia/100000010296490/dhaka-plane-crash-college.html
+
 **Lowetide: 5 ways Oilers can extend contention window around McDavid**\
 `Here are five fixes that can help Edmonton reach the ultimate goal of winning the Stanley Cup again.`\
 https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-stats/
