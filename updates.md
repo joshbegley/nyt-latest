@@ -1,3 +1,15 @@
+**With Posts on Sports Team Names, Trump Wades Into a Decades-Old Dispute**\
+`Two new names, the Washington Commanders and Cleveland Guardians, had replaced names offensive to many Native Americans.`\
+https://nytimes.com/2025/07/21/sports/football/washington-commanders-cleveland-guardians-name-history-trump.html
+
+**Israel and Gaza: Is It Genocide?**\
+`Readers offer sharply differing reactions to a guest essay by a genocide scholar.`\
+https://nytimes.com/2025/07/21/opinion/letters/israel-gaza-hamas-genocide.html
+
+**Newcastle appoint Sudarshan Gopaladesikan as new technical director**\
+`Gopaladesikan will report into a new sporting director following Paul Mitchell's exit from the club last month.`\
+https://nytimes.com/athletic/6243820/2025/07/21/newcastle-technical-director-new-atalanta/
+
 **Dover takeaways: The Denny Hamlin question is back, Chase Elliott's rough ending, and more**\
 `Is it finally Denny Hamlin's year? A tough pit call ends Chase Elliott's chances. It's Ty vs. Ty for $1 million. And more from Dover.`\
 https://nytimes.com/athletic/6506608/2025/07/21/nascar-dover-takeaways-denny-hamlin-chase-elliott-ty-gibbs-dillon/
