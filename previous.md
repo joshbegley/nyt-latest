@@ -1,3 +1,11 @@
+**‘Washington Black,’ Plus 7 Things to Watch on TV This Week**\
+`The screen adaptation of the popular historical novel premieres, and a Billy Joel documentary airs.`\
+https://nytimes.com/2025/07/21/arts/television/washington-black.html
+
+**The New York Times in Print for Monday, July 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/21/todays-new-york-times
+
 **Why do Tour de France cyclists ride their bikes on rest days?**\
 `It's a day to relax - but switching off during the Tour de France isn't really an option, for several reasons`\
 https://nytimes.com/athletic/6495215/2025/07/21/tour-de-france-rest-day-rides/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6499474/2025/07/21/homegrown-players-madueke-premie
 **Martin Zubimendi: The coach's midfielder and a 'complete' player**\
 `From a junior chess champion at 11 to the darling of Spanish coaches, this is the Basque's road to the Emirates`\
 https://nytimes.com/athletic/6429219/2025/07/21/martin-zubimendi-arsenal-transfer-background/
-
-**Nicolas Jackson is a unique No 9 - but which teams would he suit if he leaves Chelsea?**\
-`Nicolas Jackson is not the finished product yet - but he causes chaos for opposition defenders and would be an asset for certain teams...`\
-https://nytimes.com/athletic/6499756/2025/07/21/nicolas-jackson-transfers-chelsea-newcastle-manchester-united/
-
-**Special report: Girls, boys, and the thorny issue of mixed junior teams**\
-`Attitudes are changing around the rights and wrongs of girls playing with and against boys in age-group football`\
-https://nytimes.com/athletic/6501283/2025/07/21/girls-boys-mixed-teams/
 

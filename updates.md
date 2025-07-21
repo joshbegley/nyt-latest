@@ -1,3 +1,11 @@
+**‘Washington Black,’ Plus 7 Things to Watch on TV This Week**\
+`The screen adaptation of the popular historical novel premieres, and a Billy Joel documentary airs.`\
+https://nytimes.com/2025/07/21/arts/television/washington-black.html
+
+**The New York Times in Print for Monday, July 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/21/todays-new-york-times
+
 **Why do Tour de France cyclists ride their bikes on rest days?**\
 `It's a day to relax - but switching off during the Tour de France isn't really an option, for several reasons`\
 https://nytimes.com/athletic/6495215/2025/07/21/tour-de-france-rest-day-rides/
