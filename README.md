@@ -1,3 +1,11 @@
+**Braves takeaways: Marcell Ozuna on trade deadline; Ozzie Albies' future; faltering bullpen**\
+`An injury-riddled pitching staff and patchwork bullpen have declined of late, putting Atlanta in a strange position as the deadline nears.`\
+https://nytimes.com/athletic/6505599/2025/07/20/braves-yankees-takeaways-marcell-ozuna-trade-deadline-ozzie-albies-bullpen/
+
+**Twins takeaways: Royce Lewis homers twice after meeting with Rocco Baldelli**\
+`Joe Ryan, carrying confidence from All-Star Game experience, dominates Rockies.`\
+https://nytimes.com/athletic/6505623/2025/07/20/twins-takeaways-joe-ryan-royce-lewis-rocco-baldelli/
+
 **Edwin Feulner, ‘Heritage Foundation’s George Washington,’ Dies at 83**\
 `As co-founder and longtime head of the Washington think tank, he picked policies and staffers for G.O.P. presidents from Ronald Reagan to Donald Trump.`\
 https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html
@@ -22,21 +30,11 @@ https://nytimes.com/2025/07/20/us/texas-floods-missing.html
 `The officer, 42, is expected to recover after being shot in the face and returning fire. There is no indication that he was targeted because of his job, police officials said.`\
 https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.html
 
-**Dodgers' Freddie Freeman leaves game after pitch hits left wrist**\
+**Dodgers' Freddie Freeman exits game after pitch hits left wrist, X-rays negative**\
 `The Dodgers announced during Sunday's game that Freeman suffered a left wrist contusion. `\
 https://nytimes.com/athletic/6505572/2025/07/20/freddie-freeman-injury-hit-by-pitch-dodgers/
 
 **Broncos' Nik Bonitto aware of lucrative pass-rusher market, but focus is on 'upping the ante'**\
 `Bonitto said his camp and the Broncos are engaged in negotiations on a contract extension, but he isn't sweating the timeline.`\
 https://nytimes.com/athletic/6505409/2025/07/20/broncos-nik-bonitto-pass-rush-market-contract/
-
-**Flat-Bottomed Boat**\
-`Katy Steinmetz and Rich Katz make their collaboration debut in The New York Times.`\
-https://nytimes.com/2025/07/20/crosswords/daily-puzzle-2025-07-21.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>What do you say we start pivoting toward actual football?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6505528/2025/07/20/submit-a-question-for-stewart-mandels-college-football-mailbag-307/
 
