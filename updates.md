@@ -1,3 +1,7 @@
+**Trump Urges Washington and Cleveland Sports Teams to Revert to Native American Names**\
+`The president threatened to block a deal for the Washington Commanders’ new stadium if the team did not bow to his demand.`\
+https://nytimes.com/2025/07/20/us/politics/trump-urges-washington-and-cleveland-sports-teams-to-revert-to-native-american-names.html
+
 **Braves takeaways: Marcell Ozuna on trade deadline; Ozzie Albies' future; faltering bullpen**\
 `An injury-riddled pitching staff and patchwork bullpen have declined of late, putting Atlanta in a strange position as the deadline nears.`\
 https://nytimes.com/athletic/6505599/2025/07/20/braves-yankees-takeaways-marcell-ozuna-trade-deadline-ozzie-albies-bullpen/
