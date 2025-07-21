@@ -1,3 +1,7 @@
+**Landslides and Floods Kill 18 in South Korea**\
+`As rescuers search for the missing under the rubble, thousands of evacuated villagers face the daunting task of rebuilding their homes.`\
+https://nytimes.com/2025/07/21/world/asia/south-korea-floods-death-toll.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/21/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471911/2025/07/21/cricket-white-clothing-wsc-expla
 **After Rashford exit, Man Utd's 'bomb squad' saga has one likely outcome: Compromise**\
 `There are few winners as the club look to sell Alejandro Garnacho, Antony, Tyrell Malacia and Jadon Sancho`\
 https://nytimes.com/athletic/6497954/2025/07/21/rashford-antony-garnacho-malacia-sancho-manchester-united/
-
-**Kyle Walker-Peters' versatility makes him a crucial signing for West Ham**\
-`Walker-Peters can play in either full-back position or as a wing-back, which suits the system Graham Potter is keen to deploy this season`\
-https://nytimes.com/athletic/6503292/2025/07/21/kyle-walker-peters-west-ham-2/
 
