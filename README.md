@@ -1,3 +1,11 @@
+**Titans QB Will Levis to undergo season-ending shoulder surgery**\
+`Levis sustained the injury when diving for a first down against the Miami Dolphins last September.`\
+https://nytimes.com/athletic/6506468/2025/07/21/will-levis-titans-shoulder-injury-surgery/
+
+**Bucks' summer-league review: What we saw from Tyler Smith, Chris Livingston and more**\
+`Milwaukee has a veteran-heavy roster. Are there any paths for younger players to sneak into the rotation?`\
+https://nytimes.com/athletic/6504802/2025/07/21/bucks-summer-league-nba-tyler-smith-chris-livingston/
+
 **Wimbledon gets expansion boost as UK court dismisses appeal from protest group**\
 `Local residents had appealed against plans that would see Wimbledon have 39 new tennis courts.`\
 https://nytimes.com/athletic/6506423/2025/07/21/wimbledon-expansion-residents-appeal-dismissed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6505264/2025/07/21/nba-expansion-lillard-blazers-le
 **Converting a Favorite Rental on Cape Cod Into a Legacy**\
 `When an old beach house in Truro, Mass., was listed for sale, a family of former renters snapped it up and renovated it for a growing clan.`\
 https://nytimes.com/2025/07/21/realestate/cape-cod-house-renovation.html
-
-**Many Killed After Bangladesh Air Force Plane Crashes Into School**\
-`Emergency workers searched burning rubble at the Milestone School and College in Dhaka, Bangladesh, after an Air Force plane crashed into the building.`\
-https://nytimes.com/video/world/asia/100000010296490/dhaka-plane-crash-college.html
-
-**Lowetide: 5 ways Oilers can extend contention window around McDavid**\
-`Here are five fixes that can help Edmonton reach the ultimate goal of winning the Stanley Cup again.`\
-https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-stats/
 
