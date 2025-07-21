@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6506802/2025/07/21/olympics-2026-hockey-canada-coaching-staff/
 
 **William L. Clay, Missouri’s First Black Congressman, Dies at 94**\
-`A co-founder of the Congressional Black Caucus, he represented St. Louis in the House as an uncompromising liberal Democrat and an assertive advocate for the poor.`\
+`A co-founder of the Congressional Black Caucus, he represented St. Louis in the House as an uncompromising liberal Democrat and a forceful advocate for the poor.`\
 https://nytimes.com/2025/07/21/us/william-l-clay-dead.html
 
 **Measures Aimed at N.Y.C. Housing Crisis Will Be on November Ballot**\
