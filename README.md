@@ -1,3 +1,7 @@
+**Trump Urges Washington and Cleveland Sports Teams to Revert to Native American Names**\
+`The president threatened to block a deal for the Washington Commanders’ new stadium if the team did not bow to his demand.`\
+https://nytimes.com/2025/07/20/us/politics/trump-urges-washington-and-cleveland-sports-teams-to-revert-to-native-american-names.html
+
 **Braves takeaways: Marcell Ozuna on trade deadline; Ozzie Albies' future; faltering bullpen**\
 `An injury-riddled pitching staff and patchwork bullpen have declined of late, putting Atlanta in a strange position as the deadline nears.`\
 https://nytimes.com/athletic/6505599/2025/07/20/braves-yankees-takeaways-marcell-ozuna-trade-deadline-ozzie-albies-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/20/nyregion/customs-officer-shooting-migrant-nyc.htm
 **Dodgers' Freddie Freeman exits game after pitch hits left wrist, X-rays negative**\
 `The Dodgers announced during Sunday's game that Freeman suffered a left wrist contusion. `\
 https://nytimes.com/athletic/6505572/2025/07/20/freddie-freeman-injury-hit-by-pitch-dodgers/
-
-**Broncos' Nik Bonitto aware of lucrative pass-rusher market, but focus is on 'upping the ante'**\
-`Bonitto said his camp and the Broncos are engaged in negotiations on a contract extension, but he isn't sweating the timeline.`\
-https://nytimes.com/athletic/6505409/2025/07/20/broncos-nik-bonitto-pass-rush-market-contract/
 
