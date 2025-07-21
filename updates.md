@@ -1,3 +1,15 @@
+**Braves takeaways: Marcell Ozuna on trade deadline; Ozzie Albies' future; faltering bullpen**\
+`An injury-riddled pitching staff and patchwork bullpen have declined of late, putting Atlanta in a strange position as the deadline nears.`\
+https://nytimes.com/athletic/6505599/2025/07/20/braves-yankees-takeaways-marcell-ozuna-trade-deadline-ozzie-albies-bullpen/
+
+**Twins takeaways: Royce Lewis homers twice after meeting with Rocco Baldelli**\
+`Joe Ryan, carrying confidence from All-Star Game experience, dominates Rockies.`\
+https://nytimes.com/athletic/6505623/2025/07/20/twins-takeaways-joe-ryan-royce-lewis-rocco-baldelli/
+
+**Dodgers' Freddie Freeman exits game after pitch hits left wrist, X-rays negative**\
+`The Dodgers announced during Sunday's game that Freeman suffered a left wrist contusion. `\
+https://nytimes.com/athletic/6505572/2025/07/20/freddie-freeman-injury-hit-by-pitch-dodgers/
+
 **Edwin Feulner, ‘Heritage Foundation’s George Washington,’ Dies at 83**\
 `As co-founder and longtime head of the Washington think tank, he picked policies and staffers for G.O.P. presidents from Ronald Reagan to Donald Trump.`\
 https://nytimes.com/2025/07/20/obituaries/edwin-feulner-dead.html
