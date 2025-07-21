@@ -1,3 +1,7 @@
+**F.D.A. Panel Debates ‘Black Box’ Warning for Antidepressants in Pregnancy**\
+`An agency-sponsored forum included critics of psychiatry who believe the drugs can harm a developing fetus. Other experts said antidepressants were safe and necessary.`\
+https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html
+
 **Hunter Biden Trashes Democrats He Saw as Betraying His Father**\
 `In a profane tirade, the former president’s son sought to settle scores with Anita Dunn, David Axelrod, James Carville and George Clooney. Among others.`\
 https://nytimes.com/2025/07/21/us/politics/hunter-biden-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/trump-big-law-firms-fight.html
 **Johnson Retreats on Demand for Epstein Disclosures, Saying Trump Needs ‘Space’**\
 `The Republican speaker of the House had said last week that the government should release “everything” in the Jeffrey Epstein files, in a rare break with the president that turned out to be short-lived.`\
 https://nytimes.com/2025/07/21/us/politics/mike-johnson-epstein-files-trump.html
-
-**Packers agree to 4-year, $88 million extension with OT Zach Tom: Source**\
-`The deal includes a $30.2 million signing bonus, the largest ever given to an NFL offensive lineman.`\
-https://nytimes.com/athletic/6507399/2025/07/21/packers-nfl-zach-tom-extension/
 
