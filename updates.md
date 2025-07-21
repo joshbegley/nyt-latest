@@ -1,3 +1,11 @@
+**Fed Takes Fresh Steps to Defend Renovations as White House Intensifies Attacks**\
+`The Trump administration has seized on the Federal Reserve’s renovation of its building in what legal experts say could be pretext to fire Jerome H. Powell, the central bank chair.`\
+https://nytimes.com/2025/07/21/us/politics/federal-reserve-renovations-trump-attacks.html
+
+**What I'm hearing on Mets trade deadline: How others expect New York to fill pitching needs**\
+`The Mets want to improve their bullpen, but will they deal from a position of strength to do so?`\
+https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-needs/
+
 **What I'm hearing on Mets trade deadline: How others expect New York to fill pitching needs**\
 `The Mets' want to improve their bullpen, but will they deal from a position of strength to do so?`\
 https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-needs/
