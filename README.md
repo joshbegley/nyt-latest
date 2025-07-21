@@ -1,3 +1,7 @@
+**Big Ten commissioner Tony Petitti says Michigan penalties should end**\
+`The Big Ten and Michigan are ready to put their differences in the past. The NCAA, however, has the final say.`\
+https://nytimes.com/athletic/6506454/2025/07/21/michigan-wolverines-football-tony-petitti-big-ten-ncaa/
+
 **Men's college basketball's best of the last 25 years: Readers share their picks, favorite games**\
 `The reader vote for the best men's college basketball player of the last 25 years was decided by one vote.`\
 https://nytimes.com/athletic/6506244/2025/07/21/mens-college-basketball-best-of-vote/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506468/2025/07/21/will-levis-titans-shoulder-injur
 **Bucks' summer-league review: What we saw from Tyler Smith, Chris Livingston and more**\
 `Milwaukee has a veteran-heavy roster. Are there any paths for younger players to sneak into the rotation?`\
 https://nytimes.com/athletic/6504802/2025/07/21/bucks-summer-league-nba-tyler-smith-chris-livingston/
-
-**Wimbledon gets expansion boost as UK court dismisses appeal from protest group**\
-`Local residents had appealed against plans that would see Wimbledon have 39 new tennis courts.`\
-https://nytimes.com/athletic/6506423/2025/07/21/wimbledon-expansion-residents-appeal-dismissed/
 
