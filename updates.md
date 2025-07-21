@@ -1,3 +1,16 @@
+**Italian Festival Cancels Appearance by Russian Conductor With Ties to Putin**\
+`Some lawmakers in Italy had argued that Valery Gergiev’s planned appearance sent the wrong message as Europe strives to remain united in its support for Ukraine.`\
+https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
+
+**Bangladesh Military Plane Crashes Into School, Killing at Least 19**\
+`Dozens were injured after the aircraft crashed in Dhaka, Bangladesh’s capital, according to national fire officials.`\
+https://nytimes.com/2025/07/21/world/europe/bangladesh-military-plane-crash.html
+
+**Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
+`How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
+`\
+https://nytimes.com/athletic/6492558/2025/07/21/nhl-broadcast-rankings-tv-2025-commentator/
+
 **Phillies takeaways: Ranger Suárez's velocity dip, David Robertson's return, Otto Kemp at 3B**\
 `Suárez’s velocity has, broadly, fallen across his repertoire since May. Manager Rob Thomson and the lefty say they are not concerned. `\
 https://nytimes.com/athletic/6505498/2025/07/21/phillies-ranger-suarez-velocity-david-robertson-signs/

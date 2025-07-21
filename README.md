@@ -4,7 +4,7 @@ https://nytimes.com/2025/07/21/arts/music/valery-gergiev-concert-canceled.html
 
 **Bangladesh Military Plane Crashes Into School, Killing at Least 19**\
 `Dozens were injured after the aircraft crashed in Dhaka, Bangladesh’s capital, according to national fire officials.`\
-https://nytimes.com/2025/07/21/world/europe/bangladesh-military-plane-crash.html
+https://nytimes.com/2025/07/21/world/asia/bangladesh-military-plane-crash.html
 
 **Yankees trade deadline big board: 9 hitters the club could acquire**\
 `The Yankees figure to be one of the most aggressive teams at the trade deadline. Here are nine names to watch over the next 10 days.`\
