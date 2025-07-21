@@ -1,3 +1,8 @@
+**Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
+`How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
+`\
+https://nytimes.com/athletic/6492558/2025/07/21/nhl-broadcast-rankings-tv-2025-commentator/
+
 **Yankees trade deadline big board: 9 hitters the club could acquire**\
 `The Yankees figure to be one of the most aggressive teams at the trade deadline. Here are nine names to watch over the next 10 days.`\
 https://nytimes.com/athletic/6505052/2025/07/21/yankees-trade-deadline-targets-hitters/
