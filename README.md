@@ -2,7 +2,7 @@
 `Dawson, 35, comes in for the injured Shoab Bashir and will play his first Test match in eight years.`\
 https://nytimes.com/athletic/6506585/2025/07/21/england-india-cricket-dawson-woakes/
 
-**Chris Paul agrees to 1-year deal with Clippers for his 21st NBA season**\
+**Chris Paul agrees to 1-year deal, reunites with Clippers for 21st NBA season**\
 `Paul previously spent six seasons (2011-17) with the Clippers and made an All-NBA team in each of those seasons.`\
 https://nytimes.com/athletic/6506573/2025/07/21/clippers-chris-paul-signs-deal/
 
