@@ -1,3 +1,7 @@
+**Iran to Hold Nuclear Talks With European Governments**\
+`Iranian representatives will meet with negotiators from Britain, France and Germany on Friday, days after they threatened to restore sanctions.`\
+https://nytimes.com/2025/07/21/world/middleeast/iran-nuclear-talks-europe.html
+
 **The New York Times International Edition in Print for Tuesday, July 22, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/21/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/opinion/okefenokee-wildlife-refuge-georgia.html
 **What Does Your Mailman Know About You? More Than Your Address.**\
 `Your burning questions about the postal service are answered in Stephen Starring Grant’s lively memoir.`\
 https://nytimes.com/2025/07/21/books/review/stephen-starring-grant-mailman.html
-
-**The Solution to $10 Eggs Lies Within New York City Limits**\
-`How the Big Apple could take on Big Egg.`\
-https://nytimes.com/2025/07/21/opinion/nyc-grocery-prices.html
 

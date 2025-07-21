@@ -1,3 +1,7 @@
+**Iran to Hold Nuclear Talks With European Governments**\
+`Iranian representatives will meet with negotiators from Britain, France and Germany on Friday, days after they threatened to restore sanctions.`\
+https://nytimes.com/2025/07/21/world/middleeast/iran-nuclear-talks-europe.html
+
 **The New York Times International Edition in Print for Tuesday, July 22, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/21/todays-new-york-times-international-edition
