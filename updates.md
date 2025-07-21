@@ -1,3 +1,7 @@
+**Arteta says ‘100 percent’ when asked if Arsenal followed correct process over Partey**\
+`Partey has been charged with five counts of rape and one count of sexual assault.`\
+https://nytimes.com/athletic/6505982/2025/07/21/thomas-partey-mikel-arteta-arsenal/
+
 **Deadly Landslides and Floods Hit South Korea**\
 `Thousands of people were evacuated and some airlifted by helicopter, as a torrential storm tore through buildings in the nation’s southern and western provinces.`\
 https://nytimes.com/video/world/asia/100000010296340/south-korea-floods-death-toll.html
