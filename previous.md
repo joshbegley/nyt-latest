@@ -1,3 +1,7 @@
+**Arteta says more Arsenal summer signings needed: 'We have to improve depth, quality'**\
+`Arteta spoke of his 'excitement' at the four signings Arsenal have made during pre-season but says more additions are needed.`\
+https://nytimes.com/athletic/6505965/2025/07/21/mikel-arteta-arsenal-summer-transfers/
+
 **Word of the Day: piquancy**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/21/learning/word-of-the-day-piquancy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503292/2025/07/21/kyle-walker-peters-west-ham-2/
 **Why do so many footballers go bankrupt?**\
 `Having a well-paid career is no guarantee of avoiding financial hardships, as many ex-professional and international players can attest`\
 https://nytimes.com/athletic/6212666/2025/07/21/footballers-bankrupt-money/
-
-**How the Premier League's homegrown player rule is affecting the summer transfer window**\
-`Premier League rules mean that clubs need to be wary of how many non-homegrown players they sign - even if they're an England international`\
-https://nytimes.com/athletic/6499474/2025/07/21/homegrown-players-madueke-premier-leauge-rules/
 

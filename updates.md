@@ -1,3 +1,7 @@
+**Arteta says more Arsenal summer signings needed: 'We have to improve depth, quality'**\
+`Arteta spoke of his 'excitement' at the four signings Arsenal have made during pre-season but says more additions are needed.`\
+https://nytimes.com/athletic/6505965/2025/07/21/mikel-arteta-arsenal-summer-transfers/
+
 **Word of the Day: piquancy**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/21/learning/word-of-the-day-piquancy.html
