@@ -1,3 +1,7 @@
+**Wimbledon gets expansion boost as UK court dismisses appeal from protest group**\
+`Local residents had appealed against plans that would see Wimbledon have 39 new tennis courts.`\
+https://nytimes.com/athletic/6506423/2025/07/21/wimbledon-expansion-residents-appeal-dismissed/
+
 **Russia Strikes Kyiv Subway Station Sheltering Residents**\
 `Videos showed people in the subway as the tunnel filled with smoke. Russian attacks in Ukraine have steadily escalated even as cease-fire talks began in the spring.`\
 https://nytimes.com/video/world/europe/100000010296439/russia-strikes-kyiv-subway-station.html

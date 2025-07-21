@@ -1,3 +1,7 @@
+**Wimbledon gets expansion boost as UK court dismisses appeal from protest group**\
+`Local residents had appealed against plans that would see Wimbledon have 39 new tennis courts.`\
+https://nytimes.com/athletic/6506423/2025/07/21/wimbledon-expansion-residents-appeal-dismissed/
+
 **Russia Strikes Kyiv Subway Station Sheltering Residents**\
 `Videos showed people in the subway as the tunnel filled with smoke. Russian attacks in Ukraine have steadily escalated even as cease-fire talks began in the spring.`\
 https://nytimes.com/video/world/europe/100000010296439/russia-strikes-kyiv-subway-station.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010296490/dhaka-plane-crash-college.h
 **Lowetide: 5 ways Oilers can extend contention window around McDavid**\
 `Here are five fixes that can help Edmonton reach the ultimate goal of winning the Stanley Cup again.`\
 https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-stats/
-
-**Justin Bieber’s Experimental ‘Swag’ Resurgence**\
-`Discussing the era-defining pop singer’s most idiosyncratic and musically adventurous release to date.`\
-https://nytimes.com/2025/07/21/arts/music/justin-bieber-swag-popcast.html
 
