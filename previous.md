@@ -1,3 +1,11 @@
+**N.Y.C. Carriage Driver Cleared of Animal Cruelty After Horse’s Death**\
+`A carriage horse named Ryder collapsed after a full day of work in the summer heat in Central Park. Three years later, his driver, Ian McKeever, was found not guilty.`\
+https://nytimes.com/2025/07/21/nyregion/central-park-carriage-driver-not-guilty-animal-cruelty.html
+
+**Wrexham sign Thomason from Bolton**\
+`The 24-year-old midfielder has signed a three-year deal after the two clubs agreed a fee believed to be in the region of £1.2 million.`\
+https://nytimes.com/athletic/6506688/2025/07/21/wrexham-sign-george-thomason/
+
 **A ‘Tosca’ Shows the Boston Symphony’s Conductor at His Best**\
 `Andris Nelsons led a concert performance of Puccini’s opera at Tanglewood. It was a high point of the season.`\
 https://nytimes.com/2025/07/21/arts/music/andris-nelsons-boston-symphony-tanglewood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6506244/2025/07/21/mens-college-basketball-best-of-
 **In Japan, Anti-Establishment Parties Resonate With Young Voters**\
 `The success of new political parties focused on wages, immigration and an unresponsive political elite highlights the frustrations of many working-age people in Japan.`\
 https://nytimes.com/2025/07/21/world/asia/japan-election-analysis.html
-
-**Syrian Government Evacuates Bedouin Families After Deadly Clashes**\
-`The violence in Sweida Province between groups from Bedouin tribes and the Druse minority renewed fears of sectarian conflict and drew Israeli attacks before a cease-fire was announced Saturday.`\
-https://nytimes.com/2025/07/21/world/middleeast/syria-clashes-druse-bedouin-evacuations.html
-
-**Do You Know the Places That Inspired These Authors?**\
-`Try this literary geography quiz about places around England that influenced some of the country’s most famous authors.`\
-https://nytimes.com/interactive/2025/07/21/books/review/english-author-places.html
 
