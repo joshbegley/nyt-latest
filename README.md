@@ -1,5 +1,9 @@
+**Fed Takes Fresh Steps to Defend Renovations as White House Intensifies Attacks**\
+`The Trump administration has seized on the Federal Reserve’s renovation of its building in what legal experts say could be pretext to fire Jerome H. Powell, the central bank chair.`\
+https://nytimes.com/2025/07/21/us/politics/federal-reserve-renovations-trump-attacks.html
+
 **What I'm hearing on Mets trade deadline: How others expect New York to fill pitching needs**\
-`The Mets' want to improve their bullpen, but will they deal from a position of strength to do so?`\
+`The Mets want to improve their bullpen, but will they deal from a position of strength to do so?`\
 https://nytimes.com/athletic/6506557/2025/07/21/mets-trade-deadline-pitching-needs/
 
 **England vs India team news: Dawson returns as Woakes keeps place**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/21/books/review/english-author-places.ht
 **Bedouin Families Evacuate Syrian Province Hit by Violence**\
 `The cease-fire came after days of deadly violence between Bedouin tribes and local Druse militias. The government evacuated hundreds of Bedouin families from the southern Syrian province of Sweida.`\
 https://nytimes.com/video/world/middleeast/100000010296483/bedouin-families-sweida-cease-fire-.html
-
-**Suya Spice Has Entered the Chicken Chat**\
-`Yewande Komolafe pairs smoky, complex suya spice with poultry and juicy stone fruit for an easy summer meal that’s filled with tangy-sweet flavors.`\
-https://nytimes.com/2025/07/21/dining/easy-suya-spice-grilled-chicken-recipe.html
 
