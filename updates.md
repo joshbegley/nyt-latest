@@ -1,3 +1,11 @@
+**Hegseth Attends Meeting on Ukraine After Skipping Last Session**\
+`The defense secretary’s attendance may signal a turnaround as President Trump’s tone shifts on his willingness to support Kyiv against Moscow.`\
+https://nytimes.com/2025/07/21/us/politics/ukraine-trump-hegseth-weapons.html
+
+**AC Milan close to agreement with Brighton for Pervis Estupinan**\
+`Estupinan sat out Brighton's 2-0 win over Las Palmas in a behind-closed-doors friendly in Marbella on Monday night.`\
+https://nytimes.com/athletic/6497159/2025/07/21/pervis-estupinan-brighton-ac-milan-transfer/
+
 **Former N.Y.P.D. Commissioner Says He Will Sue Eric Adams for Defamation**\
 `The former interim police commissioner, Thomas Donlon, says the mayor and one of his close allies defamed him by questioning his cognitive abilities.`\
 https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html

@@ -1,3 +1,11 @@
+**Hegseth Attends Meeting on Ukraine After Skipping Last Session**\
+`The defense secretary’s attendance may signal a turnaround as President Trump’s tone shifts on his willingness to support Kyiv against Moscow.`\
+https://nytimes.com/2025/07/21/us/politics/ukraine-trump-hegseth-weapons.html
+
+**AC Milan close to agreement with Brighton for Pervis Estupinan**\
+`Estupinan sat out Brighton's 2-0 win over Las Palmas in a behind-closed-doors friendly in Marbella on Monday night.`\
+https://nytimes.com/athletic/6497159/2025/07/21/pervis-estupinan-brighton-ac-milan-transfer/
+
 **Former N.Y.P.D. Commissioner Says He Will Sue Eric Adams for Defamation**\
 `The former interim police commissioner, Thomas Donlon, says the mayor and one of his close allies defamed him by questioning his cognitive abilities.`\
 https://nytimes.com/2025/07/21/nyregion/adams-donlon-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.ht
 **Bengals defend position on Shemar Stewart negotiation ‘silliness’**\
 `Duke Tobin questions the advice Stewart's gotten from his agent for keeping the first-round pick from signing.`\
 https://nytimes.com/athletic/6506735/2025/07/21/bengals-tobin-shemar-stewart-trey-hendickson/
-
-**Manchester United confirm signing of forward Bryan Mbeumo from Brentford**\
-`Mbeumo has signed a five-year deal to June 2030 at Old Trafford, with the option of a further 12 months.`\
-https://nytimes.com/athletic/6502455/2025/07/21/bryan-mbuemo-manchester-united-brentford-signing/
-
-**Climate Change Is Making Fire Weather Worse for World’s Forests**\
-`Forest fires are on the rise globally. An increase in severe fire weather is largely responsible.`\
-https://nytimes.com/2025/07/21/climate/extreme-fire-weather-forests.html
 
