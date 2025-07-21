@@ -1,3 +1,7 @@
+**Landslides and Floods Kill 18 in South Korea**\
+`As rescuers search for the missing under the rubble, thousands of evacuated villagers face the daunting task of rebuilding their homes.`\
+https://nytimes.com/2025/07/21/world/asia/south-korea-floods-death-toll.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/21/crosswords/spelling-bee-forum.html
