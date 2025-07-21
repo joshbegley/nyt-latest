@@ -1,3 +1,11 @@
+**Minnesota Lawmaker Convicted of Burglary Plans to Resign, Ending Democratic Majority**\
+`The resignation of State Senator Nicole Mitchell will leave the State Senate with even numbers of Democrats and Republicans. A special election will break the tie.`\
+https://nytimes.com/2025/07/21/us/nicole-mitchell-minnesota-senate-democrats.html
+
+**Leader of Ecuador’s Most Powerful Gang to Face Drug Charges in New York**\
+`José Adolfo Macías, known as Fito, escaped twice before authorities in the South American country apprehended him. He appeared in a music video from prison.`\
+https://nytimes.com/2025/07/21/nyregion/ecuador-gang-fito-arraignment.html
+
 **Conviction of Man in Killing of Etan Patz Is Overturned**\
 `Pedro Hernandez, a former bodega stock clerk, had confessed years after the 1979 crime to luring Etan Patz, 6, into a basement in SoHo. The case shook New York City.`\
 https://nytimes.com/2025/07/21/nyregion/etan-patz-conviction-overturned.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6506608/2025/07/21/nascar-dover-takeaways-denny-ham
 **N.Y.C. Carriage Driver Cleared of Animal Cruelty After Horse’s Death**\
 `A carriage horse named Ryder collapsed after a full day of work in the summer heat in Central Park. Three years later, his driver, Ian McKeever, was found not guilty.`\
 https://nytimes.com/2025/07/21/nyregion/central-park-carriage-driver-not-guilty-animal-cruelty.html
-
-**Wrexham sign Thomason from Bolton**\
-`The 24-year-old midfielder has signed a three-year deal after the two clubs agreed a fee believed to be in the region of £1.2 million.`\
-https://nytimes.com/athletic/6506688/2025/07/21/wrexham-sign-george-thomason/
-
-**A ‘Tosca’ Shows the Boston Symphony’s Conductor at His Best**\
-`Andris Nelsons led a concert performance of Puccini’s opera at Tanglewood. It was a high point of the season.`\
-https://nytimes.com/2025/07/21/arts/music/andris-nelsons-boston-symphony-tanglewood.html
 

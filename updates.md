@@ -1,3 +1,11 @@
+**Minnesota Lawmaker Convicted of Burglary Plans to Resign, Ending Democratic Majority**\
+`The resignation of State Senator Nicole Mitchell will leave the State Senate with even numbers of Democrats and Republicans. A special election will break the tie.`\
+https://nytimes.com/2025/07/21/us/nicole-mitchell-minnesota-senate-democrats.html
+
+**Leader of Ecuador’s Most Powerful Gang to Face Drug Charges in New York**\
+`José Adolfo Macías, known as Fito, escaped twice before authorities in the South American country apprehended him. He appeared in a music video from prison.`\
+https://nytimes.com/2025/07/21/nyregion/ecuador-gang-fito-arraignment.html
+
 **Conviction of Man in Killing of Etan Patz Is Overturned**\
 `Pedro Hernandez, a former bodega stock clerk, had confessed years after the 1979 crime to luring Etan Patz, 6, into a basement in SoHo. The case shook New York City.`\
 https://nytimes.com/2025/07/21/nyregion/etan-patz-conviction-overturned.html
