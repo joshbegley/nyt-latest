@@ -1,3 +1,7 @@
+**Lowetide: 5 ways Oilers can extend contention window around McDavid**\
+`Here are five fixes that can help Edmonton reach the ultimate goal of winning the Stanley Cup again.`\
+https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-stats/
+
 **Justin Bieber’s Experimental ‘Swag’ Resurgence**\
 `Discussing the era-defining pop singer’s most idiosyncratic and musically adventurous release to date.`\
 https://nytimes.com/2025/07/21/arts/music/justin-bieber-swag-popcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/pageoneplus/no-corrections-july-21-2025.html
 **Knock, knock. Who's there? Fever veteran Sydney Colson, the funniest player in the WNBA**\
 `Colson delivered a stand-up act at a WNBA All-Star Weekend festival, a preview of her post-playing career ambitions. `\
 https://nytimes.com/athletic/6505653/2025/07/21/sydney-colson-fever-funniest-wnba-player/
-
-**Hundreds of NASA Employees, Past and Present, Sign Letter of Formal Dissent**\
-`The signatories of the “Voyager Declaration” warned the space agency’s leadership about the consequences of major budget cuts that would halt many science missions.`\
-https://nytimes.com/2025/07/21/science/nasa-formal-dissent-letter-trump.html
 

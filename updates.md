@@ -1,3 +1,7 @@
+**Lowetide: 5 ways Oilers can extend contention window around McDavid**\
+`Here are five fixes that can help Edmonton reach the ultimate goal of winning the Stanley Cup again.`\
+https://nytimes.com/athletic/6505143/2025/07/21/oilers-goalie-connor-mcdavid-stats/
+
 **Justin Bieber’s Experimental ‘Swag’ Resurgence**\
 `Discussing the era-defining pop singer’s most idiosyncratic and musically adventurous release to date.`\
 https://nytimes.com/2025/07/21/arts/music/justin-bieber-swag-popcast.html
