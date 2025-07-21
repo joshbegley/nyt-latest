@@ -1,3 +1,7 @@
+**Trump Officials Blame Sanctuary Laws in Customs Officer’s Shooting**\
+`The officials also faulted Mayor Eric Adams of New York, where the shooting occurred, and promised to flood the city with federal agents who would search for undocumented migrants.`\
+https://nytimes.com/2025/07/21/nyregion/kristi-noem-eric-adams-customs-officer-shooting.html
+
 **States Sue Over Unauthorized Immigrants’ Access to Federal Programs**\
 `The suit comes after several federal agencies said they would no longer allow unauthorized immigrants to benefit from more than a dozen health and education programs.`\
 https://nytimes.com/2025/07/21/us/politics/lawsuit-trump-immigrant-safety-net.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500624/2025/07/21/micah-parsons-cowboys-attending-
 **Big 12 not interested in Memphis' pitch of $200 million in sponsorships for league invite**\
 `Memphis’ pitch is an attempt to make this a no-risk situation for the Big 12.`\
 https://nytimes.com/athletic/6505665/2025/07/21/memphis-big-12-realignment/
-
-**Richard Jefferson agrees to return to ESPN; Doris Burke's spot still in question**\
-`Jefferson will return to ABC/ESPN after Amazon Prime Video, which begins its NBA coverage in the fall, was interested in him.`\
-https://nytimes.com/athletic/6506950/2025/07/21/richard-jefferson-espn-deal-doris-burke/
 
