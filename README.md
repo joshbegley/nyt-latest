@@ -1,5 +1,9 @@
+**Miami Can’t Delay Its Election by a Year, Judge Rules**\
+`City commissioners said the move was meant to save money and improve turnout. Critics noted that it would give some city officials an extra year in office.`\
+https://nytimes.com/2025/07/21/us/miami-election-constitution-violation.html
+
 **Trump Administration Releases Documents on Martin Luther King Jr.**\
-`The release is in keeping with an executive order by President Trump in making public the files, despite the fierce opposition of Dr. King’s family.`\
+`The release is in keeping with an executive order by President Trump in making public the files, despite the opposition of Dr. King’s family.`\
 https://nytimes.com/2025/07/21/us/politics/mlk-jr-files-trump.html
 
 **Nikita Parris to join newly-promoted London City Lionesses from Brighton**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/technology/google-ai-international-mathematics-ol
 **Venus Williams and Reilly Opelka among pairs hoping to compete in US Open mixed doubles**\
 `The United States Tennis Association has released an updated list of teams hoping to compete for the $1million in prize money.`\
 https://nytimes.com/athletic/6507218/2025/07/21/us-open-mixed-doubles-venus-williams-reilly-opelka/
-
-**The Bag of Summer Is a BAB**\
-`No longer written off for being “ludicrously capacious,” oversize bags are building up a fan base on social media.`\
-https://nytimes.com/2025/07/21/style/bab-bag-of-summer.html
 
