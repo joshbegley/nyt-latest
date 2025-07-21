@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, July 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/21/todays-new-york-times-international-edition
+
 **The Ultimate Swan Song: Gillian Murphy’s Thrilling Last Dance**\
 `In a tremendous performance, this American Ballet Theater principal danced her final “Swan Lake” to end her glittering 29-year career.`\
 https://nytimes.com/2025/07/21/arts/dance/gillian-murphy-swan-song-abt.html
