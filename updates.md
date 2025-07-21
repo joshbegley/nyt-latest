@@ -1,3 +1,7 @@
+**Deadly Landslides and Floods Hit South Korea**\
+`Thousands of people were evacuated and some airlifted by helicopter, as a torrential storm tore through buildings in the nation’s southern and western provinces.`\
+https://nytimes.com/video/world/asia/100000010296340/south-korea-floods-death-toll.html
+
 **Landslides and Floods Kill 18 in South Korea**\
 `As rescuers search for the missing under the rubble, thousands of evacuated villagers face the daunting task of rebuilding their homes.`\
 https://nytimes.com/2025/07/21/world/asia/south-korea-floods-death-toll.html
