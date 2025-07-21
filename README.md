@@ -1,3 +1,7 @@
+**Chris Paul agrees to 1-year deal with Clippers for his 21st NBA season**\
+`Paul previously spent six seasons (2011-17) with the Clippers and made an All-NBA team in each of those seasons.`\
+https://nytimes.com/athletic/6506573/2025/07/21/clippers-chris-paul-signs-deal/
+
 **Big Ten commissioner Tony Petitti says Michigan penalties should end**\
 `The Big Ten and Michigan are ready to put their differences in the past. The NCAA, however, has the final say.`\
 https://nytimes.com/athletic/6506454/2025/07/21/michigan-wolverines-football-tony-petitti-big-ten-ncaa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/world/asia/jeju-air-crash-engine-report.html
 **Titans QB Will Levis to undergo season-ending shoulder surgery**\
 `Levis sustained the injury when diving for a first down against the Miami Dolphins last September.`\
 https://nytimes.com/athletic/6506468/2025/07/21/will-levis-titans-shoulder-injury-surgery/
-
-**Bucks' summer-league review: What we saw from Tyler Smith, Chris Livingston and more**\
-`Milwaukee has a veteran-heavy roster. Are there any paths for younger players to sneak into the rotation?`\
-https://nytimes.com/athletic/6504802/2025/07/21/bucks-summer-league-nba-tyler-smith-chris-livingston/
 
