@@ -1,3 +1,7 @@
+**'Hard Knocks' executive producer says Bills' championship window perfect drama for cameras**\
+`Unlike many teams on the show, the Bills are looking to get over the hump, not rebuilding.`\
+https://nytimes.com/athletic/6503697/2025/07/21/hard-knocks-buffalo-bills-training-camp/
+
 **The Markets Advance Despite Trump’s Attacks on the Fed and Trade Partners**\
 `Investors continue to shrug off the president’s threats, sending stocks to new highs. That calm could be tested going into a packed week for corporate earnings.`\
 https://nytimes.com/2025/07/21/business/dealbook/markets-trump-fed-tariffs.html
