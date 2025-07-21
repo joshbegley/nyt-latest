@@ -1,3 +1,7 @@
+**England captain Williamson trains ahead of Euro 2025 semi-final**\
+`Williamson, 28, was forced off at half time of extra time during Thursday's penalty shootout win over Sweden.`\
+https://nytimes.com/athletic/6501901/2025/07/21/leah-williamson-england-update-injury/
+
 **Which NHL broadcasts are the best? 2025 broadcast rankings, rated by fans**\
 `How do NHL fan bases view, connect with and rate those who call hockey games? We use their input to rank all 32 regional broadcasts.
 `\
