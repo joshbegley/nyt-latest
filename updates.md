@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/21/crosswords/spelling-bee-forum.html
+
 **Arteta says more Arsenal summer signings needed: 'We have to improve depth, quality'**\
 `Arteta spoke of his 'excitement' at the four signings Arsenal have made during pre-season but says more additions are needed.`\
 https://nytimes.com/athletic/6505965/2025/07/21/mikel-arteta-arsenal-summer-transfers/

@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/21/crosswords/spelling-bee-forum.html
+
 **Arteta says more Arsenal summer signings needed: 'We have to improve depth, quality'**\
 `Arteta spoke of his 'excitement' at the four signings Arsenal have made during pre-season but says more additions are needed.`\
 https://nytimes.com/athletic/6505965/2025/07/21/mikel-arteta-arsenal-summer-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6497954/2025/07/21/rashford-antony-garnacho-malacia
 **Kyle Walker-Peters' versatility makes him a crucial signing for West Ham**\
 `Walker-Peters can play in either full-back position or as a wing-back, which suits the system Graham Potter is keen to deploy this season`\
 https://nytimes.com/athletic/6503292/2025/07/21/kyle-walker-peters-west-ham-2/
-
-**Why do so many footballers go bankrupt?**\
-`Having a well-paid career is no guarantee of avoiding financial hardships, as many ex-professional and international players can attest`\
-https://nytimes.com/athletic/6212666/2025/07/21/footballers-bankrupt-money/
 
