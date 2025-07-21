@@ -1,3 +1,7 @@
+**Trump Posts Fake Video Showing Obama Arrest**\
+`President Trump shared what appeared to be an A.I.-generated video of former President Barack Obama being detained in the Oval Office.`\
+https://nytimes.com/2025/07/21/us/politics/trump-fake-video-obama-arrest.html
+
 **Stellantis Says Profit Plunged as Tariffs Began to Bite**\
 `The company, which owns Jeep, Peugeot, Fiat and other brands, said it might soon have to begin raising prices.`\
 https://nytimes.com/2025/07/21/business/stellantis-profit-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6505963/2025/07/21/eugenio-suarez-trade-deadline-th
 **SkyWest Flight Aborts Landing to Avoid Midair Collision Near Military Base**\
 `After the passenger jet landed safely in North Dakota, the pilot told passengers that he had made an “aggressive maneuver” to avoid hitting a military aircraft.`\
 https://nytimes.com/2025/07/21/us/skywest-flight-collision-b52-north-dakota.html
-
-**Chiefs' Rashee Rice to participate in training camp despite jail sentence**\
-`Chiefs coach Andy Reid said he did not know when the NFL would decide on a potential suspension for Rice.`\
-https://nytimes.com/athletic/6506258/2025/07/21/rashee-rice-chiefs-training-camp-jail-sentence/
 
