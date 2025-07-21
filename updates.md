@@ -1,3 +1,11 @@
+**Titans QB Will Levis to undergo season-ending shoulder surgery**\
+`Levis sustained the injury when diving for a first down against the Miami Dolphins last September.`\
+https://nytimes.com/athletic/6506468/2025/07/21/will-levis-titans-shoulder-injury-surgery/
+
+**Bucks' summer-league review: What we saw from Tyler Smith, Chris Livingston and more**\
+`Milwaukee has a veteran-heavy roster. Are there any paths for younger players to sneak into the rotation?`\
+https://nytimes.com/athletic/6504802/2025/07/21/bucks-summer-league-nba-tyler-smith-chris-livingston/
+
 **Wimbledon gets expansion boost as UK court dismisses appeal from protest group**\
 `Local residents had appealed against plans that would see Wimbledon have 39 new tennis courts.`\
 https://nytimes.com/athletic/6506423/2025/07/21/wimbledon-expansion-residents-appeal-dismissed/
