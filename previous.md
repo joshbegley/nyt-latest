@@ -1,3 +1,11 @@
+**Italian Americans, for and Against Mamdani, Square Off in New York**\
+`Feelings ran high at a colorful protest outside the Assembly district office of Zohran Mamdani, the Democratic mayoral nominee.`\
+https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
+
+**2 Dead and 1 Missing After Plunging From Oregon Waterfall, Officials Say**\
+`Three other people were rescued on Saturday when a group of people strayed into an unsafe section of the Deschutes River near Bend, Ore., the authorities said.`\
+https://nytimes.com/2025/07/21/us/oregon-waterfall-deaths.html
+
 **Pete Crow-Armstrong's injury serves as trade deadline reminder for Cubs**\
 `In his place, the Cubs penciled in Seiya Suzuki as the starting center fielder in Monday's lineup.`\
 https://nytimes.com/athletic/6507589/2025/07/21/chicago-cubs-pete-crow-armstrong-injury-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html
 **Hunter Biden Trashes Democrats He Saw as Betraying His Father**\
 `In a profane tirade, the former president’s son sought to settle scores with Anita Dunn, David Axelrod, James Carville and George Clooney. Among others.`\
 https://nytimes.com/2025/07/21/us/politics/hunter-biden-podcast.html
-
-**Ex-NFLPA executive director Lloyd Howell Jr. resigns from The Carlyle Group**\
-`The former executive director, who resigned from the NFLPA on Thursday, also stepped down from his position with The Carlyle Group. `\
-https://nytimes.com/athletic/6507378/2025/07/21/nflpa-lloyd-howell-resigns-carlyle-group/
-
-**Missouri Man Dies in Dam’s Hydraulics While Trying to Save Trapped Boater**\
-`The man jumped into the water to help a boater who had become trapped in the powerful, washing machine-like waters at the base of the dam.`\
-https://nytimes.com/2025/07/21/us/missouri-man-dam-dead.html
 

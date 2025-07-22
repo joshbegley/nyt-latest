@@ -1,3 +1,11 @@
+**Italian Americans, for and Against Mamdani, Square Off in New York**\
+`Feelings ran high at a colorful protest outside the Assembly district office of Zohran Mamdani, the Democratic mayoral nominee.`\
+https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
+
+**2 Dead and 1 Missing After Plunging From Oregon Waterfall, Officials Say**\
+`Three other people were rescued on Saturday when a group of people strayed into an unsafe section of the Deschutes River near Bend, Ore., the authorities said.`\
+https://nytimes.com/2025/07/21/us/oregon-waterfall-deaths.html
+
 **Pete Crow-Armstrong's injury serves as trade deadline reminder for Cubs**\
 `In his place, the Cubs penciled in Seiya Suzuki as the starting center fielder in Monday's lineup.`\
 https://nytimes.com/athletic/6507589/2025/07/21/chicago-cubs-pete-crow-armstrong-injury-trade-deadline/
