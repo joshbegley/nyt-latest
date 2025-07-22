@@ -1,3 +1,7 @@
+**Columbia Expels and Suspends Students Involved in Library Takeover**\
+`The occupation of Butler Library in May represented an effort by a pro-Palestinian student protest group to regain momentum on campus.`\
+https://nytimes.com/2025/07/22/nyregion/columbia-university-expels-suspends-students-library-protest.html
+
 **Micah Parsons attends camp, says it's time for Cowboys to get contract done**\
 `Parsons said he's dealing with back tightness and it also sounded like a new deal with Dallas wasn't close.`\
 https://nytimes.com/athletic/6509621/2025/07/22/cowboys-micah-parsons-contract-jerry-jones/
