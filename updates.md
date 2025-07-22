@@ -1,3 +1,11 @@
+**CSC, House attorneys end standoff over how collectives are policed: Sources**\
+`Collectives can offer goods and services in the form of NIL payments, and they can send those deals through the clearinghouse for approval.`\
+https://nytimes.com/athletic/6509845/2025/07/22/csc-collectives-rules-house-settlement/
+
+**Ozzy Osbourne: A Life in Pictures**\
+`He pioneered heavy metal, became an unlikely reality TV star and performed a colossal final concert two weeks before his death.`\
+https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-photos.html
+
 **Daughter of Man Charged in Her Killing Was Drowned, Authorities Say**\
 `The body of Melina Galanis Frattolin, 9, of Canada, was found in Ticonderoga, N.Y., on Sunday, one day after her father falsely reported that she had been abducted, the police said.`\
 https://nytimes.com/2025/07/22/nyregion/melina-frattolin-murder-father-charged-new-york.html
