@@ -1,3 +1,7 @@
+**Republicans Look to Rename Kennedy Center Opera House after Melania Trump**\
+`Republican members of the Appropriations Committee approved an amendment to a spending bill that would rename the venue after the first lady.`\
+https://nytimes.com/2025/07/22/arts/kennedy-center-opera-melania-trump.html
+
 **Raiders sign safety Jamal Adams, reuniting with coach Pete Carroll**\
 `Carroll was the coach in Seattle when the Seahawks gave up multiple first-round picks as part of 2020 trade to acquire Adams from the Jets.`\
 https://nytimes.com/athletic/6509568/2025/07/22/jamal-adams-raiders-signing-jets-seahawks-nfl/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-willia
 **NFLPA president: Vote on interim union leader to be held in 'near future'**\
 `Following a week marked by two high-profile resignations from the NFL players' union, Reeves-Maybin outlined next steps.`\
 https://nytimes.com/athletic/6509465/2025/07/22/nflpa-president-jalen-reeves-maybin-vote-near-future/
-
-**Wednesday Briefing: Israel Expands Gaza Offensive**\
-`Plus, the death of Ozzy Osbourne.`\
-https://nytimes.com/2025/07/22/briefing/israel-gaza-philippines-trade-us-ozzy-osbourne.html
 

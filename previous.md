@@ -1,3 +1,23 @@
+**Raiders sign safety Jamal Adams, reuniting with coach Pete Carroll**\
+`Carroll was the coach in Seattle when the Seahawks gave up multiple first-round picks as part of 2020 trade to acquire Adams from the Jets.`\
+https://nytimes.com/athletic/6509568/2025/07/22/jamal-adams-raiders-signing-jets-seahawks-nfl/
+
+**Canada Says It Won’t Accept a Trade Deal With the U.S. at ‘Any Cost’**\
+`Prime Minister Mark Carney, after a meeting with Canada’s political leaders, downplayed the chances of success in talks aimed at reaching a trade deal with President Trump.`\
+https://nytimes.com/2025/07/22/world/canada/carney-trade-deal-trump.html
+
+**Rafael Devers starting at first base for Giants**\
+`After all that, yes, Devers will start at first base, which was the likeliest outcome all along. It just won't be for the Red Sox.`\
+https://nytimes.com/athletic/6509531/2025/07/22/rafael-devers-starting-first-base-giants/
+
+**Who Is Desiree Grace, New Jersey’s Newly Named Top Federal Prosecutor?**\
+`Ms. Grace became a federal prosecutor in New Jersey in 2016. She rose quickly through the ranks before district court judges appointed her U.S. attorney on Tuesday.`\
+https://nytimes.com/2025/07/22/nyregion/desiree-grace-new-jersey-us-attorney.html
+
+**No One Controls MAGA — Not Even Trump**\
+`Even the president has to negotiate with his base.`\
+https://nytimes.com/2025/07/22/opinion/trump-epstein-maga-support.html
+
 **Colorado Rockies sign No. 4 overall pick Ethan Holliday with historic bonus**\
 `The deal includes a reported $9 million bonus, the highest ever for a player out of high school.`\
 https://nytimes.com/athletic/6509605/2025/07/22/rockies-ethan-holliday-contract-signing/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6509465/2025/07/22/nflpa-president-jalen-reeves-may
 **Wednesday Briefing: Israel Expands Gaza Offensive**\
 `Plus, the death of Ozzy Osbourne.`\
 https://nytimes.com/2025/07/22/briefing/israel-gaza-philippines-trade-us-ozzy-osbourne.html
-
-**Is High-Fructose Corn Syrup Worse for You Than Sugar?**\
-`Coca-Cola announced Tuesday that it would introduce a new cane sugar Coke product this fall. But will it be better for you?`\
-https://nytimes.com/2025/07/22/dining/high-fructose-corn-syrup.html
-
-**Appeals Court Upholds Ruling Restricting Associated Press Access to Trump**\
-`The earlier decision found it legal for the president to restrict access to a news organization in invite-only places like the Oval Office or Air Force One.`\
-https://nytimes.com/2025/07/22/business/media/appeals-court-associated-press-restrictions-trump.html
-
-**Israel Expands Attacks in Central Gaza**\
-`The World Health Organization accused Israel of attacking its site in central Gaza after the Israeli military expanded its operations in the city of Deir al-Balah.`\
-https://nytimes.com/video/world/middleeast/100000010299606/gaza-israel-strikes-who.html
-
-**Hospitals Are Limiting Gender Treatment for Trans Minors, Even in Blue States**\
-`Two prominent medical centers in California recently announced they would stop treatments, citing pressure from the Trump administration.`\
-https://nytimes.com/2025/07/22/us/trump-transgender-healthcare-california-hospitals.html
-
-**Trump’s Accusations Against Obama Are ‘Ridiculous’ and ‘Weak,’ Spokesman Says**\
-`Talking to reporters from the Oval Office, President Trump accused his predecessor of treason.`\
-https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
 
