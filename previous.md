@@ -1,3 +1,15 @@
+**The Gift of a New Opera House, With a Grim Family History Attached**\
+`A billionaire will fund the construction of a new home in for the Hamburg State Opera. But questions linger over his company’s actions during World War II.`\
+https://nytimes.com/2025/07/22/arts/music/hamburg-opera-house-klaus-michael-kuehne.html
+
+**'No d***heads': Why All Blacks guru Enoka is working with England's cricket team**\
+`England hope the mental performance coach will give them an edge as they seek to close out series win over India`\
+https://nytimes.com/athletic/6508377/2025/07/22/england-cricket-gilbert-enoka-no-dickheads-all-blacks/
+
+**Deion Sanders says he's 'still going through something' in health update**\
+`"I ain't all the way recovered," Sanders said about his undisclosed health issue in a YouTube video.`\
+https://nytimes.com/athletic/6508407/2025/07/22/deion-sanders-health-update-colorado/
+
 **2031 Ryder Cup to be held in Barcelona, returning to Spain for first time since 1997**\
 `Spain will become the first country in mainland Europe to host the Ryder Cup twice.`\
 https://nytimes.com/athletic/6508449/2025/07/22/ryder-cup-2031-barcelona-spain/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6507044/2025/07/22/nhl-playoff-rule-change-stanley-
 **The Windup: The strangest walk-off**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6508007/2025/07/22/catchers-interference-wakoff-home-run-the-windup/
-
-**A Backpacker About to Hit the Road**\
-`Hiking shoes finished off an outfit of mostly secondhand items.`\
-https://nytimes.com/2025/07/22/style/street-style-look-backpacking-clothes.html
-
-**Diggs cleared to fully participate in Patriots training camp after ACL tear**\
-`Diggs tore his ACL in Week 8 after recording 47 catches for 496 yards and three touchdowns with the Texans last season.`\
-https://nytimes.com/athletic/6508317/2025/07/22/stefon-diggs-cleared-patriots-acl-injury/
-
-**Zelensky’s Government Takes Aim at Corruption Fighters**\
-`Ukraine’s president ran on a promise to clean things up, but critics say his government is cracking down on anti-corruption activists, critics and agencies.`\
-https://nytimes.com/2025/07/22/world/europe/zelensky-ukraine-corruption.html
 

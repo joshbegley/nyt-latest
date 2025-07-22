@@ -1,3 +1,15 @@
+**The Gift of a New Opera House, With a Grim Family History Attached**\
+`A billionaire will fund the construction of a new home in for the Hamburg State Opera. But questions linger over his company’s actions during World War II.`\
+https://nytimes.com/2025/07/22/arts/music/hamburg-opera-house-klaus-michael-kuehne.html
+
+**'No d***heads': Why All Blacks guru Enoka is working with England's cricket team**\
+`England hope the mental performance coach will give them an edge as they seek to close out series win over India`\
+https://nytimes.com/athletic/6508377/2025/07/22/england-cricket-gilbert-enoka-no-dickheads-all-blacks/
+
+**Deion Sanders says he's 'still going through something' in health update**\
+`"I ain't all the way recovered," Sanders said about his undisclosed health issue in a YouTube video.`\
+https://nytimes.com/athletic/6508407/2025/07/22/deion-sanders-health-update-colorado/
+
 **2031 Ryder Cup to be held in Barcelona, returning to Spain for first time since 1997**\
 `Spain will become the first country in mainland Europe to host the Ryder Cup twice.`\
 https://nytimes.com/athletic/6508449/2025/07/22/ryder-cup-2031-barcelona-spain/
