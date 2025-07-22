@@ -1,3 +1,7 @@
+**Bears training camp: Caleb Williams' goals, Jaylon Johnson's injury, left tackle battle**\
+`The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Caleb Williams and DT Grady Jarrett.`\
+https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-williams-goals-jaylon-johnson/
+
 **NFLPA president: Vote on interim union leader to be held in 'near future'**\
 `Following a week marked by two high-profile resignations from the NFL players' union, Reeves-Maybin outlined next steps.`\
 https://nytimes.com/athletic/6509465/2025/07/22/nflpa-president-jalen-reeves-maybin-vote-near-future/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
 **Most Planned Parenthood Clinics Are Ineligible for Medicaid Money After Court Ruling**\
 `A judge issued a preliminary injunction that allowed only some of the group’s health centers to receive payments for services like birth control and checkups.`\
 https://nytimes.com/2025/07/22/us/politics/trump-planned-parenthood.html
-
-**Trump Escalates Attacks on Obama and Clinton as Questions Swirl About Epstein**\
-`President Trump deflected questions about the disgraced financier Jeffrey Epstein by lashing out at his perceived enemies.`\
-https://nytimes.com/2025/07/22/us/politics/trump-obama-clinton-epstein-treason.html
 

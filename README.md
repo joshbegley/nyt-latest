@@ -1,3 +1,7 @@
+**Colorado Rockies sign No. 4 overall pick Ethan Holliday with historic bonus**\
+`The deal includes a reported $9 million bonus, the highest ever for a player out of high school.`\
+https://nytimes.com/athletic/6509605/2025/07/22/rockies-ethan-holliday-contract-signing/
+
 **Bears training camp: Caleb Williams' goals, Jaylon Johnson's injury, left tackle battle**\
 `The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Caleb Williams and DT Grady Jarrett.`\
 https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-williams-goals-jaylon-johnson/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/us/trump-transgender-healthcare-california-hospit
 **Trump’s Accusations Against Obama Are ‘Ridiculous’ and ‘Weak,’ Spokesman Says**\
 `Talking to reporters from the Oval Office, President Trump accused his predecessor of treason.`\
 https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
-
-**Most Planned Parenthood Clinics Are Ineligible for Medicaid Money After Court Ruling**\
-`A judge issued a preliminary injunction that allowed only some of the group’s health centers to receive payments for services like birth control and checkups.`\
-https://nytimes.com/2025/07/22/us/politics/trump-planned-parenthood.html
 

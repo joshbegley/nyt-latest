@@ -1,3 +1,7 @@
+**Bears training camp: Caleb Williams' goals, Jaylon Johnson's injury, left tackle battle**\
+`The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Caleb Williams and DT Grady Jarrett.`\
+https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-williams-goals-jaylon-johnson/
+
 **NFLPA president: Vote on interim union leader to be held in 'near future'**\
 `Following a week marked by two high-profile resignations from the NFL players' union, Reeves-Maybin outlined next steps.`\
 https://nytimes.com/athletic/6509465/2025/07/22/nflpa-president-jalen-reeves-maybin-vote-near-future/
