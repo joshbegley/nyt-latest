@@ -1,3 +1,7 @@
+**Jon Stewart Supports Friend Stephen Colbert Through CBS Cancellation**\
+`Stewart admitted that he was “certainly not the most objective to comment on this matter” before sharing his feelings about the end of “The Late Show.”`\
+https://nytimes.com/2025/07/22/arts/television/jon-stewart-supports-stephen-colbert.html
+
 **Mathieu van der Poel abandons Tour de France after pneumonia diagnosis**\
 `The 30-year-old had been enjoying the best Tour of his career, having won stage two and worn the yellow jersey on two separate occasions.`\
 https://nytimes.com/athletic/6508013/2025/07/22/mathieu-van-der-poel-tour-de-france-pneumonia/
