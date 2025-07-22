@@ -1,3 +1,19 @@
+**Malcolm-Jamal Warner Drowned in Area Known for Rip Currents**\
+`New details emerged about the death of the “Cosby Show” actor, who drowned on the Caribbean side of Costa Rica.`\
+https://nytimes.com/2025/07/22/arts/malcolm-jamal-warner-rip-currents-costa-rica.html
+
+**Giants demote Hayden Birdsong, Tristan Beck and call up Carson Seymour, Sean Hjelle**\
+`San Francisco shook up its roster and rotation on Tuesday.`\
+https://nytimes.com/athletic/6509506/2025/07/22/giants-demote-hayden-birdsong-tristan-beck/
+
+**Flyers support top prospect Porter Martone's decision to attend Michigan State**\
+`The Flyers' No. 6 pick in the 2025 draft could have had a shot to make the opening-night roster, but decided to go the NCAA route instead.`\
+https://nytimes.com/athletic/6509454/2025/07/22/flyers-porter-martone-commits-michigan-state/
+
+**ICE Arrests Haitian Oligarch Accused of Supporting Gangs**\
+`A member of Haiti’s elite is facing accusations that he helped support violent gangs that have wreaked havoc in the Caribbean nation.`\
+https://nytimes.com/2025/07/22/us/haiti-oligarch-ice-arrest.html
+
 **Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
 `His New Albion Brewing Company, founded in 1976, was considered the first microbrewery. It set the model for thousands more to come.`\
 https://nytimes.com/2025/07/22/us/jack-mcauliffe-dead.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6509339/2025/07/22/panthers-josey-jewell-release-co
 **gws-caribbean-ferries**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/caribbean-ferries
-
-**Why there won't be an easy resolution to Terry McLaurin's contract situation**\
-`This will have to play out slowly, maybe angrily, for the next few days and weeks to get each side to agree on an extension. `\
-https://nytimes.com/athletic/6508867/2025/07/22/terry-mclaurin-commanders-contract-gm-adam-peters/
-
-**Syrian Inquiry Says Military Leaders Did Not Order Sectarian Killings in March**\
-`A fact-finding committee presented findings on a wave of sectarian killings earlier this year. Human rights experts said the report failed to hold the country’s security establishment accountable.`\
-https://nytimes.com/2025/07/22/world/middleeast/syria-military-killings-human-rights.html
-
-**Saints safety Tyrann Mathieu retires after 12 NFL seasons**\
-`Mathieu logged 36 interceptions, seven forced fumbles and 838 tackles in his career with the Cardinals, Chiefs and Saints.`\
-https://nytimes.com/athletic/6509451/2025/07/22/tyrann-mathieu-retirement-cardinals-saints/
-
-**Phillies sign first-round pick Gage Wood**\
-`The right-handed pitcher throws a fastball that reaches 98 mph, sitting at 95-96 mph.`\
-https://nytimes.com/athletic/6509437/2025/07/22/phillies-gage-wood-arkansas/
 
