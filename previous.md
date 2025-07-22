@@ -1,3 +1,7 @@
+**Leeds new boy Jaka Bijol on the Premier League, a busy summer, and the Tour de France**\
+`Leeds United's latest defensive recruit tells The Athletic why his love of cycling sometimes leaves team-mates perplexed`\
+https://nytimes.com/athletic/6506962/2025/07/22/jaka-bijol-interview-leeds/
+
 **Word of the Day: simile**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/22/learning/word-of-the-day-simile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506185/2025/07/22/italy-euro-2025-semi-final-squad
 **Why have Nottingham Forest taken out an £80m loan from Apollo Management?**\
 `It is not unusual for clubs to secure finance in such a manner - but when it involves such a high headline figure, it raises some questions`\
 https://nytimes.com/athletic/6502446/2025/07/22/nottingham-forest-loan-apollo-management/
-
-**Barcelona are signing Marcus Rashford on loan. But will they even be able to register him?**\
-`Rashford has agreed a loan move to Flick's side but the club's ongoing issues with registering players make it far from straightforward`\
-https://nytimes.com/athletic/6501648/2025/07/22/barcelona-rashford-register-la-liga/
 

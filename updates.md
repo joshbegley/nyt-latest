@@ -1,3 +1,7 @@
+**Leeds new boy Jaka Bijol on the Premier League, a busy summer, and the Tour de France**\
+`Leeds United's latest defensive recruit tells The Athletic why his love of cycling sometimes leaves team-mates perplexed`\
+https://nytimes.com/athletic/6506962/2025/07/22/jaka-bijol-interview-leeds/
+
 **Word of the Day: simile**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/22/learning/word-of-the-day-simile.html

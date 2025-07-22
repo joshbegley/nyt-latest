@@ -1,3 +1,7 @@
+**First Pill for Postpartum Depression Shows Varied Real-World Results**\
+`Some women’s symptoms improved quickly after taking the pill, but depression persisted in others. Doctors are trying to learn which patients benefit, and why some don’t.`\
+https://nytimes.com/2025/07/22/health/post-partum-depression-treatment-pill.html
+
 **Leeds new boy Jaka Bijol on the Premier League, a busy summer, and the Tour de France**\
 `Leeds United's latest defensive recruit tells The Athletic why his love of cycling sometimes leaves team-mates perplexed`\
 https://nytimes.com/athletic/6506962/2025/07/22/jaka-bijol-interview-leeds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/briefing/bangladesh-plane-crash-gaza-israel-hamas
 **How Italy's perfect blend is allowing their dreams to run wild at Euro 2025**\
 `A team mixing youth and experience has delivered the country's first semi-final in a major women's tournament since the 1990s`\
 https://nytimes.com/athletic/6506185/2025/07/22/italy-euro-2025-semi-final-squad-england/
-
-**Why have Nottingham Forest taken out an £80m loan from Apollo Management?**\
-`It is not unusual for clubs to secure finance in such a manner - but when it involves such a high headline figure, it raises some questions`\
-https://nytimes.com/athletic/6502446/2025/07/22/nottingham-forest-loan-apollo-management/
 
