@@ -1,3 +1,7 @@
+**From Bogota to Queens: La Cancha Arena is home away from home**\
+`A New York restaurant shows why soccer, food and family are deeply connected in Colombian culture.`\
+https://nytimes.com/athletic/6500107/2025/07/22/finding-futbol-queens-colombia/
+
 **As the Dollar Slides, the Euro Is Picking Up Speed**\
 `The euro has been gaining steam as investors seek new havens during geopolitical turmoil.`\
 https://nytimes.com/2025/07/22/business/euro-dollar-currency-tariffs.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/climate/trump-national-park-service-history-chang
 **Canucks playoff roadmap: How does Vancouver get back to the postseason?**\
 `Nine Western Conference teams have shorter odds of qualifying for the playoffs than Vancouver does at this point in the offseason.`\
 https://nytimes.com/athletic/6505914/2025/07/22/canucks-stats-standings-playoffs-2025-26/
-
-**Mets trade deadline overview: Where and how can New York upgrade?**\
-`There are four main areas the Mets could address between now and July 31: the bullpen, the rotation, center field and third base.`\
-https://nytimes.com/athletic/6507833/2025/07/22/mets-trade-deadline-overview-bullpen-center-field/
 

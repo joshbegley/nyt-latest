@@ -1,3 +1,27 @@
+**As the Dollar Slides, the Euro Is Picking Up Speed**\
+`The euro has been gaining steam as investors seek new havens during geopolitical turmoil.`\
+https://nytimes.com/2025/07/22/business/euro-dollar-currency-tariffs.html
+
+**Can Dylan Cease, Jackson Chourio improve in the second half? What's holding them back?**\
+`Andrea Arcadipane details what improvements are needed for Dylan Cease and Jackson Chourio to have a strong second half of the MLB season.`\
+https://nytimes.com/athletic/6508464/2025/07/22/dylan-cease-jackson-chourio-improvement-second-half-mlb/
+
+**Brentford turn down £25m Wissa offer from Newcastle**\
+`Newcastle's pursuit of the 28-year-old forward is ongoing, while personal terms would be no problem.`\
+https://nytimes.com/athletic/6486297/2025/07/22/yoane-wissa-newcastle-united/
+
+**Nagano to sign new Liverpool contract amid interest from WSL rivals**\
+`Nagano joined Liverpool in January 2023 after spending a year at North Carolina Courage in the National Women's Soccer League (NWSL).`\
+https://nytimes.com/athletic/6508664/2025/07/22/fuka-nagano-liverpool-contract/
+
+**Johnson Cuts Short House Session to Avoid Vote on Releasing Epstein Files**\
+`The Republican speaker truncated the schedule for the week and said he would send lawmakers home on Wednesday to deny Democrats the chance to force votes on whether to release the Epstein material.`\
+https://nytimes.com/2025/07/22/us/politics/mike-johnson-ends-house-session-epstein-vote.html
+
+**Giants' 10-step plan revisited: Will Joe Schoen regret trading up for Jaxson Dart?**\
+`It's fair to wonder if the Giants should have waited until next year to go all in at QB and instead invested more in the offensive line.`\
+https://nytimes.com/athletic/6507822/2025/07/22/ny-giants-offseason-roster-jaxson-dart/
+
 **Giants' 10-step plan revisited: Will Joe Schoen regret trading up for Jaxson Dart?**\
 `It's fair to wonder if the Giants should have waited until next year to go all-in at QB and instead invested more in the offensive line.`\
 https://nytimes.com/athletic/6507822/2025/07/22/ny-giants-offseason-roster-jaxson-dart/
