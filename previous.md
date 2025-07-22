@@ -1,3 +1,19 @@
+**7 players who could swing the Bills' 2025 season**\
+`The Bills are in their championship window, but still need some key players to step up this season.`\
+https://nytimes.com/athletic/6507270/2025/07/22/buffalo-bills-2025-season-joey-bosa-dalton-kincaid/
+
+**Can Ekitike be the No 9 Liverpool have lacked since Torres?**\
+`Liverpool have not had a happy history with the centre-forward position since Spaniard's exit in 2011`\
+https://nytimes.com/athletic/6497163/2025/07/22/liverpool-number-9s-hugo-ekitike-fernando-torres/
+
+**Israel Expands Offensive in Gaza and Raids a W.H.O. Office**\
+`Strikes in the central part of the territory targeted a city, Deir al-Balah, that had largely been spared and that had become an informal refuge for Palestinians fleeing other areas.`\
+https://nytimes.com/2025/07/22/world/middleeast/israel-gaza-deir-al-balah-who.html
+
+**‘Bye, Bro’: British Fighter Jet, Stranded in India, Finally Leaves for Home**\
+`A British F-35B took flight weeks after it was grounded with a mechanical hitch. Some locals who had embraced the jet were sad to see it go.`\
+https://nytimes.com/2025/07/22/world/asia/india-uk-f35-jet-kerala-airport.html
+
 **Wolves close to agreeing deal for Almeria right-back Pubill**\
 `Vitor Pereira's side have been looking to strengthen the right-back position after Nelson Semedo’s contract expired at the end of June.`\
 https://nytimes.com/athletic/6508102/2025/07/22/wolves-marc-pubill-transfer-almeria/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6507686/2025/07/22/new-england-patriots-goals-respe
 **Blue Jays' core makes history against Yankees, pushes deeper into uncharted territory**\
 `"Honestly didn't know what to expect on a Monday night, but this place was rocking," Kevin Gausman said of the Jays' 11th straight home win.`\
 https://nytimes.com/athletic/6507908/2025/07/22/blue-jays-yankees-history/
-
-**How much money are college football programs actually worth? It's complicated**\
-`What college football programs would sell for if they could go on the market is a much different question than what they're actually worth.`\
-https://nytimes.com/athletic/6507297/2025/07/22/how-much-college-football-programs-worth/
-
-**One-on-one: After 'iconic' Rangers tenure, Chris Kreider opens up about New York departure**\
-`“For me it’s been kind of gradual, which I think is nice,” Kreider said of the transition. “I don’t know; I have nothing to compare it to."`\
-https://nytimes.com/athletic/6507482/2025/07/22/chris-kreider-rangers-ducks-trade-nhl/
-
-**Paralluelo interview: 'I couldn't give my all because of the pain. I had to stop'**\
-`The Spain winger, a former athletics star as a junior, had to take four months out during the season as her body adapted to football`\
-https://nytimes.com/athletic/6506976/2025/07/22/salma-paralluelo-interview-spain-euro-2025/
-
-**'Still a top shortstop': Yankees’ Aaron Boone defends Anthony Volpe after another costly error**\
-`"It's a few too many," manager Aaron Boone said of Volpe's 12 errors, the most in the American League this season. `\
-https://nytimes.com/athletic/6507881/2025/07/22/yankees-aaron-boone-defends-anthony-volpe-error/
 
