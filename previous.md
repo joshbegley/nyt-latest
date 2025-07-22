@@ -1,3 +1,7 @@
+**Mets trade deadline overview: Where and how can New York upgrade?**\
+`There are four main areas the Mets could address between now and July 31: the bullpen, the rotation, center field and third base.`\
+https://nytimes.com/athletic/6507833/2025/07/22/mets-trade-deadline-overview-bullpen-center-field/
+
 **Justice Dept. Reaches Out to Ghislaine Maxwell, a Longtime Epstein Associate**\
 `The latest effort by Trump subordinates is intended to quell a political crisis precipitated by the department’s announcement that it would not release more files related to the Epstein investigation.`\
 https://nytimes.com/2025/07/22/us/politics/ghislaine-maxwell-epstein-doj.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/business/astrazeneca-pharma-tariff-trump.html
 **gws-the-gilded-age**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-gilded-age
-
-**gws-off-the-grid-resorts**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/off-the-grid-resorts
 
