@@ -1,3 +1,7 @@
+**FEMA Urban Search and Rescue Chief Resigns**\
+`Ken Pagurek had told colleagues the Trump administration was causing ‘chaos’ inside FEMA and creating dangerous delays in disaster response.`\
+https://nytimes.com/2025/07/22/climate/fema-urban-search-rescue-chief-resigns.html
+
 **Ozzy Osbourne, ‘Prince of Darkness’ Turned Reality TV Star, Dies at 76**\
 `As the lead singer of Black Sabbath, he helped invent heavy metal. On “The Osbournes,” he presented a comedic counterpoint to his rock ’n’ roll infamy.`\
 https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/paidpost/progressive-insurance/the-power-of-purchasing-a-hom
 **Witnesses Recall Deadly Bangladesh Plane Crash**\
 `At least 31 people were killed after a military jet crashed into a school building in Dhaka. The tragedy at the Milestone School and College has led to a national outpouring of grief.`\
 https://nytimes.com/video/world/asia/100000010298826/bangladesh-plane-crash-school.html
-
-**Teakwood Thai Chophouse Doesn’t Skip the Seafood**\
-`Tacos 1986 shares a space with Mixteca, Cabuc focuses on Turkish coffee and more restaurant news.`\
-https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
 
