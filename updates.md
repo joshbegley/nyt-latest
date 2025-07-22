@@ -1,3 +1,15 @@
+**Amid Fear of Retaliation, N.S.F. Workers Sign Letter of Dissent**\
+`In a public letter, employees of the National Science Foundation accused the administration of politicizing the agency and impeding scientific innovation.`\
+https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html
+
+**Republicans Look to Rename Kennedy Center Opera House After Melania Trump**\
+`Republican members of the Appropriations Committee approved an amendment to a spending bill that would rename the venue after the first lady.`\
+https://nytimes.com/2025/07/22/arts/kennedy-center-opera-melania-trump.html
+
+**Bears training camp: Caleb Williams' goals, Jaylon Johnson's injury, left tackle battle**\
+`The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Williams and DT Jarrett.`\
+https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-williams-goals-jaylon-johnson/
+
 **Raiders sign safety Jamal Adams, reuniting with coach Pete Carroll**\
 `Carroll was the coach in Seattle when the Seahawks gave up multiple first-round picks as part of 2020 trade to acquire Adams from the Jets.`\
 https://nytimes.com/athletic/6509568/2025/07/22/jamal-adams-raiders-signing-jets-seahawks-nfl/
