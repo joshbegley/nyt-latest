@@ -1,3 +1,11 @@
+**Greenberg: Welcome to the Ben Johnson Show, which starts right now**\
+`As he embarks on his first season in charge, you could say Johnson is the most important coach, player or sports executive in Chicago.`\
+https://nytimes.com/athletic/6509760/2025/07/22/chicago-bears-training-camp-ben-johnson/
+
+**Lance McCullers Jr. becomes 17th Astros player to hit injured list**\
+`After returning in May from a 915-day absence, McCullers owns a 6.90 ERA across his first 11 starts. `\
+https://nytimes.com/athletic/6509823/2025/07/22/houston-astros-lance-mccullers-jr-injured-list/
+
 **Columbia Expels and Suspends Students Involved in Library Takeover**\
 `The occupation of Butler Library in May represented an effort by a pro-Palestinian student protest group to regain momentum on campus.`\
 https://nytimes.com/2025/07/22/nyregion/columbia-university-expels-suspends-students-library-protest.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6509248/2025/07/22/colts-anthony-richardson-trainin
 **Landslide Traps Gold Miners in Eastern Congo**\
 `A landslide at the Lomera artisanal gold mine in eastern Congo left an unknown number of people trapped underground.`\
 https://nytimes.com/video/world/africa/100000010300021/congo-gold-mine-landslide.html
-
-**Rexrode: No, going 6-3 in Big Ten play is not enough for more Playoff bids**\
-`If anyone was on the fence about “4-4-2-2-1,” Tony Petitti made it clear why they should jump right off and run toward common sense.`\
-https://nytimes.com/athletic/6509726/2025/07/22/tony-petitti-big-ten-college-football-playoff-format/
-
-**Oxygen Machine Played Role in Fire That Killed 10 in Massachusetts, Officials Say**\
-`The fire began in a resident’s room in an assisted living facility in Fall River, where investigators found an oxygen machine and “smoking materials.”`\
-https://nytimes.com/2025/07/22/us/fall-river-assisted-living-fire-cause.html
 
