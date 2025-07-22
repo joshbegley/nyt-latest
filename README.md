@@ -1,3 +1,11 @@
+**CSC, House attorneys end standoff over how collectives are policed: Sources**\
+`Collectives can offer goods and services in the form of NIL payments, and they can send those deals through the clearinghouse for approval.`\
+https://nytimes.com/athletic/6509845/2025/07/22/csc-collectives-rules-house-settlement/
+
+**Ozzy Osbourne: A Life in Pictures**\
+`He pioneered heavy metal, became an unlikely reality TV star and performed a colossal final concert two weeks before his death.`\
+https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-photos.html
+
 **Daughter of Man Charged in Her Killing Was Drowned, Authorities Say**\
 `The body of Melina Galanis Frattolin, 9, of Canada, was found in Ticonderoga, N.Y., on Sunday, one day after her father falsely reported that she had been abducted, the police said.`\
 https://nytimes.com/2025/07/22/nyregion/melina-frattolin-murder-father-charged-new-york.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/business/media/trump-murdoch-fox-wall-street-jour
 **Ozzy Osbourne, the Lovable Prince of Darkness**\
 `The rocker helped define the sound, look and attitude of metal. But his persistence through addiction, his connection to audience and a late-career reality TV show endeared him to generations.`\
 https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-prince-of-darkness-black-sabbath.html
-
-**Hoping to Visit the U.S.? It Might Cost You an Extra $250.**\
-`A newly enacted “visa integrity fee” will apply to millions of foreign visitors, including travelers from Mexico, India, Brazil and China.`\
-https://nytimes.com/2025/07/22/travel/visa-integrity-fee-trump-big-beautiful-bill.html
-
-**Colts GM refuses to 'flush' Anthony Richardson, still believes QB can be 'really good'**\
-`Indy GM Chris Ballard: "I think we need to give Anthony every chance to be the best he can be."`\
-https://nytimes.com/athletic/6509248/2025/07/22/colts-anthony-richardson-training-camp-daniel-jones/
 
