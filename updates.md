@@ -1,3 +1,11 @@
+**The minor playoff rule change that altered NHL history, including 4 Cup winners**\
+`How much does hockey history change if the first round of the NHL playoffs had stayed best-of-five?`\
+https://nytimes.com/athletic/6507044/2025/07/22/nhl-playoff-rule-change-stanley-cup-history/
+
+**The Windup: The strangest walk-off**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6508007/2025/07/22/catchers-interference-wakoff-home-run-the-windup/
+
 **A Backpacker About to Hit the Road**\
 `Hiking shoes finished off an outfit of mostly secondhand items.`\
 https://nytimes.com/2025/07/22/style/street-style-look-backpacking-clothes.html
