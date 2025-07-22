@@ -1,3 +1,11 @@
+**Starry Venice Film Festival to Include a New ‘Frankenstein’**\
+`Movies from Guillermo del Toro, Kathryn Bigelow and Yorgos Lanthimos will debut at this year’s event.`\
+https://nytimes.com/2025/07/22/movies/venice-film-festival-lineup.html
+
+**Arsenal on verge of total agreement for Gyokeres transfer**\
+`Gyokeres was focused only on joining Arsenal and, despite late interest from elsewhere, he did not consider any other team.`\
+https://nytimes.com/athletic/6491250/2025/07/22/arsenal-viktor-gyokeres-transfer-latest/
+
 **Mike Lynch’s Estate Ordered to Pay Hewlett Packard $945 Million**\
 `The technology giant had accused the British mogul, who died last year when his yacht sank, of fraud in the sale of his company in 2011.`\
 https://nytimes.com/2025/07/22/business/dealbook/mike-lynch-hp.html
