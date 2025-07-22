@@ -1,3 +1,11 @@
+**Starry Venice Film Festival to Include a New ‘Frankenstein’**\
+`Movies from Guillermo del Toro, Kathryn Bigelow and Yorgos Lanthimos will debut at this year’s event.`\
+https://nytimes.com/2025/07/22/movies/venice-film-festival-lineup.html
+
+**Arsenal on verge of total agreement for Gyokeres transfer**\
+`Gyokeres was focused only on joining Arsenal and, despite late interest from elsewhere, he did not consider any other team.`\
+https://nytimes.com/athletic/6491250/2025/07/22/arsenal-viktor-gyokeres-transfer-latest/
+
 **Mike Lynch’s Estate Ordered to Pay Hewlett Packard $945 Million**\
 `The technology giant had accused the British mogul, who died last year when his yacht sank, of fraud in the sale of his company in 2011.`\
 https://nytimes.com/2025/07/22/business/dealbook/mike-lynch-hp.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/22/world/europe/zelensky-ukraine-corruption.html
 **U.S. Says It Will Withdraw From U.N. Cultural Organization, Again**\
 `A decision to pull out of UNESCO was the latest move by the Trump administration to cut ties with international organizations.`\
 https://nytimes.com/2025/07/22/world/europe/us-withdraw-unesco.html
-
-**Aston Villa's Louie Barry completes Sheffield United loan move**\
-`The deal does not include an option to buy the English forward, who spent nearly a year in Barcelona's La Masia academy as a teenager.`\
-https://nytimes.com/athletic/6508320/2025/07/22/louie-barry-aston-villa-sheffield-united-loan-transfer/
-
-**Children Were on Their School Lunch Break. Then a Plane Hit.**\
-`Nearly all of the 31 killed when a Bangladeshi fighter jet crashed were children. Dozens more were being treated in burn centers as the nation declared a day of mourning.`\
-https://nytimes.com/2025/07/22/world/asia/bangladesh-plane-crash-school-children.html
 
