@@ -1,3 +1,11 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Our team of dedicated writers take you inside the transfer market to explain the deals being worked on across Europe and beyond`\
+https://nytimes.com/athletic/6506078/2025/07/22/manchester-united-transfer-news-latest-analysis-arsenal-liverpool-real-madrid/
+
+**First Pill for Postpartum Depression Shows Varied Real-World Results**\
+`Some women’s symptoms improved quickly after taking the pill, but depression persisted in others. Doctors are trying to learn which patients benefit, and why some don’t.`\
+https://nytimes.com/2025/07/22/health/post-partum-depression-treatment-pill.html
+
 **Leeds new boy Jaka Bijol on the Premier League, a busy summer, and the Tour de France**\
 `Leeds United's latest defensive recruit tells The Athletic why his love of cycling sometimes leaves team-mates perplexed`\
 https://nytimes.com/athletic/6506962/2025/07/22/jaka-bijol-interview-leeds/
