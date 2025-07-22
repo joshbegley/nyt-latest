@@ -1,3 +1,11 @@
+**Giants' 10-step plan revisited: Will Joe Schoen regret trading up for Jaxson Dart?**\
+`It's fair to wonder if the Giants should have waited until next year to go all-in at QB and instead invested more in the offensive line.`\
+https://nytimes.com/athletic/6507822/2025/07/22/ny-giants-offseason-roster-jaxson-dart/
+
+**Trump Told Park Workers to Report Displays That ‘Disparage’ Americans. Here’s What They Flagged.**\
+`Descriptions and displays at scores of parks and historic sites have been flagged for review in connection with an executive order from President Trump.`\
+https://nytimes.com/2025/07/22/climate/trump-national-park-service-history-changes.html
+
 **Canucks playoff roadmap: How does Vancouver get back to the postseason?**\
 `Nine Western Conference teams have shorter odds of qualifying for the playoffs than Vancouver does at this point in the offseason.`\
 https://nytimes.com/athletic/6505914/2025/07/22/canucks-stats-standings-playoffs-2025-26/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6491046/2025/07/22/crystal-palace-cas-appeal-forest
 **gws-best-croissants-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-croissants-nyc
-
-**The Bounce: Will Bradley Beal, Damian Lillard trades be remembered among NBA's worst ever?**\
-`Just how bad were the Bradley Beal and Damian Lillard trades in retrospect? Time will tell, but they're already aging poorly`\
-https://nytimes.com/athletic/6508488/2025/07/22/bradley-beal-suns-clippers-damian-lillard-bucks-trail-blazers-trades-nba-the-bounce/
-
-**AstraZeneca Joins Pharma Investment Push in U.S. Amid Tariff Threat**\
-`The British drug maker plans to invest $50 billion in the United States as it seeks to appease President Trump.`\
-https://nytimes.com/2025/07/22/business/astrazeneca-pharma-tariff-trump.html
 
