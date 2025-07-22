@@ -1,3 +1,11 @@
+**The 6 MLB front office executives under the most pressure this trade deadline**\
+`Every front office is under the microscope at this time of year. But certain executives face more pressure to deliver than ever before. `\
+https://nytimes.com/athletic/6508193/2025/07/22/mlb-trade-deadline-front-offices-pressure/
+
+**Rich Eisen to take over ESPN Radio's noon slot: Sources**\
+`“The Rich Eisen Show” will be the new centerpiece of ESPN Radio, airing nationally from noon-3 p.m. ET. beginning Sept. 2.`\
+https://nytimes.com/athletic/6507652/2025/07/22/espn-radio-rich-eisen-noon-slot/
+
 **7 players who could swing the Bills' 2025 season**\
 `The Bills are in their championship window, but still need some key players to step up this season.`\
 https://nytimes.com/athletic/6507270/2025/07/22/buffalo-bills-2025-season-joey-bosa-dalton-kincaid/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/6507270/2025/07/22/buffalo-bills-2025-season-joey-b
 **Can Ekitike be the No 9 Liverpool have lacked since Torres?**\
 `Liverpool have not had a happy history with the centre-forward position since Spaniard's exit in 2011`\
 https://nytimes.com/athletic/6497163/2025/07/22/liverpool-number-9s-hugo-ekitike-fernando-torres/
+
+**Ohio State mailbag: How many transfers will start vs. Texas? Pressing camp questions?**\
+`Ohio State has a lot of talent, but the loss of 14 draft picks leaves plenty of storylines to monitor ahead of Week 1 against Texas.`\
+https://nytimes.com/athletic/6501694/2025/07/22/ohio-state-preseason-transfers-position-battles-texas/
 
 **Israel Expands Offensive in Gaza and Raids a W.H.O. Office**\
 `Strikes in the central part of the territory targeted a city, Deir al-Balah, that had largely been spared and that had become an informal refuge for Palestinians fleeing other areas.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/22/briefing/understanding-the-epstein-saga.html
 **Yankees' Spencer Jones ahead of the trade deadline: 'I want to play in New York'**\
 `Jones said he understands why some may be skeptical, but he's never had more confidence in his game. Do the Yankees feel similarly?`\
 https://nytimes.com/athletic/6507123/2025/07/22/spencer-jones-yankees-trade-deadline/
-
-**TAFC: Can Barca register Rashford? Parma eye Reyna, Premier League ticket price table**\
-`Today in TAFC: Can Barcelona definitely register Marcus Rashford? Plus: Transfer latest as Parma eye Reyna and Chelsea look at Xavi Simons.`\
-https://nytimes.com/athletic/6508012/2025/07/22/barcelona-rasford-parma-reyna-epl-ticket-prices/
-
-**Patriots have even more important goal than beating 8.5 wins — it's called respectability**\
-`That's a key test that awaits Mike Vrabel and the Pats this season. Are they a respected, well-run organization or just an NFL backwater?`\
-https://nytimes.com/athletic/6507686/2025/07/22/new-england-patriots-goals-respectability-win-total/
-
-**Blue Jays' core makes history against Yankees, pushes deeper into uncharted territory**\
-`"Honestly didn't know what to expect on a Monday night, but this place was rocking," Kevin Gausman said of the Jays' 11th straight home win.`\
-https://nytimes.com/athletic/6507908/2025/07/22/blue-jays-yankees-history/
 

@@ -1,3 +1,15 @@
+**The 6 MLB front office executives under the most pressure this trade deadline**\
+`Every front office is under the microscope at this time of year. But certain executives face more pressure to deliver than ever before. `\
+https://nytimes.com/athletic/6508193/2025/07/22/mlb-trade-deadline-front-offices-pressure/
+
+**Rich Eisen to take over ESPN Radio's noon slot: Sources**\
+`“The Rich Eisen Show” will be the new centerpiece of ESPN Radio, airing nationally from noon-3 p.m. ET. beginning Sept. 2.`\
+https://nytimes.com/athletic/6507652/2025/07/22/espn-radio-rich-eisen-noon-slot/
+
+**Ohio State mailbag: How many transfers will start vs. Texas? Pressing camp questions?**\
+`Ohio State has a lot of talent, but the loss of 14 draft picks leaves plenty of storylines to monitor ahead of Week 1 against Texas.`\
+https://nytimes.com/athletic/6501694/2025/07/22/ohio-state-preseason-transfers-position-battles-texas/
+
 **7 players who could swing the Bills' 2025 season**\
 `The Bills are in their championship window, but still need some key players to step up this season.`\
 https://nytimes.com/athletic/6507270/2025/07/22/buffalo-bills-2025-season-joey-bosa-dalton-kincaid/
