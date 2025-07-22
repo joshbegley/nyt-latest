@@ -1,3 +1,7 @@
+**American Steel Just Got More Expensive. Buyers Blame Tariffs.**\
+`Steel producers like Cleveland Cliffs and Steel Dynamics both said this week that they raised prices after President Trump imposed a 50 percent tariff on imports.`\
+https://nytimes.com/2025/07/22/business/steel-prices-tariffs.html
+
 **Arsenal's evolving attack: The options Gyokeres and Madueke open up for Arteta**\
 `His team were too predictable at times last season. This summer's recruitment should give the manager more flexibility and unpredictability`\
 https://nytimes.com/athletic/6492990/2025/07/22/arsenal-attack-gyokeres-madueke-options/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/nyregion/mingkwai-typewriter-china.html
 **Prisoners’ Phone Calls Will Soon Be Free in New York State**\
 `The move will save the loved ones of the state’s more than 30,000 prisoners over $13 million a year, advocates say.`\
 https://nytimes.com/2025/07/22/nyregion/ny-prison-phone-calls.html
-
-**Astros' Brice Matthews is 'not a finished product.' He still produced the game of his life**\
-`The 23-year-old hit two home runs and drove in five runs, showing that he has potential despite needing to work on his swing decisions.`\
-https://nytimes.com/athletic/6507973/2025/07/22/astros-brice-matthews-two-home-runs/
 

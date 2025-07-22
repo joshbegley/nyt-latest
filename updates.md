@@ -1,3 +1,11 @@
+**Arsenal's evolving attack: The options Gyokeres and Madueke open up for Arteta**\
+`His team were too predictable at times last season. This summer's recruitment should give the manager more flexibility and unpredictability`\
+https://nytimes.com/athletic/6492990/2025/07/22/arsenal-attack-gyokeres-madueke-options/
+
+**NPR’s Top Editor Is Stepping Down**\
+`Edith Chapin, who is also acting chief content officer, has been editor in chief of the public radio network since 2023.`\
+https://nytimes.com/2025/07/22/business/media/npr-edith-chapin-steps-down.html
+
 **White House Leads Push to Block Watchdog’s Inquiries Into Spending Cuts**\
 `Republicans are seeking to undermine the Government Accountability Office as it investigates, and considers suing, over the Trump administration’s withholding federal funds.`\
 https://nytimes.com/2025/07/22/us/politics/trump-spending-government-accountability-office.html
