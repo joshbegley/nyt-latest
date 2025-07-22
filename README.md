@@ -1,3 +1,7 @@
+**Francisco Alvarez, Brett Baty provide reason to believe in Mets' youth**\
+`The bottom of the Mets' lineup has struggled with a .612 OPS since June, but Monday showed why internal help might be coming. `\
+https://nytimes.com/athletic/6507830/2025/07/21/mets-francisco-alvarez-brett-baty-youth/
+
 **Cardinals trade deadline plans remain 'fluid' as John Mozeliak fields calls**\
 `Even if the Cardinals can turn their recent play around, their division rivals might make them deadline sellers anyway.`\
 https://nytimes.com/athletic/6507660/2025/07/21/st-louis-cardinals-trade-deadline-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
 **Italian Americans, for and Against Mamdani, Square Off in New York**\
 `Feelings ran high at a colorful protest outside the Assembly district office of Zohran Mamdani, the Democratic mayoral nominee.`\
 https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
-
-**2 Dead and 1 Missing After Plunging From Oregon Waterfall, Officials Say**\
-`Three other people were rescued on Saturday when a group of people strayed into an unsafe section of the Deschutes River near Bend, Ore., the authorities said.`\
-https://nytimes.com/2025/07/21/us/oregon-waterfall-deaths.html
 
