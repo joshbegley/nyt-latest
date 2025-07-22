@@ -1,3 +1,7 @@
+**gws-the-gilded-age**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-gilded-age
+
 **gws-off-the-grid-resorts**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/off-the-grid-resorts
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/us/politics/trump-spending-government-accountabil
 **Leeds finalising return of Howson to club as player-coach**\
 `The 37-year-old left Leeds 13 years ago after making 225 appearances.`\
 https://nytimes.com/athletic/6508532/2025/07/22/jonny-howson-leeds-player-coach/
-
-**Diamondbacks' Ketel Marte says he lost $400K in home burglary**\
-`The break-in is the latest in a string of burglaries targeting professional athletes.`\
-https://nytimes.com/athletic/6508489/2025/07/22/ketel-marte-diamondbacks-burglary/
 
