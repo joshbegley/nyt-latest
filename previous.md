@@ -1,3 +1,7 @@
+**Dodgers' Tanner Scott exits 9th inning with apparent injury**\
+`The left-hander, who is in the first year of a four-year, $72 million deal, has struggled plenty in his first season in Los Angeles.`\
+https://nytimes.com/athletic/6507929/2025/07/22/los-angeles-dodgers-tanner-scott-exits-game/
+
 **L.A. Times Owner Says He Will Take Newspaper Public in Next Year**\
 `Dr. Patrick Soon-Shiong did not share details about the planned offering. The newspaper has not been profitable under him, and his job cuts have angered staff.`\
 https://nytimes.com/2025/07/22/business/media/la-times-newspaper-public.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495253/2025/07/22/premier-league-season-tickets-as
 **Full Time: USWNT’s mid-cycle review**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6507864/2025/07/22/uswnt-2027-world-cup-emma-hayes-full-time/
-
-**Bryan Mbeumo to Manchester United : Everything you need to know – TLDR**\
-`Manchester United have boosted their attack by signing Bryan Mbeumo from Brentford - here we break down the deal`\
-https://nytimes.com/athletic/6500257/2025/07/22/bryan-mbeumo-manchester-united-transfer-details/
 

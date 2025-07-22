@@ -1,3 +1,7 @@
+**Dodgers' Tanner Scott exits 9th inning with apparent injury**\
+`The left-hander, who is in the first year of a four-year, $72 million deal, has struggled plenty in his first season in Los Angeles.`\
+https://nytimes.com/athletic/6507929/2025/07/22/los-angeles-dodgers-tanner-scott-exits-game/
+
 **L.A. Times Owner Says He Will Take Newspaper Public in Next Year**\
 `Dr. Patrick Soon-Shiong did not share details about the planned offering. The newspaper has not been profitable under him, and his job cuts have angered staff.`\
 https://nytimes.com/2025/07/22/business/media/la-times-newspaper-public.html
