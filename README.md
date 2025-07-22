@@ -1,3 +1,11 @@
+**Broncos' defense embracing lofty expectations after 'monstrous' additions**\
+`The Broncos may have their most complete defensive personnel since 2015, but how quickly can the unit incorporate a handful of new players?`\
+https://nytimes.com/athletic/6509295/2025/07/22/broncos-defense-2025-training-camp/
+
+**Panthers release Josey Jewell as the LB focuses on concussion recovery**\
+`Trevin Wallace and Christian Rozeboom are the likely first-team inside linebackers with Jewell's release.`\
+https://nytimes.com/athletic/6509339/2025/07/22/panthers-josey-jewell-release-concussion/
+
 **gws-caribbean-ferries**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/caribbean-ferries
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/arts/film-forum-sonya-chung.html
 **gws-hyeres-france-beach-art-architecture**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/hyeres-france-beach-art-architecture
-
-**Alex Anzalone 'disappointed' over contract, Lions get physical: Training camp news and notes**\
-`Morice Norris was ejected for being too physical in practice.`\
-https://nytimes.com/athletic/6509218/2025/07/22/lions-training-camp-alex-anzalone-contract/
-
-**Ten Hag: Xhaka 'too important' for Leverkusen to lose amid Sunderland talks**\
-`The Athletic reported on Tuesday Xhaka, 32, was prioritising a move to Sunderland over other suitors.`\
-https://nytimes.com/athletic/6509386/2025/07/22/erik-ten-hag-granit-xhaka-leverkusen/
 
