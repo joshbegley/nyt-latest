@@ -1,3 +1,19 @@
+**Max Lazar shows some confidence, earns some trust in Phillies' weird walk-off**\
+`“He’s been great,” manager Rob Thomson said. “I trust him. He’s been really good. And he’s got ice in his veins, too."`\
+https://nytimes.com/athletic/6507839/2025/07/22/phillies-max-lazar-shows-confidence/
+
+**Universal Music Group Files for U.S. Public Offering**\
+`The group behind Taylor Swift and Lady Gaga submitted a confidential proposal with the Securities and Exchange Commission.`\
+https://nytimes.com/2025/07/22/business/universal-music-group-ipo.html
+
+**Premier League season tickets assessed: Most expensive? Cheapest? Do price rises affect transfer spend?**\
+`The direction of travel with season tickets is clear. Clubs continue to find ways to maximise revenue at the cost of matchgoing supporters`\
+https://nytimes.com/athletic/6495253/2025/07/22/premier-league-season-tickets-assessed-most-expensive-cheapest-do-price-rises-affect-transfer-spend/
+
+**Bryan Mbeumo to Manchester United : Everything you need to know – TLDR**\
+`Manchester United have boosted their attack by signing Bryan Mbeumo from Brentford - here we break down the deal`\
+https://nytimes.com/athletic/6500257/2025/07/22/bryan-mbeumo-manchester-united-transfer-details/
+
 **Full Time: USWNT’s mid-cycle review**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6507864/2025/07/22/uswnt-2027-world-cup-emma-hayes-full-time/

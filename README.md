@@ -1,40 +1,40 @@
-**Max Lazar shows some confidence, earns some trust in Phillies' weird walk-off**\
-`“He’s been great,” manager Rob Thomson said. “I trust him. He’s been really good. And he’s got ice in his veins, too."`\
-https://nytimes.com/athletic/6507839/2025/07/22/phillies-max-lazar-shows-confidence/
+**Francisco Alvarez, Brett Baty provide reason to believe in Mets' youth**\
+`The bottom of the Mets' lineup has struggled with a .612 OPS since June, but Monday showed why internal help might be coming. `\
+https://nytimes.com/athletic/6507830/2025/07/21/mets-francisco-alvarez-brett-baty-youth/
 
-**Universal Music Group Files for U.S. Public Offering**\
-`The group behind Taylor Swift and Lady Gaga submitted a confidential proposal with the Securities and Exchange Commission.`\
-https://nytimes.com/2025/07/22/business/universal-music-group-ipo.html
+**Cardinals trade deadline plans remain 'fluid' as John Mozeliak fields calls**\
+`Even if the Cardinals can turn their recent play around, their division rivals might make them deadline sellers anyway.`\
+https://nytimes.com/athletic/6507660/2025/07/21/st-louis-cardinals-trade-deadline-plans/
 
-**Premier League season tickets assessed: Most expensive? Cheapest? Do price rises affect transfer spend?**\
-`The direction of travel with season tickets is clear. Clubs continue to find ways to maximise revenue at the cost of matchgoing supporters`\
-https://nytimes.com/athletic/6495253/2025/07/22/premier-league-season-tickets-assessed-most-expensive-cheapest-do-price-rises-affect-transfer-spend/
+**Government’s H.R. Arm Shedding a Third of Staff**\
+`More than 750 workers have resigned with incentives, and more than 150 others have resigned without. The agency has also laid off 129 people.`\
+https://nytimes.com/2025/07/21/us/politics/office-personnel-management-layoffs.html
 
-**Full Time: USWNT’s mid-cycle review**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6507864/2025/07/22/uswnt-2027-world-cup-emma-hayes-full-time/
+**Phillies beat Red Sox on first walk-off catcher's interference since 1971**\
+`With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
+https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/
 
-**Bryan Mbeumo to Manchester United : Everything you need to know – TLDR**\
-`Manchester United have boosted their attack by signing Bryan Mbeumo from Brentford - here we break down the deal`\
-https://nytimes.com/athletic/6500257/2025/07/22/bryan-mbeumo-manchester-united-transfer-details/
+**For Damian Lillard, returning 'home' to Portland 'wasn’t hard at all'**\
+`After signing a three-year, $45 million deal to return to the Blazers, Lillard said "it never felt right, not being home.”`\
+https://nytimes.com/athletic/6507754/2025/07/21/damian-lillard-returns-to-portland/
 
-**P27, W0, D1, L26: Why England v Italy offers that rarest of prospects - a 'big six' Euros upset**\
-`There have been no genuine upsets at the past two Euros - the tournament favourites consistently make light work of beating the underdogs`\
-https://nytimes.com/athletic/6506798/2025/07/22/england-italy-big-six-underdogs-upsets/
+**When Betelgeuse Explodes, It’s Going to Take Out Another Star**\
+`The tempestuous star in Orion’s shoulder has a buddy, and neither of their futures look bright.`\
+https://nytimes.com/2025/07/21/science/betelgeuse-star-companion.html
 
-**The Death of a Mother and Child in Rome Stumped Police, So They Called a TV Show**\
-`When two bodies were found in a popular Roman park, Italians wanted answers. A TV program specializing in missing people helped identify them, and a suspect.`\
-https://nytimes.com/2025/07/22/world/europe/italy-mother-child-dead-police.html
+**Place for Umbrellas**\
+`Jeremy Newton gives us a brain freeze.`\
+https://nytimes.com/2025/07/21/crosswords/daily-puzzle-2025-07-22.html
 
-**Iran’s Leaders Turn to a New Brand of Nationalism After Israeli and U.S. Attacks**\
-`The theocratic government is repurposing folklore and patriotic anthems as it seeks to channel national outrage into increasing its support at home.`\
-https://nytimes.com/2025/07/22/world/middleeast/iran-nationalism-israel-us-attacks.html
+**Fan falls into Wrigley Field basket retrieving homer from Royals' Jac Caglianone**\
+`For that fan, he got a souvenir and a story to tell coming out of the game. `\
+https://nytimes.com/athletic/6507710/2025/07/21/fan-falls-into-wrigley-field-basket-cubs-royals/
 
-**Sharing a Bed With Your Kid? It’s Totally Normal in Asia.**\
-`Bed sharing tends to be unpopular and contentious in the United States. But in many Asian countries, the question is often not whether to do it, but when to stop.`\
-https://nytimes.com/2025/07/22/world/asia/bed-sharing-parents-children-sleep-asia.html
+**Brooklyn Activist Charged With Arson in Torching of 10 Police Vehicles**\
+`Jakhi McCray, 21, faces federal arson charges in connection with the burning of police vehicles in a parking lot last month.`\
+https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
 
-**Corrections: July 22, 2025**\
-`Corrections that appeared in print on Tuesday, July 22, 2025.`\
-https://nytimes.com/2025/07/22/pageoneplus/corrections-july-22-2025.html
+**Italian Americans, for and Against Mamdani, Square Off in New York**\
+`Feelings ran high at a colorful protest outside the Assembly district office of Zohran Mamdani, the Democratic mayoral nominee.`\
+https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
 
