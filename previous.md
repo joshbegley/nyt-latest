@@ -1,3 +1,15 @@
+**Marcell Ozuna trade appears inevitable; Austin Riley could return Tuesday**\
+`The Braves added veteran Sandy León as a third catcher Monday, another sign that slumping DH Marcell Ozuna will be traded before July 31.`\
+https://nytimes.com/athletic/6507871/2025/07/22/braves-adding-3rd-catcher-makes-marcell-ozuna-trade-seem-inevitable/
+
+**The Perverse Economics of Assisted Suicide**\
+`In an aging world, assisted suicide may look to governments like a cost-saving measure.`\
+https://nytimes.com/2025/07/22/opinion/assisted-suicide-economics.html
+
+**The New York Times in Print for Tuesday, July 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/22/todays-new-york-times
+
 **Dodgers' Tanner Scott exits 9th inning with apparent injury**\
 `The left-hander, who is in the first year of a four-year, $72 million deal, has struggled plenty in his first season in Los Angeles.`\
 https://nytimes.com/athletic/6507929/2025/07/22/los-angeles-dodgers-tanner-scott-exits-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6501648/2025/07/22/barcelona-rashford-register-la-l
 **Max Lazar shows some confidence, earns some trust in Phillies' weird walk-off**\
 `“He’s been great,” manager Rob Thomson said. “I trust him. He’s been really good. And he’s got ice in his veins, too."`\
 https://nytimes.com/athletic/6507839/2025/07/22/phillies-max-lazar-shows-confidence/
-
-**Universal Music Group Files for U.S. Public Offering**\
-`The group behind Taylor Swift and Lady Gaga submitted a confidential proposal with the Securities and Exchange Commission.`\
-https://nytimes.com/2025/07/22/business/universal-music-group-ipo.html
-
-**Premier League season tickets assessed: Most expensive? Cheapest? Do price rises affect transfer spend?**\
-`The direction of travel with season tickets is clear. Clubs continue to find ways to maximise revenue at the cost of matchgoing supporters`\
-https://nytimes.com/athletic/6495253/2025/07/22/premier-league-season-tickets-assessed-most-expensive-cheapest-do-price-rises-affect-transfer-spend/
-
-**Full Time: USWNT’s mid-cycle review**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6507864/2025/07/22/uswnt-2027-world-cup-emma-hayes-full-time/
 

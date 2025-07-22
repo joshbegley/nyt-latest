@@ -1,3 +1,15 @@
+**Marcell Ozuna trade appears inevitable; Austin Riley could return Tuesday**\
+`The Braves added veteran Sandy León as a third catcher Monday, another sign that slumping DH Marcell Ozuna will be traded before July 31.`\
+https://nytimes.com/athletic/6507871/2025/07/22/braves-adding-3rd-catcher-makes-marcell-ozuna-trade-seem-inevitable/
+
+**The Perverse Economics of Assisted Suicide**\
+`In an aging world, assisted suicide may look to governments like a cost-saving measure.`\
+https://nytimes.com/2025/07/22/opinion/assisted-suicide-economics.html
+
+**The New York Times in Print for Tuesday, July 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/22/todays-new-york-times
+
 **Dodgers' Tanner Scott exits 9th inning with apparent injury**\
 `The left-hander, who is in the first year of a four-year, $72 million deal, has struggled plenty in his first season in Los Angeles.`\
 https://nytimes.com/athletic/6507929/2025/07/22/los-angeles-dodgers-tanner-scott-exits-game/
