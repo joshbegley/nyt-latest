@@ -1,5 +1,5 @@
 **The Gift of a New Opera House, With a Grim Family History Attached**\
-`A billionaire will fund the construction of a new home in for the Hamburg State Opera. But questions linger over his company’s actions during World War II.`\
+`A billionaire will fund the construction of a new home for the Hamburg State Opera. But questions linger over his company’s actions during World War II.`\
 https://nytimes.com/2025/07/22/arts/music/hamburg-opera-house-klaus-michael-kuehne.html
 
 **'No d***heads': Why All Blacks guru Enoka is working with England's cricket team**\
