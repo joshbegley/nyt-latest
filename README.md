@@ -1,3 +1,7 @@
+**Brooklyn Activist Charged With Arson in Torching of 10 Police Vehicles**\
+`Jakhi McCray, 21, faces federal arson charges in connection with the burning of police vehicles in a parking lot last month.`\
+https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
+
 **Italian Americans, for and Against Mamdani, Square Off in New York**\
 `Feelings ran high at a colorful protest outside the Assembly district office of Zohran Mamdani, the Democratic mayoral nominee.`\
 https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6507467/2025/07/21/phillies-trade-deadine-david-rob
 **F.D.A. Panel Debates ‘Black Box’ Warning for Antidepressants in Pregnancy**\
 `An agency-sponsored forum included critics of psychiatry who believe the drugs can harm a developing fetus. Other experts said antidepressants were safe and necessary.`\
 https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html
-
-**Hunter Biden Trashes Democrats He Saw as Betraying His Father**\
-`In a profane tirade, the former president’s son sought to settle scores with Anita Dunn, David Axelrod, James Carville and George Clooney. Among others.`\
-https://nytimes.com/2025/07/21/us/politics/hunter-biden-podcast.html
 
