@@ -1,3 +1,11 @@
+**G.M. Profit Shrinks on Billion-Dollar Tariff Hit**\
+`General Motors was the second auto company this week, after Stellantis, to show the toll that President Trump’s trade policies are taking on the industry.`\
+https://nytimes.com/2025/07/22/business/gm-profit-tariffs-trump.html
+
+**The Pulse: Let’s start football season with some takes**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6506943/2025/07/22/nfl-power-rankings-the-pulse/
+
 **Xhaka tells Leverkusen he wants Sunderland move**\
 `The 32-year-old is prioritising a move to Regis Le Bris’ men over other suitors.`\
 https://nytimes.com/athletic/6508096/2025/07/22/granit-xhaka-sunderland-transfer-leverkusen/
