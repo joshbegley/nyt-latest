@@ -1,3 +1,7 @@
+**Trump v. Murdoch Is an Odd Battle of Titans**\
+`The two are constrained by the thing that has kept them linked for a decade: their shared reliance on Fox News die-hards.`\
+https://nytimes.com/2025/07/22/business/media/trump-murdoch-fox-wall-street-journal.html
+
 **Ozzy Osbourne, the Lovable Prince of Darkness**\
 `The rocker helped define the sound, look and attitude of metal. But his persistence through addiction, his connection to audience and a late-career reality TV show endeared him to generations.`\
 https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-prince-of-darkness-black-sabbath.html
