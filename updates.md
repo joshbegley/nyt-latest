@@ -1,3 +1,11 @@
+**Shia LaBeouf Settles Sexual Battery Lawsuit by FKA twigs**\
+`A joint statement by their lawyers said they wished “each other personal happiness, professional success and peace in the future.”`\
+https://nytimes.com/2025/07/22/arts/music/shia-labeouf-fka-twigs-lawsuit-settlement.html
+
+**The Briefing: England 2 Italy 1 – Lionesses into final again after another Agyemang-Kelly rescue act**\
+`Charlotte Harpur and Cerys Jones analyse the main talking points as England beat Italy in their Euro 2025 semi-final`\
+https://nytimes.com/athletic/6506143/2025/07/22/england-italy-euros-analysis/
+
 **Amid Fear of Retaliation, N.S.F. Workers Sign Letter of Dissent**\
 `In a public letter, employees of the National Science Foundation accused the administration of politicizing the agency and impeding scientific innovation.`\
 https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html

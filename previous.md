@@ -1,3 +1,11 @@
+**Shia LaBeouf Settles Sexual Battery Lawsuit by FKA twigs**\
+`A joint statement by their lawyers said they wished “each other personal happiness, professional success and peace in the future.”`\
+https://nytimes.com/2025/07/22/arts/music/shia-labeouf-fka-twigs-lawsuit-settlement.html
+
+**The Briefing: England 2 Italy 1 – Lionesses into final again after another Agyemang-Kelly rescue act**\
+`Charlotte Harpur and Cerys Jones analyse the main talking points as England beat Italy in their Euro 2025 semi-final`\
+https://nytimes.com/athletic/6506143/2025/07/22/england-italy-euros-analysis/
+
 **Amid Fear of Retaliation, N.S.F. Workers Sign Letter of Dissent**\
 `In a public letter, employees of the National Science Foundation accused the administration of politicizing the agency and impeding scientific innovation.`\
 https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/nyregion/desiree-grace-new-jersey-us-attorney.htm
 **No One Controls MAGA — Not Even Trump**\
 `Even the president has to negotiate with his base.`\
 https://nytimes.com/2025/07/22/opinion/trump-epstein-maga-support.html
-
-**Colorado Rockies sign No. 4 overall pick Ethan Holliday with historic bonus**\
-`The deal includes a reported $9 million bonus, the highest ever for a player out of high school.`\
-https://nytimes.com/athletic/6509605/2025/07/22/rockies-ethan-holliday-contract-signing/
-
-**Bears training camp: Caleb Williams' goals, Jaylon Johnson's injury, left tackle battle**\
-`The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Williams and DT Jarrett.`\
-https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-williams-goals-jaylon-johnson/
 
