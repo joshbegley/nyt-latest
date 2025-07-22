@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Wednesday, July 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/22/todays-new-york-times-international-edition
+**Vikings training camp: 10 things I’ll be watching when it kicks off**\
+`Fans are hopeful about the Vikings after their successful offseason. Here are 10 things our expert will be watching when practice begins.`\
+https://nytimes.com/athletic/6506984/2025/07/22/vikings-training-camp-storylines/
 
-**Fiona Hill, Trump’s Ex-Russia Adviser, on Why Great Powers Fall**\
-`The former White House aide recently returned to her roots, advising Britain on defense and taking a role at Durham University in northeastern England. She still has her eye on global threats.`\
-https://nytimes.com/2025/07/22/world/europe/fiona-hill-trump-russia-uk-defense.html
+**Cowboys report: Expect Dak Prescott's workload to be limited during camp**\
+`The Cowboys also discussed having a physical training camp, Trevon Diggs' pay cut and briefly touched on KaVontae Turpin's offseason.`\
+https://nytimes.com/athletic/6507391/2025/07/22/cowboys-training-camp-dak-prescott/
 
-**How NBA scouts evaluate talent in the summer league**\
-`NBA Summer League is a "gold mine" for scouts searching for players to fill out rosters. Here's why it's more useful than ever.`\
-https://nytimes.com/athletic/6506886/2025/07/22/nba-summer-league-2025-scouting-players/
+**Twins lose again as trade deadline looms: 'We know the situation'**\
+`July 31 is fast approaching for a Twins team who have struggled all season to stay on the correct course.`\
+https://nytimes.com/athletic/6507982/2025/07/22/twins-dodgers-byron-buxton-ohtani/
 
-**How to watch Fever at Liberty: Clark out, Jones in for high-profile rematch**\
-`Will the short-handed Fever be able to knock off the defending champions as they return to full strength?`\
-https://nytimes.com/athletic/6507372/2025/07/22/fever-liberty-caitlin-clark-how-to-watch/
+**Preseason All-Big Ten team: Drew Allar, Jeremiah Smith headline stacked 2025 list**\
+`The Athletic's 2025 Preseason All-Big Ten team features returning stars, high-level transfers and talent from all over the league. `\
+https://nytimes.com/athletic/6502725/2025/07/22/preseason-all-big-ten-team-drew-allar/
 
-**The Patriots' top storylines as training camp opens**\
-`Is Stefon Diggs healthy, and can he be a legit No. 1 receiver? Is the pass rush good enough? Can Drake Maye take the next step forward?`\
-https://nytimes.com/athletic/6506866/2025/07/22/patriots-training-camp-storylines/
+**Projecting Ravens' 53-man roster as training camp gets underway**\
+`Which returning players from last season may be on the roster bubble? And will either rookie kicker be a worthy successor to Justin Tucker?`\
+https://nytimes.com/athletic/6499096/2025/07/22/ravens-53-man-roster-projection-training-camp/
 
-**In Search of Trade Deal, Philippines’ Leader Will Meet With Trump**\
-`President Trump has placed a 20 percent tariff on goods imported from the country, effective Aug. 1.`\
-https://nytimes.com/2025/07/22/us/politics/trump-trade-philippines-marcos.html
+**Smith: Want Verstappen, Toto? Then make a blockbuster Russell partnership work for F1**\
+`Mercedes is yet to name its 2026 F1 drivers. With interest from Red Bull's Max Verstappen, Luke Smith argues he should join George Russell`\
+https://nytimes.com/athletic/6506174/2025/07/22/verstappen-mercedes-russell-f1/
 
-**Are the Democrats Dead or Alive?**\
-`Trump’s approval rating is falling. It’s not helping his opponents.`\
-https://nytimes.com/2025/07/22/opinion/are-the-democrats-dead-or-alive.html
+**How surprising was Brian Schottenheimer's Cowboys hiring? Even he didn't see it coming**\
+`Schottenheimer, who twice turned down head-coaching opportunities, finally landed a job after going 12 hiring cycles without an interview.`\
+https://nytimes.com/athletic/6502460/2025/07/22/dallas-cowboys-coach-brian-schottenheimer-nfl-training-camp/
 
-**A City’s in Grave Danger. Why Would Superman Save a Squirrel?**\
-`The moment is key to understanding the director James Gunn’s conception of Superman. But it almost didn’t make the final cut.`\
-https://nytimes.com/2025/07/22/movies/superman-squirrel-james-gunn.html
+**Why Trump Just Gave China the Keys to A.I.’s Future**\
+`Inside the reversal of a policy that barred the tech company Nvidia from exporting powerful chips to China.`\
+https://nytimes.com/2025/07/22/podcasts/the-daily/trump-china-nvidia.html
 
-**Call It the Labubu Effect: Cute Sidekicks Rule Multiplexes This Summer**\
-`In hit after hit, adorable monsters — as chaotic and cuddly as the popular accessory — have fulfilled moviegoers’ need for escapism.`\
-https://nytimes.com/2025/07/22/movies/labubu-movie-sidekicks-stitch-toothless.html
+**Seven questions Browns must answer during training camp: Which QB will start Week 1?**\
+`Can Cleveland find the right QB for the job this summer? Can the defense be the kind of bully it was for much of the 2023 season?`\
+https://nytimes.com/athletic/6507232/2025/07/22/browns-quarterbacks-training-camp-questions/
 
-**There Is Hope for Democrats. Look to Kansas.**\
-`Two Opinion writers on the Democratic governors who might just save the party.`\
-https://nytimes.com/2025/07/22/opinion/democrats-governors-2028-kansas.html
+**M.L.K. Files Released, and Troops Are Withdrawing From California**\
+`Plus, the missing child case that changed America.`\
+https://nytimes.com/2025/07/22/podcasts/the-headlines/mlk-files-troops-california.html
 
