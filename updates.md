@@ -1,3 +1,15 @@
+**Austria Prepares to Give Up ‘Dream’ of Disarmament**\
+`Historically neutral, the country is set to double military spending, even in the midst of a budget crisis, as its neighbors also spend big to counter Russia.`\
+https://nytimes.com/2025/07/22/world/europe/austria-stocker-military-spending.html
+
+**How accurate can Michael Penix Jr. be? 7 key questions as Falcons training camp begins**\
+`Can the Falcons end their playoff drought? How much can Bijan Robinson carry? These questions are on our mind as training camp begins.`\
+https://nytimes.com/athletic/6497841/2025/07/22/falcons-training-camp-questions-2025/
+
+**Who are the Stud Budz? Understanding the sensation of WNBA All-Star Weekend**\
+`Courtney Williams and Natisha Hiedeman were the unexpected stars thanks to the uninhibited joy of their ever-present Twitch livestream.`\
+https://nytimes.com/athletic/6507411/2025/07/22/stud-budz-studbudz-courtney-williams-natisha-hiedeman-wnba-twitch/
+
 **Vikings training camp: 10 things I’ll be watching when it kicks off**\
 `Fans are hopeful about the Vikings after their successful offseason. Here are 10 things our expert will be watching when practice begins.`\
 https://nytimes.com/athletic/6506984/2025/07/22/vikings-training-camp-storylines/

@@ -1,3 +1,15 @@
+**Austria Prepares to Give Up ‘Dream’ of Disarmament**\
+`Historically neutral, the country is set to double military spending, even in the midst of a budget crisis, as its neighbors also spend big to counter Russia.`\
+https://nytimes.com/2025/07/22/world/europe/austria-stocker-military-spending.html
+
+**How accurate can Michael Penix Jr. be? 7 key questions as Falcons training camp begins**\
+`Can the Falcons end their playoff drought? How much can Bijan Robinson carry? These questions are on our mind as training camp begins.`\
+https://nytimes.com/athletic/6497841/2025/07/22/falcons-training-camp-questions-2025/
+
+**Who are the Stud Budz? Understanding the sensation of WNBA All-Star Weekend**\
+`Courtney Williams and Natisha Hiedeman were the unexpected stars thanks to the uninhibited joy of their ever-present Twitch livestream.`\
+https://nytimes.com/athletic/6507411/2025/07/22/stud-budz-studbudz-courtney-williams-natisha-hiedeman-wnba-twitch/
+
 **Vikings training camp: 10 things I’ll be watching when it kicks off**\
 `Fans are hopeful about the Vikings after their successful offseason. Here are 10 things our expert will be watching when practice begins.`\
 https://nytimes.com/athletic/6506984/2025/07/22/vikings-training-camp-storylines/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6506174/2025/07/22/verstappen-mercedes-russell-f1/
 **How surprising was Brian Schottenheimer's Cowboys hiring? Even he didn't see it coming**\
 `Schottenheimer, who twice turned down head-coaching opportunities, finally landed a job after going 12 hiring cycles without an interview.`\
 https://nytimes.com/athletic/6502460/2025/07/22/dallas-cowboys-coach-brian-schottenheimer-nfl-training-camp/
-
-**Why Trump Just Gave China the Keys to A.I.’s Future**\
-`Inside the reversal of a policy that barred the tech company Nvidia from exporting powerful chips to China.`\
-https://nytimes.com/2025/07/22/podcasts/the-daily/trump-china-nvidia.html
-
-**Seven questions Browns must answer during training camp: Which QB will start Week 1?**\
-`Can Cleveland find the right QB for the job this summer? Can the defense be the kind of bully it was for much of the 2023 season?`\
-https://nytimes.com/athletic/6507232/2025/07/22/browns-quarterbacks-training-camp-questions/
-
-**M.L.K. Files Released, and Troops Are Withdrawing From California**\
-`Plus, the missing child case that changed America.`\
-https://nytimes.com/2025/07/22/podcasts/the-headlines/mlk-files-troops-california.html
 
