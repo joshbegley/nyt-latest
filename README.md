@@ -1,3 +1,7 @@
+**gws-hyeres-france-beach-art-architecture**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/hyeres-france-beach-art-architecture
+
 **Alex Anzalone 'disappointed' over contract, Lions get physical: Training camp news and notes**\
 `Morice Norris was ejected for being too physical in practice.`\
 https://nytimes.com/athletic/6509218/2025/07/22/lions-training-camp-alex-anzalone-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/us/politics/republicans-trump-agenda.html
 **An Opera Company That Operates Like Bel Canto Summer Camp**\
 `Teatro Nuovo, which trains musicians in bel canto style, returns with productions of a rare “Macbeth” and “La Sonnambula.”`\
 https://nytimes.com/2025/07/22/arts/music/teatro-nuovo.html
-
-**In New Deal, Trump Keeps Tariffs While Indonesia Drops Trade Barriers**\
-`The administration provided some insight into the terms that were agreed upon between Indonesia and the United States, hinting at how other vague and hastily negotiated deals may turn out.`\
-https://nytimes.com/2025/07/22/us/politics/trump-indonesia-trade-deal.html
 
