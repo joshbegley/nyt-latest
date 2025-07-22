@@ -1,3 +1,11 @@
+**Nebraska's Rhule defends, welcomes back Scott Frost after 'wrong job' comments**\
+`Rhule told The Athletic that he made a deliberate choice to embrace Frost, rather than to remain mired negativity.`\
+https://nytimes.com/athletic/6509890/2025/07/22/matt-rhule-scott-frost-nebraska/
+
+**D.A. Who Led Etan Patz Case Says Conviction Reversal Came as a Shock**\
+`Cyrus Vance prosecuted Pedro Hernandez twice. An appeals court overturned the conviction, ruling that the trial judge should not have let jurors consider an improper confession.`\
+https://nytimes.com/2025/07/22/nyregion/etan-patz-cyrus-vance-reaction.html
+
 **CSC, House attorneys end standoff over how collectives are policed: Sources**\
 `Collectives can offer goods and services in the form of NIL payments, and they can send those deals through the clearinghouse for approval.`\
 https://nytimes.com/athletic/6509845/2025/07/22/csc-collectives-rules-house-settlement/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/nyregion/columbia-university-expels-suspends-stud
 **Micah Parsons attends camp, says it's time for Cowboys to get contract done**\
 `Parsons said he's dealing with back tightness and it also sounded like a new deal with Dallas wasn't close.`\
 https://nytimes.com/athletic/6509621/2025/07/22/cowboys-micah-parsons-contract-jerry-jones/
-
-**Trump v. Murdoch Is an Odd Battle of Titans**\
-`The two are constrained by the thing that has kept them linked for a decade: their shared reliance on Fox News die-hards.`\
-https://nytimes.com/2025/07/22/business/media/trump-murdoch-fox-wall-street-journal.html
-
-**Ozzy Osbourne, the Lovable Prince of Darkness**\
-`The rocker helped define the sound, look and attitude of metal. But his persistence through addiction, his connection to audience and a late-career reality TV show endeared him to generations.`\
-https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-prince-of-darkness-black-sabbath.html
 
