@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, July 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/22/todays-new-york-times-international-edition
+
 **Fiona Hill, Trump’s Ex-Russia Adviser, on Why Great Powers Fall**\
 `The former White House aide recently returned to her roots, advising Britain on defense and taking a role at Durham University in northeastern England. She still has her eye on global threats.`\
 https://nytimes.com/2025/07/22/world/europe/fiona-hill-trump-russia-uk-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/movies/labubu-movie-sidekicks-stitch-toothless.ht
 **There Is Hope for Democrats. Look to Kansas.**\
 `Two Opinion writers on the Democratic governors who might just save the party.`\
 https://nytimes.com/2025/07/22/opinion/democrats-governors-2028-kansas.html
-
-**The Hottest New Cafe Is in Someone’s Living Room**\
-`Young hosts are turning their apartments into makeshift coffeehouses, and documenting the process on social media. Are they social events or side hustles?`\
-https://nytimes.com/2025/07/22/style/home-cafe-restaurant-popup.html
 
