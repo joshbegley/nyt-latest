@@ -1,4 +1,8 @@
-**Republicans Look to Rename Kennedy Center Opera House after Melania Trump**\
+**Amid Fear of Retaliation, N.S.F. Workers Sign Letter of Dissent**\
+`In a public letter, employees of the National Science Foundation accused the administration of politicizing the agency and impeding scientific innovation.`\
+https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html
+
+**Republicans Look to Rename Kennedy Center Opera House After Melania Trump**\
 `Republican members of the Appropriations Committee approved an amendment to a spending bill that would rename the venue after the first lady.`\
 https://nytimes.com/2025/07/22/arts/kennedy-center-opera-melania-trump.html
 
@@ -27,10 +31,6 @@ https://nytimes.com/2025/07/22/opinion/trump-epstein-maga-support.html
 https://nytimes.com/athletic/6509605/2025/07/22/rockies-ethan-holliday-contract-signing/
 
 **Bears training camp: Caleb Williams' goals, Jaylon Johnson's injury, left tackle battle**\
-`The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Caleb Williams and DT Grady Jarrett.`\
+`The Bears opened training camp on Tuesday, and we heard from GM Ryan Poles, head coach Ben Johnson, QB Williams and DT Jarrett.`\
 https://nytimes.com/athletic/6509569/2025/07/22/bears-training-camp-caleb-williams-goals-jaylon-johnson/
-
-**NFLPA president: Vote on interim union leader to be held in 'near future'**\
-`Following a week marked by two high-profile resignations from the NFL players' union, Reeves-Maybin outlined next steps.`\
-https://nytimes.com/athletic/6509465/2025/07/22/nflpa-president-jalen-reeves-maybin-vote-near-future/
 
