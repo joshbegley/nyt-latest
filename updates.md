@@ -1,3 +1,15 @@
+**gws-hyeres-france-beach-art-architecture**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/hyeres-france-beach-art-architecture
+
+**Alex Anzalone 'disappointed' over contract, Lions get physical: Training camp news and notes**\
+`Morice Norris was ejected for being too physical in practice.`\
+https://nytimes.com/athletic/6509218/2025/07/22/lions-training-camp-alex-anzalone-contract/
+
+**Ten Hag: Xhaka 'too important' for Leverkusen to lose amid Sunderland talks**\
+`The Athletic reported on Tuesday Xhaka, 32, was prioritising a move to Sunderland over other suitors.`\
+https://nytimes.com/athletic/6509386/2025/07/22/erik-ten-hag-granit-xhaka-leverkusen/
+
 **Digital artwork of Lionel Messi's favorite goal sold for $1.87M to mystery buyer**\
 `The elaborate project depicted Messi's most cherished goal from his glittering career.`\
 https://nytimes.com/athletic/6509309/2025/07/22/lionel-messi-refik-anadol-artwork-christies/
