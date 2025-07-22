@@ -1,3 +1,11 @@
+**What to Know About the Texas Special Session**\
+``\
+https://nytimes.com/live/2025/us/texas-special-session
+
+**Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
+`His New Albion Brewing Company, founded in 1976, was considered the first microbrewery. It set the model for thousands more to come.`\
+https://nytimes.com/2025/07/22/us/jack-mcauliffe-dead.html
+
 **Trump’s Accusations Against Obama Are ‘Ridiculous’ and ‘Weak,’ Spokesman Says**\
 `Talking to reporters from the Oval Office, President Trump accused his predecessor of treason.`\
 https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
