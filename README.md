@@ -1,3 +1,11 @@
+**Diggs cleared to fully participate in Patriots training camp after ACL tear**\
+`Diggs tore his ACL in Week 8 after recording 47 catches for 496 yards and three touchdowns with the Texans last season.`\
+https://nytimes.com/athletic/6508317/2025/07/22/stefon-diggs-cleared-patriots-acl-injury/
+
+**Zelensky’s Government Takes Aim at Corruption Fighters**\
+`Ukraine’s president ran on a promise to clean things up, but critics say his government is cracking down on anti-corruption activists, critics and agencies.`\
+https://nytimes.com/2025/07/22/world/europe/zelensky-ukraine-corruption.html
+
 **U.S. Says It Will Withdraw From U.N. Cultural Organization, Again**\
 `A decision to pull out of UNESCO was the latest move by the Trump administration to cut ties with international organizations.`\
 https://nytimes.com/2025/07/22/world/europe/us-withdraw-unesco.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6500177/2025/07/22/raiders-position-battles-trainin
 **Seahawks training camp preview: Five storylines to watch in 2025**\
 `Let's preview some of the most intriguing storylines, starting with the void at tight end created by a major roster move over the weekend.`\
 https://nytimes.com/athletic/6507662/2025/07/22/seahawks-storylines-training-camp/
-
-**What the Sabres are getting in Josh Doan: 'He's a winner'**\
-`The Sabres have talked about the need to change their culture, and Doan is the type of person who can help lead that change.`\
-https://nytimes.com/athletic/6502688/2025/07/22/buffalo-sabres-josh-doan/
-
-**Jets fan survey: Jonathan Toews' ceiling? Scott Arniel's impact? Playoff outlook?**\
-`Which top prospects make the team? What's a reasonable prediction for Toews' performance? The choices are yours to make.`\
-https://nytimes.com/athletic/6507268/2025/07/22/winnipeg-jets-jonathan-toews-scott-arniel-playoffs/
 

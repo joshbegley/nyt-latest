@@ -1,3 +1,7 @@
+**U.S. Says It Will Withdraw From U.N. Cultural Organization, Again**\
+`A decision to pull out of UNESCO was the latest move by the Trump administration to cut ties with international organizations.`\
+https://nytimes.com/2025/07/22/world/europe/us-withdraw-unesco.html
+
 **Trump Administration Live Updates: U.S. Pulls Out of UNESCO Again**\
 ``\
 https://nytimes.com/live/2025/07/22/us/trump-news
