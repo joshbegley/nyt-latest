@@ -1,3 +1,7 @@
+**Matteo Jorgenson interview: 'We don't have regrets with how we've raced'**\
+`Jorgenson talks to The Athletic about his approach to this year's Tour de France, tension with Pogacar and the state of American cycling  `\
+https://nytimes.com/athletic/6506481/2025/07/22/tour-de-france-matteo-jorgenson-interview/
+
 **Leeds confirm signing of Stach from Hoffenheim**\
 `The 26-year-old midfielder has signed a four-year deal at Elland Road.`\
 https://nytimes.com/athletic/6503703/2025/07/22/leeds-anton-stach-transfer-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/insider/aging-loneliness.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/22/crosswords/spelling-bee-forum.html
-
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Our team of dedicated writers take you inside the transfer market to explain the deals being worked on across Europe and beyond`\
-https://nytimes.com/athletic/6506078/2025/07/22/manchester-united-transfer-news-latest-analysis-arsenal-liverpool-real-madrid/
 
