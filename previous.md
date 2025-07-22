@@ -1,3 +1,15 @@
+**In Virginia, the Attack on University Presidents Widens**\
+`Gregory Washington, the first Black president of George Mason University, is under fire for his promotion of campus diversity.`\
+https://nytimes.com/2025/07/22/us/virginia-university-presidents-dei-trump.html
+
+**Tour de France stage 16: Mont Ventoux delivers, Paret-Peintre outsprints Healy for victory, Pogacar sets record time**\
+`Analysis of the latest day's action in the 2025 race - a 171km stage from Montpellier to Mont Ventoux`\
+https://nytimes.com/athletic/6508220/2025/07/22/tour-de-france-stage-16-analysis/
+
+**Empathy and Justice in Global Health**\
+`Readers respond to a doctor’s guest essay. Also: President Trump and team names; the president’s effect on Canada.`\
+https://nytimes.com/2025/07/22/opinion/global-health-empathy-justice.html
+
 **Mountain Lion Is Euthanized After Attacking a Child in Olympic National Park**\
 `The 4-year-old child, who was treated at a hospital and released, had been walking with family members on a popular trail in the park.`\
 https://nytimes.com/2025/07/22/us/mountain-lion-bite-child-washington.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrow
 **Russia and Ukraine to Renew Talks, but Peace Remains Elusive**\
 `Russia and Ukraine are expected to hold another round of negotiations on Wednesday in Istanbul, but the two warring countries have flatly rejected each other’s demands.`\
 https://nytimes.com/2025/07/22/world/europe/russia-ukraine-talks.html
-
-**Need another fantasy football advantage? Draft a WR and QB from the same team**\
-`Michael Salfino talks "stacking," a fantasy football strategy where you draft players from the same NFL team, often QBs, WRs and TEs. `\
-https://nytimes.com/athletic/6508740/2025/07/22/fantasy-football-2025-stacking-qb-wr/
-
-**As Theo Huxtable, Malcolm-Jamal Warner Grew Up Before Our Eyes**\
-`The character’s journey into adulthood was at the center of “The Cosby Show.” Here are five memorable episodes from the show’s run.`\
-https://nytimes.com/2025/07/22/arts/television/malcolm-jamal-warner-cosby-show.html
-
-**ACC commissioner: Give NCAA revenue sharing model a chance amid uncertainty**\
-`Schools have  been able to pay players directly for three weeks, and questions have already surfaced about the new system's sustainability.`\
-https://nytimes.com/athletic/6508762/2025/07/22/acc-commissioner-ncaa-revenue-sharing-model/
 
