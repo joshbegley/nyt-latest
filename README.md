@@ -1,3 +1,7 @@
+**Jon Stewart Supports Friend Stephen Colbert Through CBS Cancellation**\
+`Stewart admitted that he was “certainly not the most objective to comment on this matter” before sharing his feelings about the end of “The Late Show.”`\
+https://nytimes.com/2025/07/22/arts/television/jon-stewart-supports-stephen-colbert.html
+
 **Mathieu van der Poel abandons Tour de France after pneumonia diagnosis**\
 `The 30-year-old had been enjoying the best Tour of his career, having won stage two and worn the yellow jersey on two separate occasions.`\
 https://nytimes.com/athletic/6508013/2025/07/22/mathieu-van-der-poel-tour-de-france-pneumonia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506078/2025/07/22/manchester-united-transfer-news-
 **First Pill for Postpartum Depression Shows Varied Real-World Results**\
 `Some women’s symptoms improved quickly after taking the pill, but depression persisted in others. Doctors are trying to learn which patients benefit, and why some don’t.`\
 https://nytimes.com/2025/07/22/health/post-partum-depression-treatment-pill.html
-
-**Leeds new boy Jaka Bijol on the Premier League, a busy summer, and the Tour de France**\
-`Leeds United's latest defensive recruit tells The Athletic why his love of cycling sometimes leaves team-mates perplexed`\
-https://nytimes.com/athletic/6506962/2025/07/22/jaka-bijol-interview-leeds/
 
