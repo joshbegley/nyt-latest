@@ -1,3 +1,7 @@
+**Trump’s Accusations Against Obama Are ‘Ridiculous’ and ‘Weak,’ Spokesman Says**\
+`Talking to reporters from the Oval Office, President Trump accused his predecessor of treason.`\
+https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
+
 **Most Planned Parenthood Clinics Are Ineligible for Medicaid Money After Court Ruling**\
 `A judge issued a preliminary injunction that allowed only some of the group’s health centers to receive payments for services like birth control and checkups.`\
 https://nytimes.com/2025/07/22/us/politics/trump-planned-parenthood.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/22/us/politics/trump-obama-clinton-epstein-treason.h
 `Representative Alexandria Ocasio-Cortez’s Bronx campaign office was defaced with red paint and a message citing the war in Gaza. The police are investigating.`\
 https://nytimes.com/2025/07/22/nyregion/aoc-office-vandalized-gaza.html
 
-**What to Know About the Texas Special Session**\
+**Texas Lawmakers Will Debate Flood Response, Redistricting and Other Issues**\
 ``\
 https://nytimes.com/live/2025/us/texas-special-session
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6509454/2025/07/22/flyers-porter-martone-commits-mi
 **ICE Arrests Haitian Oligarch Accused of Supporting Gangs**\
 `A member of Haiti’s elite is facing accusations that he helped support violent gangs that have wreaked havoc in the Caribbean nation.`\
 https://nytimes.com/2025/07/22/us/haiti-oligarch-ice-arrest.html
-
-**Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
-`His New Albion Brewing Company, founded in 1976, was considered the first microbrewery. It set the model for thousands more to come.`\
-https://nytimes.com/2025/07/22/us/jack-mcauliffe-dead.html
 
