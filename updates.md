@@ -1,3 +1,7 @@
+**Cristhian Mosquera en route to Singapore to join Arsenal's pre-season tour**\
+`The 21-year-old defender has been given the green light to join the rest of the squad in Singapore.`\
+https://nytimes.com/athletic/6492618/2025/07/22/cristhian-mosquera-flying-singapore-arsenal-tour-transfer/
+
 **Matteo Jorgenson interview: 'We don't have regrets with how we've raced'**\
 `Jorgenson talks to The Athletic about his approach to this year's Tour de France, tension with Pogacar and the state of American cycling  `\
 https://nytimes.com/athletic/6506481/2025/07/22/tour-de-france-matteo-jorgenson-interview/

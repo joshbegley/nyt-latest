@@ -1,4 +1,4 @@
-**Cristhian Mosquera en route to Singapore to join Arsenal's pre-season tour**\
+**Mosquera flying to Singapore to join Arsenal's pre-season tour**\
 `The 21-year-old defender has been given the green light to join the rest of the squad in Singapore.`\
 https://nytimes.com/athletic/6492618/2025/07/22/cristhian-mosquera-flying-singapore-arsenal-tour-transfer/
 
