@@ -1,3 +1,11 @@
+**How NBA scouts evaluate talent in the summer league**\
+`NBA Summer League is a "gold mine" for scouts searching for players to fill out rosters. Here's why it's more useful than ever.`\
+https://nytimes.com/athletic/6506886/2025/07/22/nba-summer-league-2025-scouting-players/
+
+**How to watch Fever at Liberty: Clark out, Jones in for high-profile rematch**\
+`Will the short-handed Fever be able to knock off the defending champions as they return to full strength?`\
+https://nytimes.com/athletic/6507372/2025/07/22/fever-liberty-caitlin-clark-how-to-watch/
+
 **The Patriots' top storylines as training camp opens**\
 `Is Stefon Diggs healthy, and can he be a legit No. 1 receiver? Is the pass rush good enough? Can Drake Maye take the next step forward?`\
 https://nytimes.com/athletic/6506866/2025/07/22/patriots-training-camp-storylines/

@@ -1,3 +1,7 @@
+**Fiona Hill, Trump’s Ex-Russia Adviser, on Why Great Powers Fall**\
+`The former White House aide recently returned to her roots, advising Britain on defense and taking a role at Durham University in northeastern England. She still has her eye on global threats.`\
+https://nytimes.com/2025/07/22/world/europe/fiona-hill-trump-russia-uk-defense.html
+
 **How NBA scouts evaluate talent in the summer league**\
 `NBA Summer League is a "gold mine" for scouts searching for players to fill out rosters. Here's why it's more useful than ever.`\
 https://nytimes.com/athletic/6506886/2025/07/22/nba-summer-league-2025-scouting-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/opinion/democrats-governors-2028-kansas.html
 **The Hottest New Cafe Is in Someone’s Living Room**\
 `Young hosts are turning their apartments into makeshift coffeehouses, and documenting the process on social media. Are they social events or side hustles?`\
 https://nytimes.com/2025/07/22/style/home-cafe-restaurant-popup.html
-
-**Hey, My Kid Could Have Drawn That! Hers Did.**\
-`A designer and ceramicist set out to build a house in New York’s Hudson Valley region that her family could live in forever. Her son’s sketches stole the show.`\
-https://nytimes.com/2025/07/22/realestate/kid-drawings-bathroom-tile-thacker.html
 
