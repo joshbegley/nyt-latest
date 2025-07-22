@@ -1,3 +1,7 @@
+**From Bogota to Queens: La Cancha Arena is home away from home**\
+`A New York restaurant shows why soccer, food and family are deeply connected in Colombian culture.`\
+https://nytimes.com/athletic/6500107/2025/07/22/finding-futbol-queens-colombia/
+
 **As the Dollar Slides, the Euro Is Picking Up Speed**\
 `The euro has been gaining steam as investors seek new havens during geopolitical turmoil.`\
 https://nytimes.com/2025/07/22/business/euro-dollar-currency-tariffs.html
