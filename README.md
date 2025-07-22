@@ -1,3 +1,12 @@
+**Qatar confirms bid to host 2036 Olympic and Paralympic Games**\
+`The Gulf nation hosted the 2022 men's World Cup, which attracted criticism due to its anti-LGBTQ+ laws and the deaths of migrant workers.
+`\
+https://nytimes.com/athletic/6508282/2025/07/22/qatar-olympic-games-2036/
+
+**Terrence Shannon Jr. stakes his claim to a Timberwolves rotation spot**\
+`Shannon probably didn't need to play in Vegas. But he sure played like he needed to.`\
+https://nytimes.com/athletic/6505195/2025/07/22/terrence-shannon-jr-timberwolves-nba-summer-league/
+
 **The 6 MLB front office executives under the most pressure this trade deadline**\
 `Every front office is under the microscope at this time of year. But certain executives face more pressure to deliver than ever before. `\
 https://nytimes.com/athletic/6508193/2025/07/22/mlb-trade-deadline-front-offices-pressure/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/07/22/world/asia/india-uk-f35-jet-kerala-airport.html
 **Wolves close to agreeing deal for Almeria right-back Pubill**\
 `Vitor Pereira's side have been looking to strengthen the right-back position after Nelson Semedo’s contract expired at the end of June.`\
 https://nytimes.com/athletic/6508102/2025/07/22/wolves-marc-pubill-transfer-almeria/
-
-**Understanding the Epstein Saga**\
-`In the swirl of conspiracy theories, it’s hard to tell what’s real.`\
-https://nytimes.com/2025/07/22/briefing/understanding-the-epstein-saga.html
-
-**Yankees' Spencer Jones ahead of the trade deadline: 'I want to play in New York'**\
-`Jones said he understands why some may be skeptical, but he's never had more confidence in his game. Do the Yankees feel similarly?`\
-https://nytimes.com/athletic/6507123/2025/07/22/spencer-jones-yankees-trade-deadline/
 
