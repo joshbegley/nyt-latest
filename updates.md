@@ -1,3 +1,7 @@
+**Justice Dept. Reaches Out to Ghislaine Maxwell, a Longtime Epstein Associate**\
+`The latest effort by Trump subordinates is intended to quell a political crisis precipitated by the department’s announcement that it would not release more files related to the Epstein investigation.`\
+https://nytimes.com/2025/07/22/us/politics/ghislaine-maxwell-epstein-doj.html
+
 **I’m All Ears**\
 `Sautéed chicken breasts with corn and shallots; spicy corn and coconut soup; Cantonese creamed corn with tofu and rice. It’s corn time.`\
 https://nytimes.com/2025/07/22/dining/im-all-ears.html
