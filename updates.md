@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Wednesday, July 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/22/todays-new-york-times-international-edition
+
+**Fiona Hill, Trump’s Ex-Russia Adviser, on Why Great Powers Fall**\
+`The former White House aide recently returned to her roots, advising Britain on defense and taking a role at Durham University in northeastern England. She still has her eye on global threats.`\
+https://nytimes.com/2025/07/22/world/europe/fiona-hill-trump-russia-uk-defense.html
+
 **How NBA scouts evaluate talent in the summer league**\
 `NBA Summer League is a "gold mine" for scouts searching for players to fill out rosters. Here's why it's more useful than ever.`\
 https://nytimes.com/athletic/6506886/2025/07/22/nba-summer-league-2025-scouting-players/
