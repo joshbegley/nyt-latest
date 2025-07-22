@@ -1,3 +1,7 @@
+**Ozzy Osbourne, the Lovable Prince of Darkness**\
+`The rocker helped define the sound, look and attitude of metal. But his persistence through addiction, his connection to audience and a late-career reality TV show endeared him to generations.`\
+https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-prince-of-darkness-black-sabbath.html
+
 **Hoping to Visit the U.S.? It Might Cost You an Extra $250.**\
 `A newly enacted “visa integrity fee” will apply to millions of foreign visitors, including travelers from Mexico, India, Brazil and China.`\
 https://nytimes.com/2025/07/22/travel/visa-integrity-fee-trump-big-beautiful-bill.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6509248/2025/07/22/colts-anthony-richardson-trainin
 `A landslide at the Lomera artisanal gold mine in eastern Congo left an unknown number of people trapped underground.`\
 https://nytimes.com/video/world/africa/100000010300021/congo-gold-mine-landslide.html
 
-**The Big Ten’s defense of College Football Playoff auto bids should be enough to bury that plan**\
+**Rexrode: No, going 6-3 in Big Ten play is not enough for more Playoff bids**\
 `If anyone was on the fence about “4-4-2-2-1,” Tony Petitti made it clear why they should jump right off and run toward common sense.`\
 https://nytimes.com/athletic/6509726/2025/07/22/tony-petitti-big-ten-college-football-playoff-format/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6509733/2025/07/22/usopc-olympics-transgender-polic
 **The House Moved Up Summer Break to Avoid an Epstein Vote**\
 `Also, Ozzy Osbourne died at 76. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/07/22/briefing/house-epstein-vote-ozzy-osboure-dead.html
-
-**Shia LaBeouf Settles Sexual Battery Lawsuit by FKA twigs**\
-`A joint statement by their lawyers said they wished “each other personal happiness, professional success and peace in the future.”`\
-https://nytimes.com/2025/07/22/arts/music/shia-labeouf-fka-twigs-lawsuit-settlement.html
 
