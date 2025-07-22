@@ -1,3 +1,7 @@
+**Leeds confirm signing of Stach from Hoffenheim**\
+`The 26-year-old midfielder has signed a four-year deal at Elland Road.`\
+https://nytimes.com/athletic/6503703/2025/07/22/leeds-anton-stach-transfer-confirmed/
+
 **Jon Stewart Supports Friend Stephen Colbert Through CBS Cancellation**\
 `Stewart admitted that he was “certainly not the most objective to comment on this matter” before sharing his feelings about the end of “The Late Show.”`\
 https://nytimes.com/2025/07/22/arts/television/jon-stewart-supports-stephen-colbert.html

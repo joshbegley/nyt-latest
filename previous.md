@@ -1,3 +1,7 @@
+**Leeds confirm signing of Stach from Hoffenheim**\
+`The 26-year-old midfielder has signed a four-year deal at Elland Road.`\
+https://nytimes.com/athletic/6503703/2025/07/22/leeds-anton-stach-transfer-confirmed/
+
 **Jon Stewart Supports Friend Stephen Colbert Through CBS Cancellation**\
 `Stewart admitted that he was “certainly not the most objective to comment on this matter” before sharing his feelings about the end of “The Late Show.”`\
 https://nytimes.com/2025/07/22/arts/television/jon-stewart-supports-stephen-colbert.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/crosswords/spelling-bee-forum.html
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Our team of dedicated writers take you inside the transfer market to explain the deals being worked on across Europe and beyond`\
 https://nytimes.com/athletic/6506078/2025/07/22/manchester-united-transfer-news-latest-analysis-arsenal-liverpool-real-madrid/
-
-**First Pill for Postpartum Depression Shows Varied Real-World Results**\
-`Some women’s symptoms improved quickly after taking the pill, but depression persisted in others. Doctors are trying to learn which patients benefit, and why some don’t.`\
-https://nytimes.com/2025/07/22/health/post-partum-depression-treatment-pill.html
 
