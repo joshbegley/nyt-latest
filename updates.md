@@ -1,3 +1,11 @@
+**Sarah Morlok Cotton, Quadruplet Who Knew Fame and Suffering, Dies at 95**\
+`She was the last of four identical sisters who were a national sensation even before they began performing onstage. Offstage, they endured abuse and schizophrenia.`\
+https://nytimes.com/2025/07/22/science/sarah-morlok-cotton-dead.html
+
+**Chicharito's unfiltered dialogue takes a sexist turn**\
+`Chicharito is under fire for comments he posted on social media regarding women and what he feels is their place`\
+https://nytimes.com/athletic/6509259/2025/07/22/chicharito-women-sexist-social-media-chivas-mexico/
+
 **We Just Updated Our New Orleans Dining Guide**\
 `A 17-year-old restaurant that’s still got it and a red-sauce tavern known for its holy pizza join the list.`\
 https://nytimes.com/2025/07/22/dining/we-just-updated-our-new-orleans-dining-guide.html

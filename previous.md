@@ -1,3 +1,11 @@
+**Sarah Morlok Cotton, Quadruplet Who Knew Fame and Suffering, Dies at 95**\
+`She was the last of four identical sisters who were a national sensation even before they began performing onstage. Offstage, they endured abuse and schizophrenia.`\
+https://nytimes.com/2025/07/22/science/sarah-morlok-cotton-dead.html
+
+**Chicharito's unfiltered dialogue takes a sexist turn**\
+`Chicharito is under fire for comments he posted on social media regarding women and what he feels is their place`\
+https://nytimes.com/athletic/6509259/2025/07/22/chicharito-women-sexist-social-media-chivas-mexico/
+
 **We Just Updated Our New Orleans Dining Guide**\
 `A 17-year-old restaurant that’s still got it and a red-sauce tavern known for its holy pizza join the list.`\
 https://nytimes.com/2025/07/22/dining/we-just-updated-our-new-orleans-dining-guide.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-dead.html
 **Joseph tells Leeds he wants to leave, chooses not to join pre-season camp**\
 `Farke said he accepts Joseph’s decision and will not stand in his way.`\
 https://nytimes.com/athletic/6509184/2025/07/22/mateo-joseph-leeds-future/
-
-**‘Ta-Da!’ Review: Josh Sharp Tries a Thing**\
-`Sam Pinkleton directs the comedian’s well-camouflaged coming-out story.`\
-https://nytimes.com/2025/07/22/theater/ta-da-review-josh-sharp-tries-a-thing.html
-
-**Carson Beck calls decision to leave Georgia 'very difficult' but says Miami is the right fit**\
-`Beck should thrive under offensive coordinator Shannon Dawson, who helped Cam Ward develop into the No. 1 pick in the NFL Draft. `\
-https://nytimes.com/athletic/6509169/2025/07/22/carson-beck-miami-georgia-transfer/
 
