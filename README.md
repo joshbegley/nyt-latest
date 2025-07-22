@@ -1,3 +1,23 @@
+**The Big Ten’s defense of College Football Playoff auto bids should be enough to bury that plan**\
+`If anyone was on the fence about “4-4-2-2-1,” Tony Petitti made it clear why they should jump right off and run toward common sense.`\
+https://nytimes.com/athletic/6509726/2025/07/22/tony-petitti-big-ten-college-football-playoff-format/
+
+**Oxygen Machine Played Role in Fire That Killed 10 in Massachusetts, Officials Say**\
+`The fire began in a resident’s room in an assisted living facility in Fall River, where investigators found an oxygen machine and “smoking materials.”`\
+https://nytimes.com/2025/07/22/us/fall-river-assisted-living-fire-cause.html
+
+**No, Israel Is Not Committing Genocide in Gaza**\
+`The charge isn’t only obscene. It’s also absurd.`\
+https://nytimes.com/2025/07/22/opinion/no-israel-is-not-committing-genocide-in-gaza.html
+
+**USOPC changes policy, bans transgender women from women's competitions**\
+`The policy was quietly changed on Monday to comply with President Donald Trump’s February executive order.`\
+https://nytimes.com/athletic/6509733/2025/07/22/usopc-olympics-transgender-policy/
+
+**The House Moved Up Summer Break to Avoid an Epstein Vote**\
+`Also, Ozzy Osbourne died at 76. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/07/22/briefing/house-epstein-vote-ozzy-osboure-dead.html
+
 **Shia LaBeouf Settles Sexual Battery Lawsuit by FKA twigs**\
 `A joint statement by their lawyers said they wished “each other personal happiness, professional success and peace in the future.”`\
 https://nytimes.com/2025/07/22/arts/music/shia-labeouf-fka-twigs-lawsuit-settlement.html
@@ -13,24 +33,4 @@ https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html
 **Republicans Look to Rename Kennedy Center Opera House After Melania Trump**\
 `Republican members of the Appropriations Committee approved an amendment to a spending bill that would rename the venue after the first lady.`\
 https://nytimes.com/2025/07/22/arts/kennedy-center-opera-melania-trump.html
-
-**Raiders sign safety Jamal Adams, reuniting with coach Pete Carroll**\
-`Carroll was the coach in Seattle when the Seahawks gave up multiple first-round picks as part of 2020 trade to acquire Adams from the Jets.`\
-https://nytimes.com/athletic/6509568/2025/07/22/jamal-adams-raiders-signing-jets-seahawks-nfl/
-
-**Canada Says It Won’t Accept a Trade Deal With the U.S. at ‘Any Cost’**\
-`Prime Minister Mark Carney, after a meeting with Canada’s political leaders, downplayed the chances of success in talks aimed at reaching a trade deal with President Trump.`\
-https://nytimes.com/2025/07/22/world/canada/carney-trade-deal-trump.html
-
-**Rafael Devers starting at first base for Giants**\
-`After all that, yes, Devers will start at first base, which was the likeliest outcome all along. It just won't be for the Red Sox.`\
-https://nytimes.com/athletic/6509531/2025/07/22/rafael-devers-starting-first-base-giants/
-
-**Who Is Desiree Grace, New Jersey’s Newly Named Top Federal Prosecutor?**\
-`Ms. Grace became a federal prosecutor in New Jersey in 2016. She rose quickly through the ranks before district court judges appointed her U.S. attorney on Tuesday.`\
-https://nytimes.com/2025/07/22/nyregion/desiree-grace-new-jersey-us-attorney.html
-
-**No One Controls MAGA — Not Even Trump**\
-`Even the president has to negotiate with his base.`\
-https://nytimes.com/2025/07/22/opinion/trump-epstein-maga-support.html
 
