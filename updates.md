@@ -1,3 +1,11 @@
+**I’m All Ears**\
+`Sautéed chicken breasts with corn and shallots; spicy corn and coconut soup; Cantonese creamed corn with tofu and rice. It’s corn time.`\
+https://nytimes.com/2025/07/22/dining/im-all-ears.html
+
+**In-N-Out C.E.O. Says She Is Moving to Tennessee and Opening an Office There**\
+`Not all Californians took it well.`\
+https://nytimes.com/2025/07/22/us/in-n-out-ceo-lynsi-snyder-california-tennessee.html
+
 **Palace submit CAS appeal over Europa League demotion**\
 `The London club are requesting Nottingham Forest's admission to the competition be rescinded.`\
 https://nytimes.com/athletic/6491046/2025/07/22/crystal-palace-cas-appeal-forest/

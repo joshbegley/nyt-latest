@@ -1,3 +1,11 @@
+**I’m All Ears**\
+`Sautéed chicken breasts with corn and shallots; spicy corn and coconut soup; Cantonese creamed corn with tofu and rice. It’s corn time.`\
+https://nytimes.com/2025/07/22/dining/im-all-ears.html
+
+**In-N-Out C.E.O. Says She Is Moving to Tennessee and Opening an Office There**\
+`Not all Californians took it well.`\
+https://nytimes.com/2025/07/22/us/in-n-out-ceo-lynsi-snyder-california-tennessee.html
+
 **Palace submit CAS appeal over Europa League demotion**\
 `The London club are requesting Nottingham Forest's admission to the competition be rescinded.`\
 https://nytimes.com/athletic/6491046/2025/07/22/crystal-palace-cas-appeal-forest/
@@ -25,12 +33,4 @@ https://nytimes.com/newsgraphics/card-story/off-the-grid-resorts
 **Watch Live: Trump Meets With Philippine President**\
 `President Trump holds a bilateral meeting in the Oval Office with President Ferdinand Marcos Jr. of the Philippines.`\
 https://nytimes.com/video/us/politics/100000010298732/watch-live-trump-meets-with-philippine-president.html
-
-**U.S. Is Missing the Century’s ‘Greatest Economic Opportunity,’ U.N. Chief Says**\
-`In a speech on renewable energy, António Guterres cited “clear market distortion” in favor of fossil fuels by President Trump and others but called the transition to cleaner energy economically inevitable.`\
-https://nytimes.com/2025/07/22/climate/antonio-guterres-energy-transition-speech-economics.html
-
-**American Steel Just Got More Expensive. Buyers Blame Tariffs.**\
-`Steel producers like Cleveland Cliffs and Steel Dynamics both said this week that they raised prices after President Trump imposed a 50 percent tariff on imports.`\
-https://nytimes.com/2025/07/22/business/steel-prices-tariffs.html
 
