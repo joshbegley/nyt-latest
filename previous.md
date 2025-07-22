@@ -1,3 +1,7 @@
+**Xhaka tells Leverkusen he wants Sunderland move**\
+`The 32-year-old is prioritising a move to Regis Le Bris’ men over other suitors.`\
+https://nytimes.com/athletic/6508096/2025/07/22/granit-xhaka-sunderland-transfer-leverkusen/
+
 **Austria Prepares to Give Up ‘Dream’ of Disarmament**\
 `Historically neutral, the country is set to double military spending, even in the midst of a budget crisis, as its neighbors also spend big to counter Russia.`\
 https://nytimes.com/2025/07/22/world/europe/austria-stocker-military-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6499096/2025/07/22/ravens-53-man-roster-projection-
 **Smith: Want Verstappen, Toto? Then make a blockbuster Russell partnership work for F1**\
 `Mercedes is yet to name its 2026 F1 drivers. With interest from Red Bull's Max Verstappen, Luke Smith argues he should join George Russell`\
 https://nytimes.com/athletic/6506174/2025/07/22/verstappen-mercedes-russell-f1/
-
-**How surprising was Brian Schottenheimer's Cowboys hiring? Even he didn't see it coming**\
-`Schottenheimer, who twice turned down head-coaching opportunities, finally landed a job after going 12 hiring cycles without an interview.`\
-https://nytimes.com/athletic/6502460/2025/07/22/dallas-cowboys-coach-brian-schottenheimer-nfl-training-camp/
 

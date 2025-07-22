@@ -1,3 +1,7 @@
+**Xhaka tells Leverkusen he wants Sunderland move**\
+`The 32-year-old is prioritising a move to Regis Le Bris’ men over other suitors.`\
+https://nytimes.com/athletic/6508096/2025/07/22/granit-xhaka-sunderland-transfer-leverkusen/
+
 **Austria Prepares to Give Up ‘Dream’ of Disarmament**\
 `Historically neutral, the country is set to double military spending, even in the midst of a budget crisis, as its neighbors also spend big to counter Russia.`\
 https://nytimes.com/2025/07/22/world/europe/austria-stocker-military-spending.html
