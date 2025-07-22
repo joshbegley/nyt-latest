@@ -1,3 +1,15 @@
+**How Italy's perfect blend is allowing their dreams to run wild at Euro 2025**\
+`A team mixing youth and experience has delivered the country's first semi-final in a major women's tournament since the 1990s`\
+https://nytimes.com/athletic/6506185/2025/07/22/italy-euro-2025-semi-final-squad-england/
+
+**Why have Nottingham Forest taken out an £80m loan from Apollo Management?**\
+`It is not unusual for clubs to secure finance in such a manner - but when it involves such a high headline figure, it raises some questions`\
+https://nytimes.com/athletic/6502446/2025/07/22/nottingham-forest-loan-apollo-management/
+
+**Barcelona are signing Marcus Rashford on loan. But will they even be able to register him?**\
+`Rashford has agreed a loan move to Flick's side but the club's ongoing issues with registering players make it far from straightforward`\
+https://nytimes.com/athletic/6501648/2025/07/22/barcelona-rashford-register-la-liga/
+
 **Max Lazar shows some confidence, earns some trust in Phillies' weird walk-off**\
 `“He’s been great,” manager Rob Thomson said. “I trust him. He’s been really good. And he’s got ice in his veins, too."`\
 https://nytimes.com/athletic/6507839/2025/07/22/phillies-max-lazar-shows-confidence/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6506798/2025/07/22/england-italy-big-six-underdogs-
 **The Death of a Mother and Child in Rome Stumped Police, So They Called a TV Show**\
 `When two bodies were found in a popular Roman park, Italians wanted answers. A TV program specializing in missing people helped identify them, and a suspect.`\
 https://nytimes.com/2025/07/22/world/europe/italy-mother-child-dead-police.html
-
-**Iran’s Leaders Turn to a New Brand of Nationalism After Israeli and U.S. Attacks**\
-`The theocratic government is repurposing folklore and patriotic anthems as it seeks to channel national outrage into increasing its support at home.`\
-https://nytimes.com/2025/07/22/world/middleeast/iran-nationalism-israel-us-attacks.html
-
-**Sharing a Bed With Your Kid? It’s Totally Normal in Asia.**\
-`Bed sharing tends to be unpopular and contentious in the United States. But in many Asian countries, the question is often not whether to do it, but when to stop.`\
-https://nytimes.com/2025/07/22/world/asia/bed-sharing-parents-children-sleep-asia.html
-
-**Corrections: July 22, 2025**\
-`Corrections that appeared in print on Tuesday, July 22, 2025.`\
-https://nytimes.com/2025/07/22/pageoneplus/corrections-july-22-2025.html
 
