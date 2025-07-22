@@ -1,3 +1,11 @@
+**Giants' 10-step plan revisited: Will Joe Schoen regret trading up for Jaxson Dart?**\
+`It's fair to wonder if the Giants should have waited until next year to go all-in at QB and instead invested more in the offensive line.`\
+https://nytimes.com/athletic/6507822/2025/07/22/ny-giants-offseason-roster-jaxson-dart/
+
+**Trump Told Park Workers to Report Displays That ‘Disparage’ Americans. Here’s What They Flagged.**\
+`Descriptions and displays at scores of parks and historic sites have been flagged for review in connection with an executive order from President Trump.`\
+https://nytimes.com/2025/07/22/climate/trump-national-park-service-history-changes.html
+
 **Canucks playoff roadmap: How does Vancouver get back to the postseason?**\
 `Nine Western Conference teams have shorter odds of qualifying for the playoffs than Vancouver does at this point in the offseason.`\
 https://nytimes.com/athletic/6505914/2025/07/22/canucks-stats-standings-playoffs-2025-26/
