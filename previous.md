@@ -1,3 +1,7 @@
+**Palace submit CAS appeal over Europa League demotion**\
+`The London club are requesting Nottingham Forest's admission to the competition be rescinded.`\
+https://nytimes.com/athletic/6491046/2025/07/22/crystal-palace-cas-appeal-forest/
+
 **gws-best-croissants-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-croissants-nyc
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/climate/antonio-guterres-energy-transition-speech
 **American Steel Just Got More Expensive. Buyers Blame Tariffs.**\
 `Steel producers like Cleveland Cliffs and Steel Dynamics both said this week that they raised prices after President Trump imposed a 50 percent tariff on imports.`\
 https://nytimes.com/2025/07/22/business/steel-prices-tariffs.html
-
-**Arsenal's evolving attack: The options Gyokeres and Madueke open up for Arteta**\
-`His team were too predictable at times last season. This summer's recruitment should give the manager more flexibility and unpredictability`\
-https://nytimes.com/athletic/6492990/2025/07/22/arsenal-attack-gyokeres-madueke-options/
 

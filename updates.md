@@ -1,3 +1,7 @@
+**Palace submit CAS appeal over Europa League demotion**\
+`The London club are requesting Nottingham Forest's admission to the competition be rescinded.`\
+https://nytimes.com/athletic/6491046/2025/07/22/crystal-palace-cas-appeal-forest/
+
 **gws-best-croissants-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-croissants-nyc
