@@ -1,3 +1,7 @@
+**Canucks playoff roadmap: How does Vancouver get back to the postseason?**\
+`Nine Western Conference teams have shorter odds of qualifying for the playoffs than Vancouver does at this point in the offseason.`\
+https://nytimes.com/athletic/6505914/2025/07/22/canucks-stats-standings-playoffs-2025-26/
+
 **Mets trade deadline overview: Where and how can New York upgrade?**\
 `There are four main areas the Mets could address between now and July 31: the bullpen, the rotation, center field and third base.`\
 https://nytimes.com/athletic/6507833/2025/07/22/mets-trade-deadline-overview-bullpen-center-field/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6508488/2025/07/22/bradley-beal-suns-clippers-damia
 **AstraZeneca Joins Pharma Investment Push in U.S. Amid Tariff Threat**\
 `The British drug maker plans to invest $50 billion in the United States as it seeks to appease President Trump.`\
 https://nytimes.com/2025/07/22/business/astrazeneca-pharma-tariff-trump.html
-
-**gws-the-gilded-age**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/the-gilded-age
 
