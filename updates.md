@@ -1,3 +1,7 @@
+**FEMA Urban Search and Rescue Chief Resigns**\
+`Ken Pagurek had told colleagues the Trump administration was causing ‘chaos’ inside FEMA and creating dangerous delays in disaster response.`\
+https://nytimes.com/2025/07/22/climate/fema-urban-search-rescue-chief-resigns.html
+
 **Ozzy Osbourne, ‘Prince of Darkness’ Turned Reality TV Star, Dies at 76**\
 `As the lead singer of Black Sabbath, he helped invent heavy metal. On “The Osbournes,” he presented a comedic counterpoint to his rock ’n’ roll infamy.`\
 https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-dead.html
