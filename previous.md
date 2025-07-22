@@ -1,3 +1,7 @@
+**Damian Lillard returns to Portland, eyes fresh start back 'home' after Bucks exit**\
+`After signing a three-year, $45 million deal to return to the Blazers, Lillard said "it never felt right, not being home.”`\
+https://nytimes.com/athletic/6507754/2025/07/21/damian-lillard-returns-to-portland/
+
 **When Betelgeuse Explodes, It’s Going to Take Out Another Star**\
 `The tempestuous star in Orion’s shoulder has a buddy, and neither of their futures look bright.`\
 https://nytimes.com/2025/07/21/science/betelgeuse-star-companion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/trump-news-media.html
 **Judge Sentences Ex-Officer in Breonna Taylor Raid to Nearly 3 Years in Prison**\
 `The sentence was a sharp rebuke to the Trump administration, which had requested he serve only one day behind bars.`\
 https://nytimes.com/2025/07/21/us/politics/breonna-taylor-brett-hankison-prison.html
-
-**Chargers training camp report, Day 4: Quentin Johnston is seizing his opportunity**\
-`The Chargers tried upgrading at outside receiver this offseason. Can Johnson finally realize his first-round potential? `\
-https://nytimes.com/athletic/6507491/2025/07/21/chargers-training-camp-quentin-johnston/
 
