@@ -1,3 +1,15 @@
+**gws-best-croissants-nyc**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-croissants-nyc
+
+**The Bounce: Will Bradley Beal, Damian Lillard trades be remembered among NBA's worst ever?**\
+`Just how bad were the Bradley Beal and Damian Lillard trades in retrospect? Time will tell, but they're already aging poorly`\
+https://nytimes.com/athletic/6508488/2025/07/22/bradley-beal-suns-clippers-damian-lillard-bucks-trail-blazers-trades-nba-the-bounce/
+
+**AstraZeneca Joins Pharma Investment Push in U.S. Amid Tariff Threat**\
+`The British drug maker plans to invest $50 billion in the United States as it seeks to appease President Trump.`\
+https://nytimes.com/2025/07/22/business/astrazeneca-pharma-tariff-trump.html
+
 **gws-the-gilded-age**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-gilded-age
