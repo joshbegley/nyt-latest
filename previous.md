@@ -1,8 +1,24 @@
+**49ers' Jauan Jennings reports to camp; Kyle Shanahan says WR hasn't requested trade**\
+`The 49ers expect Jennings to be on the field for Wednesday's first practice despite the receiver's unhappiness with his contract.`\
+https://nytimes.com/athletic/6509301/2025/07/22/49ers-training-camp-jauan-jennings-trade-request/
+
+**Chinese Cars, Brazil Style**\
+`China wants to dominate the market for the cars of the future, and it has set its sights on Brazil’s giant auto market.`\
+https://nytimes.com/2025/07/22/climate/china-car-makers-brazil-electric-vehicles.html
+
+**Republicans Rely on Trump’s Promises to Grease the Path for His Agenda**\
+`G.O.P. leaders scrounging for the votes to push through the president’s priorities have increasingly turned to him and his team to win over holdouts with special carve-outs and commitments.`\
+https://nytimes.com/2025/07/22/us/politics/republicans-trump-agenda.html
+
+**An Opera Company That Operates Like Bel Canto Summer Camp**\
+`Teatro Nuovo, which trains musicians in bel canto style, returns with productions of a rare “Macbeth” and “La Sonnambula.”`\
+https://nytimes.com/2025/07/22/arts/music/teatro-nuovo.html
+
 **In New Deal, Trump Keeps Tariffs While Indonesia Drops Trade Barriers**\
 `The administration provided some insight into the terms that were agreed upon between Indonesia and the United States, hinting at how other vague and hastily negotiated deals may turn out.`\
 https://nytimes.com/2025/07/22/us/politics/trump-indonesia-trade-deal.html
 
-**Petitti stands by Big Ten's favored CFP plan: 'Fans will gravitate' to play-ins**\
+**Petitti stands by Big Ten's CFP plan, calls 6-3 in league play 'a great record'**\
 `Petitti said a field determined by conference standings, rather than CFP rankings, would make the selection process more objective.`\
 https://nytimes.com/athletic/6509205/2025/07/22/tony-petitti-big-ten-cfp-expansion/
 
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/22/science/sarah-morlok-cotton-dead.html
 **Chicharito's unfiltered dialogue takes a sexist turn**\
 `Chicharito is under fire for comments he posted on social media regarding women and what he feels is their place`\
 https://nytimes.com/athletic/6509259/2025/07/22/chicharito-women-sexist-social-media-chivas-mexico/
-
-**We Just Updated Our New Orleans Dining Guide**\
-`A 17-year-old restaurant that’s still got it and a red-sauce tavern known for its holy pizza join the list.`\
-https://nytimes.com/2025/07/22/dining/we-just-updated-our-new-orleans-dining-guide.html
-
-**Gold Miners Feared Dead in Congo After Landslide**\
-`Thousands of people were working on the informal mining site in eastern Congo, in an area controlled by an armed gang.`\
-https://nytimes.com/2025/07/22/world/africa/congo-gold-mine-collapse.html
-
-**Ozzy Osbourne: 12 Essential Songs**\
-`The frontman, who with Black Sabbath helped pioneer heavy metal in 1970s England, always found new ways to reinvent himself.`\
-https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-songs-black-sabbath.html
-
-**Judges Ask Justice Dept. to Submit Epstein Case Transcripts With Proposed Redactions**\
-`Federal judges responded to a request from the attorney general to release grand jury transcripts from cases against Jeffrey Epstein and his co-conspirator, Ghislaine Maxwell.`\
-https://nytimes.com/2025/07/22/us/politics/trump-epstein-files-redacted-bondi.html
 
