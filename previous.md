@@ -1,3 +1,15 @@
+**Carson Beck calls decision to leave Georgia 'very difficult' but says Miami is the right fit**\
+`Beck is a good fit for offensive coordinator Shannon Dawson’s balanced attack, which helped turn Cam Ward into the No. 1 pick in the draft.`\
+https://nytimes.com/athletic/6509169/2025/07/22/carson-beck-miami-georgia-transfer/
+
+**Back soreness forces Matthew Stafford to working on the side as Rams training camp begins**\
+`Rams QB Matthew Stafford is dealing with back soreness and the team will start him off slow at camp this week.`\
+https://nytimes.com/athletic/6509153/2025/07/22/matthew-stafford-rams-injury-update-camp/
+
+**WNBA All-Star Game draws 2.2 million average viewers without Caitlin Clark**\
+`The numbers for this year's game reveal that Clark's absence had a massive impact, but there is also a growing viewer interest in the event.`\
+https://nytimes.com/athletic/6509135/2025/07/22/wnba-all-star-game-viewership-2025/
+
 **The Power of Purchasing a Home**\
 `Creating a legacy of wealth for generations.`\
 https://nytimes.com/paidpost/progressive-insurance/the-power-of-purchasing-a-home.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
 **In Virginia, the Attack on University Presidents Widens**\
 `Gregory Washington, the first Black president of George Mason University, is under fire for his promotion of campus diversity.`\
 https://nytimes.com/2025/07/22/us/virginia-university-presidents-dei-trump.html
-
-**Tour de France stage 16: Mont Ventoux delivers, Paret-Peintre outsprints Healy for victory, Pogacar sets record time**\
-`Analysis of the latest day's action in the 2025 race - a 171km stage from Montpellier to Mont Ventoux`\
-https://nytimes.com/athletic/6508220/2025/07/22/tour-de-france-stage-16-analysis/
-
-**Empathy and Justice in Global Health**\
-`Readers respond to a doctor’s guest essay. Also: President Trump and team names; the president’s effect on Canada.`\
-https://nytimes.com/2025/07/22/opinion/global-health-empathy-justice.html
-
-**Mountain Lion Is Euthanized After Attacking a Child in Olympic National Park**\
-`The 4-year-old child, who was treated at a hospital and released, had been walking with family members on a popular trail in the park.`\
-https://nytimes.com/2025/07/22/us/mountain-lion-bite-child-washington.html
 
