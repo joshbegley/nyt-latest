@@ -1,3 +1,11 @@
+**Digital artwork of Lionel Messi's favorite goal sold for $1.87M to mystery buyer**\
+`The elaborate project depicted Messi's most cherished goal from his glittering career.`\
+https://nytimes.com/athletic/6509309/2025/07/22/lionel-messi-refik-anadol-artwork-christies/
+
+**Wartime Protests in Ukraine Target Zelensky for the First Time**\
+`The demonstrators were angered by government moves to dismantle anticorruption efforts and quell dissent.`\
+https://nytimes.com/2025/07/22/world/europe/zelensky-protests-corruption.html
+
 **49ers' Jauan Jennings reports to camp; Kyle Shanahan says WR hasn't requested trade**\
 `The 49ers expect Jennings to be on the field for Wednesday's first practice despite the receiver's unhappiness with his contract.`\
 https://nytimes.com/athletic/6509301/2025/07/22/49ers-training-camp-jauan-jennings-trade-request/

@@ -1,3 +1,11 @@
+**Digital artwork of Lionel Messi's favorite goal sold for $1.87M to mystery buyer**\
+`The elaborate project depicted Messi's most cherished goal from his glittering career.`\
+https://nytimes.com/athletic/6509309/2025/07/22/lionel-messi-refik-anadol-artwork-christies/
+
+**Wartime Protests in Ukraine Target Zelensky for the First Time**\
+`The demonstrators were angered by government moves to dismantle anticorruption efforts and quell dissent.`\
+https://nytimes.com/2025/07/22/world/europe/zelensky-protests-corruption.html
+
 **49ers' Jauan Jennings reports to camp; Kyle Shanahan says WR hasn't requested trade**\
 `The 49ers expect Jennings to be on the field for Wednesday's first practice despite the receiver's unhappiness with his contract.`\
 https://nytimes.com/athletic/6509301/2025/07/22/49ers-training-camp-jauan-jennings-trade-request/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6509205/2025/07/22/tony-petitti-big-ten-cfp-expansi
 **U.S. Olympic Officials Bar Transgender Women From Women’s Competitions**\
 `The United States Olympic & Paralympic Committee changed its eligibility rules on Monday to comply with President Trump’s executive order on the issue, taking the decision away from national governing bodies for each sport.`\
 https://nytimes.com/2025/07/22/us/politics/us-olympics-trans-women-athletes-ban-trump.html
-
-**Sarah Morlok Cotton, Quadruplet Who Knew Fame and Suffering, Dies at 95**\
-`She was the last of four identical sisters who were a national sensation even before they began performing onstage. Offstage, they endured abuse and schizophrenia.`\
-https://nytimes.com/2025/07/22/science/sarah-morlok-cotton-dead.html
-
-**Chicharito's unfiltered dialogue takes a sexist turn**\
-`Chicharito is under fire for comments he posted on social media regarding women and what he feels is their place`\
-https://nytimes.com/athletic/6509259/2025/07/22/chicharito-women-sexist-social-media-chivas-mexico/
 

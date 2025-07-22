@@ -1,3 +1,11 @@
+**Alex Anzalone 'disappointed' over contract, Lions get physical: Training camp news and notes**\
+`Morice Norris was ejected for being too physical in practice.`\
+https://nytimes.com/athletic/6509218/2025/07/22/lions-training-camp-alex-anzalone-contract/
+
+**Ten Hag: Xhaka 'too important' for Leverkusen to lose amid Sunderland talks**\
+`The Athletic reported on Tuesday Xhaka, 32, was prioritising a move to Sunderland over other suitors.`\
+https://nytimes.com/athletic/6509386/2025/07/22/erik-ten-hag-granit-xhaka-leverkusen/
+
 **Digital artwork of Lionel Messi's favorite goal sold for $1.87M to mystery buyer**\
 `The elaborate project depicted Messi's most cherished goal from his glittering career.`\
 https://nytimes.com/athletic/6509309/2025/07/22/lionel-messi-refik-anadol-artwork-christies/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/arts/music/teatro-nuovo.html
 **In New Deal, Trump Keeps Tariffs While Indonesia Drops Trade Barriers**\
 `The administration provided some insight into the terms that were agreed upon between Indonesia and the United States, hinting at how other vague and hastily negotiated deals may turn out.`\
 https://nytimes.com/2025/07/22/us/politics/trump-indonesia-trade-deal.html
-
-**Petitti stands by Big Ten's CFP plan, calls 6-3 in league play 'a great record'**\
-`Petitti said a field determined by conference standings, rather than CFP rankings, would make the selection process more objective.`\
-https://nytimes.com/athletic/6509205/2025/07/22/tony-petitti-big-ten-cfp-expansion/
-
-**U.S. Olympic Officials Bar Transgender Women From Women’s Competitions**\
-`The United States Olympic & Paralympic Committee changed its eligibility rules on Monday to comply with President Trump’s executive order on the issue, taking the decision away from national governing bodies for each sport.`\
-https://nytimes.com/2025/07/22/us/politics/us-olympics-trans-women-athletes-ban-trump.html
 
