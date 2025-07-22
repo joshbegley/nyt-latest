@@ -1,3 +1,7 @@
+**Mathieu van der Poel abandons Tour de France after pneumonia diagnosis**\
+`The 30-year-old had been enjoying the best Tour of his career, having won stage two and worn the yellow jersey on two separate occasions.`\
+https://nytimes.com/athletic/6508013/2025/07/22/mathieu-van-der-poel-tour-de-france-pneumonia/
+
 **England vs Italy Euro 2025 semi-final odds, prediction: Lionesses heavily favoured**\
 `After barely surviving against Sweden, England head into the Euro 2025 semi-final against Italy as overwhelming favourites.`\
 https://nytimes.com/athletic/6506857/2025/07/22/england-italy-euro-2025-semi-final-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/health/post-partum-depression-treatment-pill.html
 **Leeds new boy Jaka Bijol on the Premier League, a busy summer, and the Tour de France**\
 `Leeds United's latest defensive recruit tells The Athletic why his love of cycling sometimes leaves team-mates perplexed`\
 https://nytimes.com/athletic/6506962/2025/07/22/jaka-bijol-interview-leeds/
-
-**Word of the Day: simile**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/22/learning/word-of-the-day-simile.html
 

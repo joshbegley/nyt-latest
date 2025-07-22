@@ -1,3 +1,7 @@
+**Mathieu van der Poel abandons Tour de France after pneumonia diagnosis**\
+`The 30-year-old had been enjoying the best Tour of his career, having won stage two and worn the yellow jersey on two separate occasions.`\
+https://nytimes.com/athletic/6508013/2025/07/22/mathieu-van-der-poel-tour-de-france-pneumonia/
+
 **England vs Italy Euro 2025 semi-final odds, prediction: Lionesses heavily favoured**\
 `After barely surviving against Sweden, England head into the Euro 2025 semi-final against Italy as overwhelming favourites.`\
 https://nytimes.com/athletic/6506857/2025/07/22/england-italy-euro-2025-semi-final-odds-prediction/
