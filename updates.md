@@ -1,3 +1,19 @@
+**Diamondbacks' Ketel Marte says he lost $400K in home burglary**\
+`The break-in is the latest in a string of burglaries targeting professional athletes.`\
+https://nytimes.com/athletic/6508489/2025/07/22/ketel-marte-diamondbacks-burglary/
+
+**NWSL's Denver expansion club unveils team name, crest and branding**\
+`The team's name was selected by a fan vote that included over 15,000 responses.`\
+https://nytimes.com/athletic/6507637/2025/07/22/nwsl-denver-summit-fc-expansion-branding/
+
+**The Quest for a Lost Chinese Typewriter**\
+`How a history professor went down an 18-year-long rabbit hole in search of obsolete machines, hoping to save them before they faded into oblivion.`\
+https://nytimes.com/2025/07/22/nyregion/mingkwai-typewriter-china.html
+
+**Prisoners’ Phone Calls Will Soon Be Free in New York State**\
+`The move will save the loved ones of the state’s more than 30,000 prisoners over $13 million a year, advocates say.`\
+https://nytimes.com/2025/07/22/nyregion/ny-prison-phone-calls.html
+
 **Astros' Brice Matthews is 'not a finished product.' He still produced the game of his life**\
 `The 23-year-old hit two home runs and drove in five runs, showing that he has potential despite needing to work on his swing decisions.`\
 https://nytimes.com/athletic/6507973/2025/07/22/astros-brice-matthews-two-home-runs/
