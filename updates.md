@@ -1,3 +1,7 @@
+**Matteo Jorgenson interview: 'We don't have regrets with how we've raced'**\
+`Jorgenson talks to The Athletic about his approach to this year's Tour de France, tension with Pogacar and the state of American cycling  `\
+https://nytimes.com/athletic/6506481/2025/07/22/tour-de-france-matteo-jorgenson-interview/
+
 **Leeds confirm signing of Stach from Hoffenheim**\
 `The 26-year-old midfielder has signed a four-year deal at Elland Road.`\
 https://nytimes.com/athletic/6503703/2025/07/22/leeds-anton-stach-transfer-confirmed/
