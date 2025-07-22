@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/22/world/asia/bangladesh-plane-crash-school-children
 `General Motors is the latest company to record a hit from the president’s trade war. But so far, investors remain upbeat.`\
 https://nytimes.com/2025/07/22/business/dealbook/trump-tariffs-gm-earnings.html
 
-**Trump Administration Live Updates: Philippines Leader to Visit White House**\
+**Trump Administration Live Updates: U.S. Pulls Out of UNESCO Again**\
 ``\
 https://nytimes.com/live/2025/07/22/us/trump-news
 
