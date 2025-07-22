@@ -1,3 +1,7 @@
+**Landslide Traps Gold Miners in Eastern Congo**\
+`A landslide at the Lomera artisanal gold mine in eastern Congo left an unknown number of people trapped underground.`\
+https://nytimes.com/video/world/africa/100000010300021/congo-gold-mine-landslide.html
+
 **The Big Ten’s defense of College Football Playoff auto bids should be enough to bury that plan**\
 `If anyone was on the fence about “4-4-2-2-1,” Tony Petitti made it clear why they should jump right off and run toward common sense.`\
 https://nytimes.com/athletic/6509726/2025/07/22/tony-petitti-big-ten-college-football-playoff-format/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6506143/2025/07/22/england-italy-euros-analysis/
 **Amid Fear of Retaliation, N.S.F. Workers Sign Letter of Dissent**\
 `In a public letter, employees of the National Science Foundation accused the administration of politicizing the agency and impeding scientific innovation.`\
 https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html
-
-**Republicans Look to Rename Kennedy Center Opera House After Melania Trump**\
-`Republican members of the Appropriations Committee approved an amendment to a spending bill that would rename the venue after the first lady.`\
-https://nytimes.com/2025/07/22/arts/kennedy-center-opera-melania-trump.html
 
