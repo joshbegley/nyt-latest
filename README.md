@@ -1,5 +1,5 @@
 **Cardinals trade deadline plans remain 'fluid' as John Mozeliak fields calls**\
-`Even if the Cardinals can turn their recent play around, their division rivals might not give them much of a choice anyway.`\
+`Even if the Cardinals can turn their recent play around, their division rivals might make them deadline sellers anyway.`\
 https://nytimes.com/athletic/6507660/2025/07/21/st-louis-cardinals-trade-deadline-plans/
 
 **Government’s H.R. Arm Shedding a Third of Staff**\
