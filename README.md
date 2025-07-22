@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Our team of dedicated writers take you inside the transfer market to explain the deals being worked on across Europe and beyond`\
+https://nytimes.com/athletic/6506078/2025/07/22/manchester-united-transfer-news-latest-analysis-arsenal-liverpool-real-madrid/
+
 **First Pill for Postpartum Depression Shows Varied Real-World Results**\
 `Some women’s symptoms improved quickly after taking the pill, but depression persisted in others. Doctors are trying to learn which patients benefit, and why some don’t.`\
 https://nytimes.com/2025/07/22/health/post-partum-depression-treatment-pill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/business/media/la-times-newspaper-public.html
 **Tuesday Briefing: A Deadly Jet Crash in Bangladesh**\
 `Plus, New Zealand wines with something extra.`\
 https://nytimes.com/2025/07/22/briefing/bangladesh-plane-crash-gaza-israel-hamas-ukraine-russia.html
-
-**How Italy's perfect blend is allowing their dreams to run wild at Euro 2025**\
-`A team mixing youth and experience has delivered the country's first semi-final in a major women's tournament since the 1990s`\
-https://nytimes.com/athletic/6506185/2025/07/22/italy-euro-2025-semi-final-squad-england/
 
