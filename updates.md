@@ -1,3 +1,11 @@
+**The Power of Purchasing a Home**\
+`Creating a legacy of wealth for generations.`\
+https://nytimes.com/paidpost/progressive-insurance/the-power-of-purchasing-a-home.html
+
+**Leeds 4-1 SC Verl: Why were four players absent? How did the strikers perform?**\
+`What Beren Cross saw as Daniel Farke's men comfortably beat a German third-tier side on Tuesday in their second game of pre-season`\
+https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-score-sc-verl/
+
 **Witnesses Recall Deadly Bangladesh Plane Crash**\
 `At least 31 people were killed after a military jet crashed into a school building in Dhaka. The tragedy at the Milestone School and College has led to a national outpouring of grief.`\
 https://nytimes.com/video/world/asia/100000010298826/bangladesh-plane-crash-school.html
