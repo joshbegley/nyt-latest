@@ -1,3 +1,11 @@
+**Word of the Day: simile**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/22/learning/word-of-the-day-simile.html
+
+**Dodgers' Tanner Scott will "most likely" land on IL with left forearm issue**\
+`The left-hander, who is in the first year of a four-year, $72 million deal, has struggled plenty in his first season in Los Angeles.`\
+https://nytimes.com/athletic/6507929/2025/07/22/los-angeles-dodgers-tanner-scott-exits-game/
+
 **Marcell Ozuna trade appears inevitable; Austin Riley could return Tuesday**\
 `The Braves added veteran Sandy León as a third catcher Monday, another sign that slumping DH Marcell Ozuna will be traded before July 31.`\
 https://nytimes.com/athletic/6507871/2025/07/22/braves-adding-3rd-catcher-makes-marcell-ozuna-trade-seem-inevitable/
