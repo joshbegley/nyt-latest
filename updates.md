@@ -1,3 +1,15 @@
+**Aston Villa's Louie Barry completes Sheffield United loan move**\
+`The deal does not include an option to buy the English forward, who spent nearly a year in Barcelona's La Masia academy as a teenager.`\
+https://nytimes.com/athletic/6508320/2025/07/22/louie-barry-aston-villa-sheffield-united-loan-transfer/
+
+**Children Were on Their School Lunch Break. Then a Plane Hit.**\
+`Nearly all of the 31 killed when a Bangladeshi fighter jet crashed were children. Dozens more were being treated in burn centers as the nation declared a day of mourning.`\
+https://nytimes.com/2025/07/22/world/asia/bangladesh-plane-crash-school-children.html
+
+**Will Trump’s Tariffs Spoil Earnings Season?**\
+`General Motors is the latest company to record a hit from the president’s trade war. But so far, investors remain upbeat.`\
+https://nytimes.com/2025/07/22/business/dealbook/trump-tariffs-gm-earnings.html
+
 **Trump Administration Live Updates: Philippines Leader to Visit White House**\
 ``\
 https://nytimes.com/live/2025/07/22/us/trump-news

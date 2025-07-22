@@ -1,3 +1,15 @@
+**Aston Villa's Louie Barry completes Sheffield United loan move**\
+`The deal does not include an option to buy the English forward, who spent nearly a year in Barcelona's La Masia academy as a teenager.`\
+https://nytimes.com/athletic/6508320/2025/07/22/louie-barry-aston-villa-sheffield-united-loan-transfer/
+
+**Children Were on Their School Lunch Break. Then a Plane Hit.**\
+`Nearly all of the 31 killed when a Bangladeshi fighter jet crashed were children. Dozens more were being treated in burn centers as the nation declared a day of mourning.`\
+https://nytimes.com/2025/07/22/world/asia/bangladesh-plane-crash-school-children.html
+
+**Will Trump’s Tariffs Spoil Earnings Season?**\
+`General Motors is the latest company to record a hit from the president’s trade war. But so far, investors remain upbeat.`\
+https://nytimes.com/2025/07/22/business/dealbook/trump-tariffs-gm-earnings.html
+
 **Trump Administration Live Updates: Philippines Leader to Visit White House**\
 ``\
 https://nytimes.com/live/2025/07/22/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6507268/2025/07/22/winnipeg-jets-jonathan-toews-sco
 **For Blues' Justin Carbonneau, confidence is just 'part of who he is'**\
 `Carbonneau, St. Louis' first-round draft pick this summer, subscribes to "The Mamba Mentality" and positive thinking.`\
 https://nytimes.com/athletic/6493205/2025/07/22/blues-2025-nhl-draft-justin-carbonneau/
-
-**Inside the Senators' plans to strike a new arena site deal 'by the fall'**\
-`The Senators say they're "really close" on negotiations with the National Capital Commission for a new arena to be built at LeBreton Flats.`\
-https://nytimes.com/athletic/6505840/2025/07/22/senators-arena-lebreton-flats-canadian-tire-centre-nhl/
-
-**Flyers may or may not be better next season, but they should at least be more interesting**\
-`The 2025-26 season will still be a transitional one for the organization, but there are reasons to believe it should be pretty intriguing.`\
-https://nytimes.com/athletic/6507224/2025/07/22/flyers-2025-26-season-nhl-tyson-foerster/
-
-**A look at where the Padres can reinforce themselves this summer and next year**\
-`The Padres have multiple needs and a thinner farm system than a year ago, which might mean they have to settle for another rental or two. `\
-https://nytimes.com/athletic/6507653/2025/07/22/san-diego-padres-trade-deadline-plans/
 
