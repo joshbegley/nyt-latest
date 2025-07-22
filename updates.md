@@ -1,3 +1,7 @@
+**Ozzy Osbourne, ‘Prince of Darkness’ Turned Reality TV Star, Dies at 76**\
+`As the lead singer of Black Sabbath, he helped invent heavy metal. On “The Osbournes,” he presented a comedic counterpoint to his rock ’n’ roll infamy.`\
+https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-dead.html
+
 **Joseph tells Leeds he wants to leave, chooses not to join pre-season camp**\
 `Farke said he accepts Joseph’s decision and will not stand in his way.`\
 https://nytimes.com/athletic/6509184/2025/07/22/mateo-joseph-leeds-future/
