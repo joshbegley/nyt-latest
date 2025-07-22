@@ -1,3 +1,7 @@
+**Brooklyn Activist Charged With Arson in Torching of 10 Police Vehicles**\
+`Jakhi McCray, 21, faces federal arson charges in connection with the burning of police vehicles in a parking lot last month.`\
+https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
+
 **Italian Americans, for and Against Mamdani, Square Off in New York**\
 `Feelings ran high at a colorful protest outside the Assembly district office of Zohran Mamdani, the Democratic mayoral nominee.`\
 https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
