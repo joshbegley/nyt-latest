@@ -1,3 +1,7 @@
+**Justice Dept. Reaches Out to Ghislaine Maxwell, a Longtime Epstein Associate**\
+`The latest effort by Trump subordinates is intended to quell a political crisis precipitated by the department’s announcement that it would not release more files related to the Epstein investigation.`\
+https://nytimes.com/2025/07/22/us/politics/ghislaine-maxwell-epstein-doj.html
+
 **I’m All Ears**\
 `Sautéed chicken breasts with corn and shallots; spicy corn and coconut soup; Cantonese creamed corn with tofu and rice. It’s corn time.`\
 https://nytimes.com/2025/07/22/dining/im-all-ears.html
@@ -29,8 +33,4 @@ https://nytimes.com/newsgraphics/card-story/the-gilded-age
 **gws-off-the-grid-resorts**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/off-the-grid-resorts
-
-**Watch Live: Trump Meets With Philippine President**\
-`President Trump holds a bilateral meeting in the Oval Office with President Ferdinand Marcos Jr. of the Philippines.`\
-https://nytimes.com/video/us/politics/100000010298732/watch-live-trump-meets-with-philippine-president.html
 
