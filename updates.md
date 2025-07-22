@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: U.S. Pulls Out of UNESCO Again**\
+``\
+https://nytimes.com/live/2025/07/22/us/trump-news
+
 **Aston Villa's Louie Barry completes Sheffield United loan move**\
 `The deal does not include an option to buy the English forward, who spent nearly a year in Barcelona's La Masia academy as a teenager.`\
 https://nytimes.com/athletic/6508320/2025/07/22/louie-barry-aston-villa-sheffield-united-loan-transfer/

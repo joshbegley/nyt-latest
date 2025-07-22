@@ -1,3 +1,7 @@
+**U.S. Says It Will Withdraw From U.N. Cultural Organization, Again**\
+`A decision to pull out of UNESCO was the latest move by the Trump administration to cut ties with international organizations.`\
+https://nytimes.com/2025/07/22/world/europe/us-withdraw-unesco.html
+
 **Aston Villa's Louie Barry completes Sheffield United loan move**\
 `The deal does not include an option to buy the English forward, who spent nearly a year in Barcelona's La Masia academy as a teenager.`\
 https://nytimes.com/athletic/6508320/2025/07/22/louie-barry-aston-villa-sheffield-united-loan-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502688/2025/07/22/buffalo-sabres-josh-doan/
 **Jets fan survey: Jonathan Toews' ceiling? Scott Arniel's impact? Playoff outlook?**\
 `Which top prospects make the team? What's a reasonable prediction for Toews' performance? The choices are yours to make.`\
 https://nytimes.com/athletic/6507268/2025/07/22/winnipeg-jets-jonathan-toews-scott-arniel-playoffs/
-
-**For Blues' Justin Carbonneau, confidence is just 'part of who he is'**\
-`Carbonneau, St. Louis' first-round draft pick this summer, subscribes to "The Mamba Mentality" and positive thinking.`\
-https://nytimes.com/athletic/6493205/2025/07/22/blues-2025-nhl-draft-justin-carbonneau/
 
