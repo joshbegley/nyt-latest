@@ -1,3 +1,11 @@
+**Mike Lynch’s Estate Ordered to Pay Hewlett Packard $945 Million**\
+`The technology giant had accused the British mogul, who died last year when his yacht sank, of fraud in the sale of his company in 2011.`\
+https://nytimes.com/2025/07/22/business/dealbook/mike-lynch-hp.html
+
+**Air India Finds ‘No Issues’ After Inspections of Boeing Fuel Switches**\
+`An investigation into a deadly crash last month has focused on control switches that cut off fuel to an Air India Boeing jet after takeoff.`\
+https://nytimes.com/2025/07/22/world/europe/air-india-crash-report-boeing.html
+
 **The minor playoff rule change that altered NHL history, including 4 Cup winners**\
 `How much does hockey history change if the first round of the NHL playoffs had stayed best-of-five?`\
 https://nytimes.com/athletic/6507044/2025/07/22/nhl-playoff-rule-change-stanley-cup-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6508320/2025/07/22/louie-barry-aston-villa-sheffiel
 **Children Were on Their School Lunch Break. Then a Plane Hit.**\
 `Nearly all of the 31 killed when a Bangladeshi fighter jet crashed were children. Dozens more were being treated in burn centers as the nation declared a day of mourning.`\
 https://nytimes.com/2025/07/22/world/asia/bangladesh-plane-crash-school-children.html
-
-**Will Trump’s Tariffs Spoil Earnings Season?**\
-`General Motors is the latest company to record a hit from the president’s trade war. But so far, investors remain upbeat.`\
-https://nytimes.com/2025/07/22/business/dealbook/trump-tariffs-gm-earnings.html
-
-**Trump Administration Live Updates: U.S. Pulls Out of UNESCO Again**\
-``\
-https://nytimes.com/live/2025/07/22/us/trump-news
 
