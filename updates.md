@@ -1,3 +1,7 @@
+**Video Taken by Migrant Shows Overcrowded ICE Holding Cell in Manhattan**\
+`Immigrants have complained about unsanitary conditions in the facility at 26 Federal Plaza, including paltry meals and a lack of showers.`\
+https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrowded-unsanitary.html
+
 **Russia and Ukraine to Renew Talks, but Peace Remains Elusive**\
 `Russia and Ukraine are expected to hold another round of negotiations on Wednesday in Istanbul, but the two warring countries have flatly rejected each other’s demands.`\
 https://nytimes.com/2025/07/22/world/europe/russia-ukraine-talks.html
