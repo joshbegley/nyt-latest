@@ -1,5 +1,9 @@
+**‘Ta-Da!’ Review: Josh Sharp Tries a Thing**\
+`Sam Pinkleton directs the comedian’s well-camouflaged coming-out story.`\
+https://nytimes.com/2025/07/22/theater/ta-da-review-josh-sharp-tries-a-thing.html
+
 **Carson Beck calls decision to leave Georgia 'very difficult' but says Miami is the right fit**\
-`Beck is a good fit for offensive coordinator Shannon Dawson’s balanced attack, which helped turn Cam Ward into the No. 1 pick in the draft.`\
+`Beck should thrive under offensive coordinator Shannon Dawson, who helped Cam Ward develop into the No. 1 pick in the NFL Draft. `\
 https://nytimes.com/athletic/6509169/2025/07/22/carson-beck-miami-georgia-transfer/
 
 **Back soreness forces Matthew Stafford to working on the side as Rams training camp begins**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-s
 **Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
 `Alina Habba’s term as interim U.S. attorney was set to expire on Tuesday. New Jersey’s two Democratic senators had accused her of pursuing “frivolous and politically motivated prosecutions.”`\
 https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
-
-**In Virginia, the Attack on University Presidents Widens**\
-`Gregory Washington, the first Black president of George Mason University, is under fire for his promotion of campus diversity.`\
-https://nytimes.com/2025/07/22/us/virginia-university-presidents-dei-trump.html
 

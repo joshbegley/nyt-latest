@@ -1,3 +1,11 @@
+**‘Ta-Da!’ Review: Josh Sharp Tries a Thing**\
+`Sam Pinkleton directs the comedian’s well-camouflaged coming-out story.`\
+https://nytimes.com/2025/07/22/theater/ta-da-review-josh-sharp-tries-a-thing.html
+
+**Carson Beck calls decision to leave Georgia 'very difficult' but says Miami is the right fit**\
+`Beck should thrive under offensive coordinator Shannon Dawson, who helped Cam Ward develop into the No. 1 pick in the NFL Draft. `\
+https://nytimes.com/athletic/6509169/2025/07/22/carson-beck-miami-georgia-transfer/
+
 **Carson Beck calls decision to leave Georgia 'very difficult' but says Miami is the right fit**\
 `Beck is a good fit for offensive coordinator Shannon Dawson’s balanced attack, which helped turn Cam Ward into the No. 1 pick in the draft.`\
 https://nytimes.com/athletic/6509169/2025/07/22/carson-beck-miami-georgia-transfer/
