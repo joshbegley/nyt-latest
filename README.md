@@ -1,3 +1,11 @@
+**L.A. Times Owner Says He Will Take Newspaper Public in Next Year**\
+`Dr. Patrick Soon-Shiong did not share details about the planned offering. The newspaper has not been profitable under him, and his job cuts have angered staff.`\
+https://nytimes.com/2025/07/22/business/media/la-times-newspaper-public.html
+
+**Tuesday Briefing: A Deadly Jet Crash in Bangladesh**\
+`Plus, New Zealand wines with something extra.`\
+https://nytimes.com/2025/07/22/briefing/bangladesh-plane-crash-gaza-israel-hamas-ukraine-russia.html
+
 **How Italy's perfect blend is allowing their dreams to run wild at Euro 2025**\
 `A team mixing youth and experience has delivered the country's first semi-final in a major women's tournament since the 1990s`\
 https://nytimes.com/athletic/6506185/2025/07/22/italy-euro-2025-semi-final-squad-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6507864/2025/07/22/uswnt-2027-world-cup-emma-hayes-
 **Bryan Mbeumo to Manchester United : Everything you need to know – TLDR**\
 `Manchester United have boosted their attack by signing Bryan Mbeumo from Brentford - here we break down the deal`\
 https://nytimes.com/athletic/6500257/2025/07/22/bryan-mbeumo-manchester-united-transfer-details/
-
-**P27, W0, D1, L26: Why England v Italy offers that rarest of prospects - a 'big six' Euros upset**\
-`There have been no genuine upsets at the past two Euros - the tournament favourites consistently make light work of beating the underdogs`\
-https://nytimes.com/athletic/6506798/2025/07/22/england-italy-big-six-underdogs-upsets/
-
-**The Death of a Mother and Child in Rome Stumped Police, So They Called a TV Show**\
-`When two bodies were found in a popular Roman park, Italians wanted answers. A TV program specializing in missing people helped identify them, and a suspect.`\
-https://nytimes.com/2025/07/22/world/europe/italy-mother-child-dead-police.html
 
