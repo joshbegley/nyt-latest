@@ -1,3 +1,7 @@
+**A Backpacker About to Hit the Road**\
+`Hiking shoes finished off an outfit of mostly secondhand items.`\
+https://nytimes.com/2025/07/22/style/street-style-look-backpacking-clothes.html
+
 **Diggs cleared to fully participate in Patriots training camp after ACL tear**\
 `Diggs tore his ACL in Week 8 after recording 47 catches for 496 yards and three touchdowns with the Texans last season.`\
 https://nytimes.com/athletic/6508317/2025/07/22/stefon-diggs-cleared-patriots-acl-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/learning/this-isnt-just-a-policy-debate-the-week-
 **As Raiders start training camp, here are 5 position battles to watch**\
 `Which outside receivers will step up? Who can replace Christian Wilkins if he misses time? And who will stand out at cornerback?`\
 https://nytimes.com/athletic/6500177/2025/07/22/raiders-position-battles-training-camp/
-
-**Seahawks training camp preview: Five storylines to watch in 2025**\
-`Let's preview some of the most intriguing storylines, starting with the void at tight end created by a major roster move over the weekend.`\
-https://nytimes.com/athletic/6507662/2025/07/22/seahawks-storylines-training-camp/
 
