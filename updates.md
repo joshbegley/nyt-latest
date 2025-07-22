@@ -1,3 +1,7 @@
+**Micah Parsons attends camp, says it's time for Cowboys to get contract done**\
+`Parsons said he's dealing with back tightness and it also sounded like a new deal with Dallas wasn't close.`\
+https://nytimes.com/athletic/6509621/2025/07/22/cowboys-micah-parsons-contract-jerry-jones/
+
 **Trump v. Murdoch Is an Odd Battle of Titans**\
 `The two are constrained by the thing that has kept them linked for a decade: their shared reliance on Fox News die-hards.`\
 https://nytimes.com/2025/07/22/business/media/trump-murdoch-fox-wall-street-journal.html

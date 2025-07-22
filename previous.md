@@ -1,3 +1,7 @@
+**Micah Parsons attends camp, says it's time for Cowboys to get contract done**\
+`Parsons said he's dealing with back tightness and it also sounded like a new deal with Dallas wasn't close.`\
+https://nytimes.com/athletic/6509621/2025/07/22/cowboys-micah-parsons-contract-jerry-jones/
+
 **Trump v. Murdoch Is an Odd Battle of Titans**\
 `The two are constrained by the thing that has kept them linked for a decade: their shared reliance on Fox News die-hards.`\
 https://nytimes.com/2025/07/22/business/media/trump-murdoch-fox-wall-street-journal.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/us/fall-river-assisted-living-fire-cause.html
 **No, Israel Is Not Committing Genocide in Gaza**\
 `The charge isn’t only obscene. It’s also absurd.`\
 https://nytimes.com/2025/07/22/opinion/no-israel-is-not-committing-genocide-in-gaza.html
-
-**USOPC changes policy, bans transgender women from women's competitions**\
-`The policy was quietly changed on Monday to comply with President Donald Trump’s February executive order.`\
-https://nytimes.com/athletic/6509733/2025/07/22/usopc-olympics-transgender-policy/
 
