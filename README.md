@@ -1,41 +1,40 @@
-**Qatar confirms bid to host 2036 Olympic and Paralympic Games**\
-`The Gulf nation hosted the 2022 men's World Cup, which attracted criticism due to its anti-LGBTQ+ laws and the deaths of migrant workers.
-`\
-https://nytimes.com/athletic/6508282/2025/07/22/qatar-olympic-games-2036/
+**Trump Administration Live Updates: Philippines Leader to Visit White House**\
+``\
+https://nytimes.com/live/2025/07/22/us/trump-news
 
-**Terrence Shannon Jr. stakes his claim to a Timberwolves rotation spot**\
-`Shannon probably didn't need to play in Vegas. But he sure played like he needed to.`\
-https://nytimes.com/athletic/6505195/2025/07/22/terrence-shannon-jr-timberwolves-nba-summer-league/
+**‘This Isn’t Just a Policy Debate’: The Week 5 Winner of Our Summer Reading Contest**\
+`Ayesha Afghan, 16, writes that President Trump’s executive order ending birthright citizenship is “a direct threat to the lives of children.”`\
+https://nytimes.com/2025/07/22/learning/this-isnt-just-a-policy-debate-the-week-5-winner-of-our-summer-reading-contest.html
 
-**The 6 MLB front office executives under the most pressure this trade deadline**\
-`Every front office is under the microscope at this time of year. But certain executives face more pressure to deliver than ever before. `\
-https://nytimes.com/athletic/6508193/2025/07/22/mlb-trade-deadline-front-offices-pressure/
+**As Raiders start training camp, here are 5 position battles to watch**\
+`Which outside receivers will step up? Who can replace Christian Wilkins if he misses time? And who will stand out at cornerback?`\
+https://nytimes.com/athletic/6500177/2025/07/22/raiders-position-battles-training-camp/
 
-**Rich Eisen to take over ESPN Radio's noon slot: Sources**\
-`“The Rich Eisen Show” will be the new centerpiece of ESPN Radio, airing nationally from noon-3 p.m. ET. beginning Sept. 2.`\
-https://nytimes.com/athletic/6507652/2025/07/22/espn-radio-rich-eisen-noon-slot/
+**Seahawks training camp preview: Five storylines to watch in 2025**\
+`Let's preview some of the most intriguing storylines, starting with the void at tight end created by a major roster move over the weekend.`\
+https://nytimes.com/athletic/6507662/2025/07/22/seahawks-storylines-training-camp/
 
-**7 players who could swing the Bills' 2025 season**\
-`The Bills are in their championship window, but still need some key players to step up this season.`\
-https://nytimes.com/athletic/6507270/2025/07/22/buffalo-bills-2025-season-joey-bosa-dalton-kincaid/
+**What the Sabres are getting in Josh Doan: 'He's a winner'**\
+`The Sabres have talked about the need to change their culture, and Doan is the type of person who can help lead that change.`\
+https://nytimes.com/athletic/6502688/2025/07/22/buffalo-sabres-josh-doan/
 
-**Can Ekitike be the No 9 Liverpool have lacked since Torres?**\
-`Liverpool have not had a happy history with the centre-forward position since Spaniard's exit in 2011`\
-https://nytimes.com/athletic/6497163/2025/07/22/liverpool-number-9s-hugo-ekitike-fernando-torres/
+**Jets fan survey: Jonathan Toews' ceiling? Scott Arniel's impact? Playoff outlook?**\
+`Which top prospects make the team? What's a reasonable prediction for Toews' performance? The choices are yours to make.`\
+https://nytimes.com/athletic/6507268/2025/07/22/winnipeg-jets-jonathan-toews-scott-arniel-playoffs/
 
-**Ohio State mailbag: How many transfers will start vs. Texas? Pressing camp questions?**\
-`Ohio State has a lot of talent, but the loss of 14 draft picks leaves plenty of storylines to monitor ahead of Week 1 against Texas.`\
-https://nytimes.com/athletic/6501694/2025/07/22/ohio-state-preseason-transfers-position-battles-texas/
+**For Blues' Justin Carbonneau, confidence is just 'part of who he is'**\
+`Carbonneau, St. Louis' first-round draft pick this summer, subscribes to "The Mamba Mentality" and positive thinking.`\
+https://nytimes.com/athletic/6493205/2025/07/22/blues-2025-nhl-draft-justin-carbonneau/
 
-**Israel Expands Offensive in Gaza and Raids a W.H.O. Office**\
-`Strikes in the central part of the territory targeted a city, Deir al-Balah, that had largely been spared and that had become an informal refuge for Palestinians fleeing other areas.`\
-https://nytimes.com/2025/07/22/world/middleeast/israel-gaza-deir-al-balah-who.html
+**Inside the Senators' plans to strike a new arena site deal 'by the fall'**\
+`The Senators say they're "really close" on negotiations with the National Capital Commission for a new arena to be built at LeBreton Flats.`\
+https://nytimes.com/athletic/6505840/2025/07/22/senators-arena-lebreton-flats-canadian-tire-centre-nhl/
 
-**‘Bye, Bro’: British Fighter Jet, Stranded in India, Finally Leaves for Home**\
-`A British F-35B took flight weeks after it was grounded with a mechanical hitch. Some locals who had embraced the jet were sad to see it go.`\
-https://nytimes.com/2025/07/22/world/asia/india-uk-f35-jet-kerala-airport.html
+**Flyers may or may not be better next season, but they should at least be more interesting**\
+`The 2025-26 season will still be a transitional one for the organization, but there are reasons to believe it should be pretty intriguing.`\
+https://nytimes.com/athletic/6507224/2025/07/22/flyers-2025-26-season-nhl-tyson-foerster/
 
-**Wolves close to agreeing deal for Almeria right-back Pubill**\
-`Vitor Pereira's side have been looking to strengthen the right-back position after Nelson Semedo’s contract expired at the end of June.`\
-https://nytimes.com/athletic/6508102/2025/07/22/wolves-marc-pubill-transfer-almeria/
+**A look at where the Padres can reinforce themselves this summer and next year**\
+`The Padres have multiple needs and a thinner farm system than a year ago, which might mean they have to settle for another rental or two. `\
+https://nytimes.com/athletic/6507653/2025/07/22/san-diego-padres-trade-deadline-plans/
 
