@@ -1,3 +1,7 @@
+**Raiders sign safety Jamal Adams, reuniting with coach Pete Carroll**\
+`Carroll was the coach in Seattle when the Seahawks gave up multiple first-round picks as part of 2020 trade to acquire Adams from the Jets.`\
+https://nytimes.com/athletic/6509568/2025/07/22/jamal-adams-raiders-signing-jets-seahawks-nfl/
+
 **Canada Says It Won’t Accept a Trade Deal With the U.S. at ‘Any Cost’**\
 `Prime Minister Mark Carney, after a meeting with Canada’s political leaders, downplayed the chances of success in talks aimed at reaching a trade deal with President Trump.`\
 https://nytimes.com/2025/07/22/world/canada/carney-trade-deal-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6509465/2025/07/22/nflpa-president-jalen-reeves-may
 **Wednesday Briefing: Israel Expands Gaza Offensive**\
 `Plus, the death of Ozzy Osbourne.`\
 https://nytimes.com/2025/07/22/briefing/israel-gaza-philippines-trade-us-ozzy-osbourne.html
-
-**Is High-Fructose Corn Syrup Worse for You Than Sugar?**\
-`Coca-Cola announced Tuesday that it would introduce a new cane sugar Coke product this fall. But will it be better for you?`\
-https://nytimes.com/2025/07/22/dining/high-fructose-corn-syrup.html
 
