@@ -1,3 +1,7 @@
+**Ozzy Osbourne, ‘Prince of Darkness’ Turned Reality TV Star, Dies at 76**\
+`As the lead singer of Black Sabbath, he helped invent heavy metal. On “The Osbournes,” he presented a comedic counterpoint to his rock ’n’ roll infamy.`\
+https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-dead.html
+
 **Joseph tells Leeds he wants to leave, chooses not to join pre-season camp**\
 `Farke said he accepts Joseph’s decision and will not stand in his way.`\
 https://nytimes.com/athletic/6509184/2025/07/22/mateo-joseph-leeds-future/
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/asia/100000010298826/bangladesh-plane-crash-scho
 **Teakwood Thai Chophouse Doesn’t Skip the Seafood**\
 `Tacos 1986 shares a space with Mixteca, Cabuc focuses on Turkish coffee and more restaurant news.`\
 https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
-
-**Leeds 4-1 SC Verl: Why were four players absent? How did the strikers perform?**\
-`What Beren Cross saw as Daniel Farke's men comfortably beat a German third-tier side on Tuesday in their second game of pre-season`\
-https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-score-sc-verl/
 

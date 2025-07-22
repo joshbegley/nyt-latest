@@ -1,3 +1,7 @@
+**Joseph tells Leeds he wants to leave, chooses not to join pre-season camp**\
+`Farke said he accepts Joseph’s decision and will not stand in his way.`\
+https://nytimes.com/athletic/6509184/2025/07/22/mateo-joseph-leeds-future/
+
 **‘Ta-Da!’ Review: Josh Sharp Tries a Thing**\
 `Sam Pinkleton directs the comedian’s well-camouflaged coming-out story.`\
 https://nytimes.com/2025/07/22/theater/ta-da-review-josh-sharp-tries-a-thing.html

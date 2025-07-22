@@ -1,3 +1,7 @@
+**Joseph tells Leeds he wants to leave, chooses not to join pre-season camp**\
+`Farke said he accepts Joseph’s decision and will not stand in his way.`\
+https://nytimes.com/athletic/6509184/2025/07/22/mateo-joseph-leeds-future/
+
 **‘Ta-Da!’ Review: Josh Sharp Tries a Thing**\
 `Sam Pinkleton directs the comedian’s well-camouflaged coming-out story.`\
 https://nytimes.com/2025/07/22/theater/ta-da-review-josh-sharp-tries-a-thing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
 **Leeds 4-1 SC Verl: Why were four players absent? How did the strikers perform?**\
 `What Beren Cross saw as Daniel Farke's men comfortably beat a German third-tier side on Tuesday in their second game of pre-season`\
 https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-score-sc-verl/
-
-**Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
-`Alina Habba’s term as interim U.S. attorney was set to expire on Tuesday. New Jersey’s two Democratic senators had accused her of pursuing “frivolous and politically motivated prosecutions.”`\
-https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
 
