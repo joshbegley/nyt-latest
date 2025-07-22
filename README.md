@@ -1,3 +1,7 @@
+**Empathy and Justice in Global Health**\
+`monday Letter Headline Here`\
+https://nytimes.com/2025/07/22/opinion/global-health-empathy-justice.html
+
 **Mountain Lion Is Euthanized After Attacking a Child in Olympic National Park**\
 `The 4-year-old child, who was treated at a hospital and released, had been walking with family members on a popular trail in the park.`\
 https://nytimes.com/2025/07/22/us/mountain-lion-bite-child-washington.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6508740/2025/07/22/fantasy-football-2025-stacking-q
 **As Theo Huxtable, Malcolm-Jamal Warner Grew Up Before Our Eyes**\
 `The character’s journey into adulthood was at the center of “The Cosby Show.” Here are five memorable episodes from the show’s run.`\
 https://nytimes.com/2025/07/22/arts/television/malcolm-jamal-warner-cosby-show.html
-
-**ACC commissioner: Give NCAA revenue sharing model a chance amid uncertainty**\
-`Schools have  been able to pay players directly for three weeks, and questions have already surfaced about the new system's sustainability.`\
-https://nytimes.com/athletic/6508762/2025/07/22/acc-commissioner-ncaa-revenue-sharing-model/
 

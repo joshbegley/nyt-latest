@@ -1,3 +1,19 @@
+**Mountain Lion Is Euthanized After Attacking a Child in Olympic National Park**\
+`The 4-year-old child, who was treated at a hospital and released, had been walking with family members on a popular trail in the park.`\
+https://nytimes.com/2025/07/22/us/mountain-lion-bite-child-washington.html
+
+**White House Keeps Pressure on Powell Over Rate Cuts and Renovations**\
+`President Trump and his top aides have criticized Jerome H. Powell, the Fed chair, for his management of both the economy and a $2.5 billion revamp of the central bank’s headquarters.`\
+https://nytimes.com/2025/07/22/us/politics/trump-powell-interest-rate-cuts-fed-renovations.html
+
+**‘We’re Done Being Lectured on Transparency,’ Speaker Johnson Says**\
+`Speaker Mike Johnson said that he would adjourn the House until September to avoid a vote on releasing the Jeffrey Epstein files.`\
+https://nytimes.com/video/us/politics/100000010299037/mike-johnson-house-shutdown-epstein.html
+
+**4 Romance Novels With Delicious Payoffs**\
+`Our critic on the best new books this month.`\
+https://nytimes.com/2025/07/22/books/review/new-romance-novels.html
+
 **Video Taken by Migrant Shows Overcrowded ICE Holding Cell in Manhattan**\
 `Immigrants have complained about unsanitary conditions in the facility at 26 Federal Plaza, including paltry meals and a lack of showers.`\
 https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrowded-unsanitary.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/22/arts/television/malcolm-jamal-warner-cosby-show.h
 **ACC commissioner: Give NCAA revenue sharing model a chance amid uncertainty**\
 `Schools have  been able to pay players directly for three weeks, and questions have already surfaced about the new system's sustainability.`\
 https://nytimes.com/athletic/6508762/2025/07/22/acc-commissioner-ncaa-revenue-sharing-model/
-
-**What I'm hearing about Penguins prospects and their expected NHL arrivals**\
-`Let's run through the Penguins' top prospects, what the organization thinks about them and when they could arrive in Pittsburgh.`\
-https://nytimes.com/athletic/6508543/2025/07/22/penguins-prospects-nhl-debuts/
-
-**From Bogota to Queens: La Cancha Arena is home away from home**\
-`A New York restaurant shows why soccer, food and family are deeply connected in Colombian culture.`\
-https://nytimes.com/athletic/6500107/2025/07/22/finding-futbol-queens-colombia/
-
-**As the Dollar Slides, the Euro Is Picking Up Speed**\
-`The euro has been gaining steam as investors seek new havens during geopolitical turmoil.`\
-https://nytimes.com/2025/07/22/business/euro-dollar-currency-tariffs.html
-
-**Can Dylan Cease, Jackson Chourio improve in the second half? What's holding them back?**\
-`Andrea Arcadipane details what improvements are needed for Dylan Cease and Jackson Chourio to have a strong second half of the MLB season.`\
-https://nytimes.com/athletic/6508464/2025/07/22/dylan-cease-jackson-chourio-improvement-second-half-mlb/
 

@@ -1,3 +1,19 @@
+**Mountain Lion Is Euthanized After Attacking a Child in Olympic National Park**\
+`The 4-year-old child, who was treated at a hospital and released, had been walking with family members on a popular trail in the park.`\
+https://nytimes.com/2025/07/22/us/mountain-lion-bite-child-washington.html
+
+**White House Keeps Pressure on Powell Over Rate Cuts and Renovations**\
+`President Trump and his top aides have criticized Jerome H. Powell, the Fed chair, for his management of both the economy and a $2.5 billion revamp of the central bank’s headquarters.`\
+https://nytimes.com/2025/07/22/us/politics/trump-powell-interest-rate-cuts-fed-renovations.html
+
+**‘We’re Done Being Lectured on Transparency,’ Speaker Johnson Says**\
+`Speaker Mike Johnson said that he would adjourn the House until September to avoid a vote on releasing the Jeffrey Epstein files.`\
+https://nytimes.com/video/us/politics/100000010299037/mike-johnson-house-shutdown-epstein.html
+
+**4 Romance Novels With Delicious Payoffs**\
+`Our critic on the best new books this month.`\
+https://nytimes.com/2025/07/22/books/review/new-romance-novels.html
+
 **Video Taken by Migrant Shows Overcrowded ICE Holding Cell in Manhattan**\
 `Immigrants have complained about unsanitary conditions in the facility at 26 Federal Plaza, including paltry meals and a lack of showers.`\
 https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrowded-unsanitary.html
