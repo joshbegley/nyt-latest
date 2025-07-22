@@ -1,3 +1,7 @@
+**As the Dollar Slides, the Euro Is Picking Up Speed**\
+`The euro has been gaining steam as investors seek new havens during geopolitical turmoil.`\
+https://nytimes.com/2025/07/22/business/euro-dollar-currency-tariffs.html
+
 **Can Dylan Cease, Jackson Chourio improve in the second half? What's holding them back?**\
 `Andrea Arcadipane details what improvements are needed for Dylan Cease and Jackson Chourio to have a strong second half of the MLB season.`\
 https://nytimes.com/athletic/6508464/2025/07/22/dylan-cease-jackson-chourio-improvement-second-half-mlb/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6505914/2025/07/22/canucks-stats-standings-playoffs
 **Mets trade deadline overview: Where and how can New York upgrade?**\
 `There are four main areas the Mets could address between now and July 31: the bullpen, the rotation, center field and third base.`\
 https://nytimes.com/athletic/6507833/2025/07/22/mets-trade-deadline-overview-bullpen-center-field/
-
-**Justice Dept. Reaches Out to Ghislaine Maxwell, a Longtime Epstein Associate**\
-`The latest effort by Trump subordinates is intended to quell a political crisis precipitated by the department’s announcement that it would not release more files related to the Epstein investigation.`\
-https://nytimes.com/2025/07/22/us/politics/ghislaine-maxwell-epstein-doj.html
 
