@@ -1,3 +1,15 @@
+**Hoping to Visit the U.S.? It Might Cost You an Extra $250.**\
+`A newly enacted “visa integrity fee” will apply to millions of foreign visitors, including travelers from Mexico, India, Brazil and China.`\
+https://nytimes.com/2025/07/22/travel/visa-integrity-fee-trump-big-beautiful-bill.html
+
+**Colts GM refuses to 'flush' Anthony Richardson, still believes QB can be 'really good'**\
+`Indy GM Chris Ballard: "I think we need to give Anthony every chance to be the best he can be."`\
+https://nytimes.com/athletic/6509248/2025/07/22/colts-anthony-richardson-training-camp-daniel-jones/
+
+**Landslide Traps Gold Miners in Eastern Congo**\
+`A landslide at the Lomera artisanal gold mine in eastern Congo left an unknown number of people trapped underground.`\
+https://nytimes.com/video/world/africa/100000010300021/congo-gold-mine-landslide.html
+
 **The Big Ten’s defense of College Football Playoff auto bids should be enough to bury that plan**\
 `If anyone was on the fence about “4-4-2-2-1,” Tony Petitti made it clear why they should jump right off and run toward common sense.`\
 https://nytimes.com/athletic/6509726/2025/07/22/tony-petitti-big-ten-college-football-playoff-format/
