@@ -1,3 +1,7 @@
+**Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
+`Alina Habba’s term as interim U.S. attorney was set to expire on Tuesday. New Jersey’s two Democratic senators had accused her of pursuing “frivolous and politically motivated prosecutions.”`\
+https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
+
 **In Virginia, the Attack on University Presidents Widens**\
 `Gregory Washington, the first Black president of George Mason University, is under fire for his promotion of campus diversity.`\
 https://nytimes.com/2025/07/22/us/virginia-university-presidents-dei-trump.html

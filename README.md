@@ -1,3 +1,11 @@
+**Teakwood Thai Chophouse Doesn’t Skip the Seafood**\
+`Tacos 1986 shares a space with Mixteca, Cabuc focuses on Turkish coffee and more restaurant news.`\
+https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
+
+**Leeds 4-1 SC Verl: Why were four players absent? How did the strikers perform?**\
+`Leeds managed a 4-1 victory against a German third-tier side in their second pre-season match`\
+https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-score-sc-verl/
+
 **Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
 `Alina Habba’s term as interim U.S. attorney was set to expire on Tuesday. New Jersey’s two Democratic senators had accused her of pursuing “frivolous and politically motivated prosecutions.”`\
 https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/us/politics/trump-powell-interest-rate-cuts-fed-r
 **‘We’re Done Being Lectured on Transparency,’ Speaker Johnson Says**\
 `Speaker Mike Johnson said that he would adjourn the House until September to avoid a vote on releasing the Jeffrey Epstein files.`\
 https://nytimes.com/video/us/politics/100000010299037/mike-johnson-house-shutdown-epstein.html
-
-**4 Romance Novels With Delicious Payoffs**\
-`Our critic on the best new books this month.`\
-https://nytimes.com/2025/07/22/books/review/new-romance-novels.html
-
-**Video Taken by Migrant Shows Overcrowded ICE Holding Cell in Manhattan**\
-`Immigrants have complained about unsanitary conditions in the facility at 26 Federal Plaza, including paltry meals and a lack of showers.`\
-https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrowded-unsanitary.html
 

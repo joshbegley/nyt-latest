@@ -1,3 +1,7 @@
+**Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
+`Alina Habba’s term as interim U.S. attorney was set to expire on Tuesday. New Jersey’s two Democratic senators had accused her of pursuing “frivolous and politically motivated prosecutions.”`\
+https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
+
 **In Virginia, the Attack on University Presidents Widens**\
 `Gregory Washington, the first Black president of George Mason University, is under fire for his promotion of campus diversity.`\
 https://nytimes.com/2025/07/22/us/virginia-university-presidents-dei-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/books/review/new-romance-novels.html
 **Video Taken by Migrant Shows Overcrowded ICE Holding Cell in Manhattan**\
 `Immigrants have complained about unsanitary conditions in the facility at 26 Federal Plaza, including paltry meals and a lack of showers.`\
 https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrowded-unsanitary.html
-
-**Russia and Ukraine to Renew Talks, but Peace Remains Elusive**\
-`Russia and Ukraine are expected to hold another round of negotiations on Wednesday in Istanbul, but the two warring countries have flatly rejected each other’s demands.`\
-https://nytimes.com/2025/07/22/world/europe/russia-ukraine-talks.html
 
