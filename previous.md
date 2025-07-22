@@ -1,4 +1,8 @@
-**Phillies beat Red Sox on first walk-off catcher's interference since 1969**\
+**Government’s H.R. Arm Shedding a Third of Staff**\
+`More than 750 workers have resigned with incentives, and more than 150 others have resigned without. The agency has also laid off 129 people.`\
+https://nytimes.com/2025/07/21/us/politics/office-personnel-management-layoffs.html
+
+**Phillies beat Red Sox on first walk-off catcher's interference since 1971**\
 `With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
 https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/us/oregon-waterfall-deaths.html
 **Pete Crow-Armstrong's injury serves as trade deadline reminder for Cubs**\
 `In his place, the Cubs penciled in Seiya Suzuki as the starting center fielder in Monday's lineup.`\
 https://nytimes.com/athletic/6507589/2025/07/21/chicago-cubs-pete-crow-armstrong-injury-trade-deadline/
-
-**Trump Sharpens Attacks on a Favorite Foe: The News Media**\
-`How the president is using the levers of government power against the news industry.`\
-https://nytimes.com/2025/07/21/us/politics/trump-news-media.html
 

@@ -1,3 +1,11 @@
+**Government’s H.R. Arm Shedding a Third of Staff**\
+`More than 750 workers have resigned with incentives, and more than 150 others have resigned without. The agency has also laid off 129 people.`\
+https://nytimes.com/2025/07/21/us/politics/office-personnel-management-layoffs.html
+
+**Phillies beat Red Sox on first walk-off catcher's interference since 1971**\
+`With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
+https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/
+
 **Phillies beat Red Sox on first walk-off catcher's interference since 1969**\
 `With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
 https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/

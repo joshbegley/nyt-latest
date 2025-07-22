@@ -1,3 +1,7 @@
+**Cardinals trade deadline plans remain 'fluid' as John Mozeliak continues to field calls**\
+`Even if the Cardinals can turn their recent play around, their division rivals might not give them much of a choice anyway.`\
+https://nytimes.com/athletic/6507660/2025/07/21/st-louis-cardinals-trade-deadline-plans/
+
 **Government’s H.R. Arm Shedding a Third of Staff**\
 `More than 750 workers have resigned with incentives, and more than 150 others have resigned without. The agency has also laid off 129 people.`\
 https://nytimes.com/2025/07/21/us/politics/office-personnel-management-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/21/nyregion/mamdani-protest-italian.html
 **2 Dead and 1 Missing After Plunging From Oregon Waterfall, Officials Say**\
 `Three other people were rescued on Saturday when a group of people strayed into an unsafe section of the Deschutes River near Bend, Ore., the authorities said.`\
 https://nytimes.com/2025/07/21/us/oregon-waterfall-deaths.html
-
-**Pete Crow-Armstrong's injury serves as trade deadline reminder for Cubs**\
-`In his place, the Cubs penciled in Seiya Suzuki as the starting center fielder in Monday's lineup.`\
-https://nytimes.com/athletic/6507589/2025/07/21/chicago-cubs-pete-crow-armstrong-injury-trade-deadline/
 
