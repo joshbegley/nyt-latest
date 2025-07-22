@@ -1,40 +1,40 @@
-**Mosquera flying to Singapore to join Arsenal's pre-season tour**\
-`The 21-year-old defender has been given the green light to join the rest of the squad in Singapore.`\
-https://nytimes.com/athletic/6492618/2025/07/22/cristhian-mosquera-flying-singapore-arsenal-tour-transfer/
+**In Search of Trade Deal, Philippines’ Leader Will Meet With Trump**\
+`President Trump has placed a 20 percent tariff on goods imported from the country, effective Aug. 1.`\
+https://nytimes.com/2025/07/22/us/politics/trump-trade-philippines-marcos.html
 
-**Matteo Jorgenson interview: 'We don't have regrets with how we've raced'**\
-`Jorgenson talks to The Athletic about his approach to this year's Tour de France, tension with Pogacar and the state of American cycling  `\
-https://nytimes.com/athletic/6506481/2025/07/22/tour-de-france-matteo-jorgenson-interview/
+**Are the Democrats Dead or Alive?**\
+`Trump’s approval rating is falling. It’s not helping his opponents.`\
+https://nytimes.com/2025/07/22/opinion/are-the-democrats-dead-or-alive.html
 
-**Leeds confirm signing of Stach from Hoffenheim**\
-`The 26-year-old midfielder has signed a four-year deal at Elland Road.`\
-https://nytimes.com/athletic/6503703/2025/07/22/leeds-anton-stach-transfer-confirmed/
+**A City’s in Grave Danger. Why Would Superman Save a Squirrel?**\
+`The moment is key to understanding the director James Gunn’s conception of Superman. But it almost didn’t make the final cut.`\
+https://nytimes.com/2025/07/22/movies/superman-squirrel-james-gunn.html
 
-**Jon Stewart Supports Friend Stephen Colbert Through CBS Cancellation**\
-`Stewart admitted that he was “certainly not the most objective to comment on this matter” before sharing his feelings about the end of “The Late Show.”`\
-https://nytimes.com/2025/07/22/arts/television/jon-stewart-supports-stephen-colbert.html
+**Call It the Labubu Effect: Cute Sidekicks Rule Multiplexes This Summer**\
+`In hit after hit, adorable monsters — as chaotic and cuddly as the popular accessory — have fulfilled moviegoers’ need for escapism.`\
+https://nytimes.com/2025/07/22/movies/labubu-movie-sidekicks-stitch-toothless.html
 
-**Mathieu van der Poel abandons Tour de France after pneumonia diagnosis**\
-`The 30-year-old had been enjoying the best Tour of his career, having won stage two and worn the yellow jersey on two separate occasions.`\
-https://nytimes.com/athletic/6508013/2025/07/22/mathieu-van-der-poel-tour-de-france-pneumonia/
+**There Is Hope for Democrats. Look to Kansas.**\
+`Two Opinion writers on the Democratic governors who might just save the party.`\
+https://nytimes.com/2025/07/22/opinion/democrats-governors-2028-kansas.html
 
-**England vs Italy Euro 2025 semi-final odds, prediction: Lionesses heavily favoured**\
-`After barely surviving against Sweden, England head into the Euro 2025 semi-final against Italy as overwhelming favourites.`\
-https://nytimes.com/athletic/6506857/2025/07/22/england-italy-euro-2025-semi-final-odds-prediction/
+**The Hottest New Cafe Is in Someone’s Living Room**\
+`Young hosts are turning their apartments into makeshift coffeehouses, and documenting the process on social media. Are they social events or side hustles?`\
+https://nytimes.com/2025/07/22/style/home-cafe-restaurant-popup.html
 
-**The Missing Boy Whose Case Keeps Coming Back**\
-`Etan Patz’s face stared out at America. His disappearance shaped childhoods for decades.`\
-https://nytimes.com/2025/07/22/nyregion/etan-patz-case-new-york-mood.html
+**Hey, My Kid Could Have Drawn That! Hers Did.**\
+`A designer and ceramicist set out to build a house in New York’s Hudson Valley region that her family could live in forever. Her son’s sketches stole the show.`\
+https://nytimes.com/2025/07/22/realestate/kid-drawings-bathroom-tile-thacker.html
 
-**From Roman London, a Jigsaw Puzzle for the Ages**\
-`Archaeologists are piecing together vivid 1,800-year-old frescoes from “thousands upon thousands upon thousands” of plaster fragments, with no picture on the box to guide them.`\
-https://nytimes.com/2025/07/22/science/archaeology-roman-frescoes-puzzles.html
+**My Mother, the Artist, Discovered at 90**\
+`What I learned about myself trying to find homes for my mother’s amateur oil paintings.`\
+https://nytimes.com/2025/07/22/opinion/family-grief-loss.html
 
-**As Cost-Burdened New Yorkers Give Up Pets, Shelters Turn Them Away**\
-`Many New Yorkers have been surrendering their pets because they can no longer afford to keep them, outpacing animal shelters’ capacity, a shelter official said.`\
-https://nytimes.com/2025/07/22/nyregion/nyc-animal-shelters.html
+**What’s the Hardest Part of Parenting in 2025? We Want to Hear From You.**\
+`The New York Times is looking to talk to today’s parents, who face challenges that would be unimaginable to previous generations.`\
+https://nytimes.com/2025/07/22/style/parenting-kids-difficulties-questions.html
 
-**Forget Bingo. These 90-Year-Olds Just Want to Dance.**\
-`A Times reporter explored aging, loneliness and the joy of intergenerational connections.`\
-https://nytimes.com/2025/07/22/insider/aging-loneliness.html
+**How Fast Can a 2,000-Pound Bison Chase You? Take This Wildlife Quiz.**\
+`That bison may be huge, but it can run a lot faster than you think. Test how much you know about staying safe around animals like bears, alligators and, yes, bison.`\
+https://nytimes.com/interactive/2025/07/22/travel/wildlife-quiz-travel.html
 
