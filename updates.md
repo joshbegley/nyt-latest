@@ -1,3 +1,7 @@
+**For Damian Lillard, returning 'home' to Portland 'wasn’t hard at all'**\
+`After signing a three-year, $45 million deal to return to the Blazers, Lillard said "it never felt right, not being home.”`\
+https://nytimes.com/athletic/6507754/2025/07/21/damian-lillard-returns-to-portland/
+
 **Cardinals trade deadline plans remain 'fluid' as John Mozeliak fields calls**\
 `Even if the Cardinals can turn their recent play around, their division rivals might make them deadline sellers anyway.`\
 https://nytimes.com/athletic/6507660/2025/07/21/st-louis-cardinals-trade-deadline-plans/

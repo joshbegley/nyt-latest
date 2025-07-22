@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/21/us/politics/office-personnel-management-layoffs.h
 `With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
 https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/
 
-**Damian Lillard returns to Portland, eyes fresh start back 'home' after Bucks exit**\
+**For Damian Lillard, returning 'home' to Portland 'wasn’t hard at all'**\
 `After signing a three-year, $45 million deal to return to the Blazers, Lillard said "it never felt right, not being home.”`\
 https://nytimes.com/athletic/6507754/2025/07/21/damian-lillard-returns-to-portland/
 
