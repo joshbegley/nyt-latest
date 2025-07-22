@@ -1,3 +1,11 @@
+**Hoping to Visit the U.S.? It Might Cost You an Extra $250.**\
+`A newly enacted “visa integrity fee” will apply to millions of foreign visitors, including travelers from Mexico, India, Brazil and China.`\
+https://nytimes.com/2025/07/22/travel/visa-integrity-fee-trump-big-beautiful-bill.html
+
+**Colts GM refuses to 'flush' Anthony Richardson, still believes QB can be 'really good'**\
+`Indy GM Chris Ballard: "I think we need to give Anthony every chance to be the best he can be."`\
+https://nytimes.com/athletic/6509248/2025/07/22/colts-anthony-richardson-training-camp-daniel-jones/
+
 **Landslide Traps Gold Miners in Eastern Congo**\
 `A landslide at the Lomera artisanal gold mine in eastern Congo left an unknown number of people trapped underground.`\
 https://nytimes.com/video/world/africa/100000010300021/congo-gold-mine-landslide.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/briefing/house-epstein-vote-ozzy-osboure-dead.htm
 **Shia LaBeouf Settles Sexual Battery Lawsuit by FKA twigs**\
 `A joint statement by their lawyers said they wished “each other personal happiness, professional success and peace in the future.”`\
 https://nytimes.com/2025/07/22/arts/music/shia-labeouf-fka-twigs-lawsuit-settlement.html
-
-**The Briefing: England 2 Italy 1 – Lionesses into final again after another Agyemang-Kelly rescue act**\
-`Charlotte Harpur and Cerys Jones analyse the main talking points as England beat Italy in their Euro 2025 semi-final`\
-https://nytimes.com/athletic/6506143/2025/07/22/england-italy-euros-analysis/
-
-**Amid Fear of Retaliation, N.S.F. Workers Sign Letter of Dissent**\
-`In a public letter, employees of the National Science Foundation accused the administration of politicizing the agency and impeding scientific innovation.`\
-https://nytimes.com/2025/07/22/science/trump-science-foundation-letter.html
 
