@@ -1,3 +1,15 @@
+**When Betelgeuse Explodes, It’s Going to Take Out Another Star**\
+`The tempestuous star in Orion’s shoulder has a buddy, and neither of their futures look bright.`\
+https://nytimes.com/2025/07/21/science/betelgeuse-star-companion.html
+
+**Place for Umbrellas**\
+`Jeremy Newton gives us a brain freeze.`\
+https://nytimes.com/2025/07/21/crosswords/daily-puzzle-2025-07-22.html
+
+**Fan falls into Wrigley Field basket retrieving homer from Royals' Jac Caglianone**\
+`For that fan, he got a souvenir and a story to tell coming out of the game. `\
+https://nytimes.com/athletic/6507710/2025/07/21/fan-falls-into-wrigley-field-basket-cubs-royals/
+
 **Brooklyn Activist Charged With Arson in Torching of 10 Police Vehicles**\
 `Jakhi McCray, 21, faces federal arson charges in connection with the burning of police vehicles in a parking lot last month.`\
 https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/21/us/politics/breonna-taylor-brett-hankison-prison.
 **Chargers training camp report, Day 4: Quentin Johnston is seizing his opportunity**\
 `The Chargers tried upgrading at outside receiver this offseason. Can Johnson finally realize his first-round potential? `\
 https://nytimes.com/athletic/6507491/2025/07/21/chargers-training-camp-quentin-johnston/
-
-**U.S.-Based Orange Juice Importer Sues Over Trump’s 50% Tariff on Brazilian Goods**\
-`Orange juice prices in the U.S. are already high. The suit argues that the tariff would lead to retail price hikes of up to 25 percent.`\
-https://nytimes.com/2025/07/21/us/politics/orange-juice-trump-brazil-tariffs.html
-
-**State of the Phillies as trade deadline nears: David Robertson, Justin Crawford, another reliever?**\
-`Ideally, Robertson could help the Phillies in the later innings in August and September, then slot in the middle of the 'pen come October.`\
-https://nytimes.com/athletic/6507467/2025/07/21/phillies-trade-deadine-david-robertson-justin-crawford/
-
-**F.D.A. Panel Debates ‘Black Box’ Warning for Antidepressants in Pregnancy**\
-`An agency-sponsored forum included critics of psychiatry who believe the drugs can harm a developing fetus. Other experts said antidepressants were safe and necessary.`\
-https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html
 
