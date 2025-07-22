@@ -1,3 +1,7 @@
+**English club part of initiative to 'prescribe football' to treat mental health conditions**\
+`The pilot scheme aims to combine the community and physical health benefits of soccer to improve mental health without medication.`\
+https://nytimes.com/athletic/6508145/2025/07/22/football-on-prescription-mental-health/
+
 **G.M. Profit Shrinks on Billion-Dollar Tariff Hit**\
 `General Motors was the second auto company this week, after Stellantis, to show the toll that President Trump’s trade policies are taking on the industry.`\
 https://nytimes.com/2025/07/22/business/gm-profit-tariffs-trump.html
