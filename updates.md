@@ -1,3 +1,11 @@
+**White House Leads Push to Block Watchdog’s Inquiries Into Spending Cuts**\
+`Republicans are seeking to undermine the Government Accountability Office as it investigates, and considers suing, over the Trump administration’s withholding federal funds.`\
+https://nytimes.com/2025/07/22/us/politics/trump-spending-government-accountability-office.html
+
+**Leeds finalising return of Howson to club as player-coach**\
+`The 37-year-old left Leeds 13 years ago after making 225 appearances.`\
+https://nytimes.com/athletic/6508532/2025/07/22/jonny-howson-leeds-player-coach/
+
 **Diamondbacks' Ketel Marte says he lost $400K in home burglary**\
 `The break-in is the latest in a string of burglaries targeting professional athletes.`\
 https://nytimes.com/athletic/6508489/2025/07/22/ketel-marte-diamondbacks-burglary/

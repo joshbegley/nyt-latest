@@ -1,3 +1,11 @@
+**Arsenal's evolving attack: The options Gyokeres and Madueke open up for Arteta**\
+`His team were too predictable at times last season. This summer's recruitment should give the manager more flexibility and unpredictability`\
+https://nytimes.com/athletic/6492990/2025/07/22/arsenal-attack-gyokeres-madueke-options/
+
+**NPR’s Top Editor Is Stepping Down**\
+`Edith Chapin, who is also acting chief content officer, has been editor in chief of the public radio network since 2023.`\
+https://nytimes.com/2025/07/22/business/media/npr-edith-chapin-steps-down.html
+
 **White House Leads Push to Block Watchdog’s Inquiries Into Spending Cuts**\
 `Republicans are seeking to undermine the Government Accountability Office as it investigates, and considers suing, over the Trump administration’s withholding federal funds.`\
 https://nytimes.com/2025/07/22/us/politics/trump-spending-government-accountability-office.html
@@ -25,16 +33,4 @@ https://nytimes.com/2025/07/22/nyregion/ny-prison-phone-calls.html
 **Astros' Brice Matthews is 'not a finished product.' He still produced the game of his life**\
 `The 23-year-old hit two home runs and drove in five runs, showing that he has potential despite needing to work on his swing decisions.`\
 https://nytimes.com/athletic/6507973/2025/07/22/astros-brice-matthews-two-home-runs/
-
-**Trey Hendrickson not reporting to Bengals training camp amid contract dispute**\
-`Hendrickson and the team have been in contentious negotiations as he seeks an extension on the one-year, $16 million remaining on his deal.`\
-https://nytimes.com/athletic/6508501/2025/07/22/trey-hendrickson-not-reporting-bengals-training-camp/
-
-**The Gift of a New Opera House, With a Grim Family History Attached**\
-`A billionaire will fund the construction of a new home for the Hamburg State Opera. But questions linger over his company’s actions during World War II.`\
-https://nytimes.com/2025/07/22/arts/music/hamburg-opera-house-klaus-michael-kuehne.html
-
-**'No d***heads': Why All Blacks guru Enoka is working with England's cricket team**\
-`England hope the mental performance coach will give them an edge as they seek to close out series win over India`\
-https://nytimes.com/athletic/6508377/2025/07/22/england-cricket-gilbert-enoka-no-dickheads-all-blacks/
 
