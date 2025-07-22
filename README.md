@@ -1,3 +1,7 @@
+**Word of the Day: simile**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/22/learning/word-of-the-day-simile.html
+
 **Marcell Ozuna trade appears inevitable; Austin Riley could return Tuesday**\
 `The Braves added veteran Sandy León as a third catcher Monday, another sign that slumping DH Marcell Ozuna will be traded before July 31.`\
 https://nytimes.com/athletic/6507871/2025/07/22/braves-adding-3rd-catcher-makes-marcell-ozuna-trade-seem-inevitable/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/22/opinion/assisted-suicide-economics.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/22/todays-new-york-times
 
-**Dodgers' Tanner Scott exits 9th inning with apparent injury**\
+**Dodgers' Tanner Scott will "most likely" land on IL with left forearm issue**\
 `The left-hander, who is in the first year of a four-year, $72 million deal, has struggled plenty in his first season in Los Angeles.`\
 https://nytimes.com/athletic/6507929/2025/07/22/los-angeles-dodgers-tanner-scott-exits-game/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502446/2025/07/22/nottingham-forest-loan-apollo-ma
 **Barcelona are signing Marcus Rashford on loan. But will they even be able to register him?**\
 `Rashford has agreed a loan move to Flick's side but the club's ongoing issues with registering players make it far from straightforward`\
 https://nytimes.com/athletic/6501648/2025/07/22/barcelona-rashford-register-la-liga/
-
-**Max Lazar shows some confidence, earns some trust in Phillies' weird walk-off**\
-`“He’s been great,” manager Rob Thomson said. “I trust him. He’s been really good. And he’s got ice in his veins, too."`\
-https://nytimes.com/athletic/6507839/2025/07/22/phillies-max-lazar-shows-confidence/
 
