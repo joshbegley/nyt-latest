@@ -1,3 +1,7 @@
+**Video Taken by Migrant Shows Overcrowded ICE Holding Cell in Manhattan**\
+`Immigrants have complained about unsanitary conditions in the facility at 26 Federal Plaza, including paltry meals and a lack of showers.`\
+https://nytimes.com/2025/07/22/nyregion/video-immigration-holding-cells-overcrowded-unsanitary.html
+
 **Russia and Ukraine to Renew Talks, but Peace Remains Elusive**\
 `Russia and Ukraine are expected to hold another round of negotiations on Wednesday in Istanbul, but the two warring countries have flatly rejected each other’s demands.`\
 https://nytimes.com/2025/07/22/world/europe/russia-ukraine-talks.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/business/euro-dollar-currency-tariffs.html
 **Can Dylan Cease, Jackson Chourio improve in the second half? What's holding them back?**\
 `Andrea Arcadipane details what improvements are needed for Dylan Cease and Jackson Chourio to have a strong second half of the MLB season.`\
 https://nytimes.com/athletic/6508464/2025/07/22/dylan-cease-jackson-chourio-improvement-second-half-mlb/
-
-**Brentford turn down £25m Wissa offer from Newcastle**\
-`Newcastle's pursuit of the 28-year-old forward is ongoing, while personal terms would be no problem.`\
-https://nytimes.com/athletic/6486297/2025/07/22/yoane-wissa-newcastle-united/
 
