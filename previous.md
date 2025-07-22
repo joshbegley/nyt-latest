@@ -1,40 +1,40 @@
-**English club part of initiative to 'prescribe football' to treat mental health conditions**\
-`The pilot scheme aims to combine the community and physical health benefits of soccer to improve mental health without medication.`\
-https://nytimes.com/athletic/6508145/2025/07/22/football-on-prescription-mental-health/
+**Yankees' Spencer Jones ahead of the trade deadline: 'I want to play in New York'**\
+`Jones said he understands why some may be skeptical, but he's never had more confidence in his game. Do the Yankees feel similarly?`\
+https://nytimes.com/athletic/6507123/2025/07/22/spencer-jones-yankees-trade-deadline/
 
-**G.M. Profit Shrinks on Billion-Dollar Tariff Hit**\
-`General Motors was the second auto company this week, after Stellantis, to show the toll that President Trump’s trade policies are taking on the industry.`\
-https://nytimes.com/2025/07/22/business/gm-profit-tariffs-trump.html
+**TAFC: Can Barca register Rashford? Parma eye Reyna, Premier League ticket price table**\
+`Today in TAFC: Can Barcelona definitely register Marcus Rashford? Plus: Transfer latest as Parma eye Reyna and Chelsea look at Xavi Simons.`\
+https://nytimes.com/athletic/6508012/2025/07/22/barcelona-rasford-parma-reyna-epl-ticket-prices/
 
-**The Pulse: Let’s start football season with some takes**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6506943/2025/07/22/nfl-power-rankings-the-pulse/
+**Patriots have even more important goal than beating 8.5 wins — it's called respectability**\
+`That's a key test that awaits Mike Vrabel and the Pats this season. Are they a respected, well-run organization or just an NFL backwater?`\
+https://nytimes.com/athletic/6507686/2025/07/22/new-england-patriots-goals-respectability-win-total/
 
-**Xhaka tells Leverkusen he wants Sunderland move**\
-`The 32-year-old is prioritising a move to Regis Le Bris’ men over other suitors.`\
-https://nytimes.com/athletic/6508096/2025/07/22/granit-xhaka-sunderland-transfer-leverkusen/
+**Blue Jays' core makes history against Yankees, pushes deeper into uncharted territory**\
+`"Honestly didn't know what to expect on a Monday night, but this place was rocking," Kevin Gausman said of the Jays' 11th straight home win.`\
+https://nytimes.com/athletic/6507908/2025/07/22/blue-jays-yankees-history/
 
-**Austria Prepares to Give Up ‘Dream’ of Disarmament**\
-`Historically neutral, the country is set to double military spending, even in the midst of a budget crisis, as its neighbors also spend big to counter Russia.`\
-https://nytimes.com/2025/07/22/world/europe/austria-stocker-military-spending.html
+**How much money are college football programs actually worth? It's complicated**\
+`What college football programs would sell for if they could go on the market is a much different question than what they're actually worth.`\
+https://nytimes.com/athletic/6507297/2025/07/22/how-much-college-football-programs-worth/
 
-**How accurate can Michael Penix Jr. be? 7 key questions as Falcons training camp begins**\
-`Can the Falcons end their playoff drought? How much can Bijan Robinson carry? These questions are on our mind as training camp begins.`\
-https://nytimes.com/athletic/6497841/2025/07/22/falcons-training-camp-questions-2025/
+**One-on-one: After 'iconic' Rangers tenure, Chris Kreider opens up about New York departure**\
+`“For me it’s been kind of gradual, which I think is nice,” Kreider said of the transition. “I don’t know; I have nothing to compare it to."`\
+https://nytimes.com/athletic/6507482/2025/07/22/chris-kreider-rangers-ducks-trade-nhl/
 
-**Who are the Stud Budz? Understanding the sensation of WNBA All-Star Weekend**\
-`Courtney Williams and Natisha Hiedeman were the unexpected stars thanks to the uninhibited joy of their ever-present Twitch livestream.`\
-https://nytimes.com/athletic/6507411/2025/07/22/stud-budz-studbudz-courtney-williams-natisha-hiedeman-wnba-twitch/
+**Paralluelo interview: 'I couldn't give my all because of the pain. I had to stop'**\
+`The Spain winger, a former athletics star as a junior, had to take four months out during the season as her body adapted to football`\
+https://nytimes.com/athletic/6506976/2025/07/22/salma-paralluelo-interview-spain-euro-2025/
 
-**Vikings training camp: 10 things I’ll be watching when it kicks off**\
-`Fans are hopeful about the Vikings after their successful offseason. Here are 10 things our expert will be watching when practice begins.`\
-https://nytimes.com/athletic/6506984/2025/07/22/vikings-training-camp-storylines/
+**'Still a top shortstop': Yankees’ Aaron Boone defends Anthony Volpe after another costly error**\
+`"It's a few too many," manager Aaron Boone said of Volpe's 12 errors, the most in the American League this season. `\
+https://nytimes.com/athletic/6507881/2025/07/22/yankees-aaron-boone-defends-anthony-volpe-error/
 
-**Cowboys report: Expect Dak Prescott's workload to be limited during camp**\
-`The Cowboys also discussed having a physical training camp, Trevon Diggs' pay cut and briefly touched on KaVontae Turpin's offseason.`\
-https://nytimes.com/athletic/6507391/2025/07/22/cowboys-training-camp-dak-prescott/
+**What we heard from coaches about NCAA Tournament expansion**\
+`Coaches polled by The Athletic last week at Peach Jam were split down the middle on whether the tourney should expand beyond 68 teams.`\
+https://nytimes.com/athletic/6507401/2025/07/22/ncaa-tournament-expansion-coaches-opinion/
 
-**Twins lose again as trade deadline looms: 'We know the situation'**\
-`July 31 is fast approaching for a Twins team who have struggled all season to stay on the correct course.`\
-https://nytimes.com/athletic/6507982/2025/07/22/twins-dodgers-byron-buxton-ohtani/
+**34 players, two wins and a quiz night: Learnings from Brighton's summer training camp**\
+`Brighton's trip to Marbella wasn't all serious business, as preparations for Fabian Hurzeler's second season click into gear`\
+https://nytimes.com/athletic/6492708/2025/07/22/brighton-summer-training-marbella/
 
