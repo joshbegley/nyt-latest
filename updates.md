@@ -1,3 +1,11 @@
+**Broncos' defense embracing lofty expectations after 'monstrous' additions**\
+`The Broncos may have their most complete defensive personnel since 2015, but how quickly can the unit incorporate a handful of new players?`\
+https://nytimes.com/athletic/6509295/2025/07/22/broncos-defense-2025-training-camp/
+
+**Panthers release Josey Jewell as the LB focuses on concussion recovery**\
+`Trevin Wallace and Christian Rozeboom are the likely first-team inside linebackers with Jewell's release.`\
+https://nytimes.com/athletic/6509339/2025/07/22/panthers-josey-jewell-release-concussion/
+
 **gws-caribbean-ferries**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/caribbean-ferries

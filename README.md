@@ -1,3 +1,11 @@
+**Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
+`His New Albion Brewing Company, founded in 1976, was considered the first microbrewery. It set the model for thousands more to come.`\
+https://nytimes.com/2025/07/22/us/jack-mcauliffe-dead.html
+
+**William H. Neukom, Microsoft Lawyer Who Led Antitrust Fight, Dies at 83**\
+`In the 1990s, the U.S. called Microsoft a bullying monopoly and sought to rein it in. The company lost in a landmark decision, but emerged intact.`\
+https://nytimes.com/2025/07/22/business/william-h-neukom-dead.html
+
 **Broncos' defense embracing lofty expectations after 'monstrous' additions**\
 `The Broncos may have their most complete defensive personnel since 2015, but how quickly can the unit incorporate a handful of new players?`\
 https://nytimes.com/athletic/6509295/2025/07/22/broncos-defense-2025-training-camp/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6509451/2025/07/22/tyrann-mathieu-retirement-cardin
 **Phillies sign first-round pick Gage Wood**\
 `The right-handed pitcher throws a fastball that reaches 98 mph, sitting at 95-96 mph.`\
 https://nytimes.com/athletic/6509437/2025/07/22/phillies-gage-wood-arkansas/
-
-**Film Forum Director to Step Down**\
-`Sonya Chung, who assumed the role in 2023, is leaving after just over two years. No reason was given for her departure.`\
-https://nytimes.com/2025/07/22/arts/film-forum-sonya-chung.html
-
-**gws-hyeres-france-beach-art-architecture**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/hyeres-france-beach-art-architecture
 
