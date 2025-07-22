@@ -1,3 +1,15 @@
+**As Theo Huxtable, Malcolm-Jamal Warner Grew Up Before Our Eyes**\
+`The character’s journey into adulthood was at the center of “The Cosby Show.” Here are five memorable episodes from the show’s run.`\
+https://nytimes.com/2025/07/22/arts/television/malcolm-jamal-warner-cosby-show.html
+
+**ACC commissioner: Give NCAA revenue sharing model a chance amid uncertainty**\
+`Schools have  been able to pay players directly for three weeks, and questions have already surfaced about the new system's sustainability.`\
+https://nytimes.com/athletic/6508762/2025/07/22/acc-commissioner-ncaa-revenue-sharing-model/
+
+**What I'm hearing about Penguins prospects and their expected NHL arrivals**\
+`Let's run through the Penguins' top prospects, what the organization thinks about them and when they could arrive in Pittsburgh.`\
+https://nytimes.com/athletic/6508543/2025/07/22/penguins-prospects-nhl-debuts/
+
 **From Bogota to Queens: La Cancha Arena is home away from home**\
 `A New York restaurant shows why soccer, food and family are deeply connected in Colombian culture.`\
 https://nytimes.com/athletic/6500107/2025/07/22/finding-futbol-queens-colombia/
