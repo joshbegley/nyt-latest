@@ -1,3 +1,11 @@
+**G.M. Profit Shrinks on Billion-Dollar Tariff Hit**\
+`General Motors was the second auto company this week, after Stellantis, to show the toll that President Trump’s trade policies are taking on the industry.`\
+https://nytimes.com/2025/07/22/business/gm-profit-tariffs-trump.html
+
+**The Pulse: Let’s start football season with some takes**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6506943/2025/07/22/nfl-power-rankings-the-pulse/
+
 **Xhaka tells Leverkusen he wants Sunderland move**\
 `The 32-year-old is prioritising a move to Regis Le Bris’ men over other suitors.`\
 https://nytimes.com/athletic/6508096/2025/07/22/granit-xhaka-sunderland-transfer-leverkusen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6507982/2025/07/22/twins-dodgers-byron-buxton-ohtan
 **Preseason All-Big Ten team: Drew Allar, Jeremiah Smith headline stacked 2025 list**\
 `The Athletic's 2025 Preseason All-Big Ten team features returning stars, high-level transfers and talent from all over the league. `\
 https://nytimes.com/athletic/6502725/2025/07/22/preseason-all-big-ten-team-drew-allar/
-
-**Projecting Ravens' 53-man roster as training camp gets underway**\
-`Which returning players from last season may be on the roster bubble? And will either rookie kicker be a worthy successor to Justin Tucker?`\
-https://nytimes.com/athletic/6499096/2025/07/22/ravens-53-man-roster-projection-training-camp/
-
-**Smith: Want Verstappen, Toto? Then make a blockbuster Russell partnership work for F1**\
-`Mercedes is yet to name its 2026 F1 drivers. With interest from Red Bull's Max Verstappen, Luke Smith argues he should join George Russell`\
-https://nytimes.com/athletic/6506174/2025/07/22/verstappen-mercedes-russell-f1/
 
