@@ -7,7 +7,7 @@ https://nytimes.com/video/world/asia/100000010298826/bangladesh-plane-crash-scho
 https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
 
 **Leeds 4-1 SC Verl: Why were four players absent? How did the strikers perform?**\
-`Leeds managed a 4-1 victory against a German third-tier side in their second pre-season match`\
+`What Beren Cross saw as Daniel Farke's men comfortably beat a German third-tier side on Tuesday in their second game of pre-season`\
 https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-score-sc-verl/
 
 **Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
