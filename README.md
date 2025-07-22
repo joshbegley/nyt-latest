@@ -1,3 +1,11 @@
+**gws-caribbean-ferries**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/caribbean-ferries
+
+**Why there won't be an easy resolution to Terry McLaurin's contract situation**\
+`This will have to play out slowly, maybe angrily, for the next few days and weeks to get each side to agree on an extension. `\
+https://nytimes.com/athletic/6508867/2025/07/22/terry-mclaurin-commanders-contract-gm-adam-peters/
+
 **Syrian Inquiry Says Military Leaders Did Not Order Sectarian Killings in March**\
 `A fact-finding committee presented findings on a wave of sectarian killings earlier this year. Human rights experts said the report failed to hold the country’s security establishment accountable.`\
 https://nytimes.com/2025/07/22/world/middleeast/syria-military-killings-human-rights.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6509218/2025/07/22/lions-training-camp-alex-anzalon
 **Ten Hag: Xhaka 'too important' for Leverkusen to lose amid Sunderland talks**\
 `The Athletic reported on Tuesday Xhaka, 32, was prioritising a move to Sunderland over other suitors.`\
 https://nytimes.com/athletic/6509386/2025/07/22/erik-ten-hag-granit-xhaka-leverkusen/
-
-**Digital artwork of Lionel Messi's favorite goal sold for $1.87M to mystery buyer**\
-`The elaborate project depicted Messi's most cherished goal from his glittering career.`\
-https://nytimes.com/athletic/6509309/2025/07/22/lionel-messi-refik-anadol-artwork-christies/
-
-**Wartime Protests in Ukraine Target Zelensky for the First Time**\
-`The demonstrators were angered by government moves to dismantle anticorruption efforts and quell dissent.`\
-https://nytimes.com/2025/07/22/world/europe/zelensky-protests-corruption.html
 
