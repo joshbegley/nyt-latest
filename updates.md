@@ -1,3 +1,7 @@
+**Witnesses Recall Deadly Bangladesh Plane Crash**\
+`At least 31 people were killed after a military jet crashed into a school building in Dhaka. The tragedy at the Milestone School and College has led to a national outpouring of grief.`\
+https://nytimes.com/video/world/asia/100000010298826/bangladesh-plane-crash-school.html
+
 **Teakwood Thai Chophouse Doesn’t Skip the Seafood**\
 `Tacos 1986 shares a space with Mixteca, Cabuc focuses on Turkish coffee and more restaurant news.`\
 https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
