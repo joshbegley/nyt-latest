@@ -1,3 +1,7 @@
+**Wolves close to agreeing deal for Almeria right-back Pubill**\
+`Vitor Pereira's side have been looking to strengthen the right-back position after Nelson Semedo’s contract expired at the end of June.`\
+https://nytimes.com/athletic/6508102/2025/07/22/wolves-marc-pubill-transfer-almeria/
+
 **Understanding the Epstein Saga**\
 `In the swirl of conspiracy theories, it’s hard to tell what’s real.`\
 https://nytimes.com/2025/07/22/briefing/understanding-the-epstein-saga.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506976/2025/07/22/salma-paralluelo-interview-spain
 **'Still a top shortstop': Yankees’ Aaron Boone defends Anthony Volpe after another costly error**\
 `"It's a few too many," manager Aaron Boone said of Volpe's 12 errors, the most in the American League this season. `\
 https://nytimes.com/athletic/6507881/2025/07/22/yankees-aaron-boone-defends-anthony-volpe-error/
-
-**What we heard from coaches about NCAA Tournament expansion**\
-`Coaches polled by The Athletic last week at Peach Jam were split down the middle on whether the tourney should expand beyond 68 teams.`\
-https://nytimes.com/athletic/6507401/2025/07/22/ncaa-tournament-expansion-coaches-opinion/
 

@@ -1,3 +1,7 @@
+**Wolves close to agreeing deal for Almeria right-back Pubill**\
+`Vitor Pereira's side have been looking to strengthen the right-back position after Nelson Semedo’s contract expired at the end of June.`\
+https://nytimes.com/athletic/6508102/2025/07/22/wolves-marc-pubill-transfer-almeria/
+
 **Understanding the Epstein Saga**\
 `In the swirl of conspiracy theories, it’s hard to tell what’s real.`\
 https://nytimes.com/2025/07/22/briefing/understanding-the-epstein-saga.html
