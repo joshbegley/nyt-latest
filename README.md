@@ -1,3 +1,11 @@
+**How NBA scouts evaluate talent in the summer league**\
+`NBA Summer League is a "gold mine" for scouts searching for players to fill out rosters. Here's why it's more useful than ever.`\
+https://nytimes.com/athletic/6506886/2025/07/22/nba-summer-league-2025-scouting-players/
+
+**How to watch Fever at Liberty: Clark out, Jones in for high-profile rematch**\
+`Will the short-handed Fever be able to knock off the defending champions as they return to full strength?`\
+https://nytimes.com/athletic/6507372/2025/07/22/fever-liberty-caitlin-clark-how-to-watch/
+
 **The Patriots' top storylines as training camp opens**\
 `Is Stefon Diggs healthy, and can he be a legit No. 1 receiver? Is the pass rush good enough? Can Drake Maye take the next step forward?`\
 https://nytimes.com/athletic/6506866/2025/07/22/patriots-training-camp-storylines/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/22/style/home-cafe-restaurant-popup.html
 **Hey, My Kid Could Have Drawn That! Hers Did.**\
 `A designer and ceramicist set out to build a house in New York’s Hudson Valley region that her family could live in forever. Her son’s sketches stole the show.`\
 https://nytimes.com/2025/07/22/realestate/kid-drawings-bathroom-tile-thacker.html
-
-**My Mother, the Artist, Discovered at 90**\
-`What I learned about myself trying to find homes for my mother’s amateur oil paintings.`\
-https://nytimes.com/2025/07/22/opinion/family-grief-loss.html
-
-**What’s the Hardest Part of Parenting in 2025? We Want to Hear From You.**\
-`The New York Times is looking to talk to today’s parents, who face challenges that would be unimaginable to previous generations.`\
-https://nytimes.com/2025/07/22/style/parenting-kids-difficulties-questions.html
 

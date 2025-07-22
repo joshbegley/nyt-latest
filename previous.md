@@ -1,3 +1,7 @@
+**The Patriots' top storylines as training camp opens**\
+`Is Stefon Diggs healthy, and can he be a legit No. 1 receiver? Is the pass rush good enough? Can Drake Maye take the next step forward?`\
+https://nytimes.com/athletic/6506866/2025/07/22/patriots-training-camp-storylines/
+
 **In Search of Trade Deal, Philippines’ Leader Will Meet With Trump**\
 `President Trump has placed a 20 percent tariff on goods imported from the country, effective Aug. 1.`\
 https://nytimes.com/2025/07/22/us/politics/trump-trade-philippines-marcos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/opinion/family-grief-loss.html
 **What’s the Hardest Part of Parenting in 2025? We Want to Hear From You.**\
 `The New York Times is looking to talk to today’s parents, who face challenges that would be unimaginable to previous generations.`\
 https://nytimes.com/2025/07/22/style/parenting-kids-difficulties-questions.html
-
-**How Fast Can a 2,000-Pound Bison Chase You? Take This Wildlife Quiz.**\
-`That bison may be huge, but it can run a lot faster than you think. Test how much you know about staying safe around animals like bears, alligators and, yes, bison.`\
-https://nytimes.com/interactive/2025/07/22/travel/wildlife-quiz-travel.html
 

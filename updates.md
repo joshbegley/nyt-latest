@@ -1,3 +1,7 @@
+**The Patriots' top storylines as training camp opens**\
+`Is Stefon Diggs healthy, and can he be a legit No. 1 receiver? Is the pass rush good enough? Can Drake Maye take the next step forward?`\
+https://nytimes.com/athletic/6506866/2025/07/22/patriots-training-camp-storylines/
+
 **In Search of Trade Deal, Philippines’ Leader Will Meet With Trump**\
 `President Trump has placed a 20 percent tariff on goods imported from the country, effective Aug. 1.`\
 https://nytimes.com/2025/07/22/us/politics/trump-trade-philippines-marcos.html
