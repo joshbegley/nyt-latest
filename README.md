@@ -1,7 +1,3 @@
-**Fan falls into Wrigley Field basket retrieving homer from Royals' Jac Caglianone**\
-`For this fan, he got a souvenir and a story to tell coming out of the game. `\
-https://nytimes.com/athletic/6507710/2025/07/21/fan-falls-into-wrigley-field-basket-cubs-royals/
-
 **Brooklyn Activist Charged With Arson in Torching of 10 Police Vehicles**\
 `Jakhi McCray, 21, faces federal arson charges in connection with the burning of police vehicles in a parking lot last month.`\
 https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/07/21/us/politics/orange-juice-trump-brazil-tariffs.htm
 **State of the Phillies as trade deadline nears: David Robertson, Justin Crawford, another reliever?**\
 `Ideally, Robertson could help the Phillies in the later innings in August and September, then slot in the middle of the 'pen come October.`\
 https://nytimes.com/athletic/6507467/2025/07/21/phillies-trade-deadine-david-robertson-justin-crawford/
+
+**F.D.A. Panel Debates ‘Black Box’ Warning for Antidepressants in Pregnancy**\
+`An agency-sponsored forum included critics of psychiatry who believe the drugs can harm a developing fetus. Other experts said antidepressants were safe and necessary.`\
+https://nytimes.com/2025/07/21/health/antidepressants-ssri-pregnancy-fda.html
 

@@ -1,3 +1,7 @@
+**Fan falls into Wrigley Field basket retrieving homer from Royals' Jac Caglianone**\
+`For this fan, he got a souvenir and a story to tell coming out of the game. `\
+https://nytimes.com/athletic/6507710/2025/07/21/fan-falls-into-wrigley-field-basket-cubs-royals/
+
 **Brooklyn Activist Charged With Arson in Torching of 10 Police Vehicles**\
 `Jakhi McCray, 21, faces federal arson charges in connection with the burning of police vehicles in a parking lot last month.`\
 https://nytimes.com/2025/07/21/nyregion/arson-nypd-vehicles-brooklyn.html
