@@ -1,3 +1,7 @@
+**Phillies beat Red Sox on first walk-off catcher's interference since 1969**\
+`With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
+https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/
+
 **In bizarre twist, Phillies beat Red Sox on walk-off catcher's interference**\
 `With the bases loaded in the bottom of the 10th inning, the Phillies won without having to put the ball in play.`\
 https://nytimes.com/athletic/6507787/2025/07/21/in-bizarre-twist-phillies-beat-red-sox-on-walk-off-catchers-interference/
