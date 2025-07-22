@@ -1,3 +1,7 @@
+**The Windup: The strangest walk-off**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6508007/2025/07/22/catchers-interference-wakoff-home-run-the-windup/
+
 **A Backpacker About to Hit the Road**\
 `Hiking shoes finished off an outfit of mostly secondhand items.`\
 https://nytimes.com/2025/07/22/style/street-style-look-backpacking-clothes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/22/us/trump-news
 **‘This Isn’t Just a Policy Debate’: The Week 5 Winner of Our Summer Reading Contest**\
 `Ayesha Afghan, 16, writes that President Trump’s executive order ending birthright citizenship is “a direct threat to the lives of children.”`\
 https://nytimes.com/2025/07/22/learning/this-isnt-just-a-policy-debate-the-week-5-winner-of-our-summer-reading-contest.html
-
-**As Raiders start training camp, here are 5 position battles to watch**\
-`Which outside receivers will step up? Who can replace Christian Wilkins if he misses time? And who will stand out at cornerback?`\
-https://nytimes.com/athletic/6500177/2025/07/22/raiders-position-battles-training-camp/
 

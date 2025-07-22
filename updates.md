@@ -1,3 +1,7 @@
+**A Backpacker About to Hit the Road**\
+`Hiking shoes finished off an outfit of mostly secondhand items.`\
+https://nytimes.com/2025/07/22/style/street-style-look-backpacking-clothes.html
+
 **Diggs cleared to fully participate in Patriots training camp after ACL tear**\
 `Diggs tore his ACL in Week 8 after recording 47 catches for 496 yards and three touchdowns with the Texans last season.`\
 https://nytimes.com/athletic/6508317/2025/07/22/stefon-diggs-cleared-patriots-acl-injury/
