@@ -1,3 +1,11 @@
+**In New Deal, Trump Keeps Tariffs While Indonesia Drops Trade Barriers**\
+`The administration provided some insight into the terms that were agreed upon between Indonesia and the United States, hinting at how other vague and hastily negotiated deals may turn out.`\
+https://nytimes.com/2025/07/22/us/politics/trump-indonesia-trade-deal.html
+
+**Petitti stands by Big Ten's favored CFP plan: 'Fans will gravitate' to play-ins**\
+`Petitti said a field determined by conference standings, rather than CFP rankings, would make the selection process more objective.`\
+https://nytimes.com/athletic/6509205/2025/07/22/tony-petitti-big-ten-cfp-expansion/
+
 **U.S. Olympic Officials Bar Transgender Women From Women’s Competitions**\
 `The United States Olympic & Paralympic Committee changed its eligibility rules on Monday to comply with President Trump’s executive order on the issue, taking the decision away from national governing bodies for each sport.`\
 https://nytimes.com/2025/07/22/us/politics/us-olympics-trans-women-athletes-ban-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-songs-black-sabbath.html
 **Judges Ask Justice Dept. to Submit Epstein Case Transcripts With Proposed Redactions**\
 `Federal judges responded to a request from the attorney general to release grand jury transcripts from cases against Jeffrey Epstein and his co-conspirator, Ghislaine Maxwell.`\
 https://nytimes.com/2025/07/22/us/politics/trump-epstein-files-redacted-bondi.html
-
-**FEMA Urban Search and Rescue Chief Resigns, Citing Agency ‘Chaos’, Colleagues Said**\
-`Ken Pagurek had told colleagues the Trump administration was causing ‘chaos’ inside FEMA and creating dangerous delays in disaster response.`\
-https://nytimes.com/2025/07/22/climate/fema-urban-search-rescue-chief-resigns.html
-
-**Ozzy Osbourne, ‘Prince of Darkness’ Turned Reality TV Star, Dies at 76**\
-`As the lead singer of Black Sabbath, he helped invent heavy metal. On “The Osbournes,” he presented a comedic counterpoint to his rock ’n’ roll infamy.`\
-https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-dead.html
 

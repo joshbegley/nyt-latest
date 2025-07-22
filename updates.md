@@ -1,3 +1,11 @@
+**U.S. Olympic Officials Bar Transgender Women From Women’s Competitions**\
+`The United States Olympic & Paralympic Committee changed its eligibility rules on Monday to comply with President Trump’s executive order on the issue, taking the decision away from national governing bodies for each sport.`\
+https://nytimes.com/2025/07/22/us/politics/us-olympics-trans-women-athletes-ban-trump.html
+
+**FEMA Urban Search and Rescue Chief Resigns, Citing Agency ‘Chaos’, Colleagues Said**\
+`Ken Pagurek had told colleagues the Trump administration was causing ‘chaos’ inside FEMA and creating dangerous delays in disaster response.`\
+https://nytimes.com/2025/07/22/climate/fema-urban-search-rescue-chief-resigns.html
+
 **Sarah Morlok Cotton, Quadruplet Who Knew Fame and Suffering, Dies at 95**\
 `She was the last of four identical sisters who were a national sensation even before they began performing onstage. Offstage, they endured abuse and schizophrenia.`\
 https://nytimes.com/2025/07/22/science/sarah-morlok-cotton-dead.html
