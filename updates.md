@@ -1,3 +1,11 @@
+**Astros' Brice Matthews is 'not a finished product.' He still produced the game of his life**\
+`The 23-year-old hit two home runs and drove in five runs, showing that he has potential despite needing to work on his swing decisions.`\
+https://nytimes.com/athletic/6507973/2025/07/22/astros-brice-matthews-two-home-runs/
+
+**Trey Hendrickson not reporting to Bengals training camp amid contract dispute**\
+`Hendrickson and the team have been in contentious negotiations as he seeks an extension on the one-year, $16 million remaining on his deal.`\
+https://nytimes.com/athletic/6508501/2025/07/22/trey-hendrickson-not-reporting-bengals-training-camp/
+
 **The Gift of a New Opera House, With a Grim Family History Attached**\
 `A billionaire will fund the construction of a new home for the Hamburg State Opera. But questions linger over his company’s actions during World War II.`\
 https://nytimes.com/2025/07/22/arts/music/hamburg-opera-house-klaus-michael-kuehne.html

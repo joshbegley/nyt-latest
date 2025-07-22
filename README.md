@@ -1,3 +1,19 @@
+**Diamondbacks' Ketel Marte says he lost $400K in home burglary**\
+`The break-in is the latest in a string of burglaries targeting professional athletes.`\
+https://nytimes.com/athletic/6508489/2025/07/22/ketel-marte-diamondbacks-burglary/
+
+**NWSL's Denver expansion club unveils team name, crest and branding**\
+`The team's name was selected by a fan vote that included over 15,000 responses.`\
+https://nytimes.com/athletic/6507637/2025/07/22/nwsl-denver-summit-fc-expansion-branding/
+
+**The Quest for a Lost Chinese Typewriter**\
+`How a history professor went down an 18-year-long rabbit hole in search of obsolete machines, hoping to save them before they faded into oblivion.`\
+https://nytimes.com/2025/07/22/nyregion/mingkwai-typewriter-china.html
+
+**Prisoners’ Phone Calls Will Soon Be Free in New York State**\
+`The move will save the loved ones of the state’s more than 30,000 prisoners over $13 million a year, advocates say.`\
+https://nytimes.com/2025/07/22/nyregion/ny-prison-phone-calls.html
+
 **Astros' Brice Matthews is 'not a finished product.' He still produced the game of his life**\
 `The 23-year-old hit two home runs and drove in five runs, showing that he has potential despite needing to work on his swing decisions.`\
 https://nytimes.com/athletic/6507973/2025/07/22/astros-brice-matthews-two-home-runs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6508407/2025/07/22/deion-sanders-health-update-colo
 **2031 Ryder Cup to be held in Barcelona, returning to Spain for first time since 1997**\
 `Spain will become the first country in mainland Europe to host the Ryder Cup twice.`\
 https://nytimes.com/athletic/6508449/2025/07/22/ryder-cup-2031-barcelona-spain/
-
-**Starry Venice Film Festival to Include a New ‘Frankenstein’**\
-`Movies from Guillermo del Toro, Kathryn Bigelow and Yorgos Lanthimos will debut at this year’s event.`\
-https://nytimes.com/2025/07/22/movies/venice-film-festival-lineup.html
-
-**Arsenal on verge of total agreement for Gyokeres transfer**\
-`Gyokeres was focused only on joining Arsenal and, despite late interest from elsewhere, he did not consider any other team.`\
-https://nytimes.com/athletic/6491250/2025/07/22/arsenal-viktor-gyokeres-transfer-latest/
-
-**Mike Lynch’s Estate Ordered to Pay Hewlett Packard $945 Million**\
-`The technology giant had accused the British mogul, who died last year when his yacht sank, of fraud in the sale of his company in 2011.`\
-https://nytimes.com/2025/07/22/business/dealbook/mike-lynch-hp.html
-
-**Air India Finds ‘No Issues’ After Inspections of Boeing Fuel Switches**\
-`An investigation into a deadly crash last month has focused on control switches that cut off fuel to an Air India Boeing jet after takeoff.`\
-https://nytimes.com/2025/07/22/world/europe/air-india-crash-report-boeing.html
 
