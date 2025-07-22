@@ -1,3 +1,19 @@
+**gws-the-gilded-age**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-gilded-age
+
+**gws-off-the-grid-resorts**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/off-the-grid-resorts
+
+**Watch Live: Trump Meets With Philippine President**\
+`President Trump holds a bilateral meeting in the Oval Office with President Ferdinand Marcos Jr. of the Philippines.`\
+https://nytimes.com/video/us/politics/100000010298732/watch-live-trump-meets-with-philippine-president.html
+
+**U.S. Is Missing the Century’s ‘Greatest Economic Opportunity,’ U.N. Chief Says**\
+`In a speech on renewable energy, António Guterres cited “clear market distortion” in favor of fossil fuels by President Trump and others but called the transition to cleaner energy economically inevitable.`\
+https://nytimes.com/2025/07/22/climate/antonio-guterres-energy-transition-speech-economics.html
+
 **American Steel Just Got More Expensive. Buyers Blame Tariffs.**\
 `Steel producers like Cleveland Cliffs and Steel Dynamics both said this week that they raised prices after President Trump imposed a 50 percent tariff on imports.`\
 https://nytimes.com/2025/07/22/business/steel-prices-tariffs.html

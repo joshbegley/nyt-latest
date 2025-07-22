@@ -1,3 +1,15 @@
+**gws-best-croissants-nyc**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-croissants-nyc
+
+**The Bounce: Will Bradley Beal, Damian Lillard trades be remembered among NBA's worst ever?**\
+`Just how bad were the Bradley Beal and Damian Lillard trades in retrospect? Time will tell, but they're already aging poorly`\
+https://nytimes.com/athletic/6508488/2025/07/22/bradley-beal-suns-clippers-damian-lillard-bucks-trail-blazers-trades-nba-the-bounce/
+
+**AstraZeneca Joins Pharma Investment Push in U.S. Amid Tariff Threat**\
+`The British drug maker plans to invest $50 billion in the United States as it seeks to appease President Trump.`\
+https://nytimes.com/2025/07/22/business/astrazeneca-pharma-tariff-trump.html
+
 **gws-the-gilded-age**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-gilded-age
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/22/business/steel-prices-tariffs.html
 **Arsenal's evolving attack: The options Gyokeres and Madueke open up for Arteta**\
 `His team were too predictable at times last season. This summer's recruitment should give the manager more flexibility and unpredictability`\
 https://nytimes.com/athletic/6492990/2025/07/22/arsenal-attack-gyokeres-madueke-options/
-
-**NPR’s Top Editor Is Stepping Down**\
-`Edith Chapin, who is also acting chief content officer, has been editor in chief of the public radio network since 2023.`\
-https://nytimes.com/2025/07/22/business/media/npr-edith-chapin-steps-down.html
-
-**White House Leads Push to Block Watchdog’s Inquiries Into Spending Cuts**\
-`Republicans are seeking to undermine the Government Accountability Office as it investigates, and considers suing, over the Trump administration’s withholding federal funds.`\
-https://nytimes.com/2025/07/22/us/politics/trump-spending-government-accountability-office.html
-
-**Leeds finalising return of Howson to club as player-coach**\
-`The 37-year-old left Leeds 13 years ago after making 225 appearances.`\
-https://nytimes.com/athletic/6508532/2025/07/22/jonny-howson-leeds-player-coach/
 

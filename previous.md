@@ -1,3 +1,19 @@
+**gws-the-gilded-age**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-gilded-age
+
+**gws-off-the-grid-resorts**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/off-the-grid-resorts
+
+**Watch Live: Trump Meets With Philippine President**\
+`President Trump holds a bilateral meeting in the Oval Office with President Ferdinand Marcos Jr. of the Philippines.`\
+https://nytimes.com/video/us/politics/100000010298732/watch-live-trump-meets-with-philippine-president.html
+
+**U.S. Is Missing the Century’s ‘Greatest Economic Opportunity,’ U.N. Chief Says**\
+`In a speech on renewable energy, António Guterres cited “clear market distortion” in favor of fossil fuels by President Trump and others but called the transition to cleaner energy economically inevitable.`\
+https://nytimes.com/2025/07/22/climate/antonio-guterres-energy-transition-speech-economics.html
+
 **American Steel Just Got More Expensive. Buyers Blame Tariffs.**\
 `Steel producers like Cleveland Cliffs and Steel Dynamics both said this week that they raised prices after President Trump imposed a 50 percent tariff on imports.`\
 https://nytimes.com/2025/07/22/business/steel-prices-tariffs.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/07/22/us/politics/trump-spending-government-accountabil
 **Leeds finalising return of Howson to club as player-coach**\
 `The 37-year-old left Leeds 13 years ago after making 225 appearances.`\
 https://nytimes.com/athletic/6508532/2025/07/22/jonny-howson-leeds-player-coach/
-
-**Diamondbacks' Ketel Marte says he lost $400K in home burglary**\
-`The break-in is the latest in a string of burglaries targeting professional athletes.`\
-https://nytimes.com/athletic/6508489/2025/07/22/ketel-marte-diamondbacks-burglary/
-
-**NWSL's Denver expansion club unveils team name, crest and branding**\
-`The team's name was selected by a fan vote that included over 15,000 responses.`\
-https://nytimes.com/athletic/6507637/2025/07/22/nwsl-denver-summit-fc-expansion-branding/
-
-**The Quest for a Lost Chinese Typewriter**\
-`How a history professor went down an 18-year-long rabbit hole in search of obsolete machines, hoping to save them before they faded into oblivion.`\
-https://nytimes.com/2025/07/22/nyregion/mingkwai-typewriter-china.html
-
-**Prisoners’ Phone Calls Will Soon Be Free in New York State**\
-`The move will save the loved ones of the state’s more than 30,000 prisoners over $13 million a year, advocates say.`\
-https://nytimes.com/2025/07/22/nyregion/ny-prison-phone-calls.html
 
