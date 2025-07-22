@@ -1,3 +1,7 @@
+**Daughter of Man Charged in Her Killing Was Drowned, Authorities Say**\
+`The body of Melina Galanis Frattolin, 9, of Canada, was found in Ticonderoga, N.Y., on Sunday, one day after her father falsely reported that she had been abducted, the police said.`\
+https://nytimes.com/2025/07/22/nyregion/melina-frattolin-murder-father-charged-new-york.html
+
 **Greenberg: Welcome to the Ben Johnson Show, which starts right now**\
 `As he embarks on his first season in charge, you could say Johnson is the most important coach, player or sports executive in Chicago.`\
 https://nytimes.com/athletic/6509760/2025/07/22/chicago-bears-training-camp-ben-johnson/

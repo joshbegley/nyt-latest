@@ -1,3 +1,7 @@
+**Daughter of Man Charged in Her Killing Was Drowned, Authorities Say**\
+`The body of Melina Galanis Frattolin, 9, of Canada, was found in Ticonderoga, N.Y., on Sunday, one day after her father falsely reported that she had been abducted, the police said.`\
+https://nytimes.com/2025/07/22/nyregion/melina-frattolin-murder-father-charged-new-york.html
+
 **Greenberg: Welcome to the Ben Johnson Show, which starts right now**\
 `As he embarks on his first season in charge, you could say Johnson is the most important coach, player or sports executive in Chicago.`\
 https://nytimes.com/athletic/6509760/2025/07/22/chicago-bears-training-camp-ben-johnson/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/travel/visa-integrity-fee-trump-big-beautiful-bil
 **Colts GM refuses to 'flush' Anthony Richardson, still believes QB can be 'really good'**\
 `Indy GM Chris Ballard: "I think we need to give Anthony every chance to be the best he can be."`\
 https://nytimes.com/athletic/6509248/2025/07/22/colts-anthony-richardson-training-camp-daniel-jones/
-
-**Landslide Traps Gold Miners in Eastern Congo**\
-`A landslide at the Lomera artisanal gold mine in eastern Congo left an unknown number of people trapped underground.`\
-https://nytimes.com/video/world/africa/100000010300021/congo-gold-mine-landslide.html
 
