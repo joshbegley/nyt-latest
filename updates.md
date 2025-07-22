@@ -1,3 +1,11 @@
+**Diggs cleared to fully participate in Patriots training camp after ACL tear**\
+`Diggs tore his ACL in Week 8 after recording 47 catches for 496 yards and three touchdowns with the Texans last season.`\
+https://nytimes.com/athletic/6508317/2025/07/22/stefon-diggs-cleared-patriots-acl-injury/
+
+**Zelensky’s Government Takes Aim at Corruption Fighters**\
+`Ukraine’s president ran on a promise to clean things up, but critics say his government is cracking down on anti-corruption activists, critics and agencies.`\
+https://nytimes.com/2025/07/22/world/europe/zelensky-ukraine-corruption.html
+
 **U.S. Says It Will Withdraw From U.N. Cultural Organization, Again**\
 `A decision to pull out of UNESCO was the latest move by the Trump administration to cut ties with international organizations.`\
 https://nytimes.com/2025/07/22/world/europe/us-withdraw-unesco.html
