@@ -1,3 +1,7 @@
+**Francisco Alvarez, Brett Baty provide reason to believe in Mets' youth**\
+`The bottom of the Mets' lineup has struggled with a .612 OPS since June, but Monday showed why internal help might be coming. `\
+https://nytimes.com/athletic/6507830/2025/07/21/mets-francisco-alvarez-brett-baty-youth/
+
 **For Damian Lillard, returning 'home' to Portland 'wasn’t hard at all'**\
 `After signing a three-year, $45 million deal to return to the Blazers, Lillard said "it never felt right, not being home.”`\
 https://nytimes.com/athletic/6507754/2025/07/21/damian-lillard-returns-to-portland/
