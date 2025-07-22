@@ -1,8 +1,20 @@
+**Trump’s Accusations Against Obama Are ‘Ridiculous’ and ‘Weak,’ Spokesman Says**\
+`Talking to reporters from the Oval Office, President Trump accused his predecessor of treason.`\
+https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
+
+**Most Planned Parenthood Clinics Are Ineligible for Medicaid Money After Court Ruling**\
+`A judge issued a preliminary injunction that allowed only some of the group’s health centers to receive payments for services like birth control and checkups.`\
+https://nytimes.com/2025/07/22/us/politics/trump-planned-parenthood.html
+
+**Trump Escalates Attacks on Obama and Clinton as Questions Swirl About Epstein**\
+`President Trump deflected questions about the disgraced financier Jeffrey Epstein by lashing out at his perceived enemies.`\
+https://nytimes.com/2025/07/22/us/politics/trump-obama-clinton-epstein-treason.html
+
 **Ocasio-Cortez’s Office Is Vandalized After Vote on Funds for Israel**\
 `Representative Alexandria Ocasio-Cortez’s Bronx campaign office was defaced with red paint and a message citing the war in Gaza. The police are investigating.`\
 https://nytimes.com/2025/07/22/nyregion/aoc-office-vandalized-gaza.html
 
-**Amid Texas Flood Crisis, Republicans Launch Effort to Seize Seats in Congress**\
+**Texas Lawmakers Will Debate Flood Response, Redistricting and Other Issues**\
 ``\
 https://nytimes.com/live/2025/us/texas-special-session
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6509454/2025/07/22/flyers-porter-martone-commits-mi
 **ICE Arrests Haitian Oligarch Accused of Supporting Gangs**\
 `A member of Haiti’s elite is facing accusations that he helped support violent gangs that have wreaked havoc in the Caribbean nation.`\
 https://nytimes.com/2025/07/22/us/haiti-oligarch-ice-arrest.html
-
-**Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
-`His New Albion Brewing Company, founded in 1976, was considered the first microbrewery. It set the model for thousands more to come.`\
-https://nytimes.com/2025/07/22/us/jack-mcauliffe-dead.html
-
-**William H. Neukom, Microsoft Lawyer Who Led Antitrust Fight, Dies at 83**\
-`In the 1990s, the U.S. called Microsoft a bullying monopoly and sought to rein it in. The company lost in a landmark decision, but emerged intact.`\
-https://nytimes.com/2025/07/22/business/william-h-neukom-dead.html
-
-**Broncos' defense embracing lofty expectations after 'monstrous' additions**\
-`The Broncos may have their most complete defensive personnel since 2015, but how quickly can the unit incorporate a handful of new players?`\
-https://nytimes.com/athletic/6509295/2025/07/22/broncos-defense-2025-training-camp/
 

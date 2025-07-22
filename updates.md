@@ -1,3 +1,19 @@
+**Trump’s Accusations Against Obama Are ‘Ridiculous’ and ‘Weak,’ Spokesman Says**\
+`Talking to reporters from the Oval Office, President Trump accused his predecessor of treason.`\
+https://nytimes.com/2025/07/22/us/politics/obama-trump-russia-response.html
+
+**Most Planned Parenthood Clinics Are Ineligible for Medicaid Money After Court Ruling**\
+`A judge issued a preliminary injunction that allowed only some of the group’s health centers to receive payments for services like birth control and checkups.`\
+https://nytimes.com/2025/07/22/us/politics/trump-planned-parenthood.html
+
+**Trump Escalates Attacks on Obama and Clinton as Questions Swirl About Epstein**\
+`President Trump deflected questions about the disgraced financier Jeffrey Epstein by lashing out at his perceived enemies.`\
+https://nytimes.com/2025/07/22/us/politics/trump-obama-clinton-epstein-treason.html
+
+**Texas Lawmakers Will Debate Flood Response, Redistricting and Other Issues**\
+``\
+https://nytimes.com/live/2025/us/texas-special-session
+
 **Ocasio-Cortez’s Office Is Vandalized After Vote on Funds for Israel**\
 `Representative Alexandria Ocasio-Cortez’s Bronx campaign office was defaced with red paint and a message citing the war in Gaza. The police are investigating.`\
 https://nytimes.com/2025/07/22/nyregion/aoc-office-vandalized-gaza.html
