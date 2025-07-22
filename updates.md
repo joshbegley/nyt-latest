@@ -1,3 +1,7 @@
+**Understanding the Epstein Saga**\
+`In the swirl of conspiracy theories, it’s hard to tell what’s real.`\
+https://nytimes.com/2025/07/22/briefing/understanding-the-epstein-saga.html
+
 **Yankees' Spencer Jones ahead of the trade deadline: 'I want to play in New York'**\
 `Jones said he understands why some may be skeptical, but he's never had more confidence in his game. Do the Yankees feel similarly?`\
 https://nytimes.com/athletic/6507123/2025/07/22/spencer-jones-yankees-trade-deadline/

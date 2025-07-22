@@ -1,3 +1,7 @@
+**Understanding the Epstein Saga**\
+`In the swirl of conspiracy theories, it’s hard to tell what’s real.`\
+https://nytimes.com/2025/07/22/briefing/understanding-the-epstein-saga.html
+
 **Yankees' Spencer Jones ahead of the trade deadline: 'I want to play in New York'**\
 `Jones said he understands why some may be skeptical, but he's never had more confidence in his game. Do the Yankees feel similarly?`\
 https://nytimes.com/athletic/6507123/2025/07/22/spencer-jones-yankees-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6507881/2025/07/22/yankees-aaron-boone-defends-anth
 **What we heard from coaches about NCAA Tournament expansion**\
 `Coaches polled by The Athletic last week at Peach Jam were split down the middle on whether the tourney should expand beyond 68 teams.`\
 https://nytimes.com/athletic/6507401/2025/07/22/ncaa-tournament-expansion-coaches-opinion/
-
-**34 players, two wins and a quiz night: Learnings from Brighton's summer training camp**\
-`Brighton's trip to Marbella wasn't all serious business, as preparations for Fabian Hurzeler's second season click into gear`\
-https://nytimes.com/athletic/6492708/2025/07/22/brighton-summer-training-marbella/
 
