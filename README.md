@@ -1,3 +1,7 @@
+**English club part of initiative to 'prescribe football' to treat mental health conditions**\
+`The pilot scheme aims to combine the community and physical health benefits of soccer to improve mental health without medication.`\
+https://nytimes.com/athletic/6508145/2025/07/22/football-on-prescription-mental-health/
+
 **G.M. Profit Shrinks on Billion-Dollar Tariff Hit**\
 `General Motors was the second auto company this week, after Stellantis, to show the toll that President Trump’s trade policies are taking on the industry.`\
 https://nytimes.com/2025/07/22/business/gm-profit-tariffs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6507391/2025/07/22/cowboys-training-camp-dak-presco
 **Twins lose again as trade deadline looms: 'We know the situation'**\
 `July 31 is fast approaching for a Twins team who have struggled all season to stay on the correct course.`\
 https://nytimes.com/athletic/6507982/2025/07/22/twins-dodgers-byron-buxton-ohtani/
-
-**Preseason All-Big Ten team: Drew Allar, Jeremiah Smith headline stacked 2025 list**\
-`The Athletic's 2025 Preseason All-Big Ten team features returning stars, high-level transfers and talent from all over the league. `\
-https://nytimes.com/athletic/6502725/2025/07/22/preseason-all-big-ten-team-drew-allar/
 
