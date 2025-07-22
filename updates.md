@@ -1,3 +1,11 @@
+**Ocasio-Cortez’s Office Is Vandalized After Vote on Funds for Israel**\
+`Representative Alexandria Ocasio-Cortez’s Bronx campaign office was defaced with red paint and a message citing the war in Gaza. The police are investigating.`\
+https://nytimes.com/2025/07/22/nyregion/aoc-office-vandalized-gaza.html
+
+**Amid Texas Flood Crisis, Republicans Launch Effort to Seize Seats in Congress**\
+``\
+https://nytimes.com/live/2025/us/texas-special-session
+
 **Malcolm-Jamal Warner Drowned in Area Known for Rip Currents**\
 `New details emerged about the death of the “Cosby Show” actor, who drowned on the Caribbean side of Costa Rica.`\
 https://nytimes.com/2025/07/22/arts/malcolm-jamal-warner-rip-currents-costa-rica.html
