@@ -1,3 +1,11 @@
+**L.A. Times Owner Says He Will Take Newspaper Public in Next Year**\
+`Dr. Patrick Soon-Shiong did not share details about the planned offering. The newspaper has not been profitable under him, and his job cuts have angered staff.`\
+https://nytimes.com/2025/07/22/business/media/la-times-newspaper-public.html
+
+**Tuesday Briefing: A Deadly Jet Crash in Bangladesh**\
+`Plus, New Zealand wines with something extra.`\
+https://nytimes.com/2025/07/22/briefing/bangladesh-plane-crash-gaza-israel-hamas-ukraine-russia.html
+
 **How Italy's perfect blend is allowing their dreams to run wild at Euro 2025**\
 `A team mixing youth and experience has delivered the country's first semi-final in a major women's tournament since the 1990s`\
 https://nytimes.com/athletic/6506185/2025/07/22/italy-euro-2025-semi-final-squad-england/
