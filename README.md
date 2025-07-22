@@ -1,3 +1,7 @@
+**Trump v. Murdoch Is an Odd Battle of Titans**\
+`The two are constrained by the thing that has kept them linked for a decade: their shared reliance on Fox News die-hards.`\
+https://nytimes.com/2025/07/22/business/media/trump-murdoch-fox-wall-street-journal.html
+
 **Ozzy Osbourne, the Lovable Prince of Darkness**\
 `The rocker helped define the sound, look and attitude of metal. But his persistence through addiction, his connection to audience and a late-career reality TV show endeared him to generations.`\
 https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-prince-of-darkness-black-sabbath.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/opinion/no-israel-is-not-committing-genocide-in-g
 **USOPC changes policy, bans transgender women from women's competitions**\
 `The policy was quietly changed on Monday to comply with President Donald Trump’s February executive order.`\
 https://nytimes.com/athletic/6509733/2025/07/22/usopc-olympics-transgender-policy/
-
-**The House Moved Up Summer Break to Avoid an Epstein Vote**\
-`Also, Ozzy Osbourne died at 76. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/07/22/briefing/house-epstein-vote-ozzy-osboure-dead.html
 

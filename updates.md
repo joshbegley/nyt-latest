@@ -1,3 +1,11 @@
+**Ozzy Osbourne, the Lovable Prince of Darkness**\
+`The rocker helped define the sound, look and attitude of metal. But his persistence through addiction, his connection to audience and a late-career reality TV show endeared him to generations.`\
+https://nytimes.com/2025/07/22/arts/music/ozzy-osbourne-prince-of-darkness-black-sabbath.html
+
+**Rexrode: No, going 6-3 in Big Ten play is not enough for more Playoff bids**\
+`If anyone was on the fence about “4-4-2-2-1,” Tony Petitti made it clear why they should jump right off and run toward common sense.`\
+https://nytimes.com/athletic/6509726/2025/07/22/tony-petitti-big-ten-college-football-playoff-format/
+
 **Hoping to Visit the U.S.? It Might Cost You an Extra $250.**\
 `A newly enacted “visa integrity fee” will apply to millions of foreign visitors, including travelers from Mexico, India, Brazil and China.`\
 https://nytimes.com/2025/07/22/travel/visa-integrity-fee-trump-big-beautiful-bill.html
