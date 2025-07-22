@@ -1,3 +1,11 @@
+**Teakwood Thai Chophouse Doesn’t Skip the Seafood**\
+`Tacos 1986 shares a space with Mixteca, Cabuc focuses on Turkish coffee and more restaurant news.`\
+https://nytimes.com/2025/07/22/dining/nyc-restaurant-news.html
+
+**Leeds 4-1 SC Verl: Why were four players absent? How did the strikers perform?**\
+`Leeds managed a 4-1 victory against a German third-tier side in their second pre-season match`\
+https://nytimes.com/athletic/6508629/2025/07/22/leeds-united-pre-season-result-score-sc-verl/
+
 **Bypassing Habba, Judges in New Jersey Name New Top Federal Prosecutor**\
 `Alina Habba’s term as interim U.S. attorney was set to expire on Tuesday. New Jersey’s two Democratic senators had accused her of pursuing “frivolous and politically motivated prosecutions.”`\
 https://nytimes.com/2025/07/22/nyregion/alina-habba-nj-us-attorney.html
