@@ -1,6 +1,6 @@
 **49ers' Jauan Jennings reports to camp; Kyle Shanahan says WR hasn't requested trade**\
 `The 49ers expect Jennings to be on the field for Wednesday's first practice despite the receiver's unhappiness with his contract.`\
-https://nytimes.com/athletic/6509301/2025/07/22/49ers-jauan-jennings-reports-to-camp-kyle-shanahan-says-wr-hasnt-requested-trade/
+https://nytimes.com/athletic/6509301/2025/07/22/49ers-training-camp-jauan-jennings-trade-request/
 
 **Chinese Cars, Brazil Style**\
 `China wants to dominate the market for the cars of the future, and it has set its sights on Brazil’s giant auto market.`\
@@ -18,7 +18,7 @@ https://nytimes.com/2025/07/22/arts/music/teatro-nuovo.html
 `The administration provided some insight into the terms that were agreed upon between Indonesia and the United States, hinting at how other vague and hastily negotiated deals may turn out.`\
 https://nytimes.com/2025/07/22/us/politics/trump-indonesia-trade-deal.html
 
-**Petitti stands by Big Ten's favored CFP plan: 'Fans will gravitate' to play-ins**\
+**Petitti stands by Big Ten's CFP plan, calls 6-3 in league play 'a great record'**\
 `Petitti said a field determined by conference standings, rather than CFP rankings, would make the selection process more objective.`\
 https://nytimes.com/athletic/6509205/2025/07/22/tony-petitti-big-ten-cfp-expansion/
 
