@@ -1,3 +1,15 @@
+**When Betelgeuse Explodes, It’s Going to Take Out Another Star**\
+`The tempestuous star in Orion’s shoulder has a buddy, and neither of their futures look bright.`\
+https://nytimes.com/2025/07/21/science/betelgeuse-star-companion.html
+
+**Place for Umbrellas**\
+`Jeremy Newton gives us a brain freeze.`\
+https://nytimes.com/2025/07/21/crosswords/daily-puzzle-2025-07-22.html
+
+**Fan falls into Wrigley Field basket retrieving homer from Royals' Jac Caglianone**\
+`For that fan, he got a souvenir and a story to tell coming out of the game. `\
+https://nytimes.com/athletic/6507710/2025/07/21/fan-falls-into-wrigley-field-basket-cubs-royals/
+
 **Fan falls into Wrigley Field basket retrieving homer from Royals' Jac Caglianone**\
 `For this fan, he got a souvenir and a story to tell coming out of the game. `\
 https://nytimes.com/athletic/6507710/2025/07/21/fan-falls-into-wrigley-field-basket-cubs-royals/
