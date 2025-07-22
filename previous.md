@@ -1,3 +1,7 @@
+**2031 Ryder Cup to be held in Barcelona, returning to Spain for first time since 1997**\
+`Spain will become the first country in mainland Europe to host the Ryder Cup twice.`\
+https://nytimes.com/athletic/6508449/2025/07/22/ryder-cup-2031-barcelona-spain/
+
 **Starry Venice Film Festival to Include a New ‘Frankenstein’**\
 `Movies from Guillermo del Toro, Kathryn Bigelow and Yorgos Lanthimos will debut at this year’s event.`\
 https://nytimes.com/2025/07/22/movies/venice-film-festival-lineup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508317/2025/07/22/stefon-diggs-cleared-patriots-ac
 **Zelensky’s Government Takes Aim at Corruption Fighters**\
 `Ukraine’s president ran on a promise to clean things up, but critics say his government is cracking down on anti-corruption activists, critics and agencies.`\
 https://nytimes.com/2025/07/22/world/europe/zelensky-ukraine-corruption.html
-
-**U.S. Says It Will Withdraw From U.N. Cultural Organization, Again**\
-`A decision to pull out of UNESCO was the latest move by the Trump administration to cut ties with international organizations.`\
-https://nytimes.com/2025/07/22/world/europe/us-withdraw-unesco.html
 

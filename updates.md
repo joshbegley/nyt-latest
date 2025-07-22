@@ -1,3 +1,7 @@
+**2031 Ryder Cup to be held in Barcelona, returning to Spain for first time since 1997**\
+`Spain will become the first country in mainland Europe to host the Ryder Cup twice.`\
+https://nytimes.com/athletic/6508449/2025/07/22/ryder-cup-2031-barcelona-spain/
+
 **Starry Venice Film Festival to Include a New ‘Frankenstein’**\
 `Movies from Guillermo del Toro, Kathryn Bigelow and Yorgos Lanthimos will debut at this year’s event.`\
 https://nytimes.com/2025/07/22/movies/venice-film-festival-lineup.html
