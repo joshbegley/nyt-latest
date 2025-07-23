@@ -1,3 +1,11 @@
+**gws-silvia-moreno-garcia-interview-the-bewitching**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/silvia-moreno-garcia-interview-the-bewitching
+
+**Plane in Alaska Crash Was Overloaded With Moose Meat and Antlers, N.T.S.B. Says**\
+`Investigators have released an inquiry into the fatal crash in a mountainous area, where Eugene Peltola Jr., the husband of former U.S. Representative Mary Peltola, was killed in 2023.`\
+https://nytimes.com/2025/07/23/us/politics/plane-crash-peltola-alaska-antlers.html
+
 **Young joins Ipswich following Everton exit**\
 `Young, 40, left Everton this summer after the conclusion of his contract.`\
 https://nytimes.com/athletic/6510939/2025/07/23/ashley-young-ipswich-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/23/us/trump-news/fema-director-defends-response
 **What’s in Our Queue? DIIV and More**\
 `Text by Qasim Nauman`\
 https://nytimes.com/card/2025/07/23/arts/editors-recommendations-diiv
-
-**Inquiry Is Opened After Jacksonville Officer Punches Man Through His Car Window**\
-`A Black man was beaten by a white officer in Jacksonville, Fla., during a traffic stop. The sheriff’s office said that it was reviewing the episode.`\
-https://nytimes.com/2025/07/23/us/william-mcneil-jacksonville-sheriff-video.html
-
-**USMNT striker Sargent's Wolfsburg move appears to fall through**\
-`Sargent was in talks over a potential move to Wolfsburg, which would have seen him return to Germany following four years at Norwich.`\
-https://nytimes.com/athletic/6506390/2025/07/23/josh-sargent-wolfsburg-norwich-transfer/
 

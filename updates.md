@@ -1,3 +1,11 @@
+**Young joins Ipswich following Everton exit**\
+`Young, 40, left Everton this summer after the conclusion of his contract.`\
+https://nytimes.com/athletic/6510939/2025/07/23/ashley-young-ipswich-transfer/
+
+**Nine Questions About the Epstein Case That Actually Need Answers**\
+`You needn’t be a conspiracy theorist to have questions.`\
+https://nytimes.com/2025/07/23/opinion/epstein-files-fbi-trump.html
+
 **Bears training camp observations: Offense draws Ben Johnson's ire, defense pays toll**\
 `Tremaine Edmunds intercepted Caleb Williams and drew praise from defensive coordinator Dennis Allen; Luther Burden III was not present.`\
 https://nytimes.com/athletic/6511260/2025/07/23/bears-training-camp-observations-ben-johnson/
