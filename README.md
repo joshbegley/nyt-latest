@@ -1,3 +1,7 @@
+**Cardinals designate starting pitcher Erick Fedde for assignment**\
+`In his nine starts since June 1, Fedde logged just 39 1/2 innings and posted a 7.32 ERA.`\
+https://nytimes.com/athletic/6511222/2025/07/23/cardinals-designate-starting-pitcher-erick-fedde-for-assignment/
+
 **Trump, the House and the Epstein Files**\
 `Readers react to the latest turns in the Jeffrey Epstein case. Also: A threat to election officials; smoke from Canadian wildfires.`\
 https://nytimes.com/2025/07/23/opinion/jeffrey-epstein-files-trump-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510600/2025/07/23/tour-de-france-stage-17-analysis
 **U.S. Quietly Drafts Plan to End Program That Saved Millions From AIDS**\
 `PEPFAR, the campaign to end H.I.V. globally, would morph into an effort to detect disease outbreaks and sell American products, according to documents obtained by The Times.`\
 https://nytimes.com/2025/07/23/health/pepfar-shutdown.html
-
-**How Do I Tell My Rich Friends to Stop Talking About Fleeing the Country?**\
-`How do you tell a friend that you’re tired of having the same conversation over and over?`\
-https://nytimes.com/2025/07/23/magazine/rich-friends-fleeing-country-ethics.html
 
