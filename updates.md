@@ -1,3 +1,7 @@
+**Late Night Watches Trump Try to Change the Subject From Epstein**\
+`The president’s usual tactic when cornered is to “throw red meat to the carnivorous base — and their favorite cut is filet of Obama,” Stephen Colbert said.`\
+https://nytimes.com/2025/07/23/arts/television/late-night-trump-epstein.html
+
 **Word of the Day: hydroponic**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/23/learning/word-of-the-day-hydroponic.html

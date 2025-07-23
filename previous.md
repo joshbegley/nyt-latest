@@ -1,3 +1,7 @@
+**Late Night Watches Trump Try to Change the Subject From Epstein**\
+`The president’s usual tactic when cornered is to “throw red meat to the carnivorous base — and their favorite cut is filet of Obama,” Stephen Colbert said.`\
+https://nytimes.com/2025/07/23/arts/television/late-night-trump-epstein.html
+
 **Word of the Day: hydroponic**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/23/learning/word-of-the-day-hydroponic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/briefing/wednesday-briefing-israel-expands-gaza-o
 **Brewers' 11-game winning streak snapped in loss to Mariners**\
 `The Brewers’ streak was the second-longest of the MLB season, following the Twins' 13-game win streak from back in May.`\
 https://nytimes.com/athletic/6509424/2025/07/23/brewers-win-streak-ends-11-games/
-
-**The homegrown rule that will cost some Spurs players a place in the Champions League**\
-`As it stands, Thomas Frank will have to leave nine first-teamers out of his squad for Europe in the coming season due to UEFA regulations`\
-https://nytimes.com/athletic/6506704/2025/07/23/spurs-champions-league-squad-homegrown-rule/
 
