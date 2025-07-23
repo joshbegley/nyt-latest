@@ -2,9 +2,9 @@
 `More in this week's sports-business cheat sheet: ESPN x NFL media deal, colleges turning down money, Dave Portnoy vs. Pat McAfee and more.`\
 https://nytimes.com/athletic/6510775/2025/07/23/wnba-labor-espn-nfl-media-moneycall/
 
-**Why did Bryan Kohberger kill four University of Idaho students?**\
-`By Mike Baker`\
-https://nytimes.com/2025/07/23/us/why-did-bryan-kohberger-kill-four-university-of-idaho-students.html
+**Why Did Bryan Kohberger Kill Four University of Idaho Students?**\
+`Prosecutors have not yet detailed a theory that connects Mr. Kohberger to the victims, who were stabbed in their house.`\
+https://nytimes.com/2025/07/23/us/bryan-kohberger-motive.html
 
 **Live Updates: Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
 `It’s unclear if he will address the question everyone wants to know: Why did he do it?`\
