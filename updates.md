@@ -1,3 +1,11 @@
+**3 Men Who Disappeared While Fishing in Mississippi River Are Found Dead**\
+`The men were last seen on a sandbar south of a boat ramp in Meeman-Shelby Forest State Park, about 13 miles north of Memphis.`\
+https://nytimes.com/2025/07/23/us/mississippi-river-missing-men-dead.html
+
+**Braves takeaways: Performance ‘embarrassing,’ reality of being sellers, rehabbing pitchers**\
+`The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top candidates.`\
+https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
+
 **Columbia Agrees to $200 Million Fine to Settle Fight With Trump**\
 `The White House had canceled more than $400 million in research funding to the university, saying it had failed to protect Jewish students from harassment.`\
 https://nytimes.com/2025/07/23/nyregion/columbia-trump-funding-deal.html
