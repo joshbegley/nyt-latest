@@ -2,7 +2,7 @@
 `The State Supreme Court decision, overturning an earlier ruling, will allow the New Jersey attorney general to maintain control over the troubled Paterson Police Department.`\
 https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.html
 
-**Biting a Bat and 5 Other Wild Moments from Ozzy Osbourne’s Life**\
+**Biting a Bat and 5 Other Wild Moments From Ozzy Osbourne’s Life**\
 `Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
 https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html
 
@@ -30,11 +30,11 @@ https://nytimes.com/2025/07/23/science/ai-history-ancient-rome-google-deepmind.h
 `A pair of derivative but enjoyable action movies lead off this month’s roundup of deep-cut recommendations on your subscription streaming services.`\
 https://nytimes.com/2025/07/23/movies/manhunt-cleaner-and-more-streaming-gems.html
 
-**Meta Unveils Wristband for Controlling Computers With Hand Gestures**\
-`When you write your name in the air, you can see the letters appear on your smartphone.`\
-https://nytimes.com/2025/07/23/science/meta-computer-wristband-reardon.html
-
 **‘Washington Black’ Review: Escape to the Future**\
 `A Hulu mini-series adapts Esi Edugyan’s prizewinning novel about a young enslaved worker’s literal and symbolic flight to freedom and peace of mind.`\
 https://nytimes.com/2025/07/23/arts/television/washington-black-review.html
+
+**Meta Unveils Wristband for Controlling Computers With Hand Gestures**\
+`When you write your name in the air, you can see the letters appear on your smartphone.`\
+https://nytimes.com/2025/07/23/science/meta-computer-wristband-reardon.html
 
