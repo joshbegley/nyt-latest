@@ -1,3 +1,7 @@
+**E.P.A. Is Said to Draft a Plan to End Its Ability to Fight Climate Change**\
+`According to two people familiar with the draft, it would eliminate the bedrock scientific finding that greenhouse-gas emissions threaten human life by dangerously warming the planet.`\
+https://nytimes.com/2025/07/22/climate/epa-endangerment-finding-rescind.html
+
 **What we're hearing about the Mets' deadline plans in the bullpen and center field**\
 `League sources describe the Mets as active in the center field market while adding that New York is not behaving as if it's a necessity. `\
 https://nytimes.com/athletic/6510051/2025/07/22/mets-trade-deadline-intel-bullpen-center-field/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510012/2025/07/22/chargers-training-camp-khalil-ma
 **MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills challenge**\
 `Some of the biggest names expected to take part in the MLS All-Star Game festivities haven't arrived in Austin `\
 https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
-
-**Is Marcus Smart the missing piece for the Lakers? He thinks so**\
-`After two seasons derailed by injuries, Smart is eyeing a bounce-back with the Lakers: "I think there's no ceiling."`\
-https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piece/
 

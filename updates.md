@@ -1,3 +1,7 @@
+**E.P.A. Is Said to Draft a Plan to End Its Ability to Fight Climate Change**\
+`According to two people familiar with the draft, it would eliminate the bedrock scientific finding that greenhouse-gas emissions threaten human life by dangerously warming the planet.`\
+https://nytimes.com/2025/07/22/climate/epa-endangerment-finding-rescind.html
+
 **What we're hearing about the Mets' deadline plans in the bullpen and center field**\
 `League sources describe the Mets as active in the center field market while adding that New York is not behaving as if it's a necessity. `\
 https://nytimes.com/athletic/6510051/2025/07/22/mets-trade-deadline-intel-bullpen-center-field/
