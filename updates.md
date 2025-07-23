@@ -1,3 +1,7 @@
+**Trump, the House and the Epstein Files**\
+`Readers react to the latest turns in the Jeffrey Epstein case. Also: A threat to election officials; smoke from Canadian wildfires.`\
+https://nytimes.com/2025/07/23/opinion/jeffrey-epstein-files-trump-house.html
+
 **Barcelona and Marcus Rashford: How we got here and why it makes sense**\
 `The club were in need of an affordable way to improve their forward options and the England international had to leave Manchester United`\
 https://nytimes.com/athletic/6505461/2025/07/23/marcus-rashford-barcelona-man-united/

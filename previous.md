@@ -1,3 +1,7 @@
+**Trump, the House and the Epstein Files**\
+`Readers react to the latest turns in the Jeffrey Epstein case. Also: A threat to election officials; smoke from Canadian wildfires.`\
+https://nytimes.com/2025/07/23/opinion/jeffrey-epstein-files-trump-house.html
+
 **Barcelona and Marcus Rashford: How we got here and why it makes sense**\
 `The club were in need of an affordable way to improve their forward options and the England international had to leave Manchester United`\
 https://nytimes.com/athletic/6505461/2025/07/23/marcus-rashford-barcelona-man-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/health/pepfar-shutdown.html
 **How Do I Tell My Rich Friends to Stop Talking About Fleeing the Country?**\
 `How do you tell a friend that you’re tired of having the same conversation over and over?`\
 https://nytimes.com/2025/07/23/magazine/rich-friends-fleeing-country-ethics.html
-
-**Submit your Mets questions for the Will Sammon and Tim Britton mailbag**\
-`Submit your Mets questions for the Will Sammon and Tim Britton mailbag`\
-https://nytimes.com/athletic/6511135/2025/07/23/mets-mailbag-mlb-trade-deadline-2/
 
