@@ -1,3 +1,7 @@
+**3 Police Officers Ambushed in a Shooting in Ohio, Leaving 2 in Critical Condition**\
+`A suspect was dead after a confrontation with police officers in Lorain, Ohio, which is outside Cleveland, the authorities said.`\
+https://nytimes.com/2025/07/23/us/lorain-ohio-police-officers-shot.html
+
 **Raiders feeding off Pete Carroll's positive energy as training camp opens**\
 `The new coach has set an optimistic tone as training camp kicks off in Las Vegas. Here are the highlights from Wednesday's opening session.`\
 https://nytimes.com/athletic/6511510/2025/07/23/raiders-training-camp-pete-carroll/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6511420/2025/07/23/bengals-training-camp-al-golden-
 **Republicans Are Breaking With Trump Over Epstein Files, Polls Show**\
 `The president’s avid followers have backed him through many controversies. But more than a third of Republicans disapprove of his handling of the files related to Jeffrey Epstein.`\
 https://nytimes.com/2025/07/23/us/politics/epstein-trump-republicans.html
-
-**Guard at U.S. Embassy in Norway Charged With Spying for Russia and Iran**\
-`A Norwegian man has been accused of leaking sensitive information about U.S. embassy staff members and threatening Norway’s national interests, according to prosecutors.`\
-https://nytimes.com/2025/07/23/world/europe/norway-spying-russia-iran.html
 
