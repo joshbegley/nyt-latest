@@ -1,3 +1,11 @@
+**Word of the Day: hydroponic**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/23/learning/word-of-the-day-hydroponic.html
+
+**Microsoft Says Chinese State-Backed Hackers Exploiting Flaws in Attacks**\
+`At least two Chinese hacking groups were using security flaws in SharePoint, a popular collaboration software, to breach systems, Microsoft said.`\
+https://nytimes.com/2025/07/23/world/asia/chinese-hackers-microsoft-sharepoint.html
+
 **More decisive substitutions and another second half surge help England reach another final**\
 `So often, Sarina Wiegman’s England look like they will be eliminated before a final. Somehow, they never are.`\
 https://nytimes.com/athletic/6509877/2025/07/23/england-italy-euro-2025-agyemang-kelly/

@@ -1,3 +1,11 @@
+**Word of the Day: hydroponic**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/23/learning/word-of-the-day-hydroponic.html
+
+**Microsoft Says Chinese State-Backed Hackers Exploiting Flaws in Attacks**\
+`At least two Chinese hacking groups were using security flaws in SharePoint, a popular collaboration software, to breach systems, Microsoft said.`\
+https://nytimes.com/2025/07/23/world/asia/chinese-hackers-microsoft-sharepoint.html
+
 **More decisive substitutions and another second half surge help England reach another final**\
 `So often, Sarina Wiegman’s England look like they will be eliminated before a final. Somehow, they never are.`\
 https://nytimes.com/athletic/6509877/2025/07/23/england-italy-euro-2025-agyemang-kelly/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6509424/2025/07/23/brewers-win-streak-ends-11-games
 **The homegrown rule that will cost some Spurs players a place in the Champions League**\
 `As it stands, Thomas Frank will have to leave nine first-teamers out of his squad for Europe in the coming season due to UEFA regulations`\
 https://nytimes.com/athletic/6506704/2025/07/23/spurs-champions-league-squad-homegrown-rule/
-
-**Driving runs and a sense of fun: What Ndoye would bring to Nottingham Forest**\
-`Profiling the player Forest hope can fill the void left by Anthony Elanga’s £52million move to Newcastle`\
-https://nytimes.com/athletic/6508613/2025/07/23/ndoye-nottingham-forest-bologna-transfer/
-
-**Are three centre-backs the best way for Emery's Villa to evolve?**\
-`Three centre-backs have been picked in the opening games of pre-season - will that be the way forward for Emery in 2025-26?`\
-https://nytimes.com/athletic/6501856/2025/07/23/aston-villa-unai-emery-three-centre-backs/
 
