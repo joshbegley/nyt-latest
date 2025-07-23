@@ -1,3 +1,7 @@
+**T.J. Watt is trusting Steelers GM Omar Khan to end his postseason drought**\
+`Watt hasn't won a playoff game, much less a Super Bowl, in eight seasons, but he thinks the Steelers' aggressive approach can change that.`\
+https://nytimes.com/athletic/6511863/2025/07/23/tj-watt-omar-khan-steelers/
+
 **49ers' big — and big-bodied — rookie D-lineman draw a crowd at training camp**\
 `One of the standouts of the opening day of camp: receiver Jauan Jennings, who isn't waging the sort of "hold in" Brandon Aiyuk did last year`\
 https://nytimes.com/athletic/6511823/2025/07/23/49ers-training-camp-rookies-collins-williams/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6511647/2025/07/23/anthony-richardson-daniel-jones-
 **6 Takeaways From Idaho Killer’s Sentencing Hearing**\
 `A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
-
-**The Chatbot Culture Wars Are Here**\
-`Conservatives, including President Trump, are accusing A.I. companies of left-wing bias, following a playbook that worked well against social media platforms.`\
-https://nytimes.com/2025/07/23/technology/trump-ai-chatbots-bias.html
 
