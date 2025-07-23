@@ -1,3 +1,7 @@
+**Bears training camp observations: Offense draws Ben Johnson's ire, defense pays toll**\
+`Tremaine Edmunds intercepted Caleb Williams and drew praise from defensive coordinator Dennis Allen; Luther Burden III was not present.`\
+https://nytimes.com/athletic/6511260/2025/07/23/bears-training-camp-observations-ben-johnson/
+
 **Patriots aren't hiding from woes of last two years: 'Guys here are tired of losing'**\
 `The Patriots kicked off training camp Wednesday with a sense of optimism that Mike Vrabel and Drake Maye can lead their turnaround.`\
 https://nytimes.com/athletic/6511309/2025/07/23/patriots-training-camp-drake-maye-mike-vrabel/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/arts/television/eileen-fulton-dead.html
 **Tiny Love Stories: ‘My Father Didn’t Mind Her Lie’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/07/23/style/tiny-modern-love-stories-my-father-didnt-mind-her-lie.html
-
-**Inside Liverpool's Ekitike deal: Months of groundwork, fending off rivals and a chat with Slot**\
-`Revealing how the Premier League champions secured their eye-catching move for French striker `\
-https://nytimes.com/athletic/6506576/2025/07/23/liverpool-hugo-ekitike-transfer-inside-deal/
 

@@ -1,8 +1,16 @@
+**Patriots aren't hiding from woes of last two years: 'Guys here are tired of losing'**\
+`The Patriots kicked off training camp Wednesday with a sense of optimism that Mike Vrabel and Drake Maye can lead their turnaround.`\
+https://nytimes.com/athletic/6511309/2025/07/23/patriots-training-camp-drake-maye-mike-vrabel/
+
+**Trump Administration Illegally Withheld Head Start Funds, Watchdog Finds**\
+`It’s the third time this year that investigators from the Government Accountability Office have determined the administration defied Congress on spending.`\
+https://nytimes.com/2025/07/23/us/politics/trump-head-start-government-accountability-office.html
+
 **These Lemon-Poppy Seed Bars Are the Stuff of Dreams**\
 `These easy treats balance buttery shortbread and tangy curd.`\
 https://nytimes.com/2025/07/23/dining/easy-lemon-poppy-seed-bars.html
 
-**FEMA director defends response to Texas flooding during a hearing with lawmakers.**\
+**FEMA’s director defends the response to Texas flooding during a hearing with lawmakers.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/07/23/us/trump-news/fema-director-defends-response-to-texas-flooding-during-a-hearing-with-lawmakers
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/style/tiny-modern-love-stories-my-father-didnt-mi
 **Inside Liverpool's Ekitike deal: Months of groundwork, fending off rivals and a chat with Slot**\
 `Revealing how the Premier League champions secured their eye-catching move for French striker `\
 https://nytimes.com/athletic/6506576/2025/07/23/liverpool-hugo-ekitike-transfer-inside-deal/
-
-**Jets training camp observations: Justin Fields' up-and-down practice**\
-`Plus, the competition at center, another highlight for Garrett Wilson, and Malachi Corley's struggles continue.`\
-https://nytimes.com/athletic/6511120/2025/07/23/jets-training-camp-practice-report/
-
-**I Want This Poem Read Aloud at My Funeral**\
-`Jane Kenyon’s “The Pond at Dusk” is a quiet, mischievous reckoning with nature and mortality. Our critic A.O. Scott plumbs its depths.`\
-https://nytimes.com/interactive/2025/07/23/books/jane-kenyon-the-pond-at-dusk-poem.html
 
