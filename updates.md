@@ -1,3 +1,11 @@
+**It’s not Drake Maye’s fault Patriots are where they are (but it’s the thought that counts)**\
+`If you’re a fan looking for signs that the Patriots want to get back to winning, Maye’s comments were the biggest news from Day 1 of camp.`\
+https://nytimes.com/athletic/6511941/2025/07/23/patriots-drake-maye-training-camp/
+
+**Do Democrats Want a Fight Over Colbert?**\
+`Some Democrats are irate over the end of Stephen Colbert’s show, but others see a lack of focus on real issues.`\
+https://nytimes.com/2025/07/23/us/politics/colbert-trump-democrats.html
+
 **Braves takeaways: Performance 'embarrassing', facing reality of being sellers, whither rehabbing pitchers?**\
 `The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top canidates.`\
 https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
