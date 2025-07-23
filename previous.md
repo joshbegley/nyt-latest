@@ -1,3 +1,15 @@
+**3 Police Officers Ambushed in a Shooting in Ohio, Leaving 2 in Critical Condition**\
+`A suspect was dead after a confrontation with police officers in Lorain, Ohio, which is outside Cleveland, the authorities said.`\
+https://nytimes.com/2025/07/23/us/lorain-ohio-police-officers-shot.html
+
+**Raiders feeding off Pete Carroll's positive energy as training camp opens**\
+`The new coach has set an optimistic tone as training camp kicks off in Las Vegas. Here are the highlights from Wednesday's opening session.`\
+https://nytimes.com/athletic/6511510/2025/07/23/raiders-training-camp-pete-carroll/
+
+**Joanna Macy, Who Found a Way to Transcend ‘Eco-Anxiety,’ Dies at 96**\
+`With books and workshops, she helped others deal with the stress caused by climate change, inspiring them to take action and not be paralyzed by despair.`\
+https://nytimes.com/2025/07/23/climate/joanna-macy-dead.html
+
 **Target Ends Price-Matching Policy After More Than a Decade**\
 `Shoppers will no longer be able to buy an item for a lower price if they can prove that they found an identical product listed for less by Amazon or Walmart.`\
 https://nytimes.com/2025/07/23/business/target-price-matching-amazon-walmart.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6511420/2025/07/23/bengals-training-camp-al-golden-
 **Republicans Are Breaking With Trump Over Epstein Files, Polls Show**\
 `The president’s avid followers have backed him through many controversies. But more than a third of Republicans disapprove of his handling of the files related to Jeffrey Epstein.`\
 https://nytimes.com/2025/07/23/us/politics/epstein-trump-republicans.html
-
-**Guard at U.S. Embassy in Norway Charged With Spying for Russia and Iran**\
-`A Norwegian man has been accused of leaking sensitive information about U.S. embassy staff members and threatening Norway’s national interests, according to prosecutors.`\
-https://nytimes.com/2025/07/23/world/europe/norway-spying-russia-iran.html
-
-**Our 2025-26 Student Contest Calendar**\
-`Eight challenges that invite teenagers to engage, experiment, reflect and create — via writing, photography, audio, video and more.`\
-https://nytimes.com/2025/07/23/learning/our-2025-26-student-contest-calendar.html
-
-**SCORE Act advances through committee, farthest any college sports bill has gotten in Congress**\
-`The soonest a vote could happen is in the fall Congressional session starting in September, with summer recess looming.`\
-https://nytimes.com/athletic/6511289/2025/07/23/score-act-congress-college-sports/
 
