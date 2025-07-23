@@ -1,3 +1,7 @@
+**ESPN and NFL closing in on 'Next Era'-defining media deal**\
+`What could be in the deal: Red Zone Channel, NFL Network, seven regular-season games, enhanced betting and fantasy possibilities.`\
+https://nytimes.com/athletic/6509767/2025/07/23/espn-nfl-media-network-jimmy-pitaro-streaming/
+
 **With Russia and Ukraine to Meet Again, Here’s What to Know About the Peace Talks**\
 `The warring sides are still far apart heading into the third round of U.S.-brokered peace negotiations, set for Wednesday in Istanbul.`\
 https://nytimes.com/2025/07/23/world/europe/russia-ukraine-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/us/politics/omar-fateh-minneapolis-mayor-mamdani.
 **No One Parties Like Jacques Pépin, Even at 90**\
 `The beloved chef, who brought French cooking skills to the American masses, is celebrating his upcoming birthday with 90 parties around the country.`\
 https://nytimes.com/2025/07/23/dining/jacques-pepin-birthday.html
-
-**Louis Vuitton Netherlands Entangled in Money-Laundering Case**\
-`A customer’s cash purchases of luxury goods totaling millions of euros in value caught the attention of prosecutors, who say the company should have noticed.`\
-https://nytimes.com/2025/07/23/world/europe/louis-vuitton-netherlands-money-laundering.html
 

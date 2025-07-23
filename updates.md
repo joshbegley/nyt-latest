@@ -1,3 +1,11 @@
+**With Russia and Ukraine to Meet Again, Here’s What to Know About the Peace Talks**\
+`The warring sides are still far apart heading into the third round of U.S.-brokered peace negotiations, set for Wednesday in Istanbul.`\
+https://nytimes.com/2025/07/23/world/europe/russia-ukraine-peace-talks.html
+
+**The New York Times International Edition in Print for Thursday, July 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/23/todays-new-york-times-international-edition
+
 **China Flexes Muscles at U.N. Cultural Agency, Just as Trump Walks Away**\
 `Washington had been a buffer against China’s efforts to use UNESCO to influence education, historical designations and even artificial intelligence.`\
 https://nytimes.com/2025/07/23/world/asia/unesco-china-us.html
