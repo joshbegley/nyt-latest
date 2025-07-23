@@ -1,3 +1,7 @@
+**The Windup: The best starter on the market***\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6510311/2025/07/23/joe-ryan-starter-trade-deadline-the-windup/
+
 **Global Markets Rally on Japan Deal Euphoria**\
 `But more big tests loom with trade talks still continuing between the Trump administration and counterparts in China and the European Union.`\
 https://nytimes.com/2025/07/23/business/dealbook/markets-rally-japan-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509650/2025/07/23/obed-vargas-seattle-sounders-mex
 **What to Know About the U.S. Move to Withdraw From UNESCO**\
 `The Trump administration plans to pull out of the U.N. cultural agency, putting UNESCO back at the center of geopolitical rivalry.`\
 https://nytimes.com/2025/07/23/world/unesco-trump-us-withdrawal.html
-
-**Ty Dillon on NASCAR's In-Season Challenge, mid-field drivers and more: 12 Questions**\
-`Ty Dillon talks about his run through NASCAR's in-season tournament, why there should be more focus on mid-pack drivers and more.`\
-https://nytimes.com/athletic/6508987/2025/07/23/nascar-ty-dillon-in-season-challenge-12-questions/
 
