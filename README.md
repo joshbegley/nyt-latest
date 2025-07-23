@@ -1,3 +1,7 @@
+**Venus rises: 45-year-old Venus Williams stuns at Citi Open after year-long hiatus**\
+`The seven-time Grand Slam singles champion had not played a WTA Tour match since March of 2024 and had not won one since 2023.`\
+https://nytimes.com/athletic/6510057/2025/07/22/venus-williams-wins-return-citi-open/
+
 **Where the Dodgers' trade priorities lie nine days before the deadline**\
 `A front office that joked throughout the winter about wanting to avoid buying altogether has grabbed its shopping cart.`\
 https://nytimes.com/athletic/6510052/2025/07/22/los-angeles-dodgers-trade-deadline-priorities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piec
 **Ozzy Started With Style, and Built From There**\
 `Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
 https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
-
-**U.S. and Japan Reach Trade Deal**\
-`President Trump said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
-https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
 
