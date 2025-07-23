@@ -1,8 +1,12 @@
+**O'Connor: Jaxson Dart is betting on himself to have Eli Manning’s career (and then some)**\
+`On the first day of training camp, Dart wouldn't put a ceiling on his ambitions — not even for two Super Bowl rings. Hope springs eternal. `\
+https://nytimes.com/athletic/6511622/2025/07/23/giants-jaxson-dart-rookie-qb-eli-manning/
+
 **Pat McAfee apologizes to Ole Miss student after amplifying false rumor**\
 `The false rumor forced the student to switch to online classes and move out of her dormitory.`\
 https://nytimes.com/athletic/6511700/2025/07/23/pat-mcafee-apology-ole-miss-student-false-rumor/
 
-**Trump Really, Really Wants to Stop Talking About Epstein: A Timeline**\
+**Trump Really Wants to Stop Talking About Epstein: A Timeline**\
 `President Trump has tried to attack, deflect and deny his way past the Jeffrey Epstein saga. He’s had less success than usual.`\
 https://nytimes.com/2025/07/23/us/politics/trump-epstein-distraction-timeline.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/23/us/politics/texas-floods-hearing-emergency-manage
 **Dodgers' Ohtani homers in career-best fifth straight game**\
 `The solo blast off Twins starter Chris Paddack extended Ohtani’s longest career streak of games with a home run.`\
 https://nytimes.com/athletic/6511707/2025/07/23/dodgers-shohei-ohtani-home-run-five-games/
-
-**New York Republicans Unite in Attacking Mamdani**\
-`Zohran Mamdani, the Democratic nominee for mayor of New York City, faced a barrage of attacks from Republicans over the course of a few hours.`\
-https://nytimes.com/2025/07/23/nyregion/mamdani-republicans-attack.html
 

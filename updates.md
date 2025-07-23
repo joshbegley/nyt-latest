@@ -1,3 +1,11 @@
+**O'Connor: Jaxson Dart is betting on himself to have Eli Manning’s career (and then some)**\
+`On the first day of training camp, Dart wouldn't put a ceiling on his ambitions — not even for two Super Bowl rings. Hope springs eternal. `\
+https://nytimes.com/athletic/6511622/2025/07/23/giants-jaxson-dart-rookie-qb-eli-manning/
+
+**Trump Really Wants to Stop Talking About Epstein: A Timeline**\
+`President Trump has tried to attack, deflect and deny his way past the Jeffrey Epstein saga. He’s had less success than usual.`\
+https://nytimes.com/2025/07/23/us/politics/trump-epstein-distraction-timeline.html
+
 **Pat McAfee apologizes to Ole Miss student after amplifying false rumor**\
 `The false rumor forced the student to switch to online classes and move out of her dormitory.`\
 https://nytimes.com/athletic/6511700/2025/07/23/pat-mcafee-apology-ole-miss-student-false-rumor/
