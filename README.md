@@ -1,3 +1,7 @@
+**Ozzy Started With Style, and Built From There**\
+`Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
+https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
+
 **Trump Says U.S. Has Reached Trade Deal With Japan**\
 `The president said on social media that the trade deal he struck with the country would impose a 15 percent tariff on its exports.`\
 https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/technology/jesse-powell-kraken-verge-investigatio
 **How to Stay Safe From Rip Currents, and What to Do if You’re Caught in One**\
 `From land, a rip current can appear relatively calm, as a strip of water that extends out between breaking waves. Its appearance can be deceiving.`\
 https://nytimes.com/article/rip-current-survival-escape-tips.html
-
-**Nebraska's Rhule defends, welcomes back Scott Frost after 'wrong job' comments**\
-`Rhule told The Athletic that he made a deliberate choice to embrace Frost, rather than to remain mired negativity.`\
-https://nytimes.com/athletic/6509890/2025/07/22/matt-rhule-scott-frost-nebraska/
 
