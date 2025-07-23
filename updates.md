@@ -1,3 +1,15 @@
+**Top U.N. Court Says Countries Must Act on Climate Change**\
+`The International Court of Justice called global warming an “urgent and existential threat” at a closely watched case in The Hague.`\
+https://nytimes.com/2025/07/23/climate/icj-hague-climate-change.html
+
+**Newcastle expected to choose Wilson as new sporting director**\
+`Former Arsenal assistant sporting director Jason Ayto was also interviewed but it is anticipated that Wilson will be offered the position.`\
+https://nytimes.com/athletic/6510875/2025/07/23/newcastle-sporting-director-ross-wilson/
+
+**Mussolini's great-grandson says 'my name has never caused me problems' after Serie A transfer**\
+`Romano Floriani Mussolini, who primarily plays at right-back, has joined Cremonese on a loan deal from Lazio.`\
+https://nytimes.com/athletic/6510881/2025/07/23/mussolini-lazio-transfer-cremonese/
+
 **Boston Fleet name Kris Sparre as head coach**\
 `Sparre replaces Courtney Kessel, who recently left to coach the Princeton University women's hockey team.`\
 https://nytimes.com/athletic/6510911/2025/07/23/boston-fleet-coach-kris-sparre-pwhl/
