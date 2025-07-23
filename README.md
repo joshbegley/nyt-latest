@@ -1,3 +1,7 @@
+**Barcelona striker Victor set to make permanent Braga transfer**\
+`Victor is behind Lewandowski and Torres in the pecking order in addition to Rashford’s impending arrival.`\
+https://nytimes.com/athletic/6510643/2025/07/23/barcelona-transfer-news-pau-victor-braga/
+
 **Clothes That Celebrate the Elegance of Your Inner Weirdo**\
 `With her fourth collection, Phoebe Philo’s long game is becoming clear.`\
 https://nytimes.com/2025/07/23/style/phoebe-philo-collection-d.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509779/2025/07/23/49ers-training-camp-defense-star
 **Lowetide: Does Oilers prospect Connor Clattenburg have an NHL future?**\
 `Clattenburg's two-way acumen is a huge positive, and his reputation as a punishing hitter will be welcome.`\
 https://nytimes.com/athletic/6509708/2025/07/23/edmonton-oilers-prospect-connor-clattenburg/
-
-**Obed Vargas measures his passes and his present while a brighter future awaits**\
-`Seattle's Alaska-born, 19-year-old talent already chose to play for Mexico over the U.S., and bigger decisions are coming`\
-https://nytimes.com/athletic/6509650/2025/07/23/obed-vargas-seattle-sounders-mexico-mls-all-star-club-world-cup/
 
