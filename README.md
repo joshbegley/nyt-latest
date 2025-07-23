@@ -1,3 +1,7 @@
+**Braves delay Riley's return from IL, Acuña Jr. praises beleaguered hitting coach**\
+`The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
+https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
+
 **E.P.A. Is Said to Draft a Plan to End Its Ability to Fight Climate Change**\
 `According to two people familiar with the draft, it would eliminate the bedrock scientific finding that greenhouse-gas emissions threaten human life by dangerously warming the planet.`\
 https://nytimes.com/2025/07/22/climate/epa-endangerment-finding-rescind.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/us/los-angeles-fires-victim.html
 **Chargers training camp report, Day 5: Khalil Mack proves he is still a 'game-wrecker'**\
 `Mack dominated the Chargers' first practice in pads as training camp shifted to the University of San Diego for the first of two days.`\
 https://nytimes.com/athletic/6510012/2025/07/22/chargers-training-camp-khalil-mack/
-
-**MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills challenge**\
-`Some of the biggest names expected to take part in the MLS All-Star Game festivities haven't arrived in Austin `\
-https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
 
