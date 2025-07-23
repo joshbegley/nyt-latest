@@ -1,3 +1,31 @@
+**Broncos' Bo Nix seeks out Drew Brees to help spark Year 2 jump**\
+`Broncos coach Sean Payton says contract extensions with a handful of marquee players are "being worked on" as training camp begins.`\
+https://nytimes.com/athletic/6511302/2025/07/23/bo-nix-brees-broncos-training-camp/
+
+**Our 25 Most Popular Recipes of the Year So Far**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/popular-recipes-2025
+
+**gws-corfu-greece-minimalist-concrete-house**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/corfu-greece-minimalist-concrete-house
+
+**Kennedy Rescinds Endorsements for Some Flu Vaccines**\
+`Federal guidelines no longer recommend flu vaccines containing a preservative, used in a small percentage of vaccines, that has been falsely linked to autism.`\
+https://nytimes.com/2025/07/23/health/rfk-jr-flu-vaccines-thimerosal.html
+
+**Idaho Killer Is Sentenced to 4 Consecutive Life Terms**\
+`Brian Kohberger, who plead guilty to killing four Idaho college students, was sentenced to four consecutive life sentences. Friends and family members of the victims wept as they gave impact statements in a Boise courtroom.`\
+https://nytimes.com/video/us/100000010301903/idaho-sentencing-bryan-kohberger.html
+
+**Chelsea in talks with Ajax over move for defender Hato**\
+`The 19-year-old has been the subject of interest from a number of Premier League clubs.`\
+https://nytimes.com/athletic/6496268/2025/07/23/jorrel-hato-chelsea-transfers/
+
+**Liam Dawson and the near 3,000 day wait to be an England Test cricketer again**\
+`Competitive and a consumate professional - the Hampshire all-rounder made a triumphant return to Test cricket against India`\
+https://nytimes.com/athletic/6511317/2025/07/23/liam-dawson-england-comeback-india/
+
 **Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
 `Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
 `\
@@ -10,32 +38,4 @@ https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
 **Jim Legxacy Makes Music That Sounds Like Memory**\
 `The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
 https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
-
-**How Epstein Has Consumed Washington, From the White House to Congress and Beyond**\
-`The case of Jeffrey Epstein, sex offender and former friend of the president, has blown up into a major headache for the White House.`\
-https://nytimes.com/2025/07/23/us/politics/epstein-washington.html
-
-**gws-silvia-moreno-garcia-interview-the-bewitching**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/silvia-moreno-garcia-interview-the-bewitching
-
-**Plane in Alaska Crash Was Overloaded With Moose Meat and Antlers, N.T.S.B. Says**\
-`Investigators have released an inquiry into the fatal crash in a mountainous area, where Eugene Peltola Jr., the husband of former U.S. Representative Mary Peltola, was killed in 2023.`\
-https://nytimes.com/2025/07/23/us/politics/plane-crash-peltola-alaska-antlers.html
-
-**Young joins Ipswich following Everton exit**\
-`Young, 40, left Everton this summer after the conclusion of his contract.`\
-https://nytimes.com/athletic/6510939/2025/07/23/ashley-young-ipswich-transfer/
-
-**Nine Questions About the Epstein Case That Actually Need Answers**\
-`You needn’t be a conspiracy theorist to have questions.`\
-https://nytimes.com/2025/07/23/opinion/epstein-files-fbi-trump.html
-
-**Bears training camp observations: Offense draws Ben Johnson's ire, defense pays toll**\
-`Tremaine Edmunds intercepted Caleb Williams and drew praise from defensive coordinator Dennis Allen; Luther Burden III was not present.`\
-https://nytimes.com/athletic/6511260/2025/07/23/bears-training-camp-observations-ben-johnson/
-
-**Patriots aren't hiding from woes of last two years: 'Guys here are tired of losing'**\
-`The Patriots kicked off training camp Wednesday with a sense of optimism that Mike Vrabel and Drake Maye can lead their turnaround.`\
-https://nytimes.com/athletic/6511309/2025/07/23/patriots-training-camp-drake-maye-mike-vrabel/
 

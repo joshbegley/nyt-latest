@@ -1,3 +1,11 @@
+**Jayden Daniels, Commanders maintaining an internal hunger amid high expectations**\
+`Washington's players and coaches say keeping an internal focus on growth will help guard against lofty outside expectations.`\
+https://nytimes.com/athletic/6511300/2025/07/23/commanders-training-camp-nfl-2025-jayden-daniels/
+
+**In Seeking More on Epstein, Justice Dept.’s No. 2 Official Occupies Unusual Role**\
+`Legal experts said the involvement of Todd Blanche, President Trump’s former lawyer who is now a top official at the Justice Department, was rife with potential pitfalls and complexities.`\
+https://nytimes.com/2025/07/23/us/politics/todd-blanche-epstein-ghislaine-maxwell-trump.html
+
 **Broncos' Bo Nix seeks out Drew Brees to help spark Year 2 jump**\
 `Broncos coach Sean Payton says contract extensions with a handful of marquee players are "being worked on" as training camp begins.`\
 https://nytimes.com/athletic/6511302/2025/07/23/bo-nix-brees-broncos-training-camp/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6511317/2025/07/23/liam-dawson-england-comeback-ind
 `Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
 `\
 https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
-
-**A Workout to Train for Everyday Life**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
-
-**Jim Legxacy Makes Music That Sounds Like Memory**\
-`The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
-https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
 
