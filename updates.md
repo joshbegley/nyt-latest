@@ -1,3 +1,7 @@
+**I Want This Poem Read Aloud at My Funeral**\
+`Jane Kenyon’s “The Pond at Dusk” is a quiet, mischievous reckoning with nature and mortality. Our critic A.O. Scott plumbs its depths.`\
+https://nytimes.com/interactive/2025/07/23/books/jane-kenyon-the-pond-at-dusk-poem.html
+
 **Does the World Court’s Sweeping Climate Opinion Matter? Five Takeaways.**\
 `While the court doesn’t have enforcement mechanisms, it has a prominent voice, and its legal arguments could reverberate.`\
 https://nytimes.com/2025/07/23/climate/icj-world-court-climate-opinion-takeaways.html

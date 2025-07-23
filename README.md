@@ -1,3 +1,7 @@
+**Jets training camp observations: Justin Fields' up-and-down practice**\
+`Plus, the competition at center, another highlight for Garrett Wilson, and Malachi Corley's struggles continue.`\
+https://nytimes.com/athletic/6511120/2025/07/23/jets-training-camp-practice-report/
+
 **I Want This Poem Read Aloud at My Funeral**\
 `Jane Kenyon’s “The Pond at Dusk” is a quiet, mischievous reckoning with nature and mortality. Our critic A.O. Scott plumbs its depths.`\
 https://nytimes.com/interactive/2025/07/23/books/jane-kenyon-the-pond-at-dusk-poem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/science/grand-canyon-fossils-cambrian-explosion.h
 **Education Department Will Investigate Scholarships for DACA Students**\
 `The department said it was examining whether universities that provide financial help for children who arrived in the country as undocumented immigrants are discriminating against U.S. citizens.`\
 https://nytimes.com/2025/07/23/us/politics/education-department-will-investigate-scholarships-for-daca-students.html
-
-**Cardinals designate starting pitcher Erick Fedde for assignment**\
-`In his nine starts since June 1, Fedde logged just 39 1/2 innings and posted a 7.32 ERA.`\
-https://nytimes.com/athletic/6511222/2025/07/23/cardinals-designate-starting-pitcher-erick-fedde-for-assignment/
 

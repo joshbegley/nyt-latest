@@ -1,3 +1,7 @@
+**I Want This Poem Read Aloud at My Funeral**\
+`Jane Kenyon’s “The Pond at Dusk” is a quiet, mischievous reckoning with nature and mortality. Our critic A.O. Scott plumbs its depths.`\
+https://nytimes.com/interactive/2025/07/23/books/jane-kenyon-the-pond-at-dusk-poem.html
+
 **Does the World Court’s Sweeping Climate Opinion Matter? Five Takeaways.**\
 `While the court doesn’t have enforcement mechanisms, it has a prominent voice, and its legal arguments could reverberate.`\
 https://nytimes.com/2025/07/23/climate/icj-world-court-climate-opinion-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/us/politics/education-department-will-investigate
 **Cardinals designate starting pitcher Erick Fedde for assignment**\
 `In his nine starts since June 1, Fedde logged just 39 1/2 innings and posted a 7.32 ERA.`\
 https://nytimes.com/athletic/6511222/2025/07/23/cardinals-designate-starting-pitcher-erick-fedde-for-assignment/
-
-**Trump, the House and the Epstein Files**\
-`Readers react to the latest turns in the Jeffrey Epstein case. Also: A threat to election officials; smoke from Canadian wildfires.`\
-https://nytimes.com/2025/07/23/opinion/jeffrey-epstein-files-trump-house.html
 
