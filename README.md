@@ -1,4 +1,4 @@
-**Britain Moves to Curb Migrant Trafficking, and Ease Anger at Home**\
+**Britain Punishes Migrant Smugglers, Using New Legal Power**\
 `Officials used new legal powers to penalize and bar networks run by gangs and organized crime. But experts and critics say the actions are unlikely to stem the surging tide of migration.`\
 https://nytimes.com/2025/07/23/world/europe/uk-migrant-trafficking.html
 
