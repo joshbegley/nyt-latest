@@ -1,3 +1,7 @@
+**The words that should fuel Giants coach Brian Daboll throughout training camp**\
+`New York has looked outclassed and overmatched in Week 1 each of the past two seasons. What can Daboll do during camp to turn things around?`\
+https://nytimes.com/athletic/6510026/2025/07/23/ny-giants-brian-daboll-training-camp-week-1/
+
 **Zelensky Faces Criticism Over Effort to Rein In Corruption Agencies**\
 `President Volodymyr Zelensky signed a bill limiting two Ukrainian agencies leading efforts against corruption. Critics say it was an overstepping of his authority.`\
 https://nytimes.com/2025/07/23/world/europe/zelensky-protests-ukraine-corruption.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6510178/2025/07/23/yankees-cam-schlittler-trade-dea
 `Brian Cashman made it clear that if he could add a starting pitcher before the trade deadline passes, he will. Here are six names to watch.`\
 https://nytimes.com/athletic/6509724/2025/07/23/yankees-trade-deadline-targets-starting-pitchers/
 
-**Bengals’ 53-man roster projection: Guard battles, D-line uncertainty as camp begins**\
+**Bengals 53-man roster projection: Guard battles, D-line uncertainty as camp begins**\
 `The high-profile offensive skill positions are set but several other spots are still up for grabs in training camp.`\
 https://nytimes.com/athletic/6509875/2025/07/23/bengals-53-man-roster-projection-2025/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509541/2025/07/23/nhl-offseason-erik-karlsson-trad
 **Re-drafting the 2022 NHL Draft: Logan Cooley, Lane Hutson lead Wheeler’s do-over**\
 `Scott Wheeler provides updated evaluations of the top players in the 2022 draft class and breaks down what he got right and wrong.`\
 https://nytimes.com/athletic/6485550/2025/07/23/nhl-draft-lane-hutson-logan-cooley-2022-rerank/
-
-**A future conference realignment winner? Why UNC football is more valuable than you think**\
-`UNC could be attractive to both the Big Ten and the SEC in the future. It's not because of football success ... or Bill Belichick.`\
-https://nytimes.com/athletic/6507342/2025/07/23/north-carolina-conference-realignment-college-football/
 
