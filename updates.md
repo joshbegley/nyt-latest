@@ -1,3 +1,19 @@
+**The Pulse: The most overrated team in the NFL?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6509332/2025/07/23/nfl-underrated-overrated-teams-the-pulse/
+
+**Cristopher Sánchez's ascension toward acehood has changed the calculus for Phillies**\
+`Thirteen months to the day Sánchez signed what could be a franchise-altering extension with the Phillies, he threw his third complete game.`\
+https://nytimes.com/athletic/6510139/2025/07/23/cristopher-sanchez-phillies-complete-game-red-sox/
+
+**As Caitlin Clark's injuries persist, what's the Fever's outlook for WNBA's second half?**\
+`The Fever have had ups and downs, but the midpoint of the season presents a crossroad. `\
+https://nytimes.com/athletic/6510223/2025/07/23/indiana-fever-second-half-caitlin-clark-injury-wnba/
+
+**TAFC: Is this Europe's best selling club? Plus: Lionesses leave it late again**\
+`Today in TAFC: The German club that has mastered the sale of stars, England's latest late show and artwork of Messi goal sells for $1.87m.`\
+https://nytimes.com/athletic/6510383/2025/07/23/eintracht-frankfurt-england-euro-2025-messi-art/
+
 **Aid Agencies and Rights Groups Warn of ‘Mass Starvation’ in Gaza**\
 `More than 100 organizations blamed Israel’s siege of the territory, adding to growing calls for aid restrictions to be eased and the war to end.`\
 https://nytimes.com/2025/07/23/world/middleeast/aid-groups-gaza-starvation.html
