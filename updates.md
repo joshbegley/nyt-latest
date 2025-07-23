@@ -1,3 +1,7 @@
+**Democrats in the Wilderness**\
+`We look at the state of the Democratic Party.`\
+https://nytimes.com/2025/07/23/briefing/democrats-in-the-wilderness.html
+
 **Rosenthal: What I'm hearing about the Royals, Twins and Astros' trade deadline plans and more**\
 `The Royals are making it clear to clubs that any deal for pitcher Seth Lugo would require controllable outfield help in return.`\
 https://nytimes.com/athletic/6510086/2025/07/23/mlb-trade-deadline-royals-twins-astros/

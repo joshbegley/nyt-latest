@@ -1,3 +1,7 @@
+**Democrats in the Wilderness**\
+`We look at the state of the Democratic Party.`\
+https://nytimes.com/2025/07/23/briefing/democrats-in-the-wilderness.html
+
 **Rosenthal: What I'm hearing about the Royals, Twins and Astros' trade deadline plans and more**\
 `The Royals are making it clear to clubs that any deal for pitcher Seth Lugo would require controllable outfield help in return.`\
 https://nytimes.com/athletic/6510086/2025/07/23/mlb-trade-deadline-royals-twins-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509595/2025/07/23/minnesota-vikings-kevin-oconnell
 **Behind Japan’s Trade Deal: 8 Rounds of Talks and ‘Hurrying Slowly’**\
 `After months of fraught negotiations with the United States, Japan clinched a deal just days before punitive tariffs were scheduled to take effect.`\
 https://nytimes.com/2025/07/23/business/trump-trade-japan-election.html
-
-**Ryder Cup roster projection: Who will make the U.S., Europe teams?**\
-`There are more contenders than there are places on the team for both squads, making the next month potentially very interesting.`\
-https://nytimes.com/athletic/6509141/2025/07/23/ryder-cup-2025-roster-projection-us-europe/
 
