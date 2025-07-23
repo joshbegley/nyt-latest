@@ -1,3 +1,15 @@
+**Why did Bryan Kohberger kill four University of Idaho students?**\
+`By Mike Baker`\
+https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders/why-did-bryan-kohberger-kill-four-university-of-idaho-students
+
+**Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
+`It’s unclear if he will address the question everyone wants to know: Why did he do it?`\
+https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders
+
+**Tracking Tropical Storm Francisco**\
+`See the likely path and wind arrival times for Francisco`\
+https://nytimes.com/interactive/2025/07/23/weather/francisco-map-path-tracker.html
+
 **State Dept. Opens Investigation Into Harvard’s Use of International Visas**\
 `The Trump administration has continued to pressure the university despite continuing talks to settle a monthslong dispute over the federal government’s role in higher education.`\
 https://nytimes.com/2025/07/23/us/politics/state-department-trump-harvard.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/23/opinion/girls-boys-school-performance.html
 **Julia Roberts Drama Will Open the New York Film Festival**\
 `Directed by Luca Guadagnino, “After the Hunt” features the star as a Yale professor caught between a student and a colleague accused of sexual assault.`\
 https://nytimes.com/2025/07/23/movies/after-the-hunt-julia-roberts-luca-guadagnino-new-york-film-festival.html
-
-**Their Superpower? Holding Things.**\
-`Known as “the claw grip” online, women are making videos about how many objects they can hold without a purse or functional pockets. What is the larger message?`\
-https://nytimes.com/2025/07/23/style/claw-grip-women-holding-things.html
-
-**Is It OK to Confide in My Best Friend About My Heavy Medical Diagnosis?**\
-`A reader wonders whether it would unfairly burden a friend to share sobering health news with her and her alone.`\
-https://nytimes.com/2025/07/23/style/medical-diagnosis-friends-family.html
-
-**Barcelona striker Victor set to make permanent Braga transfer**\
-`Victor is behind Lewandowski and Torres in the pecking order in addition to Rashford’s impending arrival.`\
-https://nytimes.com/athletic/6510643/2025/07/23/barcelona-transfer-news-pau-victor-braga/
 
