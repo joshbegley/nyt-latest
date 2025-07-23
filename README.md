@@ -1,3 +1,11 @@
+**The opportunity for Marcus Rashford at Barcelona is potentially huge – and very different to Manchester**\
+`Marcus Rashford could not have asked for a better more after a season of turmoil at Manchester United. Now he has to make it count`\
+https://nytimes.com/athletic/6504590/2025/07/23/marcus-rashford-barcelona-manchester-united/
+
+**Will Guijarro be the next Spain midfielder to win the Ballon d'Or?**\
+`In both the men’s and women’s game, Spanish midfielders have a hold over the award. Guijarro could be next in line`\
+https://nytimes.com/athletic/6508438/2025/07/23/patri-guijarro-spain-euros/
+
 **Frankfurt are about to hit profits of €345m in six years just from selling strikers – this is how they do it**\
 `The Bundesliga side are about to make another stack of money on one of their front men when they sell Hugo Ekitike to Liverpool`\
 https://nytimes.com/athletic/6508175/2025/07/23/eintracht-frankfurt-hugo-ekitike-analysis-strikers-sales/
@@ -29,12 +37,4 @@ https://nytimes.com/video/obituaries/100000010299847/ozzy-osbourne-obituary.html
 **Braves delay Riley's return from IL, Acuña praises beleaguered hitting coach**\
 `The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
 https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
-
-**E.P.A. Is Said to Draft a Plan to End Its Ability to Fight Climate Change**\
-`According to two people familiar with the draft, it would eliminate the bedrock scientific finding that greenhouse-gas emissions threaten human life by dangerously warming the planet.`\
-https://nytimes.com/2025/07/22/climate/epa-endangerment-finding-rescind.html
-
-**What we're hearing about the Mets' deadline plans in the bullpen and center field**\
-`League sources describe the Mets as active in the center field market while adding that New York is not behaving as if it's a necessity. `\
-https://nytimes.com/athletic/6510051/2025/07/22/mets-trade-deadline-intel-bullpen-center-field/
 

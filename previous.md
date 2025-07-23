@@ -1,3 +1,31 @@
+**Frankfurt are about to hit profits of €345m in six years just from selling strikers – this is how they do it**\
+`The Bundesliga side are about to make another stack of money on one of their front men when they sell Hugo Ekitike to Liverpool`\
+https://nytimes.com/athletic/6508175/2025/07/23/eintracht-frankfurt-hugo-ekitike-analysis-strikers-sales/
+
+**Why comments are turned off on our articles about the Thomas Partey case**\
+`News stories about arrests, charges and legal issues in the UK are different from the other sorts of articles you will find on The Athletic`\
+https://nytimes.com/athletic/6508182/2025/07/23/thomas-partey-charged-comments-contempt-laws/
+
+**Iranian Officials Suspect Sabotage in String of Mysterious Fires**\
+`For weeks, fires and explosions have been reported almost daily in Iran. Officials are investigating what they think is a coordinated campaign.`\
+https://nytimes.com/2025/07/23/world/middleeast/iran-fires-sabotage.html
+
+**Connections: Sports Edition Coach: Hints for July 23, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6508361/2025/07/23/connections-sports-edition-hints-for-july-23-2025/
+
+**Corrections: July 23, 2025**\
+`Corrections that appeared in print on Wednesday, July 23, 2025.`\
+https://nytimes.com/2025/07/22/pageoneplus/corrections-july-23-2025.html
+
+**Quote of the Day: As Big Law Bows to Trump, ‘Little Guys’ Step Up to Fight**\
+`Quotation of the Day for Wednesday, July 23, 2025.`\
+https://nytimes.com/2025/07/22/pageoneplus/quote-of-the-day-as-big-law-bows-to-trump-little-guys-step-up-to-fight.html
+
+**Ozzy Osbourne, Lead Singer of Black Sabbath, Dies at 76**\
+`Ozzy Osbourne helped invent heavy metal and was a pioneer in reality television. He was known for his rock ’n’ roll excess and eccentric onstage persona.`\
+https://nytimes.com/video/obituaries/100000010299847/ozzy-osbourne-obituary.html
+
 **Braves delay Riley's return from IL, Acuña praises beleaguered hitting coach**\
 `The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
 https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/07/22/climate/epa-endangerment-finding-rescind.html
 **What we're hearing about the Mets' deadline plans in the bullpen and center field**\
 `League sources describe the Mets as active in the center field market while adding that New York is not behaving as if it's a necessity. `\
 https://nytimes.com/athletic/6510051/2025/07/22/mets-trade-deadline-intel-bullpen-center-field/
-
-**Venus rises: 45-year-old Venus Williams stuns at Citi Open after year-long hiatus**\
-`The seven-time Grand Slam singles champion had not played a WTA Tour match since March of 2024 and had not won one since 2023.`\
-https://nytimes.com/athletic/6510057/2025/07/22/venus-williams-wins-return-citi-open/
-
-**Where the Dodgers' trade priorities lie 9 days before the deadline**\
-`A front office that joked throughout the winter about wanting to avoid buying altogether has grabbed its shopping cart.`\
-https://nytimes.com/athletic/6510052/2025/07/22/los-angeles-dodgers-trade-deadline-priorities/
-
-**Part of a Chain**\
-`Joseph Gangi exchanges letters with us.`\
-https://nytimes.com/2025/07/22/crosswords/daily-puzzle-2025-07-23.html
-
-**Alden Global Capital Makes a Play for The Dallas Morning News**\
-`The investment firm’s MediaNews Group, the country’s second-largest newspaper publisher, put in a bid for the publication nearly two weeks after Hearst agreed to buy it.`\
-https://nytimes.com/2025/07/22/business/media/dallas-morning-news-alden-global-capital.html
-
-**Browns place QB Deshaun Watson on physically unable to perform list**\
-`Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
-https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
-
-**Death Toll From L.A. Fires Reaches 31 After Remains Are Found**\
-`More than six months after the fires, officials determined that another person had died in Altadena.`\
-https://nytimes.com/2025/07/22/us/los-angeles-fires-victim.html
-
-**Chargers training camp report, Day 5: Khalil Mack proves he is still a 'game-wrecker'**\
-`Mack dominated the Chargers' first practice in pads as training camp shifted to the University of San Diego for the first of two days.`\
-https://nytimes.com/athletic/6510012/2025/07/22/chargers-training-camp-khalil-mack/
 
