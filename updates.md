@@ -1,3 +1,7 @@
+**Braves delay Riley's return from IL, Acuña Jr. praises beleaguered hitting coach**\
+`The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
+https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
+
 **E.P.A. Is Said to Draft a Plan to End Its Ability to Fight Climate Change**\
 `According to two people familiar with the draft, it would eliminate the bedrock scientific finding that greenhouse-gas emissions threaten human life by dangerously warming the planet.`\
 https://nytimes.com/2025/07/22/climate/epa-endangerment-finding-rescind.html
