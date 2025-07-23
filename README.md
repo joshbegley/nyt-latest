@@ -1,3 +1,7 @@
+**Trump Says U.S. Has Reached Trade Deal With Japan**\
+`The president said on social media that the trade deal he struck with the country would impose a 15 percent tariff on its exports.`\
+https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
+
 **How Native Homes in New Mexico Are Tapping the Sun**\
 `An Indigenous-led nonprofit group is bringing solar power to Navajo Nation and the Hopi tribe, where about 15,000 households lack access to electricity.`\
 https://nytimes.com/2025/07/22/climate/new-mexico-navajo-power.html
@@ -29,8 +33,4 @@ https://nytimes.com/article/rip-current-survival-escape-tips.html
 **Nebraska's Rhule defends, welcomes back Scott Frost after 'wrong job' comments**\
 `Rhule told The Athletic that he made a deliberate choice to embrace Frost, rather than to remain mired negativity.`\
 https://nytimes.com/athletic/6509890/2025/07/22/matt-rhule-scott-frost-nebraska/
-
-**D.A. Who Led Etan Patz Case Says Conviction Reversal Came as a Shock**\
-`Cyrus Vance prosecuted Pedro Hernandez twice. An appeals court overturned the conviction, ruling that the trial judge should not have let jurors consider an improper confession.`\
-https://nytimes.com/2025/07/22/nyregion/etan-patz-cyrus-vance-reaction.html
 
