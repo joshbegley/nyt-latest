@@ -1,3 +1,11 @@
+**Energy Dept. Cancels Loan Commitment to Contested Transmission Project**\
+`The project, known as Grain Belt Express, had drawn fierce opposition from some landowners and Republican lawmakers.`\
+https://nytimes.com/2025/07/23/climate/grain-belt-express-energy-department-loan.html
+
+**Belichick fever strong at North Carolina as school announces all 2025 tickets are sold**\
+`The Tar Heels also sold out season tickets in 2019 and 2021, the years before and after the COVID-19 pandemic.`\
+https://nytimes.com/athletic/6511055/2025/07/23/bill-belichick-unc-football-tickets-sold-out/
+
 **Dolphins OT Bayron Matos airlifted to medical facility after training camp injury: Reports**\
 `The Dolphins signed Matos as an undrafted free agent in 2024. He was delegated to the practice squad last season.`\
 https://nytimes.com/athletic/6510927/2025/07/23/bayron-matos-injury-miami-dolphins-training-camp/
