@@ -1,3 +1,7 @@
+**Where the Dodgers' trade priorities lie nine days before the deadline**\
+`A front office that joked throughout the winter about wanting to avoid buying altogether has grabbed its shopping cart.`\
+https://nytimes.com/athletic/6510052/2025/07/22/los-angeles-dodgers-trade-deadline-priorities/
+
 **Part of a Chain**\
 `Joseph Gangi exchanges letters with us.`\
 https://nytimes.com/2025/07/22/crosswords/daily-puzzle-2025-07-23.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piec
 `Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
 https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
 
-**U.S. Reaches Trade Deal With Japan**\
-`The president said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
+**U.S. and Japan Reach Trade Deal**\
+`President Trump said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
 https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
-
-**How Native Homes in New Mexico Are Tapping the Sun**\
-`An Indigenous-led nonprofit group is bringing solar power to Navajo Nation and the Hopi tribe, where about 15,000 households lack access to electricity.`\
-https://nytimes.com/2025/07/22/climate/new-mexico-navajo-power.html
 

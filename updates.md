@@ -1,3 +1,7 @@
+**Part of a Chain**\
+`Joseph Gangi exchanges letters with us.`\
+https://nytimes.com/2025/07/22/crosswords/daily-puzzle-2025-07-23.html
+
 **Alden Global Capital Makes a Play for The Dallas Morning News**\
 `The investment firm’s MediaNews Group, the country’s second-largest newspaper publisher, put in a bid for the publication nearly two weeks after Hearst agreed to buy it.`\
 https://nytimes.com/2025/07/22/business/media/dallas-morning-news-alden-global-capital.html
