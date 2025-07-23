@@ -1,8 +1,12 @@
+**The simple solution to solve the WNBA's looming 'Pay Us' labor crisis: MoneyCall**\
+`More in this week's sports-business cheat sheet: ESPN x NFL media deal, colleges turning down money, Dave Portnoy vs. Pat McAfee and more.`\
+https://nytimes.com/athletic/6510775/2025/07/23/wnba-labor-espn-nfl-media-moneycall/
+
 **Why did Bryan Kohberger kill four University of Idaho students?**\
 `By Mike Baker`\
-https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders/why-did-bryan-kohberger-kill-four-university-of-idaho-students
+https://nytimes.com/2025/07/23/us/why-did-bryan-kohberger-kill-four-university-of-idaho-students.html
 
-**Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
+**Live Updates: Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
 `It’s unclear if he will address the question everyone wants to know: Why did he do it?`\
 https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509871/2025/07/23/infantino-marchi-fifa-fifpro-uni
 **The ‘Boy Crisis’ Is Overblown**\
 `We’re looking in the wrong places for answers to boys’ struggles.`\
 https://nytimes.com/2025/07/23/opinion/girls-boys-school-performance.html
-
-**Julia Roberts Drama Will Open the New York Film Festival**\
-`Directed by Luca Guadagnino, “After the Hunt” features the star as a Yale professor caught between a student and a colleague accused of sexual assault.`\
-https://nytimes.com/2025/07/23/movies/after-the-hunt-julia-roberts-luca-guadagnino-new-york-film-festival.html
 

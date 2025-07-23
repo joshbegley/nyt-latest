@@ -1,3 +1,15 @@
+**The simple solution to solve the WNBA's looming 'Pay Us' labor crisis: MoneyCall**\
+`More in this week's sports-business cheat sheet: ESPN x NFL media deal, colleges turning down money, Dave Portnoy vs. Pat McAfee and more.`\
+https://nytimes.com/athletic/6510775/2025/07/23/wnba-labor-espn-nfl-media-moneycall/
+
+**Why did Bryan Kohberger kill four University of Idaho students?**\
+`By Mike Baker`\
+https://nytimes.com/2025/07/23/us/why-did-bryan-kohberger-kill-four-university-of-idaho-students.html
+
+**Live Updates: Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
+`It’s unclear if he will address the question everyone wants to know: Why did he do it?`\
+https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders
+
 **Why did Bryan Kohberger kill four University of Idaho students?**\
 `By Mike Baker`\
 https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders/why-did-bryan-kohberger-kill-four-university-of-idaho-students
