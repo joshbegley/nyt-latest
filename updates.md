@@ -1,3 +1,7 @@
+**E.P.A. Proposes Allowing Use of Dicamba Weedkiller on Some Crops**\
+`Last year, a federal court banned some uses of the herbicide, which can drift into fields and damage crops.`\
+https://nytimes.com/2025/07/23/climate/dicamba-weed-killer-epa.html
+
 **Commanders, D.C. City Council near agreement on stadium development at RFK site: Sources**\
 `The framework of a deal is coming into focus, with a potential final vote by the City Council next week. `\
 https://nytimes.com/athletic/6511855/2025/07/23/washington-commanders-stadium-development-rfk-site/
