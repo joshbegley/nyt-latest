@@ -1,3 +1,11 @@
+**Which Premier League clubs do the most transfer deals between them?**\
+`It might seem your lot are always buying players from the same place - but which teams really do the greatest amount of business together?`\
+https://nytimes.com/athletic/6508081/2025/07/23/premier-league-transfer-deals-most-clubs/
+
+**What is the greatest save you've ever seen live?**\
+`Inspired by Ann-Katrin Berger's Euro 2025 heroics, writers from The Athletic remember the greatest save they've ever seen live`\
+https://nytimes.com/athletic/6508209/2025/07/23/goalkeeper-saves-greatest-best/
+
 **The opportunity for Marcus Rashford at Barcelona is potentially huge – and very different to Manchester**\
 `Marcus Rashford could not have asked for a better more after a season of turmoil at Manchester United. Now he has to make it count`\
 https://nytimes.com/athletic/6504590/2025/07/23/marcus-rashford-barcelona-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/22/pageoneplus/corrections-july-23-2025.html
 **Quote of the Day: As Big Law Bows to Trump, ‘Little Guys’ Step Up to Fight**\
 `Quotation of the Day for Wednesday, July 23, 2025.`\
 https://nytimes.com/2025/07/22/pageoneplus/quote-of-the-day-as-big-law-bows-to-trump-little-guys-step-up-to-fight.html
-
-**Ozzy Osbourne, Lead Singer of Black Sabbath, Dies at 76**\
-`Ozzy Osbourne helped invent heavy metal and was a pioneer in reality television. He was known for his rock ’n’ roll excess and eccentric onstage persona.`\
-https://nytimes.com/video/obituaries/100000010299847/ozzy-osbourne-obituary.html
-
-**Braves delay Riley's return from IL, Acuña praises beleaguered hitting coach**\
-`The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
-https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
 
