@@ -1,3 +1,7 @@
+**Brighton striker Ferguson joins Roma on loan**\
+`Roma have the option to make the move permanent at the end of the season.`\
+https://nytimes.com/athletic/6510354/2025/07/23/evan-ferguson-brighton-roma-loan/
+
 **Germany vs Spain Euro 2025 semi-final odds, prediction: World champs expected to advance**\
 `Spain remain the clear favourite to win Euro 2025, but Germany, the most successful team in the history of the competition, are no easy foe.`\
 https://nytimes.com/athletic/6508754/2025/07/23/germany-spain-euro-2025-semi-final-odds-prediction/
