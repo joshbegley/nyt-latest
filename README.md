@@ -1,3 +1,11 @@
+**A Pill for Sleep Apnea Could Be on the Horizon**\
+`Experts say that if the new drug gets approved, it may lead to a big shift in how we treat the condition.`\
+https://nytimes.com/2025/07/23/well/apnimed-sleep-apnea-clinical-trial-ad109.html
+
+**Barcelona confirm Rashford signing on season-long loan**\
+`The United academy product has made 426 appearances for the club but has not appeared for them since December. `\
+https://nytimes.com/athletic/6503756/2025/07/23/rashford-barcelona-transfer-manchester-united-loan/
+
 **2 U.K. Families Received ‘Wrong Remains’ of Air India Crash Victims, Lawyer Says**\
 `The mistakes were found after DNA testing by a coroner in London. The Indian government said bodies of the Flight 171 victims “were handled with utmost professionalism.”`\
 https://nytimes.com/2025/07/23/world/asia/air-india-crash-victims-uk-modi-visit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/us/ankle-monitor-bolsonaro-delvey-stewart.html
 **Lionel Messi, Jordi Alba not showing for MLS All-Star Game**\
 `The two Miami stars join James Rodríguez as big-name no-shows for MLS and Liga MX's midsummer showcase`\
 https://nytimes.com/athletic/6510826/2025/07/23/lionel-messi-mls-all-star-game-jordi-alba-miami/
-
-**Top U.N. Court Says Countries Must Act on Climate Change**\
-`The International Court of Justice called global warming an “urgent and existential threat” at a closely watched case in The Hague.`\
-https://nytimes.com/2025/07/23/climate/icj-hague-climate-change.html
-
-**Newcastle expected to choose Wilson as new sporting director**\
-`Former Arsenal assistant sporting director Jason Ayto was also interviewed but it is anticipated that Wilson will be offered the position.`\
-https://nytimes.com/athletic/6510875/2025/07/23/newcastle-sporting-director-ross-wilson/
 
