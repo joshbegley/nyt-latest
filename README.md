@@ -1,3 +1,7 @@
+**Former Gov. Roy Cooper Plans to Enter North Carolina Senate Race, Lifting Democrats**\
+`The campaign for the open seat will be one of the biggest of 2026, after the incumbent Republican, Senator Thom Tillis, announced his retirement.`\
+https://nytimes.com/2025/07/23/us/politics/roy-cooper-senate-north-carolina.html
+
 **Justin Bieber’s Return to Soul**\
 `His new album, “Swag,” takes Bieber away from his pop-star-by-numbers past into a more exciting and collaborative future.`\
 https://nytimes.com/video/podcasts/100000010297343/popcast-sotw-justin-bieber-daisies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6511067/2025/07/23/eagles-training-camp-dean-campbe
 **Macrons Sue Candace Owens, Right-Wing Podcaster, Claiming Defamation**\
 `The suit seeks damages after the podcaster claimed Brigitte Macron is a man. The French president and his wife said the statement caused “pain to us and our families.”`\
 https://nytimes.com/2025/07/23/world/europe/macron-lawsuit-candace-owens-defamation.html
-
-**The Many Political Interpretations of Martin Luther King Jr.’s Legacy**\
-`The release of National Archives documents is the latest attempt to define what the Civil Rights icon believed, and what that means now for the country.`\
-https://nytimes.com/2025/07/23/us/martin-luther-king-mlk-legacy-politics-national-archives.html
 
