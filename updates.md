@@ -1,3 +1,11 @@
+**Which Premier League clubs do the most transfer deals between them?**\
+`It might seem your lot are always buying players from the same place - but which teams really do the greatest amount of business together?`\
+https://nytimes.com/athletic/6508081/2025/07/23/premier-league-transfer-deals-most-clubs/
+
+**What is the greatest save you've ever seen live?**\
+`Inspired by Ann-Katrin Berger's Euro 2025 heroics, writers from The Athletic remember the greatest save they've ever seen live`\
+https://nytimes.com/athletic/6508209/2025/07/23/goalkeeper-saves-greatest-best/
+
 **The opportunity for Marcus Rashford at Barcelona is potentially huge – and very different to Manchester**\
 `Marcus Rashford could not have asked for a better more after a season of turmoil at Manchester United. Now he has to make it count`\
 https://nytimes.com/athletic/6504590/2025/07/23/marcus-rashford-barcelona-manchester-united/
