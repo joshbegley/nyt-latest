@@ -1,3 +1,11 @@
+**6 Takeaways From Idaho Killer’s Sentencing Hearing**\
+`A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
+https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
+
+**The Chatbot Culture Wars Are Here**\
+`Conservatives, including President Trump, are accusing A.I. companies of left-wing bias, following a playbook that worked well against social media platforms.`\
+https://nytimes.com/2025/07/23/technology/trump-ai-chatbots-bias.html
+
 **Sources: LAFC eyeing Son Heung-min for summer transfer splash**\
 `LAFC has two open designated player spots and is eyeing the Tottenham and South Korea star for one of them`\
 https://nytimes.com/athletic/6510015/2025/07/23/lafc-son-heung-min-summer-transfer-mls-tottenham/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/23/business/energy-environment/edison-eaton-fire-fun
 **Unified on Trump and Tariffs, Canada’s Premiers Differ on Next Steps**\
 `A three-day meeting in response to President Trump’s looming tariff threat underscored differences between the leaders of Canada’s provinces and territories.`\
 https://nytimes.com/2025/07/23/world/canada/canada-premiers-trade-trump-tariffs-carney.html
-
-**The Briefing: Germany 0 Spain 1 - Aitana Bonmati's strike lifts Spain to first Euros final appearance**\
-`Cerys Jones and Tamerra Griffin analyse the main talking points as Spain beat Germany in their Euro 2025 semi-final`\
-https://nytimes.com/athletic/6506144/2025/07/23/germany-0-spain-1-aitana-bonmati-euros-final/
-
-**Bills camp observations: James Cook ends hold-in speculation, Keon Coleman's forgettable day**\
-`The first day of Bills training camp also saw CB Christian Benford's strong day and an injury concern along the offensive line.`\
-https://nytimes.com/athletic/6511535/2025/07/23/buffalo-bills-training-camp-observations-james-cook/
 
