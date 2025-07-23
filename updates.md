@@ -1,3 +1,15 @@
+**Governors Plan to Rebuke Managers of Largest U.S. Electric Grid**\
+`Republican and Democratic governors in Eastern states will send a representative to a meeting of the PJM grid, which serves 67 million people in 13 states.`\
+https://nytimes.com/2025/07/23/business/energy-environment/governors-pjm-electric-grid.html
+
+**‘Unprecedented’ Investment Fund Seals Deal for Japan and Expands Trump’s Influence**\
+`President Trump will get to decide where to invest Japanese money and the United States will keep 90 percent of the profits, the White House said.`\
+https://nytimes.com/2025/07/23/business/economy/japan-fund-trump-tariffs-trade.html
+
+**Former Gov. Roy Cooper Plans to Enter North Carolina Senate Race, Lifting Democrats**\
+`The campaign for the open seat will be one of the biggest of 2026, after the incumbent Republican, Senator Thom Tillis, announced his retirement.`\
+https://nytimes.com/2025/07/23/us/politics/roy-cooper-senate-north-carolina.html
+
 **New York Republicans Unite in Attacking Mamdani**\
 `Zohran Mamdani, the Democratic nominee for mayor of New York City, faced a barrage of attacks from Republicans over the course of a few hours.`\
 https://nytimes.com/2025/07/23/nyregion/mamdani-republicans-attack.html
