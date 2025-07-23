@@ -1,3 +1,15 @@
+**Corrections: July 23, 2025**\
+`Corrections that appeared in print on Wednesday, July 23, 2025.`\
+https://nytimes.com/2025/07/22/pageoneplus/corrections-july-23-2025.html
+
+**Quote of the Day: As Big Law Bows to Trump, ‘Little Guys’ Step Up to Fight**\
+`Quotation of the Day for Wednesday, July 23, 2025.`\
+https://nytimes.com/2025/07/22/pageoneplus/quote-of-the-day-as-big-law-bows-to-trump-little-guys-step-up-to-fight.html
+
+**Ozzy Osbourne, Lead Singer of Black Sabbath, Dies at 76**\
+`Ozzy Osbourne helped invent heavy metal and was a pioneer in reality television. He was known for his rock ’n’ roll excess and eccentric onstage persona.`\
+https://nytimes.com/video/obituaries/100000010299847/ozzy-osbourne-obituary.html
+
 **Braves delay Riley's return from IL, Acuña praises beleaguered hitting coach**\
 `The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
 https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/22/crosswords/daily-puzzle-2025-07-23.html
 **Alden Global Capital Makes a Play for The Dallas Morning News**\
 `The investment firm’s MediaNews Group, the country’s second-largest newspaper publisher, put in a bid for the publication nearly two weeks after Hearst agreed to buy it.`\
 https://nytimes.com/2025/07/22/business/media/dallas-morning-news-alden-global-capital.html
-
-**Browns place QB Deshaun Watson on physically unable to perform list**\
-`Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
-https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
-
-**Death Toll From L.A. Fires Reaches 31 After Remains Are Found**\
-`More than six months after the fires, officials determined that another person had died in Altadena.`\
-https://nytimes.com/2025/07/22/us/los-angeles-fires-victim.html
-
-**Chargers training camp report, Day 5: Khalil Mack proves he is still a 'game-wrecker'**\
-`Mack dominated the Chargers' first practice in pads as training camp shifted to the University of San Diego for the first of two days.`\
-https://nytimes.com/athletic/6510012/2025/07/22/chargers-training-camp-khalil-mack/
 
