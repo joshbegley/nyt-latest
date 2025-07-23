@@ -1,3 +1,7 @@
+**More decisive substitutions and another second half surge help England reach another final**\
+`So often, Sarina Wiegman’s England look like they will be eliminated before a final. Somehow, they never are.`\
+https://nytimes.com/athletic/6509877/2025/07/23/england-italy-euro-2025-agyemang-kelly/
+
 **Trump Is Building a Machine to Disappear People**\
 `The president’s use of migrants as bargaining chips will corrode international politics.`\
 https://nytimes.com/2025/07/23/opinion/migration-deportation-sudan-trump.html

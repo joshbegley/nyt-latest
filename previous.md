@@ -1,3 +1,7 @@
+**More decisive substitutions and another second half surge help England reach another final**\
+`So often, Sarina Wiegman’s England look like they will be eliminated before a final. Somehow, they never are.`\
+https://nytimes.com/athletic/6509877/2025/07/23/england-italy-euro-2025-agyemang-kelly/
+
 **The New York Times in Print for Wednesday, July 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508613/2025/07/23/ndoye-nottingham-forest-bologna-
 **Are three centre-backs the best way for Emery's Villa to evolve?**\
 `Three centre-backs have been picked in the opening games of pre-season - will that be the way forward for Emery in 2025-26?`\
 https://nytimes.com/athletic/6501856/2025/07/23/aston-villa-unai-emery-three-centre-backs/
-
-**Which Premier League clubs do the most transfer deals between them?**\
-`It might seem your lot are always buying players from the same place - but which teams really do the greatest amount of business together?`\
-https://nytimes.com/athletic/6508081/2025/07/23/premier-league-transfer-deals-most-clubs/
 
