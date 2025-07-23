@@ -1,3 +1,7 @@
+**Biting a Bat and 5 Other Wild Moments From Ozzy Osbourne’s Life**\
+`Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
+https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html
+
 **State Takeover of New Jersey Police Department Was Lawful, Court Rules**\
 `The State Supreme Court decision, overturning an earlier ruling, will allow the New Jersey attorney general to maintain control over the troubled Paterson Police Department.`\
 https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.html
