@@ -1,3 +1,7 @@
+**49ers' big — and big-bodied — rookie D-lineman draw a crowd at training camp**\
+`One of the standouts of the opening day of camp: receiver Jauan Jennings, who isn't waging the sort of "hold in" Brandon Aiyuk did last year`\
+https://nytimes.com/athletic/6511823/2025/07/23/49ers-training-camp-rookies-collins-williams/
+
 **E.P.A. Proposes Allowing Use of Dicamba Weedkiller on Some Crops**\
 `Last year, a federal court banned some uses of the herbicide, which can drift into fields and damage crops.`\
 https://nytimes.com/2025/07/23/climate/dicamba-weed-killer-epa.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
 **The Chatbot Culture Wars Are Here**\
 `Conservatives, including President Trump, are accusing A.I. companies of left-wing bias, following a playbook that worked well against social media platforms.`\
 https://nytimes.com/2025/07/23/technology/trump-ai-chatbots-bias.html
-
-**Sources: LAFC eyeing Son Heung-min for summer transfer splash**\
-`LAFC has two open designated player spots and is eyeing the Tottenham and South Korea star for one of them`\
-https://nytimes.com/athletic/6510015/2025/07/23/lafc-son-heung-min-summer-transfer-mls-tottenham/
 
