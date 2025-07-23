@@ -1,3 +1,7 @@
+**Broncos' Bo Nix seeks out Drew Brees to help spark Year 2 jump**\
+`Broncos coach Sean Payton says contract extensions with a handful of marquee players are "being worked on" as training camp begins.`\
+https://nytimes.com/athletic/6511302/2025/07/23/bo-nix-brees-broncos-training-camp/
+
 **Our 25 Most Popular Recipes of the Year So Far**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/popular-recipes-2025
@@ -34,8 +38,4 @@ https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
 **Jim Legxacy Makes Music That Sounds Like Memory**\
 `The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
 https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
-
-**How Epstein Has Consumed Washington, From the White House to Congress and Beyond**\
-`The case of Jeffrey Epstein, sex offender and former friend of the president, has blown up into a major headache for the White House.`\
-https://nytimes.com/2025/07/23/us/politics/epstein-washington.html
 

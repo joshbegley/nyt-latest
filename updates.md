@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
 
+**Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
+`Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
+`\
+https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
+
 **A Workout to Train for Everyday Life**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
