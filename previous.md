@@ -1,3 +1,15 @@
+**Bryan Kohberger Said He Wanted to Counsel High-Profile Criminals. Then He Became One.**\
+`Long before confessing to killing four college students, Mr. Kohberger wrote of being depressed as a teenager and became addicted to heroin.`\
+https://nytimes.com/2025/07/23/us/bryan-kohberger-criminal-justice-drug-use.html
+
+**Arteta happy with teenagers Dowman and Salmon after Arsenal friendly**\
+`Midfielder Dowman and defender Salmon came off the bench as Arsenal began their pre-season tour with a 1-0 win.`\
+https://nytimes.com/athletic/6510925/2025/07/23/arteta-max-dowman-marli-salmon-arsenal-milan-friendly/
+
+**‘I Haven’t Eaten in 4 Days’: Hunger Grips Gaza Strip**\
+`In a joint statement released on Wednesday, more than 100 aid agencies and rights groups said Gaza was facing “widespread starvation” and called on Israel to lift restrictions on humanitarian aid.`\
+https://nytimes.com/video/world/middleeast/100000010300607/hanger-gaza-starvation-deaths-.html
+
 **Flaunting an Ankle Tag, Brazil’s Bolsonaro Joins an Unusual Club**\
 `Charged with staging a coup, Jair Bolsonaro showed off his new ankle monitor this week, joining others who embraced symbols of prosecution.`\
 https://nytimes.com/2025/07/23/us/ankle-monitor-bolsonaro-delvey-stewart.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6510911/2025/07/23/boston-fleet-coach-kris-sparre-p
 **Targeting Obama, Trump’s Retribution Campaign Takes Another Turn**\
 `After focusing his second-term ire on other individuals and institutions, President Trump is again seeking prosecution of his most prominent rivals — this time with aides more inclined to carry out his wishes.`\
 https://nytimes.com/2025/07/23/us/politics/trump-obama-retribution.html
-
-**Jazz, Fans and 2 Gems: Mark Morris Celebrates His Company’s 45th**\
-`The choreographer’s latest works, at the Joyce Theater, explore the music of James P. Johnson and John Luther Adams.`\
-https://nytimes.com/2025/07/23/arts/dance/mark-morris-joyce-theater-modernistic.html
-
-**State Takeover of New Jersey Police Department Was Lawful, Court Rules**\
-`The State Supreme Court decision, overturning an earlier ruling, will allow the New Jersey attorney general to maintain control over the troubled Paterson Police Department.`\
-https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.html
-
-**Biting a Bat and 5 Other Wild Moments From Ozzy Osbourne’s Life**\
-`Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
-https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html
 
