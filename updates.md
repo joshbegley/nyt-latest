@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, July 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/23/todays-new-york-times
+
+**Trump Wants to Make It OK to Disappear People**\
+`The president’s use of migrants as bargaining chips will corrode international politics.`\
+https://nytimes.com/2025/07/23/opinion/migration-deportation-sudan-trump.html
+
 **As Cubs search for pitching continues, so does Matthew Boyd's brilliant season**\
 `Having Boyd in the rotation is a big reason the Cubs are in this position right now.`\
 https://nytimes.com/athletic/6510166/2025/07/23/cubs-search-for-pitching-matthew-boyds-brilliant-season/
