@@ -1,3 +1,7 @@
+**Global Markets Rally on Japan Deal Euphoria**\
+`But more big tests loom with trade talks still continuing between the Trump administration and counterparts in China and the European Union.`\
+https://nytimes.com/2025/07/23/business/dealbook/markets-rally-japan-deal.html
+
 **Tottenham's Raso in talks over Benfica transfer**\
 `Raso joined Tottenham last summer from Real Madrid but the club endured a difficult 2024-25 campaign.`\
 https://nytimes.com/athletic/6510442/2025/07/23/hayley-raso-tottenham-benfica-transfer/
