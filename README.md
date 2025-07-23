@@ -1,3 +1,7 @@
+**3 Men Who Disappeared While Fishing in Mississippi River Are Found Dead**\
+`The men were last seen on a sandbar south of a boat ramp in Meeman-Shelby Forest State Park, about 13 miles north of Memphis.`\
+https://nytimes.com/2025/07/23/us/mississippi-river-missing-men-dead.html
+
 **Columbia Agrees to $200 Million Fine to Settle Fight With Trump**\
 `The White House had canceled more than $400 million in research funding to the university, saying it had failed to protect Jewish students from harassment.`\
 https://nytimes.com/2025/07/23/nyregion/columbia-trump-funding-deal.html
@@ -22,15 +26,11 @@ https://nytimes.com/athletic/6511941/2025/07/23/patriots-drake-maye-training-cam
 `Some Democrats are irate over the end of Stephen Colbert’s show, but others see a lack of focus on real issues.`\
 https://nytimes.com/2025/07/23/us/politics/colbert-trump-democrats.html
 
-**Braves takeaways: Performance ‘embarrassing,' reality of being sellers, rehabbing pitchers**\
+**Braves takeaways: Performance ‘embarrassing,’ reality of being sellers, rehabbing pitchers**\
 `The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top candidates.`\
 https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
 
 **T.J. Watt is trusting Steelers GM Omar Khan to end his postseason drought**\
 `Watt hasn't won a playoff game, much less a Super Bowl, in eight seasons, but he thinks the Steelers' aggressive approach can change that.`\
 https://nytimes.com/athletic/6511863/2025/07/23/tj-watt-omar-khan-steelers/
-
-**49ers' big — and big-bodied — rookie D-lineman draw a crowd at training camp**\
-`One of the standouts of the opening day of camp: receiver Jauan Jennings, who isn't waging the sort of "hold in" Brandon Aiyuk did last year`\
-https://nytimes.com/athletic/6511823/2025/07/23/49ers-training-camp-rookies-collins-williams/
 
