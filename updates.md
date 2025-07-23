@@ -1,3 +1,15 @@
+**Pat McAfee apologizes to Ole Miss student after amplifying false rumor**\
+`The false rumor forced the student to switch to online classes and move out of her dormitory.`\
+https://nytimes.com/athletic/6511700/2025/07/23/pat-mcafee-apology-ole-miss-student-false-rumor/
+
+**Trump Really, Really Wants to Stop Talking About Epstein: A Timeline**\
+`President Trump has tried to attack, deflect and deny his way past the Jeffrey Epstein saga. He’s had less success than usual.`\
+https://nytimes.com/2025/07/23/us/politics/trump-epstein-distraction-timeline.html
+
+**Thomas A. Durkin, Civil Liberties Lawyer for the Reviled, Dies at 78**\
+`He relished skewering the U.S. government as he represented unpopular defendants in public corruption and national security cases, like those at Guantánamo.`\
+https://nytimes.com/2025/07/23/us/thomas-a-durkin-dead.html
+
 **Thomas A. Durkin, Civil Liberties Lawyer for the Reviled, Dies at 78**\
 `He relished skewering the U.S. government as he represented unpopular defendants in public corruption and national security cases, like those at Guantánamo Bay.`\
 https://nytimes.com/2025/07/23/us/thomas-a-durkin-dead.html
