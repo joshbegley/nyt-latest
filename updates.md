@@ -1,3 +1,11 @@
+**Iran Warns It Could Exit Nuclear Treaty if Europe Reimposes Sanctions**\
+`The warning from Iran’s deputy foreign minister came days before he is set to travel to Istanbul for nuclear talks with European counterparts.`\
+https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty.html
+
+**Anthony Richardson, Daniel Jones struggle to find rhythm on Day 1 of Colts QB battle**\
+`Neither Richardson nor Jones impressed on the first day of Colts training camp. `\
+https://nytimes.com/athletic/6511647/2025/07/23/anthony-richardson-daniel-jones-colts-qb-battle/
+
 **6 Takeaways From Idaho Killer’s Sentencing Hearing**\
 `A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
