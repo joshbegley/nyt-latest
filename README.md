@@ -1,6 +1,6 @@
 **Bryan Kohberger Said He Wanted to Counsel High-Profile Criminals. Then He Became One.**\
 `Long before confessing to killing four college students, Mr. Kohberger wrote of being depressed as a teenager and became addicted to heroin.`\
-https://nytimes.com/2025/07/23/us/bryan-kohberger-said-he-wanted-to-counsel-high-profile-criminals-then-he-became-one.html
+https://nytimes.com/2025/07/23/us/bryan-kohberger-criminal-justice-drug-use.html
 
 **Arteta happy with teenagers Dowman and Salmon after Arsenal friendly**\
 `Midfielder Dowman and defender Salmon came off the bench as Arsenal began their pre-season tour with a 1-0 win.`\
