@@ -1,3 +1,7 @@
+**Clothes That Celebrate the Elegance of Your Inner Weirdo**\
+`With her fourth collection, Phoebe Philo’s long game is becoming clear.`\
+https://nytimes.com/2025/07/23/style/phoebe-philo-collection-d.html
+
 **The Windup: The best starter on the market***\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6510311/2025/07/23/joe-ryan-starter-trade-deadline-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509708/2025/07/23/edmonton-oilers-prospect-connor-
 **Obed Vargas measures his passes and his present while a brighter future awaits**\
 `Seattle's Alaska-born, 19-year-old talent already chose to play for Mexico over the U.S., and bigger decisions are coming`\
 https://nytimes.com/athletic/6509650/2025/07/23/obed-vargas-seattle-sounders-mexico-mls-all-star-club-world-cup/
-
-**What to Know About the U.S. Move to Withdraw From UNESCO**\
-`The Trump administration plans to pull out of the U.N. cultural agency, putting UNESCO back at the center of geopolitical rivalry.`\
-https://nytimes.com/2025/07/23/world/unesco-trump-us-withdrawal.html
 
