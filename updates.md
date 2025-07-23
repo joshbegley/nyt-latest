@@ -1,3 +1,15 @@
+**Submit your Mets questions for the Will Sammon and Tim Britton mailbag**\
+`Submit your Mets questions for the Will Sammon and Tim Britton mailbag`\
+https://nytimes.com/athletic/6511135/2025/07/23/mets-mailbag-mlb-trade-deadline-2/
+
+**A Pill for Sleep Apnea Could Be on the Horizon**\
+`Experts say that if the new drug gets approved, it may lead to a big shift in how we treat the condition.`\
+https://nytimes.com/2025/07/23/well/apnimed-sleep-apnea-clinical-trial-ad109.html
+
+**Barcelona confirm Rashford signing on season-long loan**\
+`The United academy product has made 426 appearances for the club but has not appeared for them since December. `\
+https://nytimes.com/athletic/6503756/2025/07/23/rashford-barcelona-transfer-manchester-united-loan/
+
 **2 U.K. Families Received ‘Wrong Remains’ of Air India Crash Victims, Lawyer Says**\
 `The mistakes were found after DNA testing by a coroner in London. The Indian government said bodies of the Flight 171 victims “were handled with utmost professionalism.”`\
 https://nytimes.com/2025/07/23/world/asia/air-india-crash-victims-uk-modi-visit.html
