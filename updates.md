@@ -1,3 +1,11 @@
+**Giants camp takeaways: Jaxson Dart growing pains; Russell Wilson locked in on Malik Nabers**\
+`Dart has plenty of upside, but he is by no means a finished product, as the young QB demonstrated on Day 1 of Giants training camp. `\
+https://nytimes.com/athletic/6511587/2025/07/23/ny-giants-jaxson-dart-malik-nabers-russell-wilson/
+
+**Supreme Court Lets Trump Fire Consumer Product Safety Regulators**\
+`The court’s order was the latest in a series of emergency rulings on the scope of the president’s power over independent agencies.`\
+https://nytimes.com/2025/07/23/us/politics/supreme-court-consumer-product-commission.html
+
 **3 Police Officers Ambushed in a Shooting in Ohio, Leaving 2 in Critical Condition**\
 `A suspect was dead after a confrontation with police officers in Lorain, Ohio, which is outside Cleveland, the authorities said.`\
 https://nytimes.com/2025/07/23/us/lorain-ohio-police-officers-shot.html
