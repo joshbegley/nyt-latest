@@ -1,5 +1,5 @@
 **MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills competition**\
-`Some of the biggest names expected to take part in the MLS All-Star Game festivities have been late no-shows`\
+`Some of the biggest names expected to take part in the MLS All-Star Game festivities haven't arrived in Austin `\
 https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
 
 **Is Marcus Smart the missing piece for the Lakers? He thinks so**\
