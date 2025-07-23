@@ -1,3 +1,7 @@
+**How Do I Tell My Rich Friends to Stop Talking About Fleeing the Country?**\
+`How do you tell a friend that you’re tired of having the same conversation over and over?`\
+https://nytimes.com/2025/07/23/magazine/rich-friends-fleeing-country-ethics.html
+
 **Submit your Mets questions for the Will Sammon and Tim Britton mailbag**\
 `Submit your Mets questions for the Will Sammon and Tim Britton mailbag`\
 https://nytimes.com/athletic/6511135/2025/07/23/mets-mailbag-mlb-trade-deadline-2/

@@ -1,3 +1,11 @@
+**Tour de France stage 17: Milan tightens grip on green jersey, heavy rain impacts finale, Girmay involved in crash**\
+`Analysis of the latest day's action in the 2025 race - a 161km stage from Bollene to Valence`\
+https://nytimes.com/athletic/6510600/2025/07/23/tour-de-france-stage-17-analysis/
+
+**U.S. Quietly Drafts Plan to End Program That Saved Millions From AIDS**\
+`PEPFAR, the campaign to end H.I.V. globally, would morph into an effort to detect disease outbreaks and sell American products, according to documents obtained by The Times.`\
+https://nytimes.com/2025/07/23/health/pepfar-shutdown.html
+
 **How Do I Tell My Rich Friends to Stop Talking About Fleeing the Country?**\
 `How do you tell a friend that you’re tired of having the same conversation over and over?`\
 https://nytimes.com/2025/07/23/magazine/rich-friends-fleeing-country-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/business/economy/trump-tariffs-japan.html
 **Bryan Kohberger Said He Wanted to Counsel High-Profile Criminals. Then He Became One.**\
 `Long before confessing to killing four college students, Mr. Kohberger wrote of being depressed as a teenager and became addicted to heroin.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-criminal-justice-drug-use.html
-
-**Arteta happy with teenagers Dowman and Salmon after Arsenal friendly**\
-`Midfielder Dowman and defender Salmon came off the bench as Arsenal began their pre-season tour with a 1-0 win.`\
-https://nytimes.com/athletic/6510925/2025/07/23/arteta-max-dowman-marli-salmon-arsenal-milan-friendly/
-
-**‘I Haven’t Eaten in 4 Days’: Hunger Grips Gaza Strip**\
-`In a joint statement released on Wednesday, more than 100 aid agencies and rights groups said Gaza was facing “widespread starvation” and called on Israel to lift restrictions on humanitarian aid.`\
-https://nytimes.com/video/world/middleeast/100000010300607/hanger-gaza-starvation-deaths-.html
 
