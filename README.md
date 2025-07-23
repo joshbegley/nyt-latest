@@ -1,3 +1,7 @@
+**How Many Steps Do You Really Need in a Day?**\
+`A new study identifies the right number to reap the health benefits of walking.`\
+https://nytimes.com/2025/07/23/well/how-many-steps-per-day-health.html
+
 **Iran Warns It Could Exit Nuclear Treaty if Europe Reimposes Sanctions**\
 `The warning from Iran’s deputy foreign minister came days before he is set to travel to Istanbul for nuclear talks with European counterparts.`\
 https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty.html
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6511783/2025/07/23/packers-training-camp-zach-tom-b
 **The Ultimate Guide to Traveling With Your Pet**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-guide-to-traveling-with-your-pet
-
-**Trump Was Told His Name Was in the Epstein Files**\
-`Also, the U.S. drafted a plan to end its global H.I.V. campaign. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/07/23/briefing/trump-name-eptein-protests-ukraine-ozzy-osbourne.html
-
-**House Panel Votes to Subpoena Justice Dept. for Epstein Files**\
-`Three Republicans joined with five Democrats to support the motion.`\
-https://nytimes.com/2025/07/23/us/politics/house-subpoena-justice-dept-epstein-files.html
 
