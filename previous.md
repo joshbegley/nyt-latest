@@ -1,3 +1,7 @@
+**Britain Moves to Curb Migrant Trafficking, and Ease Anger at Home**\
+`Officials used new legal powers to penalize and bar networks run by gangs and organized crime. But experts and critics say the actions are unlikely to stem the surging tide of migration.`\
+https://nytimes.com/2025/07/23/world/europe/uk-migrant-trafficking.html
+
 **Brighton striker Ferguson joins Roma on loan**\
 `Roma have the option to make the move permanent at the end of the season.`\
 https://nytimes.com/athletic/6510354/2025/07/23/evan-ferguson-brighton-roma-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508771/2025/07/23/zubimendi-merino-arteta-arsenal/
 **Power Bank Suspected as Cause of Fire on Virgin Australia Flight**\
 `Airlines have tightened rules regarding portable batteries after a rise in episodes on planes in recent years.`\
 https://nytimes.com/2025/07/23/world/australia/virgin-airlines-plane-battery-fire.html
-
-**Long Island Man Planned to Set Off Homemade Bombs in Manhattan, Authorities Say**\
-`The man made several explosive devices using chemicals bought online, placing some on rooftops in New York City before he was arrested, the authorities said.`\
-https://nytimes.com/2025/07/23/nyregion/nyc-homemade-bombs-man-charged.html
 
