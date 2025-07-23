@@ -1,3 +1,7 @@
+**Germany vs Spain Euro 2025 semi-final odds, prediction: World champs expected to advance**\
+`Spain remain the clear favourite to win Euro 2025, but Germany, the most successful team in the history of the competition, are no easy foe.`\
+https://nytimes.com/athletic/6508754/2025/07/23/germany-spain-euro-2025-semi-final-odds-prediction/
+
 **To Build Affordable Housing, One State Could Loosen Flood Protections**\
 `New Jersey officials are tinkering with the state’s ambitious climate regulations amid a housing crisis. Activists say that economically vulnerable residents could suffer.`\
 https://nytimes.com/2025/07/23/nyregion/nj-flood-protections-affordable-housing.html
