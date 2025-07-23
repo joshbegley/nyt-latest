@@ -1,3 +1,7 @@
+**Dolphins OT Bayron Matos airlifted to medical facility after training camp injury: Reports**\
+`The Dolphins signed Matos as an undrafted free agent in 2024. He was delegated to the practice squad last season.`\
+https://nytimes.com/athletic/6510927/2025/07/23/bayron-matos-injury-miami-dolphins-training-camp/
+
 **Gilda Cruz-Romo, Soprano Celebrated for Her Power, Dies at 85**\
 `Critics praised the natural way she used her voice to inject character into her roles. She had, one wrote, a sound “perfect for Verdi and Puccini.”`\
 https://nytimes.com/2025/07/23/arts/music/gilda-cruz-romo-dead.html

@@ -1,3 +1,7 @@
+**Energy Dept. Cancels Loan Commitment to Contested Transmission Project**\
+`The project, known as Grain Belt Express, had drawn fierce opposition from some landowners and Republican lawmakers.`\
+https://nytimes.com/2025/07/23/climate/grain-belt-express-energy-department-loan.html
+
 **Dolphins OT Bayron Matos airlifted to medical facility after training camp injury: Reports**\
 `The Dolphins signed Matos as an undrafted free agent in 2024. He was delegated to the practice squad last season.`\
 https://nytimes.com/athletic/6510927/2025/07/23/bayron-matos-injury-miami-dolphins-training-camp/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6510927/2025/07/23/bayron-matos-injury-miami-dolphi
 https://nytimes.com/2025/07/23/arts/music/gilda-cruz-romo-dead.html
 
 **Belichick fever strong at North Carolina as school announces all 2025 tickets are sold**\
-`The Tar Heels last sold out season tickets in 2019 and 2021, the years before and after the COVID-19 pandemic.`\
+`The Tar Heels also sold out season tickets in 2019 and 2021, the years before and after the COVID-19 pandemic.`\
 https://nytimes.com/athletic/6511055/2025/07/23/bill-belichick-unc-football-tickets-sold-out/
 
 **‘Do you feel anything at all?’ Victims’ families express grief and anger.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6511135/2025/07/23/mets-mailbag-mlb-trade-deadline-
 **A Pill for Sleep Apnea Could Be on the Horizon**\
 `Experts say that if the new drug gets approved, it may lead to a big shift in how we treat the condition.`\
 https://nytimes.com/2025/07/23/well/apnimed-sleep-apnea-clinical-trial-ad109.html
-
-**Barcelona confirm Rashford signing on season-long loan**\
-`The United academy product has made 426 appearances for the club but has not appeared for them since December. `\
-https://nytimes.com/athletic/6503756/2025/07/23/rashford-barcelona-transfer-manchester-united-loan/
 

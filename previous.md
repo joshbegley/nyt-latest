@@ -1,3 +1,7 @@
+**Dolphins OT Bayron Matos airlifted to medical facility after training camp injury: Reports**\
+`The Dolphins signed Matos as an undrafted free agent in 2024. He was delegated to the practice squad last season.`\
+https://nytimes.com/athletic/6510927/2025/07/23/bayron-matos-injury-miami-dolphins-training-camp/
+
 **Gilda Cruz-Romo, Soprano Celebrated for Her Power, Dies at 85**\
 `Critics praised the natural way she used her voice to inject character into her roles. She had, one wrote, a sound “perfect for Verdi and Puccini.”`\
 https://nytimes.com/2025/07/23/arts/music/gilda-cruz-romo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/well/apnimed-sleep-apnea-clinical-trial-ad109.htm
 **Barcelona confirm Rashford signing on season-long loan**\
 `The United academy product has made 426 appearances for the club but has not appeared for them since December. `\
 https://nytimes.com/athletic/6503756/2025/07/23/rashford-barcelona-transfer-manchester-united-loan/
-
-**2 U.K. Families Received ‘Wrong Remains’ of Air India Crash Victims, Lawyer Says**\
-`The mistakes were found after DNA testing by a coroner in London. The Indian government said bodies of the Flight 171 victims “were handled with utmost professionalism.”`\
-https://nytimes.com/2025/07/23/world/asia/air-india-crash-victims-uk-modi-visit.html
 
