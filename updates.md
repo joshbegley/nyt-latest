@@ -1,3 +1,7 @@
+**Gabbard Releases New Documents Targeting Obama Administration**\
+`The director of national intelligence has intensified attacks on assessments about Russia’s role in the 2016 presidential election.`\
+https://nytimes.com/2025/07/23/us/politics/trump-russia-obama-gabbard.html
+
 **Thousands Protest After Ukraine Weakens Anticorruption Agencies**\
 `The protests in Kyiv erupted after the Ukrainian Parliament voted to toughen restrictions on two anticorruption agencies at the center of the government’s reform drive.`\
 https://nytimes.com/video/world/europe/100000010300502/protests-ukraine-anticorruption-agencies.html
