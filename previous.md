@@ -1,3 +1,11 @@
+**Flaunting an Ankle Tag, Brazil’s Bolsonaro Joins an Unusual Club**\
+`Charged with staging a coup, Jair Bolsonaro showed off his new ankle monitor this week, joining others who embraced symbols of prosecution.`\
+https://nytimes.com/2025/07/23/us/ankle-monitor-bolsonaro-delvey-stewart.html
+
+**Lionel Messi, Jordi Alba not showing for MLS All-Star Game**\
+`The two Miami stars join James Rodríguez as big-name no-shows for MLS and Liga MX's midsummer showcase`\
+https://nytimes.com/athletic/6510826/2025/07/23/lionel-messi-mls-all-star-game-jordi-alba-miami/
+
 **Top U.N. Court Says Countries Must Act on Climate Change**\
 `The International Court of Justice called global warming an “urgent and existential threat” at a closely watched case in The Hague.`\
 https://nytimes.com/2025/07/23/climate/icj-hague-climate-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.h
 **Biting a Bat and 5 Other Wild Moments From Ozzy Osbourne’s Life**\
 `Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
 https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html
-
-**2025 IDP rankings and draft strategy: The Travis Hunter dilemma and more**\
-`Gary Davenport gives his top 100 IDP players and draft strategy advice. `\
-https://nytimes.com/athletic/6508990/2025/07/23/2025-idp-rankings-draft-strategy-hunter/
-
-**NASCAR at Naval Base Coronado: What we know about the San Diego street race**\
-`NASCAR's San Diego street race will take place at Naval Base Coronado, the league announced Wednesday. Here's what we know.`\
-https://nytimes.com/athletic/6510013/2025/07/23/nascar-san-diego-naval-base-coronado/
 

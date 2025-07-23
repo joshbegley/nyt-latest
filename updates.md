@@ -1,3 +1,11 @@
+**Flaunting an Ankle Tag, Brazil’s Bolsonaro Joins an Unusual Club**\
+`Charged with staging a coup, Jair Bolsonaro showed off his new ankle monitor this week, joining others who embraced symbols of prosecution.`\
+https://nytimes.com/2025/07/23/us/ankle-monitor-bolsonaro-delvey-stewart.html
+
+**Lionel Messi, Jordi Alba not showing for MLS All-Star Game**\
+`The two Miami stars join James Rodríguez as big-name no-shows for MLS and Liga MX's midsummer showcase`\
+https://nytimes.com/athletic/6510826/2025/07/23/lionel-messi-mls-all-star-game-jordi-alba-miami/
+
 **Top U.N. Court Says Countries Must Act on Climate Change**\
 `The International Court of Justice called global warming an “urgent and existential threat” at a closely watched case in The Hague.`\
 https://nytimes.com/2025/07/23/climate/icj-hague-climate-change.html
