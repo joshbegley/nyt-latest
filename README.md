@@ -1,3 +1,7 @@
+**E.P.A. Proposes Allowing Use of Dicamba Weedkiller on Some Crops**\
+`Last year, a federal court banned some uses of the herbicide, which can drift into fields and damage crops.`\
+https://nytimes.com/2025/07/23/climate/dicamba-weed-killer-epa.html
+
 **Commanders, D.C. City Council near agreement on stadium development at RFK site: Sources**\
 `The framework of a deal is coming into focus, with a potential final vote by the City Council next week. `\
 https://nytimes.com/athletic/6511855/2025/07/23/washington-commanders-stadium-development-rfk-site/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/23/technology/trump-ai-chatbots-bias.html
 **Sources: LAFC eyeing Son Heung-min for summer transfer splash**\
 `LAFC has two open designated player spots and is eyeing the Tottenham and South Korea star for one of them`\
 https://nytimes.com/athletic/6510015/2025/07/23/lafc-son-heung-min-summer-transfer-mls-tottenham/
-
-**Packers training camp: Zach Tom's reaction to new deal and 10 more observations**\
-`Dive into the injury notes, standout plays, notable quotes and more from Day 1 of Packers training camp in Green Bay.`\
-https://nytimes.com/athletic/6511783/2025/07/23/packers-training-camp-zach-tom-bo-melton/
 

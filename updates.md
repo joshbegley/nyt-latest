@@ -1,3 +1,7 @@
+**Commanders, D.C. City Council near agreement on stadium development at RFK site: Sources**\
+`The framework of a deal is coming into focus, with a potential final vote by the City Council next week. `\
+https://nytimes.com/athletic/6511855/2025/07/23/washington-commanders-stadium-development-rfk-site/
+
 **How Many Steps Do You Really Need in a Day?**\
 `A new study identifies the right number to reap the health benefits of walking.`\
 https://nytimes.com/2025/07/23/well/how-many-steps-per-day-health.html
