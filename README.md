@@ -1,3 +1,15 @@
+**China Flexes Muscles at U.N. Cultural Agency, Just as Trump Walks Away**\
+`Washington had been a buffer against China’s efforts to use UNESCO to influence education, historical designations and even artificial intelligence.`\
+https://nytimes.com/2025/07/23/world/asia/unesco-china-us.html
+
+**Why is Vegas so high on the Patriots ... but the national media isn't?**\
+`Optimism abounds for the Patriots, whose over/under win total has been listed at 8.5. But that doesn’t seem to match the national narrative.`\
+https://nytimes.com/athletic/6509087/2025/07/23/new-england-patriots-vegas-win-total/
+
+**Where do Joe Burrow, Patrick Mahomes fall in 2025 fantasy football QB rankings?**\
+`KC Joyner considers everything from offensive line quality to matchup ratings in his rankings of the top 25 fantasy quarterbacks for 2025.`\
+https://nytimes.com/athletic/6506574/2025/07/23/fantasy-football-2025-qb-rankings-burrow-mahomes-jackson/
+
 **When Ozzy Osbourne Became the Most Unlikely Relatable Reality TV Dad**\
 `“The Osbournes” turned the heavy metal innovator into a reality TV star. Here are some moments that defined the show’s run.`\
 https://nytimes.com/2025/07/23/arts/television/ozzy-osbourne-show-reality-tv-family.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-idaho-murders.html
 **What’s That Splatter on Your Windshield?**\
 `Can you identify what insects are pelting your vehicle during your summer road trip? Take this quiz and see what you can learn from these close encounters.`\
 https://nytimes.com/interactive/2025/07/23/science/23xp-bugquiz.html
-
-**Etan Patz’s Case Haunted New York. It’s Still Not Over.**\
-`An appellate court decision overturning the conviction of Pedro Hernandez once again puts the shocking disappearance of a little boy in the spotlight.`\
-https://nytimes.com/2025/07/23/nyregion/etan-patzs-case-haunted-new-york-its-still-not-over.html
-
-**A Genocide Scholar on the Case Against Israel**\
-`An Israeli historian answers his critics, and explains why his home country’s conduct in Gaza constitutes genocide.`\
-https://nytimes.com/2025/07/23/opinion/israel-gaza-genocide-scholar-response.html
-
-**Free Shakespeare’s Central Park Home Gets an $85 Million Glow Up**\
-`The rickety, beloved Delacorte Theater, built in 1962, leaked and was popular with raccoons. Now it’s a modern facility and still charmingly wild.`\
-https://nytimes.com/2025/07/23/arts/design/00delacorte-central-park-shakespeare.html
 
