@@ -1,3 +1,16 @@
+**Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
+`Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
+`\
+https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
+
+**A Workout to Train for Everyday Life**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
+
+**Jim Legxacy Makes Music That Sounds Like Memory**\
+`The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
+https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
+
 **How Epstein Has Consumed Washington, From the White House to Congress and Beyond**\
 `The case of Jeffrey Epstein, sex offender and former friend of the president, has blown up into a major headache for the White House.`\
 https://nytimes.com/2025/07/23/us/politics/epstein-washington.html
