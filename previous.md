@@ -1,40 +1,40 @@
-**Democrats in the Wilderness**\
-`We look at the state of the Democratic Party.`\
-https://nytimes.com/2025/07/23/briefing/democrats-in-the-wilderness.html
+**Yankees’ trade deadline strategy clouded by Cam Schlittler's hot start**\
+`The Yankees need to decide if they’re comfortable trading Cam Schlittler's potentially bright future for present upgrades.`\
+https://nytimes.com/athletic/6510178/2025/07/23/yankees-cam-schlittler-trade-deadline/
 
-**Rosenthal: What I'm hearing about the Royals, Twins and Astros' trade deadline plans and more**\
-`The Royals are making it clear to clubs that any deal for pitcher Seth Lugo would require controllable outfield help in return.`\
-https://nytimes.com/athletic/6510086/2025/07/23/mlb-trade-deadline-royals-twins-astros/
+**Yankees trade deadline big board: 6 starting pitchers the club could acquire**\
+`Brian Cashman made it clear that if he could add a starting pitcher before the trade deadline passes, he will. Here are six names to watch.`\
+https://nytimes.com/athletic/6509724/2025/07/23/yankees-trade-deadline-targets-starting-pitchers/
 
-**The Pulse: The most overrated team in the NFL?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6509332/2025/07/23/nfl-underrated-overrated-teams-the-pulse/
+**Bengals’ 53-man roster projection: Guard battles, D-line uncertainty as camp begins**\
+`The high-profile offensive skill positions are set but several other spots are still up for grabs in training camp.`\
+https://nytimes.com/athletic/6509875/2025/07/23/bengals-53-man-roster-projection-2025/
 
-**Cristopher Sánchez's ascension toward acehood has changed the calculus for Phillies**\
-`Thirteen months to the day Sánchez signed what could be a franchise-altering extension with the Phillies, he threw his third complete game.`\
-https://nytimes.com/athletic/6510139/2025/07/23/cristopher-sanchez-phillies-complete-game-red-sox/
+**Curt Cignetti, Indiana undaunted after offseason spent as a CFP talking point**\
+`Cignetti trumpeted his team’s 2024 accolades at Big Ten media days Tuesday and in the process became his league’s staunchest defender.`\
+https://nytimes.com/athletic/6510110/2025/07/23/curt-cignetti-indiana-undaunted/
 
-**As Caitlin Clark's injuries persist, what's the Fever's outlook for WNBA's second half?**\
-`The Fever have had ups and downs, but the midpoint of the season presents a crossroad. `\
-https://nytimes.com/athletic/6510223/2025/07/23/indiana-fever-second-half-caitlin-clark-injury-wnba/
+**NBA Power Rankings, summer edition: How have offseason moves changed the landscape?**\
+`Since our last batch of rankings, teams have drafted, signed, traded, waived and more. Where do things stand now?`\
+https://nytimes.com/athletic/6508565/2025/07/23/nba-power-rankings-knicks-lakers-celtics-thunder-clippers/
 
-**TAFC: Is this Europe's best selling club? Plus: Lionesses leave it late again**\
-`Today in TAFC: The German club that has mastered the sale of stars, England's latest late show and artwork of Messi goal sells for $1.87m.`\
-https://nytimes.com/athletic/6510383/2025/07/23/eintracht-frankfurt-england-euro-2025-messi-art/
+**Mandel's mailbag: Week 1 games with playoff implications, 10th-place SEC teams, CFB formats**\
+`Which games in Week 1 have the biggest playoff implications? Also: What former player coaches would most help their team win? `\
+https://nytimes.com/athletic/6509033/2025/07/23/mandels-mailbag-playoff-sec-teams-cfb-formats/
 
-**Aid Agencies and Rights Groups Warn of ‘Mass Starvation’ in Gaza**\
-`More than 100 organizations blamed Israel’s siege of the territory, adding to growing calls for aid restrictions to be eased and the war to end.`\
-https://nytimes.com/2025/07/23/world/middleeast/aid-groups-gaza-starvation.html
+**NHL offseason concern-o-meter: Karlsson trade market, McDavid contract and more**\
+`Plus the Blackhawks’ rebuild and quiet free agency, the Mitch Marner-sized hole in the Maple Leafs lineup, the NHL's growth and much more.`\
+https://nytimes.com/athletic/6509541/2025/07/23/nhl-offseason-erik-karlsson-trade-connor-mcdavid-contract/
 
-**What we’re hearing: Rays’ relief plans, Luis Robert’s value and awkward phone calls at the deadline**\
-`With eight days left until the July 31 trade deadline, things can quickly shift from one direction to the next as teams win or lose.`\
-https://nytimes.com/athletic/6510085/2025/07/23/mlb-trade-deadline-rays-white-sox-updates/
+**Re-drafting the 2022 NHL Draft: Logan Cooley, Lane Hutson lead Wheeler’s do-over**\
+`Scott Wheeler provides updated evaluations of the top players in the 2022 draft class and breaks down what he got right and wrong.`\
+https://nytimes.com/athletic/6485550/2025/07/23/nhl-draft-lane-hutson-logan-cooley-2022-rerank/
 
-**Kevin O'Connell's plan for Vikings in 2025? Mold team to be physical, shapeshifting**\
-`“We’ve got to come out (this season) with some real momentum,” O'Connell said Tuesday. "How do you do that? You have a good training camp."`\
-https://nytimes.com/athletic/6509595/2025/07/23/minnesota-vikings-kevin-oconnell/
+**A future conference realignment winner? Why UNC football is more valuable than you think**\
+`UNC could be attractive to both the Big Ten and the SEC in the future. It's not because of football success ... or Bill Belichick.`\
+https://nytimes.com/athletic/6507342/2025/07/23/north-carolina-conference-realignment-college-football/
 
-**Behind Japan’s Trade Deal: 8 Rounds of Talks and ‘Hurrying Slowly’**\
-`After months of fraught negotiations with the United States, Japan clinched a deal just days before punitive tariffs were scheduled to take effect.`\
-https://nytimes.com/2025/07/23/business/trump-trade-japan-election.html
+**Georgia's Gunner Stockton has his skeptics, but is it too early to judge?**\
+`A game and a half of play has some doubting, or at least wondering, if Stockton is the answer for Georgia at quarterback.`\
+https://nytimes.com/athletic/6508522/2025/07/23/georgia-gunner-stockton-2025-outlook/
 
