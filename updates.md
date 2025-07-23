@@ -1,3 +1,11 @@
+**Tottenham's Raso in talks over Benfica transfer**\
+`Raso joined Tottenham last summer from Real Madrid but the club endured a difficult 2024-25 campaign.`\
+https://nytimes.com/athletic/6510442/2025/07/23/hayley-raso-tottenham-benfica-transfer/
+
+**A Deaf Actress Has a Message She Wants You to Hear**\
+`Rose Ayling-Ellis, who stars in the TV crime drama “Code of Silence,” wants the world to understand that deaf people live complex and varied lives.`\
+https://nytimes.com/2025/07/23/arts/television/rose-ayling-ellis-code-of-silence.html
+
 **Ozzy Osbourne: The rock star of Aston who said goodbye at Villa Park**\
 `The Black Sabbath frontman's last gig was at Villa Park. He meant an awful lot to the people of Birmingham and never forgot his roots`\
 https://nytimes.com/athletic/6510404/2025/07/23/ozzy-osbourne-aston-villa-birmingham/
