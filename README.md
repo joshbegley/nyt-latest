@@ -1,3 +1,7 @@
+**Thomas A. Durkin, Civil Liberties Lawyer for the Reviled, Dies at 78**\
+`He relished skewering the U.S. government as he represented unpopular defendants in public corruption and national security cases, like those at Guantánamo Bay.`\
+https://nytimes.com/2025/07/23/us/thomas-a-durkin-dead.html
+
 **Texas A&M mascot Miss Reveille X undergoes surgery to remove eye**\
 `The First Lady of Aggieland underwent surgery to have her right eye removed out of "an abundance of caution."`\
 https://nytimes.com/athletic/6511637/2025/07/23/texas-am-mascot-miss-reveille-x-diagnosed-with-glaucoma/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/23/travel/tsa-travel-one-stop.html
 **Attorney General Told Trump His Name Appeared in Epstein Files**\
 `It was not clear what those documents were, or in what context the president’s name was raised.`\
 https://nytimes.com/2025/07/23/us/politics/trump-epstein-files-named.html
-
-**Alphabet Reports 14% Increase in Second-Quarter Revenue**\
-`Google’s parent company, which is facing aggressive competition in its core search business from A.I. chatbots, also posted a double-digit profit increase.`\
-https://nytimes.com/2025/07/23/technology/alphabet-google-earnings-ai.html
 
