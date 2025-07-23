@@ -1,3 +1,7 @@
+**Cardinals designate starting pitcher Erick Fedde for assignment**\
+`In his nine starts since June 1, Fedde logged just 39 1/2 innings and posted a 7.32 ERA.`\
+https://nytimes.com/athletic/6511222/2025/07/23/cardinals-designate-starting-pitcher-erick-fedde-for-assignment/
+
 **Trump, the House and the Epstein Files**\
 `Readers react to the latest turns in the Jeffrey Epstein case. Also: A threat to election officials; smoke from Canadian wildfires.`\
 https://nytimes.com/2025/07/23/opinion/jeffrey-epstein-files-trump-house.html
