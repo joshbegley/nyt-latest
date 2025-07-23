@@ -1,3 +1,7 @@
+**Long Island Man Planned to Set Off Homemade Bombs in Manhattan, Authorities Say**\
+`The man made several explosive devices using chemicals bought online, placing some on rooftops in New York City before he was arrested, the authorities said.`\
+https://nytimes.com/2025/07/23/nyregion/nyc-homemade-bombs-man-charged.html
+
 **Late Night Watches Trump Try to Change the Subject From Epstein**\
 `The president’s usual tactic when cornered is to “throw red meat to the carnivorous base — and their favorite cut is filet of Obama,” Stephen Colbert said.`\
 https://nytimes.com/2025/07/23/arts/television/late-night-trump-epstein.html
