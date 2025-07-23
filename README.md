@@ -1,4 +1,8 @@
-**Browns place Deshaun Watson on physically unable to perform list**\
+**Alden Global Capital Makes a Play for The Dallas Morning News**\
+`The investment firm’s MediaNews Group, the country’s second-largest newspaper publisher, put in a bid for the publication nearly two weeks after Hearst agreed to buy it.`\
+https://nytimes.com/2025/07/22/business/media/dallas-morning-news-alden-global-capital.html
+
+**Browns place QB Deshaun Watson on physically unable to perform list**\
 `Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
 https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
 
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/22/us/los-angeles-fires-victim.html
 `Mack dominated the Chargers' first practice in pads as training camp shifted to the University of San Diego for the first of two days.`\
 https://nytimes.com/athletic/6510012/2025/07/22/chargers-training-camp-khalil-mack/
 
-**MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills competition**\
+**MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills challenge**\
 `Some of the biggest names expected to take part in the MLS All-Star Game festivities haven't arrived in Austin `\
 https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/climate/new-mexico-navajo-power.html
 **Grizzlies Were Raiding Montana Farms. Then Came Some Formidable Dogs.**\
 `Bears have recently acquired a fondness for the good eating found around grain bins on Montana’s plains. That’s a big problem for humans and grizzlies alike.`\
 https://nytimes.com/2025/07/22/climate/montana-grizzly-bears-guard-dogs.html
-
-**North Carolina’s Bogs Have a Dirty Secret, and That’s a Good Thing**\
-`Peat bogs have huge potential to store planet-warming carbon. The ones in North Carolina just need some help to get healthy again.`\
-https://nytimes.com/2025/07/22/climate/north-carolina-peat-restoration.html
 
