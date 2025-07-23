@@ -1,3 +1,11 @@
+**Boston Fleet name Kris Sparre as head coach**\
+`Sparre replaces Courtney Kessel, who recently left to coach the Princeton University women's hockey team.`\
+https://nytimes.com/athletic/6510911/2025/07/23/boston-fleet-coach-kris-sparre-pwhl/
+
+**Targeting Obama, Trump’s Retribution Campaign Takes Another Turn**\
+`After focusing his second-term ire on other individuals and institutions, President Trump is again seeking prosecution of his most prominent rivals — this time with aides more inclined to carry out his wishes.`\
+https://nytimes.com/2025/07/23/us/politics/trump-obama-retribution.html
+
 **Jazz, Fans and 2 Gems: Mark Morris Celebrates His Company’s 45th**\
 `The choreographer’s latest works, at the Joyce Theater, explore the music of James P. Johnson and John Luther Adams.`\
 https://nytimes.com/2025/07/23/arts/dance/mark-morris-joyce-theater-modernistic.html
