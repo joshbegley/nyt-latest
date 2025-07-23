@@ -1,3 +1,7 @@
+**Submit your Mets questions for the Will Sammon and Tim Britton mailbag**\
+`Submit your Mets questions for the Will Sammon and Tim Britton mailbag`\
+https://nytimes.com/athletic/6511135/2025/07/23/mets-mailbag-mlb-trade-deadline-2/
+
 **A Pill for Sleep Apnea Could Be on the Horizon**\
 `Experts say that if the new drug gets approved, it may lead to a big shift in how we treat the condition.`\
 https://nytimes.com/2025/07/23/well/apnimed-sleep-apnea-clinical-trial-ad109.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010300607/hanger-gaza-starvatio
 **Flaunting an Ankle Tag, Brazil’s Bolsonaro Joins an Unusual Club**\
 `Charged with staging a coup, Jair Bolsonaro showed off his new ankle monitor this week, joining others who embraced symbols of prosecution.`\
 https://nytimes.com/2025/07/23/us/ankle-monitor-bolsonaro-delvey-stewart.html
-
-**Lionel Messi, Jordi Alba not showing for MLS All-Star Game**\
-`The two Miami stars join James Rodríguez as big-name no-shows for MLS and Liga MX's midsummer showcase`\
-https://nytimes.com/athletic/6510826/2025/07/23/lionel-messi-mls-all-star-game-jordi-alba-miami/
 
