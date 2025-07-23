@@ -1,3 +1,7 @@
+**Thousands Protest After Ukraine Weakens Anticorruption Agencies**\
+`The protests in Kyiv erupted after the Ukrainian Parliament voted to toughen restrictions on two anticorruption agencies at the center of the government’s reform drive.`\
+https://nytimes.com/video/world/europe/100000010300502/protests-ukraine-anticorruption-agencies.html
+
 **The ‘Home of Heavy Metal’ Mourns Ozzy Osbourne**\
 `In Birmingham, England, the singer’s hometown, fans paid tribute by leaving flowers, beer and tequila. The rapper Drake was there to pay his respects, too.`\
 https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-birmingham.html

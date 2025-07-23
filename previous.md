@@ -1,3 +1,7 @@
+**Thousands Protest After Ukraine Weakens Anticorruption Agencies**\
+`The protests in Kyiv erupted after the Ukrainian Parliament voted to toughen restrictions on two anticorruption agencies at the center of the government’s reform drive.`\
+https://nytimes.com/video/world/europe/100000010300502/protests-ukraine-anticorruption-agencies.html
+
 **The ‘Home of Heavy Metal’ Mourns Ozzy Osbourne**\
 `In Birmingham, England, the singer’s hometown, fans paid tribute by leaving flowers, beer and tequila. The rapper Drake was there to pay his respects, too.`\
 https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-birmingham.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/style/phoebe-philo-collection-d.html
 **The Windup: The best starter on the market***\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6510311/2025/07/23/joe-ryan-starter-trade-deadline-the-windup/
-
-**Global Markets Rally on Japan Deal Euphoria**\
-`But more big tests loom with trade talks still continuing between the Trump administration and counterparts in China and the European Union.`\
-https://nytimes.com/2025/07/23/business/dealbook/markets-rally-japan-deal.html
 
