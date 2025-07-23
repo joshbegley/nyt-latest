@@ -1,3 +1,15 @@
+**As Cubs search for pitching continues, so does Matthew Boyd's brilliant season**\
+`Having Boyd in the rotation is a big reason the Cubs are in this position right now.`\
+https://nytimes.com/athletic/6510166/2025/07/23/cubs-search-for-pitching-matthew-boyds-brilliant-season/
+
+**Does Isaac Paredes' 'pretty significant' hamstring injury change Astros' deadline plans?**\
+`“We are waiting on some results, but it’s definitely something that’s going to keep him out for a while,” manager Joe Espada said.`\
+https://nytimes.com/athletic/6510169/2025/07/23/isaac-paredes-hamstring-injury-astros-trade-deadline/
+
+**Wednesday Briefing: Israel Expands Gaza Offensive**\
+`Plus, the death of Ozzy Osbourne.`\
+https://nytimes.com/2025/07/23/briefing/wednesday-briefing-israel-expands-gaza-offensive.html
+
 **Brewers' 11-game winning streak snapped in loss to Mariners**\
 `The Brewers’ streak was the second-longest of the MLB season, following the Twins' 13-game win streak from back in May.`\
 https://nytimes.com/athletic/6509424/2025/07/23/brewers-win-streak-ends-11-games/
