@@ -1,3 +1,7 @@
+**Jazz, Fans and 2 Gems: Mark Morris Celebrates His Company’s 45th**\
+`The choreographer’s latest works, at the Joyce Theater, explore the music of James P. Johnson and John Luther Adams.`\
+https://nytimes.com/2025/07/23/arts/dance/mark-morris-joyce-theater-modernistic.html
+
 **Biting a Bat and 5 Other Wild Moments From Ozzy Osbourne’s Life**\
 `Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
 https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html

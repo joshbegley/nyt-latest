@@ -1,3 +1,7 @@
+**Targeting Obama, Trump’s Retribution Campaign Takes Another Turn**\
+`After focusing his second-term ire on other individuals and institutions, President Trump is again seeking prosecution of his most prominent rivals — this time with aides more inclined to carry out his wishes.`\
+https://nytimes.com/2025/07/23/us/politics/trump-obama-retribution.html
+
 **Jazz, Fans and 2 Gems: Mark Morris Celebrates His Company’s 45th**\
 `The choreographer’s latest works, at the Joyce Theater, explore the music of James P. Johnson and John Luther Adams.`\
 https://nytimes.com/2025/07/23/arts/dance/mark-morris-joyce-theater-modernistic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/science/ai-history-ancient-rome-google-deepmind.h
 **‘Manhunt,’ ‘Cleaner’ and More Streaming Gems**\
 `A pair of derivative but enjoyable action movies lead off this month’s roundup of deep-cut recommendations on your subscription streaming services.`\
 https://nytimes.com/2025/07/23/movies/manhunt-cleaner-and-more-streaming-gems.html
-
-**‘Washington Black’ Review: Escape to the Future**\
-`A Hulu mini-series adapts Esi Edugyan’s prizewinning novel about a young enslaved worker’s literal and symbolic flight to freedom and peace of mind.`\
-https://nytimes.com/2025/07/23/arts/television/washington-black-review.html
 
