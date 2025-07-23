@@ -1,3 +1,7 @@
+**How Epstein Has Consumed Washington, From the White House to Congress and Beyond**\
+`The case of Jeffrey Epstein, sex offender and former friend of the president, has blown up into a major headache for the White House.`\
+https://nytimes.com/2025/07/23/us/politics/epstein-washington.html
+
 **gws-silvia-moreno-garcia-interview-the-bewitching**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/silvia-moreno-garcia-interview-the-bewitching
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/dining/easy-lemon-poppy-seed-bars.html
 **FEMA’s director defends the response to Texas flooding during a hearing with lawmakers.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/07/23/us/trump-news/fema-director-defends-response-to-texas-flooding-during-a-hearing-with-lawmakers
-
-**What’s in Our Queue? DIIV and More**\
-`Text by Qasim Nauman`\
-https://nytimes.com/card/2025/07/23/arts/editors-recommendations-diiv
 
