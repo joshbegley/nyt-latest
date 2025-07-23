@@ -1,3 +1,7 @@
+**Jannik Sinner rehires Umberto Ferrara, who bought spray at center of anti-doping case**\
+`Sinner parted company with Ferrara in August of last year but has now reappointed him with immediate effect.`\
+https://nytimes.com/athletic/6510372/2025/07/23/tennis-jannik-sinner-umberto-ferrara-clostebol/
+
 **Britain Punishes Migrant Smugglers, Using New Legal Power**\
 `Officials used new legal powers to penalize and bar networks run by gangs and organized crime. But experts and critics say the actions are unlikely to stem the surging tide of migration.`\
 https://nytimes.com/2025/07/23/world/europe/uk-migrant-trafficking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/crosswords/spelling-bee-forum.html
 **Zubimendi and Merino interview: 'Quality' Arteta, Arsenal's Basque influence, and last season's lessons**\
 `The two former Real Sociedad team-mates – reunited at Arsenal – discuss plans for this season and settling into London life`\
 https://nytimes.com/athletic/6508771/2025/07/23/zubimendi-merino-arteta-arsenal/
-
-**Power Bank Suspected as Cause of Fire on Virgin Australia Flight**\
-`Airlines have tightened rules regarding portable batteries after a rise in episodes on planes in recent years.`\
-https://nytimes.com/2025/07/23/world/australia/virgin-airlines-plane-battery-fire.html
 

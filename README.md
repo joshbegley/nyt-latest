@@ -1,40 +1,40 @@
-**Jannik Sinner rehires Umberto Ferrara, who bought spray at center of anti-doping case**\
-`Sinner parted company with Ferrara in August of last year but has now reappointed him with immediate effect.`\
-https://nytimes.com/athletic/6510372/2025/07/23/tennis-jannik-sinner-umberto-ferrara-clostebol/
+**When Ozzy Osbourne Became the Most Unlikely Relatable Reality TV Dad**\
+`“The Osbournes” turned the heavy metal innovator into a reality TV star. Here are some moments that defined the show’s run.`\
+https://nytimes.com/2025/07/23/arts/television/ozzy-osbourne-show-reality-tv-family.html
 
-**Britain Punishes Migrant Smugglers, Using New Legal Power**\
-`Officials used new legal powers to penalize and bar networks run by gangs and organized crime. But experts and critics say the actions are unlikely to stem the surging tide of migration.`\
-https://nytimes.com/2025/07/23/world/europe/uk-migrant-trafficking.html
+**A New Golf Course and Old Grudges Await Trump in Scotland**\
+`Many Scots refuse to make peace with President Trump or his golf resorts, even after he deepened his investment in the land where his mother was born.`\
+https://nytimes.com/2025/07/23/world/europe/trump-visit-scotland-golf-resorts.html
 
-**Brighton striker Ferguson joins Roma on loan**\
-`Roma have the option to make the move permanent at the end of the season.`\
-https://nytimes.com/athletic/6510354/2025/07/23/evan-ferguson-brighton-roma-loan/
+**A Minnesota Mamdani? A Race for Mayor Has Echoes, but Only So Far.**\
+`Omar Fateh, a young democratic socialist, beat out an establishment Democrat for the party’s endorsement in Minneapolis. But the parallels with Zohran Mamdani in New York might end there.`\
+https://nytimes.com/2025/07/23/us/politics/omar-fateh-minneapolis-mayor-mamdani.html
 
-**Germany vs Spain Euro 2025 semi-final odds, prediction: World champs expected to advance**\
-`Spain remain the clear favourite to win Euro 2025, but Germany, the most successful team in the history of the competition, are no easy foe.`\
-https://nytimes.com/athletic/6508754/2025/07/23/germany-spain-euro-2025-semi-final-odds-prediction/
+**No One Parties Like Jacques Pépin, Even at 90**\
+`The beloved chef, who brought French cooking skills to the American masses, is celebrating his upcoming birthday with 90 parties around the country.`\
+https://nytimes.com/2025/07/23/dining/jacques-pepin-birthday.html
 
-**To Build Affordable Housing, One State Could Loosen Flood Protections**\
-`New Jersey officials are tinkering with the state’s ambitious climate regulations amid a housing crisis. Activists say that economically vulnerable residents could suffer.`\
-https://nytimes.com/2025/07/23/nyregion/nj-flood-protections-affordable-housing.html
+**Louis Vuitton Netherlands Entangled in Money-Laundering Case**\
+`A customer’s cash purchases of luxury goods totaling millions of euros in value caught the attention of prosecutors, who say the company should have noticed.`\
+https://nytimes.com/2025/07/23/world/europe/louis-vuitton-netherlands-money-laundering.html
 
-**A Long, Overdue Reporting Trip Through Syria**\
-`After the fall of Bashar al-Assad, parts of the country that had been closed to outside journalists for a decade suddenly opened up.`\
-https://nytimes.com/2025/07/23/world/middleeast/a-long-overdue-reporting-trip-through-syria.html
+**Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
+`The students’ families will have an opportunity to address the court, and many hope for answers to one major question about the brutal case: What was the motive?`\
+https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-idaho-murders.html
 
-**With Labubus and a Cat Cafe, a Shopping Mall Thrives in New York City**\
-`The city’s newest indoor shopping center, in Queens, has defied predictions of the death of the American mall by catering to Asian American shoppers.`\
-https://nytimes.com/2025/07/23/nyregion/tangram-mall-flushing-queens-nyc.html
+**What’s That Splatter on Your Windshield?**\
+`Can you identify what insects are pelting your vehicle during your summer road trip? Take this quiz and see what you can learn from these close encounters.`\
+https://nytimes.com/interactive/2025/07/23/science/23xp-bugquiz.html
 
-**Mamdani Victory Could Represent Expansion of the Left’s Influence**\
-`Business leaders are anxious over the prospect of Zohran Mamdani in City Hall, while the Democratic Socialists of America are contemplating how they would wield power and influence policy.`\
-https://nytimes.com/2025/07/23/nyregion/mamdani-socialists-dsa.html
+**Etan Patz’s Case Haunted New York. It’s Still Not Over.**\
+`An appellate court decision overturning the conviction of Pedro Hernandez once again puts the shocking disappearance of a little boy in the spotlight.`\
+https://nytimes.com/2025/07/23/nyregion/etan-patzs-case-haunted-new-york-its-still-not-over.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/23/crosswords/spelling-bee-forum.html
+**A Genocide Scholar on the Case Against Israel**\
+`An Israeli historian answers his critics, and explains why his home country’s conduct in Gaza constitutes genocide.`\
+https://nytimes.com/2025/07/23/opinion/israel-gaza-genocide-scholar-response.html
 
-**Zubimendi and Merino interview: 'Quality' Arteta, Arsenal's Basque influence, and last season's lessons**\
-`The two former Real Sociedad team-mates – reunited at Arsenal – discuss plans for this season and settling into London life`\
-https://nytimes.com/athletic/6508771/2025/07/23/zubimendi-merino-arteta-arsenal/
+**Free Shakespeare’s Central Park Home Gets an $85 Million Glow Up**\
+`The rickety, beloved Delacorte Theater, built in 1962, leaked and was popular with raccoons. Now it’s a modern facility and still charmingly wild.`\
+https://nytimes.com/2025/07/23/arts/design/00delacorte-central-park-shakespeare.html
 
