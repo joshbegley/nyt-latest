@@ -1,3 +1,11 @@
+**What we're hearing about the Mets' deadline plans in the bullpen and center field**\
+`League sources describe the Mets as active in the center field market while adding that New York is not behaving as if it's a necessity. `\
+https://nytimes.com/athletic/6510051/2025/07/22/mets-trade-deadline-intel-bullpen-center-field/
+
+**Where the Dodgers' trade priorities lie 9 days before the deadline**\
+`A front office that joked throughout the winter about wanting to avoid buying altogether has grabbed its shopping cart.`\
+https://nytimes.com/athletic/6510052/2025/07/22/los-angeles-dodgers-trade-deadline-priorities/
+
 **Venus rises: 45-year-old Venus Williams stuns at Citi Open after year-long hiatus**\
 `The seven-time Grand Slam singles champion had not played a WTA Tour match since March of 2024 and had not won one since 2023.`\
 https://nytimes.com/athletic/6510057/2025/07/22/venus-williams-wins-return-citi-open/

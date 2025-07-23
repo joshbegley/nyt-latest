@@ -1,8 +1,12 @@
+**What we're hearing about the Mets' deadline plans in the bullpen and center field**\
+`League sources describe the Mets as active in the center field market while adding that New York is not behaving as if it's a necessity. `\
+https://nytimes.com/athletic/6510051/2025/07/22/mets-trade-deadline-intel-bullpen-center-field/
+
 **Venus rises: 45-year-old Venus Williams stuns at Citi Open after year-long hiatus**\
 `The seven-time Grand Slam singles champion had not played a WTA Tour match since March of 2024 and had not won one since 2023.`\
 https://nytimes.com/athletic/6510057/2025/07/22/venus-williams-wins-return-citi-open/
 
-**Where the Dodgers' trade priorities lie nine days before the deadline**\
+**Where the Dodgers' trade priorities lie 9 days before the deadline**\
 `A front office that joked throughout the winter about wanting to avoid buying altogether has grabbed its shopping cart.`\
 https://nytimes.com/athletic/6510052/2025/07/22/los-angeles-dodgers-trade-deadline-priorities/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jo
 **Is Marcus Smart the missing piece for the Lakers? He thinks so**\
 `After two seasons derailed by injuries, Smart is eyeing a bounce-back with the Lakers: "I think there's no ceiling."`\
 https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piece/
-
-**Ozzy Started With Style, and Built From There**\
-`Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
-https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
 
