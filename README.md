@@ -1,3 +1,15 @@
+**As Cubs search for pitching continues, so does Matthew Boyd's brilliant season**\
+`Having Boyd in the rotation is a big reason the Cubs are in this position right now.`\
+https://nytimes.com/athletic/6510166/2025/07/23/cubs-search-for-pitching-matthew-boyds-brilliant-season/
+
+**Does Isaac Paredes' 'pretty significant' hamstring injury change Astros' deadline plans?**\
+`“We are waiting on some results, but it’s definitely something that’s going to keep him out for a while,” manager Joe Espada said.`\
+https://nytimes.com/athletic/6510169/2025/07/23/isaac-paredes-hamstring-injury-astros-trade-deadline/
+
+**Wednesday Briefing: Israel Expands Gaza Offensive**\
+`Plus, the death of Ozzy Osbourne.`\
+https://nytimes.com/2025/07/23/briefing/wednesday-briefing-israel-expands-gaza-offensive.html
+
 **Brewers' 11-game winning streak snapped in loss to Mariners**\
 `The Brewers’ streak was the second-longest of the MLB season, following the Twins' 13-game win streak from back in May.`\
 https://nytimes.com/athletic/6509424/2025/07/23/brewers-win-streak-ends-11-games/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6508209/2025/07/23/goalkeeper-saves-greatest-best/
 **The opportunity for Marcus Rashford at Barcelona is potentially huge – and very different to Manchester**\
 `Marcus Rashford could not have asked for a better more after a season of turmoil at Manchester United. Now he has to make it count`\
 https://nytimes.com/athletic/6504590/2025/07/23/marcus-rashford-barcelona-manchester-united/
-
-**Will Guijarro be the next Spain midfielder to win the Ballon d'Or?**\
-`In both the men’s and women’s game, Spanish midfielders have a hold over the award. Guijarro could be next in line`\
-https://nytimes.com/athletic/6508438/2025/07/23/patri-guijarro-spain-euros/
-
-**Frankfurt are about to hit profits of €345m in six years just from selling strikers – this is how they do it**\
-`The Bundesliga side are about to make another stack of money on one of their front men when they sell Hugo Ekitike to Liverpool`\
-https://nytimes.com/athletic/6508175/2025/07/23/eintracht-frankfurt-hugo-ekitike-analysis-strikers-sales/
-
-**Why comments are turned off on our articles about the Thomas Partey case**\
-`News stories about arrests, charges and legal issues in the UK are different from the other sorts of articles you will find on The Athletic`\
-https://nytimes.com/athletic/6508182/2025/07/23/thomas-partey-charged-comments-contempt-laws/
 

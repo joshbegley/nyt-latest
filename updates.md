@@ -1,3 +1,19 @@
+**Brewers' 11-game winning streak snapped in loss to Mariners**\
+`The Brewers’ streak was the second-longest of the MLB season, following the Twins' 13-game win streak from back in May.`\
+https://nytimes.com/athletic/6509424/2025/07/23/brewers-win-streak-ends-11-games/
+
+**The homegrown rule that will cost some Spurs players a place in the Champions League**\
+`As it stands, Thomas Frank will have to leave nine first-teamers out of his squad for Europe in the coming season due to UEFA regulations`\
+https://nytimes.com/athletic/6506704/2025/07/23/spurs-champions-league-squad-homegrown-rule/
+
+**Driving runs and a sense of fun: What Ndoye would bring to Nottingham Forest**\
+`Profiling the player Forest hope can fill the void left by Anthony Elanga’s £52million move to Newcastle`\
+https://nytimes.com/athletic/6508613/2025/07/23/ndoye-nottingham-forest-bologna-transfer/
+
+**Are three centre-backs the best way for Emery's Villa to evolve?**\
+`Three centre-backs have been picked in the opening games of pre-season - will that be the way forward for Emery in 2025-26?`\
+https://nytimes.com/athletic/6501856/2025/07/23/aston-villa-unai-emery-three-centre-backs/
+
 **Which Premier League clubs do the most transfer deals between them?**\
 `It might seem your lot are always buying players from the same place - but which teams really do the greatest amount of business together?`\
 https://nytimes.com/athletic/6508081/2025/07/23/premier-league-transfer-deals-most-clubs/
