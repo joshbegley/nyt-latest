@@ -1,3 +1,7 @@
+**Bears training camp observations: Offense draws Ben Johnson's ire, defense pays toll**\
+`Tremaine Edmunds intercepted Caleb Williams and drew praise from defensive coordinator Dennis Allen; Luther Burden III was not present.`\
+https://nytimes.com/athletic/6511260/2025/07/23/bears-training-camp-observations-ben-johnson/
+
 **Patriots aren't hiding from woes of last two years: 'Guys here are tired of losing'**\
 `The Patriots kicked off training camp Wednesday with a sense of optimism that Mike Vrabel and Drake Maye can lead their turnaround.`\
 https://nytimes.com/athletic/6511309/2025/07/23/patriots-training-camp-drake-maye-mike-vrabel/

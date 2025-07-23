@@ -1,3 +1,11 @@
+**Young joins Ipswich following Everton exit**\
+`Young, 40, left Everton this summer after the conclusion of his contract.`\
+https://nytimes.com/athletic/6510939/2025/07/23/ashley-young-ipswich-transfer/
+
+**Nine Questions About the Epstein Case That Actually Need Answers**\
+`You needn’t be a conspiracy theorist to have questions.`\
+https://nytimes.com/2025/07/23/opinion/epstein-files-fbi-trump.html
+
 **Bears training camp observations: Offense draws Ben Johnson's ire, defense pays toll**\
 `Tremaine Edmunds intercepted Caleb Williams and drew praise from defensive coordinator Dennis Allen; Luther Burden III was not present.`\
 https://nytimes.com/athletic/6511260/2025/07/23/bears-training-camp-observations-ben-johnson/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/us/william-mcneil-jacksonville-sheriff-video.html
 **USMNT striker Sargent's Wolfsburg move appears to fall through**\
 `Sargent was in talks over a potential move to Wolfsburg, which would have seen him return to Germany following four years at Norwich.`\
 https://nytimes.com/athletic/6506390/2025/07/23/josh-sargent-wolfsburg-norwich-transfer/
-
-**Eileen Fulton, Glamorous Villainess of ‘As the World Turns,’ Dies at 91**\
-`She was a mainstay of the long-running soap opera for 50 years — so long that she liked to say she led a double life.`\
-https://nytimes.com/2025/07/23/arts/television/eileen-fulton-dead.html
-
-**Tiny Love Stories: ‘My Father Didn’t Mind Her Lie’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/07/23/style/tiny-modern-love-stories-my-father-didnt-mind-her-lie.html
 
