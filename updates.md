@@ -1,3 +1,11 @@
+**Where the Dodgers' trade priorities lie nine days before the deadline**\
+`A front office that joked throughout the winter about wanting to avoid buying altogether has grabbed its shopping cart.`\
+https://nytimes.com/athletic/6510052/2025/07/22/los-angeles-dodgers-trade-deadline-priorities/
+
+**U.S. and Japan Reach Trade Deal**\
+`President Trump said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
+https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
+
 **Part of a Chain**\
 `Joseph Gangi exchanges letters with us.`\
 https://nytimes.com/2025/07/22/crosswords/daily-puzzle-2025-07-23.html
