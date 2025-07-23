@@ -1,3 +1,7 @@
+**Boston Fleet name Kris Sparre as head coach**\
+`Sparre replaces Courtney Kessel, who recently left to coach the Princeton University women's hockey team.`\
+https://nytimes.com/athletic/6510911/2025/07/23/boston-fleet-coach-kris-sparre-pwhl/
+
 **Targeting Obama, Trump’s Retribution Campaign Takes Another Turn**\
 `After focusing his second-term ire on other individuals and institutions, President Trump is again seeking prosecution of his most prominent rivals — this time with aides more inclined to carry out his wishes.`\
 https://nytimes.com/2025/07/23/us/politics/trump-obama-retribution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/dining/healthy-french-lentil-salad-recipe.html
 **A.I. May Be the Future, but First It Has to Study Ancient Roman History**\
 `A software model from Google DeepMind put a more precise date on an important Latin text credited to a Roman emperor as a demonstration of its capabilities.`\
 https://nytimes.com/2025/07/23/science/ai-history-ancient-rome-google-deepmind.html
-
-**‘Manhunt,’ ‘Cleaner’ and More Streaming Gems**\
-`A pair of derivative but enjoyable action movies lead off this month’s roundup of deep-cut recommendations on your subscription streaming services.`\
-https://nytimes.com/2025/07/23/movies/manhunt-cleaner-and-more-streaming-gems.html
 
