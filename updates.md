@@ -1,3 +1,7 @@
+**ESPN and NFL closing in on 'Next Era'-defining media deal**\
+`What could be in the deal: Red Zone Channel, NFL Network, seven regular-season games, enhanced betting and fantasy possibilities.`\
+https://nytimes.com/athletic/6509767/2025/07/23/espn-nfl-media-network-jimmy-pitaro-streaming/
+
 **With Russia and Ukraine to Meet Again, Here’s What to Know About the Peace Talks**\
 `The warring sides are still far apart heading into the third round of U.S.-brokered peace negotiations, set for Wednesday in Istanbul.`\
 https://nytimes.com/2025/07/23/world/europe/russia-ukraine-peace-talks.html
