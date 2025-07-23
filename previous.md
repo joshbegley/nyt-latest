@@ -1,36 +1,36 @@
-**Rulings Order Abrego Garcia’s Release and Guard Against Hasty Deportation**\
-`The convergence of the two judicial rulings, which came within minutes of each other, meant that Kilmar Armando Abrego Garcia could soon be released and return to Maryland.`\
-https://nytimes.com/2025/07/23/us/politics/abrego-garcia-judge-orders.html
+**6 Takeaways From Idaho Killer’s Sentencing Hearing**\
+`A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
+https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
 
-**O'Connor: Jaxson Dart is betting on himself to have Eli Manning’s career (and then some)**\
-`On the first day of training camp, Dart wouldn't put a ceiling on his ambitions — not even for two Super Bowl rings. Hope springs eternal. `\
-https://nytimes.com/athletic/6511622/2025/07/23/giants-jaxson-dart-rookie-qb-eli-manning/
+**The Chatbot Culture Wars Are Here**\
+`Conservatives, including President Trump, are accusing A.I. companies of left-wing bias, following a playbook that worked well against social media platforms.`\
+https://nytimes.com/2025/07/23/technology/trump-ai-chatbots-bias.html
 
-**Pat McAfee apologizes to Ole Miss student after amplifying false rumor**\
-`The false rumor forced the student to switch to online classes and move out of her dormitory.`\
-https://nytimes.com/athletic/6511700/2025/07/23/pat-mcafee-apology-ole-miss-student-false-rumor/
+**Sources: LAFC eyeing Son Heung-min for summer transfer splash**\
+`LAFC has two open designated player spots and is eyeing the Tottenham and South Korea star for one of them`\
+https://nytimes.com/athletic/6510015/2025/07/23/lafc-son-heung-min-summer-transfer-mls-tottenham/
 
-**Trump Really Wants to Stop Talking About Epstein: A Timeline**\
-`President Trump has tried to attack, deflect and deny his way past the Jeffrey Epstein saga. He’s had less success than usual.`\
-https://nytimes.com/2025/07/23/us/politics/trump-epstein-distraction-timeline.html
+**Packers training camp: Zach Tom's reaction to new deal and 10 more observations**\
+`Dive into the injury notes, standout plays, notable quotes and more from Day 1 of Packers training camp in Green Bay.`\
+https://nytimes.com/athletic/6511783/2025/07/23/packers-training-camp-zach-tom-bo-melton/
 
-**Thomas A. Durkin, Civil Liberties Lawyer for the Reviled, Dies at 78**\
-`He relished skewering the U.S. government as he represented unpopular defendants in public corruption and national security cases, like those at Guantánamo.`\
-https://nytimes.com/2025/07/23/us/thomas-a-durkin-dead.html
+**The Ultimate Guide to Traveling With Your Pet**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-guide-to-traveling-with-your-pet
 
-**Texas A&M mascot Miss Reveille X undergoes surgery to remove eye**\
-`The First Lady of Aggieland underwent surgery to have her right eye removed out of "an abundance of caution."`\
-https://nytimes.com/athletic/6511637/2025/07/23/texas-am-mascot-miss-reveille-x-diagnosed-with-glaucoma/
+**Trump Was Told His Name Was in the Epstein Files**\
+`Also, the U.S. drafted a plan to end its global H.I.V. campaign. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/23/briefing/trump-name-eptein-protests-ukraine-ozzy-osbourne.html
 
-**Quiz: How well do you know your older athletes? The week of the veteran comebacks**\
-`How well do you know the ages and feats of Venus Williams, Rich Hill, Manny Pacquiao and other legendary veterans?`\
-https://nytimes.com/athletic/6511526/2025/07/23/quiz-veteran-athletes-comeback-venus-williams-rich-hill/
+**House Panel Votes to Subpoena Justice Dept. for Epstein Files**\
+`Three Republicans joined with five Democrats to support the motion.`\
+https://nytimes.com/2025/07/23/us/politics/house-subpoena-justice-dept-epstein-files.html
 
-**Thursday Briefing: Your Russia Questions Answered**\
-`Plus, meet the other great Kurosawa.`\
-https://nytimes.com/2025/07/23/briefing/russia-putin-japan-trade-ozzy-osbourne.html
+**Edison Utility Company Creates Fund for Eaton Fire Victims**\
+`California officials have not yet determined whether Southern California Edison caused the fire, which killed 17 people and destroyed thousands of properties.`\
+https://nytimes.com/2025/07/23/business/energy-environment/edison-eaton-fire-fund-los-angeles.html
 
-**At Texas Flooding Hearing, State Officials Look Elsewhere for Blame**\
-`At several points during the hearing, the state emergency management chief directed attention to the role of local emergency managers in disaster response.`\
-https://nytimes.com/2025/07/23/us/politics/texas-floods-hearing-emergency-management.html
+**Unified on Trump and Tariffs, Canada’s Premiers Differ on Next Steps**\
+`A three-day meeting in response to President Trump’s looming tariff threat underscored differences between the leaders of Canada’s provinces and territories.`\
+https://nytimes.com/2025/07/23/world/canada/canada-premiers-trade-trump-tariffs-carney.html
 
