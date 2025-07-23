@@ -1,3 +1,15 @@
+**Top U.N. Court Says Countries Must Act on Climate Change**\
+`The International Court of Justice called global warming an “urgent and existential threat” at a closely watched case in The Hague.`\
+https://nytimes.com/2025/07/23/climate/icj-hague-climate-change.html
+
+**Newcastle expected to choose Wilson as new sporting director**\
+`Former Arsenal assistant sporting director Jason Ayto was also interviewed but it is anticipated that Wilson will be offered the position.`\
+https://nytimes.com/athletic/6510875/2025/07/23/newcastle-sporting-director-ross-wilson/
+
+**Mussolini's great-grandson says 'my name has never caused me problems' after Serie A transfer**\
+`Romano Floriani Mussolini, who primarily plays at right-back, has joined Cremonese on a loan deal from Lazio.`\
+https://nytimes.com/athletic/6510881/2025/07/23/mussolini-lazio-transfer-cremonese/
+
 **Boston Fleet name Kris Sparre as head coach**\
 `Sparre replaces Courtney Kessel, who recently left to coach the Princeton University women's hockey team.`\
 https://nytimes.com/athletic/6510911/2025/07/23/boston-fleet-coach-kris-sparre-pwhl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6508990/2025/07/23/2025-idp-rankings-draft-strategy
 **NASCAR at Naval Base Coronado: What we know about the San Diego street race**\
 `NASCAR's San Diego street race will take place at Naval Base Coronado, the league announced Wednesday. Here's what we know.`\
 https://nytimes.com/athletic/6510013/2025/07/23/nascar-san-diego-naval-base-coronado/
-
-**Escaping the Cycle of Perfectionism**\
-`We asked therapists and researchers for the best books on learning to let go.`\
-https://nytimes.com/2025/07/23/well/perfectionist-books.html
-
-**French Lentil Salad Forever**\
-`It’s one of our most popular new recipes of 2025 for a reason (that reason being it’s easy, versatile and very delicious).`\
-https://nytimes.com/2025/07/23/dining/healthy-french-lentil-salad-recipe.html
-
-**A.I. May Be the Future, but First It Has to Study Ancient Roman History**\
-`A software model from Google DeepMind put a more precise date on an important Latin text credited to a Roman emperor as a demonstration of its capabilities.`\
-https://nytimes.com/2025/07/23/science/ai-history-ancient-rome-google-deepmind.html
 
