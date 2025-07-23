@@ -1,40 +1,41 @@
-**Read the French President’s Lawsuit**\
-`The French president, Emmanuel Macron, and his wife, Brigitte Macron, filed a defamation suit on Wednesday against an American right-wing podcaster who claimed Ms. Macron is actually a man.`\
-https://nytimes.com/interactive/2025/07/23/world/europe/23int-macron-defemation-suit.html
+**Broncos' Bo Nix seeks out Drew Brees to help spark Year 2 jump**\
+`Broncos coach Sean Payton says contract extensions with a handful of marquee players are "being worked on" as training camp begins.`\
+https://nytimes.com/athletic/6511302/2025/07/23/bo-nix-brees-broncos-training-camp/
 
-**Eagles training camp: Nakobe Dean placed on PUP, Jihaad Campbell returns**\
-`Cooper DeJean played some safety on Day 1 of training camp, while Kelee Ringo had a rough at cornerback.`\
-https://nytimes.com/athletic/6511067/2025/07/23/eagles-training-camp-dean-campbell-dejean/
+**Our 25 Most Popular Recipes of the Year So Far**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/popular-recipes-2025
 
-**Macrons Sue Candace Owens, Right-Wing Podcaster, Claiming Defamation**\
-`The suit seeks damages after the podcaster claimed Brigitte Macron is a man. The French president and his wife said the statement caused “pain to us and our families.”`\
-https://nytimes.com/2025/07/23/world/europe/macron-lawsuit-candace-owens-defamation.html
+**gws-corfu-greece-minimalist-concrete-house**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/corfu-greece-minimalist-concrete-house
 
-**The Many Political Interpretations of Martin Luther King Jr.’s Legacy**\
-`The release of National Archives documents is the latest attempt to define what the Civil Rights icon believed, and what that means now for the country.`\
-https://nytimes.com/2025/07/23/us/martin-luther-king-mlk-legacy-politics-national-archives.html
+**Kennedy Rescinds Endorsements for Some Flu Vaccines**\
+`Federal guidelines no longer recommend flu vaccines containing a preservative, used in a small percentage of vaccines, that has been falsely linked to autism.`\
+https://nytimes.com/2025/07/23/health/rfk-jr-flu-vaccines-thimerosal.html
 
-**How a Former Public Toilet Was Transformed Into an Inviting New Hotel**\
-`Plus: knits inspired by Martha’s Vineyard, eels on New York menus and more recommendations from T Magazine.`\
-https://nytimes.com/2025/07/23/t-magazine/the-netty-hotel-oxford.html
+**Idaho Killer Is Sentenced to 4 Consecutive Life Terms**\
+`Brian Kohberger, who plead guilty to killing four Idaho college students, was sentenced to four consecutive life sentences. Friends and family members of the victims wept as they gave impact statements in a Boise courtroom.`\
+https://nytimes.com/video/us/100000010301903/idaho-sentencing-bryan-kohberger.html
 
-**Cowboys 2025 offseason vibes: Micah Parsons' contract, Trevon Diggs in the doghouse**\
-`Parsons' contract situation lingers on as Dallas looks to put a rocky offseason that began with a coaching change behind it.`\
-https://nytimes.com/athletic/6511211/2025/07/23/cowboys-offseason-micah-parsons-trevon-diggs/
+**Chelsea in talks with Ajax over move for defender Hato**\
+`The 19-year-old has been the subject of interest from a number of Premier League clubs.`\
+https://nytimes.com/athletic/6496268/2025/07/23/jorrel-hato-chelsea-transfers/
 
-**How NHL players turned the Shoulder Check Showcase into an offseason destination**\
-`Twenty active NHL players, including Stars goalie Jake Oettinger, are set to appear at Thursday's event to promote mental health awareness.`\
-https://nytimes.com/athletic/6510676/2025/07/23/shoulder-check-showcase-nhl-offseason-charity-game/
+**Liam Dawson and the near 3,000 day wait to be an England Test cricketer again**\
+`Competitive and a consumate professional - the Hampshire all-rounder made a triumphant return to Test cricket against India`\
+https://nytimes.com/athletic/6511317/2025/07/23/liam-dawson-england-comeback-india/
 
-**Rookie pass rusher overly aggressive pursuing Bryce Young: Panthers observations**\
-`Dave Canales likes what he sees in rookie Princely Umanmielen, but emphasized that getting a hand on the QB is a no-no.`\
-https://nytimes.com/athletic/6511357/2025/07/23/panthers-training-camp-observations-princely-umanmielen/
+**Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
+`Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
+`\
+https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
 
-**Jayden Daniels, Commanders maintaining an internal hunger amid high expectations**\
-`Washington's players and coaches say keeping an internal focus on growth will help guard against lofty outside expectations.`\
-https://nytimes.com/athletic/6511300/2025/07/23/commanders-training-camp-nfl-2025-jayden-daniels/
+**A Workout to Train for Everyday Life**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
 
-**In Seeking More on Epstein, Justice Dept.’s No. 2 Official Occupies Unusual Role**\
-`Legal experts said the involvement of Todd Blanche, President Trump’s former lawyer who is now a top official at the Justice Department, was rife with potential pitfalls and complexities.`\
-https://nytimes.com/2025/07/23/us/politics/todd-blanche-epstein-ghislaine-maxwell-trump.html
+**Jim Legxacy Makes Music That Sounds Like Memory**\
+`The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
+https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
 
