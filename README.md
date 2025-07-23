@@ -1,4 +1,4 @@
-**Braves delay Riley's return from IL, Acuña Jr. praises beleaguered hitting coach**\
+**Braves delay Riley's return from IL, Acuña praises beleaguered hitting coach**\
 `The Braves are aiming for Riley to return in Friday's series opener against the Rangers.`\
 https://nytimes.com/athletic/6510121/2025/07/22/braves-austin-riley-tim-hyers-hitting-coach/
 
