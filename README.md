@@ -1,3 +1,15 @@
+**Trump Administration Calls for Limited A.I. Regulation**\
+`In an “A.I. Action Plan,” the White House outlined steps it said would promote American dominance in the fast-growing technology.`\
+https://nytimes.com/2025/07/23/technology/trump-ai-executive-orders.html
+
+**American Convicted of Murder Is Freed by Trump From Venezuela Prison**\
+`The Trump administration said it was protecting Americans unjustly held abroad. One of the rescued men, Dahud Hanid Ortiz, killed three people, according to court documents.`\
+https://nytimes.com/2025/07/23/world/americas/venezuela-american-convicted-murder.html
+
+**Tesla Expected to Report Falling Profit as Car Sales Fall**\
+`Elon Musk has said that robotaxis are the company’s future, but most revenue still comes from cars.`\
+https://nytimes.com/2025/07/23/business/tesla-earnings-elon-musk.html
+
 **Arsenal 1-0 Milan: Nwaneri shines in central role, Gabriel's deputy, and two 15-year-olds feature**\
 `Arsenal kicked off their pre-season with a 1-0 win over Milan in Singapore - here we look at the talking points.`\
 https://nytimes.com/athletic/6510711/2025/07/23/nwaneri-arsenal-singapore-dowman/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6510775/2025/07/23/wnba-labor-espn-nfl-media-moneyc
 **Why Did Bryan Kohberger Kill Four University of Idaho Students?**\
 `Prosecutors have not yet detailed a theory that connects Mr. Kohberger to the victims, who were stabbed in their house.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-motive.html
-
-**Live Updates: Families of Slain Idaho College Students to Face Killer in Court**\
-`It’s unclear if Bryan Kohberger, who accepted a guilty plea and will be sentenced to life in prison, will address the question everyone wants to know: Why did he do it?`\
-https://nytimes.com/live/2025/07/23/us/kohberger-idaho-murders
-
-**Tracking Tropical Storm Francisco**\
-`See the likely path and wind arrival times for Francisco`\
-https://nytimes.com/interactive/2025/07/23/weather/francisco-map-path-tracker.html
-
-**State Dept. Opens Investigation Into Harvard’s Use of International Visas**\
-`The Trump administration has continued to pressure the university despite continuing talks to settle a monthslong dispute over the federal government’s role in higher education.`\
-https://nytimes.com/2025/07/23/us/politics/state-department-trump-harvard.html
 
