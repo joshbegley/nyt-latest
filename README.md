@@ -1,3 +1,7 @@
+**Brighton striker Ferguson joins Roma on loan**\
+`Roma have the option to make the move permanent at the end of the season.`\
+https://nytimes.com/athletic/6510354/2025/07/23/evan-ferguson-brighton-roma-loan/
+
 **Germany vs Spain Euro 2025 semi-final odds, prediction: World champs expected to advance**\
 `Spain remain the clear favourite to win Euro 2025, but Germany, the most successful team in the history of the competition, are no easy foe.`\
 https://nytimes.com/athletic/6508754/2025/07/23/germany-spain-euro-2025-semi-final-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/world/australia/virgin-airlines-plane-battery-fir
 **Long Island Man Planned to Set Off Homemade Bombs in Manhattan, Authorities Say**\
 `The man made several explosive devices using chemicals bought online, placing some on rooftops in New York City before he was arrested, the authorities said.`\
 https://nytimes.com/2025/07/23/nyregion/nyc-homemade-bombs-man-charged.html
-
-**Late Night Watches Trump Try to Change the Subject From Epstein**\
-`The president’s usual tactic when cornered is to “throw red meat to the carnivorous base — and their favorite cut is filet of Obama,” Stephen Colbert said.`\
-https://nytimes.com/2025/07/23/arts/television/late-night-trump-epstein.html
 
