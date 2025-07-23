@@ -1,3 +1,11 @@
+**With Russia and Ukraine to Meet Again, Here’s What to Know About the Peace Talks**\
+`The warring sides are still far apart heading into the third round of U.S.-brokered peace negotiations, set for Wednesday in Istanbul.`\
+https://nytimes.com/2025/07/23/world/europe/russia-ukraine-peace-talks.html
+
+**The New York Times International Edition in Print for Thursday, July 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/23/todays-new-york-times-international-edition
+
 **China Flexes Muscles at U.N. Cultural Agency, Just as Trump Walks Away**\
 `Washington had been a buffer against China’s efforts to use UNESCO to influence education, historical designations and even artificial intelligence.`\
 https://nytimes.com/2025/07/23/world/asia/unesco-china-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/dining/jacques-pepin-birthday.html
 **Louis Vuitton Netherlands Entangled in Money-Laundering Case**\
 `A customer’s cash purchases of luxury goods totaling millions of euros in value caught the attention of prosecutors, who say the company should have noticed.`\
 https://nytimes.com/2025/07/23/world/europe/louis-vuitton-netherlands-money-laundering.html
-
-**Bryan Kohberger to Be Sentenced in Killing of 4 Idaho Students**\
-`The students’ families will have an opportunity to address the court, and many hope for answers to one major question about the brutal case: What was the motive?`\
-https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-idaho-murders.html
-
-**What’s That Splatter on Your Windshield?**\
-`Can you identify what insects are pelting your vehicle during your summer road trip? Take this quiz and see what you can learn from these close encounters.`\
-https://nytimes.com/interactive/2025/07/23/science/23xp-bugquiz.html
 
