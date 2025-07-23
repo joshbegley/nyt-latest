@@ -1,3 +1,7 @@
+**How Many Steps Do You Really Need in a Day?**\
+`A new study identifies the right number to reap the health benefits of walking.`\
+https://nytimes.com/2025/07/23/well/how-many-steps-per-day-health.html
+
 **Iran Warns It Could Exit Nuclear Treaty if Europe Reimposes Sanctions**\
 `The warning from Iran’s deputy foreign minister came days before he is set to travel to Istanbul for nuclear talks with European counterparts.`\
 https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty.html
