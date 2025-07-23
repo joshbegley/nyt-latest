@@ -1,3 +1,7 @@
+**Long Island Man Planned to Set Off Homemade Bombs in Manhattan, Authorities Say**\
+`The man made several explosive devices using chemicals bought online, placing some on rooftops in New York City before he was arrested, the authorities said.`\
+https://nytimes.com/2025/07/23/nyregion/nyc-homemade-bombs-man-charged.html
+
 **Late Night Watches Trump Try to Change the Subject From Epstein**\
 `The president’s usual tactic when cornered is to “throw red meat to the carnivorous base — and their favorite cut is filet of Obama,” Stephen Colbert said.`\
 https://nytimes.com/2025/07/23/arts/television/late-night-trump-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510169/2025/07/23/isaac-paredes-hamstring-injury-a
 **Wednesday Briefing: Israel Expands Gaza Offensive**\
 `Plus, the death of Ozzy Osbourne.`\
 https://nytimes.com/2025/07/23/briefing/wednesday-briefing-israel-expands-gaza-offensive.html
-
-**Brewers' 11-game winning streak snapped in loss to Mariners**\
-`The Brewers’ streak was the second-longest of the MLB season, following the Twins' 13-game win streak from back in May.`\
-https://nytimes.com/athletic/6509424/2025/07/23/brewers-win-streak-ends-11-games/
 
