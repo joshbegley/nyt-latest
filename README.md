@@ -1,3 +1,7 @@
+**TAFC: Is this Europe's best selling club? Plus: Lionesses leave it late again**\
+`Today in TAFC: The German club that has mastered the sale of stars, England's latest late show and artwork of Messi goal sells for $1.87m.`\
+https://nytimes.com/athletic/6510383/2025/07/23/eintracht-frankfurt-england-euro-2025-messi-art/
+
 **Aid Agencies and Rights Groups Warn of ‘Mass Starvation’ in Gaza**\
 `More than 100 organizations blamed Israel’s siege of the territory, adding to growing calls for aid restrictions to be eased and the war to end.`\
 https://nytimes.com/2025/07/23/world/middleeast/aid-groups-gaza-starvation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/podcasts/the-headlines/trump-obama-transgender-yo
 **A D.O.J. Whistleblower Speaks Out**\
 `In a complaint, a former Justice Department lawyer said his former colleagues were being forced to choose between the president’s agenda and their ethical obligations as attorneys.`\
 https://nytimes.com/2025/07/23/podcasts/the-daily/a-doj-whistleblower-speaks-out.html
-
-**'Run that s--- back.' How Nick Sirianni will oversee the reigning Super Bowl champions**\
-`Sirianni said part of the team's motivation to repeat is for the Eagles who weren't here last season.`\
-https://nytimes.com/athletic/6508562/2025/07/23/nick-sirianni-eagles-training-camp-super-bowl-champions/
 

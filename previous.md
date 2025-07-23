@@ -1,3 +1,11 @@
+**Aid Agencies and Rights Groups Warn of ‘Mass Starvation’ in Gaza**\
+`More than 100 organizations blamed Israel’s siege of the territory, adding to growing calls for aid restrictions to be eased and the war to end.`\
+https://nytimes.com/2025/07/23/world/middleeast/aid-groups-gaza-starvation.html
+
+**What we’re hearing: Rays’ relief plans, Luis Robert’s value and awkward phone calls at the deadline**\
+`With eight days left until the July 31 trade deadline, things can quickly shift from one direction to the next as teams win or lose.`\
+https://nytimes.com/athletic/6510085/2025/07/23/mlb-trade-deadline-rays-white-sox-updates/
+
 **Kevin O'Connell's plan for Vikings in 2025? Mold team to be physical, shapeshifting**\
 `“We’ve got to come out (this season) with some real momentum,” O'Connell said Tuesday. "How do you do that? You have a good training camp."`\
 https://nytimes.com/athletic/6509595/2025/07/23/minnesota-vikings-kevin-oconnell/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/podcasts/the-daily/a-doj-whistleblower-speaks-out
 **'Run that s--- back.' How Nick Sirianni will oversee the reigning Super Bowl champions**\
 `Sirianni said part of the team's motivation to repeat is for the Eagles who weren't here last season.`\
 https://nytimes.com/athletic/6508562/2025/07/23/nick-sirianni-eagles-training-camp-super-bowl-champions/
-
-**Wordle Review No. 1,496**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 24, 2025.`\
-https://nytimes.com/2025/07/23/crosswords/wordle-review-1496.html
-
-**Strands Sidekick No. 508**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 24, 2025.`\
-https://nytimes.com/2025/07/23/crosswords/strands-sidekick-508.html
 
