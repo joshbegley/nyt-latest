@@ -1,3 +1,16 @@
+**Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
+`Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
+`\
+https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
+
+**A Workout to Train for Everyday Life**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
+
+**Jim Legxacy Makes Music That Sounds Like Memory**\
+`The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
+https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
+
 **How Epstein Has Consumed Washington, From the White House to Congress and Beyond**\
 `The case of Jeffrey Epstein, sex offender and former friend of the president, has blown up into a major headache for the White House.`\
 https://nytimes.com/2025/07/23/us/politics/epstein-washington.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6511260/2025/07/23/bears-training-camp-observations
 **Patriots aren't hiding from woes of last two years: 'Guys here are tired of losing'**\
 `The Patriots kicked off training camp Wednesday with a sense of optimism that Mike Vrabel and Drake Maye can lead their turnaround.`\
 https://nytimes.com/athletic/6511309/2025/07/23/patriots-training-camp-drake-maye-mike-vrabel/
-
-**Trump Administration Illegally Withheld Head Start Funds, Watchdog Finds**\
-`It’s the third time this year that investigators from the Government Accountability Office have determined the administration defied Congress on spending.`\
-https://nytimes.com/2025/07/23/us/politics/trump-head-start-government-accountability-office.html
-
-**These Lemon-Poppy Seed Bars Are the Stuff of Dreams**\
-`These easy treats balance buttery shortbread and tangy curd.`\
-https://nytimes.com/2025/07/23/dining/easy-lemon-poppy-seed-bars.html
-
-**FEMA’s director defends the response to Texas flooding during a hearing with lawmakers.**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2025/07/23/us/trump-news/fema-director-defends-response-to-texas-flooding-during-a-hearing-with-lawmakers
 

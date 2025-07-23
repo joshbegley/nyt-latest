@@ -1,3 +1,15 @@
+**How Epstein Has Consumed Washington, From the White House to Congress and Beyond**\
+`The case of Jeffrey Epstein, sex offender and former friend of the president, has blown up into a major headache for the White House.`\
+https://nytimes.com/2025/07/23/us/politics/epstein-washington.html
+
+**gws-silvia-moreno-garcia-interview-the-bewitching**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/silvia-moreno-garcia-interview-the-bewitching
+
+**Plane in Alaska Crash Was Overloaded With Moose Meat and Antlers, N.T.S.B. Says**\
+`Investigators have released an inquiry into the fatal crash in a mountainous area, where Eugene Peltola Jr., the husband of former U.S. Representative Mary Peltola, was killed in 2023.`\
+https://nytimes.com/2025/07/23/us/politics/plane-crash-peltola-alaska-antlers.html
+
 **Young joins Ipswich following Everton exit**\
 `Young, 40, left Everton this summer after the conclusion of his contract.`\
 https://nytimes.com/athletic/6510939/2025/07/23/ashley-young-ipswich-transfer/
