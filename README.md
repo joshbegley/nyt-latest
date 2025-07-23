@@ -1,3 +1,11 @@
+**Iran Warns It Could Exit Nuclear Treaty if Europe Reimposes Sanctions**\
+`The warning from Iran’s deputy foreign minister came days before he is set to travel to Istanbul for nuclear talks with European counterparts.`\
+https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty.html
+
+**Anthony Richardson, Daniel Jones struggle to find rhythm on Day 1 of Colts QB battle**\
+`Neither Richardson nor Jones impressed on the first day of Colts training camp. `\
+https://nytimes.com/athletic/6511647/2025/07/23/anthony-richardson-daniel-jones-colts-qb-battle/
+
 **6 Takeaways From Idaho Killer’s Sentencing Hearing**\
 `A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/23/briefing/trump-name-eptein-protests-ukraine-ozzy-
 **House Panel Votes to Subpoena Justice Dept. for Epstein Files**\
 `Three Republicans joined with five Democrats to support the motion.`\
 https://nytimes.com/2025/07/23/us/politics/house-subpoena-justice-dept-epstein-files.html
-
-**Edison Utility Company Creates Fund for Eaton Fire Victims**\
-`California officials have not yet determined whether Southern California Edison caused the fire, which killed 17 people and destroyed thousands of properties.`\
-https://nytimes.com/2025/07/23/business/energy-environment/edison-eaton-fire-fund-los-angeles.html
-
-**Unified on Trump and Tariffs, Canada’s Premiers Differ on Next Steps**\
-`A three-day meeting in response to President Trump’s looming tariff threat underscored differences between the leaders of Canada’s provinces and territories.`\
-https://nytimes.com/2025/07/23/world/canada/canada-premiers-trade-trump-tariffs-carney.html
 
