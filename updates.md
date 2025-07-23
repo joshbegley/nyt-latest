@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the Royals, Twins and Astros' trade deadline plans and more**\
+`The Royals are making it clear to clubs that any deal for pitcher Seth Lugo would require controllable outfield help in return.`\
+https://nytimes.com/athletic/6510086/2025/07/23/mlb-trade-deadline-royals-twins-astros/
+
 **The Pulse: The most overrated team in the NFL?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6509332/2025/07/23/nfl-underrated-overrated-teams-the-pulse/

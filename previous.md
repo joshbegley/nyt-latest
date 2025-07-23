@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the Royals, Twins and Astros' trade deadline plans and more**\
+`The Royals are making it clear to clubs that any deal for pitcher Seth Lugo would require controllable outfield help in return.`\
+https://nytimes.com/athletic/6510086/2025/07/23/mlb-trade-deadline-royals-twins-astros/
+
 **The Pulse: The most overrated team in the NFL?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6509332/2025/07/23/nfl-underrated-overrated-teams-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/business/trump-trade-japan-election.html
 **Ryder Cup roster projection: Who will make the U.S., Europe teams?**\
 `There are more contenders than there are places on the team for both squads, making the next month potentially very interesting.`\
 https://nytimes.com/athletic/6509141/2025/07/23/ryder-cup-2025-roster-projection-us-europe/
-
-**CeeDee Lamb, Kyle Hamilton highlight NFL's 10 most versatile players: Nguyen**\
-`From a sack master nose tackle to a weapon in both the slot and outside, these players give their coordinators Swiss Army knives.`\
-https://nytimes.com/athletic/6499077/2025/07/23/nfl-most-versatile-lamb-kittle-mccaffrey/
 
