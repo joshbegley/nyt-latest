@@ -1,3 +1,11 @@
+**These Lemon-Poppy Seed Bars Are the Stuff of Dreams**\
+`These easy treats balance buttery shortbread and tangy curd.`\
+https://nytimes.com/2025/07/23/dining/easy-lemon-poppy-seed-bars.html
+
+**FEMA director defends response to Texas flooding during a hearing with lawmakers.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2025/07/23/us/trump-news/fema-director-defends-response-to-texas-flooding-during-a-hearing-with-lawmakers
+
 **What’s in Our Queue? DIIV and More**\
 `Text by Qasim Nauman`\
 https://nytimes.com/card/2025/07/23/arts/editors-recommendations-diiv
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6511120/2025/07/23/jets-training-camp-practice-repo
 **I Want This Poem Read Aloud at My Funeral**\
 `Jane Kenyon’s “The Pond at Dusk” is a quiet, mischievous reckoning with nature and mortality. Our critic A.O. Scott plumbs its depths.`\
 https://nytimes.com/interactive/2025/07/23/books/jane-kenyon-the-pond-at-dusk-poem.html
-
-**Does the World Court’s Sweeping Climate Opinion Matter? Five Takeaways.**\
-`While the court doesn’t have enforcement mechanisms, it has a prominent voice, and its legal arguments could reverberate.`\
-https://nytimes.com/2025/07/23/climate/icj-world-court-climate-opinion-takeaways.html
-
-**U.S. Homes Are Not Selling, and Prices Continue to Rise**\
-`June, usually the height of the spring housing season, saw sales of existing homes drop from the previous month, according to the National Association of Realtors.`\
-https://nytimes.com/2025/07/23/realestate/home-sales-drop-prices-rise.html
 

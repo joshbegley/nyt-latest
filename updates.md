@@ -1,3 +1,11 @@
+**These Lemon-Poppy Seed Bars Are the Stuff of Dreams**\
+`These easy treats balance buttery shortbread and tangy curd.`\
+https://nytimes.com/2025/07/23/dining/easy-lemon-poppy-seed-bars.html
+
+**FEMA director defends response to Texas flooding during a hearing with lawmakers.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2025/07/23/us/trump-news/fema-director-defends-response-to-texas-flooding-during-a-hearing-with-lawmakers
+
 **What’s in Our Queue? DIIV and More**\
 `Text by Qasim Nauman`\
 https://nytimes.com/card/2025/07/23/arts/editors-recommendations-diiv
