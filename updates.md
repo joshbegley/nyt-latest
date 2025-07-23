@@ -1,3 +1,15 @@
+**2025 IDP rankings and draft strategy: The Travis Hunter dilemma and more**\
+`Gary Davenport gives his top 100 IDP players and draft strategy advice. `\
+https://nytimes.com/athletic/6508990/2025/07/23/2025-idp-rankings-draft-strategy-hunter/
+
+**NASCAR at Naval Base Coronado: What we know about the San Diego street race**\
+`NASCAR's San Diego street race will take place at Naval Base Coronado, the league announced Wednesday. Here's what we know.`\
+https://nytimes.com/athletic/6510013/2025/07/23/nascar-san-diego-naval-base-coronado/
+
+**Escaping the Cycle of Perfectionism**\
+`We asked therapists and researchers for the best books on learning to let go.`\
+https://nytimes.com/2025/07/23/well/perfectionist-books.html
+
 **French Lentil Salad Forever**\
 `It’s one of our most popular new recipes of 2025 for a reason (that reason being it’s easy, versatile and very delicious).`\
 https://nytimes.com/2025/07/23/dining/healthy-french-lentil-salad-recipe.html
