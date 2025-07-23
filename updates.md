@@ -1,3 +1,11 @@
+**Zelig Eshhar, Who Engineered Immune Cells to Fight Cancer, Dies at 84**\
+`He made a conceptual leap in immunotherapy by creating a hybrid T-cell, known as CAR-T, that was genetically modified to destroy cancer cells.`\
+https://nytimes.com/2025/07/23/science/zelig-eshhar-dead.html
+
+**Why Did Bryan Kohberger Kill Four University of Idaho Students?**\
+`Prosecutors have not yet detailed a theory that connects Mr. Kohberger to the victims, who were stabbed in their house.`\
+https://nytimes.com/2025/07/23/us/bryan-kohberger-motive.html
+
 **The simple solution to solve the WNBA's looming 'Pay Us' labor crisis: MoneyCall**\
 `More in this week's sports-business cheat sheet: ESPN x NFL media deal, colleges turning down money, Dave Portnoy vs. Pat McAfee and more.`\
 https://nytimes.com/athletic/6510775/2025/07/23/wnba-labor-espn-nfl-media-moneycall/
