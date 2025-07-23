@@ -1,3 +1,7 @@
+**The ‘Home of Heavy Metal’ Mourns Ozzy Osbourne**\
+`In Birmingham, England, the singer’s hometown, fans paid tribute by leaving flowers, beer and tequila. The rapper Drake was there to pay his respects, too.`\
+https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-birmingham.html
+
 **Union chief Marchi slams FIFA's Infantino and highlights player issues**\
 `The FIFPro boss was scathing in his criticism of soccer's most powerful figure.`\
 https://nytimes.com/athletic/6509871/2025/07/23/infantino-marchi-fifa-fifpro-union/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510311/2025/07/23/joe-ryan-starter-trade-deadline-
 **Global Markets Rally on Japan Deal Euphoria**\
 `But more big tests loom with trade talks still continuing between the Trump administration and counterparts in China and the European Union.`\
 https://nytimes.com/2025/07/23/business/dealbook/markets-rally-japan-deal.html
-
-**Tottenham's Raso in talks over Benfica transfer**\
-`Raso joined Tottenham last summer from Real Madrid but the club endured a difficult 2024-25 campaign.`\
-https://nytimes.com/athletic/6510442/2025/07/23/hayley-raso-tottenham-benfica-transfer/
 

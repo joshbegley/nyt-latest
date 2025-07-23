@@ -1,3 +1,7 @@
+**The ‘Home of Heavy Metal’ Mourns Ozzy Osbourne**\
+`In Birmingham, England, the singer’s hometown, fans paid tribute by leaving flowers, beer and tequila. The rapper Drake was there to pay his respects, too.`\
+https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-birmingham.html
+
 **Union chief Marchi slams FIFA's Infantino and highlights player issues**\
 `The FIFPro boss was scathing in his criticism of soccer's most powerful figure.`\
 https://nytimes.com/athletic/6509871/2025/07/23/infantino-marchi-fifa-fifpro-union/
