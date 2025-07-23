@@ -1,41 +1,40 @@
-**Broncos' Bo Nix seeks out Drew Brees to help spark Year 2 jump**\
-`Broncos coach Sean Payton says contract extensions with a handful of marquee players are "being worked on" as training camp begins.`\
-https://nytimes.com/athletic/6511302/2025/07/23/bo-nix-brees-broncos-training-camp/
+**Justin Bieber’s Return to Soul**\
+`His new album, “Swag,” takes Bieber away from his pop-star-by-numbers past into a more exciting and collaborative future.`\
+https://nytimes.com/video/podcasts/100000010297343/popcast-sotw-justin-bieber-daisies.html
 
-**Our 25 Most Popular Recipes of the Year So Far**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/popular-recipes-2025
+**Why Bengals' 'Day 20' left one notable impression in defensive rebuild  **\
+`Logic says Joe Burrow and the high-powered offense would dominate training camp. That wasn't the case on Wednesday.`\
+https://nytimes.com/athletic/6511420/2025/07/23/bengals-training-camp-al-golden-defense/
 
-**gws-corfu-greece-minimalist-concrete-house**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/corfu-greece-minimalist-concrete-house
+**Republicans Are Breaking With Trump Over Epstein Files, Polls Show**\
+`The president’s avid followers have backed him through many controversies. But more than a third of Republicans disapprove of his handling of the files related to Jeffrey Epstein.`\
+https://nytimes.com/2025/07/23/us/politics/epstein-trump-republicans.html
 
-**Kennedy Rescinds Endorsements for Some Flu Vaccines**\
-`Federal guidelines no longer recommend flu vaccines containing a preservative, used in a small percentage of vaccines, that has been falsely linked to autism.`\
-https://nytimes.com/2025/07/23/health/rfk-jr-flu-vaccines-thimerosal.html
+**Guard at U.S. Embassy in Norway Charged With Spying for Russia and Iran**\
+`A Norwegian man has been accused of leaking sensitive information about U.S. embassy staff members and threatening Norway’s national interests, according to prosecutors.`\
+https://nytimes.com/2025/07/23/world/europe/norway-spying-russia-iran.html
 
-**Idaho Killer Is Sentenced to 4 Consecutive Life Terms**\
-`Brian Kohberger, who plead guilty to killing four Idaho college students, was sentenced to four consecutive life sentences. Friends and family members of the victims wept as they gave impact statements in a Boise courtroom.`\
-https://nytimes.com/video/us/100000010301903/idaho-sentencing-bryan-kohberger.html
+**Our 2025-26 Student Contest Calendar**\
+`Eight challenges that invite teenagers to engage, experiment, reflect and create — via writing, photography, audio, video and more.`\
+https://nytimes.com/2025/07/23/learning/our-2025-26-student-contest-calendar.html
 
-**Chelsea in talks with Ajax over move for defender Hato**\
-`The 19-year-old has been the subject of interest from a number of Premier League clubs.`\
-https://nytimes.com/athletic/6496268/2025/07/23/jorrel-hato-chelsea-transfers/
+**SCORE Act advances through committee, farthest any college sports bill has gotten in Congress**\
+`The soonest a vote could happen is in the fall Congressional session starting in September, with summer recess looming.`\
+https://nytimes.com/athletic/6511289/2025/07/23/score-act-congress-college-sports/
 
-**Liam Dawson and the near 3,000 day wait to be an England Test cricketer again**\
-`Competitive and a consumate professional - the Hampshire all-rounder made a triumphant return to Test cricket against India`\
-https://nytimes.com/athletic/6511317/2025/07/23/liam-dawson-england-comeback-india/
+**Read the French President’s Lawsuit**\
+`The French president, Emmanuel Macron, and his wife, Brigitte Macron, filed a defamation suit on Wednesday against an American right-wing podcaster who claimed Ms. Macron is actually a man.`\
+https://nytimes.com/interactive/2025/07/23/world/europe/23int-macron-defemation-suit.html
 
-**Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
-`Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
-`\
-https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
+**Eagles training camp: Nakobe Dean placed on PUP, Jihaad Campbell returns**\
+`Cooper DeJean played some safety on Day 1 of training camp, while Kelee Ringo had a rough at cornerback.`\
+https://nytimes.com/athletic/6511067/2025/07/23/eagles-training-camp-dean-campbell-dejean/
 
-**A Workout to Train for Everyday Life**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/functional-fitness-exercises
+**Macrons Sue Candace Owens, Right-Wing Podcaster, Claiming Defamation**\
+`The suit seeks damages after the podcaster claimed Brigitte Macron is a man. The French president and his wife said the statement caused “pain to us and our families.”`\
+https://nytimes.com/2025/07/23/world/europe/macron-lawsuit-candace-owens-defamation.html
 
-**Jim Legxacy Makes Music That Sounds Like Memory**\
-`The new album from the London rapper, singer and producer is a homage to the last two decades of Black British music.`\
-https://nytimes.com/2025/07/23/arts/music/jim-legxacy-black-british-music.html
+**The Many Political Interpretations of Martin Luther King Jr.’s Legacy**\
+`The release of National Archives documents is the latest attempt to define what the Civil Rights icon believed, and what that means now for the country.`\
+https://nytimes.com/2025/07/23/us/martin-luther-king-mlk-legacy-politics-national-archives.html
 
