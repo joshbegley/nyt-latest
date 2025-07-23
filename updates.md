@@ -1,3 +1,7 @@
+**T.J. Watt is trusting Steelers GM Omar Khan to end his postseason drought**\
+`Watt hasn't won a playoff game, much less a Super Bowl, in eight seasons, but he thinks the Steelers' aggressive approach can change that.`\
+https://nytimes.com/athletic/6511863/2025/07/23/tj-watt-omar-khan-steelers/
+
 **49ers' big — and big-bodied — rookie D-lineman draw a crowd at training camp**\
 `One of the standouts of the opening day of camp: receiver Jauan Jennings, who isn't waging the sort of "hold in" Brandon Aiyuk did last year`\
 https://nytimes.com/athletic/6511823/2025/07/23/49ers-training-camp-rookies-collins-williams/

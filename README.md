@@ -26,7 +26,7 @@ https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty
 `Neither Richardson nor Jones impressed on the first day of Colts training camp. `\
 https://nytimes.com/athletic/6511647/2025/07/23/anthony-richardson-daniel-jones-colts-qb-battle/
 
-**6 Takeaways From Idaho Killer’s Sentencing Hearing**\
-`A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
+**5 Takeaways From the Idaho Killer’s Sentencing**\
+`Victims’ relatives wept and berated the killer, Bryan Kohberger, before he was sent to prison, though a few offered forgiveness. Investigators dispelled popular rumors about the case.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
 
