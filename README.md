@@ -1,3 +1,7 @@
+**Part of a Chain**\
+`Joseph Gangi exchanges letters with us.`\
+https://nytimes.com/2025/07/22/crosswords/daily-puzzle-2025-07-23.html
+
 **Alden Global Capital Makes a Play for The Dallas Morning News**\
 `The investment firm’s MediaNews Group, the country’s second-largest newspaper publisher, put in a bid for the publication nearly two weeks after Hearst agreed to buy it.`\
 https://nytimes.com/2025/07/22/business/media/dallas-morning-news-alden-global-capital.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
 **How Native Homes in New Mexico Are Tapping the Sun**\
 `An Indigenous-led nonprofit group is bringing solar power to Navajo Nation and the Hopi tribe, where about 15,000 households lack access to electricity.`\
 https://nytimes.com/2025/07/22/climate/new-mexico-navajo-power.html
-
-**Grizzlies Were Raiding Montana Farms. Then Came Some Formidable Dogs.**\
-`Bears have recently acquired a fondness for the good eating found around grain bins on Montana’s plains. That’s a big problem for humans and grizzlies alike.`\
-https://nytimes.com/2025/07/22/climate/montana-grizzly-bears-guard-dogs.html
 
