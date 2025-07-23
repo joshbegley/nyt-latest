@@ -1,6 +1,10 @@
+**Browns place Deshaun Watson on physically unable to perform list**\
+`Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
+https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
+
 **Death Toll From L.A. Fires Reaches 31 After Remains Are Found**\
 `More than six months after the fires, officials determined that another person had died in Altadena.`\
-https://nytimes.com/2025/07/22/us/death-toll-from-la-fires-reaches-31-after-remains-are-found.html
+https://nytimes.com/2025/07/22/us/los-angeles-fires-victim.html
 
 **Chargers training camp report, Day 5: Khalil Mack proves he is still a 'game-wrecker'**\
 `Mack dominated the Chargers' first practice in pads as training camp shifted to the University of San Diego for the first of two days.`\
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piec
 `Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
 https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
 
-**Trump Says U.S. Has Reached Trade Deal With Japan**\
+**U.S. Reaches Trade Deal With Japan**\
 `The president said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
 https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/22/climate/montana-grizzly-bears-guard-dogs.html
 **North Carolina’s Bogs Have a Dirty Secret, and That’s a Good Thing**\
 `Peat bogs have huge potential to store planet-warming carbon. The ones in North Carolina just need some help to get healthy again.`\
 https://nytimes.com/2025/07/22/climate/north-carolina-peat-restoration.html
-
-**In New Jersey, Benefits Bloom in Tiny Forests**\
-`A nonprofit planted five “microforests” to tackle environmental problems in Elizabeth, N.J. Scientists say they’re making a big difference.`\
-https://nytimes.com/2025/07/22/climate/new-jersey-tiny-forests.html
 
