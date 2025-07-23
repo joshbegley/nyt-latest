@@ -1,3 +1,7 @@
+**What we’re hearing: Rays’ relief plans, Luis Robert’s value and awkward phone calls at the deadline**\
+`With eight days left until the July 31 trade deadline, things can quickly shift from one direction to the next as teams win or lose.`\
+https://nytimes.com/athletic/6510085/2025/07/23/mlb-trade-deadline-rays-white-sox-updates/
+
 **Kevin O'Connell's plan for Vikings in 2025? Mold team to be physical, shapeshifting**\
 `“We’ve got to come out (this season) with some real momentum,” O'Connell said Tuesday. "How do you do that? You have a good training camp."`\
 https://nytimes.com/athletic/6509595/2025/07/23/minnesota-vikings-kevin-oconnell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508562/2025/07/23/nick-sirianni-eagles-training-ca
 **Wordle Review No. 1,496**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 24, 2025.`\
 https://nytimes.com/2025/07/23/crosswords/wordle-review-1496.html
-
-**Strands Sidekick No. 508**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 24, 2025.`\
-https://nytimes.com/2025/07/23/crosswords/strands-sidekick-508.html
 
