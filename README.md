@@ -1,3 +1,7 @@
+**Ty Dillon on NASCAR's In-Season Challenge, mid-field drivers and more: 12 Questions**\
+`Ty Dillon talks about his run through NASCAR's in-season tournament, why there should be more focus on mid-pack drivers and more.`\
+https://nytimes.com/athletic/6508987/2025/07/23/nascar-ty-dillon-in-season-challenge-12-questions/
+
 **The words that should fuel Giants coach Brian Daboll throughout training camp**\
 `New York has looked outclassed and overmatched in Week 1 each of the past two seasons. What can Daboll do during camp to turn things around?`\
 https://nytimes.com/athletic/6510026/2025/07/23/ny-giants-brian-daboll-training-camp-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509033/2025/07/23/mandels-mailbag-playoff-sec-team
 **NHL offseason concern-o-meter: Karlsson trade market, McDavid contract and more**\
 `Plus the Blackhawks’ rebuild and quiet free agency, the Mitch Marner-sized hole in the Maple Leafs lineup, the NHL's growth and much more.`\
 https://nytimes.com/athletic/6509541/2025/07/23/nhl-offseason-erik-karlsson-trade-connor-mcdavid-contract/
-
-**Re-drafting the 2022 NHL Draft: Logan Cooley, Lane Hutson lead Wheeler’s do-over**\
-`Scott Wheeler provides updated evaluations of the top players in the 2022 draft class and breaks down what he got right and wrong.`\
-https://nytimes.com/athletic/6485550/2025/07/23/nhl-draft-lane-hutson-logan-cooley-2022-rerank/
 

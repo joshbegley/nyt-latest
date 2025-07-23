@@ -1,3 +1,11 @@
+**The words that should fuel Giants coach Brian Daboll throughout training camp**\
+`New York has looked outclassed and overmatched in Week 1 each of the past two seasons. What can Daboll do during camp to turn things around?`\
+https://nytimes.com/athletic/6510026/2025/07/23/ny-giants-brian-daboll-training-camp-week-1/
+
+**Bengals 53-man roster projection: Guard battles, D-line uncertainty as camp begins**\
+`The high-profile offensive skill positions are set but several other spots are still up for grabs in training camp.`\
+https://nytimes.com/athletic/6509875/2025/07/23/bengals-53-man-roster-projection-2025/
+
 **Zelensky Faces Criticism Over Effort to Rein In Corruption Agencies**\
 `President Volodymyr Zelensky signed a bill limiting two Ukrainian agencies leading efforts against corruption. Critics say it was an overstepping of his authority.`\
 https://nytimes.com/2025/07/23/world/europe/zelensky-protests-ukraine-corruption.html
