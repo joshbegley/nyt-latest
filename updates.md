@@ -1,3 +1,7 @@
+**Is Marcus Smart the missing piece for the Lakers? He thinks so**\
+`After two seasons derailed by injuries, Smart is eyeing a bounce-back with the Lakers: "I think there's no ceiling."`\
+https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piece/
+
 **Trump Says U.S. Has Reached Trade Deal With Japan**\
 `The president said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
 https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html

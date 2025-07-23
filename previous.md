@@ -1,3 +1,7 @@
+**Is Marcus Smart the missing piece for the Lakers? He thinks so**\
+`After two seasons derailed by injuries, Smart is eyeing a bounce-back with the Lakers: "I think there's no ceiling."`\
+https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piece/
+
 **Ozzy Started With Style, and Built From There**\
 `Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
 https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/22/climate/pennsylvania-pittsburgh-light-pollution.h
 **Federal Prosecutors Close Inquiry Into Co-Founder of Kraken Crypto Exchange**\
 `The F.B.I. had raided the home of Jesse Powell in 2023 as part of an investigation into claims that he hacked into the online accounts of a nonprofit.`\
 https://nytimes.com/2025/07/22/technology/jesse-powell-kraken-verge-investigation.html
-
-**How to Stay Safe From Rip Currents, and What to Do if You’re Caught in One**\
-`From land, a rip current can appear relatively calm, as a strip of water that extends out between breaking waves. Its appearance can be deceiving.`\
-https://nytimes.com/article/rip-current-survival-escape-tips.html
 
