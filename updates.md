@@ -1,3 +1,15 @@
+**Alden Global Capital Makes a Play for The Dallas Morning News**\
+`The investment firm’s MediaNews Group, the country’s second-largest newspaper publisher, put in a bid for the publication nearly two weeks after Hearst agreed to buy it.`\
+https://nytimes.com/2025/07/22/business/media/dallas-morning-news-alden-global-capital.html
+
+**Browns place QB Deshaun Watson on physically unable to perform list**\
+`Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
+https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
+
+**MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills challenge**\
+`Some of the biggest names expected to take part in the MLS All-Star Game festivities haven't arrived in Austin `\
+https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
+
 **Browns place Deshaun Watson on physically unable to perform list**\
 `Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
 https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
