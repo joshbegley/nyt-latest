@@ -1,3 +1,7 @@
+**Trump Says U.S. Has Reached Trade Deal With Japan**\
+`The president said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
+https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
+
 **Ozzy Started With Style, and Built From There**\
 `Osbourne and Black Sabbath pioneered a horror-inspired heavy metal look that was an alternative to the colorful tie-dye of the hippies, and a prototype of things to come.`\
 https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
