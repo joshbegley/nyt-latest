@@ -1,3 +1,7 @@
+**Barcelona and Marcus Rashford: How we got here and why it makes sense**\
+`The club were in need of an affordable way to improve their forward options and the England international had to leave Manchester United`\
+https://nytimes.com/athletic/6505461/2025/07/23/marcus-rashford-barcelona-man-united/
+
 **Energy Dept. Cancels Loan Commitment to Contested Transmission Project**\
 `The project, known as Grain Belt Express, had drawn fierce opposition from some landowners and Republican lawmakers.`\
 https://nytimes.com/2025/07/23/climate/grain-belt-express-energy-department-loan.html

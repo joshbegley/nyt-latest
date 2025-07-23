@@ -1,3 +1,7 @@
+**Barcelona and Marcus Rashford: How we got here and why it makes sense**\
+`The club were in need of an affordable way to improve their forward options and the England international had to leave Manchester United`\
+https://nytimes.com/athletic/6505461/2025/07/23/marcus-rashford-barcelona-man-united/
+
 **Energy Dept. Cancels Loan Commitment to Contested Transmission Project**\
 `The project, known as Grain Belt Express, had drawn fierce opposition from some landowners and Republican lawmakers.`\
 https://nytimes.com/2025/07/23/climate/grain-belt-express-energy-department-loan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/magazine/rich-friends-fleeing-country-ethics.html
 **Submit your Mets questions for the Will Sammon and Tim Britton mailbag**\
 `Submit your Mets questions for the Will Sammon and Tim Britton mailbag`\
 https://nytimes.com/athletic/6511135/2025/07/23/mets-mailbag-mlb-trade-deadline-2/
-
-**A Pill for Sleep Apnea Could Be on the Horizon**\
-`Experts say that if the new drug gets approved, it may lead to a big shift in how we treat the condition.`\
-https://nytimes.com/2025/07/23/well/apnimed-sleep-apnea-clinical-trial-ad109.html
 
