@@ -1,3 +1,7 @@
+**MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills competition**\
+`Some of the biggest names expected to take part in the MLS All-Star Game festivities have been late no-shows`\
+https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
+
 **Is Marcus Smart the missing piece for the Lakers? He thinks so**\
 `After two seasons derailed by injuries, Smart is eyeing a bounce-back with the Lakers: "I think there's no ceiling."`\
 https://nytimes.com/athletic/6509915/2025/07/22/marcus-smart-lakers-missing-piece/
