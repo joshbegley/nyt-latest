@@ -1,3 +1,11 @@
+**State Takeover of New Jersey Police Department Was Lawful, Court Rules**\
+`The State Supreme Court decision, overturning an earlier ruling, will allow the New Jersey attorney general to maintain control over the troubled Paterson Police Department.`\
+https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.html
+
+**Biting a Bat and 5 Other Wild Moments from Ozzy Osbourne’s Life**\
+`Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
+https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html
+
 **2025 IDP rankings and draft strategy: The Travis Hunter dilemma and more**\
 `Gary Davenport gives his top 100 IDP players and draft strategy advice. `\
 https://nytimes.com/athletic/6508990/2025/07/23/2025-idp-rankings-draft-strategy-hunter/

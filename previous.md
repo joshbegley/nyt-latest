@@ -1,3 +1,11 @@
+**State Takeover of New Jersey Police Department Was Lawful, Court Rules**\
+`The State Supreme Court decision, overturning an earlier ruling, will allow the New Jersey attorney general to maintain control over the troubled Paterson Police Department.`\
+https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.html
+
+**Biting a Bat and 5 Other Wild Moments from Ozzy Osbourne’s Life**\
+`Alcohol and drugs were often involved in funny, bizarre and terrible incidents in the heavy metal legend’s long career.`\
+https://nytimes.com/2025/07/23/arts/music/ozzy-osbourne-wildest-moments.html
+
 **2025 IDP rankings and draft strategy: The Travis Hunter dilemma and more**\
 `Gary Davenport gives his top 100 IDP players and draft strategy advice. `\
 https://nytimes.com/athletic/6508990/2025/07/23/2025-idp-rankings-draft-strategy-hunter/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/science/meta-computer-wristband-reardon.html
 **‘Washington Black’ Review: Escape to the Future**\
 `A Hulu mini-series adapts Esi Edugyan’s prizewinning novel about a young enslaved worker’s literal and symbolic flight to freedom and peace of mind.`\
 https://nytimes.com/2025/07/23/arts/television/washington-black-review.html
-
-**Something Like Feathers Grew on a 247-Million-Year-Old Reptile**\
-`The discovery, in a bizarre animal not closely related to birds, could change how scientists think about the origin of feathers.`\
-https://nytimes.com/2025/07/23/science/archaeology-feathers-dinosaurs-mirasaura.html
-
-**There’s Fungus Among Us. But Where Exactly?**\
-`A new global atlas of underground fungi suggests that some surprising biodiversity hot spots lie hidden beneath our feet.`\
-https://nytimes.com/2025/07/23/science/fungus-spun-atlas-mychorrhizal.html
 
