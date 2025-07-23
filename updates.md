@@ -1,3 +1,8 @@
+**Commanders' Bobby Wagner joins Seattle Storm ownership as WNBA momentum builds**\
+`Wagner is joining the Storm’s ownership group, becoming the latest pro athlete to invest in the surging league.
+`\
+https://nytimes.com/athletic/6511314/2025/07/23/commanders-bobby-wagner-invests-seattle-storm/
+
 **Broncos' Bo Nix seeks out Drew Brees to help spark Year 2 jump**\
 `Broncos coach Sean Payton says contract extensions with a handful of marquee players are "being worked on" as training camp begins.`\
 https://nytimes.com/athletic/6511302/2025/07/23/bo-nix-brees-broncos-training-camp/
