@@ -1,3 +1,7 @@
+**Zelensky Faces Criticism Over Effort to Rein In Corruption Agencies**\
+`President Volodymyr Zelensky signed a bill limiting two Ukrainian agencies leading efforts against corruption. Critics say it was an overstepping of his authority.`\
+https://nytimes.com/2025/07/23/world/europe/zelensky-protests-ukraine-corruption.html
+
 **Yankees’ trade deadline strategy clouded by Cam Schlittler's hot start**\
 `The Yankees need to decide if they’re comfortable trading Cam Schlittler's potentially bright future for present upgrades.`\
 https://nytimes.com/athletic/6510178/2025/07/23/yankees-cam-schlittler-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6485550/2025/07/23/nhl-draft-lane-hutson-logan-cool
 **A future conference realignment winner? Why UNC football is more valuable than you think**\
 `UNC could be attractive to both the Big Ten and the SEC in the future. It's not because of football success ... or Bill Belichick.`\
 https://nytimes.com/athletic/6507342/2025/07/23/north-carolina-conference-realignment-college-football/
-
-**Georgia's Gunner Stockton has his skeptics, but is it too early to judge?**\
-`A game and a half of play has some doubting, or at least wondering, if Stockton is the answer for Georgia at quarterback.`\
-https://nytimes.com/athletic/6508522/2025/07/23/georgia-gunner-stockton-2025-outlook/
 

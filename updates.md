@@ -1,3 +1,7 @@
+**Zelensky Faces Criticism Over Effort to Rein In Corruption Agencies**\
+`President Volodymyr Zelensky signed a bill limiting two Ukrainian agencies leading efforts against corruption. Critics say it was an overstepping of his authority.`\
+https://nytimes.com/2025/07/23/world/europe/zelensky-protests-ukraine-corruption.html
+
 **Yankees’ trade deadline strategy clouded by Cam Schlittler's hot start**\
 `The Yankees need to decide if they’re comfortable trading Cam Schlittler's potentially bright future for present upgrades.`\
 https://nytimes.com/athletic/6510178/2025/07/23/yankees-cam-schlittler-trade-deadline/
