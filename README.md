@@ -1,3 +1,15 @@
+**2025 IDP rankings and draft strategy: The Travis Hunter dilemma and more**\
+`Gary Davenport gives his top 100 IDP players and draft strategy advice. `\
+https://nytimes.com/athletic/6508990/2025/07/23/2025-idp-rankings-draft-strategy-hunter/
+
+**NASCAR at Naval Base Coronado: What we know about the San Diego street race**\
+`NASCAR's San Diego street race will take place at Naval Base Coronado, the league announced Wednesday. Here's what we know.`\
+https://nytimes.com/athletic/6510013/2025/07/23/nascar-san-diego-naval-base-coronado/
+
+**Escaping the Cycle of Perfectionism**\
+`We asked therapists and researchers for the best books on learning to let go.`\
+https://nytimes.com/2025/07/23/well/perfectionist-books.html
+
 **French Lentil Salad Forever**\
 `It’s one of our most popular new recipes of 2025 for a reason (that reason being it’s easy, versatile and very delicious).`\
 https://nytimes.com/2025/07/23/dining/healthy-french-lentil-salad-recipe.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/23/science/archaeology-feathers-dinosaurs-mirasaura.
 **There’s Fungus Among Us. But Where Exactly?**\
 `A new global atlas of underground fungi suggests that some surprising biodiversity hot spots lie hidden beneath our feet.`\
 https://nytimes.com/2025/07/23/science/fungus-spun-atlas-mychorrhizal.html
-
-**Trump Administration Plans to Speed Up A.I. Development**\
-`In an “A.I. Action Plan,” the White House outlined steps it said would promote American dominance in the fast-growing technology.`\
-https://nytimes.com/2025/07/23/technology/trump-ai-executive-orders.html
-
-**American Convicted of Murder Is Freed by Trump From Venezuela Prison**\
-`The Trump administration said it was protecting Americans unjustly held abroad. One of the rescued men, Dahud Hanid Ortiz, killed three people, according to court documents.`\
-https://nytimes.com/2025/07/23/world/americas/venezuela-american-convicted-murder.html
-
-**Tesla Expected to Report Falling Profit as Car Sales Fall**\
-`Elon Musk has said that robotaxis are the company’s future, but most revenue still comes from cars.`\
-https://nytimes.com/2025/07/23/business/tesla-earnings-elon-musk.html
 
