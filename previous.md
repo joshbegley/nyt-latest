@@ -1,3 +1,23 @@
+**Union chief Marchi slams FIFA's Infantino and highlights player issues**\
+`The FIFPro boss was scathing in his criticism of soccer's most powerful figure.`\
+https://nytimes.com/athletic/6509871/2025/07/23/infantino-marchi-fifa-fifpro-union/
+
+**The ‘Boy Crisis’ Is Overblown**\
+`We’re looking in the wrong places for answers to boys’ struggles.`\
+https://nytimes.com/2025/07/23/opinion/girls-boys-school-performance.html
+
+**Julia Roberts Drama Will Open the New York Film Festival**\
+`Directed by Luca Guadagnino, “After the Hunt” features the star as a Yale professor caught between a student and a colleague accused of sexual assault.`\
+https://nytimes.com/2025/07/23/movies/after-the-hunt-julia-roberts-luca-guadagnino-new-york-film-festival.html
+
+**Their Superpower? Holding Things.**\
+`Known as “the claw grip” online, women are making videos about how many objects they can hold without a purse or functional pockets. What is the larger message?`\
+https://nytimes.com/2025/07/23/style/claw-grip-women-holding-things.html
+
+**Is It OK to Confide in My Best Friend About My Heavy Medical Diagnosis?**\
+`A reader wonders whether it would unfairly burden a friend to share sobering health news with her and her alone.`\
+https://nytimes.com/2025/07/23/style/medical-diagnosis-friends-family.html
+
 **Barcelona striker Victor set to make permanent Braga transfer**\
 `Victor is behind Lewandowski and Torres in the pecking order in addition to Rashford’s impending arrival.`\
 https://nytimes.com/athletic/6510643/2025/07/23/barcelona-transfer-news-pau-victor-braga/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/23/business/dealbook/markets-rally-japan-deal.html
 **Tottenham's Raso in talks over Benfica transfer**\
 `Raso joined Tottenham last summer from Real Madrid but the club endured a difficult 2024-25 campaign.`\
 https://nytimes.com/athletic/6510442/2025/07/23/hayley-raso-tottenham-benfica-transfer/
-
-**A Deaf Actress Has a Message She Wants You to Hear**\
-`Rose Ayling-Ellis, who stars in the TV crime drama “Code of Silence,” wants the world to understand that deaf people live complex and varied lives.`\
-https://nytimes.com/2025/07/23/arts/television/rose-ayling-ellis-code-of-silence.html
-
-**Ozzy Osbourne: The rock star of Aston who said goodbye at Villa Park**\
-`The Black Sabbath frontman's last gig was at Villa Park. He meant an awful lot to the people of Birmingham and never forgot his roots`\
-https://nytimes.com/athletic/6510404/2025/07/23/ozzy-osbourne-aston-villa-birmingham/
-
-**Trump Administration Live Updates: President to Sign Orders on A.I.**\
-``\
-https://nytimes.com/live/2025/07/23/us/trump-news
-
-**49ers defense could have 8 starting jobs up for grabs as training camp begins**\
-`Outside of Nick Bosa, Fred Warner and Deommodore Lenoir, there aren't many sure things in the 49ers defensive lineup.`\
-https://nytimes.com/athletic/6509779/2025/07/23/49ers-training-camp-defense-starting-jobs/
-
-**Lowetide: Does Oilers prospect Connor Clattenburg have an NHL future?**\
-`Clattenburg's two-way acumen is a huge positive, and his reputation as a punishing hitter will be welcome.`\
-https://nytimes.com/athletic/6509708/2025/07/23/edmonton-oilers-prospect-connor-clattenburg/
 
