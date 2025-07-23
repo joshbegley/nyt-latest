@@ -1,3 +1,11 @@
+**Power Bank Suspected as Cause of Fire on Virgin Australia Flight**\
+`Airlines have tightened rules regarding portable batteries after a rise in episodes on planes in recent years.`\
+https://nytimes.com/2025/07/23/world/australia/virgin-airlines-plane-battery-fire.html
+
+**More decisive substitutions and another second half surge help England reach another final**\
+`So often, Sarina Wiegman’s England look like they will be eliminated before a final. Somehow, they never are`\
+https://nytimes.com/athletic/6509877/2025/07/23/england-italy-euro-2025-agyemang-kelly/
+
 **Long Island Man Planned to Set Off Homemade Bombs in Manhattan, Authorities Say**\
 `The man made several explosive devices using chemicals bought online, placing some on rooftops in New York City before he was arrested, the authorities said.`\
 https://nytimes.com/2025/07/23/nyregion/nyc-homemade-bombs-man-charged.html
