@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, July 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/23/todays-new-york-times
+
+**Trump Wants to Make It OK to Disappear People**\
+`The president’s use of migrants as bargaining chips will corrode international politics.`\
+https://nytimes.com/2025/07/23/opinion/migration-deportation-sudan-trump.html
+
 **As Cubs search for pitching continues, so does Matthew Boyd's brilliant season**\
 `Having Boyd in the rotation is a big reason the Cubs are in this position right now.`\
 https://nytimes.com/athletic/6510166/2025/07/23/cubs-search-for-pitching-matthew-boyds-brilliant-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6501856/2025/07/23/aston-villa-unai-emery-three-cen
 **Which Premier League clubs do the most transfer deals between them?**\
 `It might seem your lot are always buying players from the same place - but which teams really do the greatest amount of business together?`\
 https://nytimes.com/athletic/6508081/2025/07/23/premier-league-transfer-deals-most-clubs/
-
-**What is the greatest save you've ever seen live?**\
-`Inspired by Ann-Katrin Berger's Euro 2025 heroics, writers from The Athletic remember the greatest save they've ever seen live`\
-https://nytimes.com/athletic/6508209/2025/07/23/goalkeeper-saves-greatest-best/
-
-**The opportunity for Marcus Rashford at Barcelona is potentially huge – and very different to Manchester**\
-`Marcus Rashford could not have asked for a better more after a season of turmoil at Manchester United. Now he has to make it count`\
-https://nytimes.com/athletic/6504590/2025/07/23/marcus-rashford-barcelona-manchester-united/
 
