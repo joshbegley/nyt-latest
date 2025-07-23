@@ -1,3 +1,15 @@
+**Browns place Deshaun Watson on physically unable to perform list**\
+`Watson is signed through 2026 and, under the current contract structure, is set to count on Cleveland's salary cap through 2029.`\
+https://nytimes.com/athletic/6509601/2025/07/22/deshaun-watson-browns-pup-list/
+
+**Death Toll From L.A. Fires Reaches 31 After Remains Are Found**\
+`More than six months after the fires, officials determined that another person had died in Altadena.`\
+https://nytimes.com/2025/07/22/us/los-angeles-fires-victim.html
+
+**U.S. Reaches Trade Deal With Japan**\
+`The president said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
+https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
+
 **Death Toll From L.A. Fires Reaches 31 After Remains Are Found**\
 `More than six months after the fires, officials determined that another person had died in Altadena.`\
 https://nytimes.com/2025/07/22/us/death-toll-from-la-fires-reaches-31-after-remains-are-found.html
