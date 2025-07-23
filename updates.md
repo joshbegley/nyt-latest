@@ -1,3 +1,7 @@
+**State Dept. Opens Investigation Into Harvard’s Use of International Visas**\
+`The Trump administration has continued to pressure the university despite continuing talks to settle a monthslong dispute over the federal government’s role in higher education.`\
+https://nytimes.com/2025/07/23/us/politics/state-department-trump-harvard.html
+
 **Gabbard Releases New Documents Targeting Obama Administration**\
 `The director of national intelligence has intensified attacks on assessments about Russia’s role in the 2016 presidential election.`\
 https://nytimes.com/2025/07/23/us/politics/trump-russia-obama-gabbard.html
