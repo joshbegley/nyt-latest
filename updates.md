@@ -1,3 +1,11 @@
+**Barcelona striker Victor set to make permanent Braga transfer**\
+`Victor is behind Lewandowski and Torres in the pecking order in addition to Rashford’s impending arrival.`\
+https://nytimes.com/athletic/6510643/2025/07/23/barcelona-transfer-news-pau-victor-braga/
+
+**Clothes That Celebrate the Elegance of Your Inner Weirdo**\
+`With her fourth collection, Phoebe Philo’s long game is becoming clear.`\
+https://nytimes.com/2025/07/23/style/phoebe-philo-collection-d.html
+
 **The Windup: The best starter on the market***\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6510311/2025/07/23/joe-ryan-starter-trade-deadline-the-windup/
