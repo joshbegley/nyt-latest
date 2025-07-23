@@ -1,5 +1,13 @@
+**What’s in Our Queue? DIIV and More**\
+`Text by Qasim Nauman`\
+https://nytimes.com/card/2025/07/23/arts/editors-recommendations-diiv
+
+**Inquiry Is Opened After Jacksonville Officer Punches Man Through His Car Window**\
+`A Black man was beaten by a white officer in Jacksonville, Fla., during a traffic stop. The sheriff’s office said that it was reviewing the episode.`\
+https://nytimes.com/2025/07/23/us/william-mcneil-jacksonville-sheriff-video.html
+
 **USMNT striker Sargent's Wolfsburg move appears to fall through**\
-`U.`\
+`Sargent was in talks over a potential move to Wolfsburg, which would have seen him return to Germany following four years at Norwich.`\
 https://nytimes.com/athletic/6506390/2025/07/23/josh-sargent-wolfsburg-norwich-transfer/
 
 **Eileen Fulton, Glamorous Villainess of ‘As the World Turns,’ Dies at 91**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/23/climate/icj-world-court-climate-opinion-takeaways
 **U.S. Homes Are Not Selling, and Prices Continue to Rise**\
 `June, usually the height of the spring housing season, saw sales of existing homes drop from the previous month, according to the National Association of Realtors.`\
 https://nytimes.com/2025/07/23/realestate/home-sales-drop-prices-rise.html
-
-**Ozzy Osbourne Fans Reflect on His Legacy**\
-`Mourners gathered in Ozzy Osbourne’s hometown of Birmingham, England, to pay tribute to the deceased heavy metal singer.`\
-https://nytimes.com/video/arts/music/100000010300897/ozzy-osbourne-fans-mourn-in-bermingham.html
-
-**Judge Denies Request to Unseal Epstein Grand Jury Transcripts in Florida**\
-`The president and his subordinates, including Attorney General Pam Bondi, have come under enormous pressure to release further details about the disgraced financier Jeffrey Epstein.`\
-https://nytimes.com/2025/07/23/us/politics/florida-epstein-transcripts-unsealed-denied.html
 
