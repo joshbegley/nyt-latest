@@ -1,3 +1,7 @@
+**Braves takeaways: Performance 'embarrassing', facing reality of being sellers, whither rehabbing pitchers?**\
+`The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top canidates.`\
+https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
+
 **T.J. Watt is trusting Steelers GM Omar Khan to end his postseason drought**\
 `Watt hasn't won a playoff game, much less a Super Bowl, in eight seasons, but he thinks the Steelers' aggressive approach can change that.`\
 https://nytimes.com/athletic/6511863/2025/07/23/tj-watt-omar-khan-steelers/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty
 **Anthony Richardson, Daniel Jones struggle to find rhythm on Day 1 of Colts QB battle**\
 `Neither Richardson nor Jones impressed on the first day of Colts training camp. `\
 https://nytimes.com/athletic/6511647/2025/07/23/anthony-richardson-daniel-jones-colts-qb-battle/
-
-**6 Takeaways From Idaho Killer’s Sentencing Hearing**\
-`A judge and relatives of victims wept and berated Bryan Kohberger before he was sent to prison for life, though a few offered forgiveness. Investigators dispelled some popular rumors about the case.`\
-https://nytimes.com/2025/07/23/us/bryan-kohberger-sentencing-takeaways.html
 

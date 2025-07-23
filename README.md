@@ -1,3 +1,11 @@
+**It’s not Drake Maye’s fault Patriots are where they are (but it’s the thought that counts)**\
+`If you’re a fan looking for signs that the Patriots want to get back to winning, Maye’s comments were the biggest news from Day 1 of camp.`\
+https://nytimes.com/athletic/6511941/2025/07/23/patriots-drake-maye-training-camp/
+
+**Do Democrats Want a Fight Over Colbert?**\
+`Some Democrats are irate over the end of Stephen Colbert’s show, but others see a lack of focus on real issues.`\
+https://nytimes.com/2025/07/23/us/politics/colbert-trump-democrats.html
+
 **Braves takeaways: Performance 'embarrassing', facing reality of being sellers, whither rehabbing pitchers?**\
 `The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top canidates.`\
 https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6511855/2025/07/23/washington-commanders-stadium-de
 **How Many Steps Do You Really Need in a Day?**\
 `A new study identifies the right number to reap the health benefits of walking.`\
 https://nytimes.com/2025/07/23/well/how-many-steps-per-day-health.html
-
-**Iran Warns It Could Exit Nuclear Treaty if Europe Reimposes Sanctions**\
-`The warning from Iran’s deputy foreign minister came days before he is set to travel to Istanbul for nuclear talks with European counterparts.`\
-https://nytimes.com/2025/07/23/world/middleeast/iran-europe-nuclear-talks-treaty.html
-
-**Anthony Richardson, Daniel Jones struggle to find rhythm on Day 1 of Colts QB battle**\
-`Neither Richardson nor Jones impressed on the first day of Colts training camp. `\
-https://nytimes.com/athletic/6511647/2025/07/23/anthony-richardson-daniel-jones-colts-qb-battle/
 

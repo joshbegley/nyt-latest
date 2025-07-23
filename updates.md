@@ -1,3 +1,7 @@
+**Braves takeaways: Performance 'embarrassing', facing reality of being sellers, whither rehabbing pitchers?**\
+`The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top canidates.`\
+https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
+
 **T.J. Watt is trusting Steelers GM Omar Khan to end his postseason drought**\
 `Watt hasn't won a playoff game, much less a Super Bowl, in eight seasons, but he thinks the Steelers' aggressive approach can change that.`\
 https://nytimes.com/athletic/6511863/2025/07/23/tj-watt-omar-khan-steelers/
