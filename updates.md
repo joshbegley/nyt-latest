@@ -1,3 +1,7 @@
+**Ty Dillon on NASCAR's In-Season Challenge, mid-field drivers and more: 12 Questions**\
+`Ty Dillon talks about his run through NASCAR's in-season tournament, why there should be more focus on mid-pack drivers and more.`\
+https://nytimes.com/athletic/6508987/2025/07/23/nascar-ty-dillon-in-season-challenge-12-questions/
+
 **The words that should fuel Giants coach Brian Daboll throughout training camp**\
 `New York has looked outclassed and overmatched in Week 1 each of the past two seasons. What can Daboll do during camp to turn things around?`\
 https://nytimes.com/athletic/6510026/2025/07/23/ny-giants-brian-daboll-training-camp-week-1/

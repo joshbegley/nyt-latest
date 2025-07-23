@@ -1,3 +1,7 @@
+**What to Know About the U.S. Move to Withdraw From UNESCO**\
+`The Trump administration plans to pull out of the U.N. cultural agency, putting UNESCO back at the center of geopolitical rivalry.`\
+https://nytimes.com/2025/07/23/world/unesco-trump-us-withdrawal.html
+
 **Ty Dillon on NASCAR's In-Season Challenge, mid-field drivers and more: 12 Questions**\
 `Ty Dillon talks about his run through NASCAR's in-season tournament, why there should be more focus on mid-pack drivers and more.`\
 https://nytimes.com/athletic/6508987/2025/07/23/nascar-ty-dillon-in-season-challenge-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508565/2025/07/23/nba-power-rankings-knicks-lakers
 **Mandel's mailbag: Week 1 games with playoff implications, 10th-place SEC teams, CFB formats**\
 `Which games in Week 1 have the biggest playoff implications? Also: What former player coaches would most help their team win? `\
 https://nytimes.com/athletic/6509033/2025/07/23/mandels-mailbag-playoff-sec-teams-cfb-formats/
-
-**NHL offseason concern-o-meter: Karlsson trade market, McDavid contract and more**\
-`Plus the Blackhawks’ rebuild and quiet free agency, the Mitch Marner-sized hole in the Maple Leafs lineup, the NHL's growth and much more.`\
-https://nytimes.com/athletic/6509541/2025/07/23/nhl-offseason-erik-karlsson-trade-connor-mcdavid-contract/
 
