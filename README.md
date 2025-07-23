@@ -1,3 +1,7 @@
+**Germany vs Spain Euro 2025 semi-final odds, prediction: World champs expected to advance**\
+`Spain remain the clear favourite to win Euro 2025, but Germany, the most successful team in the history of the competition, are no easy foe.`\
+https://nytimes.com/athletic/6508754/2025/07/23/germany-spain-euro-2025-semi-final-odds-prediction/
+
 **To Build Affordable Housing, One State Could Loosen Flood Protections**\
 `New Jersey officials are tinkering with the state’s ambitious climate regulations amid a housing crisis. Activists say that economically vulnerable residents could suffer.`\
 https://nytimes.com/2025/07/23/nyregion/nj-flood-protections-affordable-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/nyregion/nyc-homemade-bombs-man-charged.html
 **Late Night Watches Trump Try to Change the Subject From Epstein**\
 `The president’s usual tactic when cornered is to “throw red meat to the carnivorous base — and their favorite cut is filet of Obama,” Stephen Colbert said.`\
 https://nytimes.com/2025/07/23/arts/television/late-night-trump-epstein.html
-
-**Word of the Day: hydroponic**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/23/learning/word-of-the-day-hydroponic.html
 
