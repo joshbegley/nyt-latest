@@ -1,11 +1,3 @@
-**Bills camp observations: James Cook ends hold-in speculation, Keon Coleman's forgettable day**\
-`The first day of Bills training camp also saw CB Christian Benford's strong day and an injury concern along the offensive line.`\
-https://nytimes.com/athletic/6511535/2025/07/23/buffalo-bills-training-camp-observations-james-cook/
-
-**Ask The Morning: What Are Your Questions About Higher Education?**\
-`Universities have become a political flashpoint. Send us your questions about the coming school year.`\
-https://nytimes.com/2025/07/23/briefing/ask-the-morning-higher-education.html
-
 **Rulings Order Abrego Garcia’s Release and Guard Against Hasty Deportation**\
 `The convergence of the two judicial rulings, which came within minutes of each other, meant that Kilmar Armando Abrego Garcia could soon be released and return to Maryland.`\
 https://nytimes.com/2025/07/23/us/politics/abrego-garcia-judge-orders.html
@@ -33,4 +25,12 @@ https://nytimes.com/athletic/6511637/2025/07/23/texas-am-mascot-miss-reveille-x-
 **Quiz: How well do you know your older athletes? The week of the veteran comebacks**\
 `How well do you know the ages and feats of Venus Williams, Rich Hill, Manny Pacquiao and other legendary veterans?`\
 https://nytimes.com/athletic/6511526/2025/07/23/quiz-veteran-athletes-comeback-venus-williams-rich-hill/
+
+**Thursday Briefing: Your Russia Questions Answered**\
+`Plus, meet the other great Kurosawa.`\
+https://nytimes.com/2025/07/23/briefing/russia-putin-japan-trade-ozzy-osbourne.html
+
+**At Texas Flooding Hearing, State Officials Look Elsewhere for Blame**\
+`At several points during the hearing, the state emergency management chief directed attention to the role of local emergency managers in disaster response.`\
+https://nytimes.com/2025/07/23/us/politics/texas-floods-hearing-emergency-management.html
 

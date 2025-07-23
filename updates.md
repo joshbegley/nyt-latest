@@ -1,3 +1,11 @@
+**Thursday Briefing: Your Russia Questions Answered**\
+`Plus, meet the other great Kurosawa.`\
+https://nytimes.com/2025/07/23/briefing/russia-putin-japan-trade-ozzy-osbourne.html
+
+**At Texas Flooding Hearing, State Officials Look Elsewhere for Blame**\
+`At several points during the hearing, the state emergency management chief directed attention to the role of local emergency managers in disaster response.`\
+https://nytimes.com/2025/07/23/us/politics/texas-floods-hearing-emergency-management.html
+
 **Bills camp observations: James Cook ends hold-in speculation, Keon Coleman's forgettable day**\
 `The first day of Bills training camp also saw CB Christian Benford's strong day and an injury concern along the offensive line.`\
 https://nytimes.com/athletic/6511535/2025/07/23/buffalo-bills-training-camp-observations-james-cook/
