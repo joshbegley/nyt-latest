@@ -1,3 +1,15 @@
+**China Flexes Muscles at U.N. Cultural Agency, Just as Trump Walks Away**\
+`Washington had been a buffer against China’s efforts to use UNESCO to influence education, historical designations and even artificial intelligence.`\
+https://nytimes.com/2025/07/23/world/asia/unesco-china-us.html
+
+**Why is Vegas so high on the Patriots ... but the national media isn't?**\
+`Optimism abounds for the Patriots, whose over/under win total has been listed at 8.5. But that doesn’t seem to match the national narrative.`\
+https://nytimes.com/athletic/6509087/2025/07/23/new-england-patriots-vegas-win-total/
+
+**Where do Joe Burrow, Patrick Mahomes fall in 2025 fantasy football QB rankings?**\
+`KC Joyner considers everything from offensive line quality to matchup ratings in his rankings of the top 25 fantasy quarterbacks for 2025.`\
+https://nytimes.com/athletic/6506574/2025/07/23/fantasy-football-2025-qb-rankings-burrow-mahomes-jackson/
+
 **When Ozzy Osbourne Became the Most Unlikely Relatable Reality TV Dad**\
 `“The Osbournes” turned the heavy metal innovator into a reality TV star. Here are some moments that defined the show’s run.`\
 https://nytimes.com/2025/07/23/arts/television/ozzy-osbourne-show-reality-tv-family.html
