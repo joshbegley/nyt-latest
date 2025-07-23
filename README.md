@@ -3,7 +3,7 @@
 https://nytimes.com/2025/07/22/style/ozzy-osbourne-fashion-influence.html
 
 **Trump Says U.S. Has Reached Trade Deal With Japan**\
-`The president said on social media that the trade deal he struck with the country would impose a 15 percent tariff on its exports.`\
+`The president said on Tuesday that the trade deal he struck with one of America’s closest allies would impose a 15 percent tariff on Japanese exports.`\
 https://nytimes.com/2025/07/22/us/politics/trump-japan-trade-deal.html
 
 **How Native Homes in New Mexico Are Tapping the Sun**\
