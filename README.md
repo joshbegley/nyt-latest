@@ -1,3 +1,11 @@
+**Death Toll From L.A. Fires Reaches 31 After Remains Are Found**\
+`More than six months after the fires, officials determined that another person had died in Altadena.`\
+https://nytimes.com/2025/07/22/us/death-toll-from-la-fires-reaches-31-after-remains-are-found.html
+
+**Chargers training camp report, Day 5: Khalil Mack proves he is still a 'game-wrecker'**\
+`Mack dominated the Chargers' first practice in pads as training camp shifted to the University of San Diego for the first of two days.`\
+https://nytimes.com/athletic/6510012/2025/07/22/chargers-training-camp-khalil-mack/
+
 **MLS All-Star Game: Messi still a no-show; James, Jordi Alba out of skills competition**\
 `Some of the biggest names expected to take part in the MLS All-Star Game festivities haven't arrived in Austin `\
 https://nytimes.com/athletic/6509214/2025/07/22/mls-all-star-game-james-messi-jordi-alba-sergio-ramos/
@@ -29,8 +37,4 @@ https://nytimes.com/2025/07/22/climate/north-carolina-peat-restoration.html
 **In New Jersey, Benefits Bloom in Tiny Forests**\
 `A nonprofit planted five “microforests” to tackle environmental problems in Elizabeth, N.J. Scientists say they’re making a big difference.`\
 https://nytimes.com/2025/07/22/climate/new-jersey-tiny-forests.html
-
-**Why This Pennsylvania City Put Its Streetlights on a Dimmer**\
-`After passing a Dark Sky ordinance to curb light pollution and save energy, Pittsburgh is installing adjustable streetlights.`\
-https://nytimes.com/2025/07/22/climate/pennsylvania-pittsburgh-light-pollution.html
 
