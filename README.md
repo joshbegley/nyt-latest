@@ -1,3 +1,7 @@
+**Jazz, Fans and 2 Gems: Mark Morris Celebrates His Company’s 45th**\
+`The choreographer’s latest works, at the Joyce Theater, explore the music of James P. Johnson and John Luther Adams.`\
+https://nytimes.com/2025/07/23/arts/dance/mark-morris-joyce-theater-modernistic.html
+
 **State Takeover of New Jersey Police Department Was Lawful, Court Rules**\
 `The State Supreme Court decision, overturning an earlier ruling, will allow the New Jersey attorney general to maintain control over the troubled Paterson Police Department.`\
 https://nytimes.com/2025/07/23/nyregion/paterson-nj-police-department-takeover.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/movies/manhunt-cleaner-and-more-streaming-gems.ht
 **‘Washington Black’ Review: Escape to the Future**\
 `A Hulu mini-series adapts Esi Edugyan’s prizewinning novel about a young enslaved worker’s literal and symbolic flight to freedom and peace of mind.`\
 https://nytimes.com/2025/07/23/arts/television/washington-black-review.html
-
-**Meta Unveils Wristband for Controlling Computers With Hand Gestures**\
-`When you write your name in the air, you can see the letters appear on your smartphone.`\
-https://nytimes.com/2025/07/23/science/meta-computer-wristband-reardon.html
 
