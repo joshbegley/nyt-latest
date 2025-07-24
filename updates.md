@@ -1,3 +1,7 @@
+**What to know about WNBA CBA negotiations: Revenue sharing, salary increases and scheduling**\
+`"Our job is to find the common ground. But that doesn't mean we keep taking the crumbs of the pie," Liberty guard Natasha Cloud said.`\
+https://nytimes.com/athletic/6512337/2025/07/24/wnba-cba-negotiations-revenue-share-salaries/
+
 **Elon Musk Warns of Potentially ‘Rough’ Times Ahead**\
 `Shares in Tesla were down in premarket trading as the carmaker lays out the risks from President Trump’s tariffs and his scrapping of tax credits.`\
 https://nytimes.com/2025/07/24/business/dealbook/musk-tesla-rough-times.html

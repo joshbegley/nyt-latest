@@ -1,3 +1,7 @@
+**E.C.B. Pauses Rate-Cutting Campaign, as Trade Disputes Cloud Outlook**\
+`After eight consecutive cuts, policymakers held interest rates steady as inflation hit their target.`\
+https://nytimes.com/2025/07/24/business/ecb-interest-rate.html
+
 **What to know about WNBA CBA negotiations: Revenue sharing, salary increases and scheduling**\
 `"Our job is to find the common ground. But that doesn't mean we keep taking the crumbs of the pie," Liberty guard Natasha Cloud said.`\
 https://nytimes.com/athletic/6512337/2025/07/24/wnba-cba-negotiations-revenue-share-salaries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509254/2025/07/24/bruins-roster-projection-2028-29
 **For 1st Time, Fires Are Biggest Threat to Forests’ Climate-Fighting Superpower**\
 `Forests play a major role pulling planet-warming carbon dioxide out of the atmosphere. As the world heats up, some forests are becoming emitters in their own right.`\
 https://nytimes.com/2025/07/24/climate/wildfires-forest-carbon-sequestration.html
-
-**Trump Administration Live Updates: President to Visit Fed as Pressure Campaign Intensifies**\
-``\
-https://nytimes.com/live/2025/07/24/us/trump-epstein-news
 
