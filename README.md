@@ -1,3 +1,7 @@
+**USC's Riley: Want Notre Dame series to continue, hope it 'makes sense' from CFP standpoint**\
+`The USC-Notre Dame series has not been extended beyond 2026 as the USC administration remains noncommittal.`\
+https://nytimes.com/athletic/6514206/2025/07/24/lincoln-riley-usc-notre-dame-future-cfp/
+
 **Hulk Hogan: A Life in Pictures**\
 `The wrestler, who died on Thursday at 71, was the face of the sport as its popularity grew, propelling him into the wider entertainment world.`\
 https://nytimes.com/2025/07/24/arts/hulk-hogan-a-life-in-pictures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/opinion/trump-federal-reserve-powell.html
 **I Don’t Scorn Mixed Motives. I Live by Them.**\
 `How do you live a driven life, seeking to achieve great things, without becoming a jerk?`\
 https://nytimes.com/2025/07/24/opinion/ambition-self-improvement.html
-
-**Fantasy baseball bullpen report and how every team is likely to handle MLB trade deadline**\
-`Greg Jewett details what are the likely intentions of each team in regard to its bullpen ahead of the MLB trade deadline.`\
-https://nytimes.com/athletic/6513901/2025/07/24/fantasy-baseball-2025-mlb-trade-deadline-bullpen/
 
