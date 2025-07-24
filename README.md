@@ -1,3 +1,7 @@
+**A Series of Mysterious Explosions Unnerves Syrians**\
+`Many of the blasts, some of them deadly, have been at weapons storage sites, raising questions about whether ordnance from Syria’s civil war has been properly secured.`\
+https://nytimes.com/2025/07/24/world/middleeast/syria-explosions.html
+
 **The Renovations Fueling Trump’s Attacks on the Fed**\
 `President Trump is set to visit the central bank’s construction site on Thursday with administration officials amid allegations that the costly project has been mismanaged.`\
 https://nytimes.com/2025/07/24/business/trump-federal-reserve-renovations-powell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513094/2025/07/24/alexander-isak-transfer-liverpoo
 **Wildfires Burn in Cyprus as Extreme Heat Grips the Island**\
 `Fires spreading near the southern city of Limassol have killed at least two people and burned more than 24,000 acres as of Thursday, officials said.`\
 https://nytimes.com/video/world/europe/100000010303311/cyprus-wildfire.html
-
-**Cristhian Mosquera to Arsenal: Everything you need to know - TLDR**\
-`Arsenal have added to their defensive options with Cristhian Mosquera from Valencia. We break down the deal`\
-https://nytimes.com/athletic/6495223/2025/07/24/cristhian-mosquera-arsenal-transfer-analysis/
 

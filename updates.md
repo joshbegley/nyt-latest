@@ -1,3 +1,7 @@
+**The Renovations Fueling Trump’s Attacks on the Fed**\
+`President Trump is set to visit the central bank’s construction site on Thursday with administration officials amid allegations that the costly project has been mismanaged.`\
+https://nytimes.com/2025/07/24/business/trump-federal-reserve-renovations-powell.html
+
 **Thailand and Cambodia Trade Fire**\
 `Shots were heard early on Thursday morning near Prasat Ta Muen Thom, an ancient temple on the Thai side of the border. Each nation accuses the other of firing first.`\
 https://nytimes.com/video/world/asia/100000010303277/thailand-cambodia-trade-fire.html

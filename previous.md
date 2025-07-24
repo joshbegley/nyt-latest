@@ -1,3 +1,7 @@
+**The Renovations Fueling Trump’s Attacks on the Fed**\
+`President Trump is set to visit the central bank’s construction site on Thursday with administration officials amid allegations that the costly project has been mismanaged.`\
+https://nytimes.com/2025/07/24/business/trump-federal-reserve-renovations-powell.html
+
 **Thailand and Cambodia Trade Fire**\
 `Shots were heard early on Thursday morning near Prasat Ta Muen Thom, an ancient temple on the Thai side of the border. Each nation accuses the other of firing first.`\
 https://nytimes.com/video/world/asia/100000010303277/thailand-cambodia-trade-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010303311/cyprus-wildfire.html
 **Cristhian Mosquera to Arsenal: Everything you need to know - TLDR**\
 `Arsenal have added to their defensive options with Cristhian Mosquera from Valencia. We break down the deal`\
 https://nytimes.com/athletic/6495223/2025/07/24/cristhian-mosquera-arsenal-transfer-analysis/
-
-**Wrexham confirm signing of O'Brien from Forest**\
-`The 26-year-old spent much of his Forest career on loan but will now join the ambitious newly-promoted Championship side.`\
-https://nytimes.com/athletic/6513415/2025/07/24/lewis-obrien-wrexham-nottingham-forest-transfer/
 
