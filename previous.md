@@ -1,11 +1,3 @@
-**Reds interested in bringing back fan favorite Eugenio Suárez**\
-`According to sources, the Diamondbacks are interested in kicking the tires on promising starter Chase Petty.`\
-https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-deadline/
-
-**Prosecutor Fired by Trump Officials Says She Is Set to Take Over Office**\
-`Desiree Grace, in a social media post, said she was prepared to follow a judicial order and take over as U.S. attorney in New Jersey “in accordance with the law.”`\
-https://nytimes.com/2025/07/23/nyregion/desiree-grace-new-jersey-us-attorney.html
-
 **3 Men Who Disappeared While Fishing in Mississippi River Are Found Dead**\
 `The men were last seen on a sandbar south of a boat ramp in Meeman-Shelby Forest State Park, about 13 miles north of Memphis.`\
 https://nytimes.com/2025/07/23/us/mississippi-river-missing-men-dead.html
@@ -33,4 +25,12 @@ https://nytimes.com/athletic/6511941/2025/07/23/patriots-drake-maye-training-cam
 **Do Democrats Want a Fight Over Colbert?**\
 `Some Democrats are irate over the end of Stephen Colbert’s show, but others see a lack of focus on real issues.`\
 https://nytimes.com/2025/07/23/us/politics/colbert-trump-democrats.html
+
+**Braves takeaways: Performance ‘embarrassing,’ reality of being sellers, rehabbing pitchers**\
+`The July 31 trade deadline looms, and the Braves are expected to sell, with Marcell Ozuna and Raisel Iglesias as top candidates.`\
+https://nytimes.com/athletic/6511862/2025/07/23/braves-takeaways-trade-deadline-sellers/
+
+**T.J. Watt is trusting Steelers GM Omar Khan to end his postseason drought**\
+`Watt hasn't won a playoff game, much less a Super Bowl, in eight seasons, but he thinks the Steelers' aggressive approach can change that.`\
+https://nytimes.com/athletic/6511863/2025/07/23/tj-watt-omar-khan-steelers/
 
