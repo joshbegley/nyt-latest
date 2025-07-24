@@ -1,3 +1,15 @@
+**At Redistricting Hearing, Texas Democrats Attack Silent Republicans**\
+`President Trump wants Texas Republicans to redraw the state’s House maps to nab as many as five seats now held by Democrats. But no new maps have been publicly proposed yet.`\
+https://nytimes.com/2025/07/24/us/politics/texas-redistricting.html
+
+**Gabbard’s Attacks on Obama Put the Attorney General in a Tough Spot**\
+`The director of national intelligence gave the Justice Department little warning before she demanded an investigation.`\
+https://nytimes.com/2025/07/24/us/politics/trump-obama-gabbard-bondi.html
+
+**What the path back to the NHL looks like for Carter Hart, other Hockey Canada defendants**\
+`The players are unrestricted free agents but will not be eligible to sign with a team until the NHL has conducted its own review.`\
+https://nytimes.com/athletic/6513608/2025/07/24/hockey-canada-trial-verdict-defendants-nhl-future/
+
 **Supreme Court, for Now, Pauses Lower Court Decision Limiting Voting Rights Act**\
 `The justices paused a lower court order pending a decision on whether the Supreme Court will take up the case, a major challenge to the Voting Rights Act.`\
 https://nytimes.com/2025/07/24/us/supreme-court-voting-rights-act.html
