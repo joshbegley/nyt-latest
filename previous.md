@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 6: Movement in the WR competition**\
+`SAN DIEGO — The Los Angeles Chargers’ receiver battle is raging on, and Day 6 of training camp featured some rather significant movement — positive and negative — as players jostle for snaps alongside star slot Ladd McConkey.`\
+https://nytimes.com/athletic/6512140/2025/07/23/chargers-training-camp-keandre-lambert-smith/
+
 **Seahawks training camp takeaways, Day 1: Injury updates on Uchenna Nwosu, Ken Walker**\
 `Nwosu's offseason surgery could sideline him into the season, but Walker is healthy and looking sharp as the Seahawks open camp.`\
 https://nytimes.com/athletic/6512056/2025/07/23/seahawks-uchenna-nwosu-kenneth-walker/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6511979/2025/07/23/vikings-camp-takeaways-j-j-mccar
 **Lamar Jackson focused on the now as Ravens enter season of high expectations**\
 `OWINGS MILLS, Md.`\
 https://nytimes.com/athletic/6512021/2025/07/23/ravens-lamar-jackson-2025-training-camp/
-
-**Reds interested in bringing back fan favorite Eugenio Suárez**\
-`According to sources, the Diamondbacks are interested in kicking the tires on promising starter Chase Petty.`\
-https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-deadline/
 

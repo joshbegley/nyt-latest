@@ -1,5 +1,5 @@
 **Chargers training camp report, Day 6: Movement in the WR competition**\
-`SAN DIEGO — The Los Angeles Chargers’ receiver battle is raging on, and Day 6 of training camp featured some rather significant movement — positive and negative — as players jostle for snaps alongside star slot Ladd McConkey.`\
+`Rookie KeAndre Lambert-Smith made a couple of the plays of the day and is impressing the Chargers' coaching staff. `\
 https://nytimes.com/athletic/6512140/2025/07/23/chargers-training-camp-keandre-lambert-smith/
 
 **Seahawks training camp takeaways, Day 1: Injury updates on Uchenna Nwosu, Ken Walker**\
