@@ -1,3 +1,11 @@
+**Canadian Company Claims to Find Large Oil Reserves in Poland**\
+`The firm’s chief executive said that the field in the Baltic Sea might eventually produce up to 40,000 barrels of oil a day, making it the largest discovery in Northern Europe in more than a decade.`\
+https://nytimes.com/2025/07/24/business/poland-oil-europe.html
+
+**Mbappe handed Real Madrid No 10 shirt following Modric departure**\
+`Following Luka Modric’s departure from the club earlier this summer, Mbappe will don the vacant No 10.`\
+https://nytimes.com/athletic/6510505/2025/07/24/mbappe-10-shirt-number-real-madrid/
+
 **TAFC: Will Messi be banned after no-show? Plus: MLS calendar change talks**\
 `Today in TAFC: Messi fails to show at All Star game, so what now? Plus: MLS calendar change talks and Spain's last-gasp Euros win.`\
 https://nytimes.com/athletic/6512686/2025/07/24/mls-all-star-no-show-calendar-change/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6512763/2025/07/24/womens-super-league-alcohol-tria
 **‘Shoshana’ Review: Love Amid Conflict**\
 `In Michael Winterbottom’s thriller set in Tel Aviv in the 1930s and ’40s, a Jewish woman is romantically involved with a British police officer.`\
 https://nytimes.com/2025/07/24/movies/shoshana-review.html
-
-**‘Diciannove’ Review: Stalling of Age**\
-`A literature student in Siena, Italy, idles through his 19th year in this movie that aims to subvert coming-of-age expectations.`\
-https://nytimes.com/2025/07/24/movies/diciannove-review.html
-
-**‘The Home’ Review: A Senior Moment of Terror**\
-`James DeMonaco, the creator of the “Purge” franchise, directs Pete Davidson in this horror indictment of the American elder care system.`\
-https://nytimes.com/2025/07/24/movies/the-home-review-a-senior-moment-of-terror.html
 
