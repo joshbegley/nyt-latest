@@ -1,3 +1,7 @@
+**USC freshman Alijah Arenas expected to miss 6-8 months with knee injury**\
+`McDonald's All-American was expected to be a centerpiece of Eric Musselman's 2025-26 team.`\
+https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
+
 **Flight Attendant Who Filmed Girls in Lavatory Is Sentenced to More Than 18 Years**\
 `The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
 https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/us/politics/house-spending-trump-foreign-aid.html
 **Chinese and European Leaders Meet Amid Grievances on Trade**\
 `European Union officials are set for a summit with China’s top leaders. China’s support of Russia and a long list of trade disputes are on the agenda.`\
 https://nytimes.com/2025/07/23/business/china-eu-trade-ukraine.html
-
-**New Documents Shed Light on Brutality of Idaho Killings**\
-`Police reports released by the authorities in Moscow, Idaho, detail what investigators found at the scene where four University of Idaho students were fatally stabbed.`\
-https://nytimes.com/2025/07/23/us/bryan-kohberger-idaho-student-murders-evidence.html
 
