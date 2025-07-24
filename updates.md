@@ -1,3 +1,11 @@
+**Carlos Rodriguez abandons Tour de France after pelvis fracture**\
+`The Spanish climber came down in a multi-rider crash mostly involving the sprint teams.`\
+https://nytimes.com/athletic/6512650/2025/07/24/carlos-rodriguez-ineos-tour-de-france-pelvis/
+
+**Isak omitted from Newcastle squad for pre-season tour of east Asia**\
+`Eddie Howe insisted after Saturday's defeat to Celtic that he expected Isak to join Newcastle in Singapore and South Korea this week,`\
+https://nytimes.com/athletic/6512649/2025/07/24/alexander-isak-newcastle-squad-pre-season/
+
 **Ex-Liverpool forward Firmino joins Qatari club Al Sadd**\
 `Firmino joins from Saudi Arabian club Al Ahli, where he won last season's AFC Champions League Elite.`\
 https://nytimes.com/athletic/6125635/2025/07/24/roberto-firmino-transfer-qatar-al-sadd/
