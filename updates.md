@@ -1,3 +1,19 @@
+**F.C.C. Approves Skydance’s Merger With Paramount**\
+`The agency’s blessing was one of the last hurdles for the deal, which was being subjected to close scrutiny by the Trump administration.`\
+https://nytimes.com/2025/07/24/business/media/fcc-skydance-merger-paramount.html
+
+**Powell Corrects Trump on Cost of Fed Renovations**\
+`During a tour of the Federal Reserve’s headquarters, President Trump debated with Jerome H. Powell, the Fed chair, over the cost of renovations to the central bank’s headquarters.`\
+https://nytimes.com/video/us/politics/100000010305185/trump-powell-fed-renovation.html
+
+**Ken Paxton Claimed Three Houses as His Primary Residence, Records Show**\
+`The attorney general of Texas, who is challenging Senator John Cornyn, could have secured favorable mortgage rates, and may have violated the law if he knowingly falsified loan documents.`\
+https://nytimes.com/2025/07/24/us/politics/ken-paxton-mortgage.html
+
+**Storms in New Mexico Cause Flash Flooding and Water Rescues**\
+`The heavy rain came after severe flooding in the area killed three people and damaged dozens of homes on July 8.`\
+https://nytimes.com/2025/07/24/us/flooding-ruidoso-new-mexico.html
+
 **Justice Kagan Urges Supreme Court to Explain Itself in Emergency Decisions**\
 `In remarks before judges and lawyers in California, the justice said she believed the court had a responsibility to share its reasoning.`\
 https://nytimes.com/2025/07/24/us/justice-kagan-supreme-court-emergency-decisions.html
