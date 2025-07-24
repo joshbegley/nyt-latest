@@ -1,3 +1,7 @@
+**A Puppet Theater Gets Weird, With Georg Baselitz as a Guide**\
+`At this year’s Salzburg Festival, the German artist has designed marionettes for a troupe that usually performs “The Sound of Music.”`\
+https://nytimes.com/2025/07/24/arts/music/georg-baselitz-the-soldiers-tale-salzburg-festival.html
+
 **Newcastle sign winger Park Seung-soo,18**\
 `Primarily featuring on the left-wing, Park made 27 appearances for the K League 2 club, scoring once and providing three assists.`\
 https://nytimes.com/athletic/6450346/2025/07/24/newcastle-transfers-park-south-korea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512239/2025/07/24/twins-royce-lewis-trade-deadline
 **What we’re hearing on the MLB trade deadline: Sandy Alcantara, Zac Gallen and the pitching market**\
 `Contenders searching for an ace will likely to have to aim a little lower: 'All the guys are going to have a little bit of warts on them.'`\
 https://nytimes.com/athletic/6512151/2025/07/24/mlb-trade-deadline-pitching-alcantra-gallen/
-
-**Dillon Brooks will give the rebuilding Suns toughness, energy — and perhaps an edge**\
-`Throughout its history, Phoenix has had a few players who lived to get inside an opponent's head. But maybe nothing like this.`\
-https://nytimes.com/athletic/6503966/2025/07/24/dillon-brooks-phoenix-suns-toughness-energy/
 
