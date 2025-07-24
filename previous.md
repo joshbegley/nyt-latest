@@ -1,3 +1,15 @@
+**France Will Recognize Palestinian Statehood**\
+`Also, Hulk Hogan died at 71. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/24/briefing/france-middle-east-trump-columbia-university.html
+
+**Investigators in Idaho Murders Case Dispel Baseless Rumors and Theories**\
+`In an interview, the lead prosecutor, Bill Thompson, decried how some of the wild speculations surrounding the case made life “hell” for innocent people.`\
+https://nytimes.com/2025/07/24/us/idaho-murders-kohberger-prosecutor-bill-thompson.html
+
+**Anthony Richardson's early woes continued on Day 2 of training camp**\
+`Left tackle Bernhard Raimann said Thursday that he and the Colts “aren’t on the same page" financially regarding a contract extension. `\
+https://nytimes.com/athletic/6513997/2025/07/24/colts-anthony-richardson-training-camp-bernhard-raimann/
+
 **A Little Leaguer Was Suspended for a Bat Flip. So He Went to Court.**\
 `A New Jersey judge was asked to overturn an umpire’s interpretation of the “horseplay” rule. A chance to play in the state championship hung in the balance.`\
 https://nytimes.com/2025/07/24/nyregion/little-league-bat-flip-suspension.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/24/arts/hulk-hogan-a-life-in-pictures.html
 **Readers Sent Us Hundreds of Local Climate Solutions**\
 `As part of our 50 States, 50 Fixes series, more than 2,400 Times readers wrote in to tell us about climate action in their communities.`\
 https://nytimes.com/2025/07/24/climate/readers-sent-us-hundreds-of-local-climate-solutions.html
-
-**Read the Trump Administration’s Suit Against New York**\
-`The Justice Department on Thursday sued Mayor Eric Adams, claiming that New York City is hindering the Trump administration’s enforcement of immigration law.`\
-https://nytimes.com/interactive/2025/07/24/nyregion/govuscourtsnyed53420710.html
-
-**Dan Campbell steps in again to cool down Lions: Training camp news and notes**\
-`Amon-Ra St. Brown and Brian Branch got at it again as the Lions looked ready for joint practices to take out some of this energy.`\
-https://nytimes.com/athletic/6513766/2025/07/24/lions-training-camp-fights-dan-campbell/
-
-**Bill Belichick fits right in at ACC media day — and even cracks a few jokes**\
-`Belichick's message to recruits: "We’re not trying to overhype or oversell something we can’t deliver. We’re trying to sell who we are."`\
-https://nytimes.com/athletic/6513983/2025/07/24/bill-belichick-acc-media-day-north-carolina/
 
