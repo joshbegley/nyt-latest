@@ -1,3 +1,19 @@
+**Jimmy Horn turning heads — 'everything he does is fast': Panthers observations**\
+`The defense also had a good day despite missing two of its biggest defensive linemen missing practice.`\
+https://nytimes.com/athletic/6513924/2025/07/24/panthers-training-camp-rookie-jimmy-horn/
+
+**Their Mass Rape Went Unpunished. Four Decades Later, They Fought Back.**\
+`Systematically assaulted during Guatemala’s civil war, 36 Mayan women made a final bid for justice.`\
+https://nytimes.com/interactive/2025/07/24/magazine/guatemala-maya-achi-women-rape-case-trial.html
+
+**France Will Recognize Palestinian Statehood, Macron Says**\
+`The announcement sets France apart from the United States and most of its close allies, and could cause friction with President Trump.`\
+https://nytimes.com/2025/07/24/world/europe/france-palestine-statehood-macron-gaza.html
+
+**Bears training camp observations: Running backs can feel the pressure**\
+`The Bears' run game must improve, plus the defense can feel the impact of having Andrew Billings and Jaquan Brisker back.`\
+https://nytimes.com/athletic/6513813/2025/07/24/bears-training-camp-observations-running-backs/
+
 **Familiar Flashpoint Leads to Deadly Clashes Between Thailand and Cambodia**\
 `At least a dozen people were killed after the two countries exchanged fire after simmering tensions over a border dispute boiled over on Thursday.`\
 https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-deadly-border-clash.html
