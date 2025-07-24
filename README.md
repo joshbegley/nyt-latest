@@ -19,7 +19,7 @@ https://nytimes.com/2025/07/24/travel/southwest-airlines-lawsuit-racism.html
 https://nytimes.com/2025/07/24/world/europe/cyprus-wildfires-heat.html
 
 **Shapiro Says Mamdani Fails to Condemn ‘Blatantly Antisemitic’ Rhetoric**\
-`The critique by Mr. Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Mr. Mamdani’s primary win in New York City has shaken Democratic leaders.`\
+`The critique by Josh Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Zohran Mamdani’s primary win in New York City has shaken Democratic leaders.`\
 https://nytimes.com/2025/07/24/us/politics/josh-shapiro-zohran-mamdani.html
 
 **Europe Nears U.S. Trade Deal, but Stands Ready to Retaliate**\

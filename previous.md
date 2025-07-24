@@ -1,3 +1,23 @@
+**Yes, You Can Own a Home**\
+`Many dream of buying a home, but the obstacles can seem overwhelming. Here’s how one owner beat the odds — and how you can, too.`\
+https://nytimes.com/paidpost/progressive-insurance/yes-you-can-own-a-home.html
+
+**Arsenal's Madueke reclassified in Premier League records as 'homegrown'**\
+`The 23-year-old had previously been listed in Chelsea’s squad list as recently as February as 'non-homegrown'.`\
+https://nytimes.com/athletic/6513121/2025/07/24/arsenal-noni-madueke-homegrown-players/
+
+**Is the Bread in Europe Better for You?**\
+`If you’ve noticed that certain baked goods are more tolerable abroad, it may not be all in your head.`\
+https://nytimes.com/2025/07/24/well/eat/health-effects-bread-europe-united-states.html
+
+**Southwest Passenger Says She Was Ejected From Flight Based on Her Race**\
+`On a flight from Chicago to Washington, D.C., last November, the passenger said she was the only Black person seated in an exit row when she was asked to leave.`\
+https://nytimes.com/2025/07/24/travel/southwest-airlines-lawsuit-racism.html
+
+**Sprawling Wildfires Kill 2 and Force Evacuations in Cyprus Amid Stifling Heat**\
+`The fire had burned more than 24,000 acres in Cyprus, where officials had warned of fire danger as temperatures rose above 100 degrees.`\
+https://nytimes.com/2025/07/24/world/europe/cyprus-wildfires-heat.html
+
 **Shapiro Says Mamdani Fails to Condemn ‘Blatantly Antisemitic’ Rhetoric**\
 `The critique by Mr. Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Mr. Mamdani’s primary win in New York City has shaken Democratic leaders.`\
 https://nytimes.com/2025/07/24/us/politics/josh-shapiro-zohran-mamdani.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-tra
 **Union Pacific in Talks to Merge With Norfolk Southern**\
 `The merger of two large rail companies would create the first coast-to-coast network, but the deal could reduce competition.`\
 https://nytimes.com/2025/07/24/business/union-pacific-in-talks-to-acquire-norfolk-southern.html
-
-**Live Updates: Trump to Visit Federal Reserve in New Effort to Divert Attention From Epstein**\
-`The administration has led a pressure campaign against Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
-https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell
-
-**Lewis Hamilton: 'I refuse' to be another failed Ferrari F1 world champion**\
-`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship.`\
-https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
-
-**The Relationship Advice Couples Counselors Swear By**\
-`Eight therapists share lessons they find themselves repeating again and again.`\
-https://nytimes.com/2025/07/24/well/family/couples-counselors-advice.html
-
-**The pattern across 13 years of men's and women's semi-finals that gives England hope**\
-`England won the first semi-final of Euro 2025, with Spain winning the second semi. History suggests the order of those games could be key`\
-https://nytimes.com/athletic/6512938/2025/07/24/semi-finals-rest-days-euros/
-
-**Rishabh Pant: The Indian superstar who stared at death - and came back**\
-`Rishabh Pant is one of the most watchable cricketers in the game - as he has proved throughout the English summer`\
-https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
 
