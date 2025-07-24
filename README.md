@@ -1,40 +1,40 @@
-**The Pulse: Could this deal change how we watch football?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6510910/2025/07/24/nfl-espn-red-zone-deal-the-pulse/
+**TAFC: Will Messi be banned after no-show? Plus: MLS calendar change talks**\
+`Today in TAFC: Messi fails to show at All Star game, so what now? Plus: MLS calendar change talks and Spain's last-gasp Euros win.`\
+https://nytimes.com/athletic/6512686/2025/07/24/mls-all-star-no-show-calendar-change/
 
-**Leeds closing in on Lucas Perri deal**\
-`The 27-year-old goalkeeper only joined Lyon last summer but is poised to become Leeds' seventh summer signing.`\
-https://nytimes.com/athletic/6512792/2025/07/24/lucas-perri-leeds-transfer-lyon/
+**It’s a pivotal trade deadline for the Pirates — but are they willing to all-out sell?**\
+`The Pirates claim they see the need to bolster their position player core through impactful trades. Whether they'll act on that is unclear.`\
+https://nytimes.com/athletic/6509355/2025/07/24/pittsburgh-pirates-trade-deadline-sell-cherington/
 
-**What’s in a Name?**\
-`All politicians try to play the frame game. President Trump is a master at it.`\
-https://nytimes.com/2025/07/24/briefing/whats-in-a-name.html
+**Blue Jays' fielding strength magnified by Yankees' defensive collapse**\
+`On nights like Wednesday — facing defensive performances like the Yankees' — the Jays' quiet strength became loud again.`\
+https://nytimes.com/athletic/6512393/2025/07/24/blue-jays-win-yankees-fielding/
 
-**China could be a player in efforts to calm Cambodia-Thailand tensions.**\
-`By Vivian Wang`\
-https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/china-could-be-a-player-in-efforts-to-calm-cambodia-thailand-tensions
+**Rosenthal: A plea to the Brewers' owner, a potential Dodgers trade chip and more MLB notes**\
+`Mark Attanasio's team has achieved the best record in the majors despite the owner's limited spending.  `\
+https://nytimes.com/athletic/6512322/2025/07/24/mlb-notes-trade-deadline-brewers-dodgers/
 
-**A Puppet Theater Gets Weird, With Georg Baselitz as a Guide**\
-`At this year’s Salzburg Festival, the German artist has designed marionettes for a troupe that usually performs “The Sound of Music.”`\
-https://nytimes.com/2025/07/24/arts/music/georg-baselitz-the-soldiers-tale-salzburg-festival.html
+**Astros rookie Cam Smith now takes the later bus to games — and it could shape his career**\
+`Smith has just eight hits in his past 57 at-bats, raising a question of whether his workload has caught up with him.`\
+https://nytimes.com/athletic/6512043/2025/07/24/astros-rookie-cam-smith/
 
-**Newcastle sign winger Park Seung-soo,18**\
-`Primarily featuring on the left-wing, Park made 27 appearances for the K League 2 club, scoring once and providing three assists.`\
-https://nytimes.com/athletic/6450346/2025/07/24/newcastle-transfers-park-south-korea/
+**Tracking Typhoon Co-may**\
+`See the likely path and wind arrival times for Co-may`\
+https://nytimes.com/interactive/2025/07/24/weather/eleven-map-path-tracker.html
 
-**Jesús Luzardo's chaotic first season with Phillies unravels even further**\
-`Luzardo has occupied extremes from month to month, start to start, and even within games — like Wednesday night.`\
-https://nytimes.com/athletic/6512422/2025/07/24/jesus-luzardos-chaotic-season-phillies-unravels/
+**WSL and WSL2 fans able to drink alcohol in stands for 2025-26 season**\
+`Drinking alcohol in view of the pitch is not allowed in men's football but WSL Football's trial is changing that for the women's game.`\
+https://nytimes.com/athletic/6512763/2025/07/24/womens-super-league-alcohol-trial/
 
-**The father, the son, and the tennis court**\
-`Stefanos and Apostolos will resume their coaching partnership after a breakup in 2024. Here's how the father-son team works in tennis.`\
-https://nytimes.com/athletic/5736954/2025/07/24/tennis-players-coaching-fathers-sons-stefanos-apostolos-tsitsipas/
+**‘Shoshana’ Review: Love Amid Conflict**\
+`In Michael Winterbottom’s thriller set in Tel Aviv in the 1930s and ’40s, a Jewish woman is romantically involved with a British police officer.`\
+https://nytimes.com/2025/07/24/movies/shoshana-review.html
 
-**Cowboys camp observations: CeeDee Lamb sounds motivated for big season**\
-`Lamb is eager for fans to see how the offense will work with George Pickens also catching passes from Dak Prescott. `\
-https://nytimes.com/athletic/6512058/2025/07/24/cowboys-training-camp-ceedee-lamb-george-pickens/
+**‘Diciannove’ Review: Stalling of Age**\
+`A literature student in Siena, Italy, idles through his 19th year in this movie that aims to subvert coming-of-age expectations.`\
+https://nytimes.com/2025/07/24/movies/diciannove-review.html
 
-**Trump’s Name in the Epstein Files, and Rare Protests in Ukraine**\
-`Plus, how many steps do you really need a day?`\
-https://nytimes.com/2025/07/24/podcasts/the-headlines/trump-epstein-files-ukraine-protests.html
+**‘The Home’ Review: A Senior Moment of Terror**\
+`James DeMonaco, the creator of the “Purge” franchise, directs Pete Davidson in this horror indictment of the American elder care system.`\
+https://nytimes.com/2025/07/24/movies/the-home-review-a-senior-moment-of-terror.html
 
