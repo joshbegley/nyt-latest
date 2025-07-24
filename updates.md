@@ -1,3 +1,19 @@
+**‘The Hunting Wives’ Is Soapy, Sultry Fun**\
+`The new Netflix Texas murder mystery, starring an irresistible Malin Akerman, is deliciously and audaciously not safe for work.`\
+https://nytimes.com/2025/07/24/arts/television/the-hunting-wives-netflix.html
+
+**Why 49ers — including Fred Warner — think Dee Winters is 'ready to take that next step'**\
+`Third-round pick Nick Martin may have seemed like the 49ers' replacement for Dre Greenlaw. Winters has something to say about that. `\
+https://nytimes.com/athletic/6514303/2025/07/24/49ers-training-camp-dee-winters-fred-warner/
+
+**Hulk Hogan, Pro Wrestling Legend, Dies at 71**\
+`Hulk Hogan, once the cornerstone of professional wrestling, passed away at the age of 71 after suffering a cardiac arrest. His flamboyant personality and star power helped transform professional wrestling from a low-budget regional attraction into a multibillion-dollar industry.`\
+https://nytimes.com/video/obituaries/100000010304186/hulk-hogan-dies.html
+
+**Fired FEMA Official Files Suit, Saying Board to Hear Worker Disputes Is Paralyzed**\
+`Fired employees have struggled to get a judge to hear their cases because Congress set up a separate system to referee such employment disputes.`\
+https://nytimes.com/2025/07/24/us/politics/fema-trump-merit-systems-protection-board.html
+
 **F.C.C. Approves Skydance’s $8 Billion Merger With Paramount**\
 `The deal, which came under intense scrutiny by the Trump administration, was hailed by the F.C.C. chief, who welcomed “significant changes” at CBS, a unit of Paramount.`\
 https://nytimes.com/2025/07/24/business/media/fcc-skydance-merger-paramount.html
