@@ -1,3 +1,7 @@
+**Intel Expects Work Force to Shrink by 25,000**\
+`The Silicon Valley chip company, which has been struggling, quantified the job cuts it is making as it seeks to turn its business around.`\
+https://nytimes.com/2025/07/24/technology/intel-layoffs-25000.html
+
 **Bills camp observations: David Edwards changes mindset, Joey Bosa takes it slow**\
 `Rookie cornerback Maxwell Hairston continues to have ups and downs, and two offensive tackle options battle for the top backup role.`\
 https://nytimes.com/athletic/6514142/2025/07/24/bills-camp-observations-david-edwards-joey-bosa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/flooding-ruidoso-new-mexico.html
 **Lake Tahoe Boaters Died in Sudden Storm Without Life Jackets, Review Finds**\
 `The eight people who died in a June accident were found without flotation devices, according to a new report. The two survivors relied on the devices to stay afloat.`\
 https://nytimes.com/2025/07/24/us/lake-tahoe-boat-victims.html
-
-**Trump signs executive order aimed at addressing issues in college sports**\
-`Among items in the order are a ban on third-party, pay-for-play payments`\
-https://nytimes.com/athletic/6514072/2025/07/24/trump-executive-order-college-sports-student-athletes/
 
