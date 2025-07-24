@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6450346/2025/07/24/newcastle-transfers-park-south-k
 `Luzardo has occupied extremes from month to month, start to start, and even within games — like Wednesday night.`\
 https://nytimes.com/athletic/6512422/2025/07/24/jesus-luzardos-chaotic-season-phillies-unravels/
 
+**The father, the son, and the tennis court**\
+`Stefanos and Apostolos will resume their coaching partnership after a breakup in 2024. Here's how the father-son team works in tennis.`\
+https://nytimes.com/athletic/5736954/2025/07/24/tennis-players-coaching-fathers-sons-stefanos-apostolos-tsitsipas/
+
 **Cowboys camp observations: CeeDee Lamb sounds motivated for big season**\
 `Lamb is eager for fans to see how the offense will work with George Pickens also catching passes from Dak Prescott. `\
 https://nytimes.com/athletic/6512058/2025/07/24/cowboys-training-camp-ceedee-lamb-george-pickens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512058/2025/07/24/cowboys-training-camp-ceedee-lam
 **Trump’s Name in the Epstein Files, and Rare Protests in Ukraine**\
 `Plus, how many steps do you really need a day?`\
 https://nytimes.com/2025/07/24/podcasts/the-headlines/trump-epstein-files-ukraine-protests.html
-
-**Jaylen Brown used Muay Thai to overcome failure. I tried it and discovered the benefits**\
-`Brown credits Muay Thai with giving him an edge. The Athletic's Elise Devlin wanted to see for herself what it was all about.`\
-https://nytimes.com/athletic/6510796/2025/07/24/celtics-jaylen-brown-muay-thai/
 

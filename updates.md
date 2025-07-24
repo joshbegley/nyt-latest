@@ -1,3 +1,7 @@
+**The father, the son, and the tennis court**\
+`Stefanos and Apostolos will resume their coaching partnership after a breakup in 2024. Here's how the father-son team works in tennis.`\
+https://nytimes.com/athletic/5736954/2025/07/24/tennis-players-coaching-fathers-sons-stefanos-apostolos-tsitsipas/
+
 **The Pulse: Could this deal change how we watch football?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6510910/2025/07/24/nfl-espn-red-zone-deal-the-pulse/
