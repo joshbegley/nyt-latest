@@ -1,3 +1,15 @@
+**Rishabh Pant is clearly injured. Is it time for substitutes in cricket?**\
+`Cricket is a sport that has never truly got to grips with injury replacements - is it time for that to change?`\
+https://nytimes.com/athletic/6513517/2025/07/24/rishabh-pant-india-injured-cricket-substitutes/
+
+**Jesse Chavez announces retirement after 18 seasons**\
+`Chavez appeared in 657 major-league games for nine teams. He was either traded to, signed by or re-signed by the Braves on nine occasions.`\
+https://nytimes.com/athletic/6513695/2025/07/24/jesse-chavez-retirement-braves-2/
+
+**Diamondbacks plan to be sellers at deadline: Sources**\
+`The demand for Eugenio Suárez makes him the the most likely of the DBacks players to move.`\
+https://nytimes.com/athletic/6513618/2025/07/24/arizona-diamondbacks-mlb-trade-deadline-sellers/
+
 **As U.S. Retreats on Climate, China and Europe Pledge to Go Green Together**\
 `A joint statement promised new efforts to cut emissions at a time when China is positioning itself as the world’s one-stop shop for clean energy technologies.`\
 https://nytimes.com/2025/07/24/climate/china-eu-joint-climate-statement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/24/arts/music/chuck-mangione-dead.html
 **Ancient Temples Have Long Been a Flashpoint Between Cambodia and Thailand**\
 `Both countries lay claim to centuries-old worship sites perched on the mountains that divide the two nations, sometimes stoking nationalistic fervor.`\
 https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-conflict-ancient-temples.html
-
-**Johnson completes purchase of Eagle Football's Palace share**\
-`The 78-year-old has owned the NFL's New York Jets for the past 25 years.`\
-https://nytimes.com/athletic/6489878/2025/07/24/crystal-palace-woody-johnson-approved/
-
-**A Little League player was suspended for a bat flip. His family has taken legal action**\
-`The winner of the state title game advances to regionals, where they could move on to the Little League World Series.`\
-https://nytimes.com/athletic/6513120/2025/07/24/little-league-player-suspension-bat-flip/
-
-**Teddy Jarrard commits to Notre Dame, solidifying Irish's QB plans for Class of 2027**\
-`The 6-foot-3, 190-pound prospect from Kennesaw, Ga., was one of just two quarterbacks offered by the Irish this summer.`\
-https://nytimes.com/athletic/6513577/2025/07/24/notre-dame-quarterback-recruiting-teddy-jarrard-2/
 
