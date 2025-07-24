@@ -23,7 +23,7 @@ https://nytimes.com/2025/07/23/business/china-eu-trade-ukraine.html
 https://nytimes.com/2025/07/23/us/bryan-kohberger-idaho-student-murders-evidence.html
 
 **Vikings camp takeaways: J.J. McCarthy's first day, Josh Metellus' contract, more**\
-`The Vikings' quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
+`The Vikings quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
 https://nytimes.com/athletic/6511979/2025/07/23/vikings-camp-takeaways-j-j-mccarthy-josh-metellus/
 
 **Lamar Jackson focused on the now as Ravens enter season of high expectations**\
