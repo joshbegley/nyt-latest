@@ -1,3 +1,23 @@
+**Where Do Untraceable Fishing Fleets Go?**\
+`Many ‘dark vessels’ fish illegally in oceans worldwide. New studies show how often they go into Marine Protected Areas.`\
+https://nytimes.com/2025/07/24/climate/marine-protected-areas-fishing.html
+
+**Von Miller views union with rising Commanders as a 'good marriage'**\
+`ASHBURN, Va.`\
+https://nytimes.com/athletic/6513591/2025/07/24/commanders-von-miller-training-camp/
+
+**How Trump’s Attacks on the Fed Chair Have Intensified**\
+`President Trump has targeted Jerome H. Powell on more than 70 separate occasions, more than half of them since April. His statements fall into four broad categories.`\
+https://nytimes.com/interactive/2025/07/24/business/economy/trump-powell-fed-timeline.html
+
+**Newcastle United, Alexander Isak's wish to leave, and the challenge of being elite**\
+`Their star striker wants a transfer. Not for the first time in living memory, Newcastle the club is holding back Newcastle the team`\
+https://nytimes.com/athletic/6513474/2025/07/24/newcastle-isak-howe-transfers-strategy/
+
+**Carter Hart found not guilty in Hockey Canada sexual assault trial**\
+`Judge says she didn't find the evidence in the Crown's case "credible or reliable" in announcing the verdicts.`\
+https://nytimes.com/athletic/6510753/2025/07/24/hockey-canada-trial-verdict-acquittal-all-charges/
+
 **Pentagon Suspends Its Participation in Think Tank Forums**\
 `For years, Republican and Democratic administrations have sent officials to national security and foreign policy conferences around the world.`\
 https://nytimes.com/2025/07/24/us/politics/pentagon-ban-think-tank-events.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/24/opinion/israel-genocide-bret-stephens.html
 **Yankees rave about Diamondbacks' Eugenio Suárez as trade deadline nears**\
 `Max Fried was among a trio of Yankees pitchers who sang Suárez’s praises as the July 31 trade deadline nears.`\
 https://nytimes.com/athletic/6513615/2025/07/24/yankees-eugenio-suarez-mlb-trade-deadline/
-
-**Can You Do the Nicki Minaj?**\
-`Inspired by an old rap video, social media users are challenging each other to get into a pretzel-like pose in increasingly precarious locations.`\
-https://nytimes.com/2025/07/24/style/nicki-minaj-challenge-tiktok.html
-
-**Agriculture Department to Move Most Remaining Washington Workers Out of City**\
-`More than half of the agency’s 4,600 Washington employees will be spread across five regional hubs.`\
-https://nytimes.com/2025/07/24/us/politics/agriculture-department-workers-washington.html
-
-**Mandel: The Big Ten has landed on Planet Gaslight, and it's determined to bring you along**\
-`The Big Ten's approach to the college football postseason is nonsensical, plain and simple. `\
-https://nytimes.com/athletic/6513124/2025/07/24/big-ten-media-days-college-football-playoff/
-
-**How to Prevent and Treat Hair Loss**\
-`Professional advice on the at-home and in-office treatments that actually work.`\
-https://nytimes.com/article/hair-loss-prevention-treatment.html
-
-**Rishabh Pant is clearly injured. Is it time for substitutes in cricket?**\
-`Cricket is a sport that has never truly got to grips with injury replacements - is it time for that to change?`\
-https://nytimes.com/athletic/6513517/2025/07/24/rishabh-pant-india-injured-cricket-substitutes/
 
