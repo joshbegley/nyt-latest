@@ -1,3 +1,19 @@
+**‘The Hunting Wives’ Is Soapy, Sultry Fun**\
+`The new Netflix Texas murder mystery, starring an irresistible Malin Akerman, is deliciously and audaciously not safe for work.`\
+https://nytimes.com/2025/07/24/arts/television/the-hunting-wives-netflix.html
+
+**Why 49ers — including Fred Warner — think Dee Winters is 'ready to take that next step'**\
+`Third-round pick Nick Martin may have seemed like the 49ers' replacement for Dre Greenlaw. Winters has something to say about that. `\
+https://nytimes.com/athletic/6514303/2025/07/24/49ers-training-camp-dee-winters-fred-warner/
+
+**Hulk Hogan, Pro Wrestling Legend, Dies at 71**\
+`Hulk Hogan, once the cornerstone of professional wrestling, passed away at the age of 71 after suffering a cardiac arrest. His flamboyant personality and star power helped transform professional wrestling from a low-budget regional attraction into a multibillion-dollar industry.`\
+https://nytimes.com/video/obituaries/100000010304186/hulk-hogan-dies.html
+
+**Fired FEMA Official Files Suit, Saying Board to Hear Worker Disputes Is Paralyzed**\
+`Fired employees have struggled to get a judge to hear their cases because Congress set up a separate system to referee such employment disputes.`\
+https://nytimes.com/2025/07/24/us/politics/fema-trump-merit-systems-protection-board.html
+
 **At Redistricting Hearing, Texas Democrats Attack Silent Republicans**\
 `President Trump wants Texas Republicans to redraw the state’s House maps to nab as many as five seats now held by Democrats. But no new maps have been publicly proposed yet.`\
 https://nytimes.com/2025/07/24/us/politics/texas-redistricting.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/24/world/americas/trump-venezuela-convicted-murderer
 **Intel Expects Work Force to Shrink by 25,000**\
 `The Silicon Valley chip company, which has been struggling, quantified the job cuts it is making as it seeks to turn its business around.`\
 https://nytimes.com/2025/07/24/technology/intel-layoffs-25000.html
-
-**Bills camp observations: David Edwards changes mindset, Joey Bosa takes it slow**\
-`Rookie cornerback Maxwell Hairston continues to have ups and downs, and two offensive tackle options battle for the top backup role.`\
-https://nytimes.com/athletic/6514142/2025/07/24/bills-camp-observations-david-edwards-joey-bosa/
-
-**F.C.C. Approves Skydance’s $8 Billion Merger With Paramount**\
-`The deal, which came under intense scrutiny by the Trump administration, was hailed by the F.C.C. chief, who welcomed “significant changes” at CBS, a unit of Paramount.`\
-https://nytimes.com/2025/07/24/business/media/fcc-skydance-merger-paramount.html
-
-**Powell Corrects Trump on Cost of Fed Renovations**\
-`During a tour of the Federal Reserve’s headquarters, President Trump debated with Jerome H. Powell, the Fed chair, over the cost of renovations to the central bank’s headquarters.`\
-https://nytimes.com/video/us/politics/100000010305185/trump-powell-fed-renovation.html
-
-**Ken Paxton Claimed Three Houses as His Primary Residence, Records Show**\
-`The attorney general of Texas, who is challenging Senator John Cornyn, could have secured favorable mortgage rates, and may have violated the law if he knowingly falsified loan documents.`\
-https://nytimes.com/2025/07/24/us/politics/ken-paxton-mortgage.html
 
