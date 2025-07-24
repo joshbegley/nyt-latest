@@ -1,3 +1,7 @@
+**Children Burned by Fighter Crash in Bangladesh Die Days Later**\
+`Many have died in the days since a plane crashed into a school in Bangladesh. For the survivors, there is a critical window for lifesaving treatment.`\
+https://nytimes.com/2025/07/24/world/asia/bangladesh-plane-crash-school-children-deaths.html
+
 **Map: 5.6-Magnitude Earthquake Strikes Indonesia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/24/world/asia/earthquake-indonesia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/business/europe-nears-us-trade-deal.html
 **Jhon Arias to Wolves: Everything you need to know - TLDR**\
 `Wolverhampton Wanderers have completed the signing of Jhon Arias from Fluminense. Here we break down the deal`\
 https://nytimes.com/athletic/6512944/2025/07/24/jhon-arias-wolves-transfer-tldr/
-
-**Justin Fields carted off during Jets training camp with apparent leg injury**\
-`The team has not yet provided any injury update, though head coach Aaron Glenn will speak after practice.`\
-https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-training-camp/
 

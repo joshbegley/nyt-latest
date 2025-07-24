@@ -1,3 +1,11 @@
+**Map: 5.6-Magnitude Earthquake Strikes Indonesia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/24/world/asia/earthquake-indonesia.html
+
+**Shapiro Says Mamdani Fails to Condemn ‘Blatantly Antisemitic’ Rhetoric**\
+`The critique by Josh Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Zohran Mamdani’s primary win in New York City has shaken Democratic leaders.`\
+https://nytimes.com/2025/07/24/us/politics/josh-shapiro-zohran-mamdani.html
+
 **Yes, You Can Own a Home**\
 `Many dream of buying a home, but the obstacles can seem overwhelming. Here’s how one owner beat the odds — and how you can, too.`\
 https://nytimes.com/paidpost/progressive-insurance/yes-you-can-own-a-home.html
