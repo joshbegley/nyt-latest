@@ -1,3 +1,15 @@
+**Rishabh Pant is clearly injured. Is it time for substitutes in cricket?**\
+`Cricket is a sport that has never truly got to grips with injury replacements - is it time for that to change?`\
+https://nytimes.com/athletic/6513517/2025/07/24/rishabh-pant-india-injured-cricket-substitutes/
+
+**Jesse Chavez announces retirement after 18 seasons**\
+`Chavez appeared in 657 major-league games for nine teams. He was either traded to, signed by or re-signed by the Braves on nine occasions.`\
+https://nytimes.com/athletic/6513695/2025/07/24/jesse-chavez-retirement-braves-2/
+
+**Diamondbacks plan to be sellers at deadline: Sources**\
+`The demand for Eugenio Suárez makes him the the most likely of the DBacks players to move.`\
+https://nytimes.com/athletic/6513618/2025/07/24/arizona-diamondbacks-mlb-trade-deadline-sellers/
+
 **As U.S. Retreats on Climate, China and Europe Pledge to Go Green Together**\
 `A joint statement promised new efforts to cut emissions at a time when China is positioning itself as the world’s one-stop shop for clean energy technologies.`\
 https://nytimes.com/2025/07/24/climate/china-eu-joint-climate-statement.html
