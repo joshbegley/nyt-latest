@@ -1,40 +1,40 @@
-**Carlos Rodriguez abandons Tour de France after pelvis fracture**\
-`The Spanish climber came down in a multi-rider crash mostly involving the sprint teams.`\
-https://nytimes.com/athletic/6512650/2025/07/24/carlos-rodriguez-ineos-tour-de-france-pelvis/
+**What to Know About the Deadly Clash Between Thailand and Cambodia**\
+`The countries traded fire across their shared border on Thursday. Thailand said at least 11 civilians and one soldier had been killed.`\
+https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-fight.html
 
-**Isak omitted from Newcastle squad for pre-season tour of east Asia**\
-`Eddie Howe insisted after Saturday's defeat to Celtic that he expected Isak to join Newcastle in Singapore and South Korea this week,`\
-https://nytimes.com/athletic/6512649/2025/07/24/alexander-isak-newcastle-squad-pre-season/
+**Stefanos Tsitsipas splits with Goran Ivanisevic to resume coaching partnership with father**\
+`Tsitsipas and Ivanišević's partnership lasted just two tournaments, after Novak Djokovic's former coach criticized his new player's fitness.`\
+https://nytimes.com/athletic/6512646/2025/07/24/tennis-tsitsipas-coach-ivanisevic-apostolos/
 
-**Ex-Liverpool forward Firmino joins Qatari club Al Sadd**\
-`Firmino joins from Saudi Arabian club Al Ahli, where he won last season's AFC Champions League Elite.`\
-https://nytimes.com/athletic/6125635/2025/07/24/roberto-firmino-transfer-qatar-al-sadd/
+**Aston Villa make offer for Toulouse defender Jaydee Canvot**\
+`The proposal for the 18-year-old has not been accepted by the French side but talks are continuing.`\
+https://nytimes.com/athletic/6512569/2025/07/24/aston-villa-make-offer-for-toulouse-defender-jaydee-canvot/
 
-**How to Host a Hamptons Gala for the Super-Rich**\
-`Facing federal funding cuts, the Parrish Art Museum is among the institutions increasingly relying on elaborate parties to lure the nation’s elites to pitch in.`\
-https://nytimes.com/2025/07/24/nyregion/parrish-museum-hamptons-gala.html
+**How to watch Aces at Fever: Clark shelved, Wilson surging for 'Stranger Things' game**\
+`The Indiana Fever will once again be without Caitlin Clark on Thursday, but they will debut their "Stranger Things" alternate uniforms.`\
+https://nytimes.com/athletic/6512304/2025/07/24/aces-fever-wnba-caitlin-clark-injury-update-stranger-things-how-to-watch/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/24/crosswords/spelling-bee-forum.html
+**Christian Cancel Culture Strikes Again**\
+`Chip and Joanna Gaines had the temerity to feature a gay couple on their new show.`\
+https://nytimes.com/2025/07/24/opinion/chip-joanna-gaines-evangelical-christianity.html
 
-**South Korea Jockeys for a Deal With Trump at Least as Good as Japan’s**\
-`The agreement Japan secured has added pressure on South Korea to defuse the threat of high tariffs on its exports to the United States.`\
-https://nytimes.com/2025/07/24/business/south-korea-trump-tariffs.html
+**In Epstein, Democrats Find Unlikely Weapon Against Republicans**\
+`A conspiracy theory many of them once dismissed has given Democrats a potent tool for exploiting G.O.P. divisions, even if it has little to do with what many regard as their best line of attack against Republicans.`\
+https://nytimes.com/2025/07/24/us/politics/epstein-democrats-republicans.html
 
-**A Timeline of the Latest Conflict Between Cambodia and Thailand**\
-`The two nations have been locked in a decades-long conflict over their contested border. Tensions in disputed territories soured earlier this year.`\
-https://nytimes.com/2025/07/24/world/asia/cambodia-thailand-conflict-timeline.html
+**Two Americans Made Their Dreams Come True in Normandy, France**\
+`A couple from Colorado wondered for years if they’d be able to buy a home in France and make a new life for themselves. Last year, they saw where their $450,000 budget could take them.`\
+https://nytimes.com/interactive/2025/07/24/realestate/normandy-france-homes-for-sale.html
 
-**Late Night Comedians Revel in the Latest Trump-Epstein Development**\
-`Stephen Colbert feigned surprise at reports that the president had already been told he was in the Epstein files: “But he said he hardly knew the guy!”`\
-https://nytimes.com/2025/07/24/arts/television/late-night-trump-epstein.html
+**Democrats Have Few Tools to Counter G.O.P. Redistricting**\
+`A plan in Texas that could give Republicans at least five more House seats has Democrats fuming, and without many paths to fight it.`\
+https://nytimes.com/2025/07/24/us/politics/texas-redistricting-republicans-democrats.html
 
-**Word of the Day: gobble**\
-`This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/24/learning/word-of-the-day-gobble.html
+**America Will Come to Regret Selling A.I. Chips to China**\
+`We should not allow American troops and intelligence officers to be targeted by A.I. trained on U.S. chips.`\
+https://nytimes.com/2025/07/24/opinion/ai-chips-nvidia-china.html
 
-**Mine Collapse Traps 3 Workers in British Columbia**\
-`A rescue operation is underway at the Red Chris gold and copper mine to reach the trapped miners, who were safe in a sealed chamber underground, according to officials.`\
-https://nytimes.com/2025/07/24/us/canada-miners-trapped.html
+**Obama Won Record Numbers of Nonwhite Voters. This Is How the Democrats Lost Them.**\
+`One in five voters who cast a ballot for Donald Trump in 2024 was a person of color. Why?`\
+https://nytimes.com/interactive/2025/07/24/opinion/minority-voters-trump-right.html
 
