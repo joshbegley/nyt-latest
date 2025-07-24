@@ -1,3 +1,11 @@
+**Intel Expects Work Force to Shrink by 25,000**\
+`The Silicon Valley chip company, which has been struggling, quantified the job cuts it is making as it seeks to turn its business around.`\
+https://nytimes.com/2025/07/24/technology/intel-layoffs-25000.html
+
+**Bills camp observations: David Edwards changes mindset, Joey Bosa takes it slow**\
+`Rookie cornerback Maxwell Hairston continues to have ups and downs, and two offensive tackle options battle for the top backup role.`\
+https://nytimes.com/athletic/6514142/2025/07/24/bills-camp-observations-david-edwards-joey-bosa/
+
 **F.C.C. Approves Skydance’s Merger With Paramount**\
 `The agency’s blessing was one of the last hurdles for the deal, which was being subjected to close scrutiny by the Trump administration.`\
 https://nytimes.com/2025/07/24/business/media/fcc-skydance-merger-paramount.html
