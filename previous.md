@@ -1,3 +1,11 @@
+**Football Architects: How the sport’s data pioneers convinced the world to take notice**\
+`How football data went from a niche sideline to become a fundamental part of recruitment`\
+https://nytimes.com/athletic/6445379/2025/07/24/football-architects-data-analysis-revolution/
+
+**'Suds' Gopaladesikan: Newcastle's Microsoft graduate who found value in Lookman and Hojlund**\
+`The new Newcastle is taking shape - Sudarshan Gopaladesikan arrives as technical director from Atalanta with an impressive CV`\
+https://nytimes.com/athletic/6510564/2025/07/24/suds-gopaladesikan-newcastle-technical-director-lookman-hojlund/
+
 **Should any of England's finishers be starters in the Euros final?**\
 `Sarina Wiegman's substitutes have made a huge impact at the Euros - but will she trust any of them to start Sunday's final?`\
 https://nytimes.com/athletic/6510669/2025/07/24/england-lionesses-finishers-starters/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/business/trump-japan-trade-deal-cars.html
 **Corrections: July 24, 2025**\
 `Corrections that appeared in print on Thursday, July 24, 2025.`\
 https://nytimes.com/2025/07/24/pageoneplus/corrections-july-24-2025.html
-
-**Why One of the Causes of Falling Birthrates May Be Prosperity**\
-`Economic growth has the unintended side effects of making parenthood more difficult and expensive.`\
-https://nytimes.com/2025/07/24/world/falling-birthrates-economic-growth-pronatalism.html
-
-**Connections: Sports Edition Coach: Hints for July 24, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6509652/2025/07/24/connections-sports-edition-hints-for-july-24-2025/
 
