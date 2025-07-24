@@ -1,3 +1,7 @@
+**Thai and Cambodian Troops Fire at Each Other as Relations Implode**\
+`Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
+https://nytimes.com/2025/07/23/world/asia/thailand-cambodia.html
+
 **This Was Supposed to Be the Year China Started Catching Up With SpaceX**\
 `China’s biggest networks have deployed less than 1 percent of their planned satellites, falling far behind SpaceX for dominance in space communications.`\
 https://nytimes.com/interactive/2025/07/23/world/asia/starlink-spacex-musk-china-satellites.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-re
 **Georgia football commit Chace Calicut charged in Texas drive-by shooting**\
 `Calicut's co-defendent, accused of being who fired at the victims, died over the weekend in a shooting at a Houston-area pool party.`\
 https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-shooting-arrest/
-
-**Why Does Anyone Think Trump Will Uphold His End of a Bargain With Columbia?**\
-`When the government is often behaving unchecked by the law, the idea of a binding contract is a fantasy.`\
-https://nytimes.com/2025/07/23/opinion/trump-columbia-deal-professor.html
 
