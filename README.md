@@ -1,3 +1,7 @@
+**Passenger Jet With 49 Onboard Crashes in Russia’s Far East**\
+`The plane was traveling to the town of Tynda when it went off the radar, the regional governor said.`\
+https://nytimes.com/2025/07/24/world/europe/plane-crash-russia.html
+
 **What to Know About the Deadly Clash Between Thailand and Cambodia**\
 `The countries traded fire across their shared border on Thursday. Thailand said at least 11 civilians and one soldier had been killed.`\
 https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-fight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/texas-redistricting-republicans-democ
 **America Will Come to Regret Selling A.I. Chips to China**\
 `We should not allow American troops and intelligence officers to be targeted by A.I. trained on U.S. chips.`\
 https://nytimes.com/2025/07/24/opinion/ai-chips-nvidia-china.html
-
-**Obama Won Record Numbers of Nonwhite Voters. This Is How the Democrats Lost Them.**\
-`One in five voters who cast a ballot for Donald Trump in 2024 was a person of color. Why?`\
-https://nytimes.com/interactive/2025/07/24/opinion/minority-voters-trump-right.html
 
