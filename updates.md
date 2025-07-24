@@ -1,3 +1,19 @@
+**With a Single Image, U.S. Deportation Narrative Is Turned on Its Head**\
+`President Trump has vowed to expel criminals, but a photo of a convicted killer being brought to the U.S. in a prisoner swap sends another message.`\
+https://nytimes.com/2025/07/24/world/americas/us-venezuela-prisoner-swap-murderer-photo.html
+
+**Patriots training camp takeaways: Stefon Diggs impresses, but questions elsewhere**\
+`The veteran wideout has looked healthy and fluid so far, but the rest of the receiving corps (and the offensive line) has some work to do.`\
+https://nytimes.com/athletic/6513681/2025/07/24/patriots-training-camp-stefon-diggs/
+
+**Trump Has a Terrible Idea for American Sports Teams**\
+`Hint: It’s also a terrible idea for American Indians.`\
+https://nytimes.com/2025/07/24/opinion/trump-sports-washington-commanders-cleveland-guardians.html
+
+**Carter Hart, Cal Foote, Dillon Dubé and Alex Formenton found not guilty in Hockey Canada sexual assault trial**\
+`Judge says she didn't find the evidence in the Crown's case "credible or reliable" in announcing the verdicts.`\
+https://nytimes.com/athletic/6510753/2025/07/24/hockey-canada-trial-verdict-acquittal-all-charges/
+
 **Joe Biden’s Presidential Memoir Sells for $10 Million**\
 `The former president has said he’s been ‘working like hell’ on the book, which will focus on his term in office.`\
 https://nytimes.com/2025/07/24/books/joe-biden-memoir-deal.html

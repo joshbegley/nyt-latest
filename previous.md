@@ -1,3 +1,15 @@
+**With a Single Image, U.S. Deportation Narrative Is Turned on Its Head**\
+`President Trump has vowed to expel criminals, but a photo of a convicted killer being brought to the U.S. in a prisoner swap sends another message.`\
+https://nytimes.com/2025/07/24/world/americas/us-venezuela-prisoner-swap-murderer-photo.html
+
+**Patriots training camp takeaways: Stefon Diggs impresses, but questions elsewhere**\
+`The veteran wideout has looked healthy and fluid so far, but the rest of the receiving corps (and the offensive line) has some work to do.`\
+https://nytimes.com/athletic/6513681/2025/07/24/patriots-training-camp-stefon-diggs/
+
+**Trump Has a Terrible Idea for American Sports Teams**\
+`Hint: It’s also a terrible idea for American Indians.`\
+https://nytimes.com/2025/07/24/opinion/trump-sports-washington-commanders-cleveland-guardians.html
+
 **Joe Biden’s Presidential Memoir Sells for $10 Million**\
 `The former president has said he’s been ‘working like hell’ on the book, which will focus on his term in office.`\
 https://nytimes.com/2025/07/24/books/joe-biden-memoir-deal.html
@@ -22,19 +34,7 @@ https://nytimes.com/interactive/2025/07/24/business/economy/trump-powell-fed-tim
 `Their star striker wants a transfer. Not for the first time in living memory, Newcastle the club is holding back Newcastle the team`\
 https://nytimes.com/athletic/6513474/2025/07/24/newcastle-isak-howe-transfers-strategy/
 
-**Carter Hart, Cal Foote, Alex Formenton found not guilty in Hockey Canada sexual assault trial**\
+**Carter Hart, Cal Foote, Dillon Dubé and Alex Formenton found not guilty in Hockey Canada sexual assault trial**\
 `Judge says she didn't find the evidence in the Crown's case "credible or reliable" in announcing the verdicts.`\
 https://nytimes.com/athletic/6510753/2025/07/24/hockey-canada-trial-verdict-acquittal-all-charges/
-
-**Pentagon Suspends Its Participation in Think Tank Forums**\
-`For years, Republican and Democratic administrations have sent officials to national security and foreign policy conferences around the world.`\
-https://nytimes.com/2025/07/24/us/politics/pentagon-ban-think-tank-events.html
-
-**Bills RB James Cook says new deal is 'going to get done. Wherever it happens'**\
-`Cook has repeatedly said he wants to end his career with the Bills but his latest comments left the door open for an exit.`\
-https://nytimes.com/athletic/6513598/2025/07/24/bills-james-cook-new-deal/
-
-**What do fans want the future of college sports to look like? Take The Athletic's survey**\
-`College sports, for good and for ill, have been transformed. We thought we’d ask you, the people who love college sports, what you think.`\
-https://nytimes.com/athletic/6513297/2025/07/24/college-sports-football-fans-survey-2025/
 
