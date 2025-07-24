@@ -1,3 +1,15 @@
+**Leeds closing in on Lucas Perri deal**\
+`The 27-year-old goalkeeper only joined Lyon last summer but is poised to become Leeds' seventh summer signing.`\
+https://nytimes.com/athletic/6512792/2025/07/24/lucas-perri-leeds-transfer-lyon/
+
+**What’s in a Name?**\
+`All politicians try to play the frame game. President Trump is a master at it.`\
+https://nytimes.com/2025/07/24/briefing/whats-in-a-name.html
+
+**China could be a player in efforts to calm Cambodia-Thailand tensions.**\
+`By Vivian Wang`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/china-could-be-a-player-in-efforts-to-calm-cambodia-thailand-tensions
+
 **A Puppet Theater Gets Weird, With Georg Baselitz as a Guide**\
 `At this year’s Salzburg Festival, the German artist has designed marionettes for a troupe that usually performs “The Sound of Music.”`\
 https://nytimes.com/2025/07/24/arts/music/georg-baselitz-the-soldiers-tale-salzburg-festival.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6510796/2025/07/24/celtics-jaylen-brown-muay-thai/
 **Addressing Reed Sheppard concerns, spacing questions and more: Rockets mailbag**\
 `Are Reed Sheppard's struggles at summer league indicative of what's to come next season? Kelly Iko answers your Rockets questions. `\
 https://nytimes.com/athletic/6511189/2025/07/24/rockets-reed-sheppard-cam-whitmore-trade/
-
-**If Yankees lose AL East to Blue Jays, it'll be because of sloppiness they just showed**\
-`The Yankees bumbled through a four-error, 8-4 defeat by the Blue Jays on Wednesday night.`\
-https://nytimes.com/athletic/6512452/2025/07/24/yankees-blue-jays-al-east-race-sloppy/
-
-**Twins takeaways: Royce Lewis' re-emergence adds another wrinkle ahead of trade deadline**\
-`Perhaps Lewis’s good mental place convinces the Twins front office to keep together a roster which has underwhelmed all season.`\
-https://nytimes.com/athletic/6512239/2025/07/24/twins-royce-lewis-trade-deadline/
-
-**What we’re hearing on the MLB trade deadline: Sandy Alcantara, Zac Gallen and the pitching market**\
-`Contenders searching for an ace will likely to have to aim a little lower: 'All the guys are going to have a little bit of warts on them.'`\
-https://nytimes.com/athletic/6512151/2025/07/24/mlb-trade-deadline-pitching-alcantra-gallen/
 

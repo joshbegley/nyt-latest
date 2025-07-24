@@ -1,3 +1,7 @@
+**A Puppet Theater Gets Weird, With Georg Baselitz as a Guide**\
+`At this year’s Salzburg Festival, the German artist has designed marionettes for a troupe that usually performs “The Sound of Music.”`\
+https://nytimes.com/2025/07/24/arts/music/georg-baselitz-the-soldiers-tale-salzburg-festival.html
+
 **Newcastle sign winger Park Seung-soo,18**\
 `Primarily featuring on the left-wing, Park made 27 appearances for the K League 2 club, scoring once and providing three assists.`\
 https://nytimes.com/athletic/6450346/2025/07/24/newcastle-transfers-park-south-korea/
