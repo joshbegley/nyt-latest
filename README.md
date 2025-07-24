@@ -1,3 +1,7 @@
+**Beat at Chess**\
+`Ginny Too’s debut puzzle takes flight.`\
+https://nytimes.com/2025/07/23/crosswords/daily-puzzle-2025-07-24.html
+
 **USC freshman Alijah Arenas expected to miss 6-8 months with knee injury**\
 `McDonald's All-American was expected to be a centerpiece of Eric Musselman's 2025-26 team.`\
 https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/us/politics/trump-ai-nuclear-weapons.html
 **House Panel Approves Spending Bill That Rejects Some Trump Foreign Aid Cuts**\
 `The Republican-led House Appropriations Committee put forth legislation that would slash the foreign aid and State Department budget but salvage some programs that the president wants to defund.`\
 https://nytimes.com/2025/07/23/us/politics/house-spending-trump-foreign-aid.html
-
-**Chinese and European Leaders Meet Amid Grievances on Trade**\
-`European Union officials are set for a summit with China’s top leaders. China’s support of Russia and a long list of trade disputes are on the agenda.`\
-https://nytimes.com/2025/07/23/business/china-eu-trade-ukraine.html
 
