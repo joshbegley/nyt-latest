@@ -1,3 +1,19 @@
+**Hulk Hogan: A Life in Pictures**\
+`The wrestler, who died on Thursday at 71, was the face of the sport as its popularity grew, propelling him into the wider entertainment world.`\
+https://nytimes.com/2025/07/24/arts/hulk-hogan-a-life-in-pictures.html
+
+**Readers Sent Us Hundreds of Local Climate Solutions**\
+`As part of our 50 States, 50 Fixes series, more than 2,400 Times readers wrote in to tell us about climate action in their communities.`\
+https://nytimes.com/2025/07/24/climate/readers-sent-us-hundreds-of-local-climate-solutions.html
+
+**Read the Trump Administration’s Suit Against New York**\
+`The Justice Department on Thursday sued Mayor Eric Adams, claiming that New York City is hindering the Trump administration’s enforcement of immigration law.`\
+https://nytimes.com/interactive/2025/07/24/nyregion/govuscourtsnyed53420710.html
+
+**Dan Campbell steps in again to cool down Lions: Training camp news and notes**\
+`Amon-Ra St. Brown and Brian Branch got at it again as the Lions looked ready for joint practices to take out some of this energy.`\
+https://nytimes.com/athletic/6513766/2025/07/24/lions-training-camp-fights-dan-campbell/
+
 **Bill Belichick fits right in at ACC media day — and even cracks a few jokes**\
 `Belichick's message to recruits: "We’re not trying to overhype or oversell something we can’t deliver. We’re trying to sell who we are."`\
 https://nytimes.com/athletic/6513983/2025/07/24/bill-belichick-acc-media-day-north-carolina/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/24/opinion/ambition-self-improvement.html
 **Fantasy baseball bullpen report and how every team is likely to handle MLB trade deadline**\
 `Greg Jewett details what are the likely intentions of each team in regard to its bullpen ahead of the MLB trade deadline.`\
 https://nytimes.com/athletic/6513901/2025/07/24/fantasy-baseball-2025-mlb-trade-deadline-bullpen/
-
-**The Justice Dept. Wants to Interview Ghislaine Maxwell, While Opposing Her Appeal**\
-`Even as top Justice Department officials brokered an interview with a longtime associate of Jeffrey Epstein, they asked the Supreme Court to reject her appeal.`\
-https://nytimes.com/2025/07/24/us/epstein-maxwell-supreme-court-appeal.html
-
-**CBS News Names New Executive Producer for ‘60 Minutes’**\
-`Tanya Simon, who has worked on the show for over two decades, will take over at a time of significant change for the network.`\
-https://nytimes.com/2025/07/24/business/media/60-minutes-tanya-simon-cbs.html
-
-**Did Columbia’s Deal With Trump Save Its Stature or Sacrifice It?**\
-`Reactions ranged from fierce criticism to relief after the university reached a settlement over allegations that it failed to stop the harassment of Jewish students.`\
-https://nytimes.com/2025/07/24/nyregion/columbia-trump-deal-reaction.html
-
-**Israel and the U.S. Withdraw From Talks With Hamas**\
-`President Trump’s special envoy said that “we will now consider alternative options to bring the hostages home,” though it was not clear that negotiations had halted.`\
-https://nytimes.com/2025/07/24/us/politics/israel-us-hamas-talks.html
 
