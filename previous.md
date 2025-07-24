@@ -1,41 +1,40 @@
-**Quote of the Day: Student Arrests, and a Suit Challenging Them, Tread New Legal Ground**\
-`Quotation of the Day for Thursday, July 24, 2025.`\
-https://nytimes.com/2025/07/23/pageoneplus/quote-of-the-day-student-arrests-and-a-suit-challenging-them-tread-new-legal-ground.html
+**Should any of England's finishers be starters in the Euros final?**\
+`Sarina Wiegman's substitutes have made a huge impact at the Euros - but will she trust any of them to start Sunday's final?`\
+https://nytimes.com/athletic/6510669/2025/07/24/england-lionesses-finishers-starters/
 
-**MLS's calendar, roster changes aren't happening yet, but it's a matter of time**\
-`Despite expectation that MLS would take official steps toward significant foundational change, progress on that front is evident`\
-https://nytimes.com/athletic/6512352/2025/07/23/mls-schedule-change-european-calendar-roster-rules-don-garber/
+**Do Premier League clubs ever successfully replace big-money sales with cheaper replacements?**\
+`Teams often sell a player for big money and then bring someone in to replace them. But can it work?`\
+https://nytimes.com/athletic/6510644/2025/07/24/premier-league-transfers-sales-replacements-cheaper/
 
-**Thai and Cambodian Troops Fire at Each Other as Relations Implode**\
-`Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
-https://nytimes.com/2025/07/23/world/asia/thailand-cambodia.html
+**Can VAR learn from this sport's officiating? Military-grade GPS systems and a 98 percent accuracy**\
+`The Athletic went behind the scenes at SailGP broadcast headquarters to find out how the sport is using technology to help its umpires`\
+https://nytimes.com/athletic/6508571/2025/07/24/sailgp-umpires-technology-var-behind-the-scenes/
 
-**This Was Supposed to Be the Year China Started Catching Up With SpaceX**\
-`China’s biggest networks have deployed less than 1 percent of their planned satellites, falling far behind SpaceX for dominance in space communications.`\
-https://nytimes.com/interactive/2025/07/23/world/asia/starlink-spacex-musk-china-satellites.html
+**Hugo Ekitike to Liverpool: Everything you need to know - TLDR**\
+`The champions have boosted their forward options by bringing in the 23-year-old Frenchman from Eintracht Frankfurt. We break down the deal`\
+https://nytimes.com/athletic/6506166/2025/07/24/hugo-ekitike-liverpool-transfer-tldr/
 
-**Appeals Court Blocks Trump’s Attempt to Restrict Birthright Citizenship**\
-`The ruling from the U.S. Court of Appeals for the Ninth Circuit brings the White House’s theory of citizenship closer to a full Supreme Court review.`\
-https://nytimes.com/2025/07/23/us/politics/appeals-court-birthright-citizenship.html
+**Minus Messi, MLS All-Stars handle Liga MX through their other top scorers**\
+`Sam Surridge, Tai Baribo and Brian White led MLS's All-Stars to victory over their counterparts from Liga MX`\
+https://nytimes.com/athletic/6512396/2025/07/24/mls-all-star-game-liga-mx-result-video-highlights/
 
-**Upcoming live Q&A with Keith Law on updated prospect rankings as trade deadline looms**\
-`<p>On Thursday, Keith Law is releasing his updated Top 60 prospects list. He’ll chat about it and more — the trade deadline is less than a week away, after all — with fans in a live Q&amp;A at 1 p.m. Eastern on Thursday.</p>
-`\
-https://nytimes.com/athletic/6512276/2025/07/23/keith-law-live-qa-prospect-rankings/
+**How a Chinese Border Town Keeps Russia’s Economy Afloat**\
+`The flow of goods in Manzhouli, China’s main border crossing with Russia, underscores increasingly close ties between the two countries, complicating China’s relationship with Europe.`\
+https://nytimes.com/2025/07/24/business/manzhouli-china-russia-economy.html
 
-**MLS commissioner addresses Messi, Jordi Alba missing All-Star Game**\
-`The two Inter Miami stars could face a one-game suspension for failing to turn up at the All-Star Game, per league rules`\
-https://nytimes.com/athletic/6511945/2025/07/23/messi-jordi-alba-suspension-mls-all-star-game-inter-miami-fc-cincinnati/
+**Trade Deal Could Give Japanese Cars a Leg Up in U.S. Market**\
+`President Trump’s 15 percent tariff on cars from Japan has angered U.S. automakers, which make cars in Canada and Mexico subject to 25 percent tariffs.`\
+https://nytimes.com/2025/07/24/business/trump-japan-trade-deal-cars.html
 
-**Columbia’s Deal With Trump: What We Know**\
-`The university entered into an agreement to settle claims that it allegedly violated federal anti-discrimination laws.`\
-https://nytimes.com/2025/07/23/nyregion/columbia-university-deal-with-trump-what-we-know.html
+**Corrections: July 24, 2025**\
+`Corrections that appeared in print on Thursday, July 24, 2025.`\
+https://nytimes.com/2025/07/24/pageoneplus/corrections-july-24-2025.html
 
-**Beat at Chess**\
-`Ginny Too’s debut puzzle takes flight.`\
-https://nytimes.com/2025/07/23/crosswords/daily-puzzle-2025-07-24.html
+**Why One of the Causes of Falling Birthrates May Be Prosperity**\
+`Economic growth has the unintended side effects of making parenthood more difficult and expensive.`\
+https://nytimes.com/2025/07/24/world/falling-birthrates-economic-growth-pronatalism.html
 
-**USC freshman Alijah Arenas expected to miss 6-8 months with knee injury**\
-`McDonald's All-American was expected to be a centerpiece of Eric Musselman's 2025-26 team.`\
-https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
+**Connections: Sports Edition Coach: Hints for July 24, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6509652/2025/07/24/connections-sports-edition-hints-for-july-24-2025/
 
