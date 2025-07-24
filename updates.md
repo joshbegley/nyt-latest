@@ -1,3 +1,7 @@
+**Face to Face, Powell Told Trump He Was Wrong. About a Real Estate Project.**\
+`President Trump is used to world leaders bowing down to him, and to cabinet members fawning over him. Jerome H. Powell, the chair of the Federal Reserve, took a different approach.`\
+https://nytimes.com/2025/07/24/us/politics/trump-powell-real-estate.html
+
 **Cardinals LB J.J. Russell taken to hospital after frightening practice injury**\
 `Team said Russell was alert and had movement in all extremities.`\
 https://nytimes.com/athletic/6514427/2025/07/24/cardinals-jj-russell-injury-head-neck-hospital/

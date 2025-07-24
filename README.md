@@ -1,3 +1,15 @@
+**Hulk Hogan’s Villain Turn Changed Pro Wrestling**\
+`Hulk Hogan cultivated an image as an all-American hero. But one night in 1996, he decided to stick it to his fans, brother.`\
+https://nytimes.com/2025/07/24/arts/hulk-hogan-nwo-heel.html
+
+**Astros are 'prioritizing the bats' as MLB's July 31 trade deadline nears**\
+`No major-league lineup has had fewer plate appearances by a left-handed hitter than Houston’s`\
+https://nytimes.com/athletic/6514560/2025/07/24/houston-astros-trade-deadline-priorities/
+
+**Kansas coach Bill Self admitted to hospital, has 2 stents inserted**\
+`Self, 62, was transported to the hospital after he "felt unwell and experienced some concerning symptoms," the school said.`\
+https://nytimes.com/athletic/6514507/2025/07/24/bill-self-kansas-health-hospital/
+
 **Face to Face, Powell Told Trump He Was Wrong. About a Real Estate Project.**\
 `President Trump is used to world leaders bowing down to him, and to cabinet members fawning over him. Jerome H. Powell, the chair of the Federal Reserve, took a different approach.`\
 https://nytimes.com/2025/07/24/us/politics/trump-powell-real-estate.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/obituaries/100000010304186/hulk-hogan-dies.html
 **Fired FEMA Official Files Suit, Saying Board to Hear Worker Disputes Is Paralyzed**\
 `Fired employees have struggled to get a judge to hear their cases because Congress set up a separate system to referee such employment disputes.`\
 https://nytimes.com/2025/07/24/us/politics/fema-trump-merit-systems-protection-board.html
-
-**At Redistricting Hearing, Texas Democrats Attack Silent Republicans**\
-`President Trump wants Texas Republicans to redraw the state’s House maps to nab as many as five seats now held by Democrats. But no new maps have been publicly proposed yet.`\
-https://nytimes.com/2025/07/24/us/politics/texas-redistricting.html
-
-**Gabbard’s Attacks on Obama Put the Attorney General in a Tough Spot**\
-`The director of national intelligence gave the Justice Department little warning before she demanded an investigation.`\
-https://nytimes.com/2025/07/24/us/politics/trump-obama-gabbard-bondi.html
-
-**What the path back to the NHL looks like for Carter Hart, other Hockey Canada defendants**\
-`The players are unrestricted free agents but will not be eligible to sign with a team until the NHL has conducted its own review.`\
-https://nytimes.com/athletic/6513608/2025/07/24/hockey-canada-trial-verdict-defendants-nhl-future/
 
