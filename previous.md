@@ -1,3 +1,11 @@
+**Indiana Fever's Sophie Cunningham fined for TikTok mocking WNBA refs**\
+`Cunningham is averaging 7.3 points and 4.1 rebounds in 19 games.`\
+https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-fined-wnba-refs/
+
+**Trump’s A.I. Challenge: Focus on World’s Most Dangerous Weapons or Woke-ism?**\
+`In the Biden era, the government feared AI models would guide the spread of chemical, biological or nuclear weapons. President Trump signed an order on “Preventing Woke A.I. in the Federal Government.”`\
+https://nytimes.com/2025/07/23/us/politics/trump-ai-nuclear-weapons.html
+
 **House Panel Approves Spending Bill That Rejects Some Trump Foreign Aid Cuts**\
 `The Republican-led House Appropriations Committee put forth legislation that would slash the foreign aid and State Department budget but salvage some programs that the president wants to defund.`\
 https://nytimes.com/2025/07/23/us/politics/house-spending-trump-foreign-aid.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-de
 **Prosecutor Fired by Trump Officials Says She Is Set to Take Over Office**\
 `Desiree Grace, in a social media post, said she was prepared to follow a judicial order and take over as U.S. attorney in New Jersey “in accordance with the law.”`\
 https://nytimes.com/2025/07/23/nyregion/desiree-grace-new-jersey-us-attorney.html
-
-**3 Men Who Disappeared While Fishing in Mississippi River Are Found Dead**\
-`The men were last seen on a sandbar south of a boat ramp in Meeman-Shelby Forest State Park, about 13 miles north of Memphis.`\
-https://nytimes.com/2025/07/23/us/mississippi-river-missing-men-dead.html
-
-**Columbia Agrees to $200 Million Fine to Settle Fight With Trump**\
-`The White House had canceled more than $400 million in research funding to the university, saying it had failed to protect Jewish students from harassment.`\
-https://nytimes.com/2025/07/23/nyregion/columbia-trump-funding-deal.html
 

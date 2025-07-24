@@ -1,3 +1,11 @@
+**Indiana Fever's Sophie Cunningham fined for TikTok mocking WNBA refs**\
+`Cunningham is averaging 7.3 points and 4.1 rebounds in 19 games.`\
+https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-fined-wnba-refs/
+
+**Trump’s A.I. Challenge: Focus on World’s Most Dangerous Weapons or Woke-ism?**\
+`In the Biden era, the government feared AI models would guide the spread of chemical, biological or nuclear weapons. President Trump signed an order on “Preventing Woke A.I. in the Federal Government.”`\
+https://nytimes.com/2025/07/23/us/politics/trump-ai-nuclear-weapons.html
+
 **House Panel Approves Spending Bill That Rejects Some Trump Foreign Aid Cuts**\
 `The Republican-led House Appropriations Committee put forth legislation that would slash the foreign aid and State Department budget but salvage some programs that the president wants to defund.`\
 https://nytimes.com/2025/07/23/us/politics/house-spending-trump-foreign-aid.html
