@@ -1,3 +1,11 @@
+**Teddy Jarrard commits to Notre Dame, solidifying Irish's QB plans for Class of 2027**\
+`The 6-foot-3, 190-pound prospect from Kennesaw, Ga., was one of just two quarterbacks offered by the Irish this summer.`\
+https://nytimes.com/athletic/6513577/2025/07/24/notre-dame-quarterback-recruiting-teddy-jarrard-2/
+
+**Tour de France stage 18: Ben O'Connor wins Tour's queen stage as Pogacar slays his Col de la Loze ghosts**\
+`Analysis of the latest day's action in the 2025 race - a 171.5km Alpine monster from Vif to the Col de la Loze`\
+https://nytimes.com/athletic/6512896/2025/07/24/tour-de-france-stage-18-analysis/
+
 **Appeals Court Blocks California’s Background Checks for Ammunition Buyers**\
 `The law violates the Second Amendment, a panel of the U.S. Court of Appeals for the Ninth Circuit ruled in a 2-1 decision.`\
 https://nytimes.com/2025/07/24/us/california-ammunition-background-check-appeal.html

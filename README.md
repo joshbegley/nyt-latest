@@ -1,3 +1,7 @@
+**A Little League player was suspended for a bat flip. His family has taken legal action**\
+`The winner of the state title game advances to regionals, where they could move on to the Little League World Series.`\
+https://nytimes.com/athletic/6513120/2025/07/24/little-league-player-suspension-bat-flip/
+
 **Teddy Jarrard commits to Notre Dame, solidifying Irish's QB plans for Class of 2027**\
 `The 6-foot-3, 190-pound prospect from Kennesaw, Ga., was one of just two quarterbacks offered by the Irish this summer.`\
 https://nytimes.com/athletic/6513577/2025/07/24/notre-dame-quarterback-recruiting-teddy-jarrard-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/dining/vegetarian-corn-recipes-for-playing-corn-b
 **Christie’s Debuts Crypto Real Estate Division**\
 `The brokerage, which has already handled transactions with digital payment in lieu of cash, is the first major U.S. firm to create a dedicated team for such deals.`\
 https://nytimes.com/2025/07/24/realestate/crypto-real-estate-christies.html
-
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/07/24/books/review/new-book-recommendations.html
 
