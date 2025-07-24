@@ -1,3 +1,7 @@
+**Live Updates: Thai and Cambodian Troops Fire at Each Other as Relations Deteriorate**\
+`Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
+
 **Thursday Briefing: Your Russia Questions Answered**\
 `Plus, meet the other great Kurosawa.`\
 https://nytimes.com/2025/07/24/briefing/russia-ukraine-trump-gaza-ozzy-osbourne.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510564/2025/07/24/suds-gopaladesikan-newcastle-tec
 **Should any of England's finishers be starters in the Euros final?**\
 `Sarina Wiegman's substitutes have made a huge impact at the Euros - but will she trust any of them to start Sunday's final?`\
 https://nytimes.com/athletic/6510669/2025/07/24/england-lionesses-finishers-starters/
-
-**Do Premier League clubs ever successfully replace big-money sales with cheaper replacements?**\
-`Teams often sell a player for big money and then bring someone in to replace them. But can it work?`\
-https://nytimes.com/athletic/6510644/2025/07/24/premier-league-transfers-sales-replacements-cheaper/
 
