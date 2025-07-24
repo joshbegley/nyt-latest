@@ -1,3 +1,11 @@
+**Reds interested in bringing back fan favorite Eugenio Suárez**\
+`According to sources, the Diamondbacks are interested in kicking the tires on promising starter Chase Petty.`\
+https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-deadline/
+
+**Prosecutor Fired by Trump Officials Says She Is Set to Take Over Office**\
+`Desiree Grace, in a social media post, said she was prepared to follow a judicial order and take over as U.S. attorney in New Jersey “in accordance with the law.”`\
+https://nytimes.com/2025/07/23/nyregion/desiree-grace-new-jersey-us-attorney.html
+
 **3 Men Who Disappeared While Fishing in Mississippi River Are Found Dead**\
 `The men were last seen on a sandbar south of a boat ramp in Meeman-Shelby Forest State Park, about 13 miles north of Memphis.`\
 https://nytimes.com/2025/07/23/us/mississippi-river-missing-men-dead.html
