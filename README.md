@@ -1,3 +1,7 @@
+**Paramount Settled With Trump. Its Shows Are Skewering Him.**\
+`“South Park,” Jon Stewart and Stephen Colbert have all been critical of their own company and President Trump this week.`\
+https://nytimes.com/2025/07/24/business/media/trump-south-park-colbert-stewart.html
+
 **Trump Administration Sues New York City Over Sanctuary Laws**\
 `Mayor Eric Adams, who was spared from a corruption investigation so he could help with the administration’s deportation program, is among the defendants.`\
 https://nytimes.com/2025/07/24/nyregion/trump-new-york-sanctuary-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/world/europe/france-palestine-statehood-macron-ga
 **Familiar Flashpoint Leads to Deadly Clashes Between Thailand and Cambodia**\
 `At least a dozen people were killed after the two countries exchanged fire after simmering tensions over a border dispute boiled over on Thursday.`\
 https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-deadly-border-clash.html
-
-**Bears training camp observations: Running backs can feel the pressure**\
-`The Bears' run game must improve, plus the defense can feel the impact of having Andrew Billings and Jaquan Brisker back.`\
-https://nytimes.com/athletic/6513813/2025/07/24/bears-training-camp-observations-running-backs/
 
