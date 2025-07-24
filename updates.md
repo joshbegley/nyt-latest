@@ -1,3 +1,15 @@
+**How to Host a Hamptons Gala for the Super-Rich**\
+`Facing federal funding cuts, the Parrish Art Museum is among the institutions increasingly relying on elaborate parties to lure the nation’s elites to pitch in.`\
+https://nytimes.com/2025/07/24/nyregion/parrish-museum-hamptons-gala.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/24/crosswords/spelling-bee-forum.html
+
+**A Timeline of the Latest Conflict Between Cambodia and Thailand**\
+`The two nations have been locked in a decades-long conflict over their contested border. Tensions in disputed territories soured earlier this year.`\
+https://nytimes.com/2025/07/24/world/asia/cambodia-thailand-conflict-timeline.html
+
 **South Korea Jockeys for a Deal With Trump at Least as Good as Japan’s**\
 `The agreement Japan secured has added pressure on South Korea to defuse the threat of high tariffs on its exports to the United States.`\
 https://nytimes.com/2025/07/24/business/south-korea-trump-tariffs.html
