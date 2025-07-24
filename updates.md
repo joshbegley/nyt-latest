@@ -1,3 +1,16 @@
+**Appeals Court Blocks Trump’s Attempt to Restrict Birthright Citizenship**\
+`The ruling from the U.S. Court of Appeals for the Ninth Circuit brings the White House’s theory of citizenship closer to a full Supreme Court review.`\
+https://nytimes.com/2025/07/23/us/politics/appeals-court-birthright-citizenship.html
+
+**Upcoming live Q&A with Keith Law on updated prospect rankings as trade deadline looms**\
+`<p>On Thursday, Keith Law is releasing his updated Top 60 prospects list. He’ll chat about it and more — the trade deadline is less than a week away, after all — with fans in a live Q&amp;A at 1 p.m. Eastern on Thursday.</p>
+`\
+https://nytimes.com/athletic/6512276/2025/07/23/keith-law-live-qa-prospect-rankings/
+
+**MLS commissioner addresses Messi, Jordi Alba missing All-Star Game**\
+`The two Inter Miami stars could face a one-game suspension for failing to turn up at the All-Star Game, per league rules`\
+https://nytimes.com/athletic/6511945/2025/07/23/messi-jordi-alba-suspension-mls-all-star-game-inter-miami-fc-cincinnati/
+
 **Columbia’s Deal With Trump: What We Know**\
 `The university entered into an agreement to settle claims that it allegedly violated federal anti-discrimination laws.`\
 https://nytimes.com/2025/07/23/nyregion/columbia-university-deal-with-trump-what-we-know.html
