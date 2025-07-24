@@ -1,3 +1,11 @@
+**‘I Want to Clear My Name’: Deported Migrant Takes First Step to Sue the U.S.**\
+`Neiyerver Adrián Leon Rengel, who was held in a prison in El Salvador, filed a claim Thursday against Homeland Security, accusing it of wrongful detention.`\
+https://nytimes.com/2025/07/24/us/venezuelan-migrant-us-wrongful-detention.html
+
+**Hulk Hogan, pro wrestler who became a pop culture phenomenon, dies at 71**\
+`With his red and yellow wrestling attire, bleached mustache and custom of ripping his shirt open, Hogan ascended alongside the then-WWF.`\
+https://nytimes.com/athletic/6513523/2025/07/24/hulk-hogan-dead-cardiac-arrest-wwe/
+
 **Tony Evers Declines to Run for 3rd Term as Wisconsin Governor**\
 `The decision is likely to invite a wide-open race for the Democratic nomination in a battleground state the party hopes to control.`\
 https://nytimes.com/2025/07/24/us/politics/tony-evers-wisconsin-governor.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010303277/thailand-cambodia-trade-fir
 **Many Thai civilians fled after gunfire and explosions rocked the region.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/many-thai-civilians-fled-after-gunfire-and-explosions-rocked-the-region
-
-**Hulk Hogan, Shirt-Shredding Superstar of Pro Wrestling, Dies at 71**\
-`The charismatic wrestler helped build an entertainment on the margins into a cultural behemoth.`\
-https://nytimes.com/2025/07/24/sports/hulk-hogan-dead.html
-
-**We Love ‘Parasite.’ But Where the Heck Is Steven Spielberg?**\
-`Wesley Morris talks with Eric Hynes of the Jacob Burns Film Center about Steven Spielberg’s influence on The New York Times’s “100 Best Movies of the 21st Century” list.`\
-https://nytimes.com/video/podcasts/100000010300100/we-love-parasite-but-where-the-heck-is-steven-spielberg.html
 

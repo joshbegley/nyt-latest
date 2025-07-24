@@ -1,3 +1,11 @@
+**‘I Want to Clear My Name’: Deported Migrant Takes First Step to Sue the U.S.**\
+`Neiyerver Adrián Leon Rengel, who was held in a prison in El Salvador, filed a claim Thursday against Homeland Security, accusing it of wrongful detention.`\
+https://nytimes.com/2025/07/24/us/venezuelan-migrant-us-wrongful-detention.html
+
+**Hulk Hogan, pro wrestler who became a pop culture phenomenon, dies at 71**\
+`With his red and yellow wrestling attire, bleached mustache and custom of ripping his shirt open, Hogan ascended alongside the then-WWF.`\
+https://nytimes.com/athletic/6513523/2025/07/24/hulk-hogan-dead-cardiac-arrest-wwe/
+
 **Tony Evers Declines to Run for 3rd Term as Wisconsin Governor**\
 `The decision is likely to invite a wide-open race for the Democratic nomination in a battleground state the party hopes to control.`\
 https://nytimes.com/2025/07/24/us/politics/tony-evers-wisconsin-governor.html
