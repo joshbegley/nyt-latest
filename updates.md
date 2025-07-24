@@ -1,3 +1,11 @@
+**Georgia football commit Chace Calicut charged in Texas drive-by shooting**\
+`Calicut's co-defendent, accused of being who fired at the victims, died over the weekend in a shooting at a Houston-area pool party.`\
+https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-shooting-arrest/
+
+**Why Does Anyone Think Trump Will Uphold His End of a Bargain With Columbia?**\
+`When the government is often behaving unchecked by the law, the idea of a binding contract is a fantasy.`\
+https://nytimes.com/2025/07/23/opinion/trump-columbia-deal-professor.html
+
 **Chargers training camp report, Day 6: Movement in the WR competition**\
 `Rookie KeAndre Lambert-Smith made a couple of the plays of the day and is impressing the Chargers' coaching staff. `\
 https://nytimes.com/athletic/6512140/2025/07/23/chargers-training-camp-keandre-lambert-smith/

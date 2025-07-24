@@ -1,3 +1,7 @@
+**Flight Attendant Who Filmed Minors in Lavatory Is Sentenced to 18.5 Years**\
+`The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
+https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
+
 **Georgia football commit Chace Calicut charged in Texas drive-by shooting**\
 `Calicut's co-defendent, accused of being who fired at the victims, died over the weekend in a shooting at a Houston-area pool party.`\
 https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-shooting-arrest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/23/business/china-eu-trade-ukraine.html
 **New Documents Shed Light on Brutality of Idaho Killings**\
 `Police reports released by the authorities in Moscow, Idaho, detail what investigators found at the scene where four University of Idaho students were fatally stabbed.`\
 https://nytimes.com/2025/07/23/us/bryan-kohberger-idaho-student-murders-evidence.html
-
-**Vikings camp takeaways: J.J. McCarthy's first day, Josh Metellus' contract, more**\
-`The Vikings quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
-https://nytimes.com/athletic/6511979/2025/07/23/vikings-camp-takeaways-j-j-mccarthy-josh-metellus/
 
