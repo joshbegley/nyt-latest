@@ -1,3 +1,11 @@
+**Thailand and Cambodia Trade Fire**\
+`Shots were heard early on Thursday morning near Prasat Ta Muen Thom, an ancient temple on the Thai side of the border. Each nation accuses the other of firing first.`\
+https://nytimes.com/video/world/asia/100000010303277/thailand-cambodia-trade-fire.html
+
+**Anne Burrell’s Death Ruled a Suicide**\
+`The Food Network star was found dead in her apartment on June 17.`\
+https://nytimes.com/2025/07/24/dining/anne-burrell-cause-of-death-suicide.html
+
 **Many Thai civilians fled after gunfire and explosions rocked the region.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/many-thai-civilians-fled-after-gunfire-and-explosions-rocked-the-region

@@ -1,3 +1,7 @@
+**Thailand and Cambodia Trade Fire**\
+`Shots were heard early on Thursday morning near Prasat Ta Muen Thom, an ancient temple on the Thai side of the border. Each nation accuses the other of firing first.`\
+https://nytimes.com/video/world/asia/100000010303277/thailand-cambodia-trade-fire.html
+
 **Many Thai civilians fled after gunfire and explosions rocked the region.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/many-thai-civilians-fled-after-gunfire-and-explosions-rocked-the-region
@@ -16,7 +20,7 @@ https://nytimes.com/2025/07/24/world/middleeast/israel-minister-gaza-driving-out
 
 **Anne Burrell’s Death Ruled a Suicide**\
 `The Food Network star was found dead in her apartment on June 17.`\
-https://nytimes.com/2025/07/24/dining/anne-burrell-death-suicide.html
+https://nytimes.com/2025/07/24/dining/anne-burrell-cause-of-death-suicide.html
 
 **Assessing Isak's options: Liverpool? PSG? Al Hilal?**\
 `Examining where the Newcastle striker could look after telling his club he wishes to explore a move away`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495223/2025/07/24/cristhian-mosquera-arsenal-trans
 **Wrexham confirm signing of O'Brien from Forest**\
 `The 26-year-old spent much of his Forest career on loan but will now join the ambitious newly-promoted Championship side.`\
 https://nytimes.com/athletic/6513415/2025/07/24/lewis-obrien-wrexham-nottingham-forest-transfer/
-
-**UnitedHealth Will Cooperate With Federal Probe of Its Medicare Billing Practices**\
-`On Thursday, the giant health care conglomerate announced that it had “proactively reached out” to the Justice Department, after reports of a government investigation had surfaced.`\
-https://nytimes.com/2025/07/24/health/unitedhealth-medicare-justice-department.html
 
