@@ -1,3 +1,15 @@
+**Man City counterattacking problems need to be solved - with or without Rodri**\
+`City's players will return to training on Monday - it is clear what the No 1 priority should be before the new Premier League season`\
+https://nytimes.com/athletic/6510392/2025/07/24/manchester-city-guardiola-losing-same-way/
+
+**Leeds have prioritised defensive transfers. They have a plan for attacking arrivals, too**\
+`Igor Paixao, Rodrigo Muniz and Bilal El Khannouss are of interest to Leeds – they have completed their 'core bones' business`\
+https://nytimes.com/athletic/6510901/2025/07/24/leeds-transfers-defensive-attackers-muniz-paixao/
+
+**Shopping for Amorim and United: Martinez, Chevalier and other goalkeeping options**\
+`Assessing what the head coach wants between the posts and identifying ideal targets to both deputise for and challenge Andre Onana`\
+https://nytimes.com/athletic/5350309/2025/07/24/manchester-united-onana-martinez-goalkeeper/
+
 **The kids are alright: How the profile of Premier League transfers has changed**\
 `Analysing English top-flight sides’ recruitment focus - from the age and position of players they target, and when they buy and sell`\
 https://nytimes.com/athletic/6471174/2025/07/24/premier-league-transfer-age-profile-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6510644/2025/07/24/premier-league-transfers-sales-r
 **Can VAR learn from this sport's officiating? Military-grade GPS systems and a 98 percent accuracy**\
 `The Athletic went behind the scenes at SailGP broadcast headquarters to find out how the sport is using technology to help its umpires`\
 https://nytimes.com/athletic/6508571/2025/07/24/sailgp-umpires-technology-var-behind-the-scenes/
-
-**Hugo Ekitike to Liverpool: Everything you need to know - TLDR**\
-`The champions have boosted their forward options by bringing in the 23-year-old Frenchman from Eintracht Frankfurt. We break down the deal`\
-https://nytimes.com/athletic/6506166/2025/07/24/hugo-ekitike-liverpool-transfer-tldr/
-
-**Minus Messi, MLS All-Stars handle Liga MX through their other top scorers**\
-`Sam Surridge, Tai Baribo and Brian White led MLS's All-Stars to victory over their counterparts from Liga MX`\
-https://nytimes.com/athletic/6512396/2025/07/24/mls-all-star-game-liga-mx-result-video-highlights/
-
-**How a Chinese Border Town Keeps Russia’s Economy Afloat**\
-`The flow of goods in Manzhouli, China’s main border crossing with Russia, underscores increasingly close ties between the two countries, complicating China’s relationship with Europe.`\
-https://nytimes.com/2025/07/24/business/manzhouli-china-russia-economy.html
 

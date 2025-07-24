@@ -1,3 +1,11 @@
+**The kids are alright: How the profile of Premier League transfers has changed**\
+`Analysing English top-flight sides’ recruitment focus - from the age and position of players they target, and when they buy and sell`\
+https://nytimes.com/athletic/6471174/2025/07/24/premier-league-transfer-age-profile-analysis/
+
+**Trump to Visit Federal Reserve as Pressure Campaign Intensifies**\
+`The administration has repeatedly criticized Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
+https://nytimes.com/2025/07/24/us/politics/trump-bank-federal-reserve.html
+
 **Football Architects: How the sport’s data pioneers convinced the world to take notice**\
 `How football data went from a niche sideline to become a fundamental part of recruitment`\
 https://nytimes.com/athletic/6445379/2025/07/24/football-architects-data-analysis-revolution/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6512396/2025/07/24/mls-all-star-game-liga-mx-result
 **How a Chinese Border Town Keeps Russia’s Economy Afloat**\
 `The flow of goods in Manzhouli, China’s main border crossing with Russia, underscores increasingly close ties between the two countries, complicating China’s relationship with Europe.`\
 https://nytimes.com/2025/07/24/business/manzhouli-china-russia-economy.html
-
-**Trade Deal Could Give Japanese Cars a Leg Up in U.S. Market**\
-`President Trump’s 15 percent tariff on cars from Japan has angered U.S. automakers, which make cars in Canada and Mexico subject to 25 percent tariffs.`\
-https://nytimes.com/2025/07/24/business/trump-japan-trade-deal-cars.html
-
-**Corrections: July 24, 2025**\
-`Corrections that appeared in print on Thursday, July 24, 2025.`\
-https://nytimes.com/2025/07/24/pageoneplus/corrections-july-24-2025.html
 

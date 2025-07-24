@@ -1,3 +1,11 @@
+**The kids are alright: How the profile of Premier League transfers has changed**\
+`Analysing English top-flight sides’ recruitment focus - from the age and position of players they target, and when they buy and sell`\
+https://nytimes.com/athletic/6471174/2025/07/24/premier-league-transfer-age-profile-analysis/
+
+**Trump to Visit Federal Reserve as Pressure Campaign Intensifies**\
+`The administration has repeatedly criticized Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
+https://nytimes.com/2025/07/24/us/politics/trump-bank-federal-reserve.html
+
 **Football Architects: How the sport’s data pioneers convinced the world to take notice**\
 `How football data went from a niche sideline to become a fundamental part of recruitment`\
 https://nytimes.com/athletic/6445379/2025/07/24/football-architects-data-analysis-revolution/
