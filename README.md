@@ -1,4 +1,4 @@
-**Flight Attendant Who Filmed Minors in Lavatory Is Sentenced to 18.5 Years**\
+**Flight Attendant Who Filmed Girls in Lavatory Is Sentenced to More Than 18 Years**\
 `The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
 https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
 
