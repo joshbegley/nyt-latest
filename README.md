@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President to Visit Fed as Pressure Campaign Intensifies**\
+``\
+https://nytimes.com/live/2025/07/24/us/trump-epstein-news
+
 **Gazans Are Dying of Starvation**\
 `Severe hunger has gripped the war-torn Palestinian enclave, where growing numbers of people are starving and the doctors treating them are working on empty stomachs.`\
 https://nytimes.com/2025/07/24/world/middleeast/gaza-starvation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510505/2025/07/24/mbappe-10-shirt-number-real-madr
 **TAFC: Will Messi be banned after no-show? Plus: MLS calendar change talks**\
 `Today in TAFC: Messi fails to show at All Star game, so what now? Plus: MLS calendar change talks and Spain's last-gasp Euros win.`\
 https://nytimes.com/athletic/6512686/2025/07/24/mls-all-star-no-show-calendar-change/
-
-**It’s a pivotal trade deadline for the Pirates — but are they willing to all-out sell?**\
-`The Pirates claim they see the need to bolster their position player core through impactful trades. Whether they'll act on that is unclear.`\
-https://nytimes.com/athletic/6509355/2025/07/24/pittsburgh-pirates-trade-deadline-sell-cherington/
 
