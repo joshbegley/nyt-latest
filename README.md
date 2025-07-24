@@ -1,3 +1,11 @@
+**Packers training camp: Matthew Golden's new nickname and 8 more observations**\
+`Packers special teams coordinator Rich Bisaccia gave the rookie first-rounder homework to understand his new nickname.`\
+https://nytimes.com/athletic/6514162/2025/07/24/packers-training-camp-matthew-golden/
+
+**Storms in New Mexico Cause Flash Flooding and Water Rescues**\
+`The heavy rain came after severe flooding in the area killed three people and damaged dozens of homes on July 18.`\
+https://nytimes.com/2025/07/24/us/flooding-ruidoso-new-mexico.html
+
 **Lake Tahoe Boaters Died in Sudden Storm Without Life Jackets, Review Finds**\
 `The eight people who died in a June accident were found without flotation devices, according to a new report. The two survivors relied on the devices to stay afloat.`\
 https://nytimes.com/2025/07/24/us/lake-tahoe-boat-victims.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513997/2025/07/24/colts-anthony-richardson-trainin
 **A Little Leaguer Was Suspended for a Bat Flip. So He Went to Court.**\
 `A New Jersey judge was asked to overturn an umpire’s interpretation of the “horseplay” rule. A chance to play in the state championship hung in the balance.`\
 https://nytimes.com/2025/07/24/nyregion/little-league-bat-flip-suspension.html
-
-**Little League Player Suspended For Flipping Bat After Hitting Home Run**\
-`A 12-year-old Little League player was suspended after flipping his bat in the air after hitting a home run.`\
-https://nytimes.com/video/us/100000010303698/bat-flip-little-league-baseball.html
-
-**Final mountain stage of Tour de France rerouted due to cattle cull**\
-`The cattle were culled after an outbreak of contagious nodular dermatitis was discovered in a herd on the slopes of the Col des Saisies.`\
-https://nytimes.com/athletic/6514220/2025/07/24/tour-de-france-stage-19-rerouted/
 
