@@ -1,3 +1,11 @@
+**The Wrestling Ropes Couldn’t Constrain Hulk Hogan**\
+`The muscular entertainer, who died at 71, broke through into pop culture and led the way for Dwayne Johnson and John Cena.`\
+https://nytimes.com/2025/07/24/arts/the-wrestling-ropes-couldnt-constrain-hulk-hogan.html
+
+**As MLB's trade deadline approaches, a Q&A with Reds' Nick Krall**\
+`Cincinnati sits 2 1/2 games behind the San Diego Padres, the current holder of the final wild card slot and a game behind San Francisco.`\
+https://nytimes.com/athletic/6514051/2025/07/24/cincinnati-reds-nick-krall-q-and-a-trade-deadline/
+
 **Chip Kelly, offense ready for the pads to come on at Raiders training camp**\
 `While it's hard for players to make a major impression without pads, rookie WR Dont'e Thornton has been a constant in the starting lineup.`\
 https://nytimes.com/athletic/6513849/2025/07/24/raiders-training-camp-chip-kelly/
@@ -18,8 +26,8 @@ https://nytimes.com/athletic/6513923/2025/07/24/ny-giants-abdul-carter-wandale-r
 `“South Park,” Jon Stewart and Stephen Colbert have all been critical of their own company and President Trump this week.`\
 https://nytimes.com/2025/07/24/business/media/trump-south-park-colbert-stewart.html
 
-**Trump Administration Sues New York City Over Sanctuary Laws**\
-`Mayor Eric Adams, who was spared from a corruption investigation so he could help with the administration’s deportation program, is among the defendants.`\
+**Trump Administration Sues Adams and New York City Over Sanctuary Laws**\
+`Mayor Eric Adams, whose corruption charges were dropped so he could help with deportations, is among the defendants in the suit, which argues the federal government has sole power over immigration.`\
 https://nytimes.com/2025/07/24/nyregion/trump-new-york-sanctuary-suit.html
 
 **Chicharito apologizes for sexist social media posts following backlash**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513912/2025/07/24/chicharito-apology-sexist-social
 **The Hockey Canada trial could have been a reckoning. It was something else**\
 `The eight-week trial proved challenging to manage, leading to two jury dismissals and eventually the judge-only decision. `\
 https://nytimes.com/athletic/6429400/2025/07/24/hockey-canada-trial-players-not-guilty/
-
-**Shaheen Backs Trump U.N. Pick After Deal to Release Frozen Foreign Aid Funds**\
-`The top Democrat on the foreign affairs panel cast the deciding vote to allow Michael Waltz’s nomination to go to the floor in exchange for a promise from the administration to release money for Haiti and Nigeria.`\
-https://nytimes.com/2025/07/24/us/politics/shaheen-waltz-un-foreign-aid.html
-
-**Where to Dine with Babies, and Other Reader Questions**\
-`Becky Hughes answers readers’ highly-specific questions about eating out with babies, finding great German food and dining like it’s 2002.`\
-https://nytimes.com/2025/07/24/dining/where-to-dine-with-babies-and-other-reader-questions.html
 

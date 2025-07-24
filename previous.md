@@ -1,3 +1,19 @@
+**Chip Kelly, offense ready for the pads to come on at Raiders training camp**\
+`While it's hard for players to make a major impression without pads, rookie WR Dont'e Thornton has been a constant in the starting lineup.`\
+https://nytimes.com/athletic/6513849/2025/07/24/raiders-training-camp-chip-kelly/
+
+**Eagles training camp: Cooper DeJean talks playing safety, Jordan Davis in shape**\
+`Also, Vic Fangio gives an early assessment of Jihaad Campbell, while the depth chart for the defensive front emerges.`\
+https://nytimes.com/athletic/6513666/2025/07/24/philadelphia-eagles-training-camp-cooper-dejean-jordan-davis/
+
+**Broncos' new safety duo of Talanoa Hufanga, Brandon Jones forming quick bond**\
+`A shared college experience playing for Todd Orlando created a familiar starting point for Jones and Hufanga as they join forces in Denver.`\
+https://nytimes.com/athletic/6513774/2025/07/24/talanoa-hufanga-brandon-jones-broncos-camp/
+
+**Giants camp takeaways: Abdul Carter dominant; Wan'Dale Robinson flashes downfield potential**\
+`Rookie QB Jaxson Dart continues to look like what he is: a developmental prospect. Starter Russell Wilson has been efficient and effective.`\
+https://nytimes.com/athletic/6513923/2025/07/24/ny-giants-abdul-carter-wandale-robinson-training-camp/
+
 **Paramount Settled With Trump. Its Shows Are Skewering Him.**\
 `“South Park,” Jon Stewart and Stephen Colbert have all been critical of their own company and President Trump this week.`\
 https://nytimes.com/2025/07/24/business/media/trump-south-park-colbert-stewart.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/shaheen-waltz-un-foreign-aid.html
 **Where to Dine with Babies, and Other Reader Questions**\
 `Becky Hughes answers readers’ highly-specific questions about eating out with babies, finding great German food and dining like it’s 2002.`\
 https://nytimes.com/2025/07/24/dining/where-to-dine-with-babies-and-other-reader-questions.html
-
-**Jimmy Horn turning heads — 'everything he does is fast': Panthers observations**\
-`The defense also had a good day despite missing two of its biggest defensive linemen missing practice.`\
-https://nytimes.com/athletic/6513924/2025/07/24/panthers-training-camp-rookie-jimmy-horn/
-
-**Their Mass Rape Went Unpunished. Four Decades Later, They Fought Back.**\
-`Systematically assaulted during Guatemala’s civil war, 36 Mayan women made a final bid for justice.`\
-https://nytimes.com/interactive/2025/07/24/magazine/guatemala-maya-achi-women-rape-case-trial.html
-
-**France Will Recognize Palestinian Statehood, Macron Says**\
-`The announcement sets France apart from the United States and most of its close allies, and could cause friction with President Trump.`\
-https://nytimes.com/2025/07/24/world/europe/france-palestine-statehood-macron-gaza.html
-
-**Familiar Flashpoint Leads to Deadly Clashes Between Thailand and Cambodia**\
-`At least a dozen people were killed after the two countries exchanged fire after simmering tensions over a border dispute boiled over on Thursday.`\
-https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-deadly-border-clash.html
 
