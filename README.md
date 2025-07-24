@@ -1,3 +1,11 @@
+**Lizzie Deignan, former cycling world champion and Olympic silver medallist, retires due to pregnancy**\
+`Deignan, 36, bows out of the sport with 43 professional wins and an Olympic silver medal, which she won at the London 2012 Games.`\
+https://nytimes.com/athletic/6513163/2025/07/24/lizzie-deignan-armitstead-retirement-child-lidl-trek/
+
+**Here’s what to know.**\
+`(No description)`\
+https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell/heres-what-to-know
+
 **Brighton's Cashin to join Birmingham on loan despite Webster knee injury**\
 `The injury suffered by Webster has not stopped the club from pressing on with the loan move for centre-back Cashin.`\
 https://nytimes.com/athletic/6513115/2025/07/24/brighton-transfers-cashin-birmingham/
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/progressive-insurance/yes-you-can-own-a-home.html
 **Arsenal's Madueke reclassified in Premier League records as 'homegrown'**\
 `The 23-year-old had previously been listed in Chelsea’s squad list as recently as February as 'non-homegrown'.`\
 https://nytimes.com/athletic/6513121/2025/07/24/arsenal-noni-madueke-homegrown-players/
-
-**Is the Bread in Europe Better for You?**\
-`If you’ve noticed that certain baked goods are more tolerable abroad, it may not be all in your head.`\
-https://nytimes.com/2025/07/24/well/eat/health-effects-bread-europe-united-states.html
-
-**Southwest Passenger Says She Was Ejected From Flight Based on Her Race**\
-`On a flight from Chicago to Washington, D.C., last November, the passenger said she was the only Black person seated in an exit row when she was asked to leave.`\
-https://nytimes.com/2025/07/24/travel/southwest-airlines-lawsuit-racism.html
 
