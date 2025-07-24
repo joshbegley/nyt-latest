@@ -1,3 +1,7 @@
+**Passenger Jet With 49 Onboard Crashes in Russia’s Far East**\
+`The plane was traveling to the town of Tynda when it went off the radar, the regional governor said.`\
+https://nytimes.com/2025/07/24/world/europe/plane-crash-russia.html
+
 **What to Know About the Deadly Clash Between Thailand and Cambodia**\
 `The countries traded fire across their shared border on Thursday. Thailand said at least 11 civilians and one soldier had been killed.`\
 https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-fight.html
