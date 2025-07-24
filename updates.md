@@ -1,3 +1,7 @@
+**Quote of the Day: Student Arrests, and a Suit Challenging Them, Tread New Legal Ground**\
+`Quotation of the Day for Thursday, July 24, 2025.`\
+https://nytimes.com/2025/07/23/pageoneplus/quote-of-the-day-student-arrests-and-a-suit-challenging-them-tread-new-legal-ground.html
+
 **MLS's calendar, roster changes aren't happening yet, but it's a matter of time**\
 `Despite expectation that MLS would take official steps toward significant foundational change, progress on that front is evident`\
 https://nytimes.com/athletic/6512352/2025/07/23/mls-schedule-change-european-calendar-roster-rules-don-garber/

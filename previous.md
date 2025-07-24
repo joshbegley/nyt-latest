@@ -1,3 +1,7 @@
+**Quote of the Day: Student Arrests, and a Suit Challenging Them, Tread New Legal Ground**\
+`Quotation of the Day for Thursday, July 24, 2025.`\
+https://nytimes.com/2025/07/23/pageoneplus/quote-of-the-day-student-arrests-and-a-suit-challenging-them-tread-new-legal-ground.html
+
 **MLS's calendar, roster changes aren't happening yet, but it's a matter of time**\
 `Despite expectation that MLS would take official steps toward significant foundational change, progress on that front is evident`\
 https://nytimes.com/athletic/6512352/2025/07/23/mls-schedule-change-european-calendar-roster-rules-don-garber/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/23/crosswords/daily-puzzle-2025-07-24.html
 **USC freshman Alijah Arenas expected to miss 6-8 months with knee injury**\
 `McDonald's All-American was expected to be a centerpiece of Eric Musselman's 2025-26 team.`\
 https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
-
-**Flight Attendant Who Filmed Girls in Lavatory Is Sentenced to More Than 18 Years**\
-`The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
-https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
 
