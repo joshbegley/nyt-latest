@@ -1,3 +1,7 @@
+**MLS's calendar, roster changes aren't happening yet, but it's a matter of time**\
+`Despite expectation that MLS would take official steps toward significant foundational change, progress on that front is evident`\
+https://nytimes.com/athletic/6512352/2025/07/23/mls-schedule-change-european-calendar-roster-rules-don-garber/
+
 **Thai and Cambodian Troops Fire at Each Other as Relations Implode**\
 `Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
 https://nytimes.com/2025/07/23/world/asia/thailand-cambodia.html
