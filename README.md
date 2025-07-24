@@ -1,3 +1,7 @@
+**The Anticorruption Watchdogs at the Center of Protests Against Zelensky**\
+`Anger has boiled over after attempts by Ukraine’s president, Volodymyr Zelensky, to overhaul agencies investigating claims that insiders skimmed military spending.`\
+https://nytimes.com/2025/07/24/world/europe/ukraine-protests-corruption-zelensky-military-spending.html
+
 **Michael Whatley, R.N.C. Chairman, to Run for Senate in North Carolina**\
 `His entry will pave the way for a marquee contest in 2026, with former Gov. Roy Cooper planning to seek the Democratic nomination.`\
 https://nytimes.com/2025/07/24/us/politics/michael-whatley-north-carolina-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512895/2025/07/24/boubacar-kamara-aston-villa-cont
 **Isak wants to leave Newcastle, asked not to go on pre-season tour**\
 `Liverpool have previously communicated their interest in Isak and over doing a deal in the region of £120million.`\
 https://nytimes.com/athletic/6495282/2025/07/24/alexander-isak-newcastle-transfer-exit/
-
-**Working While Honeymooning**\
-`Or is it honeymooning while working? Job flexibility can be a blessing  and a curse.`\
-https://nytimes.com/2025/07/24/style/working-while-honeymooning.html
 
