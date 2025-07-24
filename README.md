@@ -1,3 +1,7 @@
+**Lamar Jackson focused on the now as Ravens enter season of high expectations**\
+`OWINGS MILLS, Md.`\
+https://nytimes.com/athletic/6512021/2025/07/23/ravens-lamar-jackson-2025-training-camp/
+
 **Reds interested in bringing back fan favorite Eugenio Suárez**\
 `According to sources, the Diamondbacks are interested in kicking the tires on promising starter Chase Petty.`\
 https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-deadline/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6511380/2025/07/23/giants-justin-verlanders-first-w
 **It’s not Drake Maye’s fault Patriots are where they are (but it’s the thought that counts)**\
 `If you’re a fan looking for signs that the Patriots want to get back to winning, Maye’s comments were the biggest news from Day 1 of camp.`\
 https://nytimes.com/athletic/6511941/2025/07/23/patriots-drake-maye-training-camp/
-
-**Do Democrats Want a Fight Over Colbert?**\
-`Some Democrats are irate over the end of Stephen Colbert’s show, but others see a lack of focus on real issues.`\
-https://nytimes.com/2025/07/23/us/politics/colbert-trump-democrats.html
 
