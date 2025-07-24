@@ -1,3 +1,15 @@
+**Rishabh Pant: The Indian superstar who stared at death - and came back**\
+`Rishabh Pant is one of the most watchable cricketers in the game - as he has proved throughout the English summer`\
+https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
+
+**It’s Feminism vs. a Mother’s Instinct on a London Stage**\
+`“Inter Alia,” at the National Theater in London, is a successor to the award-winning “Prima Facie.” It brings familiar tropes, and melodrama.`\
+https://nytimes.com/2025/07/24/arts/inter-alia-national-theatre-london-review.html
+
+**Fox evolved its approach to women's soccer with Euros broadcast, but are the changes too late?**\
+`Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership.`\
+https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
+
 **Epstein’s Estate Includes Book Said to Have Note From Trump, a Lawyer Says**\
 `The lawyer, who represents victims of Jeffrey Epstein, said he believes the estate would turn the book over to the authorities if asked.`\
 https://nytimes.com/2025/07/24/us/politics/epstein-trump-birthday-book.html

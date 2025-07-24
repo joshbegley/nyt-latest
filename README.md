@@ -1,3 +1,11 @@
+**The Relationship Advice Couples Counselors Swear By**\
+`Eight therapists share lessons they find themselves repeating again and again.`\
+https://nytimes.com/2025/07/24/well/family/couples-counselors-advice.html
+
+**The pattern across 13 years of men's and women's semi-finals that gives England hope**\
+`England won the first semi-final of Euro 2025, with Spain winning the second semi. History suggests the order of those games could be key`\
+https://nytimes.com/athletic/6512938/2025/07/24/semi-finals-rest-days-euros/
+
 **Rishabh Pant: The Indian superstar who stared at death - and came back**\
 `Rishabh Pant is one of the most watchable cricketers in the game - as he has proved throughout the English summer`\
 https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
 **Chris Paul's return to Los Angeles is all about fit and future, not past**\
 `"Everyone's entitled in terms of the judgments they want to make on the group," says Clippers GM Lawrence Frank.`\
 https://nytimes.com/athletic/6510019/2025/07/24/chris-paul-clippers-return/
-
-**‘Il Dono’ Review: Slow Living**\
-`A new restoration of a 2003 Italian docudrama by Michelangelo Frammartino captures the beauty and tragedy of rural life in Southern Italy.`\
-https://nytimes.com/2025/07/24/movies/il-dono-review.html
-
-**E.C.B. Pauses Rate-Cutting Campaign, as Trade Disputes Cloud Outlook**\
-`After eight consecutive cuts, policymakers held interest rates steady, noting that “the environment remains exceptionally uncertain.”`\
-https://nytimes.com/2025/07/24/business/ecb-interest-rate.html
 

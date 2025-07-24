@@ -1,3 +1,11 @@
+**Rishabh Pant: The Indian superstar who stared at death - and came back**\
+`Rishabh Pant is one of the most watchable cricketers in the game - as he has proved throughout the English summer`\
+https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
+
+**It’s Feminism vs. a Mother’s Instinct on a London Stage**\
+`“Inter Alia,” at the National Theater in London, is a successor to the award-winning “Prima Facie.” It brings familiar tropes, and melodrama.`\
+https://nytimes.com/2025/07/24/arts/inter-alia-national-theatre-london-review.html
+
 **Epstein’s Estate Includes Book Said to Have Note From Trump, a Lawyer Says**\
 `The lawyer, who represents victims of Jeffrey Epstein, said he believes the estate would turn the book over to the authorities if asked.`\
 https://nytimes.com/2025/07/24/us/politics/epstein-trump-birthday-book.html
@@ -15,7 +23,7 @@ https://nytimes.com/2025/07/24/world/europe/ukraine-protests-corruption-zelensky
 https://nytimes.com/2025/07/24/us/politics/michael-whatley-north-carolina-senate.html
 
 **Fox evolved its approach to women's soccer with Euros broadcast, but are the changes too late?**\
-`Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership`\
+`Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership.`\
 https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
 
 **Chris Paul's return to Los Angeles is all about fit and future, not past**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/movies/il-dono-review.html
 **E.C.B. Pauses Rate-Cutting Campaign, as Trade Disputes Cloud Outlook**\
 `After eight consecutive cuts, policymakers held interest rates steady, noting that “the environment remains exceptionally uncertain.”`\
 https://nytimes.com/2025/07/24/business/ecb-interest-rate.html
-
-**What to know about WNBA CBA negotiations: Revenue sharing, salary increases and scheduling**\
-`"Our job is to find the common ground. But that doesn't mean we keep taking the crumbs of the pie," Liberty guard Natasha Cloud said.`\
-https://nytimes.com/athletic/6512337/2025/07/24/wnba-cba-negotiations-revenue-share-salaries/
-
-**Elon Musk Warns of Potentially ‘Rough’ Times Ahead**\
-`Shares in Tesla were down in premarket trading as the carmaker lays out the risks from President Trump’s tariffs and his scrapping of tax credits.`\
-https://nytimes.com/2025/07/24/business/dealbook/musk-tesla-rough-times.html
 
