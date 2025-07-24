@@ -1,3 +1,7 @@
+**USC freshman Alijah Arenas expected to miss 6-8 months with knee injury**\
+`McDonald's All-American was expected to be a centerpiece of Eric Musselman's 2025-26 team.`\
+https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
+
 **Flight Attendant Who Filmed Girls in Lavatory Is Sentenced to More Than 18 Years**\
 `The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
 https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
