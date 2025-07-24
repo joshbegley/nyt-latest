@@ -1,3 +1,7 @@
+**Isak wants to leave Newcastle, asked not to go on pre-season tour**\
+`Liverpool have previously communicated their interest in Isak and over doing a deal in the region of £120million.`\
+https://nytimes.com/athletic/6495282/2025/07/24/alexander-isak-newcastle-transfer-exit/
+
 **Working While Honeymooning**\
 `Or is it honeymooning while working? Job flexibility can be a blessing  and a curse.`\
 https://nytimes.com/2025/07/24/style/working-while-honeymooning.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/heres-a
 **What Nigeria’s quest for a 10th WAFCON title says about their winning identity**\
 `After beating South Africa, the Super Falcons are now one match away from their 10th WAFCON title and re-establishing their dominance`\
 https://nytimes.com/athletic/6512624/2025/07/24/nigeria-mission-x-wafcon-final/
-
-**Liverpool CEO Hogan: 'This is one of the biggest clubs in the world – we want to behave like one'**\
-`Hogan believes the show of ambition this transfer window underlines the desire of FSG to ensure Liverpool build on last season's title win`\
-https://nytimes.com/athletic/6510037/2025/07/24/liverpool-billy-hogan-interview-transfers/
 

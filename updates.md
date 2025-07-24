@@ -1,3 +1,7 @@
+**Isak wants to leave Newcastle, asked not to go on pre-season tour**\
+`Liverpool have previously communicated their interest in Isak and over doing a deal in the region of £120million.`\
+https://nytimes.com/athletic/6495282/2025/07/24/alexander-isak-newcastle-transfer-exit/
+
 **Working While Honeymooning**\
 `Or is it honeymooning while working? Job flexibility can be a blessing  and a curse.`\
 https://nytimes.com/2025/07/24/style/working-while-honeymooning.html
