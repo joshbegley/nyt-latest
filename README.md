@@ -1,3 +1,7 @@
+**MLS's calendar, roster changes aren't happening yet, but it's a matter of time**\
+`Despite expectation that MLS would take official steps toward significant foundational change, progress on that front is evident`\
+https://nytimes.com/athletic/6512352/2025/07/23/mls-schedule-change-european-calendar-roster-rules-don-garber/
+
 **Thai and Cambodian Troops Fire at Each Other as Relations Implode**\
 `Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
 https://nytimes.com/2025/07/23/world/asia/thailand-cambodia.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
 **Flight Attendant Who Filmed Girls in Lavatory Is Sentenced to More Than 18 Years**\
 `The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
 https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
-
-**Georgia football commit Chace Calicut charged in Texas drive-by shooting**\
-`Calicut's co-defendent, accused of being who fired at the victims, died over the weekend in a shooting at a Houston-area pool party.`\
-https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-shooting-arrest/
 
