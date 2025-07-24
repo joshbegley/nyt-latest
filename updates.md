@@ -1,3 +1,7 @@
+**Thai and Cambodian Troops Fire at Each Other as Relations Implode**\
+`Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
+https://nytimes.com/2025/07/23/world/asia/thailand-cambodia.html
+
 **This Was Supposed to Be the Year China Started Catching Up With SpaceX**\
 `China’s biggest networks have deployed less than 1 percent of their planned satellites, falling far behind SpaceX for dominance in space communications.`\
 https://nytimes.com/interactive/2025/07/23/world/asia/starlink-spacex-musk-china-satellites.html
