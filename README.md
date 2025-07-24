@@ -1,40 +1,40 @@
-**Cowboys camp observations: CeeDee Lamb sounds motivated for big season**\
-`Lamb is eager for fans to see how the offense will work with George Pickens also catching passes from Dak Prescott. `\
-https://nytimes.com/athletic/6512058/2025/07/24/cowboys-training-camp-ceedee-lamb-george-pickens/
+**Rangers make offer for Palace winger Rak-Sakyi**\
+`The approach from the Scottish Premiership club was for an initial loan with a potential obligation to buy worth up to £10million.`\
+https://nytimes.com/athletic/6512614/2025/07/24/rangers-rak-sakyi-transfer-crystal-palace/
 
-**Trump’s Name in the Epstein Files, and Rare Protests in Ukraine**\
-`Plus, how many steps do you really need a day?`\
-https://nytimes.com/2025/07/24/podcasts/the-headlines/trump-epstein-files-ukraine-protests.html
+**Bonmati is showing why Spain were so keen to have her back after meningitis scare**\
+`The midfielder was in hospital less than a week before the tournament began but she is back to her best when it matters most`\
+https://nytimes.com/athletic/6512580/2025/07/24/bonmati-spain-germany-euros/
 
-**Jaylen Brown used Muay Thai to overcome failure. I tried it and discovered the benefits**\
-`Brown credits Muay Thai with giving him an edge. The Athletic's Elise Devlin wanted to see for herself what it was all about.`\
-https://nytimes.com/athletic/6510796/2025/07/24/celtics-jaylen-brown-muay-thai/
+**Gibbs-White joins Forest training camp in Portugal amid Spurs interest**\
+`Tottenham previously bid £60m for Gibbs-White on July 10.`\
+https://nytimes.com/athletic/6512665/2025/07/24/morgan-gibbs-white-forest-transfer-tour/
 
-**Addressing Reed Sheppard concerns, spacing questions and more: Rockets mailbag**\
-`Are Reed Sheppard's struggles at summer league indicative of what's to come next season? Kelly Iko answers your Rockets questions. `\
-https://nytimes.com/athletic/6511189/2025/07/24/rockets-reed-sheppard-cam-whitmore-trade/
+**A Plane Carrying 49 People Crashes in Russia’s Far East**\
+`Russia’s civil aviation authority released footage on Thursday of what it said was the site in Russia’s Amur region where a plane carrying 43 passengers and six crew members had crashed.`\
+https://nytimes.com/video/world/europe/100000010303183/a-plane-carrying-49-people-crashes-in-russias-far-east.html
 
-**If Yankees lose AL East to Blue Jays, it'll be because of sloppiness they just showed**\
-`The Yankees bumbled through a four-error, 8-4 defeat by the Blue Jays on Wednesday night.`\
-https://nytimes.com/athletic/6512452/2025/07/24/yankees-blue-jays-al-east-race-sloppy/
+**Former Premier League player Baldock died in drowning accident, inquest finds**\
+`Baldock, who was 31, was found dead at his home in Glyfada, southern Athens, on October 9, 2024. `\
+https://nytimes.com/athletic/6512680/2025/07/24/george-baldock-death-inquest/
 
-**Twins takeaways: Royce Lewis' re-emergence adds another wrinkle ahead of trade deadline**\
-`Perhaps Lewis’s good mental place convinces the Twins front office to keep together a roster which has underwhelmed all season.`\
-https://nytimes.com/athletic/6512239/2025/07/24/twins-royce-lewis-trade-deadline/
+**The New York Times International Edition in Print for Friday, July 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/24/todays-new-york-times-international-edition
 
-**What we’re hearing on the MLB trade deadline: Sandy Alcantara, Zac Gallen and the pitching market**\
-`Contenders searching for an ace will likely to have to aim a little lower: 'All the guys are going to have a little bit of warts on them.'`\
-https://nytimes.com/athletic/6512151/2025/07/24/mlb-trade-deadline-pitching-alcantra-gallen/
+**Passenger Jet With 49 Onboard Crashes in Russia’s Far East**\
+`The plane was traveling to the town of Tynda when it went off the radar, the regional governor said.`\
+https://nytimes.com/2025/07/24/world/europe/plane-crash-russia.html
 
-**Dillon Brooks will give the rebuilding Suns toughness, energy — and perhaps an edge**\
-`Throughout its history, Phoenix has had a few players who lived to get inside an opponent's head. But maybe nothing like this.`\
-https://nytimes.com/athletic/6503966/2025/07/24/dillon-brooks-phoenix-suns-toughness-energy/
+**What to Know About the Deadly Clash Between Thailand and Cambodia**\
+`The countries traded fire across their shared border on Thursday. Thailand said at least 11 civilians and one soldier had been killed.`\
+https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-fight.html
 
-**Top 60 MLB prospects: Kevin McGonigle, Max Clark top newest rankings**\
-`Check out where members of the most recent draft class rank in relation to players who have already put in some time in the minors.`\
-https://nytimes.com/athletic/6502957/2025/07/24/mlb-top-prospects-2025-kevin-mcgonigle/
+**Stefanos Tsitsipas splits with Goran Ivanisevic to resume coaching partnership with father**\
+`Tsitsipas and Ivanišević's partnership lasted just two tournaments, after Novak Djokovic's former coach criticized his new player's fitness.`\
+https://nytimes.com/athletic/6512646/2025/07/24/tennis-tsitsipas-coach-ivanisevic-apostolos/
 
-**How Jags plan to help Travis Hunter become two-way NFL star: 'I've never seen him tired'**\
-`“He can handle (the workload)," QB Trevor Lawrence said. “That’s what’s special about him. He’s the best-conditioned guy I’ve ever seen."`\
-https://nytimes.com/athletic/6511345/2025/07/24/travis-hunter-jaguars-wide-receiver/
+**Villa make offer for Toulouse defender Canvot**\
+`The proposal for the 18-year-old has not been accepted by the French side but talks are continuing.`\
+https://nytimes.com/athletic/6512569/2025/07/24/aston-villa-make-offer-for-toulouse-defender-jaydee-canvot/
 
