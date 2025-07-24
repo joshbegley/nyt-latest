@@ -1,3 +1,11 @@
+**Mandel: The Big Ten has landed on Planet Gaslight, and it's determined to bring you along**\
+`The Big Ten's approach to the college football postseason is nonsensical, plain and simple. `\
+https://nytimes.com/athletic/6513124/2025/07/24/big-ten-media-days-college-football-playoff/
+
+**How to Prevent and Treat Hair Loss**\
+`Professional advice on the at-home and in-office treatments that actually work.`\
+https://nytimes.com/article/hair-loss-prevention-treatment.html
+
 **Rishabh Pant is clearly injured. Is it time for substitutes in cricket?**\
 `Cricket is a sport that has never truly got to grips with injury replacements - is it time for that to change?`\
 https://nytimes.com/athletic/6513517/2025/07/24/rishabh-pant-india-injured-cricket-substitutes/
