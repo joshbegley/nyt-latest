@@ -1,3 +1,11 @@
+**Justice Kagan Urges Supreme Court to Explain Itself in Emergency Decisions**\
+`In remarks before judges and lawyers in California, the justice said she believed the court had a responsibility to share its reasoning.`\
+https://nytimes.com/2025/07/24/us/justice-kagan-supreme-court-emergency-decisions.html
+
+**Trump signs executive order aimed at addressing issues in college sports**\
+`Among items in the order are a ban on third-party, pay-for-play payments`\
+https://nytimes.com/athletic/6514072/2025/07/24/trump-executive-order-college-sports-student-athletes/
+
 **Spencer Jones hits 3 homers, Baseball America to re-add him to top-100 prospect list**\
 `The Yankees' center-field prospect has 13 home runs in 19 Triple-A games.`\
 https://nytimes.com/athletic/6514252/2025/07/24/yankees-prospect-spencer-jones-three-home-runs/
