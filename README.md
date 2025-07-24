@@ -1,3 +1,11 @@
+**Many Thai civilians fled after gunfire and explosions rocked the region.**\
+`By Sui-Lee Wee`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/many-thai-civilians-fled-after-gunfire-and-explosions-rocked-the-region
+
+**Hulk Hogan, Shirt-Shredding Superstar of Pro Wrestling, Dies at 71**\
+`The charismatic wrestler helped build an entertainment on the margins into a cultural behemoth.`\
+https://nytimes.com/2025/07/24/sports/hulk-hogan-dead.html
+
 **We Love ‘Parasite.’ But Where the Heck Is Steven Spielberg?**\
 `Wesley Morris talks with Eric Hynes of the Jacob Burns Film Center about Steven Spielberg’s influence on The New York Times’s “100 Best Movies of the 21st Century” list.`\
 https://nytimes.com/video/podcasts/100000010300100/we-love-parasite-but-where-the-heck-is-steven-spielberg.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513415/2025/07/24/lewis-obrien-wrexham-nottingham-
 **UnitedHealth Will Cooperate With Federal Probe of Its Medicare Billing Practices**\
 `On Thursday, the giant health care conglomerate announced that it had “proactively reached out” to the Justice Department, after reports of a government investigation had surfaced.`\
 https://nytimes.com/2025/07/24/health/unitedhealth-medicare-justice-department.html
-
-**San Diego Wave sign 20-year-old Brazilian Dudinha through 2027**\
-`Dudinha joins a significant contingent of Brazilian players in the NWSL, which has grown exponentially in recent years.`\
-https://nytimes.com/athletic/6513370/2025/07/24/dudinha-san-diego-wave-brazil-nwsl/
-
-**Liverpool tour diary: Slot's shift from Klopp time, Mac Allister's Cantonese and loans latest**\
-`James Pearce is with the team in the Far East and here he brings our readers all the latest from around the camp`\
-https://nytimes.com/athletic/6512317/2025/07/24/liverpool-tour-diary-hong-kong/
 
