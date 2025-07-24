@@ -1,3 +1,12 @@
+**Appeals Court Blocks Trump’s Attempt to Restrict Birthright Citizenship**\
+`The ruling from the U.S. Court of Appeals for the Ninth Circuit brings the White House’s theory of citizenship closer to a full Supreme Court review.`\
+https://nytimes.com/2025/07/23/us/politics/appeals-court-birthright-citizenship.html
+
+**Upcoming live Q&A with Keith Law on updated prospect rankings as trade deadline looms**\
+`<p>On Thursday, Keith Law is releasing his updated Top 60 prospects list. He’ll chat about it and more — the trade deadline is less than a week away, after all — with fans in a live Q&amp;A at 1 p.m. Eastern on Thursday.</p>
+`\
+https://nytimes.com/athletic/6512276/2025/07/23/keith-law-live-qa-prospect-rankings/
+
 **MLS commissioner addresses Messi, Jordi Alba missing All-Star Game**\
 `The two Inter Miami stars could face a one-game suspension for failing to turn up at the All-Star Game, per league rules`\
 https://nytimes.com/athletic/6511945/2025/07/23/messi-jordi-alba-suspension-mls-all-star-game-inter-miami-fc-cincinnati/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/07/23/opinion/trump-columbia-deal-professor.html
 **Chargers training camp report, Day 6: Movement in the WR competition**\
 `Rookie KeAndre Lambert-Smith made a couple of the plays of the day and is impressing the Chargers' coaching staff. `\
 https://nytimes.com/athletic/6512140/2025/07/23/chargers-training-camp-keandre-lambert-smith/
-
-**Seahawks training camp takeaways, Day 1: Injury updates on Uchenna Nwosu, Ken Walker**\
-`Nwosu's offseason surgery could sideline him into the season, but Walker is healthy and looking sharp as the Seahawks open camp.`\
-https://nytimes.com/athletic/6512056/2025/07/23/seahawks-uchenna-nwosu-kenneth-walker/
-
-**Indiana Fever's Sophie Cunningham fined for TikTok mocking WNBA refs**\
-`Cunningham is averaging 7.3 points and 4.1 rebounds in 19 games.`\
-https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-fined-wnba-refs/
 
