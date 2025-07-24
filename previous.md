@@ -1,3 +1,7 @@
+**Mine Collapse Traps 3 Workers in British Columbia**\
+`A rescue operation is underway at the Red Chris gold and copper mine to reach the trapped miners, who were safe in a sealed chamber underground, according to officials.`\
+https://nytimes.com/2025/07/24/us/canada-miners-trapped.html
+
 **The New York Times in Print for Thursday, July 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6471174/2025/07/24/premier-league-transfer-age-prof
 **Trump to Visit Federal Reserve as Pressure Campaign Intensifies**\
 `The administration has repeatedly criticized Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
 https://nytimes.com/2025/07/24/us/politics/trump-bank-federal-reserve.html
-
-**Football Architects: How the sport’s data pioneers convinced the world to take notice**\
-`How football data went from a niche sideline to become a fundamental part of recruitment`\
-https://nytimes.com/athletic/6445379/2025/07/24/football-architects-data-analysis-revolution/
 

@@ -1,3 +1,7 @@
+**Mine Collapse Traps 3 Workers in British Columbia**\
+`A rescue operation is underway at the Red Chris gold and copper mine to reach the trapped miners, who were safe in a sealed chamber underground, according to officials.`\
+https://nytimes.com/2025/07/24/us/canada-miners-trapped.html
+
 **The New York Times in Print for Thursday, July 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
