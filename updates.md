@@ -1,3 +1,7 @@
+**Columbia’s Deal With Trump: What We Know**\
+`The university entered into an agreement to settle claims that it allegedly violated federal anti-discrimination laws.`\
+https://nytimes.com/2025/07/23/nyregion/columbia-university-deal-with-trump-what-we-know.html
+
 **Beat at Chess**\
 `Ginny Too’s debut puzzle takes flight.`\
 https://nytimes.com/2025/07/23/crosswords/daily-puzzle-2025-07-24.html

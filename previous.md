@@ -1,3 +1,7 @@
+**Columbia’s Deal With Trump: What We Know**\
+`The university entered into an agreement to settle claims that it allegedly violated federal anti-discrimination laws.`\
+https://nytimes.com/2025/07/23/nyregion/columbia-university-deal-with-trump-what-we-know.html
+
 **Beat at Chess**\
 `Ginny Too’s debut puzzle takes flight.`\
 https://nytimes.com/2025/07/23/crosswords/daily-puzzle-2025-07-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-
 **Trump’s A.I. Challenge: Focus on World’s Most Dangerous Weapons or Woke-ism?**\
 `In the Biden era, the government feared AI models would guide the spread of chemical, biological or nuclear weapons. President Trump signed an order on “Preventing Woke A.I. in the Federal Government.”`\
 https://nytimes.com/2025/07/23/us/politics/trump-ai-nuclear-weapons.html
-
-**House Panel Approves Spending Bill That Rejects Some Trump Foreign Aid Cuts**\
-`The Republican-led House Appropriations Committee put forth legislation that would slash the foreign aid and State Department budget but salvage some programs that the president wants to defund.`\
-https://nytimes.com/2025/07/23/us/politics/house-spending-trump-foreign-aid.html
 

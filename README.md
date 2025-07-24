@@ -1,3 +1,7 @@
+**MLS commissioner addresses Messi, Jordi Alba missing All-Star Game**\
+`The two Inter Miami stars could face a one-game suspension for failing to turn up at the All-Star Game, per league rules`\
+https://nytimes.com/athletic/6511945/2025/07/23/messi-jordi-alba-suspension-mls-all-star-game-inter-miami-fc-cincinnati/
+
 **Columbia’s Deal With Trump: What We Know**\
 `The university entered into an agreement to settle claims that it allegedly violated federal anti-discrimination laws.`\
 https://nytimes.com/2025/07/23/nyregion/columbia-university-deal-with-trump-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512056/2025/07/23/seahawks-uchenna-nwosu-kenneth-w
 **Indiana Fever's Sophie Cunningham fined for TikTok mocking WNBA refs**\
 `Cunningham is averaging 7.3 points and 4.1 rebounds in 19 games.`\
 https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-fined-wnba-refs/
-
-**Trump’s A.I. Challenge: Focus on World’s Most Dangerous Weapons or Woke-ism?**\
-`In the Biden era, the government feared AI models would guide the spread of chemical, biological or nuclear weapons. President Trump signed an order on “Preventing Woke A.I. in the Federal Government.”`\
-https://nytimes.com/2025/07/23/us/politics/trump-ai-nuclear-weapons.html
 
