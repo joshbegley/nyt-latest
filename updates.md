@@ -1,3 +1,15 @@
+**Leeds closing in on Lucas Perri deal**\
+`The 27-year-old goalkeeper only joined Lyon last summer but is poised to become Leeds' seventh summer signing.`\
+https://nytimes.com/athletic/6512792/2025/07/24/lucas-perri-leeds-transfer-lyon/
+
+**What’s in a Name?**\
+`All politicians try to play the frame game. President Trump is a master at it.`\
+https://nytimes.com/2025/07/24/briefing/whats-in-a-name.html
+
+**China could be a player in efforts to calm Cambodia-Thailand tensions.**\
+`By Vivian Wang`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/china-could-be-a-player-in-efforts-to-calm-cambodia-thailand-tensions
+
 **A Puppet Theater Gets Weird, With Georg Baselitz as a Guide**\
 `At this year’s Salzburg Festival, the German artist has designed marionettes for a troupe that usually performs “The Sound of Music.”`\
 https://nytimes.com/2025/07/24/arts/music/georg-baselitz-the-soldiers-tale-salzburg-festival.html
