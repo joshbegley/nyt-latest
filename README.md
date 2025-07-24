@@ -1,3 +1,27 @@
+**Bill Belichick fits right in at ACC media day — and even cracks a few jokes**\
+`Belichick's message to recruits: "We’re not trying to overhype or oversell something we can’t deliver. We’re trying to sell who we are."`\
+https://nytimes.com/athletic/6513983/2025/07/24/bill-belichick-acc-media-day-north-carolina/
+
+**The Achi 36**\
+`The Achi 36`\
+https://nytimes.com/slideshow/2025/07/24/magazine/the-achi-36.html
+
+**Friday Briefing: France to Recognize Palestinian Statehood**\
+`Plus, the global craze for matcha.`\
+https://nytimes.com/2025/07/24/briefing/france-palestinians-gaza-israel-thailand-cambodia-spacex-china.html
+
+**If Trump Keeps Intimidating the Fed, He Will Pay a Price**\
+`When central banks are pressured by politicians into overheating the economy, everyone ends up getting burned.`\
+https://nytimes.com/2025/07/24/opinion/trump-federal-reserve-powell.html
+
+**I Don’t Scorn Mixed Motives. I Live by Them.**\
+`How do you live a driven life, seeking to achieve great things, without becoming a jerk?`\
+https://nytimes.com/2025/07/24/opinion/ambition-self-improvement.html
+
+**Fantasy baseball bullpen report and how every team is likely to handle MLB trade deadline**\
+`Greg Jewett details what are the likely intentions of each team in regard to its bullpen ahead of the MLB trade deadline.`\
+https://nytimes.com/athletic/6513901/2025/07/24/fantasy-baseball-2025-mlb-trade-deadline-bullpen/
+
 **The Justice Dept. Wants to Interview Ghislaine Maxwell, While Opposing Her Appeal**\
 `Even as top Justice Department officials brokered an interview with a longtime associate of Jeffrey Epstein, they asked the Supreme Court to reject her appeal.`\
 https://nytimes.com/2025/07/24/us/epstein-maxwell-supreme-court-appeal.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/24/nyregion/columbia-trump-deal-reaction.html
 **Israel and the U.S. Withdraw From Talks With Hamas**\
 `President Trump’s special envoy said that “we will now consider alternative options to bring the hostages home,” though it was not clear that negotiations had halted.`\
 https://nytimes.com/2025/07/24/us/politics/israel-us-hamas-talks.html
-
-**The Wrestling Ropes Couldn’t Constrain Hulk Hogan**\
-`The muscular entertainer, who died at 71, broke through into pop culture and led the way for Dwayne Johnson and John Cena.`\
-https://nytimes.com/2025/07/24/arts/hulk-hogan-wrestling.html
-
-**As MLB's trade deadline approaches, a Q&A with Reds' Nick Krall**\
-`Cincinnati sits 2 1/2 games behind the San Diego Padres, the current holder of the final wild card slot and a game behind San Francisco.`\
-https://nytimes.com/athletic/6514051/2025/07/24/cincinnati-reds-nick-krall-q-and-a-trade-deadline/
-
-**Chip Kelly, offense ready for the pads to come on at Raiders training camp**\
-`While it's hard for players to make a major impression without pads, rookie WR Dont'e Thornton has been a constant in the starting lineup.`\
-https://nytimes.com/athletic/6513849/2025/07/24/raiders-training-camp-chip-kelly/
-
-**Eagles training camp: Cooper DeJean talks playing safety, Jordan Davis in shape**\
-`Also, Vic Fangio gives an early assessment of Jihaad Campbell, while the depth chart for the defensive front emerges.`\
-https://nytimes.com/athletic/6513666/2025/07/24/philadelphia-eagles-training-camp-cooper-dejean-jordan-davis/
-
-**Broncos' new safety duo of Talanoa Hufanga, Brandon Jones forming quick bond**\
-`A shared college experience playing for Todd Orlando created a familiar starting point for Jones and Hufanga as they join forces in Denver.`\
-https://nytimes.com/athletic/6513774/2025/07/24/talanoa-hufanga-brandon-jones-broncos-camp/
-
-**Giants camp takeaways: Abdul Carter dominant; Wan'Dale Robinson flashes downfield potential**\
-`Rookie QB Jaxson Dart continues to look like what he is: a developmental prospect. Starter Russell Wilson has been efficient and effective.`\
-https://nytimes.com/athletic/6513923/2025/07/24/ny-giants-abdul-carter-wandale-robinson-training-camp/
 
