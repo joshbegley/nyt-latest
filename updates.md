@@ -1,3 +1,11 @@
+**INEOS team member leaves Tour de France amid investigation into historic link with doping doctor**\
+`David Rozman is alleged to have exchanged messages with Mark Schmidt, a German doctor jailed in 2021 for his role in a doping ring, in 2012.`\
+https://nytimes.com/athletic/6513269/2025/07/24/ineos-tour-de-france-david-rozman/
+
+**Chuck Mangione, ‘Smooth Jazz’ Hitmaker With a Fluegelhorn, Dies at 84**\
+`Wearing his signature fedora, he won wide popularity and 14 Grammy nominations, winning twice, and scaled Billboard’s adult contemporary charts in the 1970s.`\
+https://nytimes.com/2025/07/24/arts/music/chuck-mangione-dead.html
+
 **Ancient Temples Have Long Been a Flashpoint Between Cambodia and Thailand**\
 `Both countries lay claim to centuries-old worship sites perched on the mountains that divide the two nations, sometimes stoking nationalistic fervor.`\
 https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-conflict-ancient-temples.html
