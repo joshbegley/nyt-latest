@@ -1,3 +1,7 @@
+**Donations to NPR and PBS Stations Surge After Funding Cuts**\
+`Donors are turning out to support local stations, but those contributions so far fall well short of the annual $550 million that Congress cut.`\
+https://nytimes.com/2025/07/24/business/media/npr-pbs-funding-cuts-donations.html
+
 **Rugby star praised for withdrawing from team due to concussion symptoms**\
 `Garry Ringrose had been selected in the starting XV for the British and Irish Lions test against Australia withdrew due to the effects.`\
 https://nytimes.com/athletic/6513765/2025/07/24/rugby-concussion-garry-ringrose-lions-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/books/joe-biden-memoir-deal.html
 **Columbia and Penn Made Trump Deals. More Universities Could Be Next.**\
 `Trump officials hope deals with two Ivy League schools create a template that others, including Harvard, Princeton, Brown, Cornell and Northwestern, will follow.`\
 https://nytimes.com/2025/07/24/us/trump-university-deal-penn-columbia.html
-
-**Where Do Untraceable Fishing Fleets Go?**\
-`Many ‘dark vessels’ fish illegally in oceans worldwide. New studies show how often they go into Marine Protected Areas.`\
-https://nytimes.com/2025/07/24/climate/marine-protected-areas-fishing.html
 
