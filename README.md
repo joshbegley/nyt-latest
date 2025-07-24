@@ -1,3 +1,11 @@
+**Carlos Rodriguez abandons Tour de France after pelvis fracture**\
+`The Spanish climber came down in a multi-rider crash mostly involving the sprint teams.`\
+https://nytimes.com/athletic/6512650/2025/07/24/carlos-rodriguez-ineos-tour-de-france-pelvis/
+
+**Isak omitted from Newcastle squad for pre-season tour of east Asia**\
+`Eddie Howe insisted after Saturday's defeat to Celtic that he expected Isak to join Newcastle in Singapore and South Korea this week,`\
+https://nytimes.com/athletic/6512649/2025/07/24/alexander-isak-newcastle-squad-pre-season/
+
 **Ex-Liverpool forward Firmino joins Qatari club Al Sadd**\
 `Firmino joins from Saudi Arabian club Al Ahli, where he won last season's AFC Champions League Elite.`\
 https://nytimes.com/athletic/6125635/2025/07/24/roberto-firmino-transfer-qatar-al-sadd/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/learning/word-of-the-day-gobble.html
 **Mine Collapse Traps 3 Workers in British Columbia**\
 `A rescue operation is underway at the Red Chris gold and copper mine to reach the trapped miners, who were safe in a sealed chamber underground, according to officials.`\
 https://nytimes.com/2025/07/24/us/canada-miners-trapped.html
-
-**The New York Times in Print for Thursday, July 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
-
-**The World Must See Gaza’s Starvation**\
-`Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
-https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
 
