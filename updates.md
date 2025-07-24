@@ -1,3 +1,11 @@
+**Lizzie Deignan, former cycling world champion and Olympic silver medallist, retires due to pregnancy**\
+`Deignan, 36, bows out of the sport with 43 professional wins and an Olympic silver medal, which she won at the London 2012 Games.`\
+https://nytimes.com/athletic/6513163/2025/07/24/lizzie-deignan-armitstead-retirement-child-lidl-trek/
+
+**Here’s what to know.**\
+`(No description)`\
+https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell/heres-what-to-know
+
 **Brighton's Cashin to join Birmingham on loan despite Webster knee injury**\
 `The injury suffered by Webster has not stopped the club from pressing on with the loan move for centre-back Cashin.`\
 https://nytimes.com/athletic/6513115/2025/07/24/brighton-transfers-cashin-birmingham/

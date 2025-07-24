@@ -1,3 +1,7 @@
+**Max Verstappen says Christian Horner exit won’t influence his Red Bull future**\
+`Max Verstappen said the only thing that matters is that Red Bull work on making his car faster`\
+https://nytimes.com/athletic/6513200/2025/07/24/max-verstappen-red-bull-future-christian-horner/
+
 **Lizzie Deignan, former cycling world champion and Olympic silver medallist, retires due to pregnancy**\
 `Deignan, 36, bows out of the sport with 43 professional wins and an Olympic silver medal, which she won at the London 2012 Games.`\
 https://nytimes.com/athletic/6513163/2025/07/24/lizzie-deignan-armitstead-retirement-child-lidl-trek/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/24/world/asia/earthquake-indonesia.html
 **Yes, You Can Own a Home**\
 `Many dream of buying a home, but the obstacles can seem overwhelming. Here’s how one owner beat the odds — and how you can, too.`\
 https://nytimes.com/paidpost/progressive-insurance/yes-you-can-own-a-home.html
-
-**Arsenal's Madueke reclassified in Premier League records as 'homegrown'**\
-`The 23-year-old had previously been listed in Chelsea’s squad list as recently as February as 'non-homegrown'.`\
-https://nytimes.com/athletic/6513121/2025/07/24/arsenal-noni-madueke-homegrown-players/
 
