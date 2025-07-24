@@ -1,3 +1,7 @@
+**Thursday Briefing: Your Russia Questions Answered**\
+`Plus, meet the other great Kurosawa.`\
+https://nytimes.com/2025/07/24/briefing/russia-ukraine-trump-gaza-ozzy-osbourne.html
+
 **Man City counterattacking problems need to be solved - with or without Rodri**\
 `City's players will return to training on Monday - it is clear what the No 1 priority should be before the new Premier League season`\
 https://nytimes.com/athletic/6510392/2025/07/24/manchester-city-guardiola-losing-same-way/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510669/2025/07/24/england-lionesses-finishers-star
 **Do Premier League clubs ever successfully replace big-money sales with cheaper replacements?**\
 `Teams often sell a player for big money and then bring someone in to replace them. But can it work?`\
 https://nytimes.com/athletic/6510644/2025/07/24/premier-league-transfers-sales-replacements-cheaper/
-
-**Can VAR learn from this sport's officiating? Military-grade GPS systems and a 98 percent accuracy**\
-`The Athletic went behind the scenes at SailGP broadcast headquarters to find out how the sport is using technology to help its umpires`\
-https://nytimes.com/athletic/6508571/2025/07/24/sailgp-umpires-technology-var-behind-the-scenes/
 
