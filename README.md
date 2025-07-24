@@ -1,3 +1,15 @@
+**Pentagon Suspends Its Participation in Think Tank Forums**\
+`For years, Republican and Democratic administrations have sent officials to national security and foreign policy conferences around the world.`\
+https://nytimes.com/2025/07/24/us/politics/pentagon-ban-think-tank-events.html
+
+**Bills RB James Cook says new deal is 'going to get done. Wherever it happens'**\
+`Cook has repeatedly said he wants to end his career with the Bills but his latest comments left the door open for an exit.`\
+https://nytimes.com/athletic/6513598/2025/07/24/bills-james-cook-new-deal/
+
+**What do fans want the future of college sports to look like? Take The Athletic's survey**\
+`College sports, for good and for ill, have been transformed. We thought we’d ask you, the people who love college sports, what you think.`\
+https://nytimes.com/athletic/6513297/2025/07/24/college-sports-football-fans-survey-2025/
+
 **Strong Views on Israel and Genocide**\
 `Readers respond to a column by Bret Stephens.`\
 https://nytimes.com/2025/07/24/opinion/israel-genocide-bret-stephens.html
@@ -25,16 +37,4 @@ https://nytimes.com/article/hair-loss-prevention-treatment.html
 **Rishabh Pant is clearly injured. Is it time for substitutes in cricket?**\
 `Cricket is a sport that has never truly got to grips with injury replacements - is it time for that to change?`\
 https://nytimes.com/athletic/6513517/2025/07/24/rishabh-pant-india-injured-cricket-substitutes/
-
-**Jesse Chavez announces retirement after 18 seasons**\
-`Chavez appeared in 657 major-league games for nine teams. He was either traded to, signed by or re-signed by the Braves on nine occasions.`\
-https://nytimes.com/athletic/6513695/2025/07/24/jesse-chavez-retirement-braves-2/
-
-**Diamondbacks plan to be sellers at deadline: Sources**\
-`The demand for Eugenio Suárez makes him the the most likely of the DBacks players to move.`\
-https://nytimes.com/athletic/6513618/2025/07/24/arizona-diamondbacks-mlb-trade-deadline-sellers/
-
-**As U.S. Retreats on Climate, China and Europe Pledge to Go Green Together**\
-`A joint statement promised new efforts to cut emissions at a time when China is positioning itself as the world’s one-stop shop for clean energy technologies.`\
-https://nytimes.com/2025/07/24/climate/china-eu-joint-climate-statement.html
 

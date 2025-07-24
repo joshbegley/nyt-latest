@@ -1,3 +1,19 @@
+**Strong Views on Israel and Genocide**\
+`Readers respond to a column by Bret Stephens.`\
+https://nytimes.com/2025/07/24/opinion/israel-genocide-bret-stephens.html
+
+**Yankees rave about Diamondbacks' Eugenio Suárez as trade deadline nears**\
+`Max Fried was among a trio of Yankees pitchers who sang Suárez’s praises as the July 31 trade deadline nears.`\
+https://nytimes.com/athletic/6513615/2025/07/24/yankees-eugenio-suarez-mlb-trade-deadline/
+
+**Can You Do the Nicki Minaj?**\
+`Inspired by an old rap video, social media users are challenging each other to get into a pretzel-like pose in increasingly precarious locations.`\
+https://nytimes.com/2025/07/24/style/nicki-minaj-challenge-tiktok.html
+
+**Agriculture Department to Move Most Remaining Washington Workers Out of City**\
+`More than half of the agency’s 4,600 Washington employees will be spread across five regional hubs.`\
+https://nytimes.com/2025/07/24/us/politics/agriculture-department-workers-washington.html
+
 **Mandel: The Big Ten has landed on Planet Gaslight, and it's determined to bring you along**\
 `The Big Ten's approach to the college football postseason is nonsensical, plain and simple. `\
 https://nytimes.com/athletic/6513124/2025/07/24/big-ten-media-days-college-football-playoff/
