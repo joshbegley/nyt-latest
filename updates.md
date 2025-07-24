@@ -1,3 +1,15 @@
+**Falcons training camp: Pitts ignores 'rat poison,' Penix expects big things**\
+`Penix is high on his golf buddy Pitts having a big season. If not, it could be the tight end's last in Atlanta.`\
+https://nytimes.com/athletic/6513750/2025/07/24/falcons-training-camp-kyle-pitts-michael-penix-jr/
+
+**How a Frantic Scouring of the Epstein Files Consumed the Justice Dept.**\
+`There was a single goal in mind: find something — anything — that could be released to the public to satisfy President Trump’s supporters.`\
+https://nytimes.com/2025/07/24/us/politics/epstein-files-trump-bondi-justice-department-fbi.html
+
+**How UCLA got Nico Iamaleava — and hopes the QB ushers in a new era for the Bruins**\
+`UCLA is ready to compete in the Big Ten, and it invested heavily in Nico Iamaleava to do so.`\
+https://nytimes.com/athletic/6511849/2025/07/24/ucla-football-nico-iamaleava-nil-transfer-portal/
+
 **With a Single Image, U.S. Deportation Narrative Is Turned on Its Head**\
 `President Trump has vowed to expel criminals, but a photo of a convicted killer being brought to the U.S. in a prisoner swap sends another message.`\
 https://nytimes.com/2025/07/24/world/americas/us-venezuela-prisoner-swap-murderer-photo.html

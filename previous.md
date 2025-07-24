@@ -1,3 +1,15 @@
+**Falcons training camp: Pitts ignores 'rat poison,' Penix expects big things**\
+`Penix is high on his golf buddy Pitts having a big season. If not, it could be the tight end's last in Atlanta.`\
+https://nytimes.com/athletic/6513750/2025/07/24/falcons-training-camp-kyle-pitts-michael-penix-jr/
+
+**How a Frantic Scouring of the Epstein Files Consumed the Justice Dept.**\
+`There was a single goal in mind: find something — anything — that could be released to the public to satisfy President Trump’s supporters.`\
+https://nytimes.com/2025/07/24/us/politics/epstein-files-trump-bondi-justice-department-fbi.html
+
+**How UCLA got Nico Iamaleava — and hopes the QB ushers in a new era for the Bruins**\
+`UCLA is ready to compete in the Big Ten, and it invested heavily in Nico Iamaleava to do so.`\
+https://nytimes.com/athletic/6511849/2025/07/24/ucla-football-nico-iamaleava-nil-transfer-portal/
+
 **With a Single Image, U.S. Deportation Narrative Is Turned on Its Head**\
 `President Trump has vowed to expel criminals, but a photo of a convicted killer being brought to the U.S. in a prisoner swap sends another message.`\
 https://nytimes.com/2025/07/24/world/americas/us-venezuela-prisoner-swap-murderer-photo.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/24/climate/marine-protected-areas-fishing.html
 **Von Miller views union with rising Commanders as a 'good marriage'**\
 `ASHBURN, Va.`\
 https://nytimes.com/athletic/6513591/2025/07/24/commanders-von-miller-training-camp/
-
-**How Trump’s Attacks on the Fed Chair Have Intensified**\
-`President Trump has targeted Jerome H. Powell on more than 70 separate occasions, more than half of them since April. His statements fall into four broad categories.`\
-https://nytimes.com/interactive/2025/07/24/business/economy/trump-powell-fed-timeline.html
-
-**Newcastle United, Alexander Isak's wish to leave, and the challenge of being elite**\
-`Their star striker wants a transfer. Not for the first time in living memory, Newcastle the club is holding back Newcastle the team`\
-https://nytimes.com/athletic/6513474/2025/07/24/newcastle-isak-howe-transfers-strategy/
-
-**Carter Hart, Cal Foote, Dillon Dubé and Alex Formenton found not guilty in Hockey Canada sexual assault trial**\
-`Judge says she didn't find the evidence in the Crown's case "credible or reliable" in announcing the verdicts.`\
-https://nytimes.com/athletic/6510753/2025/07/24/hockey-canada-trial-verdict-acquittal-all-charges/
 
