@@ -1,3 +1,7 @@
+**The Pulse: Could this deal change how we watch football?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6510910/2025/07/24/nfl-espn-red-zone-deal-the-pulse/
+
 **Leeds closing in on Lucas Perri deal**\
 `The 27-year-old goalkeeper only joined Lyon last summer but is poised to become Leeds' seventh summer signing.`\
 https://nytimes.com/athletic/6512792/2025/07/24/lucas-perri-leeds-transfer-lyon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/podcasts/the-headlines/trump-epstein-files-ukrain
 **Jaylen Brown used Muay Thai to overcome failure. I tried it and discovered the benefits**\
 `Brown credits Muay Thai with giving him an edge. The Athletic's Elise Devlin wanted to see for herself what it was all about.`\
 https://nytimes.com/athletic/6510796/2025/07/24/celtics-jaylen-brown-muay-thai/
-
-**Addressing Reed Sheppard concerns, spacing questions and more: Rockets mailbag**\
-`Are Reed Sheppard's struggles at summer league indicative of what's to come next season? Kelly Iko answers your Rockets questions. `\
-https://nytimes.com/athletic/6511189/2025/07/24/rockets-reed-sheppard-cam-whitmore-trade/
 

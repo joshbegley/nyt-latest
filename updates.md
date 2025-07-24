@@ -1,3 +1,7 @@
+**The Pulse: Could this deal change how we watch football?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6510910/2025/07/24/nfl-espn-red-zone-deal-the-pulse/
+
 **Leeds closing in on Lucas Perri deal**\
 `The 27-year-old goalkeeper only joined Lyon last summer but is poised to become Leeds' seventh summer signing.`\
 https://nytimes.com/athletic/6512792/2025/07/24/lucas-perri-leeds-transfer-lyon/
