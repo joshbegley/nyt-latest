@@ -1,3 +1,11 @@
+**Cardinals LB J.J. Russell taken to hospital after frightening practice injury**\
+`Team said Russell was alert and had movement in all extremities.`\
+https://nytimes.com/athletic/6514427/2025/07/24/cardinals-jj-russell-injury-head-neck-hospital/
+
+**Aaron Rodgers-DK Metcalf chemistry a work in progress as Steelers open camp**\
+`As Rodgers and Metcalf get more comfortable off the field as suitemates in Latrobe, they know their on-field product needs work.`\
+https://nytimes.com/athletic/6514428/2025/07/24/steelers-aaron-rodgers-dk-metcalf-training-camp/
+
 **‘The Hunting Wives’ Is Soapy, Sultry Fun**\
 `The new Netflix Texas murder mystery, starring an irresistible Malin Akerman, is deliciously and audaciously not safe for work.`\
 https://nytimes.com/2025/07/24/arts/television/the-hunting-wives-netflix.html
