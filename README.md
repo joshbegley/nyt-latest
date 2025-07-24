@@ -1,3 +1,7 @@
+**Roy Black, Defense Lawyer for William Kennedy Smith and Epstein, Dies at 80**\
+`With a national profile, he represented the notorious and the celebrated, helping to secure an acquittal in the Smith rape case and a lenient plea deal for Jeffrey Epstein.`\
+https://nytimes.com/2025/07/24/us/roy-black-dead.html
+
 **France Will Recognize Palestinian Statehood**\
 `Also, Hulk Hogan died at 71. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/07/24/briefing/france-middle-east-trump-columbia-university.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514206/2025/07/24/lincoln-riley-usc-notre-dame-fut
 **Hulk Hogan: A Life in Pictures**\
 `The wrestler, who died on Thursday at 71, was the face of the sport as its popularity grew, propelling him into the wider entertainment world.`\
 https://nytimes.com/2025/07/24/arts/hulk-hogan-a-life-in-pictures.html
-
-**Readers Sent Us Hundreds of Local Climate Solutions**\
-`As part of our 50 States, 50 Fixes series, more than 2,400 Times readers wrote in to tell us about climate action in their communities.`\
-https://nytimes.com/2025/07/24/climate/readers-sent-us-hundreds-of-local-climate-solutions.html
 
