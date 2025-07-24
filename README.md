@@ -14,13 +14,13 @@ https://nytimes.com/2025/07/24/us/politics/tony-evers-wisconsin-governor.html
 `For the next four weeks, I’m going to send you a bingo card so we can all have a bit more fun with the season’s best produce. First up: Corn.`\
 https://nytimes.com/2025/07/24/dining/vegetarian-corn-recipes-for-playing-corn-bingo.html
 
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/07/24/books/review/new-book-recommendations.html
-
 **Christie’s Debuts Crypto Real Estate Division**\
 `The brokerage, which has already handled transactions with digital payment in lieu of cash, is the first major U.S. firm to create a dedicated team for such deals.`\
 https://nytimes.com/2025/07/24/realestate/crypto-real-estate-christies.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/07/24/books/review/new-book-recommendations.html
 
 **A Series of Mysterious Explosions Unnerves Syrians**\
 `Many of the blasts, some of them deadly, have been at weapons storage sites, raising questions about whether ordnance from Syria’s civil war has been properly secured.`\
