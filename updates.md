@@ -1,3 +1,7 @@
+**Convicted Murderer Released by Trump From Venezuelan Prison Is Free in U.S.**\
+`At least some American officials knew that Dahud Hanid Ortiz had been convicted of a triple murder when he was put on the plane to the United States.`\
+https://nytimes.com/2025/07/24/world/americas/trump-venezuela-convicted-murderer-swap.html
+
 **Intel Expects Work Force to Shrink by 25,000**\
 `The Silicon Valley chip company, which has been struggling, quantified the job cuts it is making as it seeks to turn its business around.`\
 https://nytimes.com/2025/07/24/technology/intel-layoffs-25000.html

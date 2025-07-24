@@ -1,3 +1,7 @@
+**Convicted Murderer Released by Trump From Venezuelan Prison Is Free in U.S.**\
+`At least some American officials knew that Dahud Hanid Ortiz had been convicted of a triple murder when he was put on the plane to the United States.`\
+https://nytimes.com/2025/07/24/world/americas/trump-venezuela-convicted-murderer-swap.html
+
 **Intel Expects Work Force to Shrink by 25,000**\
 `The Silicon Valley chip company, which has been struggling, quantified the job cuts it is making as it seeks to turn its business around.`\
 https://nytimes.com/2025/07/24/technology/intel-layoffs-25000.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514162/2025/07/24/packers-training-camp-matthew-go
 **Storms in New Mexico Cause Flash Flooding and Water Rescues**\
 `The heavy rain came after severe flooding in the area killed three people and damaged dozens of homes on July 8.`\
 https://nytimes.com/2025/07/24/us/flooding-ruidoso-new-mexico.html
-
-**Lake Tahoe Boaters Died in Sudden Storm Without Life Jackets, Review Finds**\
-`The eight people who died in a June accident were found without flotation devices, according to a new report. The two survivors relied on the devices to stay afloat.`\
-https://nytimes.com/2025/07/24/us/lake-tahoe-boat-victims.html
 
