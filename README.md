@@ -1,3 +1,19 @@
+**Tony Evers Declines to Run for 3rd Term as Wisconsin Governor**\
+`The decision is likely to invite a wide-open race for the Democratic nomination in a battleground state the party hopes to control.`\
+https://nytimes.com/2025/07/24/us/politics/tony-evers-wisconsin-governor.html
+
+**Summer Veggie Bingo!**\
+`For the next four weeks, I’m going to send you a bingo card so we can all have a bit more fun with the season’s best produce. First up: Corn.`\
+https://nytimes.com/2025/07/24/dining/vegetarian-corn-recipes-for-playing-corn-bingo.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/07/24/books/review/new-book-recommendations.html
+
+**Christie’s Debuts Crypto Real Estate Division**\
+`The brokerage, which has already handled transactions with digital payment in lieu of cash, is the first major U.S. firm to create a dedicated team for such deals.`\
+https://nytimes.com/2025/07/24/realestate/crypto-real-estate-christies.html
+
 **A Series of Mysterious Explosions Unnerves Syrians**\
 `Many of the blasts, some of them deadly, have been at weapons storage sites, raising questions about whether ordnance from Syria’s civil war has been properly secured.`\
 https://nytimes.com/2025/07/24/world/middleeast/syria-explosions.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/24/sports/hulk-hogan-dead.html
 **We Love ‘Parasite.’ But Where the Heck Is Steven Spielberg?**\
 `Wesley Morris talks with Eric Hynes of the Jacob Burns Film Center about Steven Spielberg’s influence on The New York Times’s “100 Best Movies of the 21st Century” list.`\
 https://nytimes.com/video/podcasts/100000010300100/we-love-parasite-but-where-the-heck-is-steven-spielberg.html
-
-**As Starvation Rises, Israeli Minister Says Israel Is ‘Driving Out’ Gazans**\
-`Amichay Eliyahu’s comments came amid growing hunger in the territory, where Israel controls the delivery of food.`\
-https://nytimes.com/2025/07/24/world/middleeast/israel-minister-gaza-driving-out.html
-
-**Anne Burrell’s Death Ruled a Suicide**\
-`The Food Network star was found dead in her apartment on June 17.`\
-https://nytimes.com/2025/07/24/dining/anne-burrell-cause-of-death-suicide.html
-
-**Assessing Isak's options: Liverpool? PSG? Al Hilal?**\
-`Examining where the Newcastle striker could look after telling his club he wishes to explore a move away`\
-https://nytimes.com/athletic/6513094/2025/07/24/alexander-isak-transfer-liverpool-saudi-arabia/
-
-**Wildfires Burn in Cyprus as Extreme Heat Grips the Island**\
-`Fires spreading near the southern city of Limassol have killed at least two people and burned more than 24,000 acres as of Thursday, officials said.`\
-https://nytimes.com/video/world/europe/100000010303311/cyprus-wildfire.html
 
