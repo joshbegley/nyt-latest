@@ -1,3 +1,7 @@
+**Live Updates: Thai and Cambodian Troops Fire at Each Other as Relations Deteriorate**\
+`Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
+
 **Thursday Briefing: Your Russia Questions Answered**\
 `Plus, meet the other great Kurosawa.`\
 https://nytimes.com/2025/07/24/briefing/russia-ukraine-trump-gaza-ozzy-osbourne.html
