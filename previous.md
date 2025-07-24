@@ -1,3 +1,11 @@
+**Familiar Flashpoint Leads to Deadly Clashes Between Thailand and Cambodia**\
+`At least a dozen people were killed after the two countries exchanged fire after simmering tensions over a border dispute boiled over on Thursday.`\
+https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-deadly-border-clash.html
+
+**Bears training camp observations: Running backs can feel the pressure**\
+`The Bears' run game must improve, plus the defense can feel the impact of having Andrew Billings and Jaquan Brisker back.`\
+https://nytimes.com/athletic/6513813/2025/07/24/bears-training-camp-observations-running-backs-can-feel-the-pressure/
+
 **Donations to NPR and PBS Stations Surge After Funding Cuts**\
 `Donors are turning out to support local stations, but those contributions so far fall well short of the annual $550 million that Congress cut.`\
 https://nytimes.com/2025/07/24/business/media/npr-pbs-funding-cuts-donations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513681/2025/07/24/patriots-training-camp-stefon-di
 **Trump Has a Terrible Idea for American Sports Teams**\
 `Hint: It’s also a terrible idea for American Indians.`\
 https://nytimes.com/2025/07/24/opinion/trump-sports-washington-commanders-cleveland-guardians.html
-
-**Joe Biden’s Presidential Memoir Sells for $10 Million**\
-`The former president has said he’s been ‘working like hell’ on the book, which will focus on his term in office.`\
-https://nytimes.com/2025/07/24/books/joe-biden-memoir-deal.html
-
-**Columbia and Penn Made Trump Deals. More Universities Could Be Next.**\
-`Trump officials hope deals with two Ivy League schools create a template that others, including Harvard, Princeton, Brown, Cornell and Northwestern, will follow.`\
-https://nytimes.com/2025/07/24/us/trump-university-deal-penn-columbia.html
 

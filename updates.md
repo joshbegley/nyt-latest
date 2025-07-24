@@ -1,3 +1,11 @@
+**Familiar Flashpoint Leads to Deadly Clashes Between Thailand and Cambodia**\
+`At least a dozen people were killed after the two countries exchanged fire after simmering tensions over a border dispute boiled over on Thursday.`\
+https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-deadly-border-clash.html
+
+**Bears training camp observations: Running backs can feel the pressure**\
+`The Bears' run game must improve, plus the defense can feel the impact of having Andrew Billings and Jaquan Brisker back.`\
+https://nytimes.com/athletic/6513813/2025/07/24/bears-training-camp-observations-running-backs-can-feel-the-pressure/
+
 **Donations to NPR and PBS Stations Surge After Funding Cuts**\
 `Donors are turning out to support local stations, but those contributions so far fall well short of the annual $550 million that Congress cut.`\
 https://nytimes.com/2025/07/24/business/media/npr-pbs-funding-cuts-donations.html
