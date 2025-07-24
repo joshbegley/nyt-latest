@@ -1,3 +1,15 @@
+**Joe Biden’s Presidential Memoir Sells for $10 Million**\
+`The former president has said he’s been ‘working like hell’ on the book, which will focus on his term in office.`\
+https://nytimes.com/2025/07/24/books/joe-biden-memoir-deal.html
+
+**Columbia and Penn Made Trump Deals. More Universities Could Be Next.**\
+`Trump officials hope deals with two Ivy League schools create a template that others, including Harvard, Princeton, Brown, Cornell and Northwestern, will follow.`\
+https://nytimes.com/2025/07/24/us/trump-university-deal-penn-columbia.html
+
+**Carter Hart, Cal Foote, Alex Formenton found not guilty in Hockey Canada sexual assault trial**\
+`Judge says she didn't find the evidence in the Crown's case "credible or reliable" in announcing the verdicts.`\
+https://nytimes.com/athletic/6510753/2025/07/24/hockey-canada-trial-verdict-acquittal-all-charges/
+
 **Where Do Untraceable Fishing Fleets Go?**\
 `Many ‘dark vessels’ fish illegally in oceans worldwide. New studies show how often they go into Marine Protected Areas.`\
 https://nytimes.com/2025/07/24/climate/marine-protected-areas-fishing.html

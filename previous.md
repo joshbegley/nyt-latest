@@ -1,3 +1,11 @@
+**Joe Biden’s Presidential Memoir Sells for $10 Million**\
+`The former president has said he’s been ‘working like hell’ on the book, which will focus on his term in office.`\
+https://nytimes.com/2025/07/24/books/joe-biden-memoir-deal.html
+
+**Columbia and Penn Made Trump Deals. More Universities Could Be Next.**\
+`Trump officials hope deals with two Ivy League schools create a template that others, including Harvard, Princeton, Brown, Cornell and Northwestern, will follow.`\
+https://nytimes.com/2025/07/24/us/trump-university-deal-penn-columbia.html
+
 **Where Do Untraceable Fishing Fleets Go?**\
 `Many ‘dark vessels’ fish illegally in oceans worldwide. New studies show how often they go into Marine Protected Areas.`\
 https://nytimes.com/2025/07/24/climate/marine-protected-areas-fishing.html
@@ -14,7 +22,7 @@ https://nytimes.com/interactive/2025/07/24/business/economy/trump-powell-fed-tim
 `Their star striker wants a transfer. Not for the first time in living memory, Newcastle the club is holding back Newcastle the team`\
 https://nytimes.com/athletic/6513474/2025/07/24/newcastle-isak-howe-transfers-strategy/
 
-**Carter Hart found not guilty in Hockey Canada sexual assault trial**\
+**Carter Hart, Cal Foote, Alex Formenton found not guilty in Hockey Canada sexual assault trial**\
 `Judge says she didn't find the evidence in the Crown's case "credible or reliable" in announcing the verdicts.`\
 https://nytimes.com/athletic/6510753/2025/07/24/hockey-canada-trial-verdict-acquittal-all-charges/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513598/2025/07/24/bills-james-cook-new-deal/
 **What do fans want the future of college sports to look like? Take The Athletic's survey**\
 `College sports, for good and for ill, have been transformed. We thought we’d ask you, the people who love college sports, what you think.`\
 https://nytimes.com/athletic/6513297/2025/07/24/college-sports-football-fans-survey-2025/
-
-**Strong Views on Israel and Genocide**\
-`Readers respond to a column by Bret Stephens.`\
-https://nytimes.com/2025/07/24/opinion/israel-genocide-bret-stephens.html
-
-**Yankees rave about Diamondbacks' Eugenio Suárez as trade deadline nears**\
-`Max Fried was among a trio of Yankees pitchers who sang Suárez’s praises as the July 31 trade deadline nears.`\
-https://nytimes.com/athletic/6513615/2025/07/24/yankees-eugenio-suarez-mlb-trade-deadline/
 
