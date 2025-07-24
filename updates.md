@@ -1,3 +1,15 @@
+**The Wrestling Ropes Couldn’t Constrain Hulk Hogan**\
+`The muscular entertainer, who died at 71, broke through into pop culture and led the way for Dwayne Johnson and John Cena.`\
+https://nytimes.com/2025/07/24/arts/the-wrestling-ropes-couldnt-constrain-hulk-hogan.html
+
+**As MLB's trade deadline approaches, a Q&A with Reds' Nick Krall**\
+`Cincinnati sits 2 1/2 games behind the San Diego Padres, the current holder of the final wild card slot and a game behind San Francisco.`\
+https://nytimes.com/athletic/6514051/2025/07/24/cincinnati-reds-nick-krall-q-and-a-trade-deadline/
+
+**Trump Administration Sues Adams and New York City Over Sanctuary Laws**\
+`Mayor Eric Adams, whose corruption charges were dropped so he could help with deportations, is among the defendants in the suit, which argues the federal government has sole power over immigration.`\
+https://nytimes.com/2025/07/24/nyregion/trump-new-york-sanctuary-suit.html
+
 **Chip Kelly, offense ready for the pads to come on at Raiders training camp**\
 `While it's hard for players to make a major impression without pads, rookie WR Dont'e Thornton has been a constant in the starting lineup.`\
 https://nytimes.com/athletic/6513849/2025/07/24/raiders-training-camp-chip-kelly/
