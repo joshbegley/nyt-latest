@@ -1,3 +1,7 @@
+**Roy Black, Defense Lawyer for William Kennedy Smith and Epstein, Dies at 80**\
+`With a national profile, he represented the notorious and the celebrated, helping to secure an acquittal in the Smith rape case and a lenient plea deal for Jeffrey Epstein.`\
+https://nytimes.com/2025/07/24/us/roy-black-dead.html
+
 **France Will Recognize Palestinian Statehood**\
 `Also, Hulk Hogan died at 71. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/07/24/briefing/france-middle-east-trump-columbia-university.html
