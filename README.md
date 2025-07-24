@@ -1,3 +1,11 @@
+**Epstein’s Estate Includes Book Said to Have Note From Trump, a Lawyer Says**\
+`The lawyer, who represents victims of Jeffrey Epstein, said he believes the estate would turn the book over to the authorities if asked.`\
+https://nytimes.com/2025/07/24/us/politics/epstein-trump-birthday-book.html
+
+**Liverpool's Elliott says he will 'review his situation' amid World Cup hope**\
+`The Anfield club value Elliott at around £50million ($67.7m) and are not actively looking to sell him.`\
+https://nytimes.com/athletic/6513019/2025/07/24/harvey-elliott-liverpool-future-transfer/
+
 **The Anticorruption Watchdogs at the Center of Protests Against Zelensky**\
 `Anger has boiled over after attempts by Ukraine’s president, Volodymyr Zelensky, to overhaul agencies investigating claims that insiders skimmed military spending.`\
 https://nytimes.com/2025/07/24/world/europe/ukraine-protests-corruption-zelensky-military-spending.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6512337/2025/07/24/wnba-cba-negotiations-revenue-sh
 **Elon Musk Warns of Potentially ‘Rough’ Times Ahead**\
 `Shares in Tesla were down in premarket trading as the carmaker lays out the risks from President Trump’s tariffs and his scrapping of tax credits.`\
 https://nytimes.com/2025/07/24/business/dealbook/musk-tesla-rough-times.html
-
-**Aston Villa finalise new contract for midfielder Kamara**\
-`The 25-year-old suffered an ACL injury in 2024 but has become a key member of Emery's side since his return. `\
-https://nytimes.com/athletic/6512895/2025/07/24/boubacar-kamara-aston-villa-contract-extension/
-
-**Isak wants to leave Newcastle, asked not to go on pre-season tour**\
-`Liverpool have previously communicated their interest in Isak and over doing a deal in the region of £120million.`\
-https://nytimes.com/athletic/6495282/2025/07/24/alexander-isak-newcastle-transfer-exit/
 
