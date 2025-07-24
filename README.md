@@ -1,3 +1,7 @@
+**What the path back to the NHL looks like for Carter Hart, other Hockey Canada defendants**\
+`The players are unrestricted free agents but will not be eligible to sign with a team until the NHL has conducted its own review.`\
+https://nytimes.com/athletic/6513608/2025/07/24/hockey-canada-trial-verdict-defendants-nhl-future/
+
 **Supreme Court, for Now, Pauses Lower Court Decision Limiting Voting Rights Act**\
 `The justices paused a lower court order pending a decision on whether the Supreme Court will take up the case, a major challenge to the Voting Rights Act.`\
 https://nytimes.com/2025/07/24/us/supreme-court-voting-rights-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/justice-kagan-supreme-court-emergency-decision
 **Spencer Jones hits 3 homers, Baseball America to re-add him to top-100 prospect list**\
 `The Yankees' center-field prospect has 13 home runs in 19 Triple-A games.`\
 https://nytimes.com/athletic/6514252/2025/07/24/yankees-prospect-spencer-jones-three-home-runs/
-
-**Packers training camp: Matthew Golden's new nickname and 8 more observations**\
-`Packers special teams coordinator Rich Bisaccia gave the rookie first-rounder homework to understand his new nickname.`\
-https://nytimes.com/athletic/6514162/2025/07/24/packers-training-camp-matthew-golden/
 

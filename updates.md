@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Pauses Lower Court Decision Limiting Voting Rights Act**\
+`The justices paused a lower court order pending a decision on whether the Supreme Court will take up the case, a major challenge to the Voting Rights Act.`\
+https://nytimes.com/2025/07/24/us/supreme-court-voting-rights-act.html
+
 **Convicted Murderer Released by Trump From Venezuelan Prison Is Free in U.S.**\
 `At least some American officials knew that Dahud Hanid Ortiz had been convicted of a triple murder when he was put on the plane to the United States.`\
 https://nytimes.com/2025/07/24/world/americas/trump-venezuela-convicted-murderer-swap.html

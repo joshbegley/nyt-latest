@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Pauses Lower Court Decision Limiting Voting Rights Act**\
+`The justices paused a lower court order pending a decision on whether the Supreme Court will take up the case, a major challenge to the Voting Rights Act.`\
+https://nytimes.com/2025/07/24/us/supreme-court-voting-rights-act.html
+
 **Convicted Murderer Released by Trump From Venezuelan Prison Is Free in U.S.**\
 `At least some American officials knew that Dahud Hanid Ortiz had been convicted of a triple murder when he was put on the plane to the United States.`\
 https://nytimes.com/2025/07/24/world/americas/trump-venezuela-convicted-murderer-swap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514252/2025/07/24/yankees-prospect-spencer-jones-t
 **Packers training camp: Matthew Golden's new nickname and 8 more observations**\
 `Packers special teams coordinator Rich Bisaccia gave the rookie first-rounder homework to understand his new nickname.`\
 https://nytimes.com/athletic/6514162/2025/07/24/packers-training-camp-matthew-golden/
-
-**Storms in New Mexico Cause Flash Flooding and Water Rescues**\
-`The heavy rain came after severe flooding in the area killed three people and damaged dozens of homes on July 8.`\
-https://nytimes.com/2025/07/24/us/flooding-ruidoso-new-mexico.html
 
