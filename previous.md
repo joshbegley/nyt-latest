@@ -1,3 +1,23 @@
+**Bonmati is showing why Spain were so keen to have her back after meningitis scare**\
+`The midfielder was in hospital less than a week before the tournament began but she is back to her best when it matters most`\
+https://nytimes.com/athletic/6512580/2025/07/24/bonmati-spain-germany-euros/
+
+**Gibbs-White joins Forest training camp in Portugal amid Spurs interest**\
+`Tottenham previously bid £60m for Gibbs-White on July 10.`\
+https://nytimes.com/athletic/6512665/2025/07/24/morgan-gibbs-white-forest-transfer-tour/
+
+**A Plane Carrying 49 People Crashes in Russia’s Far East**\
+`Russia’s civil aviation authority released footage on Thursday of what it said was the site in Russia’s Amur region where a plane carrying 43 passengers and six crew members had crashed.`\
+https://nytimes.com/video/world/europe/100000010303183/a-plane-carrying-49-people-crashes-in-russias-far-east.html
+
+**Former Premier League player Baldock died in drowning accident, inquest finds**\
+`Baldock, who was 31, was found dead at his home in Glyfada, southern Athens, on October 9, 2024. `\
+https://nytimes.com/athletic/6512680/2025/07/24/george-baldock-death-inquest/
+
+**The New York Times International Edition in Print for Friday, July 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/24/todays-new-york-times-international-edition
+
 **Passenger Jet With 49 Onboard Crashes in Russia’s Far East**\
 `The plane was traveling to the town of Tynda when it went off the radar, the regional governor said.`\
 https://nytimes.com/2025/07/24/world/europe/plane-crash-russia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6512569/2025/07/24/aston-villa-make-offer-for-toulo
 **How to watch Aces at Fever: Clark shelved, Wilson surging for 'Stranger Things' game**\
 `The Indiana Fever will once again be without Caitlin Clark on Thursday, but they will debut their "Stranger Things" alternate uniforms.`\
 https://nytimes.com/athletic/6512304/2025/07/24/aces-fever-wnba-caitlin-clark-injury-update-stranger-things-how-to-watch/
-
-**Christian Cancel Culture Strikes Again**\
-`Chip and Joanna Gaines had the temerity to feature a gay couple on their new show.`\
-https://nytimes.com/2025/07/24/opinion/chip-joanna-gaines-evangelical-christianity.html
-
-**In Epstein, Democrats Find Unlikely Weapon Against Republicans**\
-`A conspiracy theory many of them once dismissed has given Democrats a potent tool for exploiting G.O.P. divisions, even if it has little to do with what many regard as their best line of attack against Republicans.`\
-https://nytimes.com/2025/07/24/us/politics/epstein-democrats-republicans.html
-
-**Two Americans Made Their Dreams Come True in Normandy, France**\
-`A couple from Colorado wondered for years if they’d be able to buy a home in France and make a new life for themselves. Last year, they saw where their $450,000 budget could take them.`\
-https://nytimes.com/interactive/2025/07/24/realestate/normandy-france-homes-for-sale.html
-
-**Democrats Have Few Tools to Counter G.O.P. Redistricting**\
-`A plan in Texas that could give Republicans at least five more House seats has Democrats fuming, and without many paths to fight it.`\
-https://nytimes.com/2025/07/24/us/politics/texas-redistricting-republicans-democrats.html
-
-**America Will Come to Regret Selling A.I. Chips to China**\
-`We should not allow American troops and intelligence officers to be targeted by A.I. trained on U.S. chips.`\
-https://nytimes.com/2025/07/24/opinion/ai-chips-nvidia-china.html
 
