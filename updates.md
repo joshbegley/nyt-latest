@@ -1,3 +1,7 @@
+**Max Verstappen says Christian Horner exit won’t influence his Red Bull future**\
+`Max Verstappen said the only thing that matters is that Red Bull work on making his car faster`\
+https://nytimes.com/athletic/6513200/2025/07/24/max-verstappen-red-bull-future-christian-horner/
+
 **Lizzie Deignan, former cycling world champion and Olympic silver medallist, retires due to pregnancy**\
 `Deignan, 36, bows out of the sport with 43 professional wins and an Olympic silver medal, which she won at the London 2012 Games.`\
 https://nytimes.com/athletic/6513163/2025/07/24/lizzie-deignan-armitstead-retirement-child-lidl-trek/
