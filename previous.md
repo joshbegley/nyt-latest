@@ -30,7 +30,7 @@ https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell/heres-what-t
 `The injury suffered by Webster has not stopped the club from pressing on with the loan move for centre-back Cashin.`\
 https://nytimes.com/athletic/6513115/2025/07/24/brighton-transfers-cashin-birmingham/
 
-**Justice Dept. Expected to Interview Epstein Associate Maxwell in Florida**\
+**Justice Dept. Expected to Interview Epstein Associate Maxwell in Florida on Thursday**\
 `It is unclear what information Ghislaine Maxwell, a longtime associate of Jeffrey Epstein’s, would provide that would go beyond what is already in the public record.`\
 https://nytimes.com/2025/07/24/us/politics/ghislaine-maxwell-epstein-interview.html
 

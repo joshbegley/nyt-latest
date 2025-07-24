@@ -1,3 +1,7 @@
+**Justice Dept. Expected to Interview Epstein Associate Maxwell in Florida on Thursday**\
+`It is unclear what information Ghislaine Maxwell, a longtime associate of Jeffrey Epstein’s, would provide that would go beyond what is already in the public record.`\
+https://nytimes.com/2025/07/24/us/politics/ghislaine-maxwell-epstein-interview.html
+
 **Red Light: The trade that changed everything. Plus: A slow offseason, by the numbers**\
 `Good morning to everyone who’s still following hockey in late July.`\
 https://nytimes.com/athletic/6512922/2025/07/24/the-trade-that-changed-everything-plus-a-slow-offseason-by-the-numbers/
