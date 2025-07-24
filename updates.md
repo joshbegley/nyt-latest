@@ -1,3 +1,7 @@
+**Paramount Settled With Trump. Its Shows Are Skewering Him.**\
+`“South Park,” Jon Stewart and Stephen Colbert have all been critical of their own company and President Trump this week.`\
+https://nytimes.com/2025/07/24/business/media/trump-south-park-colbert-stewart.html
+
 **Trump Administration Sues New York City Over Sanctuary Laws**\
 `Mayor Eric Adams, who was spared from a corruption investigation so he could help with the administration’s deportation program, is among the defendants.`\
 https://nytimes.com/2025/07/24/nyregion/trump-new-york-sanctuary-suit.html
