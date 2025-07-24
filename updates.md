@@ -1,3 +1,11 @@
+**Late Night Comedians Revel in the Latest Trump-Epstein Development**\
+`Stephen Colbert feigned surprise at reports that the president had already been told he was in the Epstein files: “But he said he hardly knew the guy!”`\
+https://nytimes.com/2025/07/24/arts/television/late-night-trump-epstein.html
+
+**Live Updates: Thailand Says One Civilian Killed as Tensions Rise on Border With Cambodia**\
+`Fighting erupted along the disputed border after a monthslong standoff, sending the relationship between the neighbors to its lowest point in decades.`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
+
 **Live Updates: Thailand Says One Civilian Killed as Tensions Rise on Border With Cambodia**\
 `A Thai civilian was killed after Cambodian troops opened fire along the border, the Thai government said.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
