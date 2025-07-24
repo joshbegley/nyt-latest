@@ -1,3 +1,15 @@
+**Here’s a look at Surin, the Thai province at the center of the conflict with Cambodia.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/heres-a-look-at-surin-the-thai-province-at-the-center-of-the-conflict-with-cambodia
+
+**What Nigeria’s quest for a 10th WAFCON title says about their winning identity**\
+`After beating South Africa, the Super Falcons are now one match away from their 10th WAFCON title and re-establishing their dominance`\
+https://nytimes.com/athletic/6512624/2025/07/24/nigeria-mission-x-wafcon-final/
+
+**Liverpool CEO Hogan: 'This is one of the biggest clubs in the world – we want to behave like one'**\
+`Hogan believes the show of ambition this transfer window underlines the desire of FSG to ensure Liverpool build on last season's title win`\
+https://nytimes.com/athletic/6510037/2025/07/24/liverpool-billy-hogan-interview-transfers/
+
 **A Reading List for ‘The Retrievals’ Season 2**\
 `Fascinating texts on the timeline of cesarean pain.`\
 https://nytimes.com/2025/07/24/podcasts/retrievals-season-2-reading-list-newsletter.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6509355/2025/07/24/pittsburgh-pirates-trade-deadlin
 **Blue Jays' fielding strength magnified by Yankees' defensive collapse**\
 `On nights like Wednesday — facing defensive performances like the Yankees' — the Jays' quiet strength became loud again.`\
 https://nytimes.com/athletic/6512393/2025/07/24/blue-jays-win-yankees-fielding/
-
-**Rosenthal: A plea to the Brewers' owner, a potential Dodgers trade chip and more MLB notes**\
-`Mark Attanasio's team has achieved the best record in the majors despite the owner's limited spending.  `\
-https://nytimes.com/athletic/6512322/2025/07/24/mlb-notes-trade-deadline-brewers-dodgers/
-
-**Astros rookie Cam Smith now takes the later bus to games — and it could shape his career**\
-`Smith has just eight hits in his past 57 at-bats, raising a question of whether his workload has caught up with him.`\
-https://nytimes.com/athletic/6512043/2025/07/24/astros-rookie-cam-smith/
-
-**Tracking Typhoon Co-may**\
-`See the likely path and wind arrival times for Co-may`\
-https://nytimes.com/interactive/2025/07/24/weather/eleven-map-path-tracker.html
 
