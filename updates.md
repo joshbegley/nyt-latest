@@ -1,3 +1,11 @@
+**The Pre-Dawn Cyclists Climbing Colombia’s Capital**\
+`In Bogotá, morning group rides, known as “trains,” are a popular way to seize the day.`\
+https://nytimes.com/2025/07/24/well/move/morning-cycling-bogota.html
+
+**I’m Sorry I Ignored You, Angel Hair Pasta**\
+`I’ll make it up to you with this beautiful recipe from Dan Pelosi, which combines your quick-cooking strands with juicy cherry tomatoes and garlic.`\
+https://nytimes.com/2025/07/24/dining/angel-hair-pasta-recipe-with-tomatoes-and-garlic.html
+
 **Max Verstappen says Christian Horner exit won’t influence his Red Bull future**\
 `Max Verstappen said the only thing that matters is that Red Bull work on making his car faster`\
 https://nytimes.com/athletic/6513200/2025/07/24/max-verstappen-red-bull-future-christian-horner/
