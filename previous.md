@@ -1,3 +1,7 @@
+**Seahawks training camp takeaways, Day 1: Injury updates on Uchenna Nwosu, Ken Walker**\
+`Nwosu's offseason surgery could sideline him into the season, but Walker is healthy and looking sharp as the Seahawks open camp.`\
+https://nytimes.com/athletic/6512056/2025/07/23/seahawks-uchenna-nwosu-kenneth-walker/
+
 **Indiana Fever's Sophie Cunningham fined for TikTok mocking WNBA refs**\
 `Cunningham is averaging 7.3 points and 4.1 rebounds in 19 games.`\
 https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-fined-wnba-refs/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/23/business/china-eu-trade-ukraine.html
 https://nytimes.com/2025/07/23/us/bryan-kohberger-idaho-student-murders-evidence.html
 
 **Vikings camp takeaways: J.J. McCarthy's first day, Josh Metellus' contract, more**\
-`The Vikings' quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
+`The Vikings quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
 https://nytimes.com/athletic/6511979/2025/07/23/vikings-camp-takeaways-j-j-mccarthy-josh-metellus/
 
 **Lamar Jackson focused on the now as Ravens enter season of high expectations**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6512021/2025/07/23/ravens-lamar-jackson-2025-traini
 **Reds interested in bringing back fan favorite Eugenio Suárez**\
 `According to sources, the Diamondbacks are interested in kicking the tires on promising starter Chase Petty.`\
 https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-deadline/
-
-**Prosecutor Fired by Trump Officials Says She Is Set to Take Over Office**\
-`Desiree Grace, in a social media post, said she was prepared to follow a judicial order and take over as U.S. attorney in New Jersey “in accordance with the law.”`\
-https://nytimes.com/2025/07/23/nyregion/desiree-grace-new-jersey-us-attorney.html
 

@@ -1,3 +1,11 @@
+**Seahawks training camp takeaways, Day 1: Injury updates on Uchenna Nwosu, Ken Walker**\
+`Nwosu's offseason surgery could sideline him into the season, but Walker is healthy and looking sharp as the Seahawks open camp.`\
+https://nytimes.com/athletic/6512056/2025/07/23/seahawks-uchenna-nwosu-kenneth-walker/
+
+**Vikings camp takeaways: J.J. McCarthy's first day, Josh Metellus' contract, more**\
+`The Vikings quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
+https://nytimes.com/athletic/6511979/2025/07/23/vikings-camp-takeaways-j-j-mccarthy-josh-metellus/
+
 **Indiana Fever's Sophie Cunningham fined for TikTok mocking WNBA refs**\
 `Cunningham is averaging 7.3 points and 4.1 rebounds in 19 games.`\
 https://nytimes.com/athletic/6512044/2025/07/23/indiana-fever-sophie-cunningham-fined-wnba-refs/
