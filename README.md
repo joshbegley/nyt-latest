@@ -1,3 +1,11 @@
+**At Redistricting Hearing, Texas Democrats Attack Silent Republicans**\
+`President Trump wants Texas Republicans to redraw the state’s House maps to nab as many as five seats now held by Democrats. But no new maps have been publicly proposed yet.`\
+https://nytimes.com/2025/07/24/us/politics/texas-redistricting.html
+
+**Gabbard’s Attacks on Obama Put the Attorney General in a Tough Spot**\
+`The director of national intelligence gave the Justice Department little warning before she demanded an investigation.`\
+https://nytimes.com/2025/07/24/us/politics/trump-obama-gabbard-bondi.html
+
 **What the path back to the NHL looks like for Carter Hart, other Hockey Canada defendants**\
 `The players are unrestricted free agents but will not be eligible to sign with a team until the NHL has conducted its own review.`\
 https://nytimes.com/athletic/6513608/2025/07/24/hockey-canada-trial-verdict-defendants-nhl-future/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010305185/trump-powell-fed-renovatio
 **Ken Paxton Claimed Three Houses as His Primary Residence, Records Show**\
 `The attorney general of Texas, who is challenging Senator John Cornyn, could have secured favorable mortgage rates, and may have violated the law if he knowingly falsified loan documents.`\
 https://nytimes.com/2025/07/24/us/politics/ken-paxton-mortgage.html
-
-**Justice Kagan Urges Supreme Court to Explain Itself in Emergency Decisions**\
-`In remarks before judges and lawyers in California, the justice said she believed the court had a responsibility to share its reasoning.`\
-https://nytimes.com/2025/07/24/us/justice-kagan-supreme-court-emergency-decisions.html
-
-**Spencer Jones hits 3 homers, Baseball America to re-add him to top-100 prospect list**\
-`The Yankees' center-field prospect has 13 home runs in 19 Triple-A games.`\
-https://nytimes.com/athletic/6514252/2025/07/24/yankees-prospect-spencer-jones-three-home-runs/
 
