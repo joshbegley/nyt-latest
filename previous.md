@@ -1,3 +1,7 @@
+**Ex-Liverpool forward Firmino joins Qatari club Al Sadd**\
+`Firmino joins from Saudi Arabian club Al Ahli, where he won last season's AFC Champions League Elite.`\
+https://nytimes.com/athletic/6125635/2025/07/24/roberto-firmino-transfer-qatar-al-sadd/
+
 **How to Host a Hamptons Gala for the Super-Rich**\
 `Facing federal funding cuts, the Parrish Art Museum is among the institutions increasingly relying on elaborate parties to lure the nation’s elites to pitch in.`\
 https://nytimes.com/2025/07/24/nyregion/parrish-museum-hamptons-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
 **The World Must See Gaza’s Starvation**\
 `Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
 https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
-
-**Live Updates: Thailand Says 9 Civilians Killed as Tensions Rise on Border With Cambodia**\
-`Fighting erupted along the disputed border after a monthslong standoff, sending the relationship between the neighbors to its lowest point in decades.`\
-https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
 

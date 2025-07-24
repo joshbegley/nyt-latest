@@ -1,3 +1,7 @@
+**Ex-Liverpool forward Firmino joins Qatari club Al Sadd**\
+`Firmino joins from Saudi Arabian club Al Ahli, where he won last season's AFC Champions League Elite.`\
+https://nytimes.com/athletic/6125635/2025/07/24/roberto-firmino-transfer-qatar-al-sadd/
+
 **Live Updates: Thailand Says 9 Civilians Killed as Tensions Rise on Border With Cambodia**\
 `Fighting erupted along the disputed border after a monthslong standoff, sending the relationship between the neighbors to its lowest point in decades.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
