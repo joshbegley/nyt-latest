@@ -1,3 +1,7 @@
+**Cowboys camp observations: CeeDee Lamb sounds motivated for big season**\
+`Lamb is eager for fans to see how the offense will work with George Pickens also catching passes from Dak Prescott. `\
+https://nytimes.com/athletic/6512058/2025/07/24/cowboys-training-camp-ceedee-lamb-george-pickens/
+
 **Trump’s Name in the Epstein Files, and Rare Protests in Ukraine**\
 `Plus, how many steps do you really need a day?`\
 https://nytimes.com/2025/07/24/podcasts/the-headlines/trump-epstein-files-ukraine-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502957/2025/07/24/mlb-top-prospects-2025-kevin-mcg
 **How Jags plan to help Travis Hunter become two-way NFL star: 'I've never seen him tired'**\
 `“He can handle (the workload)," QB Trevor Lawrence said. “That’s what’s special about him. He’s the best-conditioned guy I’ve ever seen."`\
 https://nytimes.com/athletic/6511345/2025/07/24/travis-hunter-jaguars-wide-receiver/
-
-**Baseball Hall of Fame tiers: Which active players are on their way to Cooperstown?**\
-`For the third year in a row, we divided the game's top players into tiers and discussed their Hall of Fame cases. `\
-https://nytimes.com/athletic/6511994/2025/07/24/baseball-hall-of-fame-active-mlb-players-cases/
 
