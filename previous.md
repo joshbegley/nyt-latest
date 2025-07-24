@@ -1,8 +1,20 @@
+**Shapiro Says Mamdani Fails to Condemn ‘Blatantly Antisemitic’ Rhetoric**\
+`The critique by Mr. Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Mr. Mamdani’s primary win in New York City has shaken Democratic leaders.`\
+https://nytimes.com/2025/07/24/us/politics/josh-shapiro-zohran-mamdani.html
+
+**Europe Nears U.S. Trade Deal, but Stands Ready to Retaliate**\
+`Nearly every member of the European Union supports a plan to hit back against President Trump’s tariffs if no agreement is reached.`\
+https://nytimes.com/2025/07/24/business/europe-nears-us-trade-deal.html
+
+**Jhon Arias to Wolves: Everything you need to know - TLDR**\
+`Wolverhampton Wanderers have completed the signing of Jhon Arias from Fluminense. Here we break down the deal`\
+https://nytimes.com/athletic/6512944/2025/07/24/jhon-arias-wolves-transfer-tldr/
+
 **Justin Fields carted off during Jets training camp with apparent leg injury**\
 `The team has not yet provided any injury update, though head coach Aaron Glenn will speak after practice.`\
 https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-training-camp/
 
-**Union Pacific in Talks to Acquire Norfolk Southern**\
+**Union Pacific in Talks to Merge With Norfolk Southern**\
 `The merger of two large rail companies would create the first coast-to-coast network, but the deal could reduce competition.`\
 https://nytimes.com/2025/07/24/business/union-pacific-in-talks-to-acquire-norfolk-southern.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6512938/2025/07/24/semi-finals-rest-days-euros/
 **Rishabh Pant: The Indian superstar who stared at death - and came back**\
 `Rishabh Pant is one of the most watchable cricketers in the game - as he has proved throughout the English summer`\
 https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
-
-**It’s Feminism vs. a Mother’s Instinct on a London Stage**\
-`“Inter Alia,” at the National Theater in London, is a successor to the award-winning “Prima Facie.” It brings familiar tropes, and melodrama.`\
-https://nytimes.com/2025/07/24/theater/inter-alia-national-theatre-london-review.html
-
-**Epstein’s Estate Includes Book Said to Have Note From Trump, a Lawyer Says**\
-`The lawyer, who represents victims of Jeffrey Epstein, said he believes the estate would turn the book over to the authorities if asked.`\
-https://nytimes.com/2025/07/24/us/politics/epstein-trump-birthday-book.html
-
-**Liverpool's Elliott says he will 'review his situation' amid World Cup hope**\
-`The Anfield club value Elliott at around £50million ($67.7m) and are not actively looking to sell him.`\
-https://nytimes.com/athletic/6513019/2025/07/24/harvey-elliott-liverpool-future-transfer/
 

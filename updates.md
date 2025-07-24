@@ -1,3 +1,19 @@
+**Shapiro Says Mamdani Fails to Condemn ‘Blatantly Antisemitic’ Rhetoric**\
+`The critique by Mr. Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Mr. Mamdani’s primary win in New York City has shaken Democratic leaders.`\
+https://nytimes.com/2025/07/24/us/politics/josh-shapiro-zohran-mamdani.html
+
+**Europe Nears U.S. Trade Deal, but Stands Ready to Retaliate**\
+`Nearly every member of the European Union supports a plan to hit back against President Trump’s tariffs if no agreement is reached.`\
+https://nytimes.com/2025/07/24/business/europe-nears-us-trade-deal.html
+
+**Jhon Arias to Wolves: Everything you need to know - TLDR**\
+`Wolverhampton Wanderers have completed the signing of Jhon Arias from Fluminense. Here we break down the deal`\
+https://nytimes.com/athletic/6512944/2025/07/24/jhon-arias-wolves-transfer-tldr/
+
+**Union Pacific in Talks to Merge With Norfolk Southern**\
+`The merger of two large rail companies would create the first coast-to-coast network, but the deal could reduce competition.`\
+https://nytimes.com/2025/07/24/business/union-pacific-in-talks-to-acquire-norfolk-southern.html
+
 **Justin Fields carted off during Jets training camp with apparent leg injury**\
 `The team has not yet provided any injury update, though head coach Aaron Glenn will speak after practice.`\
 https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-training-camp/
