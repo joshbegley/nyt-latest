@@ -1,3 +1,7 @@
+**South Korea Jockeys for a Deal With Trump at Least as Good as Japan’s**\
+`The agreement Japan secured has added pressure on South Korea to defuse the threat of high tariffs on its exports to the United States.`\
+https://nytimes.com/2025/07/24/business/south-korea-trump-tariffs.html
+
 **A Timeline of the Latest Conflict Between Cambodia and Thailand**\
 `The two nations have been locked in a decades-long conflict over their contested border. Tensions in disputed territories soured earlier this year.`\
 https://nytimes.com/2025/07/24/world/asia/a-timeline-of-the-latest-conflict-between-cambodia-and-thailand.html

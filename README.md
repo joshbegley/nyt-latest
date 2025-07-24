@@ -1,3 +1,11 @@
+**How to Host a Hamptons Gala for the Super-Rich**\
+`Facing federal funding cuts, the Parrish Art Museum is among the institutions increasingly relying on elaborate parties to lure the nation’s elites to pitch in.`\
+https://nytimes.com/2025/07/24/nyregion/parrish-museum-hamptons-gala.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/24/crosswords/spelling-bee-forum.html
+
 **South Korea Jockeys for a Deal With Trump at Least as Good as Japan’s**\
 `The agreement Japan secured has added pressure on South Korea to defuse the threat of high tariffs on its exports to the United States.`\
 https://nytimes.com/2025/07/24/business/south-korea-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
 **Live Updates: Thailand Says One Civilian Killed as Tensions Rise on Border With Cambodia**\
 `Fighting erupted along the disputed border after a monthslong standoff, sending the relationship between the neighbors to its lowest point in decades.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
-
-**Thursday Briefing: Your Russia Questions Answered**\
-`Plus, meet the other great Kurosawa.`\
-https://nytimes.com/2025/07/24/briefing/russia-ukraine-trump-gaza-ozzy-osbourne.html
-
-**Man City counterattacking problems need to be solved - with or without Rodri**\
-`City's players will return to training on Monday - it is clear what the No 1 priority should be before the new Premier League season`\
-https://nytimes.com/athletic/6510392/2025/07/24/manchester-city-guardiola-losing-same-way/
 
