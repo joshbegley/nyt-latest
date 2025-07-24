@@ -1,3 +1,11 @@
+**A Reading List for ‘The Retrievals’ Season 2**\
+`Fascinating texts on the timeline of cesarean pain.`\
+https://nytimes.com/2025/07/24/podcasts/retrievals-season-2-reading-list-newsletter.html
+
+**Rosenthal: Yankees' sloppy play has been hard to watch. What is Aaron Boone doing to stop it?**\
+`If the Yankees manager is holding players accountable behind the scenes, it hasn't been showing on the field lately.`\
+https://nytimes.com/athletic/6512433/2025/07/24/aaron-boone-new-york-yankees-manager/
+
 **Canadian Company Claims to Find Large Oil Reserves in Poland**\
 `The firm’s chief executive said that the field in the Baltic Sea might eventually produce up to 40,000 barrels of oil a day, making it the largest discovery in Northern Europe in more than a decade.`\
 https://nytimes.com/2025/07/24/business/poland-oil-europe.html

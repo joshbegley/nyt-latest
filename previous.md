@@ -1,3 +1,11 @@
+**A Reading List for ‘The Retrievals’ Season 2**\
+`Fascinating texts on the timeline of cesarean pain.`\
+https://nytimes.com/2025/07/24/podcasts/retrievals-season-2-reading-list-newsletter.html
+
+**Rosenthal: Yankees' sloppy play has been hard to watch. What is Aaron Boone doing to stop it?**\
+`If the Yankees manager is holding players accountable behind the scenes, it hasn't been showing on the field lately.`\
+https://nytimes.com/athletic/6512433/2025/07/24/aaron-boone-new-york-yankees-manager/
+
 **Canadian Company Claims to Find Large Oil Reserves in Poland**\
 `The firm’s chief executive said that the field in the Baltic Sea might eventually produce up to 40,000 barrels of oil a day, making it the largest discovery in Northern Europe in more than a decade.`\
 https://nytimes.com/2025/07/24/business/poland-oil-europe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6512043/2025/07/24/astros-rookie-cam-smith/
 **Tracking Typhoon Co-may**\
 `See the likely path and wind arrival times for Co-may`\
 https://nytimes.com/interactive/2025/07/24/weather/eleven-map-path-tracker.html
-
-**WSL and WSL2 fans able to drink alcohol in stands for 2025-26 season**\
-`Drinking alcohol in view of the pitch is not allowed in men's football but WSL Football's trial is changing that for the women's game.`\
-https://nytimes.com/athletic/6512763/2025/07/24/womens-super-league-alcohol-trial/
-
-**‘Shoshana’ Review: Love Amid Conflict**\
-`In Michael Winterbottom’s thriller set in Tel Aviv in the 1930s and ’40s, a Jewish woman is romantically involved with a British police officer.`\
-https://nytimes.com/2025/07/24/movies/shoshana-review.html
 
