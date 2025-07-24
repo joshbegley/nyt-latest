@@ -1,3 +1,11 @@
+**Former Premier League player Baldock died in drowning accident, inquest finds**\
+`Baldock, who was 31, was found dead at his home in Glyfada, southern Athens, on October 9, 2024. `\
+https://nytimes.com/athletic/6512680/2025/07/24/george-baldock-death-inquest/
+
+**The New York Times International Edition in Print for Friday, July 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/24/todays-new-york-times-international-edition
+
 **Passenger Jet With 49 Onboard Crashes in Russia’s Far East**\
 `The plane was traveling to the town of Tynda when it went off the radar, the regional governor said.`\
 https://nytimes.com/2025/07/24/world/europe/plane-crash-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/epstein-democrats-republicans.html
 **Two Americans Made Their Dreams Come True in Normandy, France**\
 `A couple from Colorado wondered for years if they’d be able to buy a home in France and make a new life for themselves. Last year, they saw where their $450,000 budget could take them.`\
 https://nytimes.com/interactive/2025/07/24/realestate/normandy-france-homes-for-sale.html
-
-**Democrats Have Few Tools to Counter G.O.P. Redistricting**\
-`A plan in Texas that could give Republicans at least five more House seats has Democrats fuming, and without many paths to fight it.`\
-https://nytimes.com/2025/07/24/us/politics/texas-redistricting-republicans-democrats.html
-
-**America Will Come to Regret Selling A.I. Chips to China**\
-`We should not allow American troops and intelligence officers to be targeted by A.I. trained on U.S. chips.`\
-https://nytimes.com/2025/07/24/opinion/ai-chips-nvidia-china.html
 

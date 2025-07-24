@@ -1,3 +1,7 @@
+**Villa make offer for Toulouse defender Canvot**\
+`The proposal for the 18-year-old has not been accepted by the French side but talks are continuing.`\
+https://nytimes.com/athletic/6512569/2025/07/24/aston-villa-make-offer-for-toulouse-defender-jaydee-canvot/
+
 **Passenger Jet With 49 Onboard Crashes in Russia’s Far East**\
 `The plane was traveling to the town of Tynda when it went off the radar, the regional governor said.`\
 https://nytimes.com/2025/07/24/world/europe/plane-crash-russia.html

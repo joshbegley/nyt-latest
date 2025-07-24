@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-fight.html
 `Tsitsipas and Ivanišević's partnership lasted just two tournaments, after Novak Djokovic's former coach criticized his new player's fitness.`\
 https://nytimes.com/athletic/6512646/2025/07/24/tennis-tsitsipas-coach-ivanisevic-apostolos/
 
-**Aston Villa make offer for Toulouse defender Jaydee Canvot**\
+**Villa make offer for Toulouse defender Canvot**\
 `The proposal for the 18-year-old has not been accepted by the French side but talks are continuing.`\
 https://nytimes.com/athletic/6512569/2025/07/24/aston-villa-make-offer-for-toulouse-defender-jaydee-canvot/
 
