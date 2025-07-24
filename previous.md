@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, July 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
+
+**The World Is Letting Gaza Starve**\
+`Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
+https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
+
 **Live Updates: Thai and Cambodian Troops Fire at Each Other as Relations Deteriorate**\
 `Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/trump-bank-federal-reserve.html
 **Football Architects: How the sport’s data pioneers convinced the world to take notice**\
 `How football data went from a niche sideline to become a fundamental part of recruitment`\
 https://nytimes.com/athletic/6445379/2025/07/24/football-architects-data-analysis-revolution/
-
-**'Suds' Gopaladesikan: Newcastle's Microsoft graduate who found value in Lookman and Hojlund**\
-`The new Newcastle is taking shape - Sudarshan Gopaladesikan arrives as technical director from Atalanta with an impressive CV`\
-https://nytimes.com/athletic/6510564/2025/07/24/suds-gopaladesikan-newcastle-technical-director-lookman-hojlund/
-
-**Should any of England's finishers be starters in the Euros final?**\
-`Sarina Wiegman's substitutes have made a huge impact at the Euros - but will she trust any of them to start Sunday's final?`\
-https://nytimes.com/athletic/6510669/2025/07/24/england-lionesses-finishers-starters/
 

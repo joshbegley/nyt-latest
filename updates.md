@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, July 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
+
+**The World Is Letting Gaza Starve**\
+`Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
+https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
+
 **Live Updates: Thai and Cambodian Troops Fire at Each Other as Relations Deteriorate**\
 `Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
