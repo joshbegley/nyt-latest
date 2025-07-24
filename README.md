@@ -1,3 +1,7 @@
+**Face to Face, Powell Told Trump He Was Wrong. About a Real Estate Project.**\
+`President Trump is used to world leaders bowing down to him, and to cabinet members fawning over him. Jerome H. Powell, the chair of the Federal Reserve, took a different approach.`\
+https://nytimes.com/2025/07/24/us/politics/trump-powell-real-estate.html
+
 **Cardinals LB J.J. Russell taken to hospital after frightening practice injury**\
 `Team said Russell was alert and had movement in all extremities.`\
 https://nytimes.com/athletic/6514427/2025/07/24/cardinals-jj-russell-injury-head-neck-hospital/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/trump-obama-gabbard-bondi.html
 **What the path back to the NHL looks like for Carter Hart, other Hockey Canada defendants**\
 `The players are unrestricted free agents but will not be eligible to sign with a team until the NHL has conducted its own review.`\
 https://nytimes.com/athletic/6513608/2025/07/24/hockey-canada-trial-verdict-defendants-nhl-future/
-
-**Supreme Court, for Now, Pauses Lower Court Decision Limiting Voting Rights Act**\
-`The justices paused a lower court order pending a decision on whether the Supreme Court will take up the case, a major challenge to the Voting Rights Act.`\
-https://nytimes.com/2025/07/24/us/supreme-court-voting-rights-act.html
 
