@@ -1,3 +1,15 @@
+**Michael Whatley, R.N.C. Chairman, to Run for Senate in North Carolina**\
+`His entry will pave the way for a marquee contest in 2026, with former Gov. Roy Cooper planning to seek the Democratic nomination.`\
+https://nytimes.com/2025/07/24/us/politics/michael-whatley-north-carolina-senate.html
+
+**Fox evolved its approach to women's soccer with Euros broadcast, but are the changes too late?**\
+`Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership`\
+https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
+
+**Chris Paul's return to Los Angeles is all about fit and future, not past**\
+`"Everyone's entitled in terms of the judgments they want to make on the group," says Clippers GM Lawrence Frank.`\
+https://nytimes.com/athletic/6510019/2025/07/24/chris-paul-clippers-return/
+
 **‘Il Dono’ Review: Slow Living**\
 `A new restoration of a 2003 Italian docudrama by Michelangelo Frammartino captures the beauty and tragedy of rural life in Southern Italy.`\
 https://nytimes.com/2025/07/24/movies/il-dono-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6495282/2025/07/24/alexander-isak-newcastle-transfe
 **Working While Honeymooning**\
 `Or is it honeymooning while working? Job flexibility can be a blessing  and a curse.`\
 https://nytimes.com/2025/07/24/style/working-while-honeymooning.html
-
-**Why the Angels need to embrace role as sellers ahead of trade deadline**\
-`The Angels have a 2.8 percent chance to make the playoffs and are 4 1/2 games out with six teams ahead of them for the final wild-card spot.`\
-https://nytimes.com/athletic/6511991/2025/07/24/angels-trade-deadline-sellers-role/
-
-**Lazerus mailbag, Part I: Perils of tanking, costs of fandom and intrigue of Nick Lardis**\
-`Plus: What needs to go right for the Blackhawks to be in the playoff mix next season? Which long-shot prospect could get time in the NHL?`\
-https://nytimes.com/athletic/6510843/2025/07/24/nhl-blackhawks-tanking-fandom-nick-lardis/
-
-**Bruins 2028-29 roster projection: How does the rebuild turn out?**\
-`James Hagens with David Pastrnak on the top line? Dean Letourneau at No. 2 RW? Assessing future lineup strengths and holes.`\
-https://nytimes.com/athletic/6509254/2025/07/24/bruins-roster-projection-2028-29-rebuild/
 
