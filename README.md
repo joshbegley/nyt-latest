@@ -1,3 +1,15 @@
+**Justice Dept. Expected to Interview Epstein Associate Maxwell in Florida**\
+`It is unclear what information Ghislaine Maxwell, a longtime associate of Jeffrey Epstein’s, would provide that would go beyond what is already in the public record.`\
+https://nytimes.com/2025/07/24/us/politics/ghislaine-maxwell-epstein-interview.html
+
+**The border clashes come as a political crisis rocks Thailand.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/thailand-political-crisis
+
+**Top 60 MLB prospects: Kevin McGonigle, Max Clark top newest rankings**\
+`Check out where members of the most recent draft class rank in relation to players who have already put in some time in the minors.`\
+https://nytimes.com/athletic/6502957/2025/07/24/mlb-top-prospects-2025-kevin-mcgonigle/
+
 **Children Burned by Fighter Crash in Bangladesh Die Days Later**\
 `Many have died in the days since a plane crashed into a school in Bangladesh. For the survivors, there is a critical window for lifesaving treatment.`\
 https://nytimes.com/2025/07/24/world/asia/bangladesh-plane-crash-school-children-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/24/travel/southwest-airlines-lawsuit-racism.html
 **Sprawling Wildfires Kill 2 and Force Evacuations in Cyprus Amid Stifling Heat**\
 `The fire had burned more than 24,000 acres in Cyprus, where officials had warned of fire danger as temperatures rose above 100 degrees.`\
 https://nytimes.com/2025/07/24/world/europe/cyprus-wildfires-heat.html
-
-**Shapiro Says Mamdani Fails to Condemn ‘Blatantly Antisemitic’ Rhetoric**\
-`The critique by Josh Shapiro, the governor of Pennsylvania and a prominent Jewish elected official, shows how deeply Zohran Mamdani’s primary win in New York City has shaken Democratic leaders.`\
-https://nytimes.com/2025/07/24/us/politics/josh-shapiro-zohran-mamdani.html
-
-**Europe Nears U.S. Trade Deal, but Stands Ready to Retaliate**\
-`Nearly every member of the European Union supports a plan to hit back against President Trump’s tariffs if no agreement is reached.`\
-https://nytimes.com/2025/07/24/business/europe-nears-us-trade-deal.html
-
-**Jhon Arias to Wolves: Everything you need to know - TLDR**\
-`Wolverhampton Wanderers have completed the signing of Jhon Arias from Fluminense. Here we break down the deal`\
-https://nytimes.com/athletic/6512944/2025/07/24/jhon-arias-wolves-transfer-tldr/
 

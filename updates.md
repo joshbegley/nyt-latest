@@ -1,3 +1,7 @@
+**Children Burned by Fighter Crash in Bangladesh Die Days Later**\
+`Many have died in the days since a plane crashed into a school in Bangladesh. For the survivors, there is a critical window for lifesaving treatment.`\
+https://nytimes.com/2025/07/24/world/asia/bangladesh-plane-crash-school-children-deaths.html
+
 **Map: 5.6-Magnitude Earthquake Strikes Indonesia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/07/24/world/asia/earthquake-indonesia.html
