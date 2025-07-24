@@ -1,3 +1,7 @@
+**Rangers make offer for Palace winger Rak-Sakyi**\
+`The approach from the Scottish Premiership club was for an initial loan with a potential obligation to buy worth up to £10million.`\
+https://nytimes.com/athletic/6512614/2025/07/24/rangers-rak-sakyi-transfer-crystal-palace/
+
 **Bonmati is showing why Spain were so keen to have her back after meningitis scare**\
 `The midfielder was in hospital less than a week before the tournament began but she is back to her best when it matters most`\
 https://nytimes.com/athletic/6512580/2025/07/24/bonmati-spain-germany-euros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512646/2025/07/24/tennis-tsitsipas-coach-ivanisevi
 **Villa make offer for Toulouse defender Canvot**\
 `The proposal for the 18-year-old has not been accepted by the French side but talks are continuing.`\
 https://nytimes.com/athletic/6512569/2025/07/24/aston-villa-make-offer-for-toulouse-defender-jaydee-canvot/
-
-**How to watch Aces at Fever: Clark shelved, Wilson surging for 'Stranger Things' game**\
-`The Indiana Fever will once again be without Caitlin Clark on Thursday, but they will debut their "Stranger Things" alternate uniforms.`\
-https://nytimes.com/athletic/6512304/2025/07/24/aces-fever-wnba-caitlin-clark-injury-update-stranger-things-how-to-watch/
 

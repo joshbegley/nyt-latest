@@ -1,3 +1,7 @@
+**Rangers make offer for Palace winger Rak-Sakyi**\
+`The approach from the Scottish Premiership club was for an initial loan with a potential obligation to buy worth up to £10million.`\
+https://nytimes.com/athletic/6512614/2025/07/24/rangers-rak-sakyi-transfer-crystal-palace/
+
 **Bonmati is showing why Spain were so keen to have her back after meningitis scare**\
 `The midfielder was in hospital less than a week before the tournament began but she is back to her best when it matters most`\
 https://nytimes.com/athletic/6512580/2025/07/24/bonmati-spain-germany-euros/
