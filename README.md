@@ -1,3 +1,7 @@
+**Map: 5.6-Magnitude Earthquake Strikes Indonesia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/24/world/asia/earthquake-indonesia.html
+
 **Yes, You Can Own a Home**\
 `Many dream of buying a home, but the obstacles can seem overwhelming. Here’s how one owner beat the odds — and how you can, too.`\
 https://nytimes.com/paidpost/progressive-insurance/yes-you-can-own-a-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512944/2025/07/24/jhon-arias-wolves-transfer-tldr/
 **Justin Fields carted off during Jets training camp with apparent leg injury**\
 `The team has not yet provided any injury update, though head coach Aaron Glenn will speak after practice.`\
 https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-training-camp/
-
-**Union Pacific in Talks to Merge With Norfolk Southern**\
-`The merger of two large rail companies would create the first coast-to-coast network, but the deal could reduce competition.`\
-https://nytimes.com/2025/07/24/business/union-pacific-in-talks-to-acquire-norfolk-southern.html
 
