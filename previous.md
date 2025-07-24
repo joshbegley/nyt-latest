@@ -1,3 +1,7 @@
+**Red Light: The trade that changed everything. Plus: A slow offseason, by the numbers**\
+`Good morning to everyone who’s still following hockey in late July.`\
+https://nytimes.com/athletic/6512922/2025/07/24/the-trade-that-changed-everything-plus-a-slow-offseason-by-the-numbers/
+
 **Juventus' Luiz to face disciplinary action after not reporting to training**\
 `Luiz started only three Serie A games in 2024-25, having joined on a five-year deal from Aston Villa last summer.`\
 https://nytimes.com/athletic/6077576/2025/07/24/douglas-luiz-transfer-juventus-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/ghislaine-maxwell-epstein-interview.h
 **The border clashes come as a political crisis rocks Thailand.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash/thailand-political-crisis
-
-**Top 60 MLB prospects: Kevin McGonigle, Max Clark top newest rankings**\
-`Check out where members of the most recent draft class rank in relation to players who have already put in some time in the minors.`\
-https://nytimes.com/athletic/6502957/2025/07/24/mlb-top-prospects-2025-kevin-mcgonigle/
 

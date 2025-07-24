@@ -1,3 +1,7 @@
+**Red Light: The trade that changed everything. Plus: A slow offseason, by the numbers**\
+`Good morning to everyone who’s still following hockey in late July.`\
+https://nytimes.com/athletic/6512922/2025/07/24/the-trade-that-changed-everything-plus-a-slow-offseason-by-the-numbers/
+
 **Juventus' Luiz to face disciplinary action after not reporting to training**\
 `Luiz started only three Serie A games in 2024-25, having joined on a five-year deal from Aston Villa last summer.`\
 https://nytimes.com/athletic/6077576/2025/07/24/douglas-luiz-transfer-juventus-training/
