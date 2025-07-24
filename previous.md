@@ -14,8 +14,8 @@ https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
 `Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
 https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
 
-**Live Updates: Thai and Cambodian Troops Fire at Each Other as Relations Deteriorate**\
-`Soldiers traded fire over a disputed border after weeks of diplomatic tension between the Southeast Asian nations.`\
+**Live Updates: Thailand Says One Civilian Killed as Tensions Rise on Border With Cambodia**\
+`A Thai civilian was killed after Cambodian troops opened fire along the border, the Thai government said.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
 
 **Thursday Briefing: Your Russia Questions Answered**\

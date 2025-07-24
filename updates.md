@@ -1,3 +1,7 @@
+**Live Updates: Thailand Says One Civilian Killed as Tensions Rise on Border With Cambodia**\
+`A Thai civilian was killed after Cambodian troops opened fire along the border, the Thai government said.`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
+
 **Word of the Day: gobble**\
 `This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/24/learning/word-of-the-day-gobble.html
