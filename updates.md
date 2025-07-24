@@ -1,3 +1,7 @@
+**The World Must See Gaza’s Starvation**\
+`Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
+https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
+
 **Mine Collapse Traps 3 Workers in British Columbia**\
 `A rescue operation is underway at the Red Chris gold and copper mine to reach the trapped miners, who were safe in a sealed chamber underground, according to officials.`\
 https://nytimes.com/2025/07/24/us/canada-miners-trapped.html

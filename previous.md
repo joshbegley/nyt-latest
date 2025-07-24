@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/24/us/canada-miners-trapped.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
 
-**The World Is Letting Gaza Starve**\
+**The World Must See Gaza’s Starvation**\
 `Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
 https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
 
