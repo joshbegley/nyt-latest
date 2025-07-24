@@ -1,3 +1,7 @@
+**Spencer Jones hits 3 homers, Baseball America to re-add him to top-100 prospect list**\
+`The Yankees' center-field prospect has 13 home runs in 19 Triple-A games.`\
+https://nytimes.com/athletic/6514252/2025/07/24/yankees-prospect-spencer-jones-three-home-runs/
+
 **Packers training camp: Matthew Golden's new nickname and 8 more observations**\
 `Packers special teams coordinator Rich Bisaccia gave the rookie first-rounder homework to understand his new nickname.`\
 https://nytimes.com/athletic/6514162/2025/07/24/packers-training-camp-matthew-golden/

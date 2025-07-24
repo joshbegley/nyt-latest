@@ -1,3 +1,7 @@
+**Spencer Jones hits 3 homers, Baseball America to re-add him to top-100 prospect list**\
+`The Yankees' center-field prospect has 13 home runs in 19 Triple-A games.`\
+https://nytimes.com/athletic/6514252/2025/07/24/yankees-prospect-spencer-jones-three-home-runs/
+
 **Packers training camp: Matthew Golden's new nickname and 8 more observations**\
 `Packers special teams coordinator Rich Bisaccia gave the rookie first-rounder homework to understand his new nickname.`\
 https://nytimes.com/athletic/6514162/2025/07/24/packers-training-camp-matthew-golden/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/idaho-murders-kohberger-prosecutor-bill-thomps
 **Anthony Richardson's early woes continued on Day 2 of training camp**\
 `Left tackle Bernhard Raimann said Thursday that he and the Colts “aren’t on the same page" financially regarding a contract extension. `\
 https://nytimes.com/athletic/6513997/2025/07/24/colts-anthony-richardson-training-camp-bernhard-raimann/
-
-**A Little Leaguer Was Suspended for a Bat Flip. So He Went to Court.**\
-`A New Jersey judge was asked to overturn an umpire’s interpretation of the “horseplay” rule. A chance to play in the state championship hung in the balance.`\
-https://nytimes.com/2025/07/24/nyregion/little-league-bat-flip-suspension.html
 
