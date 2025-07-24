@@ -1,5 +1,17 @@
-**Lewis Hamilton: "I refuse" to be another failed Ferrari F1 world champion**\
-`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship `\
+**Justin Fields carted off during Jets training camp with apparent leg injury**\
+`The team has not yet provided any injury update, though head coach Aaron Glenn will speak after practice.`\
+https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-training-camp/
+
+**Union Pacific in Talks to Acquire Norfolk Southern**\
+`The merger of two large rail companies would create the first coast-to-coast network, but the deal could reduce competition.`\
+https://nytimes.com/2025/07/24/business/union-pacific-in-talks-to-acquire-norfolk-southern.html
+
+**Live Updates: Trump to Visit Federal Reserve in New Effort to Divert Attention From Epstein**\
+`The administration has led a pressure campaign against Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
+https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell
+
+**Lewis Hamilton: 'I refuse' to be another failed Ferrari F1 world champion**\
+`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship.`\
 https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
 
 **The Relationship Advice Couples Counselors Swear By**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/epstein-trump-birthday-book.html
 **Liverpool's Elliott says he will 'review his situation' amid World Cup hope**\
 `The Anfield club value Elliott at around £50million ($67.7m) and are not actively looking to sell him.`\
 https://nytimes.com/athletic/6513019/2025/07/24/harvey-elliott-liverpool-future-transfer/
-
-**The Anticorruption Watchdogs at the Center of Protests Against Zelensky**\
-`Anger has boiled over after attempts by Ukraine’s president, Volodymyr Zelensky, to overhaul agencies investigating claims that insiders skimmed military spending.`\
-https://nytimes.com/2025/07/24/world/europe/ukraine-protests-corruption-zelensky-military-spending.html
-
-**Michael Whatley, R.N.C. Chairman, to Run for Senate in North Carolina**\
-`His entry will pave the way for a marquee contest in 2026, with former Gov. Roy Cooper planning to seek the Democratic nomination.`\
-https://nytimes.com/2025/07/24/us/politics/michael-whatley-north-carolina-senate.html
-
-**Fox evolved its approach to women's soccer with Euros broadcast, but are the changes too late?**\
-`Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership.`\
-https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
 

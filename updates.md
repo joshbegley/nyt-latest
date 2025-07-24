@@ -1,3 +1,19 @@
+**Justin Fields carted off during Jets training camp with apparent leg injury**\
+`The team has not yet provided any injury update, though head coach Aaron Glenn will speak after practice.`\
+https://nytimes.com/athletic/6513164/2025/07/24/jets-qb-justin-fields-injury-training-camp/
+
+**Union Pacific in Talks to Acquire Norfolk Southern**\
+`The merger of two large rail companies would create the first coast-to-coast network, but the deal could reduce competition.`\
+https://nytimes.com/2025/07/24/business/union-pacific-in-talks-to-acquire-norfolk-southern.html
+
+**Live Updates: Trump to Visit Federal Reserve in New Effort to Divert Attention From Epstein**\
+`The administration has led a pressure campaign against Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
+https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell
+
+**Lewis Hamilton: 'I refuse' to be another failed Ferrari F1 world champion**\
+`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship.`\
+https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
+
 **Lewis Hamilton: "I refuse" to be another failed Ferrari F1 world champion**\
 `Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship `\
 https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
