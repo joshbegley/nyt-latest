@@ -1,3 +1,11 @@
+**Ancient Temples Have Long Been a Flashpoint Between Cambodia and Thailand**\
+`Both countries lay claim to centuries-old worship sites perched on the mountains that divide the two nations, sometimes stoking nationalistic fervor.`\
+https://nytimes.com/2025/07/24/world/asia/thailand-cambodia-border-conflict-ancient-temples.html
+
+**Johnson completes purchase of Eagle Football's Palace share**\
+`The 78-year-old has owned the NFL's New York Jets for the past 25 years.`\
+https://nytimes.com/athletic/6489878/2025/07/24/crystal-palace-woody-johnson-approved/
+
 **A Little League player was suspended for a bat flip. His family has taken legal action**\
 `The winner of the state title game advances to regionals, where they could move on to the Little League World Series.`\
 https://nytimes.com/athletic/6513120/2025/07/24/little-league-player-suspension-bat-flip/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513523/2025/07/24/hulk-hogan-dead-cardiac-arrest-w
 **Tony Evers Declines to Run for 3rd Term as Wisconsin Governor**\
 `The decision is likely to invite a wide-open race for the Democratic nomination in a battleground state the party hopes to control.`\
 https://nytimes.com/2025/07/24/us/politics/tony-evers-wisconsin-governor.html
-
-**Summer Veggie Bingo!**\
-`For the next four weeks, I’m going to send you a bingo card so we can all have a bit more fun with the season’s best produce. First up: Corn.`\
-https://nytimes.com/2025/07/24/dining/vegetarian-corn-recipes-for-playing-corn-bingo.html
-
-**Christie’s Debuts Crypto Real Estate Division**\
-`The brokerage, which has already handled transactions with digital payment in lieu of cash, is the first major U.S. firm to create a dedicated team for such deals.`\
-https://nytimes.com/2025/07/24/realestate/crypto-real-estate-christies.html
 
