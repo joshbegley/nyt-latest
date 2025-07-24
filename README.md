@@ -1,3 +1,11 @@
+**Georgia football commit Chace Calicut charged in Texas drive-by shooting**\
+`Calicut's co-defendent, accused of being who fired at the victims, died over the weekend in a shooting at a Houston-area pool party.`\
+https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-shooting-arrest/
+
+**Why Does Anyone Think Trump Will Uphold His End of a Bargain With Columbia?**\
+`When the government is often behaving unchecked by the law, the idea of a binding contract is a fantasy.`\
+https://nytimes.com/2025/07/23/opinion/trump-columbia-deal-professor.html
+
 **Chargers training camp report, Day 6: Movement in the WR competition**\
 `Rookie KeAndre Lambert-Smith made a couple of the plays of the day and is impressing the Chargers' coaching staff. `\
 https://nytimes.com/athletic/6512140/2025/07/23/chargers-training-camp-keandre-lambert-smith/
@@ -29,8 +37,4 @@ https://nytimes.com/2025/07/23/us/bryan-kohberger-idaho-student-murders-evidence
 **Vikings camp takeaways: J.J. McCarthy's first day, Josh Metellus' contract, more**\
 `The Vikings quarterback made some impressive plays at camp Wednesday, but the more notable aspect of his day was his efficiency.`\
 https://nytimes.com/athletic/6511979/2025/07/23/vikings-camp-takeaways-j-j-mccarthy-josh-metellus/
-
-**Lamar Jackson focused on the now as Ravens enter season of high expectations**\
-`“Whatever it takes to get my team to that ticket, to that big dance, we have to take care of now,” Jackson said as Baltimore opens camp. `\
-https://nytimes.com/athletic/6512021/2025/07/23/ravens-lamar-jackson-2025-training-camp/
 
