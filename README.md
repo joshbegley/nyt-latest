@@ -1,5 +1,9 @@
+**‘Il Dono’ Review: Slow Living**\
+`A new restoration of a 2003 Italian docudrama by Michelangelo Frammartino captures the beauty and tragedy of rural life in Southern Italy.`\
+https://nytimes.com/2025/07/24/movies/il-dono-review.html
+
 **E.C.B. Pauses Rate-Cutting Campaign, as Trade Disputes Cloud Outlook**\
-`After eight consecutive cuts, policymakers held interest rates steady as inflation hit their target.`\
+`After eight consecutive cuts, policymakers held interest rates steady, noting that “the environment remains exceptionally uncertain.”`\
 https://nytimes.com/2025/07/24/business/ecb-interest-rate.html
 
 **What to know about WNBA CBA negotiations: Revenue sharing, salary increases and scheduling**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510843/2025/07/24/nhl-blackhawks-tanking-fandom-ni
 **Bruins 2028-29 roster projection: How does the rebuild turn out?**\
 `James Hagens with David Pastrnak on the top line? Dean Letourneau at No. 2 RW? Assessing future lineup strengths and holes.`\
 https://nytimes.com/athletic/6509254/2025/07/24/bruins-roster-projection-2028-29-rebuild/
-
-**For 1st Time, Fires Are Biggest Threat to Forests’ Climate-Fighting Superpower**\
-`Forests play a major role pulling planet-warming carbon dioxide out of the atmosphere. As the world heats up, some forests are becoming emitters in their own right.`\
-https://nytimes.com/2025/07/24/climate/wildfires-forest-carbon-sequestration.html
 
