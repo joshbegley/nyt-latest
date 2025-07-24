@@ -1,3 +1,7 @@
+**Lamar Jackson focused on the now as Ravens enter season of high expectations**\
+`OWINGS MILLS, Md.`\
+https://nytimes.com/athletic/6512021/2025/07/23/ravens-lamar-jackson-2025-training-camp/
+
 **Reds interested in bringing back fan favorite Eugenio Suárez**\
 `According to sources, the Diamondbacks are interested in kicking the tires on promising starter Chase Petty.`\
 https://nytimes.com/athletic/6512017/2025/07/23/reds-eugenio-suarez-mlb-trade-deadline/
