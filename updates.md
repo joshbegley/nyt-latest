@@ -1,3 +1,7 @@
+**Beat at Chess**\
+`Ginny Too’s debut puzzle takes flight.`\
+https://nytimes.com/2025/07/23/crosswords/daily-puzzle-2025-07-24.html
+
 **USC freshman Alijah Arenas expected to miss 6-8 months with knee injury**\
 `McDonald's All-American was expected to be a centerpiece of Eric Musselman's 2025-26 team.`\
 https://nytimes.com/athletic/6512162/2025/07/23/usc-alijah-arenas-knee-injury/
