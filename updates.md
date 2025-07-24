@@ -1,3 +1,7 @@
+**Live Updates: Thailand Says 9 Civilians Killed as Tensions Rise on Border With Cambodia**\
+`Fighting erupted along the disputed border after a monthslong standoff, sending the relationship between the neighbors to its lowest point in decades.`\
+https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
+
 **How to Host a Hamptons Gala for the Super-Rich**\
 `Facing federal funding cuts, the Parrish Art Museum is among the institutions increasingly relying on elaborate parties to lure the nation’s elites to pitch in.`\
 https://nytimes.com/2025/07/24/nyregion/parrish-museum-hamptons-gala.html
