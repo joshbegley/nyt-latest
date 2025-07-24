@@ -1,3 +1,7 @@
+**Word of the Day: gobble**\
+`This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/24/learning/word-of-the-day-gobble.html
+
 **Mine Collapse Traps 3 Workers in British Columbia**\
 `A rescue operation is underway at the Red Chris gold and copper mine to reach the trapped miners, who were safe in a sealed chamber underground, according to officials.`\
 https://nytimes.com/2025/07/24/us/canada-miners-trapped.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5350309/2025/07/24/manchester-united-onana-martinez
 **The kids are alright: How the profile of Premier League transfers has changed**\
 `Analysing English top-flight sides’ recruitment focus - from the age and position of players they target, and when they buy and sell`\
 https://nytimes.com/athletic/6471174/2025/07/24/premier-league-transfer-age-profile-analysis/
-
-**Trump to Visit Federal Reserve as Pressure Campaign Intensifies**\
-`The administration has repeatedly criticized Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
-https://nytimes.com/2025/07/24/us/politics/trump-bank-federal-reserve.html
 

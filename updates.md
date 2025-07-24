@@ -1,3 +1,7 @@
+**Word of the Day: gobble**\
+`This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/24/learning/word-of-the-day-gobble.html
+
 **The World Must See Gaza’s Starvation**\
 `Today, many children in Gaza are so hungry they may never recover, and our supplies are critically low.`\
 https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
