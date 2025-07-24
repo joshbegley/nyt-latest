@@ -26,8 +26,8 @@ https://nytimes.com/2025/07/24/technology/intel-layoffs-25000.html
 `Rookie cornerback Maxwell Hairston continues to have ups and downs, and two offensive tackle options battle for the top backup role.`\
 https://nytimes.com/athletic/6514142/2025/07/24/bills-camp-observations-david-edwards-joey-bosa/
 
-**F.C.C. Approves Skydance’s Merger With Paramount**\
-`The agency’s blessing was one of the last hurdles for the deal, which was being subjected to close scrutiny by the Trump administration.`\
+**F.C.C. Approves Skydance’s $8 Billion Merger With Paramount**\
+`The deal, which came under intense scrutiny by the Trump administration, was hailed by the F.C.C. chief, who welcomed “significant changes” at CBS, a unit of Paramount.`\
 https://nytimes.com/2025/07/24/business/media/fcc-skydance-merger-paramount.html
 
 **Powell Corrects Trump on Cost of Fed Renovations**\

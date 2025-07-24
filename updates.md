@@ -1,3 +1,7 @@
+**F.C.C. Approves Skydance’s $8 Billion Merger With Paramount**\
+`The deal, which came under intense scrutiny by the Trump administration, was hailed by the F.C.C. chief, who welcomed “significant changes” at CBS, a unit of Paramount.`\
+https://nytimes.com/2025/07/24/business/media/fcc-skydance-merger-paramount.html
+
 **At Redistricting Hearing, Texas Democrats Attack Silent Republicans**\
 `President Trump wants Texas Republicans to redraw the state’s House maps to nab as many as five seats now held by Democrats. But no new maps have been publicly proposed yet.`\
 https://nytimes.com/2025/07/24/us/politics/texas-redistricting.html
