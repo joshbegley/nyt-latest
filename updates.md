@@ -1,3 +1,11 @@
+**‘Il Dono’ Review: Slow Living**\
+`A new restoration of a 2003 Italian docudrama by Michelangelo Frammartino captures the beauty and tragedy of rural life in Southern Italy.`\
+https://nytimes.com/2025/07/24/movies/il-dono-review.html
+
+**E.C.B. Pauses Rate-Cutting Campaign, as Trade Disputes Cloud Outlook**\
+`After eight consecutive cuts, policymakers held interest rates steady, noting that “the environment remains exceptionally uncertain.”`\
+https://nytimes.com/2025/07/24/business/ecb-interest-rate.html
+
 **E.C.B. Pauses Rate-Cutting Campaign, as Trade Disputes Cloud Outlook**\
 `After eight consecutive cuts, policymakers held interest rates steady as inflation hit their target.`\
 https://nytimes.com/2025/07/24/business/ecb-interest-rate.html
