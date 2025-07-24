@@ -1,3 +1,7 @@
+**Brighton's Cashin to join Birmingham on loan despite Webster knee injury**\
+`The injury suffered by Webster has not stopped the club from pressing on with the loan move for centre-back Cashin.`\
+https://nytimes.com/athletic/6513115/2025/07/24/brighton-transfers-cashin-birmingham/
+
 **Justice Dept. Expected to Interview Epstein Associate Maxwell in Florida**\
 `It is unclear what information Ghislaine Maxwell, a longtime associate of Jeffrey Epstein’s, would provide that would go beyond what is already in the public record.`\
 https://nytimes.com/2025/07/24/us/politics/ghislaine-maxwell-epstein-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/well/eat/health-effects-bread-europe-united-state
 **Southwest Passenger Says She Was Ejected From Flight Based on Her Race**\
 `On a flight from Chicago to Washington, D.C., last November, the passenger said she was the only Black person seated in an exit row when she was asked to leave.`\
 https://nytimes.com/2025/07/24/travel/southwest-airlines-lawsuit-racism.html
-
-**Sprawling Wildfires Kill 2 and Force Evacuations in Cyprus Amid Stifling Heat**\
-`The fire had burned more than 24,000 acres in Cyprus, where officials had warned of fire danger as temperatures rose above 100 degrees.`\
-https://nytimes.com/2025/07/24/world/europe/cyprus-wildfires-heat.html
 
