@@ -1,3 +1,7 @@
+**Newcastle sign winger Park Seung-soo,18**\
+`Primarily featuring on the left-wing, Park made 27 appearances for the K League 2 club, scoring once and providing three assists.`\
+https://nytimes.com/athletic/6450346/2025/07/24/newcastle-transfers-park-south-korea/
+
 **Jesús Luzardo's chaotic first season with Phillies unravels even further**\
 `Luzardo has occupied extremes from month to month, start to start, and even within games — like Wednesday night.`\
 https://nytimes.com/athletic/6512422/2025/07/24/jesus-luzardos-chaotic-season-phillies-unravels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512151/2025/07/24/mlb-trade-deadline-pitching-alca
 **Dillon Brooks will give the rebuilding Suns toughness, energy — and perhaps an edge**\
 `Throughout its history, Phoenix has had a few players who lived to get inside an opponent's head. But maybe nothing like this.`\
 https://nytimes.com/athletic/6503966/2025/07/24/dillon-brooks-phoenix-suns-toughness-energy/
-
-**Top 60 MLB prospects: Kevin McGonigle, Max Clark top newest rankings**\
-`Check out where members of the most recent draft class rank in relation to players who have already put in some time in the minors.`\
-https://nytimes.com/athletic/6502957/2025/07/24/mlb-top-prospects-2025-kevin-mcgonigle/
 
