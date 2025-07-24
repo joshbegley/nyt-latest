@@ -1,3 +1,11 @@
+**Epstein’s Estate Includes Book Said to Have Note From Trump, a Lawyer Says**\
+`The lawyer, who represents victims of Jeffrey Epstein, said he believes the estate would turn the book over to the authorities if asked.`\
+https://nytimes.com/2025/07/24/us/politics/epstein-trump-birthday-book.html
+
+**Liverpool's Elliott says he will 'review his situation' amid World Cup hope**\
+`The Anfield club value Elliott at around £50million ($67.7m) and are not actively looking to sell him.`\
+https://nytimes.com/athletic/6513019/2025/07/24/harvey-elliott-liverpool-future-transfer/
+
 **The Anticorruption Watchdogs at the Center of Protests Against Zelensky**\
 `Anger has boiled over after attempts by Ukraine’s president, Volodymyr Zelensky, to overhaul agencies investigating claims that insiders skimmed military spending.`\
 https://nytimes.com/2025/07/24/world/europe/ukraine-protests-corruption-zelensky-military-spending.html
