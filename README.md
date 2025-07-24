@@ -1,3 +1,7 @@
+**Late Night Comedians Revel in the Latest Trump-Epstein Development**\
+`Stephen Colbert feigned surprise at reports that the president had already been told he was in the Epstein files: “But he said he hardly knew the guy!”`\
+https://nytimes.com/2025/07/24/arts/television/late-night-trump-epstein.html
+
 **Word of the Day: gobble**\
 `This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/24/learning/word-of-the-day-gobble.html
@@ -15,7 +19,7 @@ https://nytimes.com/issue/todayspaper/2025/07/24/todays-new-york-times
 https://nytimes.com/2025/07/24/opinion/gaza-hunger-children-rescue.html
 
 **Live Updates: Thailand Says One Civilian Killed as Tensions Rise on Border With Cambodia**\
-`A Thai civilian was killed after Cambodian troops opened fire along the border, the Thai government said.`\
+`Fighting erupted along the disputed border after a monthslong standoff, sending the relationship between the neighbors to its lowest point in decades.`\
 https://nytimes.com/live/2025/07/24/world/thailand-cambodia-border-clash
 
 **Thursday Briefing: Your Russia Questions Answered**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510901/2025/07/24/leeds-transfers-defensive-attack
 **Shopping for Amorim and United: Martinez, Chevalier and other goalkeeping options**\
 `Assessing what the head coach wants between the posts and identifying ideal targets to both deputise for and challenge Andre Onana`\
 https://nytimes.com/athletic/5350309/2025/07/24/manchester-united-onana-martinez-goalkeeper/
-
-**The kids are alright: How the profile of Premier League transfers has changed**\
-`Analysing English top-flight sides’ recruitment focus - from the age and position of players they target, and when they buy and sell`\
-https://nytimes.com/athletic/6471174/2025/07/24/premier-league-transfer-age-profile-analysis/
 
