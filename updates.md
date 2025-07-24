@@ -1,3 +1,7 @@
+**Juventus' Luiz to face disciplinary action after not reporting to training**\
+`Luiz started only three Serie A games in 2024-25, having joined on a five-year deal from Aston Villa last summer.`\
+https://nytimes.com/athletic/6077576/2025/07/24/douglas-luiz-transfer-juventus-training/
+
 **The Pre-Dawn Cyclists Climbing Colombia’s Capital**\
 `In Bogotá, morning group rides, known as “trains,” are a popular way to seize the day.`\
 https://nytimes.com/2025/07/24/well/move/morning-cycling-bogota.html
