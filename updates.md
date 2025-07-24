@@ -1,3 +1,7 @@
+**Flight Attendant Who Filmed Girls in Lavatory Is Sentenced to More Than 18 Years**\
+`The former flight attendant, Estes Carter Thompson III, of Charlotte, N.C., secretly filmed girls using the restroom on American Airlines flights in 2023, prosecutors said.`\
+https://nytimes.com/2025/07/23/us/american-airlines-flight-attendant-bathroom-recording-sentenced.html
+
 **Georgia football commit Chace Calicut charged in Texas drive-by shooting**\
 `Calicut's co-defendent, accused of being who fired at the victims, died over the weekend in a shooting at a Houston-area pool party.`\
 https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-shooting-arrest/
