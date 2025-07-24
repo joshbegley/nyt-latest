@@ -1,3 +1,7 @@
+**Rugby star praised for withdrawing from team due to concussion symptoms**\
+`Garry Ringrose had been selected in the starting XV for the British and Irish Lions test against Australia withdrew due to the effects.`\
+https://nytimes.com/athletic/6513765/2025/07/24/rugby-concussion-garry-ringrose-lions-australia/
+
 **Falcons training camp: Pitts ignores 'rat poison,' Penix expects big things**\
 `Penix is high on his golf buddy Pitts having a big season. If not, it could be the tight end's last in Atlanta.`\
 https://nytimes.com/athletic/6513750/2025/07/24/falcons-training-camp-kyle-pitts-michael-penix-jr/
