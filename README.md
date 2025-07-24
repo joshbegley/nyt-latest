@@ -1,3 +1,7 @@
+**Lewis Hamilton: "I refuse" to be another failed Ferrari F1 world champion**\
+`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship `\
+https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
+
 **The Relationship Advice Couples Counselors Swear By**\
 `Eight therapists share lessons they find themselves repeating again and again.`\
 https://nytimes.com/2025/07/24/well/family/couples-counselors-advice.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
 
 **It’s Feminism vs. a Mother’s Instinct on a London Stage**\
 `“Inter Alia,” at the National Theater in London, is a successor to the award-winning “Prima Facie.” It brings familiar tropes, and melodrama.`\
-https://nytimes.com/2025/07/24/arts/inter-alia-national-theatre-london-review.html
+https://nytimes.com/2025/07/24/theater/inter-alia-national-theatre-london-review.html
 
 **Epstein’s Estate Includes Book Said to Have Note From Trump, a Lawyer Says**\
 `The lawyer, who represents victims of Jeffrey Epstein, said he believes the estate would turn the book over to the authorities if asked.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/michael-whatley-north-carolina-senate
 **Fox evolved its approach to women's soccer with Euros broadcast, but are the changes too late?**\
 `Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership.`\
 https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
-
-**Chris Paul's return to Los Angeles is all about fit and future, not past**\
-`"Everyone's entitled in terms of the judgments they want to make on the group," says Clippers GM Lawrence Frank.`\
-https://nytimes.com/athletic/6510019/2025/07/24/chris-paul-clippers-return/
 
