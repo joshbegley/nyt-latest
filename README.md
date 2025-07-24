@@ -1,3 +1,11 @@
+**The Justice Dept. Wants to Interview Ghislaine Maxwell, While Opposing Her Appeal**\
+`Even as top Justice Department officials brokered an interview with a longtime associate of Jeffrey Epstein, they asked the Supreme Court to reject her appeal.`\
+https://nytimes.com/2025/07/24/us/epstein-maxwell-supreme-court-appeal.html
+
+**CBS News Names New Executive Producer for ‘60 Minutes’**\
+`Tanya Simon, who has worked on the show for over two decades, will take over at a time of significant change for the network.`\
+https://nytimes.com/2025/07/24/business/media/60-minutes-tanya-simon-cbs.html
+
 **Did Columbia’s Deal With Trump Save Its Stature or Sacrifice It?**\
 `Reactions ranged from fierce criticism to relief after the university reached a settlement over allegations that it failed to stop the harassment of Jewish students.`\
 https://nytimes.com/2025/07/24/nyregion/columbia-trump-deal-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6513774/2025/07/24/talanoa-hufanga-brandon-jones-br
 **Giants camp takeaways: Abdul Carter dominant; Wan'Dale Robinson flashes downfield potential**\
 `Rookie QB Jaxson Dart continues to look like what he is: a developmental prospect. Starter Russell Wilson has been efficient and effective.`\
 https://nytimes.com/athletic/6513923/2025/07/24/ny-giants-abdul-carter-wandale-robinson-training-camp/
-
-**Paramount Settled With Trump. Its Shows Are Skewering Him.**\
-`“South Park,” Jon Stewart and Stephen Colbert have all been critical of their own company and President Trump this week.`\
-https://nytimes.com/2025/07/24/business/media/trump-south-park-colbert-stewart.html
-
-**Trump Administration Sues Adams and New York City Over Sanctuary Laws**\
-`Mayor Eric Adams, whose corruption charges were dropped so he could help with deportations, is among the defendants in the suit, which argues the federal government has sole power over immigration.`\
-https://nytimes.com/2025/07/24/nyregion/trump-new-york-sanctuary-suit.html
 

@@ -1,6 +1,14 @@
+**Did Columbia’s Deal With Trump Save Its Stature or Sacrifice It?**\
+`Reactions ranged from fierce criticism to relief after the university reached a settlement over allegations that it failed to stop the harassment of Jewish students.`\
+https://nytimes.com/2025/07/24/nyregion/columbia-trump-deal-reaction.html
+
+**Israel and the U.S. Withdraw From Talks With Hamas**\
+`President Trump’s special envoy said that “we will now consider alternative options to bring the hostages home,” though it was not clear that negotiations had halted.`\
+https://nytimes.com/2025/07/24/us/politics/israel-us-hamas-talks.html
+
 **The Wrestling Ropes Couldn’t Constrain Hulk Hogan**\
 `The muscular entertainer, who died at 71, broke through into pop culture and led the way for Dwayne Johnson and John Cena.`\
-https://nytimes.com/2025/07/24/arts/the-wrestling-ropes-couldnt-constrain-hulk-hogan.html
+https://nytimes.com/2025/07/24/arts/hulk-hogan-wrestling.html
 
 **As MLB's trade deadline approaches, a Q&A with Reds' Nick Krall**\
 `Cincinnati sits 2 1/2 games behind the San Diego Padres, the current holder of the final wild card slot and a game behind San Francisco.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/business/media/trump-south-park-colbert-stewart.h
 **Trump Administration Sues Adams and New York City Over Sanctuary Laws**\
 `Mayor Eric Adams, whose corruption charges were dropped so he could help with deportations, is among the defendants in the suit, which argues the federal government has sole power over immigration.`\
 https://nytimes.com/2025/07/24/nyregion/trump-new-york-sanctuary-suit.html
-
-**Chicharito apologizes for sexist social media posts following backlash**\
-`Chicharito was handed a fine and warning from the Mexican Football Federation for his posts.`\
-https://nytimes.com/athletic/6513912/2025/07/24/chicharito-apology-sexist-social-media-posts/
-
-**The Hockey Canada trial could have been a reckoning. It was something else**\
-`The eight-week trial proved challenging to manage, leading to two jury dismissals and eventually the judge-only decision. `\
-https://nytimes.com/athletic/6429400/2025/07/24/hockey-canada-trial-players-not-guilty/
 

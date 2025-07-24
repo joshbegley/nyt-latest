@@ -1,3 +1,15 @@
+**Did Columbia’s Deal With Trump Save Its Stature or Sacrifice It?**\
+`Reactions ranged from fierce criticism to relief after the university reached a settlement over allegations that it failed to stop the harassment of Jewish students.`\
+https://nytimes.com/2025/07/24/nyregion/columbia-trump-deal-reaction.html
+
+**Israel and the U.S. Withdraw From Talks With Hamas**\
+`President Trump’s special envoy said that “we will now consider alternative options to bring the hostages home,” though it was not clear that negotiations had halted.`\
+https://nytimes.com/2025/07/24/us/politics/israel-us-hamas-talks.html
+
+**The Wrestling Ropes Couldn’t Constrain Hulk Hogan**\
+`The muscular entertainer, who died at 71, broke through into pop culture and led the way for Dwayne Johnson and John Cena.`\
+https://nytimes.com/2025/07/24/arts/hulk-hogan-wrestling.html
+
 **The Wrestling Ropes Couldn’t Constrain Hulk Hogan**\
 `The muscular entertainer, who died at 71, broke through into pop culture and led the way for Dwayne Johnson and John Cena.`\
 https://nytimes.com/2025/07/24/arts/the-wrestling-ropes-couldnt-constrain-hulk-hogan.html
