@@ -1,3 +1,7 @@
+**This Was Supposed to Be the Year China Started Catching Up With SpaceX**\
+`China’s biggest networks have deployed less than 1 percent of their planned satellites, falling far behind SpaceX for dominance in space communications.`\
+https://nytimes.com/interactive/2025/07/23/world/asia/starlink-spacex-musk-china-satellites.html
+
 **Appeals Court Blocks Trump’s Attempt to Restrict Birthright Citizenship**\
 `The ruling from the U.S. Court of Appeals for the Ninth Circuit brings the White House’s theory of citizenship closer to a full Supreme Court review.`\
 https://nytimes.com/2025/07/23/us/politics/appeals-court-birthright-citizenship.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6512123/2025/07/23/georgia-football-chace-calicut-s
 **Why Does Anyone Think Trump Will Uphold His End of a Bargain With Columbia?**\
 `When the government is often behaving unchecked by the law, the idea of a binding contract is a fantasy.`\
 https://nytimes.com/2025/07/23/opinion/trump-columbia-deal-professor.html
-
-**Chargers training camp report, Day 6: Movement in the WR competition**\
-`Rookie KeAndre Lambert-Smith made a couple of the plays of the day and is impressing the Chargers' coaching staff. `\
-https://nytimes.com/athletic/6512140/2025/07/23/chargers-training-camp-keandre-lambert-smith/
 

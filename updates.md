@@ -1,3 +1,7 @@
+**This Was Supposed to Be the Year China Started Catching Up With SpaceX**\
+`China’s biggest networks have deployed less than 1 percent of their planned satellites, falling far behind SpaceX for dominance in space communications.`\
+https://nytimes.com/interactive/2025/07/23/world/asia/starlink-spacex-musk-china-satellites.html
+
 **Appeals Court Blocks Trump’s Attempt to Restrict Birthright Citizenship**\
 `The ruling from the U.S. Court of Appeals for the Ninth Circuit brings the White House’s theory of citizenship closer to a full Supreme Court review.`\
 https://nytimes.com/2025/07/23/us/politics/appeals-court-birthright-citizenship.html
