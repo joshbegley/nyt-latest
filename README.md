@@ -1,5 +1,9 @@
-**Lewis Hamilton: "I refuse" to be another failed Ferrari F1 world champion**\
-`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship `\
+**Live Updates: Trump to Visit Federal Reserve in New Effort to Divert Attention From Epstein**\
+`The administration has led a pressure campaign against Jerome H. Powell, the chair of the central bank, for his handling of the economy and the cost of renovations at the institution’s headquarters.`\
+https://nytimes.com/live/2025/07/24/us/trump-federal-reserve-powell
+
+**Lewis Hamilton: 'I refuse' to be another failed Ferrari F1 world champion**\
+`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship.`\
 https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
 
 **The Relationship Advice Couples Counselors Swear By**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/world/europe/ukraine-protests-corruption-zelensky
 **Michael Whatley, R.N.C. Chairman, to Run for Senate in North Carolina**\
 `His entry will pave the way for a marquee contest in 2026, with former Gov. Roy Cooper planning to seek the Democratic nomination.`\
 https://nytimes.com/2025/07/24/us/politics/michael-whatley-north-carolina-senate.html
-
-**Fox evolved its approach to women's soccer with Euros broadcast, but are the changes too late?**\
-`Ahead of the Euros, Fox Sports’ president of insights and analytics said that the network was targeting 50 percent growth for viewership.`\
-https://nytimes.com/athletic/6512805/2025/07/24/fox-euros-media-coverage-2025/
 

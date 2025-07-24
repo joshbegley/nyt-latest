@@ -1,3 +1,19 @@
+**Lewis Hamilton: "I refuse" to be another failed Ferrari F1 world champion**\
+`Hamilton said it's "crunch time" as he and Ferrari try to regain contender status and hunt for his eighth world championship `\
+https://nytimes.com/athletic/6513033/2025/07/24/lewis-hamilton-ferrari-champion-f1/
+
+**The Relationship Advice Couples Counselors Swear By**\
+`Eight therapists share lessons they find themselves repeating again and again.`\
+https://nytimes.com/2025/07/24/well/family/couples-counselors-advice.html
+
+**The pattern across 13 years of men's and women's semi-finals that gives England hope**\
+`England won the first semi-final of Euro 2025, with Spain winning the second semi. History suggests the order of those games could be key`\
+https://nytimes.com/athletic/6512938/2025/07/24/semi-finals-rest-days-euros/
+
+**It’s Feminism vs. a Mother’s Instinct on a London Stage**\
+`“Inter Alia,” at the National Theater in London, is a successor to the award-winning “Prima Facie.” It brings familiar tropes, and melodrama.`\
+https://nytimes.com/2025/07/24/theater/inter-alia-national-theatre-london-review.html
+
 **Rishabh Pant: The Indian superstar who stared at death - and came back**\
 `Rishabh Pant is one of the most watchable cricketers in the game - as he has proved throughout the English summer`\
 https://nytimes.com/athletic/6485767/2025/07/24/rishabh-pant-india/
