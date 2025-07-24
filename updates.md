@@ -1,3 +1,15 @@
+**Saudi Arabia Pledges to Invest More Than $6 Billion in Syria**\
+`The deals highlight the countries’ deepening relationship under the new Syrian government, and a wave of investment in a country squeezed by war and sanctions.`\
+https://nytimes.com/2025/07/24/world/middleeast/saudi-investment-syria.html
+
+**MyPillow Founder Will Not Pay Winnings for Election Challenge, Court Rules**\
+`A court overturned a previous ruling requiring Mike Lindell to pay out $5 million to a software engineer who had entered Mr. Lindell’s challenge to skeptics of his election interference claims.`\
+https://nytimes.com/2025/07/24/us/elections/mypillow-founder-challenge-winnings.html
+
+**Read the Agreement Between Columbia and the Trump Administration**\
+`The university agreed to pay $200 million to settle allegations that it had failed to do enough to stop the harassment of Jewish students.`\
+https://nytimes.com/interactive/2025/07/24/nyregion/met-columbia-agreementpdf.html
+
 **Justice Dept. Expected to Interview Epstein Associate Maxwell in Florida on Thursday**\
 `It is unclear what information Ghislaine Maxwell, a longtime associate of Jeffrey Epstein’s, would provide that would go beyond what is already in the public record.`\
 https://nytimes.com/2025/07/24/us/politics/ghislaine-maxwell-epstein-interview.html
