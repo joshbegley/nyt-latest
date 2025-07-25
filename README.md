@@ -1,3 +1,7 @@
+**Trump’s Name Is on Contributor List for Epstein Birthday Book**\
+`The Times also reviewed other records of the president’s friendship with Jeffrey Epstein, including an inscription in which the future president called him “the greatest.”`\
+https://nytimes.com/2025/07/24/us/politics/trump-epstein-birthday-book.html
+
 **$17 Million Is Lost in A.T.M. Scam That Spread on TikTok, Officials Say**\
 `Payment cards for a New York City youth jobs program were used to withdraw millions of dollars over less than three days, officials said.`\
 https://nytimes.com/2025/07/24/nyregion/nyc-atm-scam.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/07/24/us/politics/pennsylvania-nurse-imposter-investiga
 `Coach Mike Tomlin is exactly what Rodgers needs to finish his career, but there is a potential downside to this union.`\
 https://nytimes.com/athletic/6514484/2025/07/24/aaron-rodgers-steelers-training-camp/
 
-**Raiders release DT Christian Wilkins after short stint with team**\
-`As part of the transaction, the Raiders voided the remaining $35.2 million in guaranteed money on his contract.`\
+**Raiders release DT Christian Wilkins after 1 season, void remaining deal**\
+`The Raiders cited disagreement in Wilkins' plans to return from a foot injury. He has filed a grievance with the NFLPA.`\
 https://nytimes.com/athletic/6514570/2025/07/24/raiders-release-christian-wilkins-foot-injury-nfl-news/
 
 **Trump Administration Asks Supreme Court to Allow N.I.H. to Cut D.E.I.-Related Grants**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514507/2025/07/24/bill-self-kansas-health-hospital
 **Face to Face, Powell Told Trump He Was Wrong About a Construction Project**\
 `President Trump is used to world leaders bowing down to him, and to cabinet members fawning over him. Jerome H. Powell, the chair of the Federal Reserve, took a different approach.`\
 https://nytimes.com/2025/07/24/us/politics/trump-powell-real-estate.html
-
-**Cardinals LB J.J. Russell taken to hospital after frightening practice injury**\
-`Team said Russell was alert and had movement in all extremities.`\
-https://nytimes.com/athletic/6514427/2025/07/24/cardinals-jj-russell-injury-head-neck-hospital/
 
