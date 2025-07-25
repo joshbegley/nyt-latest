@@ -1,3 +1,7 @@
+**Under Siege From Trump and Musk, a Top Liberal Group Falls Into Crisis**\
+`Scrambling to pay legal fees, Media Matters has dialed back its criticism, trimmed its staff and contemplated closing entirely.`\
+https://nytimes.com/2025/07/25/us/politics/media-matters-musk-crisis.html
+
 **How Red Bull adjusts to F1 life after Christian Horner: 'It was a shock to me'**\
 `The drivers, team members and new boss all try to look forward as the Belgian GP (and a new era) gets underway `\
 https://nytimes.com/athletic/6515485/2025/07/25/christian-horner-red-bull-firing-reactions-f1/
