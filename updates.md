@@ -1,3 +1,15 @@
+**Mets mailbag, trade deadline edition: Clay Holmes' role, Mark Vientos' future, lineup upgrade?**\
+`Plus questions on Dylan Cease as a starter and possible rumblings on an extension for David Peterson.`\
+https://nytimes.com/athletic/6514282/2025/07/24/mets-trade-deadline-clay-holmes-mark-vientos-lineup/
+
+**Mariners acquire slugging first baseman Josh Naylor from D-Backs: Source**\
+`Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
+https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
+
+**Sam Darnold has the Seahawks believing, as he works to master the mundane**\
+`After a career season, Darnold is focused less on splash plays and more on the simple things, on and off the field.`\
+https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-camp/
+
 **She Tended to Patients Across 4 States. But She Wasn’t a Nurse, Police Say.**\
 `A woman who the Pennsylvania State Police say worked under multiple aliases faces multiple criminal charges. The authorities still aren’t sure of her real name.`\
 https://nytimes.com/2025/07/24/us/pennsylvania-nurse-imposter-investigation.html
