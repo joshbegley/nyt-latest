@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6509197/2025/07/25/blue-jackets-2025-26-lineup-merz
 `\
 https://nytimes.com/athletic/6509197/2025/07/25/blue-jackets-2025-26-lineup-merzlikins-chinakhov/
 
+**Blue Jackets' lineup outlook: Elvis Merzlikins a backup? Yegor Chinakhov a third-liner?**\
+`With two months until Columbus opens training camp, here's how the 2025-26 roster could shake out after the offseason.
+`\
+https://nytimes.com/athletic/6509197/2025/07/25/blue-jackets-2025-26-lineup-merzlikins-chinakhov/
+
 **Hulk Hogan Couldn’t Be Contained by Clothes**\
 `His look was jokey, but it was no joke.`\
 https://nytimes.com/2025/07/25/style/hulk-hogan-style.html
