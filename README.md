@@ -1,3 +1,7 @@
+**What we're hearing about the MLB trade deadline: Ryan Helsley, the Rockies and the relief market**\
+`“I would say it’s 90 percent I go, 10 percent I stay,” Helsley said about his future in St. Louis with the trade deadline approaching.`\
+https://nytimes.com/athletic/6514829/2025/07/24/mlb-trade-deadline-analysis-relief-market/
+
 **Venus Williams' run at Citi Open ends with loss to Magdalena Fręch**\
 `Defeat hardly dampers Williams' impressive comeback at 45, and signs indicate this was not a one-off.`\
 https://nytimes.com/athletic/6514773/2025/07/24/venus-williams-citi-open-magdalena-frech/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/trump-epstein-birthday-book.html
 **$17 Million Is Lost in A.T.M. Scam That Spread on TikTok, Officials Say**\
 `Payment cards for a New York City youth jobs program were used to withdraw millions of dollars over less than three days, officials said.`\
 https://nytimes.com/2025/07/24/nyregion/nyc-atm-scam.html
-
-**She Tended to Patients Across 4 States. But She Wasn’t a Nurse, Police Say.**\
-`A woman who the Pennsylvania State Police say worked under multiple aliases faces multiple criminal charges. The authorities still aren’t sure of her real name.`\
-https://nytimes.com/2025/07/24/us/pennsylvania-nurse-imposter-investigation.html
 
