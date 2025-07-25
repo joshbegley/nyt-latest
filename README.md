@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6515641/2025/07/25/messi-jordi-alba-suspended-mls-a
 https://nytimes.com/2025/07/25/arts/dance/national-ballet-of-japan-giselle-london.html
 
 **Mets address bullpen need by acquiring lefty Gregory Soto from Orioles**\
-`After adding Soto, the Mets still eye multiple additions to their bullpen.`\
+`The Orioles receive minor-league pitchers Wellington Aracena and Cameron Foster in return for Soto, who is a pending free agent.`\
 https://nytimes.com/athletic/6515693/2025/07/25/mets-orioles-trade-gregory-soto/
 
 **Justice Dept. Officials File Suit, Saying They Were Dismissed Unlawfully**\
