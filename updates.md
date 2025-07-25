@@ -1,3 +1,15 @@
+**Controversial Interior Department Aide From DOGE to Leave Agency**\
+`Tyler Hassen, a former oil executive who had spent time on Elon Musk’s cost-cutting team, faced criticism because he had been given broad authority to make changes at the department.`\
+https://nytimes.com/2025/07/25/climate/doge-interior-tyler-hassen.html
+
+**9-Year-Old Girl Dies in Wave Pool at Hersheypark in Pennsylvania**\
+`Lifeguards noticed that the girl was in distress and tried to rescue her, according to the park, which said that the pool remained closed on Friday.`\
+https://nytimes.com/2025/07/25/us/hersheypark-boardwalk-child-death.html
+
+**Yankees trade for Ryan McMahon from Rockies, fill need at third base: Grades**\
+`The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
+https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
+
 **Yankees get Ryan McMahon from Rockies, fill need at third base**\
 `The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
 https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
