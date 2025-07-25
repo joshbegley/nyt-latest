@@ -1,3 +1,27 @@
+**Scoop City: Why Jaguars need Travis Hunter, the cornerback**\
+`Updated power rankings, how Washington's managing new expectations, and why Travis Hunter could — and should — see plenty of snaps at corner`\
+https://nytimes.com/athletic/6515445/2025/07/25/travis-hunter-position-jaguars-washington-scoop-city/
+
+**What I'm hearing about Jonathan Kuminga's restricted free agency with the Warriors**\
+`Kuminga's options appear limited. Going back to Golden State for a year could make sense, but there's a lot of risk for both sides.`\
+https://nytimes.com/athletic/6515296/2025/07/25/jonathan-kuminga-free-agency-warriors/
+
+**First Deportation Flights Depart From Florida’s ‘Alligator Alcatraz’**\
+`Gov. Ron DeSantis said “hundreds” of federal detainees had departed a state-run detention center in the Everglades on planes, but provided few details about them or where they went.`\
+https://nytimes.com/2025/07/25/us/alligator-alcatraz-deportation-flights.html
+
+**Euro 2025: Following Swiss travel advice from Switzerland and Arsenal midfielder Lia Walti**\
+`The Athletic tries out Switzerland travel suggestions from Arsenal midfielder Lia Walti `\
+https://nytimes.com/athletic/6514218/2025/07/25/switzerland-lia-walti-travel-euros/
+
+**Texas Democrats to Confer With California and Illinois Governors on Redistricting**\
+`Two groups of Democrats left Texas to confer with Govs. Gavin Newsom and JB Pritzker, who have suggested their Democratic-controlled states could counter a Texas Republican gerrymander.`\
+https://nytimes.com/2025/07/25/us/texas-democrats-redistricting.html
+
+**Russia Again Cuts Interest Rates as Its Economy Slows**\
+`Falling inflation has persuaded the central bank in Moscow to continue relaxing the country’s record borrowing costs.`\
+https://nytimes.com/2025/07/25/world/europe/russia-interest-rates.html
+
 **Trump Flies to Scotland, Leaving Chaos Swirling in Washington**\
 `The five-day visit will be a mix of personal business and golf with some diplomacy thrown in.`\
 https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/asia/100000010305859/thousands-flee-thailand-cam
 **The Pulse: Summer sports TV matchmaker**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6514977/2025/07/25/sports-tv-shows-guide-the-pulse/
-
-**The Chicago stars driving the sports card market heading into The National**\
-`The athletes who are likely to be the most talked about on the show floor at the National Sports Collectors Convention next week`\
-https://nytimes.com/athletic/6514069/2025/07/25/hottest-sports-cards-michael-jordan-pete-crow-armstrong/
-
-**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 1 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
-https://nytimes.com/2025/07/25/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
-
-**Quick thoughts on each 2025 draft pick in summer league, from Flagg to Mashack**\
-`How did each draft pick look this month, and what might be in store for them when the real games begin this fall?`\
-https://nytimes.com/athletic/6512382/2025/07/25/nba-summer-league-vegas-takeaways-cooper-flagg-dylan-harper/
-
-**Joe Vigil, Running Coach Who Shaped Champions, Dies at 95**\
-`He turned Adams State University in Colorado into a distance-running powerhouse and helped mentor two marathon medalists at the 2004 Athens Olympics.`\
-https://nytimes.com/2025/07/25/sports/joe-vigil-dead.html
-
-**Bubble teams could shape MLB trade deadline. History tells us which will buy or sell**\
-`An absence of powerhouse teams has left this trade deadline feeling as uncertain as ever a week out.`\
-https://nytimes.com/athletic/6514857/2025/07/25/mlb-trade-deadline-buy-sell-history/
-
-**The Generations of Pain I Felt in One Racist Moment**\
-`What it means to be both Black and white, and neither, in a polarized United States.`\
-https://nytimes.com/2025/07/25/us/racism-biracial-identity.html
 
