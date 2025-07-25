@@ -1,3 +1,7 @@
+**Amorim insists Man Utd's 'bomb squad' will not be sold on the cheap**\
+`Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia have been left out of United’s travelling party to the United States.`\
+https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-transfers-sales/
+
 **Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
 `ASHBURN, Va.`\
 https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515693/2025/07/25/mets-orioles-trade-gregory-soto/
 **Justice Dept. Officials File Suit, Saying They Were Dismissed Unlawfully**\
 `The lawsuit argues that employees who were fired for political reasons have no recourse, after President Trump neutralized a board that handles federal labor disputes.`\
 https://nytimes.com/2025/07/25/us/politics/justice-dept-officials-file-suit-saying-they-were-dismissed-unlawfully.html
-
-**Austin Ekeler, NFLPA executive committee member, says the union remains in good hands**\
-`The Washington Commanders running back also defended the search process that ended with Lloyd Howell's hiring in 2023.`\
-https://nytimes.com/athletic/6515650/2025/07/25/austin-ekeler-nflpa-leadership-search/
 
