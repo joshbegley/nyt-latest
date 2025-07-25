@@ -1,3 +1,7 @@
+**Neymar alleges fan called him a 'mercenary' in exchange after Santos loss**\
+`"Saying that I'm a mercenary with my father, talking about my family/friends. I'm sorry but it's hard to control," Neymar, 33, said.`\
+https://nytimes.com/athletic/6515172/2025/07/25/neymar-santos-fan-altercation/
+
 **How to watch this weekend's Mets at Giants series, with a 'Sunday Night Baseball' finale**\
 `The Mets and Giants have a pitching-dominant three-game series coming up, with Sunday's finale on national TV.`\
 https://nytimes.com/athletic/6514435/2025/07/25/giants-mets-alonso-lindor-soto-devers-webb-ray-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500169/2025/07/25/the-athletics-friday-football-qu
 **Bucs GM on looming Baker Mayfield extension: The goal is to keep him here 'a long time'**\
 `Mayfield isn't too worried about his next contract. He's more focused on maximizing his potential, as he wonders, “How good can I get?"`\
 https://nytimes.com/athletic/6513345/2025/07/25/bucs-baker-mayfield-contract-extension/
-
-**One player from each MLB franchise who will be wearing a new uniform by July 31**\
-`Baseball’s annual midsummer bazaar close at the July 31 trade deadline. Players will be on the move. There will be hugs.`\
-https://nytimes.com/athletic/6510092/2025/07/25/one-player-traded-mlb-deadline/
 
