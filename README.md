@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About ‘The Catch,’ by Yrsa Daley-Ward**\
+`The poet’s debut novel features estranged sisters and a missing mother who seemingly reappears decades later.`\
+https://nytimes.com/2025/07/25/books/review/podcast-book-club-yrsa-daley-ward-catch.html
+
 **Shunsaku Tamiya, Who Brought Perfection to Plastic Models, Dies at 90**\
 `He turned his family’s lumber business into a manufacturer of model kits that won global popularity for their quality and historical accuracy.`\
 https://nytimes.com/2025/07/25/world/asia/shunsaku-tamiya-plastic-models-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508959/2025/07/25/baseball-hall-of-fame-ichiro-sab
 **On MLB draft day, Tyler Bremner was thrilled to go second. And he wished his mom was there**\
 `Tyler Bremner was picked by the Angels on July 13. Three days earlier, his family had held a celebration of life for his mother, Jen. `\
 https://nytimes.com/athletic/6513680/2025/07/25/angels-draft-tyler-bremner-mother/
-
-**When he didn't pick Ichiro for Rookie of the Year, a writer became the story**\
-`In Japan, many agreed with Chris Assenheimer's stance that Ichiro wasn't a true rookie. In the US, it didn't go over quite that well. `\
-https://nytimes.com/athletic/6513497/2025/07/25/ichiro-sabathia-hall-of-fame-rookie-of-the-year-2001/
 
