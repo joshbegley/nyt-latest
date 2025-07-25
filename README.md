@@ -1,4 +1,12 @@
-**Yankees get Ryan McMahon from Rockies, fill need at third base**\
+**Controversial Interior Department Aide From DOGE to Leave Agency**\
+`Tyler Hassen, a former oil executive who had spent time on Elon Musk’s cost-cutting team, faced criticism because he had been given broad authority to make changes at the department.`\
+https://nytimes.com/2025/07/25/climate/doge-interior-tyler-hassen.html
+
+**9-Year-Old Girl Dies in Wave Pool at Hersheypark in Pennsylvania**\
+`Lifeguards noticed that the girl was in distress and tried to rescue her, according to the park, which said that the pool remained closed on Friday.`\
+https://nytimes.com/2025/07/25/us/hersheypark-boardwalk-child-death.html
+
+**Yankees trade for Ryan McMahon from Rockies, fill need at third base: Grades**\
 `The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
 https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6514387/2025/07/25/sarris-live-chat-mlb-fantasy-bas
 **‘Happy Gilmore 2’ Review: Back on the Green**\
 `A Netflix sequel to Adam Sandler’s hit 1996 film briefly recaptures the warm silliness of the original, before devolving into a lazy fever dream of cameos.`\
 https://nytimes.com/2025/07/25/movies/happy-gilmore-2-review-back-on-the-green.html
-
-**Gary Smith, Master Producer of TV Entertainment, Dies at 90**\
-`In his nearly long partnership with Dwight Hemion, he produced specials, awards shows and extravaganzas, winning numerous Emmy Awards. He also won several on his own.`\
-https://nytimes.com/2025/07/25/arts/television/gary-smith-dead.html
-
-**Tour de France, stage 19: Arensman wins again, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
-`Analysis of the latest day's action in the 2025 race - a 93km route from Albertville to La Plagne truncated at short notice last night`\
-https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
 

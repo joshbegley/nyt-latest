@@ -1,3 +1,15 @@
+**Yankees get Ryan McMahon from Rockies, fill need at third base**\
+`The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
+https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
+
+**Behind Trump’s War With Powell: A Battering Ram With 3 Million Followers**\
+`The director of the Federal Housing Finance Agency has made the removal of the Fed chair his personal mission.`\
+https://nytimes.com/2025/07/25/business/trump-powell-bill-pulte.html
+
+**Flashback: Your Weekly History Quiz, July 26, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/07/25/upshot/flashback.html
+
 **Red Sox trade scenarios: Jim Bowden assesses proposals for Mitch Keller, Merrill Kelly and more**\
 `We asked former GM Jim Bowden for his insights on a few trade proposals to address Boston's key needs.`\
 https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-keller-merrill-kelly/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/25/arts/television/gary-smith-dead.html
 **Tour de France, stage 19: Arensman wins again, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
 `Analysis of the latest day's action in the 2025 race - a 93km route from Albertville to La Plagne truncated at short notice last night`\
 https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
-
-**Lionel Messi, Jordi Alba suspended by MLS for skipping All-Star Game**\
-`Both stars skipped MLS's All-Star Game despite being fit to play, and they've been punished in accordance with league rules`\
-https://nytimes.com/athletic/6515641/2025/07/25/messi-jordi-alba-suspended-mls-all-star-game-miami-cincinnati/
-
-**In London, the National Ballet of Japan Steps Onto the World Stage**\
-`Led by the former Royal Ballet principal Miyako Yoshida, the company made its European debut with “Giselle,” showing itself the equal of major international troupes.`\
-https://nytimes.com/2025/07/25/arts/dance/national-ballet-of-japan-giselle-london.html
-
-**Mets address bullpen need by acquiring lefty Gregory Soto from Orioles**\
-`The Orioles receive minor-league pitchers Wellington Aracena and Cameron Foster in return for Soto, who is a pending free agent.`\
-https://nytimes.com/athletic/6515693/2025/07/25/mets-orioles-trade-gregory-soto/
 

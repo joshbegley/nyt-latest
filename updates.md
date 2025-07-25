@@ -1,3 +1,15 @@
+**Yankees get Ryan McMahon from Rockies, fill need at third base**\
+`The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
+https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
+
+**Behind Trump’s War With Powell: A Battering Ram With 3 Million Followers**\
+`The director of the Federal Housing Finance Agency has made the removal of the Fed chair his personal mission.`\
+https://nytimes.com/2025/07/25/business/trump-powell-bill-pulte.html
+
+**Flashback: Your Weekly History Quiz, July 26, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/07/25/upshot/flashback.html
+
 **Red Sox trade scenarios: Jim Bowden assesses proposals for Mitch Keller, Merrill Kelly and more**\
 `We asked former GM Jim Bowden for his insights on a few trade proposals to address Boston's key needs.`\
 https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-keller-merrill-kelly/
