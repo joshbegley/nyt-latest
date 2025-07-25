@@ -11,7 +11,7 @@ https://nytimes.com/2025/07/25/movies/happy-gilmore-2-review-back-on-the-green.h
 https://nytimes.com/2025/07/25/arts/television/gary-smith-dead.html
 
 **Tour de France, stage 19: Arensman wins at La Plagne, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
-`Analysis of the latest day's action in the 2025 race - a truncated 93km stage from Albertville to La Plagne`\
+`Analysis of the latest day's action in the 2025 race - a 93km route from Albertville to La Plagne truncated at short notice last night`\
 https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
 
 **Lionel Messi, Jordi Alba suspended by MLS for skipping All-Star Game**\

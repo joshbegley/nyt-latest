@@ -1,3 +1,7 @@
+**Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
+`ASHBURN, Va.`\
+https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 7/25 at 2 p.m. ET**\
 `Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
 https://nytimes.com/athletic/6514387/2025/07/25/sarris-live-chat-mlb-fantasy-baseball-7-25/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/25/movies/happy-gilmore-2-review-back-on-the-green.h
 `In his nearly long partnership with Dwight Hemion, he produced specials, awards shows and extravaganzas, winning numerous Emmy Awards. He also won several on his own.`\
 https://nytimes.com/2025/07/25/arts/television/gary-smith-dead.html
 
-**Tour de France, stage 19: Arensman wins at La Plagne, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
+**Tour de France, stage 19: Arensman wins again, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
 `Analysis of the latest day's action in the 2025 race - a 93km route from Albertville to La Plagne truncated at short notice last night`\
 https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/politics/justice-dept-officials-file-suit-sayi
 **Austin Ekeler, NFLPA executive committee member, says the union remains in good hands**\
 `The Washington Commanders running back also defended the search process that ended with Lloyd Howell's hiring in 2023.`\
 https://nytimes.com/athletic/6515650/2025/07/25/austin-ekeler-nflpa-leadership-search/
-
-**Robert W. Fuller, Who Championed Dignity Over ‘Rankism,’ Dies at 88**\
-`He identified as a “citizen diplomat” and preached mutual respect because, he explained, “everybody is a somebody.”`\
-https://nytimes.com/2025/07/25/books/robert-w-fuller-dead.html
 

@@ -1,3 +1,7 @@
+**Tour de France, stage 19: Arensman wins at La Plagne, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
+`Analysis of the latest day's action in the 2025 race - a 93km route from Albertville to La Plagne truncated at short notice last night`\
+https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 7/25 at 2 p.m. ET**\
 `Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
 https://nytimes.com/athletic/6514387/2025/07/25/sarris-live-chat-mlb-fantasy-baseball-7-25/
