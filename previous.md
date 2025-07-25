@@ -1,3 +1,7 @@
+**Shunsaku Tamiya, Who Brought Perfection to Plastic Models, Dies at 90**\
+`He turned his family’s lumber business into a manufacturer of model kits that won global popularity for their quality and historical accuracy.`\
+https://nytimes.com/2025/07/25/world/asia/shunsaku-tamiya-plastic-models-dies.html
+
 **Viktor Gyokeres battled to be Arsenal’s striker of choice – that desire may prove a special power**\
 `Gyokeres, Arsenal and Sesko have been in a weird love triangle, but the club have finally agreed a deal for the Swede. He really wants it`\
 https://nytimes.com/athletic/6485860/2025/07/25/viktor-gyokeres-arsenal-transfer-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513680/2025/07/25/angels-draft-tyler-bremner-mothe
 **When he didn't pick Ichiro for Rookie of the Year, a writer became the story**\
 `In Japan, many agreed with Chris Assenheimer's stance that Ichiro wasn't a true rookie. In the US, it didn't go over quite that well. `\
 https://nytimes.com/athletic/6513497/2025/07/25/ichiro-sabathia-hall-of-fame-rookie-of-the-year-2001/
-
-**Joey Aguilar nearly quit football to become a fireman — now he's on the sport's biggest stage**\
-`Aguilar entered the transfer portal in April and landed at Tennessee, creating a de facto quarterback trade between the Vols and Bruins.`\
-https://nytimes.com/athletic/6510652/2025/07/25/tennessee-qb-transfer-joey-aguilar-ucla/
 
