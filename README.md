@@ -1,3 +1,7 @@
+**New Reports on Russian Interference Don’t Show What Trump Says They Do**\
+`The administration’s claims are overblown, but newly declassified information provides some messy details about a January 2017 intelligence assessment of Moscow’s election interference.`\
+https://nytimes.com/2025/07/25/us/trump-obama-russia.html
+
 **Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
 `Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
 https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/arts/television/netflix-leaving-august.html
 **FIFA accuses players' union FIFPro of 'blackmail' and lack of financial transparency**\
 `Tensions between the two bodies escalated amid criticism over player welfare and the football calendar.`\
 https://nytimes.com/athletic/6515793/2025/07/25/fifa-fifpro-blackmail-tensions/
-
-**Michigan, Western Michigan finalizing deal to open 2026 season in Germany**\
-`The NFL brought two regular-season games to Deutsche Bank Park in 2023: The Chiefs versus the Dolphins and the Colts against the Patriots.`\
-https://nytimes.com/athletic/6515877/2025/07/25/michigan-western-germany-college-football/
 
