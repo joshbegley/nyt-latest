@@ -1,3 +1,11 @@
+**Packers training camp: Brandon McManus stays perfect and 8 more observations**\
+`The veteran kicker, who celebrated his 34th birthday on Friday, has made all 15 kicks during team periods.`\
+https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/
+
+**What does Trump's college sports executive order mean? Breaking down the impact**\
+`What you need to know about President Trump's college sports executive order.`\
+https://nytimes.com/athletic/6515871/2025/07/25/trump-college-sports-executive-order-explained/
+
 **Why Zelensky Backtracked on His Controversial Law**\
 `Facing growing pressure amid nationwide protests, President Volodymyr Zelensky of Ukraine backtracked on controversial legislation that would have weakened the country’s independent anticorruption institutions.`\
 https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zelensky.html
