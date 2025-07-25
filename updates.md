@@ -1,3 +1,15 @@
+**White House Will Release $5.5 Billion for Schools, After Surprise Delay**\
+`The Trump administration had faced growing bipartisan pressure, including from 10 Senate Republicans.`\
+https://nytimes.com/2025/07/25/us/education-funds-released-white-house.html
+
+**Bears camp observations: What to make of shaky practice for Caleb Williams, red zone offense**\
+`It’s your classic Bears camp Rorschach test. Should there be concern about the quarterback or is the defense simply playing at a high level?`\
+https://nytimes.com/athletic/6515853/2025/07/25/bears-training-camp-caleb-williams-shaky/
+
+**Root can become Test cricket's top runscorer - and his record would never be beaten**\
+`England's master batter is now up to second on the all-time list and at 34 has top spot firmly in his sights`\
+https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
+
 **Manchester United Women's analyst Shamieh set to join Tottenham**\
 `Shamieh will reunite with new Spurs head coach Martin Ho.`\
 https://nytimes.com/athletic/6515859/2025/07/25/manchester-united-women-analyst-tottenham/
