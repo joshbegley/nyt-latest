@@ -1,3 +1,11 @@
+**Root can become Test cricket's greatest runscorer. And that record would never be beaten**\
+`England's master batter is now second in the all-time scoring list but has top spot firmly in his sights`\
+https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
+
+**The Senate, Once Insulated From Trump, Has Remade Itself in His Image**\
+`The president has had a consequential impact on the Republican membership of the Senate as resistors are replaced by devotees. Most incumbents, even those not inclined to, have fallen in line.`\
+https://nytimes.com/2025/07/25/us/the-senate-once-insulated-from-trump-has-remade-itself-in-his-image.html
+
 **Controversial Interior Department Aide From DOGE to Leave Agency**\
 `Tyler Hassen, a former oil executive who had spent time on Elon Musk’s cost-cutting team, faced criticism because he had been given broad authority to make changes at the department.`\
 https://nytimes.com/2025/07/25/climate/doge-interior-tyler-hassen.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-t
 **Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
 `In terms of learning, refining techniques and executing, the first-round rookie describes himself as encouraged early in training camp. `\
 https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 7/25 at 2 p.m. ET**\
-`Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
-https://nytimes.com/athletic/6514387/2025/07/25/sarris-live-chat-mlb-fantasy-baseball-7-25/
-
-**‘Happy Gilmore 2’ Review: Back on the Green**\
-`A Netflix sequel to Adam Sandler’s hit 1996 film briefly recaptures the warm silliness of the original, before devolving into a lazy fever dream of cameos.`\
-https://nytimes.com/2025/07/25/movies/happy-gilmore-2-review-back-on-the-green.html
 
