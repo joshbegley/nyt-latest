@@ -1,3 +1,7 @@
+**New Reports on Russian Interference Don’t Show What Trump Says They Do**\
+`The administration’s claims are overblown, but newly declassified information provides some messy details about a January 2017 intelligence assessment of Moscow’s election interference.`\
+https://nytimes.com/2025/07/25/us/trump-obama-russia.html
+
 **Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
 `Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
 https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
