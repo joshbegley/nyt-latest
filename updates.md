@@ -1,3 +1,23 @@
+**Top 2026 recruit Saniyah Hall commits to USC women’s basketball**\
+`The 6-foot-1 forward out of Spire Institute signed a deal with Jordan Brand earlier this month.`\
+https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/
+
+**De Paul joins Inter Miami from Atletico Madrid**\
+`De Paul links up with his Argentina international team-mate and close friend Lionel Messi.`\
+https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-transfer-atletico-madrid/
+
+**Rex White, 1960 NASCAR Champion Driver, Dies at 95**\
+`He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
+https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
+
+**Ethics Panel Rebukes Congressman for Wife’s Stock Trade in Firm He Helped**\
+`The panel rebuked Representative Mike Kelly, Republican of Pennsylvania, for failing to prevent the appearance of self-dealing and then stonewalling its efforts to investigate.`\
+https://nytimes.com/2025/07/25/us/mike-kelly-ethics-congress.html
+
+**Couple Whose Home Was Bursting With Illegal Sex Pills Are Sentenced**\
+`Eduard Yusupov and Diana Fuzailov sold supplements through their company, Love Potion Inc., that they claimed were natural. The authorities needed tractor-trailers to remove all of the pills.`\
+https://nytimes.com/2025/07/25/nyregion/sex-pill-sentencing-edny.html
+
 **NFL will fine players who sold Super Bowl tickets above face value**\
 `The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
 https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/

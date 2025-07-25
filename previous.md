@@ -1,3 +1,23 @@
+**Top 2026 recruit Saniyah Hall commits to USC women’s basketball**\
+`The 6-foot-1 forward out of Spire Institute signed a deal with Jordan Brand earlier this month.`\
+https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/
+
+**De Paul joins Inter Miami from Atletico Madrid**\
+`De Paul links up with his Argentina international team-mate and close friend Lionel Messi.`\
+https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-transfer-atletico-madrid/
+
+**Rex White, 1960 NASCAR Champion Driver, Dies at 95**\
+`He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
+https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
+
+**Ethics Panel Rebukes Congressman for Wife’s Stock Trade in Firm He Helped**\
+`The panel rebuked Representative Mike Kelly, Republican of Pennsylvania, for failing to prevent the appearance of self-dealing and then stonewalling its efforts to investigate.`\
+https://nytimes.com/2025/07/25/us/mike-kelly-ethics-congress.html
+
+**Couple Whose Home Was Bursting With Illegal Sex Pills Are Sentenced**\
+`Eduard Yusupov and Diana Fuzailov sold supplements through their company, Love Potion Inc., that they claimed were natural. The authorities needed tractor-trailers to remove all of the pills.`\
+https://nytimes.com/2025/07/25/nyregion/sex-pill-sentencing-edny.html
+
 **New Reports on Russian Interference Don’t Show What Trump Says They Do**\
 `The administration’s claims are overblown, but newly declassified information provides some messy details about a January 2017 intelligence assessment of Moscow’s election interference.`\
 https://nytimes.com/2025/07/25/us/trump-obama-russia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6515957/2025/07/25/justin-jefferson-vikings-hamstri
 **NFL will fine players who sold Super Bowl tickets above face value**\
 `The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
 https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
-
-**Inter Miami owner on Messi's suspension: MLS rule is 'draconian'**\
-`Jorge Mas voiced his support for Lionel Messi and Jordi Alba while expressing opposition to MLS's decision to ban the star duo.`\
-https://nytimes.com/athletic/6515822/2025/07/25/messi-suspension-mls-all-star-game-miami-owner-jorge-mas/
-
-**What to know about Day 1 of Broncos training camp: Bo Nix shines on the move**\
-`The pass-rush talent that helped the Broncos lead the league with 63 sacks last season shined on camp's first full day.`\
-https://nytimes.com/athletic/6515855/2025/07/25/broncos-training-camp-nix-franklin-tillman/
-
-**Fenway Park concession workers walk off job prior to Dodgers series**\
-`Members of Union Here Local 26 have been battling Aramark food services company for more than six months.`\
-https://nytimes.com/athletic/6516013/2025/07/25/fenway-park-concession-workers-red-sox-walk-off/
-
-**Stream These 10 TV Shows and Movies Before They Leave Netflix in August**\
-`A lot of great titles are leaving for U.S. subscribers next month. See them while you can.`\
-https://nytimes.com/2025/07/25/arts/television/netflix-leaving-august.html
-
-**FIFA accuses players' union FIFPro of 'blackmail' and lack of financial transparency**\
-`Tensions between the two bodies escalated amid criticism over player welfare and the football calendar.`\
-https://nytimes.com/athletic/6515793/2025/07/25/fifa-fifpro-blackmail-tensions/
 
