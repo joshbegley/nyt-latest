@@ -1,3 +1,8 @@
+**Blue Jackets' lineup outlook: Elvis Merzlikins a backup? Yegor Chinakhov a third-liner?**\
+`With two months until Columbus opens training camp, here's how the 2025-26 roster could shake out after the offseason.
+`\
+https://nytimes.com/athletic/6509197/2025/07/25/blue-jackets-2025-26-lineup-merzlikins-chinakhov/
+
 **What Did Trump’s Hard-Hat Tour of the Fed Accomplish?**\
 `The president wanted to take Jerome Powell, the Fed chair, to task over the cost of renovations to the central bank’s headquarters, but Mr. Powell was having none of it.`\
 https://nytimes.com/2025/07/25/business/dealbook/what-did-trumps-hard-hat-tour-of-the-fed-accomplish.html
