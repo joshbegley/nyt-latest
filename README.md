@@ -1,3 +1,7 @@
+**Peace Negotiations in Ukraine Haven’t Failed. They Haven’t Really Started.**\
+`No one knows what Putin would accept to end his invasion of Ukraine if he were presented with a real negotiation process.`\
+https://nytimes.com/2025/07/25/opinion/ukraine-war-negotiations-trump.html
+
 **The New York Times in Print for Friday, July 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/25/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513183/2025/07/25/boubacar-kamara-new-contract-vil
 **Evan Ferguson - is there any way back?**\
 `For the sake of everybody, but especially a young player who has experienced a dramatic rise and fall, this loan to Roma needs to work`\
 https://nytimes.com/athletic/6512597/2025/07/25/evan-ferguson-brighton-future-roma/
-
-**Why Isak could cost £250m to sign - and who could afford it?**\
-`The Newcastle striker wants to leave but signing him will not be easy financially. We analyse the true cost`\
-https://nytimes.com/athletic/6513565/2025/07/25/alexander-isak-transfer-cost-finances/
 
