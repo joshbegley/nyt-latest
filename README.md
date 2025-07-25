@@ -1,40 +1,40 @@
-**What Does It Take to Make Your Own Embassy? In India, Not Much.**\
-`For almost eight years, an Indian man hid a range of criminal activities behind fake diplomatic missions before finally being caught this week.`\
-https://nytimes.com/2025/07/24/world/asia/india-fake-embassy.html
+**The Parrot, Its Parasites and a Shared Struggle to Escape Extinction**\
+`The endangered kakapo is a flightless bird native to New Zealand. Its population is growing, but its parasites have dwindled. Could that spell trouble?`\
+https://nytimes.com/2025/07/25/science/kakapo-parrots-parasites-extinction.html
 
-**Chargers training camp report, Day 7: Interior defensive line depth shines**\
-`Teair Tart, Justin Eboigbe and Otito Ogbonnia and others are giving the Chargers confidence in their defensive line group.`\
-https://nytimes.com/athletic/6514853/2025/07/24/chargers-training-camp-defensive-line/
+**The World Has Too Much Steel, but No One Wants to Stop Making It**\
+`A global plunge in prices, led by increased production from China, and U.S. tariffs threaten steel manufacturing, which has long been a symbol of national might.`\
+https://nytimes.com/2025/07/25/business/steel-overcapacity-china.html
 
-**What we're hearing about the MLB trade deadline: Ryan Helsley, the Rockies and the relief market**\
-`“I would say it’s 90 percent I go, 10 percent I stay,” Helsley said about his future in St. Louis with the trade deadline approaching.`\
-https://nytimes.com/athletic/6514829/2025/07/24/mlb-trade-deadline-analysis-relief-market/
+**Corrections: July 25, 2025**\
+`Corrections that appeared in print on Friday, July 25, 2025.`\
+https://nytimes.com/2025/07/25/pageoneplus/corrections-july-25-2025.html
 
-**Venus Williams' run at Citi Open ends with loss to Magdalena Fręch**\
-`Defeat hardly dampers Williams' impressive comeback at 45, and signs indicate this was not a one-off.`\
-https://nytimes.com/athletic/6514773/2025/07/24/venus-williams-citi-open-magdalena-frech/
+**Iran Starts New Talks Today Over Its Nuclear Program. Here’s What to Know.**\
+`Three European powers will meet with an Iranian minister to try to reopen negotiations over the limits of its nuclear activities.`\
+https://nytimes.com/2025/07/25/world/middleeast/iran-europe-nuclear-talks.html
 
-**Flash Point**\
-`Fritz Juhnke makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/07/24/crosswords/daily-puzzle-2025-07-25.html
+**She Married Her Biggest Book Fan**\
+`Daniel De Lange and Kyle Lucia Wu kept things casual after meeting as restaurant co-workers, but soon they were “attached at the hip,” Mr. De Lange said.`\
+https://nytimes.com/2025/07/25/style/daniel-de-lange-kyle-lucia-wu-wedding.html
 
-**‘And Just Like That …’ Season 3, Episode 9 Recap: Smoke Gets in Your Eyes**\
-`In an episode full of callbacks, Carrie and Aidan wonder whether they can move forward.`\
-https://nytimes.com/2025/07/24/arts/television/and-just-like-that-recap-season-3-episode-9.html
+**From FaceTime to Face Time, In Person**\
+`Maya Vargas and Justin Mejia talked a lot for a couple of years before they went on their first date.`\
+https://nytimes.com/2025/07/25/style/maya-vargas-justin-mejia-wedding.html
 
-**Mets mailbag, trade deadline edition: Clay Holmes' role, Mark Vientos' future, lineup upgrade?**\
-`Plus questions on Dylan Cease as a starter and possible rumblings on an extension for David Peterson.`\
-https://nytimes.com/athletic/6514282/2025/07/24/mets-trade-deadline-clay-holmes-mark-vientos-lineup/
+**She Read His Journal Entry, and Said Yes**\
+`Tucker Higgins knew he wanted to marry Emma Newburger six months into dating — so they started documenting their love story.`\
+https://nytimes.com/2025/07/25/style/tucker-higgins-emma-newburger-wedding.html
 
-**In Josh Naylor, Mariners acquire slugger they've been missing: grades, analysis**\
-`Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
-https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
+**For Two Octogenarians, First Came Romance, Then a Dream Home**\
+`Kathryn Scott, 82, an author and former “Dark Shadows” actress, met the author Patrick Oster, 80, when a mutual friend who likes to play matchmaker suggested they trade manuscripts.`\
+https://nytimes.com/2025/07/25/style/kathryn-scott-patrick-oster-wedding.html
 
-**Sam Darnold has the Seahawks believing as he works to master the mundane**\
-`After a career season, Darnold is focused less on splash plays and more on the simple things, on and off the field.`\
-https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-camp/
+**Can You Love a Stranger?**\
+`I never even knew the last names of the people who sustained me through my darkest days.`\
+https://nytimes.com/2025/07/25/style/modern-love-can-you-love-a-stranger.html
 
-**Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
-`The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
-https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
+**Quote of the Day: Young, Old and Sick Starve to Death in Gaza: ‘There Is Nothing’**\
+`Quotation of the Day for Friday, June 25, 2025.`\
+https://nytimes.com/2025/07/24/pageoneplus/quote-of-the-day-young-old-and-sick-starve-to-death-in-gaza-there-is-nothing.html
 
