@@ -1,3 +1,7 @@
+**Venus Williams' run at Citi Open ends with loss to Magdalena Fręch**\
+`Defeat hardly dampers Williams' impressive comeback at 45, and signs indicate this was not a one-off.`\
+https://nytimes.com/athletic/6514773/2025/07/24/venus-williams-citi-open-magdalena-frech/
+
 **Flash Point**\
 `Fritz Juhnke makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/07/24/crosswords/daily-puzzle-2025-07-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/nyregion/nyc-atm-scam.html
 **She Tended to Patients Across 4 States. But She Wasn’t a Nurse, Police Say.**\
 `A woman who the Pennsylvania State Police say worked under multiple aliases faces multiple criminal charges. The authorities still aren’t sure of her real name.`\
 https://nytimes.com/2025/07/24/us/pennsylvania-nurse-imposter-investigation.html
-
-**O'Connor: Aaron Rodgers has a lot more to lose with the Steelers than he did with the Jets**\
-`Coach Mike Tomlin is exactly what Rodgers needs to finish his career, but there is a potential downside to this union.`\
-https://nytimes.com/athletic/6514484/2025/07/24/aaron-rodgers-steelers-training-camp/
 

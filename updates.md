@@ -1,3 +1,7 @@
+**Venus Williams' run at Citi Open ends with loss to Magdalena Fręch**\
+`Defeat hardly dampers Williams' impressive comeback at 45, and signs indicate this was not a one-off.`\
+https://nytimes.com/athletic/6514773/2025/07/24/venus-williams-citi-open-magdalena-frech/
+
 **Flash Point**\
 `Fritz Juhnke makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/07/24/crosswords/daily-puzzle-2025-07-25.html
