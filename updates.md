@@ -1,3 +1,11 @@
+**7 Children Are Killed in School Roof Collapse in India**\
+`An official in the northwestern state of Rajasthan said that heavy rain had pooled on the roof before it fell in.`\
+https://nytimes.com/2025/07/25/world/asia/india-school-roof-collapse-death-children.html
+
+**Roof Collapse Kills 7 Schoolchildren in Northwestern India**\
+`A school roof fell in on Friday in Jhalawar, India, after heavy rains, killing seven children and injuring several others.`\
+https://nytimes.com/video/world/asia/100000010305936/india-school-roof-collapse.html
+
 **Roof Collapse Kills 7 Schoolchildren in Northwestern India**\
 `A school roof fell in on Friday, killing at least seven children and injuring several others in Jhalawar, India. The cause of the collapse was being investigated.`\
 https://nytimes.com/video/world/asia/100000010305936/india-school-roof-collapse.html

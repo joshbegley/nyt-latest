@@ -1,3 +1,7 @@
+**‘Eddington’ | Anatomy of a Scene**\
+`The writer and director Ari Aster narrates a sequence from his film featuring Joaquin Phoenix and Pedro Pascal.`\
+https://nytimes.com/video/movies/100000010303711/eddington-scene.html
+
 **7 Children Are Killed in School Roof Collapse in India**\
 `An official in the northwestern state of Rajasthan said that heavy rain had pooled on the roof before it fell in.`\
 https://nytimes.com/2025/07/25/world/asia/india-school-roof-collapse-death-children.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/world/europe/russia-interest-rates.html
 **Trump Flies to Scotland, Leaving Chaos Swirling in Washington**\
 `The five-day visit will be a mix of personal business and golf with some diplomacy thrown in.`\
 https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
-
-**The 7.27.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue
 

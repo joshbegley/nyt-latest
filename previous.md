@@ -1,5 +1,9 @@
+**7 Children Are Killed in School Roof Collapse in India**\
+`An official in the northwestern state of Rajasthan said that heavy rain had pooled on the roof before it fell in.`\
+https://nytimes.com/2025/07/25/world/asia/india-school-roof-collapse-death-children.html
+
 **Roof Collapse Kills 7 Schoolchildren in Northwestern India**\
-`A school roof fell in on Friday, killing at least seven children and injuring several others in Jhalawar, India. The cause of the collapse was being investigated.`\
+`A school roof fell in on Friday in Jhalawar, India, after heavy rains, killing seven children and injuring several others.`\
 https://nytimes.com/video/world/asia/100000010305936/india-school-roof-collapse.html
 
 **Scoop City: Why Jaguars need Travis Hunter, the cornerback**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
 **The 7.27.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue
-
-**Thousands Flee Thailand-Cambodia Border Amid Deadly Conflict**\
-`More than 100,000 people have fled a disputed border area between Thailand and Cambodia as fighting there entered a second day. The clashes have been the deadliest between the two nations in at least a decade.`\
-https://nytimes.com/video/world/asia/100000010305859/thousands-flee-thailand-cambodia-border-amid-deadly-conflict.html
 
