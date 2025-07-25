@@ -1,40 +1,40 @@
-**Vinicius Jr's theme park, Bellingham's incognito trip - How Madrid's players are spending their holidays**\
-`Xabi Alonso's players have chosen a wide range of destinations for their summer breaks...`\
-https://nytimes.com/athletic/6512740/2025/07/25/real-madrid-player-holidays-vinicius-bellingham-huijsen/
+**What Does It Take to Make Your Own Embassy? In India, Not Much.**\
+`For almost eight years, an Indian man hid a range of criminal activities behind fake diplomatic missions before finally being caught this week.`\
+https://nytimes.com/2025/07/24/world/asia/india-fake-embassy.html
 
-**One regular day of Barcelona: Rashford's arrival and a pre-season tour thrown into chaos**\
-`Within hours of Rashford's unveiling the club's pre-season tour was in doubt. By Thursday night it seemed to be back on...`\
-https://nytimes.com/athletic/6513690/2025/07/25/barcelona-japan-preseason-chaos/
+**Chargers training camp report, Day 7: Interior defensive line depth shines**\
+`Teair Tart, Justin Eboigbe and Otito Ogbonnia and others are giving the Chargers confidence in their defensive line group.`\
+https://nytimes.com/athletic/6514853/2025/07/24/chargers-training-camp-defensive-line/
 
-**England's Euro 2022 win transformed the Lionesses' lives but it was also a 'poisoned chalice'**\
-`Reaching another major final has boosted the Lionesses' profiles. Matching their Euro 2022 success will propel them to another stratosphere`\
-https://nytimes.com/athletic/6512873/2025/07/25/england-lionesses-euro-2022-life-change/
+**What we're hearing about the MLB trade deadline: Ryan Helsley, the Rockies and the relief market**\
+`“I would say it’s 90 percent I go, 10 percent I stay,” Helsley said about his future in St. Louis with the trade deadline approaching.`\
+https://nytimes.com/athletic/6514829/2025/07/24/mlb-trade-deadline-analysis-relief-market/
 
-**Chelsea and the unprecedented challenge of a post-Club World Cup pre-season**\
-`Enzo Maresca's team have just completed a 'double season' - now they face the unenviable task of preparing for 2025-26`\
-https://nytimes.com/athletic/6512883/2025/07/25/chelsea-pre-season-club-world-cup/
+**Venus Williams' run at Citi Open ends with loss to Magdalena Fręch**\
+`Defeat hardly dampers Williams' impressive comeback at 45, and signs indicate this was not a one-off.`\
+https://nytimes.com/athletic/6514773/2025/07/24/venus-williams-citi-open-magdalena-frech/
 
-**Caitlin Clark rookie card sells for women's sports record $660,000**\
-`Clark continues to break records in the sports card world`\
-https://nytimes.com/athletic/6511384/2025/07/25/caitlin-clark-rookie-card-record-auction/
+**Flash Point**\
+`Fritz Juhnke makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/07/24/crosswords/daily-puzzle-2025-07-25.html
 
-**The Parrot, Its Parasites and a Shared Struggle to Escape Extinction**\
-`The endangered kakapo is a flightless bird native to New Zealand. Its population is growing, but its parasites have dwindled. Could that spell trouble?`\
-https://nytimes.com/2025/07/25/science/kakapo-parrots-parasites-extinction.html
+**‘And Just Like That …’ Season 3, Episode 9 Recap: Smoke Gets in Your Eyes**\
+`In an episode full of callbacks, Carrie and Aidan wonder whether they can move forward.`\
+https://nytimes.com/2025/07/24/arts/television/and-just-like-that-recap-season-3-episode-9.html
 
-**The World Has Too Much Steel, but No One Wants to Stop Making It**\
-`A global plunge in prices, led by increased production from China, and U.S. tariffs threaten steel manufacturing, which has long been a symbol of national might.`\
-https://nytimes.com/2025/07/25/business/steel-overcapacity-china.html
+**Mets mailbag, trade deadline edition: Clay Holmes' role, Mark Vientos' future, lineup upgrade?**\
+`Plus questions on Dylan Cease as a starter and possible rumblings on an extension for David Peterson.`\
+https://nytimes.com/athletic/6514282/2025/07/24/mets-trade-deadline-clay-holmes-mark-vientos-lineup/
 
-**Corrections: July 25, 2025**\
-`Corrections that appeared in print on Friday, July 25, 2025.`\
-https://nytimes.com/2025/07/25/pageoneplus/corrections-july-25-2025.html
+**In Josh Naylor, Mariners acquire slugger they've been missing: grades, analysis**\
+`Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
+https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
 
-**Iran Starts New Talks Today Over Its Nuclear Program. Here’s What to Know.**\
-`Three European powers will meet with an Iranian minister to try to reopen negotiations over the limits of its nuclear activities.`\
-https://nytimes.com/2025/07/25/world/middleeast/iran-europe-nuclear-talks.html
+**Sam Darnold has the Seahawks believing as he works to master the mundane**\
+`After a career season, Darnold is focused less on splash plays and more on the simple things, on and off the field.`\
+https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-camp/
 
-**She Married Her Biggest Book Fan**\
-`Daniel De Lange and Kyle Lucia Wu kept things casual after meeting as restaurant co-workers, but soon they were “attached at the hip,” Mr. De Lange said.`\
-https://nytimes.com/2025/07/25/style/daniel-de-lange-kyle-lucia-wu-wedding.html
+**Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
+`The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
+https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
 
