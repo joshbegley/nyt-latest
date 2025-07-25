@@ -1,3 +1,11 @@
+**Root can become Test cricket's top runscorer. And that record would never be beaten**\
+`England's master batter is now second in the all-time scoring list but has top spot firmly in his sights`\
+https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
+
+**The Senate, Once Insulated From Trump, Has Remade Itself in His Image**\
+`The president has had a consequential impact on the Republican membership of the Senate as resistors are replaced by devotees. Most incumbents, even those not inclined to, have fallen in line.`\
+https://nytimes.com/2025/07/25/us/senate-trump-republicans.html
+
 **Patrick Ryan, ‘Terror Priest’ Who Aided the I.R.A., Is Dead at 94**\
 `He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
 https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
