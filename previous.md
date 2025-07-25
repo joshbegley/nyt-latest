@@ -1,3 +1,7 @@
+**The Pulse: Summer sports TV matchmaker**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6514977/2025/07/25/sports-tv-shows-guide-the-pulse/
+
 **The Chicago stars driving the sports card market heading into The National**\
 `The athletes who are likely to be the most talked about on the show floor at the National Sports Collectors Convention next week`\
 https://nytimes.com/athletic/6514069/2025/07/25/hottest-sports-cards-michael-jordan-pete-crow-armstrong/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/style/hulk-hogan-style.html
 **What Did Trump’s Hard-Hat Tour of the Fed Accomplish?**\
 `The president wanted to take Jerome Powell, the Fed chair, to task over the cost of renovations to the central bank’s headquarters, but Mr. Powell was having none of it.`\
 https://nytimes.com/2025/07/25/business/dealbook/trump-fed-tour-powell.html
-
-**Fantasy baseball waiver wire: Starting pitcher pickups for every league**\
-`Here's an attempt to find you a pickup, no matter how deep or shallow your waiver wire looks right now.`\
-https://nytimes.com/athletic/6513646/2025/07/25/fantasy-baseball-starting-pitcher-pickup-sarris/
 

@@ -1,3 +1,7 @@
+**The Pulse: Summer sports TV matchmaker**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6514977/2025/07/25/sports-tv-shows-guide-the-pulse/
+
 **The Chicago stars driving the sports card market heading into The National**\
 `The athletes who are likely to be the most talked about on the show floor at the National Sports Collectors Convention next week`\
 https://nytimes.com/athletic/6514069/2025/07/25/hottest-sports-cards-michael-jordan-pete-crow-armstrong/
