@@ -1,5 +1,5 @@
 **Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
-`OWINGS MILLS, Md.`\
+`The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
 https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
 
 **Trump’s Name Is on Contributor List for Epstein Birthday Book**\
@@ -34,7 +34,7 @@ https://nytimes.com/2025/07/24/arts/hulk-hogan-nwo-heel.html
 `No major-league lineup has had fewer plate appearances by a left-handed hitter than Houston's.`\
 https://nytimes.com/athletic/6514560/2025/07/24/houston-astros-trade-deadline-priorities/
 
-**Kansas coach Bill Self admitted to hospital, has 2 stents inserted**\
+**Kansas coach Bill Self hospitalized, has 2 stents inserted**\
 `Self, 62, was transported to the hospital after he "felt unwell and experienced some concerning symptoms," the school said.`\
 https://nytimes.com/athletic/6514507/2025/07/24/bill-self-kansas-health-hospital/
 

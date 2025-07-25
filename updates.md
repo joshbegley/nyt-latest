@@ -1,4 +1,12 @@
 **Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
+`The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
+https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
+
+**Kansas coach Bill Self hospitalized, has 2 stents inserted**\
+`Self, 62, was transported to the hospital after he "felt unwell and experienced some concerning symptoms," the school said.`\
+https://nytimes.com/athletic/6514507/2025/07/24/bill-self-kansas-health-hospital/
+
+**Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
 `OWINGS MILLS, Md.`\
 https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
 
