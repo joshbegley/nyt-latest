@@ -1,3 +1,7 @@
+**The Starvation Spreading in Gaza**\
+`Gaza is descending into anarchy.`\
+https://nytimes.com/2025/07/25/briefing/the-starvation-spreading-in-gaza.html
+
 **Leeds make bid of more than €30m for Feyenoord winger Igor Paixao**\
 `Talks between Leeds, Feyenoord and Paixao’s representatives have been ongoing since last week.`\
 https://nytimes.com/athletic/6515180/2025/07/25/igor-paixao-leeds-united-bid-feyenoord-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514436/2025/07/25/dodgers-red-sox-ohtani-kershaw-c
 **Man City to sign goalkeeper Trafford from Burnley**\
 `The 22-year-old has agreed a five-year deal plus the option of a further 12 months to return to the club he left in June 2023.`\
 https://nytimes.com/athletic/5533703/2025/07/25/james-trafford-man-city-transfer/
-
-**What's fueling Dak Prescott? Winning a Super Bowl, building rapport with George Pickens**\
-`Prescott is entering his 10th season and winning it all is at the forefront: "I know it’s what everyone wants in the locker room."`\
-https://nytimes.com/athletic/6514736/2025/07/25/cowboys-dak-prescott-super-bowl/
 

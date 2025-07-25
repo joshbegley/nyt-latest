@@ -1,3 +1,11 @@
+**Leeds make bid of more than €30m for Feyenoord winger Igor Paixao**\
+`Talks between Leeds, Feyenoord and Paixao’s representatives have been ongoing since last week.`\
+https://nytimes.com/athletic/6515180/2025/07/25/igor-paixao-leeds-united-bid-feyenoord-transfer/
+
+**Manchester City-bound James Trafford: Breaking down how his game developed at Burnley**\
+`The young goalkeeper is on course to return to the Etihad Stadium - and his game has evolved since he last played in the Premier League`\
+https://nytimes.com/athletic/6510431/2025/07/25/james-trafford-goalkeeper-burnley-manchester-city/
+
 **The Style That Stopped Us**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/07/25/style/street-style-look-of-the-week
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5533703/2025/07/25/james-trafford-man-city-transfer
 **What's fueling Dak Prescott? Winning a Super Bowl, building rapport with George Pickens**\
 `Prescott is entering his 10th season and winning it all is at the forefront: "I know it’s what everyone wants in the locker room."`\
 https://nytimes.com/athletic/6514736/2025/07/25/cowboys-dak-prescott-super-bowl/
-
-**Vikings fan survey results: High confidence in team, high expectations for J.J. McCarthy**\
-`Hopes and expectations are high according to the 3,700-plus readers who responded to our annual Vikings fan survey. Here are the details.`\
-https://nytimes.com/athletic/6513575/2025/07/25/vikings-fan-survey-results-jj-mccarthy/
-
-**The Athletic’s Friday football quiz question #65**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6500169/2025/07/25/the-athletics-friday-football-quiz-question-65/
 

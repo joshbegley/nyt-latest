@@ -1,3 +1,11 @@
+**Leeds make bid of more than €30m for Feyenoord winger Igor Paixao**\
+`Talks between Leeds, Feyenoord and Paixao’s representatives have been ongoing since last week.`\
+https://nytimes.com/athletic/6515180/2025/07/25/igor-paixao-leeds-united-bid-feyenoord-transfer/
+
+**Manchester City-bound James Trafford: Breaking down how his game developed at Burnley**\
+`The young goalkeeper is on course to return to the Etihad Stadium - and his game has evolved since he last played in the Premier League`\
+https://nytimes.com/athletic/6510431/2025/07/25/james-trafford-goalkeeper-burnley-manchester-city/
+
 **The Style That Stopped Us**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/07/25/style/street-style-look-of-the-week
