@@ -1,3 +1,15 @@
+**Giants place Landen Roupp on injured list with right elbow inflammation**\
+`The righty has a 3.11 ERA in 20 starts and had become the team's most reliable starter after All-Stars Logan Webb and Robbie Ray.`\
+https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/
+
+**Ocasio-Cortez Must Pay Another $2,700 for Met Gala Dress**\
+`Alexandria Ocasio-Cortez made a splash in 2021 with her “Tax the Rich” dress. Then the House Ethics Committee opened an investigation.`\
+https://nytimes.com/2025/07/25/nyregion/aoc-met-gala-dress.html
+
+**Election Officials Allege Possible Voter Fraud in Republican Primary**\
+`The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in southern Brooklyn.`\
+https://nytimes.com/2025/07/25/nyregion/election-fraud-new-york-city-council.html
+
 **Federal Judge Dismisses Trump Administration’s Challenge of Illinois Sanctuary Measures**\
 `The Justice Department had sued the leaders of Illinois, Chicago and Cook County over policies that limit cooperation with federal immigration officials.`\
 https://nytimes.com/2025/07/25/us/illinois-sanctuary-trump-immigration-lawsuit.html
