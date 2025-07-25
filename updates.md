@@ -1,3 +1,7 @@
+**What Does It Take to Make Your Own Embassy? In India, Not Much.**\
+`For almost eight years, an Indian man hid a range of criminal activities behind fake diplomatic missions before finally being caught this week.`\
+https://nytimes.com/2025/07/24/world/asia/india-fake-embassy.html
+
 **Chargers training camp report, Day 7: Interior defensive line depth shines**\
 `Teair Tart, Justin Eboigbe and Otito Ogbonnia and others are giving the Chargers confidence in their defensive line group.`\
 https://nytimes.com/athletic/6514853/2025/07/24/chargers-training-camp-defensive-line/
