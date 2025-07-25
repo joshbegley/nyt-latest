@@ -1,3 +1,7 @@
+**Gyokeres battled to be Arsenal's striker of choice - he wants it badly, which can only be a good thing**\
+`Gyokeres, Arsenal and Sesko have been in a weird love triangle - but the club have finally agreed a deal for the Swede. He really wants it`\
+https://nytimes.com/athletic/6485860/2025/07/25/viktor-gyokeres-arsenal-transfer-decision/
+
 **Electric atmospheres and sold-out crowds: How Switzerland's stadium gamble paid off at Euro 2025**\
 `There was scepticism when the hosts were announced but records have tumbled and stands have been packed`\
 https://nytimes.com/athletic/6512599/2025/07/25/switzerland-gambles-with-size-for-the-sake-of-atmosphere-in-euros-stadium-section-did-it-work/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513497/2025/07/25/ichiro-sabathia-hall-of-fame-roo
 **Joey Aguilar nearly quit football to become a fireman — now he's on the sport's biggest stage**\
 `Aguilar entered the transfer portal in April and landed at Tennessee, creating a de facto quarterback trade between the Vols and Bruins.`\
 https://nytimes.com/athletic/6510652/2025/07/25/tennessee-qb-transfer-joey-aguilar-ucla/
-
-**Did South Carolina, no stranger to recruiting drama, find its next LaNorris Sellers?**\
-`South Carolina's current starter, LaNorris Sellers, didn't receive an offer from the home-state Gamecocks until October of his senior year. `\
-https://nytimes.com/athletic/6513795/2025/07/25/south-carolina-recruiting-landon-duckworth-lanorris-sellers/
 

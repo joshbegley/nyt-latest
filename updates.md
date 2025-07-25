@@ -1,3 +1,7 @@
+**Gyokeres battled to be Arsenal's striker of choice - he wants it badly, which can only be a good thing**\
+`Gyokeres, Arsenal and Sesko have been in a weird love triangle - but the club have finally agreed a deal for the Swede. He really wants it`\
+https://nytimes.com/athletic/6485860/2025/07/25/viktor-gyokeres-arsenal-transfer-decision/
+
 **Electric atmospheres and sold-out crowds: How Switzerland's stadium gamble paid off at Euro 2025**\
 `There was scepticism when the hosts were announced but records have tumbled and stands have been packed`\
 https://nytimes.com/athletic/6512599/2025/07/25/switzerland-gambles-with-size-for-the-sake-of-atmosphere-in-euros-stadium-section-did-it-work/
