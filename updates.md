@@ -1,3 +1,7 @@
+**Macron Recognizes a Palestinian State. But to What End?**\
+`The French president, expressing a moral obligation to address suffering in Gaza, made clear he had lost patience with the United States and Israel. The question is what effect he will have.`\
+https://nytimes.com/2025/07/25/world/middleeast/macron-france-palestinian-statehood.html
+
 **Kiely leaves role as Palace goalkeeping coach, Speroni taking taking role temporarily**\
 `Speroni, 46, is stepping up from his role in the academy to oversee the first-team goalkeeping department.`\
 https://nytimes.com/athletic/6515539/2025/07/25/crystal-palace-dean-kiely-julian-speroni/
