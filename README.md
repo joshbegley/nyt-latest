@@ -1,3 +1,7 @@
+**Roof Collapse Kills 7 Schoolchildren in Northwestern India**\
+`A school roof fell in on Friday, killing at least seven children and injuring several others in Jhalawar, India. The cause of the collapse was being investigated.`\
+https://nytimes.com/video/world/asia/100000010305936/india-school-roof-collapse.html
+
 **Scoop City: Why Jaguars need Travis Hunter, the cornerback**\
 `Updated power rankings, how Washington's managing new expectations, and why Travis Hunter could — and should — see plenty of snaps at corner`\
 https://nytimes.com/athletic/6515445/2025/07/25/travis-hunter-position-jaguars-washington-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue
 **Thousands Flee Thailand-Cambodia Border Amid Deadly Conflict**\
 `More than 100,000 people have fled a disputed border area between Thailand and Cambodia as fighting there entered a second day. The clashes have been the deadliest between the two nations in at least a decade.`\
 https://nytimes.com/video/world/asia/100000010305859/thousands-flee-thailand-cambodia-border-amid-deadly-conflict.html
-
-**The Pulse: Summer sports TV matchmaker**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/6514977/2025/07/25/sports-tv-shows-guide-the-pulse/
 
