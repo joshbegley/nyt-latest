@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 7: Interior defensive line depth shines**\
+`Teair Tart, Justin Eboigbe and Otito Ogbonnia and others are giving the Chargers confidence in their defensive line group.`\
+https://nytimes.com/athletic/6514853/2025/07/24/chargers-training-camp-defensive-line/
+
 **What we're hearing about the MLB trade deadline: Ryan Helsley, the Rockies and the relief market**\
 `“I would say it’s 90 percent I go, 10 percent I stay,” Helsley said about his future in St. Louis with the trade deadline approaching.`\
 https://nytimes.com/athletic/6514829/2025/07/24/mlb-trade-deadline-analysis-relief-market/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-j
 **Trump’s Name Is on Contributor List for Epstein Birthday Book**\
 `The Times also reviewed other records of the president’s friendship with Jeffrey Epstein, including an inscription in which the future president called him “the greatest.”`\
 https://nytimes.com/2025/07/24/us/politics/trump-epstein-birthday-book.html
-
-**$17 Million Is Lost in A.T.M. Scam That Spread on TikTok, Officials Say**\
-`Payment cards for a New York City youth jobs program were used to withdraw millions of dollars over less than three days, officials said.`\
-https://nytimes.com/2025/07/24/nyregion/nyc-atm-scam.html
 
