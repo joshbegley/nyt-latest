@@ -1,9 +1,13 @@
+**Arsenal reach full Gyokeres agreement, medical expected this weekend**\
+`Gyokeres, 27, is expected to take the No 14 at Arsenal.`\
+https://nytimes.com/athletic/6510398/2025/07/25/arsenal-transfer-viktor-gyokeres-sporting-deal/
+
 **How to watch the Dodgers at Red Sox series, with Kershaw vs. Crochet on national TV**\
 `There's much to like about this series between the Dodgers and Red Sox, but Saturday's national TV duel of lefties is the headliner.`\
 https://nytimes.com/athletic/6514436/2025/07/25/dodgers-red-sox-ohtani-kershaw-crochet-fenway-how-to-watch/
 
 **Man City to sign goalkeeper Trafford from Burnley**\
-`The player has agreed a five-year deal plus the option of a further 12 months to return to the club he left in June 2023.`\
+`The 22-year-old has agreed a five-year deal plus the option of a further 12 months to return to the club he left in June 2023.`\
 https://nytimes.com/athletic/5533703/2025/07/25/james-trafford-man-city-transfer/
 
 **What's fueling Dak Prescott? Winning a Super Bowl, building rapport with George Pickens**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514782/2025/07/25/bill-belichick-acc-media-days-un
 **An MLB pitcher walked away from $12 million. He has no regrets**\
 `Years ago, Royals pitcher Gil Meche walked away from $12 million out of principle. What does he think about that decision now?`\
 https://nytimes.com/athletic/6511233/2025/07/25/an-mlb-pitcher-walked-away-from-12-million-he-has-no-regrets/
-
-**2025 swimming world championships: Katie Ledecky vs. Summer McIntosh and more to watch**\
-`Katie Ledecky vs. Summer McIntosh in the 800-meter freestyle is the highlight of the first major international competition since Paris.`\
-https://nytimes.com/athletic/6511650/2025/07/25/swimming-world-championships-katie-ledecky-summer-mcintosh-leon-marchand/
 
