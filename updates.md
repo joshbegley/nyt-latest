@@ -1,3 +1,7 @@
+**She Tended to Patients Across 4 States. But She Wasn’t a Nurse, Police Say.**\
+`A woman who the Pennsylvania State Police say worked under multiple aliases faces multiple criminal charges. The authorities still aren’t sure of her real name.`\
+https://nytimes.com/2025/07/24/us/pennsylvania-nurse-imposter-investigation.html
+
 **Mariners acquire slugging first baseman Josh Naylor from DBacks: Source**\
 `Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
 https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/

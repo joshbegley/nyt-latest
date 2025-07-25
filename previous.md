@@ -20,7 +20,7 @@ https://nytimes.com/2025/07/24/nyregion/nyc-atm-scam.html
 
 **She Tended to Patients Across 4 States. But She Wasn’t a Nurse, Police Say.**\
 `A woman who the Pennsylvania State Police say worked under multiple aliases faces multiple criminal charges. The authorities still aren’t sure of her real name.`\
-https://nytimes.com/2025/07/24/us/politics/pennsylvania-nurse-imposter-investigation.html
+https://nytimes.com/2025/07/24/us/pennsylvania-nurse-imposter-investigation.html
 
 **O'Connor: Aaron Rodgers has a lot more to lose with the Steelers than he did with the Jets**\
 `Coach Mike Tomlin is exactly what Rodgers needs to finish his career, but there is a potential downside to this union.`\
