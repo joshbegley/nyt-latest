@@ -1,3 +1,7 @@
+**Valkyries' Kayla Thornton to miss rest of season after knee surgery**\
+`Thornton, a nine-year veteran, was an All-Star for the first time this season and led the Valkyries in points, rebounds and steals.`\
+https://nytimes.com/athletic/6515867/2025/07/25/valkyries-kayla-thornton-to-miss-season/
+
 **White House Will Release $5.5 Billion for Schools, After Surprise Delay**\
 `The Trump administration had faced growing bipartisan pressure, including from 10 Senate Republicans.`\
 https://nytimes.com/2025/07/25/us/education-funds-released-white-house.html

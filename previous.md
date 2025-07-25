@@ -1,3 +1,7 @@
+**Valkyries' Kayla Thornton to miss rest of season after knee surgery**\
+`Thornton, a nine-year veteran, was an All-Star for the first time this season and led the Valkyries in points, rebounds and steals.`\
+https://nytimes.com/athletic/6515867/2025/07/25/valkyries-kayla-thornton-to-miss-season/
+
 **White House Will Release $5.5 Billion for Schools, After Surprise Delay**\
 `The Trump administration had faced growing bipartisan pressure, including from 10 Senate Republicans.`\
 https://nytimes.com/2025/07/25/us/education-funds-released-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/senate-trump-republicans.html
 **Controversial Interior Department Aide From DOGE to Leave Agency**\
 `Tyler Hassen, a former oil executive who had spent time on Elon Musk’s cost-cutting team, faced criticism because he had been given broad authority to make changes at the department.`\
 https://nytimes.com/2025/07/25/climate/doge-interior-tyler-hassen.html
-
-**9-Year-Old Girl Dies in Wave Pool at Hersheypark in Pennsylvania**\
-`Lifeguards noticed that the girl was in distress and tried to rescue her, according to the park, which said that the pool remained closed on Friday.`\
-https://nytimes.com/2025/07/25/us/hersheypark-boardwalk-child-death.html
 
