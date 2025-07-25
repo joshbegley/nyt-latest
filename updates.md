@@ -1,3 +1,15 @@
+**Bills Day 3 observations: Competition heats up at CB, WR; a message is sent to backup LBs**\
+`Outside of Khalil Shakir, how have the wide receivers looked in camp?`\
+https://nytimes.com/athletic/6515898/2025/07/25/bills-day-3-observations-competition-heats-up-at-cb-wr-linebacker/
+
+**House Republicans Begin Uphill Effort to Sell Tax Law to Voters**\
+`With lawmakers out of Washington for a five-week summer recess, a field hearing in a swing state gave G.O.P. lawmakers a controlled environment for pitching a measure that polls show is unpopular.`\
+https://nytimes.com/2025/07/25/us/politics/las-vegas-republicans-taxes-trump-bill.html
+
+**Shemar Stewart, Bengals agree to 4-year deal, ending contract standoff: Source**\
+`The move is a big step for Stewart, who left the Bengals' mandatory minicamp earlier this week due to the unsigned contract.`\
+https://nytimes.com/athletic/6516228/2025/07/25/shemar-stewart-bengals-deal-contract-standoff/
+
 **Jordan Watkins’ summer challenge: Win over 49ers coach who doesn’t love rookie WRs**\
 `The biggest note from Friday: Brock Purdy was missing due to a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
 https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
