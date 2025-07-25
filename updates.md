@@ -1,3 +1,15 @@
+**Mother Arrested in Connection With Deaths of 2 Newborn Boys in the Bronx**\
+`Stephanie Castillo, the mother of the infants, according to a law enforcement official, was charged with murder. The boys were found behind an apartment building in 2020.`\
+https://nytimes.com/2025/07/25/nyregion/bronx-infant-deaths-mother-arrested.html
+
+**Election Officials Allege Possible Voter Fraud in Republican Primary**\
+`The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in South Brooklyn.`\
+https://nytimes.com/2025/07/25/nyregion/election-fraud-new-york-city-council.html
+
+**Judge Demands Answers About Deal to Return MS-13 Gang Leaders to El Salvador**\
+`Federal prosecutors are seeking to drop narco-terrorism charges against a man they have alleged is one of the gang’s leaders.`\
+https://nytimes.com/2025/07/25/nyregion/bukele-ms-13-trump-deal.html
+
 **After Ghislaine Maxwell Interview, Concerns Mount Over Possibility of Pardon**\
 `President Trump, asked whether he would consider pardoning her, said, “I’m allowed to do it, but it’s something I haven’t thought about.”`\
 https://nytimes.com/2025/07/25/us/politics/ghislaine-maxwell-trump-pardon.html

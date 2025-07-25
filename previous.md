@@ -1,3 +1,15 @@
+**Mother Arrested in Connection With Deaths of 2 Newborn Boys in the Bronx**\
+`Stephanie Castillo, the mother of the infants, according to a law enforcement official, was charged with murder. The boys were found behind an apartment building in 2020.`\
+https://nytimes.com/2025/07/25/nyregion/bronx-infant-deaths-mother-arrested.html
+
+**Election Officials Allege Possible Voter Fraud in Republican Primary**\
+`The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in South Brooklyn.`\
+https://nytimes.com/2025/07/25/nyregion/election-fraud-new-york-city-council.html
+
+**Judge Demands Answers About Deal to Return MS-13 Gang Leaders to El Salvador**\
+`Federal prosecutors are seeking to drop narco-terrorism charges against a man they have alleged is one of the gang’s leaders.`\
+https://nytimes.com/2025/07/25/nyregion/bukele-ms-13-trump-deal.html
+
 **Bipartisan Pair of House Members to Meet With Sheinbaum in Mexico**\
 `The visit by Representatives Don Bacon of Nebraska and Ro Khanna of California is aimed at tamping down tensions stoked by President Trump on trade and immigration.`\
 https://nytimes.com/2025/07/25/us/politics/congressmen-sheinbaum-mexico.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zel
 **What does Trump's college sports executive order mean? Breaking down the impact**\
 `What you need to know about President Trump's college sports executive order.`\
 https://nytimes.com/athletic/6515871/2025/07/25/trump-college-sports-executive-order-explained/
-
-**Top 2026 recruit Saniyah Hall commits to USC women’s basketball**\
-`The 6-foot-1 forward out of Spire Institute signed a deal with Jordan Brand earlier this month.`\
-https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/
-
-**De Paul joins Inter Miami from Atletico Madrid**\
-`De Paul links up with his Argentina international team-mate and close friend Lionel Messi.`\
-https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-transfer-atletico-madrid/
-
-**Rex White, Hailed as One of NASCAR’s Greatest Drivers, Dies at 95**\
-`He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
-https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
 
