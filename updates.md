@@ -1,3 +1,11 @@
+**Tour de France, stage 19: Arensman wins at La Plagne, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
+`Analysis of the latest day's action in the 2025 race - a truncated 93km stage from Albertville to La Plagne`\
+https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
+
+**Mets address bullpen need by acquiring lefty Gregory Soto from Orioles**\
+`The Orioles receive minor-league pitchers Wellington Aracena and Cameron Foster in return for Soto, who is a pending free agent.`\
+https://nytimes.com/athletic/6515693/2025/07/25/mets-orioles-trade-gregory-soto/
+
 **Lionel Messi, Jordi Alba suspended by MLS for skipping All-Star Game**\
 `Both stars skipped MLS's All-Star Game despite being fit to play, and they've been punished in accordance with league rules`\
 https://nytimes.com/athletic/6515641/2025/07/25/messi-jordi-alba-suspended-mls-all-star-game-miami-cincinnati/

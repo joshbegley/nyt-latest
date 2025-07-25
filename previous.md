@@ -1,3 +1,7 @@
+**Tour de France, stage 19: Arensman wins at La Plagne, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
+`Analysis of the latest day's action in the 2025 race - a truncated 93km stage from Albertville to La Plagne`\
+https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
+
 **Lionel Messi, Jordi Alba suspended by MLS for skipping All-Star Game**\
 `Both stars skipped MLS's All-Star Game despite being fit to play, and they've been punished in accordance with league rules`\
 https://nytimes.com/athletic/6515641/2025/07/25/messi-jordi-alba-suspended-mls-all-star-game-miami-cincinnati/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6515641/2025/07/25/messi-jordi-alba-suspended-mls-a
 https://nytimes.com/2025/07/25/arts/dance/national-ballet-of-japan-giselle-london.html
 
 **Mets address bullpen need by acquiring lefty Gregory Soto from Orioles**\
-`After adding Soto, the Mets still eye multiple additions to their bullpen.`\
+`The Orioles receive minor-league pitchers Wellington Aracena and Cameron Foster in return for Soto, who is a pending free agent.`\
 https://nytimes.com/athletic/6515693/2025/07/25/mets-orioles-trade-gregory-soto/
 
 **Justice Dept. Officials File Suit, Saying They Were Dismissed Unlawfully**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/politics/media-matters-musk-crisis.html
 **How Red Bull adjusts to F1 life after Christian Horner: 'It was a shock to me'**\
 `The drivers, team workers and new boss all try to look forward as the Belgian GP (and another era) gets underway `\
 https://nytimes.com/athletic/6515485/2025/07/25/christian-horner-red-bull-firing-reactions-f1/
-
-**Davante Adams, Travis Hunter and more best buys on cusp of fantasy football draft season**\
-`According to Michael Salfino, new Ram Davante Adams is showing no signs of age-based decline and is one to target in fantasy drafts.`\
-https://nytimes.com/athletic/6515540/2025/07/25/fantasy-football-best-buys-values-adp-adams-hunter/
 
