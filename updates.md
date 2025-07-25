@@ -1,3 +1,7 @@
+**Austin Ekeler, NFLPA executive committee member, says the union remains in good hands**\
+`The Washington Commanders running back also defended the search process that ended with Lloyd Howell's hiring in 2023.`\
+https://nytimes.com/athletic/6515650/2025/07/25/austin-ekeler-nflpa-leadership-search/
+
 **Robert W. Fuller, Who Championed Dignity Over ‘Rankism,’ Dies at 88**\
 `He identified as a “citizen diplomat” and preached mutual respect because, he explained, “everybody is a somebody.”`\
 https://nytimes.com/2025/07/25/books/robert-w-fuller-dead.html
