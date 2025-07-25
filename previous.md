@@ -1,40 +1,40 @@
-**Leeds make bid of more than €30m for Feyenoord winger Igor Paixao**\
-`Talks between Leeds, Feyenoord and Paixao’s representatives have been ongoing since last week.`\
-https://nytimes.com/athletic/6515180/2025/07/25/igor-paixao-leeds-united-bid-feyenoord-transfer/
+**Phillies stock report as second half heats up: Who's up, who's down?**\
+`Bryce Harper is heating up, and as Jesús Luzardo has said multiple times: “When Bryce goes, I think the whole team goes.”`\
+https://nytimes.com/athletic/6514491/2025/07/25/phillies-stock-report-realmuto-harper-stott/
 
-**Manchester City-bound James Trafford: Breaking down how his game developed at Burnley**\
-`The young goalkeeper is on course to return to the Etihad Stadium - and his game has evolved since he last played in the Premier League`\
-https://nytimes.com/athletic/6510431/2025/07/25/james-trafford-goalkeeper-burnley-manchester-city/
+**Aaron Judge is the world's best hitter. He's just as valuable to Yankees as a hitting coach**\
+`In hitters meetings, the Yankees' captain elevates everyone. “It’s cool to see what his process is, what he thinks about when he’s hitting."`\
+https://nytimes.com/athletic/6502960/2025/07/25/aaron-judge-yankees-hitters-meetings/
 
-**The Style That Stopped Us**\
-`Text by Simbarashe Cha`\
-https://nytimes.com/card/2025/07/25/style/street-style-look-of-the-week
+**Sliders: For new Hall class, growing the game means rethinking the way in**\
+`Asked about the future of their craft, Ichiro Suzuki, CC Sabathia and Billy Wagner discussed the wide-ranging impact of youth development.`\
+https://nytimes.com/athletic/6508959/2025/07/25/baseball-hall-of-fame-ichiro-sabathia-wagner-sliders/
 
-**Neymar alleges fan called him a 'mercenary' in exchange after Santos loss**\
-`"Saying that I'm a mercenary with my father, talking about my family/friends. I'm sorry but it's hard to control," Neymar, 33, said.`\
-https://nytimes.com/athletic/6515172/2025/07/25/neymar-santos-fan-altercation/
+**On MLB draft day, Tyler Bremner was thrilled to go second. And he wished his mom was there**\
+`Tyler Bremner was picked by the Angels on July 13. Three days earlier, his family had held a celebration of life for his mother, Jen. `\
+https://nytimes.com/athletic/6513680/2025/07/25/angels-draft-tyler-bremner-mother/
 
-**How to watch this weekend's Mets at Giants series, with a 'Sunday Night Baseball' finale**\
-`The Mets and Giants have a pitching-dominant three-game series coming up, with Sunday's finale on national TV.`\
-https://nytimes.com/athletic/6514435/2025/07/25/giants-mets-alonso-lindor-soto-devers-webb-ray-how-to-watch/
+**When he didn't pick Ichiro for Rookie of the Year, a writer became the story**\
+`In Japan, many agreed with Chris Assenheimer's stance that Ichiro wasn't a true rookie. In the US, it didn't go over quite that well. `\
+https://nytimes.com/athletic/6513497/2025/07/25/ichiro-sabathia-hall-of-fame-rookie-of-the-year-2001/
 
-**Was This Artifact From King Tut’s Tomb? It’s for Sale Anyway.**\
-`A London auction house says there is “no documented evidence” that an intricately carved grasshopper is from the boy king’s tomb. Its estimated price is up to $675,000.`\
-https://nytimes.com/2025/07/25/arts/design/king-tutankhamen-guennol-grasshopper-auction.html
+**Joey Aguilar nearly quit football to become a fireman — now he's on the sport's biggest stage**\
+`Aguilar entered the transfer portal in April and landed at Tennessee, creating a de facto quarterback trade between the Vols and Bruins.`\
+https://nytimes.com/athletic/6510652/2025/07/25/tennessee-qb-transfer-joey-aguilar-ucla/
 
-**Arsenal reach full Gyokeres agreement, medical expected this weekend**\
-`Gyokeres, 27, is expected to take the No 14 at Arsenal.`\
-https://nytimes.com/athletic/6510398/2025/07/25/arsenal-transfer-viktor-gyokeres-sporting-deal/
+**Did South Carolina, no stranger to recruiting drama, find its next LaNorris Sellers?**\
+`South Carolina's current starter, LaNorris Sellers, didn't receive an offer from the home-state Gamecocks until October of his senior year. `\
+https://nytimes.com/athletic/6513795/2025/07/25/south-carolina-recruiting-landon-duckworth-lanorris-sellers/
 
-**How to watch the Dodgers at Red Sox series, with Kershaw vs. Crochet on national TV**\
-`There's much to like about this series between the Dodgers and Red Sox, but Saturday's national TV duel of lefties is the headliner.`\
-https://nytimes.com/athletic/6514436/2025/07/25/dodgers-red-sox-ohtani-kershaw-crochet-fenway-how-to-watch/
+**The 3 preseason San Francisco Giants predictions I wish I'd made**\
+`It's for the best that I don't remember any of my preseason predictions. What I do remember are the educated guesses and half-baked hunches.`\
+https://nytimes.com/athletic/6511727/2025/07/25/sf-giants-three-preseason-predictions/
 
-**Man City to sign goalkeeper Trafford from Burnley**\
-`The 22-year-old has agreed a five-year deal plus the option of a further 12 months to return to the club he left in June 2023.`\
-https://nytimes.com/athletic/5533703/2025/07/25/james-trafford-man-city-transfer/
+**Getting a new CBA without a lockout is bad, actually: The Contrarian returns**\
+`Plus: The 4 Nations Face-Off was a dud, the decentralized draft was amazing, comment sections are the best and more fake arguments.`\
+https://nytimes.com/athletic/6513669/2025/07/25/nhl-new-cba-lockout-stanley-cup/
 
-**What's fueling Dak Prescott? Winning a Super Bowl, building rapport with George Pickens**\
-`Prescott is entering his 10th season and winning it all is at the forefront: "I know it’s what everyone wants in the locker room."`\
-https://nytimes.com/athletic/6514736/2025/07/25/cowboys-dak-prescott-super-bowl/
+**The Rule 5, the MVP and the Miz: How the Brewers became the hottest team in baseball**\
+`The Brewers have surged to the top of the standings through a combination of shrewd pickups, veteran bounce-backs and so much pitching. `\
+https://nytimes.com/athletic/6513162/2025/07/25/brewers-hot-streak-misiorowski-yelich-peralta/
 
