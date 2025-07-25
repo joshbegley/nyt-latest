@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About ‘The Catch,’ by Yrsa Daley-Ward**\
+`The poet’s debut novel features estranged sisters and a missing mother who seemingly reappears decades later.`\
+https://nytimes.com/2025/07/25/books/review/podcast-book-club-yrsa-daley-ward-catch.html
+
 **Shunsaku Tamiya, Who Brought Perfection to Plastic Models, Dies at 90**\
 `He turned his family’s lumber business into a manufacturer of model kits that won global popularity for their quality and historical accuracy.`\
 https://nytimes.com/2025/07/25/world/asia/shunsaku-tamiya-plastic-models-dies.html
