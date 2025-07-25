@@ -1,3 +1,7 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 7/25 at 2 p.m. ET**\
+`Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
+https://nytimes.com/athletic/6514387/2025/07/25/sarris-live-chat-mlb-fantasy-baseball-7-25/
+
 **‘Happy Gilmore 2’ Review: Back on the Green**\
 `A Netflix sequel to Adam Sandler’s hit 1996 film briefly recaptures the warm silliness of the original, before devolving into a lazy fever dream of cameos.`\
 https://nytimes.com/2025/07/25/movies/happy-gilmore-2-review-back-on-the-green.html
