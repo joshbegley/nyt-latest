@@ -1,3 +1,11 @@
+**Mariners acquire slugging first baseman Josh Naylor from DBacks: Source**\
+`Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
+https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
+
+**Sam Darnold has the Seahawks believing, as he works to master the mundane**\
+`After a career season, Darnold is focused less on splash plays and more on the simple things, both on and off the field.`\
+https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-camp/
+
 **Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
 `The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
 https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/24/us/politics/trump-supreme-court-nih-dei-grants.ht
 **Hulk Hogan’s Villain Turn Changed Pro Wrestling**\
 `Hulk Hogan cultivated an image as an all-American hero. But one night in 1996, he decided to stick it to his fans, brother.`\
 https://nytimes.com/2025/07/24/arts/hulk-hogan-nwo-heel.html
-
-**Astros are 'prioritizing the bats' as MLB's July 31 trade deadline nears**\
-`No major-league lineup has had fewer plate appearances by a left-handed hitter than Houston's.`\
-https://nytimes.com/athletic/6514560/2025/07/24/houston-astros-trade-deadline-priorities/
-
-**Kansas coach Bill Self hospitalized, has 2 stents inserted**\
-`Self, 62, was transported to the hospital after he "felt unwell and experienced some concerning symptoms," the school said.`\
-https://nytimes.com/athletic/6514507/2025/07/24/bill-self-kansas-health-hospital/
 
