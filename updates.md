@@ -1,3 +1,11 @@
+**The Style That Stopped Us**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/07/25/style/street-style-look-of-the-week
+
+**Neymar alleges fan called him a 'mercenary' in exchange after Santos loss**\
+`"Saying that I'm a mercenary with my father, talking about my family/friends. I'm sorry but it's hard to control," Neymar, 33, said.`\
+https://nytimes.com/athletic/6515172/2025/07/25/neymar-santos-fan-altercation/
+
 **How to watch this weekend's Mets at Giants series, with a 'Sunday Night Baseball' finale**\
 `The Mets and Giants have a pitching-dominant three-game series coming up, with Sunday's finale on national TV.`\
 https://nytimes.com/athletic/6514435/2025/07/25/giants-mets-alonso-lindor-soto-devers-webb-ray-how-to-watch/
