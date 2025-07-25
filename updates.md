@@ -1,3 +1,11 @@
+**Red Sox trade scenarios: Jim Bowden assesses proposals for Mitch Keller, Merrill Kelly and more**\
+`We asked former GM Jim Bowden for his insights on a few trade proposals to address Boston's key needs.`\
+https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-keller-merrill-kelly/
+
+**Amorim insists Man Utd's 'bomb squad' will not be sold on the cheap**\
+`Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia have been left out of United’s travelling party to the United States.`\
+https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-transfers-sales/
+
 **Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
 `ASHBURN, Va.`\
 https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
