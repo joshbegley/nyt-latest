@@ -1,3 +1,7 @@
+**What Did Trump’s Hard-Hat Tour of the Fed Accomplish?**\
+`The president wanted to take Jerome Powell, the Fed chair, to task over the cost of renovations to the central bank’s headquarters, but Mr. Powell was having none of it.`\
+https://nytimes.com/2025/07/25/business/dealbook/what-did-trumps-hard-hat-tour-of-the-fed-accomplish.html
+
 **Fantasy baseball waiver wire: Starting pitcher pickups for every league**\
 `Here's an attempt to find you a pickup, no matter how deep or shallow your waiver wire looks right now.`\
 https://nytimes.com/athletic/6513646/2025/07/25/fantasy-baseball-starting-pitcher-pickup-sarris/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/07/25/books/review/podcast-book-club-yrsa-daley-ward-ca
 **Shunsaku Tamiya, Who Brought Perfection to Plastic Models, Dies at 90**\
 `He turned his family’s lumber business into a manufacturer of model kits that won global popularity for their quality and historical accuracy.`\
 https://nytimes.com/2025/07/25/world/asia/shunsaku-tamiya-plastic-models-dies.html
-
-**Viktor Gyokeres battled to be Arsenal’s striker of choice – that desire may prove a special power**\
-`Gyokeres, Arsenal and Sesko have been in a weird love triangle, but the club have finally agreed a deal for the Swede. He really wants it`\
-https://nytimes.com/athletic/6485860/2025/07/25/viktor-gyokeres-arsenal-transfer-decision/
 
