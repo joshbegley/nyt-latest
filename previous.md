@@ -1,3 +1,11 @@
+**‘Happy Gilmore 2’ Review: Back on the Green**\
+`A Netflix sequel to Adam Sandler’s hit 1996 film briefly recaptures the warm silliness of the original, before devolving into a lazy fever dream of cameos.`\
+https://nytimes.com/2025/07/25/movies/happy-gilmore-2-review-back-on-the-green.html
+
+**Gary Smith, Master Producer of TV Entertainment, Dies at 90**\
+`In his nearly long partnership with Dwight Hemion, he produced specials, awards shows and extravaganzas, winning numerous Emmy Awards. He also won several on his own.`\
+https://nytimes.com/2025/07/25/arts/television/gary-smith-dead.html
+
 **Tour de France, stage 19: Arensman wins at La Plagne, Lipowitz defends podium from Onley, why did Vingegaard leave it so late?**\
 `Analysis of the latest day's action in the 2025 race - a truncated 93km stage from Albertville to La Plagne`\
 https://nytimes.com/athletic/6515321/2025/07/25/tour-de-france-stage-19-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/25/books/robert-w-fuller-dead.html
 **Cleo Laine, Acclaimed British Jazz Singer, Is Dead at 97**\
 `Known for a smoky voice that she could deploy over four octaves, she recorded albums across six decades and also had success as an actress.`\
 https://nytimes.com/2025/07/25/arts/music/cleo-laine-dead.html
-
-**Under Siege From Trump and Musk, a Top Liberal Group Falls Into Crisis**\
-`Scrambling to pay legal fees, Media Matters has dialed back its criticism, trimmed its staff and contemplated closing entirely.`\
-https://nytimes.com/2025/07/25/us/politics/media-matters-musk-crisis.html
-
-**How Red Bull adjusts to F1 life after Christian Horner: 'It was a shock to me'**\
-`The drivers, team workers and new boss all try to look forward as the Belgian GP (and another era) gets underway `\
-https://nytimes.com/athletic/6515485/2025/07/25/christian-horner-red-bull-firing-reactions-f1/
 
