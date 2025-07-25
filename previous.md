@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-ke
 https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-transfers-sales/
 
 **Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
-`ASHBURN, Va.`\
+`In terms of learning, refining techniques and executing, the first-round rookie describes himself as encouraged early in training camp. `\
 https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
 
 **Live Q&A: Talking baseball with Eno Sarris on Friday 7/25 at 2 p.m. ET**\

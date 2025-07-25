@@ -1,3 +1,7 @@
+**Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
+`In terms of learning, refining techniques and executing, the first-round rookie describes himself as encouraged early in training camp. `\
+https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
+
 **Controversial Interior Department Aide From DOGE to Leave Agency**\
 `Tyler Hassen, a former oil executive who had spent time on Elon Musk’s cost-cutting team, faced criticism because he had been given broad authority to make changes at the department.`\
 https://nytimes.com/2025/07/25/climate/doge-interior-tyler-hassen.html
