@@ -1,3 +1,11 @@
+**Shame and Humiliation at a Coldplay Show**\
+`Readers respond an essay about the exposure of an affair at a Coldplay concert. Also: Black and proud; stories of illness.`\
+https://nytimes.com/2025/07/25/opinion/coldplay-affair-shame-humiliation.html
+
+**Always Late? Blame Your Time Personality.**\
+`Some people are punctual, others flexible. The reason, experts say, is that we relate to the clock in different ways.`\
+https://nytimes.com/2025/07/25/well/live/time-personality-polychronic-monochronic.html
+
 **Watch Joaquin Phoenix and Pedro Pascal Fight to Katy Perry in ‘Eddington’**\
 `The writer and director Ari Aster narrates a sequence that features Perry’s pop song “Firework.”`\
 https://nytimes.com/2025/07/25/movies/eddington-clip.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/25/us/alligator-alcatraz-deportation-flights.html
 **Euro 2025: Following Swiss travel advice from Switzerland and Arsenal midfielder Lia Walti**\
 `The Athletic tries out Switzerland travel suggestions from Arsenal midfielder Lia Walti `\
 https://nytimes.com/athletic/6514218/2025/07/25/switzerland-lia-walti-travel-euros/
-
-**Texas Democrats to Confer With California and Illinois Governors on Redistricting**\
-`Two groups of Democrats left Texas to confer with Govs. Gavin Newsom and JB Pritzker, who have suggested their Democratic-controlled states could counter a Texas Republican gerrymander.`\
-https://nytimes.com/2025/07/25/us/texas-democrats-redistricting.html
-
-**Russia Again Cuts Interest Rates as Its Economy Slows**\
-`Falling inflation has persuaded the central bank in Moscow to continue relaxing the country’s record borrowing costs.`\
-https://nytimes.com/2025/07/25/world/europe/russia-interest-rates.html
 
