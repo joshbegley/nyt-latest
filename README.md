@@ -1,3 +1,23 @@
+**Columbia Walked a Tightrope on Its Way to a $200 Million Settlement With Trump**\
+`Talks in Washington. An expert on negotiation. A balancing act. The university chose cooperation over litigation, a strategy both pilloried and praised.`\
+https://nytimes.com/2025/07/25/nyregion/how-columbia-reached-a-deal.html
+
+**Ahead of Shutdown Deadline, Democrats Face a Dilemma on Spending**\
+`Democrats are leery of supporting Republican spending measures after the White House forced through clawbacks of funding already approved by Congress.`\
+https://nytimes.com/2025/07/25/us/politics/shutdown-deadline-spending-congress.html
+
+**The Gen Z New Yorkers Selling Their Parents on Mamdani**\
+`Young voters went for Zohran Mamdani by a large margin. Can they persuade their parents to do the same?`\
+https://nytimes.com/2025/07/25/nyregion/zohran-mamdani-older-voters.html
+
+**Documenting the Effects of Extreme Heat in Pakistan**\
+`A reporter followed a ride-hailing motorcycle driver in Karachi, where temperatures regularly exceed 104 degrees Fahrenheit.`\
+https://nytimes.com/2025/07/25/insider/pakistan-heat.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/25/crosswords/spelling-bee-forum.html
+
 **Australia Says Gaza Situation Beyond ‘Worst Fears’ as Pressure Mounts on Israel**\
 `Some of Israel’s closest allies have stepped up criticism of its restrictions on aid to Gaza, where doctors and aid organizations say people are dying of starvation.`\
 https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-starvation-canada-australia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6514466/2025/07/25/manchester-united-mason-mount-in
 **Five Gins We Love **\
 `Text by Lesley Stockton`\
 https://nytimes.com/card/2025/07/25/smarter-living/wirecutter/
-
-**Peace Negotiations in Ukraine Haven’t Failed. They Haven’t Really Started.**\
-`No one knows what Putin would accept to end his invasion of Ukraine if he were presented with a real negotiation process.`\
-https://nytimes.com/2025/07/25/opinion/ukraine-war-negotiations-trump.html
-
-**The New York Times in Print for Friday, July 25, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/25/todays-new-york-times
-
-**Why Oscar Onley could be the Tour de France's most surprising podium finisher for years**\
-`The young Scot is now only 22 seconds behind third-placed Florian Lipowitz, with three stages of the race remaining`\
-https://nytimes.com/athletic/6513971/2025/07/25/oscar-onley-tour-de-france/
-
-**At Least 16 People Dead as Thailand’s Clashes With Cambodia Enter Second Day**\
-`The conflict along the border is the deadliest between the two nations in 14 years.`\
-https://nytimes.com/2025/07/25/world/asia/thailand-cambodia-border-death-toll.html
-
-**Tour de France Femmes 2025 preview: Schedule, yellow jersey contenders, riders to watch and more**\
-`The nine-stage race is the final grand tour of the season and will be covered here on The Athletic.`\
-https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-preview-schedule-riders/
 
