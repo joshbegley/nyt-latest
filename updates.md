@@ -1,3 +1,7 @@
+**Volkswagen Hit Hard by Trump’s Tariffs**\
+`The German automaker said that the U.S. import duties erased about $1.5 billion from its profit in the first half of the year.`\
+https://nytimes.com/2025/07/25/business/volkswagen-auto-tariffs-trump.html
+
 **How to watch the final stages of the 2025 Tour de France this weekend**\
 `The 2025 Tour de France is down to its final three stages, and the yellow jersey is still up for grabs.`\
 https://nytimes.com/athletic/6514351/2025/07/25/tour-de-france-final-stages-2025-how-to-watch-weekend/
