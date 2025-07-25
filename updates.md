@@ -1,3 +1,11 @@
+**Why Zelensky Backtracked on His Controversial Law**\
+`Facing growing pressure amid nationwide protests, President Volodymyr Zelensky of Ukraine backtracked on controversial legislation that would have weakened the country’s independent anticorruption institutions.`\
+https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zelensky.html
+
+**What does Trump's college sports executive order mean? Breaking down the impact**\
+`“President Donald J.`\
+https://nytimes.com/athletic/6515871/2025/07/25/trump-college-sports-executive-order-explained/
+
 **Top 2026 recruit Saniyah Hall commits to USC women’s basketball**\
 `The 6-foot-1 forward out of Spire Institute signed a deal with Jordan Brand earlier this month.`\
 https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/

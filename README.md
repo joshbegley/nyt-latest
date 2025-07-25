@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zelensky.html
 
 **What does Trump's college sports executive order mean? Breaking down the impact**\
-`“President Donald J.`\
+`What you need to know about President Trump's college sports executive order.`\
 https://nytimes.com/athletic/6515871/2025/07/25/trump-college-sports-executive-order-explained/
 
 **Top 2026 recruit Saniyah Hall commits to USC women’s basketball**\
