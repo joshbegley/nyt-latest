@@ -1,3 +1,11 @@
+**Federal Judge Dismisses Trump Administration’s Challenge of Illinois Sanctuary Measures**\
+`The Justice Department had sued the leaders of Illinois, Chicago and Cook County over policies that limit cooperation with federal immigration officials.`\
+https://nytimes.com/2025/07/25/us/illinois-sanctuary-trump-immigration-lawsuit.html
+
+**Packers training camp: Brandon McManus stays perfect and 8 more observations**\
+`The veteran kicker, who celebrated his 34th birthday Friday, has made all 15 kicks during team periods.`\
+https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/
+
 **Mother Arrested in Connection With Deaths of 2 Newborn Boys in the Bronx**\
 `Stephanie Castillo, the mother of the infants, according to a law enforcement official, was charged with murder. The boys were found behind an apartment building in 2020.`\
 https://nytimes.com/2025/07/25/nyregion/bronx-infant-deaths-mother-arrested.html

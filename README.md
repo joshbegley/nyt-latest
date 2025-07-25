@@ -7,7 +7,7 @@ https://nytimes.com/2025/07/25/us/illinois-sanctuary-trump-immigration-lawsuit.h
 https://nytimes.com/2025/07/25/nyregion/bronx-infant-deaths-mother-arrested.html
 
 **Election Officials Allege Possible Voter Fraud in Republican Primary**\
-`The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in South Brooklyn.`\
+`The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in southern Brooklyn.`\
 https://nytimes.com/2025/07/25/nyregion/election-fraud-new-york-city-council.html
 
 **Judge Demands Answers About Deal to Return MS-13 Gang Leaders to El Salvador**\
