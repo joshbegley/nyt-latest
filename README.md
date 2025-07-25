@@ -1,3 +1,7 @@
+**What Does It Take to Make Your Own Embassy? In India, Not Much.**\
+`For almost eight years, an Indian man hid a range of criminal activities behind fake diplomatic missions before finally being caught this week.`\
+https://nytimes.com/2025/07/24/world/asia/india-fake-embassy.html
+
 **Chargers training camp report, Day 7: Interior defensive line depth shines**\
 `Teair Tart, Justin Eboigbe and Otito Ogbonnia and others are giving the Chargers confidence in their defensive line group.`\
 https://nytimes.com/athletic/6514853/2025/07/24/chargers-training-camp-defensive-line/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-ca
 **Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
 `The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
 https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
-
-**Trump’s Name Is on Contributor List for Epstein Birthday Book**\
-`The Times also reviewed other records of the president’s friendship with Jeffrey Epstein, including an inscription in which the future president called him “the greatest.”`\
-https://nytimes.com/2025/07/24/us/politics/trump-epstein-birthday-book.html
 
