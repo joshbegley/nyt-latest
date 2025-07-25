@@ -1,7 +1,3 @@
-**Behind Deadly Clashes, a Bitter Spat Between Two Dynastic Leaders**\
-`A personal feud between two of Southeast Asia’s political titans is inflaming the worst violence on the border in more than a decade.`\
-https://nytimes.com/2025/07/25/world/asia/thailand-cambodia-clashes-dynasties.html
-
 **The New York Times International Edition in Print for Saturday, July 26, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/07/25/todays-new-york-times-international-edition
@@ -37,4 +33,8 @@ https://nytimes.com/2025/07/25/opinion/trump-texas-congressional-districts.html
 **The Conservative Crusade That’s About So Much More Than Epstein**\
 `The long history of the right’s obsession with child trafficking means it won’t be easy for Trump to make this story disappear.`\
 https://nytimes.com/2025/07/25/magazine/the-conservative-crusade-thats-about-so-much-more-than-epstein.html
+
+**New York Historical Acquires Bill Cunningham Archive**\
+`Tens of thousands of photos, negatives and memorabilia from the New York Times photographer (himself designated a living landmark) will go to the museum and have a permanent home.`\
+https://nytimes.com/2025/07/25/arts/design/new-york-historical-bill-cunningham-archive.html
 
