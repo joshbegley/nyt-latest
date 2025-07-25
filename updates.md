@@ -1,3 +1,11 @@
+**‘And Just Like That …’ Season 3, Episode 9 Recap: Smoke Gets in Your Eyes**\
+`In an episode full of callbacks, Carrie and Aidan wonder whether they can move forward.`\
+https://nytimes.com/2025/07/24/arts/television/and-just-like-that-recap-season-3-episode-9.html
+
+**Sam Darnold has the Seahawks believing as he works to master the mundane**\
+`After a career season, Darnold is focused less on splash plays and more on the simple things, on and off the field.`\
+https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-camp/
+
 **Mets mailbag, trade deadline edition: Clay Holmes' role, Mark Vientos' future, lineup upgrade?**\
 `Plus questions on Dylan Cease as a starter and possible rumblings on an extension for David Peterson.`\
 https://nytimes.com/athletic/6514282/2025/07/24/mets-trade-deadline-clay-holmes-mark-vientos-lineup/
