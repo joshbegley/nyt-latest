@@ -1,3 +1,7 @@
+**Thousands Flee Thailand-Cambodia Border Amid Deadly Conflict**\
+`More than 100,000 people have fled a disputed border area between Thailand and Cambodia as fighting there entered a second day. The clashes have been the deadliest between the two nations in at least a decade.`\
+https://nytimes.com/video/world/asia/100000010305859/thousands-flee-thailand-cambodia-border-amid-deadly-conflict.html
+
 **The Pulse: Summer sports TV matchmaker**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6514977/2025/07/25/sports-tv-shows-guide-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515264/2025/07/25/wrexham-christian-eriksen-transf
 **Hulk Hogan Couldn’t Be Contained by Clothes**\
 `His look was jokey, but it was no joke.`\
 https://nytimes.com/2025/07/25/style/hulk-hogan-style.html
-
-**What Did Trump’s Hard-Hat Tour of the Fed Accomplish?**\
-`The president wanted to take Jerome Powell, the Fed chair, to task over the cost of renovations to the central bank’s headquarters, but Mr. Powell was having none of it.`\
-https://nytimes.com/2025/07/25/business/dealbook/trump-fed-tour-powell.html
 
