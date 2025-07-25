@@ -1,3 +1,7 @@
+**How to watch this weekend's Mets at Giants series, with a 'Sunday Night Baseball' finale**\
+`The Mets and Giants have a pitching-dominant three-game series coming up, with Sunday's finale on national TV.`\
+https://nytimes.com/athletic/6514435/2025/07/25/giants-mets-alonso-lindor-soto-devers-webb-ray-how-to-watch/
+
 **Was This Artifact From King Tut’s Tomb? It’s for Sale Anyway.**\
 `A London auction house says there is “no documented evidence” that an intricately carved grasshopper is from the boy king’s tomb. Its estimated price is up to $675,000.`\
 https://nytimes.com/2025/07/25/arts/design/king-tutankhamen-guennol-grasshopper-auction.html
