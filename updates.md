@@ -1,3 +1,11 @@
+**Face to Face, Powell Told Trump He Was Wrong. About a Real Estate Project.**\
+`President Trump is used to world leaders bowing down to him, and to cabinet members fawning over him. Jerome H. Powell, the chair of the Federal Reserve, took a different approach.`\
+https://nytimes.com/2025/07/24/us/politics/trump-powell-real-estate.html
+
+**Fired FEMA Official Files Suit, Saying Board to Hear Worker Disputes Is Paralyzed**\
+`Fired employees have struggled to get a judge to hear their cases because Congress set up a separate system to referee such employment disputes.`\
+https://nytimes.com/2025/07/24/us/politics/fema-trump-merit-systems-protection-board.html
+
 **Trump Administration Asks Supreme Court to Allow N.I.H. to Cut D.E.I.-Related Grants**\
 `A district court judge declared some of the administration’s cuts ‘void and illegal.’`\
 https://nytimes.com/2025/07/24/us/politics/trump-supreme-court-nih-dei-grants.html

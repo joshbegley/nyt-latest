@@ -1,7 +1,3 @@
-**Trump Administration Asks Supreme Court to Allow N.I.H. to Cut D.E.I.-Related Grants**\
-`A district court judge declared some of the administration’s cuts ‘void and illegal.’`\
-https://nytimes.com/2025/07/24/us/politics/trump-supreme-court-nih-dei-grants.html
-
 **Hulk Hogan’s Villain Turn Changed Pro Wrestling**\
 `Hulk Hogan cultivated an image as an all-American hero. But one night in 1996, he decided to stick it to his fans, brother.`\
 https://nytimes.com/2025/07/24/arts/hulk-hogan-nwo-heel.html
@@ -14,7 +10,7 @@ https://nytimes.com/athletic/6514560/2025/07/24/houston-astros-trade-deadline-pr
 `Self, 62, was transported to the hospital after he "felt unwell and experienced some concerning symptoms," the school said.`\
 https://nytimes.com/athletic/6514507/2025/07/24/bill-self-kansas-health-hospital/
 
-**Face to Face, Powell Told Trump He Was Wrong About a Construction Project**\
+**Face to Face, Powell Told Trump He Was Wrong. About a Real Estate Project.**\
 `President Trump is used to world leaders bowing down to him, and to cabinet members fawning over him. Jerome H. Powell, the chair of the Federal Reserve, took a different approach.`\
 https://nytimes.com/2025/07/24/us/politics/trump-powell-real-estate.html
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6514303/2025/07/24/49ers-training-camp-dee-winters-
 **Hulk Hogan, Pro Wrestling Legend, Dies at 71**\
 `Hulk Hogan, once the cornerstone of professional wrestling, passed away at the age of 71 after suffering a cardiac arrest. His flamboyant personality and star power helped transform professional wrestling from a low-budget regional attraction into a multibillion-dollar industry.`\
 https://nytimes.com/video/obituaries/100000010304186/hulk-hogan-dies.html
+
+**Fired FEMA Official Files Suit, Saying Board to Hear Worker Disputes Is Paralyzed**\
+`Fired employees have struggled to get a judge to hear their cases because Congress set up a separate system to referee such employment disputes.`\
+https://nytimes.com/2025/07/24/us/politics/fema-trump-merit-systems-protection-board.html
 
