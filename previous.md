@@ -1,3 +1,7 @@
+**For Late Night, Epstein-Trump Is the Comedy Gift That Keeps On Giving**\
+`Josh Johnson said that “not since Tupac Shakur has a dead man dropped so many bangers.”`\
+https://nytimes.com/2025/07/25/arts/television/late-night-jeffrey-epstein-donald-trump.html
+
 **Word of the Day: skulduggery**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/25/learning/word-of-the-day-skulduggery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-previ
 **What is Liverpool's first-team pathway for youngsters like Ngumoha?**\
 `How the Premier League champions convince talented youngsters that senior football is a possibility at Anfield`\
 https://nytimes.com/athletic/6508828/2025/07/25/liverpool-rio-ngumoha-pathway/
-
-**Friday Briefing: France to Recognize Palestinian Statehood**\
-`Plus, the global craze for matcha.`\
-https://nytimes.com/2025/07/25/briefing/france-gaza-palestinians-israel-thailand-cambodia-spacex-china.html
 

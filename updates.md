@@ -1,3 +1,7 @@
+**For Late Night, Epstein-Trump Is the Comedy Gift That Keeps On Giving**\
+`Josh Johnson said that “not since Tupac Shakur has a dead man dropped so many bangers.”`\
+https://nytimes.com/2025/07/25/arts/television/late-night-jeffrey-epstein-donald-trump.html
+
 **Word of the Day: skulduggery**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/25/learning/word-of-the-day-skulduggery.html
