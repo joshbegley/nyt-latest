@@ -1,3 +1,11 @@
+**Trump Administration Plans Changes to Skilled Worker Visas and Citizenship Tests**\
+`In an interview with The New York Times, the new director of U.S. Citizenship and Immigration Services said the test to become a U.S. citizen was too easy.`\
+https://nytimes.com/2025/07/25/us/trump-visas-h1b-citizenship-tests.html
+
+**Justin Jefferson misses practice with 'mild' hamstring strain**\
+`The 26-year-old wideout was held out of practice and will be re-evaluated next week. Kevin O’Connell says he'll be ready to play by Week 1.`\
+https://nytimes.com/athletic/6515957/2025/07/25/justin-jefferson-vikings-hamstring-injury/
+
 **NFL will fine players who sold Super Bowl tickets above market value**\
 `The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
 https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6515877/2025/07/25/michigan-western-germany-college
 **Outrage After Alabama 3-Year-Old Dies in Hot Car While in State’s Care**\
 `The boy, who was in foster care, was being transported between a supervised visit and day care, his aunt said. State lawmakers said they were seeking answers and the police were investigating.`\
 https://nytimes.com/2025/07/25/us/alabama-boy-death-hot-car.html
-
-**Shedeur Sanders 'keeping the focus where it needs to be' while awaiting for an opportunity**\
-`Sanders has been fourth in line early on in Cleveland's quarterback competition. `\
-https://nytimes.com/athletic/6515801/2025/07/25/browns-training-camp-shedeur-sanders/
-
-**Brandon Walter becomes 18th Astros player to land on injured list**\
-`No team in baseball currently has more players sidelined on the injured list than Houston. `\
-https://nytimes.com/athletic/6515952/2025/07/25/brandon-walter-astros-injured-list/
 
