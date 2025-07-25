@@ -1,3 +1,11 @@
+**The Generations of Pain I Felt in One Racist Moment**\
+`What it means to be both Black and white, and neither, in a polarized United States.`\
+https://nytimes.com/2025/07/25/us/racism-biracial-identity.html
+
+**Wrexham make approach to sign Eriksen**\
+`The 33-year-old has been without a club since leaving Manchester United following the expiration of his contract earlier this summer.`\
+https://nytimes.com/athletic/6515264/2025/07/25/wrexham-christian-eriksen-transfer/
+
 **Hulk Hogan Couldn’t Be Contained by Clothes**\
 `His look was jokey, but it was no joke.`\
 https://nytimes.com/2025/07/25/style/hulk-hogan-style.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6514020/2025/07/25/wild-rossi-kaprizov-guerin-surve
 **Trump Administration Live Updates: Justice Dept. to Interview Epstein Associate Ghislaine Maxwell Again**\
 ``\
 https://nytimes.com/live/2025/07/25/us/trump-news
-
-**Bayern Munich resume talks with Liverpool over Luis Diaz**\
-`The Bavarian club are yet to submit a second bid for the Colombian winger but remain keen on a deal.`\
-https://nytimes.com/athletic/6494919/2025/07/25/luis-diaz-bayern-munich-transfer-liverpool/
-
-**Book Club: Let’s Talk About ‘The Catch,’ by Yrsa Daley-Ward**\
-`The poet’s debut novel features estranged sisters and a missing mother who seemingly reappears decades later.`\
-https://nytimes.com/2025/07/25/books/review/podcast-book-club-yrsa-daley-ward-catch.html
 
