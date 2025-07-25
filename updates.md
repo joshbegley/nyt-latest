@@ -1,3 +1,15 @@
+**Electric atmospheres and sold-out crowds: How Switzerland's stadium gamble paid off at Euro 2025**\
+`There was scepticism when the hosts were announced but records have tumbled and stands have been packed`\
+https://nytimes.com/athletic/6512599/2025/07/25/switzerland-gambles-with-size-for-the-sake-of-atmosphere-in-euros-stadium-section-did-it-work/
+
+**Hall Plaques: When posting for posterity in Cooperstown, oddities abound**\
+`Every Hall of Fame plaque still begins with the same 15½ inch by 10¾ inch bronze canvas. What goes on them has evolved over generations.`\
+https://nytimes.com/athletic/6514477/2025/07/25/baseball-hall-of-fame-plaques-cooperstown/
+
+**Tigers at the trade deadline: What I’m hearing about Eugenio Suárez, relievers and more**\
+`A look at the Tigers' deadline priorities and the cases for and against a right-handed bat and frontline starter. `\
+https://nytimes.com/athletic/6514665/2025/07/25/detroit-tigers-trade-deadline-plans/
+
 **Phillies stock report as second half heats up: Who's up, who's down?**\
 `Bryce Harper is heating up, and as Jesús Luzardo has said multiple times: “When Bryce goes, I think the whole team goes.”`\
 https://nytimes.com/athletic/6514491/2025/07/25/phillies-stock-report-realmuto-harper-stott/

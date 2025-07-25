@@ -1,3 +1,15 @@
+**Electric atmospheres and sold-out crowds: How Switzerland's stadium gamble paid off at Euro 2025**\
+`There was scepticism when the hosts were announced but records have tumbled and stands have been packed`\
+https://nytimes.com/athletic/6512599/2025/07/25/switzerland-gambles-with-size-for-the-sake-of-atmosphere-in-euros-stadium-section-did-it-work/
+
+**Hall Plaques: When posting for posterity in Cooperstown, oddities abound**\
+`Every Hall of Fame plaque still begins with the same 15½ inch by 10¾ inch bronze canvas. What goes on them has evolved over generations.`\
+https://nytimes.com/athletic/6514477/2025/07/25/baseball-hall-of-fame-plaques-cooperstown/
+
+**Tigers at the trade deadline: What I’m hearing about Eugenio Suárez, relievers and more**\
+`A look at the Tigers' deadline priorities and the cases for and against a right-handed bat and frontline starter. `\
+https://nytimes.com/athletic/6514665/2025/07/25/detroit-tigers-trade-deadline-plans/
+
 **Phillies stock report as second half heats up: Who's up, who's down?**\
 `Bryce Harper is heating up, and as Jesús Luzardo has said multiple times: “When Bryce goes, I think the whole team goes.”`\
 https://nytimes.com/athletic/6514491/2025/07/25/phillies-stock-report-realmuto-harper-stott/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6510652/2025/07/25/tennessee-qb-transfer-joey-aguil
 **Did South Carolina, no stranger to recruiting drama, find its next LaNorris Sellers?**\
 `South Carolina's current starter, LaNorris Sellers, didn't receive an offer from the home-state Gamecocks until October of his senior year. `\
 https://nytimes.com/athletic/6513795/2025/07/25/south-carolina-recruiting-landon-duckworth-lanorris-sellers/
-
-**The 3 preseason San Francisco Giants predictions I wish I'd made**\
-`It's for the best that I don't remember any of my preseason predictions. What I do remember are the educated guesses and half-baked hunches.`\
-https://nytimes.com/athletic/6511727/2025/07/25/sf-giants-three-preseason-predictions/
-
-**Getting a new CBA without a lockout is bad, actually: The Contrarian returns**\
-`Plus: The 4 Nations Face-Off was a dud, the decentralized draft was amazing, comment sections are the best and more fake arguments.`\
-https://nytimes.com/athletic/6513669/2025/07/25/nhl-new-cba-lockout-stanley-cup/
-
-**The Rule 5, the MVP and the Miz: How the Brewers became the hottest team in baseball**\
-`The Brewers have surged to the top of the standings through a combination of shrewd pickups, veteran bounce-backs and so much pitching. `\
-https://nytimes.com/athletic/6513162/2025/07/25/brewers-hot-streak-misiorowski-yelich-peralta/
 
