@@ -1,3 +1,11 @@
+**Arsenal reach full Gyokeres agreement, medical expected this weekend**\
+`Gyokeres, 27, is expected to take the No 14 at Arsenal.`\
+https://nytimes.com/athletic/6510398/2025/07/25/arsenal-transfer-viktor-gyokeres-sporting-deal/
+
+**Man City to sign goalkeeper Trafford from Burnley**\
+`The 22-year-old has agreed a five-year deal plus the option of a further 12 months to return to the club he left in June 2023.`\
+https://nytimes.com/athletic/5533703/2025/07/25/james-trafford-man-city-transfer/
+
 **How to watch the Dodgers at Red Sox series, with Kershaw vs. Crochet on national TV**\
 `There's much to like about this series between the Dodgers and Red Sox, but Saturday's national TV duel of lefties is the headliner.`\
 https://nytimes.com/athletic/6514436/2025/07/25/dodgers-red-sox-ohtani-kershaw-crochet-fenway-how-to-watch/
