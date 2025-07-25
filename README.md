@@ -1,40 +1,40 @@
-**Volkswagen Hit Hard by Trump’s Tariffs**\
-`The German automaker said that the U.S. import duties erased about $1.5 billion from its profit in the first half of the year.`\
-https://nytimes.com/2025/07/25/business/volkswagen-auto-tariffs-trump.html
+**Is Decarbonization Dead?**\
+`Trump just shredded America’s most ambitious climate policy. Jane Flegal and Jesse Jenkins discuss what this means for the future of renewable energy in the U.S.`\
+https://nytimes.com/2025/07/25/opinion/ezra-klein-podcast-jesse-jenkins-jane-flegal.html
 
-**How to watch the final stages of the 2025 Tour de France this weekend**\
-`The 2025 Tour de France is down to its final three stages, and the yellow jersey is still up for grabs.`\
-https://nytimes.com/athletic/6514351/2025/07/25/tour-de-france-final-stages-2025-how-to-watch-weekend/
+**How Worried Should You Be About Ticks?**\
+`Experts share advice on how to assess your risk.`\
+https://nytimes.com/2025/07/25/well/ticks-safety-lyme-disease.html
 
-**Columbia Walked a Tightrope on Its Way to a $200 Million Settlement With Trump**\
-`Talks in Washington. An expert on negotiation. A balancing act. The university chose cooperation over litigation, a strategy both pilloried and praised.`\
-https://nytimes.com/2025/07/25/nyregion/how-columbia-reached-a-deal.html
+**The New York Times News Quiz, July 25, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/07/25/briefing/news-quiz-trump-colbert-ozzy-osbourne.html
 
-**Ahead of Shutdown Deadline, Democrats Face a Dilemma on Spending**\
-`Democrats are leery of supporting Republican spending measures after the White House forced through clawbacks of funding already approved by Congress.`\
-https://nytimes.com/2025/07/25/us/politics/shutdown-deadline-spending-congress.html
+**Trump, Obama and the Question of Treason**\
+`President Trump’s history of intemperate remarks has earned him a perverse kind of immunity; the more outrageous his statement, the faster it is often dismissed.`\
+https://nytimes.com/2025/07/25/opinion/obama-treason-trump.html
 
-**The Gen Z New Yorkers Selling Their Parents on Mamdani**\
-`Young voters went for Zohran Mamdani by a large margin. Can they persuade their parents to do the same?`\
-https://nytimes.com/2025/07/25/nyregion/zohran-mamdani-older-voters.html
+**3 Workers Freed From Collapsed Mine in Western Canada**\
+`The miners were trapped underground at a gold and copper mine in British Columbia on Tuesday, prompting a major rescue operation.`\
+https://nytimes.com/2025/07/25/world/canada/miners-rescued-british-columbia.html
 
-**Documenting the Effects of Extreme Heat in Pakistan**\
-`A reporter followed a ride-hailing motorcycle driver in Karachi, where temperatures regularly exceed 104 degrees Fahrenheit.`\
-https://nytimes.com/2025/07/25/insider/pakistan-heat.html
+**Boeing Emerges as a Winner in Trump’s Trade Wars**\
+`Countries striking agreements with the United States have pledged to buy more Boeing planes, but it’s not clear whether those orders were the result of President Trump’s tactics.`\
+https://nytimes.com/2025/07/25/business/boeing-trump-trade-deals.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/25/crosswords/spelling-bee-forum.html
+**I’m a Former Republican Texas Lawmaker. Don’t Let Trump Mess With Our Congressional Maps.**\
+`Giving in to partisan manipulation would further erode the public’s trust in government.`\
+https://nytimes.com/2025/07/25/opinion/trump-texas-congressional-districts.html
 
-**Australia Says Gaza Situation Beyond ‘Worst Fears’ as Pressure Mounts on Israel**\
-`Some of Israel’s closest allies have stepped up criticism of its restrictions on aid to Gaza, where doctors and aid organizations say people are dying of starvation.`\
-https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-starvation-canada-australia.html
+**The Conservative Crusade That’s About So Much More Than Epstein**\
+`The long history of the right’s obsession with child trafficking means it won’t be easy for Trump to make this story disappear.`\
+https://nytimes.com/2025/07/25/magazine/the-conservative-crusade-thats-about-so-much-more-than-epstein.html
 
-**For Late Night, Epstein-Trump Is the Comedy Gift That Keeps On Giving**\
-`Josh Johnson said that “not since Tupac Shakur has a dead man dropped so many bangers.”`\
-https://nytimes.com/2025/07/25/arts/television/late-night-jeffrey-epstein-donald-trump.html
+**New York Historical Acquires Bill Cunningham Archive**\
+`Tens of thousands of photos, negatives and memorabilia from the New York Times photographer (himself designated a living landmark) will go to the museum and have a permanent home.`\
+https://nytimes.com/2025/07/25/arts/design/new-york-historical-bill-cunningham-archive.html
 
-**Word of the Day: skulduggery**\
-`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/25/learning/word-of-the-day-skulduggery.html
+**How Zohran Mamdani Answers, ‘Where Are You From?’**\
+`Like many younger Asian Ugandans, he is redefining his relationship with the country where he was born.`\
+https://nytimes.com/2025/07/25/opinion/zohran-mamdani-uganda-expulsion.html
 
