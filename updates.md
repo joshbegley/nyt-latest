@@ -1,3 +1,19 @@
+**Bipartisan Pair of House Members to Meet With Sheinbaum in Mexico**\
+`The visit by Representatives Don Bacon of Nebraska and Ro Khanna of California is aimed at tamping down tensions stoked by President Trump on trade and immigration.`\
+https://nytimes.com/2025/07/25/us/politics/congressmen-sheinbaum-mexico.html
+
+**After Maxwell Interview, Concerns Mount Over Possibility of Pardon**\
+`President Trump, asked whether he would consider pardoning her, said, “I’m allowed to do it, but it’s something I haven’t thought about.”`\
+https://nytimes.com/2025/07/25/us/politics/ghislaine-maxwell-trump-pardon.html
+
+**Aidan Hutchinson already looking like his old self: Lions training camp news and notes**\
+`"This is his defense. He's taken ownership," coach Dan Campbell says of third-year linebacker Jack Campbell.`\
+https://nytimes.com/athletic/6515849/2025/07/25/lions-training-camp-aidan-hutchinson-jack-campbell/
+
+**The White House Will Release $5.5 Billion for Schools**\
+`Also, scientists are trying to save the Great Barrier Reef with man-made clouds. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/07/25/briefing/the-white-house-will-release-5-5-billion-for-schools.html
+
 **Packers training camp: Brandon McManus stays perfect and 8 more observations**\
 `The veteran kicker, who celebrated his 34th birthday on Friday, has made all 15 kicks during team periods.`\
 https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/

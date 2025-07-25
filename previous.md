@@ -1,3 +1,19 @@
+**Bipartisan Pair of House Members to Meet With Sheinbaum in Mexico**\
+`The visit by Representatives Don Bacon of Nebraska and Ro Khanna of California is aimed at tamping down tensions stoked by President Trump on trade and immigration.`\
+https://nytimes.com/2025/07/25/us/politics/congressmen-sheinbaum-mexico.html
+
+**After Maxwell Interview, Concerns Mount Over Possibility of Pardon**\
+`President Trump, asked whether he would consider pardoning her, said, “I’m allowed to do it, but it’s something I haven’t thought about.”`\
+https://nytimes.com/2025/07/25/us/politics/ghislaine-maxwell-trump-pardon.html
+
+**Aidan Hutchinson already looking like his old self: Lions training camp news and notes**\
+`"This is his defense. He's taken ownership," coach Dan Campbell says of third-year linebacker Jack Campbell.`\
+https://nytimes.com/athletic/6515849/2025/07/25/lions-training-camp-aidan-hutchinson-jack-campbell/
+
+**The White House Will Release $5.5 Billion for Schools**\
+`Also, scientists are trying to save the Great Barrier Reef with man-made clouds. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/07/25/briefing/the-white-house-will-release-5-5-billion-for-schools.html
+
 **Packers training camp: Brandon McManus stays perfect and 8 more observations**\
 `The veteran kicker, who celebrated his 34th birthday on Friday, has made all 15 kicks during team periods.`\
 https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-tran
 **Rex White, 1960 NASCAR Champion Driver, Dies at 95**\
 `He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
 https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
-
-**Ethics Panel Rebukes Congressman for Wife’s Stock Trade in Firm He Helped**\
-`The panel rebuked Representative Mike Kelly, Republican of Pennsylvania, for failing to prevent the appearance of self-dealing and then stonewalling its efforts to investigate.`\
-https://nytimes.com/2025/07/25/us/mike-kelly-ethics-congress.html
-
-**Couple Whose Home Was Bursting With Illegal Sex Pills Are Sentenced**\
-`Eduard Yusupov and Diana Fuzailov sold supplements through their company, Love Potion Inc., that they claimed were natural. The authorities needed tractor-trailers to remove all of the pills.`\
-https://nytimes.com/2025/07/25/nyregion/sex-pill-sentencing-edny.html
-
-**New Reports on Russian Interference Don’t Show What Trump Says They Do**\
-`The administration’s claims are overblown, but newly declassified information provides some messy details about a January 2017 intelligence assessment of Moscow’s election interference.`\
-https://nytimes.com/2025/07/25/us/trump-obama-russia.html
-
-**Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
-`Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
-https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
 
