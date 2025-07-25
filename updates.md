@@ -1,3 +1,7 @@
+**Trump Flies to Scotland, Leaving Chaos Swirling in Washington**\
+`The five-day visit will be a mix of personal business and golf with some diplomacy thrown in.`\
+https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
+
 **The 7.27.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue

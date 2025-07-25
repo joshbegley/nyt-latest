@@ -1,3 +1,7 @@
+**Russia Again Cuts Interest Rates as Its Economy Slows**\
+`Falling inflation has persuaded the central bank in Moscow to continue relaxing the country’s record borrowing costs.`\
+https://nytimes.com/2025/07/25/world/europe/russia-interest-rates.html
+
 **Trump Flies to Scotland, Leaving Chaos Swirling in Washington**\
 `The five-day visit will be a mix of personal business and golf with some diplomacy thrown in.`\
 https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/sports/joe-vigil-dead.html
 **Bubble teams could shape MLB trade deadline. History tells us which will buy or sell**\
 `An absence of powerhouse teams has left this trade deadline feeling as uncertain as ever a week out.`\
 https://nytimes.com/athletic/6514857/2025/07/25/mlb-trade-deadline-buy-sell-history/
-
-**The Generations of Pain I Felt in One Racist Moment**\
-`What it means to be both Black and white, and neither, in a polarized United States.`\
-https://nytimes.com/2025/07/25/us/racism-biracial-identity.html
 
