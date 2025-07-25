@@ -1,3 +1,7 @@
+**Root can become Test cricket's greatest runscorer. And that record would never be beaten**\
+`England's master batter is now second in the all-time scoring list but has top spot firmly in his sights`\
+https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
+
 **The Senate, Once Insulated From Trump, Has Remade Itself in His Image**\
 `The president has had a consequential impact on the Republican membership of the Senate as resistors are replaced by devotees. Most incumbents, even those not inclined to, have fallen in line.`\
 https://nytimes.com/2025/07/25/us/the-senate-once-insulated-from-trump-has-remade-itself-in-his-image.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-t
 **Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
 `In terms of learning, refining techniques and executing, the first-round rookie describes himself as encouraged early in training camp. `\
 https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 7/25 at 2 p.m. ET**\
-`Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
-https://nytimes.com/athletic/6514387/2025/07/25/sarris-live-chat-mlb-fantasy-baseball-7-25/
 
