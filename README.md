@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/
 `De Paul links up with his Argentina international team-mate and close friend Lionel Messi.`\
 https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-transfer-atletico-madrid/
 
-**Rex White, 1960 NASCAR Champion Driver, Dies at 95**\
+**Rex White, Hailed as One of NASCAR’s Greatest Drivers, Dies at 95**\
 `He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
 https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
 
