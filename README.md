@@ -1,3 +1,7 @@
+**Packers training camp: Brandon McManus stays perfect and 8 more observations**\
+`The veteran kicker, who celebrated his 34th birthday on Friday, has made all 15 kicks during team periods.`\
+https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/
+
 **Why Zelensky Backtracked on His Controversial Law**\
 `Facing growing pressure amid nationwide protests, President Volodymyr Zelensky of Ukraine backtracked on controversial legislation that would have weakened the country’s independent anticorruption institutions.`\
 https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/trump-obama-russia.html
 **Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
 `Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
 https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
-
-**Trump Administration Plans Changes to Skilled Worker Visas and Citizenship Tests**\
-`In an interview with The New York Times, the new director of U.S. Citizenship and Immigration Services said the test to become a U.S. citizen was too easy.`\
-https://nytimes.com/2025/07/25/us/trump-visas-h1b-citizenship-tests.html
 
