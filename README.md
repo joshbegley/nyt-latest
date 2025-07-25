@@ -1,3 +1,11 @@
+**Giants place Landen Roupp on injured list with right elbow inflammation**\
+`The righty has a 3.11 ERA in 20 starts and had become the team's most reliable starter after All-Stars Logan Webb and Robbie Ray.`\
+https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/
+
+**Ocasio-Cortez Must Pay Another $2,700 for Met Gala Dress**\
+`Alexandria Ocasio-Cortez made a splash in 2021 with her “Tax the Rich” dress. Then the House Ethics Committee opened an investigation.`\
+https://nytimes.com/2025/07/25/nyregion/aoc-met-gala-dress.html
+
 **Federal Judge Dismisses Trump Administration’s Challenge of Illinois Sanctuary Measures**\
 `The Justice Department had sued the leaders of Illinois, Chicago and Cook County over policies that limit cooperation with federal immigration officials.`\
 https://nytimes.com/2025/07/25/us/illinois-sanctuary-trump-immigration-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6515849/2025/07/25/lions-training-camp-aidan-hutchi
 **The White House Will Release $5.5 Billion for Schools**\
 `Also, scientists are trying to save the Great Barrier Reef with man-made clouds. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/07/25/briefing/the-white-house-will-release-5-5-billion-for-schools.html
-
-**Packers training camp: Brandon McManus stays perfect and 8 more observations**\
-`The veteran kicker, who celebrated his 34th birthday Friday, has made all 15 kicks during team periods.`\
-https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/
-
-**Why Zelensky Backtracked on His Controversial Law**\
-`Facing growing pressure amid nationwide protests, President Volodymyr Zelensky of Ukraine backtracked on controversial legislation that would have weakened the country’s independent anticorruption institutions.`\
-https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zelensky.html
 
