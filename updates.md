@@ -1,3 +1,19 @@
+**Inter Miami owner on Messi's suspension: MLS rule is 'draconian'**\
+`Jorge Mas voiced his support for Lionel Messi and Jordi Alba while expressing opposition to MLS's decision to ban the star duo.`\
+https://nytimes.com/athletic/6515822/2025/07/25/messi-suspension-mls-all-star-game-miami-owner-jorge-mas/
+
+**What to know about Broncos training camp, Day 1: Bo Nix shines on the move**\
+`The pass-rush talent that helped the Broncos lead the league with 63 sacks last season shined on camp's first full day.`\
+https://nytimes.com/athletic/6515855/2025/07/25/broncos-training-camp-nix-franklin-tillman/
+
+**Fenway Park concession workers walk off job prior to Dodgers series**\
+`Members of Union Here Local 26 have been battling Aramark food services company for more than six months.`\
+https://nytimes.com/athletic/6516013/2025/07/25/fenway-park-concession-workers-red-sox-walk-off/
+
+**Shedeur Sanders 'keeping the focus where it needs to be' while awaiting for an opportunity**\
+`Sanders has been fourth in line early on in Cleveland's quarterback competition. `\
+https://nytimes.com/athletic/6515801/2025/07/25/browns-training-camp-shedeur-sanders/
+
 **Stream These 10 TV Shows and Movies Before They Leave Netflix in August**\
 `A lot of great titles are leaving for U.S. subscribers next month. See them while you can.`\
 https://nytimes.com/2025/07/25/arts/television/netflix-leaving-august.html
