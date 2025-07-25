@@ -1,3 +1,7 @@
+**Word of the Day: skulduggery**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/25/learning/word-of-the-day-skulduggery.html
+
 **'Cunha and Mbeumo will elevate us to another level - we need their goals and assists'**\
 `The United midfielder knows last season wasn't good enough. He tells The Athletic in Chicago how Amorim's squad are going to change things`\
 https://nytimes.com/athletic/6514466/2025/07/25/manchester-united-mason-mount-interview-cunha-mbeumo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508828/2025/07/25/liverpool-rio-ngumoha-pathway/
 **Friday Briefing: France to Recognize Palestinian Statehood**\
 `Plus, the global craze for matcha.`\
 https://nytimes.com/2025/07/25/briefing/france-gaza-palestinians-israel-thailand-cambodia-spacex-china.html
-
-**Explained: Why the Friedkin Group is trying to increase its stake in Everton**\
-`The cycle of change continues behind the scenes at Everton after TFG’s takeover - they are seeking to take even greater control`\
-https://nytimes.com/athletic/6513245/2025/07/25/friedkin-group-everton-increase-stake/
 
