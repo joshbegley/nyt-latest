@@ -1,3 +1,7 @@
+**Was This Artifact From King Tut’s Tomb? It’s for Sale Anyway.**\
+`A London auction house says there is “no documented evidence” that an intricately carved grasshopper is from the boy king’s tomb. Its estimated price is up to $675,000.`\
+https://nytimes.com/2025/07/25/arts/design/king-tutankhamen-guennol-grasshopper-auction.html
+
 **Arsenal reach full Gyokeres agreement, medical expected this weekend**\
 `Gyokeres, 27, is expected to take the No 14 at Arsenal.`\
 https://nytimes.com/athletic/6510398/2025/07/25/arsenal-transfer-viktor-gyokeres-sporting-deal/

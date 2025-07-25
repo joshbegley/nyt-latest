@@ -1,3 +1,7 @@
+**Was This Artifact From King Tut’s Tomb? It’s for Sale Anyway.**\
+`A London auction house says there is “no documented evidence” that an intricately carved grasshopper is from the boy king’s tomb. Its estimated price is up to $675,000.`\
+https://nytimes.com/2025/07/25/arts/design/king-tutankhamen-guennol-grasshopper-auction.html
+
 **Arsenal reach full Gyokeres agreement, medical expected this weekend**\
 `Gyokeres, 27, is expected to take the No 14 at Arsenal.`\
 https://nytimes.com/athletic/6510398/2025/07/25/arsenal-transfer-viktor-gyokeres-sporting-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510092/2025/07/25/one-player-traded-mlb-deadline/
 **Fanfare follows Bill Belichick at ACC media days, but UNC's coach handles it his way**\
 `Six hours of mostly uninterrupted media obligations were more than enough for the famously terse coach.`\
 https://nytimes.com/athletic/6514782/2025/07/25/bill-belichick-acc-media-days-unc-football/
-
-**An MLB pitcher walked away from $12 million. He has no regrets**\
-`Years ago, Royals pitcher Gil Meche walked away from $12 million out of principle. What does he think about that decision now?`\
-https://nytimes.com/athletic/6511233/2025/07/25/an-mlb-pitcher-walked-away-from-12-million-he-has-no-regrets/
 
