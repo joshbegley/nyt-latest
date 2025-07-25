@@ -1,3 +1,7 @@
+**Jordan Watkins’ summer challenge: Win over 49ers coach who doesn’t love rookie WRs**\
+`The biggest note from Friday: Brock Purdy was missing due to a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
+https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
+
 **Giants place Landen Roupp on injured list with right elbow inflammation**\
 `The righty has a 3.11 ERA in 20 starts and had become the team's most reliable starter after All-Stars Logan Webb and Robbie Ray.`\
 https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/

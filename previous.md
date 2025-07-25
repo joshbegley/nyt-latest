@@ -1,3 +1,7 @@
+**Jordan Watkins’ summer challenge: Win over 49ers coach who doesn’t love rookie WRs**\
+`The biggest note from Friday: Brock Purdy was missing due to a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
+https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
+
 **Giants place Landen Roupp on injured list with right elbow inflammation**\
 `The righty has a 3.11 ERA in 20 starts and had become the team's most reliable starter after All-Stars Logan Webb and Robbie Ray.`\
 https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/politics/ghislaine-maxwell-trump-pardon.html
 **Aidan Hutchinson already looking like his old self: Lions training camp news and notes**\
 `"This is his defense. He's taken ownership," coach Dan Campbell says of third-year linebacker Jack Campbell.`\
 https://nytimes.com/athletic/6515849/2025/07/25/lions-training-camp-aidan-hutchinson-jack-campbell/
-
-**The White House Will Release $5.5 Billion for Schools**\
-`Also, scientists are trying to save the Great Barrier Reef with man-made clouds. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/07/25/briefing/the-white-house-will-release-5-5-billion-for-schools.html
 
