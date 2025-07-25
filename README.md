@@ -1,3 +1,11 @@
+**Jalen Ramsey's new role takes shape, Aaron Rodgers sharp: Steelers training camp observations**\
+`Plus, Mike Tomlin and his new defensive back remember a 'free dinner' together from long ago.`\
+https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-report-aaron-rodgers-jalen-ramsey/
+
+**Dodgers welcome back Walker Buehler, who finds himself in a familiar place with Boston**\
+`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his ring and met old fri`\
+https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-red-sox-recovery/
+
 **2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\
 `The sudden maneuver was made during a Friday flight out of California after two collision safety alerts sounded in the cockpit, causing the pilots to take evasive action, the airline said.`\
 https://nytimes.com/2025/07/25/us/southwest-flight-burbank-injuries.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/25/nyregion/aoc-met-gala-dress.html
 **Federal Judge Dismisses Trump Administration’s Challenge of Illinois Sanctuary Measures**\
 `The Justice Department had sued the leaders of Illinois, Chicago and Cook County over policies that limit cooperation with federal immigration officials.`\
 https://nytimes.com/2025/07/25/us/illinois-sanctuary-trump-immigration-lawsuit.html
-
-**Mother Arrested in Connection With Deaths of 2 Newborn Boys in the Bronx**\
-`Stephanie Castillo, the mother of the infants, according to a law enforcement official, was charged with murder. The boys were found behind an apartment building in 2020.`\
-https://nytimes.com/2025/07/25/nyregion/bronx-infant-deaths-mother-arrested.html
-
-**Election Officials Allege Possible Voter Fraud in Republican Primary**\
-`The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in southern Brooklyn.`\
-https://nytimes.com/2025/07/25/nyregion/election-fraud-new-york-city-council.html
 
