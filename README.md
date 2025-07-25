@@ -1,3 +1,7 @@
+**The Style That Stopped Us**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/07/25/style/street-style-look-of-the-week
+
 **Neymar alleges fan called him a 'mercenary' in exchange after Santos loss**\
 `"Saying that I'm a mercenary with my father, talking about my family/friends. I'm sorry but it's hard to control," Neymar, 33, said.`\
 https://nytimes.com/athletic/6515172/2025/07/25/neymar-santos-fan-altercation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513575/2025/07/25/vikings-fan-survey-results-jj-mc
 **The Athletic’s Friday football quiz question #65**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6500169/2025/07/25/the-athletics-friday-football-quiz-question-65/
-
-**Bucs GM on looming Baker Mayfield extension: The goal is to keep him here 'a long time'**\
-`Mayfield isn't too worried about his next contract. He's more focused on maximizing his potential, as he wonders, “How good can I get?"`\
-https://nytimes.com/athletic/6513345/2025/07/25/bucs-baker-mayfield-contract-extension/
 
