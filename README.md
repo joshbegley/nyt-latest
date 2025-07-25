@@ -1,3 +1,11 @@
+**Patrick Ryan, ‘Terror Priest’ Who Aided the I.R.A., Is Dead at 94**\
+`He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
+https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
+
+**Raiders' new regime sends strong message in releasing DT Christian Wilkins**\
+`Thursday's shocking move by John Spytek and Pete Carroll showed that if you’re anything less than all in, you have no place with this team.`\
+https://nytimes.com/athletic/6514950/2025/07/25/raiders-christian-wilkins-release-carroll-spytek/
+
 **Root can become Test cricket's greatest runscorer. And that record would never be beaten**\
 `England's master batter is now second in the all-time scoring list but has top spot firmly in his sights`\
 https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/07/25/upshot/flashback.html
 **Red Sox trade scenarios: Jim Bowden assesses proposals for Mitch Keller, Merrill Kelly and more**\
 `We asked former GM Jim Bowden for his insights on a few trade proposals to address Boston's key needs.`\
 https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-keller-merrill-kelly/
-
-**Amorim insists Man Utd's 'bomb squad' will not be sold on the cheap**\
-`Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia have been left out of United’s travelling party to the United States.`\
-https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-transfers-sales/
-
-**Commanders rookie Josh Conerly Jr. impressing while learning the ropes at RT**\
-`In terms of learning, refining techniques and executing, the first-round rookie describes himself as encouraged early in training camp. `\
-https://nytimes.com/athletic/6515685/2025/07/25/commanders-training-camp-josh-conerly-jr/
 
