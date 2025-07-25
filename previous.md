@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
+`With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
+https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
+
 **Macron Recognizes a Palestinian State. But to What End?**\
 `The French president, expressing a moral obligation to address suffering in Gaza, made clear he had lost patience with the United States and Israel. The question is what effect he will have.`\
 https://nytimes.com/2025/07/25/world/middleeast/macron-france-palestinian-statehood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/movies/eddington-clip.html
 **‘Eddington’ | Anatomy of a Scene**\
 `The writer and director Ari Aster narrates a sequence from his film featuring Joaquin Phoenix and Pedro Pascal.`\
 https://nytimes.com/video/movies/100000010303711/eddington-scene.html
-
-**7 Children Are Killed in School Roof Collapse in India**\
-`An official in the northwestern state of Rajasthan said that heavy rain had pooled on the roof before it fell in.`\
-https://nytimes.com/2025/07/25/world/asia/india-school-roof-collapse-death-children.html
 

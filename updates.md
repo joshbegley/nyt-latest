@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
+`With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
+https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
+
 **Macron Recognizes a Palestinian State. But to What End?**\
 `The French president, expressing a moral obligation to address suffering in Gaza, made clear he had lost patience with the United States and Israel. The question is what effect he will have.`\
 https://nytimes.com/2025/07/25/world/middleeast/macron-france-palestinian-statehood.html
