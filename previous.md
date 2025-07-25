@@ -1,3 +1,7 @@
+**'Cunha and Mbeumo will elevate us to another level - we need their goals and assists'**\
+`The United midfielder knows last season wasn't good enough. He tells The Athletic in Chicago how Amorim's squad are going to change things`\
+https://nytimes.com/athletic/6514466/2025/07/25/manchester-united-mason-mount-interview-cunha-mbeumo/
+
 **Five Gins We Love **\
 `Text by Lesley Stockton`\
 https://nytimes.com/card/2025/07/25/smarter-living/wirecutter/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/briefing/france-gaza-palestinians-israel-thailand
 **Explained: Why the Friedkin Group is trying to increase its stake in Everton**\
 `The cycle of change continues behind the scenes at Everton after TFG’s takeover - they are seeking to take even greater control`\
 https://nytimes.com/athletic/6513245/2025/07/25/friedkin-group-everton-increase-stake/
-
-**Why Boubacar Kamara's five-year deal is such an important piece of business for Aston Villa**\
-`The France international has signed a new long-term contract at the club, a significant boost for Emery and Villa for the new season`\
-https://nytimes.com/athletic/6513183/2025/07/25/boubacar-kamara-new-contract-villa-analysis/
 
