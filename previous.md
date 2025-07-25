@@ -1,3 +1,7 @@
+**Flash Point**\
+`Fritz Juhnke makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/07/24/crosswords/daily-puzzle-2025-07-25.html
+
 **‘And Just Like That …’ Season 3, Episode 9 Recap: Smoke Gets in Your Eyes**\
 `In an episode full of callbacks, Carrie and Aidan wonder whether they can move forward.`\
 https://nytimes.com/2025/07/24/arts/television/and-just-like-that-recap-season-3-episode-9.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/24/us/pennsylvania-nurse-imposter-investigation.html
 **O'Connor: Aaron Rodgers has a lot more to lose with the Steelers than he did with the Jets**\
 `Coach Mike Tomlin is exactly what Rodgers needs to finish his career, but there is a potential downside to this union.`\
 https://nytimes.com/athletic/6514484/2025/07/24/aaron-rodgers-steelers-training-camp/
-
-**Raiders release DT Christian Wilkins after 1 season, void remaining deal**\
-`The Raiders cited disagreement in Wilkins' plans to return from a foot injury. He has filed a grievance with the NFLPA.`\
-https://nytimes.com/athletic/6514570/2025/07/24/raiders-release-christian-wilkins-foot-injury-nfl-news/
 

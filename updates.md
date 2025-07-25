@@ -1,3 +1,7 @@
+**Flash Point**\
+`Fritz Juhnke makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/07/24/crosswords/daily-puzzle-2025-07-25.html
+
 **In Josh Naylor, Mariners acquire the corner infield slugger they've been missing**\
 `Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
 https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
