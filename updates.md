@@ -1,3 +1,11 @@
+**Shedeur Sanders 'keeping the focus where it needs to be' while awaiting an opportunity**\
+`On the practice field, Cleveland Browns rookie quarterback Shedeur Sanders is doing more waiting than throwing — at least in competitive team-drill situations.`\
+https://nytimes.com/athletic/6515801/2025/07/25/browns-training-camp-shedeur-sanders/
+
+**Brandon Walter becomes 18th Astros player to land on injured list**\
+`No team in baseball currently has more players sidelined on the injured list than Houston. `\
+https://nytimes.com/athletic/6515952/2025/07/25/brandon-walter-astros-injured-list/
+
 **Valkyries' Kayla Thornton to miss rest of season after knee surgery**\
 `Thornton, a nine-year veteran, was an All-Star for the first time this season and led the Valkyries in points, rebounds and steals.`\
 https://nytimes.com/athletic/6515867/2025/07/25/valkyries-kayla-thornton-to-miss-season/
