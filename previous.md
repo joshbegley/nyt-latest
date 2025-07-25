@@ -14,7 +14,7 @@ https://nytimes.com/2025/07/25/us/trump-visas-h1b-citizenship-tests.html
 `The 26-year-old wideout was held out of practice and will be re-evaluated next week. Kevin O’Connell says he'll be ready to play by Week 1.`\
 https://nytimes.com/athletic/6515957/2025/07/25/justin-jefferson-vikings-hamstring-injury/
 
-**NFL will fine players who sold Super Bowl tickets above market value**\
+**NFL will fine players who sold Super Bowl tickets above face value**\
 `The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
 https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
 

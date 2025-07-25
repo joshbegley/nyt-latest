@@ -1,3 +1,7 @@
+**NFL will fine players who sold Super Bowl tickets above face value**\
+`The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
+https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
+
 **New Reports on Russian Interference Don’t Show What Trump Says They Do**\
 `The administration’s claims are overblown, but newly declassified information provides some messy details about a January 2017 intelligence assessment of Moscow’s election interference.`\
 https://nytimes.com/2025/07/25/us/trump-obama-russia.html
