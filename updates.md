@@ -1,3 +1,7 @@
+**How to watch the final stages of the 2025 Tour de France this weekend**\
+`The 2025 Tour de France is down to its final three stages, and the yellow jersey is still up for grabs.`\
+https://nytimes.com/athletic/6514351/2025/07/25/tour-de-france-final-stages-2025-how-to-watch-weekend/
+
 **'Cunha and Mbeumo will elevate us to another level – we need their goals and assists'**\
 `The United midfielder knows last season wasn't good enough. He tells The Athletic in Chicago how Amorim's squad are going to change things`\
 https://nytimes.com/athletic/6514466/2025/07/25/manchester-united-mason-mount-interview-cunha-mbeumo/
