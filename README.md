@@ -1,3 +1,7 @@
+**Australia Says Gaza Situation Beyond ‘Worst Fears’ as Pressure Mounts on Israel**\
+`Some of Israel’s closest allies have stepped up criticism of its restrictions on aid to Gaza, where doctors and aid organizations say people are dying of starvation.`\
+https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-starvation-canada-australia.html
+
 **For Late Night, Epstein-Trump Is the Comedy Gift That Keeps On Giving**\
 `Josh Johnson said that “not since Tupac Shakur has a dead man dropped so many bangers.”`\
 https://nytimes.com/2025/07/25/arts/television/late-night-jeffrey-epstein-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/world/asia/thailand-cambodia-border-death-toll.ht
 **Tour de France Femmes 2025 preview: Schedule, yellow jersey contenders, riders to watch and more**\
 `The nine-stage race is the final grand tour of the season and will be covered here on The Athletic.`\
 https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-preview-schedule-riders/
-
-**What is Liverpool's first-team pathway for youngsters like Ngumoha?**\
-`How the Premier League champions convince talented youngsters that senior football is a possibility at Anfield`\
-https://nytimes.com/athletic/6508828/2025/07/25/liverpool-rio-ngumoha-pathway/
 
