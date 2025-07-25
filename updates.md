@@ -1,3 +1,7 @@
+**What we're hearing about the MLB trade deadline: Ryan Helsley, the Rockies and the relief market**\
+`“I would say it’s 90 percent I go, 10 percent I stay,” Helsley said about his future in St. Louis with the trade deadline approaching.`\
+https://nytimes.com/athletic/6514829/2025/07/24/mlb-trade-deadline-analysis-relief-market/
+
 **Venus Williams' run at Citi Open ends with loss to Magdalena Fręch**\
 `Defeat hardly dampers Williams' impressive comeback at 45, and signs indicate this was not a one-off.`\
 https://nytimes.com/athletic/6514773/2025/07/24/venus-williams-citi-open-magdalena-frech/
