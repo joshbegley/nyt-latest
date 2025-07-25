@@ -1,3 +1,7 @@
+**At Least 16 People Dead as Thailand’s Clashes With Cambodia Enter Second Day**\
+`The conflict along the border is the deadliest between the two nations in 14 years.`\
+https://nytimes.com/2025/07/25/world/asia/thailand-cambodia-border-death-toll.html
+
 **Tour de France Femmes 2025 preview: Schedule, yellow jersey contenders, riders to watch and more**\
 `The nine-stage race is the final grand tour of the season and will be covered here on The Athletic.`\
 https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-preview-schedule-riders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513534/2025/07/25/benjamin-sesko-transfer-newcastl
 **Inside Rashford's loan move to Barcelona: messaging Yamal, a €30m buy option and why 'he will have to run'**\
 `The Manchester United forward will spend this season with Hansi Flick's La Liga champions. Here's how the move happened`\
 https://nytimes.com/athletic/6512799/2025/07/25/marcus-rashford-loan-barcelona-yamal-messages-buy-option-flick/
-
-**Vinicius Jr's theme park, Bellingham's incognito trip - How Madrid's players are spending their holidays**\
-`Xabi Alonso's players have chosen a wide range of destinations for their summer breaks...`\
-https://nytimes.com/athletic/6512740/2025/07/25/real-madrid-player-holidays-vinicius-bellingham-huijsen/
 
