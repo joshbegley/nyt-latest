@@ -1,40 +1,40 @@
-**Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
-`Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
-https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
+**Bipartisan Pair of House Members to Meet With Sheinbaum in Mexico**\
+`The visit by Representatives Don Bacon of Nebraska and Ro Khanna of California is aimed at tamping down tensions stoked by President Trump on trade and immigration.`\
+https://nytimes.com/2025/07/25/us/politics/congressmen-sheinbaum-mexico.html
 
-**Trump Administration Plans Changes to Skilled Worker Visas and Citizenship Tests**\
-`In an interview with The New York Times, the new director of U.S. Citizenship and Immigration Services said the test to become a U.S. citizen was too easy.`\
-https://nytimes.com/2025/07/25/us/trump-visas-h1b-citizenship-tests.html
+**After Maxwell Interview, Concerns Mount Over Possibility of Pardon**\
+`President Trump, asked whether he would consider pardoning her, said, “I’m allowed to do it, but it’s something I haven’t thought about.”`\
+https://nytimes.com/2025/07/25/us/politics/ghislaine-maxwell-trump-pardon.html
 
-**Justin Jefferson misses practice with 'mild' hamstring strain**\
-`The 26-year-old wideout was held out of practice and will be re-evaluated next week. Kevin O’Connell says he'll be ready to play by Week 1.`\
-https://nytimes.com/athletic/6515957/2025/07/25/justin-jefferson-vikings-hamstring-injury/
+**Aidan Hutchinson already looking like his old self: Lions training camp news and notes**\
+`"This is his defense. He's taken ownership," coach Dan Campbell says of third-year linebacker Jack Campbell.`\
+https://nytimes.com/athletic/6515849/2025/07/25/lions-training-camp-aidan-hutchinson-jack-campbell/
 
-**NFL will fine players who sold Super Bowl tickets above market value**\
-`The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
-https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
+**The White House Will Release $5.5 Billion for Schools**\
+`Also, scientists are trying to save the Great Barrier Reef with man-made clouds. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/07/25/briefing/the-white-house-will-release-5-5-billion-for-schools.html
 
-**Inter Miami owner on Messi's suspension: MLS rule is 'draconian'**\
-`Jorge Mas voiced his support for Lionel Messi and Jordi Alba while expressing opposition to MLS's decision to ban the star duo.`\
-https://nytimes.com/athletic/6515822/2025/07/25/messi-suspension-mls-all-star-game-miami-owner-jorge-mas/
+**Packers training camp: Brandon McManus stays perfect and 8 more observations**\
+`The veteran kicker, who celebrated his 34th birthday on Friday, has made all 15 kicks during team periods.`\
+https://nytimes.com/athletic/6515951/2025/07/25/packers-training-camp-mcmanus-golden-valentine/
 
-**What to know about Day 1 of Broncos training camp: Bo Nix shines on the move**\
-`The pass-rush talent that helped the Broncos lead the league with 63 sacks last season shined on camp's first full day.`\
-https://nytimes.com/athletic/6515855/2025/07/25/broncos-training-camp-nix-franklin-tillman/
+**Why Zelensky Backtracked on His Controversial Law**\
+`Facing growing pressure amid nationwide protests, President Volodymyr Zelensky of Ukraine backtracked on controversial legislation that would have weakened the country’s independent anticorruption institutions.`\
+https://nytimes.com/video/world/europe/100000010301803/ukraine-mass-protests-zelensky.html
 
-**Fenway Park concession workers walk off job prior to Dodgers series**\
-`Members of Union Here Local 26 have been battling Aramark food services company for more than six months.`\
-https://nytimes.com/athletic/6516013/2025/07/25/fenway-park-concession-workers-red-sox-walk-off/
+**What does Trump's college sports executive order mean? Breaking down the impact**\
+`What you need to know about President Trump's college sports executive order.`\
+https://nytimes.com/athletic/6515871/2025/07/25/trump-college-sports-executive-order-explained/
 
-**Stream These 10 TV Shows and Movies Before They Leave Netflix in August**\
-`A lot of great titles are leaving for U.S. subscribers next month. See them while you can.`\
-https://nytimes.com/2025/07/25/arts/television/netflix-leaving-august.html
+**Top 2026 recruit Saniyah Hall commits to USC women’s basketball**\
+`The 6-foot-1 forward out of Spire Institute signed a deal with Jordan Brand earlier this month.`\
+https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/
 
-**FIFA accuses players' union FIFPro of 'blackmail' and lack of financial transparency**\
-`Tensions between the two bodies escalated amid criticism over player welfare and the football calendar.`\
-https://nytimes.com/athletic/6515793/2025/07/25/fifa-fifpro-blackmail-tensions/
+**De Paul joins Inter Miami from Atletico Madrid**\
+`De Paul links up with his Argentina international team-mate and close friend Lionel Messi.`\
+https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-transfer-atletico-madrid/
 
-**Michigan, Western Michigan finalizing deal to open 2026 season in Germany**\
-`The NFL brought two regular-season games to Deutsche Bank Park in 2023: The Chiefs versus the Dolphins and the Colts against the Patriots.`\
-https://nytimes.com/athletic/6515877/2025/07/25/michigan-western-germany-college-football/
+**Rex White, 1960 NASCAR Champion Driver, Dies at 95**\
+`He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
+https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
 
