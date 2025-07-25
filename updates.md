@@ -1,3 +1,15 @@
+**Tour de France Femmes 2025 preview: Schedule, yellow jersey contenders, riders to watch and more**\
+`The nine-stage race is the final grand tour of the season and will be covered here on The Athletic.`\
+https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-preview-schedule-riders/
+
+**What is Liverpool's first-team pathway for youngsters like Ngumoha?**\
+`How the Premier League champions convince talented youngsters that senior football is a possibility at Anfield`\
+https://nytimes.com/athletic/6508828/2025/07/25/liverpool-rio-ngumoha-pathway/
+
+**Friday Briefing: France to Recognize Palestinian Statehood**\
+`Plus, the global craze for matcha.`\
+https://nytimes.com/2025/07/25/briefing/france-gaza-palestinians-israel-thailand-cambodia-spacex-china.html
+
 **Explained: Why the Friedkin Group is trying to increase its stake in Everton**\
 `The cycle of change continues behind the scenes at Everton after TFG’s takeover - they are seeking to take even greater control`\
 https://nytimes.com/athletic/6513245/2025/07/25/friedkin-group-everton-increase-stake/

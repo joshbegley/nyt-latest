@@ -1,3 +1,15 @@
+**Tour de France Femmes 2025 preview: Schedule, yellow jersey contenders, riders to watch and more**\
+`The nine-stage race is the final grand tour of the season and will be covered here on The Athletic.`\
+https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-preview-schedule-riders/
+
+**What is Liverpool's first-team pathway for youngsters like Ngumoha?**\
+`How the Premier League champions convince talented youngsters that senior football is a possibility at Anfield`\
+https://nytimes.com/athletic/6508828/2025/07/25/liverpool-rio-ngumoha-pathway/
+
+**Friday Briefing: France to Recognize Palestinian Statehood**\
+`Plus, the global craze for matcha.`\
+https://nytimes.com/2025/07/25/briefing/france-gaza-palestinians-israel-thailand-cambodia-spacex-china.html
+
 **Explained: Why the Friedkin Group is trying to increase its stake in Everton**\
 `The cycle of change continues behind the scenes at Everton after TFG’s takeover - they are seeking to take even greater control`\
 https://nytimes.com/athletic/6513245/2025/07/25/friedkin-group-everton-increase-stake/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6512799/2025/07/25/marcus-rashford-loan-barcelona-y
 **Vinicius Jr's theme park, Bellingham's incognito trip - How Madrid's players are spending their holidays**\
 `Xabi Alonso's players have chosen a wide range of destinations for their summer breaks...`\
 https://nytimes.com/athletic/6512740/2025/07/25/real-madrid-player-holidays-vinicius-bellingham-huijsen/
-
-**One regular day of Barcelona: Rashford's arrival and a pre-season tour thrown into chaos**\
-`Within hours of Rashford's unveiling the club's pre-season tour was in doubt. By Thursday night it seemed to be back on...`\
-https://nytimes.com/athletic/6513690/2025/07/25/barcelona-japan-preseason-chaos/
-
-**England's Euro 2022 win transformed the Lionesses' lives but it was also a 'poisoned chalice'**\
-`Reaching another major final has boosted the Lionesses' profiles. Matching their Euro 2022 success will propel them to another stratosphere`\
-https://nytimes.com/athletic/6512873/2025/07/25/england-lionesses-euro-2022-life-change/
-
-**Chelsea and the unprecedented challenge of a post-Club World Cup pre-season**\
-`Enzo Maresca's team have just completed a 'double season' - now they face the unenviable task of preparing for 2025-26`\
-https://nytimes.com/athletic/6512883/2025/07/25/chelsea-pre-season-club-world-cup/
 
