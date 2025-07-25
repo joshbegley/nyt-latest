@@ -1,3 +1,19 @@
+**Stream These 10 TV Shows and Movies Before They Leave Netflix in August**\
+`A lot of great titles are leaving for U.S. subscribers next month. See them while you can.`\
+https://nytimes.com/2025/07/25/arts/netflix-leaving-august.html
+
+**FIFA accuses players' union FIFPro of 'blackmail' and lack of financial transparency**\
+`Tensions between the two bodies escalated amid criticism over player welfare and the football calendar.`\
+https://nytimes.com/athletic/6515793/2025/07/25/fifa-fifpro-blackmail-tensions/
+
+**Michigan, Western Michigan finalizing deal to open 2026 season in Germany**\
+`The NFL brought two regular-season games to Deutsche Bank Park in 2023: The Chiefs versus the Dolphins and the Colts against the Patriots.`\
+https://nytimes.com/athletic/6515877/2025/07/25/michigan-western-germany-college-football/
+
+**Outrage After Alabama 3-Year-Old Dies in Hot Car While in State’s Care**\
+`The boy, who was in foster care, was being transported between a supervised visit and day care, his aunt said. State lawmakers said they were seeking answers and the police were investigating.`\
+https://nytimes.com/2025/07/25/us/alabama-boy-death-hot-car.html
+
 **Shedeur Sanders 'keeping the focus where it needs to be' while awaiting an opportunity**\
 `On the practice field, Cleveland Browns rookie quarterback Shedeur Sanders is doing more waiting than throwing — at least in competitive team-drill situations.`\
 https://nytimes.com/athletic/6515801/2025/07/25/browns-training-camp-shedeur-sanders/

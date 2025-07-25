@@ -1,3 +1,19 @@
+**Stream These 10 TV Shows and Movies Before They Leave Netflix in August**\
+`A lot of great titles are leaving for U.S. subscribers next month. See them while you can.`\
+https://nytimes.com/2025/07/25/arts/netflix-leaving-august.html
+
+**FIFA accuses players' union FIFPro of 'blackmail' and lack of financial transparency**\
+`Tensions between the two bodies escalated amid criticism over player welfare and the football calendar.`\
+https://nytimes.com/athletic/6515793/2025/07/25/fifa-fifpro-blackmail-tensions/
+
+**Michigan, Western Michigan finalizing deal to open 2026 season in Germany**\
+`The NFL brought two regular-season games to Deutsche Bank Park in 2023: The Chiefs versus the Dolphins and the Colts against the Patriots.`\
+https://nytimes.com/athletic/6515877/2025/07/25/michigan-western-germany-college-football/
+
+**Outrage After Alabama 3-Year-Old Dies in Hot Car While in State’s Care**\
+`The boy, who was in foster care, was being transported between a supervised visit and day care, his aunt said. State lawmakers said they were seeking answers and the police were investigating.`\
+https://nytimes.com/2025/07/25/us/alabama-boy-death-hot-car.html
+
 **Shedeur Sanders 'keeping the focus where it needs to be' while awaiting an opportunity**\
 `On the practice field, Cleveland Browns rookie quarterback Shedeur Sanders is doing more waiting than throwing — at least in competitive team-drill situations.`\
 https://nytimes.com/athletic/6515801/2025/07/25/browns-training-camp-shedeur-sanders/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6515853/2025/07/25/bears-training-camp-caleb-willia
 **Manchester United Women's analyst Shamieh set to join Tottenham**\
 `Shamieh will reunite with new Spurs head coach Martin Ho.`\
 https://nytimes.com/athletic/6515859/2025/07/25/manchester-united-women-analyst-tottenham/
-
-**Project Veritas Withdraws Lawsuit Against The New York Times**\
-`The conservative group accused The Times of defamation over an article published in 2020.`\
-https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.html
-
-**Patrick Ryan, ‘Terror Priest’ Who Aided the I.R.A., Is Dead at 94**\
-`He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
-https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
-
-**Raiders' new regime sends strong message by releasing DT Christian Wilkins**\
-`Thursday's shocking move by John Spytek and Pete Carroll showed that if you’re anything less than all in, you have no place with this team.`\
-https://nytimes.com/athletic/6514950/2025/07/25/raiders-christian-wilkins-release-carroll-spytek/
-
-**Root can become Test cricket's top runscorer - and his record would never be beaten**\
-`England's master batter is now up to second on the all-time list and at 34 has top spot firmly in his sights`\
-https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
 

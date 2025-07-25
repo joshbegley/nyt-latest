@@ -1,6 +1,6 @@
 **Stream These 10 TV Shows and Movies Before They Leave Netflix in August**\
 `A lot of great titles are leaving for U.S. subscribers next month. See them while you can.`\
-https://nytimes.com/2025/07/25/arts/netflix-leaving-august.html
+https://nytimes.com/2025/07/25/arts/television/netflix-leaving-august.html
 
 **FIFA accuses players' union FIFPro of 'blackmail' and lack of financial transparency**\
 `Tensions between the two bodies escalated amid criticism over player welfare and the football calendar.`\
