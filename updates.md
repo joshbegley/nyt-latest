@@ -1,3 +1,7 @@
+**Roof Collapse Kills 7 Schoolchildren in Northwestern India**\
+`A school roof fell in on Friday, killing at least seven children and injuring several others in Jhalawar, India. The cause of the collapse was being investigated.`\
+https://nytimes.com/video/world/asia/100000010305936/india-school-roof-collapse.html
+
 **Scoop City: Why Jaguars need Travis Hunter, the cornerback**\
 `Updated power rankings, how Washington's managing new expectations, and why Travis Hunter could — and should — see plenty of snaps at corner`\
 https://nytimes.com/athletic/6515445/2025/07/25/travis-hunter-position-jaguars-washington-scoop-city/
