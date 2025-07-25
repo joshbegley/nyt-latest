@@ -1,3 +1,7 @@
+**Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
+`The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
+https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
+
 **Bills Day 3 observations: Competition heats up at CB, WR; a message is sent to backup LBs**\
 `Outside of Khalil Shakir, how have the wide receivers looked in camp?`\
 https://nytimes.com/athletic/6515898/2025/07/25/bills-day-3-observations-competition-heats-up-at-cb-wr-linebacker/

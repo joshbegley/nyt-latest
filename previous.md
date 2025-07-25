@@ -10,8 +10,8 @@ https://nytimes.com/2025/07/25/us/politics/las-vegas-republicans-taxes-trump-bil
 `The move is a big step for Stewart, who left the Bengals' mandatory minicamp earlier this week due to the unsigned contract.`\
 https://nytimes.com/athletic/6516228/2025/07/25/shemar-stewart-bengals-deal-contract-standoff/
 
-**Jordan Watkins’ summer challenge: Win over 49ers coach who doesn’t love rookie WRs**\
-`The biggest note from Friday: Brock Purdy was missing due to a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
+**Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
+`The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
 https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
 
 **Giants place Landen Roupp on injured list with right elbow inflammation**\
