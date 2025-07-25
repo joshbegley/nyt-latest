@@ -1,3 +1,11 @@
+**How Red Bull adjusts to F1 life after Christian Horner: 'It was a shock to me'**\
+`The drivers, team members and new boss all try to look forward as the Belgian GP (and a new era) gets underway `\
+https://nytimes.com/athletic/6515485/2025/07/25/christian-horner-red-bull-firing-reactions-f1/
+
+**Davante Adams, Travis Hunter and more best buys on cusp of fantasy football draft season**\
+`According to Michael Salfino, new Ram Davante Adams is showing no signs of age-based decline and is one to target in fantasy drafts.`\
+https://nytimes.com/athletic/6515540/2025/07/25/fantasy-football-best-buys-values-adp-adams-hunter/
+
 **How Will David Ellison Tackle the Big Problems at Paramount?**\
 `The cable business has cratered. The news division is in turmoil. A.I. is coming for movies. And those are just the obvious challenges.`\
 https://nytimes.com/2025/07/25/business/skydance-paramount-david-ellison.html
@@ -22,19 +30,11 @@ https://nytimes.com/2025/07/25/us/politics/us-raid-syria-isis.html
 `James was forced off at half-time during Tuesday’s semi-final victory over Italy.`\
 https://nytimes.com/athletic/6510465/2025/07/25/england-euros-lauren-james-injury-update/
 
-**Israel to Allow to Allow Humanitarian Airdrops Over Gaza**\
+**Israel to Allow Humanitarian Airdrops Over Gaza**\
 `Jordan and the United Arab Emirates were expected to begin airdrops in the coming days, but experts warned that the bulk of necessary aid could come only by land.`\
 https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-aid-airdrops.html
 
 **UTSA coach denies QB receiving Memphis' playbook affected game**\
-`"It got blown out of context in my opinion," UTSA coach Jeff Traylor said of the incident Friday.`\
+`"It got blown out of context in my opinion," UTSA coach Jeff Traylor said of the situation Friday.`\
 https://nytimes.com/athletic/6515577/2025/07/25/utsa-memphis-playbook-leaked/
-
-**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
-`With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
-https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
-
-**Macron Recognizes a Palestinian State. But to What End?**\
-`The French president, expressing a moral obligation to address suffering in Gaza, made clear he had lost patience with the United States and Israel. The question is what effect he will have.`\
-https://nytimes.com/2025/07/25/world/middleeast/macron-france-palestinian-statehood.html
 
