@@ -1,3 +1,11 @@
+**Patrick Ryan, ‘Terror Priest’ Who Aided the I.R.A., Is Dead at 94**\
+`He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
+https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
+
+**Raiders' new regime sends strong message in releasing DT Christian Wilkins**\
+`Thursday's shocking move by John Spytek and Pete Carroll showed that if you’re anything less than all in, you have no place with this team.`\
+https://nytimes.com/athletic/6514950/2025/07/25/raiders-christian-wilkins-release-carroll-spytek/
+
 **Root can become Test cricket's greatest runscorer. And that record would never be beaten**\
 `England's master batter is now second in the all-time scoring list but has top spot firmly in his sights`\
 https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/
