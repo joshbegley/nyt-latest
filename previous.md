@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/24/arts/television/and-just-like-that-recap-season-3
 `Plus questions on Dylan Cease as a starter and possible rumblings on an extension for David Peterson.`\
 https://nytimes.com/athletic/6514282/2025/07/24/mets-trade-deadline-clay-holmes-mark-vientos-lineup/
 
-**Mariners acquire slugging first baseman Josh Naylor from D-Backs: Source**\
+**In Josh Naylor, Mariners acquire the corner infield slugger they've been missing**\
 `Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
 https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
 
