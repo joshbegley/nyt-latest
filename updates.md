@@ -1,3 +1,11 @@
+**Mariners acquire slugging first baseman Josh Naylor from DBacks: Source**\
+`Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
+https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
+
+**Sam Darnold has the Seahawks believing, as he works to master the mundane**\
+`After a career season, Darnold is focused less on splash plays and more on the simple things, both on and off the field.`\
+https://nytimes.com/athletic/6514622/2025/07/24/sam-darnold-seahawks-training-camp/
+
 **Ravens are enjoying the Jaire Alexander experience, and the feeling is mutual**\
 `The Ravens hope Alexander bucks a trend and stays healthy. If he does, the Ravens could have one of the top secondaries in the NFL.`\
 https://nytimes.com/athletic/6514529/2025/07/24/baltimore-ravens-training-camp-jaire-alexander/
