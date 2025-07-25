@@ -1,3 +1,11 @@
+**Watch Joaquin Phoenix and Pedro Pascal Fight to Katy Perry in ‘Eddington’**\
+`The writer and director Ari Aster narrates a sequence that features Perry’s pop song “Firework.”`\
+https://nytimes.com/2025/07/25/movies/eddington-clip.html
+
+**‘Eddington’ | Anatomy of a Scene**\
+`The writer and director Ari Aster narrates a sequence from his film featuring Joaquin Phoenix and Pedro Pascal.`\
+https://nytimes.com/video/movies/100000010303711/eddington-scene.html
+
 **Israel to Allow to Allow Humanitarian Airdrops Over Gaza**\
 `Jordan and the United Arab Emirates were expected to begin airdrops in the coming days, but experts warned that the bulk of necessary aid could come only by land.`\
 https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-aid-airdrops.html
