@@ -1,3 +1,11 @@
+**Project Veritas Withdraws Lawsuit Against The New York Times**\
+`The conservative group accused The Times of defamation over an article published in 2020.`\
+https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.html
+
+**Yankees acquire Ryan McMahon from Rockies, fill need at third base**\
+`The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
+https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
+
 **Root can become Test cricket's top runscorer. And that record would never be beaten**\
 `England's master batter is now second in the all-time scoring list but has top spot firmly in his sights`\
 https://nytimes.com/athletic/6515751/2025/07/25/joe-root-test-runs-record/

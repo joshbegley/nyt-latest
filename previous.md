@@ -1,3 +1,7 @@
+**Project Veritas Withdraws Lawsuit Against The New York Times**\
+`The conservative group accused The Times of defamation over an article published in 2020.`\
+https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.html
+
 **Patrick Ryan, ‘Terror Priest’ Who Aided the I.R.A., Is Dead at 94**\
 `He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
 https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
@@ -22,7 +26,7 @@ https://nytimes.com/2025/07/25/climate/doge-interior-tyler-hassen.html
 `Lifeguards noticed that the girl was in distress and tried to rescue her, according to the park, which said that the pool remained closed on Friday.`\
 https://nytimes.com/2025/07/25/us/hersheypark-boardwalk-child-death.html
 
-**Yankees trade for Ryan McMahon from Rockies, fill need at third base: Grades**\
+**Yankees acquire Ryan McMahon from Rockies, fill need at third base**\
 `The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
 https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/business/trump-powell-bill-pulte.html
 **Flashback: Your Weekly History Quiz, July 26, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/07/25/upshot/flashback.html
-
-**Red Sox trade scenarios: Jim Bowden assesses proposals for Mitch Keller, Merrill Kelly and more**\
-`We asked former GM Jim Bowden for his insights on a few trade proposals to address Boston's key needs.`\
-https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-keller-merrill-kelly/
 

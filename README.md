@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.htm
 `He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
 https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
 
-**Raiders' new regime sends strong message in releasing DT Christian Wilkins**\
+**Raiders' new regime sends strong message by releasing DT Christian Wilkins**\
 `Thursday's shocking move by John Spytek and Pete Carroll showed that if you’re anything less than all in, you have no place with this team.`\
 https://nytimes.com/athletic/6514950/2025/07/25/raiders-christian-wilkins-release-carroll-spytek/
 
