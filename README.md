@@ -1,3 +1,7 @@
+**Red Sox trade scenarios: Jim Bowden assesses proposals for Mitch Keller, Merrill Kelly and more**\
+`We asked former GM Jim Bowden for his insights on a few trade proposals to address Boston's key needs.`\
+https://nytimes.com/athletic/6515635/2025/07/25/red-sox-trade-scenarios-mitch-keller-merrill-kelly/
+
 **Amorim insists Man Utd's 'bomb squad' will not be sold on the cheap**\
 `Alejandro Garnacho, Jadon Sancho, Antony and Tyrell Malacia have been left out of United’s travelling party to the United States.`\
 https://nytimes.com/athletic/6515739/2025/07/25/ruben-amorim-manchester-united-transfers-sales/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/arts/dance/national-ballet-of-japan-giselle-londo
 **Mets address bullpen need by acquiring lefty Gregory Soto from Orioles**\
 `The Orioles receive minor-league pitchers Wellington Aracena and Cameron Foster in return for Soto, who is a pending free agent.`\
 https://nytimes.com/athletic/6515693/2025/07/25/mets-orioles-trade-gregory-soto/
-
-**Justice Dept. Officials File Suit, Saying They Were Dismissed Unlawfully**\
-`The lawsuit argues that employees who were fired for political reasons have no recourse, after President Trump neutralized a board that handles federal labor disputes.`\
-https://nytimes.com/2025/07/25/us/politics/justice-dept-officials-file-suit-saying-they-were-dismissed-unlawfully.html
 
