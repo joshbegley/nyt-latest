@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, July 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/25/todays-new-york-times-international-edition
+
 **Is Decarbonization Dead?**\
 `Trump just shredded America’s most ambitious climate policy. Jane Flegal and Jesse Jenkins discuss what this means for the future of renewable energy in the U.S.`\
 https://nytimes.com/2025/07/25/opinion/ezra-klein-podcast-jesse-jenkins-jane-flegal.html
