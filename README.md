@@ -1,3 +1,7 @@
+**Five Gins We Love **\
+`Text by Lesley Stockton`\
+https://nytimes.com/card/2025/07/25/smarter-living/wirecutter/
+
 **Peace Negotiations in Ukraine Haven’t Failed. They Haven’t Really Started.**\
 `No one knows what Putin would accept to end his invasion of Ukraine if he were presented with a real negotiation process.`\
 https://nytimes.com/2025/07/25/opinion/ukraine-war-negotiations-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513245/2025/07/25/friedkin-group-everton-increase-
 **Why Boubacar Kamara's five-year deal is such an important piece of business for Aston Villa**\
 `The France international has signed a new long-term contract at the club, a significant boost for Emery and Villa for the new season`\
 https://nytimes.com/athletic/6513183/2025/07/25/boubacar-kamara-new-contract-villa-analysis/
-
-**Evan Ferguson - is there any way back?**\
-`For the sake of everybody, but especially a young player who has experienced a dramatic rise and fall, this loan to Roma needs to work`\
-https://nytimes.com/athletic/6512597/2025/07/25/evan-ferguson-brighton-future-roma/
 

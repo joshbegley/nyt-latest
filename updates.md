@@ -1,3 +1,7 @@
+**Peace Negotiations in Ukraine Haven’t Failed. They Haven’t Really Started.**\
+`No one knows what Putin would accept to end his invasion of Ukraine if he were presented with a real negotiation process.`\
+https://nytimes.com/2025/07/25/opinion/ukraine-war-negotiations-trump.html
+
 **The New York Times in Print for Friday, July 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/25/todays-new-york-times
