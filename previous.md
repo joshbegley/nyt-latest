@@ -1,3 +1,11 @@
+**Israel to Allow to Allow Humanitarian Airdrops Over Gaza**\
+`Jordan and the United Arab Emirates were expected to begin airdrops in the coming days, but experts warned that the bulk of necessary aid could come only by land.`\
+https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-aid-airdrops.html
+
+**UTSA coach denies QB receiving Memphis' playbook affected game**\
+`“I think a lot of it has been sensationalized and some of it quite frankly is clickbait,” American commissioner Tim Pernetti said Friday.`\
+https://nytimes.com/athletic/6515577/2025/07/25/utsa-memphis-playbook-leaked/
+
 **Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
 `With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
 https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/25/opinion/coldplay-affair-shame-humiliation.html
 **Always Late? Blame Your Time Personality.**\
 `Some people are punctual, others flexible. The reason, experts say, is that we relate to the clock in different ways.`\
 https://nytimes.com/2025/07/25/well/live/time-personality-polychronic-monochronic.html
-
-**Watch Joaquin Phoenix and Pedro Pascal Fight to Katy Perry in ‘Eddington’**\
-`The writer and director Ari Aster narrates a sequence that features Perry’s pop song “Firework.”`\
-https://nytimes.com/2025/07/25/movies/eddington-clip.html
-
-**‘Eddington’ | Anatomy of a Scene**\
-`The writer and director Ari Aster narrates a sequence from his film featuring Joaquin Phoenix and Pedro Pascal.`\
-https://nytimes.com/video/movies/100000010303711/eddington-scene.html
 
