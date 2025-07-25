@@ -1,3 +1,11 @@
+**Manchester United Women's analyst Shamieh set to join Tottenham**\
+`Shamieh will reunite with new Spurs head coach Martin Ho.`\
+https://nytimes.com/athletic/6515859/2025/07/25/manchester-united-women-analyst-tottenham/
+
+**Raiders' new regime sends strong message by releasing DT Christian Wilkins**\
+`Thursday's shocking move by John Spytek and Pete Carroll showed that if you’re anything less than all in, you have no place with this team.`\
+https://nytimes.com/athletic/6514950/2025/07/25/raiders-christian-wilkins-release-carroll-spytek/
+
 **Project Veritas Withdraws Lawsuit Against The New York Times**\
 `The conservative group accused The Times of defamation over an article published in 2020.`\
 https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.html

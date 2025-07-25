@@ -1,3 +1,7 @@
+**Bears camp observations: What to make of shaky practice for Caleb Williams, red zone offense**\
+`It’s your classic Bears camp Rorschach test. Should there be concern about the quarterback or is the defense simply playing at a high level?`\
+https://nytimes.com/athletic/6515853/2025/07/25/bears-training-camp-caleb-williams-shaky/
+
 **Manchester United Women's analyst Shamieh set to join Tottenham**\
 `Shamieh will reunite with new Spurs head coach Martin Ho.`\
 https://nytimes.com/athletic/6515859/2025/07/25/manchester-united-women-analyst-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/hersheypark-boardwalk-child-death.html
 **Yankees acquire Ryan McMahon from Rockies, fill need at third base**\
 `The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
 https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
-
-**Behind Trump’s War With Powell: A Battering Ram With 3 Million Followers**\
-`The director of the Federal Housing Finance Agency has made the removal of the Fed chair his personal mission.`\
-https://nytimes.com/2025/07/25/business/trump-powell-bill-pulte.html
 

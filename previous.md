@@ -1,3 +1,7 @@
+**Manchester United Women's analyst Shamieh set to join Tottenham**\
+`Shamieh will reunite with new Spurs head coach Martin Ho.`\
+https://nytimes.com/athletic/6515859/2025/07/25/manchester-united-women-analyst-tottenham/
+
 **Project Veritas Withdraws Lawsuit Against The New York Times**\
 `The conservative group accused The Times of defamation over an article published in 2020.`\
 https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/25/business/media/project-veritas-new-york-times.htm
 `He funneled cash and weapons to the Irish Republican Army from Libya, and was involved in bombings that targeted Margaret Thatcher and others, killing scores of people.`\
 https://nytimes.com/2025/07/25/world/europe/patrick-ryan-dead.html
 
-**Raiders' new regime sends strong message in releasing DT Christian Wilkins**\
+**Raiders' new regime sends strong message by releasing DT Christian Wilkins**\
 `Thursday's shocking move by John Spytek and Pete Carroll showed that if you’re anything less than all in, you have no place with this team.`\
 https://nytimes.com/athletic/6514950/2025/07/25/raiders-christian-wilkins-release-carroll-spytek/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmah
 **Behind Trump’s War With Powell: A Battering Ram With 3 Million Followers**\
 `The director of the Federal Housing Finance Agency has made the removal of the Fed chair his personal mission.`\
 https://nytimes.com/2025/07/25/business/trump-powell-bill-pulte.html
-
-**Flashback: Your Weekly History Quiz, July 26, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/07/25/upshot/flashback.html
 
