@@ -1,3 +1,7 @@
+**At Least 16 People Dead as Thailand’s Clashes With Cambodia Enter Second Day**\
+`The conflict along the border is the deadliest between the two nations in 14 years.`\
+https://nytimes.com/2025/07/25/world/asia/thailand-cambodia-border-death-toll.html
+
 **Tour de France Femmes 2025 preview: Schedule, yellow jersey contenders, riders to watch and more**\
 `The nine-stage race is the final grand tour of the season and will be covered here on The Athletic.`\
 https://nytimes.com/athletic/6512679/2025/07/25/tour-de-france-femmes-2025-preview-schedule-riders/

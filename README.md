@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, July 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/25/todays-new-york-times
+
+**Why Oscar Onley could be the Tour de France's most surprising podium finisher for years**\
+`The young Scot is now only 22 seconds behind third-placed Florian Lipowitz, with three stages of the race remaining`\
+https://nytimes.com/athletic/6513971/2025/07/25/oscar-onley-tour-de-france/
+
 **At Least 16 People Dead as Thailand’s Clashes With Cambodia Enter Second Day**\
 `The conflict along the border is the deadliest between the two nations in 14 years.`\
 https://nytimes.com/2025/07/25/world/asia/thailand-cambodia-border-death-toll.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6512597/2025/07/25/evan-ferguson-brighton-future-ro
 **Why Isak could cost £250m to sign - and who could afford it?**\
 `The Newcastle striker wants to leave but signing him will not be easy financially. We analyse the true cost`\
 https://nytimes.com/athletic/6513565/2025/07/25/alexander-isak-transfer-cost-finances/
-
-**Benjamin Sesko: Explaining why one of Europe's hottest prospects is still available**\
-`Benjamin Sesko was expected to be one of the big movers this summer and yet nobody has gone for him. This is why `\
-https://nytimes.com/athletic/6513534/2025/07/25/benjamin-sesko-transfer-newcastle/
-
-**Inside Rashford's loan move to Barcelona: messaging Yamal, a €30m buy option and why 'he will have to run'**\
-`The Manchester United forward will spend this season with Hansi Flick's La Liga champions. Here's how the move happened`\
-https://nytimes.com/athletic/6512799/2025/07/25/marcus-rashford-loan-barcelona-yamal-messages-buy-option-flick/
 
