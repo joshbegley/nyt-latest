@@ -1,3 +1,11 @@
+**Watch Joaquin Phoenix and Pedro Pascal Fight to Katy Perry in ‘Eddington’**\
+`The writer and director Ari Aster narrates a sequence that features Perry’s pop song “Firework.”`\
+https://nytimes.com/2025/07/25/movies/eddington-clip.html
+
+**First Deportation Flights Depart From Florida’s ‘Alligator Alcatraz’**\
+`Gov. Ron DeSantis said hundreds of immigration detainees had departed a state-run detention center in the Everglades on planes, some for federal facilities, and others out of the country.`\
+https://nytimes.com/2025/07/25/us/alligator-alcatraz-deportation-flights.html
+
 **‘Eddington’ | Anatomy of a Scene**\
 `The writer and director Ari Aster narrates a sequence from his film featuring Joaquin Phoenix and Pedro Pascal.`\
 https://nytimes.com/video/movies/100000010303711/eddington-scene.html

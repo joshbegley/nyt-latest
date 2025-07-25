@@ -1,3 +1,7 @@
+**Watch Joaquin Phoenix and Pedro Pascal Fight to Katy Perry in ‘Eddington’**\
+`The writer and director Ari Aster narrates a sequence that features Perry’s pop song “Firework.”`\
+https://nytimes.com/2025/07/25/movies/eddington-clip.html
+
 **‘Eddington’ | Anatomy of a Scene**\
 `The writer and director Ari Aster narrates a sequence from his film featuring Joaquin Phoenix and Pedro Pascal.`\
 https://nytimes.com/video/movies/100000010303711/eddington-scene.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6515445/2025/07/25/travis-hunter-position-jaguars-w
 https://nytimes.com/athletic/6515296/2025/07/25/jonathan-kuminga-free-agency-warriors/
 
 **First Deportation Flights Depart From Florida’s ‘Alligator Alcatraz’**\
-`Gov. Ron DeSantis said “hundreds” of federal detainees had departed a state-run detention center in the Everglades on planes, but provided few details about them or where they went.`\
+`Gov. Ron DeSantis said hundreds of immigration detainees had departed a state-run detention center in the Everglades on planes, some for federal facilities, and others out of the country.`\
 https://nytimes.com/2025/07/25/us/alligator-alcatraz-deportation-flights.html
 
 **Euro 2025: Following Swiss travel advice from Switzerland and Arsenal midfielder Lia Walti**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/texas-democrats-redistricting.html
 **Russia Again Cuts Interest Rates as Its Economy Slows**\
 `Falling inflation has persuaded the central bank in Moscow to continue relaxing the country’s record borrowing costs.`\
 https://nytimes.com/2025/07/25/world/europe/russia-interest-rates.html
-
-**Trump Flies to Scotland, Leaving Chaos Swirling in Washington**\
-`The five-day visit will be a mix of personal business and golf with some diplomacy thrown in.`\
-https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
 
