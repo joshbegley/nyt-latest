@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 7: Interior defensive line depth shines**\
+`Teair Tart, Justin Eboigbe and Otito Ogbonnia and others are giving the Chargers confidence in their defensive line group.`\
+https://nytimes.com/athletic/6514853/2025/07/24/chargers-training-camp-defensive-line/
+
 **In Josh Naylor, Mariners acquire slugger they've been missing: grades, analysis**\
 `Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
 https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
