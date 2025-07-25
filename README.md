@@ -1,3 +1,7 @@
+**Mets mailbag, trade deadline edition: Clay Holmes' role, Mark Vientos' future, lineup upgrade?**\
+`Plus questions on Dylan Cease as a starter and possible rumblings on an extension for David Peterson.`\
+https://nytimes.com/athletic/6514282/2025/07/24/mets-trade-deadline-clay-holmes-mark-vientos-lineup/
+
 **Mariners acquire slugging first baseman Josh Naylor from D-Backs: Source**\
 `Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
 https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514570/2025/07/24/raiders-release-christian-wilkin
 **Trump Administration Asks Supreme Court to Allow N.I.H. to Cut D.E.I.-Related Grants**\
 `A district court judge declared some of the administration’s cuts ‘void and illegal.’`\
 https://nytimes.com/2025/07/24/us/politics/trump-supreme-court-nih-dei-grants.html
-
-**Hulk Hogan’s Villain Turn Changed Pro Wrestling**\
-`Hulk Hogan cultivated an image as an all-American hero. But one night in 1996, he decided to stick it to his fans, brother.`\
-https://nytimes.com/2025/07/24/arts/hulk-hogan-nwo-heel.html
 
