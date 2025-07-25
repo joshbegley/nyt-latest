@@ -1,4 +1,4 @@
-**Yankees get get Ryan McMahon from Rockies, fill need at third base**\
+**Yankees get Ryan McMahon from Rockies, fill need at third base**\
 `The 30-year-old McMahon has graded out as one of the 10 best defensive third basemen this season, but his offense is below average.`\
 https://nytimes.com/athletic/6515774/2025/07/25/yankees-rockies-trade-ryan-mcmahon/
 
