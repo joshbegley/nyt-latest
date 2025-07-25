@@ -1,3 +1,7 @@
+**Hulk Hogan Couldn’t Be Contained by Clothes**\
+`His look was jokey, but it was no joke.`\
+https://nytimes.com/2025/07/25/style/hulk-hogan-style.html
+
 **What Did Trump’s Hard-Hat Tour of the Fed Accomplish?**\
 `The president wanted to take Jerome Powell, the Fed chair, to task over the cost of renovations to the central bank’s headquarters, but Mr. Powell was having none of it.`\
 https://nytimes.com/2025/07/25/business/dealbook/trump-fed-tour-powell.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6494919/2025/07/25/luis-diaz-bayern-munich-transfer
 **Book Club: Let’s Talk About ‘The Catch,’ by Yrsa Daley-Ward**\
 `The poet’s debut novel features estranged sisters and a missing mother who seemingly reappears decades later.`\
 https://nytimes.com/2025/07/25/books/review/podcast-book-club-yrsa-daley-ward-catch.html
-
-**Shunsaku Tamiya, Who Brought Perfection to Plastic Models, Dies at 90**\
-`He turned his family’s lumber business into a manufacturer of model kits that won global popularity for their quality and historical accuracy.`\
-https://nytimes.com/2025/07/25/world/asia/shunsaku-tamiya-plastic-models-dies.html
 
