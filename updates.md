@@ -1,3 +1,7 @@
+**Australia Says Gaza Situation Beyond ‘Worst Fears’ as Pressure Mounts on Israel**\
+`Some of Israel’s closest allies have stepped up criticism of its restrictions on aid to Gaza, where doctors and aid organizations say people are dying of starvation.`\
+https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-starvation-canada-australia.html
+
 **For Late Night, Epstein-Trump Is the Comedy Gift That Keeps On Giving**\
 `Josh Johnson said that “not since Tupac Shakur has a dead man dropped so many bangers.”`\
 https://nytimes.com/2025/07/25/arts/television/late-night-jeffrey-epstein-donald-trump.html
