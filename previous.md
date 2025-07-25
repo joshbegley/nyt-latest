@@ -1,8 +1,12 @@
+**NFL will fine players who sold Super Bowl tickets above market value**\
+`The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
+https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
+
 **Inter Miami owner on Messi's suspension: MLS rule is 'draconian'**\
 `Jorge Mas voiced his support for Lionel Messi and Jordi Alba while expressing opposition to MLS's decision to ban the star duo.`\
 https://nytimes.com/athletic/6515822/2025/07/25/messi-suspension-mls-all-star-game-miami-owner-jorge-mas/
 
-**What to know about Broncos training camp, Day 1: Bo Nix shines on the move**\
+**What to know about Day 1 of Broncos training camp: Bo Nix shines on the move**\
 `The pass-rush talent that helped the Broncos lead the league with 63 sacks last season shined on camp's first full day.`\
 https://nytimes.com/athletic/6515855/2025/07/25/broncos-training-camp-nix-franklin-tillman/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515801/2025/07/25/browns-training-camp-shedeur-san
 **Brandon Walter becomes 18th Astros player to land on injured list**\
 `No team in baseball currently has more players sidelined on the injured list than Houston. `\
 https://nytimes.com/athletic/6515952/2025/07/25/brandon-walter-astros-injured-list/
-
-**Valkyries' Kayla Thornton to miss rest of season after knee surgery**\
-`Thornton, a nine-year veteran, was an All-Star for the first time this season and led the Valkyries in points, rebounds and steals.`\
-https://nytimes.com/athletic/6515867/2025/07/25/valkyries-kayla-thornton-to-miss-season/
 

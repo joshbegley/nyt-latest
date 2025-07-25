@@ -1,3 +1,11 @@
+**NFL will fine players who sold Super Bowl tickets above market value**\
+`The NFL is taking a hard stance against players and team employees attempting to profit from Super Bowl tickets.`\
+https://nytimes.com/athletic/6515890/2025/07/25/nfl-fine-players-super-bowl-tickets/
+
+**What to know about Day 1 of Broncos training camp: Bo Nix shines on the move**\
+`The pass-rush talent that helped the Broncos lead the league with 63 sacks last season shined on camp's first full day.`\
+https://nytimes.com/athletic/6515855/2025/07/25/broncos-training-camp-nix-franklin-tillman/
+
 **Inter Miami owner on Messi's suspension: MLS rule is 'draconian'**\
 `Jorge Mas voiced his support for Lionel Messi and Jordi Alba while expressing opposition to MLS's decision to ban the star duo.`\
 https://nytimes.com/athletic/6515822/2025/07/25/messi-suspension-mls-all-star-game-miami-owner-jorge-mas/
