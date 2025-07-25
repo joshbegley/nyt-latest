@@ -1,3 +1,7 @@
+**Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
+`Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
+https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
+
 **Trump Administration Plans Changes to Skilled Worker Visas and Citizenship Tests**\
 `In an interview with The New York Times, the new director of U.S. Citizenship and Immigration Services said the test to become a U.S. citizen was too easy.`\
 https://nytimes.com/2025/07/25/us/trump-visas-h1b-citizenship-tests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515793/2025/07/25/fifa-fifpro-blackmail-tensions/
 **Michigan, Western Michigan finalizing deal to open 2026 season in Germany**\
 `The NFL brought two regular-season games to Deutsche Bank Park in 2023: The Chiefs versus the Dolphins and the Colts against the Patriots.`\
 https://nytimes.com/athletic/6515877/2025/07/25/michigan-western-germany-college-football/
-
-**Outrage After Alabama 3-Year-Old Dies in Hot Car While in State’s Care**\
-`The boy, who was in foster care, was being transported between a supervised visit and day care, his aunt said. State lawmakers said they were seeking answers and the police were investigating.`\
-https://nytimes.com/2025/07/25/us/alabama-boy-death-hot-car.html
 

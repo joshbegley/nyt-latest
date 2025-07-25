@@ -1,3 +1,7 @@
+**Giants training camp takeaways: Sloppy offense and a scary collision highlight Day 3**\
+`Russell Wilson and the Giants offense weren't at their sharpest Friday, though Wilson did connect on a long touchdown with Malik Nabers.`\
+https://nytimes.com/athletic/6515907/2025/07/25/ny-giants-russell-wilson-training-camp/
+
 **Trump Administration Plans Changes to Skilled Worker Visas and Citizenship Tests**\
 `In an interview with The New York Times, the new director of U.S. Citizenship and Immigration Services said the test to become a U.S. citizen was too easy.`\
 https://nytimes.com/2025/07/25/us/trump-visas-h1b-citizenship-tests.html
