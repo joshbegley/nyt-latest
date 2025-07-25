@@ -1,3 +1,23 @@
+**The Chicago stars driving the sports card market heading into The National**\
+`The athletes who are likely to be the most talked about on the show floor at the National Sports Collectors Convention next week`\
+https://nytimes.com/athletic/6514069/2025/07/25/hottest-sports-cards-michael-jordan-pete-crow-armstrong/
+
+**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 1 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
+https://nytimes.com/2025/07/25/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
+
+**Quick thoughts on each 2025 draft pick in summer league, from Flagg to Mashack**\
+`How did each draft pick look this month, and what might be in store for them when the real games begin this fall?`\
+https://nytimes.com/athletic/6512382/2025/07/25/nba-summer-league-vegas-takeaways-cooper-flagg-dylan-harper/
+
+**Joe Vigil, Running Coach Who Shaped Champions, Dies at 95**\
+`He turned Adams State University in Colorado into a distance-running powerhouse and helped mentor two marathon medalists at the 2004 Athens Olympics.`\
+https://nytimes.com/2025/07/25/sports/joe-vigil-dead.html
+
+**Bubble teams could shape MLB trade deadline. History tells us which will buy or sell**\
+`An absence of powerhouse teams has left this trade deadline feeling as uncertain as ever a week out.`\
+https://nytimes.com/athletic/6514857/2025/07/25/mlb-trade-deadline-buy-sell-history/
+
 **Blue Jackets' lineup outlook: Elvis Merzlikins a backup? Yegor Chinakhov a third-liner?**\
 `With two months until Columbus opens training camp, here's how the 2025-26 roster could shake out after the offseason.
 `\
