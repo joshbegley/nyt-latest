@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, July 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/25/todays-new-york-times-international-edition
+
 **Is Decarbonization Dead?**\
 `Trump just shredded America’s most ambitious climate policy. Jane Flegal and Jesse Jenkins discuss what this means for the future of renewable energy in the U.S.`\
 https://nytimes.com/2025/07/25/opinion/ezra-klein-podcast-jesse-jenkins-jane-flegal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/magazine/the-conservative-crusade-thats-about-so-
 **New York Historical Acquires Bill Cunningham Archive**\
 `Tens of thousands of photos, negatives and memorabilia from the New York Times photographer (himself designated a living landmark) will go to the museum and have a permanent home.`\
 https://nytimes.com/2025/07/25/arts/design/new-york-historical-bill-cunningham-archive.html
-
-**How Zohran Mamdani Answers, ‘Where Are You From?’**\
-`Like many younger Asian Ugandans, he is redefining his relationship with the country where he was born.`\
-https://nytimes.com/2025/07/25/opinion/zohran-mamdani-uganda-expulsion.html
 
