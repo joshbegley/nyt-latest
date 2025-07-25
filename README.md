@@ -1,3 +1,7 @@
+**Trump Flies to Scotland, Leaving Chaos Swirling in Washington**\
+`The five-day visit will be a mix of personal business and golf with some diplomacy thrown in.`\
+https://nytimes.com/2025/07/25/us/politics/trump-scotland.html
+
 **The 7.27.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514857/2025/07/25/mlb-trade-deadline-buy-sell-hist
 **The Generations of Pain I Felt in One Racist Moment**\
 `What it means to be both Black and white, and neither, in a polarized United States.`\
 https://nytimes.com/2025/07/25/us/racism-biracial-identity.html
-
-**Wrexham make approach to sign Eriksen**\
-`The 33-year-old has been without a club since leaving Manchester United following the expiration of his contract earlier this summer.`\
-https://nytimes.com/athletic/6515264/2025/07/25/wrexham-christian-eriksen-transfer/
 

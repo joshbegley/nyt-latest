@@ -1,3 +1,7 @@
+**The 7.27.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue
+
 **Thousands Flee Thailand-Cambodia Border Amid Deadly Conflict**\
 `More than 100,000 people have fled a disputed border area between Thailand and Cambodia as fighting there entered a second day. The clashes have been the deadliest between the two nations in at least a decade.`\
 https://nytimes.com/video/world/asia/100000010305859/thousands-flee-thailand-cambodia-border-amid-deadly-conflict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/racism-biracial-identity.html
 **Wrexham make approach to sign Eriksen**\
 `The 33-year-old has been without a club since leaving Manchester United following the expiration of his contract earlier this summer.`\
 https://nytimes.com/athletic/6515264/2025/07/25/wrexham-christian-eriksen-transfer/
-
-**Hulk Hogan Couldn’t Be Contained by Clothes**\
-`His look was jokey, but it was no joke.`\
-https://nytimes.com/2025/07/25/style/hulk-hogan-style.html
 

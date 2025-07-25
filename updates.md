@@ -1,3 +1,7 @@
+**The 7.27.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/07/25/the-7272025-issue
+
 **Thousands Flee Thailand-Cambodia Border Amid Deadly Conflict**\
 `More than 100,000 people have fled a disputed border area between Thailand and Cambodia as fighting there entered a second day. The clashes have been the deadliest between the two nations in at least a decade.`\
 https://nytimes.com/video/world/asia/100000010305859/thousands-flee-thailand-cambodia-border-amid-deadly-conflict.html
