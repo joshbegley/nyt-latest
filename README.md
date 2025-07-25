@@ -1,3 +1,11 @@
+**Robert W. Fuller, Who Championed Dignity Over ‘Rankism,’ Dies at 88**\
+`He identified as a “citizen diplomat” and preached mutual respect because, he explained, “everybody is a somebody.”`\
+https://nytimes.com/2025/07/25/books/robert-w-fuller-dead.html
+
+**Cleo Laine, Acclaimed British Jazz Singer, Is Dead at 97**\
+`Known for a smoky voice that she could deploy over four octaves, she recorded albums across six decades and also had success as an actress.`\
+https://nytimes.com/2025/07/25/arts/music/cleo-laine-dead.html
+
 **Under Siege From Trump and Musk, a Top Liberal Group Falls Into Crisis**\
 `Scrambling to pay legal fees, Media Matters has dialed back its criticism, trimmed its staff and contemplated closing entirely.`\
 https://nytimes.com/2025/07/25/us/politics/media-matters-musk-crisis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/25/climate/tijuana-river-sewage-agreement.html
 **U.S. Conducts Rare Raid in Syria, Killing a Senior Islamic State Leader**\
 `The military gave few details on the ground operation, but counterterrorism raids have typically involved helicopter-borne Special Operations commandos.`\
 https://nytimes.com/2025/07/25/us/politics/us-raid-syria-isis.html
-
-**England to give James time to prove fitness for Euro 2025 final**\
-`James was forced off at half-time during Tuesday’s semi-final victory over Italy.`\
-https://nytimes.com/athletic/6510465/2025/07/25/england-euros-lauren-james-injury-update/
-
-**Israel to Allow Humanitarian Airdrops Over Gaza**\
-`Jordan and the United Arab Emirates were expected to begin airdrops in the coming days, but experts warned that the bulk of necessary aid could come only by land.`\
-https://nytimes.com/2025/07/25/world/middleeast/israel-gaza-aid-airdrops.html
 
