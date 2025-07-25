@@ -1,3 +1,7 @@
+**2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\
+`The sudden maneuver was made during a Friday flight out of California after two collision safety alerts sounded in the cockpit, causing the pilots to take evasive action, the airline said.`\
+https://nytimes.com/2025/07/25/us/southwest-flight-burbank-injuries.html
+
 **Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
 `The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
 https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/

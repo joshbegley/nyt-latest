@@ -1,3 +1,7 @@
+**2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\
+`The sudden maneuver was made during a Friday flight out of California after two collision safety alerts sounded in the cockpit, causing the pilots to take evasive action, the airline said.`\
+https://nytimes.com/2025/07/25/us/southwest-flight-burbank-injuries.html
+
 **Bills Day 3 observations: Competition heats up at CB, WR; a message is sent to backup LBs**\
 `Outside of Khalil Shakir, how have the wide receivers looked in camp?`\
 https://nytimes.com/athletic/6515898/2025/07/25/bills-day-3-observations-competition-heats-up-at-cb-wr-linebacker/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/nyregion/bronx-infant-deaths-mother-arrested.html
 **Election Officials Allege Possible Voter Fraud in Republican Primary**\
 `The New York City Board of Elections asked prosecutors to investigate potential ballot stuffing in a City Council race in southern Brooklyn.`\
 https://nytimes.com/2025/07/25/nyregion/election-fraud-new-york-city-council.html
-
-**Judge Demands Answers About Deal to Return MS-13 Gang Leaders to El Salvador**\
-`Federal prosecutors are seeking to drop narco-terrorism charges against a man they have alleged is one of the gang’s leaders.`\
-https://nytimes.com/2025/07/25/nyregion/bukele-ms-13-trump-deal.html
 
