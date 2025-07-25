@@ -1,3 +1,16 @@
+**The Generations of Pain I Felt in One Racist Moment**\
+`What it means to be both Black and white, and neither, in a polarized United States.`\
+https://nytimes.com/2025/07/25/us/racism-biracial-identity.html
+
+**Wrexham make approach to sign Eriksen**\
+`The 33-year-old has been without a club since leaving Manchester United following the expiration of his contract earlier this summer.`\
+https://nytimes.com/athletic/6515264/2025/07/25/wrexham-christian-eriksen-transfer/
+
+**Blue Jackets' lineup outlook: Elvis Merzlikins a backup? Yegor Chinakhov a third-liner?**\
+`With two months until Columbus opens training camp, here's how the 2025-26 roster could shake out after the offseason.
+`\
+https://nytimes.com/athletic/6509197/2025/07/25/blue-jackets-2025-26-lineup-merzlikins-chinakhov/
+
 **Blue Jackets' lineup outlook: Elvis Merzlikins a backup? Yegor Chinakhov a third-liner?**\
 `With two months until Columbus opens training camp, here's how the 2025-26 roster could shake out after the offseason.
 `\
