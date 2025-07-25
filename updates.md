@@ -1,3 +1,7 @@
+**Viktor Gyokeres battled to be Arsenal’s striker of choice – that desire may prove a special power**\
+`Gyokeres, Arsenal and Sesko have been in a weird love triangle, but the club have finally agreed a deal for the Swede. He really wants it`\
+https://nytimes.com/athletic/6485860/2025/07/25/viktor-gyokeres-arsenal-transfer-decision/
+
 **Gyokeres battled to be Arsenal's striker of choice - he wants it badly, which can only be a good thing**\
 `Gyokeres, Arsenal and Sesko have been in a weird love triangle - but the club have finally agreed a deal for the Swede. He really wants it`\
 https://nytimes.com/athletic/6485860/2025/07/25/viktor-gyokeres-arsenal-transfer-decision/
