@@ -2,7 +2,7 @@
 `The visit by Representatives Don Bacon of Nebraska and Ro Khanna of California is aimed at tamping down tensions stoked by President Trump on trade and immigration.`\
 https://nytimes.com/2025/07/25/us/politics/congressmen-sheinbaum-mexico.html
 
-**After Maxwell Interview, Concerns Mount Over Possibility of Pardon**\
+**After Ghislaine Maxwell Interview, Concerns Mount Over Possibility of Pardon**\
 `President Trump, asked whether he would consider pardoning her, said, “I’m allowed to do it, but it’s something I haven’t thought about.”`\
 https://nytimes.com/2025/07/25/us/politics/ghislaine-maxwell-trump-pardon.html
 
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6516003/2025/07/25/saniyah-hall-commits-usc/
 `De Paul links up with his Argentina international team-mate and close friend Lionel Messi.`\
 https://nytimes.com/athletic/6510466/2025/07/25/rodrigo-de-paul-inter-miami-transfer-atletico-madrid/
 
-**Rex White, 1960 NASCAR Champion Driver, Dies at 95**\
+**Rex White, Hailed as One of NASCAR’s Greatest Drivers, Dies at 95**\
 `He dealt with the aftereffects of polio to become a prolific winner in the Grand National Series (now the NASCAR Cup) in the 1950s and ’60s.`\
 https://nytimes.com/2025/07/25/sports/autoracing/rex-white-dead.html
 
