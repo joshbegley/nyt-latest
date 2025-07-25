@@ -1,3 +1,11 @@
+**Robert W. Fuller, Who Championed Dignity Over ‘Rankism,’ Dies at 88**\
+`He identified as a “citizen diplomat” and preached mutual respect because, he explained, “everybody is a somebody.”`\
+https://nytimes.com/2025/07/25/books/robert-w-fuller-dead.html
+
+**Cleo Laine, Acclaimed British Jazz Singer, Is Dead at 97**\
+`Known for a smoky voice that she could deploy over four octaves, she recorded albums across six decades and also had success as an actress.`\
+https://nytimes.com/2025/07/25/arts/music/cleo-laine-dead.html
+
 **Under Siege From Trump and Musk, a Top Liberal Group Falls Into Crisis**\
 `Scrambling to pay legal fees, Media Matters has dialed back its criticism, trimmed its staff and contemplated closing entirely.`\
 https://nytimes.com/2025/07/25/us/politics/media-matters-musk-crisis.html
