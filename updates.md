@@ -1,3 +1,7 @@
+**'Cunha and Mbeumo will elevate us to another level – we need their goals and assists'**\
+`The United midfielder knows last season wasn't good enough. He tells The Athletic in Chicago how Amorim's squad are going to change things`\
+https://nytimes.com/athletic/6514466/2025/07/25/manchester-united-mason-mount-interview-cunha-mbeumo/
+
 **Columbia Walked a Tightrope on Its Way to a $200 Million Settlement With Trump**\
 `Talks in Washington. An expert on negotiation. A balancing act. The university chose cooperation over litigation, a strategy both pilloried and praised.`\
 https://nytimes.com/2025/07/25/nyregion/how-columbia-reached-a-deal.html

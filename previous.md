@@ -30,7 +30,7 @@ https://nytimes.com/2025/07/25/arts/television/late-night-jeffrey-epstein-donald
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/25/learning/word-of-the-day-skulduggery.html
 
-**'Cunha and Mbeumo will elevate us to another level - we need their goals and assists'**\
+**'Cunha and Mbeumo will elevate us to another level – we need their goals and assists'**\
 `The United midfielder knows last season wasn't good enough. He tells The Athletic in Chicago how Amorim's squad are going to change things`\
 https://nytimes.com/athletic/6514466/2025/07/25/manchester-united-mason-mount-interview-cunha-mbeumo/
 
