@@ -1,3 +1,7 @@
+**Five Gins We Love **\
+`Text by Lesley Stockton`\
+https://nytimes.com/card/2025/07/25/smarter-living/wirecutter/
+
 **Peace Negotiations in Ukraine Haven’t Failed. They Haven’t Really Started.**\
 `No one knows what Putin would accept to end his invasion of Ukraine if he were presented with a real negotiation process.`\
 https://nytimes.com/2025/07/25/opinion/ukraine-war-negotiations-trump.html
