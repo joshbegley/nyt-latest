@@ -1,3 +1,7 @@
+**In Josh Naylor, Mariners acquire slugger they've been missing: grades, analysis**\
+`Naylor, a left-handed-hitting first baseman, entered play on Thursday with .292/.360/.447 slash line, with 11 homers and 59 RBI.`\
+https://nytimes.com/athletic/6514703/2025/07/24/seattle-mariners-josh-naylor-trade/
+
 **What we're hearing about the MLB trade deadline: Ryan Helsley, the Rockies and the relief market**\
 `“I would say it’s 90 percent I go, 10 percent I stay,” Helsley said about his future in St. Louis with the trade deadline approaching.`\
 https://nytimes.com/athletic/6514829/2025/07/24/mlb-trade-deadline-analysis-relief-market/
