@@ -1,3 +1,7 @@
+**U.S. Conducts Rare Raid in Syria, Killing a Senior Islamic State Leader**\
+`The military gave few details on the ground operation, but counterterrorism raids have typically involved helicopter-borne Special Operations commandos.`\
+https://nytimes.com/2025/07/25/us/politics/us-raid-syria-isis.html
+
 **Austin Ekeler, NFLPA executive committee member, says the union remains in good hands**\
 `The Washington Commanders running back also defended the search process that ended with Lloyd Howell's hiring in 2023.`\
 https://nytimes.com/athletic/6515650/2025/07/25/austin-ekeler-nflpa-leadership-search/

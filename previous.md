@@ -1,7 +1,3 @@
-**Austin Ekeler, NFLPA executive committee member, says the union remains in good hands**\
-`The Washington Commanders running back also defended the search process that ended with Lloyd Howell's hiring in 2023.`\
-https://nytimes.com/athletic/6515650/2025/07/25/austin-ekeler-nflpa-leadership-search/
-
 **Robert W. Fuller, Who Championed Dignity Over ‘Rankism,’ Dies at 88**\
 `He identified as a “citizen diplomat” and preached mutual respect because, he explained, “everybody is a somebody.”`\
 https://nytimes.com/2025/07/25/books/robert-w-fuller-dead.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6515018/2025/07/25/fantasy-baseball-top-waiver-wire
 **U.S. and Mexico Sign Deal to Stop Sewage Release Into Tijuana River**\
 `The agreement addresses a longstanding problem that has sickened people in both countries.`\
 https://nytimes.com/2025/07/25/climate/tijuana-river-sewage-agreement.html
+
+**U.S. Conducts Rare Raid in Syria, Killing a Senior Islamic State Leader**\
+`The military gave few details on the ground operation, but counterterrorism raids have typically involved helicopter-borne Special Operations commandos.`\
+https://nytimes.com/2025/07/25/us/politics/us-raid-syria-isis.html
 
