@@ -1,3 +1,7 @@
+**Military Clash Between Thailand and Cambodia Expands Along Shared Border**\
+`The deadliest conflict between the two nations in 14 years, now in its third day, extended to provinces about 200 miles south of where clashes first began.`\
+https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-fighting-conflict-expands.html
+
 **How Midge Purce, the Soccer Star, Spends Her Day Training**\
 `Ms. Purce, a Gotham F.C. forward, begins her day with “Game of Thrones,” then hits the gym with her teammates and makes time for a little dress up.`\
 https://nytimes.com/2025/07/26/nyregion/midge-purce-gotham-fc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515975/2025/07/26/tadej-pogacar-inside-2025-tour-d
 **Phillies' Taijuan Walker making the most of fifth spot in rotation, for now**\
 `The Phillies and Walker just need to make it until mid-August, when Aaron Nola's return seems likely.`\
 https://nytimes.com/athletic/6516617/2025/07/26/taijuan-walker-phillies-rotation-for-now/
-
-**Greenberg: White Sox give Cubs a booming wake-up call in rivalry smackdown**\
-`The Sox have won six of seven since the All-Star break, none sweeter than Friday's 12-5 victory. The Cubs failed to pull even with Astros.`\
-https://nytimes.com/athletic/6516607/2025/07/26/chicago-white-sox-embarrass-cubs-rivalry/
 

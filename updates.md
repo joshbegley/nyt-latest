@@ -1,3 +1,7 @@
+**Military Clash Between Thailand and Cambodia Expands Along Shared Border**\
+`The deadliest conflict between the two nations in 14 years, now in its third day, extended to provinces about 200 miles south of where clashes first began.`\
+https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-fighting-conflict-expands.html
+
 **How Midge Purce, the Soccer Star, Spends Her Day Training**\
 `Ms. Purce, a Gotham F.C. forward, begins her day with “Game of Thrones,” then hits the gym with her teammates and makes time for a little dress up.`\
 https://nytimes.com/2025/07/26/nyregion/midge-purce-gotham-fc.html
