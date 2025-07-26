@@ -1,3 +1,7 @@
+**Vikings sign Josh Metellus to 3-year extension**\
+`He has combined for 219 tackles, five forced fumbles and three interceptions since 2023.`\
+https://nytimes.com/athletic/6517241/2025/07/26/vikings-josh-metellus-contract-extension/
+
 **Infection From Brain-Eating Amoeba Kills Boy in South Carolina**\
 `A lawyer for the family of 12-year-old Jaysen Carr said he died on July 18 after contracting a deadly infectious amoeba while swimming in a reservoir.`\
 https://nytimes.com/2025/07/26/health/south-carolina-child-dead-brain-eating-amoeba.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517152/2025/07/26/bears-training-camp-colston-love
 **Leeds complete Perri signing from Lyon**\
 `A new goalkeeper was a priority for the newly-promoted Premier League club this summer.`\
 https://nytimes.com/athletic/6512815/2025/07/26/leeds-lucas-perri-transfer/
-
-**Inside Viktor Gyokeres' transfer to Arsenal: Tough negotiating, Berta's role and why Sesko interest cooled**\
-`After months of speculation, the club have agreed a €63.5m fixed fee with a further €10m in add-ons for Sporting CP's free-scoring striker`\
-https://nytimes.com/athletic/6501696/2025/07/26/arsenal-viktor-gyokeres-inside-transfer/
 
