@@ -1,3 +1,7 @@
+**Despite future contract questions, Ravens' first week of camp has been drama-free**\
+`OWINGS MILLS, Md.`\
+https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
+
 **Jalen Ramsey's new role takes shape, Aaron Rodgers sharp: Steelers training camp observations**\
 `Plus, Mike Tomlin and his new defensive back remember a 'free dinner' together from long ago.`\
 https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-report-aaron-rodgers-jalen-ramsey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/
 **Ocasio-Cortez Must Pay Another $2,700 for Met Gala Dress**\
 `Alexandria Ocasio-Cortez made a splash in 2021 with her “Tax the Rich” dress. Then the House Ethics Committee opened an investigation.`\
 https://nytimes.com/2025/07/25/nyregion/aoc-met-gala-dress.html
-
-**Federal Judge Dismisses Trump Administration’s Challenge of Illinois Sanctuary Measures**\
-`The Justice Department had sued the leaders of Illinois, Chicago and Cook County over policies that limit cooperation with federal immigration officials.`\
-https://nytimes.com/2025/07/25/us/illinois-sanctuary-trump-immigration-lawsuit.html
 

@@ -1,3 +1,7 @@
+**Despite future contract questions, Ravens' first week of camp has been drama-free**\
+`OWINGS MILLS, Md.`\
+https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
+
 **Jalen Ramsey's new role takes shape, Aaron Rodgers sharp: Steelers training camp observations**\
 `Plus, Mike Tomlin and his new defensive back remember a 'free dinner' together from long ago.`\
 https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-report-aaron-rodgers-jalen-ramsey/

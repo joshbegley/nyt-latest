@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-c
 https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-report-aaron-rodgers-jalen-ramsey/
 
 **Dodgers welcome back Walker Buehler, who finds himself in a familiar place with Boston**\
-`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his ring and met old fri`\
+`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his championship ring.`\
 https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-red-sox-recovery/
 
 **2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\
