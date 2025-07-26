@@ -1,3 +1,7 @@
+**No Proof Hamas Routinely Stole U.N. Aid, Israeli Military Officials Say**\
+`Israel has long restricted or completely blocked aid to Gaza on the argument that Hamas steals it to use as a weapon of control over the population.`\
+https://nytimes.com/2025/07/26/world/middleeast/hamas-un-aid-theft.html
+
 **How to watch Top Rank Boxing: Xander Zayas, Jorge Garcia battle for world title**\
 `Rising star Xander Zayas will take on veteran Jorge Garcia this Saturday night, marking the end of an era for boxing on television. `\
 https://nytimes.com/athletic/6514648/2025/07/26/top-rank-boxing-zayas-garcia-tv-deal-how-to-watch/

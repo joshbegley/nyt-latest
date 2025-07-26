@@ -1,3 +1,7 @@
+**No Proof Hamas Routinely Stole U.N. Aid, Israeli Military Officials Say**\
+`Israel has long restricted or completely blocked aid to Gaza on the argument that Hamas steals it to use as a weapon of control over the population.`\
+https://nytimes.com/2025/07/26/world/middleeast/hamas-un-aid-theft.html
+
 **How to watch Top Rank Boxing: Xander Zayas, Jorge Garcia battle for world title**\
 `Rising star Xander Zayas will take on veteran Jorge Garcia this Saturday night, marking the end of an era for boxing on television. `\
 https://nytimes.com/athletic/6514648/2025/07/26/top-rank-boxing-zayas-garcia-tv-deal-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/us/politics/hegseth-pentagon-leadership.html
 **How Hulk Hogan Leg-Dropped the Digital Media Industry**\
 `His lawsuit over a leaked sex tape bankrupted Gawker Media — and helped inspire the American right’s ongoing war on the press.`\
 https://nytimes.com/2025/07/26/magazine/hulk-hogan-digital-media-industry.html
-
-**Can My Boss Bring His ‘Situationship’ to Hang Out All Day at the Office?**\
-`Plus, what to do when someone’s taking a leisurely lunch in the pumping room.`\
-https://nytimes.com/2025/07/26/business/boss-situationship-office-advice.html
 
