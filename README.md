@@ -1,3 +1,7 @@
+**Trump Isn’t Getting Rid of Chaos at the Border. He’s Redistributing It.**\
+`The “Opinions” round table discusses the president’s immigration policies and the emerging resistance to it.`\
+https://nytimes.com/video/opinion/100000010304205/trump-isnt-getting-rid-of-chaos-at-the-border-hes-redistributing-it.html
+
 **Gomez leaves Liverpool's pre-season tour with Achilles injury**\
 `Gomez complained of discomfort following Thursday's training session at Kai Tak Stadium.`\
 https://nytimes.com/athletic/6516801/2025/07/26/joe-gomez-liverpool-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/crosswords/strands-sidekick-511.html
 **Wordle Review No. 1,499**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 27, 2025.`\
 https://nytimes.com/2025/07/26/crosswords/wordle-review-1499.html
-
-**A summer Saturday is the ideal time for Savannah Bananas baseball. Here's how to watch**\
-`The 2025 Banana Ball World Tour continues this weekend with a stop in Philadelphia. It promises mirth, chaos and yellow-peeled surrealism.`\
-https://nytimes.com/athletic/6512228/2025/07/26/savannah-bananas-philadelphia-baseball-how-to-watch/
 
