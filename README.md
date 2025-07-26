@@ -1,3 +1,11 @@
+**In Cooperstown, Dave Parker’s son prepares for the speech his father always wanted to give**\
+`Dave Parker II will speak at the Hall of Fame induction on Sunday, nearly a month after his father died at 74.`\
+https://nytimes.com/athletic/6517138/2025/07/26/dave-parker-hall-of-fame-son/
+
+**Bears camp observations: Colston Loveland gets involved, Caleb Williams leads TD drive**\
+`The Bears' offense bounced back with one of its smoother practices, and Loveland made his debut in team drills.`\
+https://nytimes.com/athletic/6517152/2025/07/26/bears-training-camp-colston-loveland-caleb-williams/
+
 **Leeds complete Perri signing from Lyon**\
 `A new goalkeeper was a priority for the newly-promoted Premier League club this summer.`\
 https://nytimes.com/athletic/6512815/2025/07/26/leeds-lucas-perri-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6516813/2025/07/26/tour-de-france-stage-20-analysis
 **Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son, and absentees**\
 `Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
 https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
-
-**Yankees' Aaron Judge out vs. Phillies, undergoing tests on elbow**\
-`Judge initially hurt his elbow in Toronto on Tuesday and had difficulty throwing in Friday's game against the Phillies.`\
-https://nytimes.com/athletic/6516981/2025/07/26/aaron-judge-out-injury-yankees-phillies/
-
-**A Golfing Trump Is Greeted by Protesters in Scotland**\
-`The president was criticized by demonstrators on a range of issues, from his stance on immigration and Gaza to his ties to the sex offender Jeffrey Epstein.`\
-https://nytimes.com/2025/07/26/world/europe/trump-protest-scotland.html
 
