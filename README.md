@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge out vs. Phillies, undergoing tests on elbow**\
+`Judge initially hurt his elbow in Toronto on Tuesday and had difficulty throwing in Friday's game against the Phillies.`\
+https://nytimes.com/athletic/6516981/2025/07/26/aaron-judge-out-injury-yankees-phillies/
+
 **A Golfing Trump Is Greeted by Protesters in Scotland**\
 `The president was criticized by demonstrators on a range of issues, from his stance on immigration and Gaza to his ties to the sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/07/26/world/europe/trump-protest-scotland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gl
 **Giant's Logan Webb not nearly sharp enough vs. Mets to stem rotation issues**\
 `The Giants are just 11-11 with Webb on the mound. If they're not careful, it could become the statistic that defines their season.`\
 https://nytimes.com/athletic/6516723/2025/07/26/giants-rotation-issues-logan-webb/
-
-**Everton in talks to sign Lyon winger Fofana**\
-`The 20-year-old registered five goals and four assists across 29 league appearances for Lyon last season.`\
-https://nytimes.com/athletic/6430363/2025/07/26/everton-malick-fofana-transfer/
 
