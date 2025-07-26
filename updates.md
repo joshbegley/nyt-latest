@@ -1,3 +1,7 @@
+**Messi's 'bodyguard' De Paul joins Inter Miami: What can MLS expect?**\
+`Off the field, the pair share a strong relationship. On it, MLS defenders will find they have someone else to watch out for as well as Messi`\
+https://nytimes.com/athletic/6495579/2025/07/26/lionel-messi-bodyguard-rodrigo-de-paul-miami/
+
 **Explaining Christian Wilkins' grievance against Raiders after his abrupt release**\
 `Wilkins will attempt to recoup the $35.2 million in guaranteed salary the Raiders voided. How does that process work? `\
 https://nytimes.com/athletic/6515836/2025/07/26/christian-wilkins-grievance-raiders-nflpa/

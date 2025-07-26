@@ -1,7 +1,3 @@
-**Messi's 'bodyguard' De Paul joins Inter Miami: What can MLS expect?**\
-`Off the field, the pair share a strong relationship. On it, MLS defenders will find they have someone else to watch out for as well as Messi`\
-https://nytimes.com/athletic/6495579/2025/07/26/lionel-messi-bodyguard-rodrigo-de-paul-miami/
-
 **Explaining Christian Wilkins' grievance against Raiders after his abrupt release**\
 `Wilkins will attempt to recoup the $35.2 million in guaranteed salary the Raiders voided. How does that process work? `\
 https://nytimes.com/athletic/6515836/2025/07/26/christian-wilkins-grievance-raiders-nflpa/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6516122/2025/07/26/jerry-jones-micah-parsons-contra
 **Submit MLB deadline trade proposals for Jim Bowden to evaluate**\
 `With less than a week until the trade deadline, we want to hear subscribers’ trade proposals. Jim Bowden will weigh in on a bunch of them. `\
 https://nytimes.com/athletic/6516817/2025/07/26/submit-mlb-deadline-trade-proposals-for-jim-bowden-to-evaluate/
+
+**Sarina Wiegman: Football’s ultimate tournament specialist**\
+`Few managers in the game think outside the box like Wiegman – five successive finals is an achievement that may not be matched`\
+https://nytimes.com/athletic/6515088/2025/07/26/sarina-wiegman-england-manager-ultimate-tournament-specialist/
 
