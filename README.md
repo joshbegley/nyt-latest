@@ -1,3 +1,11 @@
+**Ghizlane Chebbak: A player born into Moroccan soccer greatness but writing her own story**\
+`Tournament hosts Morocco face nine-time champions Nigeria in the WAFCON final on Saturday`\
+https://nytimes.com/athletic/6516945/2025/07/26/ghizlane-chebbak-wafcon-morocco/
+
+**Tour de France stage 20: Groves completes Grand Tour trilogy, Pogacar reflects on 'crazy' race, Jegat ghosts into top 10**\
+`Analysis of the penultimate day's action in the 2025 race – a 184km route from Nantua to Pontarlier`\
+https://nytimes.com/athletic/6516813/2025/07/26/tour-de-france-stage-20-analysis/
+
 **Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son and absentees**\
 `Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
 https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/26/dining/seven-layer-salad-and-22-more-classic-sala
 **Isak is not in Singapore with Newcastle but his future is dominating their pre-season tour**\
 `Eddie Howe fielded eight questions on the striker during Saturday's 15-minute press conference. The situation is beyond a distraction now`\
 https://nytimes.com/athletic/6515165/2025/07/26/isak-future-transfer-howe-newcastle-singapore/
-
-**India receives 'hoax' Xavi and Guardiola head coach applications**\
-`The AIFF said it had narrowed its head coach shortlist down to three applicants and in the process had dismissed two hoax applications.`\
-https://nytimes.com/athletic/6516880/2025/07/26/xavi-pep-guardiola-india-hoax/
-
-**Live Q&A: Aaron Gleeman to answer your Twins questions before the trade deadline**\
-`Twins expert Aaron Gleeman will be here Monday to answer reader questions.`\
-https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gleeman/
 
