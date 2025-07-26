@@ -1,3 +1,7 @@
+**Greenberg: White Sox give Cubs a booming wake-up call in rivalry smackdown**\
+`The Sox have won six of seven since the All-Star break, none sweeter than Friday's 12-5 victory. The Cubs failed to pull even with Astros.`\
+https://nytimes.com/athletic/6516607/2025/07/26/chicago-white-sox-embarrass-cubs-rivalry/
+
 **The making of a Lioness - as told by their parents: Extra jobs, bank loans and sleeping in meetings**\
 `The families of England players talk to The Athletic about the challenges and sacrifices involved in their daughters' journeys to the top`\
 https://nytimes.com/athletic/6506473/2025/07/26/making-of-a-lioness-england-euros/
