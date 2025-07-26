@@ -1,3 +1,7 @@
+**2 Novels for Double Lives**\
+`An unhappy housewife; an underground radical.`\
+https://nytimes.com/2025/07/26/books/read-like-wind-recommended-books.html
+
 **The Pulse: Jerry Jones' latest doomed standoff**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6516122/2025/07/26/jerry-jones-micah-parsons-contract-the-pulse/
