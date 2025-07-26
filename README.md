@@ -1,3 +1,15 @@
+**Deion Sanders returns to Colorado facilities after health issue**\
+`Deion Sanders Jr. posted a video showing the elder Sanders walking through the facility and into the coaches' meeting room. `\
+https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colorado/
+
+**Venezuelan Youth Baseball Team, Denied Visas, Is Left Out of Tournament in U.S.**\
+`The team had apparently been swept up in the severe travel restrictions that President Trump has placed on more than a dozen countries.`\
+https://nytimes.com/2025/07/25/us/politics/venezuelan-youth-baseball-visas-tournament.html
+
+**What I'm hearing about the Cardinals' trade deadline: John Mozeliak listening on relievers**\
+`Though the Cardinals have not publicly declared their intent to sell, they have informed teams that their relievers are available.`\
+https://nytimes.com/athletic/6514749/2025/07/25/st-louis-cardinals-trade-deadline-relievers/
+
 **‘Billy Joel: And So It Goes:’ 5 Takeaways From the Film’s Conclusion**\
 `The HBO documentary about the singer and songwriter wrapped with a deep exploration of his tabloid troubles, creative process and decision to return to live performance.`\
 https://nytimes.com/2025/07/25/arts/music/billy-joel-documentary-and-so-it-goes-part-2.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6516333/2025/07/25/terry-francona-kevin-cash-scoreb
 **What Red Sox rookie Marcelo Mayer's injury means for Jarren Duran's trade market**\
 `A key part of Boston's roster, Duran has garnered significant interest across the league.`\
 https://nytimes.com/athletic/6516343/2025/07/25/red-sox-marcelo-mayer-injury-jarren-duran-trade-market/
-
-**Taiwan’s Mass Recall Vote Tests Its Democracy, and China’s Nerves**\
-`An unprecedented recall vote could hand President Lai Ching-te more power by ousting legislative opponents. It could also prompt a response from China.`\
-https://nytimes.com/2025/07/25/world/asia/taiwans-recall-china.html
-
-**Yankees trade deadline: What's next after adding Ryan McMahon?**\
-`The Yankees believe they're in a great position to continue adding after filling a key hole. Here's what we're hearing they could do next.  `\
-https://nytimes.com/athletic/6516114/2025/07/25/yankees-trade-deadline-targets-ryan-mcmahon/
-
-**Despite future contract questions, Ravens' first week of camp has been drama-free**\
-`All-Pro safety Kyle Hamilton joins star players such as Lamar Jackson and Tyler Linderbaum, who are up for contract extensions. `\
-https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
 
