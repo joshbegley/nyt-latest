@@ -1,3 +1,7 @@
+**Capos, 'soft hooligans' and a lot of noise - the rise of away fans in women's football**\
+`The sights and sounds of travelling fans have been one of the highlights of the Euros in Switzerland - they say they will only get louder`\
+https://nytimes.com/athletic/6508617/2025/07/26/away-fans-womens-football-euros/
+
 **Chargers training camp report, Day 8: It's time to get Zion Johnson padded snaps at center**\
 `Despite Johnson not yet playing center in pads, coach Jim Harbaugh is confident: "I’ve already seen that he can play the position."`\
 https://nytimes.com/athletic/6516698/2025/07/26/zion-johnson-chargers-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512857/2025/07/26/innes-fitzgerald-greta-thunberg-
 **Add Adrian Houser's name to the Cubs' long list for the trade deadline**\
 `The Cubs have a lot of background information on Houser, who has suddenly re-emerged to become the new ace on the South Side.`\
 https://nytimes.com/athletic/6516578/2025/07/26/cubs-trade-deadline-adrian-houser/
-
-**Sean Longstaff interview: 'Leeds have a similar feeling to when Newcastle got taken over'**\
-`The midfielder spoke exclusively to The Athletic after making his move from St James' Park to Elland Road`\
-https://nytimes.com/athletic/6515448/2025/07/26/sean-longstaff-leeds-newcastle-interview/
 
