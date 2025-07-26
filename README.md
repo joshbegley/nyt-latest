@@ -1,3 +1,7 @@
+**Yankees trade deadline: What's next after adding Ryan McMahon?**\
+`The Yankees believe they're in a great position to continue adding after filling a key hole. Here's what we're hearing they could do next.  `\
+https://nytimes.com/athletic/6516114/2025/07/25/yankees-trade-deadline-targets-ryan-mcmahon/
+
 **Despite future contract questions, Ravens' first week of camp has been drama-free**\
 `All-Pro safety Kyle Hamilton joins star players such as Lamar Jackson and Tyler Linderbaum, who are up for contract extensions. `\
 https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-ca
 **Giants place Landen Roupp on injured list with right elbow inflammation**\
 `The righty has a 3.11 ERA in 20 starts and had become the team's most reliable starter after All-Stars Logan Webb and Robbie Ray.`\
 https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/
-
-**Ocasio-Cortez Must Pay Another $2,700 for Met Gala Dress**\
-`Alexandria Ocasio-Cortez made a splash in 2021 with her “Tax the Rich” dress. Then the House Ethics Committee opened an investigation.`\
-https://nytimes.com/2025/07/25/nyregion/aoc-met-gala-dress.html
 
