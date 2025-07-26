@@ -1,3 +1,15 @@
+**The making of a Lioness - as told by their parents: Extra jobs, bank loans and sleeping in meetings**\
+`The families of England players talk to The Athletic about the challenges and sacrifices involved in their daughters' journeys to the top`\
+https://nytimes.com/athletic/6506473/2025/07/26/making-of-a-lioness-england-euros/
+
+**Padres, losers of 4 straight, are entering dangerous territory**\
+`The wins and losses tell a story of year-over-year improvement. The recent trend lines do not.`\
+https://nytimes.com/athletic/6516575/2025/07/26/padres-lose-cardinals-four-straight/
+
+**How Innes FitzGerald – the 'Greta Thunberg of sport' – is determined to make a difference**\
+`British running's rising star has had to compromise her principles on air travel but remains as committed as ever to the environmental cause`\
+https://nytimes.com/athletic/6512857/2025/07/26/innes-fitzgerald-greta-thunberg-interview/
+
 **Add Adrian Houser's name to the Cubs' long list for the trade deadline**\
 `The Cubs have a lot of background information on Houser, who has suddenly re-emerged to become the new ace on the South Side.`\
 https://nytimes.com/athletic/6516578/2025/07/26/cubs-trade-deadline-adrian-houser/

@@ -1,3 +1,15 @@
+**The making of a Lioness - as told by their parents: Extra jobs, bank loans and sleeping in meetings**\
+`The families of England players talk to The Athletic about the challenges and sacrifices involved in their daughters' journeys to the top`\
+https://nytimes.com/athletic/6506473/2025/07/26/making-of-a-lioness-england-euros/
+
+**Padres, losers of 4 straight, are entering dangerous territory**\
+`The wins and losses tell a story of year-over-year improvement. The recent trend lines do not.`\
+https://nytimes.com/athletic/6516575/2025/07/26/padres-lose-cardinals-four-straight/
+
+**How Innes FitzGerald – the 'Greta Thunberg of sport' – is determined to make a difference**\
+`British running's rising star has had to compromise her principles on air travel but remains as committed as ever to the environmental cause`\
+https://nytimes.com/athletic/6512857/2025/07/26/innes-fitzgerald-greta-thunberg-interview/
+
 **Add Adrian Houser's name to the Cubs' long list for the trade deadline**\
 `The Cubs have a lot of background information on Houser, who has suddenly re-emerged to become the new ace on the South Side.`\
 https://nytimes.com/athletic/6516578/2025/07/26/cubs-trade-deadline-adrian-houser/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/25/pageoneplus/quote-of-the-day-still-strange-meme-s
 **What we're hearing about the Dodgers' pursuit of offensive upgrades at the deadline**\
 `The Dodgers have shot high so far in the market, expressing interest in Cardinals All-Star Brendan Donovan, multiple league sources said.`\
 https://nytimes.com/athletic/6516542/2025/07/25/dodgers-offensive-upgrades-trade-deadline/
-
-**A’s Nick Kurtz becomes first player with at least 6 hits, 6 runs and 8 RBIs**\
-`Kurtz became the 20th man and first rookie in Major League Baseball history to hit four home runs in a game.`\
-https://nytimes.com/athletic/6516548/2025/07/25/nick-kurtz-oakland-rookie-four-homers/
-
-**Rosenthal: What I’m hearing about the Pirates' trade deadline plans, Eugenio Suárez and more**\
-`Plus: The Dodgers' reliever situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes Jr's future.`\
-https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodgers-eugenio-suarez/
-
-**Deion Sanders returns to Colorado facilities after health issue**\
-`Deion Sanders Jr. posted a video showing the elder Sanders walking through the facility and into the coaches' meeting room. `\
-https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colorado/
 
