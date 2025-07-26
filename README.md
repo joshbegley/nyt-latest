@@ -1,3 +1,7 @@
+**Howe: Newcastle board 'have a decision to make' on Isak future**\
+`The striker has told Newcastle that he wants to explore a potential exit this summer.`\
+https://nytimes.com/athletic/6516728/2025/07/26/alexander-isak-newcastle-future-eddie-howe/
+
 **Military Clash Between Thailand and Cambodia Expands Along Shared Border**\
 `The deadliest conflict between the two nations in 14 years, now in its third day, extended to provinces about 200 miles south of where clashes first began.`\
 https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-fighting-conflict-expands.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/26/todays-new-york-times
 **Inside Tadej Pogacar's domination of the 2025 Tour de France**\
 `With the world champion set to seal a fourth Tour title this weekend, this is how he ensured his supremacy in the sport's biggest race`\
 https://nytimes.com/athletic/6515975/2025/07/26/tadej-pogacar-inside-2025-tour-de-france/
-
-**Phillies' Taijuan Walker making the most of fifth spot in rotation, for now**\
-`The Phillies and Walker just need to make it until mid-August, when Aaron Nola's return seems likely.`\
-https://nytimes.com/athletic/6516617/2025/07/26/taijuan-walker-phillies-rotation-for-now/
 
