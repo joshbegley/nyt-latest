@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6516723/2025/07/26/giants-rotation-issues-logan-web
 `The 20-year-old registered five goals and four assists across 29 league appearances for Lyon last season.`\
 https://nytimes.com/athletic/6430363/2025/07/26/everton-malick-fofana-transfer/
 
-**Liverpool 2-4 Milan: Wirtz's first appearance, central-defence issues, Ngumoha impresses**\
+**Liverpool 2-4 Milan: Wirtz's first real appearance, central-defence issues, Ngumoha impresses**\
 `The Premier League champions were beaten on Saturday in the first match of their pre-season tour to Hong Kong and Japan`\
 https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
 

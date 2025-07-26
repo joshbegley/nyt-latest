@@ -1,3 +1,19 @@
+**Live Q&A: Aaron Gleeman to answer your Twins questions before the trade deadline**\
+`Twins expert Aaron Gleeman will be here Monday to answer reader questions.`\
+https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gleeman/
+
+**Giant's Logan Webb not nearly sharp enough vs. Mets to stem rotation issues**\
+`The Giants are just 11-11 with Webb on the mound. If they're not careful, it could become the statistic that defines their season.`\
+https://nytimes.com/athletic/6516723/2025/07/26/giants-rotation-issues-logan-webb/
+
+**Everton in talks to sign Lyon winger Fofana**\
+`The 20-year-old registered five goals and four assists across 29 league appearances for Lyon last season.`\
+https://nytimes.com/athletic/6430363/2025/07/26/everton-malick-fofana-transfer/
+
+**Liverpool 2-4 Milan: Wirtz's first appearance, central-defence issues, Ngumoha impresses**\
+`The Premier League champions were beaten on Saturday in the first match of their pre-season tour to Hong Kong and Japan`\
+https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
+
 **Liverpool 2-4 Milan: Wirtz's first appearance, central-defence issues, Ngumoha impresses**\
 `Liverpool lost to AC Milan in a pre-season friendly in Hong Kong on Saturday afternoon`\
 https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
