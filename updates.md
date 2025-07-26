@@ -1,3 +1,7 @@
+**Ben Stokes - England's colossus who is four players in one**\
+`He's taken a five-wicket haul and hit a century in this fourth Test against India - the first captain of any nation to do that in 42 years`\
+https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-century-all-rounder/
+
 **Sabathia jokes about car trouble that delayed his journey to Cooperstown**\
 `A photo posted by the Hall of Fame pitcher of him and family stuck on the side of the road went viral over the past two days.`\
 https://nytimes.com/athletic/6517205/2025/07/26/cc-sabathia-hall-of-fame-car-trouble/
