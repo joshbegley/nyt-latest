@@ -1,3 +1,7 @@
+**Fired Speechwriter From First Trump Term Appointed to Lead the Institute of Peace**\
+`In 2018, the White House fired Darren Beattie for attending a gathering of white supremacists. Mr. Beattie will head the institute while keeping his senior State Department position.`\
+https://nytimes.com/2025/07/25/admin/darren-beattie-institute-of-peace.html
+
 **Reds' Terry Francona uses scoreboard video to escalate prank battle with Rays' Kevin Cash**\
 `The managers became close when Cash played for the Red Sox, and they keep trying to one-up each other with pregame hijinks.`\
 https://nytimes.com/athletic/6516333/2025/07/25/terry-francona-kevin-cash-scoreboard-prank-reds-rays/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/southwest-flight-burbank-injuries.html
 **Bills Day 3 observations: Competition heats up at CB, WR; a message is sent to backup LBs**\
 `Outside of Khalil Shakir, how have the wide receivers looked in camp?`\
 https://nytimes.com/athletic/6515898/2025/07/25/bills-day-3-observations-competition-heats-up-at-cb-wr-linebacker/
-
-**House Republicans Begin Uphill Effort to Sell Tax Law to Voters**\
-`With lawmakers out of Washington for a five-week summer recess, a field hearing in a swing state gave G.O.P. lawmakers a controlled environment for pitching a measure that polls show is unpopular.`\
-https://nytimes.com/2025/07/25/us/politics/las-vegas-republicans-taxes-trump-bill.html
 
