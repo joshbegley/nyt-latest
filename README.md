@@ -1,40 +1,40 @@
-**Howe: Newcastle board 'have a decision to make' on Isak future**\
-`The striker has told Newcastle that he wants to explore a potential exit this summer.`\
-https://nytimes.com/athletic/6516728/2025/07/26/alexander-isak-newcastle-future-eddie-howe/
+**In Russia, Corruption Cases Follow Battlefield Failures**\
+`Officials in three of the five Russian regions bordering Ukraine have been accused of embezzling funds for border defenses.`\
+https://nytimes.com/2025/07/26/world/europe/russia-corruption-ukraine-war.html
 
-**Military Clash Between Thailand and Cambodia Expands Along Shared Border**\
-`The deadliest conflict between the two nations in 14 years, now in its third day, extended to provinces about 200 miles south of where clashes first began.`\
-https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-fighting-conflict-expands.html
+**Competing Conspiracy Theories Consume Trump’s Washington**\
+`President Trump is trying to divert attention from the Epstein conspiracy theory with new-and-improved one about Barack Obama and treason.`\
+https://nytimes.com/2025/07/26/us/politics/trump-epstein-obama-conspiracies.html
 
-**How Midge Purce, the Soccer Star, Spends Her Day Training**\
-`Ms. Purce, a Gotham F.C. forward, begins her day with “Game of Thrones,” then hits the gym with her teammates and makes time for a little dress up.`\
-https://nytimes.com/2025/07/26/nyregion/midge-purce-gotham-fc.html
+**Mapping How Mamdani’s Ranked-Choice Strategy Beat Cuomo**\
+`New data provides the clearest picture yet of how Zohran Mamdani pulled off his primary election upset.`\
+https://nytimes.com/interactive/2025/07/26/nyregion/nyc-mayor-ranked-choice-map.html
 
-**A Judge Gave a One-Word Answer. It Torpedoed the Etan Patz Case.**\
-`After an appeals court overturned a conviction, prosecutors must decide whether to retry a man in the notorious 1979 child killing for a third time.`\
-https://nytimes.com/2025/07/26/nyregion/etan-patz-case-challenges.html
+**What Hulk Hogan Left Behind**\
+`For journalists, his legacy is altogether unimpressive.`\
+https://nytimes.com/2025/07/26/opinion/hulk-hogan-gawker.html
 
-**The Hidden Victims of New York’s Worsening Housing Crisis**\
-`Thousands of people don’t have stable housing, sleeping on floors and couches and packed into too-small bedrooms. But they are not considered to be homeless.`\
-https://nytimes.com/2025/07/26/nyregion/nyc-overcrowding-homeless.html
+**A Clash Over a Promotion Puts Hegseth at Odds With His Generals**\
+`Suspicions about leaks and a mistrust of senior military officers have defined much of the defense secretary’s first six months on the job.`\
+https://nytimes.com/2025/07/26/us/politics/hegseth-pentagon-leadership.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/26/crosswords/spelling-bee-forum.html
+**How Hulk Hogan Leg-Dropped the Digital Media Industry**\
+`His lawsuit over a leaked sex tape bankrupted Gawker Media — and helped inspire the American right’s ongoing war on the press.`\
+https://nytimes.com/2025/07/26/magazine/hulk-hogan-digital-media-industry.html
 
-**Capos, 'soft hooligans' and a lot of noise - the rise of away fans in women's football**\
-`The sights and sounds of travelling fans have been one of the highlights of the Euros in Switzerland - they say they will only get louder`\
-https://nytimes.com/athletic/6508617/2025/07/26/away-fans-womens-football-euros/
+**Can My Boss Bring His ‘Situationship’ to Hang Out All Day at the Office?**\
+`Plus, what to do when someone’s taking a leisurely lunch in the pumping room.`\
+https://nytimes.com/2025/07/26/business/boss-situationship-office-advice.html
 
-**Chargers training camp report, Day 8: It's time to get Zion Johnson padded snaps at center**\
-`Despite Johnson not yet playing center in pads, coach Jim Harbaugh is confident: "I’ve already seen that he can play the position."`\
-https://nytimes.com/athletic/6516698/2025/07/26/zion-johnson-chargers-training-camp/
+**Dry Taps, Empty Lakes, Shuttered Cities: A Water Crisis Batters Iran**\
+`After a five-year drought and decades of mismanagement, Tehran is at risk of running out of water in several weeks, the government warned.`\
+https://nytimes.com/2025/07/26/world/middleeast/iran-water-crisis-drought.html
 
-**The New York Times in Print for Saturday, July 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/26/todays-new-york-times
+**Removal of Castro and Guevara Statues Ignites Outcry in Mexico City**\
+`The Cuban Revolution leaders joined forces in Mexico in 1955. A local mayor removed a memorial to them, drawing protests and condemnation from Mexico’s highest office.`\
+https://nytimes.com/2025/07/26/world/americas/mexico-city-fidel-che-statues.html
 
-**Inside Tadej Pogacar's domination of the 2025 Tour de France**\
-`With the world champion set to seal a fourth Tour title this weekend, this is how he ensured his supremacy in the sport's biggest race`\
-https://nytimes.com/athletic/6515975/2025/07/26/tadej-pogacar-inside-2025-tour-de-france/
+**He Read (at Least) 3,599 Books in His Lifetime. Now Anyone Can See His List.**\
+`After Dan Pelzer died this month at 92, his children uploaded the handwritten reading list to what-dan-read.com, hoping to inspire readers everywhere.`\
+https://nytimes.com/2025/07/26/books/man-died-book-list-thousands.html
 
