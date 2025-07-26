@@ -1,3 +1,11 @@
+**‘Billy Joel: And So It Goes:’ 5 Takeaways From the Film’s Conclusion**\
+`The HBO documentary about the singer and songwriter wrapped with a deep exploration of his tabloid troubles, creative process and decision to return to live performance.`\
+https://nytimes.com/2025/07/25/arts/music/billy-joel-documentary-and-so-it-goes-part-2.html
+
+**Seahawks training camp: Riq Woolen out to prove growth in pivotal contract year**\
+`After a roller-coaster start to his NFL career, Woolen says he's more focused than ever heading into a crucial contract year.`\
+https://nytimes.com/athletic/6516375/2025/07/25/seahawks-training-camp-riq-woolen/
+
 **Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
 `With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
 https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
