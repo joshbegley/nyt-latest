@@ -1,3 +1,7 @@
+**Infection From Brain-Eating Amoeba Kills Boy in South Carolina**\
+`A lawyer for the family of 12-year-old Jaysen Carr said he died on July 18 after contracting a deadly infectious amoeba while swimming in a reservoir.`\
+https://nytimes.com/2025/07/26/health/south-carolina-child-dead-brain-eating-amoeba.html
+
 **Protesters Take to the Streets in Scotland as Trump Golfs**\
 `Demonstrators held signs criticizing President Trump on a range of issues, from his stances on immigration and Gaza, and his ties to the sex offender Jeffrey Epstein.`\
 https://nytimes.com/video/us/politics/100000010307453/scotland-protests-trump-golf.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512815/2025/07/26/leeds-lucas-perri-transfer/
 **Inside Viktor Gyokeres' transfer to Arsenal: Tough negotiating, Berta's role and why Sesko interest cooled**\
 `After months of speculation, the club have agreed a €63.5m fixed fee with a further €10m in add-ons for Sporting CP's free-scoring striker`\
 https://nytimes.com/athletic/6501696/2025/07/26/arsenal-viktor-gyokeres-inside-transfer/
-
-**Williamson: Ankle feels 'great' ahead of Euros final, team 'would play through absolutely anything'**\
-`The England captain was forced off at half-time of extra-time during the quarter-final win over Sweden after landing awkwardly on her ankle.`\
-https://nytimes.com/athletic/6517149/2025/07/26/leah-williamson-england-euro-2025-final/
 

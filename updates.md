@@ -1,3 +1,7 @@
+**Infection From Brain-Eating Amoeba Kills Boy in South Carolina**\
+`A lawyer for the family of 12-year-old Jaysen Carr said he died on July 18 after contracting a deadly infectious amoeba while swimming in a reservoir.`\
+https://nytimes.com/2025/07/26/health/south-carolina-child-dead-brain-eating-amoeba.html
+
 **Protesters Take to the Streets in Scotland as Trump Golfs**\
 `Demonstrators held signs criticizing President Trump on a range of issues, from his stances on immigration and Gaza, and his ties to the sex offender Jeffrey Epstein.`\
 https://nytimes.com/video/us/politics/100000010307453/scotland-protests-trump-golf.html
