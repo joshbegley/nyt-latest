@@ -1,3 +1,7 @@
+**Rams QB Matthew Stafford to sit out practice as he deals with back soreness**\
+`Though Sean McVay reiterated he does not expect Stafford to practice at all this week, he is not concerned about his quarterback.`\
+https://nytimes.com/athletic/6517429/2025/07/26/rams-qb-matthew-stafford-out-back-soreness/
+
 **Nick Kurtz's parents overwhelmed after son's historic performance: 'Did that just happen?'**\
 `Just 13 months after the A's rookie finished his collegiate career, his mother and father saw him go 6-for-6 with four homers in Houston.`\
 https://nytimes.com/athletic/6517333/2025/07/26/nick-kurtz-four-home-runs-parents-athletics-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-vi
 **New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
 `Plus, the secondary depth chart continues to take shape.`\
 https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
-
-**What to know about Broncos training camp, Day 2: Bo Nix's plan to 'peak'**\
-`Meanwhile, linebacker Drew Sanders was carted off injured, running back RJ Harvey flashed and Denver's defensive depth is standing out.`\
-https://nytimes.com/athletic/6517257/2025/07/26/bo-nix-broncos-training-camp-drew-sanders/
 
