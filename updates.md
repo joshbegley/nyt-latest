@@ -1,3 +1,7 @@
+**Vikings sign Josh Metellus to 3-year extension**\
+`He has combined for 219 tackles, five forced fumbles and three interceptions since 2023.`\
+https://nytimes.com/athletic/6517241/2025/07/26/vikings-josh-metellus-contract-extension/
+
 **Infection From Brain-Eating Amoeba Kills Boy in South Carolina**\
 `A lawyer for the family of 12-year-old Jaysen Carr said he died on July 18 after contracting a deadly infectious amoeba while swimming in a reservoir.`\
 https://nytimes.com/2025/07/26/health/south-carolina-child-dead-brain-eating-amoeba.html
