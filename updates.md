@@ -1,3 +1,7 @@
+**Fired Speechwriter From First Trump Term Appointed to Lead the Institute of Peace**\
+`In 2018, the White House fired Darren Beattie for attending a gathering of white supremacists. Mr. Beattie will head the institute while keeping his senior State Department position.`\
+https://nytimes.com/2025/07/25/admin/darren-beattie-institute-of-peace.html
+
 **Reds' Terry Francona uses scoreboard video to escalate prank battle with Rays' Kevin Cash**\
 `The managers became close when Cash played for the Red Sox, and they keep trying to one-up each other with pregame hijinks.`\
 https://nytimes.com/athletic/6516333/2025/07/25/terry-francona-kevin-cash-scoreboard-prank-reds-rays/
