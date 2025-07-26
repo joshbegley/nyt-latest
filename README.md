@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6517257/2025/07/26/bo-nix-broncos-training-camp-dre
 `A sheriff called it the worst child abuse case he’d seen in his 33-year career. Victims as young as 3 are now in state care and getting medical, emotional and psychological support.`\
 https://nytimes.com/2025/07/26/us/sex-trafficking-concrete-bunker-alabama.html
 
-**Forest in talks with Gibbs-White over new contract**\
+**Gibbs-White signs new Forest contract until 2028**\
 `Tottenham Hotspur had previously made an approach for the 25-year-old.`\
 https://nytimes.com/athletic/6485870/2025/07/26/morgan-gibbs-white-forest-contract/
 
