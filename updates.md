@@ -1,3 +1,7 @@
+**Howe: Newcastle board 'have a decision to make' on Isak future**\
+`The striker has told Newcastle that he wants to explore a potential exit this summer.`\
+https://nytimes.com/athletic/6516728/2025/07/26/alexander-isak-newcastle-future-eddie-howe/
+
 **Military Clash Between Thailand and Cambodia Expands Along Shared Border**\
 `The deadliest conflict between the two nations in 14 years, now in its third day, extended to provinces about 200 miles south of where clashes first began.`\
 https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-fighting-conflict-expands.html
