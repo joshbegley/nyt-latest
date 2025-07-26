@@ -1,40 +1,40 @@
+**Sarina Wiegman: Football’s ultimate tournament specialist**\
+`Few managers in the game think outside the box like Wiegman – five successive finals is an achievement that may not be matched`\
+https://nytimes.com/athletic/6515088/2025/07/26/sarina-wiegman-england-manager-ultimate-tournament-specialist/
+
+**Everton progressing in deal for Bayern Munich's Aznou**\
+`Everton sources, speaking on the condition of anonymity to protect relationships, indicated a fee in the region of €9m was being discussed.`\
+https://nytimes.com/athletic/6508188/2025/07/26/adam-aznou-everton-bayern-transfer/
+
+**Blue Jays' turnaround reaches new peak with MLB's best record**\
+`Friday's 6-2 victory over the Detroit Tigers held plenty of heroes, once again. Eight Toronto players recorded a hit.`\
+https://nytimes.com/athletic/6516546/2025/07/26/blue-jays-turnaround-mlb-best-record/
+
+**CBS: Caving. Bowing. Scraping.**\
+`Don’t take on satirists — they always get the last laugh.`\
+https://nytimes.com/2025/07/26/opinion/trump-south-park-cbs.html
+
 **Trump Isn’t Getting Rid of Chaos at the Border. He’s Redistributing It.**\
-`The “Opinions” round table discusses the president’s immigration policies and the emerging resistance to it.`\
-https://nytimes.com/video/opinion/100000010304205/trump-isnt-getting-rid-of-chaos-at-the-border-hes-redistributing-it.html
+`“The Opinions” round table discusses the president’s immigration policies and the emerging resistance to it.`\
+https://nytimes.com/2025/07/26/opinion/trump-ice-raids-resistance-movement.html
 
-**Gomez leaves Liverpool's pre-season tour with Achilles injury**\
-`Gomez complained of discomfort following Thursday's training session at Kai Tak Stadium.`\
-https://nytimes.com/athletic/6516801/2025/07/26/joe-gomez-liverpool-injury-update/
+**If Only My Father Could Choose to Deny the Holocaust**\
+`While too many of those who should remember the Holocaust choose not to, my father can’t stop reliving what he went through.`\
+https://nytimes.com/2025/07/26/opinion/holocaust-denial-trauma-alzheimers.html
 
-**Little Victories**\
-`We tend to confine our parties to milestones and cultural events, but there are countless micro-occasions worthy of commemorating.`\
-https://nytimes.com/2025/07/26/briefing/little-victories.html
+**What Iranians Lost When Israel Bombed Its Most Notorious Prison**\
+`Israel’s attack has shattered something deep within the Iranian people.`\
+https://nytimes.com/2025/07/26/opinion/iran-israel-war-evin-prison.html
 
-**Why Cowboys coach Brian Schottenheimer recently showed his angry side during practice**\
-`Brian Schottenheimer had to stop practice one day this week and he ripped into his team and warned them to not push things too far.`\
-https://nytimes.com/athletic/6516187/2025/07/26/cowboys-physical-training-camp-fights/
+**New York Is Planning a Train Line to Connect Its Transit Deserts. We Walked All 14 Miles of It.**\
+`What would light-rail service change about the space that keeps us apart?`\
+https://nytimes.com/2025/07/26/opinion/interborough-express-brooklyn-queens-public-space.html
 
-**Twins notes: Zebby Matthews' best start, Pablo López's progress and a rare steal**\
-`Back from a six-week shoulder injury, Matthews showed why he was a consensus top-100 prospect in a 1-0 win over the Washington Nationals.`\
-https://nytimes.com/athletic/6516220/2025/07/26/twins-nationals-zebby-matthews-pablo-lopez/
+**How Israel’s War Became Unjust**\
+`Even a righteous cause needs a plan to limit suffering and a reasonable path toward peace.`\
+https://nytimes.com/2025/07/26/opinion/israel-hamas-gaza-starvation.html
 
-**Should I Blow the Whistle in a Hiring Process Biased in My Favor?**\
-`Is it right to accept a job when I know the company discriminated against another candidate?`\
-https://nytimes.com/2025/07/26/magazine/hiring-biased-ethics.html
-
-**Connections Companion No. 777**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 27, 2025.`\
-https://nytimes.com/2025/07/26/crosswords/connections-companion-777.html
-
-**A Grim Anniversary in Canada’s Fight Against Guns**\
-`Firearms smuggled in from the United States are flooding Canada’s streets, but the topic is largely absent from border security discussions amid the U.S. trade war.`\
-https://nytimes.com/2025/07/26/world/canada/canada-guns-trafficking-border.html
-
-**Strands Sidekick No. 511**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 27, 2025.`\
-https://nytimes.com/2025/07/26/crosswords/strands-sidekick-511.html
-
-**Wordle Review No. 1,499**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 27, 2025.`\
-https://nytimes.com/2025/07/26/crosswords/wordle-review-1499.html
+**How to watch rivals England vs. Spain in the Euro 2025 final**\
+`Spain and England are both built for the UEFA Euro 2025 final. One of them is about to lose.`\
+https://nytimes.com/athletic/6516129/2025/07/26/euro-2025-final-england-spain-how-to-watch/
 
