@@ -1,3 +1,7 @@
+**Everton in talks to sign Lyon winger Fofana**\
+`The 20-year-old registered five goals and four assists across 29 league appearances for Lyon last season.`\
+https://nytimes.com/athletic/6430363/2025/07/26/everton-malick-fofana-transfer/
+
 **Liverpool 2-4 Milan: Wirtz's first appearance, central-defence issues, Ngumoha impresses**\
 `Liverpool lost to AC Milan in a pre-season friendly in Hong Kong on Saturday afternoon`\
 https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/business/dealbook/personalized-pricing.html
 **Investors See Few Alternatives to U.S. Treasuries. Could Europe Make One?**\
 `As President Trump’s chaotic economic policies provoke questions about U.S. stability, a proposal for European countries to issue joint debt has drawn attention.`\
 https://nytimes.com/2025/07/26/business/dealbook/investors-see-few-alternatives-to-us-treasuries-could-europe-make-one.html
-
-**2 Novels for Double Lives**\
-`An unhappy housewife; an underground radical.`\
-https://nytimes.com/2025/07/26/books/read-like-wind-recommended-books.html
 
