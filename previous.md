@@ -1,3 +1,11 @@
+**How to watch Top Rank Boxing: Xander Zayas, Jorge Garcia battle for world title**\
+`Rising star Xander Zayas will take on veteran Jorge Garcia this Saturday night, marking the end of an era for boxing on television. `\
+https://nytimes.com/athletic/6514648/2025/07/26/top-rank-boxing-zayas-garcia-tv-deal-how-to-watch/
+
+**Robert Reich Thinks the Baby Boomers Blew It**\
+`The former U.S. Labor Secretary on how complacency and corporate ties created a “bully in chief.”`\
+https://nytimes.com/2025/07/26/magazine/robert-reich-interview.html
+
 **Women's football is getting younger, but 30-somethings across the globe are proving their worth**\
 `At the Euros, Copa America Feminina and WAFCON, players in the twilight of their careers are matching the talented teenagers`\
 https://nytimes.com/athletic/6515028/2025/07/26/womens-football-teenagers-30-somethings-asllani-montoya/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/26/magazine/hulk-hogan-digital-media-industry.html
 **Can My Boss Bring His ‘Situationship’ to Hang Out All Day at the Office?**\
 `Plus, what to do when someone’s taking a leisurely lunch in the pumping room.`\
 https://nytimes.com/2025/07/26/business/boss-situationship-office-advice.html
-
-**Dry Taps, Empty Lakes, Shuttered Cities: A Water Crisis Batters Iran**\
-`After a five-year drought and decades of mismanagement, Tehran is at risk of running out of water in several weeks, the government warned.`\
-https://nytimes.com/2025/07/26/world/middleeast/iran-water-crisis-drought.html
-
-**Removal of Castro and Guevara Statues Ignites Outcry in Mexico City**\
-`The Cuban Revolution leaders joined forces in Mexico in 1955. A local mayor removed a memorial to them, drawing protests and condemnation from Mexico’s highest office.`\
-https://nytimes.com/2025/07/26/world/americas/mexico-city-fidel-che-statues.html
 
