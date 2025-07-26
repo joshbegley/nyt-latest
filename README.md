@@ -1,3 +1,7 @@
+**Gomez leaves Liverpool's pre-season tour with Achilles injury**\
+`Gomez complained of discomfort following Thursday's training session at Kai Tak Stadium.`\
+https://nytimes.com/athletic/6516801/2025/07/26/joe-gomez-liverpool-injury-update/
+
 **Little Victories**\
 `We tend to confine our parties to milestones and cultural events, but there are countless micro-occasions worthy of commemorating.`\
 https://nytimes.com/2025/07/26/briefing/little-victories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/crosswords/wordle-review-1499.html
 **A summer Saturday is the ideal time for Savannah Bananas baseball. Here's how to watch**\
 `The 2025 Banana Ball World Tour continues this weekend with a stop in Philadelphia. It promises mirth, chaos and yellow-peeled surrealism.`\
 https://nytimes.com/athletic/6512228/2025/07/26/savannah-bananas-philadelphia-baseball-how-to-watch/
-
-**No Proof Hamas Routinely Stole U.N. Aid, Israeli Military Officials Say**\
-`Israel has long restricted or completely blocked aid to Gaza on the argument that Hamas steals it to use as a weapon of control over the population.`\
-https://nytimes.com/2025/07/26/world/middleeast/hamas-un-aid-theft.html
 
