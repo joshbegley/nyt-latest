@@ -1,3 +1,7 @@
+**Rosenthal: What I’m hearing about the Pirates' trade deadline plans, Eugenio Suárez and more**\
+`Plus the Dodgers' relief pitching situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes' future.`\
+https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodgers-eugenio-suarez/
+
 **Deion Sanders returns to Colorado facilities after health issue**\
 `Deion Sanders Jr. posted a video showing the elder Sanders walking through the facility and into the coaches' meeting room. `\
 https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/admin/darren-beattie-institute-of-peace.html
 **Reds' Terry Francona uses scoreboard video to escalate prank battle with Rays' Kevin Cash**\
 `The managers became close when Cash played for the Red Sox, and they keep trying to one-up each other with pregame hijinks.`\
 https://nytimes.com/athletic/6516333/2025/07/25/terry-francona-kevin-cash-scoreboard-prank-reds-rays/
-
-**What Red Sox rookie Marcelo Mayer's injury means for Jarren Duran's trade market**\
-`A key part of Boston's roster, Duran has garnered significant interest across the league.`\
-https://nytimes.com/athletic/6516343/2025/07/25/red-sox-marcelo-mayer-injury-jarren-duran-trade-market/
 
