@@ -1,3 +1,11 @@
+**What to Know About the Hack at Tea, an App Where Women Share Red Flags About Men**\
+`A data breach exposed photos and ID cards of women who signed up for a fast-growing app for women to share details of men they might date.`\
+https://nytimes.com/2025/07/26/us/tea-safety-dating-app-hack.html
+
+**23 Classic, Memorable, Must-Make Salads**\
+`The best salads of all time, if you will.`\
+https://nytimes.com/2025/07/26/dining/seven-layer-salad-and-22-more-classic-salads.html
+
 **Isak is not in Singapore with Newcastle but his future is dominating their pre-season tour**\
 `Eddie Howe fielded eight questions on the striker during Saturday's 15-minute press conference. The situation is beyond a distraction now`\
 https://nytimes.com/athletic/6515165/2025/07/26/isak-future-transfer-howe-newcastle-singapore/
