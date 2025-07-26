@@ -1,5 +1,5 @@
 **Despite future contract questions, Ravens' first week of camp has been drama-free**\
-`OWINGS MILLS, Md.`\
+`All-Pro safety Kyle Hamilton joins star players such as Lamar Jackson and Tyler Linderbaum, who are up for contract extensions. `\
 https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
 
 **Jalen Ramsey's new role takes shape, Aaron Rodgers sharp: Steelers training camp observations**\
