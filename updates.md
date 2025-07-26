@@ -1,3 +1,7 @@
+**Isak is not in Singapore with Newcastle but his future is dominating their pre-season tour**\
+`Eddie Howe fielded eight questions on the striker during Saturday's 15-minute press conference. The situation is beyond a distraction now`\
+https://nytimes.com/athletic/6515165/2025/07/26/isak-future-transfer-howe-newcastle-singapore/
+
 **India receives 'hoax' Xavi and Guardiola head coach applications**\
 `The AIFF said it had narrowed its head coach shortlist down to three applicants and in the process had dismissed two hoax applications.`\
 https://nytimes.com/athletic/6516880/2025/07/26/xavi-pep-guardiola-india-hoax/

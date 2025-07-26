@@ -1,3 +1,7 @@
+**Isak is not in Singapore with Newcastle but his future is dominating their pre-season tour**\
+`Eddie Howe fielded eight questions on the striker during Saturday's 15-minute press conference. The situation is beyond a distraction now`\
+https://nytimes.com/athletic/6515165/2025/07/26/isak-future-transfer-howe-newcastle-singapore/
+
 **India receives 'hoax' Xavi and Guardiola head coach applications**\
 `The AIFF said it had narrowed its head coach shortlist down to three applicants and in the process had dismissed two hoax applications.`\
 https://nytimes.com/athletic/6516880/2025/07/26/xavi-pep-guardiola-india-hoax/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515836/2025/07/26/christian-wilkins-grievance-raid
 **What I'm hearing about the Blackhawks: How committed is Mason West to hockey over football?**\
 `The fact that college football programs continue to call West is something the Blackhawks have to live with.`\
 https://nytimes.com/athletic/6509814/2025/07/26/blackhawks-mason-west-commitment-hockey-football/
-
-**New Mariners slugger Josh Naylor loves pressure. Can he help deliver Seattle a postseason run?**\
-`The Mariners are trying to capitalize on what could be their best chance at a playoff run in 25 years.`\
-https://nytimes.com/athletic/6516459/2025/07/26/mariners-josh-naylor-loves-pressure-postseason-run/
 
