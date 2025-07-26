@@ -1,3 +1,7 @@
+**How Lewis Hamilton's Spa weekend unraveled despite Ferrari upgrades: 'Unacceptable'**\
+`Lewis Hamilton says he will apologize to his team after a "very, very poor performance."`\
+https://nytimes.com/athletic/6517107/2025/07/26/lewis-hamilton-f1-ferrari-belgium-grand-prix/
+
 **Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son, and absentees**\
 `Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
 https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
