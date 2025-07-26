@@ -1,5 +1,5 @@
 **Despite future contract questions, Ravens' first week of camp has been drama-free**\
-`OWINGS MILLS, Md.`\
+`All-Pro safety Kyle Hamilton joins star players such as Lamar Jackson and Tyler Linderbaum, who are up for contract extensions. `\
 https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
 
 **Jalen Ramsey's new role takes shape, Aaron Rodgers sharp: Steelers training camp observations**\
@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-c
 https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-report-aaron-rodgers-jalen-ramsey/
 
 **Dodgers welcome back Walker Buehler, who finds himself in a familiar place with Boston**\
-`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his ring and met old fri`\
+`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his championship ring.`\
 https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-red-sox-recovery/
 
 **2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\

@@ -1,4 +1,12 @@
 **Despite future contract questions, Ravens' first week of camp has been drama-free**\
+`All-Pro safety Kyle Hamilton joins star players such as Lamar Jackson and Tyler Linderbaum, who are up for contract extensions. `\
+https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
+
+**Dodgers welcome back Walker Buehler, who finds himself in a familiar place with Boston**\
+`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his championship ring.`\
+https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-red-sox-recovery/
+
+**Despite future contract questions, Ravens' first week of camp has been drama-free**\
 `OWINGS MILLS, Md.`\
 https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
 
