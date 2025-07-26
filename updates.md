@@ -1,3 +1,7 @@
+**Gomez leaves Liverpool's pre-season tour with Achilles injury**\
+`Gomez complained of discomfort following Thursday's training session at Kai Tak Stadium.`\
+https://nytimes.com/athletic/6516801/2025/07/26/joe-gomez-liverpool-injury-update/
+
 **Little Victories**\
 `We tend to confine our parties to milestones and cultural events, but there are countless micro-occasions worthy of commemorating.`\
 https://nytimes.com/2025/07/26/briefing/little-victories.html
