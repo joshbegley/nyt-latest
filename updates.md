@@ -1,3 +1,19 @@
+**How Midge Purce, the Soccer Star, Spends Her Day Training**\
+`Ms. Purce, a Gotham F.C. forward, begins her day with “Game of Thrones,” then hits the gym with her teammates and makes time for a little dress up.`\
+https://nytimes.com/2025/07/26/nyregion/midge-purce-gotham-fc.html
+
+**A Judge Gave a One-Word Answer. It Torpedoed the Etan Patz Case.**\
+`After an appeals court overturned a conviction, prosecutors must decide whether to retry a man in the notorious 1979 child killing for a third time.`\
+https://nytimes.com/2025/07/26/nyregion/etan-patz-case-challenges.html
+
+**The Hidden Victims of New York’s Worsening Housing Crisis**\
+`Thousands of people don’t have stable housing, sleeping on floors and couches and packed into too-small bedrooms. But they are not considered to be homeless.`\
+https://nytimes.com/2025/07/26/nyregion/nyc-overcrowding-homeless.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/26/crosswords/spelling-bee-forum.html
+
 **Capos, 'soft hooligans' and a lot of noise - the rise of away fans in women's football**\
 `The sights and sounds of travelling fans have been one of the highlights of the Euros in Switzerland - they say they will only get louder`\
 https://nytimes.com/athletic/6508617/2025/07/26/away-fans-womens-football-euros/
