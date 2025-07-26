@@ -1,3 +1,7 @@
+**What Red Sox rookie Marcelo Mayer's injury means for Jarren Duran's trade market**\
+`A key part of Boston's roster, Duran has garnered significant interest across the league.`\
+https://nytimes.com/athletic/6516343/2025/07/25/red-sox-marcelo-mayer-injury-jarren-duran-trade-market/
+
 **Taiwan’s Mass Recall Vote Tests Its Democracy, and China’s Nerves**\
 `An unprecedented recall vote could hand President Lai Ching-te more power by ousting legislative opponents. It could also prompt a response from China.`\
 https://nytimes.com/2025/07/25/world/asia/taiwans-recall-china.html

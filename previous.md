@@ -1,3 +1,7 @@
+**What Red Sox rookie Marcelo Mayer's injury means for Jarren Duran's trade market**\
+`A key part of Boston's roster, Duran has garnered significant interest across the league.`\
+https://nytimes.com/athletic/6516343/2025/07/25/red-sox-marcelo-mayer-injury-jarren-duran-trade-market/
+
 **Taiwan’s Mass Recall Vote Tests Its Democracy, and China’s Nerves**\
 `An unprecedented recall vote could hand President Lai Ching-te more power by ousting legislative opponents. It could also prompt a response from China.`\
 https://nytimes.com/2025/07/25/world/asia/taiwans-recall-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/25/us/politics/las-vegas-republicans-taxes-trump-bil
 **Shemar Stewart, Bengals agree to 4-year deal, ending contract standoff: Source**\
 `The move is a big step for Stewart, who left the Bengals' mandatory minicamp earlier this week due to the unsigned contract.`\
 https://nytimes.com/athletic/6516228/2025/07/25/shemar-stewart-bengals-deal-contract-standoff/
-
-**Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
-`The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
-https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
 
