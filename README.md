@@ -1,3 +1,7 @@
+**Exploit Over Time**\
+`Adam Levav blinds us with science in a neat Saturday debut.`\
+https://nytimes.com/2025/07/25/crosswords/daily-puzzle-2025-07-26.html
+
 **Seahawks training camp: Riq Woolen out to prove growth in pivotal contract year**\
 `After a roller coaster start to his NFL career, Woolen says he's more focused than ever heading into a crucial contract year.`\
 https://nytimes.com/athletic/6516375/2025/07/25/seahawks-training-camp-riq-woolen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-
 **Dodgers welcome back Walker Buehler, who finds himself in a familiar place with Boston**\
 `Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his championship ring.`\
 https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-red-sox-recovery/
-
-**2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\
-`The sudden maneuver was made during a Friday flight out of California after two collision safety alerts sounded in the cockpit, causing the pilots to take evasive action, the airline said.`\
-https://nytimes.com/2025/07/25/us/southwest-flight-burbank-injuries.html
 
