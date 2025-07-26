@@ -1,3 +1,7 @@
+**India receives 'hoax' Xavi and Guardiola head coach applications**\
+`The AIFF said it had narrowed its head coach shortlist down to three applicants and in the process had dismissed two hoax applications.`\
+https://nytimes.com/athletic/6516880/2025/07/26/xavi-pep-guardiola-india-hoax/
+
 **Live Q&A: Aaron Gleeman to answer your Twins questions before the trade deadline**\
 `Twins expert Aaron Gleeman will be here Monday to answer reader questions.`\
 https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gleeman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6509814/2025/07/26/blackhawks-mason-west-commitment
 **New Mariners slugger Josh Naylor loves pressure. Can he help deliver Seattle a postseason run?**\
 `The Mariners are trying to capitalize on what could be their best chance at a playoff run in 25 years.`\
 https://nytimes.com/athletic/6516459/2025/07/26/mariners-josh-naylor-loves-pressure-postseason-run/
-
-**James Leprino, ‘Willy Wonka of Cheese’ Who Revolutionized Pizza, Dies at 87**\
-`He turned a small family grocery store into a mozzarella empire, producing most of the cheese for American pizza chains like Domino’s, Papa Johns and Pizza Hut.`\
-https://nytimes.com/2025/07/26/business/james-leprino-dead.html
 
