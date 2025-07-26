@@ -1,3 +1,19 @@
+**Yankees' Aaron Judge out vs. Phillies, undergoing tests on elbow**\
+`Judge initially hurt his elbow in Toronto on Tuesday and had difficulty throwing in Friday's game against the Phillies.`\
+https://nytimes.com/athletic/6516981/2025/07/26/aaron-judge-out-injury-yankees-phillies/
+
+**A Golfing Trump Is Greeted by Protesters in Scotland**\
+`The president was criticized by demonstrators on a range of issues, from his stance on immigration and Gaza to his ties to the sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/07/26/world/europe/trump-protest-scotland.html
+
+**Diaz left out of Milan game due to discussions over Liverpool future, says Slot**\
+`The Colombian attacker is being pursued by Bayern Munich, who had an opening offer of €67.5million rejected.`\
+https://nytimes.com/athletic/6516938/2025/07/26/luis-diaz-liverpool-future-arne-slot/
+
+**Norris claims Belgian GP pole; Hamilton exits early in qualifying shock**\
+`McLaren locked out the front row, as Max Verstappen and Lewis Hamilton endured difficult qualifying runs`\
+https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/
+
 **Norris claims Belgian GP pole; Hamilton exits early in qualifying shock**\
 `Lando Norris took his fourth pole position of the 2025 Formula One season on Saturday, besting teammate Oscar Piastri to line up P1 for the Belgian Grand Prix.`\
 https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/

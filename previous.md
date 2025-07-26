@@ -1,5 +1,17 @@
+**Yankees' Aaron Judge out vs. Phillies, undergoing tests on elbow**\
+`Judge initially hurt his elbow in Toronto on Tuesday and had difficulty throwing in Friday's game against the Phillies.`\
+https://nytimes.com/athletic/6516981/2025/07/26/aaron-judge-out-injury-yankees-phillies/
+
+**A Golfing Trump Is Greeted by Protesters in Scotland**\
+`The president was criticized by demonstrators on a range of issues, from his stance on immigration and Gaza to his ties to the sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/07/26/world/europe/trump-protest-scotland.html
+
+**Diaz left out of Milan game due to discussions over Liverpool future, says Slot**\
+`The Colombian attacker is being pursued by Bayern Munich, who had an opening offer of €67.5million rejected.`\
+https://nytimes.com/athletic/6516938/2025/07/26/luis-diaz-liverpool-future-arne-slot/
+
 **Norris claims Belgian GP pole; Hamilton exits early in qualifying shock**\
-`Lando Norris took his fourth pole position of the 2025 Formula One season on Saturday, besting teammate Oscar Piastri to line up P1 for the Belgian Grand Prix.`\
+`McLaren locked out the front row, as Max Verstappen and Lewis Hamilton endured difficult qualifying runs`\
 https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/
 
 **What to Know About the Hack at Tea, an App Where Women Share Red Flags About Men**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gl
 **Giant's Logan Webb not nearly sharp enough vs. Mets to stem rotation issues**\
 `The Giants are just 11-11 with Webb on the mound. If they're not careful, it could become the statistic that defines their season.`\
 https://nytimes.com/athletic/6516723/2025/07/26/giants-rotation-issues-logan-webb/
-
-**Everton in talks to sign Lyon winger Fofana**\
-`The 20-year-old registered five goals and four assists across 29 league appearances for Lyon last season.`\
-https://nytimes.com/athletic/6430363/2025/07/26/everton-malick-fofana-transfer/
-
-**Liverpool 2-4 Milan: Wirtz's first real appearance, central-defence issues, Ngumoha impresses**\
-`The Premier League champions were beaten on Saturday in the first match of their pre-season tour to Hong Kong and Japan`\
-https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
-
-**This Test Can See a Heart Attack in Your Future**\
-`Coronary artery calcium testing can reveal plaque in arteries, offering a more precise estimate of a patient’s risk. Yet the test remains underused.`\
-https://nytimes.com/2025/07/26/health/coronary-artery-calcium-heart.html
 
