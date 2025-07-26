@@ -1,3 +1,7 @@
+**What we're hearing about the Dodgers' pursuit of offensive upgrades at the deadline**\
+`The Dodgers have shot high so far in the market, expressing interest in Cardinals All-Star Brendan Donovan, multiple league sources said.`\
+https://nytimes.com/athletic/6516542/2025/07/25/dodgers-offensive-upgrades-trade-deadline/
+
 **A’s Nick Kurtz becomes first player with at least 6 hits, 6 runs and 8 RBIs**\
 `Kurtz became the 20th man and first rookie in Major League Baseball history to hit four home runs in a game.`\
 https://nytimes.com/athletic/6516548/2025/07/25/nick-kurtz-oakland-rookie-four-homers/
