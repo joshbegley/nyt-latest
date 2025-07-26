@@ -1,3 +1,7 @@
+**Rams QB Matthew Stafford to sit out practice as he deals with back soreness**\
+`Though Sean McVay reiterated he does not expect Stafford to practice at all this week, he is not concerned about his quarterback.`\
+https://nytimes.com/athletic/6517429/2025/07/26/rams-qb-matthew-stafford-out-back-soreness/
+
 **Nick Kurtz's parents overwhelmed after son's historic performance: 'Did that just happen?'**\
 `Just 13 months after the A's rookie finished his collegiate career, his mother and father saw him go 6-for-6 with four homers in Houston.`\
 https://nytimes.com/athletic/6517333/2025/07/26/nick-kurtz-four-home-runs-parents-athletics-astros/
