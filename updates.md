@@ -1,3 +1,7 @@
+**Liverpool 2-4 Milan: Wirtz's first appearance, central-defence issues, Ngumoha impresses**\
+`Liverpool lost to AC Milan in a pre-season friendly in Hong Kong on Saturday afternoon`\
+https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
+
 **Liverpool 2-4 Milan: Wirtz's first appearance? Central defence issues? Ngumoha impresses?**\
 `Liverpool lost to AC Milan in a pre-season friendly in Hong Kong on Saturday afternoon`\
 https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
