@@ -1,3 +1,7 @@
+**Gibbs-White signs new Forest contract until 2028**\
+`Tottenham Hotspur had previously made an approach for the 25-year-old.`\
+https://nytimes.com/athletic/6485870/2025/07/26/morgan-gibbs-white-forest-contract/
+
 **New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
 `Plus, the secondary depth chart continues to take shape.`\
 https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
