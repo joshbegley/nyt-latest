@@ -1,3 +1,7 @@
+**Norris claims Belgian GP pole; Hamilton exits early in qualifying shock**\
+`Lando Norris took his fourth pole position of the 2025 Formula One season on Saturday, besting teammate Oscar Piastri to line up P1 for the Belgian Grand Prix.`\
+https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/
+
 **What to Know About the Hack at Tea, an App Where Women Share Red Flags About Men**\
 `A data breach exposed photos and ID cards of women who signed up for a fast-growing app for women to share details of men they might date.`\
 https://nytimes.com/2025/07/26/us/tea-safety-dating-app-hack.html
