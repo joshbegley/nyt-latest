@@ -1,3 +1,7 @@
+**E.U. Cuts Aid to Ukraine Over Corruption Concerns**\
+`The $1.7 billion reduction capped a tough week for President Volodymyr Zelensky as he deals with Ukraine’s governance issues.`\
+https://nytimes.com/2025/07/26/world/europe/eu-ukraine-corruption-aid.html
+
 **Vikings sign Josh Metellus to 3-year extension**\
 `He has combined for 219 tackles, five forced fumbles and three interceptions since 2023.`\
 https://nytimes.com/athletic/6517241/2025/07/26/vikings-josh-metellus-contract-extension/
