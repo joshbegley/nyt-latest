@@ -1,3 +1,15 @@
+**Deion Sanders returns to Colorado facilities after health issue**\
+`Deion Sanders Jr. posted a video showing the elder Sanders walking through the facility and into the coaches' meeting room. `\
+https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colorado/
+
+**Venezuelan Youth Baseball Team, Denied Visas, Is Left Out of Tournament in U.S.**\
+`The team had apparently been swept up in the severe travel restrictions that President Trump has placed on more than a dozen countries.`\
+https://nytimes.com/2025/07/25/us/politics/venezuelan-youth-baseball-visas-tournament.html
+
+**What I'm hearing about the Cardinals' trade deadline: John Mozeliak listening on relievers**\
+`Though the Cardinals have not publicly declared their intent to sell, they have informed teams that their relievers are available.`\
+https://nytimes.com/athletic/6514749/2025/07/25/st-louis-cardinals-trade-deadline-relievers/
+
 **‘Billy Joel: And So It Goes:’ 5 Takeaways From the Film’s Conclusion**\
 `The HBO documentary about the singer and songwriter wrapped with a deep exploration of his tabloid troubles, creative process and decision to return to live performance.`\
 https://nytimes.com/2025/07/25/arts/music/billy-joel-documentary-and-so-it-goes-part-2.html
