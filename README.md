@@ -1,5 +1,9 @@
-**Rosenthal: What I'm hearing about the D-Backs' and Rays' deadline plans, Cedric Mullins and more**\
-`Plus more on the Rangers' priorities, Twins' willingness to deal pitching and how the third NL wild-card spot could impact the deadline.`\
+**Multiple People Stabbed at Michigan Walmart, Police Say**\
+`One person was in custody, the State Police said on social media. It was not clear how many people were injured or what set off the attack.`\
+https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
+
+**Rosenthal: What I'm hearing about D-Backs' and Rays' deadline plans, Cedric Mullins, more**\
+`Plus more on the Rangers' priorities, Twins' willingness to deal pitching and how the third NL wild-card spot could affect the deadline.`\
 https://nytimes.com/athletic/6517420/2025/07/26/trade-deadline-mlb-diamondbacks-rays/
 
 **Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6485870/2025/07/26/morgan-gibbs-white-forest-contra
 **E.U. Cuts Aid to Ukraine Over Corruption Concerns**\
 `The $1.7 billion reduction capped a tough week for President Volodymyr Zelensky as he deals with Ukraine’s governance issues.`\
 https://nytimes.com/2025/07/26/world/europe/eu-ukraine-corruption-aid.html
-
-**Vikings sign Josh Metellus to 3-year extension**\
-`He has combined for 219 tackles, five forced fumbles and three interceptions since 2023.`\
-https://nytimes.com/athletic/6517241/2025/07/26/vikings-josh-metellus-contract-extension/
 
