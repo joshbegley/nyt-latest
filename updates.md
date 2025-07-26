@@ -1,3 +1,7 @@
+**Seahawks training camp: Riq Woolen out to prove growth in pivotal contract year**\
+`After a roller coaster start to his NFL career, Woolen says he's more focused than ever heading into a crucial contract year.`\
+https://nytimes.com/athletic/6516375/2025/07/25/seahawks-training-camp-riq-woolen/
+
 **Fired Speechwriter From First Trump Term Appointed to Lead the Institute of Peace**\
 `In 2018, the White House fired Darren Beattie for attending a gathering of white supremacists. Mr. Beattie will head the institute while keeping his senior State Department position.`\
 https://nytimes.com/2025/07/25/admin/darren-beattie-institute-of-peace.html

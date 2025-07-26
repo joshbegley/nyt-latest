@@ -1,3 +1,7 @@
+**Seahawks training camp: Riq Woolen out to prove growth in pivotal contract year**\
+`After a roller coaster start to his NFL career, Woolen says he's more focused than ever heading into a crucial contract year.`\
+https://nytimes.com/athletic/6516375/2025/07/25/seahawks-training-camp-riq-woolen/
+
 **Fired Speechwriter From First Trump Term Appointed to Lead the Institute of Peace**\
 `In 2018, the White House fired Darren Beattie for attending a gathering of white supremacists. Mr. Beattie will head the institute while keeping his senior State Department position.`\
 https://nytimes.com/2025/07/25/admin/darren-beattie-institute-of-peace.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-re
 **2 Crew Members Are Hurt as Southwest Plane Plunges Abruptly After Takeoff**\
 `The sudden maneuver was made during a Friday flight out of California after two collision safety alerts sounded in the cockpit, causing the pilots to take evasive action, the airline said.`\
 https://nytimes.com/2025/07/25/us/southwest-flight-burbank-injuries.html
-
-**Bills Day 3 observations: Competition heats up at CB, WR; a message is sent to backup LBs**\
-`Outside of Khalil Shakir, how have the wide receivers looked in camp?`\
-https://nytimes.com/athletic/6515898/2025/07/25/bills-day-3-observations-competition-heats-up-at-cb-wr-linebacker/
 
