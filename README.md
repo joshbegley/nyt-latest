@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the D-Backs' and Rays' deadline plans, Cedric Mullins and more**\
+`Plus more on the Rangers' priorities, Twins' willingness to deal pitching and how the third NL wild-card spot could impact the deadline.`\
+https://nytimes.com/athletic/6517420/2025/07/26/trade-deadline-mlb-diamondbacks-rays/
+
 **Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
 `As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
 https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/world/europe/eu-ukraine-corruption-aid.html
 **Vikings sign Josh Metellus to 3-year extension**\
 `He has combined for 219 tackles, five forced fumbles and three interceptions since 2023.`\
 https://nytimes.com/athletic/6517241/2025/07/26/vikings-josh-metellus-contract-extension/
-
-**Infection From Brain-Eating Amoeba Kills Boy in South Carolina**\
-`A lawyer for the family of 12-year-old Jaysen Carr said he died on July 18 after contracting a deadly infectious amoeba while swimming in a reservoir.`\
-https://nytimes.com/2025/07/26/health/south-carolina-child-dead-brain-eating-amoeba.html
 
