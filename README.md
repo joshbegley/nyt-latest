@@ -1,3 +1,7 @@
+**Add Adrian Houser's name to the Cubs' long list for the trade deadline**\
+`The Cubs have a lot of background information on Houser, who has suddenly re-emerged to become the new ace on the South Side.`\
+https://nytimes.com/athletic/6516578/2025/07/26/cubs-trade-deadline-adrian-houser/
+
 **Sean Longstaff interview: 'Leeds have a similar feeling to when Newcastle got taken over'**\
 `The midfielder spoke exclusively to The Athletic after making his move from St James' Park to Elland Road`\
 https://nytimes.com/athletic/6515448/2025/07/26/sean-longstaff-leeds-newcastle-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodge
 **Deion Sanders returns to Colorado facilities after health issue**\
 `Deion Sanders Jr. posted a video showing the elder Sanders walking through the facility and into the coaches' meeting room. `\
 https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colorado/
-
-**Venezuelan Youth Baseball Team, Denied Visas, Is Left Out of Tournament in U.S.**\
-`The team had apparently been swept up in the severe travel restrictions that President Trump has placed on more than a dozen countries.`\
-https://nytimes.com/2025/07/25/us/politics/venezuelan-youth-baseball-visas-tournament.html
 
