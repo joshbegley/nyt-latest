@@ -1,3 +1,7 @@
+**Exploit Over Time**\
+`Adam Levav blinds us with science in a neat Saturday debut.`\
+https://nytimes.com/2025/07/25/crosswords/daily-puzzle-2025-07-26.html
+
 **Seahawks training camp: Riq Woolen out to prove growth in pivotal contract year**\
 `After a roller coaster start to his NFL career, Woolen says he's more focused than ever heading into a crucial contract year.`\
 https://nytimes.com/athletic/6516375/2025/07/25/seahawks-training-camp-riq-woolen/
