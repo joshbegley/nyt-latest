@@ -1,3 +1,7 @@
+**Williamson: Ankle feels 'great' ahead of Euros final, team 'would play through absolutely anything'**\
+`The England captain was forced off at half-time of extra-time during the quarter-final win over Sweden after landing awkwardly on her ankle.`\
+https://nytimes.com/athletic/6517149/2025/07/26/leah-williamson-england-euro-2025-final/
+
 **How Lewis Hamilton's Spa weekend unraveled despite Ferrari upgrades: 'Unacceptable'**\
 `Lewis Hamilton says he will apologize to his team after a "very, very poor performance."`\
 https://nytimes.com/athletic/6517107/2025/07/26/lewis-hamilton-f1-ferrari-belgium-grand-prix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516938/2025/07/26/luis-diaz-liverpool-future-arne-
 **Norris claims Belgian GP pole as Hamilton exits early in qualifying shock**\
 `McLaren locked out the front row, as Max Verstappen and Lewis Hamilton endured difficult qualifying runs`\
 https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/
-
-**What to Know About the Hack at Tea, an App Where Women Share Red Flags About Men**\
-`A data breach exposed photos and ID cards of women who signed up for a fast-growing app for women to share details of men they might date.`\
-https://nytimes.com/2025/07/26/us/tea-safety-dating-app-hack.html
 
