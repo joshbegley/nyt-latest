@@ -2,7 +2,7 @@
 `Tournament hosts Morocco face nine-time champions Nigeria in the WAFCON final on Saturday`\
 https://nytimes.com/athletic/6516945/2025/07/26/ghizlane-chebbak-wafcon-morocco/
 
-**Tour de France stage 20: Groves completes Grand Tour trilogy, Pogacar reflects on 'crazy' race, Jegat ghosts into top 10**\
+**Tour de France, stage 20: Groves completes his trilogy, Pogacar reflects on 'crazy' race, Jegat ghosts into top 10**\
 `Analysis of the penultimate day's action in the 2025 race – a 184km route from Nantua to Pontarlier`\
 https://nytimes.com/athletic/6516813/2025/07/26/tour-de-france-stage-20-analysis/
 
