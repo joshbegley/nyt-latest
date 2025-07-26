@@ -1,3 +1,15 @@
+**Illinois Man Convicted in Killing of Palestinian American Boy Dies in Custody**\
+`Joseph Czuba, who was convicted of killing 6-year-old Wadee Alfayoumi in 2023, died two months after a judge sentenced him to 53 years in prison. He was 73.`\
+https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
+
+**Kansas coach Bill Self released from hospital after undergoing heart procedure**\
+`"I feel strong and am excited to be home. … I'm looking forward to recharging and preparing for the upcoming season."`\
+https://nytimes.com/athletic/6517391/2025/07/26/kansas-bill-self-released-from-hospital/
+
+**11 People Are Injured in Stabbing at a Michigan Walmart, Officials Say**\
+`One person was in custody, the State Police said on social media. It was not clear what set off the attack.`\
+https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
+
 **Multiple People Stabbed at Michigan Walmart, Police Say**\
 `One person was in custody, the State Police said on social media. It was not clear how many people were injured or what set off the attack.`\
 https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html

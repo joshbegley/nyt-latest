@@ -1,3 +1,7 @@
+**Nick Kurtz's parents overwhelmed after son's historic performance: 'Did that just happen?'**\
+`Just 13 months after the A's rookie finished his collegiate career, his mother and father saw him go 6-for-6 with four homers in Houston.`\
+https://nytimes.com/athletic/6517333/2025/07/26/nick-kurtz-four-home-runs-parents-athletics-astros/
+
 **Illinois Man Convicted in Killing of Palestinian American Boy Dies in Custody**\
 `Joseph Czuba, who was convicted of killing 6-year-old Wadee Alfayoumi in 2023, died two months after a judge sentenced him to 53 years in prison. He was 73.`\
 https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-cam
 **What to know about Broncos training camp, Day 2: Bo Nix's plan to 'peak'**\
 `Meanwhile, linebacker Drew Sanders was carted off injured, running back RJ Harvey flashed and Denver's defensive depth is standing out.`\
 https://nytimes.com/athletic/6517257/2025/07/26/bo-nix-broncos-training-camp-drew-sanders/
-
-**Seven Charged in Child Abuse Ring Run From an Alabama Bunker, Officials Say**\
-`A sheriff called it the worst child abuse case he’d seen in his 33-year career. Victims as young as 3 are now in state care and getting medical, emotional and psychological support.`\
-https://nytimes.com/2025/07/26/us/sex-trafficking-concrete-bunker-alabama.html
 
