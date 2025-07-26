@@ -1,3 +1,7 @@
+**Phillies' Taijuan Walker making the most of fifth spot in rotation, for now**\
+`The Phillies and Walker just need to make it until mid-August, when Aaron Nola's return seems likely.`\
+https://nytimes.com/athletic/6516617/2025/07/26/taijuan-walker-phillies-rotation-for-now/
+
 **Padres, losers of 4 straight games, are entering dangerous territory**\
 `The wins and losses tell a story of year-over-year improvement. The recent trend lines do not.`\
 https://nytimes.com/athletic/6516575/2025/07/26/padres-lose-cardinals-four-straight/
