@@ -1,3 +1,7 @@
+**Padres, losers of 4 straight games, are entering dangerous territory**\
+`The wins and losses tell a story of year-over-year improvement. The recent trend lines do not.`\
+https://nytimes.com/athletic/6516575/2025/07/26/padres-lose-cardinals-four-straight/
+
 **Inside Tadej Pogacar's domination of the 2025 Tour de France**\
 `With the world champion set to seal a fourth Tour title this weekend, this is how he ensured his supremacy in the sport's biggest race`\
 https://nytimes.com/athletic/6515975/2025/07/26/tadej-pogacar-inside-2025-tour-de-france/

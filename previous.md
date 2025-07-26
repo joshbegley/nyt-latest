@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6516607/2025/07/26/chicago-white-sox-embarrass-cubs
 `The families of England players talk to The Athletic about the challenges and sacrifices involved in their daughters' journeys to the top`\
 https://nytimes.com/athletic/6506473/2025/07/26/making-of-a-lioness-england-euros/
 
-**Padres, losers of 4 straight, are entering dangerous territory**\
+**Padres, losers of 4 straight games, are entering dangerous territory**\
 `The wins and losses tell a story of year-over-year improvement. The recent trend lines do not.`\
 https://nytimes.com/athletic/6516575/2025/07/26/padres-lose-cardinals-four-straight/
 
