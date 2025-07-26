@@ -1,3 +1,11 @@
+**Multiple People Stabbed at Michigan Walmart, Police Say**\
+`One person was in custody, the State Police said on social media. It was not clear how many people were injured or what set off the attack.`\
+https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
+
+**Rosenthal: What I'm hearing about D-Backs' and Rays' deadline plans, Cedric Mullins, more**\
+`Plus more on the Rangers' priorities, Twins' willingness to deal pitching and how the third NL wild-card spot could affect the deadline.`\
+https://nytimes.com/athletic/6517420/2025/07/26/trade-deadline-mlb-diamondbacks-rays/
+
 **Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
 `As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
 https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
