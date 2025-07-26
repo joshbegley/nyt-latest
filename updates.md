@@ -1,3 +1,7 @@
+**Protesters Take to the Streets in Scotland as Trump Golfs**\
+`Demonstrators held signs criticizing President Trump on a range of issues, from his stances on immigration and Gaza, and his ties to the sex offender Jeffrey Epstein.`\
+https://nytimes.com/video/us/politics/100000010307453/scotland-protests-trump-golf.html
+
 **Ben Stokes - England's colossus who is four players in one**\
 `He's taken a five-wicket haul and hit a century in this fourth Test against India - the first captain of any nation to do that in 42 years`\
 https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-century-all-rounder/

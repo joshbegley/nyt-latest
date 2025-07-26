@@ -1,3 +1,7 @@
+**Protesters Take to the Streets in Scotland as Trump Golfs**\
+`Demonstrators held signs criticizing President Trump on a range of issues, from his stances on immigration and Gaza, and his ties to the sex offender Jeffrey Epstein.`\
+https://nytimes.com/video/us/politics/100000010307453/scotland-protests-trump-golf.html
+
 **Ben Stokes - England's colossus who is four players in one**\
 `He's taken a five-wicket haul and hit a century in this fourth Test against India - the first captain of any nation to do that in 42 years`\
 https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-century-all-rounder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6501696/2025/07/26/arsenal-viktor-gyokeres-inside-t
 **Williamson: Ankle feels 'great' ahead of Euros final, team 'would play through absolutely anything'**\
 `The England captain was forced off at half-time of extra-time during the quarter-final win over Sweden after landing awkwardly on her ankle.`\
 https://nytimes.com/athletic/6517149/2025/07/26/leah-williamson-england-euro-2025-final/
-
-**How Lewis Hamilton's Spa weekend unraveled despite Ferrari upgrades: 'Unacceptable'**\
-`Lewis Hamilton says he will apologize to his team after a "very, very poor performance."`\
-https://nytimes.com/athletic/6517107/2025/07/26/lewis-hamilton-f1-ferrari-belgium-grand-prix/
 
