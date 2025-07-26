@@ -1,3 +1,7 @@
+**Sabathia jokes about car trouble that delayed his journey to Cooperstown**\
+`A photo posted by the Hall of Fame pitcher of him and his children stuck on the side of the road went viral over the past two days.`\
+https://nytimes.com/athletic/6517205/2025/07/26/cc-sabathia-hall-of-fame-car-trouble/
+
 **In Cooperstown, Dave Parker’s son prepares for the speech his father always wanted to give**\
 `Dave Parker II will speak at the Hall of Fame induction on Sunday, nearly a month after his father died at 74.`\
 https://nytimes.com/athletic/6517138/2025/07/26/dave-parker-hall-of-fame-son/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516945/2025/07/26/ghizlane-chebbak-wafcon-morocco/
 **Tour de France, stage 20: Groves completes his trilogy, Pogacar reflects on 'crazy' race, Jegat ghosts into top 10**\
 `Analysis of the penultimate day's action in the 2025 race – a 184km route from Nantua to Pontarlier`\
 https://nytimes.com/athletic/6516813/2025/07/26/tour-de-france-stage-20-analysis/
-
-**Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son, and absentees**\
-`Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
-https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
 

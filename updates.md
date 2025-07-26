@@ -1,3 +1,7 @@
+**Sabathia jokes about car trouble that delayed his journey to Cooperstown**\
+`A photo posted by the Hall of Fame pitcher of him and his children stuck on the side of the road went viral over the past two days.`\
+https://nytimes.com/athletic/6517205/2025/07/26/cc-sabathia-hall-of-fame-car-trouble/
+
 **In Cooperstown, Dave Parker’s son prepares for the speech his father always wanted to give**\
 `Dave Parker II will speak at the Hall of Fame induction on Sunday, nearly a month after his father died at 74.`\
 https://nytimes.com/athletic/6517138/2025/07/26/dave-parker-hall-of-fame-son/
