@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6516542/2025/07/25/dodgers-offensive-upgrades-trade
 https://nytimes.com/athletic/6516548/2025/07/25/nick-kurtz-oakland-rookie-four-homers/
 
 **Rosenthal: What I’m hearing about the Pirates' trade deadline plans, Eugenio Suárez and more**\
-`Plus the Dodgers' relief pitching situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes' future.`\
+`Plus: The Dodgers' reliever situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes Jr's future.`\
 https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodgers-eugenio-suarez/
 
 **Deion Sanders returns to Colorado facilities after health issue**\

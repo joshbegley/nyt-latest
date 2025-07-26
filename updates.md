@@ -1,3 +1,7 @@
+**Rosenthal: What I’m hearing about the Pirates' trade deadline plans, Eugenio Suárez and more**\
+`Plus: The Dodgers' reliever situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes Jr's future.`\
+https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodgers-eugenio-suarez/
+
 **What we're hearing about the Dodgers' pursuit of offensive upgrades at the deadline**\
 `The Dodgers have shot high so far in the market, expressing interest in Cardinals All-Star Brendan Donovan, multiple league sources said.`\
 https://nytimes.com/athletic/6516542/2025/07/25/dodgers-offensive-upgrades-trade-deadline/
