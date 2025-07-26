@@ -1,3 +1,11 @@
+**Reds' Terry Francona uses scoreboard video to escalate prank battle with Rays' Kevin Cash**\
+`The managers became close when Cash played for the Red Sox, and they keep trying to one-up each other with pregame hijinks.`\
+https://nytimes.com/athletic/6516333/2025/07/25/terry-francona-kevin-cash-scoreboard-prank-reds-rays/
+
+**What Red Sox rookie Marcelo Mayer's injury means for Jarren Duran's trade market**\
+`A key part of Boston's roster, Duran has garnered significant interest across the league.`\
+https://nytimes.com/athletic/6516343/2025/07/25/red-sox-marcelo-mayer-injury-jarren-duran-trade-market/
+
 **Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
 `The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
 https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
