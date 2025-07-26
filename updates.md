@@ -1,3 +1,7 @@
+**Capos, 'soft hooligans' and a lot of noise - the rise of away fans in women's football**\
+`The sights and sounds of travelling fans have been one of the highlights of the Euros in Switzerland - they say they will only get louder`\
+https://nytimes.com/athletic/6508617/2025/07/26/away-fans-womens-football-euros/
+
 **Chargers training camp report, Day 8: It's time to get Zion Johnson padded snaps at center**\
 `Despite Johnson not yet playing center in pads, coach Jim Harbaugh is confident: "I’ve already seen that he can play the position."`\
 https://nytimes.com/athletic/6516698/2025/07/26/zion-johnson-chargers-training-camp/
