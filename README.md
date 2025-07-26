@@ -1,3 +1,7 @@
+**Women's football is getting younger, but 30-somethings across the globe are proving their worth**\
+`At the Euros, Copa America Feminina and WAFCON, players in the twilight of their careers are matching the talented teenagers`\
+https://nytimes.com/athletic/6515028/2025/07/26/womens-football-teenagers-30-somethings-asllani-montoya/
+
 **In Russia, Corruption Cases Follow Battlefield Failures**\
 `Officials in three of the five Russian regions bordering Ukraine have been accused of embezzling funds for border defenses.`\
 https://nytimes.com/2025/07/26/world/europe/russia-corruption-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/world/middleeast/iran-water-crisis-drought.html
 **Removal of Castro and Guevara Statues Ignites Outcry in Mexico City**\
 `The Cuban Revolution leaders joined forces in Mexico in 1955. A local mayor removed a memorial to them, drawing protests and condemnation from Mexico’s highest office.`\
 https://nytimes.com/2025/07/26/world/americas/mexico-city-fidel-che-statues.html
-
-**He Read (at Least) 3,599 Books in His Lifetime. Now Anyone Can See His List.**\
-`After Dan Pelzer died this month at 92, his children uploaded the handwritten reading list to what-dan-read.com, hoping to inspire readers everywhere.`\
-https://nytimes.com/2025/07/26/books/man-died-book-list-thousands.html
 
