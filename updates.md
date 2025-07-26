@@ -1,3 +1,7 @@
+**The Pulse: Jerry Jones' latest doomed standoff**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6516122/2025/07/26/jerry-jones-micah-parsons-contract-the-pulse/
+
 **Submit MLB deadline trade proposals for Jim Bowden to evaluate**\
 `With less than a week until the trade deadline, we want to hear subscribers’ trade proposals. Jim Bowden will weigh in on a bunch of them. `\
 https://nytimes.com/athletic/6516817/2025/07/26/submit-mlb-deadline-trade-proposals-for-jim-bowden-to-evaluate/
