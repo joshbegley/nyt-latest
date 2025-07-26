@@ -1,3 +1,7 @@
+**Quote of the Day: Still Strange, Meme Stocks Are Back**\
+`Quotation of the Day for Saturday, July 26, 2025.`\
+https://nytimes.com/2025/07/25/pageoneplus/quote-of-the-day-still-strange-meme-stocks-are-back.html
+
 **What we're hearing about the Dodgers' pursuit of offensive upgrades at the deadline**\
 `The Dodgers have shot high so far in the market, expressing interest in Cardinals All-Star Brendan Donovan, multiple league sources said.`\
 https://nytimes.com/athletic/6516542/2025/07/25/dodgers-offensive-upgrades-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-
 **Exploit Over Time**\
 `Adam Levav blinds us with science in a neat Saturday debut.`\
 https://nytimes.com/2025/07/25/crosswords/daily-puzzle-2025-07-26.html
-
-**Seahawks training camp: Riq Woolen out to prove growth in pivotal contract year**\
-`After a roller-coaster start to his NFL career, Woolen says he's more focused than ever heading into a crucial contract year.`\
-https://nytimes.com/athletic/6516375/2025/07/25/seahawks-training-camp-riq-woolen/
 
