@@ -1,3 +1,7 @@
+**New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
+`Plus, the secondary depth chart continues to take shape.`\
+https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
+
 **What to know about Broncos training camp, Day 2: Bo Nix's plan to 'peak'**\
 `Meanwhile, linebacker Drew Sanders was carted off injured, running back RJ Harvey flashed and Denver's defensive depth is standing out.`\
 https://nytimes.com/athletic/6517257/2025/07/26/bo-nix-broncos-training-camp-drew-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-centu
 **Reusser abandons Tour de France Femmes in stage 1 after suffering with stomach bug**\
 `Reusser finished second in the Giro d’Italia earlier this month, losing out to UAE Team ADQ’s Elisa Longo Borghini by 18 seconds.`\
 https://nytimes.com/athletic/6517221/2025/07/26/marlen-reusser-tour-de-france-femmes/
-
-**Why Arthur Blank believes Falcons are emerging from 'a difficult seven years'**\
-`Atlanta has missed the playoffs the last seven seasons. Blank expects that to change this year.`\
-https://nytimes.com/athletic/6517178/2025/07/26/falcons-owner-arthur-blank-season-expectations/
 

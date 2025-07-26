@@ -1,3 +1,7 @@
+**New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
+`Plus, the secondary depth chart continues to take shape.`\
+https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
+
 **What to know about Broncos training camp, Day 2: Bo Nix's plan to 'peak'**\
 `Meanwhile, linebacker Drew Sanders was carted off injured, running back RJ Harvey flashed and Denver's defensive depth is standing out.`\
 https://nytimes.com/athletic/6517257/2025/07/26/bo-nix-broncos-training-camp-drew-sanders/
