@@ -1,3 +1,11 @@
+**India receives 'hoax' Xavi and Guardiola head coach applications**\
+`The AIFF said it had narrowed its head coach shortlist down to three applicants and in the process had dismissed two hoax applications.`\
+https://nytimes.com/athletic/6516880/2025/07/26/xavi-pep-guardiola-india-hoax/
+
+**Liverpool 2-4 Milan: Wirtz's first real appearance, central-defence issues, Ngumoha impresses**\
+`The Premier League champions were beaten on Saturday in the first match of their pre-season tour to Hong Kong and Japan`\
+https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
+
 **Live Q&A: Aaron Gleeman to answer your Twins questions before the trade deadline**\
 `Twins expert Aaron Gleeman will be here Monday to answer reader questions.`\
 https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gleeman/
