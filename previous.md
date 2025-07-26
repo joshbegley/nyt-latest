@@ -1,3 +1,11 @@
+**Reusser abandons Tour de France Femmes in stage 1 after suffering with stomach bug**\
+`Reusser finished second in the Giro d’Italia earlier this month, losing out to UAE Team ADQ’s Elisa Longo Borghini by 18 seconds.`\
+https://nytimes.com/athletic/6517221/2025/07/26/marlen-reusser-tour-de-france-femmes/
+
+**Why Arthur Blank believes Falcons are emerging from 'a difficult seven years'**\
+`Atlanta has missed the playoffs the last seven seasons. Blank expects that to change this year.`\
+https://nytimes.com/athletic/6517178/2025/07/26/falcons-owner-arthur-blank-season-expectations/
+
 **Sabathia jokes about car trouble that delayed his journey to Cooperstown**\
 `A photo posted by the Hall of Fame pitcher of him and his children stuck on the side of the road went viral over the past two days.`\
 https://nytimes.com/athletic/6517205/2025/07/26/cc-sabathia-hall-of-fame-car-trouble/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6517107/2025/07/26/lewis-hamilton-f1-ferrari-belgiu
 **Fulham in advanced talks to sign Reiss Nelson from Arsenal**\
 `The winger made 13 appearances for Fulham in 2024-25 before suffering a season-ending hamstring injury in December.`\
 https://nytimes.com/athletic/6497912/2025/07/26/arsenal-reiss-nelson-fulham-transfer/
-
-**Ghizlane Chebbak: A player born into Moroccan soccer greatness but writing her own story**\
-`Tournament hosts Morocco face nine-time champions Nigeria in the WAFCON final on Saturday`\
-https://nytimes.com/athletic/6516945/2025/07/26/ghizlane-chebbak-wafcon-morocco/
-
-**Tour de France, stage 20: Groves completes his trilogy, Pogacar reflects on 'crazy' race, Jegat ghosts into top 10**\
-`Analysis of the penultimate day's action in the 2025 race – a 184km route from Nantua to Pontarlier`\
-https://nytimes.com/athletic/6516813/2025/07/26/tour-de-france-stage-20-analysis/
 
