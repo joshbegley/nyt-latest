@@ -1,3 +1,7 @@
+**Nick Kurtz's parents overwhelmed after son's historic performance: 'Did that just happen?'**\
+`Just 13 months after the A's rookie finished his collegiate career, his mother and father saw him go 6-for-6 with four homers in Houston.`\
+https://nytimes.com/athletic/6517333/2025/07/26/nick-kurtz-four-home-runs-parents-athletics-astros/
+
 **Illinois Man Convicted in Killing of Palestinian American Boy Dies in Custody**\
 `Joseph Czuba, who was convicted of killing 6-year-old Wadee Alfayoumi in 2023, died two months after a judge sentenced him to 53 years in prison. He was 73.`\
 https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
