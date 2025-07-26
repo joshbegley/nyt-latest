@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
+`With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
+https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
+
 **Exploit Over Time**\
 `Adam Levav blinds us with science in a neat Saturday debut.`\
 https://nytimes.com/2025/07/25/crosswords/daily-puzzle-2025-07-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-c
 **Jalen Ramsey's new role takes shape, Aaron Rodgers sharp: Steelers training camp observations**\
 `Plus, Mike Tomlin and his new defensive back remember a 'free dinner' together from long ago.`\
 https://nytimes.com/athletic/6516169/2025/07/25/steelers-training-camp-practice-report-aaron-rodgers-jalen-ramsey/
-
-**Dodgers welcome back Walker Buehler, who finds himself in a familiar place with Boston**\
-`Buehler's next start is Sunday against the Dodgers. That will stir different emotions than Friday, when he received his championship ring.`\
-https://nytimes.com/athletic/6516236/2025/07/25/dodgers-walker-buehler-return-red-sox-recovery/
 
