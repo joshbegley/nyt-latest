@@ -1,3 +1,7 @@
+**New York Is Planning a Train Line to Connect Its Transit Deserts. We Walked All 14 Miles of It.**\
+`What would light-rail service change about the space that keeps us apart?`\
+https://nytimes.com/2025/07/26/opinion/interborough-express-brooklyn-queens-public-space.html
+
 **2 Novels for Double Lives**\
 `An unhappy housewife; an underground radical.`\
 https://nytimes.com/2025/07/26/books/read-like-wind-recommended-books.html
