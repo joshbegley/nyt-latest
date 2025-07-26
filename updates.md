@@ -1,3 +1,7 @@
+**Rosenthal: What I’m hearing about the Pirates' trade deadline plans, Eugenio Suárez and more**\
+`Plus the Dodgers' relief pitching situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes' future.`\
+https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodgers-eugenio-suarez/
+
 **Deion Sanders returns to Colorado facilities after health issue**\
 `Deion Sanders Jr. posted a video showing the elder Sanders walking through the facility and into the coaches' meeting room. `\
 https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colorado/
