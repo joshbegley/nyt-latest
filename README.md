@@ -1,3 +1,7 @@
+**Little Victories**\
+`We tend to confine our parties to milestones and cultural events, but there are countless micro-occasions worthy of commemorating.`\
+https://nytimes.com/2025/07/26/briefing/little-victories.html
+
 **Why Cowboys coach Brian Schottenheimer recently showed his angry side during practice**\
 `Brian Schottenheimer had to stop practice one day this week and he ripped into his team and warned them to not push things too far.`\
 https://nytimes.com/athletic/6516187/2025/07/26/cowboys-physical-training-camp-fights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6512228/2025/07/26/savannah-bananas-philadelphia-ba
 **No Proof Hamas Routinely Stole U.N. Aid, Israeli Military Officials Say**\
 `Israel has long restricted or completely blocked aid to Gaza on the argument that Hamas steals it to use as a weapon of control over the population.`\
 https://nytimes.com/2025/07/26/world/middleeast/hamas-un-aid-theft.html
-
-**How to watch Top Rank Boxing: Xander Zayas, Jorge Garcia battle for world title**\
-`Rising star Xander Zayas will take on veteran Jorge Garcia this Saturday night, marking the end of an era for boxing on television. `\
-https://nytimes.com/athletic/6514648/2025/07/26/top-rank-boxing-zayas-garcia-tv-deal-how-to-watch/
 
