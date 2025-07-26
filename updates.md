@@ -1,3 +1,11 @@
+**Liverpool 2-4 Milan: Wirtz's first appearance? Central defence issues? Ngumoha impresses?**\
+`Liverpool lost to AC Milan in a pre-season friendly in Hong Kong on Saturday afternoon`\
+https://nytimes.com/athletic/6516835/2025/07/26/liverpool-ac-milan-result-report-analysis/
+
+**This Test Can See a Heart Attack in Your Future**\
+`Coronary artery calcium testing can reveal plaque in arteries, offering a more precise estimate of a patient’s risk. Yet the test remains underused.`\
+https://nytimes.com/2025/07/26/health/coronary-artery-calcium-heart.html
+
 **Messi's 'bodyguard' De Paul joins Inter Miami: What can MLS expect?**\
 `Off the field, the pair share a strong relationship. On it, MLS defenders will find they have someone else to watch out for as well as Messi`\
 https://nytimes.com/athletic/6495579/2025/07/26/lionel-messi-bodyguard-rodrigo-de-paul-miami/
