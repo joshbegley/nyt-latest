@@ -1,3 +1,7 @@
+**Taiwan’s Mass Recall Vote Tests Its Democracy, and China’s Nerves**\
+`An unprecedented recall vote could hand President Lai Ching-te more power by ousting legislative opponents. It could also prompt a response from China.`\
+https://nytimes.com/2025/07/25/world/asia/taiwans-recall-china.html
+
 **Yankees trade deadline: What's next after adding Ryan McMahon?**\
 `The Yankees believe they're in a great position to continue adding after filling a key hole. Here's what we're hearing they could do next.  `\
 https://nytimes.com/athletic/6516114/2025/07/25/yankees-trade-deadline-targets-ryan-mcmahon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516228/2025/07/25/shemar-stewart-bengals-deal-cont
 **Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
 `The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
 https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
-
-**Giants place Landen Roupp on injured list with right elbow inflammation**\
-`The righty has a 3.11 ERA in 20 starts and had become the team's most reliable starter after All-Stars Logan Webb and Robbie Ray.`\
-https://nytimes.com/athletic/6516204/2025/07/25/sf-giants-landen-roupp-injury/
 

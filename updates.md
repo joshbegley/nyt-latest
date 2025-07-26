@@ -1,3 +1,7 @@
+**Yankees trade deadline: What's next after adding Ryan McMahon?**\
+`The Yankees believe they're in a great position to continue adding after filling a key hole. Here's what we're hearing they could do next.  `\
+https://nytimes.com/athletic/6516114/2025/07/25/yankees-trade-deadline-targets-ryan-mcmahon/
+
 **Despite future contract questions, Ravens' first week of camp has been drama-free**\
 `All-Pro safety Kyle Hamilton joins star players such as Lamar Jackson and Tyler Linderbaum, who are up for contract extensions. `\
 https://nytimes.com/athletic/6516256/2025/07/25/baltimore-ravens-training-camp-contracts/
