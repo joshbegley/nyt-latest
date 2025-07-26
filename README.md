@@ -1,3 +1,19 @@
+**Sean Longstaff interview: 'Leeds have a similar feeling to when Newcastle got taken over'**\
+`The midfielder spoke exclusively to The Athletic after making his move from St James' Park to Elland Road`\
+https://nytimes.com/athletic/6515448/2025/07/26/sean-longstaff-leeds-newcastle-interview/
+
+**Trump’s Trip to Scotland Echoes an Earlier Visit, When He Applauded Brexit**\
+`Before his 2016 election, President Trump correctly predicted that the forces animating Brexit would go beyond the United Kingdom. But now most Britons say Brexit was a mistake.`\
+https://nytimes.com/2025/07/26/world/europe/trump-brexit-scotland-uk.html
+
+**Connections: Sports Edition Coach: Hints for July 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6515225/2025/07/26/connections-sports-edition-hints-for-july-26/
+
+**Corrections: July 26, 2025**\
+`Corrections that appeared in print on Saturday, July 26, 2025.`\
+https://nytimes.com/2025/07/26/pageoneplus/corrections-july-26-2025.html
+
 **Quote of the Day: Still Strange, Meme Stocks Are Back**\
 `Quotation of the Day for Saturday, July 26, 2025.`\
 https://nytimes.com/2025/07/25/pageoneplus/quote-of-the-day-still-strange-meme-stocks-are-back.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6516512/2025/07/25/deion-sanders-health-return-colo
 **Venezuelan Youth Baseball Team, Denied Visas, Is Left Out of Tournament in U.S.**\
 `The team had apparently been swept up in the severe travel restrictions that President Trump has placed on more than a dozen countries.`\
 https://nytimes.com/2025/07/25/us/politics/venezuelan-youth-baseball-visas-tournament.html
-
-**What I'm hearing about the Cardinals' trade deadline: John Mozeliak listening on relievers**\
-`Though the Cardinals have not publicly declared their intent to sell, they have informed teams that their relievers are available.`\
-https://nytimes.com/athletic/6514749/2025/07/25/st-louis-cardinals-trade-deadline-relievers/
-
-**‘Billy Joel: And So It Goes:’ 5 Takeaways From the Film’s Conclusion**\
-`The HBO documentary about the singer and songwriter wrapped with a deep exploration of his tabloid troubles, creative process and decision to return to live performance.`\
-https://nytimes.com/2025/07/25/arts/music/billy-joel-documentary-and-so-it-goes-part-2.html
-
-**Submit MLB trade deadline questions, trade proposals for Jim Bowden’s mailbag**\
-`With less than a week until the trade deadline, we want to hear subscribers’ deadline questions and trade proposals. `\
-https://nytimes.com/athletic/6515585/2025/07/25/mlb-trade-deadline-submit-trade-proposals/
-
-**Exploit Over Time**\
-`Adam Levav blinds us with science in a neat Saturday debut.`\
-https://nytimes.com/2025/07/25/crosswords/daily-puzzle-2025-07-26.html
 

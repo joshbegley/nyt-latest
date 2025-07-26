@@ -1,3 +1,7 @@
+**Quote of the Day: Still Strange, Meme Stocks Are Back**\
+`Quotation of the Day for Saturday, July 26, 2025.`\
+https://nytimes.com/2025/07/25/pageoneplus/quote-of-the-day-still-strange-meme-stocks-are-back.html
+
 **Rosenthal: What I’m hearing about the Pirates' trade deadline plans, Eugenio Suárez and more**\
 `Plus: The Dodgers' reliever situation, the Rays might be thinking about selling, Luis Robert Jr.'s status and Nestor Cortes Jr's future.`\
 https://nytimes.com/athletic/6516533/2025/07/25/mlb-trade-deadline-pirates-dodgers-eugenio-suarez/
