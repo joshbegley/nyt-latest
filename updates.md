@@ -1,3 +1,7 @@
+**Submit MLB deadline trade proposals for Jim Bowden to evaluate**\
+`With less than a week until the trade deadline, we want to hear subscribers’ trade proposals. Jim Bowden will weigh in on a bunch of them. `\
+https://nytimes.com/athletic/6516817/2025/07/26/submit-mlb-deadline-trade-proposals-for-jim-bowden-to-evaluate/
+
 **Sarina Wiegman: Football’s ultimate tournament specialist**\
 `Few managers in the game think outside the box like Wiegman – five successive finals is an achievement that may not be matched`\
 https://nytimes.com/athletic/6515088/2025/07/26/sarina-wiegman-england-manager-ultimate-tournament-specialist/

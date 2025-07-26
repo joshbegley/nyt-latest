@@ -1,3 +1,7 @@
+**Submit MLB deadline trade proposals for Jim Bowden to evaluate**\
+`With less than a week until the trade deadline, we want to hear subscribers’ trade proposals. Jim Bowden will weigh in on a bunch of them. `\
+https://nytimes.com/athletic/6516817/2025/07/26/submit-mlb-deadline-trade-proposals-for-jim-bowden-to-evaluate/
+
 **Sarina Wiegman: Football’s ultimate tournament specialist**\
 `Few managers in the game think outside the box like Wiegman – five successive finals is an achievement that may not be matched`\
 https://nytimes.com/athletic/6515088/2025/07/26/sarina-wiegman-england-manager-ultimate-tournament-specialist/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/opinion/interborough-express-brooklyn-queens-publ
 **How Israel’s War Became Unjust**\
 `Even a righteous cause needs a plan to limit suffering and a reasonable path toward peace.`\
 https://nytimes.com/2025/07/26/opinion/israel-hamas-gaza-starvation.html
-
-**How to watch rivals England vs. Spain in the Euro 2025 final**\
-`Spain and England are both built for the UEFA Euro 2025 final. One of them is about to lose.`\
-https://nytimes.com/athletic/6516129/2025/07/26/euro-2025-final-england-spain-how-to-watch/
 
