@@ -1,3 +1,7 @@
+**What to know about Broncos training camp, Day 2: Bo Nix's plan to 'peak'**\
+`Meanwhile, linebacker Drew Sanders was carted off injured, running back RJ Harvey flashed and Denver's defensive depth is standing out.`\
+https://nytimes.com/athletic/6517257/2025/07/26/bo-nix-broncos-training-camp-drew-sanders/
+
 **Seven Charged in Child Abuse Ring Run From an Alabama Bunker, Officials Say**\
 `A sheriff called it the worst child abuse case he’d seen in his 33-year career. Victims as young as 3 are now in state care and getting medical, emotional and psychological support.`\
 https://nytimes.com/2025/07/26/us/sex-trafficking-concrete-bunker-alabama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517221/2025/07/26/marlen-reusser-tour-de-france-fe
 **Why Arthur Blank believes Falcons are emerging from 'a difficult seven years'**\
 `Atlanta has missed the playoffs the last seven seasons. Blank expects that to change this year.`\
 https://nytimes.com/athletic/6517178/2025/07/26/falcons-owner-arthur-blank-season-expectations/
-
-**Sabathia jokes about car trouble that delayed his journey to Cooperstown**\
-`A photo posted by the Hall of Fame pitcher of him and family stuck on the side of the road went viral over the past two days.`\
-https://nytimes.com/athletic/6517205/2025/07/26/cc-sabathia-hall-of-fame-car-trouble/
 
