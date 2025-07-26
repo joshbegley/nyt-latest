@@ -1,3 +1,7 @@
+**Ben Stokes - England's colossus who is four players in one**\
+`He's taken a five-wicket haul and hit a century in this fourth Test against India - the first captain of any nation to do that in 42 years`\
+https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-century-all-rounder/
+
 **Reusser abandons Tour de France Femmes in stage 1 after suffering with stomach bug**\
 `Reusser finished second in the Giro d’Italia earlier this month, losing out to UAE Team ADQ’s Elisa Longo Borghini by 18 seconds.`\
 https://nytimes.com/athletic/6517221/2025/07/26/marlen-reusser-tour-de-france-femmes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517149/2025/07/26/leah-williamson-england-euro-202
 **How Lewis Hamilton's Spa weekend unraveled despite Ferrari upgrades: 'Unacceptable'**\
 `Lewis Hamilton says he will apologize to his team after a "very, very poor performance."`\
 https://nytimes.com/athletic/6517107/2025/07/26/lewis-hamilton-f1-ferrari-belgium-grand-prix/
-
-**Fulham in advanced talks to sign Reiss Nelson from Arsenal**\
-`The winger made 13 appearances for Fulham in 2024-25 before suffering a season-ending hamstring injury in December.`\
-https://nytimes.com/athletic/6497912/2025/07/26/arsenal-reiss-nelson-fulham-transfer/
 
