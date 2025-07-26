@@ -1,3 +1,7 @@
+**How Lewis Hamilton's Spa weekend unraveled despite Ferrari upgrades: 'Unacceptable'**\
+`Lewis Hamilton says he will apologize to his team after a "very, very poor performance."`\
+https://nytimes.com/athletic/6517107/2025/07/26/lewis-hamilton-f1-ferrari-belgium-grand-prix/
+
 **Fulham in advanced talks to sign Reiss Nelson from Arsenal**\
 `The winger made 13 appearances for Fulham in 2024-25 before suffering a season-ending hamstring injury in December.`\
 https://nytimes.com/athletic/6497912/2025/07/26/arsenal-reiss-nelson-fulham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-
 **What to Know About the Hack at Tea, an App Where Women Share Red Flags About Men**\
 `A data breach exposed photos and ID cards of women who signed up for a fast-growing app for women to share details of men they might date.`\
 https://nytimes.com/2025/07/26/us/tea-safety-dating-app-hack.html
-
-**23 Classic, Memorable, Must-Make Salads**\
-`The best salads of all time, if you will.`\
-https://nytimes.com/2025/07/26/dining/seven-layer-salad-and-22-more-classic-salads.html
 
