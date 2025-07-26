@@ -1,3 +1,7 @@
+**Fulham in advanced talks to sign Reiss Nelson from Arsenal**\
+`The winger made 13 appearances for Fulham in 2024-25 before suffering a season-ending hamstring injury in December.`\
+https://nytimes.com/athletic/6497912/2025/07/26/arsenal-reiss-nelson-fulham-transfer/
+
 **Tour de France, stage 20: Groves completes his trilogy, Pogacar reflects on 'crazy' race, Jegat ghosts into top 10**\
 `Analysis of the penultimate day's action in the 2025 race – a 184km route from Nantua to Pontarlier`\
 https://nytimes.com/athletic/6516813/2025/07/26/tour-de-france-stage-20-analysis/

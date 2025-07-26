@@ -1,3 +1,7 @@
+**Fulham in advanced talks to sign Reiss Nelson from Arsenal**\
+`The winger made 13 appearances for Fulham in 2024-25 before suffering a season-ending hamstring injury in December.`\
+https://nytimes.com/athletic/6497912/2025/07/26/arsenal-reiss-nelson-fulham-transfer/
+
 **Ghizlane Chebbak: A player born into Moroccan soccer greatness but writing her own story**\
 `Tournament hosts Morocco face nine-time champions Nigeria in the WAFCON final on Saturday`\
 https://nytimes.com/athletic/6516945/2025/07/26/ghizlane-chebbak-wafcon-morocco/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/us/tea-safety-dating-app-hack.html
 **23 Classic, Memorable, Must-Make Salads**\
 `The best salads of all time, if you will.`\
 https://nytimes.com/2025/07/26/dining/seven-layer-salad-and-22-more-classic-salads.html
-
-**Isak is not in Singapore with Newcastle but his future is dominating their pre-season tour**\
-`Eddie Howe fielded eight questions on the striker during Saturday's 15-minute press conference. The situation is beyond a distraction now`\
-https://nytimes.com/athletic/6515165/2025/07/26/isak-future-transfer-howe-newcastle-singapore/
 
