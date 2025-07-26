@@ -1,3 +1,11 @@
+**Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
+`As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
+https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
+
+**Arranged Marriages**\
+`John Kugelman’s latest crossword creation belongs in a museum.`\
+https://nytimes.com/2025/07/26/crosswords/daily-puzzle-2025-07-27.html
+
 **Venezuelan youth baseball team denied travel visas to U.S.**\
 `Cacique Mara, the Venezuelan team, was replaced by a team from Mexico after having its visa requests denied.`\
 https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-visas/

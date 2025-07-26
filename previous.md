@@ -1,3 +1,11 @@
+**Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
+`As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
+https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
+
+**Arranged Marriages**\
+`John Kugelman’s latest crossword creation belongs in a museum.`\
+https://nytimes.com/2025/07/26/crosswords/daily-puzzle-2025-07-27.html
+
 **Venezuelan youth baseball team denied travel visas to U.S.**\
 `Cacique Mara, the Venezuelan team, was replaced by a team from Mexico after having its visa requests denied.`\
 https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-visas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6517241/2025/07/26/vikings-josh-metellus-contract-e
 **Infection From Brain-Eating Amoeba Kills Boy in South Carolina**\
 `A lawyer for the family of 12-year-old Jaysen Carr said he died on July 18 after contracting a deadly infectious amoeba while swimming in a reservoir.`\
 https://nytimes.com/2025/07/26/health/south-carolina-child-dead-brain-eating-amoeba.html
-
-**Protesters Take to the Streets in Scotland as Trump Golfs**\
-`Demonstrators held signs criticizing President Trump on a range of issues, from his stances on immigration and Gaza, and his ties to the sex offender Jeffrey Epstein.`\
-https://nytimes.com/video/us/politics/100000010307453/scotland-protests-trump-golf.html
-
-**Ben Stokes - England's colossus who is four players in one**\
-`He's taken a five-wicket haul and hit a century in this fourth Test against India - the first captain of any nation to do that in 42 years`\
-https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-century-all-rounder/
 
