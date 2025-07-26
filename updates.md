@@ -1,3 +1,11 @@
+**Inside Tadej Pogacar's domination of the 2025 Tour de France**\
+`With the world champion set to seal a fourth Tour title this weekend, this is how he ensured his supremacy in the sport's biggest race`\
+https://nytimes.com/athletic/6515975/2025/07/26/tadej-pogacar-inside-2025-tour-de-france/
+
+**Taijuan Walker making the most of fifth spot in Phillies' rotation, for now**\
+`The Phillies and Walker just need to make it until mid-August, when Aaron Nola's return seems likely.`\
+https://nytimes.com/athletic/6516617/2025/07/26/taijuan-walker-phillies-rotation-for-now/
+
 **Greenberg: White Sox give Cubs a booming wake-up call in rivalry smackdown**\
 `The Sox have won six of seven since the All-Star break, none sweeter than Friday's 12-5 victory. The Cubs failed to pull even with Astros.`\
 https://nytimes.com/athletic/6516607/2025/07/26/chicago-white-sox-embarrass-cubs-rivalry/
