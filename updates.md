@@ -1,3 +1,7 @@
+**Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son, and absentees**\
+`Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
+https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
+
 **Fulham in advanced talks to sign Reiss Nelson from Arsenal**\
 `The winger made 13 appearances for Fulham in 2024-25 before suffering a season-ending hamstring injury in December.`\
 https://nytimes.com/athletic/6497912/2025/07/26/arsenal-reiss-nelson-fulham-transfer/
