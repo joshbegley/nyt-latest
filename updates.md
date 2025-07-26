@@ -1,3 +1,7 @@
+**Venezuelan youth baseball team denied travel visas to U.S.**\
+`Cacique Mara, the Venezuelan team, was replaced by a team from Mexico after having its visa requests denied.`\
+https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-visas/
+
 **Gibbs-White signs new Forest contract until 2028**\
 `Tottenham Hotspur had previously made an approach for the 25-year-old.`\
 https://nytimes.com/athletic/6485870/2025/07/26/morgan-gibbs-white-forest-contract/

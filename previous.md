@@ -1,3 +1,7 @@
+**Venezuelan youth baseball team denied travel visas to U.S.**\
+`Cacique Mara, the Venezuelan team, was replaced by a team from Mexico after having its visa requests denied.`\
+https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-visas/
+
 **New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
 `Plus, the secondary depth chart continues to take shape.`\
 https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010307453/scotland-protests-trump-go
 **Ben Stokes - England's colossus who is four players in one**\
 `He's taken a five-wicket haul and hit a century in this fourth Test against India - the first captain of any nation to do that in 42 years`\
 https://nytimes.com/athletic/6517192/2025/07/26/ben-stokes-england-cricket-century-all-rounder/
-
-**Reusser abandons Tour de France Femmes in stage 1 after suffering with stomach bug**\
-`Reusser finished second in the Giro d’Italia earlier this month, losing out to UAE Team ADQ’s Elisa Longo Borghini by 18 seconds.`\
-https://nytimes.com/athletic/6517221/2025/07/26/marlen-reusser-tour-de-france-femmes/
 
