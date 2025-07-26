@@ -1,3 +1,7 @@
+**Jordan Watkins' summer challenge: Win over 49ers coach who doesn't love rookie WRs**\
+`The biggest note from Friday: Brock Purdy was missing for a personal matter, which gave the lion's share of repetitions to Mac Jones.`\
+https://nytimes.com/athletic/6516192/2025/07/25/49ers-jordan-watkins-training-camp/
+
 **What Red Sox rookie Marcelo Mayer's injury means for Jarren Duran's trade market**\
 `A key part of Boston's roster, Duran has garnered significant interest across the league.`\
 https://nytimes.com/athletic/6516343/2025/07/25/red-sox-marcelo-mayer-injury-jarren-duran-trade-market/
