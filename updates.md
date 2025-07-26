@@ -1,3 +1,7 @@
+**Taiwan’s Mass Recall Vote Tests Its Democracy, and China’s Nerves**\
+`An unprecedented recall vote could hand President Lai Ching-te more power by ousting legislative opponents. It could also prompt a response from China.`\
+https://nytimes.com/2025/07/25/world/asia/taiwans-recall-china.html
+
 **Yankees trade deadline: What's next after adding Ryan McMahon?**\
 `The Yankees believe they're in a great position to continue adding after filling a key hole. Here's what we're hearing they could do next.  `\
 https://nytimes.com/athletic/6516114/2025/07/25/yankees-trade-deadline-targets-ryan-mcmahon/
