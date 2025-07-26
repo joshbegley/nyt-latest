@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 8: It's time to get Zion Johnson padded snaps at center**\
+`Despite Johnson not yet playing center in pads, coach Jim Harbaugh is confident: "I’ve already seen that he can play the position."`\
+https://nytimes.com/athletic/6516698/2025/07/26/zion-johnson-chargers-training-camp/
+
 **The New York Times in Print for Saturday, July 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/26/todays-new-york-times
