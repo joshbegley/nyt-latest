@@ -1,3 +1,7 @@
+**Trump Isn’t Getting Rid of Chaos at the Border. He’s Redistributing It.**\
+`The “Opinions” round table discusses the president’s immigration policies and the emerging resistance to it.`\
+https://nytimes.com/video/opinion/100000010304205/trump-isnt-getting-rid-of-chaos-at-the-border-hes-redistributing-it.html
+
 **Gomez leaves Liverpool's pre-season tour with Achilles injury**\
 `Gomez complained of discomfort following Thursday's training session at Kai Tak Stadium.`\
 https://nytimes.com/athletic/6516801/2025/07/26/joe-gomez-liverpool-injury-update/
