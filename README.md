@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 8: It's time to get Zion Johnson padded snaps at center**\
+`Despite Johnson not yet playing center in pads, coach Jim Harbaugh is confident: "I’ve already seen that he can play the position."`\
+https://nytimes.com/athletic/6516698/2025/07/26/zion-johnson-chargers-training-camp/
+
 **The New York Times in Print for Saturday, July 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/26/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516578/2025/07/26/cubs-trade-deadline-adrian-house
 **Sean Longstaff interview: 'Leeds have a similar feeling to when Newcastle got taken over'**\
 `The midfielder spoke exclusively to The Athletic after making his move from St James' Park to Elland Road`\
 https://nytimes.com/athletic/6515448/2025/07/26/sean-longstaff-leeds-newcastle-interview/
-
-**Trump’s Trip to Scotland Echoes an Earlier Visit, When He Applauded Brexit**\
-`Before his 2016 election, President Trump correctly predicted that the forces animating Brexit would go beyond the United Kingdom. But now most Britons say Brexit was a mistake.`\
-https://nytimes.com/2025/07/26/world/europe/trump-brexit-scotland-uk.html
 
