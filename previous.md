@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, July 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/26/todays-new-york-times
+
 **Inside Tadej Pogacar's domination of the 2025 Tour de France**\
 `With the world champion set to seal a fourth Tour title this weekend, this is how he ensured his supremacy in the sport's biggest race`\
 https://nytimes.com/athletic/6515975/2025/07/26/tadej-pogacar-inside-2025-tour-de-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515448/2025/07/26/sean-longstaff-leeds-newcastle-i
 **Trump’s Trip to Scotland Echoes an Earlier Visit, When He Applauded Brexit**\
 `Before his 2016 election, President Trump correctly predicted that the forces animating Brexit would go beyond the United Kingdom. But now most Britons say Brexit was a mistake.`\
 https://nytimes.com/2025/07/26/world/europe/trump-brexit-scotland-uk.html
-
-**Connections: Sports Edition Coach: Hints for July 26, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6515225/2025/07/26/connections-sports-edition-hints-for-july-26/
 

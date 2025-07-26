@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, July 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/26/todays-new-york-times
+
 **Phillies' Taijuan Walker making the most of fifth spot in rotation, for now**\
 `The Phillies and Walker just need to make it until mid-August, when Aaron Nola's return seems likely.`\
 https://nytimes.com/athletic/6516617/2025/07/26/taijuan-walker-phillies-rotation-for-now/
