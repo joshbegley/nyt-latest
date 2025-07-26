@@ -1,3 +1,7 @@
+**Little Victories**\
+`We tend to confine our parties to milestones and cultural events, but there are countless micro-occasions worthy of commemorating.`\
+https://nytimes.com/2025/07/26/briefing/little-victories.html
+
 **Why Cowboys coach Brian Schottenheimer recently showed his angry side during practice**\
 `Brian Schottenheimer had to stop practice one day this week and he ripped into his team and warned them to not push things too far.`\
 https://nytimes.com/athletic/6516187/2025/07/26/cowboys-physical-training-camp-fights/
