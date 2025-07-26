@@ -1,3 +1,7 @@
+**Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son and absentees**\
+`Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
+https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
+
 **Yankees' Aaron Judge out vs. Phillies, undergoing tests on elbow**\
 `Judge initially hurt his elbow in Toronto on Tuesday and had difficulty throwing in Friday's game against the Phillies.`\
 https://nytimes.com/athletic/6516981/2025/07/26/aaron-judge-out-injury-yankees-phillies/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/07/26/world/europe/trump-protest-scotland.html
 `The Colombian attacker is being pursued by Bayern Munich, who had an opening offer of €67.5million rejected.`\
 https://nytimes.com/athletic/6516938/2025/07/26/luis-diaz-liverpool-future-arne-slot/
 
-**Norris claims Belgian GP pole; Hamilton exits early in qualifying shock**\
+**Norris claims Belgian GP pole as Hamilton exits early in qualifying shock**\
 `McLaren locked out the front row, as Max Verstappen and Lewis Hamilton endured difficult qualifying runs`\
 https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516880/2025/07/26/xavi-pep-guardiola-india-hoax/
 **Live Q&A: Aaron Gleeman to answer your Twins questions before the trade deadline**\
 `Twins expert Aaron Gleeman will be here Monday to answer reader questions.`\
 https://nytimes.com/athletic/6515471/2025/07/26/twins-qa-trade-deadline-aaron-gleeman/
-
-**Giant's Logan Webb not nearly sharp enough vs. Mets to stem rotation issues**\
-`The Giants are just 11-11 with Webb on the mound. If they're not careful, it could become the statistic that defines their season.`\
-https://nytimes.com/athletic/6516723/2025/07/26/giants-rotation-issues-logan-webb/
 

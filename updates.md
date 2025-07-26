@@ -1,3 +1,11 @@
+**Leeds 3-2 Paderborn: Stach's first appearance, Farke faces his son and absentees**\
+`Leeds faced Paderborn in their second behind-closed-doors pre-season friendly on Saturday afternoon`\
+https://nytimes.com/athletic/6516915/2025/07/26/leeds-united-paderborn-pre-season-result-analysis/
+
+**Norris claims Belgian GP pole as Hamilton exits early in qualifying shock**\
+`McLaren locked out the front row, as Max Verstappen and Lewis Hamilton endured difficult qualifying runs`\
+https://nytimes.com/athletic/6516931/2025/07/26/f1-belgian-gp-qualifying-result-lando-norris-lewis-hamilton/
+
 **Yankees' Aaron Judge out vs. Phillies, undergoing tests on elbow**\
 `Judge initially hurt his elbow in Toronto on Tuesday and had difficulty throwing in Friday's game against the Phillies.`\
 https://nytimes.com/athletic/6516981/2025/07/26/aaron-judge-out-injury-yankees-phillies/
