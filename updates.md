@@ -1,3 +1,15 @@
+**How England nullified Spain: The Wiegman tactics that shut down the world champions**\
+`Breaking down the approach that enabled the Lionesses to take the Euro 2025 final to a penalty shootout, which they won`\
+https://nytimes.com/athletic/6518861/2025/07/27/how-england-nullified-spain-wiegman-tactics/
+
+**Kurt Kitayama rules front 9 on way to 3M Open win, his 2nd PGA Tour victory**\
+`One day after pushing into contention with a front-nine 28, Kitayama again dominated the front with a 29 on way to win.`\
+https://nytimes.com/athletic/6518992/2025/07/27/kurt-kitayama-3m-open-pga-tour/
+
+**Weah's agent puts Juventus on blast for holding up Marseille transfer**\
+`USMNT star Tim Weah is seeking a summer transfer back to Ligue 1, but a potential move has stalled`\
+https://nytimes.com/athletic/6518986/2025/07/27/tim-weah-juventus-marseille-transfer-agent-comments/
+
 **England’s epic Euro 2025 final penalty shootout: Notes under sleeves, a retaken kick and ice-cold Kelly**\
 `England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final.`\
 https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/

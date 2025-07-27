@@ -1,3 +1,15 @@
+**How England nullified Spain: The Wiegman tactics that shut down the world champions**\
+`Breaking down the approach that enabled the Lionesses to take the Euro 2025 final to a penalty shootout, which they won`\
+https://nytimes.com/athletic/6518861/2025/07/27/how-england-nullified-spain-wiegman-tactics/
+
+**Kurt Kitayama rules front 9 on way to 3M Open win, his 2nd PGA Tour victory**\
+`One day after pushing into contention with a front-nine 28, Kitayama again dominated the front with a 29 on way to win.`\
+https://nytimes.com/athletic/6518992/2025/07/27/kurt-kitayama-3m-open-pga-tour/
+
+**Weah's agent puts Juventus on blast for holding up Marseille transfer**\
+`USMNT star Tim Weah is seeking a summer transfer back to Ligue 1, but a potential move has stalled`\
+https://nytimes.com/athletic/6518986/2025/07/27/tim-weah-juventus-marseille-transfer-agent-comments/
+
 **England’s epic Euro 2025 final penalty shootout: Notes under sleeves, a retaken kick and ice-cold Kelly**\
 `England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final.`\
 https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/27/world/africa/congo-isis-attack.html
 **Monday Briefing: Ukraine’s Other War**\
 `Also, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/27/briefing/ukraine-protest-europe-us-trade-deal.html
-
-**Red Sox closer Aroldis Chapman leaves game with back tightness**\
-`The hard-throwing lefty walked the first two batters he faced and recorded one out before exiting in the eighth inning.`\
-https://nytimes.com/athletic/6518858/2025/07/27/aroldis-chapman-leaves-game-red-sox/
-
-**Browns QB Kenny Pickett injures hamstring at practice: Reports**\
-`It is unclear how the injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
-https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
-
-**Five things we learned from the first week of Raiders training camp**\
-`What to take away from the Christian Wilkins situation, wide receivers struggling to separate and Jackson Powers-Johnson's new maturity.`\
-https://nytimes.com/athletic/6518587/2025/07/27/raiders-training-camp-christian-wilkins-jackson-powers-johnson/
 
