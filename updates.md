@@ -1,3 +1,12 @@
+**Hannah Hampton: How a goalkeeper with almost no depth perception helped England win the Euros**\
+`England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
+https://nytimes.com/athletic/6480358/2025/07/27/hannah-hampton-eyesight-vision-depth-perception/
+
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
 `Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
 `\
