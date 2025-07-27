@@ -1,3 +1,8 @@
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **England, India and a compelling Test series that is proving impossible to predict**\
 `The defiance of Washington Sundar and Ravindra Jadeja means India could draw the series at the Oval – both teams are out on their feet`\
 https://nytimes.com/athletic/6518307/2025/07/27/england-india-series-jadeja-sundar-stokes-gill/
@@ -26,15 +31,11 @@ https://nytimes.com/2025/07/27/us/politics/massie-johnson-house-epstein-files.ht
 `Yankees beat writer Chris Kirschner will answer subscribers’ questions from 1 to 1:45 p.m. ET on Monday. Questions can be submitted now.`\
 https://nytimes.com/athletic/6518483/2025/07/27/yankees-trade-deadline-questions-submit/
 
-**Thailand-Cambodia Fighting Forces Thousands to Flee**\
+**With Bombs Whizzing in Air, Thousands Flee Thailand-Cambodia Border**\
 `The conflict is one of the deadliest clashes ever between the two countries. Thirty-four people have died, and over 165,000 have been displaced.`\
 https://nytimes.com/2025/07/27/world/asia/thailand-cambodia-border-conflict-evacuees.html
 
 **Ziad Rahbani, Composer Who Defined a Tragic Era in Lebanon, Dies at 69**\
 `A son of Lebanese musical icons, Mr. Rahbani became one himself, with satirical critiques of his country’s dysfunction that melded Arab and Western music.`\
 https://nytimes.com/2025/07/27/world/middleeast/ziad-rahbani-composer-dies.html
-
-**Small Plane With 3 Aboard Crashes Off California Coast**\
-`The plane has been located, the U.S. Coast Guard said, and two people have been found unresponsive. A search for the third person is continuing.`\
-https://nytimes.com/2025/07/27/us/plane-crash-california.html
 
