@@ -1,3 +1,7 @@
+**Five takeaways from Seahawks training camp, with tensions already starting to boil**\
+`As the Seahawks prepare to put on pads, the intensity is building. Plus, an update on Sam Darnold and the offensive line so far.`\
+https://nytimes.com/athletic/6517532/2025/07/26/seahawks-training-camp-offense-defense-intensity/
+
 **Breanna Stewart exits game vs. Sparks with leg injury, will not return**\
 `Stewart played the game's first 3:27 and appeared to injure her leg running up the court in transition.`\
 https://nytimes.com/athletic/6517540/2025/07/26/liberty-breanna-stewart-leg-injury-sparks-wnba/
