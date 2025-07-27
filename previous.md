@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/27/world/europe/train-derailment-accident-germany.ht
 `Analysis of the final day of action at the 2025 Tour de France – a 132km stage finishing on the Champs-Élysées in Paris`\
 https://nytimes.com/athletic/6518344/2025/07/27/tour-de-france-stage-21-analysis/
 
-**How Oscar Piastri’s fearlessness won him the Belgian GP: 'As brave as I dared'**\
+**'As brave as I dared': How Oscar Piastri’s fearlessness won him the Belgian GP**\
 `Oscar Piastri pulled off a brave, brilliant move to overtake Norris — and it says a lot about his role in the 2025 title fight`\
 https://nytimes.com/athletic/6518495/2025/07/27/oscar-piastri-belgian-gp-f1-winning-move/
 
