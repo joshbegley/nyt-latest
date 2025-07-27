@@ -1,3 +1,11 @@
+**Steelers camp: Joey Porter, DK Metcalf battle; Jalen Elliott clears air with Aaron Rodgers**\
+`Jalen Elliott walked back his "retirement home" comment about Aaron Rodgers, who had a tough day, including an interception by Jalen Ramsey.`\
+https://nytimes.com/athletic/6517491/2025/07/26/steelers-training-camp-joey-porter-dk-metcalf/
+
+**Nigeria rallies to beat Morocco in Women's Africa Cup of Nations title game**\
+`For most of this tournament, Nigeria had been defined by fast starts, and Morocco had shown themselves to be the comeback queens.`\
+https://nytimes.com/athletic/6517492/2025/07/26/nigeria-morocco-wafcon-score-results/
+
 **Right-Wing Influencers Say Ghislaine Maxwell Is Key to Unlocking Epstein Case**\
 `Some conservative influencers have celebrated the move to approach the longtime associate of Jeffrey Epstein, but it comes with risks.`\
 https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
