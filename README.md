@@ -1,3 +1,7 @@
+**2027 Women's World Cup to remain free-to-air for fans after BBC and ITV agree rights**\
+`The partnership between ITV and BBC that has seen record audiences over the 2025 Euros will also show the upcoming World Cup.`\
+https://nytimes.com/athletic/6517950/2025/07/27/2027-womens-world-cup-free-to-air-bbc-itv-agree-rights/
+
 **Ichiro, Sabathia, Wagner, Parker, Allen to be inducted into Baseball Hall of Fame**\
 `Ichiro Suzuki, CC Sabathia and Billy Wagner and the late Dave Parker and Dick Allen will be honored. A look at their paths to the Hall. `\
 https://nytimes.com/athletic/6517022/2025/07/27/baseball-hall-of-fame-induction-day-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/business/media/the-fantastic-four-first-steps-box
 **Ralph Lauren’s Vintage Man of Mystery**\
 `At 71, Doug Bihlmaier has become a style hero to fashion-savvy social media creators.`\
 https://nytimes.com/2025/07/27/style/ralph-laurens-vintage-man-of-mystery.html
-
-**Italian Flag Colors Were Removed From a Street. Residents Rebelled.**\
-`Newton, Mass., replaced a street’s red, white and green centerline with standard yellow stripes, citing traffic safety concerns, weeks before an annual Italian American festival.`\
-https://nytimes.com/2025/07/27/us/italy-street-newton-massachusetts.html
 
