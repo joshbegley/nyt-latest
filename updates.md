@@ -1,3 +1,11 @@
+**Naomi Osaka splits with coach Patrick Mouratoglou ahead of tennis hard-court swing**\
+`Osaka's time with Mouratologou followed an up-and-down sequence of promising signs and frustrations with either injury or close-run defeats.`\
+https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-mouratoglou-coach-split/
+
+**'As brave as I dared': How Oscar Piastri’s fearlessness won him the Belgian GP**\
+`Oscar Piastri pulled off a brave, brilliant move to overtake Norris - and it says a lot about his role in the 2025 title fight`\
+https://nytimes.com/athletic/6518495/2025/07/27/oscar-piastri-belgian-gp-f1-winning-move/
+
 **Inside the Lionesses' Euro 2025 win: Wiegman's 'new England' mantra, 'hard' talks and... penalties**\
 `England retained the European Championship trophy with victory over Spain. This is the story of their triumphant tournament`\
 https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/

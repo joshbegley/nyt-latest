@@ -1,3 +1,7 @@
+**Naomi Osaka splits with coach Patrick Mouratoglou ahead of tennis hard-court swing**\
+`Osaka's time with Mouratologou followed an up-and-down sequence of promising signs and frustrations with either injury or close-run defeats.`\
+https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-mouratoglou-coach-split/
+
 **Inside the Lionesses' Euro 2025 win: Wiegman's 'new England' mantra, 'hard' talks and... penalties**\
 `England retained the European Championship trophy with victory over Spain. This is the story of their triumphant tournament`\
 https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/
@@ -27,14 +31,10 @@ https://nytimes.com/2025/07/27/world/europe/train-derailment-accident-germany.ht
 https://nytimes.com/athletic/6518344/2025/07/27/tour-de-france-stage-21-analysis/
 
 **'As brave as I dared': How Oscar Piastri’s fearlessness won him the Belgian GP**\
-`Oscar Piastri pulled off a brave, brilliant move to overtake Norris — and it says a lot about his role in the 2025 title fight`\
+`Oscar Piastri pulled off a brave, brilliant move to overtake Norris - and it says a lot about his role in the 2025 title fight`\
 https://nytimes.com/athletic/6518495/2025/07/27/oscar-piastri-belgian-gp-f1-winning-move/
 
 **England 1-1 Spain AET (3-1 on pens): Wiegman gets her calls right as Lionesses win Euro 2025**\
 `Michael Cox, Laia Cervello Herrero and Tamerra Griffin analyse the main talking points of the 2025 UEFA Women's Championship final`\
 https://nytimes.com/athletic/6518114/2025/07/27/england-1-1-spain-euro-2025-final-analysis/
-
-**Hannah Hampton: How a goalkeeper with almost no depth perception helped England win the Euros**\
-`England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
-https://nytimes.com/athletic/6480358/2025/07/27/hannah-hampton-eyesight-vision-depth-perception/
 
