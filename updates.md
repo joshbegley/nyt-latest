@@ -1,3 +1,7 @@
+**Lowetide: 5 Oilers players who could get traded early or late in 2025-26**\
+`Excluding future draft picks, who are Edmonton's five most valuable trade pieces between today and the 2026 trade deadline?`\
+https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2025/
+
 **U.S. swim team dealing with 'acute gastroenteritis' at world championships**\
 `It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
 https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
