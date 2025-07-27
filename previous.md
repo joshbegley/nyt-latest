@@ -1,3 +1,7 @@
+**Matt Shaw's recent surge won't end the Cubs' pursuit of Eugenio Suárez at the trade deadline**\
+`Since the All-Star break, Shaw has hit four of his six home runs while posting a .444 batting average.`\
+https://nytimes.com/athletic/6519056/2025/07/27/chicago-cubs-eugenio-suarez-trade-deadline-pursuit/
+
 **Steelers camp: Juan Thornhill looks to prove Browns wrong, Broderick Jones injured**\
 `The Minkah Fitzpatrick trade bumped Thornhill up the depth chart. Can he handle starter reps after a middling season in Cleveland?`\
 https://nytimes.com/athletic/6518929/2025/07/27/steelers-training-camp-juan-thornhill-broderick-jones/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6518929/2025/07/27/steelers-training-camp-juan-thor
 `Saying that journalists in the territory, like many Gazans, are facing starvation, the groups urged Israel to allow more food in.`\
 https://nytimes.com/2025/07/27/world/middleeast/gaza-starvation-reporters-israel.html
 
-**Nick Bosa has always set an example, but now he's letting 49ers' young DL hear it as well**\
+**Nick Bosa has always set an example, but now he's letting 49ers' young DL hear it**\
 `The 49ers are hoping first-round pick Mykel Williams benefits from the leadership and experience Nick Bosa is bringing to camp.`\
 https://nytimes.com/athletic/6518962/2025/07/27/49ers-training-camp-nick-bosa-mykel-williams/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518992/2025/07/27/kurt-kitayama-3m-open-pga-tour/
 **Weah's agent puts Juventus on blast for holding up Marseille transfer**\
 `USMNT star Tim Weah is seeking a summer transfer back to Ligue 1, but a potential move has stalled`\
 https://nytimes.com/athletic/6518986/2025/07/27/tim-weah-juventus-marseille-transfer-agent-comments/
-
-**England’s epic Euro 2025 final penalty shootout: Notes under sleeves, a retaken kick and ice-cold Kelly**\
-`England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final`\
-https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/
 
