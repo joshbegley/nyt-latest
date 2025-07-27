@@ -1,5 +1,5 @@
 **Browns QB Kenny Pickett injures hamstring at practice: Reports**\
-`It is unclear how injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
+`It is unclear how the injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
 https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
 
 **Five things we learned from the first week of Raiders training camp**\
