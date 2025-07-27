@@ -1,3 +1,7 @@
+**Israel Says It Has Paused Some Military Activity in Gaza as Anger Grows Over Hunger**\
+`Operations in three parts of the enclave were temporarily halted on Sunday to allow more aid to enter the territory, the Israeli military said. It was unclear if the decision would relieve the hunger crisis in Gaza.`\
+https://nytimes.com/2025/07/27/world/middleeast/israel-says-it-has-paused-some-military-activity-in-gaza-as-anger-grows-over-hunger.html
+
 **Trump is set to meet with the European Union’s top official.**\
 `By Stephen Castle`\
 https://nytimes.com/live/2025/07/27/us/trump-news/trump-is-set-to-meet-with-the-european-unions-top-official
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/opinion/1984-cia-book-ban.html
 **Sarmiento set to leave Brighton on permanent deal before end of transfer window**\
 `The Ecuadorian winger scored four goals on loan at Burnley last season as they finished second in the Championship and got promoted. `\
 https://nytimes.com/athletic/6517923/2025/07/27/brighton-jeremy-sarmiento-permanent-transfer-news/
-
-**England vs Spain Euro 2025 final: A major tournament rematch, key battles and our predictions**\
-`Another England-Spain final. Who will end Sunday's European Championship as victors?`\
-https://nytimes.com/athletic/6517672/2025/07/27/england-vs-spain-euro-2025-final-matchups-predictions/
 
