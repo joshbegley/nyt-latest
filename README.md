@@ -1,3 +1,7 @@
+**Carney: England's Michelle Agyemang has an aura about her — you know something special is coming**\
+`Former England international Karen Carney analyses what makes the teenage striker so lethal in front of goal `\
+https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-karen-carney/
+
 **The New York Times in Print for Sunday, July 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/27/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510533/2025/07/27/premier-league-transfer-signings
 **England vs Spain Euro 2025 final odds, prediction: Will World Cup rematch be a repeat?**\
 `Spain is clearly favoured in the Euro 2025 final. Will it be a repeat of the World Cup final or will England retain its European crown?`\
 https://nytimes.com/athletic/6514335/2025/07/27/england-spain-euro-2025-final-odds-prediction/
-
-**Balls in behind, beat the counter-press and set pieces: How England can beat Spain**\
-`How the defending champions can defeat the World Cup holders in the Euro 2025 final on Sunday evening`\
-https://nytimes.com/athletic/6515098/2025/07/27/england-spain-euro-2025-analysis-preview/
 

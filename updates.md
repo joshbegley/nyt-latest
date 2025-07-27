@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, July 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/27/todays-new-york-times
+
+**If I Don’t Post About My Vacation, Did It Even Happen?**\
+`I know that craving the high of posting, of all those comments and hearts, is lame, but leaving is really hard.`\
+https://nytimes.com/2025/07/27/opinion/posting-vacation-photos.html
+
 **Padres, Cardinals clear benches after unintentional hit-by-pitch**\
 `Despite warnings issued to both teams earlier in the game, umpire Lance Barrett deemed Granillo did not intentionally throw at Machado.`\
 https://nytimes.com/athletic/6517675/2025/07/27/padres-cardinals-manny-machado-jon-jay-benches/
