@@ -1,3 +1,11 @@
+**Monday Briefing: Ukraine’s Other War**\
+`Also, a U.S.-E.U. trade deal.`\
+https://nytimes.com/2025/07/27/briefing/ukraine-protest-europe-us-trade-deal.html
+
+**Red Sox closer Aroldis Chapman leaves game with back tightness**\
+`The hard-throwing lefty walked the first two batters he faced and recorded one out before exiting in the eighth inning.`\
+https://nytimes.com/athletic/6518858/2025/07/27/aroldis-chapman-leaves-game-red-sox/
+
 **Red Sox closer Aroldis Chapman leaves game in eighth inning**\
 `The hard-throwing lefty walked the first two batters he faced and recorded one out before exiting in the eighth inning.`\
 https://nytimes.com/athletic/6518858/2025/07/27/aroldis-chapman-leaves-game-red-sox/
