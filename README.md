@@ -1,3 +1,7 @@
+**Chelsea youth coach Coelho set to leave club to join Strasbourg**\
+`Coelho was hired by Chelsea to lead their development squad in July 2024 after a season as under-23 coach at Estoril.`\
+https://nytimes.com/athletic/6518295/2025/07/27/chelsea-news-filipe-coelho/
+
 **Belgian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Belgian Grand Prix?`\
 https://nytimes.com/athletic/6518385/2025/07/27/belgian-grand-prix-f1-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/arts/raymond-saunders-dead.html
 **Record deals, Eriksen approach, clearout needed too: Wrexham's busy window**\
 `Wrexham are making considerable moves in the transfer market - but they also have 30 players. They now need players to leave too `\
 https://nytimes.com/athletic/6516777/2025/07/27/wrexham-transfers-records-eriksen-parkinson/
-
-**Eric Kim’s Five-Star Gochujang-Glazed Eggplant**\
-`“The sauce was amazing. I love, love, love the eggplant, it melts in your mouth. But I would eat that sauce on cardboard.”`\
-https://nytimes.com/2025/07/27/dining/eric-kims-five-star-gochujang-glazed-eggplant.html
 
