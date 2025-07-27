@@ -1,3 +1,11 @@
+**Tour de France Femmes: Mavi Garcia holds on to win stage two as Le Court moves into yellow jersey**\
+`See the results from Stage 2 here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6518139/2025/07/27/tour-de-france-femmes-stage-two-garcia-le-court/
+
+**William J. Rutter, Biotech Pioneer of Gene-Based Medicine, Dies at 97**\
+`His company, the Chiron Corporation, contributed important scientific discoveries toward treatments for H.I.V., hepatitis B, diabetes and more.`\
+https://nytimes.com/2025/07/27/science/william-j-rutter-dead.html
+
 **Dozens of Wildfires Burn in Greece and Turkey as Temperatures Soar**\
 `Firefighters are battling several blazes, with officials warning that extreme heat will pose a risk of more in the coming days.`\
 https://nytimes.com/2025/07/27/world/europe/greek-wildfires-athens-evacuations.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2
 `It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
 https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
 
-**Liverpool have spent close to £300m this summer - but centre-back depth still needs addressing**\
+**Liverpool have spent close to £300m this summer, but centre-back depth still needs addressing**\
 `Having sold Jarell Quansah, Slot's squad is short of centre-backs. Crystal Palace and England defender Marc Guehi has been discussed `\
 https://nytimes.com/athletic/6518018/2025/07/27/liverpool-centre-back-transfers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6517833/2025/07/27/chargers-training-camp-zion-john
 **A bases-loaded bunt attempt says everything about the Giants' trade deadline crossroads**\
 `Lee did something that major-league hitters almost never do. He chose to minimize the damage he could inflict.`\
 https://nytimes.com/athletic/6517910/2025/07/27/giants-lose-mets-trade-deadline/
-
-**Being Creative With A.I., for Better or Worse**\
-`Readers respond to a guest essay by Meghan O’Rourke about artificial intelligence. Also: Port and privacy; the G.O.P. vs. NPR.`\
-https://nytimes.com/2025/07/27/opinion/ai-schools.html
-
-**The Raw Power of Repentance**\
-`“The Bear” asks the question, how do we live together when someone always seems to be going too far?`\
-https://nytimes.com/2025/07/27/opinion/the-bear-carmy-jeremy-allen-white.html
 
