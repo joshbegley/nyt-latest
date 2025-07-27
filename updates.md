@@ -1,3 +1,7 @@
+**Cowboys sign TE Jake Ferguson to 4-year, $52 million extension**\
+`Ferguson, Dallas’ fourth-round pick in 2022, was entering the final year of his rookie contract.`\
+https://nytimes.com/athletic/6518347/2025/07/27/cowboys-jake-ferguson-contract-extension/
+
 **Oscar Piastri wins as Lewis Hamilton shines after chaotic start**\
 `Oscar Piastri wins the Belgian Grand Prix as McLaren secures a 1-2 finish`\
 https://nytimes.com/athletic/6518101/2025/07/27/belgian-grand-prix-briefing-oscar-piastri-wins/
