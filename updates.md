@@ -1,3 +1,11 @@
+**Right-Wing Influencers Say Ghislaine Maxwell Is Key to Unlocking Epstein Case**\
+`Some conservative influencers have celebrated the move to approach the longtime associate of Jeffrey Epstein, but it comes with risks.`\
+https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
+
+**11 People Are Injured in Stabbing Spree at a Michigan Walmart, Officials Say**\
+`One person was in custody after what the authorities said was a random attack at a store near Traverse City, Mich.`\
+https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
+
 **What's trending in the right direction for hot Phillies offense**\
 `Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
 https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/

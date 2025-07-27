@@ -1,3 +1,7 @@
+**Nigeria rallies to beat Morocco in Women's Africa Cup of Nations title game**\
+`For most of this tournament, Nigeria had been defined by fast starts, and Morocco had shown themselves to be the comeback queens.`\
+https://nytimes.com/athletic/6517492/2025/07/26/nigeria-morocco-wafcon-score-results/
+
 **Right-Wing Influencers Say Ghislaine Maxwell Is Key to Unlocking Epstein Case**\
 `Some conservative influencers have celebrated the move to approach the longtime associate of Jeffrey Epstein, but it comes with risks.`\
 https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
 **Rosenthal: What I'm hearing about D-Backs' and Rays' deadline plans, Cedric Mullins, more**\
 `Plus more on the Rangers' priorities, Twins' willingness to deal pitching and how the third NL wild-card spot could affect the deadline.`\
 https://nytimes.com/athletic/6517420/2025/07/26/trade-deadline-mlb-diamondbacks-rays/
-
-**Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
-`As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
-https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
 

@@ -1,3 +1,7 @@
+**Right-Wing Influencers Say Ghislaine Maxwell Is Key to Unlocking Epstein Case**\
+`Some conservative influencers have celebrated the move to approach the longtime associate of Jeffrey Epstein, but it comes with risks.`\
+https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
+
 **What's trending in the right direction for hot Phillies offense**\
 `Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
 https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/
@@ -22,8 +26,8 @@ https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
 `"I feel strong and am excited to be home. … I'm looking forward to recharging and preparing for the upcoming season."`\
 https://nytimes.com/athletic/6517391/2025/07/26/kansas-bill-self-released-from-hospital/
 
-**11 People Are Injured in Stabbing at a Michigan Walmart, Officials Say**\
-`One person was in custody, the State Police said on social media. It was not clear what set off the attack.`\
+**11 People Are Injured in Stabbing Spree at a Michigan Walmart, Officials Say**\
+`One person was in custody after what the authorities said was a random attack at a store near Traverse City, Mich.`\
 https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
 
 **Rosenthal: What I'm hearing about D-Backs' and Rays' deadline plans, Cedric Mullins, more**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517420/2025/07/26/trade-deadline-mlb-diamondbacks-
 **Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
 `As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
 https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
-
-**Arranged Marriages**\
-`John Kugelman’s latest crossword creation belongs in a museum.`\
-https://nytimes.com/2025/07/26/crosswords/daily-puzzle-2025-07-27.html
 
