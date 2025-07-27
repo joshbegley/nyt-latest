@@ -1,3 +1,15 @@
+**Thailand-Cambodia Fighting Forces Thousands to Flee**\
+`The conflict is one of the deadliest clashes ever between the two countries. Thirty-four people have died, and over 165,000 have been displaced.`\
+https://nytimes.com/2025/07/27/world/asia/thailand-cambodia-border-conflict-evacuees.html
+
+**Ziad Rahbani, Composer Who Defined a Tragic Era in Lebanon, Dies at 69**\
+`A son of Lebanese musical icons, Mr. Rahbani became one himself, with satirical critiques of his country’s dysfunction that melded Arab and Western music.`\
+https://nytimes.com/2025/07/27/world/middleeast/ziad-rahbani-composer-dies.html
+
+**Small Plane With 3 Aboard Crashes Off California Coast**\
+`The plane has been located, the U.S. Coast Guard said, and two people have been found unresponsive. A search for the third person is continuing.`\
+https://nytimes.com/2025/07/27/us/plane-crash-california.html
+
 **Dolphins, Minkah Fitzpatrick agree to revised deal including $16 million signing bonus**\
 `The revised deal includes a $16.245 million signing bonus.`\
 https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revised-contract/

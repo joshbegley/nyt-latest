@@ -1,3 +1,15 @@
+**Thailand-Cambodia Fighting Forces Thousands to Flee**\
+`The conflict is one of the deadliest clashes ever between the two countries. Thirty-four people have died, and over 165,000 have been displaced.`\
+https://nytimes.com/2025/07/27/world/asia/thailand-cambodia-border-conflict-evacuees.html
+
+**Ziad Rahbani, Composer Who Defined a Tragic Era in Lebanon, Dies at 69**\
+`A son of Lebanese musical icons, Mr. Rahbani became one himself, with satirical critiques of his country’s dysfunction that melded Arab and Western music.`\
+https://nytimes.com/2025/07/27/world/middleeast/ziad-rahbani-composer-dies.html
+
+**Small Plane With 3 Aboard Crashes Off California Coast**\
+`The plane has been located, the U.S. Coast Guard said, and two people have been found unresponsive. A search for the third person is continuing.`\
+https://nytimes.com/2025/07/27/us/plane-crash-california.html
+
 **Dolphins, Minkah Fitzpatrick agree to revised deal including $16 million signing bonus**\
 `The revised deal includes a $16.245 million signing bonus.`\
 https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revised-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6518295/2025/07/27/chelsea-news-filipe-coelho/
 **Belgian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Belgian Grand Prix?`\
 https://nytimes.com/athletic/6518385/2025/07/27/belgian-grand-prix-f1-mailbag/
-
-**Cowboys sign TE Jake Ferguson to 4-year, $52 million extension**\
-`Ferguson, Dallas’ fourth-round pick in 2022, was entering the final year of his rookie contract.`\
-https://nytimes.com/athletic/6518347/2025/07/27/cowboys-jake-ferguson-contract-extension/
-
-**Oscar Piastri wins as Lewis Hamilton shines after chaotic start**\
-`Oscar Piastri wins the Belgian Grand Prix as McLaren secures a 1-2 finish`\
-https://nytimes.com/athletic/6518101/2025/07/27/belgian-grand-prix-briefing-oscar-piastri-wins/
-
-**Arsenal 3 Newcastle 2: Elanga impresses, Osula stands in for Isak (again), Botman concern**\
-`Newcastle's latest pre-season defeat at least brought some positives. There was no Isak again but Elanga is off the mark `\
-https://nytimes.com/athletic/6518019/2025/07/27/newcastle-isak-elanga-osula-botman/
 
