@@ -1,3 +1,11 @@
+**Being Creative With A.I., for Better or Worse**\
+`Readers respond to a guest essay by Meghan O’Rourke about artificial intelligence. Also: Port and privacy; the G.O.P. vs. NPR.`\
+https://nytimes.com/2025/07/27/opinion/ai-schools.html
+
+**The Raw Power of Repentance**\
+`“The Bear” asks the question, how do we live together when someone always seems to be going too far?`\
+https://nytimes.com/2025/07/27/opinion/the-bear-carmy-jeremy-allen-white.html
+
 **Terry McLaurin reports to Commanders camp, still no contract extension**\
 `The 29-year-old receiver has yet to receive the contract extension he wants, but McLaurin reported to Commanders training camp on Saturday.`\
 https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commanders-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/27/us/trump-news/trump-is-set-to-meet-with-the-
 **Trump Administration Live Updates: President to Meet With Top E.U. Official as Threat of Trade War Looms**\
 ``\
 https://nytimes.com/live/2025/07/27/us/trump-news
-
-**Is Morocco's plethora of tournament hosting duties helping its investment or stalling others'?**\
-`Morocco has invested millions in its teams, but with another loss in the WAFCON final, is the return on investment at risk?`\
-https://nytimes.com/athletic/6517600/2025/07/27/morocco-wafcon-finals-nigeria-host/
-
-**Prospect Sam Shaw one step closer to becoming next Canadian-born Blue Jay**\
-`Shaw grew up watching the Toronto Blue Jays’ High-A affiliate and now suits up for the team he cheered on.`\
-https://nytimes.com/athletic/6517296/2025/07/27/sam-shaw-toronto-blue-jays/
 

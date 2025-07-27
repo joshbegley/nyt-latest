@@ -1,3 +1,7 @@
+**A bases-loaded bunt attempt says everything about the Giants' trade deadline crossroads**\
+`Lee did something that major-league hitters almost never do. He chose to minimize the damage he could inflict.`\
+https://nytimes.com/athletic/6517910/2025/07/27/giants-lose-mets-trade-deadline/
+
 **Being Creative With A.I., for Better or Worse**\
 `Readers respond to a guest essay by Meghan O’Rourke about artificial intelligence. Also: Port and privacy; the G.O.P. vs. NPR.`\
 https://nytimes.com/2025/07/27/opinion/ai-schools.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/27/opinion/ai-schools.html
 `“The Bear” asks the question, how do we live together when someone always seems to be going too far?`\
 https://nytimes.com/2025/07/27/opinion/the-bear-carmy-jeremy-allen-white.html
 
-**Terry McLaurin reports to Commanders camp, still no contract extension**\
+**Terry McLaurin reports to Commanders camp without contract extension**\
 `The 29-year-old receiver has yet to receive the contract extension he wants, but McLaurin reported to Commanders training camp on Saturday.`\
 https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commanders-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-aid-hunger.html
 **Trump is set to meet with the European Union’s top official.**\
 `By Stephen Castle`\
 https://nytimes.com/live/2025/07/27/us/trump-news/trump-is-set-to-meet-with-the-european-unions-top-official
-
-**Trump Administration Live Updates: President to Meet With Top E.U. Official as Threat of Trade War Looms**\
-``\
-https://nytimes.com/live/2025/07/27/us/trump-news
 
