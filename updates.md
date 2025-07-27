@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
 
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **With Bombs Whizzing in Air, Thousands Flee Thailand-Cambodia Border**\
 `The conflict is one of the deadliest clashes ever between the two countries. Thirty-four people have died, and over 165,000 have been displaced.`\
 https://nytimes.com/2025/07/27/world/asia/thailand-cambodia-border-conflict-evacuees.html

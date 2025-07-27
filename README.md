@@ -1,3 +1,7 @@
+**Hannah Hampton: How a goalkeeper with almost no depth perception helped England win the Euros**\
+`England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
+https://nytimes.com/athletic/6480358/2025/07/27/hannah-hampton-eyesight-vision-depth-perception/
+
 **Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
 `Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6518483/2025/07/27/yankees-trade-deadline-questions
 **With Bombs Whizzing in Air, Thousands Flee Thailand-Cambodia Border**\
 `The conflict is one of the deadliest clashes ever between the two countries. Thirty-four people have died, and over 165,000 have been displaced.`\
 https://nytimes.com/2025/07/27/world/asia/thailand-cambodia-border-conflict-evacuees.html
-
-**Ziad Rahbani, Composer Who Defined a Tragic Era in Lebanon, Dies at 69**\
-`A son of Lebanese musical icons, Mr. Rahbani became one himself, with satirical critiques of his country’s dysfunction that melded Arab and Western music.`\
-https://nytimes.com/2025/07/27/world/middleeast/ziad-rahbani-composer-dies.html
 
