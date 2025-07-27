@@ -1,3 +1,15 @@
+**Tour de France Femmes: Mavi Garcia holds on to win stage two as Le Court moves into yellow jersey**\
+`See the results from Stage 2 here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6518139/2025/07/27/tour-de-france-femmes-stage-two-garcia-le-court/
+
+**William J. Rutter, Biotech Pioneer of Gene-Based Medicine, Dies at 97**\
+`His company, the Chiron Corporation, contributed important scientific discoveries toward treatments for H.I.V., hepatitis B, diabetes and more.`\
+https://nytimes.com/2025/07/27/science/william-j-rutter-dead.html
+
+**Liverpool have spent close to £300m this summer, but centre-back depth still needs addressing**\
+`Having sold Jarell Quansah, Slot's squad is short of centre-backs. Crystal Palace and England defender Marc Guehi has been discussed `\
+https://nytimes.com/athletic/6518018/2025/07/27/liverpool-centre-back-transfers/
+
 **Dozens of Wildfires Burn in Greece and Turkey as Temperatures Soar**\
 `Firefighters are battling several blazes, with officials warning that extreme heat will pose a risk of more in the coming days.`\
 https://nytimes.com/2025/07/27/world/europe/greek-wildfires-athens-evacuations.html
