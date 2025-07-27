@@ -1,3 +1,11 @@
+**Why adding a top set-up reliever at trade deadline still makes sense for Mets**\
+`The Mets could use an expert high-leverage reliever to set up Edwin Díaz, but the price will be high. `\
+https://nytimes.com/athletic/6517618/2025/07/26/mets-trade-deadline-bullpen/
+
+**Dodgers' bullpen needs deadline upgrades. They're also expecting internal improvement**\
+`"We have enough talent right now to be better in the 'pen," manager Dave Roberts said this weekend.`\
+https://nytimes.com/athletic/6517659/2025/07/26/dodgers-bullpen-trade-deadline-upgrades/
+
 **Thailand and Cambodia Trade Fire Despite Cease-Fire Promises**\
 `President Trump said on Saturday that both countries had agreed to a halt in the fighting. But on Sunday morning, skirmishes erupted once more.`\
 https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-conflict.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6517532/2025/07/26/seahawks-training-camp-offense-d
 **Breanna Stewart exits game vs. Sparks with leg injury, will not return**\
 `Stewart played the game's first 3:27 and appeared to injure her leg running up the court in transition.`\
 https://nytimes.com/athletic/6517540/2025/07/26/liberty-breanna-stewart-leg-injury-sparks-wnba/
-
-**Steelers camp: Joey Porter, DK Metcalf battle; DeShon Elliott clears air with Aaron Rodgers**\
-`DeShon Elliott walked back his "retirement home" comment about Rodgers, who had a tough day, including an interception by Jalen Ramsey.`\
-https://nytimes.com/athletic/6517491/2025/07/26/steelers-training-camp-joey-porter-dk-metcalf/
-
-**Nigeria rallies to beat Morocco in Women's Africa Cup of Nations title game**\
-`For most of this tournament, Nigeria had been defined by fast starts, and Morocco had shown themselves to be the comeback queens.`\
-https://nytimes.com/athletic/6517492/2025/07/26/nigeria-morocco-wafcon-score-results/
 

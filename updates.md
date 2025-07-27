@@ -1,3 +1,11 @@
+**Why adding a top set-up reliever at trade deadline still makes sense for Mets**\
+`The Mets could use an expert high-leverage reliever to set up Edwin Díaz, but the price will be high. `\
+https://nytimes.com/athletic/6517618/2025/07/26/mets-trade-deadline-bullpen/
+
+**Dodgers' bullpen needs deadline upgrades. They're also expecting internal improvement**\
+`"We have enough talent right now to be better in the 'pen," manager Dave Roberts said this weekend.`\
+https://nytimes.com/athletic/6517659/2025/07/26/dodgers-bullpen-trade-deadline-upgrades/
+
 **Thailand and Cambodia Trade Fire Despite Cease-Fire Promises**\
 `President Trump said on Saturday that both countries had agreed to a halt in the fighting. But on Sunday morning, skirmishes erupted once more.`\
 https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-conflict.html
