@@ -1,3 +1,7 @@
+**Israel Intercepts Gaza-Bound Ship of Activists and Aid**\
+`It was at least the third vessel blocked this year while challenging Israel’s naval blockade and seeking to deliver supplies by sea to a population facing rising starvation.`\
+https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-ship.html
+
 **Smoke From Canadian Wildfires Wafts Over New York City**\
 `Officials warned young children and those with respiratory illnesses to take precautions. For weeks, smoke from Canadian wildfires has been drifting across the border.`\
 https://nytimes.com/2025/07/27/nyregion/new-york-air-quality-canada-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-
 **The New York Times in Print for Sunday, July 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/27/todays-new-york-times
-
-**If I Don’t Post About My Vacation, Did It Even Happen?**\
-`I know that craving the high of posting, of all those comments and hearts, is lame, but leaving is really hard.`\
-https://nytimes.com/2025/07/27/opinion/posting-vacation-photos.html
 

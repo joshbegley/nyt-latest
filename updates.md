@@ -1,3 +1,7 @@
+**Israel Intercepts Gaza-Bound Ship of Activists and Aid**\
+`It was at least the third vessel blocked this year while challenging Israel’s naval blockade and seeking to deliver supplies by sea to a population facing rising starvation.`\
+https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-ship.html
+
 **Carney: Agyemang has an aura about her - you know something special is coming**\
 `Former England international Karen Carney analyses what makes the teenage striker so lethal in front of goal `\
 https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-karen-carney/
