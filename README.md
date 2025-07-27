@@ -1,3 +1,7 @@
+**Five takeaways from Seahawks training camp, with tensions already starting to boil**\
+`As the Seahawks prepare to put on pads, the intensity is building. Plus, an update on Sam Darnold and the offensive line so far.`\
+https://nytimes.com/athletic/6517532/2025/07/26/seahawks-training-camp-offense-defense-intensity/
+
 **Breanna Stewart exits game vs. Sparks with leg injury, will not return**\
 `Stewart played the game's first 3:27 and appeared to injure her leg running up the court in transition.`\
 https://nytimes.com/athletic/6517540/2025/07/26/liberty-breanna-stewart-leg-injury-sparks-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517333/2025/07/26/nick-kurtz-four-home-runs-parent
 **Illinois Man Convicted in Killing of Palestinian American Boy Dies in Custody**\
 `Joseph Czuba, who was convicted of killing 6-year-old Wadee Alfayoumi in 2023, died two months after a judge sentenced him to 53 years in prison. He was 73.`\
 https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
-
-**Kansas coach Bill Self released from hospital after undergoing heart procedure**\
-`"I feel strong and am excited to be home. … I'm looking forward to recharging and preparing for the upcoming season."`\
-https://nytimes.com/athletic/6517391/2025/07/26/kansas-bill-self-released-from-hospital/
 
