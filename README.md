@@ -1,3 +1,7 @@
+**Browns QB Kenny Pickett injures hamstring at practice: Reports**\
+`It is unclear how injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
+https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
+
 **5 things we learned from the first week of Raiders training camp**\
 `What to take away from the Christian Wilkins situation, wide receivers struggling to separate and Jackson Powers-Johnson's new maturity.`\
 https://nytimes.com/athletic/6518587/2025/07/27/raiders-training-camp-christian-wilkins-jackson-powers-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010308057/american-airlines-fire-denver.html
 **Man Faces Terrorism Charge in Mass Stabbing at a Michigan Walmart**\
 `The authorities on Sunday said that a motive for the attack, which left 11 people injured, remained unknown. Citizens, including one who was armed, helped to apprehend the suspect, officials said.`\
 https://nytimes.com/2025/07/27/us/walmart-stabbing-traverse-city-charges.html
-
-**Bills Day 4 observations: WR injuries piling up, while backup QB battle intensifies**\
-`Tyrell Shavers left practice on a cart with an ankle injury Sunday, adding to the Bills' concerns at the position.`\
-https://nytimes.com/athletic/6518579/2025/07/27/bills-training-camp-receiver-injuries/
 
