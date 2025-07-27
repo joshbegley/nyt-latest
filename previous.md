@@ -1,3 +1,11 @@
+**England, India and a compelling Test series that is proving impossible to predict**\
+`The defiance of Washington Sundar and Ravindra Jadeja means India could draw the series at the Oval – both teams are out on their feet`\
+https://nytimes.com/athletic/6518307/2025/07/27/england-india-series-jadeja-sundar-stokes-gill/
+
+**Passengers Evacuate Smoky Plane on Emergency Chute at Denver Airport**\
+`A small fire in the brake system just ahead of the jet’s takeoff prompted the evacuation of 173 passengers and six crew members, the authorities said.`\
+https://nytimes.com/2025/07/27/us/american-airlines-denver-flight.html
+
 **Chargers, OT Rashawn Slater agree to 4-year, $114 million extension: Source**\
 `Deal includes a record $92 million in guaranteed money and makes Slater the highest-paid offensive lineman in NFL history.`\
 https://nytimes.com/athletic/6440626/2025/07/27/chargers-rashawn-slater-nfl-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/27/world/middleeast/ziad-rahbani-composer-dies.html
 **Small Plane With 3 Aboard Crashes Off California Coast**\
 `The plane has been located, the U.S. Coast Guard said, and two people have been found unresponsive. A search for the third person is continuing.`\
 https://nytimes.com/2025/07/27/us/plane-crash-california.html
-
-**Dolphins, Minkah Fitzpatrick agree to revised deal including $16 million signing bonus**\
-`The revised deal includes a $16.245 million signing bonus.`\
-https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revised-contract/
-
-**Live trade deadline Q&A with Astros writer Chandler Rome on Monday at noon CT**\
-`Submit your questions about what Houston might do at the deadline in a live chat.`\
-https://nytimes.com/athletic/6517557/2025/07/27/astros-mlb-trade-deadline-live-chat-chandler-rome/
 

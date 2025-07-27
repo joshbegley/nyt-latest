@@ -1,3 +1,11 @@
+**England, India and a compelling Test series that is proving impossible to predict**\
+`The defiance of Washington Sundar and Ravindra Jadeja means India could draw the series at the Oval – both teams are out on their feet`\
+https://nytimes.com/athletic/6518307/2025/07/27/england-india-series-jadeja-sundar-stokes-gill/
+
+**Passengers Evacuate Smoky Plane on Emergency Chute at Denver Airport**\
+`A small fire in the brake system just ahead of the jet’s takeoff prompted the evacuation of 173 passengers and six crew members, the authorities said.`\
+https://nytimes.com/2025/07/27/us/american-airlines-denver-flight.html
+
 **Chargers, OT Rashawn Slater agree to 4-year, $114 million extension: Source**\
 `Deal includes a record $92 million in guaranteed money and makes Slater the highest-paid offensive lineman in NFL history.`\
 https://nytimes.com/athletic/6440626/2025/07/27/chargers-rashawn-slater-nfl-contract-extension/
