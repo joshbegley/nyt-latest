@@ -2,7 +2,7 @@
 `England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final.`\
 https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/
 
-**Packers training camp: Matt LaFleur wants Nate Hobbs to scale back and 9 more observations**\
+**Packers training camp: Matt LaFleur needs Nate Hobbs to dial it down and 9 more observations**\
 `Hobbs' physicality is what attracted him to the Packers in free agency, but LaFleur would rather he not be so physical in training camp.`\
 https://nytimes.com/athletic/6518898/2025/07/27/packers-matt-lafleur-nate-hobbs/
 
