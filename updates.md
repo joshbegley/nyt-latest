@@ -1,3 +1,7 @@
+**Red Sox closer Aroldis Chapman leaves game in eighth inning**\
+`The hard-throwing lefty walked the first two batters he faced and recorded one out before exiting in the eighth inning.`\
+https://nytimes.com/athletic/6518858/2025/07/27/aroldis-chapman-leaves-game-red-sox/
+
 **Browns QB Kenny Pickett injures hamstring at practice: Reports**\
 `It is unclear how the injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
 https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
