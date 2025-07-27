@@ -1,3 +1,7 @@
+**O'Connor: CC Sabathia’s biggest Yankees win was healing Derek Jeter-Alex Rodriguez divide**\
+`On the day of Sabathia's Hall fo Fame induction, it's worth remembering the most valuable personality on Yankees' 2009 championship team.`\
+https://nytimes.com/athletic/6518997/2025/07/27/cc-sabathia-hall-of-fame-yankees-derek-jeter-alex-rodriguez/
+
 **Dustin May's uneven season continues in critical start just ahead of trade deadline**\
 `May had a lead when the fifth inning began and a chance to rewrite the story of his season. Instead, it was more of the same.`\
 https://nytimes.com/athletic/6519019/2025/07/27/dustin-may-dodgers-trade-deadline/

@@ -1,3 +1,7 @@
+**O'Connor: CC Sabathia’s biggest Yankees win was healing Derek Jeter-Alex Rodriguez divide**\
+`On the day of Sabathia's Hall fo Fame induction, it's worth remembering the most valuable personality on Yankees' 2009 championship team.`\
+https://nytimes.com/athletic/6518997/2025/07/27/cc-sabathia-hall-of-fame-yankees-derek-jeter-alex-rodriguez/
+
 **Dustin May's uneven season continues in critical start just ahead of trade deadline**\
 `May had a lead when the fifth inning began and a chance to rewrite the story of his season. Instead, it was more of the same.`\
 https://nytimes.com/athletic/6519019/2025/07/27/dustin-may-dodgers-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/world/europe/england-women-soccer-championship.ht
 **Braves acquire Erick Fedde from Cardinals to reinforce pitching staff**\
 `The 32-year-old right-hander went 3-10 with a 5.22 ERA over 20 games with the Cardinals prior to being DFA'd.`\
 https://nytimes.com/athletic/6519027/2025/07/27/atlanta-braves-erick-fedde-acquisition/
-
-**How England nullified Spain: The Wiegman tactics that shut down the world champions**\
-`Breaking down the approach that enabled the Lionesses to take the Euro 2025 final to a penalty shootout, which they won`\
-https://nytimes.com/athletic/6518861/2025/07/27/how-england-nullified-spain-wiegman-tactics/
 
