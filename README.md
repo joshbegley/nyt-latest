@@ -1,3 +1,7 @@
+**Why the end of free-to-air Tour de France coverage in the UK is a concerning moment for cycling**\
+`Easy access to the sport's biggest race is vital for inspiring new generations of riders - but it is about to be scrapped`\
+https://nytimes.com/athletic/6516755/2025/07/27/tour-de-france-uk-television/
+
 **The issues Frank has to solve in pre-season - especially with Gibbs-White signing new Forest deal**\
 `Tottenham drew friendlies with two third-division sides in a single afternoon - then learnt key target is staying at the City Ground`\
 https://nytimes.com/athletic/6517268/2025/07/27/tottenham-frank-pre-season-midfield-gibbs-white/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515446/2025/07/27/connections-sports-edition-hints
 **Corrections: July 27, 2025**\
 `No corrections appeared in print on Sunday, July 27, 2025.`\
 https://nytimes.com/2025/07/27/pageoneplus/corrections-july-27-2025.html
-
-**Why adding a top set-up reliever at trade deadline still makes sense for Mets**\
-`The Mets could use an expert high-leverage reliever to set up Edwin Díaz, but the price will be high. `\
-https://nytimes.com/athletic/6517618/2025/07/26/mets-trade-deadline-bullpen/
 
