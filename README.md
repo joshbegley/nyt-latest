@@ -1,3 +1,7 @@
+**Chargers, OT Rashawn Slater agree to 4-year, $114 million extension: Source**\
+`Deal includes a record $92 million in guaranteed money and makes Slater the highest-paid offensive lineman in NFL history.`\
+https://nytimes.com/athletic/6440626/2025/07/27/chargers-rashawn-slater-nfl-contract-extension/
+
 **Astros GM Dana Brown says Isaac Paredes' injury is 'more severe than we projected'**\
 `Houston's All-Star third baseman injured his right hamstring on July 19 and could face an extended absence: "It's tough to be optimistic."`\
 https://nytimes.com/athletic/6518486/2025/07/27/isaac-paredes-injury-astros-dana-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revi
 **Live trade deadline Q&A with Astros writer Chandler Rome on Monday at noon CT**\
 `Submit your questions about what Houston might do at the deadline in a live chat.`\
 https://nytimes.com/athletic/6517557/2025/07/27/astros-mlb-trade-deadline-live-chat-chandler-rome/
-
-**Joan Anderson, Unsung Heroine of Hula Hoop History, Dies at 101**\
-`Because of a deal made on a handshake in a parking lot, she was long left out of a famous toy’s story. When she was 94, a documentary changed that.`\
-https://nytimes.com/2025/07/27/business/joan-anderson-dead.html
 
