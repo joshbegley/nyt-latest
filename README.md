@@ -1,3 +1,7 @@
+**What we’re hearing about the Cubs' pitching pursuits as the trade deadline nears**\
+`Between the blowout losses, sloppy defense and creaky pitching staff, help should be on the way for the Cubs. `\
+https://nytimes.com/athletic/6517649/2025/07/26/chicago-cubs-trade-deadline-pitching-developments/
+
 **Yankees bolster depth by adding Amed Rosario from Nationals for Clayton Beeter, prospect**\
 `The Yankees continue to add to their infield, acquiring Rosario a day after trading for third baseman Ryan McMahon.`\
 https://nytimes.com/athletic/6517633/2025/07/26/yankees-amed-rosario-trade-nationals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
 **What's trending in the right direction for hot Phillies offense**\
 `Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
 https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/
-
-**Why Yankees likely won't call up Spencer Jones with Aaron Judge injured**\
-`Spencer Jones has dominated since his June 27 promotion, hitting .400 with 13 home runs, including a three-homer game, in 19 Triple-A games.`\
-https://nytimes.com/athletic/6517463/2025/07/26/yankees-aaron-judge-spencer-jones/
 

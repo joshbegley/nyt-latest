@@ -1,3 +1,7 @@
+**Yankees bolster depth by adding Amed Rosario from Nationals for Clayton Beeter, prospect**\
+`The Yankees continue to add to their infield, acquiring Rosario a day after trading for third baseman Ryan McMahon.`\
+https://nytimes.com/athletic/6517633/2025/07/26/yankees-amed-rosario-trade-nationals/
+
 **Austin Hill given reckless driving penalty for crash at Indianapolis**\
 `The incident occurred during the closing laps when Almirola and Hill were racing for position inside the top 10 when Almirola got into Hill’`\
 https://nytimes.com/athletic/6517569/2025/07/26/austin-hill-reckless-driving-penalty-nascar/
