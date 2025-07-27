@@ -1,3 +1,7 @@
+**Tom Lehrer, Musical Satirist With a Dark Streak, Dies at 97**\
+`A mathematician by training, he acquired a devoted following with songs that set sardonic lyrics to music that was often maddeningly cheerful.`\
+https://nytimes.com/2025/07/27/arts/music/tom-lehrer-dead.html
+
 **Chelsea youth coach Coelho set to leave club to join Strasbourg**\
 `Coelho was hired by Chelsea to lead their development squad in July 2024 after a season as under-23 coach at Estoril.`\
 https://nytimes.com/athletic/6518295/2025/07/27/chelsea-news-filipe-coelho/

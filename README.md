@@ -1,3 +1,7 @@
+**Bulls extend head coach Billy Donovan: Source**\
+`Donovan, a member of the Naismith Basketball Hall of Fame 2025 induction class, will enter his sixth season at the helm.`\
+https://nytimes.com/athletic/6518394/2025/07/27/bulls-billy-donovan-extension/
+
 **Tom Lehrer, Musical Satirist With a Dark Streak, Dies at 97**\
 `A mathematician by training, he acquired a devoted following with songs that set sardonic lyrics to music that was often maddeningly cheerful.`\
 https://nytimes.com/2025/07/27/arts/music/tom-lehrer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518134/2025/07/27/arsenal-newcastle-briefing-singa
 **5 Podcasts That Illustrate the Ungraspable Nature of Justice**\
 `How a stew of racism, law enforcement misconduct and bureaucratic incompetence led to wrongful convictions on both sides of the Atlantic.`\
 https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
-
-**Raymond Saunders, Painter Who Rejected Racial Pigeonholes, Dies at 90**\
-`Widely admired if long underrecognized for his collage-based art, he died only days after the closing of his first retrospective at a major museum, in his native Pittsburgh.`\
-https://nytimes.com/2025/07/27/arts/raymond-saunders-dead.html
 
