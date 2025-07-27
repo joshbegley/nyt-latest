@@ -1,3 +1,19 @@
+**Steelers camp: Juan Thornhill looks to prove Browns wrong, Broderick Jones injured**\
+`The Minkah Fitzpatrick trade bumped Thornhill up the depth chart. Can he handle starter reps after a middling season in Cleveland?`\
+https://nytimes.com/athletic/6518929/2025/07/27/steelers-training-camp-juan-thornhill-broderick-jones/
+
+**News Organizations Urge Israel to Let Reporters and Aid Into Gaza**\
+`Saying that journalists in the territory, like many Gazans, are facing starvation, the groups urged Israel to allow more food in.`\
+https://nytimes.com/2025/07/27/world/middleeast/gaza-starvation-reporters-israel.html
+
+**Nick Bosa has always set an example, but now he's letting 49ers' young DL hear it as well**\
+`The 49ers are hoping first-round pick Mykel Williams benefits from the leadership and experience Nick Bosa is bringing to camp.`\
+https://nytimes.com/athletic/6518962/2025/07/27/49ers-training-camp-nick-bosa-mykel-williams/
+
+**Bubba Wallace crowned Brickyard 400 winner, snaps 100-race winless streak**\
+`It was the first win for Wallace since 2022 and launched him into NASCAR’s playoffs after he failed to make the field last season.`\
+https://nytimes.com/athletic/6519033/2025/07/27/bubba-wallace-brickyard-400-23-xi-nascar/
+
 **England’s Lionesses Take ‘Football Home’ With Gripping Euro Win**\
 `By edging out Spain in a penalty shootout in the European championship final, England’s women’s team cemented its position as the standard-bearer for English soccer.`\
 https://nytimes.com/2025/07/27/world/europe/england-women-soccer-championship.html
@@ -19,22 +35,6 @@ https://nytimes.com/athletic/6518992/2025/07/27/kurt-kitayama-3m-open-pga-tour/
 https://nytimes.com/athletic/6518986/2025/07/27/tim-weah-juventus-marseille-transfer-agent-comments/
 
 **England’s epic Euro 2025 final penalty shootout: Notes under sleeves, a retaken kick and ice-cold Kelly**\
-`England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final.`\
+`England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final`\
 https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/
-
-**Packers training camp: Matt LaFleur needs Nate Hobbs to dial it down and 9 more observations**\
-`Hobbs' physicality is what attracted him to the Packers in free agency, but LaFleur would rather he not be so physical in training camp.`\
-https://nytimes.com/athletic/6518898/2025/07/27/packers-matt-lafleur-nate-hobbs/
-
-**Constellation Part**\
-`Brian Callahan sees things differently.`\
-https://nytimes.com/2025/07/27/crosswords/daily-puzzle-2025-07-28.html
-
-**U.S. and Europe Reach Preliminary Trade Deal With 15% Tariffs**\
-`The deal, which would set a 15 percent tariff on most E.U. goods, averted what could have become a painful trade war with the United States’ biggest source of imports.`\
-https://nytimes.com/video/world/europe/100000010308174/trump-us-eu-tariffs-trade.html
-
-**Aid Trickles Into Parts of Gaza as Israel Pauses Some Military Activity**\
-`Israel’s move comes amid growing international pressure over the dire conditions and hunger crisis in the Gaza Strip.`\
-https://nytimes.com/video/world/middleeast/100000010308116/gaza-aid-distribution-hunger.html
 
