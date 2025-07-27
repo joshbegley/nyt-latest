@@ -1,3 +1,19 @@
+**Stephanie Frappart, the trailblazing referee in charge of Euro 2025 final**\
+`Frappart has refereed 111 UEFA matches since becoming an international official in 2011.`\
+https://nytimes.com/athletic/6513509/2025/07/27/stephanie-frappart-referee-euro-2025-final/
+
+**Quote of the Day: Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
+`Quote of the Day for Sunday, July 27, 2025`\
+https://nytimes.com/2025/07/27/pageoneplus/quote-of-the-day-jack-mcauliffe-who-brewed-a-craft-beer-revolution-dies-at-80.html
+
+**Connections: Sports Edition Coach: Hints for July 27, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6515446/2025/07/27/connections-sports-edition-hints-for-july-27-2025/
+
+**Corrections: July 27, 2025**\
+`No corrections appeared in print on Sunday, July 27, 2025.`\
+https://nytimes.com/2025/07/27/pageoneplus/corrections-july-27-2025.html
+
 **Why adding a top set-up reliever at trade deadline still makes sense for Mets**\
 `The Mets could use an expert high-leverage reliever to set up Edwin Díaz, but the price will be high. `\
 https://nytimes.com/athletic/6517618/2025/07/26/mets-trade-deadline-bullpen/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6517649/2025/07/26/chicago-cubs-trade-deadline-pitc
 **Yankees bolster depth by adding Amed Rosario from Nationals for Clayton Beeter, prospect**\
 `The Yankees continue to add to their infield, acquiring Rosario a day after trading for third baseman Ryan McMahon.`\
 https://nytimes.com/athletic/6517633/2025/07/26/yankees-amed-rosario-trade-nationals/
-
-**Austin Hill given reckless driving penalty for crash at Indianapolis**\
-`The incident occurred during the closing laps when Almirola and Hill were racing for position inside the top 10 when Almirola got into Hill’`\
-https://nytimes.com/athletic/6517569/2025/07/26/austin-hill-reckless-driving-penalty-nascar/
-
-**Grades: Royals acquire OF Randal Grichuk from D-Backs to boost outfield**\
-`The Royals’ outfield ranks last in the majors in offensive output, with a 64 wRC+, 17% worse than the second-worst outfield.`\
-https://nytimes.com/athletic/6517549/2025/07/26/royals-randal-grichuk-trade-diamondbacks/
-
-**Five takeaways from Seahawks training camp, with tensions already starting to boil**\
-`As the Seahawks prepare to put on pads, the intensity is building. Plus, an update on Sam Darnold and the offensive line so far.`\
-https://nytimes.com/athletic/6517532/2025/07/26/seahawks-training-camp-offense-defense-intensity/
-
-**Breanna Stewart exits game vs. Sparks with leg injury, will not return**\
-`Stewart played the game's first 3:27 and appeared to injure her leg running up the court in transition.`\
-https://nytimes.com/athletic/6517540/2025/07/26/liberty-breanna-stewart-leg-injury-sparks-wnba/
 
