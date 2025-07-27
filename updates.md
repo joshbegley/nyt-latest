@@ -1,3 +1,7 @@
+**New LPGA star? Woad wins in her first week as professional**\
+`No one had won their first LPGA event as a tour member since 2018. Woad is only the third overall.`\
+https://nytimes.com/athletic/6518294/2025/07/27/lpga-lottie-woad-scottish-open/
+
 **Arsenal 3 Newcastle United 2 – The Briefing: Havertz impresses, Gyokeres unveiled, and an exciting Dowman cameo**\
 `Arsenal fans enjoyed a glimpse of both a new signing and a potential star of the future as they bested Newcastle in Singapore`\
 https://nytimes.com/athletic/6518134/2025/07/27/arsenal-newcastle-briefing-singapore-gyokeres-dowman-odegaard/

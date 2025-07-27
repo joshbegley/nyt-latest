@@ -1,3 +1,7 @@
+**New LPGA star? Woad wins in her first week as professional**\
+`No one had won their first LPGA event as a tour member since 2018. Woad is only the third overall.`\
+https://nytimes.com/athletic/6518294/2025/07/27/lpga-lottie-woad-scottish-open/
+
 **Arsenal 3 Newcastle United 2 – The Briefing: Havertz impresses, Gyokeres unveiled, and an exciting Dowman cameo**\
 `Arsenal fans enjoyed a glimpse of both a new signing and a potential star of the future as they bested Newcastle in Singapore`\
 https://nytimes.com/athletic/6518134/2025/07/27/arsenal-newcastle-briefing-singapore-gyokeres-dowman-odegaard/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/world/europe/greek-wildfires-athens-evacuations.h
 **Howe says Newcastle 'not deluded' and recognise transfer need**\
 `Anthony Elanga, who scored at the Singapore National Stadium on his full debut, is Newcastle's only summer signing so far.`\
 https://nytimes.com/athletic/6518166/2025/07/27/newcastle-transfers-update-eddie-howe/
-
-**Lowetide: 5 Oilers players who could get traded early or late in 2025-26**\
-`Excluding future draft picks, who are Edmonton's five most valuable trade pieces between today and the 2026 trade deadline?`\
-https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2025/
 
