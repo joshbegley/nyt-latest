@@ -1,3 +1,23 @@
+**Can Mamdani’s Message Play Outside New York? It Already Has.**\
+`Zohran Mamdani’s mayoral primary victory in New York follows wins by other big-city progressives. Are voters more open to backing progressive stances?`\
+https://nytimes.com/2025/07/27/nyregion/mamdani-wu-progressive-democrats.html
+
+**Dance Poles and Leopard-Print Walls: Love Motels Ready Rooms for Climate Summit**\
+`The Brazilian city of Belém, host to the 30th U.N. Climate Change Conference, is short on hotel rooms. Love motels are offering a solution.`\
+https://nytimes.com/2025/07/27/world/americas/love-motels-brazil-belem-cop30-climate.html
+
+**‘Like Many New Yorkers, I’m Quietly Curious About My Neighbors’**\
+`Respecting a Brooklyn resident’s routine, chatting up a drummer and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/07/27/nyregion/metropolitan-diary.html
+
+**How We Chose the Best Movies of the 21st Century**\
+`With faith, trust and a little bit of help from more than 500 actors, directors and other creative professionals.`\
+https://nytimes.com/2025/07/27/insider/how-we-chose-the-best-movies-of-the-21st-century.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/27/crosswords/spelling-bee-forum.html
+
 **Man United 2 West Ham 1: Fernandes and Cunha's promise, Mbeumo steps up fitness, squad looks sharp**\
 `There was more MetLife Stadium pitch issues as United started their U.S. tour with victory. The Athletic analyses the action `\
 https://nytimes.com/athletic/6517626/2025/07/27/man-united-west-ham-fernandes-cunha-amorim/
