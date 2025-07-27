@@ -1,3 +1,7 @@
+**Astros GM Dana Brown says Isaac Paredes' injury is 'more severe than we projected'**\
+`Houston's All-Star third baseman injured his right hamstring on July 19 and could face an extended absence: "It's tough to be optimistic."`\
+https://nytimes.com/athletic/6518486/2025/07/27/isaac-paredes-injury-astros-dana-brown/
+
 **U.S. Reaches Trade Deal With Europe**\
 `The United States and the European Union agreed to a 15 percent base tariff after weeks of negotiations, which were among the Trump administration’s most difficult discussions.`\
 https://nytimes.com/2025/07/27/world/europe/eu-trade-deal-trump-tariffs.html

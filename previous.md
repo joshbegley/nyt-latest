@@ -1,3 +1,7 @@
+**Astros GM Dana Brown says Isaac Paredes' injury is 'more severe than we projected'**\
+`Houston's All-Star third baseman injured his right hamstring on July 19 and could face an extended absence: "It's tough to be optimistic."`\
+https://nytimes.com/athletic/6518486/2025/07/27/isaac-paredes-injury-astros-dana-brown/
+
 **U.S. Reaches Trade Deal With Europe**\
 `The United States and the European Union agreed to a 15 percent base tariff after weeks of negotiations, which were among the Trump administration’s most difficult discussions.`\
 https://nytimes.com/2025/07/27/world/europe/eu-trade-deal-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517557/2025/07/27/astros-mlb-trade-deadline-live-c
 **Joan Anderson, Unsung Heroine of Hula Hoop History, Dies at 101**\
 `Because of a deal made on a handshake in a parking lot, she was long left out of a famous toy’s story. When she was 94, a documentary changed that.`\
 https://nytimes.com/2025/07/27/business/joan-anderson-dead.html
-
-**Bulls extend head coach Billy Donovan: Source**\
-`Donovan, a member of the Naismith Basketball Hall of Fame 2025 induction class, will enter his sixth season at the helm.`\
-https://nytimes.com/athletic/6518394/2025/07/27/bulls-billy-donovan-extension/
 
