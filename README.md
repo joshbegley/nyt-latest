@@ -1,3 +1,7 @@
+**Denver Passengers Evacuate Smoky American Airlines Flight**\
+`Passengers slid down an inflatable emergency chute after the brake system of an airplane at Denver International Airport caught fire on Saturday.`\
+https://nytimes.com/video/us/100000010308057/american-airlines-fire-denver.html
+
 **Man Faces Terrorism Charge in Mass Stabbing at a Michigan Walmart**\
 `The authorities on Sunday said that a motive for the attack, which left 11 people injured, remained unknown. Citizens, including one who was armed, helped to apprehend the suspect, officials said.`\
 https://nytimes.com/2025/07/27/us/walmart-stabbing-traverse-city-charges.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-f
 **England, India and a compelling Test series that is proving impossible to predict**\
 `The defiance of Washington Sundar and Ravindra Jadeja means India could draw the series at the Oval – both teams are out on their feet`\
 https://nytimes.com/athletic/6518307/2025/07/27/england-india-series-jadeja-sundar-stokes-gill/
-
-**Passengers Evacuate Smoky Plane on Emergency Chute at Denver Airport**\
-`A small fire in the brake system just ahead of the jet’s takeoff prompted the evacuation of 173 passengers and six crew members, the authorities said.`\
-https://nytimes.com/2025/07/27/us/american-airlines-denver-flight.html
 
