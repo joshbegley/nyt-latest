@@ -1,5 +1,5 @@
-**Steelers camp: Joey Porter, DK Metcalf battle; DeShon Elliott clears air with Aaron Rodgers**\
-`DeShon Elliott walked back his "retirement home" comment about Rodgers, who had a tough day, including an interception by Jalen Ramsey.`\
+**Steelers camp: Joey Porter, DK Metcalf battle; Jalen Elliott clears air with Aaron Rodgers**\
+`Jalen Elliott walked back his "retirement home" comment about Aaron Rodgers, who had a tough day, including an interception by Jalen Ramsey.`\
 https://nytimes.com/athletic/6517491/2025/07/26/steelers-training-camp-joey-porter-dk-metcalf/
 
 **Nigeria rallies to beat Morocco in Women's Africa Cup of Nations title game**\
