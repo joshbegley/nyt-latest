@@ -1,3 +1,8 @@
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **Train Derails in Germany, With Casualties Reported**\
 `The accident occurred near the southern city of Ulm.`\
 https://nytimes.com/2025/07/27/world/europe/train-derailment-accident-germany.html
