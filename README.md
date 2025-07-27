@@ -1,3 +1,7 @@
+**England vs Spain Euro 2025 final: A major tournament rematch, key battles and our predictions**\
+`Another England-Spain final. Who will end Sunday's European Championship as victors?`\
+https://nytimes.com/athletic/6517672/2025/07/27/england-vs-spain-euro-2025-final-matchups-predictions/
+
 **Four things that mattered from the Bengals' first week of training camp**\
 `We dig into Shemar Stewart's signing, Evan McPherson's new (old) approach, Jermaine Burton's progress in Year 2 and the guard battles.`\
 https://nytimes.com/athletic/6517182/2025/07/27/bengals-training-camp-shemar-stewart-jermaine-burton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517950/2025/07/27/2027-womens-world-cup-free-to-ai
 **Ichiro, Sabathia, Wagner, Parker, Allen to be inducted into Baseball Hall of Fame**\
 `Ichiro Suzuki, CC Sabathia and Billy Wagner and the late Dave Parker and Dick Allen will be honored. A look at their paths to the Hall. `\
 https://nytimes.com/athletic/6517022/2025/07/27/baseball-hall-of-fame-induction-day-players/
-
-**The New York Times International Edition in Print for Monday, July 28, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/27/todays-new-york-times-international-edition
 
