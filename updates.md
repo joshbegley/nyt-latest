@@ -1,3 +1,11 @@
+**U.S. swim team dealing with 'acute gastroenteritis' at world championships**\
+`It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
+https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
+
+**Liverpool have spent close to £300m this summer - but centre-back depth still needs addressing**\
+`Having sold Jarell Quansah, Slot's squad is short of centre-backs. Crystal Palace and England defender Marc Guehi has been discussed `\
+https://nytimes.com/athletic/6518018/2025/07/27/liverpool-centre-back-transfers/
+
 **The Pulse: Ichiro, the last of his kind**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6517775/2025/07/27/ichiro-baseball-hall-of-fame-the-pulse/

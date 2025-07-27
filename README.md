@@ -1,3 +1,7 @@
+**Lowetide: 5 Oilers players who could get traded early or late in 2025-26**\
+`Excluding future draft picks, who are Edmonton's five most valuable trade pieces between today and the 2026 trade deadline?`\
+https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2025/
+
 **U.S. swim team dealing with 'acute gastroenteritis' at world championships**\
 `It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
 https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commander
 **Bayern close on €75m signing of Liverpool's Diaz**\
 `Diaz, who has a contract at Anfield until June 2027, has made it clear he wants to leave the Anfield club this summer.`\
 https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer-liverpool/
-
-**Summer McIntosh rolls to 400-meter freestyle gold at worlds, as Katie Ledecky takes bronze**\
-`In the first of two anticipated showdowns at world championships, the Canadian phenom McIntosh was dominant against the American Ledecky.`\
-https://nytimes.com/athletic/6515308/2025/07/27/summer-mcintosh-katie-ledecky-400-meter-freestyle-world-championships/
 

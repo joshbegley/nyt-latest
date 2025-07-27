@@ -1,3 +1,11 @@
+**U.S. swim team dealing with 'acute gastroenteritis' at world championships**\
+`It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
+https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
+
+**Liverpool have spent close to £300m this summer - but centre-back depth still needs addressing**\
+`Having sold Jarell Quansah, Slot's squad is short of centre-backs. Crystal Palace and England defender Marc Guehi has been discussed `\
+https://nytimes.com/athletic/6518018/2025/07/27/liverpool-centre-back-transfers/
+
 **The Pulse: Ichiro, the last of his kind**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6517775/2025/07/27/ichiro-baseball-hall-of-fame-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer
 **Summer McIntosh rolls to 400-meter freestyle gold at worlds, as Katie Ledecky takes bronze**\
 `In the first of two anticipated showdowns at world championships, the Canadian phenom McIntosh was dominant against the American Ledecky.`\
 https://nytimes.com/athletic/6515308/2025/07/27/summer-mcintosh-katie-ledecky-400-meter-freestyle-world-championships/
-
-**Al Nassr agree transfer for Chelsea's Joao Felix**\
-`The 25-year-old was not included in Chelsea's 28-man squad for the Club World Cup after his loan at AC Milan concluded.`\
-https://nytimes.com/athletic/6424516/2025/07/27/joao-felix-saudi-transfer-chelsea-news/
-
-**The Protein Boom**\
-`Protein is remaking the food economy. How much do you really need?`\
-https://nytimes.com/2025/07/27/briefing/the-protein-boom.html
 
