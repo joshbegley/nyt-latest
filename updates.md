@@ -1,3 +1,11 @@
+**To the Lionesses with love... from Ten Hag, Hodgkinson, Renard and those who know them best**\
+`Parents, siblings, partners, coaches, team-mates and stars of other sports send personal messages as England prepare for the Euro 2025 final`\
+https://nytimes.com/athletic/6517050/2025/07/27/messages-to-the-lionesses-euro-2025-final/
+
+**The unheralded Premier League signings who ended up being crucial to successful sides**\
+`Often it is the less-hyped arrivals who make a huge difference to a Premier League team's fortunes...`\
+https://nytimes.com/athletic/6510533/2025/07/27/premier-league-transfer-signings-unheralded/
+
 **England vs Spain Euro 2025 final odds, prediction: Will World Cup rematch be a repeat?**\
 `Spain is clearly favoured in the Euro 2025 final. Will it be a repeat of the World Cup final or will England retain its European crown?`\
 https://nytimes.com/athletic/6514335/2025/07/27/england-spain-euro-2025-final-odds-prediction/
