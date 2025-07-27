@@ -1,3 +1,7 @@
+**5 Podcasts That Illustrate the Ungraspable Nature of Justice**\
+`How a stew of racism, law enforcement misconduct and bureaucratic incompetence led to wrongful convictions on both sides of the Atlantic.`\
+https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
+
 **Raymond Saunders, Painter Who Rejected Racial Pigeonholes, Dies at 90**\
 `Widely admired if long underrecognized for his collage-based art, he died only days after the closing of his first retrospective at a major museum, in his native Pittsburgh.`\
 https://nytimes.com/2025/07/27/arts/raymond-saunders-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2
 **U.S. swim team dealing with 'acute gastroenteritis' at world championships**\
 `It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
 https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
-
-**Liverpool have spent close to £300m this summer, but centre-back depth still needs addressing**\
-`Having sold Jarell Quansah, Slot's squad is short of centre-backs. Crystal Palace and England defender Marc Guehi has been discussed `\
-https://nytimes.com/athletic/6518018/2025/07/27/liverpool-centre-back-transfers/
 

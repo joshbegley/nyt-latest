@@ -1,3 +1,7 @@
+**5 Podcasts That Illustrate the Ungraspable Nature of Justice**\
+`How a stew of racism, law enforcement misconduct and bureaucratic incompetence led to wrongful convictions on both sides of the Atlantic.`\
+https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
+
 **Raymond Saunders, Painter Who Rejected Racial Pigeonholes, Dies at 90**\
 `Widely admired if long underrecognized for his collage-based art, he died only days after the closing of his first retrospective at a major museum, in his native Pittsburgh.`\
 https://nytimes.com/2025/07/27/arts/raymond-saunders-dead.html
