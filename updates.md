@@ -1,3 +1,7 @@
+**Al Nassr agree €50m deal for Chelsea's Joao Felix**\
+`The 25-year-old was not included in Chelsea's 28-man squad for the Club World Cup after his loan at AC Milan concluded.`\
+https://nytimes.com/athletic/6424516/2025/07/27/joao-felix-saudi-transfer-chelsea-news/
+
 **The Protein Boom**\
 `Protein is remaking the food economy. How much do you really need?`\
 https://nytimes.com/2025/07/27/briefing/the-protein-boom.html

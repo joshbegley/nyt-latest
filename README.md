@@ -1,3 +1,7 @@
+**Summer McIntosh rolls to 400-meter freestyle gold at worlds, as Katie Ledecky takes bronze**\
+`In the first of two anticipated showdowns at world championships, the Canadian phenom McIntosh was dominant against the American Ledecky.`\
+https://nytimes.com/athletic/6515308/2025/07/27/summer-mcintosh-katie-ledecky-400-meter-freestyle-world-championships/
+
 **Al Nassr agree €50m deal for Chelsea's Joao Felix**\
 `The 25-year-old was not included in Chelsea's 28-man squad for the Club World Cup after his loan at AC Milan concluded.`\
 https://nytimes.com/athletic/6424516/2025/07/27/joao-felix-saudi-transfer-chelsea-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/opinion/gaza-starvation-famine-israel.html
 **The Elite Panic at the Heart of Liberal Attacks on Mamdani**\
 `Mamdani’s detractors don’t care about his race; they care about clawing back a century of civil rights.`\
 https://nytimes.com/2025/07/27/opinion/mamdani-race-college-admissions.html
-
-**You May Not Be Trump’s Target This Time. But You Could Be Next.**\
-`Trump’s actions against civil society harm us all.`\
-https://nytimes.com/2025/07/27/opinion/trump-executive-order.html
 
