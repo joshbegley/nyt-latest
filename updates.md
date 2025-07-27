@@ -1,3 +1,7 @@
+**Padres, Cardinals clear benches after unintentional hit-by-pitch**\
+`Despite warnings issued to both teams earlier in the game, umpire Lance Barrett deemed Granillo did not intentionally throw at Machado.`\
+https://nytimes.com/athletic/6517675/2025/07/27/padres-cardinals-manny-machado-jon-jay-benches/
+
 **Red Sox beat Dodgers, hope to convince front office to add at trade deadline**\
 `"Reinforcements for sure, just to bolster us for a deep run," Red Sox shortstop Trevor Story said. `\
 https://nytimes.com/athletic/6517741/2025/07/27/red-sox-win-dodgers-trade-deadline-adds/

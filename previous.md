@@ -1,3 +1,7 @@
+**Padres, Cardinals clear benches after unintentional hit-by-pitch**\
+`Despite warnings issued to both teams earlier in the game, umpire Lance Barrett deemed Granillo did not intentionally throw at Machado.`\
+https://nytimes.com/athletic/6517675/2025/07/27/padres-cardinals-manny-machado-jon-jay-benches/
+
 **Red Sox beat Dodgers, hope to convince front office to add at trade deadline**\
 `"Reinforcements for sure, just to bolster us for a deep run," Red Sox shortstop Trevor Story said. `\
 https://nytimes.com/athletic/6517741/2025/07/27/red-sox-win-dodgers-trade-deadline-adds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513509/2025/07/27/stephanie-frappart-referee-euro-
 **Quote of the Day: Jack McAuliffe, Who Brewed a Craft Beer Revolution, Dies at 80**\
 `Quote of the Day for Sunday, July 27, 2025`\
 https://nytimes.com/2025/07/27/pageoneplus/quote-of-the-day-jack-mcauliffe-who-brewed-a-craft-beer-revolution-dies-at-80.html
-
-**Connections: Sports Edition Coach: Hints for July 27, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6515446/2025/07/27/connections-sports-edition-hints-for-july-27-2025/
 
