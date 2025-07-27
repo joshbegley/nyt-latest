@@ -1,3 +1,7 @@
+**Belgian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Belgian Grand Prix?`\
+https://nytimes.com/athletic/6518385/2025/07/27/belgian-grand-prix-f1-mailbag/
+
 **Cowboys sign TE Jake Ferguson to 4-year, $52 million extension**\
 `Ferguson, Dallas’ fourth-round pick in 2022, was entering the final year of his rookie contract.`\
 https://nytimes.com/athletic/6518347/2025/07/27/cowboys-jake-ferguson-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516777/2025/07/27/wrexham-transfers-records-erikse
 **Eric Kim’s Five-Star Gochujang-Glazed Eggplant**\
 `“The sauce was amazing. I love, love, love the eggplant, it melts in your mouth. But I would eat that sauce on cardboard.”`\
 https://nytimes.com/2025/07/27/dining/eric-kims-five-star-gochujang-glazed-eggplant.html
-
-**Tour de France Femmes: Mavi Garcia holds on to win stage two as Le Court moves into yellow jersey**\
-`See the results from Stage 2 here as The Athletic covers the Tour de France Femmes. `\
-https://nytimes.com/athletic/6518139/2025/07/27/tour-de-france-femmes-stage-two-garcia-le-court/
 
