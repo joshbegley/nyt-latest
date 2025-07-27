@@ -1,3 +1,11 @@
+**A bases-loaded bunt attempt says everything about the Giants' trade deadline crossroads**\
+`Lee did something that major-league hitters almost never do. He chose to minimize the damage he could inflict.`\
+https://nytimes.com/athletic/6517910/2025/07/27/giants-lose-mets-trade-deadline/
+
+**Terry McLaurin reports to Commanders camp without contract extension**\
+`The 29-year-old receiver has yet to receive the contract extension he wants, but McLaurin reported to Commanders training camp on Saturday.`\
+https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commanders-contract-extension/
+
 **Being Creative With A.I., for Better or Worse**\
 `Readers respond to a guest essay by Meghan O’Rourke about artificial intelligence. Also: Port and privacy; the G.O.P. vs. NPR.`\
 https://nytimes.com/2025/07/27/opinion/ai-schools.html

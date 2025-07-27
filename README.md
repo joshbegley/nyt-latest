@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 9: How Zion Johnson fared in first padded center snaps**\
+`Johnson's first padded run at center had its ups and downs. “He did some really good things," OC Greg Roman said after practice.`\
+https://nytimes.com/athletic/6517833/2025/07/27/chargers-training-camp-zion-johnson-center-evaulation/
+
 **A bases-loaded bunt attempt says everything about the Giants' trade deadline crossroads**\
 `Lee did something that major-league hitters almost never do. He chose to minimize the damage he could inflict.`\
 https://nytimes.com/athletic/6517910/2025/07/27/giants-lose-mets-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/briefing/the-protein-boom.html
 **Israel Says It Has Paused Some Military Activity in Gaza as Anger Grows Over Hunger**\
 `Operations in three parts of the enclave were temporarily halted on Sunday to allow more aid to enter the territory, the Israeli military said. It was unclear if the decision would relieve the hunger crisis in Gaza.`\
 https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-aid-hunger.html
-
-**Trump is set to meet with the European Union’s top official.**\
-`By Stephen Castle`\
-https://nytimes.com/live/2025/07/27/us/trump-news/trump-is-set-to-meet-with-the-european-unions-top-official
 
