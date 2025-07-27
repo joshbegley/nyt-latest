@@ -1,8 +1,16 @@
+**Joe Ryan 'would like to stay' with Twins; Derek Falvey talks trade deadline plans**\
+`Nearly everything points to the Twins' being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
+https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trade-deadline/
+
+**Our 5 favorite lessons from Ichiro, CC Sabathia and the 2025 Baseball Hall of Fame inductees**\
+`On Sunday, five greats were inducted into the Baseball Hall of Fame. These are five favorite lessons from their speeches.`\
+https://nytimes.com/athletic/6519170/2025/07/27/hall-of-fame-lessons-baseball-cooperstown-ichiro/
+
 **O'Connor: CC Sabathia’s biggest Yankees win was healing Derek Jeter-Alex Rodriguez divide**\
 `On the day of Sabathia's Hall fo Fame induction, it's worth remembering the most valuable personality on Yankees' 2009 championship team.`\
 https://nytimes.com/athletic/6518997/2025/07/27/cc-sabathia-hall-of-fame-yankees-derek-jeter-alex-rodriguez/
 
-**Dustin May's uneven season continues in critical start just ahead of trade deadline**\
+**Dustin May's uneven season continues in key start ahead of trade deadline**\
 `May had a lead when the fifth inning began and a chance to rewrite the story of his season. Instead, it was more of the same.`\
 https://nytimes.com/athletic/6519019/2025/07/27/dustin-may-dodgers-trade-deadline/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6518962/2025/07/27/49ers-training-camp-nick-bosa-my
 **Bubba Wallace crowned Brickyard 400 winner, snaps 100-race winless streak**\
 `It was the first win for Wallace since 2022 and launched him into NASCAR’s playoffs after he failed to make the field last season.`\
 https://nytimes.com/athletic/6519033/2025/07/27/bubba-wallace-brickyard-400-23-xi-nascar/
-
-**England’s Lionesses Take ‘Football Home’ With Gripping Euro Win**\
-`By edging out Spain in a penalty shootout in the European championship final, England’s women’s team cemented its position as the standard-bearer for English soccer.`\
-https://nytimes.com/2025/07/27/world/europe/england-women-soccer-championship.html
-
-**Braves acquire Erick Fedde from Cardinals to reinforce pitching staff**\
-`The 32-year-old right-hander went 3-10 with a 5.22 ERA over 20 games with the Cardinals prior to being DFA'd.`\
-https://nytimes.com/athletic/6519027/2025/07/27/atlanta-braves-erick-fedde-acquisition/
 
