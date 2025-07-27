@@ -1,3 +1,7 @@
+**The unheralded Premier League signings who ended up being crucial to successful sides**\
+`Often it is the less-hyped arrivals who make a huge difference to a Premier League team's fortunes...`\
+https://nytimes.com/athletic/6510533/2025/07/27/premier-league-transfer-signings-unheralded/
+
 **England vs Spain Euro 2025 final odds, prediction: Will World Cup rematch be a repeat?**\
 `Spain is clearly favoured in the Euro 2025 final. Will it be a repeat of the World Cup final or will England retain its European crown?`\
 https://nytimes.com/athletic/6514335/2025/07/27/england-spain-euro-2025-final-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517659/2025/07/26/dodgers-bullpen-trade-deadline-u
 **Thailand and Cambodia Trade Fire Despite Cease-Fire Promises**\
 `President Trump said on Saturday that both countries had agreed to a halt in the fighting. But on Sunday morning, skirmishes erupted once more.`\
 https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-conflict.html
-
-**Mariners' Cal Raleigh first to 40 homers this season. Here are some of his best swings**\
-`Raleigh has the chance to equal the single-season American League home run record if he keeps this pace.`\
-https://nytimes.com/athletic/6514066/2025/07/26/cal-raleigh-mariners-catcher-40-home-runs/
 
