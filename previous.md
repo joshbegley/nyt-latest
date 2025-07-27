@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6517050/2025/07/27/messages-to-the-lionesses-euro-2
 `Often it is the less-hyped arrivals who make a huge difference to a Premier League team's fortunes...`\
 https://nytimes.com/athletic/6510533/2025/07/27/premier-league-transfer-signings-unheralded/
 
-**England vs Spain Euro 2025 final odds, prediction: Will World Cup rematch be a repeat?**\
-`Spain is clearly favoured in the Euro 2025 final. Will it be a repeat of the World Cup final or will England retain its European crown?`\
-https://nytimes.com/athletic/6514335/2025/07/27/england-spain-euro-2025-final-odds-prediction/
+**Man United 2 West Ham 1: Fernandes and Cunha's promise, Mbeumo steps up fitness, squad looks sharp**\
+`There was more MetLife Stadium pitch issues as United started their U.S. tour with victory. The Athletic analyses the action `\
+https://nytimes.com/athletic/6517626/2025/07/27/man-united-west-ham-fernandes-cunha-amorim/
 

@@ -1,3 +1,7 @@
+**Man United 2 West Ham 1: Fernandes and Cunha's promise, Mbeumo steps up fitness, squad looks sharp**\
+`There was more MetLife Stadium pitch issues as United started their U.S. tour with victory. The Athletic analyses the action `\
+https://nytimes.com/athletic/6517626/2025/07/27/man-united-west-ham-fernandes-cunha-amorim/
+
 **Carney: England's Michelle Agyemang has an aura about her — you know something special is coming**\
 `Former England international Karen Carney analyses what makes the teenage striker so lethal in front of goal `\
 https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-karen-carney/
