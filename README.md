@@ -1,3 +1,7 @@
+**The issues Frank has to solve in pre-season - especially with Gibbs-White signing new Forest deal**\
+`Tottenham drew friendlies with two third-division sides in a single afternoon - then learnt key target is staying at the City Ground`\
+https://nytimes.com/athletic/6517268/2025/07/27/tottenham-frank-pre-season-midfield-gibbs-white/
+
 **To the Lionesses with love... from Ten Hag, Hodgkinson, Renard and those who know them best**\
 `Parents, siblings, partners, coaches, team-mates and stars of other sports send personal messages as England prepare for the Euro 2025 final`\
 https://nytimes.com/athletic/6517050/2025/07/27/messages-to-the-lionesses-euro-2025-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/pageoneplus/corrections-july-27-2025.html
 **Why adding a top set-up reliever at trade deadline still makes sense for Mets**\
 `The Mets could use an expert high-leverage reliever to set up Edwin Díaz, but the price will be high. `\
 https://nytimes.com/athletic/6517618/2025/07/26/mets-trade-deadline-bullpen/
-
-**Dodgers' bullpen needs deadline upgrades. They're also expecting internal improvement**\
-`"We have enough talent right now to be better in the 'pen," manager Dave Roberts said this weekend.`\
-https://nytimes.com/athletic/6517659/2025/07/26/dodgers-bullpen-trade-deadline-upgrades/
 
