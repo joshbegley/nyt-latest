@@ -1,3 +1,15 @@
+**Right-Wing Influencers Say Ghislaine Maxwell Is Key to Unlocking Epstein Case**\
+`Some conservative influencers have celebrated the move to approach the longtime associate of Jeffrey Epstein, but it comes with risks.`\
+https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
+
+**What's trending in the right direction for hot Phillies offense**\
+`Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
+https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/
+
+**Why Yankees likely won't call up Spencer Jones with Aaron Judge injured**\
+`Spencer Jones has dominated since his June 27 promotion, hitting .400 with 13 home runs, including a three-homer game, in 19 Triple-A games.`\
+https://nytimes.com/athletic/6517463/2025/07/26/yankees-aaron-judge-spencer-jones/
+
 **Rams QB Matthew Stafford to sit out practice as he deals with back soreness**\
 `Though Sean McVay reiterated he does not expect Stafford to practice at all this week, he is not concerned about his quarterback.`\
 https://nytimes.com/athletic/6517429/2025/07/26/rams-qb-matthew-stafford-out-back-soreness/
@@ -14,8 +26,8 @@ https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
 `"I feel strong and am excited to be home. … I'm looking forward to recharging and preparing for the upcoming season."`\
 https://nytimes.com/athletic/6517391/2025/07/26/kansas-bill-self-released-from-hospital/
 
-**11 People Are Injured in Stabbing at a Michigan Walmart, Officials Say**\
-`One person was in custody, the State Police said on social media. It was not clear what set off the attack.`\
+**11 People Are Injured in Stabbing Spree at a Michigan Walmart, Officials Say**\
+`One person was in custody after what the authorities said was a random attack at a store near Traverse City, Mich.`\
 https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
 
 **Rosenthal: What I'm hearing about D-Backs' and Rays' deadline plans, Cedric Mullins, more**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6517420/2025/07/26/trade-deadline-mlb-diamondbacks-
 **Amid Growing Fury Over Gaza, Israel Says It Is Easing Aid Restrictions**\
 `As starvation rises in Gaza, prompting global outrage, Israel’s military said it would restart airborne aid delivery there and make land deliveries less dangerous.`\
 https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
-
-**Arranged Marriages**\
-`John Kugelman’s latest crossword creation belongs in a museum.`\
-https://nytimes.com/2025/07/26/crosswords/daily-puzzle-2025-07-27.html
-
-**Venezuelan youth baseball team denied travel visas to U.S.**\
-`Cacique Mara, the Venezuelan team, was replaced by a team from Mexico after having its visa requests denied.`\
-https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-visas/
-
-**New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
-`Plus, the secondary depth chart continues to take shape.`\
-https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
 
