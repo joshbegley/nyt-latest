@@ -1,3 +1,8 @@
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **'As brave as I dared': How Oscar Piastri’s fearlessness won him the Belgian GP**\
 `Oscar Piastri pulled off a brave, brilliant move to overtake Norris — and it says a lot about his role in the 2025 title fight`\
 https://nytimes.com/athletic/6518495/2025/07/27/oscar-piastri-belgian-gp-f1-winning-move/
