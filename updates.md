@@ -1,3 +1,19 @@
+**Dolphins, Minkah Fitzpatrick agree to revised deal including $16 million signing bonus**\
+`The revised deal includes a $16.245 million signing bonus.`\
+https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revised-contract/
+
+**Live trade deadline Q&A with Astros writer Chandler Rome on Monday at noon CT**\
+`Submit your questions about what Houston might do at the deadline in a live chat.`\
+https://nytimes.com/athletic/6517557/2025/07/27/astros-mlb-trade-deadline-live-chat-chandler-rome/
+
+**Joan Anderson, Unsung Heroine of Hula Hoop History, Dies at 101**\
+`Because of a deal made on a handshake in a parking lot, she was long left out of a famous toy’s story. When she was 94, a documentary changed that.`\
+https://nytimes.com/2025/07/27/business/joan-anderson-dead.html
+
+**Bulls extend head coach Billy Donovan: Source**\
+`Donovan, a member of the Naismith Basketball Hall of Fame 2025 induction class, will enter his sixth season at the helm.`\
+https://nytimes.com/athletic/6518394/2025/07/27/bulls-billy-donovan-extension/
+
 **Tom Lehrer, Musical Satirist With a Dark Streak, Dies at 97**\
 `A mathematician by training, he acquired a devoted following with songs that set sardonic lyrics to music that was often maddeningly cheerful.`\
 https://nytimes.com/2025/07/27/arts/music/tom-lehrer-dead.html

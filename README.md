@@ -1,3 +1,7 @@
+**Small Plane With 3 Aboard Crashes Off California Coast**\
+`The plane has been located, the U.S. Coast Guard said, and two people have been found unresponsive. A search for the third person is continuing.`\
+https://nytimes.com/2025/07/27/us/plane-crash-california.html
+
 **Dolphins, Minkah Fitzpatrick agree to revised deal including $16 million signing bonus**\
 `The revised deal includes a $16.245 million signing bonus.`\
 https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revised-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518347/2025/07/27/cowboys-jake-ferguson-contract-e
 **Oscar Piastri wins as Lewis Hamilton shines after chaotic start**\
 `Oscar Piastri wins the Belgian Grand Prix as McLaren secures a 1-2 finish`\
 https://nytimes.com/athletic/6518101/2025/07/27/belgian-grand-prix-briefing-oscar-piastri-wins/
-
-**Arsenal 3 Newcastle 2: Elanga impresses, Osula stands in for Isak (again), Botman concern**\
-`Newcastle's latest pre-season defeat at least brought some positives. There was no Isak again but Elanga is off the mark `\
-https://nytimes.com/athletic/6518019/2025/07/27/newcastle-isak-elanga-osula-botman/
 
