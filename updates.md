@@ -1,3 +1,7 @@
+**Belgian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Belgian Grand Prix?`\
+https://nytimes.com/athletic/6518385/2025/07/27/belgian-grand-prix-f1-mailbag/
+
 **Cowboys sign TE Jake Ferguson to 4-year, $52 million extension**\
 `Ferguson, Dallas’ fourth-round pick in 2022, was entering the final year of his rookie contract.`\
 https://nytimes.com/athletic/6518347/2025/07/27/cowboys-jake-ferguson-contract-extension/
