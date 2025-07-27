@@ -1,3 +1,7 @@
+**The Pulse: Ichiro, the last of his kind**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6517775/2025/07/27/ichiro-baseball-hall-of-fame-the-pulse/
+
 **Chargers training camp report, Day 9: How Zion Johnson fared in first padded center snaps**\
 `Johnson's first padded run at center had its ups and downs. “He did some really good things," OC Greg Roman said after practice.`\
 https://nytimes.com/athletic/6517833/2025/07/27/chargers-training-camp-zion-johnson-center-evaulation/

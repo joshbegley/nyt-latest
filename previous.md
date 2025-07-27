@@ -1,3 +1,7 @@
+**The Pulse: Ichiro, the last of his kind**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6517775/2025/07/27/ichiro-baseball-hall-of-fame-the-pulse/
+
 **Chargers training camp report, Day 9: How Zion Johnson fared in first padded center snaps**\
 `Johnson's first padded run at center had its ups and downs. “He did some really good things," OC Greg Roman said after practice.`\
 https://nytimes.com/athletic/6517833/2025/07/27/chargers-training-camp-zion-johnson-center-evaulation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424516/2025/07/27/joao-felix-saudi-transfer-chelse
 **The Protein Boom**\
 `Protein is remaking the food economy. How much do you really need?`\
 https://nytimes.com/2025/07/27/briefing/the-protein-boom.html
-
-**Israel Says It Has Paused Some Military Activity in Gaza as Anger Grows Over Hunger**\
-`Operations in three parts of the enclave were temporarily halted on Sunday to allow more aid to enter the territory, the Israeli military said. It was unclear if the decision would relieve the hunger crisis in Gaza.`\
-https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-aid-hunger.html
 
