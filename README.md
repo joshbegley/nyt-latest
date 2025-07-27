@@ -1,3 +1,11 @@
+**Oscar Piastri wins as Lewis Hamilton shines after chaotic start**\
+`Oscar Piastri wins the Belgian Grand Prix as McLaren secures a 1-2 finish`\
+https://nytimes.com/athletic/6518101/2025/07/27/belgian-grand-prix-briefing-oscar-piastri-wins/
+
+**Arsenal 3 Newcastle 2: Elanga impresses, Osula stands in for Isak (again), Botman concern**\
+`Newcastle's latest pre-season defeat at least brought some positives. There was no Isak again but Elanga is off the mark `\
+https://nytimes.com/athletic/6518019/2025/07/27/newcastle-isak-elanga-osula-botman/
+
 **New LPGA star? Woad wins in her first week as professional**\
 `No one had won their first LPGA event as a tour member since 2018. Woad is only the third overall.`\
 https://nytimes.com/athletic/6518294/2025/07/27/lpga-lottie-woad-scottish-open/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6518139/2025/07/27/tour-de-france-femmes-stage-two-
 **William J. Rutter, Biotech Pioneer of Gene-Based Medicine, Dies at 97**\
 `His company, the Chiron Corporation, contributed important scientific discoveries toward treatments for H.I.V., hepatitis B, diabetes and more.`\
 https://nytimes.com/2025/07/27/science/william-j-rutter-dead.html
-
-**Dozens of Wildfires Burn in Greece and Turkey as Temperatures Soar**\
-`Firefighters are battling several blazes, with officials warning that extreme heat will pose a risk of more in the coming days.`\
-https://nytimes.com/2025/07/27/world/europe/greek-wildfires-athens-evacuations.html
-
-**Howe says Newcastle 'not deluded' and recognise transfer need**\
-`Anthony Elanga, who scored at the Singapore National Stadium on his full debut, is Newcastle's only summer signing so far.`\
-https://nytimes.com/athletic/6518166/2025/07/27/newcastle-transfers-update-eddie-howe/
 
