@@ -1,3 +1,11 @@
+**What's trending in the right direction for hot Phillies offense**\
+`Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
+https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/
+
+**Why Yankees likely won't call up Spencer Jones with Aaron Judge injured**\
+`Spencer Jones has dominated since his June 27 promotion, hitting .400 with 13 home runs, including a three-homer game, in 19 Triple-A games.`\
+https://nytimes.com/athletic/6517463/2025/07/26/yankees-aaron-judge-spencer-jones/
+
 **Rams QB Matthew Stafford to sit out practice as he deals with back soreness**\
 `Though Sean McVay reiterated he does not expect Stafford to practice at all this week, he is not concerned about his quarterback.`\
 https://nytimes.com/athletic/6517429/2025/07/26/rams-qb-matthew-stafford-out-back-soreness/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/26/world/middleeast/gaza-aid-restrictions-eased.html
 **Arranged Marriages**\
 `John Kugelman’s latest crossword creation belongs in a museum.`\
 https://nytimes.com/2025/07/26/crosswords/daily-puzzle-2025-07-27.html
-
-**Venezuelan youth baseball team denied travel visas to U.S.**\
-`Cacique Mara, the Venezuelan team, was replaced by a team from Mexico after having its visa requests denied.`\
-https://nytimes.com/athletic/6517274/2025/07/26/venezuela-youth-baseball-team-visas/
-
-**New offensive coordinator Kevin Patullo talks identity, tempo: Eagles training camp observations**\
-`Plus, the secondary depth chart continues to take shape.`\
-https://nytimes.com/athletic/6517125/2025/07/26/philadelphia-eagles-training-camp-practice-report/
 
