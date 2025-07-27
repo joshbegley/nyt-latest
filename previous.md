@@ -1,3 +1,11 @@
+**Ichiro, Sabathia, Wagner, Parker, Allen to be inducted into Baseball Hall of Fame**\
+`Ichiro Suzuki, CC Sabathia and Billy Wagner and the late Dave Parker and Dick Allen will be honored. A look at their paths to the Hall. `\
+https://nytimes.com/athletic/6517022/2025/07/27/baseball-hall-of-fame-induction-day-players/
+
+**The New York Times International Edition in Print for Monday, July 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/27/todays-new-york-times-international-edition
+
 **How to watch Fever at Sky: Slumping Chicago aims to end skid vs. Indiana**\
 `The Sky are coming off of their worst loss of the season. Can they bounce back against the short-handed Indiana Fever?`\
 https://nytimes.com/athletic/6517194/2025/07/27/wnba-fever-vs-sky-chicago-angel-reese-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/27/style/ralph-laurens-vintage-man-of-mystery.html
 **Italian Flag Colors Were Removed From a Street. Residents Rebelled.**\
 `Newton, Mass., replaced a street’s red, white and green centerline with standard yellow stripes, citing traffic safety concerns, weeks before an annual Italian American festival.`\
 https://nytimes.com/2025/07/27/us/italy-street-newton-massachusetts.html
-
-**In Smithsonian Role, John Roberts Encounters History, Pandas and Trump**\
-`Chief Justice John G. Roberts Jr., who serves as the institution’s chancellor, has always emphasized procedure and avoided politics. This moment could make that more difficult.`\
-https://nytimes.com/2025/07/27/arts/smithsonian-john-roberts-trump-supreme-court.html
-
-**The Baseball Hall of Fame enshrines 5 new members. Here's how to watch the ceremony**\
-`Five all-time greats get immortalized this weekend at the National Baseball Hall of Fame's annual induction ceremony.`\
-https://nytimes.com/athletic/6513938/2025/07/27/baseball-hall-of-fame-2025-how-to-watch/
 

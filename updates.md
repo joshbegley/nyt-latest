@@ -1,3 +1,11 @@
+**Ichiro, Sabathia, Wagner, Parker, Allen to be inducted into Baseball Hall of Fame**\
+`Ichiro Suzuki, CC Sabathia and Billy Wagner and the late Dave Parker and Dick Allen will be honored. A look at their paths to the Hall. `\
+https://nytimes.com/athletic/6517022/2025/07/27/baseball-hall-of-fame-induction-day-players/
+
+**The New York Times International Edition in Print for Monday, July 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/27/todays-new-york-times-international-edition
+
 **How to watch Fever at Sky: Slumping Chicago aims to end skid vs. Indiana**\
 `The Sky are coming off of their worst loss of the season. Can they bounce back against the short-handed Indiana Fever?`\
 https://nytimes.com/athletic/6517194/2025/07/27/wnba-fever-vs-sky-chicago-angel-reese-how-to-watch/
