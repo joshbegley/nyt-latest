@@ -1,3 +1,7 @@
+**Carney: Agyemang has an aura about her - you know something special is coming**\
+`Former England international Karen Carney analyses what makes the teenage striker so lethal in front of goal `\
+https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-karen-carney/
+
 **Smoke From Canadian Wildfires Wafts Over New York City**\
 `Officials warned young children and those with respiratory illnesses to take precautions. For weeks, smoke from Canadian wildfires has been drifting across the border.`\
 https://nytimes.com/2025/07/27/nyregion/new-york-air-quality-canada-wildfires.html

@@ -26,7 +26,7 @@ https://nytimes.com/2025/07/27/insider/how-we-chose-the-best-movies-of-the-21st-
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/27/crosswords/spelling-bee-forum.html
 
-**Carney: England's Michelle Agyemang has an aura about her — you know something special is coming**\
+**Carney: Agyemang has an aura about her - you know something special is coming**\
 `Former England international Karen Carney analyses what makes the teenage striker so lethal in front of goal `\
 https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-karen-carney/
 
