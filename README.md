@@ -1,3 +1,7 @@
+**Terry McLaurin reports to Commanders camp, still no contract extension**\
+`The 29-year-old receiver has yet to receive the contract extension he wants, but McLaurin reported to Commanders training camp on Saturday.`\
+https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commanders-contract-extension/
+
 **Bayern close on €75m signing of Liverpool's Diaz**\
 `Diaz, who has a contract at Anfield until June 2027, has made it clear he wants to leave the Anfield club this summer.`\
 https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517600/2025/07/27/morocco-wafcon-finals-nigeria-ho
 **Prospect Sam Shaw one step closer to becoming next Canadian-born Blue Jay**\
 `Shaw grew up watching the Toronto Blue Jays’ High-A affiliate and now suits up for the team he cheered on.`\
 https://nytimes.com/athletic/6517296/2025/07/27/sam-shaw-toronto-blue-jays/
-
-**José Andrés: People of Good Conscience Must Stop the Starvation in Gaza**\
-`Israel is responsible for the basic survival of civilians in Gaza.`\
-https://nytimes.com/2025/07/27/opinion/gaza-starvation-famine-israel.html
 
