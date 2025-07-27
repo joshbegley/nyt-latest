@@ -1,3 +1,7 @@
+**Dozens Are Killed by ISIS-Linked Rebels at a Church in Congo**\
+`The attack raised questions about diplomatic efforts to end the conflict in the Central African country.`\
+https://nytimes.com/2025/07/27/world/africa/congo-isis-attack.html
+
 **Monday Briefing: Ukraine’s Other War**\
 `Also, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/27/briefing/ukraine-protest-europe-us-trade-deal.html

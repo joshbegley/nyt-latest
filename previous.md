@@ -1,3 +1,7 @@
+**Dozens Are Killed by ISIS-Linked Rebels at a Church in Congo**\
+`The attack raised questions about diplomatic efforts to end the conflict in the Central African country.`\
+https://nytimes.com/2025/07/27/world/africa/congo-isis-attack.html
+
 **Monday Briefing: Ukraine’s Other War**\
 `Also, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/27/briefing/ukraine-protest-europe-us-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-moura
 **Inside the Lionesses' Euro 2025 win: Wiegman's 'new England' mantra, 'hard' talks and... penalties**\
 `England retained the European Championship trophy with victory over Spain. This is the story of their triumphant tournament`\
 https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/
-
-**Live Q&A: Tigers trade deadline talk with Cody Stavenhagen at Noon ET Monday**\
-`Tigers writer Cody Stavenhagen will hold a live Q&A at noon on Monday July 28.`\
-https://nytimes.com/athletic/6518738/2025/07/27/live-qa-tigers-trade-deadline-talk-with-cody-stavenhagen-at-noon-et-monday/
 
