@@ -1,3 +1,7 @@
+**How England nullified Spain: The Wiegman tactics that shut down the world champions**\
+`Breaking down the approach that enabled the Lionesses to take the Euro 2025 final to a penalty shootout, which they won`\
+https://nytimes.com/athletic/6518861/2025/07/27/how-england-nullified-spain-wiegman-tactics/
+
 **Kurt Kitayama rules front 9 on way to 3M Open win, his 2nd PGA Tour victory**\
 `One day after pushing into contention with a front-nine 28, Kitayama again dominated the front with a 29 on way to win.`\
 https://nytimes.com/athletic/6518992/2025/07/27/kurt-kitayama-3m-open-pga-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/world/africa/congo-isis-attack.html
 **Monday Briefing: Ukraine’s Other War**\
 `Also, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/27/briefing/ukraine-protest-europe-us-trade-deal.html
-
-**Red Sox closer Aroldis Chapman leaves game with back tightness**\
-`The hard-throwing lefty walked the first two batters he faced and recorded one out before exiting in the eighth inning.`\
-https://nytimes.com/athletic/6518858/2025/07/27/aroldis-chapman-leaves-game-red-sox/
 
