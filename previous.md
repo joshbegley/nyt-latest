@@ -1,40 +1,40 @@
+**Trump is set to meet with the European Union’s top official.**\
+`By Stephen Castle`\
+https://nytimes.com/live/2025/07/27/us/trump-news/trump-is-set-to-meet-with-the-european-unions-top-official
+
+**Trump Administration Live Updates: President to Meet With Top E.U. Official as Threat of Trade War Looms**\
+``\
+https://nytimes.com/live/2025/07/27/us/trump-news
+
+**Is Morocco's plethora of tournament hosting duties helping its investment or stalling others'?**\
+`Morocco has invested millions in its teams, but with another loss in the WAFCON final, is the return on investment at risk?`\
+https://nytimes.com/athletic/6517600/2025/07/27/morocco-wafcon-finals-nigeria-host/
+
+**Prospect Sam Shaw one step closer to becoming next Canadian-born Blue Jay**\
+`Shaw grew up watching the Toronto Blue Jays’ High-A affiliate and now suits up for the team he cheered on.`\
+https://nytimes.com/athletic/6517296/2025/07/27/sam-shaw-toronto-blue-jays/
+
+**José Andrés: People of Good Conscience Must Stop the Starvation in Gaza**\
+`Israel is responsible for the basic survival of civilians in Gaza.`\
+https://nytimes.com/2025/07/27/opinion/gaza-starvation-famine-israel.html
+
+**The Elite Panic at the Heart of Liberal Attacks on Mamdani**\
+`Mamdani’s detractors don’t care about his race; they care about clawing back a century of civil rights.`\
+https://nytimes.com/2025/07/27/opinion/mamdani-race-college-admissions.html
+
+**You May Not Be Trump’s Target This Time. But You Could Be Next.**\
+`Trump’s actions against civil society harm us all.`\
+https://nytimes.com/2025/07/27/opinion/trump-executive-order.html
+
+**‘1984’ Hasn’t Changed, but America Has**\
+`Some of the same titles and authors the C.I.A. sent east during the Cold War, including “1984,” are now deemed objectionable across the United States.`\
+https://nytimes.com/2025/07/27/opinion/1984-cia-book-ban.html
+
+**Sarmiento set to leave Brighton on permanent deal before end of transfer window**\
+`The Ecuadorian winger scored four goals on loan at Burnley last season as they finished second in the Championship and got promoted. `\
+https://nytimes.com/athletic/6517923/2025/07/27/brighton-jeremy-sarmiento-permanent-transfer-news/
+
 **England vs Spain Euro 2025 final: A major tournament rematch, key battles and our predictions**\
 `Another England-Spain final. Who will end Sunday's European Championship as victors?`\
 https://nytimes.com/athletic/6517672/2025/07/27/england-vs-spain-euro-2025-final-matchups-predictions/
-
-**Four things that mattered from the Bengals' first week of training camp**\
-`We dig into Shemar Stewart's signing, Evan McPherson's new (old) approach, Jermaine Burton's progress in Year 2 and the guard battles.`\
-https://nytimes.com/athletic/6517182/2025/07/27/bengals-training-camp-shemar-stewart-jermaine-burton/
-
-**The Tigers lost a Tarik Skubal start, and the search for answers continues**\
-`The Tigers have lost 12 of 13 games, and they squandered their best chance at a reset Saturday with Skubal on the mound.`\
-https://nytimes.com/athletic/6517628/2025/07/27/tigers-lose-tarik-skubal-start-blue-jays/
-
-**Wordle Review No. 1,500**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 28, 2025.`\
-https://nytimes.com/2025/07/27/crosswords/wordle-review-1500.html
-
-**What we learned from Detroit Lions' first week of training camp**\
-`Aidan Hutchinson looks like his old self, while Jahmyr Gibbs continues to expand his game. `\
-https://nytimes.com/athletic/6517248/2025/07/27/detroit-lions-training-camp-aidan-hutchinson-jahmyr-gibbs/
-
-**Strands Sidekick No. 512**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 28, 2025.`\
-https://nytimes.com/2025/07/27/crosswords/strands-sidekick-512.html
-
-**Connections Companion No. 778**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 28, 2025.`\
-https://nytimes.com/2025/07/27/crosswords/connections-companion-778.html
-
-**Why are one of the best teams at this year's Tour de France struggling to find a new title sponsor?**\
-`Alpecin-Deceuninck have stars Mathieu van der Poel and Jasper Philipsen in their ranks but the Belgian squad face an uncertain future `\
-https://nytimes.com/athletic/6517290/2025/07/27/alpecin-deceuninck-sponsor-search-tour-de-france-van-der-poel/
-
-**2027 Women's World Cup to remain free-to-air for fans after BBC and ITV agree rights**\
-`The partnership between ITV and BBC that has seen record audiences over the 2025 Euros will also show the upcoming World Cup.`\
-https://nytimes.com/athletic/6517950/2025/07/27/2027-womens-world-cup-free-to-air-bbc-itv-agree-rights/
-
-**Ichiro, Sabathia, Wagner, Parker, Allen to be inducted into Baseball Hall of Fame**\
-`Ichiro Suzuki, CC Sabathia and Billy Wagner and the late Dave Parker and Dick Allen will be honored. A look at their paths to the Hall. `\
-https://nytimes.com/athletic/6517022/2025/07/27/baseball-hall-of-fame-induction-day-players/
 
