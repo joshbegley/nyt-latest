@@ -1,3 +1,7 @@
+**Mariners' Cal Raleigh first to 40 homers this season. Here are some of his best swings**\
+`Raleigh has the chance to equal the single-season American League home run record if he keeps this pace.`\
+https://nytimes.com/athletic/6514066/2025/07/26/cal-raleigh-mariners-catcher-40-home-runs/
+
 **What we’re hearing about the Cubs' pitching pursuits as the trade deadline nears**\
 `Between the blowout losses, sloppy defense and creaky pitching staff, help should be on the way for the Cubs. `\
 https://nytimes.com/athletic/6517649/2025/07/26/chicago-cubs-trade-deadline-pitching-developments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517492/2025/07/26/nigeria-morocco-wafcon-score-res
 **Right-Wing Influencers Say Ghislaine Maxwell Is Key to Unlocking Epstein Case**\
 `Some conservative influencers have celebrated the move to approach the longtime associate of Jeffrey Epstein, but it comes with risks.`\
 https://nytimes.com/2025/07/26/us/ghislaine-maxwell-trump-epstein.html
-
-**What's trending in the right direction for hot Phillies offense**\
-`Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
-https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/
 
