@@ -1,3 +1,7 @@
+**Man Faces Terrorism Charge in Mass Stabbing at a Michigan Walmart**\
+`The authorities on Sunday said that a motive for the attack, which left 11 people injured, remained unknown. Citizens, including one who was armed, helped to apprehend the suspect, officials said.`\
+https://nytimes.com/2025/07/27/us/walmart-stabbing-traverse-city-charges.html
+
 **Bills Day 4 observations: WR injuries piling up, while backup QB battle intensifies**\
 `Tyrell Shavers left practice on a cart with an ankle injury Sunday, adding to the Bills' concerns at the position.`\
 https://nytimes.com/athletic/6518579/2025/07/27/bills-training-camp-receiver-injuries/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6518307/2025/07/27/england-india-series-jadeja-sund
 **Passengers Evacuate Smoky Plane on Emergency Chute at Denver Airport**\
 `A small fire in the brake system just ahead of the jet’s takeoff prompted the evacuation of 173 passengers and six crew members, the authorities said.`\
 https://nytimes.com/2025/07/27/us/american-airlines-denver-flight.html
-
-**Chargers, OT Rashawn Slater agree to 4-year, $114 million extension: Source**\
-`Deal includes a record $92 million in guaranteed money and makes Slater the highest-paid offensive lineman in NFL history.`\
-https://nytimes.com/athletic/6440626/2025/07/27/chargers-rashawn-slater-nfl-contract-extension/
 
