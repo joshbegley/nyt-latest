@@ -1,5 +1,13 @@
+**Monday Briefing: Ukraine’s Other War**\
+`Also, a U.S.-E.U. trade deal.`\
+https://nytimes.com/2025/07/27/briefing/ukraine-protest-europe-us-trade-deal.html
+
+**Red Sox closer Aroldis Chapman leaves game with back tightness**\
+`The hard-throwing lefty walked the first two batters he faced and recorded one out before exiting in the eighth inning.`\
+https://nytimes.com/athletic/6518858/2025/07/27/aroldis-chapman-leaves-game-red-sox/
+
 **Browns QB Kenny Pickett injures hamstring at practice: Reports**\
-`It is unclear how injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
+`It is unclear how the injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
 https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
 
 **Five things we learned from the first week of Raiders training camp**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/
 **Live Q&A: Tigers trade deadline talk with Cody Stavenhagen at Noon ET Monday**\
 `Tigers writer Cody Stavenhagen will hold a live Q&A at noon on Monday July 28.`\
 https://nytimes.com/athletic/6518738/2025/07/27/live-qa-tigers-trade-deadline-talk-with-cody-stavenhagen-at-noon-et-monday/
-
-**Denver Passengers Evacuate Smoky American Airlines Flight**\
-`Passengers slid down an inflatable emergency chute after the brake system of an airplane at Denver International Airport caught fire on Saturday.`\
-https://nytimes.com/video/us/100000010308057/american-airlines-fire-denver.html
-
-**Man Faces Terrorism Charge in Mass Stabbing at a Michigan Walmart**\
-`The authorities on Sunday said that a motive for the attack, which left 11 people injured, remained unknown. Citizens, including one who was armed, helped to apprehend the suspect, officials said.`\
-https://nytimes.com/2025/07/27/us/walmart-stabbing-traverse-city-charges.html
 
