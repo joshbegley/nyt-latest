@@ -1,3 +1,7 @@
+**Chargers training camp report, Day 9: How Zion Johnson fared in first padded center snaps**\
+`Johnson's first padded run at center had its ups and downs. “He did some really good things," OC Greg Roman said after practice.`\
+https://nytimes.com/athletic/6517833/2025/07/27/chargers-training-camp-zion-johnson-center-evaulation/
+
 **A bases-loaded bunt attempt says everything about the Giants' trade deadline crossroads**\
 `Lee did something that major-league hitters almost never do. He chose to minimize the damage he could inflict.`\
 https://nytimes.com/athletic/6517910/2025/07/27/giants-lose-mets-trade-deadline/
