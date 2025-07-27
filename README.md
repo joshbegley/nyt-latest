@@ -1,3 +1,7 @@
+**Arsenal 3 Newcastle United 2 – The Briefing: Havertz impresses, Gyokeres unveiled, and an exciting Dowman cameo**\
+`Arsenal fans enjoyed a glimpse of both a new signing and a potential star of the future as they bested Newcastle in Singapore`\
+https://nytimes.com/athletic/6518134/2025/07/27/arsenal-newcastle-briefing-singapore-gyokeres-dowman-odegaard/
+
 **5 Podcasts That Illustrate the Ungraspable Nature of Justice**\
 `How a stew of racism, law enforcement misconduct and bureaucratic incompetence led to wrongful convictions on both sides of the Atlantic.`\
 https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518166/2025/07/27/newcastle-transfers-update-eddie
 **Lowetide: 5 Oilers players who could get traded early or late in 2025-26**\
 `Excluding future draft picks, who are Edmonton's five most valuable trade pieces between today and the 2026 trade deadline?`\
 https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2025/
-
-**U.S. swim team dealing with 'acute gastroenteritis' at world championships**\
-`It was not clear how much the illness had impacted the team, but several swimmers either were pulled from their events or struggled Sunday.`\
-https://nytimes.com/athletic/6518105/2025/07/27/usa-swimming-acute-gastroenteritis-world-championships/
 
