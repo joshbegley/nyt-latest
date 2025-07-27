@@ -1,40 +1,40 @@
-**How to watch Fever at Sky: Slumping Chicago aims to end skid vs. Indiana**\
-`The Sky are coming off of their worst loss of the season. Can they bounce back against the short-handed Indiana Fever?`\
-https://nytimes.com/athletic/6517194/2025/07/27/wnba-fever-vs-sky-chicago-angel-reese-how-to-watch/
+**England vs Spain Euro 2025 final: A major tournament rematch, key battles and our predictions**\
+`Another England-Spain final. Who will end Sunday's European Championship as victors?`\
+https://nytimes.com/athletic/6517672/2025/07/27/england-vs-spain-euro-2025-final-matchups-predictions/
 
-**Denver Pastor and Wife Face Charges in ‘God-Inspired’ Cryptocurrency Scheme**\
-`The pastor, Eligio Regalado, and his wife, Kaitlyn Regalado, spent more than $1 million of investor funds on home renovations, plane tickets and au pair services, prosecutors said.`\
-https://nytimes.com/2025/07/27/us/colorado-pastor-crypto-scam.html
+**Four things that mattered from the Bengals' first week of training camp**\
+`We dig into Shemar Stewart's signing, Evan McPherson's new (old) approach, Jermaine Burton's progress in Year 2 and the guard battles.`\
+https://nytimes.com/athletic/6517182/2025/07/27/bengals-training-camp-shemar-stewart-jermaine-burton/
 
-**No Meals, Fainting Nurses, Dwindling Baby Formula: Starvation Haunts Gaza Hospitals**\
-`After Israeli restrictions on aid, hunger has risen across Gaza. Doctors and nurses, struggling to find food themselves, lack the resources to stem the surge.`\
-https://nytimes.com/2025/07/27/world/middleeast/gaza-hunger-doctors-nurses.html
+**The Tigers lost a Tarik Skubal start, and the search for answers continues**\
+`The Tigers have lost 12 of 13 games, and they squandered their best chance at a reset Saturday with Skubal on the mound.`\
+https://nytimes.com/athletic/6517628/2025/07/27/tigers-lose-tarik-skubal-start-blue-jays/
 
-**What Will It Cost to Renovate the ‘Free’ Air Force One? Don’t Ask.**\
-`To hide the cost of renovating the plane Qatar donated to President Trump, the Air Force appears to have tucked it inside an over-budget, behind-schedule nuclear modernization program.`\
-https://nytimes.com/2025/07/27/us/politics/air-force-one-trump-cost.html
+**Wordle Review No. 1,500**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 28, 2025.`\
+https://nytimes.com/2025/07/27/crosswords/wordle-review-1500.html
 
-**Germany’s Far-Right Party May Be Banned. Its Voters Fear Being Left Voiceless.**\
-`Supporters of the Alternative for Germany say they might quit voting if the party is outlawed. Some opponents are against such a move, too.`\
-https://nytimes.com/2025/07/27/world/europe/alternative-for-germany-ban-voters.html
+**What we learned from Detroit Lions' first week of training camp**\
+`Aidan Hutchinson looks like his old self, while Jahmyr Gibbs continues to expand his game. `\
+https://nytimes.com/athletic/6517248/2025/07/27/detroit-lions-training-camp-aidan-hutchinson-jahmyr-gibbs/
 
-**‘The Fantastic Four: First Steps’ Breaks a Box Office Curse**\
-`The movie, the fifth effort to adapt the comic characters for the big screen, was expected to collect about $220 million worldwide in its first weekend.`\
-https://nytimes.com/2025/07/27/business/media/the-fantastic-four-first-steps-box-office.html
+**Strands Sidekick No. 512**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 28, 2025.`\
+https://nytimes.com/2025/07/27/crosswords/strands-sidekick-512.html
 
-**Ralph Lauren’s Vintage Man of Mystery**\
-`At 71, Doug Bihlmaier has become a style hero to fashion-savvy social media creators.`\
-https://nytimes.com/2025/07/27/style/ralph-laurens-vintage-man-of-mystery.html
+**Connections Companion No. 778**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 28, 2025.`\
+https://nytimes.com/2025/07/27/crosswords/connections-companion-778.html
 
-**Italian Flag Colors Were Removed From a Street. Residents Rebelled.**\
-`Newton, Mass., replaced a street’s red, white and green centerline with standard yellow stripes, citing traffic safety concerns, weeks before an annual Italian American festival.`\
-https://nytimes.com/2025/07/27/us/italy-street-newton-massachusetts.html
+**Why are one of the best teams at this year's Tour de France struggling to find a new title sponsor?**\
+`Alpecin-Deceuninck have stars Mathieu van der Poel and Jasper Philipsen in their ranks but the Belgian squad face an uncertain future `\
+https://nytimes.com/athletic/6517290/2025/07/27/alpecin-deceuninck-sponsor-search-tour-de-france-van-der-poel/
 
-**In Smithsonian Role, John Roberts Encounters History, Pandas and Trump**\
-`Chief Justice John G. Roberts Jr., who serves as the institution’s chancellor, has always emphasized procedure and avoided politics. This moment could make that more difficult.`\
-https://nytimes.com/2025/07/27/arts/smithsonian-john-roberts-trump-supreme-court.html
+**2027 Women's World Cup to remain free-to-air for fans after BBC and ITV agree rights**\
+`The partnership between ITV and BBC that has seen record audiences over the 2025 Euros will also show the upcoming World Cup.`\
+https://nytimes.com/athletic/6517950/2025/07/27/2027-womens-world-cup-free-to-air-bbc-itv-agree-rights/
 
-**The Baseball Hall of Fame enshrines 5 new members. Here's how to watch the ceremony**\
-`Five all-time greats get immortalized this weekend at the National Baseball Hall of Fame's annual induction ceremony.`\
-https://nytimes.com/athletic/6513938/2025/07/27/baseball-hall-of-fame-2025-how-to-watch/
+**Ichiro, Sabathia, Wagner, Parker, Allen to be inducted into Baseball Hall of Fame**\
+`Ichiro Suzuki, CC Sabathia and Billy Wagner and the late Dave Parker and Dick Allen will be honored. A look at their paths to the Hall. `\
+https://nytimes.com/athletic/6517022/2025/07/27/baseball-hall-of-fame-induction-day-players/
 
