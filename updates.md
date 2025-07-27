@@ -1,3 +1,7 @@
+**Chargers, OT Rashawn Slater agree to 4-year, $114 million extension: Source**\
+`Deal includes a record $92 million in guaranteed money and makes Slater the highest-paid offensive lineman in NFL history.`\
+https://nytimes.com/athletic/6440626/2025/07/27/chargers-rashawn-slater-nfl-contract-extension/
+
 **Astros GM Dana Brown says Isaac Paredes' injury is 'more severe than we projected'**\
 `Houston's All-Star third baseman injured his right hamstring on July 19 and could face an extended absence: "It's tough to be optimistic."`\
 https://nytimes.com/athletic/6518486/2025/07/27/isaac-paredes-injury-astros-dana-brown/
