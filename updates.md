@@ -1,3 +1,7 @@
+**Chelsea youth coach Coelho set to leave club to join Strasbourg**\
+`Coelho was hired by Chelsea to lead their development squad in July 2024 after a season as under-23 coach at Estoril.`\
+https://nytimes.com/athletic/6518295/2025/07/27/chelsea-news-filipe-coelho/
+
 **Belgian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Belgian Grand Prix?`\
 https://nytimes.com/athletic/6518385/2025/07/27/belgian-grand-prix-f1-mailbag/
