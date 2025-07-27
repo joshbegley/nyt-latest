@@ -1,3 +1,11 @@
+**Dustin May's uneven season continues in critical start just ahead of trade deadline**\
+`May had a lead when the fifth inning began and a chance to rewrite the story of his season. Instead, it was more of the same.`\
+https://nytimes.com/athletic/6519019/2025/07/27/dustin-may-dodgers-trade-deadline/
+
+**What I'm hearing on MLB trade deadline: Astros have shown interest in Eugenio Suárez**\
+`A Twins utilityman might make more sense than Arizona's third baseman, plus notes on other deadline options and Cam Smith's recent slide.`\
+https://nytimes.com/athletic/6519081/2025/07/27/astros-mlb-trade-deadline-eugenio-suarez-willi-castro/
+
 **Matt Shaw's recent surge won't end the Cubs' pursuit of Eugenio Suárez at the trade deadline**\
 `Since the All-Star break, Shaw has hit four of his six home runs while posting a .444 batting average.`\
 https://nytimes.com/athletic/6519056/2025/07/27/chicago-cubs-eugenio-suarez-trade-deadline-pursuit/
