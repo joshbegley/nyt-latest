@@ -1,3 +1,7 @@
+**The Protein Boom**\
+`Protein is remaking the food economy. How much do you really need?`\
+https://nytimes.com/2025/07/27/briefing/the-protein-boom.html
+
 **Israel Says It Has Paused Some Military Activity in Gaza as Anger Grows Over Hunger**\
 `Operations in three parts of the enclave were temporarily halted on Sunday to allow more aid to enter the territory, the Israeli military said. It was unclear if the decision would relieve the hunger crisis in Gaza.`\
 https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-aid-hunger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/opinion/trump-executive-order.html
 **‘1984’ Hasn’t Changed, but America Has**\
 `Some of the same titles and authors the C.I.A. sent east during the Cold War, including “1984,” are now deemed objectionable across the United States.`\
 https://nytimes.com/2025/07/27/opinion/1984-cia-book-ban.html
-
-**Sarmiento set to leave Brighton on permanent deal before end of transfer window**\
-`The Ecuadorian winger scored four goals on loan at Burnley last season as they finished second in the Championship and got promoted. `\
-https://nytimes.com/athletic/6517923/2025/07/27/brighton-jeremy-sarmiento-permanent-transfer-news/
 
