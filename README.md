@@ -1,3 +1,15 @@
+**Dolphins, Minkah Fitzpatrick agree to revised deal including $16 million signing bonus**\
+`The revised deal includes a $16.245 million signing bonus.`\
+https://nytimes.com/athletic/6518338/2025/07/27/dolphins-minkah-fitzpatrick-revised-contract/
+
+**Live trade deadline Q&A with Astros writer Chandler Rome on Monday at noon CT**\
+`Submit your questions about what Houston might do at the deadline in a live chat.`\
+https://nytimes.com/athletic/6517557/2025/07/27/astros-mlb-trade-deadline-live-chat-chandler-rome/
+
+**Joan Anderson, Unsung Heroine of Hula Hoop History, Dies at 101**\
+`Because of a deal made on a handshake in a parking lot, she was long left out of a famous toy’s story. When she was 94, a documentary changed that.`\
+https://nytimes.com/2025/07/27/business/joan-anderson-dead.html
+
 **Bulls extend head coach Billy Donovan: Source**\
 `Donovan, a member of the Naismith Basketball Hall of Fame 2025 induction class, will enter his sixth season at the helm.`\
 https://nytimes.com/athletic/6518394/2025/07/27/bulls-billy-donovan-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6518101/2025/07/27/belgian-grand-prix-briefing-osca
 **Arsenal 3 Newcastle 2: Elanga impresses, Osula stands in for Isak (again), Botman concern**\
 `Newcastle's latest pre-season defeat at least brought some positives. There was no Isak again but Elanga is off the mark `\
 https://nytimes.com/athletic/6518019/2025/07/27/newcastle-isak-elanga-osula-botman/
-
-**New LPGA star? Woad wins in her first week as professional**\
-`No one had won their first LPGA event as a tour member since 2018. Woad is only the third overall.`\
-https://nytimes.com/athletic/6518294/2025/07/27/lpga-lottie-woad-scottish-open/
-
-**Arsenal 3 Newcastle United 2 – The Briefing: Havertz impresses, Gyokeres unveiled, and an exciting Dowman cameo**\
-`Arsenal fans enjoyed a glimpse of both a new signing and a potential star of the future as they bested Newcastle in Singapore`\
-https://nytimes.com/athletic/6518134/2025/07/27/arsenal-newcastle-briefing-singapore-gyokeres-dowman-odegaard/
-
-**5 Podcasts That Illustrate the Ungraspable Nature of Justice**\
-`How a stew of racism, law enforcement misconduct and bureaucratic incompetence led to wrongful convictions on both sides of the Atlantic.`\
-https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
 
