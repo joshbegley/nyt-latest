@@ -1,3 +1,8 @@
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **Denver Passengers Evacuate Smoky American Airlines Flight**\
 `Passengers slid down an inflatable emergency chute after the brake system of an airplane at Denver International Airport caught fire on Saturday.`\
 https://nytimes.com/video/us/100000010308057/american-airlines-fire-denver.html
