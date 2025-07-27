@@ -1,3 +1,19 @@
+**England’s epic Euro 2025 final penalty shootout: Notes under sleeves, a retaken kick and ice-cold Kelly**\
+`England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final.`\
+https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/
+
+**Packers training camp: Matt LaFleur wants Nate Hobbs to scale back and 9 more observations**\
+`Hobbs' physicality is what attracted him to the Packers in free agency, but LaFleur would rather he not be so physical in training camp.`\
+https://nytimes.com/athletic/6518898/2025/07/27/packers-matt-lafleur-nate-hobbs/
+
+**Constellation Part**\
+`Brian Callahan sees things differently.`\
+https://nytimes.com/2025/07/27/crosswords/daily-puzzle-2025-07-28.html
+
+**U.S. and Europe Reach Preliminary Trade Deal With 15% Tariffs**\
+`The deal, which would set a 15 percent tariff on most E.U. goods, averted what could have become a painful trade war with the United States’ biggest source of imports.`\
+https://nytimes.com/video/world/europe/100000010308174/trump-us-eu-tariffs-trade.html
+
 **Aid Trickles Into Parts of Gaza as Israel Pauses Some Military Activity**\
 `Israel’s move comes amid growing international pressure over the dire conditions and hunger crisis in the Gaza Strip.`\
 https://nytimes.com/video/world/middleeast/100000010308116/gaza-aid-distribution-hunger.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
 **Five things we learned from the first week of Raiders training camp**\
 `What to take away from the Christian Wilkins situation, wide receivers struggling to separate and Jackson Powers-Johnson's new maturity.`\
 https://nytimes.com/athletic/6518587/2025/07/27/raiders-training-camp-christian-wilkins-jackson-powers-johnson/
-
-**England's Bronze says she played in Euros with fractured leg**\
-`Bronze played in all six of England’s successful Euro campaign, including playing 105 minutes of her side’s victory in the final over Spain.`\
-https://nytimes.com/athletic/6518788/2025/07/27/england-women-euros-bronze-injury-leg/
-
-**Leaders of Parallel Government Named in War-Torn Sudan**\
-`The move by a paramilitary-led coalition may make it even harder for the African country to hold together.`\
-https://nytimes.com/2025/07/27/world/africa/sudan-rsf-government.html
-
-**Live Q&A: Padres trade deadline talk with Dennis Lin at Noon PT Monday**\
-`Padres writer Dennis Lin will hold a live Q&A at noon PT on Monday July 28.`\
-https://nytimes.com/athletic/6518778/2025/07/27/live-qa-padres-trade-deadline-monday/
-
-**Naomi Osaka splits with coach Patrick Mouratoglou as tennis hard-court swing begins**\
-`Osaka's time with Mouratologou followed an up-and-down sequence of promising signs and frustrations with either injury or close-run defeats.`\
-https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-mouratoglou-coach-split/
 
