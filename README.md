@@ -2,7 +2,7 @@
 `It is unclear how injury will impact practice reps for Cleveland's other quarterbacks, Joe Flacco, Dillon Gabriel and Shedeur Sanders.`\
 https://nytimes.com/athletic/6518827/2025/07/27/browns-qb-kenny-pickett-injury/
 
-**5 things we learned from the first week of Raiders training camp**\
+**Five things we learned from the first week of Raiders training camp**\
 `What to take away from the Christian Wilkins situation, wide receivers struggling to separate and Jackson Powers-Johnson's new maturity.`\
 https://nytimes.com/athletic/6518587/2025/07/27/raiders-training-camp-christian-wilkins-jackson-powers-johnson/
 
