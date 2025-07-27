@@ -1,3 +1,7 @@
+**Grades: Royals acquire OF Randal Grichuk from D-Backs to boost outfield**\
+`The Royals’ outfield ranks last in the majors in offensive output, with a 64 wRC+, 17% worse than the second-worst outfield.`\
+https://nytimes.com/athletic/6517549/2025/07/26/royals-randal-grichuk-trade-diamondbacks/
+
 **Royals acquire OF Randal Grichuk from D-backs to boost outfield: Source**\
 `The Royals’ outfield ranks last in the majors in offensive output, with a 64 wRC+, 17% worse than the second-worst outfield.`\
 https://nytimes.com/athletic/6517549/2025/07/26/royals-randal-grichuk-trade-diamondbacks/
