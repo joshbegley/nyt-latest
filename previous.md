@@ -1,3 +1,7 @@
+**Aid Trickles Into Parts of Gaza as Israel Pauses Some Military Activity**\
+`Israel’s move comes amid growing international pressure over the dire conditions and hunger crisis in the Gaza Strip.`\
+https://nytimes.com/video/world/middleeast/100000010308116/gaza-aid-distribution-hunger.html
+
 **Dozens Are Killed by ISIS-Linked Rebels at a Church in Congo**\
 `The attack raised questions about diplomatic efforts to end the conflict in the Central African country.`\
 https://nytimes.com/2025/07/27/world/africa/congo-isis-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518778/2025/07/27/live-qa-padres-trade-deadline-mo
 **Naomi Osaka splits with coach Patrick Mouratoglou as tennis hard-court swing begins**\
 `Osaka's time with Mouratologou followed an up-and-down sequence of promising signs and frustrations with either injury or close-run defeats.`\
 https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-mouratoglou-coach-split/
-
-**Inside the Lionesses' Euro 2025 win: Wiegman's 'new England' mantra, 'hard' talks and... penalties**\
-`England retained the European Championship trophy with victory over Spain. This is the story of their triumphant tournament`\
-https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/
 

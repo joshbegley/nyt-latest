@@ -1,3 +1,7 @@
+**Aid Trickles Into Parts of Gaza as Israel Pauses Some Military Activity**\
+`Israel’s move comes amid growing international pressure over the dire conditions and hunger crisis in the Gaza Strip.`\
+https://nytimes.com/video/world/middleeast/100000010308116/gaza-aid-distribution-hunger.html
+
 **Dozens Are Killed by ISIS-Linked Rebels at a Church in Congo**\
 `The attack raised questions about diplomatic efforts to end the conflict in the Central African country.`\
 https://nytimes.com/2025/07/27/world/africa/congo-isis-attack.html
