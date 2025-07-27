@@ -1,3 +1,7 @@
+**Breanna Stewart exits game vs. Sparks with leg injury, will not return**\
+`Stewart played the game's first 3:27 and appeared to injure her leg running up the court in transition.`\
+https://nytimes.com/athletic/6517540/2025/07/26/liberty-breanna-stewart-leg-injury-sparks-wnba/
+
 **Steelers camp: Joey Porter, DK Metcalf battle; DeShon Elliott clears air with Aaron Rodgers**\
 `DeShon Elliott walked back his "retirement home" comment about Rodgers, who had a tough day, including an interception by Jalen Ramsey.`\
 https://nytimes.com/athletic/6517491/2025/07/26/steelers-training-camp-joey-porter-dk-metcalf/

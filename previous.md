@@ -1,3 +1,7 @@
+**Breanna Stewart exits game vs. Sparks with leg injury, will not return**\
+`Stewart played the game's first 3:27 and appeared to injure her leg running up the court in transition.`\
+https://nytimes.com/athletic/6517540/2025/07/26/liberty-breanna-stewart-leg-injury-sparks-wnba/
+
 **Steelers camp: Joey Porter, DK Metcalf battle; DeShon Elliott clears air with Aaron Rodgers**\
 `DeShon Elliott walked back his "retirement home" comment about Rodgers, who had a tough day, including an interception by Jalen Ramsey.`\
 https://nytimes.com/athletic/6517491/2025/07/26/steelers-training-camp-joey-porter-dk-metcalf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/26/us/czuba-palestinian-boy-stabbing.html
 **Kansas coach Bill Self released from hospital after undergoing heart procedure**\
 `"I feel strong and am excited to be home. … I'm looking forward to recharging and preparing for the upcoming season."`\
 https://nytimes.com/athletic/6517391/2025/07/26/kansas-bill-self-released-from-hospital/
-
-**11 People Are Injured in Stabbing Spree at a Michigan Walmart, Officials Say**\
-`One person was in custody after what the authorities said was a random attack at a store near Traverse City, Mich.`\
-https://nytimes.com/2025/07/26/us/stabbing-traverse-city-walmart.html
 
