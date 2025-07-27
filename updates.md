@@ -1,3 +1,7 @@
+**Live Q&A: Padres trade deadline talk with Dennis Lin at Noon PT Monday**\
+`Padres writer Dennis Lin will hold a live Q&A at noon PT on Monday July 28.`\
+https://nytimes.com/athletic/6518778/2025/07/27/live-qa-padres-trade-deadline-monday/
+
 **Naomi Osaka splits with coach Patrick Mouratoglou ahead of tennis hard-court swing**\
 `Osaka's time with Mouratologou followed an up-and-down sequence of promising signs and frustrations with either injury or close-run defeats.`\
 https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-mouratoglou-coach-split/
