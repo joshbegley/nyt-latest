@@ -1,3 +1,11 @@
+**Dozens of Wildfires Burn in Greece and Turkey as Temperatures Soar**\
+`Firefighters are battling several blazes, with officials warning that extreme heat will pose a risk of more in the coming days.`\
+https://nytimes.com/2025/07/27/world/europe/greek-wildfires-athens-evacuations.html
+
+**Howe says Newcastle 'not deluded' and recognise transfer need**\
+`Anthony Elanga, who scored at the Singapore National Stadium on his full debut, is Newcastle's only summer signing so far.`\
+https://nytimes.com/athletic/6518166/2025/07/27/newcastle-transfers-update-eddie-howe/
+
 **Lowetide: 5 Oilers players who could get traded early or late in 2025-26**\
 `Excluding future draft picks, who are Edmonton's five most valuable trade pieces between today and the 2026 trade deadline?`\
 https://nytimes.com/athletic/6517169/2025/07/27/edmonton-oilers-players-trades-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/27/opinion/ai-schools.html
 **The Raw Power of Repentance**\
 `“The Bear” asks the question, how do we live together when someone always seems to be going too far?`\
 https://nytimes.com/2025/07/27/opinion/the-bear-carmy-jeremy-allen-white.html
-
-**Terry McLaurin reports to Commanders camp without contract extension**\
-`The 29-year-old receiver has yet to receive the contract extension he wants, but McLaurin reported to Commanders training camp on Saturday.`\
-https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commanders-contract-extension/
-
-**Bayern close on €75m signing of Liverpool's Diaz**\
-`Diaz, who has a contract at Anfield until June 2027, has made it clear he wants to leave the Anfield club this summer.`\
-https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer-liverpool/
 
