@@ -1,8 +1,20 @@
+**5 things we learned from the first week of Raiders training camp**\
+`What to take away from the Christian Wilkins situation, wide receivers struggling to separate and Jackson Powers-Johnson's new maturity.`\
+https://nytimes.com/athletic/6518587/2025/07/27/raiders-training-camp-christian-wilkins-jackson-powers-johnson/
+
+**England's Bronze says she played in Euros with fractured leg**\
+`Bronze played in all six of England’s successful Euro campaign, including playing 105 minutes of her side’s victory in the final over Spain.`\
+https://nytimes.com/athletic/6518788/2025/07/27/england-women-euros-bronze-injury-leg/
+
+**Leaders of Parallel Government Named in War-Torn Sudan**\
+`The move by a paramilitary-led coalition may make it even harder for the African country to hold together.`\
+https://nytimes.com/2025/07/27/world/africa/sudan-rsf-government.html
+
 **Live Q&A: Padres trade deadline talk with Dennis Lin at Noon PT Monday**\
 `Padres writer Dennis Lin will hold a live Q&A at noon PT on Monday July 28.`\
 https://nytimes.com/athletic/6518778/2025/07/27/live-qa-padres-trade-deadline-monday/
 
-**Naomi Osaka splits with coach Patrick Mouratoglou ahead of tennis hard-court swing**\
+**Naomi Osaka splits with coach Patrick Mouratoglou as tennis hard-court swing begins**\
 `Osaka's time with Mouratologou followed an up-and-down sequence of promising signs and frustrations with either injury or close-run defeats.`\
 https://nytimes.com/athletic/6518742/2025/07/27/tennis-naomi-osaka-patrick-mouratoglou-coach-split/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/27/us/walmart-stabbing-traverse-city-charges.html
 **Bills Day 4 observations: WR injuries piling up, while backup QB battle intensifies**\
 `Tyrell Shavers left practice on a cart with an ankle injury Sunday, adding to the Bills' concerns at the position.`\
 https://nytimes.com/athletic/6518579/2025/07/27/bills-training-camp-receiver-injuries/
-
-**Train Derails in Germany, With Casualties Reported**\
-`The accident occurred near the southern city of Ulm.`\
-https://nytimes.com/2025/07/27/world/europe/train-derailment-accident-germany.html
-
-**Tour de France stage 21: Pogacar seals overall victory for fourth time, Van Aert masters Montmartre, why was race neutralized?**\
-`Analysis of the final day of action at the 2025 Tour de France – a 132km stage finishing on the Champs-Élysées in Paris`\
-https://nytimes.com/athletic/6518344/2025/07/27/tour-de-france-stage-21-analysis/
-
-**'As brave as I dared': How Oscar Piastri’s fearlessness won him the Belgian GP**\
-`Oscar Piastri pulled off a brave, brilliant move to overtake Norris - and it says a lot about his role in the 2025 title fight`\
-https://nytimes.com/athletic/6518495/2025/07/27/oscar-piastri-belgian-gp-f1-winning-move/
 
