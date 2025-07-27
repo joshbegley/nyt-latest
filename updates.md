@@ -1,3 +1,7 @@
+**Bayern close on €75m signing of Liverpool's Diaz**\
+`Diaz, who has a contract at Anfield until June 2027, has made it clear he wants to leave the Anfield club this summer.`\
+https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer-liverpool/
+
 **Al Nassr agree transfer for Chelsea's Joao Felix**\
 `The 25-year-old was not included in Chelsea's 28-man squad for the Club World Cup after his loan at AC Milan concluded.`\
 https://nytimes.com/athletic/6424516/2025/07/27/joao-felix-saudi-transfer-chelsea-news/

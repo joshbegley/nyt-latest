@@ -1,3 +1,7 @@
+**Bayern close on €75m signing of Liverpool's Diaz**\
+`Diaz, who has a contract at Anfield until June 2027, has made it clear he wants to leave the Anfield club this summer.`\
+https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer-liverpool/
+
 **Summer McIntosh rolls to 400-meter freestyle gold at worlds, as Katie Ledecky takes bronze**\
 `In the first of two anticipated showdowns at world championships, the Canadian phenom McIntosh was dominant against the American Ledecky.`\
 https://nytimes.com/athletic/6515308/2025/07/27/summer-mcintosh-katie-ledecky-400-meter-freestyle-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517296/2025/07/27/sam-shaw-toronto-blue-jays/
 **José Andrés: People of Good Conscience Must Stop the Starvation in Gaza**\
 `Israel is responsible for the basic survival of civilians in Gaza.`\
 https://nytimes.com/2025/07/27/opinion/gaza-starvation-famine-israel.html
-
-**The Elite Panic at the Heart of Liberal Attacks on Mamdani**\
-`Mamdani’s detractors don’t care about his race; they care about clawing back a century of civil rights.`\
-https://nytimes.com/2025/07/27/opinion/mamdani-race-college-admissions.html
 
