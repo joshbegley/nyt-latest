@@ -1,3 +1,7 @@
+**Brighton defender Webster will undergo surgery on knee ligament injury**\
+`Brighton have maintained a 100% record across their pre-season but will miss Webster for much of the upcoming campaign.`\
+https://nytimes.com/athletic/6517887/2025/07/27/brighton-adam-webster-knee-surgery-ligament-injury/
+
 **Can Mamdani’s Message Play Outside New York? It Already Has.**\
 `Zohran Mamdani’s mayoral primary victory in New York follows wins by other big-city progressives. Are voters more open to backing progressive stances?`\
 https://nytimes.com/2025/07/27/nyregion/mamdani-wu-progressive-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/opinion/posting-vacation-photos.html
 **Padres, Cardinals clear benches after unintentional hit-by-pitch**\
 `Despite warnings issued to both teams earlier in the game, umpire Lance Barrett deemed Granillo did not intentionally throw at Machado.`\
 https://nytimes.com/athletic/6517675/2025/07/27/padres-cardinals-manny-machado-jon-jay-benches/
-
-**Red Sox beat Dodgers, hope to convince front office to add at trade deadline**\
-`"Reinforcements for sure, just to bolster us for a deep run," Red Sox shortstop Trevor Story said. `\
-https://nytimes.com/athletic/6517741/2025/07/27/red-sox-win-dodgers-trade-deadline-adds/
 
