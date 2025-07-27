@@ -1,3 +1,7 @@
+**U.S. Reaches Trade Deal With Europe**\
+`The United States and the European Union agreed to a 15 percent base tariff after weeks of negotiations, which were among the Trump administration’s most difficult discussions.`\
+https://nytimes.com/2025/07/27/world/europe/eu-trade-deal-trump-tariffs.html
+
 **Massie Criticizes Johnson on Recess as He Tries to Force Epstein Files Vote**\
 `“I don’t know why it should be politically painful to be transparent,” Representative Thomas Massie, a Kentucky Republican, said on Sunday, referring to comments by Speaker Mike Johnson.`\
 https://nytimes.com/2025/07/27/us/politics/massie-johnson-house-epstein-files.html
