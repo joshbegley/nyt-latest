@@ -1,3 +1,7 @@
+**Al Nassr agree transfer for Chelsea's Joao Felix**\
+`The 25-year-old was not included in Chelsea's 28-man squad for the Club World Cup after his loan at AC Milan concluded.`\
+https://nytimes.com/athletic/6424516/2025/07/27/joao-felix-saudi-transfer-chelsea-news/
+
 **Summer McIntosh rolls to 400-meter freestyle gold at worlds, as Katie Ledecky takes bronze**\
 `In the first of two anticipated showdowns at world championships, the Canadian phenom McIntosh was dominant against the American Ledecky.`\
 https://nytimes.com/athletic/6515308/2025/07/27/summer-mcintosh-katie-ledecky-400-meter-freestyle-world-championships/
