@@ -1,3 +1,8 @@
+**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
+`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
+`\
+https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
+
 **Man Faces Terrorism Charge in Mass Stabbing at a Michigan Walmart**\
 `The authorities on Sunday said that a motive for the attack, which left 11 people injured, remained unknown. Citizens, including one who was armed, helped to apprehend the suspect, officials said.`\
 https://nytimes.com/2025/07/27/us/walmart-stabbing-traverse-city-charges.html
