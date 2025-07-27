@@ -1,3 +1,11 @@
+**Inside the Lionesses' Euro 2025 win: Wiegman's 'new England' mantra, 'hard' talks and... penalties**\
+`England retained the European Championship trophy with victory over Spain. This is the story of their triumphant tournament`\
+https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/
+
+**Live Q&A: Tigers trade deadline talk with Cody Stavenhagen at Noon ET Monday**\
+`Tigers writer Cody Stavenhagen will hold a live Q&A at noon on Monday July 28.`\
+https://nytimes.com/athletic/6518738/2025/07/27/live-qa-tigers-trade-deadline-talk-with-cody-stavenhagen-at-noon-et-monday/
+
 **Denver Passengers Evacuate Smoky American Airlines Flight**\
 `Passengers slid down an inflatable emergency chute after the brake system of an airplane at Denver International Airport caught fire on Saturday.`\
 https://nytimes.com/video/us/100000010308057/american-airlines-fire-denver.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6518114/2025/07/27/england-1-1-spain-euro-2025-fina
 **Hannah Hampton: How a goalkeeper with almost no depth perception helped England win the Euros**\
 `England's No 1 Hannah Hampton's eye condition means she 'can't judge distances'. We explore how it is still possible to be an elite keeper`\
 https://nytimes.com/athletic/6480358/2025/07/27/hannah-hampton-eyesight-vision-depth-perception/
-
-**Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
-`Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
-`\
-https://nytimes.com/athletic/6518487/2025/07/27/bengals-shemar-stewart-holdout-football/
-
-**England, India and a compelling Test series that is proving impossible to predict**\
-`The defiance of Washington Sundar and Ravindra Jadeja means India could draw the series at the Oval – both teams are out on their feet`\
-https://nytimes.com/athletic/6518307/2025/07/27/england-india-series-jadeja-sundar-stokes-gill/
 

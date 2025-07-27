@@ -1,3 +1,11 @@
+**Inside the Lionesses' Euro 2025 win: Wiegman's 'new England' mantra, 'hard' talks and... penalties**\
+`England retained the European Championship trophy with victory over Spain. This is the story of their triumphant tournament`\
+https://nytimes.com/athletic/6518277/2025/07/27/england-euro-2025-inside-story/
+
+**Live Q&A: Tigers trade deadline talk with Cody Stavenhagen at Noon ET Monday**\
+`Tigers writer Cody Stavenhagen will hold a live Q&A at noon on Monday July 28.`\
+https://nytimes.com/athletic/6518738/2025/07/27/live-qa-tigers-trade-deadline-talk-with-cody-stavenhagen-at-noon-et-monday/
+
 **Bengals' Shemar Stewart has ‘no regrets’ about holdout: ‘All football now'**\
 `Stewart expects to enjoy a fresh start after the nasty back and forth it took to arrive at this moment.
 `\
