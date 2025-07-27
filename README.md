@@ -1,3 +1,11 @@
+**England vs Spain Euro 2025 final odds, prediction: Will World Cup rematch be a repeat?**\
+`Spain is clearly favoured in the Euro 2025 final. Will it be a repeat of the World Cup final or will England retain its European crown?`\
+https://nytimes.com/athletic/6514335/2025/07/27/england-spain-euro-2025-final-odds-prediction/
+
+**Balls in behind, beat the counter-press and set pieces: How England can beat Spain**\
+`How the defending champions can defeat the World Cup holders in the Euro 2025 final on Sunday evening`\
+https://nytimes.com/athletic/6515098/2025/07/27/england-spain-euro-2025-analysis-preview/
+
 **Stephanie Frappart, the trailblazing referee in charge of Euro 2025 final**\
 `Frappart has refereed 111 UEFA matches since becoming an international official in 2011.`\
 https://nytimes.com/athletic/6513509/2025/07/27/stephanie-frappart-referee-euro-2025-final/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/26/world/asia/thailand-cambodia-conflict.html
 **Mariners' Cal Raleigh first to 40 homers this season. Here are some of his best swings**\
 `Raleigh has the chance to equal the single-season American League home run record if he keeps this pace.`\
 https://nytimes.com/athletic/6514066/2025/07/26/cal-raleigh-mariners-catcher-40-home-runs/
-
-**What we’re hearing about the Cubs' pitching pursuits as the trade deadline nears**\
-`Between the blowout losses, sloppy defense and creaky pitching staff, help should be on the way for the Cubs. `\
-https://nytimes.com/athletic/6517649/2025/07/26/chicago-cubs-trade-deadline-pitching-developments/
-
-**Yankees bolster depth by adding Amed Rosario from Nationals for Clayton Beeter, prospect**\
-`The Yankees continue to add to their infield, acquiring Rosario a day after trading for third baseman Ryan McMahon.`\
-https://nytimes.com/athletic/6517633/2025/07/26/yankees-amed-rosario-trade-nationals/
 
