@@ -1,3 +1,11 @@
+**Yankees trade deadline live Q&A with Chris Kirschner on Monday at 1 p.m. ET**\
+`Yankees beat writer Chris Kirschner will answer subscribers’ questions from 1 to 1:45 p.m. ET on Monday. Questions can be submitted now.`\
+https://nytimes.com/athletic/6518483/2025/07/27/yankees-trade-deadline-questions-submit/
+
+**Chelsea youth coach Coelho set to leave club and join Strasbourg**\
+`Coelho was hired by Chelsea to lead their development squad in July 2024 after a season as under-23 coach at Estoril.`\
+https://nytimes.com/athletic/6518295/2025/07/27/chelsea-news-filipe-coelho/
+
 **Thailand-Cambodia Fighting Forces Thousands to Flee**\
 `The conflict is one of the deadliest clashes ever between the two countries. Thirty-four people have died, and over 165,000 have been displaced.`\
 https://nytimes.com/2025/07/27/world/asia/thailand-cambodia-border-conflict-evacuees.html
