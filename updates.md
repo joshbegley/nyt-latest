@@ -1,3 +1,7 @@
+**Smoke From Canadian Wildfires Wafts Over New York City**\
+`Officials warned young children and those with respiratory illnesses to take precautions. For weeks, smoke from Canadian wildfires has been drifting across the border.`\
+https://nytimes.com/2025/07/27/nyregion/new-york-air-quality-canada-wildfires.html
+
 **Brighton defender Webster will undergo surgery on knee ligament injury**\
 `Brighton have maintained a 100% record across their pre-season but will miss Webster for much of the upcoming campaign.`\
 https://nytimes.com/athletic/6517887/2025/07/27/brighton-adam-webster-knee-surgery-ligament-injury/

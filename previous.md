@@ -1,3 +1,7 @@
+**Smoke From Canadian Wildfires Wafts Over New York City**\
+`Officials warned young children and those with respiratory illnesses to take precautions. For weeks, smoke from Canadian wildfires has been drifting across the border.`\
+https://nytimes.com/2025/07/27/nyregion/new-york-air-quality-canada-wildfires.html
+
 **Brighton defender Webster will undergo surgery on knee ligament injury**\
 `Brighton have maintained a 100% record across their pre-season but will miss Webster for much of the upcoming campaign.`\
 https://nytimes.com/athletic/6517887/2025/07/27/brighton-adam-webster-knee-surgery-ligament-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/27/todays-new-york-times
 **If I Don’t Post About My Vacation, Did It Even Happen?**\
 `I know that craving the high of posting, of all those comments and hearts, is lame, but leaving is really hard.`\
 https://nytimes.com/2025/07/27/opinion/posting-vacation-photos.html
-
-**Padres, Cardinals clear benches after unintentional hit-by-pitch**\
-`Despite warnings issued to both teams earlier in the game, umpire Lance Barrett deemed Granillo did not intentionally throw at Machado.`\
-https://nytimes.com/athletic/6517675/2025/07/27/padres-cardinals-manny-machado-jon-jay-benches/
 
