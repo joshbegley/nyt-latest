@@ -1,3 +1,7 @@
+**Austin Hill given reckless driving penalty for crash at Indianapolis**\
+`The incident occurred during the closing laps when Almirola and Hill were racing for position inside the top 10 when Almirola got into Hill’`\
+https://nytimes.com/athletic/6517569/2025/07/26/austin-hill-reckless-driving-penalty-nascar/
+
 **Grades: Royals acquire OF Randal Grichuk from D-Backs to boost outfield**\
 `The Royals’ outfield ranks last in the majors in offensive output, with a 64 wRC+, 17% worse than the second-worst outfield.`\
 https://nytimes.com/athletic/6517549/2025/07/26/royals-randal-grichuk-trade-diamondbacks/

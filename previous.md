@@ -1,3 +1,7 @@
+**Austin Hill given reckless driving penalty for crash at Indianapolis**\
+`The incident occurred during the closing laps when Almirola and Hill were racing for position inside the top 10 when Almirola got into Hill’`\
+https://nytimes.com/athletic/6517569/2025/07/26/austin-hill-reckless-driving-penalty-nascar/
+
 **Grades: Royals acquire OF Randal Grichuk from D-Backs to boost outfield**\
 `The Royals’ outfield ranks last in the majors in offensive output, with a 64 wRC+, 17% worse than the second-worst outfield.`\
 https://nytimes.com/athletic/6517549/2025/07/26/royals-randal-grichuk-trade-diamondbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517463/2025/07/26/yankees-aaron-judge-spencer-jone
 **Rams QB Matthew Stafford to sit out practice as he deals with back soreness**\
 `Though Sean McVay reiterated he does not expect Stafford to practice at all this week, he is not concerned about his quarterback.`\
 https://nytimes.com/athletic/6517429/2025/07/26/rams-qb-matthew-stafford-out-back-soreness/
-
-**Nick Kurtz's parents overwhelmed after son's historic performance: 'Did that just happen?'**\
-`Just 13 months after the A's rookie finished his collegiate career, his mother and father saw him go 6-for-6 with four homers in Houston.`\
-https://nytimes.com/athletic/6517333/2025/07/26/nick-kurtz-four-home-runs-parents-athletics-astros/
 
