@@ -1,3 +1,7 @@
+**Carney: England's Michelle Agyemang has an aura about her — you know something special is coming**\
+`Former England international Karen Carney analyses what makes the teenage striker so lethal in front of goal `\
+https://nytimes.com/athletic/6516979/2025/07/27/michelle-agyemang-england-euros-karen-carney/
+
 **The New York Times in Print for Sunday, July 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/27/todays-new-york-times
