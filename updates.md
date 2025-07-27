@@ -1,3 +1,7 @@
+**Red Sox beat Dodgers, hope to convince front office to add at trade deadline**\
+`"Reinforcements for sure, just to bolster us for a deep run," Red Sox shortstop Trevor Story said. `\
+https://nytimes.com/athletic/6517741/2025/07/27/red-sox-win-dodgers-trade-deadline-adds/
+
 **Why the end of free-to-air Tour de France coverage in the UK is a concerning moment for cycling**\
 `Easy access to the sport's biggest race is vital for inspiring new generations of riders - but it is about to be scrapped`\
 https://nytimes.com/athletic/6516755/2025/07/27/tour-de-france-uk-television/

@@ -1,3 +1,7 @@
+**Red Sox beat Dodgers, hope to convince front office to add at trade deadline**\
+`"Reinforcements for sure, just to bolster us for a deep run," Red Sox shortstop Trevor Story said. `\
+https://nytimes.com/athletic/6517741/2025/07/27/red-sox-win-dodgers-trade-deadline-adds/
+
 **Why the end of free-to-air Tour de France coverage in the UK is a concerning moment for cycling**\
 `Easy access to the sport's biggest race is vital for inspiring new generations of riders - but it is about to be scrapped`\
 https://nytimes.com/athletic/6516755/2025/07/27/tour-de-france-uk-television/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/pageoneplus/quote-of-the-day-jack-mcauliffe-who-b
 **Connections: Sports Edition Coach: Hints for July 27, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6515446/2025/07/27/connections-sports-edition-hints-for-july-27-2025/
-
-**Corrections: July 27, 2025**\
-`No corrections appeared in print on Sunday, July 27, 2025.`\
-https://nytimes.com/2025/07/27/pageoneplus/corrections-july-27-2025.html
 
