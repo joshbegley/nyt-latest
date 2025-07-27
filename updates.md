@@ -1,3 +1,7 @@
+**Brighton defender Webster will undergo surgery on knee ligament injury**\
+`Brighton have maintained a 100% record across their pre-season but will miss Webster for much of the upcoming campaign.`\
+https://nytimes.com/athletic/6517887/2025/07/27/brighton-adam-webster-knee-surgery-ligament-injury/
+
 **Can Mamdani’s Message Play Outside New York? It Already Has.**\
 `Zohran Mamdani’s mayoral primary victory in New York follows wins by other big-city progressives. Are voters more open to backing progressive stances?`\
 https://nytimes.com/2025/07/27/nyregion/mamdani-wu-progressive-democrats.html
