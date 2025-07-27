@@ -1,3 +1,11 @@
+**What's trending in the right direction for hot Phillies offense**\
+`Superstars hitting their stride, slumping players putting their best foot forward — a lot is going right for the Phillies offense.`\
+https://nytimes.com/athletic/6517288/2025/07/26/phillies-hot-offense-yankees/
+
+**Why Yankees likely won't call up Spencer Jones with Aaron Judge injured**\
+`Spencer Jones has dominated since his June 27 promotion, hitting .400 with 13 home runs, including a three-homer game, in 19 Triple-A games.`\
+https://nytimes.com/athletic/6517463/2025/07/26/yankees-aaron-judge-spencer-jones/
+
 **Rams QB Matthew Stafford to sit out practice as he deals with back soreness**\
 `Though Sean McVay reiterated he does not expect Stafford to practice at all this week, he is not concerned about his quarterback.`\
 https://nytimes.com/athletic/6517429/2025/07/26/rams-qb-matthew-stafford-out-back-soreness/
