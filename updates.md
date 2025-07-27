@@ -1,3 +1,7 @@
+**Arsenal 3 Newcastle United 2 – The Briefing: Havertz impresses, Gyokeres unveiled, and an exciting Dowman cameo**\
+`Arsenal fans enjoyed a glimpse of both a new signing and a potential star of the future as they bested Newcastle in Singapore`\
+https://nytimes.com/athletic/6518134/2025/07/27/arsenal-newcastle-briefing-singapore-gyokeres-dowman-odegaard/
+
 **5 Podcasts That Illustrate the Ungraspable Nature of Justice**\
 `How a stew of racism, law enforcement misconduct and bureaucratic incompetence led to wrongful convictions on both sides of the Atlantic.`\
 https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
