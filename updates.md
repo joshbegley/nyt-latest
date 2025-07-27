@@ -1,5 +1,9 @@
 **Israel Says It Has Paused Some Military Activity in Gaza as Anger Grows Over Hunger**\
 `Operations in three parts of the enclave were temporarily halted on Sunday to allow more aid to enter the territory, the Israeli military said. It was unclear if the decision would relieve the hunger crisis in Gaza.`\
+https://nytimes.com/2025/07/27/world/middleeast/israel-gaza-aid-hunger.html
+
+**Israel Says It Has Paused Some Military Activity in Gaza as Anger Grows Over Hunger**\
+`Operations in three parts of the enclave were temporarily halted on Sunday to allow more aid to enter the territory, the Israeli military said. It was unclear if the decision would relieve the hunger crisis in Gaza.`\
 https://nytimes.com/2025/07/27/world/middleeast/israel-says-it-has-paused-some-military-activity-in-gaza-as-anger-grows-over-hunger.html
 
 **Trump is set to meet with the European Union’s top official.**\
