@@ -1,3 +1,7 @@
+**Terry McLaurin reports to Commanders camp, still no contract extension**\
+`The 29-year-old receiver has yet to receive the contract extension he wants, but McLaurin reported to Commanders training camp on Saturday.`\
+https://nytimes.com/athletic/6518061/2025/07/27/terry-mclaurin-reports-commanders-contract-extension/
+
 **Bayern close on €75m signing of Liverpool's Diaz**\
 `Diaz, who has a contract at Anfield until June 2027, has made it clear he wants to leave the Anfield club this summer.`\
 https://nytimes.com/athletic/6515506/2025/07/27/luis-diaz-bayern-munich-transfer-liverpool/
