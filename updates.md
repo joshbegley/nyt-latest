@@ -1,3 +1,19 @@
+**England’s epic Euro 2025 final penalty shootout: Notes under sleeves, a retaken kick and ice-cold Kelly**\
+`England converted three penalties and goalkeeper Hannah Hampton saved two to hold off Spain in the Euro 2025 final.`\
+https://nytimes.com/athletic/6518839/2025/07/27/england-spain-euros-final-chloe-kelly-penalty-kicks/
+
+**Packers training camp: Matt LaFleur needs Nate Hobbs to dial it down and 9 more observations**\
+`Hobbs' physicality is what attracted him to the Packers in free agency, but LaFleur would rather he not be so physical in training camp.`\
+https://nytimes.com/athletic/6518898/2025/07/27/packers-matt-lafleur-nate-hobbs/
+
+**Constellation Part**\
+`Brian Callahan sees things differently.`\
+https://nytimes.com/2025/07/27/crosswords/daily-puzzle-2025-07-28.html
+
+**U.S. and Europe Reach Preliminary Trade Deal With 15% Tariffs**\
+`The deal, which would set a 15 percent tariff on most E.U. goods, averted what could have become a painful trade war with the United States’ biggest source of imports.`\
+https://nytimes.com/video/world/europe/100000010308174/trump-us-eu-tariffs-trade.html
+
 **Aid Trickles Into Parts of Gaza as Israel Pauses Some Military Activity**\
 `Israel’s move comes amid growing international pressure over the dire conditions and hunger crisis in the Gaza Strip.`\
 https://nytimes.com/video/world/middleeast/100000010308116/gaza-aid-distribution-hunger.html
