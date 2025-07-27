@@ -1,3 +1,7 @@
+**Tom Lehrer, Musical Satirist With a Dark Streak, Dies at 97**\
+`A mathematician by training, he acquired a devoted following with songs that set sardonic lyrics to music that was often maddeningly cheerful.`\
+https://nytimes.com/2025/07/27/arts/music/tom-lehrer-dead.html
+
 **Chelsea youth coach Coelho set to leave club to join Strasbourg**\
 `Coelho was hired by Chelsea to lead their development squad in July 2024 after a season as under-23 coach at Estoril.`\
 https://nytimes.com/athletic/6518295/2025/07/27/chelsea-news-filipe-coelho/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/arts/5-podcasts-justice-system.html
 **Raymond Saunders, Painter Who Rejected Racial Pigeonholes, Dies at 90**\
 `Widely admired if long underrecognized for his collage-based art, he died only days after the closing of his first retrospective at a major museum, in his native Pittsburgh.`\
 https://nytimes.com/2025/07/27/arts/raymond-saunders-dead.html
-
-**Record deals, Eriksen approach, clearout needed too: Wrexham's busy window**\
-`Wrexham are making considerable moves in the transfer market - but they also have 30 players. They now need players to leave too `\
-https://nytimes.com/athletic/6516777/2025/07/27/wrexham-transfers-records-eriksen-parkinson/
 
