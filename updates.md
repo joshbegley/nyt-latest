@@ -1,3 +1,11 @@
+**England’s Lionesses Take ‘Football Home’ With Gripping Euro Win**\
+`By edging out Spain in a penalty shootout in the European championship final, England’s women’s team cemented its position as the standard-bearer for English soccer.`\
+https://nytimes.com/2025/07/27/world/europe/england-women-soccer-championship.html
+
+**Braves acquire Erick Fedde from Cardinals to reinforce pitching staff**\
+`The 32-year-old right-hander went 3-10 with a 5.22 ERA over 20 games with the Cardinals prior to being DFA'd.`\
+https://nytimes.com/athletic/6519027/2025/07/27/atlanta-braves-erick-fedde-acquisition/
+
 **How England nullified Spain: The Wiegman tactics that shut down the world champions**\
 `Breaking down the approach that enabled the Lionesses to take the Euro 2025 final to a penalty shootout, which they won`\
 https://nytimes.com/athletic/6518861/2025/07/27/how-england-nullified-spain-wiegman-tactics/
