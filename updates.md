@@ -1,3 +1,7 @@
+**What we know about Emmanuel Clase and MLB's gambling investigation**\
+`The development delivers a crushing blow to a Guardians team that was hanging around the periphery of the Wild Card race.`\
+https://nytimes.com/athletic/6521125/2025/07/28/cleveland-guardians-emmanuel-clase-investigation/
+
 **Live Q&A: Cardinals trade deadline talk with Katie Woo at 11 a.m. CT Tuesday**\
 `The Cardinals are struggling. What will they do at the trade deadline? `\
 https://nytimes.com/athletic/6521377/2025/07/28/cardinals-live-questions-deadline/

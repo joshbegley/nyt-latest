@@ -1,3 +1,7 @@
+**What we know about Emmanuel Clase and MLB's gambling investigation**\
+`The development delivers a crushing blow to a Guardians team that was hanging around the periphery of the Wild Card race.`\
+https://nytimes.com/athletic/6521125/2025/07/28/cleveland-guardians-emmanuel-clase-investigation/
+
 **Live Q&A: Cardinals trade deadline talk with Katie Woo at 11 a.m. CT Tuesday**\
 `The Cardinals are struggling. What will they do at the trade deadline? `\
 https://nytimes.com/athletic/6521377/2025/07/28/cardinals-live-questions-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521269/2025/07/28/washington-nationals-travis-syko
 **3 Out of 5 Liver Cancer Cases Are Preventable, Study Finds**\
 `Without efforts to address some causes, including alcohol use and metabolic issues, the researchers warn that cases could nearly double by 2050.`\
 https://nytimes.com/2025/07/28/well/liver-cancer-prevention.html
-
-**New Trump Administration Guidelines Stress Workplace Religious Freedoms**\
-`The guidance covers employees and supervisors seeking to recruit fellow federal workers to their religion. The Clinton White House issued similar guidelines in 1997, though with more detailed examples and caveats.`\
-https://nytimes.com/2025/07/28/us/politics/trump-religion-work.html
 
