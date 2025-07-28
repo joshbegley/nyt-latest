@@ -1,3 +1,11 @@
+**Harvard Is Said to Be Open to Spending Up To $500 Million to Resolve Trump Dispute**\
+`The sum sought by the government is more than twice as much as the $200 million fine that Columbia University said it would pay when it settled its clash with the White House last week.`\
+https://nytimes.com/2025/07/28/us/politics/trump-harvard-payment.html
+
+**Eagles camp: Saquon Barkley on his 2025 workload, Drew Mukuba's injury status**\
+`Also, the Eagles QB had a tough day and Quinyon Mitchell rotated sides at cornerback in practice. `\
+https://nytimes.com/athletic/6520472/2025/07/28/philadelphia-eagles-training-camp-saquon-barkley-drew-mukuba/
+
 **Gwyneth Paltrow Helps Turn Astronomer’s Infamy on Its Head**\
 `The technology company that was at the center of a scandal last week released a tongue-in-cheek response. It landed.`\
 https://nytimes.com/2025/07/28/style/gwyneth-paltrow-astronomer-spokesperson-coldplay-scandal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/briefing/trump-gaza-starvation-trade-thailand-cam
 **Division lead on the line, Miz on the mound: How to watch the Cubs-Brewers series**\
 `With first place up for grabs and a stellar mound matchup Monday, the NL Central rivals get after it with a three-game series in Milwaukee.`\
 https://nytimes.com/athletic/6520525/2025/07/28/cubs-brewers-misiorowski-boyd-how-to-watch/
-
-**Should the Giants buy or sell at the trade deadline?**\
-`The Giants are in position to push for the postseason. They've also been awful the past few weeks. Should they go for it or punt?`\
-https://nytimes.com/athletic/6519531/2025/07/28/sf-giants-buyers-sellers-trade-deadline/
-
-**Veteran C.I.A. Official to Retire After Losing Out on London Job**\
-`Tom Sylvester had been set to be the agency’s top liaison to Britain, America’s most important intelligence partner and the agency’s most prestigious overseas posting.`\
-https://nytimes.com/2025/07/28/us/politics/cia-official-to-retire-london-job.html
 

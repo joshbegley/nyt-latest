@@ -1,3 +1,11 @@
+**Harvard Is Said to Be Open to Spending Up To $500 Million to Resolve Trump Dispute**\
+`The sum sought by the government is more than twice as much as the $200 million fine that Columbia University said it would pay when it settled its clash with the White House last week.`\
+https://nytimes.com/2025/07/28/us/politics/trump-harvard-payment.html
+
+**Eagles camp: Saquon Barkley on his 2025 workload, Drew Mukuba's injury status**\
+`Also, the Eagles QB had a tough day and Quinyon Mitchell rotated sides at cornerback in practice. `\
+https://nytimes.com/athletic/6520472/2025/07/28/philadelphia-eagles-training-camp-saquon-barkley-drew-mukuba/
+
 **Gwyneth Paltrow Helps Turn Astronomer’s Infamy on Its Head**\
 `The technology company that was at the center of a scandal last week released a tongue-in-cheek response. It landed.`\
 https://nytimes.com/2025/07/28/style/gwyneth-paltrow-astronomer-spokesperson-coldplay-scandal.html
