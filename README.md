@@ -1,3 +1,7 @@
+**‘Revenge Is Not a Policy’: Israelis Voice Dissent Against the War in Gaza**\
+`After a long silence, prominent Israelis and activists are increasingly raising alarms about potential war crimes being carried out by the government.`\
+https://nytimes.com/2025/07/28/world/middleeast/israel-dissent-war-gaza.html
+
 **Giro winner Longo Borghini drops out of Tour de France Femmes after stomach infection**\
 `The 33-year-old is the second GC competitor to drop out of the 2025 Tour de France Femmes with stomach issues after Marlen Reusser. `\
 https://nytimes.com/athletic/6519705/2025/07/28/tour-de-france-femmes-elisa-longo-borghini-abandons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518942/2025/07/28/kerry-carpenter-return-help-tige
 **The story of the 2025 Tour de France in 21 photographs**\
 `Every year the Tour is a slice of a French summer – these are some of the most evocative images from the 2025 edition`\
 https://nytimes.com/athletic/6515169/2025/07/28/21-photos-tour-de-france-2025-story/
-
-**What to make of Browns' QB competition one week into training camp**\
-`A breakdown of how Joe Flacco, Kenny Pickett, Dillon Gabriel and Shedeur Sanders have looked early on in training camp.`\
-https://nytimes.com/athletic/6518388/2025/07/28/cleveland-browns-training-camp-quarterback-competition/
 
