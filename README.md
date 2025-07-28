@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/28/us/politics/ghislaine-maxwell-epstein-interview-d
 `The 17-year-old signed his first pro terms at Tottenham last summer, with that deal running until 2027.`\
 https://nytimes.com/athletic/6515695/2025/07/28/mikey-moore-rangers-tottenham/
 
-**Cardinals pitching prospect Tekoah Roby undergoes Tommy John, will likely miss 2026 season**\
+**Cardinals prospect Tekoah Roby undergoes Tommy John surgery, will likely miss 2026 season**\
 `Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
 https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
 
