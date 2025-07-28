@@ -1,3 +1,7 @@
+**If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
+`Tottenham's move for Gibbs-White appears to have failed - which other players come closest to matching his fairly unusual skill set?`\
+https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/
+
 **Morecambe facing National League expulsion amid financial woes**\
 `The Lancashire-based club are already under a transfer embargo and have now had its first three league fixtures postponed.`\
 https://nytimes.com/athletic/6520356/2025/07/28/morecambe-national-league-expelled/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/arts/music/john-williams-piano-concerto-tanglewoo
 **Durbin Demands Tapes of Ghislaine Maxwell Interviews**\
 `The top Democrat on the Senate Judiciary Committee also pressed the Justice Department for a promise that Ms. Maxwell will not be pardoned for her cooperation in matters related to the Jeffrey Epstein files.`\
 https://nytimes.com/2025/07/28/us/politics/ghislaine-maxwell-epstein-interview-durbin.html
-
-**Tottenham's Moore closing in on Rangers loan**\
-`The 17-year-old signed his first pro terms at Tottenham last summer, with that deal running until 2027.`\
-https://nytimes.com/athletic/6515695/2025/07/28/mikey-moore-rangers-tottenham/
 

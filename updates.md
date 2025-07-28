@@ -1,3 +1,7 @@
+**If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
+`Tottenham's move for Gibbs-White appears to have failed - which other players come closest to matching his fairly unusual skill set?`\
+https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/
+
 **Morecambe facing National League expulsion amid financial woes**\
 `The Lancashire-based club are already under a transfer embargo and have now had its first three league fixtures postponed.`\
 https://nytimes.com/athletic/6520356/2025/07/28/morecambe-national-league-expelled/
