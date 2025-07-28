@@ -1,3 +1,11 @@
+**Gunfire Breaks Out at Investment Bank Headquarters on Park Avenue**\
+`At least one person was shot, and the building that houses the investment company Blackstone was in lockdown in Manhattan.`\
+https://nytimes.com/2025/07/28/nyregion/gunfire-park-avenue-building-nyc.html
+
+**N.J. Criminal Cases Screech to a Halt as Habba’s Authority Is Challenged**\
+`Federal court hearings, grand jury proceedings and plea deals were abruptly canceled in New Jersey over questions about whether Alina Habba, the acting U.S. attorney, was legally appointed.`\
+https://nytimes.com/2025/07/28/nyregion/alina-habba-new-jersey-us-attorney-battle.html
+
 **What we know about Emmanuel Clase and MLB's gambling investigation**\
 `The development delivers a crushing blow to a Guardians team that was hanging around the periphery of the Wild Card race.`\
 https://nytimes.com/athletic/6521125/2025/07/28/cleveland-guardians-emmanuel-clase-investigation/
