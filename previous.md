@@ -1,3 +1,7 @@
+**Live Q&A: Cardinals trade deadline talk with Katie Woo at 11 a.m. CT Tuesday**\
+`The Cardinals are struggling. What will they do at the trade deadline? `\
+https://nytimes.com/athletic/6521377/2025/07/28/cardinals-live-questions-deadline/
+
 **Study Undercuts Idea That Cash Payments to Poor Families Help Child Development**\
 `Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
 https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/well/liver-cancer-prevention.html
 **New Trump Administration Guidelines Stress Workplace Religious Freedoms**\
 `The guidance covers employees and supervisors seeking to recruit fellow federal workers to their religion. The Clinton White House issued similar guidelines in 1997, though with more detailed examples and caveats.`\
 https://nytimes.com/2025/07/28/us/politics/trump-religion-work.html
-
-**Packers training camp: Elgton Jenkins returns and doesn't care about the money**\
-`There are financial implications of switching from left guard to center, but Jenkins said he's not thinking about them anymore.`\
-https://nytimes.com/athletic/6521112/2025/07/28/packers-training-camp-elgton-jenkins/
 

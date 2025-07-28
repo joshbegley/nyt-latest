@@ -1,3 +1,7 @@
+**Live Q&A: Cardinals trade deadline talk with Katie Woo at 11 a.m. CT Tuesday**\
+`The Cardinals are struggling. What will they do at the trade deadline? `\
+https://nytimes.com/athletic/6521377/2025/07/28/cardinals-live-questions-deadline/
+
 **Study Undercuts Idea That Cash Payments to Poor Families Help Child Development**\
 `Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
 https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
