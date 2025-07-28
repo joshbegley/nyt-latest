@@ -1,3 +1,11 @@
+**Ravens determined to right their wrongs of the past by prioritizing the little things**\
+`OWINGS MILLS, Md.`\
+https://nytimes.com/athletic/6519341/2025/07/28/baltimore-ravens-training-camp-super-bowl/
+
+**The Pulse: Women’s soccer summer returns stateside**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6519574/2025/07/28/nwsl-second-half-euros-the-pulse/
+
 **UEFA Women's Euro 2025: Best player, favourite moments, biggest disappointments and more**\
 `Our team of writers reflect on the 2025 UEFA Women's Euros and pick their favourite moments, quotes and lessons learned`\
 https://nytimes.com/athletic/6519181/2025/07/28/uefa-womens-euro-2025-best-player-favourite-moments-biggest-disappointments-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6518095/2025/07/28/quarterback-recruiting-2024-sayi
 **Sovereignty Is Having a Moment**\
 `We explain why leaders are talking so much about independence.`\
 https://nytimes.com/2025/07/28/briefing/sovereignty-is-having-a-moment.html
-
-**Saliba hopeful over new Arsenal contract**\
-`The 24-year-old France international is currently in talks with Arsenal over a renegotiation.`\
-https://nytimes.com/athletic/6519642/2025/07/28/arsenal-william-saliba-contract-new/
-
-**Trump and the E.U. Have a Blueprint for a Giant Trade Deal. Is it Good for Europe?**\
-`Both sides hailed the agreement as the biggest ever. But it will come at a cost to the European Union, and many details have yet to be nailed down.`\
-https://nytimes.com/2025/07/28/world/europe/eu-trade-deal-trump-tariffs.html
 
