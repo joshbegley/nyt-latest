@@ -1,3 +1,7 @@
+**Live Q&A: Dodgers trade deadline talk with Fabian Ardaya at 9 a.m. PT Tuesday**\
+`The Dodgers have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
+https://nytimes.com/athletic/6521461/2025/07/28/dodgers-deadline-questions-live/
+
 **Dodgers slated to call up infield prospect Alex Freeland: Source**\
 `The club has been in need of another versatile option of late due to injuries.`\
 https://nytimes.com/athletic/6521432/2025/07/28/los-angeles-dodgers-alex-freeland-call-up/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521377/2025/07/28/cardinals-live-questions-deadlin
 **Study May Undercut Idea That Cash Payments to Poor Families Help Child Development**\
 `Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
 https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
-
-**The Upside of Suing Trump**\
-`After Big Law backed off from challenging the government, smaller firms have stepped up their efforts.`\
-https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
 
