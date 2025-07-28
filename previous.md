@@ -1,3 +1,11 @@
+**​North Korea Rejects New South Korean Leader’s Peace Overtures**\
+`In its first comment on President Lee Jae Myung of South Korea, North Korea dismissed a call for dialogue, dampening hopes of a new chapter in relations.`\
+https://nytimes.com/2025/07/28/world/asia/north-korea-rejects-peace-gestures.html
+
+**Word of the Day: lagniappe**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/28/learning/word-of-the-day-lagniappe.html
+
 **Luis Diaz heads for Anfield exit: What it means for his legacy and Liverpool's transfer plans**\
 `Diaz made an instant impact at Anfield, but his departure now makes sense for both Liverpool and the player`\
 https://nytimes.com/athletic/6519367/2025/07/28/luis-diaz-liverpool-bayern-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6510886/2025/07/28/how-do-manchester-uniteds-summer
 **Why are Aston Villa making so many €5m to €9m signings?**\
 `The club's recruitment in the past 18 months can be put in two clear categories - 'potential players' are important to their business model`\
 https://nytimes.com/athletic/6501861/2025/07/28/aston-villa-transfers-signings-psr/
-
-**Would Sesko be a suitable replacement for Isak at Newcastle?**\
-`Alexander Isak wants to leave Newcastle. They would go all-in on Benjamin Sesko to replace him. Would it work?`\
-https://nytimes.com/athletic/6516756/2025/07/28/benjamin-sesko-newcastle-alexander-isak-analysis/
-
-**Morgan Gibbs-White's decision is the kind of 'win' Nottingham Forest deserve to revel in**\
-`Having star players spirited away is something Forest have experienced in the past. But not this time — and it feels good`\
-https://nytimes.com/athletic/6518567/2025/07/28/morgan-gibbs-white-contract-marinakis-nottingham-forest/
 

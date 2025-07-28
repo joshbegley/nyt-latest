@@ -1,3 +1,11 @@
+**​North Korea Rejects New South Korean Leader’s Peace Overtures**\
+`In its first comment on President Lee Jae Myung of South Korea, North Korea dismissed a call for dialogue, dampening hopes of a new chapter in relations.`\
+https://nytimes.com/2025/07/28/world/asia/north-korea-rejects-peace-gestures.html
+
+**Word of the Day: lagniappe**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/28/learning/word-of-the-day-lagniappe.html
+
 **Luis Diaz heads for Anfield exit: What it means for his legacy and Liverpool's transfer plans**\
 `Diaz made an instant impact at Anfield, but his departure now makes sense for both Liverpool and the player`\
 https://nytimes.com/athletic/6519367/2025/07/28/luis-diaz-liverpool-bayern-transfer/
