@@ -1,3 +1,11 @@
+**Broncos extend Courtland Sutton in 4-year, $92 million deal: Sources**\
+`Sutton is coming off arguably the best season of his career.`\
+https://nytimes.com/athletic/6520724/2025/07/28/broncos-extend-cortland-sutton/
+
+**Bears camp observations: Caleb Williams under center, Jaquan Brisker's enhanced role**\
+`The pads came on for the first time this summer as the Bears continued to get Williams experience from under center.`\
+https://nytimes.com/athletic/6520624/2025/07/28/bears-camp-observations-caleb-williams-jaquan-brisker/
+
 **Aaron Glenn just conducted the most physical Jets practice in years. Here's how — and why**\
 `Plus, Justin Fields is all the way back, O-line vs. D-line highlights, and much more.`\
 https://nytimes.com/athletic/6520560/2025/07/28/aaron-glenn-jets-first-padded-training-camp-practice/
