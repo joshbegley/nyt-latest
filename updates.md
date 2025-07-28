@@ -1,3 +1,11 @@
+**Giants to promote pitching prospect Carson Whisenhunt for debut Monday vs. Pirates**\
+`"With what's gone on here … there's a need for it," Bob Melvin said. "It'll be exciting to see him pitch."`\
+https://nytimes.com/athletic/6519526/2025/07/28/giants-to-promote-carson-whisenhunt/
+
+**Would Sesko be a suitable replacement for Isak at Newcastle?**\
+`Alexander Isak wants to leave Newcastle. They would go all-in on Benjamin Sesko to replace him. Would it work?`\
+https://nytimes.com/athletic/6516756/2025/07/28/benjamin-sesko-newcastle-alexander-isak-analysis/
+
 **What We Talk About When We Talk About the Right of Return**\
 `My Palestinian mother-in-law has been displaced since 1948`\
 https://nytimes.com/2025/07/28/opinion/palestinians-right-of-return.html
