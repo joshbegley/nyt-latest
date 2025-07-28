@@ -1,3 +1,19 @@
+**Kennedy Intends to Overhaul Federal Compensation for Vaccine Injuries**\
+`The program, created by Congress, allows people who believe they were injured by vaccines to apply for financial compensation.`\
+https://nytimes.com/2025/07/28/health/kennedy-vaccine-injury-court.html
+
+**Scouting Travis Bazzana, Braylon Doughty and other Guardians, Orioles prospects**\
+`Angel Genao has the athleticism for shortstop. Will he outgrow the position? Plus notes on Cooper Ingle, Chase Allsup and Andy Fabian.`\
+https://nytimes.com/athletic/6520595/2025/07/28/travis-bazzana-braylon-doughty-guardians-orioles-scouting/
+
+**Bills training camp observations, Day 5: Benford shines, Kincaid sits out Day 1 in pads**\
+`Dalton Kincaid is battling soreness in the same knee he injured in 2024, while Tyrell Shavers expects to return soon from an ankle injury.`\
+https://nytimes.com/athletic/6520581/2025/07/28/bills-training-camp-christian-benford-dalton-kincaid/
+
+**Key Twins trade deadline questions: Who's pulling strings and what direction can they take?**\
+`The fourth-place Twins have no time to show that they can make a playoff run before this week's trade deadline.`\
+https://nytimes.com/athletic/6520646/2025/07/28/twins-mlb-trade-deadline-questions/
+
 **The Short-Lived Plan to Produce a Trump-Themed Instant Pot**\
 `As its private-equity owner fought antitrust allegations, the countertop cooker suddenly embraced the president’s politics, trying the new playbook of lobbying through flattery.`\
 https://nytimes.com/2025/07/28/us/politics/trump-maga-instant-pot.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6520624/2025/07/28/bears-camp-observations-caleb-wi
 **Pro-Ukrainian Hackers Claim Cyberattack as Aeroflot Grounds Flights**\
 `The hack may have been part of a campaign to disrupt the sense of normalcy Russians have mostly enjoyed since the start of the war.`\
 https://nytimes.com/2025/07/28/world/europe/aeroflot-hackers-ukraine.html
-
-**Aaron Glenn just conducted the most physical Jets practice in years. Here's how — and why**\
-`Plus, Justin Fields is all the way back, O-line vs. D-line highlights, and much more.`\
-https://nytimes.com/athletic/6520560/2025/07/28/aaron-glenn-jets-first-padded-training-camp-practice/
-
-**Five key Yankees trade deadline questions: How could they upgrade the bullpen?**\
-`The Yankees have turned their attention to the pitching staff, in particular the bullpen, as Thursday's trade deadline draws near. `\
-https://nytimes.com/athletic/6520343/2025/07/28/yankees-mlb-trade-deadline-questions-targets/
-
-**Faculty Support of George Mason’s President Draws Federal Investigation**\
-`The Faculty Senate at George Mason University in Virginia adopted a resolution supporting the school’s president and his work related to diversity. The Justice Department says it will investigate.`\
-https://nytimes.com/2025/07/28/us/justice-department-george-mason-faculty-senate-investigation.html
-
-**For Trump, Mass Starvation in Gaza Tests His Foreign Policy Approach**\
-`President Trump will have to decide whether America intends to take a leading role in confronting one of the biggest humanitarian catastrophes of the 21st century.`\
-https://nytimes.com/2025/07/28/us/politics/trump-starvation-gaza-america-first.html
 

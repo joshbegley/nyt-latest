@@ -1,3 +1,15 @@
+**The Short-Lived Plan to Produce a Trump-Themed Instant Pot**\
+`As its private-equity owner fought antitrust allegations, the countertop cooker suddenly embraced the president’s politics, trying the new playbook of lobbying through flattery.`\
+https://nytimes.com/2025/07/28/us/politics/trump-maga-instant-pot.html
+
+**She’s Known for Eccentric Baby Names. Meet Aquaman.**\
+`The internet personality Trisha Paytas has her followers clinging to every baby name reveal. Is it just another form of viral clickbait?`\
+https://nytimes.com/2025/07/28/style/trisha-paytas-aquaman-baby-names.html
+
+**After Brickyard 400 win, Bubba Wallace wants to know: What will they say now?**\
+`Bubba Wallace scores a win to throw back at the critics, Ty Gibbs wins an underwhelming $1 million and more from Indianapolis.`\
+https://nytimes.com/athletic/6519838/2025/07/28/bubba-wallace-brickyard-400-win-23xi/
+
 **Broncos extend Courtland Sutton in 4-year, $92 million deal: Sources**\
 `Sutton is coming off arguably the best season of his career.`\
 https://nytimes.com/athletic/6520724/2025/07/28/broncos-extend-cortland-sutton/
