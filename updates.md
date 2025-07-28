@@ -1,3 +1,7 @@
+**Faculty Support of George Mason’s President Draws Federal Investigation**\
+`The Faculty Senate at George Mason University in Virginia adopted a resolution supporting the school’s president and his work related to diversity. The Justice Department says it will investigate.`\
+https://nytimes.com/2025/07/28/us/justice-department-george-mason-faculty-senate-investigation.html
+
 **For Trump, Mass Starvation in Gaza Tests His Foreign Policy Approach**\
 `President Trump will have to decide whether America intends to take a leading role in confronting one of the biggest humanitarian catastrophes of the 21st century.`\
 https://nytimes.com/2025/07/28/us/politics/trump-starvation-gaza-america-first.html
