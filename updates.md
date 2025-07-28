@@ -1,3 +1,15 @@
+**Trump and the E.U. Have a Blueprint for a Giant Trade Deal. Is it Good for Europe?**\
+`Both sides hailed the agreement as the biggest ever. But it will come at a cost to the European Union, and many details have yet to be nailed down.`\
+https://nytimes.com/2025/07/28/world/europe/eu-trade-deal-trump-tariffs.html
+
+**TAFC: Kelly and Hampton, England's Euros stars. Plus: How Gibbs-White shocked Spurs**\
+`Sarina Wiegman's team battle to retain their crown, Nottingham Forest's flex, and the fallout from Lionel Messi's ban`\
+https://nytimes.com/athletic/6519690/2025/07/28/england-euros-gibbs-white-spurs-tafc/
+
+**Rosenthal: In looking to add a top reliever at the deadline, contenders face a conundrum**\
+`Do teams overpay for an elite, controllable late-inning weapon or spend significantly less to get a rental player heading into free agency? `\
+https://nytimes.com/athletic/6519476/2025/07/28/mlb-trade-deadline-relievers-dodgers-blue-jays/
+
 **‘Revenge Is Not a Policy’: Israelis Voice Dissent Against the War in Gaza**\
 `After a long silence, prominent Israelis and activists are increasingly raising alarms about potential war crimes being carried out by the government.`\
 https://nytimes.com/2025/07/28/world/middleeast/israel-dissent-war-gaza.html
