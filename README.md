@@ -1,40 +1,40 @@
-**Heavy Rain Likely Caused Deadly German Train Derailment, Investigators Say**\
-`Television news footage showed bent tracks and piles of mud at the scene of the accident near the town of Riedlingen in southern Germany. Three people were killed and 41 injured.`\
-https://nytimes.com/2025/07/28/world/europe/germany-train-derails.html
+**Eric Allen's late-career run with Raiders cemented Hall of Fame credentials**\
+`The former Eagles, Saints and Raiders defensive back will be enshrined Aug. 2 in Canton with Jared Allen, Antonio Gates and Sterling Sharpe.`\
+https://nytimes.com/athletic/6507139/2025/07/28/eric-allen-pro-football-hall-of-fame-raiders-eagles-saints/
 
-**Nevada Democrats Spot an Opportunity in a Vulnerable G.O.P. Governor**\
-`The state attorney general, Aaron Ford, is seen as Democrats’ best bet to oust Gov. Joe Lombardo. Mr. Lombardo doesn’t plan on going down easy.`\
-https://nytimes.com/2025/07/28/us/politics/nevada-governor-ford.html
+**Cowboys camp observations: Deep ball needs work, pass rushers look good in pads**\
+`In the Cowboys' first padded practice of camp, the defense continued with the upper hand.`\
+https://nytimes.com/athletic/6519279/2025/07/28/cowboys-training-camp-passing-game-dak-prescott/
 
-**The New York Times International Edition in Print for Tuesday, July 29, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/28/todays-new-york-times-international-edition
+**Vikings training camp: J.J. McCarthy’s early progress and 5 key takeaways**\
+`McCarthy has impressed, Brian Flores' defense looks sharp and there are roster battles aplenty as the Vikings prepare to put pads on Monday.`\
+https://nytimes.com/athletic/6517609/2025/07/28/vikings-training-camp-jj-mccarthy-takeaways/
 
-**Patriots 53-man roster projection: Where things stand after the first week of camp**\
-`With concerns about the offensive line and a glut of receivers fighting for roster spots, the Pats have plenty of tough decisions to make.`\
-https://nytimes.com/athletic/6517133/2025/07/28/patriots-53-man-roster-projection-training-camp/
+**Was end of '24 the start of something good? Does Panthers' playoff drought end this year?**\
+`Carolina finished strong last season. It improved from two to five wins. Players sound eager to take the next step.`\
+https://nytimes.com/athletic/6517251/2025/07/28/carolina-panthers-turnaround-playoff-drought/
 
-**How the Falcons are trying to tap into Bijan Robinson's 'home run' potential**\
-`The Falcons drafted Robinson as "a home run hitter." They believe this will be the year he finally shows it.`\
-https://nytimes.com/athletic/6497837/2025/07/28/falcons-bijan-robinson-home-run-potential/
+**Can Kerry Carpenter's return help the Tigers get right?**\
+`The Tigers got one of their most important players back from the IL. In turn, they snapped a brutal losing streak Sunday.`\
+https://nytimes.com/athletic/6518942/2025/07/28/kerry-carpenter-return-help-tigers/
 
-**C.D.C. Ties 85 Cases of THC-Related Symptoms to Wisconsin Restaurant**\
-`The restaurant mistakenly used oil infused with THC, a psychoactive ingredient found in many cannabis products, in food preparation last year, the C.D.C. said.`\
-https://nytimes.com/2025/07/28/well/wisconsin-restaurant-thc-poisoning.html
+**The story of the 2025 Tour de France in 21 photographs**\
+`Every year the Tour is a slice of a French summer – these are some of the most evocative images from the 2025 edition`\
+https://nytimes.com/athletic/6515169/2025/07/28/21-photos-tour-de-france-2025-story/
 
-**Democrats Plan $20 Million Fund to Target Texas Republicans for Redistricting**\
-`At President Trump’s urging, Texas is trying to squeeze up to five Democrats out of office to pad Republicans’ slim majority in the House.`\
-https://nytimes.com/2025/07/28/us/politics/democrats-texas-redistricting.html
+**What to make of Browns' QB competition one week into training camp**\
+`A breakdown of how Joe Flacco, Kenny Pickett, Dillon Gabriel and Shedeur Sanders have looked early on in training camp.`\
+https://nytimes.com/athletic/6518388/2025/07/28/cleveland-browns-training-camp-quarterback-competition/
 
-**November 2026 Is Everything**\
-`For America to survive Trump, Democrats must prevail in the midterms.`\
-https://nytimes.com/2025/07/28/opinion/november-2026-democrats-midterms.html
+**Guardians at trade deadline: Teams want Emmanuel Clase, Shane Bieber. Will Cleveland sell?**\
+`The Guardians are prepared, having done the legwork on each approach. `\
+https://nytimes.com/athletic/6510865/2025/07/28/guardians-trade-deadline-emmanuel-clase-shane-bieber/
 
-**Seattle Couple Adds a Slice of Argentina to Their Backyard**\
-`The homeowners bought adjacent land to build an outdoor dining space detached from their home for hosting barbecues for friends and neighbors`\
-https://nytimes.com/2025/07/28/realestate/quincho-argentina-barbecue-backyard.html
+**Jaguars coach Liam Coen expecting big things from Trevor Lawrence: He needs to 'take over'**\
+`Coen wants Lawrence to step up as leader: "It's, 'Dude, you need to lead all those guys. They’re looking to you, and we’re looking to you.'"`\
+https://nytimes.com/athletic/6518508/2025/07/28/jaguars-trevor-lawrence-liam-coen/
 
-**The Economy Still Isn’t What These 11 Latino Trump Voters Had in Mind**\
-`The group discusses the president’s second term so far, focusing on issues such as the economy and immigration.`\
-https://nytimes.com/interactive/2025/07/28/opinion/focus-group-latino-trump-voters.html
+**Falcons still believe in Kyle Pitts. Can he be trusted in fantasy this season?**\
+`Pitts has had three quiet seasons after a promising rookie campaign. Could he finally break out this season? The fantasy world is skeptical.`\
+https://nytimes.com/athletic/6497826/2025/07/28/falcons-kyle-pitts-fantasy-football/
 
