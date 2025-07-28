@@ -1,3 +1,7 @@
+**Sources: Thomas Muller, Vancouver Whitecaps in talks over summer signing**\
+`The German great teased that he was headed "across the pond" from Europe, and Canada appears to be his next destination`\
+https://nytimes.com/athletic/6520006/2025/07/28/thomas-muller-vancouver-whitecaps-signing-fc-cincinnati-mls-bayern-munich/
+
 **Kennedy Intends to Overhaul Federal Compensation for Vaccine Injuries**\
 `The program, created by Congress, allows people who believe they were injured by vaccines to apply for financial compensation.`\
 https://nytimes.com/2025/07/28/health/kennedy-vaccine-injury-court.html
