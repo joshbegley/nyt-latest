@@ -1,3 +1,7 @@
+**In a First, Leading Israeli Rights Groups Accuse Israel of Gaza Genocide**\
+`Israel says it is fighting against Hamas, not Palestinians as a group. But two of Israel’s best-known rights groups — long critical of Israeli policy — now say they disagree.`\
+https://nytimes.com/2025/07/28/world/middleeast/israel-genocide-gaza-rights-groups.html
+
 **Despite Bombing, Some Remain at Thailand-Cambodia Border**\
 `Hundreds of thousands of civilians have fled the Thailand-Cambodia border area where violence has erupted. However, a few have chosen to not evacuate.`\
 https://nytimes.com/video/world/asia/100000010308433/thailand-cambodia-border-civilians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519391/2025/07/28/gretchen-walsh-summer-mcintosh-s
 **Viktor Gyokeres to Arsenal: Everything you need to know - TLDR**\
 `Arsenal have finally signed the No 9 they have been after - here, we break down the deal`\
 https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer-analysis/
-
-**Shaolin ‘C.E.O. Monk’ Is Accused of Embezzlement and Affairs With Women**\
-`China’s famed Shaolin Temple said its celebrity abbot, Shi Yongxin, was under investigation over misuse of funds and “improper relations” with women.`\
-https://nytimes.com/2025/07/28/world/asia/shaolin-monk-embezzlement-women.html
 
