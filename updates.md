@@ -1,3 +1,18 @@
+**4 Children Injured After Barge Strikes Sailboat off Miami Beach**\
+`Three of the children were in critical condition. The sailboat was struck near Hibiscus Island in Biscayne Bay, the authorities said.`\
+https://nytimes.com/2025/07/28/us/sailboat-sinks-biscayne-bay-miami-rescue.html
+
+**A Healthy Lifestyle Can Help Your Brain, Large Study Finds**\
+`The study found that a combination of exercise, healthy diet and other behaviors led to cognitive benefits. How much intense guidance is required was unclear, experts said.`\
+https://nytimes.com/2025/07/28/health/alzheimers-dementia-healthy-lifestyle.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s been an eventful week for college sports, from presidential orders to media days to Deion Sanders&#8217; news.</p>
+<p>Also, training camps open Friday.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6520593/2025/07/28/submit-a-question-for-stewart-mandels-college-football-mailbag-308/
+
 **Brother of Oasis Frontmen Is Charged With Rape in Britain**\
 `Paul Gallagher, the older brother of Liam and Noel Gallagher, was also accused of making death threats, the authorities said.`\
 https://nytimes.com/2025/07/28/world/europe/paul-gallagher-oasis-rape-charge.html
